@@ -1,36 +1,36 @@
+**Turkey Will Activate Russian S-400 Missile Systems: Minister**\
+`Turkish Defense Minister Hulusi Akar said on Thursday that Turkey will activate the S-400 missile systems which it has bought from Russia and there should be "no doubt" about this.`\
+https://nytimes.com/reuters/2020/02/20/world/europe/20reuters-turkey-usa-russia.html?searchResultPosition=2
+
+**Rybakina Downs Pliskova to Reach Dubai Semis, Muguruza Out**\
+`Kazakhstan's Elena Rybakina produced another upset by beating second seed Karolina Pliskova 7-6(1) 6-3 at the Dubai Duty Free Tennis Championships on Thursday to move into the semi-finals.`\
+https://nytimes.com/reuters/2020/02/20/sports/tennis/20reuters-tennis-dubai.html?searchResultPosition=3
+
+**Syracuse University Lifts Suspensions of Racism Protesters**\
+`Syracuse University Chancellor Kent Syverud has lifted the suspensions of 30 student protesters to allow the university to "step back from the edge” and address reports of racist graffiti and other bias-related incidents on campus, he told the university's governing body.`\
+https://nytimes.com/aponline/2020/02/20/us/ap-us-syracuse-racism.html?searchResultPosition=4
+
+**Trump’s New Intelligence Director Faces a Legal Countdown Clock on His Tenure**\
+`Under federal law, Richard Grenell, the new acting director of intelligence, may be able to serve only a few weeks unless the president nominates someone to take on the job permanently.`\
+https://nytimes.com/2020/02/20/us/politics/grenell-trump-intelligence-director.html?searchResultPosition=5
+
+**Sudan Security Forces Crack Down on Protest Over Dismissed Officers**\
+`Sudanese security forces used teargas and batons on Thursday to disperse thousands of protesters demanding the reinstatement of army officers dismissed last week for refusing to crack down on demonstrations against former president Omar al-Bashir, witnesses said.`\
+https://nytimes.com/reuters/2020/02/20/world/africa/20reuters-sudan-protests.html?searchResultPosition=6
+
+**Exclusive: Canadian Regulator Considers Changes to New Drug Pricing Plan**\
+`Canada's drug pricing agency is contemplating significant changes to how it will apply new regulations aimed at lowering costs, Reuters has learned, as drugmakers unhappy with the policy delay introducing new medicines in the country and blame it for job cuts.`\
+https://nytimes.com/reuters/2020/02/20/business/20reuters-canada-pharmaceuticals-exclusive.html?searchResultPosition=7
+
+**Bloomberg Campaign Spends Over $200 Million in January**\
+`U.S. presidential candidate Michael Bloomberg's campaign spent$220.6 million in January, with most of the money going to television advertising, his campaign said on Thursday.`\
+https://nytimes.com/reuters/2020/02/20/us/politics/20reuters-usa-election-bloomberg-spending.html?searchResultPosition=8
+
 **Turkish Minister Says U.S. May Send Patriot Systems to Turkey to Use in Syria's Idlib**\
 `Turkish Defense Minister Hulusi Akar said on Thursday that the United States may send Patriot missile systems to Turkey to use for security in the face of the conflict in northwestern Syria's Idlib region.`\
-https://nytimes.com/reuters/2020/02/20/world/middleeast/20reuters-syria-security-turkey-usa.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/02/20/world/middleeast/20reuters-syria-security-turkey-usa.html?searchResultPosition=9
 
 **Judge OKs Settlement Over Western Michigan Contamination**\
 `A federal judge on Wednesday approved a settlement with a western Michigan footwear company that faced a lawsuit over groundwater tainted with potentially harmful “forever" chemicals that are turning up in drinking water across the industrial state. `\
-https://nytimes.com/aponline/2020/02/20/business/ap-us-contaminated-water-michigan.html?searchResultPosition=3
-
-**‘Vitalina Varela’ Review: A Widow Grieves in Endless Night**\
-`In the new drama from Pedro Costa, daylight, and hope, are hard to find.`\
-https://nytimes.com/2020/02/20/movies/vitalina-varela-review.html?searchResultPosition=4
-
-**Netanyahu Announces New Homes in East Jerusalem, Days Before Election**\
-`The announcement by Prime Minister Benjamin Netanyahu of 6,200 homes in a contested area was seen as an effort to solidify right-wing support.`\
-https://nytimes.com/2020/02/20/world/middleeast/netanyahu-israel-jerusalem.html?searchResultPosition=5
-
-**Ethiopia Gets Back Christian Crown Spirited Away to Rotterdam Decades Ago**\
-`An 18th century church crown stolen from Ethiopia decades ago has been returned from the Netherlands after it was found in a suitcase more than 20 years ago, Prime Minister Abiy Ahmed said on Thursday.`\
-https://nytimes.com/reuters/2020/02/20/world/africa/20reuters-ethiopia-crown.html?searchResultPosition=6
-
-**Bounce Back: MLB Veterans to Watch in Spring Games**\
-`Giancarlo Stanton's intimidating presence was missing from the middle of the Yankees' lineup for a big chunk of 2019 because of an injury-filled season.`\
-https://nytimes.com/aponline/2020/02/20/sports/baseball/ap-bbo-spring-standouts.html?searchResultPosition=7
-
-**Turkey, Russia Discussing Use of Syrian Air Space in Idlib: Minister**\
-`Turkey and Russia are discussing the use of Syrian air space in the northwestern region of Idlib and the problem can be overcome if Russia "steps aside", Turkish Defense Minister Hulusi Akar told broadcaster CNN Turk on Thursday.`\
-https://nytimes.com/reuters/2020/02/20/world/middleeast/20reuters-syria-security-turkey-minister.html?searchResultPosition=8
-
-**Transco Back Again, Seeking Permits for Eastern Gas Pipeline**\
-`A hotly contested proposal to build a pipeline to take natural gas to customers in New York City and Long Island is back before New Jersey regulators.`\
-https://nytimes.com/aponline/2020/02/20/business/bc-us-northeast-gas-pipeline.html?searchResultPosition=9
-
-**‘Emma’ Review: Back on the Manor, but Still Clueless**\
-`Anya Taylor-Joy stars in the latest movie adaptation of the Jane Austen novel about a young woman’s romantic meddling.`\
-https://nytimes.com/2020/02/20/movies/emma-review.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/20/business/ap-us-contaminated-water-michigan.html?searchResultPosition=10
 
