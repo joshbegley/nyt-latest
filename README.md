@@ -1,36 +1,36 @@
+**Trump Makes Unconventional Pick to Oversee 'Deep State'**\
+`President Donald Trump has made an unconventional pick to oversee America’s spy agencies: an unusually undiplomatic ambassador who has had little intelligence experience.`\
+https://nytimes.com/aponline/2020/02/20/us/politics/ap-trump-intelligence.html?searchResultPosition=2
+
+**Jury Clears Hospital in Controversial Medical Abuse Case**\
+`Boston Children’s Hospital wasn't medically negligent in its treatment of a Connecticut teen who spent nearly a year in state custody after doctors suspected her parents of medical child abuse, a jury in Boston concluded Thursday.`\
+https://nytimes.com/aponline/2020/02/20/us/ap-us-diagnosis-dispute-lawsuit.html?searchResultPosition=3
+
+**After Trump Attacks, Judge Handling Stone Case Responds Sternly**\
+`U.S. District Judge Amy Berman Jackson remained silent last week when President Donald Trump attacked the prosecutors, the jurors and her personally for their roles in the trial of his long-time friend and adviser Roger Stone.`\
+https://nytimes.com/reuters/2020/02/20/us/politics/20reuters-usa-trump-russia-judge.html?searchResultPosition=4
+
+**Fourteen Days of Solitude: A Diary**\
+`Hundreds of Americans were evacuated from Wuhan, China by the U.S. government after the coronavirus outbreak. They were placed in 14-day quarantines on military bases. One of them shared her experiences.`\
+https://nytimes.com/interactive/2020/02/21/multimedia/21coronavirus-diary.html?searchResultPosition=5
+
+**Police: Robbery Looks Unlikely as Motive in Rapper Killing**\
+`The home-invasion death of rising rapper Pop Smoke in Los Angeles does not appear to be part of a robbery, police said Thursday, as detectives sought to identify the shooter and the music community mourned. `\
+https://nytimes.com/aponline/2020/02/20/us/ap-us-rapper-killed.html?searchResultPosition=6
+
+**Surging Dollar Reflects the Standout U.S. Economy**\
+`The dollar is the strongest it has been in nearly three years as global investors seek a safe haven. But that can have unwelcome effects for U.S. industries.`\
+https://nytimes.com/2020/02/20/business/strong-dollar-economy.html?searchResultPosition=7
+
+**Trump Goes Easy on White-Collar Crime. Outrage or Same Old?**\
+`Cheaters sometimes prosper, especially when they know the president.`\
+https://nytimes.com/2020/02/20/opinion/trump-pardons.html?searchResultPosition=8
+
 **Appeals Court Keeps Block on Mississippi 6-Week Abortion Ban**\
 `A federal appeals court is keeping a block on a Mississippi law that would ban most abortions at about six weeks — a stage when many women may not even know they are pregnant.`\
-https://nytimes.com/aponline/2020/02/20/us/ap-us-abortion-mississippi.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/02/20/us/ap-us-abortion-mississippi.html?searchResultPosition=9
 
 **New Zealand Killer of British Backpacker Sentenced to Life**\
 `The New Zealand man convicted of murdering a British backpacker he met on a dating app has been sentenced to life in prison with a minimum non-parole period of 17 years.`\
-https://nytimes.com/aponline/2020/02/20/world/asia/ap-as-new-zealand-millane-killer-sentenced.html?searchResultPosition=3
-
-**Lawsuit: 52 People Faked Uber Accidents for Insurance Money**\
-`Some South Carolina residents deliberately caused hit-and-run accidents while in Uber rides as part of an insurance scam, a car insurance company says in a lawsuit.`\
-https://nytimes.com/aponline/2020/02/20/business/ap-us-car-insurance-fraud-lawsuit.html?searchResultPosition=4
-
-**N.F.L. Owners Approve Bargaining Agreement and Await Vote by Players**\
-`The proposed deal would expand the playoffs to 14 teams and extend the regular season to 17 games, among other changes.`\
-https://nytimes.com/2020/02/20/sports/football/nfl-cba-meaning.html?searchResultPosition=5
-
-**FERC Rules Clean Energy Must Pay Higher Market Price in New York**\
-`The Federal Energy Regulatory Commission on Thursday issued a suite of orders that will require subsidized energy storage and renewable power resource providers to meet a price floor in New York state's capacity market, making it harder for them to compete with fossil fuel plants. `\
-https://nytimes.com/reuters/2020/02/20/us/20reuters-usa-electricity-new-york.html?searchResultPosition=6
-
-**Kuwait Ports Suspend Travel and From Iran Amid Coronavirus Fears**\
-`Kuwait's ports authority suspended the movement of people to and from Iran until further notice because of concerns about the coronavirus outbreak in that country, state news agency KUNA said early on Friday. `\
-https://nytimes.com/reuters/2020/02/20/world/middleeast/20reuters-china-health-kuwait-ports.html?searchResultPosition=7
-
-**Ortiz: Fiers 'Looking Like a Snitch' in Astros Cheating**\
-`Retired Boston Red Sox slugger David Ortiz said that Astros pitcher Mike Fiers was “looking like a snitch” for disclosing the team's cheating scandal only after he had left the team.`\
-https://nytimes.com/aponline/2020/02/20/sports/baseball/ap-bbo-cheating-ortiz-fiers.html?searchResultPosition=8
-
-**Moschino :Fall 2020**\
-`See the looks from the Moschino: Fall 2020 Collection.`\
-https://nytimes.com/slideshow/2020/02/20/fashion/runway-womens/moschino-fall-2020.html?searchResultPosition=9
-
-**Trump Renews Attack on Justice System, Raising Pressure on William Barr**\
-`In lashing out at the prosecution of his adviser Roger Stone, the president once again disregarded the attorney general’s pleas to stop publicly commenting on individual cases involving his friends.`\
-https://nytimes.com/2020/02/20/us/politics/trump-attacks-justice-system.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/20/world/asia/ap-as-new-zealand-millane-killer-sentenced.html?searchResultPosition=10
 
