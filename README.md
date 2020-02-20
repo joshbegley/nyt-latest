@@ -1,11 +1,11 @@
 Headline | URL
 ------ | ---
-US Expert Says 5G Tiff Could Affect Information Exchanges | https://nytimes.com/aponline/2020/02/20/business/bc-eu-spain-us-5g-networks.html?searchResultPosition=2
-AP-NORC Poll: More Americans Worry About Flu Than New Virus | https://nytimes.com/aponline/2020/02/20/us/ap-us-ap-poll-china-outbreak.html?searchResultPosition=3
-New Enforcement Operation Focuses on Meth Trafficking Hubs | https://nytimes.com/aponline/2020/02/20/us/ap-us-methamphetamine-crackdown.html?searchResultPosition=4
-Budapest's Oldest Bridge Given Green Light for Giro | https://nytimes.com/reuters/2020/02/20/sports/cycling/20reuters-cycling-giro.html?searchResultPosition=5
-World Government Debt to Hit Record $53 Trillion This Year: S&P Global | https://nytimes.com/reuters/2020/02/20/world/europe/20reuters-markets-global-debt.html?searchResultPosition=6
-Huawei Says No Impact on 5G Supply From Coronavirus | https://nytimes.com/reuters/2020/02/20/technology/20reuters-china-health-huawei.html?searchResultPosition=7
-Prince Harry to Meet Jon Bon Jovi and Veterans' Choir at Abbey Road Studios | https://nytimes.com/reuters/2020/02/20/arts/20reuters-britain-royals-harry.html?searchResultPosition=8
-Irons Defends Himself Against Critics of His Berlinale Role | https://nytimes.com/reuters/2020/02/20/arts/20reuters-filmfestival-berlin-jury.html?searchResultPosition=9
-Police Find 24 Decomposed Bodies at House in Western Mexico | https://nytimes.com/aponline/2020/02/20/world/americas/ap-lt-mexico-violence.html?searchResultPosition=10
+Transco Back Again, Seeking Permits for Eastern Gas Pipeline | https://nytimes.com/aponline/2020/02/20/business/bc-us-northeast-gas-pipeline.html?searchResultPosition=2
+‘Emma’ Review: Back on the Manor, but Still Clueless | https://nytimes.com/2020/02/20/movies/emma-review.html?searchResultPosition=3
+WarnerMedia, YouTube TV Expand Distribution Deal to Include Upcoming HBOMax | https://nytimes.com/reuters/2020/02/20/arts/20reuters-at-t-alphabet.html?searchResultPosition=4
+Kazakh Governor to Seek Deportation of Chinese Over Coronavirus Fears | https://nytimes.com/reuters/2020/02/20/world/asia/20reuters-china-health-kazakhstan.html?searchResultPosition=5
+Lawyer Claims Italy Can't Charge Captain in Libya Arms Case | https://nytimes.com/aponline/2020/02/20/world/europe/ap-eu-italy-libya-arms-probe.html?searchResultPosition=6
+Will Warren’s Dominant Debate Performance Boost Her Chances in Nevada and Beyond? | https://nytimes.com/2020/02/20/us/politics/elizabeth-warren-debate.html?searchResultPosition=7
+Avalanche on Svalbard Arctic Archipelago Kills Two Germans | https://nytimes.com/reuters/2020/02/20/world/europe/20reuters-norway-avalanche.html?searchResultPosition=8
+Spain to Overhaul Sexual Assault Law, Strengthen Victims' Rights | https://nytimes.com/reuters/2020/02/20/world/europe/20reuters-spain-law-rape.html?searchResultPosition=9
+US Expert Says 5G Tiff Could Affect Information Exchanges | https://nytimes.com/aponline/2020/02/20/business/bc-eu-spain-us-5g-networks.html?searchResultPosition=10
