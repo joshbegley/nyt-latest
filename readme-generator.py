@@ -3,7 +3,7 @@ from bs4 import BeautifulSoup
 import csv
 
 print "Headline | URL"
-print "--- | ---"
+print "------ | ---"
 url = ("https://www.nytimes.com/search?query=&sort=newest")
 
 page = urllib2.urlopen(url)
@@ -14,4 +14,4 @@ for a in soup.find_all("a",href=True):
 		if "cooking.nytimes.com" in a["href"]:
 			pass
 		else:
-			print (a.h4.text.encode("utf-8")) + " | `" + ("https://nytimes.com{}".format(a.attrs['href']) + "`")
+			print (a.h4.text.encode("utf-8")) + " | " + ("https://nytimes.com{}".format(a.attrs['href']))
