@@ -1,4 +1,4 @@
-**How to Build a Pretty Macrobiotic Meal like a Jewelry Designer**\
+**How to Build a Pretty Macrobiotic Meal Like a Jewelry Designer**\
 `Anna Sheffield has been eating dragon bowls since she was a teenager, but her latest version relies on an array of bright, fresh vegetables.`\
 https://nytimes.com/2020/02/20/t-magazine/anna-sheffield-jewelry-dragon-bowl.html?searchResultPosition=2
 
