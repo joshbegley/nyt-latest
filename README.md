@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/02/21/sports/ap-ski-wcup-womens-downhill.html?
 https://nytimes.com/aponline/2020/02/21/world/asia/ap-china-outbreak-europe.html?searchResultPosition=5
 
 **Iran Reports 2 More Deaths, 13 New Cases of New Coronavirus**\
-`Iran is reporting two more deaths from the new virus that emerged in China and says the fatalities were from among 13 new confirmed cases of the virus in Iran.`\
+`Iranian health authorities on Friday reported two more deaths from the new virus that emerged in China and said the fatalities were from among 13 new confirmed cases of the virus in Iran.`\
 https://nytimes.com/aponline/2020/02/21/world/middleeast/ap-ml-iran-virus-outbreak.html?searchResultPosition=6
 
 **Lesotho's PM Fails to Show in Court to Face Murder Charge**\
