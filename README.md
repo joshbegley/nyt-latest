@@ -1,32 +1,32 @@
+**Bright Lights, Big Stakes for Democrats in Nevada**\
+`Just past the roulette wheel and slot machines, the smoky bars and blinking lights, Nevada Democrats are preparing to weigh in on their party's presidential nomination fight. `\
+https://nytimes.com/aponline/2020/02/21/us/politics/ap-us-election-2020.html?searchResultPosition=3
+
+**How Major US Stock Indexes Fared Friday**\
+`Stocks fell and bond prices rose sharply on Wall Street Friday amid fresh signs that the viral outbreak that originated in China is weighing on U.S. companies. `\
+https://nytimes.com/aponline/2020/02/21/business/ap-financial-markets-box.html?searchResultPosition=4
+
+**Speculators Lift Bullish Bets on U.S. Dollar to Seven-Week High: CFTC, Reuters**\
+`Speculators boosted their net long bets on the U.S. dollar to a seven-week high in the latest week, according to calculations by Reuters and U.S. Commodity Futures Trading Commission data released on Friday.`\
+https://nytimes.com/reuters/2020/02/21/business/21reuters-cftc-forex.html?searchResultPosition=5
+
+**AP Interview: Venezuela's Guaidó Extols Trump Alliance**\
+`Opposition leader Juan Guaidó said Friday that he trusts U.S. President Donald Trump's "firm and determined” backing following a White House meeting aimed at helping him steer crisis-stricken Venezuela toward a democratic transition. `\
+https://nytimes.com/aponline/2020/02/21/world/americas/ap-lt-venezuela-guaido-.html?searchResultPosition=6
+
+**Penn State Settles 'Outstanding Issues' With Paterno Family**\
+`Penn State and the family of the late head football coach Joe Paterno announced Friday they have resolved “outstanding issues” that had divided them, eight years after he was fired following Jerry Sandusky's child molestation arrest.`\
+https://nytimes.com/aponline/2020/02/21/sports/ap-us-penn-state-abuse.html?searchResultPosition=7
+
+**Fed Officials Downplay Virus Even as Markets See Rate Cuts**\
+`When Wall Street expects the Federal Reserve to cut interest rates, should that influence the Fed's decisions?`\
+https://nytimes.com/aponline/2020/02/21/business/ap-us-federal-reserve-markets.html?searchResultPosition=8
+
 **UK's Prince Harry, Meghan, Abandon Use of SussexRoyal Brand**\
 `Prince Harry and his wife, Meghan, have abandoned plans to use the "SussexRoyal" brand after they step back from royal duties.`\
-https://nytimes.com/aponline/2020/02/21/world/europe/ap-eu-britain-royals.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/02/21/world/europe/ap-eu-britain-royals.html?searchResultPosition=9
 
 **Diane von Furstenberg’s Magic Talismans**\
 `“Their power is in the energy of the person who gives them to you,” says the fashion designer.`\
-https://nytimes.com/2020/02/21/t-magazine/diane-von-furstenberg-talismans.html?searchResultPosition=4
-
-**Of a Kind | Diane von Furstenburg**\
-`At her New York City office, the designer shows T a selection of her treasured talismans.`\
-https://nytimes.com/video/t-magazine/fashion/100000006990423/of-a-kind-diane-von-furstenburg.html?searchResultPosition=5
-
-**Sanders Condemns Any Russian Influence in Election**\
-`Democratic presidential candidate Bernie Sanders is condemning any Russian efforts to interfere in the election.`\
-https://nytimes.com/aponline/2020/02/21/us/politics/ap-election-2020-sanders.html?searchResultPosition=6
-
-**AP Exclusive: DEA Agent Accused of Conspiring With Cartel**\
-`A once-standout U.S. federal narcotics agent known for spending lavishly on luxury cars and Tiffany jewelry has been arrested on charges of conspiring to launder money with the same Colombian drug cartel he was supposed to be fighting. `\
-https://nytimes.com/aponline/2020/02/21/us/ap-us-rogue-dea-agent.html?searchResultPosition=7
-
-**Oklahoma AG to Dismiss Federal Opioid Case, Refile in State**\
-`Oklahoma Attorney General Mike Hunter said Friday he plans to dismiss the state's lawsuit against three opioid distributors that has been moved to federal court and refile new lawsuits in state court.`\
-https://nytimes.com/aponline/2020/02/21/us/ap-us-opioid-lawsuit-oklahoma.html?searchResultPosition=8
-
-**U.S. Officials Tell Democrat Sanders Russia Is Trying to Help His Campaign: Washington Post**\
-`U.S. officials have told Democratic presidential contender Bernie Sanders that Russia is trying to help his campaign, the Washington Post reported on Friday.`\
-https://nytimes.com/reuters/2020/02/21/us/politics/21reuters-usa-election-russia-sanders.html?searchResultPosition=9
-
-**US Virus Cases Climb to 35 With Return of Cruise Passengers**\
-`At least 18 Americans who returned home from a quarantined cruise ship are infected with the new virus, bringing the number of cases in the U.S. to 35, health officials said Friday.`\
-https://nytimes.com/aponline/2020/02/21/health/ap-us-med-china-outbreak-us-cases.html?searchResultPosition=10
+https://nytimes.com/2020/02/21/t-magazine/diane-von-furstenberg-talismans.html?searchResultPosition=10
 
