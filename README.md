@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/02/21/sports/rugby/21reuters-rugby-league-super
 `Northwest China's Gansu province has lowered its coronavirus emergency response measures from level I to level III, its local health commission said on Friday, making it the first region in the country to do so.`\
 https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-china-health-gansu.html?searchResultPosition=5
 
-**Pact With Taliban on Reducing Violence Begins Midnight (1930 GMT): Afghan Official**\
+**Pact With Taliban on Reducing Violence Begins Midnight: Afghan Official**\
 `Afghan, international and Taliban forces will observe a seven-day period of reduced violence in Afghanistan beginning at midnight (1930 GMT), a senior Afghan official said on Friday.`\
 https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-usa-afghanistan-talks.html?searchResultPosition=6
 
