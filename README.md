@@ -1,36 +1,36 @@
+**French Admiral: Warplanes Mostly Gathering Info on IS Group**\
+`The Islamic State group remains active in Syria and Iraq despite major territorial losses, necessitating French air support for troops mainly in Iraq, the commander of a French aircraft carrier strike group said Friday.`\
+https://nytimes.com/aponline/2020/02/21/world/europe/ap-eu-cyprus-france-aircraft-carrier.html?searchResultPosition=2
+
+**Watchdog Toughens Global Financial Scrutiny of Iran**\
+`An international agency monitoring terrorism funding announced tough new financial scrutiny of Iran on Friday and added seven countries to a watch list.`\
+https://nytimes.com/aponline/2020/02/21/business/bc-eu-terrorism-financing.html?searchResultPosition=3
+
+**Lebanon Confirms First Case of Coronavirus, Two More Suspected**\
+`Lebanon confirmed its first coronavirus case on Friday and said it was monitoring two other potential cases after a 45-year-old woman arriving from Iran on Thursday tested positive, Health Minister Hamad Hassan said. `\
+https://nytimes.com/reuters/2020/02/21/world/middleeast/21reuters-china-health-lebanon-minister.html?searchResultPosition=4
+
+**Algerian Protesters Mark Year of Protests and Demand More Reforms**\
+`Several thousand Algerians demonstrated on Friday to mark the first anniversary of protests that ousted President Abdelaziz Bouteflika, demanding the removal of allies of the former leader who are still in power and more steps towards democracy.`\
+https://nytimes.com/reuters/2020/02/21/world/africa/21reuters-algeria-protests.html?searchResultPosition=5
+
+**Iran Extends Voting in Election by Two Hours Due to 'Rush of Voters': TV**\
+`Iran extended voting by two hours on Friday because of a “rush of voters” in the parliamentary election, state television reported. `\
+https://nytimes.com/reuters/2020/02/21/world/middleeast/21reuters-iran-election-extend.html?searchResultPosition=6
+
+**Notre-Dame’s Crypt and Square May Reopen in Spring**\
+`Paris officials have delayed reopening parts of the landmark cathedral damaged by fire several times.`\
+https://nytimes.com/2020/02/21/world/europe/notre-dame-reopen.html?searchResultPosition=7
+
 **Take Five: 'Our Currency, Your Problem'-All Over Again**\
 `1/KING DOLLAR`\
-https://nytimes.com/reuters/2020/02/21/business/21reuters-global-markets-themes.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/02/21/business/21reuters-global-markets-themes.html?searchResultPosition=8
 
 **Stocks Open Lower on Wall Street Following Weakness Overseas**\
 `Stocks are opening lower again on Wall Street, putting the market on track for a weekly loss after two weeks of gains.`\
-https://nytimes.com/aponline/2020/02/21/business/bc-financial-markets.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/02/21/business/bc-financial-markets.html?searchResultPosition=9
 
 **Uniting Trumpers, Never Trumpers and Democrats With a New Deputy at the State Dept.**\
 `Can Stephen E. Biegun calm a simmering revolt at the department?`\
-https://nytimes.com/2020/02/21/us/politics/biegun-trump.html?searchResultPosition=4
-
-**At Least Six Indonesian Students Killed When Swept Away by River Tides**\
-`At least six students in the Indonesian province of Yogyakarta were killed and five more were missing on Friday after a tidal surge swept them away during a school trip, said disaster mitigation officials.`\
-https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-indonesia-river.html?searchResultPosition=5
-
-**Mother Charged in Missing Idaho Children Case Complicated by Multiple Deaths**\
-`Tylee Ryan and Joshua Vallow have been missing for months. Their mother, Lori Vallow, was arrested in Hawaii and now faces felony charges in Idaho.`\
-https://nytimes.com/2020/02/21/us/lori-vallow-chad-daybell-missing-children.html?searchResultPosition=6
-
-**Spain Proposes Crackdown on Gambling Advertising**\
-`Spain's consumer protection minister Alberto Garzon unveiled plans on Friday for a crackdown on advertising by gambling companies and casinos to address growing addiction.`\
-https://nytimes.com/reuters/2020/02/21/world/europe/21reuters-spain-gambling-crackdown.html?searchResultPosition=7
-
-**Protesting Spanish Farmers Fear Countryside Has No Future**\
-`Thousands of farmers took to the streets of Murcia in Southern Spain on Friday, blocking streets with tractors and tossing vegetables to the ground in protest at low food prices and precarious working conditions.`\
-https://nytimes.com/reuters/2020/02/21/world/europe/21reuters-spain-economy-farming.html?searchResultPosition=8
-
-**An Egyptian’s Arrest Rekindles an Italian Trauma**\
-`Haunted by the 2016 death in Cairo of an Italian student, Giulio Regeni, Italians are campaigning for the release of an Egyptian who has said he was tortured.`\
-https://nytimes.com/2020/02/21/world/middleeast/egypt-student-italy-cairo.html?searchResultPosition=9
-
-**Greece: Police Officers Implicated in Major Passport Scam**\
-`Six police officers and 27 other people are under investigation in a major passport fraud case that included issuing Greek state identity documents under false pretenses to criminal fugitives from abroad, Greek authorities said Friday.`\
-https://nytimes.com/aponline/2020/02/21/world/europe/ap-eu-greece-passport-scam.html?searchResultPosition=10
+https://nytimes.com/2020/02/21/us/politics/biegun-trump.html?searchResultPosition=10
 
