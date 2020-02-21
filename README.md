@@ -1,32 +1,32 @@
+**Picketing, Pigeons, Politics: Scenes From the Nevada Caucus**\
+`Candidates have hustled past smoky bars and slot machines to ask for votes in the back of the house of flashy casinos.`\
+https://nytimes.com/aponline/2020/02/21/us/politics/ap-us-election-2020-scenes-from-nevada.html?searchResultPosition=3
+
+**Coronavirus Outbreak Deepens Its Toll on Global Business**\
+`The disruption of China’s manufacturing network, and slowdown of its economy, has rippled through to airlines, automakers, tech companies and more.`\
+https://nytimes.com/2020/02/21/business/coronavirus-global-business.html?searchResultPosition=4
+
+**Man Accused of Racist Threats Expected to Plead Guilty**\
+`A white man charged with making racist online threats against a black activist in Virginia is expected to plead guilty next month, according to court records and a spokesman for federal prosecutors.`\
+https://nytimes.com/aponline/2020/02/21/us/ap-us-cyberstalking-arrest.html?searchResultPosition=5
+
+**‘We Had No Idea How Dark This Story Would Get’**\
+`Answering your questions about our series on online child abuse.`\
+https://nytimes.com/2020/02/21/podcasts/daily-newsletter-child-sex-abuse-investigation.html?searchResultPosition=6
+
+**Coronavirus Fears Grip Village in Ukraine**\
+`The prime minister of Ukraine addressed the heightened tensions surrounding coronavirus, including protests in a village against the arrival of evacuees from China.`\
+https://nytimes.com/video/world/europe/100000006992757/coronavirus-ukraine.html?searchResultPosition=7
+
+**Russia Is Said to Be Interfering to Aid Sanders in Democratic Primaries**\
+`The nominal Democratic front-runner denounced Russia’s efforts to sabotage American democracy.`\
+https://nytimes.com/2020/02/21/us/politics/russia-sanders-trump.html?searchResultPosition=8
+
 **Investor Netter Urges Shareholders to Drop FSD Investment Adviser**\
 `Investment manager Donald Netter, who has battled First Trust High Income Long/Short Fund (FSD) for years, is urging shareholders to fire the investment adviser at this year's annual meeting, saying its returns are too low and fees too high.`\
-https://nytimes.com/reuters/2020/02/21/business/21reuters-dolphin-fsd.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/02/21/business/21reuters-dolphin-fsd.html?searchResultPosition=9
 
 **NOT REAL NEWS: A Look at What Didn't Happen This Week**\
 `A roundup of some of the most popular but completely untrue stories and visuals of the week. None of these are legit, even though they were shared widely on social media. The Associated Press checked them out. Here are the real facts:`\
-https://nytimes.com/aponline/2020/02/21/us/ap-not-real-news.html?searchResultPosition=4
-
-**American Consumption of Fish Rises Slightly to 11-Year High**\
-`Americans' consumption of seafood has risen to its highest point in more than a decade.`\
-https://nytimes.com/aponline/2020/02/21/business/ap-us-seafood-consumption-grows-1st-ld-writethru.html?searchResultPosition=5
-
-**Factbox: Remaining Hurdles for Scandal-Hit Wells Fargo**\
-`Wells Fargo & Co has racked up well over $7 billion in penalties since a sales practices scandal erupted in 2016, and continues to face headwinds.`\
-https://nytimes.com/reuters/2020/02/21/business/21reuters-wells-fargo-probes-factbox.html?searchResultPosition=6
-
-**What’s at Stake in the Nevada Caucuses**\
-`Bernie Sanders is expected to lead today, so the real competition is for second place. See how important Nevada is to the Democrats competing there.`\
-https://nytimes.com/interactive/2020/02/21/us/politics/2020-nevada-caucus-date-time.html?searchResultPosition=7
-
-**Helicopter Sharpshooters to Kill Grand Teton Nonnative Goats**\
-`A disputed effort to help native bighorn sheep in Grand Teton National Park was scheduled to start Friday with a helicopter buzzing over rugged peaks with sharpshooters aboard tasked with killing nonnative mountain goats.`\
-https://nytimes.com/aponline/2020/02/21/us/ap-us-grand-teton-goats.html?searchResultPosition=8
-
-**Who and What’s Behind the Blockades Disrupting Canada’s Rails**\
-`A long-running dispute over a pipeline in British Columbia has turned into a national political storm, caused layoffs in the rail industry and raised broader economic fears.`\
-https://nytimes.com/2020/02/21/world/canada/pipeline-blockades-explainer.html?searchResultPosition=9
-
-**Police: Couple Forced Boys Off Road, Angered by Trump Flags**\
-`A northwestern Indiana couple allegedly used a car to force two teenage boys off a road, angered that the twin brothers were riding bicycles adorned with flags supporting President Donald Trump, before ripping one of the sibling's flag from his bike, police said Friday.`\
-https://nytimes.com/aponline/2020/02/21/us/ap-us-couple-charged-trump-flags-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/21/us/ap-not-real-news.html?searchResultPosition=10
 
