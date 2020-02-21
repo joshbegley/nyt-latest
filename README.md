@@ -1,32 +1,32 @@
+**A Widow Takes Her Grown Kids on a Cruise. What Could Go Wrong?**\
+`Amanda Eyre Ward’s new novel, “The Jetsetters,” follows a dysfunctional family out to sea.`\
+https://nytimes.com/2020/02/21/books/review/the-jetsetters-amanda-eyre-ward.html?searchResultPosition=3
+
+**Trump Rallies Nevada GOP Ahead of State's Dem Caucuses**\
+`President Donald Trump rallied supporters in the battleground state of Nevada on the eve of the state's caucuses, looking to exploit Democratic divisions as he focuses on his reelection fight.`\
+https://nytimes.com/aponline/2020/02/21/us/politics/ap-us-trump.html?searchResultPosition=4
+
+**U.S. SEC Probes Altria's Investment in Juul: WSJ**\
+`U.S. regulators have opened a probe regarding Marlboro maker Altria Group Inc's investment in e-cigarette maker Juul Labs Inc, the Wall Street Journal reported on Friday, citing people familiar with the matter.`\
+https://nytimes.com/reuters/2020/02/21/business/21reuters-altria-group-ecigarettes-juul.html?searchResultPosition=5
+
+**Kuwait Stops All Flights To and From Iran Amid Fears From Coronavirus Outbreak: KUNA**\
+`Kuwait's civil aviation authority decided on Friday to stop all flights to and from Iran amid fears from coronavirus outbreak, the state news agency said, citing the authority's statement.`\
+https://nytimes.com/reuters/2020/02/21/world/middleeast/21reuters-china-health-iran-kuwait.html?searchResultPosition=6
+
+**First Solar, TrueCar Fall; Deere, Dropbox Rise**\
+`Stocks that moved heavily or traded substantially on Friday:`\
+https://nytimes.com/aponline/2020/02/21/business/bc-financial-markets-stocks.html?searchResultPosition=7
+
+**Richard Grenell Begins Overhauling Intelligence Office, Prompting Fears of Partisanship**\
+`The new acting director of national intelligence also asked to see the facts underlying the finding that Russia is interfering in the 2020 election and favors President Trump’s re-election.`\
+https://nytimes.com/2020/02/21/us/politics/richard-grenell-dni.html?searchResultPosition=8
+
+**DNC Chair Unbowed by 2020 Fracas: 'My Job Is ... To Win'**\
+`Beyond the presidential candidates themselves, the Nevada caucuses Saturday will test Democratic National Committee Chairman Tom Perez as he tries to keep an already messy primary season from devolving into chaos. `\
+https://nytimes.com/aponline/2020/02/21/us/politics/ap-us-election-2020-perez.html?searchResultPosition=9
+
 **School Lunch Overhaul Led to Healthier Meals for U.S. Kids**\
 `An overhaul of school lunch nutrition standards seems to have driven dramatic improvements in the healthiness of meals served to millions of kids nationwide, a U.S. study suggests. `\
-https://nytimes.com/reuters/2020/02/21/us/21reuters-health-kids-school-cafeterias.html?searchResultPosition=3
-
-**'Enemies of the People': Coronavirus Evacuees Endure Hostile Return to Ukraine**\
-`Julia Volok says some of her fellow passengers expected a warm welcome on their arrival in Ukraine after finally being evacuated from the epicenter of the coronavirus epidemic in China's Hubei province this week. `\
-https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-china-health-ukraine-evacuee.html?searchResultPosition=4
-
-**Bloomberg Says 3 Women Can Be Released From NDAs**\
-`Democratic presidential candidate Mike Bloomberg said Friday that he's willing to release at least three women from nondisclosure agreements that prevented them from speaking publicly about sexual harassment or discrimination suits filed against him over the last three decades. `\
-https://nytimes.com/aponline/2020/02/21/us/politics/ap-us-election-2020-bloomberg.html?searchResultPosition=5
-
-**Wells Fargo to Pay $3B to Resolve Probes Into Fake Accounts**\
-`Wells Fargo agreed Friday to pay $3 billion to settle criminal and civil investigations into a long-running practice whereby company employees opened millions of unauthorized bank accounts in order to meet unrealistic sales goals. `\
-https://nytimes.com/aponline/2020/02/21/business/ap-us-wells-fargo-fake-accounts-settlement.html?searchResultPosition=6
-
-**US Pushes Changes to Western Land Plans That Judge Blocked**\
-`U.S. Interior Department officials are seeking to bolster their case for easing restrictions on energy development, mining and grazing in Western states inhabited by a declining bird species. `\
-https://nytimes.com/aponline/2020/02/21/us/ap-us-sage-grouse-energy-leases.html?searchResultPosition=7
-
-**Support for Women's Strike in Mexico Gains Ground**\
-`A women's event in Mexico planned for next month, fueled by growing disgust with a spate of high-profile femicides, gained ground on Friday as Mexican President Andres Manuel Lopez Obrador said public servants could participate.`\
-https://nytimes.com/reuters/2020/02/21/world/americas/21reuters-mexico-women.html?searchResultPosition=8
-
-**The Price of Wells Fargo’s Fake Account Scandal: $3 Billion**\
-`The bank reached a settlement with federal prosecutors and the Securities and Exchange Commission after abusing customers.`\
-https://nytimes.com/2020/02/21/business/wells-fargo-settlement.html?searchResultPosition=9
-
-**Federal Prosecutors Investigating Whether Boeing Pilot Knowingly Lied to FAA: NYT**\
-`Federal prosecutors investigating Boeing Co are examining whether the U.`\
-https://nytimes.com/reuters/2020/02/21/business/21reuters-boeing-737max.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/21/us/21reuters-health-kids-school-cafeterias.html?searchResultPosition=10
 
