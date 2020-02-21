@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/02/21/world/middleeast/21reuters-saudi-yemen-mi
 `A senior U.`\
 https://nytimes.com/aponline/2020/02/21/world/asia/ap-as-afghanistan-peace-talks.html?searchResultPosition=3
 
-**DealBook: The Meaning of Morgan Stanley’s Move onto Main Street**\
-`The bank’s $13 billion purchase of E-Trade is expected to inspire mergers by among other asset managers, too.`\
+**DealBook: The Meaning of Morgan Stanley’s Move Onto Main Street**\
+`The bank’s $13 billion purchase of E-Trade is expected to inspire more mergers among asset managers.`\
 https://nytimes.com/2020/02/21/business/dealbook/morgan-stanley-etrade.html?searchResultPosition=4
 
 **Chinese Capital Battles Jump in Virus Cases as Infections Ease Elsewhere**\
