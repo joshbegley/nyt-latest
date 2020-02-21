@@ -1,36 +1,36 @@
+**Pepperdine Pulls Away Late to Beat Portland 66-59**\
+`Colbey Ross scored 27 of his 30 points in the second half and grabbed a career-best 14 rebounds as Pepperdine pulled away late to beat Portland 66-59 on Thursday night. `\
+https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-pepperdine-portland.html?searchResultPosition=2
+
+**Jackson, No. 9 Mississippi State Beat Auburn 92-85 in OT**\
+`Freshman Rickea Jackson scored nine of her season-high 34 points in overtime and No. 9 Mississippi State rallied from a 14-point deficit to beat Auburn 92-85 on Thursday night.`\
+https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkw-t25-mississippi-st-auburn.html?searchResultPosition=3
+
+**New Virus Has Infected More Than 76,000 People Globally**\
+`A viral outbreak that began in China has infected more than 76,000 people globally. The World Health Organization has named the illness COVID-19, referring to its origin late last year and the coronavirus that causes it. `\
+https://nytimes.com/aponline/2020/02/20/us/ap-as-china-outbreak-at-a-glance.html?searchResultPosition=4
+
+**Iranians Begin Voting in Parliamentary Election: State TV**\
+`Iranians began voting on Friday in a parliamentary election unlikely to change the Islamic Republic's troubled relations with the United States, after thousands of candidates were barred from the field in favor of hardliners.`\
+https://nytimes.com/reuters/2020/02/20/world/middleeast/20reuters-iran-election.html?searchResultPosition=5
+
+**Andre Double-Double Leads Northern Arizona Past Idaho 78-61**\
+`Bernie Andre finished with 19 points and 13 rebounds and Northern Arizona drilled Idaho 78-61 on Thursday night.`\
+https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-northern-arizona-idaho.html?searchResultPosition=6
+
+**No. 23 BYU Edges Santa Clara 85-75**\
+`T.J. Haws scored 28 points and added nine assists to help No. 23 BYU hold off Santa Clara for a 85-75 victory on Thursday night. `\
+https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-t25-santa-clara-byu.html?searchResultPosition=7
+
+**Denver Rallies Late to Take Down Oral Roberts 100-96 in OT**\
+`Ade Murkey scored 26 points and Jase Townsend nearly missed a triple-double and Denver beat Oral Roberts 100-96 in overtime Thursday night.`\
+https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-oral-roberts-denver.html?searchResultPosition=8
+
 **Averette Lifts Utah Valley Over Cal State Bakersfield 72-58**\
 `Brandon Averette made five 3-pointers and matched his season high with 20 points as Utah Valley topped Cal State Bakersfield 72-58 on Thursday night.`\
-https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-cs-bakersfield-utah-valley.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-cs-bakersfield-utah-valley.html?searchResultPosition=9
 
 **No. 18 Colorado Holds Off Southern California 70-66**\
 `McKinley Wright IV had 15 points, including a floater in the lane in the final minutes, to help No. 18 Colorado hold off Southern California 70-66 on Thursday night.`\
-https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-t25-usc-colorado.html?searchResultPosition=3
-
-**California Sues Trump Administration Over Alleged Failure to Protect Species**\
-`California is suing the administration of President Donald Trump for what it calls the administration's failure to protect endangered species in the Sacramento and San Joaquin rivers.`\
-https://nytimes.com/reuters/2020/02/20/us/20reuters-usa-environment-california-lawsuit.html?searchResultPosition=4
-
-**China Finds Spike in Coronavirus Cases in Two Jails, Officials Fired**\
-`The new coronavirus has spread in two prisons in China, infecting 234 people, and top officials deemed responsible for the outbreaks have been fired, authorities said on Friday.`\
-https://nytimes.com/reuters/2020/02/20/world/asia/20reuters-china-health-jails.html?searchResultPosition=5
-
-**Arizona State Beats No. 14 Oregon for 6th Straight Win**\
-`Alonzo Verge Jr. scored 26 points, Rob Edwards added 24 and Arizona State beat No. 14 Oregon 77-72 on Thursday night for its sixth straight victory.`\
-https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-t25-oregon-arizona-st.html?searchResultPosition=6
-
-**Embiid Has 39, Powers 76ers Past Nets in Overtime, 112-104**\
-`Joel Embiid had 39 points and 16 rebounds, Alec Burks and Shake Milton added big baskets in overtime and the Philadelphia 76ers extended their dominance at home with a 112-104 victory over the Brooklyn Nets on Thursday night.`\
-https://nytimes.com/aponline/2020/02/20/sports/basketball/bc-bkn-nets-76ers.html?searchResultPosition=7
-
-**Businessman Steyer Pumps $64.7 Million of Own Funds Into U.S. Presidential Bid in January**\
-`Businessman Tom Steyer poured $64.7 million of his own wealth in January into his bid to win the Democratic presidential nomination, for a total spend of $267 million, a campaign finance disclosure showed on Thursday. `\
-https://nytimes.com/reuters/2020/02/20/us/politics/20reuters-usa-election-steyer-fundraising.html?searchResultPosition=8
-
-**Corrections: Feb. 21, 2020**\
-`Corrections that appeared in print on Friday, Feb. 21, 2020.`\
-https://nytimes.com/2020/02/20/pageoneplus/corrections-feb-21-2020.html?searchResultPosition=9
-
-**Democrats Big Money Pledges Give Way to Reality of 2020 Race**\
-`Many Democratic presidential candidates launched their campaigns last year with bold pledges to reject help from super PACs and dark money groups. But as the realities of a tough primary fight sink in, those promises are fading away.`\
-https://nytimes.com/aponline/2020/02/20/us/politics/ap-us-election-2020-money.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-t25-usc-colorado.html?searchResultPosition=10
 
