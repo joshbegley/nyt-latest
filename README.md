@@ -1,36 +1,36 @@
+**Democrat Warren, Worried Campaign Will Run Out of Cash, Taps $3 Million Loan**\
+`U.S. Senator Elizabeth Warren raised more money than most of her Democratic presidential rivals in the weeks before the Iowa caucuses, but spent so heavily that her campaign took out a $3 million loan fearing she would run out of cash. `\
+https://nytimes.com/reuters/2020/02/21/us/politics/21reuters-usa-election-fundraising.html?searchResultPosition=2
+
+**Your Friday Briefing**\
+`Russia, Germany, coronavirus: Here’s what you need to know.`\
+https://nytimes.com/2020/02/21/briefing/russia-germany-coronavirus.html?searchResultPosition=3
+
+**Samsung Electronics Names Non-Executive Director as Board Chairman in Company First**\
+`Samsung Electronics Co Ltd said on Friday it has named a non-executive director as board chairman for the first time, to increase transparency and independence.`\
+https://nytimes.com/reuters/2020/02/21/technology/21reuters-samsung-ele-board-chairman.html?searchResultPosition=4
+
+**Upstart Thai Opposition Party Faces Ban Over Loan From Founder**\
+`Thailand's Constitutional Court will on Friday rule whether to dissolve an upstart opposition political party that has challenged the military establishment, over accusations it benefited from an illicit loan from its wealthy founder.`\
+https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-thailand-politics.html?searchResultPosition=5
+
 **China's Hubei Revises Thursday's Tally of New Coronavirus Cases Upward**\
 `China's central province of Hubei said on Friday it has revised the number of new confirmed cases of coronavirus infections on Thursday upward to 631 from 411 after including cases in the province's prison system.`\
-https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-china-health-hubei.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-china-health-hubei.html?searchResultPosition=6
 
 **Soccer: China to Play Home Leg of Olympic Qualifier in Sydney Due to Coronavirus**\
 `The Chinese women's national team will play the home leg of their Olympic qualification playoff against South Korea in Sydney to avoid any travel complications from a coronavirus outbreak, the Asian Football Confederation said on Friday.`\
-https://nytimes.com/reuters/2020/02/21/sports/soccer/21reuters-china-health-sport.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/02/21/sports/soccer/21reuters-china-health-sport.html?searchResultPosition=7
 
 **Australia to Spend $726 Million to Upgrade Strategic Northern Airbase**\
 `Australia will spend A$1.1 billion ($725.9 million) to upgrade an airbase in the country's tropical north, Prime Minister Scott Morrison said on Friday, a development that increases Canberra's military armory in the Pacific.`\
-https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-australia-defence.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-australia-defence.html?searchResultPosition=8
 
 **Democrats Try to Blunt Strong California Showing for Sanders**\
 `California is the largest prize in the calculations of any Democratic presidential candidate, but it rarely seems that way.`\
-https://nytimes.com/aponline/2020/02/21/us/politics/ap-us-election-2020-california.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/02/21/us/politics/ap-us-election-2020-california.html?searchResultPosition=9
 
 **China Finds Spike in Coronavirus Cases in Jails, Officials Fired**\
 `The new coronavirus has infected 234 people in two prisons outside the province at the center of the epidemic and top officials deemed responsible for the outbreaks have been fired, authorities said on Friday.`\
-https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-china-health-jails.html?searchResultPosition=6
-
-**Japan to Let Off Last Healthy Cruise Travelers, Isolate Rest**\
-`Japan's health minister said the last cruise ship passengers who tested negative for a new virus will leave the Diamond Princess on Friday after a much-criticized quarantine of the vessel ended.`\
-https://nytimes.com/aponline/2020/02/21/business/ap-as-virus-japan-cruise-ship.html?searchResultPosition=7
-
-**Da Silva, Cardinal Pull Away From Washington in 2nd Half**\
-`Oscar Da Silva scored 16 point and grabbed nine rebounds, Tyrell Terry added 14 points and Stanford held Washington to just eight second-half field goals to beat the Huskies 72-64 on Thursday night.`\
-https://nytimes.com/aponline/2020/02/21/sports/ncaabasketball/bc-bkc-stanford-washington.html?searchResultPosition=8
-
-**Seattle Holds Off a Grand Canyon Rally, Earns a 95-89 Win**\
-`Riley Grigsby knocked down a 3-pointer with more than a minute left and Morgan Means added a jumper and two free throws in the closing seconds to help Seattle fend off a late rally by Grand Canyon and preserve a 95-89 win on Thursday night.`\
-https://nytimes.com/aponline/2020/02/21/sports/ncaabasketball/bc-bkc-grand-canyon-seattle.html?searchResultPosition=9
-
-**Mexico Extradites Son of Powerful Cartel Leader to United States**\
-`Mexico extradited the son of one of its most wanted drug lords to the United States on Thursday, a source in the attorney general's office said. `\
-https://nytimes.com/reuters/2020/02/21/world/americas/21reuters-usa-mexico-extradition.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-china-health-jails.html?searchResultPosition=10
 
