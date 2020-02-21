@@ -27,6 +27,6 @@ https://nytimes.com/aponline/2020/02/21/us/politics/ap-us-election-2020-scenes-f
 https://nytimes.com/2020/02/21/business/coronavirus-global-business.html?searchResultPosition=9
 
 **Man Accused of Racist Threats Expected to Plead Guilty**\
-`A white man charged with making racist online threats against a black activist in Virginia is expected to plead guilty next month, according to court records and a spokesman for federal prosecutors.`\
+`A white man charged with cyberstalking and making racist online threats against a black activist in Virginia is expected to plead guilty next month, according to court records and a spokesman for federal prosecutors.`\
 https://nytimes.com/aponline/2020/02/21/us/ap-us-cyberstalking-arrest.html?searchResultPosition=10
 
