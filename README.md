@@ -18,7 +18,7 @@ https://nytimes.com/2020/02/21/magazine/judge-john-hodgman-on-portland-drivers.h
 `Democratic voters feel generally positive about all of their top candidates running for president, but they have only moderate confidence that their party’s nomination process is fair, according to a new poll by The Associated Press-NORC Center for Public Affairs Research. `\
 https://nytimes.com/aponline/2020/02/21/us/politics/ap-us-ap-poll-democratic-nomination.html?searchResultPosition=6
 
-**Turkey Calls for End of Government Offensive on Idlib**\
+**Erdogan Phones 2 European Leaders, Wants End to Idlib Push**\
 `Turkey's president spoke with two European leaders by phone Friday and called for an end to a Syrian government offensive on the last rebel stronghold in the country that has displaced hundreds of thousands of people.`\
 https://nytimes.com/aponline/2020/02/21/world/middleeast/ap-ml-syria.html?searchResultPosition=7
 
