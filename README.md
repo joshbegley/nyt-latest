@@ -1,36 +1,36 @@
+**McIntosh's 27 Points Lift Elon Past James Madison**\
+`Hunter McIntosh had a season-high 27 points as Elon topped James Madison 70-62 on Thursday night.`\
+https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-elon-james-madison.html?searchResultPosition=2
+
+**Quisenberry Scores 41; Youngstown St. Beats Wright St. 88-70**\
+`Darius Quisenberry had a career-high 41 points and Youngstown State beat Horizon League-leader Wright State 88-70 on Thursday night.`\
+https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-wright-st-youngstown-st.html?searchResultPosition=3
+
+**NJIT Halts Five-Game Loss String, Holds Off Stetson 78-69**\
+`Zach Cooks had 25 points as NJIT topped Stetson 78-69 on Thursday night.`\
+https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-stetson-njit.html?searchResultPosition=4
+
+**How the Nevada Caucuses (Are Supposed to) Work**\
+`The rules are largely the same, but if the Nevada caucuses play out like those in Iowa earlier this month, there could be chaos.`\
+https://nytimes.com/interactive/2020/02/20/us/politics/how-nevada-caucuses-work.html?searchResultPosition=5
+
+**First Pass Friday: It’s a Rush**\
+`Anne Flinchbaugh makes her New York Times Crossword debut with the help of the veteran constructor Erik Agard.`\
+https://nytimes.com/2020/02/20/crosswords/daily-puzzle-2020-02-21.html?searchResultPosition=6
+
+**Knight Powers William & Mary Past Towson 61-51**\
+`Nathan Knight had 14 points and 10 rebounds for his nation-leading 22nd double-double of the season to lead William & Mary to a 61-51 victory over Towson on Thursday night.`\
+https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-william-mary-towson.html?searchResultPosition=7
+
+**Darling Stays Hot, Delaware Rolls Past Northeastern 70-48**\
+`Nate Darling hit four 3-pointers and scored 17 points and Delaware romped past Northeastern 70-48 on Wednesday night to reach 20 wins for the eighth time in school history.`\
+https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-northeastern-delaware.html?searchResultPosition=8
+
 **LaRavia, Key Lead Indiana State to 67-64 Upset of UNI**\
 `Jake LaRavia had 18 points and seven rebounds and Tyreke Key had 18 points and six rebounds as Indiana State held off Northern Iowa 67-64 on Thursday night.`\
-https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-n-iowa-indiana-st.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-n-iowa-indiana-st.html?searchResultPosition=9
 
 **Mackenzie Blackwood Has 36 Saves, Devils Beat Sharks 2-1**\
 `Mackenzie Blackwood made 36 saves in winning his fifth straight start and the New Jersey Devils beat the San Jose Sharks 2-1 in a matchup of struggling franchises on Thursday night.`\
-https://nytimes.com/aponline/2020/02/20/sports/hockey/bc-hkn-sharks-devils.html?searchResultPosition=3
-
-**Coastal Carolina Wallop Troy, 90-60, Keep Tourney Hope Alive**\
-`Tommy Burton and DeVante' Jones scored 16 points apiece as Coastal Carolina easily defeated Troy 90-60 on Thursday night. Garrick Green added 14 points, Tim Ceaser scored 11 and Malik LeGania had 10 for the Chanticleers. Jones also had eight rebounds and eight assists.`\
-https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-troy-coastal-carolina.html?searchResultPosition=4
-
-**Buie Scores 26 as Hofstra Rallies for 7th-Straight Win 81-74**\
-`Desure Buie scored 26 points as Hofstra won its seventh consecutive game, pulling away late and defeating Drexel 81-74 on Thursday night.`\
-https://nytimes.com/aponline/2020/02/20/sports/ncaabasketball/bc-bkc-hofstra-dexel.html?searchResultPosition=5
-
-**China Says January-February Trade to Take Sharp Hit From Virus Outbreak**\
-`China's January and February exports and imports will be hit by  the coronavirus outbreak that has severely disrupted the world's second-largest economy, the country's commerce ministry said on Friday. `\
-https://nytimes.com/reuters/2020/02/20/world/asia/20reuters-china-health-mofcom.html?searchResultPosition=6
-
-**Muzzin Helps Maple Leafs Blank Penguins 4-0**\
-`Jake Muzzin had a goal and two assists, Frederik Andersen made 24 saves and the Toronto Maple Leafs beat the Pittsburgh Penguins 4-0 on Thursday night.`\
-https://nytimes.com/aponline/2020/02/20/sports/hockey/bc-hkn-penguins-maple-leafs.html?searchResultPosition=7
-
-**Ovechkin Scores 699th Goal, Capitals Lose to Canadiens in OT**\
-`Alex Ovechkin scored his 699th career goal, closing in on another milestone, but the Washington Capitals dropped their third in a row, losing to the Montreal Canadiens 4-3 in overtime Thursday night.`\
-https://nytimes.com/aponline/2020/02/20/sports/hockey/bc-hkn-canadiens-capitals.html?searchResultPosition=8
-
-**Mexico Ratifies Rule Requiring Trucks, Buses to Run on Cleaner Diesel**\
-`The Mexican government on Thursday ratified an environmental rule that requires truck and bus makers to manufacture and sell only vehicles running on clean diesel starting in January 2021, despite criticism from the industry.`\
-https://nytimes.com/reuters/2020/02/20/world/americas/20reuters-mexico-autos.html?searchResultPosition=9
-
-**Arizona Governor, GOP Lawmakers End Sanctuary City Ban Push**\
-`Arizona Gov. Doug Ducey and Republican lawmakers have pulled a contentious proposal to enshrine a ban on so-called “sanctuary cities” in the state constitution.`\
-https://nytimes.com/aponline/2020/02/20/us/ap-us-arizona-sanctuary-policy-ban.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/20/sports/hockey/bc-hkn-sharks-devils.html?searchResultPosition=10
 
