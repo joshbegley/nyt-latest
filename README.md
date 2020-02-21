@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/02/20/world/europe/20reuters-britain-bodies-vie
 `As California’s governor vows to tackle the state’s homelessness crisis, housing ‘insanity’ stands in the way.`\
 https://nytimes.com/2020/02/20/us/California-housing-costs.html?searchResultPosition=7
 
-**Passenger Train Derails in Southern Australia, Killing 2**\
-`A passenger train derailed in southeastern Australia, killing two operators and injuring several other people, police said.`\
+**Passenger Train Partly Derails in Australia, Killing 2**\
+`Several cars on a passenger train derailed in southeastern Australia, killing two operators and injuring 12 other people, police said.`\
 https://nytimes.com/aponline/2020/02/20/world/asia/ap-as-australia-train-crash.html?searchResultPosition=8
 
 **N.Y.P.D. to Remove DNA Profiles of Non-Criminals From Database**\
