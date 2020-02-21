@@ -1,36 +1,36 @@
-**Thousands Light Up Joints During Hindu Festival in Nepal**\
-`Hindu holy men were joined by devotees and the public Friday at a revered temple in Kathmandu where they lit up marijuana cigarettes during an annual festival despite prohibition and warnings by authorities. `\
-https://nytimes.com/aponline/2020/02/21/world/asia/ap-as-nepal-marijuana-day.html?searchResultPosition=2
+**Could Nevada Caucus First in 2024? Harry Reid Wants It**\
+`The retired senator, still deeply involved in Nevada politics, is convinced that Saturday’s caucuses will run smoothly and strengthen his state’s case for leapfrogging Iowa in the next election.`\
+https://nytimes.com/2020/02/21/us/politics/nevada-caucuses-harry-reid.html?searchResultPosition=2
 
-**U.N.-Led Libya Ceasefire Talks Will Resume on Friday in Geneva: U.N. Spokesman**\
-`The United Nations will on Friday host a new rounds of ceasefire  talks between Libya's warring parties fighting over the capital Tripoli, a U.N. spokesman said on Friday.`\
-https://nytimes.com/reuters/2020/02/21/world/europe/21reuters-libya-security.html?searchResultPosition=3
+**How an Amputee Dancer Spends His Sundays**\
+`How to emphasize an atypical body? First, walk the dogs. Then a long day of rehearsal.`\
+https://nytimes.com/2020/02/21/nyregion/donald-lee-bilateral-amputee-dancer.html?searchResultPosition=3
 
-**Lesotho PM Thabane Has Gone to South Africa to See a Doctor: Son**\
-`Lesotho Prime Minister Thomas Thabane has gone to South Africa to see a doctor, his son told Reuters, after Thabane missed a court appearance over his former wife's death.`\
-https://nytimes.com/reuters/2020/02/21/world/africa/21reuters-lesotho-politics-safrica.html?searchResultPosition=4
+**A Billion-Dollar Scandal Turns the ‘King of Manuscripts’ Into the ‘Madoff of France’**\
+`Accused of orchestrating a literary Ponzi scheme, Gérard Lhéritier prepares his defense as his breathtaking collection is auctioned off.`\
+https://nytimes.com/2020/02/21/business/aristophil-lheritier-rare-books.html?searchResultPosition=4
 
-**Russia Calls Reports of Syrians Fleeing Idlib en Masse for Turkey False**\
-`Russia's Defense Ministry on Friday said reports that hundreds of thousands of Syrians were fleeing Idlib in the direction of Turkey were false and urged Ankara to allow Idlib residents to enter other parts of Syria.`\
-https://nytimes.com/reuters/2020/02/21/world/middleeast/21reuters-syria-security-russia.html?searchResultPosition=5
+**How to Be an Expatriate in 2020**\
+`Thanks to leaps in technology, social media and the expanded mobile economy, more people are leaving home for good. Here’s how they do it.`\
+https://nytimes.com/2020/02/21/realestate/how-to-be-an-expatriate-in-2020.html?searchResultPosition=5
 
-**UK Posts Smaller Than Expected January Surplus as New Finance Minister Readies Budget**\
-`British posted a smaller-than-expected budget surplus in January, a reminder of the constraints facing new finance minister Rishi Sunak as he prepares to deliver his first budget next month.`\
-https://nytimes.com/reuters/2020/02/21/world/europe/21reuters-britain-economy-borrowing.html?searchResultPosition=6
+**Connor Jessup of ‘Locke & Key’ Gets His Nails Done**\
+`An early love of fantasy books comes to fruition for the Canadian actor, with “exactly the kind of job I dreamed about.”`\
+https://nytimes.com/2020/02/21/style/connor-jessup-of-locke-key-gets-his-nails-done.html?searchResultPosition=6
 
-**Russian Driverless Tech Company Cognitive Pilot Sets Sights on IPO**\
-`Russian technology start-up Cognitive Pilot, which makes components for driverless vehicles, is considering an initial public offering (IPO) after 2023, its chief executive told Reuters.`\
-https://nytimes.com/reuters/2020/02/21/technology/21reuters-russia-autonomous.html?searchResultPosition=7
+**The Liberal Economists Behind the Wealth Tax Debate**\
+`Gabriel Zucman and Emmanuel Saez have crashed the Democratic primary with their idea — and angered some economists.`\
+https://nytimes.com/2020/02/21/us/politics/the-liberal-economists-behind-the-wealth-tax-debate.html?searchResultPosition=7
 
-**Recovering Factories Keep UK Economy on Track in February: PMIs**\
-`British businesses kept up a solid rate of growth in February as factories posted the fastest rise in output for 10 months, despite ripples from China's coronavirus outbreak affecting supply chains, a business survey showed on Friday.`\
-https://nytimes.com/reuters/2020/02/21/world/europe/21reuters-britain-economy-pmi.html?searchResultPosition=8
+**A Reporter Remembers the Miracle on Ice 40 Years Later**\
+`The Times wasn’t going to send anyone to cover hockey at the 1980 Winter Games in Lake Placid. But one sportswriter had a feeling.`\
+https://nytimes.com/2020/02/21/reader-center/miracle-on-ice-anniversary.html?searchResultPosition=8
 
-**Malaysia's Axiata in Talks With 11 to Partner Up for Bid on Digital Bank License**\
-`Malaysian telecoms firm Axiata Group is talking to eleven potential partners, including banks, to jointly bid for a digital banking license, its deputy chief executive, Mohd Izzaddin Idris, said on Friday.`\
-https://nytimes.com/reuters/2020/02/21/technology/21reuters-malaysia-axiata.html?searchResultPosition=9
+**Ocasio-Cortez Builds Progressive Campaign Arm to Challenge Democrats**\
+`Ms. Ocasio-Cortez plans to endorse a slate of progressive challengers to Democratic candidates and incumbents, working to create a liberal counterweight to the party’s official campaign arm.`\
+https://nytimes.com/2020/02/21/us/politics/ocasio-cortez-builds-progressive-campaign-arm-to-challenge-democrats.html?searchResultPosition=9
 
-**Lesotho PM Misses Court Date Over Wife's Death**\
-`Lesotho's Prime Minister Thomas Thabane had not turned up for a court appearance over his wife's death two hours after the hearing was meant to start on Friday, and police said they were unsure of his whereabouts.`\
-https://nytimes.com/reuters/2020/02/21/world/africa/21reuters-lesotho-politics.html?searchResultPosition=10
+**Black and Latino Voters Are Looking for ‘More Than Just Some Token Words’**\
+`Voters in Nevada and South Carolina face an all-white top tier of 2020 candidates that was winnowed down by a largely white electorate.`\
+https://nytimes.com/2020/02/21/us/politics/nevada-south-carolina-2020.html?searchResultPosition=10
 
