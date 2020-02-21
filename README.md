@@ -1,36 +1,36 @@
+**'Traumatized' Africans Stranded by Coronavirus Plead to Be Brought Home**\
+`When Margaret Ntale Namusisi's three daughters called her in Uganda to say they were being quarantined at their university in Wuhan, China, because of the coronavirus outbreak, she sent money and told them: "Run very fast and do shopping."`\
+https://nytimes.com/reuters/2020/02/21/world/africa/21reuters-china-health-africa.html?searchResultPosition=2
+
+**Nissan Will Delay Restart of Some China Plants on Coronavirus**\
+`Nissan Motor Co will delay the restart of two of its plants in China near the epicenter of the coronavirus outbreak, in compliance with local government directives, the company said on Friday.`\
+https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-china-health-nissan.html?searchResultPosition=3
+
+**Word + Quiz: circumstantial**\
+`This word has appeared in 59 articles on NYTimes.com in the past year.`\
+https://nytimes.com/2020/02/21/learning/word-quiz-circumstantial.html?searchResultPosition=4
+
 **Dawson Putback Gives Hawaii 56-55 Win Over Riverside**\
 `Justin Webster scored 18 points and Carper Dawson scored on a putback with 31.1 seconds to play and Hawaii pulled out a 56-55 win over UC Riverside on Thursday night.`\
-https://nytimes.com/aponline/2020/02/21/sports/ncaabasketball/bc-bkc-hawaii-uc-riverside.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/02/21/sports/ncaabasketball/bc-bkc-hawaii-uc-riverside.html?searchResultPosition=5
 
 **Amid Japan Coronavirus Fears, Hundreds Leave Quarantined Ship, Tokyo Scraps Public Events**\
 `Hundreds of Japanese and foreign passengers were set to disembark from a coronavirus-hit cruise ship near Tokyo on Friday amid growing disquiet in Japan about whether the government was doing enough to stop the virus spreading. `\
-https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-china-health-japan-ship.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-china-health-japan-ship.html?searchResultPosition=6
 
 **Atlantia Waiting for Government to Reply on Motorway Investment Proposal: CEO to Paper**\
 `Atlantia is waiting for  a reply from the Italian government over proposals it has made to modernize the motorways it runs, the group's chief executive said on Friday.`\
-https://nytimes.com/reuters/2020/02/21/world/europe/21reuters-atlantia-ceo.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/02/21/world/europe/21reuters-atlantia-ceo.html?searchResultPosition=7
 
 **Qatar Accuses Saudi Arabia of Hampering Its Access to Gulf Meet on Coronavirus**\
 `Qatar has accused Saudi Arabia of allowing a protracted dispute to hinder Gulf Arab coordination over the coronavirus outbreak by denying the Qatari health minister timely access to a meeting of regional health ministers in Riyadh.`\
-https://nytimes.com/reuters/2020/02/21/world/middleeast/21reuters-gulf-qatar.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/02/21/world/middleeast/21reuters-gulf-qatar.html?searchResultPosition=8
 
 **After Amazon, Walmart's Flipkart Challenges India Antitrust Probe**\
 `Walmart's Flipkart has filed a legal challenge against an antitrust investigation ordered against the company in India, a court filing seen by Reuters showed, following a similar petition by its rival Amazon.com Inc.`\
-https://nytimes.com/reuters/2020/02/21/technology/21reuters-india-antitrust-flipkart.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/02/21/technology/21reuters-india-antitrust-flipkart.html?searchResultPosition=9
 
 **Fitts, Free Throws Help Saint Mary's Defeat LMU 57-51**\
 `Malik Fitts scored 20 points and Saint Mary's was perfect from the foul line to overcome a cold-shooting second half to pull out a 57-51 win over Loyola Marymount on Thursday night.`\
-https://nytimes.com/aponline/2020/02/21/sports/ncaabasketball/bc-bkc-loyola-marymount-saint-marys.html?searchResultPosition=7
-
-**China's Chicken Chain Comes Unstuck Amid Chaos of Virus Measures**\
-`China's chicken farmers had been looking forward to a bumper year.`\
-https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-china-health-chickens.html?searchResultPosition=8
-
-**BOJ Kuroda Says Not Considering Review of Monetary Policy for Now**\
-`Bank of Japan Governor Haruhiko Kuroda said on Friday that he was not considering to conduct a comprehensive review of monetary policy at the moment.`\
-https://nytimes.com/reuters/2020/02/21/world/asia/21reuters-japan-boj-kuroda.html?searchResultPosition=9
-
-**How Bloomberg Outspent His Rivals, and Sanders Outraised Them All**\
-`By the end of January, Michael R. Bloomberg had spent more than four other leading Democratic candidates combined.`\
-https://nytimes.com/interactive/2020/02/21/us/politics/democratic-fundraising-numbers-february.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/21/sports/ncaabasketball/bc-bkc-loyola-marymount-saint-marys.html?searchResultPosition=10
 
