@@ -27,6 +27,6 @@ https://nytimes.com/reuters/2020/02/22/us/politics/22reuters-usa-election-bloomb
 https://nytimes.com/reuters/2020/02/22/business/22reuters-g20-tax-france.html?searchResultPosition=9
 
 **Adapting to Rising Seas, Schools Move to the Rafters and Cats Swim**\
-`On an island in the Philippines, waterlogged one-third of the year because of climate change, residents adjust to their sodden existence instead of fleeing.`\
+`On an island in the Philippines, waterlogged for one-third of every year, residents adjust to their sodden existence instead of fleeing.`\
 https://nytimes.com/2020/02/22/world/asia/philippines-climate-change-batasan-tubigon.html?searchResultPosition=10
 
