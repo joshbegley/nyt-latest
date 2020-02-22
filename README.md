@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/02/22/world/asia/ap-as-japan-outbreak-quaranti
 https://nytimes.com/2020/02/22/well/move/great-running-spots-across-america.html?searchResultPosition=7
 
 **South Sudan Leader Appoints Ex-Rebel Leader as His Deputy**\
-`President Salva Kiir swore in Riek Machar, after the two men agreed to form a coalition government that many observers hoped would last.`\
+`President Salva Kiir swore in Riek Machar as vice president, after the two men agreed to form a coalition government that many observers hoped would last.`\
 https://nytimes.com/2020/02/22/world/africa/south-sudan-kiir-machar.html?searchResultPosition=8
 
 **Tesla Resumes Tree Cutting in Germany to Build Gigafactory**\
