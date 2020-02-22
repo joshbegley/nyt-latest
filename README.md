@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/02/22/business/22reuters-honda-philippines.html
 https://nytimes.com/2020/02/22/opinion/letters/teenagers-letters-to-the-editor.html?searchResultPosition=8
 
 **Syria Reopens Highway Linking Largest Cities After 8 Years**\
-`The highway that links the Syrian capital with the northern city of Aleppo is open for public use for the first time in nearly eight years after government forces recently captured parts of it that had been held by insurgents, the transpiration minister said Saturday.`\
+`The highway that links the Syrian capital with the northern city of Aleppo is open for public use for the first time in nearly eight years after government forces recently captured parts of it that had been held by insurgents, the transportation minister said Saturday.`\
 https://nytimes.com/aponline/2020/02/22/world/middleeast/ap-ml-syria.html?searchResultPosition=9
 
 **Japan Urges G20 Members With Fiscal Scope to Boost Spending**\
