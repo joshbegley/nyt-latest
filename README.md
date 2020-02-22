@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/02/22/world/middleeast/22reuters-iran-election-
 `There is momentum for finding a solution on international tax reforms by the end of 2020, French economy and finance minister Bruno Le Maire said in Riyadh on Saturday.`\
 https://nytimes.com/reuters/2020/02/22/world/europe/22reuters-g20-saudi-france.html?searchResultPosition=8
 
-**South Korea Coronavirus Cases Surge Due to Church, Hospital Outbreaks**\
-`Coronavirus cases in South Korea almost doubled on Saturday to 346 and officials flagged the tally could rise significantly higher as more than 1,000 people who attended a church at the center of the outbreak reported flu-like symptoms.`\
+**South Korea Says Coronavirus Cases More Than Double, Total Now 433**\
+`South Korea said on Saturday that the number of people infected with the coronavirus in the country had more than doubled to 433.`\
 https://nytimes.com/reuters/2020/02/22/world/asia/22reuters-china-health-southkorea-cases.html?searchResultPosition=9
 
 **Togo Votes as Gnassingbe Seeks to Extend Dynasty's Half-Century Rule**\
