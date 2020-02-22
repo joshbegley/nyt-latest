@@ -1,32 +1,32 @@
+**New Virus Has Infected More Than 77,000 People Globally**\
+`A viral outbreak that began in China has infected more than 77,000 people globally. The World Health Organization has named the illness COVID-19, referring to its origin late last year and the coronavirus that causes it. `\
+https://nytimes.com/aponline/2020/02/21/us/ap-as-virus-outbreak-at-a-glance.html?searchResultPosition=3
+
+**No. 12 DePaul Women Wrap Up Outright Big East Title**\
+`Sonya Morris scored 22 points, Chante Stonewall had 20 and No. 12 DePaul beat Georgetown 87-69 on Friday night with the Blue Demons wrapping up the outright Big East regular-season title.`\
+https://nytimes.com/aponline/2020/02/21/sports/ncaabasketball/bc-bkw-t25-depaul-georgetown.html?searchResultPosition=4
+
 **UN Chief Welcomes Peace Progress in Central African Republic**\
 `Secretary-General Antonio Guterres is welcoming slow but steady progress toward implementing a peace agreement signed a year ago by Central African Republic’s government and rebel groups, but he is “seriously concerned” about continuing hostilities and violence. `\
-https://nytimes.com/aponline/2020/02/21/world/africa/ap-un-united-nations-central-african-republic.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/02/21/world/africa/ap-un-united-nations-central-african-republic.html?searchResultPosition=5
 
 **A Feminist Cookbook Meant to Inspire Fuels Outrage Instead**\
 `The authors of “Rage Baking” started a different conversation than they intended.`\
-https://nytimes.com/2020/02/21/dining/rage-baking-book-tangerine-jones.html?searchResultPosition=4
+https://nytimes.com/2020/02/21/dining/rage-baking-book-tangerine-jones.html?searchResultPosition=6
 
 **Ary-Turner, Knight Carry Dartmouth Past Penn 66-59**\
 `Trevon Ary-Turner had 19 points as Dartmouth topped Penn 66-59 on Friday night. Chris Knight added 16 points for the Big Green, while Aaryn Rai chipped in 15.`\
-https://nytimes.com/aponline/2020/02/21/sports/ncaabasketball/bc-bkc-penn-dartmouth.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/02/21/sports/ncaabasketball/bc-bkc-penn-dartmouth.html?searchResultPosition=7
 
 **Can the Military Fix Base Housing?**\
 `Privatization has ushered in mold, mismanagement and worse.`\
-https://nytimes.com/2020/02/21/opinion/military-bases-housing.html?searchResultPosition=6
+https://nytimes.com/2020/02/21/opinion/military-bases-housing.html?searchResultPosition=8
 
 **Police: Suspect Dies After Hit-And-Run, Shooting, Car in Lake**\
 `A rifle-toting suspect involved in a hit-and-run crash and a subsequent carjacking Friday afternoon allegedly fired at police justbefore he drove a vehicle into a Georgialake and it sank, authorities said.`\
-https://nytimes.com/aponline/2020/02/21/us/ap-us-shooting-car-in-lake.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/02/21/us/ap-us-shooting-car-in-lake.html?searchResultPosition=9
 
 **Judge Dismisses Nunes Lawsuit Against Fusion GPS**\
 `A federal judge on Friday dismissed a racketeering lawsuit brought by Republican Rep. Devin Nunes against the political research firm that enlisted a former British spy to look into Donald Trump’s ties to Russia during the 2016 presidential campaign.`\
-https://nytimes.com/aponline/2020/02/21/us/politics/ap-us-nunes-lawsuit.html?searchResultPosition=8
-
-**Mexicans March to Protest Major Infrastructure Projects**\
-`More than 1,000 people marched through the center of Mexico City on Friday in opposition to the government's largest infrastructure projects.`\
-https://nytimes.com/aponline/2020/02/21/business/ap-lt-mexico-protest.html?searchResultPosition=9
-
-**Cripple the Intelligence Agencies? Not Smart**\
-`What happens when intelligence officials warn that Russia is meddling in American politics again? Donald Trump gets mad — at the intelligence officials.`\
-https://nytimes.com/2020/02/21/opinion/trump-russia-intelligence.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/21/us/politics/ap-us-nunes-lawsuit.html?searchResultPosition=10
 
