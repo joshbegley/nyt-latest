@@ -2,7 +2,7 @@
 `Alex DeBrincat scored in the third period and overtime to rally the Chicago Blackhawks past the Nashville Predators 2-1 on Friday night.`\
 https://nytimes.com/aponline/2020/02/21/sports/hockey/bc-hkn-predators-blackhawks.html?searchResultPosition=3
 
-**No. 21 Arizona State Women Rally to Beat Colorado State**\
+**No. 21 Arizona State Women Rally to Beat Colorado 65-59**\
 `Reili Richardson and Ja'Tavia Tapley scored 16 points apiece, each with seven in the fourth quarter, to help No. 21 Arizona State rally for a 65-59 win over Colorado on Friday night.`\
 https://nytimes.com/aponline/2020/02/21/sports/ncaabasketball/bc-bkw-t25-arizona-st-colorado.html?searchResultPosition=4
 
