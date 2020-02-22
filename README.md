@@ -14,7 +14,7 @@ https://nytimes.com/2020/02/22/realestate/how-do-i-deal-with-my-obnoxious-neighb
 `A Sri Lankan diplomat has briefed the president of the U.N. Human Rights Council on the government's decision to withdraw from a 2015 resolution calling for an investigation into alleged human rights violations committed during the country's long civil war. `\
 https://nytimes.com/aponline/2020/02/22/world/asia/ap-as-sri-lanka-un.html?searchResultPosition=6
 
-**In Brazil, Fears That Violent Police Strike Could Spread**\
+**In Brazil, Fear of Spreading Police Protests During Carnival**\
 `A violent police strike in northeastern Brazil that led to a senator being injured by gunfire has shed light on dissatisfaction among cops elsewhere in the country who have threatened to protest as rowdy Carnival celebrations start.`\
 https://nytimes.com/aponline/2020/02/22/world/americas/ap-lt-brazil-police-strike.html?searchResultPosition=7
 
