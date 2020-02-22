@@ -26,7 +26,7 @@ https://nytimes.com/aponline/2020/02/22/us/ap-us-history-class-trump.html?search
 `Runway shows continued apace on the fourth day of Milan Fashion Week as the itinerant fashion crowd took an analytical attitude toward the cases of the virus from China clustered not far away in northern Italy. `\
 https://nytimes.com/aponline/2020/02/22/business/bc-eu-milan-fashion-week-watch.html?searchResultPosition=9
 
-**The Latest: Nevada Is Center Stage With SC in the Wings**\
+**The Latest: Warren Reports Big Haul of Cash on Debate Week**\
 `The Latest on the 2020 presidential campaign (all times local):`\
 https://nytimes.com/aponline/2020/02/22/us/politics/ap-us-election-2020-the-latest.html?searchResultPosition=10
 
