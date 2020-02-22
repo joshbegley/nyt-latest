@@ -1,32 +1,32 @@
+**Adapting to Rising Seas, Schools Move to the Rafters and Cats Swim**\
+`On an island in the Philippines, waterlogged one-third of the year because of climate change, residents adjust to their sodden existence instead of fleeing.`\
+https://nytimes.com/2020/02/22/world/asia/philippines-climate-change-batasan-tubigon.html?searchResultPosition=3
+
+**5 New Standout Hotels in Los Angeles**\
+`From chic bed-and-breakfasts to sprawling modern luxuries, these hotels are notable bright spots in a city filled with stars.`\
+https://nytimes.com/2020/02/22/travel/hotels-los-angeles.html?searchResultPosition=4
+
+**The Man Who Creates Memorable Red Carpet Moments**\
+`Chris Appleton did J. Lo’s hair for the Super Bowl. The video went a bit crazy.`\
+https://nytimes.com/2020/02/22/style/chris-appleton-hair-jennifer-lopez-the-man-who-creates-memorable-red-carpet-moments-.html?searchResultPosition=5
+
+**One Guaranteed Winner in the Democratic Primary: Plans to Tax the Rich**\
+`Every leading candidate for the 2020 Democratic nomination is proposing trillions of dollars of new taxes on wealthy Americans and businesses. The divide in the field is how high to go.`\
+https://nytimes.com/2020/02/22/us/politics/democratic-wealth-tax-plans.html?searchResultPosition=6
+
+**Bernie Sanders, the Teflon Candidate, Faces Sudden New Tests**\
+`The Vermont senator has long brushed off political vulnerabilities and evaded attacks from rivals. But the spotlight on his front-runner status and possible Russian interference could pose challenges.`\
+https://nytimes.com/2020/02/22/us/politics/bernie-sanders.html?searchResultPosition=7
+
+**How to Win the Democratic Nomination, and Why It Could Get Complicated**\
+`Bernie Sanders says winning a plurality of delegates is good enough for the nomination. His rivals say a majority is needed. What does that mean? And why are superdelegates coming up again?`\
+https://nytimes.com/2020/02/22/us/politics/democratic-primary-dnc-superdelegates.html?searchResultPosition=8
+
+**Loathing in Las Vegas: This Week in the 2020 Race**\
+`The Democratic candidates ripped into one another — and especially Michael Bloomberg — as the Nevada caucuses approached.`\
+https://nytimes.com/2020/02/22/us/politics/loathing-in-las-vegas-this-week-in-the-2020-race.html?searchResultPosition=9
+
 **Let's Come Together to Tax Tech Giants, Say G20 Officials Eying $100 Billion Boost**\
 `Leading world economies must show unity in dealing with aggressive "tax optimization" by global digital giants like Google, Amazon and Facebook, G20 officials said on Saturday.`\
-https://nytimes.com/reuters/2020/02/22/business/22reuters-g20-tax.html?searchResultPosition=3
-
-**South Sudan Set to Swear in Former Rebel Leader as First Vice President**\
-`South Sudan's President Salva Kiir is due to swear in former rebel leader Riek Machar as his first vice president on Saturday after the two men agreed to form a unity government, a move that could definitively end years of fighting in the country.`\
-https://nytimes.com/reuters/2020/02/22/world/22reuters-southsudan-politics.html?searchResultPosition=4
-
-**Iran Reports Another Death, 10 New Cases of New Coronavirus**\
-`Iranian health authorities on Saturday reported a fifth death from the new virus that emerged in China, and said the fatality was from among 10 new confirmed cases of the virus in Iran.`\
-https://nytimes.com/aponline/2020/02/22/world/middleeast/ap-ml-iran-virus-outbreak.html?searchResultPosition=5
-
-**Italy Towns on Effective Lockdown After Virus Clusters Form**\
-`A dozen towns in northern Italy were on effective lockdown Saturday after the new virus linked to China claimed a first fatality in Italy and sickened an increasing number of people who had no direct links to the origin of the virus.`\
-https://nytimes.com/aponline/2020/02/22/world/europe/ap-eu-china-outbreak-europe.html?searchResultPosition=6
-
-**Second Coronavirus Patient Dies in Italy: Ansa News Agency**\
-`A second patient infected with the new coronavirus has died in Italy, ANSA news agency reported citing healthcare sources, as an outbreak spreads in the north of the country with 30 cases reported so far.`\
-https://nytimes.com/reuters/2020/02/22/world/europe/22reuters-china-health-italy.html?searchResultPosition=7
-
-**Quotation of the Day: Inside the Bodega: Snacks, Smokes and Viral Fame**\
-`Quotation of the Day for Saturday, February 22, 2020.`\
-https://nytimes.com/2020/02/22/todayspaper/quotation-of-the-day-inside-the-bodega-snacks-smokes-and-viral-fame.html?searchResultPosition=8
-
-**Samsung Electronics Confirms Coronavirus Case at Phone Factory Complex in South Korea**\
-`Samsung Electronics said on Saturday that one coronavirus case had been confirmed at its mobile device factory complex in the southeastern city of Gumi, causing a shutdown of its entire facility there until Monday morning. `\
-https://nytimes.com/reuters/2020/02/22/business/22reuters-china-health-southkorea-samsung-elec.html?searchResultPosition=9
-
-**New Bid to Legalize Abortion in Argentina, With President’s Backing**\
-`Activists came close in 2018. This year, President Alberto Fernández is on their side and is expected to present a legalization bill to Congress.`\
-https://nytimes.com/2020/02/22/world/americas/abortion-argentina.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/22/business/22reuters-g20-tax.html?searchResultPosition=10
 
