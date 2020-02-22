@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/02/22/world/asia/22reuters-china-health-southko
 `Polling stations opened in Togo on Saturday for a presidential election expected to extend incumbent Faure Gnassingbe's 15-year hold on power, and his family's rule of more than half a century. `\
 https://nytimes.com/reuters/2020/02/22/world/africa/22reuters-togo-election.html?searchResultPosition=6
 
-**Bank of Japan Says It's Ready to Ease Monetary Policy, but Economy Recovering**\
-`The Bank of Japan is ready to ease monetary policy without hesitation, but there is no change in the central bank's view that the Japanese economy is recovering moderately, its governor, Haruhiko Kuroda, said on Saturday.`\
+**BOJ Kuroda Blames Yen's Fall on Strong Dollar, Upbeat on Economy**\
+`Bank of Japan Governor Haruhiko Kuroda said on Saturday the yen's recent declines were largely driven by a strong dollar, shrugging off some market views that the widening coronavirus epidemic is triggering an outflow of funds from Asia.`\
 https://nytimes.com/reuters/2020/02/22/business/22reuters-g20-saudi-boj.html?searchResultPosition=7
 
 **Inside the New York City Bodegas Going Viral on TikTok**\
