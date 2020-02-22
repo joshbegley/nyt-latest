@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-umass-fordh
 https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-william-mary-james-madison.html?searchResultPosition=4
 
 **Bruins Rally in 2nd Half to Beat No. 18 Colorado, 70-63**\
-`Tyger Campbell had seven of his 15 points during a 20-3 UCLA run in the second half, and the Bruins rallied from nine points down to beat No. 18 Colorado on Saturday and tie the Buffaloes atop the Pac-12 Conference.`\
+`Tyger Campbell had seven of his 15 points during a 20-3 UCLA run in the second half, and the Bruins rallied from nine points down to beat No. 18 Colorado 70-63 on Saturday and tie the Buffaloes atop the Pac-12 Conference.`\
 https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-ucla-colorado.html?searchResultPosition=5
 
 **Averette Scores 23, Utah Valley Tops Grand Canyon 92-80**\
