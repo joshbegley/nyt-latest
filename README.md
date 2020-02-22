@@ -26,7 +26,7 @@ https://nytimes.com/aponline/2020/02/21/us/politics/ap-us-election-2020-the-late
 `The company had asked a court for limits on consultants working with the attorney general of Texas, who is leading a multistate investigation.`\
 https://nytimes.com/2020/02/21/technology/google-antitrust-document-deal.html?searchResultPosition=9
 
-**China's Central Will Guide Interest Rates Lower to Aid Virus-Hit Economy: State Media**\
+**China's Central Bank Will Guide Interest Rates Lower to Aid Virus-Hit Economy: State Media**\
 `China will guide overall market interest rates lower and keep liquidity appropriately ample to help companies affected by the coronavirus epidemic, a senior central banker told state media.`\
 https://nytimes.com/reuters/2020/02/21/business/21reuters-china-health-economy-interestrates.html?searchResultPosition=10
 
