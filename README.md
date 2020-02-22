@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/02/22/us/ap-pictures-of-the-week-photo-gallery
 `The World Health Organization (WHO) is concerned about the number of coronavirus cases with no clear epidemiological link, although the total number of cases outside China remains relatively small, its director general said on Saturday.`\
 https://nytimes.com/reuters/2020/02/22/technology/22reuters-china-health-who.html?searchResultPosition=4
 
-**Hubei's Medical Supply Situation Improving, but Shortages Remain-Official**\
+**Hubei's Medical Supply Situation Improving, but Shortages Remain: Official**\
 `The medical supply situation in China's Hubei, which has been hard hit by the coronavirus outbreak, has improved, but items such as protective suits remain scarce, a provincial official said at a briefing on Saturday.`\
 https://nytimes.com/reuters/2020/02/22/world/asia/22reuters-china-health-hubei.html?searchResultPosition=5
 
