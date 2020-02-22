@@ -1,5 +1,5 @@
 **South Sudan's Rival Leaders Form Coalition Government**\
-`South Sudan has opened a new chapter in its fragile emergence from civil war with rival leaders forming a coalition government.`\
+`South Sudan opened a new chapter in its fragile emergence from civil war Saturday as rival leaders formed a coalition government that many observers prayed would last this time around.`\
 https://nytimes.com/aponline/2020/02/22/world/africa/ap-af-south-sudan-swearing-in.html?searchResultPosition=3
 
 **Egyptian Court Acquits Mubarak’s Sons of Illicit Share Trading**\
