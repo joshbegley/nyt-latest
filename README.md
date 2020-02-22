@@ -1,32 +1,32 @@
+**South Sudan's Rival Leaders Form Coalition Government**\
+`South Sudan has opened a new chapter in its fragile emergence from civil war with rival leaders forming a coalition government.`\
+https://nytimes.com/aponline/2020/02/22/world/africa/ap-af-south-sudan-swearing-in.html?searchResultPosition=3
+
 **Egyptian Court Acquits Mubarak’s Sons of Illicit Share Trading**\
 `Alaa and Gamal Mubarak had faced charges of illegally profiting from the sale of a bank in 2007.`\
-https://nytimes.com/2020/02/22/world/africa/egypt-mubarak-sons.html?searchResultPosition=3
+https://nytimes.com/2020/02/22/world/africa/egypt-mubarak-sons.html?searchResultPosition=4
 
 **Ryanair CEO Criticized for Singling Out Muslim Men as Threat**\
 `Ryanair chief executive Michael O’Leary is facing criticism for suggesting Muslim men should be singled out for extra scrutiny at airports. `\
-https://nytimes.com/aponline/2020/02/22/business/ap-eu-britain-ryanair-boss.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/02/22/business/ap-eu-britain-ryanair-boss.html?searchResultPosition=5
 
 **Mercedes Suspect Ferrari Are Playing Down Their True Pace**\
 `Champions Mercedes suspect Ferrari are considerably faster than the Italian team let on in Formula One's first pre-season test in Spain, with the gap between the top three and the rest  closing.`\
-https://nytimes.com/reuters/2020/02/22/sports/autoracing/22reuters-motor-f1-testing.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/02/22/sports/autoracing/22reuters-motor-f1-testing.html?searchResultPosition=6
 
 **Israeli Police Shoot, Kill Alleged Stabbing Attacker**\
 `Israeli police said officers shot and killed a man on Saturday after he allegedly tried to carry out a stabbing attack on a soldier outside Jerusalem’s Old City.`\
-https://nytimes.com/aponline/2020/02/22/world/middleeast/ap-ml-israel-palestinians.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/02/22/world/middleeast/ap-ml-israel-palestinians.html?searchResultPosition=7
 
 **Salvatore Ferragamo: Fall 2020**\
 `See the looks from the Salvatore Ferragamo: Fall 2020 Collection.`\
-https://nytimes.com/slideshow/2020/02/22/fashion/runway-womens/salvatore-ferragamo-fall-2020.html?searchResultPosition=7
+https://nytimes.com/slideshow/2020/02/22/fashion/runway-womens/salvatore-ferragamo-fall-2020.html?searchResultPosition=8
 
 **Sanders Puts Democratic Front-Runner Status on the Line in Nevada's Caucuses**\
 `Bernie Sanders faces a test of his front-runner status in the Democratic White House race on Saturday in Nevada, where voters will consider an unsettled field of candidates as they search for a challenger to take on President Donald Trump.`\
-https://nytimes.com/reuters/2020/02/22/us/politics/22reuters-usa-election.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/02/22/us/politics/22reuters-usa-election.html?searchResultPosition=9
 
 **Nevada Caucuses Present New Test to Democrats After Chaotic Iowa Contest**\
 `Nevada Democrats will host hundreds of caucuses on Saturday, the third contest in the state-by-state presidential nominating process, almost three weeks after the Iowa caucuses caused mayhem when a technical meltdown delayed results. `\
-https://nytimes.com/reuters/2020/02/22/us/politics/22reuters-usa-election-nevada-explainer.html?searchResultPosition=9
-
-**Despite Horror Stories, California Cruise Passengers Won't Let Coronavirus Spoil Their Fun**\
-`With a white captain's hat perched on his head, Calvin Ballard seemed relaxed as he waited to depart on his first-ever cruise to Mexico, unfazed by the possibility of being trapped on a ship under siege by an outbreak of coronavirus.`\
-https://nytimes.com/reuters/2020/02/22/world/asia/22reuters-china-health-usa-cruise.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/22/us/politics/22reuters-usa-election-nevada-explainer.html?searchResultPosition=10
 
