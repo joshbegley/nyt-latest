@@ -2,8 +2,8 @@
 `In their boisterous presidential debate, several Democrats sold short the health care plans of rivals or glossed over aspects of their own record.`\
 https://nytimes.com/aponline/2020/02/22/us/politics/ap-us-fact-check-week.html?searchResultPosition=3
 
-**Rising Stocks Fuel Huge Profit for Buffett's Berkshire**\
-`Warren Buffett's Berkshire Hathaway Inc on Saturday posted a 23% decrease in quarterly operating profit, while soaring stock prices boosted net results and enabled the conglomerate to smash its old record for full-year earnings.`\
+**Buffett Defends Investments in Stocks, Which Fueled Record Berkshire Profit**\
+`Warren Buffett on Saturday defended Berkshire Hathaway Inc's decision to invest heavily in the stocks of companies such as Apple Inc, as the conglomerate struggled to find whole businesses to buy.`\
 https://nytimes.com/reuters/2020/02/22/business/22reuters-berkshire-results.html?searchResultPosition=4
 
 **Russian, Turkish Defense Ministers Discuss Stabilization in Idlib**\
