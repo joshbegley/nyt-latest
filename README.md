@@ -1,32 +1,32 @@
+**Syria’s Drawn-Out Agony**\
+`A cease-fire is needed as Assad, with Russian help, attacks the last desperate refugees.`\
+https://nytimes.com/2020/02/22/opinion/syria-turkey-refugees.html?searchResultPosition=3
+
+**Japanese Emperor, on Birthday, Expresses Coronavirus Concern, Looks Forward to Olympics**\
+`Japanese Emperor Naruhito said on Sunday that he was looking forward to the Tokyo Olympics in summer but that he was concerned about the spread of the new coronavirus, which has killed three in Japan and is slowly spreading across the country.`\
+https://nytimes.com/reuters/2020/02/22/arts/22reuters-japan-emperor-birthday.html?searchResultPosition=4
+
+**Syrian Bomb Kills 16th Turkish Troop in Idlib This Month**\
+`A Turkish soldier was killed in Syria's Idlib region in a bomb attack by Russian-backed government forces, the defense ministry said on Saturday, Turkey's 16th military death during a month in which talks between Ankara and Moscow have stalled.`\
+https://nytimes.com/reuters/2020/02/22/world/middleeast/22reuters-syria-security-turkey.html?searchResultPosition=5
+
+**Man Accused of Stabbing London Mosque Prayer Leader Appears in Court**\
+`A man accused of stabbing a prayer leader inside a north London mosque appeared in court on Saturday charged with causing grievous bodily harm and was remanded in custody to appear again next month.`\
+https://nytimes.com/reuters/2020/02/22/world/europe/22reuters-britain-security.html?searchResultPosition=6
+
 **Iran's 'Cup of Poison'? Hardline Win May Point to Eventual U.S. Talks**\
 `Anti-Western hardliners are set to sweep Iran's parliamentary elections and appear favorites to clinch the presidency next year, but an economic crisis could force them to engage with the United States despite their tightening grip on power.`\
-https://nytimes.com/reuters/2020/02/22/world/middleeast/22reuters-iran-election-usa-analysis.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/02/22/world/middleeast/22reuters-iran-election-usa-analysis.html?searchResultPosition=7
 
 **Autopsy Photos Shown in Trial of Man Charged With Killing 8**\
 `A deputy sheriff responding to a domestic dispute was killed by a shot to the left side of his head, a forensic pathologist testified Friday in the death-penalty trial of a man charged with killing the deputy and seven other people in Mississippi.`\
-https://nytimes.com/aponline/2020/02/22/us/ap-us-mississippi-shootings.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/02/22/us/ap-us-mississippi-shootings.html?searchResultPosition=8
 
 **‘All Hands on Deck’: Health Workers Race to Track Thousands of Americans Amid Coronavirus**\
 `Local health departments around the United States are scrambling to monitor thousands of people returning from travel in China and elsewhere. Among the tasks: daily calls, emails, texts.`\
-https://nytimes.com/2020/02/22/us/coronavirus-local-health-response.html?searchResultPosition=5
+https://nytimes.com/2020/02/22/us/coronavirus-local-health-response.html?searchResultPosition=9
 
 **18 Great Chili Recipes for Chilly Days**\
 `Pierre Franey’s turkey chili, a gumbo version from Sam Sifton, vegetarian options and more.`\
-https://nytimes.com/2020/02/22/dining/18-great-chili-recipes.html?searchResultPosition=6
-
-**Key Atlantic Coast Pipeline Permit Heads to Supreme Court**\
-`When plans for the 605-mile Atlantic Coast Pipeline were first unveiled in 2014, supporters of the natural gas project brimmed with enthusiasm and promises.`\
-https://nytimes.com/aponline/2020/02/22/us/ap-us-supreme-court-atlantic-coast-pipeline.html?searchResultPosition=7
-
-**Arkansas Candidate's Political Ties Targeted in Court Race**\
-`The race for a seat on the Arkansas Supreme Court is technically nonpartisan, but the close ties of one of the two main candidates to the state Republican Party — she's married to its leader — highlight just how partisan such campaigns have become, with outside conservative groups outspending the candidates themselves.`\
-https://nytimes.com/aponline/2020/02/22/us/politics/ap-us-supreme-court-arkansas.html?searchResultPosition=8
-
-**Japan's Emperor Turns 60, Offers Sympathy to Virus Patients**\
-`Japanese Emperor Naruhito, marking his 60th birthday, offered his sympathy to those affected by the new virus that emerged in China and said he hopes to see the outbreak contained soon. `\
-https://nytimes.com/aponline/2020/02/22/world/asia/ap-as-japan-emperors-birthday.html?searchResultPosition=9
-
-**How Do I Deal With My Obnoxious Neighbors?**\
-`When cantankerous neighbors make life miserable, it can veer into harassment. There are ways to defend yourself.`\
-https://nytimes.com/2020/02/22/realestate/how-do-i-deal-with-my-obnoxious-neighbors.html?searchResultPosition=10
+https://nytimes.com/2020/02/22/dining/18-great-chili-recipes.html?searchResultPosition=10
 
