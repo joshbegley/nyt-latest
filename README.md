@@ -1,18 +1,18 @@
+**Results: The Most Detailed Map of the Nevada Democratic Caucus**\
+`By Charlie Smart, Denise Lu, Matthew Bloch and Miles Watkins`\
+https://nytimes.com/interactive/2020/02/22/us/elections/results-nevada-caucus-precinct-map.html?searchResultPosition=2
+
 **Why Are Nevada Caucus Results Coming in So Slowly?**\
 `More than four hours after the caucuses closed we still don’t know the final results.`\
-https://nytimes.com/2020/02/22/us/politics/nevada-results-delay.html?searchResultPosition=2
+https://nytimes.com/2020/02/22/us/politics/nevada-results-delay.html?searchResultPosition=3
 
 **Dotson Leads Western Carolina Past The Citadel, 96-84**\
 `Carlos Dotson had 23 points and 10 rebounds as Western Carolina beat The Citadel 96-84 on Saturday night. `\
-https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-the-citadel-western-carolina.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-the-citadel-western-carolina.html?searchResultPosition=4
 
 **Carolina Beats Toronto 6-3 With Help of Emergency Goaltender**\
 `Emergency backup goalie Dave Ayres made eight saves in relief of Carolina's two injured netminders in the Hurricanes' 6-3 victory over the Toronto Maple Leafs on Saturday night.`\
-https://nytimes.com/aponline/2020/02/22/sports/hockey/bc-hkn-hurricanes-maple-leafs.html?searchResultPosition=4
-
-**Results: The Most Detailed Map of the Nevada Democratic Caucus**\
-`By Charlie Smart, Denise Lu, Matthew Bloch and Miles Watkins`\
-https://nytimes.com/interactive/2020/02/22/us/elections/results-nevada-caucus-precinct-map.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/02/22/sports/hockey/bc-hkn-hurricanes-maple-leafs.html?searchResultPosition=5
 
 **Inside The Wall Street Journal, Tensions Rise Over ‘Sick Man’ China Headline**\
 `After China announced the expulsion of three of the paper’s journalists, 53 reporters and editors at The Journal asked top executives to consider changing the headline and apologizing.`\
