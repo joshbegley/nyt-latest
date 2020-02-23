@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/02/23/us/ap-us-library-fire-1st-ld-writethru.h
 https://nytimes.com/aponline/2020/02/23/sports/basketball/bc-bkn-celtics-lakers.html?searchResultPosition=6
 
 **Models at a Fashion Show Were Told to Wear Oversize Lips and Ears**\
-`After accusations that runway accessories were racist, two administrators were suspended at the Fashion Institute of Technology.`\
+`After the Fashion Institute of Technology acknowledged that runway accessories were racist, two administrators were suspended.`\
 https://nytimes.com/2020/02/23/nyregion/fit-racist-fashion-show.html?searchResultPosition=7
 
 **Muhammad Scores 22, No. 25 Ohio State Tops No. 7 Maryland**\
