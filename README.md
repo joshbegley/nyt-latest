@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/02/23/business/ap-eu-spain-canary-islands-weat
 https://nytimes.com/reuters/2020/02/23/world/middleeast/23reuters-iraq-protests.html?searchResultPosition=4
 
 **Israeli Bulldozer Wrests Gaza Militant’s Body From Palestinians**\
-`A failed attempt to plant a bomb at the border cost a Palestinian fighter his life. But the seizure of his body drew harsh criticism within Israel.`\
+`A failed attempt to plant a bomb at the border cost a Palestinian militant his life. But the seizure of his body drew harsh criticism within Israel.`\
 https://nytimes.com/2020/02/23/world/middleeast/israel-gaza-bulldozer-body-palestinian.html?searchResultPosition=5
 
 **Trump Express Optimism for US Peace Deal With Taliban**\
