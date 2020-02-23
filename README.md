@@ -1,5 +1,5 @@
 **Bernie Sanders Isn’t the Left’s Trump**\
-`And this is no time for ego or self-indulgence`\
+`And this is no time for ego or self-indulgence.`\
 https://nytimes.com/2020/02/23/opinion/bernie-sanders-isnt-the-lefts-trump.html?searchResultPosition=2
 
 **Malaysia's Anwar Says Some Colleagues Trying to Bring Down Government**\
