@@ -1,36 +1,36 @@
+**Sanders' Big Nevada Win Narrows Rivals' Path to Democratic Nomination**\
+`Bernie Sanders' convincing win in the Nevada caucuses signaled his campaign is gathering strength and reaching voters who had previously eluded him, putting him on a path – for now – toward the Democratic presidential nomination.`\
+https://nytimes.com/reuters/2020/02/23/us/politics/23reuters-usa-election-nevada-analysis.html?searchResultPosition=2
+
+**Brazilian Transgender Dancer Shatters Carnival Parade Taboo**\
+`When dancer Camila Prins entered Sao Paulo's Carnival parade grounds, a costume of feathers clinging to her sinuous body, she fulfilled a dream of feminine beauty nearly three decades old. `\
+https://nytimes.com/aponline/2020/02/23/world/americas/ap-lt-brazil-transgender-carnival-godmother.html?searchResultPosition=3
+
+**UK PM Johnson's Brexit Team Seeks to Evade Irish Sea Checks on Goods: Sunday Times**\
+`British Prime Minister Boris Johnson's Brexit team has been ordered to come up with plans to "get around" the Northern Ireland protocol in the Brexit withdrawal agreement to evade checks on goods passing from Britain to Northern Ireland, the Sunday Times newspaper reported http://bit.ly/2HPETwS.`\
+https://nytimes.com/reuters/2020/02/23/world/europe/23reuters-britain-eu-irish-sea.html?searchResultPosition=4
+
+**Allison Ambrosio, Bryant Conkling**\
+`The couple met at Bluejacket, a brewery in Washington, D.C. in 2016.`\
+https://nytimes.com/2020/02/23/fashion/weddings/allison-ambrosio-bryant-conkling.html?searchResultPosition=5
+
+**Christiana Gavis, Jeffrey Hall**\
+`The couple met on a dating app in 2018.`\
+https://nytimes.com/2020/02/23/fashion/weddings/christiana-gavis-jeffrey-hall.html?searchResultPosition=6
+
+**Emily Boening, AJ Boyes**\
+`The couple met in 2016 in Geneva, Switzerland.`\
+https://nytimes.com/2020/02/23/fashion/weddings/emily-boening-aj-boyes.html?searchResultPosition=7
+
+**Chiara Campana, Cameron Kemal**\
+`They were engaged nine months after they met on the dating app Hinge.`\
+https://nytimes.com/2020/02/23/fashion/weddings/chiara-campana-cameron-kemal.html?searchResultPosition=8
+
+**Michele Leddy, John Middlebrooks**\
+`The couple met four years ago at a mutual friend’s birthday brunch in New York.`\
+https://nytimes.com/2020/02/23/fashion/weddings/michele-leddy-john-middlebrooks.html?searchResultPosition=9
+
 **Christian Louboutin’s Guided Tour**\
 `Mr. Louboutin would be delighted to take you on a personal tour of some of his favorite shoes and favorite works of art.`\
-https://nytimes.com/interactive/2020/02/23/style/christian-louboutin-red-bottom-shoes.html?searchResultPosition=2
-
-**Corrections: Feb. 23, 2020**\
-`Corrections that appeared in print on Sunday, Feb. 23, 2020.`\
-https://nytimes.com/2020/02/23/pageoneplus/corrections-feb-23-2020.html?searchResultPosition=3
-
-**Quotation of the Day: Life on an Island Being Devoured by the Rising Sea**\
-`Quotation of the Day for Sunday, February 23, 2020.`\
-https://nytimes.com/2020/02/23/todayspaper/quotation-of-the-day-life-on-an-island-being-devoured-by-the-rising-sea.html?searchResultPosition=4
-
-**Shirley Berry, Zach Masminster**\
-`The couple met in October 2011 at a bar in Manhattan.`\
-https://nytimes.com/2020/02/23/fashion/weddings/shirley-berry-zach-masminster.html?searchResultPosition=5
-
-**Kelsey Vasquez, Cameron Sorensen**\
-`The couple met in 2007 as students at Episcopal High School in Houston.`\
-https://nytimes.com/2020/02/23/fashion/weddings/kelsey-vasquez-cameron-sorensen.html?searchResultPosition=6
-
-**Analysis: Sanders' Path Has Echoes of Trump's 2016 Campaign**\
-`A burn-it-down candidate is topping a splintered field of more moderate contenders and setting the party’s establishment wing on edge. `\
-https://nytimes.com/aponline/2020/02/22/us/politics/ap-us-election-2020-analysis-.html?searchResultPosition=7
-
-**Radebaugh Scores 22, Northern Colorado Tops Idaho State**\
-`Jonah Radebaugh scored 22 points as Northern Colorado defeated Idaho State 85-72 on Saturday night.`\
-https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-n-colorado-idaho-st.html?searchResultPosition=8
-
-**Christian Louboutin Explains Himself**\
-`The designer on the importance of cultural collisions and childhood discoveries.`\
-https://nytimes.com/2020/02/22/style/christian-louboutin-shoes-exhibition-paris.html?searchResultPosition=9
-
-**No. 14 Oregon Rallies to Beat No. 24 Arizona 73-72 in OT**\
-`Payton Pritchard scored a career-high 38 points, Shakur Juiston added all of Oregon's points in overtime and the 14th-ranked Ducks rallied to beat No. 24 Arizona 73-72 on Saturday night.`\
-https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-t25-oregon-arizona.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/02/23/style/christian-louboutin-red-bottom-shoes.html?searchResultPosition=10
 
