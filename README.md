@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/02/23/world/middleeast/23reuters-israel-palesti
 `In a bid to attract patrons and recover lost items, many libraries have stopped charging fines for overdue books and other materials.`\
 https://nytimes.com/2020/02/23/us/no-library-fines.html?searchResultPosition=7
 
-**Earthquake in Iran Kills at Least 7 in Neighboring Turkey**\
+**Earthquake in Iran Kills at Least 9 in Neighboring Turkey**\
 `People remained trapped under rubble after the magnitude-5.7 earthquake struck in western Iran on Sunday, a Turkish official said.`\
 https://nytimes.com/2020/02/23/world/middleeast/earthquake-turkey-iran.html?searchResultPosition=8
 
