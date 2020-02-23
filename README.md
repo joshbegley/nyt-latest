@@ -22,7 +22,7 @@ https://nytimes.com/2020/02/23/briefing/nevada-caucuses-coronavirus-kobe-bryant-
 `Italy's number of cases of the new corona virus leaped upward, with dozens of new confirmed cases reported in Lombardy, the northern region which includes the country's financial capital, Milan. `\
 https://nytimes.com/aponline/2020/02/23/world/europe/ap-eu-virus-outbreak-europe.html?searchResultPosition=7
 
-**Sport-Events Affected by the Coronavirus Epidemic**\
+**Sports Events Affected by the Coronavirus Epidemic**\
 `The following is a list of international sports events affected by the outbreak of the new coronavirus.`\
 https://nytimes.com/reuters/2020/02/23/sports/skiing/23reuters-china-health-sport.html?searchResultPosition=8
 
