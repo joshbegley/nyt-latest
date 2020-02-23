@@ -1,36 +1,36 @@
+**Davidson Leads Tennessee Tech Over SE Missouri State 71-62**\
+`Keishawn Davidson had 14 points to lead five Tennessee Tech players in double figures as the Golden Eagles defeated Southeast Missouri State 71-62 on Saturday. `\
+https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-se-missouri-tennessee-tech.html?searchResultPosition=2
+
+**New Jersey Governor Reveals Likely Cancerous Kidney Tumor**\
+`New Jersey Gov. Phil Murphy has what is probably a cancerous tumor on his kidney and will undergo surgery next month to remove it, he said Saturday.`\
+https://nytimes.com/aponline/2020/02/22/us/ap-us-governor-new-jersey-tumor.html?searchResultPosition=3
+
+**Results: The Most Detailed Map of the Nevada Democratic Caucus**\
+`By Charlie Smart, Denise Lu, Matthew Bloch and Miles Watkins`\
+https://nytimes.com/interactive/2020/02/22/us/elections/results-nevada-caucus-precinct-map.html?searchResultPosition=4
+
+**Lumberjacks Top Incarnate Word 80-56, for 11th Straight Win**\
+`Cameron Johnson came off the bench to score 16 points, making 7 of 8 shots, to lead Stephen F. Austin to an 80-56 win over Incarnate Word on Saturday, the Lumberjacks' 11th straight victory.`\
+https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-stephen-f-austin-incarnate-word.html?searchResultPosition=5
+
+**Dawes' Career-Best 22 Leads Clemson Past BC 82-64**\
+`Al-Amir Dawes scored a career-high 22 points and hot-shooting Clemson coasted to an 82-64 victory over Boston College Saturday for its ninth consecutive win over the Eagles.`\
+https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-clemson-boston-college.html?searchResultPosition=6
+
+**Small Plane Crashes at Hawaii Airfield, Killing 2 Men**\
+`A single-engine plane crashed at an airport northwest of Honolulu on Saturday, killing two people, authorities said.`\
+https://nytimes.com/aponline/2020/02/22/us/ap-us-fatal-crash-dillingham-airfield-3rd-ld-writethru.html?searchResultPosition=7
+
 **Bernie Sanders Wins Nevada Caucuses, Strengthening His Primary Lead**\
 `His triumph will provide a burst of momentum that may make it difficult for the still-fractured moderate wing of the Democratic Party to slow his march to the nomination.`\
-https://nytimes.com/2020/02/22/us/politics/bernie-sanders-nevada-caucus.html?searchResultPosition=2
+https://nytimes.com/2020/02/22/us/politics/bernie-sanders-nevada-caucus.html?searchResultPosition=8
 
 **Phil Murphy, New Jersey Governor, Says He Has a Kidney Tumor**\
 `“The prognosis is very good and I’m profoundly grateful to my doctors for detecting the tumor early,” Mr. Murphy wrote on Twitter. He said he would undergo surgery early next month.`\
-https://nytimes.com/2020/02/22/nyregion/governor-phil-murphy-cancer.html?searchResultPosition=3
+https://nytimes.com/2020/02/22/nyregion/governor-phil-murphy-cancer.html?searchResultPosition=9
 
 **Liberty Blasts Stetson for Seventh-Straight Win**\
 `Caleb Homesley scored 22 points and Liberty extended its win streak to seven games beating Stetson 77-49 on Saturday.`\
-https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-stetson-liberty.html?searchResultPosition=4
-
-**Cross, Henry Lead Jacksonville State Past UT Martin 72-58**\
-`Jacara Cross had 20 points and Kayne Henry scored 18 as Jacksonville State topped UT Martin 72-58 on Saturday.`\
-https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-ut-martin-jacksonville-st.html?searchResultPosition=5
-
-**Terry Scores 20 to Carry Texas St. Over Georgia St. 86-76**\
-`Eric Terry matched his career high with 20 points as Texas State defeated Georgia State 86-76 on Saturday.`\
-https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-georgia-st-texas-st.html?searchResultPosition=6
-
-**Jones Scores 22 to Lift Radford Over USC Upstate 81-60**\
-`Carlik Jones had 22 points as Radford won its ninth straight game, rolling past South Carolina Upstate 81-60 on Saturday.`\
-https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-usc-upstate-radford.html?searchResultPosition=7
-
-**Live: Bernie Sanders Holds Rally in Texas**\
-`The Vermont senator speaks to supporters in Texas as Nevada caucus results are released.`\
-https://nytimes.com/video/us/elections/100000006993046/bernie-sanders-2020-nevada-caucus.html?searchResultPosition=8
-
-**Coronavirus Spreads as New Cases Double in South Korea**\
-`The spike raised fears that another Asian country was losing control over the rapid spread of the virus, making it more difficult to avert a global pandemic.`\
-https://nytimes.com/2020/02/22/world/asia/coronavirus-south-korea-iran.html?searchResultPosition=9
-
-**Hendricksen Leads North Florida Past Lipscomb 82-74**\
-`Carter Hendricksen had 22 points as North Florida defeated Lipscomb 82-74 on Saturday.`\
-https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-lipscomb-north-florida.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/22/sports/ncaabasketball/bc-bkc-stetson-liberty.html?searchResultPosition=10
 
