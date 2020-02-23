@@ -26,7 +26,7 @@ https://nytimes.com/aponline/2020/02/23/us/ap-us-library-fire-1st-ld-writethru.h
 `LeBron James scored 29 points and put the Lakers ahead on a fallaway jumper with 30 seconds to play, and Los Angeles split its season series with the Boston Celtics with a 114-112 victory Sunday.`\
 https://nytimes.com/aponline/2020/02/23/sports/basketball/bc-bkn-celtics-lakers.html?searchResultPosition=8
 
-**Models at an F.I.T. Show Were Told to Wear Oversize Lips and Ears**\
+**Models at F.I.T. Show Were Told to Wear Oversize Lips and Ears**\
 `After the Fashion Institute of Technology acknowledged that runway accessories were racist, two administrators were suspended.`\
 https://nytimes.com/2020/02/23/nyregion/fit-racist-fashion-show.html?searchResultPosition=9
 
