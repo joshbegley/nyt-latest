@@ -3,7 +3,7 @@
 https://nytimes.com/2020/02/23/world/europe/jean-vanier-abuse-larche.html?searchResultPosition=2
 
 **Philip Leder, Who Helped Decipher the Genetic Code, Dies at 85**\
-`Dr. Leder, who also discovered a genetic cause of cancer, said  he got his best scientific ideas while listening to classical music.`\
+`Dr. Leder, who also discovered a genetic cause of cancer, said he got his best scientific ideas while listening to classical music.`\
 https://nytimes.com/2020/02/23/science/philip-leder-dead.html?searchResultPosition=3
 
 **Two Wounded in Lebanon's Tripoli After Bomb Blast in Residential Building: Sources**\
