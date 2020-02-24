@@ -1,32 +1,32 @@
-**Pecora's Perseverance: Inside a Singular Wrestling Dynasty**\
-`In the fall of 1976, Pat Pecora packed what he could into a $150 car bought from a family friend and made the hour-long drive east from the Pittsburgh surburbs into the western Pennsylvania highlands.`\
-https://nytimes.com/aponline/2020/02/24/sports/ap-wre-pecoras-perseverance.html?searchResultPosition=3
+**‘Common Ground’ Illuminated Boston. Now It’s Coming to the Stage.**\
+`The new play, titled “Common Ground Revisited,” will be staged at the Huntington Theater Company early next year.`\
+https://nytimes.com/2020/02/24/theater/common-ground-huntington-boston.html?searchResultPosition=3
 
-**A Food Conference Heads to Pittsburgh**\
-`The International Association of Culinary Professionals will hold its annual gathering in Pennsylvania.`\
-https://nytimes.com/2020/02/24/dining/iacp-pittsburgh.html?searchResultPosition=4
+**New U.S. Rules for Airline Pilots Seek to Reduce Errors**\
+`The Federal Aviation Administration (FAA) on Monday issued new rules aimed at improving pilot performance and preventing errors in the cockpit that could lead to crashes. `\
+https://nytimes.com/reuters/2020/02/24/us/24reuters-usa-airlines-pilots.html?searchResultPosition=4
 
-**Intuit Buying Credit Karma in $7.1B Deal**\
-`Intuit announced Monday that it is buying consumer finance company Credit Karma in a $7.1 billion cash and stock deal. `\
-https://nytimes.com/aponline/2020/02/24/business/ap-us-intuit-credit-karma.html?searchResultPosition=5
+**Brazil: Violent Crime Up in State Hit by Police Strike**\
+`Violent crime has been rising in Brazil's northeastern state of Ceara amid a police strike in its seventh day, federal Justice Minister Sergio Moro said Monday.`\
+https://nytimes.com/aponline/2020/02/24/world/americas/ap-lt-brazil-police-strike.html?searchResultPosition=5
 
-**AP PHOTOS: A Corps of Women Covering the Weinstein Trial**\
-`Much of what the world has seen and heard about Harvey Weinstein's rape trial has come from a core group of women journalists — the regulars at the Manhattan courthouse who would be there reporting regardless of whether a celebrity was involved.`\
-https://nytimes.com/aponline/2020/02/24/us/ap-us-covering-weinstein-photo-gallery.html?searchResultPosition=6
+**How Major US Stock Indexes Fared Monday**\
+`The Dow Jones Industrial Average sank more than 1,000 points Monday as the spread of the new coronavirus threatened wider damage to the global economy. `\
+https://nytimes.com/aponline/2020/02/24/business/ap-financial-markets-box.html?searchResultPosition=6
 
-**More Chip in Levain’s Cookie**\
-`The bakery is introducing the “two chip” cookie for the opening of its NoHo store.`\
-https://nytimes.com/2020/02/24/dining/chocolate-chip-cookie-levain-bakery.html?searchResultPosition=7
+**The Coronavirus Stalls Milan, Italy’s Economic Engine**\
+`Milan is not a closed city, but it is a drastically slowed one, after a spike of cases in the region, raising anxiety about a broader slowdown.`\
+https://nytimes.com/2020/02/24/world/europe/24coronavirus-milan-italy.html?searchResultPosition=7
 
-**Turnout for 2020 Nevada Democratic Caucuses at 105,195: State Party**\
-`Turnout for the Nevada Democratic caucuses was 105,195, the Nevada State Democratic Party said on Monday, surpassing the 84,000 voters who participated in the 2016 Nevada caucuses.`\
-https://nytimes.com/reuters/2020/02/24/us/politics/24reuters-usa-election-nevada.html?searchResultPosition=8
+**JPMorgan Chase Plans to Unveil Climate Initiatives at Investor Day**\
+`JPMorgan Chase & Co executives plan to announce new climate-change initiatives on Tuesday, including restrictions on financing coal mining and Arctic drilling, as well as a $200 billion target to provide financing for sustainable projects. `\
+https://nytimes.com/reuters/2020/02/24/business/24reuters-jp-morgan-investor-day-climatechange.html?searchResultPosition=8
 
-**How to Be Good**\
-`What a therapist, scholar, monk, C.E.O. and others can teach us about bringing our best to everything we do, every day.`\
-https://nytimes.com/2020/02/24/smarter-living/how-to-be-good.html?searchResultPosition=9
+**Boeing Nominates Qualcomm's Mollenkopf to Its Board**\
+`Boeing Co on Monday nominated Steve Mollenkopf and Akhil Johri to its board and said two of its directors will retire.`\
+https://nytimes.com/reuters/2020/02/24/business/24reuters-boeing-board.html?searchResultPosition=9
 
-**A New Addition to the Cleaning Cohort**\
-`Veles, from a Staten Island entrepreneur, is a surface cleaner in a reusable aluminum can.`\
-https://nytimes.com/2020/02/24/dining/veles-cleaner.html?searchResultPosition=10
+**Tired of Delays, U.S. Labs Ask FDA to Develop Their Own Coronavirus Tests**\
+`U.S. state and local public health laboratories are seeking permission from the Food and Drug Administration to create their own tests for the new coronavirus as manufacturing and regulatory issues continue to delay access to testing capabilities.`\
+https://nytimes.com/reuters/2020/02/24/world/asia/24reuters-china-health-usa-testing.html?searchResultPosition=10
 
