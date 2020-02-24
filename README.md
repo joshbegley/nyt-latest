@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/02/24/business/24reuters-ubi-banca-m-a-intesa-sanpaolo-shareholders.html?searchResultPosition=2
 
 **Key Moments From Harvey Weinstein's Trial**\
-`Here are the key moments of the rape and sexual assault trial of former movie producer Harvey Weinstein, who was convicted on Monday of sexually assaulting former production assistant Mimi Haleyi and raping onetime aspiring actress Jessica Mann.`\
+`Here are key moments from the rape and sexual assault trial of former movie producer Harvey Weinstein, who was convicted on Monday of sexually assaulting former production assistant Mimi Haleyi and raping onetime aspiring actress Jessica Mann.`\
 https://nytimes.com/reuters/2020/02/24/arts/24reuters-people-harvey-weinstein-key-moments.html?searchResultPosition=3
 
 **Thomas Criticizes a Previous High Court Opinion -- His Own**\
