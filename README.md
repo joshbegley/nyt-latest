@@ -19,7 +19,7 @@ https://nytimes.com/2020/02/24/arts/television/jussie-smollett-hate-crime.html?s
 https://nytimes.com/2020/02/24/arts/dance/west-side-story-dance.html?searchResultPosition=6
 
 **Pentagon Adopts New Ethical Principles for Using AI in War**\
-`The Pentagon is adopting new ethical principles as it prepares to accelerate its use of artificial intelligence technology on the battlefield. `\
+`The Pentagon is adopting new ethical principles as it prepares to accelerate its use of artificial intelligence technology on the battlefield.`\
 https://nytimes.com/aponline/2020/02/24/business/bc-us-pentagon-artificial-intelligence.html?searchResultPosition=7
 
 **How to Buy Wine: Five Questions to Ask**\
