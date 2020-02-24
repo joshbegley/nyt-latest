@@ -1,4 +1,4 @@
-**NASA: Mathematician Portrayed in 'Hidden Figures' Has Died**\
+**Pioneering Black Mathematician Katherine Johnson Has Died**\
 `NASA says Katherine Johnson, a mathematician who worked on NASA’s early space missions and was portrayed in the film “Hidden Figures,” about pioneering black female aerospace workers, has died.`\
 https://nytimes.com/aponline/2020/02/24/us/ap-us-obit-katherine-johnson.html?searchResultPosition=2
 
