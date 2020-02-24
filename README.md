@@ -1,36 +1,36 @@
+**Shake It, Baby! NASA Robotic Lander Confirms Quakes on Mars**\
+`NASA's robotic InSight lander has for the first time established that Mars is seismically active, but do not call the shaking, rattling and rolling taking place on the Red Planet earthquakes. The proper term, fittingly, is marsquakes.    `\
+https://nytimes.com/reuters/2020/02/24/us/24reuters-space-mars.html?searchResultPosition=2
+
+**UK-EU Proximity Is Not a Reason to Restrict Trade: PM Johnson's Spokesman**\
+`Britain's proximity to the European Union does not mean there is a need for trade restrictions between the two, Prime Minister Boris Johnson's spokesman said on Monday.`\
+https://nytimes.com/reuters/2020/02/24/world/europe/24reuters-britain-eu-johnson.html?searchResultPosition=3
+
+**Increasing Numbers of Older Baby Boomers Are Using Marijuana: Study**\
+`In just four years, marijuana use grew by 75% among Americans  aged 65 and older, according to a new study, and researchers  expressed concern over a lack of information on the potential health implications.`\
+https://nytimes.com/reuters/2020/02/24/us/24reuters-marijuana-seniors.html?searchResultPosition=4
+
+**U.S. Needs Funding to Protect Americans From Coronavirus: White House**\
+`The United States needs funds to finance a response to the coronavirus, a White House spokesman said on Monday, without directly confirming reports the administration was preparing to ask Congress to approve an emergency spending package.`\
+https://nytimes.com/reuters/2020/02/24/business/24reuters-china-health-usa-funding.html?searchResultPosition=5
+
+**White House to Seek More Money to Combat Coronavirus: Reports**\
+`The White House is readying a request for emergency funding from U.S. lawmakers to help boost the nation's response to the fast-spreading new coronavirus, Politico and the Washington Post reported, citing unnamed individuals familiar with the planning.`\
+https://nytimes.com/reuters/2020/02/24/world/asia/24reuters-china-health-usa.html?searchResultPosition=6
+
+**'Too Early; To Speak of Pandemic, WHO Says Virus Can Be Contained**\
+`The World Health Organization (WHO) said on Monday that the novel coronavirus outbreak was not out of control globally nor causing large-scale deaths and it was "too early" to speak of a pandemic. `\
+https://nytimes.com/reuters/2020/02/24/world/asia/24reuters-china-health-who-spread.html?searchResultPosition=7
+
+**Senators Swing 2 Deals to Open NHL Trade Deadline Day**\
+`The Ottawa Senators wasted little time in kicking off the NHL’s trade deadline day by dealing forwards Vladislav Namestnikov and Jean-Gabriel Pageau.`\
+https://nytimes.com/aponline/2020/02/24/sports/hockey/ap-hkn-trade-deadline.html?searchResultPosition=8
+
 **Prosecutors Seek Pilot's Arrest Over Istanbul Airport Crash**\
 `Turkish prosecutors on Monday requested the arrest of the pilot of a plane that crashed at an Istanbul airport killing three passengers, on possible charges of "involuntary manslaughter and causing injury," Turkey's state-run news agency reported.`\
-https://nytimes.com/aponline/2020/02/24/world/europe/ap-eu-turkey-plane.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/02/24/world/europe/ap-eu-turkey-plane.html?searchResultPosition=9
 
 **Mars Lander Confirms Quakes, Even Aftershocks on Red Planet**\
 `NASA's newest Mars lander has confirmed that quakes and even aftershocks are regularly jolting the red planet. `\
-https://nytimes.com/aponline/2020/02/24/science/ap-us-sci-marsquakes-1st-ld-writethru.html?searchResultPosition=3
-
-**To Preserve Shi'ite Power in Iraq, Iran-Backed Groups Turn to Renegade Cleric**\
-`When the grip of Iraq's Tehran-backed Shi'ite Muslim parties and militias threatened to slip following the killing of Iranian  general Qassem Soleimani, they turned to an unpredictable rival.`\
-https://nytimes.com/reuters/2020/02/24/world/middleeast/24reuters-iraq-politics-sadr.html?searchResultPosition=4
-
-**Watch Live: Attendees Arrive for Kobe Bryant Memorial**\
-`A public memorial at Staples Center in Los Angeles is expected to host some 20,000 people, including celebrities, athletes and fans.`\
-https://nytimes.com/video/us/100000006996168/kobe-bryant-memorial.html?searchResultPosition=5
-
-**Colorado State K Camper Arrested for Suspicion of DUI**\
-`Colorado State kicker Cayden Camper was arrested for suspicion of drunken driving or driving while impaired by alcohol or drugs.`\
-https://nytimes.com/reuters/2020/02/24/sports/football/24reuters-football-ncaa-cos-camper-arrest.html?searchResultPosition=6
-
-**Austria Says It Will Stop Suspected Coronavirus Cases at Its Borders**\
-`Austria said on Monday it would stop suspected coronavirus cases from crossing its border, a day after it held up a train from Italy for four hours to wait for test results on two passengers.`\
-https://nytimes.com/reuters/2020/02/24/world/europe/24reuters-china-health-austria.html?searchResultPosition=7
-
-**Spain's Banks Brace for Usury Ruling on 'Snowball' Credit Cards**\
-`Spain's banks are on edge for an upcoming Supreme Court ruling that will decide at what point the interest charged on credit card borrowing is so high it could be classed as "usury". `\
-https://nytimes.com/reuters/2020/02/24/world/europe/24reuters-spain-banks-credit.html?searchResultPosition=8
-
-**Coronavirus Set to Deal Heavy Blow to Italy's Ailing Economy**\
-`Italy's economy, which was already contracting at the end of last year, looks sure to be thrown into yet another recession by a sudden outbreak of coronavirus that has rocked the country.`\
-https://nytimes.com/reuters/2020/02/24/world/asia/24reuters-china-health-italy-economy.html?searchResultPosition=9
-
-**Man Accused in Cruise Ship Death to Face Puerto Rico Judge**\
-`An Indiana man accused of dropping his granddaughter from an 11th floor window of a cruise ship docked in Puerto Rico last year declined his right to a jury trial on Monday.`\
-https://nytimes.com/aponline/2020/02/24/world/americas/ap-cb-puerto-rico-cruise-ship-death.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/24/science/ap-us-sci-marsquakes-1st-ld-writethru.html?searchResultPosition=10
 
