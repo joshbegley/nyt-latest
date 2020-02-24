@@ -22,8 +22,8 @@ https://nytimes.com/2020/02/24/nyregion/harvey-weinstein-case-sexual-assault.htm
 `Former European Council president Donald Tusk said Monday he is backing the main opposition candidate in Poland's May presidential election. `\
 https://nytimes.com/aponline/2020/02/24/world/europe/ap-eu-poland-politics.html?searchResultPosition=7
 
-**Harvey Weinstein Is Found Guilty on Two Counts**\
-`Mr. Weinstein  .`\
+**Harvey Weinstein Is Found Guilty on Two Counts: Live Updates**\
+`Mr. Weinstein is guilty of criminal sexual act in the first degree and rape in the third degree.`\
 https://nytimes.com/2020/02/24/nyregion/harvey-weinstein-verdict.html?searchResultPosition=8
 
 **Ex-Kansas Gov. Colyer Endorses Rep. Marshall in Senate Race**\
