@@ -1,32 +1,32 @@
-**Supreme Court Seems Ready to Back Pipeline Across Appalachian Trail**\
-`Environmental groups seek to block the $8 billion pipeline, which would deliver natural gas from West Virginia to North Carolina, crossing the famed hiking trail.`\
-https://nytimes.com/2020/02/24/us/supreme-court-appalachian-trail.html?searchResultPosition=3
+**Investors Eye Bleach, Food and Tissues as Virus Fears Intensify**\
+`While Wall Street's broader indexes fell sharply on Monday on concerns about coronavirus, investors turned to some consumer companies as they bet on stock-piling of products such as disinfectants and shelf-stable foods. `\
+https://nytimes.com/reuters/2020/02/24/business/24reuters-usa-stocks-virus.html?searchResultPosition=3
 
-**Woman, 84, Sinks Putt Across Basketball Court to Win New Car**\
-`All that 84-year-old Mary Ann Wakfield needed to do to win a new car was sink a putt across the entire length of the court at the University of Mississippi's basketball stadium.`\
-https://nytimes.com/aponline/2020/02/24/us/ap-us-odd-long-putt-wins-car.html?searchResultPosition=4
+**Key Facts About Fencing at the Tokyo 2020 Games**\
+`The 2020 Tokyo Olympics includes 33 sports. Fencing is one of the original sports included in the first modern Games.`\
+https://nytimes.com/reuters/2020/02/24/sports/olympics/24reuters-olympics-2020-fencing-factbox.html?searchResultPosition=4
 
-**Chemical Firm: US Wrong to Deny Visa for Software Developer**\
-`A U.S.-based chemical company is fighting to obtain a visa for a Ukrainian software developer who has spent years working on a complex computer system that the company considers crucial to its ability to do business.`\
-https://nytimes.com/aponline/2020/02/24/business/ap-us-software-developer-immigration.html?searchResultPosition=5
+**Key Facts About Shooting at the Tokyo 2020 Games**\
+`The 2020 Tokyo Olympics includes 33 sports. Shooting is one of the original sports included in the first modern Games.`\
+https://nytimes.com/reuters/2020/02/24/sports/olympics/24reuters-olympics-2020-shooting-factbox.html?searchResultPosition=5
 
-**John Franzese, Mafioso Who Consorted With Celebrities, Dies at 103**\
-`Prosecutors said Sonny Franzese, a No. 2 in the Colombo organization, was a fearsome killer and an enduring mob “earner,” remaining active into his 90s.`\
-https://nytimes.com/2020/02/24/nyregion/john-franzese-dead.html?searchResultPosition=6
+**Key Facts About Wrestling at the Tokyo 2020 Games**\
+`The 2020 Tokyo Olympics includes 33 sports. Wrestling is one of the original sports included in the first modern Games.`\
+https://nytimes.com/reuters/2020/02/24/sports/olympics/24reuters-olympics-2020-wrestling-factbox.html?searchResultPosition=6
 
-**Canada Oil-Sands Plan Collapses Over Politics and Economics**\
-`A developer has abandoned a nine-year effort to extend mining, sparing Justin Trudeau a choice between energy interests and environmental concerns.`\
-https://nytimes.com/2020/02/24/business/energy-environment/frontier-oil-sands-canada.html?searchResultPosition=7
+**Trump Administration to Step Up Pressure Campaign on Venezuelan Oil: U.S. Envoy**\
+`U.S. President Donald Trump has decided to step up a sanctions campaign on Venezuela's oil sector and will be more aggressive in punishing people and companies that violate them, the top U.S. envoy to the Latin American country said on Monday.`\
+https://nytimes.com/reuters/2020/02/24/world/americas/24reuters-usa-sanctions-venezuela.html?searchResultPosition=7
 
-**This Tiny Creature Seemed Extinct. DNA Technology Helped Prove It Wasn’t.**\
-`The rediscovery of a fly species in Wales hints at environmental DNA sampling’s potential to change endangered species protection.`\
-https://nytimes.com/2020/02/24/science/environmental-dna-sampling.html?searchResultPosition=8
+**Victims Turn to Media to Expose Sex Abuse by College Doctors**\
+`Robert Julian Stone was tired of waiting, afraid that complaints of sexual abuse at the hands of a former University of Michigan doctor would be covered up.`\
+https://nytimes.com/aponline/2020/02/24/sports/ap-us-university-of-michigan-doctor-media.html?searchResultPosition=8
 
-**This Is Not an Article About Lemony Salmon**\
-`Alison Roman doesn’t want to bore you with this dish’s origin story. This week, she just wants to give you the recipe.`\
-https://nytimes.com/2020/02/24/dining/lemony-salmon-recipe.html?searchResultPosition=9
+**‘Society Is Worried’: Coronavirus Deaths Rise in Iran**\
+`Residents in Tehran are dealing with the possibility that a coronavirus outbreak will spread across Iran.`\
+https://nytimes.com/video/world/middleeast/100000006996117/society-is-worried-coronavirus-deaths-rise-in-iran.html?searchResultPosition=9
 
-**French Regulator Says Pesticides a Priority in Curbing New Plant Diseases**\
-`France needs to retain pesticides to combat new plant diseases spread by international trade and climate change even as it tries to phase out some crop chemicals like glyphosate, the country's health and safety agency said.`\
-https://nytimes.com/reuters/2020/02/24/world/europe/24reuters-france-agriculture-pesticides.html?searchResultPosition=10
+**Renault Says Reserves the Right to Seek Damages Depending on Ghosn Probe**\
+`Renault said on Monday it had filed a civil-party petition after French prosecutors last week opened a formal investigation into alleged misappropriation of funds at the French carmaker.`\
+https://nytimes.com/reuters/2020/02/24/business/24reuters-renault-ghosn.html?searchResultPosition=10
 
