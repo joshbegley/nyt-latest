@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/02/23/business/ap-cn-canada-oil-sands-mine-.ht
 https://nytimes.com/reuters/2020/02/23/world/asia/23reuters-china-health-nhc-toll.html?searchResultPosition=5
 
 **Stanford Cruises Past Washington State 75-57**\
-`Oscar da Silva scored 19 points and Daejon Davis added 17 to lead Stanford to a 75-57 victory over Washington State Sunday night, keeping the Cardinals' hopes of an at large big for the NCAA tournament alive. `\
+`Oscar da Silva is a tough matchup for anyone. He can score inside and outside and that versatility was on display Sunday night in Stanford's 75-57 victory over Washington State. `\
 https://nytimes.com/aponline/2020/02/23/sports/ncaabasketball/bc-bkc-stanford-washington-st.html?searchResultPosition=6
 
 **Blues Win Fourth Straight, Dominate Wild 4-1**\
