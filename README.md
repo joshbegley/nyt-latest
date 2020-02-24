@@ -1,5 +1,5 @@
-**Seven Wounded in Shooting at Flea Market in Houston, Texas**\
-`A gunman opened fire at a flea market in Houston, Texas on Sunday, wounding seven people, and a suspect was taken into custody at the scene, the sheriff said. `\
+**Seven Wounded in Shooting at Flea Market Outside Houston, Texas**\
+`A gunman opened fire at a Houston, Texas-area flea market on Sunday, wounding seven people, and a suspect was taken into custody at the scene, the sheriff said. `\
 https://nytimes.com/reuters/2020/02/23/us/23reuters-texas-shooting.html?searchResultPosition=2
 
 **Teck Pulls Application for C$20.6 Billion Frontier Project, to Take Writedown**\
