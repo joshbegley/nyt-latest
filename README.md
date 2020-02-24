@@ -16,7 +16,7 @@ https://nytimes.com/aponline/2020/02/24/us/ap-us-mardi-gras-parade-deaths-3rd-ld
 
 **Sanders Says He’ll Attract a Wave of New Voters. It Hasn’t Happened.**\
 `Bernie Sanders has so far prevailed by expanding his appeal among traditional Democratic voters, not by driving record turnout.`\
-https://nytimes.com/2020/02/24/us/politics/bernie-sanders-democrats-turnout.html?searchResultPosition=7
+https://nytimes.com/2020/02/24/us/politics/bernie-sanders-democratic-voters.html?searchResultPosition=7
 
 **What Is the Power of Celibacy?**\
 `For both traditionalists and modernizers in the Roman Catholic Church, everything seems tied up with this priestly requirement.`\
