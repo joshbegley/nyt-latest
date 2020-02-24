@@ -30,7 +30,7 @@ https://nytimes.com/reuters/2020/02/24/world/americas/24reuters-chile-protests.h
 `Lawmakers based in eastern Libya controlled by Khalifa Haftar will suspend their participation in political peace talks with counterparts allied to the internationally recognized administration, a statement said Monday.`\
 https://nytimes.com/reuters/2020/02/24/world/middleeast/24reuters-libya-security-talks.html?searchResultPosition=9
 
-**Global Markets Plunge as Virus Cases Spread Beyond Asia**\
-`Stocks are opening sharply lower on Wall Street, pushing the Dow Jones Industrial Average down more than 700 points, as virus cases spread beyond China, threatening to disrupt the global economy.`\
+**Global Markets Fall Sharply as Virus Cases Spread Past Asia**\
+`U.S. stocks fell sharply in early trading Monday, following a broad sell-off in overseas markets, as a surge in virus cases and a worrisome spread of the disease outside the epicenter in China sent investors running for safety.`\
 https://nytimes.com/aponline/2020/02/24/business/bc-financial-markets-1st-ld-writethru.html?searchResultPosition=10
 
