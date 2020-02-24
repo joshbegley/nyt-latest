@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/02/24/us/politics/ap-us-trump-india-fact-check
 https://nytimes.com/2020/02/24/opinion/letters/democrats-bernie-sanders-nevada.html?searchResultPosition=6
 
 **Central Park Races to Save a Rare Duck Gagging on a Piece of Plastic**\
-`City officials are trying to rescue a bird with a discarded plastic ring stuck in its beak.`\
+`The bird is unable to eat because of a discarded plastic ring stuck in its beak.`\
 https://nytimes.com/2020/02/24/nyregion/central-parks-duck-plastic.html?searchResultPosition=7
 
 **7 Essential Books About Pandemics**\
