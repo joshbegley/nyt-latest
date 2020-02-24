@@ -1,32 +1,32 @@
+**7 Essential Books About Pandemics**\
+`As the world grapples with the coronavirus outbreak, these works remind us that humans have faced deadly plagues for millenniums.`\
+https://nytimes.com/2020/02/24/books/pandemic-books-coronavirus.html?searchResultPosition=3
+
+**German Far-Right Party Laments Isolation by Rivals, Media**\
+`The far-right Alternative for Germany called Monday for rivals to scale back their criticism of the party, saying the blackballing it is being subjected to could harm democracy in the country.`\
+https://nytimes.com/aponline/2020/02/24/world/europe/ap-eu-germany-far-right.html?searchResultPosition=4
+
+**Arizona GM: D-Backs Unaware of MadBum's Rodeo Career**\
+`The Arizona Diamondbacks knew Madison Bumgarner lives on a ranch but were unaware of his recently-discovered side career as a rodeo participant.`\
+https://nytimes.com/aponline/2020/02/24/sports/baseball/ap-bbn-diamondbacks-bumgarners-rodeo.html?searchResultPosition=5
+
+**Grand Teton Goat Shoot Suspended After Stern Governor Letter**\
+`Grand Teton National Park officials have suspended efforts to shoot mountain goats from a helicopter in the wake of criticism from Wyoming's governor in the hours after the program began.`\
+https://nytimes.com/aponline/2020/02/24/us/ap-us-grand-teton-goats.html?searchResultPosition=6
+
+**Appeal of Lee Malvo, the Sniper Who Terrorized D.C., May Be Dismissed**\
+`Virginia prosecutors and lawyers for Mr. Malvo asked the Supreme Court to drop his appeal in light of a new state law giving juvenile offenders the right to seek parole.`\
+https://nytimes.com/2020/02/24/us/politics/lee-malvo-sniper-supreme-court.html?searchResultPosition=7
+
 **Former U of Texas Tennis Coach Gets 6 Months in College Scam**\
 `The former men's tennis coach at the University of Texas at Austin was sentenced Monday to six months in prison for taking a $100,000 bribe as part of a sweeping college admissions scam. `\
-https://nytimes.com/aponline/2020/02/24/sports/ap-us-college-admissions-bribery.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/02/24/sports/ap-us-college-admissions-bribery.html?searchResultPosition=8
 
 **FBI Official: Russia Wants to See Us 'Tear Ourselves Apart'**\
 `Russia wants to watch Americans “tear ourselves apart" as the United States heads toward elections, an FBI official warned Monday. `\
-https://nytimes.com/aponline/2020/02/24/us/politics/ap-us-election-security.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/02/24/us/politics/ap-us-election-security.html?searchResultPosition=9
 
 **Virginia Lawmakers Pass Bill Ending Lee-Jackson Holiday**\
 `Virginia lawmakers passed a bill Monday that scraps the state’s Lee-Jackson holiday celebrating two Confederate generals and replaces it with one on Election Day.`\
-https://nytimes.com/aponline/2020/02/24/us/ap-us-lee-jackson-holiday.html?searchResultPosition=5
-
-**Agents' Shootings Escape Scrutiny, Use-Of-Force Reforms**\
-`First came the crash, reverberating off the walls of the retirement community like a “mini atom bomb,” then a barrage of gunfire shattered the desert morning calm.`\
-https://nytimes.com/aponline/2020/02/24/us/ap-us-homeland-security-shootings.html?searchResultPosition=6
-
-**Foreign Leaders Restrained in Gifts to Trumps in 2018**\
-`Foreign leaders appear to have scaled back their generosity when it comes to gifts given to President Donald Trump, his family and top officials.`\
-https://nytimes.com/aponline/2020/02/24/us/politics/ap-us-united-states-diplomatic-gifts.html?searchResultPosition=7
-
-**Heavy Rains, Flooding Pummel Cairo and Parts of Egypt**\
-`Heavy rains pummeled the Egyptian capital of Cairo and other parts of the country Monday, causing massive traffic jams and flooding on many key roads.`\
-https://nytimes.com/aponline/2020/02/24/world/middleeast/ap-ml-egypt-weather.html?searchResultPosition=8
-
-**Judge to Hear Plan to Move Virus Patients to California City**\
-`A federal judge will hold a hearing Monday over a proposal to house former cruise ship passengers infected with a new virus at a Southern California complex that used to be for people with intellectual and developmental disabilities.`\
-https://nytimes.com/aponline/2020/02/24/us/ap-us-virus-outbreak-california-city.html?searchResultPosition=9
-
-**Your Tuesday Briefing**\
-`Coronavirus, Harvey Weinstein verdict, Kanye West: Here’s what you need to know.`\
-https://nytimes.com/2020/02/24/briefing/coronavirus-south-korea-harvey-weinstein.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/24/us/ap-us-lee-jackson-holiday.html?searchResultPosition=10
 
