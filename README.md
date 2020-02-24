@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/02/23/sports/basketball/bc-bkn-timberwolves-nu
 https://nytimes.com/aponline/2020/02/23/sports/ncaabasketball/bc-bkc-usc-utah.html?searchResultPosition=6
 
 **S. Korea Reports 161 New Virus Cases, Bringing Total to 763**\
-`South Korea has reported 161 new cases of the new virus that has spread rapidly in the region surrounding its southwest city of Daegu, bringing its total number of cases to 763. `\
+`South Korea on Monday reported 161 more cases of a new virus that has spread rapidly around a southwestern city, bringing the nation's total to 763 cases a day after the president called for “unprecedented, powerful” steps to combat the outbreak. `\
 https://nytimes.com/aponline/2020/02/23/world/asia/ap-as-virus-outbreak-.html?searchResultPosition=7
 
 **Don’t Doubt Bernie**\
