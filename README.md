@@ -1,36 +1,36 @@
-**In Mumbai, Microsoft Boss Nadella Trumpets Cloud Tie-Up With India's Reliance**\
-`Microsoft Corp Chief Executive Officer Satya Nadella  touted the new India cloud partnership with Reliance Industries as he shared center-stage with its chairman Mukesh Ambani at an event in India's financial capital on Monday.`\
-https://nytimes.com/reuters/2020/02/24/technology/24reuters-microsoft-india.html?searchResultPosition=2
+**Cambodian PM Offers Tax Breaks to Factories Hit by Coronavirus, EU Tariff Losses**\
+`Cambodian Prime Minister Hun Sen promised on Monday to give tax breaks to garment factories hit by supply chain disruptions from the coronavirus epidemic and higher tariffs after the European Union (EU) withdrew trade preferences over human rights.`\
+https://nytimes.com/reuters/2020/02/24/world/asia/24reuters-china-health-cambodia-eu.html?searchResultPosition=2
 
-**Exclusive: U.S. Sees No Material Impact From Virus on U.S.-China Trade Deal-For Now**\
-`U.S. Treasury Secretary Steven Mnuchin told Reuters he does not expect the coronavirus outbreak to have a material impact on the Phase 1 U.S.-China trade deal, although that could change as more data becomes available in coming weeks.`\
-https://nytimes.com/reuters/2020/02/24/business/24reuters-g20-saudi-usa-mnuchin-exclusive.html?searchResultPosition=3
+**Libyan Premier Denounces Haftar as 'War Criminal' at U.N.**\
+`Libyan Prime Minister Fayez al-Sarraj on Monday denounced the shelling of civilian areas and airports in his country, labeling renegade military commander Khalifa Haftar a "war criminal" in a speech to the U.N. Human Rights Council.`\
+https://nytimes.com/reuters/2020/02/24/world/europe/24reuters-libya-security-sarraj.html?searchResultPosition=3
 
-**Factbox: Who Is WikiLeaks' Founder Julian Assange?**\
-`A London court begins hearings on Monday to decide whether  WikiLeaks founder Julian Assange should be extradited to the United States where he is wanted over charges that he conspired to hack U.S. government computers and violated an espionage law.`\
-https://nytimes.com/reuters/2020/02/24/world/europe/24reuters-britain-assange-facts.html?searchResultPosition=4
+**Survey Finds Olympic, Elite Athletes Struggling Financially**\
+`The comments could easily have come from any middle-class town where workers have trouble making ends meet: “No pension plan, no chance of structural income over a longer period of time.`\
+https://nytimes.com/aponline/2020/02/24/sports/olympics/ap-oly-athletes-survey.html?searchResultPosition=4
 
-**Japan Plays Down Criticism of Coronavirus Cruise Ship Handling**\
-`A panel of Japanese medical experts on Monday sought to play down deepening criticism of the government's handling of a coronavirus outbreak on a cruise ship while acknowledging mistakes were made.`\
-https://nytimes.com/reuters/2020/02/24/world/asia/24reuters-china-health-japan-experts.html?searchResultPosition=5
+**On Russia-China Border, Life and Commerce Frozen by Coronavirus**\
+`No one in a Russian city 600 yards from China has been infected as yet, but businesses are shriveling and China’s image as a benign force is being eclipsed by a more anxious vision.`\
+https://nytimes.com/2020/02/24/world/europe/coronavirus-russia-china-commerce.html?searchResultPosition=5
 
-**Don’t Just Live Your Life, Optimize It**\
-`This six minute video could add years to your life.`\
-https://nytimes.com/video/opinion/100000006985188/optimize-your-life.html?searchResultPosition=6
+**At Supreme Court, a Case on Abuse of the No-Fly List**\
+`Three Muslim men say F.B.I. agents tried to use the list to coerce them into becoming informants, in violation of a federal law protecting religious freedom.`\
+https://nytimes.com/2020/02/24/us/supreme-court-case-no-fly-list.html?searchResultPosition=6
 
-**Factbox: Airlines Suspend China Flights Due to Coronavirus Outbreak**\
-`Airlines have been suspending flights or modifying service in response to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/02/24/world/24reuters-china-health-airlines-factbox.html?searchResultPosition=7
+**From Bonn to Vienna, in Search of Beethoven, the Man**\
+`It’s the composer’s 250th birthday and a pilgrimage shines new light on his art and life.`\
+https://nytimes.com/2020/02/24/arts/vienna-bonn-beethoven-250th-anniversary.html?searchResultPosition=7
 
-**Violence Breaks Out in India's Capital Over New Citizenship Law Ahead of Trump Visit**\
-`Indian police used tear gas and smoke grenades to disperse a crowd of thousands of protestors in India's capital of New Delhi on Monday as violence broke out over a new citizenship law just ahead of U.S. President Donald Trump's maiden visit to the city.`\
-https://nytimes.com/reuters/2020/02/24/world/asia/24reuters-india-citizenship-protests.html?searchResultPosition=8
+**How Do You Decide What News to Believe, What to Question and What to Dismiss?**\
+`Do you have confidence in your ability to distinguish between fact and opinion? What about between reliable journalism and fake news? Do you think of yourself as a savvy news consumer?`\
+https://nytimes.com/2020/02/24/learning/how-do-you-decide-what-news-to-believe-what-to-question-and-what-to-dismiss.html?searchResultPosition=8
 
-**Mastercard to Add 1,500 Technology Jobs in Ireland**\
-`Mastercard Inc plans to hire 1,500 more staff at its global technology hub in Dublin over the next three to five years, more than trebling the size of its workforce in Ireland's first major multinational jobs announcement of 2020.`\
-https://nytimes.com/reuters/2020/02/24/business/24reuters-ireland-jobs-mastercard.html?searchResultPosition=9
+**Shopping for Sofas**\
+`A sofa is a big investment — and just plain big — so choose carefully. Here’s what to consider when you’re buying one.`\
+https://nytimes.com/2020/02/24/realestate/shopping-for-sofas.html?searchResultPosition=9
 
-**Twelve Dead and Up to 61 Infected With Coronavirus in Iran-Deputy Health Minister**\
-`Twelve people have died and up to 61 have been infected with the new coronavirus, Iran's Deputy Health Minister Iraj Harirchi said during a news conference on state TV on Monday.`\
-https://nytimes.com/reuters/2020/02/24/world/middleeast/24reuters-china-health-iran.html?searchResultPosition=10
+**As Trump Barricades the Border, Legal Immigration Is Beginning to Plunge**\
+`President Trump’s border wall is beginning to rise, but a thick curtain of policy changes is more responsible for squelching the flow of immigrants into the country.`\
+https://nytimes.com/2020/02/24/us/politics/trump-border-legal-immigration.html?searchResultPosition=10
 
