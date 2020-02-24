@@ -1,32 +1,32 @@
+**2 Teens Seriously Wounded in Stabbing at Hawaii High School**\
+`Two 16-year-olds were stabbed and seriously wounded at a Hawaii high school Monday.`\
+https://nytimes.com/aponline/2020/02/24/us/ap-us-stabbing-high-school-2nd-ld-writethru.html?searchResultPosition=3
+
+**U.S. Safety Board to Issue New Recommendations in Probe of Fatal Tesla Autopilot Crash**\
+`The National Transportation Safety Board will hold a public hearing on Tuesday to establish the probable cause of a fatal March 2018 Tesla Autopilot crash in California and will issue a series of safety recommendations, two people briefed on the matter said on Monday.`\
+https://nytimes.com/reuters/2020/02/24/business/24reuters-tesla-crash.html?searchResultPosition=4
+
+**State Documents: Top DHS Manager Knew of Arousal Study Plans**\
+`A recently retired official overseeing Iowa’s mental health and disability services programs knew almost two years ago of plans to perform sexual experiments at a state-run institution, document released Monday indicate.`\
+https://nytimes.com/aponline/2020/02/24/us/ap-us-arousal-study-iowa.html?searchResultPosition=5
+
+**Bank of Korea Seen Cutting Rates to Record-Low to Battle Coronavirus: Reuters Poll**\
+`South Korea's central bank is expected to lower its policy rate to a record-low on Thursday, the third cut in the current easing cycle, a Reuters poll showed, to offset the impact on Asia's fourth-largest economy from the fast-spreading coronavirus.`\
+https://nytimes.com/reuters/2020/02/24/world/asia/24reuters-southkorea-economy-rates.html?searchResultPosition=6
+
+**'Mission: Impossible' Italy Movie Shoot Delayed by Coronavirus**\
+`A planned three-week shoot in Italy for Tom Cruise's new "Mission: Impossible" film has been postponed due to the coronavirus outbreak, movie studio Paramount Pictures said on Monday.`\
+https://nytimes.com/reuters/2020/02/24/arts/24reuters-china-health-mission-impossible.html?searchResultPosition=7
+
 **Kobe and Gianna Bryant Mourned by Los Angeles in Star-Filled Tribute**\
 `Nearly a month after the Lakers star and his daughter died in a helicopter crash, thousands filled Staples Center to pay tribute.`\
-https://nytimes.com/2020/02/24/sports/kobe-gianna-bryant-memorial.html?searchResultPosition=3
+https://nytimes.com/2020/02/24/sports/kobe-gianna-bryant-memorial.html?searchResultPosition=8
 
 **Republican Cynicism May Win Trump Re-election**\
 `Fiscal hypocrisy is his biggest advantage.`\
-https://nytimes.com/2020/02/24/opinion/trump-2020-debt.html?searchResultPosition=4
+https://nytimes.com/2020/02/24/opinion/trump-2020-debt.html?searchResultPosition=9
 
 **For That PB and J, a Pecan Butter**\
 `Sunday Provisions has created a new line of earthy, flavored nut butters made with pecans.`\
-https://nytimes.com/2020/02/24/dining/pecan-butter.html?searchResultPosition=5
-
-**Bill Would Require an Anti-Government Critic in Surveillance Cases**\
-`A draft bill to reauthorize expiring counterintelligence powers would make several broader changes, after a damning inspector general report about a wiretap in the Trump-Russia inquiry.`\
-https://nytimes.com/2020/02/24/us/bill-surveillance-carter-page-fisa.html?searchResultPosition=6
-
-**Citi, Credit Suisse Among Banks Curbing Italy Trips on Coronavirus Fears: Sources**\
-`Investment banks including Citigroup Inc, Credit Suisse and Nomura Holdings Inc have curbed trips to Italy on fears that the coronavirus outbreak across the north of the country could quickly spread across Europe, four sources told Reuters.`\
-https://nytimes.com/reuters/2020/02/24/business/24reuters-china-health-banks.html?searchResultPosition=7
-
-**Matthews Comment Deepens Sanders Rift With MSNBC**\
-`Chris Matthews' comparison of Bernie Sanders' victory in Nevada to the Nazi takeover of France has deepened discontent that the Democrat and his supporters feel toward MSNBC, the network that's usually friendly territory for liberals.`\
-https://nytimes.com/aponline/2020/02/24/us/ap-us-media-msnbc-sanders.html?searchResultPosition=8
-
-**Europe's Top Firms Must Double Low-Carbon Investment: Study**\
-`Europe's top companies need to more than double their current level of spending on low-carbon projects to meet the European Commission's flagship goal of 'climate neutrality' by 2050, according to a report released on Tuesday.`\
-https://nytimes.com/reuters/2020/02/24/business/24reuters-climate-change-europe-carbon.html?searchResultPosition=9
-
-**Italian Hikers Rescued in Alaska After Visiting Infamous Bus**\
-`An Italian man suffering from frostbite and four other tourists were rescued in the Alaska wilderness after visiting an abandoned bus that’s become a lure for adventurers since it was featured in the “Into the Wild” book and movie. `\
-https://nytimes.com/aponline/2020/02/24/us/ap-us-into-the-wild-bus-rescue.html?searchResultPosition=10
+https://nytimes.com/2020/02/24/dining/pecan-butter.html?searchResultPosition=10
 
