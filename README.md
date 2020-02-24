@@ -1,36 +1,36 @@
+**Suspect Linked to Racist Graffiti Found at Maryland College**\
+`Authoritieshave identified a suspect in connection to racist graffiti that was found scrawled in academic buildings at a Maryland university last week.`\
+https://nytimes.com/aponline/2020/02/24/us/ap-us-racist-graffiti-university.html?searchResultPosition=2
+
+**Amid China Virus Fears, Even a Haircut Is a Major Operation**\
+`Need a trim in Beijing? You might have to wait. `\
+https://nytimes.com/aponline/2020/02/24/world/asia/ap-as-china-outbreak-barbers-take-a-haircut-.html?searchResultPosition=3
+
+**‘Namaste Trump’: India Visit Starts With a Rally**\
+`President Trump joined Prime Minister Narendra Modi of India for a campaign-style rally in a 110,000-seat cricket stadium before visiting the Taj Mahal as part of a two-day visit.`\
+https://nytimes.com/video/us/politics/100000006995890/trump-visits-india.html?searchResultPosition=4
+
+**Italy Airline Strike Postponed Over Coronavirus: Union Spokeswoman**\
+`An air transport strike planned for Tuesday in Italy has been postponed until further notice to reduce disruption at a time when the country is facing a Coronavirus outbreak in some areas, a spokeswoman for a labor union said on Monday.`\
+https://nytimes.com/reuters/2020/02/24/world/europe/24reuters-china-health-italy-strike.html?searchResultPosition=5
+
+**Turkmen Constitutional Reform Hints at Succession Plan**\
+`The Turkmenistan government published a series of draft constitutional amendments on Monday that would reserve seats for former presidents in the newly-established upper chamber of parliament.`\
+https://nytimes.com/reuters/2020/02/24/world/24reuters-turkmenistan-constitution-reform.html?searchResultPosition=6
+
+**Leader of Merkel's CDU Says Party to Elect New Chairperson on April 25**\
+`The leader of German Chancellor Angela Merkel's Christian Democrats (CDU) said on Monday her party would hold a congress on April 25 to elect a new chairperson and said possible candidates would announce this week whether they want to run.`\
+https://nytimes.com/reuters/2020/02/24/world/europe/24reuters-germany-politics-cdu-leader.html?searchResultPosition=7
+
+**Event Marks 60th Anniversary of Sit-In Against Segregation**\
+`A three-day event beginning Monday will mark the 60th anniversary of the first Alabama sit-in against racial segregation. `\
+https://nytimes.com/aponline/2020/02/24/us/ap-us-civil-rights-sit-in-anniversary.html?searchResultPosition=8
+
 **Huawei's Mate XS Folding Phone to Retail for 2,499 Euros**\
 `Huawei's Mate XS folding smartphone will be priced at 2,499 euros ($2,709.67) for its premium version and goes on sale worldwide next month, its sales chief Richard Yu told a launch event on Monday.`\
-https://nytimes.com/reuters/2020/02/24/technology/24reuters-huawei-tech-launch-pricefixing.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/02/24/technology/24reuters-huawei-tech-launch-pricefixing.html?searchResultPosition=9
 
 **Huawei Launches Mate XS Foldable Smartphone With Better Screen**\
 `Huawei unveiled an upgrade to its folding smartphone on Monday, with a more robust and higher quality display that it hopes will persuade consumers to switch to the new design.`\
-https://nytimes.com/reuters/2020/02/24/technology/24reuters-huawei-tech-launch.html?searchResultPosition=3
-
-**Britain's Top Cop Calls for Law on Police Use of AI**\
-`Britain's most senior police officer on Monday called on the government to create a legal framework for police use of new technologies such as artificial intelligence.`\
-https://nytimes.com/reuters/2020/02/24/technology/24reuters-britain-security-cameras.html?searchResultPosition=4
-
-**China’s Huawei Debuts Latest Version of Folding Phone**\
-`China’s Huawei unveiled its latest folding smartphone Monday and its first such device to be available internationally, competing in a niche category with new models from Samsung and Motorola.`\
-https://nytimes.com/aponline/2020/02/24/business/bc-eu-huawei-new-phone.html?searchResultPosition=5
-
-**Closing Arguments Expected in Iowa Cold Case Murder Trial**\
-`Closingarguments are expected Monday in the Iowa cold case trial of a man accused of killing a high school student more than 40 years ago.`\
-https://nytimes.com/aponline/2020/02/24/us/ap-us-cold-case-arrest.html?searchResultPosition=6
-
-**Buffett Says Economy Is Slowing Amid Virus Fears**\
-`Billionaire Warren Buffett says the viral outbreak in China has slowed economic growth, but he remains confident in the long-term future of American business.`\
-https://nytimes.com/aponline/2020/02/24/business/ap-us-buffett-interview.html?searchResultPosition=7
-
-**Sandstorm Wreaks Havoc in Canary Islands**\
-`Red sands carried by winds from the Sahara have forced airports to close, leaving thousands stranded.`\
-https://nytimes.com/2020/02/24/world/europe/canary-islands-sandstorm-calima.html?searchResultPosition=8
-
-**With Once-Radical Podemos Tamed, Spain's New Coalition Is Happy-For Now**\
-`Just last year, Spain's struggling prime minister said he would not be able to sleep at night had he made a pact with the hard left Unidas Podemos party to secure power.`\
-https://nytimes.com/reuters/2020/02/24/world/europe/24reuters-spain-politics-analysis.html?searchResultPosition=9
-
-**Russia, Turkey Preparing Talks on Fighting in Syria's Idlib Province: TASS**\
-`Russia and Turkey are preparing talks on how to de-escalate fighting in Syria's Idlib province, TASS news agency reported on Monday, citing Russian Foreign Minister Sergei Lavrov.`\
-https://nytimes.com/reuters/2020/02/24/world/middleeast/24reuters-syria-security-turkey-russia.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/24/technology/24reuters-huawei-tech-launch.html?searchResultPosition=10
 
