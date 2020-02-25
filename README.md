@@ -1,32 +1,32 @@
-**Hyatt Extends Free Cancellation to South Korea, Japan and Italy**\
-`Hyatt Hotels became the latest U.S. company to extend waivers on cancellations and changes in bookings for travelers in several countries impacted by the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-china-health-hotels.html?searchResultPosition=3
+**Republicans Look to Drop Domestic Spying on U.S. Phones, Texts**\
+`U.S. Senate Republicans on Tuesday reacted skeptically to the Trump administration's request to continue a controversial but inactive domestic surveillance program that collects data on U.S. phone calls and text messages. `\
+https://nytimes.com/reuters/2020/02/25/us/politics/25reuters-usa-trump-surveillance.html?searchResultPosition=3
 
-**Setting Up Your New Space**\
-`A checklist for turning that new house into a home.`\
-https://nytimes.com/2020/02/25/automobiles/setting-up-your-new-space.html?searchResultPosition=4
+**Senate GOP Again Thwarted on Bills to Restrict Abortion**\
+`Senate Democrats on Tuesday blocked a pair of Republican bills that would ban most late-term abortions and threaten prison for doctors who don't try saving the life of infants born alive during abortions. `\
+https://nytimes.com/aponline/2020/02/25/us/politics/ap-us-congress-abortion.html?searchResultPosition=4
 
-**Ayres Enjoys New Fame After Earning Win as Emergency Goalie**\
-`David Ayres is still adjusting to new-found stardom after winning a game as the emergency goaltender for the Carolina Hurricanes.`\
-https://nytimes.com/aponline/2020/02/25/sports/hockey/ap-hkn-hurricanes-emergency-goalie.html?searchResultPosition=5
+**Robert Iger to Step Down as Walt Disney CEO**\
+`Walt Disney Co on Tuesday said Robert Iger will step down as chief executive officer and will continue in the role of chairman.`\
+https://nytimes.com/reuters/2020/02/25/business/25reuters-walt-disney-ceo.html?searchResultPosition=5
 
-**Thousands Join in North Macedonia Opposition Protest**\
-`Thousands of opposition supporters marched peacefully through North Macedonia's capital Skopje late Tuesday to protest what they claim was interference in the judiciary by the country's former prime minister.`\
-https://nytimes.com/aponline/2020/02/25/us/politics/ap-eu-north-macedonia-opposition-protest.html?searchResultPosition=6
+**Branson's Virgin Galactic Posts Quarterly Loss of $73 Million**\
+`Billionaire Richard Branson's space tourism company, Virgin Galactic Holdings Inc, said on Tuesday net losses widened to $73 million in the fourth quarter from $46 million in the year-ago period, in its first financial results as a publicly traded company.`\
+https://nytimes.com/reuters/2020/02/25/business/25reuters-virgin-galactic-results.html?searchResultPosition=6
 
-**Prosecutors Seek Death for Man Accused of Killing Wife, Kids**\
-`Prosecutors are seeking the death penalty for a man indicted on four counts of first-degree murder in the slayings of his wife and three children at their Florida home near Walt Disney World.`\
-https://nytimes.com/aponline/2020/02/25/us/ap-us-four-dead-florida.html?searchResultPosition=7
+**Fed's Clarida Says Too Soon to Tell Coronavirus Impact on U.S. Economy**\
+`The impact of the coronavirus on the U.S. economy would likely need to be "material and persistent" for the central bank to change its outlook, U.S. Federal Reserve Vice Chair Richard Clarida indicated on Tuesday.`\
+https://nytimes.com/reuters/2020/02/25/business/25reuters-usa-fed-clarida-coronavirus.html?searchResultPosition=7
 
-**Trump Ally Roger Stone Says Jurors Biased; Wants New Trial**\
-`A federal judge heard arguments Tuesday on whether to grant Trump ally Roger Stone a new trial based on his claims of juror bias in the trial that led to his conviction and sentencing on charges related to the Russia investigation. `\
-https://nytimes.com/aponline/2020/02/25/us/politics/ap-us-trump-roger-stone.html?searchResultPosition=8
+**Three U.S. Senate Democrats Propose Sweeping Reforms After Boeing 737 MAX Crashes**\
+`Three Democratic U.S. senators on Tuesday introduced sweeping legislation to reform how new airplanes are certified and overseen by U.S. regulators after two fatal Boeing 737 MAX crashes killed 346 people.`\
+https://nytimes.com/reuters/2020/02/25/business/25reuters-boeing-737max-usa-regulations.html?searchResultPosition=8
 
-**Walker Bundle of Nerves After Touring Hall of Fame**\
-`Larry Walker's right hand was shaking ever-so-slightly as he reached to sign the space where his plaque will hang in baseball's Hall of Fame. Reality was still sinking in, a month after his selection.`\
-https://nytimes.com/aponline/2020/02/25/sports/baseball/ap-bbo-hall-of-fame-walker.html?searchResultPosition=9
+**Some See Blood Pressure, Cholesterol Meds as Substitute for Healthy Habits**\
+`People who start taking medication to lower their blood pressure and cholesterol may think they can drop healthy lifestyle habits, a study in Finland suggests. `\
+https://nytimes.com/reuters/2020/02/25/us/25reuters-health-life.html?searchResultPosition=9
 
-**Church Shooter Dylann Roof Staged Death Row Hunger Strike**\
-`White supremacist mass murderer Dylann Roof staged a hunger strike this month while on federal death row, alleging in letters to The Associated Press that he’s been “targeted by staff,” “verbally harassed and abused without cause” and “treated disproportionately harsh.”`\
-https://nytimes.com/aponline/2020/02/25/us/politics/ap-us-charleston-church-shooter-prison.html?searchResultPosition=10
+**Lack of Measles Shot Sets Stage for Lethal Complications**\
+`Measles can infect the appendix, the liver and the membranes protecting the brain in people who are not fully immunized against the virus, a new report confirms.`\
+https://nytimes.com/reuters/2020/02/25/us/25reuters-health-measles-complications.html?searchResultPosition=10
 
