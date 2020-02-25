@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/02/25/business/25reuters-japan-investment-exclu
 `At least seven people were killed and about 150 were injured in clashes on Monday in the Indian capital during protests over a new citizenship law, a police official told Reuters on Tuesday.`\
 https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-india-citizenship-toll.html?searchResultPosition=5
 
-**Iran Confirms Two More Dead of New Coronavirus-Local Media**\
-`Two more Iranians infected with the new coronavirus have died in Iran, local media website Eghtesaonline reported on Tuesday, citing the head of the Medical Science University of Saveh, raising the death toll in the Islamic Republic to 14. `\
+**Iran Confirms Two More Coronavirus Deaths-Media**\
+`Two more Iranians infected with a coronavirus have died, media website Eghtesaonline said on Tuesday, taking to 14 the toll in the Islamic Republic, which has the highest tally of deaths outside China, where the virus emerged late last year. `\
 https://nytimes.com/reuters/2020/02/25/world/middleeast/25reuters-china-health-iran.html?searchResultPosition=6
 
 **Sabrina Ionescu Pulls Off an N.C.A.A. First Hours After Kobe Bryant Memorial**\
