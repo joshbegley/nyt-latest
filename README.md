@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-china-health-italy-c
 `Although Wells Fargo & Co settled major probes with federal agencies over abusive sales practices last week, the bank and its former executives are not out of the woods yet, legal and regulatory experts said.    `\
 https://nytimes.com/reuters/2020/02/25/business/25reuters-wells-fargo-settlement-individuals.html?searchResultPosition=6
 
-**Union Finds ‘Inappropriate Activity’ by Plácido Domingo With Women**\
+**Plácido Domingo Had ‘Inappropriate Activity’ With Women, Union Finds**\
 `An investigation found behavior ranging from flirtation to sexual advances by the opera superstar, who issued his fullest apology yet.`\
 https://nytimes.com/2020/02/25/arts/music/placido-domingo-sexual-misconduct.html?searchResultPosition=7
 
