@@ -1,32 +1,32 @@
+**'Are You Still Alive?' Virus Fears Grip South Korean City**\
+`A woman wearing vinyl gloves on a subway train. Guests donning masks at a sparcely attended wedding ceremony. People feverishly stocking up on instant noodles and rice. Friends calling each other and asking if they're still alive.`\
+https://nytimes.com/aponline/2020/02/25/world/asia/ap-as-virus-outbreak-skorea-city-suffers.html?searchResultPosition=3
+
+**China's Main Manufacturing Hubs Reboot After Virus Shutdown**\
+`As many parts of China ease coronavirus travel curbs, main manufacturing hubs in the east and south are seeing hundreds of thousands of migrant workers returning to work and more traffic on the roads during rush hours.`\
+https://nytimes.com/reuters/2020/02/25/business/25reuters-china-health-bigdata.html?searchResultPosition=4
+
+**'Where's Abe?' Critics Ask, as Coronavirus Spreads in Japan**\
+`As Japan struggles to stem the spread of a coronavirus within its borders, critics are asking, "Where's Abe?"`\
+https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-china-health-japan-abe.html?searchResultPosition=5
+
+**China Struggles to Revive Manufacturing Amid Virus Outbreak**\
+`Factories that make the world’s smartphones, toys and other goods are struggling to reopen after a virus outbreak idled China’s economy. But even with the ruling Communist Party promising help, companies and economists say it may be months before production is back to normal. `\
+https://nytimes.com/aponline/2020/02/25/business/bc-as-china-outbreak-factory-blues.html?searchResultPosition=6
+
+**Turkey Says 2 Turkish Soldiers Killed in Libya**\
+`Two Turkish soldiers have been killed in fighting in Libya, Turkish President Recep Tayyip Erdogan said Tuesday as he also defended Ankara's move to also send Syrian opposition fighters to the North African country.`\
+https://nytimes.com/aponline/2020/02/25/world/middleeast/ap-ml-libya.html?searchResultPosition=7
+
 **​In Coronavirus Crisis, Korean City Tries Openness, a Contrast to China**\
 `Even in the center of the outbreak in Daegu, officials are not restricting the movement of people, which could be a template as the virus moves around the globe.`\
-https://nytimes.com/2020/02/25/world/asia/daegu-south-korea-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/02/25/world/asia/daegu-south-korea-coronavirus.html?searchResultPosition=8
 
 **Canary Islands Hotel Under Lockdown After Coronavirus Case-El Pais**\
 `One hotel in the Canary Islands was put under lockdown after one coronavirus case was identified the day before, El Pais newspaper reported on Tuesday.   `\
-https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-china-health-spain.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-china-health-spain.html?searchResultPosition=9
 
 **German Minister: Support for Laschet as CDU Leader Not Directed Against Merkel**\
 `German Health Minister Jens Spahn said on Tuesday that his support for Armin Laschet in running for the leadership of Angela Merkel's party was not directed against the chancellor.`\
-https://nytimes.com/reuters/2020/02/25/world/europe/25reuters-germany-politics-cdu-merkel.html?searchResultPosition=5
-
-**Malaysia's Mahathir Proposes to Lead 'Unity Government'-Sources**\
-`Malaysia's Mahathir Mohamad is proposing to lead a unity government and has invited lawmakers from across rival political parties to join, political sources said on Tuesday, after his shock resignation as premier. `\
-https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-malaysia-politics-mahathir.html?searchResultPosition=6
-
-**Global Stocks Pause After Coronavirus Shakeout**\
-`Global stock markets stabilised on Tuesday after a wave of early selling petered out and Wall Street futures managed a solid bounce after the previous day's sharp selloff on fears about the spreading coronavirus.`\
-https://nytimes.com/reuters/2020/02/25/business/25reuters-global-markets.html?searchResultPosition=7
-
-**Turkish Economy Grew 5% in Fourth Quarter, 2019 Growth Just Above Forecast-Reuters Poll**\
-`Turkey's economy grew 5% in the fourth quarter and expanded 0.6% in the year as a whole, just above the government forecast, a Reuters poll showed on Monday as the country shook off the recessionary impact of a 2018 currency crisis.`\
-https://nytimes.com/reuters/2020/02/25/world/europe/25reuters-turkey-economy.html?searchResultPosition=8
-
-**EU Ministers to Approve Negotiating Mandate for UK Trade Deal**\
-`European Union governments are set to adopt a negotiating mandate for their executive European Commission on Tuesday to clinch a deal with Britain this year on future ties after it left the bloc in January.`\
-https://nytimes.com/reuters/2020/02/25/world/europe/25reuters-britain-eu.html?searchResultPosition=9
-
-**Oman's Khasab Port Suspends Shipping To and From Iran-Operator**\
-`Oman's Khasab port is suspending the import and export of goods to and from Iran from Feb. 26 because of new coronavirus outbreak, its operator Marafi said on Twitter on Tuesday.`\
-https://nytimes.com/reuters/2020/02/25/world/middleeast/25reuters-china-health-oman.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/25/world/europe/25reuters-germany-politics-cdu-merkel.html?searchResultPosition=10
 
