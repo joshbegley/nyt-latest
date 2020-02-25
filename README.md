@@ -1,32 +1,32 @@
+**Saint Laurent :Fall 2020**\
+`See the looks from the Saint Laurent: Fall 2020 Collection.`\
+https://nytimes.com/slideshow/2020/02/25/fashion/runway-womens/saint-laurent-fall-2020.html?searchResultPosition=3
+
+**How Major US Stock Indexes Fared Tuesday**\
+`Stocks slumped and bond prices soared for the second day in a row Tuesday as fears spread that the widening virus outbreak will put the brakes on the global economy. `\
+https://nytimes.com/aponline/2020/02/25/business/ap-financial-markets-box.html?searchResultPosition=4
+
+**Salesforce Co-CEO Keith Block Steps Down, Co Beats Quarterly Revenue Estimates**\
+`Salesforce.com Inc said on Tuesday that Keith Block has stepped down as co-chief executive officer of the company and Marc Benioff is the chair and CEO.`\
+https://nytimes.com/reuters/2020/02/25/technology/25reuters-salesforce-com-ceo.html?searchResultPosition=5
+
+**Woods to Follow Familiar 'Blueprint' for Masters Title Defense**\
+`Tiger Woods said on Tuesday that he will prepare for this year's Masters in much the same way as in 2019 when he ended an 11-year wait for a major title with a remarkable triumph at Augusta National.`\
+https://nytimes.com/reuters/2020/02/25/sports/golf/25reuters-golf-masters-woods.html?searchResultPosition=6
+
+**Saint Laurent Mixes Tweed With Fetish-Style Catsuits for Paris Show**\
+`Luxury fashion house Saint Laurent juxtaposed staid tweed jackets with fetish-style catsuits when it showed its winter collection at Paris Fashion Week on Tuesday.`\
+https://nytimes.com/reuters/2020/02/25/world/europe/25reuters-fashion-paris-saint-laurent.html?searchResultPosition=7
+
+**U.S. Agency Suspends Self-Driving Shuttle EasyMile Use in 10 U.S. States**\
+`U.S. auto safety regulators said on Tuesday they had ordered a suspension of passenger operations for 16 autonomous shuttles operated by French-based EasyMile after a passenger was injured in an unexplained braking incident.`\
+https://nytimes.com/reuters/2020/02/25/technology/25reuters-autos-selfdriving.html?searchResultPosition=8
+
 **U.S. AG Barr Names New Chief for Troubled Prison System**\
 `U.S. Attorney General William Barr on Tuesday announced a new director for the U.S. government's prison system, seeking to impose stability on an agency that has been under scrutiny since the August suicide of financier Jeffrey Epstein in a New York City jail.`\
-https://nytimes.com/reuters/2020/02/25/us/25reuters-usa-crime-prisons.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/02/25/us/25reuters-usa-crime-prisons.html?searchResultPosition=9
 
 **Spain Changes Deficit Law in First Legislative Win for Left-Wing Coalition**\
 `Spain's parliament on Tuesday approved a change in a law setting out the country's deficit targets for 2020 to 2023, the first major legislation pushed through by the Socialist Party's minority coalition with the far-left Unidas Podemos.`\
-https://nytimes.com/reuters/2020/02/25/world/europe/25reuters-spain-deficit.html?searchResultPosition=4
-
-**Republicans Look to Drop Domestic Spying on U.S. Phones, Texts**\
-`U.S. Senate Republicans on Tuesday reacted skeptically to the Trump administration's request to continue a controversial but inactive domestic surveillance program that collects data on U.S. phone calls and text messages. `\
-https://nytimes.com/reuters/2020/02/25/us/politics/25reuters-usa-trump-surveillance.html?searchResultPosition=5
-
-**Senate GOP Again Thwarted on Bills to Restrict Abortion**\
-`Senate Democrats on Tuesday blocked a pair of Republican bills that would ban most late-term abortions and threaten prison for doctors who don't try saving the life of infants born alive during abortions. `\
-https://nytimes.com/aponline/2020/02/25/us/politics/ap-us-congress-abortion.html?searchResultPosition=6
-
-**Robert Iger to Step Down as Walt Disney CEO**\
-`Walt Disney Co on Tuesday said Robert Iger will step down as chief executive officer and will continue in the role of chairman.`\
-https://nytimes.com/reuters/2020/02/25/business/25reuters-walt-disney-ceo.html?searchResultPosition=7
-
-**Branson's Virgin Galactic Posts Quarterly Loss of $73 Million**\
-`Billionaire Richard Branson's space tourism company, Virgin Galactic Holdings Inc, said on Tuesday net losses widened to $73 million in the fourth quarter from $46 million in the year-ago period, in its first financial results as a publicly traded company.`\
-https://nytimes.com/reuters/2020/02/25/business/25reuters-virgin-galactic-results.html?searchResultPosition=8
-
-**Fed's Clarida Says Too Soon to Tell Coronavirus Impact on U.S. Economy**\
-`The impact of the coronavirus on the U.S. economy would likely need to be "material and persistent" for the central bank to change its outlook, U.S. Federal Reserve Vice Chair Richard Clarida indicated on Tuesday.`\
-https://nytimes.com/reuters/2020/02/25/business/25reuters-usa-fed-clarida-coronavirus.html?searchResultPosition=9
-
-**Three U.S. Senate Democrats Propose Sweeping Reforms After Boeing 737 MAX Crashes**\
-`Three Democratic U.S. senators on Tuesday introduced sweeping legislation to reform how new airplanes are certified and overseen by U.S. regulators after two fatal Boeing 737 MAX crashes killed 346 people.`\
-https://nytimes.com/reuters/2020/02/25/business/25reuters-boeing-737max-usa-regulations.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/25/world/europe/25reuters-spain-deficit.html?searchResultPosition=10
 
