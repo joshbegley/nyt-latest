@@ -19,7 +19,7 @@ https://nytimes.com/2020/02/25/us/politics/trump-schiff-russia.html?searchResult
 https://nytimes.com/reuters/2020/02/25/world/americas/25reuters-brazil-carnival-sambadrome.html?searchResultPosition=7
 
 **Drugmaker Readies Possible Coronavirus Vaccine for Testing**\
-`The drugmaker Moderna has shipped a potential coronavirus vaccine for humans to government researchers for testing. `\
+`Drugmaker Moderna has shipped its first batch of a possible coronavirus vaccine for humans to government researchers for testing. `\
 https://nytimes.com/aponline/2020/02/25/business/ap-us-coronavirus-vaccine-testing.html?searchResultPosition=8
 
 **North Carolina Troopers Tackle Suspect in Middle of Highway**\
