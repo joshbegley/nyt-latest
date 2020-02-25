@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/02/25/sports/basketball/ap-bkn-around-the-nba.
 https://nytimes.com/reuters/2020/02/25/world/middleeast/25reuters-israel-palestinians-violence.html?searchResultPosition=4
 
 **India to Purchase Over $3 Billion Defense Equipment From U.S.-Trump**\
-`India will buy defense equipment worth more than $3 billion from the United States, President Donald Trump said on Monday, the second day of his three-day visit to the South Asian nation.`\
+`India will buy defense equipment worth more than $3 billion from the United States, President Donald Trump said on Monday, the second day of his two-day visit to the South Asian nation.`\
 https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-india-usa-trump-military.html?searchResultPosition=5
 
 **Kazakh Opposition Activist Dies in Detention**\
