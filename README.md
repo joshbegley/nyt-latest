@@ -1,32 +1,32 @@
+**Clashes Break Out on Greek Island Against Migrant Camp**\
+`Clashes broke out on the Greek island of Lesbos early on Tuesday between police and residents protesting the construction of a migrant detention centre, witnesses and police said.`\
+https://nytimes.com/reuters/2020/02/25/world/europe/25reuters-europe-migrants-greece-protests.html?searchResultPosition=3
+
+**Diana Serra Cary, Child Star ‘Baby Peggy’ of Silent Films, Dies at 101**\
+`Ms. Cary, who endured poverty and heartbreak after her parents squandered her fortune, went on to become an author and film historian as an adult.`\
+https://nytimes.com/2020/02/25/arts/diana-serra-cary-baby-peggy-dead.html?searchResultPosition=4
+
+**How Barcelona Lost Its Way**\
+`A club once praised for its methods on and off the field has recently descended into a drifting, crisis-riddled, backstabbing soap opera. That it still leads La Liga misses the point.`\
+https://nytimes.com/2020/02/25/sports/soccer/barcelona-napoli-champions-league.html?searchResultPosition=5
+
+**What’s on TV Tuesday: The Democratic Debate and Pete Davidson**\
+`Democratic presidential candidates face off before the South Carolina primary, and Pete Davidson debuts his first Netflix comedy special.`\
+https://nytimes.com/2020/02/25/arts/television/whats-on-tv-tuesday-the-democratic-debate-and-pete-davidson.html?searchResultPosition=6
+
+**What Does the Iranian Election Tell Us?**\
+`The low turnout and the conservative victory in the parliamentary elections in Iran indicate intense electoral disenchantment and set the stage for the ascendance of a hard-liner as president.`\
+https://nytimes.com/2020/02/25/opinion/iran-election.html?searchResultPosition=7
+
 **7 Killed in New Delhi Protests Ahead of Trump's Visit**\
 `At least seven people, including a police officer, were killed and dozens were injured in clashes between hundreds of supporters and opponents of a new citizenship law in India that provides fast-track naturalization for some foreign-born religious minorities but not Muslims, police said Tuesday.`\
-https://nytimes.com/aponline/2020/02/25/world/asia/ap-as-trump-new-delhi-protests.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/02/25/world/asia/ap-as-trump-new-delhi-protests.html?searchResultPosition=8
 
 **Factbox: Countries Evacuating Nationals From Coronavirus-Hit Areas**\
 `A growing number of countries around the world are evacuating or planning to evacuate diplomatic staff and citizens from areas hit by the new coronavirus.`\
-https://nytimes.com/reuters/2020/02/25/world/europe/25reuters-china-health-evacuation-factbox.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/02/25/world/europe/25reuters-china-health-evacuation-factbox.html?searchResultPosition=9
 
 **Trump Demands Two Liberal Justices Recuse Themselves From His Cases**\
 `The president ratcheted up a fight with a judicial system he sees as biased against him.`\
-https://nytimes.com/2020/02/25/us/politics/trump-sotomayor-ginsburg-supreme-court.html?searchResultPosition=5
-
-**Appeals Court Blocks Release of ''Bolder Than Most' Rapist**\
-`A California appeals court on Monday blocked the release of a man dubbed the “Bolder Than Most" rapist who was charged with a string of bizarre and brutal attacks in the San Diego area in the 1980s.`\
-https://nytimes.com/aponline/2020/02/25/us/ap-us-rapist-release.html?searchResultPosition=6
-
-**South Korea Table Tennis World Championships Postponed Over Virus Fears**\
-`Next month's table tennis world championships in South Korea have been postponed until June over health concerns as the east Asian nation grapples with an outbreak of the coronavirus.`\
-https://nytimes.com/reuters/2020/02/25/sports/olympics/25reuters-health-sport-tabletennis.html?searchResultPosition=7
-
-**WTA Roundup: Rybakina Wins Opener in Doha**\
-`Kazakhstan's Elena Rybakina, a finalist in the Dubai Duty Free Tennis Championships last weekend, kept the momentum rolling at the Qatar Total Open in Doha on Monday by rallying from a set down to defeat Romania's Sorana Cirstea.`\
-https://nytimes.com/reuters/2020/02/25/sports/tennis/25reuters-tennis-roundup.html?searchResultPosition=8
-
-**Thousands Caught in Floods in Indonesia's Sinking Capital**\
-`Floods that have crippled much of Indonesia's capital worsened Tuesday, inundating thousands of homes and buildings, including the presidential palace, and paralyzing transport networks, officials and witnesses said.`\
-https://nytimes.com/aponline/2020/02/25/world/asia/ap-as-indonesia-floods.html?searchResultPosition=9
-
-**Cowboys Set on Keeping Prescott, but Talks Waiting on CBA**\
-`The Dallas Cowboys are set on retaining pending free agent quarterback Dak Prescott, but the sides haven't negotiated since September and still won't for at least a few more days.`\
-https://nytimes.com/reuters/2020/02/25/sports/football/25reuters-football-nfl-dal-prescott-jones.html?searchResultPosition=10
+https://nytimes.com/2020/02/25/us/politics/trump-sotomayor-ginsburg-supreme-court.html?searchResultPosition=10
 
