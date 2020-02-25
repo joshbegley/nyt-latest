@@ -1,32 +1,32 @@
-**Spring Training Roundup: Altuve Hit by Pitch in Debut**\
-`Jose Altuve was hit by a pitch in his spring training debut, but he also hit an RBI double as the Houston Astros routed the Detroit Tigers 11-1 at Lakeland, Fla.`\
-https://nytimes.com/reuters/2020/02/25/sports/baseball/25reuters-baseball-mlb-roundup.html?searchResultPosition=3
+**Democrats Unload on Sanders in Likely Debate Preview**\
+`Bernie Sanders is facing the greatest test of his presidential campaign as his Democratic rivals prepare to launch a series of attacks on the Vermont senator during what could be a pivotal debate on the eve of the South Carolina primary.`\
+https://nytimes.com/aponline/2020/02/25/us/politics/ap-us-election-2020-debate.html?searchResultPosition=3
 
-**Soccer: Japan Postpones Cup Games Due to Coronavirus Concerns**\
-`Japan's J.League says it has postponed seven Levian Cup matches scheduled for Wednesday due to concerns about the coronavirus outbreak and is considering postponing all domestic soccer games through the first half of March.`\
-https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-china-health-sport-japan.html?searchResultPosition=4
+**5 Questions Before the Democrats' South Carolina Debate**\
+`Seven Democratic presidential hopefuls face off Tuesday night in South Carolina for the 10th Democratic debate. Five questions ahead of that forum:`\
+https://nytimes.com/aponline/2020/02/25/us/politics/ap-us-election-2020-debate-five-questions.html?searchResultPosition=4
 
-**QB Burrow Waves Away Concerns Over Hand Size**\
-`Reigning Heisman Trophy winner and expected No. 1 overall draft pick Joe Burrow offered a humorous retort for anyone concerned about his hand size following measurements at the NFL Scouting Combine on Monday.`\
-https://nytimes.com/reuters/2020/02/25/sports/football/25reuters-football-nfl-burrow-hands.html?searchResultPosition=5
+**After Raucous Welcome in India, Trump Set for Talks on Trade, Arms Deals**\
+`After a rousing reception, U.S. President Donald Trump sits down with Indian leaders on Tuesday for talks on arms sales and festering trade disputes that have strained ties in recent months.`\
+https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-india-usa-trump.html?searchResultPosition=5
 
-**A New Way to Lure Luxury Buyers: Celebrity Chefs on Site**\
-`In Dubai, a new development will feature restaurants run by three acclaimed chefs, reflecting a new mixture of culinary and residential marketing.`\
-https://nytimes.com/2020/02/25/realestate/a-new-way-to-lure-luxury-buyers-celebrity-chefs-on-site.html?searchResultPosition=6
+**China Sentences Hong Kong Bookseller to 10 Years in Prison**\
+`Gui Minhai, a Chinese-born Swedish citizen, ran a publishing house that appeared to anger the Communist Party`\
+https://nytimes.com/2020/02/25/world/asia/china-hong-kong-swedish-bookseller.html?searchResultPosition=6
 
-**All 16 of Vietnam's Coronavirus Sufferers Cured**\
-`All 16 people in Vietnam infected with a new coronavirus have been cured, the health ministry said on Tuesday, adding that no new cases have been recorded since Feb. 13. `\
-https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-china-health-vietnam-cured.html?searchResultPosition=7
+**One Clear Message From Democrats: We Want Big Change**\
+`Democrats' desire for dramatic political change has emerged as a driving force in the party's presidential primary battle, one that extends beyond the progressive wing and presents challenges for candidates running on promises of moderation. `\
+https://nytimes.com/aponline/2020/02/25/us/politics/ap-us-election-2020-democrats-big-change.html?searchResultPosition=7
 
-**Five Killed, 90 Hurt in Violence in Indian Capital-Hospital Official**\
-`At least five people were killed and about 90 were injured in clashes in the Indian capital during protests over a new citizenship law, a senior hospital official told Reuters on Tuesday.`\
-https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-india-citizenship-protests.html?searchResultPosition=8
+**In SC, Buttigieg Faces Black Voters Wary of a Gay Candidate**\
+`South Carolina state Sen. Gerald Malloy is fine with a gay presidential candidate like Pete Buttigieg. His older male relatives are not — and that may be the defining challenge of Buttigieg's campaign.`\
+https://nytimes.com/aponline/2020/02/25/us/politics/ap-us-election-2020-buttigieg-.html?searchResultPosition=8
 
-**Factbox: Latest on Coronavirus Spreading in China and Beyond**\
-`U.S. President Donald Trump will seek $2.5 billion from Congress to fight the coronavirus epidemic and U.S. and South Korean militaries are considering scaling back joint training as the virus spreads in Europe and the Middle East. `\
-https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-china-health-latest-factbox.html?searchResultPosition=9
+**Trump's India Visit Moves From Pomp to Trade, Military Talks**\
+`President Donald Trump's two-day visit to India delved into substance Tuesday after opening with a heavy dose of pomp and pageantry, even as few concrete accomplishments were expected from the whirlwind trip.`\
+https://nytimes.com/aponline/2020/02/25/us/politics/ap-as-trump.html?searchResultPosition=9
 
-**East Timor's Premier Offers Resignation After Budget Fails**\
-`East Timor's prime minister offered his resignation Tuesday after the budget failed to pass in Parliament.`\
-https://nytimes.com/aponline/2020/02/25/world/asia/ap-as-east-timor.html?searchResultPosition=10
+**Indonesia's Capital Hit by Serious Flooding for Second Time This Year**\
+`Torrential rain brought floods to Indonesia's capital on Tuesday, paralyzing large parts of the city as rescue workers used boats to navigate streets turned into murky, brown waterways to get people to safety.`\
+https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-indonesia-floods.html?searchResultPosition=10
 
