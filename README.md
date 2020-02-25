@@ -1,32 +1,32 @@
-**Suspect in Multiple Michigan Slayings Shoots Self in Head**\
-`A man suspected of at least a half-dozen slayings and other crimes in and around Detroit shot himself in the head while being pursued by police, authorities said Monday.`\
-https://nytimes.com/aponline/2020/02/24/us/ap-us-michigan-slayings-suspect-shot-1st-ld-writethru.html?searchResultPosition=3
+**US and SKorea May Cut Back Military Moves Due to Coronavirus**\
+`The United States and South Korea are considering curtailing joint military exercises due to concerns about the spread of coronavirus, officials said Monday.`\
+https://nytimes.com/aponline/2020/02/24/us/politics/ap-us-united-states-korea.html?searchResultPosition=3
 
-**Judge Declares Mother Legally Insane in 2017 Family Stabbing**\
-`A woman charged with fatally stabbing her 5-year-old son and wounding her husband at an on-campus housing complex at the University of North Carolina was found legally insane on Monday.`\
-https://nytimes.com/aponline/2020/02/24/us/ap-us-family-stabbing-legally-insane.html?searchResultPosition=4
+**Yanks' Cole Strikes Out 2 in Hitless Inning of Spring Debut**\
+`Gerrit Cole struck out two and walked over a hitless inning in his spring training debut for the New York Yankees against Pittsburgh on Monday night.`\
+https://nytimes.com/aponline/2020/02/24/sports/baseball/ap-bba-yankees-cole.html?searchResultPosition=4
 
-**British Fintech Revolut Hits $5.5 Billion Valuation After Funding Round**\
-`Digital banking app Revolut has raised $500 million in a fresh funding round, confirming the British-based business as one of the world's most valuable financial technology firms with a valuation of $5.5 billion.`\
-https://nytimes.com/reuters/2020/02/24/business/24reuters-revolut-fundraising.html?searchResultPosition=5
+**Japan's Nishimura Says Need to Pay Close Attention on Coronovirus Impact**\
+`Japanese Economy Minister Yasutoshi Nishimura said on Tuesday that the government would need to pay close attention to the impact from the coronavirus outbreak, including on financial markets. `\
+https://nytimes.com/reuters/2020/02/24/world/asia/24reuters-japan-economy-nishimura.html?searchResultPosition=5
 
-**U.S. Democrats Want Russia Sanctions Over 2020 Election Interference**\
-`Senior U.S. Democrats said on Monday that President Donald Trump's administration should immediately impose sanctions on Russia after U.S. intelligence officials told members of Congress that Russia appeared to be trying to influence this year's U.S. election.`\
-https://nytimes.com/reuters/2020/02/24/us/politics/24reuters-usa-trump-russia-senate.html?searchResultPosition=6
+**'The Sky Is Blue Again': Weinstein's Accusers Express Relief**\
+`Actress Mira Sorvino broke down in tears as she described her reaction to the guilty verdict against Harvey Weinstein: relief, that the fallen movie mogul would not go unpunished.`\
+https://nytimes.com/aponline/2020/02/24/us/ap-us-sexual-misconduct-weinstein-accusers.html?searchResultPosition=6
 
-**Under Pressure From Trump, Extraditions from Mexico to U.S. Soar**\
-`The increased pace follows a threat by President Trump to designate drug traffickers as terrorists and amid two visits by his attorney general to Mexico to push for more cooperation.`\
-https://nytimes.com/2020/02/24/world/americas/mexico-extraditions-william-barr.html?searchResultPosition=7
+**Shake Shack Sees Delivery Disruption Thru 2020 With Grubhub Partnership**\
+`Shake Shack Inc expects its delivery sales to be volatile throughout 2020 after its move last year to an exclusive partnership with third-party platform Grubhub Inc, it said on Monday.    `\
+https://nytimes.com/reuters/2020/02/24/business/24reuters-shake-shack-delivery.html?searchResultPosition=7
 
-**Wilder Says Pre-Fight Costume Wore Him Down Before Fury Did**\
-`Deontay Wilder says an elaborate outfit he wore on his ring walk wore him down so much that he didn't have the legs to withstand Tyson Fury in their heavyweight title fight Saturday night.`\
-https://nytimes.com/aponline/2020/02/24/sports/ap-box-wilder-fury-1st-ld-writethru.html?searchResultPosition=8
+**'Why Would I Get Out?': Democrats Brush Off Calls to Quit**\
+`Bernie Sanders' ascendance in the Democratic presidential primary has brought louder calls for some of his rivals to drop out of the race.`\
+https://nytimes.com/aponline/2020/02/24/us/politics/ap-us-election-2020-soldiering-on.html?searchResultPosition=8
 
-**Sanders Comments on Castro Could Pose Hurdles in Florida**\
-`Like many young voters in Florida, Jared Machado is concerned about rising sea levels, college tuition and landing a job when he graduates from the University of Florida in a few months.`\
-https://nytimes.com/aponline/2020/02/24/us/ap-election-2020-sanders-florida.html?searchResultPosition=9
+**Michael Jordan's Poignant Kobe Tribute: 'A Piece of Me Died'**\
+`Michael Jordan says he didn't see Kobe Bryant as his rival for the mythical honor of being recognized as the best basketball player ever.`\
+https://nytimes.com/aponline/2020/02/24/sports/basketball/ap-bkn-kobe-bryant-memorial-jordan.html?searchResultPosition=9
 
-**LG Chem to Exclusively Supply EV Batteries to U.S.-Based Lucid Motors**\
-`South Korea's LG Chem Ltd said on Tuesday it will exclusively supply electric vehicle (EV) batteries to U.S. electric carmaker Lucid Motors, which plans to start production of its Lucid Air sedan later this year. `\
-https://nytimes.com/reuters/2020/02/24/business/24reuters-lg-chem-lucid-motors.html?searchResultPosition=10
+**Oregon Republicans Disappear for Another Climate Vote**\
+`After leaving the state last year to shut down a climate change proposal, Oregon senators were absent again on Monday.`\
+https://nytimes.com/2020/02/24/us/republicans-oregon-climate.html?searchResultPosition=10
 
