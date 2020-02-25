@@ -26,7 +26,7 @@ https://nytimes.com/aponline/2020/02/25/world/europe/ap-eu-virus-outbreak-italy-
 `Havinga few too many at home shouldn't make handling one's own firearm illegal, according to an Ohio man challenging his arrest on a charge of possessing a weapon while intoxicated. `\
 https://nytimes.com/aponline/2020/02/25/us/ap-us-guns-and-alcohol-court-case.html?searchResultPosition=9
 
-**DealBook: The World Isn’t Ready for a Major Coronavirus Outbreak**\
+**The World Isn’t Ready for a Major Coronavirus Outbreak**\
 `Investors are hedging their portfolios, businesses are revising their forecasts, and government officials are preparing for the worst.`\
 https://nytimes.com/2020/02/25/business/dealbook/coronavirus-markets-impact.html?searchResultPosition=10
 
