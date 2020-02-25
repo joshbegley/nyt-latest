@@ -1,32 +1,32 @@
+**39 States Investigating Juul's Marketing of Vaping Products**\
+`Investigators from 39 states will look into the marketing and sales of vaping products by Juul Labs, including whether the company targeted youths and made misleading claims about nicotine content in its devices, officials announced Tuesday.`\
+https://nytimes.com/aponline/2020/02/25/business/bc-us-vaping-investigation.html?searchResultPosition=3
+
+**Republicans See Echoes of Trump's Improbable Rise in Sanders' Surge**\
+`Bernie Sanders' surge to the front of the Democratic presidential contest has echoes of Donald Trump's improbable 2016 nomination, according to Republican strategists who tried and failed to stop the man who later won the presidency.`\
+https://nytimes.com/reuters/2020/02/25/us/politics/25reuters-usa-election-sanders-deja-vu.html?searchResultPosition=4
+
+**Pete Buttigieg vs. Amy Klobuchar: An Abridged History of Midwestern Iciness**\
+`These two do not like each other! Play the tape.`\
+https://nytimes.com/2020/02/25/us/politics/pete-buttigieg-amy-klobuchar-debate.html?searchResultPosition=5
+
+**Medical Report Shows Klobuchar in 'Very Good Health'**\
+`Democratic presidential candidate Amy Klobuchar is “in very good health,” according to a medical report the Minnesota senator's campaign released days after she said during a debate over Bernie Sanders' health records that “you should release your records from your physical.”`\
+https://nytimes.com/aponline/2020/02/25/us/politics/ap-election-2020-klobuchar.html?searchResultPosition=6
+
+**The Sharp Exchanges Between Klobuchar and Buttigieg**\
+`In past debates, Pete Buttigieg, the former mayor of South Bend, Ind., and Senator Amy Klobuchar have traded several jabs about experience and qualifications.`\
+https://nytimes.com/video/us/politics/100000006995941/buttigieg-klobuchar-debate.html?searchResultPosition=7
+
+**U.S. Confirms Afghan Government Agreed to Postpone Presidential Inauguration**\
+`The U.S. State Department on Tuesday confirmed that the Afghan government has agreed to postpone its presidential inauguration, amid an election feud in which both Afghan President Asraf Ghani and his main rival claimed victory in disputed Sept. 28 elections.`\
+https://nytimes.com/reuters/2020/02/25/world/asia/25reuters-usa-afghanistan-election.html?searchResultPosition=8
+
+**A Ramen Diner From a Master in Boerum Hill, Brooklyn**\
+`American with global touches in Midtown Manhattan, cocktails in a midcentury-modern setting, and more restaurant news.`\
+https://nytimes.com/2020/02/25/dining/nyc-restaurant-news.html?searchResultPosition=9
+
 **Honolulu Marathon CEO Says He Was Abused by Michigan Doctor**\
 `The president and CEO of one of the nation’s largest marathons has joined a chorus of former students who have complained about a late University of Michigan doctor by saying the physician performed a “completely inappropriate” act on him during a medical examination in the 1970s.`\
-https://nytimes.com/aponline/2020/02/25/sports/ap-us-university-of-michigan-doctor.html?searchResultPosition=3
-
-**Turkey's Halkbank Agrees to Respond to U.S. Criminal Charges**\
-`Turkey's state-owned Halkbank has agreed to enter a formal plea of not guilty to criminal charges that it helped Iran evade U.S. sanctions, backing down from its previous refusal to answer the allegations, a lawyer for the bank said on Tuesday.`\
-https://nytimes.com/reuters/2020/02/25/world/middleeast/25reuters-usa-turkey-halkbank.html?searchResultPosition=4
-
-**Dashboard of a Downturn: Coronavirus Starts to Set Off Some Recession Alarm Bells**\
-`Will China's coronavirus outbreak send the world economy into recession? `\
-https://nytimes.com/reuters/2020/02/25/business/25reuters-global-recession-charts.html?searchResultPosition=5
-
-**Dior Invokes #MeToo in Feminist-Inspired Fashion Show**\
-`“Consent, Consent, Consent” flashed the neon set lights at Dior's latest ready-to-wear show in Paris.`\
-https://nytimes.com/aponline/2020/02/25/us/ap-eu-france-dior.html?searchResultPosition=6
-
-**Hezbollah Says It Opposes IMF Management of Lebanon Crisis**\
-`Hezbollah is against allowing the International Monetary Fund to manage Lebanon's financial crisis, the powerful group said on Tuesday, indicating opposition to any IMF bailout that would impose tough conditions on the heavily indebted state.     `\
-https://nytimes.com/reuters/2020/02/25/world/middleeast/25reuters-lebanon-crisis-hezbollah.html?searchResultPosition=7
-
-**British Exports to EU Could Fall 14% in No-Deal Scenario: UN Study**\
-`British exports to the European Union could fall by as much as 14% if the two sides are unable to strike a free trade deal and could be 9% lower even if an agreement is reached, a United Nations study found.`\
-https://nytimes.com/reuters/2020/02/25/world/europe/25reuters-britain-eu-trade-un.html?searchResultPosition=8
-
-**French Total to Drill Exploratory Well Off Lebanese Coast**\
-`A ship that will set up the first oil and gas exploration well off the Lebanese coast has arrived in Lebanon where it will start work later this week, French oil giant Total and Lebanon's government announced Tuesday. `\
-https://nytimes.com/aponline/2020/02/25/world/middleeast/ap-ml-lebanon.html?searchResultPosition=9
-
-**Spanish Government to Address Farmers' Protests by Guaranteeing Profit Margins**\
-`Spain's leftist government on Tuesday approved a series of measures to ensure that farmers, who have been protesting for weeks against low food prices and precarious working conditions, are not forced to sell their produce at a loss. `\
-https://nytimes.com/reuters/2020/02/25/world/europe/25reuters-spain-economy-farming.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/25/sports/ap-us-university-of-michigan-doctor.html?searchResultPosition=10
 
