@@ -1,32 +1,32 @@
+**East Africa's Huge Locust Outbreak Now Spreads to Congo**\
+`The U.N.'s Food and Agriculture Organization says a small group of desert locusts has entered Congo, marking the first time the voracious insects have been seen in the Central African country since 1944. `\
+https://nytimes.com/aponline/2020/02/25/world/africa/ap-af-africa-locust-outbreak.html?searchResultPosition=3
+
+**IEA Says Virus-Hit Oil Growth Outlook Lowest in a Decade, Could Go Lower**\
+`The International Energy Agency's (IEA) outlook on global oil demand growth has fallen to its lowest level in a decade, IEA Executive Director Fatih Birol said on Tuesday, adding it could be reduced further due to the impact of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/02/25/business/25reuters-iea-oil.html?searchResultPosition=4
+
+**Police Say 10-Year-Old Boy Killed by School Bus in Brooklyn**\
+`A 10-year-old boy was struck and killed by a school bus in Brooklyn on Tuesday, police said.`\
+https://nytimes.com/aponline/2020/02/25/us/ap-us-school-bus-boy-killed-1st-ld-writethru.html?searchResultPosition=5
+
+**Thomson Reuters Names New CEO, Earnings Top Estimates**\
+`Thomson Reuters Corp said on Tuesday it had appointed former Nielsen Holdings Plc president Steve Hasker as its new chief executive officer, succeeding Jim Smith.`\
+https://nytimes.com/reuters/2020/02/25/business/25reuters-thomson-reuters-results.html?searchResultPosition=6
+
+**Mastercard CEO Ajay Banga to Step Down, Insider Miebach Tapped**\
+`Mastercard said on Tuesday Chief Executive Officer Ajay Banga will step down at the start of the next year and will be replaced by Chief Product Officer Michael Miebach.`\
+https://nytimes.com/reuters/2020/02/25/business/25reuters-mastercard-ceo.html?searchResultPosition=7
+
 **Mallinckrodt to Settle Opioid Claims for $1.6 Billion, Generic Unit to File Chapter 11**\
 `Drugmaker Mallinckrodt Plc said on Tuesday its specialty generic unit will file for bankruptcy protection as it agreed to settle opioid-related cases globally by paying $1.6 billion over eight years.  `\
-https://nytimes.com/reuters/2020/02/25/world/americas/25reuters-mallinckrodt-settlement-opioid.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/02/25/world/americas/25reuters-mallinckrodt-settlement-opioid.html?searchResultPosition=8
 
 **Sanders to Be in Focus at South Carolina Debate as Rivals Aim to Slow His Surge**\
 `Surging front-runner Bernie Sanders will be in the hot seat at the Democratic debate in South Carolina on Tuesday, when his six presidential rivals try to derail his growing momentum before the next big round of nominating contests.`\
-https://nytimes.com/reuters/2020/02/25/world/americas/25reuters-usa-election-debate.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/02/25/world/americas/25reuters-usa-election-debate.html?searchResultPosition=9
 
 **'They Weren't Gonna Make It': Worker Delivers Baby on I-20**\
 `A routine road closure for a transportation worker in Mississippi turned into the quick delivery of a baby on the interstate.`\
-https://nytimes.com/aponline/2020/02/25/us/ap-us-transportation-worker-childbirth.html?searchResultPosition=5
-
-**Hot Pockets Heiress Faces Sentencing in U.S. College Admissions Scandal**\
-`A California woman whose family's company created the microwavable snack Hot Pockets faces sentencing on Tuesday for paying $300,000 to people who helped her two daughters cheat on college entrance exams and helped one win admission to the University of Southern California as a fake volleyball recruit.`\
-https://nytimes.com/reuters/2020/02/25/us/25reuters-usa-education-cheating.html?searchResultPosition=6
-
-**Pakistani Woman Accused of Blasphemy Seeks Asylum in France**\
-`A Christian woman acquitted of blasphemy after spending eight years on death row in Pakistan, and who faced death threats from Islamic extremists, said she is going to request asylum in France. `\
-https://nytimes.com/aponline/2020/02/25/world/europe/ap-eu-france-pakistan-blasphemy-asylum.html?searchResultPosition=7
-
-**Massive Changes to California Voting Spark Fears of Iowa-Style Primary Chaos**\
-`As he looks ahead to California's March 3 Democratic primary, Neal Kelley is having sleepless nights.`\
-https://nytimes.com/reuters/2020/02/25/us/politics/25reuters-usa-election-california.html?searchResultPosition=8
-
-**Chinese Consumers Snap Up Yoga Mats, Video Games, Condoms as Coronavirus Keeps Them at Home**\
-`As the coronavirus epidemic keeps hundreds of millions of Chinese stuck at home, they're shopping online to stave off boredom with games for Nintendo's Switch console, yoga mats, books and condoms all showing big jumps in orders.`\
-https://nytimes.com/reuters/2020/02/25/business/25reuters-china-health-consumer.html?searchResultPosition=9
-
-**Strong Fourth Quarter for Macy's Heading to Transition Year**\
-`Macy's is reporting stronger-than-expected sales and profits for the fourth quarter. `\
-https://nytimes.com/aponline/2020/02/25/business/ap-us-earns-macys.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/25/us/ap-us-transportation-worker-childbirth.html?searchResultPosition=10
 
