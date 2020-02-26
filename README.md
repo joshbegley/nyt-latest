@@ -1,5 +1,5 @@
 **Brazilian Who Visited Italy Is Feared to Be First Coronavirus Patient in Latin America**\
-`Health officials are scrambling to track the man’s movements. But they said they were hopeful that the illness would not spread quickly.`\
+`Health officials said they were awaiting the results of a second test to confirm whether he had the virus.`\
 https://nytimes.com/2020/02/26/world/americas/brazil-italy-coronavirus.html?searchResultPosition=1
 
 **Mom of Missing Toddler Accused of Filing False Police Report**\
