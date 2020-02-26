@@ -7,7 +7,7 @@ https://nytimes.com/2020/02/25/us/politics/grenell-intelligence-trump.html?searc
 https://nytimes.com/2020/02/25/arts/design/lacma-ahmanson-foundation-suspends-donations.html?searchResultPosition=2
 
 **The Basics of ‘Medicare for All’**\
-`What to know about the transformational health care plan of Bernie Sanders, plus further reading for the nerds among you.`\
+`What to know about Bernie Sanders’s health care plan, plus further reading for the nerds among you.`\
 https://nytimes.com/2020/02/25/upshot/medicare-for-all-basics-bernie-sanders.html?searchResultPosition=3
 
 **Ken Peters, AP Sports Writer Who Covered Olympics, Dies**\
