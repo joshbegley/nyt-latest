@@ -1,40 +1,40 @@
+**Disney Shares Down 2% After 'Surprise' CEO Change**\
+`Shares of Walt Disney Co fell 2% on Wednesday after the media giant's surprise move to replace top boss Bob Iger raised questions on Wall Street if his successor Bob Chapek had sufficient experience in the entertainment business.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-walt-disney-stocks.html?searchResultPosition=1
+
+**Jury Weighs Verdict for Ex-Barclays Bankers in Qatar Fee Trial**\
+`The jury in the London trial of three former Barclays bankers accused of funneling secret fees to Qatar in return for emergency funding during the financial crisis in 2008, retired to consider its verdict on Wednesday.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-britain-barclays-qatar.html?searchResultPosition=2
+
+**Futures Look for Direction After Four-Day Selloff**\
+`U.S. stock index futures were mixed on Wednesday after the Dow and the S&P 500 indexes suffered their sharpest four-day fall in more than two years on fears of the economic damage from the global spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-usa-stocks.html?searchResultPosition=3
+
+**Japan's Snow Town Turns Into Hotbed of Coronavirus Cases**\
+`Children played in the snow without masks on Wednesday but Japan's coldest prefecture has become a hotbed of coronavirus infections, shutting schools, raising fears about the Summer Olympics and halting tours of a whisky distillery.`\
+https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-japan-hokkaido.html?searchResultPosition=4
+
+**BlackRock Vice Chairman and Co-Founder Barbara Novick to Step Down**\
+`BlackRock Inc's vice chairman and co-founder, Barbara Novick, will step down from her day-to-day duties at the asset manager, according to an internal memo seen by Reuters.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-blackrock-moves.html?searchResultPosition=5
+
+**BP to Quit Main U.S. Refining Lobby Over Carbon Policy**\
+`BP will leave the main U.S. refining lobby and two other trade groups as new CEO Bernard Looney spurs some of the oil sector's most ambitious targets for curbing carbon emissions.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-bp-lobbying.html?searchResultPosition=6
+
+**Trump to Hold News Conference on Coronavirus US Threat**\
+`President Donald Trump said he'll discuss the coronavirus threat  at a White House news conference Wednesday, a day after he sought to minimize fears of the virus spreading widely across the U.S. `\
+https://nytimes.com/aponline/2020/02/26/us/politics/ap-us-trump-virus-outbreak.html?searchResultPosition=7
+
 **Abu Dhabi's Etihad Suspends Flights to Hong Kong on Low Demand**\
 `Abu Dhabi's Etihad Airways has suspended flights to Hong Kong until March 28, the airline said on Wednesday, citing a drop in demand.`\
-https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-etihad.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-etihad.html?searchResultPosition=8
 
 **Trump Will Hold White House News Conference on Coronavirus on Wednesday**\
 `U.S. President Donald Trump said he will hold a news conference on the coronavirus at 6 p.m. (2300 GMT) on Wednesday, as infections surge globally and U.S. health officials urge Americans to prepare for it to spread in the United States.`\
-https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-usa-whitehouse.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-usa-whitehouse.html?searchResultPosition=9
 
 **Factbox: What the EU Can Do to Tackle Coronavirus Outbreak in Europe**\
 `An outbreak of coronavirus in northern Italy last week has raised the alarm in the European Union over the epidemic, which until then had been mostly confined to China.`\
-https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-eu-factbox.html?searchResultPosition=3
-
-**5-Time Major Champ Maria Sharapova Retires From Tennis at 32**\
-`Maria Sharapova is retiring from professional tennis at the age of 32 after five Grand Slam titles and time ranked No. 1.`\
-https://nytimes.com/aponline/2020/02/26/sports/tennis/ap-ten-sharapova-retires.html?searchResultPosition=4
-
-**Right-Wing Politician Jansa Set to Become Slovenia's New PM**\
-`A veteran right-wing politician has been nominated to become Slovenia’s new prime minister following the resignation last month of a liberal head of government.`\
-https://nytimes.com/aponline/2020/02/26/world/europe/ap-eu-slovenia-government.html?searchResultPosition=5
-
-**I Can’t Hear You, There’s a Debate Going On**\
-`In a rush for attention at the Democrats’ noisy showdown, CBS’s moderators got stampeded.`\
-https://nytimes.com/2020/02/26/arts/television/south-carolina-democratic-debate.html?searchResultPosition=6
-
-**Police in Burundi Say 22 'Evil-Doers' Killed Near Capital**\
-`Police in Burundi say they have killed 22 “evil-doers” near the country’s economic capital, Bujumbura.`\
-https://nytimes.com/aponline/2020/02/26/world/africa/ap-af-burundi-killings.html?searchResultPosition=7
-
-**Should I Use Points and Miles to Book Wedding Travel?**\
-`You have no excuses now that the holidays have ended: It’s time to book travel for the wedding(s) you agreed to attend in 2020.`\
-https://nytimes.com/aponline/2020/02/26/business/bc-us-travel-nerdwallet-weddings-miles.html?searchResultPosition=8
-
-**Moody's Downgrades Auto Sales Forecast on Virus Fears**\
-`Ratings agency Moody's is lowering its forecast for global auto sales because of the new coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/02/26/world/europe/bc-eu-virus-outbreak-auto-sales.html?searchResultPosition=9
-
-**Maria Sharapova Is Retiring From Tennis at 32**\
-`Sharapova won five Grand Slam singles titles, but had trouble managing injuries as she attempted a comeback after being suspended for taking a banned substance.`\
-https://nytimes.com/2020/02/26/sports/maria-sharapova-retires.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-eu-factbox.html?searchResultPosition=10
 
