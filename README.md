@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/02/25/sports/hockey/bc-hkn-rangers-islanders.h
 https://nytimes.com/aponline/2020/02/25/sports/hockey/bc-hkn-jets-capitals.html?searchResultPosition=6
 
 **Childress, Demon Deacons Stun No. 7 Duke 113-101 in 2OT**\
-`Brandon Childress shook off an awful shooting start and hit a tying 3-pointer late in regulation to help Wake Forest stun seventh-ranked Duke 113-101 in double overtime on Tuesday night.`\
+`Brandon Childress shook off an awful shooting start, hit a tying 3-pointer late in regulation and helped Wake Forest stun seventh-ranked Duke 113-101 in double overtime on Tuesday night.`\
 https://nytimes.com/aponline/2020/02/25/sports/ncaabasketball/bc-bkc-t25-duke-wake-forest.html?searchResultPosition=7
 
 **Toffoli Scores in Overtime, Canucks Beat Canadiens 4-3**\
