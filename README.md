@@ -1,40 +1,40 @@
+**Should Robots Have a Face?**\
+`As automation comes to retail industries, companies are giving machines more humanlike features in order to make them liked, not feared.`\
+https://nytimes.com/2020/02/26/business/robots-retail-jobs.html?searchResultPosition=1
+
+**Former Neo-Nazi Leader Arrested in Virginia Swatting Scheme**\
+`Prosecutors say a former neo-Nazi leader in Texas has been arrested and charged with a series phony bomb threats made in Virginia.`\
+https://nytimes.com/aponline/2020/02/26/us/ap-us-swatting-neo-nazi.html?searchResultPosition=2
+
+**Lowe's Disappoints on 4Q Sales, Full-Year Outlook**\
+`Lowe's Cos. delivered weaker-than-expected sales for its fiscal fourth quarter and offered an annual forecast that came below Wall Street expectations.`\
+https://nytimes.com/aponline/2020/02/26/business/ap-us-results-lowes.html?searchResultPosition=3
+
+**Klobuchar Ramped Up Prosecutions, Except in Cases Against Police**\
+`The candidate has faced tough questions about a disputed murder conviction and her record of seeking stiff sentences while declining to prosecute police shootings.`\
+https://nytimes.com/2020/02/26/us/klobuchar-prosecutor-myon-burrell.html?searchResultPosition=4
+
+**What to See Right Now in New York Art Galleries**\
+`Gladys Nilsson’s “Honk! Fifty Years of Painting”; Edgar Heap of Birds and the power of text-based art; Loretta Fahrenholz’s Elsa dolls.`\
+https://nytimes.com/2020/02/26/arts/design/art-galleries-new-york.html?searchResultPosition=5
+
 **This Is How to Do a Beethoven Symphony Cycle**\
 `John Eliot Gardiner’s period-instrument survey at Carnegie Hall was a reintroduction to some of the world’s most famous music.`\
-https://nytimes.com/2020/02/26/arts/music/beethoven-carnegie-hall.html?searchResultPosition=1
+https://nytimes.com/2020/02/26/arts/music/beethoven-carnegie-hall.html?searchResultPosition=6
 
 **Louisiana Governor: Judge Should Resign After Racial Slurs**\
 `Gov. John Bel Edwards called Wednesday on a Louisiana judge to step down after she admitted to using racial slurs in angry text messages. The Democratic governor said the “state deserves better.” `\
-https://nytimes.com/aponline/2020/02/26/us/ap-us-louisiana-judge-racial-slurs.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/02/26/us/ap-us-louisiana-judge-racial-slurs.html?searchResultPosition=7
 
 **AP Interviews: Swimmers Concerned Olympics Will Be Canceled**\
 `If any thoughts were creeping into their minds that the Tokyo Olympics might be canceled because of a viral outbreak, elite swimmers Katinka Hosszú, Chad le Clos and Sarah Sjöström certainly didn’t show it during a strenuous two-hour training session Wednesday.`\
-https://nytimes.com/aponline/2020/02/26/sports/olympics/ap-oly-swimming-virus-outbreak.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/02/26/sports/olympics/ap-oly-swimming-virus-outbreak.html?searchResultPosition=8
 
 **Woman Accused of Leaving Her Boyfriend in Suitcase to Die**\
 `Authorities in Florida have arrested a woman accused of zipping her boyfriend into a suitcase, recording his repeated cries for help and leaving him locked inside until he died, according to sheriff's office documents.`\
-https://nytimes.com/aponline/2020/02/26/us/ap-us-suitcase-killing.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/02/26/us/ap-us-suitcase-killing.html?searchResultPosition=9
 
 **Finnish Minister: EU Needs to Establish Own OS, Web Browser**\
 `A top Finnish government member wants the European Union to develop its own computer operating system and internet browser to reduce reliance in the 27-nation bloc on tech giants.`\
-https://nytimes.com/aponline/2020/02/26/business/bc-eu-finland-eu-operating-system.html?searchResultPosition=5
-
-**Parties to Iran Nuclear Deal Meet but Make Little Progress on Saving It**\
-`Parties to Iran's nuclear deal made little progress on Wednesday toward saving the agreement as Iran is still breaching many of its central terms in response to U.S. sanctions, but efforts to ease Tehran's economic pain continued, delegates said.`\
-https://nytimes.com/reuters/2020/02/26/world/middleeast/26reuters-iran-nuclear-deal.html?searchResultPosition=6
-
-**Bibi vs. Tibi: Israel's Netanyahu Fires Up Base by Targeting Arab Lawmaker**\
-`"Bibi or Tibi" is the election slogan hammered home at nearly every opportunity on the campaign trail by Israeli Prime Minister Benjamin Netanyahu.`\
-https://nytimes.com/reuters/2020/02/26/world/middleeast/26reuters-israel-election-netanyahu-arabs.html?searchResultPosition=7
-
-**Bangladesh Rethinks Plan to Move Rohingya Refugees to Island: Minister**\
-`Bangladesh is reconsidering a plan to relocate Rohingya refugees to a flood-prone island located hours by boat from its coast, junior minister for disaster management and relief Enamur Rahman told Reuters on Wednesday.`\
-https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-myanmar-rohingya-bangladesh.html?searchResultPosition=8
-
-**Ethiopia Asks U.S. to Postpone Final Talks on Blue Nile Dam**\
-`Ethiopia has asked the United States to postpone what was expected to be the final round of talks on the giant Blue Nile hydropower dam, it said on Wednesday, delaying the potential resolution of a dispute that sparked a years-long diplomatic crisis. `\
-https://nytimes.com/reuters/2020/02/26/world/africa/26reuters-ethiopia-egypt.html?searchResultPosition=9
-
-**U.S. Targets Individuals, Entities Linked to Lebanon's Martyrs Foundation**\
-`The United States on Wednesday added a host of Lebanese individuals and entities it said were linked to the Martyrs Foundation to its designated "global terrorists" lists, according to a notice on the U.S. Treasury Department's website.`\
-https://nytimes.com/reuters/2020/02/26/world/middleeast/26reuters-usa-lebanon.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/26/business/bc-eu-finland-eu-operating-system.html?searchResultPosition=10
 
