@@ -1,40 +1,40 @@
+**U.S. FTC Files Suit to Block Peabody and Arch Coal JV in Wyoming**\
+`The U.S. Federal Trade Commission said on Wednesday it has filed a lawsuit to block a joint venture in Wyoming between coal mining companies Peabody Energy Corporation and Arch Coal because it would allegedly eliminate competition.`\
+https://nytimes.com/reuters/2020/02/26/us/26reuters-peabody-energy-arch-coal-antitrust.html?searchResultPosition=1
+
+**Senior House Democrat Clyburn Endorses Biden for President**\
+`James Clyburn, the No. 3 Democrat in the House of Representatives and an influential black legislator from the early voting state of South Carolina, said on Wednesday he would endorse former U.S. Vice President Joe Biden's bid for president.`\
+https://nytimes.com/reuters/2020/02/26/us/politics/26reuters-usa-election-clyburn.html?searchResultPosition=2
+
+**Top Senate Democrat to Press for $8.5 Billion for U.S. Coronavirus Response: Source**\
+`The top Democrat in the U.S. Senate is preparing a spending proposal seeking $8.5 billion to bolster the nation's coronavirus response, a senior Senate Democratic aide told Reuters on Wednesday.`\
+https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-usa-democrats.html?searchResultPosition=3
+
+**Presidential Hopeful Warren Latest to Press BlackRock on Climate**\
+`U.S. Senator Elizabeth Warren, one of several vying to be the Democratic party's presidential nominee, this week pressed the world's largest asset manager for details on its recent vows to take more account of climate risks.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-usa-election-warren-blackrock.html?searchResultPosition=4
+
+**Lloyd's of London to Test First Electronic Insurance Exchange**\
+`Lloyd's of London will pilot an electronic exchange to handle simple insurance risks this year, it said in a strategy update on Wednesday, as the 330-year old commercial insurance market seeks to modernize.`\
+https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-lloyd-s-of-london-strategy-update.html?searchResultPosition=5
+
+**Electrolux Says Implementing Italy Travel Ban Until March 9 Due to Coronavirus**\
+`Swedish home appliance maker Electrolux said on Wednesday it had decided on ban travel by its employees to and from Italy, where it has manufacturing facilities in some regions affected by the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-china-health-electrolux.html?searchResultPosition=6
+
+**Google to Invest Over $10 Billion in 2020 on U.S. Data Centers, Offices**\
+`Alphabet Inc's Google said on Wednesday it would invest more than $10 billion in offices and data centers across the United States this year.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-alphabet-investment.html?searchResultPosition=7
+
+**Woman Charged After Mom's Life Support Is Briefly Turned Off**\
+`A woman has been charged with attempted murder after telling police that she cut tubes and turned off her mother's ventilator at a Michigan medical facility because she couldn't watch her “in all the pain,” a news organization reported.`\
+https://nytimes.com/aponline/2020/02/26/us/ap-us-mom-life-support.html?searchResultPosition=8
+
 **Enough**\
 `Party leaders have a role to play now.`\
-https://nytimes.com/2020/02/26/opinion/democratic-debate.html?searchResultPosition=1
+https://nytimes.com/2020/02/26/opinion/democratic-debate.html?searchResultPosition=9
 
 **Sandoz to Keep Prices Stable on Coronavirus-Relevant Drugs**\
 `Novartis subsidiary Sandoz on Wednesday said it would keep prices stable on a basket of medicines which may help to treat coronavirus patients, responding to recent concerns over potential drug shortfalls and price spikes in the wake of the coronavirus break.`\
-https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-china-health-medicine-novartis.html?searchResultPosition=2
-
-**Trump Returns to U.S. as Country Warily Eyes Spread of Coronavirus**\
-`President Donald Trump returned to Washington on Wednesday to face increasing concerns over the coronavirus as U.S. public health officials warned Americans to prepare for a possible outbreak and financial markets remained on edge. `\
-https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-usa-trump.html?searchResultPosition=3
-
-**Facebook to Ban Misleading Ads About Coronavirus**\
-`Facebook Inc said on Wednesday it would ban advertisements referring to any cures or prevention around the coronavirus outbreak, and those that create a sense of urgency around the situation.`\
-https://nytimes.com/reuters/2020/02/26/technology/26reuters-china-health-facebook.html?searchResultPosition=4
-
-**Laurie Anderson Among New Arts Academy Inductees**\
-`Like many incoming members of the American Academy of Arts and Letters, Laurie Anderson didn't know a lot about the venerable honor society until she was asked to join it.`\
-https://nytimes.com/aponline/2020/02/26/us/ap-us-arts-academy.html?searchResultPosition=5
-
-**Frenchman Dead From Coronavirus Had Not Been to Infected Area**\
-`The Frenchman who became the second person in France suffering from the coronavirus to die had not traveled to any zones where the outbreak was known, the director of the Hauts de France health agency said on Wednesday. `\
-https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-china-health-france-oise.html?searchResultPosition=6
-
-**Russia Suspends Some South Korea Flights, Iranian Visas Over Coronavirus**\
-`Russian Deputy Prime Minister Tatiana Golikova said on Wednesday Moscow would suspend flights between Russia and South Korea from March 1 over coronavirus fears, except those operated by Aeroflot and Aurora. `\
-https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-russia-restrictions.html?searchResultPosition=7
-
-**South Africa Giving Billions to Struggling State-Owned Firms**\
-`South Africa on Wednesday announced an additional $3.5 billion in government spending for struggling state-owned power utility Eskom and national carrier South African Airways over the next three years as the country’s weak economy faces an electricity crisis. `\
-https://nytimes.com/aponline/2020/02/26/world/africa/ap-af-south-africa-budget-speech.html?searchResultPosition=8
-
-**Thai Student Rallies Protest Dissolution of Opposition Party**\
-`Thailand's normally docile students have been holding rallies around the country to express their discontent with the established political order.`\
-https://nytimes.com/aponline/2020/02/26/world/asia/ap-as-thailand-student-protests.html?searchResultPosition=9
-
-**US New-Home Sales Climbed 7.9% in January**\
-`U.S. sales of new homes jumped 7.9% in January to the fastest pace in more than 12 years, a positive sign for economic growth.`\
-https://nytimes.com/aponline/2020/02/26/business/bc-us-new-home-sales.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-china-health-medicine-novartis.html?searchResultPosition=10
 
