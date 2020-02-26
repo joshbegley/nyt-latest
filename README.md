@@ -1,40 +1,40 @@
-**French Riviera City Cancels Carnival Over Coronavirus Fears**\
-`The French Mediterranean city of Nice has canceled the last major day of its carnival due to concerns over the spreading coronavirus outbreak in Europe, its mayor said on Wednesday. `\
-https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-france-carnival.html?searchResultPosition=1
+**Giants Cut LBs Ogletree, Martin**\
+`Linebacker Alec Ogletree was released by the New York Giants on Wednesday. The move was expected after the team captain shifted into a limited role in 2019.`\
+https://nytimes.com/reuters/2020/02/26/sports/football/26reuters-football-nfl-nyg-ogletree.html?searchResultPosition=1
 
-**North Macedonia Confirms First Case of Coronavirus**\
-`North Macedonia has confirmed its first case of the coronavirus infection, diagnosed in a woman who recently returned home from Italy, the health minister said on Wednesday.`\
-https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-china-health-north-macedonia.html?searchResultPosition=2
+**Berlin Stars in Tale of a Refugee's Hunger to Belong**\
+`Away from Berlin's clubs, far from the tourist hotspots, young drug dealers, many of them immigrants, eke out a marginal existence on the fringes of the city: theirs is the story of Afghan-German director Burhan Qurbani's "Berlin Alexanderplatz".`\
+https://nytimes.com/reuters/2020/02/26/arts/26reuters-filmfestival-berlin-alexanderplatz.html?searchResultPosition=2
 
-**Coronavirus Lockdown: The Heroes Risking Their Health for Italy’s 'Red Zone'**\
-`"There is me and my shadow," primary school teacher Marzio Toniolo says, standing alone in a usually bustling car park in northern Italy's coronavirus "red zone".`\
-https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-china-health-italy-red-zone-diary.html?searchResultPosition=3
+**On Education, Sanders Lauded for Substance, Knocked for Cost**\
+`During the 2016 Democratic presidential race, when Bernie Sanders pushed making college free, it was seen as a radical idea from a fringe candidate. `\
+https://nytimes.com/aponline/2020/02/26/us/politics/ap-us-election-2020-sanders-education.html?searchResultPosition=3
 
-**White House Is Considering Appointment of Coronavirus 'Sideczar': Politico**\
-`The White House is considering appointing a coronavirus "czar" to coordinate the U.S. response to the disease, Politico reported on Wednesday, citing two officials familiar with the matter.`\
-https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-usa-czar.html?searchResultPosition=4
+**Feds Requested Release of Man Now Charged in Michigan Deaths**\
+`Federal authorities had requested that a convicted felon recently charged in two recent Detroit-area slayings and suspected in at least four others stay out of custody despite several arrests and probation violations over the past few years.`\
+https://nytimes.com/aponline/2020/02/26/us/ap-us-michigan-slayings-suspect-shot.html?searchResultPosition=4
 
-**The Honda Classic Is Much More Than 'The Bear Trap'**\
-`PGA National’s signature test is a three-hole span on the back nine called “The Bear Trap,” named for Jack Nicklaus and touted as one of the most demanding stretches in all of golf.`\
-https://nytimes.com/aponline/2020/02/26/sports/golf/ap-glf-honda-classic.html?searchResultPosition=5
+**The Moody's Blues: How Low Could South Africa's Rating Go?**\
+`Wednesday budget should decide the fate of South Africa's solitary remaining investment grade credit rating, but with many in the country already resigned to its loss the bigger question might be how low could it go.`\
+https://nytimes.com/reuters/2020/02/26/world/africa/26reuters-safrica-budget-ratings-analysis.html?searchResultPosition=5
 
-**Retail Group Sees Solid Sales Growth This Year**\
-`The nation's largest retail trade group forecasts that retail sales should grow between 3.5% and 4.1% to more than $3.9 trillion this year despite uncertainty from the lingering trade war, the new virus and the presidential election. `\
-https://nytimes.com/aponline/2020/02/26/business/ap-us-retail-sales-annual-forecast.html?searchResultPosition=6
+**U.S. Retail Sales Expected to Cross $3.9 Trillion in 2020: NRF**\
+`U.S. retail sales are expected to rise between 3.5% and 4.1% to more than $3.9 trillion this year, the National Retail Federation (NRF) said on Wednesday, despite fears surrounding the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-usa-retail-outlook.html?searchResultPosition=6
 
-**‘Nobody Likes’ Bernie Sanders. It Doesn’t Matter.**\
-`In American politics now, ideas are more important than charm.`\
-https://nytimes.com/2020/02/26/opinion/bernie-sanders.html?searchResultPosition=7
+**Germany May Ease Debt Limit Rules as Pressure to Spend More Grows**\
+`Germany's government is considering suspending strict rules on the amount of debt it can raise, the finance ministry said on Wednesday, as it faces growing pressure to kick-start a sluggish economy by spending more.`\
+https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-germany-politics-debt-brake.html?searchResultPosition=7
 
-**Bayer Board Chairman Steps Down Amid Weedkiller Legal Battle**\
-`Bayer AG board chairman Werner Wenning is stepping down from his post at the drug and chemical company, which is facing a major legal battle over its Roundup weed killer. `\
-https://nytimes.com/aponline/2020/02/26/world/europe/ap-eu-germany-bayer.html?searchResultPosition=8
+**Spain's Zarzuela Theatre Cancels Spanish Opera Singer Placido Domingo's Performances in Madrid in May**\
+`Spain's Ministry of Culture said on Wednesday it has canceled Placido Domingo's performances at Madrid's Zarzuela Theatre scheduled for May. `\
+https://nytimes.com/reuters/2020/02/26/arts/26reuters-spain-domingo.html?searchResultPosition=8
 
-**Mubarak’s Three-Decade Rule Is Brushed Aside in War-Hero Burial**\
-`A funeral for Hosni Mubarak, Egypt’s former ruler, highlighted his military record but sought to play down his position as the country’s longest-serving president.`\
-https://nytimes.com/2020/02/26/world/middleeast/egypt-mubarak-funeral.html?searchResultPosition=9
+**Morgan Stanley Conference-Goers Asked to Self-Report Coronavirus Exposure**\
+`Morgan Stanley is asking anyone who is attending its technology, media and telecom conference in California next week to report if they have visited several countries that have reported coronavirus cases in recent weeks.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-morgan-stanley-coronavirus.html?searchResultPosition=9
 
-**She Had Pain in Her Knee but No Obvious Injury. Why?**\
-`An 11-year-old athlete was suffering from pain, but all her tests kept coming back negative. What was going on?`\
-https://nytimes.com/2020/02/26/magazine/knee-pain-figure-skating.html?searchResultPosition=10
+**Delta Cutting Flights to South Korea Amid Coronavirus Outbreak**\
+`Delta Air Lines said Wednesday it will temporarily cut flights from South Korea citing global health concerns related to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-china-health-airlines.html?searchResultPosition=10
 
