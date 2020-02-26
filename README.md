@@ -1,40 +1,40 @@
-**Abu Dhabi's Etihad Suspends Flights to Hong Kong on Low Demand**\
-`Abu Dhabi's Etihad Airways has suspended flights to Hong Kong until March 28, the airline said on Wednesday, citing a drop in demand.`\
-https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-etihad.html?searchResultPosition=1
+**TJX Same-Store Sales Top Expectations, Shares Rise**\
+`TJX Cos Inc topped quarterly same-store sales estimates on Wednesday, as more customers shopped at the off-price retailer's T.J. Maxx and Marshalls' stores during the holiday shopping period, sending its shares up 6%.`\
+https://nytimes.com/reuters/2020/02/26/us/26reuters-tjx-results.html?searchResultPosition=1
 
-**Trump Will Hold White House News Conference on Coronavirus on Wednesday**\
-`U.S. President Donald Trump said he will hold a news conference on the coronavirus at 6 p.m. (2300 GMT) on Wednesday, as infections surge globally and U.S. health officials urge Americans to prepare for it to spread in the United States.`\
-https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-usa-whitehouse.html?searchResultPosition=2
+**Virus Scare Questions European Stocks' Modest Outlook: Reuters Poll**\
+`An elusive domestic economic recovery and a hit to supply chains from China's coronavirus epidemic mean prospects for European stocks this year are modest and vulnerable to any further spread of the disease that has already killed thousands.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-europe-stocks-poll.html?searchResultPosition=2
 
-**Factbox: What the EU Can Do to Tackle Coronavirus Outbreak in Europe**\
-`An outbreak of coronavirus in northern Italy last week has raised the alarm in the European Union over the epidemic, which until then had been mostly confined to China.`\
-https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-eu-factbox.html?searchResultPosition=3
+**U.S. Stocks to Rise in 2020, but Virus, Presidential Race Pose Risks: Reuters Poll**\
+`The U.S. stock market is likely to rack up solid gains this year, but it's vulnerable to a correction if the effect of the  coronavirus outbreak worsens or the U.S. presidential race rattles investors, according to strategists in a Reuters poll.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-usa-stocks-poll.html?searchResultPosition=3
 
-**5-Time Major Champ Maria Sharapova Retires From Tennis at 32**\
-`Maria Sharapova is retiring from professional tennis at the age of 32 after five Grand Slam titles and time ranked No. 1.`\
-https://nytimes.com/aponline/2020/02/26/sports/tennis/ap-ten-sharapova-retires.html?searchResultPosition=4
+**What to Know About Proposition 13**\
+`Wednesday: No, not that Proposition 13. Also: Disney’s chief executive steps down.`\
+https://nytimes.com/2020/02/26/us/california-prop-13-pros-cons.html?searchResultPosition=4
 
-**Right-Wing Politician Jansa Set to Become Slovenia's New PM**\
-`A veteran right-wing politician has been nominated to become Slovenia’s new prime minister following the resignation last month of a liberal head of government.`\
-https://nytimes.com/aponline/2020/02/26/world/europe/ap-eu-slovenia-government.html?searchResultPosition=5
+**Police: Man Upset at Nurses Sets Fire to Hospital Bed**\
+`A Florida man set fire to his hospital bed in an attempt to get the attention of nurses because he felt that they were ignoring him, police said.`\
+https://nytimes.com/aponline/2020/02/26/us/ap-us-hospital-bed-fire.html?searchResultPosition=5
 
-**I Can’t Hear You, There’s a Debate Going On**\
-`In a rush for attention at the Democrats’ noisy showdown, CBS’s moderators got stampeded.`\
-https://nytimes.com/2020/02/26/arts/television/south-carolina-democratic-debate.html?searchResultPosition=6
+**Maison Margiela: Fall 2020**\
+`See the looks from the Maison Margiela: Fall 2020 Collection.`\
+https://nytimes.com/slideshow/2020/02/26/fashion/runway-womens/maison-margiela-fall-2020.html?searchResultPosition=6
 
-**Police in Burundi Say 22 'Evil-Doers' Killed Near Capital**\
-`Police in Burundi say they have killed 22 “evil-doers” near the country’s economic capital, Bujumbura.`\
-https://nytimes.com/aponline/2020/02/26/world/africa/ap-af-burundi-killings.html?searchResultPosition=7
+**Ford's Incoming COO Focuses on Cost Cuts, Launches, Change**\
+`Ford Motor Co's incoming chief operating officer outlined his priorities for the company's turnaround on Wednesday, including cost cuts and more efficient new-vehicle launches in a year in which it will introduce a redesigned F-150 full-sized pickup truck. `\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-ford-motor-coo.html?searchResultPosition=7
 
-**Should I Use Points and Miles to Book Wedding Travel?**\
-`You have no excuses now that the holidays have ended: It’s time to book travel for the wedding(s) you agreed to attend in 2020.`\
-https://nytimes.com/aponline/2020/02/26/business/bc-us-travel-nerdwallet-weddings-miles.html?searchResultPosition=8
+**Too Early for the ECB to Contemplate Coronavirus Response: Makhlouf**\
+`It is too early for the European Central Bank to assess whether it needs to respond to the coronavirus epidemic with policy, even if the epidemic presents a risk to growth, Irish central bank chief Gabriel Makhlouf said on Wednesday.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-china-health-ecb.html?searchResultPosition=8
 
-**Moody's Downgrades Auto Sales Forecast on Virus Fears**\
-`Ratings agency Moody's is lowering its forecast for global auto sales because of the new coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/02/26/world/europe/bc-eu-virus-outbreak-auto-sales.html?searchResultPosition=9
+**Disney Shares Down 2% After 'Surprise' CEO Change**\
+`Shares of Walt Disney Co fell 2% on Wednesday after the media giant's surprise move to replace top boss Bob Iger raised questions on Wall Street if his successor Bob Chapek had sufficient experience in the entertainment business.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-walt-disney-stocks.html?searchResultPosition=9
 
-**Maria Sharapova Is Retiring From Tennis at 32**\
-`Sharapova won five Grand Slam singles titles, but had trouble managing injuries as she attempted a comeback after being suspended for taking a banned substance.`\
-https://nytimes.com/2020/02/26/sports/maria-sharapova-retires.html?searchResultPosition=10
+**Jury Weighs Verdict for Ex-Barclays Bankers in Qatar Fee Trial**\
+`The jury in the London trial of three former Barclays bankers accused of funneling secret fees to Qatar in return for emergency funding during the financial crisis in 2008, retired to consider its verdict on Wednesday.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-britain-barclays-qatar.html?searchResultPosition=10
 
