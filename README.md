@@ -20,7 +20,7 @@ https://nytimes.com/2020/02/25/us/politics/south-carolina-debate-audience.html?s
 
 **Second Cruise Ship Blocked From Ports Over Coronavirus Fears**\
 `After a crew member with flu symptoms was reported, Jamaican and Cayman health authorities have refused to let passengers disembark.`\
-https://nytimes.com/2020/02/25/travel/second-cruise-ship-blocked-from-ports-over-coronavirus-fears.html?searchResultPosition=6
+https://nytimes.com/2020/02/25/travel/cruise-ship-corona.html?searchResultPosition=6
 
 **San Francisco Declares Emergency Over Coronavirus**\
 `San Francisco declared a local emergency over the coronavirus on Tuesday, despite having no cases, as U.S. officials urged Americans to prepare for the spread of infections within their communities.`\
