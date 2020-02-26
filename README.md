@@ -15,7 +15,7 @@ https://nytimes.com/2020/02/26/arts/music/pop-smoke-murder-investigation.html?se
 https://nytimes.com/2020/02/26/climate/nyt-climate-newsletter-coronavirus.html?searchResultPosition=4
 
 **Clive Cussler, Best-Selling Author and Adventurer, Is Dead at 88**\
-`His literary fantasies and larger-than-life exploits swirled together for decades. He wrote some 70 books and located almost as many shipwrecks. No less than 100 million copies of his books were sold.`\
+`His literary fantasies and larger-than-life exploits swirled together for decades. He wrote some 70 books, selling no fewer than 100 million copies, and located scores of shipwrecks.`\
 https://nytimes.com/2020/02/26/books/clive-cussler-dead.html?searchResultPosition=5
 
 **Trial of U.S. Men Accused of Killing Italian Policeman Opens in Rome**\
