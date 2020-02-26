@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/02/26/world/europe/ap-eu-virus-outbreak-france
 https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-syria-security-turkey.html?searchResultPosition=5
 
 **Iran Raises Its Death Toll to 19 Amid 139 Coronavirus Cases**\
-`Iranian state television says 19 people have been killed by the new coronavirus amid 139 confirmed cases in the country so far.`\
+`Iran's president said Tehran has no immediate plans to quarantine cities over the new coronavirus rapidly spreading across the country, even as the Islamic Republic suffers the highest death toll outside of China with 19 killed amid 139 cases confirmed on Wednesday.`\
 https://nytimes.com/aponline/2020/02/26/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=6
 
 **Thai King Signs Delayed $100 Billion Budget Into Law**\
