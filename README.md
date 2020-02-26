@@ -1,40 +1,40 @@
+**Coronavirus in New York: $40 Million to Combat Spread**\
+`The state still has no confirmed cases of coronavirus, but it has set in motion preparations and funding to deal with an expected influx of cases.`\
+https://nytimes.com/2020/02/26/nyregion/coronavirus-new-york-cuomo.html?searchResultPosition=1
+
+**An Interrogation Program Worked Out on the Fly**\
+`Testimony at Guantánamo Bay shows that C.I.A. black sites, where some detainees were tortured, amounted to test labs for unproven techniques, with shifting rules shaping operations.`\
+https://nytimes.com/2020/02/26/us/politics/interrogation-torture-guantanamo.html?searchResultPosition=2
+
+**US Adds Leader of Iraqi Militia to Terrorism Blacklist**\
+`The Trump administration on Wednesday added the head of an Iran-backed Iraqi militia responsible for attacks on U.S. troops in Iraq to its terrorism blacklist.`\
+https://nytimes.com/aponline/2020/02/26/us/politics/ap-us-united-states-iraq.html?searchResultPosition=3
+
+**U.S. Targets Iranian-Backed Militia Active in Iraq: State Department**\
+`The United States is intensifying pressure on the Iranian-backed Kataib Hezbollah militia and its leader, the State Department said on Wednesday, citing the group linked to killing of an American contractor in Iraq in December.`\
+https://nytimes.com/reuters/2020/02/26/world/middleeast/26reuters-usa-iraq-militia.html?searchResultPosition=4
+
+**Ireland’s Center-Right Parties, Greens to Hold Post-Election Talks**\
+`Acting Irish Prime Minister Leo Varadkar told his parliamentary party on Wednesday that there was currently no basis to negotiate a government program with other parties, but that he would hold talks with the only two viable coalition partners next week.`\
+https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-ireland-election.html?searchResultPosition=5
+
+**U.N. Decries Nearly 50% Increase in Killings of Women Activists in Colombia**\
+`Killings of women engaged in community organizing and defending human rights in Colombia increased nearly 50% in 2019 compared to the year before, the United Nations said on Wednesday as it urged the government to redouble protection efforts.`\
+https://nytimes.com/reuters/2020/02/26/world/americas/26reuters-colombia-rights.html?searchResultPosition=6
+
+**Son of Mexican Cartel Boss to Stay in Custody, Pending Trial**\
+`A federal judge on Wednesday declined to release the son of a fugitive Mexican drug kingpin pending the start of the son's narcotics trial. `\
+https://nytimes.com/aponline/2020/02/26/us/politics/ap-us-drug-kingpins-son.html?searchResultPosition=7
+
 **Albanian Dictator Hoxha's Widow, His Staunchest Defender, Dies at 99**\
 `Nexhmije Hoxha, the widow of Albania's Stalinist dictator Enver Hoxha, died on Tuesday aged 99, her son said, having fallen dramatically from grace following his death but remaining the staunchest defender of his isolationist regime.`\
-https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-albania-hoxha.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-albania-hoxha.html?searchResultPosition=8
 
 **U.S. Renewable Fuel Prices Climb 25% After Report on Small Refinery Waiver Program**\
 `U.S. renewable fuel prices rose 25% on Wednesday, traders said, after a Bloomberg report stated that the Trump administration has decided to pare exemptions for oil refineries from the nation's biofuel blending laws.`\
-https://nytimes.com/reuters/2020/02/26/us/26reuters-usa-biofuels-rins.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/02/26/us/26reuters-usa-biofuels-rins.html?searchResultPosition=9
 
 **Hype for Pelicans' Zion Reaches Peak in LeBron Clash**\
 `New Orleans Pelicans rookie Zion Williamson has the kind of athleticism that is leaving NBA arenas gasping, even if he doesn't take much notice. `\
-https://nytimes.com/reuters/2020/02/26/sports/basketball/26reuters-basketball-nba-nop-williamson.html?searchResultPosition=3
-
-**Ticketmaster Says It Will Only Tell Buyers Real Ticket Costs if Required**\
-`Ticketmaster and other online ticketing companies said Wednesday they support rules to require upfront disclosure of all the fees tacked on to concert and sporting events tickets, but only if all ticket sellers are required to do so by law.`\
-https://nytimes.com/reuters/2020/02/26/technology/26reuters-ticketmaster-congress.html?searchResultPosition=4
-
-**Police Respond to 'Critical Incident' at MillerCoors**\
-`Milwaukee police are responding to what they are calling a “critical incident” on the MillerCoors campus amid reports of a possible shooting.`\
-https://nytimes.com/aponline/2020/02/26/us/ap-us-milwaukee-shooting.html?searchResultPosition=5
-
-**California's Self-Driving Car Companies Cover 2.9 Million Miles in 2019: DMV**\
-`Self-driving car companies in California covered nearly 2.9 million miles on public roads during 2019, the state's Department of Motor Vehicles said on Wednesday.`\
-https://nytimes.com/reuters/2020/02/26/business/26reuters-autos-self-driving-california.html?searchResultPosition=6
-
-**Horse Riding Plus Brain-Building Exercises May Help Kids With Autism, ADHD**\
-`A combination of horseback riding and brain-building activities may help improve motor skills in children with neurodevelopmental conditions like autism-spectrum disorders and ADHD, a small study suggests.`\
-https://nytimes.com/reuters/2020/02/26/us/26reuters-health-brain-horse-therapy.html?searchResultPosition=7
-
-**Qatar Orders Evacuation of Its Citizens and Kuwait's From Iran: State News Agency**\
-`Qatar's ruler Emir Sheikh Tamim bin Hamad al-Thani on Wednesday ordered the evacuation of Qatari and Kuwaiti citizens from Iran due to the spreading of the coronavirus COVID-19, state news agency reported on twitter.`\
-https://nytimes.com/reuters/2020/02/26/world/middleeast/26reuters-china-health-qatar.html?searchResultPosition=8
-
-**Whistleblower in Michigan Doctor Sexual Abuse Case to Speak**\
-`The whistleblower in the University of Michigan sexual abuse case and another accuser are scheduled to speak at a news conference Thursday.`\
-https://nytimes.com/aponline/2020/02/26/sports/ap-us-university-of-michigan-doctor.html?searchResultPosition=9
-
-**Norway Detects Its First Case of Coronavirus**\
-`Norway's Public Health Agency (FHI) said on Wednesday that one person had tested positive for coronavirus and was being kept isolated at home, in what was the country's first confirmed case.`\
-https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-china-health-norway.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/26/sports/basketball/26reuters-basketball-nba-nop-williamson.html?searchResultPosition=10
 
