@@ -1,40 +1,40 @@
-**Amy Klobuchar Needs Black Voters, but Some Feel 'Peripheral'**\
-`It took several weeks and about two dozen emails before Amy Klobuchar agreed to sit down with the president of the progressive racial justice organization Color of Change for his videotaped podcast on the 2020 presidential race, just as almost every other candidate has done.`\
-https://nytimes.com/aponline/2020/02/26/us/politics/ap-us-election-2020-klobuchar.html?searchResultPosition=1
+**French Riviera City Cancels Carnival Over Coronavirus Fears**\
+`The French Mediterranean city of Nice has canceled the last major day of its carnival due to concerns over the spreading coronavirus outbreak in Europe, its mayor said on Wednesday. `\
+https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-france-carnival.html?searchResultPosition=1
 
-**Managing Remote Workers? It Takes More Than the Latest Apps**\
-`Nicolas Vandenberghe's company has 42 staffers scattered among 36 cities in 15 countries. As technology makes it possible for people to be in constant touch while working remotely, businesses like Chili Piper are becoming the norm.`\
-https://nytimes.com/aponline/2020/02/26/business/ap-us-smallbiz-small-talk-managing-remote-staffers.html?searchResultPosition=2
+**North Macedonia Confirms First Case of Coronavirus**\
+`North Macedonia has confirmed its first case of the coronavirus infection, diagnosed in a woman who recently returned home from Italy, the health minister said on Wednesday.`\
+https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-china-health-north-macedonia.html?searchResultPosition=2
 
-**Should Robots Have a Face?**\
-`As automation comes to retail industries, companies are giving machines more humanlike features in order to make them liked, not feared.`\
-https://nytimes.com/2020/02/26/business/robots-retail-jobs.html?searchResultPosition=3
+**Coronavirus Lockdown: The Heroes Risking Their Health for Italy’s 'Red Zone'**\
+`"There is me and my shadow," primary school teacher Marzio Toniolo says, standing alone in a usually bustling car park in northern Italy's coronavirus "red zone".`\
+https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-china-health-italy-red-zone-diary.html?searchResultPosition=3
 
-**Former Neo-Nazi Leader Arrested in Virginia Swatting Scheme**\
-`Prosecutors say a former neo-Nazi leader in Texas has been arrested and charged with a series phony bomb threats made in Virginia.`\
-https://nytimes.com/aponline/2020/02/26/us/ap-us-swatting-neo-nazi.html?searchResultPosition=4
+**White House Is Considering Appointment of Coronavirus 'Sideczar': Politico**\
+`The White House is considering appointing a coronavirus "czar" to coordinate the U.S. response to the disease, Politico reported on Wednesday, citing two officials familiar with the matter.`\
+https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-usa-czar.html?searchResultPosition=4
 
-**Lowe's Disappoints on 4Q Sales, Full-Year Outlook**\
-`Lowe's Cos. delivered weaker-than-expected sales for its fiscal fourth quarter and offered an annual forecast that came below Wall Street expectations.`\
-https://nytimes.com/aponline/2020/02/26/business/ap-us-results-lowes.html?searchResultPosition=5
+**The Honda Classic Is Much More Than 'The Bear Trap'**\
+`PGA National’s signature test is a three-hole span on the back nine called “The Bear Trap,” named for Jack Nicklaus and touted as one of the most demanding stretches in all of golf.`\
+https://nytimes.com/aponline/2020/02/26/sports/golf/ap-glf-honda-classic.html?searchResultPosition=5
 
-**Klobuchar Ramped Up Prosecutions, Except in Cases Against Police**\
-`The candidate has faced tough questions about a disputed murder conviction and her record of seeking stiff sentences while declining to prosecute police shootings.`\
-https://nytimes.com/2020/02/26/us/klobuchar-prosecutor-myon-burrell.html?searchResultPosition=6
+**Retail Group Sees Solid Sales Growth This Year**\
+`The nation's largest retail trade group forecasts that retail sales should grow between 3.5% and 4.1% to more than $3.9 trillion this year despite uncertainty from the lingering trade war, the new virus and the presidential election. `\
+https://nytimes.com/aponline/2020/02/26/business/ap-us-retail-sales-annual-forecast.html?searchResultPosition=6
 
-**What to See Right Now in New York Art Galleries**\
-`Gladys Nilsson’s “Honk! Fifty Years of Painting”; Edgar Heap of Birds and the power of text-based art; Loretta Fahrenholz’s Elsa dolls.`\
-https://nytimes.com/2020/02/26/arts/design/art-galleries-new-york.html?searchResultPosition=7
+**‘Nobody Likes’ Bernie Sanders. It Doesn’t Matter.**\
+`In American politics now, ideas are more important than charm.`\
+https://nytimes.com/2020/02/26/opinion/bernie-sanders.html?searchResultPosition=7
 
-**This Is How to Do a Beethoven Symphony Cycle**\
-`John Eliot Gardiner’s period-instrument survey at Carnegie Hall was a reintroduction to some of the world’s most famous music.`\
-https://nytimes.com/2020/02/26/arts/music/beethoven-carnegie-hall.html?searchResultPosition=8
+**Bayer Board Chairman Steps Down Amid Weedkiller Legal Battle**\
+`Bayer AG board chairman Werner Wenning is stepping down from his post at the drug and chemical company, which is facing a major legal battle over its Roundup weed killer. `\
+https://nytimes.com/aponline/2020/02/26/world/europe/ap-eu-germany-bayer.html?searchResultPosition=8
 
-**Louisiana Governor: Judge Should Resign After Racial Slurs**\
-`Gov. John Bel Edwards called Wednesday on a Louisiana judge to step down after she admitted to using racial slurs in angry text messages. The Democratic governor said the “state deserves better.” `\
-https://nytimes.com/aponline/2020/02/26/us/ap-us-louisiana-judge-racial-slurs.html?searchResultPosition=9
+**Mubarak’s Three-Decade Rule Is Brushed Aside in War-Hero Burial**\
+`A funeral for Hosni Mubarak, Egypt’s former ruler, highlighted his military record but sought to play down his position as the country’s longest-serving president.`\
+https://nytimes.com/2020/02/26/world/middleeast/egypt-mubarak-funeral.html?searchResultPosition=9
 
-**AP Interviews: Swimmers Concerned Olympics Will Be Canceled**\
-`If any thoughts were creeping into their minds that the Tokyo Olympics might be canceled because of a viral outbreak, elite swimmers Katinka Hosszú, Chad le Clos and Sarah Sjöström certainly didn’t show it during a strenuous two-hour training session Wednesday.`\
-https://nytimes.com/aponline/2020/02/26/sports/olympics/ap-oly-swimming-virus-outbreak.html?searchResultPosition=10
+**She Had Pain in Her Knee but No Obvious Injury. Why?**\
+`An 11-year-old athlete was suffering from pain, but all her tests kept coming back negative. What was going on?`\
+https://nytimes.com/2020/02/26/magazine/knee-pain-figure-skating.html?searchResultPosition=10
 
