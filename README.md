@@ -1,36 +1,36 @@
+**Laviolette to Coach Team USA at Hockey Worlds**\
+`Former Nashville Predators coach Peter Laviolette was named head coach of Team USA for the upcoming world hockey championships in May, announced USA Hockey.`\
+https://nytimes.com/reuters/2020/02/27/sports/hockey/27reuters-icehockey-nhl-laviolette.html?searchResultPosition=2
+
+**Oklahoma Death Row Inmates Seek Injection Protocol Challenge**\
+`Oklahoma is ill-prepared to resume executing inmates and its new lethal injection protocols would violate the constitutional rights of prisoners, attorneys for death row inmates said in a court filing on Thursday.`\
+https://nytimes.com/aponline/2020/02/27/us/ap-us-death-penalty-oklahoma.html?searchResultPosition=3
+
+**11 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2020/02/27/books/review/11-new-books-we-recommend-this-week.html?searchResultPosition=4
+
+**Democratic Candidates' Drilling Ban Would Cost U.S. Economy $7 Trillion: Oil Group**\
+`Banning hydraulic fracturing and halting new drilling on federal land would cost the U.S. economy $7 trillion in the next decade and kill millions of jobs, the U.S. oil industry’s main lobby group said on Thursday in a report targeting the climate plans of top Democratic presidential candidates.`\
+https://nytimes.com/reuters/2020/02/27/us/politics/27reuters-usa-election-drilling-api.html?searchResultPosition=5
+
+**Tesla Shares Slump as Coronavirus Hits China Car Registrations**\
+`Shares of Tesla Inc fell as much as 14% on Thursday on concerns about the impact of the coronavirus on the electric-car maker's vehicle registrations in China.`\
+https://nytimes.com/reuters/2020/02/27/business/27reuters-tesla-stocks.html?searchResultPosition=6
+
+**In ‘Dispatches From Elsewhere,’ Art Imitates Art Imitating Life**\
+`A prismatic new TV series, created by Jason Segel, adapts an alternate-reality game — and his own existential crisis.`\
+https://nytimes.com/2020/02/27/arts/television/dispatches-from-elsewhere-jason-segel.html?searchResultPosition=7
+
+**Pence Will Control All Coronavirus Messaging From Health Officials**\
+`Government health officials and scientists will have to clear statements with the vice president’s office, one of three people designated as the administration’s primary coronavirus official.`\
+https://nytimes.com/2020/02/27/us/politics/us-coronavirus-pence.html?searchResultPosition=8
+
 **Steyer Courts Voters That Biden Needs for Decisive SC Win**\
 `Joe Biden's political future depends on convincing South Carolina's black voters to rally behind his flagging campaign.`\
-https://nytimes.com/aponline/2020/02/27/us/politics/ap-election-2020-steyer-south-carolina.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/02/27/us/politics/ap-election-2020-steyer-south-carolina.html?searchResultPosition=9
 
 **UAE Suspends Passenger Ferry Services With Iran Over Coronavirus**\
 `The United Arab Emirates has suspended passenger ferry services with Iran until further notice over coronavirus fears, the state news agency WAM said on Thursday.`\
-https://nytimes.com/reuters/2020/02/27/world/middleeast/27reuters-uae-health-coronavirus.html?searchResultPosition=3
-
-**‘Wendy’ Review: Where Playtime Goes On … and On**\
-`In his follow-up to “Beasts of the Southern Wild,” the director Benh Zeitlin puts his own spin on the tale of Peter Pan.`\
-https://nytimes.com/2020/02/27/movies/wendy-review.html?searchResultPosition=4
-
-**Canada to Stop Providing Security for Harry and Meghan**\
-`Canada will no longer provide security for Prince Harry and Meghan Markle, the Canadian government said on Thursday, once the couple are no longer working members of the British royal family in the coming weeks.`\
-https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-britain-royals-canada.html?searchResultPosition=5
-
-**Nigeria's Islamists Targeting Christians to Provoke Religious War, Says Minister**\
-`Islamist militant groups in Nigeria have begun targeting Christians in an attempt to provoke a religious war, the information minister said on Thursday. `\
-https://nytimes.com/reuters/2020/02/27/world/africa/27reuters-nigeria-security.html?searchResultPosition=6
-
-**Delivery Giant DoorDash Takes Step Toward Public Offering**\
-`Food delivery giant DoorDash has taken a first formal step toward a stock market debut. `\
-https://nytimes.com/aponline/2020/02/27/business/ap-us-doordash-ipo-.html?searchResultPosition=7
-
-**Vladimir Putin Inspects Russia's Answer to Disneyland Before Grand Opening**\
-`President Vladimir Putin inspected Russia's answer to Disneyland on Thursday, the country's first large-scale indoor theme park which Moscow says will be the biggest of its kind in Europe when it opens on Saturday.  `\
-https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-russia-putin-dream-island.html?searchResultPosition=8
-
-**Bloomberg, the Mayor Who Menaced Blackness**\
-`He presents a rosy picture of his time as New York’s mayor. But for black people, it was a horror.`\
-https://nytimes.com/2020/02/27/opinion/mike-bloomberg-stop-frisk.html?searchResultPosition=9
-
-**Saint Laurent Mixes Tweed With Fetish-Style Catsuits for Paris Show**\
-`Luxury fashion house Saint Laurent juxtaposed staid tweed jackets with fetish-style catsuits when it showed its winter collection at Paris Fashion Week on Tuesday.`\
-https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-fashion-paris-saint-laurent.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/27/world/middleeast/27reuters-uae-health-coronavirus.html?searchResultPosition=10
 
