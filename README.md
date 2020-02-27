@@ -1,40 +1,40 @@
+**Timberwolves Rally Late, Shock Heat 129-126**\
+`Jordan McLaughlin’s layup with just under nine seconds left put Minnesota ahead for good, D’Angelo Russell led all scorers with 27 points and the Timberwolves added to Miami’s late-season stagger by beating the Heat 129-126 on Wednesday night.`\
+https://nytimes.com/aponline/2020/02/26/sports/basketball/bc-bkn-timberwolves-heat.html?searchResultPosition=1
+
+**Binghamton Halts Streaking UMBC in Wild Final Seconds 76-74**\
+`Sam Sessoms scored 24 points with five 3-pointers, Richard Caldwell Jr. sank a pair of clutch free throws and Binghamton survived a frantic final few seconds to upset UMBC 76-74 Wednesday night.`\
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-binghamton-umbc.html?searchResultPosition=2
+
+**Lehigh Knocks Off Boston University in Overtime 57-55**\
+`Jaemeril Wilson gave Lehigh the lead in overtime then blocked a shot off the backboard to help preserve the Mountain Hawks' 57-55 upset of Boston University on Wednesday night.`\
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-boston-university-lehigh.html?searchResultPosition=3
+
+**Texas A&M-CC Pulls Away From New Orleans for 81-75 Win**\
+`Myles Smith scored 17 points and Nolan Bertain and Jordan Hairston each scored 16 and Texas A&M Corpus Christi beat New Orleasn 81-75 on Wednesday.`\
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-texas-am-cc-new-orleans.html?searchResultPosition=4
+
+**Taiwan Raises Epidemic Response Level to Highest Amid Virus Concerns**\
+`Taiwan on Thursday raised its epidemic response level to the highest, official media reported, amid growing concerns over the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-taiwan.html?searchResultPosition=5
+
 **JPMorgan Names Veteran Gori as New Asia Pacific Chief Executive**\
 `JPMorgan Chase & Co on Thursday named veteran Filippo Gori as its new Asia Pacific chief executive officer to oversee strategy and operations of the Wall Street bank across 17 markets in the region. `\
-https://nytimes.com/reuters/2020/02/26/business/26reuters-jp-morgan-asia-moves.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/02/26/business/26reuters-jp-morgan-asia-moves.html?searchResultPosition=6
 
 **Camper, Carey Lead Siena Over Quinnipiac 84-77**\
 `Manny Camper had 19 points and 14 rebounds as Siena topped Quinnipiac 84-77 on Wednesday night. `\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-siena-quinnipiac.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-siena-quinnipiac.html?searchResultPosition=7
 
 **Japanese Woman Confirmed as Coronavirus Case for Second Time, Weeks After Initial Recovery**\
 `A woman working as a tour-bus guide in Japan tested positive for the coronavirus for a second time, Osaka's prefectural government said on Wednesday, the first person in the country to do so amid growing concerns about the spread of the infection.`\
-https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-japan.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-japan.html?searchResultPosition=8
 
 **Hartford Women Win First Game in Its Season Finale**\
 `Jada Lucas scored 20 points and Hartford — which had been the only winless Division I program this season, women or men — won its first game in its season finale, beating America East champion Stony Brook 73-70 on Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkw-hartford-first-win.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkw-hartford-first-win.html?searchResultPosition=9
 
 **Pierre Scores 21 to Lift UMass Past VCU 60-52**\
 `Carl Pierre had 21 points as UMass topped VCU 60-52 on Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-vcu-umass.html?searchResultPosition=5
-
-**Henry Leads Bradley Over Illinois State 74-71 in OT**\
-`Ja'Shon Henry scored six of his 11 points in overtime and added 10 rebounds to lift Bradley to a 74-71 win over Illinois State on Wednesday night. `\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-bradley-illinois-st.html?searchResultPosition=6
-
-**Fournier Scores 28, Gordon 25 as Magic Beat Hawks 130-120**\
-`Evan Fournier scored 28 points, Aaron Gordon added 25 and the Orlando Magic pulled away in the fourth quarter for a 130-120 victory over the Atlanta Hawks on Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/basketball/bc-bkn-magic-hawks.html?searchResultPosition=7
-
-**Sotos Propels Bucknell to 71-70 Victory Over Colgate**\
-`Jimmy Sotos totaled 17 points and seven rebounds and Paul Newman made 1 of 2 free throws with 7 seconds remaining to help Bucknell upset Colgate 71-70 on Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-colgate-bucknell.html?searchResultPosition=8
-
-**Gantz Scores 21, UMass-Lowell Tops Albany 88-69**\
-`Josh Gantz had 21 points as UMass-Lowell topped Albany 88-69 on Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-albany-umass-lowell.html?searchResultPosition=9
-
-**McNeese St. Tops SE Louisiana 104-82**\
-`Dru Kuxhausen, Sha'markus Kennedy and Roydell Brown scored 21 points apiece as McNeese State rolled past Southeastern Louisiana 104-82 on Wednesday night. Kennedy also had 13 rebounds, while Brown posted seven rebounds.`\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-se-louisiana-mcneese-st.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-vcu-umass.html?searchResultPosition=10
 
