@@ -1,40 +1,40 @@
+**Build It Like Beckham, Inter-Miami Target Big Names**\
+`Lionel Messi and Cristiano Ronaldo are potential targets for Inter-Miami, co-owner David Beckham said on Wednesday, underscoring his team's global ambition as they prepare to make their long-awaited Major League Soccer debut this weekend.`\
+https://nytimes.com/reuters/2020/02/26/sports/soccer/26reuters-soccer-usa-beckham.html?searchResultPosition=1
+
+**Editorial Roundup: US**\
+`Excerpts from recent editorials in the United States and abroad:`\
+https://nytimes.com/aponline/2020/02/26/us/ap-us-editorial-rdp-.html?searchResultPosition=2
+
+**Opponents of New London Heathrow Runway to Hear Appeal Outcome**\
+`Opponents of a third runway at London's Heathrow are set to hear on Thursday whether their legal appeal against the government's decision to expand Europe's biggest airport has been successful.`\
+https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-britain-heathrow.html?searchResultPosition=3
+
+**Global Stocks Outlook Still Positive, but Vulnerable to Coronavirus: Reuters Poll**\
+`Global stocks have further to run this year, but the likelihood of a correction of 10% or more is high, according to Reuters polls of market strategists, with the severity of the economic hit from the coronavirus outbreak being the biggest risk.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-global-stocks-poll.html?searchResultPosition=4
+
+**Shanghai Trying to Find People Who Crossed Coronavirus Patient From Iran**\
+`Shanghai is taking action to try to identify anyone who came into contact with a coronavirus patient who arrived in the city from Iran, the local government said on Thursday. `\
+https://nytimes.com/reuters/2020/02/26/world/middleeast/26reuters-china-health-iran.html?searchResultPosition=5
+
+**Tessa Majors’s Murder: Police Bluff Led to Teen's Confession**\
+`A 13-year-old opened up only after a detective pretended to have evidence linking the boy to the stabbing of Ms. Majors, a video shows.`\
+https://nytimes.com/2020/02/26/nyregion/tessa-majors-murder.html?searchResultPosition=6
+
+**Canada Mulling Made-In-Ottawa Supplement to Boeing's 737 MAX Flight Manual**\
+`Transport Canada is mulling a Canadian supplement to the Boeing 737 MAX's U.S.-developed flight manual, as the regulator  weighs going beyond steps taken by the Federal Aviation Administration (FAA) to end a global grounding of the model after two fatal crashes.`\
+https://nytimes.com/reuters/2020/02/26/business/26reuters-canada-737max.html?searchResultPosition=7
+
+**Center Stage at Disney After a Career Out of the Spotlight**\
+`Bob Chapek, the company’s new chief executive, does no t remind anyone of his predecessor, Bob Iger. And that might be fine.`\
+https://nytimes.com/2020/02/26/business/media/bob-chapek-disney-ceo.html?searchResultPosition=8
+
 **UK Car Industry Seeks Support, Free-Trade Brexit Deal, as Output Falls**\
 `Britain's car industry called on the government to help boost the market in its upcoming budget and secure a free-trade deal with Europe as output fell again in January, hit by a double-digit slump in domestic demand.`\
-https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-britain-economy-autos.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-britain-economy-autos.html?searchResultPosition=9
 
 **US Says Resuming Coal Sales Has Little Impact; Critics Balk**\
 `The Trump administration said Wednesday a resumption of coal sales from public lands that had been blocked under former President Barack Obama will result in a negligible increase in greenhouse gas emissions.`\
-https://nytimes.com/aponline/2020/02/26/us/ap-us-coal-climate-change.html?searchResultPosition=2
-
-**Trump Says Pence Will Be in Charge of Coronavirus Response**\
-`President Donald Trump said on Wednesday Vice President Mike Pence will be in charge of the U.S. response to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/02/26/world/asia/26reuters-china-health-usa-trump-pence.html?searchResultPosition=3
-
-**Coronavirus, Joe Biden, Carnival: Your Wednesday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/02/26/briefing/coronavirus-joe-biden-carnival.html?searchResultPosition=4
-
-**Arizona's Largest Newspaper Quits Candidate Endorsements**\
-`The Arizona Republic, which drew global attention in 2016 for endorsing a Democrat for president for the first time in its history, will stop endorsing candidates for public office, newspaper leaders wrote Wednesday. `\
-https://nytimes.com/aponline/2020/02/26/business/ap-us-arizona-republic-candidate-endorsements.html?searchResultPosition=5
-
-**Exclusive: IMF, World Bank Consider 'Virtual' Spring Meetings as Virus Spreads**\
-`Growing concerns inside the International Monetary Fund and the World Bank about the spread of the new coronavirus have prompted the institutions to consider scaling back their Spring Meetings in April or hold them by teleconference, people familiar with the discussions said on Wednesday.`\
-https://nytimes.com/reuters/2020/02/26/business/26reuters-china-health-imf-meetings-exclusive.html?searchResultPosition=6
-
-**Gilead to Expand Coronavirus Drug Trials to Other Countries**\
-`The drug maker said that in March it would begin two more clinical trials of remdesivir, an experimental antiviral drug, in more nations outside China.`\
-https://nytimes.com/2020/02/26/health/coronavirus-gilead-drug-trials.html?searchResultPosition=7
-
-**‘To Kill a Mockingbird’ Meets an Arena Full of Students**\
-`Madison Square Garden opened its doors for the first time to a Broadway play, as well as to  thousands of students from across the city. There were a few logistical hurdles.`\
-https://nytimes.com/2020/02/26/arts/mockingbird-madison-square-garden.html?searchResultPosition=8
-
-**Justice Dept. Establishes Office to Denaturalize Immigrants**\
-`The department called the decision a move “to bring justice to terrorists, war criminals, sex offenders and other fraudsters,” but some lawyers there feared a broader crackdown.`\
-https://nytimes.com/2020/02/26/us/politics/denaturalization-immigrants-justice-department.html?searchResultPosition=9
-
-**Saudi Arabia Suspends Entry for Umrah, Visits to Al Masjid Al Nabawy Amid Coronavirus**\
-`Saudi Arabia temporarily suspended entry to the kingdom for the Umrah Islamic pilgrimage and visits to al Masjid Al Nabawy in Medina, the ministry of foreign affairs announced on Twitter on Thursday amid fears over the spread of the new coronavirus.`\
-https://nytimes.com/reuters/2020/02/26/world/middleeast/26reuters-china-health-saudi.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/26/us/ap-us-coal-climate-change.html?searchResultPosition=10
 
