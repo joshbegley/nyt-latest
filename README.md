@@ -1,40 +1,40 @@
-**Malaysia's Mahathir Announces $4.7 Billion Economic Stimulus Package**\
-`Malaysia's interim prime minister Mahathir Mohamad on Thursday announced a 20 billion ringgit ($4.7 billion) stimulus package to counter the impact of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/02/27/world/asia/27reuters-malaysia-economy.html?searchResultPosition=1
+**Welcome to the Age of Pandemics**\
+`We need to stop what drives mass epidemics rather than just respond to individual diseases.`\
+https://nytimes.com/2020/02/27/opinion/coronavirus-pandemics.html?searchResultPosition=1
 
-**As Coronavirus Slams Small Business, a Noodle Shop Fights for Life**\
-`China’s entrepreneurs, essential to the economy, have seen their fortunes plummet. Many millions of jobs are at stake.`\
-https://nytimes.com/2020/02/27/business/china-coronavirus-noodles-small-business.html?searchResultPosition=2
+**The Making of ‘Six’: How Tudor Queens Turned Into Pop Stars**\
+`A cheeky musical about the ill-fated wives of Henry VIII is already a hit in Britain, on TikTok and on cruise ships. Now it is aiming to establish sovereignty on Broadway.`\
+https://nytimes.com/2020/02/27/theater/six-broadway.html?searchResultPosition=2
 
-**Japan PM Abe Says to Ask All Schools to Close for Most of March**\
-`Japanese Prime Minister Shinzo Abe said on Thursday that the government would ask all elementary, junior high and high schools to close from March 2 until spring break, typically around the end of March.`\
-https://nytimes.com/reuters/2020/02/27/world/asia/27reuters-china-health-japan.html?searchResultPosition=3
+**The Case for Mike Bloomberg**\
+`He’s a practical manager who can get things done.`\
+https://nytimes.com/2020/02/27/opinion/mike-bloomberg-2020.html?searchResultPosition=3
 
-**Kremlin Rebuffs Turkey's Erdogan on Proposed Syria Meeting With Putin**\
-`The Kremlin said on Thursday that President Vladimir Putin had no plans to meet Turkish President Tayyip Erdogan on March 5 to discuss the situation in Syria's Idlib region despite statements by Erdogan saying such a meeting was likely. `\
-https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-syria-security-kremlin.html?searchResultPosition=4
+**Trump’s Plan Backs Israeli Settlements. So Why Are Settlers Unhappy?**\
+`Prime Minister Benjamin Netanyahu expected the U.S. peace plan would gain him votes in Monday’s election. It might not work out that way.`\
+https://nytimes.com/2020/02/27/world/middleeast/israel-settlers-trump-plan-election.html?searchResultPosition=4
 
-**Berlin Drops Hindenburg Honorary Title for Role in Nazi Rise**\
-`He led Germany's army in World War I and served for nearly a decade as the country's president, but thanks to his role in Nazi dictator Adolf Hitler's rise to power, Paul von Hindenburg is an honorary Berliner no more.`\
-https://nytimes.com/aponline/2020/02/27/world/europe/ap-eu-germany-dropping-hindenburg.html?searchResultPosition=5
+**Terrorism Threat in West Africa Soars as U.S. Weighs Troop Cuts**\
+`The Pentagon and the State Department are sending mixed messages about reducing America’s presence in a region bloodied by terrorist violence.`\
+https://nytimes.com/2020/02/27/world/africa/terrorism-west-africa.html?searchResultPosition=5
 
-**BoE's Carney Urges City of London to Step Up Ahead of Climate Summit**\
-`Bank of England Governor Mark Carney called on London's money managers to help speed a transition to a low-carbon future on Thursday, aiming to usher in a new era where every professional financial decision takes climate change into account.`\
-https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-climate-change-finance-britain.html?searchResultPosition=6
+**The Case for Elizabeth Warren**\
+`She wants to purify capitalism so it works as it should.`\
+https://nytimes.com/2020/02/27/opinion/elizabeth-warren-2020.html?searchResultPosition=6
 
-**India's GDP Seen Growing at 4.7% Year-On-Year in December Quarter, With Virus Impact to Come**\
-`Having suffered its weakest expansion in over six years in the September quarter, India's economy probably fared slightly better in the December quarter, before suffering a relapse due to the impact of the coronavirus globally, analysts said.    `\
-https://nytimes.com/reuters/2020/02/27/world/asia/27reuters-india-economy-gdp.html?searchResultPosition=7
+**Scarred and Weary, an Afghan Force Wonders: What Is Peace?**\
+`A truce prompts introspection. “Who is it on the other side?” mused a 15-year veteran of intimate warfare. “They are not even from a different district.”`\
+https://nytimes.com/2020/02/27/world/asia/afghanistan-taliban-peace.html?searchResultPosition=7
 
-**German Court Upholds Restrictions on Law Clerk's Headscarf**\
-`Germany's highest court ruled Thursday that a Muslim law clerk can be prevented from wearing a headscarf during court proceedings.`\
-https://nytimes.com/aponline/2020/02/27/world/europe/ap-eu-germany-headscarf.html?searchResultPosition=8
+**The Case for Amy Klobuchar**\
+`She can win over the voters that Democrats need.`\
+https://nytimes.com/2020/02/27/opinion/amy-klobuchar-2020.html?searchResultPosition=8
 
-**AP Interview: Al-Qaida, IS Affiliates Team Up in West Africa**\
-`The only place in the world where fighters linked to al-Qaida and the Islamic State group are cooperating is in West Africa's sprawling Sahel region, giving the extremists greater depth as they push into new areas, according to the commander of the U.S. military's special forces in Africa. `\
-https://nytimes.com/aponline/2020/02/27/world/africa/ap-af-ap-interview-us-special-forces-africa.html?searchResultPosition=9
+**How Will Trump’s Supreme Court Remake America?**\
+`On abortion, gun rights and more, the future could be determined by how fully the court’s new conservative majority embraces a rigid understanding of the Constitution.`\
+https://nytimes.com/2020/02/27/magazine/how-will-trumps-supreme-court-remake-america.html?searchResultPosition=9
 
-**Syrian Government Forces Launch Bid to Take Back Saraqeb Town-Turkish Official**\
-`Syrian government forces backed by Russian air power have launched an operation aimed at taking back the pivotal town of Saraqeb in northwest Syria from Turkey-backed rebels, a Turkish official said on Thursday.`\
-https://nytimes.com/reuters/2020/02/27/world/middleeast/27reuters-syria-security-turkey-official.html?searchResultPosition=10
+**Airbnb’s Newest Listing Is a 65-Foot Landmark Named Lucy**\
+`Spend a night in the belly of a beloved beast for $138.`\
+https://nytimes.com/2020/02/27/nyregion/lucy-elephant-nj-airbnb.html?searchResultPosition=10
 
