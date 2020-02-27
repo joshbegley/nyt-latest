@@ -1,36 +1,36 @@
-**Italy’s Response to Coronavirus Outbreak Is Not Immune to Politics**\
+**Feds Move to Block Opening of US Supervised Injection Site**\
+`A local federal prosecutor has moved to block plans to open what could be the nation's first medically supervised injection site in Philadelphia.`\
+https://nytimes.com/aponline/2020/02/27/us/ap-us-supervised-injection-site-philadelphia.html?searchResultPosition=2
+
+**Kia Recalls Over 193K Vehicles; Fuel Leaks Can Cause Fires**\
+`Kia is recalling more than 193,000 cars and minvans in yet another move to fix nagging problems that could cause engine fires.`\
+https://nytimes.com/aponline/2020/02/27/business/ap-us-kia-engine-fires.html?searchResultPosition=3
+
+**Russia Suspends Some Flights Between Russia and Iran Over Coronavirus**\
+`Russia will suspend some flights to and from Iran from Friday, except those operated by its national carrier Aeroflot and Iranian airline Mahan Air, the Russian Ministry of Transport said on Thursday.`\
+https://nytimes.com/reuters/2020/02/27/world/middleeast/27reuters-china-health-russia-iran.html?searchResultPosition=4
+
+**Boy Fatally Hit by Car in NYC Near Where Girl Killed by Bus**\
+`A 7-year-old boy was fatally struck by a car on Thursday in the same Brooklyn neighborhood where a 10-year-old girl was killed by a school bus two days earlier, police said.`\
+https://nytimes.com/aponline/2020/02/27/us/ap-us-child-fatally-struck.html?searchResultPosition=5
+
+**Scotland Set to Be First Country to Provide Free Pads and Tampons**\
+`Its Parliament approved a bill that would make Scotland the first country to end “period poverty.”`\
+https://nytimes.com/2020/02/27/world/europe/scotland-pads-tampons.html?searchResultPosition=6
+
+**Italy’s Response to Coronavirus Outbreak Is Mired in Politics**\
 `National and regional leaders are trading blame, with the dispute centered around whether Lombardy had inflated the threat by testing too much.`\
-https://nytimes.com/2020/02/27/world/europe/italy-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2020/02/27/world/europe/italy-coronavirus.html?searchResultPosition=7
 
 **Spring Fashion: Classic Tailoring Goes Off-Road**\
 `Polished men’s wear — from spare suiting to colorful trench coats — gets remade with the rebellious spirit of motocross.`\
-https://nytimes.com/2020/02/27/t-magazine/spring-mens-fashion.html?searchResultPosition=3
+https://nytimes.com/2020/02/27/t-magazine/spring-mens-fashion.html?searchResultPosition=8
 
 **Apollo Theater Announces New Series of Commissions**\
 `The venue will expand its cultural offerings with a slate of multidisciplinary works, including projects by its master artist-in-residence, Ta-Nehisi Coates.`\
-https://nytimes.com/2020/02/27/theater/apollo-theater-commissions-ta-nehisi-coates.html?searchResultPosition=4
+https://nytimes.com/2020/02/27/theater/apollo-theater-commissions-ta-nehisi-coates.html?searchResultPosition=9
 
 **Russia Conducts First Ship-Based Hypersonic Missile Test: TASS**\
 `Russia successfully test-launched its Tsirkon (Zircon) hypersonic cruise missile from a military vessel for the first time early last month, the TASS news agency said on Thursday, citing two military sources.`\
-https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-russia-military-missiles.html?searchResultPosition=5
-
-**Q&A: Saudis Halt Muslim Pilgrimage Over Virus Fears**\
-`Saudi Arabia's unprecedented decision to halt the umrah pilgrimage amid the global outbreak of a new virus could prevent millions of Muslims from undertaking a major religious rite that many spend years saving up for.`\
-https://nytimes.com/aponline/2020/02/27/world/middleeast/ap-ml-virus-outbreak-saudi-pilgrimage-qa.html?searchResultPosition=6
-
-**Second Child in 3 Days Is Killed by a Vehicle in Brooklyn**\
-`A boy, 7, died just two days after a girl, 10, was fatally struck by a school bus nearby.`\
-https://nytimes.com/2020/02/27/nyregion/boy-killed-brooklyn.html?searchResultPosition=7
-
-**Giving Rosso di Montalcino a Second Look**\
-`This Tuscan sangiovese wine can be more muscular than its cousin, Chianti Classico. But a recent tasting found the latest vintages to be inconsistent.`\
-https://nytimes.com/2020/02/27/dining/drinks/rosso-di-montalcino-review.html?searchResultPosition=8
-
-**French Carmaker PSA Unveils Mini Electric Citroen Car**\
-`Citroen, one of French carmaker PSA's brands, unveiled a mini electric car on Thursday aimed at young city dwellers. `\
-https://nytimes.com/reuters/2020/02/27/business/27reuters-psa-electric.html?searchResultPosition=9
-
-**Peloton Settles Music Publishers' Lawsuit Over Songs Used in Workout Videos**\
-`Peloton Interactive Inc has settled a lawsuit in which a music publishing trade group and 14 of its members accused the maker of stationary bicycles of streaming more than 2,400 songs without permission in its workout videos.`\
-https://nytimes.com/reuters/2020/02/27/technology/27reuters-peloton-interactive-lawsuit.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-russia-military-missiles.html?searchResultPosition=10
 
