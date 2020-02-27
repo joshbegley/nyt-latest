@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/02/27/world/asia/27reuters-china-health-mofcom-
 `A major Kenyan university has caused widespread public offense by accusing a student who was gang-raped of "recklessness" for walking back to campus after a night out. `\
 https://nytimes.com/reuters/2020/02/27/world/africa/27reuters-kenya-women.html?searchResultPosition=9
 
-**Banks Have Some Way to Go in Disclosing Climate Risk: Lagarde**\
-`Climate change poses a risk to the financial sector and central banks need to pay closer attention as banks have some way to go in assessing and disclosing their exposure, European Central Bank President Christine Lagarde said on Thursday.`\
+**Banks Must Step Up Climate Risk Disclosures, Lagarde Says**\
+`Banks must improve transparency on their exposure to climate- change risk and central banks need to pay closer attention as the entire financial sector is at risk, European Central Bank President Christine Lagarde said on Thursday.`\
 https://nytimes.com/reuters/2020/02/27/business/27reuters-climatechange-ecb-lagarde.html?searchResultPosition=10
 
