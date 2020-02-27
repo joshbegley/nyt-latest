@@ -1,40 +1,40 @@
+**Lebanon Health Ministry Confirms Third Case of Coronavirus, NNA Reports**\
+`Lebanon confirmed the country's third case of coronavirus on Thursday, after a man arriving from Iran on Feb. 24 tested positive, the health ministry said, according to news agency NNA.`\
+https://nytimes.com/reuters/2020/02/27/world/middleeast/27reuters-china-health-lebanon.html?searchResultPosition=1
+
+**H&M Sees No Big Delays in Supply Yet Due to Virus Outbreak**\
+`H&M, the world's second-biggest fashion retailer, said on Thursday it was still not seeing any major delays in supply due to the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-china-health-h-m-supplies.html?searchResultPosition=2
+
+**Germany Eyes Fiscal Plan to Counter Coronavirus Impact: Handelsblatt**\
+`Germany is considering a fiscal stimulus program should the coronavirus hit the economy hard, Handelsblatt reported on Thursday, as the economy ministry said it would announce plans for dealing with the epidemic later in the day.`\
+https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-china-health-germany-stimulus.html?searchResultPosition=3
+
+**Coronavirus 'No Catastrophe' for Economy: ECB's Holzmann**\
+`The spread of coronavirus in the euro zone is "no catastrophe" for the economy, which should bounce back as long as the epidemic is defeated in the next few months, European Central Bank policymaker Robert Holzmann said.`\
+https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-ecb-policy.html?searchResultPosition=4
+
+**Huawei Plans First European 5G Factory in France in Bid to Ease Western Worries**\
+`Huawei will build its first European manufacturing plant in France, the chairman said on Thursday, as the Chinese telecom giant seeks to ease worldwide concerns based on U.S. allegations that Beijing could use its equipment for spying.`\
+https://nytimes.com/reuters/2020/02/27/business/27reuters-france-huawei.html?searchResultPosition=5
+
+**Fed Rate Cut Next Month? Traders Are Betting on It**\
+`The U.S. central bank will move to reduce borrowing costs as soon as next month to cushion the world's biggest economy from the impact of the coronavirus, traders of futures contracts tied to the Federal Reserve's policy rate are now betting. `\
+https://nytimes.com/reuters/2020/02/27/business/27reuters-usa-fed-futures.html?searchResultPosition=6
+
+**Pool, Books or Buffet: Limited Options in Tenerife's Locked Down Hotel**\
+`At first glance, the hotel looks like any other. It bustles with holidaymakers choosing their food and drink from the buffet while others bag sunloungers by the pool. `\
+https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-china-health-spain.html?searchResultPosition=7
+
+**Coronavirus Hit Brings Home Italy Risks for Yield-Seeking Bond Investors**\
+`A coronavirus outbreak that may tip Italy into recession also threatens hefty losses for fund managers who have been overlooking a multitude of risks to invest in one of the few euro zone bond markets offering yields above zero.`\
+https://nytimes.com/reuters/2020/02/27/business/27reuters-china-health-italy-analysis.html?searchResultPosition=8
+
 **Court Sides With Family of Man Shot by Police in Kansas**\
 `A federal appeals court has ruled that jurors should be allowed to decide whether a police officer in Kansas used excessive force nearly eight years ago when he fatally shot a man as he was lying face down in a parking lot.`\
-https://nytimes.com/aponline/2020/02/27/us/ap-us-police-shooting-lawsuit-wichita-1st-ld-writethru.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/02/27/us/ap-us-police-shooting-lawsuit-wichita-1st-ld-writethru.html?searchResultPosition=9
 
 **Lebanon Begins 'Historic' Offshore Oil Drilling Amid Crisis**\
 `Lebanon's president Thursday inaugurated the Mediterranean country's first offshore exploratory drilling for oil and gas, calling it a “historic day” for the cash-strapped country. `\
-https://nytimes.com/aponline/2020/02/27/business/ap-ml-lebanon-oil.html?searchResultPosition=2
-
-**Coronavirus Outbreak at 'Decisive Point': WHO Chief**\
-`The new coronavirus outbreak has reached a "decisive point", the head of the World Health Organization (WHO) said on Thursday, urging countries to redouble efforts to contain its spread effectively.`\
-https://nytimes.com/reuters/2020/02/27/world/asia/27reuters-health-china-who.html?searchResultPosition=3
-
-**The Latest: Volunteers to Monitor South Carolina's Primary**\
-`The Latest on the 2020 presidential primary contest (all times local):`\
-https://nytimes.com/aponline/2020/02/27/us/politics/ap-us-election-2020-the-latest.html?searchResultPosition=4
-
-**US Pending Home Sales Climbed 5.2% in January**\
-`There was a 5.2% jump in Americans signing contracts to buy homes in January from the previous month as lower mortgage rates and a solid economy are pushing up demand for housing.`\
-https://nytimes.com/aponline/2020/02/27/business/bc-us-pending-home-sales.html?searchResultPosition=5
-
-**Josh Thomas’s Week: ‘Twitter Has Been a Real Problem’**\
-`The Australian comedian shares what he watched and listened to over a couple of days.`\
-https://nytimes.com/2020/02/27/arts/television/josh-thomas-cheer.html?searchResultPosition=6
-
-**Libya Officials: 21 Civilians Killed in Tripoli Since Jan. 9**\
-`Libya's U.N.-backed government says 21 civilians have been killed, including at least 13 children, since Jan. 9 casting doubt on a fragile cease-fire the Tripoli-based government and rival factions in the east agreed last month to observe. `\
-https://nytimes.com/aponline/2020/02/27/world/middleeast/ap-ml-libya.html?searchResultPosition=7
-
-**A Royal Instagram Mystery**\
-`Two royal couples, two Instagram accounts, one conspiracy theory.`\
-https://nytimes.com/2020/02/27/style/a-royal-instagram-mystery.html?searchResultPosition=8
-
-**Relatives Sue Alabama Prisons Over 4 Inmate Suicides**\
-`Relatives of four inmates who killed themselves inside Alabama prisons are suing the state over the men's suicides, adding to the legal problems for an agency already in court over its treatment of prisoners.`\
-https://nytimes.com/aponline/2020/02/27/us/ap-us-alabama-inmate-suicides-lawsuit.html?searchResultPosition=9
-
-**Stocks Open Sharply Lower; Dow 10% Below Recent Record High**\
-`Stocks are opening sharply lower, extending a weeklong rout and bringing the Dow Jones Industrial Average 10% below the record high it hit two weeks ago. `\
-https://nytimes.com/aponline/2020/02/27/business/bc-financial-markets.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/27/business/ap-ml-lebanon-oil.html?searchResultPosition=10
 
