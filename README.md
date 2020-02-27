@@ -1,40 +1,40 @@
+**Atwood, Kopp, Buster Combine for 66 in Lamar's 86-66 Win**\
+`T.J. Atwood scored 26 points on 11-for-16 shooting and Lamar routed Incarnate Word 86-66 on Wednesday night.`\
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-incarnate-word-lamar.html?searchResultPosition=1
+
+**Factbox: Countries Evacuating Nationals From Coronavirus-Hit Areas**\
+`A growing number of countries around the world are evacuating or planning to evacuate diplomatic staff and citizens from areas hit by the new coronavirus.`\
+https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-china-health-evacuation-factbox.html?searchResultPosition=2
+
+**Doncic, Porzingis Power Mavericks by Slumping Spurs, 109-103**\
+`Luka Doncic had 26 points, 14 assists and 10 rebounds and Kristaps Porzingis added 28 points and 12 rebounds as the Dallas Mavericks powered past the San Antonio Spurs 109-103 on Wednesday night.`\
+https://nytimes.com/aponline/2020/02/26/sports/basketball/bc-bkn-mavericks-spurs.html?searchResultPosition=3
+
+**Gibbs Scores With 0.1 Seconds Left, Irish Beat BC 62-61**\
+`John Mooney scored 22 points with 12 rebounds, and T.J. Gibbs flipped in the game-winner with 0.1 seconds left to help Notre Dame beat Boston College 62-61 in an Ash Wednesday matchup of the longtime Catholic school rivals. `\
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-notre-dame-boston-college.html?searchResultPosition=4
+
+**Russell Has 22, Hits Big 3-Pointer for Louisiana-Lafayette**\
+`Cedric Russell had 22 points as Louisiana-Lafayette defeated Arkansas State 77-74 on Wednesday night.`\
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-arkansas-st-louisiana-lafayette.html?searchResultPosition=5
+
+**Missouri Beats Vandy 61-52 for 1st SEC Road Win of Season**\
+`Xavier Pinson scored 15 of his 17 points in the second half, and the Missouri Tigers beat Vanderbilt 61-52 Wednesday night for their first Southeastern Conference road win this season.`\
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-missouri-vanderbilt.html?searchResultPosition=6
+
+**UN Disarmament Chief: Nuclear Arms Race Is Threatening World**\
+`The U.N. disarmament chief warned Wednesday that the specter of an unbridled nuclear arms race is threatening the world for the first time since the 1970s, the height of the Cold War between the United States and the former Soviet Union.`\
+https://nytimes.com/aponline/2020/02/26/world/asia/ap-un-united-nations-nuclear-nonproliferation.html?searchResultPosition=7
+
 **Howard Scores 30, Marquette Romps Past Georgetown 93-69**\
 `Markus Howard, the nation's leading scorer, poured in 30 points as Marquette romped past Georgetown 93-69 on Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-georgetown-marquette.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-georgetown-marquette.html?searchResultPosition=8
 
 **Tut Scores 19, Ruffin 18 as Omaha Tops North Dakota in OT**\
 `Wanjang Tut scored 19 points as Omaha edged North Dakota 84-83 in overtime on Wednesday night. `\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-north-dakota-omaha.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-north-dakota-omaha.html?searchResultPosition=9
 
 **Career Nights for Johnson, Lewis as Florida Thumps LSU 81-66**\
 `Keyontae Johnson had a career-high 25 points to go along with 11 rebounds — his fourth double-double in Florida’s last six games — and the Gators handled LSU from start to finish in a 81-66 victory Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-lsu-florida.html?searchResultPosition=3
-
-**Compher, Francouz Lead Avalanche to 3-2 Win Over Sabres**\
-`J.T. Compher broke a tie on a wrist shot with 8:06 remaining, Martin Kaut scored his first NHL goal and the banged-up Colorado Avalanche won their fourth straight, beating the Buffalo Sabres 3-2 on Wednesday night. `\
-https://nytimes.com/aponline/2020/02/26/sports/hockey/bc-hkn-sabres-avalanche.html?searchResultPosition=4
-
-**Texas Rallies to Top No. 25 TCU Women; Baylor Outright Champ**\
-`Celeste Taylor scored 13 of her career-high 22 points and Joyner Holmes all 15 of hers in the second half when Texas rallied to beat No. 25 TCU 77-67.`\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkw-t25-texas-tcu.html?searchResultPosition=5
-
-**Jones Scores 37 in Arkansas’ 86-69 Win Over Tennessee**\
-`Mason Jones scored a game-high 37 points and Arkansas started the game on a 14-1 run and never trailed in an 86-69 win over Tennessee Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-tennessee-arkansas.html?searchResultPosition=6
-
-**Westbrook Scores 33 as Rockets Rout Grizzlies 140-112**\
-`Russell Westbrook and James Harden combined for 63 points as the Houston Rockets sailed to their fifth straight win, 140-112 over the Memphis Grizzlies on Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/basketball/bc-bkn-grizzlies-rockets.html?searchResultPosition=7
-
-**Decriminalization of Polygamy in Utah Clears Key Hurdle in State Legislature**\
-`Legislation to effectively decriminalize polygamy among consenting adults in Utah overwhelmingly passed the state House of Representatives in Salt Lake City on Wednesday, moving it a step closer to becoming law. `\
-https://nytimes.com/reuters/2020/02/26/us/26reuters-utah-polygamy.html?searchResultPosition=8
-
-**Will Bloomberg’s $410 Million TV Ad Campaign Pay Off?**\
-`Super Tuesday is when the presidential race really begins for Michael Bloomberg. Or that’s what he’s been preparing for — by blanketing the country with millions of dollars of ads.`\
-https://nytimes.com/interactive/2020/02/26/us/politics/michael-bloomberg-ad-campaign-spending.html?searchResultPosition=9
-
-**Carry, Hughes Lift Duquesne Over St. Bonaventure in Overtime**\
-`Sincere Carry had 18 points and 11 assists to lift Duquesne to an 81-77 overtime win over St. Bonaventure on Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-duquesne-st-bonaventure.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-lsu-florida.html?searchResultPosition=10
 
