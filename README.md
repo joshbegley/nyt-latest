@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/02/27/world/asia/27reuters-china-health-korean-
 `British retailer Tesco has asked bidders to submit binding offers for its Asian business by Friday, in a deal that will see Thai billionaires fight for an asset valued at up to $9 billion, sources with direct knowledge of the matter said.`\
 https://nytimes.com/reuters/2020/02/27/business/27reuters-tesco-m-a-thailand.html?searchResultPosition=9
 
-**China Aims to Bar Those Infected With Virus From Crossing Borders-Health Official**\
-`China will focus on preventing those infected with coronavirus from crossing borders and work to strengthen international cooperation, a spokesman for the National Health Commission (NHC) said on Thursday. `\
+**China Aims to Bar Those Infected With Virus From Crossing Borders - Health Official**\
+`China will focus on preventing those infected with coronavirus from crossing borders and work to strengthen international cooperation, a spokesman for the National Health Commission (NHC) said on Thursday.`\
 https://nytimes.com/reuters/2020/02/27/world/asia/27reuters-china-health-nhc.html?searchResultPosition=10
 
