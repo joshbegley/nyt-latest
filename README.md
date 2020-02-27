@@ -1,40 +1,40 @@
+**Morsell's Late 3 Lifts No. 9 Maryland Past Minnesota 74-73**\
+`Darryl Morsell drained the go-ahead 3-pointer with 1.9 seconds left for No. 9 Maryland, capping a comeback from a 16-point halftime deficit to beat Minnesota 74-73 on Wednesday night.`\
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-t25-maryland-minnesota.html?searchResultPosition=1
+
+**Saudi Arabia Halts Travel to Islam's Holiest Site Over Virus**\
+`Saudi Arabia on Thursday halted travel to the holiest sites in Islam over fears about a new viral epidemic just months ahead of the annual hajj pilgrimage, a move coming as the Mideast has over 220 confirmed cases of the illness.`\
+https://nytimes.com/aponline/2020/02/26/world/middleeast/ap-ml-virus-outbreak-mideast-1st-ld-writethru.html?searchResultPosition=2
+
+**Tomes Buries Deep 3 and Air Force Rallies to 60-58 Win**\
+`Sid Tomes hit back-to-back 3-pointers, including the game-winner from well beyond the arc and Air Force rallied past New Mexico 60-58 Wednesday night.`\
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-new-mexico-air-force.html?searchResultPosition=3
+
+**New Virus Has Infected 82,000 Globally, Caused 2,800 Deaths**\
+`A viral outbreak that began in China has infected more than 82,000 people globally. The World Health Organization has named the illness COVID-19, referring to its origin late last year and the coronavirus that causes it. `\
+https://nytimes.com/aponline/2020/02/26/us/ap-virus-outbreak-at-a-glance.html?searchResultPosition=4
+
+**Your Thursday Briefing**\
+`Coronavirus, Wisconsin shooting, Syrian refugees: Here’s what you need to know.`\
+https://nytimes.com/2020/02/26/briefing/coronavirus-wisconsin-shooting-syrian-refugees.html?searchResultPosition=5
+
 **Ricks Carries Abilene Christian Past Sam Houston St. 85-69**\
 `Payten Ricks had 23 points as Abilene Christian beat Sam Houston State 85-69 on Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-sam-houston-st-abilene-christian.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-sam-houston-st-abilene-christian.html?searchResultPosition=6
 
 **StanChart Annual Profit Rises 46%, Misses Estimates**\
 `Standard Chartered on Thursday posted a 45.5% rise in annual profit, weathering the economic fallout from global trade tensions and political protests in Hong Kong with revenue growth in its main markets. `\
-https://nytimes.com/reuters/2020/02/26/business/26reuters-stanchart-results.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/02/26/business/26reuters-stanchart-results.html?searchResultPosition=7
 
 **Leonard Scores 24 Points, Clippers Top Suns 102-92**\
 `Kawhi Leonard scored 24 points and grabbed 14 rebounds, Marcus Morris added 18 points and the Los Angeles Clippers beat the Phoenix Suns 102-92 on Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/basketball/bc-bkn-clippers-suns.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/02/26/sports/basketball/bc-bkn-clippers-suns.html?searchResultPosition=8
 
 **Corrections: Feb. 27, 2020**\
 `Corrections that appeared in print on Thursday, Feb. 27, 2020.`\
-https://nytimes.com/2020/02/26/pageoneplus/corrections-feb-27-2020.html?searchResultPosition=4
+https://nytimes.com/2020/02/26/pageoneplus/corrections-feb-27-2020.html?searchResultPosition=9
 
 **Quotation of the Day: To Tribes Along Border, New Wall Is a ‘Scar Across Our Heart’**\
 `Quotation of the Day for Thursday, February 27, 2020.`\
-https://nytimes.com/2020/02/26/todayspaper/quotation-of-the-day-to-tribes-along-border-new-wall-is-a-scar-across-our-heart.html?searchResultPosition=5
-
-**Atwood, Kopp, Buster Combine for 66 in Lamar's 86-66 Win**\
-`T.J. Atwood scored 26 points on 11-for-16 shooting and Lamar routed Incarnate Word 86-66 on Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-incarnate-word-lamar.html?searchResultPosition=6
-
-**Factbox: Countries Evacuating Nationals From Coronavirus-Hit Areas**\
-`A growing number of countries around the world are evacuating or planning to evacuate diplomatic staff and citizens from areas hit by the new coronavirus.`\
-https://nytimes.com/reuters/2020/02/26/world/europe/26reuters-china-health-evacuation-factbox.html?searchResultPosition=7
-
-**Doncic, Porzingis Power Mavericks by Slumping Spurs, 109-103**\
-`Luka Doncic had 26 points, 14 assists and 10 rebounds and Kristaps Porzingis added 28 points and 12 rebounds as the Dallas Mavericks powered past the San Antonio Spurs 109-103 on Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/basketball/bc-bkn-mavericks-spurs.html?searchResultPosition=8
-
-**Gibbs Scores With 0.1 Seconds Left, Irish Beat BC 62-61**\
-`John Mooney scored 22 points with 12 rebounds, and T.J. Gibbs flipped in the game-winner with 0.1 seconds left to help Notre Dame beat Boston College 62-61 in an Ash Wednesday matchup of the longtime Catholic school rivals. `\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-notre-dame-boston-college.html?searchResultPosition=9
-
-**Russell Has 22, Hits Big 3-Pointer for Louisiana-Lafayette**\
-`Cedric Russell had 22 points as Louisiana-Lafayette defeated Arkansas State 77-74 on Wednesday night.`\
-https://nytimes.com/aponline/2020/02/26/sports/ncaabasketball/bc-bkc-arkansas-st-louisiana-lafayette.html?searchResultPosition=10
+https://nytimes.com/2020/02/26/todayspaper/quotation-of-the-day-to-tribes-along-border-new-wall-is-a-scar-across-our-heart.html?searchResultPosition=10
 
