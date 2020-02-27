@@ -1,36 +1,36 @@
+**Barty Sets Up Kvitova Semi-Final After Downing Muguruza in Doha**\
+`World number one Ash Barty eased into the semi-finals of the Qatar Open with a gritty 6-1 6-7(4) 6-2 victory over Spanish 11th seed Garbine Muguruza on Thursday.`\
+https://nytimes.com/reuters/2020/02/27/sports/tennis/27reuters-tennis-doha.html?searchResultPosition=2
+
+**Turkish Army Retaliates Against 'All Known' Syrian Government Targets**\
+`The Turkish army is retaliating with artillery fire at Syrian government targets in Syria after an airstrike killed 22 Turkish soldiers in the northwestern Idlib province, two Turkish security officials said on Friday. `\
+https://nytimes.com/reuters/2020/02/27/world/middleeast/27reuters-syria-security-turkey-military-artillery.html?searchResultPosition=3
+
+**Kentucky Governor Defends Photo Posing With Drag Queens**\
+`Kentucky Gov. Andy Beshear defended a photograph of him posing with drag queens at a gay rights rally and accused a Republican lawmaker of using homophobic tactics by displaying the photo at a recent campaign rally while accusing Democrats of corrupting traditional values.`\
+https://nytimes.com/aponline/2020/02/27/us/ap-us-kentucky-governor-gay-rights.html?searchResultPosition=4
+
+**White House Hopefuls Target Trump on Coronavirus Response**\
+`Democratic White House hopefuls are seizing on President Donald Trump’s delayed response to the coronavirus outbreak, calling it the latest evidence of his incompetence and warning that the crisis may only deepen as a result.`\
+https://nytimes.com/aponline/2020/02/27/us/ap-us-election-2020-virus-outbreak-democrats.html?searchResultPosition=5
+
 **Justice Dept. Charges Professor With Hiding Ties to China**\
 `A professor at the University of Tennessee has been arrested on charges that he hid his relationship with a Chinese university at the same time he received research grants from the federal government, the Justice Department said Thursday.`\
-https://nytimes.com/aponline/2020/02/27/us/politics/ap-us-professor-arrest.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/02/27/us/politics/ap-us-professor-arrest.html?searchResultPosition=6
 
 **A Year After House Vote, Dems Challenge McConnell on Guns**\
 `Frustrated Democrats again lambasted Senate Republican leader Mitch McConnell Thursday as they marked a year of Senate inaction since the House passed landmark gun control legislation.`\
-https://nytimes.com/aponline/2020/02/27/us/politics/ap-us-congress-guns.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/02/27/us/politics/ap-us-congress-guns.html?searchResultPosition=7
 
 **Judge Resigns Amid Use of Racial Slur in Text Messages**\
 `A Louisiana judge resigned Thursday after several people, including Gov. John Bel Edwards, called for her to step down for using racial slurs in angry text messages.`\
-https://nytimes.com/aponline/2020/02/27/us/ap-us-louisiana-judge-racial-slurs.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/02/27/us/ap-us-louisiana-judge-racial-slurs.html?searchResultPosition=8
 
 **Trustee Who Funds Climate Change Skeptics Leaves Natural History Board**\
 `Rebekah Mercer, whose family foundation was a major Trump donor, stepped down from the museum when her term expired in December.`\
-https://nytimes.com/2020/02/27/arts/design/natural-history-trustee-mercer-out.html?searchResultPosition=5
+https://nytimes.com/2020/02/27/arts/design/natural-history-trustee-mercer-out.html?searchResultPosition=9
 
 **How Bad Will the Coronavirus Outbreak Get?**\
 `There’s a lot we don’t know, but experts say there are ways to prepare.`\
-https://nytimes.com/2020/02/27/opinion/coronavirus-preparation.html?searchResultPosition=6
-
-**Proposal Would End California Cap on Freelancer Assignments**\
-`Bowing to intense criticism, the author of a sweeping new California labor law now wants to amend the statute to eliminate any cap on the number of assignments freelance journalists can take. `\
-https://nytimes.com/aponline/2020/02/27/us/ap-us-california-freelance-journalists.html?searchResultPosition=7
-
-**Syrian State TV Says Israeli Helicopters Launch Missiles at Syrian Military Points**\
-`Syrian state TV said on Thursday Israeli helicopters launched missiles at Syrian military points in Al-Qahtaniyah, Al-Hurria, and Al-Qunaitra, injuring three soldiers.`\
-https://nytimes.com/reuters/2020/02/27/world/middleeast/27reuters-mideast-syria-israel.html?searchResultPosition=8
-
-**Cuba to Deliver Verdict in Closely Eyed Dissident Case Next Month**\
-`Communist-run Cuba will deliver its verdict in a closely watched case against Jose Daniel Ferrer, one of the country's leading dissidents, on March 12, his wife told Reuters on Thursday, the day after his trial.`\
-https://nytimes.com/reuters/2020/02/27/world/americas/27reuters-cuba-politics.html?searchResultPosition=9
-
-**Cartel Boss' Daughter Arrested Attending Brother's Trial**\
-`U.S. authorities have arrested the daughter of a fugitive Mexican drug kingpin, who was in Washington to attend her brother's trial. `\
-https://nytimes.com/aponline/2020/02/27/us/politics/ap-us-drug-kingpins-daughter.html?searchResultPosition=10
+https://nytimes.com/2020/02/27/opinion/coronavirus-preparation.html?searchResultPosition=10
 
