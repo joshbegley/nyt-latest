@@ -26,7 +26,7 @@ https://nytimes.com/aponline/2020/02/27/business/ap-us-walmart-membership-progra
 `European soccer’s governing body has ordered its employees to keep a low profile at matches involving Manchester City as fans fume over the club’s Champions League ban.`\
 https://nytimes.com/2020/02/27/sports/soccer/manchester-city-uefa.html?searchResultPosition=8
 
-**Oil Industry Tool to Save Polar Bear Dens Is More Miss Than Hit, Study Says**\
+**Oil Industry Tool to Save Polar Bear Dens Is More Miss Than Hit**\
 `A camera technique used to spot polar bear dens in the Arctic identifies less than half of them, a new study suggests. `\
 https://nytimes.com/2020/02/27/climate/polar-bears-arctic-national-wildlife-reserve.html?searchResultPosition=9
 
