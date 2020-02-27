@@ -1,40 +1,40 @@
+**Blackstone's Schwarzman Says Cannot Buy Bloomberg While Owning Refinitiv**\
+`Blackstone Group Inc Chief Executive Stephen Schwarzman said the world's biggest private equity firm cannot buy Bloomberg should it come up for sale as long as the firm owns competitor Refinitiv.`\
+https://nytimes.com/reuters/2020/02/27/business/27reuters-blackstone-m-a-bloomberg.html?searchResultPosition=1
+
+**France's Macron Says Coronavirus 'Epidemic Is on the Way'**\
+`French President Emmanuel Macron on Thursday called the coronavirus outbreak a "crisis, an epidemic that is on the way".`\
+https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-china-health-macron.html?searchResultPosition=2
+
+**German Prosecutors Confirm Raid at ABN Amro Bank in Frankfurt Related to Cum-Ex**\
+`German authorities on Thursday confirmed a raid at ABN Amro Bank related to dividend tax stripping case known as cum-ex, the Cologne state prosecutor office said.`\
+https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-germany-banks-abn.html?searchResultPosition=3
+
+**Emirates Won't Fly Umrah Pilgrims, Some Tourists to Saudi Due to Coronavirus Outbreak**\
+`Emirates airline said it would no longer carry to Saudi Arabia passengers with Umrah pilgrimage visas or tourists from nearly two dozen countries until further notice, in compliance with a Saudi government directive to contain the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/02/27/world/middleeast/27reuters-china-health-emirates-saudi.html?searchResultPosition=4
+
+**Disgraced Catholic Order Vows to Turn Page on Abuse With New Norms**\
+`The new leader of the disgraced Legionaries of Christ Catholic religious order, whose founder was a serial sexual abuser, has promised to turn a page as the group enacted new norms to protect children.`\
+https://nytimes.com/reuters/2020/02/27/world/americas/27reuters-vatican-abuse-legionaries.html?searchResultPosition=5
+
+**Japan to Close Schools Nationwide to Control Spread of Virus**\
+`Japan is announcing the closure of schools nationwide to help control the spread of the new virus. `\
+https://nytimes.com/aponline/2020/02/27/world/asia/ap-virus-outbreak-japan.html?searchResultPosition=6
+
+**Factbox: Airlines Suspend Flights Due to Coronavirus Outbreak**\
+`Airlines have been suspending flights or modifying service in response to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/02/27/world/27reuters-china-health-airlines-factbox.html?searchResultPosition=7
+
+**China's Trade Faces Challenges as Small Firms Battle Coronavirus Impact**\
+`China's foreign trade faces challenges as small- and mid-size firms in its supply chains battle financing difficulties amid trade curbs, lack of raw materials and delayed payments during a coronavirus outbreak, the commerce ministry said on Thursday.`\
+https://nytimes.com/reuters/2020/02/27/world/asia/27reuters-china-health-mofcom-industries.html?searchResultPosition=8
+
+**Kenya University Berated for Blaming 'Reckless' Rape Victim**\
+`A major Kenyan university has caused widespread public offense by accusing a student who was gang-raped of "recklessness" for walking back to campus after a night out. `\
+https://nytimes.com/reuters/2020/02/27/world/africa/27reuters-kenya-women.html?searchResultPosition=9
+
 **Banks Have Some Way to Go in Disclosing Climate Risk: Lagarde**\
 `Climate change poses a risk to the financial sector and central banks need to pay closer attention as banks have some way to go in assessing and disclosing their exposure, European Central Bank President Christine Lagarde said on Thursday.`\
-https://nytimes.com/reuters/2020/02/27/business/27reuters-climatechange-ecb-lagarde.html?searchResultPosition=1
-
-**U.N. Rights Boss Seeks Advance Team Access for China Trip**\
-`United Nations rights boss Michelle Bachelet called on China on Thursday to provide "unfettered access for an advance team" to prepare her proposed visit, saying it should include a probe into the situation of the Uighur minority.`\
-https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-china-xinjiang-rights.html?searchResultPosition=2
-
-**Lebanon to Ask for Seven-Day Grace Period for March 9 Bond: Source**\
-`Lebanon intends to ask for a seven-day grace period for a $1.2 billion Eurobond that matures on March 9, as it is entitled to, in order to give financial advisers more time to draft a restructuring plan, a government source said on Thursday.`\
-https://nytimes.com/reuters/2020/02/27/world/middleeast/27reuters-lebanon-crisis-eurobonds.html?searchResultPosition=3
-
-**The Latest on the Coronavirus**\
-`Here's how New York State and city officials are preparing for a possible outbreak. `\
-https://nytimes.com/2020/02/27/nyregion/coronavirus-new-york.html?searchResultPosition=4
-
-**Malaysia's Parliament to Decide Next PM: Mahathir**\
-`Malaysia's interim prime minister Mahathir Mohamad on Thursday said the king has decided to call on parliament to decide who has enough support to become the next prime minister.`\
-https://nytimes.com/reuters/2020/02/27/world/asia/27reuters-malaysia-politics-mahathir.html?searchResultPosition=5
-
-**The Best Case for Each Candidate**\
-`Undecided? Let Opinion’s columnists make their argument for each of the top six candidates.`\
-https://nytimes.com/interactive/2020/02/27/opinion/which-democrat-should-I-vote-for.html?searchResultPosition=6
-
-**Welcome to the Age of Pandemics**\
-`We need to stop what drives mass epidemics rather than just respond to individual diseases.`\
-https://nytimes.com/2020/02/27/opinion/coronavirus-pandemics.html?searchResultPosition=7
-
-**The Making of ‘Six’: How Tudor Queens Turned Into Pop Stars**\
-`A cheeky musical about the ill-fated wives of Henry VIII is already a hit in Britain, on TikTok and on cruise ships. Now it is aiming to establish sovereignty on Broadway.`\
-https://nytimes.com/2020/02/27/theater/six-broadway.html?searchResultPosition=8
-
-**The Case for Mike Bloomberg**\
-`He’s a practical manager who can get things done.`\
-https://nytimes.com/2020/02/27/opinion/mike-bloomberg-2020.html?searchResultPosition=9
-
-**Trump’s Plan Backs Israeli Settlements. So Why Are Settlers Unhappy?**\
-`Prime Minister Benjamin Netanyahu expected the U.S. peace plan would gain him votes in Monday’s election. It might not work out that way.`\
-https://nytimes.com/2020/02/27/world/middleeast/israel-settlers-trump-plan-election.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/27/business/27reuters-climatechange-ecb-lagarde.html?searchResultPosition=10
 
