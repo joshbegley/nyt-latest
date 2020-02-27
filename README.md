@@ -20,7 +20,7 @@ https://nytimes.com/aponline/2020/02/27/us/ap-us-virus-outbreak-mormon-church.ht
 
 **Kazuhisa Hashimoto, 61, Who Created the ‘Konami Code’ Video Game Cheat, Dies**\
 `The code — up, up, down, down, left, right, left, right, B, A — was a famous cheat for players who wanted to squeeze more lives out of their video game consoles.`\
-https://nytimes.com/2020/02/27/obituaries/kazuhisa-hashimoto-died-konami-code-.html?searchResultPosition=7
+https://nytimes.com/2020/02/27/technology/kazuhisa-hashimoto-died-konami-code-.html?searchResultPosition=7
 
 **Bloomberg Might Not Spend to Help Sanders if He's Nominee**\
 `Billionaire Mike Bloomberg said Thursday that he might not spend money to assist Bernie Sanders if Sanders is the Democratic presidential nominee, a walk back of previous comments that he would use his fortune to boost whoever faces President Donald Trump in November.`\
