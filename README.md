@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/02/27/world/middleeast/27reuters-china-health-e
 https://nytimes.com/reuters/2020/02/27/world/americas/27reuters-vatican-abuse-legionaries.html?searchResultPosition=5
 
 **Japan to Close Schools Nationwide to Control Spread of Virus**\
-`Japan will close schools nationwide to help control the spread of the new virus, the government announced Thursday. `\
+`Japan is announcing the closure of schools nationwide to help control the spread of the new virus. `\
 https://nytimes.com/aponline/2020/02/27/world/asia/ap-virus-outbreak-japan.html?searchResultPosition=6
 
 **Factbox: Airlines Suspend Flights Due to Coronavirus Outbreak**\
