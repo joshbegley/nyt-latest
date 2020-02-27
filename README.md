@@ -1,6 +1,6 @@
 **Steven Seagal Settles Charges of Unlawfully Promoting Cryptocurrency**\
 `The Securities and Exchange Commission said that the actor was paid to promote the initial coin offering for a cryptocurrency company but did not properly disclose the agreement.`\
-https://nytimes.com/2020/02/27/arts/steven-seagal-settles-charges-of-unlawfully-promoting-cryptocurrency.html?searchResultPosition=2
+https://nytimes.com/2020/02/27/movies/steven-seagal-bitcoiin2gen.html?searchResultPosition=2
 
 **Your Money: Five Useful Money Moves You Can Do Instead of Panic**\
 `Spoiler alert: None of the useful things you can do about your money right now involve your 401(k). `\
