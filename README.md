@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-russia-military-mi
 https://nytimes.com/aponline/2020/02/27/world/middleeast/ap-ml-virus-outbreak-saudi-pilgrimage-qa.html?searchResultPosition=6
 
 **Second Child in 3 Days Is Killed by a Vehicle in Brooklyn**\
-`A boy, 7, died in East New York just two days after a girl, 10, was fatally struck by a school bus nearby.`\
+`A boy, 7, died just two days after a girl, 10, was fatally struck by a school bus nearby.`\
 https://nytimes.com/2020/02/27/nyregion/boy-killed-brooklyn.html?searchResultPosition=7
 
 **Giving Rosso di Montalcino a Second Look**\
