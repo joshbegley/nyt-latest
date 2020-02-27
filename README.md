@@ -1,36 +1,36 @@
+**Hawks Have Upper Hand as Mexico Central Bank Paces Rate Cuts**\
+`Mexico's central bank cautioned against steering monetary policy toward helping the country's stagnant economy, even as tension on its board over how much further interest rates should fall became apparent in a report published on Thursday.`\
+https://nytimes.com/reuters/2020/02/27/world/americas/27reuters-mexico-economy-minutes.html?searchResultPosition=2
+
+**Walking May Be Best Treatment for Pain From Clogged Leg Arteries**\
+`Discomfort in the calf and upper legs during walking is a hallmark of narrowed blood vessels due to heart disease, but walking more - not less - can help ease the pain, experts say.`\
+https://nytimes.com/reuters/2020/02/27/us/27reuters-health-claudication-exercises.html?searchResultPosition=3
+
+**Occidental Posts Quarterly Loss on Impairment, Charges**\
+`Occidental Petroleum Corp reported a quarterly loss on Thursday, as it took more than $1.7 billion in impairment and other charges. `\
+https://nytimes.com/reuters/2020/02/27/business/27reuters-occidental-results.html?searchResultPosition=4
+
+**Mylan Quarterly Profit Beats Estimates**\
+`Drugmaker Mylan NV reported a fourth-quarter profit on Thursday that beat estimates, helped by sales of new products such as asthma treatment Wixela.`\
+https://nytimes.com/reuters/2020/02/27/business/27reuters-mylan-nl-results.html?searchResultPosition=5
+
+**Feds Cite New Evidence Against Former Mexico Security Chief**\
+`New evidence against Mexico's former top security official has been uncovered since he was charged with taking tens of millions of dollars in bribes to protect Joaquin “El Chapo” Guzman’s notorious Sinaloa cartel, federal prosecutors said Thursday.`\
+https://nytimes.com/aponline/2020/02/27/us/ap-us-mexican-security-chief-indicted-1st-ld-writethru.html?searchResultPosition=6
+
+**Beyond Meat Narrows 4Q Loss as Plant-Based Meat Sales Jump**\
+`Beyond Meat narrowed its losses in the fourth quarter as sales of its plant-based meat soared.`\
+https://nytimes.com/aponline/2020/02/27/business/bc-us-results-beyond-meat.html?searchResultPosition=7
+
+**Your Friday Briefing**\
+`Coronavirus, India clashes, Australian rules football: Here’s what you need to know.`\
+https://nytimes.com/2020/02/27/briefing/coronavirus-india-hindu-muslim-violence-royal-family.html?searchResultPosition=8
+
 **Train Accident in Northern Egypt Injures 38**\
 `Thirty-eight people were injured in a train accident in northern Egypt on Thursday, the health ministry said.`\
-https://nytimes.com/reuters/2020/02/27/world/middleeast/27reuters-egypt-train.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/02/27/world/middleeast/27reuters-egypt-train.html?searchResultPosition=9
 
 **Brooklyn Public Library and Brooklyn Historical Society to Merge**\
 `A new plan will combine their rich archival holdings, officials say, while preserving the missions of both institutions.`\
-https://nytimes.com/2020/02/27/arts/brooklyn-public-library-brooklyn-historical-society.html?searchResultPosition=3
-
-**Michael Bennet - Executive Power**\
-`The Times sent a survey to the 2020 candidates about their understanding of the scope and limits of the presidential authority they would wield if elected.`\
-https://nytimes.com/interactive/2020/us/politics/michael-bloomberg-executive-power.html?searchResultPosition=4
-
-**Turkey Will No Longer Stop Syrian Migrant Flow to Europe: Turkish Official**\
-`Turkey has decided to no longer stop Syrian refugees from reaching Europe by land and sea, a senior Turkish official told Reuters on Thursday, in anticipation of the imminent arrival of refugees from Syria's Idlib where nearly a million have been displaced. `\
-https://nytimes.com/reuters/2020/02/27/world/middleeast/27reuters-syria-security-turkey-migrants.html?searchResultPosition=5
-
-**No Audience at Polish e-Gaming Event Due to Coronavirus Fears**\
-`The finals of the computer games world cup in Poland will take place without an audience on site after the regional governor decided to revoke its permit due to coronavirus fears.`\
-https://nytimes.com/reuters/2020/02/27/sports/27reuters-china-health-poland-egaming.html?searchResultPosition=6
-
-**Cycling: UAE Tour Canceled Over Coronavirus, Say Teams**\
-`The UAE Tour featuring some of the world's leading riders has been canceled with two stages remaining due to the coronavirus outbreak, according to several teams on Thursday.`\
-https://nytimes.com/reuters/2020/02/27/world/asia/27reuters-china-health-cycling.html?searchResultPosition=7
-
-**At Least 34 Turkish Soldiers Killed in Air Strikes in Syria's Idlib: Syrian Observatory**\
-`At least 34 Turkish soldiers were killed in air strikes in Syria's Idlib on Thursday, the Syrian Observatory, a war monitor, reported.`\
-https://nytimes.com/reuters/2020/02/27/world/europe/27reuters-syria-security-toll.html?searchResultPosition=8
-
-**How to Set Up Your New Car**\
-`It’s full of electronics, so think of it as another device that you can make to be more you.`\
-https://nytimes.com/2020/02/27/smarter-living/how-to-set-up-your-new-car.html?searchResultPosition=9
-
-**9 Turkish Soldiers Killed in Northeast Syria Air Strike**\
-`Nine Turkish soldiers were killed in an air strike in northeast Syria late Thursday, a Turkish official said.`\
-https://nytimes.com/aponline/2020/02/27/world/middleeast/ap-ml-syria-turkey.html?searchResultPosition=10
+https://nytimes.com/2020/02/27/arts/brooklyn-public-library-brooklyn-historical-society.html?searchResultPosition=10
 
