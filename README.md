@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/02/27/us/politics/ap-us-virus-outbreak-trump.h
 https://nytimes.com/aponline/2020/02/27/us/politics/ap-us-election-2020-nervous-democrats.html?searchResultPosition=3
 
 **World About to Be Gripped by Coronavirus Pandemic, Australia's Morrison Says**\
-`There is every sign the world is about to be gripped by a pandemic of coronavirus, Prime Minister Scott Morrison warned on Thursday, as Australia kicked off emergency measures to restrain the spread of the disease.  `\
+`There is every sign the world is about to be gripped by a pandemic of coronavirus, Australian Prime Minister Scott Morrison warned on Thursday, as Canberra kicked off emergency measures to restrain the spread of the disease.  `\
 https://nytimes.com/reuters/2020/02/27/world/asia/27reuters-china-health-australia.html?searchResultPosition=4
 
 **Labor Union Unveils $150M Campaign to Help Defeat Trump**\
