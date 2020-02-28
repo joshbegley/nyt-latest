@@ -1,20 +1,20 @@
+**North Korea's Kim Guides Military Drills, Warns 'Serious Consequences' if Virus Breaks Out: KCNA**\
+`North Korean leader Kim Jong Un oversaw military drills on Friday, state media KCNA said on Saturday, a rare public outing amid efforts to prevent an outbreak of the coronavirus in the isolated country. `\
+https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-northkorea-missiles.html?searchResultPosition=6
+
+**U.S. Reviewing Options to Assist Turkey After Attack in Syria: Pompeo**\
+`The United States is reviewing options to assist Turkey after an attack by Russian-backed Syrian government forces killed 33 Turkish soldiers in Syria's Idlib province, U.S. Secretary of State Mike Pompeo said on Friday.`\
+https://nytimes.com/reuters/2020/02/28/world/middleeast/28reuters-syria-security-turkey-pompeo.html?searchResultPosition=7
+
+**Utah Advances Plan to Remove Felony Status for Polygamy**\
+`Polygamy wouldn't be a felony crime in Utah for the first time in 85 years under a bill that passed the Legislature on Friday and appears to be supported by the governor. `\
+https://nytimes.com/aponline/2020/02/28/us/ap-us-polygamy-law-.html?searchResultPosition=8
+
 **The Berlinale Unveils 8 Hours of ‘DAU.’ It’s Just the Beginning.**\
 `Ilya Khrzhanovsky’s films “Degeneratsia” and “Natasha” are part of an undertaking whose eccentricity and grandeur border on folly.`\
-https://nytimes.com/2020/02/28/movies/dau-berlina.html?searchResultPosition=6
+https://nytimes.com/2020/02/28/movies/dau-berlina.html?searchResultPosition=9
 
 **Right-Wing Media Says Virus Fears Were Whipped Up to Hurt Trump**\
 `Rush Limbaugh and Fox News pundits accused Democrats and journalists of “politicizing and actually weaponizing” an infectious disease.`\
-https://nytimes.com/2020/02/28/business/media/coronavirus-right-wing-media.html?searchResultPosition=7
-
-**WADA Cancels March Symposium in Switzerland Due to Coronavirus**\
-`The World Anti-Doping Agency (WADA) has canceled next month's annual symposium, the main event on the annual global anti-doping calendar, and related athlete session in Switzerland because of the coronavirus, it said on Friday.`\
-https://nytimes.com/reuters/2020/02/28/sports/28reuters-china-health-wada.html?searchResultPosition=8
-
-**U.S. Appeals Court Grants Trump Bid to Block McGahn Testimony to Congress**\
-`In a victory for President Donald Trump, a U.S. appeals court on Friday dismissed a Democratic-led congressional panel's lawsuit seeking to enforce a subpoena for testimony from former White House Counsel Donald McGahn.`\
-https://nytimes.com/reuters/2020/02/28/us/politics/28reuters-usa-trump-mcgahn.html?searchResultPosition=9
-
-**Soccer: Leeds Goalkeeper Handed Eight-Game Ban After Racism Charge**\
-`Leeds United goalkeeper Kiko Casilla was banned for eight matches and fined 60,000 pounds ($77,964.00) on Friday after being found guilty of racist abuse in a Championship match against Charlton Athletic last September.`\
-https://nytimes.com/reuters/2020/02/28/sports/soccer/28reuters-soccer-england-lee-casilla.html?searchResultPosition=10
+https://nytimes.com/2020/02/28/business/media/coronavirus-right-wing-media.html?searchResultPosition=10
 
