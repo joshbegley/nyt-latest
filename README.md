@@ -1,18 +1,18 @@
+**UN Envoy Says Libya Truce Nearly Broke Down Amid Fighting**\
+`The U.N. envoy for Libya on Friday denounced the near breakdown of a fragile truce between the country’s warring sides, citing a “serious violation” over the last 24 hours — attacks on the capital including an early morning shelling of Tripoli’s airport. `\
+https://nytimes.com/aponline/2020/02/28/world/middleeast/ap-ml-un-libya-talks.html?searchResultPosition=3
+
 **Defending Children**\
 `The Art Show opened at the Park Avenue Armory, and the Citizens Budget Commission held an awards dinner.`\
-https://nytimes.com/2020/02/28/style/defending-children.html?searchResultPosition=3
+https://nytimes.com/2020/02/28/style/defending-children.html?searchResultPosition=4
 
 **Benefiting the Children’s Defense Fund**\
 `And the Art Show opens at the Park Avenue Armory.`\
-https://nytimes.com/slideshow/2020/02/28/fashion/benefiting-the-childrens-defense-fund.html?searchResultPosition=4
+https://nytimes.com/slideshow/2020/02/28/fashion/benefiting-the-childrens-defense-fund.html?searchResultPosition=5
 
 **Who Will Win on Super Tuesday? Here’s What Polls Show in 6 Key States**\
 `With states like California and Texas voting next Tuesday, about one-third of all pledged delegates are up for grabs.`\
-https://nytimes.com/2020/02/28/us/politics/latest-democratic-polls.html?searchResultPosition=5
-
-**A Mexican Police Chief’s Handshake Deal With a Sicario**\
-`An epidemic of violence in Mexico and endemic corruption pushed a police chief to try something new — an off-the-books witness protection program for assassins willing to turn on their cartels.`\
-https://nytimes.com/2020/02/28/world/americas/a-mexican-police-chiefs-handshake-deal-with-a-sicario.html?searchResultPosition=6
+https://nytimes.com/2020/02/28/us/politics/latest-democratic-polls.html?searchResultPosition=6
 
 **Sanders-Linked Group Entered Into Racial Discrimination NDA**\
 `A political advocacy group founded by Bernie Sanders entered into a nondisclosure agreement with an African American political consultant that bars her from discussing a lawsuit alleging racial discrimination at the organization and the Vermont senator's 2016 presidential campaign.`\
