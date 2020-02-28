@@ -1,20 +1,20 @@
-**Florida Law Limiting First Opioid Prescription Linked to Drop in Use**\
-`A Florida law restricting the quantity of opioids a doctor can prescribe for acute pain to three days' worth may have led to overall reductions in opioids dispensed to patients in the state, a new study suggests. `\
-https://nytimes.com/reuters/2020/02/28/us/28reuters-health-law-opioids-florida.html?searchResultPosition=6
+**Trump Taps John Ratcliffe for Director of National Intelligence**\
+`If confirmed, he would replace Richard Grenell, whom President Trump put in charge of American intelligence agencies this month on an acting basis.`\
+https://nytimes.com/2020/02/28/us/politics/john-ratcliffe-director-national-intelligence.html?searchResultPosition=6
 
-**Congress Cannot Sue to Enforce Subpoenas Defied by Executive Branch, Appeals Court Rules**\
-`An appeals court dismissed a lawsuit brought by the House Judiciary Committee against President Trump’s former White House counsel, Donald F. McGahn II.`\
-https://nytimes.com/2020/02/28/us/mcgahn-subpoena-trump.html?searchResultPosition=7
+**Citron's Andrew Left Closes Wayfair Short Bet After Long Wait**\
+`This week's sharp stock sell-off helped activist short-seller Andrew Left profitably close a long-held bet against online retailer Wayfair on Friday.`\
+https://nytimes.com/reuters/2020/02/28/business/28reuters-wayfair-stock-citron.html?searchResultPosition=7
 
-**Just One American With Coronavirus Still in Hospital: Vice President Pence**\
-`Of dozens of confirmed coronavirus cases in the United States, only one patient is still in the hospital, U.S. Vice President Mike Pence said on Friday.`\
-https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-usa-pence.html?searchResultPosition=8
+**Hoarding in the USA? Coronavirus Sparks Consumer Concerns**\
+`American consumers awoke this week to the coronavirus threat and are beginning to display a symptom of the illness seen in Asia and Europe - hoarding.`\
+https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-usa-hoarding.html?searchResultPosition=8
 
-**Woods Takes 3rd Straight Week Off by Skipping Bay Hill**\
-`Tiger Woods is taking a third straight week off by deciding against playing the Arnold Palmer Invitational at Bay Hill.`\
-https://nytimes.com/aponline/2020/02/28/sports/golf/ap-glf-bay-hill.html?searchResultPosition=9
+**Trump Picks Ratcliffe to Be Top Intelligence Official Again**\
+`President Donald Trump on Friday picked Rep. John Ratcliffe again to be the nation's top intelligence official, overseeing the the 17 U.S. spy agencies that the president has repeatedly scorned. `\
+https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-trump-intelligence.html?searchResultPosition=9
 
-**Steyer in South Carolina: He Came, He Spent, but Did He Conquer?**\
-`The campaign of Tom Steyer, the hedge fund mogul, has elevated his spending to a new level in South Carolina. But the return on his investment is unclear.`\
-https://nytimes.com/2020/02/28/us/politics/tom-steyer-south-carolina-campaign-spending.html?searchResultPosition=10
+**Guatemalan Prosecutors Seek to Question Former First Lady**\
+`Guatemalan prosecutors sought Friday to summon Patricia Marroquín de Morales, the wife of ex-president Jimmy Morales, for questioning in connection with possible fraud. `\
+https://nytimes.com/aponline/2020/02/28/world/americas/ap-lt-guatemala-corruption.html?searchResultPosition=10
 
