@@ -1,20 +1,20 @@
+**American Airlines Plans $550 Million Boost to Oklahoma Base**\
+`American Airlines said Friday it will invest $550 million in a seven-year overhaul of its largest maintenance base, including a new hangar to service the airline’s biggest planes.`\
+https://nytimes.com/aponline/2020/02/28/business/ap-us-american-airlines-tulsa.html?searchResultPosition=6
+
+**One Turkish Soldier Killed, Two Wounded in Syria's Idlib: Ministry**\
+`One Turkish soldier was killed and two were wounded in shelling by Syrian government forces in Syria's northwest Idlib province, the Turkish Defense Ministry said on Friday, a day after 33 Turkish soldiers were killed in an attack in the region.`\
+https://nytimes.com/reuters/2020/02/28/world/middleeast/28reuters-syria-security-turkey-shelling.html?searchResultPosition=7
+
+**'Amazing Race' Suspends Filming as Virus Precaution**\
+`The globe-trotting reality series “The Amazing Race” is taking a breather as a precaution due to the virus outbreak affecting several countries.`\
+https://nytimes.com/aponline/2020/02/28/us/ap-us-virus-outbreak-amazing-race.html?searchResultPosition=8
+
 **Government Eyes War Powers to Speed Medical Manufacturing Ahead of Virus**\
 `Alex M. Azar II, the health secretary, raised the prospect of invoking a Korean War-era law to expand production of the materials for national security purposes in a potential coronavirus outbreak.`\
-https://nytimes.com/2020/02/28/us/politics/trump-coronavirus.html?searchResultPosition=6
+https://nytimes.com/2020/02/28/us/politics/trump-coronavirus.html?searchResultPosition=9
 
 **Get a Job, Kid**\
 `In Cynthia L. Copeland’s graphic memoir “Cub,” an awkward seventh grader finds deliverance as a reporter for her local newspaper.`\
-https://nytimes.com/2020/02/28/books/review/cub-cynthia-copeland.html?searchResultPosition=7
-
-**How Can a Kid Today Hear His Inner Voice?**\
-`In Sara Pennypacker’s “Here in the Real World,” an 11-year-old skips out on the horrors of noisy summer “Rec” to build a secret kingdom in an abandoned lot.`\
-https://nytimes.com/2020/02/28/books/review/here-in-the-real-world-sara-pennypacker.html?searchResultPosition=8
-
-**Woods' Back Still Stiff, Will Skip Palmer Invitational: Agent**\
-`Tiger Woods' back remains stiff and he will not play in next week's Arnold Palmer Invitational in Florida where he has won eight times, his agent said on Friday.`\
-https://nytimes.com/reuters/2020/02/28/sports/golf/28reuters-golf-palmer-woods.html?searchResultPosition=9
-
-**Lawmakers: Put Flood in Hall of Fame**\
-`A bipartisan group from Congress is leading the drive to see the late Curt Flood elected to the National Baseball Hall of Fame, 50 years after he challenged the power of Major League Baseball owners.`\
-https://nytimes.com/reuters/2020/02/28/sports/baseball/28reuters-baseball-mlb-stl-flood-halloffame.html?searchResultPosition=10
+https://nytimes.com/2020/02/28/books/review/cub-cynthia-copeland.html?searchResultPosition=10
 
