@@ -27,6 +27,6 @@ https://nytimes.com/2020/02/28/dining/the-sweetest-saltiest-chicken.html?searchR
 https://nytimes.com/aponline/2020/02/28/business/ap-us-tribe-casino-lawsuit.html?searchResultPosition=9
 
 **Freeman Dyson, Visionary Technologist, Is Dead at 96**\
-`After an early breakthrough on light and matter, he became a writer who challenged climate change theory and pondered space exploration and nuclear warfare.`\
+`After an early breakthrough as a scientist on light and matter, he became a writer who challenged climate science and pondered space exploration and nuclear warfare.`\
 https://nytimes.com/2020/02/28/science/freeman-dyson-dead.html?searchResultPosition=10
 
