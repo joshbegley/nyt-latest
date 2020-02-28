@@ -1,20 +1,20 @@
-**U.N. Chief: Killing of Turkish Troops One of 'Most Alarming Moments' of Syria War**\
-`U.N. Secretary-General Antonio Guterres on Friday described an escalation in fighting in northwest Syria that killed dozens of Turkish troops as "one of the most alarming moments" of the `\
-https://nytimes.com/reuters/2020/02/28/world/middleeast/28reuters-syria-security-un.html?searchResultPosition=6
+**Liberal Gun Owners Face Dilemma in 2020 Field**\
+`Like many liberals, Lara Smith considers herself a feminist, favors abortion rights and believes the nation’s immigration policies under the Trump administration have just been “vile.” `\
+https://nytimes.com/aponline/2020/02/28/us/ap-liberal-gun-owners-politics.html?searchResultPosition=6
 
-**U.N. Chief Calls for Syria Truce Before Situation 'Entirely Out of Control'**\
-`U.N Secretary-General Antonio Guterres on Friday called for an immediate ceasefire in northwest Syria "before the situation gets entirely out of control."`\
-https://nytimes.com/reuters/2020/02/28/world/middleeast/28reuters-syria-security-un-chief.html?searchResultPosition=7
+**Results: The Most Detailed Map of the Nevada Democratic Caucus**\
+`By Charlie Smart, Denise Lu, Matthew Bloch and Miles Watkins`\
+https://nytimes.com/interactive/2020/02/22/us/elections/results-nevada-caucus-precinct-map.html?searchResultPosition=7
 
-**Javelinas Like This? Baby, They Were Born to Run**\
-`A short video of a hog-like creature sprinting down the streets of Tucson, Ariz., took off this week. It was wonderful.`\
-https://nytimes.com/2020/02/28/us/javelina-Arizona.html?searchResultPosition=8
+**Prosecutors Raid Costa Rican President's Offices in Data Privacy Investigation**\
+`Prosecutors raided the headquarters of Costa Rican President Carlos Alvarado on Friday as part of an investigation into possible data privacy violations by the government, the public ministry said. `\
+https://nytimes.com/reuters/2020/02/28/world/americas/28reuters-costarica-president.html?searchResultPosition=8
 
-**Kvitova Overcomes Tenacious Barty to Set Up Sabalenka Final in Doha**\
-`Czech Petra Kvitova edged a seesaw battle with Australian world number one Ash Barty 6-4 2-6 6-4 at the Qatar Open on Friday to set up a title clash against Aryna Sabalenka in Doha.`\
-https://nytimes.com/reuters/2020/02/28/sports/tennis/28reuters-tennis-doha-kvitova.html?searchResultPosition=9
+**Christian Woman in Pakistan Blasphemy Row: I've Been Invited to Live in France**\
+`Asia Bibi, a Christian woman sentenced to death for blasphemy in Pakistan, said on Friday after meeting President Emmanuel Macron that she had been invited her to live in France.`\
+https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-france-macron-bibi.html?searchResultPosition=9
 
-**Apple Closely Watching Coronavirus Outbreak in South Korea, Italy: Cook**\
-`Apple Inc is closely watching how the coronavirus outbreak is unfolding in South Korea and Italy where the company has suppliers, Chief Executive Officer Tim Cook said in an interview with the Fox Business Network.`\
-https://nytimes.com/reuters/2020/02/28/technology/28reuters-china-health-apple.html?searchResultPosition=10
+**Ukraine Is Threatening to Arrest Its Former President**\
+`The Ukrainian authorities have threatened to arrest Petro O. Poroshenko, the former president and current leader of the political opposition.`\
+https://nytimes.com/2020/02/28/world/europe/ukraine-petro-poroshenko.html?searchResultPosition=10
 
