@@ -1,20 +1,20 @@
-**Messe Berlin Says ITB Fair 2020 Has Been Canceled Due to Coronavirus**\
-`Messe Berlin on Friday said the ITB Tourism fair has been canceled due to the spread of the coronavirus. `\
-https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-itb-cancellation.html?searchResultPosition=6
+**Kvitova Overcomes Tenacious Barty to Set Up Sabalenka Final in Doha**\
+`Czech Petra Kvitova edged a seesaw battle with Australian world number one Ash Barty 6-4 2-6 6-4 at the Qatar Open on Friday to set up a title clash against Aryna Sabalenka in Doha.`\
+https://nytimes.com/reuters/2020/02/28/sports/tennis/28reuters-tennis-doha-kvitova.html?searchResultPosition=6
 
-**As Coronavirus Slams Italy, Paralysis and Anxiety Spread**\
-`At the epicenter of Europe's worst outbreak of coronavirus to date, daily lives have taken on an eerie, aimless calm. It's at night that the worry takes over.`\
-https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-italy-paralysis-insight.html?searchResultPosition=7
+**Apple Closely Watching Coronavirus Outbreak in South Korea, Italy: Cook**\
+`Apple Inc is closely watching how the coronavirus outbreak is unfolding in South Korea and Italy where the company has suppliers, Chief Executive Officer Tim Cook said in an interview with the Fox Business Network.`\
+https://nytimes.com/reuters/2020/02/28/technology/28reuters-china-health-apple.html?searchResultPosition=7
 
-**U.S. Offer to Help Iran in Dealing With Coronavirus 'Ridiculous': Iran Foreign Ministry Spokesman**\
-`America's offer to help Iran in dealing with coronavirus is "ridiculous," Iran's foreign ministry spokesman Abbas Mousavi said on Friday, according to the Mehr news agency.`\
-https://nytimes.com/reuters/2020/02/28/world/middleeast/28reuters-china-health-iran-foreign-ministry.html?searchResultPosition=8
+**FCC Votes to Propose Fining U.S. Wireless Carriers More Than $200 Million Over Consumer Location Data**\
+`The Federal Communications Commission confirmed it voted to propose fining four major U.S. wireless carriers over $200 million for failing to protect consumers location information.`\
+https://nytimes.com/reuters/2020/02/28/technology/28reuters-usa-wireless.html?searchResultPosition=8
 
-**Schwab Tells Employees to Self-Quarantine After Visiting China, South Korea**\
-`Brokerage giant Charles Schwab Corp has asked employees who recently traveled to China or South Korea to remain at home for the next two weeks. `\
-https://nytimes.com/reuters/2020/02/28/business/28reuters-china-health-charles-schwab.html?searchResultPosition=9
+**FIFA Chief Infantino Says Open to Changes in Offside Law**\
+`FIFA president Gianni Infantino says he is open to changes to the offside law to help address problems that have arisen since the introduction of VAR video reviews.`\
+https://nytimes.com/reuters/2020/02/28/sports/soccer/28reuters-soccer-ifab.html?searchResultPosition=9
 
-**Lufthansa to Cut Flight Capacity Due to Coronavirus Spread**\
-`German airline group Lufthansa said it will cut the number of short- and medium-haul flights in response to the accelerated spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-lufthansa.html?searchResultPosition=10
+**FIFA Chief Infantino Accepts Games Are at Risk Due to Coronavirus**\
+`FIFA president Gianni Infantino has said March's international soccer matches could be threatened by the coronavirus but was hopeful that this year's European Championship tournament and the Olympic Games will go ahead unaffected.`\
+https://nytimes.com/reuters/2020/02/28/sports/soccer/28reuters-china-health-soccer-infantino.html?searchResultPosition=10
 
