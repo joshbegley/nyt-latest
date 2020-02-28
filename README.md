@@ -1,20 +1,20 @@
-**Bank Lending Could Dry Up in Crypto-Currency Economy, Warns BoE's Cunliffe**\
-`The rise of digital currencies such as Facebook's Libra could lead to a drying up of credit flowing into the broader economy, Bank of England Deputy Governor Jon Cunliffe said on Friday.`\
-https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-britain-boe-cunliffe.html?searchResultPosition=6
+**U.N. Chief Says Window for Containment of Coronavirus Narrowing**\
+`U.N. Secretary-General Antonio Guterres said on Friday that containment of the global spread of coronavirus was possible "but the window of opportunity is narrowing." `\
+https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-un-guterres.html?searchResultPosition=6
 
-**Responding to Coronavirus, in the U.S. and Asia**\
-`Readers critique how President Trump has reacted to the crisis and offer firsthand accounts of how people are coping with the disease in Asia.`\
-https://nytimes.com/2020/02/28/opinion/letters/coronavirus-us-asia.html?searchResultPosition=7
+**Paris Gare De Lyon Railway Station Evacuated After Major Fire**\
+`French police evacuated the Gare de Lyon railway station in Paris on Friday after a major fire broke out on a street next to the station.`\
+https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-france-fire.html?searchResultPosition=7
 
-**U.S. Appeals Court Blocks Trump Policy Forcing Migrants to Wait in Mexico**\
-`A U.S. federal appeals court in San Francisco, California on Friday blocked a Trump administration policy that has forced tens of thousands of migrants to wait in Mexico for months for hearings in U.S. immigration courts.`\
-https://nytimes.com/reuters/2020/02/28/world/americas/28reuters-usa-immigration-mexico.html?searchResultPosition=8
+**Trump, in Call With Erdogan, Backs Turkey and Urges End to Violence in Syria's Idlib**\
+`U.S. President Donald Trump, in a call with Turkish President Tayyip Erdogan on Friday, backed de-escalation of violence in northwestern Syria and called on the Syrian government, Russia and Iran to halt their offences, the White House said.     `\
+https://nytimes.com/reuters/2020/02/28/world/middleeast/28reuters-syria-security-turkey-usa.html?searchResultPosition=8
 
-**Exclusive: SoftBank Communications Chief Gary Ginsberg Takes Leave to Aid Bloomberg Campaign-Sources**\
-`Gary Ginsberg, the global head of communications for SoftBank Group Corp, has taken an indefinite leave of absence to advise Michael Bloomberg's U.S. presidential campaign, people familiar with the matter said on Friday.`\
-https://nytimes.com/reuters/2020/02/28/business/28reuters-softbank-ginsberg-bloomberg-exclusive.html?searchResultPosition=9
+**Anti-Polanski Protesters Clash With Police Outside Movie Awards**\
+`French Police on Friday pushed back protesters who pulled down a safety barrier outside the Paris theatre hosting the 2020 Cesar Awards, where a movie by director Roman Polanski, who faces rape accusations, is up for a dozen nominations.`\
+https://nytimes.com/reuters/2020/02/28/arts/28reuters-awardsprotests.html?searchResultPosition=9
 
-**Intesa Sanpaolo Hires Four Additional Advisers for UBI Banca Bid**\
-`Intesa Sanpaolo has picked JP Morgan, Morgan Stanley, UBS and Equita Sim as advisers for its bid on rival UBI Banca, Italy's biggest retail bank said on Friday. `\
-https://nytimes.com/reuters/2020/02/28/business/28reuters-ubi-m-a-intesa-advisers.html?searchResultPosition=10
+**Brazil Q4 Growth Likely Slowed, Extending Historically Weak Recovery: Reuters Poll**\
+`Brazil's economy likely failed to accelerate in the final three months of last year, growing by only 0.5% and prolonging what is already the weakest recovery from recession on record, according to a Reuters poll of economists conducted this week.`\
+https://nytimes.com/reuters/2020/02/28/world/americas/28reuters-brazil-economy-poll.html?searchResultPosition=10
 
