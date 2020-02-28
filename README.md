@@ -1,36 +1,36 @@
+**Give Out Cash Freely**\
+`Aimee Lucido is back with a boss themeless puzzle.`\
+https://nytimes.com/2020/02/27/crosswords/daily-puzzle-2020-02-28.html?searchResultPosition=2
+
+**No. 19 Florida St. Women Jump Out Early, Rout Clemson 81-54**\
+`Kiah Gillespie scored 10 of her 16 points in the first half and grabbed 11 rebounds to lead No. 19 Florida State to an 81-54 victory over Clemson on Thursday night. `\
+https://nytimes.com/aponline/2020/02/27/sports/ncaabasketball/bc-bkw-t25-clemson-florida-st.html?searchResultPosition=3
+
+**Judge Vacates Directive Over Energy Lease Public Comments**\
+`A judge in Idaho has overturned a federal directive to curtail environmental review and eliminate mandatory public comment periods concerning oil and gas leasing on some public lands.`\
+https://nytimes.com/aponline/2020/02/27/us/ap-us-sage-grouse-land-ruling.html?searchResultPosition=4
+
+**St. Francis (Pa.) Defeats Mount St. Mary's 75-62**\
+`Isaiah Blackmon had 22 points as St. Francis (Pa.) stretched its win streak to eight games, defeating Mount St. Mary's 75-62 on Thursday night. Keith Braxton added 20 points for the Red Flash. Braxton also had 12 rebounds and six assists.`\
+https://nytimes.com/aponline/2020/02/27/sports/ncaabasketball/bc-bkc-mount-st-marys-st-francis-pa.html?searchResultPosition=5
+
+**Ballantyne Carries LIU-Brooklyn Over Wagner 74-66**\
+`Jack Ballantyne had 18 points and 12 rebounds off the bench to lift Long Island-Brooklyn to a 74-66 win over Wagner on Thursday night.`\
+https://nytimes.com/aponline/2020/02/27/sports/ncaabasketball/bc-bkc-wagner-long-island-university.html?searchResultPosition=6
+
+**Liberty Clinches at Least Share of Atlantic Sun Title**\
+`Caleb Homesley had 26 points as Liberty clinched at least a share of the Atlantic Sun title won its eighth straight game, beating Kennesaw State 76-52 on Thursday night.`\
+https://nytimes.com/aponline/2020/02/27/sports/ncaabasketball/bc-bkc-liberty-kennesaw-st.html?searchResultPosition=7
+
+**One Hyundai Motor Factory Worker in South Korea Tests Positive for Virus-Yonhap**\
+`One worker at Hyundai Motor's factory complex in South Korea's southeastern city of Ulsan has tested positive for coronavirus, Yonhap News Agency said on Friday, without saying how they received the information. `\
+https://nytimes.com/reuters/2020/02/27/world/asia/27reuters-china-health-southkorea-hyundai-motor.html?searchResultPosition=8
+
 **Coronavirus in California: What You Need to Know**\
 `Thirty-three people in the state have tested positive for the virus, and at least 8,400 people who have returned from overseas are being monitored.`\
-https://nytimes.com/2020/02/27/us/california-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2020/02/27/us/california-coronavirus.html?searchResultPosition=9
 
 **Fobbs Scores 21 to Carry Towson Past Hofstra 76-65**\
 `Brian Fobbs had 21 points as Towson topped Hofstra 76-65 on Thursday night.`\
-https://nytimes.com/aponline/2020/02/27/sports/ncaabasketball/bc-bkc-towson-hofstra.html?searchResultPosition=3
-
-**Forrest Scores 21 to Lead FAU Past UTSA 80-71**\
-`Michael Forrest had a season-high 21 points as Florida Atlantic beat UTSA 80-71 on Thursday night.`\
-https://nytimes.com/aponline/2020/02/27/sports/ncaabasketball/bc-bkc-utsa-florida-atlantic.html?searchResultPosition=4
-
-**Howard Scored 25, No. 15 Kentucky Women Beat Georgia 88-77**\
-`Rhyne Howard made 4 of 12 from 3-point range and scored 25 points help No. 15 Kentucky beat Georgia 88-77 on Thursday night.`\
-https://nytimes.com/aponline/2020/02/27/sports/ncaabasketball/bc-bkw-t25-georgia-kentucky.html?searchResultPosition=5
-
-**Coleman-Lands Carries Miami (Ohio) Over Cent. Michigan 76-57**\
-`Isaiah Coleman-Lands had 13 points, seven rebounds and seven assists as Miami (Ohio) defeated Central Michigan 76-57 on Thursday night.`\
-https://nytimes.com/aponline/2020/02/27/sports/ncaabasketball/bc-bkc-central-michigan-miami-oh.html?searchResultPosition=6
-
-**Minus Embiid and Simmons, Harris Leads 76ers Past Knicks**\
-`Tobias Harris scored 34 points to lead the short-handed Philadelphia 76ers to a 115-106 victory over the New York Knicks on Thursday night.`\
-https://nytimes.com/aponline/2020/02/27/sports/basketball/bc-bkn-knicks-76ers.html?searchResultPosition=7
-
-**Walkers Leads Tide Women to Upset of No. 12 Texas A&M 76-63**\
-`Jasmine Walker drained a career-high six 3-pointers and scored 24 points and Alabama made a dominant second quarter hold up for a 76-63 upset over No. 12 Texas A&M on Thursday night.`\
-https://nytimes.com/aponline/2020/02/27/sports/ncaabasketball/bc-bkw-t25-alabama-texas-am.html?searchResultPosition=8
-
-**Trice, Wisconsin Hold Off No. 19 Michigan 81-74**\
-`D'Mitrik Trice scored 28 points and Wisconsin snapped No. 19 Michigan's winning streak at five with an 81-74 victory Thursday night.`\
-https://nytimes.com/aponline/2020/02/27/sports/ncaabasketball/bc-bkc-t25-wisconsin-michigan.html?searchResultPosition=9
-
-**Radford Fends Off Pesky Hampton With Balanced Attack**\
-`Travis Fields Jr. and Carlik Jones each scored 17 points, Jones made two important free throws near the end, and Radford beat Hampton 81-78 on Thursday.`\
-https://nytimes.com/aponline/2020/02/27/sports/ncaabasketball/bc-bkc-radford-hampton.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/27/sports/ncaabasketball/bc-bkc-towson-hofstra.html?searchResultPosition=10
 
