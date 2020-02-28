@@ -1,20 +1,20 @@
-**Marine General Orders Removal of Confederate Items at Bases**\
-`All Confederate flags, bumper stickers and similar items must be removed from Marine Corps bases, according to a new directive from the commandant.`\
-https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-marines-confederate-items.html?searchResultPosition=6
+**Punter With ‘Arms Like Logs’ Puts on a Show at the N.F.L. Combine**\
+`Arizona State’s Michael Turk, the only punter who participated, recorded 25 repetitions of 225 pounds on the bench press.`\
+https://nytimes.com/2020/02/28/sports/football/punter-combine-bench-press-michael-turk.html?searchResultPosition=6
 
-**An Opera About Colonialism Shows How History Warps**\
-`“Sweet Land,” in a Los Angeles park, is a parable for our time about Hosts and Arrivals.`\
-https://nytimes.com/2020/02/28/arts/music/sweet-land-opera.html?searchResultPosition=7
+**Gov. Northam-Backed Gun Control Bills Pass in Virginia**\
+`Parts of Virginia Gov. Ralph Northam's sweeping gun control legislation have won final passage in the General Assembly. `\
+https://nytimes.com/aponline/2020/02/28/us/ap-us-virginia-gun-laws.html?searchResultPosition=7
 
-**Montenegro's President Accuses Serbia and Russia of Undermining Independence**\
-`Montenegro's president accused Serbia and Russia on Friday of using the Serbian Orthodox Church to undermine his country's pro-Western government as it seeks European Union membership.`\
-https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-montenegro-protest-president.html?searchResultPosition=8
+**Report: Michigan Doctor Traded Sexual Contact, Draft Excuses**\
+`A late University of Michigan doctor accused of sexual abuse by multiple former patients wrote letters certifying students were gay so they could avoid military service during the Vietnam War in exchange for sexual contact, a former student said.`\
+https://nytimes.com/aponline/2020/02/28/sports/ap-us-university-of-michigan-doctor.html?searchResultPosition=8
 
-**Teenage Afghan Guitar Player Eyes Taliban Peace Deal With Trepidation**\
-`Like many young Afghans, 13-year-old music student Sara Habib is nervous about an agreement between the Taliban and the United States due to be signed in Doha on Saturday, which would include pulling U.S. troops out of the country after 18 years.`\
-https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-usa-afghanistan-taliban-musician.html?searchResultPosition=9
+**Judge Cancels Oil and Gas Leases on Some Sage Grouse Lands**\
+`A federal judge has cancelled more than $125 million in oil and gas leases on public lands that are home to the declining bird species greater sage grouse, in a ruling that said the Trump administration illegally curtailed public comment. `\
+https://nytimes.com/aponline/2020/02/28/business/ap-us-sage-grouse-energy-leases.html?searchResultPosition=9
 
-**Spanish Court Refuses U.S. Extradition Request for Ex-Venezuelan Minister**\
-`Spain's High Court on Friday denied a U.S. extradition request for former Venezuelan minister Javier Alvarado Ochoa in connection with an investigation into money-laundering.`\
-https://nytimes.com/reuters/2020/02/28/world/americas/28reuters-spain-venezuela-extradition.html?searchResultPosition=10
+**FCC Proposes Fines for Phone Companies That Shared User Data**\
+`The Federal Communications Commission has proposed roughly $200 million in fines combined for the country's four major phone companies for improperly disclosing customers' real-time location.`\
+https://nytimes.com/aponline/2020/02/28/business/bc-us-fcc-wireless-privacy-fines.html?searchResultPosition=10
 
