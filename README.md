@@ -1,28 +1,28 @@
-**Sanders Offered Praise for Cuba. Young and Old Voters View It Differently.**\
-`How Democratic voters feel about Bernie Sanders’s views on foreign policy and socialist governments tends to split along generational lines.`\
-https://nytimes.com/2020/02/28/us/politics/bernie-sanders-cuba-castro.html?searchResultPosition=4
+**Is the Coronavirus an Epidemic or a Pandemic? It Depends on Who’s Talking**\
+`This week, the World Health Organization stopped short of calling the outbreak a pandemic. Experts weigh in on the debate and explain the significance of the terms.`\
+https://nytimes.com/2020/02/28/health/coronavirus-pandemic-epidemic.html?searchResultPosition=4
 
-**House Approves Bill to Ban the Sale of Flavored e-Cigarettes**\
-`Moving to stem a vaping epidemic among young people, the House has approved a bill to ban the sale of flavored e-cigarettes and other flavored tobacco products.`\
-https://nytimes.com/aponline/2020/02/28/business/ap-us-congress-vaping.html?searchResultPosition=5
+**His Hats Are Worn by Bella Hadid and Madonna**\
+`And it all started with Instagram.`\
+https://nytimes.com/2020/02/28/style/his-hats-are-worn-by-bella-hadid-and-madonna.html?searchResultPosition=5
 
-**Federal Appeals Court Blocks Trump’s ‘Remain in Mexico’ Policy**\
-`The Ninth Circuit Court of Appeals ruled against a central pillar of the Trump administration’s hard-line immigration agenda.`\
-https://nytimes.com/2020/02/28/us/migrants-court-remain-in-mexico-mpp-injunction.html?searchResultPosition=6
+**At a Bar ‘Made by Africans, for Africans,’ Migrants Put Down Roots in Mexico**\
+`With no easy path to the United States, migrants from around the world are settling in Mexico, creating diasporic communities with tastes of home.`\
+https://nytimes.com/2020/02/28/world/americas/mexico-african-migrants-diaspora.html?searchResultPosition=6
 
-**General Motors to Add 1,200 Workers at 2 Michigan Factories**\
-`General Motors is adding 1,200 jobs at two Michigan factories to build midsize SUVs and two new luxury sedans. `\
-https://nytimes.com/aponline/2020/02/28/business/bc-us-general-motors-factory-jobs.html?searchResultPosition=7
+**Chicago Police Boost Mass Transit Presence Amid Crime Spike**\
+`A spike in crime on Chicago's rail system and some recent high profile outbursts of violence has prompted the city's police department to put 50 more officers in trains and on platforms and assign four detectives to investigate nothing but Chicago Transit Authority crimes, officials announced Friday.`\
+https://nytimes.com/aponline/2020/02/28/us/ap-us-chicago-violence-trains.html?searchResultPosition=7
 
-**Historic Paris Train Station Evacuated Due to Nearby Fire**\
-`Police evacuated a historic Paris train station Friday after a fire engulfed multiple vehicles and sent a large cloud of black smoke over the neighborhood.`\
-https://nytimes.com/aponline/2020/02/28/world/europe/ap-eu-france-fire.html?searchResultPosition=8
+**Court Temporarily Halts Trump’s ‘Remain in Mexico’ Policy**\
+`An federal appeals court has temporarily halted a major Trump administration policy to make asylum seekers wait in Mexico while their cases wind through U.S. immigration courts. `\
+https://nytimes.com/aponline/2020/02/28/us/ap-us-immigration-asylum.html?searchResultPosition=8
 
-**US Reports First Drug Shortage Tied to Virus Outbreak**\
-`Health officials reported the first U.S. drug shortage tied to the viral outbreak that is disrupting production in China, but they declined to identify the manufacturer or the product.`\
-https://nytimes.com/aponline/2020/02/28/health/bc-us-med-virus-outbreak-drug-shortage.html?searchResultPosition=9
+**New York Rail Tunnel Repairs Could Mean More Rider Headaches**\
+`The news that Amtrak will ramp up repairs to its century-old Hudson River rail tunnel while a project to build a new tunnel languishes likely will translate into more headaches for already beleaguered commuters. `\
+https://nytimes.com/aponline/2020/02/28/business/ap-us-northeast-corridor-tunnels-2nd-ld-writethru.html?searchResultPosition=9
 
-**House Votes to Ban All Flavored Cigarettes and E-Cigarettes**\
-`The legislation, intended to protect children, drew opposition from some civil rights groups and African-American lawmakers, who said it could lead to over-policing of their communities.`\
-https://nytimes.com/2020/02/28/us/politics/flavored-cigarettes-vaping-ban.html?searchResultPosition=10
+**EU Launches Antitrust Probe Into Italy Loan to Alitalia**\
+`The European Union’s antitrust watchdog said Friday that it has launched an investigation into a loan of 400 million euros ($440 million) from the Italian government to national airline Alitalia to establish whether the money is illegal state aid.`\
+https://nytimes.com/aponline/2020/02/28/business/bc-eu-europe-italy-alitalia-probe.html?searchResultPosition=10
 
