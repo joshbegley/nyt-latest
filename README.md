@@ -1,20 +1,20 @@
-**Cellphone Carriers Fined Over $200 Million for Not Protecting Location Data**\
-`The F.C.C. penalties, among the largest in years, came after the data was misused by rogue law enforcement officers and others.`\
-https://nytimes.com/2020/02/28/technology/fcc-cellphones-location-data-fines.html?searchResultPosition=6
+**Column: Hammer Drops on China's Sun After Years of Suspicion**\
+`This time, the hammer dropped on Sun Yang. `\
+https://nytimes.com/aponline/2020/02/28/sports/ap-swm-paul-newberry-sun-yang.html?searchResultPosition=6
 
-**Trump Says Pompeo Will Witness Signing of Deal With Taliban**\
-`President Donald Trump said Friday that he's dispatching the nation's top diplomat to sign an agreement with the Afghan Taliban aimed at beginning a draw down of thousands of U.S. troops and ending America's 18-year involvement in the war.`\
-https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-united-states-afghanistan.html?searchResultPosition=7
+**Activism Cuts Into the Political Might of S.C. Black Church**\
+`Before delivering his Sunday sermon this week, Rev. Joseph Darby took a moment to address the elephant in the room: the upcoming South Carolina Democratic primary.`\
+https://nytimes.com/aponline/2020/02/28/us/ap-religion-black-faith-politics.html?searchResultPosition=7
 
-**How Afghans Can Work Together to End the War**\
-`Negotiators from the Taliban and the Afghan government must build on the achievements of the past two decades.`\
-https://nytimes.com/2020/02/28/opinion/Afghanistan-talks.html?searchResultPosition=8
+**Sheriff: Florida Man Fatally Shot During Police Standoff**\
+`An armed man was fatally shot during a police standoff in Florida, authorities said.`\
+https://nytimes.com/aponline/2020/02/28/us/ap-us-officer-shooting-florida.html?searchResultPosition=8
 
-**Lynn Evans Mand, Singer of Hits With the Chordettes, Dies at 95**\
-`With Ms. Mand on lead vocals, the group reached No. 1 with the frothy “Mr. Sandman” in 1954 and No. 2 with “Lollipop” in 1958.`\
-https://nytimes.com/2020/02/28/arts/music/lynn-evans-mand-dead.html?searchResultPosition=9
+**An Israeli Political Aide Confided to His Rabbi. He Was Being Recorded.**\
+`A strategist for Benny Gantz denigrated the candidate while seeking pastoral advice. But the rabbi who taped him, it turns out, has close ties to Prime Minister Benjamin Netanyahu.`\
+https://nytimes.com/2020/02/28/world/middleeast/israel-election-netanyahu-gantz-rabbi.html?searchResultPosition=9
 
-**A Canadian Multimillionaire, a Caribbean Feud and an International Rape Case**\
-`In this week’s Canada Letter, our Toronto bureau chief, Catherine Porter, discusses an investigation into the dealings of the Winnipeg fashion designer Peter Nygard.`\
-https://nytimes.com/2020/02/28/world/canada/peter-nygard-rape-case.html?searchResultPosition=10
+**Panel Seeks Censure, Coaching for Foul-Mouthed Kansas Judge**\
+`A foul-mouthed Kansas judge who cursed at courthouse employees so often that a trial clerk kept a “swear journal” documenting his outbursts should be publicly censured and receive professional coaching, but not kicked off the bench, a disciplinary panel recommended Friday.`\
+https://nytimes.com/aponline/2020/02/28/us/ap-us-kansas-judge-complaints.html?searchResultPosition=10
 
