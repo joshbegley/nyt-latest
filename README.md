@@ -1,20 +1,20 @@
+**In China’s War on the Coronavirus, a Community Is Besieged**\
+`The people of Zuoling, a suburb of Wuhan, have gone through a gamut of emotions as the epidemic raged: from complacency, to alarm, and finally, to anger.`\
+https://nytimes.com/2020/02/28/world/asia/china-coronavirus-wuhan.html?searchResultPosition=6
+
+**No Evidence That Pets Can Get Covid-19, but Wash Your Hands Anyway**\
+`Unless you have the virus, or your pet is spending a lot of time with Covid-19 patients, no precautions are needed, or helpful.`\
+https://nytimes.com/2020/02/28/smarter-living/coronavirus-pets-precautions.html?searchResultPosition=7
+
+**Donald Byrd on Confronting the Uncomfortable**\
+`The master choreographer speaks to dance’s power to engage people around society’s most difficult and unsettling issues.`\
+https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007006751/donald-byrd-on-confronting-the-uncomfortable.html?searchResultPosition=8
+
+**Lady Gaga’s Disco Inferno, and 9 More New Songs**\
+`Hear tracks by SZA and Justin Timberlake, Gorillaz, Phoebe Bridgers and others.`\
+https://nytimes.com/2020/02/28/arts/music/playlist-lady-gaga-justin-timberlake-sza.html?searchResultPosition=9
+
 **States to Get Virus Testing Kits as White House Urges Calm**\
 `Federal health officials said Friday they're scrambling to get coronavirus testing up and running in every state, as President Donald Trump's chief economic adviser urged Americans not to overreact to plunging financial markets.`\
-https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-virus-outbreak-us-response.html?searchResultPosition=6
-
-**Covering the Coronavirus**\
-`We usually tell stories. This called for something different.`\
-https://nytimes.com/2020/02/28/podcasts/daily-newsletter-coronavirus-south-carolina-primary.html?searchResultPosition=7
-
-**First Drug Shortage Caused by Coronavirus, F.D.A. Says. But It Won’t Disclose What Drug or Where It’s Made.**\
-`The agency cited confidential commercial information in not revealing the name of the drug, but critics say releasing details is vital in a public health crisis.`\
-https://nytimes.com/2020/02/28/health/drug-coronavirus-shortage.html?searchResultPosition=8
-
-**Trump Tries to Shift Blame as Virus Outbreak Rattles Markets**\
-`As global markets plunged amid growing fears about the coronavirus outbreak, President Donald Trump and his allies pulled from a familiar playbook Friday and blamed others for the slide. It's a challenging sell for a president who has lashed his fate to Wall Street like no other.`\
-https://nytimes.com/aponline/2020/02/28/business/bc-us-virus-outbreak-trump-markets.html?searchResultPosition=9
-
-**Terri Lyne Carrington on Living with Music**\
-`The Grammy Award-winning jazz drummer reflects on her four-decade, trailblazing artistic career and advancing change within her industry.`\
-https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007006620/terri-lyne-carrington-on-living-with-music.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-virus-outbreak-us-response.html?searchResultPosition=10
 
