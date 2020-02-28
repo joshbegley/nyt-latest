@@ -19,7 +19,7 @@ https://nytimes.com/2020/02/28/style/paris-fashion-week-rick-owens-virgil-abloh-
 https://nytimes.com/reuters/2020/02/28/business/28reuters-nomura-moves.html?searchResultPosition=6
 
 **Eurogroup's Centeno: Euro Zone 'Ready to Act' on Coronavirus Impact if Needed**\
-`The coronavirus seems to be a "temporary shock" to the euro zone economy but the bloc's member states must be prepared to act in a coordinated way if the impact becomes a more long-lasting one, the chairman of euro zone finance ministers Mario Centeno said.`\
+`Euro zone states must be prepared to act in a coordinated way if the coronavirus epidemic proves more than a temporary shock to the bloc's "resilient" economy, the chairman of euro zone finance ministers Mario Centeno told Reuters on Friday. `\
 https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-eurozone.html?searchResultPosition=7
 
 **Romania Says Confirms Two More Cases of Coronavirus**\
