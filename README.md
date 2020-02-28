@@ -1,36 +1,36 @@
+**Coronavirus Fears Lead Holy Land Catholic Churches to Give Communion by Hand Only**\
+`Roman Catholic authorities in Jerusalem have instructed their priests to give communion by hand only, rather than placing the wafers on worshippers' tongues, and to empty holy water fonts - as precautions against the spread of the coronavirus. `\
+https://nytimes.com/reuters/2020/02/28/world/middleeast/28reuters-china-health-religion-jerusalem.html?searchResultPosition=2
+
+**Mexico Confirms First Case of Coronavirus**\
+`Mexican authorities said on Friday they have confirmed the first case of coronavirus in Mexico, in what is only the second case in Latin America.`\
+https://nytimes.com/reuters/2020/02/28/world/americas/28reuters-health-coronavirus-mexico.html?searchResultPosition=3
+
+**Turkey Moves Ahead With Its Threats to Send Refugees to EU**\
+`Hundreds of refugees and migrants in Turkey have begun heading for the country’s land and sea borders with Greece, buoyed by Turkish officials’ statements indicating they will not be hindered from crossing the frontier to head into Europe. `\
+https://nytimes.com/aponline/2020/02/28/world/europe/ap-eu-ap-explains-turkey-refugees.html?searchResultPosition=4
+
+**Kremlin Urges Turkey to Protect Russia's Diplomatic Facilities in Turkey: RIA**\
+`The Kremlin said on Friday that Moscow hoped Turkey would do everything to protect Russian nationals and Russia's diplomatic facilities in Turkey amid mounting tensions over Syria, the RIA news agency reported. `\
+https://nytimes.com/reuters/2020/02/28/world/middleeast/28reuters-syria-security-kremlin-citizens.html?searchResultPosition=5
+
+**Mexico Confirms First 2 Cases of Coronavirus**\
+`Mexico's health secretary announced Friday that the country now has two confirmed cases of the new coronavirus. `\
+https://nytimes.com/aponline/2020/02/28/world/americas/ap-lt-virus-outbreak-mexico.html?searchResultPosition=6
+
+**EU Welcomes Kosovo Cut to Serbia Tariffs, US Says Not Enough**\
+`Kosovo's decision to partially lift a 100% tariff on Serbian goods was hailed Friday by the European Union but not supported by the United States, which wants the tariff dropped completely.`\
+https://nytimes.com/aponline/2020/02/28/business/ap-eu-kosovo-serbia-tariff.html?searchResultPosition=7
+
+**What to Know About Coronavirus in California**\
+`Friday: Officials are urging caution but not panic. Also: A Super Tuesday update.`\
+https://nytimes.com/2020/02/28/us/coronavirus-california.html?searchResultPosition=8
+
+**British Man Who Was on Diamond Princess Ship in Japan Dies: Kyodo**\
+`A British man who was aboard the Diamond Princess cruise ship, docked in Yokohama, Japan, has died from coronavirus, Kyodo news reported on Friday.`\
+https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-britain-death.html?searchResultPosition=9
+
 **Balmain: Fall 2020**\
 `See the looks from the Balmain: Fall 2020 Collection.`\
-https://nytimes.com/slideshow/2020/02/28/fashion/runway-womens/balmain-fall-2020.html?searchResultPosition=2
-
-**Parents Slam Serbia Bill in Chilling 'Missing Babies' Cases**\
-`Mirjana Novokmet does not believe that a special law that is set for approval in the Serbian parliament will help uncover what happened to her first child back in 1978.`\
-https://nytimes.com/aponline/2020/02/28/world/europe/ap-eu-serbia-missing-babies.html?searchResultPosition=3
-
-**Guatemala's New Anti-Graft Tsar Sets Sights on Government 'Ghost Jobs'**\
-`Widespread government "ghost jobs" will likely be among the first targets of Guatemala's new anti-corruption tsar, the official said on Thursday, although the commission he heads has more limited scope than its powerful U.N.-backed predecessor. `\
-https://nytimes.com/reuters/2020/02/28/world/americas/28reuters-guatemala-corruption.html?searchResultPosition=4
-
-**Rick Owens, Talking Doom**\
-`Plus a special guest appearance by Joan of Arc at Paco Rabanne and the Hadid women at Off-White.`\
-https://nytimes.com/2020/02/28/style/paris-fashion-week-rick-owens-virgil-abloh-off-white.html?searchResultPosition=5
-
-**Nomura Strengthens Americas Investment Banking Team With Five Senior Hires**\
-`Japanese bank Nomura has strengthened its investment banking team in the Americas, making five senior appointments to expand its coverage across financial institutions, healthcare and industrials, the bank said on Friday.`\
-https://nytimes.com/reuters/2020/02/28/business/28reuters-nomura-moves.html?searchResultPosition=6
-
-**Eurogroup's Centeno: Euro Zone 'Ready to Act' on Coronavirus Impact if Needed**\
-`Euro zone states must be prepared to act in a coordinated way if the coronavirus epidemic proves more than a temporary shock to the bloc's "resilient" economy, the chairman of euro zone finance ministers Mario Centeno told Reuters on Friday. `\
-https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-eurozone.html?searchResultPosition=7
-
-**Romania Says Confirms Two More Cases of Coronavirus**\
-`Romania confirmed two more cases of coronavirus on Friday, raising the total number of cases to three since Wednesday, Deputy Health Minister Nelu Tataru.`\
-https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-romania.html?searchResultPosition=8
-
-**Insurers Could Lose Billions if Coronavirus Prompts Olympics Cancelation**\
-`Global insurers face a hefty bill if the coronavirus forces the cancellation of the Summer Olympics in Tokyo, with estimates of the cost of insuring the sporting showpiece running into billions of dollars.`\
-https://nytimes.com/reuters/2020/02/28/business/28reuters-olympics-2020-coronavirus-insurance.html?searchResultPosition=9
-
-**Deutsche Post Says Coronavirus Hit Earnings by 60-70 Million Euros This Month**\
-`Deutsche Post said on Friday that the coronavirus outbreak had wiped around 60-70 million euros ($65-$76 million) from its group earnings before interest and taxes (EBIT) in February compared with its internal projections.`\
-https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-deutsche-post.html?searchResultPosition=10
+https://nytimes.com/slideshow/2020/02/28/fashion/runway-womens/balmain-fall-2020.html?searchResultPosition=10
 
