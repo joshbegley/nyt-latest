@@ -1,20 +1,20 @@
-**Grounded Cargo Ship Leaking Oil Off Brazilian Coast**\
-`A 340-meter-long cargo ship grounded off the coast of Brazil has begun leaking oil, the country's environmental enforcement agency said Friday.`\
-https://nytimes.com/aponline/2020/02/28/world/americas/ap-lt-brazil-grounded-ship.html?searchResultPosition=6
+**Once Skeptics, Conservatives Out to Expand Trump's Base**\
+`Four years ago, candidate Donald Trump didn’t bother attending the annual Conservative Political Action Conference, jabbing that he was too controversial for the buttoned-up, establishment Republican gathering. `\
+https://nytimes.com/aponline/2020/02/28/us/ap-us-trump-conservatives.html?searchResultPosition=6
 
-**US Accuses Mexican Ex-Governor of Corruption, Cartel Bribes**\
-`The U.S. government on Friday announced the public designation of a former governor of the Mexican state of Nayarit under the Magnitsky Act, accusing him of “involvement in significant corruption” and drug cartel ties. `\
-https://nytimes.com/aponline/2020/02/28/world/americas/ap-lt-mexico-corruption.html?searchResultPosition=7
+**Lebanon Says Schools to Be Closed From Feb. 29-March 8 Amid Coronavirus: Education Ministry Statement**\
+`Lebanon announced on Friday it was closing the country's schools effective Feb. 29 until March 8 as a precautionary measure against the spread of coronavirus, an education ministry statement said.`\
+https://nytimes.com/reuters/2020/02/28/world/middleeast/28reuters-china-health-lebanon-education.html?searchResultPosition=7
 
-**Brewery Gunman Accused of Punching Woman, Gun Crime in 90s**\
-`The man police say killed five co-workers at one of the nation's largest breweries before killing himself was accused of pointing a gun at an SUV and punching a woman in the face in the early 1990s, court documents show.`\
-https://nytimes.com/aponline/2020/02/28/us/ap-us-brewery-shooting.html?searchResultPosition=8
+**Saudi Arabia Temporarily Suspends Entry of GCC Citizens to Mecca and Medina: Foreign Ministry**\
+`Saudi Arabia temporarily suspended entry of Gulf Cooperation Council (GCC) citizens to Mecca and Medina, the foreign ministry announced in a statement published by the state news agency on Friday.`\
+https://nytimes.com/reuters/2020/02/28/world/middleeast/28reuters-health-china-saudi.html?searchResultPosition=8
 
-**Confused Fans Rip Garth Brooks for Wearing 'Sanders' Jersey**\
-`Leave it to the internet to interpret Garth Brooks wearing a Barry Sanders jersey during a concert in Detroit as a political endorsement of a certain liberal presidential candidate.`\
-https://nytimes.com/aponline/2020/02/28/sports/ap-us-odd-garth-brooks-sanders-jersey.html?searchResultPosition=9
+**U.S. Confirms Plans to Use Law to Boost Production of Coronavirus Protective Gear: Azar**\
+`The United States plans to invoke a law to boost production of key items like masks, gloves and gowns to combat the coronavirus, Health and Human Services Secretary Alex Azar said on Friday, as negotiations to approve funding for the response moves forward.`\
+https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-usa-production.html?searchResultPosition=9
 
-**The Flaw in Intermittent Fasting**\
-`Alice H. Lichtenstein, a professor of nutrition science and policy, writes about a current fad diet.`\
-https://nytimes.com/2020/02/28/opinion/letters/intermittent-fasting.html?searchResultPosition=10
+**Google Employee Who Was at Zurich Office Tests Positive for Coronavirus**\
+`An employee of Alphabet Inc's Google, who had been in the Zurich office, has tested positive for coronavirus, the company said on Friday.`\
+https://nytimes.com/reuters/2020/02/28/technology/28reuters-china-health-google.html?searchResultPosition=10
 
