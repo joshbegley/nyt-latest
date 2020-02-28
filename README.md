@@ -15,6 +15,6 @@ https://nytimes.com/aponline/2020/02/28/sports/ap-us-university-of-michigan-doct
 https://nytimes.com/aponline/2020/02/28/business/ap-us-sage-grouse-energy-leases.html?searchResultPosition=9
 
 **FCC Proposes Fines for Phone Companies That Shared User Data**\
-`The Federal Communications Commission has proposed roughly $200 million in fines combined for the four major U.S. phone companies for improperly disclosing customers' real-time location.`\
+`The Federal Communications Commission has proposed roughly $200 million in fines combined for the country's four major phone companies for improperly disclosing customers' real-time location.`\
 https://nytimes.com/aponline/2020/02/28/business/bc-us-fcc-wireless-privacy-fines.html?searchResultPosition=10
 
