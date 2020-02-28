@@ -1,32 +1,32 @@
-**EU Health Ministers to Hold Extraordinary Virus Talks Next Week**\
-`European Union health ministers will hold an extraordinary meeting on March 6 to discuss the coronavirus outbreak, an EU official said.`\
-https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-eu.html?searchResultPosition=3
+**Mulvaney Alleges U.S. Media Is Focusing on Coronavirus to Hurt Trump, Advises Turning Off TV**\
+`White House Acting Chief of Staff Mick Mulvaney on Friday played down the deadly coronavirus that has caused U.S. stock markets to plummet, telling top conservatives that wall-to-wall news coverage of the disease is a ploy to hurt his boss, President Donald Trump.`\
+https://nytimes.com/reuters/2020/02/28/us/politics/28reuters-china-health-conservatives.html?searchResultPosition=3
 
-**Italian Region Warns of Hospital Chaos if Coronavirus Spreads**\
-`Italy's hospitals will be thrown into chaos if the severe outbreak of coronavirus spreads, the country's worst-hit region Lombardy said on Friday, warning that 10% of those who caught the disease needed intensive care treatment.`\
-https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-italy.html?searchResultPosition=4
+**U.S. Lawmakers May Vote on Coronavirus Response Bill as Soon as Next Week: Source**\
+`The U.S. House of Representatives could vote on an emergency bill aimed at providing funding for the country's coronavirus response as soon as next week, a congressional source said on Friday.`\
+https://nytimes.com/reuters/2020/02/28/us/politics/28reuters-china-health-usa-funding.html?searchResultPosition=4
 
-**Northam Signals Last-Minute Involvement in Redistricting Row**\
-`Virginia Gov. Ralph Northam may float an alternative redistricting plan as his fellow Democrats remain divided over how best to draw new congressional and legislative maps next year.`\
-https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-virginia-redistricting.html?searchResultPosition=5
+**House Panel Seeks to Interview the Four Career Prosecutors Who Quit Roger Stone Case**\
+`The Democrat-controlled U.`\
+https://nytimes.com/reuters/2020/02/28/us/politics/28reuters-usa-congress-stone.html?searchResultPosition=5
 
-**Cruise Ship Sails to St. Maarten After COVID-19 Scare**\
-`A British cruise ship turned away by the Dominican Republic after passengers suffered flu-like symptoms was awaiting approval to dock on the island of St. Maarten on Friday, officials said. `\
-https://nytimes.com/aponline/2020/02/28/world/americas/ap-cb-virus-outbreak-caribbean-cruise-ships.html?searchResultPosition=6
+**Italy's Post Office to Reopen Some Branches in Quarantine Zone From Monday**\
+`Italy's post office will reopen some branches on Monday in the two areas of the country that were sealed off last week to contain the biggest outbreak of coronavirus in Europe.`\
+https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-italy-poste.html?searchResultPosition=6
 
-**UN Envoy Says Libya Truce Nearly Broke Down Amid Fighting**\
-`The U.N. envoy for Libya on Friday denounced the near breakdown of a fragile truce between the country’s warring sides, citing a “serious violation” over the last 24 hours — attacks on the capital including an early morning shelling of Tripoli’s airport. `\
-https://nytimes.com/aponline/2020/02/28/world/middleeast/ap-ml-un-libya-talks.html?searchResultPosition=7
+**Both Illinois Coronavirus Patients Recovered and Returned Home-Governor**\
+`Illinois Governor J.B. Pritzker on Friday said that the state had "successfully contained" the coronavirus to two confirmed cases, with both patients recovering fully and returning home.`\
+https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-usa-illinois.html?searchResultPosition=7
 
-**Defending Children**\
-`The Art Show opened at the Park Avenue Armory, and the Citizens Budget Commission held an awards dinner.`\
-https://nytimes.com/2020/02/28/style/defending-children.html?searchResultPosition=8
+**'Big Dog' and the 'Omnipotent Sheikh'-How Qatar Saved Barclays**\
+`When Roger Jenkins was asked to help Barclays avoid a state bailout at the height of the financial crisis in 2008, he was expecting a bonus not a prosecution for his efforts.`\
+https://nytimes.com/reuters/2020/02/28/business/28reuters-britain-barclays-qatar-rescue.html?searchResultPosition=8
 
-**Benefiting the Children’s Defense Fund**\
-`And the Art Show opens at the Park Avenue Armory.`\
-https://nytimes.com/slideshow/2020/02/28/fashion/benefiting-the-childrens-defense-fund.html?searchResultPosition=9
+**Italy's Alitalia Reduces Flights on 38 Routes as Coronavirus Deters Passengers**\
+`Italy's flagship carrier Alitalia said on Friday it was reducing flights on 38 national and international routes because coronavirus was leading to fewer passengers.`\
+https://nytimes.com/reuters/2020/02/28/business/28reuters-coronavirus-alitalia.html?searchResultPosition=9
 
-**Who Will Win on Super Tuesday? Here’s What Polls Show in 6 Key States**\
-`With states like California and Texas voting next Tuesday, about one-third of all pledged delegates are up for grabs.`\
-https://nytimes.com/2020/02/28/us/politics/latest-democratic-polls.html?searchResultPosition=10
+**Take Five: The Virus Data Fog**\
+`1/DATA DIAGNOSIS`\
+https://nytimes.com/reuters/2020/02/28/business/28reuters-global-markets-themes.html?searchResultPosition=10
 
