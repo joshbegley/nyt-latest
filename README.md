@@ -1,36 +1,36 @@
-**Russia Restricts Entry of Iranians, South Koreans Amid Coronavirus Fears**\
-`The Russian government on Friday temporarily barred Iranian citizens from entering Russia and said it would also restrict the entry of South Korean citizens from March 1 as a precaution against the spread of coronavirus, decrees published online showed. `\
-https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-russia-travel.html?searchResultPosition=2
+**Malaysia Uncertainty Grows as Mahathir's Plan for Parliament Vote Rejected**\
+`Malaysia's political uncertainty grew on Friday after the speaker of parliament said he had rejected a request from interim leader Mahathir Mohamad for a special session next week to choose a new prime minister.`\
+https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-malaysia-politics.html?searchResultPosition=2
 
-**McLaughlin Carries UC Santa Barbara Over UC Riverside 65-60**\
-`JaQuori McLaughlin had 22 points as UC Santa Barbara beat UC Riverside 65-60 on Thursday night.`\
-https://nytimes.com/aponline/2020/02/28/sports/ncaabasketball/bc-bkc-uc-santa-barbara-uc-riverside.html?searchResultPosition=3
+**Hyundai Motor Halts Work at Factory After Worker Tests Positive for Coronavirus**\
+`Hyundai Motor shut down a factory in South Korea on Friday after a worker tested positive for the new coronavirus, disrupting production of popular models such as Palisade sport utility vehicle. `\
+https://nytimes.com/reuters/2020/02/28/business/28reuters-china-health-southkorea-hyundai-motor.html?searchResultPosition=3
 
-**Leonard Scores 22 to Carry UC Irvine Past Cal Poly 82-76**\
-`Evan Leonard had a season-high 22 points as UC Irvine beat Cal Poly 82-76 on Thursday night to clinch the Big West Conference championship, the first time ever the Anteaters claimed back-to-back titles .`\
-https://nytimes.com/aponline/2020/02/28/sports/ncaabasketball/bc-bkc-uc-irvine-cal-poly.html?searchResultPosition=4
+**Turkey Says World Powers Must Impose No-Fly Zone in Syria**\
+`Turkey said on Friday that world powers must impose a no-fly zone in Syria to protect hundreds of thousands of people displaced by clashes, after the killing of 33 Turkish soldiers by Syrian air strikes in the Idlib region.`\
+https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-syria-security-turkey.html?searchResultPosition=4
 
-**Lion Air Puts $500 Million IPO on Hold as Global Equity Markets Tumble: Sources**\
-`Indonesia's Lion Air has deferred plans for an initial public offering (IPO) due to a sharp fall in global stock markets, people close to the matter said on Friday, as the spreading coronavirus sparks worries of a global pandemic.`\
-https://nytimes.com/reuters/2020/02/28/business/28reuters-china-health-lion-air-ipo.html?searchResultPosition=5
+**New Coronavirus Cases in Mainland China Fall to Lowest Since January**\
+`Mainland China had 327 new confirmed cases of coronavirus infections on Thursday, the country's National Health Commission said on Friday, down from 433 cases a day earlier and the lowest since Jan. 23. `\
+https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-cases-int.html?searchResultPosition=5
 
-**Chinese Regulators Remove 'Plague Inc' Game From Apple's China App Store**\
-`The video game "Plague Inc", which has surged in popularity amid the coronavirus epidemic, has been removed from Apple's China app store after regulators said it contained illegal content, its developer said.`\
-https://nytimes.com/reuters/2020/02/28/technology/28reuters-china-health-games.html?searchResultPosition=6
+**Pence Says Virus Poses Low-Level Threat in U.S., Working With Congress on Spending Bill**\
+`U.S. Vice President Mike Pence said on Thursday the threat from coronavirus to the American public remains low, and the White House has begun discussions with leaders of the U.S. Congress on a supplemental spending bill to fighting the spread of the deadly infectious disease.`\
+https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-pence.html?searchResultPosition=6
 
-**No. 14 Oregon Pulls Away in 2nd Half to Beat Oregon 69-54**\
-`Payton Pritchard scored 15 of his 23 points in the second half and No. 14 Oregon pulled away for a 69-54 win over Oregon State on Thursday night.`\
-https://nytimes.com/aponline/2020/02/28/sports/ncaabasketball/bc-bkc-t25-oregon-st-oregon.html?searchResultPosition=7
+**Japan Schools May Be Shut Longer Depending on Coronavirus Outbreak: Health Minister**\
+`Japan's health minister Katsunobu Kato said on Friday there was a chance schools could be closed longer than one or two weeks, depending on the spread of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-japan-education.html?searchResultPosition=7
 
-**UBS Cuts Ermotti's Pay After French Court Blow, Overhauls Bonus Scheme**\
-`UBS Chief Executive Sergio Ermotti cashed in less money in 2019 as the bank made pay concessions related to a French tax case and missed earnings goals during his last full year as CEO. `\
-https://nytimes.com/reuters/2020/02/28/business/28reuters-ubs-group-pay.html?searchResultPosition=8
+**U.S. Spy Agencies Monitor Coronavirus Spread, Concerns About India: Sources**\
+`U.S. intelligence agencies are monitoring the global spread of coronavirus and the ability of governments to respond, sources familiar with the matter said on Thursday, warning that there were concerns about how India would cope with a widespread outbreak.`\
+https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-usa-intelligence.html?searchResultPosition=8
 
-**Russia Sends Two Warships Armed With Cruise Missiles to Syria's Coast-Ifax**\
-`Russia is sending two warships equipped with Kalibr cruise missiles to the Mediterranean Sea towards the Syrian coast, the Interfax news agency cited Russia's Black Sea Fleet as saying on Friday. `\
-https://nytimes.com/reuters/2020/02/28/world/middleeast/28reuters-syria-security-russia-frigates.html?searchResultPosition=9
+**New Coronavirus Cases in Mainland China Fall to Lowest Since January**\
+`Mainland China had 327 new confirmed cases of coronavirus infections on Thursday, the country's National Health Commission said on Friday, down from 433 cases a day earlier and the lowest since Jan. 23. `\
+https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-cases.html?searchResultPosition=9
 
-**Couture Scores in OT as Sharks Top Devils 3-2**\
-`Logan Couture scored 38 seconds into overtime, lifting the San Jose Sharks to a 3-2 comeback win over the New Jersey Devils on Thursday night that snapped a five-game skid.`\
-https://nytimes.com/aponline/2020/02/28/sports/hockey/bc-hkn-devils-sharks.html?searchResultPosition=10
+**South Korea Boy Band BTS Cancels April Seoul Concert on Coronavirus Concerns**\
+`South Korean boy band BTS canceled its scheduled April concert in Seoul, amid growing concerns of the new coronavirus outbreak, its music label, Big Hit Entertainment, said on Friday.`\
+https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-southkorea-bts.html?searchResultPosition=10
 
