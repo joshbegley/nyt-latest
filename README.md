@@ -1,20 +1,20 @@
+**Who Will Care For Society’s Forgotten?**\
+`Housecall Providers, an organization in Portland, Ore., provides end-of-life care for the city’s most vulnerable residents.`\
+https://nytimes.com/2020/02/28/opinion/palliative-care-homeless-medicaid.html?searchResultPosition=6
+
+**Joe Biden Needs a Win in South Carolina. Will He Get It?**\
+`Politics still move at a different pace there, and it’s a place where loyalty can outweigh ideology.`\
+https://nytimes.com/2020/02/28/opinion/south-carolina-primary.html?searchResultPosition=7
+
+**We Don’t Really Know How Many People Have Coronavirus**\
+`In an era when we get flash-flood warnings on phones, why is data on the new coronavirus so limited?`\
+https://nytimes.com/2020/02/28/opinion/coronavirus-death-rate.html?searchResultPosition=8
+
+**Steele Takes 1-Shot Lead at Midpoint of The Honda Classic**\
+`Brendan Steele made a couple of big mistakes down the stretch, and still was more than good enough to grab the outright lead at the midpoint of The Honda Classic.`\
+https://nytimes.com/aponline/2020/02/28/sports/golf/ap-glf-honda-classic.html?searchResultPosition=9
+
 **Former Mexico Security Official Denied Bail in Bribery Case**\
 `A federal magistrate judge in Brooklyn denied bail Friday to a former top security official in Mexico accused of taking tens of millions of dollars in bribes to protect the Sinaloa cartel. `\
-https://nytimes.com/aponline/2020/02/28/us/ap-us-mexican-security-chief-indicted.html?searchResultPosition=6
-
-**Guest Lineups for the Sunday News Shows**\
-`Guest lineups for the Sunday news shows: `\
-https://nytimes.com/aponline/2020/02/28/arts/ap-us-news-shows.html?searchResultPosition=7
-
-**'Lone Wolf' Broke News of the Milwaukee Gunman's Identity**\
-`When a local newspaper reported the identity of the gunman in Milwaukee’s mass shooting, it came many hours after that news was broken on Twitter by an unemployed and formerly imprisoned journalist working from his bedroom in California.`\
-https://nytimes.com/aponline/2020/02/28/us/ap-us-brewery-shooting-gunman-id.html?searchResultPosition=8
-
-**Celine: Fall 2020**\
-`See the looks from the Celine: Fall 2020 Collection.`\
-https://nytimes.com/slideshow/2020/02/28/fashion/runway-womens/celine-fall-2020.html?searchResultPosition=9
-
-**Johnny Antonelli, Star Pitcher for the Giants, Dies at 89**\
-`He helped them win the World Series in 1954, when they played in New York, and remained an essential part of the team after they moved to San Francisco.`\
-https://nytimes.com/2020/02/28/sports/baseball/johnny-antonelli-dead.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/28/us/ap-us-mexican-security-chief-indicted.html?searchResultPosition=10
 
