@@ -1,20 +1,20 @@
-**Investor Pessimism Rising but May Not Be Bearish Enough**\
-`Pessimism about the performance of stock prices over the next six months jumped in the latest American Association of Individual Investors (AAII) Sentiment Survey, but may not have hit levels needed to lend some optimism for a longer-term rebound. `\
-https://nytimes.com/reuters/2020/02/28/us/28reuters-usa-stocks-aaii.html?searchResultPosition=6
+**Government Eyes War Powers to Speed Medical Manufacturing Ahead of Virus**\
+`Alex M. Azar II, the health secretary, raised the prospect of invoking a Korean War-era law to expand production of the materials for national security purposes in a potential coronavirus outbreak.`\
+https://nytimes.com/2020/02/28/us/politics/trump-coronavirus.html?searchResultPosition=6
 
-**Fed's Powell Says Economy Is Fine but Fed Ready to Act as Needed**\
-`Federal Reserve Chair Jerome Powell on Friday said the central bank will "act as appropriate" to support the economy in the face of risks posed by the coronavirus outbreak, though he said the economy remains in solid condition. `\
-https://nytimes.com/reuters/2020/02/28/us/28reuters-usa-fed-powell.html?searchResultPosition=7
+**Get a Job, Kid**\
+`In Cynthia L. Copeland’s graphic memoir “Cub,” an awkward seventh grader finds deliverance as a reporter for her local newspaper.`\
+https://nytimes.com/2020/02/28/books/review/cub-cynthia-copeland.html?searchResultPosition=7
 
-**The Big Crunch: For 2020 Dems, March Is Key in Delegate Race**\
-`March is crunch time for Democratic presidential candidates, with a nominee likely to emerge over the next several weeks, if not sooner.`\
-https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-election-2020-big-crunch.html?searchResultPosition=8
+**How Can a Kid Today Hear His Inner Voice?**\
+`In Sara Pennypacker’s “Here in the Real World,” an 11-year-old skips out on the horrors of noisy summer “Rec” to build a secret kingdom in an abandoned lot.`\
+https://nytimes.com/2020/02/28/books/review/here-in-the-real-world-sara-pennypacker.html?searchResultPosition=8
 
-**'This Land Is Your Land' Lawsuit Dismissed by U.S. Judge**\
-`A federal judge in Manhattan on Friday dismissed a lawsuit claiming that Woody Guthrie's iconic 1940 folk song "This Land is Your Land" belongs to the public.`\
-https://nytimes.com/reuters/2020/02/28/arts/28reuters-music-this-land-is-your-land.html?searchResultPosition=9
+**Woods' Back Still Stiff, Will Skip Palmer Invitational: Agent**\
+`Tiger Woods' back remains stiff and he will not play in next week's Arnold Palmer Invitational in Florida where he has won eight times, his agent said on Friday.`\
+https://nytimes.com/reuters/2020/02/28/sports/golf/28reuters-golf-palmer-woods.html?searchResultPosition=9
 
-**NOT REAL NEWS: A Look at What Didn't Happen This Week**\
-`In this week's roundup of the most popular but completely untrue stories and visuals of the week, we focus on false and misleading reports spreading online around the coronavirus outbreak, a situation the World Health Organization has dubbed an “infodemic.”`\
-https://nytimes.com/aponline/2020/02/28/us/ap-not-real-news.html?searchResultPosition=10
+**Lawmakers: Put Flood in Hall of Fame**\
+`A bipartisan group from Congress is leading the drive to see the late Curt Flood elected to the National Baseball Hall of Fame, 50 years after he challenged the power of Major League Baseball owners.`\
+https://nytimes.com/reuters/2020/02/28/sports/baseball/28reuters-baseball-mlb-stl-flood-halloffame.html?searchResultPosition=10
 
