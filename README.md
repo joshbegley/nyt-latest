@@ -1,20 +1,20 @@
-**In China’s War on the Coronavirus, a Community Is Besieged**\
-`The people of Zuoling, a suburb of Wuhan, have gone through a gamut of emotions as the epidemic raged: from complacency, to alarm, and finally, to anger.`\
-https://nytimes.com/2020/02/28/world/asia/china-coronavirus-wuhan.html?searchResultPosition=6
+**Take One Last Look at the (Many) Plastic Bags of New York**\
+`With a new state ban going into effect, we bid farewell to the purple flower, the smiley face and the THANK YOU THANK YOU THANK YOU designs that have adorned city life for decades.`\
+https://nytimes.com/interactive/2020/02/28/arts/design/ny-plastic-bag-ban.html?searchResultPosition=6
 
-**No Evidence That Pets Can Get Covid-19, but Wash Your Hands Anyway**\
-`Unless you have the virus, or your pet is spending a lot of time with Covid-19 patients, no precautions are needed, or helpful.`\
-https://nytimes.com/2020/02/28/smarter-living/coronavirus-pets-precautions.html?searchResultPosition=7
+**New Science Panel Formed to Deal With Infectious Diseases**\
+`The White House and the National Academy of Sciences have established a committee of experts on infectious diseases to build on Trump administration efforts to confront the new coronavirus threat. One goal is to discourage misinformation and panic.`\
+https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-virus-outbreak-science-panel.html?searchResultPosition=7
 
-**Donald Byrd on Confronting the Uncomfortable**\
-`The master choreographer speaks to dance’s power to engage people around society’s most difficult and unsettling issues.`\
-https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007006751/donald-byrd-on-confronting-the-uncomfortable.html?searchResultPosition=8
+**Ex-Bus Driver Gets Jail Time for Assaulting Disabled Student**\
+`A Mississippi judge has sentenced a former school bus driver to prison for assaulting a disabled student.`\
+https://nytimes.com/aponline/2020/02/28/us/ap-us-bus-driver-assault.html?searchResultPosition=8
 
-**Lady Gaga’s Disco Inferno, and 9 More New Songs**\
-`Hear tracks by SZA and Justin Timberlake, Gorillaz, Phoebe Bridgers and others.`\
-https://nytimes.com/2020/02/28/arts/music/playlist-lady-gaga-justin-timberlake-sza.html?searchResultPosition=9
+**America Ferrera to Depart NBC Comedy 'Superstore'**\
+`“Superstore” is losing its manager — star America Ferrera says she’s departing the NBC sitcom after its current season.`\
+https://nytimes.com/aponline/2020/02/28/us/ap-us-tv-america-ferrera-superstore.html?searchResultPosition=9
 
-**States to Get Virus Testing Kits as White House Urges Calm**\
-`Federal health officials said Friday they're scrambling to get coronavirus testing up and running in every state, as President Donald Trump's chief economic adviser urged Americans not to overreact to plunging financial markets.`\
-https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-virus-outbreak-us-response.html?searchResultPosition=10
+**Confusion and Contradiction Reign in Iran’s Coronavirus Reporting**\
+`Iranian officials reported jumps in cases and deaths but denied a BBC Persia report that fatalities totaled at least 210, far higher than the official tally.`\
+https://nytimes.com/2020/02/28/world/middleeast/coronavirus-iran-confusion.html?searchResultPosition=10
 
