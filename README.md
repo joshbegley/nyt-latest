@@ -1,20 +1,20 @@
-**US, Taliban Set Peace Signing for America's Longest War**\
-`America's longest war may finally be nearing an end.`\
-https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-united-states-afghanistan-peace-deal.html?searchResultPosition=6
+**States to Get Virus Testing Kits as White House Urges Calm**\
+`Federal health officials said Friday they're scrambling to get coronavirus testing up and running in every state, as President Donald Trump's chief economic adviser urged Americans not to overreact to plunging financial markets.`\
+https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-virus-outbreak-us-response.html?searchResultPosition=6
 
-**Dad Gets 72 Years in Death of Boy Found Encased in Concrete**\
-`The father of a 7-year-old boy whose body was found encased in concrete in a storage unit in 2018 was sentenced to 72 years in prison on Friday in his death.`\
-https://nytimes.com/aponline/2020/02/28/us/ap-us-storage-unit-dead-boy.html?searchResultPosition=7
+**Covering the Coronavirus**\
+`We usually tell stories. This called for something different.`\
+https://nytimes.com/2020/02/28/podcasts/daily-newsletter-coronavirus-south-carolina-primary.html?searchResultPosition=7
 
-**FBI Surveillance Tools at Risk Amid Bipartisan Opposition**\
-`Surveillance authorities used by the FBI to fight terrorism are in danger of lapsing next month as both Democrats and Republicans concerned about government overreach negotiate possible reforms. `\
-https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-congress-surveillance-.html?searchResultPosition=8
+**First Drug Shortage Caused by Coronavirus, F.D.A. Says. But It Won’t Disclose What Drug or Where It’s Made.**\
+`The agency cited confidential commercial information in not revealing the name of the drug, but critics say releasing details is vital in a public health crisis.`\
+https://nytimes.com/2020/02/28/health/drug-coronavirus-shortage.html?searchResultPosition=8
 
-**Mass Killings Database: Workplace Shootings Remain Rare**\
-`The mass shooting at a brewery in Milwaukee, Wisconsin, was the 13th in the U.S. since 2006. Workplace mass shootings remain a rare event but there are some trends among who carries them out and why.`\
-https://nytimes.com/aponline/2020/02/28/us/ap-us-brewery-shooting-workplace-shootings.html?searchResultPosition=9
+**Trump Tries to Shift Blame as Virus Outbreak Rattles Markets**\
+`As global markets plunged amid growing fears about the coronavirus outbreak, President Donald Trump and his allies pulled from a familiar playbook Friday and blamed others for the slide. It's a challenging sell for a president who has lashed his fate to Wall Street like no other.`\
+https://nytimes.com/aponline/2020/02/28/business/bc-us-virus-outbreak-trump-markets.html?searchResultPosition=9
 
-**Beyond Meat, Dell Fall; 3M, Forty Seven Rise**\
-`Stocks that moved heavily or traded substantially on Friday:`\
-https://nytimes.com/aponline/2020/02/28/business/ap-financial-markets-stocks.html?searchResultPosition=10
+**Terri Lyne Carrington on Living with Music**\
+`The Grammy Award-winning jazz drummer reflects on her four-decade, trailblazing artistic career and advancing change within her industry.`\
+https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007006620/terri-lyne-carrington-on-living-with-music.html?searchResultPosition=10
 
