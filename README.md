@@ -1,20 +1,20 @@
-**When the Craving for Cassoulet Strikes …**\
-`In determining his latest dinner party menu, David Tanis lets the main course take the lead.`\
-https://nytimes.com/2020/02/28/dining/david-tanis-cassoulet.html?searchResultPosition=6
+**UK's Johnson Says Coronavirus Is Government's Top Priority**\
+`British Prime Minister Boris Johnson said taking measures to slow the spread of the coronavirus was his government's top priority and that the public were right to be concerned, in his first television appearance to talk about the issue.`\
+https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-britain-johnson.html?searchResultPosition=6
 
-**Report: Los Angeles Deputies Shared Kobe Bryant Crash Photos**\
-`Authorities are investigating whether deputies shared graphic photos of the helicopter crash scene where Kobe Bryant, his 13-year-old daughter and seven others were killed, according to a newspaper report. `\
-https://nytimes.com/aponline/2020/02/28/sports/ap-us-kobe-bryant-crash-photos-.html?searchResultPosition=7
+**At Least 210 People Have Died From Coronavirus in Iran: BBC Persian**\
+`At least 210 people have died from coronavirus in Iran, in various cities, as of Thursday night, BBC Persian reported on Friday, citing hospital sources. `\
+https://nytimes.com/reuters/2020/02/28/world/middleeast/28reuters-china-health-iran-casualties.html?searchResultPosition=7
 
-**AP-NORC Poll: Impeachment Didn't Dent Trump Approval**\
-`Do Americans trust anyone or anything in public life these days?`\
-https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-ap-poll-trust-in-public-life.html?searchResultPosition=8
+**Italy Coronavirus Cases Rise to 888, of Which 46 Have Recovered: Official**\
+`The number of confirmed cases of coronavirus in Italy rose on Friday to 888 from 650 the day before, a civil protection official said.`\
+https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-italy-cases.html?searchResultPosition=8
 
-**Is the Coronavirus an Epidemic or a Pandemic? It Depends on Who’s Talking**\
-`This week, the World Health Organization stopped short of calling the outbreak a pandemic. Experts weigh in on the debate and explain the significance of the terms.`\
-https://nytimes.com/2020/02/28/health/coronavirus-pandemic-epidemic.html?searchResultPosition=9
+**Italian Coronavirus Deaths Rise to 21, Positive Cases 821**\
+`Four more people have died in Italy from coronavirus, the civil protection agency said on Friday, bringing the total to 21, while the number of those testing positive for the illness jumped to 821 from 650 the day before.`\
+https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-italy-casualties.html?searchResultPosition=9
 
-**His Hats Are Worn by Bella Hadid and Madonna**\
-`And it all started with Instagram.`\
-https://nytimes.com/2020/02/28/style/his-hats-are-worn-by-bella-hadid-and-madonna.html?searchResultPosition=10
+**Immigration Courts Seek Steep Fee Hikes for Appeals, Filings**\
+`U.S. immigration courts on Friday proposed raising fees on filings and appeals by hundreds of dollars in a move that immigrant advocates said would block their clients' ability to access justice. `\
+https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-immigration-courts-fees.html?searchResultPosition=10
 
