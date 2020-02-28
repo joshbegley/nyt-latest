@@ -1,20 +1,20 @@
-**Activist Investor Robbins Shutting Hedge Fund to Pursue Other Things**\
-`Activist investor Clifton S. Robbins told clients on Friday that he is shuttering his Blue Harbour Group not because investors want their money back or because returns have lagged, but because he wants to do something different.`\
-https://nytimes.com/reuters/2020/02/28/business/28reuters-hedgefunds-blueharbour.html?searchResultPosition=6
+**Investor Pessimism Rising but May Not Be Bearish Enough**\
+`Pessimism about the performance of stock prices over the next six months jumped in the latest American Association of Individual Investors (AAII) Sentiment Survey, but may not have hit levels needed to lend some optimism for a longer-term rebound. `\
+https://nytimes.com/reuters/2020/02/28/us/28reuters-usa-stocks-aaii.html?searchResultPosition=6
 
-**Germany Enacts New Health Security Measures Against Coronavirus Infections**\
-`A German government crisis committee on Friday enacted new measures to combat the coronavirus outbreak that include the widening of cross-border travel guidelines and the cancellation of major international events.`\
-https://nytimes.com/reuters/2020/02/28/world/europe/28reuters-china-health-germany.html?searchResultPosition=7
+**Fed's Powell Says Economy Is Fine but Fed Ready to Act as Needed**\
+`Federal Reserve Chair Jerome Powell on Friday said the central bank will "act as appropriate" to support the economy in the face of risks posed by the coronavirus outbreak, though he said the economy remains in solid condition. `\
+https://nytimes.com/reuters/2020/02/28/us/28reuters-usa-fed-powell.html?searchResultPosition=7
 
-**U.S. Financial Regulators Expected to Discuss Coronavirus Wednesday: Sources**\
-`Top U.S. regulatory officials are expected to discuss the market and economic implications of a potential coronavirus pandemic at an upcoming meeting of their systemic threat panel, three sources told Reuters.`\
-https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-usa-regulators.html?searchResultPosition=8
+**The Big Crunch: For 2020 Dems, March Is Key in Delegate Race**\
+`March is crunch time for Democratic presidential candidates, with a nominee likely to emerge over the next several weeks, if not sooner.`\
+https://nytimes.com/aponline/2020/02/28/us/politics/ap-us-election-2020-big-crunch.html?searchResultPosition=8
 
-**U.S. Congress Offices Advised to Set Coronavirus Contingency Operations**\
-`Members of the U.S. House of Representatives on Friday were advised to establish plans for alternative work arrangements in case the coronavirus becomes widespread in the United States.`\
-https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-usa-house.html?searchResultPosition=9
+**'This Land Is Your Land' Lawsuit Dismissed by U.S. Judge**\
+`A federal judge in Manhattan on Friday dismissed a lawsuit claiming that Woody Guthrie's iconic 1940 folk song "This Land is Your Land" belongs to the public.`\
+https://nytimes.com/reuters/2020/02/28/arts/28reuters-music-this-land-is-your-land.html?searchResultPosition=9
 
-**Think the S&P 500 Is in Bad Shape? Its Components Look Worse**\
-`Wall Street's worst week since 2008, sparked by fears about the fast-spreading coronavirus, has left almost half of the S&P 500's stocks in bear market territory, just nine days after the leading benchmark closed at a record high.`\
-https://nytimes.com/reuters/2020/02/28/business/28reuters-china-health-s-p500-components-graphic.html?searchResultPosition=10
+**NOT REAL NEWS: A Look at What Didn't Happen This Week**\
+`In this week's roundup of the most popular but completely untrue stories and visuals of the week, we focus on false and misleading reports spreading online around the coronavirus outbreak, a situation the World Health Organization has dubbed an “infodemic.”`\
+https://nytimes.com/aponline/2020/02/28/us/ap-not-real-news.html?searchResultPosition=10
 
