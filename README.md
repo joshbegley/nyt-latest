@@ -1,20 +1,20 @@
-**Bruins Down Islanders 4-0**\
-`Defenseman Charlie McAvoy had a goal and two assists and Tuukka Rask made 24 saves as the Boston Bruins routed the New York Islanders 4-0 on Saturday.`\
-https://nytimes.com/aponline/2020/02/29/sports/hockey/bc-hkn-bruins-islanders.html?searchResultPosition=6
+**A War Without Winners Winds Down**\
+`The Trump administration’s deal with the Taliban recognizes the limits of American power.`\
+https://nytimes.com/2020/02/29/opinion/taliban-peace-deal-afghanistan.html?searchResultPosition=6
 
-**Winthrop Tops High Point To at Least Finish 2nd in Big South**\
-`Hunter Hale scored 22 points and Chandler Vaudrin distributed a career-high 15 assists and Winthrop beat High Point 84-76 on Saturday in their regular season finale.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-high-point-winthrop.html?searchResultPosition=7
+**Infantino Says 'Wrong' Only Men Deciding Laws of Soccer**\
+`FIFA President Gianni Infantino acknowledged it was “wrong” that the annual laws of football meeting had only men taking the decisions on Saturday.`\
+https://nytimes.com/aponline/2020/02/29/sports/soccer/ap-soc-fifa-no-women-.html?searchResultPosition=7
 
-**What if They Played the Games and Nobody Came?**\
-`What if they played a game and nobody came? `\
-https://nytimes.com/aponline/2020/02/29/sports/ap-virus-outbreak-fanless-games.html?searchResultPosition=8
+**Hammond Forces OT, Niagara Pulls Away From Iona Late, 100-91**\
+`Marcus Hammond took a half-court pass, dribbled once and drilled a 3-pointer from the top of the key at the buzzer to pull Niagara even and force an overtime period the Purple Eagles dominated in a 100-91 win over Iona on Saturday.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-iona-niagara.html?searchResultPosition=8
 
-**Robert Morris Earns No. 1 Seed, Braxton Makes NEC History**\
-`Josh Williams scored 23 points, making four 3-pointers and Robert Morris defeated Saint Francis (Pa.) 78-68 in a regular-season finale on Saturday to clinch the No. 1 seed into the upcoming Northeast Conference tournament.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-st-francis-pa-robert-morris.html?searchResultPosition=9
+**Tennessee Hold Off Florida 63-58 Behind Fulkerson**\
+`John Fulkerson scored 22 points, including the first 3-pointer of his career, as Tennessee held off a furious Florida comeback attempt to register its best win of the season with a 63-58 victory over the rival Gators on Saturday.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-florida-tennessee.html?searchResultPosition=9
 
-**Live Analysis: South Carolina Primaries**\
-`Follow live coverage and analysis from Times reporters.`\
-https://nytimes.com/interactive/2020/02/29/us/elections/results-south-carolina-live-updates.html?searchResultPosition=10
+**Ireland Has First Confirmed Case of Coronavirus: Health Department**\
+`Health authorities in Ireland on Saturday confirmed the country's first case of coronavirus and said it was associated with travel from an affected area in northern Italy.`\
+https://nytimes.com/reuters/2020/02/29/world/europe/29reuters-china-health-ireland.html?searchResultPosition=10
 
