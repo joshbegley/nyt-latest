@@ -1,20 +1,20 @@
-**Mainland China, Excluding Hubei, Reports Lowest New Daily Infections**\
-`Mainland China - excluding Hubei province where the new coronavirus outbreak originated - reported four new cases of infection on Friday, the lowest since the national health authority started compiling nationwide data in January. `\
-https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-china-health-toll.html?searchResultPosition=6
+**Pope Cancels Audiences for Third Day With Apparent Cold**\
+`Pope Francis canceled official engagements for the third day in a row Saturday as he battled an apparent cold.`\
+https://nytimes.com/aponline/2020/02/29/world/europe/ap-eu-rel-vatican-pope-sick.html?searchResultPosition=6
 
-**Vice President Pence Says Just One American With Coronavirus Still in Hospital**\
-`Of dozens of confirmed coronavirus cases in the United States, only one patient is still in the hospital, U.S. Vice President Mike Pence said on Friday.`\
-https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-china-health-usa-pence.html?searchResultPosition=7
+**PM Abe Vows Japan's Utmost Efforts to Coronavirus; Xi Visit, Olympics on Track**\
+`Japanese Prime Minister Shinzo Abe on Saturday promised his government's utmost efforts to curb the spread of the new coronavirus, while acknowledging the authorities alone could not tackle the threat.`\
+https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-china-health-japan-abe.html?searchResultPosition=7
 
-**Turkish Strike in Syria Kills Nine Hezbollah Members, Wounds 30: Source**\
-`Turkish strikes on northwest Syria late on Friday killed nine members of Iran-backed Hezbollah and wounded 30 others, a commander in the regional alliance backing Syrian President Bashar al-Assad said.`\
-https://nytimes.com/reuters/2020/02/29/world/middleeast/29reuters-syria-security-hezbollah.html?searchResultPosition=8
+**Factbox: 'Malay First'-Malaysia's Muhyiddin Allies With Nationalists to Become PM**\
+`Former Malaysian interior minister Muhyiddin Yassin will be sworn in as the country's next prime minister on Sunday, after he secured support from a Malay nationalist party that sacked him in 2015.`\
+https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-malaysia-politics-muhyiddin-factbox.html?searchResultPosition=8
 
-**Greek Police Fire Teargas on Migrants at Border With Turkey**\
-`Greek police fired teargas toward migrants who were gathered on  its border with Turkey and demanding entry on Saturday, as a crisis over Syria abruptly moved onto the European Union's doorstep.`\
-https://nytimes.com/reuters/2020/02/29/world/europe/29reuters-syria-security-greece.html?searchResultPosition=9
+**Iran's Coronavirus Death Toll Rises to 43, With 593 People Infected**\
+`Iran's death toll from the coronavirus outbreak has reached 43, a health official told state TV on Saturday, adding that the number of infected people across the country has reached 593.`\
+https://nytimes.com/reuters/2020/02/29/world/middleeast/29reuters-health-coronavirus-iran-toll.html?searchResultPosition=9
 
-**Turkey's Erdogan Asks Russia's Putin to Step Aside in Syria**\
-`Turkish President Tayyip Erdogan said on Saturday that he had asked President Vladimir Putin for Russia to step aside in Syria and leave Turkey to deal with Syrian government forces alone, after 34 Turkish soldiers were killed this week.`\
-https://nytimes.com/reuters/2020/02/29/world/europe/29reuters-syria-security.html?searchResultPosition=10
+**New Virus: Over 85,000 Infected Globally, Over 2,900 Deaths**\
+`A viral outbreak that began in China has infected more than 85,000 people globally. The World Health Organization has named the illness COVID-19, referring to its origin late last year and the coronavirus that causes it. `\
+https://nytimes.com/aponline/2020/02/29/us/ap-virus-outbreak-at-a-glance.html?searchResultPosition=10
 
