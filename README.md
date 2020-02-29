@@ -1,20 +1,20 @@
-**Davis Scores Season-High 43 in Detroit Mercy's 90-88 Victory**\
-`Antoine Davis scored a season-high 43 points and his two free throws with 5.3 seconds remaining provided the winning points in Detroit Mercy's 90-88 victory over IUPUI on Saturday in a regular-season finale.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-detroit-mercy-iupui.html?searchResultPosition=6
+**Healthy Rupp Repeats as U.S. Olympic Marathon Champion**\
+`Galen Rupp powered to his second consecutive U.S. Olympic marathon trials victory as the 2016 Rio bronze medallist showed he is fully recovered from 2018 Achilles surgery on Saturday.`\
+https://nytimes.com/reuters/2020/02/29/sports/olympics/29reuters-athletics-usa-marathon.html?searchResultPosition=6
 
-**Boubacar, Eastern Michigan Rally to Top Central Michigan**\
-`Boubacar Toure scored 13 points, grabbed 14 rebounds and had a career-high five blocked shots and Eastern Michigan closed the game with a 16-2 run to defeat 67-63 Central Michigan on Saturday.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-c-michigan-e-michigan.html?searchResultPosition=7
+**Russia, Turkey Set to Discuss Syria Conflict: Kremlin**\
+`Russia and Turkey will discuss all aspects of the Syrian conflict at talks in Moscow, Russian President Vladimir Putin told French President Emmanuel Macron during a phone call, the Kremlin said on Saturday.`\
+https://nytimes.com/reuters/2020/02/29/world/middleeast/29reuters-syria-security-russia-france-iran.html?searchResultPosition=7
 
-**Texas Tops No. 22 Texas Tech 68-58 for 4th Straight Win**\
-`Andrew Jones had a career-high 22 points and Texas scored the game's last eight points over the final minute, stretching its winning streak to four games with a 68-58 victory at No. 22 Texas Tech on Saturday. `\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-t25-texas-texas-tech.html?searchResultPosition=8
+**Galen Rupp Wins 2nd Straight US Olympic Marathon Trials**\
+`Galen Rupp reclaimed his status as the nation's top distance runner Saturday, winning his second straight U.S. Olympic marathon trials and earning a spot for a Tokyo Games shadowed by a global virus.`\
+https://nytimes.com/aponline/2020/02/29/sports/olympics/ap-oly-us-marathon-trials.html?searchResultPosition=8
 
-**Sabalenka Topples Kvitova to Claim Doha Crown**\
-`Aryna Sabalenka claimed her sixth WTA title as she swept past two-time Wimbledon champion Petra Kvitova 6-3 6-3 in the Qatar Open final on Saturday.`\
-https://nytimes.com/reuters/2020/02/29/sports/tennis/29reuters-tennis-doha.html?searchResultPosition=9
+**Boston University Edges Bucknell 74-71**\
+`Javante McCoy's jumper with 29 seconds left snapped a tie, Max Mahoney had a double-double and Boston University beat Bucknell 74-71 on Saturday in a regular-season finale.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-bucknell-boston-university.html?searchResultPosition=9
 
-**From Blackhawk to Brain Surgery to Bride**\
-`So many people came together to save this one girl’s life, and her chance to grow, to find happiness, to find love.`\
-https://nytimes.com/2020/02/29/opinion/doctors-medicine-military-emergency.html?searchResultPosition=10
+**How Does the Coronavirus Compare to the Flu?**\
+`As new cases appear on the West Coast, some — including the president — see comparisons to the seasonal flu. Here’s a close look at the differences.`\
+https://nytimes.com/2020/02/29/health/coronavirus-flu.html?searchResultPosition=10
 
