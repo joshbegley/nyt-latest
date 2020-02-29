@@ -1,4 +1,4 @@
-**Scientists Must Speak Freely if the U.S. Is to Beat the Coronavirus**\
+**When an Epidemic Looms, Gagging Scientists Is a Terrible Idea**\
 `In an epidemic, suppression of bad news costs lives and eventually angers the public. The White House is in danger of repeating the error.`\
 https://nytimes.com/2020/02/28/health/coronavirus-pence-messaging.html?searchResultPosition=6
 
