@@ -10,11 +10,11 @@ https://nytimes.com/reuters/2020/02/29/sports/29reuters-china-health-triathlon.h
 `Five Serie A soccer games in Italy were postponed on Saturday in an effort to contain the virus outbreak.`\
 https://nytimes.com/aponline/2020/02/29/sports/soccer/ap-soc-virus-outbreak-soccer.html?searchResultPosition=8
 
-**Afghanistan Deal Is Political Boost for Trump but Pullout Could Take Years**\
-`President Donald Trump's quest for a second term received a boost on Saturday from the deal with the Taliban for a troop pullout from Afghanistan but it could take time - possibly years - before all U.S. forces come home from America's longest war.`\
-https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-usa-afghanistan-taliban-withdrawal.html?searchResultPosition=9
-
 **Trump Seeks High Court Approval to Speed Deportations**\
 `The man slipped into the U.S from Tijuana, Mexico, and made it just 25 yards from the border before he was arrested.`\
-https://nytimes.com/aponline/2020/02/29/us/politics/ap-us-supreme-court-immigration-asylum-.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/29/us/politics/ap-us-supreme-court-immigration-asylum-.html?searchResultPosition=9
+
+**Afghanistan Deal Is Political Boost for Trump but Pullout Could Take Years**\
+`President Donald Trump's quest for a second term received a boost on Saturday from the deal with the Taliban for a troop pullout from Afghanistan but it could take time - possibly years - before all U.S. forces come home from America's longest war.`\
+https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-usa-afghanistan-taliban-withdrawal.html?searchResultPosition=10
 
