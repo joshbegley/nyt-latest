@@ -1,20 +1,20 @@
-**In Graying Japan, Many Are Vulnerable but Few Are Being Tested**\
-`The coronavirus is particularly dangerous to older people, but the Japanese authorities have maintained strict constraints on testing for it.`\
-https://nytimes.com/2020/02/29/world/asia/japan-elderly-coronavirus.html?searchResultPosition=6
+**In Prosperous California, Anxiety Over Inequality Abounds**\
+`As millions of Californians prepare to vote on Super Tuesday, the state’s affordability crisis is weighing heavily on their minds.`\
+https://nytimes.com/2020/02/29/us/california-primary-super-tuesday.html?searchResultPosition=6
 
-**Trump: 'We Are Working to Finally End America's Longest War'**\
-`U.S. President Donald Trump hailed the agreement signed between the United States and the Taliban on Saturday as a move to end  American's longest war and bring U.S. troops home from Afghanistan.`\
-https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-usa-afghanistan-taliban-trump.html?searchResultPosition=7
+**Turkish Foreign Minister Calls for U.S. Patriot Missiles as Support in Idlib**\
+`Foreign Minister Mevlut Cavusoglu said Ankara wants the United States to send Patriot missiles to Turkey for back-up in Syria's northwestern province of Idlib. `\
+https://nytimes.com/reuters/2020/02/29/world/middleeast/29reuters-syria-security-turkey-us.html?searchResultPosition=7
 
-**Factbox: Details of the Deal Signed Between the United States and the Taliban**\
-`The United States signed a deal with Taliban insurgents on Saturday that could pave the way toward a full withdrawal of foreign soldiers from Afghanistan and represent a step toward ending the 18-year-war there. Below are the key details. `\
-https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-usa-afghanistan-taliban-details-factbox.html?searchResultPosition=8
+**Iran's Rouhani Says Innocent People in Syria's Idlib Should Be Protected: TV**\
+`Iranian President Hassan Rouhani told his Turkish counterpart on Saturday that innocent people should be protected in Syria's northwest province, as tensions rose between Moscow and Ankara over the fighting there.`\
+https://nytimes.com/reuters/2020/02/29/world/middleeast/29reuters-syria-security-iran.html?searchResultPosition=8
 
-**Mahathir to Tell Malaysia's King He Has Support in Parliament to Be PM**\
-`Malaysia's Mahathir Mohamad said on Saturday that he intends to send a letter to the king to inform him of the support he has from the majority of lawmakers in parliament to be prime minister.  `\
-https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-malaysia-politics-mahathir-king.html?searchResultPosition=9
+**Eight Fighters With Lebanon's Hezbollah Killed in Syria**\
+`Lebanon's militant Hezbollah group lost at least eight fighters in northwest Syria in skirmishes with insurgents and airstrikes by Turkey's air force, an opposition war monitor and the militant group said Saturday.`\
+https://nytimes.com/aponline/2020/02/29/world/middleeast/ap-ml-syria.html?searchResultPosition=9
 
-**Make This Bacon-y, Spicy Fried Rice Tonight**\
-`One-pot braised chicken, crispy fried rice, and more recipes.`\
-https://nytimes.com/2020/02/29/admin/make-this-bacon-y-spicy-fried-rice-tonight.html?searchResultPosition=10
+**For Migrants at the Border, a Day of Hopes Uplifted and Dashed**\
+`Crowds of migrants headed for border crossings after an appeals court ruled against the Trump administration’s “Remain in Mexico” policy for asylum seekers. But their hopes were short-lived.`\
+https://nytimes.com/2020/02/29/us/migrants-remain-in-mexico-mpp.html?searchResultPosition=10
 
