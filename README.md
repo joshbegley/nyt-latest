@@ -1,5 +1,5 @@
 **Shifting Fervor, and Favorites, in the Presidential Race**\
-`Readers tell us their choice for president and how it has changed in recent weeks.`\
+`Readers share their choice for president and how it has changed in recent weeks.`\
 https://nytimes.com/2020/02/28/opinion/election-primaries-2020.html?searchResultPosition=6
 
 **Pistons Snap 7-Game Skid by Beating Suns 113-111**\
