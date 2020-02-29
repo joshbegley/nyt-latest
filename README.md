@@ -1,20 +1,20 @@
-**Corrections: Feb. 29, 2020**\
-`Corrections that appeared in print on Saturday, Feb. 29, 2020.`\
-https://nytimes.com/2020/02/29/pageoneplus/corrections-feb-29-2020.html?searchResultPosition=6
+**Restaurants in LA's Koreatown Reel Amid Coronavirus Rumor**\
+`In a Koreatown restaurant known for its beef bone broth soup, the lunchtime crowd Friday was half its normal size. The reason was a virulent rumor about a customer with coronavirus.`\
+https://nytimes.com/aponline/2020/02/29/us/ap-us-virus-outbreak-restaurant-rumors.html?searchResultPosition=6
 
-**After 7 Weeks of ‘No,’ an Opening in Her Datebook**\
-`It wasn’t long, “about 15 minutes into that first date,” Ms. Hagan said, before she realized what she had been missing all those months.`\
-https://nytimes.com/2020/02/29/fashion/weddings/after-7-weeks-of-no-an-opening-in-her-datebook.html?searchResultPosition=7
+**South Korea Tells Citizens to Stay Home at 'Critical Moment' in Virus Battle**\
+`South Korea urged citizens on Saturday to stay indoors as it warned of a "critical moment" in its battle on the coronavirus after recording the biggest daily jump in infections, with 594 new cases taking the tally to 2,931.`\
+https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-china-health-southkorea-cases.html?searchResultPosition=7
 
-**Jazz Snap 4-Game Skid With 129-119 Win Over Wizards**\
-`Donovan Mitchell scored 10 points of his 30 points in an 82-second span of the fourth quarter, and the Utah Jazz snapped a four-game losing streak with a 129-119 win over the Washington Wizards on Friday night.`\
-https://nytimes.com/aponline/2020/02/28/sports/basketball/bc-bkn-wizards-jazz.html?searchResultPosition=8
+**China February Factory Activity Contracts at Record Pace as Coronavirus Bites**\
+`Factory activity in China contracted at the fastest pace ever in February, even worse than during the global financial crisis, highlighting the colossal damage from the coronavirus outbreak on the world's second-largest economy.`\
+https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-china-economy-pmi-factory-official.html?searchResultPosition=8
 
-**Shifting Fervor, and Favorites, in the Presidential Race**\
-`Readers share their choice for president and how it has changed in recent weeks.`\
-https://nytimes.com/2020/02/28/opinion/election-primaries-2020.html?searchResultPosition=9
+**Bahrain Threatens Untested From Iran With Arrest Amid Virus**\
+`Bahrain on Saturday threatened legal prosecution against travelers who came from Iran and hadn't been tested for the new coronavirus, and also barred public gatherings for two weeks as confirmed cases across the wider Mideast grew to over 520.`\
+https://nytimes.com/aponline/2020/02/29/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=9
 
-**Pistons Snap 7-Game Skid by Beating Suns 113-111**\
-`Derrick Rose scored 31 points, Christian Wood and Brandon Knight both added 19 and the Detroit Pistons snapped a seven-game losing streak by beating the Phoenix Suns 113-111 on Friday night.`\
-https://nytimes.com/aponline/2020/02/28/sports/basketball/bc-bkn-pistons-suns.html?searchResultPosition=10
+**‘Border Security Is Also Health Security,’ Trump Says at Rally as Coronavirus Fears Grow**\
+`While members of his administration tried to convey a calm and steady response, President Trump hosted another free-form political rally where he accused his enemies of stoking panic.`\
+https://nytimes.com/2020/02/29/us/politics/trump-rally-coronavirus.html?searchResultPosition=10
 
