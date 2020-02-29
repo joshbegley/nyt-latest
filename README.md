@@ -1,20 +1,20 @@
-**Why Bernie Scares Me**\
-`Sanders seems mostly incapable of admitting past errors of judgment.`\
-https://nytimes.com/2020/02/28/opinion/bernie-sanders-2020.html?searchResultPosition=6
+**U.S. Moves High-Level U.S. Meeting on China Tech, Possible New Huawei Curbs to March: Sources**\
+`Trump administration officials have rescheduled for March 11 a critical meeting to discuss potential new U.S. restrictions on sales of technology to Huawei and China, people familiar with the matter said.`\
+https://nytimes.com/reuters/2020/02/28/business/28reuters-usa-china-huawei-tech.html?searchResultPosition=6
 
-**Gerald Krone, a Negro Ensemble Company Founder, Dies at 86**\
-`He provided the administrative know-how that got the theater troupe off the ground in 1967. That he was white drew some criticism.`\
-https://nytimes.com/2020/02/28/theater/gerald-krone-dead.html?searchResultPosition=7
+**Coronavirus Outbreak Rains on Dealmakers' M&A Parade**\
+`The steep market drop triggered by the global coronavirus outbreak has led many companies to hit the 'pause' button on mergers and acquisitions (M&A), sabotaging the hopes of corporate advisers who expected a dealmaking bonanza this year. `\
+https://nytimes.com/reuters/2020/02/28/business/28reuters-china-health-deals.html?searchResultPosition=7
 
-**Who Will Care For Society’s Forgotten?**\
-`Housecall Providers, an organization in Portland, Ore., provides end-of-life care for the city’s most vulnerable residents.`\
-https://nytimes.com/2020/02/28/opinion/palliative-care-homeless-medicaid.html?searchResultPosition=8
+**USTR Vows to Push for Trade Deals With Britain, EU; Seeks Broader Reset at WTO**\
+`The Trump administration on Friday said it would focus on concluding new trade agreements with Britain, the European Union and Kenya over the coming year, while strictly enforcing trade laws and pushing for reforms of the World Trade Organization.`\
+https://nytimes.com/reuters/2020/02/28/business/28reuters-usa-trade.html?searchResultPosition=8
 
-**Joe Biden Needs a Win in South Carolina. Will He Get It?**\
-`Politics still move at a different pace there, and it’s a place where loyalty can outweigh ideology.`\
-https://nytimes.com/2020/02/28/opinion/south-carolina-primary.html?searchResultPosition=9
+**Baby Hippo at San Diego Zoo Gets a Name**\
+`A baby hippopotamus born at the San Diego Zoo last month has a name.`\
+https://nytimes.com/aponline/2020/02/28/us/ap-us-baby-hippo-named-1st-ld-writethru.html?searchResultPosition=9
 
-**We Don’t Really Know How Many People Have Coronavirus**\
-`In an era when we get flash-flood warnings on phones, why is data on the new coronavirus so limited?`\
-https://nytimes.com/2020/02/28/opinion/coronavirus-death-rate.html?searchResultPosition=10
+**Biotechnology Trade Group Taps Former Biogen CEO as Its Coronavirus Czar**\
+`The Biotechnology Innovation Organization (BIO), the biotechnology industry's largest trade association, told Reuters on Friday that former Biogen Inc CEO George Scangos would coordinate its response to the global coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/02/28/world/asia/28reuters-china-health-biotechnology-scangos.html?searchResultPosition=10
 
