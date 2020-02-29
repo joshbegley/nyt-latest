@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/02/29/world/europe/ap-eu-britain-politics.html
 `Thousands of people are marching on a boulevard in central Moscow to commemorate Boris Nemtsov, the Russian opposition leader who was gunned down five years ago.`\
 https://nytimes.com/aponline/2020/02/29/world/europe/ap-eu-russia-nemtsov-march.html?searchResultPosition=7
 
-**Qatar Reports First Case of Coronavirus-State News Agency**\
-`Qatar's health ministry reported on Saturday the first case of coronavirus infection in the country, the state-run Qatar News Agency said. `\
+**Qatar Reports Its First Coronavirus Case in Man Who Returned From Iran**\
+`Qatar's health ministry reported on Saturday the first case of coronavirus infection in the country.`\
 https://nytimes.com/reuters/2020/02/29/world/middleeast/29reuters-china-health-qatar.html?searchResultPosition=8
 
 **Joe Coulombe, Who Founded Trader Joe’s, Dies at 89**\
