@@ -1,20 +1,20 @@
-**Vital Scores 27 Pts., Leads UConn Past East Carolina, 84-63**\
-`Christian Vital had a season-high 27 points as UConn cruised past East Carolina 84-63 on Saturday.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-uconn-east-carolina.html?searchResultPosition=6
+**No. 20 South Dakota Women Get Perfect Summit League**\
+`Ciara Duffy scored 17 points, Taylor Frederick added 15 and No. 20 South Dakota rolled to its second undefeated Summit League season and school-record 27th win with a 76-47 win over North Dakota on Saturday.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkw-t25-north-dakota-south-dakota.html?searchResultPosition=6
 
-**Williams Lifts Indiana St. Over Valparaiso 71-58**\
-`Christian Williams had a career-high 20 points as Indiana State topped Valparaiso 71-58 on Saturday.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-valparaiso-indiana-st.html?searchResultPosition=7
+**Socialist Hardliners Aim Guns on Guaidó March in Venezuela**\
+`Socialist hardliners in Venezuela opened fire during a march headed by Juan Guaidó, injuring a 16-year-old demonstrator and adding to tensions in the country as the opposition leader seeks to revive his campaign to oust Nicolás Maduro.`\
+https://nytimes.com/aponline/2020/02/29/world/americas/ap-lt-venezuela-guaido.html?searchResultPosition=7
 
-**A War Without Winners Winds Down**\
-`The Trump administration’s deal with the Taliban recognizes the limits of American power.`\
-https://nytimes.com/2020/02/29/opinion/taliban-peace-deal-afghanistan.html?searchResultPosition=8
+**Bane Has Late Push for TCU in 75-72 Win Over No. 2 Baylor**\
+`Desmond Bane scored 23 points, with eight straight in TCU's tiebreaking run as the Horned Frogs upended No. 2 Baylor 75-72 on Saturday.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/ap-bkc-t25-baylor-tcu.html?searchResultPosition=8
 
-**Infantino Says 'Wrong' Only Men Deciding Laws of Soccer**\
-`FIFA President Gianni Infantino acknowledged it was “wrong” that the annual laws of football meeting had only men taking the decisions on Saturday.`\
-https://nytimes.com/aponline/2020/02/29/sports/soccer/ap-soc-fifa-no-women-.html?searchResultPosition=9
+**Life Inside an Afghan Women’s Prison**\
+`Photographer Kiana Hayeri documented mothers inside an Afghan prison. Here’s what it was like.`\
+https://nytimes.com/2020/02/29/world/middleeast/life-inside-an-afghan-womens-prison.html?searchResultPosition=9
 
-**Hammond Forces OT, Niagara Pulls Away From Iona Late, 100-91**\
-`Marcus Hammond took a half-court pass, dribbled once and drilled a 3-pointer from the top of the key at the buzzer to pull Niagara even and force an overtime period the Purple Eagles dominated in a 100-91 win over Iona on Saturday.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-iona-niagara.html?searchResultPosition=10
+**France's Macron Urges Turkey and Russia to Agree Ceasefire in Syria**\
+`French President Emmanuel Macron urged his Russian and Turkish counterparts on Saturday to halt hostilities in Syria and agree to a lasting ceasefire, his office said.`\
+https://nytimes.com/reuters/2020/02/29/world/europe/29reuters-syria-security-france.html?searchResultPosition=10
 
