@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/02/29/sports/cycling/29reuters-ching-health-cyc
 `Japanese automaker Toyota plans to build a new electric vehicle plant in the Chinese city of Tianjin with its local partner FAW Group, a document from the local authorities showed.`\
 https://nytimes.com/reuters/2020/02/29/business/29reuters-toyota-china-electric.html?searchResultPosition=9
 
-**Pentagon Chief Lands in Afghanistan Ahead of Taliban Accord Signing**\
-`U.S. Defense Secretary Mark Esper arrived in Kabul on Saturday, in a move officials and experts said was aimed at reassuring the Afghan government about the United States' commitment to the country ahead of an expected accord signing between Washington and the Taliban in Qatar. `\
+**Pentagon Chief Lands in Afghanistan Ahead of U.S., Taliban Deal**\
+`U.S. Defense Secretary Mark Esper arrived in Kabul on Saturday, in a move officials and experts said was aimed at reassuring the Afghan government about the United States' commitment to the country ahead of an expected accord signing between Washington and the Taliban. `\
 https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-usa-afghanistan-taliban-pentagon.html?searchResultPosition=10
 
