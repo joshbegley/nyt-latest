@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/02/29/world/europe/29reuters-syria-security-greece.html?searchResultPosition=6
 
 **Turkey's Erdogan Asks Russia's Putin to Step Aside in Syria**\
-`Turkish President Tayyip Erdogan said on Saturday that he had asked President Vladimir Putin for Russia to step aside in Syria and leave Turkey to deal with Syrian government forces alone.`\
+`Turkish President Tayyip Erdogan said on Saturday that he had asked President Vladimir Putin for Russia to step aside in Syria and leave Turkey to deal with Syrian government forces alone, after 34 Turkish soldiers were killed this week.`\
 https://nytimes.com/reuters/2020/02/29/world/europe/29reuters-syria-security.html?searchResultPosition=7
 
 **Key Questions Heading Into South Carolina Democratic Primary**\
