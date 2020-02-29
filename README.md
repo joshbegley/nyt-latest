@@ -1,20 +1,20 @@
+**Sarr, Wake Forest Deal Blow to Irish NCAA Hopes**\
+`Olivier Sarr won the battle of big men as Wake Forest dealt a significant blow to Notre Dame’s NCAA Tournament hopes on Saturday with an 84-73 victory over the visiting Fighting Irish.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-notre-dame-wake-forest.html?searchResultPosition=6
+
+**Hofstra Wins CAA With Record 20 3-Pointers**\
+`Eli Pemberton scored a career-high 35 points and Hofstra drilled a school-record 20 3-pointers  en route to a 97-81 win over James Madison on Saturday that gave the Pride back-to-back Colonial Athletic Association championships.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-james-madison-hofstra.html?searchResultPosition=7
+
+**Vigil to Be Held for Victims of Milwaukee's Mass Shooting**\
+`A public vigil will be held to remember the victims of the mass shooting a Milwaukee brewery.`\
+https://nytimes.com/aponline/2020/02/29/us/ap-us-brewery-shooting-vigil.html?searchResultPosition=8
+
 **Sacred Heart Wins 76-67, LIU's Clark Is 1st to 2,000 Points**\
 `Aaron Clarke scored a season-high 23 points, E.J. Anosike added 20 more and Sacred Heart defeated Long Island University 76-67 on Saturday.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-long-island-university-sacred-heart.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-long-island-university-sacred-heart.html?searchResultPosition=9
 
 **Riller Leads College of Charleston Past Drexel 75-66**\
 `Grant Riller had 25 points as College of Charleston topped Drexel 75-66 on Saturday.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-drexel-coll-of-charleston.html?searchResultPosition=7
-
-**VCU Uses the Second Half to Blow Open George Washington**\
-`Mike'L Simms scored 14 points and VCU smoked George Washington 75-51 on Saturday.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-george-washington-vcu.html?searchResultPosition=8
-
-**AP FACT CHECK: Trump Revives False Claim on Wall at CPAC**\
-`President Donald Trump asserted anew on Saturday that Mexico is paying for his border wall, even as his administration shifts billions from the Pentagon to cover some construction costs and Mexico pitches in nothing.`\
-https://nytimes.com/aponline/2020/02/29/us/politics/ap-us-trump-fact-check.html?searchResultPosition=9
-
-**Clyburn's Endorsement of Biden 'a Factor' for a Majority of South Carolina Voters: Poll**\
-`Voters in South Carolina's Democratic primary on Saturday appeared to be more moderate than those who took part in earlier presidential nominating contests, and a majority said a senior black congressman's endorsement of Joe Biden influenced their vote, according to exit polling by Edison Research.`\
-https://nytimes.com/reuters/2020/02/29/us/politics/29reuters-usa-election-south-carolina-poll.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-drexel-coll-of-charleston.html?searchResultPosition=10
 
