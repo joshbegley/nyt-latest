@@ -1,20 +1,20 @@
+**F.D.A. Expands Coronavirus Testing in the United States**\
+`The agency announced that it would allow hundreds of labs to test for the virus, circumventing the C.D.C.’s centralized testing system and making it likely that cases will be detected faster.`\
+https://nytimes.com/2020/02/29/health/fda-coronavirus-testing.html?searchResultPosition=6
+
+**Bloomberg in South Carolina: Not on the Ballot and Not Liked-Poll**\
+`Former New York Mayor Michael Bloomberg was not on the ballot in Saturday's Democratic presidential primary in South Carolina, but he was still on voters' minds - and not in a good way.`\
+https://nytimes.com/reuters/2020/02/29/us/politics/29reuters-usa-election-south-carolina-bloomberg.html?searchResultPosition=7
+
+**Sibande Leads Miami (Ohio) Past Bowling Green 73-55**\
+`Nike Sibande scored 24 points and grabbed 11 rebounds and sixth-place Miami (Ohio) beat first-place Bowling Green 73-55 on Saturday in Mid-American Conference play.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-bowling-green-miami-oh.html?searchResultPosition=8
+
+**No. 8 Kentucky Tops No. 15 Auburn 73-66 to Clinch SEC Title**\
+`Immanuel Quickley had 18 points and a career-high 12 rebounds, No. 8 Kentucky used a big run in the first half before holding off No. 15 Auburn and clinch the Southeastern Conference regular season championship with a 73-66 victory Saturday.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-t25-auburn-kentucky.html?searchResultPosition=9
+
 **Germany Has Means to Respond if Coronavirus Sparks Economic Crisis: Finance Minister**\
 `Germany would be in a position to enact a fiscal stimulus package should the coronavirus spark a global economic crisis, Finance Minister Olaf Scholz said in remarks published on Sunday.`\
-https://nytimes.com/reuters/2020/02/29/world/europe/29reuters-health-coronavirus-germany-scholz.html?searchResultPosition=6
-
-**McGriff, Other Seniors Lead Oklahoma St. Over Iowa St.**\
-`Cameron McGriff scored 19 points and had seven rebounds to help lead Oklahoma State to a 73-61 victory over Iowa State Saturday afternoon.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-iowa-st-oklahoma-st.html?searchResultPosition=7
-
-**North Carolina's Long-Range Barrage Sinks Syracuse, 92-79**\
-`Freshman guard Cole Anthony hit a season-high seven 3-pointers and scored 25 points, Garrison Brooks added 26 points and a career-high 14 rebounds, and North Carolina beat Syracuse 92-79 on Saturday.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-north-carolina-syracuse.html?searchResultPosition=8
-
-**Fleetwood the Leader Going Into Final Round of Honda Classic**\
-`Tommy Fleetwood has won in Scotland, England, the United Arab Emirates, France, South Africa, even Kazakhstan.`\
-https://nytimes.com/aponline/2020/02/29/sports/golf/ap-glf-honda-classic.html?searchResultPosition=9
-
-**Timeline of Major League Soccer's 25 Years**\
-`A time line of the 25-year history of Major League Soccer:`\
-https://nytimes.com/reuters/2020/02/29/sports/soccer/29reuters-soccer-usa-mls-timeline.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/02/29/world/europe/29reuters-health-coronavirus-germany-scholz.html?searchResultPosition=10
 
