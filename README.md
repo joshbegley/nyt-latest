@@ -1,20 +1,20 @@
-**Pope Resumes Individual Official Audiences, Cancels Group Meetings**\
-`Pope Francis, who has been suffering from what the Vatican says is a "slight indisposition," resumed official audiences with individuals in his residence on Saturday but three with groups were canceled.`\
-https://nytimes.com/reuters/2020/02/29/world/europe/29reuters-pope-health.html?searchResultPosition=6
+**Turkey's Erdogan Asks Russia's Putin to Step Aside in Syria**\
+`Turkish President Tayyip Erdogan said on Saturday that he had asked President Vladimir Putin for Russia to step aside in Syria and leave Turkey to deal with Syrian government forces alone.`\
+https://nytimes.com/reuters/2020/02/29/world/europe/29reuters-syria-security.html?searchResultPosition=6
 
-**Polish Oil Refiner Sues Commerzbank's mBank, Others Over Interchange Fees**\
-`Poland's biggest oil refiner, PKN Orlen, has sued Commerzbank-owned mBank, along with Mastercard, Visa and another bank, for 636 million zlotys ($162.07 million) in damages relating to interchange fees charged in the mid-2000s, mBank said.`\
-https://nytimes.com/reuters/2020/02/29/world/europe/29reuters-mbank-pkn-orlen-compensation.html?searchResultPosition=7
+**Key Questions Heading Into South Carolina Democratic Primary**\
+`The South Carolina primary is certain to be a fork in the road for Democrats’ 2020 presidential nominating contest. But there’s no reliable map showing where voters’ choices might lead once the state's voters — the first 2020 contest where black voters hold the strongest sway — have their say. `\
+https://nytimes.com/aponline/2020/02/29/us/politics/ap-us-election-2020-south-carolina-questions.html?searchResultPosition=7
 
-**Turkish Strikes in Northwest Syria Kill 48 Pro-Damascus Troops: Observatory**\
-`Turkish ground and air strikes on Syrian government forces and their allies in northwest Syria's Idlib have killed 48 pro-Damascus soldiers in the past 24 hours, the Syrian Observatory, a war monitor, reported on Saturday.`\
-https://nytimes.com/reuters/2020/02/29/world/middleeast/29reuters-syria-security-toll.html?searchResultPosition=8
+**For Seoul’s Poor, Class Strife in ‘Parasite’ Is Daily Reality**\
+`Like the family in the Oscar-winning film, many in Seoul’s so-called dirt-spoon class dwell in basements far below the rich. “Those living up there must look down on people like me like pigs.”`\
+https://nytimes.com/2020/02/29/world/asia/parasite-seoul-south-korea.html?searchResultPosition=8
 
-**Greece Says It Is Determined to Protect Its Borders**\
-`Greece said on Saturday that it was determined to protect its borders after migrants attempted to cross into the country from Turkey.`\
-https://nytimes.com/reuters/2020/02/29/world/europe/29reuters-syria-security-greece-official.html?searchResultPosition=9
+**Aging, Rising, Brainy, Booming: Super Tuesday Economies Pose Wider Test**\
+`The 14 states can be sorted into four general types. (Minnesota and Virginia may be more alike than you think.)`\
+https://nytimes.com/2020/02/29/business/economy/super-tuesday-states-economy.html?searchResultPosition=9
 
-**PM Designate Muhyiddin Asks Malaysians to Accept Decision on His Appointment**\
-`Malaysia's Prime Minister Designate Muhyiddin Yassin on Saturday asked Malaysians to accept the decision made by the palace to appoint him as premier.`\
-https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-malaysia-palace-muhyiddin.html?searchResultPosition=10
+**‘We’re the Base’: Black Democrats in South Carolina Want to Send a Message**\
+`As many prepare to rally around Joe Biden in Saturday’s primary, black voters want it known that their views of electability are not shaped by predominantly white states like Iowa.`\
+https://nytimes.com/2020/02/29/us/politics/black-voters-south-carolina-primary.html?searchResultPosition=10
 
