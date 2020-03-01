@@ -1,20 +1,20 @@
+**Britain's Health Service Not for Sale in US Free-Trade Talks**\
+`Any free-trade deal with the United States must protect Britain's cherished National Health Service, Prime Minister Boris Johnson's government declared Sunday as it published an outline of its negotiating objectives for the transatlantic deal.`\
+https://nytimes.com/aponline/2020/03/01/business/ap-eu-britain-us-trade-1st-ld-writethru.html?searchResultPosition=6
+
+**What’s Going On in This Picture? | March 2, 2020**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2020/03/01/learning/whats-going-on-in-this-picture-march-2-2020.html?searchResultPosition=7
+
+**Dosunmu Scores 17 Illini Hold Off Hoosiers 67-66**\
+`Ayo Dosunmu scored 17 points, including a key 3-pointer down the stretch, to lead Illinois over Indiana 67-66 on Sunday.`\
+https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkc-indiana-illinois.html?searchResultPosition=8
+
+**No. 3 Oregon Routs Washington 92-56 in Regular Season Finale**\
+`Ruthy Hebard scored 24 points and Satou Sabally added 20 to lead No. 3 Oregon to a 92-56 rout of Washington on Sunday to wrap up the regular season for both teams.`\
+https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkw-t25-washington-oregon.html?searchResultPosition=9
+
 **Marshall's 3-Pointer Gives Xavier Win Over Georgetown 66-63**\
 `Naji Marshall made a 3-pointer  with 4.5 seconds left to lead Xavier to a 66-63 win over Georgetown on Sunday. `\
-https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkc-xavier-georgetown.html?searchResultPosition=6
-
-**Last-Place Cal Upsets No. 13 Arizona Women on Road, 55-54**\
-`Jaelyn Brown's putback  with 13.7 seconds remaining lifted last-place California to a 55-54 win over No. 13 Arizona on Sunday in a regular-season finale.`\
-https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkw-t25-california-arizona.html?searchResultPosition=7
-
-**Fascoula Rallies Vandy Women Past No. 15 Kentucky 70-64**\
-`Mariella Fasoula scored nine of her 24 points in the fourth quarter and Vanderbilt used a 15-3 run over the last 5½ minutes to close the regular season on Sunday with a 70-64 upset of No. 15 Kentucky.`\
-https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkw-t25-kentucky-vanderbilt.html?searchResultPosition=8
-
-**Two Blasts Heard in Iraqi Capital, Cause Unknown: Reuters Witness**\
-`Two blasts could be heard in the Iraqi capital Baghdad early on Monday but the cause was unknown, a Reuters witness said.   `\
-https://nytimes.com/reuters/2020/03/01/world/middleeast/01reuters-iraq-protests-blast.html?searchResultPosition=9
-
-**Intel’s Culture Needed Fixing. Its C.E.O. Is Shaking Things Up.**\
-`Robert Swan, who leads the world’s biggest chipmaker, is pushing his 110,000 employees to confront internal problems more openly.`\
-https://nytimes.com/2020/03/01/technology/intel-culture-robert-swan.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkc-xavier-georgetown.html?searchResultPosition=10
 
