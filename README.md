@@ -1,20 +1,20 @@
-**Man City Beats Aston Villa 2-1, Wins 3rd Straight League Cup**\
-`Manchester City won the League Cup for a third consecutive season by beating Aston Villa 2-1 on Sunday, providing the club with a moment of celebration as it fights to protect its reputation off the field.`\
-https://nytimes.com/aponline/2020/03/01/sports/soccer/ap-soc-league-cup-final.html?searchResultPosition=6
+**French Coronavirus Cases Rise to 130: Public Health Chief**\
+`France has 130 confirmed cases of coronavirus, the head of the public health service, Jerome Salomon, said on Sunday, raising the count from 100 a day earlier.`\
+https://nytimes.com/reuters/2020/03/01/world/europe/01reuters-china-health-france.html?searchResultPosition=6
 
-**Rain, Art and Winter Wonderlands at Paris Fashion Week**\
-`Haunting music greeted drizzled-on VIP guests, including singer Janelle Monáe, who braved torrential rains in Paris to get to Valentino's experimental fashion show near the Invalides monument on Sunday.`\
-https://nytimes.com/aponline/2020/03/01/world/europe/ap-eu-france-paris-fashion-week.html?searchResultPosition=7
+**Morocco to Delay Sports, Cultural Events Over Coronavirus: State Media**\
+`Morocco will postpone sports and cultural events over coronavirus fears, a government committee charged with overseeing the state's response to the disease said on Sunday, state media reported.`\
+https://nytimes.com/reuters/2020/03/01/world/africa/01reuters-health-coronavirus-morocco.html?searchResultPosition=7
 
-**At Olympic Marathon Trials, the Agony of Fourth Place**\
-`Des Linden, in the women’s division, and Leonard Korir, in the men’s, were favorites to make the U.S. team. They finished fourth, which can be the worst pain of all.`\
-https://nytimes.com/2020/03/01/sports/olympics/olympic-marathon-trials-des-linden.html?searchResultPosition=8
+**West Virginia Univ. President Responds After 2 Shootings**\
+`The president of West Virginia University released a letter Sunday emphasizing the university's commitment to safety after two recent shootings near the Morgantown campus, one of them involving a fatality.`\
+https://nytimes.com/aponline/2020/03/01/us/ap-us-shots-fired-university-1st-ld-writethru.html?searchResultPosition=8
 
-**‘Invisible Man’ Tops Box Office, Giving New Life to Old Monsters**\
-`A low-budget reboot of the 87-year-old movie character collected $29 million, unseating “Sonic the Hedgehog.”`\
-https://nytimes.com/2020/03/01/arts/invisible-man-box-office.html?searchResultPosition=9
+**Coronavirus Deaths Rise in Italy, Government Prepares Economic Support**\
+`The death toll from an outbreak of coronavirus in Italy has risen to 34, five more than a day earlier, officials said on Sunday, as the government prepared to boost spending to help the fragile economy.`\
+https://nytimes.com/reuters/2020/03/01/world/europe/01reuters-china-health-italy.html?searchResultPosition=9
 
-**Security Forces Kill One, Wound 24 at Baghdad Protest: Police Source**\
-`Iraqi security forces killed one person and wound 24 at an anti-government protest in Baghdad on Sunday, a police source said.`\
-https://nytimes.com/reuters/2020/03/01/world/middleeast/01reuters-iraq-protests-toll.html?searchResultPosition=10
+**U.S. Officials Talk Down Coronavirus Market Panic, Tout Economic Strength**\
+`Trump administration officials on Sunday tried to calm market panic that the coronavirus could cause a global recession, saying the public had over-reacted and that stocks would bounce back due to the underlying strength of the U.S. economy.`\
+https://nytimes.com/reuters/2020/03/01/business/01reuters-china-health-usa-markets.html?searchResultPosition=10
 
