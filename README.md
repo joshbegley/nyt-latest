@@ -1,20 +1,20 @@
-**Thailand Records First Coronavirus Death: Health Official**\
-`Thailand has recorded its first coronavirus death as a 35-year-old man, who also had dengue fever, dies from the virus, Suwanchai Wattanayingcharoen, director-general of the Department of Disease Control, said in the news conference on Sunday. `\
-https://nytimes.com/reuters/2020/03/01/world/asia/01reuters-china-health-thailand.html?searchResultPosition=6
+**Big South Carolina Win Gives Joe Biden Campaign New Life; Super Tuesday Looms**\
+`An outpouring of black voter support propelled Joe Biden to a convincing victory in South Carolina’s Democratic primary on Saturday, resurrecting his faltering White House bid and giving the former vice president a chance to claim he is the moderate alternative to front-runner Bernie Sanders.`\
+https://nytimes.com/reuters/2020/03/01/us/politics/01reuters-usa-election-south-carolina.html?searchResultPosition=6
 
-**Lauren Hard, Ronald Hernandez**\
-`The couple, who both attended Teaneck High School in Teaneck, N.J., began dating after seeing each other at a mutual friend’s going-away party in New York.`\
-https://nytimes.com/2020/03/01/fashion/weddings/lauren-hard-ronald-hernandez.html?searchResultPosition=7
+**Amber Bloom, Dov Lebowitz-Nowak**\
+`He played an intellectual otter and she a dancing red bell pepper in the workshop of a new play.`\
+https://nytimes.com/2020/03/01/fashion/weddings/amber-bloom-dov-lebowitz-nowak.html?searchResultPosition=7
 
-**Danielle Foster, Douglas Graham**\
-`The couple met in January 2017 at a neighborhood bar on the Upper East Side.`\
-https://nytimes.com/2020/03/01/fashion/weddings/danielle-foster-douglas-graham.html?searchResultPosition=8
+**Esther Gibofsky, Adam Rattner**\
+`Their first date was at a bagel shop one morning, around 6, before they each headed to work.`\
+https://nytimes.com/2020/03/01/fashion/weddings/esther-gibofsky-adam-rattner.html?searchResultPosition=8
 
-**Thomas Schultz, Robert Blalock**\
-`The couple met in 2014 at a mutual friend’s home in Los Angeles.`\
-https://nytimes.com/2020/03/01/fashion/weddings/thomas-schultz-robert-blalock.html?searchResultPosition=9
+**Meredith Perry, Amit Bedi**\
+`The couple met in March 2011 at a housewarming party in New York, which was hosted by their mutual friends.`\
+https://nytimes.com/2020/03/01/fashion/weddings/meredith-perry-amit-bedi.html?searchResultPosition=9
 
-**Avy Villaraza, Darnell Thompson**\
-`The couple met as parishioners at Harvest City Church in 2011.`\
-https://nytimes.com/2020/03/01/fashion/weddings/avy-villaraza-darnell-thompson.html?searchResultPosition=10
+**Quotation of the Day: Readiness of U.S. for an Epidemic Raises Fears About Shortages**\
+`Quotation of the Day for Sunday, March 1, 2020.`\
+https://nytimes.com/2020/03/01/todayspaper/quotation-of-the-day-readiness-of-us-for-an-epidemic-raises-fears-about-shortages.html?searchResultPosition=10
 
