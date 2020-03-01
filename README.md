@@ -1,20 +1,20 @@
+**U.S. Stock Futures Resume Coronavirus Rout as Trading Resumes**\
+`U.S. stock index futures tumbled when trading reopened on Sunday night with investors still unnerved by coronavirus and taking little solace from weekend comments by U.S. officials that aimed to soothe panic about a pandemic. `\
+https://nytimes.com/reuters/2020/03/01/business/01reuters-usa-stocks.html?searchResultPosition=6
+
+**Buttigieg to Suspend His Campaign for President: Campaign Aide**\
+`Former South Bend, Indiana, Mayor Pete Buttigieg will suspend his campaign for president on Sunday night, a campaign aide said. `\
+https://nytimes.com/reuters/2020/03/01/us/politics/01reuters-usa-election-buttigieg.html?searchResultPosition=7
+
+**Dean Leads No. 9 UCLA Past Utah; Bruns Finish 2nd in Pac-12**\
+`Japreece Dean had 16 points and eight assists and Michaela Onyenwere added 15 points and 11 rebounds to lead No. 9 UCLA to a 77-54 win over Utah on Sunday.`\
+https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkw-t25-utah-ucla.html?searchResultPosition=8
+
+**Leonard Scores 30, Clippers Beat 76ers to Win 4th Straight**\
+`Kawhi Leonard scored 30 points, Paul George added 24 and the Los Angeles Clippers extended their winning streak to four with a 136-130 victory over the Philadelphia 76ers on Sunday.`\
+https://nytimes.com/aponline/2020/03/01/sports/basketball/bc-bkn-76ers-clippers.html?searchResultPosition=9
+
 **Canada's Trudeau to Seek Industry, Indigenous Input to Define Climate Plan**\
 `Canadian Prime Minister Justin Trudeau, in his first major climate change speech this year, will reach out on Monday to businesses, indigenous groups and citizens for help in defining his ambitious plan to cut carbon emissions, a senior government official said.`\
-https://nytimes.com/reuters/2020/03/01/us/01reuters-canada-politics-climatechange.html?searchResultPosition=6
-
-**No. 23 Buckeyes Surge Late to Beat No. 19 Michigan 77-63**\
-`Duane Washington Jr. tied a career high with 20 points and No. 23 Ohio State surged late to beat No. 19 Michigan 77-63 on Sunday.`\
-https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkc-t25-michigan-ohio-state.html?searchResultPosition=7
-
-**AP Sources: Buttigieg Ending His Presidential Campaign**\
-`Democrat Pete Buttigieg is ending his campaign for president.`\
-https://nytimes.com/aponline/2020/03/01/us/politics/ap-us-election-2020-buttigieg.html?searchResultPosition=8
-
-**N. Texas Solidifies C-USA Lead With Win Over W. Kentucky**\
-`Thomas Bell's made a dunk with 2:03 left in overtime propelled North Texas to a 78-72 win over Western Kentucky on Sunday.`\
-https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkc-western-kentucky-north-texas.html?searchResultPosition=9
-
-**Brawl Bloodies Former State Police Chief, Hospitalizes Man**\
-`The former superintendent of the Louisiana State Police suffered minor injuries in a French Quarter scuffle the day before Mardi Gras.`\
-https://nytimes.com/aponline/2020/03/01/us/ap-us-former-police-chief-fight.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/01/us/01reuters-canada-politics-climatechange.html?searchResultPosition=10
 
