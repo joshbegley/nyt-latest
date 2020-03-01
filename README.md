@@ -15,6 +15,6 @@ https://nytimes.com/reuters/2020/03/01/us/politics/01reuters-usa-election-fundra
 https://nytimes.com/reuters/2020/03/01/us/politics/01reuters-usa-election.html?searchResultPosition=9
 
 **Iran Raises Death Toll to 54 From New Coronavirus**\
-`Iran's health minister raised on Sunday the nationwide death toll from the new coronavirus to 54 as the number of infected cases jumped overnight to 978 people.`\
+`Iran's Health Ministry raised on Sunday the nationwide death toll from the new coronavirus to 54 as the number of infected cases jumped overnight to 978 people.`\
 https://nytimes.com/aponline/2020/03/01/us/ap-ml-virus-outbreak-mideast.html?searchResultPosition=10
 
