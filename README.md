@@ -1,20 +1,20 @@
-**Goldman Sachs Sees Fed Cutting Soon, Perhaps Before March 17-18 Meeting**\
-`Goldman Sachs economists on Sunday predicted the U.S. Federal Reserve will cut interest rates aggressively and perhaps before its next scheduled meeting in two weeks time, saying the head of the U.S. central bank sent a clear signal with his unscheduled statement on Friday.`\
-https://nytimes.com/reuters/2020/03/01/world/asia/01reuters-china-health-cenbank-goldman.html?searchResultPosition=6
+**Car Pins Sleeping Man to Wall in Southern California Home**\
+`A man sleeping in his bedroom was pinned against a wall when a car smashed through the house in Southern California, authorities said. `\
+https://nytimes.com/aponline/2020/03/01/us/ap-us-car-into-bedroom-1st-ld-writethru.html?searchResultPosition=6
 
-**Talbot Makes 38 Saves, Flames Beat Panthers 3-0**\
-`Cam Talbot made 38 saves, Johnny Gaudreau had a goal and an assist, and the Calgary Flames beat the Florida Panthers 3-0 Sunday. `\
-https://nytimes.com/aponline/2020/03/01/sports/hockey/bc-hkn-flames-panthers.html?searchResultPosition=7
+**Golf: Im Claims First PGA Tour Title With Clutch Play at Honda Classic**\
+`Im Sung-jae hit a series of clutch shots down the stretch to clinch his first PGA Tour victory in style, a one-shot triumph at the Honda Classic in Florida on Sunday.`\
+https://nytimes.com/reuters/2020/03/01/sports/golf/01reuters-golf-honda.html?searchResultPosition=7
 
-**NFL Combine's Speed Week Ends With Another Fast Finish**\
-`College football's top players turned the NFL's annual scouting combine into speed week.`\
-https://nytimes.com/aponline/2020/03/01/sports/football/ap-fbn-nfl-combine-the-wrap.html?searchResultPosition=8
+**As Another Election Looms, Israelis Ponder Politics, and Contagion**\
+`At an airport outside Tel Aviv, some passengers worried about flying away from a big vote, and into an epidemic.`\
+https://nytimes.com/2020/03/01/world/middleeast/israel-election-coronavirus.html?searchResultPosition=8
 
-**Fobbs, Gibson Help Towson Hold Off Northeastern 75-72**\
-`Brian Fobbs and Jason Gibson scored 18 points apiece and Towson held off Northeastern 75-72 in a regular-season finale Sunday afternoon.`\
-https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkc-towson-northeastern.html?searchResultPosition=9
+**Jackson Takes Over Down the Wire Leading UTSA Past UAB**\
+`Jhivvan Jackson scored 28 points with six 3-pointers, Keaton Wallace scored 18 and UTSA beat UAB 66-59 on Sunday.`\
+https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkc-uab-utsa.html?searchResultPosition=9
 
-**Egypt Detects Second Case of New Coronavirus: Health Ministry**\
-`Egypt's health ministry announced on Sunday that one foreigner was tested positive for the new coronavirus strain inside Egypt, the ministry said in a statement on its Facebook page.`\
-https://nytimes.com/reuters/2020/03/01/world/asia/01reuters-health-china-egypt-case.html?searchResultPosition=10
+**Coronavirus in N.Y.: Panic Shopping for Masks, but Brunch Is Packed**\
+`Even though no cases of the coronavirus have been confirmed in the city, many New Yorkers are feeling anxiety about its expected arrival.`\
+https://nytimes.com/2020/03/01/nyregion/new-york-city-coronavirus.html?searchResultPosition=10
 
