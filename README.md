@@ -1,20 +1,20 @@
-**Egypt Says 1,443 People Tested for Coronavirus So Far**\
-`Egypt’s health minister on Sunday said that 1,443 people had been tested so far for the new coronavirus, only one of whom tested positive and was cleared after being given appropriate medical care.`\
-https://nytimes.com/reuters/2020/03/01/world/middleeast/01reuters-health-china-egypt.html?searchResultPosition=6
+**Last-Place Cal Upsets No. 13 Arizona Women on Road, 55-54**\
+`Jaelyn Brown's putback  with 13.7 seconds remaining lifted last-place California to a 55-54 win over No. 13 Arizona on Sunday in a regular-season finale.`\
+https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkw-t25-california-arizona.html?searchResultPosition=6
 
-**Super Tuesday's Results Don't Always Match Primaries' Design**\
-`After Democrats saw Walter Mondale lose 49 states to President Ronald Reagan in 1984, party leaders came up with a plan: create a one-day “Super Tuesday” primary where Southern states could vote en masse to produce a more moderate — and “electable” — nominee, preferably from the region. `\
-https://nytimes.com/aponline/2020/03/01/us/politics/ap-us-election-2020-super-tuesday.html?searchResultPosition=7
+**Fascoula Rallies Vandy Women Past No. 15 Kentucky 70-64**\
+`Mariella Fasoula scored nine of her 24 points in the fourth quarter and Vanderbilt used a 15-3 run over the last 5½ minutes to close the regular season on Sunday with a 70-64 upset of No. 15 Kentucky.`\
+https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkw-t25-kentucky-vanderbilt.html?searchResultPosition=7
 
-**Givenchy :Fall 2020**\
-`See the looks from the Givenchy: Fall 2020 Collection.`\
-https://nytimes.com/slideshow/2020/03/01/fashion/runway-womens/givenchy-fall-2020.html?searchResultPosition=8
+**Two Blasts Heard in Iraqi Capital, Cause Unknown: Reuters Witness**\
+`Two blasts could be heard in the Iraqi capital Baghdad early on Monday but the cause was unknown, a Reuters witness said.   `\
+https://nytimes.com/reuters/2020/03/01/world/middleeast/01reuters-iraq-protests-blast.html?searchResultPosition=8
 
-**How Coronavirus Is Already Being Viewed Through a Partisan Lens**\
-`Public health officials say that injecting politics into the growing outbreak could make it harder to fight.`\
-https://nytimes.com/2020/03/01/us/how-coronavirus-is-already-being-viewed-through-a-partisan-lens.html?searchResultPosition=9
+**Intel’s Culture Needed Fixing. Its C.E.O. Is Shaking Things Up.**\
+`Robert Swan, who leads the world’s biggest chipmaker, is pushing his 110,000 employees to confront internal problems more openly.`\
+https://nytimes.com/2020/03/01/technology/intel-culture-robert-swan.html?searchResultPosition=9
 
-**Matharu Helps No. 10 Mississippi St Rout Ole Miss 84-59**\
-`Aliyah Matharu shined for Mississippi State for the second-straight game with a career-high 24 points as the No. 10 Bulldogs beat Ole Miss 84-59 on Sunday.`\
-https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkw-t25-mississippi-st-mississippi.html?searchResultPosition=10
+**Virus Pulls a Pillar From the Faithful in Italy’s North**\
+`‘Strange’ times for churchgoers as the authorities halt Masses over safety concerns.`\
+https://nytimes.com/2020/03/01/world/europe/virus-italy-churches.html?searchResultPosition=10
 
