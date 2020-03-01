@@ -1,20 +1,20 @@
-**CERAWeek Energy Conference in Houston Scrapped Over Coronavirus Worries**\
-`The CERAWeek energy conference that annually brings together oil ministers and senior executives from the oil and financial industries was canceled on Sunday, the latest large conference to be scrapped over coronavirus worries. `\
-https://nytimes.com/reuters/2020/03/01/us/01reuters-china-health-usa-conference.html?searchResultPosition=6
+**Security Forces Kill One, Wound 24 at Baghdad Protest: Police Source**\
+`Iraqi security forces killed one person and wound 24 at an anti-government protest in Baghdad on Sunday, a police source said.`\
+https://nytimes.com/reuters/2020/03/01/world/middleeast/01reuters-iraq-protests-toll.html?searchResultPosition=6
 
-**Arizona Restaurateurs Get Backlash Over Support of Trump**\
-`The owners of a Mexican restaurant in the Tucson area are fending off social media attacks after appearing in the VIP area at President Donald Trump's Phoenix campaign rally last week.`\
-https://nytimes.com/aponline/2020/03/01/us/ap-us-trump-support-backlash-arizona.html?searchResultPosition=7
+**Qatar Imposes Temporary Entrance Restriction on Visitors From Egypt**\
+`Qatar has imposed a temporary entrance restriction to its territories on visitors from Egypt via intermediate points because of the spread of the new coronavirus, the state news agency reported on Sunday.`\
+https://nytimes.com/reuters/2020/03/01/world/middleeast/01reuters-health-china-qatar.html?searchResultPosition=7
 
-**Cycling: UCI Announces New Track World League for 2021-22**\
-`A new World League will make its debut on the track cycling calendar in the 2021-22 season as the sport's governing body UCI hopes to attract larger TV audiences with a fast-paced, short format.`\
-https://nytimes.com/reuters/2020/03/01/sports/cycling/01reuters-cycling-world-league.html?searchResultPosition=8
+**AP Photos: Migrants Head to Turkish-Greek Border**\
+`All it took was a thinly veiled suggestion by a Turkish official that his country would no longer prevent migrants and refugees from trying to cross Turkey’s borders into the European Union.`\
+https://nytimes.com/aponline/2020/03/01/world/middleeast/ap-ml-turkey-greece-photo-gallery.html?searchResultPosition=8
 
-**Insider Q&A: Dana Inc. CEO on Electric Vehicles, Coronavirus**\
-`At auto parts maker Dana Inc., CEO Jim Kamsickas is like everyone else in the business, trying to manage competing needs for spending on electric vehicles of the future while keeping business associated with the internal combustion engine.`\
-https://nytimes.com/aponline/2020/03/01/business/ap-us-insider-qa-dana-inc-ceo.html?searchResultPosition=9
+**Coronavirus May Have Spread in U.S. for Weeks, Gene Sequencing Suggests**\
+`Two cases detected weeks apart in Washington state had genetic links, suggesting that many more people in the area may be infected.`\
+https://nytimes.com/2020/03/01/health/coronavirus-washington-spread.html?searchResultPosition=9
 
-**Cycling: Isolation to Elation for Morkov, Dutch Top Medals Chart**\
-`As preparation for a race goes, 34 hours in self-isolation in a hotel room is unlikely to catch on but an elated Michael Morkov shrugged it off to power Denmark to another gold at the track world championships on Sunday in the Madison.`\
-https://nytimes.com/reuters/2020/03/01/sports/cycling/01reuters-cycling-world.html?searchResultPosition=10
+**Oman Suspends Italian Tourism Flights to Its Salala Airport**\
+`Oman has suspended Italian tourism flights to its Salala airport for a month to curb the spread of the coronavirus, the civil aviation authority said on Sunday.`\
+https://nytimes.com/reuters/2020/03/01/world/europe/01reuters-health-china-oman.html?searchResultPosition=10
 
