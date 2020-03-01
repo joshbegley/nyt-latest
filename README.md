@@ -1,20 +1,20 @@
+**Jones Scores 26, Late FTs as Coastal Carolina Hangs on 84-77**\
+`DeVante' Jones scored 26 points, including four straight free throws in the last 22 seconds as Coastal Carolina blunted an Appalachian State comeback 84-77 on Saturday.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-coastal-carolina-appalachian-st.html?searchResultPosition=6
+
+**Chattanooga Closes Out Season With Win Over UNC Greensboro**\
+`Ramon Vila scored 21 points on 10-of-15 shooting and Chattanooga beat UNC Greensboro 74-72 on Saturday.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-unc-greensboro-chattanooga.html?searchResultPosition=7
+
+**Kohl Leads Abilene Christian Over Cent. Arkansas 75-70**\
+`Kolton Kohl came off the bench to score 15 points to lead Abilene Christian to a 75-70 win over Central Arkansas on Saturday, the Wildcats' seventh straight victory.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-cent-arkansas-abilene-christian.html?searchResultPosition=8
+
+**Takeaways From the South Carolina Primary: Joementum**\
+`South Carolina provided Joe Biden with a lifeline he desperately needed, propelled by the power of the black vote, but his victory does not necessarily provide clarity to the race.`\
+https://nytimes.com/aponline/2020/02/29/us/politics/ap-us-election-2020-takeaways.html?searchResultPosition=9
+
 **Allen Leads Samford Over VMI 84-78**\
 `Robert Allen had 23 points as Samford ended its seven-game home losing streak, defeating VMI 84-78 in a ragular-season finale on Saturday. `\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-vmi-samford.html?searchResultPosition=6
-
-**Mitrou-Long Sparks UNLV to 92-69 Romp Over San Jose State**\
-`Elijah Mitrou-Long totaled 20 points, six rebounds and six assists and UNLV routed San Jose State 92-69 on Saturday.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-unlv-san-jose-st.html?searchResultPosition=7
-
-**Slovak Opposition Party OLANO Takes Lead in Election: Partial Results**\
-`Slovak opposition party Ordinary People (OLANO) took the lead in the EU country's parliamentary election, results from one third of voting districts showed on Sunday. `\
-https://nytimes.com/reuters/2020/02/29/world/europe/29reuters-slovakia-election-results.html?searchResultPosition=8
-
-**Robinson, Randle Lead Knicks Past Bulls, 125-115**\
-`Reserve Mitchell Robinson had a career-high 23 points and grabbed 10 rebounds, Julius Randle added 22 points and 10 boards, and the New York Knicks beat the Chicago Bulls 125-115 on Saturday to snap a six-game losing streak.`\
-https://nytimes.com/aponline/2020/02/29/sports/basketball/bc-bkn-bulls-knicks.html?searchResultPosition=9
-
-**Gatherings Banned, Travel Restricted as Coronavirus Cases Grow Worldwide**\
-`Leaders in Europe, the Middle East and the Americas rolled out bans on big gatherings, and stricter travel restrictions as cases of the new coronavirus spread around the world. `\
-https://nytimes.com/reuters/2020/02/29/world/asia/29reuters-china-health.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-vmi-samford.html?searchResultPosition=10
 
