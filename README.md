@@ -1,20 +1,20 @@
-**Western Michigan Tops Northern Illinois 72-69 on Printy's 3**\
-`Brandon Johnson and Michael Flowers scored 20 points apiece and Jared Printy buried a 3-pointer with 5 seconds remaining to send Western Michigan past Northern Illinois 72-69 on Saturday.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-northern-illinois-western-michigan.html?searchResultPosition=6
+**At CPAC, Trump Takes Aim at Rivals**\
+`President Trump appeared eager to bask in the warm reception of a conservative audience, who spent the conference listening to speakers road-testing messages for his re-election campaign.`\
+https://nytimes.com/2020/02/29/us/politics/cpac-trump-re-election.html?searchResultPosition=6
 
-**Results: The Most Detailed Map of the South Carolina Democratic Primary**\
-`By Charlie Smart, Denise Lu, Matthew Bloch and Miles Watkins`\
-https://nytimes.com/interactive/2020/02/29/us/elections/results-south-carolina-primary-precinct-map.html?searchResultPosition=7
+**Moore Drains 7 Treys, Colorado State Downs Air Force 87-74**\
+`Kendle Moore scored 21 points on seven 3-pointers as Colorado State defeated Air Force 87-74 on Saturday.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-air-force-colorado-st.html?searchResultPosition=7
 
-**Fairleigh Dickinson Tops Mount St. Mary's 83-77**\
-`Xzavier Malone-Key had 24 points as Fairleigh Dickinson beat Mount St. Mary's 83-77 on Saturday. `\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-fairleigh-dickinson-mount-st-marys.html?searchResultPosition=8
+**Good's 3-Pointer Gives ETSU Outright Southern Title**\
+`Patrick Good scored a season-high 26 points including a 3-pointer with 7.5 seconds left to boost East Tennessee State to a 68-67 win over Western Carolina on Saturday with the Buccaneers winning the outright Southern Conference title in their regular-season finale.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-w-carolina-etsu.html?searchResultPosition=8
 
-**Knight Scores 20 to Lead William & Mary Past Elon 86-79**\
-`Nathan Knight had 20 points as William & Mary got past Elon 86-79 on Saturday.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-elon-william-mary.html?searchResultPosition=9
+**Stair Carries Mercer Past Wofford 59-47**\
+`Ethan Stair scored 14 points with 10 rebounds and Mercer beat Wofford 59-47 on Saturday in a regular-season finale.`\
+https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-wofford-mercer.html?searchResultPosition=9
 
-**Sarr, Wake Forest Deal Blow to Irish NCAA Hopes**\
-`Olivier Sarr won the battle of big men as Wake Forest dealt a significant blow to Notre Dame’s NCAA Tournament hopes on Saturday with an 84-73 victory over the visiting Fighting Irish.`\
-https://nytimes.com/aponline/2020/02/29/sports/ncaabasketball/bc-bkc-notre-dame-wake-forest.html?searchResultPosition=10
+**Biden Wins in South Carolina, Adding New Life to His Candidacy**\
+`Joseph R. Biden Jr. drew on his decades-long relationships and leveraged his close bond with black voters to try to wrap up a state long considered his stronghold.`\
+https://nytimes.com/2020/02/29/us/politics/joe-biden-south-carolina-primary.html?searchResultPosition=10
 
