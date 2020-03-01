@@ -1,20 +1,20 @@
-**Diaspora Has Big Role as Somalia Rebuilds Economy, Global Ties: Finance Minister**\
-`Somalia's 2-million strong diaspora has a huge role to play as the Horn of Africa country rebuilds its economy and resets ties with major international institutions after three decades as a "failed state," Somalia's finance minister said.`\
-https://nytimes.com/reuters/2020/03/01/world/africa/01reuters-somalia-debt-diaspora.html?searchResultPosition=6
+**Martin, Murphy, Peterson Spark Rice Comeback in 77-66 Win**\
+`Robert Martin and Trey Murphy III scored 21 points apiece as Rice topped Middle Tennessee 77-66 on Sunday after a huge second half.`\
+https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkc-middle-tennessee-rice.html?searchResultPosition=6
 
-**Nicaraguan Poet and Priest Who Criticized President Dies at 95**\
-`Nicaraguan poet and priest Ernesto Cardenal died on Sunday at the age of 95 in Managua due to heart and kidney problems, a close relative said.`\
-https://nytimes.com/reuters/2020/03/01/world/americas/01reuters-nicaragua-cardenal.html?searchResultPosition=7
+**Austria Says It Will Stop Any Migrants Trying to Rush Its Border**\
+`Austria will stop any migrants attempting to rush its border if measures to halt them in Greece and through the Balkans fail, conservative Interior Minister Karl Nehammer said on Sunday.`\
+https://nytimes.com/reuters/2020/03/01/world/europe/01reuters-syria-security-austria.html?searchResultPosition=7
 
-**A Painter and Social Activist With an ‘Unruly Nature’**\
-`Mary Lovelace O’Neal returns to New York at 78 with a solo show and an undimmed aversion to being pigeonholed.`\
-https://nytimes.com/2020/03/01/arts/design/mary-lovelace-oneal-activist.html?searchResultPosition=8
+**No. 17 Oregon State Women Rally to Beat Washington State**\
+`Mikayla Pivec scored 19 points, Destiny Slocum added 17 and No. 17 Oregon State ended the regular season with a 73-58 victory over Washington State on Sunday.`\
+https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkw-t25-washington-st-oregon-st.html?searchResultPosition=8
 
-**Abortion Case in Colombia Could Be a Landmark in Latin America**\
-`A ruling in the case, which has reopened a fierce debate over the procedure’s legal and moral implications, could have repercussions across the region.`\
-https://nytimes.com/2020/03/01/world/americas/abortion-colombia.html?searchResultPosition=9
+**Marquette Holds On to Beat No. 16 DePaul Women 90-83**\
+`Lauren Van Kleunen scored 22 points and Selena Lott scored 20 and Marquette beat No. 16-ranked DePaul 90-83 on Sunday.`\
+https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkw-t25-depaul-marquette.html?searchResultPosition=9
 
-**Two Rockets Fall Inside Baghdad's Green Zone: Security Sources**\
-`Two Katyusha rockets fell early on Monday morning inside the heavily fortified Green Zone in the Iraqi capital, Baghdad, which houses government buildings and foreign missions, but caused no casualties, security sources told Reuters.`\
-https://nytimes.com/reuters/2020/03/01/world/middleeast/01reuters-iraq-protests-rockets.html?searchResultPosition=10
+**U.S. Open Prize Money Unlikely to Soar Says USGA CEO Davis**\
+`This year's U.S. Open purse is unlikely to jump dramatically from last year's figure of $12.5 million, U.S. Golf Association (USGA) CEO Mike Davis has said.`\
+https://nytimes.com/reuters/2020/03/01/sports/golf/01reuters-golf-usopen.html?searchResultPosition=10
 
