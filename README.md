@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/03/01/world/europe/01reuters-ukraine-crisis-pri
 https://nytimes.com/aponline/2020/03/01/world/europe/ap-eu-virus-outbreak-europe.html?searchResultPosition=8
 
 **This Was Molly Seidel’s First Marathon. Her Next Will Be at the Olympics.**\
-`Seidel, 25, has two jobs, shares an apartment with her sister and runs turkey trots in costume. No, she can’t believe this is happening either.`\
+`Seidel, 25, has two jobs, shares an apartment with her sister and runs turkey trots in costume. No, she can’t believe this is happening, either.`\
 https://nytimes.com/2020/03/01/sports/olympics/molly-seidel-olympic-marathon-trials.html?searchResultPosition=9
 
 **UK Government Says 12 New Positive Tests for Coronavirus, Total Now 35**\
