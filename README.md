@@ -1,20 +1,20 @@
+**Irish Central Bank Chief Urges More Weight for Housing in Euro Zone Inflation: FT**\
+`Irish central bank chief Gabriel Makhlouf called for the cost of housing to be given more weight in the way inflation is calculated in the euro zone, according to the Financial Times.`\
+https://nytimes.com/reuters/2020/03/01/world/europe/01reuters-ecb-policy-makhlouf.html?searchResultPosition=6
+
+**Newsmaker: Malaysia's Mahathir Down but Still Not Out at 94**\
+`"I feel like I should retire, I'm so old now. But when I see what's happening in this country...," 94-year-old Mahathir Mohamad said at a youth meeting of his party on Sunday.`\
+https://nytimes.com/reuters/2020/03/01/world/asia/01reuters-malaysia-politics-mahathir-newsmaker.html?searchResultPosition=7
+
+**After Taliban Deal, Afghans Hold Out Hope for Peace, but Fear What’s Next**\
+`Many worry about ambiguous points in the deal that sends U.S. troops packing: What about women’s rights? Education? Government control?`\
+https://nytimes.com/2020/03/01/world/asia/US-taliban-deal-reaction.html?searchResultPosition=8
+
 **Pentagon Sees Taliban Deal as Allowing Fuller Focus on China**\
 `The Trump administration's peace deal with the Taliban opens the door for an initial American troop withdrawal that Defense Secretary Mark Esper sees as a step toward the broader goal of preparing for potential future war with China.`\
-https://nytimes.com/aponline/2020/03/01/us/politics/ap-us-united-states-beyond-afghanistan.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/03/01/us/politics/ap-us-united-states-beyond-afghanistan.html?searchResultPosition=9
 
 **South Africa to Repatriate Citizens Stranded in Wuhan, China**\
 `South Africa is set to evacuate 151 citizens from the Chinese city of Wuhan as a new virus continues to spread across the globe, authorities said Sunday.`\
-https://nytimes.com/aponline/2020/03/01/business/ap-af-virus-outbreak-south-africa.html?searchResultPosition=7
-
-**Iran's Death Toll From Coronavirus Jumps to 54, With 978 Infected**\
-`Iran's death toll from the new coronavirus has reached 54, Health Ministry spokesman Kianush Jahanpur told state TV, adding the number of those infected had reached 978. `\
-https://nytimes.com/reuters/2020/03/01/world/middleeast/01reuters-china-health-iran.html?searchResultPosition=8
-
-**Brignone Wins Combined Title as World Cup Finish Is in Doubt**\
-`Federica Brignone has won the Alpine combined World Cup title on Sunday without clicking into her skis.`\
-https://nytimes.com/aponline/2020/03/01/sports/ap-ski-wcup-womens-combined-canceled-1st-ld-writethru.html?searchResultPosition=9
-
-**Russian News Agency Staff Attacked, Detained in Turkey**\
-`Russia's Foreign Ministry is protesting attacks on three journalists of the country's Sputnik news agency in Turkey and their subsequent detention.`\
-https://nytimes.com/aponline/2020/03/01/business/bc-eu-russia-turkey-journalists-attacked.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/01/business/ap-af-virus-outbreak-south-africa.html?searchResultPosition=10
 
