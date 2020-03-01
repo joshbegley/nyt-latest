@@ -1,20 +1,20 @@
-**Timeline of Major League Soccer's 25 Years**\
-`A time line of the 25-year history of Major League Soccer:`\
-https://nytimes.com/reuters/2020/03/01/sports/soccer/01reuters-soccer-usa-mls-timeline.html?searchResultPosition=6
+**UK PM Johnson Says Coronavirus Likely to 'Spread a Bit More' in UK**\
+`British Prime Minister Boris Johnson said he expected the new coronavirus to spread further inside Britain, following the announcement of another 12 positive tests on Sunday.`\
+https://nytimes.com/reuters/2020/03/01/world/europe/01reuters-china-health-britain-johnson.html?searchResultPosition=6
 
-**MLS Sees Itself as World's Top League in 25 Years**\
-`As Major League Soccer launched a milestone 25th season on Saturday, the mood was not one of reflection and cautious optimism but bold even outrageous predictions of a future empire.`\
-https://nytimes.com/reuters/2020/03/01/sports/soccer/01reuters-soccer-usa-mls-future.html?searchResultPosition=7
+**Kobe Bryant’s Widow ‘Devastated’ by Reports That Deputies Shared Crash Photos**\
+`A lawyer for Vanessa Bryant said the sharing of the photos by deputies was “an unspeakable violation of human decency.”`\
+https://nytimes.com/2020/03/01/us/kobe-bryants-widow-devastated-by-reports-that-deputies-shared-crash-photos.html?searchResultPosition=7
 
-**In India, Modi’s Policies Have Lit a Fuse**\
-`Many Indians believed it was only a matter of time before Hindu nationalism provoked the kind of bloodshed that exploded in New Delhi.`\
-https://nytimes.com/2020/03/01/world/asia/india-modi-hindus.html?searchResultPosition=8
+**Italian Coronavirus Deaths Rise to 34, Number of Cases Hits Almost 1,700: Official**\
+`The death toll from an outbreak of coronavirus in Italy has risen by five to 34 over the past 24 hours, the Civil Protection Agency said on Sunday, with the accumulative number of cases totaling some 1,694.`\
+https://nytimes.com/reuters/2020/03/01/world/europe/01reuters-china-health-italy-toll.html?searchResultPosition=8
 
-**Virus Uncertainty Rules, but Markets Functioning OK: BIS**\
-`The Bank for International Settlements said on Sunday that financial markets had functioned resiliently during last week's coronavirus-sparked sell-off and this was a sign that post-crisis reforms were doing their job.`\
-https://nytimes.com/reuters/2020/03/01/world/europe/01reuters-bis-markets-virus.html?searchResultPosition=9
+**Dominican Republic Confirms First Case of Coronavirus**\
+`Health authorities in the Dominican Republic said on Sunday that they had confirmed the first case of coronavirus in the country, a tourist visiting from Italy. `\
+https://nytimes.com/reuters/2020/03/01/world/americas/01reuters-china-health-dominican.html?searchResultPosition=9
 
-**Nippon Steel Braces for Downside Risk as Coronavirus Spreads**\
-`Nippon Steel, the world's No.3 steelmaker, is bracing for a downside risk as slower manufacturing activities in China in the wake of the coronavirus outbreak may further weigh on demand in industries such as auto and machineries, its executive said.`\
-https://nytimes.com/reuters/2020/03/01/world/asia/01reuters-nippon-steel-japan.html?searchResultPosition=10
+**Super Tuesday Race Tightens in Amy Klobuchar's Minnesota**\
+`Bernie Sanders has a shot to deliver an embarrassing blow to Amy Klobuchar in the moderate senator's home state on Super Tuesday, thanks to a large and motivated progressive base in a state where she was once considered a shoo-in to win.`\
+https://nytimes.com/aponline/2020/03/01/us/politics/ap-us-election-2020-minnesota.html?searchResultPosition=10
 
