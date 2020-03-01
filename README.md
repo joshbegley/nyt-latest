@@ -1,5 +1,5 @@
 **Greece Sends Army to Border as Turkey Open Gates for Migrants**\
-`The military deployed troops to the northern border with Turkey, and automated text messages warned migrants not to cross over. But many ignored the warnings.`\
+`The military deployed troops to the northern border with Turkey, and automated text messages told migrants not to cross over. But many ignored the warnings.`\
 https://nytimes.com/2020/03/01/world/europe/greece-migrants-border-turkey.html?searchResultPosition=6
 
 **Thousands Bury Hezbollah Fighters Killed in Syria's Idlib**\
