@@ -1,20 +1,20 @@
+**Greek Police Fire Teargas at Stone-Throwing Migrants in Evros**\
+`Greek police fired teargas to disperse migrants throwing stones at them at the country's border in the northern region of Evros, a Reuters witness said. `\
+https://nytimes.com/reuters/2020/03/01/world/middleeast/01reuters-syria-security-greece-teargas.html?searchResultPosition=6
+
+**Syrian Army Confirms Two of Its War Planes Downed by Turkish Jets**\
+`The Syrian army confirmed on Sunday two of its war planes were downed by Turkish jets after they were intercepted during a combat mission in Idlib province.`\
+https://nytimes.com/reuters/2020/03/01/world/europe/01reuters-syria-security-jets.html?searchResultPosition=7
+
+**Russian, Turkish Foreign Ministers Discuss Syria, Other Matters**\
+`Russian Foreign Minister Sergei Lavrov and his Turkish counterpart Mevlut Chavushoglu agreed on the need to create a "favorable atmosphere" to improve working relations between their countries, the Russian foreign ministry said on Sunday.`\
+https://nytimes.com/reuters/2020/03/01/world/europe/01reuters-russia-turkey-talks.html?searchResultPosition=8
+
+**Citgo, Aruba Reach Deal to Transfer Control of Refinery to Island Government**\
+`U.S. refiner Citgo has reached an agreement with Aruba to transfer control of the San Nicolas refinery to the island's government, Citgo said late on Saturday, after the two parties last year suspended a contract to overhaul the facility. `\
+https://nytimes.com/reuters/2020/03/01/business/01reuters-refinery-aruba-citgo.html?searchResultPosition=9
+
 **Alaïa and Lagerfeld: The Lives of Very Different Men**\
 `One designer was independent, the other aligned with major houses. But new books show both had an outsize effect on fashion.`\
-https://nytimes.com/2020/03/01/style/fashion-books-azzedine-alaia-karl-lagerfeld.html?searchResultPosition=6
-
-**Virus Shuts Famed French Church in Rome**\
-`The French community church in Rome, St. Louis of the French, closed its doors to the public on Sunday after a priest was infected with a new virus. `\
-https://nytimes.com/aponline/2020/03/01/world/europe/ap-eu-virus-outbreak-italy.html?searchResultPosition=7
-
-**Russia and Ukraine Plan Next Prisoner Swap in March: Kiev**\
-`Ukraine said on Sunday it had held talks with the Kremlin on swapping all remaining prisoners from the conflict in east Ukraine, and the next exchange might take place later this month.`\
-https://nytimes.com/reuters/2020/03/01/world/europe/01reuters-ukraine-crisis-prisoners.html?searchResultPosition=8
-
-**UK Reports 12 New Coronavirus Cases, Bringing Tally to 35**\
-`British health authorities on Sunday announced 12 more confirmed cases of the new coronavirus, bringing the country's overall tally to 35.`\
-https://nytimes.com/aponline/2020/03/01/world/europe/ap-eu-virus-outbreak-europe.html?searchResultPosition=9
-
-**This Was Molly Seidel’s First Marathon. Her Next Will Be at the Olympics.**\
-`Seidel, 25, has two jobs, shares an apartment with her sister and runs turkey trots in costume. No, she can’t believe this is happening, either.`\
-https://nytimes.com/2020/03/01/sports/olympics/molly-seidel-olympic-marathon-trials.html?searchResultPosition=10
+https://nytimes.com/2020/03/01/style/fashion-books-azzedine-alaia-karl-lagerfeld.html?searchResultPosition=10
 
