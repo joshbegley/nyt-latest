@@ -1,20 +1,20 @@
-**Recession, Record Violence Hit Support for Mexico President: Poll**\
-`Record levels of violence and an economic slump are taking an increasing toll on support for Mexican President Andres Manuel Lopez Obrador, an opinion poll showed on Sunday.`\
-https://nytimes.com/reuters/2020/03/01/world/americas/01reuters-mexico-politics.html?searchResultPosition=6
+**Diaspora Has Big Role as Somalia Rebuilds Economy, Global Ties: Finance Minister**\
+`Somalia's 2-million strong diaspora has a huge role to play as the Horn of Africa country rebuilds its economy and resets ties with major international institutions after three decades as a "failed state," Somalia's finance minister said.`\
+https://nytimes.com/reuters/2020/03/01/world/africa/01reuters-somalia-debt-diaspora.html?searchResultPosition=6
 
-**More Chaos for Serie A After New Decree on Virus Measures**\
-`Italian soccer was thrown further into chaos on Sunday after the government issued a new decree extending the suspension of all sporting events in regions affected by the virus outbreak until March 8.`\
-https://nytimes.com/aponline/2020/03/01/sports/soccer/ap-soc-virus-outbreak-serie-a.html?searchResultPosition=7
+**Nicaraguan Poet and Priest Who Criticized President Dies at 95**\
+`Nicaraguan poet and priest Ernesto Cardenal died on Sunday at the age of 95 in Managua due to heart and kidney problems, a close relative said.`\
+https://nytimes.com/reuters/2020/03/01/world/americas/01reuters-nicaragua-cardenal.html?searchResultPosition=7
 
-**Britain Vows to Drive Hard Bargain in U.S. Trade Talks**\
-`British Prime Minister Boris Johnson warned he would drive a hard bargain with the United States in upcoming trade talks as the government sets out its negotiating position on Monday.`\
-https://nytimes.com/reuters/2020/03/01/business/01reuters-britain-eu-trade-usa.html?searchResultPosition=8
+**A Painter and Social Activist With an ‘Unruly Nature’**\
+`Mary Lovelace O’Neal returns to New York at 78 with a solo show and an undimmed aversion to being pigeonholed.`\
+https://nytimes.com/2020/03/01/arts/design/mary-lovelace-oneal-activist.html?searchResultPosition=8
 
-**Hammond, Traore Spark Monmouth's 80-60 Romp Over Manhattan**\
-`Deion Hammond scored 18 points as Monmouth led wire-to-wire, routing Manhattan 80-60 on Sunday.`\
-https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkc-manhattan-monmouth.html?searchResultPosition=9
+**Abortion Case in Colombia Could Be a Landmark in Latin America**\
+`A ruling in the case, which has reopened a fierce debate over the procedure’s legal and moral implications, could have repercussions across the region.`\
+https://nytimes.com/2020/03/01/world/americas/abortion-colombia.html?searchResultPosition=9
 
-**Study Casting Doubt on Bolivian Election Fraud Triggers Controversy**\
-`A study by Massachusetts Institute of Technology experts that called into question the alleged election fraud that drove Bolivian President Evo Morales to resign has triggered sniping between left and right-leaning governments in Latin America.`\
-https://nytimes.com/reuters/2020/03/01/world/americas/01reuters-bolivia-politics.html?searchResultPosition=10
+**Two Rockets Fall Inside Baghdad's Green Zone: Security Sources**\
+`Two Katyusha rockets fell early on Monday morning inside the heavily fortified Green Zone in the Iraqi capital, Baghdad, which houses government buildings and foreign missions, but caused no casualties, security sources told Reuters.`\
+https://nytimes.com/reuters/2020/03/01/world/middleeast/01reuters-iraq-protests-rockets.html?searchResultPosition=10
 
