@@ -15,6 +15,6 @@ https://nytimes.com/reuters/2020/03/01/world/americas/01reuters-argentina-aborti
 https://nytimes.com/reuters/2020/03/01/world/americas/01reuters-venezuela-oil-death.html?searchResultPosition=9
 
 **World Economy Conference With Pope Postponed Due to Coronavirus**\
-`A conference on the world economy due to take in Italy later this month with Pope Francis taking part has been postponed until November because of the coronavirus outbreak, organizers said on Sunday. `\
+`A conference on the world economy due to take place in Italy later this month with Pope Francis taking part has been postponed until November because of the coronavirus outbreak, organizers said on Sunday. `\
 https://nytimes.com/reuters/2020/03/01/world/asia/01reuters-china-health-italy-conference-pope.html?searchResultPosition=10
 
