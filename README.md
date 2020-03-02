@@ -1,20 +1,20 @@
-**Masked and Gloved: Israelis in Quarantine From Coronavirus Vote in Election**\
-`Paramedics dressed in head-to-toe protective gear stood guard at dedicated polling stations where Israelis under quarantine from the coronavirus voted in Monday's election.`\
-https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-israel-election-health-coronavirus.html?searchResultPosition=6
+**How Much Do You Know About Indonesia?**\
+`Can you find Indonesia on a map? What else do you know about this island nation with about 270 million people?`\
+https://nytimes.com/interactive/2020/03/02/learning/Indonesia-Geography-Quiz.html?searchResultPosition=6
 
-**Child Drowns at Sea Off Greece in First Fatality After Turkey Re-Opens Frontier**\
-`A child died after being pulled from the seat when a boat capsized off the Greek island of Lesbos, officials said on Monday, the first reported fatality after the Turkish government opened its border last week to let migrants reach Europe.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-syria-security-greece.html?searchResultPosition=7
+**Global Growth Plunging Into Downturn Over Coronavirus, OECD Says**\
+`The coronavirus outbreak is plunging the world economy into its worst downturn since the global financial crisis, the Organisation for Economic Cooperation and Development warned on Monday, urging governments and central banks to fight back to avoid an even steeper slump.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-oecd.html?searchResultPosition=7
 
-**Portugal Registers First Two Cases of Coronavirus: SIC Television**\
-`Portugal registered its first two cases of the new coronavirus on Monday, SIC television channel reported.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-health-coronavirus-portugal.html?searchResultPosition=8
+**Egypt Sentences 37 to Death Including Top Militant Leader**\
+`An Egyptian court on Monday sentenced to death 37 defendants, including one of the country’s most high-profile militants, following their conviction of terrorism-related charges.`\
+https://nytimes.com/aponline/2020/03/02/world/middleeast/ap-ml-egypt-court.html?searchResultPosition=8
 
-**Take Five: The Virus Data Fog**\
-`By Reuters`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-global-markets-themes.html?searchResultPosition=9
+**China Pledges Support for US-Taliban Peace Agreement**\
+`China on Monday pledged its support for the U.S.-Taliban peace agreement in Afghanistan and called for the “orderly and responsible" withdrawal of foreign troops to avoid a power vacuum and possible terrorist resurgence. `\
+https://nytimes.com/aponline/2020/03/02/world/asia/ap-as-china-afghanistan.html?searchResultPosition=9
 
-**Kremlin Tells Turkey It Cannot Guarantee Safety of Its Planes Over Syria's Idlib**\
-`The Kremlin on Monday drew Turkey's attention to a warning from the Russian Defence Ministry that Moscow could not guarantee the safety of Turkish planes flying in Syria after Damascus said it was closing the air space over the Idlib region. `\
-https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-syria-security-kremlin.html?searchResultPosition=10
+**2020 Watch: How Long Will Joe Biden's Moment Last?**\
+`Presidential politics move fast. What we're watching heading into a new week on the 2020 campaign:`\
+https://nytimes.com/aponline/2020/03/02/us/politics/ap-us-election-2020-watch.html?searchResultPosition=10
 
