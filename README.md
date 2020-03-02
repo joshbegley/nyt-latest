@@ -1,20 +1,20 @@
+**Japanese Justice Minister Visits Lebanon Over Fugitive Ghosn**\
+`Japan's deputy justice minister met top officials in Lebanon Monday over the case of former Nissan’s fugitive ex-boss Carlos Ghosn who fled to his home country late last year while on bail in Japan and awaiting trial.`\
+https://nytimes.com/aponline/2020/03/02/world/middleeast/bc-ml-lebanon-carlos-ghosn.html?searchResultPosition=6
+
+**Your Monday Briefing**\
+`Coronavirus, Democrats, Israel: Here's what you need to know.`\
+https://nytimes.com/2020/03/02/briefing/coronavirus-democrats-israel.html?searchResultPosition=7
+
+**Merkel Seeks to Reassure Migrant Groups After Racist Attacks**\
+`German Chancellor Angela Merkel met representatives of migrant groups Monday to reassure them that her government takes the issue of racism seriously following several attacks by far-right extremists in recent months.`\
+https://nytimes.com/aponline/2020/03/02/world/europe/ap-eu-germany-migrants.html?searchResultPosition=8
+
 **'Moment of Truth:' Buttigieg Drops Out of Democratic Race Two Days Before Super Tuesday**\
 `Pete Buttigieg dropped out of the race for the Democratic presidential nomination on Sunday, saying he no longer saw a chance of winning, the day after fellow moderate Joe Biden won a big victory in South Carolina.`\
-https://nytimes.com/reuters/2020/03/02/us/politics/02reuters-usa-election.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/03/02/us/politics/02reuters-usa-election.html?searchResultPosition=9
 
 **How Much Do You Know About Indonesia?**\
 `Can you find Indonesia on a map? What else do you know about this island nation with about 270 million people?`\
-https://nytimes.com/interactive/2020/03/02/learning/Indonesia-Geography-Quiz.html?searchResultPosition=7
-
-**Global Growth Plunging Into Downturn Over Coronavirus, OECD Says**\
-`The coronavirus outbreak is plunging the world economy into its worst downturn since the global financial crisis, the Organisation for Economic Cooperation and Development warned on Monday, urging governments and central banks to fight back to avoid an even steeper slump.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-oecd.html?searchResultPosition=8
-
-**Egypt Sentences 37 to Death Including Top Militant Leader**\
-`An Egyptian court on Monday sentenced to death 37 defendants, including one of the country’s most high-profile militants, following their conviction of terrorism-related charges.`\
-https://nytimes.com/aponline/2020/03/02/world/middleeast/ap-ml-egypt-court.html?searchResultPosition=9
-
-**China Pledges Support for US-Taliban Peace Agreement**\
-`China on Monday pledged its support for the U.S.-Taliban peace agreement in Afghanistan and called for the “orderly and responsible" withdrawal of foreign troops to avoid a power vacuum and possible terrorist resurgence. `\
-https://nytimes.com/aponline/2020/03/02/world/asia/ap-as-china-afghanistan.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/03/02/learning/Indonesia-Geography-Quiz.html?searchResultPosition=10
 
