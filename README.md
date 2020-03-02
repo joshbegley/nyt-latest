@@ -1,20 +1,20 @@
-**Sneezing Dogs, Dancing Bees: How Animals Vote**\
-`The 2020 election is off to a complicated start. Maybe we can draw some comparative political lessons from the animal kingdom.`\
-https://nytimes.com/2020/03/02/science/animals-voting-elections.html?searchResultPosition=6
+**LATAM Airlines Cancels Sao Paulo-Milan Flights Due to Coronavirus**\
+`South America's largest carrier, LATAM Airlines Group, said on Monday it would cancel its daily flight from Sao Paulo to Milan, Italy, through April 16, citing the new coronavirus outbreak and weak demand.`\
+https://nytimes.com/reuters/2020/03/02/world/02reuters-health-coronavirus-airlines.html?searchResultPosition=6
 
-**Canada Tells Travelers From Iran to Isolate Over Coronavirus**\
-`Canada is telling travelers from Iran to isolate themselves at home for 14 days because of the novel coronavirus, the same direction given to people arriving from Hubei, China, the epicenter of the outbreak, officials said on Monday.`\
-https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-health-coronavirus-canada-iran.html?searchResultPosition=7
+**Factbox: Airlines Suspend Flights Due to Coronavirus Outbreak**\
+`Airlines have been suspending flights or modifying services in response to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/02/world/02reuters-china-health-airlines-factbox.html?searchResultPosition=7
 
-**Morocco Reports First Coronavirus Case: Health Ministry**\
-`Morocco's health ministry declared on Monday its first coronavirus case, from a Moroccan man living in Italy.`\
-https://nytimes.com/reuters/2020/03/02/world/africa/02reuters-health-coronavirus-morocco.html?searchResultPosition=8
+**Algeria Reports Two New Coronavirus Cases, Bringing the Total to Five**\
+`Algeria reported two new coronavirus cases on Monday, which brings the total of confirmed cases to five, state news agency said quoting a statement from health ministry.`\
+https://nytimes.com/reuters/2020/03/02/world/africa/02reuters-health-coronavirus-algeria.html?searchResultPosition=8
 
-**Florida Confirms Two Coronavirus Cases, One Had Traveled to Italy: Governor**\
-`The Centers for Disease Control and Prevention on Monday confirmed that two presumptive coronavirus cases in Florida were positive, Governor Ron DeSantis said during a news conference.`\
-https://nytimes.com/reuters/2020/03/02/us/02reuters-health-coronavirus-usa-florida.html?searchResultPosition=9
+**Dustin Johnson Decides Against Playing in the Olympics**\
+`On the fence about the Olympics at the start of the year, Dustin Johnson decided he won't be going.`\
+https://nytimes.com/aponline/2020/03/02/sports/golf/ap-glf-johnson-olympics.html?searchResultPosition=9
 
-**UAE Evacuating Its Citizens in Iran: WAM**\
-`The United Arab Emirates announced it will evacuate its citizens from Iran, state news agency (WAM) reported on Monday.`\
-https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-health-coronavirus-emirates-iran.html?searchResultPosition=10
+**Prosecutor: Ex-Convict Was in Bed With Victim When Arrested**\
+`An ex-convict accused of forcing young women he met in his daughter's dormitory into prostitution or forced labor after winning their trust was in bed with a victim when he was arrested, a prosecutor said Monday as the New Jersey man lost a bid to be freed on bail.`\
+https://nytimes.com/aponline/2020/03/02/us/ap-us-college-students-exploited.html?searchResultPosition=10
 
