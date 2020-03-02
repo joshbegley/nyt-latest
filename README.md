@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/03/02/us/ap-us-sexual-misconduct-placido-domingo-2nd-ld-writethru.html?searchResultPosition=6
 
 **James Lipton, Interviewer Who Let Stars Shine, Dies at 93**\
-`His in-depth conversations on “Inside the Actors Studio” focused on craft, not gossip. He was also a writer, a producer and an actor himself.`\
+`His in-depth conversations with celebrities on “Inside the Actors Studio” focused on craft, not gossip, and made the show a hit on Bravo.`\
 https://nytimes.com/2020/03/02/arts/television/james-lipton-dead.html?searchResultPosition=7
 
 **In ‘Fiebre Tropical,’ a Colombian Teenager Moves to Miami and Comes of Age**\
