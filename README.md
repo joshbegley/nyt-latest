@@ -1,20 +1,20 @@
+**Hong Kong Police Get Protective Upgrade to Fight Threat of 'Local Terrorism'**\
+`Hong Kong, grappling months of sometimes violent anti-government unrest, is to spend about HK$500 million ($64.3 million) on police protective equipment, including six armored vehicles, to help combat the threat of "local terrorism". `\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-hongkong-police.html?searchResultPosition=6
+
+**Ukraine PM Says Not Resigned but Consultations Continue**\
+`Ukraine's Prime Minister Oleksiy Honcharuk on Monday said he had not submitted his resignation but added that consultations with the president and parliament were ongoing about potential personnel changes in the government. `\
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-ukraine-politics.html?searchResultPosition=7
+
+**Syrian Migrant Dies on Border in Turkey After Greek Intervention: Sources**\
+`A Syrian migrant seeking to cross from Turkey into Greece died from injuries on Monday after Greek security forces intervened to prevent the passage of migrants gathered on the border, two Turkish security sources told Reuters.`\
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-syria-security-greece-turkey.html?searchResultPosition=8
+
 **Boeing Supplier Senior Confident It Will Ride Out MAX Crisis**\
 `Senior, a British supplier to U.S. planemaker Boeing, expects to restart production of parts for the 737 MAX jet in the second quarter, its chief executive said on Monday after reporting better than expected 2019 profit.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-senior-results.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-senior-results.html?searchResultPosition=9
 
 **1501 Infected, 66 Dead From Coronavirus in Iran: State TV**\
 `Sixty six people have died and 1501 people have been infected by coronavirus in Iran, Deputy Health Minister Alireza Raisi said in an announcement on state TV.`\
-https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-health-coronavirus-iran.html?searchResultPosition=7
-
-**Special Relationship? Britain Vows to Drive Hard Bargain in U.S. Trade Talks**\
-`Britain will unveil on Monday its mandate for trade talks with the United States, with Prime Minister Boris Johnson vowing to drive a hard bargain in negotiations that are set to test the two countries' "special relationship".`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-britain-eu-trade-usa.html?searchResultPosition=8
-
-**Sanders in the Senate: An Outsider Plays the Inside Game**\
-`Senators often talk about Bernie Sanders in diplomatic tones, the way relatives discuss a certain family member with hushed pause. He’s passionate, they say politely. Independent. Or, just Bernie being Bernie.`\
-https://nytimes.com/aponline/2020/03/02/us/politics/ap-us-election-2020-sanders-senate.html?searchResultPosition=9
-
-**Japanese Justice Minister Visits Lebanon Over Fugitive Ghosn**\
-`Japan's deputy justice minister met top officials in Lebanon Monday over the case of former Nissan’s fugitive ex-boss Carlos Ghosn who fled to his home country late last year while on bail in Japan and awaiting trial.`\
-https://nytimes.com/aponline/2020/03/02/world/middleeast/bc-ml-lebanon-carlos-ghosn.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-health-coronavirus-iran.html?searchResultPosition=10
 
