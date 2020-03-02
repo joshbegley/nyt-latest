@@ -1,20 +1,20 @@
-**LATAM Airlines Cancels Sao Paulo-Milan Flights Due to Coronavirus**\
-`South America's largest carrier, LATAM Airlines Group, said on Monday it would cancel its daily flight from Sao Paulo to Milan, Italy, through April 16, citing the new coronavirus outbreak and weak demand.`\
-https://nytimes.com/reuters/2020/03/02/world/02reuters-health-coronavirus-airlines.html?searchResultPosition=6
+**Recording Academy Fires First Female CEO, Alleging Misconduct**\
+`The organizers of the Grammy Awards said on Monday they fired the chief executive they had placed on administrative leave in January.`\
+https://nytimes.com/reuters/2020/03/02/arts/02reuters-awards-grammys-dugan.html?searchResultPosition=6
 
-**Factbox: Airlines Suspend Flights Due to Coronavirus Outbreak**\
-`Airlines have been suspending flights or modifying services in response to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/02/world/02reuters-china-health-airlines-factbox.html?searchResultPosition=7
+**Amtrak Names New CEO to Head Money-Losing Passenger Railroad**\
+`Amtrak said Monday it had tapped Atlas Air's chief executive to run the money-losing U.S. passenger railroad that has seen record traffic.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-amtrak-ceo.html?searchResultPosition=7
 
-**Algeria Reports Two New Coronavirus Cases, Bringing the Total to Five**\
-`Algeria reported two new coronavirus cases on Monday, which brings the total of confirmed cases to five, state news agency said quoting a statement from health ministry.`\
-https://nytimes.com/reuters/2020/03/02/world/africa/02reuters-health-coronavirus-algeria.html?searchResultPosition=8
+**Honda to Cut Production at Two Japan Plants Amid Parts Shortage: Nikkei**\
+`Honda Motor Co Ltd will temporarily cut back production in Japan due to difficulty in sourcing parts from China amid the coronavirus outbreak, Nikkei Asian Review reported on Monday citing sources at auto parts suppliers and dealers.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-honda.html?searchResultPosition=8
 
-**Dustin Johnson Decides Against Playing in the Olympics**\
-`On the fence about the Olympics at the start of the year, Dustin Johnson decided he won't be going.`\
-https://nytimes.com/aponline/2020/03/02/sports/golf/ap-glf-johnson-olympics.html?searchResultPosition=9
+**Banco BPM Sets Up New 'Disaster Recovery Rooms' in Italy's Virus Emergency: Sources**\
+`Italy's Banco BPM is rushing to set up new "disaster recovery rooms" after an area close to one of its existing crisis facilities emerged as the epicenter of the coronavirus outbreak, three sources familiar with the matter said.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-italy-banco-bpm.html?searchResultPosition=9
 
-**Prosecutor: Ex-Convict Was in Bed With Victim When Arrested**\
-`An ex-convict accused of forcing young women he met in his daughter's dormitory into prostitution or forced labor after winning their trust was in bed with a victim when he was arrested, a prosecutor said Monday as the New Jersey man lost a bid to be freed on bail.`\
-https://nytimes.com/aponline/2020/03/02/us/ap-us-college-students-exploited.html?searchResultPosition=10
+**China's Skies Are Briefly Clearer While Factories Stay Shut**\
+`China’s far-reaching efforts to control the spread of the new coronavirus have shuttered factories, emptied airports and resulted in a steep drop in carbon emissions and other pollutants. However, analysts caution that the dip in pollution is likely temporary. `\
+https://nytimes.com/aponline/2020/03/02/us/politics/ap-as-virus-outbreak-chinas-air.html?searchResultPosition=10
 
