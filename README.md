@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/03/01/world/asia/01reuters-health-coronavirus-s
 https://nytimes.com/aponline/2020/03/01/sports/ncaabasketball/bc-bkc-minnesota-wisconsin.html?searchResultPosition=8
 
 **Death Near Seattle Adds to Signs Coronavirus Is Spreading in U.S.**\
-`Officials see growing indications that the virus has been spreading undetected in the Seattle suburbs for weeks. A cluster of confirmed cases at one nursing facility have made Kirkland, Wash., a focus of concern.`\
+`Officials see growing indications that the virus has been spreading undetected for weeks. A cluster of cases at one nursing home have made Kirkland, Wash., a focus of concern.`\
 https://nytimes.com/2020/03/01/us/washington-coronavirus-nursing-home.html?searchResultPosition=9
 
 **Amazon Confirms Two Employees in Italy Have Contracted Coronavirus**\
