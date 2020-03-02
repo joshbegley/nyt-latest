@@ -1,20 +1,20 @@
+**What to Watch as 14 States Vote in Super Tuesday Primaries**\
+`The Democratic presidential candidates are racing toward the biggest day in the primary calendar, when 14 states vote on Super Tuesday.`\
+https://nytimes.com/aponline/2020/03/02/us/politics/ap-us-election-2020-what-to-watch.html?searchResultPosition=6
+
+**Guyana Elects Leader as Vast Oil Boom Dawns**\
+`Guyana voted for a new government on Monday in a bruising fight for control of a tiny South American country whose oil revenues in the next decade could make it one of the wealthiest in the hemisphere.`\
+https://nytimes.com/aponline/2020/03/02/world/europe/ap-cb-guyana-elections.html?searchResultPosition=7
+
+**How Bloomberg Buys the Silence of Unhappy Employees**\
+`Every year, Mike Bloomberg’s company pays hundreds of fired employees to not say anything bad.`\
+https://nytimes.com/2020/03/02/business/michael-bloomberg-nda.html?searchResultPosition=8
+
 **U.S. Limits Chinese Staff at News Agencies Controlled by Beijing**\
 `The new rule could effectively force 60 Chinese citizens to leave the United States in a tit-for-tat campaign between Washington and Beijing that has caught journalists in the crossfire.`\
-https://nytimes.com/2020/03/02/world/asia/china-journalists-diplomats-expulsion.html?searchResultPosition=6
+https://nytimes.com/2020/03/02/world/asia/china-journalists-diplomats-expulsion.html?searchResultPosition=9
 
 **OPEC Tries to Head Off Oil Glut as Coronavirus Saps Demand**\
 `A rise in oil prices on Monday suggested traders believe OPEC and Russia will agree on a new cut in oil production later this week.`\
-https://nytimes.com/2020/03/02/business/oil-price-opec-coronavirus.html?searchResultPosition=7
-
-**What Parents Should Know About Coronavirus**\
-`Should you cancel spring break? Talk to your kids about it? We’ve got answers.`\
-https://nytimes.com/2020/03/02/parenting/coronavirus-what-parents-should-know.html?searchResultPosition=8
-
-**Autopsy Set for Another Mississippi Inmate Who Dies**\
-`Another Mississippi inmate has died in a state prison system that remains under investigation by the U.S. Justice Department.`\
-https://nytimes.com/aponline/2020/03/02/us/ap-us-prison-unrest-mississippi.html?searchResultPosition=9
-
-**Twitter Shares Rise on Reports of Activist Investor Stake**\
-`Twitter shares rose Monday following reports an activist investor took a stake in the social media service and plans to push for changes.`\
-https://nytimes.com/aponline/2020/03/02/business/bc-us-twitter-activist-investor.html?searchResultPosition=10
+https://nytimes.com/2020/03/02/business/oil-price-opec-coronavirus.html?searchResultPosition=10
 
