@@ -1,20 +1,20 @@
+**Ovechkin Nets Pair of Goals as Capitals Beat Wild 4-3**\
+`Alex Ovechkin scored twice as part of a three-point night and the Washington Capitals ended a four-game road slide by holding off the Minnesota Wild 4-3 on Sunday night.`\
+https://nytimes.com/aponline/2020/03/01/sports/hockey/bc-hkn-capitals-wild.html?searchResultPosition=6
+
+**South's Military: North Korea Fires Unidentified Projectile**\
+`South Korea’s military says North Korea has fired at least one unidentified projectile. `\
+https://nytimes.com/aponline/2020/03/01/world/asia/ap-as-north-korea-launch-.html?searchResultPosition=7
+
+**James' Triple-Double Lifts Lakers Past Pelicans, 122-114**\
+`LeBron James had 34 points, 13 assists and 12 rebounds, and the Los Angeles Lakers overcame Anthony Davis' absence and Zion Williamson's highest-scoring game to beat the New Orleans Pelicans 122-114 on Sunday night.`\
+https://nytimes.com/aponline/2020/03/01/sports/basketball/bc-bkn-lakers-pelicans.html?searchResultPosition=8
+
+**Samsung Starts Building $220 Million R&D Center in Vietnam**\
+`South Korea's Samsung Electronics has started building a $220 million research and development center in Vietnam, the Vietnamese government said on Monday. `\
+https://nytimes.com/reuters/2020/03/01/business/01reuters-vietnam-samsung-elec.html?searchResultPosition=9
+
 **Kazakhstan to Bar Iranian Nationals From Entry Over Virus**\
 `Kazakhstan will bar Iranian nationals from entering the Central Asian nation starting from March 5, the government said on Monday, as part of efforts to prevent the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/01/world/middleeast/01reuters-health-coronavirus-kazakhstan-iran.html?searchResultPosition=6
-
-**Zacha, Schneider Drive Devils to 3-0 Win Over Ducks**\
-`Pavel Zacha scored two power-play goals, Cory Schneider made 34 saves for his first shutout in more than a year, and the New Jersey Devils beat the Anaheim Ducks 3-0 on Sunday night.`\
-https://nytimes.com/aponline/2020/03/01/sports/hockey/bc-hkn-devils-ducks.html?searchResultPosition=7
-
-**Asian Factories Take a Beating From Virus Outbreak**\
-`Asia's factories took a heavy hit in February from the coronavirus outbreak with activity in China shrinking at a record pace, business surveys showed on Monday, adding to fears the crisis risks triggering a global recession.`\
-https://nytimes.com/reuters/2020/03/01/business/01reuters-global-economy.html?searchResultPosition=8
-
-**Japan Electronics Maker Sharp to Make Masks at Display Plant**\
-`Electronics maker Sharp Corp. said Monday it will start making surgical masks, which are in high demand because of the virus outbreak, using a plant in central Japan that usually makes displays. `\
-https://nytimes.com/aponline/2020/03/01/business/bc-as-virus-outbreak-masks.html?searchResultPosition=9
-
-**Trump Campaign Looks to the Skies to Reach Voters via Blimp**\
-`President Donald Trump’s campaign is planning to fly a blimp over swing states to get its message out — and to collect reams of data. `\
-https://nytimes.com/aponline/2020/03/01/us/politics/ap-us-trump-blimp.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/01/world/middleeast/01reuters-health-coronavirus-kazakhstan-iran.html?searchResultPosition=10
 
