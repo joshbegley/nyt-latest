@@ -1,20 +1,20 @@
+**Quandary for 2020 Democrats: Which Criminal Justice Changes Get Priority?**\
+`The Democratic presidential candidates are united in seeking a major overhaul of the criminal justice system, but a new questionnaire asked them to choose what they would do first.`\
+https://nytimes.com/2020/03/02/us/politics/Criminal-justice-2020-Democrats.html?searchResultPosition=6
+
+**What’s Next for Pete Buttigieg?**\
+`Few expect Mr. Buttigieg, the former mayor and now former presidential candidate, to remain at home for long. Here’s some ideas for what he could consider next.`\
+https://nytimes.com/2020/03/02/us/politics/pete-buttigieg-drops-out.html?searchResultPosition=7
+
+**Joe Biden’s Big Win**\
+`One primary victory in South Carolina may have changed the future of the former vice president’s campaign — and altered the course of the 2020 election.`\
+https://nytimes.com/2020/03/02/podcasts/the-daily/biden.html?searchResultPosition=8
+
 **Hong Kong Police Get Protective Upgrade to Fight Threat of 'Local Terrorism'**\
 `Hong Kong, grappling months of sometimes violent anti-government unrest, is to spend about HK$500 million ($64.3 million) on police protective equipment, including six armored vehicles, to help combat the threat of "local terrorism". `\
-https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-hongkong-police.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-hongkong-police.html?searchResultPosition=9
 
 **Ukraine PM Says Not Resigned but Consultations Continue**\
 `Ukraine's Prime Minister Oleksiy Honcharuk on Monday said he had not submitted his resignation but added that consultations with the president and parliament were ongoing about potential personnel changes in the government. `\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-ukraine-politics.html?searchResultPosition=7
-
-**Syrian Migrant Dies on Border in Turkey After Greek Intervention: Sources**\
-`A Syrian migrant seeking to cross from Turkey into Greece died from injuries on Monday after Greek security forces intervened to prevent the passage of migrants gathered on the border, two Turkish security sources told Reuters.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-syria-security-greece-turkey.html?searchResultPosition=8
-
-**Boeing Supplier Senior Confident It Will Ride Out MAX Crisis**\
-`Senior, a British supplier to U.S. planemaker Boeing, expects to restart production of parts for the 737 MAX jet in the second quarter, its chief executive said on Monday after reporting better than expected 2019 profit.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-senior-results.html?searchResultPosition=9
-
-**1501 Infected, 66 Dead From Coronavirus in Iran: State TV**\
-`Sixty six people have died and 1501 people have been infected by coronavirus in Iran, Deputy Health Minister Alireza Raisi said in an announcement on state TV.`\
-https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-health-coronavirus-iran.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-ukraine-politics.html?searchResultPosition=10
 
