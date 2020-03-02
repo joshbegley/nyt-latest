@@ -1,20 +1,20 @@
-**UK Wants Retaliatory Tariffs Removed Early On in U.S. Trade Talks: Truss**\
-`British trade minister Liz Truss said she wanted with the United States to agree to the removal of retaliatory tariffs on some British and U.S. products over EU subsidies on large aircraft early in trade negotiations to show goodwill.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-britain-eu-trade-usa-talks-tariffs.html?searchResultPosition=6
+**EU's Vestager to Set Out Plans to Tackle China's State-Backed Firms**\
+`European Union regulators will in June set out proposals to tackle Chinese state-backed companies enjoying an unfair advantage versus their European counterparts, EU antitrust chief Margrethe Vestager said on Monday, following calls from Germany and France.`\
+https://nytimes.com/reuters/2020/03/02/technology/02reuters-eu-antitrust.html?searchResultPosition=6
 
-**Senior U.S. Commerce Official Instrumental in Pushing Huawei Curbs to Resign: Sources**\
-`A senior U.S. Commerce Department official who helped lead the administration's efforts to impose export restrictions on China's Huawei Technologies Co [HWT.UL] is resigning effective Friday, officials said on Monday.`\
-https://nytimes.com/reuters/2020/03/02/technology/02reuters-usa-commerce-official.html?searchResultPosition=7
+**Former Navistar CEO to Pay $500,000 Over 2016 Charges of Misleading Investors: SEC**\
+`The Securities and Exchange Commission on Monday said the former chief executive officer of Illinois-based Navistar International Corp will pay $500,000 to resolve charges of misleading investors.`\
+https://nytimes.com/reuters/2020/03/02/us/02reuters-navistar-intl-sec-ceo.html?searchResultPosition=7
 
-**UK Trade Minister Says Hopes to Start U.S. Trade Deal Talks as Quickly as Possible**\
-`Britain is aiming to begin negotiations on a post-Brexit trade deal with the United States as quickly as possible, trade minister Liz Truss said on Monday.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-britain-eu-trade-usa-talks.html?searchResultPosition=8
+**Ulay, Boundary-Pushing Performance Artist, Dies at 76**\
+`He made his name during a 12-year creative and romantic partnership with Marina Abramovic.`\
+https://nytimes.com/2020/03/02/arts/ulay-dead.html?searchResultPosition=8
 
-**Trump, Business Leaders Comment on Jack Welch's Death**\
-`Jack Welch, the legendary CEO who led General Electric Co for two decades to create the most valuable public company in the United States, died at the age of 84.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-people-jackwelch-quotebox.html?searchResultPosition=9
+**Expected U.S. Rate Cut Benefit May Not Head Off Coronavirus Hit: Beacon Capital**\
+`An interest rate cut by the Federal Reserve is unlikely to completely stave off the economic impact of the coronavirus epidemic, Chris Cook, founder and president of investment firm Beacon Capital Management, said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/us/02reuters-gmf-usa-beaconcapital.html?searchResultPosition=9
 
-**British Airways Cancels Some Flights to United States as Coronavirus Hits Demand**\
-`British Airways on Monday said it was cancelling some flights from London to the United States to match reduced demand for flying due to the impact of a new coronavirus on consumer sentiment.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-british-airways.html?searchResultPosition=10
+**What's Left in ECB Toolkit? Traders Take a Peek as Coronavirus Panic Grips**\
+`Having pared interest rates deep into sub-zero territory and pumped in 2.6 trillion euros worth of stimulus via asset purchases, the ECB may not have much left to give investors baying for more policy support.`\
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-health-coronavirus-ecb.html?searchResultPosition=10
 
