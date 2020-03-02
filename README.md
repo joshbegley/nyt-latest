@@ -1,20 +1,20 @@
+**Coronavirus Prompts China's Online Used Car Trading Firms to Cut Salaries**\
+`Two of China's biggest online used car trading platforms are putting workers on leave or cutting staff salaries as the coronavirus epidemic dries up sales, the companies told Reuters. `\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-used-car-sales.html?searchResultPosition=6
+
+**Hong Kong January Retail Sales Fall for 12th Month Due to Coronavirus**\
+`Hong Kong's retail sales fell for the 12th consecutive month in January, weighed down by a coronavirus outbreak following months of often violent anti-government demonstrations.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-hongkong-economy-salesfigures.html?searchResultPosition=7
+
+**Exclusive: Serious Health Care Lapses Found in U.S. Detention Center Housing Transgender Migrants**\
+`Federal inspections of the U.S. government's only dedicated detention unit for transgender immigrants last year found hundreds of unanswered requests for medical attention, poor quarantine procedures and deficient treatment for mental illnesses and other chronic diseases, Reuters has learned.`\
+https://nytimes.com/reuters/2020/03/02/us/02reuters-usa-immigration-transgender-exclusive.html?searchResultPosition=8
+
+**Japan Seeks Lebanon's Cooperation in Ghosn Case: Lebanese Presidency**\
+`Japan wants cooperation with Lebanon in the case of ex-Nissan boss Carlos Ghosn and to develop bilateral ties, deputy justice minister Hiroyuki Yoshiie said during a visit to Lebanon on Monday, according to the Lebanese presidency.`\
+https://nytimes.com/reuters/2020/03/02/world/02reuters-nissan-ghosn-lebanon.html?searchResultPosition=9
+
 **The Best Movies and TV Shows New on Netflix Canada in February**\
 `New additions include “Ozark: Season 3,” “Phantom Thread” and “Tiger King: Murder, Mayhem and Madness.”`\
-https://nytimes.com/2020/03/02/world/canada/watch-netflix-march.html?searchResultPosition=6
-
-**U.S. Futures Fall in Choppy Trade as Stimulus Measures in Focus**\
-`U.S. stock index futures fell in volatile trading on Monday, as investors weighed the efficacy of interest rate cuts amid growing evidence of the economic impact of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-usa-stocks.html?searchResultPosition=7
-
-**Barclays Investor Sherborne Renews Attacks on CEO Over Epstein Link**\
-`Barclays' chairman and board should rescind their support for Chief Executive Jes Staley following the disclosure of regulatory probes into his links with U.S. financier Jeffrey Epstein, the bank's third biggest investor said on Monday.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-barclays-activist.html?searchResultPosition=8
-
-**UK Says Any System for Resolving U.S. Investor Disputes Will Be Fair**\
-`The British government said any system to protect U.S. companies' interests in the country after a free trade agreement - typically a sensitive issue for civil society groups worried about the power of multinationals - would have to be fair and transparent.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-britain-eu-trade-usa-investment.html?searchResultPosition=9
-
-**Britain Says It Will Not Compromise on Food Standards in U.S. Trade Talks**\
-`Britain will not lower its regulation around environmental protection, animal welfare and food standards as part of trade talks with the United States, it said in a document setting out its mandate on Monday.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-britain-eu-trade-usa-food.html?searchResultPosition=10
+https://nytimes.com/2020/03/02/world/canada/watch-netflix-march.html?searchResultPosition=10
 
