@@ -1,20 +1,20 @@
-**Barclays Urged to Remove C.E.O. From Board Over Epstein Ties**\
-`The investment firm Sherborne Investors said that James E. Staley’s previous relationship with the financier disqualified him as a director of the British bank.`\
-https://nytimes.com/2020/03/02/business/dealbook/barclays-ceo-staley.html?searchResultPosition=6
+**Deere Names CEO John May Chairman**\
+`Farm equipment maker Deere & Co on Monday named Chief Executive Officer John May chairman, effective May 1.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-deere-moves.html?searchResultPosition=6
 
-**U.S. Supreme Court Agrees to Hear Democratic Bid to Save Obamacare**\
-`The U.S. Supreme Court on Monday agreed to hear a politically explosive case on whether Obamacare is lawful, taking up a bid by 20 Democratic-led states to save the landmark healthcare law.`\
-https://nytimes.com/reuters/2020/03/02/us/politics/02reuters-usa-court-obamacare.html?searchResultPosition=7
+**US Construction Spending Up 1.8% in January to Record Level**\
+`Spending on U.S. construction projects rose to an all-time high in January, helped by strong gains for home construction and government building projects.`\
+https://nytimes.com/aponline/2020/03/02/business/bc-us-construction-spending.html?searchResultPosition=7
 
-**UK Says Four More Confirmed Cases of Coronavirus**\
-`British health authorities said on Monday there had been four more confirmed cases of coronavirus, bringing the total to 40.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-health-coronavirus-britain-cases.html?searchResultPosition=8
+**Advent/Cinven-Led Consortium to Spend 'Billions' on Expanding Thyssenkrupp Elevator**\
+`The consortium that won the bid to acquire Thyssenkrupp's elevators division wants to spend billions of euros on expanding the business, a manager at one of three partners said in remarks published on Sunday.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-thyssenkrupp-m-a-cinven-advent.html?searchResultPosition=8
 
-**Trump to Meet With Drugmakers as U.S. Sees More Coronavirus Cases**\
-`U.S. President Donald Trump and his White House coronavirus task force will meet with drug company executives on Monday as his administration sought to shore up its response to the outbreak that claimed the country's second death over the weekend.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-health-coronavirus-usa.html?searchResultPosition=9
+**Jack Welch, Who Led GE's Rapid Expansion, Dies at 84**\
+`Jack Welch, who grew General Electric Co during the 1980s and 1990s into the most valuable public company in the United States, has died at age of 84, the conglomerate said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-people-jackwelch.html?searchResultPosition=9
 
-**Two Patients Die of Coronavirus in Northern France: Le Parisien**\
-`Two patients died of coronavirus in northern France, bringing the death toll in the country to four, Le Parisien newspaper said on Monday, citing the mayor of the city of Compiegne and other sources.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-health-coronavirus-france.html?searchResultPosition=10
+**UK Finance Could Be Eclipsed by Cars in U.S. Trade Deal**\
+`Britain's financial services industry could fare less well than energy, autos and other sectors under a free trade deal with the United States, the government said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-britain-eu-trade-usa-finance.html?searchResultPosition=10
 
