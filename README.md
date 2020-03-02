@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/03/02/us/politics/02reuters-usa-election-buttig
 `Iraq's prime minister-designate announced his withdrawal from the post Sunday night after failing to secure parliamentary support for his Cabinet selection, prolonging the political deadlock in the country amid multiple economic, health and security challenges. `\
 https://nytimes.com/aponline/2020/03/02/world/middleeast/ap-ml-iraq-politics-1st-ld-writethru.html?searchResultPosition=7
 
-**Police Kill Armed Man at Catholic Church in Southern California, Authorities Say**\
+**Armed Man Dies After Shooting at Catholic Church in California, Authorities Say**\
 `The man entered Immaculate Heart of Mary Church in Santa Ana on Sunday afternoon before Mass, the police said.`\
 https://nytimes.com/2020/03/02/us/church-shooting-california.html?searchResultPosition=8
 
