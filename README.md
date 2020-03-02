@@ -1,20 +1,20 @@
-**U.S. Judge Rules Naming Official to Temporarily Head Immigration Agency Unlawful**\
-`A U.S. judge on Sunday ruled the Trump administration did not act lawfully when it named a former Virginia attorney general as the acting director of U.S. Citizenship and Immigration Services (USCIS) and invalidated some new asylum directives.`\
-https://nytimes.com/reuters/2020/03/02/world/americas/02reuters-usa-immigration-asylum.html?searchResultPosition=6
+**U.S. Senate Leader Hopes Trump Intelligence Nominee Will Get Bipartisan Support**\
+`U.S. Senate Majority Leader Mitch McConnell said on Monday he was pleased that President Donald Trump had announced a nominee to be director of national intelligence and hoped he would earn a bipartisan confirmation vote.`\
+https://nytimes.com/reuters/2020/03/02/us/politics/02reuters-usa-trump-intelligence-senate.html?searchResultPosition=6
 
-**Brazil Posts $3.1 Billion Trade Surplus in Feb, No Coronavirus Impact Yet**\
-`Brazil posted a trade surplus of $3.1 billion in February, official data showed on Monday, far stronger than forecast and confounding any expectations that the coronavirus outbreak might have dampened exports. `\
-https://nytimes.com/reuters/2020/03/02/world/americas/02reuters-brazil-economy-trade.html?searchResultPosition=7
+**Your Money: How Retirement Savers Can Glide Through Market Turmoil**\
+`If you are close to retirement in the United States, chances are you do not have to worry about cashing out of the market as it gyrates wildly on coronavirus fears.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-money-investing-glidepath.html?searchResultPosition=7
 
-**Stock Swoon Hands Investors Fresh Buying Opportunities**\
-`Some of the world’s biggest investment firms are betting that one of the worst sell-offs in years is an opportunity to buy on the cheap.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-stocks-opportunities.html?searchResultPosition=8
+**'Inside the Actors Studio' Creator James Lipton Dies at 93**\
+`James Lipton, the creator and host of the long-running U.S. television show "Inside the Actors Studio" has died at the age of 93, his wife told The Hollywood Reporter and celebrity website TMZ on Monday.`\
+https://nytimes.com/reuters/2020/03/02/arts/02reuters-people-james-lipton.html?searchResultPosition=8
 
-**For Signs That the Stocks Panic Is Over, Watch Bonds**\
-`Investors wanting to see if the worst is over for the dramatic selloff in stocks should look to U.S. Treasuries for clues, as an ebbing in the considerable demand for the safe-haven bonds needs to be seen first to show that risk appetite is improving.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-bonds.html?searchResultPosition=9
+**Taylor Swift Ranks as Best-Selling Global Artist in 2019**\
+`Pop superstar Taylor Swift topped the list of the world's best-selling music artists in 2019, thanks to the success of her album "Lover," beating popular acts including Korean pop sensation BTS, recording industry group IFPI said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/arts/02reuters-music-taylor-swift.html?searchResultPosition=9
 
-**U.S. Homeowners, Banks Approach Refinancing Field Day**\
-`U.S. mortgage borrowers may soon be able to refinance at rates even lower than they were on the heels of the country's recession a decade ago, in what industry sources are calling a "once-in-a-lifetime" chance to slash monthly housing expenses.`\
-https://nytimes.com/reuters/2020/03/02/us/02reuters-health-coronavirus-rates-mortgages.html?searchResultPosition=10
+**Exclusive: CVC Seeks Up to 20 Billion Euros for New Buyout Fund-Sources**\
+`CVC Capital Partners Ltd is looking to raise up to 20 billion euros ($22 billion) for its latest flagship buyout fund, in what would be the private equity firm's biggest pool of capital amassed to date, people familiar with the matter said on Monday. `\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-cvccapital-fund-exclusive.html?searchResultPosition=10
 
