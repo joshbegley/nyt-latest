@@ -1,20 +1,20 @@
-**U.S. CDC Confirms Two New Coronavirus Cases, 27 Infections Yet to Be Confirmed**\
-`The U.S. Centers for Disease Control and Prevention on Monday confirmed two new cases of coronavirus in the country that included an American evacuated from the Diamond Princess cruise ship, and the agency said 20 more cases were reported by public health labs.`\
-https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-usa-cdc.html?searchResultPosition=6
+**U.S. Supreme Court Blocks Another Cross-Border Shooting Claim**\
+`The U.S. Supreme Court on Monday threw out a lower court's ruling that had let the family of a slain 16-year-old Mexican boy pursue a civil rights lawsuit against a U.S. Border Patrol agent who shot the teenager from across the border in Arizona.`\
+https://nytimes.com/reuters/2020/03/02/world/americas/02reuters-usa-court-border.html?searchResultPosition=6
 
-**Experts Recommend Testing U.S. Adults Ages 18-79 for Hep C**\
-`With improved effectiveness of hepatitis C treatments, it's worthwhile to screen U.S. adults for the virus, an expert panel says. `\
-https://nytimes.com/reuters/2020/03/02/us/02reuters-health-hepatitisc-screening.html?searchResultPosition=7
+**Blackstone Reshuffles London Energy Team Amid Siccar Point Sale Attempt**\
+`Blackstone Group Inc  has reshuffled its London-based private equity team in charge of energy while trying to sell all or part of its flagship investment, North Sea oil and gas producer Siccar Point.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-blackstone-group-siccar-point.html?searchResultPosition=7
 
-**Traders Bet on Big Fed Rate Cuts as Virus Spreads**\
-`The U.S. central bank will deliver a big dose of stimulus starting this month in a bid to protect the world's biggest economy from the impact of the spread of the new coronavirus, based on the price of futures contracts tied to the Federal Reserve's policy rate. `\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-usa-fed-futures.html?searchResultPosition=8
+**White House Set to Meet With Senior Airline, Cruise Industry Officials**\
+`The White House will hold meetings this week with top executives from U.S. airlines and the cruise industry amid the growing coronavirus outbreak, a spokeswoman for Vice President Mike Pence confirmed Monday.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-airlines-whitehouse.html?searchResultPosition=8
 
-**Banks in Europe Step Up Coronavirus Contingency Trading Plans**\
-`Banks and exchanges in Europe are readying out-of-town offices, splitting shifts and isolating some teams to ensure they can keep trading if coronavirus spreads in more major financial centers.     `\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-banks.html?searchResultPosition=9
+**Apple to Pay Up to $500 Million to Settle U.S. Lawsuit Over Slow iPhones**\
+`Apple Inc has agreed to pay up to $500 million to settle litigation accusing it of quietly slowing down older iPhones as it launched new models, to induce owners to buy replacement phones or batteries.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-apple-iphones-settlement.html?searchResultPosition=9
 
-**American Jewish History Museum Seeks Bankruptcy Protection**\
-`The National Museum of American Jewish History in Philadelphia filed for bankruptcy protection Monday, seeking relief from debt brought by construction efforts. `\
-https://nytimes.com/aponline/2020/03/02/business/ap-us-american-jewish-museum-bankruptcy.html?searchResultPosition=10
+**Gilead Buys Forty Seven for $4.9 Billion to Bolster Cancer Drug Pipeline**\
+`Gilead Sciences Inc said on Monday it would buy Forty Seven Inc for $4.9 billion in cash, adding an experimental treatment that targets blood cancer to its portfolio of oncology drugs.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-forty-seven-m-a-gilead-sciences.html?searchResultPosition=10
 
