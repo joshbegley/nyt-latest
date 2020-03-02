@@ -1,20 +1,20 @@
-**Decades After Killing, Man With Dementia Faces Deportation**\
-`As he approaches a flock of pigeons on a downtown Atlanta sidewalk, John Lokos flaps his arms slowly to let them know he's a friend. He pours peanuts and rice on the ground and puts his finger to his lips.`\
-https://nytimes.com/aponline/2020/03/02/us/ap-us-hungarian-immigrant-deportation.html?searchResultPosition=6
+**Indian Lawmakers Scuffle Over Citizenship Riots Where 41 Died**\
+`Indian lawmakers pushed and shoved each other in parliament on Monday after opposition parties demanded the resignation of interior minister Amit Shah over the handling of deadly riots triggered by a citizenship law that excludes Muslims.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-india-citizenship-protests.html?searchResultPosition=6
 
-**Cycling: Olympic Events With No Fans Possible, Says British Cycling Performance Director**\
-`British Cycling's performance director Stephen Park has raised the possibility of some Olympic events taking place without spectators if the coronavirus crisis does not subside.`\
-https://nytimes.com/reuters/2020/03/02/sports/cycling/02reuters-health-coronavirus-cycling.html?searchResultPosition=7
+**Czech Republic Cancels Flights, Bars Fans From Races Over Coronavirus**\
+`The Czech Republic will stop flights with South Korea and cities in northern Italy and bar spectators from an international biathlon event this week due to coronavirus concerns, Prime Minister Andrej Babis said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-health-coronavirus-czech.html?searchResultPosition=7
 
-**Survey: US Factories Expand in February Despite Coronavirus**\
-`American factores expanded in February for the second straight month, despite disruptions caused by the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/03/02/business/ap-us-economy-manufacturing.html?searchResultPosition=8
+**Albania, North Macedonia Ready for EU Membership Talks: Commission**\
+`Albania and North Macedonia have done enough to merit starting negotiations to join the European Union, the EU's executive said on Monday, opening the way for France to lift its freeze on the aspirations of the two Balkan states.`\
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-eu-balkans.html?searchResultPosition=8
 
-**Big Central Banks Discussing Coronavirus-Related Volatility: ECB**\
-`Global central banks have held talks about the impact of the coronavirus outbreak, European Central Bank Vice President Luis de Guindos said on Monday, adding that such discussions always take place during times of volatility.`\
-https://nytimes.com/reuters/2020/03/02/us/02reuters-ecb-policy-de-guindos.html?searchResultPosition=9
+**Wristwatch Overshadows South Korea Sect Leader's Coronavirus Apology**\
+`When the elderly leader of a South Korean religious sect knelt before the nation on Monday, he had hoped to defuse public anger over his church's role in spreading the coronavirus.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-southkorea-watch.html?searchResultPosition=9
 
-**Philip Morris Says CFO King Steps Down to Head New America Division**\
-`Tobacco giant Philip Morris International Inc said on Monday Martin King will step down as chief financial officer to head the newly created America division, which has a licensing deal with Altria Group to sell heated-tobacco device IQOS.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-philip-morris-cfo.html?searchResultPosition=10
+**Exciting New Recipes!**\
+`A rich, creamy Swiss chard pasta, the Japanese beef bowl known as gyudon, and Samin Nosrat’s sweet potatoes with tahini butter: These are meals to look forward to.`\
+https://nytimes.com/2020/03/02/dining/exciting-new-recipes.html?searchResultPosition=10
 
