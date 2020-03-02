@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-health-coronav
 `North Korea fired two short-range missiles off the east coast into the sea on Monday, resuming testing after a three-month pause, South Korea's military said.`\
 https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-northkorea-missiles.html?searchResultPosition=7
 
-**Hyundai Motor's February Sales Down 13% Amid Coronavirus Outbreak**\
-`South Korea's Hyundai Motor said on Monday its sales fell 13% on-year to 275,044 vehicles globally in February amid a coronavirus outbreak that disrupted supply of parts from China.`\
+**Hyundai Reports Lowest Monthly Sales in Decade as Virus Dents Demand**\
+`Hyundai Motor reported its lowest monthly global sales in a decade in February as the coronavirus outbreak hurt demand, in what is the first major indicator of damage to the broader auto sector from the epidemic.`\
 https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-southkorea-hyundai-motor.html?searchResultPosition=8
 
 **Sacked Security Guard Holds Dozens Hostage at Philippine Mall, One Wounded**\
