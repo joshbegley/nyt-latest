@@ -1,20 +1,20 @@
+**Opera Union Board Member Alleges Cover-Up in Domingo Scandal**\
+`A senior member of the main U.S. union that represents opera performers resigned Monday, accusing the leadership of a cover-up in its investigation into accusations of sexual harassment against superstar Plácido Domingo.`\
+https://nytimes.com/aponline/2020/03/02/us/ap-us-sexual-misconduct-placido-domingo-2nd-ld-writethru.html?searchResultPosition=6
+
+**James Lipton, Interviewer Who Let Stars Shine, Dies at 93**\
+`His in-depth conversations on “Inside the Actors Studio” focused on craft, not gossip. He was also a writer, a producer and an actor himself.`\
+https://nytimes.com/2020/03/02/arts/television/james-lipton-dead.html?searchResultPosition=7
+
+**In ‘Fiebre Tropical,’ a Colombian Teenager Moves to Miami and Comes of Age**\
+`The narrator of Juli Delgado Lopera’s energetic novel closely observes the women in her family while dealing with the emergence of her own beliefs and sexuality.`\
+https://nytimes.com/2020/03/02/books/review-fiebre-tropical-juli-delgado-lopera.html?searchResultPosition=8
+
 **South Carolina, Baylor, Oregon Still Lead Women's Top 25**\
 `As women's basketball teams finish up their regular season and turn their attention to the conference tournaments, South Carolina, Baylor and Oregon remain a step above everyone else.`\
-https://nytimes.com/aponline/2020/03/02/sports/ncaabasketball/ap-bkw-t25-womens-bkb-poll.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/03/02/sports/ncaabasketball/ap-bkw-t25-womens-bkb-poll.html?searchResultPosition=9
 
 **Georgia Judge Rules Against Activists in Ballot Secrecy Suit**\
 `A judge has declined to order election officials in a Georgia county to use hand-marked paper ballots after election integrity activists raised concerns that the state's new voting machines violate voters' right to a secret ballot.`\
-https://nytimes.com/aponline/2020/03/02/us/ap-us-voting-machines-georgia.html?searchResultPosition=7
-
-**What to Watch as 14 States Vote in Super Tuesday Primaries**\
-`The Democratic presidential candidates are racing toward the biggest day in the primary calendar, when 14 states vote on Super Tuesday.`\
-https://nytimes.com/aponline/2020/03/02/us/politics/ap-us-election-2020-what-to-watch.html?searchResultPosition=8
-
-**Guyana Elects Leader as Vast Oil Boom Dawns**\
-`Guyana voted for a new government on Monday in a bruising fight for control of a tiny South American country whose oil revenues in the next decade could make it one of the wealthiest in the hemisphere.`\
-https://nytimes.com/aponline/2020/03/02/world/europe/ap-cb-guyana-elections.html?searchResultPosition=9
-
-**How Bloomberg Buys the Silence of Unhappy Employees**\
-`Every year, Mike Bloomberg’s company pays hundreds of fired employees to not say anything bad.`\
-https://nytimes.com/2020/03/02/business/michael-bloomberg-nda.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/02/us/ap-us-voting-machines-georgia.html?searchResultPosition=10
 
