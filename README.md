@@ -1,20 +1,20 @@
-**Russia Athletics Admits Wrongdoing in Fake Documents Case**\
-`Russia's track and field federation says it has admitted wrongdoing after being accused of supplying fake documents to give a top athlete an alibi for missing drug testing.`\
-https://nytimes.com/aponline/2020/03/02/sports/ap-ath-russian-doping-1st-ld-writethru.html?searchResultPosition=6
+**European Parliament Suspends Visits as Precaution Against Coronavirus**\
+`The European Parliament will limit access to visitors for three weeks, its president said on Monday, as part of precautionary measures to reduce the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-health-coronavirus-europeanparliament.html?searchResultPosition=6
 
-**Here Are All the Known Coronavirus Cases in the U.S. There Are Probably More.**\
-`Ninety patients with the illness have been treated in 13 states, according to a Times database. Those numbers are growing quickly.`\
-https://nytimes.com/article/usa-coronavirus-cases.html?searchResultPosition=7
+**Senegal Confirms First Coronavirus Case: Health Ministry**\
+`Senegal's health minister on Monday announced the first case of coronavirus in the country, the second case in sub-Saharan Africa after one was confirmed in Nigeria last week.  `\
+https://nytimes.com/reuters/2020/03/02/world/africa/02reuters-health-coronavirus-senegal.html?searchResultPosition=7
 
-**Klobuchar Is Ending Her Presidential Bid, Will Endorse Biden**\
-`Minnesota Sen. Amy Klobuchar ended her Democratic presidential campaign on Monday and plans to endorse rival Joe Biden in an effort to unify moderate voters behind the former vice president's White House bid.`\
-https://nytimes.com/aponline/2020/03/02/us/politics/ap-us-election-2020-klobuchar.html?searchResultPosition=8
+**U.S. Military Labs Working to Develop Coronavirus Vaccine: Top U.S. General**\
+`U.S. government military laboratories are working to develop a vaccine for the fast-spreading coronavirus, the chairman of the Joint Chiefs of Staff said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/us/02reuters-health-coronavirus-usa-military.html?searchResultPosition=8
 
-**Authorities Confirm New Hampshire's 1st Case of Coronavirus**\
-`A hospital employee who recently traveled to Italy is the first person in New Hampshire to test positive for the new coronavirus, state officials said Monday.`\
-https://nytimes.com/aponline/2020/03/02/us/ap-us-virus-outbreak-new-hampshire-1st-ld-writethru.html?searchResultPosition=9
+**Mississippi Man Appeals Death Sentence in Girl's Slaying**\
+`Lawyers for a Mississippi man who admitted killing a 12-year-old girl by shooting her four times and slitting her throat gave an appellate panel multiple reasons on Monday to reverse his death sentence, including his belief that he was descended from space aliens. `\
+https://nytimes.com/aponline/2020/03/02/us/ap-us-declared-dead-2nd-ld-writethru.html?searchResultPosition=9
 
-**Long-Rumored Woody Allen Memoir Coming in April**\
-`A memoir by Woody Allen, rumored for years and once thought unpublishable in the #MeToo era, is coming out next month. `\
-https://nytimes.com/aponline/2020/03/02/us/ap-us-books-woody-allen-1st-ld-writethru.html?searchResultPosition=10
+**GOP Rivals for Georgia Senate Seat Make Battle Official**\
+`Two Georgia Republicans duking it out in a special U.S. Senate election paid their fees and filed paperwork to appear on the Nov. 3 ballot Monday, the first day of candidate qualifying in the state.`\
+https://nytimes.com/aponline/2020/03/02/us/ap-us-election-2020-georgia.html?searchResultPosition=10
 
