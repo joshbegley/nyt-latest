@@ -1,20 +1,20 @@
+**Pence Tells Governors Money for Coronavirus Costs Is Coming**\
+`MIAMI — The Trump administration on Monday reassured governors that they will be reimbursed for at least some of the costs of responding to the spread of the coronavirus, as several states began setting aside millions of dollars to head off a public health crisis.`\
+https://nytimes.com/aponline/2020/03/02/us/ap-virus-outbreak-us-states.html?searchResultPosition=6
+
+**Turn to Jackfruit for a Vegan Snack**\
+`Seril’s Chakka Chips are made from the tree fruit, which is lightly fried in coconut oil.`\
+https://nytimes.com/2020/03/02/dining/jackfruit-chakka-chips.html?searchResultPosition=7
+
+**The Art of Japanese Sweets-Making**\
+`Kajitsu hosts a wagashi-maker from Kyoto for an event celebrating spring.`\
+https://nytimes.com/2020/03/02/dining/kajitsu-wagashi-making.html?searchResultPosition=8
+
 **For Good Gouda, Head to the Subway**\
 `A new vendor at Turnstyle, in the Columbus Circle station, sells a rainbow of Dutch cheese flavors.`\
-https://nytimes.com/2020/03/02/dining/gouda-2dutcheese.html?searchResultPosition=6
+https://nytimes.com/2020/03/02/dining/gouda-2dutcheese.html?searchResultPosition=9
 
 **Scientists Meet in Havana on Diplomats' Mystery Illnesses**\
 `Some scientists who gathered Monday for a two-day conference on the mysterious illnesses suffered by U.S. and Canadian diplomats in Havana said they suspected pesticides as a possible culprit, although results remained inconclusive. `\
-https://nytimes.com/aponline/2020/03/02/world/americas/ap-cb-cuba-health-incidents.html?searchResultPosition=7
-
-**The Secrets of a Catskills Diner**\
-`The tasty history of the Phoenicia Diner is recounted, with recipes, in a new cookbook.`\
-https://nytimes.com/2020/03/02/dining/phoenicia-diner-cookbook.html?searchResultPosition=8
-
-**Marmalade With a Moroccan Touch**\
-`Brins, from a former New Orleanian, makes a lemon-saffron jam in Brooklyn.`\
-https://nytimes.com/2020/03/02/dining/brins-jam-marmalade.html?searchResultPosition=9
-
-**Numerous Weapons Found After UPS Worker Threatened Shooting**\
-`A UPS worker suspected of threatening a mass shooting at the company's facility in Silicon Valley has been arrested after investigators found numerous firearm and ammunition at his home, police said Monday.`\
-https://nytimes.com/aponline/2020/03/02/us/ap-us-mass-shooting-threat-arrest.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/02/world/americas/ap-cb-cuba-health-incidents.html?searchResultPosition=10
 
