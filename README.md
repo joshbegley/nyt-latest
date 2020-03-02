@@ -1,20 +1,20 @@
-**Factbox: Five Democrats Remain in Fight for U.S. Presidential Nomination**\
-`The field of candidates seeking the U.S. Democratic presidential nomination dropped to five with Monday's departure of U.S. Senator Amy Klobuchar of Minnesota as the race now heads to voters in 14 states for Super Tuesday.`\
-https://nytimes.com/reuters/2020/03/02/us/politics/02reuters-usa-election-2020-candidates-factbox.html?searchResultPosition=6
+**U.S. Judge Rules Naming Official to Temporarily Head Immigration Agency Unlawful**\
+`A U.S. judge on Sunday ruled the Trump administration did not act lawfully when it named a former Virginia attorney general as the acting director of U.S. Citizenship and Immigration Services (USCIS) and invalidated some new asylum directives.`\
+https://nytimes.com/reuters/2020/03/02/world/americas/02reuters-usa-immigration-asylum.html?searchResultPosition=6
 
-**Ex-Google Autonomous Vehicle Project Borrows Cash on Its Own**\
-`Google's former autonomous vehicle project is borrowing money on its own for the first time.`\
-https://nytimes.com/aponline/2020/03/02/business/ap-us-waymo-borrowing.html?searchResultPosition=7
+**Brazil Posts $3.1 Billion Trade Surplus in Feb, No Coronavirus Impact Yet**\
+`Brazil posted a trade surplus of $3.1 billion in February, official data showed on Monday, far stronger than forecast and confounding any expectations that the coronavirus outbreak might have dampened exports. `\
+https://nytimes.com/reuters/2020/03/02/world/americas/02reuters-brazil-economy-trade.html?searchResultPosition=7
 
-**Feds: Sandoz Inc. To Pay $195M Over Antitrust Allegations**\
-`The Justice Department says pharmaceutical company Sandoz Inc. will pay a $195 million penalty to resolve criminal charges of conspiring to fix prices and rig bids for generic drugs.`\
-https://nytimes.com/aponline/2020/03/02/business/ap-us-drug-price-fixing.html?searchResultPosition=8
+**Stock Swoon Hands Investors Fresh Buying Opportunities**\
+`Some of the world’s biggest investment firms are betting that one of the worst sell-offs in years is an opportunity to buy on the cheap.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-stocks-opportunities.html?searchResultPosition=8
 
-**How Major US Stock Indexes Fared Monday**\
-`Stocks roared back on Wall Street Monday from a seven-day rout, sending the Dow Jones Industrial Average nearly 1,300 points higher amid investor optimism that central banks will take action to help shield the global economy from the effects of the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/03/02/business/ap-financial-markets-box.html?searchResultPosition=9
+**For Signs That the Stocks Panic Is Over, Watch Bonds**\
+`Investors wanting to see if the worst is over for the dramatic selloff in stocks should look to U.S. Treasuries for clues, as an ebbing in the considerable demand for the safe-haven bonds needs to be seen first to show that risk appetite is improving.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-bonds.html?searchResultPosition=9
 
-**Recording Academy Fires First Female CEO, Alleging Misconduct**\
-`The organizers of the Grammy Awards said on Monday they fired the chief executive they had placed on administrative leave in January.`\
-https://nytimes.com/reuters/2020/03/02/arts/02reuters-awards-grammys-dugan.html?searchResultPosition=10
+**U.S. Homeowners, Banks Approach Refinancing Field Day**\
+`U.S. mortgage borrowers may soon be able to refinance at rates even lower than they were on the heels of the country's recession a decade ago, in what industry sources are calling a "once-in-a-lifetime" chance to slash monthly housing expenses.`\
+https://nytimes.com/reuters/2020/03/02/us/02reuters-health-coronavirus-rates-mortgages.html?searchResultPosition=10
 
