@@ -1,20 +1,20 @@
-**What I Learned From Scanning the Brains of Potential Terrorists**\
-`How understanding the mind of a radical Islamist can prevent the next white-nationalist attack`\
-https://nytimes.com/video/opinion/100000006924610/domestic-terrorism-jihadists.html?searchResultPosition=6
+**The Architect Making Conceptual Art Out of Buildings**\
+`In exploring the contradictions between private and public, interior and exterior, constructed and natural, Sou Fujimoto has offered his own definition for what design should be.`\
+https://nytimes.com/2020/03/02/t-magazine/sou-fujimoto.html?searchResultPosition=6
 
-**India's Riot Toll Rises to 46 as Capital Remains on Edge**\
-`The death toll in India’s capital from riots last week between Hindus and Muslims rose to 46, officials said Monday, a day after false rumors of new violence led to panicked calls to police in many parts of the city.`\
-https://nytimes.com/aponline/2020/03/02/world/asia/ap-as-india-violence.html?searchResultPosition=7
+**19 Things We Know About Betty Catroux**\
+`A fashion dissenter, a gender pioneer, a reluctant muse to no end of designers — most famously, Yves Saint Laurent — Ms. Catroux is more complicated than she looks.`\
+https://nytimes.com/2020/03/02/style/fashion-exhibitions-saint-laurent-20-things-we-know-about-betty-catroux.html?searchResultPosition=7
 
-**UK Factories Feel the Effects of Coronavirus Spread: PMI**\
-`The global impact of coronavirus is starting to weigh on a post-election recovery in Britain's manufacturing sector as factories reported a big jump in delays in their supply chains, a survey showed on Monday.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-britain-economy-pmi.html?searchResultPosition=8
+**Silicon Valley Leaders’ Plea to Democrats: Anyone but Sanders**\
+`Their tech employees are a different story.`\
+https://nytimes.com/2020/03/02/technology/silicon-valley-bernie-sanders.html?searchResultPosition=8
 
-**Clashes in Strategic North Syrian Town After Turkish Strikes**\
-`Syrian government forces battled to recapture a strategic rebel-held town in Idlib province on Monday and a Turkish official said Ankara would continue to strike President Bashar al-Assad's troops after escalating its military operations at the weekend.`\
-https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-syria-security.html?searchResultPosition=9
+**A Pipeline Runs Through the Heart of Minnesota’s Democratic Party**\
+`Minnesota Democrats have long relied on support from rural union towns. But debate over an oil pipeline has divided the party.`\
+https://nytimes.com/2020/03/02/us/minnesota-democrats-pipeline.html?searchResultPosition=9
 
-**Nokia Has No Plans to Assess Strategic Options: Outgoing Chairman**\
-`Finnish telecom equipment maker Nokia has no plans to assess strategic options for the company, its outgoing chairman Risto Siiliasma told a news conference on Monday. `\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-nokia-ceo-strategy.html?searchResultPosition=10
+**India’s Wine Country: A Charming Work in Progress**\
+`No one would mistake the Nashik region for California’s Napa Valley, but visitors are rewarded with winemaker-led tastings, 2,000-year-old cave carvings and a few bottles of delicious wine.`\
+https://nytimes.com/2020/03/02/travel/nashik-india-wine-country-grapes.html?searchResultPosition=10
 
