@@ -1,20 +1,20 @@
-**10 Things to Know for Today**\
-`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today: `\
-https://nytimes.com/aponline/2020/03/02/us/ap-10-things-to-know-today.html?searchResultPosition=6
+**Coronavirus Impact on Russian Economy Will Be Deeper Than Expected: Minister**\
+`The impact of coronavirus on the Russian economy will be deeper than originally expected, Economic Development Minister Maxim Reshetnikov said on Monday. `\
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-health-coronavirus-russia-economy.html?searchResultPosition=6
 
-**Quandary for 2020 Democrats: Which Criminal Justice Changes Get Priority?**\
-`The Democratic presidential candidates are united in seeking a major overhaul of the criminal justice system, but a new questionnaire asked them to choose what they would do first.`\
-https://nytimes.com/2020/03/02/us/politics/Criminal-justice-2020-Democrats.html?searchResultPosition=7
+**Somalis Turn to Dr Hyena to Fight Depression, Mental Illness**\
+`The growls from the caged hyena reverberate through the room as Mohamed Sheikh Yakub slumps silently in a chair nearby, hoping the animal will frighten away the evil spirits he says have troubled him since his divorce.`\
+https://nytimes.com/reuters/2020/03/02/world/africa/02reuters-somalia-hyena.html?searchResultPosition=7
 
-**What’s Next for Pete Buttigieg?**\
-`Few expect Mr. Buttigieg, the former mayor and now former presidential candidate, to remain at home for long. Here’s some ideas for what he could consider next.`\
-https://nytimes.com/2020/03/02/us/politics/pete-buttigieg-drops-out.html?searchResultPosition=8
+**Bloomberg’s Big Bet: Can Money Beat Biden's Momentum?**\
+`In his brief three-month campaign for president, Michael Bloomberg poured nearly three-quarters of a billion dollars into building an advertising and data-mining juggernaut unlike anything the political world had ever seen.`\
+https://nytimes.com/reuters/2020/03/02/us/politics/02reuters-usa-election-bloomberg-insight.html?searchResultPosition=8
 
-**Joe Biden’s Big Win**\
-`One primary victory in South Carolina may have changed the future of the former vice president’s campaign — and altered the course of the 2020 election.`\
-https://nytimes.com/2020/03/02/podcasts/the-daily/biden.html?searchResultPosition=9
+**More Traffic, Night Lights Show China's Factories Restart as New Virus Cases Drop**\
+`Nearly 300 million people have gone back to work in China since the Lunar New Year break as more companies restart business and coronavirus travel restrictions ease, although many small firms are still struggling to find enough workers to run plants.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-china-bigdata.html?searchResultPosition=9
 
-**Hong Kong Police Get Protective Upgrade to Fight Threat of 'Local Terrorism'**\
-`Hong Kong, grappling months of sometimes violent anti-government unrest, is to spend about HK$500 million ($64.3 million) on police protective equipment, including six armored vehicles, to help combat the threat of "local terrorism". `\
-https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-hongkong-police.html?searchResultPosition=10
+**Goldman Sachs Halts All Non-Essential Business Travel: Memo**\
+`Goldman Sachs Group Inc has told its staff that all non-essential business travel should be postponed, according to a memo seen by Reuters.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-goldman-sachs.html?searchResultPosition=10
 
