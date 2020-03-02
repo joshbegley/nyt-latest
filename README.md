@@ -1,20 +1,20 @@
-**Exclusive: UBS CEO Ermotti Poised to Get Swiss Re Chairman Role-Sources**\
-`UBS Group Chief Executive Sergio Ermotti is poised to become chairman of Swiss Re next year after leaving the helm of Switzerland's biggest bank, three people familiar with the matter told Reuters.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-swiss-re-ermotti-exclusive.html?searchResultPosition=6
+**UK Wants Retaliatory Tariffs Removed Early On in U.S. Trade Talks: Truss**\
+`British trade minister Liz Truss said she wanted with the United States to agree to the removal of retaliatory tariffs on some British and U.S. products over EU subsidies on large aircraft early in trade negotiations to show goodwill.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-britain-eu-trade-usa-talks-tariffs.html?searchResultPosition=6
 
-**Factbox: Jack Welch Proteges Who Led Corporate America**\
-`Jack Welch, one of the most influential business leaders and former chief executive officer of General Electric Co, has died at the age of 84.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-people-jackwelch-factbox.html?searchResultPosition=7
+**Senior U.S. Commerce Official Instrumental in Pushing Huawei Curbs to Resign: Sources**\
+`A senior U.S. Commerce Department official who helped lead the administration's efforts to impose export restrictions on China's Huawei Technologies Co [HWT.UL] is resigning effective Friday, officials said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/technology/02reuters-usa-commerce-official.html?searchResultPosition=7
 
-**G7 Finance Ministers Plan Call on Tuesday on Coronavirus: Sources**\
-`G7 finance ministers are expected to hold a conference call on Tuesday to discuss measures to deal with the economic impact of the coronavirus outbreak, people familiar with the arrangements told Reuters.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-g7.html?searchResultPosition=8
+**UK Trade Minister Says Hopes to Start U.S. Trade Deal Talks as Quickly as Possible**\
+`Britain is aiming to begin negotiations on a post-Brexit trade deal with the United States as quickly as possible, trade minister Liz Truss said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-britain-eu-trade-usa-talks.html?searchResultPosition=8
 
-**Apple Stock Rebounds Almost 7% to Head for Strongest Day Since 2018**\
-`Shares in Apple surged 6.9% on Monday, helped by a broad Wall Street rebound and an upgraded rating from an analyst who said the iPhone maker's stock had become oversold following last week's rout related to fears about the new coronavirus.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-apple-stocks.html?searchResultPosition=9
+**Trump, Business Leaders Comment on Jack Welch's Death**\
+`Jack Welch, the legendary CEO who led General Electric Co for two decades to create the most valuable public company in the United States, died at the age of 84.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-people-jackwelch-quotebox.html?searchResultPosition=9
 
-**Coronavirus Alert: Russian Cossacks Told Not to Kiss Icons**\
-`Russian Cossacks have been told by one of their leaders not to kiss icons or clerics' hands to try to prevent the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-health-coronavirus-russia-religion.html?searchResultPosition=10
+**British Airways Cancels Some Flights to United States as Coronavirus Hits Demand**\
+`British Airways on Monday said it was cancelling some flights from London to the United States to match reduced demand for flying due to the impact of a new coronavirus on consumer sentiment.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-british-airways.html?searchResultPosition=10
 
