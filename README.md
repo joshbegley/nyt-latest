@@ -1,20 +1,20 @@
-**Inside the Final Month of Buttigieg's Historic Campaign**\
-`He opened February by sharing victory with one of the Democratic Party's best-known figures and ended it with a humbling defeat at the hands of another.`\
-https://nytimes.com/aponline/2020/03/02/us/politics/ap-us-election-2020-buttigieg.html?searchResultPosition=6
+**Italy, Europe’s Coronavirus Lab**\
+`Most Italians are unfamiliar with epidemics, so we struggle, confused, to react. Avoiding each other is hard. But we must. At least for one more week.`\
+https://nytimes.com/2020/03/02/opinion/italy-europe-coronavirus-.html?searchResultPosition=6
 
-**NBA Roundup: LeBron, Lakers Outlast Zion, Pels**\
-`LeBron James had a triple-double as the visiting Los Angeles Lakers overcame the absence of All-Star forward Anthony Davis and defeated the New Orleans Pelicans 122-114 on Sunday night.`\
-https://nytimes.com/reuters/2020/03/02/sports/basketball/02reuters-basketball-nba-roundup.html?searchResultPosition=7
+**What’s on TV Monday: ‘Breeders’ and ‘Notes on a Scandal’**\
+`The new comedy series debuts on FX. And the psychological drama is new to Hulu.`\
+https://nytimes.com/2020/03/02/arts/television/whats-on-tv-monday-breeders-and-notes-on-a-scandal.html?searchResultPosition=7
 
-**China Urges Authorities to Prepare for Possible Locust Invasion**\
-`China could face a desert locust invasion, a government body warned on Monday, urging local authorities to prepare for the possible arrival of the voracious insects from neighboring Pakistan and India. `\
-https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-china-locusts.html?searchResultPosition=8
+**Factbox: Latest on the Spread of Coronavirus Around the World**\
+`The rapid spread of the new coronavirus has increased fears of a pandemic, sending global markets into a dive last week and prompting governments to step up control measures.`\
+https://nytimes.com/reuters/2020/03/02/us/02reuters-china-health-latest-factbox.html?searchResultPosition=8
 
-**'Mayor Pete' Buttigieg Ends Improbable U.S. Presidential Bid**\
-`Pete Buttigieg, who entered the Democratic presidential race as a relative unknown and positioned himself as the future of the party during an improbable rise to the top tier of a crowded field, ended his White House bid on Sunday.`\
-https://nytimes.com/reuters/2020/03/02/us/politics/02reuters-usa-election-buttigieg.html?searchResultPosition=9
+**Biden Fights for Momentum in Democrats' Shifting Primary**\
+`An emboldened Joe Biden is trying to cast himself as the clear moderate alternative to progressive Bernie Sanders as the Democrats' shrinking presidential field raced toward Super Tuesday.`\
+https://nytimes.com/aponline/2020/03/02/us/politics/ap-us-election-2020.html?searchResultPosition=9
 
-**Iraq's PM-Designate Withdraws From Post, Prolonging Deadlock**\
-`Iraq's prime minister-designate announced his withdrawal from the post Sunday night after failing to secure parliamentary support for his Cabinet selection, prolonging the political deadlock in the country amid multiple economic, health and security challenges. `\
-https://nytimes.com/aponline/2020/03/02/world/middleeast/ap-ml-iraq-politics-1st-ld-writethru.html?searchResultPosition=10
+**North Korea Projectiles Flew 240 Km, Reached 35 Km in Altitude-South Korea Military**\
+`The projectiles North Korea fired on Monday flew 240 km (150 miles) and reached 35 km in altitude, South Korea's Joint Chiefs of Staff (JCS) said. `\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-northkorea-missiles-test.html?searchResultPosition=10
 
