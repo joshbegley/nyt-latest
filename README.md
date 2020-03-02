@@ -10,8 +10,8 @@ https://nytimes.com/aponline/2020/03/01/sports/basketball/bc-bkn-wizards-warrior
 `Minnesota Sen. Amy Klobuchar canceled a rally in her home state Sunday after protesters took over the stage shouting for her to drop out of the presidential race over the case of a black teen sentenced to life in prison while Klobuchar was the county's top prosecutor.`\
 https://nytimes.com/aponline/2020/03/01/us/politics/ap-election-2020-klobuchar.html?searchResultPosition=8
 
-**North Korea Launches Unidentified Projectile, South Korea Says**\
-`The firing of the projectile could be the country’s first test of a missile since Nov. 28.`\
+**North Korea Launches 2 Unidentified Projectiles, South Korea Says**\
+`The firing of the projectiles could be the country’s first missile tests  since Nov. 28.`\
 https://nytimes.com/2020/03/01/world/asia/north-korea-projectile.html?searchResultPosition=9
 
 **North Korea Fires Unidentified Projectile-South Korea Defense Ministry**\
