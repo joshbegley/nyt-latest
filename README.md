@@ -1,20 +1,20 @@
+**Pharmaceutical Firms Asked to Speed Up Coronavirus Vaccine Work: Trump**\
+`U.S. President Donald Trump said on Monday that his administration has asked pharmaceutical companies to accelerate work on the development of a coronavirus vaccine, but provided no details.`\
+https://nytimes.com/reuters/2020/03/02/us/02reuters-health-coronavirus-usa-vaccine.html?searchResultPosition=6
+
+**Tajikistan Shuts Border to Nationals of 35 Countries: Sources**\
+`The government of Tajikistan has instructed airlines and travel agencies to stop selling tickets to nationals of 35 countries including the United States, Britain, China, Japan and Iran, industry sources said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/world/02reuters-health-coronavirus-tajikistan.html?searchResultPosition=7
+
+**Milan Residents Banned From Semifinal Match at Juventus**\
+`Residents of Milan will not be allowed to attend the Italian Cup semifinal match between Juventus and AC Milan at Allianz Stadium in Turin on Wednesday as part of anti-virus precautions being taken.`\
+https://nytimes.com/aponline/2020/03/02/sports/soccer/ap-soc-virus-outbreak-sports.html?searchResultPosition=8
+
+**Child Dies at Sea as Greece Cracks Down on Migrants From Turkey**\
+`The drowning, after a dinghy capsized, was the first since the Turkish government said that it would no longer stop migrants from crossing into Europe.`\
+https://nytimes.com/2020/03/02/world/europe/migrant-death-greece.html?searchResultPosition=9
+
 **Albania Opposition Supports President's Anti-Govt Protest**\
 `Thousands of Albanians rallied on Monday against the country's left-wing government, responding to a call from the president who accuses it of violating the constitution and of links to organized crime.`\
-https://nytimes.com/aponline/2020/03/02/world/europe/ap-eu-albania-politics.html?searchResultPosition=6
-
-**Public Enemy Splits With Flavor Flav After Sanders Rally Dispute**\
-`Flavor Flav sent a cease-and-desist letter to Senator Bernie Sanders’s campaign objecting to the use of his image to promote a rally in Los Angeles.`\
-https://nytimes.com/2020/03/02/us/politics/public-enemy-flavor-flav-bernie-sanders.html?searchResultPosition=7
-
-**'I Am Not a Traitor': Malaysia's New PM Appeals for Support**\
-`Malaysia's new prime minister, Muhyiddin Yassin, appealed Monday to the divided nation for a chance to prove his mettle amid doubts over his legitimacy, and vowed to form a corruption-free Cabinet despite aligning with a former scandal-plagued party.`\
-https://nytimes.com/aponline/2020/03/02/world/asia/ap-as-malaysia-politics.html?searchResultPosition=8
-
-**The Impact of the Coronavirus on Sports**\
-`Postponements and cancellations in Asia and elsewhere.`\
-https://nytimes.com/2020/03/02/sports/coronavirus-sports.html?searchResultPosition=9
-
-**Coming of Age, Whether She’s Ready or Not**\
-`In Lily King’s novel, a young woman searches for meaning.`\
-https://nytimes.com/2020/03/02/books/group-text-lily-king.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/02/world/europe/ap-eu-albania-politics.html?searchResultPosition=10
 
