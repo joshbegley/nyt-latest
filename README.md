@@ -1,20 +1,20 @@
+**Gunmen Kill at Least 50 in Northern Nigeria State of Kaduna: Governor**\
+`An armed gang killed at least 50 people in attacks on villages in the northern Nigerian state of Kaduna on Sunday, Kaduna's governor said on Monday on a visit to the affected communities.`\
+https://nytimes.com/reuters/2020/03/02/world/africa/02reuters-nigeria-security.html?searchResultPosition=6
+
+**W.Va. Governor Signs 'Born Alive' Abortion Bill**\
+`West Virginia Gov. Jim Justice on Monday signed a proposal to penalize physicians who don't provide medical care to a child born after an abortion, a largely symbolic measure due to existing laws that protect newborns.`\
+https://nytimes.com/aponline/2020/03/02/us/ap-us-xgr-born-alive-abortion.html?searchResultPosition=7
+
+**Sri Lanka to Hold Parliamentary Poll in April: Election Commission**\
+`Sri Lankan President Gotabaya Rajapaksa dissolved parliament late on Monday, and the election commission announced a general election for April 25.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-sri-lanka-election.html?searchResultPosition=8
+
+**‘Tumacho’ Review: The Strange Delights of a Supernatural Horse Opera**\
+`Ethan Lipton’s delirious Western comedy features a pigtailed gunslinger, a soul-sucking demon and singing puppet cactuses, among other inspired flights of fancy.`\
+https://nytimes.com/2020/03/02/theater/tumacho-review-the-strange-delights-of-a-supernatural-horse-opera.html?searchResultPosition=9
+
 **Camels Imported to Libya Were Not Stolen, Says Owner**\
 `A herd of 3,000 camels imported to Libya last month arrived in the town of Zawiya safely and in full, their owner said after Reuters reported last month that some had been stolen on the way.`\
-https://nytimes.com/reuters/2020/03/02/world/africa/02reuters-libya-security-camels.html?searchResultPosition=6
-
-**U.S. Judge Gives Russian Firm Tied to Election Meddling Subpoena Deadline**\
-`During a testy hearing on Monday, a federal judge set a deadline for a Russian company facing criminal charges related to Moscow's interference in the 2016 U.S. election to explain why it had not handed over documents sought by prosecutors, a step that may lead to it being held in civil contempt.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-usa-trump-russia-concord.html?searchResultPosition=7
-
-**Britain's Raab Flies to Turkey to Show Support on Syria**\
-`British foreign minister Dominic Raab will visit Turkey on Tuesday to show support for Ankara's efforts to negotiate an end and lasting ceasefire in Syria, his office said.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-syria-security-britain.html?searchResultPosition=8
-
-**IN THE PITS: Bowman Makes Case to Keep His Hendrick Ride**\
-`There is a strong crop of drivers headed into free agency this summer and Alex Bowman has hardly been at the top of the list. `\
-https://nytimes.com/aponline/2020/03/02/sports/ap-car-nascar-in-the-pits.html?searchResultPosition=9
-
-**UN Envoy for Libya Resigns as Truce Appears to Crumble**\
-`The U.N. envoy for Libya announced his resignation on Monday, as a fragile cease-fire in the North African country continued to crumble.`\
-https://nytimes.com/aponline/2020/03/02/world/middleeast/ap-ml-libya.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/02/world/africa/02reuters-libya-security-camels.html?searchResultPosition=10
 
