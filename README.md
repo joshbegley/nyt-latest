@@ -1,20 +1,20 @@
-**Europe's Energy Giants Turn Greener, but Paths and Targets Diverge**\
-`Europe's top oil and gas companies, which account for roughly 7% of global crude consumption, have committed themselves to greenhouse gas emission reduction targets which vary in scope, timelines and detail, making them hard for investors to compare.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-oil-carbon.html?searchResultPosition=6
+**Put Your Ax Into It, at This Los Angeles Restaurant**\
+`Mo’s House of Axe brings together tools, beer and barbecue.`\
+https://nytimes.com/2020/03/02/dining/axe-throwing-los-angeles-mos-house.html?searchResultPosition=6
 
-**Factbox: On the Backburner: IPO Delays Due to Coronavirus**\
-`The fast-spreading coronavirus outbreak around the world has forced a number of startups and private firms to put their plans for an initial public offering on hold.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-ipo-factbox.html?searchResultPosition=7
+**Coronavirus in N.Y.: Outbreak Will Spread in City, Officials Warn**\
+`“Community spread is going to be real,” Governor Andrew M. Cuomo said. “That is inevitable.”`\
+https://nytimes.com/2020/03/02/nyregion/coronavirus-new-york.html?searchResultPosition=7
 
-**U.S. Manufacturing Activity Weakest Since August: Markit**\
-`U.S. manufacturing activity grew at the most tepid pace in six months in February as the supply chain disruptions arising from the coronavirus outbreak dragged on output and new orders, a survey of purchasing managers showed on Monday.`\
-https://nytimes.com/reuters/2020/03/02/us/02reuters-usa-economy-pmi-markit.html?searchResultPosition=8
+**U.S. Manufacturing Sector Slows; Construction Spending Hits Record High**\
+`U.S. factory manufacturing activity slowed in February as new orders contracted, reflecting worries about supply chain disruptions related to the fast-spreading coronavirus outbreak, which has revived financial market fears of a recession.`\
+https://nytimes.com/reuters/2020/03/02/us/02reuters-usa-economy-manufacturing.html?searchResultPosition=8
 
-**OF Luis Robert, INF Carter Kieboom Among Rookies to Watch**\
-`New York Mets slugger Pete Alonso was the breakout star in an impressive group of major league rookies last summer. Now another wave of young talent is looking to leave its mark on the sport.`\
-https://nytimes.com/aponline/2020/03/02/sports/baseball/ap-bbo-top-rookies.html?searchResultPosition=9
+**U.S. Construction Spending Increases to Record High**\
+`U.S. construction spending increased by the most in nearly two years in January, but the upbeat news is likely to be overshadowed by financial market fears that the fast-spreading coronavirus could tip the economy into recession.`\
+https://nytimes.com/reuters/2020/03/02/us/02reuters-usa-economy-construction.html?searchResultPosition=9
 
-**U.S. Supreme Court Blocks Another Cross-Border Shooting Claim**\
-`The U.S. Supreme Court on Monday threw out a lower court's ruling that had let the family of a slain 16-year-old Mexican boy pursue a civil rights lawsuit against a U.S. Border Patrol agent who shot the teenager from across the border in Arizona.`\
-https://nytimes.com/reuters/2020/03/02/world/americas/02reuters-usa-court-border.html?searchResultPosition=10
+**OPEC February Oil Output Sinks on Libyan Unrest, Cuts**\
+`OPEC oil output dropped in February to the lowest in over a decade as Libyan supply collapsed due to a blockade of ports and oilfields and Saudi Arabia and other Gulf members overdelivered on a new production-limiting accord, a Reuters survey found.`\
+https://nytimes.com/reuters/2020/03/02/world/02reuters-oil-opec-survey.html?searchResultPosition=10
 
