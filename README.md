@@ -1,20 +1,20 @@
-**Oil Comes Off Lows as Hopes of OPEC Cut, Stimulus Counter Virus Gloom**\
-`Oil prices rebounded more than $1 a barrel after earlier hitting multi-year lows on Monday, as hopes of a deeper cut in output by OPEC and stimulus from central banks countered worries about damage to demand from the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-global-oil.html?searchResultPosition=6
+**U.S. Agency Investigating Production of Faulty Coronavirus Test Kits**\
+`The U.S. Department of Health and Human Services confirmed on Sunday that it is investigating a manufacturing defect in some initial coronavirus test kits that prompted some states to seek emergency approval to use their own test kits.`\
+https://nytimes.com/reuters/2020/03/02/us/02reuters-china-health-test-kits.html?searchResultPosition=6
 
-**Australian Financial Regulators Hold Emergency Call on Coronavirus: Sources**\
-`Australia's financial regulators scheduled an emergency call on Monday to discuss the impact of the coronavirus outbreak, two sources familiar with the matter told Reuters, as the country looks to avoid a risk of recession.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-australia.html?searchResultPosition=7
+**Indonesia Confirms First Cases of Coronavirus**\
+`Indonesian President Joko Widodo said on Monday two Indonesians had tested positive for coronavirus after being in contact with an infected Japanese national, marking the first confirmed cases in the world's fourth most populous country.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-indonesia.html?searchResultPosition=7
 
-**New Virus: Nearly 89,000 Infected, Over 3,000 Dead**\
-`A new virus first detected in China has infected nearly 89,000 people globally and caused more than 3,000 deaths. The World Health Organization has named the illness COVID-19, referring to its origin late last year and the coronavirus that causes it. `\
-https://nytimes.com/aponline/2020/03/02/us/ap-virus-outbreak-at-a-glance-1st-ld-writethru.html?searchResultPosition=8
+**Thailand Reports One New Coronavirus Case, Total at 43-Health Official**\
+`Thailand has reported one new coronavirus case, bringing the total number of such cases in the country to 43 since January, a senior health official said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-thailand.html?searchResultPosition=8
 
-**No Corrections: March 2, 2020**\
-`No corrections appeared in print on Monday, March 2, 2020.`\
-https://nytimes.com/2020/03/02/pageoneplus/no-corrections-march-2-2020.html?searchResultPosition=9
+**Murder Probe Sought for South Korea Sect at Center of Coronavirus Outbreak**\
+`The government of Seoul asked for a murder investigation into leaders of a Christian sect at the center of the country's deadly coronavirus outbreak, saying the church was liable for its refusal to cooperate with efforts to stop the disease.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-southkorea-murder.html?searchResultPosition=9
 
-**Australia Warns It Can't Stop the Spread of Coronavirus From Overseas**\
-`Australia's chief medical officer said on Monday it was no longer possible to completely prevent people with the coronavirus from entering the country, citing concerns about outbreaks in Japan and South Korea.`\
-https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-australia-cases.html?searchResultPosition=10
+**AP Explains: Israel's Upcoming Vote, Its 3rd in Under a Year**\
+`Israel is holding its third election in less than a year on Monday, with over 6.`\
+https://nytimes.com/aponline/2020/03/02/world/middleeast/ap-ml-israel-election-ap-explains.html?searchResultPosition=10
 
