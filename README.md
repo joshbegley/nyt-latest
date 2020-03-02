@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-iraq-protests-
 `Amtrak named a former air cargo executive as its new president and chief operating officer Monday. `\
 https://nytimes.com/aponline/2020/03/02/business/bc-us-amtrak-ceo.html?searchResultPosition=8
 
-**General to be Nominated as the Air Force’s First African-American Chief**\
+**General to Be Nominated as the Air Force’s First African-American Chief**\
 `If he is confirmed by the Senate, Gen. Charles Q. Brown Jr. will become the rare African-American officer to sit on the elite Joint Chiefs of Staff, serving as the Air Force’s top officer.`\
 https://nytimes.com/2020/03/02/us/politics/air-force-chief-african-american.html?searchResultPosition=9
 
