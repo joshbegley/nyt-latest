@@ -1,20 +1,20 @@
-**Child Dies, 1,000 Migrants Reach Greek Islands From Turkey**\
-`A child died and 47 migrants were rescued after their boat capsized off the Greek island of Lesbos, the Greek coastguard said on Monday. `\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-syria-security-greece-migrants.html?searchResultPosition=6
+**India Reports Two Cases of Coronavirus**\
+`India said on Monday two people in the country had tested positive for coronavirus.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-india.html?searchResultPosition=6
 
-**Exclusive: WillScot Nears Merger With Mobile Mini-Sources**\
-`WillScot Corp, the largest U.S. supplier of mobile office trailers, is nearing an all-share merger with Mobile Mini Inc, the biggest U.S. provider of portable storage solutions, sources close to the matter said.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-mobile-mini-m-a-willscot-exclusive.html?searchResultPosition=7
+**With Season in Doubt, Japan's Baseball Taps Virus Experts**\
+`The opening of the Japanese baseball season is in doubt because of the outbreak of the new virus, officials said Monday, as the nation's baseball and soccer leagues tapped three medical experts as advisers.`\
+https://nytimes.com/aponline/2020/03/02/sports/baseball/ap-bbo-virus-outbreak-japan.html?searchResultPosition=7
 
-**Q&A: What's Next for the Tokyo Olympics as Virus Spreads?**\
-`The spreading virus from China has been reported in more than 60 countries and puts the Tokyo Olympics at risk. The Olympics are to open on July 24 — less than five months away. The Paralympics follow on Aug. 25.`\
-https://nytimes.com/aponline/2020/03/02/sports/olympics/ap-oly-tokyo-virus-outbreak-qa.html?searchResultPosition=8
+**Confirmed Coronavirus Cases in Germany Rise to 150-Robert Koch Institute**\
+`The number of confirmed coronavirus cases in Germany has risen to 150 on Monday from 129 on Sunday, the Robert Koch Institute for disease control said.`\
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-health-coronavirus-germany-cases.html?searchResultPosition=8
 
-**France's Louvre Stays Shut Amid Staff Fears of Virus Spread**\
-`The Louvre Museum was closed again Monday as management was meeting with staff worried about the spread of the new virus in the world's most-visited museum.`\
-https://nytimes.com/aponline/2020/03/02/world/europe/ap-virus-outbreak-france.html?searchResultPosition=9
+**People With Albinism Issued With Protective Alarms in Malawi**\
+`On a sunny February day, Catherine Amidu looked downcast. The protective alarm she received in October had not been working for close to two weeks, she said.`\
+https://nytimes.com/aponline/2020/03/02/world/africa/ap-af-malawi-albinism.html?searchResultPosition=9
 
-**Malaysia's New PM Takes Office Amid Economic Challenges**\
-`Muhyiddin Yassin took office as Malaysia's new prime minister on  Monday, capping a week of political chaos caused by the shock resignation of Mahathir Mohamad, and as the country's economy weakens mainly due to the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-malaysia-politics.html?searchResultPosition=10
+**China Inc Thinks Outside the Box as Coronavirus Keeps Consumers at Home**\
+`With Chinese consumers hit by quarantine and travel restrictions as well as just wary about venturing out to the shops due to the coronavirus epidemic, companies in the world's most populous nation are experimenting with new tricks to make sales.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-china-retail.html?searchResultPosition=10
 
