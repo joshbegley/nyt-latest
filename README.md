@@ -1,20 +1,20 @@
-**Apple Agrees to Pay Some iPhone Owners $25 Each**\
-`A settlement for as much as $500 million would resolve a lawsuit accusing Apple of slowing old iPhones as it released new ones.`\
-https://nytimes.com/2020/03/02/technology/apple-iphone-lawsuit-settlement.html?searchResultPosition=6
+**David Hallberg to Run the Australian Ballet**\
+`The star American dancer, who has a long history with the Australian troupe, will begin his new job in 2021.`\
+https://nytimes.com/2020/03/02/arts/dance/david-hallberg-artistic-director-australian-ballet.html?searchResultPosition=6
 
-**Man Pleads Not Guilty to Child Abuse but Murder Plea Delayed**\
-`A Columbia man accused of killing his Chinese wife pleaded not guilty Monday to abuse charges related to the couple's child but a plea in his wife's death was delayed.`\
-https://nytimes.com/aponline/2020/03/02/us/ap-us-missing-woman.html?searchResultPosition=7
+**Man Accused of Killing Officer Indicted on Gun Possession**\
+`An Alabama man accused of fatally shooting a police officer in an ambush has been indicted on firearm possession charges.`\
+https://nytimes.com/aponline/2020/03/02/us/ap-us-officer-shot-alabama.html?searchResultPosition=7
 
-**Lawmakers Propose Making E-Commerce Companies Liable for Counterfeits**\
-`A bipartisan House bill aims to stem the flow of fake goods from China by putting pressure on companies like Amazon.`\
-https://nytimes.com/2020/03/02/us/politics/counterfeits-bill-china-amazon.html?searchResultPosition=8
+**Seattle, Coronavirus, Amy Klobuchar: Your Monday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/03/02/briefing/seattle-coronavirus-amy-klobuchar.html?searchResultPosition=8
 
-**Inside the Weinstein Jury: How 26 ‘Stressful’ Hours Led to Guilty**\
-`Exhausted physically and emotionally, the Harvey Weinstein trial jurors decided to focus on the question of consent in the sexual encounters central to the case.`\
-https://nytimes.com/2020/03/02/nyregion/weinstein-verdict-jury.html?searchResultPosition=9
+**What the Bond Market Is Saying About Investors’ Hopes**\
+`Long-term bond yields are down, meaning investors are worried. Short-term yields are down more, meaning they’re hopeful. Got that?`\
+https://nytimes.com/2020/03/02/business/coronavirus-bond-yields-stock-market.html?searchResultPosition=9
 
-**New Guidelines Urge Most U.S. Adults to be Screened for Hepatitis C**\
-`The opioid crisis and an increase in illicit drug use have fueled a resurgence of hepatitis C, a viral infection of the liver.`\
-https://nytimes.com/2020/03/02/health/hep-c-virus.html?searchResultPosition=10
+**Defense Secretary Warns Commanders Not to Surprise Trump on Coronavirus**\
+`Mark T. Esper directed overseas officers not to run afoul of the White House’s messaging and asked them to clear decisions on protecting their troops.`\
+https://nytimes.com/2020/03/02/us/politics/esper-trump-military-coronavirus.html?searchResultPosition=10
 
