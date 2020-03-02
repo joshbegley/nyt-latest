@@ -1,20 +1,20 @@
+**Matthew Broderick and Sarah Jessica Parker Spend the Night Together**\
+`In Neil Simon’s “Plaza Suite,” they are playing three different couples — and are seeing more of one another than ever.`\
+https://nytimes.com/2020/03/02/theater/matthew-broderick-sarah-jessica-parker-plaza-suite.html?searchResultPosition=6
+
+**Paranoid Politics Goes Viral**\
+`When everything is a liberal media conspiracy.`\
+https://nytimes.com/2020/03/02/opinion/coronavirus-trump.html?searchResultPosition=7
+
+**Mexico Speeds Up Extraditions of Cartel Bosses to U.S**\
+`The government of Mexican President Andres Manuel Lopez Obrador has stepped up extraditions of suspected drug cartel leaders to the United States, official data show, as Washington presses for increased bilateral cooperation on security.`\
+https://nytimes.com/reuters/2020/03/02/world/americas/02reuters-mexico-extraditions.html?searchResultPosition=8
+
 **As Coronavirus Numbers Rise, C.D.C. Testing Comes Under Fire**\
 `Federal health officials botched an initial diagnostic test and restricted widespread screening. Critics fear the virus may gain a toehold in the U.S.`\
-https://nytimes.com/2020/03/02/health/coronavirus-testing-cdc.html?searchResultPosition=6
+https://nytimes.com/2020/03/02/health/coronavirus-testing-cdc.html?searchResultPosition=9
 
 **Paris Makes Former Brazil President Lula an Honorary Citizen**\
 `Paris city hall made Brazil's former leader Luiz Inacio Lula da Silva an honorary citizen on Monday, in a likely blow to his political enemy President Jair Bolsonaro whose relationship with France has deteriorated.`\
-https://nytimes.com/reuters/2020/03/02/world/americas/02reuters-france-brazil-lula.html?searchResultPosition=7
-
-**Man Pleads Not Guilty in 1991 Missouri Killing of Classmate**\
-`A Missouri man charged in the fatal shooting his 14-year-old classmate almost 30 years ago pleaded not guilty Monday to first-degree murder.`\
-https://nytimes.com/aponline/2020/03/02/us/ap-us-1991-killing-plea-.html?searchResultPosition=8
-
-**Trump Says Rallies 'Very Safe' Despite Virus Anxiety**\
-`President Donald Trump lobbed fresh criticism at the Democratic presidential field Monday and brushed off any concern about holding a big stadium rally as the new coronavirus spreads. He was headed for North Carolina to rev up his supporters on the eve of Super Tuesday's big round of primaries. `\
-https://nytimes.com/aponline/2020/03/02/us/politics/ap-us-election-2020-trump.html?searchResultPosition=9
-
-**Venezuelan Official Denies Threat to Guaidó as a 'Lie'**\
-`A powerful ally of Venezuelan President Nicolás Maduro on Monday denied any type of armed threats against U.S.-backed opposition leader Juan Guaidó as shown in a widely circulated photograph. `\
-https://nytimes.com/aponline/2020/03/02/world/americas/ap-lt-venezuela.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/02/world/americas/02reuters-france-brazil-lula.html?searchResultPosition=10
 
