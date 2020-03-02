@@ -1,20 +1,20 @@
-**Oman Bans Entry of Visitors From Countries Where Coronavirus Has Spread**\
-`Oman banned entry of visitors from countries where coronavirus has spread, the foreign ministry said on Twitter on Monday, without specifying countries.`\
-https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-health-coronavirus-oman.html?searchResultPosition=6
+**Sneezing Dogs, Dancing Bees: How Animals Vote**\
+`The 2020 election is off to a complicated start. Maybe we can draw some comparative political lessons from the animal kingdom.`\
+https://nytimes.com/2020/03/02/science/animals-voting-elections.html?searchResultPosition=6
 
-**Big Pharma May Pose an Obstacle to Vaccine Development**\
-`Concerns about profits and liability have often kept them from moving quickly enough.`\
-https://nytimes.com/2020/03/02/opinion/contributors/pharma-vaccines.html?searchResultPosition=7
+**Canada Tells Travelers From Iran to Isolate Over Coronavirus**\
+`Canada is telling travelers from Iran to isolate themselves at home for 14 days because of the novel coronavirus, the same direction given to people arriving from Hubei, China, the epicenter of the outbreak, officials said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-health-coronavirus-canada-iran.html?searchResultPosition=7
 
-**Twitter, Costco Rise; Carnival, Harley-Davidson Fall**\
-`Stocks that moved heavily or traded substantially on Monday:`\
-https://nytimes.com/aponline/2020/03/02/business/ap-financial-markets-stocks.html?searchResultPosition=8
+**Morocco Reports First Coronavirus Case: Health Ministry**\
+`Morocco's health ministry declared on Monday its first coronavirus case, from a Moroccan man living in Italy.`\
+https://nytimes.com/reuters/2020/03/02/world/africa/02reuters-health-coronavirus-morocco.html?searchResultPosition=8
 
-**Your Tuesday Briefing**\
-`Coronavirus, China’s quarantines, Super Tuesday: Here’s what you need to know.`\
-https://nytimes.com/2020/03/02/briefing/coronavirus-china-quarantine-super-tuesday.html?searchResultPosition=9
+**Florida Confirms Two Coronavirus Cases, One Had Traveled to Italy: Governor**\
+`The Centers for Disease Control and Prevention on Monday confirmed that two presumptive coronavirus cases in Florida were positive, Governor Ron DeSantis said during a news conference.`\
+https://nytimes.com/reuters/2020/03/02/us/02reuters-health-coronavirus-usa-florida.html?searchResultPosition=9
 
-**Chipper Jones Joins ESPN Lineup as Game Analyst**\
-`Hall of Fame third baseman Chipper Jones has joined the ESPN lineup.`\
-https://nytimes.com/aponline/2020/03/02/sports/baseball/ap-bbo-espn-chipper-jones-1st-ld-writethru.html?searchResultPosition=10
+**UAE Evacuating Its Citizens in Iran: WAM**\
+`The United Arab Emirates announced it will evacuate its citizens from Iran, state news agency (WAM) reported on Monday.`\
+https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-health-coronavirus-emirates-iran.html?searchResultPosition=10
 
