@@ -1,20 +1,20 @@
-**Pentagon Lays Out Afghanistan Withdrawal Plans After Taliban Accord**\
-`The Pentagon on Monday laid out plans for the initial withdrawal of troops from Afghanistan while saying it was unlikely that violence in the country would go down to zero even after the United States and Islamist Taliban signed an accord. `\
-https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-usa-afghanistan-taliban-pentagon.html?searchResultPosition=6
+**Camels Imported to Libya Were Not Stolen, Says Owner**\
+`A herd of 3,000 camels imported to Libya last month arrived in the town of Zawiya safely and in full, their owner said after Reuters reported last month that some had been stolen on the way.`\
+https://nytimes.com/reuters/2020/03/02/world/africa/02reuters-libya-security-camels.html?searchResultPosition=6
 
-**Russian Constitution Must Define Marriage as Heterosexual, Putin Says**\
-`President Vladimir Putin has proposed amending the Russian constitution to spell out that marriage means a union between a man and a woman and nothing else, a senior politician was cited as saying on Monday by the RIA news agency.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-russia-putin-marriage.html?searchResultPosition=7
+**U.S. Judge Gives Russian Firm Tied to Election Meddling Subpoena Deadline**\
+`During a testy hearing on Monday, a federal judge set a deadline for a Russian company facing criminal charges related to Moscow's interference in the 2016 U.S. election to explain why it had not handed over documents sought by prosecutors, a step that may lead to it being held in civil contempt.`\
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-usa-trump-russia-concord.html?searchResultPosition=7
 
-**2 Chinese Nationals Charged in $100M Cryptocurrency Scheme**\
-`Two Chinese nationals were charged Monday with laundering over $100 million in cryptocurrency that had been stolen by North Korean hackers, U.S. prosecutors said.`\
-https://nytimes.com/aponline/2020/03/02/us/politics/ap-us-cryptocurrency-north-korean-hack.html?searchResultPosition=8
+**Britain's Raab Flies to Turkey to Show Support on Syria**\
+`British foreign minister Dominic Raab will visit Turkey on Tuesday to show support for Ankara's efforts to negotiate an end and lasting ceasefire in Syria, his office said.`\
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-syria-security-britain.html?searchResultPosition=8
 
-**EU Interior Ministers to Discuss Turkey Border Situation on Wednesday**\
-`European Union home affairs ministers will hold an extraordinary meeting on Wednesday to discuss the situation at the EU's border with Turkey where thousands of migrants are trying to cross into Greece and Bulgaria since last week, three officials said.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-syria-security-greece-eu-meeting.html?searchResultPosition=9
+**IN THE PITS: Bowman Makes Case to Keep His Hendrick Ride**\
+`There is a strong crop of drivers headed into free agency this summer and Alex Bowman has hardly been at the top of the list. `\
+https://nytimes.com/aponline/2020/03/02/sports/ap-car-nascar-in-the-pits.html?searchResultPosition=9
 
-**'All Our Dreams Are Gone;' Desperation Deepens for Syrians as Conflict Intensifies**\
-`At a maternity hospital in northwest Syria, an alarm flashes at the main entrance to alert staff. It’s not patients en route to the hospital. It’s warplanes.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-syria-security-idlib-insight.html?searchResultPosition=10
+**UN Envoy for Libya Resigns as Truce Appears to Crumble**\
+`The U.N. envoy for Libya announced his resignation on Monday, as a fragile cease-fire in the North African country continued to crumble.`\
+https://nytimes.com/aponline/2020/03/02/world/middleeast/ap-ml-libya.html?searchResultPosition=10
 
