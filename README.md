@@ -2,13 +2,13 @@
 `Your daily look at late-breaking news, upcoming events and the stories that will be talked about today: `\
 https://nytimes.com/aponline/2020/03/02/us/ap-10-things-to-know-today.html?searchResultPosition=6
 
-**What’s Next for Pete Buttigieg?**\
-`Few expect Mr. Buttigieg, the former mayor and now former presidential candidate, to remain at home for long. Here’s some ideas for what he could consider next.`\
-https://nytimes.com/2020/03/02/us/politics/pete-buttigieg-drops-out.html?searchResultPosition=7
-
 **Quandary for 2020 Democrats: Which Criminal Justice Changes Get Priority?**\
 `The Democratic presidential candidates are united in seeking a major overhaul of the criminal justice system, but a new questionnaire asked them to choose what they would do first.`\
-https://nytimes.com/2020/03/02/us/politics/Criminal-justice-2020-Democrats.html?searchResultPosition=8
+https://nytimes.com/2020/03/02/us/politics/Criminal-justice-2020-Democrats.html?searchResultPosition=7
+
+**What’s Next for Pete Buttigieg?**\
+`Few expect Mr. Buttigieg, the former mayor and now former presidential candidate, to remain at home for long. Here’s some ideas for what he could consider next.`\
+https://nytimes.com/2020/03/02/us/politics/pete-buttigieg-drops-out.html?searchResultPosition=8
 
 **Joe Biden’s Big Win**\
 `One primary victory in South Carolina may have changed the future of the former vice president’s campaign — and altered the course of the 2020 election.`\
