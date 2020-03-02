@@ -1,20 +1,20 @@
-**Pakistan's Largest City Shuts Schools for Two Weeks Over Virus Fears**\
-`Pakistan's southern province of Sindh extended the closure of all educational institutions following the confirmation of a second coronavirus case in Karachi, the country's largest city.`\
-https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-pakistan.html?searchResultPosition=6
+**Britain Says Health Service, Drug Prices Not Up for Negotiation in U.S. Talks**\
+`Britain said on Monday that the price its state funded National Health Service (NHS) pays for drugs would not be on the table in trade talks with the United States.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-britain-eu-trade-usa-health.html?searchResultPosition=6
 
-**'Clásico' Puts Madrid at Ease Again, Leaves Barça Pressured**\
-`What a difference a “clásico” makes.`\
-https://nytimes.com/aponline/2020/03/02/sports/soccer/ap-soc-spain-weekend-watch.html?searchResultPosition=7
+**Factbox: What Britain Wants From a Trade Deal With the United States**\
+`Britain outlined its negotiating mandate for talks with the United States on Monday, with the hope of reducing tariffs while shielding the public health service and protecting food and animal welfare standards.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-britain-eu-trade-usa-box.html?searchResultPosition=7
 
-**DealBook: How to Fight That Sinking Feeling**\
-`Markets are expecting increasingly aggressive, potentially coordinated actions from central banks around the world.`\
-https://nytimes.com/2020/03/02/business/dealbook/markets-response-coronavirus.html?searchResultPosition=8
+**UK Wants a Big U.S. Trade Deal but Health and Food Standards Not Up for Grabs**\
+`Britain said on Monday it will seek to achieve huge gains by removing barriers to trade with the United States in talks for a deal this year but its health service would not be on the table in talks.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-britain-eu-trade-usa-mandate.html?searchResultPosition=8
 
-**Nokia CEO Suri Steps Down, Lundmark Named Successor**\
-`The CEO of wireless networks company Nokia is stepping down from the post and will be succeeded by an energy executive.`\
-https://nytimes.com/aponline/2020/03/02/business/bc-us-nokia-ceo.html?searchResultPosition=9
+**China Says Strict Control Measures Must Be Maintained Despite Positive Trend Outside Hubei**\
+`Control of China's coronavirus outbreak remains at crucial stage despite a positive trend in areas outside Hubei province and strict prevention and control measures must be maintained, according to a meeting chaired by Premier Li Keqiang.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-premier.html?searchResultPosition=9
 
-**Services Honor Life of Fallen South Carolina Deputy**\
-`A sheriff's deputy in South Carolina who was shot and killed in the line of duty was remembered as a man who loved his community and his family.`\
-https://nytimes.com/aponline/2020/03/02/us/ap-us-deputy-killed-south-carolina.html?searchResultPosition=10
+**Russian Citizen Who Returned From Italy Diagnosed With Coronavirus: RIA Cites Ministry**\
+`A Russian citizen returning from Italy was diagnosed with coronavirus, the RIA news agency cited the healthcare ministry as saying on Monday.`\
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-health-coronavirus-russia.html?searchResultPosition=10
 
