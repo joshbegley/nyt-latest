@@ -1,20 +1,20 @@
+**Lawmakers Propose Making E-Commerce Companies Liable for Counterfeits**\
+`A bipartisan House bill aims to stem the flow of fake goods from China by putting pressure on companies like Amazon.`\
+https://nytimes.com/2020/03/02/us/politics/counterfeits-bill-china-amazon.html?searchResultPosition=6
+
+**Inside the Weinstein Jury: How 26 ‘Stressful’ Hours Led to Guilty**\
+`Exhausted physically and emotionally, the Harvey Weinstein trial jurors decided to focus on the question of consent in the sexual encounters central to the case.`\
+https://nytimes.com/2020/03/02/nyregion/weinstein-verdict-jury.html?searchResultPosition=7
+
 **New Guidelines Urge Most U.S. Adults to be Screened for Hepatitis C**\
 `The opioid crisis and an increase in illicit drug use have fueled a resurgence of hepatitis C, a viral infection of the liver.`\
-https://nytimes.com/2020/03/02/health/hep-c-virus.html?searchResultPosition=6
+https://nytimes.com/2020/03/02/health/hep-c-virus.html?searchResultPosition=8
 
 **Matthew Broderick and Sarah Jessica Parker Spend the Night Together**\
 `In Neil Simon’s “Plaza Suite,” they are playing three different couples — and are seeing more of one another than ever.`\
-https://nytimes.com/2020/03/02/theater/matthew-broderick-sarah-jessica-parker-plaza-suite.html?searchResultPosition=7
+https://nytimes.com/2020/03/02/theater/matthew-broderick-sarah-jessica-parker-plaza-suite.html?searchResultPosition=9
 
 **Paranoid Politics Goes Viral**\
 `When everything is a liberal media conspiracy.`\
-https://nytimes.com/2020/03/02/opinion/coronavirus-trump.html?searchResultPosition=8
-
-**Mexico Speeds Up Extraditions of Cartel Bosses to U.S**\
-`The government of Mexican President Andres Manuel Lopez Obrador has stepped up extraditions of suspected drug cartel leaders to the United States, official data show, as Washington presses for increased bilateral cooperation on security.`\
-https://nytimes.com/reuters/2020/03/02/world/americas/02reuters-mexico-extraditions.html?searchResultPosition=9
-
-**As Coronavirus Numbers Rise, C.D.C. Testing Comes Under Fire**\
-`Federal health officials botched an initial diagnostic test and restricted widespread screening. Critics fear the virus may gain a toehold in the U.S.`\
-https://nytimes.com/2020/03/02/health/coronavirus-testing-cdc.html?searchResultPosition=10
+https://nytimes.com/2020/03/02/opinion/coronavirus-trump.html?searchResultPosition=10
 
