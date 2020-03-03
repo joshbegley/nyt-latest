@@ -1,20 +1,20 @@
-**Mexican Accused by US as Russian Agent Pleads Not Guilty**\
-`A Mexican scientist pleaded not guilty Tuesday to U.S. charges that he spied for Russia in Miami.`\
-https://nytimes.com/aponline/2020/03/03/us/ap-us-russian-agent-florida.html?searchResultPosition=6
+**How to Disinfect Your Space on an Airplane**\
+`Here are some tips for cleaning your area of a plane and keeping healthy on a flight.`\
+https://nytimes.com/article/airplane-flying-coronavirus-spread.html?searchResultPosition=6
 
-**Nikola Corp to Go Public at Over $3.3 Billion Valuation**\
-`Electric vehicle maker Nikola Corp said on Tuesday it plans to list on the Nasdaq by merging with a publicly traded special purpose acquisition company, backed by investors including Fidelity and ValueAct.`\
-https://nytimes.com/reuters/2020/03/03/us/03reuters-nikola-corp-vectoiq.html?searchResultPosition=7
+**Analyst View: G7 Vows 'All Appropriate Tools' to Battle Virus Damage but No Specifics**\
+`G7 finance ministers and central bank governors said on Tuesday they were committed to using "all appropriate policy tools" to support economic growth but stopped short of outlining specific measures to contain damage from the coronavirus.`\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-g7-analyst-view.html?searchResultPosition=7
 
-**U.S. Buyout Firm CD&R to Buy UK's Huntsworth for $511 Million in Pharma Bet**\
-`U.S.-based private equity firm Clayton, Dubilier & Rice has agreed to buy British healthcare marketing and services company Huntsworth for about 400 million pounds ($511 million) in a bet on continued strong growth in global healthcare markets.`\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-huntsworth-m-a-cd-r-artemis.html?searchResultPosition=8
+**Peak, With 101st-Floor Views, Opens in Hudson Yards**\
+`An American brasserie in Jersey City, Vietnamese in Williamsburg, and more restaurant news.`\
+https://nytimes.com/2020/03/03/dining/nyc-restaurant-openings.html?searchResultPosition=8
 
-**Universities Follow Similar Playbook in Sex Assault Response**\
-`As mass sexual assault scandals, some dating back decades, roil universities across the country, the schools are seemingly drawing from the same playbook in their responses.`\
-https://nytimes.com/aponline/2020/03/03/sports/ap-us-university-sexual-abuse-playbook.html?searchResultPosition=9
+**Chanel Hosts Pared-Down Show as Virus Keeps Many VIPs Away**\
+`Chanel staged a comparatively low-key affair for Paris Fashion Week as the coronavirus outbreak kept many of the regular VIPs and fashion editors away.`\
+https://nytimes.com/aponline/2020/03/03/world/europe/ap-eu-france-paris-fashion-week.html?searchResultPosition=9
 
-**Spring Decor Trends: Soothing, Soft, Sustainable, Stylish**\
-`If you’re looking for respite from this winter’s weather and news, you’ll find plenty of peace and quiet in the spring offerings beginning to show up at home decor retailers. `\
-https://nytimes.com/aponline/2020/03/03/business/bc-us-spe-spring-homes-trends-softer-side.html?searchResultPosition=10
+**UAW, Stung by Corruption, Seeks $1.3M for Vacation Home**\
+`The United Auto Workers is seeking $1.29 million for the Michigan vacation home of its former president.`\
+https://nytimes.com/aponline/2020/03/03/business/ap-us-uaw-corruption.html?searchResultPosition=10
 
