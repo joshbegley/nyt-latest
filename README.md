@@ -1,20 +1,20 @@
+**In a Texas Chicken Joint, Biden and Onetime Rival Buttigieg Unite to Stop Sanders**\
+`It was a scene that was hard to imagine just one week ago.`\
+https://nytimes.com/reuters/2020/03/03/us/politics/03reuters-usa-election-biden.html?searchResultPosition=6
+
+**Two People Killed, Around 40 Buildings Destroyed by Nashville Tornado**\
+`A tornado struck Nashville, Tennessee in the early hours of Tuesday morning, killing at least two people and destroying around 40 buildings, police and firefighters said.`\
+https://nytimes.com/reuters/2020/03/03/us/03reuters-usa-weather.html?searchResultPosition=7
+
+**Toyota Names New Finance Chief in Executive Shake-Up**\
+`Toyota Motor Corp named Kenta Kon as its next chief financial officer on Tuesday and said it would scrap executive vice president (EVP) roles as part of a drive to streamline the company's structure, improve production systems and cut costs.`\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-toyota-reshuffle.html?searchResultPosition=8
+
+**Trump: Democrats Should Propose One-Year Payroll Tax Cut**\
+`United States President Donald Trump said late Monday that the Democrats who control the House of Representatives should propose a one-year payroll tax cut.`\
+https://nytimes.com/reuters/2020/03/03/us/02reuters-usa-trump-tax.html?searchResultPosition=9
+
 **ECB Working on Lending Scheme for Coronavirus-Hit Companies: Sources**\
 `The European Central Bank is preparing possible measures to provide liquidity to businesses hit by the economic fallout of the coronavirus outbreak, three sources familiar with the discussion told Reuters.`\
-https://nytimes.com/reuters/2020/03/03/business/03reuters-ecb-policy-lending.html?searchResultPosition=6
-
-**Daimler Says Production in China Stable but Too Early to Forecast Coronavirus Impact**\
-`Daimler's car production in China is stable and the supply chains are secure but it is too early to forecast the impact of the coronavirus outbreak on the German carmaker's sales, Mercedes-Benz's sales chief said on Monday. `\
-https://nytimes.com/reuters/2020/03/03/business/03reuters-autoshow-geneva-daimler-china.html?searchResultPosition=7
-
-**Oil Extends Gains Amid Optimism for Coordinated Effort to Offset Virus**\
-`Oil prices extended gains on Tuesday on expectations that central banks are likely to enact financial stimulus to offset the impacts of the coronavirus outbreak and growing optimism that OPEC will order deeper output cuts this week.`\
-https://nytimes.com/reuters/2020/03/03/business/03reuters-global-oil.html?searchResultPosition=8
-
-**Philippine Police: News Conference Helped End Hostage Crisis**\
-`Philippine officials said Tuesday they allowed an armed man who took dozens of people hostage in a mall to hold a news conference to encourage him to free his captives and give police a chance to grab him as he talked with a throng of journalists.`\
-https://nytimes.com/aponline/2020/03/03/world/asia/ap-as-philippines-mall-standoff.html?searchResultPosition=9
-
-**European Airlines Warn of Worsening Impact of Coronavirus**\
-`European airlines warned on Tuesday the worst is still to come in economic damage to the industry from the rapid spread of coronavirus Covid-19.`\
-https://nytimes.com/reuters/2020/03/03/business/03reuters-europe-airlines.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/03/business/03reuters-ecb-policy-lending.html?searchResultPosition=10
 
