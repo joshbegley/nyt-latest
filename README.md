@@ -1,20 +1,20 @@
-**Red Sox Ace Chris Sale Has MRI for Elbow Soreness**\
-`Boston Red Sox left-hander Chris Sale has soreness in his throwing elbow and has undergone an MRI.`\
-https://nytimes.com/aponline/2020/03/03/sports/baseball/ap-bba-red-sox-sale.html?searchResultPosition=6
+**Alibaba's AliExpress Warns of Possible Coronavirus Delays**\
+`AliExpress, the global e-commerce platform of Chinese online shopping giant Alibaba, warned customers in a Facebook post on Tuesday that there may be some delivery delays due to the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/03/technology/03reuters-health-coronavirus-aliexpress.html?searchResultPosition=6
 
-**Ex-Michigan Football Players Join List With Sex Abuse Claims**\
-`An attorney announced Tuesday that his firm represents more than a 40 people, including two former football players and an ex-hockey player, in the University of Michigan sexual abuse case.`\
-https://nytimes.com/aponline/2020/03/03/sports/ap-us-university-of-michigan-doctor.html?searchResultPosition=7
+**Ampere Targets Cloud Companies With New Chip, Signs Oracle as Customer**\
+`Data center chip startup Ampere on Tuesday released a new processor that it claims can outpace offerings from Intel Corp and Advanced Micro Devices Inc, and said it has signed Oracle Corp's cloud division as a customer.`\
+https://nytimes.com/reuters/2020/03/03/technology/03reuters-ampere-tech.html?searchResultPosition=7
 
-**Europe's Corporate Recession Seen Spilling Over Into 2020**\
-`Europe Inc is seen extending its earnings drought into 2020 with the latest Refinitiv data pointing to a fifth straight quarter of profit decline as companies warn about the potential impact from the fast-spreading coronavirus.`\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-europe-stocks-results.html?searchResultPosition=8
+**Olympics: Tokyo Torchlighting Ceremony Hit by Coronavirus Measures**\
+`Crowds will be smaller and receptions have been scrapped at the Tokyo 2020 torch lighting ceremony in ancient Olympia, Greece next week as the Hellenic Olympic Committee (HOC) introduced measures to protect against the coronavirus, it said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/03/sports/olympics/03reuters-health-coronavirus-olympia.html?searchResultPosition=8
 
-**Chanel Swaps Skirts for Jodhpurs at Paris Fashion Week**\
-`Loose, studded trousers split open at the sides and jodhpur-style looks took center stage at Chanel on Tuesday, as models walked in twos and threes down a vast mirrored floor that served as a runway at one of Paris Fashion Week's last big shows. `\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-fashion-paris-chanel.html?searchResultPosition=9
+**Dogs Can Detect Heat With 'Infrared Sensor' in Their Nose, Research Finds**\
+`Dogs have a type of infrared sensor in the tip of their nose which enables them to detect minute changes in temperature such as when other animals are nearby, according to new research. `\
+https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-hungary-science-dogs.html?searchResultPosition=9
 
-**No Action Seen at Wednesday EU Finance Ministers Coronavirus Call: Officials**\
-`European Union finance ministers are unlikely to decide on any concrete action in response to the coronavirus outbreak at their teleconference on Wednesday as the call is meant to be mainly a stock-taking exercise, three EU finance officials said.`\
-https://nytimes.com/reuters/2020/03/03/us/03reuters-coronavirus-health-eu-economy.html?searchResultPosition=10
+**Longtime Tucson Jockey Dies After Fall From Horse**\
+`Longtime jockey Richard Gamez died Sunday after falling from his horse and getting trampled by another horse during a race in Tucson.`\
+https://nytimes.com/aponline/2020/03/03/sports/ap-rac-tucson-jockey-death.html?searchResultPosition=10
 
