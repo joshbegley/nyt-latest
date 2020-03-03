@@ -1,20 +1,20 @@
+**Musk Tweets Support for Dorsey Remaining as Twitter CEO**\
+`Elon Musk said late on Monday he supported Jack Dorsey remaining as Twitter Inc's chief executive officer, two days after reports that activist investor Elliott Management Corp has pushed for his removal from the role.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-twitter-elliott-musk.html?searchResultPosition=6
+
+**GFL Raises $1.4 Billion in IPO Amid Volatile Markets**\
+`GFL Environmental Inc on Monday raised about $1.4 billion in its initial public offering, pricing it below the target range in a conservative step to ride out market volatility in the wake of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-gfl-environmental-ipo.html?searchResultPosition=7
+
+**NC Central Beats Bethune-Cookman 71-68 in OT**\
+`C.J. Keyser scored 15 points, including a go-ahead layup with 1:23 left in overtime, and North Carolina Central beat Bethune-Cookman 71-68 on Monday night to remain undefeated at home.`\
+https://nytimes.com/aponline/2020/03/02/sports/ncaabasketball/bc-bkc-bethune-cookman-nc-central.html?searchResultPosition=8
+
+**Top Central Banks Appear Primed to Act to Combat Coronavirus Risk**\
+`The world's top three central banks look set to take steps to limit the economic damage from the fast-spreading coronavirus, with the heads of the European Central Bank and Bank of Japan issuing emergency statements on Monday that echoed one from U.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-centralbanks.html?searchResultPosition=9
+
 **South Korea Sect Leader Tests Negative for Coronavirus as 600 New Cases Reported**\
 `South Korean health authorities said on Tuesday the leader of a religious sect has tested negative for coronavirus, after he was taken to a "drive-through" test site late on Monday amid scrutiny over how his church became the center of the outbreak.`\
-https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-southkorea.html?searchResultPosition=6
-
-**Trump Administration Says Drug Makers Will Work Together to Combat Coronavirus**\
-`The Trump administration said on Monday it had secured commitments from top pharmaceutical companies to work together to develop a vaccine and treatments to fight the coronavirus.`\
-https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-usa-drugmakers.html?searchResultPosition=7
-
-**Colombia's Ecopetrol Restricts Travel to Asia, Europe Due to Coronavirus: CEO**\
-`Colombia's state-run oil company Ecopetrol SA placed restrictions on business travel to all Asian and European countries on Monday in response to the coronavirus outbreak, its chief executive told Reuters. `\
-https://nytimes.com/reuters/2020/03/02/world/americas/02reuters-health-coronavirus-ecopetrol.html?searchResultPosition=8
-
-**Qualcomm Says China Virus Threatens Phone Industry Disruption**\
-`Chip maker Qualcomm Inc said on Wednesday that the coronavirus outbreak in China poses a potential threat to the mobile phone industry, with a possible impact on manufacturing and sales.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-qualcomm-results.html?searchResultPosition=9
-
-**Shareholder Calls for Separation of J&J's CEO and Chairman Roles**\
-`Trillium Asset Management LLC has called for the separation of Johnson & Johnson's chairman and chief executive officer roles, currently held by Alex Gorsky, according to a regulatory filing https://www.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-johnson-johnson-trillium-asset.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-southkorea.html?searchResultPosition=10
 
