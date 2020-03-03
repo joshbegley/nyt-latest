@@ -1,20 +1,20 @@
-**Consent the Key in Spain's New Sex Crimes Draft Bill**\
-`The Spanish government Tuesday approved a new draft bill on sex crimes that makes consent a key determinant in cases, freeing victims of having to prove that violence or intimidation was used against them.`\
-https://nytimes.com/aponline/2020/03/03/world/europe/ap-eu-spain-sex-crimes-law.html?searchResultPosition=6
+**Bold Decor, and You Still Get the Security Deposit Back**\
+`Noelle Daumeyer and her roommates knew they needed a big, bold art piece to decorate the bland, white walls in the living room of their rented apartment, but they also worried about damaging the paint. `\
+https://nytimes.com/aponline/2020/03/03/business/bc-us-spe-spring-homes-renters-decor-options-1st-ld-writethru.html?searchResultPosition=6
 
-**UN Watchdog: Iran Has 3 Possible Undeclared Nuclear Sites**\
-`The U.N.’s nuclear watchdog says it has identified three locations in Iran where the country possibly stored undeclared nuclear material or undertook nuclear-related activities without declaring it to international observers.`\
-https://nytimes.com/aponline/2020/03/03/world/europe/ap-eu-iran-nuclear.html?searchResultPosition=7
+**Ojai, Calif.: A Valley of Wellness (but No Chain Stores) in Ventura County**\
+`The small, quiet city 80 miles north of Los Angeles has long attracted spiritual types — as long as they can pay the rising prices.`\
+https://nytimes.com/2020/03/03/realestate/ojai-calif-a-valley-of-wellness-but-no-chain-stores-in-ventura-county.html?searchResultPosition=7
 
-**Thermo Fisher Buying Qiagen in Deal Worth About $10.1B**\
-`Thermo Fisher Scientific Inc., a maker of scientific instrument and laboratory supplies, is buying Qiagen in a deal valued at about $10.1 billion.`\
-https://nytimes.com/aponline/2020/03/03/business/ap-us-thermo-fisher-acquisition.html?searchResultPosition=8
+**Living In... Ojai, Calif.**\
+`The small town in the Ojai Valley, 80 miles north of Los Angeles, is quiet and geared toward spiritual enlightenment. But it’s not cheap.`\
+https://nytimes.com/slideshow/2020/03/03/realestate/living-in-ojai-calif.html?searchResultPosition=8
 
-**Rights Group: Lacoste Gloves Made in Chinese Internment Camp**\
-`Gloves made in China for the popular French brand Lacoste appear to have been sewn inside a factory where ethnic minorities face forced ideological and behavioral re-education, according to a U.S.-based labor rights group. `\
-https://nytimes.com/aponline/2020/03/03/business/bc-us-lacoste-xinjiang.html?searchResultPosition=9
+**With Disney, a Manhattan Neighborhood Reinvents Itself**\
+`In the two years since Disney announced it would move its New York offices to Hudson Square, the former manufacturing district has risen in stature.`\
+https://nytimes.com/2020/03/03/business/disney-hudson-square.html?searchResultPosition=9
 
-**Coronavirus in N.Y.: Cuomo Confirms Second Case in the State**\
-`The case in Westchester County indicates that community transmission is likely underway in the state.`\
-https://nytimes.com/2020/03/03/nyregion/coronavirus-new-york-state.html?searchResultPosition=10
+**‘Designing Women’ Play Will Debut This Year**\
+`A new play by Linda Bloodworth-Thomason, the creator of the 1980s and ’90s sitcom, will bring the show’s characters into the present day.`\
+https://nytimes.com/2020/03/03/theater/designing-women-play.html?searchResultPosition=10
 
