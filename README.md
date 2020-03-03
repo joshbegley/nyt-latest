@@ -1,8 +1,8 @@
-**Sports Doctors May Accidentally Prescribe Banned Steroids**\
-`Sports physicians routinely prescribe corticosteroids to athletes for conditions like inflammation, asthma and allergies, but not all of them know which forms of these drugs are banned under anti-doping rules, a study suggests. `\
-https://nytimes.com/reuters/2020/03/03/us/03reuters-health-sports-steroids.html?searchResultPosition=9
+**Ireland Confirms Second Case of Coronavirus**\
+`Irish authorities have confirmed a second case of coronavirus, a woman in the east of the country who recently traveled to Italy, Ireland's Department of Health announced on Tuesday. `\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-ireland.html?searchResultPosition=9
 
-**Trump Says U.S. Weighs Travel Actions Over Coronavirus 'Hot Spots' Abroad**\
-`U.S. President Donald Trump on Tuesday said his administration may take further steps to address travel from the United States to areas with high rates of coronavirus, but said officials were not weighing any restrictions on domestic travel.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-usa-travel.html?searchResultPosition=10
+**Two in Five U.S. Diabetics Struggle With Medical Bills**\
+`Many working-age U.S. adults with diabetes struggle to pay their medical bills, according to a study that suggests health insurance offers inadequate protection from financial hardship. `\
+https://nytimes.com/reuters/2020/03/03/us/03reuters-health-diabetes-finances.html?searchResultPosition=10
 
