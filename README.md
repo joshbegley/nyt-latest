@@ -1,8 +1,8 @@
-**Review: A New ‘Flying Dutchman’ Makes Landfall at the Met Opera**\
-`François Girard’s ultimately frustrating production presents the story as taking place within its heroine’s fevered imagination.`\
-https://nytimes.com/2020/03/03/arts/music/flying-dutchman-met-opera-review.html?searchResultPosition=9
+**Carmen Herrera Mural to Grace East Harlem**\
+`The artist’s design will be executed by students from Publicolor, an arts and education program, and Manhattan East School for Arts and Academics.`\
+https://nytimes.com/2020/03/03/arts/design/carmen-herrera-mural-east-harlem.html?searchResultPosition=9
 
-**The Fed Has No Tools for a Pandemic. Here’s Why It Acted Anyway.**\
-`Think of its role by imagining a town with a looming crisis: a major hurricane.`\
-https://nytimes.com/2020/03/03/upshot/federal-reserve-coronavirus-pandemic.html?searchResultPosition=10
+**Florida Senate OKs Compensation for Former Death Row Inmate**\
+`A former Florida death row inmate imprisoned nearly 43 years for a crime authorities now say he didn't commit would collect more than $2 million in compensation under a bill passed Tuesday by the state Senate.`\
+https://nytimes.com/aponline/2020/03/03/us/ap-us-xgr-wrongfully-convicted.html?searchResultPosition=10
 
