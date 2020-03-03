@@ -1,20 +1,20 @@
-**Facebook Pulls Out of South by Southwest Festival Over Coronavirus Fears**\
-`Facebook Inc is pulling out of this year's South by Southwest (SXSW) music and tech festival over growing concerns about the coronavirus outbreak, a spokesperson for the company said on Monday.`\
-https://nytimes.com/reuters/2020/03/02/arts/02reuters-health-coronavirus-facebook.html?searchResultPosition=6
+**Japanese Mothers Struggle to Cope After Virus Shuts Schools**\
+`Keiko Kobayashi brought her 7-year-old son to her Tokyo office on Monday after his school, like most others in Japan, suddenly closed for four weeks in a government effort to slow the rapid spread of the new virus.`\
+https://nytimes.com/aponline/2020/03/02/world/asia/ap-as-virus-outbreak-japan-closed-schools-1st-ld-writethru.html?searchResultPosition=6
 
-**Colombia's Constitutional Court Rules Against Legalizing Abortion in First 16 Weeks of Pregnancy**\
-`Colombia's Constitutional Court ruled on Monday against legalizing abortions in up to the first 16 weeks of pregnancy and said the procedure would continue to be allowed in just three specific cases.`\
-https://nytimes.com/reuters/2020/03/02/world/americas/02reuters-colombia-abortion.html?searchResultPosition=7
+**Pence Says Risk to Americans From Coronavirus Remains Low**\
+`Vice President Mike Pence said on Monday the risk to Americans from coronavirus remains low, after authorities in Washington state announced the deaths of four more people, raising the U.S. death toll to six.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-usa-pence.html?searchResultPosition=7
 
-**Severe Eye Injuries Seen With e-Scooter Accidents**\
-`With the rising popularity of electric scooters, emergency rooms are seeing a lot of head injuries, many with vision-threatening damage to the eyes, a small study suggests.`\
-https://nytimes.com/reuters/2020/03/02/us/02reuters-health-scooters-injuries.html?searchResultPosition=8
+**Novartis Unit Sandoz Agrees to Pay $195 Million to Resolve Antitrust Charges**\
+`Novartis' generic drugs unit Sandoz has agreed to pay $195 million to reach a deferred prosecution agreement aimed at resolving antitrust charges, the Justice Department said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-novartis-antitrust.html?searchResultPosition=8
 
-**Pfizer Identified Some Antiviral Compounds With Potential as Coronavirus Treatments**\
-`Drugmaker Pfizer Inc said on Monday that it identified certain antiviral compounds it had in development that have the potential to inhibit coronaviruses and is engaging with a third party to screen the compounds.`\
-https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-pfizer.html?searchResultPosition=9
+**Quotation of the Day: These Oddballs Get Sideways Glances**\
+`Quotation of the Day for Monday, March 2, 2020.`\
+https://nytimes.com/2020/03/02/todayspaper/quotation-of-the-day-these-oddballs-get-sideways-glances.html?searchResultPosition=9
 
-**Misleading Ads Turn People Away From HIV-Prevention Meds**\
-`Targeted advertisements on Facebook and television that overstate side effects of HIV-prevention pills might be the greatest threat to protecting people at high risk of infection with the virus, experts say. `\
-https://nytimes.com/reuters/2020/03/02/us/02reuters-health-hiv-prep.html?searchResultPosition=10
+**HPV Tied to Miscarriages and Preterm Births**\
+`Pregnant women infected with human papillomavirus (HPV) may be at increased risk for miscarriages and preterm deliveries, a review of past research suggests. `\
+https://nytimes.com/reuters/2020/03/02/us/02reuters-health-pregnancy-hpv.html?searchResultPosition=10
 
