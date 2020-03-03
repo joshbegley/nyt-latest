@@ -1,8 +1,8 @@
-**In Congress, Questions About Overdue Testing for Coronavirus**\
-`Lawmakers on Tuesday expressed skepticism about U.S. health officials' claims that long-overdue testing for the new coronavirus would be widely available by the end of the week.`\
-https://nytimes.com/aponline/2020/03/03/health/ap-us-med-virus-outbreak-congress.html?searchResultPosition=9
+**Amazon Prime Will Stream 21 Yankees Games This Season**\
+`Amazon Prime will stream 21 Yankees games to members in New York's broadcast market this season at no additional cost.`\
+https://nytimes.com/aponline/2020/03/03/business/ap-bba-yankees-yes-amazon.html?searchResultPosition=9
 
-**3 Professional Frisbee Players Die in Michigan Highway Crash**\
-`Three professional Frisbee players have died after they were involved in car crash en route to a team practice in Detroit, authorities said.`\
-https://nytimes.com/aponline/2020/03/03/sports/ap-us-fatal-crash-frisbee-players.html?searchResultPosition=10
+**Faulting the U.S. Response to the Coronavirus**\
+`Health care providers and other readers worry about inadequate testing, quarantines and protective equipment.`\
+https://nytimes.com/2020/03/03/opinion/letters/coronavirus-us.html?searchResultPosition=10
 
