@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/03/02/sports/ncaabasketball/bc-bkc-t25-nc-state-duke.html?searchResultPosition=6
 
 **N.B.A., Responding to Coronavirus, Encourages Fist Bumps Over High-Fives**\
-`The league sent a memo to teams explaining ways to avoid spreading the virus during interactions with fans, such as not using a fan’s pen to sign autographs.`\
+`The league sent a memo to teams explaining ways to avoid spreading the virus during interactions with fans, such as not using a borrowed pen to sign autographs.`\
 https://nytimes.com/2020/03/02/sports/basketball/nba-coronavirus.html?searchResultPosition=7
 
 **Wells Fargo Third Major Bank to End Arctic Oil Investment**\
