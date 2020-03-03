@@ -1,20 +1,20 @@
-**Greek Army, Police Dig in Along Turkey Border After Migrant Clashes**\
-`Greek troops and riot police remained on high alert on Tuesday along the land border between Greece and Turkey, the main flashpoint in an escalating row between the EU and Ankara over how to deal with a new wave of migrants and refugees.`\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-syria-security-greece.html?searchResultPosition=6
+**Explainer: Challenges Facing New Malaysia PM After Controversial Takeover**\
+`Muhyiddin Yassin was sworn in as Malaysia's new prime minister on Sunday after a week of political turmoil triggered by the surprise resignation of Mahathir Mohamad, but he has yet to name any cabinet colleagues.`\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-malaysia-politics-muhyiddin-explainer.html?searchResultPosition=6
 
-**What's Happening: Olympics May Be Late, Twitter Telecommutes**\
-`More countries are reporting cases of the new coronavirus while more governments issue travel warnings for their citizens and companies urge employees to work from home to prevent infections. `\
-https://nytimes.com/aponline/2020/03/03/business/ap-virus-outbreak-whats-happening.html?searchResultPosition=7
+**China's Guangdong to Require Visitors From Virus-Hit Countries to Undergo Quarantine**\
+`China's Guangdong province will require travelers arriving from countries and regions with severe coronavirus outbreaks to quarantine themselves for 14 days, the government-backed Nanfang Daily newspaper reported on Tuesday.`\
+https://nytimes.com/reuters/2020/03/03/world/middleeast/02reuters-health-coronavirus-guangdong.html?searchResultPosition=7
 
-**Netanyahu Ahead in Israeli Election, but Still Lacking Governing Majority**\
-`Prime Minister Benjamin Netanyahu led on Tuesday in a tight election in Israel, but was still short of a governing majority in the third national ballot in less than a year, partial results showed.`\
-https://nytimes.com/reuters/2020/03/03/world/middleeast/03reuters-israel-election.html?searchResultPosition=8
+**China to Send Plane to Iran to Pick Up Citizens From Virus-Stricken Areas: Global Times**\
+`China will send a chartered plane to Iran on the evening of March 3 to pick up its citizens from areas struck by the coronavirus, according to a report by Global Times, which is run by the official People's Daily newspaper.`\
+https://nytimes.com/reuters/2020/03/03/world/middleeast/03reuters-health-coronavirus-china-iran.html?searchResultPosition=8
 
-**Telenor Sees Modest Growth, Job Cuts as 5G Gathers Speed**\
-`Norway's Telenor will see revenue growth of up to 2% annually until 2022, as it cuts costs further, rolls out 5G telecoms networks and increases dividends every year, the company said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/03/technology/03reuters-telenor-outlook.html?searchResultPosition=9
+**'Provocative' China Pressures Taiwan With Fighters, Fake News Amid Virus Outbreak**\
+`China is pressuring Taiwan with "provocative" air force maneuvers near the island and spreading fake news to sow discord during the coronavirus outbreak, security sources and government officials in Taiwan say.`\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-taiwan-china.html?searchResultPosition=9
 
-**Is It a Currency? A Commodity? Bitcoin Has an Identity Crisis**\
-`So bitcoin's a currency, right? Well, yes, it can be used to buy, sell and price goods much like dollars and euros. `\
-https://nytimes.com/reuters/2020/03/03/technology/03reuters-crypto-currencies.html?searchResultPosition=10
+**After Malaysia's Political Turmoil, Questions Over Trials in 1MDB Scandal**\
+`Hours after Malaysia's change of leadership at the weekend, former prime minister Najib Razak posted a picture of himself smiling and giving a thumbs up on social media.`\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-malaysia-politics-najib.html?searchResultPosition=10
 
