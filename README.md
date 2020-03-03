@@ -1,20 +1,20 @@
+**Netanyahu Claims Election Victory on Exit Poll Gains**\
+`Prime Minister Benjamin Netanyahu claimed victory in Monday's Israeli election after exit polls predicted the strongest showing for his Likud party. `\
+https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-israel-election-netanyahu-claim.html?searchResultPosition=6
+
+**Differing U.S. Documents Helped Fuel Afghan Prisoner Dispute**\
+`The United States helped fuel a dispute between the Taliban and the Afghan government over prisoner releases that threatens U.S. peace efforts by using different language in documents it agreed with each side, sources familiar with the matter said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-usa-afghanistan-taliban-prisoners.html?searchResultPosition=7
+
+**Exclusive: U.N. Nuclear Watchdog Plans Alert on Iranian Stonewalling-Diplomats**\
+`The U.N. atomic watchdog policing Iran's nuclear deal with major powers plans to issue an imminent rebuke to Tehran for failing to provide access to one or more sites that are of interest to it, several diplomats who follow the agency said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-iran-nuclear-iaea-exclusive.html?searchResultPosition=8
+
+**Explainer: Israel Voted Three Times in a Year. What Happens Now?**\
+`Israelis turned out to vote in large numbers on Monday to try to break the political deadlock that has seen three closely fought elections since last April. `\
+https://nytimes.com/reuters/2020/03/02/world/middleeast/02reuters-israel-election-explainer.html?searchResultPosition=9
+
 **'Provocative' China Pressures Taiwan With Fighters, Fake News Amid Virus Outbreak**\
 `China is pressuring Taiwan with "provocative" air force maneuvers near the island and spreading fake news to sow discord during the coronavirus outbreak, security sources and government officials in Taiwan say.`\
-https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-taiwan-china.html?searchResultPosition=6
-
-**Porter Scores 21 to Lead Idaho St. Past Weber St. 78-70**\
-`Malik Porter had 21 points as Idaho State ended its 12-game losing streak, defeating Weber State 78-70 on Monday night.`\
-https://nytimes.com/aponline/2020/03/02/sports/ncaabasketball/bc-bkc-idaho-st-weber-st.html?searchResultPosition=7
-
-**WTA Cancels Kunming Open Due to Coronavirus Outbreak**\
-`The women's Kunming Open tennis tournament scheduled to begin in April in China's Anning city has been cancel led due to the coronavirus outbreak, the WTA Tour said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/02/sports/tennis/02reuters-health-coronavirus-china-tennis.html?searchResultPosition=8
-
-**NBA: No High-Fives With Fans, Only Fist-Bumps, Players Told as Virus Precaution**\
-`NBA players should fist-bump with fans instead of high-fiving them and avoid taking items to autograph, the league told teams in a memo listing short-term recommendations to limit the spread of the coronavirus. `\
-https://nytimes.com/reuters/2020/03/02/sports/basketball/02reuters-health-coronavirus-nba.html?searchResultPosition=9
-
-**Vodafone Looks to Space to Bolster Mobile Signal on the Ground**\
-`Mobile operator Vodafone is backing a satellite venture that aims to broadcast a mobile broadband network from space, potentially boosting its 4G - and in the future 5G - coverage for users without the need for a specialized handset.`\
-https://nytimes.com/reuters/2020/03/02/technology/02reuters-vodafone-satellite.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-taiwan-china.html?searchResultPosition=10
 
