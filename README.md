@@ -1,8 +1,8 @@
-**Amazon Prime Will Stream 21 Yankees Games This Season**\
-`Amazon Prime will stream 21 Yankees games to members in New York's broadcast market this season at no additional cost.`\
-https://nytimes.com/aponline/2020/03/03/business/ap-bba-yankees-yes-amazon.html?searchResultPosition=9
+**Cyprus Anticipates Migration Surge After Turkey Opens Border**\
+`Cyprus is ramping up for a surge in illegal immigration after Turkey's president made good on a threat to stop intercepting people trying to reach Europe, Cypriot officials said Tuesday.`\
+https://nytimes.com/aponline/2020/03/03/world/europe/ap-eu-cyprus-migrants.html?searchResultPosition=9
 
-**Faulting the U.S. Response to the Coronavirus**\
-`Health care providers and other readers worry about inadequate testing, quarantines and protective equipment.`\
-https://nytimes.com/2020/03/03/opinion/letters/coronavirus-us.html?searchResultPosition=10
+**Lunch With Freeman Dyson, in 196,883 Dimensions**\
+`“Some mathematicians are birds, others are frogs,” Dr. Dyson once wrote. He was both.`\
+https://nytimes.com/2020/03/03/science/freeman-dyson-institute-for-advanced-study.html?searchResultPosition=10
 
