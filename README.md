@@ -1,8 +1,8 @@
-**Spike Lee 'Done' With Knicks for the Season**\
-`The New York Knicks' abysmal season took yet another unfortunate turn this week after a purported mix-up at Madison Square Garden led to a public rift with one of the team's most famous and stalwart supporters, director Spike Lee.`\
-https://nytimes.com/reuters/2020/03/03/sports/basketball/03reuters-basketball-nba-nyk.html?searchResultPosition=9
+**Google Cancels Its Annual Developer Conference Amid Coronavirus Concerns**\
+`Alphabet Inc said on Tuesday that it has canceled its annual developer event, Google I/O, amid concerns over the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/03/technology/03reuters-health-coronavirus-google.html?searchResultPosition=9
 
-**Iran's Judo World Champion Mollaei to Fight for Mongolia in Tokyo**\
-`World judo champion Saeid Mollaei of Iran, who fled his country last year, will compete at this year's Tokyo Olympics for Mongolia after the International Olympic Committee (IOC) approved his nationality switch on Tuesday.`\
-https://nytimes.com/reuters/2020/03/03/sports/olympics/03reuters-olympics-iran.html?searchResultPosition=10
+**Chinese Cybersecurity Company Accuses CIA of 11-Year-Long Hacking Campaign**\
+`Chinese anti virus firm Qihoo 360 said CIA hackers have spent more than a decade breaking into the Chinese airline industry and other targets, a blunt allegation of American espionage from a Beijing-based firm.`\
+https://nytimes.com/reuters/2020/03/03/technology/03reuters-china-usa-cia.html?searchResultPosition=10
 
