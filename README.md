@@ -1,8 +1,8 @@
-**2 Chinese Men Plead Guilty to Photographing US Navy Base**\
-`Two Chinese men pleaded guilty Tuesday to illegally taking photographs at a Florida Navy base.`\
-https://nytimes.com/aponline/2020/03/03/us/ap-us-chinese-arrested-navy-base.html?searchResultPosition=9
+**Libya Says Oil Shutdown Losses Close to $2.6 Billion**\
+`Economic fallout continues from a protracted blockade of Libya’s vital oil fields and ports, with losses close to $2.6 billion, the national oil corporation announced Tuesday, intensifying the pressure on a U.N.-supported government in the capital.`\
+https://nytimes.com/aponline/2020/03/03/world/middleeast/bc-ml-libya.html?searchResultPosition=9
 
-**Hilary Mantel’s Triumphant New Novel Brings Thomas Cromwell Across the Finish Line**\
-`At the start of “The Mirror and the Light,” the concluding volume of a trilogy that began with “Wolf Hall,” Cromwell is 50 years old, rich beyond all his imagining and very much alone.`\
-https://nytimes.com/2020/03/03/books/review-mirror-light-hilary-mantel.html?searchResultPosition=10
+**Yankees May Begin Season Without Aaron Judge or Giancarlo Stanton**\
+`After working through a raft of injuries last season, the team is once again scrambling to plug holes ahead of opening day.`\
+https://nytimes.com/2020/03/03/sports/baseball/aaron-judge-giancarlo-stanton-yankees.html?searchResultPosition=10
 
