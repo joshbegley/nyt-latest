@@ -1,20 +1,20 @@
-**ECB's Holzmann Sees No Need for Rate Cut to Combat Coronavirus**\
-`European Central Bank policymaker Robert Holzmann said he would not support an interest rate cut to insulate the euro zone from the effects of the coronavirus epidemic but he could consider giving firms ultra cheap loans. `\
-https://nytimes.com/reuters/2020/03/03/business/03reuters-ecb-policy-holzmann.html?searchResultPosition=6
+**Everyone’s a Curator Now**\
+`When everything is “curated,” what does the word even mean?`\
+https://nytimes.com/2020/03/03/style/curate-buzzword.html?searchResultPosition=6
 
-**Kuwait Oil Minister Says Optimistic on Outcome of OPEC Meetings**\
-`Kuwait's oil minister said on Tuesday he is optimistic about the outcome of OPEC meetings this week and continued cooperation among OPEC+ countries, Kuwait state news agency KUNA reported.`\
-https://nytimes.com/reuters/2020/03/03/business/03reuters-oil-opec-kuwait.html?searchResultPosition=7
+**As Gymnasts Seek Answers, They Are Only Offered Money**\
+`Despite multiple investigations and a settlement offer worth millions of dollars, Simone Biles, Aly Raisman and many other abuse victims feel justice is a long way away.`\
+https://nytimes.com/2020/03/03/sports/olympics/biles-gymnastics-settlement-nassar.html?searchResultPosition=7
 
-**Kremlin Stays Silent on Russia Oil Cut Plans Ahead of OPEC+ Meeting**\
-`The Kremlin told reporters on Tuesday it would not say whether Moscow was ready to make additional oil output cuts as part of the cooperation between OPEC and non-OPEC countries and said it was necessary to wait for their meeting later this week.`\
-https://nytimes.com/reuters/2020/03/03/business/03reuters-oil-opec-kremlin.html?searchResultPosition=8
+**Futures Traders Greet Fed Rate Cut With Bets on More to Come**\
+`Traders of futures contracts tied to the Federal Reserve's policy rate reacted to a sooner-than-expected reduction in borrowing costs Tuesday with bets on more to come as the central bank moves to try to shield the U.S. economy from the effects of the new coronavirus.`\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-usa-fed-futures.html?searchResultPosition=8
 
-**Miu Miu: Fall 2020**\
-`See the looks from the Miu Miu: Fall 2020 Collection.`\
-https://nytimes.com/slideshow/2020/03/03/fashion/runway-womens/miu-miu-fall-2020.html?searchResultPosition=9
+**Fed Slashes Rates in Emergency Move to Thwart Coronavirus Outbreak Risks**\
+`The U.S. Federal Reserve cut interest rates on Tuesday in an emergency move designed to shield the world's largest economy from the impact of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-usa-fed.html?searchResultPosition=9
 
-**When Classical Composers Did the Fox Trot**\
-`Listen to Jazz Age composers try their hand at the pop styles of the day.`\
-https://nytimes.com/2020/03/03/arts/music/krenek-classical-jazz.html?searchResultPosition=10
+**Explainer: What's at Stake on Super Tuesday for U.S. Democrats**\
+`Fourteen states and one U.S. territory are hosting Super Tuesday primary elections, a flurry that could bring more clarity about which Democratic presidential contender voters prefer to challenge Republican President Donald Trump in November.`\
+https://nytimes.com/reuters/2020/03/03/us/politics/03reuters-usa-election-super-tuesday-explainer.html?searchResultPosition=10
 
