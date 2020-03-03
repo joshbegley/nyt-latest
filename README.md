@@ -1,20 +1,20 @@
+**Hit by Power Shortages, South Africa's Economy in Recession**\
+`Widespread power cuts are blamed for pushing South Africa's economy, the continent's most industrialized, into recession, according to official statistics released Tuesday.`\
+https://nytimes.com/aponline/2020/03/03/business/bc-af-south-africa-recession.html?searchResultPosition=6
+
+**Turkey Says Syrian Government Warplane Shot Down**\
+`The Turkish Defence Ministry said on Tuesday that a warplane of the Syrian government forces had been shot down in the course of a Turkish-led military offensive launched in northwest Syria to push back the forces of President Bashar al-Assad.`\
+https://nytimes.com/reuters/2020/03/03/world/middleeast/03reuters-syria-security-turkey-warplane.html?searchResultPosition=7
+
+**Belarus' Lukashenko Appoints New Deputy PM as Oil Row Drags On**\
+`Belarusian President Alexander Lukashenko on Tuesday appointed a new deputy prime minister to oversee the country's petrochemical industry as a dispute with neighboring Russia over oil supply terms drags on. `\
+https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-belarus-oil.html?searchResultPosition=8
+
+**Official Says China's Hubei Province Will Continue With Strict Measures to Curb Coronavirus**\
+`An official at Hubei's health commission said the province should continue with the strictest measures in curbing the coronavirus, and should not relax. `\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-hubei.html?searchResultPosition=9
+
 **Russia Is Hoping to Minimize Risk of Clash With Turkey in Syria: Kremlin**\
 `The Kremlin said on Tuesday Russia was hoping to minimize the risk of a direct clash with Turkey in Syria even though soldiers from both countries were in close proximity in Idlib region on different sides of a live conflict.`\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-syria-security-russia-turkey.html?searchResultPosition=6
-
-**Jailed British-Iranian Zaghari-Ratcliffe in Good Health, Tehran Says**\
-`Jailed British-Iranian charity worker Nazanin Zaghari-Ratcliffe is in good health, Iran's judiciary spokesman said on Tuesday, after her husband said on Saturday he believed she had contracted the coronavirus in prison.`\
-https://nytimes.com/reuters/2020/03/03/world/middleeast/03reuters-iran-britain-zaghari-ratcliffe.html?searchResultPosition=7
-
-**South Korean President Declares War on Coronavirus as Sect Leader Tests Negative**\
-`South Korea's president declared war on the coronavirus on Tuesday, ordering additional hospital beds and more face masks to be made available as the number of cases rose by 974 in the worst epidemic of any nation outside China.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-southkorea.html?searchResultPosition=8
-
-**EU States Call for Speedy 2030 Climate Plan Ahead of U.N. Climate Summit: Letter**\
-`Twelve EU states are calling for the European Commission to speed the process of setting a new 2030 climate target to serve as an ambitious example at the next global climate summit, according to a letter to the Commission seen by Reuters. `\
-https://nytimes.com/reuters/2020/03/03/us/03reuters-climate-change-eu.html?searchResultPosition=9
-
-**Kremlin 'Strongly Rejects' U.N. Allegations That Russia Committed War Crimes in Syria in 2019**\
-`The Kremlin on Tuesday rejected allegations by the United Nations that Russia may have committed war crimes in Syria last year, saying the U.N. investigators are in no position to know what is happening on the ground. `\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-syria-security-un-kremlin.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-syria-security-russia-turkey.html?searchResultPosition=10
 
