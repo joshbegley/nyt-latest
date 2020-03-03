@@ -1,20 +1,20 @@
-**Musk Tweets Support for Dorsey Remaining as Twitter CEO**\
-`Elon Musk said late on Monday he supported Jack Dorsey remaining as Twitter Inc's chief executive officer, two days after reports that activist investor Elliott Management Corp has pushed for his removal from the role.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-twitter-elliott-musk.html?searchResultPosition=6
+**Draisaitl Has 4 Goals, 5 Points as Oilers Rout Predators 8-3**\
+`Leon Draisaitl had the first four-goal game of his career and added an assist as the Edmonton Oilers routed the Nashville Predators 8-3 on Monday night to sweep the season series.`\
+https://nytimes.com/aponline/2020/03/02/sports/hockey/bc-hkn-oilers-predators.html?searchResultPosition=6
 
-**GFL Raises $1.4 Billion in IPO Amid Volatile Markets**\
-`GFL Environmental Inc on Monday raised about $1.4 billion in its initial public offering, pricing it below the target range in a conservative step to ride out market volatility in the wake of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-gfl-environmental-ipo.html?searchResultPosition=7
+**Top Los Angeles Prosecutor Apologizes After Husband Points Gun at Black Lives Matter Activists**\
+`Los Angeles County District Attorney Jackie Lacey delivered an emotional apology on behalf of her husband on Monday, hours after he pointed a gun at Black Lives Matter protesters gathered outside the couple's home and threatened to shoot them.`\
+https://nytimes.com/reuters/2020/03/02/us/02reuters-crime-los-angeles-district-attorney.html?searchResultPosition=7
 
-**NC Central Beats Bethune-Cookman 71-68 in OT**\
-`C.J. Keyser scored 15 points, including a go-ahead layup with 1:23 left in overtime, and North Carolina Central beat Bethune-Cookman 71-68 on Monday night to remain undefeated at home.`\
-https://nytimes.com/aponline/2020/03/02/sports/ncaabasketball/bc-bkc-bethune-cookman-nc-central.html?searchResultPosition=8
+**Tencent Extends Warranty for Nintendo Switches in China as Virus Hits Sales**\
+`Chinese tech giant Tencent said on Tuesday it would extend warranty for Nintendo Switches purchased in China via official channels before March 31 by six months as sales have been hit by the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-tencent.html?searchResultPosition=8
 
-**Top Central Banks Appear Primed to Act to Combat Coronavirus Risk**\
-`The world's top three central banks look set to take steps to limit the economic damage from the fast-spreading coronavirus, with the heads of the European Central Bank and Bank of Japan issuing emergency statements on Monday that echoed one from U.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-centralbanks.html?searchResultPosition=9
+**Trump Withdraws Nomination of Pentagon Official Who Questioned Ukraine Aid Freeze**\
+`U.S. President Donald Trump on Monday withdrew the nomination of Elaine McCusker to a senior Pentagon post, after reports that she had questioned the suspension of military aid to Ukraine, a key element in the inquiry leading to Trump's impeachment.`\
+https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-usa-trump-pentagon.html?searchResultPosition=9
 
-**South Korea Sect Leader Tests Negative for Coronavirus as 600 New Cases Reported**\
-`South Korean health authorities said on Tuesday the leader of a religious sect has tested negative for coronavirus, after he was taken to a "drive-through" test site late on Monday amid scrutiny over how his church became the center of the outbreak.`\
-https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-southkorea.html?searchResultPosition=10
+**Google's Self-Driving Sister, Waymo, Gets First Outside Investors**\
+`Waymo, the self-driving unit of Alphabet Inc, said on Monday it had raised $2.25 billion in its first external investment round and expects to add more outside investors.`\
+https://nytimes.com/reuters/2020/03/02/business/02reuters-waymo-financing.html?searchResultPosition=10
 
