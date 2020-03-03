@@ -1,8 +1,8 @@
-**Trump Speaks to Taliban Leader as Prisoner Feud Threatens Afghan Peace Plan**\
-`U.S. President Donald Trump spoke by telephone with chief Taliban negotiator Mullah Baradar Akhund on Tuesday, the first known direct communication between a U.S. leader and a top Taliban official, as a dispute over a prisoner release threatened a U.S.-led effort to bring peace to Afghanistan.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-usa-afghanistan-taliban.html?searchResultPosition=9
+**Coronavirus Briefing: What Happened Today**\
+`U.S. officials ramp up testing, after weeks of setbacks and missteps.`\
+https://nytimes.com/2020/03/03/briefing/coronavirus-briefing-what-happened-today.html?searchResultPosition=9
 
-**What Happens in Vegas if No One Stays in Vegas?**\
-`Companies that rely on people traveling around the globe for business and pleasure are struggling to predict exactly how the coronavirus will ultimately affect them.`\
-https://nytimes.com/2020/03/03/business/coronavirus-business-travel.html?searchResultPosition=10
+**Ace of Base: Why Netanyahu Seems Unsinkable**\
+`The Israeli prime minister’s fervent base can make President Trump’s look pallid. And they don’t care that he has been charged with corruption.`\
+https://nytimes.com/2020/03/03/world/middleeast/netanyahu-election-mizrahi.html?searchResultPosition=10
 
