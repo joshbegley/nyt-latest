@@ -1,8 +1,8 @@
-**The Top iPhone and iPad Apps on App Store**\
-`Top Paid iPhone Apps:`\
-https://nytimes.com/aponline/2020/03/03/business/ap-us-itunes-apps-top-10.html?searchResultPosition=9
+**Review: A New ‘Flying Dutchman’ Makes Landfall at the Met Opera**\
+`François Girard’s ultimately frustrating production presents the story as taking place within its heroine’s fevered imagination.`\
+https://nytimes.com/2020/03/03/arts/music/flying-dutchman-met-opera-review.html?searchResultPosition=9
 
-**Bloomberg Says Contested Convention 'Only Way I Can Win'**\
-`Mike Bloomberg acknowledged Tuesday he’s aiming for what some Democrats say would be the party’s worst nightmare: A contested convention.`\
-https://nytimes.com/aponline/2020/03/03/us/politics/ap-us-election-2020-bloomberg-.html?searchResultPosition=10
+**The Fed Has No Tools for a Pandemic. Here’s Why It Acted Anyway.**\
+`Think of its role by imagining a town with a looming crisis: a major hurricane.`\
+https://nytimes.com/2020/03/03/upshot/federal-reserve-coronavirus-pandemic.html?searchResultPosition=10
 
