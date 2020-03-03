@@ -1,20 +1,20 @@
-**Net Group Says Wikipedia Disrupted in Iran Amid Coronavirus**\
-`Wikipedia's Farsi-language website appears to be disrupted in Iran after a close confidant to the country's supreme leader died of the new coronavirus, an activist group said Tuesday, as the Islamic Republic suffers the highest death rate from the epidemic outside of China.`\
-https://nytimes.com/aponline/2020/03/03/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=6
+**The Overlooked Voters Who Could Decide the 2020 Race**\
+`Latino voters in California, Texas and around the country are invested in picking someone who can beat President Trump, though they don’t all agree on who that is.`\
+https://nytimes.com/2020/03/03/us/politics/latino-voters-california-texas-super-tuesday.html?searchResultPosition=6
 
-**National Weather Service Confirms Tornado Near Nashville**\
-`The National Weather Service has confirmed a tornado touched down near downtown Nashville early Tuesday morning. `\
-https://nytimes.com/aponline/2020/03/03/us/ap-us-severe-weather-tennessee.html?searchResultPosition=7
+**Elizabeth Warren: A Populist for the Professional Class**\
+`White, college-educated voters swooned. But her branding as the candidate with “a plan for that” eclipsed her own up-from-the-bootstraps biography.`\
+https://nytimes.com/2020/03/03/us/politics/elizabeth-warren-super-tuesday.html?searchResultPosition=7
 
-**Israeli Exit Polls: Netanyahu Ahead, but Short of Majority**\
-`Israel's embattled Prime Minister Benjamin Netanyahu faced an uncertain path to staying in office on Tuesday, even as preliminary results showed his Likud party pulling ahead of its opponents in the country's third election in less than a year. `\
-https://nytimes.com/aponline/2020/03/03/world/middleeast/ap-ml-israel-election.html?searchResultPosition=8
+**Bloomberg’s Organization Is Like No Other in Politics**\
+`With unlimited funds and thousands of paid workers, the former New York City mayor is staking out a new path to the White House.`\
+https://nytimes.com/2020/03/03/us/politics/michael-bloomberg-2020-campaign.html?searchResultPosition=8
 
-**Late Night Bids Adieu to Buttigieg, Klobuchar and ‘Poor’ Tom Steyer**\
-`“We all know once a gay guy sets a trend, white women aren’t going to be far behind,” Trevor Noah joked of Pete Buttigieg on Monday. “So Klobuchar dropped out, too.”`\
-https://nytimes.com/2020/03/03/arts/television/late-night-biden-buttigieg-klobuchar-steyer.html?searchResultPosition=9
+**Want Clarity on the Sanders-Biden Face-Off? North Carolina May Provide It**\
+`The state, which awards the third most delegates on Super Tuesday, will help show whether Mr. Biden can galvanize enough moderates to deprive Mr. Sanders of an overwhelming lead.`\
+https://nytimes.com/2020/03/03/us/politics/bernie-sanders-joe-biden-north-carolina.html?searchResultPosition=9
 
-**Tokyo Falls Back, Other Asian Markets Track Wall St Gains**\
-`Shares in most Asian markets tracked overnight gains on Wall Street, but Tokyo's benchmark fell back Tuesday as gnawing concerns over the virus outbreak chilled buying sentiment. `\
-https://nytimes.com/aponline/2020/03/03/business/bc-financial-markets.html?searchResultPosition=10
+**He Ran for President. Now He’s Politicking for His Wife in Brooklyn.**\
+`Bill de Blasio, months after a failed White House bid, has made moves that could help Chirlane McCray be elected to a post in Brooklyn.`\
+https://nytimes.com/2020/03/03/nyregion/de-blasio-chirlane-mccray-wife.html?searchResultPosition=10
 
