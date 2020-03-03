@@ -1,8 +1,8 @@
-**As Coronavirus Disrupts Factories, India Curbs Exports of Key Drugs**\
-`The outbreak has hobbled Chinese factories that supply India’s vast drug industry with ingredients for antibiotics and vitamins, raising the prospect of global shortages.`\
-https://nytimes.com/2020/03/03/business/coronavirus-india-drugs.html?searchResultPosition=9
+**Nets' Kyrie Irving Has Surgery for Right Shoulder Injury**\
+`Kyrie Irving underwent surgery Tuesday to repair the injured right shoulder that ended his first season with the Brooklyn Nets after just 20 games.`\
+https://nytimes.com/aponline/2020/03/03/sports/basketball/ap-bkn-nets-irving-surgery.html?searchResultPosition=9
 
-**Cyprus Anticipates Migration Surge After Turkey Opens Border**\
-`Cyprus is ramping up for a surge in illegal immigration after Turkey's president made good on a threat to stop intercepting people trying to reach Europe, Cypriot officials said Tuesday.`\
-https://nytimes.com/aponline/2020/03/03/world/europe/ap-eu-cyprus-migrants.html?searchResultPosition=10
+**Togo’s President Re-elected, According to Final Results**\
+`Togo’s Constitutional Court announced final results Tuesday, confirming the country’s president easily won a fourth term, extending the grip his family has had on power since 1967 as the opposition alleged fraud.`\
+https://nytimes.com/aponline/2020/03/03/business/bc-af-togo-election.html?searchResultPosition=10
 
