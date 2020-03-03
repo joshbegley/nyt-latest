@@ -1,5 +1,5 @@
 **Watch Live: Biden to Hold Rally in Dallas**\
-`Vice President Joseph R. Biden Jr. will address supporters in Dallas, where is expected to receive endorsements from Senator Amy Klobuchar of Minnesota and former Representative Beto O’Rourke of Texas. Former mayor Pete Buttigieg endorsed Mr. Biden earlier in the evening.`\
+`Joseph R. Biden Jr. will address supporters in Dallas, where he is expected to receive endorsements from Amy Klobuchar and Beto O’Rourke. Pete Buttigieg endorsed Mr. Biden earlier in the evening.`\
 https://nytimes.com/video/us/100000007012000/joe-biden-buttigieg-klobuchar.html?searchResultPosition=6
 
 **First Ride Featuring Mickey Mouse Debuts at Disney World**\
