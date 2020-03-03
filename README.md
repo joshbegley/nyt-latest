@@ -1,8 +1,8 @@
-**Doubts Linger as Democrats Vote: ‘I Don’t Think We Have a Perfect Candidate’**\
-`Many Super Tuesday voters across the nation made last-minute decisions, sometimes on the way to the polls. Even afterward, some weren’t sure they had chosen correctly.`\
-https://nytimes.com/2020/03/03/us/politics/super-tuesday-election-vote.html?searchResultPosition=9
+**Latest Coronavirus News to Drive Next Fed Decision: Mester**\
+`The Federal Reserve's next policy decision in two weeks' time will be driven by the latest news on how the coronavirus is affecting the economy, Cleveland Federal Reserve Bank President Loretta Mester said on Tuesday after an emergency rate cut.`\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-usa-fed-mester-outlook.html?searchResultPosition=9
 
-**Chile Records First Confirmed Case of Coronavirus: Health Ministry**\
-`Chile recorded the first confirmed case of coronavirus in the country, the health ministry said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/03/world/americas/03reuters-health-coronavirus-chile.html?searchResultPosition=10
+**WeWork Offloads Office Management Platform Managed by Q to Eden**\
+`Office management platform Eden said on Tuesday it has acquired shared workplace operator WeWork's Managed by Q for an undisclosed sum.`\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-wework-divestiture.html?searchResultPosition=10
 
