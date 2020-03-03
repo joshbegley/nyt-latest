@@ -1,8 +1,8 @@
-**Ireland Confirms Second Case of Coronavirus**\
-`Irish authorities have confirmed a second case of coronavirus, a woman in the east of the country who recently traveled to Italy, Ireland's Department of Health announced on Tuesday. `\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-ireland.html?searchResultPosition=9
+**Doubts Linger as Democrats Vote: ‘I Don’t Think We Have a Perfect Candidate’**\
+`Many Super Tuesday voters across the nation made last-minute decisions, sometimes on the way to the polls. Even afterward, some weren’t sure they had chosen correctly.`\
+https://nytimes.com/2020/03/03/us/politics/super-tuesday-election-vote.html?searchResultPosition=9
 
-**Two in Five U.S. Diabetics Struggle With Medical Bills**\
-`Many working-age U.S. adults with diabetes struggle to pay their medical bills, according to a study that suggests health insurance offers inadequate protection from financial hardship. `\
-https://nytimes.com/reuters/2020/03/03/us/03reuters-health-diabetes-finances.html?searchResultPosition=10
+**Chile Records First Confirmed Case of Coronavirus: Health Ministry**\
+`Chile recorded the first confirmed case of coronavirus in the country, the health ministry said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/03/world/americas/03reuters-health-coronavirus-chile.html?searchResultPosition=10
 
