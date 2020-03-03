@@ -1,8 +1,8 @@
-**Kim’s Sister Slams South Korea in 1st-Ever Statement, Another Sign of Chilling Ties**\
-`The leader’s sister and one his closest aides, Kim Yo-jong, called the South “idiotic” after it denounced the North’s weapons test.`\
-https://nytimes.com/2020/03/03/world/asia/kim-sister-korea.html?searchResultPosition=9
+**Army Beginning Increased Virus Screening for New Recruits**\
+`The U.S. Army on Tuesday began increased health screenings for all new soldier recruits arriving at the four basic training centers around the country in order to detect the new coronavirus, a senior commander said.`\
+https://nytimes.com/aponline/2020/03/03/us/politics/ap-us-coronavirus-army-recruits.html?searchResultPosition=9
 
-**Fed Announces Rate Cuts in Response to Coronavirus**\
-`Jerome H. Powell, chairman of the Federal Reserve, held a news conference addressing emergency interest rate cuts in response to coronavirus fears.`\
-https://nytimes.com/video/us/politics/100000007013477/coronavirus-fed-rates.html?searchResultPosition=10
+**Falling Ice Kills Woman Just After She Discusses Mortality**\
+`A couple who has been married for nearly 50 years had just enjoyed a cocktail on their deck, where they talked about their inevitable deaths.`\
+https://nytimes.com/aponline/2020/03/03/us/ap-us-falling-ice-death.html?searchResultPosition=10
 
