@@ -1,20 +1,20 @@
-**World Finance Officials to Consider How to Cushion Economies Against Coronavirus**\
-`G7 finance officials will on Tuesday discuss ways to bolster their economies against the impact of the spreading coronavirus outbreak, but are not expected to specifically call for new spending or coordinated interest rate cuts, a G7 official said.`\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-health-coronavirus.html?searchResultPosition=6
+**'Unprecedented' Mental Health Issues Seen in Hong Kong Amid Virus Fears**\
+`As Hong Kong tries to contain the coronavirus outbreak, medical experts say many in the Asian financial hub are reeling from increased anxiety and an unprecedented level of mental health issues.`\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-hongkong-mental-health.html?searchResultPosition=6
 
-**Ukraine Reports First Coronavirus Case-Health Official**\
-`Ukraine has its first confirmed coronavirus case, Ihor Kuzin, the acting head of the Health Ministry's public health center, told Reuters on Tuesday. `\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-health-coronavirus-ukraine.html?searchResultPosition=7
+**Qatar Defense Exhibition Canceled as Coronavirus Spreads in Gulf**\
+`Qatar's Dimdex defense exhibition due to be held this month has been canceled as the coronavirus outbreak spreads throughout the Gulf and wider Middle East.`\
+https://nytimes.com/reuters/2020/03/03/world/middleeast/03reuters-health-coronavirus-qatar.html?searchResultPosition=7
 
-**Germany Reports 31 New Coronavirus Infections**\
-`The number of confirmed coronavirus cases in Germany rose to 188 on Tuesday, up from 157 on Monday afternoon, the Robert Koch Institute (RKI) said.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-germany-cases.html?searchResultPosition=8
+**Beijing to Quarantine Travelers From South Korea, Japan, Iran and Italy**\
+`All travelers entering Beijing from the virus hotspots of South Korea, Japan, Iran and Italy will have to be quarantined for 14 days, the Deputy Secretary General of the Beijing Municipal Government, Chen Bei, said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-china-beijing.html?searchResultPosition=8
 
-**Factbox: Countries Evacuating Nationals From Coronavirus-Hit Areas**\
-`A growing number of countries around the world have been evacuating or planning to evacuate diplomatic staff and citizens from areas hit by the new coronavirus.`\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-china-health-evacuation-factbox.html?searchResultPosition=9
+**J&J Ordered to Pay $1.7 Million to Three Australian Women in Pelvic Mesh Class Action**\
+`An Australian court on Tuesday ordered Johnson & Johnson  to pay three women a total of A$2.6 million ($1.7 million) plus legal costs as compensation for misleading patients and surgeons about the risks of its pelvic mesh implants.`\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-johnson-johnson-australia-classaction.html?searchResultPosition=9
 
-**Shanghai Says Visitors Entering From Virus-Hit Countries Must Be Quarantined**\
-`Shanghai will require everyone entering the city from countries with "relatively serious virus conditions" to submit to 14 days of quarantine, an official said on Tuesday. `\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-coronavirus-health-china-shanghai.html?searchResultPosition=10
+**China Allocated $15.6 Billion in Epidemic Prevention Funds by March 2-Finance Ministry Official**\
+`Chinese governments of every level had allocated a total of 108.75 billion yuan ($15.58 billion) in special funds by March 2 to prevent the spread of the coronavirus epidemic, a finance ministry official said on Tuesday. `\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-health-coronavirus-china-funds.html?searchResultPosition=10
 
