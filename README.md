@@ -1,8 +1,8 @@
-**Army Beginning Increased Virus Screening for New Recruits**\
-`The U.S. Army on Tuesday began increased health screenings for all new soldier recruits arriving at the four basic training centers around the country in order to detect the new coronavirus, a senior commander said.`\
-https://nytimes.com/aponline/2020/03/03/us/politics/ap-us-coronavirus-army-recruits.html?searchResultPosition=9
+**In Congress, Questions About Overdue Testing for Coronavirus**\
+`Lawmakers on Tuesday expressed skepticism about U.S. health officials' claims that long-overdue testing for the new coronavirus would be widely available by the end of the week.`\
+https://nytimes.com/aponline/2020/03/03/health/ap-us-med-virus-outbreak-congress.html?searchResultPosition=9
 
-**Falling Ice Kills Woman Just After She Discusses Mortality**\
-`A couple who has been married for nearly 50 years had just enjoyed a cocktail on their deck, where they talked about their inevitable deaths.`\
-https://nytimes.com/aponline/2020/03/03/us/ap-us-falling-ice-death.html?searchResultPosition=10
+**3 Professional Frisbee Players Die in Michigan Highway Crash**\
+`Three professional Frisbee players have died after they were involved in car crash en route to a team practice in Detroit, authorities said.`\
+https://nytimes.com/aponline/2020/03/03/sports/ap-us-fatal-crash-frisbee-players.html?searchResultPosition=10
 
