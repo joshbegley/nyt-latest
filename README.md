@@ -1,8 +1,8 @@
-**Ukraine's Prime Minister Submits Resignation, Lawmakers Say**\
-`Lawmakers in Ukraine said Tuesday the parliament is gearing up for a vote to accept the resignation of the nation's prime minister.`\
-https://nytimes.com/aponline/2020/03/03/business/bc-eu-ukraine-politics.html?searchResultPosition=9
+**Bloomberg Says Contested Convention 'Only Way I Can Win'**\
+`Mike Bloomberg acknowledged Tuesday he’s aiming for what some Democrats say would be the party’s worst nightmare: A contested convention.`\
+https://nytimes.com/aponline/2020/03/03/us/politics/ap-us-election-2020-bloomberg-.html?searchResultPosition=9
 
-**Bill Would Expand Maryland Governor's Powers to Fight Crime**\
-`Maryland's governor would have expanded powers to declare a violent crime emergency under a measure proposed Tuesday by Senate Republicans in a bid to curb Baltimore's high homicide rate. `\
-https://nytimes.com/aponline/2020/03/03/us/ap-us-baltimore-crime-emergency-powers.html?searchResultPosition=10
+**Tensions Rise as U.S. Death Toll From Coronavirus Reaches 7**\
+`Tensions over how to contain the fast-spreading coronavirus intensified Tuesday in the United States as the death toll climbed to seven and lawmakers expressed doubts about the government's ability to ramp up testing fast enough to deal with the crisis.`\
+https://nytimes.com/aponline/2020/03/03/us/ap-us-virus-outbreak-us.html?searchResultPosition=10
 
