@@ -1,8 +1,8 @@
-**Senator Rick Scott: ‘Communist China Cannot Be Trusted’**\
-`The Florida Republican takes strong issue with an Op-Ed article by a Chinese official about Beijing’s response to the coronavirus. Also: The role of hospitals in their communities.`\
-https://nytimes.com/2020/03/03/opinion/letters/china-coronavirus.html?searchResultPosition=9
+**The Best Movies and TV Shows New to Netflix, Amazon and Stan in Australia in March**\
+`Our picks for March, including ‘Lost Girls,’ ‘Ozark’ and ‘Making the Cut’`\
+https://nytimes.com/2020/03/03/arts/television/movies-tv-netflix-amazon-and-stan-australia-in-march.html?searchResultPosition=9
 
-**VA Sued Over Veteran's Death From Wrongful Insulin Injection**\
-`A woman is suing the federal government over the 2018 death of her father from a wrongful insulin injection at a West Virginia veterans hospital.`\
-https://nytimes.com/aponline/2020/03/03/us/ap-us-va-deaths-west-virginia.html?searchResultPosition=10
+**Oklahoma College Recruiter Lined Up High School Students by Skin Color and Hair Type**\
+`Cedric Sunray, an Oklahoma Christian University recruiter, said he had no intention of “promoting a racist agenda” with his presentation to students.`\
+https://nytimes.com/2020/03/03/us/racist-Oklahoma-Christian-University-recruiter.html?searchResultPosition=10
 
