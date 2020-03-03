@@ -1,8 +1,8 @@
-**Swiss National Bank Mulls Coronavirus Response Amid Recession Fears: Maechler**\
-`The Swiss National Bank (SNB) is mulling its response to the coronavirus outbreak as it continues to study whether the epidemic will be a short-lived phenomenon or if it will send global growth into a lasting tailspin, a top official said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-swiss-snb-maechler.html?searchResultPosition=9
+**Trump Campaign Sues Washington Post Over Opinion Pieces, After Suing NY Times**\
+`U.S. President Donald Trump's re-election campaign sued the Washington Post for libel on Tuesday over two opinion pieces that it said suggested improper ties between the campaign and Russia, North Korea or both.`\
+https://nytimes.com/reuters/2020/03/03/us/politics/03reuters-usa-election-trump-lawsuit.html?searchResultPosition=9
 
-**World Bank Announces Up to $12 Billion in Immediate Funds for Coronavirus**\
-`The World Bank on Tuesday announced an initial $12 billion in immediate funds to assist countries grappling with the health and economic impacts of the coronavirus virus outbreak that has spread quickly from China to over 60 countries. `\
-https://nytimes.com/reuters/2020/03/03/us/03reuters-health-coronavirus-world-bank-announcement.html?searchResultPosition=10
+**Sparks Fly at Budget Hearing as Mnuchin Grilled About Trump Tax Returns**\
+`U.S. Treasury Secretary Steven Mnuchin on Tuesday denied he was breaking the law by refusing to turn over President Donald Trump's tax returns and took aim at a Democratic lawmaker who has continued to press for the documents.`\
+https://nytimes.com/reuters/2020/03/03/us/politics/03reuters-usa-trump-taxes.html?searchResultPosition=10
 
