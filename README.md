@@ -1,20 +1,20 @@
-**Medication Fog Can Mimic or Worsen Dementia in the Elderly**\
-`Claire Dinneen's daughters thought that worsening dementia was causing her growing confusion, but her doctor suspected something else.`\
-https://nytimes.com/aponline/2020/03/03/health/ap-us-med-seniors-medication-fog.html?searchResultPosition=6
+**Japan Confirms Two New Coronavirus Infections in Osaka: Kyodo**\
+`Japan on Tuesday confirmed two new coronavirus infections in Osaka, western Japan, a man in his 50s and a woman in her 40s, Kyodo newswire reported.`\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-japan-osaka.html?searchResultPosition=6
 
-**French Government to Push Through Divisive Pension Changes**\
-`French President Emmanuel Macron’s government is set to push through divisive pension changes in the lower house of parliament amid protests from opposition lawmakers and labor unions.`\
-https://nytimes.com/aponline/2020/03/03/business/bc-eu-france-pension-overhaul.html?searchResultPosition=7
+**Unlikely UK Will Lock Down Cities to Prevent Coronavirus Spread: Chief Medical Officer**\
+`It seems unlikely Britain will lock down any cities to prevent the spread of coronavirus but the government will keep all options available, England's Chief Medical Officer Chris Whitty said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-health-coronavirus-britain-whitty.html?searchResultPosition=7
 
-**Justices OK State Charges for Immigrants Who Use Fake IDs**\
-`The Supreme Court made it easier Tuesday for states to prosecute immigrants who use fake Social Security numbers to get a job.`\
-https://nytimes.com/aponline/2020/03/03/us/politics/ap-us-supreme-court-immigration-states.html?searchResultPosition=8
+**China Reports New African Swine Fever Case in Wild Boar in Hubei Province**\
+`China's agriculture ministry said on Tuesday it had detected the African swine fever virus in wild boar in Hubei province.`\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-china-swinefever.html?searchResultPosition=8
 
-**Olympic Flame-Lighting in Greece to Proceed Despite Virus**\
-`Next week's flame-lighting ceremony for the 2020 Tokyo Olympics will go ahead in Greece despite concerns about the virus outbreak, organizers said Tuesday.`\
-https://nytimes.com/aponline/2020/03/03/sports/olympics/ap-oly-tokyo-games-flame.html?searchResultPosition=9
+**Myanmar Turns Away Cruise Ship Over Coronavirus Fears**\
+`Myanmar stopped a cruise boat carrying hundreds of tourists from docking in the country, a senior tourism official said on Tuesday, citing fears passengers could be carrying the coronavirus.                        `\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-myanmar-ship.html?searchResultPosition=9
 
-**Greens Lawmakers Rue Lack of Ambition in EU Climate Law**\
-`As the European Union prepares to unveil plans for a climate law to cut greenhouse gas emissions to zero by mid-century, Green members of the European Parliament are already ruing its lack of ambition, urging the 27-nation bloc to raise its 2030 climate targets.`\
-https://nytimes.com/aponline/2020/03/03/business/bc-eu-europe-climate-law.html?searchResultPosition=10
+**Japan Confirms New Coronavirus Infection in Kobe: Kyodo**\
+`Japan on Tuesday confirmed a new coronavirus infection in Kobe, western Japan, after a man in his forties tested positive for the disease, Kyodo newswire reported. `\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-japan-kobe.html?searchResultPosition=10
 
