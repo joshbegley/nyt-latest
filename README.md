@@ -1,20 +1,20 @@
+**What to Know About Coronavirus in New York**\
+`After a Manhattan woman tested positive, the governor said it was “inevitable” that the outbreak would spread.`\
+https://nytimes.com/2020/03/03/nyregion/covid-19-new-york.html?searchResultPosition=6
+
+**Could the Coronavirus Cause a Recession (and How)?**\
+`The outbreak is disrupting supply chains and ricocheting through financial markets. But a recession is unlikely until consumers react.`\
+https://nytimes.com/2020/03/03/business/economy/coronavirus-recession.html?searchResultPosition=7
+
+**AP PHOTOS: Moroccan Fisherwomen Venture Into Man's Realm**\
+`Fatima Mekhnas’ boots sink into the golden sand as she surveys the last beach in Morocco’s north. Optimism glows from her eyes, a reflection of a dream fulfilled after decades of yearning for a spot on a fishing boat in the Mediterranean. `\
+https://nytimes.com/aponline/2020/03/03/world/middleeast/ap-ml-morocco-fisherwomen-photo-gallery.html?searchResultPosition=8
+
 **‘The Night Watchman,’ by Louise Erdrich: An Excerpt**\
 `An excerpt from “The Night Watchman,” by Louise Erdrich`\
-https://nytimes.com/2020/03/03/books/review/the-night-watchman-by-louise-erdrich-an-excerpt.html?searchResultPosition=6
+https://nytimes.com/2020/03/03/books/review/the-night-watchman-by-louise-erdrich-an-excerpt.html?searchResultPosition=9
 
 **How We Got to Super Tuesday: 6 Campaigns in Photos**\
 `The map of the Democratic primary gets more expansive on Tuesday after a month of focusing on four states. New York Times photographers have been followed candidates every step of the way.`\
-https://nytimes.com/2020/03/03/us/politics/super-tuesday-candidates-campaigns.html?searchResultPosition=7
-
-**Texas Primaries Will Help Shape the Race for Congress. Here’s What to Watch.**\
-`The slate of competitive congressional primaries could showcase the strength of party establishment and the power of a presidential endorsement.`\
-https://nytimes.com/2020/03/03/us/politics/texas-primary-races-super-tuesday.html?searchResultPosition=8
-
-**How to Get the Bedroom of Your Dreams**\
-`It’s not difficult to create a room where you can get a good night’s sleep — if you follow a few simple steps.`\
-https://nytimes.com/2020/03/03/realestate/how-to-get-the-bedroom-of-your-dreams.html?searchResultPosition=9
-
-**5 Caribbean Islands Where You Can Go Beyond the Beach**\
-`And we won’t judge if you head back for a swim and a piña colada at the end of the day.`\
-https://nytimes.com/2020/03/03/travel/caribbean-islands-stlucia-puerto-rico-martinique-nevis-grenada.html?searchResultPosition=10
+https://nytimes.com/2020/03/03/us/politics/super-tuesday-candidates-campaigns.html?searchResultPosition=10
 
