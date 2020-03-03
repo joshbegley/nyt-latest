@@ -1,20 +1,20 @@
-**Trump Targets Biden Again as Democratic Race Hits Critical Stage**\
-`On the eve of Super Tuesday, the president traveled to North Carolina to once again stage a rally in a state about to hold a Democratic nominating contest and eagerly mocked the candidates.`\
-https://nytimes.com/2020/03/02/us/politics/trump-rally-charlotte-democrats.html?searchResultPosition=6
+**Knicks Hold On to End Rockets' 6-Game Win Streak, 125-123**\
+`Rookie guard RJ Barrett tied his season high with 27 points and the New York Knicks held on to beat Houston 125-123 on Monday night, snapping the Rockets' six-game winning streak.`\
+https://nytimes.com/aponline/2020/03/02/sports/basketball/bc-bkn-rockets-knicks.html?searchResultPosition=6
 
-**McCollum, Trent Help Blazers Rout Magic 130-107**\
-`C.J. McCollum scored 41 points and Gary Trent Jr. added 24 to help the Portland Trail Blazers run away from the Orlando Magic 130-107 on Monday night. `\
-https://nytimes.com/aponline/2020/03/02/sports/basketball/bc-bkn-trail-blazers-magic.html?searchResultPosition=7
+**Heat Stun Bucks 105-89, Holding Antetokounmpo to 13 Points**\
+`The Miami Heat stand alone, the first team to beat the Milwaukee Bucks twice this season.`\
+https://nytimes.com/aponline/2020/03/02/sports/basketball/bc-bkn-bucks-heat.html?searchResultPosition=7
 
-**AP FACT CHECK: Trump's False Assurances on Coronavirus**\
-`President Donald Trump persisted Monday in making false assurances about U.S. preparedness for the coronavirus outbreak and the prospects for a quick vaccine, or even cure.`\
-https://nytimes.com/aponline/2020/03/02/us/politics/ap-us-trump-fact-check.html?searchResultPosition=8
+**Knicks Spike Speculation That Director Lee Was Ejected**\
+`Spike Lee still has his courtside seat, though the New York Knicks had to tell their superfan to find another way to get there.`\
+https://nytimes.com/aponline/2020/03/02/sports/basketball/ap-bkn-knicks-spike-lee.html?searchResultPosition=8
 
-**Five of the Best Interviews From ‘Inside the Actors Studio’**\
-`James Lipton interviewed many acting greats, but it was comedians — and one student — who made for the most memorable moments.`\
-https://nytimes.com/2020/03/02/movies/lipton-best-interviews.html?searchResultPosition=9
+**Recruiter Told Oklahoma Students to Line Up by Skin Color**\
+`A college president has apologized after a recruiter told students at an Oklahoma City high school to line up by the skin color and hair texture.`\
+https://nytimes.com/aponline/2020/03/02/us/ap-us-skin-color-line-up.html?searchResultPosition=9
 
-**Stanley, Boardwork, Zone Help No. 12 Duke Top NC State 88-69**\
-`Freshman Cassius Stanley scored 14 of his 18 points after halftime as No. 12 Duke took over in the second half to beat North Carolina State 88-69 on Monday night.`\
-https://nytimes.com/aponline/2020/03/02/sports/ncaabasketball/bc-bkc-t25-nc-state-duke.html?searchResultPosition=10
+**Nickname in the Museum**\
+`In Lynn Lempel’s puzzle, “the stars govern our conditions.”`\
+https://nytimes.com/2020/03/02/crosswords/daily-puzzle-2020-03-03.html?searchResultPosition=10
 
