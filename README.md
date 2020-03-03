@@ -1,20 +1,20 @@
+**As Coronavirus Hits U.K., Health Workers Fear Getting Sick, and Going Broke**\
+`Low-paid health workers in Britain who could be at risk of contracting the coronavirus say they will show up to work even if they fall ill.`\
+https://nytimes.com/2020/03/03/world/europe/coronavirus-health-workers-uk.html?searchResultPosition=6
+
 **Millennial Money: Credit Card Loyalty Is No Virtue**\
 `Loyalty is often a good thing, but not in a relationship with your credit card. It’s often better to be like the “distracted boyfriend” from the internet meme and use your wandering eye to see if you can do better.`\
-https://nytimes.com/aponline/2020/03/03/business/ap-nerdwallet-millennial-money-card-infidelity.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/03/03/business/ap-nerdwallet-millennial-money-card-infidelity.html?searchResultPosition=7
 
 **The Latest: Obama's Praise for Biden Heard in Robocall**\
 `The latest on the Democratic presidential primary and Super Tuesday (all times local):`\
-https://nytimes.com/aponline/2020/03/03/us/politics/ap-us-election-2020-the-latest.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/03/03/us/politics/ap-us-election-2020-the-latest.html?searchResultPosition=8
 
 **G-7 Major Economies Pledge Cooperation to Deal With Virus**\
 `Seven major economies pledged to use “all appropriate tools" to deal with the spreading coronavirus but announced no immediate actions.`\
-https://nytimes.com/aponline/2020/03/03/business/bc-us-virus-outbreak-economy.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/03/03/business/bc-us-virus-outbreak-economy.html?searchResultPosition=9
 
 **Weekly News Quiz for Students: Coronavirus, Afghanistan, New York State Ban**\
 `How well did you follow the news this past week? How many of these 10 questions can you get right?`\
-https://nytimes.com/interactive/2020/03/03/learning/03Weekly-News-Quiz-for-Students.html?searchResultPosition=9
-
-**It’s Finally Super Tuesday**\
-`Tuesday: We have answers to all your last-minute questions about voting. Also: Coronavirus updates; and a farewell to the founder of Trader Joe’s.`\
-https://nytimes.com/2020/03/03/us/california-primary-super-tuesday.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/03/03/learning/03Weekly-News-Quiz-for-Students.html?searchResultPosition=10
 
