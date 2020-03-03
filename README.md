@@ -1,20 +1,20 @@
-**Powerful Tornado in Nashville Leaves at Least 2 Dead**\
-`The fire department said that it was responding to reports of at least 40 collapsed structures around the city.`\
-https://nytimes.com/2020/03/03/us/nashville-tornado.html?searchResultPosition=6
+**World Finance Officials to Consider How to Cushion Economies Against Coronavirus**\
+`G7 finance officials will on Tuesday discuss ways to bolster their economies against the impact of the spreading coronavirus outbreak, but are not expected to specifically call for new spending or coordinated interest rate cuts, a G7 official said.`\
+https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-health-coronavirus.html?searchResultPosition=6
 
-**World Pharma Supplier India Restricts Export of Some Ingredients, Drugs**\
-`India, the world's main supplier of generic drugs, on Tuesday restricted the export of 26 pharmaceutical ingredients and drugs made from them, including paracetamol, as concern mounted the coronavirus outbreak could turn into a pandemic.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-india.html?searchResultPosition=7
+**Ukraine Reports First Coronavirus Case-Health Official**\
+`Ukraine has its first confirmed coronavirus case, Ihor Kuzin, the acting head of the Health Ministry's public health center, told Reuters on Tuesday. `\
+https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-health-coronavirus-ukraine.html?searchResultPosition=7
 
-**Japan Reports New Coronavirus Infection in Yokohama-Kyodo**\
-`Japan on Tuesday reported a fresh coronavirus infection in Yokohama city close to Tokyo, a woman in her twenties who is the granddaughter of a woman earlier confirmed to have the virus, Kyodo newsire reported.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-japan.html?searchResultPosition=8
+**Germany Reports 31 New Coronavirus Infections**\
+`The number of confirmed coronavirus cases in Germany rose to 188 on Tuesday, up from 157 on Monday afternoon, the Robert Koch Institute (RKI) said.`\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-germany-cases.html?searchResultPosition=8
 
-**UK Not Planning to Cancel Mass Events, Health Minister Says**\
-`Britain is not planning to cancel mass gatherings or large sports events over the concerns about coronavirus, but will need legislation in case it needs to take action in the future,  British health minister Matt Hancock said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-health-coronavirus-britain-hancock.html?searchResultPosition=9
+**Factbox: Countries Evacuating Nationals From Coronavirus-Hit Areas**\
+`A growing number of countries around the world have been evacuating or planning to evacuate diplomatic staff and citizens from areas hit by the new coronavirus.`\
+https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-china-health-evacuation-factbox.html?searchResultPosition=9
 
-**Australia to Use Biosecurity Law to Restrict Movements of Coronavirus Patients**\
-`Australia will use a little-known biosecurity law to restrict the movements of people suspected of having the coronavirus, its attorney-general said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-australia.html?searchResultPosition=10
+**Shanghai Says Visitors Entering From Virus-Hit Countries Must Be Quarantined**\
+`Shanghai will require everyone entering the city from countries with "relatively serious virus conditions" to submit to 14 days of quarantine, an official said on Tuesday. `\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-coronavirus-health-china-shanghai.html?searchResultPosition=10
 
