@@ -1,8 +1,8 @@
-**France Says Syrian Government, Russia Likely Committing War Crimes in Idlib**\
-`France's foreign minister on Tuesday accused the Syrian government and Russia of probably carrying out war crimes in their offensive in northwestern Syrian and said Paris would document them.`\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-syria-security-france.html?searchResultPosition=9
+**Tracking Every Coronavirus Case in the U.S.: Full Map**\
+`Maps show the extent of the coronavirus outbreak and the number of cases and deaths by state.`\
+https://nytimes.com/interactive/2020/us/coronavirus-us-cases.html?searchResultPosition=9
 
-**Algeria Confirms Three New Coronavirus Cases**\
-`Algeria has confirmed three new cases of coronavirus, bringing to eight the total number of people tested positive for the virus, the health ministry said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/03/world/africa/03reuters-health-coronavirus-algeria.html?searchResultPosition=10
+**Trump Says He Had a Very Good Conversation With Taliban Leader**\
+`U.S. President Donald Trump said he spoke with a leader of the Afghan Islamist group Taliban on Tuesday and they had a very good talk.`\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-usa-afghanistan-taliban-trump.html?searchResultPosition=10
 
