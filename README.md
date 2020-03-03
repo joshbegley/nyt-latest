@@ -1,8 +1,8 @@
-**World Bank Plans Financial and Technical Aid Package to Help With Coronavirus**\
-`The World Bank said it would announce a package of financial and technical support later on Tuesday to assist with the health and economic impacts of the global coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/03/business/03reuters-health-coronavirus-world-bank.html?searchResultPosition=9
+**Tennessee Dems Sue to Extend Poll Hours in Storm-Torn County**\
+`The Tennessee Democratic Party has sued the Davidson County elections commission and Tennessee Secretary of State Tre Hargett’s office to extend voting hours in the tornado-stricken county. `\
+https://nytimes.com/aponline/2020/03/03/us/ap-us-super-tuesday-tennesse-lawsuit-.html?searchResultPosition=9
 
-**Trump Calls on Fed to Cut Rates Further After Emergency Move**\
-`U.S. President Donald Trump called for further cut rates after the Federal Reserve earlier on Tuesday slashed rates by half percentage point in an emergency move designed to insulate the nation's economy from the impact of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/03/business/03reuters-usa-fed-trump.html?searchResultPosition=10
+**Senators Scrutinize Web-Scraping Facial Recognition Startup**\
+`U.S. senators are scrutinizing a facial recognition software company over privacy concerns and the possible sale of its services to authoritarian regimes.`\
+https://nytimes.com/aponline/2020/03/03/business/ap-us-clearview-facial-recognition.html?searchResultPosition=10
 
