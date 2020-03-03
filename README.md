@@ -1,20 +1,20 @@
-**Draisaitl Has 4 Goals, 5 Points as Oilers Rout Predators 8-3**\
-`Leon Draisaitl had the first four-goal game of his career and added an assist as the Edmonton Oilers routed the Nashville Predators 8-3 on Monday night to sweep the season series.`\
-https://nytimes.com/aponline/2020/03/02/sports/hockey/bc-hkn-oilers-predators.html?searchResultPosition=6
+**Japan's Abe Says Ready to Top Up Fiscal Spending if Virus Hits Economy**\
+`Japanese Prime Minister Shinzo Abe said on Tuesday the government was ready to deploy further fiscal stimulus measures depending on the damage the coronavirus outbreak inflicts on the economy.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-japan-economy.html?searchResultPosition=6
 
-**Top Los Angeles Prosecutor Apologizes After Husband Points Gun at Black Lives Matter Activists**\
-`Los Angeles County District Attorney Jackie Lacey delivered an emotional apology on behalf of her husband on Monday, hours after he pointed a gun at Black Lives Matter protesters gathered outside the couple's home and threatened to shoot them.`\
-https://nytimes.com/reuters/2020/03/02/us/02reuters-crime-los-angeles-district-attorney.html?searchResultPosition=7
+**India Retail Banking a 'Nice Oasis' for Foreign Lenders Deutsche, HSBC, Peers**\
+`Outsized returns in India, besting local lenders for the first time in a decade, are emboldening banks such as Citigroup, Deutsche Bank and HSBC to invest more in a market that has long held promise but tended to under-deliver.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-india-banks-foreign.html?searchResultPosition=7
 
-**Tencent Extends Warranty for Nintendo Switches in China as Virus Hits Sales**\
-`Chinese tech giant Tencent said on Tuesday it would extend warranty for Nintendo Switches purchased in China via official channels before March 31 by six months as sales have been hit by the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-health-coronavirus-tencent.html?searchResultPosition=8
+**South Korea Fourth-Quarter GDP Growth Upgraded From Earlier Estimates**\
+`South Korea's economy turned out to have expanded a notch more than estimated during the final quarter of 2019 driven by domestic demand and capital investment, revised central bank data showed on Tuesday.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-southkorea-economy-gdp.html?searchResultPosition=8
 
-**Trump Withdraws Nomination of Pentagon Official Who Questioned Ukraine Aid Freeze**\
-`U.S. President Donald Trump on Monday withdrew the nomination of Elaine McCusker to a senior Pentagon post, after reports that she had questioned the suspension of military aid to Ukraine, a key element in the inquiry leading to Trump's impeachment.`\
-https://nytimes.com/reuters/2020/03/02/world/europe/02reuters-usa-trump-pentagon.html?searchResultPosition=9
+**UK Preparing Measures to Help Business, Economy if Coronavirus Spreads**\
+`The British government is preparing possible measures to support the health service, businesses and the economy as the outbreak of coronavirus continues to spread, the finance ministry said on Monday.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-britain.html?searchResultPosition=9
 
-**Google's Self-Driving Sister, Waymo, Gets First Outside Investors**\
-`Waymo, the self-driving unit of Alphabet Inc, said on Monday it had raised $2.25 billion in its first external investment round and expects to add more outside investors.`\
-https://nytimes.com/reuters/2020/03/02/business/02reuters-waymo-financing.html?searchResultPosition=10
+**China's U.N. Envoy Says Beijing Confident It Will Meet Economic Goals Despite Coronavirus**\
+`China's U.N. ambassador, Zhang Jun, said on Monday that while the coronavirus outbreak has had a "negative impact" on the country's economy, Beijing was working to revitalize and was confident it would reach its economic goals for 2020.`\
+https://nytimes.com/reuters/2020/03/02/world/asia/02reuters-health-coronavirus-china-economy.html?searchResultPosition=10
 
