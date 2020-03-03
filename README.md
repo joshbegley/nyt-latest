@@ -1,8 +1,8 @@
-**The Best Movies and TV Shows New to Netflix, Amazon and Stan in Australia in March**\
-`Our picks for March, including ‘Lost Girls,’ ‘Ozark’ and ‘Making the Cut’`\
-https://nytimes.com/2020/03/03/arts/television/movies-tv-netflix-amazon-and-stan-australia-in-march.html?searchResultPosition=9
+**Bill Would Expand Maryland Governor's Powers to Fight Crime**\
+`Maryland's governor would have expanded powers to declare a violent crime emergency under a measure proposed Tuesday by Senate Republicans in a bid to curb Baltimore's high homicide rate. `\
+https://nytimes.com/aponline/2020/03/03/us/ap-us-baltimore-crime-emergency-powers.html?searchResultPosition=9
 
-**Oklahoma College Recruiter Lined Up High School Students by Skin Color and Hair Type**\
-`Cedric Sunray, an Oklahoma Christian University recruiter, said he had no intention of “promoting a racist agenda” with his presentation to students.`\
-https://nytimes.com/2020/03/03/us/racist-Oklahoma-Christian-University-recruiter.html?searchResultPosition=10
+**High-Flying Trading App Robinhood Goes Down at the Wrong Time**\
+`Robinhood remained down part of Tuesday as the markets bounced around, leaving customers angry and nursing big losses.`\
+https://nytimes.com/2020/03/03/technology/trading-app-robinhood-outage.html?searchResultPosition=10
 
