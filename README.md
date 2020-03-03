@@ -1,20 +1,20 @@
-**The Latest: Emirates Reduces, Cuts Flights Due to Virus**\
-`The Latest on the virus outbreak (all times local):`\
-https://nytimes.com/aponline/2020/03/03/business/ap-virus-outbreak-the-latest.html?searchResultPosition=6
+**‘The Night Watchman,’ by Louise Erdrich: An Excerpt**\
+`An excerpt from “The Night Watchman,” by Louise Erdrich`\
+https://nytimes.com/2020/03/03/books/review/the-night-watchman-by-louise-erdrich-an-excerpt.html?searchResultPosition=6
 
-**AP Explains: The New Migration Crisis at Europe's Borders**\
-`Facing a wave of nearly a million people fleeing fighting in northern Syria, Turkey has thrown open its borders with Greece to thousands of refugees and other migrants trying to enter Europe, and has threatened to send “millions” more.`\
-https://nytimes.com/aponline/2020/03/03/world/europe/ap-eu-ap-explains-turkey-greece-migrants.html?searchResultPosition=7
+**How We Got to Super Tuesday: 6 Campaigns in Photos**\
+`The map of the Democratic primary gets more expansive on Tuesday after a month of focusing on four states. New York Times photographers have been followed candidates every step of the way.`\
+https://nytimes.com/2020/03/03/us/politics/super-tuesday-candidates-campaigns.html?searchResultPosition=7
 
-**Bucks, at 52-9 So Far, Have Reached Some Rare NBA Air**\
-`It’s reasonable to think Milwaukee is not going to win all 21 of its remaining games, which means not all is lost for the Golden State Warriors this season.`\
-https://nytimes.com/aponline/2020/03/03/sports/basketball/ap-bkn-around-the-nba.html?searchResultPosition=8
+**Texas Primaries Will Help Shape the Race for Congress. Here’s What to Watch.**\
+`The slate of competitive congressional primaries could showcase the strength of party establishment and the power of a presidential endorsement.`\
+https://nytimes.com/2020/03/03/us/politics/texas-primary-races-super-tuesday.html?searchResultPosition=8
 
-**German Police Raid Homes of Far-Right Suspects**\
-`German police on Tuesday raided the homes of 12 people who are suspected of having formed a far-right group that wanted to attack immigrants and foreigners.`\
-https://nytimes.com/aponline/2020/03/03/world/europe/ap-eu-germany-far-right-raids.html?searchResultPosition=9
+**How to Get the Bedroom of Your Dreams**\
+`It’s not difficult to create a room where you can get a good night’s sleep — if you follow a few simple steps.`\
+https://nytimes.com/2020/03/03/realestate/how-to-get-the-bedroom-of-your-dreams.html?searchResultPosition=9
 
-**Turkey Says Another Soldier Killed by Syrian Shelling**\
-`Syrian government shelling killed one Turkish soldier and wounded another in northwest Syria, Turkey's Defense Ministry announced, days after serious clashes between the two armies appeared to signal a new stage in the nine-year war.`\
-https://nytimes.com/aponline/2020/03/03/world/middleeast/ap-ml-syria.html?searchResultPosition=10
+**5 Caribbean Islands Where You Can Go Beyond the Beach**\
+`And we won’t judge if you head back for a swim and a piña colada at the end of the day.`\
+https://nytimes.com/2020/03/03/travel/caribbean-islands-stlucia-puerto-rico-martinique-nevis-grenada.html?searchResultPosition=10
 
