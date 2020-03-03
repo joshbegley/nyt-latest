@@ -1,8 +1,8 @@
-**Escalating Idlib Battle Raises Risk of Direct Russia-Turkey Clash**\
-`Escalating military action by Russia and Turkey in Idlib risks a direct confrontation between the two major foreign powers in Syria's war, days ahead of a summit of their leaders to hammer out a deal to halt the fighting.`\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-syria-security-turkey-russia.html?searchResultPosition=9
+**Putin Critic Navalny Accuses Russia of Emptying and Freezing His Bank Accounts**\
+`Kremlin critic Alexei Navalny on Tuesday accused Russian authorities of emptying and blocking his bank accounts and those of his close family, a move he said was unfair and aimed at strangling him and his supporters financially. `\
+https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-russia-politics-navalny.html?searchResultPosition=9
 
-**Taliban Resumes Attacks on Afghan Forces, Five Policemen Die**\
-`Five Afghan policemen died in a Taliban attack on a security checkpoint near a copper mine on Tuesday, officials in the region said, a day after the insurgents decided to resume operations against local forces. `\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-afghanistan-attack.html?searchResultPosition=10
+**Russia Accuses BBC World News of Violating Broadcasting Requirements: Regulator**\
+`Russia's communications regulator said on Tuesday documents have been submitted to court which accuse the BBC World News channel of violating broadcasting requirements within Russia.`\
+https://nytimes.com/reuters/2020/03/03/technology/03reuters-russia-media-bbc.html?searchResultPosition=10
 
