@@ -1,36 +1,36 @@
-**Isles' Boychuk Gets 90 Stitches After Taking Skate to Face**\
-`New York Islanders defenseman Johnny Boychuk needed 90 stitches to his eyelid after being hit in the face with a skate but suffered no damage to his eye, president and general manager Lou Lamoriello said Wednesday.`\
-https://nytimes.com/aponline/2020/03/04/sports/hockey/ap-hkn-islanders-boychuk-.html?searchResultPosition=2
+**Ukraine’s Zelensky Fires His Cabinet**\
+`President Volodymyr Zelensky of Ukraine faulted his ministers for poor performance and for appointing foreigners to company boards, although Western donors have encouraged the practice.`\
+https://nytimes.com/2020/03/04/world/europe/ukraine-zelensky-cabinet.html?searchResultPosition=2
 
-**Aces Up: Strasburg, Scherzer Help Younger Nationals Pitchers**\
-`Stephen Strasburg chatted by his locker early in spring training with Wil Crowe — just a World Series MVP and a non-roster invitee for the Washington Nationals plopping themselves on a pair of folding chairs to talk shop during camp's ample idle time. `\
-https://nytimes.com/aponline/2020/03/04/sports/baseball/ap-bbn-nationals-aces-who-teach.html?searchResultPosition=3
+**Saudi Arabia Announces Second Coronavirus Case for a Citizen Coming From Iran Through Bahrain**\
+`Saudi Arabia on Wednesday said the second coronavirus case for a Saudi national came from Iran through Bahrain, the health ministry announced in a statement published by the state news agency.`\
+https://nytimes.com/reuters/2020/03/04/world/middleeast/04reuters-healthcare-coronavirus-saudi.html?searchResultPosition=3
 
-**Watch Live: Bloomberg to Speak After Exiting Race**\
-`Michael R. Bloomberg, the former mayor of New York, is expected to address his decision to leave the race for the Democratic nomination after a poor showing on Super Tuesday.`\
-https://nytimes.com/video/us/politics/100000007015972/bloomberg-drops-out-live.html?searchResultPosition=4
+**Algeria Reports Nine New Coronavirus Cases: Health Ministry**\
+`Algeria reported nine new confirmed coronavirus cases on Wednesday, bringing to 17 the total number of people tested positive for the virus, the health ministry said.`\
+https://nytimes.com/reuters/2020/03/04/world/africa/04reuters-health-coronavirus-algeria.html?searchResultPosition=4
 
-**Italian Sport to Take Place Without Fans Until April 3**\
-`All sporting events in Italy will take place without fans present for at least the next month due to the virus outbreak in the country, the Italian government announced on Wednesday.`\
-https://nytimes.com/aponline/2020/03/04/sports/soccer/ap-soc-virus-outbreak-italy.html?searchResultPosition=5
+**16 New Coronavirus Cases in Stockholm, How Four Patients Were Infected Is Unclear**\
+`Sixteen new cases of the coronavirus were confirmed in Stockholm, regional authorities said on Wednesday, taking the total number of cases in Sweden to 52.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-corononavirus-sweden.html?searchResultPosition=5
 
-**A Balancing Act for Europe: Stop the Migrants, Support Greece, Assuage Turkey**\
-`Europe bought time after the migrant crisis of 2015. It just didn’t use it very well. Now it may pay a price.`\
-https://nytimes.com/2020/03/04/world/europe/europe-migrants-turkey-greece.html?searchResultPosition=6
+**Iraq Announces First Coronavirus Death in Capital**\
+`Iraq announced on Wednesday its first coronavirus death in the capital Baghdad, the health ministry said.`\
+https://nytimes.com/reuters/2020/03/04/world/middleeast/04reuters-health-coronavirus-iraq-death.html?searchResultPosition=6
 
-**Why Biden Is the Change Candidate**\
-`Sanders’s grand hopes won’t come true.`\
-https://nytimes.com/2020/03/04/opinion/biden-2020-election.html?searchResultPosition=7
+**U.S. House Set to Debate $8.3 Billion Bill to Fight Coronavirus**\
+`Legislation aimed at helping control the spread of coronavirus and develop a vaccine for the highly contagious disease is set to begin moving through the U.S. House of Representatives after congressional negotiators on Wednesday struck a deal on its provisions.`\
+https://nytimes.com/reuters/2020/03/04/us/politics/04reuters-health-coronavirus-usa-congress.html?searchResultPosition=7
 
-**The Super Tuesday Survivors**\
-`Also this week, the human cost of air pollution`\
-https://nytimes.com/2020/03/04/climate/nyt-climate-newsletter-super-tuesday.html?searchResultPosition=8
+**Emergency Coronavirus Funding Bill Unveiled in Congress**\
+`Legislation funding emergency efforts to combat the spreading coronavirus was unveiled in the U.S. Congress on Monday and would total $8.3 billion, including money to develop vaccines and tests for the disease, according to a House of Representatives Democratic aide.`\
+https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-health-coronavirus-usa-funding.html?searchResultPosition=8
 
-**The Yam Soup That Keeps Norma Kamali Energized**\
-`A proponent of intermittent fasting, the designer relies on a simple herbal drink and bright yam soup to stay balanced.`\
-https://nytimes.com/2020/03/04/t-magazine/norma-kamali-yam-soup.html?searchResultPosition=9
+**Italy Closes Schools and Universities Until March 15 Because of Coronavirus**\
+`All Italian schools and universities will close from Thursday until March 15 as part of an effort to contain a growing outbreak of coronavirus, Education Minister Lucia Azzolina said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-coronavirus-italy-minister.html?searchResultPosition=9
 
-**NBC Plans for Tokyo Olympics as Coronavirus Worries Advertisers**\
-`NBCUniversal has sold $1.25 billion in ads for the Summer Games. What happens if they don’t go on as planned?`\
-https://nytimes.com/2020/03/04/business/media/nbc-olympics-coronavirus.html?searchResultPosition=10
+**Prosthetic Innovation: 'It's Like You Have a Hand Again': Study**\
+`Today's artificial limbs can look very natural, and now an innovative process makes prosthetic hands move more naturally as well.`\
+https://nytimes.com/reuters/2020/03/04/technology/04reuters-health-amputees.html?searchResultPosition=10
 
