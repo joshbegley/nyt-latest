@@ -1,36 +1,36 @@
+**Swab, Pray, FaceTime: How Some American Coronavirus Patients Cope**\
+`With the outbreak widening in the U.S., six Americans who have had the coronavirus share their experiences.`\
+https://nytimes.com/2020/03/04/us/coronavirus-recovery.html?searchResultPosition=2
+
+**FIBA Postpones 3x3 Olympic Qualifier in India Over Coronavirus**\
+`The FIBA 3x3 Olympic qualification tournament that was scheduled to take place in India later this month has been postponed due to concerns about the coronavirus, the governing body said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/04/sports/basketball/04reuters-health-coronavirus-basketball.html?searchResultPosition=3
+
+**Texans S Adams Announces Retirement**\
+`Two-time Pro Bowl safety Mike Adams announced his retirement after 16 years in the league, sharing the news on NFL Network's "Good Morning Football" on Wednesday.`\
+https://nytimes.com/reuters/2020/03/04/sports/football/04reuters-football-nfl-hou-adams.html?searchResultPosition=4
+
+**Cycling: Two Teams Pull Out of Strade Bianche Amid Coronavirus**\
+`Dutch team Lotto Jumbo Visma and Australia's Mitchelton-Scott have pulled put of Saturday's Stade Bianche cycling race in Italy due to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/04/sports/cycling/04reuters-health-coronavirus-cycling-italy.html?searchResultPosition=5
+
+**Doping: Steeplechase Champion Jebet Handed Four-Year Ban for Doping Violation**\
+`Kenyan-born Bahraini runner Ruth Jebet has been handed a four-year ban after she was found guilty of testing positive for the banned blood booster r-EPO (recombinant erythropoietin), the Athletics Integrity Unit (AIU) said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/04/sports/04reuters-doping-jebet.html?searchResultPosition=6
+
+**Man Who Filmed Infant Sex Abuse Sentenced to Life in Prison**\
+`A West Virginia man convicted of filming an infant being sexually abused will likely spend life in prison.`\
+https://nytimes.com/aponline/2020/03/04/us/ap-us-child-abuse-west-virginia.html?searchResultPosition=7
+
 **Vaccine Development: The Ebola Example**\
 `Dr. Julie Gerberding of Merck discusses the company’s effort in 2014 to respond to the West Africa outbreak. Also: California’s motor vehicle agency, on Real IDs; preventing the loss of forestlands.`\
-https://nytimes.com/2020/03/04/opinion/letters/merck-ebola-vaccine.html?searchResultPosition=2
+https://nytimes.com/2020/03/04/opinion/letters/merck-ebola-vaccine.html?searchResultPosition=8
 
 **S&P Global Halves Eurozone Growth Forecast, Flags Gloom for Italy**\
 `Coronavirus worries saw credit rating agency S&P Global halve its eurozone growth forecast for the year to 0.5% from 1% on Wednesday and predict a 0.3% contraction for hard hit Italy.`\
-https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-coronavirus-growth-s-p.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-coronavirus-growth-s-p.html?searchResultPosition=9
 
 **Fed's Bullard Says Policy Now in the Right Place to Address Coronavirus Risks**\
 `Risks are rising that the coronavirus could be more severe than previously thought, but interest rates are now appropriate after the Federal Reserve's emergency rate cut, St. Louis Federal Reserve President James Bullard said Wednesday. `\
-https://nytimes.com/reuters/2020/03/04/us/04reuters-usa-fed-bullard.html?searchResultPosition=4
-
-**OPEC Pushing Russia to Support Big Oil Cut Amid Coronavirus**\
-`Saudi Arabia and other OPEC members were seeking to win support from Russia on Wednesday to join them in additional oil output cuts in a bid to prop up prices which have tumbled by a fifth this year because of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/04/world/04reuters-opec-meeting.html?searchResultPosition=5
-
-**Toyota Recalls 3.2 Million Vehicles Worldwide Over Fuel Pump Problem**\
-`Toyota Motor Corp said Wednesday it is now recalling 3.2 million vehicles worldwide to address a fuel pump issue that could result in engines stalling.`\
-https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-toyota-recall.html?searchResultPosition=6
-
-**Top Stockpicker Michael Baron Bets on Research, Not Nerves**\
-`As one of America's top stockpickers, Michael Baron faces significant exposure to the spreading coronavirus epidemic, which has posed a challenge for travel companies like Hyatt Hotels and Norwegian Cruise Line Holdings. `\
-https://nytimes.com/reuters/2020/03/04/us/04reuters-funds-baron.html?searchResultPosition=7
-
-**Fiat Chrysler Defies Virus Fears to Showcase Electric 500 in Milan**\
-`Fiat Chrysler defied fears over Italy's coronavirus outbreak to showcase an electric version of its 500 city car on Wednesday, as it strives to catch up with rivals in low-emissions driving while heading into a merger with Peugeot maker PSA.`\
-https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-fiat-chrysler-electric-500.html?searchResultPosition=8
-
-**Blackstone CEO Says 'Unclear' if Fed Rate Cut Can Restore Confidence**\
-`Private equity firm Blackstone Group Chief Executive Stephen Schwarzman said on Wednesday that it "remained unclear" if an interest rate cut by the U.S. Federal Reserve would restore confidence in the face of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/04/business/04reuters-blackstone-group-fed.html?searchResultPosition=9
-
-**Virgin Atlantic to Cut Costs as Coronavirus Hits Demand**\
-`British airline Virgin Atlantic said it would reduce costs to help withstand the impact of coronavirus on travel demand, including a temporary pay cut for its chief executive and a proposal to defer annual pay increases.`\
-https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-coronavirus-virgin-atlantic-costs.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/04/us/04reuters-usa-fed-bullard.html?searchResultPosition=10
 
