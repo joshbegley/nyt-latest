@@ -14,9 +14,9 @@ https://nytimes.com/aponline/2020/03/04/sports/ncaabasketball/bc-bkc-stephen-f-a
 `At least 120 cases of coronavirus have been recorded in more than a dozen states, as officials nationwide race to assess the risk to schools, medical centers and businesses.`\
 https://nytimes.com/2020/03/04/world/coronavirus-news.html?searchResultPosition=5
 
-**Texas Primary Election Results: 18th House District**\
+**Texas Primary Election Results: 29th House District**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-18-primary-election.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-29-primary-election.html?searchResultPosition=6
 
 **Texas Primary Election Results: 34th House District**\
 ``\
@@ -30,7 +30,7 @@ https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-dist
 ``\
 https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-24-primary-election.html?searchResultPosition=9
 
-**Texas Primary Election Results: 22nd House District**\
+**Texas Primary Election Results: 18th House District**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-22-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-18-primary-election.html?searchResultPosition=10
 
