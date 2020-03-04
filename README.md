@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/03/04/us/ap-us-missing-girl-tennessee.html?sea
 https://nytimes.com/aponline/2020/03/04/world/middleeast/ap-ml-syria.html?searchResultPosition=4
 
 **Voting Problems, Long Lines Mar California Primary Voting**\
-`Technical issues plagued polling sites throughout California as people turned out in droves, taxing a system meant to make voting easier with new technology, same-day registration and centralized vote centers in some counties, `\
+`Technical issues plagued polling sites throughout California as people turned out in droves, taxing a system meant to make voting easier with new technology, same-day registration and centralized vote centers in some counties.`\
 https://nytimes.com/aponline/2020/03/04/us/ap-us-election-2020-california-primary-voting.html?searchResultPosition=5
 
 **S Korea Hunts Sick Beds as West Readies for Long Virus Fight**\
