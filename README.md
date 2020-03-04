@@ -1,36 +1,36 @@
-**South Korean President Moon Cancels Planned Trip to the UAE, Egypt and Turkey Over Coronavirus**\
-`South Korean President Moon Jae-in on Wednesday canceled his planned trip to the UAE, Egypt and Turkey in mid-March, over coronavirus, according to the presidential Blue House.`\
-https://nytimes.com/reuters/2020/03/03/world/middleeast/03reuters-health-coronavirus-southkorea-moon.html?searchResultPosition=2
+**Exclusive: SoftBank-Backed CloudMinds Blocked From Exporting U.S. Tech to China**\
+`SoftBank-backed startup CloudMinds has been blocked from sharing U.S.-origin technology with its China business, documents showed, illustrating how increased U.S. government restrictions are creating new headaches for tech firms and their investors. `\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-softbank-group-cloudminds-exclusive.html?searchResultPosition=2
 
-**Fox News Calls Off 'Upfront' Advertising Event Amid Coronavirus Fears**\
-`Fox News, the TV channel owned by media company Fox Corp, on Tuesday said it is cancelling its 'upfront' advertising event in the wake of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/03/us/03reuters-health-coronavirus-fox-news.html?searchResultPosition=3
+**Ackman Hedges to Protect Against Coronavirus' 'Negative' Impact**\
+`Billionaire hedge fund investor William Ackman on Tuesday said he has moved to protect the firm's $6.6 billion portfolio, which includes restaurant chain and hotel stocks, as the spread of the coronavirus has sparked prolonged panic selling in markets.`\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-hedgefunds-ackman.html?searchResultPosition=3
 
-**Mercury Exposure Tied to Skin Cancer Risk**\
-`Americans who eat a lot of mercury-containing seafood might be at increased risk for skin cancer, suggests a study based on national surveys.`\
-https://nytimes.com/reuters/2020/03/03/us/03reuters-health-mercury-skin-cancer.html?searchResultPosition=4
+**NBCUniversal Sells Record $1.25 Billion in Tokyo Olympic Ads**\
+`Comcast Corp's NBCUniversal said on Tuesday it had sold more than $1.25 billion in national advertising for the Tokyo Olympics, a new record for any broadcaster for the games.`\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-comcast-olympics-advertising.html?searchResultPosition=4
 
-**NHL-Best Bruins Beat Lightning 2-1 to Extend Division Lead**\
-`Brad Marchand and the NHL-leading Boston Bruins took a big stride toward winning the Atlantic Division with a 2-1 victory against the Tampa Bay Lightning on Tuesday night.`\
-https://nytimes.com/aponline/2020/03/03/sports/hockey/bc-hkn-bruins-lightning.html?searchResultPosition=5
+**Berkshire Hathaway to Hold May 2 Annual Meeting, Despite Coronavirus, but May Curb Events**\
+`Berkshire Hathaway Inc, the conglomerate run Warren Buffett, said it will hold its annual shareholder meeting on May 2 despite the coronavirus outbreak, but may curtail some of the surrounding events.`\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-berkshire-buffett-annual-meeting.html?searchResultPosition=5
 
-**Taiwan to 'Have No Problem' Maintaining GDP Growth of 2% This Year**\
-`Taiwan will 'have no problem' maintaining economic growth of 2% this year, its statistics chief said on Wednesday, amid concerns that a coronavirus outbreak could hit the economy of the island which is a key part of the global technology supply chain.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-taiwan-economy.html?searchResultPosition=6
+**Amazon Confirms First Coronavirus Case Among U.S. Employees**\
+`Online retailer Amazon.com Inc said on Tuesday an employee in the United States tested positive for the coronavirus.`\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-health-coronavirus-amazon-com.html?searchResultPosition=6
 
-**Japan Reports One New Coronavirus Infection, Total Reaches 1,000 Cases: Media**\
-`Japan has confirmed another case of coronavirus infection, bringing the total in the country to 1,000 cases, including those from a cruise ship that had been quarantined off Yokohama, Kyodo News reported, citing the health ministry.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-japan-case.html?searchResultPosition=7
+**HK's Bank of East Asia to Review Assets With Elliott Management**\
+`Hong Kong-based Bank of East Asia said on Wednesday it would carry out a comprehensive review of its portfolio of businesses and assets with the support of activist investor Elliott Management. `\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-bank-east-asia-elliott.html?searchResultPosition=7
 
-**'False Fears' About Vaping Stopping Smokers Using e-Cigs: UK Report**\
-`More than half of UK smokers now wrongly believe that nicotine-containing "vapes" or e-cigarettes are as dangerous as tobacco cigarettes and these "false fears" are preventing smokers from switching, public health experts said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-health-ecigarettes-britain.html?searchResultPosition=8
+**UK Launches Large-Scale Public Advice Campaign on Coronavirus**\
+`The British government launched a wide-ranging public health campaign on Wednesday in a bid to slow the spread of coronavirus, a day after warnings that as many as one in five employees could be off work at the peak of the outbreak.`\
+https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-health-coronavirus-britain-advert.html?searchResultPosition=8
 
-**Lutete Lifts UMass-Lowell Past New Hampshire 63-54**\
-`Christian Lutete had 23 points as UMass-Lowell defeated New Hampshire 63-54 on Tuesday night.`\
-https://nytimes.com/aponline/2020/03/03/sports/ncaabasketball/bc-bkc-umass-lowell-new-hampshire.html?searchResultPosition=9
+**SoftBank CEO Hosts 'Pre-IPO Summit' in New York as He Courts Investors**\
+`SoftBank Group Corp Chief Executive Masayoshi Son held his first "pre-IPO summit" for the Japanese conglomerate's portfolio companies on Tuesday, introducing them to Wall Street investors who could be backing their stock market debuts.`\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-softbank-ceo-ipo.html?searchResultPosition=9
 
-**Johnson Carries Appalachian St. Over Louisiana-Monroe 61-57**\
-`Isaac Johnson had 14 points and seven rebounds as Appalachian State narrowly defeated Louisiana-Monroe 61-57 on Tuesday night in a regular-season finale.`\
-https://nytimes.com/aponline/2020/03/03/sports/ncaabasketball/bc-bkc-appalachian-st-ul-monroe.html?searchResultPosition=10
+**Fed's Evans Expects Virus Impacts on Economy to Be Short-Lived**\
+`The coronavirus outbreak will likely have only a "short-lived imprint" on the U.S. economy, Chicago Federal Reserve bank President Charles Evans said on Tuesday night.`\
+https://nytimes.com/reuters/2020/03/03/business/03reuters-usa-fed-evans-outlook.html?searchResultPosition=10
 
