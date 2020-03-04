@@ -1,36 +1,36 @@
-**Coronavirus in N.Y.: College Student in Manhattan Is Third Case**\
-`The Yeshiva University student is the son of the Westchester man who was confirmed as the second case.`\
-https://nytimes.com/2020/03/04/nyregion/coronavirus-nyc-yeshiva-university.html?searchResultPosition=2
+**Israel's El Al to Lay Off 1,000 Employees, Cut Salaries of Others**\
+`Israel's flag carrier El Al said it was laying off 1,000 of its 6,000 employees and cutting the salaries of its top management as it struggles to cope with the impact of the global coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/04/world/middleeast/04reuters-health-coronavirus-el-al-arlns.html?searchResultPosition=2
 
-**Apple Supplier Skyworks Sees No Big Production Hit From Coronavirus**\
-`Skyworks Solutions Inc, a chip supplier to Apple Inc's iPhones, said on Wednesday the coronavirus has not significantly disrupted its manufacturing operations, sending its shares up 3%.`\
-https://nytimes.com/reuters/2020/03/04/technology/04reuters-skyworks-solutns-outlook.html?searchResultPosition=3
+**Dow Industrials Surge 500 Points, Extending Volatile Streak**\
+`Stocks are surging in early trading on Wall Street, led by health care stocks after Joe Biden scored a number of Super Tuesday wins.`\
+https://nytimes.com/aponline/2020/03/04/business/bc-financial-markets.html?searchResultPosition=3
 
-**Top French Court Recognizes Uber Driver as Employee**\
-`France's high court has granted an Uber driver's request to reclassify his contractual relationship with the ride-hailing operator as an employment contract, it said on Wednesday. `\
-https://nytimes.com/reuters/2020/03/04/business/04reuters-uber-court.html?searchResultPosition=4
+**Exclusive: Lufthansa to Ground 150 Aircraft Due to Coronavirus**\
+`Lufthansa will ground 150 aircraft out of its total fleet of around 770 due to the coronavirus, the German airline said on Wednesday, confirming what company sources had told Reuters earlier.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-lufthansa-coronavirus-exclusive.html?searchResultPosition=4
 
-**Factbox: From Shadow Banking to Coronavirus, U.S. Regulators Eye Lurking Risks**\
-`U.`\
-https://nytimes.com/reuters/2020/03/04/business/04reuters-health-coronavirus-financial-risks-factbox.html?searchResultPosition=5
+**Goldman's Michelsen Moves to Qatalyst Partners: Source**\
+`Goldman Sachs Group Inc's head of activism and shareholder advisory for the Americas, Peter Michelsen, has left the investment company to join technology sector-focused peer Qatalyst Partners, according to a person familiar with the matter.`\
+https://nytimes.com/reuters/2020/03/04/business/04reuters-qatalystpartners-moves-michelsen.html?searchResultPosition=5
 
-**Fed's Economic Survey Set to Offer More Clues on Coronavirus Impact**\
-`A report by the Federal Reserve released on Wednesday will provide the first snapshot from the central bank's business contacts on how deeply the coronavirus is impacting their supply chains and economic outlook and may provide some insight into the urgency that caused policymakers to cut interest rates.`\
-https://nytimes.com/reuters/2020/03/04/business/04reuters-usa-fed-beigebook.html?searchResultPosition=6
+**U.S. Private Payrolls Increase Solidly in February**\
+`U.S. private payrolls increased more than expected in February, pointing to labor market strength before a recent escalation of recession fears ignited by the coronavirus epidemic that prompted an emergency interest rate cut from the Federal Reserve.`\
+https://nytimes.com/reuters/2020/03/04/us/04reuters-usa-economy-employment.html?searchResultPosition=6
 
-**Coronavirus Cases in Britain Rise to 85 in Biggest Daily Jump**\
-`The number of confirmed coronavirus cases in Britain rose to 85 on Wednesday in the biggest daily jump since it was first detected in the country, health ministry figures showed on Wednesday.`\
-https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-health-coronavirus-britain.html?searchResultPosition=7
+**Russia Opposes Saudi's Plan to Deepen OPEC+ Output Cuts: WSJ**\
+`Russia has opposed Saudi Arabia's plan to deepen OPEC+ cuts by 1.2 million barrels per day, a Wall Street Journal reporter said in a tweet https://twitter.com/summer_said/status/1235182988905918465 on Wednesday, citing sources.  `\
+https://nytimes.com/reuters/2020/03/04/world/middleeast/04reuters-opec-meeting-russia.html?searchResultPosition=7
 
-**Pet of Hong Kong Coronavirus Patient Could Be First Human-To-Animal Transmission: Experts**\
-`Animal health experts said on Wednesday a quarantined dog of a  coronavirus patient in Hong Kong could be the first case of human-to-animal transmission, although they cautioned the matter remained under investigation.`\
-https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-china-health-hongkong-dog.html?searchResultPosition=8
+**Germany's Scholz Ready for 'Timely, Targeted' Stimulus to Counter Coronavirus: Sources**\
+`Finance Minister Olaf Scholz told lawmakers on Wednesday that Germany would have "all the strength" needed to counter the impact of the coronavirus if the epidemic plunged the world economy into a crisis, two participants told Reuters.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-coronavirus-germany-scholz.html?searchResultPosition=8
 
-**Follow the Fed? Why Central Banks Won't Be Rushed on Virus Response**\
-`Will the world's big central banks leave U.S. Federal Reserve Chair Jerome Powell hanging? They're certainly going to try. `\
-https://nytimes.com/reuters/2020/03/04/business/04reuters-health-coronavirus-policy-analysis.html?searchResultPosition=9
+**African Airlines Face $40 Million Hit in 2020 From Coronavirus**\
+`Coronavirus disruption could cost African airlines $40 million in revenue this year, a global industry body said on Wednesday, a potentially devastating hit to often struggling airlines counting on lucrative Chinese routes to fund expansion.`\
+https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-health-coronavirus-airlines-africa.html?searchResultPosition=9
 
-**Futures Jump After Biden's Super Tuesday Sweep**\
-`U.S. stock markets looked set to jump after a strong showing for Joe Biden in the Super Tuesday Democratic primaries on Wednesday, with Dow and S&P index futures rebounding around 2% from heavy losses a day earlier.`\
-https://nytimes.com/reuters/2020/03/04/business/04reuters-usa-stocks.html?searchResultPosition=10
+**Brazil Economy Grew 1.1% Last Year, Slowing Momentum Points to Weak 2020**\
+`Brazil's economy grew by 1.1% last year, official figures showed on Wednesday, the slowest rate in three years as a deceleration in growth in the final quarter indicated that the weak recovery from the 2015-16 recession will limp along into this year.`\
+https://nytimes.com/reuters/2020/03/04/world/americas/04reuters-brazil-economy.html?searchResultPosition=10
 
