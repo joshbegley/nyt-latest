@@ -1,36 +1,36 @@
+**British Police Charges Two With Attempted Murder in Prison Attack Incident**\
+`British police said http://bit.ly/38ieNx1 late on Tuesday two men were charged with attempted murder following an attack on a prison officer at Whitemoor prison in eastern England in the beginning of the year.`\
+https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-britain-security-prison.html?searchResultPosition=2
+
+**UK Government Says 12 New Positive Tests for Coronavirus, Total Now 35**\
+`British health authorities said on Sunday there had been 12 new cases of coronavirus in Britain, bringing the total to 35.`\
+https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-china-health-britain-tests.html?searchResultPosition=3
+
+**Planned Mass Women's Strike in Mexico Like 'Cinderella' Dream Come True, Organizer Says**\
+`Activist Arussi Unda knew many across Mexico shared her fury over violence against women and impunity for the perpetrators, but she was still surprised when her vision of women staging a national one-day strike took off beyond her home state.`\
+https://nytimes.com/reuters/2020/03/03/world/americas/03reuters-mexico-violence-gender.html?searchResultPosition=4
+
+**Blast at South Korea's Lotte Chemical Shuts Naphtha Cracker; Injures 31 People**\
+`South Korea's Lotte Chemical has shut its naphtha cracker after an explosion at the plant in the southwestern city of Seosan, which injured 31 people, the company said on Wednesday. `\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-southkorea-lotte-chemical-fire.html?searchResultPosition=5
+
+**U.N.'s Nuclear Chief to Iran: Cooperate or Face New Crisis**\
+`Iran risks triggering a new crisis if it does not cooperate with the U.N. nuclear watchdog after failing to answer its questions about past nuclear activities at three sites and denying it access to two of them, its chief said on Tuesday. `\
+https://nytimes.com/reuters/2020/03/03/world/middleeast/03reuters-iran-nuclear-iaea-grossi.html?searchResultPosition=6
+
+**Malaysia Parliament Session Delayed by Two Months to May 18-Speaker**\
+`Malaysia's new prime minister Muhyiddin Yassin has asked for a two-month delay to the start of parliamentary proceedings, the speaker of the legislative body said on Wednesday. `\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-malaysia-politics-parliament.html?searchResultPosition=7
+
+**Vatican Officials Investigating Sex Abuse Cases to Visit Mexico on 'Zero Tolerance' Drive**\
+`Two Vatican officials charged with investigating accusations of sexual abuse by clergy will visit Mexico for a fact-finding mission later this month, the Church said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/03/world/americas/03reuters-vatican-abuse-mexico.html?searchResultPosition=8
+
 **As Myanmar Farmers Lose Their Land, Sand Mining for Singapore Is Blamed**\
 `From a boat on the Salween River in southeastern Myanmar, Than Zaw Oo pointed to a brown stretch of water he said was once full of lush paddy fields.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-myanmar-sand-singapore-insight.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-myanmar-sand-singapore-insight.html?searchResultPosition=9
 
 **Trump Tells Sisi U.S. to Pursue Efforts for Deal on Ethiopia Dam: Egypt Presidency**\
 `U.S. President Donald Trump told Egyptian counterpart Abdel-Fattah al-Sisi on Tuesday that Washington will keep up efforts for a deal among Egypt, Ethiopia and Sudan over a dam Ethiopia is building on the Nile, Egypt's presidency said.`\
-https://nytimes.com/reuters/2020/03/03/world/africa/03reuters-egypt-ethiopia-trump.html?searchResultPosition=3
-
-**Paschall Helps Warriors Rally to Stun Nuggets 116-100**\
-`Eric Paschall scored nine of his 22 points in the fourth quarter, Andrew Wiggins turned in a double-double and the Golden State Warriors rallied to stun the Denver Nuggets 116-100 on Tuesday night.`\
-https://nytimes.com/aponline/2020/03/03/sports/basketball/bc-bkn-warriors-nuggets.html?searchResultPosition=4
-
-**Raptors Rally, Snap Three-Game Skid by Beating Suns 123-114**\
-`Pascal Siakam scored 33 points, Kyle Lowry added 28 and the Toronto Raptors rallied in the second half for a 123-114 victory over the Phoenix Suns on Tuesday night.`\
-https://nytimes.com/aponline/2020/03/03/sports/basketball/bc-bkn-raptors-suns.html?searchResultPosition=5
-
-**Britain to Register COVID-19 as 'Notifiable Disease': BBC**\
-`Britain will formally register COVID-19, a disease caused by the new coronavirus, as "notifiable", BBC reported https://www.bbc.com/news/business-51730412 on Wednesday.`\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-health-coronovirus-britain.html?searchResultPosition=6
-
-**Chiasson OT Goal, Koskinen 42 Saves as Oilers Beat Stars 2-1**\
-`Alex Chiasson scored a power-play goal 1:08 into overtime, Mikko Koskinen stopped 42 shots and the Edmonton Oilers beat the Dallas Stars 2-1 on Tuesday night in a matchup of likely Western Conference playoff teams.`\
-https://nytimes.com/aponline/2020/03/03/sports/hockey/bc-hkn-oilers-stars.html?searchResultPosition=7
-
-**Culver, McBride Lead West Virginia Past Iowa State 77-71**\
-`Derek Culver and Miles McBride scored 17 points apiece and West Virginia outlasted Iowa State for a 77-71 victory Tuesday night.`\
-https://nytimes.com/aponline/2020/03/03/sports/ncaabasketball/bc-bkc-west-virginia-iowa-st.html?searchResultPosition=8
-
-**Democrat MJ Hegar Makes Runoff in Crowded Texas Senate Race**\
-`Democrat MJ Hegar, a former Air Force helicopter pilot seeking to unseat Republican U.S. Sen. John Cornyn, advanced to a runoff in May after falling short of capturing the nomination outright on Tuesday. `\
-https://nytimes.com/aponline/2020/03/03/us/politics/ap-us-election-2020-senate-texas.html?searchResultPosition=9
-
-**Corrections: March 4, 2020**\
-`Corrections that appeared in print on Wednesday, March 4, 2020.`\
-https://nytimes.com/2020/03/03/pageoneplus/corrections-march-4-2020.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/03/world/africa/03reuters-egypt-ethiopia-trump.html?searchResultPosition=10
 
