@@ -26,7 +26,7 @@ https://nytimes.com/aponline/2020/03/04/world/europe/ap-eu-slovakia-new-governme
 `Nepal's prime minister had a successful kidney transplant on Wednesday and is in stable condition, doctors said.`\
 https://nytimes.com/aponline/2020/03/04/world/asia/ap-as-nepal-prime-minister.html?searchResultPosition=8
 
-**What You Need to Know About the Super Tuesday Results**\
+**Super Tuesday Is Over. What Just Happened?**\
 `Joe Biden had a strong showing but Bernie Sanders picked up the biggest prize of the night, California. Times political reporter Alex Burns lays out what happened, and what it means for Democrats going forward.`\
 https://nytimes.com/video/us/elections/100000006970753/super-tuesday-results.html?searchResultPosition=9
 
