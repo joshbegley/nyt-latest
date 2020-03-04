@@ -1,36 +1,36 @@
+**On Irish Tour, UK's Prince William Asks if Coronavirus Being 'Hyped Up'**\
+`Britain's Prince William asked emergency workers if they thought coronavirus was being hyped up by the media during his first official visit to Ireland. `\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-britain-royals-ireland.html?searchResultPosition=2
+
+**Saudi-Led Coalition Says It Foiled Attack on Oil Tanker Off Yemen**\
+`The Saudi-led coalition fighting in Yemen said it had foiled an attack on an oil tanker off Yemen's coast on the Arabian Sea, the Saudi state news agency SPA reported on Wednesday.`\
+https://nytimes.com/reuters/2020/03/04/world/middleeast/04reuters-yemen-security-tanker.html?searchResultPosition=3
+
+**Masked Israeli Monitors Count Coronavirus Votes, Carefully**\
+`Gloved and masked, Israeli election monitors on Wednesday counted ballot papers of voters suspected of coming into contact with coronavirus.`\
+https://nytimes.com/reuters/2020/03/04/world/middleeast/04reuters-health-coronavirus-israel-votes.html?searchResultPosition=4
+
+**Evangelical Service in Eastern France Is Center of New Virus Outbreak**\
+`French authorities have asked people who took part in an Evangelical Lent celebration in eastern France last month to limit social contact after 10 new confirmed coronavirus infections were traced to the event. `\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-coronavirus-france-church.html?searchResultPosition=5
+
+**Michael Bloomberg Quits Democratic Race, Ending a Brief and Costly Bid**\
+`He had staked his candidacy on doing well on Super Tuesday, spending more than half a billion dollars on advertising alone.`\
+https://nytimes.com/2020/03/04/us/politics/michael-bloomberg-drops-out.html?searchResultPosition=6
+
+**When the Show Must Go On, Even Amid a Coronavirus Outbreak**\
+`Learning to perform without live audiences, or sometimes even theaters, as artists adapt to trying circumstances.`\
+https://nytimes.com/2020/03/04/arts/music/arts-coronavirus.html?searchResultPosition=7
+
+**Greece Says Turkish Police Firing Tear Gas to Help Migrants Cross Border**\
+`Greece released a video clip on Wednesday it said showed Turkish riot police firing tear gas canisters at the Kastanies border crossing, where thousands of migrants are trying to cross into the European Union.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-syria-security-greece-turkey-video.html?searchResultPosition=8
+
 **EU Foreign Policy Chief Tells Turkey Border Developments Unacceptable**\
 `European Union foreign policy chief Josep Borrell said he told Turkey on Wednesday that the situation at the border with Greece was unacceptable and Turkey should not encourage further movement of migrants toward the border with EU states.  `\
-https://nytimes.com/reuters/2020/03/04/world/middleeast/04reuters-syria-security-turkey-europe.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/04/world/middleeast/04reuters-syria-security-turkey-europe.html?searchResultPosition=9
 
 **Amid Virus Outbreak, Mother Demands Son's Release From Iran**\
 `The mother of a U.`\
-https://nytimes.com/aponline/2020/03/04/us/politics/ap-us-virus-outbreak-american-prisoner.html?searchResultPosition=3
-
-**All In on the Milwaukee Bucks, Still**\
-`In this week’s newsletter, Marc Stein is reporting from London on soccer, the Bucks and the only five teams with, he says, a real chance at a championship this season.`\
-https://nytimes.com/2020/03/04/sports/basketball/marc-stein-nba.html?searchResultPosition=4
-
-**I Was a Teenage Riverdancer**\
-`As the “Riverdance” 25th-anniversary tour approaches New York, a critic takes stock of her nearly lifelong relationship with the Irish dance extravaganza.`\
-https://nytimes.com/2020/03/04/arts/dance/riverdance-25th-anniversary.html?searchResultPosition=5
-
-**Maybe Next Time, Ladies**\
-`So much for the most diverse presidential field in history.`\
-https://nytimes.com/2020/03/04/opinion/democrats-super-tuesday-warren.html?searchResultPosition=6
-
-**Tokyo Olympics Boss Says No Thought of Cancelling Games Due to Coronavirus**\
-`The president of the Tokyo 2020 Olympics organizing committee   rebuffed speculation on Wednesday that the games might be canceled due to deepening concern about the coronavirus outbreak, declaring that was not an option.`\
-https://nytimes.com/reuters/2020/03/04/sports/olympics/04reuters-olympics-2020-coronavirus-plan.html?searchResultPosition=7
-
-**Cycling: Teams in Abu Dhabi Hotel Instructed to Remain in Quarantine Until March 14**\
-`Cycling teams confined to a luxury Abu Dhabi hotel have been instructed by the state's health authorities to remain in quarantine until March 14 due to coronavirus concerns, several team members said on Wednesday. `\
-https://nytimes.com/reuters/2020/03/04/sports/cycling/04reuters-health-coronavirus-emirates-cycling.html?searchResultPosition=8
-
-**Motor Racing: Seven F1 Teams Challenge FIA-Ferrari Engine Settlement**\
-`Seven of Formula One's 10 teams united in a joint statement on Wednesday threatening legal action against a confidential settlement between the governing FIA and Ferrari over the Italian team's 2019 power unit.`\
-https://nytimes.com/reuters/2020/03/04/sports/autoracing/04reuters-motor-f1-ferrari.html?searchResultPosition=9
-
-**Coronavirus Fears Derail London Events, Concerns Raised on Bond Film Release**\
-`The disruption caused by the spread of the coronavirus has reached the British entertainment industry, with events axed and concerns raised over the timing of the new Bond film.`\
-https://nytimes.com/reuters/2020/03/04/arts/04reuters-health-coronavirus-london.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/04/us/politics/ap-us-virus-outbreak-american-prisoner.html?searchResultPosition=10
 
