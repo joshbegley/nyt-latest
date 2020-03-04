@@ -1,36 +1,36 @@
-**Your Money: Fed's Surprise Cut Is a Cure for Mortgage Rate Envy**\
-`When Kristin Tassi bought her house in Chicago two years ago, she was disappointed to get an interest rate of 4% on her mortgage. All of her friends had lower rates. `\
-https://nytimes.com/reuters/2020/03/04/us/04reuters-money-interest-mortgages.html?searchResultPosition=2
+**Ex-Uber Self-Driving Head Owes $179 Million to Google in Contract Dispute**\
+`The former head of Uber Technologies Inc's self-driving technology unit must pay $179 million to Alphabet Inc's Google to end a legal battle over his split from the company, according to a court order on Wednesday.`\
+https://nytimes.com/reuters/2020/03/04/technology/04reuters-waymo-uber.html?searchResultPosition=2
 
-**Mantel Unveils Final Volume in Award-Winning Thomas Cromwell Trilogy**\
-`British novelist Hilary Mantel unveiled the final installment on Wednesday of her Tudor trilogy about Thomas Cromwell, the blacksmith's son who rose to be King Henry VIII's most powerful adviser only to fall from grace and meet a gruesome end.`\
-https://nytimes.com/reuters/2020/03/04/arts/04reuters-britain-people-mantel.html?searchResultPosition=3
+**Golf: Masters 'Proceeding as Scheduled', Monitoring Coronavirus**\
+`The Masters will proceed as scheduled next month and precautions will be established to ensure the safety of everyone at the year's first major following the coronavirus outbreak, Augusta National Golf Club said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/04/sports/golf/04reuters-health-coronavirus-masters.html?searchResultPosition=3
 
-**Fashion Designers Recall Their First Big Celebrity Breaks**\
-`For fashion designers having a major celebrity wear their clothing can immediately launch them into the limelight.`\
-https://nytimes.com/reuters/2020/03/04/arts/04reuters-fashion-designers-celebs.html?searchResultPosition=4
+**The Fed Simplifies Capital Rules, a Change Sought by Big Banks**\
+`The central bank will streamline how bank capital requirements are set, despite objections by a Fed governor who said the move would lower the amount of cash banks keep on hand.`\
+https://nytimes.com/2020/03/04/business/economy/federal-reserve-bank-capital.html?searchResultPosition=4
 
-**Investors Push for Libor Floors as Benchmark Falls Amid Virus Fears**\
-`US leveraged loan investors are pushing to set a minimum return for lending to some of the world’s most well-known companies as rates fall amid global market volatility caused by concerns about the fast-spreading coronavirus.`\
-https://nytimes.com/reuters/2020/03/04/us/04reuters-liborfloor-loans.html?searchResultPosition=5
+**NHL Bans Overseas Business Travel Due to Coronavirus Concerns**\
+`The NHL has banned its employees from overseas business travel while it monitors the spreading coronavirus outbreak, Commissioner Gary Bettman said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/04/sports/hockey/04reuters-health-coronavirus-nhl.html?searchResultPosition=5
 
-**Pitt Women Snap Skid; Notre Dame's NCAA Tourney Streak Ends**\
-`Dayshanette Harris hit the go-ahead jumper with 2.7 seconds to play and stole Notre Dame's ensuing inbound pass as Pittsburgh beat the Fighting Irish 67-65 Wednesday for its second-ever victory in the Atlantic Coast Conference tournament.`\
-https://nytimes.com/aponline/2020/03/04/sports/ncaabasketball/bc-bkw-acc-pittsburgh-notre-dame.html?searchResultPosition=6
+**Canoeing: Report Finds 'Culture of Fear' Existed at British Body**\
+`A 'culture of fear' existed at British Canoeing as a result of a commonly held view that the pursuit of medals was at any cost, an independent investigation found in a report published on Wednesday.`\
+https://nytimes.com/reuters/2020/03/04/sports/olympics/04reuters-canoeing-britain.html?searchResultPosition=6
 
-**California Delegate Wave Didn't Quite Break as Expected**\
-`While Sen. Bernie Sanders mined the motherlode of delegates from California on Super Tuesday, it wasn’t nearly enough and isn’t getting counted fast enough to counter former Vice President Joe Biden’s huge night.`\
-https://nytimes.com/aponline/2020/03/04/us/ap-us-election-2020-delegates.html?searchResultPosition=7
+**Islanders' Boychuk Gets 90 Stitches to Eyelid After Taking Skate to Face**\
+`New York Islanders defenseman Johnny Boychuk needed 90 stitches to close a wound on his eyelid after taking an opponent's skate blade to the face, the NHL team announced on Wednesday.`\
+https://nytimes.com/reuters/2020/03/04/sports/hockey/04reuters-icehockey-nhl-nyi-boychuk.html?searchResultPosition=7
 
-**RBC to Cut Canada Prime Rate to 3.45%, With Rivals Expected to Follow**\
-`Royal Bank of Canada said on Wednesday it would cut its prime rate to 3.45% from 3.95% in its first reduction since July 2015, with the country's other lenders expected to follow suit, even as the moves weigh on margins already under pressure.`\
-https://nytimes.com/reuters/2020/03/04/us/04reuters-canada-banks-ratecuts.html?searchResultPosition=8
+**Latinos and Young People Come Through for Sanders in California**\
+`With millions of ballots left to count, it is impossible to know how the delegates will be allocated.`\
+https://nytimes.com/2020/03/04/us/politics/California-Bernie-Sanders.html?searchResultPosition=8
 
-**U.S. Should Give China Leeway in Implementing Trade Deal Due to Virus: Grassley**\
-`Washington needs to give China some leeway in implementing a Phase 1 trade deal given a downturn in the Chinese economy caused by the fast-spreading coronavirus, U.S. Senate Finance Committee Chairman Chuck Grassley said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-health-coronavirus-trade-china.html?searchResultPosition=9
+**Man Charged With Threatening Rays Players, Other Athletes**\
+`A New York sports gambler is facing federal charges in Florida related to threatening social media messages sent to players with the Tampa Bay Rays and other teams, federal authorities said Wednesday.`\
+https://nytimes.com/aponline/2020/03/04/sports/baseball/ap-bba-rays-threats.html?searchResultPosition=9
 
-**Texas Jury Opposes Felony Charges for Protesters Who Shut Houston Ship Channel**\
-`A Texas grand jury on Wednesday declined to issue felony indictments against a group of Greenpeace USA activists who year closed a key oil export waterway for 18 hours last year by tying themselves to a Houston bridge and dangling over the water. `\
-https://nytimes.com/reuters/2020/03/04/us/04reuters-houstonshipchannel-closure-charges.html?searchResultPosition=10
+**Wall Street, Encouraged by Biden’s Wins, Breaks Out Its Checkbooks**\
+`Fearful of the more progressive candidates, some finance executives had sidelined themselves from the elections until Mr. Biden surged.`\
+https://nytimes.com/2020/03/04/business/wall-street-joe-biden-bernie-sanders.html?searchResultPosition=10
 
