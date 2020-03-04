@@ -1,8 +1,12 @@
-**China Defense Minister Discusses Coronavirus With U.S.**\
-`Chinese Defense Minister Wei Fenghe discussed the coronavirus situation in China with U.S. Defense Secretary Mark Esper on Wednesday in a telephone call, China's defense ministry said.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-china-usa-defense.html?searchResultPosition=9
+**Watch Live: Sanders Holds Super Tuesday Rally in Vermont**\
+`Senator Bernie Sanders is expected to speak to supporters in Burlington, Vt., as his campaign awaits the full results from Super Tuesday voting.`\
+https://nytimes.com/video/us/elections/100000007011201/bernie-sanders-super-tuesday-2020.html?searchResultPosition=1
 
-**With Russia Ties Under Strain, Belarus Holds Drills With British Marines**\
-`Belarus began holding joint military drills with 28 British Marines at a training ground in the north of the country this week at a time when relations with its traditional ally Russia are under strain.`\
-https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-belarus-defence.html?searchResultPosition=10
+**Carrasco Feeling Strong, Ready for New Start With Indians**\
+`In the midst of the spring training grind, the Angels-Indians game Tuesday provided an inspirational moment.`\
+https://nytimes.com/aponline/2020/03/03/sports/baseball/ap-bba-indians-carrasco.html?searchResultPosition=2
+
+**‘First Cow’ Review: The Milk of Human Kindness**\
+`Set in the mid-19th-century Oregon Territory, Kelly Reichardt’s latest film is a fable, a western, a buddy picture and a masterpiece.`\
+https://nytimes.com/2020/03/03/movies/first-cow-review.html?searchResultPosition=3
 
