@@ -30,7 +30,7 @@ https://nytimes.com/aponline/2020/03/04/us/ap-us-election-2020-california-primar
 `China prepared to close temporary hospitals while South Korea struggled to find enough beds for its sick Wednesday as the virus epidemic that began in Asia increasingly troubled the West.`\
 https://nytimes.com/aponline/2020/03/04/world/europe/ap-virus-outbreak.html?searchResultPosition=9
 
-**Clashes Erupt on Greek-Turkish Border as Migrants Seek Entry**\
+**Clashes Erupt on Greece-Turkey Border as Migrants Seek Entry**\
 `Greek authorities were firing tear gas and stun grenades Wednesday morning to repulse a push by migrants to cross its land border from Turkey, as pressure continued along its frontier after Turkey said its own border with Europe was open to whoever wanted to cross.`\
 https://nytimes.com/aponline/2020/03/04/business/bc-eu-turkey-greece.html?searchResultPosition=10
 
