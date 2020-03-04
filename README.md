@@ -1,36 +1,36 @@
-**Cover Story: The Forward March of Men’s Fashion**\
-`Utilitarian pieces and bondage-inspired accessories make for a radical new look, conferring strength in a harsh world.`\
-https://nytimes.com/2020/03/04/t-magazine/mens-fashion-spring-trends.html?searchResultPosition=2
+**Coronavirus Cases in Britain Rise to 85 in Biggest Daily Jump**\
+`The number of confirmed coronavirus cases in Britain rose to 85 on Wednesday in the biggest daily jump since it was first detected in the country, health ministry figures showed on Wednesday.`\
+https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-health-coronavirus-britain.html?searchResultPosition=2
 
-**‘The Way Back’ Review: Seeking Redemption on the Basketball Court**\
-`Ben Affleck stars in this film that has the outward trappings of an inspirational sports drama, but is primarily a recovery movie.`\
-https://nytimes.com/2020/03/04/movies/the-way-back-review.html?searchResultPosition=3
+**Pet of Hong Kong Coronavirus Patient Could Be First Human-To-Animal Transmission: Experts**\
+`Animal health experts said on Wednesday a quarantined dog of a  coronavirus patient in Hong Kong could be the first case of human-to-animal transmission, although they cautioned the matter remained under investigation.`\
+https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-china-health-hongkong-dog.html?searchResultPosition=3
 
-**Long Lines and a Surge for Sanders**\
-`Wednesday: What to know about what happened on Super Tuesday in California.`\
-https://nytimes.com/2020/03/04/us/california-super-tuesday-lines-sanders.html?searchResultPosition=4
+**Follow the Fed? Why Central Banks Won't Be Rushed on Virus Response**\
+`Will the world's big central banks leave U.S. Federal Reserve Chair Jerome Powell hanging? They're certainly going to try. `\
+https://nytimes.com/reuters/2020/03/04/business/04reuters-health-coronavirus-policy-analysis.html?searchResultPosition=4
 
-**UK's Johnson Stands by Colleague as Bullying Claims Mount**\
-`British Prime Minister Boris Johnson came to the defense of his interior minister on Wednesday, after several civil servants accused Home Secretary Priti Patel of bullying.`\
-https://nytimes.com/aponline/2020/03/04/world/europe/bc-eu-britain-politics.html?searchResultPosition=5
+**Futures Surge After Biden's Resurgence in Democratic Primaries**\
+`U.S. stock markets looked set to cheer a strong showing for Joe Biden in the Super Tuesday Democratic primaries on Wednesday, with Dow and S&P index futures rebounding around 2% from heavy losses a day earlier.`\
+https://nytimes.com/reuters/2020/03/04/business/04reuters-usa-stocks.html?searchResultPosition=5
 
-**Survey: U.S. Businesses Added 183,000 Jobs in February**\
-`U.S. businesses added 183,000 jobs last month, a solid gain that shows the economy was largely healthy when the coronavirus outbreak spread further around the globe. `\
-https://nytimes.com/aponline/2020/03/04/business/bc-us-adp-employment.html?searchResultPosition=6
+**Bayer's Top Seed Faces U.S. Soybean Challenge From Corteva**\
+`Bayer AG's takeover of Monsanto has been beset by problems, and now a decades-long dominance of the $4 billion U.S. soybean seed market is under threat from rival Corteva Inc.`\
+https://nytimes.com/reuters/2020/03/04/business/04reuters-usa-soybeans-seed-focus.html?searchResultPosition=6
 
-**The Impact of Spreading Virus on Businesses and Economy**\
-`ALTERED EXPECTATIONS: General Electric Co.`\
-https://nytimes.com/aponline/2020/03/04/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=7
+**GE Sticks to 2020 Targets, Says Coronavirus to Hit Cashflow by Up to $500 Million**\
+`General Electric Co on Wednesday reiterated its 2020 cash and profit targets but warned its first-quarter cash flow would take a hit of $300 million to $500 million due to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/04/business/04reuters-general-electric-outlook.html?searchResultPosition=7
 
-**Virginia School Aide Sentenced for Stealing Students' Pills**\
-`A Virginia elementary school clinic aide convicted of stealing students' prescription medications and replacing them with other drugs was sentenced Monday to five years in prison.`\
-https://nytimes.com/aponline/2020/03/04/us/ap-us-school-aide-adderall.html?searchResultPosition=8
+**What You Need to Know About Coronavirus Right Now**\
+`Here's what you need to know about coronavirus:`\
+https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-health-coronavirus-snapshot.html?searchResultPosition=8
 
-**Lesson of the Day: ‘5 Takeaways From a Super Tuesday That Changed the Democratic Race’**\
-`In this lesson, students analyze and react to the results of the biggest day of the Democratic presidential campaign. We then invite them to share evidence-based predictions for the future of the race.`\
-https://nytimes.com/2020/03/04/learning/lesson-of-the-day-5-takeaways-from-a-super-tuesday-that-changed-the-democratic-race.html?searchResultPosition=9
+**China Says Hubei Virus Control and Prevention Still Heavy Task**\
+`The task of controlling and preventing the spread of the coronavirus in Hubei province, origin of the global outbreak, is still heavy, the ruling Communist Party's Politburo said on Wednesday, according to state television. `\
+https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-health-coronavirus-china-politburo.html?searchResultPosition=9
 
-**Why Does My Kid Prefer My Partner?**\
-`Rude.`\
-https://nytimes.com/2020/03/04/parenting/why-does-my-kid-prefer-my-partner.html?searchResultPosition=10
+**Italy to Shut All Schools, Universities Over Coronavirus: Government Source**\
+`Italy is to close all schools and universities from Thursday to try to contain its worsening coronavirus outbreak, a government source said, as cases continued to rise in Europe's worst hit country.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-coronavirus-italy.html?searchResultPosition=10
 
