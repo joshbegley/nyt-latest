@@ -1,36 +1,36 @@
-**No U.S. Airline Bailouts Needed Over Coronavirus-Hit Demand, U.S. Business Group Says**\
-`The head of the U.S. Chamber of Commerce said on Wednesday that the government will not need to bail out U.S. airlines in the wake of sagging travel demand due to concerns over the coronavirus.`\
-https://nytimes.com/reuters/2020/03/04/us/04reuters-health-coronavirus-usa-airlines.html?searchResultPosition=2
+**Vaccine Development: The Ebola Example**\
+`Dr. Julie Gerberding of Merck discusses the company’s effort in 2014 to respond to the West Africa outbreak. Also: California’s motor vehicle agency, on Real IDs; preventing the loss of forestlands.`\
+https://nytimes.com/2020/03/04/opinion/letters/merck-ebola-vaccine.html?searchResultPosition=2
 
-**Mainstream Dems Express Relief at Biden Presidential Upsurge**\
-`Mainstream Democrats were rejoicing over Joe Biden's rousing Super Tuesday performance that bolstered his bid for the Democratic presidential nomination, easing worries over the havoc they fear awaits down-ticket moderates should Sen. Bernie Sanders become the party's standard-bearer.`\
-https://nytimes.com/aponline/2020/03/04/us/politics/ap-us-election-2020-relieved-democrats.html?searchResultPosition=3
+**S&P Global Halves Eurozone Growth Forecast, Flags Gloom for Italy**\
+`Coronavirus worries saw credit rating agency S&P Global halve its eurozone growth forecast for the year to 0.5% from 1% on Wednesday and predict a 0.3% contraction for hard hit Italy.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-coronavirus-growth-s-p.html?searchResultPosition=3
 
-**New & Noteworthy, From RuPaul to a Nine-Dish Meal**\
-`A selection of recent books of interest; plus, a peek at what our colleagues around the newsroom are reading.`\
-https://nytimes.com/2020/03/04/books/review/new-this-week.html?searchResultPosition=4
+**Fed's Bullard Says Policy Now in the Right Place to Address Coronavirus Risks**\
+`Risks are rising that the coronavirus could be more severe than previously thought, but interest rates are now appropriate after the Federal Reserve's emergency rate cut, St. Louis Federal Reserve President James Bullard said Wednesday. `\
+https://nytimes.com/reuters/2020/03/04/us/04reuters-usa-fed-bullard.html?searchResultPosition=4
 
-**Stalled Supply Chains, Surging Demand: Coronavirus Slams Brazil Mask Factory**\
-`The last time Miguel Luiz Gricheno had such sky-high demand for his Brazilian company's masks was in 2001, during the global scare over anthrax attacks, he recalled.`\
-https://nytimes.com/reuters/2020/03/04/world/04reuters-health-coronavirus-brazil-masks.html?searchResultPosition=5
+**OPEC Pushing Russia to Support Big Oil Cut Amid Coronavirus**\
+`Saudi Arabia and other OPEC members were seeking to win support from Russia on Wednesday to join them in additional oil output cuts in a bid to prop up prices which have tumbled by a fifth this year because of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/04/world/04reuters-opec-meeting.html?searchResultPosition=5
 
-**U.S. Equity Funds Suffer Largest Outflows Since September on Virus Fears**\
-`Investors pulled slightly more than $13.6 billion out of mutual funds and exchange-traded funds that hold U.S. equities last week, marking the sharpest pullback from the domestic stock market since September, according to data released on Wednesday by the Investment Company Institute. `\
-https://nytimes.com/reuters/2020/03/04/business/04reuters-usa-funds-ici.html?searchResultPosition=6
+**Toyota Recalls 3.2 Million Vehicles Worldwide Over Fuel Pump Problem**\
+`Toyota Motor Corp said Wednesday it is now recalling 3.2 million vehicles worldwide to address a fuel pump issue that could result in engines stalling.`\
+https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-toyota-recall.html?searchResultPosition=6
 
-**Worried About Coronavirus at Work? In France, You Can Walk Off the Job**\
-`Bus driver Younes Laggoun worries that spending hours at work breathing the same air as coughing and sneezing passengers could infect him with the coronavirus. Because he works in France, he had a solution: he walked off the job.`\
-https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-coronavirus-france-work.html?searchResultPosition=7
+**Top Stockpicker Michael Baron Bets on Research, Not Nerves**\
+`As one of America's top stockpickers, Michael Baron faces significant exposure to the spreading coronavirus epidemic, which has posed a challenge for travel companies like Hyatt Hotels and Norwegian Cruise Line Holdings. `\
+https://nytimes.com/reuters/2020/03/04/us/04reuters-funds-baron.html?searchResultPosition=7
 
-**Bank of Canada Slashes Rates Amid Coronavirus Fears, Markets See Another Cut**\
-`The Bank of Canada slashed its benchmark interest rate to 1.25% from 1.75% on Wednesday in the face of a coronavirus outbreak and said it was prepared to cut again if needed to support growth.`\
-https://nytimes.com/reuters/2020/03/04/us/04reuters-canada-cenbank.html?searchResultPosition=8
+**Fiat Chrysler Defies Virus Fears to Showcase Electric 500 in Milan**\
+`Fiat Chrysler defied fears over Italy's coronavirus outbreak to showcase an electric version of its 500 city car on Wednesday, as it strives to catch up with rivals in low-emissions driving while heading into a merger with Peugeot maker PSA.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-fiat-chrysler-electric-500.html?searchResultPosition=8
 
-**GM Shows 13 Electric Vehicles as It Tries to Run With Tesla**\
-`General Motors, trying to refashion itself as a futuristic company with technology to compete against Tesla, rolled out plans Wednesday for 13 new electric vehicles during the next five years.`\
-https://nytimes.com/aponline/2020/03/04/business/bc-us-general-motors-electric-vehicles.html?searchResultPosition=9
+**Blackstone CEO Says 'Unclear' if Fed Rate Cut Can Restore Confidence**\
+`Private equity firm Blackstone Group Chief Executive Stephen Schwarzman said on Wednesday that it "remained unclear" if an interest rate cut by the U.S. Federal Reserve would restore confidence in the face of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/04/business/04reuters-blackstone-group-fed.html?searchResultPosition=9
 
-**G.M. Lays Out Ambitions for Electric-Vehicle Lineup**\
-`General Motors says it is aiming to sell a million electric cars and trucks annually by 2025 in the United States and China.`\
-https://nytimes.com/2020/03/04/business/gm-electric-vehicles.html?searchResultPosition=10
+**Virgin Atlantic to Cut Costs as Coronavirus Hits Demand**\
+`British airline Virgin Atlantic said it would reduce costs to help withstand the impact of coronavirus on travel demand, including a temporary pay cut for its chief executive and a proposal to defer annual pay increases.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-coronavirus-virgin-atlantic-costs.html?searchResultPosition=10
 
