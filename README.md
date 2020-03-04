@@ -1,36 +1,36 @@
-**China to Offer Cash Support to Domestic, Foreign Carriers Amid Coronavirus Outbreak**\
-`China will offer cash support to both domestic and foreign carriers to encourage them to restore services and not to suspend flights amid the coronavirus outbreak, the country's aviation regulator said on Wednesday. `\
-https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-health-coronavirus-china-aviation.html?searchResultPosition=2
+**Robert Durst Faces Jury for Opening Statements in 'The Jinx' Murder Trial**\
+`Robert Durst, the ailing New York real estate scion whose arrest prosecutors say was hastened by his confession to multiple killings in a 2015 TV documentary, was due to face a jury on Wednesday for opening statements in his Los Angeles murder trial.`\
+https://nytimes.com/reuters/2020/03/04/arts/04reuters-people-durst.html?searchResultPosition=2
 
-**Virgin Atlantic Waives Change Fees for New Bookings in March**\
-`British airline Virgin Atlantic said it would waive flight change fees for new bookings in March to give passengers more flexibility during the coronavirus crisis. `\
-https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-coronavirus-virgin-atlantic.html?searchResultPosition=3
+**Weather Reports From Greta Thunberg as Cult UK Show 'Spitting Image' Returns**\
+`British satirical puppet show "Spitting Image" returns this autumn, caricaturing a new generation of public figures to rival past stalwarts from Margaret Thatcher to Ronald Reagan.`\
+https://nytimes.com/reuters/2020/03/04/arts/04reuters-britain-media-spittingimage.html?searchResultPosition=3
 
-**ECB Holds Emergency Meeting on Coronavirus but Leaves Out Policy**\
-`European Central Bank policymakers held an unscheduled telephone conference call late on Tuesday to discuss their emergency response to the coronavirus outbreak but policy action was not on the agenda, five sources told Reuters.`\
-https://nytimes.com/reuters/2020/03/04/us/04reuters-ecb-policy-coronavirus.html?searchResultPosition=4
+**Europe Must Be Ready for Fiscal Stimulus Over Virus: French Minister**\
+`Europe needs to be ready to use fiscal stimulus to deal with the impact of the coronavirus outbreak on economy, French Finance Minister Bruno Le Maire said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-coronavirus-health-europe-france.html?searchResultPosition=4
 
-**Thai Business Groups Say Economy May Shrink if Virus Impact Drags On**\
-`The Thai economy might not grow in the first half of 2020, and could even contract over the full year, if the coronavirus epidemic drags for longer than a few months, a group of leading business associations in Thailand said on Wednesday. `\
-https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-thailand-economy-coronavirus.html?searchResultPosition=5
+**Debt-Laden Intu Ditches Equity Raising, Shares Hit Record Low**\
+`Britain's Intu said on Wednesday it had abandoned an attempt to raise up to 1.5 billion pounds ($1.9 billion) via new equity after investors shunned the debt-laden mall operator's plans, kicking its shares down 40% to a record low.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-intu-prop-equity.html?searchResultPosition=5
 
-**BOK Says Will Keep Fed's Surprise Rate Cut in Mind in Conducting Policies**\
-`South Korea's central bank chief said on Wednesday that it will take into account the U.S. Federal Reserve's emergency interest rate cut as it conducts monetary policy.`\
-https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-southkorea-economy-cenbank.html?searchResultPosition=6
+**UAE's Flydubai Reports Full-Year Profit as Boeing Compensation Helps**\
+`United Arab Emirates carrier flydubai swung to a profit of 198.2 million dirham ($54 million) last year, helped by a compensation agreement with Boeing over the worldwide 737 MAX grounding.`\
+https://nytimes.com/reuters/2020/03/04/world/middleeast/04reuters-emirates-flydubai-results.html?searchResultPosition=6
 
-**IMF Deal Seen as Only Way Out for Lebanon**\
-`The Lebanese government must swallow its misgivings and reach a rescue deal with the International Monetary Fund (IMF) or risk economic implosion and further turmoil, economists, diplomats and politicians said.`\
-https://nytimes.com/reuters/2020/03/04/world/middleeast/04reuters-lebanon-crisis-imf-analysis.html?searchResultPosition=7
+**Bank of Japan's Kuroda Offers Bleak View on Economy, Warns of Damage From Coronavirus**\
+`The coronavirus outbreak could inflict serious damage on the Japanese economy, Bank of Japan Governor Haruhiko Kuroda said on Wednesday, stressing the central bank was ready to take "appropriate action" to underpin a fragile recovery.`\
+https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-japan-economy-boj.html?searchResultPosition=7
 
-**Huawei Will Build Factory in France Whatever Government Decision on 5G Equipment: Executive**\
-`Huawei will build a factory in France whatever the French government's decision on whether to use the firm's equipment in its new 5G network, an executive at the Chinese telecoms giant said on Wednesday. `\
-https://nytimes.com/reuters/2020/03/04/technology/04reuters-france-huawei.html?searchResultPosition=8
+**European Shares Rise as Investors Hope for More Stimulus**\
+`European shares rose on Wednesday as investors hoped the European Central Bank and euro zone governments would green light stimulus measures after the U.S. Federal Reserve cut interest rates in an emergency move.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-europe-stocks.html?searchResultPosition=8
 
-**China's Passenger Car Sales Fall 80% in February on Coronavirus Epidemic**\
-`Passenger car retail sales in China, the world's biggest auto market, fell 80% in February because of the coronavirus epidemic, one of the country's industry associations said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-health-coronavirus-toyota.html?searchResultPosition=9
+**Russian Pipe Maker Chelpipe Sets Sight on Exports, Niche Products**\
+`Russian steel pipe producer Chelpipe, which is considering a share offering in Moscow, is focussing on increasing exports and investing in high-value added projects amid a competitive domestic market, its chief executive officer said in an interview.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-russia-chelpipe.html?searchResultPosition=9
 
-**Fed's Mester Says Coronavirus Uncertainty Could Lead to Demand Shock: CNBC**\
-`Cleveland Federal Reserve President Loretta Mester said on Wednesday the supply shock induced by the coronavirus could have demand side implications, if uncertainty on its impact continues.`\
-https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-usa-fed-mester.html?searchResultPosition=10
+**China Says Will Not Use Property as Short-Term Stimulus to Jumpstart Economy**\
+`China's central bank said on Wednesday that the property sector will not be used as a means of short-term stimulus to jumpstart the economy, adding that financing policies for the sector will be consistent and stable. `\
+https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-china-economy.html?searchResultPosition=10
 
