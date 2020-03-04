@@ -1,36 +1,36 @@
-**Fed's Evans Expects Virus Impacts on Economy to Be Short-Lived**\
-`The coronavirus outbreak will likely have only a "short-lived" impact on the U.S. economy, with a hit to growth in gross domestic product limited to perhaps a few tenths of a percentage point, Chicago Federal Reserve Bank President Charles Evans said on Tuesday night.`\
-https://nytimes.com/reuters/2020/03/03/us/03reuters-usa-fed-evans-rates.html?searchResultPosition=2
+**Japan Services Sector Activity Shrinks on Coronavirus Hit: PMI**\
+`Japan's services sector shrank at the fastest pace in nearly six years in February as a jolt from the coronavirus threatens to push the economy into recession, dashing hopes of a domestic-led recovery.`\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-japan-economy-pmi.html?searchResultPosition=2
 
-**Lender CAF Approves $300 Million in Credit to Help Latin American Countries Hit by Coronavirus**\
-`Latin American development bank CAF has approved a credit line worth $300 million to manage emergencies related to coronavirus in its member countries, it said on Tuesday.   `\
-https://nytimes.com/reuters/2020/03/03/world/americas/03reuters-health-coronavirus-latam.html?searchResultPosition=3
+**Late-Deciding Voters Largely Supporting Biden Over Sanders: Edison Research**\
+`As many as half the voters taking part in Super Tuesday Democratic presidential primaries said they made up their minds in the last few days, and the lion's share of those late deciders backed Joe Biden, according to Edison Research exit polling.`\
+https://nytimes.com/reuters/2020/03/03/us/politics/03reuters-usa-election-supertuesday-poll.html?searchResultPosition=3
 
-**Moore's Free Throws Lift DePaul Over Marquette 69-68**\
-`Charlie Moore scored DePaul's final four points at the free-throw line to lift the Blue Demons to a 69-68 win over Marquette on Tuesday night.`\
-https://nytimes.com/aponline/2020/03/03/sports/ncaabasketball/bc-bkc-marquette-depaul.html?searchResultPosition=4
+**Louis Vuitton's Clash of Styles Wraps Up Paris Fashion Week**\
+`Louis Vuitton wrapped up Paris Fashion week on Tuesday with a mix-up of retro-chic, sporty and futuristic looks set to a baroque soundtrack sung by a choir in costume.`\
+https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-fashion-paris-louis-vuitton.html?searchResultPosition=4
 
-**Ay No! Accent Mark in Official Santa Fe Seal in Wrong Spot**\
-`An accent mark of the official seal of the capital city of the nation's most Hispanic state is in the wrong spot.`\
-https://nytimes.com/aponline/2020/03/03/us/ap-us-odd-wrong-accent-seal.html?searchResultPosition=5
+**Taiwan's Central Bank to Stabilize Forex Market After Fed Cuts Rates**\
+`Taiwan's central bank will act to stabilize the foreign exchange market after the U.S. Federal Reserve cut interest rates in response to the fast-spreading coronavirus, a bank official told Reuters on Wednesday. `\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-usa-fed-taiwan.html?searchResultPosition=5
 
-**BOJ's Kuroda to Appear in Parliament at 0524 GMT: Sources**\
-`Bank of Japan Governor Haruhiko Kuroda is scheduled to appear in parliament at 0524 GMT (14:24 Japan time) on Wednesday, two sources said.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-japan-economy-kuroda.html?searchResultPosition=6
+**South Korea Unveils $9.8 Billion Stimulus to Fight Coronavirus**\
+`South Korea announced a stimulus package of 11.7 trillion won  ($9.8 billion) on Wednesday to cushion the impact of the largest outbreak of coronavirus outside China as efforts to contain the disease worsen supply disruptions and sap consumption.`\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-southkorea-economy-budget.html?searchResultPosition=6
 
-**Coronavirus Sends Hong Kong Feb Business Activity Plunging to Record Low: PMI**\
-`The coronavirus epidemic dealt a severe blow to businesses in Hong Kong in February with activity plummeting to the lowest on record, a private survey showed on Wednesday, in a sign of a sharp economic downturn in the first quarter.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-hongkong-economy-pmi.html?searchResultPosition=7
+**Venezuela to Sell Shares in CAF Development Bank to Pay Debt: Opposition**\
+`Venezuela will sell some of its shares in the CAF Latin American development bank to pay down its debt with the lender, according to an opposition lawmaker who posted a copy of the resolution on Twitter on Tuesday. `\
+https://nytimes.com/reuters/2020/03/03/world/americas/03reuters-venezuela-economy-caf.html?searchResultPosition=7
 
-**S&P Cuts U.S. Growth Forecast Again as Virus Spreads**\
-`A rapidly spreading coronavirus outbreak will likely be a "material headwind" for the U.S. economy with the hit expected to be longer and deeper than previously anticipated, S&P Global Ratings said on Tuesday as it cut its growth forecast.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-health-coronavirus-usa-economy.html?searchResultPosition=8
+**Hong Kong's Central Bank Cuts Interest Rate After Fed Move**\
+`The Hong Kong Monetary Authority (HKMA) lowered its base rate charged through the overnight discount window by 50 basis points to 1.5% on Wednesday, hours after the U.S. Federal Reserve delivered a rate cut of the same margin.`\
+https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-hongkong-economy-rates.html?searchResultPosition=8
 
-**China's Central Bank Keeps Short-Term Rates Steady Despite Fed Easing**\
-`China's central bank kept short-term borrowing costs steady on Wednesday, shrugging off the U.S. Federal Reserve's emergency policy rate cut overnight.`\
-https://nytimes.com/reuters/2020/03/03/world/asia/03reuters-china-openmarket-repo.html?searchResultPosition=9
+**Debt Sales Make a Comeback After Coronavirus Shut-Down**\
+`Companies took advantage of a window of opportunity on Tuesday to launch debt sales on both sides of the Atlantic, after coronavirus concerns chilled deal markets last week. `\
+https://nytimes.com/reuters/2020/03/03/world/europe/03reuters-health-coronavirus-debt.html?searchResultPosition=9
 
-**Bloomberg to Reassess White House Bid on Wednesday, NBC Reports**\
-`Former New York Mayor Michael Bloomberg will reassess his campaign for the Democratic presidential nomination on Wednesday, NBC News reported.`\
-https://nytimes.com/reuters/2020/03/03/us/politics/03reuters-usa-election-bloomberg.html?searchResultPosition=10
+**Warren's Future Uncertain After Loss in Home State of Mass.**\
+`The future of Sen. Elizabeth Warren’s presidential campaign was in serious doubt after she was defeated in Tuesday’s Democratic primary in her home state of Massachusetts.`\
+https://nytimes.com/aponline/2020/03/03/us/politics/ap-us-election-2020-warren.html?searchResultPosition=10
 
