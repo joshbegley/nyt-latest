@@ -1,36 +1,36 @@
-**Ukraine’s Zelensky Fires His Cabinet**\
-`President Volodymyr Zelensky of Ukraine faulted his ministers for poor performance and for appointing foreigners to company boards, although Western donors have encouraged the practice.`\
-https://nytimes.com/2020/03/04/world/europe/ukraine-zelensky-cabinet.html?searchResultPosition=2
+**Keep Calm and Work From Home During Coronavirus, European Banks Tell Workers**\
+`Global banks and small investment firms in Europe are urging staff to work from home and curb travel as the financial industry braces for disruption from the rapidly spreading coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/04/business/04reuters-health-coronavirus-banks.html?searchResultPosition=2
 
-**Saudi Arabia Announces Second Coronavirus Case for a Citizen Coming From Iran Through Bahrain**\
-`Saudi Arabia on Wednesday said the second coronavirus case for a Saudi national came from Iran through Bahrain, the health ministry announced in a statement published by the state news agency.`\
-https://nytimes.com/reuters/2020/03/04/world/middleeast/04reuters-healthcare-coronavirus-saudi.html?searchResultPosition=3
+**As Americans Hoard Food, Campbell Soup Speeds Up Ingredients Orders**\
+`Campbell Soup said it is ordering more ingredients to ensure it can keep enough soups, sauces and snacks on hand to meet growing demand from retailers as U.S. consumers hoard food in preparation for potential coronavirus quarantines.`\
+https://nytimes.com/reuters/2020/03/04/business/04reuters-health-coronavirus-campbell.html?searchResultPosition=3
 
-**Algeria Reports Nine New Coronavirus Cases: Health Ministry**\
-`Algeria reported nine new confirmed coronavirus cases on Wednesday, bringing to 17 the total number of people tested positive for the virus, the health ministry said.`\
-https://nytimes.com/reuters/2020/03/04/world/africa/04reuters-health-coronavirus-algeria.html?searchResultPosition=4
+**GM Challenges Tesla With 'Ultium' Batteries and Fleet of EVs**\
+`General Motors Co Chief Executive Mary Barra said Wednesday the Detroit automaker will invest $20 billion by 2025 in electric and automated vehicles as it races to catch up with Elon Musk's Tesla Inc as vehicles go electric.`\
+https://nytimes.com/reuters/2020/03/04/business/04reuters-gm-electric.html?searchResultPosition=4
 
-**16 New Coronavirus Cases in Stockholm, How Four Patients Were Infected Is Unclear**\
-`Sixteen new cases of the coronavirus were confirmed in Stockholm, regional authorities said on Wednesday, taking the total number of cases in Sweden to 52.`\
-https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-corononavirus-sweden.html?searchResultPosition=5
+**The Buildings of Henry N. Cobb**\
+`Henry N. Cobb`\
+https://nytimes.com/slideshow/2020/03/04/obituaries/the-buildings-of-henry-n-cobb.html?searchResultPosition=5
 
-**Iraq Announces First Coronavirus Death in Capital**\
-`Iraq announced on Wednesday its first coronavirus death in the capital Baghdad, the health ministry said.`\
-https://nytimes.com/reuters/2020/03/04/world/middleeast/04reuters-health-coronavirus-iraq-death.html?searchResultPosition=6
+**Next BoE Boss Bailey Wants Clearer View on Coronavirus Hit Before Rate Decision**\
+`Andrew Bailey, the next governor of the Bank of England, said on Wednesday that he wanted to see more evidence about the economic impact of the coronavirus outbreak before deciding whether to cut interest rates.`\
+https://nytimes.com/reuters/2020/03/04/business/04reuters-health-coronavirus-boe-rates.html?searchResultPosition=6
 
-**U.S. House Set to Debate $8.3 Billion Bill to Fight Coronavirus**\
-`Legislation aimed at helping control the spread of coronavirus and develop a vaccine for the highly contagious disease is set to begin moving through the U.S. House of Representatives after congressional negotiators on Wednesday struck a deal on its provisions.`\
-https://nytimes.com/reuters/2020/03/04/us/politics/04reuters-health-coronavirus-usa-congress.html?searchResultPosition=7
+**Mormon-Owned BYU: Same-Sex Romantic Behavior Still Banned**\
+`Brigham Young University in Utah said Wednesday that “same-sex romantic behavior” is not allowed on campus even under recent changes to its strict code of conduct that dropped a section banning any behavior that reflected “homosexual feelings." `\
+https://nytimes.com/aponline/2020/03/04/us/ap-us-byu-lgbtq-rule.html?searchResultPosition=7
 
-**Emergency Coronavirus Funding Bill Unveiled in Congress**\
-`Legislation funding emergency efforts to combat the spreading coronavirus was unveiled in the U.S. Congress on Monday and would total $8.3 billion, including money to develop vaccines and tests for the disease, according to a House of Representatives Democratic aide.`\
-https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-health-coronavirus-usa-funding.html?searchResultPosition=8
+**Florida Lawmakers Rally Behind 6-Year-Old Arrested at School**\
+`Florida lawmakers rallied behind a 6-year-old girl who was zip-tied at school and arrested last fall, and on Wednesday overwhelmingly passed a measure requiring law enforcement authorities to put procedures in place for arresting children under 10 years old.`\
+https://nytimes.com/aponline/2020/03/04/us/ap-us-xgr-child-arrested-florida.html?searchResultPosition=8
 
-**Italy Closes Schools and Universities Until March 15 Because of Coronavirus**\
-`All Italian schools and universities will close from Thursday until March 15 as part of an effort to contain a growing outbreak of coronavirus, Education Minister Lucia Azzolina said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-coronavirus-italy-minister.html?searchResultPosition=9
+**Huawei Pleads Not Guilty to New U.S. Criminal Charges in 2018 Case**\
+`China's Huawei Technologies Co Ltd, the world's largest telecommunications equipment maker, on Wednesday pleaded not guilty in a New York federal court to new charges in a 2018 case against the company. `\
+https://nytimes.com/reuters/2020/03/04/business/04reuters-china-huawei-tech.html?searchResultPosition=9
 
-**Prosthetic Innovation: 'It's Like You Have a Hand Again': Study**\
-`Today's artificial limbs can look very natural, and now an innovative process makes prosthetic hands move more naturally as well.`\
-https://nytimes.com/reuters/2020/03/04/technology/04reuters-health-amputees.html?searchResultPosition=10
+**France Says It Now Has 285 Confirmed Cases of Coronavirus**\
+`France has 285 confirmed cases of coronavirus, the head of the public health service, Jerome Salomon, said on Wednesday, which in an increase of 73 compared to a day earlier.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-health-coronavirus-france.html?searchResultPosition=10
 
