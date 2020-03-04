@@ -19,7 +19,7 @@ https://nytimes.com/2020/03/04/world/asia/afghanistan-taliban-violence.html?sear
 https://nytimes.com/2020/03/04/business/stock-markets-today.html?searchResultPosition=6
 
 **Official: US Strike Taliban, in First Hit Since Peace Deal**\
-`The U.S. military says it has conducted an airstrike against Taliban forces in southern Afghanistan, only days after American and Taliban officials signed an ambitious peace deal in the Mideastern state of Qatar.`\
+`The U.S. conducted Wednesday its first airstrike against Taliban forces in Afghanistan, a military spokesman said, days after signing an ambitious peace deal with the militant group in the Mideastern state of Qatar.`\
 https://nytimes.com/aponline/2020/03/04/us/ap-as-afghanistan.html?searchResultPosition=7
 
 **EU Commission Unveils Climate Law Amid Criticism**\
