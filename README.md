@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/03/04/world/europe/ap-eu-germany-politics.html
 `A judge in Alabama has delayed the reckless murder trial of a former NASA astronaut charged in a crash that killed two girls four years ago, court records show.`\
 https://nytimes.com/aponline/2020/03/04/us/ap-us-former-astronaut-fatal-crash.html?searchResultPosition=7
 
-**Why Biden Is Winning**\
+**Why Joe Biden Is Winning**\
 `It’s a version of John McCain in 2008.`\
 https://nytimes.com/2020/03/04/opinion/joe-biden-favorite.html?searchResultPosition=8
 
