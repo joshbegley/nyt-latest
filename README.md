@@ -1,36 +1,36 @@
+**RBC to Cut Canada Prime Rate to 3.45%, With Rivals Expected to Follow**\
+`Royal Bank of Canada said on Wednesday it would cut its prime rate to 3.45% from 3.95% in its first reduction since July 2015, with the country's other lenders expected to follow suit, even as the moves weigh on margins already under pressure.`\
+https://nytimes.com/reuters/2020/03/04/us/04reuters-canada-banks-ratecuts.html?searchResultPosition=2
+
+**U.S. Should Give China Leeway in Implementing Trade Deal Due to Virus: Grassley**\
+`Washington needs to give China some leeway in implementing a Phase 1 trade deal given a downturn in the Chinese economy caused by the fast-spreading coronavirus, U.S. Senate Finance Committee Chairman Chuck Grassley said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-health-coronavirus-trade-china.html?searchResultPosition=3
+
+**Texas Jury Opposes Felony Charges for Protesters Who Shut Houston Ship Channel**\
+`A Texas grand jury on Wednesday declined to issue felony indictments against a group of Greenpeace USA activists who year closed a key oil export waterway for 18 hours last year by tying themselves to a Houston bridge and dangling over the water. `\
+https://nytimes.com/reuters/2020/03/04/us/04reuters-houstonshipchannel-closure-charges.html?searchResultPosition=4
+
+**After Slashing Rates, U.S. Fed Has More Weapons to Fight Coronavirus Effect**\
+`The Federal Reserve's emergency decision to slash interest rates this week in response to the coronavirus outbreak was actually fairly straightforward, policymakers said, as economic risks piled up fast and confidence faltered.`\
+https://nytimes.com/reuters/2020/03/04/us/04reuters-usa-fed-next-analysis.html?searchResultPosition=5
+
+**United Steelworkers Union Mulls New Negotiating Partner for Oil Bargaining**\
+`The United Steelworkers union (USW) is considering designating a new lead negotiator in the National Oil Bargaining process, the union's president said on Wednesday, as current lead negotiator Shell cuts back on the number of refineries it owns.`\
+https://nytimes.com/reuters/2020/03/04/world/europe/04reuters-steel-labor-negotiations.html?searchResultPosition=6
+
+**Reptile Breeder Pays Fine After 157 Venomous Snakes Seized**\
+`A reptile breeder in upstate New York has paid a $500 fine related to the possession of more than 150 venomous snakes in his home, the state Department of Environmental Conservation said Wednesday.`\
+https://nytimes.com/aponline/2020/03/04/us/ap-us-venomous-snake-breeder-fine.html?searchResultPosition=7
+
 **Laszewski, Wisconsin Women Beat Illinois Is Big Ten Tourney**\
 `Abby Laszewski had 24 points and 10 rebounds, Imani Lewis added 14 points and nine boards, and Wisconsin beat Illinois 71-55 in the Big Ten Conference tournament Wednesday. `\
-https://nytimes.com/aponline/2020/03/04/sports/ncaabasketball/bc-bkw-b10-illinois-wisconsin.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/03/04/sports/ncaabasketball/bc-bkw-b10-illinois-wisconsin.html?searchResultPosition=8
 
 **Walker Lifts Air Force Past Fresno St. 77-70 in MWC Tourney**\
 `A.J. Walker had a career-high 24 points as Air Force topped Fresno State 77-70 in the first round of the Mountain West Conference tournament Wednesday. `\
-https://nytimes.com/aponline/2020/03/04/sports/ncaabasketball/bc-bkc-mwc-air-force-fresno-st.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/03/04/sports/ncaabasketball/bc-bkc-mwc-air-force-fresno-st.html?searchResultPosition=9
 
 **After Deadly Tornadoes, Tennessee Rescue Teams Search for Survivors**\
 `A day after a series of fierce tornadoes killed 24 people in Tennessee, rescue teams on Wednesday were searching through flattened homes and piles of debris in the north-central part of the state for possible survivors. `\
-https://nytimes.com/reuters/2020/03/04/us/04reuters-usa-weather.html?searchResultPosition=4
-
-**Defense Department Weakens U.S. Military Housing Bill After Consulting Industry**\
-`A sweeping U.S. military housing reform plan, pitched as a way to protect service families from shoddy homes and unresponsive landlords, has been watered down to remove several protections tenants and Congress had sought.`\
-https://nytimes.com/reuters/2020/03/04/us/politics/04reuters-usa-military-tenants.html?searchResultPosition=5
-
-**Brian Urlacher's Brother Pleads Not Guilty in Gambling Case**\
-`Casey Urlacher, the brother of Chicago Bears Hall of Fame linebacker Brian Urlacher, pleaded not guilty Wednesday to federal charges alleging he was part of an offshore sports gambling business. `\
-https://nytimes.com/aponline/2020/03/04/sports/ap-us-sports-gambling-indictment.html?searchResultPosition=6
-
-**U.S. Senator Wants to Ban TikTok for Federal Workers, Citing Chinese Government Ties**\
-`Republican Senator Josh Hawley on Wednesday said he will introduce legislation banning federal employees from using social media app TikTok on their devices and accused the company of sharing data with the Chinese government.`\
-https://nytimes.com/reuters/2020/03/04/technology/04reuters-usa-china-tik-tok.html?searchResultPosition=7
-
-**Is It Possible to Feel Creatively Connected Without Social Media?**\
-`“While Emily Dickinson might have killed it in 280 characters, I also think that Twitter might have killed her,” writes one of our advice columnists.`\
-https://nytimes.com/2020/03/04/t-magazine/artists-creativity-social-media.html?searchResultPosition=8
-
-**Canopy Growth to Close Two Greenhouses, Cut About 500 Positions**\
-`Pot producer Canopy Growth Corp said on Wednesday it plans to close two of its greenhouses in Aldergrove and Delta, British Columbia, cutting about 500 positions.`\
-https://nytimes.com/reuters/2020/03/04/business/04reuters-canopy-growth-restructuring.html?searchResultPosition=9
-
-**Fed Adopts New 'Stress Capital Buffer' for Large U.S. Banks**\
-`The U.S. Federal Reserve unveiled new rules on Wednesday that create a "stress capital buffer" to determine how much banks must hold in reserve to guard against downturns.`\
-https://nytimes.com/reuters/2020/03/04/business/04reuters-usa-fed-banks.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/04/us/04reuters-usa-weather.html?searchResultPosition=10
 
