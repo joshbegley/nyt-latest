@@ -26,7 +26,7 @@ https://nytimes.com/2020/03/04/world/asia/afghanistan-taliban-violence.html?sear
 `Global investors take a breather after a U.S. interest rate cut sent Wall Street into turmoil.`\
 https://nytimes.com/2020/03/04/business/stock-markets-today.html?searchResultPosition=8
 
-**Official: US Strike Taliban, in First Hit Since Peace Deal**\
+**US Strikes Taliban Forces, in First Hit Since Peace Deal**\
 `The U.S. conducted Wednesday its first airstrike against Taliban forces in Afghanistan, a military spokesman said, days after signing an ambitious peace deal with the militant group in the Mideastern state of Qatar.`\
 https://nytimes.com/aponline/2020/03/04/us/ap-as-afghanistan.html?searchResultPosition=9
 
