@@ -1,36 +1,36 @@
-**The Amy Klobuchar Exit Interview**\
-`The hot dish on how she decided to end her bid and what the future holds for female candidates.`\
-https://nytimes.com/2020/03/05/us/politics/amy-klobuchar-exit-interview.html?searchResultPosition=2
+**French Lawmaker Hospitalized After Contracting Coronavirus**\
+`A member of France's National Assembly has been hospitalized in intensive care after contracting coronavirus, the lower house of parliament said in a statement on Thursday.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-france-lawmaker.html?searchResultPosition=2
 
-**Man Pleads Guilty to Selling Guns Stolen From ATF Facility**\
-`A Pennsylvania man awaits sentencing after pleading guilty Thursday to charges that he bought and sold guns and gun parts that had been stolen from a federal disposal facility. `\
-https://nytimes.com/aponline/2020/03/05/us/ap-us-guns-stolen-from-feds.html?searchResultPosition=3
+**With Childhood Diabetes, Close Family Ties Lead to Flourishing Adults**\
+`Children with type 1 diabetes who grow up in families that are close and affectionate are more likely to flourish as adults, a new study suggests. `\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-health-children-diabetes-wellbeing.html?searchResultPosition=3
 
-**Milwaukee Man Faces Minnesota Charge in Death of Daughter, 2**\
-`A Milwaukee man already charged with fatally shooting his girlfriend last year was charged Thursday with killing the couple's 2-year-old daughter. `\
-https://nytimes.com/aponline/2020/03/05/us/ap-us-woman-killed-child-abducted.html?searchResultPosition=4
+**LabCorp to Make Coronavirus Test Available for Ordering in U.S.**\
+`Diagnostics company Laboratory Corp of America Holdings said on Thursday it plans to make its test for the new coronavirus available for ordering by healthcare providers in the United States from 6 p.m. ET.`\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-healthcare-coronavirus-laboratory-corp.html?searchResultPosition=4
 
-**Aggrieved Women in Dubai Ruler’s Life Find Vindication in a British Court**\
-`Accusations that Sheikh Mohammed bin Rashid al-Maktoum of Dubai imprisoned two grown daughters and threatened one of his many wives were validated in a child custody case.`\
-https://nytimes.com/2020/03/05/world/middleeast/dubai-sheikh-daughters-kidnap.html?searchResultPosition=5
+**Ireland Reports First Coronavirus Community Transmission, Cases Hit 13**\
+`Health authorities in Ireland reported the first community transmission of coronavirus not associated with travel from an affected area of Italy on Thursday as the number of cases rose to 13 from six a day earlier.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-ireland.html?searchResultPosition=5
 
-**AP Source: White Sox INF Moncada Agrees to 5-Year Contract**\
-`The Chicago White Sox have agreed to a five-year contract with Yoán Moncada, locking up another one of their promising young hitters.`\
-https://nytimes.com/aponline/2020/03/05/sports/baseball/ap-bba-white-sox-moncada.html?searchResultPosition=6
+**California Aims to Avoid 'Camageddon' During Freeway Closure**\
+`It could be “Carmageddon II,” and its coming to a major freeway near Los Angeles on the last weekend of April. `\
+https://nytimes.com/aponline/2020/03/05/us/ap-us-carmageddon-ii.html?searchResultPosition=6
 
-**Indiana Governor Backs Path for Forcing Out Attorney General**\
-`Indiana’s governor is endorsing a proposal that could force the state's attorney general from office if his law license is suspended over allegations that he drunkenly groped a state legislator and three other women.`\
-https://nytimes.com/aponline/2020/03/05/us/ap-us-xgr-indiana-attorney-general-groping-allegations.html?searchResultPosition=7
+**U.S. Coronavirus Death Toll Rises to 12, Including Latest in King County, Washington**\
+`The U.S. death toll from the coronavirus rose to 12 on Thursday when King County, Washington reported the latest fatality.`\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-health-coronavirus-casualties-usa.html?searchResultPosition=7
 
-**Esper Says New Virus Won't Prevent Military Operations**\
-`The U.S. military and its warfighting command centers in the Pentagon are prepared to continue operations even if there is a local outbreak of the new coronavirus, Defense Secretary Mark Esper said Thursday, as the department began finalizing its response plans.`\
-https://nytimes.com/aponline/2020/03/05/us/politics/ap-us-virus-outbreak-military.html?searchResultPosition=8
+**U.S. Military Deploys First Kits for Coronavirus Testing but Capacity Limited**\
+`U.S. military laboratories have started receiving their own testing kits to determine whether American troops have the new coronavirus, officials said, after relying on outside testing in the roughly two months since China reported the first cases.`\
+https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-usa-pentagon.html?searchResultPosition=8
 
-**Death Penalty Sought in 2019 California Synagogue Shooting**\
-`Prosecutors in California plan to seek the death penalty against a former college student accused of carrying out a 2019 attack on a San Diego-area synagogue that left one woman dead and three others wounded. `\
-https://nytimes.com/aponline/2020/03/05/us/ap-us-california-synagogue-shooting.html?searchResultPosition=9
+**Doctors May Feel 'Moral Distress' When Surrogates Make Decisions**\
+`When patients cannot make their own decisions about life-prolonging care, many doctors feel "moral distress" acting on the choices of surrogates like family members, a small survey suggests.`\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-health-elderly-ethics.html?searchResultPosition=9
 
-**Klobuchar Calls for Independent Review of Murder Case**\
-`US Sen. Amy Klobuchar on Thursday asked the top prosecutor in Hennepin County to initiate an independent investigation into the case of Myon Burrell, a black Minnesota teen sentenced to life after an 11-year-old black girl was killed by a stray bullet.`\
-https://nytimes.com/aponline/2020/03/05/us/ap-us-klobuchar-juvenile-lifer-burrell.html?searchResultPosition=10
+**Harris County, Texas, Confirms First Two Cases of Coronavirus**\
+`The first two cases of coronavirus have been confirmed in Harris County, Texas, public health officials there said on Thursday, in a man and woman from an unincorporated area north of Houston.`\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-health-coronavirus-texas.html?searchResultPosition=10
 
