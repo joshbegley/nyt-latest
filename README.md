@@ -1,36 +1,36 @@
+**European Shares Up for Fourth Day as Central Banks Weigh In**\
+`European shares rose for a fourth straight session on Thursday, as the action taken this week by several major central banks to ease the impact of the coronavirus outbreak on growth fed through into financial markets.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-europe-stocks.html?searchResultPosition=2
+
+**High-Speed TGV Train Derails in Eastern France-SNCF**\
+`A high-speed TGV train running between Strasbourg in eastern France and Paris derailed on Thursday, the state-run SNCF rail company said.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-france-tgv.html?searchResultPosition=3
+
+**Twitter, Facebook Suspend Accounts Linked to Indonesian Army's Papua Campaign**\
+`Twitter and Facebook have suspended more than 80 accounts following a Reuters investigation that linked them to a network of news sites backed by the Indonesian army that publish pro-government propaganda about the restive region of Papua.`\
+https://nytimes.com/reuters/2020/03/05/technology/05reuters-facebook-twitter-papua.html?searchResultPosition=4
+
+**Airstrike on Rebel-Held Village in Northwest Syria Kills 15**\
+`An airstrike on a rebel-held village in northwestern Syria early Thursday killed at least 15 people, including children, and wounded several others, opposition activists said.`\
+https://nytimes.com/aponline/2020/03/05/world/middleeast/ap-ml-syria.html?searchResultPosition=5
+
+**NASA Worker Accused in Death of Maryland National Guardsman**\
+`A NASA employee has been charged with murder in the death of a Maryland National Guardsman whose family members say had an ongoing dispute with the suspect.`\
+https://nytimes.com/aponline/2020/03/05/us/ap-us-fatal-shooting-neighbors.html?searchResultPosition=6
+
+**Reports: High-Speed Train Derails in Eastern France**\
+`French media reports say one of France's vaunted high-speed trains has derailed Thursday during a trip from the east of the country to Paris, causing some injuries, but train operator SNCF isn't confirming it.`\
+https://nytimes.com/aponline/2020/03/05/business/bc-eu-france-train-derails.html?searchResultPosition=7
+
 **Asian Shares Grind Higher, Virus Risks Block the Way**\
 `Asian shares rallied for a fourth straight session on Thursday as U.S. markets swung sharply higher and another dose of central bank stimulus offered some salve for the global economic outlook.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-global-markets.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/05/business/05reuters-global-markets.html?searchResultPosition=8
 
 **Fund Managers Change Tack as Fed Reacts to Virus**\
 `Fund managers are changing their allocations after the U.S. Federal Reserve stunned investors with a half-point rate cut this week to contain the economic fallout from the coronavirus epidemic.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-global-markets-allocation.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/05/business/05reuters-global-markets-allocation.html?searchResultPosition=9
 
 **UBS Hardens Energy Lending as 'Sustainable' Investments Rise**\
 `Switzerland's UBS said the value of its 'sustainable' investments rose by more than 50% to nearly $500 billion in 2019, while lending to the energy and utilities sectors fell by 40% as it tightened its rules.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-ubs-group-sustainability.html?searchResultPosition=4
-
-**China Says Consumer Sales Steadying After Virus Hit, Trade Still Severe**\
-`Sales in China's consumer market stabilized in late February as people gradually returned to work after efforts to curb the coronavirus outbreak had succeeded in some places, Wang Bin, Deputy Director of the Department of Market Operation and Consumption at the Ministry of Commerce said on Thursday.`\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-china-commerce-ministry.html?searchResultPosition=5
-
-**Hong Kong Quarantines Dog for Coronavirus, Experts Caution Over Pet Spread**\
-`Hong Kong has quarantined the dog of a coronavirus patient in what could be the first case of human-to-animal transmission, although experts cautioned against pets being potential spreaders of the virus.`\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-china-health-hongkong-dog.html?searchResultPosition=6
-
-**Greece Plans to Deport Migrants Who Arrived After March 1**\
-`Greece will transfer migrants who arrived on its territory illegally after March 1 to the northern city of Serres and plans to deport back to their own countries, Greek Migration Minister Notis Mitarachi said late on Wednesday.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-syria-security-greece.html?searchResultPosition=7
-
-**Norwegian Air Scraps Profit Guidance, to Cut Flights as Virus Spreads**\
-`Norwegian Air has scrapped its 2020 earnings guidance, which predicted a return to profit after three years of losses, and said it will cancel some of its transatlantic flights in the coming weeks due to the worsening coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-norwegianair.html?searchResultPosition=8
-
-**Bosnia Confirms Its First Case of Coronavirus-Regional TV**\
-`Bosnia has confirmed its first case of the new coronavirus,  television in the country's Serb-dominated region reported on Thursday, quoting the health ministry.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-bosnia.html?searchResultPosition=9
-
-**California Holds Cruise Ship Offshore for Coronavirus Screening**\
-`An ocean liner that previously carried two passengers who contracted the coronavirus was barred on Wednesday from returning to its home port of San Francisco from a voyage to Hawaii after at least 20 people aboard fell ill.`\
-https://nytimes.com/reuters/2020/03/05/us/05reuters-health-coronavirus-usa-cruiseship.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/05/business/05reuters-ubs-group-sustainability.html?searchResultPosition=10
 
