@@ -1,36 +1,36 @@
-**You Think You Know Robin? Which One?**\
-`Batman’s sidekick turns 80 on Friday. Many people have worn Robin’s costume over the years — and they were not all boy wonders.`\
-https://nytimes.com/2020/03/05/books/robin-at-80.html?searchResultPosition=2
+**U.S. Sanctions Nicaragua Police Force Over 'Violent Repression'**\
+`The United States on Thursday imposed sanctions on the Nicaraguan National Police over accusations of human rights abuse, in the Trump administration's latest move to pressure the leftist government of President Daniel Ortega.`\
+https://nytimes.com/reuters/2020/03/05/world/americas/05reuters-usa-nicaragua-sanctions.html?searchResultPosition=2
 
-**Princess Haya: I Feared Dubai Ruler Would Abduct My Kids**\
-`Jordanian Princess Haya bint al-Hussein told London's High Court that she feared her former husband, the ruler of Dubai, would abduct her two children, take them back to the Gulf Arab state and prevent her from ever seeing them again.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-britain-dubai-court-haya.html?searchResultPosition=3
+**EU Parliament Moves Session From France Over Virus Risk**\
+`The European Parliament has exceptionally moved its planned session in Strasbourg, France, next week to Brussels because of concerns about the coronavirus risk.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-eu-parliament.html?searchResultPosition=3
 
-**Bernie Sanders Is Going for Broke**\
-`Is maximalism the best political strategy?`\
-https://nytimes.com/2020/03/05/opinion/bernie-sanders-obama.html?searchResultPosition=4
+**Tornado Warning System Worked, but Effectiveness Unknown**\
+`Sirens screamed. Emergency weather alerts buzzed cellphones. News crews pleaded with people to seek cover.`\
+https://nytimes.com/aponline/2020/03/05/us/ap-us-severe-weather-tennessee-warnings.html?searchResultPosition=4
 
-**5 European Nations Condemn Latest North Korea Missile Tests**\
-`The U.N. Security Council discussed North Korea’s latest ballistic missile tests Thursday and didn’t issue any statement but its five European members condemned the “provocative actions,” saying the test undermine regional and international peace, security and stability.`\
-https://nytimes.com/aponline/2020/03/05/world/asia/ap-un-united-nations-north-korea.html?searchResultPosition=5
+**Judge Tries Tactic to Get Inmate to Talk: Send in Mom**\
+`A Florida judge took an unusual step Thursday to try to persuade an inmate to testify about a high-profile death row case: He asked the inmate's mother to have a word with him in private.`\
+https://nytimes.com/aponline/2020/03/05/us/ap-us-florida-death-row-case.html?searchResultPosition=5
 
-**Paris Marathon Postponed Due to Coronavirus**\
-`The Paris marathon has been postponed from April 5 to Oct. 18 due to the coronavirus outbreak, organizers said on Thursday.`\
-https://nytimes.com/reuters/2020/03/05/sports/05reuters-health-coronavirus-france-athletics.html?searchResultPosition=6
+**Behind the Cover: The Great Wall Street Housing Grab**\
+`For this issue, a look at the consequences of private equity firms becoming single-family housing landlords.`\
+https://nytimes.com/2020/03/05/magazine/behind-the-cover-the-great-wall-street-housing-grab.html?searchResultPosition=6
 
-**Indian Wells Adds Hand Sanitizers, Confident in Tournament Safety**\
-`Organizers of the BNP Paribas Open in Indian Wells on Thursday said they have added more than 250 hand sanitizers throughout the facility and are training staff to protect everyone involved with the tournament from the coronavirus.`\
-https://nytimes.com/reuters/2020/03/05/sports/tennis/05reuters-health-coronavirus-tennis.html?searchResultPosition=7
+**Elizabeth Warren’s Exit, and 2 Men Left Standing**\
+`Readers lament that despite a diverse group, all of the top women candidates have had to drop out. Also: The children of addicts; better pay for Willowbrook workers; flooding in New York.`\
+https://nytimes.com/2020/03/05/opinion/letters/elizabeth-warren.html?searchResultPosition=7
 
-**Virgin Media Reports Database Breach**\
-`Virgin Media, owned by Liberty Global, on Thursday reported a breach that allowed unauthorized access to the cable company's database that contained personal information of about 900,000 customers.`\
-https://nytimes.com/reuters/2020/03/05/technology/05reuters-liberty-global-cyber-virgin-media.html?searchResultPosition=8
+**Britain's Prince Harry and Wife Meghan Begin Farewell Royal Events**\
+`Britain's Prince Harry and his wife Meghan appeared together at an official engagement on Thursday for the first time since January's announcement that they would step away from their royal duties. `\
+https://nytimes.com/reuters/2020/03/05/arts/05reuters-britain-royals-sussex.html?searchResultPosition=8
 
-**Instacart Accelerates Launch of Grocery Drop-Off Service Amid Coronavirus Fears**\
-`Instacart said on Thursday it has brought forward the launch of its door-step grocery drop-off service in response to a surge in consumer demand amid rising fears of the coronavirus spreading in the United States.`\
-https://nytimes.com/reuters/2020/03/05/technology/05reuters-health-coronavirus-instacart.html?searchResultPosition=9
+**New Ukraine Prime Minister Eyes 'Constructive' Work With IMF**\
+`Ukraine's new Prime Minister Denys Shmygal on Thursday said the government would continue "constructive" work with the International Monetary Fund.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-ukraine-politics-primeminister.html?searchResultPosition=9
 
-**Twitter Bans Posts That 'Dehumanize' People in Connection With Diseases**\
-`Twitter Inc said on Thursday it is banning posts that "dehumanize" people because they have a disease or disability or because of their age, a step that happens to correspond to an explosion of tweets about the spreading coronavirus.`\
-https://nytimes.com/reuters/2020/03/05/us/05reuters-twitter-content-rule.html?searchResultPosition=10
+**Europeans, Britain Raise North Korea Missile Launches at U.N. Security Council**\
+`Britain, Germany, France, Estonia and Belgium raised North Korea's latest missile launches behind closed-doors in the United Nations Security Council on Thursday, condemning the tests as a provocative action in violation of U.N. resolutions. `\
+https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-northkorea-missiles-un.html?searchResultPosition=10
 
