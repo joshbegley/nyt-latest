@@ -1,36 +1,36 @@
-**Ex-Football, Hockey Players Sue University of Michigan**\
-`Three former athletes at the University of Michigan filed lawsuits Thursday against the school, alleging that a late doctor sexually assaulted them while the men were members of the football and hockey teams in the 1980s. `\
-https://nytimes.com/aponline/2020/03/05/sports/ap-us-university-of-michigan-doctor.html?searchResultPosition=2
+**Even With Atrial Fibrillation, Exercise Linked to Longer Life**\
+`- People with a common heart rhythm problem who are physically active may live longer than more sedentary counterparts, a recent study suggests. `\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-health-afib-fitness.html?searchResultPosition=2
 
-**U.S. to Hold Tech Firms Accountable for Spread of Child Sex Abuse Imagery**\
-`New legislation would take the extraordinary step of removing legal protections for tech companies that fail to police the illegal content.`\
-https://nytimes.com/2020/03/05/us/child-sexual-abuse-legislation.html?searchResultPosition=3
+**Bulgaria Declares Nationwide Flu Epidemic**\
+`Bulgaria declared a nationwide influenza epidemic on Thursday to deal with the rapid rise of type B flu cases in the Balkan country, the health minister said.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-bulgaria-health-flu.html?searchResultPosition=3
 
-**Schumer: I 'Shouldn't Have Used' Threatening Words on Court**\
-`Senate Democratic leader Chuck Schumer said Thursday that he “should not have used the words I used” when he declared in front of the Supreme Court that two justices would “pay the price” for their decision in an abortion case. `\
-https://nytimes.com/aponline/2020/03/05/us/politics/ap-us-supreme-court-roberts-schumer.html?searchResultPosition=4
+**Total Coronavirus Cases in UK Rise to 115**\
+`The total number of confirmed cases of coronavirus across the United Kingdom rose to 115 as of 0900 GMT on Thursday, up from 85 a day earlier, the health ministry said.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-britain-total.html?searchResultPosition=4
 
-**Give Us 7 Days, We’ll Help You Get Your Work Done**\
-`One evidence-based strategy you can try every day to help you be your most productive self.`\
-https://nytimes.com/2020/03/05/well/give-us-7-days-well-help-you-get-your-work-done.html?searchResultPosition=5
+**Coronavirus Shuts School Attended by Swedish Royals**\
+`An exclusive private school in Stockholm, which counts Swedish royalty among its pupils, closed on Thursday after a student tested positive for the coronavirus, the royal court said.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-sweden.html?searchResultPosition=5
 
-**Merkel Speech to Mark End of WWII Occupation of Netherlands**\
-`German Chancellor Angela Merkel will deliver a key speech in May to mark the 75th anniversary of the Netherlands' liberation from World War II Nazi occupation.`\
-https://nytimes.com/aponline/2020/03/05/world/europe/ap-eu-netherlands-merkel.html?searchResultPosition=6
+**U.S. Senate Nears Passage of $8.3 Billion Coronavirus Funding as Concerns Mount**\
+`The U.S. Senate on Thursday was poised to pass an $8.3 billion bill aimed at controlling the spread of the coronavirus and help develop vaccines, as some of the Trump administration's top health officials briefed members of the House of Representatives on the crisis.`\
+https://nytimes.com/reuters/2020/03/05/us/politics/05reuters-health-coronavirus-usa-congress.html?searchResultPosition=6
 
-**Be More Productive in 7 Days**\
-`Every day, for the next week, get evidence-based techniques to help you work more efficiently and effectively.`\
-https://nytimes.com/interactive/2020/well/productivity-challenge.html?searchResultPosition=7
+**Coronavirus Death Toll in Italy's Lombardy Region Rises to 98 From 73: Official**\
+`The death toll from an outbreak of coronavirus in the northern Italian region of Lombardy, which has borne the brunt of a nationwide contagion, has risen over the past day to 98 from 73, a local official said on Thursday.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-italy-lombardy.html?searchResultPosition=7
 
-**Russian Winter Warmer, Booze Deaths Down**\
-`Winter has been unusually mild in much of Russia this season and the number of deaths from alcohol consumption declined. An alcohol policy group says the two developments are connected.`\
-https://nytimes.com/aponline/2020/03/05/world/europe/ap-eu-russia-winter-alcohol-.html?searchResultPosition=8
+**EU Eyes Mobilization of Retired Medical Workers, Students to Fight Coronavirus**\
+`European Union states are mulling radical measures to cope with the coronavirus outbreak, including the mobilization of retired healthcare workers and medical students to help hospitals handle growing numbers of patients, an EU official said on Thursday.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-eu-workers.html?searchResultPosition=8
 
-**‘Bacurau’ Review: Life and Death in a Small Brazilian Town**\
-`In this sensational genre whatsit, a town finds itself fighting for its very existence. (Good thing Sônia Braga lives there.)`\
-https://nytimes.com/2020/03/05/movies/bacurau-review.html?searchResultPosition=9
+**Former Husker Lineman Now Dominant Wrestler at Small College**\
+`Tanner Farmer just wants to be another guy on the Concordia University wrestling team, and for the most part he is.`\
+https://nytimes.com/aponline/2020/03/05/sports/ap-wre-gridiron-to-mat.html?searchResultPosition=9
 
-**Prosecution Doctor: Killer Insane When He Bit Victim's Face**\
-`A prosecution psychiatrist says a Florida college student was legally insane when he fatally attacked a couple outside their home, chewing off part of the man's face, court documents filed this week show. `\
-https://nytimes.com/aponline/2020/03/05/us/ap-us-face-biting-attack.html?searchResultPosition=10
+**Exxon to Cut Activity in Permian Basin as Oil Prices Plummet**\
+`Exxon Mobil plans to reduce the number of oil rigs operating in an oil-rich region in the Southwest and may cut planned capital expenditures as the spreading coronavirus saps energy demand. `\
+https://nytimes.com/aponline/2020/03/05/business/ap-us-exxon-oil-prices.html?searchResultPosition=10
 
