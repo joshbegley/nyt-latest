@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-healthcare-coronavir
 `The only civilian airport in the Libyan capital of Tripoli came under direct attack by eastern-based opposition forces, authorities in the capital said Thursday, as diplomatic efforts to end the war continued to falter.`\
 https://nytimes.com/aponline/2020/03/05/world/middleeast/ap-ml-libya.html?searchResultPosition=4
 
-**2 New Cases of Coronavirus Are Reported in New York**\
+**2 New Cases of Coronavirus Are Reported in New York City**\
 `The new cases, a man in his 40s and a woman in her 80s, bring the total in New York State to 13.`\
 https://nytimes.com/2020/03/05/nyregion/coronavirus-new-york-cases.html?searchResultPosition=5
 
