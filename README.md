@@ -22,8 +22,8 @@ https://nytimes.com/video/world/asia/100000007013566/coronavirus-satelliteimages
 `Standing amid debris where his house and repair shop once stood, Antônio Pereira Farias took stock of what little remained Wednesday. He saved his wife and son from a thunderous cascade of mud, he said, but his daughter and son-in-law were among those missing. `\
 https://nytimes.com/aponline/2020/03/04/world/americas/ap-lt-brazil-storms.html?searchResultPosition=7
 
-**Why Did It Take so Long to Vote in Texas and California?**\
-`Some voters stood on lines for hours. But, despite voter suppression concerns, the primary breakdowns apparently reflected snafus more than malign intent.`\
+**Why Did It Take So Long to Vote in Texas and California?**\
+`Some voters stood in lines for hours. But despite voter suppression concerns, the primary breakdowns apparently reflected snafus more than malign intent.`\
 https://nytimes.com/2020/03/04/us/california-texas-voting-lines.html?searchResultPosition=8
 
 **Coronavirus Enters the Campaign Bloodstream**\
