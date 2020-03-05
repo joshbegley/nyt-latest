@@ -1,36 +1,36 @@
+**Wells Fargo Says DACA Recipients to Get Access to Credit Products**\
+`Wells Fargo & Co said on Thursday it plans to provide access to a suite of its credit products to recipients of the DACA program that protects from deportation some young immigrants who were brought to the United States illegally as children.`\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-wells-fargo-daca.html?searchResultPosition=2
+
+**Lebanon's Financial Prosecutor Freezes Assets of 20 Banks**\
+`Lebanon's financial prosecutor froze the assets of 20 Lebanese banks, their top bosses and board members as part of a probe, state media and judicial sources said on Thursday.    `\
+https://nytimes.com/reuters/2020/03/05/world/middleeast/05reuters-lebanon-crisis-banks.html?searchResultPosition=3
+
+**Brazil Meatpacker JBS Plans U.S. Listing as BNDES Sells Stake: Sources**\
+`Brazilian meatpacker JBS SA and state development bank BNDES are planning a simultaneous listing of JBS international operations in the United States and the sale of the bank's stake in the company, five sources with knowledge of the matter said.`\
+https://nytimes.com/reuters/2020/03/05/business/05reuters-jbs-newissues-bndes.html?searchResultPosition=4
+
+**Cleveland's Reyes Still Smashing Baseballs in Cactus League**\
+`Cleveland's Franmil Reyes strikes out quite a bit and isn't a particularly good defensive outfielder.`\
+https://nytimes.com/aponline/2020/03/05/sports/baseball/ap-bbo-spring-standouts.html?searchResultPosition=5
+
+**Michigan Lawmaker Disciplined After Sexual Harassment Probe**\
+`A Michigan lawmaker was stripped of a committee chairmanship and ordered to undergo training Thursday after the state Senate concluded allegations of sexual harassment lodged by several woman, including a legislator, were credible.`\
+https://nytimes.com/aponline/2020/03/05/us/ap-us-michigan-lawmaker-sexual-harassment.html?searchResultPosition=6
+
+**Lawmakers Try to Alter Voter-Approved Redistricting Reforms**\
+`With the census approaching, lawmakers in some states are attempting to alter recent voter-approved measures that were intended to reduce partisan gamesmanship when drawing new voting districts for the U.S. House and state legislatures.`\
+https://nytimes.com/aponline/2020/03/05/us/ap-us-redrawing-america-pushback.html?searchResultPosition=7
+
+**Afghan War Casualty Report: March 2020**\
+`At least 88 pro-government forces and 13 civilians have been killed in Afghanistan so far this month.`\
+https://nytimes.com/2020/03/05/magazine/afghan-war-casualty-report-march-2020.html?searchResultPosition=8
+
+**Factbox: Three Remain in Hunt for U.S. Democratic Presidential Nomination**\
+`The field of candidates seeking the U.S. Democratic presidential nomination shrank to three on Thursday as U.S. Senator Elizabeth Warren of Massachusetts ended her bid after failing to win her home state.`\
+https://nytimes.com/reuters/2020/03/05/us/politics/05reuters-usa-election-2020-candidates-factbox.html?searchResultPosition=9
+
 **Airbus Draws a Blank in February After Boeing's Order-Free January**\
 `European planemaker Airbus failed to win any new aircraft orders in February, it said on Thursday, providing further evidence of disruption across aviation industries from the global coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-airbus-orders.html?searchResultPosition=2
-
-**U.S. Lawmakers Introduce Bill Fighting Online Child Sexual Abuse While Threatening Encryption**\
-`A bipartisan group of lawmakers introduced legislation on Thursday aimed at curbing the online distribution of child sexual abuse material while threatening technology companies that offer encryption. `\
-https://nytimes.com/reuters/2020/03/05/technology/05reuters-usa-technology-encryption.html?searchResultPosition=3
-
-**U.S. Opposes Releasing a Dying Bernard Madoff From Prison Early**\
-`The U.S. government opposed Bernard Madoff's request to be freed from prison even if he is close to death from kidney failure, saying he has never accepted responsibility for his massive Ponzi scheme or shown compassion for victims.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-usa-crime-madoff.html?searchResultPosition=4
-
-**Coronavirus, Politics and Trade Compound Problems for Airbus A330neo**\
-`Airbus is battling to shore up support for its A330neo wide-body passenger jet as the coronavirus crisis, geopolitics and trade wars raise fresh questions over demand for the aircraft, industry sources said.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-airbus-a330neo.html?searchResultPosition=5
-
-**AT&T Partners With Google Cloud for 5G Edge Computing**\
-`AT&T Inc has partnered with Alphabet Inc's Google Cloud to use 5G edge computing technologies to help clients improve speed and increase security by running applications closer to end users.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-at-t-inc-google.html?searchResultPosition=6
-
-**France Reports Three More Coronavirus Deaths, Taking Total to Seven**\
-`Three more people have died from coronavirus infection in France on Thursday, taking the total to seven, while the number of confirmed infections rose by 138 to 423, a health official said. `\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-france-toll.html?searchResultPosition=7
-
-**Lockdown: Bad News Keeps Spirits Low in Italy's Red Zone**\
-`After almost two weeks shut off from the outside world, the mood is as overcast as the weather and the strain is starting to be felt, says Marzio Toniolo, a primary school teacher in quarantine in northern Italy because of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-italy-red-zone-diary.html?searchResultPosition=8
-
-**Exclusive: HSBC Has Confirmed Coronavirus Case in China-Memo**\
-`An HSBC employee in China has contracted the coronavirus, the bank's interim Chief Executive Noel Quinn told employees in an internal memo seen by Reuters, following news earlier on Thursday that the bank also had a case in London.`\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-healthcare-coronavirus-hsbc-china.html?searchResultPosition=9
-
-**S&P Global Platts Tells London Employees to Work From Home Due to Coronavirus: Spokesman**\
-`Commodity pricing agency S&P Global Platts told employees at its Canary Wharf office in London to work from home until further notice after a visitor was diagnosed with the coronavirus, the company said.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-britain-platts.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/05/business/05reuters-airbus-orders.html?searchResultPosition=10
 
