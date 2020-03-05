@@ -1,36 +1,36 @@
-**Wells Fargo Says DACA Recipients to Get Access to Credit Products**\
-`Wells Fargo & Co said on Thursday it plans to provide access to a suite of its credit products to recipients of the DACA program that protects from deportation some young immigrants who were brought to the United States illegally as children.`\
-https://nytimes.com/reuters/2020/03/05/us/05reuters-wells-fargo-daca.html?searchResultPosition=2
+**Weinstein to Move From Hospital to Rikers Island Jail**\
+`Former movie producer Harvey Weinstein, who was convicted of rape last week, was expected to move from Bellevue Hospital to New York's Rikers Island jail complex on Thursday, according to his spokesman.`\
+https://nytimes.com/reuters/2020/03/05/arts/05reuters-people-harvey-weinstein.html?searchResultPosition=2
 
-**Lebanon's Financial Prosecutor Freezes Assets of 20 Banks**\
-`Lebanon's financial prosecutor froze the assets of 20 Lebanese banks, their top bosses and board members as part of a probe, state media and judicial sources said on Thursday.    `\
-https://nytimes.com/reuters/2020/03/05/world/middleeast/05reuters-lebanon-crisis-banks.html?searchResultPosition=3
+**Coronavirus Forces Blackstone, Apax to Delay or Webcast Investor Meetings**\
+`Blackstone Group Inc and Apax Partners LLP are among the buyout firms that have had to delay their annual meetings with their private equity fund investors or carry them out remotely because of travel restrictions imposed amid the global outbreak of a new coronavirus.`\
+https://nytimes.com/reuters/2020/03/05/business/05reuters-health-coronavirus-privateequity.html?searchResultPosition=3
 
-**Brazil Meatpacker JBS Plans U.S. Listing as BNDES Sells Stake: Sources**\
-`Brazilian meatpacker JBS SA and state development bank BNDES are planning a simultaneous listing of JBS international operations in the United States and the sale of the bank's stake in the company, five sources with knowledge of the matter said.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-jbs-newissues-bndes.html?searchResultPosition=4
+**Coronavirus' Shadow Looms Over Emerging Market Currencies**\
+`Investors are grappling with conflicting signals on emerging market currencies as they weigh easing by the Federal Reserve and other major central banks against the economic damage already wrought by the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/05/world/americas/05reuters-health-coronavirus-emerging-markets.html?searchResultPosition=4
 
-**Cleveland's Reyes Still Smashing Baseballs in Cactus League**\
-`Cleveland's Franmil Reyes strikes out quite a bit and isn't a particularly good defensive outfielder.`\
-https://nytimes.com/aponline/2020/03/05/sports/baseball/ap-bbo-spring-standouts.html?searchResultPosition=5
+**Ben Affleck Finds His Way Back by Baring His Soul About Alcoholism**\
+`Ben Affleck's new movie "The Way Back" finds the actor playing a role he knows only too well - an alcoholic who goes through family strife and divorce before finding renewed hope in life.`\
+https://nytimes.com/reuters/2020/03/05/arts/05reuters-film-the-way-back-ben-affleck.html?searchResultPosition=5
 
-**Michigan Lawmaker Disciplined After Sexual Harassment Probe**\
-`A Michigan lawmaker was stripped of a committee chairmanship and ordered to undergo training Thursday after the state Senate concluded allegations of sexual harassment lodged by several woman, including a legislator, were credible.`\
-https://nytimes.com/aponline/2020/03/05/us/ap-us-michigan-lawmaker-sexual-harassment.html?searchResultPosition=6
+**Family of Opioid-Addicted Suspect Sues Police Over Her Death**\
+`Relatives of a Vermont woman whose obituary drew national attention for its discussion of her opioid addiction filed a lawsuit Thursday in which they accuse police and jail staff of denying her proper medical care and causing her death. `\
+https://nytimes.com/aponline/2020/03/05/us/ap-us-addiction-obituary-lawsuit.html?searchResultPosition=6
 
-**Lawmakers Try to Alter Voter-Approved Redistricting Reforms**\
-`With the census approaching, lawmakers in some states are attempting to alter recent voter-approved measures that were intended to reduce partisan gamesmanship when drawing new voting districts for the U.S. House and state legislatures.`\
-https://nytimes.com/aponline/2020/03/05/us/ap-us-redrawing-america-pushback.html?searchResultPosition=7
+**Greek-Flagged Merchant Ship Attacked by Pirates Off Benin**\
+`A Greek-flagged chemical tanker with a crew of 22 has been attacked by pirates in the Gulf of Guinea off western Africa, the ship's management company said Thursday.`\
+https://nytimes.com/aponline/2020/03/05/business/bc-eu-greece-pirate-attack.html?searchResultPosition=7
 
-**Afghan War Casualty Report: March 2020**\
-`At least 88 pro-government forces and 13 civilians have been killed in Afghanistan so far this month.`\
-https://nytimes.com/2020/03/05/magazine/afghan-war-casualty-report-march-2020.html?searchResultPosition=8
+**Your 8 Most Vexing Tax Questions, Answered**\
+`Changing rules have led to taxpayer confusion. We asked accountants and other specialists to help sort it all out.`\
+https://nytimes.com/2020/03/05/your-money/tax-return-questions.html?searchResultPosition=8
 
-**Factbox: Three Remain in Hunt for U.S. Democratic Presidential Nomination**\
-`The field of candidates seeking the U.S. Democratic presidential nomination shrank to three on Thursday as U.S. Senator Elizabeth Warren of Massachusetts ended her bid after failing to win her home state.`\
-https://nytimes.com/reuters/2020/03/05/us/politics/05reuters-usa-election-2020-candidates-factbox.html?searchResultPosition=9
+**FX Intervention Pressure Mounts on Brazil Central Bank to Sell Dollar Reserves**\
+`Brazil's currency is weakening so quickly the central bank may soon be forced to set aside its free-market principles and sell dollar reserves to halt the slide.`\
+https://nytimes.com/reuters/2020/03/05/world/americas/05reuters-brazil-forex-intervention-analysis.html?searchResultPosition=9
 
-**Airbus Draws a Blank in February After Boeing's Order-Free January**\
-`European planemaker Airbus failed to win any new aircraft orders in February, it said on Thursday, providing further evidence of disruption across aviation industries from the global coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-airbus-orders.html?searchResultPosition=10
+**Bank of Canada Says Coronavirus Could Pose Serious Test to Economy**\
+`The Canadian economy's resilience could be "seriously tested" by a coronavirus outbreak, depending on its severity and duration, Bank of Canada Governor Stephen Poloz said on Thursday.`\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-health-coronovirus-bankofcanada.html?searchResultPosition=10
 
