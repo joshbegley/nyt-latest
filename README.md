@@ -6,8 +6,8 @@ https://nytimes.com/2020/03/05/opinion/joe-biden-southern-democrats.html?searchR
 `Ms. Warren, a senator and former law professor, staked her campaign on fighting corruption and changing the rules of the economy.`\
 https://nytimes.com/2020/03/05/us/politics/elizabeth-warren-drops-out.html?searchResultPosition=3
 
-**Mortgage Rates Drop to All-Time Lows; 30-Year Loan at 3.29%**\
-`U.S. long-term mortgage rates dropped to all-time lows this week as anxiety over risks to the economy deepened amid the burgeoning viral outbreak crisis. `\
+**A Record Low on Average 30-Year Fixed Mortgage: 3.29%**\
+`The average rate on a 30-year fixed mortgage has hit a record low of 3.29%, driven down by investors shifting money into the safety of U.S. Treasurys as the viral outbreak deepens. `\
 https://nytimes.com/aponline/2020/03/05/business/bc-us-mortgage-rates.html?searchResultPosition=4
 
 **Japanese Snacks Inspired by Mom’s at Rice & Miso**\
