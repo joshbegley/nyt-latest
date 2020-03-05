@@ -1,5 +1,5 @@
 **Klobuchar Calls for Independent Review of Murder Case**\
-`By The Associated Press`\
+`US Sen. Amy Klobuchar on Thursday asked the top prosecutor in Hennepin County to initiate an independent investigation into the case of Myon Burrell, a black Minnesota teen sentenced to life after an 11-year-old black girl was killed by a stray bullet.`\
 https://nytimes.com/aponline/2020/03/05/us/ap-us-klobuchar-juvenile-lifer-burrell.html?searchResultPosition=2
 
 **President Trump to Visit Tornado-Ravaged Tennessee**\
