@@ -14,8 +14,8 @@ https://nytimes.com/aponline/2020/03/04/sports/ncaabasketball/bc-bkc-t25-villano
 `At last year's session of China's national parliament, delegates from Guangdong province warned that laws designed to contain outbreaks of infectious diseases were flawed and could leave regions exposed when crises hit.`\
 https://nytimes.com/reuters/2020/03/04/world/asia/04reuters-health-coronavirus-china-politics.html?searchResultPosition=5
 
-**British Regional Airline Flybe Says Enters Administration**\
-`British regional airline Flybe said on Thursday it had entered into administration, as the already struggling carrier failed to withstand the plunge in travel demand caused by the coronavirus outbreak.`\
+**British Regional Airline Flybe Says Enters Into Administration**\
+`British regional airline Flybe said early on Thursday it entered into administration, as the already struggling carrier failed to withstand the plunge in travel demand caused by coronavirus.`\
 https://nytimes.com/reuters/2020/03/04/business/04reuters-flybe-funding-administration.html?searchResultPosition=6
 
 **Smith Hits 5 3-Pointers, Texas A&M-CC Tops Sam Houston State**\
