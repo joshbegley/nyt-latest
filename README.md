@@ -1,36 +1,36 @@
+**Nine Killed in Gaza as Bakery Fire Spreads Through Packed Market**\
+`At least nine people were killed and 60 injured on Thursday when a bakery fire spread through a crowded market in a refugee camp in the Gaza Strip, health officials said. `\
+https://nytimes.com/reuters/2020/03/05/world/05reuters-palestinians-fire.html?searchResultPosition=2
+
+**U.S. Secretary of State Urges China to Take More Fair Approach Toward Media**\
+`U.S. Secretary of State Mike Pompeo said on Thursday that he expects Beijing to take a more fair approach toward American and other foreign media working in China.`\
+https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-usa-china-media.html?searchResultPosition=3
+
+**Monkey Business at Bansky's Bethlehem Hotel Masks Coronavirus Fears**\
+`British artist Banksy's hotel in Bethlehem brought a touch of humor to the West Bank town by strapping a surgical mask to the model monkey bellhop at its entrance as coronavirus fears grip residents and tourists. `\
+https://nytimes.com/reuters/2020/03/05/world/middleeast/05reuters-health-coronavirus-palestinians-banksy.html?searchResultPosition=4
+
+**Missouri Man Dressed as Joker Charged in Terrorist Threats**\
+`A suburban St. Louis man accused of livestreaming threats to bomb and kill people in a bustling entertainment district while dressed as the Batman villain the Joker has been charged with terrorism.`\
+https://nytimes.com/aponline/2020/03/05/us/ap-us-joker-threats.html?searchResultPosition=5
+
+**Slovak Former President's Party to Enter Coalition Talks**\
+`Slovakia's centrist Za Ludi party will enter coalition talks with the election winner and two other center-right parties, Za Ludi chief and ex-president Andrej Kiska said on Thursday, opening the way to a broad yet possibly shaky government.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-slovakia-politics.html?searchResultPosition=6
+
+**Pompeo Says Violence in Afghanistan Must Stop for Peace Process to Move Forward**\
+`U.S. Secretary of State Mike Pompeo said on Thursday the upsurge in violence in Afghanistan in recent days is unacceptable and said it must cease immediately for the peace process signed last weekend to move forward. `\
+https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-usa-afghanistan-pompeo.html?searchResultPosition=7
+
+**Coronavirus and Protests Wreck Iraq's Pilgrimage Industry**\
+`Iraqi hotel manager Badr al-Jilawi needs to think for a moment to remember when the last guest checked in to visit the holy Shi'ite Muslim city of Najaf, once a prime destination for millions of pilgrims.`\
+https://nytimes.com/reuters/2020/03/05/world/middleeast/05reuters-health-coronavirus-iraq-pilgrimage.html?searchResultPosition=8
+
 **Review: In ‘Mr. Toole,’ Trying to Remember Teacher**\
 `Vivian Neuwirth’s play is a fictionalized recollection of the life of the novelist John Kennedy Toole, who died before his Pulitzer-Prize winning classic “A Confederacy of Dunces” was published.`\
-https://nytimes.com/2020/03/05/theater/mr-toole-review.html?searchResultPosition=2
+https://nytimes.com/2020/03/05/theater/mr-toole-review.html?searchResultPosition=9
 
 **Pompeo Says Iran Must Be Held Accountable on Nuclear Commitments**\
 `U.S. Secretary of State Mike Pompeo on Thursday called on all nations to hold Iran accountable for its commitments under international nuclear agreements and said Tehran's failure to report nuclear material was a clear violation of safeguard agreements.`\
-https://nytimes.com/reuters/2020/03/05/world/middleeast/05reuters-usa-iran-pompeo.html?searchResultPosition=3
-
-**Andrew Yang’s Next Move: A New Nonprofit Organization**\
-`Through the new group, Humanity Forward, Mr. Yang wants to advance the ideas he championed during his presidential campaign with voter outreach efforts, a podcast and more.`\
-https://nytimes.com/2020/03/05/us/politics/andrew-yang-humanity-first.html?searchResultPosition=4
-
-**Factbox: Sports Events Hit by the Coronavirus Epidemic**\
-`Here is a list of international sports events hit by the outbreak of a coronavirus:`\
-https://nytimes.com/reuters/2020/03/05/sports/skiing/05reuters-health-coronavirus-sport-factbox.html?searchResultPosition=5
-
-**Teenagers in The Times: February 2020**\
-`Our roundup of the news stories and features about young people that have recently appeared across sections of NYTimes.com.`\
-https://nytimes.com/2020/03/05/learning/teenagers-in-the-times-february-2020.html?searchResultPosition=6
-
-**USTR Sets Out Conditions for Boosting Trade, Investment With Bangladesh**\
-`The U.S. government on Thursday said it aims to expand trade and investment with Bangladesh, but said the world's second-largest exporter of ready-made garments must do more to protect both workers' rights and intellectual property rights.`\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-usa-bangladesh.html?searchResultPosition=7
-
-**Russian Tourism Takes $400 Million Hit From Coronavirus: Operators**\
-`Russia's tourism sector has already taken a 27 billion rouble ($406 million) hit from the impact of coronavirus, the head of the Russian Association of Tour Operators said on Thursday in a plea for government support.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-russia-tourism.html?searchResultPosition=8
-
-**Moroccan Journalist on Trial Over a Tweet, Denies Wrongdoing**\
-`Moroccan journalist and activist Omar Radi defended himself Thursday against charges of insulting a judge in a tweet that criticized his heavy sentencing of anti-government protesters. `\
-https://nytimes.com/aponline/2020/03/05/world/africa/ap-af-morocco-free-speech.html?searchResultPosition=9
-
-**Democratic U.S. Senator Schumer Expresses Regret for Supreme Court Comments**\
-`Chuck Schumer, the top U.S. Senate Democrat, expressed regret on Thursday for remarks he made a day earlier that two Supreme Court justices appointed by President Donald Trump would "pay the price" if they rule in favor of abortion restrictions.`\
-https://nytimes.com/reuters/2020/03/05/us/05reuters-usa-court-schumer.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/05/world/middleeast/05reuters-usa-iran-pompeo.html?searchResultPosition=10
 
