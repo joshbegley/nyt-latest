@@ -1,36 +1,36 @@
+**Dubai Ruler Sheikh Mohammed Says UK Court Ruling Was One-Sided**\
+`Dubai's ruler Sheikh Mohammed bin Rashid al-Maktoum said on Thursday a judgment by a senior British judge that he had abducted two of his daughters and subjected his wife to a campaign of intimidation was "only one side of the story".`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-britain-dubai-court-sheikh.html?searchResultPosition=2
+
+**Exclusive: Vodafone, TIM to Win Conditional EU Approval for Tower Deal: Sources**\
+`Vodafone and Telecom Italia (TIM) are set to secure conditional EU antitrust approval to create Europe's biggest mobile towers company, part of a strategy to roll out lucrative 5G services, sources said on Thursday.`\
+https://nytimes.com/reuters/2020/03/05/technology/05reuters-telecom-it-m-a-vodafone-group-eu-exclusive.html?searchResultPosition=3
+
+**Report: RB McCoy Won't Return to Chiefs in 2020**\
+`Veteran running back LeSean McCoy won't be back with the Kansas City Chiefs in 2020, NFL Network's Mike Garafolo reported Thursday.`\
+https://nytimes.com/reuters/2020/03/05/sports/football/05reuters-football-nfl-kc-mccoy.html?searchResultPosition=4
+
+**Anything but the Phone Background**\
+`A widower has made space in his life for his new girlfriend. But he’s not ready to give up one last photograph.`\
+https://nytimes.com/2020/03/05/style/phone-background-grief.html?searchResultPosition=5
+
+**The Coronavirus, by the Numbers**\
+`A mathematician who studies the spread of disease explains some of the figures that keep popping up in coronavirus news.`\
+https://nytimes.com/2020/03/05/health/coronavirus-deaths-rates.html?searchResultPosition=6
+
 **JPMorgan Shifts Sales and Trading Staff to Different Offices Amid Virus Outbreak: Memo**\
 `JPMorgan has started to shift sales and trading staff to different offices as part of its contingency plans to keep its operations running smoothly through the coronavirus outbreak, according to a memo seen by Reuters.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-jpmorgan-coronavirus.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-jpmorgan-coronavirus.html?searchResultPosition=7
 
 **EY Sends Around 3,000 Madrid Workers Home After Coronavirus Case Confirmed**\
 `Accounting and consulting firm EY on Thursday sent around 3,000 employees from its offices in Madrid home after a case of coronavirus was confirmed among its staff, a company spokesman told Reuters.  `\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-spain-ey.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-spain-ey.html?searchResultPosition=8
 
 **NFL Players' Union Sends Labor Proposal to Members for Vote**\
 `The NFL Players Association sent ballots to members Thursday for voting on the proposed collective bargaining agreement, giving the union a week to either ensure another 11 years of labor peace or sending the matter back to the drawing board.`\
-https://nytimes.com/aponline/2020/03/05/sports/football/ap-fbn-nfl-labor.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/03/05/sports/football/ap-fbn-nfl-labor.html?searchResultPosition=9
 
 **Oil Bonanza Plunges Guyana Into Political Crisis**\
 `The discovery of a wealth of oil in the tiny country, one of the poorest in South America, has deepened ethnic divisions and exacerbated tensions during a crucial election.`\
-https://nytimes.com/2020/03/05/world/americas/guyana-elections-oil.html?searchResultPosition=5
-
-**Art Historian Griselda Pollock Wins Holberg Prize**\
-`Ms. Pollock pioneered the introduction of feminist thought in art history. The prize comes with an award of 6 million Norwegian kroner, or about $650,000.`\
-https://nytimes.com/2020/03/05/arts/design/holberg-prize-griselda-pollock.html?searchResultPosition=6
-
-**Former Wells CEO Sloan Faces Possible Criminal Referral for Misleading Congress: Lawmaker**\
-`A key House lawmaker said Thursday that she is considering referring former Wells Fargo chief executive Timothy Sloan to the Department of Justice, saying he misled Congress in sworn testimony one year ago.`\
-https://nytimes.com/reuters/2020/03/05/us/05reuters-wellsfargo-scandal-congress.html?searchResultPosition=7
-
-**Moderate Ukraine Central Bank Rate Cut Expected Next Week: Reuters Poll**\
-`Lower-than-expected inflation and a slowing economy will prompt Ukraine's central bank to cut its key rate for the sixth time in a row next week from the current level of 11%, a Reuters poll of analysts showed on Thursday.     `\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-ukraine-economy-poll.html?searchResultPosition=8
-
-**Israel's Netanyahu Falls Short of Parliamentary Majority**\
-`The final results from Israel's election have confirmed that Prime Minister Benjamin Netanyahu has again fallen short of a parliamentary majority with his hard-line allies. `\
-https://nytimes.com/aponline/2020/03/05/world/middleeast/ap-ml-israel-election.html?searchResultPosition=9
-
-**Tally of Brazilians Missing After Landslides Rises to 43**\
-`The number of Brazilians missing in the wake of deadly landslides on the coast of Sao Paulo state has risen to 43, authorities said Thursday. `\
-https://nytimes.com/aponline/2020/03/05/world/americas/ap-lt-brazil-storms.html?searchResultPosition=10
+https://nytimes.com/2020/03/05/world/americas/guyana-elections-oil.html?searchResultPosition=10
 
