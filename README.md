@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/03/04/sports/basketball/bc-bkn-jazz-knicks.html?searchResultPosition=2
 
 **No. 11 Creighton Lets 3s Fly in 91-76 Win Over Georgetown**\
-`Mitch Ballock made a season-high seven 3-pointers and finished with 20 points, and No. 11 Creighton rode one of its best shooting games of the season to a 91-76 win over Georgetown on Wednesday night.`\
+`Mitch Ballock made a season-high six 3-pointers and finished with 20 points, and No. 11 Creighton rode one of its best shooting games of the season to a 91-76 win over Georgetown on Wednesday night.`\
 https://nytimes.com/aponline/2020/03/04/sports/ncaabasketball/bc-bkc-t25-georgetown-creighton.html?searchResultPosition=3
 
 **Priest Paralyzed in Mass Shooting at Sikh Temple in Wisconsin Dies from Injuries**\
