@@ -1,36 +1,36 @@
+**Camels Evacuated From Libya's Capital After Port Comes Under Fire**\
+`Three thousand camels have been walked out of Libya's capital Tripoli in an overnight evacuation after the port where they arrived came under artillery fire.`\
+https://nytimes.com/reuters/2020/03/05/world/africa/05reuters-libya-security-camels.html?searchResultPosition=2
+
+**Kiss Me? Are You Mad? Coronavirus Turns Italian Life Upside Down**\
+`A day after their government ordered a limit on public gatherings and recommended that people avoid shaking hands to limit the spread of the coronavirus, normally sociable Italians have been grappling with new habits.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-healthcare-coronavirus-italy.html?searchResultPosition=3
+
+**Report: Russian Social Accounts Sow Election Discord-Again**\
+`Four years after Russia-linked groups stoked divisions in the U.S. presidential election on social media platforms, a new report shows that Moscow's campaign hasn't let up and has become harder to detect. `\
+https://nytimes.com/aponline/2020/03/05/business/ap-us-election-2020-russian-interference.html?searchResultPosition=4
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties include four-bedroom homes in Greenwich, Conn., and Mount Vernon, N.Y.`\
+https://nytimes.com/2020/03/05/realestate/homes-for-sale-in-new-york-and-connecticut.html?searchResultPosition=5
+
+**Homes for Sale in Brooklyn and Manhattan**\
+`This week’s properties are on Roosevelt Island, in Lincoln Square and in Prospect Heights, Brooklyn.`\
+https://nytimes.com/2020/03/05/realestate/homes-for-sale-in-brooklyn-and-manhattan.html?searchResultPosition=6
+
+**On the Market in the New York Region**\
+`This week’s properties include four-bedroom homes in Greenwich, Conn., and Mount Vernon, N.Y.`\
+https://nytimes.com/slideshow/2020/03/05/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=7
+
+**On the Market in New York City**\
+`This week’s properties are on Roosevelt Island, in Lincoln Square and in Prospect Heights, Brooklyn.`\
+https://nytimes.com/slideshow/2020/03/05/realestate/on-the-market-in-new-york-city.html?searchResultPosition=8
+
+**The Designer Changing How We Think About Fashion and Race in America**\
+`Kerby Jean-Raymond’s political, narratively rich designs for Pyer Moss presaged today’s gestures at activism on the runway. He still has much more to say.`\
+https://nytimes.com/2020/03/05/t-magazine/pyer-moss-kerby-jean-raymond.html?searchResultPosition=9
+
 **EU's Barnier Warns of Big Divergences With UK in Talks**\
 `The EU's chief negotiator in trade talks with former member Britain warned Thursday of “serious divergences" between the two sides after the conclusion of the first round of negotiations.`\
-https://nytimes.com/aponline/2020/03/05/world/europe/bc-eu-brexit.html?searchResultPosition=2
-
-**Europe Could Face More Drug Shortages as Coronavirus Squeezes Supplies**\
-`Europe is experiencing delays in supplies of medicines and face masks because of coronavirus disruptions, according to EU and industry officials, compounding already acute shortages of drugs on the continent.  `\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-eu.html?searchResultPosition=3
-
-**U.S. Fourth-Quarter Unit Labor Costs, Productivity Revised Down**\
-`U.S. unit labor costs grew much slower than initially thought in the fourth quarter and were soft in 2019, suggesting inflation could remain tame despite tightening labor market conditions.`\
-https://nytimes.com/reuters/2020/03/05/us/05reuters-usa-economy-productivity.html?searchResultPosition=4
-
-**Biden: Maybe It's Time to Consider Secret Service Protection**\
-`Former Vice President Joe Biden says that he's worried that protesters have stormed the stage when he's been speaking at campaign events with his wife beside him and that it might be time for Secret Service protection.`\
-https://nytimes.com/aponline/2020/03/05/us/politics/ap-us-election-2020-secret-service-protection.html?searchResultPosition=5
-
-**U.S. Weekly Jobless Claims Underscore Labor Market Strength Despite Coronavirus**\
-`The number of Americans filing for unemployment benefits fell last week, suggesting the labor market was on solid footing despite the coronavirus outbreak, which has stoked financial market fears of a recession and prompted an emergency interest rate cut from the Federal Reserve.`\
-https://nytimes.com/reuters/2020/03/05/us/05reuters-usa-economy-unemployment.html?searchResultPosition=6
-
-**South African Health Minister Says Health System Will Be Tested by Coronavirus**\
-`South Africa's health minister warned on Thursday that the country's health system would be tested by the coronavirus, after it earlier confirmed its first case.`\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-safrica-minister.html?searchResultPosition=7
-
-**Putting the Long Voting Lines in Context**\
-`Thursday: It was bad, but an election law expert said he saw no evidence it was intended to suppress votes. Also: More coronavirus updates.`\
-https://nytimes.com/2020/03/05/us/placer-county-coronavirus-death.html?searchResultPosition=8
-
-**Michigan Gov. Whitmer Endorses Biden Days Before Primary**\
-`Michigan Gov. Gretchen Whitmer is backing Joe Biden for president days before the state's Democratic primary, giving the former vice president another boost after his success on Super Tuesday.`\
-https://nytimes.com/aponline/2020/03/05/us/politics/ap-us-election-2020-biden-michigan-governor.html?searchResultPosition=9
-
-**Migrants Target Croatian Gateway Into EU After Turkey Opens Border**\
-`Hisham and Said seemed close to reaching Italy, their dream destination, when Croatian authorities caught them and deported them this week back across the border to Bosnia, which is outside the European Union.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-syria-security-greece-balkans.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/05/world/europe/bc-eu-brexit.html?searchResultPosition=10
 
