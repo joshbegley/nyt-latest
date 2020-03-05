@@ -1,36 +1,36 @@
-**Art Van to Close Furniture Stores In at Least 5 States**\
-`Art Van Furniture will close all company-owned stores in at least five states as the retailer heads toward liquidation after more than 60 years in business.`\
-https://nytimes.com/aponline/2020/03/05/business/bc-mi-art-van-furniture-liquidation.html?searchResultPosition=2
+**Prepared Yet Vulnerable, a Battle-Tested New York Confronts Coronavirus**\
+`By the time the global coronavirus outbreak arrived in New York this week, the city was armed with hundreds of hospital beds, a growing stockpile of diagnostic testing kits and enough disinfectant to wipe down the entire subway system.   `\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-health-coronavirus-usa-nyc.html?searchResultPosition=2
 
-**Aaron Schock, Former Illinois Congressman, Comes Out as Gay**\
-`Mr. Schock, a Republican, resigned from Congress in 2015 after he came under fire for lavish spending. His announcement prompted criticism about his voting record on L.G.B.T. issues.`\
-https://nytimes.com/2020/03/05/us/politics/aaron-schock-gay.html?searchResultPosition=3
+**Hungary Confirms Third Coronavirus Case in Man Who Returned From Milan**\
+`Hungary has confirmed a third case of the coronavirus, after a Hungarian man who had returned from Milan to the eastern city of Debrecen on Feb. 29 tested positive, the government said on its official website on Thursday.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-hungary.html?searchResultPosition=3
 
-**Moscow Imposes 'High Alert Regime' to Stem Coronavirus Outbreak**\
-`Moscow authorities announced a "high alert regime" and imposed extra measures on Thursday to prevent a spread of the coronavirus in the Russian capital.`\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-russia-moscow.html?searchResultPosition=4
+**Pence: U.S. Does Not Have Coronavirus Tests to Meet Anticipated Demand**\
+`The United States does not yet have enough coronavirus tests to meet anticipated demand, U.S. Vice President Mike Pence said on Thursday, adding that the Coast Guard has delivered tests to a cruise ship off the coast of California.`\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-health-coronavirus-pence.html?searchResultPosition=4
 
-**How Worried Should You Be About the Coronavirus?**\
-`A brief guide to the health and systemic risks of an outbreak.`\
-https://nytimes.com/2020/03/05/world/coronavirus-interpreter.html?searchResultPosition=5
+**U.S. Senate Passes, Sends to Trump, $8.3 Billion Bill to Battle Coronavirus**\
+`The U.S. Senate on Thursday overwhelmingly approved legislation that would rush $8.3 billion into efforts to contain a growing coronavirus crisis in the United States, sending it to President Donald Trump for signing into law.`\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-health-coronavirus-usa-vote.html?searchResultPosition=5
 
-**Another Year of the Man: Voters Mourn Women's Losses in 2020**\
-`At her home in suburban Detroit, Jill Warren spent Thursday morning glued to her phone, searching for news about the woman she fiercely believed should be the next president of the United States: Sen. Elizabeth Warren.`\
-https://nytimes.com/aponline/2020/03/05/us/politics/ap-us-election-2020-women.html?searchResultPosition=6
+**Florence Nightingale Show Presents Nursing Pioneer Who Told Us to Wash Hands**\
+`Victorian Britain took Florence Nightingale into its heart as the "Lady with the Lamp" who tended wounded soldiers, but a new exhibition shows her as a tough pioneer whose principles on hygiene underpin nursing today as the world battles coronavirus.    `\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-exhibition-florencenightingale.html?searchResultPosition=6
 
-**‘It’s Going to End in Death’: Doctors Say U.K. Ill-prepared for Coronavirus**\
-`Intensive care beds are lacking. One area of Yorkshire has 35 beds to accommodate what could be hundreds of seriously ill patients.`\
-https://nytimes.com/2020/03/05/world/europe/coronavirus-united-kingdom-national-health-service.html?searchResultPosition=7
+**Wedding Card: Manager Shildt Set to Get Married on Off Day**\
+`Many major leaguers play golf during off days in spring training.`\
+https://nytimes.com/aponline/2020/03/05/sports/baseball/ap-bbn-cardinals-shildts-wedding.html?searchResultPosition=7
 
-**US Iran Rep Says Tehran Must Let Inspectors Into Nuke Site**\
-`The U.S. special representative for Iran said Thursday the Islamic Republic must "immediately" ensure inspectors have access to sites that harbor traces of nuclear material or activity. `\
-https://nytimes.com/aponline/2020/03/05/world/europe/ap-eu-iran-nuclear-us.html?searchResultPosition=8
+**Hands Down, Men Worse at Bathroom Hygiene That Prevents Coronavirus**\
+`The spread of the new coronavirus is shining the spotlight on a little-discussed gender split: men wash their hands after using the bathroom less than women, years of research and on-the-ground observations show.     `\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-health-coronavirus-handwashing.html?searchResultPosition=8
 
-**AP Sources: Feds Investigate Contraband Flow at Epstein Jail**\
-`The Justice Department has opened a criminal investigation into potential misconduct by guards as officials keep inmates locked down at the federal jail in New York where financier Jeffrey Epstein killed himself over the summer, people familiar with the matter told The Associated Press. `\
-https://nytimes.com/aponline/2020/03/05/us/politics/ap-us-federal-prisons-gun-search-.html?searchResultPosition=9
+**Region in Ukraine to Shut Schools After Coronavirus Case: Interfax Ukraine**\
+`Schools, colleges and universities in the Chernivtsi region of western Ukraine will close from March 6 for 14 days to prevent the spread of the coronavirus, Interfax Ukraine reported on Thursday, citing a senior local official.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-ukraine.html?searchResultPosition=9
 
-**Lawyer: Weinstein Being Moved to Rikers Island**\
-`Harvey Weinstein, who was hospitalized following his conviction last month on rape and sexual assault charges, is being moved to Rikers Island, one of his lawyers said Thursday.`\
-https://nytimes.com/aponline/2020/03/05/us/ap-us-sexual-misconduct-weinstein.html?searchResultPosition=10
+**Pentagon to Keep Operating in Event of Coronavirus Outbreak-Esper**\
+`U.S. Defense Secretary Mark Esper said on Thursday he expected the Pentagon to be able to keep carrying out its core functions in the event of a coronavirus outbreak at the massive military headquarters, where 22,000 people work every day.`\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-health-coronavirus-usa-pentagon-esper.html?searchResultPosition=10
 
