@@ -1,36 +1,36 @@
+**Winthrop Rolls Past Upstate 106-70 in Big South**\
+`Hunter Hale scored 21 points, Josh Ferguson added 17, both knocking down five 3-pointers and second-seeded Winthrop used a school tournament record 16 triples to cruise past seventh-seeded South Carolina Upstate 106-70 in the Big South Conference tourney quarterfinals on Thursday.`\
+https://nytimes.com/aponline/2020/03/05/sports/ncaabasketball/bc-bkc-bigsouth-usc-upstate-winthrop.html?searchResultPosition=2
+
+**Oregon GOP Lawmakers Set Conditions for Return to Statehouse**\
+`Republicans in the Oregon Legislature who are boycotting the 2020 session over a climate change bill said Thursday they would show up on its last day this weekend to pass emergency budget measures, but a Democratic leader rejected the move as undemocratic. `\
+https://nytimes.com/aponline/2020/03/05/us/ap-or-oregon-gop-walkout.html?searchResultPosition=3
+
+**Ukrainian Lawmakers Vote No Confidence in Prosecutor General**\
+`Ukrainian lawmakers voted no confidence in the country's top prosecutor Thursday after the prime minister, foreign minister and defense minister all were replaced in a government shakeup this week.`\
+https://nytimes.com/aponline/2020/03/05/world/europe/ap-eu-ukraine-politics.html?searchResultPosition=4
+
+**More States to Use Redistricting Reforms After 2020 Census**\
+`When U.`\
+https://nytimes.com/aponline/2020/03/05/us/ap-us-redrawing-america-reforms-glance.html?searchResultPosition=5
+
+**Cubs Scratch RHP Darvish, 2B Kipnis With Illness**\
+`The Chicago Cubs scratched right-hander Yu Darvish and second baseman Jason Kipnis on Thursday because of illness.`\
+https://nytimes.com/aponline/2020/03/05/sports/baseball/ap-bbn-cubs-darvish-scratched.html?searchResultPosition=6
+
+**Pakistani Islamists Accused of Defacing Pro-Woman Mural**\
+`Dozens of seminary students linked to a radical pro-Taliban cleric defaced a mural depicting two women painted by rights activists to commemorate International Women's Day in the capital Islamabad, police and activists said.`\
+https://nytimes.com/aponline/2020/03/05/world/asia/ap-as-pakistan-womens-march.html?searchResultPosition=7
+
+**Insurers Will Cover Virus Tests, but Check if Costs Apply**\
+`A day after Vice President Mike Pence assured Americans that lab tests for coronavirus would be covered by private and government health insurance, that promise appears to be less than airtight.`\
+https://nytimes.com/aponline/2020/03/05/business/bc-us-virus-outbreak-insurance-coverage.html?searchResultPosition=8
+
 **Live Webinar: Strengthen Literacy Skills With Picture Prompts**\
 `Join us on April 1 as The Learning Network explores how to use image-based writing prompts in the classroom.`\
-https://nytimes.com/2020/03/05/learning/live-webinar-strengthen-literacy-skills-with-picture-prompts.html?searchResultPosition=2
+https://nytimes.com/2020/03/05/learning/live-webinar-strengthen-literacy-skills-with-picture-prompts.html?searchResultPosition=9
 
 **What We Should Be Doing About the Coronavirus**\
 `Readers urge better sick pay policies, no-cost testing and cancellation of large public events.`\
-https://nytimes.com/2020/03/05/opinion/letters/us-coronavirus.html?searchResultPosition=3
-
-**Italy’s Museums Reopen With Coronavirus Rule: Stay a Meter Apart**\
-`But reduced attendance means it’s not hard to enforce the new regulations.`\
-https://nytimes.com/2020/03/05/arts/design/italy-museums-coronavirus.html?searchResultPosition=4
-
-**Winfrey Reversed Upcoming Book Selection After Controversy**\
-`Oprah Winfrey reversed her book club selection of Kate Elizabeth Russell’s upcoming “My Dark Vanessa” after the novel was briefly the subject of online controversy, a spokeswoman confirmed Thursday.`\
-https://nytimes.com/aponline/2020/03/05/us/ap-us-books-my-dark-vanessa.html?searchResultPosition=5
-
-**Elizabeth Warren Was the Wrong Kind of Radical**\
-`She wanted to reform everything except the Democratic Party itself.`\
-https://nytimes.com/2020/03/05/opinion/elizabeth-warren-drops-out.html?searchResultPosition=6
-
-**Pence Pledges to 'Lean in' Against Spread of Coronavirus**\
-`Vice President Mike Pence pledged Thursday that federal officials would “lean into” the fight against the new coronavirus as he visited with a leading maker of masks being used to stem the spread of the virus. He asked Americans to refrain from buying masks unless they're sick. `\
-https://nytimes.com/aponline/2020/03/05/us/ap-us-virus-outbreak-pence.html?searchResultPosition=7
-
-**London Policeman Arrested for Suspected Right-Wing Terrorism Links**\
-`British counter-terrorism officers have arrested a serving London policeman on suspicion of being a member of a banned organization linked to right-wing terrorism.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-britain-crime-police.html?searchResultPosition=8
-
-**Saudi Arabia Denounces Iran for Accepting Saudi Visitors Amid Coronavirus**\
-`Saudi Arabia denounced Iran for granting Saudi citizens entry amid the coronavirus outbreak and urged it to reveal the identities of all Saudi nationals who had visited since the start of February, a government statement said on Thursday.`\
-https://nytimes.com/reuters/2020/03/05/world/middleeast/05reuters-health-coronavirus-saudi-iran.html?searchResultPosition=9
-
-**Afghan Political Rivals Divided Over Release of 5,000 Taliban Prisoners**\
-`Afghan President Ashraf Ghani's main political rival supports a Taliban demand for the release of thousands of their prisoners before they will take part in peace talks with the government, his spokesman said on Thursday.`\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-usa-afghanistan-taliban-politics.html?searchResultPosition=10
+https://nytimes.com/2020/03/05/opinion/letters/us-coronavirus.html?searchResultPosition=10
 
