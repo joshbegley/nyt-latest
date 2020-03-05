@@ -1,36 +1,36 @@
-**Even With Atrial Fibrillation, Exercise Linked to Longer Life**\
-`- People with a common heart rhythm problem who are physically active may live longer than more sedentary counterparts, a recent study suggests. `\
-https://nytimes.com/reuters/2020/03/05/us/05reuters-health-afib-fitness.html?searchResultPosition=2
+**Tally of Brazilians Missing After Landslides Rises to 43**\
+`The number of Brazilians missing in the wake of deadly landslides on the coast of Sao Paulo state has risen to 43, authorities said Thursday. `\
+https://nytimes.com/aponline/2020/03/05/world/americas/ap-lt-brazil-storms.html?searchResultPosition=2
 
-**Bulgaria Declares Nationwide Flu Epidemic**\
-`Bulgaria declared a nationwide influenza epidemic on Thursday to deal with the rapid rise of type B flu cases in the Balkan country, the health minister said.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-bulgaria-health-flu.html?searchResultPosition=3
+**Major North Carolina Donor Convicted of Bribery, Conspiracy**\
+`A major political donor has been found guilty of trying to bribe a North Carolina insurance regulator in hopes of reducing scrutiny of his business. `\
+https://nytimes.com/aponline/2020/03/05/us/ap-us-big-donor-north-carolina.html?searchResultPosition=3
 
-**Total Coronavirus Cases in UK Rise to 115**\
-`The total number of confirmed cases of coronavirus across the United Kingdom rose to 115 as of 0900 GMT on Thursday, up from 85 a day earlier, the health ministry said.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-britain-total.html?searchResultPosition=4
+**Warren Drops Out of Presidential Race as Biden, Sanders Intensify War of Words**\
+`Elizabeth Warren ended her presidential campaign on Thursday, bowing to the reality that the race for the Democratic nomination has become a two-way battle between former Vice President Joe Biden and U.S Senator Bernie Sanders.`\
+https://nytimes.com/reuters/2020/03/05/us/politics/05reuters-usa-election.html?searchResultPosition=4
 
-**Coronavirus Shuts School Attended by Swedish Royals**\
-`An exclusive private school in Stockholm, which counts Swedish royalty among its pupils, closed on Thursday after a student tested positive for the coronavirus, the royal court said.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-sweden.html?searchResultPosition=5
+**Walmart's Flipkart Faces Further Anti-Trust Probe in India**\
+`Walmart Inc's Flipkart faces a further anti-trust probe in India after an appellate tribunal asked the competition watchdog to investigate whether the company had abused its dominant position in e-commerce.`\
+https://nytimes.com/reuters/2020/03/05/business/05reuters-india-ecommerce-flipkart.html?searchResultPosition=5
 
-**U.S. Senate Nears Passage of $8.3 Billion Coronavirus Funding as Concerns Mount**\
-`The U.S. Senate on Thursday was poised to pass an $8.3 billion bill aimed at controlling the spread of the coronavirus and help develop vaccines, as some of the Trump administration's top health officials briefed members of the House of Representatives on the crisis.`\
-https://nytimes.com/reuters/2020/03/05/us/politics/05reuters-health-coronavirus-usa-congress.html?searchResultPosition=6
+**Kroger's Quarterly Profit, Sales Top Estimates on Private-Label Strength**\
+`U.S. supermarket chain Kroger Co topped fourth-quarter profit and sales estimates on Thursday, boosted by strong demand for its high-margin private-label brands, sending its shares up as much as 7.2%.`\
+https://nytimes.com/reuters/2020/03/05/business/05reuters-kroger-results.html?searchResultPosition=6
 
-**Coronavirus Death Toll in Italy's Lombardy Region Rises to 98 From 73: Official**\
-`The death toll from an outbreak of coronavirus in the northern Italian region of Lombardy, which has borne the brunt of a nationwide contagion, has risen over the past day to 98 from 73, a local official said on Thursday.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-italy-lombardy.html?searchResultPosition=7
+**Fragile Safety Net Leaves U.S. Economy Vulnerable to Coronavirus Hit**\
+`The spreading coronavirus outbreak poses a double-barreled threat to U.S. workers who face not only the prospect of lost wages if they are forced to stay home during a quarantine but also a fragile safety net to fall back on during such a crisis. `\
+https://nytimes.com/reuters/2020/03/05/business/05reuters-health-coronavirus-usa-economy-analysis.html?searchResultPosition=7
 
-**EU Eyes Mobilization of Retired Medical Workers, Students to Fight Coronavirus**\
-`European Union states are mulling radical measures to cope with the coronavirus outbreak, including the mobilization of retired healthcare workers and medical students to help hospitals handle growing numbers of patients, an EU official said on Thursday.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-eu-workers.html?searchResultPosition=8
+**Building Collapses in Pakistani Port City, Killing 11 People**\
+`A multistory building that was being expanded in Pakistan's southern port city of Karachi collapsed Thursday, killing at least 11 people, including women and children, officials said.`\
+https://nytimes.com/aponline/2020/03/05/world/asia/ap-as-pakistan-building-collapse.html?searchResultPosition=8
 
-**Former Husker Lineman Now Dominant Wrestler at Small College**\
-`Tanner Farmer just wants to be another guy on the Concordia University wrestling team, and for the most part he is.`\
-https://nytimes.com/aponline/2020/03/05/sports/ap-wre-gridiron-to-mat.html?searchResultPosition=9
+**‘It’s More Than I Imagined’: Boeing’s New C.E.O. Confronts Its Challenges**\
+`In a candid interview, David Calhoun largely laid the blame for the company’s 737 Max crisis on his predecessor.`\
+https://nytimes.com/2020/03/05/business/boeing-david-calhoun.html?searchResultPosition=9
 
-**Exxon to Cut Activity in Permian Basin as Oil Prices Plummet**\
-`Exxon Mobil plans to reduce the number of oil rigs operating in an oil-rich region in the Southwest and may cut planned capital expenditures as the spreading coronavirus saps energy demand. `\
-https://nytimes.com/aponline/2020/03/05/business/ap-us-exxon-oil-prices.html?searchResultPosition=10
+**Sweden's Stockholm Region Reports Jump in Coronavirus Cases**\
+`The Stockholm region of Sweden reported 28 new confirmed cases of the coronavirus on Thursday, the local authority said, taking the total number of cases in Sweden to 88. `\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-corononavirus-sweden-toll.html?searchResultPosition=10
 
