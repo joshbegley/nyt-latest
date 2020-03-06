@@ -1,36 +1,36 @@
-**When Coronavirus Quarantine Is Class Warfare**\
-`A pandemic is a great way to examine American class inequities.`\
-https://nytimes.com/2020/03/05/opinion/coronavirus-quarantine-hermit-tech.html?searchResultPosition=2
+**Healthy Again, Warriors' Sharpshooter Curry Targets Olympics**\
+`Golden State Warriors guard Stephen Curry is thrilled to finally be returning to the court after missing more than four months with a broken hand and has set his sights set on winning his first Olympic gold medal in Tokyo this year. `\
+https://nytimes.com/reuters/2020/03/05/sports/basketball/05reuters-basketball-nba-curry.html?searchResultPosition=2
 
-**U.S. Insurers Working to Ease Coronavirus Out-Of-Pocket Costs**\
-`The U.S. health insurance industry's largest trade group on Thursday said it is addressing prevention, testing and treatment for the new coronavirus, including making sure that out-of-pocket costs do not prevent people from seeking care.`\
-https://nytimes.com/reuters/2020/03/05/us/05reuters-health-coronavirus-insurance.html?searchResultPosition=3
+**Golf: Car Crash Cannot Keep Alternate Lee From Playing at Bay Hill**\
+`A pre-tournament car crash was not going to stop Lee Kyoung-hoon from jumping at a last-minute chance to play the Arnold Palmer Invitational in Florida on Thursday.`\
+https://nytimes.com/reuters/2020/03/05/sports/golf/05reuters-golf-palmer-lee.html?searchResultPosition=3
 
-**Argentina Cuts Interest Rate for Eighth Time Since December**\
-`Argentina's central bank lowered the benchmark interest rate to 38% from 40% on Thursday, the eighth cut since the middle of December when the country's new Peronist government came to power pledging to rekindle stalled growth.`\
-https://nytimes.com/reuters/2020/03/05/world/americas/05reuters-argentina-rates.html?searchResultPosition=4
+**HPE, AMD Win Deal for U.S. Supercomputer to Model Nuclear Weapons**\
+`Hewlett Packard Enterprise Co and Advanced Micro Devices Inc on Wednesday said they had won a $600 million deal to deliver a supercomputer that will be used by the U.S. Department of Energy's nuclear security arm to support the nation's nuclear arsenal.`\
+https://nytimes.com/reuters/2020/03/05/technology/05reuters-hpe-amd.html?searchResultPosition=4
 
-**Ex-Nazi Living in U.S. for Decades to Be Deported**\
-`The U.S. government said Thursday that it is deporting a 94-year-old German ex-Nazi who has been in the United States for decades.`\
-https://nytimes.com/aponline/2020/03/05/us/ap-us-former-nazi-deportation-.html?searchResultPosition=5
+**McIlroy Sets Early Pace With 66 at Bay Hill**\
+`Rory McIlroy was under water early but sitting high and dry by the end of his opening round atop the leaderboard at the Arnold Palmer Invitational in Orlando, Florida on Thursday.`\
+https://nytimes.com/reuters/2020/03/05/sports/golf/05reuters-golf-palmer.html?searchResultPosition=5
 
-**IMF Says Argentine Talks 'Productive' as Visit Ends; But Details Scarce**\
-`An International Monetary Fund team currently in Argentina has held "productive" talks with local officials, a spokesman said on Thursday, though there was little detail on concrete progress about reaching a deal over the country's debt crisis.`\
-https://nytimes.com/reuters/2020/03/05/world/americas/05reuters-argentina-imf.html?searchResultPosition=6
+**Democrats Sue to Block Texas Straight-Ticket Voting in 2020**\
+`Democrats sued Texas elections officials Thursday in an effort to stop a new ban on straight-ticket voting in 2020, claiming that long lines on Super Tuesday hinted at problems to come in November.`\
+https://nytimes.com/aponline/2020/03/05/us/ap-us-texas-voting-lawsuit.html?searchResultPosition=6
 
-**Michael Bloomberg to Fund Independent Group to Boost Democrats This Year**\
-`Michael Bloomberg will form an independent group to help elect the Democratic presidential nominee in November, fulfilling a vow to put his $60 billion personal fortune to work even after abandoning his own White House bid on Wednesday.`\
-https://nytimes.com/reuters/2020/03/05/us/politics/05reuters-usa-election-bloomberg.html?searchResultPosition=7
+**As Supreme Court Mulls Dreamers, Kushner Revives Immigration Plan**\
+`The president’s son-in-law is hoping that a looming ruling will spur interest in his proposal, which is similar to one he tried to push last year.`\
+https://nytimes.com/2020/03/05/us/politics/immigration-kushner-trump-dreamers.html?searchResultPosition=7
 
-**Lebanon State Prosecutor Blocks Order to Freeze Bank Assets**\
-`Lebanon's public prosecutor suspended on Thursday an order to freeze the assets of 20 local banks, warning it would plunge the country and its financial sector into chaos, according to a copy of the decision seen by Reuters.`\
-https://nytimes.com/reuters/2020/03/05/world/middleeast/05reuters-lebanon-crisis-banks-assets.html?searchResultPosition=8
+**Private Investment Funds in Colombia Have $5 Billion Ready to Invest**\
+`Private investment funds operating in Colombia have around $5 billion available to invest in projects in the Andean country, the investors' guild president said Thursday. `\
+https://nytimes.com/reuters/2020/03/05/business/05reuters-colombia-investment.html?searchResultPosition=8
 
-**Judge Sharply Rebukes Barr's Handling of Mueller Report**\
-`A federal judge on Thursday sharply rebuked Attorney General William Barr's handling of the special counsel's Russia report, saying Barr had made a “calculated effort" to spin the investigation's findings in favor of President Donald Trump and had shown a “lack of candor."`\
-https://nytimes.com/aponline/2020/03/05/us/politics/ap-us-trump-russia-probe.html?searchResultPosition=9
+**Investors Fret Over Risks to U.S. Corporate Credit as Coronavirus Spreads**\
+`Investors are growing increasingly worried that the spreading coronavirus will hit U.S. corporate cash flow and credit in some sectors, especially if the outbreak keeps workers at home or prevents companies from paying employees.`\
+https://nytimes.com/reuters/2020/03/05/business/05reuters-health-coronavirus-credit.html?searchResultPosition=9
 
-**AP FACT CHECK: Trump's Mislaid Blame on Obama for Virus Test**\
-`President Donald Trump and his officials are falsely asserting that they’ve accelerated coronavirus testing by easing a restrictive policy introduced by the Obama administration. `\
-https://nytimes.com/aponline/2020/03/05/us/politics/ap-us-virus-outbreak-trump-fact-check.html?searchResultPosition=10
+**Fed's Kaplan: New Infections Key Factor for Rate Decision**\
+`Dallas Federal Reserve President Robert Kaplan said on Thursday he will be looking closely at how far and fast the new coronavirus spreads in the United States as he weighs a decision on interest rates at the U.S. central bank's policy meeting later this month. `\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-usa-fed-kaplan.html?searchResultPosition=10
 
