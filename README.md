@@ -1,20 +1,20 @@
-**Banned Thai Billionaire Politician Vows to Press Fight for Democracy**\
-`A Thai billionaire whose opposition party, critical of the military establishment, was dissolved last month said on Friday he will form a new movement to work outside parliament after being banned from politics for 10 years.`\
-https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-thailand-politics.html?searchResultPosition=6
+**Sorry, but It’s Tax Time, and You Should Probably Read All This Stuff**\
+`Here are survival tips and extensive coverage of what’s new for 2020.`\
+https://nytimes.com/2020/03/06/business/taxes-2020.html?searchResultPosition=6
 
-**Turkish Coastguard Rescues 120 Migrants Off Western Coast**\
-`Turkey's coastguard rescued around 120 migrants trying to reach a Greek island on three dinghies early on Friday after they  said their passage was blocked by Greek coastguard vessels.`\
-https://nytimes.com/reuters/2020/03/06/world/06reuters-syria-security-turkey-coastguard.html?searchResultPosition=7
+**What You Do to Your Women, You Do to Your Nation**\
+`Gender isn’t just a human interest sideshow to high politics.`\
+https://nytimes.com/2020/03/06/opinion/global-womens-rights.html?searchResultPosition=7
 
-**Factbox: Four on Trial Over Shooting Down of Flight MH17 in Ukraine**\
-`The first hearing in the criminal trial of four men accused of murder for their roles in the 2014 downing of Malaysia Airlines Flight 17 in Ukraine is due to start in the Netherlands on Monday:`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-ukraine-crisis-mh17-trial-factbox.html?searchResultPosition=8
+**Coronavirus Doesn’t Care Whether You’re a Citizen**\
+`The Trump administration’s treatment of immigrants could make the epidemic worse.`\
+https://nytimes.com/2020/03/06/opinion/coronavirus-immigrants-health.html?searchResultPosition=8
 
-**Ceasefire in Syria's Idlib Comes at a Cost for Turkey's Erdogan**\
-`Days before he flew to Moscow to strike a ceasefire deal with Russia to halt fighting in Syria's Idlib, Turkish President Tayyip Erdogan warned Syrian government forces to pull back or they would not have a "head left on their shoulders".`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-syria-security-turkey-ceasefire.html?searchResultPosition=9
+**Bethlehem Deserted After Palestinians Declare Coronavirus Emergency**\
+`The streets of Bethlehem were near-empty on Friday as Palestinian police wearing masks patrolled the traditional birthplace of Jesus, hit hard by a state of emergency declared over coronavirus.`\
+https://nytimes.com/reuters/2020/03/06/world/middleeast/06reuters-health-coronavirus-palestinians-tourism.html?searchResultPosition=9
 
-**Islamic State Claims Responsibility for Kabul Attack That Killed 27: AMAQ**\
-`Islamic state claimed responsibility for an attack in the Afghan capital Kabul that killed at least 27 people, the group's Amaq news agency reported on Friday on its telegram channel.`\
-https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-afghanistan-security-islamic-state.html?searchResultPosition=10
+**Guyana Police Surround Elections Office, Diplomats Warn of Vote Fraud**\
+`Guyanese police on Friday surrounded an elections council office amid accusations that the results of this week's presidential election were altered to favor incumbent President David Granger, according to a Reuters witness.`\
+https://nytimes.com/reuters/2020/03/06/world/americas/06reuters-guyana-election.html?searchResultPosition=10
 
