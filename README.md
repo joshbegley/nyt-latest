@@ -1,20 +1,20 @@
-**Rear-View Mirror: U.S. Hiring Boomed in February but Coronavirus Risks Job Cuts in Future**\
-`A Florida toymaker plans layoffs. A Wisconsin construction gear manufacturer has frozen hiring. And a California cosmetics company has idled some production, leaving 20 temporary workers with no paycheck.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-usa-jobs.html?searchResultPosition=6
+**U.S. Says It Will Ban Pig Shipments if Fatal Hog Virus Is Detected**\
+`The U.S. Department of Agriculture said on Friday it will prohibit shipments of all pigs for at least three days if the nation ever finds a case of a fatal hog disease that has ravaged China's herd.`\
+https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-china-swinefever-usda.html?searchResultPosition=6
 
-**JPMorgan CEO Dimon 'Feels Really Good' After Emergency Surgery: Source**\
-`JPMorgan Chase & Co Chief Executive and Chairman Jamie Dimon has spoken to senior colleagues and "feels really good" after undergoing heart surgery, a source familiar with the matter told Reuters.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-jp-morgan-ceo-surgery-ft.html?searchResultPosition=7
+**Love Letter: Learning the Meaning of Love**\
+`Plus: Coronavirus upends wedding plans.`\
+https://nytimes.com/2020/03/06/style/love-letter-learning-the-meaning-of-love.html?searchResultPosition=7
 
-**Chipotle Founder Steve Ells Leaves Board, CEO Niccol to Add Chairman Role**\
-`Chipotle Mexican Grill said on Friday founder Steve Ells has stepped down from the board, handing over the role of executive chairman to Chief Executive Officer Brian Niccol.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-chipotle-board.html?searchResultPosition=8
+**House Panel Seeks Rehearing Over White House Counsel Subpoena Fight**\
+`The U.S. House of Representatives Judiciary Committee on Friday asked a federal appeals court to reconsider a ruling that prevented the panel from compelling a former Senior White House lawyer to testify about his role in President Donald Trump's efforts to impede the Mueller investigation.`\
+https://nytimes.com/reuters/2020/03/06/us/politics/06reuters-usa-trump-impeachment-mcgahn.html?searchResultPosition=8
 
-**Hip Hop Museum to Open in Its Birthplace in the Bronx**\
-`Hip hop - the music, dance, art and fashion phenomenon that went from rough streets into fancy suites in five decades - is getting its own museum in its birthplace in the Bronx, New York.`\
-https://nytimes.com/reuters/2020/03/06/arts/06reuters-new-york-hip-hop-museum.html?searchResultPosition=9
+**Ex-Inspector General at U.S. Department of Homeland Security Indicted for Stealing Government Property**\
+`The U.S. Department of Homeland Security's former top watchdog, tasked with rooting out waste, fraud and abuse, was indicted on Friday on charges he plotted to steal the government's proprietary software and confidential databases to boost his private business, the Justice Department said.`\
+https://nytimes.com/reuters/2020/03/06/us/06reuters-usa-justice-watchdog.html?searchResultPosition=9
 
-**Take Five: Credit Crunch at Time of Rock-Bottom Rates?**\
-`1)CROSSING OVER?`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-global-markets-themes.html?searchResultPosition=10
+**Exclusive: U.S. Considering Discouraging Some Travelers From Cruises-Sources**\
+`The United States is considering ways to discourage U.S. travelers from taking cruises as part of a broader Trump administration effort to limit the spread of coronavirus, according to four officials familiar with the situation. `\
+https://nytimes.com/reuters/2020/03/06/us/06reuters-health-coronavirus-cruiseships-exclusive.html?searchResultPosition=10
 
