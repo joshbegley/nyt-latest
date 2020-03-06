@@ -1,36 +1,36 @@
-**South Korea, Japan to Hold Export Control Talks via Teleconference, Jiji Says**\
-`South Korea and Japan will hold export control talks originally planned for March 10 in Seoul via teleconference, the Jiji news agency reported on Friday, reflecting the widening impact of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-healthcare-coronavirus-southkorea-japan.html?searchResultPosition=2
+**Golfer Piercy Loses Sponsors Over Homophobic Buttigieg Meme-Reports**\
+`Former U.S. Open runner-up Scott Piercy has lost major sponsors after he posted a homophobic meme on social media about openly-gay former U.S. presidential candidate Pete Buttigieg, several media reported.`\
+https://nytimes.com/reuters/2020/03/05/sports/golf/05reuters-golf-piercy.html?searchResultPosition=2
 
-**Singapore Minister Says Coronavirus Outbreak Emerging as Pandemic**\
-`The coronavirus spreading around the world from China is "starting to look like a global pandemic," said Singapore minister Lawrence Wong, who co-heads the country's virus fighting taskforce.`\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-singapore.html?searchResultPosition=3
+**Saudi Arabia Reopens Mecca, Medina Holy Sites After Coronavirus Closure: State TV**\
+`Saudi Arabia reopened two of the most holy religious sites in Islam, Al-Haram Mosque in Mecca and Al-Masjid al Nabawy in Medina, after they were closed for sterilization to halt the spread of the new coronavirus, state TV Al-Ekhbariya reported on Friday. `\
+https://nytimes.com/reuters/2020/03/05/world/middleeast/05reuters-health-coronavirus-saudi-mosque.html?searchResultPosition=3
 
-**Japanese Swimmer Ikee Tries to Turn Tide as Coronavirus Saps Blood Donations**\
-`Japanese star swimmer Rikako Ikee, who stunned fans last year with news she was battling leukemia, has launched an urgent appeal for people to give blood after steps to curb the spread of coronavirus led to a sharp drop in donations.`\
-https://nytimes.com/reuters/2020/03/05/sports/olympics/05reuters-health-coronavirus-ikee.html?searchResultPosition=4
+**MLB Notebook: White Sox’s Moncada Reportedly Gets $70 Million Extension**\
+`The Chicago White Sox and third baseman Yoan Moncada have agreed to a five-year contract extension worth $70 million, multiple media outlets reported Thursday.`\
+https://nytimes.com/reuters/2020/03/05/sports/baseball/05reuters-baseball-mlb-notebook.html?searchResultPosition=4
 
-**Anderson Makes 37 Saves, Senators Beat Islanders 4-3**\
-`Craig Anderson made 37 saves and the Senators beat the New York Islanders 4-3 on Thursday night, spoiling Jean-Gabriel Pageau’s return to Ottawa.`\
-https://nytimes.com/aponline/2020/03/05/sports/hockey/bc-hkn-islanders-senators.html?searchResultPosition=5
+**Japan Says Virus Travel Restrictions Not Too Late as South Korea Protests**\
+`Japan's government defended new, tighter travel restrictions on visitors from China and South Korea, saying they were not too late to help slow the spread of the coronavirus outbreak, as Seoul protested the measures as "excessive."`\
+https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-japan.html?searchResultPosition=5
 
-**Green Bay Beats Oakland 78-63 in Horizon Tourney**\
-`Amari Davis posted 19 points and six rebounds as Green Bay defeated Oakland 78-63 in the Horizon Conference Tourney semifinals on Thursday night.`\
-https://nytimes.com/aponline/2020/03/05/sports/ncaabasketball/bc-bkc-horizon-oakland-green-bay.html?searchResultPosition=6
+**NFL Notebook: Players Get Ballots for CBA Vote**\
+`Players received ballots for a proposed 10-year extension to the collective bargaining agreement from the NFL Players Association on Thursday, and they have seven days to submit their vote.`\
+https://nytimes.com/reuters/2020/03/05/sports/football/05reuters-football-nfl-notebook.html?searchResultPosition=6
 
-**No. 23 Missouri St. Women Top Valpo for Share of MVC Title**\
-`Brice Calip and Alexa Willard scored 17 points apiece, leading four other players into double-digit scoring as No. 23 Missouri State blew away from Valparaiso in the second half, winning 85-70 Thursday night.`\
-https://nytimes.com/aponline/2020/03/05/sports/ncaabasketball/bc-bkw-t25-valparaiso-missouri-st.html?searchResultPosition=7
+**UIC Beats Youngstown St. 67-61 in Horizon Tourney**\
+`Michael Diggins registered 17 points and eight rebounds as Illinois-Chicago got past Youngstown State 67-61 in the Horizon Conference Tourney semifinals on Thursday night.`\
+https://nytimes.com/aponline/2020/03/05/sports/ncaabasketball/bc-bkc-youngstown-st-uic.html?searchResultPosition=7
 
-**E. Kentucky Tops Tennessee St. 58-48 at OVC Tourney**\
-`Jomaru Brown scored 12 points, Ty Taylor added 11 and No. 4-seed Eastern Kentucky used a big second-half run to beat No. 5-seed Tennessee State 58-48 in a Thursday night quarterfinal of the Ohio Valley Conference tournament.`\
-https://nytimes.com/aponline/2020/03/05/sports/ncaabasketball/bc-bkc-ovc-tennessee-st-eastern-kentucky.html?searchResultPosition=8
+**Coronavirus Crisis Threatens to Silence Japan's Tourist Boom**\
+`The restaurants at the Exitmelsa shopping center in Tokyo's upscale Ginza district are usually packed with Chinese tourists. But on a recent weekday, many lunchtime tables were empty, a sign of the toll that the coronavirus is taking on tourism.`\
+https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-japan-tourism.html?searchResultPosition=8
 
-**Zibanejad Scores 5 Goals to Lead Rangers Past Caps in OT**\
-`Mika Zibanejad scored five goals to match the New York Rangers’ record, capping the scoring spree 33 seconds into overtime in a wild 6-5 victory over the Washington Capitals on Thursday night.`\
-https://nytimes.com/aponline/2020/03/05/sports/hockey/bc-hkn-capitals-rangers.html?searchResultPosition=9
+**Fed's Williams Says Central Bank Will Respond as Appropriate to Address Coronavirus Risks**\
+`The coronavirus poses "evolving risks" to the U.S. economy and U.S. central bank officials are monitoring developments closely, New York Federal Reserve President John Williams said on Thursday.`\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-usa-fed-williams.html?searchResultPosition=9
 
-**NC Central Tops NC A&T 86-80 to Win MEAC Title**\
-`Jibiri Blount grabbed 12 rebounds and scored 19 points, including a go-ahead free throw with 6:04 to play, and NC Central beat North Carolina A&T 86-80 on Thursday night to win the Mid-Eastern Athletic Conference regular-season championship. `\
-https://nytimes.com/aponline/2020/03/05/sports/ncaabasketball/bc-bkc-north-carolina-at-nc-central.html?searchResultPosition=10
+**BOJ to Ease Policy in March as Coronavirus Hits Growth: Reuters Poll**\
+`Japan will ease monetary policy this month, tracking the U.S. Federal Reserve's surprise move this week, as the coronavirus jolts markets and stokes fears of a recession, a majority of economists polled by Reuters said.`\
+https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-japan-economy-poll.html?searchResultPosition=10
 
