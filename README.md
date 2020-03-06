@@ -15,6 +15,6 @@ https://nytimes.com/2020/03/06/business/economy/trump-administration-blocks-chin
 https://nytimes.com/2020/03/06/opinion/letters/bernie-sanders-soviet-union.html?searchResultPosition=9
 
 **Hachette Says It Won’t Publish Woody Allen’s Book**\
-`The publisher planned to release the filmmaker’s autobiography in April but reversed course following a protest by its own workers.`\
+`The publisher planned to release the filmmaker’s autobiography in April but reversed course after a protest by its own workers.`\
 https://nytimes.com/2020/03/06/books/hachette-woody-allen-apropos-nothing.html?searchResultPosition=10
 
