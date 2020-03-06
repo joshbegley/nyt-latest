@@ -1,36 +1,36 @@
+**Virus Kills 124 People Amid 4,747 Confirmed Cases in Iran**\
+`Iran said Friday the new coronavirus has killed 124 people amid 4,747 confirmed cases in the Islamic Republic as authorities warned they may use “force” to limit travel between cities. `\
+https://nytimes.com/aponline/2020/03/06/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=2
+
+**Report: Explosion Near US Embassy in Tunisia Wounds 5 Police**\
+`Tunisian media are reporting that a suicide bomber on a motorcycle has set off a blast near the U.S. Embassy in the Tunisian capital, Tunis. `\
+https://nytimes.com/aponline/2020/03/06/world/middleeast/ap-ml-tunisia-explosion.html?searchResultPosition=3
+
+**Great Barrier Reef Enters Crucial Period in Coral Bleaching**\
+`The Great Barrier Reef is facing a critical period of heat stress over the coming weeks following the most widespread coral bleaching the natural wonder has ever endured, scientists said Friday.`\
+https://nytimes.com/aponline/2020/03/06/world/asia/ap-as-australia-barrier-reef.html?searchResultPosition=4
+
+**Enbridge Hires Companies to Design, Build Great Lakes Tunnel**\
+`Enbridge Inc. said Friday it has hired companies to design and build a disputed oil pipeline tunnel beneath the channel linking Lakes Huron and Michigan, despite pending legal challenges.`\
+https://nytimes.com/aponline/2020/03/06/business/ap-us-michigan-pipeline.html?searchResultPosition=5
+
+**Death Toll From Kabul Attack Rises to 27, With 29 Wounded: Health Ministry Spokesman**\
+`The death toll in an attack on a ceremony in Kabul rose to 27, a ministry of health spokesman said on Friday. `\
+https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-afghanistan-attack-toll.html?searchResultPosition=6
+
+**Slovakia Reports First Case of Coronavirus-Prime Minister**\
+`Slovakia has its first case of the coronavirus, Prime Minister Peter Pellegrini said on Friday.`\
+https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-slovakia.html?searchResultPosition=7
+
+**Coronavirus Cases Surge Across U.S. as Americans Face Looming Outbreak**\
+`The coronavirus outbreak radiated across the United States on Thursday, surfacing in at least four new states and San Francisco as Congress quickly approved more than $8 billion to fight the outbreak.`\
+https://nytimes.com/reuters/2020/03/06/us/06reuters-health-coronavirus-usa.html?searchResultPosition=8
+
+**State Bank of India Exploring Range of Rescue Options for Troubled Yes Bank: Sources**\
+`State Bank of India, the country's largest lender, is exploring a wide range of rescue options for struggling Yes Bank Ltd including a complete buyout of its private-sector rival, two sources familiar with the matter said. `\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-yesbank-india-state-bank-india.html?searchResultPosition=9
+
 **A Dreamer Finds His Sense of Belonging**\
 `“I miss my son, and I wish I could meet Allison,” said the groom’s mother, through tears, from Bangladesh. “I hope that one day we can all be together.”`\
-https://nytimes.com/2020/03/06/fashion/weddings/a-dreamer-finds-his-sense-of-belonging.html?searchResultPosition=2
-
-**The Almost-Peace Deal**\
-`After more than a year of talks, the U.S. and the Taliban have signed an agreement to end the war in Afghanistan. But will it work?`\
-https://nytimes.com/2020/03/06/podcasts/the-daily/taliban-peace-deal.html?searchResultPosition=3
-
-**Coronavirus Puts a Wrinkle in Wedding Industry**\
-`Some couples are cautiously moving ahead, while others are forced to delay their ‘I do’s’ for now.`\
-https://nytimes.com/2020/03/06/style/coronavirus-affecting-wedding-industry.html?searchResultPosition=4
-
-**Bill Clinton Explains Monica Lewinsky Affair as ‘Managing My Anxieties’**\
-`Mr. Clinton was asked about the scandal for the Hulu documentary series “Hillary.”`\
-https://nytimes.com/2020/03/06/us/bill-clinton-hillary-hulu.html?searchResultPosition=5
-
-**The Latest: UN Rights Chief Urges Mitigation of Virus Impact**\
-`The Latest on the virus outbreak (all times local):`\
-https://nytimes.com/aponline/2020/03/06/world/asia/ap-virus-outbreak-the-latest-1st-ld-writethru.html?searchResultPosition=6
-
-**UK Explosives Team Investigating 'Suspicous' Device in Car**\
-`British explosives experts are investigating a “suspicious device” found in a car in Luton, around 35 miles (56 kms) north of London.`\
-https://nytimes.com/aponline/2020/03/06/world/europe/ap-eu-britain-car-search.html?searchResultPosition=7
-
-**Asylum-Seekers, Coronavirus Collide With Complicated Results**\
-`No entry, says Hungary. Not all at once, says Greece. Watch out, says Croatia: They might have the coronavirus.`\
-https://nytimes.com/aponline/2020/03/06/world/europe/ap-eu-virus-outbreak-the-migrant-conundrum.html?searchResultPosition=8
-
-**Army Helicopter Carrying Diplomats Crashes in Myanmar: Spokesman**\
-`A military helicopter carrying foreign diplomats crashed in eastern Myanmar on Friday afternoon, injuring two pilots, a military spokesman said.`\
-https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-myanmar-military.html?searchResultPosition=9
-
-**Rolling in Toilet Paper: Australian Family Over-Orders Coveted Commodity**\
-`An Australian family is rolling in a much-coveted commodity after mistakenly ordering 48 boxes instead of 48 rolls of toilet paper online. `\
-https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-toiletpaper-australia.html?searchResultPosition=10
+https://nytimes.com/2020/03/06/fashion/weddings/a-dreamer-finds-his-sense-of-belonging.html?searchResultPosition=10
 
