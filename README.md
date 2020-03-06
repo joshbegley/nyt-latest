@@ -14,7 +14,7 @@ https://nytimes.com/aponline/2020/03/05/sports/ncaabasketball/bc-bkc-big-south-h
 `The announcement that the Australian Associated Press was closing shocked journalists, who called it another blow to public interest and transparency in the country.`\
 https://nytimes.com/2020/03/05/world/australia/australian-associated-press-closing.html?searchResultPosition=5
 
-**Doping-WADA Fails to Keep Mexico Laboratory Open**\
+**WADA Fails to Keep Mexico Laboratory Open**\
 `The World Anti-Doping Agency (WADA) said on Friday that it had failed in its bid to convince Mexican authorities to keep open the country's accredited anti-doping laboratory.`\
 https://nytimes.com/reuters/2020/03/05/sports/05reuters-sport-doping-wada-mexico.html?searchResultPosition=6
 
