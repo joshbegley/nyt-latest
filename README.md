@@ -1,20 +1,20 @@
-**Alpine Skiing: Cortina d'Ampezzo World Cup Finals Canceled Because of Coronavirus**\
-`The Alpine skiing World Cup finals in Cortina d'Ampezzo have been canceled amid the coronavirus outbreak, the Italian winter sports federation (FISI) said on Friday.`\
-https://nytimes.com/reuters/2020/03/06/sports/skiing/06reuters-health-coronavirus-alpine-skiing.html?searchResultPosition=6
+**Exclusive: Guatemala Seeks to Limit Migrants Returned Under U.S. Asylum Agreement**\
+`Guatemala's new government is trying to limit the number of foreign migrants the United States sends its way under an agreement that makes the Central American nation a buffer zone to reduce U.S. asylum claims. `\
+https://nytimes.com/reuters/2020/03/06/world/americas/06reuters-usa-immigration-guatemala-exclusive.html?searchResultPosition=6
 
-**Vodafone, TIM Win Conditional EU Approval for Tower Deal**\
-`Vodafone and Telecom Italia (TIM) on Friday secured conditional EU antitrust approval to create Europe's biggest mobile towers company, part of a strategy to roll out lucrative 5G services.`\
-https://nytimes.com/reuters/2020/03/06/technology/06reuters-telecom-it-m-a-vodafone-group-eu.html?searchResultPosition=7
+**'What's the Point?' War-Weary Syrians See No Hope in Putin-Erdogan Deal**\
+`The latest deal between Russia and Turkey to curb fighting in Syria's northwest means little to Abu Ali.`\
+https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-syria-security-idlib.html?searchResultPosition=7
 
-**Mark Cuban Fined $500,000 for Criticizing N.B.A. Referees**\
-`Cuban, the owner of the Dallas Mavericks, spoke out after his team lost to the Atlanta Hawks on Feb. 22.`\
-https://nytimes.com/2020/03/06/sports/basketball/mark-cuban-fine.html?searchResultPosition=8
+**Pence Walks Fine Line on Coronavirus Response**\
+`Vice President Mike Pence decided silence was the way to go.`\
+https://nytimes.com/aponline/2020/03/06/us/politics/ap-us-virus-outbreak-pence.html?searchResultPosition=8
 
-**AP Interview: UN Official Appeals for More Access in Syria**\
-`The head of the U.N. children's agency said Friday she has asked government officials for more access inside Syria, saying it's critical to bring aid to "the most vulnerable" in the war-torn country, which is experiencing one of the conflict's worst humanitarian crises yet.`\
-https://nytimes.com/aponline/2020/03/06/world/middleeast/ap-ml-syria-un.html?searchResultPosition=9
+**The Sydney Opera House Goes Quiet. Finally.**\
+`A renovation costing nearly $200 million has shut the famed theater for two years, the first closure in its history.`\
+https://nytimes.com/2020/03/06/arts/design/sydney-opera-house.html?searchResultPosition=9
 
-**Basketball: Baltimore University Bans Spectators From Games Over Coronavirus**\
-`Johns Hopkins University has barred spectators from attending the NCAA Division III men's basketball tournament it is hosting this week because of recently confirmed cases of coronavirus in Maryland, it said on Friday.`\
-https://nytimes.com/reuters/2020/03/06/sports/basketball/06reuters-health-coronavirus-basketball-ncaa.html?searchResultPosition=10
+**Paid to Stay Home: Europe’s Safety Net Could Ease Toll of Coronavirus**\
+`Europe’s social policies are sometimes seen as overly generous. Yet they may help cushion the economic impact of the virus.`\
+https://nytimes.com/2020/03/06/business/europe-coronavirus-labor-help.html?searchResultPosition=10
 
