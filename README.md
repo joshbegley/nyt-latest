@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/03/06/us/ap-us-sexual-misconduct-weinstein.html?searchResultPosition=6
 
 **Joe Biden Has Had Flimsy Organization. It Hasn’t Hurt Him.**\
-`The less quantifiable elements of Mr. Biden’s campaign — including his association with Barack Obama, and his empathy— have outweighed his lack of organizational heft in many places.`\
+`The less quantifiable elements of Mr. Biden’s campaign — including his association with Barack Obama, his empathy and his momentum — have outweighed his lack of organizational heft.`\
 https://nytimes.com/2020/03/06/us/politics/joseph-biden-2020.html?searchResultPosition=7
 
 **Review: In ‘Skinfolk,’ the Joys of Blackness Burst From the Earth**\
