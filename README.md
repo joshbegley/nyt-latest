@@ -1,36 +1,36 @@
-**Trump Says U.S. Economy Could Take Hit From Coronavirus**\
-`President Donald Trump said on Thursday the U.S. economy might take a hit from the coronavirus outbreak but predicted the challenge would eventually pass and defended his handling of the crisis.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-usa-coronavirus-trump.html?searchResultPosition=2
+**Fed's Kashkari Says He Supported Rate Cut as 'Insurance' in Face of Uncertainty**\
+`Minneapolis Federal Reserve President Neel Kashkari said on Thursday that he supported the U.S. central bank's emergency interest rate cut this week, and added the Fed could cut rates further if the impact of the coronavirus is worse than expected.`\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-usa-fed-kashkari.html?searchResultPosition=2
 
-**JPMorgan CEO Jamie Dimon Undergoes Emergency Heart Surgery**\
-`JPMorgan Chase & Co Chief Executive Jamie Dimon is recovering from emergency heart surgery that took place on Thursday morning, with two deputies taking over as he recuperates, the bank said.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-jp-morgan-ceo-surgery.html?searchResultPosition=3
+**Fed's Kaplan Says He Will Be Assessing Plan to Curtail Bond Purchases**\
+`Dallas Federal Reserve President Robert Kaplan said on Thursday that he will be reviewing whether the Fed ought to continue with its plan to curtail bond purchases and repo operations this spring, after the Fed earlier this week delivered an emergency rate cut to soften the impact of a slowdown due to the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-usa-fed-kaplan-bonds.html?searchResultPosition=3
 
-**Armory Show to Trade Piers for the Javits Center**\
-`The next edition of the art fair will take place at the Javits in September, 2021.`\
-https://nytimes.com/2020/03/05/arts/design/armory-show-javits-center.html?searchResultPosition=4
+**China Exempts Firms From Environment Checks to Help Fight Coronavirus**\
+`China will exempt firms from on-site environmental checks if they are involved in the production of materials used in the fight against the coronavirus epidemic or have low emissions levels, the country's environment ministry announced.`\
+https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-china-environment.html?searchResultPosition=4
 
-**NZ Man With Coronavirus Attended Packed Rock Concert in Auckland, Health Authorities Say**\
-`A person in New Zealand confirmed to have been infected was revealed on Friday to have attended a rock concert packed with thousands of other people. `\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-newzealand.html?searchResultPosition=5
+**Japan Household Spending Falls for Fourth Straight Month, Coronavirus Impact Looms**\
+`Japanese household spending dropped for the fourth straight month in January, reflecting growing strains in domestic demand even before fully factoring in the coronavirus' economic impact.`\
+https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-japan-economy-spending.html?searchResultPosition=5
 
-**South Korea Protests Japan's Quarantine Plans Over Coronavirus**\
-`South Korea strongly protested on Friday Japan's decision to impose a two-week quarantine for visitors from South Korea, calling it "unreasonable, excessive and extremely regrettable". `\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-southkorea-japan.html?searchResultPosition=6
+**Bank of Mexico Expected to Cut Rates to 6.5% After Fed Move: Survey**\
+`Mexico's central bank is seen cutting its key interest rate by 50 basis points at its monetary policy meeting in late March, 25 basis points more than a forecast two weeks ago following the U.S. Federal Reserve's surprise rate cut, a Citibanamex survey showed on Thursday.`\
+https://nytimes.com/reuters/2020/03/05/world/americas/05reuters-mexico-economy-rates.html?searchResultPosition=6
 
-**JPMorgan Restricts All Non-Essential Domestic Travel Globally: Internal Memo**\
-`JPMorgan Chase & Co said on Thursday that employees should forgo any non-essential domestic business travel in all of its worldwide locations, due to concerns about the quickly-spreading coronavirus, according to an internal memo seen by Reuters.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-health-coronavirus-jpmorgan.html?searchResultPosition=7
+**Britain's Government Spent 4.4 Billion Pounds on Brexit Planning**\
+`Britain's government has spent at least 4.4 billion pounds ($5.6 billion) of taxpayers' money on preparations to leave the European Union, the public spending watchdog said on Friday, in the first detailed estimate of the cost of Brexit.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-britain-eu-cost.html?searchResultPosition=7
 
-**Three Coronavirus Cases Confirmed in Maryland: Governor**\
-`Maryland's public health laboratory has confirmed three coronavirus cases, Governor Larry Hogan said in a statement on Thursday.`\
-https://nytimes.com/reuters/2020/03/05/us/05reuters-health-coronavirus-usa-maryland.html?searchResultPosition=8
+**Dilk, Hillmon Lift Michigan Women Past Huskers in Big Ten**\
+`Amy Dilk scored 22 points, Naz Hillmon added 20 and seventh-seeded Michigan used a strong third quarter to defeat 10th-seeded Nebraska 81-75 on Thursday night in the second round of the Big Ten tournament.`\
+https://nytimes.com/aponline/2020/03/05/sports/ncaabasketball/bc-bkw-b10-nebraska-michigan.html?searchResultPosition=8
 
-**China First-Quarter Economic Hit From Coronavirus Looking More Severe: Reuters Poll**\
-`The coronavirus likely halved China's economic growth in the current quarter compared with the previous three months, more severe than thought just three weeks ago and triggering expectations for earlier interest rate cuts, a Reuters poll found.`\
-https://nytimes.com/reuters/2020/03/05/business/05reuters-china-economy-poll.html?searchResultPosition=9
+**United States Urges Citizens to Avoid Travel to Haiti**\
+`The U.S. State Department on Thursday raised its travel advisory on Haiti to "do not travel" from "reconsider travel" citing risks of crime, civil unrest and kidnapping on the impoverished Caribbean island nation.`\
+https://nytimes.com/reuters/2020/03/05/world/americas/05reuters-usa-haiti-travel.html?searchResultPosition=9
 
-**Mainland China Reports 143 New Confirmed Cases of Coronavirus on March 5**\
-`Mainland China had 143 new confirmed cases of coronavirus infections on Thursday, the country's National Health Commission said on Friday, up from 139 cases a day earlier. `\
-https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-china-toll.html?searchResultPosition=10
+**Hip Hop Museum to Open in Its Birthplace in the Bronx**\
+`Hip hop - the music, dance, art and fashion phenomenon that went from rough streets into fancy suites in five decades - is getting its own museum in its birthplace in the Bronx, New York.`\
+https://nytimes.com/reuters/2020/03/05/arts/05reuters-new-york-hip-hop-museum.html?searchResultPosition=10
 
