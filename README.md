@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/03/06/us/ap-us-abandoned-infant.html?searchResultPosition=6
 
 **Crisis Deepens in Tiny Guyana, the World’s Newest Petro State**\
-`A decision by electoral authorities to declare the government the winner in the March 2 elections is the catalyst for a wave of unrest. Billions in new oil revenue are at stake.`\
+`A decision by electoral authorities to declare the government the de facto winner in the March 2 elections is the catalyst for a wave of unrest. Billions in new oil revenue are at stake.`\
 https://nytimes.com/2020/03/06/world/americas/Guyana-election.html?searchResultPosition=7
 
 **Eva Szekely Dies at 92; Survived Holocaust to Win Olympic Gold**\
