@@ -1,36 +1,36 @@
+**Slovakia Bans Italy Flights After First Coronavirus Case Appears**\
+`Slovakia will ban flights to and from Italy, the European country worst hit by the coronavirus outbreak, starting Monday, Prime Minister Peter Pellegrini said on Friday after announcing Slovakia's first case of the new virus.`\
+https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-slovakia-flights.html?searchResultPosition=2
+
+**With Cries of 'It's Fake', Wuhan Citizens Voice Discontent**\
+`"It's fake! It's fake!" residents high up in an apartment complex in the central Chinese city of Wuhan shouted down as a senior government official led an inspection tour below of how people were coping during the coronavirus lockdown.`\
+https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-china-socialmedia.html?searchResultPosition=3
+
+**EU Eyes Moves on State Subsidy Rules to Support Virus-Hit Economy**\
+`European Union officials are considering temporary suspensions of rules on state subsidies and EU loans to economic sectors hit hardest by the coronavirus outbreak, an official said on Friday.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-healthcare-coronavirus-eu-support.html?searchResultPosition=4
+
+**Total UK Coronavirus Cases Reach 163**\
+`A total of 163 people have tested positive for coronavirus in the United Kingdom, rising from 115, medical authorities said on Friday.`\
+https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-britain-cases.html?searchResultPosition=5
+
+**Factbox: The Economic Remedies for the Coronavirus**\
+`Policymakers have taken a range of approaches to deal with the economic fallout from the coronavirus, from emergency interest rate cuts and big spending packages to a wait-and-see-stance and pledges of action if required.`\
+https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-economy-policy-factbox.html?searchResultPosition=6
+
+**Number of Coronavirus Infections Tops 100,000 Globally: Reuters Tally**\
+`The number of people infected by the new coronavirus globally surpassed 100,000 on Friday, according to a Reuters tally based on statements from health ministries and government officials.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-tally.html?searchResultPosition=7
+
+**Tourism-Driven Thailand Softens 'Compulsory' Self-Isolation Language**\
+`Officials in tourism-reliant Thailand sought on Friday to ease worries about new self-quarantine measures for arrivals from six countries and territories with coronavirus, a day after announcing compulsory isolation. `\
+https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-thailand.html?searchResultPosition=8
+
 **Polish Police Limit Some Drink-Driving Tests Due to Coronavirus**\
 `Polish police striving to improve one of Europe's worst road fatality rates are having to cut back on testing drivers' breath for alcohol for fear this could speed the transmission of coronavirus.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-poland-police.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-poland-police.html?searchResultPosition=9
 
 **France Reports Two More Coronavirus Deaths, Taking Total to Nine**\
 `Two more people have died from coronavirus infection in France, taking the total to nine, while the number of confirmed infections rose by 154 to 577, the Health ministry said on its website on Friday.`\
-https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-france-toll.html?searchResultPosition=3
-
-**Economic Toll of Coronavirus Becomes Clear, Duration Unknown**\
-`The Dow over the past five days: up 1,293, down 786, up 1,173, down 967.`\
-https://nytimes.com/aponline/2020/03/06/business/bc-us-virus-outbreak-business-fallout.html?searchResultPosition=4
-
-**The Latest: Biden Gains New Endorsements From Moderate Dems**\
-`The Latest on the 2020 election (all times local):`\
-https://nytimes.com/aponline/2020/03/06/us/politics/ap-us-election-2020-the-latest.html?searchResultPosition=5
-
-**‘Look Up Here!’: 5 Female Directors Reject the Male Gaze**\
-`These directors are acutely aware of Hollywood’s tendency to objectify female characters. So in their own work, they’re taking steps to avoid that trap.`\
-https://nytimes.com/2020/03/06/movies/women-filmmakers-male-gaze.html?searchResultPosition=6
-
-**Why Warren Supporters Aren’t a Lock to Get Behind Sanders**\
-`Elizabeth Warren and Bernie Sanders are longtime allies on the left. But her pool of voters generally doesn’t look like his base.`\
-https://nytimes.com/2020/03/06/us/politics/elizabeth-warren-bernie-sanders-voters.html?searchResultPosition=7
-
-**AP Exclusive: NRA Firearms Auction at Country Museum Nixed**\
-`For weeks the National Rifle Association has been publicizing plans to hold a fundraising dinner at the Country Music Hall of Fame and Museum where it planned to auction off firearms, even as many country music artists have distanced themselves from the gun rights organization. `\
-https://nytimes.com/aponline/2020/03/06/arts/ap-us-nra-country-music-museum.html?searchResultPosition=8
-
-**University of Michigan Won't Change Investigation Into Abuse**\
-`The University of Michigan said Friday that it will not change the way it is handling the investigation into allegations of sexual abuse by a late doctor at the University of Michigan.`\
-https://nytimes.com/aponline/2020/03/06/sports/ap-us-university-of-michigan-doctor.html?searchResultPosition=9
-
-**Putin Dismisses Talk About Extending His Rule**\
-`Russian President Vladimir Putin said Friday that he doesn't want to scrap term limits or resort to other suggested ways of extending his rule, but he kept mum about his future plans.`\
-https://nytimes.com/aponline/2020/03/06/world/europe/ap-eu-russia-putin.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-france-toll.html?searchResultPosition=10
 
