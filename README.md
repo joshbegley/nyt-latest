@@ -1,36 +1,36 @@
-**Slovakia Bans Italy Flights After First Coronavirus Case Appears**\
-`Slovakia will ban flights to and from Italy, the European country worst hit by the coronavirus outbreak, starting Monday, Prime Minister Peter Pellegrini said on Friday after announcing Slovakia's first case of the new virus.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-slovakia-flights.html?searchResultPosition=2
+**OPEC, Non-OPEC Fail to Agree Existing Cuts Roll-Over: Sources**\
+`OPEC and non-OPEC oil producers have failed to agree a roll over of existing output cuts, two OPEC sources told Reuters.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-opec-meeting-rollover.html?searchResultPosition=2
 
-**With Cries of 'It's Fake', Wuhan Citizens Voice Discontent**\
-`"It's fake! It's fake!" residents high up in an apartment complex in the central Chinese city of Wuhan shouted down as a senior government official led an inspection tour below of how people were coping during the coronavirus lockdown.`\
-https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-china-socialmedia.html?searchResultPosition=3
+**Togo Confirms First Case of Coronavirus**\
+`The West African country of Togo has registered its first case of coronavirus, its government said on Friday.`\
+https://nytimes.com/reuters/2020/03/06/world/africa/06reuters-healthcare-coronavirus-togo.html?searchResultPosition=3
 
-**EU Eyes Moves on State Subsidy Rules to Support Virus-Hit Economy**\
-`European Union officials are considering temporary suspensions of rules on state subsidies and EU loans to economic sectors hit hardest by the coronavirus outbreak, an official said on Friday.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-healthcare-coronavirus-eu-support.html?searchResultPosition=4
+**Trump Signs $8.3 Billion Spending Bill to Boost Coronavirus Response**\
+`U.S. President Donald Trump on Friday signed an emergency spending bill for $8.3 billion to ramp up the nation's response to the coronavirus, providing funds for state and local officials to combat the spread of infections as the number of cases grows in the United States.`\
+https://nytimes.com/reuters/2020/03/06/us/politics/06reuters-health-coronavirus-usa-trump.html?searchResultPosition=4
 
-**Total UK Coronavirus Cases Reach 163**\
-`A total of 163 people have tested positive for coronavirus in the United Kingdom, rising from 115, medical authorities said on Friday.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-britain-cases.html?searchResultPosition=5
+**Two British Airways Staff Test Positive for Virus, Have Been Isolated**\
+`Two British Airways members of staff have tested positive for coronavirus, have been isolated and are recovering at home, the airline said on Friday.`\
+https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-ba.html?searchResultPosition=5
 
-**Factbox: The Economic Remedies for the Coronavirus**\
-`Policymakers have taken a range of approaches to deal with the economic fallout from the coronavirus, from emergency interest rate cuts and big spending packages to a wait-and-see-stance and pledges of action if required.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-economy-policy-factbox.html?searchResultPosition=6
+**Fed to Cut Rates Again in March, but Effectiveness Challenged: Reuters Poll**\
+`The Federal Reserve will cut U.S. interest rates by 25 basis points later this month but it is a close call, according to a Reuters poll of economists who have substantially raised their forecasts for the chances of a recession following the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-fed-rates-poll.html?searchResultPosition=6
 
-**Number of Coronavirus Infections Tops 100,000 Globally: Reuters Tally**\
-`The number of people infected by the new coronavirus globally surpassed 100,000 on Friday, according to a Reuters tally based on statements from health ministries and government officials.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-tally.html?searchResultPosition=7
+**Peru Records First Confirmed Case of Coronavirus, President Vizcarra Says**\
+`Peru recorded its first confirmed case of coronavirus, President Martin Vizcarra said in a televised statement on Friday, as the disease begins to spread around South America.`\
+https://nytimes.com/reuters/2020/03/06/world/americas/06reuters-health-coronavirus-peru.html?searchResultPosition=7
 
-**Tourism-Driven Thailand Softens 'Compulsory' Self-Isolation Language**\
-`Officials in tourism-reliant Thailand sought on Friday to ease worries about new self-quarantine measures for arrivals from six countries and territories with coronavirus, a day after announcing compulsory isolation. `\
-https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-thailand.html?searchResultPosition=8
+**Russia Reports Six New Cases of Coronavirus-Ifax**\
+`Russia has identified six new cases of coronavirus, including 5 in Moscow, the Interfax news agency cited Russia's coronavirus crisis centre as saying on Friday. `\
+https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-russia.html?searchResultPosition=8
 
-**Polish Police Limit Some Drink-Driving Tests Due to Coronavirus**\
-`Polish police striving to improve one of Europe's worst road fatality rates are having to cut back on testing drivers' breath for alcohol for fear this could speed the transmission of coronavirus.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-poland-police.html?searchResultPosition=9
+**Trump to Survey Tennessee Tornado Damage**\
+`President Donald Trump will again assume the role of national consoler Friday on a tour of Tennessee neighborhoods where lives and homes were destroyed by tornadoes  that swept through parts of the state earlier this week. `\
+https://nytimes.com/aponline/2020/03/06/us/politics/ap-us-trump.html?searchResultPosition=9
 
-**France Reports Two More Coronavirus Deaths, Taking Total to Nine**\
-`Two more people have died from coronavirus infection in France, taking the total to nine, while the number of confirmed infections rose by 154 to 577, the Health ministry said on its website on Friday.`\
-https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-france-toll.html?searchResultPosition=10
+**Swiss Shift Coronavirus Strategy to Protecting Most Vulnerable**\
+`The Swiss government on Friday shifted its focus in the fight against the new coronavirus to protecting those most vulnerable, while continuing to try to slow its spread and track the origins of individual cases as long as possible.`\
+https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-swiss.html?searchResultPosition=10
 
