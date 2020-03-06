@@ -1,20 +1,20 @@
-**On ‘Oprah’s Book Club,’ ‘American Dirt’ Author Faces Criticism**\
-`Jeanine Cummins, whose novel about a Mexican woman and her son ignited a backlash, heard from some of her detractors in an episode that Apple TV Plus began streaming Friday.`\
-https://nytimes.com/2020/03/06/books/american-dirt-oprah-book-club-apple-tv.html?searchResultPosition=6
+**Rear-View Mirror: U.S. Hiring Boomed in February but Coronavirus Risks Job Cuts in Future**\
+`A Florida toymaker plans layoffs. A Wisconsin construction gear manufacturer has frozen hiring. And a California cosmetics company has idled some production, leaving 20 temporary workers with no paycheck.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-usa-jobs.html?searchResultPosition=6
 
-**Russia Quits OPEC+ Deal but Will Monitor Situation, Says Novak**\
-`There is no more oil output deal between Russia, its allies and members of OPEC oil-producing countries, Russian Energy Minister Alexander Novak said on Friday, adding that the OPEC+ group of nations would continue to monitor the market situation. `\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-opec-meeting-russia-novak.html?searchResultPosition=7
+**JPMorgan CEO Dimon 'Feels Really Good' After Emergency Surgery: Source**\
+`JPMorgan Chase & Co Chief Executive and Chairman Jamie Dimon has spoken to senior colleagues and "feels really good" after undergoing heart surgery, a source familiar with the matter told Reuters.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-jp-morgan-ceo-surgery-ft.html?searchResultPosition=7
 
-**U.S. House Panel Faults FAA Review of Boeing 737 MAX, Plane Design Failures**\
-`A U.S. House investigative report into two Boeing 737 MAX crashes that killed 346 people will fault the Federal Aviation Administration's (FAA) approval of the plane and Boeing's "design failures."`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-boeing-737max-exclusive.html?searchResultPosition=8
+**Chipotle Founder Steve Ells Leaves Board, CEO Niccol to Add Chairman Role**\
+`Chipotle Mexican Grill said on Friday founder Steve Ells has stepped down from the board, handing over the role of executive chairman to Chief Executive Officer Brian Niccol.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-chipotle-board.html?searchResultPosition=8
 
-**No. 22 Florida St Women Cruise by Wake Forest to Reach Semis**\
-`Nausia Woolfolk and Kourtney Weber each scored 15 points and No. 22 Florida State beat 13th-seeded Wake Forest for the third time this season, 76-47 in the quarterfinals of the Atlantic Coast Conference tournament on Friday.`\
-https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/bc-bkw-t25-acc-wake-forest-florida-st.html?searchResultPosition=9
+**Hip Hop Museum to Open in Its Birthplace in the Bronx**\
+`Hip hop - the music, dance, art and fashion phenomenon that went from rough streets into fancy suites in five decades - is getting its own museum in its birthplace in the Bronx, New York.`\
+https://nytimes.com/reuters/2020/03/06/arts/06reuters-new-york-hip-hop-museum.html?searchResultPosition=9
 
-**Thyssenkrupp Shares Hit Record Low as Investor Faith Dwindles**\
-`Thyssenkrupp shares hit a record low on Friday, prompting its finance chief to come out and defend the ailing conglomerate which must convince investors that it can earn cash following the sale of its elevator division.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-thyssenkrupp-stocks.html?searchResultPosition=10
+**Take Five: Credit Crunch at Time of Rock-Bottom Rates?**\
+`1)CROSSING OVER?`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-global-markets-themes.html?searchResultPosition=10
 
