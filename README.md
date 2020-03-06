@@ -1,36 +1,36 @@
+**What to Know About the Coronavirus Spread in California**\
+`Friday: Anxiety rose as more cases were discovered. Also: More election results; and a recommendation for finding an outdoor escape.`\
+https://nytimes.com/2020/03/06/us/coronavirus-california-cruise-ship.html?searchResultPosition=2
+
+**The Renovation of Gage & Tollner Uncovers Some Historic Treasure**\
+`Decades-old menus, notes and letters are found in a crawl space just as the new owners are bringing the Brooklyn restaurant back to life.`\
+https://nytimes.com/2020/03/06/realestate/the-renovation-of-gage-tollner-uncovers-some-historic-treasure.html?searchResultPosition=3
+
+**Kenzo Takada’s Antique Artifacts**\
+`The designer, who founded the Kenzo label in 1970, relishes the storytelling powers of these ancient objects.`\
+https://nytimes.com/2020/03/06/t-magazine/kenzo-takada-antique-artifacts.html?searchResultPosition=4
+
+**How Not to Become a Victim of Social Security Fraud Calls**\
+`Regulators report thousands of complaints about the calls. Here are some tips on protecting yourself, and your money.`\
+https://nytimes.com/2020/03/06/your-money/social-security-fraud-calls.html?searchResultPosition=5
+
+**The Week in Tech: Welcome to the Age of Mandatory Videoconferencing**\
+`Telling employees to work from home. Bearing down on misinformation removal. Here is how the coronavirus is affecting the industry.`\
+https://nytimes.com/2020/03/06/technology/coronavirus-tech-businesses.html?searchResultPosition=6
+
 **Man Who Drunkenly Shot at Deer but Hit Woman Pleads Guilty**\
 `An Iowa man is awaiting sentencing for drunkenly firing a rifle and wounding a woman inside her home instead of a deer he'd hoped to kill.`\
-https://nytimes.com/aponline/2020/03/06/us/ap-us-felon-hunter-woman-shot.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/03/06/us/ap-us-felon-hunter-woman-shot.html?searchResultPosition=7
 
 **President Trump Calls Off Planned Trip to CDC in Atlanta**\
 `President Donald Trump's visit to the Centers for Disease Control and Prevention in Atlanta has been called off because he doesn't want to get in the way of its work, the White House said Friday.`\
-https://nytimes.com/aponline/2020/03/06/us/ap-us-virus-outbreak-trump.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/03/06/us/ap-us-virus-outbreak-trump.html?searchResultPosition=8
 
 **US Added Robust 273K Jobs in February Before Virus Escalated**\
 `Hiring in the United States jumped in February as employers added 273,000 jobs, evidence that the economy was in strong shape before the coronavirus began to sweep through the nation.`\
-https://nytimes.com/aponline/2020/03/06/business/bc-us-economy-jobs-report.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/03/06/business/bc-us-economy-jobs-report.html?searchResultPosition=9
 
 **‘Star Trek: Picard’ Season 1, Episode 7 Recap: Will Riker Makes Pizza**\
 `In this week’s episode, Picard reunites with his old Number One and his trusted counselor, Deanna Troi.`\
-https://nytimes.com/2020/03/06/arts/television/star-trek-picard-nepenthe-recap.html?searchResultPosition=5
-
-**US Trade Deficit Narrows to $45.3 Billion in January**\
-`The U.S. trade deficit narrowed in January as exports fell but imports fell more. The politically sensitive trade gap with China widened.`\
-https://nytimes.com/aponline/2020/03/06/business/bc-us-trade-gap.html?searchResultPosition=6
-
-**Cyprus President Scolds UN for Comments on Crossing Closures**\
-`Cyprus' president on Friday told the United Nations peacekeeping mission on the ethnically divided island nation not to meddle in government affairs following a decision to close crossing points amid virus concerns. `\
-https://nytimes.com/aponline/2020/03/06/world/europe/ap-eu-cyprus-un.html?searchResultPosition=7
-
-**EU Rejects Turkey's Use of Migrants for 'Political Purposes': Foreign Ministers**\
-`Turkey's decision to open its border with Greece to migrants, ignoring its 2016 migration deal with the European Union, is not acceptable and any such political pressure will be rejected, EU foreign ministers said on Friday.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-syria-security-turkey-eu.html?searchResultPosition=8
-
-**Fujimori's Appeal to Reduce Two-Year Doping Ban Dismissed by CAS**\
-`Japanese swimmer Hiromasa Fujimori's appeal against the length of his doping ban has been dismissed, the Court of Arbitration for Sport (CAS) said on Friday.`\
-https://nytimes.com/reuters/2020/03/06/sports/olympics/06reuters-doping-fujimori.html?searchResultPosition=9
-
-**EU, U.S. Taking Slow, Small Steps Toward 'Mini' Trade Deal: EU's Hogan**\
-`The European Union and United States are taking slow, small steps toward a "mini" trade deal, European Trade Commissioner Phil Hogan said on Friday ahead of trip to Washington this month.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-eu-trade.html?searchResultPosition=10
+https://nytimes.com/2020/03/06/arts/television/star-trek-picard-nepenthe-recap.html?searchResultPosition=10
 
