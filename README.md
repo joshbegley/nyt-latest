@@ -1,36 +1,36 @@
-**In Biden’s Hometown, Trump Says He’s Ready to Face Off Against Him**\
-`The president, at a town-hall-style event hosted by Fox News, ridiculed the former vice president and said he was shifting his focus from Bernie Sanders.`\
-https://nytimes.com/2020/03/05/us/politics/trump-biden-fox-news-town-hall.html?searchResultPosition=2
+**Armory Show to Trade Piers for the Javits Center**\
+`The next edition of the art fair will take place at the Javits in September, 2021.`\
+https://nytimes.com/2020/03/05/arts/design/armory-show-javits-center.html?searchResultPosition=2
 
-**As Bernie Sanders Pushed for Closer Ties, Soviet Union Spotted Opportunity**\
-`Previously unseen documents from a Soviet archive show how hard Mr. Sanders worked to find a sister city in Russia when he was a mayor in the 1980s. Moscow saw a chance for propaganda.`\
-https://nytimes.com/2020/03/05/world/europe/bernie-sanders-soviet-russia.html?searchResultPosition=3
+**NZ Man With Coronavirus Attended Packed Rock Concert in Auckland, Health Authorities Say**\
+`A person in New Zealand confirmed to have been infected was revealed on Friday to have attended a rock concert packed with thousands of other people. `\
+https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-newzealand.html?searchResultPosition=3
 
-**No. 25 Michigan Beats Nebraska 82-58 With Beilein on Hand**\
-`Jon Teske scored 12 points and Zavier Simpson added 11 in their home finale, and No. 25 Michigan beat Nebraska 82-58 on Thursday, a night when Wolverines fans welcomed former coach John Beilein back to Crisler Center.`\
-https://nytimes.com/aponline/2020/03/05/sports/ncaabasketball/bc-bkc-t25-nebraska-michigan.html?searchResultPosition=4
+**South Korea Protests Japan's Quarantine Plans Over Coronavirus**\
+`South Korea strongly protested on Friday Japan's decision to impose a two-week quarantine for visitors from South Korea, calling it "unreasonable, excessive and extremely regrettable". `\
+https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-southkorea-japan.html?searchResultPosition=4
 
-**LSU Women Advance to Face Defending SEC Champ Mississippi St**\
-`Khayla Pointer scored 19 points, Faustine Aifuwa added 16 and LSU beat Florida 73-59 on Thursday in the second round of the Southeastern Conference tournament.`\
-https://nytimes.com/aponline/2020/03/05/sports/ncaabasketball/bc-bkw-sec-florida-lsu.html?searchResultPosition=5
+**JPMorgan Restricts All Non-Essential Domestic Travel Globally: Internal Memo**\
+`JPMorgan Chase & Co said on Thursday that employees should forgo any non-essential domestic business travel in all of its worldwide locations, due to concerns about the quickly-spreading coronavirus, according to an internal memo seen by Reuters.`\
+https://nytimes.com/reuters/2020/03/05/business/05reuters-health-coronavirus-jpmorgan.html?searchResultPosition=5
 
-**Excerpts from the Sanders Files in a Russian Archive**\
-`Here are five excerpts from an 89-page Soviet-era file that tracked the efforts made by Bernie Sanders in the 1980s to find a sister city in Russia for Burlington, Vt.`\
-https://nytimes.com/2020/03/05/world/europe/sanders-russia-excerpts-archive.html?searchResultPosition=6
+**Three Coronavirus Cases Confirmed in Maryland: Governor**\
+`Maryland's public health laboratory has confirmed three coronavirus cases, Governor Larry Hogan said in a statement on Thursday.`\
+https://nytimes.com/reuters/2020/03/05/us/05reuters-health-coronavirus-usa-maryland.html?searchResultPosition=6
 
-**Behind the Story: Searching for Sanders in a Russian Archive**\
-`An obscurely named entry, discovered after days of searching, offered up an unexplored trove of material.`\
-https://nytimes.com/2020/03/05/world/europe/russia-bernie-sanders.html?searchResultPosition=7
+**China First-Quarter Economic Hit From Coronavirus Looking More Severe: Reuters Poll**\
+`The coronavirus likely halved China's economic growth in the current quarter compared with the previous three months, more severe than thought just three weeks ago and triggering expectations for earlier interest rate cuts, a Reuters poll found.`\
+https://nytimes.com/reuters/2020/03/05/business/05reuters-china-economy-poll.html?searchResultPosition=7
 
-**Jones Leads Top-Seed Radford Past Charleston Southern 62-48**\
-`Carlik Jones scored 21 points, 10 in a late, game-winning 18-0 run and top-seeded Radford topped eighth-seeded Charleston Southern 62-48 in the Big South Conference tournament quarterfinals on Thursday night.`\
-https://nytimes.com/aponline/2020/03/05/sports/ncaabasketball/bc-bkc-charleston-southern-radford.html?searchResultPosition=8
+**Mainland China Reports 143 New Confirmed Cases of Coronavirus on March 5**\
+`Mainland China had 143 new confirmed cases of coronavirus infections on Thursday, the country's National Health Commission said on Friday, up from 139 cases a day earlier. `\
+https://nytimes.com/reuters/2020/03/05/world/asia/05reuters-health-coronavirus-china-toll.html?searchResultPosition=8
 
-**Sale Has Strained Elbow, Pitching-Needy Red Sox Sign McHugh**\
-`Chris Sale tried to make the best of the latest diagnosis on his left elbow. The Boston Red Sox star won't need Tommy John surgery — for now, anyway.`\
-https://nytimes.com/aponline/2020/03/05/sports/baseball/ap-bbo-spring-training-rdp.html?searchResultPosition=9
+**Pfizer Weighs Working With BioNTech on Potential Coronavirus Vaccine: R&D Head**\
+`Pfizer Inc is considering a collaboration with German drugmaker BioNTech SE to develop vaccines for the coronavirus using BioNTech's mRNA-based drug development platform, Pfizer's R&D head told Reuters on Thursday.`\
+https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-health-coronavirus-pfizer.html?searchResultPosition=9
 
-**As Coronavirus Spreads, Olympics Face Ticking Clock and a Tough Call**\
-`During a conference call with the World Health Organization last week, sports federations discussed holding the Tokyo Games without fans.`\
-https://nytimes.com/2020/03/05/sports/olympics/coronavirus-tokyo.html?searchResultPosition=10
+**Chinese Province Reports 11 New Virus Cases From Iran Flights: State Media**\
+`The northwestern Chinese province of Gansu reported 11 new confirmed coronavirus patients, all of whom entered China on commercial flights from Iran, according to state media.`\
+https://nytimes.com/reuters/2020/03/05/world/middleeast/05reuters-health-coronavirus-china-iran.html?searchResultPosition=10
 
