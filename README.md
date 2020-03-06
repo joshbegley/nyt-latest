@@ -1,20 +1,20 @@
-**Virginia Lawmakers Send 'Historic' Energy Bill to Governor**\
-`Virginia lawmakers gave final passage Friday to a sweeping energy bill that would overhaul how the state's utilities generate electricity, a measure environmental groups and other renewable energy advocates considered a historic step toward addressing climate change. `\
-https://nytimes.com/aponline/2020/03/06/us/ap-us-virginia-renewable-energy.html?searchResultPosition=6
+**Dixie Chicks’ Fiery Return, and 10 More New Songs**\
+`Hear tracks by Jarvis Cocker, Diet Cig, Blueface, Lauv and others.`\
+https://nytimes.com/2020/03/06/arts/music/playlist-dixie-chicks-lauv-bts-blueface.html?searchResultPosition=6
 
-**How to Prepare Your Home and Family, if New Virus Spreads**\
-`As the new coronavirus keeps turning up in more places, health experts say it's wise to prepare for wider spread. But people shouldn't panic or hoard large amounts of supplies, they stress. `\
-https://nytimes.com/aponline/2020/03/06/business/bc-us-virus-outbreak-home-preparation.html?searchResultPosition=7
+**U.S. Telehealth Companies Brace for Demand Spike as Coronavirus Spread Accelerates**\
+`The U.S. telehealth industry, including market leader Teladoc Health Inc, is preparing for a surge in demand as public health officials aiming to contain the fast-spreading new coronavirus encourage use of alternatives to clinic visits and patients seek to avoid public spaces.  `\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-telehealth.html?searchResultPosition=7
 
-**Exclusive: StanChart Says CEO Winters Will Stay to Execute Current Strategy**\
-`Standard Chartered Chief Executive Bill Winters is expected to stay at the bank until the conclusion of its current strategy, its Chairman Jose Vinals said in an internal memo seen by Reuters on Friday.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-stanchart-ceo-exclusive.html?searchResultPosition=8
+**Morgan Stanley Shifts Staff to London Heathrow Site to Counter Virus: Sources**\
+`Morgan Stanley is shifting part of its London-based sales and trading staff to a secondary site near Heathrow airport to ensure its trading desks can operate smoothly through the coronavirus outbreak, two sources familiar with the matter said.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-morgan-stanley.html?searchResultPosition=8
 
-**Chinese Province Reports 17 New Coronavirus Infections Imported From Iran**\
-`The northwestern Chinese province of Gansu has confirmed 17 new coronavirus cases imported from Iran, bringing the total imported cases to 28, the province's health authorities said late on Friday.`\
-https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-china-gansu.html?searchResultPosition=9
+**Saudi Energy Minister Says He Will 'Keep You Wondering' on Oil Output**\
+`Saudi Arabia's energy minister said on Friday he would "keep you wondering" when asked if the kingdom could raise oil production after the collapse of an OPEC+ deal on output restraint.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-opec-meeting-saudi.html?searchResultPosition=9
 
-**$2 Billion Needed to Develop COVID-19 Shot, Says Epidemic Response Group**\
-`A global coalition set up to fight epidemic diseases issued a call on Friday for $2 billion to support the development of a vaccine against the new coronavirus that is causing COVID-19 infections around the world. `\
-https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-vaccines.html?searchResultPosition=10
+**Military to Be Sent to Border Before Supreme Court’s ‘Remain in Mexico’ Ruling**\
+`Customs and Border Protection said the deployment of 160 troops was in response to crowds of migrants that rushed the border last week.`\
+https://nytimes.com/2020/03/06/us/politics/remain-in-mexico-military.html?searchResultPosition=10
 
