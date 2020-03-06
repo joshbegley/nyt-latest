@@ -1,36 +1,36 @@
+**Pope Accepts Resignation of Cardinal Barbarin Amid Sex Abuse Case**\
+`Pope Francis has accepted the resignation of French cardinal Philippe Barbarin who had been caught up in a sex abuse case, the archbishop of Reims said in a statement.`\
+https://nytimes.com/reuters/2020/03/06/technology/06reuters-church-abuse-france.html?searchResultPosition=2
+
+**Sweden Advises Against Non-Essential Travel to Northern Italy Due to Coronavirus**\
+`Sweden's Foreign Ministry on Friday said it was advising against non-essential travels to nine regions in Northern Italy until further notice in response to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-sweden-flights.html?searchResultPosition=3
+
+**South Korea Says to Suspend Visa Waivers, Existing Visas for Japan: Foreign Ministry**\
+`South Korea said on Friday it will halt visa waivers for Japan in response to travel restrictions imposed by Tokyo, as coronavirus containment measures ignited a diplomatic row between the two Asian nations.`\
+https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-southkorea-travel.html?searchResultPosition=4
+
+**For Special-Needs Kids, New Jersey Rabbi Offers Chance of a 'LifeTown'**\
+`Looking out of his office window, Rabbi Zalman Grossbaum finds it hard to get work done as he watches kids enjoying the miniature town he built for them.`\
+https://nytimes.com/reuters/2020/03/06/us/06reuters-new-jersey-special-needs.html?searchResultPosition=5
+
+**Man Gets Probation for Tossing Water on Iowa Rep. King**\
+`A Colorado man who threw a cup of water on Iowa Congressman Steve King has been sentenced to two years of probation.`\
+https://nytimes.com/aponline/2020/03/06/us/ap-us-water-on-congressman-charges.html?searchResultPosition=6
+
+**In Las Vegas, the Home-Style Pizza is an Everything Pie**\
+`The city has developed a thriving pizza scene, embracing the influence of outsiders who bring hometown ideas to a city without a pizza style of its own.`\
+https://nytimes.com/2020/03/06/travel/las-vegas-pizza.html?searchResultPosition=7
+
+**Iran Says Coronavirus Toll Jumps by 17 With 1,000-Plus New Infections**\
+`Iran's death toll from coronavirus infections jumped on Friday to 124, as 17 died over the past 24 hours and more than 1,000 were additionally diagnosed with the disease, a health ministry spokesman said in Tehran.`\
+https://nytimes.com/reuters/2020/03/06/world/middleeast/06reuters-health-coronavirus-iran.html?searchResultPosition=8
+
+**Five Wounded in Suicide Blast Near U.S. Embassy in Tunis: Local Radio**\
+`An attack near the U.S. embassy in Tunisia on Friday was carried out by a man on a motorike who blew himself up and wounded five police, local radio reported. `\
+https://nytimes.com/reuters/2020/03/06/world/africa/06reuters-tunisia-security-blast-injured.html?searchResultPosition=9
+
 **Coronavirus Fraud: UK Victims Lose 800,000 Pounds in Scams**\
 `Victims in the United Kingdom have lost more than 800,000 pounds  ($1 million) to coronavirus-linked scams since last month, with criminals tricking fearful people who wanted to buy protective masks, police said on Friday.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-britain-fraud.html?searchResultPosition=2
-
-**'Left to the Dogs': Migrants at Turkey-Greece Border Lose Hope**\
-`When Sawsan al-Musawa heard last week that President Tayyip Erdogan had opened Turkey's borders for migrants to cross into Europe, the Syrian mother of four left a refugee camp in eastern Turkey and headed west to the Greek border.`\
-https://nytimes.com/reuters/2020/03/06/world/06reuters-syria-security-turkey-migrants.html?searchResultPosition=3
-
-**Nokia Draws $560 Million R&D Loan for 5G**\
-`Finnish telecoms equipment maker Nokia drew a 500 million euro ($561 million) loan last month to help it to accelerate development of 5G technology, its annual report shows.`\
-https://nytimes.com/reuters/2020/03/06/technology/06reuters-nokia-loan.html?searchResultPosition=4
-
-**Erdogan Says Military Posts in Syria's Idlib Will Stand After Ceasefire**\
-`Turkey's military observation posts in Syria's Idlib will retain their current status with the Russian-Turkish ceasefire deal, President Tayyip Erdogan was cited as saying by his office on Friday, adding the agreement laid the groundwork for the normalization of the region.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-syria-security-turkey-russia.html?searchResultPosition=5
-
-**Silk Roadblock: Coronavirus Exposes Nigeria's Reliance on China**\
-`Yetunde Oluyide has run a gift shop in bustling Lagos for nearly a decade, but with coronavirus curtailing imports of Chinese goods, she is losing more than 2 million naira ($5,555) a month.`\
-https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-health-coronavirus-nigeria-economy.html?searchResultPosition=6
-
-**Activist Fund KCGI Says Delta Should Abstain From Vote on Control Over Korean Air**\
-`Delta Air Lines Inc should abstain from voting at an upcoming shareholders meeting that is likely to decide who leads Korean Air Lines as the U.S. firm has pledged to be a passive investor, the top shareholder in the Korean carrier's parent firm said.`\
-https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-korean-air-management-delta-air.html?searchResultPosition=7
-
-**SAS Cutting Capacity After Weathers Coronavirus in February**\
-`Sweden-based airline SAS said the coronavirus outbreak had a limited impact on its traffic in February, but repeated on Friday that it was cutting routes and capacity as demand drops.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-sas-traffic.html?searchResultPosition=8
-
-**Norwegian Air Plummets on Liquidity Worries as Virus Spreads**\
-`Shares in Norwegian Air Shuttle lost more than a quarter of their value on Friday as investors worried about the airline's ability to cope with a dramatic drop in travel demand as the coronavirus spreads around the globe.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-norwegian-air.html?searchResultPosition=9
-
-**Finnair Sees Passenger Demand Drop in February as Coronavirus Hits Asian Traffic**\
-`Finnair said on Friday it saw demand, measured in revenue passenger kilometers (RPK), drop 1.7% in February from a year earlier as the coronavirus outbreak deterred Asian travelers.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-finnair-traffic.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-britain-fraud.html?searchResultPosition=10
 
