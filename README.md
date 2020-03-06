@@ -1,20 +1,20 @@
+**Florida Lobster Got a Break on China Tariffs. Then Came Coronavirus.**\
+`China, the biggest customer, took aim at the U.S. catch as the trade war escalated. Relief came this week, but now no one there is buying.`\
+https://nytimes.com/2020/03/06/business/economy/lobster-florida-china-virus.html?searchResultPosition=6
+
+**How I Came to Cook in French**\
+`For Melissa Clark, the food she grew up eating in Brooklyn, and the French cuisine her parents adored, laid the foundation for how she still cooks.`\
+https://nytimes.com/2020/03/06/dining/dinner-in-french-book-melissa-clark.html?searchResultPosition=7
+
+**Ex-Chicago Official Indicted for Allegedly Bribing Lawmaker**\
+`A federal grand jury has indicted a former Chicago deputy aviation commissioner on a bribery charge for allegedly paying a former state senator at least $5,000 to support a road project.`\
+https://nytimes.com/aponline/2020/03/06/us/ap-us-illinois-lawmaker-public-corruption.html?searchResultPosition=8
+
+**With Spreading Virus Comes Fears -- and Lots of Stockpiling**\
+`As an Arizonan, Gregory Cohen has never had to stock up ahead of a hurricane or other natural disaster.`\
+https://nytimes.com/aponline/2020/03/06/business/bc-us-virus-outbreak-stockpiling.html?searchResultPosition=9
+
 **UCLA on Seven-Game Winning Streak and Leading Pac-12 Race**\
 `UCLA is the hottest college basketball team in the country after failing to create a ripple in the early months of the season.`\
-https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/ap-bkc-ucla-rising.html?searchResultPosition=6
-
-**Henri Richard, Hall of Fame Center for Montreal Canadiens, Dies at 84**\
-`Richard played on 11 Stanley Cup-winning teams — five of them with his illustrious brother Maurice — and holds the record for game appearances with the Canadiens.`\
-https://nytimes.com/2020/03/06/sports/hockey/henri-richard-dead.html?searchResultPosition=7
-
-**With ‘The Trade,’ Matthew Heineman Puts a Human Face on a Divisive Issue**\
-`The Oscar-nominated director talked about Season 2 of his Showtime documentary series, which explores the Central American migrant crisis from both sides of the border.`\
-https://nytimes.com/2020/03/06/arts/television/trade-matthew-heineman-showtime.html?searchResultPosition=8
-
-**Shortcuts We Love**\
-`Dawn Perry’s recipe is packed with flavor, croutons and loads of greens.`\
-https://nytimes.com/2020/03/06/dining/shortcuts-we-love.html?searchResultPosition=9
-
-**Inside the 3 Days That Remade the Democratic Primary**\
-`At Mike Bloomberg’s midtown Manhattan campaign headquarters, a team of pollsters and analysts churned out multiple tranches of data each day on the state of the Democratic race.`\
-https://nytimes.com/aponline/2020/03/06/us/politics/ap-us-election-2020-bidens-comeback.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/ap-bkc-ucla-rising.html?searchResultPosition=10
 
