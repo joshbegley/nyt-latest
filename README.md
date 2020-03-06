@@ -1,20 +1,20 @@
+**Two Attendees at Pro-Israel Conference Positive for Virus**\
+`Two people who attended the American Israel Public Affairs Committee conference in Washington earlier this week have tested positive for the coronavirus, the group tweeted Friday.`\
+https://nytimes.com/aponline/2020/03/06/us/politics/ap-us-virus-outbreak-aipac.html?searchResultPosition=6
+
+**Stocking Your Pantry, the Smart Way**\
+`Here’s what you really need to keep on hand.`\
+https://nytimes.com/2020/03/06/dining/how-to-stock-a-pantry.html?searchResultPosition=7
+
+**Coronavirus Briefing: What Happened Today**\
+`Officials say a shortage of test kits has impeded their efforts to contain the outbreak.`\
+https://nytimes.com/2020/03/06/briefing/coronavirus-news-updates-covid-19.html?searchResultPosition=8
+
+**A Baseball Radical Infiltrates the Reds. They Couldn’t Be Happier.**\
+`Kyle Boddy has helped pitchers for years as a baseball outsider. He’s gone mainstream, but he’s not wearing a uniform — yet.`\
+https://nytimes.com/2020/03/06/sports/baseball/kyle-boddy-driveline-reds.html?searchResultPosition=9
+
 **Coronavirus, Bernie Sanders, Woody Allen: Your Friday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/03/06/briefing/coronavirus-bernie-sanders-woody-allen.html?searchResultPosition=6
-
-**Weather Service: At Least 6 Tornadoes Hit Middle Tennessee**\
-`At least six tornadoes hit middle Tennessee during a series of storms early this week that killed 24 people and caused massive damage, the National Weather Service in Nashville confirmed Friday. `\
-https://nytimes.com/aponline/2020/03/06/us/ap-us-severe-weather-tennessee.html?searchResultPosition=7
-
-**FEC Reviews Father's Funds Funneled to Kansas Rep. Watkins**\
-`The Federal Election Commission is examining now-refunded campaign contributions that Kansas Rep. Steve Watkins’ father funneled through the freshman Republican congressman’s sisters and others during the 2018 campaign.`\
-https://nytimes.com/aponline/2020/03/06/us/politics/ap-us-election-2020-house-kansas-watkins.html?searchResultPosition=8
-
-**Mom of Missing Kids Gets Bond Reduced to $1 Million in Idaho**\
-`A judge on Friday reduced bail to $1 million for the mother of two missing children after he lawyer contended at her first hearing in Idaho that the amount had been set too high because of media attention.`\
-https://nytimes.com/aponline/2020/03/06/us/ap-us-missing-kids-mom-arrested.html?searchResultPosition=9
-
-**Virginia Lawmakers Approve Redistricting Measure**\
-`Virginia lawmakers approved a proposed change to the state's constitution on Friday that supporters said would curb political gerrymandering, prompting an outcry by some Democrats who called it harmful to African Americans.`\
-https://nytimes.com/aponline/2020/03/06/us/ap-us-virginia-redistricting.html?searchResultPosition=10
+https://nytimes.com/2020/03/06/briefing/coronavirus-bernie-sanders-woody-allen.html?searchResultPosition=10
 
