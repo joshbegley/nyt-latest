@@ -1,20 +1,20 @@
+**Ex-Indiana Police Officer Justified in Black Man's Killing**\
+`A special prosecutor announced Friday that a white former South Bend police officer was justified in the fatal shooting of an African American man last summer and that he won't be charged in the killing that roiled then-Mayor Pete Buttigieg's presidential campaign.`\
+https://nytimes.com/aponline/2020/03/06/us/ap-us-buttigieg-police-shooting.html?searchResultPosition=6
+
+**The Networks That Ruled Earth’s Ancient Seas**\
+`Fossils of rangeomorphs, which dominated the oceans more than a half-billion years ago, show the thin threads that connected them.`\
+https://nytimes.com/2020/03/06/science/fossils-rangeomorphs-networks.html?searchResultPosition=7
+
+**Brewers Sign Long-Term Deal With Ex-NL MVP Christian Yelich**\
+`The Milwaukee Brewers have reached a deal Christian Yelich that will keep the former National League Most Valuable Player in their lineup for several more years.`\
+https://nytimes.com/aponline/2020/03/06/sports/baseball/ap-bbn-brewers-yelich.html?searchResultPosition=8
+
+**Congressional Panel Says Boeing Has 'Culture of Concealment'**\
+`A congressional committee investigating Boeing said Friday that a “culture of concealment” at the company and poor oversight by federal regulators contributed to two deadly crashes involving the grounded 737 Max.`\
+https://nytimes.com/aponline/2020/03/06/business/bc-us-boeing-plane-congress.html?searchResultPosition=9
+
 **Golf's Famous 'Hinkle Tree' From '79 Open Uprooted by Wind**\
 `A tree that appeared overnight during the 1979 U.S. Open to become a part of golf lore has met its end.`\
-https://nytimes.com/aponline/2020/03/06/sports/golf/ap-glf-golfs-famous-tree.html?searchResultPosition=6
-
-**US Sending Military Police to Two Border Crossings**\
-`The U.S. government says it is sending 160 military police and engineers to two official border crossings to deal with asylum seekers in case a federal appeals court strikes down one of the Trump administration's key policies.`\
-https://nytimes.com/aponline/2020/03/06/us/ap-us-immigration-military-deployment.html?searchResultPosition=7
-
-**Kansas Investigating Massage Therapist for Female Athletes**\
-`A man recently charged with a child sex crime provided massage services to some University of Kansas women's athletic teams since 2015, the school's chancellor and athletics director said.`\
-https://nytimes.com/aponline/2020/03/06/sports/ap-us-massage-therapist-kansas-women-athletes.html?searchResultPosition=8
-
-**After Inquiry, Plácido Domingo Withdraws from London Performances**\
-`It was the latest indication that the opera star’s support in Europe, which stuck by him after allegations of sexual harassment, is weakening.`\
-https://nytimes.com/2020/03/06/arts/music/placido-domingo-london.html?searchResultPosition=9
-
-**HuffPost’s Top Editor Leaves for a Podcasting Company**\
-`Lydia Polgreen, who has been the editor in chief at the digital news site since 2016, is stepping down for a role at Gimlet Media.`\
-https://nytimes.com/2020/03/06/business/polgreen-leaves-huffpost-for-gimlet.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/06/sports/golf/ap-glf-golfs-famous-tree.html?searchResultPosition=10
 
