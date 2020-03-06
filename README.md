@@ -15,7 +15,7 @@ https://nytimes.com/2020/03/06/world/europe/us-embassy-tunisia-bomber.html?searc
 https://nytimes.com/aponline/2020/03/06/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=5
 
 **Report: Explosion Near US Embassy in Tunisia Wounds 5 Police**\
-`Tunisian media are reporting that two people on a motorcycle set off a blast near the U.S. Embassy in the Tunisian capital, Tunis. `\
+`Tunisian media reported Friday that two people on a motorcycle set off a blast near the U.S. Embassy in the Tunisian capital, Tunis. `\
 https://nytimes.com/aponline/2020/03/06/world/middleeast/ap-ml-tunisia-explosion.html?searchResultPosition=6
 
 **Great Barrier Reef Enters Crucial Period in Coral Bleaching**\
