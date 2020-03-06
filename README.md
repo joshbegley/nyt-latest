@@ -1,36 +1,36 @@
+**‘Spenser Confidential’ Review: Good Guy P.I.**\
+`The movie may be an easily forgettable action comedy, but as a Mark Wahlberg vehicle it is also easily watchable.`\
+https://nytimes.com/2020/03/06/movies/spenser-confidential-review.html?searchResultPosition=2
+
+**How a Positive Thinker Took Swarthmore From Nowhere to No. 1**\
+`Coach Landry Kosmalski told his recruits that the lowly Division III basketball team would become one of the nation’s best. “I’d say it’s come true,” one of his seniors said.`\
+https://nytimes.com/2020/03/06/sports/swarthmore-basketball.html?searchResultPosition=3
+
+**The Corner of N.Y.C. That’s Overrun by Deer, Turkeys and Feral Cats**\
+`Some Staten Island residents would like to hunt deer to reduce their numbers, but the city is pushing a vasectomy program.`\
+https://nytimes.com/2020/03/06/nyregion/Staten-island-deer-wild-turkeys.html?searchResultPosition=4
+
+**What’s on TV Friday: ‘Hillary’ and ‘Spenser Confidential’**\
+`A four-part documentary about Hillary Clinton debuts on Hulu. And an action-comedy with Mark Wahlberg hits Netflix.`\
+https://nytimes.com/2020/03/06/arts/television/whats-on-tv-friday-hillary-and-spenser-confidential.html?searchResultPosition=5
+
+**Mall Rats**\
+`Do you enjoy going to the mall?`\
+https://nytimes.com/2020/03/06/learning/mall-rats.html?searchResultPosition=6
+
+**Davis Cup Qualifier: Australia Leads Brazil 2-0 After Day 1**\
+`John Millman came from a set and break down to beat Thiago Seyboth Wild 4-6, 7-6 (0), 6-2 to give Australia a 2-0 lead over Brazil after the opening singles in their Davis Cup qualifier on Friday.`\
+https://nytimes.com/aponline/2020/03/06/sports/tennis/ap-ten-australia-brazil.html?searchResultPosition=7
+
+**Russia-Turkey Ceasefire Will Allow More EU Aid for Idlib, EU's Top Diplomat Says**\
+`The EU's top diplomat, Josep Borrell, on Friday welcomed a ceasefire deal between Moscow and Ankara to halt the bombing of Syria's Idlib region, saying the bloc could now step up help for suffering civilians. `\
+https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-syria-security-eu-aid.html?searchResultPosition=8
+
 **AstraZeneca's Combo Cancer Treatment Fails to Meet Late-Stage Study Main Goal**\
 `AstraZeneca Plc said on Friday its combination treatment for a form of bladder cancer failed to meet the main goal of improving overall survival in patients with an advanced form of the disease in a late-stage study.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-astrazeneca-study.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-astrazeneca-study.html?searchResultPosition=9
 
 **U.N. Should Try for Idlib No-Fly Zone After Russia-Turkey Ceasefire, Netherlands Says**\
 `A ceasefire deal between Moscow and Ankara in Syria's Idlib region needs to be cemented with a no-fly zone to stop any further bombings of hospitals, Dutch Foreign Minister Stef Blok said on Friday.`\
-https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-syria-security-eu-netherlands.html?searchResultPosition=3
-
-**NBA Roundup: Clippers Win Sixth Straight**\
-`Kawhi Leonard scored 25 points, Ivica Zubac and Montrezl Harrell posted double-doubles, and the visiting Los Angeles Clippers drubbed the Houston Rockets 120-105 on Thursday night.`\
-https://nytimes.com/reuters/2020/03/06/sports/basketball/06reuters-basketball-nba-roundup.html?searchResultPosition=4
-
-**Attack on Ceremony in Afghan Capital; Political Leader Abdullah Unharmed-Spokesman**\
-`An attack took place at a ceremony in the Afghan capital of Kabul on Friday where a top Afghan political leader, Abdullah Abdullah, was present but he escaped unharmed, his spokesman said.`\
-https://nytimes.com/reuters/2020/03/06/world/asia/06reuters-afghanistan-attack.html?searchResultPosition=5
-
-**Businessman, Ex-Congressman Amory Houghton Jr. Dead at 93**\
-`Amory Houghton Jr., who led his family's glass company in upstate New York and later spent nearly two decades in Congress as a Republican with a reputation for breaking with his party, died Wednesday. He was 93. `\
-https://nytimes.com/aponline/2020/03/06/business/ap-us-obit-amory-houghton.html?searchResultPosition=6
-
-**Oil Drops on Demand Doubts, Fears That Producer Output Cuts Not Yet Agreed**\
-`Oil slid 1% on Friday as worries about global oil demand and economic growth slowdown caused by the coronavirus outbreak were heightened by concern over non-OPEC crude producers not yet having agreed to cut output further to support prices.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-global-oil.html?searchResultPosition=7
-
-**Timeline: India Central Bank Takes Control of Bad Loan-Burdened Yes Bank**\
-`India's central bank took control of the country's fifth-largest private sector lender Yes Bank on Thursday and imposed limits on withdrawals, spreading confusion and fear among account holders.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-yes-bank-india-timeline.html?searchResultPosition=8
-
-**Abu Dhabi Crown Prince Talks Coronavirus Cooperation With Bill Gates**\
-`The crown prince of the oil-rich emirate of Abu Dhabi tweeted on Friday that he had discussed cooperation in fighting the new coronavirus with U.S. billionaire philanthropist Bill Gates.`\
-https://nytimes.com/reuters/2020/03/06/world/middleeast/06reuters-health-coronavirus-emirates-gates.html?searchResultPosition=9
-
-**MH17 Families Hope Truth Emerges From Unprecedented Trial**\
-`United by grief across oceans and continents, families who lost loved ones when Malaysia Airlines Flight 17 was shot down in 2014 hope that a trial starting next week will finally deliver something that has remained elusive ever since: The truth.`\
-https://nytimes.com/aponline/2020/03/06/world/europe/ap-eu-netherlands-ukraine-plane.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-syria-security-eu-netherlands.html?searchResultPosition=10
 
