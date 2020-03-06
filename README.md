@@ -1,36 +1,36 @@
+**Ex-GOP US Rep Schock Says He's Gay, Regrets Anti-Gay Stances**\
+`Saying he would do more if he were in Congress today to support LGBTQ rights — which he opposed when he served — former Illinois U.S. Rep. Aaron Schock came out as gay Thursday in social media and web posts. `\
+https://nytimes.com/aponline/2020/03/05/us/ap-us-aaron-schock-gay-rights.html?searchResultPosition=2
+
+**Biden Looks to Expand Staff as Bloomberg Weighs How to Help Him**\
+`Joseph R. Biden Jr.’s team is eager to tap into the enormous pool of Democratic talent now available. Some support could come from Michael Bloomberg’s vast resources.`\
+https://nytimes.com/2020/03/05/us/politics/joe-biden-michael-bloomberg-2020.html?searchResultPosition=3
+
+**Commonwealth Observers Urge Guyana to Follow Procedures for Vote Count**\
+`Guyana must ensure that the tally of votes from this week's presidential election "properly follows legal steps" dictated by law, the Commonwealth Observer Group said on Thursday in a statement signed by its chairman, Owen Arthur.`\
+https://nytimes.com/reuters/2020/03/05/world/americas/05reuters-guyana-election-observer.html?searchResultPosition=4
+
+**Elizabeth Warren and the Curse of ‘Electability’**\
+`There are many reasons for Warren dropping out. But a key one may have been the near-constant refrains about her “electability.”`\
+https://nytimes.com/2020/03/05/us/warren-presidential-race-2020.html?searchResultPosition=5
+
+**Brazil's Bolsonaro to Meet Trump on Saturday: Sources**\
+`Brazil's right-wing President Jair Bolsonaro is preparing to meet U.S. President Donald Trump on Saturday at the Mar-a-Lago resort in Florida, four people familiar with the Brazilian leader's travel plans told Reuters.`\
+https://nytimes.com/reuters/2020/03/05/world/americas/05reuters-brazil-politics-usa.html?searchResultPosition=6
+
+**Brazil Pulls Diplomats From Venezuela Embassy**\
+`Brazil's right-wing government has begun to pull its diplomats out of the embassy and consulate in Caracas as it moves to downgrade relations with Venezuela's leftist government.`\
+https://nytimes.com/reuters/2020/03/05/world/americas/05reuters-venezuela-brazil.html?searchResultPosition=7
+
 **‘We Anticipate She Has the Coronavirus. We Do Not Anticipate Her Fighting.’**\
 `Cut off from their relatives inside a virus-stricken nursing center, families are frantically searching for help and basic information.`\
-https://nytimes.com/2020/03/05/us/coronavirus-nursing-home-relatives.html?searchResultPosition=2
+https://nytimes.com/2020/03/05/us/coronavirus-nursing-home-relatives.html?searchResultPosition=8
 
 **Piercy Loses 2 Endorsements Over Homophobic Instagram Posts**\
 `Four-time PGA Tour winner Scott Piercy lost two endorsement deals Thursday for sharing a homophobic meme poking fun at Democratic presidential candidate Pete Buttigieg and referencing far-right conspiracy theory QAnon.`\
-https://nytimes.com/aponline/2020/03/05/sports/golf/ap-glf-piercy-posts.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/03/05/sports/golf/ap-glf-piercy-posts.html?searchResultPosition=9
 
 **Sweeping Renewable Energy Bill Poised for Final Passage**\
 `A sweeping energy bill that supporters said would make Virginia a national leader in addressing climate change passed the state House Thursday amid warnings by critics that it will carry a steep price tag.`\
-https://nytimes.com/aponline/2020/03/05/business/bc-us-virginia-renewable-energy.html?searchResultPosition=4
-
-**As Rangers’ Future Takes Shape, Playoffs Come Into View**\
-`After a February surge, the Rangers young core finds itself within striking distance of the team’s first postseason berth since 2017.`\
-https://nytimes.com/2020/03/05/sports/hockey/rangers-playoff-chances.html?searchResultPosition=5
-
-**When a Burning Passion on the Left Meant Violence**\
-`Fifty years ago, a deadly explosion in Greenwich Village forced many radicals like me to confront our warped sense of morality.`\
-https://nytimes.com/2020/03/05/opinion/weathermen-greenwich-village-explosion.html?searchResultPosition=6
-
-**Tracking Trump’s Claims on the Threat From Coronavirus**\
-`President Trump has made a series of rosy — and sometimes false — statements on the virus and the U.S. response.`\
-https://nytimes.com/2020/03/05/us/politics/trump-coronavirus-fact-check.html?searchResultPosition=7
-
-**Guyana Opposition Leader Accuses Government of Fraud in Presidential Vote**\
-`Guyana's opposition leader Bharrat Jagdeo on Thursday accused the nation's election authority of committing fraud in this week's presidential vote, saying the group had inflated the vote count to favor the incumbent candidate, President David Granger.`\
-https://nytimes.com/reuters/2020/03/05/world/americas/05reuters-guyana-election.html?searchResultPosition=8
-
-**U.S. Oil Boom vs Europe's Renewables Focus? Big Oil's Gap Widens -- in Words**\
-`Exxon and Chevron boasted to investors this week about booming U.S. oil production, illustrating how the gap has widened - at least in words - between top American oil and gas companies and their European rivals over efforts to transition to clean energy and fight climate change.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-exxon-mobil-chevron-environment.html?searchResultPosition=9
-
-**UK's Raab Hopeful for Yemen War De-escalation This Year**\
-`British Foreign Secretary Dominic Raab, criticized by some at home for British arms sales to Saudi Arabia, said on Thursday he was hopeful for a de-escalation this year in Yemen's five-year-old civil war, in which London backs the Saudi-led coalition.`\
-https://nytimes.com/reuters/2020/03/05/world/europe/05reuters-britain-diplomacy.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/05/business/bc-us-virginia-renewable-energy.html?searchResultPosition=10
 
