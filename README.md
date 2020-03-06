@@ -1,4 +1,4 @@
-**Virus Kills 124 People Amid 4,747 Confirmed Cases in Iran**\
+**Iran Warns It Could Use 'Force' to Halt Travel Amid Virus**\
 `Iran said Friday the new coronavirus has killed 124 people amid 4,747 confirmed cases in the Islamic Republic as authorities warned they may use “force” to limit travel between cities. `\
 https://nytimes.com/aponline/2020/03/06/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=2
 
