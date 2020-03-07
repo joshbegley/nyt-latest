@@ -1,20 +1,20 @@
-**Hatton and Kang Lead After 36 Holes at Bay Hill, McIlroy Two Back**\
-`Tyrrell Hatton and Sung Kang took the second-round lead while Rory McIlroy stayed in contention at a windswept Arnold Palmer Invitational in central Florida on Friday.`\
-https://nytimes.com/reuters/2020/03/06/sports/golf/06reuters-golf-palmer.html?searchResultPosition=6
+**Beverly Sparks Wolfpack in Win Against Wake Forest**\
+`DJ Funderburk scored 19 points to help North Carolina State beat Wake Forest 84-64 on Friday night.`\
+https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/bc-bkc-wake-forest-nc-state.html?searchResultPosition=6
 
-**NBA Fines Mavs Owner Cuban $500K After Latest Rant**\
-`The NBA fined Dallas Mavericks owner Mark Cuban $500,000 on Friday for his criticism of league officials following the team's loss to the Atlanta Hawks on Feb. 22.`\
-https://nytimes.com/reuters/2020/03/06/sports/basketball/06reuters-basketball-nba-dal-cuban-fine.html?searchResultPosition=7
+**Our ‘Pursuit of Happiness’ Is Killing the Planet**\
+`We need to strike a new balance between our private pleasures and our collective survival.`\
+https://nytimes.com/2020/03/06/opinion/our-pursuit-of-happiness-is-killing-the-planet.html?searchResultPosition=7
 
-**UK Calls in Its Sports Bodies, Broadcasters to Discuss Coronavirus Plans: Sources**\
-`The British government has called a meeting with its sports authorities and broadcasters to discuss how events could be staged without fans present if the coronavirus outbreak escalates, two people familiar with the matter said.`\
-https://nytimes.com/reuters/2020/03/06/sports/soccer/06reuters-health-coronavirus-britain-sport.html?searchResultPosition=8
+**Saudi Arabia Detains at Least Two Senior Princes, Including King's Brother: Sources**\
+`Saudi Arabia has detained two senior members of the Saudi royal family including Prince Ahmed bin Abdulaziz, a younger full brother of King Salman and uncle of the crown prince, two sources with knowledge of the matter said.`\
+https://nytimes.com/reuters/2020/03/06/world/middleeast/06reuters-saudi-detentions-princes.html?searchResultPosition=8
 
-**Formula One Scraps Rule Limiting Driver Helmet Designs**\
-`Formula One has scrapped a rule which limited the number of  different helmet designs a driver could wear during the course of a season.`\
-https://nytimes.com/reuters/2020/03/06/sports/autoracing/06reuters-motor-f1-helmets.html?searchResultPosition=9
+**South Korea Passes Bill Limiting Softbank-Backed Ride-Hailing Service Tada**\
+`South Korea's parliament on late Friday passed a controversial bill to limit ride-hailing service Tada, dealing a blow to a company that has been a smash hit since its launch in late 2018 but faced a backlash from taxi drivers angry over new mobility services.      `\
+https://nytimes.com/reuters/2020/03/06/technology/06reuters-socar-taxi.html?searchResultPosition=9
 
-**Apple Asks Silicon Valley Employees to Work From Home as Virus Spreads**\
-`Apple Inc on Friday asked employees at its Silicon Valley headquarters to work from home if possible as a "precaution," a spokesman confirmed to Reuters. `\
-https://nytimes.com/reuters/2020/03/06/technology/06reuters-health-coronavirus-apple.html?searchResultPosition=10
+**UK Defense Committee to Probe Security of 5G Network on Huawei Concerns**\
+`Britain's parliamentary defense committee will investigate the security of the country's 5G mobile network, the group of lawmakers said on Friday, amid continued concerns about the role of Chinese company Huawei [HWT.UL].`\
+https://nytimes.com/reuters/2020/03/06/technology/06reuters-britain-huawei.html?searchResultPosition=10
 
