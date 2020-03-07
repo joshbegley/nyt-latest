@@ -1,20 +1,20 @@
+**Ethiopian Investigators Set to Blame Boeing for Plane Crash: Bloomberg News**\
+`Ethiopian crash investigators have tentatively concluded that the crash of a Boeing Co 737 MAX last year was caused by the plane's design, Bloomberg News reported on Friday, citing a draft report being circulated to participants in the probe. `\
+https://nytimes.com/reuters/2020/03/07/business/06reuters-boeing-737max-ethiopia.html?searchResultPosition=6
+
+**Two U.S. Health Screeners at LAX Test Positive for Coronavirus: Internal Email**\
+`Two federal health screeners at Los Angeles International Airport have tested positive for the coronavirus, according to an email sent to their colleagues on Friday, which was seen by Reuters. `\
+https://nytimes.com/reuters/2020/03/07/us/06reuters-health-coronavirus-usa-lax.html?searchResultPosition=7
+
+**Murray St. Advances to OVC Title Game Beating Austin Peay**\
+`Tevin Brown scored 24 points and KJ Williams had a double-double and Murray State beat Austin Peay 73-61 in the semifinals of the Ohio Valley Conference Tournament on Friday.`\
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-ovc-austin-peay-murray-st.html?searchResultPosition=8
+
+**UAE Raises Virus Cases to 45, New Cases From 9 Nationalities**\
+`The United Arab Emirates reported 15 additional cases on Saturday of a new and fast-spreading virus, bringing the total number of infections in the country to 45.`\
+https://nytimes.com/aponline/2020/03/07/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=9
+
 **Coronavirus Found on Cruise Ship as More U.S. States Report Cases**\
 `Twenty-one people aboard a cruise ship that was barred from docking in San Francisco have tested positive for coronavirus, U.S. officials said on Friday, as eight more states reported their first cases of the fast-spreading respiratory disease.`\
-https://nytimes.com/reuters/2020/03/07/us/politics/07reuters-health-coronavirus-usa.html?searchResultPosition=6
-
-**U.S. Raises Travel Alert Levels for Azerbaijan, Turkmenistan Over Coronavirus**\
-`The U.S. State Department on Friday raised its alert level for travel to Azerbaijan, warning Americans to reconsider travel there due to a coronavirus outbreak and response measures implemented by the country's government.`\
-https://nytimes.com/reuters/2020/03/07/us/politics/06reuters-health-coronavirus-usa-azerbaijan-turkmenistan.html?searchResultPosition=7
-
-**South Korea Confirms 174 New Coronavirus Cases, Total to 6,767**\
-`South Korea's new confirmed coronavirus cases on Saturday rose by 174 from late Friday, taking the national tally to 6,767, the Korea Centers for Disease and Control and Prevention (KCDC) said.`\
-https://nytimes.com/reuters/2020/03/07/business/06reuters-health-coronavirus-south-korea.html?searchResultPosition=8
-
-**Coronavirus Concerns Stalls Cruise Ship Off California**\
-`Thousands of people were confined to a cruise ship circling in international waters off the San Francisco Bay Area Saturday after 21 passengers and crew members tested positive for the new coronavirus.`\
-https://nytimes.com/aponline/2020/03/07/us/ap-us-virus-outbreak-us.html?searchResultPosition=9
-
-**Coronavirus Live Updates: U.S. Outbreak Spreads as East Coast Sees Its First Deaths**\
-`Florida reported two deaths, bringing the toll in the United States to 17. The country has more than 300 confirmed infections.`\
-https://nytimes.com/2020/03/07/world/coronavirus-news.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/07/us/politics/07reuters-health-coronavirus-usa.html?searchResultPosition=10
 
