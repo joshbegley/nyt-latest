@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/03/07/world/asia/ap-as-thailand-judges-suicide
 `Teargas and smoke bombs were fired across Turkey's border with Greece on Saturday in a fresh flare up in tensions over the presence of migrants seeking access to European Union territory.`\
 https://nytimes.com/reuters/2020/03/07/world/europe/07reuters-syria-security-greece.html?searchResultPosition=7
 
-**The Latest: Nile Cruise Ship Under Quarantine in Luxor**\
+**The Latest: Nile Cruise Boat Under Quarantine in Luxor**\
 `The Latest on the coronavirus outbreak (all times local):`\
 https://nytimes.com/aponline/2020/03/07/business/ap-virus-outbreak-the-latest.html?searchResultPosition=8
 
