@@ -1,20 +1,20 @@
+**China May Be Beating the Coronavirus, at a Painful Cost**\
+`Beijing says its heavy-handed measures are working. Can other countries battling the outbreak learn from its efforts — or is the cure is worse than the disease?`\
+https://nytimes.com/2020/03/07/world/asia/china-coronavirus-cost.html?searchResultPosition=6
+
+**Retiring Into a Shaky Market? Think Long Term Anyway**\
+`Americans in their mid-60s could live nearly three more decades, research shows, so a healthy dose of stock in your portfolio is actually prudent now.`\
+https://nytimes.com/2020/03/07/your-money/retiring-stock-markets-investments.html?searchResultPosition=7
+
+**Tunisia Buries Officer Slain in Bombing Near US Embassy**\
+`By The Associated Press`\
+https://nytimes.com/aponline/2020/03/07/world/middleeast/ap-ml-tunisia-bombing.html?searchResultPosition=8
+
 **Variety: Cryptic Crossword**\
 `Ali Gascoigne pops over from across the pond with a cracker of a cryptic.`\
-https://nytimes.com/2020/03/07/crosswords/variety-cryptic-crossword.html?searchResultPosition=6
+https://nytimes.com/2020/03/07/crosswords/variety-cryptic-crossword.html?searchResultPosition=9
 
 **For Urban Poor, the Coronavirus Complicates Existing Health Risks**\
 `An outbreak could devastate low-income black and Latino communities that, even in the best of times, face serious medical challenges.`\
-https://nytimes.com/2020/03/07/us/coronavirus-minorities.html?searchResultPosition=7
-
-**First Lady Pushes Back Against Critics of Her Tennis Tweet**\
-`Melania Trump pushed back Saturday after photos she tweeted of herself overseeing a White House construction project generated an online backlash.`\
-https://nytimes.com/aponline/2020/03/07/us/politics/ap-us-melania-trump.html?searchResultPosition=8
-
-**Mud Houses Collapse in Heavy Rains Killing 17 in NW Pakistan**\
-`Heavy rains in northwest Pakistan caused scores of mud houses to collapse, killing at least 17 people, mostly children, and injuring over 30 others, a disaster management official said Saturday. `\
-https://nytimes.com/aponline/2020/03/07/world/asia/ap-as-pakistan-rains.html?searchResultPosition=9
-
-**U.S. Financial Regulators Start Contingency Planning as Virus Reaches Washington**\
-`U.S. financial regulators are preparing contingency arrangements, including travel restrictions and home-working, to ensure they can effectively oversee the financial markets as the coronavirus closes in on the U.S. capital.`\
-https://nytimes.com/reuters/2020/03/07/business/07reuters-health-coronavirus-usa-regulators.html?searchResultPosition=10
+https://nytimes.com/2020/03/07/us/coronavirus-minorities.html?searchResultPosition=10
 
