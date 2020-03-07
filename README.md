@@ -1,20 +1,20 @@
-**No. 7 Stanford Beats No. 14 Oregon State in Pac-12 Tourney**\
-`Kiana Williams scored 23 points to lead No. 7 Stanford past No. 14 Oregon State 68-56 in the Pac-12 Tournament quarterfinals on Friday night.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkw-t25-p12-oregon-st-stanford.html?searchResultPosition=6
+**Afghanistan's Confirmed Coronavirus Cases Rises to Four-Health Ministry Spokesman**\
+`Afghanistan's health ministry said on Saturday that the number of confirmed case of coronavirus in the country had jumped to four. `\
+https://nytimes.com/reuters/2020/03/07/world/asia/07reuters-healthcare-coronavirus-afghanistan.html?searchResultPosition=6
 
-**Edwards, Pepperdine Beat Santa Clara 84-73 in WCC Tourney**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-wcc-santa-clara-pepperdine.html?searchResultPosition=7
+**Woods Says It Was Tough Decision to Skip Players Championship**\
+`Tiger Woods is "simply not ready" to play next week's Players Championship in Florida, he said on Friday of his decision to skip the prestigious $15 million event due to a back issue.`\
+https://nytimes.com/reuters/2020/03/07/sports/golf/07reuters-golf-players.html?searchResultPosition=7
 
-**LeBrilliant: James' 37 Points Lead Lakers Past Bucks 113-103**\
-`LeBron James had 37 points, eight rebounds and seven assists to win his showdown with fellow All-Star Game captain Giannis Antetokounmpo, and the Los Angeles Lakers beat the Milwaukee Bucks 113-103 on Friday night in a clash of the NBA's conference leaders.`\
-https://nytimes.com/aponline/2020/03/07/sports/basketball/bc-bkn-bucks-lakers.html?searchResultPosition=8
+**China Says Reports It Fired Laser at U.S. Plane Last Month Untrue**\
+`China said media reports it had fired a laser at a United States surveillance aircraft last month "did not accord with the facts", according to a statement by the Ministry of Defence.`\
+https://nytimes.com/reuters/2020/03/07/world/asia/07reuters-china-u-s-laser.html?searchResultPosition=8
 
-**MacEwen Scores 2, Canucks Double Up Avalanche 6-3**\
-`Zack MacEwen scored two goals and the Vancouver Canucks beat the Colorado Avalanche 6-3 on Friday night to snap a four-game losing streak and move into contention for a playoff spot in the tight Western Conference.`\
-https://nytimes.com/aponline/2020/03/07/sports/hockey/bc-hkn-avalanche-canucks.html?searchResultPosition=9
+**South Korea's Coronavirus Cases Rise to 6,767 With Most Cases Traced to Church**\
+`South Korea's coronavirus cases rose to 6,767 on Saturday, up by 174 from late Friday, with more than 60% of the total cases linked to a secretive church at the center of the country's outbreak, health authorities said.`\
+https://nytimes.com/reuters/2020/03/07/business/07reuters-health-coronavirus-south-korea.html?searchResultPosition=9
 
-**Hong Kong Asks Residents to Defer Non-Urgent Travel**\
-`The Hong Kong government has warned the city's residents to consider deferring all non-essential travel outside of the territory, as the coronavirus becomes increasingly prevalent around the world.`\
-https://nytimes.com/reuters/2020/03/07/world/asia/06reuters-health-coronavirus-hongkong-travel.html?searchResultPosition=10
+**China Reports Almost All New Infections Outside Wuhan Originated Abroad**\
+`About a quarter of China's new confirmed cases and almost all of those outside the epidemic's epicenter in Wuhan originated outside the country on Friday, according to official data.  `\
+https://nytimes.com/reuters/2020/03/07/business/07reuters-health-coronavirus-china-toll.html?searchResultPosition=10
 
