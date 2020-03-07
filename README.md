@@ -1,20 +1,20 @@
+**Vucevic Scores 28 to Lead Magic Past T-Wolves 132-118**\
+`Nikola Vucevic had 28 points and 12 rebounds to lead Orlando past Minnesota 132-118 on Friday night, although the Magic played most of the second half without coach Steve Clifford, who left in the third quarter due to illness.`\
+https://nytimes.com/aponline/2020/03/06/sports/basketball/bc-bkn-magic-timberwolves.html?searchResultPosition=6
+
+**Howard, No. 16 Kentucky Women Beat Lady Vols in SEC Quarters**\
+`Rhyne Howard hit five 3-pointers to break Kentucky's single-season record and finished with 24 points to help the No. 16 Wildcats beat Tennessee 86-65 in the quarterfinals of the SEC tournament on Friday night. `\
+https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/bc-bkw-t25-sec-tennessee-kentucky.html?searchResultPosition=7
+
+**Mike Conley Scores 25 Points, Jazz Beat Celtics 99-94**\
+`Mike Conley made six 3-pointers and scored 25 points, Jordan Clarkson added 17and the Utah Jazz beat the Boston Celtics 99-94 on Friday night for their fourth straight victory.`\
+https://nytimes.com/aponline/2020/03/06/sports/basketball/bc-bkn-jazz-celtics.html?searchResultPosition=8
+
+**Sabonis Dominates, Pacers Hang On to Beat Bulls 108-102**\
+`Domantas Sabonis dominated with 24 points and 12 rebounds, and the Indiana Pacers hung on to beat the Chicago Bulls 108-102 on Friday night.`\
+https://nytimes.com/aponline/2020/03/06/sports/basketball/bc-bkn-pacers-bulls.html?searchResultPosition=9
+
 **Teague Leads Ball St. Over N. Illinois 75-54**\
 `Tahjai Teague tallied 18 points and 11 rebounds to carry Ball St. to a 75-54 win over Northern Illinois on Friday night.`\
-https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/bc-bkc-ball-st-n-illinois.html?searchResultPosition=6
-
-**Gallinari Scores 22, Thunder Beat Knicks 126-103**\
-`Danilo Gallinari scored 22 points in 27 minutes and was one of six Oklahoma City players to finish in double figures as the Thunder routed the New York Knicks 126-103 on Friday night.`\
-https://nytimes.com/aponline/2020/03/06/sports/basketball/bc-bkn-thunder-knicks.html?searchResultPosition=7
-
-**Graves Scores 25 to Carry Buffalo Past Bowling Green 88-84**\
-`Jayvon Graves had 25 points as Buffalo defeated Bowling Green 88-84 on Friday night.`\
-https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/bc-bkc-buffalo-bowling-green.html?searchResultPosition=8
-
-**Fairfield Ends Skid While Extending Manhattan's Woes**\
-`Jesus Cruz had 21 points as Fairfield defeated Manhattan 66-50 on Friday night to end the Metro Atlantic Athletic regular season.`\
-https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/bc-bkc-fairfield-manhattan.html?searchResultPosition=9
-
-**Bradley Beal Scores 35 Points, Wizards Beat Hawks 118-112**\
-`Bradley Beal scored 35 points and the Washington Wizards held off the Atlanta Hawks 118-112 on Friday night.`\
-https://nytimes.com/aponline/2020/03/06/sports/basketball/bc-bkn-hawks-wizards-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/bc-bkc-ball-st-n-illinois.html?searchResultPosition=10
 
