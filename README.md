@@ -1,20 +1,20 @@
+**Bahrain Asks People Arriving From Four Countries to Self-Quarantine: Tweet**\
+`Bahrain has called on people who have traveled to Lebanon, Egypt, Italy or South Korea to self-quarantine for two weeks from the day of their arrival, the Health Ministry said in a tweet on Saturday.`\
+https://nytimes.com/reuters/2020/03/07/world/middleeast/07reuters-health-coronavirus-bahrain.html?searchResultPosition=6
+
+**Taylor Erupts for 30 Points as LSU Blasts Georgia**\
+`Marlon Taylor scored a career-high 30 points in his final home game to lead LSU to a 94-64 Southeastern Conference victory against Georgia on Saturday.`\
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-georgia-lsu.html?searchResultPosition=7
+
+**Mexican Woman Who Survived Acid Attack Calls on Others to Speak Out Without Fear**\
+`Six months after an acid attack in Mexico, Maria Elena Rios is now speaking out in hopes officials will find and punish her aggressor. Talking through a bandage covering the burns on her face, she has a message for other women: Do not live in fear.`\
+https://nytimes.com/reuters/2020/03/07/world/americas/07reuters-women-antiviolence-mexico-acid.html?searchResultPosition=8
+
+**UN Chief: Gender Inequality Biggest Human Rights Challenge**\
+`Calling himself “a proud feminist,” U.N. Secretary-General Antonio Guterres lashed out at men who abuse power and declared before Sunday's observances of International Women’s Day that the fight for gender equality is “the biggest human rights challenge we face.”`\
+https://nytimes.com/aponline/2020/03/07/world/ap-un-united-nations-international-womens-day.html?searchResultPosition=9
+
 **McCoy Tyner, Iconic and Influential Jazz Pianist, Dies**\
 `McCoy Tyner, the groundbreaking and influential jazz pianist and the last surviving member of the John Coltrane Quartet, has died. He was 81.`\
-https://nytimes.com/aponline/2020/03/07/us/ap-us-obit-mccoy-tyner.html?searchResultPosition=6
-
-**Earthquake of Magnitude 6.2 Strikes Madeira Islands in Portugal: EMSC**\
-`An earthquake of magnitude 6.2 struck the Madeira Islands, an autonomous region of Portugal, the European Mediterranean Seismological Centre (EMSC) said on Saturday.`\
-https://nytimes.com/reuters/2020/03/07/world/europe/07reuters-portugal-quake.html?searchResultPosition=7
-
-**UConn Routs Temple to Begin Run at 7th Straight AAC Title**\
-`Crystal Dangerfield scored 22 points to lead six UConn players in double-figures and the Huskies began their run at a seventh consecutive American Athletic Conference Tournament title with a 94-61 rout of Temple in the quarterfinals.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkw-t25-temple-uconn.html?searchResultPosition=8
-
-**Coronavirus Leaves Passenger-Filled Ships Without Ports**\
-`Cruise ships hit by coronavirus outbreaks have quickly found themselves with no ports for thousands of passengers as countries on four continents have quarantined vessels or kept them at sea for days.`\
-https://nytimes.com/aponline/2020/03/07/us/bc-us-virus-outbreak-infected-cruises.html?searchResultPosition=9
-
-**Trocheck Scores in OT, Lifts Hurricanes Over Islanders 3-2**\
-`Vincent Trocheck batted a loose puck out of the air and into the net early in overtime and the Carolina Hurricanes ended a four-game losing streak, beating the New York Islanders 3-2 Saturday.`\
-https://nytimes.com/aponline/2020/03/07/sports/hockey/bc-hkn-hurricanes-islanders.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/07/us/ap-us-obit-mccoy-tyner.html?searchResultPosition=10
 
