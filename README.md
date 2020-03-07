@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/03/07/world/middleeast/07reuters-health-coronavirus-iran.html?searchResultPosition=6
 
 **Lebanon in 'Final Hours Before' Declaring It Cannot Pay Its Debts: Senior MP**\
-`Lebanon is in "the final hours before" formally announcing it cannot pay its debts, senior MP Alain Aoun wrote on Twitter on Saturday, as the president, prime minister and parliament speaker met ahead of an official declaration later in the day.`\
+`Lebanon is in "the final hours before" formally announcing it cannot pay its debts, senior MP Alain Aoun said on Saturday, as the president, prime minister and parliament speaker met ahead of an official declaration later in the day.    `\
 https://nytimes.com/reuters/2020/03/07/world/middleeast/07reuters-lebanon-crisis.html?searchResultPosition=7
 
 **Spain Arrests 89 for Speed Boat Smuggling of Migrants, Drugs**\
