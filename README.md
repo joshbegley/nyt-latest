@@ -1,20 +1,20 @@
+**Steve Weber, Guitarist in Oddball Folk Band, Dies at 76**\
+`Mr. Weber and Peter Stampfel were the heart of the Holy Modal Rounders, a group born of the folk revival that detoured into a mischievous and “zany” style.`\
+https://nytimes.com/2020/03/06/arts/music/steve-weber-dead.html?searchResultPosition=6
+
+**Tiger Woods Will Not Compete in Players Championship**\
+`“My back is simply just not ready for play next week,” Woods said in a Twitter post, raising concerns about his preparation for the Masters in April.`\
+https://nytimes.com/2020/03/06/sports/golf/tiger-woods-players-championship.html?searchResultPosition=7
+
+**On Nile Cruiser, 12 Crew Test Positive for Virus, and Egypt Fears Broader Outbreak**\
+`The sudden surge of cases stoked growing fears among a nervous Egyptian public of a much larger number of infections than their government has either detected or declared.`\
+https://nytimes.com/2020/03/06/world/middleeast/egypt-nile-coronavirus.html?searchResultPosition=8
+
 **Democratic Majority in Virginia Strips Itself of the Power to Draw District Lines**\
 `The State Legislature, controlled by Democrats, voted to put a constitutional amendment on the November ballot that would let an independent commission draw district maps.`\
-https://nytimes.com/2020/03/06/us/virginia-legislature-redistricting.html?searchResultPosition=6
+https://nytimes.com/2020/03/06/us/virginia-legislature-redistricting.html?searchResultPosition=9
 
 **Tesla CEO Elon Musk Tweets That 'Coronavirus Panic Is Dumb'**\
 `Tesla Inc's Chief Executive Officer Elon Musk tweeted on Friday that the coronavirus "panic" was "dumb".`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-musk.html?searchResultPosition=7
-
-**Telecom Italia Fined 116 Million Euros for Broadband Market Abuse**\
-`Italy's competition watchdog said on Friday it had fined former phone monopoly Telecom Italia (TIM) 116 million euros ($131 million) for abusing its dominant position in the broadband market in an attempt to obstruct the entrance of rivals.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-telecom-it-antitrust.html?searchResultPosition=8
-
-**Gray Kunz, 64, Dies; Four-Star Chef Fused French and Asian**\
-`Raised in Singapore, trained in Hong Kong and apprenticed in Switzerland, he made a celebrated mark in New York, at Lespinasse.`\
-https://nytimes.com/2020/03/06/obituaries/gray-kunz-64-dies-four-star-chef-fused-french-and-asian.html?searchResultPosition=9
-
-**U.S. FAA Proposes Fining Boeing $19.7 Million Over 737 Airplane Sensors**\
-`The Federal Aviation Administration on Friday proposed fining Boeing Co $19.7 million for allegedly installing equipment on hundreds of 737 aircraft containing sensors in heads-up displays that regulators had not approved for use.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-boeing-737max-faa.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-musk.html?searchResultPosition=10
 
