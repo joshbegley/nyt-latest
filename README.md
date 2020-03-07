@@ -1,20 +1,20 @@
+**Cunane, No. 10 NC State Women Beat Georgia Tech 57-48 in ACC**\
+`Elissa Cunane had 14 of her 16 points after halftime to help No. 10 North Carolina State beat Georgia Tech 57-48 in Friday’s quarterfinals of the Atlantic Coast Conference Tournament.`\
+https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/bc-bkw-t25-acc-georgia-tech-nc-state.html?searchResultPosition=6
+
+**UN Chief and Top US Diplomat Meet on Global Hot Spots**\
+`Secretary-General Antonio Guterres and U.`\
+https://nytimes.com/aponline/2020/03/06/world/middleeast/ap-un-united-nations-united-states.html?searchResultPosition=7
+
+**Alaska's Famous Iditarod Mushers Can Expect Deep Snow on Race Day**\
+`The world's most famous dog racing contest gets underway on Saturday when 57 mushers and their canine teams line up in downtown Anchorage to start the Iditarod Trail Sled Dog Race, with expectations for heavy snow on the trail this year.`\
+https://nytimes.com/reuters/2020/03/06/us/06reuters-alaska-race.html?searchResultPosition=8
+
+**After U.S. Congress and Fed's Quick Coronavirus Response, Next Steps Likely Tougher for Washington**\
+`The U.S. Federal Reserve and Congress moved swiftly to confront the growing coronavirus threat this week, as the central bank propped up the economy and the House and Senate approved $8.3 billion for vaccine development and other steps to contain the virus.`\
+https://nytimes.com/reuters/2020/03/06/us/politics/06reuters-health-coronavirus-usa-politics.html?searchResultPosition=9
+
 **No. 9 Mississippi State Beats LSU 79-49 to Reach SEC Semis**\
 `Rickea Jackson scored 19 of her 23 points in the second half and No. 9 Mississippi State pulled away to beat LSU 79-49 in the SEC Tournament quarterfinals Friday night. `\
-https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/bc-bkw-t25-sec-lsu-mississippi-st.html?searchResultPosition=6
-
-**Exclusive: U.S. Discussing Non-Renewal of Chevron's Venezuela Waiver, Moves to Cut Oil Trade-Sources**\
-`The U.S. government is preparing to impose new measures as soon as next week to stifle Venezuela's oil exports, including a move not to renew Chevron Corp's license to do business with state-run company PDVSA, sources familiar with the matter said.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-venezuela-oil-chevron-exclusive.html?searchResultPosition=7
-
-**Shortage of Chinese Parts Caused $50 Billion Fall in February's Global Exports: U.N.**\
-`China's exports of vital parts and components for products ranging from automobiles to cellphones are estimated to have shrunk by an annualized 2% in February, costing other countries and their industries $50 billion, a United Nations agency said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-un.html?searchResultPosition=8
-
-**Goldman Ranks as Top Activism Defense Firm, Beating Morgan Stanley**\
-`Goldman Sachs ranked as the top adviser to companies targeted by activist investors in 2019, dethroning Morgan Stanley, which had held the top spot for three straight years, according to Refinitiv data published on Friday.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-goldman-sachs-activists.html?searchResultPosition=9
-
-**If Joe Biden Wins**\
-`A few things we’ll no longer have to worry about.`\
-https://nytimes.com/2020/03/06/opinion/biden-2020.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/bc-bkw-t25-sec-lsu-mississippi-st.html?searchResultPosition=10
 
