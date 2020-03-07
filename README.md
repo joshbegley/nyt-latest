@@ -1,20 +1,20 @@
+**No. 1 Kansas Outright Big 12 Champ After 66-62 Win at Tech**\
+`No. 1 Kansas wrapped up its outright Big 12 regular-season title Saturday, beating Texas Tech 66-62 behind Udoka Azubuike's 15 points and 11 rebounds. `\
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-t25-kansas-texas-tech.html?searchResultPosition=6
+
+**Tennis: Defender Andreescu Will Miss Indian Wells Due to Knee Injury**\
+`World number four Bianca Andreescu will not defend her Indian Wells title due to a lingering knee injury, the Canadian said on Saturday. `\
+https://nytimes.com/reuters/2020/03/07/sports/tennis/07reuters-tennis-indianwells-bianca.html?searchResultPosition=7
+
+**Saudi Arabia Slashes April Crude Oil Prices After OPEC’s Supply Pact Collapsed**\
+`Saudi Arabia slashed its official selling price (OSP) for April for all its crude grades to all destinations, after OPEC’s oil supply cut pact with Russia fell apart on Friday, sending oil into a tailspin.`\
+https://nytimes.com/reuters/2020/03/07/world/middleeast/07reuters-saudi-oil-prices.html?searchResultPosition=8
+
+**No. 10 NC State Defeats BC 82-75 to Reach ACC Finals**\
+`Aislinn Konig and Jada Boyd each scored 16 points, and No. 10 North Carolina State defeated Boston College 82-75 on Saturday to reach the Atlantic Coast Conference Tournament championship game.`\
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkw-t25-acc-boston-college-nc-state.html?searchResultPosition=9
+
 **Bahrain Asks People Arriving From Four Countries to Self-Quarantine: Tweet**\
 `Bahrain has called on people who have traveled to Lebanon, Egypt, Italy or South Korea to self-quarantine for two weeks from the day of their arrival, the Health Ministry said in a tweet on Saturday.`\
-https://nytimes.com/reuters/2020/03/07/world/middleeast/07reuters-health-coronavirus-bahrain.html?searchResultPosition=6
-
-**Taylor Erupts for 30 Points as LSU Blasts Georgia**\
-`Marlon Taylor scored a career-high 30 points in his final home game to lead LSU to a 94-64 Southeastern Conference victory against Georgia on Saturday.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-georgia-lsu.html?searchResultPosition=7
-
-**Mexican Woman Who Survived Acid Attack Calls on Others to Speak Out Without Fear**\
-`Six months after an acid attack in Mexico, Maria Elena Rios is now speaking out in hopes officials will find and punish her aggressor. Talking through a bandage covering the burns on her face, she has a message for other women: Do not live in fear.`\
-https://nytimes.com/reuters/2020/03/07/world/americas/07reuters-women-antiviolence-mexico-acid.html?searchResultPosition=8
-
-**UN Chief: Gender Inequality Biggest Human Rights Challenge**\
-`Calling himself “a proud feminist,” U.N. Secretary-General Antonio Guterres lashed out at men who abuse power and declared before Sunday's observances of International Women’s Day that the fight for gender equality is “the biggest human rights challenge we face.”`\
-https://nytimes.com/aponline/2020/03/07/world/ap-un-united-nations-international-womens-day.html?searchResultPosition=9
-
-**McCoy Tyner, Iconic and Influential Jazz Pianist, Dies**\
-`McCoy Tyner, the groundbreaking and influential jazz pianist and the last surviving member of the John Coltrane Quartet, has died. He was 81.`\
-https://nytimes.com/aponline/2020/03/07/us/ap-us-obit-mccoy-tyner.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/07/world/middleeast/07reuters-health-coronavirus-bahrain.html?searchResultPosition=10
 
