@@ -1,20 +1,20 @@
-**Missouri St. Caps Night of Upsets, Ousts Indiana St. 78-51**\
-`Isiaih Mosley scored on a putback as Missouri State grabbed the lead midway through the opening period and hit the gas, eliminating No. 3 seed Indiana State from the Missouri Valley Conference quarterfinals 78-51 Friday night.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-mvc-missouri-st-indiana-st.html?searchResultPosition=6
+**Trump Abruptly Replaces Acting Chief of Staff Mulvaney With North Carolina Lawmaker**\
+`President Donald Trump parted ways on Friday with acting White House chief of staff Mick Mulvaney and replaced him with  conservative lawmaker and close ally Mark Meadows, who was a strong Trump defender during the Democratic impeachment drive.`\
+https://nytimes.com/reuters/2020/03/07/us/politics/06reuters-usa-trump-staff.html?searchResultPosition=6
 
-**Ethiopian Investigators Set to Blame Boeing for Plane Crash: Bloomberg News**\
-`Ethiopian crash investigators have tentatively concluded that the crash of a Boeing Co 737 MAX last year was caused by the plane's design, Bloomberg News reported on Friday, citing a draft report being circulated to participants in the probe. `\
-https://nytimes.com/reuters/2020/03/07/business/06reuters-boeing-737max-ethiopia.html?searchResultPosition=7
+**Ducks Deal Maple Leafs 3rd Straight Loss, 2-1**\
+`Carter Rowney and Adam Henrique scored, John Gibson and Ryan Miller combined to stop 30 shots and the Anaheim Ducks beat the Toronto Maple Leafs 2-1 on Friday night.`\
+https://nytimes.com/aponline/2020/03/07/sports/hockey/bc-hkn-maple-leafs-ducks.html?searchResultPosition=7
 
-**Two U.S. Health Screeners at LAX Test Positive for Coronavirus: Internal Email**\
-`Two federal health screeners at Los Angeles International Airport have tested positive for the coronavirus, according to an email sent to their colleagues on Friday, which was seen by Reuters. `\
-https://nytimes.com/reuters/2020/03/07/us/06reuters-health-coronavirus-usa-lax.html?searchResultPosition=8
+**China January-February Exports Tumble, Imports Slow as Coronavirus Batters Trade and Business**\
+`China's exports contracted sharply in the first two months of the year, and imports slowed, as the health crisis triggered by the coronavirus outbreak caused massive disruptions to business operations, global supply chains and economic activity.`\
+https://nytimes.com/reuters/2020/03/07/world/asia/07reuters-china-economy-trade.html?searchResultPosition=8
 
-**Murray St. Advances to OVC Title Game Beating Austin Peay**\
-`Tevin Brown scored 24 points and KJ Williams had a double-double and Murray State beat Austin Peay 73-61 in the semifinals of the Ohio Valley Conference Tournament on Friday.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-ovc-austin-peay-murray-st.html?searchResultPosition=9
+**China's Jan-Feb Trade Surplus With U.S. Falls to $25.37 Billion**\
+`China's trade surplus with the United States for the first two months of the year stood at $25.37 billion, Reuters calculation based on Chinese customs data showed on Saturday.`\
+https://nytimes.com/reuters/2020/03/07/world/asia/07reuters-china-economy-trade-usa.html?searchResultPosition=9
 
-**UAE Raises Virus Cases to 45, New Cases From 9 Nationalities**\
-`The United Arab Emirates reported 15 additional cases on Saturday of a new and fast-spreading virus, bringing the total number of infections in the country to 45.`\
-https://nytimes.com/aponline/2020/03/07/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=10
+**China January-February Yuan-Denominated Exports Slump 15.9%, Imports Down 2.4%**\
+`China's yuan-denominated exports in January-February fell 15.9% from the same period a year earlier, customs data showed on Saturday, while imports slid 2.4% as a fast spreading coronavirus outbreak caused severe disruptions to manufacturing activity.`\
+https://nytimes.com/reuters/2020/03/07/world/asia/07reuters-china-economy-trade-yuan.html?searchResultPosition=10
 
