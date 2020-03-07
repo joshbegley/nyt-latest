@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/03/07/world/africa/07reuters-congo-military-dea
 `The school that architect Frank Lloyd Wright started nearly 90 years ago may stay open after all.`\
 https://nytimes.com/aponline/2020/03/07/us/ap-us-frank-lloyd-wright-school-closing-2nd-ld-writethru.html?searchResultPosition=7
 
-**Fasel Tells AP: Women's World Hockey Championships Canceled**\
-`The women’s world hockey championships in Canada have been canceled because of the new coronavirus.`\
+**Hockey Body Tells AP Women's Worlds in Canada Are Canceled**\
+`The women’s world hockey championships in Canada were canceled Saturday because of the new coronavirus.`\
 https://nytimes.com/aponline/2020/03/07/sports/ap-hko-womens-championships-canceled.html?searchResultPosition=8
 
 **There Won’t Be a Gay President in 2021. So What Does Buttigieg’s Campaign Tell Us?**\
