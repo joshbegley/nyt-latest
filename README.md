@@ -1,20 +1,20 @@
-**Steve Weber, Guitarist in Oddball Folk Band, Dies at 76**\
-`Mr. Weber and Peter Stampfel were the heart of the Holy Modal Rounders, a group born of the folk revival that detoured into a mischievous and “zany” style.`\
-https://nytimes.com/2020/03/06/arts/music/steve-weber-dead.html?searchResultPosition=6
+**No. 9 Mississippi State Beats LSU 79-49 to Reach SEC Semis**\
+`Rickea Jackson scored 19 of her 23 points in the second half and No. 9 Mississippi State pulled away to beat LSU 79-49 in the SEC Tournament quarterfinals Friday night. `\
+https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/bc-bkw-t25-sec-lsu-mississippi-st.html?searchResultPosition=6
 
-**Tiger Woods Will Not Compete in Players Championship**\
-`“My back is simply just not ready for play next week,” Woods said in a Twitter post, raising concerns about his preparation for the Masters in April.`\
-https://nytimes.com/2020/03/06/sports/golf/tiger-woods-players-championship.html?searchResultPosition=7
+**Exclusive: U.S. Discussing Non-Renewal of Chevron's Venezuela Waiver, Moves to Cut Oil Trade-Sources**\
+`The U.S. government is preparing to impose new measures as soon as next week to stifle Venezuela's oil exports, including a move not to renew Chevron Corp's license to do business with state-run company PDVSA, sources familiar with the matter said.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-venezuela-oil-chevron-exclusive.html?searchResultPosition=7
 
-**On Nile Cruiser, 12 Crew Test Positive for Virus, and Egypt Fears Broader Outbreak**\
-`The sudden surge of cases stoked growing fears among a nervous Egyptian public of a much larger number of infections than their government has either detected or declared.`\
-https://nytimes.com/2020/03/06/world/middleeast/egypt-nile-coronavirus.html?searchResultPosition=8
+**Shortage of Chinese Parts Caused $50 Billion Fall in February's Global Exports: U.N.**\
+`China's exports of vital parts and components for products ranging from automobiles to cellphones are estimated to have shrunk by an annualized 2% in February, costing other countries and their industries $50 billion, a United Nations agency said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-un.html?searchResultPosition=8
 
-**Democratic Majority in Virginia Strips Itself of the Power to Draw District Lines**\
-`The State Legislature, controlled by Democrats, voted to put a constitutional amendment on the November ballot that would let an independent commission draw district maps.`\
-https://nytimes.com/2020/03/06/us/virginia-legislature-redistricting.html?searchResultPosition=9
+**Goldman Ranks as Top Activism Defense Firm, Beating Morgan Stanley**\
+`Goldman Sachs ranked as the top adviser to companies targeted by activist investors in 2019, dethroning Morgan Stanley, which had held the top spot for three straight years, according to Refinitiv data published on Friday.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-goldman-sachs-activists.html?searchResultPosition=9
 
-**Tesla CEO Elon Musk Tweets That 'Coronavirus Panic Is Dumb'**\
-`Tesla Inc's Chief Executive Officer Elon Musk tweeted on Friday that the coronavirus "panic" was "dumb".`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-musk.html?searchResultPosition=10
+**If Joe Biden Wins**\
+`A few things we’ll no longer have to worry about.`\
+https://nytimes.com/2020/03/06/opinion/biden-2020.html?searchResultPosition=10
 
