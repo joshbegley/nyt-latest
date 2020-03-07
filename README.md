@@ -1,5 +1,5 @@
 **Kenny Atkinson Is Out as Nets Head Coach**\
-`Atkinson had led the team for more than three seasons.`\
+`Atkinson had led the team for more than three seasons. The team announced they had “mutually agreed to part ways” on Saturday.`\
 https://nytimes.com/2020/03/07/sports/basketball/nets-coach-kenny-atkinson.html?searchResultPosition=6
 
 **What You Need to Know About Coronavirus Right Now**\
