@@ -1,20 +1,20 @@
-**Argentina's Eight Coronavirus Cases Add Uncertainty to Already Dismal Economy**\
-`Argentina has eight confirmed cases of coronavirus, all brought by people who had recently been in Europe, the Health Ministry said on Friday, adding uncertainty to an economy already slammed by recession, high inflation and unsustainable debt.`\
-https://nytimes.com/reuters/2020/03/06/world/americas/06reuters-health-coronavirus-argentina.html?searchResultPosition=6
+**Fed's Use of Balance Sheet Policies Comes at a Cost: George**\
+`The U.S. Federal Reserve's reliance on maintaining an ample balance sheet to help the economy poses risks to financial stability and the central bank's independence, Kansas City Fed Bank President Esther George said on Friday.`\
+https://nytimes.com/reuters/2020/03/06/us/06reuters-usa-fed-george.html?searchResultPosition=6
 
-**Trump Names Rep. Mark Meadows His New Chief of Staff**\
-`President Donald Trump on Friday named Rep. Mark Meadows as his new chief of staff, replacing Mick Mulvaney, who been acting in the role for more than a year. `\
-https://nytimes.com/aponline/2020/03/06/us/politics/ap-us-trump-chief-of-staff.html?searchResultPosition=7
+**WSJ: Saudis Arrest 2 Princes for Allegedly Plotting Coup**\
+`Saudi officials arrested two members of the royal family early Friday for allegedly plotting to oust King Salman and the son he has designated to succeed him, Crown Prince Mohammed bin Salman, the Wall Street Journal reported.`\
+https://nytimes.com/aponline/2020/03/06/us/ap-ml-saudi-arabia-arrests.html?searchResultPosition=7
 
-**Yankees’ Aaron Judge Is Out for Opening Day With Rib Fracture**\
-`After months of pain, Judge said on Friday that he had a stress fracture that may take months to heal.`\
-https://nytimes.com/2020/03/06/sports/baseball/aaron-judge-yankees.html?searchResultPosition=8
+**Americans’ Demands for Coronavirus Tests Grow as Cases Spread**\
+`Despite efforts by President Trump and others to reassure the public that tests are getting disseminated quickly, several states, doctors and patients complained that access was limited.`\
+https://nytimes.com/2020/03/06/health/testing-coronavirus.html?searchResultPosition=8
 
-**SNC-Lavalin Is the Talk of Ottawa Again, if in a Very Different Context**\
-`Frustrations over a new light-rail system in the national capital built by a group that includes SNC-Lavalin have led to questions about a popular method for contracting big projects.`\
-https://nytimes.com/2020/03/06/world/canada/Ottawa-transit-P3.html?searchResultPosition=9
+**World Economic Forum Postpones Event in Brazil as Coronavirus Cases Rise**\
+`The World Economic Forum (WEF) has postponed a Latin America conference set to be held in Brazil at the end of April as a precautionary measure, with the number of confirmed coronavirus cases in the country rising on Friday to 13.`\
+https://nytimes.com/reuters/2020/03/06/world/americas/06reuters-health-coronavirus-brazil.html?searchResultPosition=9
 
-**Citigroup Waives Some Fees for U.S. Consumers Impacted by Coronavirus**\
-`Citigroup Inc said on Friday it would waive some fees and offer other assistance for U.S. consumers and small businesses impacted by the coronavirus. `\
-https://nytimes.com/reuters/2020/03/06/us/06reuters-citigroup-fees.html?searchResultPosition=10
+**U.S. FCC Takes Step for Fight Robocalls by Stopping Spoofing**\
+`A U.S. agency that oversees telecommunications said on Friday that it would propose rules that would make it harder for robocallers to hide their location when they call to pester Americans billions of times per month.`\
+https://nytimes.com/reuters/2020/03/06/us/06reuters-fcc-robocalls.html?searchResultPosition=10
 
