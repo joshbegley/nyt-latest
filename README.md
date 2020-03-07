@@ -1,20 +1,20 @@
+**What You Need to Know About Coronavirus Right Now**\
+`Here's what you need to know about the coronavirus:`\
+https://nytimes.com/reuters/2020/03/07/world/asia/07reuters-health-coronavirus-snapshot.html?searchResultPosition=6
+
+**Factbox: The Economic Remedies for the Coronavirus**\
+`Policymakers have taken a range of approaches to deal with the economic fallout from the coronavirus, from emergency interest rate cuts and big spending packages to a wait-and-see-stance and pledges of action if required.`\
+https://nytimes.com/reuters/2020/03/07/world/europe/07reuters-health-coronavirus-economy-policy-factbox.html?searchResultPosition=7
+
+**WHO Urges Countries to Make Containing Coronavirus 'Highest Priority'**\
+`All countries should make containing the outbreak of COVID-19 their top priority, the World Health Organization (WHO) said on Friday, pointing to Iran "national action plan" to combat one of the world's worst outbreaks after a slow start.`\
+https://nytimes.com/reuters/2020/03/07/world/asia/07reuters-health-coronavirus-who-priority.html?searchResultPosition=8
+
+**U.S. Sailor Confirmed With Coronavirus in Italy**\
+`A U.S. sailor deployed to Naples, Italy, has tested positive for the coronavirus, the U.S. military said on Saturday, in the second confirmed case among U.S. forces following another in South Korea. `\
+https://nytimes.com/reuters/2020/03/07/business/07reuters-health-coronavirus-usa-italy.html?searchResultPosition=9
+
 **Around 70 People Trapped as Hotel Used for Quarantine Collapses in China**\
 `About 70 people were trapped in a collapsed hotel in the city of Quanzhou, in southeastern Fujian Province, the city government said on its website.`\
-https://nytimes.com/reuters/2020/03/07/world/asia/07reuters-china-hotel-collapse.html?searchResultPosition=6
-
-**Biden's Big Wins Also Were Big for His Pennsylvania Backers**\
-`Democratic Party stalwarts in Pennsylvania heaved a collective sigh of relief as Joe Biden, the choice of many party leaders in the battleground state, emerged from the presidential primary pack as the consensus pick to lead the party's moderate wing. `\
-https://nytimes.com/aponline/2020/03/07/us/ap-us-election-2020-pennsylvania.html?searchResultPosition=7
-
-**AP FACT CHECK: Trump's Sunny Side Up Take on Coronavirus**\
-`As the stock market convulses, airline schedules buckle and businesses worry their overseas supply lines will snap, President Donald Trump is looking on the sunny side of an economy clouded by the coronavirus.`\
-https://nytimes.com/aponline/2020/03/07/business/ap-us-fact-check-week.html?searchResultPosition=8
-
-**Protester Killed in Guyana as Unrest Spreads Over Vote Fraud Reports**\
-`A protester was shot dead as demonstrators took to the streets in Guyana on Saturday after opposition leaders and international observers accused the government of David Granger of rigging this week's presidential election.`\
-https://nytimes.com/reuters/2020/03/07/world/americas/07reuters-guyana-election.html?searchResultPosition=9
-
-**Dozens of Swiss Companies Keen on Export Channel to Iran**\
-`A Swiss channel to export food and medicine to Iran's struggling population without running foul of U.S. sanctions is off to a good start, with dozens of companies keen to take part, a senior government official said on Saturday.  `\
-https://nytimes.com/reuters/2020/03/07/world/middleeast/07reuters-swiss-iran.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/07/world/asia/07reuters-china-hotel-collapse.html?searchResultPosition=10
 
