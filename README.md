@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/03/06/sports/ncaabasketball/bc-bkw-t25-p12-utah-oregon.html?searchResultPosition=6
 
 **Pence, a Loyalist Tapped for Coronavirus Effort, Adds to Trump’s Mixed Messages**\
-`In wresting control of the administration’s haphazard response to the virus, Mike Pence has taken on a familiar role of cleaning up political messes for the president.`\
+`In wresting control of the administration’s haphazard response to the virus, Mike Pence has taken on a familiar role as the president’s political janitor.`\
 https://nytimes.com/2020/03/06/us/politics/pence-trump-coronavirus.html?searchResultPosition=7
 
 **Boeing Faces $20 Million Fine by F.A.A.**\
