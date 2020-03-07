@@ -1,20 +1,20 @@
-**Fed's Use of Balance Sheet Policies Comes at a Cost: George**\
-`The U.S. Federal Reserve's reliance on maintaining an ample balance sheet to help the economy poses risks to financial stability and the central bank's independence, Kansas City Fed Bank President Esther George said on Friday.`\
-https://nytimes.com/reuters/2020/03/06/us/06reuters-usa-fed-george.html?searchResultPosition=6
+**Fed's Rosengren Says Central Bank Should Think 'Broadly' About Tools to Combat Coronavirus**\
+`The coronavirus outbreak could serve as a shock to both the supply side and the demand side of the U.S. economy, pushing Federal Reserve officials to think creatively about the tools they can use to stimulate growth, Boston Fed President Eric Rosengren said Friday.`\
+https://nytimes.com/reuters/2020/03/06/us/06reuters-usa-fed-rosengren-tools.html?searchResultPosition=6
 
-**WSJ: Saudis Arrest 2 Princes for Allegedly Plotting Coup**\
-`Saudi officials arrested two members of the royal family early Friday for allegedly plotting to oust King Salman and the son he has designated to succeed him, Crown Prince Mohammed bin Salman, the Wall Street Journal reported.`\
-https://nytimes.com/aponline/2020/03/06/us/ap-ml-saudi-arabia-arrests.html?searchResultPosition=7
+**U.S. Retailers Face $700 Million Hit as Virus Disrupts Ocean Shipping**\
+`U.S. retailers face an estimated $700 million sales hit from  the coronavirus and some shipping lines are sending vessels to retrieve empty cargo containers from Los Angeles to prevent further supply disruptions.`\
+https://nytimes.com/reuters/2020/03/06/world/europe/06reuters-health-coronavirus-shipping-retail.html?searchResultPosition=7
 
-**Americans’ Demands for Coronavirus Tests Grow as Cases Spread**\
-`Despite efforts by President Trump and others to reassure the public that tests are getting disseminated quickly, several states, doctors and patients complained that access was limited.`\
-https://nytimes.com/2020/03/06/health/testing-coronavirus.html?searchResultPosition=8
+**U.S. Swaps Regulator Boosts Monitoring, Scrutiny as Markets Succumb to Virus Fears**\
+`The U.S. regulator charged with overseeing derivatives markets said on Friday it is boosting communications with industry players and oversight as disruptions from the spreading coronavirus epidemic worsened, roiling global financial markets.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-markets-cftc.html?searchResultPosition=8
 
-**World Economic Forum Postpones Event in Brazil as Coronavirus Cases Rise**\
-`The World Economic Forum (WEF) has postponed a Latin America conference set to be held in Brazil at the end of April as a precautionary measure, with the number of confirmed coronavirus cases in the country rising on Friday to 13.`\
-https://nytimes.com/reuters/2020/03/06/world/americas/06reuters-health-coronavirus-brazil.html?searchResultPosition=9
+**Once Unthinkable, Negative Treasury Yields Enter the Realm of Possibility**\
+`A collapse in Treasury yields as concerns about the spreading coronavirus sends investors scurrying for low-risk government securities has led some to start preparing for the possibility that the U.S. debt yields could turn negative.`\
+https://nytimes.com/reuters/2020/03/06/us/06reuters-health-coronavirus-treasuries-analysis.html?searchResultPosition=9
 
-**U.S. FCC Takes Step for Fight Robocalls by Stopping Spoofing**\
-`A U.S. agency that oversees telecommunications said on Friday that it would propose rules that would make it harder for robocallers to hide their location when they call to pester Americans billions of times per month.`\
-https://nytimes.com/reuters/2020/03/06/us/06reuters-fcc-robocalls.html?searchResultPosition=10
+**Where’s Joe Biden’s Universal Child Care Plan?**\
+`The issue is getting more attention than it has in decades, except from the Democratic front-runner.`\
+https://nytimes.com/2020/03/06/opinion/childcare-biden-sanders-2020.html?searchResultPosition=10
 
