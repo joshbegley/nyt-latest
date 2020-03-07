@@ -1,20 +1,20 @@
-**Pence: 21 People Test Positive for Coronavirus on Cruise Ship**\
-`Twenty-one people aboard a cruise ship denied entry to San Francisco have tested positive for coronavirus and the ship will be brought to a non-commercial port this weekend, and all passengers and crew will be tested, U.S. Vice President Mike Pence said on Friday.`\
-https://nytimes.com/reuters/2020/03/06/us/06reuters-health-coronavirus-usa-pence.html?searchResultPosition=6
+**Democratic Majority in Virginia Strips Itself of the Power to Draw District Lines**\
+`The State Legislature, controlled by Democrats, voted to put a constitutional amendment on the November ballot that would let an independent commission draw district maps.`\
+https://nytimes.com/2020/03/06/us/virginia-legislature-redistricting.html?searchResultPosition=6
 
-**N.Y. Travel Insurance to Cover Coronavirus in 'Cancel for Any Reason' Policies, Gov. Cuomo Says**\
-`Travel insurers and travel agents will offer New York residents and businesses the ability to buy coverage that would allow them to cancel a trip for any reason, including those related to coronavirus, New York Governor Andrew Cuomo said on Friday.`\
-https://nytimes.com/reuters/2020/03/06/us/06reuters-new-york-health-insurance.html?searchResultPosition=7
+**Tesla CEO Elon Musk Tweets That 'Coronavirus Panic Is Dumb'**\
+`Tesla Inc's Chief Executive Officer Elon Musk tweeted on Friday that the coronavirus "panic" was "dumb".`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-musk.html?searchResultPosition=7
 
-**UAE Discovers 15 New Coronavirus Cases: Ministry of Health**\
-`United Arab Emirates discovered late on Friday 15 new coronavirus cases, the health ministry announced in a statement.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-healthcare-coronavirus-emirates.html?searchResultPosition=8
+**Telecom Italia Fined 116 Million Euros for Broadband Market Abuse**\
+`Italy's competition watchdog said on Friday it had fined former phone monopoly Telecom Italia (TIM) 116 million euros ($131 million) for abusing its dominant position in the broadband market in an attempt to obstruct the entrance of rivals.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-telecom-it-antitrust.html?searchResultPosition=8
 
-**Michigan to Sanitize Voting Booths, Machines Amid Coronavirus Fears**\
-`Officials in Michigan are telling election clerks to repeatedly sanitize voting booths, touchscreen machines, pencils and other equipment ahead of Tuesday's Democratic primary, amid concerns about the impact of coronavirus on the 2020 presidential contest.`\
-https://nytimes.com/reuters/2020/03/06/us/politics/06reuters-health-coronavirus-usa-election.html?searchResultPosition=9
+**Gray Kunz, 64, Dies; Four-Star Chef Fused French and Asian**\
+`Raised in Singapore, trained in Hong Kong and apprenticed in Switzerland, he made a celebrated mark in New York, at Lespinasse.`\
+https://nytimes.com/2020/03/06/obituaries/gray-kunz-64-dies-four-star-chef-fused-french-and-asian.html?searchResultPosition=9
 
-**Austria Introducing 'Spot' Health Checks at Italian Border**\
-`Austria is introducing "spot" health checks at its border with Italy for two weeks as of next week in response to the coronavirus outbreak, in which Italy is the hardest-hit country in Europe, Chancellor Sebastian Kurz said on Friday.`\
-https://nytimes.com/reuters/2020/03/06/business/06reuters-health-coronavirus-austria.html?searchResultPosition=10
+**U.S. FAA Proposes Fining Boeing $19.7 Million Over 737 Airplane Sensors**\
+`The Federal Aviation Administration on Friday proposed fining Boeing Co $19.7 million for allegedly installing equipment on hundreds of 737 aircraft containing sensors in heads-up displays that regulators had not approved for use.`\
+https://nytimes.com/reuters/2020/03/06/business/06reuters-boeing-737max-faa.html?searchResultPosition=10
 
