@@ -1,24 +1,24 @@
+**Guyana Court Halts Release of Election Results Amid Fraud Accusations**\
+`Guyana's top court on Sunday upheld an injunction blocking the elections commission from proclaiming a winner in this month's presidential election, delaying the results of a vote that has been marred by accusations of fraud. `\
+https://nytimes.com/reuters/2020/03/08/world/americas/08reuters-guyana-election.html?searchResultPosition=5
+
+**Taliban Declines to Mark Women's Day in Afghanistan**\
+`Some political leaders joined foreign envoys in Afghanistan in offering assurances of support for women's rights on International Women's Day, but the Taliban did not join in the global commemoration.`\
+https://nytimes.com/reuters/2020/03/08/world/asia/08reuters-womens-day-afghanistan-taliban.html?searchResultPosition=6
+
+**U.S. Conservative Leader Had Contact With Coronavirus Case at Conference**\
+`The organizer of a large gathering of prominent U.S. conservative politicians and activists said on Sunday he had some "incidental" contact with an attendee who has since tested positive for coronavirus, but that he felt "healthy as a horse" and had not heard of anyone else falling ill.`\
+https://nytimes.com/reuters/2020/03/08/us/08reuters-health-coronavirus-usa-conservatives.html?searchResultPosition=7
+
+**Homesley, Cuffee Lead Liberty Past Lipscomb, 73-57**\
+`Caleb Homesley scored 16 points and Liberty took command with a long first-half run and won its second consecutive ASUN championship, 73-57 over Lipscomb on Sunday, earning the Flames an automatic NCAA Tournament bid`\
+https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkc-asun-lipscomb-liberty.html?searchResultPosition=8
+
 **What’s Going On in This Picture? | March 9, 2020**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2020/03/08/learning/whats-going-on-in-this-picture-march-9-2020.html?searchResultPosition=5
+https://nytimes.com/2020/03/08/learning/whats-going-on-in-this-picture-march-9-2020.html?searchResultPosition=9
 
 **Darling Sends Delaware to CAA Semis in Win Over Charleston**\
 `Nate Darling scored 25 points and Justyn Mutts had a double-double and Delaware beat Charleston 79-67 in a Colonial Athletic Association quarterfinal game on Sunday.`\
-https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkc-caa-delaware-charleston.html?searchResultPosition=6
-
-**Judge Orders Medical Panel to Evaluate Tortured Guantánamo Prisoner**\
-`For the first time, a federal court is requiring the United States military to allow American and foreign doctors to assess a mentally ill prisoner at Guantánamo Bay.`\
-https://nytimes.com/2020/03/08/us/politics/guantanamo-prisoner-mental-health.html?searchResultPosition=7
-
-**Old Trafford Euphoric Again as United Completes Derby Double**\
-`The euphoric roars as fans leaped from their Old Trafford seats took Ole Gunnar Solskjær back to the Alex Ferguson era.`\
-https://nytimes.com/aponline/2020/03/08/sports/soccer/ap-soc-english-roundup-.html?searchResultPosition=8
-
-**Qatar Bans Arrivals From 14 Countries Over Coronavirus Fears**\
-`Qatar has temporarily barred travelers from 14 countries from March 9 as a precaution against the rapidly spreading coronavirus, the government announced on Sunday.`\
-https://nytimes.com/reuters/2020/03/08/world/asia/08reuters-health-coronavirus-qatar.html?searchResultPosition=9
-
-**Hurricanes Hammer Listless Penguins 6-2**\
-`Morgan Geekie scored twice and added an assist in his NHL debut and Justin Williams added two third-period goals and the Carolina Hurricanes surged past the Pittsburgh Penguins 6-2 on Sunday.`\
-https://nytimes.com/aponline/2020/03/08/sports/hockey/bc-hkn-hurricanes-penguins.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkc-caa-delaware-charleston.html?searchResultPosition=10
 
