@@ -1,24 +1,24 @@
-**Saudi Arabia Suspends Travel To and From Nine Countries Including UAE, Bahrain and Egypt**\
-`Saudi Arabia suspended travel to nine countries for its citizens and residents amid coronavirus fears and suspended the entry of people from those countries or anyone who has been there in the past 14 days, the state news agency reported early on Monday, quoting a source in the Interior Ministry.`\
-https://nytimes.com/reuters/2020/03/08/world/middleeast/08reuters-health-coronavirus-saudi-travel.html?searchResultPosition=5
+**As One of China's 'Detroits' Reopens, World's Automakers Worry About Disruptions**\
+`Automakers across the world face the possibility of extended supply chain disruptions as factories in China stutter back to life after closures due to the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/08/business/08reuters-health-coronavirus-autos-parts.html?searchResultPosition=5
 
-**Asian Shares Set to Tumble, Oil Prices Crash**\
-`Asian share markets were set for a beating on Monday as investors fled to bonds to hedge the economic shock of the coronavirus, and oil plunged more than 20% after Saudi Arabia slashed its official selling price.`\
-https://nytimes.com/reuters/2020/03/08/business/08reuters-global-markets.html?searchResultPosition=6
+**How the Left Can Stop Losing**\
+`Step one: Care more about winning.`\
+https://nytimes.com/2020/03/08/opinion/sanders-democratic-primary.html?searchResultPosition=6
 
-**Saudi Arabia Closes Riyadh Boulevard, Winter Wonderland Over Coronavirus Fears**\
-`The Saudi entertainment authority announced early on Monday the closure of Riyadh boulevard and winter wonderland due to concerns about the new coronavirus, state TV reported.`\
-https://nytimes.com/reuters/2020/03/08/world/middleeast/08reuters-health-coronavirus-saudi-boulevard.html?searchResultPosition=7
+**North Korea Fires Unidentified Projectile: South Korea Military**\
+`North Korea fired an unidentified projectile on Monday, South Korea's military said.`\
+https://nytimes.com/reuters/2020/03/08/world/asia/08reuters-northkorea-missiles.html?searchResultPosition=7
 
-**UConn Tops Tulane, Will Square Off in AAC Opening Round**\
-`Christian Vital scored 28 points and Isaiah Whaley finished with a double-double and UConn beat Tulane 80-76 on Sunday to end American Athletic Conference play.`\
-https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkc-uconn-tulane.html?searchResultPosition=8
+**South Korea’s Military: North Fires Unidentified Projectile**\
+`South Korea’s military says North Korea has fired an unidentified projectile.`\
+https://nytimes.com/aponline/2020/03/08/world/asia/ap-as-nkorea-launch.html?searchResultPosition=8
 
-**Hatton Hands On to Win Bay Hill for 1st PGA Tour Title**\
-`Tyrrell Hatton went from losing his mind to winning the tournament.`\
-https://nytimes.com/aponline/2020/03/08/sports/golf/ap-glf-bay-hill.html?searchResultPosition=9
+**Ah, Tea. So Relaxing. But Its History Is Another Story.**\
+`A room at the Metropolitan Museum of Art tells the story of tea and politics, from China to Britain and that “party” in Boston.`\
+https://nytimes.com/2020/03/08/arts/tea-history-politics.html?searchResultPosition=9
 
-**Iwo Jima Hero, 96, Sees US Warship Commissioned in His Honor**\
-`A 96-year-old war hero looked on as military officials commissioned a U.S. Navy warship in honor of the veteran, the last surviving Medal of Honor recipient from the Battle of Iwo Jima. `\
-https://nytimes.com/aponline/2020/03/08/us/ap-us-warship-commissioned.html?searchResultPosition=10
+**In 1918, It Wasn’t the Coronavirus. It Was the Flu.**\
+`The “Spanish flu” pandemic, the subject of a new, ongoing exhibit at the Mütter Museum, killed tens of millions of people worldwide.`\
+https://nytimes.com/2020/03/08/arts/1918-pandemic-coronavirus.html?searchResultPosition=10
 
