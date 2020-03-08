@@ -1,24 +1,24 @@
-**‘Onward’ Tops Box Office, but Falls Short for Pixar**\
-`“Onward” brought in an estimated $40 million in domestic ticket sales, a relatively weak opening by Pixar standards.`\
-https://nytimes.com/2020/03/08/movies/onward-box-office.html?searchResultPosition=5
+**Investor Fears Rise Over Recession, Bear Market as Coronavirus Spreads in U.S.**\
+`The words "bear market" and "recession" are being used with increasing frequency as investors try to assess how badly the coronavirus outbreak will damage global growth and to what extent it could further weigh on asset prices.  `\
+https://nytimes.com/reuters/2020/03/08/business/08reuters-health-coronavirus-markets.html?searchResultPosition=5
 
-**Samford Women Clinch NCAA, Beating UNC Greensboro in SoCon**\
-`Natalie Armstrong scored 20 points and her 3-pointer with 20.5 seconds left carried Samford to a berth in the NCAA Tournament with a 59-54 win over UNC Greensboro in the Southern Conference Tournament championship game Sunday.`\
-https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkw-socon-unc-greensboro-samford.html?searchResultPosition=6
+**Analysis: Pac-12 Shooting for 7 NCAA Tournament Berths**\
+`The Pac-12 Conference has the potential to get seven teams through to the NCAA Tournament. That would match the past two years combined and equal the conference record set in 2016.`\
+https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/ap-bkc-bubble-watch.html?searchResultPosition=6
 
-**Scaife Sends Dayton Women Back to NCAA, Wins A10 52-48**\
-`Jayla Scaife scored 13 points, including the clinching free throw with 13 seconds left, and snuffed out VCU's final hope with a blocked shot at 7.8 seconds, and Dayton earned a trip to the NCAA Tournament on Sunday with a rugged 52-48 win in the Atlantic 10 Conference championship game.`\
-https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkw-a10-vcu-dayton.html?searchResultPosition=7
+**The Best Response to the Coronavirus? Altruism, Not Panic**\
+`The impulse to secure your safety is understandable but counterproductive.`\
+https://nytimes.com/2020/03/08/opinion/coronavirus-altruism.html?searchResultPosition=7
 
-**White, Grimes Lead No. 21 Houston to 64-57 Win Over Memphis**\
-`Fabian White Jr. had 18 points and 14 rebounds, Quentin Grimes added 17 points and No. 21 Houston defeated Memphis 64-57 on Sunday.`\
-https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkc-t25-memphis-houston.html?searchResultPosition=8
+**Tom Steyer: What I Learned While Running for President**\
+`The establishment has failed many hard-working people. If we don’t call it out, nothing will change.`\
+https://nytimes.com/2020/03/08/opinion/tom-steyer-president.html?searchResultPosition=8
 
-**U.S. Ride-Hailing and Food Delivery Companies to Compensate Drivers Affected by Coronavirus**\
-`U.S. ride-hailing and food delivery companies including DoorDash Inc and Instacart are in discussions to compensate drivers and delivery personnel affected by the novel coronavirus.`\
-https://nytimes.com/reuters/2020/03/08/technology/08reuters-health-coronavirus-compensation.html?searchResultPosition=9
+**Smoking or Vaping Increases Vulnerability to Coronavirus, Says NYC Mayor**\
+`Smoking or vaping makes people more vulnerable to becoming infected with the coronavirus, New York City Mayor Bill de Blasio said on Sunday.`\
+https://nytimes.com/reuters/2020/03/08/us/08reuters-health-coronavirus-usa-vaping.html?searchResultPosition=9
 
-**Oregon Declares Emergency as Coronavirus Cases Double to 14**\
-`Oregon Governor Kate Brown declared a 60-day state of emergency on Sunday as coronavirus cases in the state doubled to 14.`\
-https://nytimes.com/reuters/2020/03/08/us/08reuters-health-coronavirus-usa-oregon.html?searchResultPosition=10
+**Motorcycling: MotoGP Riders Absent From Qatar Opener as Nagashima Shines**\
+`The motorcycle grand prix season started in Qatar on Sunday without MotoGP riders due to the coronavirus outbreak but their absence gave Tetsuta Nagashima a chance to seize the limelight.`\
+https://nytimes.com/reuters/2020/03/08/sports/autoracing/08reuters-motor-motogp-qatar.html?searchResultPosition=10
 
