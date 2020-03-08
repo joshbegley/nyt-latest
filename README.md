@@ -1,20 +1,24 @@
-**Dustin Brown Has Trick, Kings Beat Wild 7-3**\
-`Dustin Brown had three goals and an assist and the Los Angeles Kings won their fifth straight game, 7-3 over the Minnesota Wild on Saturday.`\
-https://nytimes.com/aponline/2020/03/07/sports/hockey/bc-hkn-wild-kings.html?searchResultPosition=6
+**USSF Offers Women Same Pay as Men for Matches It Controls**\
+`The U.S. Soccer Federation says it has offered the women's national team equal pay to male counterparts for matches under USSF control but maintains the women's union wants bonuses for tournaments such as the World Cup to match those of the men.`\
+https://nytimes.com/aponline/2020/03/07/sports/soccer/ap-soc-equal-pay.html?searchResultPosition=5
 
-**Seattle Set for 1st Major Sports Event Since Virus Outbreak**\
-`How sports fans in Seattle respond to being in the epicenter of the coronavirus outbreak in the United States gets its first test on Saturday night. `\
-https://nytimes.com/aponline/2020/03/07/sports/soccer/ap-soc-virus-outbreak-seattle-sports.html?searchResultPosition=7
+**Roberson Leads Northwestern St. Over Cent. Arkansas 100-85**\
+`Jairus Roberson scored 23 points as Northwestern State topped Central Arkansas 100-85 in a regular season finale on Saturday. Trenton Massner added 20 points for the Demons.`\
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-northwestern-st-cent-arkansas.html?searchResultPosition=6
 
-**Golf: Hatton Survives Carnage for Two-Shot Lead at Bay Hill**\
-`Tyrrell Hatton survived brutal conditions to eke out a two-stroke lead over Rory McIlroy and Marc Leishman in the third round at the Arnold Palmer Invitational in Florida on Saturday.`\
-https://nytimes.com/reuters/2020/03/07/sports/golf/07reuters-golf-palmer.html?searchResultPosition=8
+**Argentina Announces First Coronavirus Death in Latin America**\
+`A 64-year-old patient died in Argentina as a result of the new coronavirus, the first such death in Latin America, health authorities announced Saturday.`\
+https://nytimes.com/aponline/2020/03/07/world/americas/ap-lt-virus-outbreak-latin-america-death.html?searchResultPosition=7
 
-**Hatton Has 2-Shot Lead on Hardest Day at Bay Hill Since '83**\
-`Tyrrell Hatton made a 30-foot birdie putt on the final hole for a 1-over 73 to end the most brutal day at Bay Hill in 37 years and build a two-shot lead going into the final round of the Arnold Palmer Invitational.`\
-https://nytimes.com/aponline/2020/03/07/sports/golf/ap-glf-bay-hill.html?searchResultPosition=9
+**Mitchell Scores 25, Texas A&M Beats Arkansas 77-69**\
+`Wendell Mitchell scored 25 points and Texas A&M defeated Arkansas 77-69 on Saturday in the teams’ regular-season finale.`\
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-arkansas-texas-am.html?searchResultPosition=8
 
-**Kopp Scores 21, Northwestern Stuns No. 20 Penn State 80-69**\
-`Miller Kopp scored 21 points, and struggling Northwestern beat No. 20 Penn State 80-69 on Saturday.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-t25-penn-st-northwestern.html?searchResultPosition=10
+**No. 1 Gamecocks Reach SEC Finals, Beat No. 25 Arkansas 90-64**\
+`Destanni Henderson had a career-high 21 points, hitting four 3-pointers, to lift No. 1 South Carolina to its 25th straight victory and into the SEC Tournament championship game with a 90-64 win over No. 25 Arkansas on Saturday night. `\
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkw-t25-sec-arkansas-south-carolina.html?searchResultPosition=9
+
+**Tinkle, Kelley Send Oregon St. Past Cal With 74-56 Win**\
+`Seniors Tres Tinkle and Kylor Kelley went out in style in their final home games for Oregon State with a 74-56 win over California on Saturday.`\
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-california-oregon-st.html?searchResultPosition=10
 
