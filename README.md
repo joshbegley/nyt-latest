@@ -19,6 +19,6 @@ https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkc-socon-weste
 https://nytimes.com/2020/03/08/nyregion/aqueduct-racetrack-robbery.html?searchResultPosition=9
 
 **Oil Plunges 20% as Another Virus-Fueled Trading Week Begins**\
-`Oil prices are plunging amid worries that an OPEC dispute will lead a virus-weakened economy to be awash in an oversupply of crude. `\
+`Oil prices are plunging amid worries that an OPEC dispute will lead an economy weakened by COVID-19 to be awash in an oversupply of crude.`\
 https://nytimes.com/aponline/2020/03/08/business/bc-us-oil-prices.html?searchResultPosition=10
 
