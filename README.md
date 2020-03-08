@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkw-t25-acc-flo
 https://nytimes.com/aponline/2020/03/08/us/politics/ap-us-virus-outbreak-trump-fact-check.html?searchResultPosition=8
 
 **Manchester United Beats City, Turning the Tables for a Day**\
-`Manchester United has become a club trained to expect the worst. On Sunday, it was at its best again.`\
+`Manchester United has become a club trained to expect the worst. On Sunday, thanks to Bruno Fernandes and Anthony Martial, it was at its best again.`\
 https://nytimes.com/2020/03/08/sports/soccer/manchester-united-city-derby.html?searchResultPosition=9
 
 **Review: An Astute Choreographer Stumbles (and Rises) to Hope**\
