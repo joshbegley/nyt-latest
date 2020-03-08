@@ -1,24 +1,24 @@
+**No. 9 Bulldogs Beat Kentucky 77-59, Return to SEC Finals**\
+`Rickea Jackson had 27 points and defending champ No. 9 Mississippi State took control in the second half to defeat No. 16 Kentucky 77-59 Saturday night, reaching its fifth straight SEC Tournament final. `\
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkw-t25-sec-kentucky-mississippi-state.html?searchResultPosition=5
+
 **No. 3 Dayton Buries GW in Season Finale, Looks to Postseason**\
 `Obi Toppin had 27 points, and No. 3 Dayton rolled George Washington 76-51 on Saturday to finish the regular season with its school-record 29th victory.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-t25-george-washington-dayton.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-t25-george-washington-dayton.html?searchResultPosition=6
 
 **Hollingsworth Helps W. Kentucky Fight Past FIU 91-85**\
 `Taveion Hollingsworth scored 13 of his 21 points in the second half when Western Kentucky built a slim lead and held on, defeating Florida International 91-85 on Saturday night.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-w-kentucky-florida-international.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-w-kentucky-florida-international.html?searchResultPosition=7
 
 **Harris Carries N. Colorado Past Montana St. 75-61**\
 `Trent Harris had 24 points, tying his season high, as Northern Colorado defeated Montana State 75-61 in a regular season finale on Saturday. Jonah Radebaugh added 21 points for the Bears. Radebaugh also had seven assists.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-n-colorado-montana-st.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-n-colorado-montana-st.html?searchResultPosition=8
 
 **Foreman Helps Stony Brook Hold Off Albany 76-73**\
 `Makale Foreman scored 23 points to lead five players in double figures and Stony Brook held off upset-minded Albany 76-73 on Saturday to advance to the semifinal round of the America East Conference Tournament.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-ameast-albany-stony-brook.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-ameast-albany-stony-brook.html?searchResultPosition=9
 
 **Three Wins, 3 Days, Valpo Advances Beating Missouri St.**\
 `Javon Freeman-Liberty scored 29 points with nine rebounds and five assists and Valparaiso beat Missouri State 89-82 Saturday to advance to the championship game of the Missouri Valley Conference.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-mvc-valparaiso-missouri-st.html?searchResultPosition=9
-
-**Utah St Tops No. 5 San Diego State for Mountain West Title**\
-`Sam Merrill scored 17 of his 27 points in the second half, including a contested 3-pointer with 2.5 seconds left to lift Utah State to a 59-56 victory over No. 5 San Diego State in the Mountain West Tournament championship on Saturday.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-t25-mwc-utah-st-san-diego-st.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-mvc-valparaiso-missouri-st.html?searchResultPosition=10
 
