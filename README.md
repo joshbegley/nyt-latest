@@ -1,24 +1,24 @@
-**Harvard Knocks Off Yale, 83-69, Faces Penn in Ivy Tourney**\
-`Justin Bassey scored 19 points and Harvard earned its 21st victory in its regular season finale, beating Yale 83-69 on Saturday night.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-yale-harvard.html?searchResultPosition=5
+**FTA Advises on Transit Cleaning, Little Guidance on System Shutdowns Due to Virus**\
+`The Federal Transit Administration (FTA) had little new advice to offer transit systems in the event they might have to shut down their commuter networks for the coronavirus outbreak in a conference call on Friday, but told operators they could find sanitation guidance on government websites. `\
+https://nytimes.com/reuters/2020/03/07/us/07reuters-health-coronavirus-usa-transit.html?searchResultPosition=5
 
-**Scott Rescues Cincinnati for 64-63 Win Over Teple**\
-`Trevon Scott’s tip-in with 2.8 seconds left lifted Cincinnati to a 64-63 win over upset-minded Temple in the regular-season finale on Saturday night.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-temple-cincinnati.html?searchResultPosition=6
+**Varner Takes Over Late Sending UTRGV Past Cal Baptist in OT**\
+`Lesley Varner II scored 22 points and his 3-pointer with four seconds left gave UT Rio Grande Valley a 79-76 win over California Baptist on Saturday.`\
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-california-baptist-ut-rio-grande-valley.html?searchResultPosition=6
 
-**Love Scores 27 Points, as Cavaliers Surprise Nuggets Again**\
-`Kevin Love scored 27 points, hitting the go-ahead basket with four minutes remaining, and the short-handed Cleveland Cavaliers surprised the Denver Nuggets for the second time this season, 104-102 on Saturday night.`\
-https://nytimes.com/aponline/2020/03/07/sports/basketball/bc-bkn-nuggets-cavaliers.html?searchResultPosition=7
+**Russell Helps Rhode Island Hold Off UMass for 64-63 Win**\
+`Fatts Russell scored four of his 11 points in the final 19 seconds as Rhode Island held off UMass 64-63 on Saturday night. `\
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-rhode-island-umass.html?searchResultPosition=7
 
-**Crosby Lifts Alcorn St. Past Texas Southern 90-75**\
-`Troymain Crosby had 23 points as Alcorn State defeated Texas Southern 90-75 in a regular season finale on Saturday.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-texas-southern-alcorn-st.html?searchResultPosition=8
+**Ivy Smith Jr. Sparks Grambling St. Past Alabama State, 70-58**\
+`Ivy Smith Jr. had 16 points as Grambling State beat Alabama State 70-58 on Saturday. `\
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-grambling-alabama-st.html?searchResultPosition=8
 
-**Japan's 7-Eleven Worker Infected With Coronavirus, Another Case Likely Caused Meningitis**\
-`A worker at Japan's 7-Eleven convenience store chain in Yamanashi prefecture, west of Tokyo, has contracted the new coronavirus, the company said on Sunday.`\
-https://nytimes.com/reuters/2020/03/07/world/asia/07reuters-health-coronavirus-japan.html?searchResultPosition=9
+**Panthers Snap 8-Game Home Skid With 4-1 Win Over Canadiens**\
+`Backup goalie Chris Driedger stopped 33 shots, Mike Hoffman had a goal and an assist, and the Florida Panthers broke their eight-game home losing streak Saturday with a 4-1 win over the Montreal Canadiens. `\
+https://nytimes.com/aponline/2020/03/07/sports/hockey/bc-hkn-canadiens-panthers.html?searchResultPosition=9
 
-**U.S., Japan Women's Soccer Teams Keep Focus on Games as Coronavirus Fears Swirl**\
-`The U.S. and Japan women's national soccer teams said on Saturday they were laser-focused on preparing for the upcoming Olympics, even as a global coronavirus outbreak threatens the postponement or cancellation of the Tokyo Games.`\
-https://nytimes.com/reuters/2020/03/07/sports/soccer/07reuters-health-coronavirus-soccer.html?searchResultPosition=10
+**Valanciunas, Morant Lead Grizzlies Past Hawks, 118-101**\
+`Jonas Valanciunas had 27 points and 17 rebounds, rookie Ja Morant added 24 points and the Memphis Grizzlies beat the Atlanta Hawks 118-101 on Saturday night to keep their hold on the final Western Conference playoff spot.`\
+https://nytimes.com/aponline/2020/03/07/sports/basketball/bc-bkn-hawks-grizzlies.html?searchResultPosition=10
 
