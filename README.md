@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/03/08/world/europe/08reuters-health-coronavirus
 `Police in the capital of Kyrgyzstan have detained about 60 people after an unauthorized rally to mark International Women's Day was broken up by a group of men. `\
 https://nytimes.com/aponline/2020/03/08/world/asia/ap-as-kyrgyzstan-women-rally.html?searchResultPosition=9
 
-**Moscow Threatens With Prison for Failure of 'Self-Isolation' Over Coronavirus**\
+**Moscow City: People Ignoring Coronavirus Self-Isolation Rules Could Face Prison**\
 `Moscow city authorities threatened prison terms of up to five years on Sunday for people failing to self-isolate in their homes for two weeks after visiting countries hit hard by the coronavirus outbreak.`\
 https://nytimes.com/reuters/2020/03/08/world/europe/08reuters-health-coronavirus-russia-prison.html?searchResultPosition=10
 
