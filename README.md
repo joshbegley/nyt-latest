@@ -1,24 +1,24 @@
+**Boca Pip River to Argentine Title With Late Tevez Screamer**\
+`A dramatic late goal from Carlos Tevez gave Boca Juniors the Argentine league title on Saturday, as the Buenos Aires club overcame Gimnasia 1-0 to pip their arch rivals River Plate on an breathtaking last day of the season.`\
+https://nytimes.com/reuters/2020/03/07/sports/soccer/07reuters-soccer-argentina-boj-gim-report.html?searchResultPosition=5
+
+**Giroux, Hart Lead Flyers Past Sabres 3-1 for 9th Straight**\
+`Claude Giroux scored two goals and Carter Hart made 38 saves to lead the streaking Philadelphia Flyers to their ninth straight victory, 3-1 over the Buffalo Sabres on Saturday night.`\
+https://nytimes.com/aponline/2020/03/07/sports/hockey/bc-hkn-sabres-flyers.html?searchResultPosition=6
+
+**Hunsaker's 27 Leads Brown Past Dartmouth 70-58**\
+`Zach Hunsaker scored a career-high 27 points, Brandon Anderson added 24 and Brown beat Dartmouth 70-58 on Saturday night in a bittersweet regular-season finale.`\
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-brown-dartmouth.html?searchResultPosition=7
+
+**Corrections: March 8, 2020**\
+`Corrections that appeared in print on Sunday, March 8, 2020.`\
+https://nytimes.com/2020/03/07/pageoneplus/corrections-march-8-2020.html?searchResultPosition=8
+
 **LA Tech Beats Charlotte, 66-43, Earn C-USA No. 3 Seed**\
 `Mubarak Muhammed had 16 points and 10 rebounds to lift Louisiana Tech to a 66-43 win over Charlotte on Saturday night.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-charlotte-louisiana-tech.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-charlotte-louisiana-tech.html?searchResultPosition=9
 
 **Lovan Propels UAB to 72-63 Victory Over Old Dominion**\
 `Sophomore Tavin Lovan finished with 23 points and seven rebounds and Alabama-Birmingham closed out the Conference USA regular season with a 72-63 victory over Old Dominion on Saturday.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-old-dominion-uab.html?searchResultPosition=6
-
-**Vermont Defeats Maine 61-50 in America East Tourney**\
-`Everett Duncan and Anthony Lamb scored 19 points apiece and top-seeded Vermont beat eighth-seeded Maine 61-50 in the quarterfinals of the America East Conference Tourney on Saturday night.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-ameast-maine-vermont.html?searchResultPosition=7
-
-**Zajac, Palmieri Lead Devils to 6-4 Win Over Rival Rangers**\
-`Travis Zajac and Kyle Palmieri each scored twice and the New Jersey Devils used a big second period to beat the New York Rangers 6-4 Saturday night.`\
-https://nytimes.com/aponline/2020/03/07/sports/hockey/bc-hkn-devils-rangers.html?searchResultPosition=8
-
-**Rideau, S. Florida Take Advantage of SMU's Late Collapse**\
-`Laquincy Rideau scored 12 points and his 3-pointer with eight seconds left was the game winner as South Florida stunned SMU 61-60 on Saturday.`\
-https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-smu-south-florida.html?searchResultPosition=9
-
-**Tierney's OT Goal Leads Senators Past Sharks 2-1**\
-`Chris Tierney scored 35 seconds into overtime after missing an earlier chance on a penalty shot, and the Ottawa Senators earned their fourth win in five games by beating the San Jose Sharks 2-1 on Saturday.`\
-https://nytimes.com/aponline/2020/03/07/sports/hockey/bc-hkn-senators-sharks.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-old-dominion-uab.html?searchResultPosition=10
 
