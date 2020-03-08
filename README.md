@@ -14,11 +14,11 @@ https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkc-southern-ut
 `The couple met at Georgetown, from which each received a law degree, the groom cum laude.`\
 https://nytimes.com/2020/03/08/fashion/weddings/kristen-mccannon-pavan-krishnamurthy.html?searchResultPosition=8
 
-**Josh Panken, Josh Stanton**\
-`The couple met in 2008 at a Flaming Lips concert in Philadelphia.`\
-https://nytimes.com/2020/03/08/fashion/weddings/josh-panken-josh-stanton.html?searchResultPosition=9
-
 **Catherine Doyle, Hollis Callaway**\
 `The couple met in 2018 at Church, a bar in Atlanta.`\
-https://nytimes.com/2020/03/08/fashion/weddings/catherine-doyle-hollis-callaway.html?searchResultPosition=10
+https://nytimes.com/2020/03/08/fashion/weddings/catherine-doyle-hollis-callaway.html?searchResultPosition=9
+
+**Josh Panken, Josh Stanton**\
+`The couple met in 2008 at a Flaming Lips concert in Philadelphia.`\
+https://nytimes.com/2020/03/08/fashion/weddings/josh-panken-josh-stanton.html?searchResultPosition=10
 
