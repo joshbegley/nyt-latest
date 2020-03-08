@@ -1,24 +1,24 @@
+**As Tensions Rise With Iran, So Does Interest in Art It Inspired**\
+`This year, several museums in the United States will feature works by Iranian artists in exile.`\
+https://nytimes.com/2020/03/08/arts/iran-artists.html?searchResultPosition=5
+
+**Empty Chairs for MH17 Victims Outside Russia's Hague Embassy**\
+`Rows of white chairs were placed in front of Russia's embassy in The Hague on Sunday in a quiet protest by families of those who were shot down with Malaysia Airlines Flight 17, on the eve of the trial - in absentia - of four men accused of murder for their involvement.`\
+https://nytimes.com/reuters/2020/03/08/world/europe/08reuters-ukraine-crisis-mh17-protest.html?searchResultPosition=6
+
+**Anxiety Grips Companies Across the World as Virus Spreads**\
+`Since breaking out of China, the coronavirus has breached the walls of the Vatican. It's struck the Iranian holy city of Qom and contaminated a nursing home in Seattle.`\
+https://nytimes.com/aponline/2020/03/08/business/ap-us-virus-outbreak-global-economy.html?searchResultPosition=7
+
+**Using History to Provide a Lens Into Today’s Politics**\
+`Vermont’s Rokeby Museum has both exposed and experienced the effects of racism at its preserved historic site on a former sheep farm.`\
+https://nytimes.com/2020/03/08/arts/rokeby-underground-railroad.html?searchResultPosition=8
+
 **Police: 1 Killed, 17 Wounded in Cleveland Party Shooting**\
 `At least one person was killed and 17 people were injured when gunfire erupted late Saturday following a fight at a party in Cleveland, Ohio, attended by multiple motorcycle clubs, police said.`\
-https://nytimes.com/aponline/2020/03/08/us/ap-us-cleveland-shooting-2nd-ld-writethru.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/03/08/us/ap-us-cleveland-shooting-2nd-ld-writethru.html?searchResultPosition=9
 
 **Washington State Mulling Mandatory Measures to Contain Coronavirus**\
 `Washington State is considering whether mandatory measures may be needed to curb social gatherings and contain the spread of coronavirus in the hard-hit state, Governor Jay Inslee said on Sunday.`\
-https://nytimes.com/reuters/2020/03/08/us/08reuters-health-coronavirus-usa-washington.html?searchResultPosition=6
-
-**Native Americans Scramble Over Shutdown of Fargo Sweat Lodge**\
-`In the decade since Fargo agreed to host a sweat lodge for the many Native Americans who live in the area, the simple structure and its users have suffered a series of indignities: The land set aside for the lodge is in a gritty industrial area, a shirtless user was mistaken for a vagrant and arrested, and police mistook the lodge for a homeless encampment and had it bulldozed.`\
-https://nytimes.com/aponline/2020/03/08/us/ap-us-sweat-lodge-shutdown.html?searchResultPosition=7
-
-**Egypt Tries to Protect Tourism After Coronavirus Outbreak on Cruise Ship**\
-`Egypt is rushing to protect its important tourism sector and reassure travelers it is safe to visit after an outbreak of the coronavirus on a cruise ship on the River Nile. `\
-https://nytimes.com/reuters/2020/03/08/world/middleeast/08reuters-health-coronavirus-egypt.html?searchResultPosition=8
-
-**Forfeited Games and Virtual Learning: Coronavirus Shuts Down Schools**\
-`As the virus continues to spread across the country, schools are closing their doors in an effort to protect their students.`\
-https://nytimes.com/2020/03/08/us/coronavirus-schools-san-francisco-seattle.html?searchResultPosition=9
-
-**Nevada High Court Defends Tahoe Bear Activists' Free Speech**\
-`Social media comments about protecting bears that were posted by Lake Tahoe activists referring to a longtime wildlife biologist as a murderer constitute “good faith communications” protected as free speech, the Nevada Supreme Court says.`\
-https://nytimes.com/aponline/2020/03/08/us/ap-us-tahoe-bear-dispute-free-speech.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/08/us/08reuters-health-coronavirus-usa-washington.html?searchResultPosition=10
 
