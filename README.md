@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/03/08/world/africa/ap-af-africa-peace-festival
 `Prince Harry’s wife Meghan, the Duchess of Sussex, has visited a school to offer an International Women’s Day message with an appeal to men to honor the women in their lives.`\
 https://nytimes.com/aponline/2020/03/08/world/europe/ap-eu-britain-royals-international-womens-day.html?searchResultPosition=6
 
-**Lessons From the Diamond Princess, as a Ship in California Aims to Do Better**\
+**Failures on the Diamond Princess Shadow Another Cruise Ship Outbreak**\
 `An alert about a coronavirus infection sat in an unmonitored inbox. A cruise doctor saw “no point” in disinfecting the ship. And Japan disregarded medical guidelines to contain an outbreak.`\
 https://nytimes.com/2020/03/08/world/asia/coronavirus-cruise-ship.html?searchResultPosition=7
 
