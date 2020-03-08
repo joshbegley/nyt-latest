@@ -1,24 +1,24 @@
-**Coronavirus Live Updates: Italy Is Putting Much of Its North on Lockdown**\
-`The move to lock down entire sections of the country’s north, its economic engine, in an effort to fight the coronavirus, is reminiscent of the sweeping steps China has taken.`\
-https://nytimes.com/2020/03/08/world/coronavirus-news.html?searchResultPosition=5
+**Ting Guo, Michael Villaseñor**\
+`He liked her purple hair and she liked his natural silver curls.`\
+https://nytimes.com/2020/03/08/fashion/weddings/ting-guo-michael-villasenor.html?searchResultPosition=5
 
-**Ellen Gray, Antoine Ibrahim**\
-`The couple met in August 2016 at the Barclay’s, a PGA Tour event, in Bethpage, N.Y.`\
-https://nytimes.com/2020/03/08/fashion/weddings/ellen-gray-antoine-ibrahim.html?searchResultPosition=6
+**Sarah Schiear, Jared Spiegel**\
+`The couple met in 2016 when Mrs. Spiegel was looking for a lawyer while she was starting her company, and a networking contact recommended Mr. Spiegel.`\
+https://nytimes.com/2020/03/08/fashion/weddings/sarah-schiear-jared-spiegel.html?searchResultPosition=6
 
-**Pamela Chaliff, Alexander Margolis**\
-`The couple met at Columbia, where each received an M.B.A.`\
-https://nytimes.com/2020/03/08/fashion/weddings/pamela-chaliff-alexander-margolis.html?searchResultPosition=7
+**Knight Puts Southern Utah Past Montana 85-80 in OT**\
+`John Knight III sank five free throws in the final minute of overtime to give Southern Utah an 85-80 win over Montana in a regular season finale on Saturday night.`\
+https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkc-southern-utah-montana.html?searchResultPosition=7
 
-**Ashley Albrecht, Ryan Morrell**\
-`The couple met five years ago through mutual friends in New York. They were married in Miami.`\
-https://nytimes.com/2020/03/08/fashion/weddings/ashley-albrecht-ryan-morrell.html?searchResultPosition=8
+**Kristen McCannon, Pavan Krishnamurthy**\
+`The couple met at Georgetown, from which each received a law degree, the groom cum laude.`\
+https://nytimes.com/2020/03/08/fashion/weddings/kristen-mccannon-pavan-krishnamurthy.html?searchResultPosition=8
 
-**Gabriella Schwarz, Benjamin Wasserman**\
-`The couple first saw each other in 2014 while working in the Palo Alto, Calif., office of Flipboard.`\
-https://nytimes.com/2020/03/08/fashion/weddings/gabriella-schwarz-benjamin-wasserman.html?searchResultPosition=9
+**Josh Panken, Josh Stanton**\
+`The couple met in 2008 at a Flaming Lips concert in Philadelphia.`\
+https://nytimes.com/2020/03/08/fashion/weddings/josh-panken-josh-stanton.html?searchResultPosition=9
 
-**Blair Warner, Thomas Ciszek**\
-`The couple, who met two years ago, are marrying on the beach in Santa Monica, Calif.`\
-https://nytimes.com/2020/03/08/fashion/weddings/blair-warner-thomas-ciszek.html?searchResultPosition=10
+**Catherine Doyle, Hollis Callaway**\
+`The couple met in 2018 at Church, a bar in Atlanta.`\
+https://nytimes.com/2020/03/08/fashion/weddings/catherine-doyle-hollis-callaway.html?searchResultPosition=10
 
