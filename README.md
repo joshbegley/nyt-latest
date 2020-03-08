@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-cs-bakersfi
 https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkw-b10-michigan-ohio-st.html?searchResultPosition=7
 
 **Baldwin Has Career-Best 36, Butler Rallies Over Xavier 72-71**\
-`Kamar Baldwin scored a career-high 36 points and hit a 3-pointer with 1.2 seconds left Saturday night, rallying Butler to a 72-71 victory over Xavier.`\
+`Everyone knew Kamar Baldwin would take the final shot. The only question was whether he'd drive to the basket and try to tie, or take another from long range and go for the win.`\
 https://nytimes.com/aponline/2020/03/07/sports/ncaabasketball/bc-bkc-butler-xavier.html?searchResultPosition=8
 
 **Chattanooga Upsets UNC Greensboro, 78-68 in SoCon Quarters**\
