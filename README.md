@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/03/08/world/asia/08reuters-health-coronavirus-a
 `Britain's senior royals will come together on Monday for what is expected to be the last family gathering before Prince Harry and his wife Meghan set off on a new career path.`\
 https://nytimes.com/reuters/2020/03/08/world/europe/08reuters-britain-royals.html?searchResultPosition=6
 
-**Senator Cruz to Quarantine Himself After CPAC Attendee Tests Positive for Coronavirus**\
-`U.S. Senator Ted Cruz said he has decided to quarantine himself this week until a full 14 days have passed since the CPAC conference, after one of the attendees at the meet tested positive for coronavirus. `\
+**Senator Cruz Self Quarantines After Contact With Coronavirus Carrier**\
+`U.S. Senator Ted Cruz on Sunday said he would self-quarantine after he had contact with a CPAC political conference attendee who tested positive for coronavirus. `\
 https://nytimes.com/reuters/2020/03/08/us/politics/08reuters-health-coronavirus-cpac-ted-cruz.html?searchResultPosition=7
 
 **No. 6 Maryland Rolls Past Buckeyes to Capture Big Ten Crown**\
