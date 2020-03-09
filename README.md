@@ -1,24 +1,24 @@
-**Six Die in Italy Prison Riot Over Anti-Coronavirus Measures**\
-`Six inmates were killed in a prison riot in Italy and guards were taken hostage at another jail, as unrest spread in prisons across the country over measures to contain the coronavirus, including restrictions on visits.`\
-https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-italy-prisons.html?searchResultPosition=5
+**Aon to Buy Willis for Nearly $30 Billion in Insurance Mega-Deal**\
+`UK-based insurance broker Aon Plc said on Monday it would buy Willis Towers Watson for nearly $30 billion in an all-stock deal that creates the world's largest insurance broker in an industry struggling with falling margins.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-willis-towers-m-a-aon-plc.html?searchResultPosition=5
 
-**UAE Reports 14 New Coronavirus Cases, Tally Reaches 59**\
-`The United Arab Emirates announced 14 new coronavirus cases on Monday, bringing the total number of people diagnosed to 59, state news agency WAM reported. `\
-https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-health-coronavirus-emirates.html?searchResultPosition=6
+**France, Italy Seek Fiscal Shock Therapy to Combat Coronavirus**\
+`France and Italy called on Monday for Europe-wide fiscal stimulus to counter the impact of the coronavirus outbreak, as Japan prepared to boost financing for affected small and mid-sized companies to more than 1.6 trillion yen ($15.63 billion).`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-france-economy.html?searchResultPosition=6
 
-**Head of French Airports Group ADP Tests Positive for Coronavirus**\
-`Augustin de Romanet, the head of French airports company ADP, has tested positive for the coronavirus, an ADP spokesman said on Monday.`\
-https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-france-adp.html?searchResultPosition=7
+**Oil Shock, Coronavirus Spread Sends Saudi, Italy CDS Sharply Higher**\
+`The cost of insuring exposure to debt issued by governments and banks rose sharply on Monday with those at the center of the coronavirus outbreak and oil exporters seeing levels spike to multi-month highs. `\
+https://nytimes.com/reuters/2020/03/09/business/09reuters-health-coronavirus-cds.html?searchResultPosition=7
 
-**Europe Told to Act Now as Coronavirus Locks Down North Italy and Markets Plunge**\
-`Italy's prime minister promised "massive shock therapy" to beat the coronavirus on Monday and urged Europe to act decisively after markets plunged and his country sealed off much of its wealthy industrial north.`\
-https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-health-coronavirus.html?searchResultPosition=8
+**Democratic U.S. Senator Booker Endorses Biden for 2020 Presidential Nod**\
+`U.S. Senator and former Democratic presidential candidate Cory Booker on Monday endorsed former U.S. Vice President Joe Biden for the party's 2020 presidential nomination.`\
+https://nytimes.com/reuters/2020/03/09/us/politics/09reuters-usa-election-booker.html?searchResultPosition=8
 
-**Oil Price War, Mecca Ban Are Latest Risks by Saudi Prince**\
-`Saudi Arabia’s Crown Prince Mohammed bin Salman is behind the kingdom's boldest and riskiest moves in decades, most recently shutting down Islam's holiest sites to pilgrims to stymie the spread of a new virus and the government's decision to slash oil prices in what analysts say has sparked a price war  with major producer Russia.`\
-https://nytimes.com/aponline/2020/03/09/world/middleeast/ap-ml-saudi-risky-moves.html?searchResultPosition=9
+**Saudi Investors Feel the Pain of Aramco Free-Fall**\
+`Saudi investors, who dipped into savings and took out loans to participate in Aramco's record share offering, have been shocked by the free-fall in the shares of the kingdom's crown jewel after an oil output pact between OPEC and its allies collapsed.`\
+https://nytimes.com/reuters/2020/03/09/business/09reuters-saudi-aramco-stocks-investors.html?searchResultPosition=9
 
-**A D.J. Shows How to Let Go in Authoritarian Kazakhstan**\
-`Nazira is one of the hottest bookings in Europe’s club scene. She’s bringing the carefree spirit of the Continent’s dance floors home with her.`\
-https://nytimes.com/2020/03/09/arts/music/nazira-dj-kazakhstan.html?searchResultPosition=10
+**Forex Turnover Jumps as Traders Rush to Unwind Leveraged Bets**\
+`Turnover on some of the world's major currency pairs surged on Monday as a 30% crash in oil prices sent foreign exchange prices swinging wildly and triggered an investor stampede out of riskier currencies to the relative safety of the Japanese yen.`\
+https://nytimes.com/reuters/2020/03/09/business/09reuters-health-coronavirus-forex-volumes.html?searchResultPosition=10
 
