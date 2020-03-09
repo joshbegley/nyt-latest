@@ -1,4 +1,4 @@
-**Oregon Wins Pac-12 Championship With 89-56 Win Over Stanford**\
+**No. 3 Oregon Women Rout No. 7 Stanford for Pac-12 Title**\
 `Sabrina Ionescu had 20 points, 12 assists and eight rebounds to lead No. 3 Oregon to an 89-56 victory over No. 7 Stanford in the Pac-12 tournament title game on Sunday.`\
 https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkw-t25-p12-stanford-oregon.html?searchResultPosition=5
 
