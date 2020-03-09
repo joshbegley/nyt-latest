@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/03/08/world/asia/08reuters-malaysia-politics.html?searchResultPosition=5
 
 **North Korea Flies Out Foreign Diplomats During Virus Fight**\
-`By The Associated Press`\
+`A special North Korean flight carrying presumably dozens of diplomats and other foreigners left for Russia's Far East on Monday as the country tightens its lockdown intended to fend off the coronavirus.`\
 https://nytimes.com/aponline/2020/03/08/world/europe/ap-virus-outbreak-north-korea-.html?searchResultPosition=6
 
 **Afghan Presidential Rival Abdullah Postpones Inaugural Plan**\
