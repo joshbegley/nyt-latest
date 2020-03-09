@@ -1,24 +1,24 @@
-**Amid Migrant Crisis, Greece-Turkey Conflict Plays Out on Social Media**\
-`Greeks and Turks are waging a proxy war on social media with photos, video and commentary purporting to show the other side behaving badly in a migrant crisis that has seriously strained already tense relations between Athens and Ankara.`\
-https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-syria-security-greece-turkey.html?searchResultPosition=5
+**Why the Outlook for the Economy Just Got Worse**\
+`Coronavirus worries already signaled a slowdown in consumer and service sectors. Then came abrupt moves in oil prices and bond yields.`\
+https://nytimes.com/2020/03/09/upshot/coronavirus-oil-prices-bond-yields-recession.html?searchResultPosition=5
 
-**Financial System Faces Biggest Test Since 2008 as Coronavirus Spreads**\
-`The Trump administration has chipped away at the post-crisis regulatory system, moves that could expose financial system vulnerabilities if the economic threat from the virus intensifies.`\
-https://nytimes.com/2020/03/09/us/politics/financial-regulations-coronavirus.html?searchResultPosition=6
+**Prince Harry and Meghan Exit Britain, Stage West**\
+`The couple made their final official engagement on Monday, and will now head to Canada to patch together a new life and build their brand.`\
+https://nytimes.com/2020/03/09/world/europe/harry-meghan-royal-exit.html?searchResultPosition=6
 
-**Wall Street Circuit Breakers Trip as Markets, Crude, Plunge**\
-`U.`\
-https://nytimes.com/aponline/2020/03/09/business/bc-us-virus-outbreak-business-fallout.html?searchResultPosition=7
+**Scenes From the Coronavirus Lockdown in Italy**\
+`A broad lockdown has begun in Italy in response to the coronavirus, which included tourist attractions shutting down and a virtual mass from Pope Francis.`\
+https://nytimes.com/video/world/europe/100000007023617/coronavirus-italy.html?searchResultPosition=7
 
-**McCoy Tyner’s Essential Recordings: Listen to 11 Tracks**\
-`Playing with Coltrane and leading his own groups, the pianist’s indelible style stood on its own.`\
-https://nytimes.com/2020/03/09/arts/music/mccoy-tyner-essential-recordings.html?searchResultPosition=8
+**Turkey Sentences Ousted Pro-Kurdish Mayor to Jail**\
+`The ousted mayor of Turkey's mainly Kurdish Diyarbakir province was sentenced on Monday to more than nine years in prison for membership of a terrorist organization, a judicial source said.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-turkey-security-mayor.html?searchResultPosition=8
 
-**Mart Crowley, ‘Boys in the Band’ Playwright, Dies at 84**\
-`When it opened in 1968, the play broke new ground in its depiction of gay characters.`\
-https://nytimes.com/2020/03/09/arts/mart-crowley-dead.html?searchResultPosition=9
+**Number of Confirmed UK Coronavirus Cases Rises to 319, Health Ministry Says**\
+`The number of confirmed coronavirus cases in the United Kingdom has risen to 319 from 273, the health ministry said on Monday.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-healthbritain-cases.html?searchResultPosition=9
 
-**Myanmar Army Sues Reuters for Criminal Defamation: Police**\
-`Myanmar police said the army had filed a lawsuit against Reuters news agency and a local lawmaker for criminal defamation, weeks after the military objected to a news story published about the death of two Rohingya Muslim women as a result of shelling in Rakhine state.`\
-https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-myanmar-reuters.html?searchResultPosition=10
+**At Least 43 Killed in Attack on Burkina Faso Villages**\
+`Unidentified assailants killed at least 43 people in raids on villages in northern Burkina Faso on Sunday, in one of the deadliest such attacks of the past year, the government said. `\
+https://nytimes.com/reuters/2020/03/09/world/africa/09reuters-burkina-security.html?searchResultPosition=10
 
