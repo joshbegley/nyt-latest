@@ -1,24 +1,24 @@
-**Georgia Congressman Graves' Son Injured During Cycling Race**\
-`U.S. Rep. Tom Graves’ son was critically injured while competing in a race with Georgia Tech’s cycling team on Sunday morning.`\
-https://nytimes.com/aponline/2020/03/09/us/ap-us-congressman-graves-son-injured.html?searchResultPosition=5
+**Smoking or Vaping Increases Risks for Those With Coronavirus: NYC Mayor**\
+`Smoking or vaping makes people more vulnerable to suffering severe illness once infected by coronavirus, a spokeswoman for New York City Mayor Bill de Blasio said on Sunday.`\
+https://nytimes.com/reuters/2020/03/09/us/09reuters-health-coronavirus-usa-vaping.html?searchResultPosition=5
 
-**Amid Virus Crisis, Officials Announce Health Care Tech Rules**\
-`With coronavirus topping Americans' concerns, top Trump administration officials tried to switch subjects Monday by announcing final rules aimed at delivering on the unfulfilled promise of electronic health records.`\
-https://nytimes.com/aponline/2020/03/09/us/politics/ap-health-care-electronic-records.html?searchResultPosition=6
+**New York City Could Hit 100 Coronavirus Cases in Two to Three Weeks: Mayor**\
+`New York City could have 100 or more coronavirus cases within two to three weeks, up from 13 now, Mayor Bill de Blasio said on Sunday.`\
+https://nytimes.com/reuters/2020/03/09/us/09reuters-health-coronavirus-usa-nyc.html?searchResultPosition=6
 
-**Wells Fargo Chairwoman Resigns Ahead of Scheduled Testimony**\
-`Wells Fargo Board Chairwoman Elizabeth Duke and director James Quigley are leaving the company. `\
-https://nytimes.com/aponline/2020/03/09/business/ap-us-wells-fargo-board.html?searchResultPosition=7
+**Trial of Programmer Accused in C.I.A. Leak Ends in Hung Jury**\
+`The judge declared a mistrial after jurors were deadlocked on whether Joshua Schulte stole classified documents to give to WikiLeaks.`\
+https://nytimes.com/2020/03/09/nyregion/cia-wikileaks-joshua-schulte-verdict.html?searchResultPosition=7
 
-**The Season’s Most Appealing Textural Furniture**\
-`As of late, designers have offered a study in contrast, with pieces made from rough travertine, nubby linen and smooth, shiny lacquer.`\
-https://nytimes.com/2020/03/09/t-magazine/textural-furniture.html?searchResultPosition=8
+**First Coronavirus Case Detected at EU Commission**\
+`A first case of coronavirus has been detected among staff at the European Commission, a spokeswoman said on Monday.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-eu-commission.html?searchResultPosition=8
 
-**Of Course They Gave Up on Democracy**\
-`Today’s political crisis is of the West’s own making.`\
-https://nytimes.com/2020/03/09/opinion/democracy-eastern-europe.html?searchResultPosition=9
+**FDA Warns Companies Selling Products That Claim to Treat Coronavirus Disease**\
+`The U.S. Food & Drug Administration (FDA) and the Federal Trade Commission (FTC) on Monday issued warning letters to seven companies for selling products that claim to prevent, treat or cure COVID-19 caused by the new coronavirus.`\
+https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-health-coronavirus-fda.html?searchResultPosition=9
 
-**Report: Software Pushed Jet's Nose Down 4 Times Before Crash**\
-`Software designed to stop an aerodynamic stall activated four times as Ethiopian Airlines pilots struggled to control their Boeing 737 Max 8 shortly before the jet slammed into the ground on March 10, 2019.`\
-https://nytimes.com/aponline/2020/03/09/business/bc-ethiopia-plane-crash-interim-report.html?searchResultPosition=10
+**No Hugs, Handshakes as U.S. Churches Take New Precautions Against Coronavirus**\
+`With a wide smile and arms outstretched, but quickly dropped into double elbow bumps, James Harper warmly greets fellow congregants at Our Lady of Lourdes Catholic Church on Sunday in Atlanta's Old Fourth Ward neighborhood.`\
+https://nytimes.com/reuters/2020/03/09/us/09reuters-health-coronavirus-usa-churches.html?searchResultPosition=10
 
