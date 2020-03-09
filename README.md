@@ -1,24 +1,24 @@
+**Japan's Sagawa Express Says Parcel Delivery Man Tested Positive for Coronavirus**\
+`Japan's Sagawa Express, a unit of SG Holdings Co Ltd, said on Monday a delivery man in his 60s of its partner company had tested positive for the coronavirus.`\
+https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-health-coronavirus-sagawa.html?searchResultPosition=5
+
+**China Reports Zero Locally Transmitted Coronavirus Cases Outside Hubei**\
+`Mainland China, outside Hubei province, reported no new locally transmitted cases for the second straight day, as a senior Communist Party official warned against reducing vigilance against the disease and of the risk of social stability.`\
+https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-health-coronavirus-china-toll.html?searchResultPosition=6
+
+**India Inflation Likely Fell to a Three Month Low in February: Reuters Poll**\
+`India's retail inflation likely cooled from recent highs to a three month low in February, due to moderating food prices, but remained above the Reserve Bank of India's target band, a Reuters poll of economists found. `\
+https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-india-economy-poll.html?searchResultPosition=7
+
+**Stewart Hits Winner, N. Dakota Upsets Third-Seed S. Dakota**\
+`Marlon Stewart juked his man and lofted the go-ahead basket with 10 seconds left as North Dakota clipped South Dakota 74-71 in the Summit League quarterfinals Sunday night.`\
+https://nytimes.com/aponline/2020/03/09/sports/ncaabasketball/bc-bkc-summit-n-dakota-s-dakota.html?searchResultPosition=8
+
 **Shanghai Disneyland Resumes Some Resort Ops as Coronavirus Infections Slow**\
 `Walt Disney Co's Shanghai Disneyland said on Monday it will resume a limited number of resort operations as the first step of a phased reopening, although the main theme park will remain shut amid worries about the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-health-coronavirus-shanghai-disneyland.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-health-coronavirus-shanghai-disneyland.html?searchResultPosition=9
 
 **Fiala's Second Goal Lifts Wild Past Ducks 5-4 in OT**\
 `Kevin Fiala scored his second goal of the game with 59 seconds remaining on the clock in overtime and the Minnesota Wild beat the Anaheim Ducks 5-4 on Sunday night.`\
-https://nytimes.com/aponline/2020/03/09/sports/hockey/bc-hkn-wild-ducks.html?searchResultPosition=6
-
-**Afghan President to Go Ahead With Inauguration Despite Rival's Offer**\
-`Afghan President Ashraf Ghani will go ahead with his inauguration on Monday, a top aide said, despite an offer by his main political rival challenging him for the job to postpone his parallel swearing-in ceremony.`\
-https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-afghanistan-election.html?searchResultPosition=7
-
-**Svitolina outlasts Bouzkova in thrilling Monterrey Open Final**\
-`Top seed Elina Svitolina prevailed in a three-hour thriller against Marie Bouzkova 7-5 4-6 6-4 to seize her first title of the season at the Monterrey Open in Mexico on Sunday.`\
-https://nytimes.com/reuters/2020/03/09/sports/tennis/09reuters-tennis-monterrey.html?searchResultPosition=8
-
-**Siakam, Lowry Come Up Big to Lead Raptors Past Kings 118-113**\
-`Pascal Siakam scored 11 of his 23 points in the final 2½ minutes, Toronto got a big fourth quarter from Kyle Lowry and the Raptors held on to beat the Sacramento Kings 118-113 on Sunday night.`\
-https://nytimes.com/aponline/2020/03/09/sports/basketball/bc-bkn-raptors-kings.html?searchResultPosition=9
-
-**Manipulated Biden Video Escalates Online Speech War With Trump**\
-`For the first time, Twitter applies its policy against fake and misleading videos and labels one.`\
-https://nytimes.com/2020/03/09/technology/manipulated-biden-video-trump.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/09/sports/hockey/bc-hkn-wild-ducks.html?searchResultPosition=10
 
