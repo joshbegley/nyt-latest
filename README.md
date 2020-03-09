@@ -1,24 +1,24 @@
-**Annual Holocaust Remembrance March in Poland Postponed Over Coronavirus**\
-`The March of the Living, an annual education event that brings together survivors and others in Poland to remember the Holocaust, has been postponed due to fears of the coronavirus, the event's organizers said late on Sunday. `\
-https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-poland.html?searchResultPosition=5
+**This New Orleans Artist Challenges the Way People See Things**\
+`BMike takes societal misinterpretations and stereotypes and flips them, putting historical figures in unexpected settings.`\
+https://nytimes.com/2020/03/09/arts/bmike-artist-new-orleans.html?searchResultPosition=5
 
-**Foreigners in Beijing Should Refrain From Unnecessary Travel During Epidemic-Government**\
-`Foreigners in China's capital of Beijing should refrain from unnecessary travel during the coronavirus outbreak, a local government official said on Monday, adding that the city faces mounting pressure due to a rising number of imported cases from abroad. `\
-https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-health-coronavirus-china-beijing.html?searchResultPosition=6
+**The ‘London Patient,’ Cured of H.I.V., Reveals His Identity**\
+`Adam Castillejo endured a decade of grueling treatments and moments of despair to become only the second person to be cured of H.I.V. Now, he says, “I want to be an ambassador of hope.”`\
+https://nytimes.com/2020/03/09/health/hiv-aids-london-patient-castillejo.html?searchResultPosition=6
 
-**Stocks, Oil Prices Plunge as Virus Closes Sites Around World**\
-`The world’s largest economies delivered more worrisome cues Monday as anxiety over the virus outbreak sent stock and oil prices plunging and closed sites from the Sistine Chapel to Saudi Arabian schools.`\
-https://nytimes.com/aponline/2020/03/09/world/middleeast/ap-virus-outbreak.html?searchResultPosition=7
+**When the Ocean Gives You Plastic, Make Animals**\
+`The Washed Ashore nonprofit collects garbage on the Oregon coast and creates sculptures of animals whose health is endangered by the trash they are made of.`\
+https://nytimes.com/2020/03/09/arts/design/ocean-plastic-sculpture.html?searchResultPosition=7
 
-**Indian State Retains Billboards 'Naming and Shaming' Anti-Government Protesters**\
-`India's most populous state on Monday defied a request from its top court to remove large displays of the names, pictures and addresses of dozens of anti-government protesters, that have sparked fears for their safety from vigilante mob attacks.  `\
-https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-india-citizenship.html?searchResultPosition=8
+**President Trump on Vaccines: From Skeptic to Cheerleader**\
+`He once blamed vaccines for autism. Now he’s demanding the quick development of one for the coronavirus, but shows limited understanding of the science.`\
+https://nytimes.com/2020/03/09/health/trump-vaccines.html?searchResultPosition=8
 
-**Bucks to Face Nuggets Without Ailing Antetokounmpo**\
-`Giannis Antetokounmpo is making a strong case to repeat as the NBA MVP this season, but with the Milwaukee Bucks superstar nursing a sprained left knee, he will miss Monday night's game at the Denver Nuggets.`\
-https://nytimes.com/reuters/2020/03/09/sports/basketball/09reuters-basketball-nba-mil-den-preview.html?searchResultPosition=9
+**Where Civil War Soldiers Will March Again**\
+`Despite some opposition, the Cameron Art Museum in Wilmington, N.C., is as committed to the Civil War as it is to exhibiting Modernist prints and paintings.`\
+https://nytimes.com/2020/03/09/arts/civil-war-black-soldiers.html?searchResultPosition=9
 
-**China Firm Develops System to Recognize Faces Behind Coronavirus Masks**\
-`A Chinese company says it has developed the country's first facial recognition technology that can identify people when they are wearing a mask, as most are these days because of the coronavirus, and help in the fight against the disease.`\
-https://nytimes.com/reuters/2020/03/09/technology/09reuters-health-coronavirus-facial-recognition.html?searchResultPosition=10
+**Purim Festivities Were Set, Costumes and All. Then Coronavirus Struck**\
+`Purim is a joyous Jewish holiday with storytelling and noisemakers. But synagogues are canceling celebrations and live-streaming instead.`\
+https://nytimes.com/2020/03/09/nyregion/coronavirus-purim-new-york.html?searchResultPosition=10
 
