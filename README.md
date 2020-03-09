@@ -1,24 +1,24 @@
+**Oregon Wins Pac-12 Championship With 89-56 Win Over Stanford**\
+`Sabrina Ionescu had 20 points, 12 assists and eight rebounds to lead No. 3 Oregon to an 89-56 victory over No. 7 Stanford in the Pac-12 tournament title game on Sunday.`\
+https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkw-t25-p12-stanford-oregon.html?searchResultPosition=5
+
+**Costa Rica Raises Coronavirus Cases to Nine, Including Three Americans**\
+`Costa Rica raised to nine the tally of people infected with coronavirus in its territory, up from five a day earlier, the government said Sunday.`\
+https://nytimes.com/reuters/2020/03/08/world/americas/08reuters-health-coronavirus-costa-rica.html?searchResultPosition=6
+
+**Knicks Pull Away in 4th Quarter, Beat Pistons 96-84**\
+`Julius Randle had 22 points and 12 rebounds, and the New York Knicks pulled away in the fourth quarter for a 96-84 victory over the Detroit Pistons on Sunday night.`\
+https://nytimes.com/aponline/2020/03/08/sports/basketball/bc-bkn-pistons-knicks.html?searchResultPosition=7
+
+**Indian Wells Tennis Postponed After Coronavirus Confirmed**\
+`The BNP Paribas Open tennis tournament, set to begin this week, has been postponed after a case of coronavirus was confirmed in the Coachella Valley.`\
+https://nytimes.com/aponline/2020/03/08/sports/tennis/ap-ten-indian-wells-postponed.html?searchResultPosition=8
+
 **Asian Stocks Plunge After Fall in Oil Prices**\
 `Asian stock markets plunged Monday after global oil prices nosedived on worries a global economy weakened by a virus outbreak might be awash in too much crude.`\
-https://nytimes.com/aponline/2020/03/08/business/ap-financial-markets.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/03/08/business/ap-financial-markets.html?searchResultPosition=9
 
 **Indian Wells Tennis Tournament Canceled Due to Coronavirus Concerns**\
 `Organizers of the BNP Paribas Open in Indian Wells canceled the tennis tournament on Sunday due to concerns about the spread of the coronavirus in Southern California. `\
-https://nytimes.com/reuters/2020/03/08/sports/tennis/08reuters-tennis-indianwells.html?searchResultPosition=6
-
-**Indian Wells Tennis Tournament Canceled Because of Coronavirus Outbreak**\
-`Public health officials in California declared an emergency in the area where one of tennis’ signature tournaments would be held.`\
-https://nytimes.com/2020/03/08/sports/coronavirus-indian-wells-canceled.html?searchResultPosition=7
-
-**Japan's Kobe Confirms Coronavirus Case in Woman in Her 40s**\
-`The Japanese city of Kobe said on Monday a woman in her 40s has tested positive for the coronavirus.`\
-https://nytimes.com/reuters/2020/03/08/world/asia/08reuters-health-coronavirus-japan-case.html?searchResultPosition=8
-
-**What Bernie Sanders Gets Right About the Media**\
-`The senator’s sweeping critique of coverage has more merit than we in the media like to admit.`\
-https://nytimes.com/2020/03/08/business/media/bernie-sanders-media.html?searchResultPosition=9
-
-**Murphy's Late Winner Advances Wofford to SoCon Final, 72-70**\
-`Storm Murphy scored 15 points including the winner with 3.1 seconds left, Tray Hollowell added 12 more on a quartet of 3-pointers and Wofford narrowly eliminated Chattanooga 72-70 in the Southern Conference Tourney semifinals on Sunday night.`\
-https://nytimes.com/aponline/2020/03/08/sports/ncaabasketball/bc-bkc-socon-wofford-chattanooga.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/08/sports/tennis/08reuters-tennis-indianwells.html?searchResultPosition=10
 
