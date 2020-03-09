@@ -1,24 +1,24 @@
+**Six Die in Italy Prison Riot Over Anti-Coronavirus Measures**\
+`Six inmates were killed in a prison riot in Italy and guards were taken hostage at another jail, as unrest spread in prisons across the country over measures to contain the coronavirus, including restrictions on visits.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-italy-prisons.html?searchResultPosition=5
+
+**UAE Reports 14 New Coronavirus Cases, Tally Reaches 59**\
+`The United Arab Emirates announced 14 new coronavirus cases on Monday, bringing the total number of people diagnosed to 59, state news agency WAM reported. `\
+https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-health-coronavirus-emirates.html?searchResultPosition=6
+
+**Head of French Airports Group ADP Tests Positive for Coronavirus**\
+`Augustin de Romanet, the head of French airports company ADP, has tested positive for the coronavirus, an ADP spokesman said on Monday.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-france-adp.html?searchResultPosition=7
+
+**Europe Told to Act Now as Coronavirus Locks Down North Italy and Markets Plunge**\
+`Italy's prime minister promised "massive shock therapy" to beat the coronavirus on Monday and urged Europe to act decisively after markets plunged and his country sealed off much of its wealthy industrial north.`\
+https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-health-coronavirus.html?searchResultPosition=8
+
 **Oil Price War, Mecca Ban Are Latest Risks by Saudi Prince**\
 `Saudi Arabia’s Crown Prince Mohammed bin Salman is behind the kingdom's boldest and riskiest moves in decades, most recently shutting down Islam's holiest sites to pilgrims to stymie the spread of a new virus and the government's decision to slash oil prices in what analysts say has sparked a price war  with major producer Russia.`\
-https://nytimes.com/aponline/2020/03/09/world/middleeast/ap-ml-saudi-risky-moves.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/03/09/world/middleeast/ap-ml-saudi-risky-moves.html?searchResultPosition=9
 
 **A D.J. Shows How to Let Go in Authoritarian Kazakhstan**\
 `Nazira is one of the hottest bookings in Europe’s club scene. She’s bringing the carefree spirit of the Continent’s dance floors home with her.`\
-https://nytimes.com/2020/03/09/arts/music/nazira-dj-kazakhstan.html?searchResultPosition=6
-
-**Ex-Turkish Deputy PM Forms New Party to Challenge Erdogan**\
-`A one-time Turkish deputy prime minister established a new political party on Monday — the second former ally of President Recep Tayyip Erdogan to break away from the ruling party and form a new movement to challenge his rule.`\
-https://nytimes.com/aponline/2020/03/09/world/europe/ap-eu-turkey-politics.html?searchResultPosition=7
-
-**Murder Trial of Russian Ex-Agents Opens in Downed Malaysia Airlines Flight**\
-`Four men with ties to the security services are on trial in absentia in the Netherlands. The evidence is expected be embarrassing for the Kremlin.`\
-https://nytimes.com/2020/03/09/world/europe/mh17-trial-russia.html?searchResultPosition=8
-
-**New York Fed Moves to Keep Money Markets Calm Amid Turmoil**\
-`The Federal Reserve branch increased the size of its short-term loan offering, an effort to keep cash flowing smoothly between banks`\
-https://nytimes.com/2020/03/09/business/economy/fed-coronavirus.html?searchResultPosition=9
-
-**Senior Adviser: Montana Gov. Steve Bullock to Run for Senate**\
-`Montana Gov. Steve Bullock will try to unseat first-term Republican Sen. Steve Daines, a senior adviser said Monday, giving Democrats a boost in their effort to take control of the Senate in November.`\
-https://nytimes.com/aponline/2020/03/09/us/politics/ap-us-election-2020-senate-montana.html?searchResultPosition=10
+https://nytimes.com/2020/03/09/arts/music/nazira-dj-kazakhstan.html?searchResultPosition=10
 
