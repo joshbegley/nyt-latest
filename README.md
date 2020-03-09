@@ -1,24 +1,24 @@
+**Svitolina outlasts Bouzkova in thrilling Monterrey Open Final**\
+`Top seed Elina Svitolina prevailed in a three-hour thriller against Marie Bouzkova 7-5 4-6 6-4 to seize her first title of the season at the Monterrey Open in Mexico on Sunday.`\
+https://nytimes.com/reuters/2020/03/09/sports/tennis/09reuters-tennis-monterrey.html?searchResultPosition=5
+
+**Siakam, Lowry Come Up Big to Lead Raptors Past Kings 118-113**\
+`Pascal Siakam scored 11 of his 23 points in the final 2½ minutes, Toronto got a big fourth quarter from Kyle Lowry and the Raptors held on to beat the Sacramento Kings 118-113 on Sunday night.`\
+https://nytimes.com/aponline/2020/03/09/sports/basketball/bc-bkn-raptors-kings.html?searchResultPosition=6
+
+**Manipulated Biden Video Escalates Online Speech War With Trump**\
+`For the first time, Twitter applies its policy against fake and misleading videos and labels one.`\
+https://nytimes.com/2020/03/09/technology/manipulated-biden-video-trump.html?searchResultPosition=7
+
+**Quotation of the Day: New Safety Rules Are Delayed as Everest Climbing Season Looms**\
+`Quotation of the Day for Monday, March 9, 2020.`\
+https://nytimes.com/2020/03/09/todayspaper/quotation-of-the-day-new-safety-rules-are-delayed-as-everest-climbing-season-looms.html?searchResultPosition=8
+
+**No Corrections: March 9, 2020**\
+`No corrections appeared in print on Monday, March 9, 2020.`\
+https://nytimes.com/2020/03/09/pageoneplus/no-corrections-march-9-2020.html?searchResultPosition=9
+
 **Japan Finance Minister Aso Says He's Closely Watching Forex Market**\
 `Japanese Finance Minister Taro Aso said on Monday that nervous moves were seen in the foreign-exchange market and that he was closely watching currencies.`\
-https://nytimes.com/reuters/2020/03/09/world/asia/08reuters-japan-economy-forex-aso.html?searchResultPosition=5
-
-**Coronavirus Live Updates: As World Locks Down, Asia Markets Plummet**\
-`Asian markets opened sharply lower on Monday as investors digested the relentless global spread of the coronavirus and turmoil in the oil markets.`\
-https://nytimes.com/2020/03/09/world/coronavirus-news.html?searchResultPosition=6
-
-**In Coronavirus Fight, China’s Vulnerable Fall Through the Cracks**\
-`In locked-down cities like Wuhan, isolated seniors and disabled people have largely had to fend for themselves.`\
-https://nytimes.com/2020/03/09/business/china-coronavirus-disabilities-wealth-gap.html?searchResultPosition=7
-
-**Australia PM Considering Cash Handout as Part of Fiscal Stimulus-Sky News**\
-`Australian Prime Minister Scott Morrison is considering cash handouts to ordinary citizens as part of an expected A$10 billion ($6.50 billion) fiscal stimulus package, Sky News reported on Monday.`\
-https://nytimes.com/reuters/2020/03/08/world/asia/08reuters-health-coronavirus-australia-budget-cash.html?searchResultPosition=8
-
-**Columbia University Cancels Classes After Coronavirus Exposure**\
-`Scarsdale, N.Y., also announced it was closing its public schools for the week after a teacher tested positive for the virus.`\
-https://nytimes.com/2020/03/08/nyregion/columbia-classes-canceled-coronavirus.html?searchResultPosition=9
-
-**CME Group Says U.S. Stock Futures Hit Down Limit, Continue to Trade**\
-`Futures contracts on the U.S. stock market had hit their 5% overnight down limit but trading in the instruments continued, the CME Group said on Monday.`\
-https://nytimes.com/reuters/2020/03/08/business/08reuters-markets-stocks-cme.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/09/world/asia/08reuters-japan-economy-forex-aso.html?searchResultPosition=10
 
