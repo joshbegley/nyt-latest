@@ -18,7 +18,7 @@ https://nytimes.com/2020/03/09/realestate/1-2-million-homes-in-california.html?s
 `A Victorian in Redlands, a renovated ranch in Sherman Oaks and a townhouse in San Diego.`\
 https://nytimes.com/slideshow/2020/03/09/realestate/what-you-get-for-1-2-million-in-california.html?searchResultPosition=9
 
-**Twitter Agrees to $1 Billion Investment to Stave Off Activist Fund**\
-`The deal with Silver Lake comes after Elliot Management tried to oust C.E.O. Jack Dorsey.`\
+**Twitter Reaches Deal with Activist Fund That Sought C.E.O.’s Ouster**\
+`Elliot Management had tried to oust C.E.O. Jack Dorsey after accumulating a stake in Twitter.`\
 https://nytimes.com/2020/03/09/technology/twitter-silver-lake-investment.html?searchResultPosition=10
 
