@@ -1,4 +1,4 @@
-**White House to Discuss Ways to Limit Coronavirus Economic Fallout**\
-`Advisers are set to present President Trump with a wide range of possible measures meant to mitigate economic fallout as fears of a coronavirus-induced recession mount.`\
-https://nytimes.com/2020/03/09/business/trump-coronavirus-economic-fallout.html?searchResultPosition=10
+**South Carolina Stays No. 1 in Women's Top 25; Oregon Next**\
+`South Carolina ran through the Southeastern Conference Tournament to keep its hold on the No. 1 ranking in The Associated Press women's college basketball poll.`\
+https://nytimes.com/aponline/2020/03/09/sports/ncaabasketball/ap-bkw-t25-womens-bkb-poll.html?searchResultPosition=10
 
