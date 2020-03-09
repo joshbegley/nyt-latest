@@ -1,24 +1,24 @@
-**Smoking or Vaping Increases Risks for Those With Coronavirus: NYC Mayor**\
-`Smoking or vaping makes people more vulnerable to suffering severe illness once infected by coronavirus, a spokeswoman for New York City Mayor Bill de Blasio said on Sunday.`\
-https://nytimes.com/reuters/2020/03/09/us/09reuters-health-coronavirus-usa-vaping.html?searchResultPosition=5
+**Trump Blames Oil Fight,' Fake News' for Stock Market Drop**\
+`U.S. President Donald Trump blamed a fight for oil market share between Saudi Arabia and Russia, as well as unspecified "Fake News," for a precipitous drop in U.S. stock prices on Monday, amid sliding demand for crude due to the coronavirus.`\
+https://nytimes.com/reuters/2020/03/09/business/09reuters-global-oil-trump.html?searchResultPosition=5
 
-**New York City Could Hit 100 Coronavirus Cases in Two to Three Weeks: Mayor**\
-`New York City could have 100 or more coronavirus cases within two to three weeks, up from 13 now, Mayor Bill de Blasio said on Sunday.`\
-https://nytimes.com/reuters/2020/03/09/us/09reuters-health-coronavirus-usa-nyc.html?searchResultPosition=6
+**Coronavirus to Drive European Airline Industry Shakeout**\
+`The coronavirus will accelerate a Darwinian shakeout in Europe's overcrowded airline industry that ultimately benefits Ryanair  and British Airways owner IAG, industry experts predict.`\
+https://nytimes.com/reuters/2020/03/09/business/09reuters-health-coronavirus-europe-airlines-analysis.html?searchResultPosition=6
 
-**Trial of Programmer Accused in C.I.A. Leak Ends in Hung Jury**\
-`The judge declared a mistrial after jurors were deadlocked on whether Joshua Schulte stole classified documents to give to WikiLeaks.`\
-https://nytimes.com/2020/03/09/nyregion/cia-wikileaks-joshua-schulte-verdict.html?searchResultPosition=7
+**Instant View: Wall Street Plunges After Oil Shock, Trading Halts Then Resumes**\
+`U.S. equities plunged on Monday as trading resumed following a slump in oil prices. `\
+https://nytimes.com/reuters/2020/03/09/business/09reuters-usa-stocks-instantview.html?searchResultPosition=7
 
-**First Coronavirus Case Detected at EU Commission**\
-`A first case of coronavirus has been detected among staff at the European Commission, a spokeswoman said on Monday.`\
-https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-eu-commission.html?searchResultPosition=8
+**Trump Blames Market Drop on Oil Prices and the News Media**\
+`While in Florida for a campaign fund-raiser, the president disregarded the fear of coronavirus and sought to reassure Americans that the risk remained low.`\
+https://nytimes.com/2020/03/09/us/politics/trump-blames-market-drop-on-oil-prices-and-the-news-media.html?searchResultPosition=8
 
-**FDA Warns Companies Selling Products That Claim to Treat Coronavirus Disease**\
-`The U.S. Food & Drug Administration (FDA) and the Federal Trade Commission (FTC) on Monday issued warning letters to seven companies for selling products that claim to prevent, treat or cure COVID-19 caused by the new coronavirus.`\
-https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-health-coronavirus-fda.html?searchResultPosition=9
+**Exclusive: Goldman Turns to Veteran Daffey to Navigate Post-Brexit Markets**\
+`Goldman Sachs named top trader Michael Daffey as global markets chairman on Monday, with a remit to strengthen key client relationships as the Wall Street giant tries to remodel its trading business in Europe after Brexit.`\
+https://nytimes.com/reuters/2020/03/09/business/09reuters-goldman-sachs-daffey-exclusive.html?searchResultPosition=9
 
-**No Hugs, Handshakes as U.S. Churches Take New Precautions Against Coronavirus**\
-`With a wide smile and arms outstretched, but quickly dropped into double elbow bumps, James Harper warmly greets fellow congregants at Our Lady of Lourdes Catholic Church on Sunday in Atlanta's Old Fourth Ward neighborhood.`\
-https://nytimes.com/reuters/2020/03/09/us/09reuters-health-coronavirus-usa-churches.html?searchResultPosition=10
+**Boeing Shares Plunge as FAA Rejects Proposal on MAX Wiring**\
+`Shares of Boeing Co dropped 12% on Monday after the planemaker's proposal to leave wiring bundles in place on the grounded 737 MAX failed to get the backing of U.S. aviation regulators, potentially delaying the plane's return to service.`\
+https://nytimes.com/reuters/2020/03/09/business/09reuters-boeing-hot.html?searchResultPosition=10
 
