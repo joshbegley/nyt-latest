@@ -1,24 +1,24 @@
-**SpaceX's 20th Station Shipment Arrives With Candy, Science**\
-`A SpaceX cargo ship arrived at the International Space Station on Monday, delivering the company's 20th batch of gear and treats.`\
-https://nytimes.com/aponline/2020/03/09/science/ap-us-sci-space-station.html?searchResultPosition=5
+**Saudi Princes' Detentions Sent a Message: Don't Block My Path to the Throne**\
+`Saudi Arabia's crown prince meant to send a strong message to critics within the royal family by detaining senior princes this weekend: Don't you dare oppose my succession to the throne.`\
+https://nytimes.com/reuters/2020/03/09/world/middleeast/09reuters-saudi-detentions-succession-analysis.html?searchResultPosition=5
 
-**High Level of Seine River Concerns Paris Officials**\
-`The water level in the Seine River is rising after massive rainfall, adding to concerns that it could break its bank in Paris.`\
-https://nytimes.com/aponline/2020/03/09/world/europe/ap-eu-france-seine-river.html?searchResultPosition=6
+**Olympics: Tokyo 2020 Games Torch-Lighting Ceremony to Be Held Without Spectators**\
+`The Tokyo 2020 Olympics torch-lighting ceremony in ancient Olympia this week will be staged without spectators as organizers protect the event from the coronavirus, Greece's Olympic Committee said on Monday.`\
+https://nytimes.com/reuters/2020/03/09/sports/olympics/09reuters-health-coronavirus-olympia-ceremony.html?searchResultPosition=6
 
-**Wells Fargo’s Chairwoman, Betsy Duke, Resigns**\
-`Ms. Duke was expected to face lawmakers’ questions this week following a critical report about the bank.`\
-https://nytimes.com/2020/03/09/business/wells-fargo-betsy-duke-resigns.html?searchResultPosition=7
+**Germany Says to Help Companies Hit by Coronavirus**\
+`German companies hit by the coronavirus outbreak through no fault of their own will get the help they need, the country's Economy Minister Peter Altmaier said on Monday.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-germany-altmaier.html?searchResultPosition=7
 
-**Saudi to Fine People Who Do Not Declare Accurate Health Details on Entry: State TV**\
-`Saudi Arabia announced on Monday that it would impose a fine of up to 500,000 riyals ($133,000) on those who do not declare correct health-related information at entry points, according to state TV.`\
-https://nytimes.com/reuters/2020/03/09/world/middleeast/09reuters-health-coronavirus-saudi.html?searchResultPosition=8
+**EU Commission Looks at Doing Whatever It Takes to Help Economy Against Coronavirus**\
+`The European Union is looking at all possible options to help the economy cope with the coronavirus outbreak, the president of the European Commission said on Monday.`\
+https://nytimes.com/reuters/2020/03/09/us/09reuters-health-coronavirus-eu-vonderleyen.html?searchResultPosition=8
 
-**Indonesia Court Annuls Government's Health Insurance Premium Hikes: Detik.com**\
-`Indonesia's Supreme Court has annulled the government's move to increase health insurance premiums for hundreds of millions of people, news website Detik.com reported on Monday, citing a court ruling.`\
-https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-indonesia-healthcare.html?searchResultPosition=9
+**Russian Delegation to Visit Turkey for Talks on Syria's Idlib**\
+`A Russian military delegation will hold talks with Turkish officials in Ankara on Tuesday to discuss a deal which the two countries reached last week for a ceasefire in northwest Syria's Idlib region, the Turkish Defence Ministry said on Monday.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-syria-security-turkey.html?searchResultPosition=9
 
-**PGA Tour Media Deal Aimed at More Video for Bigger Audience**\
-`The PGA Tour announced an expansive media rights deal Monday that brings ESPN back into the fold with its streaming service, joining two networks as part of a package designed to deliver more video content and reach a broader audience.`\
-https://nytimes.com/aponline/2020/03/09/sports/golf/ap-glf-pga-tour-media-rights-1st-ld-writethru.html?searchResultPosition=10
+**SAP Scratches All Events in March; SAPPHIRE NOW Still On**\
+`Business software company SAP said on Monday it was cancelling or postponing all major client events this month due to the coronavirus epidemic, but still planned to go ahead with its U.S. user conference SAPPHIRE NOW in mid-May.`\
+https://nytimes.com/reuters/2020/03/09/technology/09reuters-health-coronavirus-sap-se.html?searchResultPosition=10
 
