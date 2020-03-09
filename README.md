@@ -1,24 +1,24 @@
+**Factbox: Automakers' Sales Sink in China Due to Coronavirus Epidemic**\
+`Vehicle sales in China, the world's biggest car market, tumbled in February as customers stayed at home and away from dealerships due to the coronavirus epidemic that has killed 3,100 people in the world's second-biggest economy.`\
+https://nytimes.com/reuters/2020/03/09/business/09reuters-health-cononavirus-china-autos-factbox.html?searchResultPosition=5
+
+**Lagarde's First Big Test: Five Questions for the ECB**\
+`European Central Bank President Christine Lagarde faces her first major test on Thursday, as a panicked market awaits her plan to tackle the fallout from a coronavirus outbreak that risks tipping the euro zone into recession.`\
+https://nytimes.com/reuters/2020/03/09/business/09reuters-eurozone-markets-ecb-graphic.html?searchResultPosition=6
+
+**Travel Curbs on South Koreans Prompt K-Pop Cancellations, Especially in Japan**\
+`Japan's travel restrictions on South Koreans over the coronavirus epidemic have spurred cancellations of a string of K-pop concerts scheduled in Japan, threatening to hurt the Korean entertainment industry in its most lucrative market. `\
+https://nytimes.com/reuters/2020/03/09/arts/09reuters-health-coronavirus-kpop.html?searchResultPosition=7
+
+**Grief, Controversy Mark Anniversary of Ethiopian Plane Crash**\
+`The year since the crash of an Ethiopian Airlines Boeing 737 Max has been a journey through grief, anger and determination for Ruth Kageche, Zipporah Kuria and others whose loved ones were on the plane.`\
+https://nytimes.com/aponline/2020/03/09/world/africa/bc-af-ethiopia-plane-crash-anniversary.html?searchResultPosition=8
+
 **British PM to Hold Emergency Meeting on Coronavirus**\
 `British Prime Minister Boris Johnson will on Monday chair an emergency meeting on coronavirus as the government mulls more stringent measures to tackle the outbreak. `\
-https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-britain.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-britain.html?searchResultPosition=9
 
 **Lesson of the Day: ‘Sneezing Dogs, Dancing Bees: How Animals Vote’**\
 `In this lesson, students will learn about group decision making in the animal kingdom and consider how animals’ varied approaches might inform our own voting process.`\
-https://nytimes.com/2020/03/09/learning/lesson-of-the-day-sneezing-dogs-dancing-bees-how-animals-vote.html?searchResultPosition=6
-
-**European Futures Slump 10% as Oil Prices Crash**\
-`European futures tumbled 10% on Monday as the launch of a price war between Saudi Arabia and Russia sent oil prices crashing, adding to fears the world was sliding into recession on the back of the coronavirus epidemic.`\
-https://nytimes.com/reuters/2020/03/09/business/09reuters-europe-stocks.html?searchResultPosition=7
-
-**Business Picks Up Pace in China, but Global Virus Spread May Slow Recovery**\
-`China's business and travel activities are steadily recovering after being disrupted by the coronavirus outbreak, but rapidly rising infections globally will pose a challenge to the country's broader economic resumption.`\
-https://nytimes.com/reuters/2020/03/09/business/09reuters-health-coronavirus-china-bigdata-graphic.html?searchResultPosition=8
-
-**Dashboard of Japanese Stocks With a Stake in Olympics' Success**\
-`Japanese stocks banking on the success of the Olympics this year are taking a hit as the rapid spread of coronavirus is threatening cancellation of the world's biggest sporting tournament.`\
-https://nytimes.com/reuters/2020/03/09/business/09reuters-japan-markets-olympics-graphic.html?searchResultPosition=9
-
-**China Calls for Peace Dialogue After North Korea Launches Projectiles**\
-`China's foreign ministry, asked about North Korea's launch of projectiles, says it calls on all parties to adhere to consultation and dialogue to achieve lasting peace in the Korean peninsula.`\
-https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-northkorea-missiles-china.html?searchResultPosition=10
+https://nytimes.com/2020/03/09/learning/lesson-of-the-day-sneezing-dogs-dancing-bees-how-animals-vote.html?searchResultPosition=10
 
