@@ -1,4 +1,4 @@
-**South Carolina Stays No. 1 in Women's Top 25; Oregon Next**\
-`South Carolina ran through the Southeastern Conference Tournament to keep its hold on the No. 1 ranking in The Associated Press women's college basketball poll.`\
-https://nytimes.com/aponline/2020/03/09/sports/ncaabasketball/ap-bkw-t25-womens-bkb-poll.html?searchResultPosition=10
+**Cruise Ship Afflicted With Coronavirus to Dock at Oakland Harbor**\
+`After days awaiting clearance to come ashore, the ship is heading into the San Francisco Bay with 21 confirmed coronavirus cases onboard, and possibly more.`\
+https://nytimes.com/2020/03/09/us/coronavirus-cruise-ship-oakland-grand-princess.html?searchResultPosition=10
 
