@@ -1,24 +1,24 @@
+**Amid Migrant Crisis, Greece-Turkey Conflict Plays Out on Social Media**\
+`Greeks and Turks are waging a proxy war on social media with photos, video and commentary purporting to show the other side behaving badly in a migrant crisis that has seriously strained already tense relations between Athens and Ankara.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-syria-security-greece-turkey.html?searchResultPosition=5
+
+**Financial System Faces Biggest Test Since 2008 as Coronavirus Spreads**\
+`The Trump administration has chipped away at the post-crisis regulatory system, moves that could expose financial system vulnerabilities if the economic threat from the virus intensifies.`\
+https://nytimes.com/2020/03/09/us/politics/financial-regulations-coronavirus.html?searchResultPosition=6
+
+**Wall Street Circuit Breakers Trip as Markets, Crude, Plunge**\
+`U.`\
+https://nytimes.com/aponline/2020/03/09/business/bc-us-virus-outbreak-business-fallout.html?searchResultPosition=7
+
+**McCoy Tyner’s Essential Recordings: Listen to 11 Tracks**\
+`Playing with Coltrane and leading his own groups, the pianist’s indelible style stood on its own.`\
+https://nytimes.com/2020/03/09/arts/music/mccoy-tyner-essential-recordings.html?searchResultPosition=8
+
+**Mart Crowley, ‘Boys in the Band’ Playwright, Dies at 84**\
+`When it opened in 1968, the play broke new ground in its depiction of gay characters.`\
+https://nytimes.com/2020/03/09/arts/mart-crowley-dead.html?searchResultPosition=9
+
 **Myanmar Army Sues Reuters for Criminal Defamation: Police**\
 `Myanmar police said the army had filed a lawsuit against Reuters news agency and a local lawmaker for criminal defamation, weeks after the military objected to a news story published about the death of two Rohingya Muslim women as a result of shelling in Rakhine state.`\
-https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-myanmar-reuters.html?searchResultPosition=5
-
-**Islamic State Claims Rocket Attack Targeting Afghan Inauguration: Statement**\
-`Islamic State has claimed responsibility for a rocket attack targeting the inauguration of Ashraf Ghani as Afghan president in Kabul on Monday, the group said in a statement on an affiliated Telegram channel without giving evidence.`\
-https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-afghanistan-politics-claim.html?searchResultPosition=6
-
-**Factbox: Who Is Afghanistan's Self-Appointed President, Abdullah Abdullah?**\
-`Abdullah Abdullah, a three-times presidential contender, held a parallel inauguration as his rival, Ashraf Ghani, was sworn in as president of Afghanistan on Monday.`\
-https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-afghanistan-politics-factbox.html?searchResultPosition=7
-
-**What the Heck Is That?**\
-`A look at one of the entries from last week’s puzzles that stumped our solvers.`\
-https://nytimes.com/2020/03/09/crosswords/heck-crosswords-swole-.html?searchResultPosition=8
-
-**France Pushes for Flexibility From Bank Regulators Over Outbreak: Sources**\
-`France wants European banking regulators to show flexibility towards firms falling behind on their debt payments due to the coronavirus outbreak, two French finance ministry officials said on Monday.`\
-https://nytimes.com/reuters/2020/03/09/business/09reuters-health-coronavirus-france-banks.html?searchResultPosition=9
-
-**Cargill Says Demand for Denatured Ethanol in Europe, Used in Hand Sanitizer, Doubled**\
-`Cargill said on Monday that demand for its denatured ethanol in Europe, a product that can be used in hand sanitizer, has doubled since last month.`\
-https://nytimes.com/reuters/2020/03/09/us/09reuters-health-coronavirus-cargill.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/09/world/asia/09reuters-myanmar-reuters.html?searchResultPosition=10
 
