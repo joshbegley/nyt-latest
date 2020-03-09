@@ -3,6 +3,6 @@
 https://nytimes.com/aponline/2020/03/09/world/europe/ap-eu-poland-chopin-competition.html?searchResultPosition=9
 
 **Federal Prosecutor Fatally Shoots Wife, Self in California**\
-`A federal prosecutor in California fatally shot his wife before killing himself Sunday, authorities said.`\
+`A federal prosecutor in California fatally shot his wife before killing himself Sunday in their home, authorities said.`\
 https://nytimes.com/aponline/2020/03/09/us/ap-us-prosecutor-murder-suicide-1st-ld-writethru.html?searchResultPosition=10
 
