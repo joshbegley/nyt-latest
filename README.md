@@ -1,24 +1,24 @@
-**This Is Life Under Lockdown in Italy**\
-`Your tickets for concerts and football games are useless. Your children can’t go to school. Even mass is canceled.`\
-https://nytimes.com/2020/03/09/opinion/italy-coronavirus.html?searchResultPosition=5
+**Swedish Central Banker Tests Positive for New Coronavirus**\
+`Sweden's Central Bank said on Monday that one of its rate-setting board members, Deputy Governor Martin Floden, had tested positive for the new coronavirus.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-sweden-cenbank.html?searchResultPosition=5
 
-**Boston Braces for Large Crowds as 1st Pot Shop Opens**\
-`The first recreational marijuana shop in a major East Coast city opens Monday in Boston, where owners are bracing for large crowds.`\
-https://nytimes.com/aponline/2020/03/09/business/ap-us-marijuana-boston.html?searchResultPosition=6
+**Albania Halts Schools, Italy Flights, Ferries Over Coronavirus**\
+`Albania reported its first coronavirus infections on Monday - a man who returned from Italy and infected his father, prompting the government to shut down schools for two weeks and cancel flight and ferry services to Italy until April 3.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-albania.html?searchResultPosition=6
 
-**Former Albanian Prosecutor General Accused of Corruption**\
-`Albanian prosecutors on Monday charged the country's former top prosecutor with hiding illegally owned property.`\
-https://nytimes.com/aponline/2020/03/09/world/europe/ap-eu-albania-corruption.html?searchResultPosition=7
+**Number of Dutch Coronavirus Infections Rises to 321: Health Authorities**\
+`The number of people infected with the new coronavirus in the Netherlands increased to 321 on Monday, up from 264 a day earlier, Dutch health authorities said.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-netherlands-tally.html?searchResultPosition=7
 
-**Ethiopian Report on 737 Max Crash Blames Boeing**\
-`An analysis released on Monday about the Ethiopian Airlines crash a year ago did not blame the carrier or its pilots.`\
-https://nytimes.com/2020/03/09/world/africa/ethiopia-crash-boeing.html?searchResultPosition=8
+**EU Leaders Set to Hold Emergency Talks Over Coronavirus**\
+`European Union leaders are set to hold a teleconference "shortly" to discuss a coordinated EU response to the coronavirus outbreak, the president of the European Council Charles Michel said on Monday.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-eu-talks.html?searchResultPosition=8
 
-**Twitter in Deal With Silver Lake, Elliott; Dorsey Still CEO**\
-`Twitter says it's reached an investment deal with Silver Lake and Elliott Management that will keep Jack Dorsey as the social media company's CEO.`\
-https://nytimes.com/aponline/2020/03/09/business/ap-us-twitter-elliott.html?searchResultPosition=9
+**Poland Sets Up Health Checks on Borders**\
+`Poland will conduct health checks at its borders to stem the spread of coronavirus, Prime Minister Mateusz Morawiecki said on Monday.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-poland-borders.html?searchResultPosition=9
 
-**Coronavirus in N.Y.: Thousands of Students Face Shuttered Schools**\
-`Hofstra, Yeshiva and Columbia universities canceled classes, and public schools in the suburb of Scarsdale will close for the week.`\
-https://nytimes.com/2020/03/09/nyregion/coronavirus-new-york.html?searchResultPosition=10
+**France's Macron to Hold Coronavirus Call With EU Leaders on Tuesday**\
+`French President Emmanuel Macron will hold a video-conference call on Tuesday with other EU leaders and with EU council leader Charles Michel to coordinate a response to the coronavirus, an official in Macron's Elysee office told Reuters.`\
+https://nytimes.com/reuters/2020/03/09/world/europe/09reuters-health-coronavirus-france-macron.html?searchResultPosition=10
 
