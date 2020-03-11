@@ -1,6 +1,6 @@
-**Fashion’s Coronavirus Patient Zero Speaks**\
+**Fashion’s Coronavirus ‘Patient Zero’ Speaks**\
 `Nga Nguyen and what happens when Instagram, money, fashion shows and Covid-19 collide.`\
-https://nytimes.com/2020/03/11/style/fashions-coronavirus-patient-zero-speaks.html?searchResultPosition=1
+https://nytimes.com/2020/03/11/style/fashion-coronavirus-patient.html?searchResultPosition=1
 
 **With a Torrent of Money, Britain Takes Aim at Coronavirus and Austerity**\
 `The central bank and the government unleash funds directed at rescuing Britain from the outbreak, while repairing tattered budgets.`\
