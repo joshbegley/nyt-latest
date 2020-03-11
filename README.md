@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/03/11/sports/ap-sports-virus-outbreak.html?sea
 https://nytimes.com/aponline/2020/03/11/us/ap-us-virus-outbreak-homemade-sanitizer.html?searchResultPosition=6
 
 **PepsiCo Buying Energy Drink Maker Rockstar for $3.85B**\
-`PepsiCo says it's buying energy drink maker Rockstar Energy Beverages for $3.85 billion.`\
+`PepsiCo is buying the energy drink maker Rockstar Energy Beverages for $3.85 billion.`\
 https://nytimes.com/aponline/2020/03/11/business/bc-us-pepsico-rockstar.html?searchResultPosition=7
 
 **On Politics: Biden Cruises**\
