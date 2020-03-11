@@ -8,7 +8,7 @@ https://nytimes.com/aponline/2020/03/11/us/ap-us-virus-outbreak-television.html?
 
 **‘I’m Baffled’: What It’s Like to Be a Black Sanders Supporter in the South**\
 `A small minority of older black voters in the South support Sanders, and they are discouraged and baffled by the near-universal rejection of his campaign.`\
-https://nytimes.com/2020/03/11/us/im-baffled-what-its-like-to-be-a-black-sanders-supporter-in-the-south.html?searchResultPosition=3
+https://nytimes.com/2020/03/11/us/sanders-black-supporters-south.html?searchResultPosition=3
 
 **Lucas Hits Late 3, Oregon State Beats Utah 71-69 at Pac-12**\
 `Jarod Lucas hit a 3-pointer with 1.8 seconds left and Oregon State withstood Alfonso Plummer's conference-record 11 3-pointers to beat Utah 71-69 in the opening round of the Pac-12 tournament on Wednesday.`\
