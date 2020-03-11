@@ -1,40 +1,40 @@
-**Italy PM Conte Toughens Coronavirus Lockdown With New Measures**\
-`Prime Minister Giuseppe Conte added new restrictions on Wednesday to the lockdown imposed to fight the coronavirus after figures showed Italy posting the highest daily increase in deaths of any country since the outbreak began.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-italy-crackdown.html?searchResultPosition=1
+**Coronavirus Probe at California Nursing Home Slowed by Shortage of Test Kits**\
+`A shortage of coronavirus testing kits is complicating efforts by California health officials to monitor a potential outbreak of the disease at nursing home where an elderly woman died from the infectious disease this week, authorities said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-california.html?searchResultPosition=1
 
-**Many Willing to Trade Genetic Data for Compensation, Control**\
-`More than half of Americans want money and control when companies or organizations use their genetic data, a new study suggests.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-genetics-privacy.html?searchResultPosition=2
+**Trump Will Make National Address at 9 P.m./0100 GMT on Wednesday**\
+`U.S. President Donald Trump said on Wednesday he would deliver a national address from the Oval Office at 9 p.m. EDT (0100 GMT) amid a coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-trump-remarks.html?searchResultPosition=2
 
-**Trump Moves to Increase Availability of Respirators**\
-`President Donald Trump on Wednesday signed a memo directing the U.S. secretary of labor to take steps to increase the availability of respirators for use by healthcare workers dealing with the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-respirators.html?searchResultPosition=3
+**Trump to Address Travel Restrictions, Says China Healing, Europe in Trouble**\
+`U.S. President Donald Trump said he would address travel restrictions to Europe in a statement later on Wednesday, hinting that decisions have been made involving Asia and Europe amid a fast-moving global coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-trump-travel.html?searchResultPosition=3
 
-**Critics Hear Political Tone as Pompeo Calls Out Diplomatic Rivals Over Human Rights**\
-`China, Cuba, Iran and Venezuela were cited as among the worst violators. All four are targets of pressure campaigns by the Trump administration to install sweeping change.`\
-https://nytimes.com/2020/03/11/us/politics/pompeo-global-human-rights.html?searchResultPosition=4
+**Mountain Lion Bites Colorado Deputy Responding to Attack**\
+`Authorities in northern Colorado say a mountain lion attacked a person and bit a sheriff's deputy who was responding to help.`\
+https://nytimes.com/aponline/2020/03/11/us/ap-us-mountain-lion-attack-1st-ld-writethru.html?searchResultPosition=4
 
-**White House Task Force Recommends Anti-Coronavirus Strategies for Four Counties**\
-`The White House coronavirus task force on Wednesday recommended strategies to combat the outbreak in the hard-hit counties of King, Pierce and Snohomish in Washington state and Santa Clara in California.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-mitigation.html?searchResultPosition=5
+**Broadway Shows Will Go on Despite Virus Concerns**\
+`The new coronavirus has reached Broadway, but the shows on the Great White Way are scheduled to go on as planned.`\
+https://nytimes.com/aponline/2020/03/11/us/ap-us-virus-outbreak-broadway.html?searchResultPosition=5
 
-**Miami Airport Customs Officer Charged With Fondling Girl, 16**\
-`A U.S. Customs and Border Protection officer who works at a South Florida airport fondled a 16-year-old girl and tried to take pornographic photos of her, authorities said.`\
-https://nytimes.com/aponline/2020/03/11/us/ap-us-customs-officer-child-porn.html?searchResultPosition=6
+**Starbucks and Others Shut Shops in Italy Amid Coronavirus Lockdown**\
+`From Starbucks to Giorgio Armani, several Italian and foreign groups shut down their shops in Italy as the country fights to contain the worst outbreak of coronavirus outside China.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-italy-shops.html?searchResultPosition=6
 
-**A Look at What Happens When Stocks Enter a Bear Market**\
-`Wall Street’s staggering skid that began less than three weeks ago has pulled the Dow Jones Industrial Average into what’s known as a bear market.`\
-https://nytimes.com/aponline/2020/03/11/business/bc-financial-markets-bear-market.html?searchResultPosition=7
+**UK to Introduce More Stringent Measures to Tackle Coronavirus Outbreak**\
+`British Prime Minister Boris Johnson will chair an emergency meeting on Thursday at which he is expected to approve moving to the "delay phase" of the coronavirus response that includes more stringent measures to counter the outbreak. `\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-britain.html?searchResultPosition=7
 
-**CBS News Shutters Office After Two Employees Get Coronavirus**\
-`CBS News shut down its New York City headquarters for cleaning and disinfecting on Wednesday after two of its employees tested positive for coronavirus.`\
-https://nytimes.com/aponline/2020/03/11/us/ap-us-virus-outbreak-media.html?searchResultPosition=8
+**Qiagen Boosting Production of Chemical Needed to Test for Coronavirus**\
+`German molecular testing company Qiagen said on Wednesday it was ramping up production of a chemical used in some coronavirus tests, after a report that shortages could disrupt testing in the United States.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-qiagen.html?searchResultPosition=8
 
-**Coronavirus Has Caused a Hand Sanitizer Shortage. What Should You Do?**\
-`Using hand sanitizer helps prevent the spread of coronavirus. So what do you do when it’s sold out?`\
-https://nytimes.com/2020/03/11/smarter-living/wirecutter/coronavirus-hand-sanitizer.html?searchResultPosition=9
+**AA, Other 12-Step Programs More Effective Than Talk Therapies**\
+`Alcoholics Anonymous and similar 12-step programs can lead to higher rates of continuous abstinence than other addiction treatment approaches like cognitive behavioral therapy, a large new study suggests. `\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-12step-alcohol-abuse.html?searchResultPosition=9
 
-**Coronavirus Briefing: What Happened Today**\
-`The W.H.O. declared the outbreak a global pandemic, and said it was vital to keep fighting its spread.`\
-https://nytimes.com/2020/03/11/world/coronavirus-news-today.html?searchResultPosition=10
+**Pelosi, Mnuchin Hold Second Phone Call on Wednesday on Coronavirus**\
+`U.S. House Speaker Nancy Pelosi and Treasury Secretary Steven Mnuchin spoke for a second time on Wednesday about legislation to bolster the economy in the face of the coronavirus outbreak, Pelosi's office said in a tweet.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-pelosi.html?searchResultPosition=10
 
