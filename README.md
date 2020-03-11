@@ -1,40 +1,40 @@
-**DC Health Officials Recommend Canceling All Mass Gatherings**\
-`Washington health officials recommended on Wednesday that all “non-essential mass gatherings, including conferences and conventions,” be postponed or canceled through the end of March in light of the coronavirus outbreak, a move that could imperil the popular Cherry Blossom Festival. `\
-https://nytimes.com/aponline/2020/03/11/us/politics/ap-us-virus-outbreak-nations-capital.html?searchResultPosition=1
+**Ivory Coast Confirms First Case of Coronavirus: Health Ministry**\
+`Ivory Coast has confirmed its first case of coronavirus, a 45-year-old Ivorian man who had recently traveled to Italy, the health ministry said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/africa/11reuters-health-coronavirus-ivorycoast.html?searchResultPosition=1
 
-**Administration Weighs Delaying Tax Deadline Amid Outbreak**\
-`The Trump administration is working on plans to delay the April 15 federal tax deadline for most individual taxpayers as well as small businesses.`\
-https://nytimes.com/aponline/2020/03/11/business/bc-us-virus-outbreak-tax-delay.html?searchResultPosition=2
+**Make T Something | Katie Stout**\
+`The furniture designer Katie Stout sprinkles a little glitter on T’s ongoing challenge: to make an entirely new art object in under an hour with just six materials.`\
+https://nytimes.com/video/t-magazine/100000007006059/make-t-something-katie-stout.html?searchResultPosition=2
 
-**Exclusive: White House to Discuss New Travel Restrictions on Europe-Sources**\
-`The Trump administration is set to discuss new travel restrictions on European countries at a meeting on Wednesday in response to the coronavirus crisis, sources familiar with the discussions said.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-travel-exclusive.html?searchResultPosition=3
+**Mladic Appeal Hearing Postponed Due to Scheduled Surgery**\
+`International judges on Wednesday postponed an appeal hearing for former Bosnian Serb military chief Ratko Mladic against his convictions on charges including genocide because Mladic is due to undergo surgery.`\
+https://nytimes.com/aponline/2020/03/11/world/europe/ap-eu-bosnia-war-crimes-mladic.html?searchResultPosition=3
 
-**Ireland Records First Death From Coronavirus: RTE**\
-`A elderly woman with an underlying illness who contracted the coronavirus became the first to die from the virus in Ireland on Wednesday, local media including national broadcaster RTE and the Irish Times reported.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-ireland-death.html?searchResultPosition=4
+**White House, Tech Industry Meet to Discuss Coronavirus Response**\
+`White House officials met Wednesday with U.S. technology industry officials to discuss tech-related response efforts to the coronavirus outbreak and ways for government to collaborate with the private sector.`\
+https://nytimes.com/reuters/2020/03/11/technology/11reuters-health-coronavirus-usa-tech.html?searchResultPosition=4
 
-**Bulgarian Orthodox Church to Continue All Services for 'Health' Reasons Despite Coronavirus**\
-`The leader of Bulgaria's main Orthodox Church said on Wednesday it would continue to hold all traditional services ahead of Easter despite the coronavirus outbreak as they were key to the physical and mental health of worshippers.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-bulgaria.html?searchResultPosition=5
+**Coronavirus Death Toll in Italy's Lombardy Region Rises to 617: Sources**\
+`The death toll from an outbreak of coronavirus in the northern Italian region of Lombardy, which has borne the brunt of a nationwide contagion, has risen over the past day to 617 from 468, two sources with access to the data said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-italy-lombardy.html?searchResultPosition=5
 
-**House Democrats to Announce Coronavirus Economic Relief Package: Aide**\
-`U.S. House Democratic leaders plan to unveil their coronavirus economic relief package later on Wednesday ahead of an expected  floor vote on Thursday, according to a House leadership aide.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-house.html?searchResultPosition=6
+**Top U.S. Senate Democrat: Coronavirus Relief Must Address Housing, Schools**\
+`U.S. Senate Democrats on Wednesday said any economic relief package amid the ongoing coronavirus outbreak must include funds to help support housing, and to help keep schools and child care centers clean, among other community-related assistance. `\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-schumer.html?searchResultPosition=6
 
-**The Latest: Health Official Recommends No Fans at NBA Games**\
-`The Latest on the coronavirus outbreak's affect on sports around the globe (all times EDT):`\
-https://nytimes.com/aponline/2020/03/11/sports/ap-us-virus-outbreak-sports-the-latest.html?searchResultPosition=7
+**U.S. CDC Reports 987 Coronavirus Cases, Death Tally of 29**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Wednesday reported 987 cases of the coronavirus, an increase of 291 from its previous count, and said that the number of deaths had risen by 4 to 29.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-cdc.html?searchResultPosition=7
 
-**Trump Order Expected on Medical Supplies Amid Outbreak**\
-`President Donald Trump is expected to announce an executive order Wednesday insisting on American-made medical supplies and pharmaceuticals in response to the coronavirus outbreak, according to a person familiar with the plan.`\
-https://nytimes.com/aponline/2020/03/11/us/politics/ap-us-virus-outbreak-medical-supplies.html?searchResultPosition=8
+**U.S. Capitol May Need to Be Closed to Visitors in Coronavirus Response: Senior Democrat**\
+`The U.S. Capitol may need to be closed to visitors at some point to prevent the spread of coronavirus, the No. 2 Democrat in the House of Representatives said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-capitol.html?searchResultPosition=8
 
-**& Sons, a Sommelier’s Ham Bar, Opens in Prospect-Lefferts Gardens**\
-`The restaurant in the Brooklyn Museum is changing its personality; the Mermaid Inn gets a fourth location; and more restaurant news.`\
-https://nytimes.com/2020/03/11/dining/nyc-restaurant-news.html?searchResultPosition=9
+**Kuwait to Halt Commercial Passenger Flights, Declare Public Holiday**\
+`Kuwait will halt all commercial flights to and from the Gulf Arab state starting Friday and until further notice, with the exception of cargo flights, state news agency KUNA said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/middleeast/11reuters-health-coronavirus-kuwait.html?searchResultPosition=9
 
-**Wisconsin Voter Purge Case Appealed to State Supreme Court**\
-`A conservative law firm asked the Wisconsin Supreme Court on Wednesday to overturn an appeals court ruling that stopped the purging of more than 200,000 people  from the state's voter rolls, a move that Democrats argued was intended to make it more difficult for their voters to cast ballots.`\
-https://nytimes.com/aponline/2020/03/11/us/politics/ap-us-voter-purge-wisconsin.html?searchResultPosition=10
+**U.S. House Plans to Vote on Coronavirus Bill on Thursday: Majority Leader**\
+`The U.S. House of Representatives is currently writing a coronavirus response bill and plans to vote on it on Thursday, Majority Leader Steny Hoyer said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-house-vote.html?searchResultPosition=10
 
