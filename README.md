@@ -27,7 +27,7 @@ https://nytimes.com/2020/03/11/science/smallest-dinosaur-amber.html?searchResult
 https://nytimes.com/2020/03/11/climate/nyt-climate-newsletter-coronavirus.html?searchResultPosition=7
 
 **Mexico City Subway Trains Collide, Killing 1, Injuring 41**\
-`A two-train subway collision in Mexico City killed a man, injured 41 people and disrupted service Wednesday on the bustling metro system serving this megalopolis of over 20 million people. `\
+`A two-train subway collision in Mexico City killed a male passenger, injured 41 people and disrupted service Wednesday on the bustling metro system serving this megalopolis of over 20 million people. `\
 https://nytimes.com/aponline/2020/03/11/world/americas/ap-lt-mexico-subway-accident-2nd-ld-writethru.html?searchResultPosition=8
 
 **A Cow Is on the Loose and Wanted by Police in South Florida**\
