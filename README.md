@@ -10,7 +10,7 @@ https://nytimes.com/2020/03/11/briefing/coronavirus-joe-biden-vladimir-putin.htm
 `Japan marked the somber nine-year anniversary of devastating natural disasters and a nuclear accident on Wednesday as official commemorations and vigils were canceled because of fears over the spread of the coronavirus. `\
 https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-japan-fukushima-anniversary.html?searchResultPosition=3
 
-**Biden Has Another Big Primary Night, Captures 4 More States**\
+**Biden Has Another Big Primary Night, Wins 4 More States**\
 `Joe Biden decisively won Michigan’s Democratic presidential primary on Tuesday, seizing a key battleground state that helped propel Bernie Sanders’ insurgent candidacy four years ago.`\
 https://nytimes.com/aponline/2020/03/11/us/politics/ap-us-election-2020.html?searchResultPosition=4
 
