@@ -1,40 +1,40 @@
-**Ivory Coast Confirms First Case of Coronavirus: Health Ministry**\
-`Ivory Coast has confirmed its first case of coronavirus, a 45-year-old Ivorian man who had recently traveled to Italy, the health ministry said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/africa/11reuters-health-coronavirus-ivorycoast.html?searchResultPosition=1
+**In Vegas, Host to Eight Conference Tournaments, the Show Goes On**\
+`What do college basketball tournaments look like as the country starts to make decisions about crowds and the coronavirus outbreak? We went to Las Vegas to find out.`\
+https://nytimes.com/2020/03/11/sports/conference-tournaments-basketball-coronavirus.html?searchResultPosition=1
 
-**Make T Something | Katie Stout**\
-`The furniture designer Katie Stout sprinkles a little glitter on T’s ongoing challenge: to make an entirely new art object in under an hour with just six materials.`\
-https://nytimes.com/video/t-magazine/100000007006059/make-t-something-katie-stout.html?searchResultPosition=2
+**WHO Says Uses of Word Pandemic Does Not Change What We Do With Virus**\
+`The World Health Organization's use of the word pandemic to describe the outbreak of the new coronavirus does not change its response, the head of the WHO's emergencies programme said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-who-ryan.html?searchResultPosition=2
 
-**Mladic Appeal Hearing Postponed Due to Scheduled Surgery**\
-`International judges on Wednesday postponed an appeal hearing for former Bosnian Serb military chief Ratko Mladic against his convictions on charges including genocide because Mladic is due to undergo surgery.`\
-https://nytimes.com/aponline/2020/03/11/world/europe/ap-eu-bosnia-war-crimes-mladic.html?searchResultPosition=3
+**Factbox: Airlines Count Mounting Costs of the Coronavirus Shock**\
+`Airlines across the globe are feeling the pain as travel demand withers because of the coronavirus outbreak. Several have  grounded many flights and ditched their financial outlooks.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-health-coronavirus-airlines-factbox.html?searchResultPosition=3
 
-**White House, Tech Industry Meet to Discuss Coronavirus Response**\
-`White House officials met Wednesday with U.S. technology industry officials to discuss tech-related response efforts to the coronavirus outbreak and ways for government to collaborate with the private sector.`\
-https://nytimes.com/reuters/2020/03/11/technology/11reuters-health-coronavirus-usa-tech.html?searchResultPosition=4
+**Exclusive: Boeing to Freeze Hiring, Overtime on 737 MAX, Virus Impacts: Sources**\
+`Boeing Co is freezing new hiring and overtime except in certain critical areas in efforts to preserve cash due to the coronavirus outbreaks and the 737 MAX grounding, people familiar the matter said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-boeing-737max-cuts-exclusive.html?searchResultPosition=4
 
-**Coronavirus Death Toll in Italy's Lombardy Region Rises to 617: Sources**\
-`The death toll from an outbreak of coronavirus in the northern Italian region of Lombardy, which has borne the brunt of a nationwide contagion, has risen over the past day to 617 from 468, two sources with access to the data said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-italy-lombardy.html?searchResultPosition=5
+**U.S. Senate Finance Chair Sees Little Support for Payroll Tax Cut: Bloomberg News**\
+`The head of the U.S. Senate Finance Committee on Wednesday said there was not enough support for U.S. President Donald Trump's idea to ease payroll taxes to offset coronavirus' economic impact, Bloomberg News reported on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-grassley.html?searchResultPosition=5
 
-**Top U.S. Senate Democrat: Coronavirus Relief Must Address Housing, Schools**\
-`U.S. Senate Democrats on Wednesday said any economic relief package amid the ongoing coronavirus outbreak must include funds to help support housing, and to help keep schools and child care centers clean, among other community-related assistance. `\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-schumer.html?searchResultPosition=6
+**BlackRock Says Voted Against Qualcomm Executive Pay, Director**\
+`Top fund manager BlackRock Inc said on Wednesday it cast an advisory vote against the pay of executives at chipmaker Qualcomm Inc,, and against a compensation committee member, citing a concern that a one-time stock award was "not aligned" with shareholder interests.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-qualcomm-executivepay.html?searchResultPosition=6
 
-**U.S. CDC Reports 987 Coronavirus Cases, Death Tally of 29**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Wednesday reported 987 cases of the coronavirus, an increase of 291 from its previous count, and said that the number of deaths had risen by 4 to 29.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-cdc.html?searchResultPosition=7
+**Mnuchin Says No Need for Intervention in Markets Due to Coronavirus**\
+`U.S. Treasury Secretary Steven Mnuchin said banking regulators are looking at various possible short-term regulatory actions in response to the fast-spreading coronavirus outbreak, but he saw no need for intervention in financial markets.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-mnuchin.html?searchResultPosition=7
 
-**U.S. Capitol May Need to Be Closed to Visitors in Coronavirus Response: Senior Democrat**\
-`The U.S. Capitol may need to be closed to visitors at some point to prevent the spread of coronavirus, the No. 2 Democrat in the House of Representatives said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-capitol.html?searchResultPosition=8
+**World Health Organization Describes Coronavirus Outbreak as Pandemic**\
+`The World Health Organization is characterizing the outbreak of the new coronavirus as a pandemic, Director General Tedros Adhanom Ghebreyesus said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-who.html?searchResultPosition=8
 
-**Kuwait to Halt Commercial Passenger Flights, Declare Public Holiday**\
-`Kuwait will halt all commercial flights to and from the Gulf Arab state starting Friday and until further notice, with the exception of cargo flights, state news agency KUNA said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/middleeast/11reuters-health-coronavirus-kuwait.html?searchResultPosition=9
+**Washington, D.C., Recommends Cancellation of Large Gatherings**\
+`Washington, D.C., health authorities on Wednesday recommended that any gatherings of 1,000 or more people be canceled or postponed through March 31 to help control the spread of coronavirus in the nation's capital.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-washingtondc.html?searchResultPosition=9
 
-**U.S. House Plans to Vote on Coronavirus Bill on Thursday: Majority Leader**\
-`The U.S. House of Representatives is currently writing a coronavirus response bill and plans to vote on it on Thursday, Majority Leader Steny Hoyer said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-house-vote.html?searchResultPosition=10
+**Ireland Reports First Death From Coronavirus**\
+`Ireland's Health Ministry confirmed its first death of a patient diagnosed with the coronavirus on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-ireland.html?searchResultPosition=10
 
