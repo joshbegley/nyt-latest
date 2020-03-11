@@ -1,40 +1,40 @@
+**Fed Cup Finals and Playoffs Postponed Due to Coronavirus: ITF**\
+`The Fed Cup finals that were scheduled to be held in Budapest, Hungary, next month and playoffs that were to be held in various locations worldwide have been postponed due to the coronavirus outbreak, the International Tennis Federation (ITF) said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/sports/tennis/11reuters-health-coronavirus-tennis-fedcup.html?searchResultPosition=1
+
+**Motorcycling: MotoGP Postpones Fourth Race, Spain to Open Season in May**\
+`MotoGP postponed a fourth race on Wednesday due to the coronavirus outbreak, with Argentina shuffled from April to November and the season set to start at Spain's Jerez circuit on May 3.`\
+https://nytimes.com/reuters/2020/03/11/sports/autoracing/11reuters-health-coronavirus-motogp.html?searchResultPosition=2
+
+**Report: Gronkowski Close to Signing With WWE**\
+`Rob Gronkowski is gearing up for a return to sports ... well, sports entertainment, that is.`\
+https://nytimes.com/reuters/2020/03/11/sports/11reuters-football-nfl-nep-gronkowski.html?searchResultPosition=3
+
+**U.S. Health Official Recommends NBA Play Without Crowds Due to Coronavirus Risk**\
+`Anthony Fauci, head of infectious diseases at the National Institutes of Health, told a congressional hearing on Wednesday that he would recommend the National Basketball Association play their games without a crowd because of the fast-moving coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/11/sports/basketball/11reuters-health-coronavirus-usa-nba.html?searchResultPosition=4
+
+**Skull of Smallest-Known Bird Embedded in 99-Million-Year-Old Amber**\
+`Scientists are marveling over the exquisitely preserved skull of what appears to be the smallest-known bird - tinier than any hummingbird - encased in 99-million-year-old amber and boasting many odd traits including jaws studded with numerous puny teeth.`\
+https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-science-bird.html?searchResultPosition=5
+
+**On Faraway Planet, It's Cloudy With a Chance of Liquid Iron Rain**\
+`Scientists have detected an exotic planet in another solar system where the weather forecast is always dire - a 100 percent chance of the most outrageous rain imaginable, with droplets of scaldingly hot liquid iron.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-space-exploration-planet.html?searchResultPosition=6
+
+**Woman Convicted in Death of Anti-Gang Crusader**\
+`A woman who drove her SUV over a New York mother saluted by President Donald Trump for her crusade against MS-13 gang violence was found guilty of all charges Wednesday.`\
+https://nytimes.com/aponline/2020/03/11/us/ap-us-gang-violence-long-island.html?searchResultPosition=7
+
+**U.K. Shields Its Economy From the Virus, but Not Yet Its People**\
+`The government is spending $38 billion to mitigate the effects of the coronavirus outbreak, but so far has ruled out aggressive measures to fight it.`\
+https://nytimes.com/2020/03/11/world/europe/economy-britain-coronavirus.html?searchResultPosition=8
+
 **Harvey Weinstein's 23-Year Sentence Brings Thanks and Surprise**\
 `Harvey Weinstein's 23-year jail sentence for rape and sexual assault was greeted with delight on Wednesday by some of the scores of women who have accused him of sexual misconduct dating backs decades.`\
-https://nytimes.com/reuters/2020/03/11/arts/11reuters-people-harvey-weinstein-reaction.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/03/11/arts/11reuters-people-harvey-weinstein-reaction.html?searchResultPosition=9
 
 **EU Watchdog Tells Financial Firms to Spell Out Coronavirus Impact**\
 `Financial companies should disclose "as soon as possible" any relevant significant information about the impact of coronavirus on their business, the European Union's markets watchdog said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/business/11reuters-health-coronavirus-eu-markets.html?searchResultPosition=2
-
-**IMF Says Spain Needs Fiscal Flexibility in 2020 as Coronavirus Bites**\
-`Spain should be allowed to hold off on structural deficit cuts this year as it adopts one-off measures to support the health sector and the economy amid a growing coronavirus epidemic, an International Monetary Fund mission said on Wednesday. `\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-spain-imf.html?searchResultPosition=3
-
-**U.S. Treasury Yields Fall as Stocks Sink on Stimulus Uncertainty**\
-`CHICAGO - U.S. Treasuries rebounded on Wednesday as stocks dropped over uncertainty on how the White House plans to combat the impact of the coronavirus outbreak on the economy. `\
-https://nytimes.com/reuters/2020/03/11/business/11reuters-usa-bonds.html?searchResultPosition=4
-
-**Volkswagen's Seat Cancels One Production Shift as Coronavirus Outbreak Hits Supply Chain**\
-`Seat, the Spanish unit of German carmaker Volkswagen, has canceled one production shift on March 14 because the coronavirus outbreak has hit its supply chain, a spokesman said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-spain-volkswagen.html?searchResultPosition=5
-
-**Mexico Car Production at Risk as Coronavirus Hits Chinese Suppliers: Officials**\
-`Some of Mexico's auto factories may have to suspend production in the coming weeks as the coronavirus outbreak disrupts shipments of key parts from China, according to local officials, in what would be another blow to the stagnant Mexican economy.`\
-https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-health-coronavirus-mexico-autos.html?searchResultPosition=6
-
-**Britain, EU Will Keep 2nd Round of Talks Under Review: UK PM Spokesman**\
-`Britain and the European Union will keep under review whether the next round of talks on their future relationship in London should go ahead as planned, a spokesman for Prime Minister Boris Johnson said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-britain-eu-negotiations-spokesman.html?searchResultPosition=7
-
-**K+S Advised by Deutsche Bank, RBC for Sale of Salt Business: Sources**\
-`K+S is being advised by Deutsche Bank and Royal Bank of Canada (RBC) as the German mineral miner plans to sell its salt business in North and South America, two people familiar with the matter told Reuters on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-k-s-m-a-divestment-banks.html?searchResultPosition=8
-
-**UK's Response to Virus Helps European Banks Recover From Record Lows**\
-`European banks took heart from the Bank of England's plan to defend Britain's economy from the effects of the coronavirus outbreak, pushing stock prices up and the cost of insuring against default down.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-europe-banks-stocks.html?searchResultPosition=9
-
-**Mnuchin Says IMF, World Bank Funds Won't Repay Debts to China**\
-`The U.`\
-https://nytimes.com/reuters/2020/03/11/business/11reuters-usa-china-debt.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/11/business/11reuters-health-coronavirus-eu-markets.html?searchResultPosition=10
 
