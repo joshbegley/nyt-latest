@@ -1,4 +1,4 @@
-**Bags Packed, Sanitizer On, Americans Travel as Coronavirus Worries Grow**\
+**Bags Packed, Sanitizer on, Americans Travel as Coronavirus Worries Grow**\
 `One doesn’t find outright panic in airports and on airplanes across the United States. Rather, it’s anguish that the next sneeze might be the fateful one.`\
 https://nytimes.com/2020/03/11/us/airports-airlines-coronavirus.html?searchResultPosition=1
 
