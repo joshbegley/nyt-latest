@@ -1,40 +1,41 @@
-**Albanian Woman, 73, Dies of Coronavirus**\
-`An Albanian woman of 73 with a heart condition who had returned from neighboring Italy has become the country's first coronavirus fatality, the health ministry said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-albania-death.html?searchResultPosition=1
+**Swedbank Says $4.8 Million of Payments May Have Violated U.S. Sanctions**\
+`An independent investigation of Swedbank's anti-money laundering practices has found that transactions totaling $4.8 million potentially violated U.S. sanctions, the Swedish bank said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-europe-moneylaundering-swedbank.html?searchResultPosition=1
 
-**Italy, Britain Wield Economic Axes to Try to Slay Coronavirus**\
-`Italy earmarked $28.3 billion to soften the economic impact of the world's second-biggest coronavirus outbreak on Wednesday as the Bank of England slashed interest rates just hours before announcing a budget designed to stave off recession.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus.html?searchResultPosition=2
+**BOJ Likely to Ease Policy Next Week to Bolster Sentiment: Sources**\
+`The Bank of Japan is expected to ease monetary policy next week in an attempt to limit the impact of the coronavirus outbreak and recent market volatility on business sentiment, sources familiar with the central bank's thinking told Reuters.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-japan-economy-boj.html?searchResultPosition=2
 
-**Turkey Vows Strong Military Action if Syria Truce Violated**\
-`Turkey's President Recep Tayyip Erdogan vowed on Wednesday that his military would launch its harshest retaliation yet if the Syrian government breaks a fragile truce in Idlib province brokered last week.`\
-https://nytimes.com/aponline/2020/03/11/world/middleeast/ap-ml-syria.html?searchResultPosition=3
+**China to Make Targeted RRR Cuts, Stabilize Foreign Trade Amid Virus**\
+`China will make targeted cuts in bank reserve requirement ratios (RRR) and take measures to stabilize foreign trade and investment, including reducing the negative list, amid the coronavirus outbreak, the country's cabinet said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-health-coronavirus-china-economy.html?searchResultPosition=3
 
-**Bosnia Police Move Hundreds of Migrants to a Refugee Camp**\
-`Bosnian police on Wednesday moved hundreds of migrants, who have been sleeping rough in a central town, to a refugee center near Sarajevo.`\
-https://nytimes.com/aponline/2020/03/11/world/europe/ap-eu-bosnia-migrants.html?searchResultPosition=4
+**Russia Says There Is No Risk of GDP Declining in 2020: Interfax**\
+`Russia's gross domestic product is not at risk of falling in 2020, the Interfax news agency cited First Deputy Prime Minister Andrei Belousov as saying on Wednesday, who added that inflation is unlikely to exceed its target of 4% this year.  `\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-russia-economy-gdp.html?searchResultPosition=4
 
-**Insulin Costs May Be Capped in a Medicare Program**\
-`If drug companies and insurers agree to participate, the Trump administration proposes limiting insulin costs to $35 a month for some older Americans.`\
-https://nytimes.com/2020/03/11/health/insulin-drug-prices.html?searchResultPosition=5
+**BOJ to Sustain Current Daily ETF Buying Pace Through March: Sources**\
+`The Bank of Japan is likely to keep buying exchange-traded funds (ETF) at the current rate of roughly 100 billion yen ($950 million) per day until at least March 31, when the current fiscal year ends, in order to soothe market jitters, sources familiar with its thinking said.`\
+https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-japan-economy-boj-etf.html?searchResultPosition=5
 
-**Turkey Confirms First Coronavirus Case, Wins WHO Praise for Vigilance**\
-`Turkey confirmed its first case of the coronavirus on Wednesday, becoming the last major economy to report an outbreak after taking what the World Health Organization (WHO) described as "vigilant, cautious" measures to delay the disease.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-turkey.html?searchResultPosition=6
+**S&P 500 Bull Market Will Soon End: Goldman Sachs**\
+`Goldman Sachs said on Wednesday the S&P 500 bull market, the longest on record, is likely to end soon, forecasting a 28% slump from its February peak as the fast-spreading coronavirus is seen taking a toll on corporate profits.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-us-stocks-goldman.html?searchResultPosition=6
 
-**Virus Lockdown Hits Vatican as Pope Livestreams Audience**\
-`Pope Francis held his weekly general audience in the privacy of his library Wednesday as the Vatican implemented Italy’s drastic virus lockdown measures. `\
-https://nytimes.com/aponline/2020/03/11/world/europe/ap-eu-rel-virus-outbreak-vatican-lockdown.html?searchResultPosition=7
+**TikTok Steps Up Transparency Efforts After Privacy Concerns in United States**\
+`Social media app TikTok is launching a content moderation center in a bid to boost transparency, the Chinese company said on Wednesday, as it faces scrutiny from U.S. lawmakers who have accused it of sharing user data with the Chinese government.  `\
+https://nytimes.com/reuters/2020/03/11/technology/11reuters-usa-china-tik-tok.html?searchResultPosition=7
 
-**Tokyo Olympic Head Shoots Down Comments About Delaying Games**\
-`The president of the Tokyo Olympic organizing committee said Wednesday he has received an apology from a board member who said the 2020 Games should be delayed a year to two because of the coronavirus.`\
-https://nytimes.com/aponline/2020/03/11/sports/olympics/ap-oly-tokyo-apology.html?searchResultPosition=8
+**Stock, Bond and FX Trading Volumes Boom as Volatility Jumps**\
+`Amid frenzied selling in financial markets this week, there was a silver lining for banks and trading platforms which attracted a rush of business as investors scrambled to protect portfolios from the volatility.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-health-coronavirus-trading-volumes.html?searchResultPosition=8
 
-**Cathay Pacific Says It Faces 'Substantial Loss' Due to Virus**\
-`Cathay Pacific Airways, one of Hong Kong's most prominent businesses, warned Wednesday it faces a “substantial loss” in the first half of this year due to the coronavirus outbreak after last year’s profit fell amid anti-government protests. `\
-https://nytimes.com/aponline/2020/03/11/business/ap-virus-outbreak-hong-kong-cathay-pacific.html?searchResultPosition=9
+**Allianz's Riddell Buys Back Into Italian Debt, Likes UK Bonds After BoE Cut**\
+`Allianz Global Investors has bought back into Italian government debt after a huge coronavirus-induced selloff, and is eyeing longer-dated UK gilts after the Bank of England cut interest rates, head of UK fixed income Mike Riddell said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-global-bonds-allianz.html?searchResultPosition=9
 
-**Pope Holds His First Ever Virtual General Audience With Italy on Lockdown**\
-`Pope Francis, holed up in the Vatican by Italy's coronavirus epidemic, held his first virtual general audience on Wednesday, thanking medical staff but urging the world not to forget the plight of Syrian refugees.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-cornavirus-pope.html?searchResultPosition=10
+**What's Happening: Beijing Quarantine, Merkel Issues Warning**\
+`
+                New clusters of the coronavirus are expanding in the United States  and Europe, with Europe replacing China as the new epicenter of the disease. `\
+https://nytimes.com/aponline/2020/03/11/us/bc-virus-outbreak-whats-happening.html?searchResultPosition=10
 
