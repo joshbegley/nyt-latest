@@ -1,40 +1,40 @@
+**Washington State Will Limit Public Gatherings of More Than 250 People Over Coronavirus**\
+`The strict new controls on events in the Seattle area are an attempt to slow the spread of a virus that already has taken 24 lives in Washington State.`\
+https://nytimes.com/2020/03/11/us/seattle-coronavirus-public-gathering-limits.html?searchResultPosition=1
+
+**Coronavirus Shifts U.S. Recession Debate From 'if' to 'What Shape'?**\
+`V? U? L? `\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-health-coronavirus-usa-recession.html?searchResultPosition=2
+
+**Starboard Nominates Minority Slate of Directors to eBay Board: WSJ**\
+`Activist investor Starboard Value LP has nominated a minority slate of directors to eBay Inc's board, the Wall Street Journal reported on Wednesday, citing people familiar with the matter.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-ebay-divestiture.html?searchResultPosition=3
+
+**U.S. Oil Company Workers Made a Big, Bad Retirement Bet: Their Own Stock**\
+`Employees at the largest U.S. oil companies have lost around $5 billion in retirement savings since the end of 2018 because of outsized bets on their own slumping stock, according to a Reuters analysis of company disclosures, a trend exacerbated by the recent crash in oil prices.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-global-oil-crash-retirement.html?searchResultPosition=4
+
+**Senate Panel Postpones Subpoena Vote in Hunter Biden Probe**\
+`By The Associated Press`\
+https://nytimes.com/aponline/2020/03/11/us/politics/ap-us-congress-burisma.html?searchResultPosition=5
+
+**Amtrak Says Bookings Plunge, Is Set to Lose Several Hundred Million Dollars on Coronavirus Fears**\
+`U.S. passenger railroad Amtrak said on Wednesday that bookings had plunged 50% since the coronavirus outbreak and that it now expected significant service reductions and losses of hundreds of millions of dollars.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-health-coronavirus-amtrak.html?searchResultPosition=6
+
+**Banknotes Carry No Particular Coronavirus Risk: German Disease Expert**\
+`Handling banknotes doesn't pose a particular risk of contracting coronavirus, the head of Germany's Robert Koch Institute (RKI) for infectious diseases said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-germany-banknotes.html?searchResultPosition=7
+
+**NYSE Takes Steps to Keep Coronavirus From Trading Floor: Memo**\
+`The New York Stock Exchange is taking steps to separate traders on the floor of its iconic 11 Wall Street building and employees of the NYSE and its parent Intercontinental Exchange Inc, to reduce the risk of spreading coronavirus, according to an internal memo sent Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-health-coronavirus-nyse.html?searchResultPosition=8
+
 **Coronavirus May Have Reached Italy From Germany, Scientists Say**\
 `A team of scientists in Milan believes Italy's coronavirus epidemic might have come to the country via Germany and not directly from China as many experts initially assumed.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-italy-scientists.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-italy-scientists.html?searchResultPosition=9
 
 **Austria Closing Schools Over Coronavirus as Border Checks Take Effect**\
 `Austria said on Wednesday it would close schools from next week until April, widening measures aimed at slowing the spread of coronavirus that have already sharply curtailed public gatherings and crossings of its border with Italy.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-austria.html?searchResultPosition=2
-
-**Saudi Arabia to Close Cinemas Until Further Notice Over Coronavirus**\
-`Saudi Arabia announced on Wednesday it will close cinemas until further notice over coronavirus, state news agency reported.`\
-https://nytimes.com/reuters/2020/03/11/world/middleeast/11reuters-health-coronavirus-saudi.html?searchResultPosition=3
-
-**Egypt's Confirmed Coronavirus Cases Increase to 67**\
-`Egypt has registered seven new coronavirus cases bringing the total number of confirmed cases to 67, the health ministry said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/middleeast/11reuters-health-coronavirus-egypt.html?searchResultPosition=4
-
-**Costa Rica Reports 22 Coronavirus Cases, Nearly Double Prior Tally**\
-`Costa Rica's health ministry confirmed on Wednesday that the number of coronavirus cases in the Central American country increased to 22, up from 13 previously reported. `\
-https://nytimes.com/reuters/2020/03/11/world/americas/11reuters-health-coronavirus-costa-rica.html?searchResultPosition=5
-
-**Coronavirus Cases in Germany Surpass 1,500: Koch Institute**\
-`The number of confirmed coronavirus cases in Germany has risen to 1,567, the Robert Koch Institute for infectious diseases said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-germany-numbers.html?searchResultPosition=6
-
-**Washington State Bans Some Gatherings, May Close Schools to Fight COVID-19 Outbreak**\
-`Washington Governor Jay Inslee on Wednesday prohibited gatherings of over 250 people and said he may soon close schools to slow the spread of coronavirus as the state suffered the deadliest outbreak in the United States.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-washington.html?searchResultPosition=7
-
-**Guatemala Bans Entry of European Citizens to Keep Out Coronavirus**\
-`Guatemalan Health Minister Hugo Monroy said on Wednesday that the country will ban the entry of European citizens in an attempt to prevent the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/11/world/americas/11reuters-health-coronavirus-guatemala.html?searchResultPosition=8
-
-**Italian Daily Coronavirus Deaths Jump 31% to 827**\
-`The death toll from an outbreak of coronavirus in Italy has jumped in the last 24 hours by 196 to 827, a rise of 31%, the Civil Protection Agency said on Wednesday, the largest rise in absolute numbers since the contagion came to light on Feb. 21.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-italy-tally.html?searchResultPosition=9
-
-**Wilson Lifts George Mason Over Saint Joseph's in A10 Tourney**\
-`AJ Wilson scored a career-high 24 points as George Mason beat Saint Joseph's 77-70 to open the Atlantic 10 Conference Tournament on Wednesday.`\
-https://nytimes.com/aponline/2020/03/11/sports/ncaabasketball/bc-bkc-a10-saint-josephs-george-mason.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-austria.html?searchResultPosition=10
 
