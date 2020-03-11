@@ -26,7 +26,7 @@ https://nytimes.com/2020/03/11/us/sanders-black-supporters-south.html?searchResu
 `Jarod Lucas hit a 3-pointer with 1.8 seconds left and Oregon State withstood Alfonso Plummer's conference-record 11 3-pointers to beat Utah 71-69 in the opening round of the Pac-12 tournament on Wednesday.`\
 https://nytimes.com/aponline/2020/03/11/sports/ncaabasketball/bc-bkc-p12-oregon-st-utah.html?searchResultPosition=7
 
-**Spain Eyes Trade, Defense Discussions Ahead of State Visit**\
+**Spain Eyes Trade, Defense Talks Ahead of US State Visit**\
 `Spain won't use its defense cooperation with the United States as leverage in its push against tariffs on European products, the Spanish foreign minister said on Wednesday ahead of a visit to Washington that aims to end the loss of business by Spanish producers of wine, olives and their oil. `\
 https://nytimes.com/aponline/2020/03/11/business/bc-eu-spain-us-foreign-minister.html?searchResultPosition=8
 
