@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2020/03/10/us/elections/results-mississippi-hous
 ``\
 https://nytimes.com/interactive/2020/03/10/us/elections/exit-polls-mississippi-primary.html?searchResultPosition=9
 
-**Mississippi Primary Election Results: Third House District**\
+**Michigan Polls: Who Different Groups Supported**\
 ``\
-https://nytimes.com/interactive/2020/03/10/us/elections/results-mississippi-house-district-3-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/03/10/us/elections/exit-polls-michigan-primary.html?searchResultPosition=10
 
