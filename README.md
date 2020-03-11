@@ -1,40 +1,40 @@
-**Boeing Plans Full Drawdown of $13.8 Billion Loan: Bloomberg News**\
-`Boeing Co is planning a full drawdown of a $13.8 billion loan as early as Friday, as the U.S. based plane-maker struggles with worldwide travel disruptions from the coronavirus, Bloomberg reported on Wednesday, citing unnamed sources.`\
-https://nytimes.com/reuters/2020/03/11/business/11reuters-boeing-loans.html?searchResultPosition=1
+**Boeing Scores Widebody Orders in February, MAX Cancellations Mount**\
+`Boeing Co said on Wednesday it took in 18 new orders for widebody planes in February but saw more customers cancel orders of its grounded and previously best-selling 737 MAX jet, as it faced another blow to demand from the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-boeing-deliveries.html?searchResultPosition=1
 
-**US Report Finds Widespread Forced Uighur Labor in China**\
-`U.S. lawmakers pushed Wednesday for a ban on imports from a vast area of northwest China where the government has detained more than a million ethnic Uighurs after a report found widespread use of forced labor on farms and factories in the region. `\
-https://nytimes.com/aponline/2020/03/11/us/politics/ap-us-china-forced-labor.html?searchResultPosition=2
+**PepsiCo Aims for Energy Boost With $3.85 Billion Rockstar Deal**\
+`PepsiCo Inc on Wednesday made its biggest bet in the energy drinks market with a $3.85 billion deal to buy Rockstar Energy Beverages, opening a new front in its long-running battle with Coca-Cola Co.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-rockstar-m-a-pepsico.html?searchResultPosition=2
 
-**U.S. House Speaker, Treasury Chief Discuss Coronavirus Proposal: Spokesman**\
-`U.S. House Speaker Nancy Pelosi and Treasury Secretary Steven Mnuchin spoke on Wednesday morning to discuss potential legislation to respond to coronavirus, Pelosi's spokesman said in a tweet.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-stimulus-pelosi.html?searchResultPosition=3
+**Exclusive: U.S. SEC Steps Up Scrutiny of Private Debt 'Financial Games'**\
+`The top U.S. securities regulator has increased its scrutiny of private funds that make higher-risk loans over the last two years, according to a Reuters review of SEC actions and industry and regulatory sources -- just as fears of a global recession hit the booming private credit market.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-usa-funds-directlending-exclusive.html?searchResultPosition=3
 
-**U.S.'s O'Brien Says Chinese Virus Response Likely Cost World Two Months**\
-`China did not initially handle the coronavirus outbreak properly and this likely cost the world two months when it could have prepared and dramatically curtailed the outbreak, U.S. National Security Adviser Robert O'Brien said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-health-coronavirus-usa-o-brien.html?searchResultPosition=4
+**Texas Primary Election Results: 21st House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-21-primary-election.html?searchResultPosition=4
 
-**U.S. Considering Tax Relief to Respond to Coronavirus Outbreak: Mnuchin**\
-`The Trump administration is considering a range of steps to offset the economic impact of the fast-spreading coronavirus, including tax relief measures that could put hundreds of billions of dollars into the U.S. economy, U.S. Treasury Secretary Steven Mnuchin told lawmakers on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/business/11reuters-health-coronavirus-usa-spending.html?searchResultPosition=5
+**Texas Primary Election Results: 20th House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-20-primary-election.html?searchResultPosition=5
 
-**U.S. States Struggle to Expand Coronavirus Testing Despite Federal Push**\
-`New York and Washington, the U.S. states hit the hardest by the coronavirus outbreak, are struggling to make testing for the virus widely available, with local officials estimating it could take weeks more to reach peak testing capacity.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-testing.html?searchResultPosition=6
+**North Carolina Primary Election Results: Sixth House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-north-carolina-house-district-6-primary-election.html?searchResultPosition=6
 
-**House Democrats Aiming for Quick Passage of Coronavirus Response Bill: Source**\
-`A package of Democratic proposals to address problems arising from a coronavirus outbreak could be voted on by the U.S. House of Representatives as early as this week, including paid sick leave for those affected, a House Democratic aide said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-bill.html?searchResultPosition=7
+**North Carolina Primary Election Results: Ninth House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-north-carolina-house-district-9-primary-election.html?searchResultPosition=7
 
-**Number of Confirmed Coronavirus Cases in UK Rises to 456**\
-`The number of confirmed cases of coronavirus across the United Kingdom has risen to 456, up from 373 a day earlier, the health ministry said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-britain-cases.html?searchResultPosition=8
+**Texas Primary Election Results: 32nd House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-32-primary-election.html?searchResultPosition=8
 
-**Health Officials Called to 'Emergency Meeting' at White House: Rep. Maloney**\
-`Health officials scheduled to testify at a congressional hearing on the fast-moving coronavirus outbreak on Wednesday are being called to an "emergency meeting" at the White House later today, Rep. Carolyn Maloney said, noting that the hearing would have to end early.`\
-https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-health-coronavirus-usa-meeting.html?searchResultPosition=9
+**Texas Primary Election Results: 22nd House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-22-primary-election.html?searchResultPosition=9
 
-**U.S. Waiving Minimum Flight Requirements for Airlines Because of Coronavirus**\
-`The U.S. Federal Aviation Administration (FAA) said Wednesday it will temporarily waive minimum flight requirements at U.S. airports through May 31 to help airlines facing a steep decline in travel demand due to the coronavirus.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-aviation.html?searchResultPosition=10
+**Texas Primary Election Results: 24th House District**\
+``\
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-24-primary-election.html?searchResultPosition=10
 
