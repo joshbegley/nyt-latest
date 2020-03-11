@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/03/10/world/asia/10reuters-health-coronavirus-s
 `China reported an uptick in new confirmed cases of coronavirus infections, reversing four straight days of declines, driven by infected individuals arriving from abroad.`\
 https://nytimes.com/reuters/2020/03/10/world/europe/10reuters-health-coronavirus-china.html?searchResultPosition=2
 
-**Watch Live: Biden to Speak to Supporters**\
-`Former Vice President Joseph R. Biden Jr. is expected to address his supporters in Philadelphia as results from the pivotal Michigan primary come in.`\
+**Watch Live: Biden Speaks in Philadelphia**\
+`Former Vice President Joseph R. Biden Jr. is expected to speak in Philadelphia as results from the pivotal Michigan primary come in.`\
 https://nytimes.com/video/us/elections/100000007024136/joe-biden-march-10-live.html?searchResultPosition=3
 
 **Espy Wins Mississippi US Senate Race; Will Face Hyde-Smith**\
