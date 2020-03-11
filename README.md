@@ -1,40 +1,40 @@
+**No Plans to Shut UK Parliament Despite Positive Coronavirus Test**\
+`Britain's parliament has no plans to shut over coronavirus, a spokeswoman said on Wednesday, after a minister tested positive for the virus and another lawmaker was advised to stay at home as a precaution.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-britain-parliament.html?searchResultPosition=1
+
+**The Prado Museum’s Unsung Workers Step Into the Limelight**\
+`An Instagram video series that puts the artistic insights of guards and moving staff on equal footing with those of curators has become a hit.`\
+https://nytimes.com/2020/03/11/arts/design/prado-instagram-videos.html?searchResultPosition=2
+
+**ECB Urges EU Governments to Spend in Fight Against Coronavirus: Sources**\
+`European Central Bank President Christine Lagarde has urged European Union leaders to dig into their pockets in the fight against the coronavirus outbreak or pay a higher price for passivity, two sources said.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-ecb-lagarde.html?searchResultPosition=3
+
 **Mikaela Shiffrin Set for World Cup Return After 6-Week Break**\
 `Mikaela Shiffrin will return to World Cup racing this week, ending a break from the sport of more than six weeks following the death of her father.`\
-https://nytimes.com/aponline/2020/03/11/sports/ap-ski-shiffrin-returns.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/03/11/sports/ap-ski-shiffrin-returns.html?searchResultPosition=4
 
 **Weinstein to Be Sentenced for Sex Crimes After Watershed #MeToo Trial**\
 `Former movie producer Harvey Weinstein, whose sexual assault conviction last month was hailed as a victory for the #MeToo movement against sexual misconduct by powerful men, is expected to be sentenced at a criminal court in Manhattan on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/arts/11reuters-people-harvey-weinstein.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/11/arts/11reuters-people-harvey-weinstein.html?searchResultPosition=5
 
 **Fed Faces Headache, Taps Epidemiologists in Hunt for Policy Clues**\
 `The escalating coronavirus outbreak is giving the U.S. Federal Reserve a policy headache like never before: how to judge the potential impact on the economy in the absence of reliable data on how fast the flu-like illness is spreading across the United States.`\
-https://nytimes.com/reuters/2020/03/11/business/11reuters-health-coronavirus-fed-analysis.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/11/business/11reuters-health-coronavirus-fed-analysis.html?searchResultPosition=6
 
 **U.S. Democratic Presidential Campaigns Weigh Next Moves as Coronavirus Fears Spread**\
 `Democratic presidential contenders Joe Biden and Bernie Sanders were left to reassess how to campaign in the face of a spreading U.S. coronavirus outbreak on Wednesday, after the former vice president nearly swept a big day of nominating contests.`\
-https://nytimes.com/reuters/2020/03/11/us/politics/11reuters-usa-coronavirus-usa-election.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/11/us/politics/11reuters-usa-coronavirus-usa-election.html?searchResultPosition=7
 
 **Israeli President Urges Deadlocked Blocs to Consider Unity**\
 `Israel's largely ceremonial president on Wednesday urged the country's opposing blocs to find a way to come together in the wake of Israel's third inconclusive election in less than a year.`\
-https://nytimes.com/aponline/2020/03/11/world/middleeast/ap-ml-israel-election.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/03/11/world/middleeast/ap-ml-israel-election.html?searchResultPosition=8
 
 **China Says Downward Pressure on Trade, Global Economy Rising Due to Coronavirus**\
 `Downward pressure on China's foreign trade and the global economy is rising due to the coronavirus epidemic, Chinese customs said in a statement on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-health-coronavirus-china-trade.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-health-coronavirus-china-trade.html?searchResultPosition=9
 
 **Japan's Sharp Files Patent Infringement Lawsuit Against U.S. TV Brand Vizio**\
 `Japan's Sharp Corp said on Wednesday it has filed a patent infringement lawsuit against U.S. TV brand Vizio Inc and two others, seeking an injunction to ban one of Vizio's TV products in the United States.`\
-https://nytimes.com/reuters/2020/03/11/business/11reuters-sharp-vizio.html?searchResultPosition=7
-
-**Officer Dies After Being Shot During Arkansas Traffic Stop**\
-`A police officer in Arkansas has died following a shooting during a traffic stop that also left a suspect wounded, authorities said.`\
-https://nytimes.com/aponline/2020/03/11/us/ap-us-officer-shot-arkansas.html?searchResultPosition=8
-
-**Abu Dhabi's Etihad Confident Demand for Flights to China Will Pick Up by Summer**\
-`Abu Dhabi's Etihad Airways is optimistic that demand for travel on flights to and from China will improve by the summer, its chief commercial officer said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/middleeast/11reuters-health-coronavirus-etihad-aiways.html?searchResultPosition=9
-
-**Edmunds Recommends 5 Extra-Small Crossover SUVs**\
-`Extra-small crossover SUVs make up the fastest-growing class in the automotive industry over the past five years, according to Edmunds data. The segment surpassed the 1 million mark in number of vehicles sold for the first time in 2019.`\
-https://nytimes.com/aponline/2020/03/11/business/ap-behind-the-wheel-5-extra-small-suvs.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/11/business/11reuters-sharp-vizio.html?searchResultPosition=10
 
