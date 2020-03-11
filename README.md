@@ -1,40 +1,40 @@
+**Sorting the Pieces of a Life Interrupted**\
+`A mother teaches her son how to tackle problems, and finds the strength to follow her own advice.`\
+https://nytimes.com/2020/03/11/crosswords/essay-jigsaw-puzzles-family-gorelick.html?searchResultPosition=1
+
+**Why the U.S. Wasn’t Ready for the Coronavirus**\
+`“Are we ready to respond to a pandemic? I fear the answer is no,” one senior U.S. health official said in 2018.`\
+https://nytimes.com/2020/03/11/podcasts/the-daily/coronavirus-us-testing.html?searchResultPosition=2
+
+**U.S. Senator Calls for Action on Forced Labor in China's Xinjiang**\
+`A senior U.S. senator on Tuesday accused U.S. firms of willfully ignoring "horrific" forced labor conditions in China's Xinjiang region and called on the Commerce Department to stop American companies and consumers buying goods produced by such labor.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-usa-china-xinjiang.html?searchResultPosition=3
+
+**Joe Biden Takes Command**\
+`The former vice president again won the majority of delegates in Tuesday’s primaries. But will his moderate coalition be able to win over Bernie Sanders’s progressive supporters?`\
+https://nytimes.com/2020/03/11/podcasts/joe-biden-michigan.html?searchResultPosition=4
+
 **Philippines Reports 16 New Confirmed Coronavirus Cases**\
 `The Philippines on Wednesday confirmed 16 new cases of coronavirus, taking the total number to 49, most of which were reported this week.`\
-https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-health-coronavirus-philippines.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-health-coronavirus-philippines.html?searchResultPosition=5
 
 **Factbox: The Economic Remedies for the Coronavirus**\
 `Policymakers have taken a range of approaches to deal with the economic fallout from the coronavirus, from emergency interest rate cuts and big spending packages to a wait-and-see-stance and pledges of action if required.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-economy-policy-factbox.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-economy-policy-factbox.html?searchResultPosition=6
 
 **Italy's Lockdown Reshapes Family Life in Time of Coronavirus**\
 `Italian Premier Giuseppe Conte's decision to lock down the entire country brought some welcome clarity to my family life after weeks of growing uncertainty about how to behave in a time of coronavirus.`\
-https://nytimes.com/aponline/2020/03/11/world/europe/ap-virus-outbreak-italy-family-ties.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/03/11/world/europe/ap-virus-outbreak-italy-family-ties.html?searchResultPosition=7
 
 **Province at China Virus's Center Lets Some Companies Reopen**\
 `The province at the center of China’s virus outbreak is allowing factories and some other businesses to reopen in a show of confidence that Beijing is gaining control over the disease that devastated its economy. `\
-https://nytimes.com/aponline/2020/03/11/business/bc-virus-outbreak-china-back-to-work.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/03/11/business/bc-virus-outbreak-china-back-to-work.html?searchResultPosition=8
 
 **Tokyo 2020 Olympics Chief: Not Considering Changing Plans for Games**\
 `Tokyo 2020 Olympics chief Yoshiro Mori said on Wednesday his team was not considering changing plans for the games and that the board member who had suggested a delay because of the coronavirus had apologized.`\
-https://nytimes.com/reuters/2020/03/11/sports/olympics/11reuters-health-coronavirus-olympics-mori.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/03/11/sports/olympics/11reuters-health-coronavirus-olympics-mori.html?searchResultPosition=9
 
 **German Finance Ministry to Meet With Banks to Discuss Coronavirus Measures: Sources**\
 `Top representatives from the German finance ministry and the nation's top bankers will meet on Friday to discuss measures to combat the impact of the coronavirus, two sources with knowledge of the matter said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-germany-banks.html?searchResultPosition=6
-
-**China February New Bank Loans Dip More Than Expected as Virus Jolts Economy**\
-`New bank lending in China fell more than expected in February from a record in January, but the drop was likely due to seasonal factors as policymakers stepped up support for the economy jolted by a coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-china-economy-loans.html?searchResultPosition=7
-
-**Japan Government Considering Economic Steps in April: Nikkei**\
-`Japan's government is considering compiling possible emergency economic measures in April to help households and businesses deal with the coronavirus outbreak, the Nikkei newspaper reported on Wednesday. `\
-https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-health-coronavirus-japan-package.html?searchResultPosition=8
-
-**Ukrainian Capital Kiev Shuts Schools, Mass Events to Prevent Spread of Virus**\
-`Ukraine's capital Kiev will close schools and universities from Thursday until the end of March to prevent the spread of the coronavirus, city mayor Vitali Klitschko said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-ukraine.html?searchResultPosition=9
-
-**Malaysia PM Says Cabinet to Declare Assets in Anti-Graft Bid**\
-`Malaysia's new Prime Minister Muhyiddin Yassin said Wednesday that all of his Cabinet members will have to declare their assets as part of his pledge to have a government with integrity.`\
-https://nytimes.com/aponline/2020/03/11/world/asia/ap-as-malaysia-politics.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-germany-banks.html?searchResultPosition=10
 
