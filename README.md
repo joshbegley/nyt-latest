@@ -1,40 +1,40 @@
-**Watch Live: Harvey Weinstein Sentencing**\
-`Harvey Weinstein was sentenced to 23 years in prison after his conviction on felony sex crimes.`\
-https://nytimes.com/video/us/100000007028074/weinstein-sentencing-live.html?searchResultPosition=1
+**Boeing Plans Full Drawdown of $13.8 Billion Loan: Bloomberg News**\
+`Boeing Co is planning a full drawdown of a $13.8 billion loan as early as Friday, as the U.S. based plane-maker struggles with worldwide travel disruptions from the coronavirus, Bloomberg reported on Wednesday, citing unnamed sources.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-boeing-loans.html?searchResultPosition=1
 
-**Early James Is a Rootsy Throwback in an Uncertain Present**\
-`On his debut album for Dan Auerbach’s label, the 26-year-old sings about disillusion in styles that glance back to the 1970s and before.`\
-https://nytimes.com/2020/03/11/arts/music/early-james-singing-for-my-supper-review.html?searchResultPosition=2
+**US Report Finds Widespread Forced Uighur Labor in China**\
+`U.S. lawmakers pushed Wednesday for a ban on imports from a vast area of northwest China where the government has detained more than a million ethnic Uighurs after a report found widespread use of forced labor on farms and factories in the region. `\
+https://nytimes.com/aponline/2020/03/11/us/politics/ap-us-china-forced-labor.html?searchResultPosition=2
 
-**13 Slovak Judges Detained for Dealings With Businessman**\
-`Thirteen judges in Slovakia and five other people linked to the main suspect in the case of a slain investigative journalist have been detained and charged with corruption and obstruction of justice, Slovak police said Wednesday.`\
-https://nytimes.com/aponline/2020/03/11/world/europe/ap-eu-slovakia-corruption.html?searchResultPosition=3
+**U.S. House Speaker, Treasury Chief Discuss Coronavirus Proposal: Spokesman**\
+`U.S. House Speaker Nancy Pelosi and Treasury Secretary Steven Mnuchin spoke on Wednesday morning to discuss potential legislation to respond to coronavirus, Pelosi's spokesman said in a tweet.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-stimulus-pelosi.html?searchResultPosition=3
 
-**Democrats Will Unveil Their Own Coronavirus Economic Relief Plans**\
-`With the White House still debating which economic measures to propose to confront the crisis, Democrats are presenting their own package to aid affected workers, patients and families.`\
-https://nytimes.com/2020/03/11/us/politics/coronavirus-government-aid.html?searchResultPosition=4
+**U.S.'s O'Brien Says Chinese Virus Response Likely Cost World Two Months**\
+`China did not initially handle the coronavirus outbreak properly and this likely cost the world two months when it could have prepared and dramatically curtailed the outbreak, U.S. National Security Adviser Robert O'Brien said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-health-coronavirus-usa-o-brien.html?searchResultPosition=4
 
-**‘The Hunt’ Review: The Culture War, With Heavy Casualties**\
-`Betty Gilpin battles the snowflakes in a bloody satire of polarized America.`\
-https://nytimes.com/2020/03/11/movies/the-hunt-review.html?searchResultPosition=5
+**U.S. Considering Tax Relief to Respond to Coronavirus Outbreak: Mnuchin**\
+`The Trump administration is considering a range of steps to offset the economic impact of the fast-spreading coronavirus, including tax relief measures that could put hundreds of billions of dollars into the U.S. economy, U.S. Treasury Secretary Steven Mnuchin told lawmakers on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-health-coronavirus-usa-spending.html?searchResultPosition=5
 
-**Opposition Blames Govt. For New Delhi Rioting, Killing 52**\
-`India’s powerful lower house of Parliament on Wednesday debated the worst Hindu-Muslim violence in decades in the Indian capital, with an angry opposition demanding a judicial probe and the resignation of the home minister for the police's failure to prevent the deaths of more than 50 people.`\
-https://nytimes.com/aponline/2020/03/11/world/asia/ap-as-india-violence.html?searchResultPosition=6
+**U.S. States Struggle to Expand Coronavirus Testing Despite Federal Push**\
+`New York and Washington, the U.S. states hit the hardest by the coronavirus outbreak, are struggling to make testing for the virus widely available, with local officials estimating it could take weeks more to reach peak testing capacity.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-testing.html?searchResultPosition=6
 
-**U.S. Lawmakers Propose Tough Limits on Imports from Xinjiang**\
-`A bill cites reports of mass detention of minority groups in China and concerns about forced labor. This could spell problems for brands like Calvin Klein, Tommy Hilfiger, Nike and Patagonia.`\
-https://nytimes.com/2020/03/11/world/asia/xinjiang-china-labor-bill.html?searchResultPosition=7
+**House Democrats Aiming for Quick Passage of Coronavirus Response Bill: Source**\
+`A package of Democratic proposals to address problems arising from a coronavirus outbreak could be voted on by the U.S. House of Representatives as early as this week, including paid sick leave for those affected, a House Democratic aide said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-bill.html?searchResultPosition=7
 
-**10 Bright White Accessories to Lighten Up Your Look**\
-`On backpacks, Chelsea boots and derbies, the most basic monochrome is anything but. Just steer clear of mud.`\
-https://nytimes.com/2020/03/11/t-magazine/white-accessories-shoes-purses.html?searchResultPosition=8
+**Number of Confirmed Coronavirus Cases in UK Rises to 456**\
+`The number of confirmed cases of coronavirus across the United Kingdom has risen to 456, up from 373 a day earlier, the health ministry said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-britain-cases.html?searchResultPosition=8
 
-**Fauci Warns House on Coronavirus: ‘It Is Going to Get Worse’**\
-`Democrats and Republicans on the House Oversight Committee squared off Wednesday over the Trump administration’s response to the coronavirus outbreak.`\
-https://nytimes.com/2020/03/11/us/politics/coronavirus-congress-fauci.html?searchResultPosition=9
+**Health Officials Called to 'Emergency Meeting' at White House: Rep. Maloney**\
+`Health officials scheduled to testify at a congressional hearing on the fast-moving coronavirus outbreak on Wednesday are being called to an "emergency meeting" at the White House later today, Rep. Carolyn Maloney said, noting that the hearing would have to end early.`\
+https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-health-coronavirus-usa-meeting.html?searchResultPosition=9
 
-**After Disappointing Losses, Sanders Ponders Next Step**\
-`Bernie Sanders suffered a series of stinging defeats on Tuesday night, as Joseph R. Biden Jr. won four states and took command of the Democratic primary.`\
-https://nytimes.com/2020/03/11/us/politics/bernie-sanders-democrats-2020.html?searchResultPosition=10
+**U.S. Waiving Minimum Flight Requirements for Airlines Because of Coronavirus**\
+`The U.S. Federal Aviation Administration (FAA) said Wednesday it will temporarily waive minimum flight requirements at U.S. airports through May 31 to help airlines facing a steep decline in travel demand due to the coronavirus.`\
+https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-aviation.html?searchResultPosition=10
 
