@@ -1,40 +1,40 @@
-**Canada Creates C$1 Billion to Fight Coronavirus, Prepared to Spend More**\
-`Canada is setting up a C$1 billion ($728 million) fund to help the provinces combat a worsening coronavirus outbreak and is prepared to spend more money if necessary, Prime Minister Justin Trudeau said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-canada.html?searchResultPosition=1
+**Euro Zone Inflation Gauge Falls Below 0.9% for First Time, Day Before ECB Meets**\
+`A key market gauge of long-term euro zone inflation expectations in the euro area slumped to a new record low below 0.9% on Wednesday, a day before the European Central Bank meets. `\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-eurozone-bonds-inflation.html?searchResultPosition=1
 
-**UK Cuts Growth Forecasts for 2020, Increases for 2021**\
-`British finance minister Rishi Sunak announced updated growth forecasts for the country's economy which was on course to expand by 1.1% this year and 1.8% in 2021, as he presented his first annual budget on Wednesday.     `\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-britain-budget-growth.html?searchResultPosition=2
+**Britain Scraps Business Rates for Small Firms**\
+`British finance minister Rishi Sunak scrapped business rates for small firms in an "exceptional step" to help them deal with the disruption caused by the outbreak of coronavirus.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-britain-budget-rates.html?searchResultPosition=2
 
-**In Frenzy for Market Share, Oil Producers Cut Prices, Hurry Sales**\
-`Oil producers have embarked on a global round of price cuts and production boosts as part of a fight for market share, ignited by top exporters Saudi Arabia and Russia, that has wiped more than 40% off the international oil market this year.`\
-https://nytimes.com/reuters/2020/03/11/world/middleeast/11reuters-global-oil-exports.html?searchResultPosition=3
+**K+S Puts Americas Salt Business on Auction Block to Slash Debt**\
+`German potash and salt miner K+S said on Wednesday it would put its salt business in North and South America up for sale to reduce debt.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-k-s-m-a-divestment.html?searchResultPosition=3
 
-**UK Announces Five Billion Pound Emergency Response Fund for Coronavirus**\
-`Finance minister Rishi Sunak said on Wednesday he would set aside 5 billion pounds ($6.5 billion) to help Britain's National Health Service and other public services tackle the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-britain-budget-coronavirus.html?searchResultPosition=4
+**Aberdeen Fund Manager Returns to Italian Bonds on ECB Easing Expectations**\
+`Italian bonds present a buying opportunity given rising expectations for imminent easing measures from the European Central Bank to tackle the coronavirus outbreak, a fixed income fund manager at Aberdeen Standard Investments said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-italy-bonds-positioning.html?searchResultPosition=4
 
-**Rising Food Costs Lift U.S. Consumer Prices in February**\
-`U.S. consumer prices unexpectedly rose in February but are likely to decline in the months ahead as the coronavirus outbreak depresses demand for some goods and services, outweighing price increases related to shortages caused by disruptions to the supply chain.`\
-https://nytimes.com/reuters/2020/03/11/business/11reuters-usa-economy-inflation.html?searchResultPosition=5
+**Volkswagen Considers Temporary Layoffs at Spain's Navarra Plant if Coronavirus Disrupts Supply Chain**\
+`German carmaker Volkswagen has agreed with the main unions at its plant in Spain's Navarra region that some workers will be temporarily sent home in case of a disruption of the supply chain because of the coronavirus, a VW spokesman said. `\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-autos-spain.html?searchResultPosition=5
 
-**U.S. Government Aims at High Insulin Prices With Plan for $35 Copay in Medicare**\
-`The Trump administration on Wednesday turned back to its pledge to fight high U.S. drug prices with a plan to limit the out-of-pocket cost for insulin, a life-saving medicine, to $35 per month for many people with diabetes who are enrolled in Medicare. `\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-usa-healthcare-insulin.html?searchResultPosition=6
+**Banks See Surging Bond Volumes in Asia as Virus Sparks Flight to Safety**\
+`Trading volume has surged for Asian fixed income desks this week, major banks say, as the fast spread of the coronavirus around the world prompts investors to dump equities for the safety of bonds.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-bonds-volume.html?searchResultPosition=6
 
-**Dutch Coronavirus Cases Jump by a Third to 503: Health Authorities**\
-`The number of people infected with the coronavirus in the Netherlands increased by a third on Wednesday to 503, Dutch health authorities said.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-netherlands.html?searchResultPosition=7
+**UK Sets Out Plans to Support Low Paid Workers Through Coronavirus**\
+`Britain will provide measures worth several billions of pounds to support low-paid workers and those on welfare benefits who become ill with coronavirus, finance minister Rishi Sunak said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-britain-budget-workers.html?searchResultPosition=7
 
-**Honduras Confirms Its First Two Cases of Coronavirus: Health Ministry**\
-`Honduras has confirmed the first two cases of the new coronavirus in its territory, the heath ministry said in a statement on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/americas/11reuters-health-coronavirus-honduras.html?searchResultPosition=8
+**UK Economy Flat-Lined in January, Hitting Hopes of Post-Election Bounce**\
+`Britain's economy flat-lined in January, contradicting other signs of a rebound after Prime Minister Boris Johnson's big election win, according to official data which has yet to reflect the impact of coronavirus.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-britain-economy.html?searchResultPosition=8
 
-**Visualizing the Refugee Experience**\
-`The goal of an exhibition at the American Visionary Art Museum in Baltimore is to underscore the danger of demonizing any human being as an undesirable “other.”`\
-https://nytimes.com/2020/03/11/arts/visualizing-refugee-experience.html?searchResultPosition=9
+**Highlights: UK Announces Budget Plan as Coronavirus Risks Mount**\
+`British finance minister Rishi Sunak delivered the first annual budget statement of Prime Minister Boris Johnson's new government on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-britain-budget-highlights.html?searchResultPosition=9
 
-**Stocks Open Sharply Lower on Wall Street; Dow Off 580 Points**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/03/11/business/ap-financial-markets.html?searchResultPosition=10
+**At Michigan State, Bold Statements About Big Issues**\
+`Two exhibitions at the Eli and Edythe Broad Art Museum explore racism as well as social and political movements.`\
+https://nytimes.com/2020/03/11/arts/msu-broad.html?searchResultPosition=10
 
