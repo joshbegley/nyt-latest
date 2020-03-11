@@ -1,40 +1,40 @@
-**Coronavirus Probe at California Nursing Home Slowed by Shortage of Test Kits**\
-`A shortage of coronavirus testing kits is complicating efforts by California health officials to monitor a potential outbreak of the disease at nursing home where an elderly woman died from the infectious disease this week, authorities said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-california.html?searchResultPosition=1
+**If Sean Hannity Thinks Coronavirus Panic Is a ‘Hoax,’ How Many Millions of His Listeners Do Too?**\
+`Right-wing media stars aren’t worried. Neither is President Trump.`\
+https://nytimes.com/2020/03/11/us/politics/coronavirus-conservative-media.html?searchResultPosition=1
 
-**Trump Will Make National Address at 9 P.m./0100 GMT on Wednesday**\
-`U.S. President Donald Trump said on Wednesday he would deliver a national address from the Oval Office at 9 p.m. EDT (0100 GMT) amid a coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-trump-remarks.html?searchResultPosition=2
+**A Fumbled Global Response to the Virus in a Leadership Void**\
+`While world leaders are at last speaking out about the gravity of the pandemic, their voices are less a choir than a cacophony, with the United States absent from its traditional conductor role.`\
+https://nytimes.com/2020/03/11/world/europe/coronavirus-leadership-trump.html?searchResultPosition=2
 
-**Trump to Address Travel Restrictions, Says China Healing, Europe in Trouble**\
-`U.S. President Donald Trump said he would address travel restrictions to Europe in a statement later on Wednesday, hinting that decisions have been made involving Asia and Europe amid a fast-moving global coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-trump-travel.html?searchResultPosition=3
+**Factbox: U.S. Companies Add Cash, Credit Lines as Coronavirus Leaves Markets Rattled**\
+`U.S. companies rushed to bulk up their cash reserves amid market turmoil fueled by the global coronavirus outbreak and a plunge in oil prices.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-health-coronavirus-companies-cash-factbox.html?searchResultPosition=3
 
-**Mountain Lion Bites Colorado Deputy Responding to Attack**\
-`Authorities in northern Colorado say a mountain lion attacked a person and bit a sheriff's deputy who was responding to help.`\
-https://nytimes.com/aponline/2020/03/11/us/ap-us-mountain-lion-attack-1st-ld-writethru.html?searchResultPosition=4
+**Cost of General Electric Credit Insurance Rises Along With Coronavirus Concerns**\
+`The cost to insure General Electric Co debt has shot up to levels last seen in 2018, possibly reflecting concern about the company's exposure to coronavirus-induced declines in interest rates, air travel and global growth.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-ge-credit.html?searchResultPosition=4
 
-**Broadway Shows Will Go on Despite Virus Concerns**\
-`The new coronavirus has reached Broadway, but the shows on the Great White Way are scheduled to go on as planned.`\
-https://nytimes.com/aponline/2020/03/11/us/ap-us-virus-outbreak-broadway.html?searchResultPosition=5
+**Exclusive: Boeing to Separate 737 MAX Wire Bundles Before Jet's Return to Service-Sources**\
+`Boeing Co plans to separate 737 MAX wiring bundles, flagged by regulators as potentially dangerous, before the jet returns to service, two people familiar with the matter told Reuters on Wednesday.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-boeing-737max-wiring-exclusive.html?searchResultPosition=5
 
-**Starbucks and Others Shut Shops in Italy Amid Coronavirus Lockdown**\
-`From Starbucks to Giorgio Armani, several Italian and foreign groups shut down their shops in Italy as the country fights to contain the worst outbreak of coronavirus outside China.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-italy-shops.html?searchResultPosition=6
+**Best Buy Executive Chairman to Step Down**\
+`Retailer Best Buy Co Inc said on Wednesday Executive Chairman Hubert Joly would step down and will not stand for re-election at the shareholder meeting on June 11.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-best-buy-chairman.html?searchResultPosition=6
 
-**UK to Introduce More Stringent Measures to Tackle Coronavirus Outbreak**\
-`British Prime Minister Boris Johnson will chair an emergency meeting on Thursday at which he is expected to approve moving to the "delay phase" of the coronavirus response that includes more stringent measures to counter the outbreak. `\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-britain.html?searchResultPosition=7
+**U.S. Again Postpones High-Level Meeting on Huawei and China: Sources**\
+`Trump administration officials have postponed for a second time a critical meeting originally set for Wednesday to discuss potential new U.S. restrictions on sales of technology to Huawei and China, people familiar with the matter said. `\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-usa-huawei-tech-meeting.html?searchResultPosition=7
 
-**Qiagen Boosting Production of Chemical Needed to Test for Coronavirus**\
-`German molecular testing company Qiagen said on Wednesday it was ramping up production of a chemical used in some coronavirus tests, after a report that shortages could disrupt testing in the United States.`\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-health-coronavirus-qiagen.html?searchResultPosition=8
+**Blackstone Asks Its Companies Hurt by Virus to Tap Credit Lines: BBG**\
+`Private equity firm Blackstone Group Inc is asking companies it controls to draw down their credit lines to avoid liquidity crunch, a Bloomberg reporter tweeted on Wednesday, citing people familiar with the matter.`\
+https://nytimes.com/reuters/2020/03/11/business/11reuters-health-coronavirus-blackstone-group.html?searchResultPosition=8
 
-**AA, Other 12-Step Programs More Effective Than Talk Therapies**\
-`Alcoholics Anonymous and similar 12-step programs can lead to higher rates of continuous abstinence than other addiction treatment approaches like cognitive behavioral therapy, a large new study suggests. `\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-12step-alcohol-abuse.html?searchResultPosition=9
+**Judge: Woman Defamed Steve Wynn With Police Report of Rape**\
+`A Nevada judge has ruled a woman defamed former casino mogul Steve Wynn when she reported to Las Vegas police in 2018 that Wynn raped her in Chicago in the early 1970s and that she gave birth to his daughter in a gas station restroom.`\
+https://nytimes.com/aponline/2020/03/11/business/bc-us-wynn-defamation-lawsuit-1st-ld-writethru.html?searchResultPosition=9
 
-**Pelosi, Mnuchin Hold Second Phone Call on Wednesday on Coronavirus**\
-`U.S. House Speaker Nancy Pelosi and Treasury Secretary Steven Mnuchin spoke for a second time on Wednesday about legislation to bolster the economy in the face of the coronavirus outbreak, Pelosi's office said in a tweet.`\
-https://nytimes.com/reuters/2020/03/11/us/11reuters-health-coronavirus-usa-pelosi.html?searchResultPosition=10
+**El Salvador Shuts Classes in All Schools on Coronavirus Fears**\
+`Salvadoran President Nayib Bukele said on Wednesday that all schools in El Salvador will be closed for three weeks due to coronavirus concerns, after governments in Panama and Peru took similar actions earlier in the day.`\
+https://nytimes.com/reuters/2020/03/11/world/americas/11reuters-health-coronavirus-el-salvador.html?searchResultPosition=10
 
