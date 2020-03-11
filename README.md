@@ -1,40 +1,40 @@
-**The Freedom To Be**\
-`Okporo fled the hate crimes he experienced in Nigeria to seek a normal life in the United States. Once a refugee, he now helps others land safely.`\
-https://nytimes.comhttp://brandedplaylist.nytimes.com/video/t-brand/100000007028779/the-freedom-to-be.html?searchResultPosition=1
+**Iran Agrees to Send Black Boxes of Crashed Jet to Ukraine: Official**\
+`Iran's aviation authority has agreed to send black boxes from a downed Ukrainian jetliner to Kiev for analysis, Iran's representative at the United Nations' aviation agency told Reuters.`\
+https://nytimes.com/reuters/2020/03/11/world/middleeast/11reuters-iran-crash-boxes.html?searchResultPosition=1
+
+**Ten Katyusha Rockets Fall Inside Iraq's Taji Camp: Statement**\
+`Iraq's Taji military camp north of Baghdad was targeted by Katyusha rockets on Wednesday, with no casualties reported, an Iraqi military statement said.`\
+https://nytimes.com/reuters/2020/03/11/world/middleeast/11reuters-iraq-security-taji.html?searchResultPosition=2
+
+**Avenatti Lawyer Cites Coronavirus to Delay Jail Meeting**\
+`Michael Avenatti's attorney cited the coronavirus threat Wednesday and an upcoming trial as he asked a judge to delay a court-required jailhouse meeting, saying his bearded client lives in a rat-infested cell at an unsanitary facility that reeks of urine.`\
+https://nytimes.com/aponline/2020/03/11/us/ap-us-michael-avenatti-nike.html?searchResultPosition=3
+
+**House Passes Surveillance Bill Preserving F.B.I. Investigative Powers**\
+`An unusual collection of lawmakers backed the legislation, which would give Americans some new privacy protections and extend legal authority for some F.B.I. investigative tools.`\
+https://nytimes.com/2020/03/11/us/politics/house-passes-fbi-surveillance-bill.html?searchResultPosition=4
+
+**'Come Home,' Chinese Tell Relatives in Spain as Coronavirus Cases Jump**\
+`In a usually bustling Madrid street popular with the city's growing Chinese community, 14 of 17 Chinese-owned shops were closed on Wednesday, their shutters pulled down or notes stuck to window fronts saying the owners were away.`\
+https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-health-coronavirus-spain-china.html?searchResultPosition=5
+
+**Players Championship Doesn't Always Favor the Best in Golf**\
+`Rory McIlroy didn't break par until his fourth appearance at The Players Championship.`\
+https://nytimes.com/aponline/2020/03/11/sports/golf/ap-glf-players-championship.html?searchResultPosition=6
+
+**In Change, U.S. Describes East Jerusalem Palestinians as 'Arab Residents'**\
+`The U.S. State Department changed its standard description of East Jerusalem Palestinians from "Palestinian residents" of the city to "Arab residents" or "non-Israeli citizens" in an annual global human rights report released on Wednesday. `\
+https://nytimes.com/reuters/2020/03/11/world/middleeast/11reuters-usa-rights-israel-palestinians.html?searchResultPosition=7
+
+**Modern Love Podcast: Gugu Mbatha-Raw Reads ‘Recognizing What They Had, 20 Years Too Late’**\
+`The “Misbehaviour” star reads an essay about an emotional connection that defies categorization.`\
+https://nytimes.com/2020/03/11/style/modern-love-podcast-gugu-mbatha-raw.html?searchResultPosition=8
+
+**Weariness Hits Residents in New York's 'Containment Area'**\
+`At the center of one of the nation's biggest clusters of coronavirus cases, restaurant owner Joshua Berkowitz has adopted what he calls a “drop and dash” method of delivering food to customers — including many in quarantine. `\
+https://nytimes.com/aponline/2020/03/11/us/ap-us-virus-outbreak-containment-area.html?searchResultPosition=9
 
 **The Future Unseen**\
 `Born blind in Lebanon, Kohdr Farhat has a grand vision for the disabled built upon not being able to see. After all, he did it, why shouldn’t they?`\
-https://nytimes.comhttp://brandedplaylist.nytimes.com/video/t-brand/100000007028813/the-future-unseen.html?searchResultPosition=2
-
-**Cheers! Streaking Flyers Hope Hot Streak Leads to Cup Run**\
-`Kevin Hayes stepped behind the bar and prepared to make his first draft pick. The lager, the golden ale, the porter, wide varieties of delicious beers were lined up, but for Hayes the perfect pint was one he could truly call his own. `\
-https://nytimes.com/aponline/2020/03/11/sports/hockey/ap-hkn-streaking-flyers.html?searchResultPosition=3
-
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark crude oil fell $1.38 to settle at $32.98 a barrel. Brent crude oil, the international standard, fell $1.43 to close at $35.79 a barrel. `\
-https://nytimes.com/aponline/2020/03/11/business/ap-financial-markets-commodities-glance.html?searchResultPosition=4
-
-**How Major US Stock Indexes Fared Tuesday**\
-`Stocks fell sharply on Wall Street Wednesday, lopping 5.9% off the Dow Jones Industrial Average and bringing the index into a bear market. `\
-https://nytimes.com/aponline/2020/03/11/business/ap-financial-markets-box.html?searchResultPosition=5
-
-**U.S. Gives Details on Iran Sites Under Scrutiny of U.N. Nuclear Watchdog**\
-`One of the three sites in Iran about which the U.N. nuclear watchdog says it has raised questions that Tehran has failed to answer may have hosted uranium metal, the United States said on Wednesday, providing new details on the locations.`\
-https://nytimes.com/reuters/2020/03/11/world/middleeast/11reuters-iran-nuclear-iaea.html?searchResultPosition=6
-
-**Iran Agrees to Send Black Boxes of Crashed Jet to Ukraine: Official**\
-`Iran's aviation authority has agreed to send black boxes from a downed Ukrainian jetliner to Kiev for analysis, Iran's representative at the United Nations' aviation agency told Reuters on Wednesday.`\
-https://nytimes.com/reuters/2020/03/11/world/middleeast/11reuters-iran-crash.html?searchResultPosition=7
-
-**Green Party's National Government Call Complicates Irish Talks**\
-`Ireland's Green Party called on all parties to suspend talks on forming a new administration on Wednesday and instead build a temporary national government across parliament, complicating negotiations following an inconclusive Feb. 8 election. `\
-https://nytimes.com/reuters/2020/03/11/world/europe/11reuters-ireland-politics.html?searchResultPosition=8
-
-**Marin Scores 19 to Lead Southern Utah Past Idaho in Big Sky**\
-`Dre Marin posted 19 points as Southern Utah got past Idaho 75-69 in the first round of the Big Sky Conference Tournament on Wednesday.`\
-https://nytimes.com/aponline/2020/03/11/sports/ncaabasketball/bc-bkc-bigsky-idaho-southern-utah.html?searchResultPosition=9
-
-**Russia, Ukraine Negotiate Another Prisoner Exchange**\
-`A Kremlin envoy to the talks on the conflict in eastern Ukraine said Wednesday that another exchange of prisoners is being negotiated.`\
-https://nytimes.com/aponline/2020/03/11/world/europe/ap-eu-ukraine-conflict.html?searchResultPosition=10
+https://nytimes.com/paidpost/indeed/the-future-unseen.html?searchResultPosition=10
 
