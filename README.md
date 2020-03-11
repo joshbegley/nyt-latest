@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/03/11/business/bc-eu-britain-economy.html?sear
 `Thailand on Wednesday canceled the grant of visa on arrival for 18 countries and visa exemption for three others to contain the spread of the coronavirus, the country's interior minister said. `\
 https://nytimes.com/reuters/2020/03/11/world/asia/11reuters-health-coronavirus-thailand.html?searchResultPosition=9
 
-**Saudi Arabia Asked State Agencies to Prepare for Sharp Budget Cuts: Sources**\
+**Saudi Arabia Has Asked State Agencies to Implement Big Budget Cuts: Sources**\
 `Saudi Arabia has asked state agencies to submit proposals for cuts of at least 20% to their budgets in a fresh austerity drive to cope with a sharp drop in oil prices, four sources familiar with the matter said. `\
 https://nytimes.com/reuters/2020/03/11/business/11reuters-saudi-economy-budget.html?searchResultPosition=10
 
