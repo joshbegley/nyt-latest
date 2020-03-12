@@ -1,40 +1,40 @@
-**Egypt Reports 13 New Coronavirus Cases Including One Death**\
-`Egypt reported on Thursday 13 new coronavirus cases, which included one person who died, the health ministry said.`\
-https://nytimes.com/reuters/2020/03/12/world/middleeast/12reuters-health-coronavirus-egypt-toll.html?searchResultPosition=1
+**4 Comedy Shows to Catch in N.Y.C. This Weekend**\
+`Our guide to stand-up, improv and variety shows happening this weekend and in the week ahead.`\
+https://nytimes.com/2020/03/12/arts/nyc-this-weekend-comedy.html?searchResultPosition=1
 
-**U.S. Companies Announced 633 Job Cuts From Coronavirus So Far - Challenger, Gray and Christmas**\
-`U.S. companies have announced 633 layoffs related to the coronavirus outbreak so far, global outplacement firm Challenger, Gray and Christmas said on Thursday, providing the first tally of American job losses from what has mushroomed into a global pandemic.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-layoffs.html?searchResultPosition=2
+**20 Art Exhibitions to View in N.Y.C. This Weekend**\
+`Our guide to new art shows and some that will be closing soon.`\
+https://nytimes.com/2020/03/12/arts/design/nyc-this-weekend-art-and-museums.html?searchResultPosition=2
 
-**UK Coronavirus Peak 10 to 14 Weeks Away: Government Chief Scientific Adviser**\
-`The peak of coronavirus cases in Britain may still be 10 to 14 weeks away, the government's chief scientific adviser Patrick Vallance said on Thursday.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-britain-peak.html?searchResultPosition=3
+**6 Dance Performances to See in N.Y.C. This Weekend**\
+`Our guide to dance performances happening this weekend and in the week ahead.`\
+https://nytimes.com/2020/03/12/arts/dance/nyc-this-weekend-dance.html?searchResultPosition=3
 
-**New York State Bans Gatherings Exceeding 500 People on Coronavirus Fears**\
-`New York State will ban gatherings of more than 500 people beginning on Friday at 5 p.m. (2100 GMT) , to slow the spread of the new coronavirus, Governor Andrew Cuomo said on Thursday.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-new-york.html?searchResultPosition=4
+**3 Film Series to Catch in N.Y.C. This Weekend**\
+`Our guide to film series and special screenings.`\
+https://nytimes.com/2020/03/12/movies/nyc-this-weekend-film-series.html?searchResultPosition=4
 
-**NIH's Fauci Says U.S. Could Consider Additional Coronavirus Travel Restrictions**\
-`The top U.S. official on infectious diseases, Anthony Fauci, told a congressional hearing on Thursday that U.S. officials would consider additional travel restrictions beyond those already in place "if the dynamics of the outbreak mandates that."`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-helath-coronavirus-usa-restrictions.html?searchResultPosition=5
+**9 Pop, Rock and Jazz Concerts to Check Out in N.Y.C. This Weekend**\
+`Our guide to pop and rock shows and the best of live jazz happening this weekend and in the week ahead.`\
+https://nytimes.com/2020/03/12/arts/music/concerts-new-york.html?searchResultPosition=5
 
-**Explainer: What Happens if Trump Declares Coronavirus an Emergency?**\
-`U.S. President Donald Trump on Thursday said he may declare the coronavirus pandemic an emergency by invoking a law known as the Stafford Act.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-emergency-explainer.html?searchResultPosition=6
+**7 Plays and Musicals to Go to in N.Y.C. This Weekend**\
+`Previews, openings and some last-chance picks.`\
+https://nytimes.com/2020/03/12/theater/nyc-this-weekend-theater.html?searchResultPosition=6
 
-**Police: Man Camouflaged Himself, Shot at Passing School Van**\
-`A Pennsylvania man has been charged with attempted homicide after, authorities say, he camouflaged himself in the woods and shot at a school van with children inside.`\
-https://nytimes.com/aponline/2020/03/12/us/ap-us-school-van-shooting.html?searchResultPosition=7
+**3 Things to Do With Your Kids in N.Y.C. This Weekend**\
+`Our guide to cultural events in New York City for children and teenagers happening this weekend and in the week ahead.`\
+https://nytimes.com/2020/03/12/arts/nyc-this-weekend-childrens-events.html?searchResultPosition=7
 
-**Trump Administration Escalates Tensions With Europe as Crisis Looms**\
-`Experts are calling for a coordinated global response to the coronavirus, but the troubled U.S. relationship with Europe just seems to be getting worse.`\
-https://nytimes.com/2020/03/12/business/economy/trump-european-union-trade.html?searchResultPosition=8
+**Airbus: End of Washington State Tax Break of Boeing Just 'Initial Step'**\
+`Europe's Airbus on Thursday welcomed a move by Washington state to remove what it called "illegal subsidies" to Boeing, but said the U.S. planemaker had received billions of dollars in other subsidies and tax breaks.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-europe-usa-aircraft-airbus.html?searchResultPosition=8
 
-**Probe: Ex-Texas Southern University Leader Knew About Fraud**\
-`An ousted head of Texas Southern University knew about the university giving low-performing students more than $400,000 in scholarships in a ploy to increase enrollment, according to an internal audit report.`\
-https://nytimes.com/aponline/2020/03/12/us/ap-us-texas-southern-university-admission.html?searchResultPosition=9
+**Juul Co-Founder James Monsees Plans to Leave**\
+`Juul Labs Inc said on Thursday co-founder James Monsees plans to leave the e-cigarette maker, stepping down as an adviser and board member.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-juul-ecigarettes.html?searchResultPosition=9
 
-**Live Nation, Carnival Fall; Vir Biotechnology, Rises**\
-`Stocks that moved heavily or traded substantially on Thursday:`\
-https://nytimes.com/aponline/2020/03/12/business/ap-financial-markets-stocks.html?searchResultPosition=10
+**As Trump's Stock Market Gains Shrink, He Says It Will 'Work Out Fine'**\
+`For three years, U.S. President Donald Trump has touted a stunning run-up in the stock market as evidence of his success in the White House. In the space of three weeks, most of those gains have evaporated. `\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-usa-stocks-trump.html?searchResultPosition=10
 
