@@ -10,8 +10,8 @@ https://nytimes.com/video/us/politics/100000007029029/coronavirus-trump-live.htm
 `A Louisiana man accused of fatally shooting three homeless people pleaded not guilty Wednesday to a murder charge in one of the deaths. `\
 https://nytimes.com/aponline/2020/03/11/us/ap-us-homeless-slayings.html?searchResultPosition=3
 
-**Thunder-Jazz Delayed at Start, No Reason Given**\
-`The start of the Oklahoma City Thunder-Utah Jazz game has been delayed Wednesday night, with no reason given yet by the teams and the NBA.`\
+**Jazz-Thunder Postponed Due to 'Unforeseen Circumstances'**\
+`The Oklahoma City Thunder's game against the Utah Jazz was postponed Wednesday night, with the only explanation a public address announcement citing “unforeseen circumstances."`\
 https://nytimes.com/aponline/2020/03/11/sports/basketball/bc-bkn-jazz-thunder-delay.html?searchResultPosition=4
 
 **Juventus Player Tests Positive for Coronavirus**\
