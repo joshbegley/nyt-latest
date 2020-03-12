@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/03/12/sports/soccer/ap-soc-equal-pay.html?sear
 https://nytimes.com/aponline/2020/03/12/us/ap-us-virus-outbreak-alex-jones.html?searchResultPosition=7
 
 **NBC Late-Night Shows Going Dark Next Week**\
-`The earliest that there could be a new episode of Jimmy Fallon’s or Seth Meyers’s show is March 30.`\
+`The earliest return by Jimmy Fallon and Seth Meyers, already scheduled for a hiatus later this month, would be March 30.`\
 https://nytimes.com/2020/03/12/business/nbc-jimmy-fallon-seth-meyers.html?searchResultPosition=8
 
 **Book Critics Give Fiction Prize to Edwidge Danticat**\
