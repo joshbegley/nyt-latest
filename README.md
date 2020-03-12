@@ -1,40 +1,40 @@
-**Dutch Ban Big Public Events Over Coronavirus**\
-`The Netherlands on Thursday banned events of more than 100 people in response to the coronavirus epidemic and told people with respiratory symptoms to stay home.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-netherlands-events.html?searchResultPosition=1
+**Volkswagen Plans to Tap Electric Car Batteries to Compete With Power Firms**\
+`Volkswagen's expansion in electric cars will open up new business opportunities in storing and managing energy, encroaching on business currently dominated by utilities and energy firms, chief strategist Michael Jost said on Thursday.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-volkswagen-electric-energy.html?searchResultPosition=1
 
-**Democrats' Coronavirus Bill 'Unworkable': Top U.S. House Republican**\
-`The top Republican in the U.S. House of Representatives expressed strong opposition to legislation addressing the coronavirus that the Democrat-led chamber is expected to vote on Thursday.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-republicans.html?searchResultPosition=2
+**Boeing Shares Plummet After New U.S. Travel Restrictions**\
+`Shares in Boeing Co dropped more than 16% on Thursday on increased concerns over a fallout from news of sweeping U.S. travel restrictions on Europe meant to curb the spread of coronavirus.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-boeing.html?searchResultPosition=2
 
-**Canada Wants U.S. Answers on Common Border Amid Coronavirus, Flight Curbs**\
-`Canada will reach out to the United States to discuss the effect of President Donald Trump's "unilateral" decision to restrict travel from Europe and other issues tied to the new coronavirus outbreak, the deputy prime minister said on Thursday.`\
-https://nytimes.com/reuters/2020/03/12/world/americas/12reuters-health-coronavirus-canada.html?searchResultPosition=3
+**U.S. Airlines Capping Fares From Europe to U.S. Amid Coronavirus Restrictions**\
+`American Airlines Inc and Delta Air Lines Inc both said Thursday they will cap air fares on flights from Europe to the United States that are impacted by new travel restrictions as Americans flock to European airports trying to return home.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-aviation.html?searchResultPosition=3
 
-**Xi Says China Will Win Battle Against Coronavirus**\
-`Chinese President Xi Jinping told United Nations Secretary-General Antonio Guterres on Thursday that China will certainly win its battle against the new coronavirus and reach its economic goals, state media reported.`\
-https://nytimes.com/reuters/2020/03/12/world/asia/12reuters-health-coronavirus-xi.html?searchResultPosition=4
+**LATAM Airlines, Azul to Cut International Flights Up to 30% Due to Coronavirus**\
+`LATAM Airlines Group and Brazil carrier Azul SA said on Thursday they will cut capacity on international flights by up to 30% as demand collapses due to the global coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-azul-results-coronavirus.html?searchResultPosition=4
 
-**Berlin Parties On, Despite the Coronavirus**\
-`Some of the German capital’s renowned clubs were said to be caught between bankruptcy and virus prevention, and there are plenty of people who are determined to keep dancing.`\
-https://nytimes.com/2020/03/12/arts/music/berlin-clubs-coronavirus.html?searchResultPosition=5
+**JPMorgan to Ask New York Staff to Work From Home to Stem Virus Spread: Bloomberg News**\
+`JPMorgan Chase & Co is planning to ask New York-area employees to work from home to stem the spread of the coronavirus, Bloomberg news reported https://www.bloomberg.com/news/articles/2020-03-12/jpmorgan-tells-new-york-employees-to-work-from-home-due-to-virus on Thursday. `\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-jp-morgan.html?searchResultPosition=5
 
-**Why COVID-19 'Death Rates' Are Not What They Seem**\
-`Italy and South Korea, two countries outside China that have been hard hit by the new coronavirus, have reported dramatically different numbers of deaths as a proportion of cases. Why are these not comparable?`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-mortality.html?searchResultPosition=6
+**U.S. Weekly Jobless Claims Unexpectedly Fall**\
+`The number of Americans filing for unemployment benefit unexpectedly fell last week, but could rise in the coming weeks as the coronavirus pandemic causes companies to layoff workers amid supply chain disruptions and waning demand for some goods and services. `\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-usa-economy-unemployment.html?searchResultPosition=6
 
-**Italy and South Korea Virus Outbreaks Reveal Disparity in Deaths and Tactics**\
-`In Italy, millions are locked down and more than 800 people have died from the coronavirus.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-response-specialreport.html?searchResultPosition=7
+**‘If You’re Not Sweating’ in This Town, ‘There’s Something Wrong’**\
+`In Marble Bar, which claims to be Australia’s hottest town, the temperature hit at least 113 degrees on 32 days this summer. Some residents worry that “there’s got to be a point where you actually start to cook.”`\
+https://nytimes.com/2020/03/12/world/australia/australia-marble-bar-hottest-town.html?searchResultPosition=7
 
-**Coronavirus Makes Iran More Dangerous: U.S. General**\
-`A top U.S. general said on Thursday that Iran is significantly underreporting the number of its coronavirus victims and he believed that the global pandemic is making Tehran more dangerous, a day after an attack in Iraq that killed U.S. and British troops.`\
-https://nytimes.com/reuters/2020/03/12/world/middleeast/12reuters-health-coronavirus-iran-usa.html?searchResultPosition=8
+**Airline SAS Sees Double-Digit Percentage Fall in Bookings**\
+`Airline SAS has seen a double-digit percentage fall in bookings due to the coronavirus outbreak, its chief executive told Danish daily Berlingske in an interview on Thursday. `\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-sas.html?searchResultPosition=8
 
-**SoftBank's Son Offers to Donate Face Masks After Coronavirus Test Kit Offer Slammed**\
-`SoftBank founder Masayoshi Son on Thursday tweeted an offer to donate a million free face masks to help fight the coronavirus outbreak a day after twitter users criticized his proposal to give away test kits as an unnecessary burden on clinics and hospitals.`\
-https://nytimes.com/reuters/2020/03/12/technology/12reuters-health-coronavirus-softbank-group.html?searchResultPosition=9
+**Players Championship to Carry on Without Spectators**\
+`The Players Championship will not have spectators for the final three days at the TPC Sawgrass.`\
+https://nytimes.com/aponline/2020/03/12/sports/golf/ap-glf-players-championship-fans.html?searchResultPosition=9
 
-**Confirmed Dutch Coronavirus Infections Rise 22% to 614: Health Authorities**\
-`The number of new coronavirus infections in the Netherlands rose 22% to 614 on Thursday, health officials said. `\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-netherlands.html?searchResultPosition=10
+**Finland Jails Sierra Leone Man in Liberia War Crimes Case**\
+`A Finnish court has jailed in a custody hearing a 50-year-old Sierra Leone man suspected of committing serious war crimes and crimes against humanity in 1999-2003 during the bloody Second Civil War in the West African nation of Liberia.`\
+https://nytimes.com/aponline/2020/03/12/world/europe/ap-eu-finland-sierra-leone-liberia-war-crimes.html?searchResultPosition=10
 
