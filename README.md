@@ -2,8 +2,8 @@
 `After flying to Sweden and steeling herself for her first event since her father’s death, Shiffrin declared victory despite never leaving the starting gate.`\
 https://nytimes.com/2020/03/12/sports/skiing/mikaela-shiffrin-world-cup.html?searchResultPosition=1
 
-**N.Y.C. St. Patrick’s Day Parade Is Postponed Over Coronavirus Concerns: Live Updates**\
-`The event, which draws about 150,000 marchers and two million spectators, will not go on as planned for the first time in more than 250 years.`\
+**Number of Coronavirus Cases Rises in New York: Live Updates**\
+`The number of people who have tested positive continues to climb.`\
 https://nytimes.com/2020/03/12/nyregion/coronavirus-new-york-update.html?searchResultPosition=2
 
 **Women’s Art Is Every Kind of Art**\
