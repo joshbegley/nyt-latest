@@ -19,7 +19,7 @@ https://nytimes.com/2020/03/12/opinion/americans-tested-for-coronavirus.html?sea
 https://nytimes.com/aponline/2020/03/12/us/politics/ap-us-virus-outbreak-capitol.html?searchResultPosition=5
 
 **Thunderstorms Bring Widespread Flooding to Egypt, Killing 5**\
-`Thunderstorms packing heavy rains and lightning caused widespread flooding across Egypt on Thursday, killing at least five people and injuring five others as officials shuttered schools, government offices and an airport, officials said. `\
+`Thunderstorms packing heavy rains and lightning caused widespread flooding across Egypt on Thursday, killing at least five people and injuring five others, officials said, as authorities shuttered schools, government offices and an airport. `\
 https://nytimes.com/aponline/2020/03/12/world/middleeast/ap-ml-egypt-.html?searchResultPosition=6
 
 **Trump Endorsement of Sessions' Rival Roils US Senate Race**\
