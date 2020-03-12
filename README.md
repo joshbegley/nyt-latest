@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/03/12/business/bc-us-producer-prices.html?sear
 `The number of Americans filing new claims for unemployment insurance fell last week for a second straight week, an indication that the coronavirus had not yet hit the labor market in a major way.`\
 https://nytimes.com/aponline/2020/03/12/business/bc-us-unemployment-benefits.html?searchResultPosition=2
 
-**European-Russian Mars Mission Delayed Over Tests and Coronavirus**\
-`The next window for the Rosalind Franklin rover to make it to the red planet opens in 2022.`\
+**European-Russian Mars Mission Delayed to 2022 Over Coronavirus and Tests**\
+`“We cannot really cut corners,” said the head of the European Space Agency.`\
 https://nytimes.com/2020/03/12/science/mars-rover-coronavirus.html?searchResultPosition=3
 
 **What's Happening: People Separated, China Closing Everest**\
