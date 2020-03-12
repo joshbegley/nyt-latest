@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-homel
 `Even if Italy's draconian measures to stop the spread of coronavirus prove successful, they will leave an economy in tatters, with small and medium-sized businesses the hardest hit.`\
 https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-italy-business.html?searchResultPosition=2
 
-**The Latest: Juventus Player With Virus Says He 'OK'**\
+**The Latest: After NBA Suspends, Euroleague Considering Same**\
 `The Latest on the coronavirus outbreak's affect on sports around the globe (all times local):`\
 https://nytimes.com/aponline/2020/03/12/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=3
 
