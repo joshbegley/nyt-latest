@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/03/11/sports/olympics/ap-oly-sof-schedule.html
 `After two costly decades of war, the traditional bluster of ‘support for the military’ needs to change.`\
 https://nytimes.com/2020/03/11/opinion/biden-democrats-military.html?searchResultPosition=2
 
-**Watch Live: Trump Delivers National Address on Coronavirus**\
-`President Trump is addressing the nation about the steps his administration will take to combat the coronavirus crisis.`\
+**Watch Full Video: Trump Delivers National Address on Coronavirus**\
+`President Trump addressed the nation about the steps his administration will take to combat the coronavirus crisis.`\
 https://nytimes.com/video/us/politics/100000007029029/coronavirus-trump-live.html?searchResultPosition=3
 
 **Louisiana Man Pleads Not Guilty in Death of Homeless Man**\
