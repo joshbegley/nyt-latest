@@ -2,7 +2,7 @@
 `Sunday’s debate between Joseph R. Biden Jr. and Bernie Sanders will be shifted to the capital.`\
 https://nytimes.com/2020/03/12/us/politics/democratic-debate.html?searchResultPosition=1
 
-**US to Hold Attackers at Iraq Base Accountable**\
+**US Warns Iraq Base Attackers They Will Be Held Accountable**\
 `U.S. defense leaders said Thursday they know who launched the rockets in Iraq that killed and wounded U.S. and coalition troops and the Shia militia group responsible will be held accountable.`\
 https://nytimes.com/aponline/2020/03/12/us/politics/ap-us-united-states-iraq.html?searchResultPosition=2
 
@@ -10,7 +10,7 @@ https://nytimes.com/aponline/2020/03/12/us/politics/ap-us-united-states-iraq.htm
 `By The Associated Press`\
 https://nytimes.com/aponline/2020/03/12/world/ap-cn-virus-outbreak-canada-trudeau.html?searchResultPosition=3
 
-**The Tickets Home Were $5,000. They Paid It**\
+**The Tickets Home Were $5,000. They Paid It.**\
 `When the phone rang at 2:15 a.m. in Paris, it was decision time: Try to get home or possibly get stuck?`\
 https://nytimes.com/2020/03/12/travel/coronavirus-travel-ban-paris.html?searchResultPosition=4
 
