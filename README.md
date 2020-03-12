@@ -1,40 +1,40 @@
-**‘Never Rarely Sometimes Always’ Review: A Woman’s Heroic Journey**\
-`In this stirring drama, the director Eliza Hittman tells an intimate story that is also a potent argument about self-determination.`\
-https://nytimes.com/2020/03/12/movies/never-rarely-sometimes-always-review.html?searchResultPosition=1
+**Shareholders Pick Holes in Europe's Bank Safety Blanket**\
+`The euro zone followed Britain on Thursday with measures to support banks hit by the coronavirus pandemic but it offered little consolation to their long-suffering shareholders, faced with continued rock-bottom interest rates and a dire economic outlook.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-bank-stocks-analysis.html?searchResultPosition=1
 
-**Fiat Chrysler Worker Tests Positive for COVID-19 in Indiana; Plant Will Remain Open**\
-`Fiat Chrysler Automobiles NV said Thursday that an employee has tested positive for COVID-19 at its Kokomo, Indiana transmission plant, but the location will remain open.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-automakers.html?searchResultPosition=2
+**Norwegian Air to Cut 4,000 Flights, Lay Off Half Its Employees**\
+`Norwegian Air will scrap 4,000 flights and temporarily lay off around half its employees due to the ongoing coronavirus outbreak, the company said on Thursday.`\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-norwegianair.html?searchResultPosition=2
 
-**German Financial Watchdog Urges Banks to Prepare for Trading at Home**\
-`Germany's financial markets watchdog on Thursday urged banks to prepare their traders for trading at home in the midst of the expanding coronavirus crisis.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-germany-banks.html?searchResultPosition=3
+**France Urges 'Massive' EU Fiscal Stimulus to Amplify ECB Action**\
+`Measures announced by the European Central bank for firms hit by the fallout from coronavirus will help, but need to be amplified by "massive" fiscal measures from European governments, France's finance minister said.`\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-ecb-france.html?searchResultPosition=3
 
-**U.S. Household Net Worth $118.4 Trillion in Fourth Quarter of 2019, Before Coronavirus Hit**\
-`U.S. household wealth rose to $118.4 trillion in the final quarter of last year, a Federal Reserve report on Thursday showed, a situation set to reverse in the coming period as stock markets continue to be pummeled by fears of a recession caused by the escalating coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-usa-economy-wealth.html?searchResultPosition=4
+**ECB Divides Up Teams Over Coronavirus Concern**\
+`The European Central Bank was a largely deserted building on Thursday as President Christine Lagarde presented her policy response to the coronavirus outbreak that is hitting the euro zone economy.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-ecb-policy-split.html?searchResultPosition=4
 
-**Italy PM Says Euro Zone Finance Ministers Meeting Monday Should Focus Only on Coronavirus**\
-`Italian Prime Minister Giuseppe Conte said euro zone finance ministers meeting on Monday should focus exclusively on ways to alleviate the economic fallout from the coronavirus.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-italy-eurogroup.html?searchResultPosition=5
+**High-Yield U.S. Bonds Suffer More Pain as Credit Woes Increase**\
+`High-yield U.S. bonds suffered more pain on Thursday, with major junk bond exchange-traded funds falling to the lowest level since February 2016 and an index for credit insurance protecting against exposure to junk bonds widening sharply to a nine-year high. `\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-credit-yields.html?searchResultPosition=5
 
-**Saudi Arabia Moves to Grab Russian Oil Market Share, Sources Say**\
-`Saudi Arabia has stepped up efforts to squeeze Russia's Urals oil grade out of its main markets by offering its own cheap barrels instead after their long-standing deal to support global oil prices fell apart, seven oil sources said.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-oil-opec-saudi-russia.html?searchResultPosition=6
+**Europe’s Central Bank’s Steps to Stem Coronavirus Damage Leave Investors Cold**\
+`The E.C.B. is encouraging banks to lend to small and medium-size businesses, but it decided not to cut a key interest rate.`\
+https://nytimes.com/2020/03/12/business/european-central-bank-rates-coronavirus.html?searchResultPosition=6
 
-**U.S. Senate Leader Expects Renewal of Surveillance Rules Questioned by Trump**\
-`Republican U.S. Senate Majority Leader Mitch McConnell said on Thursday he was confident the Senate would approve legislation renewing government surveillance tools, and appealed to lawmakers not to delay the vote until after they expire on Sunday.`\
-https://nytimes.com/reuters/2020/03/12/technology/12reuters-usa-surveillance-congress.html?searchResultPosition=7
+**ECB Did Not Even Discuss a Rate Cut on Thursday: Sources**\
+`European Central Bank policymakers did not discuss a rate cut on Thursday, two sources familiar with the proceedings told Reuters, even as markets had fully priced in such a move. `\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-ecb-policy-sources.html?searchResultPosition=7
 
-**A Look at Some of the Hardest Hit Sectors in the S&P 500**\
-`Seven weeks after the first case of COVID-19 was confirmed in the U.`\
-https://nytimes.com/aponline/2020/03/12/business/ap-virus-outbreak-business-fallout.html?searchResultPosition=8
+**ECB's Lagarde Rows Back From Comment That Sent Italian Yields Higher**\
+`The European Central Bank is committed to avoiding any fragmentation in the euro zone, ECB Chief Christine Lagarde said on Thursday, apparently rowing back on earlier comments that the ECB was "not here to close spreads".`\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-ecb-policy-italy.html?searchResultPosition=8
 
-**Pregnant 19-Year-Old, Child Die Trying to Climb US Wall**\
-`A 19-year-old pregnant woman from Guatemala died this week from injuries suffered when she fell trying to climb the U.S. border wall near El Paso, Texas, U.S. and Guatemalan authorities said Thursday.`\
-https://nytimes.com/aponline/2020/03/12/us/ap-us-immigration-pregnant-womans-death.html?searchResultPosition=9
+**IMF Says Lebanon Needs Comprehensive Economic Reform Plans**\
+`The International Monetary Fund is waiting for Lebanon to submit a comprehensive plan for tackling the severe economic challenges it faces, IMF spokesman Gerry Rice said on Thursday, days after Beirut said it could not meet upcoming debt payments.`\
+https://nytimes.com/reuters/2020/03/12/world/middleeast/12reuters-imf-lebanon.html?searchResultPosition=9
 
-**Activist Investor Icahn Raises Stake in Occidental to Nearly 10%**\
-`Billionaire investor Carl Icahn has raised his stake in Occidental Corp to nearly 10%, or about 88.6 million shares, saying the shares were undervalued, an SEC filing http://bit.ly/2Qb9byt on Thursday showed.`\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-occidental-icahn.html?searchResultPosition=10
+**Bow Street Tries to Oust Mack-Cali CEO in Second Proxy Contest**\
+`Investment firm Bow Street Capital called on Thursday for the ouster of the chief executive of Mack-Cali Realty Corp. and has nominated four directors to the real-estate investment trust's board in a bid to take control of the 11 member board.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-mack-cali-rlty-bow-street.html?searchResultPosition=10
 
