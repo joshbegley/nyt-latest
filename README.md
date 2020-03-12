@@ -4,7 +4,7 @@ https://nytimes.com/aponline/2020/03/12/us/ap-us-sexual-misconduct-weinstein.htm
 
 **A Lockdown Diary**\
 `Everything is shut: no schools, no shops, no bars and restaurants, no meetings.  Just “Stay at home.” It’s painful for me and all Italians.`\
-https://nytimes.com/2020/03/12/opinion/lockdown-diary.html?searchResultPosition=2
+https://nytimes.com/2020/03/12/opinion/italy-coronavirus-shut-down.html?searchResultPosition=2
 
 **Awkward Moment: Trump and Irish PM Skip the Handshake**\
 `President Donald Trump and Ireland’s Prime Minister Leo Varadkar found themselves in an awkward moment: How do you a greet a fellow world leader in the midst of a global viral pandemic?`\
