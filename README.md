@@ -1,4 +1,4 @@
-**How to Clean Your Phone to Prevent Coronavirus**\
+**How to Clean Your Phone to Help Prevent Against Coronavirus**\
 `It’s one thing to stop touching your face. It’s another to stop touching the things that touch your face.`\
 https://nytimes.com/2020/03/12/smarter-living/clean-your-phone.html?searchResultPosition=1
 
