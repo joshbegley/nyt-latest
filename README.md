@@ -1,40 +1,40 @@
-**Blackstone Says No Blanket Policy to Tap Credit Lines**\
-`Private equity firm Blackstone Group Inc does not have a sweeping directive in place to encourage companies in its portfolio to draw down credit lines in a bid to ride out the coronavirus pandemic, the company said in a statement.`\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-blackstone-group.html?searchResultPosition=1
+**What’s Going On in This Graph? | March 18, 2020**\
+`What percentage of teenagers see problems like anxiety, bullying, drug addiction and gangs as either major or minor among their peers?`\
+https://nytimes.com/2020/03/12/learning/whats-going-on-in-this-graph-march-18-2020.html?searchResultPosition=1
 
-**'Dr Tedros', the WHO Chief Leading the Fight Against the Pandemic**\
-`Tedros Adhanom Ghebreyesus, head of the World Health Organization (WHO), has become the public face of the global fight against coronavirus.`\
-https://nytimes.com/reuters/2020/03/12/world/africa/12reuters-health-coronavirus-who-tedros.html?searchResultPosition=2
+**UPS Names Former Home Depot Executive Carol Tomé as CEO**\
+`United Parcel Service Inc on Thursday appointed former Home Depot executive Carol Tomé as chief executive officer, effective June 1.`\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-ups-ceo.html?searchResultPosition=2
 
-**GameStop Investors Seek Board Seat**\
-`A group of investors in GameStop Corp has asked the video game retailer to appoint a shareholder nominee on the company's board.`\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-gamestop-shareholders.html?searchResultPosition=3
+**Lebanon Banks Set for Shake-Out Under Sovereign Debt Revamp**\
+`Lebanon's banks are poised for a major shake-out as a planned restructuring of government debt is set to leave many financial players illiquid, say bankers.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-lebanon-crisis-banks.html?searchResultPosition=3
 
-**United Airlines Borrows $2 Billion as Coronavirus Slams Industry**\
-`United Airlines said on Thursday it had borrowed $2 billion to cope with an unprecedented disruption to the travel industry as the coronavirus pandemic leads to widescale flight cancellations and global travel bans.`\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-united-arlns-loans.html?searchResultPosition=4
+**EBRD Readies Emergency Measures for Virus-Stricken Firms**\
+`The European Bank for Reconstruction and Development (EBRD) said on Thursday it was working on a package of measures to help companies across its region to mitigate the economic hit from the coronavirus spread. `\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-ebrd.html?searchResultPosition=4
 
-**WHO's Tedros Urges World to 'Double Down' Against Virus Pandemic**\
-`The head of the World Health Organization (WHO) urged all countries on Thursday to "double down" in the fight against the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-who.html?searchResultPosition=5
+**Lloyd's of London to Shut Market for a Day on Friday: CEO**\
+`The 330-year old Lloyd's of London market will shut its underwriting floors on Friday for a day in a test of emergency protocols related to the coronavirus, Chief Executive John Neal said on Thursday.`\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-lloyd-s.html?searchResultPosition=5
 
-**Ukraine Right-Wingers Derail Peace Conference**\
-`Right-wing activists in Ukraine on Thursday derailed a conference intended to discuss moves toward a political settlement of the separatist conflict in the country's east.`\
-https://nytimes.com/aponline/2020/03/12/world/europe/ap-eu-ukraine-conflict.html?searchResultPosition=6
+**Trump Attacks Democrats Hours After Calling for Bipartisanship**\
+`The president woke up on Thursday morning and immediately assailed Senator Chuck Schumer and Speaker Nancy Pelosi, just hours after he implored the nation’s political leaders to “stop the partisanship.”`\
+https://nytimes.com/2020/03/12/us/politics/trump-coronavirus.html?searchResultPosition=6
 
-**Officer Shot by Colleague During Game 'Assumed the Risk'**\
-`A St. Louis police officer who pleaded guilty to accidentally killing a female colleague while playing a variation of Russian roulette said the woman knew the risk she was taking.`\
-https://nytimes.com/aponline/2020/03/12/us/ap-us-st-louis-officer-shot.html?searchResultPosition=7
+**Homes for Sale in Brooklyn, Manhattan and Queens**\
+`This week’s properties are in Williamsburg, the East Village and Jackson Heights.`\
+https://nytimes.com/2020/03/12/realestate/homes-for-sale-in-brooklyn-manhattan-and-queens.html?searchResultPosition=7
 
-**House Republicans Call for Delay on U.S. Coronavirus Bill, Warn About Future in Senate**\
-`Republicans on the U.S. House of Representatives Rules Committee on Thursday called for delaying consideration of Democrats' sweeping bill to address the coronavirus outbreak, describing the legislation as written in a rush and lacking Republican ideas.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-house.html?searchResultPosition=8
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties include a six-bedroom in Dix Hills, N.Y., and a five-bedroom in South Orange, N.J.`\
+https://nytimes.com/2020/03/12/realestate/homes-for-sale-in-new-york-and-new-jersey.html?searchResultPosition=8
 
-**Spain's Coronavirus Outbreak Death Toll Rises to 84 From vs 47 on Wednesday**\
-`Spain's deathtoll from coronavirus has risen to 84 on Thursday from 47 on Wednesday, the health ministry said. `\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-spain-casualties.html?searchResultPosition=9
+**On the Market in New York City**\
+`This week’s properties are in Williamsburg, Brooklyn, the East Village, and Jackson Heights, Queens.`\
+https://nytimes.com/slideshow/2020/03/12/realestate/on-the-market-in-new-york-city.html?searchResultPosition=9
 
-**Air France to Decide Later on Thursday Whether to Maintain Flights to U.S.: Spokesperson**\
-`French airliner Air France will decide later in the day whether to maintain its flights to the United States after President Donald Trump ordered a travel ban for Europeans, it said on Thursday. `\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-airfrance-flights.html?searchResultPosition=10
+**A Garden Grows in Somerset**\
+`For a decade, the master gardener Dan Pearson has been creating a landscape that’s a testament to both his singular eye and Britain’s natural beauty.`\
+https://nytimes.com/2020/03/12/t-magazine/master-gardener-dan-pearson.html?searchResultPosition=10
 
