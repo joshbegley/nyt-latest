@@ -1,40 +1,40 @@
-**Esper Says ‘All Options Are on the Table’ After U.S. Deaths in Iraq**\
-`“Let me be clear: The United States will not tolerate attacks against our people, our interests or our allies,” Defense Secretary Mark T. Esper said.`\
-https://nytimes.com/2020/03/12/world/middleeast/military-iran-iraq.html?searchResultPosition=1
+**JPMorgan CEO Jamie Dimon Home From Hospital, Recovering 'Well': Bank**\
+`JPMorgan Chase & Co Chief Executive Officer Jamie Dimon was released from a New York hospital and is now at home recovering from an emergency heart surgery he underwent last week, the bank said on Thursday. `\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-jp-morgan-dimon.html?searchResultPosition=1
 
-**First Coronavirus Death in U.S. State of Georgia Was 67-Year-Old Man, Governor Says**\
-`The first patient to die from the new coronavirus in the U.S. state of Georgia was a 67-year-old man with underlying medical conditions, Governor Brian Kemp said on Thursday.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-usa-georgia.html?searchResultPosition=2
+**Coronavirus Halts Lufthansa's Sale of International Catering Ops**\
+`German carrier Lufthansa has been forced by the coronavirus epidemic to halt the sale of the international operations of its airline caterer LSG, the company said on Thursday, confirming an earlier Reuters report.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-lufthansa-coronavirus-divestiture.html?searchResultPosition=2
 
-**Up to 10,000 Likely Have Coronavirus in UK: Chief Scientific Adviser**\
-`The likely number of people in Britain infected with coronavirus is between 5,000 and 10,000, the government's chief scientific adviser Patrick Vallance said on Thursday.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-britain-vallance.html?searchResultPosition=3
+**NYSE President Says No Plan to Close Trading Floor Now**\
+`The New York Stock Exchange does not currently plan to close its trading floor and the markets are functioning as expected, even as concerns over the coronavirus cause sharp spikes in volatility, NYSE President Stacey Cunningham said on Thursday.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-nyse.html?searchResultPosition=3
 
-**UK Local Elections Should Be Delayed: Electoral Commission**\
-`Local elections in Britain that were due to take place in May should be postponed because of the coronavirus outbreak, the Electoral Commission watchdog said on Thursday.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-britain-election.html?searchResultPosition=4
+**NHL 'Pausing' Season Amid Coronavirus Concerns**\
+`The NHL is following the NBA’s lead and suspending its season because of the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/03/12/sports/hockey/ap-hkn-virus-outbreak-nhl.html?searchResultPosition=4
 
-**Partisan Battle Erupts in U.S. Congress Over Coronavirus Response**\
-`The U.S. Congress on Thursday struggled to pass legislation to help Americans cope with the expanding coronavirus crisis, as Democrats planned to push ahead with a wide-ranging bill that Republicans branded as "unworkable."`\
-https://nytimes.com/reuters/2020/03/12/us/politics/12reuters-health-coronavirus-usa-congress.html?searchResultPosition=5
+**CDC Reports 1,264 Coronavirus Cases, Death Tally of 36**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Thursday reported 1,264 cases of the coronavirus, an increase of 277 cases from its previous count, and said that the number of deaths had risen by 7 to 36.`\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-cases.html?searchResultPosition=5
 
-**Coronavirus Testing in U.S. Not Geared for 'What We Need': Fauci**\
-`The top U.S. official on infectious diseases, Anthony Fauci, said on Thursday that people cannot get tests for the deadly coronavirus easily and the U.S. testing system is not meeting the country's needs. `\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-testing.html?searchResultPosition=6
+**UK Moves Toward Tougher Coronavirus Measures: Scotland's Sturgeon**\
+`The United Kingdom had decided to move to the "delay phase" of the coronavirus response that includes more stringent measures to counter the outbreak, Scottish First Minister said on Thursday. Nicola Sturgeon `\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-britain-sturgeon.html?searchResultPosition=6
 
-**UK's Johnson Steps Up Response to Coronavirus, Moves to Delay Phase**\
-`British Prime Minister Boris Johnson stepped up the response to the coronavirus outbreak on Thursday, moving to the so called "delay phase" which includes the option of more stringent measures designed to slow down the spread of the virus. `\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-britain-johnson.html?searchResultPosition=7
+**Factbox: Italy Toughens Coronavirus Lockdown With New Measures**\
+`Italy added new restrictions on Wednesday to a lockdown imposed to fight the coronavirus, ordering bars, restaurants and most shops to close.`\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-italy-measures-factbox.html?searchResultPosition=7
 
-**Pelosi Says House to Vote on Coronavirus Legislation on Thursday**\
-`Legislation addressing the coronavirus will be put to a vote on Thursday in the U.S. House of Representatives, House Speaker Nancy Pelosi said.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-pelosi.html?searchResultPosition=8
+**U.S. CDC Issues Virus Travel Alert on Most of Europe, Restricting Entry to U.S.**\
+`The U.`\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-cdc.html?searchResultPosition=8
 
-**Coronavirus Forces Small Businesses to Rethink Strategies**\
-`Renee and Michael Brown planned to open a third location for their coffee company — and put their plans on hold when the coronavirus hit.`\
-https://nytimes.com/aponline/2020/03/12/business/ap-us-smallbiz-small-talk-coronavirus-strategies.html?searchResultPosition=9
+**New York's Coronavirus 'Containment Zone' May Not Do Enough, Residents Say**\
+`People who live in the epicenter of New York's coronavirus outbreak said they were not convinced the state's order closing the area's schools and large-gathering venues for two weeks would do enough to curb the spread of infection. `\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-new-york-westchester.html?searchResultPosition=9
 
-**Trump Says Had No Time to Consult European Allies on Coronavirus Travel Curbs**\
-`U.S. President Donald Trump said on Thursday he had no time to consult with European allies before announcing coronavirus travel restrictions, but hoped the curbs on travel to Europe and China could be lifted very quickly.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-usa-trump.html?searchResultPosition=10
+**UK Coronavirus Cases Rise 29% to 590 in a Day, Total of 10 Dead**\
+`British cases of coronavirus rose 29% to 590 over the past 24 hours and the death toll rose to 10, health authorities said. `\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-britain-toll.html?searchResultPosition=10
 
