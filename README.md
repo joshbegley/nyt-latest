@@ -1,40 +1,40 @@
-**Leave It on the Doorstep: Deliveroo Starts Contactless Delivery**\
-`British food delivery service Deliveroo said it will allow orders to be left outside people's addresses so that the courier does not have to come into contact with the customer, to minimize the risk of spreading coronavirus.`\
-https://nytimes.com/reuters/2020/03/12/technology/12reuters-health-coronavirus-britain-deliveroo.html?searchResultPosition=1
+**Slovak Journalist Murder Trial Hearings Postponed Over Coronavirus Moves**\
+`A Slovak court has postponed hearings into the 2018 murder of a journalist, which led to protests that brought down the government, because of measures to curb the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-slovakia-trial.html?searchResultPosition=1
 
-**Tencent Gets Green Light to Publish Two Nintendo Switch Games in China**\
-`China gave tech giant Tencent Holdings the green light on Thursday to publish Nintendo Switch games Super Mario Odyssey and Mario Kart 8 Deluxe, taking the number of games licensed for the console in the world's biggest game market to three.`\
-https://nytimes.com/reuters/2020/03/12/technology/12reuters-tencent-videogames-nintendo.html?searchResultPosition=2
+**Norway to Close All Schools as Coronavirus Spreads: NTB News Agency**\
+`Norway will announce the closure of all kindergartens and schools to curb the spread of the coronavirus, following a similar step by neighboring Denmark, news agency NTB reported on Thursday.`\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-norway.html?searchResultPosition=2
 
-**Alpine Skiing: Men's Final Races Canceled, Norway's Kilde Wins Overall Title**\
-`The final races of the men’s Alpine skiing have been canceled due to the coronavirus outbreak, the International skiing federation (FIS) said on Thursday, meaning Norway’s Aleksander Aamodt Kilde won the overall title.`\
-https://nytimes.com/reuters/2020/03/12/sports/skiing/12reuters-health-coronavirus-alpine-skiing.html?searchResultPosition=3
+**Ireland to Shut Schools, Universities Until March 29 Over Coronavirus**\
+`Ireland will shut schools, universities and childcare facilities until March 29 in response to the spread of the coronavirus, acting Prime Minister Leo Varadkar said on Thursday.`\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-ireland-varadkar.html?searchResultPosition=3
 
-**The Who Cancel UK Rock Tour on Coronavirus Worries**\
-`British rock band The Who have canceled their UK tour due to coronavirus, just four days before they were due to take to the stage in Manchester. `\
-https://nytimes.com/reuters/2020/03/12/arts/12reuters-health-coronavirus-the-who.html?searchResultPosition=4
+**Russian Religious Anti-Coronavirus Event Called Off Due to Containment Measures**\
+`A Russian Orthodox Church procession intended to pray for those infected with the coronavirus has been called off because of a ban on large public gatherings to help curb the disease's spread, the event's organizer said on Thursday. `\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-russia-religion.html?searchResultPosition=4
 
-**Russian-European Mission to Mars Postponed Until 2022 Over Coronavirus: Roscosmos**\
-`Russia's space agency Roscosmos and the European Space Agency have decided to postpone the launch of a joint research mission to Mars until autumn 2022 because of the situation around coronavirus in Europe, Roscosmos said on Thursday. `\
-https://nytimes.com/reuters/2020/03/12/world/asia/12reuters-health-coronavirus-russia-space.html?searchResultPosition=5
+**Singapore PM Says Coronavirus Pandemic Could Last a Year or More**\
+`Singapore Prime Minister Lee Hsien Loong said on Thursday the coronavirus pandemic could last for a year or more and that the city-state would need to impose more travel restrictions to limit imported cases.`\
+https://nytimes.com/reuters/2020/03/12/world/asia/12reuters-health-coronavirus-singapore-lee.html?searchResultPosition=5
 
-**Basketball: Euroleague Suspended Amid Coronavirus Outbreak**\
-`Euroleague, Europe's elite club basketball competition, was suspended on Thursday until further notice due to the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/03/12/sports/basketball/12reuters-health-coronavirus-basketball.html?searchResultPosition=6
+**Italy Considers Shutting Down Milan Linate, Other Airports Due to Coronavirus: Source**\
+`The Italian authorities are considering shutting down Milan Linate and other airports due to the coronavirus outbreak, a government source told Reuters on Thursday.`\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-italy-airports.html?searchResultPosition=6
 
-**Motor Racing: McLaren Withdraws From Australian GP After Member Tests Positive for Coronavirus**\
-`The McLaren Racing team has withdrawn from this weekend's season-opening Australian Grand Prix after a team member tested positive for coronavirus, the team said on Friday.`\
-https://nytimes.com/reuters/2020/03/12/sports/autoracing/12reuters-health-coronavirus-f1-australia.html?searchResultPosition=7
+**Germany Designates Radical Wing of Far-Right AfD as 'Extremist Entity'**\
+`Germany will step up surveillance of a radical wing of the far-right Alternative for Germany (AfD) party after the domestic intelligence agency designated it as an extremist entity that threatens democracy.`\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-germany-security.html?searchResultPosition=7
 
-**What’s Going On in This Graph? | March 18, 2020**\
-`What percentage of teenagers see problems like anxiety, bullying, drug addiction and gangs as either major or minor among their peers?`\
-https://nytimes.com/2020/03/12/learning/whats-going-on-in-this-graph-march-18-2020.html?searchResultPosition=8
+**Don't Hug or Take the Bus, Germany Warns Grandparents**\
+`Grandparents, the elderly and their families should avoid public transport, avoid hugging each other and stay clear of public events to minimize the risk of becoming exposed to the coronavirus, Germany's social affairs minister said.`\
+https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-germany-elderly.html?searchResultPosition=8
 
-**UPS Names Former Home Depot Executive Carol Tomé as CEO**\
-`United Parcel Service Inc on Thursday appointed former Home Depot executive Carol Tomé as chief executive officer, effective June 1.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-ups-ceo.html?searchResultPosition=9
+**What Does It Mean to Be in a State of Emergency?**\
+`Thursday: California has been in a state of emergency for roughly a week. Here’s what that entails.`\
+https://nytimes.com/2020/03/12/us/california-state-of-emergency.html?searchResultPosition=9
 
-**Lebanon Banks Set for Shake-Out Under Sovereign Debt Revamp**\
-`Lebanon's banks are poised for a major shake-out as a planned restructuring of government debt is set to leave many financial players illiquid, say bankers.`\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-lebanon-crisis-banks.html?searchResultPosition=10
+**A Year Documenting Migration on the Rio Grande**\
+`A short stretch of the meandering Rio Grande - the river that marks the border between the United States and Mexico - has been for a long time a focal point for migrants looking to head north, seeking a better life.`\
+https://nytimes.com/reuters/2020/03/12/world/americas/12reuters-usa-immigration-asylum-seekers-widerimage.html?searchResultPosition=10
 
