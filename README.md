@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/03/12/us/ap-us-election-2020-alabama-senate.ht
 `U.S. Rep. Ilhan Omar of Minnesota has announced her remarriage, just four months after her marriage fell apart following an allegation she was having an affair with her political consultant.`\
 https://nytimes.com/aponline/2020/03/12/us/ap-us-congress-omar.html?searchResultPosition=8
 
-**Trading Halted on Wall Street After Stocks Plunge 7% at Open**\
-`An early plunge of 7% on Wall Street triggered a trading halt as a sell-off slamming global markets continued.`\
+**Stocks Remain Lower After Trading Resumes; Dow Down 1,800**\
+`Stocks are sharply lower after resuming trading as traders fear that not enough is being done to contain the economic damange from the coronavirus pandemic.`\
 https://nytimes.com/aponline/2020/03/12/business/bc-financial-markets.html?searchResultPosition=9
 
 **Troubles Percolate in the Plumbing of Wall Street**\
