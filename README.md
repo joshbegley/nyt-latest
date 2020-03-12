@@ -1,40 +1,40 @@
+**‘No Gathering With 500 People or More,’ in New York, Cuomo Says**\
+`Gov. Andrew M. Cuomo of New York announced new, aggressive efforts to contain the coronavirus outbreak in the state.`\
+https://nytimes.com/video/nyregion/100000007031072/coronavirus-new-york.html?searchResultPosition=1
+
+**U.S. Treasury to Hold G7 Finance Meeting by Videoconference Amid Coronavirus Restrictions**\
+`The U.S. Treasury Department said it will hold the next meeting of G7 finance ministers and central bank governors by videoconference amid precautions about the coronavirus, canceling a physical meeting that had been planned for Philadelphia next month.`\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-g7.html?searchResultPosition=2
+
+**Slack: Fiscal 4Q Earnings Snapshot**\
+`Slack Technologies Inc. (WORK) on Thursday reported a loss of $89 million in its fiscal fourth quarter.`\
+https://nytimes.com/aponline/2020/03/12/business/ap-us-earns-slack-technologies.html?searchResultPosition=3
+
+**How Biden’s Victory in Michigan Points to Trouble for Trump in November**\
+`Joe Biden lifted turnout and performed well among key demographic groups, signs that suggest the president may struggle to replicate his 2016 success in the crucial swing state.`\
+https://nytimes.com/2020/03/12/us/politics/biden-michigan-primary-trump.html?searchResultPosition=4
+
+**Cadillac Puts Its Engines Through the Paces on the Racetrack**\
+`It doesn’t sell a sports car, but its technology is finding success where luxury brands like Benz and BMW have thrived.`\
+https://nytimes.com/2020/03/12/business/cadillac-racecar-daytona.html?searchResultPosition=5
+
+**U.S. Coronavirus Stimulus Package Stuck in Congress Over Paid Sick Leave**\
+`As schools close, offices clear out, and sporting events are canceled across the United States, a familiar Washington problem - partisan gridlock - threatened on Thursday to derail the U.S. government's ability to contain the economic damage from the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/12/us/politics/12reuters-health-coronavirus-usa-stimulus-analysis.html?searchResultPosition=6
+
+**Fed Provides Massive Liquidity Injection to Calm Markets Amid Signs of Stress**\
+`The Federal Reserve intervened to stem a market meltdown on Thursday with a dramatic injection of cash that some analysts say could point to more aggressive action from the central bank to stimulate the economy and stabilize the financial system. `\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-usa-fed-repo.html?searchResultPosition=7
+
+**WTO Scraps Major Meeting in June Due to Coronavirus**\
+`The World Trade Organization's major biennial meeting, due to be held in Kazakhstan in June, has been canceled due to concerns over coronavirus, dealing a blow to its efforts to update the global rules of commerce.`\
+https://nytimes.com/reuters/2020/03/12/world/asia/12reuters-health-coronavirus-wto.html?searchResultPosition=8
+
+**AP PHOTOS: Sports Brought to a Halt by Coronavirus Fears**\
+`The fun and games have been stopped — for now.`\
+https://nytimes.com/aponline/2020/03/12/sports/ap-virus-outbreak-sports-photo-gallery.html?searchResultPosition=9
+
 **Advocates: Transgender Woman Sexually Assaulted at ICE Site**\
 `A transgender woman seeking asylum should be released after she was sexually assaulted and harassed while being detained in an Arizona immigration facility with men for nine months, advocates said Thursday.`\
-https://nytimes.com/aponline/2020/03/12/us/ap-us-immigration-transgender-detainee-.html?searchResultPosition=1
-
-**Lawrence Wright’s New Pandemic Novel Wasn’t Supposed to Be Prophetic**\
-`The Pulitzer Prize-winning author reflects on what it’s like to see his fiction become reality.`\
-https://nytimes.com/2020/03/12/books/review/lawrence-wright-end-of-october-pandemic-novel-essay.html?searchResultPosition=2
-
-**For Trump, Grim Reality of Coronavirus Settles In**\
-`After weeks of playing down the threat posed by the coronavirus, U.S. President Donald Trump conceded on Thursday that his re-election campaign rallies would have to be suspended, and he stopped shaking hands with foreign dignitaries.`\
-https://nytimes.com/reuters/2020/03/12/world/americas/12reuters-health-coronavirus-trump.html?searchResultPosition=3
-
-**New York City Declares State of Emergency to Fight Coronavirus Spread**\
-`New York City Mayor Bill de Blasio declared a state of emergency to fight the coronavirus outbreak on Thursday, allowing him to use new powers as the number of confirmed cases rose to 95 cases in the city.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-nyc.html?searchResultPosition=4
-
-**Clemson's Simmons Shows Off for NFL Personnel at Pro Day**\
-`As Clemson's pro day unfolded, NFL head coaches like the Pittsburgh Steelers' Mike Tomlin and the Detroit Lions' Matt Patricia chatted with Clemson's Dabo Swinney.`\
-https://nytimes.com/aponline/2020/03/12/sports/ncaafootball/ap-fbc-clemson-pro-day.html?searchResultPosition=5
-
-**Slack Beats Quarterly Revenue Estimates**\
-`Slack Technologies Inc beat Wall Street estimates for quarterly revenue on Thursday, as more companies bought its products to digitize their workflows.`\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-slack-tech-results.html?searchResultPosition=6
-
-**Ford Takes Aim at Jeep With New Bronco SUVs**\
-`Nearly 55 years after the debut of the original Ford Bronco — and 24 years after the demise of the last one — Ford Motor Co.  is dusting off one of its treasured nameplates this spring in hopes of reviving a decades-old rivalry with Fiat Chrysler Automobile’s popular Jeep brand.`\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-autos-ford-bronco.html?searchResultPosition=7
-
-**JetBlue CEO Latest Airline Executive to Take Salary Cut Amid Coronavirus**\
-`JetBlue Airways Chief Executive Robin Hayes is taking a temporary salary cut of 20%, the company said on Thursday, the latest airline executive to reduce or forgo base pay in an effort to rein in costs amid the spreading coronavirus.`\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-jetblue-airways.html?searchResultPosition=8
-
-**Rio Tinto to Pay Ex-CEO's Deferred Bonus With Interest**\
-`Rio Tinto Ltd will pay out part of a delayed bonus to former Chief Executive Sam Walsh after a dispute resolution process found that the payments should not be held up, both parties said on Thursday.`\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-australia-mining-ceo.html?searchResultPosition=9
-
-**Verizon Raises 2020 Capital Expenditure in 5G Push**\
-`Verizon Communications Inc on Thursday raised its full-year capital expenditure as it accelerates its transition to 5G network.`\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-verizon-capex.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/12/us/ap-us-immigration-transgender-detainee-.html?searchResultPosition=10
 
