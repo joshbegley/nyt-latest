@@ -10,7 +10,7 @@ https://nytimes.com/aponline/2020/03/12/business/bc-us-unemployment-benefits.htm
 `The next window for the Rosalind Franklin rover to make it to the red planet opens in 2022.`\
 https://nytimes.com/2020/03/12/science/mars-rover-coronavirus.html?searchResultPosition=3
 
-**What's Happening: People Walled Apart, China Closing Everest**\
+**What's Happening: People Separated, China Closing Everest**\
 `People around the world have become increasingly isolated from each other due to a mounting number of travel bans, school closures and canceled sporting events.`\
 https://nytimes.com/aponline/2020/03/12/us/ap-virus-outbreak-whats-happening.html?searchResultPosition=4
 
