@@ -1,40 +1,40 @@
+**Leave It on the Doorstep: Deliveroo Starts Contactless Delivery**\
+`British food delivery service Deliveroo said it will allow orders to be left outside people's addresses so that the courier does not have to come into contact with the customer, to minimize the risk of spreading coronavirus.`\
+https://nytimes.com/reuters/2020/03/12/technology/12reuters-health-coronavirus-britain-deliveroo.html?searchResultPosition=1
+
+**Tencent Gets Green Light to Publish Two Nintendo Switch Games in China**\
+`China gave tech giant Tencent Holdings the green light on Thursday to publish Nintendo Switch games Super Mario Odyssey and Mario Kart 8 Deluxe, taking the number of games licensed for the console in the world's biggest game market to three.`\
+https://nytimes.com/reuters/2020/03/12/technology/12reuters-tencent-videogames-nintendo.html?searchResultPosition=2
+
+**Alpine Skiing: Men's Final Races Canceled, Norway's Kilde Wins Overall Title**\
+`The final races of the men’s Alpine skiing have been canceled due to the coronavirus outbreak, the International skiing federation (FIS) said on Thursday, meaning Norway’s Aleksander Aamodt Kilde won the overall title.`\
+https://nytimes.com/reuters/2020/03/12/sports/skiing/12reuters-health-coronavirus-alpine-skiing.html?searchResultPosition=3
+
+**The Who Cancel UK Rock Tour on Coronavirus Worries**\
+`British rock band The Who have canceled their UK tour due to coronavirus, just four days before they were due to take to the stage in Manchester. `\
+https://nytimes.com/reuters/2020/03/12/arts/12reuters-health-coronavirus-the-who.html?searchResultPosition=4
+
+**Russian-European Mission to Mars Postponed Until 2022 Over Coronavirus: Roscosmos**\
+`Russia's space agency Roscosmos and the European Space Agency have decided to postpone the launch of a joint research mission to Mars until autumn 2022 because of the situation around coronavirus in Europe, Roscosmos said on Thursday. `\
+https://nytimes.com/reuters/2020/03/12/world/asia/12reuters-health-coronavirus-russia-space.html?searchResultPosition=5
+
+**Basketball: Euroleague Suspended Amid Coronavirus Outbreak**\
+`Euroleague, Europe's elite club basketball competition, was suspended on Thursday until further notice due to the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/12/sports/basketball/12reuters-health-coronavirus-basketball.html?searchResultPosition=6
+
+**Motor Racing: McLaren Withdraws From Australian GP After Member Tests Positive for Coronavirus**\
+`The McLaren Racing team has withdrawn from this weekend's season-opening Australian Grand Prix after a team member tested positive for coronavirus, the team said on Friday.`\
+https://nytimes.com/reuters/2020/03/12/sports/autoracing/12reuters-health-coronavirus-f1-australia.html?searchResultPosition=7
+
 **What’s Going On in This Graph? | March 18, 2020**\
 `What percentage of teenagers see problems like anxiety, bullying, drug addiction and gangs as either major or minor among their peers?`\
-https://nytimes.com/2020/03/12/learning/whats-going-on-in-this-graph-march-18-2020.html?searchResultPosition=1
+https://nytimes.com/2020/03/12/learning/whats-going-on-in-this-graph-march-18-2020.html?searchResultPosition=8
 
 **UPS Names Former Home Depot Executive Carol Tomé as CEO**\
 `United Parcel Service Inc on Thursday appointed former Home Depot executive Carol Tomé as chief executive officer, effective June 1.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-ups-ceo.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/12/us/12reuters-ups-ceo.html?searchResultPosition=9
 
 **Lebanon Banks Set for Shake-Out Under Sovereign Debt Revamp**\
 `Lebanon's banks are poised for a major shake-out as a planned restructuring of government debt is set to leave many financial players illiquid, say bankers.`\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-lebanon-crisis-banks.html?searchResultPosition=3
-
-**EBRD Readies Emergency Measures for Virus-Stricken Firms**\
-`The European Bank for Reconstruction and Development (EBRD) said on Thursday it was working on a package of measures to help companies across its region to mitigate the economic hit from the coronavirus spread. `\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-ebrd.html?searchResultPosition=4
-
-**Lloyd's of London to Shut Market for a Day on Friday: CEO**\
-`The 330-year old Lloyd's of London market will shut its underwriting floors on Friday for a day in a test of emergency protocols related to the coronavirus, Chief Executive John Neal said on Thursday.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-lloyd-s.html?searchResultPosition=5
-
-**Trump Attacks Democrats Hours After Calling for Bipartisanship**\
-`The president woke up on Thursday morning and immediately assailed Senator Chuck Schumer and Speaker Nancy Pelosi, just hours after he implored the nation’s political leaders to “stop the partisanship.”`\
-https://nytimes.com/2020/03/12/us/politics/trump-coronavirus.html?searchResultPosition=6
-
-**Homes for Sale in Brooklyn, Manhattan and Queens**\
-`This week’s properties are in Williamsburg, the East Village and Jackson Heights.`\
-https://nytimes.com/2020/03/12/realestate/homes-for-sale-in-brooklyn-manhattan-and-queens.html?searchResultPosition=7
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties include a six-bedroom in Dix Hills, N.Y., and a five-bedroom in South Orange, N.J.`\
-https://nytimes.com/2020/03/12/realestate/homes-for-sale-in-new-york-and-new-jersey.html?searchResultPosition=8
-
-**On the Market in New York City**\
-`This week’s properties are in Williamsburg, Brooklyn, the East Village, and Jackson Heights, Queens.`\
-https://nytimes.com/slideshow/2020/03/12/realestate/on-the-market-in-new-york-city.html?searchResultPosition=9
-
-**A Garden Grows in Somerset**\
-`For a decade, the master gardener Dan Pearson has been creating a landscape that’s a testament to both his singular eye and Britain’s natural beauty.`\
-https://nytimes.com/2020/03/12/t-magazine/master-gardener-dan-pearson.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/12/business/12reuters-lebanon-crisis-banks.html?searchResultPosition=10
 
