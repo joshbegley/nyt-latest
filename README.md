@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/03/12/sports/soccer/ap-soc-virus-outbreak-uefa
 https://nytimes.com/aponline/2020/03/12/business/bc-us-virus-outbreak-consumers.html?searchResultPosition=5
 
 **Democrats Move Debate From Arizona to Washington Because of Virus Concerns**\
-`Sunday’s debate between Joseph R. Biden Jr. and Bernie Sanders will be shifted to the capital.`\
+`Sunday’s debate between Joe Biden and Bernie Sanders will be shifted to the capital, the latest political event to be affected by safety concerns over the coronavirus.`\
 https://nytimes.com/2020/03/12/us/politics/democratic-debate.html?searchResultPosition=6
 
 **US Warns Iraq Base Attackers They Will Be Held Accountable**\
