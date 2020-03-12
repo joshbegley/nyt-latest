@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/03/12/world/americas/12reuters-venezuela-pol.ht
 https://nytimes.com/reuters/2020/03/12/world/americas/12reuters-health-coronavirus-usa-trump-brazil.html?searchResultPosition=9
 
 **Israel's Netanyahu Calls for Emergency Government With Rival**\
-`Israeli Prime Minister Benjamin Netanyahu has called for the formation of an emergency government with his chief rival to confront a growing crisis over the coronavirus. `\
+`Israeli Prime Minister Benjamin Netanyahu on Thursday called for the formation of an emergency government with his chief rival to confront a growing crisis over the coronavirus, offering a potential way out of the deadlock that has paralyzed the political system for the past year. `\
 https://nytimes.com/aponline/2020/03/12/world/middleeast/ap-ml-israel-politics.html?searchResultPosition=10
 
