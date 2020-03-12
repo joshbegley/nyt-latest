@@ -1,40 +1,40 @@
+**A Look at Some of the Hardest Hit Sectors in the S&P 500**\
+`Seven weeks after the first case of COVID-19 was confirmed in the U.`\
+https://nytimes.com/aponline/2020/03/12/business/ap-virus-outbreak-business-fallout.html?searchResultPosition=1
+
+**Pregnant 19-Year-Old, Child Die Trying to Climb US Wall**\
+`A 19-year-old pregnant woman from Guatemala died this week from injuries suffered when she fell trying to climb the U.S. border wall near El Paso, Texas, U.S. and Guatemalan authorities said Thursday.`\
+https://nytimes.com/aponline/2020/03/12/us/ap-us-immigration-pregnant-womans-death.html?searchResultPosition=2
+
+**Activist Investor Icahn Raises Stake in Occidental to Nearly 10%**\
+`Billionaire investor Carl Icahn has raised his stake in Occidental Corp to nearly 10%, or about 88.6 million shares, saying the shares were undervalued, an SEC filing http://bit.ly/2Qb9byt on Thursday showed.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-occidental-icahn.html?searchResultPosition=3
+
+**Markets in Virus Panic: Day's Plunge in Charts**\
+`Sell, sell, sell.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-global-markets-graphic.html?searchResultPosition=4
+
+**IATA Urges Governments to Support Airlines in Wake of U.S. Travel Ban**\
+`The airlines industry body called on governments on Thursday to support transatlantic carriers hit by cash-flow problems due to the coronavirus crisis by offering measures such as credit lines and tax breaks.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-airlines.html?searchResultPosition=5
+
+**Explainer: Fed May Go Into Its Crisis Tool Kit Soon. What's in It?**\
+`Analysts and economists increasingly expect the Federal Reserve to roll out measures beyond interest rate cuts and bond purchases to ensure financial markets keep operating smoothly and banks have ample liquidity during the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-fed-programs-explainer.html?searchResultPosition=6
+
+**OAG Says United, Delta, Lufthansa to Bear Brunt of U.S. Travel Curbs**\
+`U.S. travel restrictions on passengers arriving from Europe's border-free Schengen area will affect passengers arriving on 6,747 flights over the next four weeks or 11% of all international flights, flight data provider OAG said.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-airlines-oag.html?searchResultPosition=7
+
+**Volkswagen Hopes New Software Will Banish Accidents by 2050**\
+`Volkswagen will launch a new software operating system this year that it hopes will make accidents involving its cars a thing of the past by 2050, the company said on Thursday.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-volkswagen-electric-accidents.html?searchResultPosition=8
+
+**Exclusive: Sinclair Oil Weighs Offers for Company Sale: Sources**\
+`Sinclair Oil Corp, which operates two Wyoming refineries and has licensed more than 1,000 branded gasoline stations, is reviewing offers to buy the company, according to three people familiar with the matter.    `\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-sinclair-oil-m-a-exclusive.html?searchResultPosition=9
+
 **JPMorgan CEO Jamie Dimon Home From Hospital, Recovering 'Well': Bank**\
 `JPMorgan Chase & Co Chief Executive Officer Jamie Dimon was released from a New York hospital and is now at home recovering from an emergency heart surgery he underwent last week, the bank said on Thursday. `\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-jp-morgan-dimon.html?searchResultPosition=1
-
-**Coronavirus Halts Lufthansa's Sale of International Catering Ops**\
-`German carrier Lufthansa has been forced by the coronavirus epidemic to halt the sale of the international operations of its airline caterer LSG, the company said on Thursday, confirming an earlier Reuters report.`\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-lufthansa-coronavirus-divestiture.html?searchResultPosition=2
-
-**NYSE President Says No Plan to Close Trading Floor Now**\
-`The New York Stock Exchange does not currently plan to close its trading floor and the markets are functioning as expected, even as concerns over the coronavirus cause sharp spikes in volatility, NYSE President Stacey Cunningham said on Thursday.`\
-https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-nyse.html?searchResultPosition=3
-
-**NHL 'Pausing' Season Amid Coronavirus Concerns**\
-`The NHL is following the NBA’s lead and suspending its season because of the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/03/12/sports/hockey/ap-hkn-virus-outbreak-nhl.html?searchResultPosition=4
-
-**CDC Reports 1,264 Coronavirus Cases, Death Tally of 36**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Thursday reported 1,264 cases of the coronavirus, an increase of 277 cases from its previous count, and said that the number of deaths had risen by 7 to 36.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-cases.html?searchResultPosition=5
-
-**UK Moves Toward Tougher Coronavirus Measures: Scotland's Sturgeon**\
-`The United Kingdom had decided to move to the "delay phase" of the coronavirus response that includes more stringent measures to counter the outbreak, Scottish First Minister said on Thursday. Nicola Sturgeon `\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-britain-sturgeon.html?searchResultPosition=6
-
-**Factbox: Italy Toughens Coronavirus Lockdown With New Measures**\
-`Italy added new restrictions on Wednesday to a lockdown imposed to fight the coronavirus, ordering bars, restaurants and most shops to close.`\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-italy-measures-factbox.html?searchResultPosition=7
-
-**U.S. CDC Issues Virus Travel Alert on Most of Europe, Restricting Entry to U.S.**\
-`The U.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-cdc.html?searchResultPosition=8
-
-**New York's Coronavirus 'Containment Zone' May Not Do Enough, Residents Say**\
-`People who live in the epicenter of New York's coronavirus outbreak said they were not convinced the state's order closing the area's schools and large-gathering venues for two weeks would do enough to curb the spread of infection. `\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-new-york-westchester.html?searchResultPosition=9
-
-**UK Coronavirus Cases Rise 29% to 590 in a Day, Total of 10 Dead**\
-`British cases of coronavirus rose 29% to 590 over the past 24 hours and the death toll rose to 10, health authorities said. `\
-https://nytimes.com/reuters/2020/03/12/world/europe/12reuters-health-coronavirus-britain-toll.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/12/business/12reuters-jp-morgan-dimon.html?searchResultPosition=10
 
