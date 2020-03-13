@@ -1,28 +1,28 @@
-**Love Letter: Life After ‘Love Is Blind’**\
-`Plus: Bonding over divorce.`\
-https://nytimes.com/2020/03/13/style/love-letter-life-after-love-is-blind.html?searchResultPosition=4
+**London Marathon Postponed to October Due to Coronavirus**\
+`The annual London marathon which was due to take place on April 26 has been postponed to Oct. 4 because of coronavirus, the organizers said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/sports/13reuters-health-coronavirus-britain-marathon.html?searchResultPosition=4
 
-**U.S. High Yield Bonds Recover Slightly**\
-`U.S. high-yield bonds recovered modestly Friday morning on hopes of a stimulus package after recording the worst losses in years the prior day.  `\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-credit-junkbonds.html?searchResultPosition=5
+**Golf: Disneyland Shut Down Prompted PGA Tour to Do the Same**\
+`The PGA Tour took its cue from Disneyland in deciding to cancel the Players Championship in Florida due to the coronavirus outbreak, commissioner Jay Monahan said on Friday, capping a chaotic and confusing 24 hours for the Tour's flagship event.`\
+https://nytimes.com/reuters/2020/03/13/sports/golf/13reuters-health-coronavirus-golf-pgatour.html?searchResultPosition=5
 
-**GrubHub Suspends $100 Million in Restaurant Commissions as Virus Spreads**\
-`Online food delivery company GrubHub Inc said on Friday it will temporarily suspend collecting commission fees of up to $100 million from independent U.S. restaurants hit by the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/13/technology/13reuters-health-coronavirus-grubhub.html?searchResultPosition=6
+**Curtain Comes Down on France's Moulin Rouge in Coronavirus Clampdown**\
+`Paris' famed Moulin Rouge cabaret and the Louvre museum were among French cultural landmarks that closed their doors on Friday after the government banned gatherings of more than 100 people to curb the spread of coronavirus. `\
+https://nytimes.com/reuters/2020/03/13/arts/13reuters-health-coronavirus-france-culture.html?searchResultPosition=6
 
-**Bernie Sanders and the Case of the Missing Youth Vote**\
-`Apathy is not the problem.`\
-https://nytimes.com/2020/03/13/opinion/bernie-sanders-young-voters.html?searchResultPosition=7
+**Browns Eliminate Travel, Announce Work-From-Home Policy**\
+`The Cleveland Browns are increasing their efforts to help stop the spread of coronavirus with the additional precautions announced Friday for employees and traveling staff.`\
+https://nytimes.com/reuters/2020/03/13/sports/13reuters-football-nfl-cle-browns-coronavirus.html?searchResultPosition=7
 
-**Why an Off-The-Cuff Lagarde Comment Spooked Euro Bond Investors So Much**\
-`For years, bond investors buying debt from riskier euro zone countries such as Italy have been comforted by the presence of the ECB's backstop to borrowing costs. But a communication mishap at a crucial juncture has undone some of that confidence.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-italy-bonds-ecb.html?searchResultPosition=8
+**Miami Mayor Tests Positive For Coronavirus**\
+`Mayor Francis Suarez was tested after being in close contact with an aide to President Bolsonaro of Brazil.`\
+https://nytimes.com/2020/03/13/us/francis-suarez-miami-mayor-coronavirus.html?searchResultPosition=8
 
-**UK Banks Press for Scrapping Stress Tests in Face of Coronavirus, Sources Say**\
-`Britain's banks have asked the Bank of England to scrap this year's stress test of lenders and to soften rules to help them cushion expected losses as the coronavirus pandemic hits their staff and customers, banking sources said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-britain-banks-stress.html?searchResultPosition=9
+**Carnival's Costa Cruises Halts Operations Through April 3**\
+`Carnival Corp unit Costa Cruises said on Friday it had halted all its voyages through April 3, a day after a similar move by the company's Princess Cruises subsidiary. `\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-carnival-costa.html?searchResultPosition=9
 
-**HSBC Employee in Its Dubai Office Has Coronavirus**\
-`An employee in HSBC's office in Dubai has been diagnosed with coronavirus, a spokesman for the bank confirmed on Friday in response to a Reuters inquiry.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-hsbc-hldg-dubai.html?searchResultPosition=10
+**Cost of Short-Term Debt Rises for U.S. Companies**\
+`U.S. companies are paying more to borrow the short-term debt they use to meet immediate funding needs like payrolls and inventories.     `\
+https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-credit-commercialpaper.html?searchResultPosition=10
 
