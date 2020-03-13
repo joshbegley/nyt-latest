@@ -1,40 +1,40 @@
-**Armenia Shuts Educational Institutions Until March 23 Over Coronavirus-PM**\
-`Armenian Prime Minister Nikol Pashinyan said on Friday Armenia would shut educational institutions immediately over coronavirus fears until March 23.  `\
-https://nytimes.com/reuters/2020/03/13/world/13reuters-health-coronavirus-armenia.html?searchResultPosition=1
+**One Last Hurrah?**\
+`Artists, patrons and young socialites gathered for the Art Production Fund gala.`\
+https://nytimes.com/2020/03/13/style/one-last-hurrah.html?searchResultPosition=1
 
-**Kazakhstan Confirms First Coronavirus Cases**\
-`Two Kazakh citizens have tested positive for coronavirus after returning from Germany, Healthcare Minister Yelzhan Birtanov said on Friday, the first cases of the disease in the Central Asian country.`\
-https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-health-coronavirus-kazakhstan.html?searchResultPosition=2
+**Tom Sachs, Emily Ratajkowski and David Byrne at Art Production Fund Gala**\
+`One last big bash — for a while, at least.`\
+https://nytimes.com/slideshow/2020/03/13/fashion/tom-sachs-emily-ratajkowski-and-david-byrne-at-art-production-fund-gala.html?searchResultPosition=2
 
-**UK Foreign Minister Raab Praises Response to Iraq Attack**\
-`Britain's foreign minister Dominic Raab said the U.S.-led response to the attack on coalition forces in Iraq was "swift, decisive and proportionate" and warned that anyone seeking to harm those forces could expect a strong response. `\
-https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-iraq-security-britain.html?searchResultPosition=3
+**The Women Who Defied Boko Haram, and Survived**\
+`Hundreds of women in Nigeria have been recruited by Boko Haram as suicide bombers, but some managed to outsmart the terrorist group. This is one woman’s story.`\
+https://nytimes.com/2020/03/13/world/africa/Nigeria-Boko-Haram-bomber.html?searchResultPosition=3
 
-**Pete Buttigieg Hosts ‘Jimmy Kimmel Live’ Without an Audience**\
-`The former presidential candidate wasn’t the only host taping in an empty studio on Thursday, as late night adapted to the coronavirus.`\
-https://nytimes.com/2020/03/13/arts/television/late-night-audience-trump-speech.html?searchResultPosition=4
+**Pain but No Panic in Texas Oil Patch as Saudis Flood Market**\
+`The shale drilling peak of a decade ago may never return, but the coronavirus fallout is being taken in stride: “Everyone knows oil is boom and bust.”`\
+https://nytimes.com/2020/03/13/business/energy-environment/texas-oil-prices-coronavirus.html?searchResultPosition=4
 
-**Czechs Returning From 18 High-Risk Countries Must Quarantine Themselves-Foreign Minister**\
-`The Czech government will require people returning from all high-risk countries to quarantine themselves, widening a requirement so far only applied to those returning from Italy, Foreign Minister Tomas Petricek said on Twitter on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-czech.html?searchResultPosition=5
+**Meet the Woman Who Outsmarted Boko Haram**\
+`Kidnapped and ordered to carry out suicide bombings, Balaraba intentionally botched her missions, buying time before her dramatic rescue.`\
+https://nytimes.com/2020/03/13/the-weekly/nigeria-boko-haram-girls-kidnapping.html?searchResultPosition=5
 
-**Accused of Abusing 349 Children, French Surgeon Faces Trial**\
-`A retired surgeon accused of sexually abusing as many as 349 young children over decades – primarily his patients, in their hospital rooms — is facing justice at last, in the worst such case to come to light in France.`\
-https://nytimes.com/aponline/2020/03/13/world/europe/ap-eu-france-surgeon-sex-abuse.html?searchResultPosition=6
+**Learning to Live With the Coronavirus**\
+`Our science reporter answers your questions about how to protect yourself and your loved ones from the pandemic.`\
+https://nytimes.com/2020/03/13/podcasts/the-daily/coronavirus.html?searchResultPosition=6
 
-**Dutch Golden Age Art Wasn’t All About White People. Here’s the Proof.**\
-`The period has long been associated with the portraits of its 17th-century white elite. But there are many overlooked paintings of black subjects, as an exhibition in Amsterdam shows.`\
-https://nytimes.com/2020/03/13/arts/design/black-portraits-dutch-golden-age.html?searchResultPosition=7
+**Everybody Ready for the Big Migration to Online College? Actually, No**\
+`One consequence of coronavirus: It will become more apparent that good online education is easier said than done.`\
+https://nytimes.com/2020/03/13/upshot/coronavirus-online-college-classes-unprepared.html?searchResultPosition=7
 
-**Medicine to Beat Coronavirus Bank Crisis Is Liquidity to Companies: German Economists**\
-`Europe must provide liquidity to companies hit by the coronavirus outbreak to avoid a banking crisis, a group of German economists said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-banks.html?searchResultPosition=8
+**The Worst-Case Estimate for U.S. Coronavirus Deaths**\
+`Projections based on C.D.C. scenarios reviewed by The Times suggest that — if no action were taken to slow transmission — 200,000 to 1.7 million people could die. But those numbers don’t account for interventions now underway.`\
+https://nytimes.com/2020/03/13/us/coronavirus-deaths-estimate.html?searchResultPosition=8
 
-**Berlin to Successively Close Schools, Reduce Public Transport From Next Week-n-Tv**\
-`German capital Berlin plans to gradually close its schools and kindergartens next week when public transport systems will be reduced to a necessary minimum, broadcaster n-tv said reported on its website on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-germany-berlin.html?searchResultPosition=9
+**Five Places to Visit in Raleigh, N.C., With a Local Chef and Musician**\
+`Cheetie Kumar, a chef and rock guitarist, is emblematic of the capital city’s evolution. She serves up some of her favorite spots in Raleigh.`\
+https://nytimes.com/2020/03/13/travel/five-places-to-visit-in-raleigh-nc-with-chef-and-musician-Cheetie-Kumar.html?searchResultPosition=9
 
-**European Stock Markets Rebound After Pandemic-Driven Crash**\
-`European stock markets bounced back on Friday from their worst day ever, as signs of a U.S. stimulus package helped soothe fears about an economic shock from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-europe-stocks.html?searchResultPosition=10
+**Travelers From Coronavirus Hot Spots Say They Faced No Screening**\
+`The Trump administration says Americans returning from coronavirus hot spots are being screened for symptoms. Some travelers say that is not happening.`\
+https://nytimes.com/2020/03/13/us/politics/coronavirus-travelers-screening.html?searchResultPosition=10
 
