@@ -1,40 +1,40 @@
+**China Will Lift Foreign Ownership Caps on Securities Firms From April 1**\
+`China will lift foreign ownership caps on securities firms starting April 1, China's securities regulator said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-china-securities-foreign.html?searchResultPosition=1
+
+**Iran Says Trump Should Blame Attacks on U.S. Troops' 'Presence and Behavior'**\
+`Iran's foreign ministry spokesman said on Friday that U.S. President Donald Trump should blame attacks against U.S. and allied forces in Iraq on their "presence and behavior".`\
+https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-iraq-security-iran-reaction.html?searchResultPosition=2
+
+**Germany Would Like to Localize Supply Chains, Nationalization Possible, Minister Says**\
+`German Economy Minister Peter Altmaier said he wanted to support pharmaceuticals companies that are dependent for key reagents on imports from Asia to rebuild their production sites in Europe, Der Spiegel magazine reported on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-germany-pharmaceuticals.html?searchResultPosition=3
+
+**China Cuts Reserve Ratios for Some Banks, Pumps Out $79 Billion to Spur Virus-Hit Economy**\
+`China's central bank said on Friday it was cutting the amount of cash that banks must hold as reserves for the second time this year, releasing 550 billion yuan ($78.82 billion) to shore up the economy, which was sharply jolted by the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-china-economy-rrr-cut.html?searchResultPosition=4
+
+**Indonesia's Confirmed Coronavirus Cases More Than Double, to 69**\
+`Indonesia on Friday reported 35 new coronavirus cases, including two toddlers, bringing its total to 69.`\
+https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-health-coronavirus-indonesia.html?searchResultPosition=5
+
+**WHO Officials Rethink Epidemic Messaging Amid Pandemic Debate**\
+`The World Health Organization is considering changing the way it classifies and describes international epidemics, amid a protracted public debate over whether to call the outbreak of the new coronavirus a pandemic.`\
+https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-health-coronavirus-who-messaging-insight.html?searchResultPosition=6
+
+**Clamor Grows for Trump to Cut China Tariffs in Coronavirus Response**\
+`As President Donald Trump scrambles for new ways to cushion the economic blow from the fast spreading coronavirus, industry groups, lawmakers and even some government officials are reviving a previous request: cut tariffs on Chinese and other imported goods.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-usa-trade.html?searchResultPosition=7
+
 **The Games Will Come Back. The Moments We’ll Miss Are Already Gone.**\
 `A March without its usual madness. Shots with no buzzers to beat. It’s not just games that sports is losing. It’s memories and, for some athletes, precious time.`\
-https://nytimes.com/2020/03/13/sports/baseball/virus-sports.html?searchResultPosition=1
+https://nytimes.com/2020/03/13/sports/baseball/virus-sports.html?searchResultPosition=8
 
 **Kuwait Asks Muslims to Pray at Home to Halt Coronavirus Spread**\
 `Kuwait's religious authorities asked Muslims to pray at home on Friday as Gulf Arab states stepped up measures to fight the spread of the new coronavirus.`\
-https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-health-coronavirus-kuwait.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-health-coronavirus-kuwait.html?searchResultPosition=9
 
 **U.S. Air Strikes in Iraq Killed Six People: Iraqi Military**\
 `Iraq's military condemned overnight U.S. air strikes on Friday and said they had killed six people and wounded 12, describing it as targeted aggression against the nation's formal armed forces and a violation of sovereignty.`\
-https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-iraq-security-usa-iran-retaliation-military.html?searchResultPosition=3
-
-**'Drop Everything, Scramble': Singapore's Contact Trackers Fight Coronavirus**\
-`After a coronavirus outbreak began to disrupt lives and activity in Singapore late in January, Conceicao Edwin Philip keeps himself ready to rush to hospital at a moment's notice, if summoned.`\
-https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-health-coronavirus-singapore-tracing.html?searchResultPosition=4
-
-**Canadian Businessman to Plead Guilty in U.S. College Admissions Scandal**\
-`A Canadian businessman is expected to plead guilty on Friday to participating in a vast U.S. college admissions cheating and fraud scheme in order to rig the results of his sons' SAT exams.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-usa-education-cheating.html?searchResultPosition=5
-
-**10 Things to Know for Today**\
-`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today:`\
-https://nytimes.com/aponline/2020/03/13/us/ap-10-things-to-know-today.html?searchResultPosition=6
-
-**Fed's Economic Forecasts to Give Window Into Extent of Coronavirus Fears**\
-`U.S. Federal Reserve policymakers have already begun responding to the coronavirus with an emergency interest rate cut and a reopening of their crisis tool kit, all without a clear idea of what damage is being done outside of plummeting financial markets.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-usa-fed-projections.html?searchResultPosition=7
-
-**Debate Offers Biden, Sanders a Chance to Bridge Democratic Party's Divide**\
-`After all the rancor of the Democratic presidential race, front-runner Joe Biden has a chance in Sunday's debate to extend an olive branch to rival Bernie Sanders and his fervent liberal supporters in a bid for party unity before the general election fight.`\
-https://nytimes.com/reuters/2020/03/13/us/politics/13reuters-usa-election-debate.html?searchResultPosition=8
-
-**Outspoken Tesla Chief Elon Musk Faces $1 Billion Trial, Test of Temperament**\
-`Elon Musk is expected to defend a $2.2 billion deal in court next week criticized by shareholders as benefiting Musk at the expense of Tesla Inc, and the outcome may depend as much on the chief executive's temperament as on the facts of the case. `\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-tesla-solarcity-lawsuit.html?searchResultPosition=9
-
-**Nepal Cancels Spring Mountain Climbing Season Due to Virus**\
-`Nepal's government announced Friday that it was suspending climbing permits for Mount Everest and all of the other peaks in the country due to concern over the spread of the coronavirus.`\
-https://nytimes.com/aponline/2020/03/13/sports/ap-as-virus-outbreak-everest-closed.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-iraq-security-usa-iran-retaliation-military.html?searchResultPosition=10
 
