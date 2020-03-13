@@ -1,28 +1,28 @@
+**Pelosi to Deliver Statement on Coronavirus Economic Relief Bill Friday Afternoon**\
+`U.S. House of Representatives Speaker Nancy Pelosi will deliver a statement on the coronavirus economic relief bill currently under consideration in her chamber at 2 p.m. (1800 GMT), her office said.`\
+https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa-congress-pelosi.html?searchResultPosition=4
+
+**Italian Daily Coronavirus Deaths Jump 25% to 1,266**\
+`The death toll from coronavirus in Italy has jumped in the last 24 hours by 250 to 1,266, a rise of 25% and the largest increase in absolute terms since the start of the outbreak, the Civil Protection Agency said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-italy-tally.html?searchResultPosition=5
+
+**Schools Scramble to Feed Students After Coronavirus Closures**\
+`Kiyana Esco needs free school lunches and breakfasts to feed her six children. But with schools shutting down over coronavirus concerns, she’s scrambling to pick up the meals, care for her kids and keep her job.`\
+https://nytimes.com/aponline/2020/03/13/us/ap-us-virus-outbreak-school-meals.html?searchResultPosition=6
+
+**‘People Should Be Less Concerned’ About Financial Markets, Mnuchin Says**\
+`In remarks to reporters, Treasury Secretary Steven Mnuchin attempted to allay fears about the economic damage caused by the spread of coronavirus.`\
+https://nytimes.com/video/us/elections/100000007032960/coronavirus-economy-mnuchin.html?searchResultPosition=7
+
 **Procrastinate Much? Manage Your Emotions, not Your Time.**\
 `It isn’t about avoiding work; it’s about avoiding negative emotions.`\
-https://nytimes.com/2020/03/13/smarter-living/tips-to-stop-procrastinating.html?searchResultPosition=4
+https://nytimes.com/2020/03/13/smarter-living/tips-to-stop-procrastinating.html?searchResultPosition=8
 
 **Italy's Lombardy Seeks Tightening of Screw to Defeat Coronavirus**\
 `The northern region of Lombardy, at the epicenter of Italy's coronavirus epidemic, asked on Friday for a further, final push to combat the contagion, which has killed more than 1,000 people and pummeled the economy.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-italy.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-italy.html?searchResultPosition=9
 
 **As Coronavirus Disrupts American Life, Congress Scrambles to Agree on Aid Plan**\
 `As a worsening coronavirus outbreak tore deeper into the fabric of American public life on Friday, Democratic lawmakers and the Trump administration closed in on an aid package to shield the U.S. economy from the ravages of the global pandemic.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa.html?searchResultPosition=6
-
-**Europe Is Pandemic Epicenter, Blanket Travel Bans Rarely Justified-WHO**\
-`Europe has now become the epicenter of the coronavirus pandemic, which has claimed 5,000 lives across the world, "a tragic milestone", the World Health Organization (WHO) said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-who.html?searchResultPosition=7
-
-**Like the Flu? Trump's Coronavirus Messaging Confuses Public, Pandemic Researchers Say**\
-`The coronavirus is not as bad as the seasonal flu. President Donald Trump is not worried about having had a direct exposure to the virus. The United States is in far better shape than other countries.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-mixed-messages.html?searchResultPosition=8
-
-**Trump to Declare Coronavirus a National Emergency-Source**\
-`U.S. President Donald Trump on Friday will declare a national emergency over the fast-spreading coronavirus, opening the door to providing more federal aid to fight the disease under the Stafford Act, according to a source familiar with the declaration.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa-emergency.html?searchResultPosition=9
-
-**AP Exclusive: Visits to Federal Inmates Halted Over Virus**\
-`Inmates at all 122 federal correctional facilities across the country will no longer be allowed visits from family, friends or attorneys for the next 30 days, in response to the threat of the coronavirus, officials told The Associated Press on Friday. `\
-https://nytimes.com/aponline/2020/03/13/us/politics/ap-us-virus-outbreak-federal-prisons.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa.html?searchResultPosition=10
 
