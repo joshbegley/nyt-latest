@@ -1,40 +1,40 @@
-**Berkshire Hathaway Makes Annual Meeting Purely Virtual**\
-`Warren Buffett's Berkshire Hathaway Inc said on Friday it will hold its annual meeting as scheduled on May 2, but  without shareholders in physical attendance due to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-berkshire.html?searchResultPosition=1
+**The Dollhouses of Instagram**\
+`Instagram-inspired enthusiasts are making their interior-design dreams real — only 12 times smaller.`\
+https://nytimes.com/2020/03/13/realestate/the-dollhouses-of-instagram.html?searchResultPosition=1
 
-**More Airlines Could Collapse if Coronavirus Crisis Lasts 2-3 Months-IATA Chief**\
-`If the coronavirus crisis lasts another two or three months, it could force carriers to collapse and spark more consolidation in the beleaguered airline industry, the International Air Transport Association (IATA) chief told Reuters on Friday.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-airlines-iata.html?searchResultPosition=2
+**The Week in Tech: Gigs at Home, but Not What Start-Ups Intended**\
+`Many tech employees have the luxury of working from home in an emergency. But companies like Uber, Airbnb and WeWork could end up hurting.`\
+https://nytimes.com/2020/03/13/automobiles/work-from-home.html?searchResultPosition=2
 
-**Airline SAS to Cut, Suspend U.S. Flights**\
-`SAS said on Friday it would cut flights to some U.S. destinations and suspend traffic to others in the wake of new U.S. travel restrictions from March 14. `\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-sas-cuts.html?searchResultPosition=3
+**Germany Has Shown It Is Doing a Lot to Support Economy-Minister**\
+`European Central Bank President Christine Lagarde is right that governments have a duty to take measures to support the economy and Germany has shown that it is doing a lot in that regard, Finance Minister Olaf Scholz said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-germany-ecb.html?searchResultPosition=3
 
-**North Macedonia Bars Foreigners Arriving From 'High-Risk Countries' Over Coronavirus**\
-`North Macedonia's outgoing government barred public gatherings on Friday and said it would deny entry to foreign nationals arriving from "high-risk countries" affected by the coronavirus.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-heath-coronavirus-northmacedonia.html?searchResultPosition=4
+**Germany: Hope Coronavirus Only Causes Blip in Growth, Not Crisis of the Decade**\
+`German Economy Minister Peter Altmaier said on Friday that he was hoping the coronavirus outbreak would only cause a blip in growth rather than causing the crisis of the decade.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-germany-altmaier-growth.html?searchResultPosition=4
 
-**Bulgaria Bans Travel to Iran, Raises Risk on Travels to 11 Countries**\
-`Bulgaria's foreign ministry on Friday banned all travel to Iran and advised Bulgarians to cancel all non-urgent travel to Spain and South Korea in a bid to curb the spread of coronavirus.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-bulgaria-travel.html?searchResultPosition=5
+**Germany: No Need to Take Stakes in Key Companies Due to Coronavirus at Moment**\
+`German Economy Minister Peter Altmaier said on Friday that he did not currently see any need to take stakes in key companies due to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-germany-altmaier.html?searchResultPosition=5
 
-**North Korea Had Military Forces on Lockdown for 30 Days Over Coronavirus-U.S. General**\
-`North Korea had its military forces on lockdown for about 30 days and in one instance did not fly a plane for 24 days, even though it has not confirmed any cases of coronavirus, the head of U.S. forces in South Korea said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-northkorea-usa.html?searchResultPosition=6
+**Cash Is King: BofA Says Investors Stick Record $137 Billion Into Cash**\
+`Investors stormed out of bonds, equities and every other major asset class and piled into cash in a wild week for markets that saw trillions of dollars wiped out amid rising recession fears due to the coronavirus pandemic, BofA said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-markets-flows-bofa.html?searchResultPosition=6
 
-**Hubei Government Says Only Wuhan City Is High Epidemic Risk as of March 12**\
-`The government of Hubei, the epicenter of a coronavirus outbreak, has lowered the epidemic risk ratings of several cities and regions, leaving only the capital of Wuhan as "high risk" as of the end of March 12, according to the Hubei Daily, a state-owned local paper.`\
-https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-health-coronavirus-hubei.html?searchResultPosition=7
+**Philadelphia Police Officer Is Killed in a Shooting**\
+`The officer was shot through a closed door while serving an arrest warrant near a church in Northeast Philadelphia. Two people involved in the shooting were injured.`\
+https://nytimes.com/2020/03/13/us/philadelphia-officer-shot.html?searchResultPosition=7
 
-**U.S. Health Agency to Fund Two Diagnostic Tests for Coronavirus**\
-`The U.S. Department of Health and Human Services said http://bit.ly/39So6Wc on Friday it would provide funding to two diagnostic tests that may detect respiratory syndrome-related coronavirus in about an hour.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-usa-diagnostic.html?searchResultPosition=8
+**Euro Zone Bond Yields Rise as ECB Seeks Damage Control**\
+`Euro zone government bond yields rose again on Friday after Thursday's selloff, when the European Central Bank disappointed markets with its measures to contain the effects of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-eurozone-bonds.html?searchResultPosition=8
 
-**Madrid Region Orders Shutdown of Bars, Shops Except Supermarkets, Chemists: Reports**\
-`All restaurants, bars and shops in Madrid will need to close over the coronavirus epidemic, with only supermarkets and pharmacies allowed to remain open, Spanish media said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-spain.html?searchResultPosition=9
+**Lagarde Is the Best Person for ECB Job-De Cos**\
+`The European Central Bank is ready to bring down Italian borrowing costs if needed and comments by ECB chief Christine Lagarde that suggested complacency over spreads were misunderstood, Spanish central bank chief Pablo Hernández de Cos said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-ecb-policy-decos.html?searchResultPosition=9
 
-**Fauci: U.S. Communities Need to Take Proportionate Measures, More Tests Coming**\
-`U.S. communities need to take proportionate measures to help prevent the spread of the coronavirus, the nation's top infectious disease official said on Friday, adding that he expects to see testing availability ramp up within a week.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa-fauci.html?searchResultPosition=10
+**US General: 'Fairly Certain' North Korea Has COVID-19 Cases**\
+`The top American general in South Korea said Friday he is quite sure North Korea has not been spared by the COVID-19 outbreak that began in neighboring China, although the North has not publicly confirmed a single case.`\
+https://nytimes.com/aponline/2020/03/13/us/politics/ap-us-united-states-korea.html?searchResultPosition=10
 
