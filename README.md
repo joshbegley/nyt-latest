@@ -1,28 +1,28 @@
-**Factbox: U.S. Federal Agencies Take Different Paths on Coronavirus**\
-`The U.S. government is restricting some of its 2.1 million employees from traveling and encouraging people to work from home to slow the spread of the coronavirus, which has infected 111,000 people in 105 countries.     `\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa-government-factbox.html?searchResultPosition=4
+**Four Cruise Companies Will Suspend Outbound Voyages for 30 Days: Trump**\
+`U.S. President Donald Trump said on Friday that four cruise line companies had agreed to suspend outbound cruises for 30 days, at his request, amid the global coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-usa-cruiseship.html?searchResultPosition=4
 
-**Even Among Young Men, Healthier Diet Tied to Higher Sperm Counts**\
-`Young men who care about their sperm quality might want to lay off the cheeseburgers and fries, according to a new study that links a typical Western diet with a lower sperm count. `\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-men-diet-testicular.html?searchResultPosition=5
+**Boeing Supplier Woes Increase as Coronavirus Grounds More Jets**\
+`Boeing Co's suppliers, already reeling from a 737 MAX grounding one year ago on Friday, face an even slimmer workload as flight cancellations spurred by the spreading coronavirus mean less airline demand for spare parts and services.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-boeing-loans-suppliers.html?searchResultPosition=5
 
-**Washington State's Death Toll From Coronavirus Jumps to 37**\
-`The death toll in Washington state from coronavirus has surged by six to a total of 37, Governor Jay Inslee said on Friday as he issued new executive orders intended to reduce the spread of the respiratory illness.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa-washington.html?searchResultPosition=6
+**IMF, World Bank Staff to Work From Home After Coronavirus Case at Fund Headquarters**\
+`The International Monetary Fund and World Bank Group on Friday advised their Washington headquarters staff to work from home after an IMF employee was diagnosed with COVID-19, the disease caused by the coronavirus.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-healthimf.html?searchResultPosition=6
 
-**Guest Lineups for the Sunday News Shows**\
-`Guest lineups for the Sunday news shows: `\
-https://nytimes.com/aponline/2020/03/13/arts/ap-us-news-shows.html?searchResultPosition=7
+**JPMorgan Says Two Employees at NYC Headquarters Contract Coronavirus**\
+`JPMorgan Chase and Co said on Friday two employees at its headquarters in New York City have contracted the coronavirus.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-jpmorgan.html?searchResultPosition=7
 
-**Trump Declared an Emergency Over Coronavirus. Here’s What It Can Do.**\
-`The president’s action will free up funds and lower legal barriers for responding to the pandemic.`\
-https://nytimes.com/2020/03/13/us/politics/coronavirus-national-emergency.html?searchResultPosition=8
+**U.S. Airports Up Forecast Losses This Year to $5.7 Bln on Sagging Travel Demand**\
+`A group representing major U.S. airports on Friday revised upward its forecast for estimated losses this year to $5.7 billion after President Donald Trump instituted new European travel curbs and as flight reductions rose.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-airports.html?searchResultPosition=8
 
-**When the Big Apple’s Culture Meccas Shut Down, They Made Lemonade**\
-`Resourceful tourists whose dream trips to New York have been upended by the pandemic are doing their best to cobble together alternative entertainment.`\
-https://nytimes.com/2020/03/13/arts/coronavirus-tourists-open.html?searchResultPosition=9
+**Delivery Fees, Commissions Cut as Americans Stop Dining Out**\
+`As Americans hole up at home to wait out the coronavirus pandemic, fewer people are going out to eat, leading some fast food chains to cut delivery fees and meal delivery platforms to suspend commissions. `\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-usa-delivery.html?searchResultPosition=9
 
-**UK Plans to Ban Mass Gatherings Next Week to Curb Covid-19: Sky News**\
-`British government is planning to introduce emergency laws next week to ban mass gatherings in an attempt to curb the coronavirus outbreak, Sky News reported https://news.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-britain-legislation.html?searchResultPosition=10
+**Buffett's Berkshire Taps Former AmEx CEO Kenneth Chenault for Board, as Bill Gates Steps Aside**\
+`Warren Buffett's Berkshire Hathaway Inc said on Friday that former American Express Co Chief Executive Officer Kenneth Chenault has been nominated to the conglomerate's board of directors, replacing Microsoft Corp co-founder Bill Gates.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-berkshire-buffett-pay.html?searchResultPosition=10
 
