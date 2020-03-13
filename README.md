@@ -1,28 +1,28 @@
-**Suriname Confirms First Coronavirus Case, Authorities Will Close Borders**\
-`Suriname on Friday confirmed its first case of coronavirus infection in a person who traveled to the South American country last week from the Netherlands, the vice president told the national assembly.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-suriname-confirmed.html?searchResultPosition=4
+**Kosovo Confirms First Coronavirus Cases, an Italian and a Kosovar**\
+`Kosovo reported its first coronavirus cases on Friday, in a 20-year-old Italian woman and a 77-year-old Kosovar man.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-kosovo.html?searchResultPosition=4
 
-**Explainer: Here's What Trump's Declaration of Coronavirus Emergency Means**\
-`U.S. President Donald Trump on Friday declared the coronavirus pandemic an emergency by invoking a law known as the Stafford Act.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa-emergency-explainer.html?searchResultPosition=5
+**Doctors, and Insurers Too, Urge Patients to Get Medicine on Hand**\
+`As Americans stay home to try to help stop the spread of a new coronavirus, many patients with conditions that require prescription drugs are being urged to refill their medications for a longer period.    `\
+https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-prescriptions.html?searchResultPosition=5
 
-**U.S. Summoned Chinese Ambassador Over Beijing's Coronavirus Comments, U.S. Official Says**\
-`The U.S. State Department on Friday summoned the Chinese ambassador to the United States to protest against comments by a Chinese foreign ministry spokesman who had suggested the U.S. military might have brought the coronavirus to Wuhan.`\
-https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-health-coronavirus-china-diplomacy.html?searchResultPosition=6
+**Egypt Reports 13 New Cases of Coronavirus, Bringing Total to 93**\
+`Egypt reported on Friday 13 new cases of coronavirus, bringing the total of cases detected in the country to 93, the health ministry said in a statement.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-egypt.html?searchResultPosition=6
 
-**Libya Closes Schools Over Coronavirus**\
-`Libyan schools in areas controlled by both the Tripoli government and a rival administration in Benghazi will close for two weeks, both have announced. `\
-https://nytimes.com/reuters/2020/03/13/world/africa/13reuters-health-coronavirus-libya.html?searchResultPosition=7
+**Marketing, Nutrition Labels May Lead Kids to Overeat Sugary Cereal**\
+`Parents may allow kids to eat too much sugary breakfast cereal because the suggested serving size is smaller than they realize, according to a new study.`\
+https://nytimes.com/reuters/2020/03/13/us/13reuters-health-kids-cereal.html?searchResultPosition=7
 
-**Slovenia's New Government Sworn in, Pledges to Fight Virus**\
-`Slovenia’s new, right-leaning government was sworn in on Friday, pledging stronger efforts to contain the spread of the new coronavirus.`\
-https://nytimes.com/aponline/2020/03/13/world/europe/ap-eu-slovenia-new-government.html?searchResultPosition=8
+**Spain's Catalonia Requests Regional Lockdown Over Coronavirus**\
+`The regional government of Spain's Catalonia asked Spanish  central authorities to help it block access by air, rail and water to guarantee the confinement of the whole region due to the coronavirus epidemic, regional leader Quim Torra said.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-spain-catalonia.html?searchResultPosition=8
 
-**Coronavirus Silences the Met Opera, and Poses an Economic Threat**\
-`The Met, the biggest performing arts organization in the nation, will lose millions in ticket revenues.`\
-https://nytimes.com/2020/03/13/arts/music/coronavirus-met-opera.html?searchResultPosition=9
+**Germany, Italy Rush to Buy Life-Saving Ventilators as Manufacturers Warn of Shortages**\
+`Germany and Italy spearheaded a national scramble for ventilators as manufacturers warned on Friday that hospitals everywhere face a lack of vital equipment needed to treat coronavirus patients.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-draegerwerk-ventilators.html?searchResultPosition=9
 
-**Walgreens to Provide Spaces for COVID-19 Testing Outside Its Stores**\
-`Drugstore chain operator Walgreens Boots Alliance Inc  said on Friday it would dedicate temporary spaces in some locations such as parking lots outside its stores to test for the coronavirus. `\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-walgreens-boots.html?searchResultPosition=10
+**Azerbaijan Bans Wedding Celebrations, Public Events After Coronavirus Death**\
+`Azerbaijan has banned wedding celebrations and other public events, the authorities said on Friday, a day after it recorded its first death from the coronavirus.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-azerbaijan.html?searchResultPosition=10
 
