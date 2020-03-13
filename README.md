@@ -1,28 +1,28 @@
-**EU to Offer Greater Leeway Under Fiscal Rules for Crisis Spending**\
-`The European Commission is ready to activate a clause in EU fiscal rules that would allow a suspension of budget commitments by countries most affected by the coronavirus crisis, the EU executive's vice president said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-dombrovskis.html?searchResultPosition=4
+**Turkish, Russian Troops to Start Syria Patrols on Sunday**\
+`Turkish and Russian troops will begin jointly patrolling a key highway in northwest Syria on Sunday as part of a fragile truce brokered by the countries, Turkey's defense minister said Friday.`\
+https://nytimes.com/aponline/2020/03/13/world/middleeast/ap-ml-syria.html?searchResultPosition=4
 
-**Inditex to Temporarily Close Stores in Areas Worst-Hit by Coronavirus in Spain**\
-`Zara owner Inditex said on Friday it would temporarily close stores in Spain in the areas designated by the government as the worst-affected by the coronavirus outbreak, including Madrid.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-inditex.html?searchResultPosition=5
+**U.S. Says Threat From Iran Still High After U.S. Retaliatory Strikes in Iraq**\
+`The threat from Iran is still high, even after the United States carried out retaliatory strikes against Iran-backed militia in Iraq blamed for killing U.S. and British forces in a rocket attack this week, a top U.S. general said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-iraq-security-usa-iran.html?searchResultPosition=5
 
-**EU to Launch 37 Billion Euro Coronavirus Investment Initiative**\
-`The European Union will launch a 37 billion euro investment initiative as part of a package of measures to cushion the bloc's economies from the impact of coronavirus, European Commission President Ursula von der Leyen said on Friday. `\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-eu-vonderleyen.html?searchResultPosition=6
+**Iraqi President Condemns U.S. Air Strikes-Statement**\
+`Iraqi President Barham Salih condemned on Friday a series of overnight U.S. air strikes as a violation of national sovereignty and warned that the country could slip into chaos and become a failed state.`\
+https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-iraq-security-usa-iran-president.html?searchResultPosition=6
 
-**Malaysia Sees $800 Million Tourism Sector Losses in January-February**\
-`Malaysia's tourism sector has likely suffered nearly 3.4 billion ringgit ($794.95 million) in losses in the first two months of 2020 due to the coronavirus outbreak, Prime Minister Muhyiddin Yassin said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-health-coronavirus-malaysia-tourism.html?searchResultPosition=7
+**6 Podcasts for the Theater Buff**\
+`Whether you’re a stage door regular or an occasional theatergoer, these shows will make you feel as if you’ve got the best seats in the house.`\
+https://nytimes.com/2020/03/13/theater/theater-podcasts.html?searchResultPosition=7
 
-**Russia Sees No Grounds to Resume Talks With OPEC+-Interfax Cites Energy Minister**\
-`Russian Energy Minister Alexander Novak said on Friday Russia sees no grounds for returning to discussions with its OPEC+ partners, the Interfax news agency reported. `\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-oil-opec-russia.html?searchResultPosition=8
+**At the Armory, Monteverdi’s ‘Vespers’ Are Newly Immersive**\
+`Pierre Audi’s staging of the composer’s “theater in the sound,” opening this month, is centered on a haunting and an enormous wax sculpture.`\
+https://nytimes.com/2020/03/13/arts/music/monteverdi-vespers-armory.html?searchResultPosition=8
 
-**EU's Draft New Deal Envisages Close Ties With Brexit Britain**\
-`The European Union's new deal with Brexit Britain envisages a tight trade and security relationship, according to a draft seen by Reuters on Friday, despite London saying it is seeking looser ties.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-britain-eu-trade-draft.html?searchResultPosition=9
+**David Chang Loves Beethoven’s Ninth (but Won’t Finish ‘Infinite Jest’)**\
+`The chef, author and television personality, whose second season of “Ugly Delicious” just arrived on Netflix, also puts a baby monitor, the Bhagavad Gita and “Gattaca” on his list of essentials.`\
+https://nytimes.com/2020/03/13/arts/david-chang-favorite-things.html?searchResultPosition=9
 
-**German Bankruptcies Set to Rise for First Time Since 2009-Administrator**\
-`The number of bankruptcies in Germany is set to rise this year for the first time since the financial crisis in 2009, the head of Germany's insolvency administrators' association said, warning that government aid could not protect all companies.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-germany-bankruptcy.html?searchResultPosition=10
+**Stocks Surge on Wall Street; Dow Jumps 550 Points, or 2.6%**\
+`Global financial markets surged Friday, clawing back a small slice of their losses in what has been a brutal week of selling as the spreading coronavirus heightened fear of a global recession.`\
+https://nytimes.com/aponline/2020/03/13/business/ap-financial-markets-1st-ld-writethru.html?searchResultPosition=10
 
