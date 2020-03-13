@@ -1,28 +1,28 @@
-**How the Coronavirus Is Changing Everything**\
-`Readers urge officials to stop playing politics and offer ideas for coping and preventing future outbreaks.`\
-https://nytimes.com/2020/03/13/opinion/letters/us-coronavirus.html?searchResultPosition=4
+**Why an Off-The-Cuff Lagarde Comment Spooked Euro Bond Investors So Much**\
+`For years, bond investors buying debt from riskier euro zone countries such as Italy have been comforted by the presence of the ECB's backstop to borrowing costs. But a communication mishap at a crucial juncture has undone some of that confidence.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-italy-bonds-ecb.html?searchResultPosition=4
 
-**Louisiana Postpones Presidential Primaries Over Coronavirus**\
-`The state of Louisiana has postponed its Democratic and Republican presidential primaries in an effort to curb the spread of coronavirus, Secretary of State Kyle Ardoin said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-usa-election-coronavirus-louisiana.html?searchResultPosition=5
+**UK Banks Press for Scrapping Stress Tests in Face of Coronavirus, Sources Say**\
+`Britain's banks have asked the Bank of England to scrap this year's stress test of lenders and to soften rules to help them cushion expected losses as the coronavirus pandemic hits their staff and customers, banking sources said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-britain-banks-stress.html?searchResultPosition=5
 
-**With Echoes of 2008, Mnuchin and Pelosi Hammer Out a Rescue Deal**\
-`The Treasury secretary has emerged as President Trump’s bridge across the aisle.`\
-https://nytimes.com/2020/03/13/us/politics/mnuchin-pelosi-coronavirus-stimulus-rescue.html?searchResultPosition=6
+**HSBC Employee in Its Dubai Office Has Coronavirus**\
+`An employee in HSBC's office in Dubai has been diagnosed with coronavirus, a spokesman for the bank confirmed on Friday in response to a Reuters inquiry.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-hsbc-hldg-dubai.html?searchResultPosition=6
 
-**U.S. Unions, Groups Urge Government Steps to Protect Workers From Coronavirus**\
-`Nearly 30 unions and advocacy groups on Friday urged the U.S. employee safety regulator to impose a suite of emergency measures to safeguard public-facing workers against the new coronavirus.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa-workers.html?searchResultPosition=7
+**Unilever Asks Employees to Work From Home Amid Coronavirus Concerns**\
+`Unilever said on Friday it had instructed all office-based employees globally to work from home starting Tuesday, as the London-based consumer goods company laid out measures to stem the spread of coronavirus within the group.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-unilever.html?searchResultPosition=7
 
-**Keep Flying Domestically, Mnuchin Tells Americans, Vowing Airline Support**\
-`U.S. Treasury Secretary Steven Mnuchin on Friday urged  Americans to shake off worries about the fast-spreading coronavirus and continue to fly on domestic airline routes, adding he would fly home to Los Angeles if he wasn't so busy.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-airlines-domestic.html?searchResultPosition=8
+**Italy Readying 2.85 Bln Billion Package for Debt Holiday, Soured Loans-Draft**\
+`Italy's government is studying measures worth upto 2.85 billion euros ($3.2 billion) to support a bank debt moratorium and ease disposals of problem loans, a draft decree seen by Reuters showed.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-italy-debt.html?searchResultPosition=8
 
-**Employers Navigate Virus Pandemic Without Firm Guidelines**\
-`It started with extra hand sanitizer and wipes for keyboards and headphones. Then came the directive for employees to lug their laptops home every night just in case. Finally, the memo arrived urging all employees to work from home — just not in their pajamas.`\
-https://nytimes.com/aponline/2020/03/13/business/bc-us-virus-outbreak-workplace.html?searchResultPosition=9
+**Bank of England Sees Options to Boost UK Economy Further as Coronavirus Hits-Minutes**\
+`The Bank of England has the option to cut interest rates further and ramp up asset purchases to help lessen the economic shock of the coronavirus outbreak, minutes from this week's emergency policy meeting showed on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-britain-boe.html?searchResultPosition=9
 
-**Fed Takes Extra Steps to Sooth Virus-Rattled Bond Market**\
-`The Federal Reserve and the European Central Bank have taken large steps this week to try to calm financial markets and restore some degree of confidence. So far, it hasn't quite worked. The central banks are facing a crisis only partly responsive to the medicine they can provide.`\
-https://nytimes.com/aponline/2020/03/13/business/bc-us-virus-outbreak-central-banks.html?searchResultPosition=10
+**Aston Martin Boosts Capital-Raising Plan After Coronavirus Market Volatility**\
+`Aston Martin is increasing a 500-million pound ($617 million) capital-raising plan by 36 million pounds due to the coronavirus outbreak which will now see a consortium led by Canadian billionaire Lawrence Stroll take a roughly 25% stake in the firm.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-astonmartin.html?searchResultPosition=10
 
