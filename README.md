@@ -1,28 +1,28 @@
-**Opioid Settlement Offer Provokes Clash Between States and Cities**\
-`The big drug distributors would pay $19.2 billion over 18 years. Some 30 states have signed on so far but most cities and counties hate the deal.`\
-https://nytimes.com/2020/03/13/health/opioids-settlement.html?searchResultPosition=4
+**Cycling: Giro d'Italia Postponed Due to Coronavirus-Race Organizers**\
+`The Giro d'Italia, which was due to start in Budapest, has been postponed after the Hungarian government's move to declare a state of emergency in response to the ongoing coronavirus crisis, race organizers RCS Sport said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/sports/cycling/13reuters-health-coronavirus-cycling-giro.html?searchResultPosition=4
 
-**Saudi Arabia Floods Europe With $25 Oil as Fight With Russia Escalates**\
-`Saudi Arabia is flooding Europe with oil at prices as low as $25 per barrel, specifically targeting big refiners of Russian oil in an escalation of its fight with Moscow for market share, five trading sources said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-oil-opec-saudi.html?searchResultPosition=5
+**Golf: Masters Postponed to 'Some Later Date' Due to Coronavirus**\
+`The Masters, which brings together the world's best golfers in April for the year's first major, has been postponed because of concerns about the coronavirus, Augusta National Golf Club said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/sports/golf/13reuters-health-coronavirus-golf-masters.html?searchResultPosition=5
 
-**Russian Oil Producers to Discuss Output Next Week-Interfax Cites Novak**\
-`Russian Energy Minister Alexander Novak said on Friday that Russian oil producers will meet next week to discuss oil production prospects, the Interfax news agency reported. `\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-opec-oil-russia-novak.html?searchResultPosition=6
+**Swiss Set Up $10.5 Billion Virus Aid Package, Close Schools**\
+`Switzerland will make 10 billion Swiss francs ($10.52 billion) available in immediate assistance to mitigate the economic impact of the coronavirus outbreak, the government said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-swiss.html?searchResultPosition=6
 
-**Fed's Rosengren Says 'Disruptive' Steps Needed to 'Dent' Coronavirus**\
-`The coronavirus could realistically infect a quarter of the U.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-usa-fed-rosengren.html?searchResultPosition=7
+**Athletics: Boston Marathon Moved to September From April Due to Coronavirus**\
+`The Boston Marathon, originally scheduled to be held on April 20, has been postponed until mid-September because of the coronavirus outbreak, the city's mayor said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/sports/13reuters-health-coronavirus-athletics-boston.html?searchResultPosition=7
 
-**Fed Starts Bond Purchases Under Ramped Up Liquidity Program**\
-`The Federal Reserve on Friday launched a wave of $37 billion of Treasury security purchases under the enhanced market liquidity measures it announced on Thursday to address volatile conditions in the government bond market caused by the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-fed-operations.html?searchResultPosition=8
+**Deutsche Bank Clears Part of London HQ After Coronavirus Case**\
+`An employee at Deutsche Bank in London has tested positive for coronavirus the German lender confirmed on Friday, prompting the firm to send some staff home.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-deutsche-bank-london.html?searchResultPosition=8
 
-**Norwegian Air Pleads for More as Oslo Offers First Aid to Stricken Travel Industry**\
-`Norway's government took steps to safeguard its aviation industry and its budget carrier Norwegian Air Shuttle warned of its possible collapse without further aid, as the coronavirus did more damage to the global travel sector on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-norway-airlines.html?searchResultPosition=9
+**Bitcoin Surges a Fifth as Markets Rebound, Still Down a Quarter Since Monday**\
+`Bitcoin surged by more than a fifth on Friday amid high volatility across rebounding global markets, reversing some of its heavy losses from a day earlier but still leaving the cryptocurrency down nearly 30% since the start of the week. `\
+https://nytimes.com/reuters/2020/03/13/technology/13reuters-crypto-currencies.html?searchResultPosition=9
 
-**Spring Fashion: Outerwear Lightens Up**\
-`Trenches, slickers, hats and gloves for the first sight of green.`\
-https://nytimes.com/2020/03/13/t-magazine/spring-outerwear.html?searchResultPosition=10
+**First Woman in Space Brought Down to Earth by Anger Over Bid to Prolong Putin Rule**\
+`Valentina Tereshkova was hailed as a hero when she became the first woman in space in 1963.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-russia-putin-lawmaker.html?searchResultPosition=10
 
