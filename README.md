@@ -23,6 +23,6 @@ https://nytimes.com/aponline/2020/03/13/sports/football/ap-fbn-vikings-moves.htm
 https://nytimes.com/aponline/2020/03/13/us/ap-us-swatting-neo-nazi.html?searchResultPosition=9
 
 **Danny Meyer Restaurants Close, and Others in New York Expect to Follow**\
-`Temporary shutdowns as owners’ worries shift from canceled reservations to survival.`\
+`Temporary shutdowns have begun as owners’ worries shift from canceled reservations to survival.`\
 https://nytimes.com/2020/03/13/dining/restaurant-closings-coronavirus.html?searchResultPosition=10
 
