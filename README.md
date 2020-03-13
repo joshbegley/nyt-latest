@@ -10,7 +10,7 @@ https://nytimes.com/2020/03/13/world/middleeast/alan-kurdi-death-trial.html?sear
 `Iraq's military said five security force members and a civilian were killed early Friday in a barrage of U.S. airstrikes, which were launched hours after a rocket attack killed and wounded American and British servicemen at a base north of Baghdad.`\
 https://nytimes.com/aponline/2020/03/13/world/middleeast/ap-ml-iraq-us.html?searchResultPosition=3
 
-**In a State of Emergency Over Coronavirus, N.Y.C. Slows Down: Live Updates**\
+**N.Y.C. Wakes Up in a State of Emergency Over Coronavirus: Live Updates**\
 `Subway ridership is light and two more schools have closed.`\
 https://nytimes.com/2020/03/13/nyregion/coronavirus-new-york-update.html?searchResultPosition=4
 
