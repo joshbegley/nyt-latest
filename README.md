@@ -1,40 +1,40 @@
-**Czech Government Bans Most Travel In and Out of Country to Fight Coronavirus**\
-`The Czech government has imposed a ban on foreigners entering the country and Czechs traveling abroad as of Monday as it tries to curb the coronavirus outbreak, Prime Minister Andrej Babis said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-czech-travel.html?searchResultPosition=1
+**Lebanese Central Bank Asks Banks to Prioritize FX Transfers for Coronavirus Supplies**\
+`Lebanon's central bank governor has asked commercial banks to prioritize foreign currency transfers for the purchase of medical supplies needed to combat coronavirus, a central bank statement on Friday said.`\
+https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-health-coronavirus-lebanon-banks-forex.html?searchResultPosition=1
 
-**Belarus Has 27 Cases of Coronavirus: Health Ministry**\
-`Belarus has recorded 27 people infected with coronavirus, six more than a day before, the health ministry said at a televised briefing on Friday. `\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-belarus.html?searchResultPosition=2
+**Norway's Central Bank Says Uncertainty Unusually High**\
+`Norway's central bank sees unusually high uncertainty in the economy as a result of the coronavirus outbreak, and the bank's economic forecasts have changed day by day, the bank's governor said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-cenbank-norway.html?searchResultPosition=2
 
-**Iraq Puts Germany and Qatar on Coronavirus Entry Ban List**\
-`Iraq has banned entry to travelers coming from Germany and Qatar, its health minister said on Friday, bringing the total number of countries on its entry ban list to 13 as it tries to stem the spread of coronavirus.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-iraq.html?searchResultPosition=3
+**Soccer: English Premier League Suspended Due to Coronavirus**\
+`All elite soccer matches in England, including the Premier League, were suspended until April 4 on Friday due to the coronavirus pandemic, English soccer's governing bodies said.`\
+https://nytimes.com/reuters/2020/03/13/sports/soccer/13reuters-health-coronavirus-soccer-england.html?searchResultPosition=3
 
-**Ethiopia Confirms Its First Case of Coronavirus**\
-`Ethiopia has confirmed its first case of the new coronavirus, the country's public health institute told Reuters on Friday.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-ethiopia.html?searchResultPosition=4
+**Italian Companies Rush to Provide Funds for Virus Emergency**\
+`Italy's biggest insurer Generali on Friday joined a rising number of companies that have rushed to provide funds to fight the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-italy-funds.html?searchResultPosition=4
 
-**China Sends Medical Supplies, Experts to Help Italy Battle Coronavirus**\
-`A planeload of medical supplies, including masks and respirators, has arrived in Italy from China to help it deal with its growing coronavirus crisis.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-italy-respirators.html?searchResultPosition=5
+**Italy, Spain Curb Trading to Stem Coronavirus Market Crash**\
+`Italy and Spain imposed trading curbs on stock markets, banning short-selling of dozens of stocks, to stem a market rout triggered by the coronavirus outbreak that saw European stock exchanges post their worst-ever daily losses.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-europe-stocks-short-selling.html?searchResultPosition=5
 
-**Premier League, Champions League Call Off Matches**\
-`The Premier League and the Champions League were both suspended Friday as the chaos stemming from the coronavirus outbreak continues to impact soccer.`\
-https://nytimes.com/aponline/2020/03/13/sports/soccer/ap-soc-virus-outbreak-soccer.html?searchResultPosition=6
+**UK Says Supermarkets Have Resilient Supply Chain**\
+`Britain still believes that supermarkets have a resilient supply chain, a spokesman for Prime Minister Boris Johnson said on Friday when asked about the impact of the coronavirus outbreak.  `\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-britain-supermarkets-government.html?searchResultPosition=6
 
-**3 Men Sentenced to Hundreds of Years in the Drowning of Syrian Refugee Boy**\
-`A Turkish court sentenced each man to 125 years in jail for the death of five refugees, including Alan Kurdi, 2, whose body washed up on a beach.`\
-https://nytimes.com/2020/03/13/world/middleeast/alan-kurdi-death-trial.html?searchResultPosition=7
+**Stock Futures Bounce Back After Pandemic-Driven Carnage**\
+`U.S. stock index futures jumped over 5% on Friday after the S&P 500 and Dow posted their worst sessions since the 1987 "Black Monday" crash, lifted by hopes of a U.S. stimulus package to contain the economic damage of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/13/us/13reuters-usa-stocks.html?searchResultPosition=7
 
-**Iraq Army Says US Strikes Kill 5 Security Forces, 1 Civilian**\
-`Iraq's military said five security force members and a civilian were killed early Friday in a barrage of U.S. airstrikes, which were launched hours after a rocket attack killed and wounded American and British servicemen at a base north of Baghdad.`\
-https://nytimes.com/aponline/2020/03/13/world/middleeast/ap-ml-iraq-us.html?searchResultPosition=8
+**HSBC Activates Social Distancing, Split-Site Measures in UK Due to Virus**\
+`HSBC on Friday told all staff in Britain to avoid traveling between its offices, practice social distancing measures and work from home where possible as it tries to battle the spread of coronavirus.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-hsbc-hldg.html?searchResultPosition=8
 
-**N.Y.C. Wakes Up in a State of Emergency Over Coronavirus: Live Updates**\
-`Broadway theaters are closed and subway ridership is down.`\
-https://nytimes.com/2020/03/13/nyregion/coronavirus-new-york-update.html?searchResultPosition=9
+**UK's Morrisons Speeds-Up Supplier Payments During Coronavirus Outbreak**\
+`British supermarket group Morrisons plans to pay its smaller suppliers within 48 hours to help them get through the coronavirus pandemic, it said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-morrisons.html?searchResultPosition=9
 
-**World’s Biggest Water Fights Called Off as Southeast Asia Scales Back New Year**\
-`Southeast Asian countries are cancelling or scaling back traditionally boisterous Buddhist New Year celebrations next month, citing the coronavirus pandemic as they call off water-soaked street parties and festivals.`\
-https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-health-coronavirus-southeastasia-newyear.html?searchResultPosition=10
+**Vietnam Lets Samsung Display Engineers From South Korea Skip Quarantine-Embassy**\
+`Vietnam allowed entry to nearly 200 engineers from Samsung Electronics' display unit from South Korea on Friday without making them go into quarantine for 14 days, the South Korean embassy in Vietnam said.`\
+https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-health-coronavirus-samsung-display-vietnam.html?searchResultPosition=10
 
