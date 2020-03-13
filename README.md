@@ -1,40 +1,40 @@
-**American Airlines Says Pilot Tests Positive for Covid-19**\
-`American Airlines Group Inc said on Thursday a pilot based out of Dallas-Fort Worth tested positive for Covid-19.`\
-https://nytimes.com/reuters/2020/03/12/world/asia/12reuters-health-coronavirus-american-airline-pilot.html?searchResultPosition=1
+**Canada Revising Deal Aimed at Validating U.S.-Certified Planes**\
+`Transport Canada said on Thursday it is revising a deal that would have reduced technical work done by the Canadian regulator when validating Federal Aviation Administration (FAA) certified aircraft like the Boeing 737 MAX.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-canada-737max.html?searchResultPosition=1
 
-**Trump, Abe to Hold Phone Talks Friday Morning Japan Time: Jiji**\
-`U.S. President Donald Trump and Japanese Prime Minister Shinzo Abe will talk on the phone on Friday morning Japan time, Jiji news agency reported. `\
-https://nytimes.com/reuters/2020/03/12/world/asia/12reuters-health-coronavirus-japan-us.html?searchResultPosition=2
+**Wall Street Dazed and Confused After Worst Day Since 1987**\
+`As trading ended on Thursday in Wall Street's worst day for three decades, shell-shocked investors had no idea how much further the market was likely to fall as the coronavirus pandemic spread fear of a global recession.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-markets-chaos.html?searchResultPosition=2
 
-**Hospitals Plan for 'COVID Cabanas,' Conference Rooms to House Patients**\
-`U.S. hospitals, bracing for a surge in demand as more Americans are infected with the novel coronavirus, plan to use tents, conference rooms and cafeterias to house overflow patients.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-hospitals.html?searchResultPosition=3
+**Wall Street Sell-Off Batters Bitcoin, Pounds Palladium as Investors Go to Cash**\
+`Crushing asset sell-offs ranging from bitcoin to precious metals and European stocks accompanied Wall Street's slide into bear market territory on Thursday, as investors liquidated positions across their portfolios to raise cash.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-markets-panic.html?searchResultPosition=3
 
-**U.S. States Scramble to Slow Virus Spread, Prevent Hospital Collapse**\
-`From cancelling Broadway shows to closing schools, U.S. states are scrambling to slow the spread of coronavirus and stop hospitals from being overwhelmed with a surge in critically ill patients, as has been the case in Italy.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-mitigation.html?searchResultPosition=4
+**Banks Remind Customers They Can Bank Online Amid Coronavirus Outbreak**\
+`Banks are talking up their online and mobile banking capabilities to customers as more Americans look to avoid public places amid the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-banks.html?searchResultPosition=4
 
-**Most Patients Underestimate Likely Scar Size Before Moh's Surgery**\
-`Patients who need to have a cancerous lesion removed from their face in a procedure known as Moh's micrographic surgery are often taken aback by the size of the resulting scar, a new study finds. `\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-cancer-skin.html?searchResultPosition=5
+**United to Scale Back Flights to Europe After March 19**\
+`United Airlines Holdings Inc said on Thursday it will continue to fly its regular schedule from Europe to the United States through March 19 but is scaling back flights after that date.`\
+https://nytimes.com/reuters/2020/03/12/business/12reuters-health-coronavirus-united-arlns.html?searchResultPosition=5
 
-**Long-Term Cancer Survival Rates Improve Among U.S. Teens, Young Adults**\
-`Cancer survivors diagnosed as teens or young adults are living longer now than young people diagnosed decades ago, largely because of advances in treatment, a U.S. study suggests.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-cancer.html?searchResultPosition=6
+**'People Are Terrified': Daily Life on Hold as Americans Face Coronavirus Threat**\
+`In Texas, a photographer worries about paying his bills. In Pennsylvania, an aspiring dancer struggles with a canceled audition. In suburban Los Angeles, a mother wonders whether anyone will show up for her son's bar mitzvah.`\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-life.html?searchResultPosition=6
 
-**Schools Ordered to Close in Three Seattle-Area Counties**\
-`Washington state Governor Jay Inslee on Thursday ordered schools to close in three Seattle-area counties to slow the spread of the COVID-19 virus in a state battling the nation's deadliest outbreak.`\
-https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-washington.html?searchResultPosition=7
+**Eli Lilly, AbCellera Biologics to Co-Develop Coronavirus Therapies**\
+`Eli Lilly Co and privately-held AbCellera Biologics Inc on Thursday announced they would co-develop antibody products for the treatment of COVID-19, a flu-like disease caused by the fast-spreading coronavirus.`\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-lilly.html?searchResultPosition=7
 
-**Saudi Arabia Suspends Social Gathering in Wedding Halls and Hotels Over Coronavirus Fears**\
-`Saudi Arabia suspended on Thursday all social gatherings in wedding halls and hotels over coronavirus fears, the state news agency reported quoting a source in ministry of interior.`\
-https://nytimes.com/reuters/2020/03/12/world/middleeast/12reuters-health-coronavirus-saudi-suspends.html?searchResultPosition=8
+**Judge OKs More DNA Tests From Alleged Golden State Killer**\
+`A Northern California judge on Thursday approved prosecutors’ request to take more DNA samples from a man charged with being the infamous "Golden State Killer" who eluded arrest for decades.`\
+https://nytimes.com/aponline/2020/03/12/us/ap-us-golden-state-killer.html?searchResultPosition=8
 
-**AP Week in Pictures, Europe and Africa**\
-`MARCH 6-12, 2020`\
-https://nytimes.com/aponline/2020/03/12/us/ap-eu-pictures-of-the-week-in-europe-and-africa.html?searchResultPosition=9
+**More Evidence Up to an Egg a Day May Not Raise Heart Risk**\
+`People who eat an egg a day are no more likely to have heart attacks or strokes than those who steer clear of eggs, a large study suggests. `\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-health-diet-eggs.html?searchResultPosition=9
 
-**Spring Training Shuts Down, MLB Calls Off Games for Virus**\
-`Even before the first pitch, St. Louis Cardinals infielder Matt Carpenter could detect an odd vibe at Roger Dean Stadium.`\
-https://nytimes.com/aponline/2020/03/12/sports/baseball/ap-bbo-spring-training-rdp.html?searchResultPosition=10
+**Qatar Closes Cinemas, Gyms and Museums Over Coronavirus Fears**\
+`Qatar announced on Thursday the closure until further notice of all cinemas, theaters, gyms, kids areas and museums over coronavirus fears, the state news agency and government communications office reported on Twitter.`\
+https://nytimes.com/reuters/2020/03/12/world/middleeast/12reuters-health-coronavirus-qatar.html?searchResultPosition=10
 
