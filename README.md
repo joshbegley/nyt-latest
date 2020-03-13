@@ -1,28 +1,28 @@
-**Tax on Internet Ads Gets Traction in Maryland**\
-`A measure to make Maryland the first state in the nation to tax companies like Facebook and Google for money they make from digital ads on the internet is making steps forward in the state's legislature.`\
-https://nytimes.com/aponline/2020/03/13/business/ap-us-maryland-legislature-digital-ads.html?searchResultPosition=4
+**Procrastinate Much? Manage Your Emotions, not Your Time.**\
+`It isn’t about avoiding work; it’s about avoiding negative emotions.`\
+https://nytimes.com/2020/03/13/smarter-living/tips-to-stop-procrastinating.html?searchResultPosition=4
 
-**Alex Jones Is Told to Stop Selling Sham Anti-Coronavirus Toothpaste**\
-`Mr. Jones, who has used his radio show and website to promote conspiracy theories, is falsely claiming his products can fight the virus.`\
-https://nytimes.com/2020/03/13/nyregion/alex-jones-coronavirus-cure.html?searchResultPosition=5
+**Italy's Lombardy Seeks Tightening of Screw to Defeat Coronavirus**\
+`The northern region of Lombardy, at the epicenter of Italy's coronavirus epidemic, asked on Friday for a further, final push to combat the contagion, which has killed more than 1,000 people and pummeled the economy.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-italy.html?searchResultPosition=5
 
-**EU States to Take in 1,600 Migrant Children in Greece**\
-`A group of European Union countries has agreed to take in at least 1,600 migrant children in Greece traveling without their parents, with the first unaccompanied minors likely to find homes in Luxembourg as soon as next week, EU Home Affairs Commissioner Ylva Johansson said Friday.`\
-https://nytimes.com/aponline/2020/03/13/world/europe/ap-eu-europe-migrants-children.html?searchResultPosition=6
+**As Coronavirus Disrupts American Life, Congress Scrambles to Agree on Aid Plan**\
+`As a worsening coronavirus outbreak tore deeper into the fabric of American public life on Friday, Democratic lawmakers and the Trump administration closed in on an aid package to shield the U.S. economy from the ravages of the global pandemic.`\
+https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa.html?searchResultPosition=6
 
-**Business Events Scheduled for the Coming Week.**\
-`Business events scheduled for the coming week.`\
-https://nytimes.com/aponline/2020/03/13/business/ap-the-week-ahead.html?searchResultPosition=7
+**Europe Is Pandemic Epicenter, Blanket Travel Bans Rarely Justified-WHO**\
+`Europe has now become the epicenter of the coronavirus pandemic, which has claimed 5,000 lives across the world, "a tragic milestone", the World Health Organization (WHO) said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-who.html?searchResultPosition=7
 
-**Rushing to Refinance Your Mortgage: 6 Tips and What to Avoid**\
-`Communicate constantly, document everything — and definitely don’t apply for a new credit card.`\
-https://nytimes.com/2020/03/13/business/mortgage-refinance-delays.html?searchResultPosition=8
+**Like the Flu? Trump's Coronavirus Messaging Confuses Public, Pandemic Researchers Say**\
+`The coronavirus is not as bad as the seasonal flu. President Donald Trump is not worried about having had a direct exposure to the virus. The United States is in far better shape than other countries.`\
+https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-mixed-messages.html?searchResultPosition=8
 
-**Meet the New Drive-Through: A Coronavirus Clinic Serving Up Swabs**\
-`In Seattle, the center of the U.S. outbreak, one medical center has begun screening workers for the new virus by setting up a mobile clinic in a parking lot where cars serve as isolated waiting rooms.`\
-https://nytimes.com/2020/03/13/us/coronavirus-testing-drive-through-seattle.html?searchResultPosition=9
+**Trump to Declare Coronavirus a National Emergency-Source**\
+`U.S. President Donald Trump on Friday will declare a national emergency over the fast-spreading coronavirus, opening the door to providing more federal aid to fight the disease under the Stafford Act, according to a source familiar with the declaration.`\
+https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa-emergency.html?searchResultPosition=9
 
-**Police: Gov. Candidate in Room Where Crystal Meth Was Found**\
-`Former Florida Democratic candidate for governor Andrew Gillum is named in a police report Friday saying he was “inebriated" and initially unresponsive in a hotel room where authorities found baggies of suspected crystal methamphetamine.`\
-https://nytimes.com/aponline/2020/03/13/us/ap-us-andrew-gillum.html?searchResultPosition=10
+**AP Exclusive: Visits to Federal Inmates Halted Over Virus**\
+`Inmates at all 122 federal correctional facilities across the country will no longer be allowed visits from family, friends or attorneys for the next 30 days, in response to the threat of the coronavirus, officials told The Associated Press on Friday. `\
+https://nytimes.com/aponline/2020/03/13/us/politics/ap-us-virus-outbreak-federal-prisons.html?searchResultPosition=10
 
