@@ -1,40 +1,40 @@
+**American Airlines Says Pilot Tests Positive for Covid-19**\
+`American Airlines Group Inc said on Thursday a pilot based out of Dallas-Fort Worth tested positive for Covid-19.`\
+https://nytimes.com/reuters/2020/03/12/world/asia/12reuters-health-coronavirus-american-airline-pilot.html?searchResultPosition=1
+
+**Trump, Abe to Hold Phone Talks Friday Morning Japan Time: Jiji**\
+`U.S. President Donald Trump and Japanese Prime Minister Shinzo Abe will talk on the phone on Friday morning Japan time, Jiji news agency reported. `\
+https://nytimes.com/reuters/2020/03/12/world/asia/12reuters-health-coronavirus-japan-us.html?searchResultPosition=2
+
+**Hospitals Plan for 'COVID Cabanas,' Conference Rooms to House Patients**\
+`U.S. hospitals, bracing for a surge in demand as more Americans are infected with the novel coronavirus, plan to use tents, conference rooms and cafeterias to house overflow patients.`\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-hospitals.html?searchResultPosition=3
+
+**U.S. States Scramble to Slow Virus Spread, Prevent Hospital Collapse**\
+`From cancelling Broadway shows to closing schools, U.S. states are scrambling to slow the spread of coronavirus and stop hospitals from being overwhelmed with a surge in critically ill patients, as has been the case in Italy.`\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-mitigation.html?searchResultPosition=4
+
+**Most Patients Underestimate Likely Scar Size Before Moh's Surgery**\
+`Patients who need to have a cancerous lesion removed from their face in a procedure known as Moh's micrographic surgery are often taken aback by the size of the resulting scar, a new study finds. `\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-health-cancer-skin.html?searchResultPosition=5
+
+**Long-Term Cancer Survival Rates Improve Among U.S. Teens, Young Adults**\
+`Cancer survivors diagnosed as teens or young adults are living longer now than young people diagnosed decades ago, largely because of advances in treatment, a U.S. study suggests.`\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-health-cancer.html?searchResultPosition=6
+
+**Schools Ordered to Close in Three Seattle-Area Counties**\
+`Washington state Governor Jay Inslee on Thursday ordered schools to close in three Seattle-area counties to slow the spread of the COVID-19 virus in a state battling the nation's deadliest outbreak.`\
+https://nytimes.com/reuters/2020/03/12/us/12reuters-health-coronavirus-usa-washington.html?searchResultPosition=7
+
+**Saudi Arabia Suspends Social Gathering in Wedding Halls and Hotels Over Coronavirus Fears**\
+`Saudi Arabia suspended on Thursday all social gatherings in wedding halls and hotels over coronavirus fears, the state news agency reported quoting a source in ministry of interior.`\
+https://nytimes.com/reuters/2020/03/12/world/middleeast/12reuters-health-coronavirus-saudi-suspends.html?searchResultPosition=8
+
 **AP Week in Pictures, Europe and Africa**\
 `MARCH 6-12, 2020`\
-https://nytimes.com/aponline/2020/03/12/us/ap-eu-pictures-of-the-week-in-europe-and-africa.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/03/12/us/ap-eu-pictures-of-the-week-in-europe-and-africa.html?searchResultPosition=9
 
 **Spring Training Shuts Down, MLB Calls Off Games for Virus**\
 `Even before the first pitch, St. Louis Cardinals infielder Matt Carpenter could detect an odd vibe at Roger Dean Stadium.`\
-https://nytimes.com/aponline/2020/03/12/sports/baseball/ap-bbo-spring-training-rdp.html?searchResultPosition=2
-
-**GOP Rep. Hunter's Son Pens Letter to Keep Dad Out of Jail**\
-`The teenage son of convicted California Republican Rep. Duncan Hunter has penned a letter asking the court to not send his dad to jail for misspending his campaign funds. `\
-https://nytimes.com/aponline/2020/03/12/us/ap-us-california-convicted-congressman.html?searchResultPosition=3
-
-**Lawmakers Repeal Tax Break for Boeing to Resolve Dispute**\
-`The Washington Legislature has approved a revised bill to repeal a tax break for Boeing, a measure that was requested by the aerospace giant to resolve a long-running international trade dispute.`\
-https://nytimes.com/aponline/2020/03/12/business/ap-us-washington-boeing-tax.html?searchResultPosition=4
-
-**Rapper Kodak Black Pleads Guilty to Weapons Charge in NY**\
-`Rapper Kodak Black pleaded guilty Thursday to a weapons charge stemming from a stop at the Canadian border crossing near Niagara Falls last April.`\
-https://nytimes.com/aponline/2020/03/12/us/ap-us-rapper-border-arrest.html?searchResultPosition=5
-
-**Facebook Takedowns Reveal Sophistication of Russian Trolls**\
-`Facebook and Twitter revealed evidence Thursday suggesting that Russian efforts to interfere in the U.S. presidential election are getting more sophisticated and harder to detect.`\
-https://nytimes.com/aponline/2020/03/12/business/bc-us-facebook-election-interference.html?searchResultPosition=6
-
-**Coronavirus Briefing: What Happened Today**\
-`Suspended sports. New bans on gatherings. A sick movie star. The outbreak felt a lot less distant today for many Americans.`\
-https://nytimes.com/2020/03/12/world/Covid-19-news.html?searchResultPosition=7
-
-**Ex-Track Athletes Detail Alleged Sex Abuse by College Coach**\
-`Former Olympic high jumper Erin Aldrich claims one of her track coaches, John Rembao, began grooming her for a sexually abusive relationship when she was 16 before physically taking advantage of her two years later.`\
-https://nytimes.com/aponline/2020/03/12/sports/ap-us-ncaa-lawsuit.html?searchResultPosition=8
-
-**Want to Get Tested for the Coronavirus? It’s Still Incredibly Hard in Places That Need It Most**\
-`In a U.S. health care system that is already difficult to navigate, some patients describe Kafkaesque quests for tests.`\
-https://nytimes.com/2020/03/12/us/coronavirus-testing-challenges.html?searchResultPosition=9
-
-**Wall Street Suffers Worst Rout Since Black Monday as Virus Response Eludes Washington**\
-`The government’s lack of response and the economic fallout from the coronavirus fueled a steep sell-off in stocks and prompted cancellations and closings around the country.`\
-https://nytimes.com/2020/03/12/business/economy/coronavirus-response-wall-street.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/12/sports/baseball/ap-bbo-spring-training-rdp.html?searchResultPosition=10
 
