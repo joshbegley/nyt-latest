@@ -1,28 +1,28 @@
-**Russia to Limit Flights To and From EU, Switzerland and Norway Over Coronavirus**\
-`Russia will limit passenger flights to and from the European Union, Switzerland and Norway, starting on March 16, except for flights through Moscow's Sheremetyevo airport, the authorities said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-health-coronavirus-russia-flights.html?searchResultPosition=4
+**Employers Navigate Virus Pandemic Without Firm Guidelines**\
+`It started with extra hand sanitizer and wipes for keyboards and headphones. Then came the directive for employees to lug their laptops home every night just in case. Finally, the memo arrived urging all employees to work from home — just not in their pajamas.`\
+https://nytimes.com/aponline/2020/03/13/business/bc-us-virus-outbreak-workplace.html?searchResultPosition=4
 
-**CDC Reports 1,678 Coronavirus Cases, Death Tally of 41**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Friday reported 1,678 cases of the coronavirus, an increase of 414 cases from its previous count, and said that the number of deaths had risen by 5 to 41.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa-cdc.html?searchResultPosition=5
+**Fed Takes Extra Steps to Sooth Virus-Rattled Bond Market**\
+`The Federal Reserve and the European Central Bank have taken large steps this week to try to calm financial markets and restore some degree of confidence. So far, it hasn't quite worked. The central banks are facing a crisis only partly responsive to the medicine they can provide.`\
+https://nytimes.com/aponline/2020/03/13/business/bc-us-virus-outbreak-central-banks.html?searchResultPosition=5
 
-**Several Renault-Nissan Plants in Spain Halted Amid Coronavirus Outbreak**\
-`Several Renault-Nissan plants in Spain halted production temporarily on Friday or were planning stoppages next week due to a lack of parts amid the coronavirus epidemic, company officials said.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-spain-renault.html?searchResultPosition=6
+**European Leaders Act in Concert to Protect Economies**\
+`In a show of unity, leaders around the Continent pledged billions of euros to prevent the coronavirus from causing a deep recession.`\
+https://nytimes.com/2020/03/13/business/europe-germany-coronavirus.html?searchResultPosition=6
 
-**Scotland Announces First Coronavirus Death**\
-`Scotland has had its first death of a patient with coronavirus, an elderly patient with underlying health conditions, Scotland's chief medical officer said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-scotland.html?searchResultPosition=7
+**Overlooked No More: Ni Gusti Ayu Raka Rasmi, Balinese Dancer**\
+`She introduced the world to the highly stylized dance when she left her village in 1952 to lead a troupe on an international tour.`\
+https://nytimes.com/2020/03/13/obituaries/ni-gusti-ayu-raka-rasmi-overlooked.html?searchResultPosition=7
 
-**Coronavirus Death Toll in Italy's Lombardy Climbs to 890: Sources**\
-`The death toll from an outbreak of coronavirus in the northern Italian region of Lombardy, which has borne the brunt of a nationwide contagion, has risen to 890 over the past day from 744, two sources with access to the data said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-italy-lombardy.html?searchResultPosition=8
+**Activist Fund Elliott Backs SoftBank's $4.8 Billion Buyback Plan**\
+`Activist investor Elliott Management said on Friday it supports SoftBank Group Corp's latest move to buy back up to $4.8 billion of its shares.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-softbankgroup-buyback-elliott.html?searchResultPosition=8
 
-**Portugal to Help Firms Through Coronavirus, Tough Measures in Place**\
-`Portugal moved to help businesses weather the coronavirus epidemic on Friday with a 2.3 billion euros package, including delaying some tax payments and granting soft loans, while tough measures to contain the spread were put in place.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-portugal.html?searchResultPosition=9
+**Behind the Cover: The Music Issue**\
+`For this issue, a look at the 25 songs that matter right now.`\
+https://nytimes.com/2020/03/13/magazine/behind-the-cover-the-music-issue.html?searchResultPosition=9
 
-**Judge Says N Ireland Eco-Scandal Not Caused by Corruption**\
-`A public inquiry concluded Friday that a green-energy scandal which triggered the breakdown of Northern Ireland’s government was caused by a series of errors and not political corruption.`\
-https://nytimes.com/aponline/2020/03/13/world/europe/ap-eu-northern-ireland-energy-scandal.html?searchResultPosition=10
+**Apple Shifts Annual Developers Conference to Online-Only Format**\
+`Apple Inc on Friday moved its annual developers conference in San Jose, California, in June entirely online, citing the "current health situation."`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-apple.html?searchResultPosition=10
 
