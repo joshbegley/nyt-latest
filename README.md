@@ -1,28 +1,28 @@
-**Head of Mexico's Main Stock Exchange Tests Positive for Coronavirus**\
-`The president of the board of Mexico's main stock exchange, Jaime Ruiz Sacristan, has tested positive for coronavirus, according to a statement from the exchange on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/americas/13reuters-health-coronavirus-mexico-exchange.html?searchResultPosition=4
+**Vietnam to Refuse Visitors From UK, Schengen Countries-State Media**\
+`Vietnam will stop issuing tourist visas to citizens from Europe's Schengen area and Britain starting from Sunday, amid concerns over the spreading coronavirus, state media reported on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-vietnam-visa.html?searchResultPosition=4
 
-**Algerians Defy Coronavirus Threat to Keep Up Protests**\
-`Thousands of Algerians defied the threat of coronavirus on Friday to march against the ruling elite, keeping up a campaign of weekly protests that have lasted for more than a year and convulsed national politics. `\
-https://nytimes.com/reuters/2020/03/13/world/africa/13reuters-algeria-protests.html?searchResultPosition=5
+**Egypt Says Nearly 20 Killed in Freak Bad Weather**\
+`Nearly 20 people have been killed in some of the worst storms to hit Egypt in decades, the country's prime minister said in a statement on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-egypt-weather.html?searchResultPosition=5
 
-**Greece to Shut Down Shopping Malls, Cafes as Coronavirus Spreads**\
-`Greece will shut down shopping malls, cafes and bars to try to halt the spread of the coronavirus after confirmed cases jumped to 190, health authorities said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-greece-toll.html?searchResultPosition=6
+**Poles Should Avoid Travel Due to Coronavirus-Foreign Ministry**\
+`The Polish foreign ministry on Friday advised Poles to avoid unnecessary travel abroad due to the growing coronavirus outbreak but stopped short of issuing a ban as other countries in the region have done.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-poland-travel.html?searchResultPosition=6
 
-**Oman to Suspend Tourism Visas From March 15 for 30 Days-Coronavirus Committee**\
-`Oman will suspend the issuance of tourist visas from March 15 for a period of 30 days and will not allow cruise ships to dock at the sultanate's ports during this period, the foreign ministry said on Twitter, citing an ad hoc government committee to contain the spread of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/13/world/13reuters-health-coronavirus-oman.html?searchResultPosition=7
+**Dutch PM Says the Country Is Ready to Support Aviation Industry**\
+`The Netherlands' prime minister said on Friday the country is looking at measures to help support the Dutch aviation industry, including Air France-KLM subsidiary KLM and Schiphol airport.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-netherlands-aviation.html?searchResultPosition=7
 
-**Election Officials: Tuesday Primaries on Despite Virus Fears**\
-`Elections officials in the four states holding presidential primaries next week say they have no plans to postpone voting amid widespread disruptions caused by the coronavirus outbreak. Instead, they are taking extraordinary steps to ensure that voters can cast ballots and keep polling places clean.`\
-https://nytimes.com/aponline/2020/03/13/us/ap-us-virus-outbreak-us-primaries.html?searchResultPosition=8
+**Turkey Halts Flights With Nine European Countries to Contain Coronavirus**\
+`Turkey is halting flights to and from Germany, France, Spain, Norway, Denmark, Belgium, Austria, Sweden and the Netherlands as of Saturday morning until April 17 as part of efforts to contain coronavirus, Transport Minister Mehmet Cahit Turhan said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-turkey-flights.html?searchResultPosition=8
 
-**'We Need a Social Life'-French Stick to Cafe Culture Despite Coronavirus**\
-`At lunchtime in a busy Paris restaurant area, hundreds of people are soaking up the sun, eating, chatting and smoking on cafe terraces and adamant that the coronavirus will not get in the way of their lives.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-france-cafes.html?searchResultPosition=9
+**A Look at Entertainers and Entities on Hold Over Coronavirus**\
+`Some of the few entertainment entities that remained open and fully functioning were shutting down like much of the rest of the world on Friday, a day after institutions from Broadway to Disneyland closed their doors, TV shows including “The Price Is Right” halted production, and movie release dates strategically scheduled years in advance were pushed back indefinitely.`\
+https://nytimes.com/aponline/2020/03/13/arts/ap-us-virus-outbreak-entertainment-whats-happening.html?searchResultPosition=9
 
-**Chile's Pinera, Responding to Protests, Cracks Down on White-Collar Crime**\
-`Chilean President Sebastian Pinera announced legislation on Friday to combat white collar crimes such as insider trading and collusion, the latest in a series of proposals aimed at quelling the demands of continuing protests over inequality.`\
-https://nytimes.com/reuters/2020/03/13/world/americas/13reuters-chile-protests.html?searchResultPosition=10
+**Watch Live: Trump to Declare National Emergency for Coronavirus**\
+`President Trump is expected to hold a news conference on his administration’s new efforts to combat the coronavirus crisis.`\
+https://nytimes.com/video/us/politics/100000007032704/trump-coronavirus-live.html?searchResultPosition=10
 
