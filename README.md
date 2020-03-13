@@ -1,28 +1,28 @@
+**Slovenian Parliament Confirms Center-Right Cabinet of PM Jansa**\
+`Slovenia's parliament confirmed late on Friday the 16-member cabinet of the center-right Prime Minister Janez Jansa, who has pledged to do everything to slow the spread of the coronavirus epidemic in the country.`\
+https://nytimes.com/reuters/2020/03/13/world/13reuters-slovenia-government.html?searchResultPosition=4
+
+**Slovak Election Winner Secures Four-Party Coalition With Cabinet Deal**\
+`Slovakia's anti-corruption Ordinary People (OLANO) party, the winner of a February election, has agreed a four-party governing coalition after the parties struck a deal on cabinet seats, the parties' leaders said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-slovakia-politics.html?searchResultPosition=5
+
+**Bill Gates Stepping Down From Microsoft’s Board**\
+`Mr. Gates, who founded the company with Paul Allen four decades ago, will also step down from the board of Berkshire Hathaway.`\
+https://nytimes.com/2020/03/13/technology/bill-gates-microsoft-board.html?searchResultPosition=6
+
+**Ukraine to Suspend All Passenger Flights From March 17: Interfax Ukraine**\
+`Ukraine will suspend all passenger flights from March 17, Interfax Ukraine quoted Parliament Speaker Dmytro Razumkov as saying on Friday evening. `\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-ukraine-airlines.html?searchResultPosition=7
+
+**Amid a Pandemic, Trump Moves Forward With Safety Net Cuts**\
+`As the coronavirus upends the economy, the Trump administration plans to make changes to the food stamp program that could lead to nearly 700,000 people losing assistance.`\
+https://nytimes.com/2020/03/13/us/politics/coronavirus-food-stamps-medicaid.html?searchResultPosition=8
+
+**Coronavirus Travel Concerns Delay Ex-UAW Chief's Guilty Plea**\
+`An expected guilty plea to corruption charges by former United Auto Workers President Gary Jones has been delayed due to the coronavirus and traveling concerns.`\
+https://nytimes.com/aponline/2020/03/13/business/ap-us-uaw-corruption.html?searchResultPosition=9
+
 **Embattled Malawi President Dissolves Cabinet**\
 `Malawi President Peter Mutharika dissolved his cabinet on Friday ahead of a possible presidential election in May.`\
-https://nytimes.com/reuters/2020/03/13/world/africa/13reuters-malawi-politics.html?searchResultPosition=4
-
-**Irish Contingency Plans Include Coronavirus Patients in Hotel Beds**\
-`Ireland's contingency plans to fight the coronavirus if the outbreak becomes significantly worse includes seeking additional bed capacity in hotels, the country's health service provision chief said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-ireland.html?searchResultPosition=5
-
-**Venezuela, Already in Crisis, Reports 1st Coronavirus Cases**\
-`Venezuela confirmed its first two cases of the coronavirus on Friday, deepening anxiety in a crisis-stricken nation where many hospitals lack basics such as water and soap and struggle to treat even basic ailments. `\
-https://nytimes.com/aponline/2020/03/13/world/americas/ap-lt-virus-outbreak-venezuela.html?searchResultPosition=6
-
-**Coronavirus, Iraq, Pi Day: Your Friday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/03/13/briefing/coronavirus-iraq-pi-day.html?searchResultPosition=7
-
-**Air Pollution Clears in Northern Italy After Coronavirus Lockdown, Satellite Shows**\
-`Air pollution over northern Italy fell after the government introduced a nationwide lockdown to combat coronavirus, satellite imagery showed on Friday, in a new example of the pandemic's potential impact on emissions.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-italy-pollution.html?searchResultPosition=8
-
-**Jury Finds 3 Liable for About $10M in Medicare Fraud**\
-`A Mississippi hospital owner cheated Medicare out of $10.8 million, and his wife and the former chief financial officer of another company are liable for slightly less, a federal jury hearing a whistleblower lawsuit has found. `\
-https://nytimes.com/aponline/2020/03/13/business/ap-us-hospital-whistleblower-lawsuit.html?searchResultPosition=9
-
-**9 Shows for Social Distancing**\
-`What do a musical mockumentary, an addiction sitcom, two true-crime docs and a pottery competition have in common? They can all help you remove yourself from society.`\
-https://nytimes.com/2020/03/13/arts/television/9-shows-for-social-distancing.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/13/world/africa/13reuters-malawi-politics.html?searchResultPosition=10
 
