@@ -1,28 +1,28 @@
-**El Salvador Congress to Discuss Emergency Powers in Coronavirus Response**\
-`El Salvador's Congress will on Friday discuss implementing emergency powers nationwide, including the suspension of some rights to free speech and free association, in an escalation of measures to contain coronavirus. `\
-https://nytimes.com/reuters/2020/03/13/world/13reuters-health-coronavirus-el-salvador.html?searchResultPosition=4
+**Head of Mexico's Main Stock Exchange Tests Positive for Coronavirus**\
+`The president of the board of Mexico's main stock exchange, Jaime Ruiz Sacristan, has tested positive for coronavirus, according to a statement from the exchange on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/americas/13reuters-health-coronavirus-mexico-exchange.html?searchResultPosition=4
 
-**Israel’s Coronavirus Crisis Lets Netanyahu Seize the Initiative**\
-`Amid a yearlong political and legal imbroglio, a deadly contagion may give Israel’s embattled prime minister, Benjamin Netanyahu, a new lease on political life.`\
-https://nytimes.com/2020/03/13/world/middleeast/israel-coronavirus-netanyahu.html?searchResultPosition=5
+**Algerians Defy Coronavirus Threat to Keep Up Protests**\
+`Thousands of Algerians defied the threat of coronavirus on Friday to march against the ruling elite, keeping up a campaign of weekly protests that have lasted for more than a year and convulsed national politics. `\
+https://nytimes.com/reuters/2020/03/13/world/africa/13reuters-algeria-protests.html?searchResultPosition=5
 
-**Brazil's Bolsonaro, Who Met Trump, Tests Negative for Coronavirus**\
-`Brazilian President Jair Bolsonaro, who met with U.S. President Donald Trump just days ago, has tested negative for coronavirus, according to a post on his Facebook page on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/americas/13reuters-health-coronavirus-bolsonaro-negative.html?searchResultPosition=6
+**Greece to Shut Down Shopping Malls, Cafes as Coronavirus Spreads**\
+`Greece will shut down shopping malls, cafes and bars to try to halt the spread of the coronavirus after confirmed cases jumped to 190, health authorities said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-greece-toll.html?searchResultPosition=6
 
-**Panicked Shoppers Empty Shelves as Coronavirus Anxiety Rises**\
-`The scene inside one crowded store: There was no chicken available, nor garbanzo beans or chips. Another had no flu or cold medicines.`\
-https://nytimes.com/2020/03/13/nyregion/coronavirus-panic-buying.html?searchResultPosition=7
+**Oman to Suspend Tourism Visas From March 15 for 30 Days-Coronavirus Committee**\
+`Oman will suspend the issuance of tourist visas from March 15 for a period of 30 days and will not allow cruise ships to dock at the sultanate's ports during this period, the foreign ministry said on Twitter, citing an ad hoc government committee to contain the spread of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/13/world/13reuters-health-coronavirus-oman.html?searchResultPosition=7
 
-**Iraq to Complain to the U.N. Over U.S. Air Strikes-Ministry**\
-`Iraq will complain to the United Nations and the Security Council about overnight U.S. air strikes, a spokesman for the foreign ministry said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-iraq-security-usa.html?searchResultPosition=8
+**Election Officials: Tuesday Primaries on Despite Virus Fears**\
+`Elections officials in the four states holding presidential primaries next week say they have no plans to postpone voting amid widespread disruptions caused by the coronavirus outbreak. Instead, they are taking extraordinary steps to ensure that voters can cast ballots and keep polling places clean.`\
+https://nytimes.com/aponline/2020/03/13/us/ap-us-virus-outbreak-us-primaries.html?searchResultPosition=8
 
-**Stung by Losses, Progressive Women Aim for a Win in Illinois**\
-`Things were gloomy inside Elizabeth Warren's Illinois campaign headquarters the day after Super Tuesday, where it had become clear the Massachusetts senator's presidential bid was coming to an end.`\
-https://nytimes.com/aponline/2020/03/13/us/politics/ap-us-election-2020-illinois.html?searchResultPosition=9
+**'We Need a Social Life'-French Stick to Cafe Culture Despite Coronavirus**\
+`At lunchtime in a busy Paris restaurant area, hundreds of people are soaking up the sun, eating, chatting and smoking on cafe terraces and adamant that the coronavirus will not get in the way of their lives.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-france-cafes.html?searchResultPosition=9
 
-**In a Pandemic, Musicians Play in Empty Halls for Audiences Online**\
-`Bans on large gatherings have meant those tuning in aren’t aping the live listeners. They are the only listeners.`\
-https://nytimes.com/2020/03/13/arts/music/coronavirus-pandemic-music-streaming.html?searchResultPosition=10
+**Chile's Pinera, Responding to Protests, Cracks Down on White-Collar Crime**\
+`Chilean President Sebastian Pinera announced legislation on Friday to combat white collar crimes such as insider trading and collusion, the latest in a series of proposals aimed at quelling the demands of continuing protests over inequality.`\
+https://nytimes.com/reuters/2020/03/13/world/americas/13reuters-chile-protests.html?searchResultPosition=10
 
