@@ -1,28 +1,28 @@
-**How Major US Stock Indexes Fared Friday**\
-`Major indexes staged a late rally on Wall Street Friday after President Donald Trump announced new measures to fight the coronavirus. `\
-https://nytimes.com/aponline/2020/03/13/business/ap-financial-markets-box.html?searchResultPosition=4
+**Suriname Confirms First Coronavirus Case, Authorities Will Close Borders**\
+`Suriname on Friday confirmed its first case of coronavirus infection in a person who traveled to the South American country last week from the Netherlands, the vice president told the national assembly.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-suriname-confirmed.html?searchResultPosition=4
 
-**Global Fund Launched to Raise Funds for COVID-19 Pandemic**\
-`The World Health Organization’s chief launched a global fund on Friday to raise money to help the world’s nations respond to the COVID-19 pandemic, saying “every dollar donated is a dollar towards saving lives.”`\
-https://nytimes.com/aponline/2020/03/13/world/ap-un-virus-outbreak-global-fund.html?searchResultPosition=5
+**Explainer: Here's What Trump's Declaration of Coronavirus Emergency Means**\
+`U.S. President Donald Trump on Friday declared the coronavirus pandemic an emergency by invoking a law known as the Stafford Act.`\
+https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa-emergency-explainer.html?searchResultPosition=5
 
-**Man Found Guilty in Chicago Police Officer Slaying**\
-`A jury convicted a man Friday of first-degree murder in the 2018 shooting death of a Chicago police commander.`\
-https://nytimes.com/aponline/2020/03/13/us/ap-us-chicago-police-commander-killed.html?searchResultPosition=6
+**U.S. Summoned Chinese Ambassador Over Beijing's Coronavirus Comments, U.S. Official Says**\
+`The U.S. State Department on Friday summoned the Chinese ambassador to the United States to protest against comments by a Chinese foreign ministry spokesman who had suggested the U.S. military might have brought the coronavirus to Wuhan.`\
+https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-health-coronavirus-china-diplomacy.html?searchResultPosition=6
 
-**Author Roth Weighed In on 'Plot Against America' TV Series**\
-`David Simon, the creative force behind stellar TV including “The Wire," “Show Me a Hero” and “Treme,” found himself in unfamiliar territory with his latest series, HBO’s “The Plot Against America.”`\
-https://nytimes.com/aponline/2020/03/13/us/ap-us-tv-plot-against-america.html?searchResultPosition=7
+**Libya Closes Schools Over Coronavirus**\
+`Libyan schools in areas controlled by both the Tripoli government and a rival administration in Benghazi will close for two weeks, both have announced. `\
+https://nytimes.com/reuters/2020/03/13/world/africa/13reuters-health-coronavirus-libya.html?searchResultPosition=7
 
-**R. Kelly Knowingly Exposed Sex Partners to Herpes, Prosecutors Say**\
-`The new allegations against the singer were revealed ahead of a trial set for July in Brooklyn.`\
-https://nytimes.com/2020/03/13/nyregion/r-kelly-herpes.html?searchResultPosition=8
+**Slovenia's New Government Sworn in, Pledges to Fight Virus**\
+`Slovenia’s new, right-leaning government was sworn in on Friday, pledging stronger efforts to contain the spread of the new coronavirus.`\
+https://nytimes.com/aponline/2020/03/13/world/europe/ap-eu-slovenia-new-government.html?searchResultPosition=8
 
-**California Man Pleads Guilty in $6 Million Art Fraud Case**\
-`Prosecutors said that Philip Righter forged documentation for fake paintings and used the artwork as collateral for loans.`\
-https://nytimes.com/2020/03/13/us/philip-righter-art-fraud.html?searchResultPosition=9
+**Coronavirus Silences the Met Opera, and Poses an Economic Threat**\
+`The Met, the biggest performing arts organization in the nation, will lose millions in ticket revenues.`\
+https://nytimes.com/2020/03/13/arts/music/coronavirus-met-opera.html?searchResultPosition=9
 
-**I Practiced Social Distancing Before Coronavirus. It Works.**\
-`Self-isolating may sound excessive and inconvenient, but it kept my premature babies alive.`\
-https://nytimes.com/2020/03/13/parenting/social-distancing-coronavirus.html?searchResultPosition=10
+**Walgreens to Provide Spaces for COVID-19 Testing Outside Its Stores**\
+`Drugstore chain operator Walgreens Boots Alliance Inc  said on Friday it would dedicate temporary spaces in some locations such as parking lots outside its stores to test for the coronavirus. `\
+https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-walgreens-boots.html?searchResultPosition=10
 
