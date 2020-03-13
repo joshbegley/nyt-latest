@@ -1,40 +1,40 @@
+**BOJ May Top Up Commercial Paper and Corporate Bond Buying Next Week-Sources**\
+`The Bank of Japan may top up purchases of commercial paper and corporate bonds next week, sources familiar with its thinking said, as markets show increasing signs of strain due to fears over the widening fallout from the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-japan-economy-boj-cp.html?searchResultPosition=1
+
+**Lebanon Banks to Close on Saturday to Sanitize Against Coronavirus-Banking Association Statement**\
+`Lebanon's banks will close on Saturday in order to take steps to sanitize branches and prevent the spread of coronavirus, the country's banking association said in a statement on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-health-coronavirus-lebanon-banks.html?searchResultPosition=2
+
+**World Travel May Shrink 25% on Coronavirus in 2020, Shed 50 Million Jobs-WTTC**\
+`The coronavirus epidemic is putting up to 50 million jobs in the global travel and tourism sector at risk, with international travel likely to slump by a quarter this year, the World Travel and Tourism Council projected on Friday.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-tourism.html?searchResultPosition=3
+
+**Norway Central Bank Slashes Rates, Pumps Money Into Banks**\
+`Norway's central bank slashed interest rates on Friday and lined up emergency loans for banks, as it warned of a sharp economic downturn triggered by the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-norway-cenbank.html?searchResultPosition=4
+
+**Why Brazilian Airline Shares Are Hardest Hit by the Coronavirus Panic**\
+`The airline stocks that suffered the most after U.S. President Donald Trump barred continental Europeans from traveling to the United States do not even operate flights between those two regions. `\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-brazil-airlines-analysis.html?searchResultPosition=5
+
+**Iran's Coronavirus Death Toll 514 on Over 1,000 New Cases: State TV**\
+`The total number of deaths in Iran from the coronavirus outbreak has risen by 85 to 514, a health ministry official said on state TV on Friday, adding that the total number of infections had increased by more than 1,000 in the past 24 hours, to 11,364.`\
+https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-health-coronavirus-iran.html?searchResultPosition=6
+
+**Trump: Coronavirus Testing Will Soon Happen on 'Large Scale',' Red Tape' Cut**\
+`President Donald Trump said on Friday morning that coronavirus testing in the United States will soon happen on a large scale, but did not provide any details on how that would be accomplished. `\
+https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa-trump.html?searchResultPosition=7
+
+**Expainer: Keep Calm and Carry On-What Is the Logic Behind Britain's Coronavirus Bet?**\
+`British Prime Minister Boris Johnson has cautioned that more families will lose their loved ones to the coronavirus but has taken a distinctly different approach to tackling the outbreak.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-britain-explainer.html?searchResultPosition=8
+
 **Democracy in Times of Virus: France Maintains Elections**\
 `The new virus has shuttered all schools, banished cheek-kissing and upended daily life across France, but President Emmanuel Macron won't let it disrupt democracy, so he's maintaining nationwide elections this weekend.`\
-https://nytimes.com/aponline/2020/03/13/world/europe/ap-eu-france-elections.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/03/13/world/europe/ap-eu-france-elections.html?searchResultPosition=9
 
 **St. Paul Teachers, School District Reach Deal Ending Strike**\
 `The St. Paul teachers union and Minnesota's second-largest school district reached a tentative contract agreement early Friday, ending a strike that began Tuesday and canceled classes for some 36,000 students. `\
-https://nytimes.com/aponline/2020/03/13/us/ap-us-st-paul-teachers-.html?searchResultPosition=2
-
-**On Politics: ‘A Major War’**\
-`The health crisis engulfs the political world: This is your morning tip sheet.`\
-https://nytimes.com/2020/03/13/us/politics/on-politics-coronavirus-biden-sanders.html?searchResultPosition=3
-
-**Greece Swears in First Female President, No Handshakes Amid Coronavirus**\
-`Greece's first female president, Katerina Sakellaropoulou, was sworn in for a five-year term on Friday at a ceremony scaled down due to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-greece-politics-president.html?searchResultPosition=4
-
-**Pasta, Toilet Paper and Flour Sold Out in Some London Supermarkets**\
-`An increasing number of supermarket shelves in London were empty on Friday as people rushed to buy pasta, toilet paper, flour and frozen food after the government ordered people with coronavirus to isolate themselves.`\
-https://nytimes.com/reuters/2020/03/13/technology/13reuters-health-coronavirus-britain-supermarkets.html?searchResultPosition=5
-
-**At 94, Mahathir Still Punching in Malaysia's Political Fray**\
-`Having lost leadership of Malaysia to an ally he says "double-crossed" him, 94-year-old Mahathir Mohamad insists he feels duty-bound to remain a player in the Southeast Asian nation's political scene.`\
-https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-malaysia-politics-mahathir.html?searchResultPosition=6
-
-**DealBook: Where Do We Go From Here?**\
-`Trillions of dollars in market value were erased after several global exchanges suffered their steepest fall since the Black Monday crash of 1987.`\
-https://nytimes.com/2020/03/13/business/dealbook/coronavirus-markets-stocks.html?searchResultPosition=7
-
-**OPEC+ Deal Collapse, Virus Double Whammy to Keep Oil in $30s Range-Reuters Poll**\
-`Oil prices are set to languish near current lows in coming months as the collapse of a deal among major producers to curb output hammers a market already reeling from falling demand due to the coronavirus, a Reuters survey showed on Friday.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-global-oil-poll.html?searchResultPosition=8
-
-**Exclusive: Japan's Economic Policymakers Now Factoring in Olympics Cancelation, Sources Say**\
-`Even as Japan has stressed that the Olympics will proceed as planned, government and central bank officials are more seriously weighing the risk of cancelation when making projections for this year's economic outlook, sources said.`\
-https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-health-coronavirus-olympics-boj-exclusive.html?searchResultPosition=9
-
-**Ukraine to Block Entry to Residents Registered in Separatist-Held Areas to Stop Coronavirus Spread**\
-`Ukraine's government at a televised meeting on Friday decided to ban citizens registered in separatist-held territory in the eastern Donbass region from entering government-controlled areas.`\
-https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-ukraine.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/13/us/ap-us-st-paul-teachers-.html?searchResultPosition=10
 
