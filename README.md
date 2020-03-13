@@ -1,28 +1,28 @@
-**Factbox: Foreign Exchange Regimes Around the World**\
-`Currency pegs have come under fresh scrutiny once again following a sharp decline in oil prices. Below is a list of some countries which still control their foreign exchange rates. `\
-https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-global-emerging-currencies-factbox.html?searchResultPosition=4
+**FIFA Recommends March, April Internationals Be Postponed**\
+`FIFA has recommended that all international matches scheduled to be played in March and April be postponed because of the coronavirus, the global soccer body said in a statement on Friday.`\
+https://nytimes.com/reuters/2020/03/13/sports/soccer/13reuters-health-coronavirus-soccer-fifa.html?searchResultPosition=4
 
-**American Dream Mall to Close for March Due to Virus Concerns**\
-`American Dream, the recently opened megamall and entertainment complex in northern New Jersey, will close Monday at least for the rest of the month due to the coronavirus outbreak. `\
-https://nytimes.com/aponline/2020/03/13/business/ap-us-virus-outbreak-megamall.html?searchResultPosition=5
+**Exclusive: Fewer Poll Workers, Coronavirus, Spark Fears of Election Day Woes in Ohio Democratic Primary**\
+`Nearly a quarter of Ohio's counties are deploying fewer poll workers for the state's Democratic primary on Tuesday than they have in previous presidential election years, raising concerns from voting-rights advocates who say the reductions could lengthen lines at the polls. `\
+https://nytimes.com/reuters/2020/03/13/us/politics/13reuters-usa-election-ohio-exclusive.html?searchResultPosition=5
 
-**Across Faiths, Religious Rules Bent as Virus Alters Worship**\
-`Across the United States, religious leaders are taking unprecedented steps to shield their congregations from the coronavirus - canceling services, banning large funerals and weddings, and waiving age-old requirements of their faiths.`\
-https://nytimes.com/aponline/2020/03/13/us/ap-us-virus-outbreak-church-services.html?searchResultPosition=6
+**Next Week's Democratic Primaries to Proceed Despite Coronavirus, Louisiana Delay**\
+`Louisiana on Friday became the first U.S. state to postpone its presidential nominating contest because of the coronavirus pandemic, while four states holding their primaries next week said those elections would go forward as planned.`\
+https://nytimes.com/reuters/2020/03/13/us/politics/13reuters-usa-election.html?searchResultPosition=6
 
-**At the Iranian Border, Iraqis Try to Keep a Virus From Entering**\
-`Iran has one of the world’s largest concentrations of the coronavirus. Iraq has had few cases, and wants to keep it that way. Things can get testy.`\
-https://nytimes.com/2020/03/13/world/middleeast/iran-iraq-virus-border.html?searchResultPosition=7
+**Cruise Liner Isolated in Brazil With 2 Possible Virus Cases**\
+`A cruise ship has been docked in isolation in northeastern Brazil after two passengers were found to have symptoms resembling that of the new coronavirus, local authorities said.`\
+https://nytimes.com/aponline/2020/03/13/world/americas/ap-lt-virus-outbreak-brazil-cruise-ship.html?searchResultPosition=7
 
-**U.S. Dollar Net Longs Tumble to Lowest Since July 2017: CFTC, Reuters Data**\
-`Speculators' net long U.S. dollar positioning in the latest week fell to its lowest level since July 2017, according to calculations by Reuters and U.S. Commodity Futures Trading Commission data released on Friday.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-cftc-forex.html?searchResultPosition=8
+**U.S. Court to Rehear House Bid for Testimony From Ex-White House Counsel McGahn**\
+`A U.S. appeals court on Friday said it would reconsider a recent decision dismissing a Democratic-led congressional panel’s lawsuit seeking to enforce a subpoena for testimony from former White House Counsel Donald McGahn.`\
+https://nytimes.com/reuters/2020/03/13/us/politics/13reuters-usa-trump-russia-mcgahn.html?searchResultPosition=8
 
-**Bank of Canada Slashes Rates Again to Provide 'Bridge Across the Trouble'**\
-`The Bank of Canada slashed its key interest rate for the second time in nine days on Friday to provide a "bridge across the trouble" as authorities seek to stave off a potential recession amid the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-canada-cenbank.html?searchResultPosition=9
+**Breakdancing Opera Star Uses Instagram to Promote Classical Music**\
+`With close to 60,000 Instagram followers, Polish opera singer and breakdancer Jakub Jozef Orlinski says he is trying to use social media to break down cultural barriers and attract younger audiences to classical music.`\
+https://nytimes.com/reuters/2020/03/13/arts/13reuters-poland-opera-breakdancer.html?searchResultPosition=9
 
-**Currency Pegs in Nigeria, Oman in Peril After Oil Price Plunge**\
-`Oil's $30 price plunge this week has sharply increased strains on a number of pegged currencies in energy-exporting emerging markets, above all in Nigeria and Oman where currencies have come under pressure in forward markets.`\
-https://nytimes.com/reuters/2020/03/13/world/middleeast/13reuters-emerging-markets-pegs-analysis.html?searchResultPosition=10
+**Four States Holding U.S. Democratic Primary Votes Plan to Go Forward on Tuesday**\
+`Arizona, Illinois, Ohio and Florida will hold primary votes on Tuesday as planned, election officials in the four states said in a joint statement, despite growing government cancellations as officials try to stem the spread of the coronavirus. `\
+https://nytimes.com/reuters/2020/03/13/us/politics/13reuters-usa-election-coronavirus-votes.html?searchResultPosition=10
 
