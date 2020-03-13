@@ -1,28 +1,28 @@
-**Pelosi to Deliver Statement on Coronavirus Economic Relief Bill Friday Afternoon**\
-`U.S. House of Representatives Speaker Nancy Pelosi will deliver a statement on the coronavirus economic relief bill currently under consideration in her chamber at 2 p.m. (1800 GMT), her office said.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa-congress-pelosi.html?searchResultPosition=4
+**Russia to Limit Flights To and From EU, Switzerland and Norway Over Coronavirus**\
+`Russia will limit passenger flights to and from the European Union, Switzerland and Norway, starting on March 16, except for flights through Moscow's Sheremetyevo airport, the authorities said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/asia/13reuters-health-coronavirus-russia-flights.html?searchResultPosition=4
 
-**Italian Daily Coronavirus Deaths Jump 25% to 1,266**\
-`The death toll from coronavirus in Italy has jumped in the last 24 hours by 250 to 1,266, a rise of 25% and the largest increase in absolute terms since the start of the outbreak, the Civil Protection Agency said on Friday.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-italy-tally.html?searchResultPosition=5
+**CDC Reports 1,678 Coronavirus Cases, Death Tally of 41**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Friday reported 1,678 cases of the coronavirus, an increase of 414 cases from its previous count, and said that the number of deaths had risen by 5 to 41.`\
+https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa-cdc.html?searchResultPosition=5
 
-**Schools Scramble to Feed Students After Coronavirus Closures**\
-`Kiyana Esco needs free school lunches and breakfasts to feed her six children. But with schools shutting down over coronavirus concerns, she’s scrambling to pick up the meals, care for her kids and keep her job.`\
-https://nytimes.com/aponline/2020/03/13/us/ap-us-virus-outbreak-school-meals.html?searchResultPosition=6
+**Several Renault-Nissan Plants in Spain Halted Amid Coronavirus Outbreak**\
+`Several Renault-Nissan plants in Spain halted production temporarily on Friday or were planning stoppages next week due to a lack of parts amid the coronavirus epidemic, company officials said.`\
+https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-spain-renault.html?searchResultPosition=6
 
-**‘People Should Be Less Concerned’ About Financial Markets, Mnuchin Says**\
-`In remarks to reporters, Treasury Secretary Steven Mnuchin attempted to allay fears about the economic damage caused by the spread of coronavirus.`\
-https://nytimes.com/video/us/elections/100000007032960/coronavirus-economy-mnuchin.html?searchResultPosition=7
+**Scotland Announces First Coronavirus Death**\
+`Scotland has had its first death of a patient with coronavirus, an elderly patient with underlying health conditions, Scotland's chief medical officer said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-scotland.html?searchResultPosition=7
 
-**Procrastinate Much? Manage Your Emotions, not Your Time.**\
-`It isn’t about avoiding work; it’s about avoiding negative emotions.`\
-https://nytimes.com/2020/03/13/smarter-living/tips-to-stop-procrastinating.html?searchResultPosition=8
+**Coronavirus Death Toll in Italy's Lombardy Climbs to 890: Sources**\
+`The death toll from an outbreak of coronavirus in the northern Italian region of Lombardy, which has borne the brunt of a nationwide contagion, has risen to 890 over the past day from 744, two sources with access to the data said on Friday.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-italy-lombardy.html?searchResultPosition=8
 
-**Italy's Lombardy Seeks Tightening of Screw to Defeat Coronavirus**\
-`The northern region of Lombardy, at the epicenter of Italy's coronavirus epidemic, asked on Friday for a further, final push to combat the contagion, which has killed more than 1,000 people and pummeled the economy.`\
-https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-italy.html?searchResultPosition=9
+**Portugal to Help Firms Through Coronavirus, Tough Measures in Place**\
+`Portugal moved to help businesses weather the coronavirus epidemic on Friday with a 2.3 billion euros package, including delaying some tax payments and granting soft loans, while tough measures to contain the spread were put in place.`\
+https://nytimes.com/reuters/2020/03/13/world/europe/13reuters-health-coronavirus-portugal.html?searchResultPosition=9
 
-**As Coronavirus Disrupts American Life, Congress Scrambles to Agree on Aid Plan**\
-`As a worsening coronavirus outbreak tore deeper into the fabric of American public life on Friday, Democratic lawmakers and the Trump administration closed in on an aid package to shield the U.S. economy from the ravages of the global pandemic.`\
-https://nytimes.com/reuters/2020/03/13/us/13reuters-health-coronavirus-usa.html?searchResultPosition=10
+**Judge Says N Ireland Eco-Scandal Not Caused by Corruption**\
+`A public inquiry concluded Friday that a green-energy scandal which triggered the breakdown of Northern Ireland’s government was caused by a series of errors and not political corruption.`\
+https://nytimes.com/aponline/2020/03/13/world/europe/ap-eu-northern-ireland-energy-scandal.html?searchResultPosition=10
 
