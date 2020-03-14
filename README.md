@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/03/14/world/africa/14reuters-mali-kidnapping-ca
 `The death toll from coronavirus infections in Iran rose on Saturday to 611, state TV said, citing a health ministry official who put the total number of those diagnosed with the disease at 12,729.`\
 https://nytimes.com/reuters/2020/03/14/world/middleeast/14reuters-health-coronavirus-iran.html?searchResultPosition=7
 
-**Austria Introducing 4 Billion Euro Coronavirus Aid Package**\
-`Austria is making 4 billion euros ($4.4 billion) available to deal with the economic fallout of the coronavirus pandemic, Chancellor Sebastian Kurz and Vice Chancellor Werner Kogler said on Saturday.`\
+**Austria Announces Coronavirus Aid Package, Ditches Deficit Target**\
+`Austria is making 4 billion euros ($4.4 billion) immediately available to deal with the economic fallout from the coronavirus pandemic, the conservative-led government said on Saturday as it ditched a central pledge to balance its budget.`\
 https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-austria.html?searchResultPosition=8
 
 **Malaysia Reports 41 New Cases of Coronavirus, All Linked to Religious Event**\
