@@ -1,28 +1,28 @@
+**For Many Athletes, Coronavirus Means the End of College Careers**\
+`“It feels like all the hard work — I don’t want to say it’s for nothing, but you want to compete.”`\
+https://nytimes.com/2020/03/14/sports/ncaabasketball/college-athletes-coronavirus.html?searchResultPosition=4
+
+**An Important Year for Women's Sports, Paused By Coronavirus**\
+`Female athletes already fight for money, screen time and other resources. Work stoppages over coronavirus concerns threaten opportunities to move forward.`\
+https://nytimes.com/2020/03/14/sports/womens-sports-coronavirus.html?searchResultPosition=5
+
+**She Wanted to Revive a Park. First She Had to Take On the Rats.**\
+`One woman’s mission to breathe new life into a small slice of Manhattan.`\
+https://nytimes.com/2020/03/14/nyregion/verdi-square-nyc-park.html?searchResultPosition=6
+
+**Indonesian Capital Closes Schools for Two Weeks Due to Coronavirus Concerns**\
+`Indonesia's capital city will close all schools and ordered remote teaching for at least two weeks starting next week to curb the spread of the coronavirus, Jakarta Governor Anies Baswedan told a broadcasted news conference on Saturday.`\
+https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-indonesia.html?searchResultPosition=7
+
+**Saudis Cancel Flights as Gulf Nations Move to Contain Virus**\
+`Saudi Arabia said Saturday that it would halt all international flights to the kingdom for two weeks in the latest effort to contain the spread of the new coronavirus.`\
+https://nytimes.com/aponline/2020/03/14/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=8
+
 **Taiwan Says Travelers From Europe to Undergo Quarantine**\
 `Taiwan will from March 17 require travelers from countries in Europe's Schengen border-free travel zone as well as Britain and Ireland to undergo a 14-day quarantine upon arrival to control the spread of the coronavirus, its government said on Saturday.`\
-https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-taiwan.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-taiwan.html?searchResultPosition=9
 
 **Tokyo Governor Vows Full Measures to Combat Coronavirus During Torch Relay**\
 `Tokyo Governor Yuriko Koike on Saturday vowed to take thorough measures against the coronavirus outbreak for the Olympic Torch relay through Japan and reaffirmed that preparations for a "safe and secure" 2020 Games were progressing, TV Asahi reported.`\
-https://nytimes.com/reuters/2020/03/14/sports/olympics/14reuters-health-coronavirus-olympics.html?searchResultPosition=5
-
-**New Zealand, Australia Tighten Lockdown to Combat Coronavirus**\
-`New Zealand on Saturday announced the world's tightest border controls to combat the spread of coronavirus, requiring all incoming travellers, including its own citizens, to self-isolate for two weeks starting midnight Sunday.`\
-https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-australia.html?searchResultPosition=6
-
-**Philippine Capital to Undergo Curfew, Mall Closures as Coronavirus Deaths Rise to Six**\
-`Mayors of Metro Manila's 16 cities announced nighttime curfews on Saturday and urged shopping malls to close for one month, in a bid to contain the spread of the new coronavirus, as the Philippines reported its sixth death.`\
-https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-philippines.html?searchResultPosition=7
-
-**Iraq's Protesters Struggle to Keep Waning Movement Going**\
-`At the once bustling hub of the largest anti-government protest movement in Iraq's modern history, crowds have dwindled, and donation boxes have sprouted up. Loudspeakers resound with calls by activists for funds to keep their hard-fought revolution alive. `\
-https://nytimes.com/aponline/2020/03/14/world/middleeast/ap-ml-iraq-waning-protests.html?searchResultPosition=8
-
-**Coronavirus Putting a Damper on Prep Tourneys Across Country**\
-`There were no pep bands, no cheerleaders and only about 200 fans as the high school rivals faced off in a playoff game that might have drawn close to 2,000 in just about any other circumstance.`\
-https://nytimes.com/aponline/2020/03/14/sports/ap-bkh-virus-outbreak-prep-sadness.html?searchResultPosition=9
-
-**Virus Cases Balloon Around the World as China Recovers**\
-`As the rest of the world mobilized to fight the widening coronavirus pandemic on Saturday, China continued to ease up lockdown measures in its hardest-hit region, where the number of new cases has dwindled.`\
-https://nytimes.com/aponline/2020/03/14/business/ap-virus-outbreak.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/14/sports/olympics/14reuters-health-coronavirus-olympics.html?searchResultPosition=10
 
