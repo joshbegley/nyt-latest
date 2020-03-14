@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-britain-legislation.html?searchResultPosition=4
 
 **Iraq Officials: Rocket Attack Hits Base Housing US Troops**\
-`A barrage of rockets hit a base housing U.S. and other coalition troops north of Baghdad, Iraqi security officials said Saturday, just days after a similar attack killed three three servicemen, including two Americans.`\
+`A barrage of rockets hit a base housing U.S. and other coalition troops north of Baghdad, Iraqi security officials said Saturday, just days after a similar attack killed three servicemen, including two Americans.`\
 https://nytimes.com/aponline/2020/03/14/world/middleeast/ap-ml-iraq-us.html?searchResultPosition=5
 
 **China's Finance Ministry First-Quarter Fiscal Income Affected by Coronavirus**\
