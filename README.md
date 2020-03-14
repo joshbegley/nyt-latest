@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus
 `Malaysia reported 41 new coronavirus cases on Saturday, all linked to a religious event on the outskirts of Kuala Lumpur that was attended by about 10,000 people from several countries.`\
 https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-malaysia.html?searchResultPosition=9
 
-**Greece Reports Two More Coronavirus Fatalities, Toll Rises to Three**\
-`Greece reported two more fatalities from a coronavirus infection on Saturday, raising the total number of deaths in the country to three.`\
+**Greece Reports Two More Coronavirus Fatalities, Suspends All Flights to Italy**\
+`Greece said on Saturday it would suspend all flights that were still operating to and from Italy, after reporting two more fatalities from a coronavirus infection, raising the total number of deaths in the country to three. `\
 https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-greece-death.html?searchResultPosition=10
 
