@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/03/14/world/europe/ap-eu-virus-outbreak-spain-
 https://nytimes.com/reuters/2020/03/14/us/14reuters-health-coronavirus-trump-test.html?searchResultPosition=7
 
 **Doctor Says Trump Tests Negative for Coronavirus**\
-`By The Associated Press`\
+`President Donald Trump has tested negative for the new coronavirus, according to the president's personal physician.`\
 https://nytimes.com/aponline/2020/03/14/us/politics/ap-us-trump-coronavirus.html?searchResultPosition=8
 
 **Corona Absence? French Voters Set to Shun Local Elections Amid Virus Fears**\
