@@ -15,7 +15,7 @@ https://nytimes.com/2020/03/13/opinion/trump-coronavirus-chernobyl.html?searchRe
 https://nytimes.com/aponline/2020/03/13/us/politics/ap-us-virus-outbreak-trump.html?searchResultPosition=7
 
 **US: Immigrants Can Seek Coronavirus Care Without Fear**\
-`The U.S. government says a new rule disqualifying more people from green cards if they use government benefits will not apply to immigrants with coronavirus or virus symptoms who seek care. `\
+`The U.S. government says a new rule disqualifying more people from green cards if they use government benefits will not apply to immigrants with coronavirus or virus symptoms if they seek care. `\
 https://nytimes.com/aponline/2020/03/13/us/ap-us-immigration-virus-outbreak.html?searchResultPosition=8
 
 **Jamaica Declares Disaster Over Coronavirus, Seeks Cuban Nurses**\
