@@ -1,5 +1,5 @@
-**UK to Move to Ban Mass Gatherings Next Week to Curb Covid-19**\
-`Britain's government will introduce emergency laws next week to ban mass gatherings in an attempt to curb the coronavirus outbreak, an escalation of its crisis plan which critics had said was too relaxed.`\
+**UK to Ban Mass Gatherings From Next Week to Curb Coronavirus**\
+`Britain's government will ban mass gatherings from next week in an attempt to curb the coronavirus outbreak, an escalation of its crisis plan which critics had said was too relaxed.`\
 https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-britain-legislation.html?searchResultPosition=4
 
 **Iraq Officials: Rocket Attack Hits Base Housing US Troops**\
