@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/03/14/business/14reuters-usa-stocks.html?search
 `Japan's coronavirus outbreak is not at a stage that requires the government to declare an emergency, Prime Minister Shinzo Abe said on Saturday.`\
 https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-japan-abe.html?searchResultPosition=8
 
-**Inditex to Temporarily Close All Stores in Spain Over Coronavirus**\
+**Zara Owner to Close All Stores in Spain Because of Coronavirus**\
 `Zara owner Inditex is to temporarily close all of its stores in Spain from Saturday because of the coronavirus, Europa Press said, citing sources at the company. `\
 https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-spain-inditex.html?searchResultPosition=9
 
