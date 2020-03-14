@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus
 `Warren Buffett's Berkshire Hathaway Inc said on Friday that former American Express Co Chief Executive Officer Kenneth Chenault has been nominated to the conglomerate's board of directors, replacing Microsoft Corp co-founder Bill Gates.`\
 https://nytimes.com/reuters/2020/03/14/business/14reuters-berkshire-buffett-pay.html?searchResultPosition=9
 
-**Apple to Close Retail Stores Outside Greater China Until March 27**\
-`Apple Inc said late on Friday it will close all its retail stores outside Greater China until March 27, to minimize risk of coronavirus transmission.`\
+**Apple to Close Retail Stores Worldwide, Except Greater China, Until March 27**\
+`Apple Inc said late on Friday it will close all its retail stores, except those in Greater China, for the next two weeks to minimize the risk of coronavirus transmission.`\
 https://nytimes.com/reuters/2020/03/14/business/14reuters-health-coronavirus-apple.html?searchResultPosition=10
 
