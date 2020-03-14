@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus
 https://nytimes.com/aponline/2020/03/14/world/europe/ap-eu-virus-outbreak-spain-prime-ministers-wife.html?searchResultPosition=7
 
 **Trump Tests Negative for Coronavirus: White House Doctor Statement**\
-`President Donald Trump has tested negative for coronavirus, the president's physician, Sean Conley, said in a statement on Saturday.`\
+`U.S. President Donald Trump has tested negative for coronavirus, the president's physician, Sean Conley, said in a statement on Saturday.`\
 https://nytimes.com/reuters/2020/03/14/us/14reuters-health-coronavirus-trump-test.html?searchResultPosition=8
 
 **Doctor Says Trump Tests Negative for Coronavirus**\
