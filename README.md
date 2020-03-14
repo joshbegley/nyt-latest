@@ -14,7 +14,7 @@ https://nytimes.com/2020/03/13/crosswords/daily-puzzle-2020-03-14.html?searchRes
 `Mexico has registered a rise in the number of confirmed coronavirus cases to 26 from 15 a day earlier, the Mexican health ministry on Friday.`\
 https://nytimes.com/reuters/2020/03/13/business/13reuters-health-coronavirus-mexico-cases.html?searchResultPosition=7
 
-**Cap and Gone: College Commencements Confront the Coronavirus**\
+**Cap and Gone? College Commencements Confront the Coronavirus**\
 `The University of Michigan canceled its planned ceremony while students at the University of Maine threw an impromptu “Coronamencement.”`\
 https://nytimes.com/2020/03/13/us/Coronavirus-college-commencement-ceremonies.html?searchResultPosition=8
 
