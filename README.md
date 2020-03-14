@@ -3,7 +3,7 @@
 https://nytimes.com/2020/03/14/sports/ncaabasketball/rick-pitino-hired-iona.html?searchResultPosition=4
 
 **Georgia to Postpone Primaries Over Virus; 2nd State to Do So**\
-`Georgia election officials are postponing the state’s March 24 presidential primaries until May because of fears over the coronavirus.`\
+`Georgia election officials are postponing the state’s March 24 presidential primaries until May because of fears over the new coronavirus.`\
 https://nytimes.com/aponline/2020/03/14/us/ap-us-virus-outbreak-georgia-election.html?searchResultPosition=5
 
 **UK Pushes for More Ventilators, Hospital Beds as Coronavirus Cases Mount**\
