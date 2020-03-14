@@ -1,28 +1,28 @@
-**Multiple Rockets Fall Inside Iraq's Taji Base: Security Sources**\
-`Multiple rockets fell on Saturday morning inside Iraq's Taji military base that houses U.S.-led coalition troops, for the second time in a week, security sources told Reuters.`\
-https://nytimes.com/reuters/2020/03/14/world/middleeast/14reuters-iraq-security.html?searchResultPosition=4
+**U.S. Summons Chinese Envoy Over Beijing's Coronavirus Comments**\
+`The U.S. State Department summoned the Chinese ambassador to the United States on Friday to protest against comments by Beijing suggesting the U.S. military might have brought the coronavirus to Wuhan, as tensions between the two global powers over the outbreak intensified.`\
+https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-china-diplomacy.html?searchResultPosition=4
 
-**Polish Central Bank Should Cut Rates to Help Fight Virus Impact: Governor**\
-`The Polish central bank's Monetary Policy Council should lower borrowing costs now to limit the economic impact of the coronavirus outbreak, the bank's governor said on Friday.`\
-https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-poland-rates.html?searchResultPosition=5
+**Biden Builds a Lead as Sanders Presses On: This Week in the 2020 Race**\
+`The coronavirus has dominated the news and is wreaking havoc on the political world. Nonetheless, the race for the Democratic nomination continues (with some modifications).`\
+https://nytimes.com/2020/03/14/us/politics/coronavirus-biden-bernie-sanders.html?searchResultPosition=5
 
-**Panel Says Graft Scandal at Kansai Electric Bigger Than Reported by Company**\
-`An independent committee investigating a graft scandal at Kansai Electric Power Co Inc said on Saturday a larger number of company officials had received more payments and gifts than Japan's second-largest utility had disclosed.`\
-https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-kansai-electric-scandal.html?searchResultPosition=6
+**Smaller Fairs Mean Great Art, Closer to Home**\
+`Some collectors find smaller fairs in Dallas and Brussels to be more distinctive and approachable.`\
+https://nytimes.com/2020/03/14/arts/dallas-art-fair-art-brussels.html?searchResultPosition=6
 
-**Beijing Daxing Redirects International Flights to Capital Airport: State Media**\
-`All international flights to Beijing that were scheduled to land at the new Daxing International Airport have been redirected to Beijing Capital International Airport, the state-run CCTV reported on Saturday.`\
-https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-china-airport.html?searchResultPosition=7
+**He Has 17,700 Bottles of Hand Sanitizer and Nowhere to Sell Them**\
+`Amazon cracked down on coronavirus price gouging. Now, while the rest of the world searches, some sellers are holding stockpiles of sanitizer and masks.`\
+https://nytimes.com/2020/03/14/technology/coronavirus-gouging-sanitizer.html?searchResultPosition=7
 
-**UK to Ban Mass Gatherings From Next Week to Curb Coronavirus**\
-`Britain's government will ban mass gatherings from next week in an attempt to curb the coronavirus outbreak, an escalation of its crisis plan which critics had said was too relaxed.`\
-https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-britain-legislation.html?searchResultPosition=8
+**Saudi Law Granted Women New Freedoms. Their Families Don’t Always Agree.**\
+`Women in the conservative kingdom are finding they have to negotiate with their relatives newly granted permissions to work, drive and travel.`\
+https://nytimes.com/2020/03/14/world/middleeast/saudi-women-rights.html?searchResultPosition=8
 
-**Iraq Officials: Rocket Attack Hits Base Housing US Troops**\
-`A barrage of rockets hit a base housing U.S. and other coalition troops north of Baghdad, Iraqi security officials said Saturday, just days after a similar attack killed three servicemen, including two Americans.`\
-https://nytimes.com/aponline/2020/03/14/world/middleeast/ap-ml-iraq-us.html?searchResultPosition=9
+**The Coronavirus Swamps Local Health Departments, Already Crippled by Cuts**\
+`Many state and municipal health departments saw budget and staffing cuts a decade ago that were never restored.`\
+https://nytimes.com/2020/03/14/us/coronavirus-health-departments.html?searchResultPosition=9
 
-**China's Finance Ministry First-Quarter Fiscal Income Affected by Coronavirus**\
-`China said its first quarter fiscal income was affected by coronavirus but it's economy was resilient, a ministry of finance official said at a press briefing on Saturday.`\
-https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-china-economy.html?searchResultPosition=10
+**These Auction Items Are Out of This World. No, Really.**\
+`Collectors know that meteorites, proof of where art and science intersect, aren’t just for museums anymore.`\
+https://nytimes.com/2020/03/14/arts/meteorites-collectors-auction-christies.html?searchResultPosition=10
 
