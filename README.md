@@ -1,28 +1,28 @@
+**UK Pushes for More Ventilators, Hospital Beds as Coronavirus Cases Mount**\
+`Prime Minister Boris Johnson has told British manufacturers to boost production of ventilators and ordered private hospitals to prepare for an overspill of patients from the public health service ahead of an expected surge of coronavirus cases.`\
+https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-britain-ventilators.html?searchResultPosition=4
+
+**Virgin Atlantic Boss Seeks 7.5 Billion-Pound UK Airline Bailout: Sky News**\
+`Virgin Atlantic's chairman Peter Norris will write to British Prime Minister Boris Johnson on Monday saying the country's airline industry needs emergency government support worth 7.5 billion pounds ($9.20 billion) or risks the loss of tens of thousands of jobs, Sky News reported on Saturday.`\
+https://nytimes.com/reuters/2020/03/14/business/14reuters-health-coronavirus-airlines.html?searchResultPosition=5
+
+**As Trump Is Tested for Coronavirus, Experts Ask: What Took So Long?**\
+`Federal officials are asking Americans for extraordinary vigilance against a new pathogen. President Trump has taken a different course, worrying scientists.`\
+https://nytimes.com/2020/03/14/health/coronavirus-trump-test.html?searchResultPosition=6
+
+**A Bank in Midtown Is Cleaned Out of $100 Bills**\
+`Large-denomination bills were in such high demand this week that at least one Bank of America branch wasn’t able to satisfy some customers pulling out tens of thousands of dollars at a time.`\
+https://nytimes.com/2020/03/14/business/coronavirus-cash-shortage-bank.html?searchResultPosition=7
+
 **How to Protect Older People From the Coronavirus**\
 `People over 60, and especially over 80, are particularly vulnerable to severe or fatal infection. Here are some steps to reduce their risk.`\
-https://nytimes.com/2020/03/14/health/coronavirus-elderly-protection.html?searchResultPosition=4
+https://nytimes.com/2020/03/14/health/coronavirus-elderly-protection.html?searchResultPosition=8
 
 **Southwest Says 'Seriously Considering' Cutting Flights in Short Term**\
 `Southwest Airlines, one of the few U.S. airlines still flying a full schedule even as the spreading coronavirus has sapped demand, said on Saturday it was "seriously considering" cutting flights in the short term.    `\
-https://nytimes.com/reuters/2020/03/14/business/14reuters-health-coronavirus-southwest.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/03/14/business/14reuters-health-coronavirus-southwest.html?searchResultPosition=9
 
 **Ready, Set … Get Slow!**\
 `Nancy Stark and Will Nediger swoop in with a merrily muddled Sunday puzzle.`\
-https://nytimes.com/2020/03/14/crosswords/daily-puzzle-2020-03-15.html?searchResultPosition=6
-
-**Genesis Breyer P-Orridge, Musician, Artist and Provocateur, Dies at 70**\
-`Genesis achieved cult notoriety leading the British rock bands Throbbing Gristle and Psychic TV, and later pushed the limits of gender in a surgical project to merge identities with her wife.`\
-https://nytimes.com/2020/03/14/arts/music/genesis-breyer-p-orridge-dead.html?searchResultPosition=7
-
-**‘We’ve Got a Monster That’s Looming’: West Virginia Is the Last State Without a Coronavirus Case**\
-`The state has a greater share of adults at risk than any other state in the country, according to a recent study.`\
-https://nytimes.com/2020/03/14/us/weve-got-a-monster-thats-looming-west-virginia-is-the-last-state-without-a-coronavirus-case.html?searchResultPosition=8
-
-**Libya's Tripoli Government Declares Emergency, Shuts Down Ports, Airports**\
-`Libya's Tripoli-based Government of National Accord has declared a state of emergency over the coronavirus and will close all air and sea ports from Monday, Prime Minister Fayez al-Serraj said on Saturday. `\
-https://nytimes.com/reuters/2020/03/14/world/africa/14reuters-health-coronavirus-libya.html?searchResultPosition=9
-
-**Spain's Opposition Leader Casado Says Government Was Too Slow to React on Coronavirus**\
-`Spain's main opposition leader Pablo Casado on Saturday said the government was too slow to react to limit the impact and contain the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-spain-casado.html?searchResultPosition=10
+https://nytimes.com/2020/03/14/crosswords/daily-puzzle-2020-03-15.html?searchResultPosition=10
 
