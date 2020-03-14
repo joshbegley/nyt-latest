@@ -18,8 +18,8 @@ https://nytimes.com/aponline/2020/03/14/us/politics/ap-us-virus-outbreak-washing
 `The sweeping legislation passed the House, 363-40, and will allow for free testing, paid sick leave, stronger unemployment benefits and food security assistance.`\
 https://nytimes.com/interactive/2020/03/14/us/politics/coronavirus-house-vote.html?searchResultPosition=8
 
-**India Increases Fuel Tax in a Bid to Shore Up Revenue**\
-`India on Saturday increased taxes on petrol and diesel in an attempt to increase government revenue at a time when tax collections have fallen amid the weakest economic growth in over six years.`\
+**India Increases Fuel Taxes in a Bid to Shore Up Revenue**\
+`India on Saturday increased taxes on petrol and diesel in a desperate attempt to increase government revenue at a time when tax collections have fallen amid the weakest economic growth in six years.`\
 https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-india-economy-fuel.html?searchResultPosition=9
 
 **Virus Concerns Affecting All Facets of Californians' Lives**\
