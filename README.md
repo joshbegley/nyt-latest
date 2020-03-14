@@ -4,7 +4,7 @@ https://nytimes.com/reuters/2020/03/14/business/14reuters-health-coronavirus-sou
 
 **Ready, Set … Get Slow!**\
 `Nancy Stark and Will Nediger swoop in with a merrily muddled Sunday puzzle.`\
-https://nytimes.com/2020/03/14/crosswords/ready-set-get-slow.html?searchResultPosition=5
+https://nytimes.com/2020/03/14/crosswords/daily-puzzle-2020-03-15.html?searchResultPosition=5
 
 **Genesis Breyer P-Orridge, Musician, Artist and Provocateur, Dies at 70**\
 `Genesis achieved cult notoriety leading the British rock bands Throbbing Gristle and Psychic TV, and later pushed the limits of gender in a surgical project to merge identities with her wife.`\
