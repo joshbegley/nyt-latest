@@ -1,28 +1,28 @@
+**Triathlon: World Body Suspends All Events Due to Coronavirus**\
+`The International Triathlon Union (ITU) has suspended all activity until April 30 including all events in the World Triathlon and Continental calendars due to the coronavirus outbreak, the governing body said on Saturday.`\
+https://nytimes.com/reuters/2020/03/14/sports/14reuters-health-coronavirus-triathlon.html?searchResultPosition=4
+
+**Canadian Woman and Italian Man Kidnapped in Burkina Faso Have Been Released-U.N.**\
+`A Canadian woman and Italian man kidnapped in Burkina Faso in December 2018 have been released to the United Nations' peacekeeping mission in neighboring Mali and appear to be in good health, a mission spokesman said on Saturday. `\
+https://nytimes.com/reuters/2020/03/14/world/africa/14reuters-mali-kidnapping-canada-italy.html?searchResultPosition=5
+
+**Iran Coronavirus Death Toll Rises by Nearly One Hundred to 611-State TV**\
+`The death toll from coronavirus infections in Iran rose on Saturday to 611, state TV said, citing a health ministry official who put the total number of those diagnosed with the disease at 12,729.`\
+https://nytimes.com/reuters/2020/03/14/world/middleeast/14reuters-health-coronavirus-iran.html?searchResultPosition=6
+
 **Austria Introducing 4 Billion Euro Coronavirus Aid Package**\
 `Austria is making 4 billion euros ($4.4 billion) available to deal with the economic fallout of the coronavirus pandemic, Chancellor Sebastian Kurz and Vice Chancellor Werner Kogler said on Saturday.`\
-https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-austria.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-austria.html?searchResultPosition=7
 
 **Malaysia Reports 41 New Cases of Coronavirus, All Linked to Religious Event**\
 `Malaysia reported 41 new cases of the new coronavirus on Saturday, all linked to a religious event on the outskirts of Kuala Lumpur that was attended by about 10,000 people from several countries.`\
-https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-malaysia.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-malaysia.html?searchResultPosition=8
 
 **Greece Reports Two More Coronavirus Fatalities, Toll Rises to Three**\
 `Greece reported two more fatalities from a coronavirus infection on Saturday, raising the total number of deaths in the country to three.`\
-https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-greece-death.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-greece-death.html?searchResultPosition=9
 
 **Vietnam's Coronavirus Cases Jump to 53-Health Ministry**\
 `Vietnam on Saturday confirmed five more cases of the coronavirus, including a British, a Czech and three Vietnamese citizens, bringing the country's total cases to 53. `\
-https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronovirus-vietnam.html?searchResultPosition=7
-
-**Soccer the Sport Must Stop. Soccer the Business Probably Can’t.**\
-`The sport’s hand was forced by the mounting number of cases within the game, but the decision to halt matches was slowed by the potential consequences.`\
-https://nytimes.com/2020/03/14/sports/soccer/soccer-coronavirus-premier-league.html?searchResultPosition=8
-
-**Abu Dhabi to Temporarily Shut Louvre Abu Dhabi Museum, Ferrari World**\
-`Abu Dhabi announced on Saturday it was shutting major tourism and cultural venues, including the Louvre Abu Dhabi museum and the Ferrari World theme park, from March 15-31, due to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-emirates-culture.html?searchResultPosition=9
-
-**Japan's Abe Says Mulling Proposals, When Asked About Lowering Sales Tax**\
-`Japanese Prime Minister Shinzo Abe said he would consider various options to boost the economy, when asked about a proposal to temporarily lower sales tax to 5%.`\
-https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-japan-abe-tax.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronovirus-vietnam.html?searchResultPosition=10
 
