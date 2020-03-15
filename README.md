@@ -18,8 +18,8 @@ https://nytimes.com/aponline/2020/03/15/business/ap-as-virus-outbreak-philippine
 `Georgia and Louisiana have delayed their primary elections. Wyoming has suspended its in-person Democratic caucus voting. Here are the latest updates on changes to the 2020 presidential race.`\
 https://nytimes.com/article/virus-2020-campaign-calendar-.html?searchResultPosition=8
 
-**2 New York State Lawmakers Test Positive for Coronavirus: Live Updates**\
-`The number of confirmed cases in the state is now 613, including 269 in New York City, officials said.`\
+**Pressure Grows for Broader Shutdown of New York: Live Updates**\
+`Bars and restaurants are still attracting crowds, alarming some elected officials as the number of cases in N.Y. tops 600.`\
 https://nytimes.com/2020/03/15/nyregion/coronavirus-new-york-update.html?searchResultPosition=9
 
 **UK Advises Against All but Essential Travel to United States**\
