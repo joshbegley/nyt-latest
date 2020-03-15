@@ -1,28 +1,28 @@
-**Norway Offers Firms $10 Billion as Coronavirus Threatens Economy**\
-`Norway will offer companies at least 100 billion Norwegian crowns ($9.7 billion) in funding in the form of guarantees for loans and bond issues to support the economy during the coronavirus outbreak, the government said on Sunday.`\
-https://nytimes.com/reuters/2020/03/15/world/europe/15reuters-health-coronavirus-norway-primeminister.html?searchResultPosition=4
+**Slovakia Declares State of Emergency Over Coronavirus, Orders Shop Closures**\
+`Slovakia declared a state of emergency on Sunday to contain the coronavirus outbreak, ordering the closure of all shops except food stores, pharmacies, banks, petrol stations and post offices from 6 a.m. on Monday, Prime Minister Peter Pellegrini said.`\
+https://nytimes.com/reuters/2020/03/15/world/europe/15reuters-health-coronavirus-slovakia.html?searchResultPosition=4
 
-**Several African Nations Roll Out Measures to Fight Virus**\
-`Several African countries have announced sweeping restrictions to try to contain the steady spread of the coronavirus, which has reached at least 25 of Africa's 54 countries.`\
-https://nytimes.com/aponline/2020/03/15/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=5
+**Tourism Between Spain, Portugal to Be Suspended Due to Coronavirus: Portuguese Government**\
+`Spain and Portugal will agree to place restrictions on tourism between the two countries from Monday to curb the spread of coronavirus, Portuguese Prime Minister Antonio Costa said on Sunday. `\
+https://nytimes.com/reuters/2020/03/15/world/europe/15reuters-health-coronavirus-portugal-spain.html?searchResultPosition=5
 
-**Betsy Byars, Who Wrote of Deserted Children, Is Dead at 91**\
-`Ms. Byars’s award-winning children’s books, including “The Summer of the Swans” and “The Night Swimmers,” often dealt with abandonment.`\
-https://nytimes.com/2020/03/15/books/betsy-byars-dead.html?searchResultPosition=6
+**Ukraine Railways to Halt International Trains From March 17**\
+`State-run Ukrainian railways company Ukrzaliznytsia will suspend all international passenger trains from March 17 in an attempt to contain the spread of the coronavirus, the company said on Sunday.`\
+https://nytimes.com/reuters/2020/03/15/world/europe/15reuters-health-coronavirus-ukraine.html?searchResultPosition=6
 
-**‘We Call for Calm’: Mexico’s Restrained Response to the Coronavirus**\
-`The López Obrador government’s restrained approach to battling the coronavirus played out this weekend in a full soccer schedule and a crowded music festival. “Yes, there’s worry,” one fan said, “but you have to have fun.”`\
-https://nytimes.com/2020/03/15/sports/soccer/soccer-mexico-coronavirus.html?searchResultPosition=7
+**South Africa's Ramaphosa Declares State of Disaster Over COVID-19**\
+`South African president Cyril Ramaphosa declared a national state of disaster on Sunday as he announced a range of measures to contain a COVID-19 outbreak that has so far infected 61 and showed the first signs of internal transmission.`\
+https://nytimes.com/reuters/2020/03/15/world/15reuters-health-coronavirus-safrica.html?searchResultPosition=7
 
-**College in the Coronavirus Era: Wistful Goodbyes and a Sense of Loss**\
-`“I feel like a lot of experiences have been stolen from me,” said one Cornell University senior, as students left campus.`\
-https://nytimes.com/2020/03/15/nyregion/cornell-university-coronavirus.html?searchResultPosition=8
+**Iraq Suspends Flights To and From Baghdad Airport Over Coronavirus Fears**\
+`Iraq has suspended all flights to and from Baghdad airport as of March 17 until March 24, the government said in a statement on Sunday, in order to contain the spread of coronavirus.`\
+https://nytimes.com/reuters/2020/03/15/world/middleeast/15reuters-health-coronavirus-iraq-flights.html?searchResultPosition=8
 
-**Movie Ticket Sales Fall to Historic Low**\
-`The coronavirus pandemic hurt new films like “Bloodshot” and “The Hunt.” But the faith-based “I Still Believe” found an audience.`\
-https://nytimes.com/2020/03/15/arts/box-office-bloodshot.html?searchResultPosition=9
+**France Ready to Spend Tens of Billions of Euros to Help Firms Cope With Coronavirus**\
+`France is ready to spend tens of billions of euros to help companies get through the coronavirus, its finance minister said on Sunday.`\
+https://nytimes.com/reuters/2020/03/15/world/europe/15reuters-health-coronavirus-france-economy.html?searchResultPosition=9
 
-**France Ready to Take Further Steps Against Coronavirus if Necessary, Minister Says**\
-`France will not hesitate to take further steps to protect its citizens from the spread of the coronavirus, Finance Minister Bruno Le Maire said on Sunday.`\
-https://nytimes.com/reuters/2020/03/15/world/europe/15reuters-health-coronavirus-france-lemaire.html?searchResultPosition=10
+**This Is One Anxiety We Should Eliminate for the Coronavirus Outbreak**\
+`A patient can do everything right and still face substantial surprise medical bills.`\
+https://nytimes.com/2020/03/15/opinion/surprise-billing-coronavirus-.html?searchResultPosition=10
 
