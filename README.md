@@ -1,28 +1,28 @@
+**Suffering Through Your First Financial Crisis? Read This to Relax**\
+`We’ve been here before, and everything will be fine.`\
+https://nytimes.com/2020/03/15/smarter-living/corona-stock-market-tips-dealing-with-financial-crash-crisis.html?searchResultPosition=4
+
+**The Man With 17,700 Bottles of Hand Sanitizer Just Donated Them**\
+`A Tennessee man had planned to sell his stockpile at marked-up prices online. Now he is under investigation for price gouging.`\
+https://nytimes.com/2020/03/15/technology/the-man-with-17700-bottles-of-hand-sanitizer-just-donated-them.html?searchResultPosition=5
+
+**How Will Sports Recover From This Hiatus?**\
+`Much of fandom is about continuity — knowing that games have always been going on and always will be. That changed last week.`\
+https://nytimes.com/2020/03/15/opinion/sports-coronavirus.html?searchResultPosition=6
+
+**Cornbread. Now, More Than Ever.**\
+`Comfort foods, and the old ways of making them, bring solace when you really need it.`\
+https://nytimes.com/2020/03/15/opinion/comfort-food-coronavirus.html?searchResultPosition=7
+
 **Automakers, Union Form Joint Task Force to Limit Coronavirus Outbreak**\
 `Automakers General Motors, Ford Motor Co and Fiat Chrysler Automobiles (FCA) are forming a coronavirus task force along with the United Auto Workers (UAW) union to improve protections for their employees and limit the spread of the highly contagious virus.`\
-https://nytimes.com/reuters/2020/03/15/business/15reuters-healthcare-coronavirus-autos-taskforce.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/15/business/15reuters-healthcare-coronavirus-autos-taskforce.html?searchResultPosition=8
 
 **For Danilo Gallinari, the N.B.A. Shutdown Wasn’t So Sudden**\
 `The coronavirus outbreak has been front and center for the Italian N.B.A. star for weeks through family and friends back home.`\
-https://nytimes.com/2020/03/15/sports/basketball/danilo-gallinari-italy.html?searchResultPosition=5
+https://nytimes.com/2020/03/15/sports/basketball/danilo-gallinari-italy.html?searchResultPosition=9
 
 **U.S. Offered ‘Large Sum’ to German Company for Access to Coronavirus Vaccine Research, German Officials Say**\
 `The United States says it will share any vaccine breakthroughs with the world, but German officials appeared rattled by its reported overture to a biotech firm.`\
-https://nytimes.com/2020/03/15/world/europe/cornonavirus-vaccine-us-germany.html?searchResultPosition=6
-
-**U.S. Stock Futures Tumble After Big Fed Rate Cut, Virus Fallout**\
-`U.S. stock index futures tumbled after resuming trading on Sunday after the U.S. Federal Reserve slashed rates back to near zero to help the global economy and investors digested the latest fallout from the escalating coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/15/business/15reuters-usa-stocks.html?searchResultPosition=7
-
-**Long Lines at Major U.S. Airports 'Unacceptable,' U.S. Fixing Problem, Official Says**\
-`Long lines and delays at U.S. international airports for returning U.S. travelers being screened for coronavirus are "unacceptable" and the government has made adjustments to fix the problem, a senior U.S. official said on Sunday.`\
-https://nytimes.com/reuters/2020/03/15/us/15reuters-healt-coronavirus-airports.html?searchResultPosition=8
-
-**Israel Takes Step Toward Monitoring Phones of Virus Patients**\
-`Israel has long been known for its use of technology to track the movements of Palestinian militants. Now, Prime Minister Benjamin Netanyahu wants to use similar technology to stop the movement of the coronavirus.`\
-https://nytimes.com/aponline/2020/03/15/world/middleeast/ap-ml-virus-outbreak-israel.html?searchResultPosition=9
-
-**Networks Get Through First Weekend With Taped Programming**\
-`Scott Van Pelt was supposed to be breaking down the NCAA Tournament bracket on a busy Sunday night on ESPN's “SportsCenter.”`\
-https://nytimes.com/aponline/2020/03/15/sports/ap-us-sports-tv-taped-weekend.html?searchResultPosition=10
+https://nytimes.com/2020/03/15/world/europe/cornonavirus-vaccine-us-germany.html?searchResultPosition=10
 
