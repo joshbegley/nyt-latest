@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/03/15/world/middleeast/ap-ml-virus-outbreak-mi
 `An Uzbek citizen has tested positive for coronavirus after returning from France, Uzbekistan's Healthcare Ministry said on Sunday, marking the first infection from the virus in the Central Asian country of 34 million.`\
 https://nytimes.com/reuters/2020/03/15/world/asia/15reuters-health-coronavirus-uzbekistan.html?searchResultPosition=5
 
-**Syria War Rumbles Into 10th Year, Still Fueling Global Chaos**\
+**Syrian War, Rumbling Into 10th Year, Still Has Global Impact**\
 `In a world gripped by a pandemic, global unrest and a fast-moving news cycle, it can be difficult to remember that the war in Syria is still happening. `\
 https://nytimes.com/aponline/2020/03/15/world/middleeast/ap-ml-syria-into-wars-10th-year-1st-ld-writethru.html?searchResultPosition=6
 
