@@ -14,8 +14,8 @@ https://nytimes.com/aponline/2020/03/15/world/asia/ap-as-new-zealand-mosque-shoo
 `Mexico warned on Saturday that the coronavirus outbreak could last all year as it began rolling out tougher measures to contain the spread, calling for an end to large gatherings and extending Easter school holidays.`\
 https://nytimes.com/reuters/2020/03/15/world/americas/15reuters-health-coronavirus-mexico.html?searchResultPosition=7
 
-**Australia Will Impose Self Isolation on All International Arrivals Due to Coronavirus**\
-`Australia will impose a 14-day self isolation on all international passenger arrivals from midnight Sunday to try and contain the spread of coronavirus, Prime Minister Scott Morrison said.`\
+**Australia to Impose 14-Day Self-Isolation for All International Arrivals**\
+`Australia will impose 14-day self-isolation on international travelers arriving from midnight Sunday and ban cruise ships from foreign ports for 30 days, mirroring restrictions in nearby New Zealand aimed at slowing the spread of the coronavirus.`\
 https://nytimes.com/reuters/2020/03/15/world/asia/15reuters-health-coronavirus-australia.html?searchResultPosition=8
 
 **What’s on TV Sunday: ‘Westworld’ and the Democratic Debate**\
