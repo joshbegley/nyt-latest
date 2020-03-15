@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/03/14/sports/ap-mma-ufc-brasilia.html?searchRe
 `Christian Wood of the Detroit Pistons has tested positive for the coronavirus, a person with direct knowledge of the situation said Saturday night.`\
 https://nytimes.com/aponline/2020/03/14/sports/basketball/ap-bkn-virus-outbreak-pistons-wood.html?searchResultPosition=5
 
-**Mainland China Reports 20 New Coronavirus Cases on March 14**\
-`Mainland China had 20 new confirmed cases of coronavirus infections on March 14, the country's National Health Commission said on Sunday, up from 11 cases a day earlier.`\
+**China Imported Coronavirus Cases Exceed New Local Infections for Second Day**\
+`The number of new coronavirus cases that came to mainland China from overseas surpassed the number of locally transmitted new infections for the second time on Saturday, data released by the National Health Commission (NHC) showed on Sunday.`\
 https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-china-toll.html?searchResultPosition=6
 
 **Biden, Looking to Attract Progressives, Endorses Warren Bankruptcy Plan**\
