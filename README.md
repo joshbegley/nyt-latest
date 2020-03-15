@@ -1,28 +1,28 @@
+**USA Gymnastics Birthday Tweet Brings Heated Biles Response**\
+`Four-times Olympic champion Simone Biles fired back at USA Gymnastics on Saturday after the sport's governing body used its Twitter account to wish her happy birthday.`\
+https://nytimes.com/reuters/2020/03/14/sports/14reuters-gymnastics-biles.html?searchResultPosition=4
+
 **UFC Holds Fight Card in Brasilia Amid Coronavirus Pandemic**\
 `The UFC staged a full fight card in an empty arena Saturday night in Brazil's capital city, sticking to its plan to keep fighting in the face of the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/03/14/sports/ap-mma-ufc-brasilia.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/03/14/sports/ap-mma-ufc-brasilia.html?searchResultPosition=5
 
 **AP Source: Pistons' Christian Wood Tests Positive for Virus**\
 `Christian Wood of the Detroit Pistons has tested positive for the coronavirus, a person with direct knowledge of the situation said Saturday night.`\
-https://nytimes.com/aponline/2020/03/14/sports/basketball/ap-bkn-virus-outbreak-pistons-wood.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/03/14/sports/basketball/ap-bkn-virus-outbreak-pistons-wood.html?searchResultPosition=6
 
 **China Imported Coronavirus Cases Exceed New Local Infections for Second Day**\
 `The number of new coronavirus cases that came to mainland China from overseas surpassed the number of locally transmitted new infections for the second time on Saturday, data released by the National Health Commission (NHC) showed on Sunday.`\
-https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-china-toll.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-china-toll.html?searchResultPosition=7
 
 **Biden, Looking to Attract Progressives, Endorses Warren Bankruptcy Plan**\
 `The two clashed over bankruptcy policy more than a decade ago. But Joseph R. Biden Jr. now says he supports Elizabeth Warren’s plan that allows student debt to be relieved in bankruptcy.`\
-https://nytimes.com/2020/03/14/us/politics/biden-warren-bankruptcy.html?searchResultPosition=7
+https://nytimes.com/2020/03/14/us/politics/biden-warren-bankruptcy.html?searchResultPosition=8
 
 **Europeans Scramble Across Borders as Coronavirus Restricts Travel**\
 `Tom Holmes, a 34-year-old British primary school teacher living in Poland, had expected to welcome home his twin babies and his wife in Warsaw on Monday upon their return from a holiday in Britain.`\
-https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-poland-travel.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-poland-travel.html?searchResultPosition=9
 
 **Estonia to Bar Foreign Travelers From March 17**\
 `Estonia will stop foreign traveler from entering the country from March 17, in an attempt to prevent the spread of coronavirus, the country's government said in a statement on Sunday.`\
-https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-virus-estonia.html?searchResultPosition=9
-
-**The Coronavirus Is Forcing Hospitals to Cancel Surgeries**\
-`Hospitals in coronavirus hot spots like Seattle and New York are postponing elective surgeries, hoping to conserve their resources as the outbreak escalates.`\
-https://nytimes.com/2020/03/14/us/coronavirus-covid-surgeries-canceled.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-virus-estonia.html?searchResultPosition=10
 
