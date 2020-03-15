@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/03/15/world/africa/ap-af-virus-outbreak-africa
 `Ms. Byars’s award-winning children’s books, including “The Summer of the Swans” and “The Night Swimmers,” often dealt with abandonment.`\
 https://nytimes.com/2020/03/15/books/betsy-byars-dead.html?searchResultPosition=5
 
-**‘We Call for Calm’: Mexico’s Restrained Response to the Virus**\
+**‘We Call for Calm’: Mexico’s Restrained Response to the Coronavirus**\
 `The López Obrador government’s restrained approach to battling the coronavirus played out this weekend in a full soccer schedule and a crowded music festival. “Yes, there’s worry,” one fan said, “but you have to have fun.”`\
 https://nytimes.com/2020/03/15/sports/soccer/soccer-mexico-coronavirus.html?searchResultPosition=6
 
