@@ -1,28 +1,28 @@
+**Former Chinese Property Executive Who Criticized Xi Over Virus Handling Is Missing, Friends Say**\
+`An influential former Chinese property executive who called President Xi Jinping a "clown" over a speech he made last month about the government's efforts to battle the coronavirus has gone missing, three of his friends told Reuters. `\
+https://nytimes.com/reuters/2020/03/15/world/asia/15reuters-health-coronavirus-china-tycoon.html?searchResultPosition=4
+
 **Central American Countries Up Fight Against Coronavirus**\
 `Central American countries took further and tougher steps to contain the fast-spreading coronavirus on Saturday with measures ranging from bans on large gatherings to travel restrictions.`\
-https://nytimes.com/reuters/2020/03/15/world/americas/15reuters-health-coronavirus-central-america.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/15/world/americas/15reuters-health-coronavirus-central-america.html?searchResultPosition=5
 
 **Mexico Holds Big Music Festival Despite Coronavirus Concerns**\
 `While the coronavirus pandemic has led authorities around the globe to cancel concerts and sporting events, and even shut down daily activities in some places, Mexico City is going ahead with Vive Latino — one of the oldest and most important music festivals in the country.`\
-https://nytimes.com/aponline/2020/03/15/world/americas/ap-lt-virus-outbreak-mexico-music-festival.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/03/15/world/americas/ap-lt-virus-outbreak-mexico-music-festival.html?searchResultPosition=6
 
 **El Salvador Congress Backs Emergency Measures to Stop Coronavirus**\
 `El Salvador's Congress on Saturday approved a series of emergency measures sought by President Nayib Bukele to prevent the spread of coronavirus into the Central American country and to off the risk of a public health crisis.`\
-https://nytimes.com/reuters/2020/03/15/world/15reuters-health-coronavirus-el-salvador.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/03/15/world/15reuters-health-coronavirus-el-salvador.html?searchResultPosition=7
 
 **American Airlines Cutting International Flights by 75% Amid Demand Collapse**\
 `American Airlines Inc said Saturday it plans to cut 75% of its international flights through May 6 and ground nearly all its widebody fleet, as airlines respond to the global collapse in travel demand due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/15/business/15reuters-health-coronavirus-usa-airlines.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/03/15/business/15reuters-health-coronavirus-usa-airlines.html?searchResultPosition=8
 
 **The Latest: Australia Orders Self-Quarantine for Arrivals**\
 `The Latest on the world's coronavirus pandemic, which has infected more than 150,000 people and killed more than 5,700. The disease for most people causes only mild or moderate symptoms. For some, it can cause more severe illness.`\
-https://nytimes.com/aponline/2020/03/15/business/ap-virus-outbreak-the-latest.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/03/15/business/ap-virus-outbreak-the-latest.html?searchResultPosition=9
 
 **Quotation of the Day: Tempted to Bail Out? Alternatives Have Perils, Too**\
 `Quotation of the Day for Sunday, March 15, 2020.`\
-https://nytimes.com/2020/03/15/todayspaper/quotation-of-the-day-tempted-to-bail-out-alternatives-have-perils-too.html?searchResultPosition=9
-
-**Corrections: March 15, 2020**\
-`Corrections that appeared in print on Sunday, March 15, 2020.`\
-https://nytimes.com/2020/03/15/pageoneplus/corrections-march-15-2020.html?searchResultPosition=10
+https://nytimes.com/2020/03/15/todayspaper/quotation-of-the-day-tempted-to-bail-out-alternatives-have-perils-too.html?searchResultPosition=10
 
