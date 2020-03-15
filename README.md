@@ -10,8 +10,8 @@ https://nytimes.com/2020/03/15/us/politics/ny-voting-coronavirus.html?searchResu
 `Bars and nightclubs in Turkey will be closed from Monday in a bid to curb the spread of coronavirus, the Turkish Interior Ministry said on Sunday.`\
 https://nytimes.com/reuters/2020/03/15/world/europe/15reuters-health-coronavirus-turkey-bars.html?searchResultPosition=6
 
-**White House Advises Against 'Hoarding' as Trump Talks to Grocery Store Executives**\
-`U.S. President Donald Trump has held a telephone call with executives of grocery stores, the White House said on Sunday, adding that supply chains in the United States were strong and that it was unnecessary for citizens to hoard daily essentials.`\
+**White House Urges Against 'Hoarding' as Trump Talks to Grocery Store Executives**\
+`The White House on Sunday urged Americans against "hoarding" as thousands flocked to supermarkets to stock up on essentials, saying U.S. supply chains were strong and federal and local leaders were working together to ensure food supplies are available.`\
 https://nytimes.com/reuters/2020/03/15/us/15reuters-health-coronavirus-usa-groceries.html?searchResultPosition=7
 
 **Worshippers Go Online, Those at Services Keep a Distance**\
