@@ -12,7 +12,7 @@ https://nytimes.com/reuters/2020/03/15/technology/15reuters-health-coronavirus-u
 
 **Coronavirus in N.Y.C.: Pressure Mounts for Bigger Shutdown**\
 `Some elected officials, alarmed that people are still crowding bars and restaurants, said the city needed to close them immediately.`\
-https://nytimes.com/2020/03/15/nyregion/coronavirus-in-nyc-pressure-mounts-for-bigger-shutdown.html?searchResultPosition=7
+https://nytimes.com/2020/03/15/nyregion/coronavirus-nyc-shutdown.html?searchResultPosition=7
 
 **Two Goldman Sachs Employees Test Positive for Coronavirus**\
 `Goldman Sachs Group Inc said on Sunday two of its employees were diagnosed with coronavirus. `\
