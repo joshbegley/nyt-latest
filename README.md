@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/03/14/sports/basketball/ap-bkn-virus-outbreak-
 https://nytimes.com/reuters/2020/03/14/world/asia/14reuters-health-coronavirus-china-toll.html?searchResultPosition=5
 
 **Biden, Looking to Attract Progressives, Endorses Warren Bankruptcy Plan**\
-`The two clashed over bankruptcy policy more than a  decade ago. But Joseph R. Biden Jr. now says he supports Elizabeth Warren’s plan that allows student debt to be relieved in bankruptcy.`\
+`The two clashed over bankruptcy policy more than a decade ago. But Joseph R. Biden Jr. now says he supports Elizabeth Warren’s plan that allows student debt to be relieved in bankruptcy.`\
 https://nytimes.com/2020/03/14/us/politics/biden-warren-bankruptcy.html?searchResultPosition=6
 
 **Europeans Scramble Across Borders as Coronavirus Restricts Travel**\
