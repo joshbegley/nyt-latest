@@ -1,28 +1,28 @@
+**Recession Looms in Israel as Central Bank Acts to Combat Coronavirus Impact**\
+`Israel is probably headed for a recession despite action announced by the central bank on Sunday to fend off the economic damage from the coronavirus, economists said.`\
+https://nytimes.com/reuters/2020/03/15/world/middleeast/15reuters-health-coronavirus-israel-economy.html?searchResultPosition=4
+
+**How to Make College Decisions When Campuses Are Closed**\
+`With coronavirus closings, tours for admitted students are off the table. Here are some workarounds in this time of social distancing.`\
+https://nytimes.com/2020/03/15/well/family/coronavirus-college-visits-high-school-students.html?searchResultPosition=5
+
+**U.S. Disease Expert Fauci Sees No Domestic U.S. Flight Restrictions**\
+`Top U.S. infectious diseases expert Anthony Fauci on Sunday warned Americans that the coronavirus outbreak could get worse before it gets better, but said he did not expect the United States to restrict domestic travel in the near future.`\
+https://nytimes.com/reuters/2020/03/15/us/politics/15reuters-health-coronavirus-usa-travel.html?searchResultPosition=6
+
+**States Turn to Cash Reserves as Coronavirus Strains Budgets**\
+`States across the U.S. are allocating hundreds of millions of dollars to respond to the coronavirus, even as the U.S. government prepares to send billions more their way. `\
+https://nytimes.com/aponline/2020/03/15/world/ap-us-virus-outbreak-state-budgets.html?searchResultPosition=7
+
+**Britain Plans Tougher Virus Response as Toll Rises**\
+`The United Kingdom plans to escalate virus-fighting measures, its top health official said Sunday, indicating the country is edging closer to tactics adopted by its European neighbors that it has resisted. `\
+https://nytimes.com/aponline/2020/03/15/business/ap-virus-outbreak-britain.html?searchResultPosition=8
+
+**NFL Players Approve Labor Deal, Including 17-Game Season**\
+`NFL players have approved a new labor agreement with the league that features a 17-game regular season, higher salaries, increased roster sizes and larger pensions for current and former players.`\
+https://nytimes.com/aponline/2020/03/15/sports/football/ap-fbn-nfl-labor.html?searchResultPosition=9
+
 **What to Cook This Week**\
 `Make Alison Roman’s fine new recipe for a spicy pork noodle soup, and start on your preparations for St. Patrick’s Day.`\
-https://nytimes.com/2020/03/15/dining/what-to-cook-this-week.html?searchResultPosition=4
-
-**Oil Giants Set Work-At-Home Rules for Offices, Health Checks for Critical Staff**\
-`Major energy companies in the United States imposed work-from-home rules for office staff and began health checks for remote or critical workers as coronavirus spread across the United States and threatened an industry reeling by falling demand and profits. `\
-https://nytimes.com/reuters/2020/03/15/business/15reuters-health-coronavirus-energy-workers.html?searchResultPosition=5
-
-**Four More African Nations Confirm Coronavirus, New Controls Put in Place**\
-`Mauritania, Rwanda, Seychelles and Central African Republic confirmed their first coronavirus cases on Saturday, bringing to 23 the number of African countries that have reported positive tests for the virus.`\
-https://nytimes.com/reuters/2020/03/15/world/africa/15reuters-health-coronavirus-africa.html?searchResultPosition=6
-
-**Happy 200th Birthday to Maine, but Virus Zaps the Party**\
-`Mainers have a special bond with Massachusetts that’s friendly for the most part. What Mainer doesn't love the Boston Red Sox, after all?`\
-https://nytimes.com/aponline/2020/03/15/us/ap-us-maine-bicentennial.html?searchResultPosition=7
-
-**Morocco Suspends All International Passenger Flights-Foreign Ministry**\
-`Morocco on Sunday suspended day all international passenger flights to and from its airports as a protective measure against the spread of coronavirus, the foreign ministry said.`\
-https://nytimes.com/reuters/2020/03/15/world/africa/15reuters-health-coronavirus-morocco-flights.html?searchResultPosition=8
-
-**N.F.L. Players Vote Yes on New 10-Year Labor Deal**\
-`The vote paves the way for the addition of a 17th regular season game, an expansion to the playoffs and increased minimum salaries.`\
-https://nytimes.com/2020/03/15/sports/football/nfl-cba-approved.html?searchResultPosition=9
-
-**Vatican's Holy Week to Proceed but Without Public Amid Virus**\
-`The Vatican's Holy Week ceremonies will go ahead but without public attendance as Italy tries to contain the coronavirus outbreak, the Holy See said Sunday.`\
-https://nytimes.com/aponline/2020/03/15/world/europe/ap-eu-rel-virus-outbreak-vatican.html?searchResultPosition=10
+https://nytimes.com/2020/03/15/dining/what-to-cook-this-week.html?searchResultPosition=10
 
