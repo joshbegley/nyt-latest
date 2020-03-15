@@ -1,28 +1,28 @@
-**Stirring Sermons About Coronavirus, in Empty Cathedrals**\
-`With large gatherings banned, ministers will preach messages of calm and compassion on Sunday as parishioners watch on live stream.`\
-https://nytimes.com/2020/03/15/nyregion/coronavirus-ny-church.html?searchResultPosition=4
+**Arizona Boom Draws Californians and Changes Political Hue**\
+`A decade after the recession hit hard, Arizona’s economy is a magnet for technology companies and for workers seeking an affordable middle-class life.`\
+https://nytimes.com/2020/03/15/business/economy/arizona-economy-primary.html?searchResultPosition=4
 
-**A Gay Man Remembers His Awakening, as AIDS Shook His World**\
-`Paul Lisicky, author of “Later: My Life at the Edge of the World,” talks about Provincetown, the challenges of memoir and learning not to suppress anger.`\
-https://nytimes.com/2020/03/15/books/later-memoir-paul-lisicky-interview.html?searchResultPosition=5
+**Coronavirus Has Already Muted One of N.Y.’s Rowdiest Nightlife Areas**\
+`“The vibe is feeling like getting your last social interaction in,” said a co-owner of a cocktail bar on the Lower East Side.`\
+https://nytimes.com/2020/03/15/nyregion/social-distancing-coronavirus-nyc.html?searchResultPosition=5
 
-**Public School Is a Child’s Right. Should Preschool Be Also?**\
-`Some Democrats, including Bernie Sanders, say the government-financed care and education of children should start at birth instead of at kindergarten.`\
-https://nytimes.com/2020/03/15/upshot/universal-child-care-democratic-platform.html?searchResultPosition=6
+**Coronavirus Cost to Businesses and Workers: ‘It Has All Gone to Hell’**\
+`As the outbreak forces the cancellation of trips, nights out and large gatherings, economic damage is mounting across the country.`\
+https://nytimes.com/2020/03/15/business/economy/coronavirus-economy-impact.html?searchResultPosition=6
 
-**The Workers Who Face the Greatest Coronavirus Risk**\
-`Nurses and doctors rank high. But so do hairdressers and dentists.`\
-https://nytimes.com/interactive/2020/03/15/business/economy/coronavirus-worker-risk.html?searchResultPosition=7
+**‘Here I Can Be My Own Dictator’**\
+`The Kremlin’s plan to hand out plots of land in Russia’s Far East, long a magnet for dissenters, idealists and oddballs, has attracted some unusually freethinking settlers.`\
+https://nytimes.com/2020/03/15/world/europe/russia-putin-far-east.html?searchResultPosition=7
 
-**UN Agency Says Some 300 Migrants Intercepted Off Libya Coast**\
-`Libya’s coast guard intercepted over 300 Europe-bound migrants off the country’s Mediterranean coast and returned them to the capital, Tripoli, the U.N. migration agency said.`\
-https://nytimes.com/aponline/2020/03/15/world/middleeast/ap-ml-libya-migrants.html?searchResultPosition=8
+**‘It’s Totally Ad Hoc’: Why America’s Virus Response Looks Like a Patchwork**\
+`For centuries, the United States has resisted a centralized public health policy. This week, as protective measures against the coronavirus varied county to county, Americans saw the cost.`\
+https://nytimes.com/2020/03/15/us/united-states-coronavirus-response.html?searchResultPosition=8
 
-**Greece Transferring 450 Migrants to Facility Near Athens**\
-`Greece is transferring 450 migrants recently detained for trying to reach the island of Lesbos illegally to a facility near Athens, authorities said Sunday.`\
-https://nytimes.com/aponline/2020/03/15/world/europe/ap-eu-greece-migrants.html?searchResultPosition=9
+**U.S. Weighs Tariff Relief but Some Fear China Will Take Advantage**\
+`Politicians and business groups are sharply divided on what to do about President Trump’s tariffs, with some arguing that China is poised to take advantage of the United States.`\
+https://nytimes.com/2020/03/15/business/economy/us-china-tariffs-coronavirus.html?searchResultPosition=9
 
-**Beijing to Send All Travelers From Abroad to Central Quarantine Facility for 14 Days**\
-`Anyone arriving to Beijing from abroad will be transferred directly to a central quarantine facility for 14 days for observation, a city government official said on Sunday.`\
-https://nytimes.com/reuters/2020/03/15/world/asia/15reuters-health-coronavirus-china-beijing.html?searchResultPosition=10
+**Homes That Sold for Around $600,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2020/03/15/realestate/homes-that-sold-for-around-600000.html?searchResultPosition=10
 
