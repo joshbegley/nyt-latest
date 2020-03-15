@@ -1,28 +1,28 @@
+**Japan Coronavirus Infections Rise to 1,484: NHK**\
+`The number of coronavirus infections in Japan rose to 1,484 on Sunday, increasing by a faster pace than the previous day, public broadcaster NHK reported.`\
+https://nytimes.com/reuters/2020/03/15/world/asia/15reuters-health-coronavirus-japan.html?searchResultPosition=4
+
+**South Korea Designates Hard-Hit Regions as Disaster Zones**\
+`South Korea on Sunday reported 76 new coronavirus cases and three more deaths, a fall in new cases to double-digits for the first time in over three weeks, as President Moon Jae-in declared the hardest hit provinces "special disaster zones".`\
+https://nytimes.com/reuters/2020/03/15/world/asia/15reuters-health-coronavirus-southkorea-cases.html?searchResultPosition=5
+
 **Taiwan Reports Six New Coronavirus Cases in Largest Single-Day Rise, All Imported**\
 `Taiwan reported six new cases of the coronavirus on Sunday, all imported and marking the biggest daily rise in infections, in people who had returned to the island from countries including Spain and Japan, bringing its total tally to 59.`\
-https://nytimes.com/reuters/2020/03/15/world/europe/15reuters-health-coronavirus-taiwan.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/15/world/europe/15reuters-health-coronavirus-taiwan.html?searchResultPosition=6
 
 **Biden vs. Sanders, Issue by Issue**\
 `Sunday’s debate will be the first one-on-one matchup between Joseph R. Biden Jr. and Bernie Sanders. So, how do they actually compare on policy?`\
-https://nytimes.com/2020/03/15/us/politics/joe-biden-bernie-sanders-issues.html?searchResultPosition=5
+https://nytimes.com/2020/03/15/us/politics/joe-biden-bernie-sanders-issues.html?searchResultPosition=7
 
 **Think Cheating in Baseball Is Bad? Try Chess**\
 `Smartphones, buzzers, even yogurt — chess has nearly seen it all in both live and online tournaments. And just as in baseball, technology only makes it harder to root out.`\
-https://nytimes.com/2020/03/15/sports/chess-cheating.html?searchResultPosition=6
+https://nytimes.com/2020/03/15/sports/chess-cheating.html?searchResultPosition=8
 
 **‘A Car That Was Turning Slowed Down, and the Window Rolled Down’**\
 `Wearing a favorite dress, a Manhattan wedding and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2020/03/15/nyregion/metropolitan-diary.html?searchResultPosition=7
+https://nytimes.com/2020/03/15/nyregion/metropolitan-diary.html?searchResultPosition=9
 
 **For Biden and Sanders, the Fight’s Not Personal**\
 `The amicable relationship the two have maintained could become an important factor in the Democrats’ ability to unite quickly against President Trump.`\
-https://nytimes.com/2020/03/15/us/politics/joseph-biden-bernie-sanders.html?searchResultPosition=8
-
-**Israeli PM's Corruption Trail Postponed Due to Coronavirus**\
-`A Jerusalem district court announced on Sunday that it was postponing Israeli Prime Minister Benjamin Netanyahu's criminal trial for two months because of restrictions arising from the outbreak of the coronavirus.`\
-https://nytimes.com/aponline/2020/03/15/world/middleeast/ap-ml-israel-netanyahu.html?searchResultPosition=9
-
-**Thailand Reports 32 New Coronavirus Cases, Brings Total to 114**\
-`Thailand reported 32 new coronavirus cases on Sunday, bringing the total infections in the Southeast Asian country to 114, health officials said.`\
-https://nytimes.com/reuters/2020/03/15/world/asia/15reuters-health-coronavirus-thailand.html?searchResultPosition=10
+https://nytimes.com/2020/03/15/us/politics/joseph-biden-bernie-sanders.html?searchResultPosition=10
 
