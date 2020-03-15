@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/03/15/world/15reuters-health-coronavirus-el-sal
 `American Airlines Inc said Saturday it plans to cut 75% of its international flights through May 6 and ground nearly all its widebody fleet, as airlines respond to the global collapse in travel demand due to the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/03/15/business/15reuters-health-coronavirus-usa-airlines.html?searchResultPosition=5
 
-**The Latest: Cruise Ship in New Zealand Awaits Virus Test**\
+**The Latest: New Jersey City Announces Curfew Amid Outbreak**\
 `The Latest on the world's coronavirus pandemic, which has infected more than 150,000 people and killed more than 5,700. The disease for most people causes only mild or moderate symptoms. For some, it can cause more severe illness.`\
 https://nytimes.com/aponline/2020/03/15/business/ap-virus-outbreak-the-latest.html?searchResultPosition=6
 
