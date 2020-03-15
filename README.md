@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/03/14/us/ap-us-virus-outbreak-fake-test-kits.h
 https://nytimes.com/reuters/2020/03/14/world/europe/14reuters-health-coronavirus-spain-factbox.html?searchResultPosition=7
 
 **Wife of Spain’s Prime Minister Tests Positive for Virus**\
-`Spain’s government said Saturday that the wife of Prime Minister Pedro Sánchez has tested positive for the new coronavirus. `\
+`Spain’s government said Saturday that the wife of wife of Prime Minister Pedro Sánchez has tested positive for the new coronavirus. `\
 https://nytimes.com/aponline/2020/03/14/world/europe/ap-eu-virus-outbreak-spain-prime-ministers-wife.html?searchResultPosition=8
 
 **Trump Tests Negative for Coronavirus: White House Doctor Statement**\
