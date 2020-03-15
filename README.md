@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/03/15/business/15reuters-health-coronavirus-cen
 `Following days of pressure, Gov. Andrew M. Cuomo announced plans to close the nation’s largest public school system.`\
 https://nytimes.com/2020/03/15/nyregion/coronavirus-schools-close-nyc.html?searchResultPosition=5
 
-**Fed Slashes Rate to Near Zero, Eases Lending Rules**\
+**Fed Slashes Rates to Near Zero, Eases Bank Lending Rules**\
 `The Federal Reserve took emergency action Sunday and slashed its benchmark interest rate by a full percentage point to nearly zero and announced it would purchase more Treasury securities to encourage lending to try to offset the impact of the coronavirus outbreak.`\
 https://nytimes.com/aponline/2020/03/15/business/ap-us-virus-outbreak-federal-reserve.html?searchResultPosition=6
 
