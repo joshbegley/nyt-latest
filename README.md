@@ -1,12 +1,12 @@
-**U.S. Hospitals, Patients Cancel Elective Surgery as Coronavirus Spreads**\
-`U.`\
-https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-usa-surgery.html?searchResultPosition=8
+**Many Parents Wait Too Long for 'Good Touch, Bad Touch' Talk**\
+`Parents should ideally start talking to kids about inappropriate touching during the preschool years, but a new U.S. poll suggests many wait longer. `\
+https://nytimes.com/reuters/2020/03/16/us/16reuters-health-children-sex-abuse.html?searchResultPosition=8
 
-**There Will Be 'Dramatic' Change in Coronavirus Spread if Americans Follow Guidelines-Official**\
-`There will be a "dramatic" change in the spread of coronavirus if Americans follow guidelines issued by the White House on Monday to fight virus, a member of the White House coronavirus task force said.`\
-https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-usa-birx.html?searchResultPosition=9
+**At Least Two Suspected Coronavirus Cases Among SEC's Washington Staff-Filing**\
+`The U.S. Securities and Exchange Commission has had two suspected coronavirus cases among staff at its Washington headquarters, an official said in a court document requesting leniency on delivering physical copies of filings to a judge.`\
+https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-usa-sec.html?searchResultPosition=9
 
-**U.S. CDC Reports First Coronavirus Case Among Its Staff**\
-`The Centers for Disease Control and Prevention (CDC) said on Monday an employee has been tested positive for the coronavirus. `\
-https://nytimes.com/reuters/2020/03/16/us/16reuters-healthcare-coronavirus.html?searchResultPosition=10
+**Coronavirus Vaccine Developer CureVac CEO to Go on Temporary Medical Leave**\
+`German drug developer CureVac AG, which is developing a coronavirus vaccine, said on Monday its recently appointed Chief Executive Officer Ingmar Hoerr will be taking a temporary medical leave.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-germany-usa.html?searchResultPosition=10
 
