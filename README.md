@@ -1,12 +1,12 @@
-**LATAM Airlines to Cancel 90% of Its International Flights**\
-`LATAM Airlines Group, the continent's largest carrier, said on Monday it is canceling 90% of its international flights, in light of the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-latam-airlines.html?searchResultPosition=8
+**White House Challenges AI Researchers to Tackle Coronavirus Questions**\
+`The White House's Office of Science and Technology Policy on Monday challenged researchers to use artificial intelligence techniques to analyze about 29,000 scholarly articles to answer key questions about the coronavirus. `\
+https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-tech-research.html?searchResultPosition=8
 
-**As U.S. Senate Mulls House Coronavirus Bill, Schumer Proposes $750 Billion in New Spending**\
-`As the U.S. Senate grappled over what to do with a wide-ranging coronavirus economic stimulus bill passed by the House of Representatives on Saturday, Senate Democratic Leader Chuck Schumer on Monday urged an additional $750 billion to address the growing crisis.`\
-https://nytimes.com/reuters/2020/03/16/us/politics/16reuters-health-coronavirus-usa-congress.html?searchResultPosition=9
+**U.S. Senator Schumer Wants at Least $750 Billion to Combat Coronavirus, Help Economy**\
+`U.S. Senate Democratic leader Chuck Schumer will propose legislation totaling at least $750 billion to combat the coronavirus outbreak and help the economy, his office said in a statement on Monday. He will present the package as early as Tuesday, the statement said.`\
+https://nytimes.com/reuters/2020/03/16/us/politics/16reuters-health-coronavirus-usa-schumer.html?searchResultPosition=9
 
-**Amazon Seeks to Hire 100,000 to Keep Up With Surge in Orders**\
-`Amazon said Monday that it needs to hire 100,000 people across the U.S. to keep up with a crush of orders as the coronavirus spreads and keeps more people at home, shopping online.`\
-https://nytimes.com/aponline/2020/03/16/business/ap-us-virus-outbreak-amazon.html?searchResultPosition=10
+**USAID Chief to Step Down, Even as U.S. Struggles With Global Pandemic**\
+`The head of the U.S. Agency for International Development (USAID), Mark Green, is to step down from the main U.S. organization for humanitarian assistance, even as the Trump administration struggles to deal with the global coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/16/us/16reuters-usa-aid-green.html?searchResultPosition=10
 
