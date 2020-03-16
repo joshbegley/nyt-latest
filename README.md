@@ -1,12 +1,12 @@
-**How Major US Stock Indexes Fared Monday**\
-`The Dow industrials sank nearly 3,000 points Monday as fears deepened on Wall Street that the coronavirus outbreak will throw the global economy into recession. The 12.9% drop in the Dow was its worst since 1987. `\
-https://nytimes.com/aponline/2020/03/16/business/ap-financial-markets-box.html?searchResultPosition=8
+**Economic Fallout From Virus Felt in Gas Lines in Venezuela**\
+`Nicolás Maduro’s government on Monday banned gasoline sales in two states as part of a broader lock-down to stem panic buying by Venezuelans accustomed to hoarding basic goods whenever there’s a hint of turmoil.`\
+https://nytimes.com/aponline/2020/03/16/world/americas/ap-lt-virus-outbreak-venezuela.html?searchResultPosition=8
 
-**Dutch PM Rutte Appeals to Nation to Come Together as Coronavirus Spreads**\
-`A large portion of the Dutch population will contract coronavirus in the coming months, Dutch Prime Minister Mark Rutte cautioned on Monday, appealing to the country to pull together in the face of difficult times to come. `\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-netherlands-rutte.html?searchResultPosition=9
+**Sheriff: Boy Killed at Random in Idaho Mobile Home Shooting**\
+`A young boy was shot and killed in his Idaho home Sunday night in what investigators are calling a random act of violence. `\
+https://nytimes.com/aponline/2020/03/16/us/ap-us-shooting-boy-killed-1st-ld-writethru.html?searchResultPosition=9
 
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark crude oil fell $3.`\
-https://nytimes.com/aponline/2020/03/16/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=10
+**Disney Junior's 'Mira, Royal Detective' Is India-Inspired**\
+`The newest cartoon on Disney Junior has all the hallmarks one would expect from a children's show — a smart, resourceful lead character, entertaining sidekicks, and a bright, colorful animated environment, filled with song and dance.`\
+https://nytimes.com/aponline/2020/03/16/us/ap-us-disney-mira-arrives-1st-ld-writethru.html?searchResultPosition=10
 
