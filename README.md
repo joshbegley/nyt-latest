@@ -1,28 +1,28 @@
+**Virgin Atlantic to Ground Up to 85% of Fleet in Coronavirus Crisis**\
+`Virgin Atlantic, the UK-based airline, said it would ground 75% of its fleet by 26 March and by up to 85% at points in April, as it canceled more flights due to coronavirus. `\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-britain-virgin-atlantic.html?searchResultPosition=4
+
+**Fed Brings Out Big Guns, Investors Fear the Worst**\
+`A massive rollout of easing measures by the Federal Reserve served to deepen some investors' anxiety over how effectively policymakers will be able to mitigate the economic damage from a spreading coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-markets-fed.html?searchResultPosition=5
+
+**Anger Mounts Over UK Government's Decision to Keep Schools Open**\
+`British Prime Minister Boris Johnson faced a backlash on Monday over his decision to keep schools open, with angry parents keeping their children at home and complaining that other countries were doing more to stop the spread of coronavirus.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-britain-schools.html?searchResultPosition=6
+
+**LSE Gets U.S. Nod for Refinitiv Deal**\
+`The London Stock Exchange Group said on Monday it had gained approval from the U.S. Committee on Foreign Investment for its $27 billion takeover of analytics firm Refinitiv, judging there were no national security concerns with the deal. `\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-lse-m-a-refinitiv.html?searchResultPosition=7
+
+**Wondering About Social Distancing?**\
+`Answers to your most common questions about the best practices for stemming the tide of the coronavirus pandemic.`\
+https://nytimes.com/2020/03/16/smarter-living/coronavirus-social-distancing.html?searchResultPosition=8
+
 **$4.3 Million Homes in California**\
 `A French Caribbean-inspired home in Newport Beach, a 1923 Spanish-style house in Beverly Hills and an estate with its own olive grove in Carmel Valley.`\
-https://nytimes.com/2020/03/16/realestate/4-3-million-homes-in-california.html?searchResultPosition=4
+https://nytimes.com/2020/03/16/realestate/4-3-million-homes-in-california.html?searchResultPosition=9
 
 **What You Get for $4.3 Million in California**\
 `A French Caribbean-inspired home in Newport Beach, a 1923 Spanish-style house in Beverly Hills and an estate with its own olive grove in Carmel Valley.`\
-https://nytimes.com/slideshow/2020/03/16/realestate/what-you-get-for-4-3-million-in-california.html?searchResultPosition=5
-
-**Trump Adviser Navarro Preparing Executive Order to Reduce U.S. Dependency on Foreign Medicines: CNBC**\
-`White House trade adviser Peter Navarro said on Monday he was preparing to bring an executive order to President Donald Trump that would help relocate medical supply chains from overseas to the United States amid the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-usa-medicines.html?searchResultPosition=6
-
-**What's Happening: Millions Holed Up, Vaccine Trial Starts**\
-`Millions of people began holing up at home, stocking up on supplies and keeping a wary eye on how close they get to friends and neighbors as fear of the coronavirus spread to more places.`\
-https://nytimes.com/aponline/2020/03/16/us/ap-virus-outbreak-whats-happening.html?searchResultPosition=7
-
-**Muting Coronavirus Anger, China Empowers Its Internet Police**\
-`Online enforcers are dragging in hundreds for questioning as an assault on online speech continues. They are a sign how Beijing has given censors a more punitive role.`\
-https://nytimes.com/2020/03/16/business/china-coronavirus-internet-police.html?searchResultPosition=8
-
-**Jewish Worshippers Urged Not to Kiss Western Wall Due to Coronavirus Fears**\
-`The Jewish faithful should refrain from kissing the stones of the Western Wall, the chief rabbi of the Jerusalem site said on Monday, adding to measures that religious authorities have taken to prevent the spread of the coronavirus. `\
-https://nytimes.com/reuters/2020/03/16/world/middleeast/16reuters-health-coronavirus-jerusalem-judaism.html?searchResultPosition=9
-
-**JPMorgan Allows Employees to Work From Home as Coronavirus Spreads: Memo**\
-`JPMorgan Chase & Co has asked all managers globally to allow employees who can effectively work from home to begin doing so to help with social distancing as the coronavirus pandemic spreads, according to a memo seen by Reuters.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-jp-morgan.html?searchResultPosition=10
+https://nytimes.com/slideshow/2020/03/16/realestate/what-you-get-for-4-3-million-in-california.html?searchResultPosition=10
 
