@@ -1,12 +1,12 @@
-**U.S. Shale Oil Output to Rise to Record 9.08 Million Barrels Per Day in April-EIA**\
-`U.S. oil output growth from the Permian basin is expected to offset declines in every other shale formation in April, helping push overall production up by about 18,000 barrels per day (bpd) to a record 9.08 million bpd, data showed on Monday.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-usa-oil-productivity.html?searchResultPosition=8
+**LATAM Airlines to Cancel 90% of Its International Flights**\
+`LATAM Airlines Group, the continent's largest carrier, said on Monday it is canceling 90% of its international flights, in light of the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-latam-airlines.html?searchResultPosition=8
 
-**U.S. Airlines Urgently Need $50 Billion in Grants, Loans-Letter**\
-`A group representing major U.S. airlines said the industry needs $50 billion in grants and loans to survive the dramatic falloff in travel demand from the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-airlines-letter.html?searchResultPosition=9
+**As U.S. Senate Mulls House Coronavirus Bill, Schumer Proposes $750 Billion in New Spending**\
+`As the U.S. Senate grappled over what to do with a wide-ranging coronavirus economic stimulus bill passed by the House of Representatives on Saturday, Senate Democratic Leader Chuck Schumer on Monday urged an additional $750 billion to address the growing crisis.`\
+https://nytimes.com/reuters/2020/03/16/us/politics/16reuters-health-coronavirus-usa-congress.html?searchResultPosition=9
 
-**Uber Eats Waives Delivery Fee for Independent Restaurants as Virus Spreads**\
-`Uber Technologies Inc's food delivery business, Uber Eats, said on Monday it would waive delivery fee for independent restaurants across the United States and Canada.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-healthcare-coronavirus-uber.html?searchResultPosition=10
+**Amazon Seeks to Hire 100,000 to Keep Up With Surge in Orders**\
+`Amazon said Monday that it needs to hire 100,000 people across the U.S. to keep up with a crush of orders as the coronavirus spreads and keeps more people at home, shopping online.`\
+https://nytimes.com/aponline/2020/03/16/business/ap-us-virus-outbreak-amazon.html?searchResultPosition=10
 
