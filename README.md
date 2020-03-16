@@ -3,7 +3,7 @@
 https://nytimes.com/2020/03/16/us/coronavirus-doctors-nurses.html?searchResultPosition=8
 
 **America’s Economy Begins to Shut Down as Pandemic Measures Take Hold**\
-`The fast-spreading virus has put an end to movies, date nights and other economic activity, promoting some economists to call a U.S. recession.`\
+`The fast-spreading virus has put an end to movies, date nights and other economic activity, prompting some economists to call a U.S. recession.`\
 https://nytimes.com/2020/03/16/business/economy/coronavirus-us-economy-shutdown.html?searchResultPosition=9
 
 **Nevada Police Investigate Killing of Missing Teen Girl**\
