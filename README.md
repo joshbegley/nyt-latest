@@ -1,12 +1,12 @@
-**Watch Live: Coronavirus Briefing at White House**\
-`Leading health officials will hold a news conference to address the latest plans for combatting the coronavirus crisis.`\
-https://nytimes.com/video/us/politics/100000007036873/trump-coronavirus.html?searchResultPosition=8
+**Ohio Postpones Primary Over Coronavirus Concerns**\
+`Three other states are also set to vote on Tuesday, though they are taking additional precautions. Georgia and Louisiana have already postponed their primaries.`\
+https://nytimes.com/2020/03/16/us/politics/virus-primary-2020-ohio.html?searchResultPosition=8
 
-**Idris Elba Says He Has Coronavirus: 'No Symptoms So Far'**\
-`Idris Elba says he has tested positive for the coronavirus. The actor tweeted Monday that he has no symptoms so far and has been isolated since Friday when he found out about his possible exposure. `\
-https://nytimes.com/aponline/2020/03/16/us/ap-us-virus-outbreak-idris-elba.html?searchResultPosition=9
+**Your Tuesday Briefing**\
+`Coronavirus, China’s economy, Billie Eilish: Here’s what you need to know.`\
+https://nytimes.com/2020/03/16/briefing/coronavirus-china-economy-billie-eilish.html?searchResultPosition=9
 
-**After Days of Anxiety and Confusion, Government Workers Told to Stay Home**\
-`The nation’s 2.1 million federal employees have been left unsure of whether they are expected to report to work during the coronavirus outbreak.`\
-https://nytimes.com/2020/03/16/us/politics/coronavirus-government-work.html?searchResultPosition=10
+**When a Pandemic Arrives at the Playhouse Door**\
+`From the bubonic plague to the AIDS crisis, theater and public health have a long history of shaping each other, our critic writes.`\
+https://nytimes.com/2020/03/16/theater/theater-illness.html?searchResultPosition=10
 
