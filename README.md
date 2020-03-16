@@ -1,28 +1,28 @@
-**Virus Outbreak Delays Census Counting Off-Campus Students**\
-`Because of the new coronavirus, the U.S. Census Bureau has postponed sending out census takers to count college students in off-campus housing and delayed sending workers to grocery stores and houses of worship where they help people fill out the once-a-decade questionnaire.`\
-https://nytimes.com/aponline/2020/03/16/us/ap-us-2020-census.html?searchResultPosition=4
+**Regional Leader of Spain's Catalonia Says He Has Coronavirus**\
+`The regional leader of Spain's Catalonia, Quim Torra, said on Monday that he had tested positive for the coronavirus and that he was going into self-isolation in a government building.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-spain-catalonia.html?searchResultPosition=4
 
-**5 People Killed, Including Police Officer and Suspect, in Missouri Shooting**\
-`The authorities said that five people are dead after a shooting at gas station in Springfield Sunday night.`\
-https://nytimes.com/2020/03/16/us/springfield-missouri-shooting.html?searchResultPosition=5
+**WTA Suspends Tour Until May 2 Due to Coronavirus**\
+`The Women's Tennis Association has suspended play until May 2 as the coronavirus pandemic continued its unprecedented shutdown of world sport on Monday.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-tennis-wta.html?searchResultPosition=5
 
-**Russian Court Approves Law That Could Extend Putin's Reign**\
-`Russia's Constitutional Court on Monday approved a law on constitutional amendments that could allow Vladimir Putin to remain in power for another 16 years.`\
-https://nytimes.com/aponline/2020/03/16/world/europe/ap-eu-russia-putin.html?searchResultPosition=6
+**Germany Wants Early Restaurant Closures, Non-Essential Shops Closed: Bild**\
+`Early closures for restaurants, shutting non-essential shops and a ban on church services are new measures the German government wants to introduce to slow the spread of coronavirus, mass-selling newspaper Bild reported on Monday.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-germany-closures.html?searchResultPosition=6
 
-**Duterte Tightens Virus Quarantine in Northern Philippines**\
-`Philippine President Rodrigo Duterte on Monday placed the northern third of the country under an “enhanced community quarantine” that requires millions of people to stay mostly at home in an attempt to contain the coronavirus, which has killed 12 people in the Southeast Asian nation.`\
-https://nytimes.com/aponline/2020/03/16/world/asia/ap-as-virus-outbreak-philippines.html?searchResultPosition=7
+**Austria Sees Coronavirus Cases Top 1,000, Frees Up Funds for Loan Guarantees**\
+`Austria's government said it will allocate 2 billion euros for loan guarantees on top of a 4-billion-euro aid fund to buffer the economy from the damage of coronavirus, as the number of confirmed cases in the country rose to 1,018.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-austria.html?searchResultPosition=7
 
-**AMC Theaters to Limit Attendance to 50 People Per Showing**\
-`AMC Theaters, the largest movie chain in North America, will limit attendance at all screenings to 50 people to adhere to the CDC's latest social distancing guidelines. `\
-https://nytimes.com/aponline/2020/03/16/business/bc-us-virus-outbreak-entertainment.html?searchResultPosition=8
+**Agent: Cousins, Vikings Agree to 2-Year Contract Extension**\
+`The Minnesota Vikings and quarterback Kirk Cousins have agreed to a two-year contract extension, his agent Mike McCartney said Monday.`\
+https://nytimes.com/aponline/2020/03/16/sports/football/ap-fbn-vikings-cousins.html?searchResultPosition=8
 
-**Donovan Mitchell Says He Still Doesn't Even Feel Sick**\
-`All-Star guard Donovan Mitchell of the Utah Jazz says he showed no symptoms of being sick before testing positive for the coronavirus, and he continues to have no signs of illness since going into isolation.`\
-https://nytimes.com/aponline/2020/03/16/sports/basketball/ap-bkn-virus-outbreak-jazz-mitchell.html?searchResultPosition=9
+**Could Coronavirus Cause as Many Deaths as Cancer in the U.S.? Putting Estimates in Context**\
+`How the best- and worst-case scenarios compare with other common killers.`\
+https://nytimes.com/interactive/2020/03/16/upshot/coronavirus-best-worst-death-toll-scenario.html?searchResultPosition=9
 
-**Child Dies in Fire in Greek Migrant Camp**\
-`A young child died in a fire in an overcrowded migrant camp on the Greek island of Lesbos on Monday, fire brigade officials said.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-europe-migrants-greece-lesbos-fire.html?searchResultPosition=10
+**Paris to Close City Parks to Reduce Coronavirus Infection Risk**\
+`Paris will close its parks until further notice in order to reduce the risk of coronavirus infections, Paris mayor Anne Hidalgo said in a statement on Monday. `\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-france-parks.html?searchResultPosition=10
 
