@@ -1,28 +1,28 @@
-**Virgin Atlantic to Ground Up to 85% of Fleet in Coronavirus Crisis**\
-`Virgin Atlantic, the UK-based airline, said it would ground 75% of its fleet by 26 March and by up to 85% at points in April, as it canceled more flights due to coronavirus. `\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-britain-virgin-atlantic.html?searchResultPosition=4
+**Philippine Leader Says Home Quarantine to Last to April 12**\
+`Philippine President Rodrigo Duterte on Monday said the country's main island of Luzon would be under home quarantine until April 12 to fight coronavirus, and told the public to heed the orders of police and soldiers, or be arrested.`\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-philippines-measures.html?searchResultPosition=4
 
-**Fed Brings Out Big Guns, Investors Fear the Worst**\
-`A massive rollout of easing measures by the Federal Reserve served to deepen some investors' anxiety over how effectively policymakers will be able to mitigate the economic damage from a spreading coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-markets-fed.html?searchResultPosition=5
+**Pompeo to Iraq PM: U.S. Will Take Action in Self-Defense if Attacked**\
+`Secretary of State Mike Pompeo told Iraqi Prime Minister Adel Abdul Mahdi the United States would take measures in self-defense if attacked, according to a statement on Monday, after a second rocket attack on an Iraqi base that houses U.S. troops helping fight Islamic State.`\
+https://nytimes.com/reuters/2020/03/16/world/middleeast/16reuters-iraq-security-usa.html?searchResultPosition=5
 
-**Anger Mounts Over UK Government's Decision to Keep Schools Open**\
-`British Prime Minister Boris Johnson faced a backlash on Monday over his decision to keep schools open, with angry parents keeping their children at home and complaining that other countries were doing more to stop the spread of coronavirus.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-britain-schools.html?searchResultPosition=6
+**Germany Halts Flights From Iran and China Over Coronavirus: Bild**\
+`Germany's transport ministry plans to halt flights from Iran and China in order to slow the spread of the coronavirus, newspaper Bild reported on Monday, citing government sources.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-germany-flights-bild.html?searchResultPosition=6
 
-**LSE Gets U.S. Nod for Refinitiv Deal**\
-`The London Stock Exchange Group said on Monday it had gained approval from the U.S. Committee on Foreign Investment for its $27 billion takeover of analytics firm Refinitiv, judging there were no national security concerns with the deal. `\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-lse-m-a-refinitiv.html?searchResultPosition=7
+**UK Steps Up Communication Amid Concerns About Virus Response**\
+`British officials have introduced daily televised press conferences with medical experts in an attempt to combat growing criticism of the U.K.’s cautious approach to the coronavirus outbreak.`\
+https://nytimes.com/aponline/2020/03/16/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=7
 
-**Wondering About Social Distancing?**\
-`Answers to your most common questions about the best practices for stemming the tide of the coronavirus pandemic.`\
-https://nytimes.com/2020/03/16/smarter-living/coronavirus-social-distancing.html?searchResultPosition=8
+**New York Manufacturing Activity Sees Record Drop in March: New York Fed**\
+`Manufacturing activity in New York State plunged in March by the most on record to its lowest level since 2009 and optimism about the future was the lowest since the financial crisis more than a decade ago, the Federal Reserve Bank of New York said on Monday in one of the first U.`\
+https://nytimes.com/reuters/2020/03/16/us/16reuters-usa-economy-nyfed-manufacturing.html?searchResultPosition=8
 
-**$4.3 Million Homes in California**\
-`A French Caribbean-inspired home in Newport Beach, a 1923 Spanish-style house in Beverly Hills and an estate with its own olive grove in Carmel Valley.`\
-https://nytimes.com/2020/03/16/realestate/4-3-million-homes-in-california.html?searchResultPosition=9
+**Germany's Financial Regulator Sees No Systematic Risk: Handelsblatt**\
+`Germany's financial regulator Bafin sees no systemic risk to the financial sector in Europe's largest economy due to the coronavirus pandemic, Handelsblatt reported on Monday.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-germany-bafin.html?searchResultPosition=9
 
-**What You Get for $4.3 Million in California**\
-`A French Caribbean-inspired home in Newport Beach, a 1923 Spanish-style house in Beverly Hills and an estate with its own olive grove in Carmel Valley.`\
-https://nytimes.com/slideshow/2020/03/16/realestate/what-you-get-for-4-3-million-in-california.html?searchResultPosition=10
+**As Passengers Stay Home, UK Rail Operators Ask for Bailout**\
+`Companies running rail services in Britain have asked the government for a financial bailout as Britons increasingly work from home to avoid spreading coronavirus, sending passenger numbers plunging, a source told Reuters.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-britain-railway.html?searchResultPosition=10
 
