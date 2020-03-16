@@ -1,28 +1,28 @@
-**Regional Leader of Spain's Catalonia Says He Has Coronavirus**\
-`The regional leader of Spain's Catalonia, Quim Torra, said on Monday that he had tested positive for the coronavirus and that he was going into self-isolation in a government building.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-spain-catalonia.html?searchResultPosition=4
+**Number of Confirmed Coronavirus Cases in UK Rises to 1,543**\
+`The number of confirmed coronavirus cases in the United Kingdom has risen to 1,543 the health ministry said on Monday.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-britain-cases.html?searchResultPosition=4
 
-**WTA Suspends Tour Until May 2 Due to Coronavirus**\
-`The Women's Tennis Association has suspended play until May 2 as the coronavirus pandemic continued its unprecedented shutdown of world sport on Monday.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-tennis-wta.html?searchResultPosition=5
+**More U.S. Producers Cut Budgets as Crude Falls Below $30 a Barrel**\
+`EOG Resources Inc, Whiting Petroleum Corp and EQT Corp cut drilling activity and budgets on Monday, becoming the latest North American shale producers to be hit by lower oil prices, which fell below $30.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-global-oil-shale.html?searchResultPosition=5
 
-**Germany Wants Early Restaurant Closures, Non-Essential Shops Closed: Bild**\
-`Early closures for restaurants, shutting non-essential shops and a ban on church services are new measures the German government wants to introduce to slow the spread of coronavirus, mass-selling newspaper Bild reported on Monday.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-germany-closures.html?searchResultPosition=6
+**Exclusive: India Plans to Top Up Strategic Tanks With Cheap Saudi, UAE Oil-Sources**\
+`India plans to take advantage of low prices for oil from Saudi Arabia and the United Arab Emirates to top up its strategic petroleum reserves (SPR), two sources familiar with the matter said on Monday.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-india-oil-strategic-reserve-exclusive.html?searchResultPosition=6
 
-**Austria Sees Coronavirus Cases Top 1,000, Frees Up Funds for Loan Guarantees**\
-`Austria's government said it will allocate 2 billion euros for loan guarantees on top of a 4-billion-euro aid fund to buffer the economy from the damage of coronavirus, as the number of confirmed cases in the country rose to 1,018.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-austria.html?searchResultPosition=7
+**Moscow Bans Outdoor Events, Limits Indoor Events Capacity Amid Coronavirus: Mayor**\
+`Moscow on Monday banned all outdoor events and limited indoor public events to no more than 50 people until April 10, Moscow Mayor Sergei Sobyanin said in a blog post on his personal website, amid the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-moscow-events.html?searchResultPosition=7
 
-**Agent: Cousins, Vikings Agree to 2-Year Contract Extension**\
-`The Minnesota Vikings and quarterback Kirk Cousins have agreed to a two-year contract extension, his agent Mike McCartney said Monday.`\
-https://nytimes.com/aponline/2020/03/16/sports/football/ap-fbn-vikings-cousins.html?searchResultPosition=8
+**Exclusive: UK Supermarkets May Cut Services to Stay Open as Coronavirus Spreads-Sources**\
+`Britain's major supermarkets are working on plans to streamline their operations by cutting cafes, counters and other services to enable a depleted workforce to maintain basic provisions during the coronavirus outbreak, industry sources told Reuters.   `\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-britain-supermarkets-exclusive.html?searchResultPosition=8
 
-**Could Coronavirus Cause as Many Deaths as Cancer in the U.S.? Putting Estimates in Context**\
-`How the best- and worst-case scenarios compare with other common killers.`\
-https://nytimes.com/interactive/2020/03/16/upshot/coronavirus-best-worst-death-toll-scenario.html?searchResultPosition=9
+**Chile to Close Borders to Foreign Travelers Beginning Wednesday**\
+`Chilean President Sebastian Pinera said on Monday Chile would close its borders to foreigners beginning on Wednesday to limit the spread of coronavirus in the South American nation.`\
+https://nytimes.com/reuters/2020/03/16/world/americas/16reuters-chile-coronavirus.html?searchResultPosition=9
 
-**Paris to Close City Parks to Reduce Coronavirus Infection Risk**\
-`Paris will close its parks until further notice in order to reduce the risk of coronavirus infections, Paris mayor Anne Hidalgo said in a statement on Monday. `\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-france-parks.html?searchResultPosition=10
+**Ex-Priest in France Is Convicted of Abusing Dozens of Scouts**\
+`Bernard Preynat, 75, received a five-year sentence after admitting to assaulting boys over a 20-year period, a scandal that embroiled a top cardinal.`\
+https://nytimes.com/2020/03/16/world/europe/bernard-preynat-france-abuse.html?searchResultPosition=10
 
