@@ -1,12 +1,12 @@
-**Fearing Coronavirus Spread, Lawyers for Immigrant Detainees Urge Their Release**\
-`A Cuban asylum seeker with breast cancer who has been detained since November is among dozens of people seeking to be released by U.S. immigration authorities amid fears that the coronavirus could spread quickly in densely populated detention facilities.`\
-https://nytimes.com/reuters/2020/03/16/world/americas/16reuters-health-coronavirus-usa-immigration.html?searchResultPosition=8
+**Israel Adds Another $1.3 Billion to Help Economy Deal With Coronavirus**\
+`Israeli Finance Minister Moshe Kahlon on Monday said the government will expand its aid package to help businesses hurt by the coronavirus crisis by another 5 billion shekels ($1.3 billion).`\
+https://nytimes.com/reuters/2020/03/16/world/middleeast/16reuters-health-coronavirus-israel-aid.html?searchResultPosition=8
 
-**Welcome to Marriage During the Coronavirus**\
-`Remember: Both of you are right.`\
-https://nytimes.com/2020/03/16/opinion/coronavirus-relationships.html?searchResultPosition=9
+**'Clean Enclave': U.S. General in Isolation as Military Grapples With Coronavirus**\
+`U.S. Lieutenant General Christopher Cavoli, the Army's top general in Europe, said his Italian and Polish counterparts showed no signs of the coronavirus when they met at a conference in Germany just over a week ago.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-usa-pentagon.html?searchResultPosition=9
 
-**Studio’s Movies in Theaters Will Be Offered for In-Home Rental**\
-`Universal is breaking longstanding industry practice to offer “The Hunt,” “The Invisible Man” and “Emma” for streaming.`\
-https://nytimes.com/2020/03/16/business/media/coronavirus-universal-home-movies.html?searchResultPosition=10
+**Sweden's Getinge to Deliver 500 Ventilators to Italy as Demand Rockets**\
+`Swedish medical equipment group Getinge will deliver 500 ventilators to Italy, its chief executive told Reuters on Monday, as a growing number of countries rush to buy the machines to treat people worst hit by the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-getinge-ventilators.html?searchResultPosition=10
 
