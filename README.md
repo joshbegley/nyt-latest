@@ -1,12 +1,12 @@
-**Canada Closes Borders, Says People Should Stay at Home to Stop Virus-PM Trudeau**\
-`Canada closed its borders to all foreign nationals, except U.S. citizens, on Monday, and Prime Minister Justin Trudeau urged people to stay at home to help stem the spread of the new coronavirus.`\
-https://nytimes.com/reuters/2020/03/16/world/americas/16reuters-health-coronavirus-canada-borders.html?searchResultPosition=8
+**Hotels Were Rolling Out Tools to Help Calm Travelers. Then Coronavirus Hit.**\
+`The in-room relaxation offerings are well-suited to the times, one hotel expert said, because they limit contact with other people but still provide a wellness experience.`\
+https://nytimes.com/2020/03/16/business/hotels-travelers-coronavirus.html?searchResultPosition=8
 
-**When Voting During a Pandemic Is a Way to Feel Normal**\
-`Arizona’s primary is on Tuesday, and Democrats there are holding onto the idea that they still have control over something: “I want to believe that voting takes away some of the fear.”`\
-https://nytimes.com/2020/03/16/us/politics/arizona-primary-coronavirus.html?searchResultPosition=9
+**Sausages, Now With Less Meat**\
+`Seemore Meats & Veggies, a company from one of the founders of Ovenly, sells vegetable-forward sausages.`\
+https://nytimes.com/2020/03/16/dining/seemore-sausages.html?searchResultPosition=9
 
-**Arthur Avenue Jars a Red Sauce**\
-`Little Italy in the Bronx sauces are sold by Belmont’s business improvement district to support the neighborhood.`\
-https://nytimes.com/2020/03/16/dining/little-italy-in-the-bronx-sauce.html?searchResultPosition=10
+**Fiat Chrysler, MGM Resorts Fall; Kroger, Clorox Rise**\
+`Stocks that moved heavily or traded substantially on Monday: `\
+https://nytimes.com/aponline/2020/03/16/business/ap-financial-markets-stocks.html?searchResultPosition=10
 
