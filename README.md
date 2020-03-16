@@ -1,28 +1,28 @@
-**Airlines Count Mounting Costs of the Coronavirus Shock**\
-`Airlines across the globe are feeling the pain as travel demand withers because of the coronavirus outbreak. Several have scrapped flights and ditched financial forecasts.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-airlines-factbox.html?searchResultPosition=4
+**Factbox: Retailers Close Stores Around Globe to Curb Coronavirus Spread**\
+`Retailers have been closing stores around the globe to reduce the risk of transmission of the coronavirus, which has killed over 6,500 and infected more than 174,000 while disrupting supply and production chains.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-retail-factbox.html?searchResultPosition=4
 
-**Germany to Shutter Most Shops, Bars, Churches**\
-`Germany's federal and state governments agreed sweeping rules shutting everything from non-essential shops to bars, clubs, theatres, museums, brothels and churches in order to slow the spread of the coronavirus, the federal government said.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-germany-closing.html?searchResultPosition=5
+**Azul Cuts International Flights, LATAM Airlines Could Take 'Additional Measures'**\
+`Brazilian airline Azul said on Monday that it will cut all of its international flights out of its main hub in Sao Paulo state later on Monday because of the coronavirus outbreak, significantly increasing its cancellations. `\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-brazil-airlines.html?searchResultPosition=5
 
-**Shanghai Government Says Companies Can Return to Work Without Need to Notify Authorities**\
-`The government of Shanghai has permitted companies to resume normal operations without first notifying authorities, except in certain industries, according to an official social media post from the city.`\
-https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-shanghai-work.html?searchResultPosition=6
+**Norwegian Air to Cancel 85% of Flights and Lay Off 90% of Staff**\
+`Norwegian Air will cancel 85% of its flights and temporarily lay off 7,300 employees as a result of the growing coronavirus crisis that has strangled demand for air travel, the carrier said on Monday.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-norwegianair.html?searchResultPosition=6
 
-**Coronavirus-Hit British Cruise Ship Finds Refuge in Cuba**\
-`A British cruise ship that was turned away from several ports in the Caribbean after five passengers were confirmed to have the new coronavirus is setting sail to Cuba which is allowing it to dock, its owner Fred Olsen Cruise Lines wrote in a statement.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-cuba.html?searchResultPosition=7
+**U.S. Could Start Buying Crude for Strategic Petroleum Reserve in Two Weeks**\
+`The United States could begin purchasing U.S. produced crude oil for the Strategic Petroleum Reserve as soon as two weeks from now, and fill it in several months, an Energy Department source said on Monday.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-global-oil-spr.html?searchResultPosition=7
 
-**Ventilators: What Are They and What Do They Do?**\
-`As Europe becomes the epicentre of the global coronavirus outbreak, national authorities are becoming increasingly concerned about a potential lack of ventilators, one of the key pieces of equipment needed to treat patients.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-ventilators.html?searchResultPosition=8
+**China's Airlines to Cut International Flights Due to Coronavirus: Global Times**\
+`Chinese airlines including Air China, China Southern Airlines and China Eastern Airlines are planning to reduce international flights in response to the coronavirus pandemic, the Global Times reported on Monday, citing unidentified sources.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-china-airlines.html?searchResultPosition=8
 
-**Beijing Tells Pompeo It Is Futile to Smear China Over Virus**\
-`Top Chinese diplomat Yang Jiechi has told U.S. Secretary of State Mike Pompeo by telephone that attempts to smear China's efforts to control the coronavirus "will not succeed", Chinese state broadcaster CCTV reported on Monday. `\
-https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-china-pompeo.html?searchResultPosition=9
+**EU Executive Proposes Shutting Down Bloc's External Borders for 30 Days**\
+`The European Union's executive on Monday proposed a 30-day ban on incoming travel for foreigners to the bloc to battle the spread of coronavirus. `\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-eu-vonderleyen.html?searchResultPosition=9
 
-**US Officials: Foreign Disinformation Stoking Virus Fears**\
-`The Trump administration is alleging that a foreign disinformation campaign is underway aimed at spreading fear in the country amid the coronavirus pandemic, three U.S. officials said Monday.`\
-https://nytimes.com/aponline/2020/03/16/us/politics/ap-us-virus-outbreak-disinformation.html?searchResultPosition=10
+**Turkey to Temporarily Close Gyms, Cafes, Cinemas - Interior Ministry**\
+`Turkey is temporarily closing cafes, restaurants, cinemas, theatres, gyms and other venues as of midnight Monday as a precaution to halt spread of coronavirus, Turkish interior ministry said on Monday.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-turkey-ministry.html?searchResultPosition=10
 
