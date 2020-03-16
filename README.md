@@ -1,28 +1,28 @@
+**Ukraine Capital Shuts Down Bars, Restaurants, Shopping Malls**\
+`Ukraine's capital Kiev announced on Monday the closure of bars, restaurants, cafes and shopping malls from March 17 to contain the spread of the coronavirus, and said people's movement to other towns should be restricted as much as possible. `\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-ukraine.html?searchResultPosition=4
+
+**Switzerland Cancels Parliament Session, Virus Cases Rise**\
+`Switzerland canceled a session of its national parliament, the government held crisis talks and the Swiss stock market plunged on Monday as new coronavirus cases accelerated.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-swiss.html?searchResultPosition=5
+
+**Japan Emperor May Postpone Visit to Britain Because of Coronavirus Pandemic: Kyodo**\
+`Japan's Emperor may postpone a state visit to Britain scheduled for early this year because of the coronavirus pandemic, Kyodo newswire reported citing unidentified sources.`\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-healthcare-coronavirus-japan-emperor.html?searchResultPosition=6
+
+**Algerian to Suspend Travel With Europe: Statement**\
+`Algeria will suspend all sea and air travel between it and Europe from Thursday over the coronavirus, Prime Minister Abdelaziz Djerad said in a statement. `\
+https://nytimes.com/reuters/2020/03/16/world/africa/16reuters-health-coronavirus-algeria.html?searchResultPosition=7
+
+**Factbox: Coronavirus Deaths Pass 5,400 Worldwide**\
+`Some 145,594 people have been infected by the coronavirus across the world and 5,419 have died, according to a Reuters tally.`\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-casualties-factbox.html?searchResultPosition=8
+
+**Israel's President Tasks Netanyahu Rival Gantz With Forming Government**\
+`Prime Minister Benjamin Netanyahu's main political rival, former military chief Benny Gantz, received an official mandate on Monday from Israel's president to try to form the country's next government.`\
+https://nytimes.com/reuters/2020/03/16/world/middleeast/16reuters-israel-politics.html?searchResultPosition=9
+
 **Swooning Stocks Signal Higher Likelihood of Trump Losing Election: Moody's Analytics**\
 `The U.S. stock market rout triggered by a deadly coronavirus outbreak suggests President Donald Trump is in grave danger of losing the November election, according to a forecasting model by Moody's Analytics, a leading Wall Street research firm.`\
-https://nytimes.com/reuters/2020/03/16/us/16reuters-usa-election-coronavirus-economy.html?searchResultPosition=4
-
-**French Antitrust Body Fines Apple 1.1 Billion Euros for Anti-Competitive Behaviour**\
-`France's competition watchdog on Monday fined iPhone maker Apple 1.1 billion euros for anti-competitive behaviour in its distribution network and an abuse of economic dependence on its resellers. `\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-apple-competition-france.html?searchResultPosition=5
-
-**Stock Market Rout Doubles Pain for Energy Firms That Took Shares for Deals**\
-`Energy investor EnCap Investments pulled off a rarity in the U.S. shale business earlier this month, the $2.5 billion sale of oil producer Felix Energy to rival WPX Energy Inc, striking a deal at a time when energy mergers have all but dried up.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-global-oil-writedowns.html?searchResultPosition=6
-
-**Quarantined Bankers, Video Roadshows: Coronavirus Hits Argentine Debt Talks**\
-`Argentina's ambitious target to strike a deal with bondholders to revamp almost $70 billion in debts by the end of March was never going to be easy. Now a coronavirus outbreak and crashing bond markets threaten to complicate things further.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-argentina-debt-analysis.html?searchResultPosition=7
-
-**China Biotech InnoCare Raises $288 Million in Hong Kong IPO: Sources**\
-`Chinese cancer drug developer InnoCare Pharma has priced its Hong Kong initial public offering at the top end of its marketing range to raise $288 million, said two sources, in the city's biggest float over the last two months.`\
-https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-innocare-ipo-hongkong.html?searchResultPosition=8
-
-**Thailand Records 33 New Coronavirus Cases on Monday, Bringing Tally to 147-Health Official**\
-`Thailand recorded 33 new coronavirus cases on Monday in the largest daily jump in infections, bringing the Southeast Asian country's tally to 147, Public Health Ministry spokesman Rungrueng Kitphati said on Monday.`\
-https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-thailand-cases.html?searchResultPosition=9
-
-**Sanofi Says Production Running as Per Normal, Sees No Shortages**\
-`Sanofi on Monday said its production sites were running normally in Europe and elsewhere as the coronavirus outbreak hits business activity globally, although the drugmaker has put in place contigency plans to ensure continuity.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-sanofi.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/16/us/16reuters-usa-election-coronavirus-economy.html?searchResultPosition=10
 
