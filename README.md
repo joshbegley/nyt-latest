@@ -1,28 +1,28 @@
+**Airlines Slash Schedules, Jobs and Pay After New Travel Restrictions**\
+`Airlines around the world announced they would make more drastic reductions to their flying schedules, cut jobs and seek government aid after countries further tightened border restrictions due to the fast spreading coronavirus.`\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-airlines.html?searchResultPosition=4
+
+**Fed Cuts Rates to Buffer Economy From Coronavirus**\
+`The Federal Reserve cut interest rates on Sunday for the second time in less than two weeks, an emergency move to help shore up the U.S. economy as a coronavirus pandemic spreads worldwide.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-fed-reserve-instant-view.html?searchResultPosition=5
+
+**Trump Congratulates Fed for Rates Cut, Calls Action 'Terrific'**\
+`U.S. President Donald Trump said the Federal Reserve's decision on Sunday to cut interest rates was "good news" and "makes me very happy" as he congratulated the central bank for taking further action aimed at helping shore up the U.S. economy amid the global coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-central-banks-trump.html?searchResultPosition=6
+
+**China January-February Aluminum Output Rises 2.4% Year-On-Year Despite Demand Hit From Coronavirus**\
+`China's aluminum production rose by 2.4% year-on-year in the first two months of 2020, official data showed on Monday, as smelting capacity commissioned late last year took supply higher despite a big hit to demand from the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-china-economy-output-aluminium.html?searchResultPosition=7
+
+**China's Economy Skids as Virus Paralyses Factories, Households**\
+`China's factory production plunged at the sharpest pace in 30 years in the first two months of the year as the fast-spreading coronavirus and strict containment measures severely disrupted the world's second-largest economy.`\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-china-economy-activity.html?searchResultPosition=8
+
 **Factbox: Latest on the Spread of Coronavirus Around the World**\
 `France and Spain joined Italy in imposing lockdowns on tens of millions of people, Australia ordered self-isolation of arriving foreigners and other countries extended entry bans as the world sought to contain the spreading coronavirus.`\
-https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-latest-factbox.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-latest-factbox.html?searchResultPosition=9
 
-**New York, LA Shut Bars and Restaurants, World's Central Banks Coordinate to Combat Coronavirus**\
+**New York, Los Angeles Shut Bars and Restaurants, World's Central Banks Coordinate to Combat Coronavirus**\
 `Bars, restaurants, theatres and movie houses in New York and Los Angeles were ordered to shut down and several nations in South and Central America closed their borders in the latest moves around the world to combat the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/16/world/16reuters-health-coronavirus.html?searchResultPosition=5
-
-**BOJ Likely to Debate Additional Easing Steps in Monday's Emergency Meeting**\
-`The Bank of Japan is expected to take additional steps to stabilize markets and minimize the economic pain from the coronavirus outbreak in an emergency meeting on Monday, joining other central banks trying to soothe investors' nerves.`\
-https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-central-banks-boj.html?searchResultPosition=6
-
-**No Corrections: March 16, 2020**\
-`No corrections appeared in print on Monday, March 16, 2020.`\
-https://nytimes.com/2020/03/16/pageoneplus/no-corrections-march-16-2020.html?searchResultPosition=7
-
-**Quotation of the Day: New York Orders Schools, Bars and Restaurants to Shut Down**\
-`Quotation of the Day for Monday, March 16, 2020.`\
-https://nytimes.com/2020/03/16/todayspaper/quotation-of-the-day-new-york-orders-schools-bars-and-restaurants-to-shut-down.html?searchResultPosition=8
-
-**Exclusive: U.S. Prosecutors Believe Credit Suisse Is Culpable in Mozambique Scandal-Sources**\
-`U.S. prosecutors are investigating Credit Suisse Group AG's role in a $2 billion Mozambique corruption case and believe they have evidence of the Swiss lender’s culpability after three former bankers pleaded guilty last year, according to two sources familiar with the matter.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-credit-suisse-gp-mozambique-exclusive.html?searchResultPosition=9
-
-**In Indian Capital, Riots Deepen a Hindu-Muslim Divide**\
-`For years, Hindus and Muslims lived and worked peacefully together in Yamuna Vihar, a densely populated Delhi district.`\
-https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-india-citizenship-protests-divide-insight.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/16/world/16reuters-health-coronavirus.html?searchResultPosition=10
 
