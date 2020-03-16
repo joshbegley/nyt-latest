@@ -1,12 +1,12 @@
-**Factbox: History of Extended New York Stock Exchange Market Closings**\
-`With state and local governments across the United States taking steps to contain the coronavirus spread, including requiring the closing of schools, restaurants and other meeting places, questions have begun to swirl on whether stock markets will shutter.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-usa-stocks-market-closings-factbox.html?searchResultPosition=8
+**M.L.B. Adjusts Expectations: ‘As Many Baseball Games in 2020 as We Can’**\
+`Officials in baseball, as well as those in the N.H.L., seemed to acknowledge that resuming play as early as April was unrealistic.`\
+https://nytimes.com/2020/03/16/sports/baseball/mlb-season-opening-day.html?searchResultPosition=8
 
-**DC Closes Gyms, Theaters, Orders Takeout Only in Restaurants**\
-`Washington, D.C., is shutting down all movie theaters and gyms, and ordering restaurants and bars to serve only takeout, as the nation's capital continues to ramp up its social distancing measures to stem the spread of the coronavirus. `\
-https://nytimes.com/aponline/2020/03/16/us/politics/ap-us-virus-outbreak-nations-capital-.html?searchResultPosition=9
+**Hall's Powell Has No Regrets Despite No NCAA Tournament**\
+`Preseason All-American Myles Powell has no regrets about returning for his senior season at No. 16 Seton Hall despite the Big East and NCAA tournaments being canceled because of the spread of the new coronavirus.`\
+https://nytimes.com/aponline/2020/03/16/sports/ncaabasketball/ap-bkc-seton-hall-powell.html?searchResultPosition=9
 
-**Exclusive: Shale Gas Pioneer Chesapeake Energy Taps Restructuring Advisers-Sources**\
-`Chesapeake Energy Corp, the oil and gas exploration and production company that helped spearhead the U.S. shale revolution, has tapped debt restructuring advisers amid a rout in energy prices, people familiar with the matter said on Monday.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-chesapeake-enrgy-restructuring-exclusive.html?searchResultPosition=10
+**Businessman Found Guilty in Fraud Scheme With Polygamists**\
+`A California businessman accused of helping a pair of Utah polygamists expand a biodiesel fraud scheme that ended up stealing nearly $500 million in government funds was found guilty Monday on 10 counts including money laundering and mail fraud.`\
+https://nytimes.com/aponline/2020/03/16/us/ap-us-biodiesel-polygamy-fraud-1st-ld-writethru.html?searchResultPosition=10
 
