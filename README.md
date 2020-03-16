@@ -1,28 +1,28 @@
-**Patients, at Least 1 With Coronavirus, Break Out of Afghan Quarantine**\
-`Dozens of Afghan patients held in isolation, including at least one confirmed to have the coronavirus, escaped from a quarantine facility in western Afghanistan on Monday after breaking windows and attacking hospital staff, officials said.`\
-https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-afghanistan.html?searchResultPosition=4
+**Germany to Shutter Most Shops, Bars, Churches**\
+`Germany's federal and state governments agreed sweeping rules shutting everything from non-essential shops to bars, clubs, theatres, museums, brothels and churches in order to slow the spread of the coronavirus, the federal government said.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-germany-closing.html?searchResultPosition=4
 
-**Europe Looks to Suspend Incoming Travel Over Coronavirus: Sources**\
-`Europe is looking to ban foreign nationals from coming into the Schengen open border zone, two sources said, as the continent scrambles to contain the spread of coronavirus. `\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-eu-schengen.html?searchResultPosition=5
+**Shanghai Government Says Companies Can Return to Work Without Need to Notify Authorities**\
+`The government of Shanghai has permitted companies to resume normal operations without first notifying authorities, except in certain industries, according to an official social media post from the city.`\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-shanghai-work.html?searchResultPosition=5
 
-**White House: No National Curfew Being Discussed**\
-`A possible national curfew that would close non-essential businesses in the United States by a certain time each night is not being actively discussed by the coronavirus task force, the White House said on Monday.`\
-https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-usa-curfew.html?searchResultPosition=6
+**Coronavirus-Hit British Cruise Ship Finds Refuge in Cuba**\
+`A British cruise ship that was turned away from several ports in the Caribbean after five passengers were confirmed to have the new coronavirus is setting sail to Cuba which is allowing it to dock, its owner Fred Olsen Cruise Lines wrote in a statement.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-cuba.html?searchResultPosition=6
 
-**Malaysia Restricts Travel, Shuts Schools and Businesses to Combat Coronavirus**\
-`Malaysia said it would restrict travel, ban public gatherings and order schools, universities and most shops to shut from Wednesday in a bid to control the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-malaysia-measures.html?searchResultPosition=7
+**Ventilators: What Are They and What Do They Do?**\
+`As Europe becomes the epicentre of the global coronavirus outbreak, national authorities are becoming increasingly concerned about a potential lack of ventilators, one of the key pieces of equipment needed to treat patients.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-ventilators.html?searchResultPosition=7
 
-**The Newsroom at the Center of a Pandemic**\
-`“That’s what local papers are meant to do”: The journalists at The Seattle Times have been aggressively covering the coronavirus as it affects their neighbors and friends.`\
-https://nytimes.com/2020/03/16/business/media/coronavirus-seattle-times.html?searchResultPosition=8
+**Beijing Tells Pompeo It Is Futile to Smear China Over Virus**\
+`Top Chinese diplomat Yang Jiechi has told U.S. Secretary of State Mike Pompeo by telephone that attempts to smear China's efforts to control the coronavirus "will not succeed", Chinese state broadcaster CCTV reported on Monday. `\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-china-pompeo.html?searchResultPosition=8
 
-**N.F.L. Cancels Draft in Las Vegas**\
-`The league will air the draft as a televised event. After C.D.C. recommends gatherings of no more than 50 people, the N.F.L. follows other leagues in calling off live draft events.`\
-https://nytimes.com/2020/03/16/sports/nfl-draft-cancelled.html?searchResultPosition=9
+**US Officials: Foreign Disinformation Stoking Virus Fears**\
+`The Trump administration is alleging that a foreign disinformation campaign is underway aimed at spreading fear in the country amid the coronavirus pandemic, three U.S. officials said Monday.`\
+https://nytimes.com/aponline/2020/03/16/us/politics/ap-us-virus-outbreak-disinformation.html?searchResultPosition=9
 
-**Millions Holed Up at Home as U.S. Routines Shift Profoundly**\
-`Millions of Americans began their work week holed up at home Monday against the coronavirus outside their doors, as the escalating outbreak shifted the nation’s daily routines in ways never before seen in U.S. history. `\
-https://nytimes.com/aponline/2020/03/16/us/ap-us-virus-outbreak-us.html?searchResultPosition=10
+**Sheriff: 7 Family Members Fatally Shot in North Carolina**\
+`Seven members of the same family were fatally shot in North Carolina over the weekend, authorities said Monday. `\
+https://nytimes.com/aponline/2020/03/16/us/ap-us-family-dead-north-carolina.html?searchResultPosition=10
 
