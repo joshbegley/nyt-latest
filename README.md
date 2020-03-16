@@ -10,7 +10,7 @@ https://nytimes.com/aponline/2020/03/16/business/bc-us-virus-outbreak-auto-indus
 `A military tribunal in Beirut on Monday ordered the release of a Lebanese-American held in the country for nearly six months on charges of working for an Israeli-backed militia two decades ago, Lebanon's state-run news agency said. `\
 https://nytimes.com/aponline/2020/03/16/world/middleeast/ap-ml-lebanon-israel.html?searchResultPosition=7
 
-**The Latest: Cardinals Give RB Kenyan Drake Transition Tag**\
+**The Latest: Bengals' Green, Bucs' Barrett Get Franchise Tags**\
 `The Latest on NFL's free agency. Teams were required to use franchise tags on players by noon EDT Monday. Teams can negotiate with representatives of free agents for the next two days but cannot finalize any agreements. (all times local):`\
 https://nytimes.com/aponline/2020/03/16/sports/football/ap-fbn-nfl-free-agency-the-latest-2nd-ld-writethru.html?searchResultPosition=8
 
