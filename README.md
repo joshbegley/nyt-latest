@@ -1,28 +1,28 @@
-**Iran's Death Toll From Coronavirus Increases to 853: Official**\
-`Iran's death toll from the new coronavirus has reached 853 with 129 new deaths in the past 24 hours, a health ministry official  tweeted on Monday, adding that 14,991 people have been infected across Iran.`\
-https://nytimes.com/reuters/2020/03/16/world/middleeast/16reuters-health-coronavirus-iran.html?searchResultPosition=4
+**EU Leaders Set to Hold Video Conference on Virus on Tuesday**\
+`European Council president Charles Michel said he had called a video conference of EU leaders on Tuesday to discuss the coronavirus and the bloc's response.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-eu-summit.html?searchResultPosition=4
 
-**Malaysia Virus Cases Jump to 553, Most Linked to Big Islamic Gathering**\
-`Nearly two-thirds of Malaysia's 553 coronavirus cases have been linked to an Islamic gathering, making Malaysia Southeast Asia's worst-affected country and prompting a warning from the prime minister of "big news" on Monday to contain the epidemic.`\
-https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-healthcare-coronavirus-malaysia.html?searchResultPosition=5
+**New York City Shuts Schools, Restaurants and Bars as Coronavirus Spreads: Live Updates**\
+`“It’s time to take more dramatic measures,” Mayor Bill de Blasio said Sunday afternoon`\
+https://nytimes.com/2020/03/16/nyregion/coronavirus-new-york-update.html?searchResultPosition=5
 
-**China Eyes Rescheduled Parliament for Late April or Early May: Sources**\
-`China tentatively plans to hold its delayed annual gathering of parliament in late April or early May, two people involved in preparations told Reuters, as new coronavirus cases in the country drop sharply even as they surge elsewhere.`\
-https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-china-parliament.html?searchResultPosition=6
+**Poland May Cut Interest Rates Tuesday to Boost Coronavirus-Hit Economy: Analysts**\
+`Poland's Monetary Policy Council (MPC) will hold a regular monthly meeting on Tuesday with some analysts expecting it to cut interest rates to support the coronavirus-hit economy.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-poland-rates-sitting.html?searchResultPosition=6
 
-**Kenya Raids Shop Selling Fake Coronavirus Kits as Liberia Confirms First Case**\
-`Kenyan authorities raided a shop on Monday that was alleged to be selling fake coronavirus testing kits, as the World Health Organisation confirmed there were at least 327 cases on the African continent. `\
-https://nytimes.com/reuters/2020/03/16/world/africa/16reuters-health-coronavirus-africa.html?searchResultPosition=7
+**OPEC+ Calls Off Wednesday Technical Talks-Source**\
+`An OPEC and non-OPEC technical meeting planned for Wednesday in Vienna has been called off, a source with knowledge of the matter said.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-oil-opec.html?searchResultPosition=7
 
-**Home but Not Alone? Here Are Four New Shows to Watch With Your Kids**\
-`Between working and learning, enjoy these animated series, from the superhero parakeets of “Powerbirds” to the homegrown anime of “Kipo and the Age of Wonderbeasts.”`\
-https://nytimes.com/2020/03/16/arts/television/best-new-kids-tv.html?searchResultPosition=8
+**Hong Kong Central Bank Cuts Rates, Bank Capital Buffer Requirements**\
+`Hong Kong's central bank cut rates and the level of capital buffers it requires financial institutions to hold to 1% from 2% of their risk-weighted assets on Monday, to help companies and lenders weather the impact of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-central-banks-hong-kong.html?searchResultPosition=8
 
-**The Coronavirus Debate**\
-`A crisis can provide a sharper view of how candidates approach the problems facing the country.`\
-https://nytimes.com/2020/03/16/us/politics/debate-biden-sanders.html?searchResultPosition=9
+**In Florida Retirement Hub, More Worry About Stock Market Collapse Than Getting Sick From Coronavirus**\
+`Across the Villages, a sprawling retirement community with more than 115,000 residents in the vital political battleground of Florida, reactions to the growing coronavirus crisis are invariably colored by a voter's partisan views.`\
+https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-usa-election.html?searchResultPosition=9
 
-**Monsignor in Landmark Church Abuse Case Goes Back on Trial**\
-`Nearly two decades after the Roman Catholic priest-abuse scandal exploded in the U.S. in 2002, only one church official has ever gone to prison over it: Monsignor William Lynn, the longtime secretary for clergy in the Philadelphia archdiocese. `\
-https://nytimes.com/aponline/2020/03/16/us/ap-us-church-abuse-appeal.html?searchResultPosition=10
+**Ryanair Grounds Most of Its Fleet Across Europe for the Next Week**\
+`Ryanair said on Monday it would ground most of its aircraft in Europe over the next seven to 10 days, expects to cut seat capacity by 80% for the next two months, and could even ground its entire fleet, given travel restrictions due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-ryanair.html?searchResultPosition=10
 
