@@ -1,12 +1,12 @@
-**Universal Pictures Will Make Movies Available at Home and in Theaters on the Same Day**\
-`Universal Pictures, a division of Comcast Corp-owned NBCUniversal, will make its movies available at home on the same day they are released in theaters worldwide, beginning with the DreamWorks Animation film "Trolls World Tour" - which opens in the United States on April 10.`\
-https://nytimes.com/reuters/2020/03/16/arts/16reuters-health-coronavirus-universal-pictures.html?searchResultPosition=8
+**Travel Firms Ramped Up Spending on Online Ads Ahead of Projected Coronavirus Slump, Data Show**\
+`The U.S. travel sector doubled down on online ads in the last month, joining healthcare and food delivery providers in pushing deals even as the coronavirus pandemic caused mass cancellations and deterred many travelers. `\
+https://nytimes.com/reuters/2020/03/16/technology/16reuters-health-coronavirus-tech.html?searchResultPosition=8
 
-**'Cats' Wins Six Razzie Awards for 'Worst Films'**\
-`The movie musical "Cats" on Monday dominated the Razzie Awards for the worst movies of 2019, winning six trophies including worst film, screenplay and director.`\
-https://nytimes.com/reuters/2020/03/16/arts/16reuters-awards-razzies.html?searchResultPosition=9
+**How the Coronavirus Is Upending American Politics**\
+`The most elemental act of American democracy — voting — will be tested Tuesday as four states set to hold presidential primaries confront the impact of a global pandemic that has turned everyday life upside-down.`\
+https://nytimes.com/aponline/2020/03/16/us/politics/ap-us-election-2020.html?searchResultPosition=9
 
-**NASCAR Suspends Season Until May but Will Reschedule Events**\
-`NASCAR has suspended its season until May as part of the CDC’s recommendation to postpone gatherings for the next eight weeks because of the COVID-19 pandemic`\
-https://nytimes.com/aponline/2020/03/16/sports/ap-car-nascar-virus-postponements-.html?searchResultPosition=10
+**Virus Guidelines, Market Collapse, Primaries: Your Monday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/03/16/briefing/virus-guidelines-market-collapse-primaries.html?searchResultPosition=10
 
