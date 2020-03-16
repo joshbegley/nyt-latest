@@ -1,12 +1,12 @@
-**France to Postpone Second Round of Local Elections: Sources**\
-`France will postpone the second round of mayoral elections to June 21 due to the coronavirus outbreak, two political sources told Reuters on Monday.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-france-election.html?searchResultPosition=8
+**Some European Banks Shut Branches to Limit Coronavirus Spread**\
+`Two of Germany's largest banks have temporarily shut hundreds of branches, while Italian lenders have shortened opening hours as they grapple with staff shortages and the spread of coronavirus.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-germany-banks.html?searchResultPosition=8
 
-**Ukraine Wants Talks With IMF, Food Export Curbs to Fight Virus Fallout**\
-`Ukrainian President Volodymyr Zelenskiy asked his government on Monday to hold talks with the International Monetary Fund to ask for financial support to counteract the effect of the coronavirus on the economy. `\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-ukraine-president.html?searchResultPosition=9
+**Coronavirus: First Test of a U.S. Financial System 10 Years in Repair**\
+`A health emergency dismissed at first as a fleeting risk to the U.S. economy has turned into a full-on test of whether a decade of planning, regulation, research and soul-searching has left the financial system resilient to a major shock and its central bank able to mount a rescue.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-fed.html?searchResultPosition=9
 
-**Chinese Official Warns Against U.S. Effort to Limit Foreign Medicine Supplies**\
-`A Chinese official on Monday warned that a push by the White House to reduce U.S. dependence on foreign medicines in the wake of the coronavirus outbreak was "neither realistic nor wise."`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-china-supplychain.html?searchResultPosition=10
+**Google Parent Alphabet Shared YouTube Revenue After U.S. SEC Request**\
+`Alphabet Inc began disclosing revenue for its YouTube video service this year after U.S. securities regulators asked the Google parent to give more "quantitative and qualitative" data on the business, according to filings released Monday.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-alphabet-sec.html?searchResultPosition=10
 
