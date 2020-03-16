@@ -1,28 +1,28 @@
-**Next Primaries Offer Contrast Between Nation's Past, Future**\
-`Sharing the primary calendar Tuesday are two states that represent different pieces of America: Ohio, a largely white state that’s barely growing and looking to rebound from a decline in manufacturing, and Arizona, a state where one-third of the population is Latino and growth is exploding.`\
-https://nytimes.com/aponline/2020/03/16/us/politics/ap-us-election-2020-old-new-america.html?searchResultPosition=4
+**British Athlete Learmonth Calls for Games to Be Postponed Over Coronavirus**\
+`The International Olympic Committee (IOC) must give athletes some "clarity, transparency and flexibility" by postponing the Tokyo Games over the coronavirus pandemic, British athlete Guy Learmonth has said.`\
+https://nytimes.com/reuters/2020/03/16/sports/olympics/16reuters-health-coronavirus-olympics-learmonth.html?searchResultPosition=4
 
-**What’s on TV Monday: ‘The Plot Against America’ and ‘My Brilliant Friend’**\
-`The six-part adaptation of Philip Roth’s 2004 novel debuts on HBO. And the series based on Elena Ferrante’s Neapolitan novels returns for Season 2.`\
-https://nytimes.com/2020/03/16/arts/television/whats-on-tv-monday-the-plot-against-america-and-my-brilliant-friend.html?searchResultPosition=5
+**Germany to Introduce Border Controls as Coronavirus Cases Jump**\
+`Germany will temporarily introduce border controls on its frontiers with Austria, Switzerland, France, Luxembourg and Denmark from Monday, the government said on Sunday as the country seeks to curb a rapid spread of coronavirus.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-germany.html?searchResultPosition=5
 
-**Your Monday Briefing**\
-`Coronavirus, France, Italy: Here’s what you need to know.`\
-https://nytimes.com/2020/03/16/briefing/coronavirus-france-italy.html?searchResultPosition=6
+**Argentina to Close Borders for Non-Residents to Combat Coronavirus**\
+`Argentina will close its borders for 15 days to non-residents in order to combat the spread of coronavirus, President Alberto Fernandez said on Sunday. `\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-argentina-border.html?searchResultPosition=6
 
-**Trump Calls on Americans to Cease Hoarding Food, Supplies**\
-`President Donald Trump is calling on people to stop hoarding groceries and other supplies as one of the nation's most senior public health officials urged Americans to act with more urgency to protect themselves and others against the coronavirus.`\
-https://nytimes.com/aponline/2020/03/16/us/politics/ap-us-virus-outbreak-washington-.html?searchResultPosition=7
+**Peace Corps Evacuating Volunteers Worldwide Amid Outbreak**\
+`The Peace Corps is telling its volunteers around the world that it is suspending all operations globally and evacuating all volunteers in light of the spread of the new coronavirus.`\
+https://nytimes.com/aponline/2020/03/16/us/politics/ap-us-virus-outbreak-peace-corps.html?searchResultPosition=7
 
-**AP FACT CHECK: Trump, Dems and Politics of the Pandemic**\
-`Americans normally hear from President Donald Trump when he is opining on Twitter, riffing from a rally stage or otherwise improvising. This past week was different as he sat in the Oval Office with a script laid out for him to read on a matter grave enough for a prime-time address to the nation.`\
-https://nytimes.com/aponline/2020/03/16/us/politics/ap-us-fact-check-week.html?searchResultPosition=8
+**This Week: Retail Sales, Fed Policy Update, Tiffany Earns**\
+`A look at some of the key business events and economic indicators upcoming this week:`\
+https://nytimes.com/aponline/2020/03/16/business/ap-this-week-in-business.html?searchResultPosition=8
 
-**Markets Unsteady as Fed Signals Urgency: Live Updates**\
-`Asian markets are mixed as investors try to parse the response to the global economic threat.`\
-https://nytimes.com/2020/03/16/business/stock-market-today-coronavirus.html?searchResultPosition=9
+**Turkey Reports 12 New Coronavirus Cases in Largest Daily Rise, Brings Total to 18**\
+`Turkey identified 12 new cases of the coronavirus, bringing its total to 18, Health Minister Fahrettin Koca said on Monday, marking the highest daily rise since the country announced its first case last week.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-turkey.html?searchResultPosition=9
 
-**Venezuela Orders 'Social Quarantine' in Response to Coronavirus**\
-`Venezuelan President Nicolas Maduro on Sunday ordered businesses to close and citizens to remain in their homes in a "social quarantine" affecting six states and the capital, Caracas, starting on Monday to slow the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/16/world/americas/16reuters-health-coronavirus-venezuela.html?searchResultPosition=10
+**South Korea Reports 74 New Coronavirus Infections**\
+`South Korea reported 74 new coronavirus infections on Monday, slightly lower than the previous day, health officials said, taking the tally of cases to 8,236, with 75 deaths.`\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-southkorea-cases-tolls.html?searchResultPosition=10
 
