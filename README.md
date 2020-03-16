@@ -1,28 +1,28 @@
+**Markets Unsteady as Fed Signals Urgency: Live Updates**\
+`Asian markets are mixed as investors try to parse the response to the global economic threat.`\
+https://nytimes.com/2020/03/16/business/stock-market-today-coronavirus.html?searchResultPosition=4
+
+**Venezuela Orders 'Social Quarantine' in Response to Coronavirus**\
+`Venezuelan President Nicolas Maduro on Sunday ordered businesses to close and citizens to remain in their homes in a "social quarantine" affecting six states and the capital, Caracas, starting on Monday to slow the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/16/world/americas/16reuters-health-coronavirus-venezuela.html?searchResultPosition=5
+
+**Australian Casino Operators Separate Gamers to Beat Coronavirus**\
+`Crown Resorts and competitor Star Entertainment Group are introducing "social distancing" at their Australian casinos in response to the coronavirus epidemic.`\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-australia-crown-resorts.html?searchResultPosition=6
+
+**Stocks Crumble, Unconvinced as Fed and Peers Attempt Radical Rescue**\
+`Stock markets and the dollar were roiled on Monday after the Federal Reserve slashed interest rates in an emergency move and its major peers offered cheap U.S. dollars to ease a ruinous logjam in global lending markets.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-global-markets.html?searchResultPosition=7
+
+**New York City, Los Angeles Mayors Order Restaurants, Bars, Theaters Closed for Coronavirus**\
+`The mayors of New York City and Los Angeles, the two largest cities in the United States, on Sunday said they were ordering restaurants, theaters, bars and movie houses closed in an effort to slow the spread of the coronavirus. `\
+https://nytimes.com/reuters/2020/03/16/arts/16reuters-health-coronavirus-nyc.html?searchResultPosition=8
+
+**Vietnam's Coronavirus Cases Rise to 57: Health Ministry**\
+`Vietnam has confirmed four more cases of coronavirus, all among foreign nationals, its health ministry said on Sunday, bringing its total number of cases to 57.     `\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-vietnam-cases.html?searchResultPosition=9
+
 **Results or Revolution? Biden, Sanders Present Dueling Visions While Blasting Trump's Coronavirus Response**\
 `Joe Biden and Bernie Sanders blasted President Donald Trump's handling of the coronavirus outbreak during Sunday's Democratic debate, and offered competing visions for how they would lead in a time of crisis that has upended the daily lives of Americans.`\
-https://nytimes.com/reuters/2020/03/16/us/politics/16reuters-usa-election.html?searchResultPosition=4
-
-**Airlines Slash Schedules, Jobs and Pay After New Travel Restrictions**\
-`Airlines around the world announced they would make more drastic reductions to their flying schedules, cut jobs and seek government aid after countries further tightened border restrictions due to the fast spreading coronavirus.`\
-https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-airlines.html?searchResultPosition=5
-
-**Fed Cuts Rates to Buffer Economy From Coronavirus**\
-`The Federal Reserve cut interest rates on Sunday for the second time in less than two weeks, an emergency move to help shore up the U.S. economy as a coronavirus pandemic spreads worldwide.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-fed-reserve-instant-view.html?searchResultPosition=6
-
-**Trump Congratulates Fed for Rates Cut, Calls Action 'Terrific'**\
-`U.S. President Donald Trump said the Federal Reserve's decision on Sunday to cut interest rates was "good news" and "makes me very happy" as he congratulated the central bank for taking further action aimed at helping shore up the U.S. economy amid the global coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-central-banks-trump.html?searchResultPosition=7
-
-**China January-February Aluminum Output Rises 2.4% Year-On-Year Despite Demand Hit From Coronavirus**\
-`China's aluminum production rose by 2.4% year-on-year in the first two months of 2020, official data showed on Monday, as smelting capacity commissioned late last year took supply higher despite a big hit to demand from the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-china-economy-output-aluminium.html?searchResultPosition=8
-
-**China's Economy Skids as Virus Paralyses Factories, Households**\
-`China's factory production plunged at the sharpest pace in 30 years in the first two months of the year as the fast-spreading coronavirus and strict containment measures severely disrupted the world's second-largest economy.`\
-https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-china-economy-activity.html?searchResultPosition=9
-
-**Factbox: Latest on the Spread of Coronavirus Around the World**\
-`France and Spain joined Italy in imposing lockdowns on tens of millions of people, Australia ordered self-isolation of arriving foreigners and other countries extended entry bans as the world sought to contain the spreading coronavirus.`\
-https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-latest-factbox.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/16/us/politics/16reuters-usa-election.html?searchResultPosition=10
 
