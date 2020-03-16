@@ -1,12 +1,12 @@
-**Hedge Fund Bridgewater Places $15 Billion in Bets Against Europe and UK**\
-`Hedge fund behemoth Bridgewater has shown its hand in Europe with roughly $15 billion in bets against companies on the continent and in Great Britain, filings reviewed by Reuters show.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-europe-hedgefunds-bridgewater.html?searchResultPosition=8
+**Factbox: History of Extended New York Stock Exchange Market Closings**\
+`With state and local governments across the United States taking steps to contain the coronavirus spread, including requiring the closing of schools, restaurants and other meeting places, questions have begun to swirl on whether stock markets will shutter.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-usa-stocks-market-closings-factbox.html?searchResultPosition=8
 
-**After Trump Boasts About Rally, Wall Street Tanks Again**\
-`Less than 48 hours after U.S. President Donald Trump bragged about his soothing influence on the stock market, Wall Street tanked again. `\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-usa-stocks-trump.html?searchResultPosition=9
+**DC Closes Gyms, Theaters, Orders Takeout Only in Restaurants**\
+`Washington, D.C., is shutting down all movie theaters and gyms, and ordering restaurants and bars to serve only takeout, as the nation's capital continues to ramp up its social distancing measures to stem the spread of the coronavirus. `\
+https://nytimes.com/aponline/2020/03/16/us/politics/ap-us-virus-outbreak-nations-capital-.html?searchResultPosition=9
 
-**How Long Will the Coronavirus Outbreak and Shutdown Last?**\
-`Though President Trump mentioned July or August, the prevailing optimistic guess among experts for when the outbreak will abate hovers at about two months.`\
-https://nytimes.com/2020/03/16/health/coronavirus-shut-down.html?searchResultPosition=10
+**Exclusive: Shale Gas Pioneer Chesapeake Energy Taps Restructuring Advisers-Sources**\
+`Chesapeake Energy Corp, the oil and gas exploration and production company that helped spearhead the U.S. shale revolution, has tapped debt restructuring advisers amid a rout in energy prices, people familiar with the matter said on Monday.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-chesapeake-enrgy-restructuring-exclusive.html?searchResultPosition=10
 
