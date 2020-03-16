@@ -1,28 +1,28 @@
+**French Carmaker PSA Closes European Factories Due to Virus Spread**\
+`French carmaker PSA said on Monday the company will close its European factories until March 27 due to the coronavirus outbreak spread.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-france-psa.html?searchResultPosition=4
+
+**Bosnian Region Declares State of Disaster Over Coronavirus: PM**\
+`Bosnia's autonomous Bosniak-Croat Federation declared a state of disaster on Monday, which will enable it to introduce emergency measures to halt the spread of the coronavirus, the region's Prime Minister Fadil Novalic said.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-bosnia.html?searchResultPosition=5
+
+**Mexican President Ready to Take Coronavirus Test if Necessary**\
+`Mexican President Andres Manuel Lopez Obrador said on Monday he would take a coronavirus test if medical authorities instructed him to do so.`\
+https://nytimes.com/reuters/2020/03/16/world/americas/16reuters-health-coronavirus-mexico.html?searchResultPosition=6
+
+**Can Hot Weather Stop Coronavirus? SE Asia Surge Raises Doubts**\
+`A dramatic surge in coronavirus infections in Southeast Asia in recent days has increased doubts over a theory that warmer weather could stem the spread of the virus, health experts say.`\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-southeast-asia.html?searchResultPosition=7
+
+**EU Executive Warns Against Border Closures as Way to Curb Coronavirus**\
+`European Union countries must take care not to damage food and medicine supply lines as they slap on border restrictions in the drive to curb the spread of coronavirus, the EU's executive arm said on Monday. `\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-eu-borders.html?searchResultPosition=8
+
 **Stocks Nosedive on Wall Street, Triggering Trading Halt**\
 `By The Associated Press`\
-https://nytimes.com/aponline/2020/03/16/business/ap-financial-markets.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/03/16/business/ap-financial-markets.html?searchResultPosition=9
 
 **Police Investigate Fatal Shooting of 3-Year-Old Girl**\
 `A 3-year-old girl was fatally shot at a home in Louisville, Kentucky.`\
-https://nytimes.com/aponline/2020/03/16/us/ap-us-child-fatally-shot.html?searchResultPosition=5
-
-**Tunisian Land Border With Libya Closed: Minister**\
-`Tunisia's land border with Libya has been closed due to the coronavirus, Transport Minister Anouar Maarouf said on Monday. `\
-https://nytimes.com/reuters/2020/03/16/world/africa/16reuters-health-coronavirus-tunisia-libya.html?searchResultPosition=6
-
-**German Travel Tech Startups Hunker Down for 'Nuclear Winter'**\
-`Online travel startups based in Germany are hunkering down to survive a coronavirus pandemic that threatens to inflict a "nuclear winter" on the travel industry as bookings plunge and borders close.`\
-https://nytimes.com/reuters/2020/03/16/technology/16reuters-health-coronavirus-europe-travel.html?searchResultPosition=7
-
-**Dutch Coronavirus Infections Rises by 278 to 1,413, 24 Deaths**\
-`The number of confirmed coronavirus infections in the Netherlands rose by 278 to 1,413, the National Institute for Public Health (RIVM) said on Monday. `\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coroavirus-netherlands-infections.html?searchResultPosition=8
-
-**Egypt to Halt Flights From Thursday to Halt Spread of Coronavirus**\
-`Egypt will halt all air traffic from its airports starting Thursday until March 31 to prevent the spread of coronavirus, Prime Minister Mostafa Madbouly said on Monday.`\
-https://nytimes.com/reuters/2020/03/16/world/middleeast/16reuters-health-coronavirus-egypt.html?searchResultPosition=9
-
-**Italian Government to Take Control of Alitalia: Draft Decree**\
-`The Italian government plans to take control of Alitalia, a draft decree seen by Reuters showed on Monday, as  the loss-making carrier risks going belly up due to the impact of the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-italy-alitalia-decree.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/16/us/ap-us-child-fatally-shot.html?searchResultPosition=10
 
