@@ -1,4 +1,4 @@
-**Experts Weigh In: How Did Biden and Sanders Do?**\
+**How Did Biden and Sanders Do in the Debate? Experts Weigh In**\
 `Here’s a sampling of the reactions to the first one-on-one debate between the two remaining major Democratic candidates.`\
 https://nytimes.com/2020/03/15/us/politics/who-won-democratic-debate.html?searchResultPosition=4
 
