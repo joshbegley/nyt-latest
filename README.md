@@ -1,12 +1,12 @@
-**San Francisco Counties to Order Three-Week 'Shelter in Place'-San Francisco Chronicle**\
-`Six San Francisco Bay Area counties were expected to order a 3-week "shelter in place" starting Tuesday, the San Francisco Chronicle reported on Monday.`\
-https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-usa-san-francisco.html?searchResultPosition=8
+**Poland's Environment Minister Tests Positive for Coronavirus**\
+`Poland's environment minister Michal Wos has tested positive for coronavirus, he said in a tweet on Monday. `\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-poland-minister.html?searchResultPosition=8
 
-**Italian Start-Up 3D Prints Valves to Help Coronavirus Patients**\
-`Italian Cristian Fracassi heard about the shortage of valves used in respirators at his local hospital by word of mouth.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-italy-valves.html?searchResultPosition=9
+**UK's Johnson Says Coronavirus Will Be 'Very Considerable Challenge' for Business**\
+`The spread of coronavirus will be a "very considerable challenge" for British businesses, and the government will do all it can to resolve cashflow shortfalls and help them recover, Prime Minister Boris Johnson said on Monday.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-britain-business.html?searchResultPosition=9
 
-**No Spying From Home in CIA's Coronavirus Plan**\
-`In the age of the coronavirus, working from home is no option for many employees of America's spy agencies.`\
-https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-cia.html?searchResultPosition=10
+**Chinese Company Abandons $1.8B Arkansas Paper Mill Plan**\
+`A Chinese company has abandoned its plan to build a massive paper mill in southwestern Arkansas that had already been delayed by trade tensions.`\
+https://nytimes.com/aponline/2020/03/16/business/ap-us-arkansas-paper-mill.html?searchResultPosition=10
 
