@@ -1,12 +1,12 @@
-**Stuck Home? Planets, Moon Providing Predawn Entertainment**\
-`Stuck at home this week? The planets and our moon are providing some early morning entertainment.`\
-https://nytimes.com/aponline/2020/03/16/science/ap-us-sci-planetary-lineup.html?searchResultPosition=8
+**U.S. Hospitals, Patients Cancel Elective Surgery as Coronavirus Spreads**\
+`U.`\
+https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-usa-surgery.html?searchResultPosition=8
 
-**Distilleries Using High-Proof Alcohol to Make Hand Sanitizer**\
-`A Pennsylvania distillery owner who grew increasingly angry as he saw the skyrocketing price of hand sanitizer has decided to do something about it: He’s temporarily converting his operation into a production line for the suddenly hard-to-find, gooey, alcohol-based disinfectant.`\
-https://nytimes.com/aponline/2020/03/16/business/ap-us-virus-outbreak-distilleries-hand-sanitizer.html?searchResultPosition=9
+**There Will Be 'Dramatic' Change in Coronavirus Spread if Americans Follow Guidelines-Official**\
+`There will be a "dramatic" change in the spread of coronavirus if Americans follow guidelines issued by the White House on Monday to fight virus, a member of the White House coronavirus task force said.`\
+https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-usa-birx.html?searchResultPosition=9
 
-**San Francisco Area Man Found Sane in Commuter Train Stabbing**\
-`A San Francisco area judge ruled Monday that a transient who fatally stabbed an 18-year-old woman at a commuter train platform was sane at the time he committed the July 2018 murder. `\
-https://nytimes.com/aponline/2020/03/16/us/ap-us-subway-stabbing.html?searchResultPosition=10
+**U.S. CDC Reports First Coronavirus Case Among Its Staff**\
+`The Centers for Disease Control and Prevention (CDC) said on Monday an employee has been tested positive for the coronavirus. `\
+https://nytimes.com/reuters/2020/03/16/us/16reuters-healthcare-coronavirus.html?searchResultPosition=10
 
