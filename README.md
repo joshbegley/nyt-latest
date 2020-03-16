@@ -1,12 +1,12 @@
+**How Social Distancing Works and What It Means for You**\
+`Can my kids go on a play date? Is it OK if I visit the gym?`\
+https://nytimes.com/aponline/2020/03/16/health/ap-us-med-virus-outbreak-social-distancing.html?searchResultPosition=8
+
+**Cuba Welcomes Cruise Ship With COVID-19, Others Seek Ports**\
+`A British cruise ship that was turned away from several Caribbean ports after passengers fell ill with novel coronavirus is scheduled to dock in Cuba Tuesday after the island agreed to help transfer those aboard to planes bound for the United Kingdom. `\
+https://nytimes.com/aponline/2020/03/16/world/americas/ap-cb-virus-outbreak-cruise-ships.html?searchResultPosition=9
+
 **Be Wary of Those Texts From a Friend of a Friend’s Aunt**\
 `Text messages claiming to have inside knowledge were the latest example of misinformation spreading amid anxiety about the coronavirus.`\
-https://nytimes.com/2020/03/16/us/coronavirus-text-messages-national-quarantine.html?searchResultPosition=8
-
-**Smart Speakers Can Go Beyond Music**\
-`Expand the ways you use your smart, internet-connected speakers to help everyone in your family get the most out of them each day.`\
-https://nytimes.com/2020/03/16/smarter-living/smart-speakers-can-go-beyond-music.html?searchResultPosition=9
-
-**Economic Fallout From Virus Felt in Gas Lines in Venezuela**\
-`Nicolás Maduro’s government on Monday banned gasoline sales in two states as part of a broader lock-down to stem panic buying by Venezuelans accustomed to hoarding basic goods whenever there’s a hint of turmoil.`\
-https://nytimes.com/aponline/2020/03/16/world/americas/ap-lt-virus-outbreak-venezuela.html?searchResultPosition=10
+https://nytimes.com/2020/03/16/us/coronavirus-text-messages-national-quarantine.html?searchResultPosition=10
 
