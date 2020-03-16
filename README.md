@@ -1,12 +1,12 @@
-**Doctors Fear Bringing Coronavirus Home: ‘I Am Sort of a Pariah in My Family’**\
-`One doctor dreamed he was surrounded by coughing patients. “Most physicians have never seen this level of angst and anxiety in their careers,” a veteran emergency room doctor said.`\
-https://nytimes.com/2020/03/16/us/coronavirus-doctors-nurses.html?searchResultPosition=8
+**Britain Stiffens Its Response to the Coronavirus, Somewhat**\
+`Prime Minister Boris Johnson urged Britons to stop going to pubs, clubs and restaurants, even as other European nations were closing their borders and issuing strict stay-at-home orders.`\
+https://nytimes.com/2020/03/16/world/europe/britain-coronavirus-boris-johnson.html?searchResultPosition=8
 
-**America’s Economy Begins to Shut Down as Pandemic Measures Take Hold**\
-`The fast-spreading virus has put an end to movies, date nights and other economic activity, prompting some economists to call a U.S. recession.`\
-https://nytimes.com/2020/03/16/business/economy/coronavirus-us-economy-shutdown.html?searchResultPosition=9
+**Coronavirus Briefing: What Happened Today**\
+`President Trump asked Americans to avoid gathering in groups of 10 or more for at least two weeks.`\
+https://nytimes.com/2020/03/16/world/coronavirus-today.html?searchResultPosition=9
 
-**Nevada Police Investigate Killing of Missing Teen Girl**\
-`Law enforcement in northeastern Nevada said Monday that they have found the body of a 16-year-old girl who went missing, and she appears to be the victim of a homicide.`\
-https://nytimes.com/aponline/2020/03/16/us/ap-us-missing-girl-killed.html?searchResultPosition=10
+**Vittorio Gregotti, Modernist Italian Architect, Dies at 92**\
+`With works like Barcelona’s Olympic Stadium, he combined a respect for older traditions with bold expressions of the new. He died in the coronavirus pandemic.`\
+https://nytimes.com/2020/03/16/arts/vittorio-gregotti-dies.html?searchResultPosition=10
 
