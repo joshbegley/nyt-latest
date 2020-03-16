@@ -1,12 +1,12 @@
-**White House Challenges AI Researchers to Tackle Coronavirus Questions**\
-`The White House's Office of Science and Technology Policy on Monday challenged researchers to use artificial intelligence techniques to analyze about 29,000 scholarly articles to answer key questions about the coronavirus. `\
-https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-tech-research.html?searchResultPosition=8
+**Zimbabwe Shuts Down Main Source of Hard Currency as Local Dollar Crumbles**\
+`Zimbabwe has suspended the transfer of local shares in dual-listed companies to foreign bourses, one of the main ways citizens and businesses have been able to obtain dollars as inflation wipes out the local currency.`\
+https://nytimes.com/reuters/2020/03/16/world/africa/16reuters-zimbabwe-shares.html?searchResultPosition=8
 
-**U.S. Senator Schumer Wants at Least $750 Billion to Combat Coronavirus, Help Economy**\
-`U.S. Senate Democratic leader Chuck Schumer will propose legislation totaling at least $750 billion to combat the coronavirus outbreak and help the economy, his office said in a statement on Monday. He will present the package as early as Tuesday, the statement said.`\
-https://nytimes.com/reuters/2020/03/16/us/politics/16reuters-health-coronavirus-usa-schumer.html?searchResultPosition=9
+**Bank of England Says Will Offer New U.S. Dollar Funds From Wednesday**\
+`The Bank of England said it will offer 12-week U.S. dollar funds starting on Wednesday, part of a move by six of the world's major central banks to ease strains in global markets and maintain liquidity through the coronavirus crisis. `\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-britain-boe-dollars.html?searchResultPosition=9
 
-**USAID Chief to Step Down, Even as U.S. Struggles With Global Pandemic**\
-`The head of the U.S. Agency for International Development (USAID), Mark Green, is to step down from the main U.S. organization for humanitarian assistance, even as the Trump administration struggles to deal with the global coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/16/us/16reuters-usa-aid-green.html?searchResultPosition=10
+**Italian Daily Coronavirus Deaths Jump 19% to 2,158**\
+`The death toll from an outbreak of coronavirus in Italy has risen in the last 24 hours by 349 to 2,158, an increase of 19.3%, the Civil Protection Agency said on Monday.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-italy-tally.html?searchResultPosition=10
 
