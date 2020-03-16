@@ -1,12 +1,12 @@
-**Israel Adds Another $1.3 Billion to Help Economy Deal With Coronavirus**\
-`Israeli Finance Minister Moshe Kahlon on Monday said the government will expand its aid package to help businesses hurt by the coronavirus crisis by another 5 billion shekels ($1.3 billion).`\
-https://nytimes.com/reuters/2020/03/16/world/middleeast/16reuters-health-coronavirus-israel-aid.html?searchResultPosition=8
+**Buy 'Ice Cream Vouchers, Not Toilet Paper' to Tide Over Coronavirus**\
+`A German artisanal ice cream parlor is asking customers to buy coupons, instead of hoarding toilet paper, to help keep it afloat as the government shut most businesses during the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-germany-ice-cream.html?searchResultPosition=8
 
-**'Clean Enclave': U.S. General in Isolation as Military Grapples With Coronavirus**\
-`U.S. Lieutenant General Christopher Cavoli, the Army's top general in Europe, said his Italian and Polish counterparts showed no signs of the coronavirus when they met at a conference in Germany just over a week ago.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-usa-pentagon.html?searchResultPosition=9
+**The U.S. Economy Can’t Withstand the Coronavirus by Itself**\
+`An economist responds to readers’ questions about the effect of the coronavirus on the global economy.`\
+https://nytimes.com/2020/03/16/opinion/the-us-economy-cant-withstand-the-coronavirus-by-itself.html?searchResultPosition=9
 
-**Sweden's Getinge to Deliver 500 Ventilators to Italy as Demand Rockets**\
-`Swedish medical equipment group Getinge will deliver 500 ventilators to Italy, its chief executive told Reuters on Monday, as a growing number of countries rush to buy the machines to treat people worst hit by the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-getinge-ventilators.html?searchResultPosition=10
+**ECB's Lagarde Ready to Do What Needed to Protect Euro Zone: Italy Finance Minister**\
+`The head of the European Central Bank, Christine Lagarde, told euro-zone finance ministers on Monday that she was ready to do everything necessary to avoid the break-up of the euro zone, Italy's finance minister said.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-ecb.html?searchResultPosition=10
 
