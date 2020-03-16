@@ -1,28 +1,28 @@
-**10 Things to Know for Today**\
-`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today:`\
-https://nytimes.com/aponline/2020/03/16/us/ap-10-things-to-know-today.html?searchResultPosition=4
+**Japan's Finance Minister Aso Asks Banks to Support Business Lending**\
+`Japanese Finance Minister Taro Aso said he had asked bank leaders on Monday to support lending to businesses to ease concerns over the economic impact of the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-healt-coronavirus-aso-banks.html?searchResultPosition=4
 
-**The Latest: Olympic Flame Handover Ceremony to Be Closed**\
-`The Latest on the coronavirus outbreak's effect on sports around the world (all times local):`\
-https://nytimes.com/aponline/2020/03/16/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=5
+**Wall Street Set to Crash Again After Fed Slashes Rates**\
+`Wall Street looked set to crater on Monday as fears of a coronavirus-driven recession intensified following a second emergency interest rate cut in a fortnight by the Federal Reserve.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-usa-stocks.html?searchResultPosition=5
 
-**Why This Recession Will Be Different**\
-`The coronavirus presents an unprecedented disruption to the global supply chain — and global markets.`\
-https://nytimes.com/2020/03/16/podcasts/the-daily/coronavirus-recession.html?searchResultPosition=6
+**Major Airline Alliances Call on Governments for Support Due to Coronavirus**\
+`The three major airline alliances — Star, SkyTeam and oneworld — on Monday jointly called on governments and stakeholders to extend extraordinary support to airlines to alleviate pressure caused by the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-airlines-alliances.html?searchResultPosition=6
 
-**Anti-Doping Body Ready to Look Into Allegations About Fury**\
-`Britain’s anti-doping body is expected to look into allegations in a newspaper report in which a farmer said he was offered money to provide an alibi in support of Tyson Fury for a case involving the world heavyweight champion.`\
-https://nytimes.com/aponline/2020/03/16/sports/ap-box-fury-doping-allegations.html?searchResultPosition=7
+**Israel Shekel Slides to 15-Month Low vs Dollar, Shares Sink**\
+`Israel's shekel <ILS=> slid another 2.5% versus the dollar on Monday to a 15-month low to bring losses to more than 8% so far this month, while share prices continued to tumble in Tel Aviv in the wake of the global coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/16/business/16reuters-israel-markets.html?searchResultPosition=7
 
-**UK Police Charge Another Man Over Vietnamese Truck Deaths**\
-`British police said on Monday they had charged another man as part of their investigation into the deaths of 39 Vietnamese migrants found dead in the back of a truck near London last year.`\
-https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-britain-bodies.html?searchResultPosition=8
+**Coronavirus Impact Will Last at Least to Third Quarter: German Economy Ministry**\
+`The German economy ministry said it no longer expected an economic upswing in the first quarter because of the impact of the coronavirus on growth, with the economy unlikely to stabilize before the third quarter at the earliest.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-health-coronavirus-germany-economy.html?searchResultPosition=8
 
-**BA-Owner Has Not Asked for State Aid: CEO**\
-`British Airways-owner IAG has not asked for state aid, said its CEO, as he detailed the group's response to the coronavirus crisis, including accelerating the retirement of some aircraft and possible cuts to 2021 capacity.`\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-health-coronavirus-iag-ceo.html?searchResultPosition=9
+**ECB Ready for Further Action if Needed: Holzmann**\
+`If the European Central Bank sees the need for further stimulus in the area of government bonds to help countries tackle the coronavirus impact, it is ready to do so, European Central Bank policymaker Robert Holzmann said on Monday.`\
+https://nytimes.com/reuters/2020/03/16/world/europe/16reuters-ecb-austria-holzmann.html?searchResultPosition=9
 
-**Woods, Park Outside Olympic Qualifying as Tours Halt**\
-`No changes are planned to the Olympic golf qualifying system, the International Golf Federation (IGF) which runs the event said after the sport shut down due to the coronavirus.`\
-https://nytimes.com/reuters/2020/03/16/sports/golf/16reuters-olympics-golf.html?searchResultPosition=10
+**China Encourages Firms to Raise Pigs Overseas to Plug Domestic Pork Shortage**\
+`China said on Monday that it is encouraging companies to build pig farms overseas to plug a severe domestic pork shortage after a worse-than-ever African swine fever slashed almost half of its pig herd. `\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-china-swinefever-policy-pigfarming.html?searchResultPosition=10
 
