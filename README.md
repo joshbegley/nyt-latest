@@ -1,12 +1,12 @@
-**A Drop in TV Ratings for a Democratic Debate Praised for Its Substance**\
-`The Biden-Sanders matchup attracted 10.8 million viewers, down from prior forums in Nevada and South Carolina.`\
-https://nytimes.com/2020/03/16/business/media/cnn-debate-ratings-coronavirus.html?searchResultPosition=8
+**Brown Names Marini 1st Female Position Coach in Division I**\
+`Brown has promoted Heather Marini to quarterbacks coach, making her the first female position coach in Division I football. `\
+https://nytimes.com/aponline/2020/03/16/sports/ncaafootball/ap-fbc-brown-female-coach.html?searchResultPosition=8
 
-**COVID-19 Stay: Execution Halted for Man Who Killed Family**\
-`The outbreak of the novel coronavirus prompted the top Texas appeals court on Monday to stay for 60 days the scheduled execution of a man condemned for killing his family.`\
-https://nytimes.com/aponline/2020/03/16/us/ap-us-virus-outbreak-texas-execution.html?searchResultPosition=9
+**Judge: Cancellation of High Court Election Was Legal**\
+`Georgia's secretary of state legally canceled a scheduled May 19 election for a seat on the state's highest court, a judge ruled Monday, saying the governor can rightfully fill the post even though a judge who is resigning won't leave until November. `\
+https://nytimes.com/aponline/2020/03/16/us/ap-us-canceled-election-georgia.html?searchResultPosition=9
 
-**US Airport Security Officers Fear Exposure as Cases Rise**\
-`At least six Transportation Security Administration officers have tested positive for the new coronavirus and dozens were in self-quarantine Monday as the disease takes an increasing toll on an agency critical to safety of U.S. aviation.`\
-https://nytimes.com/aponline/2020/03/16/us/politics/ap-us-virus-outbreak-airport-screeners.html?searchResultPosition=10
+**Anna Wintour: Met Gala Postponed Due to the Virus Outbreak**\
+`One of fashion's biggest nights, the Met Gala, has been postponed due to the coronavirus outbreak, host Anna Wintour said Monday on Vogue's website.`\
+https://nytimes.com/aponline/2020/03/16/us/ap-us-virus-outbreak-met-gala-postponed.html?searchResultPosition=10
 
