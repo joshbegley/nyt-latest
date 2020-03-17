@@ -1,4 +1,4 @@
-**Lebanese Judge Orders Retrial of Lebanese-American**\
-`A Lebanese military judge Tuesday appealed a verdict by the military tribunal that ordered the release of a Lebanese-American held since September on charges of working for an Israeli-backed militia two decades ago, state-run National News Agency said.`\
-https://nytimes.com/aponline/2020/03/17/world/middleeast/ap-ml-lebanon-israel.html?searchResultPosition=10
+**'How Are We Going to Eat?' Virus Tests Europe's Social Nets**\
+`The morning rush-hour scene at Madrid’s Atocha train station this week perfectly captured the dilemma facing Europe as it confronts the coronavirus.`\
+https://nytimes.com/aponline/2020/03/17/business/bc-virus-outbreak-europes-social-nets.html?searchResultPosition=10
 
