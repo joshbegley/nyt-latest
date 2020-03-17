@@ -1,4 +1,4 @@
-**Venezuela's to Implement Nationwide Quarantine as Coronavirus Cases Rise to 33**\
-`Venezuela will implement a nationwide quarantine after detecting 16 new cases of the novel coronavirus on Monday, President Nicolas Maduro said, adding that the total number of cases in the South American country has risen to 33. `\
-https://nytimes.com/reuters/2020/03/16/world/americas/16reuters-health-coronavirus-venezuela-maduro.html?searchResultPosition=10
+**'Hundreds' of Inmates Escape Brazil Jails Ahead of Coronavirus Lockdown**\
+`Hundreds of prisoners broke out of four Brazilian jails on Monday, the day before their day-release privileges were due to be suspended over the coronavirus outbreak, Sao Paulo state prison authorities and local media reported. `\
+https://nytimes.com/reuters/2020/03/16/world/americas/16reuters-health-coronavirus-brazil-jails.html?searchResultPosition=10
 
