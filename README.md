@@ -1,4 +1,4 @@
-**Mexico Central Bank Staffer Tests Positive for Coronavirus**\
-`A high ranking member of staff of Mexico's central bank has tested positive for the coronavirus, after attending a convention last week that was also attended by the president, finance minister and hundreds of senior bankers.`\
-https://nytimes.com/reuters/2020/03/17/world/americas/17reuters-health-coronavirus-mexico-cenbank.html?searchResultPosition=10
+**China Has Series of Policy Tools to Stabilize Financial Market**\
+`China has a relatively big policy space and varied tools to stabilize its financial markets, its banking and insurance regulator said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/17/world/asia/17reuters-health-coronavirus-china-markets.html?searchResultPosition=10
 
