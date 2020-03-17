@@ -1,4 +1,4 @@
-**European Shares Attempt Recovery From 2012 Lows**\
-`European shares rose on Tuesday, following a sharp sell-off in the previous session triggered by panic over the hold that the coronavirus has over Europe and the resulting damage to business activity and company finances globally.`\
-https://nytimes.com/reuters/2020/03/17/world/europe/17reuters-europe-stocks.html?searchResultPosition=10
+**Germany Sets Aside 50 Million Euros to Repatriate Stranded Tourists**\
+`Germany is making 50 million euros ($55.66 million) available to repatriate German tourists stranded around the world by the coronavirus-induced collapse in air transport, Foreign Minister Heiko Maas told a news conference on Tuesday.`\
+https://nytimes.com/reuters/2020/03/17/world/17reuters-health-coronavirus-germany-repatriation.html?searchResultPosition=10
 
