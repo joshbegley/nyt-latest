@@ -1,4 +1,4 @@
-**Tom Hanks and Rita Wilson Reportedly Released From Hospital**\
-`Tom Hanks and his wife, Rita Wilson, were released from an Australian hospital on Tuesday, five days after they were diagnosed with the new coronavirus, media reported.`\
-https://nytimes.com/aponline/2020/03/17/world/asia/ap-as-virus-outbreak-tom-hanks.html?searchResultPosition=10
+**Pfizer, BioNTech to Co-Develop Potential Coronavirus Vaccine**\
+`U.S. drugmaker Pfizer Inc has signed a deal with Germany's BioNTech SE to co-develop a potential vaccine for the coronavirus using BioNTech's mRNA-based drug development platform, the companies said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/17/world/europe/17reuters-health-coronavirus-pfizer-biontech.html?searchResultPosition=10
 
