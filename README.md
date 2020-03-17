@@ -1,4 +1,4 @@
-**'Hundreds' of Inmates Escape Brazil Jails Ahead of Coronavirus Lockdown**\
-`Hundreds of prisoners broke out of four Brazilian jails on Monday, the day before their day-release privileges were due to be suspended over the coronavirus outbreak, Sao Paulo state prison authorities and local media reported. `\
-https://nytimes.com/reuters/2020/03/17/world/americas/17reuters-health-coronavirus-brazil-jails.html?searchResultPosition=10
+**On Politics: Somehow, There’s Still an Election**\
+`Ohio postponed voting, but three other states are forging ahead: This is your morning tip sheet.`\
+https://nytimes.com/2020/03/17/us/politics/primaries-biden-sanders.html?searchResultPosition=10
 
