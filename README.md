@@ -1,4 +1,4 @@
-**China Says Trump's 'Chinese Virus' Tweet Smears China**\
-`China's foreign ministry said on Tuesday that U.S. President Donald Trump's tweet calling the coronavirus a "Chinese virus" smears China and said Beijing strongly opposes Trump's usage of the words. `\
-https://nytimes.com/reuters/2020/03/17/us/politics/17reuters-health-coronavirus-china-trump.html?searchResultPosition=10
+**Iran Has Temporarily Freed 85,000 Prisoners, Including Political Ones, Amid Coronavirus**\
+`Iran has temporarily freed about 85,000 prisoners, including political prisoners, a spokesman for its judiciary said on Tuesday, in response to the coronavirus epidemic. `\
+https://nytimes.com/reuters/2020/03/17/world/middleeast/17reuters-health-coronavirus-iran-prisoners.html?searchResultPosition=10
 
