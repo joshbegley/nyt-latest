@@ -1,4 +1,4 @@
-**Six-Time Super Bowl Champion Tom Brady Leaving Patriots**\
-`Tom Brady is an NFL free agent for the first time in his career. `\
-https://nytimes.com/aponline/2020/03/17/sports/football/ap-fbn-patriots-brady-leaving.html?searchResultPosition=10
+**Lebanese Judge Orders Retrial of Lebanese-American**\
+`A Lebanese military judge Tuesday appealed a verdict by the military tribunal that ordered the release of a Lebanese-American held since September on charges of working for an Israeli-backed militia two decades ago, state-run National News Agency said.`\
+https://nytimes.com/aponline/2020/03/17/world/middleeast/ap-ml-lebanon-israel.html?searchResultPosition=10
 
