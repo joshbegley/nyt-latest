@@ -1,4 +1,4 @@
-**AP Source: Bills to Land WR Diggs in Trade With Vikings**\
-`The Buffalo Bills are set to acquire wide receiver Stefon Diggs in a trade with the Minnesota Vikings, a person with direct knowledge of the move confirmed to The Associated Press on Monday night. `\
-https://nytimes.com/aponline/2020/03/16/sports/football/ap-fbn-bills-vikings-trade.html?searchResultPosition=10
+**5 Republicans Vying for Long-Shot Chance to Unseat Durbin**\
+`Five Republicans are vying for the chance to mount a long-shot challenge to U.S. Sen. Dick Durbin in the sole statewide race on Tuesday's primary ballot. `\
+https://nytimes.com/aponline/2020/03/16/us/ap-us-election-2020-senate-illinois.html?searchResultPosition=10
 
