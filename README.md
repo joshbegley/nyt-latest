@@ -1,4 +1,4 @@
-**MH17 Trial to Resume With No Public Due to Virus Measures**\
-`The murder trial of three Russians and a Ukrainian accused of involvement in the 2014 downing of Malaysia Airlines Flight 17 will be closed to the public and media when it briefly resumes later this month in a Dutch courtroom.`\
-https://nytimes.com/aponline/2020/03/17/world/europe/ap-eu-virus-outbreak-mh17-trial.html?searchResultPosition=10
+**Yusef Salaam Working on Novel About Wrongful Imprisonment**\
+`One of the former “Central Park Five” is teaming with an acclaimed children's author on a young adult novel with a personal theme — being wrongfully sentenced to prison. `\
+https://nytimes.com/aponline/2020/03/17/us/ap-us-books-yusef-salaam-.html?searchResultPosition=10
 
