@@ -1,4 +1,4 @@
-**Global Economic Policy Response to Virus Needed: Singapore Minister**\
-`A coordinated global monetary and fiscal policy response is needed to the coronavirus outbreak, the minister heading Singapore's virus-fighting taskforce said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/17/world/asia/17reuters-health-coronavirus-singapore.html?searchResultPosition=10
+**2020 Democratic Primary in Arizona, Florida and Illinois: What to Watch For**\
+`Confusion surrounded Ohio’s election, which was also scheduled for Tuesday before the governor moved to push it back over worries about the coronavirus outbreak.`\
+https://nytimes.com/2020/03/17/us/politics/march-17-democratic-primary.html?searchResultPosition=10
 
