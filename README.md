@@ -1,4 +1,4 @@
-**Government Issues Historic Restrictions Amid Virus Outbreak**\
-`The United States implemented dramatic new restrictions on Americans going out in public and 7 million people in the San Francisco area were put on a near-total lockdown to control the coronavirus emergency that has walloped the global economy.`\
-https://nytimes.com/aponline/2020/03/17/us/ap-us-virus-outbreak-us.html?searchResultPosition=10
+**'Virus at Iran's Gates': How Tehran Failed to Stop Outbreak**\
+`Appearing before the cameras coughing and sweating profusely, the man leading Iran's response to the new coronavirus outbreak promised it was of no danger to his country. `\
+https://nytimes.com/aponline/2020/03/17/world/middleeast/ap-ml-virus-outbreak-iran-days-of-denial.html?searchResultPosition=10
 
