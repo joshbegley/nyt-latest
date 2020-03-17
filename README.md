@@ -1,4 +1,4 @@
-**France Could Nationalize Big Companies if Necessary: Finance Minister**\
-`The French government is prepared to use all means to support big companies suffering in financial market turmoil, including nationalization if necessary, the finance minister said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/17/business/17reuters-health-coronavirus-france-nationalistion.html?searchResultPosition=10
+**Mexico Central Bank Staffer Tests Positive for Coronavirus**\
+`A high ranking member of staff of Mexico's central bank has tested positive for the coronavirus, after attending a convention last week that was also attended by the president, finance minister and hundreds of senior bankers.`\
+https://nytimes.com/reuters/2020/03/17/world/americas/17reuters-health-coronavirus-mexico-cenbank.html?searchResultPosition=10
 
