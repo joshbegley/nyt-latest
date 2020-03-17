@@ -1,4 +1,4 @@
-**Report: Kentucky Derby to Be Postponed Until September**\
-`The Kentucky Derby is being postponed from May to September because of growing concern about the coronavirus pandemic, according to a published report.`\
-https://nytimes.com/aponline/2020/03/17/sports/ap-rac-kentucky-derby-postponed.html?searchResultPosition=10
+**A Somber Trump Urges Americans to Follow Virus Guidelines**\
+`Racing to stall an expected surge of coronavirus cases, the White House released a series of sweeping guidelines that for the next 15 days will temporarily rewrite the norms of American society.`\
+https://nytimes.com/aponline/2020/03/17/us/politics/ap-us-virus-outbreak-washington.html?searchResultPosition=10
 
