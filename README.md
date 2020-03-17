@@ -1,4 +1,4 @@
-**Nordstrom to Shutter All Its Stores to Limit Virus Spread**\
-`Nordstrom Inc. says it will temporarily close all of its stores for two weeks starting Tuesday as it tries to limit the spread of the new virus. `\
-https://nytimes.com/aponline/2020/03/16/business/ap-us-virus-outbreak-nordstrom.html?searchResultPosition=10
+**Trump’s Call With Governors on the Coronavirus**\
+`President Trump held a call with governors on Monday about the response to the coronavirus, discussing work on a vaccine, the impact on the economy and more.`\
+https://nytimes.com/video/us/100000007037792/trumps-coronavirus.html?searchResultPosition=10
 
