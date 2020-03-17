@@ -1,4 +1,4 @@
-**EU Battles to Forge Common Front as Virus Eats at Unity**\
-`European Union leaders are set to hold their second summit in two weeks on Tuesday, a fresh attempt to forge a joint response to the novel coronavirus as Europe takes over from China as the front-line in the fight against a disease claiming thousands of lives.`\
-https://nytimes.com/aponline/2020/03/17/world/europe/ap-eu-virus-outbreak-europe.html?searchResultPosition=10
+**Lesson of the Day: ‘Procrastinate Much? Manage Your Emotions, Not Your Time.’**\
+`In this lesson, students will learn the real reasons we avoid work and strategies for overcoming them.`\
+https://nytimes.com/2020/03/17/learning/lesson-of-the-day-procrastinate-much-manage-your-emotions-not-your-time.html?searchResultPosition=10
 
