@@ -1,4 +1,4 @@
-**Yusef Salaam Working on Novel About Wrongful Imprisonment**\
-`One of the former “Central Park Five” is teaming with an acclaimed children's author on a young adult novel with a personal theme — being wrongfully sentenced to prison. `\
-https://nytimes.com/aponline/2020/03/17/us/ap-us-books-yusef-salaam-.html?searchResultPosition=10
+**Fiat Chrysler's Only Open Italian Plant Running at Reduced Capacity**\
+`Fiat Chrysler(FCA) has resumed limited production at its Atessa facility in Italy, the automaker's only open assembly plant, having halted operations at most of its European factories, a spokesman said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/17/business/17reuters-health-coronavirus-italy-fiat-chrysler.html?searchResultPosition=10
 
