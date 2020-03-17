@@ -1,4 +1,4 @@
-**Japan Government Nominates Hitachi Executive Nakamura to Join BOJ Board**\
-`The Japanese government on Tuesday nominated Toyoaki Nakamura, a Hitachi Ltd executive, to join the Bank of Japan's nine-member policy board.`\
-https://nytimes.com/reuters/2020/03/17/world/asia/16reuters-japan-economy-boj-nomination.html?searchResultPosition=10
+**Oil Plunge Sets Off Search for Tanks, Revives Dormant Cushing Storage Trade**\
+`Rates to store oil at one of the world's biggest trading hubs are surging, as traders globally scramble to secure space in tanks to cope with slumping demand from the coronavirus outbreak and a flood of supply from the Saudi-Russia price war.    `\
+https://nytimes.com/reuters/2020/03/17/us/17reuters-global-oil-storage.html?searchResultPosition=10
 
