@@ -1,4 +1,4 @@
-**Dutch MH17 Trial to Continue Behind Closed Doors Due to Coronavirus**\
-`The trial in the Netherlands of four men accused of murder over the 2014 downing of Malaysia Airlines Flight 17 will continue behind closed doors later this month due to the coronavirus outbreak, the court said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/17/world/europe/17reuters-ukraine-crisis-mh17-coronavirus.html?searchResultPosition=10
+**Volkswagen Starts Shutting Down Production in Europe in Face of Coronavirus**\
+`Volkswagen Group will suspend production this week at plants in Italy, Portugal, Slovakia and Spain and is preparing to shut down the rest of its factories across Europe due to the spread of coronavirus, its CEO said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/17/business/17reuters-volkswagen-results-2019.html?searchResultPosition=10
 
