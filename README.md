@@ -1,4 +1,4 @@
-**Iraqi City's Ex-Governor Named Prime Minister-Designate**\
-`Iraq's president on Tuesday named a former governor of the city of Najaf as prime minister-designate, following weeks of political infighting and a looming crisis amid a global pandemic. `\
-https://nytimes.com/aponline/2020/03/17/world/middleeast/ap-ml-iraq-politics.html?searchResultPosition=10
+**The Latest: Diamond League Calls Off First 3 Meets of Season**\
+`The Latest on the coronavirus outbreak's effect on sports around the world (all times local):`\
+https://nytimes.com/aponline/2020/03/17/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=10
 
