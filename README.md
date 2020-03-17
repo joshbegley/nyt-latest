@@ -1,4 +1,4 @@
-**Volkswagen to Close Europe Plants for Two Weeks**\
-`Volkswagen said Tuesday it would close most of its European plants for two weeks due to uncertainty about demand for cars and supplies of parts amid the virus outbreak.`\
-https://nytimes.com/aponline/2020/03/17/business/bc-virus-outbreak-volkswagen.html?searchResultPosition=10
+**China's Shandong Province to Quarantine All Overseas Arrivals-Xinhua**\
+`China's Shandong province will require all overseas arrivals to be quarantined in designated locations or residences for 14 days, the official Xinhua news agency said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/17/world/asia/17reuters-health-coronavirus-china-shandong.html?searchResultPosition=10
 
