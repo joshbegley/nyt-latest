@@ -1,4 +1,4 @@
-**What's Happening: Borders Shut, Reality Dose for Big Brother**\
-`Borders have slammed shut, schools and businesses have closed and increasingly draconian restrictions on movement have been enforced to slow the spread of the new coronavirus.`\
-https://nytimes.com/aponline/2020/03/17/us/ap-virus-outbreak-whats-happening.html?searchResultPosition=10
+**Lufthansa Preparing 'Air Bridge' to Supply Germany Through Epidemic**\
+`Germany's largest airline, Lufthansa, is working with the government to prepare an "air bridge" to ensure that necessary goods would continue to arrive in Germany during the coronavirus epidemic, the airline's boss said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/17/business/17reuters-health-coronavirus-germany-air-bridge.html?searchResultPosition=10
 
