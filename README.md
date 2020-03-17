@@ -1,4 +1,4 @@
-**Hyundai Motor's China Plant Sales in February Fall 97% From a Year Ago**\
-`Hyundai Motor's China domestic plant sales in February was 1,007 vehicles, company data showed on Tuesday, down 97% from 38,017 vehicles a year ago. `\
-https://nytimes.com/reuters/2020/03/16/business/16reuters-hyundai-motor-china.html?searchResultPosition=10
+**Federal Prosecutors Ordered to Probe Fraudsters Exploiting Coronavirus Fears**\
+`U.S. Attorney General William Barr directed federal prosecutors on Monday to pursue fraudsters seeking to exploit peoples' fears of the coronavirus pandemic by peddling fake cures or masquerading as government officials through phishing email schemes.`\
+https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-usa-fraud.html?searchResultPosition=10
 
