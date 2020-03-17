@@ -1,4 +1,4 @@
-**2020 Democratic Primary in Arizona, Florida and Illinois: What to Watch For**\
-`Confusion surrounded Ohio’s election, which was also scheduled for Tuesday before the governor moved to push it back over worries about the coronavirus outbreak.`\
-https://nytimes.com/2020/03/17/us/politics/march-17-democratic-primary.html?searchResultPosition=10
+**MH17 Trial to Resume With No Public Due to Virus Measures**\
+`The murder trial of three Russians and a Ukrainian accused of involvement in the 2014 downing of Malaysia Airlines Flight 17 will be closed to the public and media when it briefly resumes later this month in a Dutch courtroom.`\
+https://nytimes.com/aponline/2020/03/17/world/europe/ap-eu-virus-outbreak-mh17-trial.html?searchResultPosition=10
 
