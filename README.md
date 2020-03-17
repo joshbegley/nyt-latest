@@ -1,4 +1,4 @@
-**There Are More Important Things Than Golf, Says Tiger**\
-`American Tiger Woods sought to put the cancellations of a slew of golf tournaments due to the coronavirus into perspective on Monday, saying the well-being of others trumped the sport.     `\
-https://nytimes.com/reuters/2020/03/16/sports/golf/16reuters-health-coronavirus-golf-woods.html?searchResultPosition=10
+**U.S. Tech Firms Work Together to Combat Virus Misinformation**\
+`U.S. technology companies, including Microsoft Corp, Facebook, Alphabet's Google, and Twitter, are working together to quell misinformation about the coronavirus on their platforms, the companies said in a joint statement on Monday. `\
+https://nytimes.com/reuters/2020/03/16/technology/16reuters-health-coronavirus-usa-tech.html?searchResultPosition=10
 
