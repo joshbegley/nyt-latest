@@ -1,4 +1,4 @@
-**FDA Giving States Authority to Approve Own Coronavirus Tests, Official Says**\
-`The U.S. Food and Drug Administration on Monday took a step toward speeding the development of coronavirus test kits, agreeing a regulatory change to give states the ability to approve tests developed in laboratories in the states, an administration official said.`\
-https://nytimes.com/reuters/2020/03/16/us/16reuters-health-coronavirus-usa-fda.html?searchResultPosition=10
+**World Should Learn Lessons From China in Coronavirus Fight-China Daily**\
+`The rest of the world should learn from China and follow the principles of early detection, early quarantine and early treatment in order to halt the global spread of the coronavirus, the official China Daily said in an editorial on Tuesday.`\
+https://nytimes.com/reuters/2020/03/16/world/asia/16reuters-health-coronavirus-china-editorial.html?searchResultPosition=10
 
