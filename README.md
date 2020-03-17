@@ -1,4 +1,4 @@
-**The Latest: China's Wuhan Records Just 1 New Virus Case**\
-`The Latest on the coronavirus  pandemic, which has infected more than 182,000 people and killed more than 7,100.`\
-https://nytimes.com/aponline/2020/03/17/business/ap-virus-outbreak-the-latest.html?searchResultPosition=10
+**Your Tuesday Briefing**\
+`Coronavirus, France, Italy: Here’s what you need to know.`\
+https://nytimes.com/2020/03/17/briefing/coronavirus-france-italy.html?searchResultPosition=10
 
