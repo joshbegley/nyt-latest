@@ -1,4 +1,4 @@
-**Swiss National Bank Expected to Shun Interest Rate Cut: Reuters Poll**\
-`The Swiss National Bank will buck the central bank trend on Thursday and avoid cutting its interest rates, which are already deep in negative territory, to tackle the coronavirus pandemic, a Reuters poll found.`\
-https://nytimes.com/reuters/2020/03/17/world/europe/17reuters-snb-rates-poll.html?searchResultPosition=10
+**'Hundreds' of Inmates Escape Brazil Jails Ahead of Coronavirus Lockdown**\
+`Hundreds of prisoners broke out of four Brazilian jails on Monday, the day before their day-release privileges were due to be suspended over the coronavirus outbreak, Sao Paulo state prison authorities and local media reported. `\
+https://nytimes.com/reuters/2020/03/17/world/americas/17reuters-health-coronavirus-brazil-jails.html?searchResultPosition=10
 
