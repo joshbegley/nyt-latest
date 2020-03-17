@@ -1,4 +1,4 @@
-**On Politics: Somehow, There’s Still an Election**\
-`Ohio postponed voting, but three other states are forging ahead: This is your morning tip sheet.`\
-https://nytimes.com/2020/03/17/us/politics/primaries-biden-sanders.html?searchResultPosition=10
+**UEFA Begins Talks With Postponing Euro 2020 Likely**\
+`UEFA has begun a day of consultations with European soccer leaders with the postponement of the 2020 European Championship a possibility because of the coronavirus outbreak.`\
+https://nytimes.com/aponline/2020/03/17/sports/soccer/ap-soc-virus-outbreak-uefa-meeting.html?searchResultPosition=10
 
