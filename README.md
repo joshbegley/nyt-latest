@@ -1,5 +1,5 @@
-**Kim Foxx, Who Tried to Change the Chicago Prosecutor’s Office, Wins Primary**\
-`She is seen as a leading advocate of a new approach to criminal justice but faced intense criticism for her handling of the Jussie Smollett case.`\
+**Chicago’s Kim Foxx, Criticized Over the Jussie Smollett Case, Wins Primary**\
+`The city’s chief prosecutor is one of several district attorneys who have pledged to take a different approach to criminal justice.`\
 https://nytimes.com/2020/03/17/us/kim-foxx-chicago-prosecutor.html?searchResultPosition=1
 
 **Are Voters ‘Essential Personnel’ During a Pandemic?**\
