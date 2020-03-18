@@ -14,27 +14,27 @@ https://nytimes.com/interactive/2020/03/17/us/elections/exit-polls-arizona-prima
 ``\
 https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-17-primary-election.html?searchResultPosition=4
 
-**Arizona Election Results: Live Presidential Primary 2020**\
+**Florida Presidential Republican Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/03/17/us/elections/results-arizona-president-democrat-primary-election.html?searchResultPosition=5
-
-**Illinois Primary Election Results: 14th House District**\
-``\
-https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-14-primary-election.html?searchResultPosition=6
-
-**Illinois Democratic Primary Election Results: Eighth House District**\
-``\
-https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-8-democrat-primary-election.html?searchResultPosition=7
-
-**Results: The Most Detailed Map of the Florida Democratic Primary**\
-`By Charlie Smart, Denise Lu, Matthew Bloch, Ben Smithgall and Miles Watkins`\
-https://nytimes.com/interactive/2020/03/17/us/elections/precinct-map-florida-primary.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/03/17/us/elections/results-florida-president-republican-primary-election.html?searchResultPosition=5
 
 **Florida Polls: Who Different Groups Supported**\
 ``\
-https://nytimes.com/interactive/2020/03/17/us/elections/exit-polls-florida-primary.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/03/17/us/elections/exit-polls-florida-primary.html?searchResultPosition=6
 
-**Florida Presidential Republican Primary Election Results**\
+**Arizona Election Results: Live Presidential Primary 2020**\
 ``\
-https://nytimes.com/interactive/2020/03/17/us/elections/results-florida-president-republican-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/03/17/us/elections/results-arizona-president-democrat-primary-election.html?searchResultPosition=7
+
+**Illinois Primary Election Results: 14th House District**\
+``\
+https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-14-primary-election.html?searchResultPosition=8
+
+**Illinois Democratic Primary Election Results: Eighth House District**\
+``\
+https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-8-democrat-primary-election.html?searchResultPosition=9
+
+**Results: The Most Detailed Map of the Florida Democratic Primary**\
+`By Charlie Smart, Denise Lu, Matthew Bloch, Ben Smithgall and Miles Watkins`\
+https://nytimes.com/interactive/2020/03/17/us/elections/precinct-map-florida-primary.html?searchResultPosition=10
 
