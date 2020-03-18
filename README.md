@@ -1,5 +1,5 @@
 **Nevada to Close Casinos, Businesses and Ban Dining Out**\
-`Nevada's governor ordered a monthlong closure of casinos and other non-essential businesses like bars, movie theaters and gyms starting noon Wednesday and restaurants to shutter their dining rooms and only offer takeout or delivery in order to stem the spread of the new coronavirus. `\
+`Every gaming device in one of the world's gambling meccas must be turned off by Wednesday, Nevada's governor said in announcing a monthlong, statewide closure of non-essential businesses amid the outbreak of the new coronavirus. `\
 https://nytimes.com/aponline/2020/03/17/business/bc-us-virus-outbreak-nevada-5th-ld-writethru.html?searchResultPosition=1
 
 **Judge Hands Major Win to Katy Perry in 'Dark Horse' Dispute**\
@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2020/03/17/us/elections/exit-polls-arizona-prima
 ``\
 https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-17-primary-election.html?searchResultPosition=9
 
-**Arizona Election Results: Live Presidential Primary 2020**\
+**Florida Polls: Who Different Groups Supported**\
 ``\
-https://nytimes.com/interactive/2020/03/17/us/elections/results-arizona-president-democrat-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/03/17/us/elections/exit-polls-florida-primary.html?searchResultPosition=10
 
