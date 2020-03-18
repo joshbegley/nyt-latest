@@ -26,8 +26,8 @@ https://nytimes.com/aponline/2020/03/18/us/ap-10-things-to-know-today.html?searc
 `Even if we manage to defeat the coronavirus, that world will not return.`\
 https://nytimes.com/2020/03/18/opinion/coronavirus-life.html?searchResultPosition=7
 
-**Factbox: Global Oil, Gas Producers Slash Spending After Price Rout**\
-`Oil and gas companies around the world are planning to slash spending in the face of a plunge in oil prices caused by the spread of the coronavirus and a push by Saudi Arabia and Russia to flood the market with supply. [O/R]`\
+**Factbox: Global Oil, Gas Producers Slash Spending After Crude Price Rout**\
+`Oil and gas companies around the world aim to slash spending as crude prices have plunged due to the impact of the coronavirus and a push by Saudi Arabia and Russia ramp up output. [O/R]`\
 https://nytimes.com/reuters/2020/03/18/business/18reuters-global-oil-cuts-factbox.html?searchResultPosition=8
 
 **Mideast States Not Communicating Enough About Virus: WHO**\
