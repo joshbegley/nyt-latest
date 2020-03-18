@@ -14,13 +14,13 @@ https://nytimes.com/aponline/2020/03/18/business/ap-us-pixar-turing-prize-winner
 `Tires are of vital importance since they are the only part of the vehicle that makes contact with the road.`\
 https://nytimes.com/aponline/2020/03/18/business/ap-behind-the-wheel-check-your-tires.html?searchResultPosition=4
 
-**Gov. Andrew Cuomo: ‘It’s Making Sure We Live Through This.’**\
-`We sat down with the person in charge of New York State’s response to the coronavirus crisis.`\
-https://nytimes.com/2020/03/18/podcasts/the-daily/cuomo-new-york-coronavirus.html?searchResultPosition=5
-
 **Pixar Pioneers Win $1 Million Turing Award**\
 `Ed Catmull and Pat Hanrahan created computer techniques that remade animation, special effects, virtual reality and artificial intelligence.`\
-https://nytimes.com/2020/03/18/technology/pixar-pioneers-win-1-million-turing-award.html?searchResultPosition=6
+https://nytimes.com/2020/03/18/technology/pixar-pioneers-win-1-million-turing-award.html?searchResultPosition=5
+
+**Gov. Andrew Cuomo: ‘It’s Making Sure We Live Through This.’**\
+`We sat down with the person in charge of New York State’s response to the coronavirus crisis.`\
+https://nytimes.com/2020/03/18/podcasts/the-daily/cuomo-new-york-coronavirus.html?searchResultPosition=6
 
 **Who Made My Puzzle?**\
 `This month’s constructor spotlight shines on Alison Ohringer.`\
