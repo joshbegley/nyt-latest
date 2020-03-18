@@ -10,7 +10,7 @@ https://nytimes.com/aponline/2020/03/18/business/ap-virus-outbreak.html?searchRe
 `The Latest on the coronavirus pandemic's effect on sports around the world (all times local):`\
 https://nytimes.com/aponline/2020/03/18/sports/ap-sports-virus-outbreak-the-latest-1st-ld-writethru.html?searchResultPosition=3
 
-**With Tom Brady’s Future in Tow, N.F.L. Free Agency Is Set to Begin**\
+**With Tom Brady’s Future in Play, N.F.L. Free Agency Is Set to Begin**\
 `Travel restrictions are in place as teams look to bolster rosters through a market deep in quarterbacks, including the New England expatriate.`\
 https://nytimes.com/2020/03/18/sports/football/nfl-free-agency.html?searchResultPosition=4
 
