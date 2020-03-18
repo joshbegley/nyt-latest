@@ -1,40 +1,40 @@
+**Marie Newman on Her Big Victory: ‘You Have to Be in Alignment With Your District’**\
+`In a triumph for progressives, Ms. Newman defeated longtime Representative Dan Lipinski, a conservative Democrat, in an Illinois primary.`\
+https://nytimes.com/2020/03/18/us/politics/marie-newman-lipinski-illinois.html?searchResultPosition=1
+
+**Trump to Nominate Permanent Director for White House Budget Office**\
+`U.S. President Donald Trump intends to nominate the current acting director of the White House Office of Management and Budget, Russell Vought, to take the post on a permanent basis, the White House said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/18/us/politics/18reuters-usa-trump-omb.html?searchResultPosition=2
+
+**Your Money: A Coronavirus Emergency Plan for Paying Your Bills**\
+`Lives are on hold all over the world as we distance ourselves socially to contain the coronavirus, but bills still pile up. `\
+https://nytimes.com/reuters/2020/03/18/us/18reuters-health-coronavirus-consumercash.html?searchResultPosition=3
+
+**Coronavirus-Linked Recession to Hit Brazil, Mexico, Latin America This Year: Goldman Sachs**\
+`Economists at Goldman Sachs said on Wednesday they expect the Latin American economy, including its two biggest components Brazil and Mexico, to tip into recession this year, citing the economic, trade and financial damage from coronavirus.`\
+https://nytimes.com/reuters/2020/03/18/business/18reuters-latam-economy-goldman.html?searchResultPosition=4
+
+**How to Clean Your Home for Coronavirus**\
+`It takes only a few minutes, but cleaning high-traffic surfaces once a day can make a difference in preventing the spread of infection.`\
+https://nytimes.com/2020/03/18/world/clean-home-coronavirus.html?searchResultPosition=5
+
+**From Colbert to Shakespeare, the Show Must Go On(line)**\
+`Jimmy Kimmel is streaming nightly monologues from home, Willie Nelson and John Legend are playing music online, and Broadway stars like Idina Menzel are singing and chatting from their homes.`\
+https://nytimes.com/reuters/2020/03/18/arts/18reuters-health-coronavirus-entertainment.html?searchResultPosition=6
+
+**Portugal Clears Way for State of Emergency Over Coronavirus, Announces Aid Package**\
+`Portugal stepped up its fight against the rapidly spreading coronavirus outbreak on Wednesday, announcing a multi-billion euro stimulus package and clearing the way for declaring a state of emergency.`\
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-portugal-centeno.html?searchResultPosition=7
+
+**UAE Suspends Issuing Work Permits Starting Thursday Until Further Notice-WAM**\
+`The United Arab Emirates suspended issuing all types of work permits starting Thursday until further notice as a precautionary measure against coronavirus spread, state news agency (WAM) reported late on Wednesday.`\
+https://nytimes.com/reuters/2020/03/18/world/middleeast/18reuters-health-coronavirus-emirates-permits.html?searchResultPosition=8
+
+**U.S. Bank Regulator Approves Banking Charters for Square Inc and Nelnet Inc**\
+`The U.S. Federal Deposit Insurance Corporation on Wednesday approved separate applications by payment company Square Inc and student loan servicer Nelnet Inc to become banks under a special charter, the first time the agency has granted such licenses in over a decade.`\
+https://nytimes.com/reuters/2020/03/18/us/18reuters-usa-fdic-charters.html?searchResultPosition=9
+
 **Trump, Canada's Trudeau Agree on Importance of Maintaining Trade: White House**\
 `U.S. President Donald Trump spoke with Canadian Prime Minister Justin Trudeau on Wednesday and the two leaders agreed it was important to keep trade flowing despite travel restrictions put in place to combat the coronavirus, the White House said.`\
-https://nytimes.com/reuters/2020/03/18/world/americas/18reuters-health-coronavirus-usa-trudeau.html?searchResultPosition=1
-
-**Exclusive: India Mulls Up to $1.6 Billion Rescue Plan for Aviation Sector After Coronavirus-Sources**\
-`India is planning a rescue package worth as much as $1.6 billion for the aviation sector, which has been battered after the coronavirus outbreak forced countries to close borders and brought air travel to a near-halt, two government sources told Reuters.`\
-https://nytimes.com/reuters/2020/03/18/world/asia/18reuters-health-coronavirus-india-airlines-exclusive.html?searchResultPosition=2
-
-**Colleges Offering Dorms as Hospital Overflow for Virus Cases**\
-`A growing number of U.S. colleges are preparing to turn empty dorms into temporary housing for patients with the coronavirus as the nation’s hospitals brace for a possible surge of cases that could push treatment centers beyond their limits.`\
-https://nytimes.com/aponline/2020/03/18/us/politics/ap-us-virus-outbreak-dorms-as-hospitals.html?searchResultPosition=3
-
-**House Lawmaker Calls for Freezing Consumer and Business Credit Payments**\
-`All payments on mortgages, credit cards, small-business loans and other consumer debt would be indefinitely suspended under a plan unveiled on Wednesday by a senior Democratic House lawmaker in response to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/18/us/18reuters-health-coronavirus-waters.html?searchResultPosition=4
-
-**Congress Sends Trump Multibillion-Dollar Coronavirus Aid Bill**\
-`The U.S. Senate on Wednesday passed legislation providing more than $100 billion to confront the growing coronavirus outbreak by financing free testing for the virus, expanded paid sick leave, additional food aid and other urgently needed steps.`\
-https://nytimes.com/reuters/2020/03/18/us/politics/18reuters-health-coronavirus-usa-senate-vote.html?searchResultPosition=5
-
-**Factbox: Restrictions on Public Life in Major U.S. Cities to Curb Coronavirus Spread**\
-`The coronavirus pandemic has transformed life across the United States, leading to unprecedented restrictions on public gatherings as health officials try to slow the contagion.`\
-https://nytimes.com/reuters/2020/03/18/us/18reuters-health-coronavirus-usa-cities-factbox.html?searchResultPosition=6
-
-**Meet the Americans Still Going Out and Gathering in Large Groups**\
-`As people in San Francisco shelter in place and New York City was warned to prepare for a similar measure, some 40 people met in New Mexico for an Alcoholics Anonymous meeting on Wednesday amid White House pleas to avoid groups as the country battles coronavirus.`\
-https://nytimes.com/reuters/2020/03/18/us/18reuters-health-coronavirus-usa-groups.html?searchResultPosition=7
-
-**Explainer: What's in the U.S. Coronavirus Aid Bill That Just Passed Congress?**\
-`The U.S. Senate passed a more than $100 billion coronavirus aid package on Wednesday, sending it on to President Donald Trump who is expected to sign it into law. Lawmakers are already working on another stimulus effort in response to the widening outbreak in the country.`\
-https://nytimes.com/reuters/2020/03/18/us/politics/18reuters-health-coronavirus-usa-congress-explainer.html?searchResultPosition=8
-
-**JPMorgan Chase to Close 1,000 Chase Branches on Coronavirus Concerns**\
-`JPMorgan Chase and Co will temporarily shut about 1,000 bank branches, roughly 20%, to protect employees and reduce the spread of the coronavirus, according to a memo the bank sent to employees Wednesday.`\
-https://nytimes.com/reuters/2020/03/18/business/18reuters-jpmorgan-coronavirus-branches.html?searchResultPosition=9
-
-**Coronavirus, Bernie Sanders, Penguins: Your Wednesday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/03/18/briefing/coronavirus-bernie-sanders-penguins.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/18/world/americas/18reuters-health-coronavirus-usa-trudeau.html?searchResultPosition=10
 
