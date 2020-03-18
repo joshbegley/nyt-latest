@@ -1,40 +1,40 @@
+**Exclusive: Argentina Has Deal With Domestic Bondholders to Swap $3.2 Billion in Peso Debt-Economy Minister**\
+`Argentina's government has struck a deal with domestic bondholders to swap around 200 billion pesos ($3.2 billion) in local currency debt in a major planned auction on Thursday, the country's Economy Minister Martin Guzman told Reuters.`\
+https://nytimes.com/reuters/2020/03/18/world/americas/18reuters-argentina-debt-swap-exclusive.html?searchResultPosition=1
+
+**Sovereign, Corporate and Bank CDS Spike Sharply on Coronavirus Rout**\
+`The cost of insuring debt issued by European sovereigns, major global banks and low-grade European companies against default rose sharply on Wednesday after fresh fears over the fallout from the coronavirus spread and shutdowns roiled markets. `\
+https://nytimes.com/reuters/2020/03/18/business/18reuters-health-coronavirus-cds-banks.html?searchResultPosition=2
+
+**U.S. Regulator Orders 60-Day Freeze on Foreclosures and Evictions for Fannie, Freddie Mortgages**\
+`Nearly half of all single-family U.S. homeowners will be protected from foreclosure or eviction for at least 60 days thanks to new relief from the regulator overseeing Fannie Mae and Freddie Mac.`\
+https://nytimes.com/reuters/2020/03/18/us/18reuters-health-coronavirus-evictions.html?searchResultPosition=3
+
+**ECB Looks at Relaxing Rules Further for Virus-Hit Banks: Source**\
+`European Central Bank supervisors are looking at relaxing rules further for euro zone banks hit by the coronavirus outbreak, exploiting wiggle room in the application of new accounting standards, a source told Reuters.`\
+https://nytimes.com/reuters/2020/03/18/us/18reuters-ecb-banks.html?searchResultPosition=4
+
+**Many Pastors Follow Coronavirus Rules but Some Defy Them**\
+`On the first Sunday after the coronavirus began upending American life, some religious institutions – including two churches whose pastors are close to President Donald Trump – held in-person services amid public health worries over the pandemic. That picture already looks different this week.`\
+https://nytimes.com/aponline/2020/03/18/us/ap-virus-outbreak-religious-freedom.html?searchResultPosition=5
+
+**BoE Ready for More Action as Coronavirus Threat Grows: Bailey**\
+`Bank of England Governor Andrew Bailey said the British central  bank is open to further emergency measures as the economic threat posed by the coronavirus has grown since last week when the BoE slashed interest rates.`\
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-britain-bailey.html?searchResultPosition=6
+
+**Factbox: Bank of England Offers Lifeline to Big Companies in Britain**\
+`The Bank of England plans to help big companies in Britain survive the huge hit to their business from the coronavirus outbreak by buying short-term debt from them.`\
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-britain-boe-factbox.html?searchResultPosition=7
+
+**US Struggles to Fill Requests for Protective Gear**\
+`The U.S. government is rushing protective equipment to states, packing dozens of flights and hundreds of trucks with supplies for medical workers who will be on the front lines of the coronavirus fight.`\
+https://nytimes.com/aponline/2020/03/18/business/ap-us-virus-outbreak-supplies.html?searchResultPosition=8
+
 **Getting Married at City Hall Is Still an Essential Service for Some**\
 `Fear of exposure to coronavirus did not keep couples from showing up to wed at the Manhattan Marriage Bureau in case it, too, would be closed.`\
-https://nytimes.com/2020/03/18/fashion/weddings/getting-married-at-city-hall-is-still-an-essential-service-for-some.html?searchResultPosition=1
+https://nytimes.com/2020/03/18/fashion/weddings/getting-married-at-city-hall-is-still-an-essential-service-for-some.html?searchResultPosition=9
 
 **U.S. Worried Coronavirus Could Hit Young Adults: White House Official**\
 `Younger people in France and Italy are falling seriously ill from coronavirus, a worrying development that suggests young adults are more susceptible to becoming sick than earlier thought, a White House official said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-usa-millennials.html?searchResultPosition=2
-
-**Delta Parking 600 Jets, Cutting More Executive Pay and Flights as Revenue Tanks**\
-`Delta Air Lines said on Wednesday it was parking more than 600 jets -- at least half of its fleet -- cutting more flights and implementing a round of paycuts for officers, managers, and directors while members of the board forgo compensation.`\
-https://nytimes.com/reuters/2020/03/18/business/18reuters-health-coronavirus-delta-air.html?searchResultPosition=3
-
-**Exclusive: U.S. Is Considering Measures to Boost Lending to Low-Income Americans-Source**\
-`U.S. regulators are considering issuing guidance that would encourage lenders to offer loans to low-income individuals and to provide leniency on some repayments amid the coronavirus pandemic, an official within a banking agency told Reuters.`\
-https://nytimes.com/reuters/2020/03/18/business/18reuters-health-coronavirus-usa-lending-exclusive.html?searchResultPosition=4
-
-**Israel Parliament Speaker Shuts Knesset, Enraging Opposition**\
-`Israel's Knesset speaker Wednesday abruptly adjourned all parliamentary meetings until next week, apparently a response to the new coronavirus, in a move that froze opposition efforts to discuss bills seeking Prime Minister Benjamin Netanyahu’s ouster.`\
-https://nytimes.com/aponline/2020/03/18/world/middleeast/ap-ml-israel-politics-1st-ld-writethru.html?searchResultPosition=5
-
-**Marc Maron and the Comedy of Doubt**\
-`In a special recorded last year, the standup proved prescient by focusing on his uncertainty in the face of daunting world moments.`\
-https://nytimes.com/2020/03/18/arts/television/marc-maron-end-times-fun-netflix.html?searchResultPosition=6
-
-**Italy Reports 475 New Coronavirus Deaths, Lifting Total Death Toll to 2,978**\
-`The death toll from an outbreak of coronavirus in Italy has surged in the last 24 hours by 475 to 2,978, an increase of 19%, the biggest jump in numerical terms since the contagion came to light last month, officials said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-italy-tally.html?searchResultPosition=7
-
-**WHO Says Testing, Tracing Must Be 'Backbone' of COVID-19 Response**\
-`Countries across the world must take a comprehensive approach to fighting the pandemic of COVID-19 disease caused by the new coronavirus and isolate, test and trace as many cases as possible, the World Health Organization said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-who.html?searchResultPosition=8
-
-**England Coronavirus Deaths Rise to 99, Up From 67**\
-`The number of deaths of people who tested positive for coronavirus in England rose to 99 on Wednesday, from 67 a day earlier, a 48% jump, NHS England said in a statement.`\
-https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-england-casualties.html?searchResultPosition=9
-
-**Overcrowded and Unsanitary, Venezuela's Prisons Brace for Coronavirus**\
-`The arrival of coronavirus in Venezuela is fueling concerns the disease could spread like a fast-moving fire through the country's notoriously overcrowded and unsanitary prisons.`\
-https://nytimes.com/reuters/2020/03/18/world/americas/18reuters-health-coronavirus-venezuela-prisons.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-usa-millennials.html?searchResultPosition=10
 
