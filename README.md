@@ -1,40 +1,40 @@
-**Factbox: What Africa Is Doing to Fight Coronavirus**\
-`The World Health Organization has warned of the risk that COVID-19 could overwhelm strained public health systems in sub-Saharan Africa. Here is a selection of measures countries are taking to prepare for the virus and limit its spread.`\
-https://nytimes.com/reuters/2020/03/18/world/africa/18reuters-health-coronavirus-africa-response-factbox.html?searchResultPosition=1
+**Japan Eyes Big Stimulus Package to Battle Hit From Virus**\
+`Japanese Prime Minister Shinzo Abe will form a panel of ministers on Thursday to lay out a package to help the economy weather the hit from the coronavirus outbreak, the government said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/18/world/asia/18reuters-health-coronavirus-japan-economy.html?searchResultPosition=1
 
-**UK's Glastonbury Festival Cancelled Due to Coronavirus**\
-`Britain's Glastonbury Festival, the largest greenfield music festival in the world, has been cancelled this year due to the coronavirus outbreak, organisers said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-britain-glastonbury.html?searchResultPosition=2
+**Trump to Hold News Conference to Discuss FDA, Coronavirus**\
+`U.S. President Donald Trump said he would hold a news conference on Wednesday to discuss "very important news" from the U.S. Food and Drug Administration related to the coronavirus, but gave no other details.`\
+https://nytimes.com/reuters/2020/03/18/us/18reuters-health-coronavirus-usa-trump.html?searchResultPosition=2
 
-**Alex Kotlowitz's 'An American Summer' Wins Lukas Book Prize**\
-`Alex Kotlowitz's “An American Summer,” an intimate chronicle of gun violence in Chicago, has won the J. Anthony Lukas Book Prize. Kerri K. Greenidge's “Black Radical,” a biography of civil rights activist William Monroe Trotter, received an award for history.`\
-https://nytimes.com/aponline/2020/03/18/us/ap-us-books-lukas-prize.html?searchResultPosition=3
+**Suspected Jemaah Islamiyah Leader on Trial in Indonesia**\
+`The suspected leader of Indonesia's al-Qaida-linked Jemaah Islamiyah network went on trial Wednesday on charges of terrorism that could result in a death sentence.`\
+https://nytimes.com/aponline/2020/03/18/world/asia/ap-as-indonesia-militant-trial.html?searchResultPosition=3
 
-**At Saudi Music Festival, Iran Rivalry Takes the Stage**\
-`Exile Iranian musicians critical of religious hardliners in Tehran converged this month to perform in the most unlikely locale: Saudi Arabia.`\
-https://nytimes.com/reuters/2020/03/18/arts/18reuters-saudi-iran-music.html?searchResultPosition=4
+**Nissan to Stop Producing Cars in Indonesia as Part of Reorganisation Plan**\
+`Nissan Motor Co on Wednesday said it would stop producing vehicles in Indonesia, consolidating its global production in the face of falling sales which has pummeled its profitability and threatened its survival.`\
+https://nytimes.com/reuters/2020/03/18/business/18reuters-nissan-indonesia.html?searchResultPosition=4
 
-**Japan to Order Self-Quarantine for All Travellers From Europe: Media**\
-`The Japanese government will ask all travellers from Europe, including its own citizens, to quarantine themselves for two weeks on arrival, TV Asahi reported on Tuesday.`\
-https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-japan-europe.html?searchResultPosition=5
+**Global Spread of Coronavirus Poses New Challenges to China's Virus Control and Economy: State Media**\
+`The global spread of the coronavirus has brought new challenges to china's prevention and control work and economic development, the ruling Communist Party's Politburo said on Wednesday, state television reported.`\
+https://nytimes.com/reuters/2020/03/18/world/asia/18reuters-health-coronavirus-china-politburo.html?searchResultPosition=5
 
-**Coronavirus Hits Florida Economy in Threat to Trump's Re-election Hopes**\
-`Since the coronavirus outbreak hit Florida this month, Uber driver Nelson Aliaga has lost a third of his business.`\
-https://nytimes.com/reuters/2020/03/18/us/politics/18reuters-usa-election-coronavirus-florida.html?searchResultPosition=6
+**Incoming Slovak PM Appoints Heger, Sulik to Take Economy Posts in New Government**\
+`The economic policy of the new Slovak government will be led by free-marketeer Richard Sulik as deputy prime minister and OLANO party member of parliament Eduard Heger as finance minister, the incoming government chief said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-slovakia-government.html?searchResultPosition=6
 
-**Army Steps In to Help Hospitals in East France Fight Coronavirus**\
-`France's army transferred six patients in critical condition due to coronavirus to a military facility on Wednesday as it sought to ease the strain on hospitals in the east of the country that are struggling to cope with the spiralling number of cases.`\
-https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-france-army.html?searchResultPosition=7
+**Thousands of Muslim Pilgrims Brave Coronavirus to Gather in Indonesia**\
+`Thousands of Muslim pilgrims from across Asia gathered in Indonesia on Wednesday, despite fears that their meeting could fuel the spread of a coronavirus, just two weeks after a similar event in Malaysia caused more than 500 infections.`\
+https://nytimes.com/reuters/2020/03/18/world/asia/18reuters-health-coronavirus-indonesia-event.html?searchResultPosition=7
 
-**On Politics: Biden Gets Out the Broom**\
-`It was a primary sweep, but the future is far from clean and tidy. This is your morning tip sheet.`\
-https://nytimes.com/2020/03/18/us/politics/primaries-biden-sanders.html?searchResultPosition=8
+**New Yorkers Brace for Months Under Coronavirus Restrictions: Live Updates**\
+`Midway through a grim week, the virus continues to spread quickly.`\
+https://nytimes.com/2020/03/18/nyregion/coronavirus-new-york-update.html?searchResultPosition=8
 
-**Abel Prize in Mathematics Shared by 2 Trailblazers of Probability and Dynamics**\
-`Hillel Furstenberg, 84, and Gregory Margulis, 74, both retired professors, share the mathematics equivalent of a Nobel Prize.`\
-https://nytimes.com/2020/03/18/science/abel-prize-mathematics.html?searchResultPosition=9
+**Long Lines at San Francisco Area Cannabis Stores Exempt From Coronavirus Lockdown**\
+`Millions of California's Bay area residents can still legally light up as cannabis facilities are exempt from a cornonavirus lockdown that has shuttered most businesses in San Francisco and nearby cities.`\
+https://nytimes.com/reuters/2020/03/18/us/18reuters-health-coronavirus-usa-cannabis.html?searchResultPosition=9
 
-**Vodafone Data Traffic Surges 50% Due to Coronavirus**\
-`Vodafone, the world's second largest mobile operator, said the coronavirus crisis was causing data traffic on its networks to surge, with demand already rising 50% in some markets.`\
-https://nytimes.com/reuters/2020/03/18/technology/18reuters-health-coronavirus-vodafone-group-data.html?searchResultPosition=10
+**Glastonbury Festival Canceled Because of Coronavirus**\
+`Britain’s biggest music event was due to celebrate its 50th anniversary in June and be headlined by Paul McCartney, Taylor Swift and Kendrick Lamar.`\
+https://nytimes.com/2020/03/18/arts/music/glastonbury-canceled-coronavirus.html?searchResultPosition=10
 
