@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2020/03/17/us/elections/exit-polls-arizona-prima
 ``\
 https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-17-primary-election.html?searchResultPosition=9
 
-**Florida Presidential Republican Primary Election Results**\
+**Arizona Election Results: Live Presidential Primary 2020**\
 ``\
-https://nytimes.com/interactive/2020/03/17/us/elections/results-florida-president-republican-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/03/17/us/elections/results-arizona-president-democrat-primary-election.html?searchResultPosition=10
 
