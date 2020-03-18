@@ -26,8 +26,8 @@ https://nytimes.com/2020/03/17/crosswords/daily-puzzle-2020-03-18.html?searchRes
 `Joe Biden's surge toward the Democratic presidential nomination rolled on Tuesday with a dominating victory in Florida, the largest delegate prize of the day, and a strong win in Illinois. Results were pending in Arizona, the only other state voting Tuesday. `\
 https://nytimes.com/aponline/2020/03/17/us/politics/ap-us-election-2020-takeaways.html?searchResultPosition=7
 
-**Nevada to Close Casinos, Businesses and Ban Dining Out**\
-`Nevada's governor ordered a monthlong closure of casinos and other non-essential businesses like bars, movie theaters and gyms and restaurants to shutter their dining rooms and only offer takeout or delivery in order to stem the spread of the new coronavirus. `\
+**Nevada Governor Shutters Gambling, Dining to Halt Virus**\
+`Gambling will grind to a halt by Wednesday in casino-mecca Las Vegas, a city known for glitzy and sometimes reckless fun, as the governor of Nevada issued a sweeping order aimed to stop the spread of the new coronavirus.`\
 https://nytimes.com/aponline/2020/03/17/business/bc-us-virus-outbreak-nevada-5th-ld-writethru.html?searchResultPosition=8
 
 **Judge Hands Major Win to Katy Perry in 'Dark Horse' Dispute**\
