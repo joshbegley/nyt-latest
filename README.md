@@ -22,19 +22,19 @@ https://nytimes.com/interactive/2020/03/17/us/elections/exit-polls-arizona-prima
 ``\
 https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-17-primary-election.html?searchResultPosition=6
 
-**Florida Presidential Republican Primary Election Results**\
-``\
-https://nytimes.com/interactive/2020/03/17/us/elections/results-florida-president-republican-primary-election.html?searchResultPosition=7
-
-**Florida Polls: Who Different Groups Supported**\
-``\
-https://nytimes.com/interactive/2020/03/17/us/elections/exit-polls-florida-primary.html?searchResultPosition=8
-
 **Arizona Election Results: Live Presidential Primary 2020**\
 ``\
-https://nytimes.com/interactive/2020/03/17/us/elections/results-arizona-president-democrat-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/03/17/us/elections/results-arizona-president-democrat-primary-election.html?searchResultPosition=7
 
 **Illinois Primary Election Results: 14th House District**\
 ``\
-https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-14-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-14-primary-election.html?searchResultPosition=8
+
+**Florida Polls: Who Different Groups Supported**\
+``\
+https://nytimes.com/interactive/2020/03/17/us/elections/exit-polls-florida-primary.html?searchResultPosition=9
+
+**Illinois Democratic Primary Election Results: Eighth House District**\
+``\
+https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-8-democrat-primary-election.html?searchResultPosition=10
 
