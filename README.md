@@ -1,40 +1,40 @@
-**Watchdog Says Israel's West Bank Settlements Surged in 2019**\
-`Israeli settlement activity in the West Bank surged ahead in 2019, a watchdog group said in a report Tuesday, maintaining a rapid pace that has drawn strength from the friendly policies of the Trump administration.`\
-https://nytimes.com/aponline/2020/03/18/world/middleeast/ap-ml-israel-settlement-surge.html?searchResultPosition=1
+**In Illinois U.S. House Primary, Liberal Democratic Challenger Newman Beats Lipinski**\
+`Liberal Democrat Marie Newman beat incumbent Dan Lipinski in a U.S. House of Representatives primary race in Illinois on Tuesday, according to news reports.`\
+https://nytimes.com/reuters/2020/03/18/us/politics/18reuters-usa-election-illinois-house.html?searchResultPosition=1
 
-**Ravaged by War, Middle Eastern Countries Face a New Scourge**\
-`When Dr. Ismail al-Mansouri goes to work in Yemen’s capital, he puts on one of the hospital’s few pairs of medical gloves. Then he enters a cramped clinic teeming with listless patients, many malnourished, some vomiting, others with diarrhea.`\
-https://nytimes.com/aponline/2020/03/18/world/middleeast/ap-ml-virus-outbreak-most-vulnerable-.html?searchResultPosition=2
+**Plane Leaves Japan to Collect Olympic Flame, No 2020 Delegates Aboard**\
+`A plane sporting Tokyo 2020 livery departed Haneda International Airport on Wednesday bound for Athens to collect the Olympic flame, but there was no delegation from organizers onboard due to concerns about the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/18/sports/olympics/18reuters-olympics-2020-plane-departure.html?searchResultPosition=2
 
-**Through Wars and World Turmoil, Kentucky Derby Runs On**\
-`The Great Depression and World War I and World War II didn't stop the Kentucky Derby, a race that has been run without interruption since it began in 1875.`\
-https://nytimes.com/aponline/2020/03/18/sports/ap-rac-kentucky-derby-missing-may.html?searchResultPosition=3
+**Olympics Make No Sense if Countries Cannot Send Athletes: Japan's Aso**\
+`Even if Japan can contain the coronavirus outbreak, the Summer Olympic Games "would not make sense" if other countries cannot send their athletes, Japanese Deputy Prime Minister Taro Aso said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/18/sports/olympics/18reuters-health-coronavirus-olympics-aso.html?searchResultPosition=3
 
-**Politics in Time of Coronavirus: Arizona Quietly Picks Biden**\
-`The candidates canceled their rallies and stopped door-to-door outreach to voters. Then the debate that was supposed to highlight Arizona’s emergence as a national battleground was moved from a concert venue in Phoenix to an empty television studio in the nation’s capital. `\
-https://nytimes.com/aponline/2020/03/18/us/ap-us-virus-outbreak-primary-ghost-town.html?searchResultPosition=4
+**Factbox: Latest on the Spread of Coronavirus Around the World**\
+`The world's richest nations prepared more costly measures on Tuesday to combat the global fallout of the coronavirus that has infected tens of thousands of people, triggered social restrictions unseen since World War Two and sent economies spinning toward recession.`\
+https://nytimes.com/reuters/2020/03/18/world/asia/18reuters-health-coronavirus-latest-factbox.html?searchResultPosition=4
 
-**3 More Biden Victories Increase Pressure on Sanders to Quit**\
-`Joe Biden swept to victory in Florida, Illinois and Arizona on Tuesday, increasingly pulling away with a Democratic presidential primary upended by the coronavirus and building pressure on Bernie Sanders to abandon his campaign. `\
-https://nytimes.com/aponline/2020/03/18/us/politics/ap-us-election-2020.html?searchResultPosition=5
+**At a Glance: Democratic Presidential Primary Results and State Delegate Counts**\
+`Former Vice President Joe Biden extended his lead in the delegate race for the Democratic presidential nomination on Tuesday, sweeping the day's contests with wins in Arizona, Florida and Illinois as the country grappled with the coronavirus.`\
+https://nytimes.com/reuters/2020/03/18/us/politics/18reuters-usa-election-results.html?searchResultPosition=5
 
-**Word + Quiz: sortie**\
-`This word has appeared in five articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/03/18/learning/word-quiz-sortie.html?searchResultPosition=6
+**The White House Wants to Give You $1,000. Here's How It Could Work**\
+`As the coronavirus threatens to push the global economy into recession, the Trump administration is rolling out an unusual idea: handing out free money.`\
+https://nytimes.com/reuters/2020/03/18/us/18reuters-health-coronavirus-usa-checks-explainer.html?searchResultPosition=6
 
-**Asian Stocks Rise, Backslide After Trump Promises Virus Aid**\
-`Major Asian stock markets fell back after early gains on Wednesday after Wall Street jumped on President Donald Trump's promise of aid to get the U.S. economy through the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/03/18/business/bc-financial-markets.html?searchResultPosition=7
+**U.S. Plans to Turn Back Migrants Caught at Mexican Border, Cites Coronavirus: Sources**\
+`The Trump administration is considering immediately returning any foreigners caught at the U.S.-Mexico border to Mexico, arguing the step is necessary to combat the fast-spreading coronavirus, according to two administration officials.`\
+https://nytimes.com/reuters/2020/03/18/world/americas/18reuters-health-coronavirus-usa-mexico.html?searchResultPosition=7
 
-**Governments Grapple With Virus Border Closures, Lockdowns**\
-`Governments around the globe grappled Wednesday with how to implement border closures, travel restrictions and lockdowns that have unleashed transportation chaos and imperiled economies, but which authorities say are needed to slow the spread of the new coronavirus.`\
-https://nytimes.com/aponline/2020/03/18/business/ap-virus-outbreak.html?searchResultPosition=8
+**Mexico Yet to See Formal U.S. Plan to Deport Migrants Due to Coronavirus**\
+`The Mexican government has not yet received a formal proposal from the United States about migrants in that country being returned to Mexico due to coronavirus, Mexico's foreign ministry said a brief statement late on Tuesday.`\
+https://nytimes.com/reuters/2020/03/18/world/americas/18reuters-health-coronavirus-mexico-reaction.html?searchResultPosition=8
 
-**The Latest: Russell Wilson, Ciara Donating 1 Million Meals**\
-`The Latest on the coronavirus pandemic's effect on sports around the world (all times local):`\
-https://nytimes.com/aponline/2020/03/18/sports/ap-sports-virus-outbreak-the-latest-1st-ld-writethru.html?searchResultPosition=9
+**Joe Biden Edges Closer to Democratic Nomination With Blowout Wins**\
+`Joe Biden coasted to blowout victories in Tuesday's three Democratic presidential primaries, expanding his nearly unbeatable lead in the race to challenge President Donald Trump in November and increasing pressure on rival Bernie Sanders to end his campaign.`\
+https://nytimes.com/reuters/2020/03/18/us/politics/18reuters-usa-election.html?searchResultPosition=9
 
-**With Tom Brady’s Future in Play, N.F.L. Free Agency Is Set to Begin**\
-`Travel restrictions are in place as teams look to bolster rosters through a market deep in quarterbacks, including the New England expatriate.`\
-https://nytimes.com/2020/03/18/sports/football/nfl-free-agency.html?searchResultPosition=10
+**A Majority of Democrats Look to Biden, Not Sanders, During a Crisis: Poll**\
+`Most voters in Democratic presidential primaries in Illinois, Florida and Arizona said they trusted Joe Biden to handle a major crisis more than Bernie Sanders, according to Edison Research, as many lined up on Tuesday to vote despite the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/18/us/politics/18reuters-usa-election-poll.html?searchResultPosition=10
 
