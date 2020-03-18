@@ -1,4 +1,4 @@
-**Will the Olympics Go on? Japan’s Businesses Would Like to Know**\
+**Will the Olympics Go On? Japan’s Businesses Would Like to Know**\
 `As the spread of the coronavirus threatens the Games, a whole ecosystem surrounding the world’s largest sporting event is stuck in a holding pattern.`\
 https://nytimes.com/2020/03/18/business/japan-olympics-coronavirus.html?searchResultPosition=1
 
