@@ -1,40 +1,40 @@
-**Trump’s Campaign Has Had to Adjust to His Changing View of the Coronavirus**\
-`For a while it continued to schedule new rallies. Now, one ally — Karl Rove — says canceling them will create “pent-up demand.”`\
-https://nytimes.com/2020/03/17/us/politics/trump-campaign-coronavirus.html?searchResultPosition=1
+**Defying Virus Rules, Large Hasidic Jewish Weddings Held in Brooklyn**\
+`The Fire Department dispersed revelers at one celebration that more than 200 attended in defiance of restrictions on public events.`\
+https://nytimes.com/2020/03/17/nyregion/coronavirus-hasidic-weddings-brooklyn.html?searchResultPosition=1
 
-**Watch Live: Biden Expected to Speak as Primary Results Are Released**\
-`Former Vice President Joseph R. Biden Jr. is expected to address his supporters after the latest round of primaries.`\
-https://nytimes.com/video/us/politics/100000007036794/joe-biden-march-17-primary.html?searchResultPosition=2
+**Facebook Acknowledges a Bug Is Blocking Coronavirus News**\
+`Facebook says a bug in its anti-spam system is blocking the publication of links to news stories about the coronavirus. Guy Rosen, Facebook's vice president of integrity, said on Twitter Tuesday that the company is working on fixing the problem. `\
+https://nytimes.com/aponline/2020/03/17/business/bc-us-virus-outbreak-facebook-blocked-news.html?searchResultPosition=2
 
-**China’s Ill-Timed Attack on the Free Press**\
-`Reporting the truth is the only way to stop a global pandemic. Beijing just made that more difficult.`\
-https://nytimes.com/2020/03/17/opinion/china-journalists-coronavirus.html?searchResultPosition=3
+**Arizona Polls: Who Different Groups Supported**\
+``\
+https://nytimes.com/interactive/2020/03/17/us/elections/exit-polls-arizona-primary.html?searchResultPosition=3
 
-**Man Out on Bond in Case of Missing Alabama Woman Found Dead**\
-`A man charged with abusing the corpse of a missing Alabama woman was released from jail Tuesday, a week after being granted bond. `\
-https://nytimes.com/aponline/2020/03/17/us/ap-us-missing-woman-body-found.html?searchResultPosition=4
+**Illinois Primary Election Results: 17th House District**\
+``\
+https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-17-primary-election.html?searchResultPosition=4
 
-**Mexico, Former Swine Flu Hub, Tests Nerves With Coronavirus Strategy**\
-`Mexican officials are dragging their feet on border closures and coronavirus containment measures, in what critics call a high risk strategy driven by bad memories of a shutdown a decade ago that deepened the country's recession during the swine flu epidemic.`\
-https://nytimes.com/reuters/2020/03/17/world/americas/17reuters-health-coronavirus-mexico.html?searchResultPosition=5
+**Arizona Election Results: Live Presidential Primary 2020**\
+``\
+https://nytimes.com/interactive/2020/03/17/us/elections/results-arizona-president-democrat-primary-election.html?searchResultPosition=5
 
-**Tunisia Imposes 12-Hour Daily Curfew to Counter Coronavirus**\
-`Tunisia will impose a curfew from 6 p.m. to 6 a.m. starting Wednesday with the army patrolling the streets, Tunisia's president said on Tuesday, tightening the measures to counter the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/17/world/africa/17reuters-health-coronavirus-tunisia-curfew.html?searchResultPosition=6
+**Illinois Primary Election Results: 14th House District**\
+``\
+https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-14-primary-election.html?searchResultPosition=6
 
-**Pompeo Says U.S. to Support New Iraqi PM if He Upholds Key Principles**\
-`U.S. Secretary of State Mike Pompeo said on Tuesday that Iraq's newly designated Prime Minister Adnan al-Zurfi would have the support of Washington and the international community if he would uphold Iraq's sovereignty, be corruption-free and protective of human rights among others.`\
-https://nytimes.com/reuters/2020/03/17/world/middleeast/17reuters-iraq-politics-usa-pompeo.html?searchResultPosition=7
+**Illinois Democratic Primary Election Results: Eighth House District**\
+``\
+https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-8-democrat-primary-election.html?searchResultPosition=7
 
-**Czechs Seize 700,000 Masks Needed Against Coronavirus Outbreak**\
-`The Czech authorities seized nearly 700,000 face masks that are needed against the coronavirus outbreak from a company seeking a higher price for the shipment, Interior Minister Jan Hamacek said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/17/world/europe/17reuters-health-coronavirus-czech-masks.html?searchResultPosition=8
+**Results: The Most Detailed Map of the Florida Democratic Primary**\
+`By Charlie Smart, Denise Lu, Matthew Bloch, Ben Smithgall and Miles Watkins`\
+https://nytimes.com/interactive/2020/03/17/us/elections/precinct-map-florida-primary.html?searchResultPosition=8
 
-**Saudi Arabia Suspends Work in Private Sectors Except Health and Food for 15 Days**\
-`Saudi Arabia suspended work in private sectors except health and food services for 15 days, state news agency reported early on Wednesday.`\
-https://nytimes.com/reuters/2020/03/17/world/middleeast/17reuters-health-coronavirus-saudi-work.html?searchResultPosition=9
+**Florida Polls: Who Different Groups Supported**\
+``\
+https://nytimes.com/interactive/2020/03/17/us/elections/exit-polls-florida-primary.html?searchResultPosition=9
 
-**UK to Delay Crown Court Trials Because of Coronavirus**\
-`Courts in England and Wales dealing with serious crimes will not start trials if they are likely to last for more than three days because of the spread of coronavirus, the head of the judiciary said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/17/world/europe/17reuters-health-coronavirus-britain-courts.html?searchResultPosition=10
+**Florida Presidential Republican Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/03/17/us/elections/results-florida-president-republican-primary-election.html?searchResultPosition=10
 
