@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/03/18/world/europe/ap-eu-virus-outbreak-german
 https://nytimes.com/2020/03/18/opinion/coronavirus-trump-war.html?searchResultPosition=4
 
 **A Nebraska Hospital Aimed to Contain the Virus. But It Had Already Spread.**\
-`Doctors at the University of Nebraska Medical Center treated some of America’s first coronavirus patients. Now, it is preparing for many.`\
+`Doctors at the University of Nebraska Medical Center treated some of America’s first coronavirus patients. Now, the center is preparing for many.`\
 https://nytimes.com/2020/03/18/us/coronavirus-nebraska-biocontainment.html?searchResultPosition=5
 
 **Small Businesses Face Devastation as Damage From Virus Grows**\
