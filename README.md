@@ -10,7 +10,7 @@ https://nytimes.com/video/world/asia/100000007024807/china-coronavirus-propagand
 `Gargling warm salty water, taking vitamins or heating your nasal passages won’t eliminate the virus or keep it from reaching your lungs.`\
 https://nytimes.com/2020/03/18/health/coronavirus-cure-gargle-water.html?searchResultPosition=3
 
-**Tom Brady in Tampa Bay? It’s Not as Weird as It Sounds.**\
+**Tom Brady in Tampa Bay? It’s Not as Weird as It Sounds**\
 `Brady has been synonymous with New England over his 20-year career with the Patriots. But landing with the quirky Buccaneers might give him an even better shot at success this year.`\
 https://nytimes.com/2020/03/18/sports/football/tom-brady-tampa-bay-buccaneers.html?searchResultPosition=4
 
