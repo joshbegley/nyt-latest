@@ -1,40 +1,40 @@
+**China Sends Masks, Gloves to Help France Fight Virus-French Minister**\
+`China is sending 1 million surgical masks and gloves to France to help it fight the coronavirus, the French foreign minister said on Wednesday. `\
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-france-china.html?searchResultPosition=1
+
+**Number of Confirmed Coronavirus Cases in UK Rises to 2,626**\
+`The number of people who have tested positive in the United Kingdom for coronavirus has increased to 2,626, the health ministry said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-britain-cases.html?searchResultPosition=2
+
+**Brazil Closes Border to Venezuelans as Coronavirus Outbreak Worsens**\
+`Brazil on Wednesday closed its border to Venezuelans for an initial 15 days, citing strains on the public health system from a worsening global coronavirus outbreak and what its president described as Venezuela's inability to respond to the epidemic.`\
+https://nytimes.com/reuters/2020/03/18/world/americas/18reuters-health-coronavirus-brazil.html?searchResultPosition=3
+
+**North Carolina Police: Man Shot to Death Inside Ambulance**\
+`A suspect in North Carolina fatally shot a man while the victim was being treated inside an ambulance on Wednesday, police said.`\
+https://nytimes.com/aponline/2020/03/18/us/ap-us-shot-inside-ambulance.html?searchResultPosition=4
+
+**Coronavirus Disrupts Troop Withdrawal in Afghanistan**\
+`Thousands of American and NATO troops are scheduled to leave in the next few months, but quarantine procedures are complicating those efforts.`\
+https://nytimes.com/2020/03/18/world/asia/coronavirus-withdrawal-afghanistan.html?searchResultPosition=5
+
+**Is Coronavirus Widening Generational Divides, or Bridging Them?**\
+`Shutdowns have sometimes been interpreted through the prism of intergenerational tension, but in Europe there is also a call for an “internationale of generations.”`\
+https://nytimes.com/2020/03/18/world/europe/shutdowns-coronavirus-age.html?searchResultPosition=6
+
+**Apple Brings Back 'Scissor' Keyboards in Latest MacBook Air**\
+`Apple Inc launched an updated version of its MacBook Air on Wednesday, modifying keyboards on its laptop line that have faced criticism for typing-related problems.    `\
+https://nytimes.com/reuters/2020/03/18/business/18reuters-apple-products-macbook-air.html?searchResultPosition=7
+
+**Deliciousness Matters**\
+`It improves moods, and inspires hope, so cook as much as you can in these trying days.`\
+https://nytimes.com/2020/03/18/dining/deliciousness-matters.html?searchResultPosition=8
+
 **Honda Will Halt All North American Production for Six Days**\
 `Honda Motor Co said Wednesday it is temporarily halting production in North America for six days because of the anticipated decline in auto sales due to the coronavirus outbreak and will reduce production by about 40,000 vehicles.`\
-https://nytimes.com/reuters/2020/03/18/business/18reuters-health-coronavirus-autos.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/03/18/business/18reuters-health-coronavirus-autos.html?searchResultPosition=9
 
 **The Latest: Airbus Stock Plunges After Announcing Shutdowns**\
 `The Latest on action in the financial markets (all times local):`\
-https://nytimes.com/aponline/2020/03/18/business/ap-financial-markets-the-latest.html?searchResultPosition=2
-
-**Jeffrey Epstein’s Ex, Ghislaine Maxwell, Sues His Estate for Legal Fees**\
-`Ms. Maxwell, who was once Mr. Epstein’s girlfriend, said he had promised to pay her legal fees for claims brought against her by his accusers.`\
-https://nytimes.com/2020/03/18/business/jeffrey-epstein-ghislaine-maxwell-lawsuit.html?searchResultPosition=3
-
-**Volvo Recalls Vehicles to Fix Automatic Braking Malfunction**\
-`Volvo is recalling several model lines in the U.S. because the automatic emergency braking system may not detect obstacles and stop the vehicles as designed.`\
-https://nytimes.com/aponline/2020/03/18/business/ap-us-volvo-recall.html?searchResultPosition=4
-
-**Uganda Charges Foe of President With Treason, Illegal Weapons Possession**\
-`A retired Ugandan general seeking to unseat veteran President Yoweri Museveni was charged on Wednesday with treason and unlawful possession of weapons, a case underscoring an ongoing crackdown on opposition figures ahead of elections next year. `\
-https://nytimes.com/reuters/2020/03/18/world/africa/18reuters-uganda-judiciary.html?searchResultPosition=5
-
-**Blindsided by Bear Market, Stock-Pickers Struggle to Stay Relevant**\
-`The carnage in stock markets is getting uglier by the day. Should you "buy", "sell" or "hold" on tight?`\
-https://nytimes.com/reuters/2020/03/18/business/18reuters-health-coronavirus-global-stocks-analysis.html?searchResultPosition=6
-
-**U.S. Senate Expected to Vote Wednesday on House Coronavirus Bill: Source**\
-`The Republican-led U.S. Senate is expected on Wednesday to vote on a multibillion-dollar coronavirus bill that passed the Democratic-controlled House of Representatives over the weekend, a person familiar with the matter said.`\
-https://nytimes.com/reuters/2020/03/18/us/18reuters-health-coronavirus-usa-senate.html?searchResultPosition=7
-
-**South Africa's Coronavirus Cases Nearly Double in 2 Days**\
-`South Africa became Africa’s new coronavirus focus of concern on Wednesday as cases nearly doubled to 116 from two days before. The country with the most cases in sub-Saharan Africa said 14 of the new ones were from local transmission — and six were in children under 10.`\
-https://nytimes.com/aponline/2020/03/18/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=8
-
-**Celeste Ng, Ann Patchett, Min Jin Lee and Others on the Books That Bring Them Comfort**\
-`Looking for a respite from the news? You might find solace in reading.`\
-https://nytimes.com/2020/03/18/books/comfort-books-celeste-ng-ann-patchett-and-others.html?searchResultPosition=9
-
-**Exclusive: HSBC CEO Quinn Faces Strategy Rethink as Coronavirus Bites-Source**\
-`One of Noel Quinn's first jobs as chief executive of HSBC will be to review the radical revamp he unveiled last month as interim boss, a senior source at the bank said.`\
-https://nytimes.com/reuters/2020/03/18/business/18reuters-hsbc-ceo-strategy-exclusive.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/18/business/ap-financial-markets-the-latest.html?searchResultPosition=10
 
