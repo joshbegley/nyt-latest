@@ -1,40 +1,40 @@
+**Brazil Health Minister: More Restrictive COVID-19 Measures May Be Needed**\
+`Brazilian Health Minister Luiz Henrique Mandetta said on Wednesday that more restrictive measures might be needed to lock down social interaction as the coronavirus epidemic advances.`\
+https://nytimes.com/reuters/2020/03/18/world/americas/18reuters-health-coronavirus-brazil-minister.html?searchResultPosition=1
+
+**Dutch Minister for Medical Care Collapses During Coronavirus Debate**\
+`The Dutch minister for medical care collapsed briefly on Wednesday  during a debate in parliament on the coronavirus because of what he called exhaustion from weeks of intense work.`\
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-netherlands.html?searchResultPosition=2
+
+**British Banker Told to Pay 14 Million Euros in German Fraud Trial**\
+`Two British bankers were handed a suspended jail sentence on Wednesday and one was told to pay a 14 million euro penalty in Germany's biggest post-war fraud trial of a scam involving multi-billion-euro trades to get bogus tax reclaims.`\
+https://nytimes.com/reuters/2020/03/18/business/18reuters-germany-trade-fraud.html?searchResultPosition=3
+
+**Ireland's Call for Retired Medics to Return to Work Gets Huge Response**\
+`Ireland's health service was inundated by offers from former healthcare professionals prepared to return to frontline service to tackle the coronavirus outbreak, a day after the government made its call to arms.`\
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-ireland.html?searchResultPosition=4
+
+**Easy Recipes to Cook While You’re Self-Quarantined**\
+`Here are some simple dishes that can be made mostly with what you have on hand.`\
+https://nytimes.com/article/easy-recipes-coronavirus.html?searchResultPosition=5
+
+**British Skiers Stuck in Coronavirus Lockdown at Bulgaria Resort**\
+`Dozens of confused and fearful British tourists were stranded in a lockdown at the Bulgarian ski resort of Bansko on Wednesday after three people there tested positive for coronavirus.`\
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-bulgaria-britain.html?searchResultPosition=6
+
+**EU Struggles to Unlock Borders Hit by Coronavirus Curbs**\
+`European Union ministers sparred for more than four hours on Wednesday over emergency border curbs imposed to combat coronavirus that have stranded passengers and supply trucks in lengthy queues from Hungary and Poland to Austria and Italy. `\
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-eu-transport.html?searchResultPosition=7
+
+**Merkel Tells Germans: Fighting Virus Demands War-Time Solidarity**\
+`Chancellor Angela Merkel on Wednesday urged all German citizens to help fight the spread of the coronavirus by sticking to rules aimed at reducing direct social contact and avoiding as many new infections as possible.`\
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-germany.html?searchResultPosition=8
+
+**Tunisian Streets Fall Silent Under Coronavirus Curfew**\
+`The only sounds at dusk on Wednesday as Tunisia's first night of a curfew against coronavirus kept traffic from the streets were barking dogs and, faintly in the wind above the scent of orange blossom, Koranic recitations from a mosque. `\
+https://nytimes.com/reuters/2020/03/18/world/africa/18reuters-health-coronavirus-tunisia-curfew.html?searchResultPosition=9
+
 **Polish Priest Tries to Ward Off Coronavirus With Street Blessings**\
 `Polish Priest Miroslaw Matuszny hopes he has found a new way to help fight the coronavirus outbreak - walking the streets of the eastern city of Lublin and inviting churchgoers in isolation to come to their windows to pray the virus away.`\
-https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-poland-priest.html?searchResultPosition=1
-
-**Movie Theater Owners: We Need a Bailout, Too**\
-`The multiplexes are closed. Marvel’s “Black Widow” is postponed. And the National Association of Theater Owners is asking for relief.`\
-https://nytimes.com/2020/03/18/business/media/movie-theaters-bailout-coronavirus.html?searchResultPosition=2
-
-**10 Ways to Ease Your Coronavirus Anxiety**\
-`These simple tips will help you relax and put things in perspective — in between washing your hands, of course.`\
-https://nytimes.com/2020/03/18/smarter-living/coronavirus-anxiety-tips.html?searchResultPosition=3
-
-**FDIC Warns of Scams Saying Banks in Trouble From Outbreak**\
-`One of the nation's bank regulators is urging Americans not to withdraw large sums of cash and to beware of fraudsters claiming that banks are limiting customers' access to their money. `\
-https://nytimes.com/aponline/2020/03/18/business/bc-us-virus-outbreak-bank-scams.html?searchResultPosition=4
-
-**Trump Defends Calling the Coronavirus the ‘Chinese Virus’**\
-`“It’s not racist at all,” the president told reporters on Wednesday, explaining why he calls it that. “It comes from China, that’s why.”`\
-https://nytimes.com/2020/03/18/us/politics/trump-china-coronavirus.html?searchResultPosition=5
-
-**Trump Ratchets Up Criticism of China Over Coronavirus**\
-`U.S. President Donald Trump on Wednesday ratcheted up his rhetoric against China over the coronavirus, saying Beijing should have acted faster to warn the world and dismissing criticism that his labeling it the "Chinese virus" was racist.`\
-https://nytimes.com/reuters/2020/03/18/world/asia/18reuters-health-coronavirus-trump-china.html?searchResultPosition=6
-
-**Pentagon Says Still Looking at How U.S. May Respond to Attack on American Forces**\
-`The Pentagon said on Wednesday it was still looking at how it may respond to any attack on American forces, days after three American troops were wounded in a rocket attack on an Iraqi base north of Baghdad. `\
-https://nytimes.com/reuters/2020/03/18/world/middleeast/18reuters-usa-iraq-middleeast-military.html?searchResultPosition=7
-
-**What Is Essential? Retailers Face Confusion Over Government Rules on Store Closings**\
-`As the United States moves to quickly curb the spread of the coronavirus, the question of which retailers can stay open - and where - depends on what government officials deem to be essential.`\
-https://nytimes.com/reuters/2020/03/18/us/18reuters-health-coronavirus-usa-retail.html?searchResultPosition=8
-
-**Senate's McConnell Says Republicans Nearing Pact on Big Economic Stimulus Bill**\
-`Senate Majority Leader Mitch McConnell said on Wednesday that Republicans were nearing an agreement on larger economic stimulus legislation to support the coronavirus-hit U.S. economy.`\
-https://nytimes.com/reuters/2020/03/18/us/politics/18reuters-health-coronavirus-mcconnell.html?searchResultPosition=9
-
-**Fighting Fear With Beer: Virus Spurs Curbside Beer Sales**\
-`Sometimes you wanna go where everybody knows your name. But with the new coronavirus popping up all over the country, a trip to your favorite tap room isn’t in the offing. So breweries are stepping up, offering curbside growlers to stave off the grumbling. `\
-https://nytimes.com/aponline/2020/03/18/business/bc-us-virus-outbreak-beers-for-fears.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-poland-priest.html?searchResultPosition=10
 
