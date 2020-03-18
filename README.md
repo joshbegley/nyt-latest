@@ -1,40 +1,40 @@
-**No Stimulus Without Election Protection**\
-`Now is the time to make sure America can vote in November.`\
-https://nytimes.com/2020/03/18/opinion/coronavirus-primary-voting-2020.html?searchResultPosition=1
+**What to Know Before Going to the Grocery Store**\
+`Wednesday: An expert says the crowds are “exactly what we railed against.” Also: Two very good dogs keeping their owners company.`\
+https://nytimes.com/2020/03/18/us/coronavirus-grocery-shopping.html?searchResultPosition=1
 
-**Children Stuck at Home Can Still Explore the Zoo or Aquarium. Some Penguins Could, Too.**\
-`Hippos, otters and penguins can be viewed through webcams, virtual tours and “home safaris.” And at one aquarium, penguins strolled through the exhibits.`\
-https://nytimes.com/2020/03/18/us/coronavirus-zoos-webcams.html?searchResultPosition=2
+**$2 Million Homes in Pennsylvania, New York and New Orleans**\
+`A Cotswolds-style home in Philadelphia, an 18th-century farmhouse in the Hudson Valley and an 1829 Creole cottage in the French Quarter of New Orleans.`\
+https://nytimes.com/2020/03/18/realestate/2-million-homes-in-pennsylvania-new-york-and-new-orleans.html?searchResultPosition=2
 
-**Stunned World Grapples With 'Once-In-100-Year' Coronavirus Battle**\
-`Hundreds of millions of people worldwide were adjusting on Wednesday to once-in-a-generation measures to battle the coronavirus crisis that is not only killing the old and vulnerable but also threatening prolonged economic misery.`\
-https://nytimes.com/reuters/2020/03/18/world/americas/18reuters-health-coronavirus.html?searchResultPosition=3
+**What You Get for $2 Million**\
+`A Cotswolds-style home in Philadelphia, an 18th-century farmhouse in the Hudson Valley and an 1829 Creole cottage in the French Quarter of New Orleans.`\
+https://nytimes.com/slideshow/2020/03/18/realestate/what-you-get-for-2-million.html?searchResultPosition=3
 
-**Trump Asks Lawmakers for $46B More to Battle Coronavirus**\
-`President Donald Trump has sent lawmakers a $46 billion emergency funding request to help the government fight the coronavirus and to reverse cuts proposed just last month to the Centers for Disease Control, the front-line agency in fighting the battle.`\
-https://nytimes.com/aponline/2020/03/18/us/politics/bc-us-virus-outbreak-trump-budget.html?searchResultPosition=4
+**For Faye Toogood, the Rough Draft Is Also the Final Product**\
+`The British designer’s new collection of furniture embraces the “rawness and primitive qualities” of small-scale models.`\
+https://nytimes.com/2020/03/18/t-magazine/faye-toogood-maquette-show.html?searchResultPosition=4
 
-**BAT Says No Material Impact Yet From COVID-19 Outbreak**\
-`British American Tobacco, the world's No.2 tobacco maker, said on Wednesday it has not yet seen a material impact from the COVID-19 outbreak, despite having to postpone certain launches due to supply chain disruptions in China.`\
-https://nytimes.com/reuters/2020/03/18/business/18reuters-britishamericantobacco-outlook.html?searchResultPosition=5
+**Maggie Griffin, Impish Mother of Comedian Kathy, Dies at 99**\
+`The mother of comedian Kathy Griffin, who inspired many of the jokes in her famous daughter's standup routines, has died. Maggie Griffin was 99.`\
+https://nytimes.com/aponline/2020/03/18/us/ap-us-obit-maggie-griffin.html?searchResultPosition=5
 
-**Trump Administration Seeks $45.8 Billion in Extra Government Funding Amid Coronavirus**\
-`The Trump administration has requested an additional $45.8 billion from Congress to shore up U.S. agencies amid the fast-spreading coronavirus outbreak, a White House spokesman said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/18/us/18reuters-health-coronavirus-usa-funding.html?searchResultPosition=6
+**New US Home Construction Dips Again in February**\
+`Construction of new homes fell again in February, but not as much as the previous month. Those declines follow a December surge which had pushed home construction to the highest level in 13 years.`\
+https://nytimes.com/aponline/2020/03/18/business/bc-us-home-construction.html?searchResultPosition=6
 
-**Sheltering in Space**\
-`New York was one city the other day, now we’re another.`\
-https://nytimes.com/2020/03/18/style/coronavirus-social-distancing-new-york.html?searchResultPosition=7
+**UK Paves Way for Multi-Billion Pound Bailout of Airlines: Times**\
+`The British government is paving the way for a multi-billion pound bailout of airlines by lifting a cap on level of financial support it can provide, the Times newspaper reported on Wednesday.`\
+https://nytimes.com/reuters/2020/03/18/business/18reuters-health-coronavirus-britain-airlines.html?searchResultPosition=7
 
-**Pence Aide Dismisses Reports of Possible 20% U.S. Unemployment**\
-`Marc Short, the chief of staff for Vice President Mike Pence, said on Wednesday there were no forecasts of 20% unemployment in the United States because of the coronavirus outbreak, after reports suggested such a rise was a possibility.`\
-https://nytimes.com/reuters/2020/03/18/us/18reuters-health-coronavirus-usa-unemployment-pence.html?searchResultPosition=8
+**Myanmar Army Withdraws Criminal Complaint Against Reuters**\
+`Myanmar’s army said on Wednesday it had withdrawn a criminal complaint it filed against Reuters news agency after being requested to do so by the Myanmar Press Council and in the interest of good relations with the media.`\
+https://nytimes.com/reuters/2020/03/18/world/asia/18reuters-myanmar-reuters.html?searchResultPosition=8
 
-**Sanders to 'Assess His Campaign' After Another Round of Bruising Losses: Statement**\
-`Democratic presidential hopeful Bernie Sanders plans to talk with supporters to "assess his campaign" after bruising losses to Joe Biden in the most recent round of voting, his campaign said in a statement on Wednesday.`\
-https://nytimes.com/reuters/2020/03/18/us/politics/18reuters-usa-election-sanders.html?searchResultPosition=9
+**Bernie Sanders Will ‘Assess His Campaign’ After Three More Primary Losses**\
+`With an increasingly narrow path to the nomination, Mr. Sanders and his advisers were weighing his options amid a national health crisis.`\
+https://nytimes.com/2020/03/18/us/politics/bernie-sanders-campaign.html?searchResultPosition=9
 
-**Kenya Orders Closure of Training Camps and Clubs Over Coronavirus Worries**\
-`Kenya's athletics authority on Wednesday ordered the closure of training camps and clubs due to the coronavirus outbreak, a move that threatens the ability of the country's athletes to prepare for the Olympic Games which are scheduled to begin in July.`\
-https://nytimes.com/reuters/2020/03/18/sports/basketball/18reuters-health-coronavirus-athletics-kenya.html?searchResultPosition=10
+**Erdogan Sees Opportunities if Turkey Contains Coronavirus**\
+`President Tayyip Erdogan said on Wednesday the coronavirus was hitting Turkey just as it was recovering from a 2018 lira crisis but that there would be big opportunities if it could bring the outbreak under control in the coming weeks.`\
+https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-turkey.html?searchResultPosition=10
 
