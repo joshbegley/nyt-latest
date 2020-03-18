@@ -1,40 +1,40 @@
-**Movie Theaters Request Bailout From Congress Due to Virus**\
-`Faced with a lengthy shutdown due the coronavirus pandemic, movie theaters are requesting relief from the U.S. government. `\
-https://nytimes.com/aponline/2020/03/18/business/ap-us-virus-outbreak-movie-theater-bailout.html?searchResultPosition=1
+**Judge Asked to Force Decision on US Wolverine Protections**\
+`Wildlife advocates on Wednesday asked a U.S. judge to force the government into deciding if the snow-loving wolverine should be federally protected as the rare predator becomes vulnerable to a warming planet.`\
+https://nytimes.com/aponline/2020/03/18/us/ap-us-climate-change-wolverine.html?searchResultPosition=1
 
-**Can You Trust the President’s Statements on Coronavirus?**\
-`Donald Trump’s comments on the pandemic have been false, confusing and inconsistent. Take a look.`\
-https://nytimes.com/2020/03/18/opinion/trump-lies-about-coronavirus.html?searchResultPosition=2
+**Live Results: Idaho Presidential Primary 2020**\
+``\
+https://nytimes.com/interactive/2020/03/10/us/elections/results-idaho-president-democrat-primary-election.html?searchResultPosition=2
 
-**Can You Trust the President’s Statements on Coronavirus?**\
-`Donald Trump’s comments on the pandemic have been false, confusing and inconsistent. Take a look.`\
-https://nytimes.com/video/opinion/100000007038780/trump-lies-about-coronavirus.html?searchResultPosition=3
+**Michigan Presidential Republican Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/03/10/us/elections/results-michigan-president-republican-primary-election.html?searchResultPosition=3
 
-**Freddie, Fannie Suspend Some Evictions and Foreclosures**\
-`Mortgage buyers Fannie Mae and Freddie Mac said Wednesday that they will suspend all foreclosure sales and evictions of borrowers in single family homes owned by their companies.`\
-https://nytimes.com/aponline/2020/03/18/business/ap-virus-outbreak-foreclosures-suspended.html?searchResultPosition=4
+**Washington Polls: Who Different Groups Supported**\
+``\
+https://nytimes.com/interactive/2020/03/10/us/elections/exit-polls-washington-primary.html?searchResultPosition=4
 
-**US Military's Role in Response to Virus Outbreak Is Growing**\
-`The Pentagon's role in responding to the coronavirus outbreak in the United States began to rapidly expand on Wednesday as officials announced that two Navy hospital ships and two Army field hospitals were preparing to deploy to help overburdened regions.`\
-https://nytimes.com/aponline/2020/03/18/us/politics/ap-us-virus-outbreak-military.html?searchResultPosition=5
+**Live Results: Missouri Presidential Primary 2020**\
+``\
+https://nytimes.com/interactive/2020/03/10/us/elections/results-missouri-president-democrat-primary-election.html?searchResultPosition=5
 
-**Head of Brazil's Senate Tests Positive for Coronavirus-Statement**\
-`Davi Alcolumbre, the head of Brazil's Senate, became the latest high-level political figure to test positive for coronavirus on Wednesday, his office said in a statement. `\
-https://nytimes.com/reuters/2020/03/18/world/americas/18reuters-health-coronavirus-brazil-senate.html?searchResultPosition=6
+**Mississippi Republican Primary Election Results: Fourth House District**\
+``\
+https://nytimes.com/interactive/2020/03/10/us/elections/results-mississippi-house-district-4-republican-primary-election.html?searchResultPosition=6
 
-**Mexico Seeks Interpol Detention Order for Ex-Official in Missing Students Probe**\
-`Mexico has asked Interpol to issue a red notice calling for the arrest of a former official who led the controversial probe into the 2014 disappearance and suspected murder of 43 student teachers, the attorney general's office said.`\
-https://nytimes.com/reuters/2020/03/18/world/americas/18reuters-mexico-violence.html?searchResultPosition=7
+**Live Results: North Dakota Caucuses 2020**\
+``\
+https://nytimes.com/interactive/2020/03/10/us/elections/results-north-dakota-president-democrat-caucus-election.html?searchResultPosition=7
 
-**‘This Is a Time to Be Bold,’ Schumer Says**\
-`The Senate raced to respond to the coronavirus pandemic with an economic stabilization package, and lawmakers braced for potential travel restrictions.`\
-https://nytimes.com/video/us/100000007042123/senate-coronavirus.html?searchResultPosition=8
+**Mississippi Polls: Who Different Groups Supported**\
+``\
+https://nytimes.com/interactive/2020/03/10/us/elections/exit-polls-mississippi-primary.html?searchResultPosition=8
 
-**Turkey Announces a Second Coronavirus Death, Cases Jump to 191**\
-`Turkey announced late on Wednesday a second death related to the coronavirus, a 61-year-old man, and said that the number of confirmed cases had nearly doubled to 191 from 98 a day earlier.`\
-https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-health-coronavirus-turkey-cases.html?searchResultPosition=9
+**Idaho Presidential Republican Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/03/10/us/elections/results-idaho-president-republican-primary-election.html?searchResultPosition=9
 
-**Britain and EU Exchange Brexit Agreement Drafts**\
-`Britain and the European Union have exchanged draft legal texts containing their proposals for how relations between the two sides should work after the end of a Brexit transition period on Dec. 31, a British government spokesman said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/18/world/europe/18reuters-britain-eu.html?searchResultPosition=10
+**Missouri Presidential Republican Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/03/10/us/elections/results-missouri-president-republican-primary-election.html?searchResultPosition=10
 
