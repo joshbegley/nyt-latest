@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/03/18/business/ap-financial-markets-commoditie
 https://nytimes.com/2020/03/18/us/coronavirus-florida-desantis.html?searchResultPosition=4
 
 **Cuomo Calls Hospital Ship ‘Extraordinary Step’**\
-`Gov. Andrew M. Cuomo discussed a floating hospital ship and other precautionary measures for New York but stopped short of issuing a shelter-in-place recommendation.`\
+`Gov. Andrew M. Cuomo discussed a floating hospital ship and other precautionary measures for New York.`\
 https://nytimes.com/video/us/politics/100000007041551/cuomo-coronavirus.html?searchResultPosition=5
 
 **Lessening the Economic Toll of the Coronavirus**\
