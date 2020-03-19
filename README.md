@@ -1,40 +1,40 @@
+**U.S. Life Insurers Impose Waiting Periods to Skirt Coronavirus Risk**\
+`U.S. life insurers are trying to curb their own risks to coronavirus by imposing waiting periods for applicants who have traveled to regions with widespread outbreaks, industry experts said.`\
+https://nytimes.com/reuters/2020/03/19/us/19reuters-health-coronavirus-insurance.html?searchResultPosition=1
+
+**From a Trickle to a Steady Flow: Coronavirus Caseload Tests U.S. Military**\
+`It is not even 10 a.m. and Navy nurse Lieutenant Gretta Walker has already sent at least eight people for coronavirus screening at Fort Belvoir, Virginia.`\
+https://nytimes.com/reuters/2020/03/19/us/19reuters-health-coronavirus-usa-pentagon.html?searchResultPosition=2
+
+**For Better or Worse, Coronavirus Tests Couples Forced to Share Home Offices**\
+`Before coronavirus shut his office, Scott Ford worked with his phone in one hand and chatted with his dozens of co-workers as he paced around their desks at Techstars, a startup accelerator based in Boulder, Colorado.`\
+https://nytimes.com/reuters/2020/03/19/us/19reuters-health-coronavirus-usa-marriage.html?searchResultPosition=3
+
+**Factbox: Airlines Ground Flights, Count Mounting Costs of the Coronavirus Shock**\
+`Airlines across the globe are feeling the pain as travel demand withers because of the coronavirus outbreak, scrapping flights and ditching financial forecasts.`\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-airlines-factbox.html?searchResultPosition=4
+
+**Exclusive: China to Ramp Up Spending to Revive Economy, Could Cut Growth Target-Sources**\
+`China is set to unleash trillions of yuan of fiscal stimulus to revive an economy expected to shrink for the first time in four decades amid the coronavirus pandemic, while a planned growth target is likely to be cut, according to four policy sources. `\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-china-economy-stimulus-exclusive.html?searchResultPosition=5
+
+**Two Generic Drugs Being Tested in U.S. in Race to Find Coronavirus Treatments**\
+`U.S. researchers, following the lead of scientists in other countries, have launched studies to see whether widely-available, low-cost generic drugs can be used to help treat the illness caused by the new coronavirus.`\
+https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-health-coronavirus-usa-treatments.html?searchResultPosition=6
+
+**EU Border Restrictions Due to Virus Are Disrupting Food Supply: Food Industry**\
+`Restrictions imposed by several European Union countries at their borders with other members of the bloc due to the coronavirus are causing disruption for the supply of food, representatives of the industry and farmers said on Thursday.`\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-eu-food.html?searchResultPosition=7
+
+**EU Health Regulator Calls for Larger Studies on Potential COVID-19 Treatments**\
+`A committee of the European healthcare regulator urged researchers to prioritize larger studies into potential treatments for COVID-19, as they are most likely to generate conclusive data.`\
+https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-health-coronavirus-ema-trials.html?searchResultPosition=8
+
+**Iran's Death Toll From New Coronavirus Outbreak Rises to 1,284**\
+`Iran's death toll from the coronavirus outbreak jumped to 1,284 on Thursday, a health ministry official told state TV, as the total number of infected people increased to 18,407 in the Islamic Republic, the worst-affected country in the Middle East.`\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-iran.html?searchResultPosition=9
+
 **On Politics: We’ll Be Here a While**\
 `Election and household stasis set in: This is your morning tip sheet.`\
-https://nytimes.com/2020/03/19/us/politics/biden-sanders-trump-coronavirus.html?searchResultPosition=1
-
-**Big Rigs Begin to Trade Diesel for Electric Motors**\
-`Tractor-trailer fleets will take time to electrify, and start-ups and established truck makers are racing to get their models on the road.`\
-https://nytimes.com/2020/03/19/business/electric-semi-trucks-big-rigs.html?searchResultPosition=2
-
-**‘Human Capital’ Review: The Waiter’s in a Coma. Tennis Anyone?**\
-`This movie seems set to deliver riffs on class, but offers up only indifference and an amusing turn by Marisa Tomei.`\
-https://nytimes.com/2020/03/19/movies/human-capital-review.html?searchResultPosition=3
-
-**‘Hooking Up’ Review: Why Don’t We Do It on the Road?**\
-`Brittany Snow and Sam Richardson embark on a different kind of physical therapy in this sex comedy.`\
-https://nytimes.com/2020/03/19/movies/hooking-up-review.html?searchResultPosition=4
-
-**‘Justine’ Review: A Bittersweet Intersection of Lonely Lives**\
-`A single mother befriends a young girl with spina bifida in this earnest character study.`\
-https://nytimes.com/2020/03/19/movies/justine-review.html?searchResultPosition=5
-
-**EU Brexit Negotiator Michel Barnier Has Coronavirus**\
-`Michel Barnier, the European Union's chief negotiator for the bloc's future relationship with Britain after Brexit, says he has been infected with the coronavirus.`\
-https://nytimes.com/aponline/2020/03/19/business/bc-eu-virus-outbreak-brexit.html?searchResultPosition=6
-
-**UK Manufacturers Demand Immediate Help, Warning of Layoffs**\
-`A group representing British manufacturers said on Thursday it wanted an immediate deferment of tax and social security payments national, warning that thousands of layoffs were looming as the coronavirus crisis hits the economy.`\
-https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-health-coronavirus-britain-companies.html?searchResultPosition=7
-
-**Motor Racing-Formula One Considering Delay to 2021 Rules**\
-`Formula One could push back a major rules revamp to 2022 on Thursday with bosses and teams discussing by telephone the impact of the spreading coronavirus on this season and next.`\
-https://nytimes.com/reuters/2020/03/19/sports/autoracing/19reuters-health-coronavirus-f1-rules.html?searchResultPosition=8
-
-**EU's Brexit Top Negotiator Barnier Has Coronavirus**\
-`The European Union's chief negotiator for Brexit, Michel Barnier, said on Thursday he had tested positive for COVID-19, the disease caused by the novel coronavirus.`\
-https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-health-coronavirus-brexit-barnier.html?searchResultPosition=9
-
-**ECB Gives Banks 115 Billion Euros in Ultra-Cheap Loans**\
-`The European Central Bank allotted 115.0 billion euros ($124 billion) in a three-year long-term lending facility on Thursday in the first tender since it eased terms to induce commercial banks to borrow. `\
-https://nytimes.com/reuters/2020/03/19/us/19reuters-ecb-policy-loan.html?searchResultPosition=10
+https://nytimes.com/2020/03/19/us/politics/biden-sanders-trump-coronavirus.html?searchResultPosition=10
 
