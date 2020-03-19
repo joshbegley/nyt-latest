@@ -1,40 +1,40 @@
+**Swiss Pro Rider Swaps Racesuit for Doctor's Uniform on Coronavirus Frontline**\
+`Swiss professional cyclist Elise Chabbey has swapped her racesuit for her doctor's uniform following the shutdown of the season because of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/19/sports/cycling/19reuters-health-coronavirus-cycling.html?searchResultPosition=1
+
+**Chad Confirms First Case of Coronavirus: Government Statement**\
+`Chad confirmed its first case of coronavirus on Thursday, a Moroccan national who had traveled to the country from Cameroon, the government said in a statement.`\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-chad.html?searchResultPosition=2
+
+**EU Tells Telcos Not to Discriminate Against Content Providers**\
+`The European Commission on Thursday told telecoms providers not to discriminate against individual content providers despite increased internet traffic on their networks caused by thousands of house-bound Europeans teleworking or video streaming due to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/19/technology/19reuters-health-coronavirus-internet.html?searchResultPosition=3
+
+**Gabbard Ends Long-Shot 2020 Bid After Disruptive Candidacy**\
+`Hawaii congresswoman Tulsi Gabbard is suspending her presidential campaign, ending a long-shot effort that saw her feuding with Hillary Clinton and raising fears among Democrats that she would mount a third-party 2020 bid.`\
+https://nytimes.com/aponline/2020/03/19/us/politics/ap-us-election-2020-gabbard.html?searchResultPosition=4
+
+**Tulsi Gabbard Drops Out of Presidential Race**\
+`The representative from Hawaii, who often defied her own party, announced the end of her campaign and said she would back Joe Biden.`\
+https://nytimes.com/2020/03/19/us/politics/tulsi-gabbard-drops-out.html?searchResultPosition=5
+
 **Hundreds of Israelis Mount Protest Convoy as Netanyahu Clings On**\
 `Demonstrators, defying coronavirus fears, took to a main highway into Jerusalem to condemn what they say are antidemocratic moves by the prime minister since his March 2 election defeat.`\
-https://nytimes.com/2020/03/19/world/middleeast/israel-convoy-protest-netanyahu.html?searchResultPosition=1
+https://nytimes.com/2020/03/19/world/middleeast/israel-convoy-protest-netanyahu.html?searchResultPosition=6
 
 **Bank of England Cuts Rates to 0.1%, Ramps Up Bond-Buying**\
-`The Bank of England cut interest rates to 0.1% and ramped up its bond-buying program on Thursday in its latest attempt to shield Britain's economy from the coronavirus outbreak.    `\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-britain-boe.html?searchResultPosition=2
+`The Bank of England cut interest rates to 0.1%, its second emergency rate cut in just over a week, and ramped up its bond-buying program on Thursday in its latest attempt to shield Britain's economy from the coronavirus outbreak.    `\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-britain-boe.html?searchResultPosition=7
 
 **Germany Expects 10 Billion Euro Extra Spending on Short-Time Work Over Coronavirus**\
 `Germany expects its decision to lower the bar for companies to apply for short-time work state aid to cost the labor office roughly 10 billion euros ($10.8 billion), a draft of the new regulation seen by Reuters showed on Thursday.    `\
-https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-health-coronavirus-germany-spending.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-health-coronavirus-germany-spending.html?searchResultPosition=8
 
 **Europe Needs to Match ECB's Bold Action With Fiscal Policy: Kazimir**\
 `Europe's political establishment needs to match the European Central Bank's bold stimulus move with a similarly ambitious fiscal package to ease the bloc's crisis, ECB policymaker Peter Kazimir said on Twitter on Thursday.`\
-https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-ecb-policy-kazimir.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-ecb-policy-kazimir.html?searchResultPosition=9
 
 **Turkish Soldier Killed in Syria's Idlib: Governor's Office**\
 `One Turkish soldier was killed in Syria's northwestern province of Idlib, the governor's office in Turkey's central Sivas province said on Thursday.`\
-https://nytimes.com/reuters/2020/03/19/world/middleeast/19reuters-syria-security-turkey.html?searchResultPosition=5
-
-**Bank of England Cuts Rates Again to Help Economy Amid Virus**\
-`The Bank of England has slashed its key interest rate to 0.1%, its lowest-ever level, amid global economic turmoil sparked by the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/03/19/business/bc-britain-economy.html?searchResultPosition=6
-
-**Welcome to McDonald’s. Can I Get Paid Leave With That?**\
-`The government’s relief bill doesn’t cover many McDonald’s workers. It’s time for the company to step up.`\
-https://nytimes.com/video/opinion/100000007033718/mcdonalds-paid-leave-coronavirus.html?searchResultPosition=7
-
-**Factbox: Europeans Ask What Has EU Done for Us? Answer: 2.5 Trillion Stimulus**\
-`The European Union has responded to the coronavirus, seen by German Chancellor Angela Merkel as the biggest challenge since World War Two, with a wide range of measures to limit the spread of the disease and the resulting economic damage.`\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-eu-measures-factbox.html?searchResultPosition=8
-
-**The Staggering Rise in Jobless Claims This Week**\
-`When we write the history of the coronavirus recession, we’ll say the downturn started in early March.`\
-https://nytimes.com/interactive/2020/03/19/upshot/coronavirus-jobless-claims-states.html?searchResultPosition=9
-
-**T’s Guide to Staying at Home, and Making the Best of It**\
-`Hunkering down in isolation? Keep the stress at bay with a delicious meal, some self-care and a riveting read.`\
-https://nytimes.com/2020/03/19/t-magazine/stay-at-home-coronavirus-ideas.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/19/world/middleeast/19reuters-syria-security-turkey.html?searchResultPosition=10
 
