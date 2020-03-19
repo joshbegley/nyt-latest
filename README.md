@@ -1,40 +1,40 @@
-**Exclusive: Ferrari, Fiat Look at Helping Italy Make Ventilators in Coronavirus Crisis**\
-`Italian carmakers Ferrari and Fiat Chrysler are in talks with the nation's biggest ventilator manufacturer to help it boost production of the life-saving machines which are urgently needed in the coronavirus crisis, company officials said on Thursday.`\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-ventilators-italy.html?searchResultPosition=1
+**Factbox: Biden, Sanders the Last Two Standing in 2020 Democratic Presidential Race**\
+`Joe Biden and Bernie Sanders are the last White House candidates standing in the Democratic race to challenge Republican Donald Trump in November, after U.S. Representative Tulsi Gabbard of Hawaii on Thursday ended her longshot bid and endorsed Biden.`\
+https://nytimes.com/reuters/2020/03/19/us/politics/19reuters-usa-election-2020-candidates-factbox.html?searchResultPosition=1
 
-**Minnesota Jury Acquits Sheriff's Deputy in Shooting Death**\
-`A Minnesota sheriff's deputy was acquitted of second-degree manslaughter on Thursday in the 2018 fatal shooting of a suicidal man who held a gun to his own head as he knelt in the street during a 40-minute standoff with police. `\
-https://nytimes.com/aponline/2020/03/19/us/ap-us-police-shooting-minnesota.html?searchResultPosition=2
+**U.S. Senate Leader McConnell Says Large Coronavirus Economic Relief Bill Near Ready**\
+`U.S. Senate Majority Leader Mitch McConnell said on Thursday that he and his fellow Republicans were finalizing details on a sweeping economic stimulus bill to deal with fallout from a growing coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/19/us/19reuters-health-coronavirus-usa-senate.html?searchResultPosition=2
 
-**Spriiiing Breeeak, at Home**\
-`Going through spring break withdrawal? These films will bring the bikinis, beaches and belly flops right to your screen.`\
-https://nytimes.com/2020/03/19/movies/virus-spring-break-movies.html?searchResultPosition=3
+**This Artist Got His Start as an I.C.U. Nurse**\
+`Nate Lewis developed a visual language in the rhythms of EKGs. Now, his intricate works on paper take the scalpel to society.`\
+https://nytimes.com/2020/03/19/arts/dance/nate-lewis-art-fridman-gallery.html?searchResultPosition=3
 
-**Running From Coronavirus: A Back-to-Basics Exercise Boom**\
-`With gyms and pools closed and sports leagues shut down, a miniboom is emerging in running, a natural for social distancing.`\
-https://nytimes.com/2020/03/19/sports/running-exercise-coronavirus.html?searchResultPosition=4
+**U.S. Recession Chances Now at 80% Despite Fed Emergency Moves: Reuters Poll**\
+`The coronavirus crisis has almost certainly ended the longest U.S. expansion on record and pushed the economy into the start of a short slump, according to analysts polled by Reuters who gave a median 80% chance of recession this year.`\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-usa-economy-poll.html?searchResultPosition=4
 
-**Governors Ask Feds for Funding, Flexibility, to Battle Virus**\
-`States need more federal funding and increased access to test kits, ventilators and other supplies to fight the coronavirus, Maryland Gov. Larry Hogan said Thursday.`\
-https://nytimes.com/aponline/2020/03/19/us/ap-us-virus-outbreak-governors.html?searchResultPosition=5
+**Inside the Week That Has Left the NBA and NHL Shut Down**\
+`It has been just one week.`\
+https://nytimes.com/aponline/2020/03/19/sports/basketball/ap-bkn-virus-outbreak-nba-nhl-the-week.html?searchResultPosition=5
 
-**Vital but Vulnerable, Cleaners Hold the Line Against a Virus**\
-`When hospitals need to prep a room for the next coronavirus test, when jetliners discharge their passengers at the gate, when suburbanites start to take sanitary precautions more seriously, the call goes out:`\
-https://nytimes.com/aponline/2020/03/19/business/ap-us-virus-outbreak-cleaning-workers.html?searchResultPosition=6
+**America's Money Market Industry: Is It at Risk?**\
+`Seen as a quintessentially safe bet for many Americans, the $3.8 trillion money-market fund industry is under severe duress for a second time in the past decade as investors weigh the risk of a global economic shutdown. `\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-moneymarkets-explainer.html?searchResultPosition=6
 
-**To Stay Afloat, the Restaurant Business Clings to ‘Contactless Delivery’**\
-`Reinvented menus, lowered prices, fire sales and the good old telephone are enlisted in the fight to survive the coronavirus crisis.`\
-https://nytimes.com/2020/03/19/dining/restaurant-delivery-takeout-coronavirus.html?searchResultPosition=7
+**Twilight Time: Long-Lost Rod Serling Baseball Comedy on Deck**\
+`Years before he journeyed to "The Twilight Zone," Rod Serling made a brief detour to the strike zone.`\
+https://nytimes.com/aponline/2020/03/19/sports/baseball/ap-bbo-baseball-before-the-twilight-zone.html?searchResultPosition=7
 
-**A Terrific New Thriller About a Mysterious Man and Rats. Lots of Rats.**\
-`In “The Red Lotus,” Chris Bohjalian strikes a fine balance between disclosure and secrecy.`\
-https://nytimes.com/2020/03/19/books/review-red-lotus-chris-bohjalian.html?searchResultPosition=8
+**9 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2020/03/19/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=8
 
-**No Family, Fanfare for NASA Astronaut Launching Next Month**\
-`A NASA astronaut who's about to leave the planet for six months will blast off without any family or fanfare because of the coronavirus. `\
-https://nytimes.com/aponline/2020/03/19/science/ap-us-sci-space-station.html?searchResultPosition=9
+**Finding Joy Indoors in Troubled Times, One Leaf at a Time**\
+`I have spent my first full week of isolation carefully observing one of my houseplants. Dylan, as my fiancee and I so fondly call her, has been growing new leaves at an uncharacteristically rapid rate. `\
+https://nytimes.com/aponline/2020/03/19/us/ap-us-homes-plant-joy.html?searchResultPosition=9
 
-**Gratitude in the Face of Crisis**\
-`We know from research that a daily gratitude practice is good for us, helping us reduce stress, get better sleep and stay healthier.`\
-https://nytimes.com/2020/03/19/well/live/virus-well-newsletter-gratitude.html?searchResultPosition=10
+**Rio Reports First Coronavirus Deaths as Brazil Closes Land Borders**\
+`Brazil's tourist mecca of Rio de Janeiro reported its first two coronavirus deaths on Thursday, bringing the country's toll to six, as Latin America's largest nation closed more borders to foreign visitors.`\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-brazil.html?searchResultPosition=10
 
