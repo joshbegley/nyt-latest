@@ -1,40 +1,40 @@
+**Hedge Fund Manager Apologizes for Wiping Saliva on Hong Kong Metro Rail**\
+`A hedge fund manager in Hong Kong has publicly apologised after a parody video of him licking his finger and wiping it on a hand rail in a metro car went viral, sparking anger in the city which is grappling to contain an outbreak of the new coronavirus. `\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-hongkong-hedgefund.html?searchResultPosition=1
+
+**Surgeon General's TV Praise of Trump Earns His 'Star' Label**\
+`The U.S. surgeon general caught the eye of Donald Trump in a tried-and-true way: praising the 45th president on television. `\
+https://nytimes.com/aponline/2020/03/19/us/politics/ap-us-virus-outbreak-surgeon-general.html?searchResultPosition=2
+
+**Soccer: Neville Says His Hotels Free for NHS Staff During Coronavirus Crisis**\
+`Gary Neville has said that the two hotels he co-owns with former Manchester United team mate Ryan Giggs will be made available to National Health Service (NHS) staff at no cost as they fight the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/19/sports/soccer/19reuters-health-coronavirus-soccer-england-neville.html?searchResultPosition=3
+
+**Celebrities Get Virus Tests, Raising Concerns of Inequality**\
+`Celebrities, politicians and professional athletes faced a backlash this week as many revealed that they had been tested for the coronavirus, even when they didn’t have a fever or other tell-tale symptoms.`\
+https://nytimes.com/aponline/2020/03/19/us/politics/ap-us-virus-outbreak-unequal-testing.html?searchResultPosition=4
+
 **Oil Pares Gains as Investors Wait to See if Coronavirus Stimulus Works**\
 `Oil prices rose on Thursday but pared early gains as investors tried to assess how effective massive stimulus by central banks will be in shoring up the global economy as the shock from the coronavirus pandemic deepens. `\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-global-oil.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/03/19/business/19reuters-global-oil.html?searchResultPosition=5
 
 **Tokyo 2020 Chief Mori Not Contacted by Health Authorities About Virus: Panel**\
 `Japanese health authorities have not contacted Tokyo 2020 Olympics chief Yoshiro Mori about the risk of being infected with coronavirus, the Games organizing committee said on Thursday.`\
-https://nytimes.com/reuters/2020/03/19/sports/olympics/19reuters-health-coronavirus-mori.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/19/sports/olympics/19reuters-health-coronavirus-mori.html?searchResultPosition=6
 
 **Avoid U.S. Visits Over Coronavirus, Mayor of Mexico's Tijuana Says**\
 `The mayor of Tijuana, the biggest Mexican city on the U.S. border, on Wednesday urged residents to restrict visits to the United States to reduce the risk of catching the coronavirus, as Mexico's tally of infections climbed.`\
-https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-health-coronavirus-mexico-tally.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-health-coronavirus-mexico-tally.html?searchResultPosition=7
 
 **Mexican Lower House Approves Emergency Fund for Coronavirus Use**\
 `Mexico's lower house of Congress on Wednesday approved a bill to create a fund that would free up nearly 181 billion pesos ($7.5 billion) for use in emergencies such as combating coronavirus.`\
-https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-health-coronavirus-mexico-fund.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-health-coronavirus-mexico-fund.html?searchResultPosition=8
 
 **How Long Will Americans Be Fighting the Coronavirus?**\
 `In a matter of days, millions of Americans have seen their lives upended by measures to curb the spread of the new coronavirus.`\
-https://nytimes.com/aponline/2020/03/19/health/ap-us-med-virus-outbreak-when-will-it-end.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/03/19/health/ap-us-med-virus-outbreak-when-will-it-end.html?searchResultPosition=9
 
 **Japan Panel May Advise Relaxation of Virus Controls for Some Regions: NHK**\
 `An expert panel guiding Japan's coronavirus response may advise a relaxation of controls in regions that have not seen outbreaks, broadcaster NHK reported on Thursday, as the hard hit northern island of Hokkaido prepared to end its state of emergency.`\
-https://nytimes.com/reuters/2020/03/19/world/asia/19reuters-health-coronavirus-japan.html?searchResultPosition=6
-
-**Federal Reserve Launches 3rd Emergency Lending Program**\
-`The Federal Reserve announced late Wednesday that it will establish an emergency lending facility to help unclog a short-term credit market that has been disrupted by the viral outbreak.`\
-https://nytimes.com/aponline/2020/03/19/business/bc-us-virus-outbreak-federal-reserve.html?searchResultPosition=7
-
-**Cash Is King as Emergency Stimulus Fails to Stop Market Panic**\
-`The dollar surged and everything else was blown away on Thursday as emergency central bank measures in Europe, the United States and Australia failed to halt a fresh wave of panic selling.`\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-global-markets.html?searchResultPosition=8
-
-**Coronavirus Live Updates: No New Local Cases in China; Trump Offers Relief to Taxpayers**\
-`For the first time since the outbreak began, China reported no new local infections, a sign its epidemic may be coming under control. In the U.S., President Trump invoked a wartime law to press companies to produce medical supplies.`\
-https://nytimes.com/2020/03/19/world/coronavirus-news.html?searchResultPosition=9
-
-**Contagion of Fear, Uncertainty Infect Financial Markets**\
-`The rapidly deteriorating health of the financial markets is being driven by a contagion of fear and uncertainty about a global pandemic that's infecting the economy in ways that seemed unfathomable just a month ago.`\
-https://nytimes.com/aponline/2020/03/19/business/ap-financial-markets-big-swings.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/19/world/asia/19reuters-health-coronavirus-japan.html?searchResultPosition=10
 
