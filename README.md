@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/03/18/sports/olympics/18reuters-health-coronavirus-olympics-garnbret.html?searchResultPosition=1
 
 **Federal Reserve Gives Emergency Aid to Mutual Funds**\
-`The late-night announcement was the latest step by the central bank to keep financial markets functioning in the coronavirus crisis.`\
+`The late-night announcement was the latest step by the central bank to keep financial markets functioning during the coronavirus crisis.`\
 https://nytimes.com/2020/03/18/business/federal-reserve-mutual-funds-coronavirus-aid.html?searchResultPosition=2
 
 **Corrections: Month 19, 2020**\
