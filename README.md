@@ -32,7 +32,7 @@ https://nytimes.com/aponline/2020/03/19/sports/soccer/ap-soc-virus-outbreak-engl
 
 **A Cascade of Warnings, Heard but Unheeded, Before Virus Outbreak**\
 `Government exercises, including one last year, made clear that the U.S. was not ready for a pandemic like the coronavirus. But little was done.`\
-https://nytimes.com/2020/03/19/us/politics/coronavirus-warnings-unheeded-trump.html?searchResultPosition=9
+https://nytimes.com/2020/03/19/us/politics/trump-coronavirus-outbreak.html?searchResultPosition=9
 
 **Need a Laugh? Need a Lot? Stream These 15 Binge-Worthy Sitcoms.**\
 `Some can be binged over a few days. Some might take a few months. All of them should boost your spirits.`\
