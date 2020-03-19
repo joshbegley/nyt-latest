@@ -30,7 +30,7 @@ https://nytimes.com/video/opinion/100000007033718/mcdonalds-paid-leave-coronavir
 `The European Union has responded to the coronavirus, seen by German Chancellor Angela Merkel as the biggest challenge since World War Two, with a wide range of measures to limit the spread of the disease and the resulting economic damage.`\
 https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-eu-measures-factbox.html?searchResultPosition=8
 
-**Jobless Claims Skyrocket, but the Worst Is Probably Still Ahead**\
+**The Staggering Rise in Jobless Claims This Week**\
 `When we write the history of the coronavirus recession, we’ll say the downturn started in early March.`\
 https://nytimes.com/interactive/2020/03/19/upshot/coronavirus-jobless-claims-states.html?searchResultPosition=9
 
