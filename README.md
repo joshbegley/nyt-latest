@@ -10,13 +10,13 @@ https://nytimes.com/aponline/2020/03/19/us/ap-us-oklahoma-city-bombing-ceremony.
 `Wall Street’s plunge into a bear market after a nearly 11-year bull market has been fast and severe, erasing nearly all the S&P 500’s gains since Donald Trump's inauguration.`\
 https://nytimes.com/aponline/2020/03/19/business/ap-off-the-charts-bucking-the-bear.html?searchResultPosition=3
 
-**I Did Not Plan to Be Pregnant in a Pandemic**\
-`An early lesson in uncertainties and parenthood.`\
-https://nytimes.com/2020/03/19/opinion/coronavirus-pregnancy.html?searchResultPosition=4
-
 **I Refuse to Run a Coronavirus Home School**\
 `My kids are watching TV, playing video games and eating cookies. It’s fine.`\
-https://nytimes.com/2020/03/19/opinion/coronavirus-home-school.html?searchResultPosition=5
+https://nytimes.com/2020/03/19/opinion/coronavirus-home-school.html?searchResultPosition=4
+
+**I Did Not Plan to Be Pregnant in a Pandemic**\
+`An early lesson in uncertainties and parenthood.`\
+https://nytimes.com/2020/03/19/opinion/coronavirus-pregnancy.html?searchResultPosition=5
 
 **How to Be Lonely**\
 `It’s not just a negative state to be vanquished. There’s magic in it too.`\
