@@ -1,40 +1,40 @@
+**Brazil Agribusiness Groups Seek Government Support to Keep Ports Running: Letter**\
+`A group of almost 50 agribusiness associations has sought support from the federal government to guarantee Brazilian ports continue to operate amid the coronavirus crisis, according to a letter dated March 18 seen by Reuters.`\
+https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-brazil-ports.html?searchResultPosition=1
+
+**NFL Notebook: Vikings to Re-Sign K Bailey**\
+`The Minnesota Vikings and kicker Dan Bailey agreed to contract terms, the team announced Thursday.`\
+https://nytimes.com/reuters/2020/03/19/sports/football/19reuters-football-nfl-notebook.html?searchResultPosition=2
+
+**Brazil Unveils $2 Billion Package for 11 Million Low-Earning Workers Hit by Coronavirus**\
+`Brazil's government on Thursday unveiled a 10 billion reais ($2 billion) aid package for some 11 million low-wage workers whose income and working hours will be reduced by the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-brazil-economy.html?searchResultPosition=3
+
+**MLB Cancels Games in Mexico City, San Juan**\
+`Major League Baseball games scheduled to be played in Mexico City and San Juan, Puerto Rico, are canceled in response to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/19/sports/baseball/19reuters-baseball-mlb-international-games.html?searchResultPosition=4
+
+**Fins of Prehistoric Fish Reveal Origins of the Human Hand**\
+`Inside the stout fins of a fish that prowled the shallow waters of an estuary in what is now eastern Canada about 380 million years ago, scientists have found what they call the evolutionary origins of the human hand.`\
+https://nytimes.com/reuters/2020/03/19/world/asia/19reuters-science-fingers.html?searchResultPosition=5
+
+**What to Watch: How About Cherry-Pit Spitting or Australian Rules Football?**\
+`Thursday brought an end to soccer in Turkey, but Aussie rules football got started on schedule.`\
+https://nytimes.com/2020/03/19/sports/sports-coronavirus-cancellations.html?searchResultPosition=6
+
+**Pakistani Doctor Arrested in Minnesota on Terrorism Charge**\
+`A Pakistani doctor who was working as a research coordinator at a medical clinic in Rochester, Minnesota, was arrested Thursday on terrorism charges, after prosecutors say he told others that he pledged his allegiance to the Islamic State group and wanted to carry out “lone wolf” attacks in the United States.`\
+https://nytimes.com/aponline/2020/03/19/us/ap-us-islamic-state-minnesota.html?searchResultPosition=7
+
+**Czech Government Will Compensate Wage Costs to Firms Affected by Coronavirus**\
+`The Czech government will compensate companies affected by measures taken to slow the spread of the coronavirus for their costs of paying wages, Prime Minister Andrej Babis said on Thursday.`\
+https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-health-coronavirus-czech-economy.html?searchResultPosition=8
+
+**ECB's Lagarde: Ready to Increase Size of Asset Purchase Programmes Amid Virus Outbreak**\
+`European Central Bank President Christine Lagarde said on Thursday the ECB is ready to increase the size of its asset-purchase programmes by as much and as long as required in the ongoing coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/19/us/19reuters-health-coronavirus-ecb-lagarde.html?searchResultPosition=9
+
 **Technology Issues Strain Work From Home Efforts at Big U.S. Banks**\
 `Citigroup Inc asked its non-essential workers across North America to hold off on logging into its remote access system until 1 p.m. on Thursday, as it braced for many employees to begin working from home, according to sources familiar with the matter. `\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-banks-technology.html?searchResultPosition=1
-
-**Senate Republicans Introduce New Coronavirus Bill**\
-`U.S. Senate Majority Leader Mitch McConnell on Thursday introduced a massive new legislative package to combat the effects of the coronavirus outbreak, saying Republicans would soon begin negotiations with Democrats aimed at brokering a deal to pass it.`\
-https://nytimes.com/reuters/2020/03/19/us/politics/19reuters-health-coronavirus-usa-legislation.html?searchResultPosition=2
-
-**U.S. Could Announce Southern Border Restrictions to Curb Coronavirus-Sources**\
-`The United States could announce restrictions on travel across the U.S.-Mexico border as soon as Friday, limiting crossings to essential travel, two officials briefed on the matter said.`\
-https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-health-coronavirus-mexico-usa.html?searchResultPosition=3
-
-**How Are We Supposed to Vote During a Pandemic?**\
-`There are ways to prevent a crisis of public health from becoming a crisis of democracy.`\
-https://nytimes.com/2020/03/19/opinion/coronavirus-voting-elections.html?searchResultPosition=4
-
-**As Pandemic Grows, U.S. Warns Americans Not to Travel Abroad**\
-`The State Department also said that citizens abroad should either return home or stay in place. Some Americans overseas have urged the Trump administration to evacuate them.`\
-https://nytimes.com/2020/03/19/us/politics/coronavirus-state-department-travel.html?searchResultPosition=5
-
-**Airbnb Fields Investor Interest for Stake Sale: Sources**\
-`Airbnb Inc has received inquiries from potential investors who want to acquire a stake in the U.S. home rental company in the wake of the coronavirus outbreak, people familiar with the matter said on Thursday. `\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-airbnb-investment.html?searchResultPosition=6
-
-**Former U.N. Ambassador Nikki Haley Leaves Boeing Board, Opposing Federal Aid**\
-`Boeing Co said on Thursday that former U.N. ambassador Nikki Haley has resigned from its board as she opposes the planemaker's move to seek financial aid from the federal government amid the 737 MAX and the coronavirus crisis. `\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-boeing-board-nikki-haley.html?searchResultPosition=7
-
-**Coronavirus, Unemployment, Snowmen: Your Thursday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/03/19/briefing/coronavirus-unemployment-snowmen.html?searchResultPosition=8
-
-**Americans Stranded When Morocco Shuts Borders Call for Help**\
-`Thousands of travelers are stranded in Morocco, which has closed its borders, gone into lockdown and is shuttering hotels in major cities to try to stem the spread of the coronavirus. `\
-https://nytimes.com/aponline/2020/03/19/world/africa/ap-virus-outbreak-stranded-in-morocco.html?searchResultPosition=9
-
-**Catholics Worldwide Pray With Pope for End to Coronavirus Pandemic**\
-`Catholics around the world joined Pope Francis in praying the rosary on Thursday night to ask God to end the coronavirus pandemic, which has killed more people in Italy than anywhere else. `\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-pope.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-banks-technology.html?searchResultPosition=10
 
