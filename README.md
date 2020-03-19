@@ -1,40 +1,40 @@
-**Former Uber Self-Driving Head Levandowski Agrees to Plea Deal Over Google Secrets**\
-`Anthony Levandowski, known for advancing self-driving car technology in the last decade, agreed to plead guilty on Thursday to taking sensitive documents from his former employer Google before joining rival Uber Technologies Inc.`\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-uber-autonomous-levandowski.html?searchResultPosition=1
+**Argentina to Give Teleconference on Public Debt Negotiations on Friday**\
+`Argentina's minister of economy will give a teleconference on Friday on the country's ongoing public debt negotiations, the ministry said on Thursday.`\
+https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-argentnia-economy.html?searchResultPosition=1
 
-**JPMorgan Chase to Close 1,000 Chase Branches on Coronavirus Concerns**\
-`JPMorgan Chase and Co will temporarily shut about 1,000 bank branches, roughly 20%, to protect employees and reduce the spread of the coronavirus, according to a memo the bank sent to employees Wednesday.`\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-jpmorgan-coronavirus-branches.html?searchResultPosition=2
+**Fed's Daly Says 'Our Tools Are Starting to Work' in Markets**\
+`The U.S. central bank's moves this week to slash borrowing costs, shore up plumbing in key pockets of the financial markets and remove barriers to tapping the Fed's emergency loan window are starting to have an effect, San Francisco Federal Reserve President Mary Daly said on Thursday.`\
+https://nytimes.com/reuters/2020/03/19/us/19reuters-health-coronavirus-fed-daly.html?searchResultPosition=2
 
-**Washington State Reports Eight New Coronavirus Deaths**\
-`Washington state on Thursday reported eight more deaths from the coronavirus pandemic, bringing the death toll there to 74, the most of any U.S. state.`\
-https://nytimes.com/reuters/2020/03/19/us/19reuters-health-coronavirus-washington-state.html?searchResultPosition=3
+**Three Members of 76ers' Organization Test Positive for Virus**\
+`Three members of the Philadelphia 76ers organization have tested positive for coronavirus, the team announced Thursday.`\
+https://nytimes.com/reuters/2020/03/19/sports/basketball/19reuters-basketball-nba-phi-covid-19.html?searchResultPosition=3
 
-**JPMorgan's Jamie Dimon Recovering Well, Mid-April Return Possible: Source**\
-`JPMorgan Chase & Co Chief Executive Officer Jamie Dimon's recovery from recent heart surgery is going well and the face of the U.S. banking industry could be back to work as soon as mid-April, a source said on Thursday.`\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-jp-morgan-dimon.html?searchResultPosition=4
+**Rates on Commercial Paper Continue to Rise After Fed Action**\
+`The cost for companies to borrow short-term loans increased again on Thursday, suggesting investors remained skeptical that the Federal Reserve's facility announced on Tuesday would significantly improve liquidity in the commercial paper market. `\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-credit-commercialpaper.html?searchResultPosition=4
 
-**LVMH Considering Buying Tiffany's Shares on Open Market: Bloomberg News**\
-`French luxury goods maker LVMH, which last year agreed to buy Tiffany & Co for $16.`\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-tiffany-m-a-lvmh.html?searchResultPosition=5
+**Bond Fund Outflows Set Weekly Record as Virus Upends Markets: Lipper**\
+`Taxable bond funds shed $55.9 billion in the week to Wednesday, the largest weekly outflow on record according to Lipper data dating back to 1992, as markets continued to be roiled by the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-usa-investment-mutualfunds.html?searchResultPosition=5
 
-**The Epic Failure of Coronavirus Testing in America**\
-`China and South Korea offer lessons in how to curb this pandemic.`\
-https://nytimes.com/2020/03/19/opinion/coronavirus-testing.html?searchResultPosition=6
+**Screw This Virus!**\
+`We had to be set apart in order to feel together.`\
+https://nytimes.com/2020/03/19/opinion/coronavirus-isolation.html?searchResultPosition=6
 
-**Sellers' Amazon Loans at Risk as Company Limits Warehouses to Essential Goods**\
-`Some Amazon sellers say the online retailer's abrupt decision to stop receiving non-essential inventory in response to the coronavirus pandemic could strangle the sales they need to make payments on their Amazon loans.  `\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-amazon-com-essential-merchants.html?searchResultPosition=7
+**Air New Zealand Gets $514 Million Lifeline From Government as Virus Hits Travel**\
+`Air New Zealand said on Friday it was offered a NZ$900 million ($514 million) lifeline by the government to keep the airline flying as travel curbs to stem the coronavirus outbreak threaten the survival of many airlines globally. `\
+https://nytimes.com/reuters/2020/03/19/world/asia/19reuters-air-new-zealand-debt.html?searchResultPosition=7
 
-**Nikki Haley Resigns From Boeing Board Over Airlines Bailout**\
-`Former U.N. ambassador Nikki Haley has resigned from the board of Boeing Co., cutting ties with a company she long supported as South Carolina governor because of her opposition to a bailout of the airplane manufacturer that is in the works amid the growing coronavirus  outbreak.`\
-https://nytimes.com/aponline/2020/03/19/business/bc-us-virus-outbreak-nikki-haley.html?searchResultPosition=8
+**California Asks Trump to Deploy U.S. Navy Hospital Ship 'Immediately'**\
+`California's governor on Thursday asked President Donald Trump to send a U.S. Navy hospital ship to the port of Los Angeles "immediately" as the state braces for an expected surge in the number of coronavirus cases over the next eight weeks.`\
+https://nytimes.com/reuters/2020/03/19/us/19reuters-health-coronavirus-california.html?searchResultPosition=8
 
-**Jobless Claims Mount as Employers and Workers Face Bleak Outlook**\
-`New filings for unemployment benefits rose 30 percent last week amid cutbacks and shutdowns over the coronavirus crisis.`\
-https://nytimes.com/2020/03/19/business/economy/coronavirus-employers-unemployment.html?searchResultPosition=9
+**'How Did Things End Up Like This?' America's Newly Unemployed Grapple With Coronavirus Fallout**\
+`Across the United States, thousands of waiters, cooks, hotel staff, actors, bartenders and workers in other sectors have suddenly found themselves unemployed as the coronavirus pandemic has scythed through the world's biggest economy.`\
+https://nytimes.com/reuters/2020/03/19/us/19reuters-health-coronavirus-usa-jobs.html?searchResultPosition=9
 
-**Trump Calls Off June G-7 Meeting Because of Virus**\
-`President Donald Trump on Thursday called off the G-7 meeting at Camp David scheduled for June, citing the ongoing coronavirus pandemic, the White House said.`\
-https://nytimes.com/aponline/2020/03/19/us/politics/ap-us-virus-outbreak-trump-g-7.html?searchResultPosition=10
+**Altria Suspends Operations at Manufacturing Center in Richmond**\
+`U.S. Marlboro maker Altria Group Inc said on Thursday it is temporarily cancelling operations at its Philip Morris USA unit's manufacturing facility at Richmond, as a second employee had tested positive for the coronavirus.`\
+https://nytimes.com/reuters/2020/03/19/us/19reuters-health-coronavirus-altria-group.html?searchResultPosition=10
 
