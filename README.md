@@ -1,40 +1,40 @@
-**European Soccer’s Leaders Plot a Speedy Return, With or Without Fans**\
-`The race is on to get the continent’s various leagues finished this summer, as various organizations put aside previous differences to hash out a new plan.`\
-https://nytimes.com/2020/03/19/sports/soccer/uefa-schedule-liverpool-lazio-coronavirus.html?searchResultPosition=1
+**Your Money: Now Is Not the Time to Stop Saving for Retirement**\
+`When you see soda on sale at the supermarket, do you run screaming into the parking lot in a panic? Or do you buy six? `\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-401ks.html?searchResultPosition=1
 
-**Museum Scales Back 25th Anniversary of Oklahoma City Bombing**\
-`The Oklahoma City National Memorial and Museum is planning to offer a recorded, one-hour television program in place of a live ceremony to mark the 25th anniversary of the Oklahoma City bombing due to concerns about the spread of the coronavirus.`\
-https://nytimes.com/aponline/2020/03/19/us/ap-us-oklahoma-city-bombing-ceremony.html?searchResultPosition=2
+**Connecticut Governor Moves Primary From April 28 to June 2**\
+`Connecticut Gov. Ned Lamont said Thursday he has decided to move the state's April 28 presidential primary to a later date to help stop the spread of the coronavirus.`\
+https://nytimes.com/aponline/2020/03/19/us/ap-us-virus-outbreak-connecticut-1st-ld-writethru.html?searchResultPosition=2
 
-**Clorox, Kroger Among Stocks Bucking the Bear Market**\
-`Wall Street’s plunge into a bear market after a nearly 11-year bull market has been fast and severe, erasing nearly all the S&P 500’s gains since Donald Trump's inauguration.`\
-https://nytimes.com/aponline/2020/03/19/business/ap-off-the-charts-bucking-the-bear.html?searchResultPosition=3
+**They Fled Coronavirus in Europe. Border Agents Asked if They’d Visited China or Iran.**\
+`Americans returning from Italy and Spain say border control officials didn’t screen them or tell them to isolate themselves.`\
+https://nytimes.com/2020/03/19/health/coronavirus-travel-ban.html?searchResultPosition=3
 
-**I Refuse to Run a Coronavirus Home School**\
-`My kids are watching TV, playing video games and eating cookies. It’s fine.`\
-https://nytimes.com/2020/03/19/opinion/coronavirus-home-school.html?searchResultPosition=4
+**Swedish FSA Slaps Record $386 Million Fine on Swedbank Over Money Laundering Breaches**\
+`Sweden's financial watchdog hit lender Swedbank with a record fine of 4 billion Swedish crowns ($386 million) on Thursday for serious deficiencies in its management of money laundering risks in its Baltic operations.`\
+https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-europe-moneylaundering-swedbank.html?searchResultPosition=4
 
-**I Did Not Plan to Be Pregnant in a Pandemic**\
-`An early lesson in uncertainties and parenthood.`\
-https://nytimes.com/2020/03/19/opinion/coronavirus-pregnancy.html?searchResultPosition=5
+**Your Money: Coronavirus Fears Shake Yale Economist Robert Shiller**\
+`In scary times like these, it is comforting to talk to someone who has seen and studied a lot of things – booms, busts, and everything in between.`\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-shiller.html?searchResultPosition=5
 
-**How to Be Lonely**\
-`It’s not just a negative state to be vanquished. There’s magic in it too.`\
-https://nytimes.com/2020/03/19/opinion/coronavirus-loneliness.html?searchResultPosition=6
+**Bond Investors Remain Thirsty, Despite Fed Liquidity Efforts**\
+`U.S. regulators have poured trillions of dollars into bond markets over the past week and eased rules on big banks to grease transactions during the coronavirus panic.`\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-bonds-liquidity-analysis.html?searchResultPosition=6
 
-**US-Led Coalition Troops Pull Out of Base in Western Iraq**\
-`Troops from the U.S.-led coalition pulled out from a base in western Iraq on Thursday as part of a planned drawdown, Iraqi and coalition officials said, while training activities by the coalition were suspended amid concerns about the coronavirus. `\
-https://nytimes.com/aponline/2020/03/19/world/middleeast/ap-ml-iraq-us.html?searchResultPosition=7
+**U.S. Fed Buys $17.4 Billion of Mortgage Bonds, Sells None**\
+`The Federal Reserve bought $17.398 billion of agency mortgage-backed securities in the week`\
+https://nytimes.com/reuters/2020/03/19/us/19reuters-markets-mortgages-fed.html?searchResultPosition=7
 
-**The Movie Industry Will Recover**\
-`The chairman of Sony Pictures says that once the crisis is over, people will be desperate for a communal experience. Also: Treating anxiety; denaturalizing Americans; Mark Rudd’s turnaround.`\
-https://nytimes.com/2020/03/19/opinion/letters/coronavirus-movies.html?searchResultPosition=8
+**Brazil Central Bank Says $60 Billion FX Swap Line With Fed Has No Policy Conditionality**\
+`Brazil's central bank said on Thursday that the $60 billion foreign exchange swap line facility provided by the U.S. Federal Reserve does not imply any economic policy conditionality. `\
+https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-brazil-forex-fed.html?searchResultPosition=8
 
-**An Illustrated Guide to Spring’s Essential Reads**\
-`What happens on page 76 in three of this season’s books, as envisioned by the artist Marcus Jahmal.`\
-https://nytimes.com/2020/03/19/t-magazine/spring-books-marcus-jahmal.html?searchResultPosition=9
+**Estonian Financial Watchdog Head Says Swedbank Accepts Decision**\
+`Swedbank has accepted the decision the Estonian financial watchdog made on Thursday, the head of the watchdog said after an investigation found serious deficiencies in the bank's management of money laundering risks in its Baltic operations.`\
+https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-europe-moneylaundering-swedbank-estonia.html?searchResultPosition=9
 
-**UK PM Johnson: We Can Get on Top of Coronavirus in 12 Weeks**\
-`Britain hopes to turn the tide on the coronavirus within the next 12 weeks if people follow government advice so that the number of those acquiring the virus will be decreasing by end of June, Prime Minister Boris Johnson said on Thursday.`\
-https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-health-coronavirus-britain-johnson-tide.html?searchResultPosition=10
+**Fed's Rosengren Says New Liquidity Tool Should Help Prevent a Run on Prime Money Market Funds**\
+`Boston Federal Reserve Bank President Eric Rosengren said there is little the central bank can do to address the health threats posed by the coronavirus pandemic but that officials are doing what they can to minimize the spillover into financial markets. `\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-fed-rosengren.html?searchResultPosition=10
 
