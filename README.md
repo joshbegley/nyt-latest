@@ -26,7 +26,7 @@ https://nytimes.com/reuters/2020/03/18/world/americas/18reuters-health-coronavir
 `New Zealand on Thursday confirmed eight new cases of coronavirus linked to overseas travel, taking the total number of infections to 28. `\
 https://nytimes.com/reuters/2020/03/18/world/asia/18reuters-health-newzealand.html?searchResultPosition=7
 
-**Harvey Weinstein Moved to Maximum Security Prison in Upstate N.Y**\
+**Harvey Weinstein Moved to Maximum Security Prison in Upstate N.Y.**\
 `Former movie producer Harvey Weinstein on Wednesday was transferred to a maximum security prison in upstate New York to serve a 23-year sentence for sexual assault and rape.`\
 https://nytimes.com/reuters/2020/03/18/arts/18reuters-people-harvey-weinstein.html?searchResultPosition=8
 
