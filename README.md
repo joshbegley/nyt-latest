@@ -1,40 +1,40 @@
+**India Hangs 4 Men Convicted for Fatal New Delhi Gang Rape**\
+`Four convicts were hanged Friday for the 2012 gang rape and murder of a 23-year-old physiotherapy student on a moving bus in New Delhi.`\
+https://nytimes.com/aponline/2020/03/19/world/asia/ap-as-india-hangings.html?searchResultPosition=1
+
+**Senator Sold Hundreds of Thousands of Dollars in Stocks After Suggesting U.S. Was Prepared for Coronavirus**\
+`Two weeks after the sales, Senator Richard Burr warned a nonpartisan group that the virus could soon cause a major disruption in the United States.`\
+https://nytimes.com/2020/03/19/us/politics/richard-burr-coronavirus-stocks.html?searchResultPosition=2
+
+**Haiti Declares Emergency Over Coronavirus, Imposes Curfew, Shuts Border**\
+`Haiti's government on Thursday declared a state of emergency over the coronavirus outbreak, saying it would close its borders and impose a curfew after authorities detected the first two cases of infection in the impoverished Caribbean nation.`\
+https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-health-coronavirus-haiti.html?searchResultPosition=3
+
+**Timeline: India Executes Four Men Convicted in 2012 Delhi Gang Rape, Murder Case**\
+`India executed four men on Friday convicted for the gang rape and murder of a woman on a New Delhi bus in December 2012, in a case that shamed and outraged a nation with one of the world's worst records for crimes against women.`\
+https://nytimes.com/reuters/2020/03/19/world/asia/19reuters-india-rape-execution-timeline.html?searchResultPosition=4
+
+**India Executes Four Men Convicted in 2012 Delhi Bus Rape and Murder**\
+`India hanged four men on Friday who were convicted for the rape and murder of a young woman on a bus in New Delhi in 2012, in a case that shocked the world and shamed the country over its appalling record for crimes against women.`\
+https://nytimes.com/reuters/2020/03/19/world/asia/19reuters-india-rape-execution.html?searchResultPosition=5
+
+**Ireland's Fianna Fail Sees No New Government For at Least a Month**\
+`The leader of Ireland's Fianna Fail said he did not think a new government would be formed by the Easter holidays in the middle of next month as lawmakers put almost all their resources into the worsening coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-ireland-politics.html?searchResultPosition=6
+
 **Coronavirus Forces Brazilian Retailers to Close Stores and Boost e-Commerce**\
 `Brazilian retailers are feeling the coronavirus heat as malls close and people stay at home, but e-commerce may benefit.`\
-https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-health-coronavirus-brazil-retail.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-health-coronavirus-brazil-retail.html?searchResultPosition=7
 
 **Hollywood Movie Studios Suspend Release of Box Office Data After Coronavirus Slump**\
 `Movie studios Walt Disney and Universal Pictures said on Thursday they were suspending the release of box office data because of the closure of movie theaters in multiple countries in a bid to contain the coronavirus.`\
-https://nytimes.com/reuters/2020/03/19/arts/19reuters-health-coronavirus-box-office.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/19/arts/19reuters-health-coronavirus-box-office.html?searchResultPosition=8
 
 **China's $118 Billion Virus Lending Push Stymied by Bureaucratic Confusion**\
 `China's efforts to pump 800 billion yuan ($118 billion) into companies via cheap bank loans to counter the economic impact of the virus outbreak have run into a snag: bureaucratic confusion.`\
-https://nytimes.com/reuters/2020/03/19/world/asia/19reuters-health-coronavirus-china-loans.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/19/world/asia/19reuters-health-coronavirus-china-loans.html?searchResultPosition=9
 
 **Two Los Angeles Lakers Players Have Tested Positive for COVID-19, Team Says**\
 `Two Los Angeles Lakers players have tested positive for coronavirus, the NBA franchise said on Thursday, and have been quarantined under the care of the basketball team's doctor.`\
-https://nytimes.com/reuters/2020/03/19/sports/basketball/19reuters-health-coronavirus-lakers.html?searchResultPosition=4
-
-**Occidental Plans to Name Former CEO Chazen as Chairman: WSJ**\
-`Oil and gas producer Occidental Petroleum Corp is planning to name former Chief Executive Officer Stephen Chazen as its new chairman, WSJ reported https://on.wsj.com/33xeJJ7 on Thursday, citing people familiar with the matter.`\
-https://nytimes.com/reuters/2020/03/19/us/19reuters-occidental-chairman.html?searchResultPosition=5
-
-**Pebley Calls on USA Swimming to Postpone Olympic Trials**\
-`United States backstroke specialist Jacob Pebley has called on USA Swimming to postpone June's Olympic trials and lobby for the Tokyo Games to be postponed due to the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/03/19/sports/olympics/19reuters-health-coronavirus-swimming-usa.html?searchResultPosition=6
-
-**British Airways Pilots to Face 50% Pay Cut Over Coronavirus: FT**\
-`British Airways pilots will face a 50% pay cut to their basic salary for April and May, as the airline seeks to reduce its cost to try survive the coronavirus crisis, the Financial Times reported https://on.ft.com/2xdsAYR on Thursday.`\
-https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-health-coronavirus-british-airways.html?searchResultPosition=7
-
-**Factbox: Banks Cut S&P 500 Earnings, Other Targets Due to Coronavirus**\
-`Strategists from top U.S. financial firms have been cutting their earnings per share and other targets for the S&P 500 due to the expected impact of the coronavirus pandemic on corporate results. Here are some of their views: `\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-china-health-s-p500-targets-factbox.html?searchResultPosition=8
-
-**Fast Food Chains Easing Rent, Fees for Franchisees Amid Coronavirus**\
-`Dunkin' Brands Group Inc on Thursday said it will ease royalty and advertising fee payments for franchisees in the United States and Canada, while McDonald's Corp is in talks to reduce some payments for franchisees.`\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-usa-fastfood.html?searchResultPosition=9
-
-**Renault Board to Meet, Discuss Coronavirus Crisis: Sources**\
-`The board of French carmaker Renault will meet on Friday to discuss the coronavirus outbreak and its effect on operations, three sources close to the company said. `\
-https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-renault.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/19/sports/basketball/19reuters-health-coronavirus-lakers.html?searchResultPosition=10
 
