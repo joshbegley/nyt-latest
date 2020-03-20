@@ -1,40 +1,40 @@
-**Bayer Mediator Says Glyphosate Settlement Talks Slowed by Coronavirus**\
-`Negotiations between Bayer AG and plaintiff lawyers to settle claims its glyphosate-based weedkillers cause cancer have been slowed by the coronavirus outbreak, according to the mediator in the talks.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-bayer-glyphosate-lawsuit-delay.html?searchResultPosition=1
+**Brazil Will Not Close Airports Due to Coronavirus: Minister**\
+`Brazil's federal government will not close airports and bus stations due to the coronavirus, Infrastructure Minister Tarcísio Freitas told broadcaster Globonews on Friday in a live interview.  `\
+https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-brazil-airports.html?searchResultPosition=1
 
-**Mexico to Let U.S. Return Central American Migrants Caught at Border**\
-`Mexican Foreign Minister Marcelo Ebrard said on Friday that Mexico will allow the United States to return to Mexico Central American migrants caught trying to enter the United States illegally at the U.S.-Mexico border.`\
-https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-mexico-immigration.html?searchResultPosition=2
+**Dutch Tram Attack Killer Sentenced to Life in Jail**\
+`A man who shot three people dead and wounded five others on a Utrecht tram last year was sentenced to life in prison by a Dutch court on Friday for what judges ruled was a terrorist attack.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-netherlands-shooting.html?searchResultPosition=2
 
-**U.S. Home Sales Hit 13-Year High; Coronavirus Disruption Looms**\
-`U.S. home sales surged to a 13-year high in February, but the housing market recovery is likely to be derailed by the coronavirus pandemic, which has unleashed a wave of layoffs and left the economy teetering on the brink of a recession.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-usa-economy.html?searchResultPosition=3
+**Watch Live: White House Provides Coronavirus Update**\
+`The U.S. Coronavirus Task Force holds a news conference about the Covid-19 outbreak.`\
+https://nytimes.com/video/us/politics/100000007045151/coronavirus-task-force-update.html?searchResultPosition=3
 
-**Ford to Bring Forward UK Summer Shutdown Due to Coronavirus**\
-`Ford will bring forward part of the summer shutdown for its British engine plants to Easter due to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-britain-ford.html?searchResultPosition=4
+**German Supplementary Budget Worth 150 Billion Euros: Source**\
+`A German supplementary budget to counter the economic impact of the coronavirus will be worth around 150 billion euros ($161.18 billion), a government source said on Friday.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-germany-government.html?searchResultPosition=4
 
-**Bank of America Adds 1,700 Support Staff in March**\
-`Bank of America Corp said on Friday it has hired 1,700 people in the consumer bank so far this month as banks faced a surge in customer service demand amid coronavirus concerns. `\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-bank-of-america.html?searchResultPosition=5
+**Forex Swap Spreads Tighten After Global Central Banks Launch Coordinated Action**\
+`Currency swap spreads, which have jumped amid a scramble for dollar funding by banks and companies, eased on Friday after global central banks agreed to increase the frequency of their one-week U.S. dollars credit facility.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-fx-swaps.html?searchResultPosition=5
 
-**Jurors Retire in Sex-Crimes Trial of Former Scottish Leader**\
-`Jurors at the High Court in Edinburgh retired Friday to consider their verdicts in the trial for alleged sex crimes of Scotland's former first minister, Alex Salmond.`\
-https://nytimes.com/aponline/2020/03/20/world/europe/ap-eu-britain-scotland-salmond.html?searchResultPosition=6
+**Fed Expands Money Market Liquidity Facility to Municipal Market**\
+`The Federal Reserve Board on Friday said it was expanding its program of support to enhance the liquidity and functioning of  state and municipal money markets.`\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-fed-moneymarkets.html?searchResultPosition=6
 
-**Burr Seeks Ethics Investigation After Uproar Over Stock Sales**\
-`The North Carolina Republican is seeking to clear himself following the disclosure that he sold at least hundreds of thousands of dollars in shares before the market tumbled.`\
-https://nytimes.com/2020/03/20/us/politics/burr-seeks-ethics-investigation-after-uproar-over-stock-sales-coronavirus.html?searchResultPosition=7
+**Bloomberg to Transfer $18 Million to Democratic National Committee**\
+`Billionaire media mogul Mike Bloomberg will transfer $18 million to the Democratic National Committee (DNC) and several of the field offices from his 2020 presidential bid to state parties, his campaign announced on Friday.`\
+https://nytimes.com/reuters/2020/03/20/us/politics/20reuters-usa-election-bloomberg.html?searchResultPosition=7
 
-**Who Gets the Ventilator? British Doctors Contemplate Harrowing Coronavirus Care Choices**\
-`The coronavirus pandemic is forcing senior doctors in Britain's National Health Service to contemplate the unthinkable: how to ration access to critical care beds and ventilators should resources fall short. `\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-britain-healthcare-insight.html?searchResultPosition=8
+**Regulators Discuss Easing Accounting Rule on Bank Loan Losses: Source**\
+`Global banking regulators are in talks about easing an accounting rule to avoid lenders facing ballooning provisions for loans to companies struggling in the coronavirus pandemic, a source directly involved in the discussions said on Friday.`\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-banks-accounts.html?searchResultPosition=8
 
-**Belgian Charleroi Airport Closes From March 24 Until April 5**\
-`Belgium's Charleroi airport said on Friday it would close for business from 23:59 CET on March 24 to April 5, with a possibility to extend that period, because airlines have suspended flights due to the coronavirus epidemic.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-charleroi-airport.html?searchResultPosition=9
+**Democrats Fret as Virus Halts In-Person Voter Registration**\
+`Coronavirus is idling a potentially powerful force in the Democratic Party — liberal canvassers who go door to door or cruise through public gatherings, clipboard in hand, to register new voters. `\
+https://nytimes.com/aponline/2020/03/20/us/politics/ap-us-election-2020-voter-registration-.html?searchResultPosition=9
 
-**Staff Working With Immigrant Detainees in the U.S. Test Positive for Coronavirus**\
-`At least two staff members working at U.S. facilities for immigrant detainees - one at an adult jail and one at a shelter housing children - have tested positive for the coronavirus, raising alarms about the illness potentially spreading in crowded detention centers.`\
-https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-immigration.html?searchResultPosition=10
+**The Latest: Dolphins Owner Stephen Ross Pledges $500,000**\
+`The Latest on NFL free agency. The NFL's spending in free agency continues Friday. All times EDT:`\
+https://nytimes.com/aponline/2020/03/20/sports/football/ap-fbn-the-latest-nfl-free-agency.html?searchResultPosition=10
 
