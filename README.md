@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/03/19/world/asia/19reuters-china-economy-lpr.ht
 https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-health-coronavirus-honduras.html?searchResultPosition=7
 
 **Gov. Gavin Newsom of California Orders Californians to Stay at Home**\
-`In making the announcement, Gov. Newsom has taken the most drastic step of any state leader to slow the spread of the coronavirus.`\
+`In making the announcement, Mr. Newsom has taken the most drastic step of any state leader to slow the spread of the coronavirus.`\
 https://nytimes.com/2020/03/19/us/California-stay-at-home-order-virus.html?searchResultPosition=8
 
 **Olympic Flame Lands in Japan as Doubts Grow Over Tokyo Games**\
