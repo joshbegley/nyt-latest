@@ -1,40 +1,40 @@
+**Hospital in London Runs Out Beds as Coronavirus Hits: Media**\
+`A hospital in London declared a "critical incident" on Friday due to shortage of intensive care beds caused by a rise in the number of patients with COVID-19, the disease caused by coronavirus, British media reported on Friday.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-britain-hospital.html?searchResultPosition=1
+
+**Coronavirus Spreads Fear, Isolation, Death to Elderly Worldwide**\
+`Grace Dowell, a 63-year-old grandmother, has stopped grocery shopping and canceled all her doctor’s appointments. No one is allowed into her rural Maryland home. Every piece of mail is disinfected.`\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-elderly-insight.html?searchResultPosition=2
+
+**Trump Suspends Payments, Interest on U.S. Student Loans**\
+`The Trump administration on Friday temporarily suspended interest and payments on federal student loans for at least the next 60 days, U.S. President Donald Trump told reporters at a news conference on Friday.`\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-studentloans.html?searchResultPosition=3
+
+**Coronavirus Leaves 300,000 EU Citizens Stranded Abroad-Borrell**\
+`As many as 300,000 European Union citizens are seeking repatriation due to the coronavirus outbreak, with Latin America and Southeast Asia two regions from where it is proving tough to get people home, the EU's top diplomat said on Friday.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-eu-nationals.html?searchResultPosition=4
+
+**German Far-Right Party Presses Radical Faction to Dissolve**\
+`Leaders of the far-right Alternative for Germany party decided Friday to press a radical faction to dissolve itself after the country's domestic intelligence agency classified it as extremist.`\
+https://nytimes.com/aponline/2020/03/20/world/europe/ap-eu-germany-far-right.html?searchResultPosition=5
+
+**Quarantined Cruise Passengers Arrive From France in Atlanta**\
+`A jet carrying 359 people including hundreds of American and Canadian cruise ship passengers home from France landed at Atlanta's international airport on Friday as emergency responders prepared to screen them for the coronavirus, federal officials said.`\
+https://nytimes.com/aponline/2020/03/20/us/ap-us-virus-outbreak-cruise-ship-2nd-ld-writethru.html?searchResultPosition=6
+
 **Coronavirus Brings a Surge to News Sites**\
 `Many journalists are covering a once-in-a-lifetime story from home, thanks to Zoom and Slack. But as readers flock to large news outlets, ads are starting to disappear.`\
-https://nytimes.com/2020/03/20/business/coronavirus-news-sites.html?searchResultPosition=1
+https://nytimes.com/2020/03/20/business/coronavirus-news-sites.html?searchResultPosition=7
 
 **This ‘Imagine’ Cover Is No Heaven**\
 `The actress Gal Gadot assembled celebrities singing John Lennon’s anthem on social media. The result is far from inspiring in a time of crisis.`\
-https://nytimes.com/2020/03/20/arts/music/coronavirus-gal-gadot-imagine.html?searchResultPosition=2
+https://nytimes.com/2020/03/20/arts/music/coronavirus-gal-gadot-imagine.html?searchResultPosition=8
 
 **How to Work From Home Alongside Your Partner Without Losing It**\
 `Try ‘spousal distancing’ to minimize coronavirus conflict when you’re stuck at home with your whole family 24/7.`\
-https://nytimes.com/2020/03/20/parenting/coronavirus-work-from-home-spouse.html?searchResultPosition=3
+https://nytimes.com/2020/03/20/parenting/coronavirus-work-from-home-spouse.html?searchResultPosition=9
 
 **Breakfast for Dinner**\
 `The days we plan to sit down to a meal can be better in these worrying times. Pancakes can help, so can a comforting marinara sauce.`\
-https://nytimes.com/2020/03/20/dining/breakfast-for-dinner.html?searchResultPosition=4
-
-**For This Pianist, Every Album Is an Essay**\
-`Vikingur Olafsson’s latest recording is a sprawling juxtaposition of Debussy and Rameau.`\
-https://nytimes.com/2020/03/20/arts/music/vikingur-olafsson-debussy-rameau.html?searchResultPosition=5
-
-**Craft Beer Fans Know Hops. But What About Yeast?**\
-`In search of distinct aromas, brewers are embracing bacteria and yeast strains from across the globe.`\
-https://nytimes.com/2020/03/20/dining/drinks/craft-beer-yeast-hops.html?searchResultPosition=6
-
-**Taliban Kill 24 Afghan Troops, With Inside Help**\
-`The militant group has attacked several government outposts since it signed a peace deal with the United States last month.`\
-https://nytimes.com/2020/03/20/world/asia/taliban-insider-attack-afghanistan.html?searchResultPosition=7
-
-**What Happens When We Lose the Art That Brings Us Together?**\
-`Going online is one answer, but it’s not so simple.`\
-https://nytimes.com/2020/03/20/arts/arts-loss-coronavirus.html?searchResultPosition=8
-
-**US Virus Testing Faces New Headwind: Lab Supply Shortages**\
-`First, some of the coronavirus tests didn't work. Then there weren't enough to go around. Now, just as the federal government tries to ramp up nationwide screening, laboratory workers are warning of a new roadblock: dire shortages of testing supplies.`\
-https://nytimes.com/aponline/2020/03/20/health/ap-us-med-virus-outbreak-us-testing.html?searchResultPosition=9
-
-**In ‘Viral Monologues,’ Theater Mutates Into Online Deliverance**\
-`Funny, scary and necessary, this series of taped soliloquies contemplate the way we live now, in isolation.`\
-https://nytimes.com/2020/03/20/theater/viral-monologues-coronavirus.html?searchResultPosition=10
+https://nytimes.com/2020/03/20/dining/breakfast-for-dinner.html?searchResultPosition=10
 
