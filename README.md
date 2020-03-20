@@ -1,40 +1,40 @@
+**Factbox: Coronavirus Hits U.S. Congress, With First Cases, Quarantines**\
+`The first two members of the U.S. Congress have tested positive for the novel coronavirus, and at least 22 others have said they are self-quarantining, many because of exposure to the two congressmen, even as lawmakers scramble to pass more legislation to help cope with the pandemic.`\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-congress-factbox.html?searchResultPosition=1
+
+**California Issues 'Stay Home' Order; U.S. Death Toll Hits 200**\
+`California issued an unprecedented statewide 'stay at home" order on Thursday for its 40 million residents and Washington warned Americans to return home or stay abroad indefinitely, as the number of coronavirus deaths in the country hit 200. `\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa.html?searchResultPosition=2
+
+**China Has Room to Further Cut RRR, Make Adjustments: Central Bank Adviser**\
+`China's central bank has relatively big room to cut the amount of cash commercial banks must hold as reserves and make targeted adjustments to the reserve requirement ratio (RRR), a central bank adviser said on Friday.`\
+https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-china-economy.html?searchResultPosition=3
+
+**Looking Good Under a Mask: South Korean Fashion Evolves in the Time of Coronavirus**\
+`From tutorials on how to wear makeup with a face mask, to hats that incorporate a protective plastic face shield, South Koreans are seeking to make sure the coronavirus outbreak doesn't damage their reputation for style.`\
+https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-southkorea-fashion.html?searchResultPosition=4
+
+**How One Elite New York Medical Provider Got Its Patients Coronavirus Tests**\
+`As U.S. authorities scrambled to ramp up the nation's capacity to test for coronavirus last week, at least 100 executives and other New Yorkers of means had easy access to testing, according to two sources familiar with the activities of a little-known medical service catering to the affluent.`\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-testing-sollis.html?searchResultPosition=5
+
+**Oklahoma Producers on Shaky Ground as Oil Price War Hits**\
+`Oklahoma's oilfields face some of the highest costs in the U.S. shale industry, making the state a likely first victim of the crash that has seen crude fall to its lowest price in 18 years. `\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-global-oil-oklahoma.html?searchResultPosition=6
+
+**Australia Delays Budget as Coronavirus Appears Among Cruise Passengers**\
+`Australia on Friday delayed its federal budget by five months to October saying the coronavirus pandemic made it impossible to make sensible economic forecasts, as it prepared to dramatically expand its stimulus spending to avoid recession.`\
+https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-australia.html?searchResultPosition=7
+
 **CDC Reports 10,491 Coronavirus Cases, 150 Deaths**\
 `The U.S. Centers for Disease Control and Prevention (CDC) on Thursday reported 10,491 cases of coronavirus, an increase of 3,404 from its previous count, and said the death toll had risen by 53 to 150, the biggest one-day jump so far.`\
-https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-cdc.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-cdc.html?searchResultPosition=8
 
 **Asian Stocks Rise After Wall Street Advance on Aid Hopes**\
 `Asian stock markets rose Friday after Wall Street gained on hopes government and central bank action can shield the world economy from a looming recession caused by the coronavirus.`\
-https://nytimes.com/aponline/2020/03/20/business/bc-financial-markets.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/03/20/business/bc-financial-markets.html?searchResultPosition=9
 
 **Quotation of the Day: Doctors Sound Alarm as a Nation Struggles**\
 `Quotation of the Day for Friday, March 20, 2020.`\
-https://nytimes.com/2020/03/20/todayspaper/quotation-of-the-day-doctors-sound-alarm-as-a-nation-struggles.html?searchResultPosition=3
-
-**Low-Cost Airline HK Express Suspends Flights Through April**\
-`Hong Kong low-cost airline HK Express, part of the Cathay Pacific Group, said Friday it was suspending all flights through the end of April due to falling demand amid the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/03/20/business/bc-virus-outbreak-hong-kong-airline-suspension.html?searchResultPosition=4
-
-**Corrections: March 20, 2020**\
-`Corrections that appeared in print on Friday, March 20, 2020.`\
-https://nytimes.com/2020/03/20/pageoneplus/corrections-march-20-2020.html?searchResultPosition=5
-
-**Your Friday Briefing**\
-`Coronavirus, Italy, California: Here’s what you need to know.`\
-https://nytimes.com/2020/03/20/briefing/coronavirus-italy-california.html?searchResultPosition=6
-
-**Coronavirus Task Force Offers an Even Keel to a Zigzag Trump**\
-`They meet in the windowless Situation Room, every day but Sunday, drawing an overflow crowd.`\
-https://nytimes.com/aponline/2020/03/20/us/politics/ap-us-virus-outbreak-inside-the-task-force.html?searchResultPosition=7
-
-**40 Million Californians Ordered to Stay Home to Halt Virus**\
-`California's 40 million residents should stay home indefinitely and venture outside only for essential jobs, errands and some exercise, Gov. Gavin Newsom said Thursday, warning that the coronavirus threatens to overwhelm the state's medical system. `\
-https://nytimes.com/aponline/2020/03/20/business/ap-us-virus-outbreak-california.html?searchResultPosition=8
-
-**Music Festival, Barbecue Championship Postponed in Memphis**\
-`The Beale Street Music Festival and the World Championship Barbecue Cooking Contest in Memphis, Tennessee, have been postponed because of the new coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/03/20/us/ap-us-virus-outbreak-memphis-in-may.html?searchResultPosition=9
-
-**Selma Online Offers Free Civil Rights Lessons Amid Virus**\
-`The first attempt of the historic march from Selma to Montgomery, Alabama, in 1965, led to police violence against peaceful African American demonstrators.`\
-https://nytimes.com/aponline/2020/03/20/business/ap-us-voting-rights-selma-online.html?searchResultPosition=10
+https://nytimes.com/2020/03/20/todayspaper/quotation-of-the-day-doctors-sound-alarm-as-a-nation-struggles.html?searchResultPosition=10
 
