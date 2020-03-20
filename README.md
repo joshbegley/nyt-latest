@@ -1,40 +1,40 @@
+**Madagascar Confirms First Cases of Coronavirus: President**\
+`The island nation of Madagascar confirmed its first cases of coronavirus on Friday, the president said in a televised statement. `\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-madagascar.html?searchResultPosition=1
+
+**Czechs Get First Batch of Sorely Needed Gear From China to Fight Coronavirus**\
+`Czechs received a first batch of medical equipment from China needed to curb the spread of the coronavirus as doctors, nurses and care home workers complain of shortages of respirators and people sew masks at home.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-czech-masks.html?searchResultPosition=2
+
+**Cambodia Reports New Four Cases, Bringing Total to 51**\
+`Cambodia reported four new cases of coronavirus on Friday, raising its tally to 51.`\
+https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-cambodia.html?searchResultPosition=3
+
+**easyJet Says Will Ground Most of Its Fleet From Tuesday**\
+`British low-cost airline easyJet said it would ground most of its aircraft from Tuesday in response to travel restrictions aimed to prevent the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-easyjet.html?searchResultPosition=4
+
+**How to Home School During Coronavirus**\
+`It’s not easy, even for professionals. Start with these sample lesson plans.`\
+https://nytimes.com/2020/03/20/parenting/home-school-coronavirus.html?searchResultPosition=5
+
 **Quick Flip as 'Onward' Goes From Movie Theaters to Homes**\
 `From finding ways to help others cope to sheltering in place to canceling events, here’s a look at some of the ways the entertainment industry is reacting to the spread of the coronavirus, which most people recover from but can cause severe illness in the elderly and those with preexisting medical conditions.`\
-https://nytimes.com/aponline/2020/03/20/business/bc-us-virus-outbreak-entertainment-whats-happening.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/03/20/business/bc-us-virus-outbreak-entertainment-whats-happening.html?searchResultPosition=6
 
 **U.S. Says 'Enormously Disappointed' by Iraq's Failure to Protect Coalition Forces**\
 `The United States has been 'enormously disappointed' with the Iraqi government's performance in fulfilling its obligation to protect U.S.-led coalition forces inside the country, a senior State Department official said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/world/middleeast/20reuters-iraq-usa-attack.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/20/world/middleeast/20reuters-iraq-usa-attack.html?searchResultPosition=7
 
 **Canada to Return Irregular Migrants Crossing Border to United States**\
 `Canada will no longer accept irregular migrants trying to cross the shared border with the United States and will instead return them to U.S. authorities, Prime Minister Justin Trudeau said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-canada-migrants.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-canada-migrants.html?searchResultPosition=8
 
 **The Calculus of Coronavirus Care**\
 `A shortage of ventilators is bad. A shortage of doctors and nurses critically compounds the problem.`\
-https://nytimes.com/2020/03/20/well/live/coronavirus-covid-doctor-nurse-shortage-staff.html?searchResultPosition=4
+https://nytimes.com/2020/03/20/well/live/coronavirus-covid-doctor-nurse-shortage-staff.html?searchResultPosition=9
 
 **Pandemic Prompts Delay in New EU Share Trading Rule**\
 `Changes to how shares are traded off an exchange in the European Union have been delayed by three months because of the impact of the coronavirus epidemic on banks, the bloc's markets watchdog said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-eu-markets-rule.html?searchResultPosition=5
-
-**Bank of England Plans £14.1 Billion of Gilt Purchases Next Week**\
-`The Bank of England will offer to buy 14.1 billion pounds  ($16.6 billion) of government bonds next week as it embarks on the most rapid asset purchases in its history, to limit the economic and market impact of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-britain-boe-purchases.html?searchResultPosition=6
-
-**When Stocking Grocery Shelves Turns Dangerous**\
-`Grocery stores have been deemed essential businesses, meaning their employees are worried about being exposed to the coronavirus.`\
-https://nytimes.com/2020/03/20/business/coronavirus-grocery-stores-workers.html?searchResultPosition=7
-
-**U.S. and Mexico Have Agreed to Restrict Non-Essential Travel Over Shared Border: Trump**\
-`U.S President Donald Trump said on Friday that the United States and Mexico would restrict non-essential travel across their shared border in an effort to limit the spread of the new coronavirus.`\
-https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-border.html?searchResultPosition=8
-
-**Trump Says He Has Put Defense Production Act Into Gear to Fight Coronavirus**\
-`U.S. President Donald Trump said on Friday he had put the Defense Production Act into action after saying earlier this week he would invoke the measure but essentially put it on hold until needed.`\
-https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-trump-defense.html?searchResultPosition=9
-
-**From the Archives: Robert Caro on How He Does It**\
-`The acclaimed biographer of Lyndon Johnson and Robert Moses talks about “Working: Researching, Interviewing, Writing.”`\
-https://nytimes.com/2020/03/20/books/review/20podcast-robert-caro-working.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-eu-markets-rule.html?searchResultPosition=10
 
