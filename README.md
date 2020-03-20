@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/03/20/technology/20reuters-health-coronavirus-y
 https://nytimes.com/reuters/2020/03/20/sports/olympics/20reuters-health-coronavirus-olympics-dwyer.html?searchResultPosition=5
 
 **Italy Urges New EU Bonds to Fight Coronavirus Crisis**\
-`Italy's Economy Minister Roberto Gualtieri said on Friday that European Union bonds are needed to fight the coronavirus emergency hobbling the block's countries.`\
+`Italian Economy Minister Roberto Gualtieri said on Friday that European Union bonds are needed to fight the coronavirus emergency hobbling the bloc's economies.`\
 https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-italy-eu.html?searchResultPosition=6
 
 **Dollar Pauses on Way to Best Week Since 2008 Crisis**\
