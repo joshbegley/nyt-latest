@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-asd
 https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-britain-pubs.html?searchResultPosition=5
 
 **Tom Brady Becomes a Tampa Bay Buccaneer**\
-`After 20 seasons and six titles with the New England Patriots, Brady is joining his second N.F.L. team.`\
+`After 20 seasons and six championships with the New England Patriots, Brady is joining his second N.F.L. team.`\
 https://nytimes.com/2020/03/20/sports/football/tom-brady-signed-tampa-bay.html?searchResultPosition=6
 
 **AP Source: Falcons Agree to 1-Year Deal With Todd Gurley**\
