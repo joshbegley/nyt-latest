@@ -1,40 +1,40 @@
+**Egypt Activist Who Urged Prisoner Release Amid Virus Freed**\
+`The mother of a prominent Egyptian activist was released from detention after her arrest the previous day for staging a protest demanding that prisoners be released amid the coronavirus pandemic, her daughter said.`\
+https://nytimes.com/aponline/2020/03/20/world/middleeast/ap-ml-egypt.html?searchResultPosition=1
+
+**Travelers Rush to Moroccan Airports for Evacuation Flights**\
+`Foreigners stranded in locked-down Morocco are getting on evacuation flights Friday as governments try to repatriate their citizens after days of travel frustration.`\
+https://nytimes.com/aponline/2020/03/20/world/africa/ap-virus-outbreak-stranded-in-morocco.html?searchResultPosition=2
+
+**On Politics: What Does This All Mean for November?**\
+`Crisis management, with more than a touch of political maneuvering: This is your morning tip sheet.`\
+https://nytimes.com/2020/03/20/us/politics/trump-coronavirus.html?searchResultPosition=3
+
+**Film Club: ‘Coronavirus Racism Infected My High School’**\
+`How is the coronavirus pandemic bringing out fears, stereotypes, xenophobia and racism?`\
+https://nytimes.com/2020/03/20/learning/film-club-coronavirus-racism-infected-my-high-school.html?searchResultPosition=4
+
+**DealBook: The Bailouts Begin to Take Shape**\
+`There is little doubt that a severe economic downturn awaits. How bad it gets depends on the nature of the government response.`\
+https://nytimes.com/2020/03/20/business/dealbook/coronavirus-economy-unemployment.html?searchResultPosition=5
+
+**How Is the Coronavirus Outbreak Affecting Your Life?**\
+`How are you staying connected and sane in a time of social distancing?`\
+https://nytimes.com/2020/03/20/learning/how-is-the-coronavirus-outbreak-affecting-your-life.html?searchResultPosition=6
+
 **Africa's Busiest Airport Says Foreigners Can't Disembark**\
 `Anxiety rose in Africa’s richest nation Friday as South Africa announced coronavirus cases jumped to 202, the most in the sub-Saharan region, and the country’s largest airport announced that foreigners would not be allowed to disembark.`\
-https://nytimes.com/aponline/2020/03/20/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/03/20/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=7
 
-**The Latest: Southgate's Message: Be Responsible Amid Virus**\
+**The Latest: Non-Premiership English Rugby Canceled**\
 `The Latest on the effect of the coronavirus outbreak on sports around the world:`\
-https://nytimes.com/aponline/2020/03/20/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/03/20/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=8
 
 **German Restaurant Chain Vapiano Opens Insolvency Proceedings**\
 `German restaurant chain Vapiano SE on Friday said it had opened insolvency proceedings and would apply for government assistance programs to avoid bankruptcy, blaming the corona crisis for a further drop in sales. `\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-corona-vapiano.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-corona-vapiano.html?searchResultPosition=9
 
 **Austria to Extend Coronavirus Restrictions Until April 13**\
 `Austria will extend its coronavirus restrictions until April 13, Chancellor Sebastian Kurz said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-austria.html?searchResultPosition=4
-
-**Malaysia Says Citizens Working in Third Country Can Only Return After March 31**\
-`Malaysians with long-term entry passes to another country will be allowed to travel out for work, but only be able to return home after the end of an ongoing restriction of movement order, the government said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-malaysia-return.html?searchResultPosition=5
-
-**Altria CEO Howard Willard Contracts Coronavirus**\
-`Marlboro maker Altria Group Inc Chief Executive Officer Howard Willard has contracted coronavirus and is taking temporary medical leave, a regulatory filing showed on Friday.`\
-https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-altria.html?searchResultPosition=6
-
-**Iran Coronavirus Death Toll Jumps 149 to 1,433: Health Ministry**\
-`Iran's death toll from the new coronavirus outbreak rose by 149 to 1,433 on Friday, a health ministry official tweeted, adding that that total number of confirmed infections had increased by 1,237 to 19,644.`\
-https://nytimes.com/reuters/2020/03/20/world/middleeast/20reuters-health-coronavirus-iran.html?searchResultPosition=7
-
-**Agree on Common Safe Asset, ECB's Rehn Tells Governments**\
-`European governments need to act quicker to combat the coronavirus crisis, and above all agree on a common safe asset, European Central Bank policymaker Olli Rehn said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-ecb-rehn.html?searchResultPosition=8
-
-**HSBC Announces Measures to Support British Firms Trading Overseas**\
-`HSBC on Friday announced new measures to support British firms trading internationally, as they cope with plummeting demand amid the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-britain-hsbc-hldg.html?searchResultPosition=9
-
-**ECB Opens 24-Billion-Euro Swap Line With Danish Central Bank**\
-`The European Central Bank reopened on Thursday a swap line with its Danish counterpart and doubled the amount of euros it can lend to 24 billion euro to ensure Danish banks have access to the single currency.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-ecb-policy-denmark.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-austria.html?searchResultPosition=10
 
