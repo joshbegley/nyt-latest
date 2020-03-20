@@ -1,40 +1,40 @@
+**India Executes Four Men Convicted in 2012 Delhi Gang Rape, Murder Case**\
+`India executed four men on Friday convicted for the gang rape and murder of a woman on a New Delhi bus in December 2012, in a case that shamed and outraged a nation with one of the world's worst records for crimes against women.`\
+https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-india-rape-execution-timeline.html?searchResultPosition=1
+
+**Exclusive: YouTube to Reduce Streaming Quality in Europe Due to Coronavirus**\
+`Alphabet Inc's YouTube said on Friday it will reduce its streaming quality in the European Union to avoid straining the internet as thousands of Europeans, constrained by the coronavirus outbreak, switch to teleworking and watch videos at home.`\
+https://nytimes.com/reuters/2020/03/20/technology/20reuters-health-coronavirus-youtube-exclusive.html?searchResultPosition=2
+
+**Coronavirus Will Not Deter Athletes, Says Hockey Champion Dwyer**\
+`The coronavirus pandemic has disrupted Olympic qualifying and put the whole Games in doubt but most athletes would be prepared to make big compromises to compete at Tokyo, Australia's field hockey gold medalist Jamie Dwyer has told Reuters.`\
+https://nytimes.com/reuters/2020/03/20/sports/olympics/20reuters-health-coronavirus-olympics-dwyer.html?searchResultPosition=3
+
+**Italy Urges New EU Bonds to Fight Coronavirus Crisis**\
+`Italy's Economy Minister Roberto Gualtieri said on Friday that European Union bonds are needed to fight the coronavirus emergency hobbling the block's countries.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-italy-eu.html?searchResultPosition=4
+
+**Dollar Pauses on Way to Best Week Since 2008 Crisis**\
+`The dollar lost steam on Friday after an ascent that left it set for its biggest weekly gain since the 2008 global financial crisis, as the coronavirus pandemic caused a stampede for cash that has trampled asset markets.`\
+https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-global-forex.html?searchResultPosition=5
+
+**Germany to Facilitate Retail Sector Cooperation to Fight Coronavirus: Der Spiegel**\
+`German Economy Minister Peter Altmaier wants to loosen anti-trust laws to allow greater cooperation between retail businesses in the fight against coronavirus, magazine Der Spiegel reported on Friday.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-germany-altmaier.html?searchResultPosition=6
+
+**IOC Reviewing Games Scenarios, Cancellation Not Among Them: Bach**\
+`The International Olympic Committee is considering various scenarios for the Tokyo Games amid the coronavirus pandemic but cancellation is not one of them, IOC President Thomas Bach has told the New York Times.`\
+https://nytimes.com/reuters/2020/03/20/sports/olympics/20reuters-health-coronavirus-olympics.html?searchResultPosition=7
+
+**In Pandemic, Word Definitions Shift and New Lexicon Emerges**\
+`Newscasts bring word of “hot zones” and “lockdowns.” Conversations are littered with talk of “quarantines” and “isolation.” Leaders urge “social distancing” and “sheltering in place” and “flattening the curve.”`\
+https://nytimes.com/aponline/2020/03/20/us/ap-us-virus-outbreak-evolving-vocabulary.html?searchResultPosition=8
+
 **Favorite Flops**\
 `What underappreciated things mean a lot to you?`\
-https://nytimes.com/2020/03/20/learning/favorite-flops.html?searchResultPosition=1
+https://nytimes.com/2020/03/20/learning/favorite-flops.html?searchResultPosition=9
 
 **Californians Told to Stay Home as Pandemic's Reach Worsens**\
 `California's governor ordered people in the most populous U.S. state to stay home as the coronavirus pandemic's toll worsened so much world leaders warned of “record” economic pain.`\
-https://nytimes.com/aponline/2020/03/20/business/ap-virus-outbreak.html?searchResultPosition=2
-
-**Turkey Postpones Events Until End-April Over Coronavirus**\
-`Turkish President Tayyip Erdogan issued a decree on Friday postponing all events related to science, culture and art, as it seeks to contain a surge in coronavirus cases.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-turkey-toll.html?searchResultPosition=3
-
-**Malaysia to Deploy Army to Help Enforce Coronavirus Curbs**\
-`Malaysia will deploy the army from Sunday to help enforce travel and movement curbs aimed at reining in the spread of a coronavirus, the government said, as it grapples with the highest number of infections in Southeast Asia.`\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-seasia.html?searchResultPosition=4
-
-**Rohingya, UN Step Up Efforts to Get Malaysia Refugees Screened for Virus**\
-`The U.N. refugee agency and Rohingya community leaders in Malaysia are stepping up efforts to get refugees who attended a Muslim gathering to come forward for coronavirus checks, after cases linked to the event jumped across Southeast Asia.`\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-malaysia-rohingya.html?searchResultPosition=5
-
-**Olympics: Swimming Australia Call for 'Level Playing Field' if Games Go Ahead**\
-`Swimming Australia have called on the International Olympic Committee to ensure there is "a level playing field" if the Tokyo Games go ahead as athletes struggle to train properly because of measures to contain the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/03/20/sports/20reuters-health-coronavirus-swimming-australia.html?searchResultPosition=6
-
-**Foreign Ministers of South Korea, China, Japan Support Tokyo Holding 'Complete' Olympics-Seoul**\
-`The foreign ministers of South Korea, China and Japan expressed their support for Tokyo to host "complete" Tokyo Olympics at a video conference held on Friday, South Korea's foreign ministry said.`\
-https://nytimes.com/reuters/2020/03/20/sports/olympics/20reuters-health-coronavirus-southkorea-japan.html?searchResultPosition=7
-
-**U.S., Mexico Working on Travel Restrictions to Curb Coronavirus-Pompeo**\
-`U.S. Secretary of State Mike Pompeo said on Thursday he was working with his Mexican counterpart on travel restrictions to curb the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-mexico-usa.html?searchResultPosition=8
-
-**Column: Optics of Big NFL Contracts Just Aren't Right**\
-`The NFL is now allowing teams to announce free agent signings, after a few days of keeping things unofficial because players can’t travel for physicals.`\
-https://nytimes.com/aponline/2020/03/20/sports/football/ap-fbn-tim-dahlberg-nfl-deals.html?searchResultPosition=9
-
-**OPEC Supply Curbs, U.S. Measures Could Support Oil Prices Near Term: Goldman**\
-`Supply restraint by core-OPEC producers could push second-quarter Brent oil prices up to $30 a barrel, while U.S. measures to support the market could underpin prices in the near term, Goldman Sachs said in a research note.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-oil-research-goldman.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/20/business/ap-virus-outbreak.html?searchResultPosition=10
 
