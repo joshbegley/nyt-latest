@@ -1,40 +1,40 @@
-**French Nuclear Plants Tighten Hygiene Procedures Over Coronavirus Worries**\
-`French utility EDF is introducing stricter hygiene procedures at its nuclear plants after walk-outs by a small number of workers who feared getting infected with coronavirus during radiation screening, union and industrial sources said on Friday. `\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-france-nuclear.html?searchResultPosition=1
+**Athletes Should Continue to Prepare for Competition, U.S. Committee Says**\
+`The U.S. Olympic and Paralympic Committee said its athletes should continue to prepare for competition while taking appropriate precautions amid the coronavirus pandemic, which has cast doubt on whether the Tokyo Games could go forward.`\
+https://nytimes.com/reuters/2020/03/20/sports/olympics/20reuters-health-coronavirus-olympics-usopc.html?searchResultPosition=1
 
-**Poland Donates 430 Thousand Litres of Confiscated Spirits for Disinfectant**\
-`Nearly half a million litres of confiscated vodka and rectified spirit will be sent to Polish public institutions in need of disinfectant amid the coronavirus outbreak, Poland's prosecutor's office said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-poland-spirits.html?searchResultPosition=2
+**Asian Development Bank Splits Annual Meeting to Cope With Virus**\
+`The Asian Development Bank (ADB) said on Friday it would divide its annual meeting so that it would be held over two dates to cope with travel restrictions imposed by the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-adb.html?searchResultPosition=2
 
-**Coronavirus Death Toll in Italy's Lombardy Jumps Some 380 in a Day - Source**\
-`The death toll from an outbreak of coronavirus in the northern Italian region of Lombardy, which has borne the brunt of a nationwide contagion, has risen by around 380 in a day to some 2,550, a source said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-italy-lombardy.html?searchResultPosition=3
+**In Coronavirus Lockdown, Lebanese Banks Turn Off Dollar Tap for Hard-Hit Depositors**\
+`Since Lebanon was placed in lockdown to curb the spread of coronavirus, cash-strapped banks have cut access to dollars for depositors already separated from much of their savings by months of tightening controls.`\
+https://nytimes.com/reuters/2020/03/20/world/middleeast/20reuters-lebanon-crisis-banks.html?searchResultPosition=3
 
-**Downgrade Doom Looms for Coronavirus-Hit Firms and Markets**\
-`A wave of credit rating downgrades in the corporate sector risks deepening a funding crisis for company bosses and spreading it to other markets.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-credit-agencies-analysis.html?searchResultPosition=4
+**Top Flyer: Dayton's Obi Toppin Leads AP All-American Team**\
+`Dayton star Obi Toppin is the lone unanimous first-team choice to The Associated Press college basketball All-America team announced Friday.`\
+https://nytimes.com/aponline/2020/03/20/sports/ncaabasketball/ap-bkc-ap-all-america-team.html?searchResultPosition=4
 
-**Brazil Senate Approves State of Emergency to Fight Coronavirus**\
-`Brazil's Senate on Friday approved a presidential decree declaring a national emergency over the coronavirus epidemic, allowing the government to waive fiscal targets and free up budget resources to fight the virus that has killed seven and infected 621 in the country.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-brazil-emergency.html?searchResultPosition=5
+**Minor League Advocacy Group Demands $15,000 Salaries**\
+`A collection of former and current players have formed an advocacy group asking that Major League Baseball roughly double salaries in the minors to $15,000 per season. `\
+https://nytimes.com/aponline/2020/03/20/sports/baseball/ap-bbm-minor-league-advocacy-group.html?searchResultPosition=5
 
-**Spain to Treat Thousands of Coronavirus Patients in Conference Hall as Toll Tops 1,000**\
-`Spanish authorities said on Friday they would turn a Madrid conference center into a giant makeshift military hospital for thousands of coronavirus patients, as Europe's second-worst outbreak claimed another 235 lives.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-spain.html?searchResultPosition=6
+**Canada and the US Agree to Turn Back Migrants at Border**\
+`Canadian Prime Minister Justin Trudeau said Friday that Canada and the United States have reached a reciprocal agreement under which they will now be sending back back migrants who attempt to cross illegally anywhere at the border. `\
+https://nytimes.com/aponline/2020/03/20/world/ap-cn-virus-outbreak-canada-us.html?searchResultPosition=6
 
-**Coronavirus Death Toll in England Rises to 167**\
-`A further 39 people have died in England after testing positive for the coronavirus, bringing the total number of confirmed deaths in the country to 167, the National Health Service said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-britain-casualties.html?searchResultPosition=7
+**Lebanon FM Summons US Ambassador Over American's Release**\
+`Lebanon's foreign minister on Friday summoned the U.S. ambassador, seeking an explanation for how an American on trial in Beirut was transferred out of the country from the U.S. Embassy compound. `\
+https://nytimes.com/aponline/2020/03/20/world/middleeast/ap-ml-lebanon-us-.html?searchResultPosition=7
 
-**AP Was There: Worthy, Jordan Lead UNC to '82 Title vs. Hoyas**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/03/20/sports/ncaabasketball/bc-bkc-ap-was-there-north-carolina-georgetown-1982.html?searchResultPosition=8
+**New York Governor Orders All Non-Essential Businesses Closed, Says Everyone Must Stay Home**\
+`New York Governor Andrew Cuomo said on Friday that all non-essential businesses must close and all non-essential members of the workforce must stay home by an executive order expected later in the day.`\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-new-york.html?searchResultPosition=8
 
-**Is Our Fight Against Coronavirus Worse Than the Disease?**\
-`There may be more targeted ways to beat the pandemic.`\
-https://nytimes.com/2020/03/20/opinion/coronavirus-pandemic-social-distancing.html?searchResultPosition=9
+**Glencore Says Coronavirus-Related Restrictions Affect Its Smaller Operations**\
+`Glencore said on Friday that restrictions imposed by governments to curb the coronavirus outbreak has had some impact on its smaller operations in different countries.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-glencore.html?searchResultPosition=9
 
-**White House Enlists Military to Import Swabs for Coronavirus Tests**\
-`Peter Navarro, President Trump’s trade adviser, has been working to ease supply chain bottlenecks.`\
-https://nytimes.com/2020/03/20/us/politics/white-house-military-coronavirus-tests.html?searchResultPosition=10
+**Historian Niall Ferguson Warns of Contagion, Online and Off**\
+`Historian Niall Ferguson has a knack for timing his TV projects. `\
+https://nytimes.com/aponline/2020/03/20/business/ap-us-tv-niall-ferguson-.html?searchResultPosition=10
 
