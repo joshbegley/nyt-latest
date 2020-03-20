@@ -1,40 +1,40 @@
-**Sri Lanka to Impose National Curfew as South Asia Accelerates Coronavirus Battle**\
-`Mosques in Sri Lanka were shut indefinitely from Friday, and the island is set to impose a countrywide curfew over the weekend, as South Asian countries step up efforts to check the spread of COVID-19 cases.`\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-helath-coronavirus-southasia.html?searchResultPosition=1
+**Africa, Latin America Fragile Targets for Coronavirus Spread**\
+`The West African nation of Mali has roughly one ventilator per 1 million of its people — 20 in all to help the critically ill. In Peru, with more than 32 million people, about 350 beds in intensive care units exist.`\
+https://nytimes.com/aponline/2020/03/20/world/africa/ap-af-virus-outbreak-vulnerable-countries.html?searchResultPosition=1
 
-**Come Back to Fight Coronavirus, UK Begs 65,000 Former Nurses and Doctors**\
-`Britain has asked 65,000 former nurses and doctors to return to work and will deploy final-year medical students to fight the coronavirus health crisis, the health ministry said.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-britain-retired.html?searchResultPosition=2
+**Young Adults Come to Grips With Coronavirus Health Risks**\
+`It can be a serious disease for younger people, and many millennials have chronic physical and mental health conditions.`\
+https://nytimes.com/2020/03/20/health/coronavirus-millennials-young-adults.html?searchResultPosition=2
 
-**Business Fallout: Hong Kong Express to Halt Flights Til May**\
-`Less than three months ago came the first reports of cases of pneumonia related to a virus first detected in Wuhan, China. The outbreak of the virus that causes COVID-19 has caused unprecedented disruptions that have brought an unparalleled shock to the global economy. `\
-https://nytimes.com/aponline/2020/03/20/business/ap-virus-outbreak-business-fallout.html?searchResultPosition=3
+**Coronavirus and Poverty: A Mother Skips Meals So Her Children Can Eat**\
+`Americans with tight financial resources have fewer options as they navigate coronavirus closures and layoffs.`\
+https://nytimes.com/2020/03/20/us/coronavirus-poverty-school-lunch.html?searchResultPosition=3
 
-**Philippines Reports 13 New Coronavirus Infections, One New Death**\
-`The Philippines' health ministry on Friday recorded 13 new coronavirus cases and one death as the country's main island is under strict quarantine measures.`\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-philippines-cases.html?searchResultPosition=4
+**Can’t Get Tested? Maybe You’re in the Wrong Country**\
+`Decisions and blunders made months ago have caused testing disparities worldwide. The science, it turns out, was the easy part.`\
+https://nytimes.com/2020/03/20/world/europe/coronavirus-testing-per-country.html?searchResultPosition=4
 
-**Brawling Monkeys Fed by Thai Villagers as Tourism Dries Up**\
-`A mass brawl between two troupes of monkeys in Thailand's Lopburi province, captured on a video clip that went viral online last week, sparked concerns that the animals might be starving as coronavirus pandemic was keeping tourists away.`\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-thailand-monkeys.html?searchResultPosition=5
+**The Best-Case Outcome for the Coronavirus, and the Worst**\
+`Will we endure 2.2 million deaths? Or will we manage to turn things around?`\
+https://nytimes.com/2020/03/20/opinion/coronavirus-outcomes.html?searchResultPosition=5
 
-**Indian State to Close Shops, Offices in Financial Capital Mumbai**\
-`India's westerly state of Maharashtra on Friday decided to close all shops and offices except those providing essential services in India's financial capital Mumbai, Pune and Nagpur until March 31 in an attempt to restrict the spread of coronavirus, the chief minister of the state said.`\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-india-mumbai.html?searchResultPosition=6
+**New York’s Last Coal-Fired Power Plant Is Closing**\
+`The community is fearful of what will happen once it shutters.`\
+https://nytimes.com/2020/03/20/nyregion/coal-energy-ny.html?searchResultPosition=6
 
-**Muslims in Indonesia Divided Over Friday Prayers Amid Coronavirus Fears**\
-`While many Muslims in Indonesia's capital accepted advice to avoid religious gatherings and prayed at home on Friday elsewhere in the world's most populous Muslim country, people ignored the risk of coronavirus and crowded into their mosques.`\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-mosques.html?searchResultPosition=7
+**The Coder and the Dictator**\
+`Gabriel Jiménez hated the Venezuelan strongman Nicolás Maduro. But he loved cryptocurrency. When he built the regime a digital coin, he nearly paid with his life.`\
+https://nytimes.com/2020/03/20/technology/venezuela-petro-cryptocurrency.html?searchResultPosition=7
 
-**Finnish Health Boss Questions WHO Coronavirus Testing Advice**\
-`Finland's national health authority questioned on Friday the  World Health Organization's call on countries to test as many patients as possible for coronavirus, after the country ran out of testing capacity this week.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-finland-who.html?searchResultPosition=8
+**New York’s Millennial Homeowners and Where to Find Them**\
+`Bargains abound for first-time buyers, but few young people qualify for them. This is how and where they’re making it work.`\
+https://nytimes.com/2020/03/20/realestate/millennial-first-time-home-buyer.html?searchResultPosition=8
 
-**French State Has Enough Money to Pay Civil Servants Through Crisis-Minister**\
-`The French government has enough money to be able to pay its civil servants during the coronavirus crisis, Finance Minister Bruno Le Maire said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-france-civilservants.html?searchResultPosition=9
+**Coughing Lawyers. Uneasy Jurors. Can Courts Work Under Coronavirus?**\
+`The justice system is struggling to deal with the pandemic, turning to video arraignments and considering the release of older Rikers prisoners.`\
+https://nytimes.com/2020/03/20/nyregion/coronavirus-new-york-courts.html?searchResultPosition=9
 
-**European Shares Bounce for Second Day on Stimulus Hopes**\
-`European shares jumped for a second straight session on Friday, as a wave of fiscal and monetary stimulus tempted investors back into equity markets after days of selling on signs the world was heading into a deep, coronavirus-driven recession.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-europe-stocks.html?searchResultPosition=10
+**Once Scrutinized, an Insurance Product Becomes a Crisis Lifeline**\
+`The I.R.S. stepped up its crackdown on abuses of ‘captive insurance’ in January, but the vehicle may prove its worth during the coronavirus outbreak.`\
+https://nytimes.com/2020/03/20/your-money/coronavirus-insurance-small-business.html?searchResultPosition=10
 
