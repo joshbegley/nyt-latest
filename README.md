@@ -1,36 +1,36 @@
-**What Music Should I Listen to in a Crisis?**\
-`Pop critics from around the country recommend pick-me-ups: Pharrell, the Pointer Sisters, Helado Negro and more.`\
-https://nytimes.com/2020/03/20/arts/music/popcast-coronavirus-listening-guide.html?searchResultPosition=2
+**Costa Rica Coronavirus Case Tally Rises Beyond 100: Government**\
+`Costa Rica currently has 109 active cases of coronavirus infection, the health ministry said on Friday.`\
+https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-costa-rica-tally.html?searchResultPosition=2
 
-**Home With Your Kids? Writers Want to Help**\
-`Mo Willems, Gene Luen Yang, Amie Kaufman and other authors for young readers are reading their work online and offering drawing tutorials, to help fill our strange new hours.`\
-https://nytimes.com/2020/03/20/books/writers-entertain-kids-virus.html?searchResultPosition=3
+**Canada's Stretched Hospitals Brace for Impact**\
+`Canada's health system is preparing for an influx of coronavirus patients in the midst of a long-running bed shortage, calling doctors out of retirement and ramping down any treatment that can wait. `\
+https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-canada-healthcare.html?searchResultPosition=3
 
-**'I'm Going to Keep Working': Grocery Clerks Unlikely Heroes in U.S. Coronavirus Fight**\
-`For Philip, a grocery store clerk, it's not a matter of if he gets coronavirus, but when.`\
-https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-workers.html?searchResultPosition=4
+**Trump's Big Promises on COVID-19 Often Fall Short**\
+`It's become a fixture of life under quarantine.`\
+https://nytimes.com/aponline/2020/03/20/us/politics/ap-us-virus-outbreak-trump-promises.html?searchResultPosition=4
 
-**McDonald's Suspends Buybacks, Leaves Dividend Policy Unchanged: CEO to CNBC**\
-`McDonald's Corp has suspended share buybacks to help it navigate thorough the coronavirus crisis, but has not changed its dividend policy, Chief Executive Officer Chris Kempczinski told CNBC https://www.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-mcdonalds-dividend.html?searchResultPosition=5
+**NATO: North Macedonia's Leader Inks Final Accession Document**\
+`North Macedonia’s President Stevo Pendarovski on Friday signed a final accession document required for the country to become the next member of NATO.`\
+https://nytimes.com/aponline/2020/03/20/us/politics/ap-eu-north-macedonia-nato.html?searchResultPosition=5
 
-**Quarantinis Anyone? Happy Hours Go Virtual Amid Virus Crisis**\
-`The hottest new bar's dress code? Your sweatpants. And you don't even have to leave your couch. `\
-https://nytimes.com/aponline/2020/03/20/us/ap-us-virus-outbreak-virtual-happy-hour.html?searchResultPosition=6
+**Key Additions and Subtractions for NFC Teams in Free Agency**\
+`ARIZONA`\
+https://nytimes.com/aponline/2020/03/20/sports/football/ap-fbn-on-football-nfc-free-agency-moves.html?searchResultPosition=6
 
-**How Major US Stock Indexes Fared Friday**\
-`Wall Street had its worst week since the financial crisis of 2008 as traders went into full retreat out of fear that the coronavirus will plunge the U.S. and other major economies into deep recessions. `\
-https://nytimes.com/aponline/2020/03/20/business/ap-financial-markets-box.html?searchResultPosition=7
+**Things to Do in N.Y.C. This Weekend While Staying Inside**\
+`Social distancing and maintaining a social life.`\
+https://nytimes.com/2020/03/20/nyregion/nyc-things-to-in-nyc-coronavirus-quarantine.html?searchResultPosition=7
 
-**Trump vs Fauci: President and Doctor Spar Over Unproven Drug**\
-`In an extraordinary exchange, President Donald Trump and the government's top infectious disease expert, Dr. Anthony Fauci, publicly sparred Friday on whether a malaria drug would work to treat people with coronavirus disease.`\
-https://nytimes.com/aponline/2020/03/20/us/politics/ap-us-virus-outbreak-trump-fauci.html?searchResultPosition=8
+**Mexico Central Bank Cuts Rate Out of Cycle, Unveils Financial System Liquidity Measures**\
+`The Mexican central bank on Friday announced a 50 basis points out-of-cycle cut that brought its benchmark interest rate to 6.50%, along with other measures to support financial markets roiled by the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-mexico-cenbank-rates.html?searchResultPosition=8
 
-**Heavy Rains Flood Parts of Ohio, Stranding Residents**\
-`In central and southern Ohio, hundreds of people have been evacuated from homes and vehicles after a period of intense rain.`\
-https://nytimes.com/2020/03/20/us/ohio-flooding.html?searchResultPosition=9
+**Golf Rankings Frozen With McIlroy, Ko on Top**\
+`The Official World Golf Rankings and Rolex Women's World Golf Rankings have been paused while golf events are on hold because of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/20/sports/golf/20reuters-golf-pga-owgr-wwgr.html?searchResultPosition=9
 
-**Relief Offered From Testing and Student Loans as Virus Roils Education**\
-`The Trump administration suspended mandated standardized testing and offered loan relief to student borrowers, as the coronavirus shut down education.`\
-https://nytimes.com/2020/03/20/us/politics/coronavirus-student-loans-education-testing.html?searchResultPosition=10
+**In Relief for Canada's Agriculture Sector, Temporary Foreign Workers to Be Allowed In**\
+`Canada will allow temporary foreign workers with valid visas to enter the country, officials said on Friday, offering possible salvation to the agriculture industry even as Ottawa moves to limit the spread of a coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-canada-farmworkers.html?searchResultPosition=10
 
