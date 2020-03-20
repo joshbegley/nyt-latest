@@ -1,40 +1,40 @@
+**Factbox: What's Left in the Tank for the Big Three Central Banks?**\
+`The world's top three central banks have deployed an array of weapons to fight the profound economic threat posed by the global coronavirus pandemic, increasingly seen as likely to spur the first outright contraction in the world economy since the 2007-09 financial crisis.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-central-banks-tools-factbox.html?searchResultPosition=1
+
+**Shanghai Says Global Financial Giants Investing Despite Virus**\
+`Some of the world's top financial institutions, including BlackRock and JPMorgan, are increasing investments in China's financial hub Shanghai, undeterred by the novel coronavirus outbreak, the city government said on Friday.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-china-finance.html?searchResultPosition=2
+
+**Mexico's Oldest Workers Brave Coronavirus to Bag Groceries at Walmart**\
+`Grocers including Walmart de Mexico are under pressure to pull from stores tens of thousands of elderly workers who pack bags at checkouts as concerns grow about their vulnerability to coronavirus in a period of panic buying across the country.`\
+https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-mexico-elderly.html?searchResultPosition=3
+
+**Tesla's China Car Registrations Fall 35% Month-On-Month in February**\
+`U.S. electric vehicle maker Tesla Inc's China car registrations fell 35% in February, month on month, data from auto consultancy LMC Automotive showed.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-tesla-china-registration.html?searchResultPosition=4
+
+**UK Government Readies Extreme Measures to Right Capsizing Economy**\
+`Britain will take further emergency measures to stem the collapse of its economy on Friday, when finance minister Rishi Sunak will outline plans to prop up companies and workers who face hardship from the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-britain-sunak.html?searchResultPosition=5
+
+**Spain's Coronavirus Death Toll Surpasses 1,000**\
+`Spain's death toll from the coronavirus epidemic soared to 1,002 on Friday from 767 on the previous day, the country's health emergencies chief Fernando Simon said.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-spain-tally.html?searchResultPosition=6
+
+**Boeing Eyes Production Pause as Virus Spreads: Sources**\
+`Boeing Co is leaning toward a temporary work stoppage at its twin-aisle jetliner factories due to the spread of coronavirus, people familiar with the matter said on Thursday, echoing a similar move by European rival Airbus SE.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-healthcare-coronavirus-boeing-production.html?searchResultPosition=7
+
+**Wall Street Weekahead: Coronavirus Uncertainty Muddies Views on Buying Opportunities for Plunging Stocks**\
+`U.S. stock valuations are tumbling in the wake of the coronavirus-fueled market rout, but determining when equities are cheap enough to buy is a tricky proposition.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-usa-stocks-weekahead.html?searchResultPosition=8
+
+**As Coronavirus Takes Emotional Toll, Mental Health Professionals Brace for Spike in Demand**\
+`For the last few days, unease and paranoia have followed Ann Ostburg like a black cloud, as the coronavirus swept through the United States, reaching all 50 states by this week.`\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-mentalhealth.html?searchResultPosition=9
+
 **Former FIBA Head Borislav Stankovic Dies**\
 `Borislav Stankovic, the former longtime International Basketball Federation secretary general responsible for bringing NBA players to the Olympics, has died, the international body said. He was 94. `\
-https://nytimes.com/aponline/2020/03/20/sports/ap-spt-obit-stankovic.html?searchResultPosition=1
-
-**N.Y. Has Over 40 Percent of U.S. Coronavirus Cases: Live Updates**\
-`The number of cases in New York State has jumped nearly 700 percent over the course of the week.`\
-https://nytimes.com/2020/03/20/nyregion/coronavirus-new-york-update.html?searchResultPosition=2
-
-**South Korean Workers Protest as Military Cost-Sharing Dispute With U.S. Threatens Jobs**\
-`Union leaders representing South Korean support workers for the U.S. military demonstrated on Friday outside the United States embassy as a disagreement over cost-sharing threatens to relegate thousands of employees to unpaid leave next month.`\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-southkorea-usa-military.html?searchResultPosition=3
-
-**Official Says 25 Afghan Forces Killed in Insider Attack**\
-`At least 25 police and army personnel were killed in an apparent insider attack early Friday, Afghan officials said. The attack took place in southern Zabul province, a Taliban stronghold.`\
-https://nytimes.com/aponline/2020/03/20/world/asia/ap-as-afghanistan.html?searchResultPosition=4
-
-**June's Tour of Slovenia Scrapped Over Coronavirus**\
-`Cycling's Tour of Slovenia has been canceled due to coronavirus fears, organizers said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/sports/cycling/20reuters-health-coronavirus-cycling-slovenia.html?searchResultPosition=5
-
-**Joshua's Pulev Fight Not Yet Off but Hearn Speculates on Fury Bout**\
-`Promoter Eddie Hearn says Anthony Joshua's world heavyweight title defense against IBF mandatory challenger Bulgarian Kubrat Pulev in June has not been postponed yet due to coronavirus, despite the opponent suggesting it would be moved.`\
-https://nytimes.com/reuters/2020/03/20/sports/20reuters-boxing-joshua.html?searchResultPosition=6
-
-**Spanish Athletes Fight Coronavirus Cabin Fever**\
-`With the Olympic Games four months away, Spanish race walker Laura Garcia Caro should be clocking up hundreds of kilometres in the Guadarrama Mountains outside Madrid, on her way to peaking for the sporting event of her life.`\
-https://nytimes.com/reuters/2020/03/20/sports/olympics/20reuters-health-coronavirus-olympics-spain.html?searchResultPosition=7
-
-**With the Boston Marathon Postponed, Des Linden Hits the Couch**\
-`Linden was planning to run two marathons 51 days apart. Nuts? Her blood work suggested it wasn’t. Then a pandemic intervened.`\
-https://nytimes.com/2020/03/20/sports/des-linden-marathon.html?searchResultPosition=8
-
-**How to Have a Successful Virtual Happy Hour**\
-`The coronavirus has turned drinks at the bar into drinks in our individual homes, but that doesn’t mean you have to drink alone.`\
-https://nytimes.com/2020/03/20/well/virus-virtual-happy-hour.html?searchResultPosition=9
-
-**Take our Hand-Washing Challenge**\
-`Thanks to coronavirus, the time has come for a new song to help us properly wash our hands.`\
-https://nytimes.com/2020/03/20/well/take-our-hand-washing-challenge.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/20/sports/ap-spt-obit-stankovic.html?searchResultPosition=10
 
