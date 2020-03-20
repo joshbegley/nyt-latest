@@ -1,40 +1,40 @@
-**What Students Are Saying About Parental Surveillance, Living Without Wi-Fi and Vibrant Youth**\
-`Teenage comments in response to our recent writing prompts, and an invitation to join the ongoing conversation.`\
-https://nytimes.com/2020/03/19/learning/what-students-are-saying-about-parental-surveillance-living-without-wi-fi-and-vibrant-youth.html?searchResultPosition=1
+**Coronavirus Forces Brazilian Retailers to Close Stores and Boost e-Commerce**\
+`Brazilian retailers are feeling the coronavirus heat as malls close and people stay at home, but e-commerce may benefit.`\
+https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-health-coronavirus-brazil-retail.html?searchResultPosition=1
 
-**How Much Watching Time Do You Have This Weekend?**\
-`Cooped up all weekend? Check out the cutest new show for children and the craziest documentary for adults.`\
-https://nytimes.com/2020/03/19/arts/television/tiger-king-netflix-bluey-disney-plus.html?searchResultPosition=2
+**Hollywood Movie Studios Suspend Release of Box Office Data After Coronavirus Slump**\
+`Movie studios Walt Disney and Universal Pictures said on Thursday they were suspending the release of box office data because of the closure of movie theaters in multiple countries in a bid to contain the coronavirus.`\
+https://nytimes.com/reuters/2020/03/19/arts/19reuters-health-coronavirus-box-office.html?searchResultPosition=2
 
-**Cuomo Emerges as Democratic Counter to Trump Virus Response**\
-`Before President Donald Trump stepped into the White House briefing room on Thursday to provide an update on the coronavirus, an opening act was broadcast across cable news of another chief executive calmly reciting statistics and safety tips.`\
-https://nytimes.com/aponline/2020/03/19/us/politics/ap-us-virus-outbreak-cuomo.html?searchResultPosition=3
+**China's $118 Billion Virus Lending Push Stymied by Bureaucratic Confusion**\
+`China's efforts to pump 800 billion yuan ($118 billion) into companies via cheap bank loans to counter the economic impact of the virus outbreak have run into a snag: bureaucratic confusion.`\
+https://nytimes.com/reuters/2020/03/19/world/asia/19reuters-health-coronavirus-china-loans.html?searchResultPosition=3
 
-**Of Course Trump Deserves Blame for the Coronavirus Crisis**\
-`There’s no moving forward without understanding what’s going wrong.`\
-https://nytimes.com/2020/03/19/opinion/trump-coronavirus-us.html?searchResultPosition=4
+**Two Los Angeles Lakers Players Have Tested Positive for COVID-19, Team Says**\
+`Two Los Angeles Lakers players have tested positive for coronavirus, the NBA franchise said on Thursday, and have been quarantined under the care of the basketball team's doctor.`\
+https://nytimes.com/reuters/2020/03/19/sports/basketball/19reuters-health-coronavirus-lakers.html?searchResultPosition=4
 
-**Bavaria Head More Popular Than Merkel in Midst of Coronavirus Crisis**\
-`The premier of the southern state of Bavaria, Markus Soeder, is Germany's most popular politician, a poll showed on Friday, boosting his chances of standing as the conservative chancellor candidate in the next election and succeeding Angela Merkel.`\
-https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-health-coronavirus-germany-politics.html?searchResultPosition=5
+**Occidental Plans to Name Former CEO Chazen as Chairman: WSJ**\
+`Oil and gas producer Occidental Petroleum Corp is planning to name former Chief Executive Officer Stephen Chazen as its new chairman, WSJ reported https://on.wsj.com/33xeJJ7 on Thursday, citing people familiar with the matter.`\
+https://nytimes.com/reuters/2020/03/19/us/19reuters-occidental-chairman.html?searchResultPosition=5
 
-**Bolsonaro Says Coronavirus to Peak in Brazil in Three-Four Months**\
-`The coronavirus outbreak in Brazil is expected to peak in three or four months, President Jair Bolsonaro said on Thursday, adding that the country should then return to normality in six to seven months' time.`\
-https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-health-coronavirus-brazil-bolsonaro.html?searchResultPosition=6
+**Pebley Calls on USA Swimming to Postpone Olympic Trials**\
+`United States backstroke specialist Jacob Pebley has called on USA Swimming to postpone June's Olympic trials and lobby for the Tokyo Games to be postponed due to the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/03/19/sports/olympics/19reuters-health-coronavirus-swimming-usa.html?searchResultPosition=6
 
-**Argentina to Announce Obligatory Quarantine to Curb Coronavirus: Sources**\
-`Argentina will announce an obligatory quarantine to curb the spread of coronavirus, provincial government sources said on Thursday.`\
-https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-health-coronavirus-argentina.html?searchResultPosition=7
+**British Airways Pilots to Face 50% Pay Cut Over Coronavirus: FT**\
+`British Airways pilots will face a 50% pay cut to their basic salary for April and May, as the airline seeks to reduce its cost to try survive the coronavirus crisis, the Financial Times reported https://on.ft.com/2xdsAYR on Thursday.`\
+https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-health-coronavirus-british-airways.html?searchResultPosition=7
 
-**U.N. Condemns Libya Shelling Deaths After Coronavirus Truce Plea**\
-`The United Nations Libya mission condemned a shelling attack on Thursday that it said killed four girls and young women hours after international pleas for a humanitarian pause to help with the fight against the coronavirus. `\
-https://nytimes.com/reuters/2020/03/19/world/africa/19reuters-libya-security.html?searchResultPosition=8
+**Factbox: Banks Cut S&P 500 Earnings, Other Targets Due to Coronavirus**\
+`Strategists from top U.S. financial firms have been cutting their earnings per share and other targets for the S&P 500 due to the expected impact of the coronavirus pandemic on corporate results. Here are some of their views: `\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-china-health-s-p500-targets-factbox.html?searchResultPosition=8
 
-**Argentina to Give Teleconference on Public Debt Negotiations on Friday**\
-`Argentina's minister of economy will give a teleconference on Friday on the country's ongoing public debt negotiations, the ministry said on Thursday.`\
-https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-argentnia-economy.html?searchResultPosition=9
+**Fast Food Chains Easing Rent, Fees for Franchisees Amid Coronavirus**\
+`Dunkin' Brands Group Inc on Thursday said it will ease royalty and advertising fee payments for franchisees in the United States and Canada, while McDonald's Corp is in talks to reduce some payments for franchisees.`\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-usa-fastfood.html?searchResultPosition=9
 
-**Fed's Daly Says 'Our Tools Are Starting to Work' in Markets**\
-`The U.S. central bank's moves this week to slash borrowing costs, shore up plumbing in key pockets of the financial markets and remove barriers to tapping the Fed's emergency loan window are starting to have an effect, San Francisco Federal Reserve President Mary Daly said on Thursday.`\
-https://nytimes.com/reuters/2020/03/19/us/19reuters-health-coronavirus-fed-daly.html?searchResultPosition=10
+**Renault Board to Meet, Discuss Coronavirus Crisis: Sources**\
+`The board of French carmaker Renault will meet on Friday to discuss the coronavirus outbreak and its effect on operations, three sources close to the company said. `\
+https://nytimes.com/reuters/2020/03/19/business/19reuters-health-coronavirus-renault.html?searchResultPosition=10
 
