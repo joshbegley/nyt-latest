@@ -1,5 +1,5 @@
 **North Korea Fires Short-Range Ballistic Missiles, South Says**\
-`It was the country’s third weapons tests this month, South Korean officials sa`\
+`It was the country’s third weapons tests this month, South Korean officials said.`\
 https://nytimes.com/2020/03/20/world/asia/north-korea-missile.html?searchResultPosition=2
 
 **How New York Survived the Great Pandemic of 1918**\
