@@ -1,40 +1,40 @@
-**Highlights: UK's Sunak Goes All Out to Avert Economic Collapse**\
-`British finance minister Rishi Sunak launched a gigantic stimulus package to stabilise Britain's virus-hit economy on Friday, including the government paying the wages of workers up and down the country.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-britain-sunak-highlights.html?searchResultPosition=1
+**Paris Hospitals Brace for Coronavirus Peak in April: Doctors**\
+`Hospitals in Paris are scrambling to find more intensive care beds, ventilators and medical staff ahead of an expected spike in the number of coronavirus patients in coming days, with the figure expected to peak in April, doctors said on Friday.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-france-paris.html?searchResultPosition=1
 
-**UK Aims to Finance Coronavirus Measures Through Normal Debt Issuance**\
-`Britain will aim to meet the cost of unprecedented measures to keep people in jobs through the coronavirus crisis via normal debt issuance, finance minister Rishi Sunak said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-britain-debt.html?searchResultPosition=2
+**Russian Billionaire Hands Out Free Masks as Coronavirus Cases Grow**\
+`When billionaire Igor Rybakov saw medical masks becoming scarcer and more expensive in Russia, he bought up a batch to hand out free to Muscovites worried about coronavirus but who have found it impossible to find masks. `\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-russia-masks.html?searchResultPosition=2
 
-**Ginsburg, Other Justices 'Healthy' as U.S. Supreme Court Adjusts to Coronavirus**\
-`U.S. Supreme Court justices, including 87-year-old Ruth Bader Ginsburg, are all healthy, with some participating remotely in a private meeting on Friday as they weigh how to proceed during the coronavirus pandemic, a court spokeswoman said.`\
-https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-court.html?searchResultPosition=3
+**The United Kingdom Is Closed: Johnson Shutters Pubs and Restaurants**\
+`Prime Minister Boris Johnson effectively closed down the United Kingdom on Friday, ordering pubs, restaurants, theaters, cinemas and gyms to shut their doors in a bid to slow down the accelerating spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-britain-cafes.html?searchResultPosition=3
 
-**UK's Tesco to Hire 20,000 People to Cope With Rush on Supermarkets**\
-`Britain's market-leading supermarket chain Tesco said on Friday it would hire 20,000 people to work in its stores for at least the next 12 weeks to cope with an unprecedented increase in demand for food and household products.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-britain-tesco.html?searchResultPosition=4
+**Poland Shuts Schools Until Easter**\
+`Poland's government has declared a state of epidemic and will cancel school classes until Easter, Poland's Prime Minister Mateusz Morawiecki said on Friday, as it aims to clamp down on the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-poland-state-of-epidemic.html?searchResultPosition=4
 
-**Two Air Force Personnel Recently at Pentagon Test Positive for Coronavirus**\
-`A United States Air Force contractor who works at the Pentagon and an active-duty service member who visited the building earlier this month have tested positive for the coronavirus, the Air Force said on Friday, the first known cases of individuals with the virus to have been in the building.`\
-https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-pentagon-airforce.html?searchResultPosition=5
+**Iran, France Agree on Release of Prisoners, Iranian Judiciary Website**\
+`Iran and France have agreed to release a French citizen held in Iran, and an Iranian detained in France on charges linked to violating U.S. sanctions against Tehran, the Iranian judiciary said on its website on Friday.`\
+https://nytimes.com/reuters/2020/03/20/world/middleeast/20reuters-iran-france-prisoners.html?searchResultPosition=5
 
-**WHO Message to Youth on Virus: 'You Are Not Invincible'**\
-`Coronavirus can sicken or kill young people, who must also avoid mingling and spreading it to older and more vulnerable people, the World Health Organization (WHO) said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-who.html?searchResultPosition=6
+**Working from Home with Musical Accompaniment**\
+`The coronavirus has changed the way we all use our homes.`\
+https://nytimes.com/2020/03/20/realestate/working-from-home-with-musical-accompaniment.html?searchResultPosition=6
 
-**Coronavirus Shutdown to Cut Europe, Americas Auto Production by 1.44 Million: IHS Markit**\
-`As carmakers grapple with growing signs of coronavirus damage, vehicle production could be reduced by about 1.44 million in Europe, North America and Latin America, according to an estimate by information provider IHS Markit.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-autos.html?searchResultPosition=7
+**Italian Way of Life Could Get in Nibali's Way Amid Coronvarius Outbreak**\
+`Italy's Vincenzo Nibali has been advised to keep his weight down so he can ride full steam ahead when racing resumes, but the former Tour de France champion knows it will be hard to follow his coach's recommendations amid the coronavirus outbreak.   `\
+https://nytimes.com/reuters/2020/03/20/sports/cycling/20reuters-health-coronavirus-cycling-nibali.html?searchResultPosition=7
 
-**Can’t Actually Play Sports? Why Not Simulate Them?**\
-`Not even bar sports are immune to cancellation. But many people are getting creative by simulating competitions, inviting fans and athletes to compete together.`\
-https://nytimes.com/2020/03/20/sports/no-sports.html?searchResultPosition=8
+**Your Money-Separation Anxiety: Divorce, Money and Coronavirus**\
+`The first few days of staying at home for coronavirus seclusion with my two kids were chaotic, stressful and scary, much like they were for everyone else. `\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-divorce.html?searchResultPosition=8
 
-**A Different Way to Chart the Spread of Coronavirus**\
-`Those skyrocketing curves tell an alarming story. But logarithmic graphs can help reveal when the pandemic begins to slow.`\
-https://nytimes.com/2020/03/20/health/coronavirus-data-logarithm-chart.html?searchResultPosition=9
+**Latin American Committees Push for Qualifiers to Go Down to the Wire**\
+`Athletes should be given the chance to qualify for the Tokyo Olympics right until the Games begin on July 24 due to the disruption caused to the sporting calendar by the coronavirus pandemic, Olympic committees in Latin America said.`\
+https://nytimes.com/reuters/2020/03/20/sports/olympics/20reuters-health-coronavirus-olympics-latam.html?searchResultPosition=9
 
-**The War on Coronavirus Comes to Trump Properties**\
-`Health restrictions have led to cutbacks at hotels and golf courses. But the swimming pool remains open at a Florida resort, and a New York golf course offers “fresh air” without caddies.`\
-https://nytimes.com/2020/03/20/business/trump-businesses-coronavirus.html?searchResultPosition=10
+**Grappling With Losses, Hedge Funds Seek New Ways to Make Money**\
+`The funds are reducing risks and raising cash as the markets dent their investments and conventional wisdom fails.`\
+https://nytimes.com/2020/03/20/business/coronavirus-hedge-funds-stocks.html?searchResultPosition=10
 
