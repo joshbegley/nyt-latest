@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-health-coronavirus
 `Irish consumer sentiment weakened significantly in early March, a survey taken before the country took its first major measures to tackle coronavirus showed on Friday.`\
 https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-ireland-economy-consumersentiment.html?searchResultPosition=6
 
-**California Rushes to Try to Contain Virus Among the Homeless**\
+**California Rushes to Prevent Virus Spread Among the Homeless**\
 `Home to the largest homeless population in the country, California officials are rushing to get tens of thousands of people off the streets and into shelters and tents to slow the spread of the coronavirus among one of the most vulnerable and difficult-to-reach groups. `\
 https://nytimes.com/aponline/2020/03/19/us/ap-us-virus-outbreak-california-homeless.html?searchResultPosition=7
 
