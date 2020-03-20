@@ -1,40 +1,40 @@
+**G20 Watchdog Urges Regulatory Flexibility to Help Virus Hit Economy**\
+`Regulators should use in-built flexibility in financial rules to help banks keep funds flowing to the economy during the coronavirus epidemic, the Financial Stability Board said on Friday.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-g20-regulator.html?searchResultPosition=1
+
+**Bolsonaro Sees June as Most Critical Month for Coronavirus in Brazil**\
+`Brazilian President Jair Bolsonaro said on Friday that the month of June would likely be the most critical month for the coronavirus outbreak in the country.`\
+https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-brazil.html?searchResultPosition=2
+
+**Jerusalem Friday Prayers Sees Smaller Crowds Amid Partial Coronavirus Lockdown**\
+`Palestinian worshippers scuffled with Israeli police in East Jerusalem on Friday as crowds headed to Al-Aqsa Mosque to pray, amid a partial lockdown imposed to prevent the spread of the  coronavirus.`\
+https://nytimes.com/reuters/2020/03/20/world/middleeast/20reuters-health-coronavirus-israel-jerusalem.html?searchResultPosition=3
+
+**European Championships Postponed to August Due to Coronavirus**\
+`The 2020 European Aquatics Championships that was scheduled to take place from May 11-24 in Budapest, Hungary, has been postponed to August due to the coronavirus outbreak, Europe's aquatics governing body (LEN) said on Friday.`\
+https://nytimes.com/reuters/2020/03/20/sports/olympics/20reuters-health-coronavirus-swimming.html?searchResultPosition=4
+
+**Olympic Qualifying Events Called Off Due to Coronavirus**\
+`The last five tournaments in the qualification period for the Tokyo Olympics have been canceled due to the coronavirus pandemic, the Badminton World Federation (BWF) said on Friday.`\
+https://nytimes.com/reuters/2020/03/20/sports/olympics/20reuters-health-coronavirus-badminton.html?searchResultPosition=5
+
+**Tourists' Departure Leaves Madagascar Forlorn as Coronavirus Fears Bite**\
+`On a pristine island off the northwest coast of Madagascar famous for its orchids and turquoise, turtle-filled waters, residents are bracing for disaster - but it's not the coronavirus.  `\
+https://nytimes.com/reuters/2020/03/20/world/africa/20reuters-health-coronavirus-madagascar-tourism.html?searchResultPosition=6
+
+**EU Watchdog Says Recording Trades 'Not Always Practicable'**\
+`The European Union's markets watchdog said it may not be "practicable" to record all telephone calls for trading securities because of the coronavirus epidemic.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-eu-markets.html?searchResultPosition=7
+
+**As U.S. Workers File for Unemployment, Some States Are Less Prepared**\
+`The U.S. unemployment benefits program, a key part of the safety net for the labor market, is about to face its biggest test in more than a decade. `\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-usa-unemployment.html?searchResultPosition=8
+
+**Blackrock to Freeze Global Hiring for a Few Weeks: Source**\
+`Blackrock, the world's largest asset manager, will freeze global hiring for a few weeks, according to a source familiar with the situation.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-blackrock.html?searchResultPosition=9
+
 **Economy Normalizing in China After Coronavirus Peaked; Stark Risks Remain: IMF**\
 `China's economy is beginning to show some signs of normalization following the full-blown shock caused by the coronavirus, but stark risks remain, International Monetary Fund officials said in a blog on the economic impact of the pandemic.`\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-imf-china.html?searchResultPosition=1
-
-**AP PHOTOS: Virus Clears Out Tel Aviv's Beaches, Outdoor Gyms**\
-`On most spring days, Tel Aviv's sprawling beachfront is a hive of activity, with joggers and cyclists racing up and down the boardwalk, fitness enthusiasts pumping away at outdoor gyms and the constant racket of paddle-ball.`\
-https://nytimes.com/aponline/2020/03/20/world/middleeast/ap-ml-virus-outbreak-israel-empty-beaches.html?searchResultPosition=2
-
-**UK Government Scientists Publish Evidence on COVID-19 Evolution**\
-`British government emergency response scientists published the evidence on their understanding of COVID-19 evolution on Friday.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-britain-evidence.html?searchResultPosition=3
-
-**U.S. CDC, Emory Univ Set Up Sites to Check Coronavirus Symptoms Online**\
-`Americans worried about their exposure to coronavirus can check their symptoms with two new screening tools online.`\
-https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-screening.html?searchResultPosition=4
-
-**What You Need to Know Today About the Virus Outbreak**\
-`The death toll from the global pandemic surpassed 10,000 people worldwide and the effects of a global economy grinding to a halt because of the pandemic were beginning to show, from millions of unsold flowers rotting in piles in Kenya to the slow emptying of the world’s skies. `\
-https://nytimes.com/aponline/2020/03/20/us/ap-virus-outbreak-whats-happening.html?searchResultPosition=5
-
-**Vietnam to Quarantine All Foreign Arrivals From March 21**\
-`Vietnam will quarantine all international arrivals from March 21 to curb the spread of the coronavirus, its health ministry said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-vietnam-quarantine.html?searchResultPosition=6
-
-**On French Riviera, Overhead Police Drone Gives Coronavirus Orders**\
-`The rare person venturing onto deserted beaches below the palm-fringed Promenade des Anglais along the Nice seafront will hear a coronavirus health warning from above, blared from a drone: "Keep a safe distance of at least one metre between people."`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-france-drone.html?searchResultPosition=7
-
-**Swiss Says Coronavirus Deaths Rise to 43, Cases Jump Nearly 1,000**\
-`The number of coronavirus cases in Switzerland and Liechtenstein has risen by 952 within a day to 4,840 people, Swiss health authorities said on Friday, with 43 people reported to have died from the disease. `\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-swiss.html?searchResultPosition=8
-
-**Fleeing Virus for Resort Homes, Some Find Welcome Mat Yanked**\
-`Some city folk have been fleeing to their second homes in resort areas to ride out the coronavirus outbreak near the beach or the ski slopes.`\
-https://nytimes.com/aponline/2020/03/20/us/ap-us-virus-outbreak-fleeing-cities.html?searchResultPosition=9
-
-**United States Wants Further G7 Video Calls in April, May: Germany**\
-`The United States wants to have further video calls with the Group of Seven nations in April and May, a spokesman for the German government said on Friday, as the world battles a coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-g7-germany.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-imf-china.html?searchResultPosition=10
 
