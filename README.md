@@ -1,36 +1,36 @@
+**Congressional Hispanic Caucus' Campaign Arm Endorses Biden**\
+`Joe Biden has received the presidential endorsement of the Congressional Hispanic Caucus’ campaign arm, signaling his growing strength among a constituency that has long been key to rival Bernie Sanders’ success.`\
+https://nytimes.com/aponline/2020/03/20/us/politics/ap-us-election-2020-biden-latinos.html?searchResultPosition=2
+
+**Kosovo Partially Lifts 100% Tariff on Serb, Bosnian Goods**\
+`Kosovo's prime minister said Friday his government has partially lifted a controversial 100% tariff on Serb and Bosnian goods as a goodwill gesture following pressure from the United States and the European Union.`\
+https://nytimes.com/aponline/2020/03/20/us/politics/ap-eu-kosovo-serbia-tariff.html?searchResultPosition=3
+
+**EU Proposes Triggering Crisis Clause to Allow Virus Spending**\
+`The European Union's executive arm on Friday proposed easing the bloc's budget policies so member countries can spend what they need to address the coronavirus pandemic without being subject to deficit limits and other fiscal requirements. `\
+https://nytimes.com/aponline/2020/03/20/world/europe/bc-eu-virus-outbreak-europe.html?searchResultPosition=4
+
 **U.S. Oil Companies, Heavily in Debt, Further Strained as Prices Collapse**\
 `Energy companies were major issuers of junk bonds to finance expansion. But now they are in trouble as capital has dried up and oil prices have cratered.`\
-https://nytimes.com/2020/03/20/business/energy-environment/coronavirus-oil-companies-debt.html?searchResultPosition=2
+https://nytimes.com/2020/03/20/business/energy-environment/coronavirus-oil-companies-debt.html?searchResultPosition=5
 
 **Judge Reveals He Had Collapsed Lung, Says Rib Improving**\
 `New York Yankees slugger Aaron Judge revealed he had a collapsed lung that has healed and said his broken rib is improving.`\
-https://nytimes.com/aponline/2020/03/20/sports/baseball/ap-bba-yankees-judge.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/03/20/sports/baseball/ap-bba-yankees-judge.html?searchResultPosition=6
 
 **Profiting from a Pandemic?**\
 `At least two senators engaged in suspiciously timed stock sales. All stock trades by members of Congress should be barred.`\
-https://nytimes.com/2020/03/20/opinion/coronavirus-burr-loeffler-stocks.html?searchResultPosition=4
+https://nytimes.com/2020/03/20/opinion/coronavirus-burr-loeffler-stocks.html?searchResultPosition=7
 
 **Horse Racing Grapples With Risks of Running During Pandemic**\
 `Horse racing is quickly learning it is not totally immune to the effects the coronavirus pandemic has had on other sports, and now it's grappling with the risks of continuing operations. `\
-https://nytimes.com/aponline/2020/03/20/sports/ap-rac-virus-outbreak-horse-racing.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/03/20/sports/ap-rac-virus-outbreak-horse-racing.html?searchResultPosition=8
 
 **The Drive-In, Relic of Yesterday, Finds Itself Suited to Now**\
 `The drive-in theater, long a dwindling nostalgia act in a multiplex world, is experiencing a momentary return to prominence. `\
-https://nytimes.com/aponline/2020/03/20/business/bc-us-virus-outbreak-drive-in-theaters.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/03/20/business/bc-us-virus-outbreak-drive-in-theaters.html?searchResultPosition=9
 
 **Sudan Confirms Second Coronavirus Case, Khartoum Bans Mass Gatherings**\
 `Sudan confirmed its second case of coronavirus on Friday in the capital Khartoum, as Khartoum state announced a range of measures to prevent the spread of the disease.`\
-https://nytimes.com/reuters/2020/03/20/world/africa/20reuters-health-coronavirus-sudan.html?searchResultPosition=7
-
-**Census Bureau Delays Deadline for 2020 Count by 2 Weeks**\
-`The U.S. Census Bureau is delaying the deadline for counting everyone in the U.S. by two weeks because of the spreading novel coronavirus, officials said Friday.`\
-https://nytimes.com/aponline/2020/03/20/us/ap-us-2020-census.html?searchResultPosition=8
-
-**Stock Market’s Gain Under Trump Vanishes**\
-`With another fall on Friday, the Dow Jones average is now lower than it was when President Trump took office.`\
-https://nytimes.com/2020/03/20/business/coronavirus-trump-stock-market.html?searchResultPosition=9
-
-**Argentina Needs Substantial Debt Relief From Private Creditors: IMF**\
-`The International Monetary Fund said on Friday that Argentina needs substantial debt relief from private creditors to restore debt sustainability with a high degree of probability to the economically challenged South American country.`\
-https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-argentina-debt-imf.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/20/world/africa/20reuters-health-coronavirus-sudan.html?searchResultPosition=10
 
