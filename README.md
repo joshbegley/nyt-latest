@@ -1,40 +1,40 @@
+**With the Boston Marathon Postponed, Des Linden Hits the Couch**\
+`Linden was planning to run two marathons 51 days apart. Nuts? Her blood work suggested it wasn’t. Then a pandemic intervened.`\
+https://nytimes.com/2020/03/20/sports/des-linden-marathon.html?searchResultPosition=1
+
+**How to Have a Successful Virtual Happy Hour**\
+`The coronavirus has turned drinks at the bar into drinks in our individual homes, but that doesn’t mean you have to drink alone.`\
+https://nytimes.com/2020/03/20/well/virus-virtual-happy-hour.html?searchResultPosition=2
+
+**Take our Hand-Washing Challenge**\
+`Thanks to coronavirus, the time has come for a new song to help us properly wash our hands.`\
+https://nytimes.com/2020/03/20/well/take-our-hand-washing-challenge.html?searchResultPosition=3
+
+**Anglo American Says to Reschedule Work To at Mines to Contain Virus**\
+`Anglo American said on Friday it would reschedule work at mines in countries such as Chile to contain the spread of coronavirus but added there had been no material disruption on production.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-anglo-american.html?searchResultPosition=4
+
+**EU Okays Danish Aid for Rail-Road Link to Germany**\
+`EU state aid regulators cleared on Friday Danish financial support for a rail-road link between Denmark and Germany, part of the North-South route connecting central Europe and the Nordic countries.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-eu-denmark-stateaid.html?searchResultPosition=5
+
+**Steep Capacity Cut Leaves Airlines With Overhedged Jet Fuel Headache**\
+`The collapse in global passenger flights has left airlines with fresh challenges: how to manage overhedged jet fuel positions as oil prices crashed to just a third of some contracts agreed in anticipation of rising prices and solid air travel demand.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-airlines-oil.html?searchResultPosition=6
+
+**Inditex Considers 25,000 Temporary Layoffs in Spain**\
+`Inditex could temporarily lay off all 25,000 of its shop staff in Spain if the country's state of emergency continues beyond April 15, a company official said on Friday, a sign of how the economic damage of the coronavirus outbreak could worsen.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-inditex.html?searchResultPosition=7
+
+**Truckmaker Volvo to Put All 20,000 Swedish Staff on Temporary Lay Off-Scheme**\
+`Truckmaker AB Volvo said on Friday it would put all its 20,000 staff in Sweden on short-term temporary lay off-scheme starting next week as it plans to close it's whole production system in the country. `\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-ab-volvo.html?searchResultPosition=8
+
 **Egypt Activist Who Urged Prisoner Release Amid Virus Freed**\
 `The mother of a prominent Egyptian activist was released from detention after her arrest the previous day for staging a protest demanding that prisoners be released amid the coronavirus pandemic, her daughter said.`\
-https://nytimes.com/aponline/2020/03/20/world/middleeast/ap-ml-egypt.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/03/20/world/middleeast/ap-ml-egypt.html?searchResultPosition=9
 
 **Travelers Rush to Moroccan Airports for Evacuation Flights**\
 `Foreigners stranded in locked-down Morocco are getting on evacuation flights Friday as governments try to repatriate their citizens after days of travel frustration.`\
-https://nytimes.com/aponline/2020/03/20/world/africa/ap-virus-outbreak-stranded-in-morocco.html?searchResultPosition=2
-
-**On Politics: What Does This All Mean for November?**\
-`Crisis management, with more than a touch of political maneuvering: This is your morning tip sheet.`\
-https://nytimes.com/2020/03/20/us/politics/trump-coronavirus.html?searchResultPosition=3
-
-**Film Club: ‘Coronavirus Racism Infected My High School’**\
-`How is the coronavirus pandemic bringing out fears, stereotypes, xenophobia and racism?`\
-https://nytimes.com/2020/03/20/learning/film-club-coronavirus-racism-infected-my-high-school.html?searchResultPosition=4
-
-**DealBook: The Bailouts Begin to Take Shape**\
-`There is little doubt that a severe economic downturn awaits. How bad it gets depends on the nature of the government response.`\
-https://nytimes.com/2020/03/20/business/dealbook/coronavirus-economy-unemployment.html?searchResultPosition=5
-
-**How Is the Coronavirus Outbreak Affecting Your Life?**\
-`How are you staying connected and sane in a time of social distancing?`\
-https://nytimes.com/2020/03/20/learning/how-is-the-coronavirus-outbreak-affecting-your-life.html?searchResultPosition=6
-
-**Africa's Busiest Airport Says Foreigners Can't Disembark**\
-`Anxiety rose in Africa’s richest nation Friday as South Africa announced coronavirus cases jumped to 202, the most in the sub-Saharan region, and the country’s largest airport announced that foreigners would not be allowed to disembark.`\
-https://nytimes.com/aponline/2020/03/20/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=7
-
-**The Latest: Non-Premiership English Rugby Canceled**\
-`The Latest on the effect of the coronavirus outbreak on sports around the world:`\
-https://nytimes.com/aponline/2020/03/20/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=8
-
-**German Restaurant Chain Vapiano Opens Insolvency Proceedings**\
-`German restaurant chain Vapiano SE on Friday said it had opened insolvency proceedings and would apply for government assistance programs to avoid bankruptcy, blaming the corona crisis for a further drop in sales. `\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-corona-vapiano.html?searchResultPosition=9
-
-**Austria to Extend Coronavirus Restrictions Until April 13**\
-`Austria will extend its coronavirus restrictions until April 13, Chancellor Sebastian Kurz said on Friday.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-austria.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/20/world/africa/ap-virus-outbreak-stranded-in-morocco.html?searchResultPosition=10
 
