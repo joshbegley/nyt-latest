@@ -1,40 +1,40 @@
+**Oregon Primary Elections, by Mail, to Proceed as Planned**\
+`Oregon's primary elections will proceed as scheduled on May 19, the state's top election official said Thursday, though results may be slower to come in because of the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/03/19/us/ap-us-election-2020-oregon-primary.html?searchResultPosition=1
+
+**UK's Sunak Readies Extreme Measures to Right Capsizing Economy**\
+`Britain will take further desperate measures to stem the collapse of its economy on Friday, when finance minister Rishi Sunak will outline plans to prop up companies and workers who face hardship from the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-health-coronavirus-britain-sunak.html?searchResultPosition=2
+
+**Irish Consumer Sentiment Weakened Significantly in Early March**\
+`Irish consumer sentiment weakened significantly in early March, a survey taken before the country took its first major measures to tackle coronavirus showed on Friday.`\
+https://nytimes.com/reuters/2020/03/19/world/europe/19reuters-ireland-economy-consumersentiment.html?searchResultPosition=3
+
 **California Rushes to Try to Contain Virus Among the Homeless**\
 `Home to the largest homeless population in the country, California officials are rushing to get tens of thousands of people off the streets and into shelters and tents to slow the spread of the coronavirus among one of the most vulnerable and difficult-to-reach groups. `\
-https://nytimes.com/aponline/2020/03/19/us/ap-us-virus-outbreak-california-homeless.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/03/19/us/ap-us-virus-outbreak-california-homeless.html?searchResultPosition=4
 
 **Trump Administration Replaces Counterterrorism Chief**\
 `The Trump administration said Thursday that it was replacing the acting chief of the National Counterterrorism Center, part of an ongoing leadership shakeup in the intelligence community.`\
-https://nytimes.com/aponline/2020/03/19/us/politics/ap-us-counterterrorism-chief.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/03/19/us/politics/ap-us-counterterrorism-chief.html?searchResultPosition=5
 
 **Arabs Urge Yemen's Houthis to Allow UN to Assess Oil Tanker**\
 `Six Arab countries are urging the U.`\
-https://nytimes.com/aponline/2020/03/19/world/middleeast/ap-un-united-nations-yemen-tanker.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/03/19/world/middleeast/ap-un-united-nations-yemen-tanker.html?searchResultPosition=6
 
 **State Department to Help Americans Stranded in Morocco Fly Home**\
 `After a public outcry, the American government says it has arranged for flights for travelers with no way home from Morocco.`\
-https://nytimes.com/2020/03/19/travel/coronavirus-morocco-stranded-americans-flights.html?searchResultPosition=4
+https://nytimes.com/2020/03/19/travel/coronavirus-morocco-stranded-americans-flights.html?searchResultPosition=7
 
 **USDA Now Undecided on Challenging Judge's Food Stamps Ruling**\
 `The Agriculture Department on Thursday backed off its statement that it would appeal a court decision blocking changes to the food stamp program that would have resulted in hundreds of thousands of people losing benefits.`\
-https://nytimes.com/aponline/2020/03/19/us/politics/ap-us-virus-outbreak-food-stamps.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/03/19/us/politics/ap-us-virus-outbreak-food-stamps.html?searchResultPosition=8
 
 **Delhi Bus Rape Convicts Hanged in India**\
 `The four men were executed in the early morning hours in India’s capital, bringing an end to a case that has haunted the country.`\
-https://nytimes.com/2020/03/19/world/asia/india-bus-rape-convicts-hanged.html?searchResultPosition=6
+https://nytimes.com/2020/03/19/world/asia/india-bus-rape-convicts-hanged.html?searchResultPosition=9
 
 **India Hangs 4 Men Convicted for Fatal New Delhi Gang Rape**\
 `Four convicts were hanged Friday for the 2012 gang rape and murder of a 23-year-old physiotherapy student on a moving bus in New Delhi.`\
-https://nytimes.com/aponline/2020/03/19/world/asia/ap-as-india-hangings.html?searchResultPosition=7
-
-**Senator Sold Hundreds of Thousands of Dollars in Stocks After Suggesting U.S. Was Prepared for Coronavirus**\
-`Two weeks after the sales, Senator Richard Burr warned a nonpartisan group that the virus could soon cause a major disruption in the United States.`\
-https://nytimes.com/2020/03/19/us/politics/richard-burr-coronavirus-stocks.html?searchResultPosition=8
-
-**Haiti Declares Emergency Over Coronavirus, Imposes Curfew, Shuts Border**\
-`Haiti's government on Thursday declared a state of emergency over the coronavirus outbreak, saying it would close its borders and impose a curfew after authorities detected the first two cases of infection in the impoverished Caribbean nation.`\
-https://nytimes.com/reuters/2020/03/19/world/americas/19reuters-health-coronavirus-haiti.html?searchResultPosition=9
-
-**Timeline: India Executes Four Men Convicted in 2012 Delhi Gang Rape, Murder Case**\
-`India executed four men on Friday convicted for the gang rape and murder of a woman on a New Delhi bus in December 2012, in a case that shamed and outraged a nation with one of the world's worst records for crimes against women.`\
-https://nytimes.com/reuters/2020/03/19/world/asia/19reuters-india-rape-execution-timeline.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/19/world/asia/ap-as-india-hangings.html?searchResultPosition=10
 
