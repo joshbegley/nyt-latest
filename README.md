@@ -26,7 +26,7 @@ https://nytimes.com/2020/03/20/us/coronavirus-cruise-ship-costa-luminosa.html?se
 `Isolated at home? Then train like an astronaut. `\
 https://nytimes.com/aponline/2020/03/20/science/ap-us-sci-virus-outbreak-train-like-an-astronaut.html?searchResultPosition=8
 
-**Army Closing Recruit Stations, Moves to Online Recruiting**\
+**Army Closing Recruiting Stations, Moves Effort Online**\
 `The top Army officer said Friday that all of the service's recruiting stations are now closing, as the military takes more dramatic steps to prevent the spread of the coronavirus.`\
 https://nytimes.com/aponline/2020/03/20/us/politics/ap-us-virus-outbreak-military-recruiting.html?searchResultPosition=9
 
