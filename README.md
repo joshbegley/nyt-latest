@@ -1,4 +1,4 @@
-**Netflix Establishes $100 Million Virus Relief Fund**\
+**Netflix: $100 Million in Virus Relief for Creative Ranks**\
 `Netflix said Friday it is establishing a $100 million relief fund for workers in the worldwide creative community affected by the corona-virus caused halt of most film and television production.`\
 https://nytimes.com/aponline/2020/03/20/business/bc-us-virus-outbreak-netflix-fund.html?searchResultPosition=1
 
