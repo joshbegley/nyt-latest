@@ -1,36 +1,36 @@
-**USA Federation Surveying Gymnasts on Postponing Olympics**\
-`USA Gymnastics said on Friday the federation was surveying its athletes on the possibility of postponing the Tokyo Olympics.`\
-https://nytimes.com/reuters/2020/03/20/sports/olympics/20reuters-health-coronavirus-gymnastics.html?searchResultPosition=2
+**Cuba Bans Entry of Foreign Tourists to Slow Coronavirus Spread**\
+`Cuba from Tuesday will stop allowing foreigners to enter the island with the exception of residents in a bid to contain the spread of coronavirus in the Caribbean nation, President Miguel Diaz-Canel said on state television late on Friday.`\
+https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-cuba-president.html?searchResultPosition=2
 
-**Transactions Notebook: Bucs Re-Sign Minter, Add Haeg**\
-`Veteran linebacker Kevin Minter is remaining with the Tampa Bay Buccaneers on a one-year deal, ESPN reported Friday.`\
-https://nytimes.com/reuters/2020/03/20/sports/football/20reuters-football-nfl-notebook.html?searchResultPosition=3
+**Macron's Popularity Jumps as French Approve of Coronavirus Response**\
+`French President Emmanuel Macron's popularity rating jumped to a more than two-year high, according to an opinion poll published on Friday, showing his handling of the coronavirus crisis was being given a big vote of confidence.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-macron.html?searchResultPosition=3
 
-**U.S. Opens Tax Credits to Small, Mid-Sized Firms for Virus-Related Leave**\
-`The U.S. Treasury, Internal Revenue Service and Labor Department on Friday said small- and mid-sized employers can now access two new refundable tax credits under emergency coronavirus legislation signed by President Donald Trump on Wednesday.`\
-https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-taxcredits.html?searchResultPosition=4
+**U.S. Envoy to South Africa Draws Fire After Possible Virus Exposure**\
+`U.`\
+https://nytimes.com/reuters/2020/03/20/world/africa/20reuters-health-coronavirus-safrica-usa.html?searchResultPosition=4
 
-**U.S. Senator Toomey Says Senate Vote on Aid Package Likely Early Next Week: CNBC**\
-`Republican U.S. Senator Pat Toomey told CNBC on Friday that a vote in the Senate on a coronavirus economic aid package is likely to take place early next week.`\
-https://nytimes.com/reuters/2020/03/20/us/politics/20reuters-health-coronavirus-usa-congress-toomey.html?searchResultPosition=5
+**North Korea Apparently Fires Missile: Japan's Coast Guard**\
+`Japan's coast guard said on Saturday that North Korea appeared to have fired a missile which landed outside Japan's exclusive economic zone (EEZ) waters. `\
+https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-northkorea-missiles-japan.html?searchResultPosition=5
 
-**U.S. Lawmakers Push Insurers to Cover Coronavirus Business Losses**\
-`Some U.S. lawmakers are urging commercial insurers to pay businesses for losses stemming from the coronavirus outbreak, despite terms in the insurance policies that would otherwise bar coverage.`\
-https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-insurance.html?searchResultPosition=6
+**North Korea Fires Unidentified Projectile: Yonhap**\
+`North Korea fired an unidentified projectile into the sea off the east coast of the Korean peninsula, Yonhap said on Saturday, citing South Korea's Joint Chiefs of Staff. `\
+https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-northkorea-missiles.html?searchResultPosition=6
 
-**U.S. Business Group Calls for Large-Company Loans to Prevent Layoffs**\
-`The U.S. Chamber of Commerce on Friday called for a new federal bridge loan program to help larger companies with over 500 employees keep workers on their payrolls as they struggle with falling demand due to the coronavirus. `\
-https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-congress-loans.html?searchResultPosition=7
+**Latvian Parliament Passes Two-Billion-Euro Coronavirus Relief Package**\
+`The Latvian Parliament voted on Friday on a financial relief package, setting aside more than 2 billion euros to mitigate the economic effects of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-latvia.html?searchResultPosition=7
 
-**Brazil Dock Workers Mull Strike at Key Port Due to Coronavirus**\
-`A union representing about 5,000 autonomous dock workers on Friday called on its members to vote on Monday on whether to hold a strike at Latin America's largest port over concerns about coronavirus risk.`\
-https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-brazil-ports.html?searchResultPosition=8
+**French City of Nice to Impose Curfew**\
+`A curfew will be imposed in the French Riviera city of Nice from Saturday night, the local prefect said on Friday, saying it was necessary to enforce strict confinement measures decided by France to fight the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-nice.html?searchResultPosition=8
 
-**New York Joins California as Millions More Americans Are Ordered to Stay Home**\
-`The strict new directives, in some of the country’s most populous states, were intended to slow the spread of the coronavirus.`\
-https://nytimes.com/2020/03/20/us/ny-ca-stay-home-order.html?searchResultPosition=9
+**Trump Cites Coronavirus as He Announces a Border Crackdown**\
+`The Trump administration says it will no longer detain most undocumented immigrants at the border, citing the coronavirus as a threat to detention facilities and personnel.`\
+https://nytimes.com/2020/03/20/us/politics/trump-border-coronavirus.html?searchResultPosition=9
 
-**Member of U.S. Vice President Pence's Office Tests Positive for Coronavirus**\
-`A member of U.S. Vice President Mike Pence's office has tested positive for the coronavirus but neither President Donald Trump nor Pence have had close contact with the individual, Pence's press secretary Katie Miller said in a statement on Friday.`\
-https://nytimes.com/reuters/2020/03/20/us/politics/20reuters-health-coronavirus-usa-pence.html?searchResultPosition=10
+**United Airlines Warns of Massive Layoffs Without Federal Aid**\
+`Leaders of United Airlines and its labor unions are raising the threat of massive layoffs if Washington doesn’t provide “sufficient” help to the airline industry by the end of this month. `\
+https://nytimes.com/aponline/2020/03/20/business/bc-virus-outbreak-airlines.html?searchResultPosition=10
 
