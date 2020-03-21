@@ -20,7 +20,7 @@ https://nytimes.com/reuters/2020/03/21/world/europe/21reuters-health-coronavirus
 
 **I Spent a Year in Space, and I Have Tips on Isolation to Share**\
 `Take it from someone who couldn’t: Go outside.`\
-https://nytimes.com/2020/03/21/opinion/i-spent-a-year-in-space-and-i-have-tips-on-isolation-to-share.html?searchResultPosition=7
+https://nytimes.com/2020/03/21/opinion/scott-kelly-coronavirus-isolation.html?searchResultPosition=7
 
 **Don’t Put More People in New York’s Jails During a Pandemic**\
 `Gov. Andrew Cuomo and the State Legislature can save lives by resisting calls to roll back criminal justice reforms.`\
