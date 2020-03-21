@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/03/20/sports/20reuters-mma-cagewarriors.html?se
 https://nytimes.com/reuters/2020/03/20/sports/olympics/20reuters-health-coronavirus-sports-anxiety.html?searchResultPosition=8
 
 **It’s Dangerous to Be Ruled by Fear**\
-`Momentous decisions are being made on spotty data.`\
+`The reaction to the pandemic should not be allowed to become as dangerous as the disease itself.`\
 https://nytimes.com/2020/03/20/opinion/coronavirus-data.html?searchResultPosition=9
 
 **Panama Reports 200 Coronavirus Cases, Up Sharply From Previous Day**\
