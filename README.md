@@ -2,7 +2,7 @@
 `As the coronavirus pandemic continues, people are preparing to hunker down for weeks or longer.`\
 https://nytimes.com/2020/03/21/business/coronavirus-freezers-sold-out.html?searchResultPosition=2
 
-**Body Last of 6 People Swept Into Indiana Creek Recovered**\
+**6 Bodies Recovered After Water Sweeps Cars From Indiana Road**\
 `The body of a 13-year-old boy was recovered Saturday in a southeastern Indiana creek, the last six people presumed to have drowned when two vehicles were swept off a roadway after torrential rainfall deluged the region’s hill country, authorities said.`\
 https://nytimes.com/aponline/2020/03/21/us/ap-us-vehicles-swept-away.html?searchResultPosition=3
 
