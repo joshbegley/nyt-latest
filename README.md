@@ -1,36 +1,36 @@
+**UNODC Says to Postpone Crime Congress to Be Held in Kyoto Next Month to Undetermined Date**\
+`The United Nations Office on Drugs and Crime (UNODC) said it would postpone a crime congress scheduled be held in Kyoto next month until an undetermined date due to the outbreak of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-japan-unodc.html?searchResultPosition=2
+
+**California's Stay-At-Home Order Leaves Homeless on Street and Vulnerable**\
+`Governor Gavin Newsom has ordered California's 40 million residents to stay at home. That's a big problem for the state's estimated 108,000 homeless who live on the streets.`\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-california-homelessness.html?searchResultPosition=3
+
 **Flame in Japan; How Long Until News if Olympics Will Open?**\
 `The Olympic flame has arrived in Japan from Greece.`\
-https://nytimes.com/aponline/2020/03/20/sports/olympics/ap-oly-tokyo-future-qa.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/03/20/sports/olympics/ap-oly-tokyo-future-qa.html?searchResultPosition=4
 
 **US Tourists Stranded Abroad Don't Know When They'll Return**\
 `Linda Scruggs and Mike Rustici trained for months to hike the winding trails leading to Machu Picchu's complex of Inca ruins. So they were thrilled when their flight landed last Friday in the Peruvian capital. `\
-https://nytimes.com/aponline/2020/03/20/us/ap-us-virus-outbreak-stranded-americans.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/03/20/us/ap-us-virus-outbreak-stranded-americans.html?searchResultPosition=5
 
 **Commanding the Situation**\
 `Stuck inside on a Saturday? Damon Gulczynski drops in with a diversion.`\
-https://nytimes.com/2020/03/20/crosswords/daily-puzzle-2020-03-21.html?searchResultPosition=4
+https://nytimes.com/2020/03/20/crosswords/daily-puzzle-2020-03-21.html?searchResultPosition=6
 
 **Argentina Lays Out Key Economic Road Map Amid Debt Talks**\
 `Argentina's government laid out its most in-depth economic road map on Friday, a key step in debt talks after creditors  clamored for more detailed information about the country's plans as both sides look to strike a restructuring deal.`\
-https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-argentina-economy-guzman.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-argentina-economy-guzman.html?searchResultPosition=7
 
 **South Korea Reports 147 New Coronavirus Cases, Total 8,799: KCDC**\
 `South Korea reported 147 new coronavirus infections on Saturday, according to the Korea Centers for Disease Control and Prevention.`\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-southkorea.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-southkorea.html?searchResultPosition=8
 
 **Confirmed Coronavirus Cases in Mexico Rise to More Than 200**\
 `Mexico's health ministry said on Friday that confirmed coronavirus cases in the country now total 203, up by nearly a quarter from the previous day's tally of 164.`\
-https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-mexico-tally.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-mexico-tally.html?searchResultPosition=9
 
 **Paraguay Confirms First Death Due to Coronavirus: Health Ministry**\
 `Paraguay on Friday confirmed the first death in the country due to coronavirus, the health ministry said on Twitter. `\
-https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-paraguay.html?searchResultPosition=8
-
-**Volkswagen to Close Factories in Mexico to Protect Public Health**\
-`German automaker Volkswagen will temporarily close its factories in Mexico's Puebla and Guanajuato states in a bid to preserve public health, the company's Mexican unit said in a statement on Friday, amid growing worries over the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-volkswagen-mexico.html?searchResultPosition=9
-
-**3 Iditarod Mushers Rescued Because of Poor Trail Conditions**\
-`Three mushers participating in Alaska’s Iditarod Trail Sled Dog Race were rescued Friday after they activated their SOS beacons because of deep overflows on the trail.`\
-https://nytimes.com/aponline/2020/03/20/sports/ap-us-iditarod.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-paraguay.html?searchResultPosition=10
 
