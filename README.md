@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/03/21/world/europe/21reuters-health-coronavirus
 `Almost 600 migrants arrested while crossing to three Greek islands from the Turkish coast opposite have arrived at a facility in northern Greece where they are required to remain pending deportation, authorities say.`\
 https://nytimes.com/aponline/2020/03/21/world/europe/ap-eu-greece-migrants.html?searchResultPosition=6
 
-**Switzerland Says Coronavirus Infections Rise to 6,100**\
-`Switzerland on Saturday reported 6,100 coronavirus infections, some 25% more than a day earlier, and 56 deaths, the Swiss health ministry said, as hospitals in the canton of Ticino that borders hard-hit Italy were under intense pressure. `\
+**Swiss Coronavirus Cases Rise 25% to 6,100, Deaths at 56**\
+`Switzerland on Saturday reported 6,100 coronavirus infections, some 25% more than a day earlier, and 56 deaths, the Swiss health ministry said, as hospitals in the canton of Ticino that borders on hard-hit Italy were under pressure.`\
 https://nytimes.com/reuters/2020/03/21/world/europe/21reuters-health-coronavirus-swiss.html?searchResultPosition=7
 
 **An Olympic Showdown: The Rising Clamor to Postpone the Tokyo Summer Games**\
