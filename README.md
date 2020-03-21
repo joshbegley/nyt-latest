@@ -1,36 +1,36 @@
-**South Asian Governments Impose Coronavirus Curfews, Border Controls**\
-`Bangladesh tightened border controls while Sri Lanka arrested more than two dozen people for violating a nationwide curfew as part of increased efforts on Saturday to prevent the spread of the coronavirus in densely populated South Asia.`\
-https://nytimes.com/reuters/2020/03/21/world/asia/21reuters-health-coronavirus-southasia.html?searchResultPosition=2
+**Indonesia Confirms 81 New Coronavirus Cases, Six More Deaths**\
+`Indonesia has confirmed 81 new coronavirus cases and 6 more deaths, bringing the total number of cases to 450 and deaths to 38, a health ministry official told reporters on Saturday. `\
+https://nytimes.com/reuters/2020/03/21/world/asia/21reuters-health-coronavirus-indonesia.html?searchResultPosition=2
 
-**Report: NBA Won't Commit to Players' Pay Beyond April 1**\
-`NBA players will get their paychecks as scheduled on April 1, but the fate of salaries beyond that date is unclear, ESPN's Adrian Wojnarowski reported Friday night.`\
-https://nytimes.com/reuters/2020/03/21/sports/basketball/21reuters-basketball-nba-salaries.html?searchResultPosition=3
+**The Coronavirus’s Rampage Through a Suburban Nursing Home**\
+`Two-thirds of Life Care Center’s residents and 47 of its workers fell ill. Thirty-five people died. We investigated what went wrong.`\
+https://nytimes.com/2020/03/21/us/coronavirus-nursing-home-kirkland-life-care.html?searchResultPosition=3
 
-**Norwegians: Olympics Must Wait Until Virus 'Under Control'**\
-`The Norwegian Olympic Committee wants the Tokyo Games only to take place once the coronavirus outbreak “is under firm control” worldwide.`\
-https://nytimes.com/aponline/2020/03/21/sports/olympics/ap-oly-virus-outbreak-norway.html?searchResultPosition=4
+**MBS: The Rise of a Saudi Prince**\
+`Mohammed bin Salman was the sixth son of the 25th son of a king — in short, a man seemingly destined for obscurity. It didn’t work out that way.`\
+https://nytimes.com/2020/03/21/world/middleeast/mohammed-bin-salman-saudi-arabia.html?searchResultPosition=4
 
-**China to Stimulate Private Investment, Accelerate 'New Infrastructure' Development**\
-`China will cut fees on a large scale to stimulate private-sector investment and also accelerate the development of "new infrastructure" to help spur the economy, Chinese government officials said on Saturday.`\
-https://nytimes.com/reuters/2020/03/21/world/asia/21reuters-health-coronavirus-china-economy.html?searchResultPosition=5
+**How It All Came Apart for Bernie Sanders**\
+`The Sanders campaign appeared on the brink of a commanding lead in the Democratic race. But a series of fateful decisions and internal divisions have left him all but vanquished.`\
+https://nytimes.com/2020/03/21/us/politics/bernie-sanders-democrats-2020.html?searchResultPosition=5
 
-**Malaysia Coronavirus Cases Jump to 1,183, Many Cases Linked to Mosque**\
-`Malaysia's health ministry reported 153 new coronavirus cases on Saturday, taking the total to 1,183, one of the highest in Asia.`\
-https://nytimes.com/reuters/2020/03/21/world/asia/21reuters-health-coronavirus-malaysia.html?searchResultPosition=6
+**Coming to a Country Near You: A Russian Nuclear Power Plant**\
+`A Russian state company is financing and building reactors across the world, reaping for Moscow both profits and geopolitical influence.`\
+https://nytimes.com/2020/03/21/world/europe/belarus-russia-nuclear.html?searchResultPosition=6
 
-**Iran President Expects Coronavirus Restrictions to Ease Within Three Weeks**\
-`Iranian President Hassan Rouhani said on Saturday that social distancing measures to combat the coronavirus outbreak in the country, including travel restrictions, will apply for only two to three weeks as he expects the crisis to ease by then. `\
-https://nytimes.com/reuters/2020/03/21/world/middleeast/21reuters-health-coronavirus-iran.html?searchResultPosition=7
+**Coronavirus Recession Looms, Its Course ‘Unrecognizable’**\
+`The U.S. economic outlook darkens daily, with millions facing unemployment and businesses in a steep decline.`\
+https://nytimes.com/2020/03/21/business/economy/coronavirus-recession.html?searchResultPosition=7
 
-**China's Imported Coronavirus Cases Jump as Students, Expats Flock Home**\
-`China reported a record rise in imported coronavirus cases on Friday as expatriates returned home from the United States and Europe, sparking fears of a second wave of infections just as the country recovers from the initial outbreak.`\
-https://nytimes.com/reuters/2020/03/21/world/asia/21reuters-health-coronavirs-china-toll.html?searchResultPosition=8
+**Trump Aides Clash Over Response to Iranian-Backed Attacks in Iraq**\
+`Sharp debates among top administration aides reveal divisions in how to confront Iran and its Shiite militia proxies in Iraq.`\
+https://nytimes.com/2020/03/21/world/middleeast/trump-iran-iraq-coronavirus-militas.html?searchResultPosition=8
 
-**East Timor Confirms First Case of Coronavirus: Health Ministry**\
-`East Timor reported its first case of coronavirus, its Ministry of Health said on Saturday, adding that the case was from someone who had just returned from abroad. `\
-https://nytimes.com/reuters/2020/03/21/world/asia/21reuters-health-coronavirus-timor.html?searchResultPosition=9
+**How Coronavirus-Weary Americans Are Seeking Joy**\
+`The spread of the virus has cut Americans off from each other, but some are using the opportunity to enjoy more simple pleasures.`\
+https://nytimes.com/2020/03/21/us/coronavirus-no-fun-no-socializing.html?searchResultPosition=9
 
-**Kenny Rogers, Who Brought Country Music to a Pop Audience, Dies at 81**\
-`One of the first country artists to sell out arenas, Mr. Rogers sold more than 100 million records in a career that spanned decades.`\
-https://nytimes.com/2020/03/21/arts/music/kenny-rogers-dead.html?searchResultPosition=10
+**20 Seconds That Make These Dreary Times Go Faster**\
+`We needed a different song to wash our hands by. So I reached out to a pro.`\
+https://nytimes.com/2020/03/21/reader-center/virus-hand-washing-happy-birthday.html?searchResultPosition=10
 
