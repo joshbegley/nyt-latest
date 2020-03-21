@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/03/21/us/21reuters-health-coronavirus-usa-army-
 `The five U.S. states where governors have closed or have said they will soon be closing non-essential businesses account for about 31% of the world's biggest economy.`\
 https://nytimes.com/reuters/2020/03/21/us/21reuters-health-coronavirus-usa-stayathome-factbox.html?searchResultPosition=4
 
-**Iran's Coronavirus Deaths Rise to 1,566, Health Ministry Says**\
+**Iran's Coronavirus Deaths Rise to 1,566; Total Infections Exceeds 20,000-Health Ministry**\
 `Iran's death toll from the coronavirus outbreak rose on Saturday by more than 100 to 1,556, and the total number of people infected now exceeds 20,000, a health ministry official said.`\
 https://nytimes.com/reuters/2020/03/21/world/middleeast/21reuters-health-coronavirus-iran-toll.html?searchResultPosition=5
 
