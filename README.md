@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/03/21/world/africa/21reuters-health-coronavirus
 `Wells Bayou took an early lead and held off NY Traffic to win the $1 million Louisiana Derby by a head Saturday in one of the few U.S. sporting events to continue as scheduled amid the coronavirus pandemic.`\
 https://nytimes.com/aponline/2020/03/21/sports/ap-rac-louisiana-derby.html?searchResultPosition=7
 
-**Britain 'Two or Three Weeks' Behind Italy on Coronavirus: PM Johnson**\
-`Britain was only "two or three" weeks behind Italy on the spread of coronavirus, Prime Minister Boris Johnson said.`\
+**Britain's NHS Could Be Overwhelmed Like Italy, PM Johnson Warns on Coronavirus**\
+`Britain's National Health Service (NHS) could be "overwhelmed" by the coronavirus like the Italian health system in just two weeks, Prime Minister Boris Johnson has warned.`\
 https://nytimes.com/reuters/2020/03/21/world/europe/21reuters-health-coronavirus-britain-johnson.html?searchResultPosition=8
 
 **Former Real Madrid President Dies From Coronavirus**\
