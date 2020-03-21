@@ -10,7 +10,7 @@ https://nytimes.com/aponline/2020/03/21/us/politics/ap-us-virus-outbreak-federal
 `Tunisia is allocating 2.5 billion dinars ($850 million) to combat the economic and social effects of the coronavirus health crisis, Prime Minister Elyes Fakhfakh said on Saturday.`\
 https://nytimes.com/reuters/2020/03/21/world/africa/21reuters-health-coronavirus-tunisia-economy.html?searchResultPosition=4
 
-**Louisiana Derby Runs Along, Wells Bayou Wins With No Fans**\
+**Wells Bayou Wins Eerie Louisiana Derby at Empty Track**\
 `Wells Bayou took an early lead and held off NY Traffic to win the $1 million Louisiana Derby by a head Saturday in one of the few U.S. sporting events to continue as scheduled amid the coronavirus pandemic.`\
 https://nytimes.com/aponline/2020/03/21/sports/ap-rac-louisiana-derby.html?searchResultPosition=5
 
