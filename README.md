@@ -1,36 +1,36 @@
+**Panama Reports 200 Coronavirus Cases, Up Sharply From Previous Day**\
+`Panama has confirmed 200 coronavirus cases, up from 137 a day earlier, the country's health minister told reporters on Friday.`\
+https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-panama.html?searchResultPosition=2
+
+**Exclusive: Coronavirus, Gas Slump Put Brakes on Exxon's Giant Mozambique LNG Plan**\
+`Exxon Mobil is likely to delay the greenlighting of its $30 billion liquefied natural gas (LNG) project in Mozambique as the coronavirus disrupts early works and a depressed gas market makes investors wary, six sources told Reuters.`\
+https://nytimes.com/reuters/2020/03/20/world/africa/20reuters-health-coronavirus-exxon-mobil-mozambique-exclusive.html?searchResultPosition=3
+
+**U.S. Financial Firms Must Be Deemed 'Essential' as More People Stay Home: Trade Group**\
+`U.S. financial services firms and their staff must be designated as "essential" to keep markets functioning as more Americans stay home to mitigate the spread of the coronavirus, a leading financial industry trade group said on Friday. `\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-trading.html?searchResultPosition=4
+
+**Wells Fargo Rolls Out Waivers, Aid in Response to Coronavirus Outbreak**\
+`Wells Fargo & Co said on Friday it is suspending residential property foreclosure sales, evictions and involuntary automobile repossessions due to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-wells-fargo.html?searchResultPosition=5
+
+**Factbox: Five Statewide Stay-At-Home Orders, 31% of U.S. Economy**\
+`The five U.S. states where governors have closed or have said they will soon be closing non-essential businesses account for about 31% of the world's biggest economy.`\
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-stayathome-factbox.html?searchResultPosition=6
+
+**Boeing Suspends Dividend, CEO Foregoes Pay After Coronavirus-Related Aid Request**\
+`Boeing Co will cancel CEO pay, suspend its dividend and extend a pause on share buybacks, the U.S. planemaker said on Friday, as companies eager for government aid to curb fallout from the coronavirus face pressure to cut payouts to investors.  `\
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-boeing.html?searchResultPosition=7
+
+**Progress in U.S. Coronavirus Economic Stimulus Talks Amid Major Disagreements: Schumer**\
+`Negotiations on a possible $1 trillion coronavirus economic stimulus bill were moving ahead, but agreement by a deadline at midnight on Friday deal was becoming elusive with several major issues dividing congressional Republicans and Democrats, Senate Democratic Leader Chuck Schumer said.`\
+https://nytimes.com/reuters/2020/03/20/us/politics/20reuters-health-coronavirus-usa-schumer.html?searchResultPosition=8
+
+**Amid Pandemic, US Coal Industry Seeks Lower Taxes, Royalties**\
+`The lobbying arm of the U.S. coal industry is asking for hundreds of millions of dollars in royalty relief, tax cuts and other breaks to help companies ride out the financial crisis brought on by the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/03/20/us/bc-us-virus-outbreak-coal.html?searchResultPosition=9
+
 **Coronavirus Briefing: What Happened Today**\
 `New York will essentially be on lockdown this weekend, after its caseload soared to nearly 8,000.`\
-https://nytimes.com/2020/03/20/us/coronavirus-today.html?searchResultPosition=2
-
-**Cuba Bans Entry of Foreign Tourists to Slow Coronavirus Spread**\
-`Cuba from Tuesday will stop allowing foreigners to enter the island with the exception of residents in a bid to contain the spread of coronavirus in the Caribbean nation, President Miguel Diaz-Canel said on state television late on Friday.`\
-https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-cuba-president.html?searchResultPosition=3
-
-**Macron's Popularity Jumps as French Approve of Coronavirus Response**\
-`French President Emmanuel Macron's popularity rating jumped to a more than two-year high, according to an opinion poll published on Friday, showing his handling of the coronavirus crisis was being given a big vote of confidence.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-macron.html?searchResultPosition=4
-
-**U.S. Envoy to South Africa Draws Fire After Possible Virus Exposure**\
-`U.`\
-https://nytimes.com/reuters/2020/03/20/world/africa/20reuters-health-coronavirus-safrica-usa.html?searchResultPosition=5
-
-**North Korea Apparently Fires Missile: Japan's Coast Guard**\
-`Japan's coast guard said on Saturday that North Korea appeared to have fired a missile which landed outside Japan's exclusive economic zone (EEZ) waters. `\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-northkorea-missiles-japan.html?searchResultPosition=6
-
-**North Korea Fires Unidentified Projectile: Yonhap**\
-`North Korea fired an unidentified projectile into the sea off the east coast of the Korean peninsula, Yonhap said on Saturday, citing South Korea's Joint Chiefs of Staff. `\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-northkorea-missiles.html?searchResultPosition=7
-
-**Latvian Parliament Passes Two-Billion-Euro Coronavirus Relief Package**\
-`The Latvian Parliament voted on Friday on a financial relief package, setting aside more than 2 billion euros to mitigate the economic effects of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/20/world/asia/20reuters-health-coronavirus-latvia.html?searchResultPosition=8
-
-**French City of Nice to Impose Curfew**\
-`A curfew will be imposed in the French Riviera city of Nice from Saturday night, the local prefect said on Friday, saying it was necessary to enforce strict confinement measures decided by France to fight the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/20/world/europe/20reuters-health-coronavirus-nice.html?searchResultPosition=9
-
-**Trump Cites Coronavirus as He Announces a Border Crackdown**\
-`The Trump administration says it will no longer detain most undocumented immigrants at the border, citing the coronavirus as a threat to detention facilities and personnel.`\
-https://nytimes.com/2020/03/20/us/politics/trump-border-coronavirus.html?searchResultPosition=10
+https://nytimes.com/2020/03/20/us/coronavirus-today.html?searchResultPosition=10
 
