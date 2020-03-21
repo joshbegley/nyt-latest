@@ -14,8 +14,8 @@ https://nytimes.com/aponline/2020/03/21/business/ap-virus-outbreak-the-latest.ht
 `Air raid sirens echoed across Jordan's capital early Saturday to mark the start of a three-day curfew, the latest mass lockdown in the region aimed at containing the new coronavirus.`\
 https://nytimes.com/aponline/2020/03/21/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=5
 
-**Country Singer Kenny Rogers Dies at 81: Variety**\
-`Country singer Kenny Rogers, 81, has died, Variety reported on Saturday. `\
+**Country Singer Kenny Rogers Dies Aged 81**\
+`Grammy-winning country singer Kenny Rogers died late on Friday night at the age of 81, his family said on Saturday.`\
 https://nytimes.com/reuters/2020/03/21/arts/21reuters-people-kenny-rogers.html?searchResultPosition=6
 
 **South Korea Advises 15-Day Facilities Suspension as Experts Prepare for 'Long Battle' Against Coronavirus**\
