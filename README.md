@@ -30,7 +30,7 @@ https://nytimes.com/reuters/2020/03/21/world/europe/21reuters-health-coronavirus
 `A Spanish third-division soccer team had just started selling a special membership package for the decisive portion of the season, hoping to bring in some extra income. `\
 https://nytimes.com/aponline/2020/03/21/business/ap-soc-virus-outbreak-smaller-clubs.html?searchResultPosition=9
 
-**Coronavirus in N.Y.: Live Updates**\
-`Cuomo issued an order meant to keep people indoors, and New York City reported 5,683 cases and 43 deaths.`\
+**FEMA Declares New York a ‘Major Disaster’: Live Updates**\
+`Gov. Andrew Cuomo issued an order to keep people indoors, and New York City reported 5,683 cases and 43 deaths.`\
 https://nytimes.com/2020/03/21/nyregion/coronavirus-new-york-update.html?searchResultPosition=10
 
