@@ -1,36 +1,36 @@
+**Japan's Coronavirus Infections Cross 1,000: NHK**\
+`Japan has recorded 1,016 cases of domestically transmitted cases of coronavirus as of Saturday, according to public broadcaster NHK, hitting a new milestone as the nation grapples with pressure to avoid a health crisis ahead of Tokyo Olympics. `\
+https://nytimes.com/reuters/2020/03/21/world/asia/21reuters-health-coronavirus-japan-infections.html?searchResultPosition=2
+
 **Coronavirus Live Updates: 1 in 5 Americans Will Soon Be Ordered Indoors**\
 `New York, New Jersey, Connecticut and Illinois are joining California in severely restricting residents’ movement.`\
-https://nytimes.com/2020/03/21/world/coronavirus-news.html?searchResultPosition=2
+https://nytimes.com/2020/03/21/world/coronavirus-news.html?searchResultPosition=3
 
 **Singapore Reports Two Deaths From Coronavirus, First Fatalities in Country**\
 `Singapore reported two coronavirus-related deaths on Saturday , marking the city-state's first fatalities from the infection.`\
-https://nytimes.com/reuters/2020/03/21/world/asia/20reuters-health-coronavirus-singaporec.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/21/world/asia/20reuters-health-coronavirus-singaporec.html?searchResultPosition=4
 
 **Colombia to Hold 19-Day Quarantine to Fight Coronavirus**\
 `Colombia will enter a nationwide quarantine from Tuesday night, President Ivan Duque said late on Friday, the most drastic measure implemented so far by the South American country as it seeks to prevent the spread of the fast-moving coronavirus.`\
-https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-colombia-quarantine.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/20/world/americas/20reuters-health-coronavirus-colombia-quarantine.html?searchResultPosition=5
 
 **Shane Warne Turns Gin Distillery Over to Hand Sanitizer**\
 `Legendary Australia leg-spinner Shane Warne has turned his hand from making gin to making hand-sanitizer as shortages frustrate attempts to control the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/03/20/sports/ap-cri-virus-outbreak-warnes-response.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/03/20/sports/ap-cri-virus-outbreak-warnes-response.html?searchResultPosition=6
 
 **Kickboxing Match in Bangkok Leads to Spike in Infections**\
 `Kickboxing aficionados came from all over Thailand to attend a major Muay Thai match at Bangkok's indoor Lumpini Stadium on March 6. Dozens or more went home unknowingly carrying the coronavirus.`\
-https://nytimes.com/aponline/2020/03/20/world/asia/ap-as-virus-outbreak-thailand.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/03/20/world/asia/ap-as-virus-outbreak-thailand.html?searchResultPosition=7
 
 **Fraud and Sex Abuse Probes in UN Peace Operations Increase**\
 `The U.N.’s internal oversight body says in a report on U.N. peace operations that the number of fraud cases it decided to investigate last year increased nearly 80% from 2018, while the number of sexual exploitation and abuse cases rose 40%.`\
-https://nytimes.com/aponline/2020/03/20/world/africa/ap-un-united-nations-peace-operation-investigations.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/03/20/world/africa/ap-un-united-nations-peace-operation-investigations.html?searchResultPosition=8
 
 **United Airlines Slashes International Schedule by 95% for April**\
 `United Airlines Holdings Inc said on Friday it would slash its international schedule by 95% for April because of government restrictions prohibiting travel in an effort to curb the spread of the coronavirus. `\
-https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-united-arlns.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/03/20/business/20reuters-health-coronavirus-united-arlns.html?searchResultPosition=9
 
 **Talks on Massive U.S. Coronavirus Stimulus Bill Pause for Evening**\
 `U.S. senators and officials from President Donald Trump's administration interrupted negotiations late on Friday on what should be in a massive bill to shore up the U.S. economy in the face of the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-talks.html?searchResultPosition=9
-
-**Basketball: Americans Return as Chinese League Eyes Resumption**\
-`American basketball players, including Jeremy Lin, have started returning to China in anticipation of the resumption of the Chinese Basketball Association (CBA) season, which was suspended because of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/20/sports/basketball/20reuters-health-coronavirus-basketball-china.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/20/us/20reuters-health-coronavirus-usa-talks.html?searchResultPosition=10
 
