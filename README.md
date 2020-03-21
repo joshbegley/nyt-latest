@@ -30,7 +30,7 @@ https://nytimes.com/reuters/2020/03/21/world/asia/21reuters-health-coronavirus-t
 `One of the first country artists to sell out arenas, Mr. Rogers sold more than 100 million records in a career that spanned decades.`\
 https://nytimes.com/2020/03/21/arts/music/kenny-rogers-dead.html?searchResultPosition=9
 
-**The Latest: South Korea's PM Recommends Churches, Gyms Close**\
-`The Latest on the coronavirus  pandemic, which has infected more than 275,000 people and killed more than 11,300.`\
+**The Latest: Africa Coronavirus Infections Top 1,000**\
+`The Latest on the coronavirus  pandemic, which has infected more than 275,000 people and killed more than 11,400.`\
 https://nytimes.com/aponline/2020/03/21/business/ap-virus-outbreak-the-latest.html?searchResultPosition=10
 
