@@ -8,7 +8,7 @@ https://nytimes.com/aponline/2020/03/20/us/ap-us-tv-miss-fisher-movie.html?searc
 
 **How the Defense Production Act Could Yield More Masks, Ventilators and Tests**\
 `President Trump has delegated the authority to invoke extraordinary powers over private industry, but his administration does not seem to be using it yet.`\
-https://nytimes.com/2020/03/20/us/politics/defense-production-act-trump.html?searchResultPosition=4
+https://nytimes.com/2020/03/20/us/politics/defense-production-act-virus.html?searchResultPosition=4
 
 **As Canada Virus Cases Pass 1,000, Asylum Seekers to Be Turned Back; Jobless Claims Soar**\
 `Canada will turn back asylum seekers who walk over the U.S.-Canada border, Prime Minister Justin Trudeau said on Friday, as economic damage from the coronavirus outbreak intensified and a ban on non-essential travel across the world's longest undefended border was set to come into effect. `\
