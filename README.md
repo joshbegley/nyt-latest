@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/03/22/world/europe/22reuters-health-coronavirus
 `The coronavirus outbreak has magnified all kinds of fears. Try living in the moment. Take stock of what’s working. Turn off the television.`\
 https://nytimes.com/2020/03/22/us/coronavirus-mental-health-anxiety-tips.html?searchResultPosition=4
 
-**In Seattle, It Started With Panic. Then the Deeper Anxiety Started.**\
+**In Seattle, It Started With Panic. Then the Deeper Anxiety Set In.**\
 `In a state that has seen more deaths from the coronavirus than any other, the stress has started to multiply. Jobs lost. Kids underfoot. Parents at risk. “It’s exhausting,” one woman said.`\
 https://nytimes.com/2020/03/22/us/coronavirus-seattle-anxiety-mental-health-stress.html?searchResultPosition=5
 
