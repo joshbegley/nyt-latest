@@ -1,5 +1,5 @@
-**Colombia Health Ministry Confirms First Coronavirus Death**\
-`Colombia's health ministry on Saturday confirmed the country's first death attributed to the coronavirus, as the disease continues to spread worldwide.`\
+**Colombia Confirms Taxi Driver as First Coronavirus Death**\
+`Colombia's health ministry late on Saturday confirmed the country's first death attributed to the coronavirus, as the disease continues to spread worldwide.`\
 https://nytimes.com/reuters/2020/03/21/world/americas/21reuters-health-coronavirus-colombia.html?searchResultPosition=2
 
 **Hawaii to Quarantine All Arrivals to the State for 14 Days**\
