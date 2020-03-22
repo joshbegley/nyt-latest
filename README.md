@@ -18,7 +18,7 @@ https://nytimes.com/2020/03/22/arts/podcasts-coronavirus.html?searchResultPositi
 `Indians came out onto their balconies and stood near open windows to clap, clang metal vessels and ring bells on Sunday to cheer emergency workers battling the spread of the coronavirus during a nationwide lockdown.`\
 https://nytimes.com/reuters/2020/03/22/world/asia/22reuters-health-coronavirus-india-cheer.html?searchResultPosition=6
 
-**Virus Aid Bill Includes $3,000 for Families, $4 Trillion Liquidity for Fed: Mnuchin**\
+**Coronavirus Aid Bill Includes $3,000 for Families, $4 Trillion Liquidity for Fed: Mnuchin**\
 `The coronavirus economic relief bill being finalized in Congress will include a one-time $3,000 payment for families and allow the Federal Reserve to leverage up to $4 trillion of liquidity to support the nation's economy, U.S. Treasury Secretary Steven Mnuchin said on Sunday.`\
 https://nytimes.com/reuters/2020/03/22/business/22reuters-health-coronavirus-usa-mnuchin.html?searchResultPosition=7
 
