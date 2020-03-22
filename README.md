@@ -1,5 +1,5 @@
 **Strong Earthquake Shakes Croatia, Damage Reported**\
-`A strong earthquake has shaken Croatia and its capital, causing widespread damage and panic. No casualties were initially reported. `\
+`A strong earthquake shook Croatia and its capital on Sunday, causing widespread damage and panic. No casualties were initially reported.`\
 https://nytimes.com/aponline/2020/03/22/world/europe/ap-eu-croatia-earthquake.html?searchResultPosition=2
 
 **Exclusive: Tokyo Organizers Quietly Plan for Potential Olympic Delay, Sources Say**\
