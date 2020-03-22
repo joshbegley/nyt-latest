@@ -26,7 +26,7 @@ https://nytimes.com/reuters/2020/03/22/world/americas/22reuters-health-coronavir
 `Thailand reported 188 new coronavirus infections on Sunday, its largest daily increase, taking the total to 599 cases, a senior health official said.  `\
 https://nytimes.com/reuters/2020/03/22/world/asia/22reuters-health-coronavirus-thailand.html?searchResultPosition=8
 
-**Some Central Americans Waiting U.S. Asylum to Be Allowed Legal Entry to Mexico**\
+**Some Central Americans Awaiting U.S. Asylum to Be Allowed Legal Entry to Mexico**\
 `Mexico's foreign ministry said late on Saturday that it will allow a limited number of Central American migrants seeking asylum in the United States to legally enter Mexico in order to minimize the number of people at U.S. border stations.`\
 https://nytimes.com/reuters/2020/03/22/world/americas/22reuters-usa-mexico-immigration.html?searchResultPosition=9
 
