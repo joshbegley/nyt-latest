@@ -1,4 +1,4 @@
-**We Shut Down the Economy. Here’s What Needs to Happen in Order to Restart.**\
+**The U.S. Shut Down Its Economy. Here’s What Needs to Happen in Order to Restart.**\
 `Whole sectors of the United States economy have gone dark to slow the spread of the coronavirus. Here’s what comes next.`\
 https://nytimes.com/2020/03/22/us/politics/coronavirus-economy-shutdown.html?searchResultPosition=2
 
