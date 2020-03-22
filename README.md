@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/03/22/world/asia/ap-as-india-maoist-attack.htm
 https://nytimes.com/video/nyregion/newyorktoday/100000007047916/watch-live-governor-cuomos-coronavirus-updates.html?searchResultPosition=8
 
 **As Crisis Deepens, Congress Close on Economic Rescue Deal**\
-`Close to a deal, negotiators from Congress and the White House were set to resume talks Sunday, racing to push a $1.`\
+`Top-level negotiations between Congress and the White House teetered Sunday on a ballooning nearly $1.`\
 https://nytimes.com/aponline/2020/03/22/business/bc-us-virus-outbreak-congress.html?searchResultPosition=9
 
 **Dubai Flagship Carrier Emirates Halts All Passenger Flights**\
