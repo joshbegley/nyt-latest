@@ -1,36 +1,36 @@
+**Tokyo Games Not Feasible in July Says World Athletics Chief Coe**\
+`The Tokyo Olympics are not feasible at their current July starting date because of the coronavirus pandemic and must be delayed, World Athletics president said on Sunday.`\
+https://nytimes.com/reuters/2020/03/22/sports/olympics/22reuters-health-coronavirus-olympics-worldathletics.html?searchResultPosition=2
+
+**Carl Lewis Calls for 2020 Season to Be Wiped Out, Olympics to Be Held in 2022**\
+`Nine-times Olympic gold medallist Carl Lewis on Sunday called for the 2020 athletics season to be scrapped and July's Tokyo Games to be postponed until 2022 because of the coronavirus pandemic that has killed thousands.`\
+https://nytimes.com/reuters/2020/03/22/sports/olympics/22reuters-health-coronavirus-athletics-lewis.html?searchResultPosition=3
+
+**Fed Could Bolster Groups of Businesses and Localities With Funds in G.O.P. Bill**\
+`Republican senators would create $425 billion in funding to back Fed emergency lending. That sets up a financial crisis flashback.`\
+https://nytimes.com/2020/03/22/business/economy/fed-bailout-congress.html?searchResultPosition=4
+
+**Prison Riots in Colombia Over Virus Fears Leave at Least 23 Dead**\
+`The deaths followed countrywide prison protests in which inmates said authorities were not doing enough to control coronavirus.`\
+https://nytimes.com/2020/03/22/world/americas/colombia-prison-riot-dead.html?searchResultPosition=5
+
+**‘Wartime President’? Trump Rewrites History in an Election Year**\
+`The president is brazenly grabbing his only clear option to bolster his re-election hopes, portraying himself as a take-charge leader the country can’t afford to lose.`\
+https://nytimes.com/2020/03/22/us/politics/coronavirus-trump-wartime-president.html?searchResultPosition=6
+
 **Rand Paul Tests Positive for Covid-19, Fueling Anxiety in the Capitol**\
 `The Kentucky Republican is the first senator to be diagnosed with the novel coronavirus. He went about his routine for days after being tested, potentially exposing many colleagues.`\
-https://nytimes.com/2020/03/22/us/politics/coronavirus-rand-paul.html?searchResultPosition=2
+https://nytimes.com/2020/03/22/us/politics/coronavirus-rand-paul.html?searchResultPosition=7
 
 **Athletes Are Not Superheroes, Postpone the Games Says British Olympian**\
 `The Olympic Games should be postponed with immediate effect to protect athletes against the coronavirus pandemic, says Callum Skinner, head of the competitor-led movement Global Athlete.`\
-https://nytimes.com/reuters/2020/03/22/sports/cycling/22reuters-health-coronavirus-olympics-skinner.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/22/sports/cycling/22reuters-health-coronavirus-olympics-skinner.html?searchResultPosition=8
 
 **NZ Central Bank Starts Quantitative Easing to Tackle Coronavirus**\
 `The Reserve Bank of New Zealand (RBNZ) said on Monday it would start buying up to NZ$30 billion ($17 billion) worth of government bonds, following other central banks' moves to offset the impact of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/22/world/asia/22reuters-newzealand-economy-rbnz.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/22/world/asia/22reuters-newzealand-economy-rbnz.html?searchResultPosition=9
 
 **With Live Sports Gone, Announcer Offers Play by Play of the Everyday**\
 `Nick Heath narrates his videos of people doing mundane things, like crossing the street, with the verve and dramatic flair of competitive sports.`\
-https://nytimes.com/2020/03/22/world/europe/coronavirus-nick-heath-rugby.html?searchResultPosition=5
-
-**Lost Sense of Smell May Be Peculiar Clue to Coronavirus Infection**\
-`Doctor groups are recommending testing and isolation for people who lose their ability to smell and taste, even if they have no other symptoms.`\
-https://nytimes.com/2020/03/22/health/coronavirus-symptoms-smell-taste.html?searchResultPosition=6
-
-**McDonald's to Temporarily Close All UK, Ireland Restaurants Amid Coronavirus Outbreak**\
-`McDonald's Corp said on Sunday it would temporarily close all its restaurants in the UK and Ireland by Monday evening because of the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/03/22/business/22reuters-health-coronavirus-mcdonald-s-corp-britain.html?searchResultPosition=7
-
-**Gilead Puts Emergency Access to Experimental Coronavirus Drug on Hold Amid Surging Demand**\
-`Gilead Sciences Inc said on Sunday it was temporarily putting new emergency access to its experimental coronavirus drug remdesivir on hold due to overwhelming demand and that it wanted most people receiving the drug to participate in a clinical trial to prove if it is safe and effective.`\
-https://nytimes.com/reuters/2020/03/22/us/22reuters-health-coronavirus-gilead-sciences.html?searchResultPosition=8
-
-**Coronavirus in N.Y.C.: Region Is Now an Epicenter of Global Pandemic**\
-`New York City and its suburbs account for roughly 5 percent of global cases, forcing officials to take urgent steps to stem the outbreak.`\
-https://nytimes.com/2020/03/22/nyregion/Coronavirus-new-York-epicenter.html?searchResultPosition=9
-
-**During Virus, Priests Master Livestream at Gothic Cathedral**\
-`Recent restrictions on gatherings in France to prevent the spread of the new coronavirus have forced religious communities to adapt the way they express their faith.`\
-https://nytimes.com/aponline/2020/03/22/world/europe/ap-virus-outbreak-one-good-thing-marseille-mass.html?searchResultPosition=10
+https://nytimes.com/2020/03/22/world/europe/coronavirus-nick-heath-rugby.html?searchResultPosition=10
 
