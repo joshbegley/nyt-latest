@@ -14,8 +14,8 @@ https://nytimes.com/aponline/2020/03/21/world/middleeast/ap-un-virus-outbreak-li
 `Mexican health authorities said on Saturday that there are 251 confirmed coronavirus cases in Mexico, 48 more cases than a day earlier.`\
 https://nytimes.com/reuters/2020/03/21/world/americas/21reuters-health-coronavirus-mexico-cases.html?searchResultPosition=5
 
-**South Korea Reports 98 New Coronavirus Cases, Total 8,897: KCDC**\
-`South Korea reported 98 new coronavirus cases on Sunday, bringing national infections to 8,897, the Korea Centers for Disease Control and Prevention said. `\
+**South Korea's New Daily Coronavirus Cases Fall to 98**\
+`South Korea reported 98 new coronavirus cases on Sunday, maintaining a downward trend in daily infections, the Korea Centers for Disease Control and Prevention said. `\
 https://nytimes.com/reuters/2020/03/21/world/asia/21reuters-health-coronavirus-southkorea-toll.html?searchResultPosition=6
 
 **Trump Writes to Kim Jong-un Offering Help in Virus Fight, North Korea Says**\
