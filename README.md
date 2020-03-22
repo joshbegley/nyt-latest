@@ -10,13 +10,13 @@ https://nytimes.com/aponline/2020/03/22/business/ap-us-virus-outbreak-trump-fact
 `The warm timbre of a human voice in your ear is more real, more present, than text on a screen. We need that now.`\
 https://nytimes.com/2020/03/22/opinion/covid-phone.html?searchResultPosition=4
 
-**We Made Copies of Ventilator Parts to Help Hospitals Fight Coronavirus**\
-`Even in a quarantine, innovation can help.`\
-https://nytimes.com/2020/03/22/opinion/ventilators-coronavirus-italy.html?searchResultPosition=5
-
 **José Andrés: Mobilize Restaurant Workers to Feed America Now**\
 `We have fed millions through disasters before. Here’s what we need to do to help avoid a humanitarian crisis.`\
-https://nytimes.com/2020/03/22/opinion/restaurants-coronavirus-food-aid.html?searchResultPosition=6
+https://nytimes.com/2020/03/22/opinion/restaurants-coronavirus-food-aid.html?searchResultPosition=5
+
+**We Made Copies of Ventilator Parts to Help Hospitals Fight Coronavirus**\
+`Even in a quarantine, innovation can help.`\
+https://nytimes.com/2020/03/22/opinion/ventilators-coronavirus-italy.html?searchResultPosition=6
 
 **Trump Said People Don’t Die From the Flu — but It Killed His Grandfather**\
 `What Frederick Trump’s death, in 1918, tells us about the costs of mismanaging a pandemic.`\
