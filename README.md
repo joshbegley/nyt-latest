@@ -6,7 +6,7 @@ https://nytimes.com/2020/03/21/world/americas/coronavirus-mexico-border-migrants
 `The U.S. Pacific territory of Guam said on Sunday a 68-year old woman with underlying health issues had died from COVID-19, the first death on the island due to coronavirus.`\
 https://nytimes.com/reuters/2020/03/21/world/asia/21reuters-health-coronavirus-guam.html?searchResultPosition=3
 
-**N Korea Says Trump Sent Letter to Kim, Offers Cooperation**\
+**N Korea Says Trump's Letter Offers Anti-Virus Cooperation**\
 `President Donald Trump sent a personal letter to North Korean leader Kim Jong Un, seeking to maintain good relations and offering cooperation in fighting the viral pandemic, Kim’s sister said Sunday.`\
 https://nytimes.com/aponline/2020/03/21/world/asia/ap-as-nkorea-trumps-letter.html?searchResultPosition=4
 
