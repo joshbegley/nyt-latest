@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/03/21/business/ap-us-virus-outbreak-california
 https://nytimes.com/reuters/2020/03/21/world/europe/21reuters-health-coronavirus-regulator-companies.html?searchResultPosition=7
 
 **Palestinians Report 1st Cases of Coronavirus in Gaza Strip**\
-`The Palestinian Health Ministry announced the first two cases of the coronavirus in the Gaza Strip early Sunday.`\
+`The Palestinian Health Ministry announced early Sunday that two residents who returned recently from Pakistan to the Gaza Strip tested positive for the coronavirus, the first cases to be diagnosed in the Palestinian enclave.`\
 https://nytimes.com/aponline/2020/03/21/world/middleeast/ap-ml-virus-outbreak-gaza.html?searchResultPosition=8
 
 **Italy to Shut All Non-Strategic Business Activities Until April 3: PM Conte**\
