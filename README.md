@@ -14,8 +14,8 @@ https://nytimes.com/2020/03/21/world/virus-students-abroad.html?searchResultPosi
 `A congressman representing a San Francisco Bay Area district is in critical condition after he was hospitalized with pneumonia after he fractured a rib, his chief of staff said Saturday, `\
 https://nytimes.com/aponline/2020/03/21/us/ap-us-bay-area-congressman-ill-1st-ld-writethru.html?searchResultPosition=5
 
-**Disney+ Launch Delayed in France, Bandwidth Use Cut for Europe Amid Coronavirus: Variety**\
-`The launch of Walt Disney's streaming services in France will be delayed by two weeks at the request of the French government, Variety https://bit.ly/2J7Gpeo reported on Saturday. `\
+**Disney+ Launch Delayed in France, Bandwidth Use Cut for Europe Amid Coronavirus**\
+`The launch of Walt Disney's streaming services in France will be delayed by two weeks at the request of the French government, the company said in a statement on Saturday. `\
 https://nytimes.com/reuters/2020/03/21/technology/21reuters-health-coronavirus-disney.html?searchResultPosition=6
 
 **Panama Says Two More People Have Died From Coronavirus**\
