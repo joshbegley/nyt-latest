@@ -2,7 +2,7 @@
 `Jeff Sheppard works as a financial planner now, more than two decades removed from the time he helped Kentucky win the NCAA Tournament.`\
 https://nytimes.com/aponline/2020/03/22/sports/ncaabasketball/ap-bkc-ncaa-tourney-stars.html?searchResultPosition=2
 
-**Emirates Stopping Nearly All Passenger Flights, Slash Wages**\
+**Emirates Stops Nearly All Passenger Flights, Slashes Wages**\
 `Emirates, one of the world's biggest long-haul airlines, said on Sunday it would stop nearly all passenger flights this week and cut staff wages by as much as half because of the coronavirus impact on travel demand.`\
 https://nytimes.com/reuters/2020/03/22/business/22reuters-health-coronavirus-emirates-airline.html?searchResultPosition=3
 
