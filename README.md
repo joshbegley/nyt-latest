@@ -12,7 +12,7 @@ https://nytimes.com/aponline/2020/03/22/world/middleeast/bc-ml-virus-outbreak-em
 
 **Where Is God in a Pandemic?**\
 `The honest answer is: We don’t know. But even non-Christians may find understanding in the life of Jesus.`\
-https://nytimes.com/2020/03/22/opinion/where-is-god-in-a-pandemic.html?searchResultPosition=5
+https://nytimes.com/2020/03/22/opinion/coronavirus-religion.html?searchResultPosition=5
 
 **How to Solve the Ventilator Shortage**\
 `I’m one of the doctors on the front lines of the war against this virus. You can help me fight.`\
