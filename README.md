@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/03/22/world/middleeast/22reuters-health-coronav
 https://nytimes.com/reuters/2020/03/22/world/asia/22reuters-health-coronavirus-indonesia.html?searchResultPosition=7
 
 **Iran Leader Refuses US Help, Citing Virus Conspiracy Theory**\
-`Iran's supreme leader on Sunday refused U.S. assistance to fight the new coronavirus, citing an unfounded conspiracy theory that the virus could be man-made by America. `\
+`Iran's supreme leader Sunday refused U.S. assistance to fight the new coronavirus, citing an unfounded conspiracy theory that the virus could be man-made by America. `\
 https://nytimes.com/aponline/2020/03/22/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=8
 
 **Renault Aims to Avoid Renationalization: Chairman**\
