@@ -1,5 +1,5 @@
 **Spanish Opera Singer Plácido Domingo Has Coronavirus**\
-`Spanish opera singer Plácido Domingo says he has become infected with the coronavirus. `\
+`Spanish opera singer Plácido Domingo said Sunday that he's infected with the coronavirus. `\
 https://nytimes.com/aponline/2020/03/22/world/europe/ap-eu-virus-outbreak-plcido-domingo.html?searchResultPosition=2
 
 **Plácido Domingo Says He Has the Coronavirus**\
