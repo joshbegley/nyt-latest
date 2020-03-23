@@ -1,36 +1,36 @@
-**Air Canada Lays Off 5,000, France Tries to Save Food Supply**\
-`The rapid spread of the coronavirus since it was first reported in China has dealt an unparalleled shock to the world economy.`\
-https://nytimes.com/aponline/2020/03/23/business/ap-virus-outbreak-business-fallout.html?searchResultPosition=2
+**Your Monday Briefing**\
+`Coronavirus, Senate, Summer Olympics: Here's what you need to know.`\
+https://nytimes.com/2020/03/23/briefing/coronavirus-senate-summer-olympics.html?searchResultPosition=2
 
-**Hong Kong to Ban All Tourist Arrivals, Weighs Suspension of Alcohol Sales**\
-`Hong Kong said on Monday it was banning all tourist arrivals to the global financial center amid a spike in imported cases of the coronavirus, as it joins cities worldwide in the battle to contain the spread of the disease. `\
-https://nytimes.com/reuters/2020/03/23/world/asia/23reuters-health-coronavirus-hongkong.html?searchResultPosition=3
+**Stuck in a Spare Room, Running a Company**\
+`As chief executives hunker down during the pandemic, home offices have become corporate headquarters.`\
+https://nytimes.com/2020/03/23/business/corner-office-coronavirus.html?searchResultPosition=3
 
-**Southeast Asians Consider Emergency Powers, Singapore Carrier Grounds Fleet**\
-`Southeast Asian countries considered more emergency powers on Monday to tackle the threat of the coronavirus as Singapore Airlines said it was grounding almost all of fleet in the face of the "greatest challenge" it has ever faced.`\
-https://nytimes.com/reuters/2020/03/23/world/asia/23reuters-health-coronavirus-seasia.html?searchResultPosition=4
+**The Plastic-Hunting Pirates of the Cornish Coast**\
+`The Clean Ocean Sailing initiative removes plastic waste from areas of England’s coastline that are inaccessible by foot.`\
+https://nytimes.com/2020/03/23/travel/clean-ocean-sailing.html?searchResultPosition=4
 
-**SoftBank to Buy Back $41 Billion in Assets to Trim Debt**\
-`The Japanese technology and telecoms company SoftBank said Monday it plans to buy back up to 4.5 trillion yen ($41 billion) of its assets as it seeks to trim its gigantic debt burden. `\
-https://nytimes.com/aponline/2020/03/23/business/bc-as-japan-softbank.html?searchResultPosition=5
+**The Search for E.T. Goes on Hold, for Now**\
+`A popular screen saver takes a break while its inventors try to digest data that may yet be hiding news of extraterrestrials.`\
+https://nytimes.com/2020/03/23/science/seti-at-home-aliens.html?searchResultPosition=5
 
-**Hugo Boss Says CEO to Leave on September 30, Seeking Successor**\
-`Hugo Boss said on Monday that Chief Executive Mark Langer would leave the German fashion house on Sept. 30, but stay on until the end of the year as a consultant due to the coronavirus crisis while the company looks for a successor.`\
-https://nytimes.com/reuters/2020/03/23/world/europe/23reuters-hugo-boss-ceo.html?searchResultPosition=6
+**Small Businesses Seek a Crisis Lifeline Beyond Loans**\
+`Many owners fear taking on debt they are not sure they can repay and are looking to the federal government for more than low-interest disaster loans.`\
+https://nytimes.com/2020/03/23/business/coronavirus-small-business-loans.html?searchResultPosition=6
 
-**'Optimistic' Merkel Not Infected With Coronavirus: Chief of Staff**\
-`German Chancellor Angela Merkel only had brief contact with a doctor who later tested positive for coronavirus so there is a good chance she is not infected, her chief of staff said late on Sunday.`\
-https://nytimes.com/reuters/2020/03/23/world/europe/23reuters-health-coronavirus-merkel.html?searchResultPosition=7
+**As Coronavirus Surveillance Escalates, Personal Privacy Plummets**\
+`Tracking entire populations to combat the pandemic now could open the doors to more invasive forms of government snooping later.`\
+https://nytimes.com/2020/03/23/technology/coronavirus-surveillance-tracking-privacy.html?searchResultPosition=7
 
-**Germany Confirms Another Case of H5N8 Bird Flu on a Farm**\
-`Another case of H5N8 bird flu has been confirmed in a poultry farm in Germany, German authorities said.`\
-https://nytimes.com/reuters/2020/03/23/world/europe/23reuters-birdflu-germany.html?searchResultPosition=8
+**Shopping for Dining Chairs**\
+`With so many of us working at the dining table these days, our chairs need to be multifunctional. Here’s how to choose the right ones.`\
+https://nytimes.com/2020/03/23/realestate/shopping-for-dining-chairs.html?searchResultPosition=8
 
-**Netflix to Reduce Quality of Streams in Israel**\
-`Netflix said on Monday it would reduce quality of its streams in Israel for the next month in response to a jump in data congestion traffic caused by people remaining home due to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-netflix-israel.html?searchResultPosition=9
+**How to Prevent a Coronavirus Depression**\
+`If we keep up our current strategy, our economy will die.`\
+https://nytimes.com/2020/03/23/opinion/coronavirus-depression.html?searchResultPosition=9
 
-**Tokyo 2020 Olympic Committee Admits Postponement Realistic Option**\
-`After weeks of insisting that the Tokyo 2020 Olympics would go ahead as planned despite the novel coronavirus becoming a global pandemic, the organizing committee admitted on Monday that postponement of the Games was being considered.`\
-https://nytimes.com/reuters/2020/03/23/sports/olympics/23reuters-health-coronavirus-olympics-tokyo-newser.html?searchResultPosition=10
+**Spit On, Yelled At, Attacked: Chinese-Americans Fear For Their Safety**\
+`As bigots blame them for the coronavirus and President Trump labels it the “Chinese virus,” many Chinese-Americans say they are terrified of what could come next.`\
+https://nytimes.com/2020/03/23/us/coronavirus-asian-americans-attacks.html?searchResultPosition=10
 
