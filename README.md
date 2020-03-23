@@ -2,8 +2,8 @@
 `Former movie producer Harvey Weinstein, who is serving a prison sentence for sexual assault and rape, has tested positive for the coronavirus, according to the head of the state corrections officers union.`\
 https://nytimes.com/reuters/2020/03/22/arts/22reuters-people-harvey-weinstein.html?searchResultPosition=2
 
-**Team Canada Says It Won't Participate in Games in Summer 2020**\
-`The Canadian Olympic Committee (COC) and Paralympic Committee (CPC) said on Sunday that Team Canada would not be participating in the Olympic and Paralympic Games in the summer of 2020.`\
+**Canada Says It Won't Participate in Games in Summer 2020**\
+`The Canadian Olympic Committee (COC) and Paralympic Committee (CPC) said on Sunday that Team Canada will not participate in the Olympic and Paralympic Games in the summer of 2020 due to concerns about the outbreak of the coronavirus.`\
 https://nytimes.com/reuters/2020/03/22/sports/olympics/22reuters-health-coronavirus-olympics-canada.html?searchResultPosition=3
 
 **Canada Says No Athletes at Tokyo Games if Not Postponed**\
