@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/03/22/sports/olympics/22reuters-health-coronavi
 https://nytimes.com/aponline/2020/03/22/sports/olympics/ap-oly-virus-outbreak-canada.html?searchResultPosition=4
 
 **Australia Share Benchmark, US Futures Sink as Crisis Deepens**\
-`U.S. futures have declined and Australia's share benchmark plunged 8.5% as work on more stimulus for the U.S. economy hit snags in the U.S. Senate. `\
+`U.S. futures dropped more than 4% and Australia's share benchmark initially plunged 8.5% as work on more stimulus for the U.S. economy hit snags in the U.S. Senate. `\
 https://nytimes.com/aponline/2020/03/22/business/ap-financial-markets.html?searchResultPosition=5
 
 **‘Westworld’ Season 3, Episode 2 Recap: A Band of Thugs**\
