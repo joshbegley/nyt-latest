@@ -1,36 +1,36 @@
-**Trump Signs Order Against Hoarding, Price Gouging in Fight Against Coronavirus**\
-`President Donald Trump signed an executive order on Monday to prevent hoarding and price gouging of supplies needed to fight the deadly coronavirus, a spokeswoman said. `\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-usa-order.html?searchResultPosition=2
+**'Laser-Focused' on Surgical Masks, U.S. Textile Firms Pivot in Coronavirus Pandemic**\
+`U.S. textile and garment companies that normally make sweatshirts or fabric for patio umbrellas are changing tack in the coronavirus pandemic, heeding a White House call to step up production of urgently needed surgical masks and gowns.`\
+https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-usa-textiles.html?searchResultPosition=2
 
-**Britain Imposes Lockdown to Combat Spread of Coronavirus**\
-`British Prime Minister Boris Johnson ordered stringent restrictions on people’s movement to slow the spread of the coronavirus, saying people should stay at home unless they are buying food, travelling to work, needing medical care or exercising.`\
-https://nytimes.com/reuters/2020/03/23/world/europe/23reuters-health-coronavirus-johnson-lockdown.html?searchResultPosition=3
+**Britain's Johnson Says Will Stop Large Gatherings and Weddings**\
+`Britain will stop weddings and other large gatherings and will close shops and playgrounds to get citizens to comply with instructions to stay at home to mitigate the coronavirus pandemic, Prime Minister Boris Johnson said on Monday.`\
+https://nytimes.com/reuters/2020/03/23/world/europe/23reuters-health-coronavirus-britain-johnson-enforcement.html?searchResultPosition=3
 
-**In Battle Against Coronavirus, Colombia Transforms Military Hospital**\
-`Colombia's central military hospital, which for decades was inundated with victims of landmines and other casualties of the country's internal conflict, is being outfitted to battle a new enemy: coronavirus.`\
-https://nytimes.com/reuters/2020/03/23/world/americas/23reuters-health-coronavirus-colombia.html?searchResultPosition=4
+**Man Convicted of Trying to Blow Up Oklahoma City Bank Gets 25 Years in Prison**\
+`Jerry Drake Varnell was arrested in 2017 after a thwarted attempt to blow up a bank in downtown Oklahoma City — a plot similar to one carried out there in 1995.`\
+https://nytimes.com/2020/03/23/us/oklahoma-city-bomb-sentenced.html?searchResultPosition=4
 
-**Whatever It Takes: How the Fed Aims to Rescue the Economy**\
-`The central bank is using tactics from the last financial crisis and deploying new ones to keep money flowing. Here are the basics.`\
-https://nytimes.com/2020/03/23/business/economy/federal-reserve-how-rescue.html?searchResultPosition=5
+**Shouting, Finger-Pointing and Threats in a Florida City on Edge**\
+`A town’s emergency meeting turned into a shouting match and a viral video as tensions over its coronavirus response boiled over.`\
+https://nytimes.com/2020/03/23/us/coronavirus-lake-worth-beach-video.html?searchResultPosition=5
 
-**Dip in Italy’s Cases Does Not Come Fast Enough for Swamped Hospitals**\
-`Even as new coronavirus infections appear to slow, a backlog is forcing doctors to make increasingly tough choices about treatment.`\
-https://nytimes.com/2020/03/23/world/europe/italy-coronavirus-hospitals.html?searchResultPosition=6
+**The Coronavirus Revives Facebook as a News Powerhouse**\
+`More than half of all news consumption on Facebook in America is about the virus, according to an internal report.`\
+https://nytimes.com/2020/03/23/technology/coronavirus-facebook-news.html?searchResultPosition=6
 
-**Testing Blunders Crippled US Response as Coronavirus Spread**\
-`A series of missteps at the nation's top public health agency caused a critical shortage of reliable laboratory tests for the coronavirus, hobbling the federal response as the pandemic spread across the country like wildfire, an Associated Press review found. `\
-https://nytimes.com/aponline/2020/03/23/us/politics/ap-us-virus-outbreak-testing-missteps.html?searchResultPosition=7
+**Tipping Goes Virtual as Coronavirus Decimates U.S. Restaurant Jobs**\
+`As restaurants and bars across the United States shut their doors and lay off their staff in the wake of the coronavirus outbreak, America’s famed service culture is moving online - with regulars paying their out-of-work waiters, favorite bar staff, and even total strangers via virtual tip jars. `\
+https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-tips.html?searchResultPosition=7
 
-**Loss of Smell, Taste, Might Signal Pandemic Virus Infection**\
-`A loss of smell or taste might be an early sign of infection with the pandemic virus, say medical experts who cite reports from several countries.`\
-https://nytimes.com/aponline/2020/03/23/health/ap-us-med-virus-outbreak-loss-of-smell.html?searchResultPosition=8
+**New Mexico Governor Issues Statewide Stay-At-Home Order**\
+`New Mexico Governor Michelle Lujan Grisham on Monday issued a statewide stay-at-home order asking residents to remain in their houses to slow the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-new-mexico.html?searchResultPosition=8
 
-**‘You Must Stay At Home,’ Johnson Says**\
-`In a speech to the British people, Boris Johnson announced new measures for Britain to combat the coronavirus.`\
-https://nytimes.com/video/us/politics/100000007050188/johnson-coronavirus.html?searchResultPosition=9
+**Factbox-Britain's Coronavirus Lockdown: What You Can and Can't Do**\
+`British Prime Minister Boris Johnson ramped up the nation's coronavirus measures on Monday, enforcing a nationwide lockdown after chairing an emergency Cobra committee.`\
+https://nytimes.com/reuters/2020/03/23/world/europe/23reuters-health-coronavirus-britain-factbox.html?searchResultPosition=9
 
-**An Argumentative-Writing Unit for Students Doing Remote Learning**\
-`Suggestions for self-guided activities that can help students practice making claims and supporting them with evidence.`\
-https://nytimes.com/2020/03/23/learning/an-argumentative-writing-unit-for-students-doing-remote-learning.html?searchResultPosition=10
+**Suspected Coronavirus Case Among White House Press Corps-Press Group**\
+`A White House reporter is suspected of having contracted the coronavirus, the White House Correspondents Association said on Monday, raising questions about the viability of press briefings that gather dozens of journalists and Trump administration officials in a single room each day. `\
+https://nytimes.com/reuters/2020/03/23/us/23reuters-whitehouse-coronavirus-journalists.html?searchResultPosition=10
 
