@@ -1,36 +1,36 @@
+**FuboTV to Merge With FaceBank; Sources Say Values FuBoTV at $700 Million**\
+`Streaming provider FuboTV said on Monday that it had agreed to merge with virtual entertainment firm FaceBank Group Inc to expand its over-the-top TV footprint, in a deal that sources said valued privately held FuboTV at about $700 million.`\
+https://nytimes.com/reuters/2020/03/23/us/23reuters-facebank-group-m-a-fubotv.html?searchResultPosition=2
+
+**Applied Materials Pulls Second-Quarter Outlook as Coronavirus Disrupts Supply Chain**\
+`Applied Materials Inc said on Monday it is withdrawing its second-quarter outlook as the chip gear maker's supply chain and manufacturing operations were hit by the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/23/technology/23reuters-health-coronavirus-applied-materials.html?searchResultPosition=3
+
+**Rand Paul’s Positive Coronavirus Test Sets the (Still Meeting) Senate on Edge**\
+`The Kentucky Republican’s diagnosis has injected a shot of fear into the Senate as it scrambles to pass a relief package to respond to the pandemic.`\
+https://nytimes.com/2020/03/23/us/politics/rand-paul-coronavirus-senate.html?searchResultPosition=4
+
+**Coronavirus Drives Up Demand – and Pay-For Temporary U.S. Nurses**\
+`U.S. hospitals, bracing for a surge of coronavirus patients just as some staff are under quarantine after being exposed to the virus, are facing a shortage of temporary nurses who can fill in - and being asked to pay as much as double to make it worth it.`\
+https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-usa-nurses.html?searchResultPosition=5
+
+**Coronavirus Relief, PG&E, Woody Allen: Your Monday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/03/23/briefing/coronavirus-relief-pge-woody-allen.html?searchResultPosition=6
+
+**To Help Performers in Need, Funky Videos at Your Fingertips**\
+`The performer Taylor Mac and the playwright Suzan-Lori Parks have signed on to a video-sharing subscription service to raise money for New York colleagues in crisis.`\
+https://nytimes.com/2020/03/23/theater/trickle-up-video-subscription.html?searchResultPosition=7
+
 **What's in the Nearly $2 Trillion U.S. Senate Coronavirus Stimulus**\
 `The U.S. Senate on Monday was negotiating a nearly $2 trillion emergency bill that aims to stem some of the economic toll of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-usa-bill-factbox.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-usa-bill-factbox.html?searchResultPosition=8
 
 **Uber Appoints Former Mattel CEO Robert Eckert to Board**\
 `Uber Technologies Inc said on Monday it had appointed consumer industry veteran Robert Eckert to its board as an independent director.`\
-https://nytimes.com/reuters/2020/03/23/business/23reuters-uber-board.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/23/business/23reuters-uber-board.html?searchResultPosition=9
 
 **Explainer: How the Fed's Latest Move Will Get Money to Main Street**\
 `The U.S. Federal Reserve said on Monday it would backstop an unprecedented range of credit for households, small businesses and major employers in an attempt to stop the economy from sliding into depression as the coronavirus spreads.  `\
-https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-usa-mainstreet-explainer.html?searchResultPosition=4
-
-**Bombardier to Suspend Business Jet Production in Canada Over Coronavirus: Source**\
-`Bombardier is suspending Canadian production of its corporate jets to comply with restrictions placed by provincial governments aimed at curbing the spread of the coronavirus, a source familiar with the matter said on Monday.`\
-https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-bombardier.html?searchResultPosition=5
-
-**With Latest Moves, Fed Becomes Creditor in Chief for U.S. Business**\
-`In undertaking what will undoubtedly be its largest rescue effort ever, the Federal Reserve on Monday announced programs that represent a never-before-seen intervention by the central bank into the heart of the "real" American economy. `\
-https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-fed-rescue-analysis.html?searchResultPosition=6
-
-**Mexican Referendum Rejects U.S. Modelo Brewer in New Investment Blow**\
-`The Mexican government said on Monday that local residents voted by about 76% to reject the completion of a more than $1 billion brewery under construction by Constellation Brands Inc, a development likely to further shake investor confidence.`\
-https://nytimes.com/reuters/2020/03/23/business/23reuters-mexico-economy-referendum.html?searchResultPosition=7
-
-**Factbox: Three in U.S. Congress Test Positive for Coronavirus, More Self-Quarantine**\
-`Three members of the U.S. Congress have tested positive for the coronavirus, and at least 22 others have said they are self-quarantining, even as lawmakers scramble to pass more legislation to help cope with the pandemic.`\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-usa-congress-factbox.html?searchResultPosition=8
-
-**Republicans Add Insult to Illness**\
-`Greed, germs and the art of no deal.`\
-https://nytimes.com/2020/03/23/opinion/republicans-coronavirus.html?searchResultPosition=9
-
-**As Fox News Played Down the Coronavirus, Its Chief Protected Himself**\
-`The cancellation of an 89th birthday party for Rupert Murdoch highlights a disconnect between his family’s behavior and statements made on air by some Fox commentators.`\
-https://nytimes.com/2020/03/23/business/media/fox-news-coronavirus-rupert-murdoch.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-usa-mainstreet-explainer.html?searchResultPosition=10
 
