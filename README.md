@@ -1,36 +1,36 @@
+**Zimbabwe Records First Coronavirus Death: Health Minister**\
+`Zimbabwe recorded the first death of a coronavirus patient on Monday, the health minister said, and urged the nation not to panic.`\
+https://nytimes.com/reuters/2020/03/23/world/africa/23reuters-health-coronavirus-zimbabwe.html?searchResultPosition=2
+
+**Supreme Court Rules States Can Bar Insanity Defense**\
+`The Supreme Court ruled Monday that states can prevent criminal defendants from pleading insanity without violating their constitutional rights. The decision could prompt states across the country to toughen standards for defendants who wish to plead not guilty by reason of insanity.`\
+https://nytimes.com/aponline/2020/03/23/us/politics/ap-us-supreme-court-insanity-defense.html?searchResultPosition=3
+
+**Big Tech Could Emerge From Coronavirus Crisis Stronger Than Ever**\
+`Amazon is hiring aggressively to meet customer demand. Traffic has soared on Facebook and YouTube. And cloud computing has become essential to home workers.`\
+https://nytimes.com/2020/03/23/technology/coronavirus-facebook-amazon-youtube.html?searchResultPosition=4
+
+**Amnesty International Says Thai Military Abuses Conscripts**\
+`The human rights group Amnesty International says many new conscripts in Thailand's military are physically, sexually and mentally abused, with some cases amounting to torture. `\
+https://nytimes.com/aponline/2020/03/23/world/asia/ap-as-thailand-military-abuses.html?searchResultPosition=5
+
+**When Coronavirus Closes Your Lab, Can Science Go On?**\
+`Plenty of work can be done from home, but the pandemic is forcing some parts of the scientific process to be put on the shelf.`\
+https://nytimes.com/2020/03/23/science/coronavirus-closed-labs.html?searchResultPosition=6
+
 **Covid-19’s Economic Pain Is Universal. But Relief? Depends on Where You Live.**\
 `In some countries, workers will have 90 percent of lost wages covered. In others, residents fear eviction. Nation to nation, rescue plans reflect conflicting ideas of government’s role in a crisis.`\
-https://nytimes.com/2020/03/23/world/europe/coronavirus-economic-relief-wages.html?searchResultPosition=2
+https://nytimes.com/2020/03/23/world/europe/coronavirus-economic-relief-wages.html?searchResultPosition=7
 
 **Feds: Virus Frauds Spread, Preying on Medicare Recipients**\
 `Scam artists are preying on older people's fears by peddling fake tests for the coronavirus to Medicare recipients, a federal law enforcement agency warned on Monday. `\
-https://nytimes.com/aponline/2020/03/23/us/politics/ap-us-virus-outbreak-fraud.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/03/23/us/politics/ap-us-virus-outbreak-fraud.html?searchResultPosition=8
 
 **Ruchika Tomar Wins PEN/Hemingway Award for Debut Novel**\
 `Ruchika Tomar's “A Prayer for Travelers” has won the PEN/Hemingway Award for best debut novel, an honor previously given to Marilynne Robinson, Tommy Orange and Yiyun Li among others. `\
-https://nytimes.com/aponline/2020/03/23/us/ap-us-books-pen-hemingway-award.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/03/23/us/ap-us-books-pen-hemingway-award.html?searchResultPosition=9
 
 **Coronavirus Forces States to Order Nearly One in Three Americans to Stay Home**\
 `Nearly one in three Americans was under orders on Sunday to stay home to slow the spread of the coronavirus pandemic as Ohio, Louisiana and Delaware became the latest states to enact broad restrictions, along with the city of Philadelphia.`\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-usa.html?searchResultPosition=5
-
-**Canada Oil Sands Work Camp Says Coronavirus Case Possible, Not Positive**\
-`A northern Alberta work camp near Canada's oil sands said on Monday that it is awaiting test results to determine whether a worker who was sick last week was indeed stricken by the coronavirus as the company had previously said. `\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-oilsands.html?searchResultPosition=6
-
-**Cook With Confidence**\
-`You don’t have to have all the ingredients to follow a recipe, or to make a great meal. Make the recipe your own.`\
-https://nytimes.com/2020/03/23/dining/cook-with-confidence.html?searchResultPosition=7
-
-**Tunisia Orders Army Into Streets to Enforce Coronavirus Lockdown**\
-`Tunisia's President Kais Saied on Monday ordered the army to deploy in the streets to force people to respect a lockdown imposed to halt the spread of coronavirus, the office of the presidency said in a statement sent to Reuters.`\
-https://nytimes.com/reuters/2020/03/23/world/africa/23reuters-health-coronavirus-tunisia-army.html?searchResultPosition=8
-
-**Uber CEO Seeks Help for Workers in U.S. Coronavirus Stimulus**\
-`Uber Technologies Inc Chief Executive Officer Dara Khosrowshahi on Monday sought U.S. government's support for its independent drivers and delivery workers in the coronavirus stimulus package.`\
-https://nytimes.com/reuters/2020/03/23/technology/23reuters-health-coronavirus-uber.html?searchResultPosition=9
-
-**In Coronavirus Lockdown, Gulf Residents Urge End to Voice-Call Bans**\
-`Residents in the United Arab Emirates and other Gulf states are urging telecom firms to further ease restrictions on free internet calls as coronavirus separates families and forces people to work and study from home.`\
-https://nytimes.com/reuters/2020/03/23/technology/23reuters-health-coronavirus-gulf-telecoms.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-usa.html?searchResultPosition=10
 
