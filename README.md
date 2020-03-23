@@ -18,9 +18,9 @@ https://nytimes.com/aponline/2020/03/23/sports/football/ap-fbn-redskins-moves.ht
 `Benchmark crude oil rose 73 cents to close at $23.36 a barrel Monday. Brent crude oil, the international standard, rose 5 cents to $27.03 a barrel. `\
 https://nytimes.com/aponline/2020/03/23/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=6
 
-**U.S., U.A.E. Troops Hold Major Exercise Amid Virus and Iran Tensions**\
+**U.S. and U.A.E. Troops Hold Major Exercise Amid Virus and Iran Tensions**\
 `The biennial exercise, called Native Fury, shows the close ties between American forces and the U.A.E.`\
-https://nytimes.com/2020/03/23/world/middleeast/us-uae-troops-hold-major-exercise-amid-virus-and-iran-tensions.html?searchResultPosition=7
+https://nytimes.com/2020/03/23/world/middleeast/us-and-uae-troops-hold-major-exercise-amid-virus-and-iran-tensions.html?searchResultPosition=7
 
 **Your Tuesday Briefing**\
 `South Korea’s method, coronavirus treatment, SoftBank: Here’s what you need to know.`\
