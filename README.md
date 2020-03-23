@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/03/23/world/europe/23reuters-health-coronavirus
 https://nytimes.com/reuters/2020/03/23/world/europe/23reuters-health-coronavirus-electrolux.html?searchResultPosition=4
 
 **Shell Lowers 2020 Capex, Suspends Share Buyback**\
-`British oil major Shell joined other companies in the sector in lowering capital expenditure for the current year by about $5 billion and suspended the next tranche of its share buyback plan to weather a hit from the recent oil price crash.`\
+`Oil major Shell lowered capital expenditure for 2020 by about $5 billion on Monday and suspended the next tranche of its share buyback plan, as the company tries to weather a hit from the recent oil price crash.`\
 https://nytimes.com/reuters/2020/03/23/business/23reuters-shell-capex.html?searchResultPosition=5
 
 **Newmont Withdraws 2020 Forecast Following Coronavirus Outbreak**\
