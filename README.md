@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/03/23/us/ap-eu-britain-scotland-salmond.html?s
 https://nytimes.com/aponline/2020/03/23/us/politics/ap-us-supreme-court-pirate-ship-.html?searchResultPosition=3
 
 **Biden, Struggling for Visibility During Crisis, Faults Trump’s Response to Virus**\
-`As President Trump held daily briefings, Mr. Biden has kept a low profile, worrying Democrats who feel the president needs to be challenged more robustly.`\
+`As President Trump holds daily briefings, Mr. Biden has kept a low profile, worrying Democrats who feel the president needs to be challenged more robustly.`\
 https://nytimes.com/2020/03/23/us/politics/joe-biden-2020-virus.html?searchResultPosition=4
 
 **African Finance Ministers Call for $100 Billion Stimulus, Debt Holiday**\
