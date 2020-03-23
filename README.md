@@ -1,36 +1,36 @@
-**'Laser-Focused' on Surgical Masks, U.S. Textile Firms Pivot in Coronavirus Pandemic**\
-`U.S. textile and garment companies that normally make sweatshirts or fabric for patio umbrellas are changing tack in the coronavirus pandemic, heeding a White House call to step up production of urgently needed surgical masks and gowns.`\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-usa-textiles.html?searchResultPosition=2
+**What's in the Nearly $2 Trillion U.S. Senate Coronavirus Stimulus**\
+`The U.S. Senate on Monday was negotiating a nearly $2 trillion emergency bill that aims to stem some of the economic toll of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-usa-bill-factbox.html?searchResultPosition=2
 
-**Britain's Johnson Says Will Stop Large Gatherings and Weddings**\
-`Britain will stop weddings and other large gatherings and will close shops and playgrounds to get citizens to comply with instructions to stay at home to mitigate the coronavirus pandemic, Prime Minister Boris Johnson said on Monday.`\
-https://nytimes.com/reuters/2020/03/23/world/europe/23reuters-health-coronavirus-britain-johnson-enforcement.html?searchResultPosition=3
+**Uber Appoints Former Mattel CEO Robert Eckert to Board**\
+`Uber Technologies Inc said on Monday it had appointed consumer industry veteran Robert Eckert to its board as an independent director.`\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-uber-board.html?searchResultPosition=3
 
-**Man Convicted of Trying to Blow Up Oklahoma City Bank Gets 25 Years in Prison**\
-`Jerry Drake Varnell was arrested in 2017 after a thwarted attempt to blow up a bank in downtown Oklahoma City — a plot similar to one carried out there in 1995.`\
-https://nytimes.com/2020/03/23/us/oklahoma-city-bomb-sentenced.html?searchResultPosition=4
+**Explainer: How the Fed's Latest Move Will Get Money to Main Street**\
+`The U.S. Federal Reserve said on Monday it would backstop an unprecedented range of credit for households, small businesses and major employers in an attempt to stop the economy from sliding into depression as the coronavirus spreads.  `\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-usa-mainstreet-explainer.html?searchResultPosition=4
 
-**Shouting, Finger-Pointing and Threats in a Florida City on Edge**\
-`A town’s emergency meeting turned into a shouting match and a viral video as tensions over its coronavirus response boiled over.`\
-https://nytimes.com/2020/03/23/us/coronavirus-lake-worth-beach-video.html?searchResultPosition=5
+**Bombardier to Suspend Business Jet Production in Canada Over Coronavirus: Source**\
+`Bombardier is suspending Canadian production of its corporate jets to comply with restrictions placed by provincial governments aimed at curbing the spread of the coronavirus, a source familiar with the matter said on Monday.`\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-bombardier.html?searchResultPosition=5
 
-**The Coronavirus Revives Facebook as a News Powerhouse**\
-`More than half of all news consumption on Facebook in America is about the virus, according to an internal report.`\
-https://nytimes.com/2020/03/23/technology/coronavirus-facebook-news.html?searchResultPosition=6
+**With Latest Moves, Fed Becomes Creditor in Chief for U.S. Business**\
+`In undertaking what will undoubtedly be its largest rescue effort ever, the Federal Reserve on Monday announced programs that represent a never-before-seen intervention by the central bank into the heart of the "real" American economy. `\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-fed-rescue-analysis.html?searchResultPosition=6
 
-**Tipping Goes Virtual as Coronavirus Decimates U.S. Restaurant Jobs**\
-`As restaurants and bars across the United States shut their doors and lay off their staff in the wake of the coronavirus outbreak, America’s famed service culture is moving online - with regulars paying their out-of-work waiters, favorite bar staff, and even total strangers via virtual tip jars. `\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-tips.html?searchResultPosition=7
+**Mexican Referendum Rejects U.S. Modelo Brewer in New Investment Blow**\
+`The Mexican government said on Monday that local residents voted by about 76% to reject the completion of a more than $1 billion brewery under construction by Constellation Brands Inc, a development likely to further shake investor confidence.`\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-mexico-economy-referendum.html?searchResultPosition=7
 
-**New Mexico Governor Issues Statewide Stay-At-Home Order**\
-`New Mexico Governor Michelle Lujan Grisham on Monday issued a statewide stay-at-home order asking residents to remain in their houses to slow the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-new-mexico.html?searchResultPosition=8
+**Factbox: Three in U.S. Congress Test Positive for Coronavirus, More Self-Quarantine**\
+`Three members of the U.S. Congress have tested positive for the coronavirus, and at least 22 others have said they are self-quarantining, even as lawmakers scramble to pass more legislation to help cope with the pandemic.`\
+https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-usa-congress-factbox.html?searchResultPosition=8
 
-**Factbox-Britain's Coronavirus Lockdown: What You Can and Can't Do**\
-`British Prime Minister Boris Johnson ramped up the nation's coronavirus measures on Monday, enforcing a nationwide lockdown after chairing an emergency Cobra committee.`\
-https://nytimes.com/reuters/2020/03/23/world/europe/23reuters-health-coronavirus-britain-factbox.html?searchResultPosition=9
+**Republicans Add Insult to Illness**\
+`Greed, germs and the art of no deal.`\
+https://nytimes.com/2020/03/23/opinion/republicans-coronavirus.html?searchResultPosition=9
 
-**Suspected Coronavirus Case Among White House Press Corps-Press Group**\
-`A White House reporter is suspected of having contracted the coronavirus, the White House Correspondents Association said on Monday, raising questions about the viability of press briefings that gather dozens of journalists and Trump administration officials in a single room each day. `\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-whitehouse-coronavirus-journalists.html?searchResultPosition=10
+**As Fox News Played Down the Coronavirus, Its Chief Protected Himself**\
+`The cancellation of an 89th birthday party for Rupert Murdoch highlights a disconnect between his family’s behavior and statements made on air by some Fox commentators.`\
+https://nytimes.com/2020/03/23/business/media/fox-news-coronavirus-rupert-murdoch.html?searchResultPosition=10
 
