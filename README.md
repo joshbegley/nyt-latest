@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/03/23/business/bc-us-supreme-court-black-television-network.html?searchResultPosition=2
 
 **Texas, Ohio Orders on Surgeries Prompt New Abortion Fight**\
-`Orders by the governors of Texas and Ohio to stop all non-essential surgeries in those states has unleashed a new battle over access to abortions during the coronavirus pandemic.`\
+`Orders by the governors of Texas and Ohio to stop all non-essential surgeries in those states have unleashed a new battle over access to abortions during the coronavirus pandemic.`\
 https://nytimes.com/aponline/2020/03/23/us/ap-us-virus-outbreak-abortion.html?searchResultPosition=3
 
 **Former DR Congo Health Minister Convicted of Embezzling Ebola Funds**\
