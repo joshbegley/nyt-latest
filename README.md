@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/03/22/business/22reuters-usa-bonds.html?searchR
 `The email deluge raises questions about marketing practices as nonessential businesses closed shops and storefronts amid the spread of the new coronavirus.`\
 https://nytimes.com/2020/03/22/business/coronavirus-emails.html?searchResultPosition=5
 
-**Asia on Ropes as S&P500 Slides, Dollar in Demand**\
-`Asian markets were set for another turbulent week on Monday as more countries all but shut down in the fight against the coronavirus, threatening to overwhelm policymakers' frantic efforts to cushion what is clear to be a deep global recession.`\
+**Asia Shares Dive With S&P 500, Bond Yields Fall Anew**\
+`Asian shares slid on Monday as more countries all but shut down in the fight against the coronavirus, threatening to overwhelm policymakers' frantic efforts to cushion what is clear to be a deep global recession.`\
 https://nytimes.com/reuters/2020/03/22/business/22reuters-global-markets.html?searchResultPosition=6
 
 **‘Brace Yourself’: How Doctors in Italy Responded to Coronavirus**\
