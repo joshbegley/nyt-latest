@@ -1,36 +1,36 @@
-**Attacks in Libya Kill 5 Despite Calls for Pause in Fighting**\
-`At least five civilians were killed, including two members of the same family, by heavy shelling in Libya’s capital of Tripoli on Monday, officials in the U.N.-backed government said, despite increased international pressure to halt fighting over coronavirus concerns. `\
-https://nytimes.com/aponline/2020/03/23/world/middleeast/ap-ml-libya.html?searchResultPosition=2
+**Italy Coronavirus Deaths Rise by 602 in a Day, Lifting Total Death Toll to 6,078**\
+`The death toll from an outbreak of coronavirus in Italy has grown by 602 to 6,078, the head of the Civil Protection Agency said on Monday, an 11% increase but the smallest rise in numerical terms since Thursday, suggesting a clear downward trend.`\
+https://nytimes.com/reuters/2020/03/23/world/europe/23reuters-health-coronavirus-italy-tally.html?searchResultPosition=2
 
-**Life in the Time of Coronavirus Is Confounding**\
-`Let’s find some answers.`\
-https://nytimes.com/2020/03/23/us/coronavirus-dilemmas-travel-social-distancing.html?searchResultPosition=3
+**Alitalia to Relaunch With Much Smaller Fleet: Sources**\
+`The Italian government plans to take control of loss-making carrier Alitalia [CAITLA.UL] in a month or so, creating a new company that will start off with a much smaller fleet, union sources said on Monday. `\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-italy-alitalia.html?searchResultPosition=3
 
-**Prosecutors: Woman Should Owe $28M for Defrauding Investors**\
-`Federal prosecutors say an Israeli woman should be ordered to pay $28 million in restitution to thousands of investors who were defrauded in a scheme she orchestrated.`\
-https://nytimes.com/aponline/2020/03/23/us/ap-us-investment-fraud.html?searchResultPosition=4
+**North American Millers, Bakers Scramble to Satisfy Bread-Buying Binge**\
+`North American flour mills and bakeries are rushing to boost production as the spread of the new coronavirus leads to stockpiling of staples like bread and pasta. `\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-wheat.html?searchResultPosition=4
 
-**Boeing to Suspend Production in Seattle Because of Virus**\
-`Boeing is suspending operations at its Seattle area facilities due to the spread of coronavirus in the area, where dozens of people have died.`\
-https://nytimes.com/aponline/2020/03/23/business/bc-us-virus-outbreak-boeing.html?searchResultPosition=5
+**Boeing to Halt Washington State Production Temporarily Due to Coronavirus Risks**\
+`Boeing Co said on Monday it will halt production temporarily at its Washington state twin-aisle jetliner factory due to risks from coronavirus, confirming an earlier Reuters report.`\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-boeing.html?searchResultPosition=5
 
-**Will Disabled People Be at a Disadvantage for Scarce Coronavirus Treatment?**\
-`Advocates in Washington State fear that people who are disabled could be at higher risk of death when doctors and hospitals make end-of-life triage decisions.`\
-https://nytimes.com/2020/03/23/us/coronavirus-washington-triage-disabled-handicapped.html?searchResultPosition=6
+**U.S. Prison Union Official Warns of Coronavirus Spread by Inmate Transfers From Outbreak Hotspots**\
+`The federal Bureau of Prisons (BOP) is still transferring some inmates from coronavirus hotspots such as New York City to prisons in other parts of the country, even as three prisoners tested positive for the COVID-19 respiratory illness over the weekend, a top union official said on Monday.`\
+https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-prisons.html?searchResultPosition=6
 
-**'Enough Is Enough': Unhappy Trudeau Tells Canadians to Go Home and Stay Home**\
-`A clearly unhappy Canadian Prime Minister Justin Trudeau on Monday said people defying advice to isolate themselves to fight a coronavirus outbreak should "go home and stay home" or face sanctions. `\
-https://nytimes.com/reuters/2020/03/23/world/americas/23reuters-health-coronavirus-canada.html?searchResultPosition=7
+**GM Eyes Building Ventilators at Indiana Plant to Fight Coronavirus**\
+`General Motors Co said on Monday it is studying the feasibility of building ventilators under its partnership with Ventec Life Systems at the No. 1 U.S. automaker's Kokomo, Indiana, plant to help combat the coronavirus outbreak.    `\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-autos-ventilators.html?searchResultPosition=7
 
-**U.S.-Saudi Alliance One of 'Many Ideas' Being Discussed: U.S. Energy Secretary**\
-`Forging an oil alliance between the United States and OPEC's top producer Saudi Arabia is one of "many, many ideas" being floated by U.S. policy makers but it is uncertain whether it will become a formal proposal, the U.S. energy secretary told Bloomberg TV on Monday.`\
-https://nytimes.com/reuters/2020/03/23/world/europe/23reuters-global-oil-usa-saudi.html?searchResultPosition=8
+**Vital Meals Help Holocaust Survivors Amid Coronavirus Crisis**\
+`Brooklyn caterer Israel Frischman is continuing to prepare dozens of meals for elderly Holocaust survivors even though the Jewish community center that provides them owes him money.`\
+https://nytimes.com/aponline/2020/03/23/us/ap-virus-outbreak-one-good-thing-holocaust-survivors.html?searchResultPosition=8
 
-**Lil Uzi Vert, a Hip-Hop Star Beyond Gatekeepers**\
-`The rapper’s long-awaited second studio album, “Eternal Atake,” and the deluxe version that followed provide rowdy thrills.`\
-https://nytimes.com/2020/03/23/arts/music/lil-uzi-vert-eternal-atake-review.html?searchResultPosition=9
+**Back at Work but Not on the Bench, Supreme Court Issues 3 Major Opinions**\
+`The court ruled in cases on the insanity defense, race discrimination and copyright infringement.`\
+https://nytimes.com/2020/03/23/us/supreme-court-insanity-defense-race-copyright.html?searchResultPosition=9
 
-**U.S. CDC Reports 33,453 Coronavirus Cases, 400 Deaths**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Monday reported 33,453 cases of coronavirus, an increase of 18,185 cases from its previous count, and said the death toll had risen by 199 to 400.`\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-usa-cdc.html?searchResultPosition=10
+**Review: When Atlanta Destroyed a Housing Project to Save It**\
+`The PBS documentary “East Lake Meadows,” from the executive producer Ken Burns, tells a complicated and melancholy story of race and public policy.`\
+https://nytimes.com/2020/03/23/arts/television/east-lake-meadows-review.html?searchResultPosition=10
 
