@@ -1,36 +1,36 @@
+**Medicare Is Updating Coverage to Help in the Coronavirus Crisis**\
+`With its beneficiaries among the most at risk for Covid-19, the agency is relaxing some rules.`\
+https://nytimes.com/2020/03/24/business/coronavirus-medicare-elderly.html?searchResultPosition=2
+
+**Facebook Is ‘Just Trying to Keep the Lights On’ as Traffic Soars in Pandemic**\
+`The social network is straining to deal with skyrocketing usage as its 45,000 employees work from home for the first time.`\
+https://nytimes.com/2020/03/24/technology/virus-facebook-usage-traffic.html?searchResultPosition=3
+
+**Olympic Fallout: Postponement Will Upend Other Major Events**\
+`The expected yet stunning decision Tuesday to postpone the 2020 Summer Olympics because of the coronavirus could have a ripple affect on other major events, most notably the world championships for track and swimming.`\
+https://nytimes.com/aponline/2020/03/24/sports/olympics/ap-oly-olympics-postponed-other-events.html?searchResultPosition=4
+
+**Coronavirus in N.Y.: ‘Astronomical’ Surge Will Hit Hospitals, Cuomo Says**\
+`The governor sounded an alarm, pleading for more federal aid as cases were doubling in New York City every three days.`\
+https://nytimes.com/2020/03/24/nyregion/coronavirus-new-york-apex-andrew-cuomo.html?searchResultPosition=5
+
+**USA Basketball's Next Move Hinges on New Olympic Schedule**\
+`USA Basketball is hoping that the rescheduled Tokyo Olympics will be held around the same time next year as they would have been this year.`\
+https://nytimes.com/aponline/2020/03/24/sports/olympics/ap-oly-tokyo-olympics-postponed-basketball.html?searchResultPosition=6
+
 **Closing Prices for Crude Oil, Gold and Other Commodities**\
 `Benchmark crude oil rose 65 cents to close at $24.01 a barrel Tuesday. Brent crude oil, the international standard, rose 12 cents to $27.15 a barrel. `\
-https://nytimes.com/aponline/2020/03/24/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/03/24/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=7
 
 **Michael Broadbent, Who Put Wine on the Auction Block, Dies at 92**\
 `At Christie’s in London, he essentially created the notion that wine could be auctioned like furniture or art. He was also an influential wine writer.`\
-https://nytimes.com/2020/03/24/dining/drinks/michael-broadbent-dead.html?searchResultPosition=3
+https://nytimes.com/2020/03/24/dining/drinks/michael-broadbent-dead.html?searchResultPosition=8
 
 **Chevron, IHS Markit Rise; Invesco Mortgage, Milestone Fall**\
 `Stocks that moved heavily or traded substantially on Tuesday:`\
-https://nytimes.com/aponline/2020/03/24/business/ap-financial-markets-stocks.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/03/24/business/ap-financial-markets-stocks.html?searchResultPosition=9
 
 **Mets Star Noah Syndergaard to Have Tommy John Surgery**\
 `Mets pitcher Noah Syndergaard has a torn elbow ligament and needs Tommy John surgery that will keep him out of action this year.`\
-https://nytimes.com/aponline/2020/03/24/sports/baseball/ap-bbn-mets-syndergaard-surgery.html?searchResultPosition=5
-
-**Deputies Cleared in Deadly Domestic Dispute Shootout**\
-`Three South Carolina sheriff's deputies won't face any criminal charges after they fatally shot a man during a domestic dispute, authorities said.`\
-https://nytimes.com/aponline/2020/03/24/us/ap-us-police-shooting-south-carolina.html?searchResultPosition=6
-
-**Nashom Wooden, Downtown Denizen, Is Dead at 50**\
-`He had survived every iteration of gay nightlife. Then came a sudden illness, believed to be the novel coronavirus.`\
-https://nytimes.com/2020/03/24/style/nashom-wooden-mona-foot-death-coronavirus.html?searchResultPosition=7
-
-**Hit by War and Oil Blockade, Libya Prepares for Pandemic**\
-`Both the warring factions in Libya have imposed lockdowns to guard against the coronavirus but fighting is still going on, compounding difficulties the country faces in preparing to combat the disease.`\
-https://nytimes.com/reuters/2020/03/24/world/africa/24reuters-health-coronavirus-libya-measures.html?searchResultPosition=8
-
-**US Climate Activists to Livestream Earth Day Due to Virus**\
-`As the coronavirus causes shut-downs across the U.S., a coalition of youth-led organizations that had planned massive marches for the 50th anniversary of Earth Day next month are now planning a three-day livestream event instead, organizers said Tuesday.`\
-https://nytimes.com/aponline/2020/03/24/us/ap-us-virus-outbreak-earth-day-livestream.html?searchResultPosition=9
-
-**Italy PM Hikes Lockdown Fines, Hopes to Lift Restrictions Soon**\
-`The Italian government has hiked fines for people who defy a lockdown order, Prime Minister Giuseppe Conte said on Tuesday, adding that he hoped he could start lifting the restrictions shortly.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-italy-conte.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/24/sports/baseball/ap-bbn-mets-syndergaard-surgery.html?searchResultPosition=10
 
