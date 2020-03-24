@@ -1,36 +1,36 @@
-**Turning Back the Clock on Aging Cells**\
-`Researchers report that they can rejuvenate human cells by reprogramming them to a youthful state.`\
-https://nytimes.com/2020/03/24/science/aging-dna-epigenetics-cells.html?searchResultPosition=2
+**Wizz Air Suspends All Flights To and From Varna Over Coronavirus**\
+`Wizz Air has suspended all flights to and from Bulgarian city of Varna in an attempt to help curb the spread of the coronavirus, the low-cost carrier said in a statement on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-wizz-air-hldgs.html?searchResultPosition=2
 
-**Is Pausing Contributions to SEP I.R.A.s a Good Move?**\
-`Self-employed workers use the vehicles to save for retirement. As the coronavirus concerns build, taking a break could be smart.`\
-https://nytimes.com/2020/03/24/business/sep-ira-pausing-contributions.html?searchResultPosition=3
+**Action Too Late? UK's Gove Says People Must Do Everything Possible Now**\
+`History would judge whether Britain had acted too slowly to stop the spread of the coronavirus but the important thing now was to follow new restrictions, senior minister Michael Gove said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-britain-steps.html?searchResultPosition=3
 
-**Experts Warn Japanese Growing Complacent of Coronavirus Risk**\
-`Infectious disease experts guiding the Japanese government's response to the coronavirus outbreak sounded the alarm on Tuesday that people are not taking the threat seriously.`\
-https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-japan-experts.html?searchResultPosition=4
+**Malaysia Reports 106 New Coronavirus Cases; Total at 1,624**\
+`Malaysia reported 106 new coronavirus cases on Tuesday, taking the total to 1,624, with 15 deaths.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-malaysia-tally.html?searchResultPosition=4
 
-**As the Coronavirus Approaches, Mexico Looks The Other Way**\
-`“This is going to be as bad as Italy or worse.” As much of the world shuts down amid the worsening coronavirus pandemic, Mexico City’s streets are bustling and the country’s president insists on calm.`\
-https://nytimes.com/video/world/americas/100000007049738/as-coronavirus-approaches-mexico-president-looks-other-way.html?searchResultPosition=5
+**Oil Jumps 5% to Over $28 on Fed Steps to Support Economy**\
+`Oil jumped 5% on Tuesday to above $28 a barrel, supported by steps by the U.S. Federal Reserve to bolster the economy and hopes the United States will soon reach a deal on a $2 trillion coronavirus aid package.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-global-oil.html?searchResultPosition=5
 
-**Britain Wakes Up to Coronavirus Lockdown, Confusion Continues**\
-`Britain awoke to a virtual lockdown on Tuesday after Prime Minister Boris Johnson ordered people to stay at home, shops to close and an end to all social gatherings to halt the spread of coronavirus.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-britain.html?searchResultPosition=6
+**China Says Most of Its Imported Coronavirus Cases Involve Chinese Nationals**\
+`China's foreign ministry said on Tuesday that most of the so-called imported cases of the coronavirus reported in the country so far involve Chinese nationals who have traveled to China from overseas. `\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-china-mofa.html?searchResultPosition=6
 
-**Thailand to Declare One-Month Emergency on March 26: Prime Minister**\
-`Thailand will be in an emergency mode from March 26 for a month to deal with the coronavirus outbreak, Prime Minister Prayuth Chan-ocha told a news conference on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-thailand-emergency.html?searchResultPosition=7
+**Dollar Falls for a Second Day on Fed Stimulus**\
+`The dollar slipped for a second consecutive day on Tuesday after the U.S. Federal Reserve unveiled fresh measures to supply precious liquidity into funding markets, sending risky currencies such as the Australian dollar soaring.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-global-forex.html?searchResultPosition=7
 
-**U.S. Military to Send Field Hospitals to New York, Seattle**\
-`The U.S. military is preparing to deploy field hospitals to New York and Seattle, the Pentagon said on Monday, as its top civilian and military leaders acknowledged for the first time that the coronavirus pandemic could impact military readiness.`\
-https://nytimes.com/reuters/2020/03/24/us/24reuters-health-coronavirus-usa-military.html?searchResultPosition=8
+**China Health Commission Says Virus Transmission Risks Remain**\
+`China cannot afford to let its guard down when it comes to combating the coronavirus, with the country still at risk from sporadic infections as well as those from overseas, a health official said on Tuesday. `\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-china-transmission.html?searchResultPosition=8
 
-**U.S. Launches Probes as Trump Bans Hoarding, Price Gouging to Combat Coronavirus**\
-`President Donald Trump signed an executive order on Monday to prevent hoarding and price gouging of crucial medical supplies needed to fight the deadly coronavirus, while Attorney General William Barr announced that the Justice Department has already launched hoarding investigations to carry out the order.`\
-https://nytimes.com/reuters/2020/03/24/us/24reuters-health-coronavirus-usa-order.html?searchResultPosition=9
+**Norwegian Air Secures First Cash Infusion From State Rescue Package**\
+`Norwegian Air has secured an initial cash infusion of 300 million Norwegian crowns ($26.6 million) from a government rescue package for the airline industry, the budget carrier said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-norwegianair.html?searchResultPosition=9
 
-**Taiwan Says WHO Ignored Its Coronavirus Questions at Start of Outbreak**\
-`Taiwan accused the World Heath Organization of ignoring its questions at the start of the coronavirus outbreak, part of what it has long described as a pattern that puts it at risk because of Chinese pressure to exclude it from international bodies.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-taiwan.html?searchResultPosition=10
+**Factbox: Latest on the Spread of the Coronavirus Around the World**\
+`More countries imposed lockdown measures as coronavirus cases across the globe ballooned, led by a sharp rise in infections in Europe.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-latest-factbox.html?searchResultPosition=10
 
