@@ -1,36 +1,36 @@
-**How the U.S. Could Intervene to Weaken Its Surging Dollar**\
-`A blistering dollar rally has revived speculation that the U.S. may rein in its currency if the buck goes much higher. `\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-dollar-explainer.html?searchResultPosition=2
+**Partier in 'if I Get Corona, I Get Corona' Video Apologizes**\
+`A Florida spring breaker has apologized for saying in a viral video last week that he wouldn't let warnings about the coronavirus stop him from partying and “if I get corona, I get corona.” `\
+https://nytimes.com/aponline/2020/03/24/us/ap-us-virus-outbreak-spring-breaker.html?searchResultPosition=2
 
-**Citigroup Makes Senior Hires in United States, Asia**\
-`Citigroup Inc on Tuesday appointed Pam Habner as head of its branded cards division in the United States, as part of hires for many senior roles, according to two memos seen by Reuters.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-citigroup-moves.html?searchResultPosition=3
+**Cannes Opens Its Doors to Homeless After Coronavirus Delays Film Festival**\
+`The Palais des Festivals should be preparing to welcome the hottest names in cinema onto its red carpet. Instead the Cannes Film Festival venue is opening its doors to the town's homeless who have nowhere to go during the coronavirus lockdown.`\
+https://nytimes.com/reuters/2020/03/24/arts/24reuters-health-coronavirus-france-homeless.html?searchResultPosition=3
 
-**Terrence McNally, Tony-Winning Playwright of Gay Life, Dies at 81**\
-`Mr. McNally, who died of coronavirus complications, introduced audiences to characters and situations that most mainstream theater had previously shunted into comic asides.`\
-https://nytimes.com/2020/03/24/theater/terrence-mcnally-dead-coronavirus.html?searchResultPosition=4
+**UK Audit Watchdog Gives Virus-Hit Companies Breathing Space**\
+`Britain's listed companies should not press ahead with a requirement to tender out their audit work in the current market, the Financial Reporting Council (FRC) said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-britain-accounts.html?searchResultPosition=4
 
-**Renault Workers Use 3D Printers to Make Medical Visors**\
-`Renault workers in Spain have begun using 3D printers to manufacture visors for health workers from home, the French carmaker said on Tuesday, in a scheme that could be expanded to make other medical equipment elsewhere. `\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-renault.html?searchResultPosition=5
+**Money Fund Turmoil Spotlights New Jersey Portfolio's 'Shadow Price'**\
+`A New Jersey municipal money-market fund run by BNY Mellon Corp is still paying investors $1.00 a share, even though the mark-to-market price of the fund recently dropped to $0.9968 per share, analysts said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-moneymarket-prices.html?searchResultPosition=5
 
-**Italy Coronavirus Deaths Rise by 743 in a Day, Lifting Total Death Toll to 6,820**\
-`The death toll from an outbreak of coronavirus in Italy has grown by 743 to 6,820, the head of the Civil Protection Agency said on Tuesday, reversing a decline in fatalities seen over the last two days.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-italy-tally.html?searchResultPosition=6
+**From a Coronavirus Victim’s Sister: Mobilize on the Home Front**\
+`A reader says this is our chance as citizens to act. Also: Politicians should sacrifice, too; McDonald’s, on paid sick leave for employees.`\
+https://nytimes.com/2020/03/24/opinion/letters/coronavirus-citizenry.html?searchResultPosition=6
 
-**UK to Open Temporary London Hospital to Tackle Coronavirus Outbreak**\
-`Britain will open a temporary hospital next week at the ExCel exhibition centre in east London, health minister Matt Hancock said on Tuesday, as the country posted its biggest daily rise in coronavirus deaths.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-britain-hospital.html?searchResultPosition=7
+**Panthers Release Quarterback Cam Newton**\
+`The Cam Newton era is over in Carolina, as the Panthers released the 31-year-old quarterback after nine seasons.`\
+https://nytimes.com/aponline/2020/03/24/sports/football/ap-fbn-panthers-newton.html?searchResultPosition=7
 
-**Israeli Defense Ministry Launches COVID-19 Voice-Test Study**\
-`An analysis of coronavirus patients' voices could yield a "vocal fingerprint" to help detect COVID-19 symptoms in others and prioritize testing and treatment, the Israeli Defence Ministry said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/technology/24reuters-health-coronavirus-israel-study.html?searchResultPosition=8
+**Virus Knocks Thousands of Health Workers Out of Action in Europe**\
+`The thinning ranks of doctors and nurses, particularly in Spain, are hampering the ability to fight the epidemic, straining hospitals and raising fears that health workers are spreading the coronavirus.`\
+https://nytimes.com/2020/03/24/world/europe/healthcare-virus-europe-spain.html?searchResultPosition=8
 
-**UK Has Bought 3.5 Million Coronairus Antibody Tests: Health Minister**\
-`British health minister Matt Hancock said on Tuesday the government had bought 3.5 million antibody coronavirus tests so that people who suspect they have had the virus would be able to check for sure.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-britain-tests.html?searchResultPosition=9
+**Fed May Finance Medical Response and More Under U.S. House Bill**\
+`The U.S. Congress is considering authorizing the Federal Reserve to pay the tab as local governments ramp up shipments of testing equipment, masks and ventilators desperately needed to diagnose coronavirus cases, treat patients and keep medical personnel safe.`\
+https://nytimes.com/reuters/2020/03/24/us/politics/24reuters-health-coronavirus-fed-legislation.html?searchResultPosition=9
 
-**Column: Colonial Plans for Tournament That Might Not Happen**\
-`Michael Tothe was supposed to be at the World Golf Championships event this week in Austin, Texas, to resume recruiting players for the Charles Schwab Challenge at Colonial.`\
-https://nytimes.com/aponline/2020/03/24/sports/golf/ap-glf-on-the-fringe-waiting-game.html?searchResultPosition=10
+**Six-Time Super Bowl Champ Brady Looking Forward, Not Behind**\
+`Tom Brady says one day he’ll have time to reflect on a historic 20-year stint with the New England Patriots.`\
+https://nytimes.com/aponline/2020/03/24/sports/football/ap-fbn-buccaneers-brady.html?searchResultPosition=10
 
