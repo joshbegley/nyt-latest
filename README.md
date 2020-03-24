@@ -1,36 +1,36 @@
+**Trump Says Would Love to See Businesses Re-Open by Easter**\
+`President Donald Trump said on Tuesday that he would like to see U.S. businesses re-open by Easter, which is April 12 this year.`\
+https://nytimes.com/reuters/2020/03/24/us/24reuters-health-coronavirus-trump-easter.html?searchResultPosition=2
+
+**Italy Calls for Unconditional Use of Euro Bailout Fund to Ease Virus Hit**\
+`Italian Economy Minister Roberto Gualtieri said on Tuesday that the euro zone's bailout fund, the European Stability Mechanism, should be used to help economies hit by the coronavirus crisis, with no strings attached.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-italy-esm.html?searchResultPosition=3
+
+**U.S. Congress Wrestles With Mechanics of Voting in Coronavirus Crisis**\
+`Even as the U.S. Congress works on a massive relief bill to stem the toll of the coronavirus pandemic that has sickened three of its members, its leadership is wrestling with how the chambers can continue to function in an era of social distancing.`\
+https://nytimes.com/reuters/2020/03/24/us/politics/24reuters-health-coronavirus-usa-lawmakers.html?searchResultPosition=4
+
+**Fear Gauges Throttle Back After Rollercoaster Run**\
+`Stock and currency fear gauges that soared to the levels of the 2008 global financial crisis have become less frantic since central banks and governments stepped up efforts to combat spreading economic damage from the coronavirus epidemic.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-volatility.html?searchResultPosition=5
+
+**U.N. Chief Calls on G20 Nations to Boost Resources to Aid Coronavirus Pandemic**\
+`U.N. chief Antonio Guterres, in a letter to the Group of 20 (G20) major economies seen by Reuters, on Tuesday called for more resources to help keep the global coronavirus pandemic from reaching "apocalyptic proportions."`\
+https://nytimes.com/reuters/2020/03/24/us/24reuters-health-coronavirus-guterres.html?searchResultPosition=6
+
+**Canada's Second Largest Airline Cuts Almost Half Its Staff**\
+`Canada's second biggest airline, WestJet, said Tuesday almost half its employees are leaving the company amid the pandemic as it seeks to survive until things stabilize. `\
+https://nytimes.com/aponline/2020/03/24/business/bc-cn-virus-outbreak-canada-airline-layoffs.html?searchResultPosition=7
+
+**Tiles**\
+`Play tiles`\
+https://nytimes.com/interactive/2020/03/24/admin/at-home-tiles.html?searchResultPosition=8
+
+**As Europe Fights Coronavirus and Climate, Is 'Green Stimulus' the Way?**\
+`For European governments battling to brace economies pummeled by the coronavirus, there might be no better time to go green.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-green-analysis.html?searchResultPosition=9
+
 **Boeing CFO Says Markets Essentially Closed to New Debt**\
 `Boeing Co's chief financial officer said on Tuesday that  the U.S. planemaker was not in discussions to raise new debt as the coronavirus pandemic batters global aviation.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-boeing-debt.html?searchResultPosition=2
-
-**Shutdowns Stoke Debate Over What's an 'Essential Industry'**\
-`Shortly after British Prime Minister Boris Johnson ordered the closure of non-essential retailers on Monday to curb the spread of coronavirus, the parent company of Sports Direct wrote to its staff to let them know: the next day would be business as usual.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-industry.html?searchResultPosition=3
-
-**Philips Warns Protectionism Could Derail Critical Medical Supplies**\
-`Broad powers over U.S. factories brought in by President Donald Trump could fuel protectionism and jeopardize the supply of critical medical equipment to fight the coronavirus pandemic,  Dutch health technology company Philips warned on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-philips.html?searchResultPosition=4
-
-**USDA, USTR Cite Progress on Farm Provisions of U.S.-China Trade Deal**\
-`The United States and China have made progress in implementing the agriculture-related provisions of a Phase 1 trade deal that took effect on Feb. 14, the U.S. Department of Agriculture and U.S. Trade Representative said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-usa-trade-china.html?searchResultPosition=5
-
-**All Alone, Belarus Plays On**\
-`Every soccer league in Europe has closed down in the face of the coronavirus pandemic except one: the Belarusian Premier League. When the authorities were asked why, they replied, “Why not?”`\
-https://nytimes.com/2020/03/24/sports/soccer/soccer-belarus-coronavirus.html?searchResultPosition=6
-
-**How the U.S. Could Intervene to Weaken Its Surging Dollar**\
-`A blistering dollar rally has revived speculation that the U.S. may rein in its currency if the buck goes much higher. `\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-dollar-explainer.html?searchResultPosition=7
-
-**Citigroup Makes Senior Hires in United States, Asia**\
-`Citigroup Inc on Tuesday appointed Pam Habner as head of its branded cards division in the United States, as part of hires for many senior roles, according to two memos seen by Reuters.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-citigroup-moves.html?searchResultPosition=8
-
-**Terrence McNally, Tony-Winning Playwright of Gay Life, Dies at 81**\
-`Mr. McNally, who died of coronavirus complications, introduced audiences to characters and situations that most mainstream theater had previously shunted into comic asides.`\
-https://nytimes.com/2020/03/24/theater/terrence-mcnally-dead-coronavirus.html?searchResultPosition=9
-
-**Renault Workers Use 3D Printers to Make Medical Visors**\
-`Renault workers in Spain have begun using 3D printers to manufacture visors for health workers from home, the French carmaker said on Tuesday, in a scheme that could be expanded to make other medical equipment elsewhere. `\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-renault.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-boeing-debt.html?searchResultPosition=10
 
