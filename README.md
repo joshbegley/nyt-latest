@@ -1,36 +1,36 @@
-**Japan Government to Offer Bleakest Economic Assessment in Nearly Seven Years: Nikkei**\
-`Japan's government is expected to offer its bleakest economic assessment in nearly seven years in March as the coronavirus outbreak cools private consumption and business sentiment, the Nikkei newspaper reported on Tuesday.`\
-https://nytimes.com/reuters/2020/03/23/world/asia/23reuters-japan-economy-report.html?searchResultPosition=2
+**Proof That God Loves Us**\
+`Olivia Mitra Framke knows how to show us a good time.`\
+https://nytimes.com/2020/03/23/crosswords/daily-puzzle-2020-03-24.html?searchResultPosition=2
 
-**Royal Caribbean Directors Step In to Help With New Bank Loan**\
-`Royal Caribbean Cruises Ltd said on Monday two of its board members had each bought $100 million of a new $2.2 billion loan to the cruise operator, helping to backstop funding as it grapples with a suspension of voyages.`\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-royal-carib-crus.html?searchResultPosition=3
+**How to Stay Sane When the World Seems Crazy**\
+`Stop and take a breath. The world will keep spinning.`\
+https://nytimes.com/2020/03/23/smarter-living/coronavirus-coping-tips.html?searchResultPosition=3
 
-**Harvey Weinstein Tests Positive for Coronavirus in Prison: Union Official**\
-`Former movie producer Harvey Weinstein, who is serving a prison sentence for sexual assault and rape, has tested positive for the coronavirus, according to the head of the state corrections officers union.`\
-https://nytimes.com/reuters/2020/03/23/arts/23reuters-people-harvey-weinstein.html?searchResultPosition=4
+**WADA to Continue Testing 'Where Possible' Amid Coronavirus**\
+`The World Anti-Doping Agency (WADA) said on Monday that it would continue to test "where possible" while remaining in line with protocols set out by governmental and health organisations amid a coronavirus pandemic that has wreaked havoc on the global sporting calendar. `\
+https://nytimes.com/reuters/2020/03/23/sports/23reuters-health-coronavirus-doping.html?searchResultPosition=4
 
-**Arizona Man Dies After Taking Chloroquine for Coronavirus**\
-`An Arizona man has died and his wife is in critical condition after they ingested chloroquine phosphate - an aquarium cleaning product similar to drugs that have been named by President Trump as potential treatments for coronavirus infection.`\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-usa-chloroquine.html?searchResultPosition=5
+**USA Gymnastics Says Its Athletes Want Tokyo Olympics Postponed**\
+`The majority of USA Gymnastics athletes support the idea of postponing the July 24-Aug. 9 Tokyo Olympics due to concerns about the coronavirus crisis, the federation said on Monday.`\
+https://nytimes.com/reuters/2020/03/23/sports/olympics/23reuters-health-coronavirus-olympics-usa-gymnastics.html?searchResultPosition=5
 
-**Start-Ups Jump the Gun on Home Kits for Coronavirus Testing**\
-`After a federal warning, companies have stopped marketing kits that let consumers collect their own saliva or throat swabs and send them to labs.`\
-https://nytimes.com/2020/03/23/technology/coronavirus-home-testing-swab-kits.html?searchResultPosition=6
+**As Federal Government Mobilizes, Local Officials Say Response Remains Too Slow**\
+`Signs of a large-scale federal response to the coronavirus outbreak have begun to appear, generating praise from local officials but also pleas that they need much more.`\
+https://nytimes.com/2020/03/23/us/politics/coronavirus-supplies-federal-response.html?searchResultPosition=6
 
-**Wells Fargo to Pay Special Compensation to Front-Line Workers Amid Coronavirus Outbreak**\
-`Wells Fargo & Co will join other large U.S. banks in paying out special compensation to front-line employees, according to a memo seen by Reuters.`\
-https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-wells-fargo.html?searchResultPosition=7
+**Pharma Firm Anges and Osaka University to Begin Testing Coronavirus Vaccine on Animals**\
+`Japanese biopharmaceutical firm Anges Inc said on Tuesday it and partner Osaka University had completed development of a prophylactic DNA vaccine against the new coronavirus and that it would begin testing it in animals soon.`\
+https://nytimes.com/reuters/2020/03/23/world/asia/23reuters-health-coronavirus-japan-anges.html?searchResultPosition=7
 
-**Mondelez Raises Hourly Wage, Hands Out Weekly Bonus as Virus Worries Fuel Demand**\
-`Mondelez International Inc on Monday said it would increase hourly wage by $2 and pay a $125 weekly bonus for its sales representatives as it rushes to meet a surge in demand for its packaged food due to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-mondelez-intl.html?searchResultPosition=8
+**Biden Battles for Attention as Coronavirus Threatens to Blunt Democrat's Momentum**\
+`Joe Biden's presidential campaign installed a television studio in his basement over the weekend so the Democratic front-runner could demand bolder action from President Donald Trump on the coronavirus crisis and speak directly to the country.`\
+https://nytimes.com/reuters/2020/03/23/us/politics/23reuters-usa-election-biden.html?searchResultPosition=8
 
-**As Coronavirus Fuels Meat Demand, Processors Raise Pay for North American Farmers, Workers**\
-`North American meat processors said on Monday they would pay extra money to farmers and slaughterhouse workers as the companies scramble to meet surging demand from consumers unnerved by the spread of the new coronavirus.`\
-https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-usa-meatpacking.html?searchResultPosition=9
+**Coronavirus Could Force Many Fighters Out of the Sport, Says Hearn**\
+`The coronavirus pandemic could force many boxers to leave the sport for financial reasons, leading British promoter Eddie Hearn said on Monday.`\
+https://nytimes.com/reuters/2020/03/23/sports/olympics/23reuters-health-coronavirus-boxing.html?searchResultPosition=9
 
-**Crude Oil Futures Rise, but Support Seen Weak**\
-`U.S. crude oil futures climbed nearly 3% on Tuesday in light trading as the Trump administration launched an effort to work with Saudi Arabia to stabilise oil prices.`\
-https://nytimes.com/reuters/2020/03/23/business/23reuters-global-oil-price.html?searchResultPosition=10
+**Time Will Tell on Canada Withdrawal From Tokyo Games-De Grasse**\
+`Time will tell if Canada's decision to withdraw from the 2020 Olympics was the right one, three-time Olympic medallist Andre De Grasse said on Monday as the coronavirus pandemic cast doubt on whether the 2020 Tokyo Games can go ahead as scheduled. `\
+https://nytimes.com/reuters/2020/03/23/sports/olympics/23reuters-health-coronavirus-olympics-canada.html?searchResultPosition=10
 
