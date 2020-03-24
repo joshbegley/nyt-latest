@@ -1,36 +1,36 @@
+**The M.T.A. Needs Help. Now.**\
+`With ridership and revenues plummeting, New York’s transportation system needs an urgent infusion of federal money.`\
+https://nytimes.com/2020/03/24/opinion/mta-new-york-transit.html?searchResultPosition=2
+
+**Fed's 'Bazooka' Soothes Dollar Funding Squeeze**\
+`The U.S. Federal Reserve's efforts to shield the economy from the effects of the coronavirus have -- for now - slowed a scramble for dollars that threatened to clog funding markets.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-markets-fed.html?searchResultPosition=3
+
+**Citigroup Will Temporarily Close Up to 15% of Branches**\
+`Citigroup Inc will temporarily close up to 15% of its U.S. branches in light of reduced foot traffic amid the coronavirus outbreak, a spokesman told Reuters.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-citigroup.html?searchResultPosition=4
+
+**Halliburton to 'Significantly' Cut 2020 Capex Below $1.2 Billion Budget**\
+`Oilfield services firm Halliburton is accelerating its cost-cutting and will significantly reduce spending this year below its original $1.2 billion budget, its finance chief said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-global-oil-halliburton.html?searchResultPosition=5
+
+**Coca-Cola to Suspend Production in India Amid Coronavirus Lockdowns**\
+`Coca-Cola's India unit said on Tuesday it has temporarily suspended production at its manufacturing facilities across the country following widespread lockdowns to halt the spread of coronavirus.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-coca-cola-india.html?searchResultPosition=6
+
+**U.S. New Home Sales Fall in February, January Revised Up Sharply**\
+`Sales of new U.S. single-family homes fell in February after surging in the prior month, and could decline further because of the coronavirus pandemic which is boosting unemployment and severely disrupting economic activity.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-usa-economy-housing.html?searchResultPosition=7
+
+**Comcast Shuts Theme Parks, Delays Film Distribution Due to COVID-19**\
+`Comcast Corp on Tuesday warned of a hit to its results from the coronavirus outbreak as it shut all its theme parks and delayed distribution of films in theaters worldwide.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-comcast.html?searchResultPosition=8
+
+**Your Kids Refuse to Nap? There’s Hope**\
+`Putting your child down doesn’t have to be a mystery or a battle of wills.`\
+https://nytimes.com/2020/03/24/parenting/child-stop-napping.html?searchResultPosition=9
+
 **Amazon to Stop Non-Essential Sales in India**\
 `Amazon.com Inc's India unit on Tuesday said it will halt orders for non-essential products in India to prioritize customers' critical needs at a time when much of the country is under lockdown to prevent the spread of coronavirus.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-amazon-india.html?searchResultPosition=2
-
-**UK Banks Scramble to Protect Customers From Wave of Coronavirus Scams**\
-`UK banks are stepping up fraud prevention measures to protect customers from scammers eager to exploit the coronavirus pandemic with a whole range of new tricks, including fake sales of medical supplies and bogus government relief schemes.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-banks-fraud.html?searchResultPosition=3
-
-**Bombardier Halts Most Operations in Canada Due to Coronavirus**\
-`Bombardier pulled its 2020 outlook on Tuesday and said it would stop work at most of its Canadian operations until April 26 to help slow the spread of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-bombardier.html?searchResultPosition=4
-
-**Aston Martin to Temporarily Shut UK Manufacturing Facilities**\
-`British luxury carmaker Aston Martin said on Tuesday it would suspend production at its UK manufacturing facilities starting Wednesday until April 20 to cope with the coronavirus pandemic, which has hurt demand for its cars.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-aston-martin.html?searchResultPosition=5
-
-**Global Airlines Face Emergency, Need Rescue Package Now: IATA**\
-`Global airlines are in an emergency situation and government rescue packages are needed as quickly as possible to avoid multiple airline collapses, the head of the International Air Transport Association warned on Tuesday. `\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-iata-rescue.html?searchResultPosition=6
-
-**Coronavirus Death Toll in UK Jumps by 87 to 422**\
-`A further 87 people have died in the United Kingdom after testing positive for coronavirus, bringing the total number of deaths to 422, the government said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-britain-casualties.html?searchResultPosition=7
-
-**Coronavirus Death Toll in Italy's Lombardy Rises by Around 400 in a Day: Source**\
-`The death toll from an outbreak of coronavirus in the northern region of Lombardy, which has borne the brunt of Italy's contagion, has risen by around 400 in a day to more than 4,175, a source familiar with the data said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-italy-lombardy.html?searchResultPosition=8
-
-**UK Lockdown Measures Are Rules Not Advice: Health Minister**\
-`Lockdown measures set out by the British government on Monday are rules, not advice, and will be enforced, health minister Matt Hancock said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-britain-hancock.html?searchResultPosition=9
-
-**Ford Extends Production Halt at U.S. Plants Beyond March 30**\
-`Ford Motor Co said on Tuesday it does not plan to restart production at its manufacturing plants in the United States, Canada and Mexico on March 30, as was originally planned.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-ford-motor-production.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-amazon-india.html?searchResultPosition=10
 
