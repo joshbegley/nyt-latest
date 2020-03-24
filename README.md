@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/03/24/world/asia/ap-as-afghanistan-us.html?sea
 https://nytimes.com/aponline/2020/03/24/world/europe/ap-eu-virus-outbreak-eastern-france.html?searchResultPosition=4
 
 **Thailand Decrees State of Emergency to Control Coronavirus**\
-`Thailand's prime minister says his government has agreed to declare a state of emergency to implement stricter measures to control the coronavirus outbreak.`\
+`Thailand's government agreed Tuesday to declare an emergency to take stricter measures to control the coronavirus outbreak that has infected hundreds of people in the Southeast Asian country.`\
 https://nytimes.com/aponline/2020/03/24/business/ap-as-virus-outbreak-thailand.html?searchResultPosition=5
 
 **Buddy, Can You Spare a Dime? Echoes of '30s in Viral Crisis?**\
