@@ -1,36 +1,36 @@
-**Virus Knocks Thousands of Health Workers Out of Action in Europe**\
-`The thinning ranks of doctors and nurses, particularly in Spain, are hampering the ability to fight the epidemic, straining hospitals and raising fears that health workers are spreading the coronavirus.`\
-https://nytimes.com/2020/03/24/world/europe/healthcare-virus-europe-spain.html?searchResultPosition=2
+**How the U.S. Could Intervene to Weaken Its Surging Dollar**\
+`A blistering dollar rally has revived speculation that the U.S. may rein in its currency if the buck goes much higher. `\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-dollar-explainer.html?searchResultPosition=2
 
-**Fed May Finance Medical Response and More Under U.S. House Bill**\
-`The U.S. Congress is considering authorizing the Federal Reserve to pay the tab as local governments ramp up shipments of testing equipment, masks and ventilators desperately needed to diagnose coronavirus cases, treat patients and keep medical personnel safe.`\
-https://nytimes.com/reuters/2020/03/24/us/politics/24reuters-health-coronavirus-fed-legislation.html?searchResultPosition=3
+**Citigroup Makes Senior Hires in United States, Asia**\
+`Citigroup Inc on Tuesday appointed Pam Habner as head of its branded cards division in the United States, as part of hires for many senior roles, according to two memos seen by Reuters.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-citigroup-moves.html?searchResultPosition=3
 
-**Six-Time Super Bowl Champ Brady Looking Forward, Not Behind**\
-`Tom Brady says one day he’ll have time to reflect on a historic 20-year stint with the New England Patriots.`\
-https://nytimes.com/aponline/2020/03/24/sports/football/ap-fbn-buccaneers-brady.html?searchResultPosition=4
+**Terrence McNally, Tony-Winning Playwright of Gay Life, Dies at 81**\
+`Mr. McNally, who died of coronavirus complications, introduced audiences to characters and situations that most mainstream theater had previously shunted into comic asides.`\
+https://nytimes.com/2020/03/24/theater/terrence-mcnally-dead-coronavirus.html?searchResultPosition=4
 
-**Trump Says Would Love to See Businesses Re-Open by Easter**\
-`President Donald Trump said on Tuesday that he would like to see U.S. businesses re-open by Easter, which is April 12 this year.`\
-https://nytimes.com/reuters/2020/03/24/us/24reuters-health-coronavirus-trump-easter.html?searchResultPosition=5
+**Renault Workers Use 3D Printers to Make Medical Visors**\
+`Renault workers in Spain have begun using 3D printers to manufacture visors for health workers from home, the French carmaker said on Tuesday, in a scheme that could be expanded to make other medical equipment elsewhere. `\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-renault.html?searchResultPosition=5
 
-**Italy Calls for Unconditional Use of Euro Bailout Fund to Ease Virus Hit**\
-`Italian Economy Minister Roberto Gualtieri said on Tuesday that the euro zone's bailout fund, the European Stability Mechanism, should be used to help economies hit by the coronavirus crisis, with no strings attached.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-italy-esm.html?searchResultPosition=6
+**Italy Coronavirus Deaths Rise by 743 in a Day, Lifting Total Death Toll to 6,820**\
+`The death toll from an outbreak of coronavirus in Italy has grown by 743 to 6,820, the head of the Civil Protection Agency said on Tuesday, reversing a decline in fatalities seen over the last two days.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-italy-tally.html?searchResultPosition=6
 
-**U.S. Congress Wrestles With Mechanics of Voting in Coronavirus Crisis**\
-`Even as the U.S. Congress works on a massive relief bill to stem the toll of the coronavirus pandemic that has sickened three of its members, its leadership is wrestling with how the chambers can continue to function in an era of social distancing.`\
-https://nytimes.com/reuters/2020/03/24/us/politics/24reuters-health-coronavirus-usa-lawmakers.html?searchResultPosition=7
+**UK to Open Temporary London Hospital to Tackle Coronavirus Outbreak**\
+`Britain will open a temporary hospital next week at the ExCel exhibition centre in east London, health minister Matt Hancock said on Tuesday, as the country posted its biggest daily rise in coronavirus deaths.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-britain-hospital.html?searchResultPosition=7
 
-**Fear Gauges Throttle Back After Rollercoaster Run**\
-`Stock and currency fear gauges that soared to the levels of the 2008 global financial crisis have become less frantic since central banks and governments stepped up efforts to combat spreading economic damage from the coronavirus epidemic.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-volatility.html?searchResultPosition=8
+**Israeli Defense Ministry Launches COVID-19 Voice-Test Study**\
+`An analysis of coronavirus patients' voices could yield a "vocal fingerprint" to help detect COVID-19 symptoms in others and prioritize testing and treatment, the Israeli Defence Ministry said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/technology/24reuters-health-coronavirus-israel-study.html?searchResultPosition=8
 
-**U.N. Chief Calls on G20 Nations to Boost Resources to Aid Coronavirus Pandemic**\
-`U.N. chief Antonio Guterres, in a letter to the Group of 20 (G20) major economies seen by Reuters, on Tuesday called for more resources to help keep the global coronavirus pandemic from reaching "apocalyptic proportions."`\
-https://nytimes.com/reuters/2020/03/24/us/24reuters-health-coronavirus-guterres.html?searchResultPosition=9
+**UK Has Bought 3.5 Million Coronairus Antibody Tests: Health Minister**\
+`British health minister Matt Hancock said on Tuesday the government had bought 3.5 million antibody coronavirus tests so that people who suspect they have had the virus would be able to check for sure.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-britain-tests.html?searchResultPosition=9
 
-**Canada's Second Largest Airline Cuts Almost Half Its Staff**\
-`Canada's second biggest airline, WestJet, said Tuesday almost half its employees are leaving the company amid the pandemic as it seeks to survive until things stabilize. `\
-https://nytimes.com/aponline/2020/03/24/business/bc-cn-virus-outbreak-canada-airline-layoffs.html?searchResultPosition=10
+**Column: Colonial Plans for Tournament That Might Not Happen**\
+`Michael Tothe was supposed to be at the World Golf Championships event this week in Austin, Texas, to resume recruiting players for the Charles Schwab Challenge at Colonial.`\
+https://nytimes.com/aponline/2020/03/24/sports/golf/ap-glf-on-the-fringe-waiting-game.html?searchResultPosition=10
 
