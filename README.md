@@ -14,8 +14,8 @@ https://nytimes.com/aponline/2020/03/24/world/middleeast/ap-ml-virus-outbreak-is
 `Bill Purdue waterproofs basements for a living, but he has spent the past few days in his buddy's Washington, Indiana, auto trim and upholstery shop cutting rectangles of cotton fabric that his friend sews into face masks.`\
 https://nytimes.com/aponline/2020/03/24/business/bc-us-virus-outbreak-diy-masks.html?searchResultPosition=5
 
-**Your Tuesday Briefing**\
-`Coronavirus, Anthony Fauci, Olympics: Here's what you need to know.`\
+**Coronavirus, Anthony Fauci, Olympics: Your Tuesday Briefing**\
+`Here's what you need to know.`\
 https://nytimes.com/2020/03/24/briefing/coronavirus-anthony-fauci-olympics.html?searchResultPosition=6
 
 **Virus Chaos Snarls Farm Workers as New Season Buds in Europe**\
