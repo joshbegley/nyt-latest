@@ -30,7 +30,7 @@ https://nytimes.com/aponline/2020/03/24/us/ap-us-virus-outbreak-national-parks.h
 `Companies are hitting the pause button on share buybacks, which have suddenly become politically and financially unpalatable.`\
 https://nytimes.com/2020/03/24/business/coronavirus-stock-buybacks.html?searchResultPosition=9
 
-**Greta Thunberg Says It’s ‘Extremely Likely’ That She’s Had Covid-19**\
+**Greta Thunberg Says It’s ‘Extremely Likely’ That She Had Coronavirus**\
 `The Swedish climate activist, 17, announced on Tuesday that she and her father were recovering from symptoms of Covid-19.`\
 https://nytimes.com/2020/03/24/climate/greta-thunberg-coronavirus-covid.html?searchResultPosition=10
 
