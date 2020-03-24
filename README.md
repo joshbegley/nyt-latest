@@ -12,7 +12,7 @@ https://nytimes.com/2020/03/24/dining/baking-with-kids.html?searchResultPosition
 
 **America’s Next Top Barista**\
 `Competitors trained for months in hopes of winning at the U.S. Coffee Championships in February.`\
-https://nytimes.com/interactive/2020/03/24/style/26coffee-competition.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/03/24/style/us-coffee-championships.html?searchResultPosition=5
 
 **Anna Wintour and Tom Ford Are Creating a Fashion Rescue Fund**\
 `They are repurposing the money from an existing award to help the industry get through the pandemic.`\
