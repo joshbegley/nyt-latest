@@ -1,36 +1,36 @@
-**Modi Orders 3-Week Total Lockdown for All 1.3 Billion Indians**\
-`With four hours’ notice, India’s prime minister announced that no one could leave their homes, the country’s most severe effort yet to curb the spread of the coronavirus.`\
-https://nytimes.com/2020/03/24/world/asia/india-coronavirus-lockdown.html?searchResultPosition=2
+**Skeletal Canadian Parliament Convenes to Approve Emergency Cash**\
+`A handful of Canadian legislators convenes on Tuesday to give the government the power to inject billions of dollars in emergency cash to help individuals and businesses through the economic crunch caused by the new coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/24/world/americas/24reuters-health-coronavirus-canada.html?searchResultPosition=2
 
-**Russia to Close Nightclubs, Cinemas Amid Coronavirus**\
-`Russian government has told the country's regions to close nightclubs and cinemas to slow the spread of the coronavirus, it said in a statement on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-russia-nightclubs.html?searchResultPosition=3
+**'Friend of Coronavirus': Police in North India Shame Those Defying Lockdown**\
+`Police in India's northern city of Meerut are making citizens who break its lockdown hold up signs reading, "I am a friend of coronavirus," or "I am the enemy of society," before posting their pictures on Twitter. `\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-india-police.html?searchResultPosition=3
 
-**Yemen's Houthis Block U.N. Ship From Leaving Hodeidah: Government**\
-`Forces from Yemen's Houthi movement on Tuesday blocked a U.N.-chartered ship carrying representatives of the internationally recognized government from leaving Hodeidah port, the government and a source familiar with the matter said. `\
-https://nytimes.com/reuters/2020/03/24/world/middleeast/24reuters-yemen-security-un-hodeidah.html?searchResultPosition=4
+**Putin to Take Part in Extraordinary G20 Summit to Discuss Coronavirus: Kremlin**\
+`Russian President Vladimir Putin will take part in a summit of Group of 20 economies to discuss the coronavirus crisis by video link on Thursday, the Kremlin said on Tuesday. `\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-g20-summit-putin.html?searchResultPosition=4
 
-**Putin Dons Hazmat Suit as Moscow Says Coronavirus Outbreak Is Worse Than It Looks**\
-`President Vladimir Putin donned a hazmat suit and respirator on Tuesday during a visit to a hospital treating coronavirus patients and the mayor of Moscow said the outbreak in the Russian capital was much worse than official figures showed.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-russia.html?searchResultPosition=5
+**EU Greenlights Membership Talks for Albania and N. Macedonia**\
+`European affairs ministers agreed Tuesday to allow Albania and North Macedonia to begin European Union membership talks, paving the way for the bloc’s leaders to sign off on the move that could end years of setbacks and disappointment for the two Balkan nations..`\
+https://nytimes.com/aponline/2020/03/24/world/europe/ap-eu-europe-enlargement-1st-ld-writethru.html?searchResultPosition=5
 
-**Turkey Investigates Why School Pupils Were Shown Footage of Ex-PM's Hanging**\
-`Turkey's Education Ministry is investigating how animated footage of the execution of a former prime minister was shown to children as part of their home schooling during the coronavirus outbreak, Education Minister Ziya Selcuk said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-turkey-schools.html?searchResultPosition=6
+**Some 70 Nigerian Soldiers Killed in Northeast Militant Ambush: Sources**\
+`Around 70 Nigerian soldiers were killed in an Islamist militant ambush in northeastern state of Borno, three military sources and a security source told Reuters on Tuesday. `\
+https://nytimes.com/reuters/2020/03/24/world/africa/24reuters-nigeria-security.html?searchResultPosition=6
 
-**Modi Puts All of India Under Lockdown for 21 Days to Fight Coronavirus**\
-`Indian Prime Minister Narendra Modi said on Tuesday the  government would impose a nationwide lockdown from midnight for 21 days to stem the spread of the coronavirus. `\
-https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-india-modi.html?searchResultPosition=7
+**U.N. Seeks Total Ceasefire in Syria, Prisoner Releases, to Combat Coronavirus**\
+`The U.N. Special Envoy for Syria called on Tuesday for an immediate nationwide ceasefire across Syria to enable an "all-out-effort" to stamp out COVID-19.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-syria.html?searchResultPosition=7
 
-**Swiss Coronavirus Cases Rise to Nearly 9,000, With 90 Deaths**\
-`Switzerland has nearly 9,000 confirmed coronavirus infections and 90 deaths from the disease, the Federal Office of Public Health said on Tuesday, adding it was premature to say the number of new cases was flattening out.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-swiss-cases.html?searchResultPosition=8
+**France Eyes 'Shadow Army' of Fruit Pickers as Coronavirus Bites**\
+`France appealed on Tuesday to workers laid off by the coronavirus crisis to help farmers pick fruit and vegetables that will otherwise be left to rot in the fields due to a shortage of seasonal workers.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-france-agriculture.html?searchResultPosition=8
 
-**Poland Further Limits Movement Over Coronavirus, Sticks to Election Date**\
-`Poland's government said on Tuesday it would expand restrictions on citizens to prevent the spread of coronavirus, including a limit on the number of people taking part in masses, a drastic move in a deeply devout country.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-poland.html?searchResultPosition=9
+**Saudi Reports First Coronavirus Death, UAE Gears Up for Lockdown**\
+`Saudi Arabia on Tuesday reported its first death from the coronavirus, a 51-year-old Afghani resident, while the United Arab Emirates' main airports in Dubai and Abu Dhabi said they would temporarily suspend all passenger flights from Thursday.`\
+https://nytimes.com/reuters/2020/03/24/world/middleeast/24reuters-health-coronavirus-saudi-death.html?searchResultPosition=9
 
-**Japan's Abe Faces Struggle on Coronavirus, Economy, as Olympics Delayed**\
-`Postponing the Olympics due to the coronavirus pandemic has turned a hoped-for year of triumphant celebration for Japanese Prime Minister Shinzo Abe into a struggle to stem the outbreak and save the economy, but is unlikely to cost him his job.`\
-https://nytimes.com/reuters/2020/03/24/us/24reuters-health-coronavirus-olympics-politics.html?searchResultPosition=10
+**Polish New Virus Constraints Will Not Influence Election: PM**\
+`New constraints that are being introduced in Poland due to coronavirus will not influence the presidential election scheduled for May 10, Prime Minister Mateusz Morawiecki said on Tuesday. `\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-poland-election.html?searchResultPosition=10
 
