@@ -1,36 +1,36 @@
+**Coronavirus Live Updates: Officials Warn New York Is New Epicenter; Trump Downplays Threat**\
+`The New York metro area is experiencing a virus ‘attack rate’ of nearly one in a thousand, or five times that of other areas in the United States. President Trump suggested that he would re-evaluate the federal guidance urging social distancing.`\
+https://nytimes.com/2020/03/24/world/coronavirus-updates-maps.html?searchResultPosition=2
+
+**AP PHOTOS: Oh, Deer! Treasured Animals Wander Nara Streets**\
+`Tours are canceled. Restaurants are empty. And centuries-old temples are quieter than usual in the ancient capital city of Japan, hit hard by the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/03/24/sports/ap-virus-outbreak-japan-deer-photo-gallery.html?searchResultPosition=3
+
+**Charities Face Growing Need in Pandemic Without Volunteers**\
+`For more than a week, Elaine Peoples, who cooked for a now-shuttered day care center, has been out of work.`\
+https://nytimes.com/aponline/2020/03/24/us/ap-us-virus-outbreak-volunteer-shortage.html?searchResultPosition=4
+
+**Texas' Lieutenant Governor Says US Should Get 'Back to Work'**\
+`Texas' lieutenant governor said Monday night that the U.S. should get back to work in the face of global pandemic and that people over the age of 70, who the Centers for Disease Control says are at higher risk for the coronavirus, will “take care of ourselves.”`\
+https://nytimes.com/aponline/2020/03/24/us/ap-us-virus-outbreak-texas-lieutenant-governor.html?searchResultPosition=5
+
 **Quotation of the Day: Joining Athletes, U.S. Committee Pushes for Delay of Tokyo Games**\
 `Quotation of the Day for Tuesday, March 24, 2020.`\
-https://nytimes.com/2020/03/24/todayspaper/quotation-of-the-day-joining-athletes-us-committee-pushes-for-delay-of-tokyo-games.html?searchResultPosition=2
+https://nytimes.com/2020/03/24/todayspaper/quotation-of-the-day-joining-athletes-us-committee-pushes-for-delay-of-tokyo-games.html?searchResultPosition=6
 
 **Q&A: What Did the Fed Do Monday and Who Will It Help?**\
 `The Federal Reserve took several aggressive steps Monday to support an economy ravaged by the effects of the coronavirus.`\
-https://nytimes.com/aponline/2020/03/24/business/ap-us-virus-outbreak-federal-reserve-qa.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/03/24/business/ap-us-virus-outbreak-federal-reserve-qa.html?searchResultPosition=7
 
 **Corrections: March 24, 2020**\
 `Corrections that appeared in print on Tuesday, March 24, 2020.`\
-https://nytimes.com/2020/03/24/pageoneplus/corrections-march-24-2020.html?searchResultPosition=4
+https://nytimes.com/2020/03/24/pageoneplus/corrections-march-24-2020.html?searchResultPosition=8
 
 **Asian Markets Surge on Hopes of U.S. Deal: Live Updates**\
 `Live updates on stock market and business news during the coronavirus outbreak.`\
-https://nytimes.com/2020/03/24/business/stock-market-today-coronavirus.html?searchResultPosition=5
+https://nytimes.com/2020/03/24/business/stock-market-today-coronavirus.html?searchResultPosition=9
 
 **3 Newspapers Ask China to Reverse Decision to Expel American Journalists**\
 `The publishers of The New York Times, The Wall Street Journal and The Washington Post release a statement critical of China’s revocation of Americans’ credentials.`\
-https://nytimes.com/2020/03/24/business/media/china-journalists-newspapers.html?searchResultPosition=6
-
-**Arizona Deaths Prompt Warning Against Self-Medication**\
-`A Phoenix-area man has died and his wife was in critical condition after the couple took chloroquine phosphate, an additive used to clean fish tanks that is also found in an anti-malaria medication that's been touted by President Donald Trump as a treatment for COVID-19. `\
-https://nytimes.com/aponline/2020/03/23/us/ap-us-virus-outbreak-arizona-11th-ld-writethru.html?searchResultPosition=7
-
-**Mexico's Busy Streetscape Slows, but Doesn't Stop for Virus**\
-`Increasingly empty beaches and quieter streets in Mexico contrast with a still-crowded subway system and active street vendors, as shut-downs and social distancing measures have begun but remain very uneven.`\
-https://nytimes.com/aponline/2020/03/23/world/americas/ap-lt-virus-outbreak-mexico.html?searchResultPosition=8
-
-**Networks Face Decision: How Long to Stick With Trump?**\
-`Six television networks began showing President Donald Trump's briefing on the coronavirus outbreak late Monday, but only Fox News Channel stuck it out to the end nearly two hours later.`\
-https://nytimes.com/aponline/2020/03/23/arts/ap-us-virus-outbreak-media.html?searchResultPosition=9
-
-**‘Better Call Saul’ Season 5, Episode 6 Recap: A Modest Proposal**\
-`Kim would like to marry Jimmy if she doesn’t leave him. Lalo would like to destroy Gus if he doesn’t kill him. And Mike plays private eye.`\
-https://nytimes.com/2020/03/23/arts/television/better-call-saul-recap-episode-6.html?searchResultPosition=10
+https://nytimes.com/2020/03/24/business/media/china-journalists-newspapers.html?searchResultPosition=10
 
