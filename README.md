@@ -1,36 +1,36 @@
+**Turning Back the Clock on Aging Cells**\
+`Researchers report that they can rejuvenate human cells by reprogramming them to a youthful state.`\
+https://nytimes.com/2020/03/24/science/aging-dna-epigenetics-cells.html?searchResultPosition=2
+
+**Is Pausing Contributions to SEP I.R.A.s a Good Move?**\
+`Self-employed workers use the vehicles to save for retirement. As the coronavirus concerns build, taking a break could be smart.`\
+https://nytimes.com/2020/03/24/business/sep-ira-pausing-contributions.html?searchResultPosition=3
+
+**Experts Warn Japanese Growing Complacent of Coronavirus Risk**\
+`Infectious disease experts guiding the Japanese government's response to the coronavirus outbreak sounded the alarm on Tuesday that people are not taking the threat seriously.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-japan-experts.html?searchResultPosition=4
+
+**As the Coronavirus Approaches, Mexico Looks The Other Way**\
+`“This is going to be as bad as Italy or worse.” As much of the world shuts down amid the worsening coronavirus pandemic, Mexico City’s streets are bustling and the country’s president insists on calm.`\
+https://nytimes.com/video/world/americas/100000007049738/as-coronavirus-approaches-mexico-president-looks-other-way.html?searchResultPosition=5
+
+**Britain Wakes Up to Coronavirus Lockdown, Confusion Continues**\
+`Britain awoke to a virtual lockdown on Tuesday after Prime Minister Boris Johnson ordered people to stay at home, shops to close and an end to all social gatherings to halt the spread of coronavirus.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-britain.html?searchResultPosition=6
+
+**Thailand to Declare One-Month Emergency on March 26: Prime Minister**\
+`Thailand will be in an emergency mode from March 26 for a month to deal with the coronavirus outbreak, Prime Minister Prayuth Chan-ocha told a news conference on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-thailand-emergency.html?searchResultPosition=7
+
+**U.S. Military to Send Field Hospitals to New York, Seattle**\
+`The U.S. military is preparing to deploy field hospitals to New York and Seattle, the Pentagon said on Monday, as its top civilian and military leaders acknowledged for the first time that the coronavirus pandemic could impact military readiness.`\
+https://nytimes.com/reuters/2020/03/24/us/24reuters-health-coronavirus-usa-military.html?searchResultPosition=8
+
+**U.S. Launches Probes as Trump Bans Hoarding, Price Gouging to Combat Coronavirus**\
+`President Donald Trump signed an executive order on Monday to prevent hoarding and price gouging of crucial medical supplies needed to fight the deadly coronavirus, while Attorney General William Barr announced that the Justice Department has already launched hoarding investigations to carry out the order.`\
+https://nytimes.com/reuters/2020/03/24/us/24reuters-health-coronavirus-usa-order.html?searchResultPosition=9
+
 **Taiwan Says WHO Ignored Its Coronavirus Questions at Start of Outbreak**\
 `Taiwan accused the World Heath Organization of ignoring its questions at the start of the coronavirus outbreak, part of what it has long described as a pattern that puts it at risk because of Chinese pressure to exclude it from international bodies.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-taiwan.html?searchResultPosition=2
-
-**Africans Improvise Sanitizers, Masks to Plug Shortages**\
-`When panic over the coronavirus spurred a run on hand sanitizer in Cape Town, gin maker Andre Pienaar realized there was something he could do with all the waste alcohol his small distillery produces.`\
-https://nytimes.com/reuters/2020/03/24/world/africa/24reuters-health-coronavirus-africa-sanitiser.html?searchResultPosition=3
-
-**Laos Records First Two Coronavirus Cases: Thai Media**\
-`Laos has recorded its first two coronavirus cases, a news report on Thai state-owned media MCOT said on Tuesday, citing the Laos Health Ministry.`\
-https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-laos.html?searchResultPosition=4
-
-**Turkey Sets Shop, Bus Restrictions as Coronavirus Death Toll Rises to 37**\
-`Turkey imposed restrictions on Tuesday on grocery store opening hours and numbers of shop customers and bus passengers, adding to steps to combat the spread of the coronavirus after the country's death toll from the illness rose to 37.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-turkey.html?searchResultPosition=5
-
-**German Coronavirus Cases Rise by 4,764 Cases to 27,436: Robert Koch Institute**\
-`The number of confirmed coronavirus cases in Germany has risen by 4,764 within a day to reach to 27,436, the Robert Koch Institute for infectious diseases said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-germany.html?searchResultPosition=6
-
-**G20 Leaders to Speak on Thursday About Coronavirus, Sources Say**\
-`Leaders from the Group of 20 major economies will convene a video conference on Thursday to discuss the coronavirus epidemic, multiple sources told Reuters, amid criticism that the group has been slow to respond to the global crisis.`\
-https://nytimes.com/reuters/2020/03/24/world/middleeast/24reuters-health-coronavirus-g20-summit.html?searchResultPosition=7
-
-**Why the American Approach Is Failing**\
-`“Shelter in place” orders and the closing of businesses are a reaction to the failure to act earlier to prevent the spread of the coronavirus.`\
-https://nytimes.com/2020/03/24/podcasts/the-daily/coronavirus.html?searchResultPosition=8
-
-**South Africa's Cases Leap Again as 3-Week Lockdown Looms**\
-`South Africa's coronavirus cases leapt again to 554 on Tuesday, the most of any country in Africa, as its 57 million people rushed to prepare for a lockdown that begins Thursday.`\
-https://nytimes.com/aponline/2020/03/24/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=9
-
-**Coronavirus in N.Y.C.: The Latest**\
-`The White House said the virus “attack rate” in and around the city was five times that of other areas.`\
-https://nytimes.com/2020/03/24/nyregion/coronavirus-nyc.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-taiwan.html?searchResultPosition=10
 
