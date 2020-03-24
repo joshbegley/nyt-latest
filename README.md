@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/03/24/health/ap-us-med-virus-outbreak-blood-of-the-recovered.html?searchResultPosition=2
 
 **India's Prime Minister Decrees 21-Day Lockdown to Curb Virus**\
-`Indian Prime Minister Narendra Modi announced a “total lockdown” in the country of 1.3 billion people during a televised address Tuesday night, the most extensive stay-at-home order yet in the world's fight against the coronavirus pandemic.`\
+`India will begin the world's largest lockdown, Prime Minister Narendra Modi announced in a TV address Tuesday night, warning that anyone going outside risked inviting the coronavirus inside their homes, and pledging $2 billion to bolster the country's beleaguered health care system.`\
 https://nytimes.com/aponline/2020/03/24/business/ap-as-virus-outbreak-india.html?searchResultPosition=3
 
 **To Fight the Coronavirus, Cut the Red Tape**\
