@@ -1,36 +1,36 @@
-**Justice Department Launches Probes Into Hoarding as Coronavirus Cases Grow**\
-`U.S. Attorney General William Barr said on Monday the Justice Department has already launched investigations into the possible hoarding of crucial medical supplies that are in high demand as the coronavirus pandemic continues to strain hospitals across the United States.`\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-usa-hoarding.html?searchResultPosition=2
+**Here Come the Death Panels**\
+`Obamacare didn’t lead to rationing. The mismanagement of the coronavirus will.`\
+https://nytimes.com/2020/03/23/opinion/coronavirus-hospital-shortage.html?searchResultPosition=2
 
-**New Zealand Confirms 40 New Coronavirus Cases**\
-`New Zealand on Tuesday confirmed that it has 40 new cases of coronavirus, taking the number of confirmed and probable cases infected with the virus to 155.`\
-https://nytimes.com/reuters/2020/03/23/world/asia/23reuters-health-coronavirus-newzealand-cases.html?searchResultPosition=3
+**Trump Considers Reopening Economy, Over Health Experts’ Objections**\
+`The president is questioning whether stay-at-home orders have gone too far. But relaxing them could significantly increase the death toll from the coronavirus, health officials warn.`\
+https://nytimes.com/2020/03/23/business/trump-coronavirus-economy.html?searchResultPosition=3
 
-**Factbox: How Vulnerable Is Latin America to Coronavirus? Key Data Shed Light**\
-`The coronavirus is spreading deeper into Latin America, a region home to about 8.5% of the world's population that many expects believe could be among the worst affected by COVID-19.`\
-https://nytimes.com/reuters/2020/03/23/world/americas/23reuters-health-coronavirus-latin-america-factbox.html?searchResultPosition=4
+**Bored in Quarantine? Here’s a New York Scene You Can Color**\
+`Grab your pencils. It’s time to get creative.`\
+https://nytimes.com/interactive/2020/03/23/opinion/covid-coloring-activity.html?searchResultPosition=4
 
-**Colorado Abolishes Death Penalty and Commutes Sentences of Death Row Inmates**\
-`The state had executed just one person since reinstating the death penalty in the 1970s.`\
-https://nytimes.com/2020/03/23/us/colorado-death-penalty-repeal.html?searchResultPosition=5
+**Call It ‘Coronavirus’**\
+`Disease and prejudice have long gone hand in hand. We can do better in 2020.`\
+https://nytimes.com/2020/03/23/opinion/china-coronavirus-racism.html?searchResultPosition=5
 
-**Cuban Government Bans Cubans From Leaving Island, Suspends Schools Over Coronavirus**\
-`Cuba's government said on Monday it was banning Cubans from leaving the country, closing schools and suspending interregional public transport in its fight to prevent the spread of the novel coronavirus.`\
-https://nytimes.com/reuters/2020/03/23/world/americas/23reuters-health-coronavirus-cuba.html?searchResultPosition=6
+**Survey: 7 in 10 US Olympic Hopefuls Favor Postponement**\
+`Nearly seven in 10 U.S. Olympic hopefuls say they don't think the Tokyo Games will be fair if they are held in July, prompting leaders of the U.S. Olympic and Paralympic Committee to conclude “it’s more clear than ever that the path toward postponement is the most promising.”`\
+https://nytimes.com/aponline/2020/03/23/sports/olympics/ap-oly-virus-outbreak-us-survey.html?searchResultPosition=6
 
-**Fast Food Closures Sweep U.K., as Even Drive-Thrus Deemed Unsafe**\
-`Fast food is canceled in Britain.`\
-https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-fastfood.html?searchResultPosition=7
+**Webinar Wednesdays: Opportunities for Teachers and Parents on Remote Learning With The Times**\
+`As part of our response to Covid-19 and school closings, we are hosting a series of webinars on teaching and learning with Times resources and our own collection of activities for students.`\
+https://nytimes.com/2020/03/23/learning/webinar-wednesdays-opportunities-for-teachers-and-parents-on-remote-learning-with-the-times.html?searchResultPosition=7
 
-**Mainland China's New Coronavirus Infections Up by Two-Fold to 78 Cases**\
-`Mainland China saw a doubling in new coronavirus cases, driven by a jump in infected travelers arriving from abroad, while more locally transmitted cases crept into its daily tally, including one in the central city of Wuhan.`\
-https://nytimes.com/reuters/2020/03/23/world/asia/23reuters-health-coronavirus-china-toll.html?searchResultPosition=8
+**At Least 13,500 Americans Abroad Need Help Getting Home, State Dept. Says**\
+`About 5,700 U.S. citizens and legal residents have already returned with the government’s assistance, and flights scheduled this week could help another 1,600.`\
+https://nytimes.com/2020/03/23/us/politics/coronavirus-us-citizens-abroad.html?searchResultPosition=8
 
-**California Governor Says State Needs 50,000 More Hospital Beds**\
-`California's governor said on Monday that the state needs 50,000 additional hospital beds to accommodate a surge in coronavirus patients predicted by computer modeling. `\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-california-governor.html?searchResultPosition=9
+**The View From Your Window**\
+`Life has changed in big ways and small for our On Politics readers from around the world.`\
+https://nytimes.com/2020/03/23/us/politics/on-politics-your-window.html?searchResultPosition=9
 
-**Astronauts Quarantined Ahead of Journey to International Space Station**\
-`Two Russian cosmonauts and a U.S. astronaut were spending their final weeks on Earth in quarantine before they are scheduled to blast off on April 9 for the International Space Station for six months as the coronavirus pandemic sweeps Earth.`\
-https://nytimes.com/reuters/2020/03/23/us/23reuters-health-coronavirus-space.html?searchResultPosition=10
+**West Virginia Governor Rambles, Mixes Messages on Virus**\
+`As the coronavirus  raged across the nation, West Virginia Gov. Jim Justice wondered why people were looking to him for answers. `\
+https://nytimes.com/aponline/2020/03/23/us/ap-us-virus-outbreak-west-virginia-governor.html?searchResultPosition=10
 
