@@ -1,36 +1,36 @@
-**South Korea Says Trump Asked for Equipment to Fight Coronavirus**\
-`President Donald Trump asked South Korea to send medical equipment to the United States to fight the coronavirus,  promising to help Korean companies gain U.S. government approval, South Korea's presidential office said.`\
-https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-southkorea-usa.html?searchResultPosition=2
+**Modi Orders 3-Week Total Lockdown for All 1.3 Billion Indians**\
+`With four hours’ notice, India’s prime minister announced that no one could leave their homes, the country’s most severe effort yet to curb the spread of the coronavirus.`\
+https://nytimes.com/2020/03/24/world/asia/india-coronavirus-lockdown.html?searchResultPosition=2
 
-**Will We Have an America Without Restaurants?**\
-`If businesses like ours don’t get help from Washington, more than 10 million Americans could lose their jobs.`\
-https://nytimes.com/2020/03/24/opinion/coronavirus-restaurants-danny-meyer.html?searchResultPosition=3
+**Russia to Close Nightclubs, Cinemas Amid Coronavirus**\
+`Russian government has told the country's regions to close nightclubs and cinemas to slow the spread of the coronavirus, it said in a statement on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-russia-nightclubs.html?searchResultPosition=3
 
-**Women Should Have to Register for Military Draft, Too, Commission Tells Congress**\
-`A commission appointed by Congress will recommend that expanding selective service registration to women is a “necessary and fair step.”`\
-https://nytimes.com/2020/03/24/us/women-military-draft-usa.html?searchResultPosition=4
+**Yemen's Houthis Block U.N. Ship From Leaving Hodeidah: Government**\
+`Forces from Yemen's Houthi movement on Tuesday blocked a U.N.-chartered ship carrying representatives of the internationally recognized government from leaving Hodeidah port, the government and a source familiar with the matter said. `\
+https://nytimes.com/reuters/2020/03/24/world/middleeast/24reuters-yemen-security-un-hodeidah.html?searchResultPosition=4
 
-**Germany Treats First Italians as Coronavirus Care Crosses Borders**\
-`German hospitals with spare capacity on Tuesday welcomed their first coronavirus patients from Italy, where an overwhelmed health care system has witnessed the outbreak kill more people than in any other country.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-germany-italy.html?searchResultPosition=5
+**Putin Dons Hazmat Suit as Moscow Says Coronavirus Outbreak Is Worse Than It Looks**\
+`President Vladimir Putin donned a hazmat suit and respirator on Tuesday during a visit to a hospital treating coronavirus patients and the mayor of Moscow said the outbreak in the Russian capital was much worse than official figures showed.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-russia.html?searchResultPosition=5
 
-**Modern-Day Mayflower Sets Off From Poland Ahead of 400th Anniversary Voyage**\
-`Four hundred years after the Mayflower crossed the Atlantic from Britain to the United States, a group of engineers plan to have a crewless-ship also named the Mayflower, navigate itself along the same route.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-tech-sailing-mayflower-poland.html?searchResultPosition=6
+**Turkey Investigates Why School Pupils Were Shown Footage of Ex-PM's Hanging**\
+`Turkey's Education Ministry is investigating how animated footage of the execution of a former prime minister was shown to children as part of their home schooling during the coronavirus outbreak, Education Minister Ziya Selcuk said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-turkey-schools.html?searchResultPosition=6
 
-**Many Airline Flights Nearly Empty as Virus Undercuts Travel**\
-`Airline service in the United States is teetering on the brink of collapse, with near-empty planes and coronavirus outbreaks that have left some air traffic control towers empty.`\
-https://nytimes.com/aponline/2020/03/24/business/ap-virus-outbreak-airlines.html?searchResultPosition=7
+**Modi Puts All of India Under Lockdown for 21 Days to Fight Coronavirus**\
+`Indian Prime Minister Narendra Modi said on Tuesday the  government would impose a nationwide lockdown from midnight for 21 days to stem the spread of the coronavirus. `\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-india-modi.html?searchResultPosition=7
 
-**Haiti's Scouts Set Up Mobile Hand Washing Sinks to Ward Off Coronavirus**\
-`In impoverished Haiti, where access to clean water is tricky and education is lacking, Boy and Girl Scouts are taking to the streets with portable sinks to allow passersby to wash their hands and teach them the importance of doing so to ward off the novel coronavirus.`\
-https://nytimes.com/reuters/2020/03/24/world/americas/24reuters-health-coronavirus-haiti-scouts.html?searchResultPosition=8
+**Swiss Coronavirus Cases Rise to Nearly 9,000, With 90 Deaths**\
+`Switzerland has nearly 9,000 confirmed coronavirus infections and 90 deaths from the disease, the Federal Office of Public Health said on Tuesday, adding it was premature to say the number of new cases was flattening out.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-swiss-cases.html?searchResultPosition=8
 
-**Mexican President Says Slim Told Him Will Keep Workers During Coronavirus Crisis**\
-`Mexican President Andres Manuel Lopez Obrador said on Tuesday that billionaire Carlos Slim told him that he will not let go of any workers during the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/03/24/world/americas/24reuters-health-coronavirus-slim.html?searchResultPosition=9
+**Poland Further Limits Movement Over Coronavirus, Sticks to Election Date**\
+`Poland's government said on Tuesday it would expand restrictions on citizens to prevent the spread of coronavirus, including a limit on the number of people taking part in masses, a drastic move in a deeply devout country.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-poland.html?searchResultPosition=9
 
-**Dutch Coronavirus Cases Rise by 811 to 5,560, 63 New Deaths: Authorities**\
-`The number of confirmed coronavirus cases in the Netherlands rose by 811 on Tuesday, a 17% increase from a day earlier, to a total of 5,560, health authorities said. `\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-netherlands-tally.html?searchResultPosition=10
+**Japan's Abe Faces Struggle on Coronavirus, Economy, as Olympics Delayed**\
+`Postponing the Olympics due to the coronavirus pandemic has turned a hoped-for year of triumphant celebration for Japanese Prime Minister Shinzo Abe into a struggle to stem the outbreak and save the economy, but is unlikely to cost him his job.`\
+https://nytimes.com/reuters/2020/03/24/us/24reuters-health-coronavirus-olympics-politics.html?searchResultPosition=10
 
