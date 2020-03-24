@@ -1,36 +1,36 @@
-**Coronavirus Smashes UK Economy With Unprecedented Force: PMI**\
-`Britain's economy is shrinking at a record pace, faster than during the 2008-09 financial crisis, as businesses across the services sector shut up shop in face of the coronavirus, a survey showed on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-britain-economy-pmi.html?searchResultPosition=2
+**French Business Activity Plunges to Record Low in March Over Coronavirus: PMIs**\
+`French business activity plunged to its lowest level on record in March as a nationwide coronavirus lockdown shuttered vast swathes of the euro zone's second-biggest economy, a survey showed on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-france-economy-pmi.html?searchResultPosition=2
 
-**France Has List of Companies That Could Get State Support: Le Maire**\
-`The French government has drawn up a list of companies that may need state support due to the coronavirus outbreak such as a capital injection or even outright nationalization, Finance Minister Bruno Le Maire said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-france-economy.html?searchResultPosition=3
+**Thailand Approves $3.6 Billion Stimulus to Ease Coronavirus Impact**\
+`Thailand's cabinet approved on Tuesday a package of stimulus measures worth at least 117 billion baht ($3.56 billion) to try and mitigate the impact of the coronavirus outbreak that has infected more than 800 people in the country.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-thailand-measures.html?searchResultPosition=3
 
-**Banks Struggle to Ride to the Rescue in Europe's Cash Crunch Battle**\
-`Corrado Sforza Fogliani is on the frontlines of European efforts to keep the region's economy alive amid the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-banks-insight.html?searchResultPosition=4
+**Energy Traders in Virus Lockdown Swap Shouts for Babies, Barking Dogs**\
+`From banks of screens and giant phones in the office, energy traders worldwide are adapting to a laptop in the bedroom -- and it's going surprisingly well.`\
+https://nytimes.com/reuters/2020/03/24/technology/24reuters-health-coronavirus-energy-trade.html?searchResultPosition=4
 
-**Japan Central Bank Loses Billions on ETFs, May Face Annual Loss**\
-`The Bank of Japan on Tuesday acknowledged unrealized losses of 2-3 trillion yen ($18-$27 billion) on its holdings of exchange-traded funds (ETFs) after a rout in Japanese stock prices, raising the prospect it could post an annual loss this year.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-japan-economy-boj.html?searchResultPosition=5
+**Beijing City Weighs Plans to Stimulate Autos Demand Due to Coronavirus: Report**\
+`China's capital city Beijing is considering plans to stimulate demand for automobiles after the coronavirus epidemic hit sales badly, the state backed Beijing News newspaper reported on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-china-autos.html?searchResultPosition=5
 
-**Africa's Jazz Great Manu Dibango Dies in France of Virus**\
-`Renowned jazz man Manu Dibango, to many the beloved “Papy Groove” who served as an inspiration and pioneer in his art, died on Tuesday with the coronavirus, his official Facebook page announced. He was 86.`\
-https://nytimes.com/aponline/2020/03/24/world/europe/ap-eu-france-obit-manu-dibango.html?searchResultPosition=6
+**Euro Zone Business Activity Collapses in March as Coronavirus Spreads: PMIs**\
+`Euro zone business activity has crumbled in March as the coronavirus pandemic sweeping across Europe and the world wreaks havoc and shops, restaurants and offices pull down the shutters, a survey showed on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/us/24reuters-eurozone-economy-pmi.html?searchResultPosition=6
 
-**Puma Sets Short-Time Work for 1,400 Staff**\
-`German sportswear company Puma announced on Tuesday that 1,400 staff would switch to shorter work hours until April 13 as sales slump due to the coronavirus and said its three top executives would not take their pay for April.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-puma-staff.html?searchResultPosition=7
+**European Shares Trudge Higher as Stimulus Wave Stems Selloff**\
+`European shares attempted another rebound on Tuesday as a fresh wave of monetary and fiscal stimulus halted a global selloff in equity markets, but growing evidence of the economic damage from the coronavirus pandemic kept investors on edge.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-europe-stocks.html?searchResultPosition=7
 
-**JD Sports Delays Results to May, Cites Ample Cash Resources**\
-`Britain's biggest sportswear retailer JD Sports said on Tuesday it has delayed the publication of its financial results to May and has enough cash resources to ride out the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-jd-sports.html?searchResultPosition=8
+**ECB Intends to Be Major Buyer in Commercial Player Market, Villeroy Says**\
+`The European Central Bank intends to be major buyer of commercial paper when it enters that market this week, ECB policymaker Francois Villeroy de Galhau said in an interview with French website Wansquare.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-ecb-policy-villeroy.html?searchResultPosition=8
 
-**The Latest: European Club Rugby Finals in May Suspended**\
-`The Latest on the effects of the coronavirus outbreak on sports around the world:`\
-https://nytimes.com/aponline/2020/03/24/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=9
+**Germany to Return to Austerity After Coronavirus Crisis-Minister**\
+`The German government will return to its savings policy once the coronavirus crisis is over, Economy Minister Peter Altmaier told ZDF broadcaster on Tuesday, adding that Europe's largest economy had committed to paying debt back from 2023.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-germany-altmaier.html?searchResultPosition=9
 
-**Wizz Air Suspends All Flights To and From Varna Over Coronavirus**\
-`Wizz Air has suspended all flights to and from Bulgarian city of Varna in an attempt to help curb the spread of the coronavirus, the low-cost carrier said in a statement on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-wizz-air-hldgs.html?searchResultPosition=10
+**Barclays Cuts 2020 Crude Forecasts by $12 on Virus, OPEC+ Deal Collapse**\
+`Barclays on Tuesday slashed its oil price forecasts for 2020, citing considerable downward pressure on the market from a Saudi-Russian price war and demand disruption because of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/24/us/24reuters-oil-research-barclays.html?searchResultPosition=10
 
