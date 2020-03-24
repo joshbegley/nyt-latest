@@ -1,36 +1,36 @@
+**Tokyo's Koike: Next Year's Olympics Will Still Be Tokyo 2020**\
+`The name of the delayed Olympics will still be Tokyo 2020, Tokyo Governor Yuriko Koike said on Tuesday, adding that the Games would be held by Summer 2021.`\
+https://nytimes.com/reuters/2020/03/24/sports/olympics/24reuters-health-cornavirus-olympics-tokyo.html?searchResultPosition=2
+
+**Pulev Sees No Problem in Fighting Joshua Without Spectators**\
+`Bulgarian Kubrat Pulev, the IBF's mandatory challenger, said he saw no problem in fighting Briton Anthony Joshua for the world heavyweight title in a match without spectators.`\
+https://nytimes.com/reuters/2020/03/24/sports/24reuters-health-coronavirus-boxing-joshua.html?searchResultPosition=3
+
+**IOC to Hold Emergency EB Meeting Later on Tuesday on Tokyo 2020 Postponement-Source**\
+`The International Olympic Committee's Executive Board will discuss the widely expected postponement of the Tokyo 2020 Olympics in a hastily arranged conference call later on Tuesday, a source within the Olympic movement told Reuters.`\
+https://nytimes.com/reuters/2020/03/24/sports/olympics/24reuters-health-coronavirus-olympics-ioc.html?searchResultPosition=4
+
+**It'll Take European Solidarity to Achieve a Sustainable Recovery: German Minister**\
+`Germany Economy Minister Peter Altmaier, asked about the possibility of using the European Stability Mechanism to support the coronavirus-stricken European economy, said that European solidarity was crucial to achieving economic recovery.`\
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-germany-economy-esm.html?searchResultPosition=5
+
+**Olympics: Athletes Would Have Liked Quicker Decision on Delay-German Confederation**\
+`Talks on the possible postponement of the Tokyo 2020 Olympics are long overdue, the German Olympic Sports Confederation (DOSB) said on Tuesday, adding that athletes would have preferred a quicker decision by the International Olympic Committee.`\
+https://nytimes.com/reuters/2020/03/24/sports/olympics/24reuters-health-coronavirus-olympics-germany.html?searchResultPosition=6
+
 **Calls to Protect Economy Rather Than Slow Virus Are Cynical: German Minister**\
 `Calls to protect the economy rather than slow the spread of the coronavirus are "cynical and ill-considered," German Finance Minster Olaf Scholz told Bild newspaper on Tuesday .`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-germany-scholz.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-germany-scholz.html?searchResultPosition=7
 
 **France Favors Flexible Euro Bailout Fund Deployment Over Coronavirus**\
 `The euro zone should mobilize its bailout fund to counter the economic hit from the coronavirus outbreak, and impose as few conditions as possible on states that access it, France's finance minister said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-eurozone-esm-france.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-eurozone-esm-france.html?searchResultPosition=8
 
 **UK Banks' Dollar Demand Rises to $3.555 Billion: BoE Repo Operation**\
 `British banks' demand for U.S. dollar liquidity from the Bank of England rose to $3.555 billion on Tuesday, the central bank said.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-britain-boe-dollar.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-britain-boe-dollar.html?searchResultPosition=9
 
 **They Overcame Marriage Fears**\
 `Alexa Pulitzer and Seth Levine, both children of divorced parents, say communication is the key to a happy relationship.`\
-https://nytimes.com/2020/03/24/fashion/weddings/they-overcame-marriage-fears.html?searchResultPosition=5
-
-**China to Ease Coronavirus Lockdown on Hubei 2 Months After Imposing It**\
-`The province will let people outside Wuhan leave for the first time since late January. Despite the official sign of confidence, many fear the virus is still spreading silently.`\
-https://nytimes.com/2020/03/24/world/asia/china-coronavirus-lockdown-hubei.html?searchResultPosition=6
-
-**German Companies Rush to Banks for Emergency Coronavirus Funds**\
-`German companies are rushing to take advantage of a state-backed program for emergency financing as they deal with the fallout from the coronavirus outbreak, bankers said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-germany-banks.html?searchResultPosition=7
-
-**Cargo Shipping to Benefit From EU Antitrust Exemption Till 2024**\
-`Cargo shipping companies will continue to be exempted from antitrust rules against anti-competitive agreements until 2024 because this immunity ultimately leads to lower prices and better consumer services, EU antitrust regulators said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/us/24reuters-eu-antitrust-shipping.html?searchResultPosition=8
-
-**Emerging Market Bond Funds Suffered Disproportionately in Past Month**\
-`Emerging market bond funds are performing poorly compared with their global peers as investors rush into the safety of cash and money markets to shield themselves from a further market erosion due to the cornavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-funds-em.html?searchResultPosition=9
-
-**‘Crip Camp’ Review: After Those Summers, Nothing Was the Same**\
-`This feel-good documentary argues that a Catskills summer camp fed directly into American disability rights activism in the 1970s.`\
-https://nytimes.com/2020/03/24/movies/crip-camp-review.html?searchResultPosition=10
+https://nytimes.com/2020/03/24/fashion/weddings/they-overcame-marriage-fears.html?searchResultPosition=10
 
