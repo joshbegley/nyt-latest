@@ -1,36 +1,36 @@
-**Britain's Johnson Says Will Stop Large Gatherings and Weddings**\
-`Britain will stop weddings and other large gatherings and will close shops and playgrounds to get citizens to comply with instructions to stay at home to mitigate the coronavirus pandemic, Prime Minister Boris Johnson said on Monday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-britain-johnson-enforcement.html?searchResultPosition=2
+**Global Airlines Revenues Seen Down by $250 Billion This Year: IATA**\
+`Global airline revenues are seen falling by $250 billion this year, a cut of 44% on 2019 levels, the International Air Transport Association said on Tuesday, as the coronavirus outbreak hits the sector. `\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-iata-airlines.html?searchResultPosition=2
 
-**First Hearse Arrives at Spain's Makeshift Ice-Rink Morgue as Coronavirus Toll Mounts**\
-`The first hearse arrived on Tuesday at Madrid's ice rink, hastily transformed into a makeshift mortuary as Spanish authorities scrambled to deal with a rising death toll from the coronavirus.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-spain-morgue.html?searchResultPosition=3
+**General Motors Suspends 2020 Outlook, to Draw Down $16 Billion in Credit**\
+`General Motors on Tuesday suspended its 2020 outlook and said it plans to draw down about $16 billion from its credit facilities in a bid to beef up liquidity amid rising business impact from the fast-spreading coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-gm.html?searchResultPosition=3
 
-**Germany: 750 Billion Euro Aid Package Is Just First Step in Tackling Coronavirus**\
-`German Economy Minister Peter Altmaier said that an aid package worth up to 750 billion euros ($816.38 billion) that the government announced on Monday was just an initial step in tackling the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-germany-economy.html?searchResultPosition=4
+**Japan Airlines to Slash International Flights by 64% as Coronavirus Dents Demand**\
+`Japan Airlines said on Tuesday it will cut flights on international routes from the country by about 64% between March 29 and April 30, as the coronavirus pandemic has hammers travel demand.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-japan-airlines.html?searchResultPosition=4
 
-**What You Need to Know About the Coronavirus Right Now**\
-`Here's what you need to know about the coronavirus right now:`\
-https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-snapshot.html?searchResultPosition=5
+**Refiner Phillips 66 Cuts Spending Forecast by 18%, Commits to Dividend**\
+`Refiner Phillips 66 on Tuesday cut its 2020 spending forecast by about 18% and assured investors their dividend was secure even as the coronavirus outbreak and a price war between Saudi Arabia and Russia threaten the oil market with massive oversupply.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-global-oil-phillips-66.html?searchResultPosition=5
 
-**Spain Reports 6,600 New Coronavirus Cases Overnight, Over 500 Dead**\
-`The number of new coronavirus cases in Spain jumped on Tuesday to 39,673 from 33,089 cases registered on Monday, the health ministry reported on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-spain-tally.html?searchResultPosition=6
+**Unilever to Protect Workers From Sudden Pay Drop for Up to Three Months**\
+`Consumer goods giant Unilever Plc said on Tuesday it would shield its workforce for up to three months from sudden drop in pay, resulting from market disruptions or an inability to perform their roles during the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-unilever-pay.html?searchResultPosition=6
 
-**Austria to Use More Rapid Corona Tests for Broad Scale Testing**\
-`Austria will start using more rapid tests to be able to test hundreds of thousands of people as quickly as possible, Chancellor Sebastian Kurz said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-austria.html?searchResultPosition=7
+**UK Manufacturers' Most Pessimistic Since Financial Crisis: CBI**\
+`British manufacturers are the most pessimistic about the outlook than they have been at any time since the global financial crisis more than a decade ago because of the spread of coronavirus, a survey showed on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-britain-economy-manufacturing.html?searchResultPosition=7
 
-**Italian Coronavirus Cases Likely '10 Times Higher Than Reported'**\
-`The number of cases of coronavirus in Italy is probably 10 times higher than the official tally of almost 64,000, the head of the agency that is collating the data said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-italy.html?searchResultPosition=8
+**Investors Eye Cracks in $4.4 Trillion U.S. ETF Market as Virus Sell-Off Rages**\
+`Wild swings in asset prices have thrown a spotlight on liquidity in corners of the $4.4 trillion market for U.S. exchange-traded funds, which have played a key role for investors in Wall Street's coronavirus-fueled selloff.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-etfs.html?searchResultPosition=8
 
-**Fresenius Says China Drug Production Back to Normal**\
-`German healthcare group Fresenius said its generic drugs and infusions unit Kabi had ramped up production in China back to normal levels after government-imposed coronavirus quarantine restrictions were eased.`\
-https://nytimes.com/reuters/2020/03/24/world/europe/24reuters-health-coronavirus-fresenius-china.html?searchResultPosition=9
+**U.S. Industries Scramble for Exemptions as State Shutdown Orders Grow**\
+`As several more U.S. states moved to impose stay-at-home orders to limit the spread of the coronavirus, industries from steelmakers to auto dealerships were scrambling for exemptions that would allow them to remain open.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-usa-industries.html?searchResultPosition=9
 
-**Factbox: How Vulnerable Is Latin America to Coronavirus? Key Data Shed Light**\
-`The coronavirus is spreading deeper into Latin America, a region home to about 8.5% of the world's population that many expects believe could be among the worst affected by COVID-19.`\
-https://nytimes.com/reuters/2020/03/24/world/americas/24reuters-health-coronavirus-latin-america-factbox.html?searchResultPosition=10
+**Chevron Cuts 2020 Spending, Permian Production Forecasts by 20%**\
+`Chevron Corp said on Tuesday it was lowering its forecasts for spending and Permian production by 20% for the year, and will suspend share buybacks as oil companies find themselves in one of the worst times in decades.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-global-oil-chevron.html?searchResultPosition=10
 
