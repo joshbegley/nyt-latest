@@ -2,7 +2,7 @@
 `If the coronavirus has you self-isolating, you’re likely more concerned about staying in touch with loved ones and carefully planning your grocery excursions than about changing your money routine.`\
 https://nytimes.com/aponline/2020/03/24/business/ap-nerdwallet-banking-online-coronavirus.html?searchResultPosition=2
 
-**Virus ‘Attack Rate’ in N.Y. Region Worries White House Official: Live Updates**\
+**Police in N.Y.C. Enforcing Social Distancing Rules: Live Updates**\
 `New York State has over 20,000 cases of the virus.`\
 https://nytimes.com/2020/03/24/nyregion/coronavirus-new-york-update.html?searchResultPosition=3
 
