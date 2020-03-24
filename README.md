@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/03/24/business/ap-nerdwallet-banking-online-coronavirus.html?searchResultPosition=2
 
 **Police in N.Y.C. Enforcing Social Distancing Rules: Live Updates**\
-`New York State has over 20,000 cases of the virus.`\
+`New York State has over 21,000 cases of the virus.`\
 https://nytimes.com/2020/03/24/nyregion/coronavirus-new-york-update.html?searchResultPosition=3
 
 **Worried Ethiopians Want Partial Internet Shutdown Ended**\
