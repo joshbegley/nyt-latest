@@ -1,36 +1,36 @@
-**Here Come the Death Panels**\
-`Obamacare didn’t lead to rationing. The mismanagement of the coronavirus will.`\
-https://nytimes.com/2020/03/23/opinion/coronavirus-hospital-shortage.html?searchResultPosition=2
+**Wells Fargo to Pay Special Compensation to Front-Line Workers Amid Coronavirus Outbreak**\
+`Wells Fargo & Co will join other large U.S. banks in paying out special compensation to front-line employees, according to a memo seen by Reuters.`\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-wells-fargo.html?searchResultPosition=2
 
-**Trump Considers Reopening Economy, Over Health Experts’ Objections**\
-`The president is questioning whether stay-at-home orders have gone too far. But relaxing them could significantly increase the death toll from the coronavirus, health officials warn.`\
-https://nytimes.com/2020/03/23/business/trump-coronavirus-economy.html?searchResultPosition=3
+**Mondelez Raises Hourly Wage, Hands Out Weekly Bonus as Virus Worries Fuel Demand**\
+`Mondelez International Inc on Monday said it would increase hourly wage by $2 and pay a $125 weekly bonus for its sales representatives as it rushes to meet a surge in demand for its packaged food due to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-mondelez-intl.html?searchResultPosition=3
 
-**Bored in Quarantine? Here’s a New York Scene You Can Color**\
-`Grab your pencils. It’s time to get creative.`\
-https://nytimes.com/interactive/2020/03/23/opinion/covid-coloring-activity.html?searchResultPosition=4
+**As Coronavirus Fuels Meat Demand, Processors Raise Pay for North American Farmers, Workers**\
+`North American meat processors said on Monday they would pay extra money to farmers and slaughterhouse workers as the companies scramble to meet surging demand from consumers unnerved by the spread of the new coronavirus.`\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-usa-meatpacking.html?searchResultPosition=4
 
-**Call It ‘Coronavirus’**\
-`Disease and prejudice have long gone hand in hand. We can do better in 2020.`\
-https://nytimes.com/2020/03/23/opinion/china-coronavirus-racism.html?searchResultPosition=5
+**Crude Oil Futures Rise, but Support Seen Weak**\
+`U.S. crude oil futures climbed nearly 3% on Tuesday in light trading as the Trump administration launched an effort to work with Saudi Arabia to stabilise oil prices.`\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-global-oil-price.html?searchResultPosition=5
 
-**Survey: 7 in 10 US Olympic Hopefuls Favor Postponement**\
-`Nearly seven in 10 U.S. Olympic hopefuls say they don't think the Tokyo Games will be fair if they are held in July, prompting leaders of the U.S. Olympic and Paralympic Committee to conclude “it’s more clear than ever that the path toward postponement is the most promising.”`\
-https://nytimes.com/aponline/2020/03/23/sports/olympics/ap-oly-virus-outbreak-us-survey.html?searchResultPosition=6
+**Fed's Money Market Move Lifts Northern Trust Fund Above Key Threshold**\
+`Liquidity at a $2.2 billion prime money-market fund run by Northern Trust Corp fell below the key 30% U.S. regulatory threshold twice last week, but rebounded above that level after the U.S. Federal Reserve shored up the industry. `\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-northern-trust-moneymarket.html?searchResultPosition=6
 
-**Webinar Wednesdays: Opportunities for Teachers and Parents on Remote Learning With The Times**\
-`As part of our response to Covid-19 and school closings, we are hosting a series of webinars on teaching and learning with Times resources and our own collection of activities for students.`\
-https://nytimes.com/2020/03/23/learning/webinar-wednesdays-opportunities-for-teachers-and-parents-on-remote-learning-with-the-times.html?searchResultPosition=7
+**Nordstrom Joins Macy's in Suspending Dividend Amid Coronavirus**\
+`Nordstrom Inc said on Monday it would suspend its quarterly cash dividend and share repurchases as it looks to weather the impact from the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-nordstrom.html?searchResultPosition=7
 
-**At Least 13,500 Americans Abroad Need Help Getting Home, State Dept. Says**\
-`About 5,700 U.S. citizens and legal residents have already returned with the government’s assistance, and flights scheduled this week could help another 1,600.`\
-https://nytimes.com/2020/03/23/us/politics/coronavirus-us-citizens-abroad.html?searchResultPosition=8
+**Coronavirus Drags Car Dealers Into Digital Commerce**\
+`Auto retailers have been slow to embrace e-commerce, but the coronavirus pandemic is changing that.`\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-usa-autodealers.html?searchResultPosition=8
 
-**The View From Your Window**\
-`Life has changed in big ways and small for our On Politics readers from around the world.`\
-https://nytimes.com/2020/03/23/us/politics/on-politics-your-window.html?searchResultPosition=9
+**Fed's Big Move Could Help U.S. Treasury Liquidity, but Effects May Not Last Long**\
+`The Federal Reserve's unparalleled steps to directly backstop the U.S. economy and its willingness to purchase vast sums of U.S. government debt, mortgage-backed securities and even corporate bonds could help boost depleted liquidity in the $17-trillion Treasury market. `\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-treasuries-analysis.html?searchResultPosition=9
 
-**West Virginia Governor Rambles, Mixes Messages on Virus**\
-`As the coronavirus  raged across the nation, West Virginia Gov. Jim Justice wondered why people were looking to him for answers. `\
-https://nytimes.com/aponline/2020/03/23/us/ap-us-virus-outbreak-west-virginia-governor.html?searchResultPosition=10
+**At Alibaba's Lazada, Coronavirus Measures Become the Latest Culture Conflict**\
+`At Lazada, the Southeast Asian arm of Alibaba Group Holding, staff are furious over demands they submit health reports daily and other coronavirus-prevention steps seen as too invasive, highlighting a long-running culture clash with management from China.`\
+https://nytimes.com/reuters/2020/03/23/business/23reuters-health-coronavirus-alibaba-lazada-focus.html?searchResultPosition=10
 
