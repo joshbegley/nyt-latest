@@ -1,36 +1,36 @@
+**Likud Members Urge Speaker to Defy Israeli High Court Order**\
+`Israel appeared on the verge of a constitutional crisis Tuesday as top members of Benjamin Netanyahu's Likud urged their party colleague and parliament speaker to defy a Supreme Court order to hold an election for the prime minister's successor.`\
+https://nytimes.com/aponline/2020/03/24/world/middleeast/ap-ml-virus-outbreak-israel-politics.html?searchResultPosition=2
+
+**Volunteers Sew Masks for Health Workers Facing Shortages**\
+`Bill Purdue waterproofs basements for a living, but he has spent the past few days in his buddy's Washington, Indiana, auto trim and upholstery shop cutting rectangles of cotton fabric that his friend sews into face masks.`\
+https://nytimes.com/aponline/2020/03/24/business/bc-us-virus-outbreak-diy-masks.html?searchResultPosition=3
+
+**Your Tuesday Briefing**\
+`Coronavirus, Anthony Fauci, Olympics: Here's what you need to know.`\
+https://nytimes.com/2020/03/24/briefing/coronavirus-anthony-fauci-olympics.html?searchResultPosition=4
+
 **Virus Chaos Snarls Farm Workers as New Season Buds in Europe**\
 `Asparagus grower Henning Hoffheinz is looking at blue skies, a record-early harvest – and a big problem.`\
-https://nytimes.com/aponline/2020/03/24/business/bc-eu-virus-outbreak-europe-farmers.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/03/24/business/bc-eu-virus-outbreak-europe-farmers.html?searchResultPosition=5
 
 **Libya Says Oil Shutdown Losses Exceed $3.5 Billion**\
 `Libya's oil company says economic fallout from a protracted blockade of its vital oil facilities has resulted in losses surpassing $3.5 billion at a time when the war-torn country struggles to prevent the new coronavirus. `\
-https://nytimes.com/aponline/2020/03/24/business/ap-ml-libya-oil-1st-ld-writethru.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/03/24/business/ap-ml-libya-oil-1st-ld-writethru.html?searchResultPosition=6
 
 **Facebook, Don’t Exploit Us in Our Time of Need**\
 `Who seems poised to benefit from social distancing? Big Tech.`\
-https://nytimes.com/2020/03/24/opinion/coronavirus-facebook-tech-companies.html?searchResultPosition=4
+https://nytimes.com/2020/03/24/opinion/coronavirus-facebook-tech-companies.html?searchResultPosition=7
 
 **US Newspapers Urge China Not to Expel Their Journalists**\
 `The publishers of three major American newspapers have written an open letter asking China to reverse its recent decision to expel many of their correspondents working in the country. `\
-https://nytimes.com/aponline/2020/03/24/world/asia/ap-as-china-us-journalists-expelled.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/03/24/world/asia/ap-as-china-us-journalists-expelled.html?searchResultPosition=8
 
 **Instead of Tearing It Down, They Rescued It**\
 `A couple of experienced renovators were looking for a house in the Bay Area to demolish — until one with a strong ‘midcentury vibe’ won their hearts.`\
-https://nytimes.com/2020/03/24/realestate/instead-of-tearing-it-down-they-rescued-it.html?searchResultPosition=6
+https://nytimes.com/2020/03/24/realestate/instead-of-tearing-it-down-they-rescued-it.html?searchResultPosition=9
 
 **A Teardown? Not Even Close**\
 `A couple of experienced renovators were looking for a house in the Bay Area to demolish — until one with a strong ‘midcentury vibe’ won their hearts.`\
-https://nytimes.com/slideshow/2020/03/24/realestate/a-teardown-not-even-close.html?searchResultPosition=7
-
-**Falling Ill, Testing Negative**\
-`I had the symptoms. But did I have the coronavirus?`\
-https://nytimes.com/2020/03/24/opinion/coronavirus-testing.html?searchResultPosition=8
-
-**‘The City We Became,’ by N.K. Jemisin: An Excerpt**\
-`An excerpt from “The City We Became,” by N.K. Jemisin`\
-https://nytimes.com/2020/03/24/books/review/the-city-we-became-by-nk-jemisin-an-excerpt.html?searchResultPosition=9
-
-**For Some Drive-In Theaters, an Unexpected Revival**\
-`A retro tradition get a boost from current social-distancing edicts.`\
-https://nytimes.com/2020/03/24/style/drive-in-theaters-coronavirus.html?searchResultPosition=10
+https://nytimes.com/slideshow/2020/03/24/realestate/a-teardown-not-even-close.html?searchResultPosition=10
 
