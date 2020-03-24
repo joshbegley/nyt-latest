@@ -1,4 +1,4 @@
-**Officials Warn Against Self-Medicating for Virus After Death**\
+**Arizona Deaths Prompt Warning Against Self-Medication**\
 `A Phoenix-area man has died and his wife was in critical condition after the couple took chloroquine phosphate, an additive used to clean fish tanks that is also found in an anti-malaria medication that's been touted by President Donald Trump as a treatment for COVID-19. `\
 https://nytimes.com/aponline/2020/03/23/us/ap-us-virus-outbreak-arizona-11th-ld-writethru.html?searchResultPosition=2
 
