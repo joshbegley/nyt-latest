@@ -1,36 +1,36 @@
-**Home Internet Jammed Up? Try These Steps Before Upgrading**\
-`With so much of the U.S. workforce — and their families — now cooped up at home to combat the spread of the novel coronavirus, it's not a huge surprise that home internet is showing the strain.`\
-https://nytimes.com/aponline/2020/03/24/business/bc-us-virus-outbreak-home-internet-qa.html?searchResultPosition=2
+**Should Public Preschool Be a Right for All Children?**\
+`When do you think the government should begin financing and supporting a child’s education?`\
+https://nytimes.com/2020/03/24/learning/should-public-preschool-be-a-right-for-all-children.html?searchResultPosition=2
 
-**Teams, Toddlers and Cabinets: The Joys of Working From Home**\
-`In the early days of working from home to prevent spread of the COVID-19 disease, some Massachusetts Institute of Technology researchers talking strategy on a video chat couldn’t help but get distracted by their team leader’s kitchen cabinets.`\
-https://nytimes.com/aponline/2020/03/24/business/bc-us-virus-outbreak-telecommuting-challenges.html?searchResultPosition=3
+**My Generation Will Graduate Into a Recession**\
+`We have a deep desire for radical change because we see the broken path ahead.`\
+https://nytimes.com/2020/03/24/opinion/coronavirus-recession-gen-z.html?searchResultPosition=3
 
-**Lesson of the Day: ‘Photos From a Century of Epidemics’**\
-`In this lesson, students will explore global epidemics from the 1918 flu to Covid-19.`\
-https://nytimes.com/2020/03/24/learning/lesson-of-the-day-photos-from-a-century-of-epidemics.html?searchResultPosition=4
+**A Medical Class ‘Minted by the Pandemic’**\
+`Across the nation, medical students are graduating directly into the path of an epic health crisis.`\
+https://nytimes.com/2020/03/24/science/medical-school-coronavirus-students.html?searchResultPosition=4
 
-**New Coronavirus Threatens Both Rich, Poor Across Mideast**\
-`The new coronavirus continued its spread across some of the most-vulnerable nations of the Mideast on Tuesday as the International Monetary Fund warned that a lack of medical supplies in Iraq, Sudan and Yemen could lead to a surge in prices. `\
-https://nytimes.com/aponline/2020/03/24/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=5
+**One City’s Road to Recovery Offers Lessons, and Hope**\
+`Lawrence, Mass., once an industrial power, set out to reverse a long decline with the Federal Reserve’s help. Now it faces a new economic challenge.`\
+https://nytimes.com/2020/03/24/business/economy/small-cities-economy.html?searchResultPosition=5
 
-**US Shames Afghan Leaders' Obstinance Even as Pandemic Looms**\
-`Washington's unprecedented threat to cut $1 billion in Afghanistan funding — a response to the refusal of rivals in Kabul to work together to advance peace — comes at a time when the impoverished nation risks being overwhelmed by the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/03/24/world/asia/ap-as-afghanistan-us.html?searchResultPosition=6
+**Is Marijuana an ‘Essential’ Like Milk or Bread? Some States Say Yes.**\
+`As stay-home orders to fight the coronavirus outbreak force ‘nonessential’ businesses to close, some states are allowing pot stores and medical dispensaries to remain open, with some restrictions.`\
+https://nytimes.com/2020/03/24/us/coronavirus-weed-marijuana.html?searchResultPosition=6
 
-**Solidarity: Foreign Hospitals Help French Virus Hotspot Cope**\
-`The eastern French border city of Mulhouse was fought over by France and Germany across two centuries, but the horrors of the new coronavirus cluster tearing through this community of 110,000 is inspiring unusual solidarity.`\
-https://nytimes.com/aponline/2020/03/24/world/europe/ap-eu-virus-outbreak-eastern-france.html?searchResultPosition=7
+**Nearly a Million Children Left Behind in Venezuela as Parents Migrate**\
+`Seven years into an economic crisis, mothers and fathers have been forced to go abroad in search of work, leaving hundreds of thousands of children in the hands of relatives, friends — and sometimes, each other.`\
+https://nytimes.com/2020/03/24/world/americas/venezuela-migration-children.html?searchResultPosition=7
 
-**Thailand Decrees State of Emergency to Control Coronavirus**\
-`Thailand's government agreed Tuesday to declare an emergency to take stricter measures to control the coronavirus outbreak that has infected hundreds of people in the Southeast Asian country.`\
-https://nytimes.com/aponline/2020/03/24/business/ap-as-virus-outbreak-thailand.html?searchResultPosition=8
+**Trump Thinks He Knows Better Than the Doctors About Coronavirus**\
+`His comments about reopening the economy sooner rather than later show us what he really values.`\
+https://nytimes.com/2020/03/24/opinion/trump-coronavirus-economy.html?searchResultPosition=8
 
-**Buddy, Can You Spare a Dime? Echoes of '30s in Viral Crisis?**\
-`The imagery floats in sepia-colored photographs, faintly recalled images of bedraggled people lined up for bread or soup.`\
-https://nytimes.com/aponline/2020/03/24/business/ap-us-virus-outbreak-depression-era-echoes-.html?searchResultPosition=9
+**Virus Brings States to a Standstill: Sessions Halt, Budgets Crater, Plans Wait**\
+`State legislatures are facing chaos amid the coronavirus crisis, with revenue projections suddenly expected to dip and major agendas put on hold.`\
+https://nytimes.com/2020/03/24/us/coronavirus-state-legislatures.html?searchResultPosition=9
 
-**Golf Rounds Surged as Coronavirus Advanced. Now the Game Is Retreating**\
-`Drawn by open-air acreage, free time and new social distancing guidelines, recreational golfers in the U.S. were playing in droves this month. Then courses started shuttering.`\
-https://nytimes.com/2020/03/24/sports/golf/golf-courses-open-coronavirus.html?searchResultPosition=10
+**You’ve Got Mail. Will You Get the Coronavirus?**\
+`The practice of disinfecting mail dates back to the invention of quarantine. There’s little evidence it needs to be invoked today.`\
+https://nytimes.com/2020/03/24/science/coronavirus-mail-packages.html?searchResultPosition=10
 
