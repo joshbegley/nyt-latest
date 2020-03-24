@@ -1,36 +1,36 @@
-**U.S. Negotiators Say Have Not Reached Coronavirus Stimulus Deal, but Close to It**\
-`U.S. Treasury Secretary Steven Mnuchin and Senate Democratic Leader Chuck Schumer said they had not reached an agreement on Monday on a sweeping coronavirus stimulus deal, but had made progress.`\
-https://nytimes.com/reuters/2020/03/24/us/politics/24reuters-health-coronavirus-usa-talks.html?searchResultPosition=2
+**Japan Finance Minister Aso Makes Rare Comment vs Dollar's 'Single-Handed' Rises**\
+`Japanese Finance Minister Taro Aso said the dollar's single-handed rises against other currencies were likely driven by investors' anxiety over the coronavirus outbreak, which has triggered an inflow of funds into dollars from riskier assets.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-japan-economy-mof-yen.html?searchResultPosition=2
 
-**Colorado Governor Signs Death Penalty Repeal, Commutes Sentences of Death Row Inmates**\
-`Colorado's governor signed a repeal of the state's death penalty law on Monday and commuted the sentences of all three death row inmates to life without parole, drawing harsh criticism from a district attorney whose office prosecuted the condemned men.`\
-https://nytimes.com/reuters/2020/03/24/us/23reuters-colorado-death-penalty.html?searchResultPosition=3
+**Japan's Stimulus Package Must Include Cash Payouts: LDP Official**\
+`Japan's economic stimulus package to beat the fallout from the coronavirus outbreak should include cash payouts, distribution of coupons, and other measures that give a direct boost to consumption, a senior ruling party official said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-japan-economy.html?searchResultPosition=3
 
-**A Grand Vision of the Olympics Plays Catchup With the Rest of the World**\
-`The International Olympic Committee clung to the belief that the Tokyo Games would offer hope against the coronavirus this summer, even as sports leaders and medical experts insisted that the event be delayed.`\
-https://nytimes.com/2020/03/24/sports/olympics/tokyo-olympics-postponed.html?searchResultPosition=4
+**Mideast, Central Asia Countries Ask IMF for Coronavirus Support**\
+`A dozen countries in the Middle East and Central Asia have asked the International Monetary Fund for financial support in dealing with the coronavirus, and the Kyrgyz Republic is likely to receive the first emergency disbursement, the fund said.`\
+https://nytimes.com/reuters/2020/03/24/world/middleeast/24reuters-health-coronavirus-imf-mideast.html?searchResultPosition=4
 
-**Word + Quiz: fuselage**\
-`This word has appeared in 31 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/03/24/learning/word-quiz-fuselage.html?searchResultPosition=5
+**Bank of Japan's Unrealized Losses on ETF Holdings at 2-3 Trillion Yen: Kuroda**\
+`Bank of Japan Governor Haruhiko Kuroda said on Tuesday unrealized losses on its holdings of exchange-traded funds (ETFs) stood around 2-3 trillion yen ($18-27 billion) as of the end of last week.`\
+https://nytimes.com/reuters/2020/03/24/business/23reuters-japan-economy-boj.html?searchResultPosition=5
 
-**Coronavirus Shockwave Rocks Airplane Manufacturers, Suppliers**\
-`The pandemic is taking its toll on aerospace manufacturing, as Boeing Co announced it would halt production of most widebody jets and Airbus SE restarted only partial output after a four-day shutdown as suppliers cut jobs.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-airlines.html?searchResultPosition=6
+**South Korea Doubles Rescue Package to $80 Billion Amid Coronavirus Woes**\
+`South Korea President Moon Jae-in said on Tuesday the government will double a planned rescue package to contain mounting economic and financial fallout from the coronavirus to 100 trillion won ($80 billion).`\
+https://nytimes.com/reuters/2020/03/24/world/asia/23reuters-health-coronavirus-southkorea-moon.html?searchResultPosition=6
 
-**SoftBank Shares Jump 20% on Record Buyback Announcement**\
-`SoftBank Group Corp stock jumped 20% on Tuesday, extending a run that began a day earlier when the Japanese tech investor announced up to $41 billion in asset sales and a record share buyback to shore up its collapsing share price.`\
-https://nytimes.com/reuters/2020/03/24/business/23reuters-softbank-group-shares.html?searchResultPosition=7
+**New Zealand Announces Mortgage Holiday, Business Finance Support to Cushion Virus Impact**\
+`New Zealand said on Tuesday that retail banks will offer a six-month principal and interest payment holiday for mortgage holders and small business customers whose incomes have been affected by the economic disruption from COVID-19.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/23reuters-health-coronavirus-newzealand-banks.html?searchResultPosition=7
 
-**Asia Stocks Rebound, Fed Pits Endless QE Against Economic Reality**\
-`Asian stocks rebounded sharply on Tuesday as the U.S. Federal Reserve's promise of bottomless dollar funding eased painful strains in financial markets, even if it could not soften the immediate economic hit of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-global-markets.html?searchResultPosition=8
+**U.S. SEC Provides Temporary Flexibility for Funds Affected by Coronavirus**\
+`The U.S. Securities and Exchange Commission (SEC) said on Monday it will allow temporary flexibility to borrow and enter into certain other lending arrangements for registered investment companies affected by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/24/business/23reuters-health-coronavirus-usa-sec-funds.html?searchResultPosition=8
 
-**Parking Pain: Airlines, Airports Hunt for Storage Space as Pandemic Idles Planes**\
-`As airlines idle thousands of aircraft for which there are no passengers, they are hitting an unprecedented problem: finding a place to park them.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-airlines-parking.html?searchResultPosition=9
+**Surveys Show Coronavirus Pandemic Savaging Global Economy**\
+`Evidence of the devastation wreaked on the global economy by the coronavirus pandemic mounted on Tuesday as activity surveys for March from Australia and Japan showed record falls, with surveys in Europe and the United States expected to be just as dire.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-global-economy.html?searchResultPosition=9
 
-**House Democrats Would Give Airlines, Contractors $40 Billion Bailout**\
-`Democratic U.S. lawmakers on Monday proposed giving struggling U.S. airlines and contractors $40 billion in cash grants that would not have to be paid back but require significant new environmental, labor and other conditions.`\
-https://nytimes.com/reuters/2020/03/24/business/23reuters-health-coronavirus-airlines-usa.html?searchResultPosition=10
+**China to Lift Lockdown in Most of Virus-Hit Hubei Province**\
+`Chinese authorities are lifting a lockdown in most of its virus-hit Hubei province. `\
+https://nytimes.com/aponline/2020/03/24/business/ap-as-virus-outbreak-china.html?searchResultPosition=10
 
