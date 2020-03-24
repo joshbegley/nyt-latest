@@ -1,36 +1,36 @@
-**Global Airlines Revenues Seen Down by $250 Billion This Year: IATA**\
-`Global airline revenues are seen falling by $250 billion this year, a cut of 44% on 2019 levels, the International Air Transport Association said on Tuesday, as the coronavirus outbreak hits the sector. `\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-iata-airlines.html?searchResultPosition=2
+**Bohemian or Business: Identities Collide in Miami’s Coconut Grove**\
+`The city’s development boom has finally caught up to a lush haven of shade trees and cafes. Some worry the neighborhood growth is too fast.`\
+https://nytimes.com/2020/03/24/business/miami-coconut-grove-development.html?searchResultPosition=2
 
-**General Motors Suspends 2020 Outlook, to Draw Down $16 Billion in Credit**\
-`General Motors on Tuesday suspended its 2020 outlook and said it plans to draw down about $16 billion from its credit facilities in a bid to beef up liquidity amid rising business impact from the fast-spreading coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-gm.html?searchResultPosition=3
+**Recent Commercial Real Estate Transactions**\
+`Recent commercial real estate transactions in New York.`\
+https://nytimes.com/2020/03/24/business/new-york-commercial-real-estate.html?searchResultPosition=3
 
-**Japan Airlines to Slash International Flights by 64% as Coronavirus Dents Demand**\
-`Japan Airlines said on Tuesday it will cut flights on international routes from the country by about 64% between March 29 and April 30, as the coronavirus pandemic has hammers travel demand.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-japan-airlines.html?searchResultPosition=4
+**Exclusive: Citadel Turns 2020 Profit After Spotting Virus Risk Early**\
+`Citadel, the Chicago-based hedge fund giant led by billionaire Ken Griffin, has so far weathered the coronavirus market storm well, turning a slight profit in its flagship Wellington hedge fund for the year through Monday, according to a person familiar with the situation.  `\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-citadel-exclusive.html?searchResultPosition=4
 
-**Refiner Phillips 66 Cuts Spending Forecast by 18%, Commits to Dividend**\
-`Refiner Phillips 66 on Tuesday cut its 2020 spending forecast by about 18% and assured investors their dividend was secure even as the coronavirus outbreak and a price war between Saudi Arabia and Russia threaten the oil market with massive oversupply.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-global-oil-phillips-66.html?searchResultPosition=5
+**Occidental Names Former CEO Stephen Chazen as Non-Executive Chair**\
+`Occidental Petroleum Corp on Tuesday named its former chief executive officer, Stephen Chazen, as non-executive chairman of its board in a bid to end a long and bitter fight with activist investor Carl Icahn.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-occidental-chairman.html?searchResultPosition=5
 
-**Unilever to Protect Workers From Sudden Pay Drop for Up to Three Months**\
-`Consumer goods giant Unilever Plc said on Tuesday it would shield its workforce for up to three months from sudden drop in pay, resulting from market disruptions or an inability to perform their roles during the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-unilever-pay.html?searchResultPosition=6
+**Spirit AeroSystems Temporarily Suspends Boeing-Related Production**\
+`Spirit Aerosystems, Boeing Co's largest supplier, is temporarily suspending production for the airplane maker at many of its facilities in the United States, as the global coronavirus pandemic saps demand across the industry.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-spirit.html?searchResultPosition=6
 
-**UK Manufacturers' Most Pessimistic Since Financial Crisis: CBI**\
-`British manufacturers are the most pessimistic about the outlook than they have been at any time since the global financial crisis more than a decade ago because of the spread of coronavirus, a survey showed on Tuesday.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-britain-economy-manufacturing.html?searchResultPosition=7
+**Ryanair Will Not Operate Flights in April or May**\
+`Ryanair on Tuesday said it does not expect to operate flights in April or May and has offered its aircraft to European governments for rescue or the essential movement of medicines and personal protective equipment.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-ryanair.html?searchResultPosition=7
 
-**Investors Eye Cracks in $4.4 Trillion U.S. ETF Market as Virus Sell-Off Rages**\
-`Wild swings in asset prices have thrown a spotlight on liquidity in corners of the $4.4 trillion market for U.S. exchange-traded funds, which have played a key role for investors in Wall Street's coronavirus-fueled selloff.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-etfs.html?searchResultPosition=8
+**Volkswagen to Halt Production in Russia Due to Supply Shortage From Europe**\
+`Volkswagen will suspend its car production in Russia over a supply shortage caused by the coronavirus outbreak in Europe, Volkswagen Group Rus said on Tuesday. `\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-volkswagen-russia.html?searchResultPosition=8
 
-**U.S. Industries Scramble for Exemptions as State Shutdown Orders Grow**\
-`As several more U.S. states moved to impose stay-at-home orders to limit the spread of the coronavirus, industries from steelmakers to auto dealerships were scrambling for exemptions that would allow them to remain open.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-health-coronavirus-usa-industries.html?searchResultPosition=9
+**March Forex Daily Turnover Hits $2.3 Trillion as Virus Fuels Volatility: CLS**\
+`The meltdown in financial markets over the coronavirus has sparked a huge jump in foreign exchange trading volumes, with average daily turnover so far in March up 27% on February as volatility soared, CLS said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/24/business/24reuters-global-forex-volumes.html?searchResultPosition=9
 
-**Chevron Cuts 2020 Spending, Permian Production Forecasts by 20%**\
-`Chevron Corp said on Tuesday it was lowering its forecasts for spending and Permian production by 20% for the year, and will suspend share buybacks as oil companies find themselves in one of the worst times in decades.`\
-https://nytimes.com/reuters/2020/03/24/business/24reuters-global-oil-chevron.html?searchResultPosition=10
+**Don’t Forget About the Census**\
+`Tuesday: Here’s what you need to know to be counted. But first, an update from Gov. Gavin Newsom.`\
+https://nytimes.com/2020/03/24/us/my2020-census-application.html?searchResultPosition=10
 
