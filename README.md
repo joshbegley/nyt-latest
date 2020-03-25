@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-health-coronavirus-s
 `South Africa's coronavirus cases jumped again to 709, the health minister said Wednesday, as the country with the most cases in Africa prepared to go into lockdown.`\
 https://nytimes.com/aponline/2020/03/25/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=7
 
-**EU Watchdog Says Banks Have Flexibility Over Loan Loss Rule**\
-`A global accounting rule that requires banks to provision for souring loans has enough flexibility to reflect the circumstances of the coronavirus, the European Union's securities watchdog said on Wednesday.`\
+**EU Tells Banks to Be Flexible Over Loan Losses Rule in Epidemic**\
+`Banks have the flexibility to avoid a huge rise in provisioning for non-payment of loans during the coronavirus outbreak, the European Union's securities and banking watchdogs said on Wednesday.`\
 https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-eu-accounts.html?searchResultPosition=8
 
 **Of America and Sacrifice: Is the Country Ready to Step Up?**\
