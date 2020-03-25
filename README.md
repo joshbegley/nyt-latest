@@ -1,40 +1,40 @@
+**I Followed the U.K.’s Advice. Did I Spread Coronavirus?**\
+`The symptoms are not as straightforward as Boris Johnson makes them seem.`\
+https://nytimes.com/2020/03/25/opinion/coronavirus-uk.html?searchResultPosition=1
+
+**What’s on TV Wednesday: ‘Crip Camp’ and ‘Dark Phoenix’**\
+`The documentary “Crip Camp: A Disability Revolution” debuts on Netflix. And “Dark Phoenix” airs on HBO.`\
+https://nytimes.com/2020/03/25/arts/television/whats-on-tv-wednesday-crip-camp-and-dark-phoenix.html?searchResultPosition=2
+
 **Gunmen Attack Sikh Religious Gathering in Kabul; 4 Dead**\
 `Gunmen stormed a religious gathering of Afghanistan's minority Sikhs in their place of worship in the heart of the Afghan capital's old city on Wednesday, killing at least four people, a minority Sikh parliamentarian said.`\
-https://nytimes.com/aponline/2020/03/25/world/asia/ap-as-afghanistan.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/03/25/world/asia/ap-as-afghanistan.html?searchResultPosition=3
 
 **Out of Vital Medication, US Woman Among Those Stuck in Peru**\
 `For Anna, a 33-year-old American woman stranded in a Peruvian hotel room and out of life-saving medication to treat her auto-immune disease, the clock is ticking. `\
-https://nytimes.com/aponline/2020/03/25/us/ap-virus-outbreak-stranded-americans.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/03/25/us/ap-virus-outbreak-stranded-americans.html?searchResultPosition=4
 
 **Stock Markets in Asia Continue Global Surge: Live Updates**\
 `Live updates on stock market and business news during the coronavirus outbreak.`\
-https://nytimes.com/2020/03/25/business/stock-market-today-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/03/25/business/stock-market-today-coronavirus.html?searchResultPosition=5
 
 **Business Fallout: Companies in China See Delays in Reopening**\
 `The spread of the coronavirus that emerged in China in December has dealt an unprecedented shock to the global economy. Here is a look at developments Wednesday:`\
-https://nytimes.com/aponline/2020/03/25/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/03/25/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=6
 
 **Suspect in South Korea Sex Blackmail Case Identified Amid Outcry**\
 `South Korean police took the unusual step of publicly identifying the 24-year-old accused leader of an online sexual blackmail ring after the case lead to a national outcry in a country still focused on battling a coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/25/world/asia/24reuters-southkorea-sexcrimes.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/03/25/world/asia/24reuters-southkorea-sexcrimes.html?searchResultPosition=7
 
 **Tsunami Warnings After Magnitude 7.8 Quake Off Russia's Kuril Islands**\
 `U.S. authorities put out tsunami warnings on Wednesday after an earthquake of magnitude 7.8 struck off Russia's Kuril Islands, but meteorological officials in Japan issued no alerts, although they said there might be slight tidal changes. `\
-https://nytimes.com/reuters/2020/03/25/world/europe/24reuters-russia-quake.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/03/25/world/europe/24reuters-russia-quake.html?searchResultPosition=8
 
 **Asian Shares Jump After Dow Sees Biggest Gain Since 1933**\
 `Shares advanced in Asia on Wednesday after the Dow Jones Industrial Average surged to its best day since 1933 as Congress and the White House neared a deal on injecting nearly $2 trillion of aid into an economy ravaged by the coronavirus.`\
-https://nytimes.com/aponline/2020/03/25/business/bc-financial-markets.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/03/25/business/bc-financial-markets.html?searchResultPosition=9
 
 **Japan Says U.S. President Trump Supports Olympic Delay '100%'**\
 `U.S. President Donald Trump fully supports a delay in the Tokyo Olympics agreed between Japan and the international Olympic panel, a Japanese government spokesman said on Wednesday, citing comments made to Prime Minister Shinzo Abe in a telephone call. `\
-https://nytimes.com/reuters/2020/03/25/sports/olympics/24reuters-health-coronavirus-olympics-japan-usa.html?searchResultPosition=8
-
-**Countdown Switched Off at Tokyo Station Clock**\
-`Passers-by in front of Tokyo Station gathered around a popular Olympics countdown clock to take pictures on Wednesday as it stopped displaying the number of days until the Games after the event was postponed due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/25/sports/olympics/24reuters-health-coronavirus-olympics-countdown.html?searchResultPosition=9
-
-**Now Is Time to Be Positive and Prepare, Says JOC Head**\
-`Japanese Olympic Committee President Yasuhiro Yamashita said on Wednesday the decision to postpone the Tokyo Games due to the coronavirus pandemic came quicker than expected but he wanted to make sure the event was a success after the one-year delay.`\
-https://nytimes.com/reuters/2020/03/25/sports/olympics/24reuters-health-coronavirus-olympics-joc.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/25/sports/olympics/24reuters-health-coronavirus-olympics-japan-usa.html?searchResultPosition=10
 
