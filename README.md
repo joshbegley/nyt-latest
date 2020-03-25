@@ -1,40 +1,40 @@
+**U.S. Senate to Pass Massive Coronavirus Bill on Wednesday: McConnell**\
+`The U.S. Senate will move to pass a massive coronavirus bill on Wednesday aimed at providing economic relief for individuals and companies amid the ongoing outbreak, U.S. Senate Majority Leader Mitch McConnell said.`\
+https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-usa-mcconnell.html?searchResultPosition=1
+
+**Factbox: U.S. Lawmakers Who Tested Positive for the Coronavirus**\
+`Three members of the U.S. Congress have tested positive for the new coronavirus, and more than two dozen others have said they are self-quarantining, even as lawmakers scramble to pass more legislation to help cope with the pandemic. `\
+https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-usa-congress-factbox.html?searchResultPosition=2
+
+**New York City to Close Streets, Ban Contact Sports in Parks to Halt Coronavirus: Governor**\
+`New York City will begin closing streets to traffic and ban close contact sports in city parks to help combat the coronavirus, New York Governor Andrew Cuomo said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-usa-new-york.html?searchResultPosition=3
+
+**U.S. Energy Sector Cutting Spending, Jobs Amid Pandemic: Dallas Fed Survey**\
+`The U.S. energy sector is slashing capital spending and jobs as business activity plunged and the outlook has turned "extremely pessimistic" amid the coronavirus pandemic, a survey by the Dallas Federal Reserve Bank of oil and gas companies showed on Wednesday. `\
+https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-fed-oil.html?searchResultPosition=4
+
+**Swiss Government, Central Bank Throw Money at Virus Shutdown**\
+`The Swiss government and Swiss National Bank (SNB) will begin pouring money from Thursday into a sharply slowing economy hit hard by the coronavirus epidemic.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-swiss.html?searchResultPosition=5
+
+**The Merry-Go-Round Stopped. What Sort of Art Will Emerge?**\
+`The pandemic has not only shut down museums and galleries. It has canceled an entire way of life for contemporary artists — and forces a reconsideration of what all that flying was good for.`\
+https://nytimes.com/2020/03/25/arts/design/coronavirus-digital-artists.html?searchResultPosition=6
+
 **Exclusive: Venezuela in Talks With China Over Support Amid Pandemic, Oil Price Drop-Sources**\
 `Venezuela has opened talks with China over possible financial support to cope with a sharp drop in oil prices and the arrival of the novel coronavirus, four sources familiar with the negotiations said.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-venezuela-china-exclusive.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-venezuela-china-exclusive.html?searchResultPosition=7
 
 **Canada Imposes Mandatory Self-Isolation for Those Returning**\
 `Canada announced Wednesday it is imposing mandatory self-isolation for those returning to Canada under the Quarantine Act. `\
-https://nytimes.com/aponline/2020/03/25/world/ap-cn-virus-outbreak-canada.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/03/25/world/ap-cn-virus-outbreak-canada.html?searchResultPosition=8
 
 **EssilorLuxottica Says Essilor Targeted by Cyberattack**\
 `EssilorLuxottica said on Wednesday Essilor had been subject of a cyberattack on March 21 which disrupted access to some of its group servers and computers.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-essilorluxottica-essilor.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/25/business/25reuters-essilorluxottica-essilor.html?searchResultPosition=9
 
 **Do More to Stop Coronavirus Price Gouging, U.S. States Tell Amazon, Walmart, Facebook**\
 `A group of 32 U.S. states have a message for the nation's leading online platforms: You are not doing enough to stop price gouging amid the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-retailers-states.html?searchResultPosition=4
-
-**Peugeot Restarts Car Production in Virus-Hit Wuhan With Dongfeng**\
-`French automaker Peugeot SA's joint venture in China with Dongfeng Motor Group said on Wednesday it had restarted car production at its plant in Wuhan city, the epicenter of China's coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-psa-dongfeng.html?searchResultPosition=5
-
-**U.S. Stocks Seesaw as Vote Awaited on Stimulus Deal**\
-`U.S stocks seesawed on Wednesday, digesting the previous session's huge rebound, with investors torn as optimism about an imminent $2 trillion coronavirus package was offset by concerned about the lasting economic impact from the pandemic. [.N]`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-usa-markets-analystview.html?searchResultPosition=6
-
-**EU Says Johnson & Johnson's Deal for Takeda Patch May Harm Competition**\
-`EU antitrust regulators have opened a full investigation into Johnson & Johnson's acquisition of Takeda Pharmaceutical's surgical patch product TachoSil, concerned that the deal could lead to reduced choice and higher prices for customers.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-takeda-pharma-m-a-johnson-johnson-eu.html?searchResultPosition=7
-
-**Veterinarians Donate Vital Supplies to Coronavirus Fight**\
-`Veterinary hospitals are donating breathing machines, masks, gowns and other vital equipment and supplies purchased with Fido in mind, but now being redeployed to help doctors fight the spread of COVID-19 among humans. `\
-https://nytimes.com/aponline/2020/03/25/world/ap-virus-outbreak-one-good-thing-vet-ventilators.html?searchResultPosition=8
-
-**Explainer: Who Should Wear a Face Mask, and Do They Stop the Coronavirus?**\
-`Many people across Asia wear face masks to try and protect themselves against COVID-19, the disease caused by the new coronavirus. In Europe and the United States, masks are less commonly worn, but many people are asking: Should they wear them during the pandemic?`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-facemasks-explainer.html?searchResultPosition=9
-
-**As Virus Explodes, World Races to Mask Up**\
-`Spiez Lab, a government-run institute in the Swiss mountains, was set up to protect the nation from nuclear, biological and chemical threats. "For a world without weapons of mass destruction," runs its slogan.`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-masks-insight.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-retailers-states.html?searchResultPosition=10
 
