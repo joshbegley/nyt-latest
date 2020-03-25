@@ -1,40 +1,40 @@
-**Who Let the Dogs Out? A Few Spaniards Defy Coronavirus Lockdown**\
-`Under partial lockdown due to the spiraling coronavirus pandemic, Spaniards are allowed to leave home only for essential outings, walking a dog being one of them.`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-spain-quarantine.html?searchResultPosition=1
+**‘We Have to Do It in a Smart Way,’ Biden Says of Fighting Coronavirus**\
+`Former Vice President Joseph R. Biden Jr. is addressing the country about his strategies for combatting the coronavirus crisis.`\
+https://nytimes.com/video/us/elections/100000007054383/coronavirus-biden.html?searchResultPosition=1
 
-**France Reports 231 More Coronavirus Deaths, Bringing Total to 1,331**\
-`French health authorities reported 231 new deaths from coronavirus on Wednesday, taking the total to 1,331. `\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-france-casualties.html?searchResultPosition=2
+**Computer Chip Makers Seek U.S. Permission to Work During Pandemic**\
+`A group representing major United States semiconductor companies on Wednesday said it was working with federal officials to make clear to state and local officials overseeing lockdowns that chip companies are essential businesses that should continue operations.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-usa-semiconductors.html?searchResultPosition=2
 
-**Technical Help Offered to Fight Virus Must Safeguard Privacy, Rights: WHO**\
-`The World Health Organization is impressed by the offers of technology to help fight the coronavirus, but privacy and human rights must be protected, Michael Ryan, WHO's top emergencies expert said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/25/technology/25reuters-health-coronavirus-who-technology.html?searchResultPosition=3
+**U.S. Coronavirus Stimulus Bill Adds Billions in Support for Farmers**\
+`The U.S. coronavirus stimulus bill that U.S. senators will vote on would add $14 billion to the Agriculture Department's Commodity Credit Corp spending authority, and authorize another $9.5 billion for U.S. farmers hurt by the fast-spreading pandemic, according to a copy of the bill's text.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-usa-farmaid.html?searchResultPosition=3
 
-**'Delivering Coffins Non-Stop': Coronavirus Stalks a Paris Nursing Home**\
-`Outside a Paris retirement home on Wednesday, a director rushed out and told the man delivering a coffin to use a side entrance,  away from prying eyes.`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-france-elderly.html?searchResultPosition=4
+**Watch Live: White House Delivers Coronavirus Update**\
+`The coronavirus task force and President Trump are expected to deliver an update as cases rise across the country.`\
+https://nytimes.com/video/us/politics/100000007053417/coronavirus-update-live.html?searchResultPosition=4
 
-**New Orleans Is Next Coronavirus Epicenter, Catalyst for Spread in South, Experts Say**\
-`New Orleans is on track to become the next coronavirus epicenter in the United States, dashing hopes that less densely populated and warmer-climate cities would not be hit as hard by the pandemic, and that summer months could see it wane.  `\
-https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-usa-neworleans.html?searchResultPosition=5
+**Dayton's Obi Toppin -- AP Player of Year -- Heading to NBA**\
+`Dayton's Obi Toppin is headed to the NBA after leading the Flyers to a 29-2 record and No. 3 ranking as a redshirt sophomore.`\
+https://nytimes.com/aponline/2020/03/25/sports/ncaabasketball/ap-bkc-dayton-toppin.html?searchResultPosition=5
 
-**Mexico Will Receive Cruise Ships, but Fumigate Passengers**\
-`The Mexican government said Wednesday it would continue to receive cruise ships “for humanitarian reasons,” but that passengers would be "individually fumigated" before being taken to airports for return flights to their home countries. `\
-https://nytimes.com/aponline/2020/03/25/world/americas/ap-lt-virus-outbreak-mexico-cruises.html?searchResultPosition=6
+**Governor Urges Falwell to Rethink Welcoming Students**\
+`In light of the coronavirus pandemic, Virginia's governor asked Liberty University President Jerry Falwell Jr. on Wednesday to reconsider his decision to welcome students back to the Lynchburg campus this week after their spring break. `\
+https://nytimes.com/aponline/2020/03/25/us/ap-us-virus-outbreak-liberty-university.html?searchResultPosition=6
 
-**Darius Swann, Who Fought for School Integration, Dies at 95**\
-`The Rev. Darius L. Swann, whose challenge to the notion of segregated public schools helped spark the use of busing to integrate schools across the country, has died at his Virginia home. He was 95.`\
-https://nytimes.com/aponline/2020/03/25/us/ap-us-obit-darius-swann.html?searchResultPosition=7
+**U.S. Auto Sales in States With Coronavirus Lockdown Orders to Drop 80%: Analysts**\
+`Vehicle sales in U.S. states that implemented lockdown orders to curb the spread of coronavirus will drop 80% or more, analysts said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-usa-autos.html?searchResultPosition=7
 
-**Mylan Waives Exclusive U.S. Distribution Rights for Potential COVID-19 Therapy**\
-`U.S. drugmaker Mylan NV said on Wednesday it had waived its exclusive U.S. distribution rights to its generic version of HIV treatment Kaletra, which is currently being tested against the coronavirus. `\
-https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-mylan-nl.html?searchResultPosition=8
+**U.S. Set to Grant Automakers a Lifeline -- but No Bailout**\
+`The $2 trillion economic rescue package before the U.S. Senate on Wednesday would send the federal government to the auto industry's rescue for the second time in a dozen years.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-autos-funding.html?searchResultPosition=8
 
-**Sanders Is Ready to Debate Again. Biden Says ‘We’ve Had Enough Debates.’**\
-`“I think we should get on with this,” Joe Biden said, dismissing the idea that another debate is needed with his rival, Senator Bernie Sanders.`\
-https://nytimes.com/2020/03/25/us/politics/joe-biden-democrats-2020.html?searchResultPosition=9
+**Coronavirus-Stricken U.S. Companies Pop Poison Pills**\
+`More U.S. companies are rushing to adopt so-called poison pills,  dusting off a nearly 40-year-old takeover defense tool to ward off hostile bidders and activist shareholders eager to exploit the coronavirus-induced market sell-off.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-poisonpills-analysis.html?searchResultPosition=9
 
-**Brazil Trial of Malaria Drug for Coronavirus May Yield Results in Two Weeks: Doctor**\
-`Initial results from a Brazilian clinical trial of a malaria drug and antibiotic combination to treat coronavirus could come within two weeks, a lead doctor said on Wednesday, but urged caution about the drug U.S. President Donald Trump called a potential "game changer."`\
-https://nytimes.com/reuters/2020/03/25/world/americas/25reuters-health-coronavirus-brazil-drug.html?searchResultPosition=10
+**Softbank-Backed Ola Seeks Relief for Drivers and Taxi Firms in India**\
+`Indian ride-hailing company Ola, backed by Softbank Group, wants loan waivers for drivers and a delay in tax payments to make up for coronavirus-related lost income, according to a source and document seen by Reuters.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-india-ola.html?searchResultPosition=10
 
