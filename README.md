@@ -1,40 +1,40 @@
-**Lawmakers Question Start-Ups on At-Home Kits for Coronavirus Testing**\
-`The makers of unauthorized kits designed for consumers to collect their own saliva or throat swabs faced scrutiny from Congress.`\
-https://nytimes.com/2020/03/25/technology/coronavirus-home-test.html?searchResultPosition=1
+**Nike Shares Rise as Wall Street Lauds Recovery in China Sales**\
+`Nike Inc shares rose 8% on Wednesday after the sportswear maker's impressive recovery in China sales offered hope that it was prepared to cope with the financial fallout of the coronavirus pandemic in other markets.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-nike-stocks.html?searchResultPosition=1
 
-**Ford Recalls 268K Cars in North America to Fix Door Latches**\
-`Ford is recalling more than 268,000 cars in North America to fix doors that could open unexpectedly or may not close.`\
-https://nytimes.com/aponline/2020/03/25/business/ap-us-ford-recall.html?searchResultPosition=2
+**Occidental to Add Three of Icahn's Associates to Board**\
+`Occidental Petroleum Corp said on Wednesday it would add to its board three of activist investor Carl Icahn's associates, ending a long and bitter fight that began after its ill-timed acquisition of rival Anadarko Petroleum.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-occidental-icahn.html?searchResultPosition=2
 
-**Over Hectic Weekend, New York Factories Retool to Make Coronavirus Face Shields for Nurses**\
-`It had never occurred to Michael Bednark to make face shields at his Brooklyn factory before last week, but by Sunday he was carrying a prototype into New York City's health department headquarters, to be appraised by city officials desperate for resources.`\
-https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-usa-shields.html?searchResultPosition=3
+**IATA Says Air Freight Traffic Fell Around 10% in February**\
+`Figures to be published next week will show global air freight traffic fell around 10% in February, putting it on course for a 15-20% drop for the year as a whole, an official at the International Air Transport Association said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-airlines-freight.html?searchResultPosition=3
 
-**UK PM Johnson Says Should Be Possible to Get More Trains on London Underground**\
-`British Prime Minister Boris Johnson said on Wednesday it should be possible to get more trains on the London Underground to tackle overcrowding happening because of a reduced service during the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-britain-underground.html?searchResultPosition=4
+**Coronavirus Exposes Uber, Lyft Drivers' Lack of Safety Net**\
+`As independent contractors, U.S. ride-hail drivers for Uber and Lyft benefited from soaring trip demand and flexible work hours. `\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-uber-lyft.html?searchResultPosition=4
 
-**UK Starts Coronavirus Information Service on WhatsApp**\
-`Britain has begun a coronavirus information campaign on WhatsApp to help combat the spread of misinformation.`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-britain-whatsapp.html?searchResultPosition=5
+**Johnson Says UK Doing Everything It Can to Help Aviation Industry**\
+`The British government has not washed its hands of any sector and is doing everything it can to help the aviation industry through the coronavirus crisis, Prime Minister Boris Johnson said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirs-britain-johnson-airlines.html?searchResultPosition=5
 
-**German Distillery Fights Coronavirus by Turning Alcohol Into Disinfectant**\
-`A German distillery is giving away pure alcohol it normally uses to make liquor to hospitals and clinics desperate for disinfectants now in short supply due to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-germany-disinfectant.html?searchResultPosition=6
+**Stellenbosch Triennale, a Bold Experiment**\
+`In a South African city emblematic of wealth and privilege, a program of radical art from the whole continent seeks to confront and heal.`\
+https://nytimes.com/2020/03/25/arts/design/stellenbosch-triennale.html?searchResultPosition=6
 
-**Obalon Therapeutics Explores Strategic Alternatives as Coronavirus Hits**\
-`Maker of weight-loss balloons Obalon Therapeutics said on Wednesday it was exploring financial and strategic alternatives due to the uncertainty regarding COVID-19 and restrictions on non-essential medical procedures, which have had a direct impact on its business.    `\
-https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-obalon.html?searchResultPosition=7
+**U.S. Senate Coronavirus Bill to Help Airlines With Grants: CNBC**\
+`U.S. airlines would receive direct grants and would not be able to lay off employees for a set time under the coronavirus relief legislation agreed to by the U.S. Senate on Wednesday, according to a CNBC report.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-usa-bill.html?searchResultPosition=7
 
-**British 21-Year-Old With No Pre-existing Conditions Dies From Coronavirus-Sun**\
-`A British 21-year-old woman with no pre-existing conditions has died from coronavirus, The Sun newspaper reported.`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-britain-victim.html?searchResultPosition=8
+**Exclusive: UK Industry Expects Ventilator Production Go-Ahead on Wednesday: Sources**\
+`British industry expects the government to give the go-ahead to an emergency ventilator production plan on Wednesday that will see a number of firms join forces to tackle the coronavirus outbreak, three sources told Reuters.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-britain-ventilators-exclusive.html?searchResultPosition=8
 
-**Tokyo Asks People to Stay at Home on Weekend as Cases Rise**\
-`Tokyo asked its residents on Wednesday to stay home this weekend to slow the spread of the coronavirus after new daily cases in the Japanese capital rose to 41.`\
-https://nytimes.com/aponline/2020/03/25/world/asia/ap-virus-outbreak-japan.html?searchResultPosition=9
+**Novel Coronavirus Unlikely to Disappear in Summer, EU Report**\
+`The new coronavirus is unlikely to disappear in summer, the European Union agency for disease control said on Wednesday, in a stark warning that the epidemic could continue when temperatures rise unless measures to hamper it are applied.`\
+https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-eu-ecdc.html?searchResultPosition=9
 
-**Putin Delays Constitutional Vote Allowing Him to Keep Power**\
-`Russian President Vladimir Putin has postponed a nationwide vote on proposed constitutional amendments that include a change that would allow him to seek another term in power.`\
-https://nytimes.com/aponline/2020/03/25/world/europe/ap-eu-russia-putin.html?searchResultPosition=10
+**Spain's Coronavirus Death Toll Surpasses That of China**\
+`Spain registered an overnight jump of 738 deaths from coronavirus on Wednesday, pushing the death toll above that of China, where the disease originated, for the first time as the country struggles to cope with soaring numbers of infections.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-spain.html?searchResultPosition=10
 
