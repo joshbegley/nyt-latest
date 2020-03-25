@@ -18,7 +18,7 @@ https://nytimes.com/video/us/100000007046207/coronavirus-innovative-equipment.ht
 `A suspected tornado heavily damaged a store and other structures Tuesday in northern Mississippi and Alabama as a severe storm system crossed the Deep South, authorities said. `\
 https://nytimes.com/aponline/2020/03/24/us/ap-us-severe-weather-south-.html?searchResultPosition=5
 
-**How Will the Tech Industry Fare in the Coronavirus Crisis?**\
+**Will Our Most Important Industry Survive the Coronavirus?**\
 `Better than you might think. Governments need Big Tech now more than ever.`\
 https://nytimes.com/2020/03/24/opinion/tech-companies-covid.html?searchResultPosition=6
 
