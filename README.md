@@ -8,7 +8,7 @@ https://nytimes.com/aponline/2020/03/25/us/politics/ap-us-virus-outbreak-trump-e
 
 **How to Get Health Insurance if You’re Worried About Coronavirus or Have Lost Your Job**\
 `There are more options for getting coverage than in past economic crises.`\
-https://nytimes.com/2020/03/25/upshot/coronavirus-health-insurance-faq.html?searchResultPosition=3
+https://nytimes.com/article/coronavirus-health-insurance-faq.html?searchResultPosition=3
 
 **With Church Bells and Candles, France Honors Virus Victims**\
 `From famed Gothic cathedrals to modest village churches, places of worship around France rang their bells in collective prayer Wednesday for people who have died and those who are helping keep the sick alive during the coronavirus pandemic.`\
