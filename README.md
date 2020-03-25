@@ -1,40 +1,40 @@
+**House Speaker Pelosi Says Democrats Will Review Coronavirus Bill**\
+`House of Representatives Speaker Nancy Pelosi said on Wednesday the coronavirus relief legislation agreed in the U.S. Senate goes a long way toward meeting the needs of the American people and House Democrats will now review the bill.`\
+https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-usa-pelosi.html?searchResultPosition=1
+
+**Federer Donates One Million Swiss Francs to Vulnerable Families**\
+`Roger Federer has joined the list of sports stars helping out the needy during the coronavirus pandemic, with the former world number one and his wife donating one million Swiss Francs ($1.02 million) to vulnerable families in his native Switzerland.`\
+https://nytimes.com/reuters/2020/03/25/sports/tennis/25reuters-health-coronavirus-tennis-federer.html?searchResultPosition=2
+
+**Schumer: Help for Health System, Local Governments in Coronavirus Package**\
+`Senate Democratic leader Chuck Schumer said on Wednesday the coronavirus legislation deal agreed to in the Senate includes $130 billion for the U.S. health care system and $150 billion to help state and local governments deal with the pandemic.`\
+https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-usa-schaeuble.html?searchResultPosition=3
+
+**U.S. Tells Saudi Arabia It Has Opportunity to Reassure Markets Amid Coronavirus Uncertainty: State Department**\
+`U.`\
+https://nytimes.com/reuters/2020/03/25/world/middleeast/25reuters-health-coronavirus-usa-saudi.html?searchResultPosition=4
+
+**Canadian Banks Reward Frontline Employees as Coronavirus Spreads**\
+`Canadian banks on Tuesday followed U.S. heavyweights in offering additional daily payments, onetime bonuses and extra paid days off to customer-service employees required to work in branches and call centers during the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-canada-banks.html?searchResultPosition=5
+
+**UK to Detail Coronavirus Aid for Self-Employed on Thursday: Sky News**\
+`British finance minister Rishi Sunak will give details on Thursday of promised assistance for self-employed workers who lose income as a result of the coronavirus, broadcaster Sky News reported on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-britain-selfemployment.html?searchResultPosition=6
+
+**U.S. Durable Goods Orders Increase Solidly Before Coronavirus**\
+`New orders for long-lasting U.S. manufactured goods unexpectedly rose in February, but are set to decline as strict measures to contain the coronavirus pandemic sap demand and push the economy into recession. `\
+https://nytimes.com/reuters/2020/03/25/us/25reuters-usa-economy-durablegoods.html?searchResultPosition=7
+
+**Aetna Waives Patient Payments for Coronavirus Hospital Stays**\
+`One of the nation’s biggest health insures is waiving patient payments for hospital stays tied to the coronavirus.`\
+https://nytimes.com/aponline/2020/03/25/business/ap-us-virus-outbreak-health-insurers.html?searchResultPosition=8
+
 **Nike Shares Rise as Wall Street Lauds Recovery in China Sales**\
 `Nike Inc shares rose 8% on Wednesday after the sportswear maker's impressive recovery in China sales offered hope that it was prepared to cope with the financial fallout of the coronavirus pandemic in other markets.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-nike-stocks.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/03/25/business/25reuters-nike-stocks.html?searchResultPosition=9
 
 **Occidental to Add Three of Icahn's Associates to Board**\
 `Occidental Petroleum Corp said on Wednesday it would add to its board three of activist investor Carl Icahn's associates, ending a long and bitter fight that began after its ill-timed acquisition of rival Anadarko Petroleum.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-occidental-icahn.html?searchResultPosition=2
-
-**IATA Says Air Freight Traffic Fell Around 10% in February**\
-`Figures to be published next week will show global air freight traffic fell around 10% in February, putting it on course for a 15-20% drop for the year as a whole, an official at the International Air Transport Association said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-airlines-freight.html?searchResultPosition=3
-
-**Coronavirus Exposes Uber, Lyft Drivers' Lack of Safety Net**\
-`As independent contractors, U.S. ride-hail drivers for Uber and Lyft benefited from soaring trip demand and flexible work hours. `\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-uber-lyft.html?searchResultPosition=4
-
-**Johnson Says UK Doing Everything It Can to Help Aviation Industry**\
-`The British government has not washed its hands of any sector and is doing everything it can to help the aviation industry through the coronavirus crisis, Prime Minister Boris Johnson said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirs-britain-johnson-airlines.html?searchResultPosition=5
-
-**Stellenbosch Triennale, a Bold Experiment**\
-`In a South African city emblematic of wealth and privilege, a program of radical art from the whole continent seeks to confront and heal.`\
-https://nytimes.com/2020/03/25/arts/design/stellenbosch-triennale.html?searchResultPosition=6
-
-**U.S. Senate Coronavirus Bill to Help Airlines With Grants: CNBC**\
-`U.S. airlines would receive direct grants and would not be able to lay off employees for a set time under the coronavirus relief legislation agreed to by the U.S. Senate on Wednesday, according to a CNBC report.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-usa-bill.html?searchResultPosition=7
-
-**Exclusive: UK Industry Expects Ventilator Production Go-Ahead on Wednesday: Sources**\
-`British industry expects the government to give the go-ahead to an emergency ventilator production plan on Wednesday that will see a number of firms join forces to tackle the coronavirus outbreak, three sources told Reuters.`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-britain-ventilators-exclusive.html?searchResultPosition=8
-
-**Novel Coronavirus Unlikely to Disappear in Summer, EU Report**\
-`The new coronavirus is unlikely to disappear in summer, the European Union agency for disease control said on Wednesday, in a stark warning that the epidemic could continue when temperatures rise unless measures to hamper it are applied.`\
-https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-eu-ecdc.html?searchResultPosition=9
-
-**Spain's Coronavirus Death Toll Surpasses That of China**\
-`Spain registered an overnight jump of 738 deaths from coronavirus on Wednesday, pushing the death toll above that of China, where the disease originated, for the first time as the country struggles to cope with soaring numbers of infections.`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-spain.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/25/business/25reuters-occidental-icahn.html?searchResultPosition=10
 
