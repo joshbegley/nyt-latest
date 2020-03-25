@@ -1,4 +1,4 @@
-**Man Suspected of Planning Attack on Missouri Hospital Is Killed, F.B.I. Says**\
+**Man Suspected of Planning Attack on Missouri Hospital Is Killed, Officials Says**\
 `According to officials, the man had expressed racist and anti-government sentiments.`\
 https://nytimes.com/2020/03/25/us/politics/coronavirus-fbi-shooting.html?searchResultPosition=2
 
