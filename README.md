@@ -1,40 +1,40 @@
-**EU Can Cover Only 10% of Demand for Medical Gear, Ventilators With Standard Supply: Document**\
-`European Union states are able to address only 10% of current demand for personal protective equipment and other medical devices, such as ventilators, against the coronavirus using traditional supply chains, an internal EU document showed on Wednesday.`\
-https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-eu-supplies.html?searchResultPosition=1
+**Turn Off the Microwave to Boost Wifi, Says UK's Media Regulator**\
+`People should avoid using the microwave at the same time as they are making video calls, watching HD videos or doing something important online because the ovens can slow wifi signals, Britain's media regulator Ofcom said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/technology/25reuters-health-coronavirus-britain-broadband.html?searchResultPosition=1
 
-**Tripoli Officials Say Clashes Escalating Over Libyan Capital**\
-`Clashes between rival Libyan forces for control of Tripoli escalated on Wednesday as militias allied with the U.N.-supported government based in the country's capital launched an offensive on a military base held by their rivals, officials said.`\
-https://nytimes.com/aponline/2020/03/25/world/middleeast/ap-ml-libya.html?searchResultPosition=2
+**On the Road Through a Pandemic, Some Truckers Fear for Their Lives**\
+`At a truck stop here, a driver sprays his shoes with disinfectant to protect himself and his partner from coronavirus, another laughs and sees no threat, while a veteran trucker says he's heading for the hills, in fear for his life.`\
+https://nytimes.com/reuters/2020/03/25/world/americas/25reuters-health-coronavirus-usa-truckers.html?searchResultPosition=2
 
-**On Politics: We Have a Deal**\
-`An aid bill advances, and President Trump wants to jump-start the economy: This is your morning tip sheet.`\
-https://nytimes.com/2020/03/25/us/politics/congress-coronavirus-trump.html?searchResultPosition=3
+**Bach Opens Door to Spring Tokyo Games, Says Will Require Sacrifice and Compromise**\
+`The rescheduled Tokyo 2020 Olympics will require sacrifices and compromises by all involved, IOC chief Thomas Bach said on Wednesday, before predicting the completion of "a beautiful jigsaw puzzle and wonderful Olympic Games".`\
+https://nytimes.com/reuters/2020/03/25/sports/soccer/25reuters-health-coronavirus-olympics-bach.html?searchResultPosition=3
 
-**Israeli Parliament Speaker Quits, Easing Constitutional Turmoil**\
-`The resignation of Yuli Edelstein, an ally of Prime Minister Benjamin Netanyahu, will allow opposition lawmakers to take control of the legislative process.`\
-https://nytimes.com/2020/03/25/world/middleeast/israel-parliament-speaker-yuli-edelstein.html?searchResultPosition=4
+**French 2019 Public Deficit, Debt Lower Than Expected: INSEE**\
+`France's public deficit and debt were slightly lower last year than the government had expected, the INSEE official stats agency said on Wednesday, offering some relief among all the economic gloom around the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-france-budget.html?searchResultPosition=4
 
-**Israeli Parliament Speaker, a Netanyahu Ally, Resigns in Clash With Supreme Court**\
-`The speaker of Israel's parliament, an ally of Prime Minister Benjamin Netanyahu, resigned on Wednesday, sharpening a battle with the Supreme Court over its concerns that democracy could be a casualty of the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/03/25/world/middleeast/25reuters-israel-politics.html?searchResultPosition=5
+**Target Withdraws Forecasts, Curbs Spending to Meet Virus-Related Demand**\
+`Target Corp on Wednesday withdrew its financial outlook and said it would scale back on planned investments to focus on meeting surging demand as Americans stock up on essentials and stay home to slow the spread of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-target.html?searchResultPosition=5
 
-**Britain's Prince Charles Tests Positive for New Coronavirus**\
-`Prince Charles, the heir to the British throne, has tested positive for the new coronavirus.`\
-https://nytimes.com/aponline/2020/03/25/world/europe/ap-eu-britain-oubreak-prince-charles.html?searchResultPosition=6
+**Britain's Prince Charles Tests Positive for Coronavirus**\
+`Prince Charles, the heir to the British throne, has tested positive for coronavirus, a spokeswoman said.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-britain-royals.html?searchResultPosition=6
 
-**DealBook: When to Restart the Economy?**\
-`Wall Street executives have warned the Trump administration of another Great Depression if Americans don’t get back to work soon.`\
-https://nytimes.com/2020/03/25/business/dealbook/trump-coronavirus-easter.html?searchResultPosition=7
+**Olympic Postponement May Be Blessing for Busy Calendar**\
+`The postponement of the Tokyo Olympics has disappointed athletes around the world but, if the coronavirus pandemic eases over the next few months, it could turn out to be a blessing for the tennis world.`\
+https://nytimes.com/reuters/2020/03/25/sports/olympics/25reuters-health-coronavirus-tennis.html?searchResultPosition=7
 
-**Exclusive: India Likely to Unveil $20 Billion-Plus Stimulus Package to Tackle Coronavirus Downturn-Sources**\
-`India is likely to agree an economic stimulus package of more than 1.5 trillion rupees ($19.6 billion) to fight a downturn in the country that is currently locked down to stem the spread of coronavirus, two sources familiar with the matter told Reuters.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-india-exclusive.html?searchResultPosition=8
+**New York’s Sharp Rise in Cases Becomes Federal Focus: Live Updates**\
+`The White House said that anyone who left New York recently should self-quarantine at home for 14 days.`\
+https://nytimes.com/2020/03/25/nyregion/coronavirus-new-york-update.html?searchResultPosition=8
 
-**10 Things to Know for Today**\
-`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today:`\
-https://nytimes.com/aponline/2020/03/25/us/ap-10-things-to-know-today.html?searchResultPosition=9
+**U.S. Companies, Labs Rush to Produce Blood Test for Coronavirus Immunity**\
+`As the United States works overtime to screen thousands for the novel coronavirus, a new blood test offers the chance to find out who may have immunity - a potential game changer in the battle to contain infections and get the economy back on track.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-immune-test-insight.html?searchResultPosition=9
 
-**Delivery Drivers Face Pandemic Without Sick Pay, Insurance, Sanitizer**\
-`On his delivery route through Orange County, California, Joseph Alvarado made 153 stops one day last week for Amazon.com Inc, touching the inside and outside of his van, more than 225 packages, and dozens of customers’ doors and gates.`\
-https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-delivery-drivers-insight.html?searchResultPosition=10
+**Spain Registers More Than 700 Deaths From Coronavirus Overnight**\
+`Spain registered 738 fatalities from the coronavirus over the past 24 hours in the steepest increase of the death toll since the epidemic hit the country, the health ministry reported on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-spain-tally.html?searchResultPosition=10
 
