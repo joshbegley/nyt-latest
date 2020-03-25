@@ -1,40 +1,40 @@
-**Emerging Market Turmoil May Bring FX Controls Back on Radar**\
-`The coronavirus pandemic and oil price collapse have made emerging markets a lightning rod for volatile capital flows, raising the question whether currency controls might creep back on the radar of some of the worst-hit countries.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-emerging-controls-analysis.html?searchResultPosition=1
+**Television Audiences Surge to 12-Month Highs as Coronavirus Keeps Americans Home**\
+`From family drama "This Is Us" to crime series "NCIS," audiences are flocking to television shows in numbers unseen for up to a year as coronavirus shutdowns and social distancing keeps millions of Americans at home.`\
+https://nytimes.com/reuters/2020/03/25/arts/25reuters-health-coronavirus-television.html?searchResultPosition=1
 
-**When Will Virus-Hit Markets Heal? 12 Charts to Monitor**\
-`Assessing the longer-term financial impact of the coronavirus spread worldwide now hinges on the success of lockdowns in containing the pandemic and trillions of dollar of support in easing the burden, thereby limiting the duration of the deep freeze and hastening any rebound. `\
-https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-markets.html?searchResultPosition=2
+**Biden Calls Trump's Easter Back-To-Business Goal 'Catastrophic'**\
+`Democratic presidential candidate Joe Biden said on Wednesday that potential efforts by President Donald Trump to re-open American businesses in time for the Easter holiday could be "catastrophic."`\
+https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-usa-election-biden.html?searchResultPosition=2
 
-**Exclusive: Pentagon Orders Halt to Overseas Movement for U.S. Forces for Up to 60 Days Over Coronavirus**\
-`Defense Secretary Mark Esper has issued a stop movement order to the U.S. military halting all travel and movement abroad for up to 60 days in an effort to limit the spread of the coronavirus through the ranks, Esper told Reuters on Wednesday.`\
-https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-health-coronavirus-usa-pentagon.html?searchResultPosition=3
+**Netflix Says It Has Fixed Outage That Hit Some in U.S., UK**\
+`Streaming service Netflix Inc has fixed a temporary outage that affected some users in the United States and United Kingdom on Wednesday, the company said.`\
+https://nytimes.com/reuters/2020/03/25/technology/25reuters-netflix-outages.html?searchResultPosition=3
 
-**U.S. Military Hikes Base Security Worldwide Over Coronavirus Spread**\
-`The U.S. military announced on Wednesday it was elevating its health-related security level at bases worldwide over the spread of the coronavirus, as it acknowledged the persistent growth in the rate of infections across the force.`\
-https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-usa-pentagon-security.html?searchResultPosition=4
+**Three Republicans Call for Layoff Language Fix Before Senate Coronavirus Bill Vote**\
+`Three Republican U.S. senators on Wednesday said the Senate should not vote on a $2 trillion coronavirus stimulus bill until legislative language that they say would encourage layoffs is fixed or fresh guidance issued from the Labor Department.`\
+https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-usa-layoffs.html?searchResultPosition=4
 
-**Coronavirus Delivers 'Body Blow' to Colorado's Ski Industry**\
-`Ski resorts across the West that were shut down amid coronavirus fears are grappling with an economic “body blow" at a time when they normally would be welcoming hoards of spring break revelers. `\
-https://nytimes.com/aponline/2020/03/25/business/ap-us-virus-outbreak-colorado-ski-towns.html?searchResultPosition=5
+**Virus Bill Sends $400 Million to Help States With Elections**\
+`States could receive $400 million in federal funds to help them navigate the significant disruption to U.`\
+https://nytimes.com/aponline/2020/03/25/us/politics/ap-us-virus-outbeak-elections.html?searchResultPosition=5
 
-**‘We Have to Do It in a Smart Way,’ Biden Says of Fighting Coronavirus**\
-`Former Vice President Joseph R. Biden Jr. is addressing the country about his strategies for combatting the coronavirus crisis.`\
-https://nytimes.com/video/us/elections/100000007054383/coronavirus-biden.html?searchResultPosition=6
+**What Do Children Have to Say About Learning From Home?**\
+`We would like to hear from students about their experiences with remote learning, including what they like and what they don’t.`\
+https://nytimes.com/2020/03/25/us/school-canceled-coronavirus.html?searchResultPosition=6
 
-**Computer Chip Makers Seek U.S. Permission to Work During Pandemic**\
-`A group representing major United States semiconductor companies on Wednesday said it was working with federal officials to make clear to state and local officials overseeing lockdowns that chip companies are essential businesses that should continue operations.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-usa-semiconductors.html?searchResultPosition=7
+**Factbox: How to Safely 'Reopen' the Consumer-Driven U.S. Economy**\
+`President Donald Trump said this week he hopes to "reopen" the U.S. economy by Easter Sunday, which is April 12, despite a worsening coronavirus outbreak across the country.`\
+https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-usa-reopen-factbox.html?searchResultPosition=7
 
-**U.S. Coronavirus Stimulus Bill Adds Billions in Support for Farmers**\
-`The U.S. coronavirus stimulus bill that U.S. senators will vote on would add $14 billion to the Agriculture Department's Commodity Credit Corp spending authority, and authorize another $9.5 billion for U.S. farmers hurt by the fast-spreading pandemic, according to a copy of the bill's text.`\
-https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-usa-farmaid.html?searchResultPosition=8
+**Ugandan Pop Star Bobi Wine Records Song to Beat Coronavirus**\
+`A Ugandan musician and political challenger to the country's aging leader released a song https://www.youtube.com/watch?v=PUHrck2g7Ic&feature=youtu.be on Wednesday to help efforts to stem the spread of coronavirus in the east African nation.`\
+https://nytimes.com/reuters/2020/03/25/arts/25reuters-health-coronavirus-uganda-music.html?searchResultPosition=8
 
-**Watch Live: White House Delivers Coronavirus Update**\
-`The coronavirus task force and President Trump are expected to deliver an update as cases rise across the country.`\
-https://nytimes.com/video/us/politics/100000007053417/coronavirus-update-live.html?searchResultPosition=9
+**Coronavirus Downturn Will Be Worse Than 2008, WTO Says**\
+`The World Trade Organization's chief said on Wednesday that projections show the economic downturn and job losses caused by the coronavirus pandemic would be worse than the 2008 recession.`\
+https://nytimes.com/reuters/2020/03/25/technology/25reuters-health-coronavirus-trade.html?searchResultPosition=9
 
-**Dayton's Obi Toppin -- AP Player of Year -- Heading to NBA**\
-`Dayton's Obi Toppin is headed to the NBA after leading the Flyers to a 29-2 record and No. 3 ranking as a redshirt sophomore.`\
-https://nytimes.com/aponline/2020/03/25/sports/ncaabasketball/ap-bkc-dayton-toppin.html?searchResultPosition=10
+**The Show Won't Go On: Tony Awards for Broadway Theater Postponed Indefinitely**\
+`The annual Tony Awards ceremony celebrating the best in Broadway theater was postponed indefinitely on Wednesday, the latest big cultural event to fall victim to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-tonys.html?searchResultPosition=10
 
