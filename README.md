@@ -1,36 +1,36 @@
-**Coronavirus Briefing: What Happened Today**\
-`A $2 trillion package to help the U.S. ride out the pandemic is expected to pass quickly in both houses of Congress.`\
-https://nytimes.com/2020/03/25/us/coronavirus-today.html?searchResultPosition=2
+**U.S. Says 50,000 Americans Abroad May Need Repatriation Help Amid Coronavirus**\
+`The U.S. State Department said on Wednesday it was tracking 50,000 Americans abroad it said might seek help to return to the United States, straining the department's resources as it seeks to arrange travel around the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-usa-travel.html?searchResultPosition=2
 
-**Trump Wants to ‘Reopen America.’ Here’s What Happens if We Do.**\
-`Many could die if we ease up too soon.`\
-https://nytimes.com/interactive/2020/03/25/opinion/coronavirus-trump-reopen-america.html?searchResultPosition=3
+**Cairo, the City That Never Sleeps, Shuts for Coronavirus Night-Time Curfew**\
+`Egypt and its capital Cairo, a mega-city home to some 20 million people, shut down on Wednesday evening as authorities launched a night-time curfew to tackle the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/25/world/middleeast/25reuters-health-coronavirus-egypt.html?searchResultPosition=3
 
-**Virus Has Brazil's Bolsonaro Facing Governor ‘Insurrection’**\
-`Brazil's governors on Wednesday rebelled against President Jair Bolsonaro’s call for life to return to pre-coronavirus normalcy, saying his proposal to reopen schools and businesses runs counter to recommendations from health experts and endangers Latin America’s largest population. `\
-https://nytimes.com/aponline/2020/03/25/world/americas/ap-lt-virus-outbreak-brazil-bolsonaro.html?searchResultPosition=4
+**Shut by Coronavirus, London Zoo Seeks Donations to Safeguard Animals**\
+`The world's oldest zoo is shut to the public for the first time since World War Two as London locks down because of the coronavirus pandemic, but for the roughly 18,000 animals housed there, life must go on.`\
+https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-britan-zoo.html?searchResultPosition=4
 
-**Judge: Tekashi 6ix9ine Probably Belongs at Home, Not Jail**\
-`The judge who sentenced the rapper Tekashi 6ix9ine to prison said Wednesday he would have ordered home confinement instead if he had known about the coronavirus in December.`\
-https://nytimes.com/aponline/2020/03/25/us/ap-us-tekashi-6ix9ine.html?searchResultPosition=5
+**Coronavirus Cases in Ireland Top 1,500, Two More Deaths**\
+`The total confirmed cases of coronavirus in Ireland rose to 1,564 on Wednesday from 1,329 a day earlier, with two more deaths reported to bring the number of fatalities to nine, the health department said.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-ireland-cases.html?searchResultPosition=5
 
-**Trump Gets a Bump**\
-`He’s making overly optimistic promises for the country, but new polling is promising for him.`\
-https://nytimes.com/2020/03/25/us/politics/trump-coronavirus-polling.html?searchResultPosition=6
+**Stimulus Money to Protect Elections Falls Short, Critics Say**\
+`State officials and voting rights advocates say the $400 million included in the stimulus package to safeguard elections is far less than the amount states will need to implement voting by mail across the nation.`\
+https://nytimes.com/2020/03/25/us/coronavirus-voting-stimulus.html?searchResultPosition=6
 
-**New Zealand Mosque Shooter Changes Plea to Guilty**\
-`One year after killing 51 worshipers at two Christchurch mosques, an Australian white supremacist accused of the slaughter on Thursday changed his plea to guilty. `\
-https://nytimes.com/aponline/2020/03/25/world/ap-new-zealand-mosque-shootings.html?searchResultPosition=7
+**No More Tummy Tucks: U.S. Plastic Surgeons Idled by Coronavirus Offer Help**\
+`Park Avenue plastic surgeon Dr. Douglas Senderoff usually performs tummy tucks and liposuction for well-heeled New Yorkers.`\
+https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-usa-plasticsurgeons.html?searchResultPosition=7
 
-**After the Lockdown, Fear and Chaos in India**\
-`As panic about the virus escalates, the middle and upper classes are hoarding food, supplies and medicines without a thought for the millions of poor who stand to starve and die.`\
-https://nytimes.com/2020/03/25/opinion/india-coronavirus-lockdown.html?searchResultPosition=8
+**Babcock Says to Design and Build Thousands of Ventilators for UK**\
+`British engineer Babcock International said on Wednesday it had joined forces with a leading medical equipment company to design and supply thousands of critical care ventilators to Britain's publicly funded health service.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-britain-ventilators-babcock.html?searchResultPosition=8
 
-**‘People Are Dying’: 72 Hours Inside a N.Y.C. Hospital Battling Coronavirus**\
-`An emergency room doctor in Elmhurst, Queens, gives a rare look inside a hospital at the center of the coronavirus pandemic. “We don’t have the tools that we need.”`\
-https://nytimes.com/video/nyregion/100000007052136/coronavirus-elmhurst-hospital-queens.html?searchResultPosition=9
+**Spain's Grifols to Test Plasma Therapy for COVID-19 With U.S. FDA**\
+`Spain's Grifols has agreed to work with the U.S. Food and Drug Administration and other agencies to gather plasma from patients who have recovered from COVID-19 and test potential therapies for the disease, the pharmaceutical firm said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-grifols.html?searchResultPosition=9
 
-**Kosovo Eyes Early Elections After Government Voted Down**\
-`Kosovo’s government fell Wednesday after only 50 days in power, losing a no-confidence vote initiated by the junior governing coalition partner following disagreements with the prime minister, a move that could take the country to early elections.`\
-https://nytimes.com/aponline/2020/03/25/world/europe/ap-eu-kosovo-government-no-confidence-vote.html?searchResultPosition=10
+**UK Orders 10,000 Ventilators From Dyson for Coronavirus Patients**\
+`Britain has ordered 10,000 medical ventilators designed at breakneck speed by vacuum cleaner-maker Dyson, billionaire founder James Dyson said, as the country tries to boost the number of devices available to treat coronavirus patients.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-britain-ventilators-dyson.html?searchResultPosition=10
 
