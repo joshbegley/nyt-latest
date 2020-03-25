@@ -7,7 +7,7 @@ https://nytimes.com/2020/03/24/opinion/trump-nyc-coronavirus.html?searchResultPo
 https://nytimes.com/video/us/100000007046207/coronavirus-innovative-equipment.html?searchResultPosition=2
 
 **Possible Twister: Damage Reports at Mississippi-Alabama Line**\
-`A suspected tornado caused damage Tuesday in northern Mississippi and Alabama as a severe storm system rumbled through the Deep South. `\
+`A suspected tornado heavily damaged a store and other structures Tuesday in northern Mississippi and Alabama as a severe storm system crossed the Deep South, authorities said. `\
 https://nytimes.com/aponline/2020/03/24/us/ap-us-severe-weather-south-.html?searchResultPosition=3
 
 **How Will the Tech Industry Fare in the Coronavirus Crisis?**\
