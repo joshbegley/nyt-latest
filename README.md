@@ -1,40 +1,40 @@
-**Japan Considering Lowering Small Firms' Tax Burden Over Coronavirus: Kyodo News**\
-`Japan's government and ruling parties are considering lowering the tax burdens of small and mid-sized companies to help them cope with the coronavirus outbreak, the Kyodo newswire said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-health-coronavirus-japan-economy.html?searchResultPosition=1
+**As Lockdowns Kill Jobs, Africa's Informal Workers Suffer**\
+`Earlier this month, Soukaina Rgragui, her 1-year-old daughter and diabetic mother lived modestly on the money brought back home by Soukaina’s husband, a vendor of used furniture in the streets of Morocco's capital Rabat. `\
+https://nytimes.com/aponline/2020/03/25/world/africa/ap-af-virus-outbreak-morocco-informal-workers.html?searchResultPosition=1
 
-**Tokyo's Delayed Olympics: Who Pays Bills for Another Year?**\
-`With the Tokyo Olympics postponed until 2021, now comes the multi-billion-dollar question: Who pays the bills for the delay, and how large will they be?`\
-https://nytimes.com/aponline/2020/03/25/sports/olympics/ap-oly-tokyo-olympics-postponed-costs.html?searchResultPosition=2
+**On Recklessness and the Coronavirus**\
+`What it’s like to be immunocompromised during a pandemic.`\
+https://nytimes.com/2020/03/25/opinion/coronavirus-anxiety-immunocompromised.html?searchResultPosition=2
 
-**Indian Doctors Evicted Over Coronavirus Transmission Fears: Medical Body**\
-`Some doctors combating India's coronavirus outbreak have been evicted from their homes by force, a medical association said on Wednesday, due to fears that they may be infected and spread the disease to neighbors.`\
-https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-health-coronavirus-india-doctors.html?searchResultPosition=3
+**German Minister: We Must Prevent Sale or Break-Up of Our Key Firms**\
+`Germany must protect its economic structure during the coronavirus crisis and prevent the sell-off or break-up of key companies, Justice Minister Christine Lambrecht told the Handelsblatt business daily.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-germany-economy.html?searchResultPosition=3
 
-**Virus Fight at Risk as World's Medical Glove Capital Struggles With Lockdown**\
-`Disposable rubber gloves are indispensable in the global fight against the new coronavirus, yet a month's lockdown in stricken Malaysia where three of every five gloves are made has upended the supply chain and threatens to hamstring hospitals worldwide.`\
-https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-health-coronavirus-malaysia-packaging-focus.html?searchResultPosition=4
+**Coronavirus Cases in Russia Reach 658, Record Daily Rise: Government**\
+`The number of coronavirus cases in Russia has surged to 658, with new daily cases at a record 163, the government's official coronavirus website showed on Wednesday. `\
+https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-health-coronavirus-russia-cases.html?searchResultPosition=4
 
-**French Coronavirus Death Tally Much Higher Than Official Data: Hospitals Chief**\
-`The number of people in France who have died from coronavirus is much higher than the official daily government tally, which only accounts for those dying in hospitals and does not include those dying at home or in retirement homes, the head of the hospitals federation said.`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-france-tally.html?searchResultPosition=5
+**German Conservative: 750 Billion Euro Aid Package Probably Won't Be the Last One We Agree On**\
+`A senior German conservative said on Wednesday the aid package worth more than 750 billion euros ($812.40 billion) upon which the cabinet has agreed to tackle the coronavirus crisis would probably not be the last aid package parliament agrees upon.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-germany-conservative.html?searchResultPosition=5
 
-**AFL, Players Clash Over Pay Cuts as Coronavirus Shutdown Bites**\
-`The Australian government's call for sacrifice and solidarity in the face of the coronavirus shutdown has gone unheeded in the country's most popular sporting competition with Australian Rules footballers at loggerheads with officials over pay cuts.`\
-https://nytimes.com/reuters/2020/03/25/sports/rugby/25reuters-health-coronavirus-sport-australia.html?searchResultPosition=6
+**Broadway Is Shuttered but Its Buildings Sing: A Virtual Tour**\
+`David Rockwell, the architect and Tony-winning show designer, talks about the stories and history behind his favorite theaters.`\
+https://nytimes.com/2020/03/25/arts/design/broadway-architecture-virus.html?searchResultPosition=6
 
-**European Shares Jump Again on Stimulus Bump**\
-`European shares rose on Wednesday following a strong rally in the previous session, as investors bet on unprecedented stimulus measures to ease the economic pain on businesses and households from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-europe-stocks.html?searchResultPosition=7
+**North Arlington, N.J.: A Quiet Suburb Close to New York City**\
+`Newcomers are attracted by the close-knit community and the affordable homes — never mind that the borough’s biggest landmark is a century-old cemetery.`\
+https://nytimes.com/2020/03/25/realestate/north-arlington-nj-a-quiet-suburb-close-to-new-york-city.html?searchResultPosition=7
 
-**Some UK Health Workers Feel Inadequately Protected, NHS Pressure Group Says**\
-`Some British health workers fighting the coronavirus outbreak on the ground still feel inadequately protected, the head of the National Health Service Confederation a lobby group which represents swathes of the health service.`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-britain-nhs.html?searchResultPosition=8
+**‘A Week of Snow Days’? Ha! Families Deal With Cabin Fever**\
+`As people become hostages in their own homes, hired clowns and costume nights may not be enough to maintain sanity.`\
+https://nytimes.com/2020/03/25/business/coronavirus-families-cabin-fever.html?searchResultPosition=8
 
-**China Says Australia Should Stop Interfering in Yang Hengjun Case**\
-`China's foreign ministry said on Wednesday that Australia should respect China's judicial sovereignty and stop interfering in the case of Chinese-Australian writer Yang Hengjun, who faces prosecution for espionage. `\
-https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-australia-china-writer-mofa.html?searchResultPosition=9
+**Voices From Travel’s Frontlines: ‘Fasten Your Seatbelts’**\
+`We spoke with eight travel and hospitality workers, from California to Croatia, who have been working as the coronavirus spreads. They shared similar concerns about an uncertain future`\
+https://nytimes.com/2020/03/25/travel/coronavirus-travel-hospitality-workers.html?searchResultPosition=9
 
-**Singapore Coronavirus Task Force Chief Weeps in Parliament**\
-`A government minister leading Singapore's coronavirus task force broke down in tears midway through a speech in parliament on Wednesday as he thanked healthcare workers and others for their efforts in tackling the pandemic. `\
-https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-health-coronavirus-singapore.html?searchResultPosition=10
+**Inside American Airlines’ Scramble as Virus Grounds Jets by Hundreds**\
+`Nearly every part of the airline, the largest in the United States, has been transformed, and executives are fighting to keep it afloat.`\
+https://nytimes.com/2020/03/25/business/coronavirus-american-airlines.html?searchResultPosition=10
 
