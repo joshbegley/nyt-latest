@@ -1,40 +1,40 @@
-**Sudanese Officials Say Defense Minister Dies in Juba**\
-`Sudan’s defense minister, Gen. Gamal al-Din Omar, has died of a heart attack while on an official visit to neighboring South Sudan, Sudanese military and government officials said Wednesday.`\
-https://nytimes.com/aponline/2020/03/25/world/middleeast/ap-ml-sudan-defense-minister-dies.html?searchResultPosition=1
+**Instant View: U.S. Government Agrees Stimulus Package in Response to Coronavirus Pandemic**\
+`U.S. senators and officials in U.S. President Donald Trump's administration have reached an agreement on a massive economic stimulus bill to alleviate the economic impact of the coronavirus outbreak, White House official Eric Ueland said early on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-usa-stimulus-instantview.html?searchResultPosition=1
 
-**AP Photos: India's Vast Railway System Closes to Passengers**\
-`India's colossal passenger railway system has come to a halt as officials take emergency measures to keep the coronavirus pandemic from spreading in the country of 1.3 billion.`\
-https://nytimes.com/aponline/2020/03/25/world/asia/ap-as-virus-outbreak-india-photo-gallery.html?searchResultPosition=2
+**Human Rights Group Accuses Saudi Forces in Yemen of Abuses**\
+`Saudi military forces have committed grave abuses against civilians in an eastern province of Yemen over the past year, including torture, forced disappearances and arbitrary detention, Human Rights Watch said in a report released Wednesday.`\
+https://nytimes.com/aponline/2020/03/25/world/middleeast/ap-ml-yemen-rights.html?searchResultPosition=2
 
-**Sudan's Minister of Defense Dies of Heart Attack in South Sudan**\
-`Sudan's minister of defense, Lt Gen Jamaleldin Omar, has died of a heart attack in South Sudan, where he was taking part in peace negotiations between the government and armed movements in Juba, a spokesman for the Sudanese army said early on Wednesday.`\
-https://nytimes.com/reuters/2020/03/25/world/africa/25reuters-sudan-southsudan-defence.html?searchResultPosition=3
+**Word + Quiz: steamroller**\
+`This word has appeared in 10 articles on NYTimes.com in the past year.`\
+https://nytimes.com/2020/03/25/learning/word-quiz-steamroller.html?searchResultPosition=3
 
-**Gunmen Attack Sikh Religious Premises in Kabul, Interior Ministry Says**\
-`Unknown gunmen and suicide bombers attacked a Sikh religious premise in Kabul on Wednesday, the interior ministry said.`\
-https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-afghanistan-attack.html?searchResultPosition=4
+**Qantas Shares Soar on Financing Deal as Rivals Cut More Capacity**\
+`Qantas Airways Ltd on Wednesday secured A$1.05 billion ($627.8 million) against its aircraft fleet to help it ride out the coronavirus crisis, sending its shares soaring, as airlines in the Asia-Pacific region sliced away capacity and jobs.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-airlines.html?searchResultPosition=4
 
-**Australia Objects to China Charging Writer With Spying**\
-`Australia strongly objects to the formal indictment of Chinese-Australian writer Yang Hengjun for espionage , who continues to be held in "unacceptable" conditions, Foreign Minister Marise Payne said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-australia-china-writer.html?searchResultPosition=5
+**India's Huge Outsourcing Industry Struggles With Work-From-Home Scenario**\
+`As the coronavirus pandemic pushes India into a lockdown, the call centers and IT services firms that function as the world's back office are struggling to piece together work-from-home solutions and other business-continuity plans. `\
+https://nytimes.com/reuters/2020/03/25/technology/25reuters-health-coronavirus-india-outsourcing.html?searchResultPosition=5
 
-**Mexico Suspends Refugee Requests as Coronavirus Cases Climb to 405**\
-`Mexico temporarily halted the processing of asylum requests from Tuesday, its refugee agency said, the latest measure in North America aimed at stopping the spread of coronavirus that have also limited access to asylum.`\
-https://nytimes.com/reuters/2020/03/25/world/americas/25reuters-health-coronavirus-mexico.html?searchResultPosition=6
+**Malaysia Extends Movement Curbs to April 14 as Virus Cases Surge**\
+`Malaysia's prime minister on Wednesday extended a two-week virtual lockdown to April 14 as coronavirus cases continue to rise in the country, which has the highest number of infections in Southeast Asia.`\
+https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-health-coronavirus-malaysia.html?searchResultPosition=6
 
-**Tsunami Warnings After Magnitude 7.8 Quake Off Russia's Kuril Islands**\
-`U.S. authorities put out tsunami warnings on Wednesday after an earthquake of magnitude 7.8 struck off Russia's Kuril Islands, but meteorological officials in Japan issued no alerts, although they said there might be slight tidal changes. `\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-russia-quake.html?searchResultPosition=7
+**Occidental Petroleum Cuts CEO, Staff Pay to Combat Falling Oil Prices**\
+`Occidental Petroleum Corp will cut employee salaries by up to 30%, according to an internal memo reviewed by Reuters, as the debt-laden U.S. oil producer tries to save cash amid tumbling energy prices.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-occidental-petroleum-salaries.html?searchResultPosition=7
 
-**British Vicar Catches Fire Waiting for God's Answer**\
-`A British vicar got more than he expected from his first attempt at an online sermon when he leaned too close to a candle on a cross and his sweater caught fire. `\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-britain-vicar.html?searchResultPosition=8
+**Factbox: What's in the Nearly $2 Trillion U.S. Senate Coronavirus Stimulus?**\
+`The U.S. Senate on Tuesday was negotiating a nearly $2 trillion emergency bill that aims to counter some of the economic toll of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-usa-bill-factbox.html?searchResultPosition=8
 
-**World Sailing Eye Tokyo Qualifiers in Late 2020 or Early 2021**\
-`World Sailing is planning to stage Olympic qualification events later this year or in early 2021 in the wake of the Tokyo Games' postponement, the sport's governing body has said.`\
-https://nytimes.com/reuters/2020/03/25/sports/olympics/25reuters-health-coronavirus-olympics-sailing.html?searchResultPosition=9
+**U.S. Congress, Negotiators Reach Deal on $2-Trillion Coronavirus Aid Package**\
+`U.S. senators and Trump administration officials have reached an agreement on a massive economic stimulus bill to alleviate the economic impact of the coronavirus outbreak, White House official Eric Ueland said early on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-usa-congress.html?searchResultPosition=9
 
-**Stop the Clock: Japan Awakes to Reality of Tokyo Games Postponement**\
-`Japan awoke on Wednesday to the deflating reality that the Olympics they had hoped to host in Tokyo this summer were now probably 16 months away after the coronavirus crisis forced organizers into an unprecedented postponement.`\
-https://nytimes.com/reuters/2020/03/25/sports/olympics/25reuters-health-coronavirus-olympics.html?searchResultPosition=10
+**Japan's Capital Becomes Center of Its Coronavirus Epidemic**\
+`Japan's capital of Tokyo is at the center of its coronavirus epidemic with more cases than any other region after a record number in a single day, data from public broadcaster NHK showed.`\
+https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-health-coronavirus-tokyo.html?searchResultPosition=10
 
