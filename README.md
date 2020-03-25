@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/03/24/us/ap-us-severe-weather-south-.html?sear
 https://nytimes.com/2020/03/24/opinion/tech-companies-covid.html?searchResultPosition=3
 
 **NCAA Says Clemson QB Can Resume Coronavirus Fundraising**\
-`It turns out Trevor Lawrence and his girlfriend didn't anything wrong when they were trying to help coronavirus victims and their families.`\
+`It turns out Trevor Lawrence and his girlfriend didn't do anything wrong when they were trying to help coronavirus victims and their families.`\
 https://nytimes.com/aponline/2020/03/24/sports/ncaafootball/ap-fbc-clemson-qb-coronavirus-fundraising.html?searchResultPosition=4
 
 **Mets’ Noah Syndergaard Will Have Tommy John Surgery**\
