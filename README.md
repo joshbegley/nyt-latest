@@ -14,13 +14,13 @@ https://nytimes.com/aponline/2020/03/25/business/ap-us-virus-outbreak-california
 `At first, Jonathon Seidl wasn't worried about the coronavirus despite his anxiety disorder. But that changed.`\
 https://nytimes.com/aponline/2020/03/25/health/ap-us-med-virus-outbreak-mental-health.html?searchResultPosition=4
 
-**I Followed the U.K.’s Advice. Did I Spread Coronavirus?**\
-`The symptoms are not as straightforward as Boris Johnson makes them seem.`\
-https://nytimes.com/2020/03/25/opinion/coronavirus-uk.html?searchResultPosition=5
-
 **What’s on TV Wednesday: ‘Crip Camp’ and ‘Dark Phoenix’**\
 `The documentary “Crip Camp: A Disability Revolution” debuts on Netflix. And “Dark Phoenix” airs on HBO.`\
-https://nytimes.com/2020/03/25/arts/television/whats-on-tv-wednesday-crip-camp-and-dark-phoenix.html?searchResultPosition=6
+https://nytimes.com/2020/03/25/arts/television/whats-on-tv-wednesday-crip-camp-and-dark-phoenix.html?searchResultPosition=5
+
+**I Followed the U.K.’s Advice. Did I Spread Coronavirus?**\
+`The symptoms are not as straightforward as Boris Johnson makes them seem.`\
+https://nytimes.com/2020/03/25/opinion/coronavirus-uk.html?searchResultPosition=6
 
 **Gunmen Attack Sikh Religious Gathering in Kabul; 4 Dead**\
 `Gunmen stormed a religious gathering of Afghanistan's minority Sikhs in their place of worship in the heart of the Afghan capital's old city on Wednesday, killing at least four people, a minority Sikh parliamentarian said.`\
