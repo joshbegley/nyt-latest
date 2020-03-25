@@ -1,40 +1,40 @@
+**U.S. Lifts Ban on Malaysian Medical Glove Maker Amid Shortage**\
+`The United States has lifted a ban on a Malaysian medical glove maker it had accused of using forced labor, a government statement showed, amid a surge in demand for personal protective equipment to fight the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-malaysia-gloves.html?searchResultPosition=1
+
+**New Zealand Reports 50 New Cases of COIVD-19; Says Cases to Rise**\
+`New Zealand on Wednesday reported 47 new confirmed cases of coronavirus and three probable cases, ahead of the country heading into a complete lockdown at midnight.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-newzealand-cases.html?searchResultPosition=2
+
+**New Zealand PM Ardern Declares National Emergency to Tackle COVID-19**\
+`New Zealand Prime Minister Jacinda Ardern declared a state of national emergency as the country prepares to go into a complete lockdown at midnight to combat the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-newzealand-emergency.html?searchResultPosition=3
+
+**China's Xi to Take Part in G20 Videoconference on Thursday: State TV**\
+`Chinese President Xi Jinping will take part in a videoconference of leaders from the Group of 20 major economies on Thursday, Chinese state telelvision reported on Wednesday.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-healthg20-china.html?searchResultPosition=4
+
+**Decision to Allow Passengers Off Ruby Princess Was by NSW State: Australian Border Force**\
+`New South Wales state's health department allowed passengers off the coronavirus-stricken Ruby Princess cruise ship as they determined it to be "low risk", a top Australian Border Force (ABF) official said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-health-coronavirus-australia-cruiseship.html?searchResultPosition=5
+
+**Pompeo Says China Still Withholding Coronavirus Information**\
+`U.S. Secretary of State Mike Pompeo on Tuesday sharpened his criticism of China's handling of the coronavirus outbreak, saying its ruling Communist Party was still denying the world information it needs to prevent further cases.`\
+https://nytimes.com/reuters/2020/03/24/world/asia/24reuters-heath-coronavirus-pompeo.html?searchResultPosition=6
+
+**Congo Closes Borders, Enforces State of Emergency Over Coronavirus**\
+`Congo's president closed the country's borders and imposed a state of emergency on Tuesday to contain the coronavirus outbreak, following other African nations that have imposed strict measures in recent days.`\
+https://nytimes.com/reuters/2020/03/24/world/africa/24reuters-health-coronavirus-congo.html?searchResultPosition=7
+
 **Filipino Shares His Experiences as Coronavirus Survivor**\
 `When Carlo Navarro, his wife and 15-year-old daughter visited Japan from the Philippines in February, they knew they were taking a chance with the coronavirus, but thought they would be spared if they took precautions. They wore masks and gloves and always had alcohol handy to sanitize their hands. `\
-https://nytimes.com/aponline/2020/03/24/world/asia/ap-as-virus-outbreak-philippines-covid-survivor.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/03/24/world/asia/ap-as-virus-outbreak-philippines-covid-survivor.html?searchResultPosition=8
 
 **Top U.S. Sports Postpone 2020 Olympic Trials**\
 `Qualifying trials for three of the United States' Olympic sports, athletics, swimming and gymnastics, have been postponed for 2020 officials said on Tuesday after the Tokyo Games were delayed a year because of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/24/sports/olympics/24reuters-health-coronavirus-usa-olympictrials.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/24/sports/olympics/24reuters-health-coronavirus-usa-olympictrials.html?searchResultPosition=9
 
 **Motor Racing: McLaren Will Be Allowed to Make Chassis Changes for 2021**\
 `McLaren will be allowed to make chassis changes in 2021 to accommodate the switch from Renault engines to Mercedes even though the sport has decided to keep this year's cars for another season.`\
-https://nytimes.com/reuters/2020/03/24/sports/autoracing/24reuters-motor-f1-mclaren.html?searchResultPosition=3
-
-**Messi, Guardiola Donate $1.08 Million Each to Coronavirus Battle**\
-`Barcelona forward Lionel Messi and Manchester City manager Pep Guardiola have each donated one million euros ($1.08 million) towards the fight against coronavirus. `\
-https://nytimes.com/reuters/2020/03/24/sports/soccer/24reuters-health-coronavirus-soccer-spain.html?searchResultPosition=4
-
-**Olympics: Coe Suggests World Athletics Championships Could Slip to 2022**\
-`Global athletics chief Sebastian Coe has indicated that next year's Eugene world championships could slip to 2022 as a consequence of the 2020 Tokyo Olympics being postponed for a year due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/24/sports/olympics/24reuters-health-coronavirus-olympics-coe.html?searchResultPosition=5
-
-**Panthers Release Newton, Save $19 Million**\
-`Cam Newton, released by the Carolina Panthers on Tuesday, declared himself "free and hungry."`\
-https://nytimes.com/reuters/2020/03/24/sports/24reuters-football-nfl-car-newton.html?searchResultPosition=6
-
-**Fury-Wilder Rematch to Be Pushed Back Due to Coronavirus**\
-`The anticipated third bout between heavyweights Tyson Fury and Deontay Wilder will be pushed back from July 18 due to the coronavirus pandemic and possibly rearranged for October, Top Rank chairman Bob Arum told ESPN on Tuesday.  `\
-https://nytimes.com/reuters/2020/03/24/sports/24reuters-health-coronavirus-boxing-fury-wilder.html?searchResultPosition=7
-
-**Reports: Panthers Add WR Anderson on Two-Year Deal**\
-`On the day the Carolina Panthers said goodbye to quarterback Cam Newton, they also reportedly said hello to a new target for their new quarterback.`\
-https://nytimes.com/reuters/2020/03/24/sports/24reuters-football-nfl-car-anderson.html?searchResultPosition=8
-
-**76ers/Devils Owner Changes Mind, Won't Cut Salaries**\
-`A day after announcing a pay cut for employees, the owner of the Philadelphia 76ers and New Jersey Devils changed his mind Tuesday under public pressure.`\
-https://nytimes.com/reuters/2020/03/24/sports/24reuters-basketball-nba-phi-devils-paycuts-cancelled.html?searchResultPosition=9
-
-**Philippine Rebels Declare Ceasefire to Heed UN Chief's Call**\
-`Communist guerrillas in the Philippines said Wednesday they would observe a ceasefire in compliance with the U.N. chief's call for a global halt in armed clashes during the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/03/24/world/asia/ap-as-philippines-communist-rebels.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/24/sports/autoracing/24reuters-motor-f1-mclaren.html?searchResultPosition=10
 
