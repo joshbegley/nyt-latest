@@ -1,40 +1,40 @@
-**Without Spring Practice, Football Coaches Try to Fill Void**\
-`Since taking over as Florida State coach in December, Mike Norvell has spent seemingly endless hours laying the foundation of his program.`\
-https://nytimes.com/aponline/2020/03/25/sports/ncaafootball/ap-fbc-lost-spring.html?searchResultPosition=1
+**Hungary Bans Export of Coronavirus Treatment Ingredient**\
+`Hungary has banned the commercial export of hydroxychloroquine sulfate, an ingredient used in drugs for coronavirus treatment in several countries, the government said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-hungary-medicine.html?searchResultPosition=1
 
-**Rural America Watches Pandemic Erupt in Cities as Fear Grows**\
-`The social distancing rules repeated like a mantra in America's urban centers, where the coronavirus is spreading exponentially, might seem silly in wide-open places where neighbors live far from each other and “working from home” means another day spent branding calves or driving a tractor alone through a field.`\
-https://nytimes.com/aponline/2020/03/25/business/ap-us-virus-outbreak-rural-america.html?searchResultPosition=2
+**Retailer Canada Goose to Make Scrubs, Patient Gowns in Battle Against Coronavirus**\
+`Luxury apparel maker Canada Goose Holdings Inc said on Wednesday it would begin production of medical gear for healthcare workers and patients in the country to aid the battle against the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-canadagoose.html?searchResultPosition=2
 
-**Watch Live: Gov. Cuomo Delivers a Coronavirus Update for New York**\
-`Gov. Andrew M. Cuomo of New York delivers an update as the number of cases continues to rise in the state.`\
-https://nytimes.com/video/us/politics/100000007053415/coronavirus-new-york-update.html?searchResultPosition=3
+**CVS Moves to Prevent Hoarding of Malaria Drug for COVID-19 Patients**\
+`CVS Health said on Wednesday its pharmacy benefit management (PBM) unit was working to set up measures against the hoarding of malaria drug hydroxychloroquine, which is being tested as a potential treatment for the coronavirus. `\
+https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-cvs-health.html?searchResultPosition=3
 
-**Report: Navy Ships Need $400K 'Flushes' to Unclog Toilets**\
-`Toilets on two Virginia-based Navy aircraft carriers that have become repeatedly clogged could require treatments costing $400,000 each to get them working properly, a U.S. Government Accountability Office report found.`\
-https://nytimes.com/aponline/2020/03/25/us/ap-us-aircraft-carriers-clogged-pipes.html?searchResultPosition=4
+**Global Oil Demand Forecast to Fall by 4.9 Mln Bpd in 2020: Rystad**\
+`Global oil demand could fall by as much as 4.9 million barrels per day (bpd), or by about 4.9%, in 2020 due to the coronavirus outbreak, Norway's biggest independent energy consultancy Rystad Energy said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-global-oil-demand.html?searchResultPosition=4
 
-**Dancers Still Need Daily Class. No Barre? Just Grab a Chair.**\
-`We checked in with American Ballet Theater and New York City Ballet to see how the companies were keeping dancers fit, and together.`\
-https://nytimes.com/2020/03/25/arts/dance/ballet-class-coronavirus.html?searchResultPosition=5
+**New CEO Pay Limits Loom as Investors Confront Coronavirus Crisis**\
+`The havoc wrought by the coronavirus crisis could give investors leverage to put new limits on CEO pay packages and link them more closely to a range of social and environmental issues at companies' annual meetings this spring. `\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-coronavirus-agms-analysis.html?searchResultPosition=5
 
-**Trapped at Sea by Covid-19 Lockdowns, Crew Members Plead for Help**\
-`The seafarers who deliver gas, food and medicine are being forced to keep working. They cannot leave the ship: ‘We want to go home.’`\
-https://nytimes.com/2020/03/25/world/europe/trapped-at-sea-by-covid-19-lockdowns-crew-members-plead-for-help.html?searchResultPosition=6
+**Bullard: 46 Million Workers Could Be Jobless in Short-Term**\
+`As many as 46 million people in the U.S. may be left jobless in the short term as companies shut down services that have "high contact" with the public during the battle against the coronavirus epidemic, St. Louis Federal Reserve president James Bullard said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-usa-bullard.html?searchResultPosition=6
 
-**Jane Goodall Is Self-Isolating, Too**\
-`She’s in England, in the house she grew up in, and she has a few thoughts about chimpanzees, the coronavirus pandemic and the loo paper shortage.`\
-https://nytimes.com/2020/03/25/science/jane-goodall-coronavirus.html?searchResultPosition=7
+**Far-Right Faction of German Populist Party Vows to Dissolve**\
+`The Wing, a group inside the Alternative for Germany party, promised to close down after a warning from the country’s intelligence service, but the change may be mostly cosmetic.`\
+https://nytimes.com/2020/03/25/world/europe/germany-populist-party.html?searchResultPosition=7
 
-**As Latin America Shuts Down to Fight Virus, Brazil and Mexico Are Holdouts**\
-`The leaders of the region’s two largest nations — Mexico and Brazil — have largely dismissed the dangers and have resisted calls for a lockdown.`\
-https://nytimes.com/2020/03/25/world/americas/brazil-mexico-coronavirus.html?searchResultPosition=8
+**Chile Surpasses 1,000 Cases of Coronavirus: Health Ministry**\
+`Chile has surpassed 1,000 confirmed cases of coronavirus since the outbreak began in the Andean nation, the health ministry said on Wednesday, among the highest tallies in Latin America.`\
+https://nytimes.com/reuters/2020/03/25/world/americas/25reuters-health-coronavirus-chile.html?searchResultPosition=8
 
-**Bach Invokes Trump in Defense of Olympic Decision**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/03/25/sports/olympics/ap-oly-ioc-tokyo-olympics.html?searchResultPosition=9
+**Dutch Coronavirus Cases Rise by 852 to 6,412, Spread May Be Slowing: RIVM**\
+`The number of confirmed coronavirus cases in the Netherlands rose by 852 to 6,412 on Wednesday, health authorities said, adding that they see signs that the rate of increase of the virus's spread in the country is slowing.`\
+https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-health-coronavirus-netherlands.html?searchResultPosition=9
 
-**A Year of ‘What If’ for the N.B.A.**\
-`In this week’s newsletter, Marc Stein discusses the postponement of the Olympics and the basketball connection to his late father.`\
-https://nytimes.com/2020/03/25/sports/basketball/a-year-of-what-if-for-the-nba.html?searchResultPosition=10
+**China Suspends Bristol-Myers' Cancer Drug Over Findings at U.S. Plant**\
+`China has suspended sale, import and use of Bristol-Myers Squibb Co's cancer drug, Abraxane, the U.S. drugmaker's China marketing partner said on Wednesday. `\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-bristol-myers-abraxane.html?searchResultPosition=10
 
