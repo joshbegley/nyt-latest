@@ -27,7 +27,7 @@ https://nytimes.com/2020/03/26/dining/tahini-omelet-recipe.html?searchResultPosi
 https://nytimes.com/2020/03/26/podcasts/still-processing-quarantine.html?searchResultPosition=8
 
 **6 Die as Coronavirus Races Through Upscale Retirement Community in N.Y.**\
-`A peaceful waterfront resort in Long Island has been overrun by emergency crews in hazmat suits.`\
+`A peaceful waterfront community in Long Island has been overrun by emergency crews in hazmat suits.`\
 https://nytimes.com/2020/03/26/nyregion/coronavirus-peconic-landing-nursing-home.html?searchResultPosition=9
 
 **Bucs Keeping Defense Together, Re-Sign Suh for $8 Million**\
