@@ -1,36 +1,36 @@
+**Mexican Rights Groups Denounce Crackdown on Migrants Protesting Over Coronavirus Fears**\
+`This week, dozens of migrants in Mexico's largest detention center gathered to protest over fears they will contract the coronavirus in the facility, which advocates have long denounced for overcrowding and poor sanitation.`\
+https://nytimes.com/reuters/2020/03/25/world/americas/25reuters-health-coronavirus-mexico-detention.html?searchResultPosition=2
+
+**Mexican Government to Suspend Activities From Thursday**\
+`Mexico's federal government will suspend all non-essential activities beginning on Thursday, Mexico's deputy health minister Hugo Lopez-Gatell told reporters. `\
+https://nytimes.com/reuters/2020/03/25/world/americas/25reuters-health-coronavirus-mexico-government.html?searchResultPosition=3
+
+**Mexicans Fear Looting Spree as Shops Robbed, Online Messages Incite Theft**\
+`Mexicans on Wednesday feared measures to contain the coronavirus outbreak would lead to widespread looting after criminals robbed stores that were closed and posted calls on social media for people to ransack businesses. `\
+https://nytimes.com/reuters/2020/03/25/world/americas/25reuters-health-coronavirus-mexico-crime.html?searchResultPosition=4
+
+**Panama Reports 115 New Coronavirus Cases, Bringing Total to 558**\
+`Panama's health minister on Wednesday confirmed 115 new coronavirus cases in the Central American nation, bringing its total number of cases to 558.`\
+https://nytimes.com/reuters/2020/03/25/world/americas/25reuters-health-coronavirus-panama.html?searchResultPosition=5
+
+**Australia Seeks Age Limit Lift for Olympic Soccer Tournament**\
+`Football Federation Australia wants FIFA and the IOC to increase the age limit for the Olympic men's tournament in the wake of the Tokyo Games being pushed back to 2021 because of the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/03/25/sports/olympics/ap-oly-virus-outbreak-soccer-age-limit.html?searchResultPosition=6
+
+**U.S. Warship Sails Through Taiwan Strait Amid Heightened China Tensions**\
+`A U.S. warship passed through the sensitive Taiwan Strait on Wednesday, the U.S. and Taiwan militaries said, following heightened tensions between China and Taiwan that has seen Taiwanese air force jets scramble to intercept Chinese fighters.`\
+https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-taiwan-security-usa.html?searchResultPosition=7
+
+**Bolivia Extends Closure of Borders, Declares Health Emergency for Coronavirus**\
+`Bolivia declared a national health emergency and extended its border lockdown on Wednesday, as the government seeks to contain the spread of the coronavirus. `\
+https://nytimes.com/reuters/2020/03/25/world/americas/25reuters-health-coronavirus-bolivia.html?searchResultPosition=8
+
 **Former FBI Agent Levinson Believed to Have Died in Iran Custody, Family Says**\
 `The family of Robert Levinson, the former FBI agent who disappeared in March 2007 after traveling to an island controlled by Iran, said on Wednesday it now believes Levinson died in Iranian custody, based on information from U.S. officials.  `\
-https://nytimes.com/reuters/2020/03/25/world/middleeast/25reuters-usa-iran-levinson.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/25/world/middleeast/25reuters-usa-iran-levinson.html?searchResultPosition=9
 
 **Soccer: PFA Seeking Talks With Premier League, EFL Over Coronavirus**\
 `The Professional Footballers' Association (PFA) has called for urgent talks with the Premier League and English Football League to discuss the financial impact of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/25/sports/soccer/25reuters-health-coronavirus-soccer-england.html?searchResultPosition=3
-
-**Cybersecurity Experts Come Together to Fight Coronavirus-Related Hacking**\
-`An international group of nearly 400 volunteers with expertise in cybersecurity formed on Wednesday to fight hacking related to the novel coronavirus.`\
-https://nytimes.com/reuters/2020/03/25/technology/25reuters-coronavirus-cyber.html?searchResultPosition=4
-
-**Agent: Wood 'Fully Recovered' From Coronavirus Bout**\
-`Detroit Pistons forward Christian Wood is healthy after a bout with the coronavirus, his agent said Wednesday.`\
-https://nytimes.com/reuters/2020/03/25/sports/basketball/25reuters-basketball-nba-det-wood.html?searchResultPosition=5
-
-**NHL Postpones Draft, Postseason Awards**\
-`The NHL, which remains in a shutdown caused by the coronavirus pandemic, announced additional postponements to its calendar on Wednesday.`\
-https://nytimes.com/reuters/2020/03/25/sports/hockey/25reuters-icehockey-nhl-draft-awards-postponed.html?searchResultPosition=6
-
-**Towns: Mother in Coma With Coronavirus**\
-`Minnesota Timberwolves center Karl-Anthony Towns is urging fans on social media to protect themselves from the coronavirus after his mother was placed in a medically induced coma as she battles the coronavirus.`\
-https://nytimes.com/reuters/2020/03/25/sports/basketball/25reuters-basketball-nba-min-towns.html?searchResultPosition=7
-
-**Singapore Flags Deep Recession as Coronavirus Shrinks Economy in First-Quarter**\
-`Singapore's economy suffered its biggest contraction in a decade in the first quarter, data showed on Thursday, as the coronavirus pandemic prompted the city-state to cut its full-year GDP forecast and plan for a deep recession.`\
-https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-singapore-economy-gdp.html?searchResultPosition=8
-
-**U.S. Senate Poised to Vote on Passage of $2 Trillion Coronavirus Bill**\
-`The U.S. Senate is scheduled to begin voting shortly on an historic $2 trillion bill to stimulate the sagging economy and rush federal funds to medical centers struggling to respond to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-usa-senate.html?searchResultPosition=9
-
-**IMF, World Bank Clear Somalia for Debt Relief, Normal Ties to World**\
-`The IMF and the World Bank on Wednesday said Somalia had taken the necessary steps to begin receiving debt relief, a key move that will allow the Horn of Africa country to lower its $5.2 billion in external debt to around $557 million.`\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-somalia-debt.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/25/sports/soccer/25reuters-health-coronavirus-soccer-england.html?searchResultPosition=10
 
