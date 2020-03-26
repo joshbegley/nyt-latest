@@ -1,5 +1,5 @@
-**At Least 3.2 Million People Lost Their Jobs Last Week**\
-`Official statistics have revealed how severely coronavirus has hurt the job market. But it may take several months before we know whether this economic disaster will resemble a storm or a long winter.`\
+**At Least 3.28 Million Americans Lost Their Jobs Last Week. See Your State.**\
+`By Quoctrung Bui and Justin Wolfers`\
 https://nytimes.com/interactive/2020/03/26/upshot/coronavirus-millions-unemployment-claims.html?searchResultPosition=2
 
 **How We Got By: New Yorkers’ Advice for Getting Through a Crisis**\
