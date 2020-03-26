@@ -12,7 +12,7 @@ https://nytimes.com/2020/03/26/opinion/letters/coronavirus-health-care.html?sear
 
 **On Job Just 6 Weeks, U.K.’s Finance Chief Shines in Crisis**\
 `Britain’s chancellor, Rishi Sunak, a virtual unknown not long ago, is winning praise for leading the response to the virus.`\
-https://nytimes.com/2020/03/26/world/europe/on-job-just-6-weeks-uks-finance-chief-shines-in-crisis.html?searchResultPosition=5
+https://nytimes.com/2020/03/26/world/europe/coronavirus-uk-rishi-sunak.html?searchResultPosition=5
 
 **Signet Jewelers, Bristol-Myers Rise**\
 `Stocks that moved heavily or traded substantially on Thursday:`\
