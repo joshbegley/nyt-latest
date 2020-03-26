@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/03/26/world/middleeast/26reuters-health-coronav
 `Costa Rican Health Minister Daniel Salas said on Thursday that there are 30 new confirmed coronavirus cases in the Central American nation, bringing the total number or cases to 231.`\
 https://nytimes.com/reuters/2020/03/26/world/americas/26reuters-health-coronavirus-costa-rica.html?searchResultPosition=5
 
-**Domestic Workers Clean Our Homes. Should We Keep Them Out?**\
+**A Dilemma for Some: Should You Still Hire a Cleaner?**\
 `Infectious disease experts recommend erring on the side of caution, but what if that means pausing a service that provides peace of mind to clients and a steady source of money to low-income workers?`\
 https://nytimes.com/2020/03/26/us/coronavirus-house-cleaner.html?searchResultPosition=6
 
