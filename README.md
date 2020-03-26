@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/03/26/us/politics/ap-us-virus-outbreak-nations
 `Complaints of baseball’s slow pace yielded to the universal wish that this game would last forever.`\
 https://nytimes.com/2020/03/26/sports/baseball/baseball-opening-day-coronavirus.html?searchResultPosition=7
 
-**Neanderthals Feasted on Seafood, Shore Birds, Perhaps Even Dolphins**\
+**Neanderthals Feasted on Seafood, Seabirds, Perhaps Even Dolphins**\
 `Scientists say that a discovery in a seaside Portuguese cave further challenges popular images of Neanderthals as meat-eating brutes.`\
 https://nytimes.com/2020/03/26/science/neanderthals-fishing-ocean.html?searchResultPosition=8
 
