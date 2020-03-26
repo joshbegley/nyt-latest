@@ -1,36 +1,36 @@
+**Domestic Workers Clean Our Homes. Should We Keep Them Out?**\
+`Infectious disease experts recommend erring on the side of caution, but what if that means pausing a service that provides peace of mind to clients and a steady source of money to low-income workers?`\
+https://nytimes.com/2020/03/26/us/coronavirus-house-cleaner.html?searchResultPosition=2
+
+**A New Beat for Police Across US: Enforcing Social Distance**\
+`In New York City, they've started dismantling basketball hoops to prevent people from gathering in parks and playing.`\
+https://nytimes.com/aponline/2020/03/26/us/ap-us-virus-outbreak-enforcing-social-distance.html?searchResultPosition=3
+
+**Brazil's Maracana Stadium Tapped to Serve as Coronavirus Hospital**\
+`Brazil's Maracana sports complex in Rio de Janeiro, which includes the world famous soccer stadium, will become a temporary hospital to help fight coronavirus, state authorities said on Thursday. `\
+https://nytimes.com/reuters/2020/03/26/sports/soccer/26reuters-health-coronavirus-brazil-stadium.html?searchResultPosition=4
+
+**Facebook Appoints Robert Kimmitt as Lead Independent Director**\
+`Facebook Inc on Thursday named the U.S. Treasury's former deputy secretary, Robert Kimmitt, to its board as lead independent director, effective immediately.`\
+https://nytimes.com/reuters/2020/03/26/technology/26reuters-facebook-board.html?searchResultPosition=5
+
+**LeBron Talks About Virus' Impact on NBA in Podcast**\
+`Los Angeles Lakers superstar LeBron James shed light on a variety of topics facing the NBA should it attempt to resume the 2019-20 season later this year.`\
+https://nytimes.com/reuters/2020/03/26/sports/26reuters-basketball-nba-lal-james.html?searchResultPosition=6
+
+**Six Contract Coronavirus After London Olympic Qualifiers**\
+`Organizers of a suspended Olympic boxing qualifying tournament in London hit back at accusations of irresponsibility on Thursday as the number of competitors and coaches testing positive for coronavirus grew to six.`\
+https://nytimes.com/reuters/2020/03/26/sports/olympics/26reuters-health-coronavirus-olympics-boxing.html?searchResultPosition=7
+
+**Huawei Unveils P40 Smartphones Online as Coronavirus Thwarts Launch Event**\
+`China's Huawei Technologies unveiled its new flagship  photography-focused P40 smartphones on Wednesday in an online presentation after the coronavirus scuppered the event it had planned.`\
+https://nytimes.com/reuters/2020/03/26/technology/26reuters-huawei-tech-mobile-launch.html?searchResultPosition=8
+
+**Klobuchar's Husband Back Home After Virus Hospitalization**\
+`U.S. Sen. Amy Klobuchar's husband has been released from a hospital where he was being treated for low oxygen and pneumonia as a result of the coronavirus, the senator said Thursday. `\
+https://nytimes.com/aponline/2020/03/26/us/ap-us-virus-outbreak-klobuchar.html?searchResultPosition=9
+
 **New York City Ballet Cancels Its Season but Will Pay Employees**\
 `City Ballet says it will lose about $8 million with the disappearance of its spring season because of the coronavirus pandemic.`\
-https://nytimes.com/2020/03/26/arts/dance/new-york-city-ballet-cancelled-virus.html?searchResultPosition=2
-
-**Viral Challenges Are What’s Keeping Us Occupied**\
-`“Until tomorrow” and other games are the chain mail letters of social isolation.`\
-https://nytimes.com/2020/03/26/style/viral-challenges-coronavirus.html?searchResultPosition=3
-
-**Coronavirus Is a Threat to Young People Too, U.S. Official Fauci Tells NBA Star Curry**\
-`Some young and healthy people in the United States who have contracted the new coronavirus are becoming seriously ill, the top U.S. official on infectious diseases, Anthony Fauci, told NBA star Stephen Curry in an interview on Thursday. `\
-https://nytimes.com/reuters/2020/03/26/sports/basketball/26reuters-health-coronavirus-curry-fauci.html?searchResultPosition=4
-
-**The U.S. Now Leads the World in Confirmed Coronavirus Cases**\
-`Following a series of missteps, the nation is now the epicenter of the pandemic.`\
-https://nytimes.com/2020/03/26/health/coronavirus-united-states.html?searchResultPosition=5
-
-**U.S. Home Healthcare Industry Warns of Possible 'Collapse'**\
-`Home healthcare providers, the lifelines to 12 million vulnerable Americans, are scrambling to decide how to serve patients who show symptoms of coronavirus -- and how to ensure that the providers themselves neither catch nor spread it. `\
-https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-home-healthcare-insight.html?searchResultPosition=6
-
-**U.S. Airlines to Dash for Cash Grants, Not Loans, Even With Potential Government Stake**\
-`U.S. airlines are preparing to tap the government for up to $25 billion in grants to cover payroll in a sharp travel downturn triggered by the coronavirus, even after the government warned it may take stakes in exchange for bailout funds, people familiar with the matter said.`\
-https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-airlines-strategy.html?searchResultPosition=7
-
-**Roche Strikes a Deal With Britain to Increase Coronavirus Testing: Channel 4 News**\
-`Roche has struck a deal with Britain to increase the country's coronavirus testing capacity, Channel 4 News reported on Thursday.`\
-https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-britain-testing-roche.html?searchResultPosition=8
-
-**To Avoid a Repeat of 2008, Main Street America Says Help Needs to Be Fast**\
-`Two weeks. Maybe a month.`\
-https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-usa-small-business-analysis.html?searchResultPosition=9
-
-**On Coronavirus, We’re #1**\
-`But we’re doing some things right despite Trump.`\
-https://nytimes.com/2020/03/26/opinion/trump-coronavirus.html?searchResultPosition=10
+https://nytimes.com/2020/03/26/arts/dance/new-york-city-ballet-cancelled-virus.html?searchResultPosition=10
 
