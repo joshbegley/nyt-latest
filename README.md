@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-cat
 https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-belgium.html?searchResultPosition=8
 
 **Exclusive: As Coronavirus Spreads, U.S. Military to Withhold Some Infection Data**\
-`The U.S. military has decided it will stop providing some of the more granular data about coronavirus infections within its ranks out of concern that the information might be used by adversaries as the virus spreads.`\
+`The U.S. military has decided it will stop providing some of the  more granular data about coronavirus infections within its ranks out of concern that the information might be used by adversaries as the virus spreads.`\
 https://nytimes.com/reuters/2020/03/26/us/26reuters-health-coronavirus-usa-pentagon-secrecy-exclusive.html?searchResultPosition=9
 
 **AP Week in Pictures, Middle East**\
