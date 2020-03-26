@@ -26,7 +26,7 @@ https://nytimes.com/reuters/2020/03/25/world/middleeast/25reuters-saudi-yemen-un
 `France will withdraw all troops it has stationed in Iraq until further notice due to the coronavirus outbreak, the Armed Forces Ministry said on Wednesday.`\
 https://nytimes.com/reuters/2020/03/25/world/middleeast/25reuters-health-coronavirus-iraq-france.html?searchResultPosition=8
 
-**Man Pleads Guilty to New Zealand Mosque Killings**\
+**Man Pleads Guilty to New Zealand Mosque Massacre**\
 `An Australian white supremacist charged with killing 51 worshipers at two mosques in New Zealand last year changed his plea to guilty in a surprise move.`\
 https://nytimes.com/2020/03/25/world/australia/new-zealand-mosque-guilty-plea.html?searchResultPosition=9
 
