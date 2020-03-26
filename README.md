@@ -1,5 +1,5 @@
 **A Cruel Motive for a Costly Delay**\
-`Republican senators are threatening to block trillions of dollars in economic aid amid the coronavirus pandemic to deprive low-wage workers of needed help.`\
+`Republican senators are threatening to block trillions of dollars in aid amid the coronavirus pandemic to deprive low-wage workers of needed help.`\
 https://nytimes.com/2020/03/25/opinion/coronavirus-stimulus-senate.html?searchResultPosition=2
 
 **Sound in a Circus Act**\
