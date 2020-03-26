@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus
 https://nytimes.com/reuters/2020/03/26/technology/26reuters-health-coronavirus-usa-tiktok.html?searchResultPosition=7
 
 **F.A.Q. on Stimulus Checks, Unemployment and the Coronavirus Bill**\
-`The Senate relief bill would send money to Americans and greatly expand unemployment.`\
+`The Senate relief bill would send money to Americans and greatly expand unemployment coverage.`\
 https://nytimes.com/article/coronacirus-stimulus-package-questions-answers.html?searchResultPosition=8
 
 **Online, the Show Goes On. But It’s Just Not the Same.**\
