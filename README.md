@@ -1,36 +1,36 @@
-**Don’t Get What’s So Great About Westerns? Start Here**\
-`The films of Budd Boetticher and Randolph Scott are short but complex and suspenseful. And the wide-open vistas are sure nice, right now.`\
-https://nytimes.com/2020/03/26/movies/westerns-virus.html?searchResultPosition=2
+**Crazy Haircut? Shave? Americans in Coronavirus Lockdown Try Out Makeovers**\
+`Jacob Kunthara's wife and three adult children had never seen him without the mustache he sported for 45 years. During Coronavirus lockdown this week at home in Gilbert, Arizona, he shaved and covered up with a face mask, which he whipped off at dinner to shock his entire family. `\
+https://nytimes.com/reuters/2020/03/26/world/middleeast/26reuters-health-coronavirus-usa-grooming.html?searchResultPosition=2
 
-**'Terrified' South Africa Nears Lockdown; Cases Almost 1,000**\
-`South Africa on the eve of a three-week lockdown announced its coronavirus cases are nearing 1,000, while the president urged police to have compassion as they ensure most of the country’s 57 million people stay home.`\
-https://nytimes.com/aponline/2020/03/26/world/africa/ap-af-africa-virus-outbreak.html?searchResultPosition=3
+**U.S. Banks to Score Accounting, Capital Relief in $2 Trillion Rescue Package**\
+`The U.S. banking industry is set to get relief from a new global accounting rules standard, a small-bank leverage charge and other lending rules with the expected passage of a record $2 trillion congressional stimulus package in coming days.`\
+https://nytimes.com/reuters/2020/03/26/us/26reuters-health-coronavirus-congress-banks.html?searchResultPosition=3
 
-**Indianapolis 500 Postponed Until August Because of COVID-19**\
-`The Indianapolis 500 has been postponed until August because of the coronavirus pandemic and won't run on Memorial Day weekend for the first time since 1946. `\
-https://nytimes.com/aponline/2020/03/26/sports/ap-car-indycar-indy-500-postponed-.html?searchResultPosition=4
+**Federal Reserve Gives Small Banks More Time to File March Financial Statements**\
+`The Federal Reserve announced Thursday it was giving small U.S. banks another month to file financial statements due at the end of March.`\
+https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-fed-banks.html?searchResultPosition=4
 
-**11 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2020/03/26/books/review/11-new-books-we-recommend-this-week.html?searchResultPosition=5
+**Virtual Tours, Coronavirus Clauses: Pandemic Upends Homebuying Across the U.S.**\
+`Prospective buyers arriving at Betsy and Eric Melby's house for sale in Memphis, Tennessee, last week were greeted by a large pump bottle of hand sanitizer and a box of disposable gloves.`\
+https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-usa-real-estate.html?searchResultPosition=5
 
-**If You Don't Laugh, You Cry: Coping With Virus Through Humor**\
-`Neil Diamond posts a fireside rendition of "Sweet Caroline" with its familiar lyrics tweaked to say, "Hands .`\
-https://nytimes.com/aponline/2020/03/26/us/ap-us-virus-outbreak-laughter-as-medicine-1st-ld-writethru.html?searchResultPosition=6
+**WHO Chief Urges G20 to Boost Production of Protective Gear Against Virus**\
+`The head of the World Health Organization (WHO) told the Group of 20 wealthy nations on Thursday that the coronavirus pandemic is "accelerating at an exponential rate" and urged them to ramp up production of protective gear for health workers.`\
+https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-g20-who.html?searchResultPosition=6
 
-**An Omelet With an Unexpected Creamy Filling: Tahini**\
-`Cheese is the typical omelet filling, but for a similar richness that’s also dairy-free, try tahini.`\
-https://nytimes.com/2020/03/26/dining/tahini-omelet-recipe.html?searchResultPosition=7
+**Italy Coronavirus Deaths Rise by 662 in a Day, Lifting Total Death Toll to 8,165**\
+`The death toll from an outbreak of coronavirus in Italy has grown by 662 to 8,165, the Civil Protection Agency said on Thursday.`\
+https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-italy.html?searchResultPosition=7
 
-**A Pod From Both Our Houses**\
-`A new season for a new time.`\
-https://nytimes.com/2020/03/26/podcasts/still-processing-quarantine.html?searchResultPosition=8
+**Exclusive: Cirque Du Soleil Explores Options Including Bankruptcy-Sources**\
+`Cirque du Soleil Entertainment Group is exploring debt restructuring options that include a potential bankruptcy filing, after it was forced to cancel shows because of the coronavirus outbreak, people familiar with the matter said.`\
+https://nytimes.com/reuters/2020/03/26/business/26reuters-cirquedusoleil-debt-restructuring-exclusive.html?searchResultPosition=8
 
-**6 Die as Coronavirus Races Through Upscale Retirement Community in N.Y.**\
-`A peaceful waterfront community in Long Island is now an epicenter of the pandemic.`\
-https://nytimes.com/2020/03/26/nyregion/coronavirus-peconic-landing-nursing-home.html?searchResultPosition=9
+**Nursing Home Deaths Make Up a Third of Spanish Coronavirus Toll: Local Radio**\
+`A total of 1,307 elderly residents of Spanish nursing homes have died from coronavirus, roughly a third of the country's total death toll, radio network Cadena Ser said on Thursday in an update of its analysis that earlier pointed to 397 deaths.`\
+https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-spain-nursing.html?searchResultPosition=9
 
-**Bucs Keeping Defense Together, Re-Sign Suh for $8 Million**\
-`The Tampa Bay Buccaneers continue to re-assemble pieces to help Tom Brady be successful with his new team.`\
-https://nytimes.com/aponline/2020/03/26/sports/football/ap-fbn-buccaneers-suh.html?searchResultPosition=10
+**How Many Americans Have Coronavirus? New Reuters Poll Might Offer a Hint**\
+`The official count of coronavirus infections in the United States sits at about 70,000 cases, but a chronic shortage of tests means only a fraction of the people infected are being counted. So how can we know how many Americans actually might have the disease?`\
+https://nytimes.com/reuters/2020/03/26/us/26reuters-health-coronavirus-proximitypoll.html?searchResultPosition=10
 
