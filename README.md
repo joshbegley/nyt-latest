@@ -31,6 +31,6 @@ https://nytimes.com/aponline/2020/03/26/world/middleeast/ap-ml-iraq-us-rocket-at
 https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-britain-royals.html?searchResultPosition=9
 
 **Britain Eases Financial Reporting Rules During Epidemic**\
-`Britain's financial regulators set out a package of measures on Thursday to help banks and other companies deal with fallout from the coronavirus epidemic and keep investors informed.`\
+`Britain's financial regulators announced a welter of measures on Thursday to give companies more time to publish their results and more leeway to banks over how they deal with troubled loans.`\
 https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-britain-markets.html?searchResultPosition=10
 
