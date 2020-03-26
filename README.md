@@ -1,36 +1,36 @@
+**No More Dumb Coronavirus Questions, Berlin Police Beg**\
+`Am I allowed to have a hairdresser or beautician come to my home? Can I hang out with my friends outside? Can I chill with my mates at home? `\
+https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-germany-police.html?searchResultPosition=2
+
 **Dutch Coronavirus Cases Rise by 1,019 to 7,431: Authorities**\
 `The number of confirmed coronavirus cases in the Netherlands rose by 1,019, or 16%, to 7,431, health authorities said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-netherlands-tally.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-netherlands-tally.html?searchResultPosition=3
 
 **Swiss Government Asked Swisscom for Data on People's Movements, Says Was Not Surveillance**\
 `Switzerland has asked state-controlled Swisscom for day-old mobile phone data to help judge whether measures to restrict people's movements and slow the coronavirus's spread were working, a federal health ministry official said on Thursday. `\
-https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-swiss-data.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-swiss-data.html?searchResultPosition=4
 
 **Mitsubishi Corp Could Take 10% Stake in Renault in Alliance Rejig: Report**\
 `Japanese conglomerate Mitsubishi Corp could potentially take a 10% stake in French carmaker Renault as part of scenarios being discussed to reinforce an alliance between Renault, Nissan and Mitsubishi Motors, Les Echos newspaper reported on Thursday. `\
-https://nytimes.com/reuters/2020/03/26/business/26reuters-renault-mitsubishi.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/26/business/26reuters-renault-mitsubishi.html?searchResultPosition=5
 
 **Singapore Reports 52 New Coronavirus Cases, Total 683**\
 `Singapore reported 52 new coronavirus cases on Thursday, taking its tally to 683 infections. `\
-https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-singapore-cases.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-singapore-cases.html?searchResultPosition=6
 
 **In Drastic Step, Italy Shuts Most Factories to Halt Virus**\
 `Italy has become the first western developed nation to idle most of its industry to halt the spread of the coronavirus, in a potential cautionary tale for other governments, such as the Trump administration, that are resisting such drastic measures.`\
-https://nytimes.com/aponline/2020/03/26/business/bc-virus-outbreak-italy-industrial-shutdown.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/03/26/business/bc-virus-outbreak-italy-industrial-shutdown.html?searchResultPosition=7
 
 **3.3 Million Join Unemployment Rolls, Shattering U.S. Record**\
 `The weekly figure is among the first data on the economic toll of the vast disruption of normal life and commerce caused by the coronavirus pandemic.`\
-https://nytimes.com/2020/03/26/business/economy/coronavirus-unemployment-claims.html?searchResultPosition=7
+https://nytimes.com/2020/03/26/business/economy/coronavirus-unemployment-claims.html?searchResultPosition=8
 
 **Smaller Communities Prepare for Onslaught of Virus Patients**\
 `It started with an infected person from out of town who attended a funeral. Now the largest hospital in Georgia’s mostly rural, southwest corner is rapidly running out of space amid the highest rate of coronavirus infection in the entire state.`\
-https://nytimes.com/aponline/2020/03/26/us/ap-us-virus-outbreak-small-cities.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/03/26/us/ap-us-virus-outbreak-small-cities.html?searchResultPosition=9
 
 **Iraq, Lebanon Extend Government Restrictions to Combat Virus**\
 `Iraq and Lebanon prepared Thursday to extend government-imposed restrictions on movement for two more weeks, the latest measures announced to stem the spread of the new coronavirus.`\
-https://nytimes.com/aponline/2020/03/26/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=9
-
-**Kazakhstan Orders Residents of Major Cities to Stay Home**\
-`Kazakhstan will bar the residents of its two biggest cities, Almaty and Nur-Sultan, from leaving their homes except for work or to buy food or medicines, starting from March 28, the Central Asian nation's government said on Thursday.`\
-https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-kazakhstan.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/26/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=10
 
