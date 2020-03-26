@@ -1,36 +1,36 @@
+**Abortion Providers Sue Texas Over Virus Outbreak Order**\
+`Planned Parenthood joined other abortion providers Wednesday in suing Texas over moving to ban abortions during the coronavirus outbreak, accusing Republican leaders of exploiting the pandemic to deliver on politics. `\
+https://nytimes.com/aponline/2020/03/25/us/ap-us-virus-outbreak-abortion.html?searchResultPosition=2
+
+**Olympics: U.S. Ticket Holders Told Purchases Will Be Honored in 2021**\
+`Tokyo Olympics ticket holders in the United States will not immediately get refunds in light of the event's postponement due to the coronavirus pandemic, but will be able to use existing tickets when the competition happens next year, the official ticket seller said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/sports/olympics/25reuters-health-coronavirus-olympics-tickets.html?searchResultPosition=3
+
+**Motor Racing-Self Isolation Makes Training Easier for Ricciardo**\
+`Australian Daniel Ricciardo reckons self-isolation makes for a perfect training camp -- although it helps to be on the family  farm in western Australia with a swimming pool and some machinery to play with.`\
+https://nytimes.com/reuters/2020/03/25/sports/autoracing/25reuters-motor-f1-ricciardo.html?searchResultPosition=4
+
+**Reports: Bucs, DT Suh Agree to One-Year Contract**\
+`Five-time Pro Bowl defensive tackle Ndamukong Suh is returning to the Tampa Bay Buccaneers on a one-year, $8 million contract, multiple media outlets reported Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/sports/football/25reuters-football-nfl-tb-suh.html?searchResultPosition=5
+
+**Time Running Out for Wimbledon**\
+`This year's Wimbledon Championships have so far survived the cull of the world's most prestigious sporting events due to the coronavirus pandemic, but it seems only a matter of time before they are postponed or canceled.`\
+https://nytimes.com/reuters/2020/03/25/sports/tennis/25reuters-health-coronavirus-tennis-wimbledon.html?searchResultPosition=6
+
 **Trump Says He Will Sign Coronavirus Relief Package Right Away**\
 `President Donald Trump said on Wednesday he would sign a $2 trillion legislative package to address the economic impact from the coronavirus pandemic into law immediately after it is passed and encouraged lawmakers to bring it over the finish line.`\
-https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-trump.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-trump.html?searchResultPosition=7
 
 **Trump Administration Close to Finalizing Fuel Efficiency Rules Rewrite: Sources**\
 `The White House is close to finalizing a landmark rewrite of U.S. fuel efficiency standards through the 2026 model year, boosting annual requirements but at a considerably lower rate than under Obama-era standards, three people briefed on the matter said on Wednesday.`\
-https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-autos-emissions.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-autos-emissions.html?searchResultPosition=8
 
 **U.S. Senator Sanders Threatens to Put Hold on Senate Aid Bill**\
 `U.S. Senator Bernie Sanders said on Wednesday he was prepared to put a hold on a $2 trillion Senate coronavirus economic relief bill unless a group of Republican senators drop their objections to language on jobless benefits in the legislation.`\
-https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-usa-sanders.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-usa-sanders.html?searchResultPosition=9
 
 **Lessons From Lockdown**\
 `Our lives have been upended in ways that portend dire consequences for the country.`\
-https://nytimes.com/2020/03/25/opinion/coronavirus-lessons.html?searchResultPosition=5
-
-**Absorb Shock Now or Face Permanent Destruction, Draghi Warns: FT**\
-`European governments must quickly absorb the economic shock of the coronavirus crisis, even at the cost of high debt, as the alternative is permanent economic destruction, former European Central Bank President Mario Draghi wrote in a newspaper opinion piece on Wednesday.`\
-https://nytimes.com/reuters/2020/03/25/us/25reuters-health-coronavirus-draghi.html?searchResultPosition=6
-
-**U.S. Should Refrain From Export Controls in Pandemic Response: Chamber of Commerce**\
-`The U.S. Chamber of Commerce on Wednesday urged the United  States to refrain from adopting export controls or other measures that could impede the movement of medicines and other essential goods needed to combat the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-health-coronavirus-usa-business.html?searchResultPosition=7
-
-**U.S. Republican Lawmaker Urges State Department to Boost Diplomacy on Oil Price War**\
-`A top Republican lawmaker urged a U.S. State Department official on Wednesday to press ahead with diplomatic efforts to end the oil price war between Saudi Arabia and Russia that is harming U.S. oil producers.  `\
-https://nytimes.com/reuters/2020/03/25/world/europe/25reuters-global-oil-pricewar-usa.html?searchResultPosition=8
-
-**White House's Kudlow: Problem With Senate Bill's Language 'Will Be Worked Out'**\
-`White House economic adviser Larry Kudlow told Fox News in an interview on Wednesday that a problem with language on jobless benefits in a U.S. Senate coronavirus aid bill "will be worked out."`\
-https://nytimes.com/reuters/2020/03/25/us/politics/25reuters-health-coronavirus-usa-kudlow.html?searchResultPosition=9
-
-**Trump Says Doesn't Accept Levinson Dead, but 'Not Looking Great'**\
-`U.S. President Donald Trump said on Wednesday he had not been told that former FBI agent Robert Levinson, who disappeared in Iran in 2007, is dead but said things did not look good.    `\
-https://nytimes.com/reuters/2020/03/25/world/middleeast/25reuters-usa-iran-levinson-trump.html?searchResultPosition=10
+https://nytimes.com/2020/03/25/opinion/coronavirus-lessons.html?searchResultPosition=10
 
