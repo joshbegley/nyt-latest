@@ -1,36 +1,36 @@
-**Corrections: March 26, 2020**\
-`Corrections that appeared in print on Thursday, March 26, 2020.`\
-https://nytimes.com/2020/03/25/pageoneplus/corrections-march-26-2020.html?searchResultPosition=2
+**Quotation of the Day: Construction Workers Balk at Being Kept on the Job**\
+`Quotation of the Day for Thursday, March 26, 2020.`\
+https://nytimes.com/2020/03/25/todayspaper/quotation-of-the-day-construction-workers-balk-at-being-kept-on-the-job.html?searchResultPosition=2
 
-**Mormon Church Suspends Temple Activities Over Virus**\
-`The Church of Jesus Christ of Latter-day Saints is suspending all temple activity due to concerns over the coronavirus.`\
-https://nytimes.com/aponline/2020/03/25/us/ap-us-virus-outbreak-utah-1st-ld-writethru.html?searchResultPosition=3
+**Airbnb Says U.S. Coronavirus Stimulus Bill Could Offer Its Hosts Some Relief**\
+`Airbnb Inc hosts in the United States could get some relief from a $2 trillion coronavirus stimulus bill that is nearing a vote in Congress, the home-rental startup said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-health-cornavirus-usa-airbnb.html?searchResultPosition=3
 
-**Navy Vet Freed From Iranian Prison Ill, Seeks Transfer to US**\
-`A Navy veteran released from an Iranian prison last week on a medical furlough says he is sick with symptoms of the coronavirus and is requesting a humanitarian evacuation to the United States for medical treatment.`\
-https://nytimes.com/aponline/2020/03/25/us/politics/ap-us-virus-outbreak-american-prisoner.html?searchResultPosition=4
+**South Korea Reports 104 New Coronavirus Cases, Total 9,241: KCDC**\
+`South Korea reported 104 new coronavirus cases on Thursday, bringing its total infections to 9,241, the Korea Centers for Disease Control and Prevention said.`\
+https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-health-coronavirus-southkorea-cases.html?searchResultPosition=4
 
-**White House Weighs Tariff Delay**\
-`The Trump administration is considering postponing tariff payments on some imported goods for 90 days as part of its response to a faltering economy`\
-https://nytimes.com/2020/03/25/business/economy/white-house-tariffs-coronavirus.html?searchResultPosition=5
+**SoftBank Group's Share Rally Ends After Moody's Downgrade**\
+`SoftBank Group Corp's shares fell 8% in early trade on Thursday, ending a 55% rally in the stock, after Moody's downgraded the tech conglomerate's debt rating by two notches over plans to sell prime assets into a volatile market.`\
+https://nytimes.com/reuters/2020/03/25/business/25reuters-softbank-group-shares.html?searchResultPosition=5
 
-**A Cruel Motive for a Costly Delay**\
-`Republican senators are threatening to block trillions of dollars in aid amid the coronavirus pandemic to deprive low-wage workers of needed help.`\
-https://nytimes.com/2020/03/25/opinion/coronavirus-stimulus-senate.html?searchResultPosition=6
+**Home-Bound Users Fume as Video Apps Do Not Sync With TVs**\
+`Kat Volpe laid out an exercise mat and tried to sync her iPhone with her big screen TV for a fitness class webcast on Instagram last week during New York's coronavirus lockdown.`\
+https://nytimes.com/reuters/2020/03/25/arts/25reuters-health-coronavirus-google.html?searchResultPosition=6
 
-**Sound in a Circus Act**\
-`Alex Eaton-Salners flies toward the sun.`\
-https://nytimes.com/2020/03/25/crosswords/daily-puzzle-2020-03-26.html?searchResultPosition=7
+**Terror Charge for Man Authorities Say Coughed Near Woman and Said He Had Virus**\
+`George Falcone of Freehold, N.J., threatened an employee at a Wegmans grocery store, the state attorney general said.`\
+https://nytimes.com/2020/03/25/us/coronavirus-terrorism-nj.html?searchResultPosition=7
 
-**Our Writers Are Also Stuck at Home, So Let’s Chat**\
-`Frank Bruni, Nicholas Kristof, Jennifer Senior and other Opinion columnists and writers will be chatting every day at 1 p.m. Eastern.`\
-https://nytimes.com/2020/03/25/opinion/covid-twitter-chat.html?searchResultPosition=8
+**Will Smith Says He’s Humbled by Rapper’s Tribute Music Video**\
+`Will Smith says he was “humbled and honored” after rapper Joyner Lucas released a tribute song honoring his career work. `\
+https://nytimes.com/aponline/2020/03/25/us/ap-us-people-will-smith.html?searchResultPosition=8
 
-**At Least 15 Killed in Multi-Car Crash After Curfew in Egypt**\
-`A trailer-truck smashed into multiple cars stopped on a freeway, killing 15 people and injuring a dozen in Egypt’s capital late Wednesday, authorities and state media reported.`\
-https://nytimes.com/aponline/2020/03/25/world/middleeast/ap-ml-egypt-deadly-cre-ash.html?searchResultPosition=9
+**W Magazine Goes on Hiatus, Furloughs Much of Its Staff**\
+`The magazine was sold by Condé Nast just last June.`\
+https://nytimes.com/2020/03/25/fashion/w-magazine-struggles.html?searchResultPosition=9
 
-**Richard Reeves, Columnist and Author on Presidents, Dies at 83**\
-`His books on Kennedy, Nixon, Clinton and others could be as unsparing as his syndicated column. He was also a familiar face on PBS public-affairs programs.`\
-https://nytimes.com/2020/03/25/books/richard-reeves-dead.html?searchResultPosition=10
+**Japan to Set Up Coronavirus HQ, Possible Step to Emergency Declaration: Media**\
+`The Japanese government was preparing to set up a special headquarters on coronavirus as early as Thursday afternoon, a step that could set the stage for declaring a state of emergency over the outbreak, Kyodo news agency reported, after the capital of Tokyo saw a sharp rise in cases this week.`\
+https://nytimes.com/reuters/2020/03/25/world/asia/25reuters-health-coronavirus-japan-headquarters.html?searchResultPosition=10
 
