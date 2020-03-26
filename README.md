@@ -10,7 +10,7 @@ https://nytimes.com/2020/03/26/nyregion/tape-movie-2020-real-story.html?searchRe
 `What heroic acts — big or small — have you witnessed during the coronavirus pandemic?`\
 https://nytimes.com/2020/03/26/learning/helpers.html?searchResultPosition=4
 
-**Exclusive: Indian Banks Plan Most Shut Down Most Branches During Lockdown-Sources**\
+**Exclusive: Indian Banks Plan to Shut Down Most Branches During Lockdown-Sources**\
 `India's central bank and major lenders are considering shutting down most branches across the country to prevent tens of thousands of employees from getting infected with the coronavirus, four sources familiar with the plan told Reuters.`\
 https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-india-banks-exclusive.html?searchResultPosition=5
 
