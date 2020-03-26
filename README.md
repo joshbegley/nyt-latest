@@ -1,36 +1,36 @@
+**Russia to Ground International Flights on March 27 Due to Coronavirus**\
+`The Russian government has ordered the civil aviation authority to suspend all regular and charter flights to and from Russia from March 27, the government said on its website.`\
+https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-russia-flights.html?searchResultPosition=2
+
+**Fresh From Iran’s Coronavirus Zone, Now Moving Across Afghanistan**\
+`Thousands of Afghans returning each day bring a risk of widespread infections to the border city of Herat and beyond in a country with little capacity to test for or treat Covid-19.`\
+https://nytimes.com/2020/03/26/world/asia/afghanistan-iran-coronavirus.html?searchResultPosition=3
+
+**ECB Will Not Apply Issuer Limit in New Crisis Fighting QE**\
+`The European Central Bank will not apply self-imposed purchase limits on its 750 billion euro coronavirus crisis-fighting bond buying scheme and will also expand the list of eligible securities, it said in a legal text.`\
+https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-ecb-qe.html?searchResultPosition=4
+
+**China's Factories Reopen, Only to Fire Workers as Virus Shreds Global Trade**\
+`Shi Xiaomin, who used to export suits and blazers by the thousands to South Korea, the Netherlands and the United States, was luckier than many other Chinese factory owners. `\
+https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-china-manufacturing.html?searchResultPosition=5
+
+**Coronavirus Slows U.S. Push to Produce Electric Vehicle Minerals**\
+`The coronavirus pandemic is hobbling U.S. efforts to produce lithium, rare earths and other materials used in electric vehicles and high-tech equipment, dealing a blow to President Donald Trump's plan to curb Chinese control of the strategic minerals sector.`\
+https://nytimes.com/reuters/2020/03/26/technology/26reuters-usa-mining-coronavirus.html?searchResultPosition=6
+
 **Global Smartphone Sales Fell 14% in February as Coronvirus Spread: Counterpoint**\
 `Global smartphone sales tumbled 14% in February as the coronavirus spread in China and overseas, Counterpoint Research said on Thursday, a likely harbinger of more declines as outbreaks worsen in many parts of the world.`\
-https://nytimes.com/reuters/2020/03/26/technology/26reuters-health-coronavirus-smartphones.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/26/technology/26reuters-health-coronavirus-smartphones.html?searchResultPosition=7
 
 **Australia Central Bank Buys $3 Billion Government Bonds in QE Program**\
 `The Reserve Bank of Australia (RBA) said it has bought A$3 billion ($1.8 billion) in sovereign government bonds on Thursday as part of its quantitative easing program to keep short-term yields around the cash rate of 0.25%. `\
-https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-australia-rba-bonds-purchases.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-australia-rba-bonds-purchases.html?searchResultPosition=8
 
 **Dollar Down Before Jobless Claims, U.S. Stimulus Passes Senate**\
 `The dollar fell against the yen and the euro on Thursday ahead of U.S. data due to be released later in the global day that is expected to show a surge in unemployment benefit claims as firms lay off workers due to the rapid spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-global-forex.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-global-forex.html?searchResultPosition=9
 
 **Asian Stocks Scratch Gains but Lose Steam on U.S. Job Jitters**\
 `Asian stocks eked out gains on Thursday, but the week's rally lost steam as investors seemed torn between relief at the agreement of a huge U.S. stimulus package and dread over a likely spike in jobless claims and coronavirus cases.`\
-https://nytimes.com/reuters/2020/03/26/business/26reuters-global-markets.html?searchResultPosition=5
-
-**Airbus Says Reducing Wing Production for Three Weeks**\
-`Airbus SE is reducing the production of aircraft wings for three weeks as it slows operations to put in place extra health and safety measures due to the coronavirus pandemic, the planemaker said on Thursday.`\
-https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-airbus-nl.html?searchResultPosition=6
-
-**Newly Jobless Americans Worry About Making Ends Meet**\
-`Optician Ali Nelson sent the final few orders of eyeglasses to clients last week before her Washington D.C.-based store closed to help prevent the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-usa-jobless.html?searchResultPosition=7
-
-**Ten Signs the Oil Industry Is Bent Out of Shape**\
-`The oil industry has been hit by a simultaneous demand and supply shock in March as the coronavirus pandemic cuts fuel consumption and top producer Saudi Arabia raises output to full capacity to fight a price war with rivals.`\
-https://nytimes.com/reuters/2020/03/26/business/26reuters-global-oil-distress.html?searchResultPosition=8
-
-**Coronavirus Delivers Tough Blow to Lebanon’s Dying Economy**\
-`Through 15 years of civil war and various bouts of violence since, Lebanon's Barbar eatery never closed its doors, serving up sandwiches to customers even if it meant doing so from behind sandbags.`\
-https://nytimes.com/aponline/2020/03/26/world/middleeast/ap-ml-virus-outbreak-lebanon-economic-blow.html?searchResultPosition=9
-
-**Number of Coronavirus Cases in Germany Rises to 36,508: RKI**\
-`The number of confirmed cases of coronavirus in Germany has risen to 36,508 and 198 people have died of the disease, statistics from the Robert Koch Institute for infectious diseases showed on Thursday.`\
-https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-germany-cases.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/26/business/26reuters-global-markets.html?searchResultPosition=10
 
