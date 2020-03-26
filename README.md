@@ -1,36 +1,36 @@
-**The New Travel Document: Photograph of an Empty Plane**\
-`The dramatic falloff in air travel is captured in travelers’ photographs of their recent flights.`\
-https://nytimes.com/2020/03/26/travel/coronavirus-empty-planes.html?searchResultPosition=2
+**IMF Asks G20 to Back Doubling of Its Emergency Financing to Fight Coronavirus**\
+`The International Monetary Fund on Thursday asked G20 leaders to back a doubling of its emergency financing capacity to strengthen its response to the rapidly spreading coronavirus pandemic that is set to cause a global recession in 2020.`\
+https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-g20-imf.html?searchResultPosition=2
 
-**On Russia-China Border, Selective Memory of Massacre Works for Both Sides**\
-`The countries agree a mass killing occurred on the Amur River in 1900. They would just prefer not to discuss it right now.`\
-https://nytimes.com/2020/03/26/world/europe/russia-china-border.html?searchResultPosition=3
+**U.S. Lawmakers Who Tested Positive for the Coronavirus**\
+`Three members of the U.S. Congress have tested positive for the new coronavirus, and more than two dozen others have said they are self-quarantining in hopes of limiting the spread of the pandemic.`\
+https://nytimes.com/reuters/2020/03/26/us/politics/26reuters-health-coronavirus-usa-congress-factbox.html?searchResultPosition=3
 
-**W.N.B.A. Will Hold ‘Virtual’ Draft in April**\
-`The league is keeping its scheduled date of April 17 but adapting the format to allow draftees to have their moment in the spotlight no matter where they are.`\
-https://nytimes.com/2020/03/26/sports/basketball/coronavirus-wnba-draft.html?searchResultPosition=4
+**Trump Says Reopen by Easter, Corporate America Says Not So Fast**\
+`President Donald Trump wants America to get back to business by Easter, suggesting some efforts to slow the spread of coronavirus outbreak will no longer be needed by then, but Corporate America is taking its lead from health professionals.`\
+https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-companies.html?searchResultPosition=4
 
-**Coronavirus Is Idling North Korea’s Ships, Achieving What Sanctions Did Not**\
-`North Korean ships distance themselves from Chinese ships and territory, bringing the country’s revenue stream from illicit exports of coal and other commodities to a sudden halt.`\
-https://nytimes.com/2020/03/26/video/coronavirus-northkorea-sanctions.html?searchResultPosition=5
+**Two Tesla Employees Test Positive for Coronavirus: Business Insider**\
+`Two employees of Tesla Inc have tested positive for coronavirus, Business Insider reported on Thursday, citing an internal email.`\
+https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-tesla.html?searchResultPosition=5
 
-**How the Fed’s Magic Money Machine Will Turn $454 Billion Into $4 Trillion**\
-`The central bank takes Treasury Department loan guarantees and uses them to stand up huge programs. Here’s how that works.`\
-https://nytimes.com/2020/03/26/business/economy/fed-coronavirus-stimulus.html?searchResultPosition=6
+**Exclusive: U.S. Nears Rule-Change to Restrict Huawei's Global Chip Supply-Sources**\
+`Senior cabinet officials in the Trump administration agreed to new measures to restrict the global supply of chips to China's Huawei Technologies, sources familiar with the matter said, as the White House ramps up criticism of China over coronavirus.     `\
+https://nytimes.com/reuters/2020/03/26/business/26reuters-usa-huawei-tech-chips-exclusive.html?searchResultPosition=6
 
-**Qatar Signs Agreements to Increase Strategic Food Stocks: Qatar News Agency**\
-`Qatar announced on Thursday it was signing agreements to increase its strategic food stuff reserves, according to the state news agency.`\
-https://nytimes.com/reuters/2020/03/26/world/middleeast/26reuters-health-coronavirus-qatar.html?searchResultPosition=7
+**Fiat Chrysler Agrees New 3.5 Billion Euro Credit Facility With Banks**\
+`Fiat Chrysler said on Thursday it has agreed a new credit facility with two banks, at a time when major carmakers are having to shut down plants, losing revenue as demand slumps in the wake of the coronavirus.    `\
+https://nytimes.com/reuters/2020/03/26/business/26reuters-fiat-chrysler-credit.html?searchResultPosition=7
 
-**Putin, Macron Discuss Repatriation of Citizens Amid Coronavirus**\
-`Russian President Vladimir Putin and his French counterpart Emmanuel Macron discussed the global coronavirus outbreak, agreeing to coordinate the issue of returning citizens to their home countries, the Kremlin said on Thursday.`\
-https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-russia-france.html?searchResultPosition=8
+**White House: Sending 'Everything We Can' to New York**\
+`The federal government is sending "everything we can" to New York to help with the surging coronavirus update there, including ventilators, gloves and masks for its hospitals, White House trade adviser Peter Navarro said on Thursday.`\
+https://nytimes.com/reuters/2020/03/26/us/26reuters-health-coronavirus-usa-navarro.html?searchResultPosition=8
 
-**Russian Aid to Italy Leaves EU Exposed**\
-`Russia's military planeloads of aid to Italy to combat the spread of coronavirus have exposed the European Union's failure to provide swift help to a member in crisis and handed President Vladimir Putin a publicity coup at home and abroad.`\
-https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-russia-eu.html?searchResultPosition=9
+**GoFundMe Confronts Coronavirus Demand**\
+`Americans are turning to crowdfunding to cover coronavirus-related costs while the government prepares to deliver on its stimulus plan. But most campaigns aren’t meeting their goals.`\
+https://nytimes.com/2020/03/26/style/gofundme-coronavirus.html?searchResultPosition=9
 
-**U.S. Imposes Fresh Sanctions on Iranian Individuals, Companies: Treasury**\
-`The United States has imposed sanctions on 15 Iranian individuals and five companies in Iran under a counter-terrorism program, according to a post on the Treasury web site on Thursday.`\
-https://nytimes.com/reuters/2020/03/26/technology/26reuters-usa-iran-sanctions.html?searchResultPosition=10
+**Lisbon's First 'Drive-Thru' Clinic Tests Patients for Coronavirus**\
+`In a redeveloped urban park in Lisbon, a "drive-thru" clinic is performing five-minute swab tests through car windows on people with coronavirus symptoms, as Portuguese authorities ramp up testing facilities to tackle the growing health emergency.`\
+https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-portugal-drive-thru.html?searchResultPosition=10
 
