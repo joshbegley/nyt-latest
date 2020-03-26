@@ -1,36 +1,36 @@
-**Euro Zone Faces 2% Recession, 10% if Lockdown Lasts: S&P Global**\
-`The coronavirus outbreak will see a 2% recession in the euro zone this year, S&P Global estimated on Thursday, warning that the contraction could be as much as 10% if the current lockdowns in the 19-country region last as long as four months.`\
-https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-eurozone-s-p.html?searchResultPosition=2
+**Vietnam to Limit Gatherings to 20 People to Curb Coronavirus Spread**\
+`Vietnam will ban gatherings of more than 20 people at a time for the next two weeks to help curb the spread of coronavirus, the Southeast Asian country's prime minister, Nguyen Xuan Phuc, said on Thursday. `\
+https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-vietnam-limit.html?searchResultPosition=2
 
-**Iran Has No Knowledge of Former FBI Agent's Whereabouts: Official Tweets**\
-`Iran has no knowledge about the whereabouts of a former FBI agent who disappeared in March 2007 in the Islamic Republic, a spokesman for the Iranian mission at the United Nations tweeted on Thursday, after Robert Levinson's family said he had died in Iranian custody.`\
-https://nytimes.com/reuters/2020/03/26/world/middleeast/26reuters-usa-iran-levinson-response.html?searchResultPosition=3
+**It’s Opening Day. Baseball Is Closed.**\
+`Instead of red, white and blue bunting and crowds flooding ballparks, we have players holed up in homes and endless questions about when baseball will return. When it does, it will be more important than ever.`\
+https://nytimes.com/2020/03/26/sports/baseball/opening-day-mlb.html?searchResultPosition=3
 
-**South Korea Wants Age Limit Raised for 2021 Football Tournament**\
-`South Korea's football association on Thursday called on the International Olympic Committee (IOC) to raise the age limit for the Tokyo Games in 2021 to ensure those players who helped their teams qualify are still eligible to compete.`\
-https://nytimes.com/reuters/2020/03/26/sports/soccer/26reuters-health-coronavirus-olympics-southkorea.html?searchResultPosition=4
+**‘We’re in Disaster Mode’: Courage Inside a Brooklyn Hospital Confronting Coronavirus**\
+`Test kits and protective gear have been in short supply, doctors are falling sick, and every day gets more difficult. But the staff keeps showing up.`\
+https://nytimes.com/2020/03/26/nyregion/coronavirus-brooklyn-hospital.html?searchResultPosition=4
 
-**UK Will See Steady Flow of Extra Ventilators in Coming Weeks-Junior Minister**\
-`The British healthcare system will see a steady delivery of 8,000 more ventilators over the coming weeks, junior health minister Edward Argar said on Thursday.`\
-https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-britain-argar.html?searchResultPosition=5
+**Surging Traffic Is Slowing Down Our Internet**\
+`With people going online more in the pandemic, internet traffic has exploded. That’s taking a toll on our download speeds and video quality.`\
+https://nytimes.com/2020/03/26/business/coronavirus-internet-traffic-speed.html?searchResultPosition=5
 
-**Vietnam Quarantines Tens of Thousands in Camps Amid Vigorous Attack on Coronavirus**\
-`Vietnam has sent tens of thousands of people to quarantine camps as waves of overseas citizens return home to escape a coronavirus pandemic spreading in Europe and the United States.`\
-https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-vietnam-quarantine.html?searchResultPosition=6
+**A Different Kind of Storm: New Orleans Facing Deadly Virus Outbreak**\
+`Louisiana may be experiencing the world’s fastest growth in new cases. Medical experts said Mardi Gras might have accelerated the crisis.`\
+https://nytimes.com/2020/03/26/us/coronavirus-louisiana-new-orleans.html?searchResultPosition=6
 
-**Japan Says Virus Has Made Economy's Condition 'Severe', Worst View in Seven Years**\
-`Japan's government offered its bleakest assessment on the economy in nearly seven years, saying conditions in March were "severe" as the coronavirus pandemic shut down factories and cooled consumption.`\
-https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-japan-report.html?searchResultPosition=7
+**A Gusher of Oil and Fewer Places to Put It**\
+`A chaotic mismatch between the supply and demand for oil is saturating the world’s ability to store it all.`\
+https://nytimes.com/2020/03/26/business/energy-environment/oil-storage.html?searchResultPosition=7
 
-**European Flights Down 60% This Week: Aviation Data Firm OAG**\
-`Flights in Europe are down 60% this week, equal to 92,000 fewer services, compared with the same week last year, aviation data firm OAG said on Thursday.`\
-https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-europe-airlines.html?searchResultPosition=8
+**Meet the Team Producing the Newspaper From Home**\
+`In response to the coronavirus pandemic, nearly all editors and designers are working remotely for the first time in the history of The Times.`\
+https://nytimes.com/2020/03/26/insider/meet-the-team-producing-the-newspaper-from-home.html?searchResultPosition=8
 
-**Jobless After Virus Lockdown, India's Poor Struggle to Eat**\
-`Some of India's legions of poor and people suddenly thrown out of work by a nationwide stay-at-home order began receiving aid distribution Thursday, as both the public and private sector work to blunt the impact of efforts to curb the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/03/26/world/asia/ap-as-virus-outbreak-india.html?searchResultPosition=9
+**She’s 10, Homeless and Wants to Learn. But She Has No Internet.**\
+`Thousands of students living in shelter and doubled up in overcrowded apartments have not received web-enabled devices for online learning.`\
+https://nytimes.com/2020/03/26/nyregion/new-york-homeless-students-coronavirus.html?searchResultPosition=9
 
-**World Food Security at Risk as Exporters Curb Sales, Importers Buy More**\
-`Global food security concerns are mounting with around a fifth of the world's population already under lockdown to fight the widening coronavirus pandemic that has infected over 470,000 people across 200 countries, killing 21,000.`\
-https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-food-security.html?searchResultPosition=10
+**In Coronavirus, Industry Sees Chance to Undo Plastic Bag Bans**\
+`Backers of single-use plastic bags, battered by a series of bans nationwide, are using the health scare to argue their bags are cleaner and safer.`\
+https://nytimes.com/2020/03/26/climate/plastic-bag-ban-virus.html?searchResultPosition=10
 
