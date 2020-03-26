@@ -1,36 +1,36 @@
+**Dutch Coronavirus Cases Rise by 1,019 to 7,431: Authorities**\
+`The number of confirmed coronavirus cases in the Netherlands rose by 1,019, or 16%, to 7,431, health authorities said on Wednesday.`\
+https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-netherlands-tally.html?searchResultPosition=2
+
+**Swiss Government Asked Swisscom for Data on People's Movements, Says Was Not Surveillance**\
+`Switzerland has asked state-controlled Swisscom for day-old mobile phone data to help judge whether measures to restrict people's movements and slow the coronavirus's spread were working, a federal health ministry official said on Thursday. `\
+https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-swiss-data.html?searchResultPosition=3
+
+**Mitsubishi Corp Could Take 10% Stake in Renault in Alliance Rejig: Report**\
+`Japanese conglomerate Mitsubishi Corp could potentially take a 10% stake in French carmaker Renault as part of scenarios being discussed to reinforce an alliance between Renault, Nissan and Mitsubishi Motors, Les Echos newspaper reported on Thursday. `\
+https://nytimes.com/reuters/2020/03/26/business/26reuters-renault-mitsubishi.html?searchResultPosition=4
+
+**Singapore Reports 52 New Coronavirus Cases, Total 683**\
+`Singapore reported 52 new coronavirus cases on Thursday, taking its tally to 683 infections. `\
+https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-singapore-cases.html?searchResultPosition=5
+
+**In Drastic Step, Italy Shuts Most Factories to Halt Virus**\
+`Italy has become the first western developed nation to idle most of its industry to halt the spread of the coronavirus, in a potential cautionary tale for other governments, such as the Trump administration, that are resisting such drastic measures.`\
+https://nytimes.com/aponline/2020/03/26/business/bc-virus-outbreak-italy-industrial-shutdown.html?searchResultPosition=6
+
+**3.3 Million Join Unemployment Rolls, Shattering U.S. Record**\
+`The weekly figure is among the first data on the economic toll of the vast disruption of normal life and commerce caused by the coronavirus pandemic.`\
+https://nytimes.com/2020/03/26/business/economy/coronavirus-unemployment-claims.html?searchResultPosition=7
+
+**Smaller Communities Prepare for Onslaught of Virus Patients**\
+`It started with an infected person from out of town who attended a funeral. Now the largest hospital in Georgia’s mostly rural, southwest corner is rapidly running out of space amid the highest rate of coronavirus infection in the entire state.`\
+https://nytimes.com/aponline/2020/03/26/us/ap-us-virus-outbreak-small-cities.html?searchResultPosition=8
+
 **Iraq, Lebanon Extend Government Restrictions to Combat Virus**\
 `Iraq and Lebanon prepared Thursday to extend government-imposed restrictions on movement for two more weeks, the latest measures announced to stem the spread of the new coronavirus.`\
-https://nytimes.com/aponline/2020/03/26/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/03/26/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=9
 
 **Kazakhstan Orders Residents of Major Cities to Stay Home**\
 `Kazakhstan will bar the residents of its two biggest cities, Almaty and Nur-Sultan, from leaving their homes except for work or to buy food or medicines, starting from March 28, the Central Asian nation's government said on Thursday.`\
-https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-kazakhstan.html?searchResultPosition=3
-
-**Norway Extradites Convicted Kurdish Cleric to Italy**\
-`A Muslim cleric was extradited Thursday from Norway to Italy, where he has been sentenced to 12 years in jail for planning terror.`\
-https://nytimes.com/aponline/2020/03/26/world/europe/ap-eu-norway-italy-extradition.html?searchResultPosition=4
-
-**Over Two-Thirds of Polish Firms Plan Coronavirus-Related Job Cuts: Survey**\
-`Job cuts might be necessary in 69% of Poland's businesses because of coronavirus, a survey showed on Thursday, illustrating the extent of the challenges facing central Europe's largest economy as a result of the outbreak.`\
-https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-poland-jobs.html?searchResultPosition=5
-
-**U.S.-Israeli Pyramid Analytics Raises $25 Million in Funding**\
-`Pyramid Analytics, a U.S.-Israeli developer of a business intelligence platform, said on Thursday it raised $25 million, led by venture capital fund Jerusalem Venture Partners (JVP). `\
-https://nytimes.com/reuters/2020/03/26/business/26reuters-tech-pyramid-analytics-fundraising.html?searchResultPosition=6
-
-**Cases in Italy's Lombardy Rise by Some 2,500 on Thursday, Data 'Not Good': Official**\
-`The number of coronavirus cases in the in the northern region of Lombardy, which includes Italy's financial capital Milan, increased by some 2,500 on Thursday, regional governor Attilio Fontana said.`\
-https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-italy-fontana.html?searchResultPosition=7
-
-**Australia Enters 4,000 Healthcare Workers in Trial for Coronavirus Vaccine**\
-`Thousands of Australian healthcare workers will begin a trial to see if a century-old vaccine for tuberculosis can fight off the new coronavirus, researchers said, joining a global test of the unorthodox solution underway in several countries.`\
-https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-australia-vaccine.html?searchResultPosition=8
-
-**U.S. Jobless Claims Balloon to Record on Coronavirus Impact**\
-`The number of Americans filing claims for unemployment benefits shot to record of more than 3 million last week as strict measures to contain the coronavirus pandemic ground the country to a sudden halt, unleashing a wave of layoffs that likely brought an end to the longest employment boom in U.`\
-https://nytimes.com/reuters/2020/03/26/business/26reuters-usa-economy-joblessclaims-instantview.html?searchResultPosition=9
-
-**Fearing Coronavirus, African City Dwellers Flee to the Countryside**\
-`Each morning at a crowded bus station east of Nairobi, Kenyans load their bags on to minibuses emblazoned with the faces of pop stars and Jesus, heading to their villages in the hope of escaping the coronavirus.`\
-https://nytimes.com/reuters/2020/03/26/world/africa/26reuters-health-coronavirus-africa-exodus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-kazakhstan.html?searchResultPosition=10
 
