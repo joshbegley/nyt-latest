@@ -16,7 +16,7 @@ https://nytimes.com/2020/03/26/well/live/being-together-while-staying-apart.html
 
 **The Coronavirus Economy: When Washington Takes Over Business**\
 `The $2 trillion aid package is expected to save jobs and bail out companies, but it reorders the relationship between government and private industry.`\
-https://nytimes.com/2020/03/26/business/coronavirus-relief-bill.html?searchResultPosition=6
+https://nytimes.com/2020/03/26/business/economy/coronavirus-relief-bill.html?searchResultPosition=6
 
 **Michigan Regents Fire Opera Singer Accused of Sexual Assault**\
 `The University of Michigan's Board of Regents on Thursday fired a music professor and noted opera singer who, along with his husband, is accused of sexually assaulting a fellow singer in Houston 10 years ago.`\
