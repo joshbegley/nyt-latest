@@ -1,36 +1,36 @@
+**India's Yes Bank to Raise Up to 50 Billion Rupees After Government-Led Rescue**\
+`Yes Bank Ltd said on Thursday it was looking to raise up to 50 billion rupees ($665.88 million) in an effort to shore up its capital base after a government-led rescue of the private sector lender.`\
+https://nytimes.com/reuters/2020/03/26/business/26reuters-yes-bank-fundraising.html?searchResultPosition=2
+
+**Harley-Davidson Withdraws Outlook Due to Coronavirus Disruption**\
+`Harley-Davidson Inc on Thursday withdrew its financial forecasts as the coronavirus outbreak hurts its supply chain, and warned further disruptions could dent its ability to supply and sell motorcycles.`\
+https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-harley-davidson.html?searchResultPosition=3
+
+**Mnuchin: Americans to Get Aid Within Three Weeks Amid Coronavirus**\
+`Americans should receive direct deposits for financial aid within three weeks as soon as the coronavirus economic relief bill is signed into law, the U.S. Treasury Secretary said, adding that the record jobless claims announced on Thursday "are not relevant."`\
+https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-usa-mnuchin.html?searchResultPosition=4
+
+**IndyCar Goes Virtual Racing as It Waits to Get Back on Track**\
+`IndyCar isn't sure when it can get its cars on track to officially start the season. For now, the series will follow the lead of other racing leagues and go virtual. `\
+https://nytimes.com/aponline/2020/03/26/sports/ap-car-indycar-iracing-.html?searchResultPosition=5
+
+**Slovakia's New Government to Sharply Ramp Up Coronavirus Testing**\
+`Slovakia aims to sharply increase daily coronavirus testing in the next few weeks by bringing bringing in laboratories as the new government seeks to put a clamp on the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-slovakia.html?searchResultPosition=6
+
+**UK Politician Chides PM Johnson for Spurning EU Ventilator Program**\
+`The leader of the opposition Liberal Democrats criticized Prime Minister Boris Johnson on Thursday for refusing to participate in a European Union ventilator procurement program.`\
+https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-britain-libdems.html?searchResultPosition=7
+
 **At Least 3.28 Million Americans Lost Their Jobs Last Week. See Your State.**\
 `By Quoctrung Bui and Justin Wolfers`\
-https://nytimes.com/interactive/2020/03/26/upshot/coronavirus-millions-unemployment-claims.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/03/26/upshot/coronavirus-millions-unemployment-claims.html?searchResultPosition=8
 
 **How We Got By: New Yorkers’ Advice for Getting Through a Crisis**\
 `Tales from the worst days of people's lives.`\
-https://nytimes.com/2020/03/26/business/how-to-cope-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/03/26/business/how-to-cope-coronavirus.html?searchResultPosition=9
 
 **The Saint Who Stopped an Epidemic Is on Lockdown at the Met**\
 `Quarantined in Sicily, van Dyck painted a daughter of Palermo who saved the city from an outbreak. Our critic went to see her in an empty museum.`\
-https://nytimes.com/2020/03/26/arts/design/van-dyck-metropolitan-museum-virus.html?searchResultPosition=4
-
-**Record-Setting Olympians Stretch Careers for Games in 2021**\
-`Even if it takes an extra year, Nino Salukvadze will still be aiming for an Olympic record.`\
-https://nytimes.com/aponline/2020/03/26/sports/olympics/ap-oly-record-olympians.html?searchResultPosition=5
-
-**Unprepared for the Worst: World’s Most Vulnerable Brace for Virus**\
-`Crowded camps, depleted clinics and scarce soap and water make social distancing and even hand-washing impossible for millions of refugees.`\
-https://nytimes.com/2020/03/26/world/asia/coronavirus-refugees-camps-bangladesh.html?searchResultPosition=6
-
-**Mali Opposition Leader Abducted With Campaign Team in North**\
-`The leader of Mali's political opposition and members of his campaign team have been taken hostage by unidentified gunmen in the north, the spokesman for his political party said Thursday.`\
-https://nytimes.com/aponline/2020/03/26/world/africa/ap-af-mali-kidnapping.html?searchResultPosition=7
-
-**Sister: NY Nurse Treating Coronavirus Patients Dies of Virus**\
-`A health care worker at one of the New York City hospitals under siege by the coronavirus has died, according to coworkers and his sister.`\
-https://nytimes.com/aponline/2020/03/26/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=8
-
-**IOC Declines to Blame Olympic Boxing Event for Virus Cases**\
-`The IOC said Thursday it is “not aware of any link” between an Olympic boxing tournament it oversaw in London this month and positive coronavirus tests for people who were there.`\
-https://nytimes.com/aponline/2020/03/26/sports/olympics/ap-oly-boxing-tournament-virus.html?searchResultPosition=9
-
-**No More Dumb Coronavirus Questions, Berlin Police Beg**\
-`Am I allowed to have a hairdresser or beautician come to my home? Can I hang out with my friends outside? Can I chill with my mates at home? `\
-https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-germany-police.html?searchResultPosition=10
+https://nytimes.com/2020/03/26/arts/design/van-dyck-metropolitan-museum-virus.html?searchResultPosition=10
 
