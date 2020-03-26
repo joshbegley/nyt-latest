@@ -1,36 +1,36 @@
-**Kenya Confirms First Coronavirus Death**\
-`Kenya confirmed its first coronavirus death on Thursday,  government spokesman Cyrus Oguna said, without providing further details.`\
-https://nytimes.com/reuters/2020/03/26/world/africa/26reuters-health-coronavirus-kenya.html?searchResultPosition=2
+**U.S. to Return Canada-Bound Asylum Seekers Stopped at Border to Home Nations**\
+`After years of asylum-seekers crossing the Canada-U.S. border illegally to file refugee claims, Canada is turning them around and sending them back to the United States, which says it plans to send them swiftly back to their countries of origin. `\
+https://nytimes.com/reuters/2020/03/26/world/americas/26reuters-health-coronavirus-usa-asylum.html?searchResultPosition=2
 
-**U.S. CDC Reports 68,440 Coronavirus Cases, 994 Deaths**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Thursday reported 68,440 coronavirus cases, an increase of 13,987 cases from its previous count, and said the death toll had risen by 257 to 994.`\
-https://nytimes.com/reuters/2020/03/26/us/26reuters-health-coronavirus-usa-cdc.html?searchResultPosition=3
+**A Daughter Learns in Voicemails That Coronavirus Has Killed Her Mother**\
+`Debbie de los Angeles woke up on March 3 to two voicemails from nurses at the Seattle-area care home that housed her 85-year-old mother, Twilla Morin.`\
+https://nytimes.com/reuters/2020/03/26/us/26reuters-health-coronavirus-usa-messages-insight.html?searchResultPosition=3
 
-**Coronavirus Death Toll in Italy's Lombardy Rises by More Than 385 in a Day: Source**\
-`The death toll from an outbreak of coronavirus in the northern region of Lombardy, which has borne the brunt of Italy's contagion, has risen by more than 385 in a day to around 4,860, a source familiar with the data said on Thursday.`\
-https://nytimes.com/reuters/2020/03/26/world/europe/26reuters-health-coronavirus-italy-lombardy.html?searchResultPosition=4
+**Trump Expected to Send U.S. Troops to Canada Border to Support Operations Amid Coronavirus Crisis**\
+`U.S. President Donald Trump is expected to send troops to the border with Canada to support border operations amid the growing coronavirus crisis, two U.S. government officials told Reuters.`\
+https://nytimes.com/reuters/2020/03/26/world/americas/26reuters-health-coronavirus-usa-canada.html?searchResultPosition=4
 
-**Elderly in UK Care Home Embrace Technology to Beat Coronavirus Lockdown**\
-`Residents in a British care home are embracing technology to stay in touch with friends and family as the country faces the possibility of weeks of lockdown amid the coronavirus epidemic.`\
-https://nytimes.com/reuters/2020/03/26/technology/26reuters-health-coronavirus-britain-care-home.html?searchResultPosition=5
+**NBCUniversal CEO Jeff Shell Tests Positive for the Coronavirus**\
+`Comcast-owned NBCUniversal Chief Executive Officer Jeff Shell has tested positive for the coronavirus, according to a memo to staff on Thursday.`\
+https://nytimes.com/reuters/2020/03/26/us/26reuters-health-coronavirus-comcast-jeff-shell.html?searchResultPosition=5
 
-**The Challenge of Feeding Kids During Coronavirus**\
-`It’s OK to let children indulge in their favorite foods while riding out the crisis. Plus: resources for food-insecure families.`\
-https://nytimes.com/2020/03/26/parenting/coronavirus-kids-cooking.html?searchResultPosition=6
+**Attorney General Seeks to Expand Home Confinement as More Inmates Contract Coronavirus**\
+`U.S. Attorney General William Barr said Thursday he has directed the federal Bureau of Prisons (BOP) to expand its use of home confinement for inmates in appropriate cases, as the coronavirus has continued to spread in the federal prison system.`\
+https://nytimes.com/reuters/2020/03/26/us/26reuters-health-coronavirus-prisons.html?searchResultPosition=6
 
-**Canada Tells US Not to Put Troops at Border During Pandemic**\
-`Canadian Prime Minister Justin Trudeau said Thursday his government has told the Trump administration that it is not in favor of the U.S. putting troops at the U.S.-Canada border amid the pandemic. `\
-https://nytimes.com/aponline/2020/03/26/world/ap-cn-virus-outbreak-canada-us.html?searchResultPosition=7
+**Coffee Still King in U.S. as Number of Daily Drinkers Rises, Study Says**\
+`The number of people in the United States who have coffee every day has increased 5% since 2015, maintaining its ranking as the most consumed beverage in the country, the National Coffee Association (NCA) said in a study released on Thursday.`\
+https://nytimes.com/reuters/2020/03/26/world/americas/26reuters-usa-coffee-study.html?searchResultPosition=7
 
-**Sweet: Peeps Production Stops, but Easter Is Taken Care Of**\
-`No more Peeps are being hatched for at least a couple of weeks — but it shouldn't affect Easter baskets.`\
-https://nytimes.com/aponline/2020/03/26/business/bc-us-virus-outbreak-easter-peeps.html?searchResultPosition=8
+**Hockey Equipment Maker Bauer Shifts to Medical Shields**\
+`Hockey equipment manufacturer Bauer has shifted from making visors for helmets to medical visors for those fighting the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/03/26/business/ap-hkn-medical-visors.html?searchResultPosition=8
 
-**‘I Never Knew Anyone Less Jaded’: Admiring Terrence McNally**\
-`Audra McDonald, Lin-Manuel Miranda and Joe Mantello on a versatile collaborator who came to know “he didn’t have to repeat himself.’`\
-https://nytimes.com/2020/03/26/theater/terrence-mcnally-remembered.html?searchResultPosition=9
+**What to Know About Making a Will in the Age of Coronavirus**\
+`Estate planning lawyers we talked to this week said they have been getting more calls since the outbreak worsened.`\
+https://nytimes.com/article/what-is-a-will-and-how-to-make-one.html?searchResultPosition=9
 
-**California Man Arrested in Tout for Coronavirus 'Cure'**\
-`The FBI has arrested a Southern California man who officials said falsely claimed to have developed a cure for the coronavirus and solicited investments in a company he said would market the medication, federal prosecutors said. `\
-https://nytimes.com/aponline/2020/03/26/us/bc-us-virus-outbreak-phony-cure-1st-ld-writethru.html?searchResultPosition=10
+**IEA Says Global Oil Demand Could Drop 20% as 3 Billion People in Lockdown**\
+`Global oil demand could drop as much as 20 million barrels per day or 20% of total demand as 3 billion people are currently in a lockdown because of the coronavirus outbreak, the head of the International Energy Agency said.`\
+https://nytimes.com/reuters/2020/03/26/business/26reuters-global-oil-iea.html?searchResultPosition=10
 
