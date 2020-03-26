@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/03/26/business/26reuters-health-coronavirus-dai
 https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-southasia.html?searchResultPosition=4
 
 **World Leaders to Meet Virtually to Coordinate Virus Response**\
-`Leaders of the world's most powerful economies will convene virtually on Thursday to try and coordinate a response to the fast-spreading coronavirus, which has shuttered businesses and forced well over 1.5 billion people into home isolation.`\
+`Leaders of the world's most powerful economies will convene virtually on Thursday to try and coordinate a response to the fast-spreading coronavirus, which has shuttered businesses and forced well over a quarter of the world's population into home isolation.`\
 https://nytimes.com/aponline/2020/03/26/business/bc-virus-outbreak-g20.html?searchResultPosition=5
 
 **UK Health Minister Says 560,000 Volunteers Sign Up to Help NHS**\
