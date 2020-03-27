@@ -1,36 +1,36 @@
-**EU, China and 14 Others Agree Stop-Gap Fix for WTO Crisis**\
-`The European Union, China and 14 other World Trade Organization members agreed on Friday on a temporary mechanism to resolve trade disputes after U.S. action rendered the WTO incapable of acting as the arbiter of global trade. `\
-https://nytimes.com/reuters/2020/03/27/world/americas/27reuters-trade-wto.html?searchResultPosition=2
+**Coronavirus Death Toll in Italy's Lombardy Rises by Around 541 in a Day: Source**\
+`The death toll from an outbreak of coronavirus in the northern region of Lombardy, which has borne the brunt of Italy's contagion, has risen by around 541 in a day to some 5,402, a source familiar with the data said on Friday.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-italy-lombardy.html?searchResultPosition=2
 
-**Global Watchdog Defers Bank Capital Rules to 2023 Due to Epidemic**\
-`Global banking regulators said on Friday they will give banks an extra year to implement pending capital rules in order for them to focus on the fallout from the coronavirus epidemic.`\
-https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-basel-banks.html?searchResultPosition=3
+**Slovakia to Limit Some Truck Transit Due to Border Jams**\
+`Slovakia is closing border crossings with Poland, the Czech Republic, Hungary and Austria for the transit of trucks over 7.5 tons delivering non-essential goods, the police said on Friday.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-slovakia-transport.html?searchResultPosition=3
 
-**Your Money: The One Document Americans Need Now-Power of Attorney**\
-`If you live in the United States and really want to be prepared for coronavirus, experts say you need a fully executed power of attorney, which designates a trusted person to take over your finances should you become incapacitated. `\
-https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-wills.html?searchResultPosition=4
+**How to Ease the Economic Pain of Coronavirus**\
+`Readers’ ideas include allowing tax-free 401(k) withdrawals, hiatuses on loan payments, rent forgiveness for businesses and paying household help, even in their absence.`\
+https://nytimes.com/2020/03/27/opinion/letters/us-coronavirus-economy.html?searchResultPosition=4
 
-**Factbox: Highlights of Canada's Stimulus Measures to Fight Coronavirus Outbreak**\
-`-  Export Development Canada and Business Development Bank to get additional C$12.5 billion ($8.9 billion) to provide guaranteed loans to small-and medium-sized businesses.`\
-https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-canada-factbox.html?searchResultPosition=5
+**UK's Gatwick Airport to Shut One of Its Two Terminals as Virus Hits Demand**\
+`London's second-busiest airport, Gatwick, said on Friday it would shut one of its two terminals next week following a collapse in flight numbers and government restrictions on unnecessary trips.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-britain-gatwick.html?searchResultPosition=5
 
-**When Romance Is a Scam**\
-`More con artists are finding their marks on all manner of social media platforms, knowing that the payoff from older victims can be big.`\
-https://nytimes.com/2020/03/27/well/elderly-romance-scam.html?searchResultPosition=6
+**World's Worst Air Adds to Serbian Capital's Coronavirus Woes**\
+`Belgrade's residents on Friday isolated themselves not only from coronavirus but also from acrid smoke, which defied strong winds to transform the Serbian capital into the city with the world's most polluted air.`\
+https://nytimes.com/reuters/2020/03/27/world/27reuters-health-coronavirus-serbia-pollution.html?searchResultPosition=6
 
-**The Story of the NFL Draft, From Extravaganza to Unadorned**\
-`An NFL draft handled remotely because the coronavirus pandemic is the latest twist to an event that has become as popular as any pro football happening short of the Super Bowl.`\
-https://nytimes.com/aponline/2020/03/27/sports/football/ap-fbn-nfl-draft.html?searchResultPosition=7
+**Famously Boisterous Nigerian Mega-City Lagos Adjusts to Coronavirus Lockdown**\
+`Fear of the coronavirus has induced an extraordinary calm in Lagos, Nigeria's famously boisterous mega-city where streets known for miles of gridlock have emptied of traffic and eateries  serving takeaways are almost the only shops open.`\
+https://nytimes.com/reuters/2020/03/27/world/africa/27reuters-health-coronavirus-nigeria-lagos.html?searchResultPosition=7
 
-**New York Could See Apex of Hospital Demand in 21 Days, Governor Says**\
-`New York could see a peak in the demand for hospital capacity in three weeks due to the coronavirus, and is planning to build a total of 8 temporary hospitals to meet the surge, Governor Andrew Cuomo told a news conference on Friday.`\
-https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-usa-new-york.html?searchResultPosition=8
+**Northern Ireland to Reopen Locked-Down Drink Stores**\
+`Northern Ireland's devolved government is set to reopen off-licenses, its justice minister said on Friday, putting the region in line with the rest of United Kingdom and coronavirus-related restrictions introduced in the Irish Republic.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-nireland.html?searchResultPosition=8
 
-**If Your Kid Keeps Asking ‘Why,’ Give Them an Answer**\
-`Your kid’s constant questions might be annoying but they offer a unique chance to shape their developing brains`\
-https://nytimes.com/2020/03/27/parenting/kids-asking-questions-development.html?searchResultPosition=9
+**A Dinner-Worthy Grilled Cheese**\
+`A basic grilled cheese doesn’t feel like dinner, but it can when you stuff it full of caramelized onions.`\
+https://nytimes.com/2020/03/27/dining/a-dinner-worthy-grilled-cheese.html?searchResultPosition=9
 
-**House of Davis Love III Destroyed by Early Morning Fire**\
-`The house of Hall of Fame golfer Davis Love III was destroyed by fire early Friday morning in a blaze that could not be controlled, even with 16 firefighters arriving within minutes, the fire chief said.`\
-https://nytimes.com/aponline/2020/03/27/sports/golf/ap-glf-davis-love-home.html?searchResultPosition=10
+**UK Top Scientist Working Closely With Johnson Says Has No Coronavirus Symptoms**\
+`Britain's Chief Scientific Adviser Patrick Vallance has no symptoms of Covid-19 and has not been tested for the novel coronavirus, he said on Thursday after Prime Minister Boris Johnson said he had tested positive for the virus.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-britain-vallance.html?searchResultPosition=10
 
