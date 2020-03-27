@@ -1,36 +1,36 @@
-**Migrant Farmworkers Whose Harvests Feed Europe Are Blocked at Borders**\
-`Legions of seasonal workers from Eastern Europe who harvest crops from Spain to Sweden can’t get in, forcing a rapid rethink of how to secure food at Europe’s farms.`\
-https://nytimes.com/2020/03/27/business/coronavirus-farm-labor-europe.html?searchResultPosition=2
+**Stock Markets in Asia Climb After U.S. Rally: Live Updates**\
+`Live updates on stock market and business news during the coronavirus outbreak.`\
+https://nytimes.com/2020/03/27/business/stock-market-today-coronavirus.html?searchResultPosition=2
 
-**For France, Coronavirus Tests a Vaunted Health Care System**\
-`The country goes into the battle with the contagion better prepared than most. Even so, a doubling of cases every four days has the structure creaking and straining.`\
-https://nytimes.com/2020/03/27/world/europe/coronavirus-france-health-care.html?searchResultPosition=3
+**Bon Jovi, Prince Harry and Military Choir Launch Charity Single 'Unbroken'**\
+`U.S. rocker Jon Bon Jovi teamed up with Britain's Prince Harry and a military choir to release the single "Unbroken" on Friday to raise awareness of Post-Traumatic Stress Disorder.`\
+https://nytimes.com/reuters/2020/03/27/arts/27reuters-britain-royals-harry-music.html?searchResultPosition=3
 
-**On the Front Lines of a Pandemic, ‘I Love You’ Can Mean ‘Goodbye’**\
-`Separated from family and worried about patients and colleagues, an internist where the U.S. outbreak began counts losses and blessings.`\
-https://nytimes.com/2020/03/27/style/modern-love-coronavirus-seattle-kirkland.html?searchResultPosition=4
+**UFC Light Heavyweight Champ Jones Arrested, Accused of DWI**\
+`UFC light heavyweight champion Jon “Bones" Jones has been arrested on suspicion of DWI and other offenses after officers heard gunshots and found him in a parked car with a handgun and a half-empty bottle of liquor early Thursday, Albuquerque police said.`\
+https://nytimes.com/aponline/2020/03/27/sports/ap-mma-jon-jones-arrested-1st-ld-writethru.html?searchResultPosition=4
 
-**Corrections: March 27, 2020**\
-`Corrections that appeared in print on Friday, March 27, 2020.`\
-https://nytimes.com/2020/03/26/pageoneplus/corrections-march-27-2020.html?searchResultPosition=5
+**AP Week in Pictures, Latin America & Caribbean**\
+`MARCH 20-26, 2020`\
+https://nytimes.com/aponline/2020/03/27/us/ap-lt-pictures-of-the-week-in-latin-america-caribbean-photo-gall.html?searchResultPosition=5
 
-**Quotation of the Day: Job Losses Soar; U.S. Virus Cases Top World**\
-`Quotation of the Day for Friday, March 27, 2020.`\
-https://nytimes.com/2020/03/26/todayspaper/quotation-of-the-day-job-losses-soar-us-virus-cases-top-world.html?searchResultPosition=6
+**A Defiant Maduro Threatens 'Cowboy' Trump After Drug Charge**\
+`Venezuelan President Nicolás Maduro stood defiant in the face of a $15 million bounty by the U.S. to face drug trafficking charges, calling Donald Trump a “racist cowboy” and warning that he is ready to fight by whatever means necessary should the U.S. and neighboring Colombia dare to invade.`\
+https://nytimes.com/aponline/2020/03/27/us/ap-lt-us-venezuela-maduro.html?searchResultPosition=6
 
-**Australia Strengthens Self Isolation Rules for Returning Citizens as Coronavirus Spreads**\
-`Australian Prime Minister Scott Morrison on Friday tightened enforcement on self isolation for thousands of citizens returning from overseas, saying states and territories would quarantine all arrivals in hotels. `\
-https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-health-coronavirus-australia-curbs.html?searchResultPosition=7
+**In China's Hubei, Uncertainty, Pessimism and Hope as Life Resumes**\
+`Li Yu is happy she sold six pieces of roasted corn on the day she reopened her stall after travel restrictions were lifted in Jingzhou, but she worries about the future of her business near the city's ancient wall, a tourist attraction in Hubei province.`\
+https://nytimes.com/reuters/2020/03/27/world/asia/27reuters-health-coronavirus-china-hubei.html?searchResultPosition=7
 
-**Tencent to Develop Cloud Game Platform With Huawei**\
-`China's Tencent Holdings launched a co-innovation lab with Huawei to develop a cloud game platform, the world's biggest game company said in a statement Friday.`\
-https://nytimes.com/reuters/2020/03/26/technology/26reuters-tencent-huawei-games.html?searchResultPosition=8
+**U.S. Airlines to Dash for Cash Grants, Not Loans, Even With Potential Government Stake**\
+`U.S. airlines are preparing to tap the government for up to $25 billion in grants to cover payroll in a sharp travel downturn triggered by the coronavirus, even after the government warned it may take stakes in exchange for bailout funds, people familiar with the matter said.`\
+https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-airlines-strategy.html?searchResultPosition=8
 
-**U.S. Increases Support for Taiwan in Recognition Battle With China**\
-`U.S. President Donald Trump has signed into law an act that requires increased U.S. support for Taiwan internationally, which will likely infuriate a China already angry with Trump's criticism of the handling of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/26/world/asia/26reuters-taiwan-usa.html?searchResultPosition=9
+**Coronavirus Live Updates: U.S. Has More Cases Than Any Other Country**\
+`At least 81,321 people have been infected in the United States. As states pleaded for supplies, the White House canceled a plan to produce thousands of ventilators.`\
+https://nytimes.com/2020/03/27/world/coronavirus-news.html?searchResultPosition=9
 
-**Man Charged With Making Death Threats to Nancy Pelosi in Coronavirus Rant**\
-`Gavin Weslee Blake Perry, 27, of Wichita Falls, Texas, wrote on Facebook that Democrats were terrorists and should be shot on sight, prosecutors said.`\
-https://nytimes.com/2020/03/26/us/texas-man-pelosi-death-threats-virus.html?searchResultPosition=10
+**Singapore Airlines Latest to Get Massive Rescue Amid Coronavirus Crisis**\
+`Singapore Airlines Ltd said it had secured up to S$19 billion ($13 billion) of funding to help see it through the coronavirus crisis and expand afterward, in a sign of confidence travel demand will eventually return.`\
+https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-airlines.html?searchResultPosition=10
 
