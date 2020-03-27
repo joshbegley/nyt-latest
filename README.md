@@ -1,36 +1,36 @@
-**'Communication Issue': UK Missed EU Ventilator Programme**\
-`Britain's failure to join a European Union procurement programme for ventilators to treat those ill with coronavirus was due to a communications issue, Business Secretary Alok Sharma said.`\
-https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-britain-ventilators.html?searchResultPosition=2
+**These Companies Enriched Themselves. Now They’re Getting a Bailout.**\
+`Are taxpayers rewarding bad behavior?`\
+https://nytimes.com/interactive/2020/03/27/opinion/coronavirus-bailout.html?searchResultPosition=2
 
-**Exclusive: Russia Calls for New Enlarged OPEC Deal to Tackle Oil Demand Collapse**\
-`A new OPEC+ deal to balance oil markets might be possible if other countries join in, Kirill Dmitriev, head of Russia's sovereign wealth fund said, adding that countries should also cooperate to cushion the economic fallout from coronavirus.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-oil-opec-russia-rdif-exclusive.html?searchResultPosition=3
+**Indonesia Reports Highest Daily Rise in New Coronavirus Cases**\
+`Indonesia has confirmed 153 new coronavirus cases, the biggest daily rise so far and taking the Southeast Asian country's total to 1,046, Health Ministry official Achmad Yurianto said on Friday.`\
+https://nytimes.com/reuters/2020/03/27/world/asia/27reuters-health-coronavirus-indonesia.html?searchResultPosition=3
 
-**Time Wasted in Defense of India's Coronavirus Medical Staff, Groups Say**\
-`As the coronavirus spread across Asia in February, Indian manufacturers of personal protective equipment contacted the health ministry urging the government to stock up.`\
-https://nytimes.com/reuters/2020/03/27/world/asia/27reuters-health-coronavirus-india-equipment.html?searchResultPosition=4
+**Our ‘Digital Selves’ Are No Less Real**\
+`‘Social distance socializing’ isn’t just a temporary stopgap. Online gatherings are the culmination of a broader shift.`\
+https://nytimes.com/2020/03/27/opinion/our-digital-selves-are-no-less-real.html?searchResultPosition=4
 
-**Exclusive: Japan Favors Home-Grown Design for Next-Generation Fighter After Rejecting Foreign Plans: Sources**\
-`Japan wants to develop a stealth fighter domestically, rejecting designs from Lockheed Martin Corp and Boeing Co in the United States and Britain's BAE Systems PLC, three sources with knowledge of the program told Reuters.   `\
-https://nytimes.com/reuters/2020/03/27/world/asia/27reuters-japan-defence-fighter-exclusive.html?searchResultPosition=5
+**Lawrence Wright Saw a Pandemic Coming**\
+`The journalist’s new thriller is eerily prescient. Too bad our leaders lack his foresight.`\
+https://nytimes.com/2020/03/27/opinion/sunday/lawrence-wright-end-of-october-virus.html?searchResultPosition=5
 
-**China's Auto Industry Wastes No Time Coaxing Drivers Back to Showrooms After Lockdown**\
-`China's auto industry has gone from zero to sixty in its post-pandemic campaign drive, with manufacturers and dealers quick to woo back lockdown-weary consumers through campaigns as unusual as a makeup-promoting personality touting car leasing.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-autos-china.html?searchResultPosition=6
+**Living Near Train Tracks**\
+`Thanks to new window technology, there’s no such thing as the wrong side of the tracks.`\
+https://nytimes.com/2020/03/27/realestate/living-near-train-tracks.html?searchResultPosition=6
 
-**South Korean Test Kit Makers Swamped as Coronavirus Cases Explode in U.S., Europe**\
-`Last year, South Korean biotech firm SolGent made diagnostic kits for 300,000 tests. Today, it is churning out more than that in a week, and production will further rise to 400,000 coronavirus tests next week.`\
-https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-southkorea-testkits.html?searchResultPosition=7
+**Train? What Train?**\
+`Window technology and engineering advances have made it possible to live right next to train tracks.`\
+https://nytimes.com/slideshow/2020/03/27/realestate/train-what-train.html?searchResultPosition=7
 
-**Exclusive: Support for Hong Kong Protesters' Demands Rises Even as Coronavirus Halts Rallies: Poll**\
-`Support for the demands of pro-democracy protesters in Hong Kong has grown even as rallies have paused due to the coronavirus outbreak, according to a survey conducted for Reuters that also showed a widespread lack of confidence in the government's ability to manage the COVID-19 crisis.`\
-https://nytimes.com/reuters/2020/03/27/world/asia/27reuters-hongkong-protests-poll.html?searchResultPosition=8
+**In This Moment of Solitude, Books Can Be Our Passports**\
+`Faced with the cancellation of her book tour, a writer turns to books that evoke a sense of place — and recommends 8 books that might take you somewhere, too.`\
+https://nytimes.com/2020/03/27/travel/travel-books-coronavirus.html?searchResultPosition=8
 
-**European Shares Retreat After Biggest Three-Day Surge Ever**\
-`European shares tumbled in early trading on Friday after a stunning three-day rally sparked by hopes of more aggressive stimulus to shore up the global economy ravaged by the rapid spread of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-europe-stocks.html?searchResultPosition=9
+**Curious George, the Wild Things, and Frog and Toad Get an Update**\
+`Seeing some of our childhood favorites in a brand-new, contemporary light.`\
+https://nytimes.com/2020/03/27/books/curious-george-the-wild-things-and-frog-and-toad-get-an-update.html?searchResultPosition=9
 
-**Turkey Holds First Tender Related to Istanbul Canal Project**\
-`Turkey held its first tender on Thursday to prepare to build a huge canal on the edge of Istanbul, a Transport Ministry spokesman said, signaling progress on the project despite widespread criticism over its cost and environmental impact. `\
-https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-turkey-canal.html?searchResultPosition=10
+**The Most Powerful People in American Politics Are Over 65**\
+`President Trump is 73. His leading rival is 77. And many of their strongest supporters — vulnerable to the coronavirus but enormously influential politically — are eligible for Social Security.`\
+https://nytimes.com/2020/03/27/us/politics/biden-trump-seniors.html?searchResultPosition=10
 
