@@ -15,7 +15,7 @@ https://nytimes.com/2020/03/26/us/texas-man-pelosi-death-threats-virus.html?sear
 https://nytimes.com/aponline/2020/03/26/us/ap-us-virus-outbreak-one-doctors-story.html?searchResultPosition=5
 
 **U.S. Coronavirus Testing Hits Milestone but Still Falls Short**\
-`The pace of testing in the United States has seen a meteoric rise in the past week. But the country still lags in tests relative to its population, despite having the world’s most reported coronavirus cases.`\
+`The pace of coronavirus testing in the United States has seen a meteoric rise in the past week. But the country still lags in tests relative to its population, despite having the world’s most reported coronavirus cases.`\
 https://nytimes.com/interactive/2020/03/26/us/coronavirus-testing-states.html?searchResultPosition=6
 
 **Panic-Buying in Tokyo as Residents Asked to Hunker Down for Weekend**\
