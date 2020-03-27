@@ -12,7 +12,7 @@ https://nytimes.com/2020/03/27/us/politics/house-fisa-bill.html?searchResultPosi
 
 **Special Episode: Jody’s Playlist**\
 `A writer for The Times Magazine takes us through the music that’s been moving him lately.`\
-https://nytimes.com/2020/03/27/podcasts/the-daily/coronavirus-music.html?searchResultPosition=5
+https://nytimes.com/2020/03/27/podcasts/the-daily/coronavirus-music-quarantine.html?searchResultPosition=5
 
 **MLB Final Pitch Could Be Closer to Christmas Than Halloween**\
 `If the final pitch of the 2020 baseball season comes closer to Christmas than Halloween, that's fine with the players.`\
