@@ -1,36 +1,36 @@
+**Factbox: Highlights of Canada's Stimulus Measures to Fight Coronavirus Outbreak**\
+`-  Export Development Canada and Business Development Bank to get additional C$12.5 billion ($8.9 billion) to provide guaranteed loans to small-and medium-sized businesses.`\
+https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-canada-factbox.html?searchResultPosition=2
+
+**When Romance Is a Scam**\
+`More con artists are finding their marks on all manner of social media platforms, knowing that the payoff from older victims can be big.`\
+https://nytimes.com/2020/03/27/well/elderly-romance-scam.html?searchResultPosition=3
+
+**The Story of the NFL Draft, From Extravaganza to Unadorned**\
+`An NFL draft handled remotely because the coronavirus pandemic is the latest twist to an event that has become as popular as any pro football happening short of the Super Bowl.`\
+https://nytimes.com/aponline/2020/03/27/sports/football/ap-fbn-nfl-draft.html?searchResultPosition=4
+
+**New York Could See Apex of Hospital Demand in 21 Days, Governor Says**\
+`New York could see a peak in the demand for hospital capacity in three weeks due to the coronavirus, and is planning to build a total of 8 temporary hospitals to meet the surge, Governor Andrew Cuomo told a news conference on Friday.`\
+https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-usa-new-york.html?searchResultPosition=5
+
+**If Your Kid Keeps Asking ‘Why,’ Give Them an Answer**\
+`Your kid’s constant questions might be annoying but they offer a unique chance to shape their developing brains`\
+https://nytimes.com/2020/03/27/parenting/kids-asking-questions-development.html?searchResultPosition=6
+
+**House of Davis Love III Destroyed by Early Morning Fire**\
+`The house of Hall of Fame golfer Davis Love III was destroyed by fire early Friday morning in a blaze that could not be controlled, even with 16 firefighters arriving within minutes, the fire chief said.`\
+https://nytimes.com/aponline/2020/03/27/sports/golf/ap-glf-davis-love-home.html?searchResultPosition=7
+
 **U.S. Regulators Allow Banks to Avoid Capital Hit From New Accounting Standard for Two Years**\
 `U.S. banking regulators announced Friday that banks would have the option of ignoring the capital implications of a new global accounting standard for two years in a bid to ensure banks continue lending through the pandemic.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-fed-banks.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-fed-banks.html?searchResultPosition=8
 
 **Virgin Atlantic Set to Ask for State Aid: FT**\
 `UK-based airline Virgin Atlantic will ask the British government for a package of commercial loans and guarantees worth hundreds of millions of pounds, the Financial Times reported https://www.ft.com/content/c2d817d9-8a73-4bb8-89e7-e5ca67ed41d7 on Friday, citing people familiar with the matter.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-britain-virgin-atlantic.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-britain-virgin-atlantic.html?searchResultPosition=9
 
 **Equinor to Quit U.S. Lobby Group Over Climate Policy**\
 `Equinor will leave industry lobby group the Independent Petroleum Association of America (IPAA) over a disagreement about climate policy, the energy producer said on Friday.    `\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-equinor-lobbying.html?searchResultPosition=4
-
-**Africa's Web of Creditors Complicates Coronavirus Debt Relief**\
-`Africa is crying out for debt relief to weather a perfect storm of coronavirus, plummeting oil and commodity prices, mounting budget deficits and weaker currencies.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-africa-debt-analysis.html?searchResultPosition=5
-
-**Car Maker PSA Wants to Restart Two French Plants, Unions Disagree**\
-`French car maker PSA, which makes the Peugeot and Citroen brands, said on Friday it had presented health measures to its unions with a view to gradually restarting its European plants, which have been closed for fear of coronavirus infection. `\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-psa-plants.html?searchResultPosition=6
-
-**From Quills to Qwerty: Lloyd's Underwriters Adapt to Home Working**\
-`Thousands of London's underwriters took their stamps and fountain pens home last week, which they use to sign insurance contracts, but they won't need them.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-underwriters-focus.html?searchResultPosition=7
-
-**11 of Our Best Weekend Reads**\
-`Courage inside a Brooklyn hospital. A husband’s illness. Learning to swim. The survivors of Thalidomide. C.E.O.s are just like us — logged on from the laundry room. And more.`\
-https://nytimes.com/2020/03/27/briefing/11-of-our-best-weekend-reads.html?searchResultPosition=8
-
-**Apple Works With White House to Release 'COVID-19' App, Website**\
-`Apple Inc and the White House said on Friday that the iPhone maker worked with the Trump administration and federal agencies to release an app and website that will direct users to guidance from the Centers for Disease Control on the disease caused by the coronavirus.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-apple.html?searchResultPosition=9
-
-**Trump Says GM Efforts 'Never Seem to Work Out'**\
-`President Donald Trump criticized General Motors on Friday and cited the Defense Production Act after saying the automaker reduced the number of ventilators it said that it could provide to hospitals struggling to care for patients ill with coronavirus.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-trump-generalmotors.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/27/business/27reuters-equinor-lobbying.html?searchResultPosition=10
 
