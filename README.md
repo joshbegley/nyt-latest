@@ -1,36 +1,36 @@
-**Ski Vacation Hot Spot Becomes Virus Ground Zero in Idaho**\
-`A scenic Idaho county known as a ski-vacation haven for celebrities and the wealthy has a new, more dubious distinction: It has one of the highest per-capita rates of confirmed coronavirus infections in America. `\
-https://nytimes.com/aponline/2020/03/27/us/ap-us-virus-outbreak-idaho-hot-spot.html?searchResultPosition=2
+**Chinese Arrivals to U.S. Plummet in February as Coronavirus Forces Travel Curbs**\
+`The number of travelers flying from China to the United States fell 84.1% in February from a year earlier, according to data from an agency of the U.S. Department of Commerce, as travel curbs were imposed to limit the spread of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/27/world/asia/27reuters-health-coronavirus-travel.html?searchResultPosition=2
 
-**Cruise Stocks Sink After Missing Out on Economic-Relief Bill**\
-`Shares of cruise lines have taken on more water after the industry's major players were shut out from government assistance as part of the major economic-recovery bill  signed by President Donald Trump on Friday`\
-https://nytimes.com/aponline/2020/03/27/business/ap-us-virus-outbreak-cruise-lines.html?searchResultPosition=3
+**Guinea Referendum Backs Constitutional Changes That May Extend President's Rule**\
+`Guinea has voted overwhelmingly for a change in the constitution, according to provisional results of a referendum, an outcome which the opposition fears will allow President Alpha Conde to govern for 12 more years. `\
+https://nytimes.com/reuters/2020/03/27/world/africa/27reuters-guinea-election.html?searchResultPosition=3
 
-**Report: Almost '100 Percent' Chance NBA Resumes Without Fans**\
-`If the NBA regular season resumes, it is almost "100 percent" the games will be played without fans present, ESPN's Brian Windhorst reported Friday.`\
-https://nytimes.com/reuters/2020/03/27/sports/basketball/27reuters-basketball-nba-resume-nofans-coronavirus.html?searchResultPosition=4
+**Four Passengers Die on Cruise Ship With Coronavirus Outbreak Off Panama**\
+`Four passengers have died on board the MS Zaandam, a cruise ship currently off the coast of Panama with over 130 guests suffering from influenza-like symptoms, at least two of whom have coronavirus, the vessel's operator said on Friday.`\
+https://nytimes.com/reuters/2020/03/27/world/americas/27reuters-health-coronavirus-cruise-zaandam.html?searchResultPosition=4
 
-**Microsoft Gives Clean Chit to Israeli Facial Recognition Startup on Its Work**\
-`Microsoft Corp said on Friday a probe found that an Israeli facial recognition startup it funded is not enabling a mass surveillance program in the West Bank as reported by some media outlets.`\
-https://nytimes.com/reuters/2020/03/27/technology/27reuters-microsoft-anyvision.html?searchResultPosition=5
+**Merkel, Trump to Explore Cooperation on Fighting Coronavirus: Spokesman**\
+`German Chancellor Angela Merkel and U.S. President Donald Trump agreed during a phone call on Friday to explore possible cooperation on combating to the coronavirus pandemic, a government spokesman said.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-heatlh-coronavirus-germany-usa.html?searchResultPosition=5
 
-**Musk's SpaceX Wins NASA Award to Supply Planned Lunar Space Station**\
-`NASA on Friday picked a new space capsule from Elon Musk's SpaceX to ferry cargo and supplies to the agency's planned lunar space station, a crucial building block to its plans to build a permanent post on the moon and mount future missions to Mars.`\
-https://nytimes.com/reuters/2020/03/27/us/27reuters-space-exploration-spacex-dragonxl.html?searchResultPosition=6
+**Trump Wishes UK PM Johnson a Speed Recovery From Coronavirus**\
+`U.S President Donald Trump wished British Prime Minister Boris Johnson a speedy recovery from coronavirus during a phone call on Friday, Downing Street said. `\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-britain-usa-johnson.html?searchResultPosition=6
 
-**Davis Love III, Wife Escape Fire That Destroys Home**\
-`American golfer Davis Love III's home was destroyed by an early morning fire in Georgia on Friday but the 21-time PGA Tour winner said he and his wife were not injured in the early morning blaze.`\
-https://nytimes.com/reuters/2020/03/27/sports/golf/27reuters-golf-love.html?searchResultPosition=7
+**Pope Holds Dramatic Solitary Service for Relief From Coronavirus**\
+`Pope Francis said the coronavirus had put everyone "in the same boat" as he held a dramatic, solitary prayer service in St. Peter's Square on Friday, urging the world to see the crisis as a test of solidarity and a reminder of basic values.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-cornavirus-pope.html?searchResultPosition=7
 
-**Health Officials Clear Jazz Players, Staff of Coronavirus**\
-`Utah Jazz players and staff have been cleared of the coronavirus, the team said Friday.`\
-https://nytimes.com/reuters/2020/03/27/sports/27reuters-basketball-nba-uta-coronavirus.html?searchResultPosition=8
+**'Cooking for Heroes': Michelin-Starred Restaurant Helps Berlin Medics Fight Coronavirus**\
+`A Michelin-starred restaurant in Berlin forced to close its doors by the coronavirus lockdown has turned its culinary skills to helping to feed doctors, nurses, policemen and firefighters who cannot work from home.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-germany-cooks.html?searchResultPosition=8
 
-**Coronavirus Will Not Be Opportunity for Drug Cheats Says WADA Chief**\
-`World Anti-Doping Agency (WADA) chief Witold Banka had a message on Friday for any athlete thinking they could take advantage of the gap in drug-testing created by the coronavirus outbreak -- "we will catch you" and "eliminate you".`\
-https://nytimes.com/reuters/2020/03/27/sports/olympics/27reuters-health-coronavirus-doping-banka-interview.html?searchResultPosition=9
+**PM Johnson's Central Role to UK Virus Response Entitled Him to Test: Health Official**\
+`People with a central role in co-ordinating the response to coronavirus will be prioritized for testing along with those with severe symptoms, a health official said on Friday after Prime Minister Boris Johnson tested positive.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-britain-central.html?searchResultPosition=9
 
-**Olympic Qualification Process and Late Season Being Studied: Coe**\
-`World Athletics is working to restart a shuttered athletics season and studying any changes that may be needed in the qualifying process for the rescheduled Tokyo Olympics, president Seb Coe said on Friday.`\
-https://nytimes.com/reuters/2020/03/27/sports/olympics/27reuters-health-coronavirus-athletics.html?searchResultPosition=10
+**Live Tweeting Replays Helping Fill the College Hoops Void**\
+`Kansas had kept Derrick Rose in check well into the 2008 national championship game when coach Bill Self decided it was time to change defenses against the Memphis star.`\
+https://nytimes.com/aponline/2020/03/27/sports/ncaabasketball/ap-bkc-ncaa-live-tweeting-replays.html?searchResultPosition=10
 
