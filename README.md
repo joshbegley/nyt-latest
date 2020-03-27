@@ -1,36 +1,36 @@
+**South Africa Small Businesses Pray Government Aid Eases Coronavirus Lockdown**\
+`Marius Delarey's spacious restaurant in an upmarket Johannesburg suburb thrived on bringing up to 250 people together at a time to share food, booze and lively conversation.`\
+https://nytimes.com/reuters/2020/03/27/world/africa/27reuters-health-coronavirus-safrica-business.html?searchResultPosition=2
+
+**Corporate Cash Crunch Makes Bank Funding Metric Look Jittery**\
+`A high-temperature gauge of bank funding costs is at levels not seen since the 2008 financial crisis. But rather than signaling stress among major lenders, it is showing the biggest demand for cash the world has ever seen, industry sources said.`\
+https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-banks-cash.html?searchResultPosition=3
+
+**Turn the Living Room into a Stage: Read Plays Out Loud**\
+`It’s a tradition this drama critic would highly recommend to those looking for ways to find magic in empty hours.`\
+https://nytimes.com/2020/03/27/theater/plays-to-read-out-loud.html?searchResultPosition=4
+
+**Coronavirus Aid Deal Is No Panacea for Coming U.S. State Budget Woes**\
+`A massive federal spending bill aimed at deflecting the economic harm caused by the spreading coronavirus does not address the billions of tax dollars U.S. states stand to lose as major parts of the nation have shut down.`\
+https://nytimes.com/reuters/2020/03/27/us/politics/27reuters-health-coronavirus-states-finances-analysis.html?searchResultPosition=5
+
+**Hedge Fund Fir Tree Puts $410 Million Dislocation Fund to Work**\
+`After years of waiting and watching from afar, hedge fund Fir Tree Partners is spending $410 million from its dislocation funds on stocks, pockets of the credit market and other securities, sure the historic market sell-off made new bargains.`\
+https://nytimes.com/reuters/2020/03/27/business/27reuters-hedgefunds-firtree.html?searchResultPosition=6
+
+**Explainer: Euro Zone Options for Economic Support Amid Coronavirus Pandemic**\
+`Euro zone officials have two weeks to come up with a way to support the economy during the coronavirus epidemic that satisfies members with completely opposing views: those calling for joint debt issuance and those fiercely against it.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-eu-eurozone-explainer.html?searchResultPosition=7
+
+**Elevated Wall Street 'Fear Gauge' Shows Doubts About Stock Market Rebound**\
+`Investors hoping for calm to return to U.S. stocks will not find much comfort in Wall Street's fear gauge known as the VIX, which shows some market participants are bracing for more turbulence despite this week's bounce. `\
+https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-vix.html?searchResultPosition=8
+
+**NOT REAL NEWS: Debunking Yet More False Coronavirus Content**\
+`A roundup of some of the most popular but completely untrue stories and visuals of the week. None of these are legit, even though they were shared widely on social media. The Associated Press checked them out. Here are the facts:`\
+https://nytimes.com/aponline/2020/03/27/us/ap-not-real-news.html?searchResultPosition=9
+
 **Cash Handouts and Bond Buying: $10 Trillion-Plus Deployed Against Virus**\
 `More than 300 basis points in combined interest rate cuts, a tenth of annual output in central bank stimulus and $5 trillion of new government spending and credit guarantees - authorities in the world's biggest economies are showering cash like never before to limit the damage from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-cenbanks-graphic.html?searchResultPosition=2
-
-**Factbox: What's in the $2.2 Trillion U.S. Coronavirus Rescue Package**\
-`The U.S. House of Representatives on Friday approved an unprecedented $2.2 trillion stimulus package to alleviate the economic devastation of the coronavirus pandemic and sent it to President Donald Trump to sign into law. `\
-https://nytimes.com/reuters/2020/03/27/us/politics/27reuters-health-coronavirus-usa-bill-contents.html?searchResultPosition=3
-
-**U.S. EPA Waives Fuel Requirements, Extends Biofuels Deadline to Help Refineries**\
-`The U.S. Environmental Protection Agency on Friday unveiled measures to help oil refineries cope with fallout from the coronavirus outbreak, including waiving anti-smog requirements for gasoline and extending the deadline for small facilities to show compliance with the nation's biofuels law.`\
-https://nytimes.com/reuters/2020/03/27/us/27reuters-usa-biofuels-epa.html?searchResultPosition=4
-
-**It’s Too Late to Avoid Disaster, but There Are Still Things We Can Do**\
-`Our leaders need to speak some hard truths and then develop a strategy to prevent the worst.`\
-https://nytimes.com/2020/03/27/opinion/coronavirus-trump-testing-shortages.html?searchResultPosition=5
-
-**Share Your Video: Acts of Kindness During the Coronavirus Outbreak**\
-`We would like to see videos of the thoughtful things you’ve done for your neighbors or family, or that have been done for you.`\
-https://nytimes.com/2020/03/27/us/share-your-video-kindness-coronavirus-outbreak.html?searchResultPosition=6
-
-**Disney Parks in California, Florida to Remain Closed as Coronavirus Spreads**\
-`Walt Disney Co said on Friday its parks in California and Florida will remain closed until further notice, as authorities step up efforts to curb the spread of the coronavirus outbreak in the United States.`\
-https://nytimes.com/reuters/2020/03/27/technology/27reuters-health-coronavirus-walt-disney.html?searchResultPosition=7
-
-**U.S. Regulator Receives Over 5,000 Complaints of Coronavirus Scams**\
-`The U.S. Federal Trade Commission said it has received 5,149 complaints related to coronavirus schemes in the first three months of the year, with claims of $3.46 million in fraud losses.`\
-https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-ftc.html?searchResultPosition=8
-
-**Grief in a Pandemic: Holding a Dying Mother's Hand With a Latex Glove**\
-`Doug Briggs put on a surgical gown, blue gloves and a powered respirator with a hood. He headed into the hospital room to see his mother - to tell her goodbye.`\
-https://nytimes.com/reuters/2020/03/27/world/asia/27reuters-health-coronavirus-usa-death.html?searchResultPosition=9
-
-**Delta CEO Says Gov't Aid Ensures No Industry Lay-Offs Through September 30**\
-`Delta Air Lines Chief Executive Ed Bastian said payroll assistance funds from the government under a massive stimulus package approved on Friday ensure there will not be any involuntary furloughs or pay cuts in the U.S. airline industry through Sept. 30.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-delta-air.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-cenbanks-graphic.html?searchResultPosition=10
 
