@@ -1,36 +1,36 @@
-**South Africa Small Businesses Pray Government Aid Eases Coronavirus Lockdown**\
-`Marius Delarey's spacious restaurant in an upmarket Johannesburg suburb thrived on bringing up to 250 people together at a time to share food, booze and lively conversation.`\
-https://nytimes.com/reuters/2020/03/27/world/africa/27reuters-health-coronavirus-safrica-business.html?searchResultPosition=2
+**Cruise Stocks Sink After Missing Out on Economic-Relief Bill**\
+`Shares of cruise lines have taken on more water after the industry's major players were shut out from government assistance as part of the major economic-recovery bill  signed by President Donald Trump on Friday`\
+https://nytimes.com/aponline/2020/03/27/business/ap-us-virus-outbreak-cruise-lines.html?searchResultPosition=2
 
-**Corporate Cash Crunch Makes Bank Funding Metric Look Jittery**\
-`A high-temperature gauge of bank funding costs is at levels not seen since the 2008 financial crisis. But rather than signaling stress among major lenders, it is showing the biggest demand for cash the world has ever seen, industry sources said.`\
-https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-banks-cash.html?searchResultPosition=3
+**Report: Almost '100 Percent' Chance NBA Resumes Without Fans**\
+`If the NBA regular season resumes, it is almost "100 percent" the games will be played without fans present, ESPN's Brian Windhorst reported Friday.`\
+https://nytimes.com/reuters/2020/03/27/sports/basketball/27reuters-basketball-nba-resume-nofans-coronavirus.html?searchResultPosition=3
 
-**Turn the Living Room into a Stage: Read Plays Out Loud**\
-`It’s a tradition this drama critic would highly recommend to those looking for ways to find magic in empty hours.`\
-https://nytimes.com/2020/03/27/theater/plays-to-read-out-loud.html?searchResultPosition=4
+**Microsoft Gives Clean Chit to Israeli Facial Recognition Startup on Its Work**\
+`Microsoft Corp said on Friday a probe found that an Israeli facial recognition startup it funded is not enabling a mass surveillance program in the West Bank as reported by some media outlets.`\
+https://nytimes.com/reuters/2020/03/27/technology/27reuters-microsoft-anyvision.html?searchResultPosition=4
 
-**Coronavirus Aid Deal Is No Panacea for Coming U.S. State Budget Woes**\
-`A massive federal spending bill aimed at deflecting the economic harm caused by the spreading coronavirus does not address the billions of tax dollars U.S. states stand to lose as major parts of the nation have shut down.`\
-https://nytimes.com/reuters/2020/03/27/us/politics/27reuters-health-coronavirus-states-finances-analysis.html?searchResultPosition=5
+**Musk's SpaceX Wins NASA Award to Supply Planned Lunar Space Station**\
+`NASA on Friday picked a new space capsule from Elon Musk's SpaceX to ferry cargo and supplies to the agency's planned lunar space station, a crucial building block to its plans to build a permanent post on the moon and mount future missions to Mars.`\
+https://nytimes.com/reuters/2020/03/27/us/27reuters-space-exploration-spacex-dragonxl.html?searchResultPosition=5
 
-**Hedge Fund Fir Tree Puts $410 Million Dislocation Fund to Work**\
-`After years of waiting and watching from afar, hedge fund Fir Tree Partners is spending $410 million from its dislocation funds on stocks, pockets of the credit market and other securities, sure the historic market sell-off made new bargains.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-hedgefunds-firtree.html?searchResultPosition=6
+**Davis Love III, Wife Escape Fire That Destroys Home**\
+`American golfer Davis Love III's home was destroyed by an early morning fire in Georgia on Friday but the 21-time PGA Tour winner said he and his wife were not injured in the early morning blaze.`\
+https://nytimes.com/reuters/2020/03/27/sports/golf/27reuters-golf-love.html?searchResultPosition=6
 
-**Explainer: Euro Zone Options for Economic Support Amid Coronavirus Pandemic**\
-`Euro zone officials have two weeks to come up with a way to support the economy during the coronavirus epidemic that satisfies members with completely opposing views: those calling for joint debt issuance and those fiercely against it.`\
-https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-eu-eurozone-explainer.html?searchResultPosition=7
+**Health Officials Clear Jazz Players, Staff of Coronavirus**\
+`Utah Jazz players and staff have been cleared of the coronavirus, the team said Friday.`\
+https://nytimes.com/reuters/2020/03/27/sports/27reuters-basketball-nba-uta-coronavirus.html?searchResultPosition=7
 
-**Elevated Wall Street 'Fear Gauge' Shows Doubts About Stock Market Rebound**\
-`Investors hoping for calm to return to U.S. stocks will not find much comfort in Wall Street's fear gauge known as the VIX, which shows some market participants are bracing for more turbulence despite this week's bounce. `\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-vix.html?searchResultPosition=8
+**Coronavirus Will Not Be Opportunity for Drug Cheats Says WADA Chief**\
+`World Anti-Doping Agency (WADA) chief Witold Banka had a message on Friday for any athlete thinking they could take advantage of the gap in drug-testing created by the coronavirus outbreak -- "we will catch you" and "eliminate you".`\
+https://nytimes.com/reuters/2020/03/27/sports/olympics/27reuters-health-coronavirus-doping-banka-interview.html?searchResultPosition=8
 
-**NOT REAL NEWS: Debunking Yet More False Coronavirus Content**\
-`A roundup of some of the most popular but completely untrue stories and visuals of the week. None of these are legit, even though they were shared widely on social media. The Associated Press checked them out. Here are the facts:`\
-https://nytimes.com/aponline/2020/03/27/us/ap-not-real-news.html?searchResultPosition=9
+**Olympic Qualification Process and Late Season Being Studied: Coe**\
+`World Athletics is working to restart a shuttered athletics season and studying any changes that may be needed in the qualifying process for the rescheduled Tokyo Olympics, president Seb Coe said on Friday.`\
+https://nytimes.com/reuters/2020/03/27/sports/olympics/27reuters-health-coronavirus-athletics.html?searchResultPosition=9
 
-**Cash Handouts and Bond Buying: $10 Trillion-Plus Deployed Against Virus**\
-`More than 300 basis points in combined interest rate cuts, a tenth of annual output in central bank stimulus and $5 trillion of new government spending and credit guarantees - authorities in the world's biggest economies are showering cash like never before to limit the damage from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-cenbanks-graphic.html?searchResultPosition=10
+**'Contagion' Movie Stars Tell Fans Coronavirus Is 'Real Life'**\
+`The stars of the movie "Contagion," which has seen a surge in popularity as the coronavirus has spread across the globe, on Friday urged fans to listen to experts, wash their hands frequently and practice social distancing.`\
+https://nytimes.com/reuters/2020/03/27/arts/27reuters-health-coronavirus-contagion.html?searchResultPosition=10
 
