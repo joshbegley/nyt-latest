@@ -19,7 +19,7 @@ https://nytimes.com/2020/03/27/well/mind/baby-aspirin-dementia-alzheimers-memory
 https://nytimes.com/2020/03/27/dining/what-to-cook-this-weekend.html?searchResultPosition=6
 
 **Venezuela's Only Telecoms Satellite Is Lost in Space**\
-`Venezuela’s only telecommunications satellite has veered off its orbit and stopped working, creating a logistical headache for the cash=strapped South American nation.`\
+`Venezuela’s only telecommunications satellite has veered off its orbit and stopped working, creating a logistical headache for the cash-strapped South American nation.`\
 https://nytimes.com/aponline/2020/03/27/world/americas/ap-lt-venezuela-satellite-.html?searchResultPosition=7
 
 **Care Homes in Portugal Fear They Will Be Ravaged by Coronavirus**\
