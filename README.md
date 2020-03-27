@@ -1,36 +1,36 @@
+**In This Emergency, Mom Knows Best**\
+`Words of wisdom and experience, and a few humbling ones, too.`\
+https://nytimes.com/2020/03/27/opinion/coronavirus-elderly.html?searchResultPosition=2
+
+**Canada Delays Capital Changes for Smaller Banks, Eases Liquidity Rules**\
+`Canada's banking regulator is postponing the implementation of changes to capital requirements for smaller banks as part of a slew of measures undertaken by authorities to limit the economic fallout from the coronavirus pandemic, it said on Friday. `\
+https://nytimes.com/reuters/2020/03/27/us/27reuters-canada-banks-regulation.html?searchResultPosition=3
+
+**Trump Authorizes Call-Up of Military Reservists to Active Duty: White House**\
+`U.S. President Donald Trump on Friday signed an executive order authorizing the secretaries of homeland security and defense to call up military and Coast Guard reservists to active duty, the White House said.`\
+https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-usa-military.html?searchResultPosition=4
+
+**U.S. Representative Mike Kelly Tests Positive for Coronavirus**\
+`U.S. Representative Mike Kelly, Republican of Pennsylvania, said on Friday he has tested positive for the coronavirus, the fifth member of Congress to do so.`\
+https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-usa-kelly.html?searchResultPosition=5
+
 **Factbox: Five Members of U.S. Congress Test Positive for the Coronavirus**\
 `Five members of the U.S. Congress have tested positive for the novel coronavirus, and more than two dozen others have said they are self-quarantining in hopes of limiting the spread of the pandemic.`\
-https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-usa-congress-factbox.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-usa-congress-factbox.html?searchResultPosition=6
 
 **California Has Tested 88,400 People for Coronavirus-Governor**\
 `California has tested 88,400 people for coronavirus, checking 10,000 people per day, Democratic Governor Gavin Newsom said on Friday.`\
-https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-usa-california.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-usa-california.html?searchResultPosition=7
 
 **Confirmed Coronavirus Cases in U.S. Reach 100,000: Reuters Tally**\
 `Confirmed coronavirus cases in the United States reached 100,040 on Friday, the highest number in the world, a Reuters tally https://tmsnrt.rs/2w7hX9T showed.`\
-https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-usa-cases.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-usa-cases.html?searchResultPosition=8
+
+**‘We Have Lost It All’: The Shock Felt by Millions of Unemployed Americans**\
+`One day there was a job. The next day it was gone. `\
+https://nytimes.com/2020/03/27/us/coronavirus-unemployed.html?searchResultPosition=9
 
 **Apple's Factories Are Running, but Suppliers Wary About iPhone Demand**\
 `As China reopens its economy after months of lockdown, Apple Inc's iPhone factories are largely up and running.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-apple-iphone.html?searchResultPosition=5
-
-**Airbnb Suspends Marketing to Save $800 Million, Top Executives Take Pay Cut: Source**\
-`Airbnb Inc has suspended all its marketing activities to save $800 million this year, and its founders will take no salary for the next six months while top executives will take a 50% cut, according to a person familiar with the matter.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-airbnb-workforce.html?searchResultPosition=6
-
-**For Dr. Deborah Birx, Urging Calm Has Come With Heavy Criticism**\
-`The White House’s coronavirus response coordinator drew criticism for comments she made about a lack of ventilator shortages, and for gushing praise of President Trump.`\
-https://nytimes.com/2020/03/27/us/politics/deborah-birx-coronavirus.html?searchResultPosition=7
-
-**Bipartisan Majority of Americans Reject Trump Idea to Reopen by Easter: Reuters/Ipsos Poll**\
-`A bipartisan majority of Americans appear to reject an idea floated by President Donald Trump to reopen businesses by Easter, according to a Reuters/Ipsos poll, which also showed that nearly one in four have been laid off or furloughed during the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-poll.html?searchResultPosition=8
-
-**U.S. Airlines Expect Clarity on Terms of Payroll Grants in 5-10 Days: UAL Senior Executives**\
-`U.S. airlines expect to learn the terms of federal aid meant to protect workers' payrolls in the midst of a sharp downturn from the coronavirus in the next five to 10 days, senior executives at United Airlines Holdings Inc said on Friday. `\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-airlines-united-arlns.html?searchResultPosition=9
-
-**Are You Pregnant and Concerned About Coronavirus? Tell Us Your Concerns.**\
-`We’d like to hear your concerns about bearing a child during the coronavirus pandemic. Please fill out our brief form, and a reporter may respond to you.`\
-https://nytimes.com/2020/03/27/us/are-you-pregnant-and-concerned-about-coronavirus-tell-us-your-concerns.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-apple-iphone.html?searchResultPosition=10
 
