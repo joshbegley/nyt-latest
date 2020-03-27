@@ -1,36 +1,36 @@
-**Jenny Polanco, Fashion Designer with a Caribbean Palette, Dies at 62**\
-`A breakthrough Dominican designer of clothing, jewelry and accessories, she worked across the Caribbean and in Paris and New York.`\
-https://nytimes.com/2020/03/27/obituaries/jenny-polanco-dead-coronavirus.html?searchResultPosition=2
+**What We Can Learn From European Dog Culture**\
+`When I went to Europe, people asked: Is something wrong with American dogs? The answer has more to do with us than our pets.`\
+https://nytimes.com/2020/03/27/smarter-living/dog-training-behavior.html?searchResultPosition=2
 
-**Arnold Obey, 73, Educator and Marathoner, Dies**\
-`Mr. Obey was a veteran school principal who took to marathoning and kept at it — 38 times in a row in the New York City Marathon.`\
-https://nytimes.com/2020/03/27/obituaries/arnold-obey-dead-coronavirus.html?searchResultPosition=3
+**Alan Finder, 72, Unflappable Newspaper Journalist, Dies**\
+`He managed to vitalize what in lesser hands might have been benumbing explications of property tax assessments and revisions of the City Charter.`\
+https://nytimes.com/2020/03/27/obituaries/alan-finder-dead-coronavirus.html?searchResultPosition=3
 
-**What the Coronavirus Means for Climate Change**\
-`Lockdowns and distancing won’t save the world from warming. But amid this crisis, we have a chance to build a better future.`\
-https://nytimes.com/2020/03/27/opinion/sunday/coronavirus-climate-change.html?searchResultPosition=4
+**No Games, Big Losses: Money Crisis Faces US Olympic Sports**\
+`The postponement of the Tokyo Games has catapulted the sports organizations that make up the backbone of the U.S. Olympic team into crisis. `\
+https://nytimes.com/aponline/2020/03/27/sports/olympics/ap-oly-virus-outbreak-funding-crisis-1st-ld-writethru.html?searchResultPosition=4
 
-**‘Why Can’t We Go to Chuck E. Cheese?’**\
-`We asked kids to send us their questions about the coronavirus.`\
-https://nytimes.com/2020/03/27/podcasts/daily-newsletter-coronavirus-kids-quarantine.html?searchResultPosition=5
+**Syria, UAE Leaders Discuss Coronavirus, a Thaw in Relations**\
+`Syria's president and one of the United Arab Emirates' most powerful leaders spoke on the phone on Friday — signalling a major thaw in Damascus' troubled relations with Arab countries, which had mostly boycotted President Bashar Assad and backed his opposition. `\
+https://nytimes.com/aponline/2020/03/27/world/middleeast/ap-ml-syria-uae.html?searchResultPosition=5
 
-**House Passes Coronavirus Relief Measure Despite Effort to Stall Vote**\
-`The House approved a $2 trillion stimulus package in response to the coronavirus pandemic, overcoming one lawmaker’s effort to delay the legislation.`\
-https://nytimes.com/video/us/politics/100000007058601/house-coronavirus-stimulus.html?searchResultPosition=6
+**Outside Hard-Hit Nursing Home, Staffers Find Nervous Public**\
+`They can't get taxis or child care. Two were refused service at a gas station. Another's trip to a pharmacy prompted a concerned call. `\
+https://nytimes.com/aponline/2020/03/27/us/ap-us-virus-outbreak-west-virginia-nursing-home-1st-ld-writethru.html?searchResultPosition=6
 
-**Track Worlds in Limbo Until New Olympic Dates Are Set**\
-`The date of the next world track championships is in limbo until the International Olympic Committee decides on a new schedule for the postponed Tokyo Games.`\
-https://nytimes.com/aponline/2020/03/27/sports/ap-ath-track-worlds-coe.html?searchResultPosition=7
+**States Impose New Restrictions on Travelers From New York**\
+`States are pulling back the welcome mat for travelers from the New York area, which is the epicenter of the country’s coronavirus outbreak, and some say at least one state’s measures are unconstitutional.`\
+https://nytimes.com/aponline/2020/03/27/us/ap-us-virus-outbreak-targeting-new-yorkers.html?searchResultPosition=7
 
-**Santa Anita Ends Live Racing Because of Coronavirus**\
-`Santa Anita immediately stopped live racing Friday because of the coronavirus after instructions from the Los Angeles County Health Department.`\
-https://nytimes.com/aponline/2020/03/27/sports/ap-rac-santa-anita-racing-canceled-.html?searchResultPosition=8
+**China Pushes to Churn Out Coronavirus Gear, Yet Struggles to Police It**\
+`Factories sprang up or retooled to make equipment. But complaints in Spain over Chinese-made tests highlight the difficulties of regulating quality.`\
+https://nytimes.com/2020/03/27/business/china-coronavirus-masks-tests.html?searchResultPosition=8
 
-**Some U.S. Cities Could Have Coronavirus Outbreaks Worse Than Wuhan’s**\
-`Four ways to measure the size of the outbreak across U.S. metro areas.`\
-https://nytimes.com/interactive/2020/03/27/upshot/coronavirus-new-york-comparison.html?searchResultPosition=9
+**‘God Knows How Many People We Infected’: New Protocols Aim to Get Cruise Passengers Home**\
+`Four people died on the Zandaam cruise ship after it was turned away in Chile. The U.S. is easing protocols to help speed cruise passengers home. But can that be done safely?`\
+https://nytimes.com/2020/03/27/us/coronavirus-cruise-ships-zandaam.html?searchResultPosition=9
 
-**Thomas Massie, House’s ‘Mr. No,’ Tries to Force Vote on Coronavirus Aid Bill**\
-`The Kentucky libertarian’s tactics failed, but not before forcing lawmakers back to the Capitol for passage of the $2 trillion coronavirus stimulus package, infuriating them and President Trump.`\
-https://nytimes.com/2020/03/27/us/politics/thomas-massie-coronavirus.html?searchResultPosition=10
+**Romi Cohn Saved 56 Jewish Families. Coronavirus Took His Life**\
+`Mr. Cohn was only 15 when he began rescuing Jewish families in Czechoslovakia in 1944.`\
+https://nytimes.com/2020/03/27/obituaries/romi-cohn-dead-coronavirus.html?searchResultPosition=10
 
