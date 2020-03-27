@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/03/27/world/asia/27reuters-health-coronavirus-j
 `Japanese Prime Minister Shinzo Abe said on Friday a lockdown of Tokyo would have a severe impact on the economy given its huge population and the key role it plays as the center of the country.`\
 https://nytimes.com/reuters/2020/03/27/world/asia/27reuters-health-coronavirus-japan-abe.html?searchResultPosition=4
 
-**Panic-Buying in Tokyo as Residents Asked to Hunker Down for Weekend**\
-`Queues formed at supermarkets and stores in Tokyo on Friday as residents in the Japanese capital prepared for a weekend at home after the city's governor called on them to stay at home to prevent the spread of the coronavirus.`\
+**Tokyo Residents Stockpile Food, Essentials to Hunker Down for the Weekend**\
+`Large queues formed at supermarkets and stores in Tokyo on Friday as residents in the Japanese capital prepared for a weekend at home, after the city's governor called on them to remain indoors to prevent the spread of the coronavirus.`\
 https://nytimes.com/reuters/2020/03/27/world/asia/27reuters-health-coronavirus-japan.html?searchResultPosition=5
 
 **Olympics Delay Deals Setback to Samsung's Plans to Win Over Japan Market**\
