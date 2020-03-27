@@ -1,36 +1,36 @@
-**Israel Says Gaza Militants Fired Rocket at Israeli Town**\
-`Israel says Palestinian militants in the Gaza Strip have fired a rocket into the country's south. There were no reports of casualties or damage. `\
-https://nytimes.com/aponline/2020/03/27/world/middleeast/ap-ml-israel-palestinians.html?searchResultPosition=2
+**House Passes Coronavirus Relief Measure Despite Effort to Stall Vote**\
+`The House approved a $2 trillion stimulus package in response to the coronavirus pandemic, overcoming one lawmaker’s effort to delay the legislation.`\
+https://nytimes.com/video/us/politics/100000007058601/house-coronavirus-stimulus.html?searchResultPosition=2
 
-**From the Archives: Colson Whitehead and Jeffrey Toobin**\
-`Whitehead discusses “The Underground Railroad,” and Toobin talks about “American Heiress.”`\
-https://nytimes.com/2020/03/27/books/review/podcast-colson-whitehead-jeffrey-toobin.html?searchResultPosition=3
+**Track Worlds in Limbo Until New Olympic Dates Are Set**\
+`The date of the next world track championships is in limbo until the International Olympic Committee decides on a new schedule for the postponed Tokyo Games.`\
+https://nytimes.com/aponline/2020/03/27/sports/ap-ath-track-worlds-coe.html?searchResultPosition=3
 
-**One Shop Became a Lifeline for Rhode Island’s Solitary Clam Fishermen**\
-`Restaurant closings have devastated the market for quahoggers, who are prohibited from selling directly to consumers.`\
-https://nytimes.com/2020/03/27/dining/clams-quahogs-coronavirus.html?searchResultPosition=4
+**Santa Anita Ends Live Racing Because of Coronavirus**\
+`Santa Anita immediately stopped live racing Friday because of the coronavirus after instructions from the Los Angeles County Health Department.`\
+https://nytimes.com/aponline/2020/03/27/sports/ap-rac-santa-anita-racing-canceled-.html?searchResultPosition=4
 
-**It’s Time to Talk About Death**\
-`The coronavirus pandemic highlights how much we need to have conversations about end-of-life care.`\
-https://nytimes.com/2020/03/27/opinion/covid-end-of-life.html?searchResultPosition=5
+**Some U.S. Cities Could Have Coronavirus Outbreaks Worse Than Wuhan’s**\
+`Four ways to measure the size of the outbreak across U.S. metro areas.`\
+https://nytimes.com/interactive/2020/03/27/upshot/coronavirus-new-york-comparison.html?searchResultPosition=5
 
-**No Swimming Pools? No Sports to Announce? No Problem**\
-`Sports commentators and swimmers are having to get especially creative. Plus, we look at the sports weekend that would have been.`\
-https://nytimes.com/2020/03/27/sports/no-swimming-pools-no-sports-to-announce-no-problem.html?searchResultPosition=6
+**Thomas Massie, House’s ‘Mr. No,’ Tries to Force Vote on Coronavirus Aid Bill**\
+`The Kentucky libertarian’s tactics failed, but not before forcing lawmakers back to the Capitol for passage of the $2 trillion coronavirus stimulus package, infuriating them and President Trump.`\
+https://nytimes.com/2020/03/27/us/politics/thomas-massie-coronavirus.html?searchResultPosition=6
 
-**Housekeeping My Way Through the Pandemic**\
-`If food is a way to show love, then in this moment, so is cleaning.`\
-https://nytimes.com/2020/03/27/opinion/coronavirus-housecleaning.html?searchResultPosition=7
+**For Divorced Parents, Navigating Coronavirus Is a Balancing Act**\
+`What if a parent gets too sick? Or a child gets infected? “It’s just awkwardly, incredibly daunting now.”`\
+https://nytimes.com/2020/03/27/parenting/divorce-co-parenting-coronavirus.html?searchResultPosition=7
 
-**GOP's Massie Outrages House, Trump by Seeking to Stall Vote**\
-`Rep. Thomas Massie has always gone his own way in Congress, ever since he first ran for office inspired by a fellow libertarian-leaning Kentuckian, Rand Paul.`\
-https://nytimes.com/aponline/2020/03/27/us/politics/ap-us-virus-outbreak-massie.html?searchResultPosition=8
+**Wisconsin Won’t Delay Its Primary, So the Governor Wants to Mail Everyone a Ballot**\
+`As many other states delay their presidential primary elections amid the coronavirus pandemic, Wisconsin is plowing ahead with plans to vote on April 7.`\
+https://nytimes.com/2020/03/27/us/politics/wisconsin-primary-coronavirus.html?searchResultPosition=8
 
-**'Choppy Waters' Await Navy as Virus Strikes Aircraft Carrier**\
-`The Navy, the military service hit hardest by the coronavirus, scrambled Friday to contain its first at-sea outbreak, with at least two dozen infected aboard the USS Theodore Roosevelt, one of 11 active aircraft carriers whose mission is central to the Pentagon's strategy for deterring war with China and Iran.`\
-https://nytimes.com/aponline/2020/03/27/us/politics/ap-us-virus-outbreak-navy.html?searchResultPosition=9
+**Closing Prices for Crude Oil, Gold and Other Commodities**\
+`Benchmark crude oil fell $1.09 to close at $21.51 a barrel Friday. Brent crude oil, the international standard, fell $1.41 to $24.93 a barrel. `\
+https://nytimes.com/aponline/2020/03/27/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=9
 
-**Clarkson's Elizabeth Giguere Wins Kazmaier Award**\
-`Clarkson junior forward Elizabeth Giguere has been selected as the Patty Kazmaier Memorial Award winner, presented annually to the most outstanding player in women's college hockey.`\
-https://nytimes.com/aponline/2020/03/27/sports/ap-hkw-kazmaier-award.html?searchResultPosition=10
+**Love Letter: Countless ‘Goodbyes’ From the Front Lines**\
+`Plus: Tending to a spouse with coronavirus.`\
+https://nytimes.com/2020/03/27/style/love-letter-countless-goodbyes-from-the-front-lines.html?searchResultPosition=10
 
