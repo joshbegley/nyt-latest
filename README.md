@@ -1,36 +1,36 @@
+**Texas Man Jailed for Online Threats Against Nancy Pelosi**\
+`A Texas man faces federal charges after he made online posts threatening Democrats, including U.S. House Speaker Nancy Pelosi, authorities said.`\
+https://nytimes.com/aponline/2020/03/27/us/ap-us-texas-online-threats.html?searchResultPosition=2
+
+**It’s Easy to Feel Overwhelmed, but It’s Critical to Remember the Good, Experts Say**\
+`Bright spots and gleams of hope do exist, epidemiologists and other experts say, and it’s important to remember them to stay resilient in difficult times.`\
+https://nytimes.com/2020/03/27/us/coronavirus-good-news-kindness.html?searchResultPosition=3
+
+**Bob Dylan’s 17-Minute Surprise, and 8 More New Songs**\
+`Hear tracks by PartyNextDoor featuring Rihanna, Benjamin Gibbard and others.`\
+https://nytimes.com/2020/03/27/arts/music/playlist-bob-dylan-rihanna-partynextdoor.html?searchResultPosition=4
+
 **Daily Aspirin Does Not Lower Alzheimer’s Risk**\
 `Older men and women who took low-dose aspirin did not show improvements in memory or a lower risk of dementia.`\
-https://nytimes.com/2020/03/27/well/mind/baby-aspirin-dementia-alzheimers-memory.html?searchResultPosition=2
+https://nytimes.com/2020/03/27/well/mind/baby-aspirin-dementia-alzheimers-memory.html?searchResultPosition=5
 
 **What to Cook This Weekend**\
 `Project recipes are particularly fine for these long days indoors: Make no-knead rolls or focaccia, or take the time to simmer some stock.`\
-https://nytimes.com/2020/03/27/dining/what-to-cook-this-weekend.html?searchResultPosition=3
+https://nytimes.com/2020/03/27/dining/what-to-cook-this-weekend.html?searchResultPosition=6
 
 **Venezuela's Only Telecoms Satellite Is Lost in Space**\
 `Venezuela’s only telecommunications satellite has veered off its orbit and stopped working, creating a logistical headache for the cash=strapped South American nation.`\
-https://nytimes.com/aponline/2020/03/27/world/americas/ap-lt-venezuela-satellite-.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/03/27/world/americas/ap-lt-venezuela-satellite-.html?searchResultPosition=7
 
 **Care Homes in Portugal Fear They Will Be Ravaged by Coronavirus**\
 `The plight of elderly residents in a care home in northern Portugal has prompted the government to send in the army to avert what desperate staff fear could be a disaster in the making.`\
-https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-portugal.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-portugal.html?searchResultPosition=8
 
 **Italy to Extend Coronavirus Schools Shutdown Past Current April 3 Limit: Minister**\
 `Italy's education minister on Friday said schools across the country would remain closed beyond the current April 3 limit due to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-italy-schools.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-italy-schools.html?searchResultPosition=9
 
 **What Biden Can Do**\
 `Three options on the politics of the coronavirus.`\
-https://nytimes.com/2020/03/27/opinion/joe-biden-coronavirus.html?searchResultPosition=7
-
-**'Mr. No': Meet the U.S. Congressman Who Might Delay the Coronavirus Bill**\
-`U.S. Representative Thomas Massie enraged President Donald Trump on Friday as he has leaders of Congress worried he will delay a planned Friday voice vote on a $2.2 trillion coronavirus economic rescue plan, drawing calls from the White House to throw him out of the Republican Party.`\
-https://nytimes.com/reuters/2020/03/27/us/politics/27reuters-health-coronavirus-usa-massie-factbox.html?searchResultPosition=8
-
-**Trump Attacks Republican Lawmaker Threatening Delay of Economic Stimulus**\
-`U.S. President Donald Trump on Friday criticized a Republican congressman who is considering tactics to delay a House of Representatives vote on a massive coronavirus stimulus bill, calling Representative Thomas Massie a "third-rate grandstander."`\
-https://nytimes.com/reuters/2020/03/27/us/politics/27reuters-health-coronavirus-usa-trump.html?searchResultPosition=9
-
-**IMF Says Global Output to Contract in 2020, Exploring Financing Options**\
-`The coronavirus pandemic will cause global economic output to contract in 2020, top officials of the International Monetary Fund said on Friday, adding that an "exceptionally high number of countries" need IMF emergency financing.`\
-https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-imf.html?searchResultPosition=10
+https://nytimes.com/2020/03/27/opinion/joe-biden-coronavirus.html?searchResultPosition=10
 
