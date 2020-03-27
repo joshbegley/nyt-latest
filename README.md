@@ -1,6 +1,6 @@
 **Black Women Learn to Braid While Social Distancing**\
 `With most of the nation under orders to stay inside and avoid social gatherings, many are turning to social media to learn new skills.`\
-https://nytimes.com/2020/03/27/us/black-girl-women-hair-styling-live-tutorials-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2020/03/27/style/black-girl-women-hair-styling-live-tutorials-coronavirus.html?searchResultPosition=2
 
 **With Most Coronavirus Cases in Africa, South Africa Locks Down**\
 `South Africa is now the epicenter of the pandemic in Africa, with more than 1,000 confirmed cases across the country’s nine provinces.`\
