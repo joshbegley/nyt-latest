@@ -1,36 +1,36 @@
+**Cash Handouts and Bond Buying: $10 Trillion-Plus Deployed Against Virus**\
+`More than 300 basis points in combined interest rate cuts, a tenth of annual output in central bank stimulus and $5 trillion of new government spending and credit guarantees - authorities in the world's biggest economies are showering cash like never before to limit the damage from the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-cenbanks-graphic.html?searchResultPosition=2
+
+**Factbox: What's in the $2.2 Trillion U.S. Coronavirus Rescue Package**\
+`The U.S. House of Representatives on Friday approved an unprecedented $2.2 trillion stimulus package to alleviate the economic devastation of the coronavirus pandemic and sent it to President Donald Trump to sign into law. `\
+https://nytimes.com/reuters/2020/03/27/us/politics/27reuters-health-coronavirus-usa-bill-contents.html?searchResultPosition=3
+
+**U.S. EPA Waives Fuel Requirements, Extends Biofuels Deadline to Help Refineries**\
+`The U.S. Environmental Protection Agency on Friday unveiled measures to help oil refineries cope with fallout from the coronavirus outbreak, including waiving anti-smog requirements for gasoline and extending the deadline for small facilities to show compliance with the nation's biofuels law.`\
+https://nytimes.com/reuters/2020/03/27/us/27reuters-usa-biofuels-epa.html?searchResultPosition=4
+
+**It’s Too Late to Avoid Disaster, but There Are Still Things We Can Do**\
+`Our leaders need to speak some hard truths and then develop a strategy to prevent the worst.`\
+https://nytimes.com/2020/03/27/opinion/coronavirus-trump-testing-shortages.html?searchResultPosition=5
+
+**Share Your Video: Acts of Kindness During the Coronavirus Outbreak**\
+`We would like to see videos of the thoughtful things you’ve done for your neighbors or family, or that have been done for you.`\
+https://nytimes.com/2020/03/27/us/share-your-video-kindness-coronavirus-outbreak.html?searchResultPosition=6
+
+**Disney Parks in California, Florida to Remain Closed as Coronavirus Spreads**\
+`Walt Disney Co said on Friday its parks in California and Florida will remain closed until further notice, as authorities step up efforts to curb the spread of the coronavirus outbreak in the United States.`\
+https://nytimes.com/reuters/2020/03/27/technology/27reuters-health-coronavirus-walt-disney.html?searchResultPosition=7
+
+**U.S. Regulator Receives Over 5,000 Complaints of Coronavirus Scams**\
+`The U.S. Federal Trade Commission said it has received 5,149 complaints related to coronavirus schemes in the first three months of the year, with claims of $3.46 million in fraud losses.`\
+https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-ftc.html?searchResultPosition=8
+
 **Grief in a Pandemic: Holding a Dying Mother's Hand With a Latex Glove**\
 `Doug Briggs put on a surgical gown, blue gloves and a powered respirator with a hood. He headed into the hospital room to see his mother - to tell her goodbye.`\
-https://nytimes.com/reuters/2020/03/27/world/asia/27reuters-health-coronavirus-usa-death.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/27/world/asia/27reuters-health-coronavirus-usa-death.html?searchResultPosition=9
 
 **Delta CEO Says Gov't Aid Ensures No Industry Lay-Offs Through September 30**\
 `Delta Air Lines Chief Executive Ed Bastian said payroll assistance funds from the government under a massive stimulus package approved on Friday ensure there will not be any involuntary furloughs or pay cuts in the U.S. airline industry through Sept. 30.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-delta-air.html?searchResultPosition=3
-
-**Prostitution Camp Provided Women in Human Smuggling Case**\
-`A co-defendant in a human smuggling operation told police that a prostitution camp in the Marshall Islands provided many of the pregnant women involved in former Maricopa County Assessor Paul Petersen's allegedly illegal adoption business.`\
-https://nytimes.com/aponline/2020/03/27/us/ap-us-ex-official-adoption-fraud.html?searchResultPosition=4
-
-**Trish Regan, Fox Business Host Who Dismissed Virus Concerns, Will Depart**\
-`The host of “Trish Regan Primetime” had said concerns about the coronavirus were “yet another attempt to impeach the president.”`\
-https://nytimes.com/2020/03/27/business/trish-regan-fox-business-coronavirus.html?searchResultPosition=5
-
-**In Time of Quarantine, Zwirner Shares Online Platform With Smaller Galleries**\
-`Twelve New York galleries will each present two works by a single artist in Zwirner’s digital viewing room.`\
-https://nytimes.com/2020/03/27/arts/design/zwirner-online-galleries-covid.html?searchResultPosition=6
-
-**Are You a Health Care Worker in the New York Area? Tell Us What You’re Seeing.**\
-`We want to talk to doctors, nurses, lab technicians — anyone who can share what they're seeing in the region’s hospitals and health care centers.`\
-https://nytimes.com/2020/03/27/nyregion/coronavirus-nyc-health-care-workers.html?searchResultPosition=7
-
-**U.S. Airlines Cheer Government Relief, Warn Weak Demand May Still Force Downsizing**\
-`United Airlines Holdings Inc and Delta Air Lines pledged to maintain staff until Sept. 30 thanks to a government relief package passed on Friday, but warned of continued challenges and depressed demand facing the industry.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-airlines-usa.html?searchResultPosition=8
-
-**New York Fed Sets Fee Structure and Terms for Agreement With BlackRock**\
-`The New York Federal Reserve released the fee structure and terms for its agreement to hire the asset management firm BlackRock to guide some of the central bank's massive bond buying operations. `\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-fed-blackrock.html?searchResultPosition=9
-
-**More Than 100 British Companies Halt Dividend Payments Due to Coronavirus Pandemic**\
-`More than 100 British companies have postponed or ditched dividend payments in a bid to preserve cash for what could be a lengthy enforced shutdown of large parts of the UK and global economy due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-coronavirus-health-dividends.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/27/business/27reuters-health-coronavirus-delta-air.html?searchResultPosition=10
 
