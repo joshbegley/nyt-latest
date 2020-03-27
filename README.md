@@ -1,36 +1,36 @@
-**Don’t Need That $1,200 Stimulus Check? Here Are Places to Donate It.**\
-`The federal government approved a $2 trillion stimulus package, which includes direct payments to millions of Americans to help get through the coronavirus outbreak. If you don’t need the money, here are some ideas to help you give it to someone in need.`\
-https://nytimes.com/2020/03/27/smarter-living/coronavirus-charity-donations.html?searchResultPosition=2
+**Turkey's Coronavirus Death Toll Rises by 17 to 92: Health Minister**\
+`Turkey's coronavirus death toll rose by 17 on Friday to 92, while the total number of cases rose by 2,069 to 5,698, the country's health minister told a press conference.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-turkey-minister.html?searchResultPosition=2
 
-**Finland Begins to Block Roads to Helsinki**\
-`Police and the Finnish army set up roadblocks on all routes that connect Helsinki with the rest of the country, while the government rushed legislation through parliament to enforce the capital region's coronavirus blockade by midnight on Friday.`\
-https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-finland.html?searchResultPosition=3
+**Thousands of Ukrainians Waiting at Polish Border to Get Home**\
+`Thousands of Ukrainians queued in long lines on Friday at the last three border crossings with Poland that remain open to get to their homeland before Ukraine closes its borders due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-poland-border.html?searchResultPosition=3
 
-**England's Chief Medical Officer Self-Isolating With Coronavirus Symptoms**\
-`England's Chief Medical Officer Chris Whitty said on Friday he would self-isolate at home for the next seven days after experiencing symptoms compatible with Covid-19 on Thursday night.`\
-https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-britain-cmo.html?searchResultPosition=4
+**The Last Drink in Europe? Swedish Bars Stay Open Despite Coronavirus**\
+`The bar area of Wirstroms pub in central Stockholm is a "no-go zone".`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-sweden-bars.html?searchResultPosition=4
 
-**U of Rochester, Ex-Professors Settle Retaliation Claims**\
-`The University of Rochester will pay $9.4 million to settle a lawsuit brought by nine former professors and students who said they faced retaliation after bringing sexual misconduct claims against a professor, the group's attorneys said Friday. `\
-https://nytimes.com/aponline/2020/03/27/us/ap-us-rochester-sexual-misconduct-clash.html?searchResultPosition=5
+**Viagra, 70 Cans of Coke: One Man's Deliveries in Locked Down Sao Paulo**\
+`Few venture into the streets of Sao Paulo these days, but Erik Thiago says he will not stop working as a bike delivery man until he gets sick or the government forces him inside. `\
+https://nytimes.com/reuters/2020/03/27/world/americas/27reuters-health-coronavirus-brazil-delivery.html?searchResultPosition=5
 
-**Evian Championship Moved to August Due to Coronavirus**\
-`The Evian Championship, the fourth women's golf major of the year, has been moved to August from July due to the coronavirus pandemic, organizers said on Friday.`\
-https://nytimes.com/reuters/2020/03/27/sports/golf/27reuters-health-coronavirus-golf-women-evian.html?searchResultPosition=6
+**For Seniors, Isolation Changes Life in Varied, Nuanced Ways**\
+`One remembers the polio epidemic and the hardships of World War II. One is stoic about it all — because, he says, he's already “here past the welcome.” A third, old enough to remember the aftermath of the 1918 flu epidemic, turns to her faith in challenging times. `\
+https://nytimes.com/aponline/2020/03/27/health/ap-us-med-virus-outbreak-seniors-coping.html?searchResultPosition=6
 
-**Home of Golfer Love III Destroyed by Fire**\
-`The home of pro golfer Davis Love III was destroyed by fire early Friday morning.`\
-https://nytimes.com/reuters/2020/03/27/sports/golf/27reuters-golf-pga-love-fire.html?searchResultPosition=7
+**'I Was Not Afraid': Swiss Woman, 95, Back Home After Surviving Coronavirus**\
+`A 95-year-old Swiss woman was back home and online with her 10 grandchildren and 11 great-grandchidren on Friday after recovering from a week in intensive care with COVID-19.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-swiss-survivor.html?searchResultPosition=7
 
-**Team USA Weighing Roster Alternatives in Event of Spring Olympics**\
-`USA Basketball is weighing alternative roster options in the event of a potential conflict between the delayed Tokyo Olympics and the NBA season.`\
-https://nytimes.com/reuters/2020/03/27/sports/basketball/27reuters-basketball-nba-olympics-teamusa.html?searchResultPosition=8
+**France Extends Coronavirus Lockdown by Two Weeks to April 15**\
+`French Prime Minister Edouard Philippe said in a speech the government had decided to extend the country's coronavirus lockdown by two weeks until April 15.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-france-lockdown.html?searchResultPosition=8
 
-**Report: Syndergaard Has Successful Tommy John Surgery**\
-`New York Mets right-hander Noah Syndergaard had successful Tommy John surgery on Thursday, ESPN's Jeff Passan reported Friday morning.`\
-https://nytimes.com/reuters/2020/03/27/sports/baseball/27reuters-baseball-mlb-nym-syndergaard.html?searchResultPosition=9
+**How You Can Make Your Home Safer**\
+`Now that you are staying at home to protect yourself from spreading coronavirus, here’s what you need to do to protect your family as well.`\
+https://nytimes.com/2020/03/27/smarter-living/how-you-can-make-your-home-safer.html?searchResultPosition=9
 
-**Insurance for Pandemics Would Require State Help: British Trade Body**\
-`Business interruption insurance is not designed for pandemics, and if Britain wants businesses to have more cover in future for such events, it would require state aid, the Association of British Insurers said on Friday.`\
-https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-britain-insurance.html?searchResultPosition=10
+**Praying Outside Church of the Holy Sepulchre, but Unable to Enter**\
+`Two weeks before Easter, a group of Roman Catholic priests gathered before the locked doors of the ancient Church of the Holy Sepulchre in Jerusalem on Friday chanting in prayer.`\
+https://nytimes.com/reuters/2020/03/27/world/middleeast/27reuters-health-coronavirus-jerusalem-church.html?searchResultPosition=10
 
