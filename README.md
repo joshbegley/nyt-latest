@@ -1,36 +1,36 @@
-**A Ballet Scandal Gets the ‘Special Victims Unit’ Treatment**\
-`The episode, “Dance, Lies and Videotape,” appeared to be ripped from the headlines of New York City Ballet.`\
-https://nytimes.com/2020/03/27/arts/dance/special-victims-unit-ballet-episode.html?searchResultPosition=2
+**U of Rochester, Ex-Professors Settle Retaliation Claims**\
+`The University of Rochester will pay $9.4 million to settle a lawsuit brought by nine former professors and students who said they faced retaliation after bringing sexual misconduct claims against a professor, the group's attorneys said Friday. `\
+https://nytimes.com/aponline/2020/03/27/us/ap-us-rochester-sexual-misconduct-clash.html?searchResultPosition=2
 
-**The Experience of Getting Tested for Coronavirus**\
-`Here are some of the experiences and bits of advice from those who have been able to get tested.`\
-https://nytimes.com/article/test-for-coronavirus.html?searchResultPosition=3
+**Evian Championship Moved to August Due to Coronavirus**\
+`The Evian Championship, the fourth women's golf major of the year, has been moved to August from July due to the coronavirus pandemic, organizers said on Friday.`\
+https://nytimes.com/reuters/2020/03/27/sports/golf/27reuters-health-coronavirus-golf-women-evian.html?searchResultPosition=3
 
-**How Does the Coronavirus Compare With the Flu?**\
-`As new cases appear in the U.S., some — including the president — have compared it to the seasonal flu. Here’s a close look at the differences.`\
-https://nytimes.com/article/coronavirus-vs-flu.html?searchResultPosition=4
+**Home of Golfer Love III Destroyed by Fire**\
+`The home of pro golfer Davis Love III was destroyed by fire early Friday morning.`\
+https://nytimes.com/reuters/2020/03/27/sports/golf/27reuters-golf-pga-love-fire.html?searchResultPosition=4
 
-**Flattening the Coronavirus Curve**\
-`One chart explains why slowing the spread of the infection is nearly as important as stopping it.`\
-https://nytimes.com/article/flatten-curve-coronavirus.html?searchResultPosition=5
+**Team USA Weighing Roster Alternatives in Event of Spring Olympics**\
+`USA Basketball is weighing alternative roster options in the event of a potential conflict between the delayed Tokyo Olympics and the NBA season.`\
+https://nytimes.com/reuters/2020/03/27/sports/basketball/27reuters-basketball-nba-olympics-teamusa.html?searchResultPosition=5
 
-**Overlooked No More: Kate Worley, a Pioneer Writer of Erotic Comics**\
-`Worley, who wrote Omaha the Cat Dancer, about a feline stripper, “injected a woman’s point of view” that helped the comic stand out from others in the 1980s.`\
-https://nytimes.com/2020/03/27/obituaries/kate-worley-overlooked.html?searchResultPosition=6
+**Report: Syndergaard Has Successful Tommy John Surgery**\
+`New York Mets right-hander Noah Syndergaard had successful Tommy John surgery on Thursday, ESPN's Jeff Passan reported Friday morning.`\
+https://nytimes.com/reuters/2020/03/27/sports/baseball/27reuters-baseball-mlb-nym-syndergaard.html?searchResultPosition=6
 
-**Water Shutoffs in Sharp Focus Amid Coronavirus Outbreak**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/03/27/us/ap-virus-outbreak-water-shutoffs.html?searchResultPosition=7
+**Insurance for Pandemics Would Require State Help: British Trade Body**\
+`Business interruption insurance is not designed for pandemics, and if Britain wants businesses to have more cover in future for such events, it would require state aid, the Association of British Insurers said on Friday.`\
+https://nytimes.com/reuters/2020/03/27/world/europe/27reuters-health-coronavirus-britain-insurance.html?searchResultPosition=7
 
-**4 Passengers Dead Aboard Cruise Ship Anchored Off Panama**\
-`Four passengers have died aboard a cruise ship now anchored off the coast of Panama and two people aboard the ship have tested positive for the novel coronavirus, the cruise line said Friday.`\
-https://nytimes.com/aponline/2020/03/27/world/americas/ap-lt-virus-outbreak-panama-cruise-deaths.html?searchResultPosition=8
+**Bob Dylan Drops 17-Min Song Inspired by Kennedy Assassination**\
+`Bob Dylan on Friday released a 17-minute song inspired by the assassination more than five decades ago of U.S. President John F. Kennedy - the influential singer's first original music since 2012.`\
+https://nytimes.com/reuters/2020/03/27/arts/27reuters-music-bob-dylan.html?searchResultPosition=8
 
-**A Philadelphia Hospital Remains Closed as Talks Between the Owner and City Fall Apart**\
-`Hahnemann University Hospital could hold 500 patients with the coronavirus. But city officials said they could not pay the nearly $1 million a month the owner has requested.`\
-https://nytimes.com/2020/03/27/us/coronavirus-philadelphia-hahnemann-hospital.html?searchResultPosition=9
+**World Bank Head Calls for Easing Debts of Poorer Countries in Light of Coronavirus**\
+`World Bank President David Malpass on Friday said poorer countries will need debt relief or restructuring so they can fund their fights against the coronavirus pandemic, and said the World Bank would present a debt-relief approach in April.`\
+https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-world-bank-relief.html?searchResultPosition=9
 
-**For Better Relations With Iran**\
-`A reader who visited the country says emergency aid could help encourage change. Also: A Mets star’s surgery; social media in a pandemic.`\
-https://nytimes.com/2020/03/27/opinion/letters/iran-sanctions.html?searchResultPosition=10
+**IMF's Georgieva Tells CNBC-No Way to Get to Strong Recovery Without Containment**\
+`The head of the International Monetary Fund on Friday underscored the importance of strong containment measures to get control of the coronavirus pandemic, and to lay the groundwork for a strong recovery in 2021.`\
+https://nytimes.com/reuters/2020/03/27/world/americas/27reuters-health-coronavirus-imf-cnbc.html?searchResultPosition=10
 
