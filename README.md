@@ -14,7 +14,7 @@ https://nytimes.com/2020/03/27/dining/clams-quahogs-coronavirus.html?searchResul
 `The coronavirus pandemic highlights how much we need to have conversations about end-of-life care.`\
 https://nytimes.com/2020/03/27/opinion/covid-end-of-life.html?searchResultPosition=5
 
-**No Swimming Pools? No Sports to Announce? No Problem.**\
+**No Swimming Pools? No Sports to Announce? No Problem**\
 `Sports commentators and swimmers are having to get especially creative. Plus, we look at the sports weekend that would have been.`\
 https://nytimes.com/2020/03/27/sports/no-swimming-pools-no-sports-to-announce-no-problem.html?searchResultPosition=6
 
