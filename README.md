@@ -1,5 +1,5 @@
 **4-Year-Old Girl, Lost in the Woods for 48 Hours, Is Found Unharmed**\
-`“Ecstatic may not be a good enough word — it was extremely emotional,” Sheriff Jay Jones of Lee County, Ala., said of finding Evelyn, better known as Vadie, Sides.`\
+`“Ecstatic may not be a good enough word — it was extremely emotional,” Sheriff Jay Jones of Lee County, Ala., said of finding Evelyn Sides, better known as Vadie.`\
 https://nytimes.com/2020/03/28/us/Evelyn-sides-Alabama-missing-found-.html?searchResultPosition=2
 
 **Ackman Says Pershing Square No Longer Has Hedges on Stocks**\
