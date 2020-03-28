@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/03/28/us/ap-us-virus-outbreak-life-outside-loc
 `The dining and bar scene, so central to the city’s identity, emerged strong from Hurricane Katrina. But the coronavirus crisis is different.`\
 https://nytimes.com/2020/03/28/dining/new-orleans-restaurants-coronavirus.html?searchResultPosition=3
 
-**Swiss Coronavirus Death Toll Reaches 235, Confirmed Cases Top 13,000**\
-`The Swiss death toll from coronavirus has reached 235, the country's public health ministry said on Saturday, rising from 197 people on Friday.`\
+**Swiss Coronavirus Deaths Reach 235, Confirmed Cases Top 13,000**\
+`Switzerland's death toll from the new coronavirus has increased to 235 people from 197 on Friday, the health ministry said on Saturday, with the number of cases also increasing to 13,213 from 12,161.`\
 https://nytimes.com/reuters/2020/03/28/world/europe/28reuters-health-coronavirus-swiss.html?searchResultPosition=4
 
 **UK Minister for Scotland Self-Isolating With Possible Coronavirus Symptoms**\
