@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/03/28/world/europe/28reuters-health-coronavirus
 `As many as 200,000 workers could walk off the job unless demands for improved equipment and hazard pay are met.`\
 https://nytimes.com/2020/03/28/business/coronavirus-instacart-strike.html?searchResultPosition=6
 
-**Toughest Weeks Lie Ahead in Coronavirus Fight, Warns French PM**\
-`The next two weeks will be the toughest yet in the fight against  coronavirus in France, Prime Minister Edouard Philippe warned on Saturday as his government raced to add intensive care beds and source protective gear.`\
+**Toughest Weeks Ahead in Coronavirus Fight, Warns French PM**\
+`The next two weeks will be the toughest yet in the fight against coronavirus in France, Prime Minister Edouard Philippe warned on Saturday as his government raced to add intensive care beds and source protective gear.`\
 https://nytimes.com/reuters/2020/03/28/world/europe/28reuters-health-coronavirus-france.html?searchResultPosition=7
 
 **The Week That Was: Stories From the Coronavirus Saga**\
