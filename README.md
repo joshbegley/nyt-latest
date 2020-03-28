@@ -6,8 +6,8 @@ https://nytimes.com/2020/03/28/arts/music/ray-mantilla-dead.html?searchResultPos
 `The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments this weekend related to the global economy, the work place and the spread of the virus.`\
 https://nytimes.com/aponline/2020/03/28/business/ap-us-virus-outbreak-business-fallout.html?searchResultPosition=3
 
-**Rockets Intercepted Above Saudi Cities: Al-Arabiya TV**\
-`Two rockets were intercepted on Saturday in the sky above the Saudi capital Riyadh and the southern city Jazan, Saudi-owned Al Arabiya television reported, citing its correspondent and sources.`\
+**Missiles Intercepted Above Saudi Capital and City of Jazan - State Media**\
+`Ballistic missiles were intercepted on Saturday in the sky above Saudi Arabia's capital Riyadh and the southern city of Jazan, state media reported, citing its own sources and the Saudi-led coalition fighting in Yemen.`\
 https://nytimes.com/reuters/2020/03/28/world/middleeast/28reuters-saudi-riyadh-rockets.html?searchResultPosition=4
 
 **Lebanon's Berri May Suspend Cabinet Support Over Coronavirus Expat Policy**\
