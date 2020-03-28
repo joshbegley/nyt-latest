@@ -10,7 +10,7 @@ https://nytimes.com/aponline/2020/03/28/business/bc-us-virus-outbreak-whats-esse
 `The visit, which Mr. Trump defended as “a tiny trip,” was to be his first time leaving the White House in over a week. To stem the spread of the coronavirus, federal guidelines advise against most travel.`\
 https://nytimes.com/2020/03/28/us/politics/trump-virginia-comfort-coronavirus.html?searchResultPosition=4
 
-**Political Maverick Oklahoma US Sen. Tom Coburn Dead at 72**\
+**Former Sen. Tom Coburn, Known as a Political Maverick, Dies**\
 `Former U.S. Sen. Tom Coburn, an Oklahoma family doctor who earned a reputation as a conservative political maverick as he railed against federal earmarks and subsidies for the rich, has died. He was 72. `\
 https://nytimes.com/aponline/2020/03/28/us/ap-us-obit-coburn.html?searchResultPosition=5
 
@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/03/28/us/ap-us-obit-coburn.html?searchResultPo
 `Spain's coronavirus fatalities rose by a record 832 people overnight to 5,690 as hospitals and morgues were overwhelmed and a police chief fought back tears announcing a colleague's death. `\
 https://nytimes.com/reuters/2020/03/28/world/europe/28reuters-health-coronavirus-spain.html?searchResultPosition=6
 
-**Farmworkers Key to Keeping US Fed Are Wary of Virus's Spread**\
+**Farmworkers Key to Keeping US Fed Are Wary of Virus Spread**\
 `Salvador Calzadillas isn't worried about catching the coronavirus when he's picking mandarin oranges in the trees in central California. But he said the mere act of getting to the groves each day puts him and his wife, also a farmworker, at risk, and there’s nothing they can do to change that.`\
 https://nytimes.com/aponline/2020/03/28/business/ap-us-virus-outbreak-california-farmers.html?searchResultPosition=7
 
