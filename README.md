@@ -2,8 +2,8 @@
 `Medical providers must not engage in “ruthless utilitarianism” in deciding who gets lifesaving treatment for the coronavirus, a federal civil rights officer warned.`\
 https://nytimes.com/2020/03/28/us/coronavirus-disabilities-handicapped-rationing-ventilators-triage.html?searchResultPosition=2
 
-**North Korea Fires Unidentified Projectile: Yonhap**\
-`North Korea fired an unidentified projectile into the ocean off its east coast, Yonhap news agency reported on Sunday, citing South Korea's Joint Chiefs of Staff.`\
+**North Korea Fired Unidentified Projectile Into the Ocean, South Korea's Military Says**\
+`North Korea fired an unidentified projectile into the ocean off its east coast, South Korea's Joint Chiefs of Staff said on Saturday, without providing further details. `\
 https://nytimes.com/reuters/2020/03/28/world/asia/28reuters-northkorea-missiles.html?searchResultPosition=3
 
 **IndyCar Goes iRacing as Latest Series to Offer Fans Content**\
