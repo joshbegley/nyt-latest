@@ -14,7 +14,7 @@ https://nytimes.com/aponline/2020/03/28/sports/ap-sports-virus-outbreak-the-late
 `Tourism officials in Memphis, Tennessee, say the Beale Street Music Festival and the World Championship Barbecue Cooking Contest have been rescheduled for the fall after they were postponed by the new coronavirus outbreak.`\
 https://nytimes.com/aponline/2020/03/28/us/ap-us-virus-outbreak-memphis-in-may.html?searchResultPosition=5
 
-**The Race for Virus Money is on. Lobbyists Are Standing by.**\
+**The Race for Virus Money Is On. Lobbyists Are Standing By.**\
 `Companies see the outbreak as a chance to cash in, do some good, or both. Among the early winners: the Washington influence industry.`\
 https://nytimes.com/2020/03/28/us/politics/coronavirus-money-lobbyists.html?searchResultPosition=6
 
