@@ -1,36 +1,36 @@
+**Hawks No More: Fiscal Conservatives Embrace Rescue Package**\
+`Republicans who have spent the past decade howling about the danger of ballooning deficits embraced the mammoth coronavirus rescue package approved by Congress this week, shrugging off past concerns about the nation's spending in the face of a public health crisis. `\
+https://nytimes.com/aponline/2020/03/28/us/politics/bc-us-election-2020-republicans.html?searchResultPosition=2
+
 **America's Civil Rights Movement Leader Joseph Lowery Has Died: CNN**\
 `America's civil rights movement leader Joseph Lowery died on Friday at age 98, CNN reported.`\
-https://nytimes.com/reuters/2020/03/28/us/28reuters-people-joseph-lowery.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/03/28/us/28reuters-people-joseph-lowery.html?searchResultPosition=3
 
 **Condom Shortage Looms After Coronavirus Lockdown Shuts World's Top Producer**\
 `A global shortage of condoms is looming, the world's biggest producer said, after a coronavirus lockdown forced it to shut down production.`\
-https://nytimes.com/reuters/2020/03/28/business/28reuters-health-coronavirus-malaysia-karex.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/03/28/business/28reuters-health-coronavirus-malaysia-karex.html?searchResultPosition=4
 
 **UN Chief Says Misinformation About COVID-19 Is New Enemy**\
 `U.N. Secretary-General Antonio Guterres said Friday the world is not only fighting the “common enemy” of the coronavirus “but our enemy is also the growing surge of misinformation” about COVID-19 disease.`\
-https://nytimes.com/aponline/2020/03/28/world/ap-un-virus-outbreak-united-nations.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/03/28/world/ap-un-virus-outbreak-united-nations.html?searchResultPosition=5
 
 **Coronavirus Live Updates: $2 Trillion Aid Bill Becomes Law as U.S. Cases Reach 100,000**\
 `President Trump said the government would buy thousands of ventilators, but it seemed doubtful they could be produced in time to help overwhelmed hospitals.`\
-https://nytimes.com/2020/03/28/world/coronavirus-live-news-updates.html?searchResultPosition=5
+https://nytimes.com/2020/03/28/world/coronavirus-live-news-updates.html?searchResultPosition=6
 
 **NFL Notebook: Rodgers Escaped Peru Before Airport Shutdown**\
 `Green Bay Packers quarterback Aaron Rodgers barely got out of Peru on March 18 just before the airport closed down due to the coronavirus pandemic, he said Friday.`\
-https://nytimes.com/reuters/2020/03/27/sports/football/27reuters-football-nfl-notebook.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/03/27/sports/football/27reuters-football-nfl-notebook.html?searchResultPosition=7
 
 **U.S. House Will Have Panel Overseeing Coronavirus Aid Law Expenditures: Pelosi**\
 `U.S. House of Representatives Speaker Nancy Pelosi said on Friday the House will set up a panel to oversee expenditures under the $2.2 trillion coronavirus relief law.`\
-https://nytimes.com/reuters/2020/03/27/us/politics/27reuters-health-coronavirus-usa-congress-pelosi.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/03/27/us/politics/27reuters-health-coronavirus-usa-congress-pelosi.html?searchResultPosition=8
 
 **Corrections: March 28, 2020**\
 `Corrections that appeared in print on Saturday, March 28, 2020.`\
-https://nytimes.com/2020/03/27/pageoneplus/corrections-march-28-2020.html?searchResultPosition=8
+https://nytimes.com/2020/03/27/pageoneplus/corrections-march-28-2020.html?searchResultPosition=9
 
 **Quotation of the Day: Train Operator Is Killed In a Subway Car Blaze; Officials Suspect Arson**\
 `Quotation of the Day for Saturday, March 28, 2020.`\
-https://nytimes.com/2020/03/27/todayspaper/quotation-of-the-day-train-operator-is-killed-in-a-subway-car-blaze-officials-suspect-arson.html?searchResultPosition=9
-
-**Rumors Hampering Fight Against Coronavirus in South Asia**\
-`The message started with an outlandish claim: The coronavirus was retreating in India because of “cosmic-level sound waves” created by a collective cheer citizens had been asked to join.`\
-https://nytimes.com/aponline/2020/03/27/world/asia/ap-as-virus-outbreak-south-asia-rumors.html?searchResultPosition=10
+https://nytimes.com/2020/03/27/todayspaper/quotation-of-the-day-train-operator-is-killed-in-a-subway-car-blaze-officials-suspect-arson.html?searchResultPosition=10
 
