@@ -19,7 +19,7 @@ https://nytimes.com/2020/03/28/business/national-enquirer-ami-coronavirus.html?s
 https://nytimes.com/aponline/2020/03/28/world/middleeast/ap-ml-saudi-yemen.html?searchResultPosition=6
 
 **Tokyo Olympics Organizers Considering July 2021 for Opening Ceremony**\
-`The 2020 Summer Games, postponed because of the coronavirus pandemic, would start July 23, 2021 under a plan organizers are considering.`\
+`The 2020 Summer Games, postponed because of the coronavirus pandemic, would start July 23, 2021, under a plan organizers are considering.`\
 https://nytimes.com/2020/03/28/sports/olympics/coronavirus-olympics-postponed-2021.html?searchResultPosition=7
 
 **Northern Ireland Brings in Tough Measures to Fight Coronavirus**\
