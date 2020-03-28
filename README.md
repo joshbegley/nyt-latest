@@ -2,11 +2,11 @@
 `The Swiss death toll from coronavirus has reached 235, the country's public health ministry said on Saturday, rising from 197 people on Friday.`\
 https://nytimes.com/reuters/2020/03/28/world/europe/28reuters-health-coronavirus-swiss.html?searchResultPosition=2
 
-**Theme Park Opens Drive-Through Coronavirus Testing Unit as UK Ramps Up Response**\
-`A drive-through coronavirus testing facility for health workers has begun operating in the car park of a popular resort near London, part of a British government drive to ramp up testing for those on the frontline of the epidemic.`\
+**UK Minister for Scotland Self-Isolating With Possible Coronavirus Symptoms**\
+`Britain's Secretary of State for Scotland Alister Jack has developed mild symptoms consistent with coronavirus and is self-isolating, a spokeswoman for his ministry said on Saturday.`\
 https://nytimes.com/reuters/2020/03/28/world/europe/28reuters-health-coronavirus-britain.html?searchResultPosition=3
 
-**Thai Nationals Take Last Flight From Singapore to Avoid Being Stranded**\
+**Last Flight to Bangkok: 'If I Die, I Want to Die in My Country'**\
 `As airlines worldwide cut flights due to the coronavirus outbreak, the last service from Singapore to Bangkok departed on Saturday with only a few dozen passengers, mostly Thai citizens desperate to get home to ride out the pandemic.`\
 https://nytimes.com/reuters/2020/03/28/world/asia/28reuters-health-coronavirus-singapore-thailand.html?searchResultPosition=4
 
