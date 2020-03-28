@@ -2,7 +2,7 @@
 `Turkey halted all intercity trains and limited domestic flights on Saturday as part of measures to contain a fast-growing coronavirus outbreak, as the number of cases jumped by a third in a day to 5,698, with 92 dead.`\
 https://nytimes.com/reuters/2020/03/28/world/europe/28reuters-health-coronavirus-turkey.html?searchResultPosition=2
 
-**The Latest: Sri Lanka Arrests Thousands for Violating Curfew**\
+**The Latest: Germany Won't Ease Restrictions Before April 20**\
 `The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
 https://nytimes.com/aponline/2020/03/28/business/ap-virus-outbreak-the-latest.html?searchResultPosition=3
 
