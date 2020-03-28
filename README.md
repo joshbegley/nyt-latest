@@ -1,36 +1,36 @@
-**Abbott Wins U.S. Approval for Test That Can Detect Coronavirus in Minutes**\
-`Abbott Laboratories said on Friday it won U.S. marketing approval for a diagnostic test for the coronavirus that can deliver results to patients within minutes and be used in physicians offices and urgent care clinics, as well as hospitals.`\
-https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-abbott.html?searchResultPosition=2
+**NBA Notebook: Play Likely to Resume Without Fans**\
+`If the NBA regular season resumes, it is almost "100 percent" the games will be played without fans present, ESPN's Brian Windhorst reported Friday.`\
+https://nytimes.com/reuters/2020/03/27/sports/basketball/27reuters-basketball-nba-notebook.html?searchResultPosition=2
 
-**GM Reaches Settlement Over Lost Vehicle Value From Defective Ignition Switches**\
-`General Motors Co has reached a $120 million settlement with owners who claimed that their vehicles lost value because of defective ignition switches, which have been linked to 124 deaths.`\
-https://nytimes.com/reuters/2020/03/27/business/27reuters-gm-settlement.html?searchResultPosition=3
+**Satellite Operator OneWeb Files for Chapter 11 Bankruptcy Plan**\
+`OneWeb, the satellite operator backed by SoftBank Group Corp  has filed for a voluntary Chapter 11 bankruptcy plan to pursue a sale of its business, the company said late on Friday.`\
+https://nytimes.com/reuters/2020/03/27/technology/27reuters-oneweb-bankruptcy.html?searchResultPosition=3
 
-**South Korea Reports 146 New Coronavirus Cases**\
-`South Korea reported 146 new coronavirus cases on Saturday, taking the national tally to 9,478, the Korea Centers for Disease Control and Prevention said. `\
-https://nytimes.com/reuters/2020/03/27/world/asia/27reuters-health-coronavirus-southkorea.html?searchResultPosition=4
+**NHL Players Discuss Possible Playoff Formats**\
+`With the NHL season on an indefinite hold due to the coronavirus pandemic, players have plenty of time to ponder the potential return of the sport.`\
+https://nytimes.com/reuters/2020/03/27/sports/27reuters-icehockey-nhl-playoff-format.html?searchResultPosition=4
 
-**Panama Reports 112 New Cases and Five More Deaths From Coronavirus**\
-`Panama health officials on Friday reported five more deaths from coronavirus, bringing the country's total to 14 deaths. `\
-https://nytimes.com/reuters/2020/03/27/world/americas/27reuters-heatlh-coronavirus-panama.html?searchResultPosition=5
+**Tom Hanks Returns to LA After Bout of Coronavirus: Media Reports**\
+`Tom Hanks and his wife Rita Wilson returned to Los Angeles on Friday after spending more than two weeks in quarantine in Australia after testing positive for the coronavirus.`\
+https://nytimes.com/reuters/2020/03/27/arts/27reuters-health-coronavirus-hanks.html?searchResultPosition=5
 
-**Some Choice Words**\
-`Saturday, again? Erik Agard stays the deadpan course.`\
-https://nytimes.com/2020/03/27/crosswords/daily-puzzle-2020-03-28.html?searchResultPosition=6
+**Report: Plan for Thanksgiving Baseball Being Considered**\
+`There could be baseball during the 2020 holidays, with USA Today reporting Friday that both Major League Baseball and its players are willing to extend the season until Thanksgiving in order to preserve as much of the schedule as possible.`\
+https://nytimes.com/reuters/2020/03/27/sports/baseball/27reuters-baseball-mlb-schedule.html?searchResultPosition=6
 
-**California Restaurants Say 30% to Close Without State Aid**\
-`As many as 30,000 California restaurants could close permanently because of coronavirus restrictions that have shuttered dining rooms and led to widespread layoffs, the industry warned Friday, while urging the state to delay tax payments and planned minimum-wage increases to help the ailing businesses.`\
-https://nytimes.com/aponline/2020/03/27/business/ap-ca-virus-outbreak-california-restaurants.html?searchResultPosition=7
+**Shop Sells 'Hundreds' of Doughnuts Starring Dr. Fauci's Face**\
+`An upstate New York doughnut shop is featuring the likeness of the doctor leading the country's battle with coronavirus on its sweet treats. `\
+https://nytimes.com/aponline/2020/03/27/us/ap-us-odd-doctor-donuts.html?searchResultPosition=7
 
-**Trump Suggests He Can Gag Inspector General for Stimulus Bailout Program**\
-`In a signing statement, the president undermined a key safeguard Democrats had insisted upon as a condition of approving $500 billion in corporate relief in the $2 trillion law.`\
-https://nytimes.com/2020/03/27/us/trump-signing-statement-coronavirus.html?searchResultPosition=8
+**New Yorkers Irked to Feel Unwelcome in States Fearing Coronavirus Spread**\
+`Many New Yorkers say they are miffed at being treated as the poster children of the U.S. coronavirus outbreak, unwelcome in some states even if they are symptom-free. `\
+https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-usa-pariahs.html?searchResultPosition=8
 
-**U.S. Cuts Health Care Aid to Yemen Despite Worries About Coronavirus**\
-`The Trump administration cited interference by Houthi rebels. But humanitarian groups and some Democrats asked for a delay because of the pandemic.`\
-https://nytimes.com/2020/03/27/world/middleeast/yemen-health-care-aid-coronavirus.html?searchResultPosition=9
+**Canada's Top Lenders Cut Prime Rates After Central Bank's Surprise Move**\
+`Canada's top lenders lowered their prime rates by 50 basis points on Friday, hours after the central bank unexpectedly cut its key interest rate to help the county weather the economic fallout of the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/03/27/us/27reuters-health-coronavirus-canada-banks.html?searchResultPosition=9
 
-**California Has Surge of Virus Cases That Threatens Hospitals**\
-`The surge of coronavirus cases in California that health officials have warned was coming has arrived and will worsen, Gov. Gavin Newsom said Friday, while the mayor of Los Angeles warned that by early next week his city could see the kind of crush that has crippled New York. `\
-https://nytimes.com/aponline/2020/03/27/us/ap-us-virus-outbreak-california-3rd-ld-writethru.html?searchResultPosition=10
+**Fed Action Pushes Top-Rated U.S. Corporate Bond Issuance to Record**\
+`U.S. companies raised a record $109.1 billion through investment-grade bond sales this week, as corporate America hoarded cash following measures unveiled on Monday by the Federal Reserve to backstop the market for high-quality debt. `\
+https://nytimes.com/reuters/2020/03/27/us/27reuters-usa-companies-debt.html?searchResultPosition=10
 
