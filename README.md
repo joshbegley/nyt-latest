@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/03/29/us/ap-us-virus-outbreak-one-good-thing-n
 https://nytimes.com/2020/03/29/realestate/homes-that-sold-for-around-1-5-million.html?searchResultPosition=9
 
 **Special Episode: What I Learned When My Husband Got Coronavirus**\
-`An editor at The Times shares an intimate essay about her family’s personal fight against the pandemic.`\
+`An editor at The Times shares an intimate essay about her family’s fight against the pandemic.`\
 https://nytimes.com/2020/03/29/podcasts/the-daily/special-episode-what-i-learned-when-my-husband-got-coronavirus.html?searchResultPosition=10
 
