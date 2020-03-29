@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/03/29/world/middleeast/29reuters-health-coronav
 `Poland's Krzysztof Penderecki, one of the world's most celebrated composers, died on Sunday at the age of 86, said state-controlled news agency PAP.`\
 https://nytimes.com/reuters/2020/03/29/arts/29reuters-poland-music-penderecki.html?searchResultPosition=4
 
-**UK Government 'Very Concerned' After Coronavirus Death Toll Surpasses 1,000**\
-`The British government is "very concerned" following the latest figures which show more than 1,000 people had died after testing positive for coronavirus, senior minister Michael Gove said on Sunday. `\
+**UK's Johnson Warns on Coronavirus: Things to Get Worse Before They Get Better**\
+`Prime Minister Boris Johnson is warning Britons in a letter to 30 million households that things will get worse before they get better, as he himself self-isolates in Downing Street to recover from the coronavirus. `\
 https://nytimes.com/reuters/2020/03/29/world/europe/29reuters-health-coronavirus-britain.html?searchResultPosition=5
 
 **Qatar Airways CEO Says Will Keep Flying but Warns Cash Is Running Out**\
