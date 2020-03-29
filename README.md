@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/03/29/world/asia/29reuters-health-coronavirus-t
 https://nytimes.com/2020/03/29/world/europe/rich-coronavirus-second-homes.html?searchResultPosition=5
 
 **Off to the Cafe: Sweden Is Outlier in Virus Restrictions**\
-`By The Associated Press`\
+`The streets of Stockholm are quiet but not deserted. People still sit at outdoor cafes in the center of Sweden's capital. Vendors still sell flowers. Teenagers still chat in groups in parks. Some still greet each other with hugs and handshakes.`\
 https://nytimes.com/aponline/2020/03/29/world/europe/ap-eu-virus-outbreak-swedens-approach.html?searchResultPosition=6
 
 **Saudi Arabia Shuts Entry and Exit Into Jeddah, Brings Forward Curfew: State News Agency**\
