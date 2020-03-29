@@ -1,5 +1,5 @@
 **Your Monday Briefing**\
-`Coronavirus, India’s migrant workers, North Korea: Here’s what you need to know.`\
+`Coronavirus, India’s lockdown, North Korea: Here’s what you need to know.`\
 https://nytimes.com/2020/03/29/briefing/coronavirus-india-lockdown-bergamo-deaths.html?searchResultPosition=1
 
 **Factbox: Sports Events Around the World Hit by Coronavirus Pandemic**\
