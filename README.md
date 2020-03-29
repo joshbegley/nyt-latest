@@ -2,8 +2,8 @@
 `A large tornado struck the city of Jonesboro in Arkansas on Saturday, wrecking buildings and flipping cars, according to local media and images posted online.`\
 https://nytimes.com/reuters/2020/03/28/us/28reuters-arkansas-weather.html?searchResultPosition=2
 
-**South Korea Says North Korea Has Fired Projectile Into Sea**\
-`South Korea says North Korea has fired an unidentified projectile into the sea.`\
+**South Korea Says North Korea Has Fired Projectiles Into Sea**\
+`North Korea has fired two suspected ballistic missiles into the sea, South Korea said Sunday.`\
 https://nytimes.com/aponline/2020/03/28/world/asia/ap-as-nkorea-launch-.html?searchResultPosition=3
 
 **Figuring Out Home Schooling in the Age of Coronavirus**\
