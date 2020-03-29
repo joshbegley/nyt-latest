@@ -34,7 +34,7 @@ https://nytimes.com/2020/03/29/nyregion/coronavirus-new-york-schools-remote-lear
 `U.S. President Donald Trump has offered his opinion on the future of Prince Harry and his wife Meghan, insisting the United States government won’t pay for the couple’s security if they live in the United States.`\
 https://nytimes.com/aponline/2020/03/29/world/europe/ap-us-trump-royals.html?searchResultPosition=9
 
-**Trump Says Hospitals Not Using Ventilators Will Have to Release Them**\
-`U.S. President Donald Trump told reporters on Sunday that hospitals not using ventilators must release them and that there was hoarding of the devices.`\
+**Trump Accuses Hospitals of Hoarding Ventilators**\
+`U.S. President Donald Trump accused hospitals on Sunday of hoarding ventilators that are in scarce supply across the United States as the coronavirus spreads, adding any hospitals not using the devices must release them.`\
 https://nytimes.com/reuters/2020/03/29/us/29reuters-health-coronavirus-trump-ventilators.html?searchResultPosition=10
 
