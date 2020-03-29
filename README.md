@@ -10,7 +10,7 @@ https://nytimes.com/2020/03/29/us/seattle-washington-state-coronavirus-transmiss
 `The family of John Prine says the singer-songwriter is critically ill and has been placed on a ventilator while being treated for COVID-19-type symptoms.`\
 https://nytimes.com/aponline/2020/03/29/us/ap-us-people-john-prine.html?searchResultPosition=3
 
-**The Trauma That Awaits Our Doctors and Nurses**\
+**The Psychological Trauma That Awaits Our Doctors and Nurses**\
 `Don’t underestimate the moral anguish of deciding who gets a ventilator.`\
 https://nytimes.com/2020/03/29/opinion/coronavirus-ventilators-rationing-triage.html?searchResultPosition=4
 
