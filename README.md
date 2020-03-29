@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/03/29/world/asia/29reuters-health-coronavirus-j
 `White House candidates aren't usually bashful about asking supporters for money. `\
 https://nytimes.com/aponline/2020/03/29/us/politics/ap-us-election-2020-money.html?searchResultPosition=3
 
-**US-Led Coalition Pulls Out of 3rd Iraqi Base This Month**\
+**US-Led Forces Pull Out of 3rd Iraqi Base This Month**\
 `The U.S.-led coalition withdrew on Sunday from a military base in northern Iraq that nearly launched Washington into an open war with neighboring Iran.`\
 https://nytimes.com/aponline/2020/03/29/world/middleeast/ap-ml-iraq-us.html?searchResultPosition=4
 
