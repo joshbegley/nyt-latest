@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/03/29/world/asia/29reuters-health-coronavirus-s
 `China reported 45 new coronavirus cases in the mainland for Saturday, down from 54 on the previous day, with all but one involving travelers from overseas, the country's health authority said on Sunday.`\
 https://nytimes.com/reuters/2020/03/29/world/asia/29reuters-health-coronavirus-china-toll.html?searchResultPosition=4
 
-**The Latest: New Zealand Reports Its 1st Coronavirus Death**\
+**The Latest: Pakistan Sees Increase in Positive Virus Tests**\
 `The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
 https://nytimes.com/aponline/2020/03/29/business/ap-virus-outbreak-the-latest.html?searchResultPosition=5
 
