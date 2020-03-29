@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/03/29/world/europe/29reuters-global-oil.html?se
 `Don’t be fooled by snapshot polls.`\
 https://nytimes.com/2020/03/29/opinion/trump-coronavirus-election.html?searchResultPosition=3
 
-**Australia to Review All Foreign Investments During Coronavirus**\
-`Australia will require all foreign investment proposals to be assessed by its Foreign Investment Review Board (FIRB) during the duration of the coronavirus crisis to prevent a fire sale of distressed corporate assets.`\
+**Australia Curbs Gatherings, Locks Down Travelers, in New Coronavirus Measures**\
+`Australia's two most populous states, New South Wales and Victoria, will restrict public gatherings to two people from midnight, state leaders said on Monday, as part of a wave of new measures designed to slow the spread of coronavirus which has infected more than 4,000 across the country.`\
 https://nytimes.com/reuters/2020/03/29/world/asia/29reuters-health-coronavirus-australia.html?searchResultPosition=4
 
 **IS Militants Riot in Eastern Syria Prison, Some Escape**\
