@@ -22,19 +22,19 @@ https://nytimes.com/reuters/2020/03/29/sports/autoracing/29reuters-motor-motogp-
 `The number of deaths from the coronavirus in New York state increased by 237 in the past day, reaching a total of 965 since the outbreak began, Governor Andrew Cuomo said on Sunday.`\
 https://nytimes.com/reuters/2020/03/29/us/29reuters-health-coronavirus-usa-new-york.html?searchResultPosition=6
 
+**Graphic: Three Months That Shook Global Markets**\
+`How much damage has the coronavirus and the oil price collapse inflicted on global financial markets this year? Put simply, it has probably been the most destructive sell-off since the Great Depression. `\
+https://nytimes.com/reuters/2020/03/29/business/29reuters-global-markets-q1.html?searchResultPosition=7
+
 **Tell Us Your Uplifting Stories**\
 `We ask readers for examples of how the virus has brought out the best in humanity.`\
-https://nytimes.com/2020/03/29/opinion/letters/coronavirus-help.html?searchResultPosition=7
+https://nytimes.com/2020/03/29/opinion/letters/coronavirus-help.html?searchResultPosition=8
 
 **Italy Coronavirus Deaths Rise by 756, Lifting Total Death Toll to 10,779**\
 `The death toll from an outbreak of coronavirus in Italy climbed by 756 to 10,779, the Civil Protection Agency said on Sunday, the second successive fall in the daily rate. `\
-https://nytimes.com/reuters/2020/03/29/world/europe/29reuters-health-coronavirus-italy-tally.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/03/29/world/europe/29reuters-health-coronavirus-italy-tally.html?searchResultPosition=9
 
 **In Virus Times, Have Americans Found a Shared Experience?**\
 `As an uneasy March unspooled, as coronavirus dread descended upon the United States, it became commonplace — and, for public figures, quite practical — to point out how, unlike most major events in the 21st century, this was an unusually communal moment.`\
-https://nytimes.com/aponline/2020/03/29/us/ap-virus-outbreak-a-shared-experience.html?searchResultPosition=9
-
-**Virus Forces Europeans to Ask: How United Do We Want to Be?**\
-`Europe’s fractured union came under new pressure this weekend, as Italy and Spain pleaded for urgent European help to withstand the virus ordeal but Germany showed reluctance to plunge into any radical new solutions.`\
-https://nytimes.com/aponline/2020/03/29/business/bc-virus-outbreak-european-disunion.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/03/29/us/ap-virus-outbreak-a-shared-experience.html?searchResultPosition=10
 
