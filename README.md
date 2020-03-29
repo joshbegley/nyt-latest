@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/03/29/world/middleeast/29reuters-health-coronav
 `Moscow Mayor Sergei Sobyanin said on Sunday that the coronavirus outbreak had entered a new phase as the total number of cases in the Russian capital exceeded 1,000 with many Muscovites going out despite a plea to stay home.`\
 https://nytimes.com/reuters/2020/03/29/world/europe/29reuters-health-coronavirus-russia-moscow.html?searchResultPosition=4
 
-**Pope Backs U.N. Chief's Call for Global Ceasefire to Focus on Coronavirus**\
+**Pope Backs UN Chief's Call for Global Ceasefire to Focus on Coronavirus**\
 `Pope Francis on Sunday backed a call by United Nations Secretary-General Antonio Guterres for a global ceasefire so the world can focus on fighting the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/03/29/world/europe/29reuters-health-coronavirus-pope-ceasefire.html?searchResultPosition=5
 
