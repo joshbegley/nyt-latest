@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/03/29/world/africa/ap-af-virus-outbreak-somali
 https://nytimes.com/2020/03/29/briefing/coronavirus-new-york-sabrina-ionescu.html?searchResultPosition=5
 
 **Spain’s Coronavirus Death Toll Rises by 838 Overnight to 6,528**\
-`Spain's coronavirus death toll rose by 838 cases overnight to 6,528 the health ministry said on Saturday, marking the highest daily rise in fatalities.`\
+`Spain awoke to its third week under near-total lockdown on Sunday, as the government met to approve a strengthening of measures and the coronavirus death toll rose by a record 838 cases overnight to 6,528. `\
 https://nytimes.com/reuters/2020/03/29/world/europe/29reuters-health-coronavirus-spain.html?searchResultPosition=6
 
 **The Latest: Italy’s Sports Minister to Extend Ban on Events**\
