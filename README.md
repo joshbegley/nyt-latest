@@ -10,8 +10,8 @@ https://nytimes.com/2020/03/29/world/asia/lion-air-crash-philippines-coronavirus
 `Saudi Arabia said its air defenses intercepted two ballistic missiles on Saturday night in an attack that Yemen's Iran-aligned Houthi group on Sunday said they had launched towards the capital Riyadh and southern areas near the Yemeni border.`\
 https://nytimes.com/reuters/2020/03/29/world/middleeast/29reuters-saudi-riyadh-rockets.html?searchResultPosition=3
 
-**U.S. Cities Warn Medical Supplies Running Out, Call for Federal Help to Fight Coronavirus**\
-`New York City, New Orleans and other major cities expect to run out of ventilators and other medical supplies within days as the United States grapples with the highest number of coronavirus cases in the world.`\
+**U.S. Virus Deaths Could Reach 200,000, Fauci Warns as Medical Supplies Run Short**\
+`U.S. deaths from coronavirus could reach 200,000 with millions of cases, the government's top infectious diseases expert warned on Sunday as New York, New Orleans and other major cities warned they would soon run out of medical supplies.`\
 https://nytimes.com/reuters/2020/03/29/us/29reuters-health-coronavirus-usa.html?searchResultPosition=4
 
 **Fauci Says Coronavirus Deaths in US Could Top 100,000**\
