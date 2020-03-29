@@ -30,11 +30,11 @@ https://nytimes.com/aponline/2020/03/29/us/politics/ap-us-election-2020-money.ht
 `The U.S.-led coalition withdrew on Sunday from a military base in northern Iraq that nearly launched Washington into an open war with neighboring Iran.`\
 https://nytimes.com/aponline/2020/03/29/world/middleeast/ap-ml-iraq-us.html?searchResultPosition=8
 
-**Britain Places New Order for 10,000 Ventilators: Source**\
-`Britain has placed an order for 10,000 ventilators to be made by a consortium of companies including Ford, Airbus and Rolls-Royce as part of efforts to fight coronavirus, an industry source told Reuters.`\
+**Britain Orders 10,000 Ventilators in Fight Against Coronavirus: Source**\
+`Britain has placed an order for 10,000 ventilators to be made by a consortium of companies including Ford, Airbus and Rolls-Royce as part of efforts to fight the coronavirus, an industry source told Reuters.`\
 https://nytimes.com/reuters/2020/03/29/world/europe/29reuters-health-coronavirus-britain-ventilators.html?searchResultPosition=9
 
-**Coronavirus Crisis Puts EU's Credibility on the Line: French Minister**\
-`How the European Union responds to the coronavirus outbreak will determine its credibility and utility, a French minister said on Sunday, after the bloc failed to agree last week on measures to cushion the economic blow from the pandemic.`\
+**Coronavirus Crisis Puts EU Credibility on the Line: French Minister**\
+`How the European Union responds to the coronavirus outbreak will determine its future credibility, a French minister said on Sunday, after the bloc failed to agree last week on measures to cushion the economic blow from the pandemic.`\
 https://nytimes.com/reuters/2020/03/29/world/europe/29reuters-health-coronavirus-france-europe.html?searchResultPosition=10
 
