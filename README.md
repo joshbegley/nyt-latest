@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/03/29/business/ap-us-virus-outbreak-hawaii-tou
 https://nytimes.com/aponline/2020/03/29/world/americas/ap-lt-panama-cruise-ships.html?searchResultPosition=4
 
 **Serial Killer Dubbed Grim Sleeper Dies in California Prison**\
-`Lonnie Franklin, the convicted serial killer known as the "Grim Sleeper" who preyed on the women of South Los Angeles for more than two decades, has died in a California prison. He was 67.`\
+`Lonnie Franklin, the convicted serial killer known as the "Grim Sleeper" who preyed on the women of South Los Angeles for more than two decades, has died in prison. He was 67.`\
 https://nytimes.com/aponline/2020/03/29/us/ap-us-serial-killer-dies.html?searchResultPosition=5
 
 **Teachers’ Herculean Task: Moving 1.1 Million Children to Online School**\
