@@ -1,40 +1,40 @@
+**Trump Said He Was the President of Manufacturing. Then Disaster Struck.**\
+`For a leader who has embraced the language of a wartime president, it is as if the Pentagon asked for missiles and bombers but wouldn’t say how many or where they should be delivered.`\
+https://nytimes.com/2020/03/29/us/politics/coronavirus-trump-ventilators-manufacturing-gm.html?searchResultPosition=1
+
+**Instacart Workers Seek Strike as Jobs Get Busier, Riskier**\
+`A possible strike by Instacart workers highlights the impact of the coronavirus outbreak on the grocery delivery business, where workers are worried about their safety as they try to meet a surge in demand for online groceries.`\
+https://nytimes.com/aponline/2020/03/29/business/ap-virus-outbreak-instacart.html?searchResultPosition=2
+
+**Asia Shares Under Threat as Futures Fall Early**\
+`Asian share markets looked set for a rocky start on Monday as U.S. stock futures took an early spill amid fears the global shutdown for the coronavirus could last for months, doing untold harm to economies.`\
+https://nytimes.com/reuters/2020/03/29/business/29reuters-global-markets.html?searchResultPosition=3
+
 **A City Hunkered Down to Survive an Outbreak. That Helped in a Tornado, Too.**\
 `Jonesboro, Ark., came through a devastating tornado without any deaths, partly because businesses were closed and people were sheltered at home from the coronavirus.`\
-https://nytimes.com/2020/03/29/us/tornado-coronavirus-arkansas.html?searchResultPosition=1
+https://nytimes.com/2020/03/29/us/tornado-coronavirus-arkansas.html?searchResultPosition=4
 
 **Coronavirus Slowdown in Seattle Suggests Restrictions Are Working**\
 `Officials in Washington State worry that their gains are precarious, but they see evidence that containment strategies have lowered the rate of virus transmission.`\
-https://nytimes.com/2020/03/29/us/seattle-washington-state-coronavirus-transmission-rate.html?searchResultPosition=2
+https://nytimes.com/2020/03/29/us/seattle-washington-state-coronavirus-transmission-rate.html?searchResultPosition=5
 
 **John Prine in Critical Condition With COVID-19 Symptoms**\
 `The family of John Prine says the singer-songwriter is critically ill and has been placed on a ventilator while being treated for COVID-19-type symptoms.`\
-https://nytimes.com/aponline/2020/03/29/us/ap-us-people-john-prine.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/03/29/us/ap-us-people-john-prine.html?searchResultPosition=6
 
 **The Psychological Trauma That Awaits Our Doctors and Nurses**\
 `Don’t underestimate the moral anguish of deciding who gets a ventilator.`\
-https://nytimes.com/2020/03/29/opinion/coronavirus-ventilators-rationing-triage.html?searchResultPosition=4
+https://nytimes.com/2020/03/29/opinion/coronavirus-ventilators-rationing-triage.html?searchResultPosition=7
 
 **Trump Wants Congress to Restore Full Tax Deduction for Meals, Entertainment**\
 `U.S. President Donald Trump called on Congress Sunday to restore the full tax deduction for meals and entertainment in response to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/03/29/us/29reuters-health-coronavirus-taxes.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/03/29/us/29reuters-health-coronavirus-taxes.html?searchResultPosition=8
 
 **Trump Says Extending Coronavirus Guidelines Past Easter to April 30**\
 `U.S. President Donald Trump said on Sunday that he will extend the guidelines aimed at slowing the spread of the coronavirus to April 30, from his original target of Easter on April 12.`\
-https://nytimes.com/reuters/2020/03/29/us/29reuters-health-coronavirus-easter.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/03/29/us/29reuters-health-coronavirus-easter.html?searchResultPosition=9
 
 **Crude Oil Futures Drop at Open on Grim Demand Outlook**\
 `Crude oil benchmarks slumped at the open of electronic trading on Sunday, extending last week's losses as the global coronavirus pandemic worsened and the Saudi Arabia-Russia price war continued unabated.`\
-https://nytimes.com/reuters/2020/03/29/world/europe/29reuters-global-oil.html?searchResultPosition=7
-
-**Trump Is Hurting His Own Re-Election Chances**\
-`Don’t be fooled by snapshot polls.`\
-https://nytimes.com/2020/03/29/opinion/trump-coronavirus-election.html?searchResultPosition=8
-
-**Australia Curbs Gatherings, Locks Down Travelers, in New Coronavirus Measures**\
-`Australia's two most populous states, New South Wales and Victoria, will restrict public gatherings to two people from midnight, state leaders said on Monday, as part of a wave of new measures designed to slow the spread of coronavirus which has infected more than 4,000 across the country.`\
-https://nytimes.com/reuters/2020/03/29/world/asia/29reuters-health-coronavirus-australia.html?searchResultPosition=9
-
-**IS Militants Riot in Eastern Syria Prison, Some Escape**\
-`Islamic State militants rioted inside in a prison in northeastern Syria, wrestling control from guards on an entire floor in the facility while a number of prisoners managed to escape, a Syrian Kurdish official said Sunday. `\
-https://nytimes.com/aponline/2020/03/29/world/middleeast/ap-ml-syria-is-prisoners.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/29/world/europe/29reuters-global-oil.html?searchResultPosition=10
 
