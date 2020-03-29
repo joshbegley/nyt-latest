@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/03/29/world/europe/29reuters-health-coronavirus
 `Canada is not planning for the moment to use troops to help combat a spreading coronavirus outbreak, although the option remains on the table, Prime Minister Justin Trudeau said on Sunday.`\
 https://nytimes.com/reuters/2020/03/29/world/americas/29reuters-health-coronavirus-canada.html?searchResultPosition=3
 
-**Hundreds at Church Flout COVID-19 Gatherings Ban**\
+**Hundreds at Louisiana Church Flout COVID-19 Gatherings Ban**\
 `Hundreds of people flouted Louisiana's COVID-19 ban on gatherings, coming on buses and in personal vehicles to the first of three Sunday services at their church a day after New Orleans police broke up a funeral gathering of about 100 people. `\
 https://nytimes.com/aponline/2020/03/29/us/ap-us-virus-outbreak-louisiana-church-service.html?searchResultPosition=4
 
