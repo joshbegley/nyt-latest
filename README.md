@@ -1,6 +1,6 @@
 **Celebrity Culture Is Burning**\
 `The pandemic has disrupted relations among the masses, the elites and the celebrities who liaise between them.`\
-https://nytimes.com/2020/03/30/arts/30virus-celebrities.html?searchResultPosition=1
+https://nytimes.com/2020/03/30/arts/virus-celebrities.html?searchResultPosition=1
 
 **Red Bull Official Proposes Camp for F1 Drivers Despite Virus**\
 `An official at Formula One team Red Bull has proposed holding a training camp that would expose drivers to the coronavirus so they could build immunity to the disease while the season is suspended.`\
