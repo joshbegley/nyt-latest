@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus
 `China's largest state banks said the impact of restrictions on movement imposed to slow the spread of the coronavirus could pull down asset quality as borrowers struggle to repay loans, though they are likely big enough to weather any fallout.`\
 https://nytimes.com/reuters/2020/03/30/business/30reuters-china-banks-results.html?searchResultPosition=6
 
-**The Latest: Coronavirus Cases in Africa Near 5,000**\
+**The Latest: SKorea Households to Get Financial Giveaways**\
 `The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
 https://nytimes.com/aponline/2020/03/30/business/ap-virus-outbreak-the-latest.html?searchResultPosition=7
 
