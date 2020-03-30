@@ -4,7 +4,7 @@ https://nytimes.com/aponline/2020/03/30/us/ap-us-blackfeet-head-start-embezzleme
 
 **The Medical News Site That Saw the Coronavirus Coming Months Ago**\
 `Stat, started in 2015 by the Red Sox owner John Henry, is drawing four to five times its normal audience. “We were built for this,” one of its editors said.`\
-https://nytimes.com/2020/03/30/business/media/stet-news-boston-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/03/30/business/media/stat-news-boston-coronavirus.html?searchResultPosition=3
 
 **Finding Comfort in the Classics**\
 `Editors and writers on the Books desk — along with colleagues from the newsroom — recommend some time-tested books that offer escape from the present moment.`\
