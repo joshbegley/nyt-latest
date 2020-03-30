@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-cocoa-ivorycoast-c
 `Activity in China's vast manufacturing sector likely remained in contraction in March, though it was set to stabilize slightly from the coronavirus-led collapse that virtually paralyzed the world's second-biggest economy.`\
 https://nytimes.com/reuters/2020/03/30/world/asia/30reuters-china-economy-pmi-poll.html?searchResultPosition=6
 
-**Five Days of Worship That Set a Virus Time Bomb in France**\
+**Special Report: Five Days of Worship That Set a Virus Time Bomb in France**\
 `From the stage of an evangelical superchurch, the leader of the gospel choir kicked off an evening of prayer and preaching: "We're going to celebrate the Lord! Are you feeling the joy tonight?"`\
 https://nytimes.com/reuters/2020/03/30/world/30reuters-health-coronavirus-france-church-specialreport.html?searchResultPosition=7
 
