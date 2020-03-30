@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/03/30/us/30reuters-health-coronavirus-usa-new-o
 `Live updates on stock market and business news during the coronavirus outbreak.`\
 https://nytimes.com/2020/03/30/business/coronavirus-stock-markets-economy.html?searchResultPosition=5
 
-**Coronavirus Live Updates: 200,000 Americans Could Die, Warn Top Health Officials**\
+**Coronavirus Live Updates: 200,000 Americans Could Die, Warns Top Health Officials**\
 `President Trump extended social distancing guidelines to April 30 as cases in the U.S. topped 140,000. The doctors advising him said without any restrictions on movement that more than 1 million Americans could die.`\
 https://nytimes.com/2020/03/30/world/coronavirus-new.html?searchResultPosition=6
 
