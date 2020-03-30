@@ -1,40 +1,40 @@
+**Ukraine Parliament Fails to Appoint New Finance Minister, Approve Revised Budget**\
+`Ukraine's parliament on Monday failed to gather enough votes to approve the appointment of a new finance minister or approve an emergency budget in response to the coronavirus epidemic. `\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-ukraine-politics-minister.html?searchResultPosition=1
+
+**UK Banks Could Review 2020 Dividends Due to Pandemic: Trade Body**\
+`Britain's banks are likely to want to review their dividend plans for 2020 given the impact of coronavirus on the economy, banking industry body UK Finance said on Monday.`\
+https://nytimes.com/reuters/2020/03/30/us/30reuters-health-coronavirus-banks-dividends.html?searchResultPosition=2
+
+**IAG Says British Airways Extends Credit Facility**\
+`British Airways has extended its revolving credit facility by one year to June 2021, with $1.38 billion currently available under it, giving the carrier some flesh to weather out hardships due to the coronavirus crisis, its parent company IAG said on Monday.`\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-british-airways-credit-facility.html?searchResultPosition=3
+
+**UK's Prince Charles, 71, Out of Self-Isolation and in Good Health**\
+`British heir-to-the-throne Prince Charles, who had tested positive for coronavirus, is out of self-isolation after seven days and is in good health, his spokesman said on Monday.`\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-britain-charles.html?searchResultPosition=4
+
+**Navy Hospital Ship Set to Arrive in NYC Harbor**\
+`A Navy hospital ship with 1,000 bedsis scheduled to arrive Monday morning in New York Harbor to help relieve the coronavirus crisis gripping the city's hospitals. `\
+https://nytimes.com/aponline/2020/03/30/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=5
+
+**Fiat Chrysler Looks to Resume Some Italian Production Next Week: Union**\
+`Fiat Chrysler (FCA) is looking to resume some vehicle production from next week at three plants in Italy if it gets the green light from the government, a union representative said on Monday.`\
+https://nytimes.com/reuters/2020/03/30/business/30reuters-health-coronavirus-italy-fiat-chrysler.html?searchResultPosition=6
+
+**Johnson & Johnson Says Testing of Coronavirus Vaccine to Begin by September**\
+`Johnson & Johnson said on Monday human testing of its experimental vaccine for the coronavirus would begin by September and that it could be available for emergency use authorization in early 2021. `\
+https://nytimes.com/reuters/2020/03/30/us/30reuters-health-coronavirus-johnson-johnson.html?searchResultPosition=7
+
+**Tokyo Olympics to Start on July 23, 2021**\
+`The Games were postponed for a year in response to widespread pressure, and gives athletes a firm date as they recalibrate their training schedules.`\
+https://nytimes.com/2020/03/30/sports/tokyo-olympics-date-coronavirus.html?searchResultPosition=8
+
 **Boat Does Doughnuts After Hitting Wave, Throws Man Overboard**\
 `A boat that started doing doughnuts after hitting a wave in the Potomac River tossed the driver overboard.`\
-https://nytimes.com/aponline/2020/03/30/us/politics/ap-us-odd-boat-doughnuts.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/03/30/us/politics/ap-us-odd-boat-doughnuts.html?searchResultPosition=9
 
 **Tokyo Governor Asks Residents to Stay Away From Bars to Slow Coronavirus Spread**\
 `Tokyo Governor Yuriko Koike on Monday asked residents to stay away from bars and music venues, stepping up her call for people to cut back on unnecessary travel as Japan's capital braces for a rise in coronavirus infections.`\
-https://nytimes.com/reuters/2020/03/30/world/asia/30reuters-health-coronavirus-japan-tokyo.html?searchResultPosition=2
-
-**German Experts Say Growth Rebound Could Be Relatively Quick**\
-`A group of leading economists say Germany, Europe's largest economy, will suffer a deep slump in the first half of this year but should rebound relatively quickly from the disruption of the virus outbreak. `\
-https://nytimes.com/aponline/2020/03/30/business/ap-eu-europe-economy.html?searchResultPosition=3
-
-**Word + Quiz: adjutant**\
-`This word has appeared in eight articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/03/30/learning/word-quiz-adjutant.html?searchResultPosition=4
-
-**Fear on Front Lines as Hospital Staff Face Threats, Stigma Over Coronavirus**\
-`Janitor Ritchie Estabillo was on his way to work when he was confronted by five men who poured bleach over his face, one of a growing number of hospital staff suffering abuse in the Philippines amid panic over coronavirus infections.`\
-https://nytimes.com/reuters/2020/03/30/world/asia/30reuters-health-coronavirus-medics.html?searchResultPosition=5
-
-**Saudi, UAE Businesses Battle Cash Crunch Despite Anti-Coronavirus Stimulus**\
-`Saudi Arabia and the United Arab Emirates are spending tens of billions to prop up their economies during the coronavirus crisis and oil price slump but the scaling back of state projects is blunting the impact.`\
-https://nytimes.com/reuters/2020/03/30/world/middleeast/30reuters-health-coronavirus-gulf-economy.html?searchResultPosition=6
-
-**China Will Step Up Prevention and Control of Asymptomatic Coronavirus Cases**\
-`China will step up prevention and control of asymptomatic coronavirus cases, state media reported on Monday, quoting a meeting chaired by Premier Li Keqiang.`\
-https://nytimes.com/reuters/2020/03/30/world/asia/30reuters-health-coronavirus-china-li.html?searchResultPosition=7
-
-**Face Mask Rule Could Help When Unwinding Lockdown: German Health Ministry**\
-`An obligation for the general public to wear masks may have a role to play when Germany starts unwinding the lockdown measures that are currently in place to slow the spread of the coronavirus epidemic, a health ministry spokesman said.`\
-https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-germany-austria.html?searchResultPosition=8
-
-**Norway Says Its Economy May Contract 4% This Year**\
-`The Norwegian mainland economy could contract by as must as 4% in 2020, twice the level predicted last week, as the coronavirus outbreak continues to paralyze activity, the finance ministry wrote in a letter to parliament on Monday.`\
-https://nytimes.com/reuters/2020/03/30/business/30reuters-health-coronavirus-norway-economy.html?searchResultPosition=9
-
-**Europe's Economic Response to Epidemic Must Be Quick: EU Exec**\
-`Europe's economic response to the coronavirus epidemic has to based on options on which all countries agree and which can be deployed quickly, European Commission spokesman Eric Mamert said on Monday, effectively ruling out joint debt issuance.`\
-https://nytimes.com/reuters/2020/03/30/us/30reuters-health-coronavirus-eurozone-options.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/30/world/asia/30reuters-health-coronavirus-japan-tokyo.html?searchResultPosition=10
 
