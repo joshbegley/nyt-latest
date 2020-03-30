@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/03/29/world/asia/29reuters-qantas-airbus-pilots
 https://nytimes.com/reuters/2020/03/29/business/29reuters-health-coronavirus-toyota.html?searchResultPosition=3
 
 **Vietnam PM Asks Major Cities to Prepare for Lockdown to Stop Virus**\
-`Vietnam's prime minister has asked major cities to prepare for possible lockdowns to stop the spread of the coronavirus as the number of confirmed cases in the Southeast Asian country almost reached 200, a government statement said on Monday.  `\
+`Vietnam's prime minister on Monday asked major cities to prepare for possible lockdowns to stop the spread of coronavirus as the number of confirmed cases in the Southeast Asian country reached nearly 200.`\
 https://nytimes.com/reuters/2020/03/29/world/asia/29reuters-heatlh-coronavirus-vietnam.html?searchResultPosition=4
 
 **Guatemala to Tap $26 Million From Fund to Help Poor Amid Coronavirus Crisis**\
