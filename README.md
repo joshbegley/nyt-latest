@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/03/30/world/asia/30reuters-health-coronavirus-a
 https://nytimes.com/reuters/2020/03/30/world/asia/30reuters-health-coronavirus-china-toll.html?searchResultPosition=5
 
 **Your Monday Briefing**\
-`Coronavirus, Social distancing, Sweden: Here’s what you need to know.`\
+`Coronavirus, social distancing, Sweden: Here’s what you need to know.`\
 https://nytimes.com/2020/03/30/briefing/coronavirus-social-distancing-sweden.html?searchResultPosition=6
 
 **South Korea's Emergency Exercise in December Facilitated Coronavirus Testing, Containment**\
