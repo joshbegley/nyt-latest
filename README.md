@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/03/29/world/asia/29reuters-health-coronavirus-c
 https://nytimes.com/reuters/2020/03/29/sports/olympics/29reuters-health-coronavirus-olympics-australia.html?searchResultPosition=9
 
 **Taiwan Central Bank Says Still Room for Further Interest Rate Cuts**\
-`There is room for further interest rate cuts, but they will not be reduced to zero or into negative territory, Taiwan central bank governor Yang Chin-long told parliament on Monday.`\
+`There is room for more interest rate cuts in Taiwan, but they will not be reduced to zero or into negative territory, and the government will offer more funds for small- and medium-sized companies if needed, its central bank said on Monday.`\
 https://nytimes.com/reuters/2020/03/29/world/asia/29reuters-health-coronavirus-taiwan-economy.html?searchResultPosition=10
 
