@@ -1,36 +1,36 @@
-**Israel to Use Computer Analysis to Find Likely Coronavirus Carriers**\
-`Israel's defense ministry plans to use software that analyses data gathered from mobile phones - produced, according to Israeli media, by the spyware firm NSO - to help locate likely carriers of the coronavirus in order to test them.`\
-https://nytimes.com/reuters/2020/03/30/world/middleeast/30reuters-health-coronavirus-israel-tracking.html?searchResultPosition=2
+**Trump Administration Rules Gun Shops 'Essential' Amid Virus**\
+`The Trump administration has ruled that gun shops are considered “essential” businesses that should remain open as other businesses are closed to try to stop the spread of coronavirus.`\
+https://nytimes.com/aponline/2020/03/30/us/politics/ap-us-virus-outbreak-guns.html?searchResultPosition=2
 
-**California COVID-19 Hospitalizations Double in Four Days: Governor**\
-`California Governor Gavin Newsom said on Monday that the number of COVID-19 hospitalizations in the state had nearly doubled over the past four days and the number of ICU patients tripled during that time. `\
-https://nytimes.com/reuters/2020/03/30/us/30reuters-health-coronavirus-usa-california.html?searchResultPosition=3
+**Hive Mind of Makers Rises to Meet Pandemic**\
+`Tinkerers, sewers and scientists bring their ideas and 3-D printers to bear on the shortage of medical supplies.`\
+https://nytimes.com/2020/03/30/health/coronavirus-innovators.html?searchResultPosition=3
 
-**New York's Cuomo Pleads for Doctors, Nurses From Other States to Aid Its Hospitals**\
-`New York Governor Andrew Cuomo called on Monday for healthcare workers elsewhere to help the state's overwhelmed hospitals battle the coronavirus and made a plea for bipartisanship and "partnership" with U.S. President Donald Trump.`\
-https://nytimes.com/reuters/2020/03/30/us/30reuters-health-coronavirus-usa-new-york.html?searchResultPosition=4
+**Turkey's Coronavirus Deaths Up to 168, With 10,827 Total Cases: Minister**\
+`Turkey's deaths from the new coronavirus increased by 37 to 168 on Monday, as the number of confirmed cases rose by 1,610 to 10,827, Health Minister Fahrettin Koca said.`\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-turkey-toll.html?searchResultPosition=4
 
-**Abortion Providers in Ohio Aim to Block Coronavirus-Related Curbs**\
-`Abortion providers across Ohio on Monday asked a federal court to block state officials from curbing abortions as part of an order canceling "non-essential" surgeries and procedures during the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/03/30/us/30reuters-health-coronavirus-abortion.html?searchResultPosition=5
+**Closing Prices for Crude Oil, Gold and Other Commodities**\
+`Benchmark crude oil fell $1.42 to close at $20.09 a barrel Monday. Brent crude oil, the international standard, fell $2.17 to $22.76 a barrel. `\
+https://nytimes.com/aponline/2020/03/30/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=5
 
-**U.S. CDC Reports 140,904 Coronavirus Cases, 2,405 Deaths**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Monday reported 140,904 cases of coronavirus, and said the number of deaths had risen to 2,405.`\
-https://nytimes.com/reuters/2020/03/30/us/30reuters-health-coronavirus-usa-cdc.html?searchResultPosition=6
+**Coronavirus and Sex: Questions and Answers**\
+`Some of us are mating in actual captivity. Some of us not at all. The pandemic raises lots of issues around safe intimate physical contact, and what it may look like in the future.`\
+https://nytimes.com/2020/03/30/style/sex-coronavirus-questions-answers.html?searchResultPosition=6
 
-**The Weeknd’s ‘After Hours’ Earns the Year’s Biggest Debut Week**\
-`The album had 221 million streams and sold 275,000 copies via a variety of bundles with merchandise and tickets to a tour that may have to be postponed.`\
-https://nytimes.com/2020/03/30/arts/music/the-weeknd-after-hours-billboard.html?searchResultPosition=7
+**European Researchers Retrofit Snorkel Masks for Coronavirus Fight**\
+`Researchers in Europe have been converting low-cost snorkel masks into respirators to treat patients or protection for medical workers battling to contain the coronavirus outbreak that has stretched healthcare resources.`\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-czech-snorkel-masks.html?searchResultPosition=7
 
-**Coronavirus Hits Hundreds of U.S. Police Amid Protective Gear Shortages**\
-`When nine police officers showed up to make an arrest near Melrose Avenue in the Bronx last Wednesday, none wore a mask or gloves to protect them from coronavirus.`\
-https://nytimes.com/reuters/2020/03/30/us/30reuters-health-coronavirus-usa-police.html?searchResultPosition=8
+**What Are My Obligations if I’m a Doctor Who Is High Risk?**\
+`The magazine’s Ethicist columnist on how a physician should balance treating patients against protecting himself during the coronavirus pandemic — and more.`\
+https://nytimes.com/2020/03/30/magazine/coronavirus-medical-ethics.html?searchResultPosition=8
 
-**Britain Says Need for Global 'Lessons Learned' Inquiry Into Pandemic**\
-`Britain said on Monday that there should be a 'lessons learned' inquiry led by the World Health Organization into the coronavirus pandemic, responding to reports that the government was angry with China over the origins of the outbreak. `\
-https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-britain-china.html?searchResultPosition=9
+**UK Hospital Admissions Have Not Accelerated, Rising by 1,000 a Day: Chief Scientific Adviser**\
+`Admissions into British hospitals are not accelerating and are rising by around 1,000 per day, the government's Chief Scientific Adviser Patrick Vallance said on Monday.`\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-britain-hospitals.html?searchResultPosition=9
 
-**Virus Soars Among Ultra-Orthodox Jews as Many Flout Israel’s Rules**\
-`Failure to comply with government restrictions is causing the coronavirus to spread in ultra-Orthodox communities up to eight times faster than elsewhere in Israel.`\
-https://nytimes.com/2020/03/30/world/middleeast/30-virus-israel-ultra-orthodox.html?searchResultPosition=10
+**UK Chief Scientist: Expect Hospital Admissions to Fall as Cases Flatten**\
+`As the number of cases of coronavirus in Britain flattens, the number of people needing hospital admission should fall, the government's Chief Scientific Adviser Patrick Vallance said on Monday.`\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-britain-vallance.html?searchResultPosition=10
 
