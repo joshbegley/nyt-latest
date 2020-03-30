@@ -1,8 +1,8 @@
-**Keep It Simple, Albany. This Is No Time for Budget Games.**\
-`Governor Cuomo and state lawmakers should pass a streamlined budget and fight their policy battles another day.`\
-https://nytimes.com/2020/03/30/opinion/new-york-budget-covid.html?searchResultPosition=9
+**Trump’s Virus Defense Is Often an Attack, and the Target Is Often a Woman**\
+`Now part of the long list of women the president has insulted: a governor, a reporter, the head of General Motors and, of course, the House speaker.`\
+https://nytimes.com/2020/03/30/us/politics/trump-women-coronavirus.html?searchResultPosition=9
 
-**Judge Dismisses Chemours Lawsuit Against DuPont**\
-`A Delaware judge has granted the DuPont Co.'s request to dismiss a lawsuit alleging that it massively downplayed the cost of environmental liabilities imposed on spinoff company Chemours.`\
-https://nytimes.com/aponline/2020/03/30/business/ap-us-chemours-dupont-lawsuit.html?searchResultPosition=10
+**Listen to the Call: Bullock and Trump Discuss Testing**\
+`Gov. Steve Bullock of Montana discussed the difficulty of getting access to coronavirus tests on a conference call with President Trump and other governors.`\
+https://nytimes.com/video/us/politics/100000007062835/coronavirus-test-kits.html?searchResultPosition=10
 
