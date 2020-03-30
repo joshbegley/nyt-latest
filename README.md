@@ -1,36 +1,36 @@
-**Texas Business Activity Falls Off the Coronavirus Cliff**\
-`Business conditions in Texas, the second-biggest U.S. state by economic output, deteriorated precipitously this month as the coronavirus pandemic slowed both supply and demand for a wide range of industries, surveys conducted by the Dallas Federal Reserve Bank show. `\
-https://nytimes.com/reuters/2020/03/30/us/30reuters-health-coronavirus-fed-texas.html?searchResultPosition=2
+**Dollar May Be Set for Another Damaging Bout of Strength**\
+`If the 2008 financial crisis is any guide, world markets - which have barely had time to recover from the dollar's 9% surge in mid-March - may be set for another damaging bout of strength in the greenback.`\
+https://nytimes.com/reuters/2020/03/30/business/30reuters-health-coronavirus-dollar-outlook-analysis.html?searchResultPosition=2
 
-**After Pandemic Hoarding, Belgium Ends Supermarket Discounts Ban**\
-`Belgium will end a two-week ban on supermarket promotions and discounts designed to discourage panic-buying after complaints that consumers were facing higher prices at a time of economic hardship due to the coronavirus.`\
-https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-belgium-retail.html?searchResultPosition=3
+**UK Bus Companies to Be Promised Coronavirus Bailout This Week: FT**\
+`UK Transport Minister Grant Shapps will offer millions of pounds to bus companies this week in the latest bailout by the government since the start of the coronavirus pandemic, the Financial Times reported on Monday.`\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-britain-transportation.html?searchResultPosition=3
 
-**Reid Promotes Probe, Re-Vote Over Post-Ballot Changes to CBA**\
-`Free agent safety Eric Reid wants the NFL's new collective bargaining agreement invalidated over language added following ratification of the pact earlier this month.`\
-https://nytimes.com/aponline/2020/03/30/sports/football/ap-fbn-reid-cba-re-vote.html?searchResultPosition=4
+**Investors Look Past UK Rating Downgrade but Flag Risks Ahead**\
+`Britain's finances put it among the most vulnerable major economies in the face of the coronavirus crisis, investors warned on Monday, even as markets appeared to look past a  credit rating downgrade before a splurge in state spending.`\
+https://nytimes.com/reuters/2020/03/30/business/30reuters-britain-ratings-markets.html?searchResultPosition=4
 
-**N.Y. Hospitals Face $400 Million in Cuts Even as Virus Battle Rages**\
-`State lawmakers said that slashing hospital budgets to rein in Medicaid costs while the coronavirus is spreading is “cruel, inhumane and unacceptable.”`\
-https://nytimes.com/2020/03/30/nyregion/coronavirus-hospitals-medicaid-budget.html?searchResultPosition=5
+**IMF Working With Georgia on Additional Financing to Combat Pandemic**\
+`The International Monetary Fund on Monday said it was working closely with authorities in Georgia to provide additional financing for the South Caucasus country as it works to cushion the human and economic impact of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-georgia-imf.html?searchResultPosition=5
 
-**U.S. Markets Watchdog Clayton Says SEC Should Not Ban Short-Selling of Shares**\
-`The head of the U.S. Securities and Exchange Commission said on Monday that it should not ban short-selling of shares, amid speculation on further measures the agency might take to arrest a market rout that stems from fears the coronavirus will spark a global recession.`\
-https://nytimes.com/reuters/2020/03/30/business/30reuters-health-coronavirus-sec-shortselling.html?searchResultPosition=6
+**G20 Ministers Vow to Focus on Free, Fair Trade in Pandemic Response**\
+`Trade ministers from the Group of 20 major economies on Monday agreed to step up cooperation and coordination to ensure the continued flow of vital medical supplies and equipment and other essentials in the face of the rapidly spreading coronavirus.`\
+https://nytimes.com/reuters/2020/03/30/world/americas/30reuters-health-coronavirus-g20-statement.html?searchResultPosition=6
 
-**Coronavirus Drives U.S. March Auto Sales Off a Cliff**\
-`U.S. new vehicle sales likely drove off a cliff in March as the coronavirus pandemic pounded consumer confidence and shuttered dealerships across much of the country, and sales are likely to take a further beating in April as social distancing guidelines remain in place. `\
-https://nytimes.com/reuters/2020/03/30/business/30reuters-usa-autos-sales.html?searchResultPosition=7
+**Short-Term Funding Crunch Pushes European Companies Into Bonds**\
+`A slew of European corporate bond issues over the past week have brought some cheer to shell-shocked markets, but a key reason for the rush may be more concerning: A scant commercial paper market.`\
+https://nytimes.com/reuters/2020/03/30/us/30reuters-health-coronavirus-commercialpaper.html?searchResultPosition=7
 
-**France's Carrefour Gives Masks After Staff Walkout Over Coronavirus**\
-`Staff working in a supermarket of French retailer Carrefour in the southern city of Vitrolles will receive protective masks after some employees walked out over health risks associated with the coronavirus, a union said on Monday.`\
-https://nytimes.com/reuters/2020/03/30/business/30reuters-health-coronavirus-france-carrefour.html?searchResultPosition=8
+**G20 Finance Officials to Speak Again on Tuesday About Coronavirus**\
+`Finance ministers and central bankers from the Group of 20 major economies will convene via video conference on Tuesday, for the second time in just over a week, to coordinate their response to the coronavirus pandemic, three sources told Reuters.`\
+https://nytimes.com/reuters/2020/03/30/world/middleeast/30reuters-health-coronavirus-g20-finance.html?searchResultPosition=8
 
-**Disney Chairman Bob Iger to Forgo Salary Amid Virus Crisis**\
-`Walt Disney Inc Executive Chairman Bob Iger will forgo his salary and newly named Chief Executive Officer Bob Chapek will take a 50% pay cut amid the coronavirus crisis, according to an internal email from Chapek.`\
-https://nytimes.com/reuters/2020/03/30/business/30reuters-health-coronavirus-walt-disney.html?searchResultPosition=9
+**In The Pits: iRacing Is Fun but Won't Carry Teams for Long**\
+`Virtual racing has been the small saving grace for motorsports since the coronavirus pandemic brought nearly everything to a halt. `\
+https://nytimes.com/aponline/2020/03/30/sports/ap-car-in-the-pits-.html?searchResultPosition=9
 
-**The Doctor’s Symptoms Weren’t Typical. Was She Sick Enough to Stay Home?**\
-`On her run, she finished a six-mile loop with no trouble, but she felt a little off: a bit of chest tightness, a headache. Was this coronavirus?`\
-https://nytimes.com/2020/03/30/magazine/covid-19-symptoms-doctor.html?searchResultPosition=10
+**As MLB Ponders Post-Virus Season, Players Worry About Health**\
+`By The Associated Press`\
+https://nytimes.com/aponline/2020/03/30/sports/baseball/ap-bbo-virus-outbreak-baseball.html?searchResultPosition=10
 
