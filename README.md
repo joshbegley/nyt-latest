@@ -2,8 +2,8 @@
 `Japan's Shionogi & Co, creator of the blockbuster cholesterol treatment Crestor, said on Monday it would tie up with Ping An Insurance Group Co of China, selling a 2.05% voting stake for 33.53 billion yen ($311 million).`\
 https://nytimes.com/reuters/2020/03/30/world/asia/30reuters-shionogi-ping-an-of-china.html?searchResultPosition=1
 
-**Singapore Court Dismisses Challenges to Law That Criminalizes Gay Sex, Lawyers Say**\
-`Singapore's highest court upheld a law that criminalizes sex between men, according to two lawyers involved in the hearings, dismissing three separate appeals that argued that the legislation was unconstitutional.`\
+**Singapore Court Upholds Law That Criminalizes Gay Sex**\
+`Singapore's high court on Monday upheld a law that criminalizes sex between men, dismissing three appeals that argued it was unconstitutional, although prosecutions under the law are rare. `\
 https://nytimes.com/reuters/2020/03/30/world/asia/30reuters-singapore-lgbt.html?searchResultPosition=2
 
 **Japan Has No Plan to Declare State of Emergency April 1: Suga**\
