@@ -1,40 +1,40 @@
+**European Shares Retreat as Coronavirus Fears Intensify**\
+`European stock markets headed lower on Monday, as fears about the economic hit from the coronavirus pandemic intensified with several nations extending near-total lockdowns.`\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-europe-stocks.html?searchResultPosition=1
+
+**Austria to Make Basic Face Masks Compulsory in Supermarkets**\
+`Austria will require the public to wear basic face masks in supermarkets, where they will be handed out probably from Wednesday in a bid to slow the spread of the coronavirus, Chancellor Sebastian Kurz said on Monday.`\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-austria.html?searchResultPosition=2
+
+**In Jerusalem, a Palestinian Family Under Coronavirus Lockdown**\
+`A Palestinian English teacher, Jizelle Sara, faces a double challenge while observing a partial lockdown in her Jerusalem home during the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/03/30/world/middleeast/30reuters-health-coronavirus-jerusalem-family.html?searchResultPosition=3
+
+**Ukraine Government Plans to Almost Double Borrowings in 2020**\
+`Ukraine plans to increase state borrowings to 642.7 bln hryvnias ($22.8 bln) in 2020 from an earlier projected 365.2 bln hryvnias to cover the larger-than-expected budget deficit and debt payments, the government said on Monday.`\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-ukraine-economy-borrowings.html?searchResultPosition=4
+
+**UK PM Johnson's Senior Adviser Cummings Has Coronavirus Symptoms: Daily Mail**\
+`British Prime Minister Boris Johnson's senior adviser, Dominic Cummings, has symptoms of coronavirus and is self-isolating at home, the Daily Mail's political editor said on Monday.`\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-britain-cummings.html?searchResultPosition=5
+
+**Over Half of Britons See Recession Coming, Some Fear Depression: YouGov**\
+`More than half of people in Britain expect the country's economy to be in recession within a year and one in five fear a depression, a poll by YouGov showed on Monday.`\
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-britain-confidence.html?searchResultPosition=6
+
+**2020 Watch: Will Trump Lead by Addition or Subtraction?**\
+`Presidential politics move fast. What we're watching heading into a new week on the 2020 campaign:`\
+https://nytimes.com/aponline/2020/03/30/us/politics/ap-us-election-2020-watch.html?searchResultPosition=7
+
+**How Much Do You Know About Bangladesh?**\
+`Can you find Bangladesh on a map? What else do you know about this South Asian nation with a population of about 165 million people?`\
+https://nytimes.com/interactive/2020/03/30/learning/Bangladesh-Geography-Quiz.html?searchResultPosition=8
+
 **George Soros Gives 1 Million Euros to Budapest's Coronavirus Fight**\
 `George Soros, the 89-year-old billionaire financier, said on Monday his Open Society Foundations would contribute 1 million euros to Budapest's fight against coronavirus.`\
-https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-soros-hungary.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-soros-hungary.html?searchResultPosition=9
 
 **Recession in Germany Unavoidable Due to Coronavirus Outbreak: Economic Advisors**\
 `The coronavirus outbreak has made a recession in Europe's largest economy inevitable in the first half of this year, Germany's council of economic advisers said on Monday, predicting that output could shrink by up to 5.4% this year.`\
-https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-germany-economy.html?searchResultPosition=2
-
-**Euro Zone Sentiment in Record Plunge as Coronavirus Strikes**\
-`Euro zone sentiment suffered its steepest ever monthly decline in March as the coronavirus led to declining confidence among consumers and all sectors of the economy, in many cases even before crippling lockdowns were imposed.`\
-https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-eurozone-economy-sentiment.html?searchResultPosition=3
-
-**IOC Member Malago Predicts Delayed Games Will Be Held in July Next Year**\
-`The head of Italy's Olympic Committee (CONI) believes that the Tokyo Games, postponed by a year because of a coronavirus pandemic, will start on July 23, 2021, he said in a television interview.`\
-https://nytimes.com/reuters/2020/03/30/sports/soccer/30reuters-health-coroanvirus-olympics-italy.html?searchResultPosition=4
-
-**Coronavirus in N.Y.C.: The Latest**\
-`"Thousands of people will pass away," the governor warned as the number of deaths statewide verged on 1,000.`\
-https://nytimes.com/2020/03/30/nyregion/coronavirus-nyc.html?searchResultPosition=5
-
-**Thailand Plans Bigger New Stimulus Package to Ease Virus Impact: Finance Minister**\
-`Thailand's new stimulus package to cope with the impact of the coronavirus outbreak should be "bigger" than those already introduced, the country's finance minister said on Monday.`\
-https://nytimes.com/reuters/2020/03/30/world/asia/30reuters-health-coronavirus-thailand-economy.html?searchResultPosition=6
-
-**Trump Extends US Virus Restrictions; Moscow Goes on Lockdown**\
-`In an abrupt turnaround, President Donald Trump extended lockdown measures across the United States as deaths in New York alone from the new coronavirus passed 1,000. Moscow went on its own lockdown Monday as all of Russia braced for sweeping nationwide restrictions.`\
-https://nytimes.com/aponline/2020/03/30/business/ap-virus-outbreak.html?searchResultPosition=7
-
-**Exclusive: American Airlines in Talks to Hire Millstein for Aid Advice-Sources**\
-`American Airlines Group Inc is in advanced talks to hire Guggenheim Securities co-chairman James Millstein for advice on tapping a $50 billion industry relief package available from the U.S. Treasury Department to cope with the coronavirus pandemic, people familiar with the matter said.`\
-https://nytimes.com/reuters/2020/03/30/business/30reuters-health-coronavirus-american-airline-millstein-exclusiv.html?searchResultPosition=8
-
-**Let’s Turn Hotels into Quarantine Quarters**\
-`Asking the mildly ill to self-isolate at home only endangers other people in their households.`\
-https://nytimes.com/2020/03/30/opinion/coronavirus-new-york-quarantine.html?searchResultPosition=9
-
-**Mercedes F1 Team Helps to Develop Breathing Aid in Pandemic**\
-`Formula One team Mercedes has helped to develop a breathing aid that could keep coronavirus patients out of intensive care and ease some pressure on Britain’s strained health service.`\
-https://nytimes.com/aponline/2020/03/30/sports/ap-car-virus-outbreak-f1-mercedes.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/03/30/world/europe/30reuters-health-coronavirus-germany-economy.html?searchResultPosition=10
 
