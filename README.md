@@ -1,4 +1,4 @@
-**Are You Home Alone? We Are Too.**\
-`Living by yourself brings its own set of challenges when you’re stuck inside.`\
-https://nytimes.com/2020/03/31/style/living-alone-coronavirus.html?searchResultPosition=10
+**Florida Governor Loses Latest Bid to Curtail Felon Voting**\
+`Florida officials have lost their latest bid to enforce a state law denying the right to vote for felons who have not paid all court fines and fees. `\
+https://nytimes.com/aponline/2020/03/31/us/ap-us-felons-voting-florida.html?searchResultPosition=10
 
