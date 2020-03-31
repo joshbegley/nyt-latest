@@ -1,4 +1,4 @@
-**Exclusive: American Airlines to Retire More Jets, Including Vintage 737s, in Coronavirus Downturn**\
-`American Airlines Group Inc is set to sharply increase the number of jets it is planning to retire beyond its announced plans as it accelerates a fleet transformation to respond to the coronavirus crisis, people familiar with the matter said.`\
-https://nytimes.com/reuters/2020/03/31/business/31reuters-health-coronavirus-american-airlines-fleet-exclusive.html?searchResultPosition=10
+**U.S. Proposes Minimum Air Service Rules for Airlines Receiving Assistance**\
+`The U.S. Transportation Department on Tuesday proposed minimum flight requirements for passenger airlines receiving aid from the government's $50 billion grant and loan fund.`\
+https://nytimes.com/reuters/2020/03/31/business/31reuters-health-coronavirus-usa-airlines.html?searchResultPosition=10
 
