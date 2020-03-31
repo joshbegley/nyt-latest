@@ -1,4 +1,4 @@
-**Viral Virus Briefing: Where Science Meets All Things Trump**\
-`For a few moments in the Rose Garden, the coronavirus pandemic is a bucking bronco with President Donald Trump on its back. His arm swings an invisible rope. He seems to be hanging on for dear life.`\
-https://nytimes.com/aponline/2020/03/31/us/politics/ap-us-virus-outbreak-trump-one-briefing.html?searchResultPosition=10
+**Family: Oldest of 6 Killed in Fire Tried to Save Siblings**\
+`The oldest of six siblings killed in a rural house fire in southern Indiana died trying to save the others, the family said.`\
+https://nytimes.com/aponline/2020/03/31/us/ap-us-house-fire-six-dead.html?searchResultPosition=10
 
