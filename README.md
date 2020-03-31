@@ -1,4 +1,4 @@
-**Tunisia Releases 1,420 Prisoners Over Coronavirus**\
-`Tunisia's President Kais Saied on Tuesday ordered the release of 1,420 prisoners in an amnesty to combat the spread of the coronavirus in prisons, a presidency statement said. `\
-https://nytimes.com/reuters/2020/03/31/world/africa/31reuters-health-coronavirus-tunisia.html?searchResultPosition=10
+**Zimbabwe Court Rules Chamisa Not Legitimate Leader of Opposition**\
+`Zimbabwe's Supreme Court on Tuesday declared Nelson Chamisa's leadership of the main opposition MDC was illegitimate and ordered it to hold an election to replace him within three months, potentially weakening an already fractured movement.`\
+https://nytimes.com/reuters/2020/03/31/world/africa/31reuters-zimbabwe-politics.html?searchResultPosition=10
 
