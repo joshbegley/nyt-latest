@@ -1,4 +1,4 @@
-**Sardines and Celery: A Perfect Pairing**\
-`When you tire of sardines on toast, this crunchy salad is a great alternative for the tinned fish.`\
-https://nytimes.com/2020/03/31/dining/celery-salad-coronavirus.html?searchResultPosition=10
+**Crosby, McDavid Favorites Again in NHLPA Annual Poll**\
+`Edmonton Oilers captain Connor McDavid is still regarded as the NHL’s top forward, while peers consider Pittsburgh’s Sidney Crosby the game's most complete player.`\
+https://nytimes.com/aponline/2020/03/31/sports/hockey/ap-hkn-nhlpa-poll.html?searchResultPosition=10
 
