@@ -3,6 +3,6 @@
 https://nytimes.com/reuters/2020/03/31/world/asia/31reuters-health-coronavirus-japan.html?searchResultPosition=9
 
 **China's Huawei Says '19 Sales Up 19% Despite U.S. Sanctions**\
-`Chinese tech giant Huawei said Tuesday its sales rose 19.1% last year over 2018 despite U.S. sanctions that hampered its smartphone and network equipment businesses.`\
+`Chinese tech giant Huawei said Tuesday its sales of smartphones and other products grew by double digits last year despite U.S. sanctions but warned it now faces a “more complicated” global environment.`\
 https://nytimes.com/aponline/2020/03/31/business/bc-china-earns-huawei.html?searchResultPosition=10
 
