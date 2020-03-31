@@ -1,8 +1,8 @@
-**Ecuador Struggles to Collect the Dead as Coronavirus Spreads**\
-`Ecuadorean authorities said on Monday they would improve the collection of corpses, as delays related to the rapid spread of the new coronavirus has left families keeping their loved ones' bodies in their homes for days in some cases. `\
-https://nytimes.com/reuters/2020/03/30/world/americas/30reuters-health-coronavirus-ecuador.html?searchResultPosition=9
+**Australia's New South Wales State Calls End to Brutal Fire Season**\
+`New South Wales, the Australian state most severely affected by last summer's wildfires on Tuesday marked the official close to its worst ever bushfire season, which burned more than 6% of the state's land area and killed 25 people.`\
+https://nytimes.com/reuters/2020/03/30/world/asia/30reuters-australia-bushfires.html?searchResultPosition=9
 
-**Tenor Placido Domingo Feels 'Fine' After Coronavirus**\
-`Tenor Placido Domingo said Monday he is resting at home after catching the new coronavirus. `\
-https://nytimes.com/aponline/2020/03/30/world/americas/ap-lt-virus-outbreak-mexico-placido-domingo.html?searchResultPosition=10
+**In Scrappy Cambodian Casino Town, Chinese Plan Future Beyond Coronavirus**\
+`When casino owner Kang Qiang looks out the window of his 20th floor office in this city on the remote Cambodian coast, he sees construction cranes sitting idle.`\
+https://nytimes.com/reuters/2020/03/30/world/asia/30reuters-health-coronavirus-sihanoukville-widerimage.html?searchResultPosition=10
 
