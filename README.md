@@ -1,4 +1,4 @@
-**Coronavirus, Masks, Wildlife Safari: Your Tuesday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/03/31/briefing/coronavirus-masks-wildlife-safari.html?searchResultPosition=10
+**Police: Suspect Rode Bike to Scene, Shouted 'I Killed Him'**\
+`A South Carolina man suspected of shooting and killing another man after a dispute tried to ride his bicycle into the crime scene shouting, “I killed him,” police said.`\
+https://nytimes.com/aponline/2020/03/31/us/ap-us-bicycle-confession.html?searchResultPosition=10
 
