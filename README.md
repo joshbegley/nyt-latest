@@ -1,4 +1,4 @@
-**Social Distancing Slowing UK Coronavirus Spread, but Can't Relax Now: Gove**\
-`There are signs that social distancing measures are starting to slow the spread of coronavirus in Britain but that does not mean that the new rules should be relaxed, Cabinet Office Minister Michael Gove said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-britain-distancing.html?searchResultPosition=10
+**Adidas Stops 1 Billion Euros Share Buyback**\
+`Germany's Adidas on Tuesday said it will suspend a 1 billion euros share buyback it had planned for this year as a way to conserve cash after closing its retail outlets in Europe and North America.`\
+https://nytimes.com/reuters/2020/03/31/business/31reuters-health-coronavirus-adidas-buyback.html?searchResultPosition=10
 
