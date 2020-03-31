@@ -1,8 +1,8 @@
-**FIFA Plans Huge New Emergency Fund**\
-`FIFA is drawing up plans to tap its $2.7 billion cash reserve and create an emergency fund to support the ailing soccer industry`\
-https://nytimes.com/2020/03/31/sports/fifa-soccer-emergency-fund.html?searchResultPosition=9
+**New Online Store Offers Help to Shuttered Indie Booksellers**\
+`Andy Hunter, founder of a new online sales outlet for independent booksellers, had seen a crisis building well before the coronavirus pandemic shut down many of the country's stores. `\
+https://nytimes.com/aponline/2020/03/31/business/bc-us-books-indies-online.html?searchResultPosition=9
 
-**Royal No More: Harry and Meghan Start Uncertain New Chapter**\
-`Prince Harry and his wife Meghan officially make the transition Tuesday from senior members of Britain’s royal family to — well, it’s unclear. International celebrities, charity patrons, global influencers?`\
-https://nytimes.com/aponline/2020/03/31/world/europe/ap-eu-britain-harry-and-meghan.html?searchResultPosition=10
+**Swedish Government Says to Increase Virus Testing**\
+`Sweden will launch a national testing regime to help fight the spread of the coronavirus with the focus initially on health workers and others in key jobs, the government said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-sweden-testing.html?searchResultPosition=10
 
