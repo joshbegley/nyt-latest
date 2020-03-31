@@ -1,8 +1,8 @@
-**Parents Feel Virus Shutdowns Leave Disabled Students Behind**\
-`At school, Rose Hayes, 8, works with a team of teachers and therapists trained to help with her genetic condition.`\
-https://nytimes.com/aponline/2020/03/31/us/ap-us-virus-outbreak-special-education.html?searchResultPosition=9
+**Museums Scramble to Document the Pandemic, Even as It Unfolds**\
+`With photographs, field interviews and mass surveys, institutions are trying to preserve information about everyday life during the crisis for future study.`\
+https://nytimes.com/2020/03/31/arts/design/museums-coronavirus-pandemic-artifacts.html?searchResultPosition=9
 
-**US Outlines Plan for Venezuela Transition, Sanctions Relief**\
-`The Trump administration is prepared to lift sanctions on Venezuela in support of a new proposal to form a transitional government representing allies of both Nicolas Maduro and opposition leader Juan Guaido, U.S. officials said.`\
-https://nytimes.com/aponline/2020/03/31/business/bc-us-united-states-venezuela.html?searchResultPosition=10
+**Coronavirus Ended the Screen-Time Debate. Screens Won.**\
+`We’ve tried all sorts of things to stop us from staring at our devices. Digital detoxes. Abstinence. Now? Bring on the Zoom cocktail hour.`\
+https://nytimes.com/2020/03/31/technology/coronavirus-screen-time.html?searchResultPosition=10
 
