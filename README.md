@@ -1,4 +1,4 @@
-**Phillip Anderson, Nobel Laureate in Physics, Dies at 96**\
-`Philip Anderson, a Nobel Prize-winning physicist who expanded the world's understanding of magnetism and superconductivity, has died. He was 96. `\
-https://nytimes.com/aponline/2020/03/31/us/ap-us-obit-philip-anderson.html?searchResultPosition=10
+**Watch Live: Coronavirus Task Force Delivers Update**\
+`President Trump and members of the coronavirus task force are expected to announce projections on the future scope and scale of the virus.`\
+https://nytimes.com/video/us/politics/100000007064550/trump-coronavirus-taskforce.html?searchResultPosition=10
 
