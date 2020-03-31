@@ -1,4 +1,4 @@
-**Kids Under Threat: Virus Hitting Juvenile Detention Centers**\
-`For the tens of thousands of kids locked up in juvenile detention centers and other correctional facilities across America, experts have issued a gloomy warning: The coronavirus is coming. `\
-https://nytimes.com/aponline/2020/03/31/us/ap-us-virus-outbreak-juvenile-offenders.html?searchResultPosition=10
+**Are You Home Alone? We Are Too.**\
+`Living by yourself brings its own set of challenges when you’re stuck inside.`\
+https://nytimes.com/2020/03/31/style/living-alone-coronavirus.html?searchResultPosition=10
 
