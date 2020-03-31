@@ -1,8 +1,8 @@
-**Google Japan Defends Impartiality of Search Results Amid Lockdown Rumors**\
-`Google on Tuesday defended the impartiality of its search results after users in Japan seeking to corroborate rumors of an imminent state of emergency declaration by the government were met with no results on its website. `\
-https://nytimes.com/reuters/2020/03/31/business/31reuters-health-coronavirus-japan-google.html?searchResultPosition=9
+**Spain Plans More Aid for Households, Small Businesses Hit by Coronavirus**\
+`Spain's government was preparing new measures on Tuesday to help households and exempt small firms from social security payments  after business leaders bristled at a tightening of the coronavirus lockdown in Europe's second worst-hit country.`\
+https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-spain.html?searchResultPosition=9
 
-**Microsoft Clarifies Teams Usage Surged 775% in Italy**\
-`Microsoft Corp said it has seen a 775% jump in a month for Teams calling and meeting in Italy, withdrawing an earlier statement that the surge was for its cloud services in regions around the world that enforced social distancing to curb transmission of the coronavirus.`\
-https://nytimes.com/reuters/2020/03/31/business/31reuters-health-coronavirus-microsoft.html?searchResultPosition=10
+**Thailand to Give Free Mobile Data for Those Homebound by Coronavirus**\
+`Thailand will give the public free mobile data as companies initiate work-from-home policies and schools use remote learning amid the coronavirus outbreak, a senior government official said on Tuesday as operators considered investment to expand capacity. `\
+https://nytimes.com/reuters/2020/03/31/world/asia/31reuters-health-coronavirus-thailand-data.html?searchResultPosition=10
 
