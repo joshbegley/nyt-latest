@@ -1,4 +1,4 @@
-**Boy, 5, Found Dead After Mom Left Him on Trail to Seek Help**\
-`The body of a 5-year-old boy was found on an Alaska trail days after he and his mother got lost, and then the mother left him to find help on her own, State Troopers said.`\
-https://nytimes.com/aponline/2020/03/31/us/ap-us-boy-found-dead-on-trail.html?searchResultPosition=10
+**Why This Economic Crisis Differs From the Last One for Women**\
+`Unlike the financial crash of 2008, this downturn will likely lead to more job losses for women, according to new research.`\
+https://nytimes.com/2020/03/31/us/equal-pay-coronavirus-economic-impact.html?searchResultPosition=10
 
