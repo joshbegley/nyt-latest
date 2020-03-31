@@ -1,4 +1,4 @@
-**Medics Infected With Coronavirus in Western Afghanistan Amid Iran Exodus**\
-`Afghan authorities have quarantined 16 health workers, including six doctors, officials said on Tuesday, as Afghans fleeing hard-hit Iran have helped spread the coronavirus in the western border province of Herat.`\
-https://nytimes.com/reuters/2020/03/31/world/asia/31reuters-health-coronavirus-afghanistan.html?searchResultPosition=10
+**A Coronavirus Thriller Was Finished Just Before the Shutdown**\
+`A Canadian filmmaker read the headlines, and a few weeks later a shoot was underway on a story addressing xenophobia and the pandemic. Then film festivals were canceled.`\
+https://nytimes.com/2020/03/31/movies/coronavirus-movie.html?searchResultPosition=10
 
