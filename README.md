@@ -1,8 +1,8 @@
-**Feed the Soul: In Chaotic Times, Gardening Becomes Therapy**\
-`Dig. Plant. Breathe.`\
-https://nytimes.com/aponline/2020/03/31/us/ap-us-virus-outbreak-garden-therapy.html?searchResultPosition=9
+**Google Japan Defends Impartiality of Search Results Amid Lockdown Rumors**\
+`Google on Tuesday defended the impartiality of its search results after users in Japan seeking to corroborate rumors of an imminent state of emergency declaration by the government were met with no results on its website. `\
+https://nytimes.com/reuters/2020/03/31/business/31reuters-health-coronavirus-japan-google.html?searchResultPosition=9
 
-**Tomie dePaola, ‘Strega Nona’ Author and Illustrator, Dies at 85**\
-`Mr. dePaola wrote or illustrated more than 270 books, including his classic story of a grandma witch and her helper, Big Anthony.`\
-https://nytimes.com/2020/03/31/obituaries/tomie-de-paola-dead.html?searchResultPosition=10
+**Microsoft Clarifies Teams Usage Surged 775% in Italy**\
+`Microsoft Corp said it has seen a 775% jump in a month for Teams calling and meeting in Italy, withdrawing an earlier statement that the surge was for its cloud services in regions around the world that enforced social distancing to curb transmission of the coronavirus.`\
+https://nytimes.com/reuters/2020/03/31/business/31reuters-health-coronavirus-microsoft.html?searchResultPosition=10
 
