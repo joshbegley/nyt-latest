@@ -1,8 +1,8 @@
-**BlackRock's Fink Sees Global Economy Recovering Steadily From Coronavirus Hit**\
-`The global economy, which has been battered by the coronavirus outbreak, will recover steadily, in part due to the absence of obstacles usually found in a recovery from a typical financial crises, Larry Fink, chief executive at BlackRock Inc, said in his annual letter to shareholders on Monday.`\
-https://nytimes.com/reuters/2020/03/30/business/30reuters-blackrock-ceo-letter.html?searchResultPosition=9
+**Trump Says Guidelines to Slow Coronavirus Spread May Get Tougher**\
+`U.S. President Donald Trump said on Monday that he may toughen up current guidelines aimed at slowing the spread of the coronavirus, which has killed more than 2000 Americans. `\
+https://nytimes.com/reuters/2020/03/30/us/politics/30reuters-usa-coronavirus-trump-guidance.html?searchResultPosition=9
 
-**G20 Financial Chiefs to Discuss Steps on Virus Tuesday: Japan Finance Minister**\
-`Financial leaders from the Group of 20 major economies will discuss ways on Tuesday to proceed with concrete steps to respond to the coronavirus, Japanese Finance Minister Taro Aso said.`\
-https://nytimes.com/reuters/2020/03/30/world/asia/30reuters-health-coronavirus-g20-japan.html?searchResultPosition=10
+**LendingClub Cuts Approval Rates for High-Risk Borrowers as Coronavirus Spreads**\
+`LendingClub Corp on Monday cut loan approval rates for some high-risk borrowers and increased income and employment verification requirements, in a sign that alternative lenders could pull back from lending as the coronavirus crisis deepens.`\
+https://nytimes.com/reuters/2020/03/30/business/30reuters-health-coronavirus-lendingclub.html?searchResultPosition=10
 
