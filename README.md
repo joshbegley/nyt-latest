@@ -1,4 +1,4 @@
-**U.S. Might Rethink Iran Sanctions in Light of Coronavirus Outbreak: Pompeo**\
-`U.S Secretary of State Mike Pompeo held out the possibility on Tuesday that the United States may consider easing sanctions on Iran and other nations to help fight the coronavirus epidemic but gave no concrete sign it plans to do so.`\
-https://nytimes.com/reuters/2020/03/31/world/middleeast/31reuters-health-coronavirus-iran-usa.html?searchResultPosition=10
+**Decision Time: Quarantine Spells Dilemma for Domestic Workers in Latin America**\
+`When the Chilean government announced a total quarantine last week for the wealthy eastern areas of capital Santiago where cases of coronavirus were most prevalent, Maria De Leon, a 31-year-old nanny, was presented with an unenviable choice. `\
+https://nytimes.com/reuters/2020/03/31/world/americas/31reuters-health-coronavirus-latam-nannies.html?searchResultPosition=10
 
