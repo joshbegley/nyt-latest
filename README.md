@@ -1,4 +1,4 @@
-**Florida Governor Loses Latest Bid to Curtail Felon Voting**\
-`Florida officials have lost their latest bid to enforce a state law denying the right to vote for felons who have not paid all court fines and fees. `\
-https://nytimes.com/aponline/2020/03/31/us/ap-us-felons-voting-florida.html?searchResultPosition=10
+**N.F.L. Plays on Twitter and Brackets for Everything**\
+`New Orleans Saints Coach Sean Payton shared his favorite plays on Twitter, alternative brackets are still getting busted and a Swedish soccer friendly was canceled after bettors swarmed.`\
+https://nytimes.com/2020/03/31/sports/march-madness-bracket-nfl-coronavirus.html?searchResultPosition=10
 
