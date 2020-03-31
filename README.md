@@ -1,8 +1,8 @@
-**Could Do Better: Japan Gently Chided by UN Climate Chief**\
-`The top U.N. climate official on Tuesday chided Japan over its new plan to reduce greenhouse gas emission, which environmental campaigners say shows no real ambition to increase existing efforts.`\
-https://nytimes.com/aponline/2020/03/31/business/bc-eu-climate-japan.html?searchResultPosition=9
+**Indonesia Confirms 114 New Coronavirus Infections, Taking Total to 1,528**\
+`Indonesia confirmed 114 new coronavirus infections on Tuesday, bringing the total to 1,528, a health ministry official said.`\
+https://nytimes.com/reuters/2020/03/31/world/asia/31reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=9
 
-**Coronavirus, Stay-at-Home, Zoom: Your Tuesday Briefing**\
-`Here's what you need to know.`\
-https://nytimes.com/2020/03/31/briefing/coronavirus-stay-at-home-zoom.html?searchResultPosition=10
+**Malaysia's Reported New Coronavirus Cases Rise by 140 to 2,766**\
+`Malaysia reported 140 new coronavirus cases on Tuesday, taking the total to 2,766, with 43 deaths.`\
+https://nytimes.com/reuters/2020/03/31/world/asia/31reuters-health-coronavirus-malaysia.html?searchResultPosition=10
 
