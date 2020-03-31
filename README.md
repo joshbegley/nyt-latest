@@ -1,8 +1,8 @@
-**Number of Confirmed Coronavirus Cases in Germany Rises to 61,913: RKI**\
-`The number of confirmed cases of the coronavirus in Germany has risen to 61,913 and 583 people have died of the disease, statistics from the Robert Koch Institute (RKI) for infectious diseases showed on Tuesday.`\
-https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-germany-cases.html?searchResultPosition=9
+**Japan's GPIF Raises Foreign Bond Allocation Target to 25%**\
+`Japan's Government Pension Investment Fund (GPIF) said on Tuesday it would raise its allocation target for foreign bonds to 25% from the current 15%, marking a shift from unprofitable domestic bonds to foreign assets.`\
+https://nytimes.com/reuters/2020/03/31/business/31reuters-japan-gpif.html?searchResultPosition=9
 
-**Ad Giant WPP Pulls Dividend, Buyback and Outlook**\
-`WPP, the world's biggest advertising company, said it was pulling its dividend and share buyback, and withdrawing its guidance for 2020 after the coronavirus outbreak forced an increasing number of clients to cancel work. `\
-https://nytimes.com/reuters/2020/03/31/business/31reuters-health-coronavirus-wpp.html?searchResultPosition=10
+**Ericsson Seeing No Material Impact From Pandemic: CEO**\
+`Ericsson's top executive Borje Ekholm said on Tuesday the Swedish telecom equipment maker had seen no material impact on its business from the global coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-ericsson.html?searchResultPosition=10
 
