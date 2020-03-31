@@ -1,8 +1,8 @@
-**Apple Supplier Japan Display Finalises Deal to Raise $200 Million From 'Customer'**\
-`Japan Display said on Tuesday it has finalised a deal to raise $200 million from "an overseas customer," which sources have said is Apple.`\
-https://nytimes.com/reuters/2020/03/31/business/31reuters-japan-display-apple.html?searchResultPosition=9
+**Covid-19 Has Closed Stores, but Snake Oil Is Still for Sale**\
+`Pitches for treatments with no scientific proof erode trust and threatens lives.`\
+https://nytimes.com/2020/03/31/opinion/fake-treatment-cure-coronavirus.html?searchResultPosition=9
 
-**Vivendi Closes Sale of 10% Stake in Universal to Tencent Consortium**\
-`home to Taylor Swift and The Beatles - to a Tencent-led consortium, in a deal giving UMG an enterprise value of 30 billion euros ($33 billion).`\
-https://nytimes.com/reuters/2020/03/31/business/31reuters-vivendi-universal.html?searchResultPosition=10
+**Danish Banks Skip Dividends, Share Repurchases After Government Spur**\
+`Several Danish lenders say they have suspended share repurchases and dividend plans for 2019, heeding calls by authorities to ensure adequate liquidity in uncertain times due to the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-denmark-banks.html?searchResultPosition=10
 
