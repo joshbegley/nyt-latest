@@ -1,4 +1,4 @@
-**Italy, Vatican Lower Flags, Observe Silence to Honor Coronavirus Dead**\
-`Italians marked a minute of silence and flags at government buildings were lowered to half mast on Tuesday to honor the thousands of victims of the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-italy-mayors.html?searchResultPosition=10
+**Tunisia Releases 1,420 Prisoners Over Coronavirus**\
+`Tunisia's President Kais Saied on Tuesday ordered the release of 1,420 prisoners in an amnesty to combat the spread of the coronavirus in prisons, a presidency statement said. `\
+https://nytimes.com/reuters/2020/03/31/world/africa/31reuters-health-coronavirus-tunisia.html?searchResultPosition=10
 
