@@ -1,4 +1,4 @@
-**Pelosi Urges Stronger U.S. Federal Response to Coronavirus**\
-`U.S. House of Representatives Speaker Nancy Pelosi on Tuesday urged the Trump administration to do more to implement widespread testing for the coronavirus and deliver critical supplies to combat the outbreak, saying there needed to be a more coordinated response.`\
-https://nytimes.com/reuters/2020/03/31/us/politics/31reuters-health-coronavirus-usa-pelosi.html?searchResultPosition=10
+**NFL VP Reaches Out to Prospects About Draft Participation**\
+`NFL vice president Troy Vincent has sent a letter to several prospects inviting them to participate “live” in the NFL draft in three weeks.`\
+https://nytimes.com/aponline/2020/03/31/sports/football/ap-fbn-draft-prospects-letter.html?searchResultPosition=10
 
