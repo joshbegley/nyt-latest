@@ -1,4 +1,4 @@
-**U.S. Proposes Minimum Air Service Rules for Airlines Receiving Assistance**\
-`The U.S. Transportation Department on Tuesday proposed minimum flight requirements for passenger airlines receiving aid from the government's $50 billion grant and loan fund.`\
-https://nytimes.com/reuters/2020/03/31/business/31reuters-health-coronavirus-usa-airlines.html?searchResultPosition=10
+**Captain of Aircraft Carrier Pleads for Help as Virus Cases Increase on Board**\
+`“We are not at war,” the captain of the carrier Theodore Roosevelt wrote. “Sailors do not need to die. If we do not act now, we are failing to properly take care of our most trusted asset — our sailors.”`\
+https://nytimes.com/2020/03/31/us/politics/coronavirus-aircraft-carrier-theodore-roosevelt.html?searchResultPosition=10
 
