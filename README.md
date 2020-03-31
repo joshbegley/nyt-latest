@@ -1,4 +1,4 @@
-**Crosby, McDavid Favorites Again in NHLPA Annual Poll**\
-`Edmonton Oilers captain Connor McDavid is still regarded as the NHL’s top forward, while peers consider Pittsburgh’s Sidney Crosby the game's most complete player.`\
-https://nytimes.com/aponline/2020/03/31/sports/hockey/ap-hkn-nhlpa-poll.html?searchResultPosition=10
+**CNN's Cuomo Says He Has Coronavirus, Has Shown Symptoms**\
+`CNN prime-time host Chris Cuomo announced Tuesday that he has tested positive for the coronavirus but promised to continue doing his show from the basement of his home.`\
+https://nytimes.com/aponline/2020/03/31/us/ap-us-virus-outbreak-chris-cuomo.html?searchResultPosition=10
 
