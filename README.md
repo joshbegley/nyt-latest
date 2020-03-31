@@ -1,4 +1,4 @@
-**Captain of Aircraft Carrier Pleads for Help as Virus Cases Increase on Board**\
-`“We are not at war,” the captain of the carrier Theodore Roosevelt wrote. “Sailors do not need to die. If we do not act now, we are failing to properly take care of our most trusted asset — our sailors.”`\
-https://nytimes.com/2020/03/31/us/politics/coronavirus-aircraft-carrier-theodore-roosevelt.html?searchResultPosition=10
+**G20 Financial Officials Say Action Plan Will Address Low-Income Debt Risk**\
+`An action plan by the Group of 20 major economies to address the coronavirus pandemic will consider the risk of debt vulnerabilities in low-income countries and deliver financial aid to emerging countries, a joint statement said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/31/world/31reuters-health-coronavirus-g20-finance.html?searchResultPosition=10
 
