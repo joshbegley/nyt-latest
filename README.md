@@ -1,4 +1,4 @@
-**Where Are the Senate Battleground States? Look at the Ads**\
-`New ad buys reveal the key states where both parties think control of the Senate will be decided.`\
-https://nytimes.com/2020/03/31/us/politics/senate-ads-NC-Iowa-Arizona-Colorado-Maine.html?searchResultPosition=10
+**From Zero to Hero: Italy's Chinese Help Beat Coronavirus**\
+`In the storm of infection and death sweeping Italy, one big community stands out to health officials as remarkably unscathed -- the 50,000 ethnic Chinese who live in the town of Prato.`\
+https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-italy-chinese.html?searchResultPosition=10
 
