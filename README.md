@@ -1,4 +1,4 @@
-**Self-Quarantine Is No Time for an Instagram-Ready Kitchen**\
-`Right now it’s more important that your space is designed for comfort rather than social media.`\
-https://nytimes.com/2020/03/31/opinion/coronavirus-home.html?searchResultPosition=10
+**Who Are the Voters Behind Trump’s Higher Approval Rating?**\
+`Despite the president’s slow performance on the coronavirus and his series of falsehoods, some independent voters and Democrats are giving him a measure of credit for his handling of the crisis.`\
+https://nytimes.com/2020/03/31/us/politics/trump-approval-rating.html?searchResultPosition=10
 
