@@ -1,8 +1,8 @@
-**Brazil's Bolsonaro Urges No More Coronavirus Quarantine, Says Jobs Being Lost**\
-`Brazil's President Jair Bolsonaro said on Monday that there can be no more quarantine measures imposed on the country than those already in place to combat coronavirus because jobs are being destroyed and the poor are suffering disproportionately.`\
-https://nytimes.com/reuters/2020/03/31/world/americas/31reuters-health-coronavirus-brazil-bolsonaro.html?searchResultPosition=9
+**‘Sharks in the Time of Saviors,’ by Kawai Strong Washburn: An Excerpt**\
+`An excerpt from “Sharks in the Time of Saviors,” by Kawai Strong Washburn`\
+https://nytimes.com/2020/03/31/books/review/sharks-in-the-time-of-saviors-by-kawai-strong-washburn-an-excerpt.html?searchResultPosition=9
 
-**Smartphone Maker Xiaomi Says China Sales Already Close to Full Recovery**\
-`Chinese smartphone maker Xiaomi Corp said on Tuesday that it was already seeing signs of a strong recovery in sales in China as the country begins to return to normal following the lockdown due to the coronavirus.`\
-https://nytimes.com/reuters/2020/03/31/technology/31reuters-xiaomi-results.html?searchResultPosition=10
+**With Bird Sacrifices and Chants, Cuba's Santeria Seek Protection From Coronavirus**\
+`The family of Emilia Montoya, 79, sacrificed four white doves and two roosters, chanted in the African language Yoruba and pounded a wooden staff rhythmically on the floor in a ceremony to protect Montoya from coronavirus. `\
+https://nytimes.com/reuters/2020/03/31/world/americas/31reuters-health-coronavirus-cuba-santeria.html?searchResultPosition=10
 
