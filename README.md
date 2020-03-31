@@ -1,8 +1,8 @@
-**Weekly News Quiz for Students: Stimulus Bill, Social Distancing Guidelines, Mister Rogers**\
-`How well did you follow the news this past week? How many of these 10 questions can you get right?`\
-https://nytimes.com/interactive/2020/03/31/learning/31News-Quiz-for-Students.html?searchResultPosition=9
+**‘Our Situation is Apocalyptic’: Bangladesh Garment Workers Face Ruin**\
+`The new coronavirus is potentially disastrous for low-wage workers who power the global clothing trade.`\
+https://nytimes.com/2020/03/31/fashion/coronavirus-bangladesh.html?searchResultPosition=9
 
-**Correction: Virus Outbreak-Instacart Story**\
-`In a story March 30, about workers striking, The Associated Press erroneously reported a Whole Foods “sick out” was scheduled for Wednesday. It is scheduled for Tuesday.`\
-https://nytimes.com/aponline/2020/03/31/business/ap-us-virus-outbreak-instacart-corrective.html?searchResultPosition=10
+**NYC Reports 1st Coronavirus Death of a Person Under 18**\
+`New York City reported its first coronavirus death of a person under 18 years old as the number of fatalities in the epicenter of the U.S. outbreak continued to rise rapidly.`\
+https://nytimes.com/aponline/2020/03/31/us/ap-us-virus-outbreak-new-york-2nd-ld-writethru.html?searchResultPosition=10
 
