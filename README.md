@@ -1,4 +1,4 @@
-**Adidas Stops 1 Billion Euros Share Buyback**\
-`Germany's Adidas on Tuesday said it will suspend a 1 billion euros share buyback it had planned for this year as a way to conserve cash after closing its retail outlets in Europe and North America.`\
-https://nytimes.com/reuters/2020/03/31/business/31reuters-health-coronavirus-adidas-buyback.html?searchResultPosition=10
+**Fear of Virus Won't Save Mom in U.S. College Admissions Scandal From Prison**\
+`A California mother was sentenced on Tuesday to seven months in prison for paying $450,000 to help her daughters gain an illicit edge in the college admissions process, despite her lawyers' arguments that she faced exposure to the coronavirus if she were incarcerated.`\
+https://nytimes.com/reuters/2020/03/31/us/31reuters-usa-education-cheating.html?searchResultPosition=10
 
