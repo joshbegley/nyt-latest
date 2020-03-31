@@ -2,7 +2,7 @@
 `The top U.N. climate official on Tuesday chided Japan over its new plan to reduce greenhouse gas emission, which environmental campaigners say shows no real ambition to increase existing efforts.`\
 https://nytimes.com/aponline/2020/03/31/business/bc-eu-climate-japan.html?searchResultPosition=9
 
-**Your Tuesday Briefing**\
-`Coronavirus, Stay-at-Home, Zoom: Here's what you need to know.`\
+**Coronavirus, Stay-at-Home, Zoom: Your Tuesday Briefing**\
+`Here's what you need to know.`\
 https://nytimes.com/2020/03/31/briefing/coronavirus-stay-at-home-zoom.html?searchResultPosition=10
 
