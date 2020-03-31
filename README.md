@@ -1,4 +1,4 @@
-**NHL Extends Self-Quarantine Guideline Until April 15**\
-`The NHL has extended its guideline for players and staff to self-quarantine until April 15 and it is possible the coronavirus pandemic could push that back even further.`\
-https://nytimes.com/aponline/2020/03/31/sports/hockey/ap-hkn-virus-outbreak-nhl.html?searchResultPosition=10
+**Parents and Schools Are Struggling to Care for Kids With Special Needs**\
+`Coronavirus has meant rethinking education as we know it, and it’s OK to take it slow.`\
+https://nytimes.com/2020/03/31/parenting/kids-special-needs-coronavirus.html?searchResultPosition=10
 
