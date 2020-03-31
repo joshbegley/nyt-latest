@@ -1,4 +1,4 @@
-**The Safety Net Is Stronger. What Happens After the Coronavirus?**\
-`The emergency legislation enacted by Congress with support from Republicans and President Trump has intensified a long-running debate about whether the United States does enough in ordinary times to protect the needy.`\
-https://nytimes.com/2020/03/31/us/politics/coronavirus-us-benefi.html?searchResultPosition=10
+**UN Begins Home Food Drops for Gaza's Needy to Stem Virus**\
+`A U.N. aid agency Tuesday began delivering food to the homes of impoverished Palestinians instead of making them pick up such parcels at crowded distribution centers — part of an attempt to prevent a mass outbreak of the new coronavirus in the densely populated Gaza Strip.`\
+https://nytimes.com/aponline/2020/03/31/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=10
 
