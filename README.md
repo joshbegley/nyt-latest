@@ -1,8 +1,8 @@
-**For Your Quarantine Pizza Cravings**\
-`Grimaldi’s Pizzeria is delivering pies from Brooklyn, or order frozen pizzas from Naples, Italy.`\
-https://nytimes.com/2020/03/30/dining/grimaldis-pizza-delivery-coronavirus.html?searchResultPosition=9
+**A Bitter Herb From the Lower East Side**\
+`The Pickle Guys sell white and red horseradish for your Seder plate or to pair with gefilte fish.`\
+https://nytimes.com/2020/03/30/dining/pickle-guys-horseradish.html?searchResultPosition=9
 
-**Tempting Pastas and Sauces From Sicily**\
-`Bona Furtuna’s line, made in the town of Corleone, includes antipasti and marinara sauces.`\
-https://nytimes.com/2020/03/30/dining/pasta-sauce.html?searchResultPosition=10
+**An Easter Egg From Beverly Hills**\
+`AndSons, from the chocolatier Kriss Harvey, sells colorful chocolate eggs filled with layers of sweet goodness.`\
+https://nytimes.com/2020/03/30/dining/and-sons-easter-egg.html?searchResultPosition=10
 
