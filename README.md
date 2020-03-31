@@ -1,4 +1,4 @@
-**Don’t Overdo the Coronavirus Stockpiling**\
-`How to shop for food responsibly, without overstocking your bunker — and why you should only buy what you need.`\
-https://nytimes.com/2020/03/31/smarter-living/wirecutter/dont-overdo-the-coronavirus-stockpiling.html?searchResultPosition=10
+**Phillip Anderson, Nobel Laureate in Physics, Dies at 96**\
+`Philip Anderson, a Nobel Prize-winning physicist who expanded the world's understanding of magnetism and superconductivity, has died. He was 96. `\
+https://nytimes.com/aponline/2020/03/31/us/ap-us-obit-philip-anderson.html?searchResultPosition=10
 
