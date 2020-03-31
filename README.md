@@ -1,8 +1,8 @@
-**Commander: Kurdish Forces End Riots by IS Prisoners in Syria**\
-`Kurdish-led forces have successfully put down riots by Islamic State militants in a prison in northeast Syria with none of the prisoners escaping the facility, the top commander of the U.S.-backed forces said.`\
-https://nytimes.com/aponline/2020/03/31/world/middleeast/ap-ml-syria-is-prisoners.html?searchResultPosition=9
+**No Crowds. No Flying Fish. Coronavirus Empties Pike Place Market.**\
+`A hub since frontier days, the Seattle market is weathering the outbreak as best it can.`\
+https://nytimes.com/2020/03/31/us/pike-place-market-coronavirus.html?searchResultPosition=9
 
-**Hundreds of Stranded Americans Leave Nepal Amid Lockdown**\
-`Hundreds of stranded Americans left Nepal on a repatriation flight Tuesday, days after a complete lockdown was imposed in the Himalayan nation to help fight the coronavirus. `\
-https://nytimes.com/aponline/2020/03/31/world/asia/ap-as-nepal-stranded-americans.html?searchResultPosition=10
+**Fracking Once Lifted Pennsylvania. Now It Could Be a Drag.**\
+`Natural-gas companies operating in the state were looking shaky before the coronavirus hit. Local economies are now at risk.`\
+https://nytimes.com/2020/03/31/business/energy-environment/pennsylvania-shale-gas-fracking.html?searchResultPosition=10
 
