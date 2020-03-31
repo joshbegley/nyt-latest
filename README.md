@@ -1,4 +1,4 @@
-**Police: Suspect Rode Bike to Scene, Shouted 'I Killed Him'**\
-`A South Carolina man suspected of shooting and killing another man after a dispute tried to ride his bicycle into the crime scene shouting, “I killed him,” police said.`\
-https://nytimes.com/aponline/2020/03/31/us/ap-us-bicycle-confession.html?searchResultPosition=10
+**NCAA Throws Baseball Coaches a Curve With Added Eligibility**\
+`Widely hailed as the right thing to do for student-athlete welfare, the NCAA's decision to extend spring sports athletes' eligibility a year  because of the coronavirus pandemic is causing consternation for baseball coaches.`\
+https://nytimes.com/aponline/2020/03/31/sports/baseball/ap-bbc-virus-outbreak-ncaa-baseball.html?searchResultPosition=10
 
