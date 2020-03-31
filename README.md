@@ -1,4 +1,4 @@
-**Doping: WADA Reinstates International Taekwondo Federation**\
-`The International Taekwondo Federation (ITF) was removed from the World Anti-Doping Agency (WADA)'s non-compliant list, WADA said on Tuesday following a vote by its executive committee.`\
-https://nytimes.com/reuters/2020/03/31/sports/olympics/31reuters-sport-doping-wada-taekwondo.html?searchResultPosition=10
+**Italy, Vatican Lower Flags, Observe Silence to Honor Coronavirus Dead**\
+`Italians marked a minute of silence and flags at government buildings were lowered to half mast on Tuesday to honor the thousands of victims of the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-italy-mayors.html?searchResultPosition=10
 
