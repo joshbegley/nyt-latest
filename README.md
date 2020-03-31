@@ -1,8 +1,8 @@
-**Japan's GPIF Raises Foreign Bond Allocation Target to 25%**\
-`Japan's Government Pension Investment Fund (GPIF) said on Tuesday it would raise its allocation target for foreign bonds to 25% from the current 15%, marking a shift from unprofitable domestic bonds to foreign assets.`\
-https://nytimes.com/reuters/2020/03/31/business/31reuters-japan-gpif.html?searchResultPosition=9
+**UK Current Account Gap Narrows, Thanks Mostly to Gold Swings**\
+`Britain narrowed its current account deficit by more than expected in the last three months of 2019, but much of the improvement was due to volatile swings in gold trade, official data showed on Tuesday.`\
+https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-britain-gdp.html?searchResultPosition=9
 
-**Ericsson Seeing No Material Impact From Pandemic: CEO**\
-`Ericsson's top executive Borje Ekholm said on Tuesday the Swedish telecom equipment maker had seen no material impact on its business from the global coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-ericsson.html?searchResultPosition=10
+**Indonesia Plans to Relax Budget Deficit Limit Amid Coronavirus**\
+`Indonesia is planning to issue an emergency regulation to allow the government to manage a wider fiscal deficit and increase spending on response to COVID-19 which will effectively revise the state finances law, a cabinet minister said on Tuesday.`\
+https://nytimes.com/reuters/2020/03/31/world/asia/31reuters-health-coronavirus-indonesia-budget.html?searchResultPosition=10
 
