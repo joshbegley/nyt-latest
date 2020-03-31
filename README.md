@@ -1,4 +1,4 @@
-**Parents and Schools Are Struggling to Care for Kids With Special Needs**\
-`Coronavirus has meant rethinking education as we know it, and it’s OK to take it slow.`\
-https://nytimes.com/2020/03/31/parenting/kids-special-needs-coronavirus.html?searchResultPosition=10
+**Your Wednesday Briefing**\
+`Coronavirus, Vladimir Putin, India’s workers: Here’s what you need to know.`\
+https://nytimes.com/2020/03/31/briefing/coronavirus-hong-kong-singapore-china-japan.html?searchResultPosition=10
 
