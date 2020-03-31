@@ -1,4 +1,4 @@
-**In Shadow of COVID-19, Army Field Band Plays On for America**\
-`For members of the U.S. Army Field Band, it has never been merely about the music. Yes, they wanted to please the ear, but they played for the Army. For America.`\
-https://nytimes.com/aponline/2020/03/31/us/ap-us-virus-outbreak-one-good-thing-band-.html?searchResultPosition=10
+**Exclusive: American Airlines to Retire More Jets, Including Vintage 737s, in Coronavirus Downturn**\
+`American Airlines Group Inc is set to sharply increase the number of jets it is planning to retire beyond its announced plans as it accelerates a fleet transformation to respond to the coronavirus crisis, people familiar with the matter said.`\
+https://nytimes.com/reuters/2020/03/31/business/31reuters-health-coronavirus-american-airlines-fleet-exclusive.html?searchResultPosition=10
 
