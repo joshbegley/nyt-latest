@@ -1,8 +1,8 @@
-**Covid-19 Has Closed Stores, but Snake Oil Is Still for Sale**\
-`Pitches for treatments with no scientific proof erode trust and threatens lives.`\
-https://nytimes.com/2020/03/31/opinion/fake-treatment-cure-coronavirus.html?searchResultPosition=9
+**Exclusive: U.S. Calls for Broad Venezuela Transitional Government, Lays Out Proposal for Sanctions Relief**\
+`The Trump administration is calling for a transitional government in Venezuela made up of the opposition and some members of President Nicolas Maduro's Socialist Party and is laying out for the first time how U.S. sanctions might eventually be lifted, including on the vital oil sector.`\
+https://nytimes.com/reuters/2020/03/31/world/americas/31reuters-venezuela-politics-usa-exclusive.html?searchResultPosition=9
 
-**Danish Banks Skip Dividends, Share Repurchases After Government Spur**\
-`Several Danish lenders say they have suspended share repurchases and dividend plans for 2019, heeding calls by authorities to ensure adequate liquidity in uncertain times due to the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-denmark-banks.html?searchResultPosition=10
+**HelloFresh Shares at Record High on Virus Sales Boost**\
+`Shares in meal-kit delivery firm HelloFresh jumped to a record high on Tuesday after it said it expected strong first-quarter sales and profit due to a surge in demand as coronavirus lockdowns prompt more people to cook at home.`\
+https://nytimes.com/reuters/2020/03/31/technology/31reuters-hellofresh-shares.html?searchResultPosition=10
 
