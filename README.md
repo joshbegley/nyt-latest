@@ -1,4 +1,4 @@
-**Masks on the Field? Ahmed Ready if Games Can Be Played**\
-`In order to get back on the baseball field, Nick Ahmed is willing to play as a masked man.`\
-https://nytimes.com/aponline/2020/03/31/sports/baseball/ap-bbn-diamondbacks-ahmed.html?searchResultPosition=10
+**At the Top of the Covid-19 Curve, How Do Hospitals Decide Who Gets Treatment?**\
+`Guidelines that could determine which coronavirus patients get prioritized for lifesaving care vary by state, involving factors such as age, health problems, pregnancy and cognitive abilities.`\
+https://nytimes.com/2020/03/31/us/coronavirus-covid-triage-rationing-ventilators.html?searchResultPosition=10
 
