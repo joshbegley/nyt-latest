@@ -1,4 +1,4 @@
-**Column: Postponing Olympics Merely an Inconvenience for Golf**\
-`The move was expected, yet no less exceptional, when the IOC decided to postpone the Tokyo Olympics until next year.`\
-https://nytimes.com/aponline/2020/03/31/sports/golf/ap-glf-on-the-fringe-olympics.html?searchResultPosition=10
+**White House Projects 100K to 240K US Deaths From Virus**\
+`The White House on Tuesday projected 100,000 to 240,000 deaths in the U.`\
+https://nytimes.com/aponline/2020/03/31/us/politics/ap-us-virus-outbreak-washington.html?searchResultPosition=10
 
