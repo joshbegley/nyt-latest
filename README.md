@@ -1,4 +1,4 @@
-**Coronavirus Briefing: What Happened Today**\
-`The C.D.C. is considering a recommendation that many more people — maybe everyone — wear masks in public.`\
-https://nytimes.com/2020/03/31/us/coronavirus-today.html?searchResultPosition=10
+**Infected but Feeling Fine: The Unwitting Coronavirus Spreaders**\
+`The C.D.C. director says new data about people who are infected but symptom-free could lead the agency to recommend broadened use of masks.`\
+https://nytimes.com/2020/03/31/health/coronavirus-asymptomatic-transmission.html?searchResultPosition=10
 
