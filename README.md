@@ -1,4 +1,4 @@
-**Saudi Minister Tells Muslims to Wait on Making Haj Plans: State TV**\
-`Saudi Arabia is urging Muslims to wait before making plans to attend the annual haj pilgrimage until there is more clarity about the deadly coronavirus pandemic, the kingdom's minister for haj and umrah said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/31/world/middleeast/31reuters-health-coronavirus-saudi-haj.html?searchResultPosition=10
+**NHL Extends Self-Quarantine Guideline Until April 15**\
+`The NHL has extended its guideline for players and staff to self-quarantine until April 15 and it is possible the coronavirus pandemic could push that back even further.`\
+https://nytimes.com/aponline/2020/03/31/sports/hockey/ap-hkn-virus-outbreak-nhl.html?searchResultPosition=10
 
