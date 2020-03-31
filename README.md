@@ -1,8 +1,8 @@
-**U.S. Grocers Add Plexiglass Sneeze Guards to Protect Cashiers From Coronavirus**\
-`Kroger Co, Walmart Inc, Albertsons and other grocery sellers are installing plexiglass partitions at checkout counters to protect cashiers from the highly contagious coronavirus. `\
-https://nytimes.com/reuters/2020/03/30/business/30reuters-health-coronavirus-kroger.html?searchResultPosition=9
+**Coronavirus Shows U.S. Too Dependent on Cheap Medical Imports, USTR Says**\
+`U.S. Trade Representative Robert Lighthizer on Monday said the United States would seek to promote more domestic manufacturing of key medical supplies in light of the strategic vulnerabilities laid bare by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/03/30/business/30reuters-health-coronavirus-trade-ustr.html?searchResultPosition=9
 
-**Mexico Broadens One-Month Shutdown as Virus Cases Top 1,094**\
-`Mexico's government broadened its shutdown of “non-essential activities” to the private sector and prohibited gatherings of more than 50 people to fight the spread of the new coronavirus. `\
-https://nytimes.com/aponline/2020/03/30/world/americas/ap-lt-virus-outbreak-mexico.html?searchResultPosition=10
+**Samsung Says Chip Factory Worker Tests Positive for Virus, Output Not Affected**\
+`Samsung Electronics Co Ltd said on Tuesday that one of its chip factory workers in South Korea had tested positive for coronavirus, but its output has not been affected. `\
+https://nytimes.com/reuters/2020/03/30/business/30reuters-health-coronavirus-samsung-elec.html?searchResultPosition=10
 
