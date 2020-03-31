@@ -1,8 +1,8 @@
-**‘Sharks in the Time of Saviors,’ by Kawai Strong Washburn: An Excerpt**\
-`An excerpt from “Sharks in the Time of Saviors,” by Kawai Strong Washburn`\
-https://nytimes.com/2020/03/31/books/review/sharks-in-the-time-of-saviors-by-kawai-strong-washburn-an-excerpt.html?searchResultPosition=9
+**What to Know About California’s New ‘Health Corps’**\
+`Tuesday: The state hopes to add scores of additional health care workers as hospitals fill. Also: Easy California history lessons.`\
+https://nytimes.com/2020/03/31/us/california-health-corps-newsom.html?searchResultPosition=9
 
-**With Bird Sacrifices and Chants, Cuba's Santeria Seek Protection From Coronavirus**\
-`The family of Emilia Montoya, 79, sacrificed four white doves and two roosters, chanted in the African language Yoruba and pounded a wooden staff rhythmically on the floor in a ceremony to protect Montoya from coronavirus. `\
-https://nytimes.com/reuters/2020/03/31/world/americas/31reuters-health-coronavirus-cuba-santeria.html?searchResultPosition=10
+**Thousands to Take Unpaid Leave as U.S., South Korea Fail to Agree on Military Costs**\
+`South Korea on Tuesday criticized the U.S. military's decision to place thousands of Korean workers on unpaid leave this week, after the two allies failed to sign a new cost-sharing agreement.`\
+https://nytimes.com/reuters/2020/03/31/world/asia/31reuters-southkorea-usa-military.html?searchResultPosition=10
 
