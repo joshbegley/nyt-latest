@@ -1,8 +1,8 @@
-**Myanmar Reports First Coronavirus Death as Case Numbers Rise**\
-`Myanmar reported its first coronavirus death on Tuesday, a 69-year-old man who also had cancer and died in a hospital in the commercial capital of Yangon, a government spokeswoman said.`\
-https://nytimes.com/reuters/2020/03/31/world/asia/30reuters-health-coronavirus-myanmar.html?searchResultPosition=9
+**Japan PM, Deputy Avoid Joint Meetings to Cut Coronavirus Risk as Lockdown Pressure Builds**\
+`Japan's prime minister and his deputy won't attend meetings together to cut coronavirus risks as pressure for a lockdown builds, with domestic cases topping 2,000 and a minister saying the country's containment strategy was stretched to the limit.`\
+https://nytimes.com/reuters/2020/03/31/world/asia/31reuters-health-coronavirus-japan.html?searchResultPosition=9
 
-**Some UK Police Might Have Gone Too Far on Coronavirus: Minister**\
-`The British police have done a good job in the coronavirus crisis though there may be some individual instances of some officers going a little too far in enforcing a lockdown, Transport Secretary Grant Shapps said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-britain-police.html?searchResultPosition=10
+**China's Huawei Says '19 Sales Up 19% Despite U.S. Sanctions**\
+`Chinese tech giant Huawei said Tuesday its sales rose 19.1% last year over 2018 despite U.S. sanctions that hampered its smartphone and network equipment businesses.`\
+https://nytimes.com/aponline/2020/03/31/business/bc-china-earns-huawei.html?searchResultPosition=10
 
