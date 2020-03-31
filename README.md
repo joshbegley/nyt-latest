@@ -1,4 +1,4 @@
-**CNN's Cuomo Says He Has Coronavirus, Has Shown Symptoms**\
-`CNN prime-time host Chris Cuomo announced Tuesday that he has tested positive for the coronavirus but promised to continue doing his show from the basement of his home.`\
-https://nytimes.com/aponline/2020/03/31/us/ap-us-virus-outbreak-chris-cuomo.html?searchResultPosition=10
+**The Top iPhone and iPad Apps on App Store**\
+`The top iPhone and iPad apps on App Store for week ending March 29th`\
+https://nytimes.com/aponline/2020/03/31/business/ap-us-itunes-apps-top-10.html?searchResultPosition=10
 
