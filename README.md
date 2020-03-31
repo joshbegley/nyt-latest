@@ -1,8 +1,8 @@
-**Tanzania Confirms Its First Coronavirus Death, Health Minister Says**\
-`Tanzania confirmed its first coronavirus death on Tuesday, health minister Ummy Mwalimu said in a statement. `\
-https://nytimes.com/reuters/2020/03/31/world/africa/31reuters-health-coronavirus-tanzania.html?searchResultPosition=9
+**Number of Confirmed Coronavirus Cases in Germany Rises to 61,913: RKI**\
+`The number of confirmed cases of the coronavirus in Germany has risen to 61,913 and 583 people have died of the disease, statistics from the Robert Koch Institute (RKI) for infectious diseases showed on Tuesday.`\
+https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-germany-cases.html?searchResultPosition=9
 
-**South Korea Puts Off School Opening Again, Will Turn to Online**\
-`South Korea on Tuesday cancelled the planned re-opening of schools next week because of the danger of the coronavirus as clusters of infections flare, and will instead launch online classes while delaying the annual college entrance exams.`\
-https://nytimes.com/reuters/2020/03/31/world/asia/31reuters-health-coronavirus-southkorea-toll.html?searchResultPosition=10
+**Ad Giant WPP Pulls Dividend, Buyback and Outlook**\
+`WPP, the world's biggest advertising company, said it was pulling its dividend and share buyback, and withdrawing its guidance for 2020 after the coronavirus outbreak forced an increasing number of clients to cancel work. `\
+https://nytimes.com/reuters/2020/03/31/business/31reuters-health-coronavirus-wpp.html?searchResultPosition=10
 
