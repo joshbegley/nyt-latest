@@ -1,8 +1,8 @@
-**UK Current Account Gap Narrows, Thanks Mostly to Gold Swings**\
-`Britain narrowed its current account deficit by more than expected in the last three months of 2019, but much of the improvement was due to volatile swings in gold trade, official data showed on Tuesday.`\
-https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-britain-gdp.html?searchResultPosition=9
+**China Delays College Entrance Exam as Fears Grow Over Risk of Coronavirus Second Wave**\
+`China will delay its national college entrance exam by a month as it grapples with a coronavirus pandemic as travellers returning from abroad are fuelling new cases and boosting concern over the threat of a second wave of infections.`\
+https://nytimes.com/reuters/2020/03/31/world/asia/31reuters-health-coronavirus-china-toll.html?searchResultPosition=9
 
-**Indonesia Plans to Relax Budget Deficit Limit Amid Coronavirus**\
-`Indonesia is planning to issue an emergency regulation to allow the government to manage a wider fiscal deficit and increase spending on response to COVID-19 which will effectively revise the state finances law, a cabinet minister said on Tuesday.`\
-https://nytimes.com/reuters/2020/03/31/world/asia/31reuters-health-coronavirus-indonesia-budget.html?searchResultPosition=10
+**Alibaba Plans to Buy at Least 10% Stake in Chinese Courier Yunda: Sources**\
+`Alibaba Group Holding Ltd plans to buy at least 10% of Yunda Holding Co Ltd, marking the e-commerce giant's fifth investment in a large courier, two people with knowledge of the matter told Reuters.`\
+https://nytimes.com/reuters/2020/03/31/technology/31reuters-alibaba-investment-yunda.html?searchResultPosition=10
 
