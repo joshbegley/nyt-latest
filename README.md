@@ -1,8 +1,8 @@
-**Assailant With Ax, Machete Wounds Man in Southern Germany**\
-`An assailant armed with an ax and a machete threatened a woman and wounded a man who came to her help in southern Germany on Tuesday, police said.`\
-https://nytimes.com/aponline/2020/03/31/world/europe/ap-eu-germany-ax-attack.html?searchResultPosition=9
+**FIFA Plans Huge New Emergency Fund**\
+`FIFA is drawing up plans to tap its $2.7 billion cash reserve and create an emergency fund to support the ailing soccer industry`\
+https://nytimes.com/2020/03/31/sports/fifa-soccer-emergency-fund.html?searchResultPosition=9
 
-**Museums Scramble to Document the Pandemic, Even as It Unfolds**\
-`With photographs, field interviews and mass surveys, institutions are trying to preserve information about everyday life during the crisis for future study.`\
-https://nytimes.com/2020/03/31/arts/design/museums-coronavirus-pandemic-artifacts.html?searchResultPosition=10
+**Royal No More: Harry and Meghan Start Uncertain New Chapter**\
+`Prince Harry and his wife Meghan officially make the transition Tuesday from senior members of Britain’s royal family to — well, it’s unclear. International celebrities, charity patrons, global influencers?`\
+https://nytimes.com/aponline/2020/03/31/world/europe/ap-eu-britain-harry-and-meghan.html?searchResultPosition=10
 
