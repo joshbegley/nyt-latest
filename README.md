@@ -1,8 +1,8 @@
-**Spain Plans More Aid for Households, Small Businesses Hit by Coronavirus**\
-`Spain's government was preparing new measures on Tuesday to help households and exempt small firms from social security payments  after business leaders bristled at a tightening of the coronavirus lockdown in Europe's second worst-hit country.`\
-https://nytimes.com/reuters/2020/03/31/world/europe/31reuters-health-coronavirus-spain.html?searchResultPosition=9
+**Smartphone Maker Xiaomi Says China Sales Already Close to Full Recovery**\
+`Chinese smartphone maker Xiaomi Corp said on Tuesday that it was already seeing signs of a strong recovery in sales in China as the country begins to return to normal following the lockdown due to the coronavirus.`\
+https://nytimes.com/reuters/2020/03/31/technology/31reuters-xiaomi-results.html?searchResultPosition=9
 
-**Thailand to Give Free Mobile Data for Those Homebound by Coronavirus**\
-`Thailand will give the public free mobile data as companies initiate work-from-home policies and schools use remote learning amid the coronavirus outbreak, a senior government official said on Tuesday as operators considered investment to expand capacity. `\
-https://nytimes.com/reuters/2020/03/31/world/asia/31reuters-health-coronavirus-thailand-data.html?searchResultPosition=10
+**Russia Postpones Smartphone Software Law Until January 2021:TASS**\
+`Russia on Tuesday pushed back legislation that would require all smartphones, computers and smart TV sets sold in Russia to come pre-installed with Russian software, by six months until January 1, 2021, the TASS news agency reported. `\
+https://nytimes.com/reuters/2020/03/31/technology/31reuters-russia-internet-software.html?searchResultPosition=10
 
