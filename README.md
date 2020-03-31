@@ -1,8 +1,8 @@
-**Michigan Lawmaker Killed by Virus Hailed as Cheerful Battler**\
-`State Rep. Isaac Robinson was devoted to politics and Detroit, battling for decades on behalf of the city's underdogs until succumbing to its latest scourge: the coronavirus.`\
-https://nytimes.com/aponline/2020/03/30/us/ap-us-virus-outbreak-michigan-lawmaker.html?searchResultPosition=9
+**Ecuador Struggles to Collect the Dead as Coronavirus Spreads**\
+`Ecuadorean authorities said on Monday they would improve the collection of corpses, as delays related to the rapid spread of the new coronavirus has left families keeping their loved ones' bodies in their homes for days in some cases. `\
+https://nytimes.com/reuters/2020/03/30/world/americas/30reuters-health-coronavirus-ecuador.html?searchResultPosition=9
 
-**Brazil's Bolsonaro Urges No More Coronavirus Quarantine, Says Jobs Being Lost**\
-`Brazil's President Jair Bolsonaro said on Monday that there can be no more quarantine measures imposed on the country than those already in place to combat coronavirus because jobs are being destroyed and the poor are suffering disproportionately.`\
-https://nytimes.com/reuters/2020/03/30/world/americas/30reuters-health-coronavirus-brazil-bolsonaro.html?searchResultPosition=10
+**Tenor Placido Domingo Feels 'Fine' After Coronavirus**\
+`Tenor Placido Domingo said Monday he is resting at home after catching the new coronavirus. `\
+https://nytimes.com/aponline/2020/03/30/world/americas/ap-lt-virus-outbreak-mexico-placido-domingo.html?searchResultPosition=10
 
