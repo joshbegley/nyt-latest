@@ -1,4 +1,4 @@
-**US Finds Major Cross-Border Tunnel Used to Smuggle Drugs**\
-`A large haul of drugs, including opioids, methamphetamine and cocaine, being smuggled from Mexico to California was seized from a cross-border tunnel equipped with ventilation, lighting and an underground rail system, authorities said Tuesday.`\
-https://nytimes.com/aponline/2020/03/31/us/ap-us-border-drug-tunnel.html?searchResultPosition=10
+**New York Governor Says Brother, CNN Anchor Chris Cuomo, Has Coronavirus**\
+`The coronavirus pandemic took a personal turn for New York Governor Andrew Cuomo on Tuesday as he disclosed that his brother, CNN television anchor Chris Cuomo, had tested positive for the disease caused by the virus.`\
+https://nytimes.com/reuters/2020/03/31/us/31reuters-health-coronavirus-usa-new-york.html?searchResultPosition=10
 
