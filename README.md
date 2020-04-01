@@ -1,36 +1,36 @@
+**Swiss Distillery Shifts From Schnapps to Sanitizer**\
+`A Swiss distillery has converted its production of pear schnapps to make disinfectant hand gel for use against the coronavirus.`\
+https://nytimes.com/reuters/2020/04/01/business/01reuters-health-coronavirus-sanitiser.html?searchResultPosition=2
+
+**U.S. Factory Activity Contracts in March; Orders Tumble to 11-Year Low: ISM**\
+`U.S. manufacturing activity contracted less than expected in March, but disruptions caused by the coronavirus pandemic pushed new orders received by factories to an 11-year low, reinforcing economists' views that the economy was in recession. `\
+https://nytimes.com/reuters/2020/04/01/business/01reuters-usa-economy-manufacturing.html?searchResultPosition=3
+
+**Insurers Fret as Company Bosses Face Coronavirus Legal Claims**\
+`Insurers are increasingly worried about shareholders, employees or customers bringing coronavirus-related claims against company executives and are considering excluding the virus from policies which protect the bosses, industry sources say.`\
+https://nytimes.com/reuters/2020/04/01/business/01reuters-health-coronavirus-insurance-directors.html?searchResultPosition=4
+
+**EMA Urges Caution on Malaria Drugs' Use for COVID-19 in Absence of Evidence**\
+`The European Union's drug regulator warned on Wednesday that two older malaria drugs being tested against coronavirus disease (COVID-19) should only be used in trials or national emergency use programmes, citing side effects and uncertain efficacy.`\
+https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-health-coronavirus-ema.html?searchResultPosition=5
+
+**U.S. Construction Spending Unexpectedly Falls in February**\
+`U.S. construction spending unexpectedly fell in February and could decline further as the coronavirus pandemic wreaks havoc on the economy.`\
+https://nytimes.com/reuters/2020/04/01/business/01reuters-usa-economy-construction.html?searchResultPosition=6
+
+**U.S. FDA Says Malaria Drugs in Shortage as Coronavirus Drives Up Demand**\
+`The U.S. Food and Drug Administration said malaria drugs hydroxychloroquine and chloroquine are in shortage due to a surge in demand because of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/01/us/01reuters-health-coronavirus-fda-chloroquine.html?searchResultPosition=7
+
+**Iran General Visits Baghdad, Tries to Forge Political Unity**\
+`A top Iranian general arrived in Baghdad this week to try and unify Iraq's fractured political leaders, Iraqi officials said Wednesday, as stiff opposition by one major bloc thwarts the chances the country's latest prime minister-designate can form a government. `\
+https://nytimes.com/aponline/2020/04/01/world/middleeast/ap-ml-iraq-politics.html?searchResultPosition=8
+
+**Rowling Starts Harry Potter At Home for Housebound Families**\
+`J.K. Rowling is hoping a dash of Harry Potter will help families confined to their homes during the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/04/01/us/ap-us-books-potter-at-home.html?searchResultPosition=9
+
 **U.S. FDA Moves to Remove Versions of Heartburn Drug Zantac From Market**\
 `The U.S. Food and Drug Administration said on Wednesday it was requesting makers of all versions of heartburn drug Zantac to remove the drugs from the market immediately due to the presence of a probable carcinogen. `\
-https://nytimes.com/reuters/2020/04/01/us/01reuters-fda-heartburn-zantac.html?searchResultPosition=2
-
-**European Labs to Receive Control Material to Spot False Negative Coronavirus Tests**\
-`Laboratories across Europe can now access control material to enable them to avoid mistakenly telling people they are free of the coronavirus when in fact they are infected, the European Commission said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-health-coronavirus-eu-test.html?searchResultPosition=3
-
-**Singapore Reports 74 New Coronavirus Cases, Biggest Intraday Jump**\
-`Singapore reported 74 new coronavirus cases on Wednesday in its biggest intraday jump, bringing the total tally to 1,000.`\
-https://nytimes.com/reuters/2020/04/01/world/asia/01reuters-health-coronavirus-singapore.html?searchResultPosition=4
-
-**Switzerland Past Bottleneck in Coronavirus Testing: Government**\
-`Switzerland no longer faces shortages in coronavirus testing, its top health official dealing with the pandemic said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-health-coronavirus-swiss-tests.html?searchResultPosition=5
-
-**Puerto Rico Shutters Police Stations Amid COVID-19 Curfew**\
-`Puerto Rico on Wednesday closed its fifth police station in a week, raising concerns about the U.S. territory's ability to respond to the coronavirus pandemic as officers accused the government of exposing one of the largest police departments in a U.S. jurisdiction to COVID-19.`\
-https://nytimes.com/aponline/2020/04/01/world/americas/ap-cb-virus-outbreak-puerto-rico.html?searchResultPosition=6
-
-**Wimbledon Canceled for 1st Time Since WWII Because of Virus**\
-`Wimbledon was canceled on Wednesday because of the coronavirus pandemic, the first time since World War II that the oldest Grand Slam tennis tournament won't be played.`\
-https://nytimes.com/aponline/2020/04/01/sports/tennis/ap-ten-virus-outbreak-wimbledon-canceled.html?searchResultPosition=7
-
-**Wimbledon Is Canceled as Britain Remains on Lockdown**\
-`The tournament, the oldest Grand Slam, had previously been canceled only during World War I and II.`\
-https://nytimes.com/2020/04/01/sports/tennis/wimbledon-canceled-coronavirus.html?searchResultPosition=8
-
-**UK's Johnson Under Fire for Low Number of COVID-19 Tests**\
-`When Prime Minister Boris Johnson developed a cough and fever, he got a test for the new coronavirus. Most other Britons won’t be offered one.`\
-https://nytimes.com/aponline/2020/04/01/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=9
-
-**Bolsonaro, Isolated and Defiant, Dismisses Coronavirus Threat to Brazil**\
-`President Jair Bolsonaro, who has called the virus a “measly cold,” is the sole major world leader continuing to question the merits of lockdown measures to fight the pandemic.`\
-https://nytimes.com/2020/04/01/world/americas/brazil-bolsonaro-coronavirus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/01/us/01reuters-fda-heartburn-zantac.html?searchResultPosition=10
 
