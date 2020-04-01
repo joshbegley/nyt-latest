@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2020/04/01/magazine/coronavirus-workers.html?searchResultPosition=2
 
 **Trump Rebuffs Demands to Lift Tariffs as Economy Falters**\
-`President Trump has so far rejected the calls by corporate leaders, arguing that the levies do not hurt American companies.`\
+`The calls by corporate leaders have intensified as the coronavirus inflicts financial pain, but President Trump has argued that the levies do not hurt American companies.`\
 https://nytimes.com/2020/04/01/business/economy/trump-tariffs-coronavirus.html?searchResultPosition=3
 
 **'Thank You China!!!' Mexico Grateful for Coronavirus Medical Supplies**\
