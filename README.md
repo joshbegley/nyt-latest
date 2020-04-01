@@ -19,7 +19,7 @@ https://nytimes.com/2020/03/31/nyregion/bronx-fire-building.html?searchResultPos
 https://nytimes.com/reuters/2020/03/31/us/31reuters-health-coronavirus-taiwan-economy.html?searchResultPosition=5
 
 **Your Wednesday Briefing**\
-`Coronavirus, Trump and Asia: Here’s what you need to know.`\
+`Coronavirus, Donald Trump and Asia: Here’s what you need to know.`\
 https://nytimes.com/2020/03/31/briefing/coronavirus-trump-asia.html?searchResultPosition=6
 
 **Japan to Hold Experts' Meeting on Coronavirus Pandemic Wednesday**\
