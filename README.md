@@ -1,40 +1,40 @@
+**Australia Cruise Ship Evictions Tread Coronavirus Diplomacy Tightrope**\
+`Australia is pushing foreign-flagged cruise ships to leave its territorial waters amid the coronavirus pandemic, walking a diplomatic tightrope as it also tries to bring home citizens trapped on ships abroad. `\
+https://nytimes.com/reuters/2020/04/01/world/asia/01reuters-health-coronavirus-australia.html?searchResultPosition=1
+
+**Australian Shops Ration Booze to Foil Hoarders Amid Virus Shutdowns**\
+`Australia's retailers are putting limits on purchases of alcohol as hoarders turn their attention from toilet paper and other household essentials to drink amid a widespread shutdown to slow the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/04/01/world/asia/01reuters-health-coronavirus-australia-alcohol.html?searchResultPosition=2
+
+**Italy's Factory Activity Contracts at Fastest Rate for 11 Years: PMI**\
+`Italian manufacturing activity plunged in March at the steepest rate for 11 years, hit by a lockdown imposed by the government to try to contain the country's coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-italy-economy-pmi.html?searchResultPosition=3
+
+**French Car Registrations Dropped by 72% in March Due to Coronavirus**\
+`French car registrations dropped by more than 72% in March due to the coronavirus outbreak and lockdown ordered by authorities to fight the epidemic spread, France's car industry association CCFA said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-france-car-sales.html?searchResultPosition=4
+
+**Spain Pushes for an EU System for Joint Debt Issuance to Face Coronavirus Crisis**\
+`Spain's Economy Minister Nadia Calvino said on Wednesday that there must be a way to issue common debt shared by European Union countries, be they coronabonds or any other mechanism.`\
+https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-health-coronavirus-spain-debt.html?searchResultPosition=5
+
+**Vietnam-Based Hyundai, Honda Plants Close Amid Nationwide Lockdown**\
+`Vietnam-based Hyundai assembler TC Motor and Honda Vietnam have shut down their plants for two weeks amid a nationwide social distancing campaign to curb the spread of the coronavirus, the companies said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/01/world/asia/01reuters-health-coronavirus-vietnam-cars.html?searchResultPosition=6
+
+**Amid Europe's Lockdowns, No Safety Net for Millions in Black Economy**\
+`Bricklayer Salvatore La Barbera is worried that in a matter of days his family of four will run out of food and, with Italy locked down by coronavirus, there is no way he can earn money to buy more.`\
+https://nytimes.com/reuters/2020/04/01/us/01reuters-health-coronavirus-blackeconomy.html?searchResultPosition=7
+
+**UK Watchdog Eases Rules on Retail Investments in Pandemic**\
+`Britain's markets watchdog said it has eased identify checks and rules on investments to help staff having to work from home during the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/01/business/01reuters-health-coronavirus-britain-markets.html?searchResultPosition=8
+
 **UK Banks Scrap Dividends on Coronavirus Fears, Pressure on Bonuses**\
 `Britain's top banks have axed dividend payments after pressure from the regulator, saving their capital as a buffer against expected losses from the economic fallout from the coronavirus.`\
-https://nytimes.com/reuters/2020/04/01/business/01reuters-health-coronavirus-banks-dividends.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/04/01/business/01reuters-health-coronavirus-banks-dividends.html?searchResultPosition=9
 
 **Toronto's Event Ban Doesn't Apply to Sports Teams**\
 `Toronto mayor John Tory announced Tuesday a ban on public events until June 30 due to the coronavirus pandemic, but the edict doesn't apply to the city's sports teams.`\
-https://nytimes.com/reuters/2020/04/01/sports/01reuters-sports-toronto-ban.html?searchResultPosition=2
-
-**In Taiwan, Anger at China Over Virus Drives Identity Debate**\
-`Anger at being confused with China amid the coronavirus outbreak and Beijing's stepped-up efforts to assert sovereignty is stirring heated debate in Taiwan about how to further distance itself from its giant and often threatening neighbor.`\
-https://nytimes.com/reuters/2020/04/01/us/01reuters-health-coronavirus-taiwan-china.html?searchResultPosition=3
-
-**Fresenius Medical Care Working With Dialysis Providers in U.S. to Tackle Coronavirus**\
-`Fresenius Medical Care (FMC) on Wednesday said it was working with other dialysis providers to provide care in isolation for people with kidney problems in the United States who are or may be infected with coronavirus.`\
-https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-health-coronavirus-fresenius-medical-care.html?searchResultPosition=4
-
-**Auto Trader Plans Equity Raise to Shore Up Cash**\
-`UK online car marketplace Auto Trader said on Wednesday it would sell up to 46.5 million new shares, worth 5% of its share capital, to institutional investors in a bid to shore up cash during the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/04/01/technology/01reuters-auto-tradr-equity.html?searchResultPosition=5
-
-**Rouhani: U.S. Has Lost Opportunity to Lift Iran Sanctions Amid Coronavirus**\
-`Iran's president said on Wednesday the United States had missed a historic opportunity to lift sanctions on his country during the coronavirus outbreak, though he said the penalties had not hampered Tehran's fight against the infection. `\
-https://nytimes.com/reuters/2020/04/01/world/middleeast/01reuters-iran-usa-sanctions.html?searchResultPosition=6
-
-**France's Carrefour Teams Up With Uber Eats for Lockdown Deliveries**\
-`French supermarket retailer Carrefour and Uber Eats announced a new delivery service on Wednesday, aimed at helping Parisians buy essential goods and food during the nationwide lockdown triggered by the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/04/01/business/01reuters-carrefour-uber.html?searchResultPosition=7
-
-**Oil Skids as Oversupply Fears Pile Up With U.S. Inventories Growth**\
-`Global crude oil prices slid further on Wednesday, following their biggest-ever quarterly and monthly losses, as a bigger-than-expected rise in U.S. inventories and a widening rift within OPEC heightened oversupply fears.`\
-https://nytimes.com/reuters/2020/04/01/business/01reuters-global-oil.html?searchResultPosition=8
-
-**U.S. Air Strikes Killed Civilians in Somalia, Amnesty International Says**\
-`U.S. air strikes in Somalia killed two civilians and injured three in February, human rights watchdog Amnesty International said on Wednesday, in a statement that raised questions over U.S. investigations of such allegations. `\
-https://nytimes.com/reuters/2020/04/01/world/africa/01reuters-somalia-security.html?searchResultPosition=9
-
-**Europe to Launch Coronavirus Contact Tracing App Initiative**\
-`European scientists and technologists said on Wednesday they will launch a joint initiative to support the deployment of digital applications in the fight against coronavirus while complying with the region's tough privacy laws.`\
-https://nytimes.com/reuters/2020/04/01/technology/01reuters-health-coronavirus-europe-tech.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/01/sports/01reuters-sports-toronto-ban.html?searchResultPosition=10
 
