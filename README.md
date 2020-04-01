@@ -26,8 +26,8 @@ https://nytimes.com/2020/03/31/us/drug-tunnel-san-diego-tijuana.html?searchResul
 `Bond investor and DoubleLine Capital Chief Executive Jeffrey Gundlach said on Tuesday he believes the coronavirus sell-off is not over yet and that the lows stocks hit in March will be surpassed in April due to uncertainty over the outbreak.`\
 https://nytimes.com/reuters/2020/03/31/business/31reuters-health-coronavirus-gundlach.html?searchResultPosition=7
 
-**Kuwait Set to Prop Up Coronavirus-Hit Economy Amid Low Oil Prices**\
-`Kuwait will announce measures later on Tuesday to shore up the economy against the coronavirus pandemic, a government source told Reuters, while the central bank separately asked banks to ease loan repayments for companies affected.`\
+**Kuwait Props Up Coronavirus-Hit Economy Amid Low Oil Prices**\
+`Kuwait announced measures early on Wednesday aimed at shoring up its economy against the coronavirus pandemic, including soft long-term loans from local banks, and the central bank asked banks to ease loan repayments for companies affected.`\
 https://nytimes.com/reuters/2020/03/31/world/middleeast/31reuters-health-coronavirus-kuwait-economy.html?searchResultPosition=8
 
 **Rights, Press Groups Condemn Killing of Mexican Journalist**\
