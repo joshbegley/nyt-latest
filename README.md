@@ -10,8 +10,8 @@ https://nytimes.com/aponline/2020/04/01/us/politics/ap-us-election-2020-trump-wh
 `HONG KONG (Reuters - Sports bodies in China have been banned from organizing events that will draw large crowds until further notice due to the coronavirus outbreak, the country's National Sports Bureau said in a directive issued on Tuesday.`\
 https://nytimes.com/reuters/2020/04/01/sports/01reuters-health-coronavirus-china-sports.html?searchResultPosition=3
 
-**With Japan on Brink of Coronavirus Emergency, Tokyo Could Keep Schools Closed Until May**\
-`Japan remains on the brink of a state of emergency as the rate of new coronavirus cases accelerates across the country, its top government spokesman said on Wednesday, amid reports the capital may order public schools to stay closed for a second month.`\
+**Japan on Brink of Emergency as Coronavirus Spreads: Government Spokesperson**\
+`Japan remains on the brink of a state of emergency as the rate of coronavirus infections continues to increase in the country, its top government spokesman said on Wednesday. `\
 https://nytimes.com/reuters/2020/04/01/world/asia/01reuters-health-coronavirus-japan.html?searchResultPosition=4
 
 **South Africa Should Seek IMF Funding to Deal With Pandemic: IIF**\
