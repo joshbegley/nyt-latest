@@ -3,7 +3,7 @@
 https://nytimes.com/2020/04/01/world/europe/manolis-glezos-dead.html?searchResultPosition=2
 
 **Nearly 3,000 Sailors to Leave Carrier Amid Virus Outbreak**\
-`Nearly 3,000 sailors aboard a U.S. aircraft carrier where the coronavirus has spread will be taken off by the ship by Friday, Navy officials said Wednesday as they struggle to quarantine crew members in the face of an outbreak.`\
+`Nearly 3,000 sailors aboard a U.S. aircraft carrier where the coronavirus has spread will be taken off the ship by Friday, Navy officials said Wednesday as they struggle to quarantine crew members in the face of an outbreak.`\
 https://nytimes.com/aponline/2020/04/01/us/politics/ap-us-virus-outbreak-aircraft-carrier.html?searchResultPosition=3
 
 **Study: Racial Graduation-Rate Gap Grows for Men's NCAA Teams**\
