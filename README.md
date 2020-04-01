@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/04/01/health/ap-us-med-virus-outbreak-spread-without-symptoms.html?searchResultPosition=2
 
 **When Humans Are Sheltered in Place, Wild Animals Will Play**\
-`Goats in Wales; coyotes in San Francisco; rats, rats, everywhere: With most of the world staying home to prevent the spread of the coronavirus, animals have ventured out where normally the presence of people would keep them away.`\
+`Goats in Wales; coyotes in San Francisco; rats, rats, everywhere: With much of the world staying home to prevent the spread of the coronavirus, animals have ventured out where normally the presence of people would keep them away.`\
 https://nytimes.com/2020/04/01/science/coronavirus-animals-wildlife-goats.html?searchResultPosition=3
 
 **Albania Extends Lockdown Till End of Coronavirus Outbreak**\
