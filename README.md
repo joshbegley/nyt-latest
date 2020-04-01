@@ -1,36 +1,36 @@
-**Pro-Trump Super PAC to Spend $10 Million on Attack Ads Against Biden**\
-`The ads bought by the group, America First, will air in three Rust Belt states that were pivotal to President Trump’s victory in 2016.`\
-https://nytimes.com/2020/04/01/us/politics/trump-vs-biden-super-pac.html?searchResultPosition=2
+**DeSantis Issues Stay-at-Home Order for Florida**\
+`Gov. Ron DeSantis of Florida ordered the state’s more than 21 million residents to stay at home except for “essential activities” starting Thursday at midnight.`\
+https://nytimes.com/video/us/politics/100000007066476/coronavirus-florida.html?searchResultPosition=2
 
-**Volkswagen to Extend U.S. Production Halt Until April 12**\
-`Volkswagen AG said on Wednesday it is extending a production halt at its Chattanooga, Tennessee, assembly plant until April 12 because of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/01/business/01reuters-health-coronavirus-usa-volkswagen.html?searchResultPosition=3
+**Some Coronavirus Patients Show Signs of Brain Ailments**\
+`Doctors have observed neurological symptoms, including confusion, stroke and seizures, in a small subset of Covid-19 patients.`\
+https://nytimes.com/2020/04/01/health/coronavirus-brain-mental-confusion.html?searchResultPosition=3
 
-**Mexico Scrambles to Meet Desperate U.S., European Ventilator Demand**\
-`Mexico's medical device industry is scrambling to meet an eleven-fold jump in demand for ventilators as patients with respiratory conditions linked to the coronavirus pandemic overwhelm hospitals in the United States and Europe. `\
-https://nytimes.com/reuters/2020/04/01/world/asia/01reuters-health-coronavirus-mexico-ventilators.html?searchResultPosition=4
+**State Department to Americans Abroad: Repatriation Flights Can't Continue Indefinitely**\
+`Americans abroad still lack a sense of urgency to get back home even though the coronavirus pandemic has intensified, a senior State Department official said on Wednesday, urging them to return now unless they are prepared to remain overseas indefinitely.`\
+https://nytimes.com/reuters/2020/04/01/us/01reuters-health-coronavirus-americans.html?searchResultPosition=4
 
-**Prepare for War or Fight Coronavirus? U.S. Military Battles Competing Instincts**\
-`The Navy has so far refused to completely evacuate the Theodore Roosevelt, an aircraft carrier where 93 service members have been confirmed to be infected.`\
-https://nytimes.com/2020/04/01/us/politics/coronavirus-aircraft-carrier-roosevelt.html?searchResultPosition=5
+**Beyond Trump's Wall: The Americans Riding Out Coronavirus in Latin America**\
+`Some Americans, from young backpackers to retirees, are hunkering down for the coronavirus pandemic far from home in Latin America, saying they feel safer and see no point in scrambling to return.`\
+https://nytimes.com/reuters/2020/04/01/world/americas/01reuters-health-coronavirus-latam-stranded-feature.html?searchResultPosition=5
 
-**U.N. Nuclear Agency Sending Coronavirus Testing Gear to 40 Countries**\
-`The U.N. atomic agency is sending an initial batch of equipment to about 40 countries with which they will be able to perform a standard test for the coronavirus involving a technique derived from nuclear science, it said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/01/world/01reuters-health-coronavirus-testing-aid.html?searchResultPosition=6
+**California Coronavirus Hospitalizations Will Exceed Available Beds in May: Governor**\
+`California's aggressive stay-at-home measures are improving the prospects for slowing the coronavirus pandemic, but the state is still on track to run out of hospital beds in mid-May, Governor Gavin Newsom said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/01/us/01reuters-health-coronavirus-usa-california.html?searchResultPosition=6
 
-**Becton Dickinson, BioMedomics Launch Test to Detect Past, Current Coronavirus Exposure**\
-`Becton Dickinson and Co and diagnostics company BioMedomics on Tuesday said they will launch a diagnostic test that can detect current or past exposure to the coronavirus within minutes, and can be used in doctors' offices, as well as other settings. `\
-https://nytimes.com/reuters/2020/04/01/us/01reuters-coronavirus-becton-dickinson.html?searchResultPosition=7
+**Biden: A Normal Convention 'Hard to Imagine' as Scheduled**\
+`The coronavirus pandemic is forcing Democrats and Republicans to take a close look at whether they'll be able to move forward as planned this summer with conventions that typically kick off the general election season.`\
+https://nytimes.com/aponline/2020/04/01/us/politics/ap-us-election-2020-conventions.html?searchResultPosition=7
 
-**Story on FDA Authorizing New Test Kit for Coronavirus Withdrawn**\
-`The March 31 story on BodySphere receiving FDA authorization for a rapid antibody test for coronavirus has been withdrawn. In a statement to Reuters, BodySphere said it has not received this authorization. There will be no replacement story.`\
-https://nytimes.com/reuters/2020/04/01/us/01reuters-health-coronavirus-bodysphere.html?searchResultPosition=8
+**Challengers Rev Their Engines to Fight Trump's Auto Emissions Weakening**\
+`Just two months after taking office, President Donald Trump in March 2017 traveled to Michigan to announce that he would undo ambitious vehicle emissions standards mandated under his predecessor Barack Obama, portraying the reversal as a boost to the U.`\
+https://nytimes.com/reuters/2020/04/01/business/01reuters-usa-autos-emissions-analysis.html?searchResultPosition=8
 
-**Rangers Vet Choo Giving $1K Each to 191 Texas Minor Leaguers**\
-`Rangers veteran Shin-Soo Choo is helping out financially strapped minor league players with the season on hold, giving $1,000 each to 191 of them who are in the Texas organization.`\
-https://nytimes.com/aponline/2020/04/01/sports/baseball/ap-bba-rangers-choos-gift.html?searchResultPosition=9
+**Oil Market Shock to Spill Over Into Global Supply Chains: IEA**\
+`The global crisis caused by the coronavirus pandemic will be felt throughout oil's global supply chains and ripple into other parts of the energy sector, the International Energy Agency (IEA) said in a report on Wednesday.`\
+https://nytimes.com/reuters/2020/04/01/business/01reuters-global-oil-iea.html?searchResultPosition=9
 
-**Editorial Roundup: US**\
-`Excerpts from recent editorials in the United States and abroad:`\
-https://nytimes.com/aponline/2020/04/01/us/ap-us-editorial-rdp-.html?searchResultPosition=10
+**For Mohawk Community That Straddles Canada and U.S., the Border Is No Barrier to Coronavirus**\
+`Canada and the United States have closed their border to non-essential traffic to limit the spread of the new coronavirus, but one rural corner of the vast frontier remains open: an indigenous territory that straddles the two countries.  `\
+https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-health-coronavirus-canada-usa-feature.html?searchResultPosition=10
 
