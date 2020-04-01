@@ -1,36 +1,36 @@
-**Coronavirus in North Carolina: Map and Case Count**\
-`A detailed county map shows the extent of the coronavirus outbreak, with tables of the number of cases by county. `\
-https://nytimes.com/interactive/2020/us/north-carolina-coronavirus-cases.html?searchResultPosition=2
+**A 'Solidarity Menu' for Poor Colombians, Migrant Venezuelans**\
+`Emiliano Moscoso fights back tears.`\
+https://nytimes.com/aponline/2020/04/01/us/ap-virus-outbreak-one-good-thing-colombia.html?searchResultPosition=2
 
-**Coronavirus in New York: Map and Case Count**\
+**Coronavirus in Wyoming: Map and Case Count**\
 `A detailed county map shows the extent of the coronavirus outbreak, with tables of the number of cases by county. `\
-https://nytimes.com/interactive/2020/us/new-york-coronavirus-cases.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/us/wyoming-coronavirus-cases.html?searchResultPosition=3
 
-**Watch Live: Cuomo Delivers Coronavirus Update**\
-`Gov. Andrew Cuomo of New York gives an update on coronavirus cases in the state as the number continues to rise.`\
-https://nytimes.com/video/us/politics/100000007065647/cuomo-coronavirus.html?searchResultPosition=4
-
-**Coronavirus in New Mexico: Map and Case Count**\
+**Coronavirus in Wisconsin: Map and Case Count**\
 `A detailed county map shows the extent of the coronavirus outbreak, with tables of the number of cases by county. `\
-https://nytimes.com/interactive/2020/us/new-mexico-coronavirus-cases.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/us/wisconsin-coronavirus-cases.html?searchResultPosition=4
 
-**Coronavirus in New Jersey: Map and Case Count**\
+**Coronavirus in West Virginia: Map and Case Count**\
 `A detailed county map shows the extent of the coronavirus outbreak, with tables of the number of cases by county. `\
-https://nytimes.com/interactive/2020/us/new-jersey-coronavirus-cases.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/us/west-virginia-coronavirus-cases.html?searchResultPosition=5
 
-**Coronavirus in New Hampshire: Map and Case Count**\
+**Coronavirus in Washington: Map and Case Count**\
 `A detailed county map shows the extent of the coronavirus outbreak, with tables of the number of cases by county. `\
-https://nytimes.com/interactive/2020/us/new-hampshire-coronavirus-cases.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/us/washington-coronavirus-cases.html?searchResultPosition=6
 
-**Coronavirus in Nevada: Map and Case Count**\
+**Coronavirus in Virginia: Map and Case Count**\
 `A detailed county map shows the extent of the coronavirus outbreak, with tables of the number of cases by county. `\
-https://nytimes.com/interactive/2020/us/nevada-coronavirus-cases.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/us/virginia-coronavirus-cases.html?searchResultPosition=7
 
-**Coronavirus in Nebraska: Map and Case Count**\
+**Coronavirus in Vermont: Map and Case Count**\
 `A detailed county map shows the extent of the coronavirus outbreak, with tables of the number of cases by county. `\
-https://nytimes.com/interactive/2020/us/nebraska-coronavirus-cases.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/us/vermont-coronavirus-cases.html?searchResultPosition=8
 
-**Coronavirus in Montana: Map and Case Count**\
+**Coronavirus in Utah: Map and Case Count**\
 `A detailed county map shows the extent of the coronavirus outbreak, with tables of the number of cases by county. `\
-https://nytimes.com/interactive/2020/us/montana-coronavirus-cases.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/us/utah-coronavirus-cases.html?searchResultPosition=9
+
+**Coronavirus in Texas: Map and Case Count**\
+`A detailed county map shows the extent of the coronavirus outbreak, with tables of the number of cases by county. `\
+https://nytimes.com/interactive/2020/us/texas-coronavirus-cases.html?searchResultPosition=10
 
