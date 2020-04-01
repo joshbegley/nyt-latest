@@ -1,40 +1,40 @@
-**Chinese Buyers Snap Up U.S. Oil Purchases at Widest Discounts Ever**\
-`China has increased U.S. crude purchases with some buyers snapping up cargoes at the widest discounts ever as sellers seek to offload excess supplies in Asia, six trade sources said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/01/business/01reuters-global-oil-usa-china.html?searchResultPosition=1
+**The 18 Best TV Shows for Vicarious Travel Thrills**\
+`Circle the globe with these international thrillers, comedies, dramas and documentaries.`\
+https://nytimes.com/2020/04/01/travel/television-international.html?searchResultPosition=1
 
-**Germany Pledges 2 Billion Euros to Help Start-Ups Through Coronavirus Crisis**\
-`Germany is planning to allocate 2 billion euros ($2.19 billion) to help support start-ups during the coronavirus crisis, Finance Minister Olaf Scholz said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-health-coronavirus-economy-startups.html?searchResultPosition=2
+**Why the Global Recession Could Last a Long Time**\
+`Fears are growing that the worldwide economic downturn could be especially deep and lengthy, with recovery limited by continued anxiety.`\
+https://nytimes.com/2020/04/01/business/economy/coronavirus-recession.html?searchResultPosition=2
 
-**Racing to Stop Coronavirus, India Scours Mosques to Trace Contacts With Delhi Gathering**\
-`As coronavirus cases rose across densely-populated South Asia, authorities scoured mosques in northern India on Wednesday trying to trace people who attended the gathering of a Muslim group in New Delhi that later emerged as an infection hotspot. `\
-https://nytimes.com/reuters/2020/04/01/world/asia/01reuters-health-coronavirus-southasia.html?searchResultPosition=3
+**When All the Zingers Were Fit to Print**\
+`In 1978, a mischievous band of writers that included George Plimpton and Nora Ephron teamed to create a spoof of The New York Times. Turns out, Times journalists were among them.`\
+https://nytimes.com/2020/04/01/reader-center/times-satire-history.html?searchResultPosition=3
 
-**Glencore's Chrome Joint Venture in South Africa With Merafe Declares Force Majeure**\
-`Glencore's chrome joint venture in South Africa with Merafe Resources has declared force majeure on qualifying contracts after a nationwide lockdown forced operations to shut, a Merafe executive said.`\
-https://nytimes.com/reuters/2020/04/01/business/01reuters-health-coronavirus-glencore.html?searchResultPosition=4
+**Lewisboro, N.Y.: More Rural Than Suburban, With a Range of Housing**\
+`With more than 4,000 acres of protected land, this Westchester town is ideal for ‘forest bathing.’ But it’s only about an hour from Grand Central.`\
+https://nytimes.com/2020/04/01/realestate/lewisboro-ny-more-rural-than-suburban-with-a-range-of-housing.html?searchResultPosition=4
 
-**Boom in Denmark's Economy May Be Replaced by 10% Contraction, Central Bank Says**\
-`A boom in Denmark's economy may be replaced by a contraction of as much as 10% this year as the coronavirus outbreak hits the Nordic economy, the country's central bank said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-health-coronavirus-denmark-cenbank.html?searchResultPosition=5
+**The Spiky Blob Seen Around the World**\
+`How C.D.C. medical illustrators created the coronavirus pandemic’s most iconic image.`\
+https://nytimes.com/2020/04/01/health/coronavirus-illustration-cdc.html?searchResultPosition=5
 
-**Philippines Reports 227 New Coronavirus Cases, Eight More Deaths**\
-`The Philippines recorded 227 new coronavirus cases and eight more deaths on Wednesday, the health ministry said.`\
-https://nytimes.com/reuters/2020/04/01/world/asia/01reuters-health-coronavirus-philippines-cases.html?searchResultPosition=6
+**Is It Time for Americans to Embrace the Bidet?**\
+`In the United States, people are hoarding toilet paper and clogging sewer systems with wipes of all kinds. A little water could solve their problems.`\
+https://nytimes.com/2020/04/01/style/toilet-paper-shortage-bidet-coronavirus-wipes.html?searchResultPosition=6
 
-**Roadside Bombing in Afghanistan Kills 8, Mostly Children**\
-`A roadside bombing in southern Afghanistan on Wednesday killed at least eight civilians, including six children. `\
-https://nytimes.com/aponline/2020/04/01/world/asia/ap-as-afghanistan.html?searchResultPosition=7
+**How to Digitize Your Most Important Documents**\
+`If you have some spare time at home and want a productive project, consider creating a digital archive of your personal papers.`\
+https://nytimes.com/2020/04/01/technology/personaltech/digitizing-important-documents.html?searchResultPosition=7
 
-**Postcards From Wuhan: Residents Tell the World to Stay Strong, Stay Indoors**\
-`Life in the Chinese city of Wuhan, where the coronavirus first emerged, is slowly returning to normal as the government relaxes a more than two-month-old lockdown that cut the city off from the world and kept most of its 11 million residents at home.`\
-https://nytimes.com/reuters/2020/04/01/world/asia/01reuters-health-coronavirus-china-wuhan.html?searchResultPosition=8
+**I’m a Red-State Mayor and I Ordered My City to Stay Home**\
+`Many people thanked me for taking action to save lives. Others compared me to Hitler.`\
+https://nytimes.com/2020/04/01/opinion/tulsa-lockdown-coronavirus.html?searchResultPosition=8
 
-**UK Factories Suffer Biggest Hit Since 2012 at Onset of Coronavirus Crisis: PMI**\
-`Output from Britain's manufacturing sector shrank at the fastest pace since the euro zone debt crisis in March as the spread of coronavirus led to a spiraling of delays and hammered business confidence, a survey showed on Wednesday.`\
-https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-britain-economy-pmi.html?searchResultPosition=9
+**Living In ... Lewisboro, N.Y.**\
+`With more than 4,000 acres of protected land, this Westchester town is ideal for ‘forest bathing.’ But it’s only about an hour from Grand Central.`\
+https://nytimes.com/slideshow/2020/04/01/realestate/living-in-lewisboro-ny.html?searchResultPosition=9
 
-**Italy's Coronavirus Lockdown Measures to Be Extended to April 13: Minister**\
-`Italy will extend anti-coronavirus lockdown restrictions imposed last month to April 13, Health Minister Roberto Speranza said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-health-coronavirus-italy-lockdown.html?searchResultPosition=10
+**Covid-19 Changed How the World Does Science, Together**\
+`Never before, scientists say, have so many of the world’s researchers focused so urgently on a single topic. Nearly all other research has ground to a halt.`\
+https://nytimes.com/2020/04/01/world/europe/coronavirus-science-research-cooperation.html?searchResultPosition=10
 
