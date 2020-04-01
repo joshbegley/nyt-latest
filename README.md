@@ -1,36 +1,36 @@
-**The Coronavirus Patients Betrayed by Their Own Immune Systems**\
-`A “cytokine storm” becomes an all-too-frequent phenomenon, particularly among the young. But treatments are being tested.`\
-https://nytimes.com/2020/04/01/health/the-coronavirus-patients-betrayed-by-their-own-immune-systems.html?searchResultPosition=2
+**The Rev. Joseph O’Hare, Resourceful President of Fordham, Dies at 89**\
+`He transformed the university into a national institution and played a major civic role as the overseer of New York City’s public campaign finance law.`\
+https://nytimes.com/2020/04/01/education/rev-joseph-ohare-dead.html?searchResultPosition=2
 
-**Dr. James T. Goodrich, Who Operated on Conjoined Twins, Dies at 73**\
-`Dr. Goodrich led teams that did a series of celebrated surgeries. He was a victim of the coronavirus.`\
-https://nytimes.com/2020/04/01/obituaries/dr-james-t-goodrich-dead-coronavirus.html?searchResultPosition=3
+**New York Governor Cuomo Says Will Close Down New York City Playgrounds**\
+`New York Governor Andrew Cuomo said he would close down the playgrounds in New York City in an effort to bolster social distancing steps and limit the number of coronavirus-related deaths, which are approaching 2,000 in the state.`\
+https://nytimes.com/reuters/2020/04/01/us/01reuters-health-coronavirus-usa-new-york.html?searchResultPosition=3
 
-**Simone Biles on 2021 Olympics: 'Nothing Is Set in Stone'**\
-`There's a large whiteboard calendar on a wall inside the massive gym owned by Simone Biles' family that outlines every major gymnastics event of the year, the 2020 Olympics included.`\
-https://nytimes.com/aponline/2020/04/01/sports/olympics/ap-oly-tokyo-biles.html?searchResultPosition=4
+**Cruise Ship Passengers Await Florida Deal Allowing Them to Disembark**\
+`The U.S. government and Florida were working on a plan on Wednesday to allow thousands of cruise ship passengers exposed to an onboard coronavirus outbreak to disembark, a day after President Donald Trump urged the governor to drop his opposition to their docking.`\
+https://nytimes.com/reuters/2020/04/01/us/01reuters-health-coronavirus-usa.html?searchResultPosition=4
 
-**Wisconsin Governor Deploys National Guard to Help at Polls**\
-`Wisconsin's governor said Wednesday that he will use National Guard soldiers to staff undermanned polling sites in next week's presidential primary. `\
-https://nytimes.com/aponline/2020/04/01/us/ap-us-virus-outbreak-wisconsin-election-5th-ld-writethru.html?searchResultPosition=5
+**Democrat Sanders Calls on Wisconsin to Postpone Tuesday Primary**\
+`Democratic presidential candidate Bernie Sanders on Wednesday called on Wisconsin to postpone its April 7 primary, citing the risk from the novel coronavirus.`\
+https://nytimes.com/reuters/2020/04/01/us/politics/01reuters-usa-election-wisconsin-sanders.html?searchResultPosition=5
 
-**FDA Wants Heartburn Meds Off the Market Due to Contamination**\
-`U.S. health regulators are telling drugmakers to immediately pull their popular heartburn drugs off the market after determining that a contamination issue with the medications poses a greater risk than previously thought.`\
-https://nytimes.com/aponline/2020/04/01/health/bc-us-med-contaminated-drugs-heartburn.html?searchResultPosition=6
+**Second Inmate at Louisiana's Oakdale Prison Dies From Coronavirus Illness, Official Says**\
+`A second inmate at the federal prison in Oakdale, Louisiana has died from the illness caused by the new coronavirus, a spokesman for the Bureau of Prisons (BOP) confirmed to Reuters on Wednesday.`\
+https://nytimes.com/reuters/2020/04/01/us/01reuters-health-coronavirus-prison-death.html?searchResultPosition=6
 
-**12 Family-Friendly Nature Documentaries**\
-`“March of the Penguins,” “Monkey Kingdom” and more illuminate the wonders of our planet from the safety of your couch.`\
-https://nytimes.com/2020/04/01/arts/television/nature-documentaries-virus.html?searchResultPosition=7
+**‘Joy in the Grief’: Musicians Are Making Art in a Pandemic**\
+`With performances on hold because of the coronavirus, what are artists like Barbra Streisand and Michael Tilson Thomas working on at home?`\
+https://nytimes.com/2020/04/01/arts/music/coronavirus-classical-music.html?searchResultPosition=7
 
-**Taliban Ready to Begin Cease-Fires in Virus-Hit Afghan Areas**\
-`The Taliban said Wednesday the group was ready to declare a cease-fire in areas of Afghanistan under its control if they are hit by a coronavirus outbreak. `\
-https://nytimes.com/aponline/2020/04/01/world/asia/ap-as-virus-outbreak-afghanistan-taliban.html?searchResultPosition=8
+**Pelosi Urges U.S. Treasury Not to Delay $25 Billion in Grants to Airlines**\
+`U.S. House Speaker Nancy Pelosi urged the U.S. Treasury on Wednesday not to hold up $25 billion in cash grants approved by Congress last week to airlines for payroll costs.`\
+https://nytimes.com/reuters/2020/04/01/business/01reuters-health-coronavirus-airlines-pelosi.html?searchResultPosition=8
 
-**28 Texas Students Have Coronavirus After Spring Break Trip**\
-`A group of about 70 students from the University of Texas at Austin celebrated spring break in Mexico, but returned to find that 28 had tested positive. Dozens more are being monitored.`\
-https://nytimes.com/2020/04/01/us/coronavirus-texas-austin-spring-break-cabo.html?searchResultPosition=9
+**WarnerMedia Taps Ex-Hulu Chief Jason Kilar as CEO**\
+`AT&T Inc on Wednesday named Jason Kilar, former head of video streaming platform Hulu, as chief executive officer of its WarnerMedia unit starting in May, when it plans to launch its HBO Max service to compete with streaming heavyweights Netflix and Disney+.`\
+https://nytimes.com/reuters/2020/04/01/business/01reuters-at-t-moves-jason-kilar.html?searchResultPosition=9
 
-**George Preti, 75, Dies; Studied Bodily Odors as Biological Clues**\
-`In his “bizarre niche” of science, he sought to weaponize odors as a means to sniff out disease, even using dogs to do so.`\
-https://nytimes.com/2020/04/01/science/george-preti-dead.html?searchResultPosition=10
+**U.S. Postpones Immigration Asylum Hearings Again Due to Coronavirus**\
+`The U.S. government said on Wednesday it had postponed for a second time hearings for asylum-seeking migrants in Mexico due to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/01/world/americas/01reuters-health-coronavirus-usa-immigration.html?searchResultPosition=10
 
