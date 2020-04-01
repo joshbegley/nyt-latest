@@ -1,40 +1,40 @@
+**Deutsche Bank Mulls Waiving 2020 Management Bonuses Due to Coronavirus: Source**\
+`Deutsche Bank is discussing whether it will waive bonuses for its management board in 2020 due to the fallout from the coronavirus crisis, a person with knowledge of the matter said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/01/business/01reuters-health-coronavirus-deutsche-bank.html?searchResultPosition=1
+
+**Vietnam's Coronavirus Cases Climb to 218, No Deaths: Health Ministry**\
+`Vietnam's health ministry reported 11 more confirmed coronavirus cases on Wednesday, bringing the total there to 218.`\
+https://nytimes.com/reuters/2020/04/01/world/asia/01reuters-health-coronavirus-vietnam.html?searchResultPosition=2
+
+**Sheriff: Man Wanted; Accused of Triple Slaying, Taking Child**\
+`Authorities in Georgia are searching for a man accused of fatally shooting three people in his child's mother's family, and then leaving with the child.`\
+https://nytimes.com/aponline/2020/04/01/us/ap-us-triple-slaying-child-taken-1st-ld-writethru.html?searchResultPosition=3
+
+**$500,000 Homes in Mississippi, Missouri and New York**\
+`A 1916 Tudor Revival in Jackson, a condo in a landmark Kansas City Beaux-Arts building and a log cabin in Pawling.`\
+https://nytimes.com/2020/04/01/realestate/500000-homes-in-mississippi-missouri-and-new-york.html?searchResultPosition=4
+
+**What You Get for $500,000**\
+`A 1916 Tudor Revival in Jackson, Miss.; a condo in a landmark Beaux-Arts building in Kansas City, Mo.; and a log cabin in Pawling, N.Y.`\
+https://nytimes.com/slideshow/2020/04/01/realestate/what-you-get-for-500000.html?searchResultPosition=5
+
+**1.5 Million Israelis Using Voluntary Coronavirus Monitoring App**\
+`Around 1.5 million Israelis have downloaded a mobile app in the past week that alerts users who have crossed paths with a coronavirus patient, according to the Health Ministry, helping to improve tracking of the pandemic.`\
+https://nytimes.com/reuters/2020/04/01/world/01reuters-health-coronavirus-israel-apps.html?searchResultPosition=6
+
+**Start-Ups Are Pummeled in the ‘Great Unwinding’**\
+`Dozens have laid off thousands, slashed costs and changed their businesses to try to survive the pandemic. All that may not work.`\
+https://nytimes.com/2020/04/01/technology/virus-start-ups-pummeled-layoffs-unwinding.html?searchResultPosition=7
+
 **‘How Do You Decide When to Open the World Back Up?’**\
 `Wednesday: Dr. Bob Wachter of the University of California, San Francisco, talks about the numbers he’s tracking and what they say.`\
-https://nytimes.com/2020/04/01/us/coronavirus-california-new-york-testing.html?searchResultPosition=1
+https://nytimes.com/2020/04/01/us/coronavirus-california-new-york-testing.html?searchResultPosition=8
 
 **Exclusive: Japan Businessman Paid $8.2 Million by Tokyo Olympics Bid Lobbied Figure at Center of French Corruption Probe**\
 `A businessman who received millions of dollars for his work on Tokyo's successful campaign to host the 2020 Olympics, which was postponed last week due to the coronavirus, said he played a key role in securing the support of a former Olympics powerbroker suspected by French prosecutors of taking bribes to help Japan's bid.`\
-https://nytimes.com/reuters/2020/04/01/sports/olympics/01reuters-olympics-2020-lobbying-exclusive.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/01/sports/olympics/01reuters-olympics-2020-lobbying-exclusive.html?searchResultPosition=9
 
 **Whiting Begins Chapter 11 Bankruptcy Proceeding as Oil Prices Hover at $20**\
 `Whiting Petroleum Corp said on Wednesday it had started Chapter 11 bankruptcy proceeding amid a rout in crude oil prices that has seen fuel plunge to 18-year lows. `\
-https://nytimes.com/reuters/2020/04/01/business/01reuters-whiting-petrol-bankruptcy.html?searchResultPosition=3
-
-**Edinburgh Festivals Canceled as Coronavirus Effects Stretch Into Summer**\
-`This August’s Edinburgh International Festival and its Fringe, two of theater and comedy’s most important events, are no more.`\
-https://nytimes.com/2020/04/01/theater/coronavirus-edinburgh-festival-fringe-canceled.html?searchResultPosition=4
-
-**Virus Cases in NYC Top 1,000 as City Prepares for Worse**\
-`Deaths from the coronavirus topped 1,000 in New York City as officials warned that the worst of the virus' toll is yet to come.`\
-https://nytimes.com/aponline/2020/04/01/us/ap-us-virus-outbreak-new-york-1st-ld-writethru.html?searchResultPosition=5
-
-**4 Ways to Help Your Anxious Kid**\
-`First, acknowledge ways the coronavirus has changed their lives.`\
-https://nytimes.com/2020/04/01/parenting/coronavirus-help-anxious-kid.html?searchResultPosition=6
-
-**NATO Seeks to Speed Up Medical Aid Deliveries, Wary of Russian Drills**\
-`NATO will speed up deliveries of medical aid to allies suffering the most from the coronavirus but must focus on defending Europe, the alliance's chief said, after large Russian war games that were seen by allies as a signal from Moscow.`\
-https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-health-coronavirus-nato.html?searchResultPosition=7
-
-**Erdogan Says Turkey May Need Further Measures if Citizens Ignore 'Voluntary Quarantine'**\
-`Turkey will have to take additional measures if the coronavirus outbreak widens and citizens don't abide by a "voluntary quarantine," President Tayyip Erdogan said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/01/world/europe/01reuters-health-coronavirus-turkey-erdogan.html?searchResultPosition=8
-
-**What You Need to Know Today About the Virus Outbreak**\
-`Distressing images of morgue trucks in New York City, taking away the rising number of dead from the coronavirus, have underscored the latest grim projections for the entire country. `\
-https://nytimes.com/aponline/2020/04/01/us/ap-us-virus-outbreakwhats-happening-.html?searchResultPosition=9
-
-**What Happened After ‘Tiger King’**\
-`The former zookeeper known as Joe Exotic filed a lawsuit. Carole Baskin, who runs Big Cat Rescue, condemned how the series handled her husband’s disappearance. And a Florida sheriff asked for tips.`\
-https://nytimes.com/article/tiger-king-updates.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/01/business/01reuters-whiting-petrol-bankruptcy.html?searchResultPosition=10
 
