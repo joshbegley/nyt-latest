@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-thailand-horses.html
 `The coronavirus has been a far deadlier threat in New Orleans than the rest of the United States, with a per-capita death rate much higher than in New York City.`\
 https://nytimes.com/reuters/2020/04/02/us/02reuters-health-coronavirus-new-orleans.html?searchResultPosition=7
 
-**E.U. Court Rules That 3 Countries Broke Agreement to Take In Refugees**\
-`The Czech Republic, Hungary and Poland failed to comply with a deal to distribute across the bloc 160,000 asylum seekers who had arrived in Greece and Italy, according to the ruling.`\
+**E.U. Court Rules 3 Countries Violated Agreement to Take In Refugees**\
+`Poland, Hungary and the Czech Republic failed to live up to their end of a European Union deal to distribute 160,000 asylum seekers who had arrived in Greece and Italy, the court said.`\
 https://nytimes.com/2020/04/02/world/europe/european-court-refugees-hungary-poland-czech-republic.html?searchResultPosition=8
 
 **MotoGP Start Pushed Back Further as French Race Postponed**\
