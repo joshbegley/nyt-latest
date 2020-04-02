@@ -1,36 +1,36 @@
+**Protect Your Home Against the Onslaught**\
+`With your family at home 24 hours a day, consider these tips to keep your appliances functioning, the mess to a minimum and the clutter at bay.`\
+https://nytimes.com/2020/04/02/smarter-living/protect-your-home-against-the-onslaught.html?searchResultPosition=2
+
+**Missing the Theater? Trade Playbills for These Novels**\
+`Two theater critics suggest some of their favorite books about the theater, giving us portals to a world that is now forbidden.`\
+https://nytimes.com/2020/04/02/theater/theater-novels-coronavirus.html?searchResultPosition=3
+
+**Banks Warn of ‘Overwhelming’ Demand and Messy Start for Small Business Loans**\
+`The government has promised to lend $349 billion to small businesses starting Friday, but banks and owners have no idea how it will play out.`\
+https://nytimes.com/2020/04/02/business/small-business-coronavirus-stimulus.html?searchResultPosition=4
+
+**‘The Fields Heal Everyone’: Post-Soviet Leaders’ Coronavirus Denial**\
+`The heads of several former Soviet republics have persisted in playing down the severity of the coronavirus pandemic, with some also promoting unproven folk remedies.`\
+https://nytimes.com/2020/04/02/world/asia/coronavirus-denial-post-soviet.html?searchResultPosition=5
+
+**How Far Should Police Go in Enforcing Coronavirus Lockdowns?**\
+`Around the world, police forces are testing how far to go in punishing ordinary behavior — sometimes with batons, tear gas and even guns.`\
+https://nytimes.com/2020/04/02/world/australia/coronavirus-police-lockdowns.html?searchResultPosition=6
+
 **Engineer Crashes Train Near Hospital Ship in Los Angeles**\
 `Nobody was injured and the ship, sent to bolster the health care system during the coronavirus outbreak, was not damaged. The man told the authorities he had suspicions about the ship’s true purpose.`\
-https://nytimes.com/2020/04/02/us/train-crash-los-angeles-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2020/04/02/us/train-crash-los-angeles-coronavirus.html?searchResultPosition=7
 
 **EU Commission Apologises to Italy Over Coronavirus Response**\
 `The head of the European Commission apologised to Italy on Thursday for a lack of solidarity from Europe in tackling its coronavirus crisis, but promised greater help in dealing with the economic fallout.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-italy.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-italy.html?searchResultPosition=8
 
 **EU Justice Chief Urges U.S. Tech Giants to Halt Virus Clickbaits**\
 `EU justice chief Vera Jourova on Thursday criticised U.S. tech giants such as Google and Facebook for making money off coronavirus-related fake news instead of putting in more efforts to stop the deluge.`\
-https://nytimes.com/reuters/2020/04/02/technology/02reuters-health-coronavirus-eu-tech.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/02/technology/02reuters-health-coronavirus-eu-tech.html?searchResultPosition=9
 
 **13 Uplifting Documentaries on Netflix**\
 `Find stories of overlooked artists in the music industry, a Hollywood starlet who was also an inventor, athletes who summit a mountain and more.`\
-https://nytimes.com/2020/04/02/movies/netflix-happy-documentaries-virus.html?searchResultPosition=5
-
-**World Games Postponed to 2022 to Avoid Tokyo Olympics Clash**\
-`The 2021 World Games have been pushed back by a year to avoid clashing with the Tokyo Olympics which were rescheduled due to the coronavirus pandemic, World Games organisers said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/sports/olympics/02reuters-health-coronavirus-worldgames.html?searchResultPosition=6
-
-**Saudi Crown Prince and Trump Discussed Global Energy Markets Over Phone: State News Agency**\
-`Saudi crown prince Mohammed bin Salman and U.S. President, Donald Trump talked over the phone on Thursday and discussed global energy markets, according to the state news agency.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-global-oil-saudi-us.html?searchResultPosition=7
-
-**National Committees Have Final Say on Qualified Athletes for Tokyo Games**\
-`Athletes already qualified for the Tokyo 2020 Olympics will need to be picked again by their respective National Olympic Committees to compete at the postponed Games in 2021, the International Olympic Committee said on Thursday. `\
-https://nytimes.com/reuters/2020/04/02/sports/soccer/02reuters-health-coronavirus-olympics.html?searchResultPosition=8
-
-**PIMCO Sees Short, Severe Recession; Positioned Defensively**\
-`Pacific Investment Management Co (PIMCO), one of the world's largest investment firms, told clients on Thursday the coronavirus outbreak is likely to cause a short and severe recession, and that the risk of a slow recovery or a relapse will keep its investment strategy defensive for the time being. `\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-health-coronavirus-pimco.html?searchResultPosition=9
-
-**Hungary, Eager for Loan, Wants to Classify Details of Budapest-Belgrade Chinese Rail Project**\
-`Hungary wants to classify all data included in contracts for the $2.1 billion, tax-payer funded Budapest-Belgrade rail project for ten years, according to draft legislation, to ensure a loan deal is signed "as soon as possible".`\
-https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-hungary-china-rail-legislation.html?searchResultPosition=10
+https://nytimes.com/2020/04/02/movies/netflix-happy-documentaries-virus.html?searchResultPosition=10
 
