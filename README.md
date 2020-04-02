@@ -1,36 +1,36 @@
+**Global Coronavirus Cases Top One Million: Johns Hopkins Tally**\
+`Global coronavirus cases topped 1 million on Thursday as the pandemic explodes in the United States and the death toll continues to climb in Italy and Spain, according to a tally by Johns Hopkins University.`\
+https://nytimes.com/reuters/2020/04/02/us/02reuters-health-coronavirus-cases.html?searchResultPosition=2
+
+**Music, Theater and More to Experience at Home This Weekend**\
+`Our writers offer suggestions for what to watch, read or listen to while we’re housebound.`\
+https://nytimes.com/2020/04/02/arts/things-to-do-this-weekend-virus.html?searchResultPosition=3
+
+**US Allowing Longer Shifts at Nuclear Plants in Pandemic**\
+`U.S. nuclear plants will be allowed to keep workers on longer shifts to deal with staffing problems in the coronavirus pandemic, raising worries among watchdogs and some families living near reactors that employee exhaustion will increase the risks of accidents.`\
+https://nytimes.com/aponline/2020/04/02/business/bc-us-virus-outbreak-nuclear-plants.html?searchResultPosition=4
+
+**What Pregnant Women Should Know About Coronavirus**\
+`The risks, so far, seem no greater than for anyone else, but the research is thin and only applies to later stage of pregnancy.`\
+https://nytimes.com/article/pregnancy-coronavirus.html?searchResultPosition=5
+
+**Turning the Tables, Russia Sends Virus Aid to U.S.**\
+`A planeload of coronavirus aid to New York was a propaganda coup for the Kremlin — tempered by an intensifying epidemic at home.`\
+https://nytimes.com/2020/04/02/world/europe/coronavirus-us-russia-aid.html?searchResultPosition=6
+
+**Starboard Pushes Forward With Proxy Fight at GCP Applied Technologies**\
+`Activist investor Starboard Value is pushing ahead with a proxy contest at GCP Applied Technologies, arguing that its director nominees would steer the chemical company through the current economic crisis more successfully than the current board.`\
+https://nytimes.com/reuters/2020/04/02/business/02reuters-gcp-applied-tech-starboard.html?searchResultPosition=7
+
 **The World’s Great Photographers, Now Insiders, Are Posting Quarantine Pics**\
 `Stephen Shore, Catherine Opie, Todd Hido and others have turned to Instagram — to cure corona claustrophobia or show how life has changed.`\
-https://nytimes.com/2020/04/02/arts/instagram-photographers-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2020/04/02/arts/instagram-photographers-coronavirus.html?searchResultPosition=8
 
 **U.S. Army Rolls Into Seattle With Field Hospital Built for Combat**\
 `Army Specialist Jordan Acosta thinks his family would have been more comfortable seeing him deploy to Iraq than this field hospital in the U.S. city of Seattle, one of the hardest-hit by the coronavirus.`\
-https://nytimes.com/reuters/2020/04/02/us/02reuters-health-coronavirus-usa-seattle-army.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/02/us/02reuters-health-coronavirus-usa-seattle-army.html?searchResultPosition=9
 
 **What You Need to Do to Get Your Government Stimulus Check**\
 `The IRS and the Treasury Department say Americans will start receiving their economic impact checks within the next few weeks. `\
-https://nytimes.com/aponline/2020/04/02/business/ap-us-stimulus-checks-qa.html?searchResultPosition=4
-
-**How Are You Observing Passover During the Coronavirus Outbreak?**\
-`We would like to hear how you are adapting your plans for Passover during a time when families and communities are usually together.`\
-https://nytimes.com/2020/04/02/us/observing-passover-during-coronavirus-outbreak.html?searchResultPosition=5
-
-**Things to Do in N.Y.C. This Weekend While Staying Inside**\
-`A weekly guide to maintaining a social life while social distancing.`\
-https://nytimes.com/2020/04/02/nyregion/nyc-things-to-do-coronavirus-quarantine.html?searchResultPosition=6
-
-**Chilean Capital Gets Another Visit From Cougar Amid Coronavirus Lockdown**\
-`Chilean authorities captured a second cougar in little more than a week late Wednesday after the cat was spotted strolling through an upscale suburb of Santiago amid the evening quiet imposed by a nationwide, nightime curfew due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/02/world/americas/02reuters-health-coronavirus-chile-puma.html?searchResultPosition=7
-
-**Bolsonaro Says Coronavirus 'Not All It's Being Made Out to Be'**\
-`Brazilian President Jair Bolsonaro continued to downplay the coronavirus epidemic on Thursday, saying it is "not all it's being made out to be" and denying that any hospital in the country has reached its full capacity due to the outbreak.`\
-https://nytimes.com/reuters/2020/04/02/world/americas/02reuters-health-coronavirus-brazil-hospitals.html?searchResultPosition=8
-
-**Fish-Oil Firm Keeps 'Sustainable' Label Despite Controversy**\
-`A company that makes fish-oil supplements will keep its certification for sustainable fishing despite defiance of catch limits in the Chesapeake Bay.`\
-https://nytimes.com/aponline/2020/04/02/business/ap-us-atlantic-menhaden-sustainability-certification.html?searchResultPosition=9
-
-**Patriots Use Team Plane to Help Mass., Fly N95 in From China**\
-`Massachusetts Gov. Charlie Baker found himself in need of an assist to help the state fight the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/04/02/sports/football/ap-fbn-patriots-masks-assist.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/02/business/ap-us-stimulus-checks-qa.html?searchResultPosition=10
 
