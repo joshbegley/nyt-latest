@@ -1,36 +1,36 @@
-**Small Boost for Italian Economy: German Demand for Pasta**\
-`Giant discount retailer Aldi said on Thursday it is laying on extra trains packed full of pasta from Italy to restock shelves after German shoppers stripped stores of non-perishable goods in the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-germany-aldi.html?searchResultPosition=2
+**UN: 95% of Europe's Virus Dead Over 60 but Young Not Immune**\
+`More than 95% of those who have died of coronavirus in Europe have been over 60 but young people should not be complacent, the head of the World Health Organization's office in Europe said Thursday.`\
+https://nytimes.com/aponline/2020/04/02/world/europe/ap-virus-outbreak-who.html?searchResultPosition=2
 
-**Automakers Can Face Dieselgate Suits Where Cars Bought: EU Court Adviser**\
-`EU consumers should be able to sue carmakers in their national courts if they have bought cars with emission cheat devices installed, an adviser to the Court of Justice of the European Union said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-volkswagen-emissions-eu.html?searchResultPosition=3
+**ECB Delays Strategy Review, Sintra Conference Amid Coronavirus**\
+`The European Central Bank has delayed its overarching strategy review by six months until mid-2021 to focus on fighting the economic impact of the coronavirus outbreak, it said on Thursday.`\
+https://nytimes.com/reuters/2020/04/02/us/02reuters-ecb-policy-review.html?searchResultPosition=3
 
-**Spanish WWII Liberator of Paris Dies of Coronavirus at 99**\
-`Rafael Gomez Nieto, the last surviving member of a company of Spanish soldiers that fought with French forces in liberating Paris from Nazi occupation in 1944, has died of the new coronavirus, the French presidency said Thursday. He was 99.`\
-https://nytimes.com/aponline/2020/04/02/world/europe/ap-eu-obit-gomez-nieto.html?searchResultPosition=4
+**On Politics: How Will the Economy Be Rebuilt?**\
+`Soaring unemployment and dreams of an infrastructure program: This is your morning tip sheet.`\
+https://nytimes.com/2020/04/02/us/politics/trump-coronavirus-economy.html?searchResultPosition=4
 
-**African Governments Team Up With Tech Giants to Fight Coronavirus Lies**\
-`Governments across Africa are teaming up with technology giants including Facebook and WhatsApp to fight misinformation about coronavirus on social media platforms that could propel the pandemic on a continent with shaky healthcare systems.      `\
-https://nytimes.com/reuters/2020/04/02/technology/02reuters-health-coronavirus-africa-social-media.html?searchResultPosition=5
+**Williams F1 Former Engineering Arm to Help Produce 5,000 Ventilators for UK**\
+`The former engineering unit of the Williams F1 team said it will help produce an initial batch of 5,000 ventilators for Britain's National Health Service as part of an engineering consortium which is scrambling to deliver 10,000 units.`\
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-britain-ventilators.html?searchResultPosition=5
 
-**Futures Rise After Selloff, Weekly Jobless Number Awaited**\
-`U.S. stock index futures climbed on Thursday, a day after Wall Street recorded its steepest fall in two weeks on intensifying coronavirus fears, with investors on edge ahead of another expected jump in weekly jobless claims.`\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-usa-stocks.html?searchResultPosition=6
+**India's Stranded Migrant Workers Struggle Under Virus Lockdown**\
+`India's 21-day lockdown to fight the coronavirus has left hundreds of migrant workers stranded in Mumbai, with no money, little food and even fewer options of leaving their squalid makeshift accommodation soon.`\
+https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-health-coronavirus-india-sanitation.html?searchResultPosition=6
 
-**H&M in Talks With Tens of Thousands of Staff to Cut Working Hours Due to Pandemic**\
-`Sweden's H&M said on Thursday it was in talks with tens of thousands of its staff about shortening working hours with the firm among many retailers hit by the coronavirus pandemic and fewer customers in many markets.`\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-health-coronavirus-h-m-staff.html?searchResultPosition=7
+**Over Half of Britons Say Government Was Too Slow on Coronavirus: Poll**\
+`More than a half of Britons think Prime Minister Boris Johnson's government was too slow to order a lockdown to slow the spread of coronavirus, an opinion poll published on Thursday showed.`\
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-britain-poll.html?searchResultPosition=7
 
-**Next EU Budget Should Be 'Marshall Plan' for Europe: EU's Von Der Leyen**\
-`The next EU budget should take the form of a new "Marshall Plan" to stoke Europe's recovery from the coronavirus crisis, European Commission president Ursula von der Leyen said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-health-coronavirus-eu-vonderleyen.html?searchResultPosition=8
+**Tourists Stranded in India Because of Coronavirus Lockdown**\
+`Tourists from Australia, Britain and Canada are stranded in India's capital after their vacations were abruptly ended by a three-week lockdown and international flights were halted because of the coronavirus.`\
+https://nytimes.com/aponline/2020/04/02/world/asia/ap-as-virus-outbreak-india-stranded-tourists.html?searchResultPosition=8
 
-**German Carmakers Had Crisis Call With Merkel: Handelsblatt**\
-`The bosses of Volkswagen, BMW and Daimler held a crisis call with German Chancellor Angela Merkel on Wednesday to discuss how to get production restarted, Germany's Handelsblatt newspaper reported on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-health-coronavirus-germany-automakers.html?searchResultPosition=9
+**‘Almost Love’ Review: Schooled in Romance, but Missing Class**\
+`This ensemble comedy treats class solidarity as the love that dare not speak its name.`\
+https://nytimes.com/2020/04/02/movies/almost-love-review.html?searchResultPosition=9
 
-**Exclusive: Coronavirus Volatility Sees Luxembourg Tighten Fund Redemption Scrutiny**\
-`Luxembourg, the European Union's largest investment hub has tightened its disclosure rules in the face of market volatility caused by the coronavirus and asked funds to disclose whenever client demand to exit exceeds 10% of total assets.`\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-health-coronavirus-luxembourg-funds-exclusive.html?searchResultPosition=10
+**‘The Other Lamb’ Review: Flock Therapy**\
+`A young woman begins to question the foundations of her religious sect in this visually stunning yet shallow feminist fable.`\
+https://nytimes.com/2020/04/02/movies/the-other-lamb-review.html?searchResultPosition=10
 
