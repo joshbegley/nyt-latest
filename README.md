@@ -1,36 +1,36 @@
+**Florida Debates Whether to Take Sickened Cruise Ship Passengers**\
+`The Zandaam cruise ship is approaching Fort Lauderdale, hoping to dock. But local officials are reluctant to take the ship’s sickened passengers into their crowded hospitals.`\
+https://nytimes.com/2020/04/02/us/coronavirus-cruise-zandaam-rotterdam-florida.html?searchResultPosition=2
+
+**What You Need to Know Today About the Virus Outbreak**\
+`More than 6.6 million Americans applied for unemployment benefits last wee k, far exceeding a record high set just last week, a sign that layoffs are accelerating in the midst of the coronavirus. `\
+https://nytimes.com/aponline/2020/04/02/us/ap-us-virus-outbreakwhats-happening-.html?searchResultPosition=3
+
+**US Trade Gap Falls to $39.9 in February, Lowest Since 2016**\
+`The U.S. trade deficit tumbled in February to the lowest level since 2016 as exports fell and imports fell more. The politically sensitive gap in the trade of goods with China narrowed in February when the world's No. 2 economy was locked down to combat the coronavirus outbreak..`\
+https://nytimes.com/aponline/2020/04/02/business/bc-us-trade-gap.html?searchResultPosition=4
+
+**U.S. Delivers 128 Anti-Tank Javelin Missiles to Estonia**\
+`The United States says it has delivered 128 anti-tank Javelin missiles to Estonia as part of a larger contract with the Baltic NATO member and the U.S. Department of Defense.`\
+https://nytimes.com/aponline/2020/04/02/business/ap-eu-estonia-us-missiles.html?searchResultPosition=5
+
 **Coronavirus Compounds Lebanon's Woes, Many Struggle for Food**\
 `Battered by Lebanon's economic crisis, Hassan Zeitar was already struggling to keep his family fed when the coronavirus lockdown stripped him of the little money he made as a minibus driver.`\
-https://nytimes.com/reuters/2020/04/02/world/middleeast/02reuters-health-coronavirus-lebanon-poverty.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/02/world/middleeast/02reuters-health-coronavirus-lebanon-poverty.html?searchResultPosition=6
 
 **Saudi Arabia Imposes 24-Hour Curfew in Mecca and Medina**\
 `Saudi Arabia imposed a 24-hour curfew in the Muslim holy cities of Mecca and Medina on Thursday, extending measures to combat the spread of the coronavirus, which has infected more than 1,700 people in the kingdom and killed 16.`\
-https://nytimes.com/reuters/2020/04/02/world/middleeast/02reuters-health-coronavirus-saudi.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/02/world/middleeast/02reuters-health-coronavirus-saudi.html?searchResultPosition=7
 
 **Red Cross to Deliver Supplies for COVID-19 Patients in Separatist Eastern Ukraine**\
 `A planeload of medical supplies for COVID-19 patients and other relief goods has arrived in Ukraine to help people enduring a six-year-old conflict in the country's east, the International Committee of the Red Cross said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-icrc-ukraine.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-icrc-ukraine.html?searchResultPosition=8
 
 **Twitter Removes Accounts Linked to Egypt, Saudi Arabia, Other Countries**\
 `Twitter took down thousands of accounts linked to Egypt, Honduras, Indonesia, Saudi Arabia and Serbia on Thursday for either taking directions from the governments or promoting pro-government content.`\
-https://nytimes.com/reuters/2020/04/02/technology/02reuters-twitter-accounts.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/02/technology/02reuters-twitter-accounts.html?searchResultPosition=9
 
 **Florida, Finally**\
 `The state will go on lockdown, far too late.`\
-https://nytimes.com/2020/04/02/opinion/coronavirus-desantis-trump.html?searchResultPosition=6
-
-**Portugal Extends State of Emergency to Halt Spread of Coronavirus**\
-`Portugal's parliament approved the extension of a state of emergency by another 15 days on Thursday to stop the spread of the coronavirus, as the number of deaths from the disease rose over 200.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-portugal.html?searchResultPosition=7
-
-**Exclusive: Hackers Linked to Iran Target WHO Staff Emails During Coronavirus-Sources**\
-`Hackers working in the interests of the Iranian government have attempted to break into the personal email accounts of staff at the World Health Organization during the coronavirus outbreak, four people with knowledge of the matter told Reuters.`\
-https://nytimes.com/reuters/2020/04/02/technology/02reuters-health-coronavirus-cyber-iran-exclusive.html?searchResultPosition=8
-
-**Italy Business Lobby Sees Industry Output Down as Much as 15% in Second Quarter**\
-`Italy's main business association said on Thursday it saw the country's industrial production falling as much as 15% in the second quarter of the year due to the coronavirus outbreak, after an 11-year record drop in the first three months of 2020.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-italy-output.html?searchResultPosition=9
-
-**German Economy Could Shrink More This Year Than in 2008/9 Crisis: Minister**\
-`Europe's largest economy might shrink more this year than during the 2008/9 financial crisis, German Economy Minister Peter Altmaier said on Thursday, adding that contractions of more than 8% might be registered in some months.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-healthgermany-altmaier.html?searchResultPosition=10
+https://nytimes.com/2020/04/02/opinion/coronavirus-desantis-trump.html?searchResultPosition=10
 
