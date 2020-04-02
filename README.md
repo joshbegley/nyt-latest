@@ -1,36 +1,36 @@
+**U.S. SEC Delays Ruling on Controversial NYSE High-Speed Data Plan**\
+`The U.S. Securities and Exchange Commission said it needs more time to decide whether to allow a plan by the New York Stock Exchange to offer a new high-speed wireless connection to the exchange that some brokers have blasted as anti-competitive.`\
+https://nytimes.com/reuters/2020/04/02/business/02reuters-sec-nyse.html?searchResultPosition=2
+
+**How Major US Stock Indexes Fared Thursday**\
+`Energy companies led stocks broadly higher on Wall Street Thursday, giving the market its first gain in three days.`\
+https://nytimes.com/aponline/2020/04/02/business/ap-financial-markets-box.html?searchResultPosition=3
+
+**Premier League Stars Face Backlash Over Pay During Pandemic**\
+`The request to Premier League players from British health secretary Matt Hancock was direct: “Take a pay cut.”`\
+https://nytimes.com/aponline/2020/04/02/business/ap-soc-virus-outbreak-premier-league-pay.html?searchResultPosition=4
+
+**Exclusive: U.S. Navy Expected to Relieve Commander of Coronavirus-Stricken Aircraft Carrier**\
+`The U.S. Navy is expected to relieve the commander of the aircraft carrier Theodore Roosevelt, who wrote a scathing letter that leaked to the public asking the Navy for stronger measures to control a coronavirus outbreak onboard, U.S. officials told Reuters on Thursday.`\
+https://nytimes.com/reuters/2020/04/02/us/02reuters-health-coronavirus-usa-navy-exclusive.html?searchResultPosition=5
+
+**Bed Bath Sues 1-800-Flowers for Trying to Renege on Deal Over COVID-19**\
+`Bed Bath & Beyond Inc has asked a judge to hold 1-800-Flowers.Com Inc to a $252 million deal between the companies in what appears to one of the first examples of a corporate sale coming unraveled due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/02/business/02reuters-bed-bath-1800-flowers-com-lawsuit.html?searchResultPosition=6
+
+**Judge Won't Delay Wisconsin Election but Extends Voting**\
+`A federal judge on Thursday declined to postpone Wisconsin's presidential primary over the health threat from the new coronavirus, but he ordered that people be given an extra six days beyond Tuesday's election for absentee voting.`\
+https://nytimes.com/aponline/2020/04/02/us/ap-us-virus-outbreak-wisconsin-election.html?searchResultPosition=7
+
 **States Demand Ventilators as Feds Ration Limited Supply**\
 `Two weeks ago, the Pentagon promised to make as many as 2,000 military ventilators available as the federal government strains to contend with the coronavirus pandemic. As of Wednesday, less than half had been allocated, despite a desperate need across the country.`\
-https://nytimes.com/aponline/2020/04/02/us/politics/ap-us-virus-outbreak-ventilators-1st-ld-writethru.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/04/02/us/politics/ap-us-virus-outbreak-ventilators-1st-ld-writethru.html?searchResultPosition=8
 
 **Rapper Tekashi69 Freed From Prison Over Coronavirus Risk**\
 `The musician, who testified against his former associates in the gang Nine Trey Gangsta Bloods, will serve the final four months of his two-year term in home confinement.`\
-https://nytimes.com/2020/04/02/arts/music/tekashi69-free-prison-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/04/02/arts/music/tekashi69-free-prison-coronavirus.html?searchResultPosition=9
 
 **Nick Saban Favors Extra Teaching Time, Not Longer Fall Camp**\
 `Alabama coach Nick Saban doesn’t believe extending preseason camp for college football teams around the country is necessarily the best way to get them ready for the season.`\
-https://nytimes.com/aponline/2020/04/02/sports/ncaafootball/ap-fbc-alabama-saban.html?searchResultPosition=4
-
-**Fear of Rejection Is Costing You Money**\
-`And what to do if you want to see long-term financial gains.`\
-https://nytimes.com/2020/04/02/smarter-living/fear-of-rejection.html?searchResultPosition=5
-
-**Wine Deliveries: What Are the Options?**\
-`Under Covid-19 protocols, where can you look now for alcoholic beverages? It depends on how fast you need them and how selective a consumer you are.`\
-https://nytimes.com/article/wine-delivery-service.html?searchResultPosition=6
-
-**Instacart to Distribute Coronavirus Safety Kits After Workers' Strike**\
-`U.S. online grocery delivery company Instacart said on Thursday it will distribute free health and safety kits to full-service shoppers, days after its workers went on strike to call attention to safety and wage concerns over the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/04/02/us/02reuters-health-coronavirus-instacart.html?searchResultPosition=7
-
-**Exclusive: Sanofi Can Produce Millions of Doses of Potential Coronavirus Drug-CEO**\
-`Sanofi SA will be able to provide millions of doses of hydroxychloroquine for patients with the illness caused by the novel coronavirus if the old malaria drug proves successful in clinical trials, its chief executive told Reuters on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-sanofi-exclusive.html?searchResultPosition=8
-
-**General Motors, Honda to Jointly Develop Two New Electric Vehicles**\
-`General Motors and Honda Motor Co Ltd said on Thursday the companies would jointly develop two new electric vehicles for Honda.`\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-gm-honda-electric.html?searchResultPosition=9
-
-**Labor Fight Collides With the Pandemic at Trader Joe’s**\
-`The chain has aggressively opposed unionization efforts among its employees, who have been critical of its response to the coronavirus.`\
-https://nytimes.com/2020/04/02/business/trader-joes-unionization-coronavirus.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/02/sports/ncaafootball/ap-fbc-alabama-saban.html?searchResultPosition=10
 
