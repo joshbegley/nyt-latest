@@ -1,36 +1,36 @@
+**As Coronavirus Spreads, U.N. Seeks Yemen Urgent Peace Talks Resumption**\
+`The United Nations and Western allies are pointing to the threat of coronavirus to push Yemen's combatants to agree to fresh talks to end a war that has left millions vulnerable to disease, the U.N. and sources familiar with the matter said on Thursday.`\
+https://nytimes.com/reuters/2020/04/02/world/middleeast/02reuters-yemen-security.html?searchResultPosition=2
+
+**British Ventilator Consortium Targeting 1,500 Units Per Week**\
+`A consortium of British engineers, aerospace and Formula One companies are hoping to produce at least 1,500 ventilators a week within a matter of weeks, it said on Thursday. `\
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-britain-ventilators-order.html?searchResultPosition=3
+
+**Czech PM-Life May Get Back to Normal by June**\
+`The Czech government does not plan further restrictions to curb coronavirus but life in the country may only get back to normal in late May or June if the situation is under control, Prime Minister Andrej Babis said on Thursday.`\
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-czech.html?searchResultPosition=4
+
+**Brescia Ready to Forfeit Matches if Italian Season Resumes**\
+`The president of Italian soccer club Brescia said Thursday he will forfeit his team's remaining Serie A matches if the league resumes.`\
+https://nytimes.com/aponline/2020/04/02/sports/soccer/ap-soc-brescia-league-resumption.html?searchResultPosition=5
+
+**UK Vows to 'Massively' Increase Virus Testing Amid Criticism**\
+`Political opponents, scientists and even usually supportive newspapers lambasted British Prime Minister Boris Johnson on Thursday over his government’s broken promises on wider testing for the COVID-19 virus.`\
+https://nytimes.com/aponline/2020/04/02/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=6
+
+**Profit Forecasts Tank as Virus Pandemic Whacks Economy**\
+`The virus pandemic that has killed over 40,000 people worldwide is also wreaking havoc on corporate profits, with Wall Street forecasting a double-digit decline in the second quarter and no return to growth the rest of the year.`\
+https://nytimes.com/aponline/2020/04/02/business/ap-off-the-charts-virus-outbreak-earnings-forecasts-.html?searchResultPosition=7
+
+**Elections, Ties With China Shaped Iran's Coronavirus Response**\
+`Iranian authorities ignored warnings by doctors in late December and January of an increasing number of patients with high fevers and lung infections in the historic city of Qom, which turned out to be the epicentre of Iran’s coronavirus outbreak, said two health ministry officials, a former ministry official and three doctors.`\
+https://nytimes.com/reuters/2020/04/02/world/middleeast/02reuters-health-coronavirus-iran-qom.html?searchResultPosition=8
+
+**EU Should Use All Means Available in Coronavirus Crisis: France**\
+`The European Union should mobilise all of its existing crisis measures in response to the coronavirus outbreak and come up with new joint mechanisms to finance the recovery, France's finance minister said on Thursday.`\
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-eurozone-france.html?searchResultPosition=9
+
 **China Reports New African Swine Fever Cases in Gansu Province**\
 `China has confirmed two cases of African swine fever in northwestern Gansu province, the Ministry of Agriculture and Rural Affairs said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-china-swinefever.html?searchResultPosition=2
-
-**Indonesia Needs 'Massive, Rapid' Testing for Coronavirus**\
-`Indonesia needs to perform "massive" testing to reveal the full spread of the coronavirus and ensure that people who travel home during the approaching Muslim holiday isolate themselves, the governor of the archipelago's most populous province said. `\
-https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-health-coronavirus-indonesia-governor.html?searchResultPosition=3
-
-**DiCaprio, Others Launch $12M Coronavirus Relief Food Fund**\
-`Leonardo DiCaprio will help launch America’s Food Fund, which has already raised $12 million to help communities impacted by the coronavirus. `\
-https://nytimes.com/aponline/2020/04/02/us/ap-us-virus-outbreak-dicaprio.html?searchResultPosition=4
-
-**Lesson of the Day: ‘D.I.Y. Coronavirus Solutions Are Gaining Steam’**\
-`In this lesson, students will learn how from Ireland to Seattle, makers and engineers are creating open-source versions of much-needed medical equipment.`\
-https://nytimes.com/2020/04/02/learning/lesson-of-the-day-diy-coronavirus-solutions-are-gaining-steam.html?searchResultPosition=5
-
-**Moody's Downgrades Formula One's Outlook to Negative**\
-`Credit rating agency Moody's changed Formula One's outlook to negative from positive on Thursday to reflect the impact of the coronavirus crisis on a sport yet to race in 2020.`\
-https://nytimes.com/reuters/2020/04/02/sports/autoracing/02reuters-health-coronavirus-f1-rating.html?searchResultPosition=6
-
-**Swiss Coronavirus Cases Top 18,000, Death Toll Rises to 432**\
-`The Swiss death toll from the coronavirus epidemic has risen to 432, the country's public health agency said https://www.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-swiss.html?searchResultPosition=7
-
-**Southwest Airlines to Apply for Aid With U.S. Treasury After Demand Craters**\
-`Southwest Airlines Co said on Thursday it intends to file an application with the U.S. Treasury department for aid related to the disruption caused by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-health-coronavirus-southwest.html?searchResultPosition=8
-
-**Wives Rejoice and Traders Despair as Coronavirus Halts Khat Supply to Somalia**\
-`Before the coronavirus hit, Muna Nur Farah had started to hate her husband. He'd slink into their home in the Somali capital Mogadishu at 3:00am with empty pockets, his money squandered on the narcotic leaf khat. `\
-https://nytimes.com/reuters/2020/04/02/world/africa/02reuters-health-coronavirus-somalia-khat.html?searchResultPosition=9
-
-**Zambia Records First Coronavirus Death: Health Minister**\
-`Zambia has recorded its first death from coronavirus, and the number of confirmed cases has risen by three to 39, Health Minister Chitalu Chilufya said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/world/africa/02reuters-health-coronavirus-zambia.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-china-swinefever.html?searchResultPosition=10
 
