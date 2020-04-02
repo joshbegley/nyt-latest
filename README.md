@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-asia-markets-valuati
 `Russia's coronavirus case tally jumped to 3,548 on Thursday, a record daily increase of 771, Russia's crisis response centre said. `\
 https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-russia-cases.html?searchResultPosition=4
 
-**Almost 900,000 Spanish Workers Lost Their Job Since Coronavirus Lockdown**\
-`Spain's social security data showed on Thursday that close to 900,000 workers lost their job since March 12 when the country went on coronavirus lockdown.`\
+**Spain Sheds Nearly 900,000 Jobs Since Coronavirus Lockdown**\
+`Spain has shed close to 900,000 jobs, more than half of them temporary, since it went into lockdown in mid-March to fight the coronavirus outbreak, social security data showed on Thursday.`\
 https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-spain-economy-unemployment.html?searchResultPosition=5
 
 **Swedish Producer of Sanitizer Introduces Weekend Shifts to Meet Coronavirus Demand**\
