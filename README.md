@@ -1,36 +1,36 @@
-**China Says to Ease Car Buying Curbs to Boost Sales**\
-`China's commerce ministry will relax or remove restrictions on car purchases in some regions to help sales of new vehicles, while accelerating plans to boost the scrapping of old ones.`\
-https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-health-coronavirus-china-autos.html?searchResultPosition=2
+**Top EU Court Backs Amazon in Trade Mark Dispute With Coty**\
+`Europe's top court on Thursday backed Amazon in its dispute with the German unit of U.S. cosmetics company Coty's, saying the online retail giant is not liable for unwittingly stocking trade mark infringing goods for third-party sellers.`\
+https://nytimes.com/reuters/2020/04/02/technology/02reuters-eu-amazon-com-coty-trademark.html?searchResultPosition=2
 
-**Infection Rate Steepens as India Searches for 9,000 Exposed to Delhi Cluster**\
-`India reported its biggest single day increase in coronavirus cases as officials on Thursday raced to track down some 9,000 people exposed to the country's biggest infection cluster during a Muslim missionary group's gathering in the capital last month.`\
-https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-health-coronavirus-southasia.html?searchResultPosition=3
+**36 Hours in … Wherever You Are**\
+`Our first reader-generated itinerary: a weekend of traveling you can do from home.`\
+https://nytimes.com/2020/04/02/travel/36-hours-quarantine.html?searchResultPosition=3
 
-**Thai Cabinet to Consider New Economic Measures on Friday-Deputy PM**\
-`Thailand's cabinet will on Friday consider a new package of economic measures aimed at mitigating the impact of coronavirus over the next six months, a deputy prime minister said.`\
-https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-health-coronavirus-thailand-borrowings.html?searchResultPosition=4
+**What New York Looked Like During the 1918 Flu Pandemic**\
+`The Spanish flu raced through crowded tenements and neighborhoods, killing more than 20,000 New Yorkers. But it could have been much worse.`\
+https://nytimes.com/2020/04/02/nyregion/spanish-flu-nyc-virus.html?searchResultPosition=4
 
-**U.S. Lawmaker Seeks Inquiry Into Disappearance of Chinese Journalists**\
-`A U.S. congressman is calling on the State Department to urge China to investigate the disappearance of three Chinese citizen journalists who sought to expose the impact of the coronavirus on the Chinese city of Wuhan. `\
-https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-health-coronavirus-china-usa.html?searchResultPosition=5
+**Farmworkers, Mostly Undocumented, Become ‘Essential’ During Pandemic**\
+`Immigrant field workers have been told to keep working despite stay-at-home directives, and given letters attesting to their “critical” role in feeding the country.`\
+https://nytimes.com/2020/04/02/us/coronavirus-undocumented-immigrant-farmworkers-agriculture.html?searchResultPosition=5
 
-**World Food Prices Fall Sharply in March Because of Coronavirus, Oil Slump: U.N**\
-`World food prices fell sharply in March, hit by a drop in demand tied to the coronavirus pandemic and a plunge in global oil prices, the United Nations food agency said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-global-economy-food.html?searchResultPosition=6
+**How Will Biden Choose a Running Mate? Look to the Obama Model**\
+`Joe Biden and his associates are consulting allies, Eric Holder and Barack Obama as he weighs his options — including a woman of color — for the Democratic candidate for vice president.`\
+https://nytimes.com/2020/04/02/us/politics/joe-biden-vice-president-choice.html?searchResultPosition=6
 
-**Top EU Court Says Eastern States Broke Law by Refusing to Host Refugees**\
-`The European Union's top court ruled on Thursday that Poland, Hungary and the Czech Republic broke EU law by refusing to host their assigned share of refugees to ease the burden on southern peers like Greece following a spike in arrivals from 2015. `\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-europe-migrants-east-ruling.html?searchResultPosition=7
+**Will We Lose a Generation of Designers?**\
+`Independent clothing designers are the essence of American fashion, but a stimulus plan may not save them.`\
+https://nytimes.com/2020/04/02/fashion/coronavirus-fashion-bankruptcy.html?searchResultPosition=7
 
-**Bank of Korea to Prepare for Emergency Situations, Review Further Measures to Stabilise Bond Market**\
-`South Korea's central bank chief said on Thursday the bank needs to prepare for emergency situations as it cannot rule out credit crunch risks in local financial markets given uncertainties in global financial markets amid the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-southkorea-economy-cenbank.html?searchResultPosition=8
+**When the Tokyo Olympics Went Missing**\
+`The 1940 Games, scheduled for Japan, were returned to the I.O.C. because of a war against China and political infighting, rather than a pandemic.`\
+https://nytimes.com/2020/04/02/sports/olympics/coronavirus-olympics-tokyo-delayed.html?searchResultPosition=8
 
-**Exclusive: U.S. Officials Agree on New Ways to Control High Tech Exports to China-Sources**\
-`The Trump administration is tightening rules to prevent China from obtaining advanced U.S. technology for commercial purposes and then diverting it to military use, several sources told Reuters.`\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-usa-china-technology-exclusive.html?searchResultPosition=9
+**A.A. Saved My Life. Can It Work Online?**\
+`Holding hands and bearing witness in a musty basement got me through. The virtual world is different.`\
+https://nytimes.com/2020/04/02/nyregion/coronavirus-alcoholics-anonymous-online.html?searchResultPosition=9
 
-**Extremists See Global Chaos From Virus as an Opportunity**\
-`Both the Islamic State group and al-Qaida see the coronavirus as a threat, but some of their fighters also see the upheaval from the pandemic as an opportunity to win over more supporters and strike harder than before.`\
-https://nytimes.com/aponline/2020/04/02/world/africa/ap-af-virus-outbreak-extremists-exploitation.html?searchResultPosition=10
+**Almost Every New Yorker Knows Someone Who Is Sick Now**\
+`The growing number of coronavirus cases and deaths have touched family and social circles across the city, making the invisible threat seem far more real.`\
+https://nytimes.com/2020/04/02/nyregion/coronavirus-nyc-fear.html?searchResultPosition=10
 
