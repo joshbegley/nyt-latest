@@ -1,36 +1,36 @@
+**U.S. Navy Relieves Commander of Coronavirus-Hit Aircraft Carrier**\
+`The U.S. Navy announced on Thursday it had relieved the commander of the U.S. aircraft carrier Theodore Roosevelt, who  wrote a scathing letter that leaked to the public asking Navy leadership for stronger measures to control a coronavirus outbreak onboard.`\
+https://nytimes.com/reuters/2020/04/02/us/02reuters-health-coronavirus-usa-navy-confirmation.html?searchResultPosition=2
+
+**NASCAR Industry Joins Race to Help COVID-19 Caregivers**\
+`The interruption to the 2020 NASCAR season due to the COVID-19 pandemic has been understandably disappointing and disconcerting for racers, fans, teams and the industry as a whole.`\
+https://nytimes.com/reuters/2020/04/02/sports/autoracing/02reuters-motor-nascar-caregivers.html?searchResultPosition=3
+
+**Huge U.S. Solar Project Permit Delayed Over Impact on Historic Trail**\
+`A U.S. government agency has delayed issuing a permit for the Gemini solar power project in Nevada, one of the country’s largest proposed solar farms, over concerns about its impact on a historic region traversed by settlers of the American West.`\
+https://nytimes.com/reuters/2020/04/02/us/02reuters-usa-solar-project.html?searchResultPosition=4
+
+**World Bank OKs First $1.9B for Poor Countries Battling Virus**\
+`The World Bank on Thursday approved its first funds to help some of the globe's poorer countries combat the coronavirus outbreak.`\
+https://nytimes.com/aponline/2020/04/02/business/bc-us-virus-outbreak-world-bank.html?searchResultPosition=5
+
+**State Department Slams Pakistani Court Overturning of Pearl Murder Convictions**\
+`The overturning by a Pakistani court of the convictions of four men in the 2002 kidnapping and murder of Wall Street Journal reporter Daniel Pearl is "an affront to victims of terrorism everywhere," a State Department official said on Thursday.`\
+https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-usa-pakistan-pearl-state.html?searchResultPosition=6
+
+**15 Wines Under $15: Inexpensive Bottles for Stay-at-Home Drinking**\
+`These intriguing wines are sometimes quirky and often unusual. All are delightful, whether with a meal tonight or as gifts to those who could use one.`\
+https://nytimes.com/2020/04/02/dining/drinks/best-wines-under-15-dollars.html?searchResultPosition=7
+
 **The N.R.A. Sees a Threat, and an Opportunity, in Covid-19**\
 `The group has retooled its message amid the pandemic and is planning to sue New York State to keep gun stores open.`\
-https://nytimes.com/2020/04/02/us/nra-guns-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2020/04/02/us/nra-guns-coronavirus.html?searchResultPosition=8
 
 **DeVos Weighs Waiving Special Education. Parents Are Worried.**\
 `The $2 trillion coronavirus law grants the education secretary the power to waive special education rules as school districts struggle to teach all their students online.`\
-https://nytimes.com/2020/04/02/us/politics/special-education-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/04/02/us/politics/special-education-coronavirus.html?searchResultPosition=9
 
 **Latin America Adjusts to Home Schooling as Coronavirus Halts Class**\
 `Vanesa Jaimes studied to become an administrative worker in Venezuela's health care system, but these days she could be more accurately described as a teacher - to her four kids. `\
-https://nytimes.com/reuters/2020/04/02/world/americas/02reuters-health-coronavirus-latam-education.html?searchResultPosition=4
-
-**Chilean Telescopes That Explore Galaxies Brought Down to Earth by Coronavirus**\
-`Chilean telescopes that comb the skies seeking answers about some of the universe´s most fundamental questions have confirmed they, too, have fallen victim to the mass disruption brought about by the new coronavirus. `\
-https://nytimes.com/reuters/2020/04/02/world/americas/02reuters-health-coronavirus-chile-telescopes.html?searchResultPosition=5
-
-**Biden Wants to Talk to Trump About Lessons From Past Crises**\
-`Joe Biden says he wants to speak with President Donald Trump so that hopefully the president can “learn some lessons” from the Obama administration on how to deal with the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/04/02/us/politics/ap-us-election-2020-biden.html?searchResultPosition=6
-
-**FCC Proposes to Fine TracFone Wireless $6 Million for Subsidy Violations**\
-`The Federal Communications Commission on Thursday proposed to fine TracFone Wireless $6 million for allegedly violating its rules governing the subsidy program for telecommunications services for low income users.`\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-usa-wireless-tracfone.html?searchResultPosition=7
-
-**Arianne Caoili, Chess Master, Is Dead at 33**\
-`A former model, she stood out in the chess world for her glamour in what is often thought of as an unglamorous game.`\
-https://nytimes.com/2020/04/02/obituaries/arianne-caoili-dead.html?searchResultPosition=8
-
-**Walgreens, Shopify Fall; Occidental, Nevro Rise**\
-`Stocks that moved heavily or traded substantially on Thursday:`\
-https://nytimes.com/aponline/2020/04/02/business/ap-financial-markets-stocks.html?searchResultPosition=9
-
-**AP Source: Ex-Dallas Police Chief to Lead Chicago Police**\
-`Chicago Mayor Lori Lightfoot on Thursday will name former Dallas Police Chief David Brown to lead the police force in the nation's third largest city, a city official told The Associated Press.`\
-https://nytimes.com/aponline/2020/04/02/us/ap-us-chicago-police-superintendent.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/02/world/americas/02reuters-health-coronavirus-latam-education.html?searchResultPosition=10
 
