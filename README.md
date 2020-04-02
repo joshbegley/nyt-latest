@@ -1,36 +1,36 @@
-**Exclusive: How Elite U.S. College Students Brought Covid-19 Home From Campus**\
-`Like many American colleges, Vanderbilt University in Nashville announced last month it was closing its dormitories and putting classes online because of the growing threat of coronavirus.`\
-https://nytimes.com/reuters/2020/04/02/us/02reuters-health-coronavirus-usa-vanderbilt-exclusive.html?searchResultPosition=2
+**EU Justice Chief Urges U.S. Tech Giants to Halt Virus Clickbaits**\
+`EU justice chief Vera Jourova on Thursday criticised U.S. tech giants such as Google and Facebook for making money off coronavirus-related fake news instead of putting in more efforts to stop the deluge.`\
+https://nytimes.com/reuters/2020/04/02/technology/02reuters-health-coronavirus-eu-tech.html?searchResultPosition=2
 
-**Virus Forces Luxottica to Break Italian August Holiday Tradition**\
-`Eyewear maker Luxottica said it would cut to just one week its customary August closure, a move which other firms may seek to replicate to relaunch production after the forced shutdown in the current coronavirus crisis.`\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-health-coronavirus-italy-luxottica.html?searchResultPosition=3
+**13 Uplifting Documentaries on Netflix**\
+`Find stories of overlooked artists in the music industry, a Hollywood starlet who was also an inventor, athletes who summit a mountain and more.`\
+https://nytimes.com/2020/04/02/movies/netflix-happy-documentaries-virus.html?searchResultPosition=3
 
-**Saudi Arabia Calls for Emergency Oil Meeting: State Media**\
-`Saudi Arabia called on Thursday for an emergency meeting of OPEC and non-OPEC oil producers as it aims to reach a fair oil agreement to stabilize the oil market, state news agency SPA reported.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-global-oil-saudi-meeting.html?searchResultPosition=4
+**World Games Postponed to 2022 to Avoid Tokyo Olympics Clash**\
+`The 2021 World Games have been pushed back by a year to avoid clashing with the Tokyo Olympics which were rescheduled due to the coronavirus pandemic, World Games organisers said on Thursday.`\
+https://nytimes.com/reuters/2020/04/02/sports/olympics/02reuters-health-coronavirus-worldgames.html?searchResultPosition=4
 
-**Potential COVID-19 Vaccine Shows Promise in Mouse Study**\
-`Initial tests in mice of a potential COVID-19 vaccine delivered via a fingertip-sized patch have shown it can induce an immune response against the new coronavirus at levels that might prevent infection, U.S. scientists said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-health-coronavirus-vaccine-candidate.html?searchResultPosition=5
+**Saudi Crown Prince and Trump Discussed Global Energy Markets Over Phone: State News Agency**\
+`Saudi crown prince Mohammed bin Salman and U.S. President, Donald Trump talked over the phone on Thursday and discussed global energy markets, according to the state news agency.`\
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-global-oil-saudi-us.html?searchResultPosition=5
 
-**Dutch End-Of-Life Debate Flares as Coronavirus Tests Healthcare Limits**\
-`Doctors in the Netherlands have been advising elderly patients to think twice before agreeing to COVID-19 treatment in hospital intensive-care units, drawing criticism that they are  attempting to ration scarce ICU beds.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-netherlands-elderly.html?searchResultPosition=6
+**National Committees Have Final Say on Qualified Athletes for Tokyo Games**\
+`Athletes already qualified for the Tokyo 2020 Olympics will need to be picked again by their respective National Olympic Committees to compete at the postponed Games in 2021, the International Olympic Committee said on Thursday. `\
+https://nytimes.com/reuters/2020/04/02/sports/soccer/02reuters-health-coronavirus-olympics.html?searchResultPosition=6
 
-**Teenagers in The Times: March 2020**\
-`Our roundup of the news stories and features about young people that have recently appeared across sections of NYTimes.com.`\
-https://nytimes.com/2020/04/02/learning/teenagers-in-the-times-march-2020.html?searchResultPosition=7
+**PIMCO Sees Short, Severe Recession; Positioned Defensively**\
+`Pacific Investment Management Co (PIMCO), one of the world's largest investment firms, told clients on Thursday the coronavirus outbreak is likely to cause a short and severe recession, and that the risk of a slow recovery or a relapse will keep its investment strategy defensive for the time being. `\
+https://nytimes.com/reuters/2020/04/02/business/02reuters-health-coronavirus-pimco.html?searchResultPosition=7
 
-**Trump Says He Expects Russia, Saudis to Cut Oil Production**\
-`President Donald Trump said Thursday that he expects Saudi Arabia and Russia will end an oil war and dramatically cut production.`\
-https://nytimes.com/aponline/2020/04/02/business/bc-us-trump-oil-markets.html?searchResultPosition=8
+**Hungary, Eager for Loan, Wants to Classify Details of Budapest-Belgrade Chinese Rail Project**\
+`Hungary wants to classify all data included in contracts for the $2.1 billion, tax-payer funded Budapest-Belgrade rail project for ten years, according to draft legislation, to ensure a loan deal is signed "as soon as possible".`\
+https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-hungary-china-rail-legislation.html?searchResultPosition=8
 
-**Romanian Doctors Will Get 500 Euro Per Month Coronavirus Bonus**\
-`Romanian doctors, nurses and other personnel dealing with coronavirus cases will receive a monthly bonus of about 500 euros ($543.10) a month, President Klaus Iohannis said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-romania.html?searchResultPosition=9
+**Bloomin' Disaster: UK’s Garden Industry Faces Ruin From Coronavirus Crisis**\
+`Britain’s gardening industry could be destroyed by the coronavirus shutdown, growers have warned, with the horticulture sector potentially facing a total stock write-off unlike that of any other industry.`\
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-britain-garden-industry.html?searchResultPosition=9
 
-**Putin Extends Russia's Non-Working Period Up to April 30 Over Coronavirus**\
-`President Vladimir Putin on Thursday prolonged until April 30 a non-working period declared across Russia to try and stem the spread of the coronavirus. `\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-russia-putin.html?searchResultPosition=10
+**Netflix Leads on Downloads, but YouTube Kids Grabs More Hours**\
+`Netflix Inc led rivals YouTube, Amazon Prime and Disney+ with over 59 million installs in the first quarter of 2020, but more time was spent on YouTube's Kids service as usage boomed following the shutdown of thousands of schools in March.`\
+https://nytimes.com/reuters/2020/04/02/arts/02reuters-health-coronavirus-streaming.html?searchResultPosition=10
 
