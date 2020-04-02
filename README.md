@@ -1,36 +1,36 @@
-**EU Will Find Room for Convergence on New Funding Instruments: Breton**\
-`The European Union's industry chief Thierry Breton said on Thursday he was convinced that the bloc's states would be able to forge a consensus around how to find new funding instruments to help the EU fight the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-europe-breton.html?searchResultPosition=2
+**British Airways in Union Talks to Suspend Around 32,000 Staff: Source**\
+`British Airways is in talks with its union about a plan to suspend around 32,000 staff in response to the coronavirus pandemic, a person familiar with the situation said. `\
+https://nytimes.com/reuters/2020/04/02/business/02reuters-healthba-jobs.html?searchResultPosition=2
 
-**Senegal Seeks $221 Million From IMF to Mitigate Coronavirus Shock**\
-`Senegal has wrapped up talks with the International Monetary Fund to secure $221 million to help it mitigate the economic impact of the coronavirus pandemic, the Fund said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/world/africa/02reuters-health-coronavirus-senegal.html?searchResultPosition=3
+**French Region Reports 570 People Died in Nursing Homes Since Virus Outbreak**\
+`Five hundred and seventy people have died in nursing homes in France's eastern region since the outbreak of the coronavirus, the regional public health authority said late on Wednesday. `\
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-france-nursinghomes.html?searchResultPosition=3
 
-**Trevor Noah Thinks Trump May Have Started Reading the News**\
-`If the president’s alarmed about the virus, we should really be worried, said Noah: “This is the same dude who stared at an eclipse like it was a Magic Eye painting.”`\
-https://nytimes.com/2020/04/02/arts/television/trevor-noah-trump-coronavirus.html?searchResultPosition=4
+**Q&A: How to Get Aid for a Small Business Hit by Virus Crisis**\
+`Millions of small business owners will be turning to the government, seeking help for an individual and nationwide cataclysm, the economic devastation caused by the coronavirus outbreak.`\
+https://nytimes.com/aponline/2020/04/02/business/ap-us-smallbiz-virus-outbreak-small-business-help-qa.html?searchResultPosition=4
 
-**Italy PM Says No Plans to Nationalize Companies, Will Use Special Powers: Paper**\
-`Italy has no plans to nationalize any company but will use special powers to protect strategic assets that could become a prey as a result of the coronavirus emergency, Prime Minister Giuseppe Conte told Il Fatto Quotidiano in an interview.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-italy-conte.html?searchResultPosition=5
+**Quotation of the Day: For People of Many Religions, Crisis Has Signs of Apocalypse**\
+`Quotation of the Day for Thursday, April 2, 2020.`\
+https://nytimes.com/2020/04/02/todayspaper/quotation-of-the-day-for-people-of-many-religions-crisis-has-signs-of-apocalypse.html?searchResultPosition=5
 
-**Britain Says Basel Bank Rule Delay Will Aid Response to Coronavirus**\
-`Delaying remaining elements of new global bank capital rules for a year will give lenders in Britain time to focus on dealing with fallout from the coronavirus epidemic, the Bank of England and Britain's finance ministry said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-boe-basel-banks.html?searchResultPosition=6
+**Swedish Government Promises 22 Billion SEK to Regions and Municipalities for Virus Related Costs**\
+`The Swedish government said on Thursday it would provide an extra 22 billion crowns ($2.20 billion) in funding to regions and municipalities as part of a series of measures to cushion the impact on the economy of the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-sweden-economy.html?searchResultPosition=6
 
-**Pakistan Court Overturns Conviction in Death of Daniel Pearl**\
-`A Pakistani court on Thursday overturned the murder conviction of a British Pakistani man found guilty of the kidnapping and murder of Wall Street journalist Daniel Pearl. `\
-https://nytimes.com/aponline/2020/04/02/world/asia/ap-as-pakistan-daniel-pearl.html?searchResultPosition=7
+**Veoneer and Volvo Cars to Split Zenuity Software Joint Venture**\
+`Geely-owned Volvo Cars and auto tech supplier Veoneer will split up their jointly owned software venture Zenuity, the companies said in separate statements on Thursday.`\
+https://nytimes.com/reuters/2020/04/02/technology/02reuters-volvo-cars-autonomous-veoneer.html?searchResultPosition=7
 
-**Coronavirus Threatens Revival of Japan's Deflationary Nemesis**\
-`Years after Japan made a cautious recovery from its long deflationary spell, the world's third-largest economy may be headed back into a cycle of falling prices as the coronavirus threatens a deep downturn and policymakers struggle for options.`\
-https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-health-coronavirus-japan-deflation.html?searchResultPosition=8
+**In Slum at Epicenter of Duterte’s Drug Crackdown, Fear and Love Coexist**\
+`At the height of President Rodrigo Duterte’s anti-crime campaign, as many as five people a night were killed in Market Three, a Manila slum whose residents rely only on each other.`\
+https://nytimes.com/2020/04/02/world/asia/philippines-manila-duterte-market-three.html?searchResultPosition=8
 
-**Greece Quarantines Camp After Migrants Test Coronavirus Positive**\
-`Greece has quarantined a migrant camp after 20 asylum seekers tested positive for coronavirus, the migration ministry said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-greece-camp.html?searchResultPosition=9
+**Coronavirus Is Making the Public Pension Crisis Even Worse**\
+`The pandemic has handed the funds big losses after they ramped up their appetite for risk over the past decade.`\
+https://nytimes.com/2020/04/02/business/dealbook/coronavirus-public-pension.html?searchResultPosition=9
 
-**Thailand Reports 104 New Coronavirus Cases, Three New Deaths**\
-`Thailand reported 104 new coronavirus cases, bringing its total to 1,875 cases, a spokesman for the government's Center for COVID-19 Situation Administration said on Thursday. `\
-https://nytimes.com/reuters/2020/04/02/world/asia/02reuters-health-coronavirus-thailand-cases.html?searchResultPosition=10
+**The Apocalypse as an ‘Unveiling’: What Religion Teaches Us About the End Times**\
+`For people of many faiths, and even none at all, it can feel lately like the end of the world is near.`\
+https://nytimes.com/2020/04/02/us/coronavirus-apocalypse-religion.html?searchResultPosition=10
 
