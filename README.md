@@ -2,8 +2,8 @@
 `President Donald Trump has the biggest megaphone, but it's governors and local officials who will decide what type of restrictions to impose on their citizens to try to slow the spread of the coronavirus. The Constitution largely gives states the authority to regulate their own affairs. `\
 https://nytimes.com/aponline/2020/04/01/us/politics/ap-virus-outbreak-shutdown-qa-1st-ld-writethru.html?searchResultPosition=2
 
-**U.S. Says Believes Iran Was Directly Involved in Killing of Iranian Dissident in Turkey**\
-`The United States believes Iran's Ministry of Intelligence and Security (MOIS) was directly involved in the killing of Iranian dissident Masoud Molavi Vardanjani, who was shot dead last November in Turkey, a senior administration official told Reuters on Wednesday.`\
+**U.S. Believes Iran Was 'Directly Involved' in Killing of Iranian Dissident in Turkey**\
+`The United States believes Iran's Ministry of Intelligence and Security (MOIS) was directly involved in the killing of an Iranian dissident last November in Turkey, a senior administration official told Reuters on Wednesday.`\
 https://nytimes.com/reuters/2020/04/01/world/middleeast/01reuters-turkey-iran-killing-usa.html?searchResultPosition=3
 
 **UN: Pandemic Could Shrink Global Economy Almost 1% in 2020**\
