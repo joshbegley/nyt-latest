@@ -1,36 +1,36 @@
-**Walgreens Shares Fall as Coronavirus Pandemic Hits Store Sales**\
-`Shares of Walgreens Boots Alliance Inc fell 6% on Thursday after the drugstore retailer reported a steep decline in U.S.  same-store sales in the last week of March as customers stayed indoors due to the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-walgreens-boots-stocks.html?searchResultPosition=2
+**How to Keep Ourselves Safe in Public Spaces**\
+`Readers suggest precautions for use of elevators and supermarkets to minimize the risks of exposure.`\
+https://nytimes.com/2020/04/02/opinion/letters/coronavirus-social-distancing.html?searchResultPosition=2
 
-**Trying to Teach During the Coronavirus Outbreak**\
-`Let us know how the change to online instruction has affected you and your students.`\
-https://nytimes.com/2020/04/02/education/learning/teaching-coronavirus-online-learning.html?searchResultPosition=3
+**Life as a College Student During the Coronavirus Outbreak**\
+`Let us know how the change to online instruction has affected you.`\
+https://nytimes.com/2020/04/02/education/learning/college-students-coronavirus.html?searchResultPosition=3
 
-**US Eases Blood Donation Limits for Gay Men Due to Shortage**\
-`The U.S. government Thursday eased restrictions on blood donations from gay men and other key groups because of a drop in the nation's blood supply triggered by the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/04/02/health/ap-us-med-viral-outbreak-blood-donations.html?searchResultPosition=4
+**Brazil's Bolsonaro Isolated, Weakened by Coronavirus Denial**\
+`At a tense cabinet meeting on Saturday in the Brazilian president's official residence, Jair Bolsonaro found himself isolated.`\
+https://nytimes.com/reuters/2020/04/02/world/americas/02reuters-health-coronavirus-brazil-bolsonaro-analysis.html?searchResultPosition=4
 
-**France's Coronavirus Death Toll Jumps to Nearly 5,400 as Nursing Homes Included**\
-`The number of cumulative known deaths from coronavirus in France surged to nearly 5,400 on Thursday as the country started including fatalities in nursing homes in its data.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-france-toll.html?searchResultPosition=5
+**Italy's Coronavirus Deaths Push Higher, New Cases Hold Steady**\
+`The death toll from an outbreak of coronavirus in Italy has climbed by 760 to 13,915, the Civil Protection Agency said on Thursday, slightly higher than the daily rise of 727 registered a day earlier.`\
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-italy-tally.html?searchResultPosition=5
 
-**The Waiting Game: For NBA Coaches, That's the New Schedule**\
-`Orlando’s Steve Clifford figures he’s like every other NBA coach right now: Wake up, go to whatever now serves as the office, study his own team, maybe think about possible opponents, and resume planning.`\
-https://nytimes.com/aponline/2020/04/02/sports/basketball/ap-bkn-nba-how-coaches-wait.html?searchResultPosition=6
+**Tornado Wrecks Buildings, Tosses Cars in Jonesboro, Arkansas**\
+`A large tornado struck the city of Jonesboro in Arkansas on Saturday, wrecking buildings and flipping cars, according to local media and images posted online.`\
+https://nytimes.com/reuters/2020/04/02/us/02reuters-arkansas-weather.html?searchResultPosition=6
 
-**Radio Host Gets 25 Years in Ponzi Scheme Targeting Listeners**\
-`A Texas radio host and financial consultant who admitted to conning elderly listeners out of millions of dollars in a Ponzi scheme was sentenced to 25 years in prison.`\
-https://nytimes.com/aponline/2020/04/02/us/ap-us-radio-host-fraud.html?searchResultPosition=7
+**Trump Campaign Tells Sessions to Stop Promoting Himself as Trump Ally**\
+`President Donald Trump's presidential campaign told Senate Republican candidate Jeff Sessions on Thursday to stop promoting himself as a Trump ally, lashing out at the former U.S. attorney general, whom the president soured on.`\
+https://nytimes.com/reuters/2020/04/02/us/politics/02reuters-usa-election-trump.html?searchResultPosition=7
 
-**Portugal Suspends Rents, Worries Surface Over Post-Pandemic Housing Crisis**\
-`Portugal's parliament approved on Thursday the suspension of rents for vulnerable households and cash-strapped small firms  during the coronavirus outbreak, but rights groups warned that the measure might only delay a looming housing crisis.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-portugal-rents.html?searchResultPosition=8
+**Trump’s Company Seeks Financial Help as Coronavirus Takes Toll**\
+`As companies nationwide look for relief, the Trump Organization has talked with Deutsche Bank and a Florida county about delaying payments on some loans and other obligations.`\
+https://nytimes.com/2020/04/02/business/economy/coronavirus-trump-company-finances.html?searchResultPosition=8
 
-**GE to Suspend 50% of U.S. Engine Assembly, Component Manufacturing Ops Staff**\
-`General Electric Co said of Thursday it would temporarily lay off about half of its workers in U.S. engine assembly and component manufacturing operations.`\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-healthcare-coronavirus-ge.html?searchResultPosition=9
+**Delicious Vinyl**\
+`We examine when culture from our past — like the 20-year-old comedy “High Fidelity” — gets reborn … as “High Fidelity.”`\
+https://nytimes.com/2020/04/02/podcasts/high-fidelity-zoe-kravitz.html?searchResultPosition=9
 
-**EU Tells Insurers to Suspend Dividends, Avoid Bonuses in Pandemic**\
-`Insurers and reinsurers in the European Union should temporarily suspend dividends and share buybacks, and consider postponing bonuses as well to ensure continuity in services during the coronavirus pandemic, the bloc's insurance regulator said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-health-coronavirus-eu-insurers.html?searchResultPosition=10
+**U.S. Small Business Bailout Starts Friday. Is the Government Ready?**\
+`Chris Hurn, founder of Fountainhead Commercial Capital, has received 7,400 small business loan requests in the past two weeks, more than his business has handled in its five years of existence. `\
+https://nytimes.com/reuters/2020/04/02/business/02reuters-health-coronavirus-usa-smallbusiness.html?searchResultPosition=10
 
