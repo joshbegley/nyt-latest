@@ -1,36 +1,36 @@
+**Elderly to Be Evacuated en Masse From Ultra-Orthodox Israeli Town Hit by Coronavirus**\
+`The Israeli military will evacuate elderly residents en masse from an ultra-Orthodox Jewish town with a disproportionately large outbreak of coronavirus, the government said on Thursday.`\
+https://nytimes.com/reuters/2020/04/02/world/middleeast/02reuters-health-coronavirus-israel-evacuation.html?searchResultPosition=2
+
+**Mistrustful of State, Brazil Slum Hires Own Doctors to Fight Virus**\
+`Emerson Barata draws a circular map of Sao Paulo's largest slum, Paraisopolis, and begins to mark confirmed coronavirus cases in blue ink. At the center of the favela of around 120,000 people, which crowds between luxury apartment blocks and high-walled mansions, he draws four dots. `\
+https://nytimes.com/reuters/2020/04/02/world/americas/02reuters-health-coronavirus-brazil-favela.html?searchResultPosition=3
+
+**Germans Snitch on Neighbours Flouting Virus Rules, in Echo of the Stasi Past**\
+`Law-abiding Germans are zealously helping police crack down on  people flouting new social distancing rules aimed at slowing the spread of the coronavirus by reporting on strangers, neighbours and friends.`\
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-germany-denunciation.html?searchResultPosition=4
+
+**When Reality Is Scary Enough, These Movies Are Safe Nightmares**\
+`Films like “Contagion” feel a little too real these days. So we’re looking at movies guaranteed to be too far-fetched to ever come true. (Let’s hope.)`\
+https://nytimes.com/2020/04/02/movies/scary-movies-virus.html?searchResultPosition=5
+
+**NATO Welcomes North Macedonia as 30th Ally**\
+`NATO foreign ministers welcomed North Macedonia as the alliance's newest member on Thursday, ending a long process that included a change to the country's name.`\
+https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-nato-northmacedonia.html?searchResultPosition=6
+
 **'Top Gun' Movie Sequel Moved From June to December**\
 `The release of the much anticipated movie sequel to "Top Gun" has been moved to December, Paramount Pictures said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/arts/02reuters-health-coronavirus-top-gun.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/02/arts/02reuters-health-coronavirus-top-gun.html?searchResultPosition=7
 
 **'There May Be No More Tennis This Year', Says Wimbledon Chief Lewis**\
 `Tennis may not return until 2021 after the coronavirus pandemic caused the cancellation of the entire grasscourt season and most of the claycourt campaign, All England Lawn Tennis Club (AELTC) chief executive Richard Lewis said on Thursday. `\
-https://nytimes.com/reuters/2020/04/02/sports/tennis/02reuters-health-coronavirus-tennis.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/02/sports/tennis/02reuters-health-coronavirus-tennis.html?searchResultPosition=8
 
 **EU Banking Watchdog Sets Out Virus-Hit Loan Relief**\
 `The European Union's banking watchdog published guidance on Thursday to help banks avoid having to step up provisioning for loans to companies temporarily hit by the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/04/02/us/02reuters-health-coronavirus-eu-banks.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/02/us/02reuters-health-coronavirus-eu-banks.html?searchResultPosition=9
 
 **President’s Campaign Calls Sessions ‘Delusional’ for Tying Himself to Trump**\
 `In an unusual letter, President Trump’s campaign said that Jeff Sessions, who is running to reclaim his Senate seat in Alabama, was misleading the public.`\
-https://nytimes.com/2020/04/02/us/politics/jeff-sessions-senate-trump-campaign.html?searchResultPosition=5
-
-**Nivea-Maker Beiersdorf Scraps 2020 Outlook Due to Coronavirus Crisis**\
-`Nivea-maker Beiersdorf on Thursday scrapped its 2020 outlook due to the coronavirus pandemic, and also released preliminary first-quarter sales that showed a 3.6% fall from a year earlier.`\
-https://nytimes.com/reuters/2020/04/02/business/02reuters-health-coronavirus-beiersdorf.html?searchResultPosition=6
-
-**Global Coronavirus Deaths Top 50,000-Johns Hopkins Tally**\
-`Global coronavirus deaths topped 50,200 on Thursday as the pandemic ravages the United States and Europe, according to a tally by Johns Hopkins University.`\
-https://nytimes.com/reuters/2020/04/02/us/02reuters-health-coronavirus-deaths.html?searchResultPosition=7
-
-**U.S. CDC Reports 213,144 Coronavirus Cases, 4,513 Deaths**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Thursday reported 213,144 cases of coronavirus, an increase of 27,043 cases from its previous count, and said the number of deaths had risen by 910 to 4,513.`\
-https://nytimes.com/reuters/2020/04/02/us/02reuters-health-coronavirus-usa-cdc.html?searchResultPosition=8
-
-**Appellate Court Drops Claim Against Pulse Shooter's Employer**\
-`A Florida appellate court upheld a lower court's ruling that a security firm employing the gunman responsible for a gay nightclub shooting can't be held liable for failing to investigate complaints against the shooter, giving him firearm training and allowing him to possess a gun license.`\
-https://nytimes.com/aponline/2020/04/02/us/ap-us-nightclub-shooting-florida.html?searchResultPosition=9
-
-**What’s Going On in This Graph? | April 8, 2020**\
-`Where did the bus riders go?`\
-https://nytimes.com/2020/04/02/learning/whats-going-on-in-this-graph-april-8-2020.html?searchResultPosition=10
+https://nytimes.com/2020/04/02/us/politics/jeff-sessions-senate-trump-campaign.html?searchResultPosition=10
 
