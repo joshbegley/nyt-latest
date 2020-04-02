@@ -1,36 +1,36 @@
-**Florida Debates Whether to Take Sickened Cruise Ship Passengers**\
-`The Zandaam cruise ship is approaching Fort Lauderdale, hoping to dock. But local officials are reluctant to take the ship’s sickened passengers into their crowded hospitals.`\
-https://nytimes.com/2020/04/02/us/coronavirus-cruise-zandaam-rotterdam-florida.html?searchResultPosition=2
+**Teaching Your Kids to Be Safe Online: A Hasty Primer**\
+`The coronavirus has relaxed many parents’ stances on communication apps. Here are some ground rules.`\
+https://nytimes.com/2020/04/02/parenting/coronavirus-children-online-etiquette.html?searchResultPosition=2
 
-**What You Need to Know Today About the Virus Outbreak**\
-`More than 6.6 million Americans applied for unemployment benefits last wee k, far exceeding a record high set just last week, a sign that layoffs are accelerating in the midst of the coronavirus. `\
-https://nytimes.com/aponline/2020/04/02/us/ap-us-virus-outbreakwhats-happening-.html?searchResultPosition=3
+**Unproven Stem Cell Therapy Gets OK for Testing in Coronavirus Patients**\
+`The treatment, which has been promoted by President Trump’s personal lawyer, Rudy Giuliani, will begin early-stage clinical trials.`\
+https://nytimes.com/2020/04/02/health/stem-cell-treatment-coronavirus.html?searchResultPosition=3
 
-**US Trade Gap Falls to $39.9 in February, Lowest Since 2016**\
-`The U.S. trade deficit tumbled in February to the lowest level since 2016 as exports fell and imports fell more. The politically sensitive gap in the trade of goods with China narrowed in February when the world's No. 2 economy was locked down to combat the coronavirus outbreak..`\
-https://nytimes.com/aponline/2020/04/02/business/bc-us-trade-gap.html?searchResultPosition=4
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are in Montvale, N.J., and in Larchmont, N.Y.`\
+https://nytimes.com/2020/04/02/realestate/homes-for-sale-in-new-york-and-new-jersey.html?searchResultPosition=4
 
-**U.S. Delivers 128 Anti-Tank Javelin Missiles to Estonia**\
-`The United States says it has delivered 128 anti-tank Javelin missiles to Estonia as part of a larger contract with the Baltic NATO member and the U.S. Department of Defense.`\
-https://nytimes.com/aponline/2020/04/02/business/ap-eu-estonia-us-missiles.html?searchResultPosition=5
+**On the Market in the New York Region**\
+`This week’s properties are in Montvale, N.J., and in Larchmont, N.Y.`\
+https://nytimes.com/slideshow/2020/04/02/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=5
 
-**Coronavirus Compounds Lebanon's Woes, Many Struggle for Food**\
-`Battered by Lebanon's economic crisis, Hassan Zeitar was already struggling to keep his family fed when the coronavirus lockdown stripped him of the little money he made as a minibus driver.`\
-https://nytimes.com/reuters/2020/04/02/world/middleeast/02reuters-health-coronavirus-lebanon-poverty.html?searchResultPosition=6
+**Homes for Sale in Brooklyn, Manhattan and the Bronx**\
+`This week’s properties are in Sunset Park, on the Upper West Side, and in Riverdale.`\
+https://nytimes.com/2020/04/02/realestate/homes-for-sale-in-brooklyn-manhattan-and-the-bronx.html?searchResultPosition=6
 
-**Saudi Arabia Imposes 24-Hour Curfew in Mecca and Medina**\
-`Saudi Arabia imposed a 24-hour curfew in the Muslim holy cities of Mecca and Medina on Thursday, extending measures to combat the spread of the coronavirus, which has infected more than 1,700 people in the kingdom and killed 16.`\
-https://nytimes.com/reuters/2020/04/02/world/middleeast/02reuters-health-coronavirus-saudi.html?searchResultPosition=7
+**On the Market in New York City**\
+`This weeks properties are on the Upper West Side, in Sunset Park, Brooklyn and in Riverdale, the Bronx.`\
+https://nytimes.com/slideshow/2020/04/02/realestate/on-the-market-in-new-york-city.html?searchResultPosition=7
 
-**Red Cross to Deliver Supplies for COVID-19 Patients in Separatist Eastern Ukraine**\
-`A planeload of medical supplies for COVID-19 patients and other relief goods has arrived in Ukraine to help people enduring a six-year-old conflict in the country's east, the International Committee of the Red Cross said on Thursday.`\
-https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-icrc-ukraine.html?searchResultPosition=8
+**Amazon Pushes Into Making Video Games, Not Just Streaming Their Play**\
+`The internet giant is investing hundreds of millions of dollars in the effort, with its first original game, Crucible, to be released next month.`\
+https://nytimes.com/2020/04/02/technology/amazon-making-video-games.html?searchResultPosition=8
 
-**Twitter Removes Accounts Linked to Egypt, Saudi Arabia, Other Countries**\
-`Twitter took down thousands of accounts linked to Egypt, Honduras, Indonesia, Saudi Arabia and Serbia on Thursday for either taking directions from the governments or promoting pro-government content.`\
-https://nytimes.com/reuters/2020/04/02/technology/02reuters-twitter-accounts.html?searchResultPosition=9
+**The T List: Five things We Recommend This Week**\
+`A magazine in which art meets wrestling — and more.`\
+https://nytimes.com/2020/04/02/t-magazine/art-wrestling-magazine-tlist.html?searchResultPosition=9
 
-**Florida, Finally**\
-`The state will go on lockdown, far too late.`\
-https://nytimes.com/2020/04/02/opinion/coronavirus-desantis-trump.html?searchResultPosition=10
+**Fauci Says He Feels Safe Despite Threats, Is Focusing on Job**\
+`Dr. Anthony Fauci, the top U.S. infectious disease official, said Thursday he feels safe despite reports he's received online threats and has had uncomfortable personal encounters with admirers that prompted the Trump administration to assign him a security detail.`\
+https://nytimes.com/aponline/2020/04/02/us/politics/ap-us-virus-outbreak-fauci-security.html?searchResultPosition=10
 
