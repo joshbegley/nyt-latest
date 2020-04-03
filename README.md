@@ -1,20 +1,20 @@
-**Chicago's New Top Cop Guided by Dallas Tenure, Son's Death**\
-`As daunting as the challenges that await him as the new chief of a Chicago Police Department under pressure to implement sweeping court-ordered reforms may seem, they pale compared to what David Brown Sr. had to overcome 10 years ago following an afternoon phone call on Father’s Day.`\
-https://nytimes.com/aponline/2020/04/03/us/ap-us-chicago-police-superintendent-.html?searchResultPosition=6
+**Jim Houston, Browns' 'Mr. Dependable,' Had CTE**\
+`Donna Houston knew her husband’s mind was deteriorating when the college football Hall of Famer and Cleveland Browns All-Pro known as “Mr. Dependable” struggled to manage his money.`\
+https://nytimes.com/aponline/2020/04/03/sports/ap-fbo-cte-jim-houston.html?searchResultPosition=6
 
-**You Shouldn’t Have to Risk Your Life to Vote**\
-`Holding a primary election in a pandemic, as Wisconsin plans to do on Tuesday, will suppress turnout and endanger public health.`\
-https://nytimes.com/2020/04/03/opinion/wisconsin-primary-coronavirus.html?searchResultPosition=7
+**Calling Dr. Fauci**\
+`Our interview with the nation’s top infectious disease specialist.`\
+https://nytimes.com/2020/04/03/podcasts/the-daily/daily-newsletter-fauci-coronavirus.html?searchResultPosition=7
 
-**U.S. SEC Official Urges Delay in Public Comment on Agency Rule Changes**\
-`The U.S. Securities and Exchange Commission's lone Democratic commissioner on Friday called for a delay in pending rule changes due to the coronavirus outbreak, while cautioning against excessive regulatory relief in the rush to assist companies struggling with fallout from the pandemic.`\
-https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-sec-lee.html?searchResultPosition=8
+**Dog Food Delivered to Western Alaska Amid Virus Concerns**\
+`Hundreds of dogs living in largely Alaska Native villages in southwest Alaska won’t go hungry this spring after more than 8,000 pounds (3,629 kg) of dog food were delivered, a humanitarian effort coordinated by two of the nation’s largest animal welfare groups in response to the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/04/03/us/ap-us-virus-outbreak-alaska-dog-food-delivery-2nd-ld-writethru.html?searchResultPosition=8
 
-**'Disaster' Feared if Sick Moved to California Nursing Homes**\
-`A California directive that could open the way for some patients sickened with COVID-19 to be sent from overburdened hospitals to nursing homes is being criticized by industry officials who fear vulnerable, elderly residents would be placed at risk. `\
-https://nytimes.com/aponline/2020/04/03/us/ap-us-virus-outbreak-nursing-homes.html?searchResultPosition=9
+**OSHA Cites Companies in Deadly New Orleans Hotel Collapse**\
+`A federal agency has issued citations against a dozen companies in connection with last fall’s deadly partial collapse of a hotel under construction in New Orleans. `\
+https://nytimes.com/aponline/2020/04/03/business/ap-us-hotel-collapse.html?searchResultPosition=9
 
-**What Happens if Congress Cannot Assemble to Do Its Work?**\
-`As Covid-19 makes social distancing a matter of life and death, a growing number of lawmakers are pushing the idea of remote voting.`\
-https://nytimes.com/2020/04/03/opinion/coronavirus-congress-voting.html?searchResultPosition=10
+**New Phone-Only Quibi Aims for Bite of Digital Entertainment**\
+`Want to see Chance the Rapper prank Hollywood stars? Catch a new action thriller starring Liam Hemsworth and Christoph Waltz? How about a six-minute edition of “60 Minutes”? There’s an app for that, and more.`\
+https://nytimes.com/aponline/2020/04/03/business/bc-us-tv-quibi.html?searchResultPosition=10
 
