@@ -1,20 +1,20 @@
-**Why Talking About Our Problems Helps So Much (and How to Do It)**\
-`There’s more to the age-old advice to just “talk it out” than there seems. Here’s some of the evidence that explains why it is so helpful.`\
-https://nytimes.com/2020/04/03/smarter-living/talking-out-problems.html?searchResultPosition=6
+**Walmart to Limit Number of Customers at Stores as Virus Crisis Deepens**\
+`Walmart Inc said on Friday it would limit the number of customers in a store at a time, starting April 4, to encourage social distancing among its customers.`\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-walmart.html?searchResultPosition=6
 
-**Judge Demands FBI Provide New Details About Its Surveillance**\
-`The chief judge of a secretive national security court demanded Friday that the FBI provide him with details about its investigations after a Justice Department inspector general identified problems with more than two dozen wiretap applications.`\
-https://nytimes.com/aponline/2020/04/03/us/politics/ap-us-trump-russia-probe-surveillance.html?searchResultPosition=7
+**Occidental Appoints Robert Peterson as CFO**\
+`Oil and gas producer Occidental Petroleum Corp said on Friday it appointed Robert Peterson as the company's new chief financial officer.`\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-occidental-cfo.html?searchResultPosition=7
 
-**How a Bouncy Ball Changed the Way I See the World**\
-`What I miss most now, sheltering in place, are the dog walks where a SuperBall can stop time in its tracks.`\
-https://nytimes.com/2020/04/03/magazine/how-a-bouncy-ball-changed-the-way-i-see-the-world.html?searchResultPosition=8
+**Fiat Chrysler Postpones Shareholders' Meeting and Resolution on Dividend to Late June**\
+`Fiat Chrysler said on Friday it decided to postpone to late June its shareholders' meeting scheduled for April 16, as a consequence of the continuing coronavirus emergency.`\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-fiat-chrysler-agm.html?searchResultPosition=8
 
-**Column: Remembering Final Four That Never Was in the A-T-L**\
-`It would’ve been a magnificent weekend. `\
-https://nytimes.com/aponline/2020/04/03/sports/ncaabasketball/ap-bkc-paul-newberry-final-four.html?searchResultPosition=9
+**Texas 'Fully Prepared' for Coronavirus, Does Not See New York Situation: Governor**\
+`Texas is fully prepared to meet hospital needs during the coronavirus pandemic and does not expect the kind of capacity problems facing New York, Governor Greg Abbott said on Friday.`\
+https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-usa-texas.html?searchResultPosition=9
 
-**Venezuelan Migrants Flee Colombian Quarantine for Their Shattered Homeland**\
-`Carrying small children in their arms or lugging suitcases, the Venezuelan migrants trudged along the shoulder of the highway that runs northeast out of Colombia's capital Bogota, the first steps on a long and unexpected journey home.`\
-https://nytimes.com/reuters/2020/04/03/world/americas/03reuters-health-coronavirus-colombia-migrants.html?searchResultPosition=10
+**Exxon Plays on Virus Worries in Baytown Contract Talks: Union Official**\
+`A union official said on Friday Exxon Mobil Corp is playing on economic uncertainty caused by the coronavirus pandemic in negotiations with workers at its Baytown, Texas, refinery.`\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-labor-coronavirus-exxon-baytown.html?searchResultPosition=10
 
