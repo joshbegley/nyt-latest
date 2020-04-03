@@ -1,20 +1,20 @@
-**Dapper Dan’s Grandson Sews His Own Gucci**\
-`Akil Loving has worked in his grandfather’s atelier since high school, making duds for Diddy and Pharrell.`\
-https://nytimes.com/2020/04/03/style/dapper-dans-grandson-akil-loving-gucci.html?searchResultPosition=6
+**Trade Restrictions on Food Exports Due to the Coronavirus Pandemic**\
+`Here is a list of countries that have applied or are considering trade restrictions on food or agricultural products due to the spread of the novel coronavirus around the world.`\
+https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-trade-food-factbox.html?searchResultPosition=6
 
-**AP Sources: Shipping Tycoon Helps Venezuela in Quest for Gas**\
-`With gas lines across Venezuela growing, a controversial shipping magnate has stepped in to prevent the country from running out of fuel amid the coronavirus pandemic, The Associated Press has learned. `\
-https://nytimes.com/aponline/2020/04/03/world/americas/ap-lt-venezuela-gas-shortages.html?searchResultPosition=7
+**Global Downturn Due to Coronavirus 'Way Worse' Than Global Financial Crisis: IMF**\
+`The coronavirus pandemic has brought the global economy to a standstill and plunged the world into a recession that will be "way worse" than the global financial crisis a decade ago, the head of the International Monetary Fund said on Friday.`\
+https://nytimes.com/reuters/2020/04/03/world/asia/03reuters-health-coronavirus-imf.html?searchResultPosition=7
 
-**Big League Vets With Minor League Deals Get Up to $50,000**\
-`About 370 players who were at big league spring training with minor league contracts will get advance payments of up to $50,000 each from the Major League Baseball Players Association.`\
-https://nytimes.com/aponline/2020/04/03/sports/baseball/ap-bbo-virus-outbreak-baseball.html?searchResultPosition=8
+**New Orleans Calliope Tribute for Jazz Great Ellis Marsalis**\
+`A tourist riverboat calliope blasted hymn and gospel tunes across New Orleans' French Quarter on Friday as a tribute to the late jazz pianist and educator Ellis Marsalis.`\
+https://nytimes.com/aponline/2020/04/03/us/ap-us-marsalis-calliope-tribute.html?searchResultPosition=8
 
-**How Major US Stock Indexes Fared Friday**\
-`Stocks closed broadly lower on Wall Street Friday following the latest grim snapshot of the toll the coronavirus is having on the labor market as the economy grinds to a halt. `\
-https://nytimes.com/aponline/2020/04/03/business/ap-financial-markets-box.html?searchResultPosition=9
+**During a Pandemic, an Unanticipated Problem: Out-of-Work Health Workers**\
+`Across the country, plunging revenues from canceled nonemergency medical appointments have forced hospitals to furlough or cut the pay of doctors, nurses and other staff.`\
+https://nytimes.com/2020/04/03/us/politics/coronavirus-health-care-workers-layoffs.html?searchResultPosition=9
 
-**Coronavirus Sweeps Through a San Antonio Nursing Home**\
-`The virus infected 66 of the facility’s 84 residents and killed an additional resident, with several infected employees working at other facilities in Texas.`\
-https://nytimes.com/2020/04/03/us/coronavirus-san-antonio-nursing-home.html?searchResultPosition=10
+**New England Patriots' Truck Delivers Masks to New York to Help Coronavirus Effort**\
+`A truck emblazoned with the colors of the New England Patriots football team was out on the streets of New York on Friday, delivering 300,000 N95 masks to a makeshift hospital set up in the Jacob K. Javits Convention Center.`\
+https://nytimes.com/reuters/2020/04/03/sports/football/03reuters-health-coronavirus-usa-patriots.html?searchResultPosition=10
 
