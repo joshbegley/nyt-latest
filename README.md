@@ -1,20 +1,20 @@
-**Mormons Hold Signature Conference Virtually Due to Pandemic**\
-`For the first time in more than 70 years, top leaders from The Church of Jesus Christ of Latter-day Saints will deliver speeches at the faith's signature conference this weekend without an in-person audience in the latest illustration of how the coronavirus pandemic is altering worship practices around the world.`\
-https://nytimes.com/aponline/2020/04/03/business/ap-us-mormon-conference.html?searchResultPosition=6
+**Senators Call on Pentagon Inspector General to Probe Navy Carrier Commander's Firing**\
+`Two Democratic senators formally requested on Friday that the Pentagon's independent Inspector General immediately open an investigation into the Navy's firing of the commander of the Theodore Roosevelt aircraft carrier, who called for stronger measures to halt a coronavirus outbreak aboard the vessel.`\
+https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-usa-navy-probe.html?searchResultPosition=6
 
-**Hungary's Orban Strikes Back at EU Criticism on Extra Powers**\
-`Hungary’s prime minister struck back at his critics in the European Union, saying he has “no time” for dealing with some of them during the coronavirus pandemic and accusing others of wanting to “loot” the country.`\
-https://nytimes.com/aponline/2020/04/03/world/europe/ap-eu-virus-oubreak-hungary-orban.html?searchResultPosition=7
+**Hedge Fund Glenview Off 30% as Coronavirus Weighs on Portfolio**\
+`Glenview Capital Management, the hedge fund run by Larry Robbins, has lost roughly 30% in the first three months of 2020 as the spread of the new coronavirus hurt the healthcare facilities and hospital operators the firm has invested in.`\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-hedgefunds-glenview.html?searchResultPosition=7
 
-**Marvel Remakes Release Calendar; 'Mulan' Moves to Late July**\
-`The Walt Disney Co. on Friday overhauled its release schedule by moving the dates of half a dozen Marvel movies, announcing a new one for the live-action adaption of “Mulan” and pushing the fifth “Indiana Jones” film another year in response to the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/03/business/bc-us-film-disney-marvel-new-release-dates.html?searchResultPosition=8
+**Cisco's Webex Draws Record 324 Million Users in March**\
+`Cisco Systems Inc's video-conferencing app Webex registered a record 324 million attendees in March, with usage more than doubling in the Americas, as the coronavirus-led lockdowns forced businesses to have employees work from home.`\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-cisco-systems-webex.html?searchResultPosition=8
 
-**Basketball Hall of Fame Set to Announce 2020 Class**\
-`A unique Hall of Fame class will be announced Saturday in a unique way.`\
-https://nytimes.com/aponline/2020/04/03/sports/basketball/ap-bko-hall-of-fame.html?searchResultPosition=9
+**The Fed Got a Big Pile of Cash to Help the Economy. Who Will Benefit?**\
+`As the coronavirus sends the economy into free-fall, the Federal Reserve will keep credit flowing with an array of programs. But some details are fuzzy.`\
+https://nytimes.com/2020/04/03/business/economy/coronavirus-fed-business-credit.html?searchResultPosition=9
 
-**Group Holding Immigrant Children Settles Ex-Employee Claim**\
-`The U.S. Department of Justice says a Texas-based organization that runs facilities to hold immigrant children has settled a retaliation claim from an ex-employee.`\
-https://nytimes.com/aponline/2020/04/03/us/ap-us-immigrant-children-settlement.html?searchResultPosition=10
+**Constellation Brands Says Mexico Breweries Still Running Amid Coronavirus Outbreak**\
+`Constellation Brands Inc, the U.S. distributor of Corona beer, said on Friday its Mexican breweries were still operational and supply to the United States was intact even as rivals suspended production due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-constellation-results.html?searchResultPosition=10
 
