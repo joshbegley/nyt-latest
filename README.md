@@ -1,20 +1,20 @@
-**Coronavirus Upends Global Food Supply Chains in Latest Economic Shock**\
-`In the fertile Satara district in western India, farmers are putting their cattle on an unorthodox diet: Some feed iceberg lettuce to buffalo. Others feed strawberries to cows.`\
-https://nytimes.com/reuters/2020/04/03/world/asia/03reuters-health-coronavirus-food-supplies-insight.html?searchResultPosition=6
+**Why I Tried to Save My Father, My Dictator**\
+`Once you see your father as vulnerable, you don’t forget it.`\
+https://nytimes.com/2020/04/03/opinion/undocumented-immigrant-father.html?searchResultPosition=6
 
-**Sports Events Around the World Hit by Coronavirus Pandemic**\
-`Major sports events around the world that have been hit by the coronavirus pandemic:`\
-https://nytimes.com/reuters/2020/04/03/sports/skiing/03reuters-health-coronavirus-sport-factbox.html?searchResultPosition=7
+**Prisons Breed the Coronavirus. We Can Safely Free Thousands of Inmates.**\
+`Nonviolent offenders, the medically vulnerable and those near the end of their sentences should be released. Those who remain deserve much better medical care.`\
+https://nytimes.com/2020/04/03/opinion/coronavirus-jails-prisons.html?searchResultPosition=7
 
-**U.S. Prosecutors Resist Calls to Free Inmates as Coronavirus Spreads**\
-`Five inmates at a federal prison in Oakdale, Louisiana, have died since March 28 after contracting the coronavirus. Harold Lee’s family fears he could be next.`\
-https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-justice-prisons-insight.html?searchResultPosition=8
+**An I.C.U. Nurse’s Coronavirus Diary**\
+`I’ve started to refer to the time before this as peace time. Because this feels like a war.`\
+https://nytimes.com/2020/04/03/opinion/coronavirus-icu-nurse.html?searchResultPosition=8
 
-**Coronavirus Struck Entire Wuhan Family, Took Its Patriarch**\
-`For more than a month, Wu Di did not know his father was dead.`\
-https://nytimes.com/aponline/2020/04/03/world/asia/ap-virus-outbreak-lost-lives-wuhan-family-patriarch.html?searchResultPosition=9
+**Swift Aid Payments Keep Berlin’s Self-Employed Afloat Despite Shutdown**\
+`Within days, Germany’s capital distributed money to 150,000 artists, shop owners, hairdressers and other small-business owners and freelancers to cover basic expenses.`\
+https://nytimes.com/2020/04/03/world/europe/coronavirus-Berlin-self-employed.html?searchResultPosition=9
 
-**Perez Promises as 'Robust as Convention as Possible' for DNC**\
-`The Democratic National Convention in Milwaukee will be as robust as possible, despite a five-week delay due to concerns over the coronavirus pandemic, party chairman Tom Perez said on Friday.`\
-https://nytimes.com/aponline/2020/04/03/us/politics/ap-us-election-2020-democratic-convention.html?searchResultPosition=10
+**HBO Documentary Sheds News Light on 'Atlanta Child Murders'**\
+`Anthony Terrell believes an imprisoned man currently serving two life sentences may not have been the person who murdered his brother as part of a killing spree that rocked Atlanta four decades ago.`\
+https://nytimes.com/aponline/2020/04/03/us/ap-us-atlanta-child-murders-documentary.html?searchResultPosition=10
 
