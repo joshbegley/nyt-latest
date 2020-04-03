@@ -1,36 +1,36 @@
-**You Have an Extra 3 Months to File Your Taxes. Should You Wait?**\
-`If you’re owed a refund, it may be better to file quickly. You can also file your return now but wait until July 15 to pay any taxes owed.`\
-https://nytimes.com/2020/04/03/your-money/coronavirus-income-tax-deadline.html?searchResultPosition=2
+**Factbox: British Business Loan Scheme Strained by Coronavirus**\
+`Britain's Finance Minister Rishi Sunak on Friday announced updates to a scheme designed to get banks to help businesses hit by the coronavirus.`\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-britain-lending-factbox.html?searchResultPosition=2
 
-**Commission Seeks Clarity on Absentees for Wisconsin Election**\
-`The Wisconsin Election Commission wants a federal judge who ordered an extension for absentee voting in Tuesday’s presidential primary as the coronovirus spreads to ensure that no results are reported until all absentee ballots are in.`\
-https://nytimes.com/aponline/2020/04/03/us/ap-us-virus-outbreak-wisconsin-election.html?searchResultPosition=3
+**Factbox: Google Location Data Shows Slump in Trips to Malls, Offices**\
+`Google on Thursday published reports for 131 countries showing whether visits to shops, parks and workplaces dropped in March, when many governments issued stay-at-home orders to rein in the spread of COVID-19. `\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-google-countries-factbox.html?searchResultPosition=3
 
-**NYC Mayor Urges National Enlistment Program for Doctors**\
-`New York City Mayor Bill de Blasio called Friday for a national enlistment program for doctors and nurses to handle an expected surge in coronavirus cases in New York and other places around the country where virus cases are straining existing health care systems.`\
-https://nytimes.com/aponline/2020/04/03/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=4
+**Mixing Your Own Hand Sanitizer?**\
+`Recipes circulating on social media say it’s simple. But the end result is not like the real thing, and it may not be effective at killing germs.`\
+https://nytimes.com/2020/04/03/well/live/coronavirus-hand-sanitizer-home-made-diy.html?searchResultPosition=4
 
-**AP PHOTOS: The Spaces We Filled, Now Filled With Space**\
-`It’s a scene playing out all over the world. The empty streets, the silent playgrounds and the lone commuter. Rush hour feels more like hush hour. `\
-https://nytimes.com/aponline/2020/04/03/us/ap-us-virus-outbreak-life-interrupted-photo-gallery.html?searchResultPosition=5
+**How to Hold an Awards Show in a Pandemic**\
+`Major prizes have been postponed or canceled because of the coronavirus outbreak, but one organization showed that a ceremony could still be done. Even down to the red carpet interviews.`\
+https://nytimes.com/2020/04/03/arts/coronavirus-bafta-game-awards.html?searchResultPosition=5
 
-**Scramble for Virus Supplies Strains Global Solidarity**\
-`San Marino needed medical masks. Badly. `\
-https://nytimes.com/aponline/2020/04/03/business/bc-eu-virus-outbreak-squabbling-for-supplies.html?searchResultPosition=6
+**Dutch Coronavirus Deaths Rise to 1,487: Health Authorities**\
+`The Netherlands announced a further 148 deaths linked to the coronavirus on Friday, bringing the country's total to 1,487. `\
+https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-netherlands-tally.html?searchResultPosition=6
 
-**US Sheds 701,000 Jobs, Ending a Record-Long Hiring Streak**\
-`A record-long streak of U.S. job growth ended suddenly in March after nearly a decade as employers cut 701,000 jobs because of the viral outbreak that's all but shut down the U.S. economy. The unemployment rate jumped to 4.4% from a 50-year low of 3.5%.`\
-https://nytimes.com/aponline/2020/04/03/business/ap-us-economy-jobs-report-1st-ld-writethru.html?searchResultPosition=7
+**Swiss Government Doubles Size of Coronavirus Loan Scheme to $41 Billion**\
+`The Swiss government is doubling the size of its coronavirus emergency loan scheme to 40 billion Swiss francs ($40.94 billion) after being flooded by requests for help by businesses, it said on Friday.`\
+https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-swiss-finance.html?searchResultPosition=7
 
-**Florida Finally Takes Cruise Passengers, Some on Stretchers**\
-`Passengers from an ill-fated cruise were carefully freed from their cabins and allowed to touch dry land on Friday for the first time in weeks, following the removal of 14 critically ill people who were wheeled off to Florida hospitals bracing for an onslaught of coronavirus patients. `\
-https://nytimes.com/aponline/2020/04/03/us/ap-us-virus-outbreak-cruise-ships.html?searchResultPosition=8
+**Face Masks No Replacement for Distance Amid Coronavirus: Fauci**\
+`Wearing a face mask is not a substitute for physical distancing and other coronavirus mitigation measures, the nation's top infectious disease official said on Friday, as the Trump administration readies its formal recommendation on such coverings.`\
+https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-usa-fauci.html?searchResultPosition=8
 
-**Decade of Job Growth Comes to an End, Undone by a Pandemic**\
-`After an expansion that added 22 million to U.S. payrolls, March registered a loss, and worse is yet to come.`\
-https://nytimes.com/2020/04/03/business/economy/coronavirus-jobs-report.html?searchResultPosition=9
+**Countries Face 'Fights' Over Facemasks in China: German Health Minister**\
+`Countries' procurement agents are fighting each other in China for access to the protective equipment that must play a key role in stemming the spread of the novel coronavirus, German Health Minister Jens Spahn said.`\
+https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-germany.html?searchResultPosition=9
 
-**Member of Turkish Folk Band Dies on 288th of Hunger Strike**\
-`A member of a popular folk music group that is banned in Turkey has died on the 288th day of a hunger strike protesting the government's treatment of the band, according to a post on the group's Twitter account.`\
-https://nytimes.com/aponline/2020/04/03/world/europe/ap-eu-turkey-hunger-strike.html?searchResultPosition=10
+**No Quick Deliveries of COVID-19 Ventilators, EU Says**\
+`The European Union will struggle to get hold of large numbers of ventilators quickly to treat patients suffering from COVID-19 due to the complexity of the machines and high demand for them, the executive European Commission said on Friday.`\
+https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-eu-ventilators.html?searchResultPosition=10
 
