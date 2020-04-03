@@ -1,20 +1,20 @@
-**Prudential Financial to Suspend Applications for 30-Year Term Life Insurance Policies**\
-`Prudential Financial Inc will temporarily suspend taking applications for 30-year term life insurance policies, effective April 13, a spokeswoman said on Friday.`\
-https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-insurance-life.html?searchResultPosition=6
+**Trump Says Hospitals Will Be Paid for Treating Uninsured Coronavirus Patients**\
+`Critics say that it may not go to hospitals in the states hit the hardest so far and that it fails to address the problems of uninsured people more generally.`\
+https://nytimes.com/2020/04/03/upshot/trump-hospitals-coronavirus.html?searchResultPosition=6
 
-**Coronavirus Fiscal Fallout on U.S. Muni Issuers Worries Investors**\
-`Investors in the U.S. municipal bond market are growing increasingly worried over the ability of states, cities and other debt issuers to weather the financial fallout of the COVID-19 pandemic caused by the novel coronavirus. `\
-https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-municipals.html?searchResultPosition=7
+**F.D.A. to Allow Use of KN95 Masks Approved by China**\
+`The masks are almost identical in performance to the N95 masks that hospitals and other institutions are struggling to find.`\
+https://nytimes.com/2020/04/03/health/coronavirus-n95-kn95-masks.html?searchResultPosition=7
 
-**Defense Secretary Esper Backed Firing of Carrier Captain Crozier**\
-`U.S. Defense Secretary Mark Esper backed the Navy's firing of the commander of a coronavirus-striken aircraft carrier, the Pentagon said on Friday, amid a backlash from Democrats in Congress as well as the crew of the vessel, who hailed their captain as a hero.`\
-https://nytimes.com/reuters/2020/04/03/us/politics/03reuters-health-coronavirus-usa-navy-esper.html?searchResultPosition=8
+**A Gift From Gallaghers: Aged Steaks for First Responders**\
+`On Friday, the New York steakhouse opened its famed front-window meat locker to police officers and firefighters.`\
+https://nytimes.com/2020/04/03/dining/gallaghers-steakhouse-fdny-coronavirus.html?searchResultPosition=8
 
-**NFL Could Move 2024 Super Bowl Due to Mardi Gras**\
-`The NFL is considering moving the 2024 Super Bowl out of New Orleans due to potential conflicts with Mardis Gras that emerged with the pending expansion to a 17-game season.`\
-https://nytimes.com/reuters/2020/04/03/sports/football/03reuters-football-nfl-no-nola-super-bowl.html?searchResultPosition=9
+**African Migrants in Morocco Wait for Aid as Coronavirus Bites**\
+`Thousands of African migrants without revenue during Morocco's coronavirus lockdown could run out of money for food and essentials, and rights groups have urged the government to offer them the same cash help it has promised to citizens. `\
+https://nytimes.com/reuters/2020/04/03/world/africa/03reuters-health-coronavirus-morocco-migrants.html?searchResultPosition=9
 
-**FDIC Announces Closure of West Virginia's First State Bank**\
-`The U.S. Federal Deposit Insurance Corporation announced on Friday that West Virginia's First State Bank had failed and its accounts were being taken over by MVB Bank, Inc., also of West Virginia.`\
-https://nytimes.com/reuters/2020/04/03/us/03reuters-usa-banks-failure.html?searchResultPosition=10
+**In Communist-Run Cuba, the Private Sector Helps the Needy as Coronavirus Spreads**\
+`Upmarket restaurants are delivering free meals to the elderly, while a fashion firm donates face masks. A business consultancy calls on its clients to donate hygiene products and artisanal soap shops gift their wares to low income households.`\
+https://nytimes.com/reuters/2020/04/03/world/americas/03reuters-health-coronavirus-cuba-private-sector.html?searchResultPosition=10
 
