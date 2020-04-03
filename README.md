@@ -1,20 +1,20 @@
-**Bulgaria Extends State of Emergency to Halt Spread of Coronavirus**\
-`Bulgaria's parliament approved the extension of a state of emergency by a month on Friday to stop the spread of the coronavirus, as the number of confirmed cases rose to 485.`\
-https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-bulgaria.html?searchResultPosition=6
+**Review: In ‘World on Fire,’ War Is the Virus**\
+`PBS’s “Masterpiece” offers a World War II drama without generals or prime ministers or führers, just a lot of ordinary people muddling through.`\
+https://nytimes.com/2020/04/03/arts/television/world-on-fire-review.html?searchResultPosition=6
 
-**Now’s a Good Time to Teach Your Kids to Play on Their Own**\
-`Independent play is a skill your kids will use for the rest of the lives — and a way to claim some time for yourself during quarantine.`\
-https://nytimes.com/2020/04/03/parenting/kids-independent-play-coronavirus-quarantine.html?searchResultPosition=7
+**Exclusive: Amazon to Delay Marketing Event Prime Day Due to Coronavirus**\
+`Amazon.com Inc is postponing its major summer shopping event Prime Day at least until August and expects potentially a $100 million hit from excess devices it may now have to sell at a discount, according to internal meeting notes seen by Reuters.`\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-amazon-com-prime-day-exclusive.html?searchResultPosition=7
 
-**Film Treasures, Streaming Courtesy of the Library of Congress**\
-`The astonishment of riches includes up-close looks at our history in hundreds of films. And they’re all free.`\
-https://nytimes.com/2020/04/03/movies/library-congress-streaming-free.html?searchResultPosition=8
+**In Pivot, Pelosi Sees Next Relief Bill With Bipartisan Goals**\
+`House Speaker Nancy Pelosi said Friday that the next coronavirus aid bill should build on the bipartisan relief bills  that Congress has passed so far rather than include broader Democratic agenda items such as infrastructure and rural broadband access. `\
+https://nytimes.com/aponline/2020/04/03/us/politics/ap-us-virus-outbreak-congress.html?searchResultPosition=8
 
-**A Mediterranean-Inspired Menu to Keep You Going All Day**\
-`Savory spiced oats, chicken salad pita and spicy meatballs: These recipes offer a trip abroad, via your pantry.`\
-https://nytimes.com/2020/04/03/dining/mediterranean-menu-coronavirus.html?searchResultPosition=9
+**Russia Says U.S. Has Legal Curbs on Oil Output Cuts, but Should Be Flexible**\
+`Russian Energy Minister Alexander Novak said on Friday that the United States has legal restrictions on oil output cuts, but the country should be flexible with them, RIA news agency reported.`\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-oil-opec-russia-usa-novak.html?searchResultPosition=9
 
-**Parenting When the Family Is Locked Inside**\
-`The clinical psychologist Lisa Damour discusses the specific challenges of raising teenagers during the pandemic, and Dwight Garner asks Pamela Paul about putting together the Book Review.`\
-https://nytimes.com/2020/04/03/books/review/podcast-lisa-damour.html?searchResultPosition=10
+**Canada's Ontario Warns Coronavirus Cases Will Soar Without Further Distancing Measures**\
+`Ontario health officials on Friday projected 80,000 coronavirus cases in the province, Canada's most heavily populated region, by April 30 under current public health measures and urged people to restrict their movements.`\
+https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-canada-ontario.html?searchResultPosition=10
 
