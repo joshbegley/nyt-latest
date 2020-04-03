@@ -1,20 +1,20 @@
-**Tesla, Dave & Buster Rise; Chewy, Macquarie Fall**\
-`Stocks that moved heavily or traded substantially on Friday:`\
-https://nytimes.com/aponline/2020/04/03/business/ap-financial-markets-stocks.html?searchResultPosition=6
+**Pandemic Forcing NBA Players to Work Out With What's on Hand**\
+`Giannis Antetokounmpo is spending much of his time during the coronavirus-imposed hiatus working out, helping care for his newborn son and playing occasional video games.`\
+https://nytimes.com/aponline/2020/04/03/sports/basketball/ap-bkn-virus-outbreak-workouts.html?searchResultPosition=6
 
-**US Long-Term Mortgages Fall; 30-Year at 3.33%**\
-`U.S. long-term mortgage rates fell this week for the second straight week as anxiety has spiraled over devastation to the economy from the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/04/03/business/bc-us-mortgage-rates.html?searchResultPosition=7
+**Insurance Marketplaces Offer Help With Coronavirus Job Cuts**\
+`More than a million people could swamp the Affordable Care Act’s health insurance marketplaces in the coming months as employers lay off staff during the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/04/03/health/ap-us-med-virus-outbreak-keeping-coverage.html?searchResultPosition=7
 
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark crude oil rose $3.02 to settle at $28.34 a barrel Friday. Brent crude oil, the international standard, rose $4.17 to $34.11 a barrel. `\
-https://nytimes.com/aponline/2020/04/03/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=8
+**Have You Been Separated from Your Family Because of Coronavirus?**\
+`We want to hear from you.`\
+https://nytimes.com/2020/04/03/parenting/self-quarantine-family-coronavirus-callout.html?searchResultPosition=8
 
-**White House Convenes Oil CEOs as Bust Threatens US Boom**\
-`Petroleum CEOs, including U.S. oil-patch loyalists to President Donald Trump, sought White House help Friday in calming roiling global oil markets amid threats to America’s yearslong fracking boom and the global pandemic. `\
-https://nytimes.com/aponline/2020/04/03/business/bc-us-virus-outbreak-trump-oil-executives.html?searchResultPosition=9
+**2 Members of Kennedy Family Are Missing After Canoe Overturned**\
+`Maeve Kennedy Townsend McKean, a granddaughter of Robert F. Kennedy, and her 8-year-old son were last seen in the Chesapeake Bay on Thursday, according to the authorities.`\
+https://nytimes.com/2020/04/03/us/maeve-kennedy-granddaughter-missing.html?searchResultPosition=9
 
-**Patricia Bosworth, Actress-Turned-Author, Dies at 86**\
-`She gave up the stage for the writing life, publishing biographies of some famous friends and two powerful memoirs. She died of the coronavirus.`\
-https://nytimes.com/2020/04/03/books/patricia-bosworth-dead-virus.html?searchResultPosition=10
+**Zion Is Latest National Park to Close Amid Virus Spread**\
+`The red rock vistas at Zion National Park were closed to the public Friday as the Utah site became the latest national park to lock its gates to prevent the spread of the coronavirus.`\
+https://nytimes.com/aponline/2020/04/03/us/ap-us-virus-outbreak-national-parks.html?searchResultPosition=10
 
