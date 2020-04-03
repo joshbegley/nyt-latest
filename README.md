@@ -18,8 +18,8 @@ https://nytimes.com/2020/04/02/nyregion/ny-coronavirus-usns-comfort.html?searchR
 `The French government is racing to try to ensure it can produce or procure itself certain medications as stocks run low due to the coronavirus outbreak, French Prime Minister Edouard Philippe said on Thursday. `\
 https://nytimes.com/reuters/2020/04/02/world/europe/02reuters-health-coronavirus-france-medicine.html?searchResultPosition=6
 
-**S&P Affirms U.S. Amid Coronavirus Outbreak, Says Debt and Deficit Will Worsen**\
-`Global credit rating agency S&P Global Ratings on Thursday affirmed the United States' sovereign credit ratings at 'AA+/A-1+' with a stable rating outlook, amid the ongoing coronavirus outbreak.`\
+**S&P Joins Fitch in Affirming U.S. Amid Virus Outbreak, Says Debt, Deficit to Worsen**\
+`Global credit rating agency S&P Global Ratings on Thursday affirmed the United States' sovereign credit ratings at 'AA+/A-1+' with a stable rating outlook, amid the coronavirus outbreak, joining Fitch Ratings, which affirmed the world's largest economy last week.`\
 https://nytimes.com/reuters/2020/04/02/business/02reuters-usa-ratings-s-p.html?searchResultPosition=7
 
 **'Surreal': NY Funeral Homes Struggle as Virus Deaths Surge**\
