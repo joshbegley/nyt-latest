@@ -1,20 +1,20 @@
-**Richmond Fed's Barkin: Employment Numbers to Get Worse Before Getting Better**\
-`U.S. employment numbers will get worse amid the ongoing coronavirus outbreak before getting better, Richmond Federal Reserve President Thomas Barkin said in an interview with Bloomberg News.`\
-https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-usa-fed.html?searchResultPosition=6
+**Ex-NYU Hospital Employee Who Refused Flu Vaccine Sues Over His Firing**\
+`By Jonathan Stempel`\
+https://nytimes.com/reuters/2020/04/03/us/03reuters-nyu-langone-weiner.html?searchResultPosition=6
 
-**American Airlines Applies for U.S. Payroll Assistance Grants**\
-`American Airlines, the largest U.S. airline, confirmed Friday it has applied to the U.S. Treasury for a chunk of the $25 billion payroll assistance grants approved by Congress last week.`\
-https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-american-airlines.html?searchResultPosition=7
+**The Watchdogs Overseeing the $2.3 Trillion U.S. Bailout**\
+`Who's watching over the U.S. government's largest bailout in history - the $2.3 trillion in fiscal stimulus to fight the economic impact of the coronavirus? `\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-usa-watchdogs-factbox.html?searchResultPosition=7
 
-**Global Currency Funds Notch Wins Amid Coronavirus Volatility**\
-`Global currency fund managers racked up gains in the first quarter as they benefited from the extreme volatility that the coronavirus pandemic has stoked across financial markets. `\
-https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-fx-funds.html?searchResultPosition=8
+**'Crazy Amounts of Chicken' and Masks-a Small Washington Grocer's Typical Day**\
+`A tall, surgical mask-wearing young man stands at the entrance as customers line up outside. A sign at the door - illustrated with stick figures drawn by the co-owner's 6-year-old daughter - warns clients they can only come in three at a time.`\
+https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-usa-washington-feature.html?searchResultPosition=8
 
-**Corona Beer Halts Production Amid Coronavirus Outbreak**\
-`The suspension was announced days after the Mexican government ordered nonessential businesses to close.`\
-https://nytimes.com/2020/04/03/business/coronavirus-corona-beer.html?searchResultPosition=9
+**JPMorgan Says Now Accepting Applications for Federal Loan Program**\
+`JPMorgan Chase & Co, the largest U.S. lender by assets,  started accepting at Friday midday applications for loans from the federal government's paycheck protection program, according to a post on the bank's website.`\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-jp-morgan-loans.html?searchResultPosition=9
 
-**Former Queens Museum Director to Lead Leslie-Lohman Museum**\
-`Laura Raicovich will lead the museum on an interim basis, replacing Gonzalo Casals, New York City’s new Cultural Affairs Commissioner.`\
-https://nytimes.com/2020/04/03/arts/design/leslie-lohman-museum-interim-director.html?searchResultPosition=10
+**Trump Says Bank of America, Others Doing 'Great Job' on Small-Business Loans**\
+`President Donald Trump hailed one of the country's largest banks, as well as many small lenders, for making small business emergency loans on the first day of a new U.S. coronavirus economic relief program.`\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-usa-banks.html?searchResultPosition=10
 
