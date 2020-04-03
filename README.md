@@ -1,20 +1,20 @@
-**Anick Jesdanun, Longtime AP Technology Writer, Dies at 51**\
-`He ran marathons on every continent, including Antarctica — 83 of them in all, many followed by a visit to an obscure craft brewery.`\
-https://nytimes.com/aponline/2020/04/03/us/ap-us-obit-jesdanun.html?searchResultPosition=6
+**Tesla, Dave & Buster Rise; Chewy, Macquarie Fall**\
+`Stocks that moved heavily or traded substantially on Friday:`\
+https://nytimes.com/aponline/2020/04/03/business/ap-financial-markets-stocks.html?searchResultPosition=6
 
-**Georgia Rapper Playboi Carti Facing Drug, Traffic Charges**\
-`Rapper Playboi Carti has been released from custody following his arrest on drug and traffic charges in Georgia.`\
-https://nytimes.com/aponline/2020/04/03/us/ap-us-rapper-arrested-playboi-carti.html?searchResultPosition=7
+**US Long-Term Mortgages Fall; 30-Year at 3.33%**\
+`U.S. long-term mortgage rates fell this week for the second straight week as anxiety has spiraled over devastation to the economy from the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/04/03/business/bc-us-mortgage-rates.html?searchResultPosition=7
 
-**The Biggest Bad Guy at WrestleMania Is Coronavirus**\
-`WrestleMania planned for Gronk Gone Wild.`\
-https://nytimes.com/aponline/2020/04/03/sports/ap-wre-wrestlemania.html?searchResultPosition=8
+**Closing Prices for Crude Oil, Gold and Other Commodities**\
+`Benchmark crude oil rose $3.02 to settle at $28.34 a barrel Friday. Brent crude oil, the international standard, rose $4.17 to $34.11 a barrel. `\
+https://nytimes.com/aponline/2020/04/03/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=8
 
-**'From Russia With Love' Mission to Italy Hit by Press Row**\
-`Russian criticism of an Italian newspaper was "inappropriate", Italy's foreign and defence ministries said on Friday, in a case that has cast a cloud over Moscow's efforts to help Rome cope with the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-italy-russia.html?searchResultPosition=9
+**White House Convenes Oil CEOs as Bust Threatens US Boom**\
+`Petroleum CEOs, including U.S. oil-patch loyalists to President Donald Trump, sought White House help Friday in calming roiling global oil markets amid threats to America’s yearslong fracking boom and the global pandemic. `\
+https://nytimes.com/aponline/2020/04/03/business/bc-us-virus-outbreak-trump-oil-executives.html?searchResultPosition=9
 
-**'Ridiculous' Block-Long Lines at Banks Greet Argentine Pensioners, at High Risk for Coronavirus**\
-`Argentina's elderly, the highest-risk group for coronavirus complications, crowded in long lines on Friday to withdraw pensions as banks scrambled to keep up with demand and extended their hours through the weekend amid a national quarantine.`\
-https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-argentina.html?searchResultPosition=10
+**Patricia Bosworth, Actress-Turned-Author, Dies at 86**\
+`She gave up the stage for the writing life, publishing biographies of some famous friends and two powerful memoirs. She died of the coronavirus.`\
+https://nytimes.com/2020/04/03/books/patricia-bosworth-dead-virus.html?searchResultPosition=10
 
