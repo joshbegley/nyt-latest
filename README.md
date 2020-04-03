@@ -1,36 +1,36 @@
+**E.P.A. Threatens Legal Action Against Sellers of Fake Coronavirus Cleaners**\
+`The federal government is asking online retailers to take unregistered products that falsely claim protection from coronavirus off the market.`\
+https://nytimes.com/2020/04/03/climate/epa-fake-coronavirus-cleaners.html?searchResultPosition=2
+
 **Prince Charles Opens Fast-Tracked London Hospital**\
 `Prince Charles on Friday remotely opened the new Nightingale Hospital at London's main exhibition and conference center, a temporary facility that will soon be able to treat 4,000 people who have contracted COVID-19.`\
-https://nytimes.com/aponline/2020/04/03/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/04/03/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=3
 
 **The Imperative of Personal Sacrifice, Today and During World War II**\
 `Are Americans as willing to making sacrifices today in response to the coronavirus, compared to in the 1940s? A historian explains.`\
-https://nytimes.com/2020/04/03/magazine/personal-sacrifice-coronavirus-world-war-ii.html?searchResultPosition=3
+https://nytimes.com/2020/04/03/magazine/personal-sacrifice-coronavirus-world-war-ii.html?searchResultPosition=4
 
 **What Are Some Ways to “Travel” Without Traveling During the Pandemic?**\
 `What can you do over a weekend, wherever you are in the world (even if you are homebound)?`\
-https://nytimes.com/2020/04/03/learning/what-are-some-ways-to-travel-without-traveling-during-the-pandemic.html?searchResultPosition=4
+https://nytimes.com/2020/04/03/learning/what-are-some-ways-to-travel-without-traveling-during-the-pandemic.html?searchResultPosition=5
 
 **Conversation Starters That Have Nothing to Do With the Coronavirus**\
 `It’s important to stay informed on the latest pandemic news, but you may find yourself wanting to have a chat or four about non-coronavirus things.`\
-https://nytimes.com/2020/04/03/smarter-living/conversation-starters-non-coronavirus.html?searchResultPosition=5
+https://nytimes.com/2020/04/03/smarter-living/conversation-starters-non-coronavirus.html?searchResultPosition=6
 
 **Vendors Return in Wuhan as China Prepares Virus Memorial**\
 `Sidewalk vendors wearing face masks and gloves sold pork, tomatoes, carrots and other vegetables to shoppers Friday in the Chinese city where the coronavirus pandemic began, as workers prepared for a national memorial this weekend for health workers and others who died in the outbreak. `\
-https://nytimes.com/aponline/2020/04/03/business/ap-as-virus-outbreak-china.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/04/03/business/ap-as-virus-outbreak-china.html?searchResultPosition=7
 
 **Latvia Reports First Death of a COVID-19 Patient: Health Ministry**\
 `Latvia reported its first death of a patient infected with the new coronavirus on Friday, when a 99-year-old woman died in a hospital in Riga, the health ministry said.`\
-https://nytimes.com/reuters/2020/04/03/world/asia/03reuters-health-coronavirus-latvia-death.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/04/03/world/asia/03reuters-health-coronavirus-latvia-death.html?searchResultPosition=8
 
 **European Soccer Teams Get Clarity and a Warning**\
 `European soccer leaders have written to teams and leagues to map out a plan to return to action in July and August, warning there would be consequences should leagues abandon seasons unilaterally.`\
-https://nytimes.com/2020/04/03/sports/european-soccer-football-canceled.html?searchResultPosition=8
+https://nytimes.com/2020/04/03/sports/european-soccer-football-canceled.html?searchResultPosition=9
 
 **EU Says Will Provide Armenia With 51 Million Euros to Fight Coronavirus**\
 `The European Union is ready to provide 51 million euros to help support Armenia's economy and healthcare system as it battles to curb the South Caucasus' worst outbreak of the new coronavirus.`\
-https://nytimes.com/reuters/2020/04/03/world/03reuters-armenia-economy-eu.html?searchResultPosition=9
-
-**China Frees Up $56 Billion for Virus-Hit Economy by Slashing Small Banks' Reserve Requirements**\
-`China's central bank said on Friday it was cutting the amount of cash that small and mid-sized banks must hold as reserves, releasing around 400 billion yuan ($56.38 billion) in liquidity to shore up the economy, which has been badly jolted by the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/04/03/world/asia/03reuters-china-economy-rrr-cut.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/03/world/03reuters-armenia-economy-eu.html?searchResultPosition=10
 
