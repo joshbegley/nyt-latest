@@ -1,32 +1,32 @@
+**Champion Rower Decides Postponed Tokyo Games Are a Step Too Far**\
+`British Olympic rowing gold medallist Tom Ransley announced his retirement on Friday after deciding the postponement of the Tokyo 2020 Olympics to next year was a step too far.`\
+https://nytimes.com/reuters/2020/04/03/sports/olympics/03reuters-health-coronavirus-olympics-rowing.html?searchResultPosition=3
+
+**WNBA Postpones Start of Season Due to Coronavirus**\
+`The Women's National Basketball Association (WNBA) has postponed the start of its 2020 regular season and training camps because of the coronavirus outbreak, the league said on Friday.`\
+https://nytimes.com/reuters/2020/04/03/sports/basketball/03reuters-health-coronavirus-basketball-wnba.html?searchResultPosition=4
+
+**Joshua-Pulev Heavyweight Title Fight Postponed-Promoters**\
+`The world heavyweight title fight between Briton Anthony Joshua and the IBF's mandatory challenger Kubrat Pulev of Bulgaria originally scheduled for June 20 has been postponed, promoters Matchroom Boxing said on Friday.`\
+https://nytimes.com/reuters/2020/04/03/sports/03reuters-health-coronavirus-boxing.html?searchResultPosition=5
+
+**Retired Gattis: '17 Astros 'Cheated Baseball, Fans'**\
+`Evan Gattis fought to win a World Series ring with the Houston Astros and got one in 2017. Looking back, it feels like he lost.`\
+https://nytimes.com/reuters/2020/04/03/sports/baseball/03reuters-baseball-mlb-hou-gattis.html?searchResultPosition=6
+
+**How to Thrive in Online Life**\
+`A video game pro tells us to embrace the mess of our pandemic lives.`\
+https://nytimes.com/2020/04/03/technology/video-games-coronavirus.html?searchResultPosition=7
+
 **U.S. Judge Throws Out Major League Baseball Sign-Stealing Lawsuit**\
 `A U.S. judge on Friday threw out a lawsuit seeking to hold Major League Baseball, the Houston Astros and the Boston Red Sox liable to DraftKings fantasy baseball bettors for the sport's sign-stealing scandal.`\
-https://nytimes.com/reuters/2020/04/03/sports/football/03reuters-baseball-mlb-lawsuit.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/03/sports/football/03reuters-baseball-mlb-lawsuit.html?searchResultPosition=8
 
 **Mavis Staples’s Soulful Solidarity, and 10 More New Songs**\
 `Hear tracks by Moses Sumney, Troye Sivan, Sonic Boom and others.`\
-https://nytimes.com/2020/04/03/arts/music/playlist-mavis-staples-dababy-1975.html?searchResultPosition=4
+https://nytimes.com/2020/04/03/arts/music/playlist-mavis-staples-dababy-1975.html?searchResultPosition=9
 
 **With No Fries Sold, Dutch Farmers Face Billion Kilo Potato Pile**\
 `It's potato planting season, but many Dutch farmers are facing a mountain of a problem, with a million tons of potatoes left over from last season due to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-netherlands-potatoes.html?searchResultPosition=5
-
-**NY Fed Retains Pimco and State Street to Run Commercial Paper Funding Facility**\
-`The Federal Reserve Bank of New York has retained two financial firms to manage and run its new commercial paper funding facility, according to a statement on the bank's website. `\
-https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-fed-cpff.html?searchResultPosition=6
-
-**Love Letter: Dating in the Middle of the Atlantic Ocean**\
-`And: a front porch wedding.`\
-https://nytimes.com/2020/04/03/style/love-letter-dating-in-the-middle-of-the-atlantic-ocean.html?searchResultPosition=7
-
-**3M Fires Back at Trump Over Order to Produce More Face Masks**\
-`Manufacturing giant 3M pushed back Friday against criticism from President Donald Trump over production of face masks that are badly needed by American health care workers.`\
-https://nytimes.com/aponline/2020/04/03/business/bc-virus-outbreak-3m.html?searchResultPosition=8
-
-**U.S. Expected to Cover Hospital Costs of Uninsured Coronavirus Patients: WSJ**\
-`The Trump administration is expected to use coronavirus relief funds to pay hospitals that treat uninsured patients with the novel coronavirus as long as they do not bill them or issue unexpected charges, the Wall Street Journal reported on Friday.`\
-https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-usa-hospital-costs.html?searchResultPosition=9
-
-**New York Public Defenders Say Unable to Reach Inmates in Federal Jails**\
-`Lawyers representing inmates in New York federal jails said on Friday they had been largely cut off from their clients since in-person visits were halted last month due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-usa-jail.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-netherlands-potatoes.html?searchResultPosition=10
 
