@@ -14,11 +14,11 @@ https://nytimes.com/2020/04/03/dining/csa-farm-food-delivery-coronavirus.html?se
 `After a provincial court overturned the men’s convictions in the American journalist’s kidnapping and death, Pakistani officials moved quickly to appeal to the Supreme Court.`\
 https://nytimes.com/2020/04/03/world/asia/pakistan-daniel-pearl-arrests.html?searchResultPosition=8
 
+**How to Meditate Outdoors With Us Right Now**\
+`An exercise to help your body release the stress of constantly bracing for a disaster.`\
+https://nytimes.com/interactive/2020/04/03/style/self-care/coronavirus-guided-meditation-nature.html?searchResultPosition=9
+
 **Marie’s Is Closed, but Its ‘Dominatrix’ Pianist Still Takes Requests**\
 `With a piano and a camera, Franca Vercelloni of Marie’s Crisis Cafe continues to play for the bar’s show-tune singalongs on social media.`\
-https://nytimes.com/2020/04/03/theater/maries-crisis-facebook-live.html?searchResultPosition=9
-
-**Trump Nominates McConnell Ally to Powerful Appeals Court**\
-`President Donald Trump is nominating a 37-year-old judge and former clerk to Supreme Court Justice Brett Kavanaugh to a seat on the powerful U.S. Court of Appeals for the District of Columbia Circuit. `\
-https://nytimes.com/aponline/2020/04/03/us/politics/ap-us-trump-judicial-nominee.html?searchResultPosition=10
+https://nytimes.com/2020/04/03/theater/maries-crisis-facebook-live.html?searchResultPosition=10
 
