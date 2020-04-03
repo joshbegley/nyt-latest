@@ -1,32 +1,32 @@
+**U.S. Judge Throws Out Major League Baseball Sign-Stealing Lawsuit**\
+`A U.S. judge on Friday threw out a lawsuit seeking to hold Major League Baseball, the Houston Astros and the Boston Red Sox liable to DraftKings fantasy baseball bettors for the sport's sign-stealing scandal.`\
+https://nytimes.com/reuters/2020/04/03/sports/football/03reuters-baseball-mlb-lawsuit.html?searchResultPosition=3
+
+**Mavis Staples’s Soulful Solidarity, and 10 More New Songs**\
+`Hear tracks by Moses Sumney, Troye Sivan, Sonic Boom and others.`\
+https://nytimes.com/2020/04/03/arts/music/playlist-mavis-staples-dababy-1975.html?searchResultPosition=4
+
+**With No Fries Sold, Dutch Farmers Face Billion Kilo Potato Pile**\
+`It's potato planting season, but many Dutch farmers are facing a mountain of a problem, with a million tons of potatoes left over from last season due to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-netherlands-potatoes.html?searchResultPosition=5
+
+**NY Fed Retains Pimco and State Street to Run Commercial Paper Funding Facility**\
+`The Federal Reserve Bank of New York has retained two financial firms to manage and run its new commercial paper funding facility, according to a statement on the bank's website. `\
+https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-fed-cpff.html?searchResultPosition=6
+
+**Love Letter: Dating in the Middle of the Atlantic Ocean**\
+`And: a front porch wedding.`\
+https://nytimes.com/2020/04/03/style/love-letter-dating-in-the-middle-of-the-atlantic-ocean.html?searchResultPosition=7
+
+**3M Fires Back at Trump Over Order to Produce More Face Masks**\
+`Manufacturing giant 3M pushed back Friday against criticism from President Donald Trump over production of face masks that are badly needed by American health care workers.`\
+https://nytimes.com/aponline/2020/04/03/business/bc-virus-outbreak-3m.html?searchResultPosition=8
+
 **U.S. Expected to Cover Hospital Costs of Uninsured Coronavirus Patients: WSJ**\
 `The Trump administration is expected to use coronavirus relief funds to pay hospitals that treat uninsured patients with the novel coronavirus as long as they do not bill them or issue unexpected charges, the Wall Street Journal reported on Friday.`\
-https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-usa-hospital-costs.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-usa-hospital-costs.html?searchResultPosition=9
 
 **New York Public Defenders Say Unable to Reach Inmates in Federal Jails**\
 `Lawyers representing inmates in New York federal jails said on Friday they had been largely cut off from their clients since in-person visits were halted last month due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-usa-jail.html?searchResultPosition=4
-
-**New York Reports Deadliest Day From Coronavirus, Makes Plea for Help**\
-`New York suffered its deadliest single day from the novel coronavirus, with 562 additional deaths in the last 24 hours for a total of 2,935 fatalities, by far the most of any U.S. state, Governor Andrew Cuomo said on Friday.`\
-https://nytimes.com/reuters/2020/04/03/world/asia/03reuters-health-coronavirus-usa-new-york.html?searchResultPosition=5
-
-**Lawsuits Swell as Owners, From Gun Shops to Golf Courses, Demand to Open**\
-`Orders to stay home and to shutter businesses because of the coronavirus are being challenged nationwide on the grounds they deny Americans their constitutional rights.`\
-https://nytimes.com/2020/04/03/us/corona-virus-lawsuits.html?searchResultPosition=6
-
-**For Besieged N.Y. Hospitals, It’s All Hands on Deck. Or Else.**\
-`Specialists who haven’t worked an intensive care shift in years are being pressed into duty as virus cases overwhelm emergency rooms.`\
-https://nytimes.com/2020/04/03/nyregion/new-york-coronavirus-doctors.html?searchResultPosition=7
-
-**Helicopters? Bailouts? Central Banks Move to Stem Coronavirus Crisis**\
-`Central banks are pulling out all the stops to try to shield their economies from the new coronavirus pandemic, raising questions about whether they risk crossing a line by bailing out governments that are massively raising their spending.`\
-https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-centralbanks-explainer.html?searchResultPosition=8
-
-**Take Five: Life in the Time of Corona**\
-`1/LOOKING TO CHINA `\
-https://nytimes.com/reuters/2020/04/03/business/03reuters-global-markets-themes-graphic.html?searchResultPosition=9
-
-**Turkey's Coronavirus Death Toll Rises to 425, Total Cases 20,921: Health Minister**\
-`Turkey's death toll from the coronavirus outbreak increased by 69 to 425 on Friday, while the number of confirmed cases from the disease rose by 2,786 to 20,921, Health Minister Fahrettin Koca said.`\
-https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-turkey-toll.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-usa-jail.html?searchResultPosition=10
 
