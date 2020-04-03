@@ -1,20 +1,20 @@
+**Column: Remembering Final Four That Never Was in the A-T-L**\
+`It would’ve been a magnificent weekend. `\
+https://nytimes.com/aponline/2020/04/03/sports/ncaabasketball/ap-bkc-paul-newberry-final-four.html?searchResultPosition=6
+
+**Venezuelan Migrants Flee Colombian Quarantine for Their Shattered Homeland**\
+`Carrying small children in their arms or lugging suitcases, the Venezuelan migrants trudged along the shoulder of the highway that runs northeast out of Colombia's capital Bogota, the first steps on a long and unexpected journey home.`\
+https://nytimes.com/reuters/2020/04/03/world/americas/03reuters-health-coronavirus-colombia-migrants.html?searchResultPosition=7
+
+**Senate's McConnell: Congress Will Do Another Coronavirus Relief Bill**\
+`U.S. Senate Majority Leader Mitch McConnell said on Friday the U.S. Congress will do another coronavirus relief bill, with healthcare at the top of the list.`\
+https://nytimes.com/reuters/2020/04/03/us/politics/03reuters-health-coronavirus-usa-mcconnell.html?searchResultPosition=8
+
+**The Navy Fired the Captain of the Theodore Roosevelt. See How the Crew Responded.**\
+`The rousing show of support provided another gripping scene to emerge from the coronavirus pandemic: the rank and file cheering a boss they viewed as putting their safety ahead of his career.`\
+https://nytimes.com/2020/04/03/us/politics/coronavirus-brett-crozier-theodore-roosevelt.html?searchResultPosition=9
+
 **Wickens Set to Make IndyCar Return in Virtual Race**\
 `Robert Wickens will be back behind the wheel on Saturday for the first time since a near fatal crash two years ago and while it will be a virtual IndyCar race the Canadian sees it is another step towards the real thing.`\
-https://nytimes.com/reuters/2020/04/03/sports/autoracing/03reuters-motor-indy-wickens.html?searchResultPosition=6
-
-**U.S. Regulators to Go Easy on Mortgage Firms That Miss Customer Response Deadlines: Source**\
-`U.S. bank supervisors will not penalize mortgage companies if they miss regulatory deadlines for communicating with borrowers while fielding an unprecedented surge in queries due to disruptions caused by the novel coronavirus, an official at a banking regulator said. `\
-https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-usa-mortgagelenders.html?searchResultPosition=7
-
-**Sub-Saharan Africa Faces Pressure From Oil Price Shock, Pandemic Rout**\
-`Zambia has become the latest African country looking for help to tackle its hefty debt burden this week as international lenders and analysts are warning the pandemic crisis could push many of the continent's economies into debt distress. `\
-https://nytimes.com/reuters/2020/04/03/world/africa/03reuters-health-coronavirus-africa-debt-graphic.html?searchResultPosition=8
-
-**Trade Restrictions on Food Exports Due to the Coronavirus Pandemic**\
-`Here is a list of countries that have applied or are considering trade restrictions on food or agricultural products due to the spread of the novel coronavirus around the world.`\
-https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-trade-food-factbox.html?searchResultPosition=9
-
-**Global Downturn Due to Coronavirus 'Way Worse' Than Global Financial Crisis: IMF**\
-`The coronavirus pandemic has brought the global economy to a standstill and plunged the world into a recession that will be "way worse" than the global financial crisis a decade ago, the head of the International Monetary Fund said on Friday.`\
-https://nytimes.com/reuters/2020/04/03/world/asia/03reuters-health-coronavirus-imf.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/03/sports/autoracing/03reuters-motor-indy-wickens.html?searchResultPosition=10
 
