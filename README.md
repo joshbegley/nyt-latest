@@ -10,11 +10,11 @@ https://nytimes.com/reuters/2020/04/03/world/americas/03reuters-health-coronavir
 `Iraq on Friday suspended the work of the Reuters news agency for three months, following a report by the agency the previous day that said the Iraqi government was under-reporting confirmed cases of the new coronavirus. `\
 https://nytimes.com/aponline/2020/04/03/world/middleeast/ap-ml-iraq-reuters.html?searchResultPosition=8
 
-**Why I Tried to Save My Father, My Dictator**\
-`Once you see your father as vulnerable, you don’t forget it.`\
-https://nytimes.com/2020/04/03/opinion/undocumented-immigrant-father.html?searchResultPosition=9
-
 **Prisons Breed the Coronavirus. We Can Safely Free Thousands of Inmates.**\
 `Nonviolent offenders, the medically vulnerable and those near the end of their sentences should be released. Those who remain deserve much better medical care.`\
-https://nytimes.com/2020/04/03/opinion/coronavirus-jails-prisons.html?searchResultPosition=10
+https://nytimes.com/2020/04/03/opinion/coronavirus-jails-prisons.html?searchResultPosition=9
+
+**Why I Tried to Save My Father, My Dictator**\
+`Once you see your father as vulnerable, you don’t forget it.`\
+https://nytimes.com/2020/04/03/opinion/undocumented-immigrant-father.html?searchResultPosition=10
 
