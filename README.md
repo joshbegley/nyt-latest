@@ -1,6 +1,6 @@
 **A Coffee C.E.O.’s Pandemic Diary: ‘We Want to Still Provide an Escape’**\
 `Nick Stone, the founder of Bluestone Lane, says he is determined to see glimpses of humanity in a “devastating, absolutely devastating” crisis.`\
-https://nytimes.com/2020/04/03/business/a-coffee-ceos-pandemic-diary-we-want-to-still-provide-an-escape.html?searchResultPosition=3
+https://nytimes.com/2020/04/03/business/bluestone-lane-nick-stone.html?searchResultPosition=3
 
 **Everything Is Negotiable in This Asparagus Salad**\
 `You could use any kind of nuts or semifirm cheese in this nutty, cheesy bright spring salad. You could even lose the asparagus.`\
