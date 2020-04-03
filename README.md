@@ -1,36 +1,36 @@
+**Brokerage Worker Loses Paternity Leave Appeal in Japan**\
+`A Japanese court on Friday rejected a request by a former brokerage manager to get his job back after he took paternity leave at Mitsubishi UFJ Morgan Stanley. `\
+https://nytimes.com/aponline/2020/04/03/business/ap-as-japan-paternity-leave.html?searchResultPosition=2
+
+**Man Accused of Killing US Journalist to Stay in Prison**\
+`A Pakistani provincial government Friday ordered a British Pakistani man whose conviction in the kidnapping and killing of a U.S. journalist was overturned to remain in custody for three months. `\
+https://nytimes.com/aponline/2020/04/03/world/asia/ap-as-pakistan-daniel-pearl.html?searchResultPosition=3
+
+**Medical Aid Marooned as Africa Shuts Borders Amid Coronavirus Pandemic**\
+`Medical charity Alima planned to open an emergency operating theatre this week in Burkina Faso, but the project has stalled because the country closed its borders before a surgeon and anaesthetist could fly in, its director told Reuters. `\
+https://nytimes.com/reuters/2020/04/03/world/africa/03reuters-health-coronavirus-africa-aid.html?searchResultPosition=4
+
 **Fujifilm Says New Coronavirus Test Can Produce Results in Two Hours**\
 `Fujifilm Holdings Corp said it has developed a new, faster test for the novel coronavirus that that causes the COVID-19 disease, reducing the time of results delivery to about two hours.`\
-https://nytimes.com/reuters/2020/04/03/world/asia/03reuters-fujifilm-coronavirus-test.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/03/world/asia/03reuters-fujifilm-coronavirus-test.html?searchResultPosition=5
 
 **China Scrambles to Plug Border Gaps as Thousands Flood Home**\
 `Regions along China's porous borders with southeast Asia are working hard to improve surveillance and curb illegal immigration, authorities said, as thousands flood into a country seen as a safe haven in the global war against the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/03/world/asia/03reuters-health-coronavirus-china-border.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/03/world/asia/03reuters-health-coronavirus-china-border.html?searchResultPosition=6
 
 **Explainer: How the Coronavirus Crisis Is Affecting Food Supply**\
 `The coronavirus pandemic has disrupted global food supplies and is causing labour shortages in agriculture worldwide.`\
-https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-food-explainer.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-food-explainer.html?searchResultPosition=7
 
 **AP PHOTOS: Greek Capital's Streets Deserted During Lockdown**\
 `Deserted squares, padlocked parks, empty avenues where lines of cars once idled bumper-to-bumper in traffic as motorbikes and scooters zoomed through the narrow gaps between.`\
-https://nytimes.com/aponline/2020/04/03/world/europe/ap-eu-virus-outbreak-empty-athens-photo-gallery.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/04/03/world/europe/ap-eu-virus-outbreak-empty-athens-photo-gallery.html?searchResultPosition=8
 
 **What's in the U.S. Small Business Rescue Program?**\
 `Amid confusion over a $349 billion rescue program for small businesses struggling to survive the coronavirus pandemic, the U.S. Treasury released guidelines it hopes will pave the way to getting the spigots flowing on Friday, as promised.`\
-https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-usa-smallbusiness-factbox.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-usa-smallbusiness-factbox.html?searchResultPosition=9
 
 **Stranded Abroad, Americans Ask: Why Weren’t We Warned Sooner?**\
 `As the coronavirus spreads, American tourists say the State Department was slow to inform citizens of the challenges in returning home.`\
-https://nytimes.com/2020/04/03/world/asia/coronavirus-state-department-tourists.html?searchResultPosition=7
-
-**Malaysia's AirAsia Seeks Government Loan Amid Pandemic: Bloomberg Markets**\
-`Malaysia's flagship budget airline AirAsia Group Bhd is seeking a government loan as the industry suffers amid the coronavirus outbreak, Bloomberg Markets reported on Thursday, citing the airline's group chief executive.`\
-https://nytimes.com/reuters/2020/04/03/world/asia/03reuters-health-coronavirus-airasia-loan.html?searchResultPosition=8
-
-**Glass Half Empty or Full? Hong Kong Bars Confused Over New Coronavirus Curbs**\
-`Confusion reigned on Friday in some Hong Kong pubs and bars, after authorities ordered a two-week closure from 6 p.m. (1000 GMT) to curb a coronavirus pandemic, with many outlets that sell food uncertain if the latest restrictions applied to them. `\
-https://nytimes.com/reuters/2020/04/03/world/asia/03reuters-health-coronavirus-hongkong.html?searchResultPosition=9
-
-**Your Friday Briefing**\
-`Coronavirus, Masks, Jobs: Here's what you need to know.`\
-https://nytimes.com/2020/04/03/briefing/coronavirus-masks-jobs.html?searchResultPosition=10
+https://nytimes.com/2020/04/03/world/asia/coronavirus-state-department-tourists.html?searchResultPosition=10
 
