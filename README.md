@@ -1,36 +1,36 @@
-**Five Signs of Failure**\
-`No. 1: No sign of a flattening curve.`\
-https://nytimes.com/2020/04/03/opinion/coronavirus-united-states-europe.html?searchResultPosition=2
+**Zimbabwe Turns Water Cannon on Coronavirus**\
+`Zimbabwe's police began using water cannon on Friday to disinfect markets and bus ranks, turning instruments associated with repression into weapons against the new coronavirus.`\
+https://nytimes.com/reuters/2020/04/03/world/africa/03reuters-health-coronavirus-zimbabwe.html?searchResultPosition=2
 
-**Special Report: How the COVID-19 Lockdown Will Take Its Own Toll on Health**\
-`It’s the most dramatic government intervention into our lives since World War II.`\
-https://nytimes.com/reuters/2020/04/03/us/03reuters-health-coronavirus-usa-cost-special-report.html?searchResultPosition=3
+**Ukrainian Designer Equips Doctors for Battling Coronavirus**\
+`Ukrainian fashion designer Ivan Frolov has postponed work on his new collection and is making coveralls for doctors to meet a shortage of protective clothing during the coronavirus epidemic.`\
+https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-ukraine-designer.html?searchResultPosition=3
 
-**Coronavirus Could Trigger Biggest Fall in Carbon Emissions Since World War Two**\
-`Carbon dioxide emissions could fall by the largest amount since World War Two this year as the coronavirus outbreak brings economies to a virtual standstill, according to the chair of a network of scientists providing benchmark emissions data.`\
-https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-emissions.html?searchResultPosition=4
+**With High Schools Closed, France's Key 'Bac' Exam Canceled**\
+`For the first time in France's history, students won’t take the national end-of-high-school exam known as the Baccalaureat this year, amid school closures due to the coronavirus crisis.`\
+https://nytimes.com/aponline/2020/04/03/world/europe/ap-eu-virus-outbreak-europe-school-exams.html?searchResultPosition=4
 
-**Is It Like the Flu? Is It a Major Threat? Trump’s Changing Coronavirus Message**\
-`After initially downplaying the potential severity of the coronavirus pandemic and sharing false and misleading information, President Trump has changed his position on key aspects of the crisis. Here are five examples.`\
-https://nytimes.com/video/us/politics/100000007067717/trumps-coronavirus-statements.html?searchResultPosition=5
+**Ukraine Tightens Restrictions to Fight Coronavirus Spread**\
+`Ukraine's government on Friday imposed a series of new restrictions designed to prevent the coronavirus outbreak spreading widely but said it hoped to soften the measures again in late April.`\
+https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-ukraine-measures.html?searchResultPosition=5
 
-**Golf-U.S. Women's Open Postponed Until December**\
-`The U.S. Women's Open has been postponed and moved from June 4-7 to Dec. 10-13 due to the novel coronavirus outbreak, said the United States Golf Association (USGA) on Friday.`\
-https://nytimes.com/reuters/2020/04/03/sports/golf/03reuters-health-coronavirus-golf-lpga.html?searchResultPosition=6
+**Norway Pleads for More Aid to Help Palestinians Tackle Coronavirus**\
+`Norway called on Friday for more money to help the Palestinian Territories get through the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-israel-palestinians.html?searchResultPosition=6
 
-**Russian Ventilators Shipped to U.S. Made by Firm Under U.S. Sanctions: RBC**\
-`Ventilators delivered by Russia to the United States to help treat patients of the new coronavirus were manufactured by a Russian company that is under U.S. sanctions, Russia's RBC business daily reported on Friday. `\
-https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-russia-usa-sanctions.html?searchResultPosition=7
+**Two Migrants Were Killed at Turkey-Greece Border: Amnesty**\
+`Two migrants were shot dead last month as they tried to enter Greece from Turkey after Ankara "recklessly encouraged" thousands of migrants to cross the border to Europe, Amnesty International said on Friday.`\
+https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-eu-migrants-turkey.html?searchResultPosition=7
 
-**UK Car Sector Warns on Coronavirus: 'Companies Need Cash Immediately'**\
-`Britain's car sector needs immediate cash and the government should introduce measures to support suppliers, some of which only have enough money to handle the coronavirus crisis for weeks not months, the head of the main trade body told Reuters. `\
-https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-britain-autos.html?searchResultPosition=8
+**Britain's Queen Elizabeth to Make Rare Address to Nation Over Coronavirus**\
+`Britain's Queen Elizabeth II will make an extremely rare nationwide address to the nation on Sunday as it grapples with an increasingly deadly coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-britain-queen.html?searchResultPosition=8
 
-**Putin Says Restricting Economic Activity Across Russia Is 'Impractical'**\
-`Russian President Vladimir Putin said on Friday it would be impractical to restrict economic activity all over the country due to the coronavirus, given that each region is facing different challenges.`\
-https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-putin.html?searchResultPosition=9
+**Nigerians Turn to Rabbits for Consolation During Coronavirus Lockdown**\
+`Sandra Dozie has a fluffy new friend to keep her company during the long tedious hours of a lockdown imposed to curb the spread of the coronavirus - a four-month old rabbit called Coco.`\
+https://nytimes.com/reuters/2020/04/03/world/africa/03reuters-health-coronavirus-nigeria-pets.html?searchResultPosition=9
 
-**US Service Sectors Slows in March**\
-`Growth in the U.S. service sector slowed in March with a much bigger decline expected in coming months from all the shutdowns and job layoffs that have occurred because of efforts to contain the coronavirus.`\
-https://nytimes.com/aponline/2020/04/03/business/bc-us-economy-services.html?searchResultPosition=10
+**Sweden's Liberal Pandemic Strategy Questioned as Stockholm Death Toll Mounts**\
+`A spike in novel coronavirus infections and deaths in Stockholm has raised questions about Sweden's decision to fight the outbreak without resorting to the lockdowns that have left much of Europe at a standstill.`\
+https://nytimes.com/reuters/2020/04/03/world/europe/03reuters-health-coronavirus-sweden.html?searchResultPosition=10
 
