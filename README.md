@@ -2,7 +2,7 @@
 `The league had been set to begin play on May 15. It will still hold a “virtual” draft later this month.`\
 https://nytimes.com/2020/04/03/sports/basketball/coronavirus-wnba-season-postponed.html?searchResultPosition=3
 
-**What to Do if Your Day Care is Still Open**\
+**What to Do if Your Day Care Is Still Open**\
 `And what to do if it isn’t. (For starters: Pay them if you can, but don’t fret if you can’t.)`\
 https://nytimes.com/2020/04/03/parenting/coronavirus-day-care.html?searchResultPosition=4
 
