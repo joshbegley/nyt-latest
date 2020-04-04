@@ -1,4 +1,4 @@
-**The Latest: Bangladesh Reports 2 More Deaths, 9 More Cases**\
+**The Latest: Newborn Twins Named Corona and Covid**\
 `The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
 https://nytimes.com/aponline/2020/04/04/business/ap-virus-outbreak-the-latest.html?searchResultPosition=6
 
