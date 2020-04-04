@@ -1,20 +1,20 @@
+**Georgia Records First Death From Coronavirus: Clinic Doctor**\
+`A 79-year-old woman who tested positive for the coronavirus died in Georgia on Saturday, the presiding doctor at the clinic where she was treated said, reporting the country's first death related to the pandemic.`\
+https://nytimes.com/reuters/2020/04/04/world/europe/04reuters-health-coronavirus-georgia.html?searchResultPosition=6
+
+**Antonio Brown Reportedly Charged in Alleged Assault of Driver**\
+`A Broward County (Fla.) court document obtained by ESPN revealed that Brown is charged with felony burglary conveyance, misdemeanor battery and misdemeanor criminal mischief charges.`\
+https://nytimes.com/reuters/2020/04/04/sports/football/04reuters-football-nfl-brown-charges.html?searchResultPosition=7
+
+**Reports: Bryant, 7 Others Elected to Basketball Hall**\
+`All eight finalists for enshrinement in the Naismith Memorial Basketball Hall of Fame, headed by the late Kobe Bryant, will be inducted, according to various media reports Friday.`\
+https://nytimes.com/reuters/2020/04/04/sports/basketball/04reuters-basketball-nba-hall-of-fame.html?searchResultPosition=8
+
+**Gulf Air Says Transit Open Again via Bahrain for International Travelers**\
+`Transit through Bahrain International Airport is open again for international travelers, Manama-based Gulf Air said on Saturday, though entry to the country is limited to Bahrainis and other residents during the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/04/world/middleeast/04reuters-health-coronavirus-bahrain-airlines.html?searchResultPosition=9
+
 **Indonesia's Coronavirus Infections Top 2,000: Health Official**\
 `Indonesia reported 106 new confirmed coronavirus infections on Saturday, taking the total number of cases in the southeast Asian country to 2,092.`\
-https://nytimes.com/reuters/2020/04/04/world/asia/04reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=6
-
-**Malaysia Reports 150 New Coronavirus Cases; Four More Deaths**\
-`Malaysia reported 150 new coronavirus cases on Saturday, including four deaths. `\
-https://nytimes.com/reuters/2020/04/04/world/asia/04reuters-health-coronavirus-malaysia.html?searchResultPosition=7
-
-**Britain's Johnson Invites Opposition Leaders to Work With Him Over Coronavirus Emergency**\
-`Prime Minister Boris Johnson has invited the leaders of Britain's opposition parties to work with him during this "moment of national emergency", saying he wants to hear their views during the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/04/04/world/europe/04reuters-health-coronavirus-britain-johnson.html?searchResultPosition=8
-
-**Photos: In Rural Towns and on Remote Farms, the Virus Creeps In**\
-`In places where social distancing was already a way of life, the relentless pandemic has begun to reshape the economy.`\
-https://nytimes.com/2020/04/04/business/coronavirus-rural-america-oregon.html?searchResultPosition=9
-
-**‘Dear Customers’: These Are the Emotional Store Signs of a Closed New York**\
-`From newly darkened storefronts, businesses offered a few last words of empathy, resolve and humor.`\
-https://nytimes.com/2020/04/04/nyregion/nyc-closed-business-signs-virus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/04/world/asia/04reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=10
 
