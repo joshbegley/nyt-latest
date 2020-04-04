@@ -14,7 +14,7 @@ https://nytimes.com/aponline/2020/04/04/business/bc-ml-saudi-arabia-russia-oil.h
 `Some states and cities that have been shipped masks, gloves, ventilators and other essential equipment from the nation's medical stockpile to fight the coronavirus have gotten an unwelcome surprise: the material is unusable.`\
 https://nytimes.com/aponline/2020/04/04/us/ap-us-virus-outbreak-faulty-supplies.html?searchResultPosition=9
 
-**Coronavirus Live Updates: Trump Says He Won’t Wear a Mask, Despite C.D.C.’s Recommendation**\
-`The president affirmed that U.S. elections would take place as scheduled on Nov. 3, and he said he would appoint an inspector general to oversee the $500 billion bailout fund.`\
+**Coronavirus Live Updates: C.D.C. Recommends Masks. ‘I Just Don’t See It for Myself,’ Trump Says.**\
+`The president affirmed that U.S. elections would take place as scheduled on Nov. 3.`\
 https://nytimes.com/2020/04/04/world/coronavirus-news.html?searchResultPosition=10
 
