@@ -1,4 +1,4 @@
-**Trump Pick for Coronavirus Recovery Watchdog Is Not Independent Enough: Democrats**\
+**Democrats Say Trump Pick for Coronavirus Recovery Watchdog Is Not Independent Enough**\
 `U.S. President Donald Trump's pick for the new watchdog overseeing $2.3 trillion in coronavirus-related fiscal spending is not independent enough to do the job, congressional Democrats said on Saturday. `\
 https://nytimes.com/reuters/2020/04/04/us/politics/04reuters-health-coronavirus-usa-pelosi.html?searchResultPosition=6
 
