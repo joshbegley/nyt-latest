@@ -1,20 +1,20 @@
+**Coronavirus Models Offer the Big Picture, Not the Details of What May Come**\
+`Ontario and British Columbia have both released their projections about what the pandemic will bring. But, like a weather forecast, they are ever-shifting predictions.`\
+https://nytimes.com/2020/04/03/world/canada/Ontario-British-Columbia-Coronavirus-Models.html?searchResultPosition=6
+
+**Trump Invokes Defense Production Act to Stop Export of Masks**\
+`U.S. President Donald Trump on Friday signed an order directing his administration to stop N-95 face masks and other personal protective equipment needed in the fight against the coronavirus pandemic from being exported to other countries.`\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-health-coronavirus-usa-memo.html?searchResultPosition=7
+
+**Elliott Hedge Fund Gains in March, Up 2.2% for Year: Client Update**\
+`Paul Singer's Elliott International Ltd hedge fund gained an estimated 0.1% in March and is now up 2.2% for the year through the first quarter, according to an update sent to clients on Friday and seen by Reuters. `\
+https://nytimes.com/reuters/2020/04/03/business/03reuters-hedgefunds-elliott.html?searchResultPosition=8
+
 **3rd Iditarod Champion, Nicknamed 'Yukon Fox,' Dies at 79**\
 `Emmitt Peters Sr., an Alaska Native who won the Iditarod Trail Sled Dog Race as a rookie in 1975, has died at age 79 in his home village of Ruby.`\
-https://nytimes.com/aponline/2020/04/03/sports/ap-us-obit-iditarod-third-champion.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/04/03/sports/ap-us-obit-iditarod-third-champion.html?searchResultPosition=9
 
 **Hacker Posts Racial Slur on Fan Chat With Black NHL Player**\
 `A hacker posted a racial slur 45 times in an online fan video chat Friday with a black New York Rangers prospect.`\
-https://nytimes.com/aponline/2020/04/03/business/ap-hkn-rangers-racist-hacker.html?searchResultPosition=7
-
-**Another Member of Fire Panel Resigns, Criticizes PG&E Plan**\
-`The former chief financial officer for a Northern California city destroyed in a 2018 wildfire caused by Pacific Gas & Electric equipment is trying to upend the utility's plan for getting out of bankruptcy because she believes the company is shortchanging the people devastated by its misconduct.`\
-https://nytimes.com/aponline/2020/04/03/business/ap-us-california-wildfires-utility.html?searchResultPosition=8
-
-**Tensions Persist Between Trump and Medical Advisers Over the Coronavirus**\
-`The president’s public refusal to wear a mask was the latest way he has cast doubt on their recommendations.`\
-https://nytimes.com/2020/04/03/us/politics/coronavirus-trump-medical-advisers.html?searchResultPosition=9
-
-**Does My County Have an Epidemic? Estimates Show Hidden Transmission**\
-`Even counties that have few reported cases probably already have sustained, undetected outbreaks, a study finds.`\
-https://nytimes.com/interactive/2020/04/03/us/coronavirus-county-epidemics.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/03/business/ap-hkn-rangers-racist-hacker.html?searchResultPosition=10
 
