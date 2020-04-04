@@ -1,4 +1,4 @@
-**World Games 2021 Moved to Retain Broadcasters, Official Scorers-CEO**\
+**World Games 2021 Moved to Retain Broadcasters, Official Scorers: CEO**\
 `World Games Birmingham CEO Nick Sellers said they had little choice but to move the 2021 event to 2022 as a clash with the postponed Tokyo Olympics would have seen them lose out on broadcasters and official scorers for the quadrennial event.`\
 https://nytimes.com/reuters/2020/04/04/sports/baseball/04reuters-health-coronavirus-worldgames.html?searchResultPosition=6
 
