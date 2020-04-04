@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/04/04/world/europe/04reuters-health-coronavirus
 https://nytimes.com/reuters/2020/04/04/world/europe/04reuters-health-coronavirus-spain.html?searchResultPosition=8
 
 **Britain's Labour Party Names Keir Starmer as New Leader**\
-`Britain's main opposition Labour Party named Keir Starmer, a former director of public prosecutions who opposed Brexit, as its leader on Saturday. `\
+`Britain's main opposition Labour Party named Keir Starmer, a former director of public prosecutions who opposed the country's exit from the European Union, as its leader on Saturday. `\
 https://nytimes.com/reuters/2020/04/04/world/europe/04reuters-britain-politics-labour.html?searchResultPosition=9
 
 **Keir Starmer Picked to Lead UK Labour Amid Virus Crisis**\
