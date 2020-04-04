@@ -1,20 +1,20 @@
+**Top U.S. Watchdog Vows 'Aggressive' Oversight of Trump Administration After Intel Firing**\
+`The top U.S. federal watchdog vowed on Saturday to continue to conduct "aggressive" independent oversight of government agencies, after President Donald Trump fired the inspector general of the U.S. intelligence community late Friday night. `\
+https://nytimes.com/reuters/2020/04/04/us/politics/04reuters-usa-trump-inspectorgeneral.html?searchResultPosition=6
+
+**Liverpool the Latest Club to Furlough Non-Playing Staff**\
+`Liverpool has become the latest Premier League club to use a government scheme to furlough some non-playing staff, with the competition having been suspended for almost four weeks due to the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/04/04/sports/soccer/ap-soc-virus-outbreak-premier-league.html?searchResultPosition=7
+
+**OPEC Meeting Is Delayed as Saudi and Russian Tensions Flare**\
+`The meeting, planned for Monday, had buoyed hopes for a quick deal to end the turmoil in oil markets.`\
+https://nytimes.com/2020/04/04/business/coronavirus-opec-russia-oil.html?searchResultPosition=8
+
 **Bill Withers’s 10 Overlooked Songs**\
 `The soulful singer with a gift for writing understated classics has died at 81. Beyond his hits (“Lean on Me,” “Ain’t No Sunshine”) is a trove of lesser-known gems.`\
-https://nytimes.com/2020/04/04/arts/music/bill-withers-songs.html?searchResultPosition=6
+https://nytimes.com/2020/04/04/arts/music/bill-withers-songs.html?searchResultPosition=9
 
 **Spanish League and Players Still Far Apart on Salary Cuts**\
 `The Spanish league and players are still far apart on the size of the salary cuts they need to take to help reduce the financial impact caused by the coronavirus outbreak, with the footballers saying the organization wants them to carry nearly half the total losses.`\
-https://nytimes.com/aponline/2020/04/04/sports/soccer/ap-soc-spanish-league-salary-cuts.html?searchResultPosition=7
-
-**Florida Mom Seeks Custody of Son, Says Father Is Virus Risk**\
-`A Florida mother is asking a judge to allow her to keep custody of her 2-year-old son during the pandemic, claiming the boy's father and his fiance are at higher risk of contracting the coronavirus since they're first-responders.`\
-https://nytimes.com/aponline/2020/04/04/us/ap-us-virus-outbreak-custody-battle.html?searchResultPosition=8
-
-**Singapore Reports 75 New Coronavirus Cases in Biggest Daily Rise**\
-`Singapore's health ministry reported 75 new coronavirus cases on Saturday, the city-state's biggest daily increase, as local infections spiked. `\
-https://nytimes.com/reuters/2020/04/04/world/asia/04reuters-health-coronavirus-singapore.html?searchResultPosition=9
-
-**31 Slow Cooker Recipes to Cook All Day**\
-`Slow cooker white bean Parmesan soup, BBQ pulled pork, and many more recipes.`\
-https://nytimes.com/2020/04/04/admin/31-slow-cooker-recipes-to-cook-all-day.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/04/sports/soccer/ap-soc-spanish-league-salary-cuts.html?searchResultPosition=10
 
