@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/04/04/world/europe/04reuters-ukraine-imf.html?s
 `Britain will not be able to relax its stringent lockdown rules until the end of May, a leading government adviser said on Saturday, warning that first the spread of coronavirus must slow and intense testing must be introduced. `\
 https://nytimes.com/reuters/2020/04/04/world/europe/04reuters-health-coronavirus-britain.html?searchResultPosition=8
 
-**The Latest: Hundreds of Stranded Tourists Flown Out of Nepal**\
+**The Latest: Britain May Ease Lockdown Measures by End of May**\
 `The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
 https://nytimes.com/aponline/2020/04/04/business/ap-virus-outbreak-the-latest.html?searchResultPosition=9
 
