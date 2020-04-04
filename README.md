@@ -1,20 +1,20 @@
+**Spanish League and Players Still Far Apart on Salary Cuts**\
+`The Spanish league and players are still far apart on the size of the salary cuts they need to take to help reduce the financial impact caused by the coronavirus outbreak, with the footballers saying the organization wants them to carry nearly half the total losses.`\
+https://nytimes.com/aponline/2020/04/04/sports/soccer/ap-soc-spanish-league-salary-cuts.html?searchResultPosition=6
+
+**Florida Mom Seeks Custody of Son, Says Father Is Virus Risk**\
+`A Florida mother is asking a judge to allow her to keep custody of her 2-year-old son during the pandemic, claiming the boy's father and his fiance are at higher risk of contracting the coronavirus since they're first-responders.`\
+https://nytimes.com/aponline/2020/04/04/us/ap-us-virus-outbreak-custody-battle.html?searchResultPosition=7
+
+**Singapore Reports 75 New Coronavirus Cases in Biggest Daily Rise**\
+`Singapore's health ministry reported 75 new coronavirus cases on Saturday, the city-state's biggest daily increase, as local infections spiked. `\
+https://nytimes.com/reuters/2020/04/04/world/asia/04reuters-health-coronavirus-singapore.html?searchResultPosition=8
+
+**31 Slow Cooker Recipes to Cook All Day**\
+`Slow cooker white bean Parmesan soup, BBQ pulled pork, and many more recipes.`\
+https://nytimes.com/2020/04/04/admin/31-slow-cooker-recipes-to-cook-all-day.html?searchResultPosition=9
+
 **Edward Feightner, Test Pilot and World War II Ace, Dies at 100**\
 `Admiral Feightner played a leading role in the development of the Navy’s postwar jets.`\
-https://nytimes.com/2020/04/04/us/edward-feightner-dead.html?searchResultPosition=6
-
-**Just When They’re Needed Most, Clinics for the Poor Face Drastic Cutbacks**\
-`Clinics that treat the poor and uninsured are facing hard times just when they are most needed. The coronavirus pandemic has depleted their revenues.`\
-https://nytimes.com/2020/04/04/us/coronavirus-community-clinics-seattle.html?searchResultPosition=7
-
-**A Tennis Coach Was Abusing Minors. Should the Sport’s Federation Have Known?**\
-`The United States Tennis Association has asserted it can police itself when it comes to abuse cases. The story of one coach raises doubts.`\
-https://nytimes.com/2020/04/04/sports/tennis/tennis-sex-abuse-safesport.html?searchResultPosition=8
-
-**Contagious Singing as Corona Community Chorus Unites Voices**\
-`Casper ter Kuile lights a candle in front of his computer screen. And then the music begins.`\
-https://nytimes.com/aponline/2020/04/04/us/ap-virus-outbreak-one-good-thing-chorus.html?searchResultPosition=9
-
-**How Black Girls Get Pushed Out of School**\
-`The debate about the school-to-prison pipeline has largely been centered on boys. Meet the author and academic who has worked to change that.`\
-https://nytimes.com/2020/04/04/us/politics/black-girls-school-racism.html?searchResultPosition=10
+https://nytimes.com/2020/04/04/us/edward-feightner-dead.html?searchResultPosition=10
 
