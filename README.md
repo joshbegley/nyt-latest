@@ -2,8 +2,8 @@
 `Nearly every patient was on a ventilator. Some were in their 80s, some in their 30s. Medical workers were falling fast and had to be resourceful — “the alternative,” one said, “is death.”`\
 https://nytimes.com/2020/04/04/nyregion/coronavirus-hospital-brooklyn.html?searchResultPosition=6
 
-**What It’s Like to Be an I.C.U. Doctor Battling Coronavirus in New York City**\
-`The I.C.U. at Brooklyn Hospital is fighting to cope with a surge in coronavirus patients. Our reporter toured the unit and met the doctors who are risking their own safety.`\
+**What It’s Like to Be a Critical Care Doctor Battling Covid-19 in New York**\
+`The Brooklyn Hospital Center is on the font lines of the coronavirus pandemic.`\
 https://nytimes.com/video/nyregion/100000007065082/coronavirus-brooklyn-hospital-icu-tour.html?searchResultPosition=7
 
 **Democrats Say Trump Pick for Coronavirus Recovery Watchdog Is Not Independent Enough**\
