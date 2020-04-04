@@ -1,20 +1,20 @@
-**OPEC+ Emergency Meeting Likely to Be Postponed to April 8 or 9: OPEC Sources**\
-`OPEC and its allies will not hold their emergency virtual meeting on Monday and will likely postpone it until April 8 or 9 to allow more time for negotiations among oil producers on crude supply cuts, two OPEC sources said on Saturday.`\
-https://nytimes.com/reuters/2020/04/04/world/04reuters-global-oil-opec.html?searchResultPosition=6
+**Photos: In Rural Towns and on Remote Farms, the Virus Creeps In**\
+`In places where social distancing was already a way of life, the relentless pandemic has begun to reshape the economy.`\
+https://nytimes.com/2020/04/04/business/coronavirus-rural-america-oregon.html?searchResultPosition=6
 
-**AP PHOTOS: Meals for Paris' Marginalized Amid Coronavirus**\
-`Amid the coronavirus lockdown in France, charity workers are preparing more than a thousand meals a day for migrants and the homeless on the half-abandoned grounds of a former Paris hospital whose patron saint was devoted to the poor.`\
-https://nytimes.com/aponline/2020/04/04/world/europe/ap-eu-virus-outbreak-seeking-food-photo-gallery.html?searchResultPosition=7
+**‘Dear Customers’: These Are the Emotional Store Signs of a Closed New York**\
+`From newly darkened storefronts, businesses offered a few last words of empathy, resolve and humor.`\
+https://nytimes.com/2020/04/04/nyregion/nyc-closed-business-signs-virus.html?searchResultPosition=7
 
-**Lausanne Watchman Rings Cathedral Bell Anew to Signal Hope Amid Pandemic**\
-`In Lausanne, a Swiss city on the shores of lake Geneva, the coronavirus outbreak has revived a tradition of centuries past: The cathedral watchman climbs the 153 stone steps to his tower at night, puts on a black hat, lights a lantern and rings the "La Clemence" bell to stir residents' solidarity and courage.`\
-https://nytimes.com/reuters/2020/04/04/world/europe/04reuters-health-coronavirus-swiss-watchman.html?searchResultPosition=8
+**College Made Them Feel Equal. The Virus Exposed How Unequal Their Lives Are.**\
+`When they were all in the same dorms and eating the same dining hall food, the disparities in students’ backgrounds weren’t as clear as they are over video chat.`\
+https://nytimes.com/2020/04/04/us/politics/coronavirus-zoom-college-classes.html?searchResultPosition=8
 
-**New York in 'Race Against Time' as Trump Stresses Face Masks Are Voluntary**\
-`Two of the principal U.S. coronavirus hot spots - New York and Louisiana - reported their biggest jumps in COVID-19 deaths yet on Friday, as the White House sent mixed messages on whether Americans should cover their face if they venture outdoors.`\
-https://nytimes.com/reuters/2020/04/04/us/04reuters-health-coronavirus-usa.html?searchResultPosition=9
+**The Growing Culture of Secrecy at Guantánamo Bay**\
+`The war court where the men accused of plotting the Sept. 11, 2001, attacks are on trial operates under classification rules that are inconsistent, complex and sometimes absurd.`\
+https://nytimes.com/2020/04/04/us/politics/the-growing-culture-of-secrecy-at-guantanamo-bay.html?searchResultPosition=9
 
-**Tokyo Area Sees Daily Coronavirus Cases Topping 100 for First Time: NHK**\
-`Some 118 people were newly infected with the novel coronavirus in the Japanese capital of Tokyo, NHK public broadcaster reported on Saturday, citing metropolitan government officials.`\
-https://nytimes.com/reuters/2020/04/04/world/asia/04reuters-health-coronavirus-japan.html?searchResultPosition=10
+**The Killer Virus of 1918: A Philadelphia Story**\
+`The brutal toll taken by the flu that claimed 20,000 lives in the city has not been forgotten as Philadelphia braces for the worst of the coronavirus pandemic.`\
+https://nytimes.com/2020/04/04/us/coronavirus-spanish-flu-philadelphia-pennsylvania.html?searchResultPosition=10
 
