@@ -1,24 +1,24 @@
+**Amid Warnings of a Coronavirus ‘Pearl Harbor,’ Governors Walk a Fine Line**\
+`As officials warned people to brace for a surge in cases and deaths, governors pleaded for a consistent strategy and more help from Washington.`\
+https://nytimes.com/2020/04/05/us/coronavirus-aid-governors-pearl-harbor.html?searchResultPosition=5
+
+**This Is What Happens When a Narcissist Runs a Crisis**\
+`Trump’s catastrophic performance has as much to do with psychology as ideology.`\
+https://nytimes.com/2020/04/05/opinion/trump-coronavirus.html?searchResultPosition=6
+
+**Scapegoating New York Means Ignoring Its Desperate Need**\
+`Blaming the city for coronavirus is a way of letting the federal government off the hook.`\
+https://nytimes.com/2020/04/05/opinion/nyc-coronavirus.html?searchResultPosition=7
+
+**Mormon Leader: World Will Conquer the Coronavirus**\
+`A high-ranking member of The Church of Jesus Christ of Latter-day Saints said Sunday that the world will conquer the coronavirus.`\
+https://nytimes.com/aponline/2020/04/05/us/ap-us-virus-outbreak-utah-3rd-ld-writethru.html?searchResultPosition=8
+
+**Facebook Hampers Do-It-Yourself Mask Efforts**\
+`The social network said it had made an “error” in threatening to ban the organizers of hand-sewn masks from posting or commenting on its site.`\
+https://nytimes.com/2020/04/05/technology/coronavirus-facebook-masks.html?searchResultPosition=9
+
 **EasyJet Founder Says Will Not Inject Fresh Equity Into Company**\
 `Stelios Haji-Ioannou, the founder of easyJet Plc, has warned that he will not inject any fresh equity into the airline it terminates a contract with Airbus SE for 4.`\
-https://nytimes.com/reuters/2020/04/05/business/05reuters-health-coronavirus-easyjet.html?searchResultPosition=5
-
-**PGA Championship Rescheduled for August: Report**\
-`The PGA Championship, one of golf's four majors, has been rescheduled for Aug. 6-9 after being postponed due to the coronavirus pandemic, the San Francisco Chronicle reported on Sunday.`\
-https://nytimes.com/reuters/2020/04/05/sports/golf/05reuters-health-coronavirus-golf-pga.html?searchResultPosition=6
-
-**Exclusive: Silver Lake to Seek More Than $16 Billion for Buyout Fund-Sources**\
-`Private equity firm Silver Lake Partners is preparing to seek at least $16 billion from investors for its sixth flagship buyout fund, braving the economic uncertainty of the coronavirus outbreak, according to people familiar with the matter.`\
-https://nytimes.com/reuters/2020/04/05/business/05reuters-silverlake-fundraising-exclusive.html?searchResultPosition=7
-
-**Barbados Reports First Death From Coronavirus: Health Minister**\
-`Barbados on Sunday reported its first death from the new coronavirus after an 81-year-old man with diabetes died from pneumonia, the country's health minister said.`\
-https://nytimes.com/reuters/2020/04/05/world/americas/05reuters-health-coronavirus-barbados.html?searchResultPosition=8
-
-**Haiti Reports First Death From Coronavirus: Health Ministry**\
-`Haiti on Sunday reported its first death linked to the coronavirus outbreak, with 21 confirmed cases of the respiratory disease in the impoverished Caribbean nation, the Health Ministry said.`\
-https://nytimes.com/reuters/2020/04/05/world/americas/05reuters-health-coronavirus-haiti.html?searchResultPosition=9
-
-**Tripoli Forces Hit Eastern Libyan Cargo Plane Near Capital**\
-`An eastern Libyan military plane was hit on Sunday by forces allied to the internationally recognised government near the capital Tripoli, both sides said.`\
-https://nytimes.com/reuters/2020/04/05/world/africa/05reuters-libya-security.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/05/business/05reuters-health-coronavirus-easyjet.html?searchResultPosition=10
 
