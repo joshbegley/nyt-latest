@@ -2,8 +2,8 @@
 `British Prime Minister Boris Johnson has been admitted to a hospital with the coronavirus.`\
 https://nytimes.com/aponline/2020/04/05/world/europe/ap-eu-virus-outbreak-boris-johnson.html?searchResultPosition=5
 
-**UK PM Johnson Admitted to Hospital With Persistent Coronavirus Symptoms**\
-`British Prime Minister Boris Johnson was admitted to hospital for tests on Sunday after showing persistent symptoms of coronavirus ten days after testing positive for the virus, although his office said it was not an emergency admission.`\
+**UK PM Johnson Admitted to Hospital for Tests After Persistent Coronavirus Symptoms**\
+`British Prime Minister Boris Johnson was admitted to hospital for tests on Sunday in what Downing Street said was a "precautionary step" because he was showing persistent symptoms of coronavirus ten days after testing positive for the virus.`\
 https://nytimes.com/reuters/2020/04/05/world/europe/05reuters-health-coronavirus-britain-johnson.html?searchResultPosition=6
 
 **Mexico's President to Lay Out 'Unorthodox' Coronavirus Plan to Shield the Poor, Economy**\
