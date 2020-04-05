@@ -1,5 +1,5 @@
 **UK Prime Minister Boris Johnson Hospitalized With Virus**\
-`British Prime Minister Boris Johnson has been admitted to a hospital with the coronavirus.`\
+`British Prime Minister Boris Johnson, who was diagnosed with the coronavirus more than a week ago, was admitted to a hospital Sunday for tests.`\
 https://nytimes.com/aponline/2020/04/05/world/europe/ap-eu-virus-outbreak-boris-johnson.html?searchResultPosition=5
 
 **UK PM Johnson Admitted to Hospital for Tests After Persistent Coronavirus Symptoms**\
