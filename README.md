@@ -1,24 +1,24 @@
+**Philippines Reports 8 Additional Coronavirus Deaths, 152 New Cases**\
+`The Philippine health ministry reported on Sunday 8 additional coronavirus deaths and 152 newly confirmed cases.`\
+https://nytimes.com/reuters/2020/04/05/world/asia/05reuters-health-coronavirus-philippines-cases.html?searchResultPosition=5
+
 **AP PHOTOS: Bustling London Life Stilled by COVID-19 Lockdown**\
 `When Associated Press photographer Frank Augstein moved to London in 2015, what struck him most was the crowds.`\
-https://nytimes.com/aponline/2020/04/05/world/europe/ap-virus-outbreak-britain-then-and-now-photo-gallery-1st-ld-writ.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/04/05/world/europe/ap-virus-outbreak-britain-then-and-now-photo-gallery-1st-ld-writ.html?searchResultPosition=6
 
 **9 Rebels, Indian Soldier Killed in Kashmir Fighting**\
 `Nine rebels and an Indian soldier were killed in two gunbattles in disputed Kashmir, an Indian army official said Sunday.`\
-https://nytimes.com/aponline/2020/04/05/world/asia/ap-as-kashmir-fighting.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/04/05/world/asia/ap-as-kashmir-fighting.html?searchResultPosition=7
 
 **British Health Minister Denies Clash With Finance Chief Over Lockdown Strategy**\
 `British Health Secretary Matt Hancock on Sunday denied there was any disagreement with Finance Minister Rishi Sunak about when lockdown restrictions to fight the coronavirus could be lifted.`\
-https://nytimes.com/reuters/2020/04/05/world/europe/05reuters-health-coronavirus-britain-lockdown.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/04/05/world/europe/05reuters-health-coronavirus-britain-lockdown.html?searchResultPosition=8
 
 **Death at Home: The Unseen Toll of Italy's Coronavirus Crisis**\
 `It took Silvia Bertuletti 11 days of frantic phone calls to persuade a doctor to visit her 78-year-old father Alessandro, who was gripped by fever and struggling for breath.`\
-https://nytimes.com/reuters/2020/04/05/world/europe/05reuters-health-coronavirus-italy-deaths-insight.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/04/05/world/europe/05reuters-health-coronavirus-italy-deaths-insight.html?searchResultPosition=9
 
 **China's Luckin Coffee Says Business Will Continue Amid Financial Fraud Probe**\
 `Luckin Coffee Inc said on Sunday it will maintain normal operations at its stores and apologised to the public, days after it announced an internal investigation had shown its chief operating officer and other employees fabricated sales deals.`\
-https://nytimes.com/reuters/2020/04/05/world/asia/05reuters-luckin-investigation.html?searchResultPosition=9
-
-**Imprisoned Chinese Rights Lawyer Released, His Wife Says**\
-`Wang Quanzhang, a well-known Chinese rights lawyer, was released from prison Sunday after being held for more than four years, his wife said.`\
-https://nytimes.com/aponline/2020/04/05/world/asia/ap-as-china-human-rights-lawyer.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/05/world/asia/05reuters-luckin-investigation.html?searchResultPosition=10
 
