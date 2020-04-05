@@ -14,8 +14,8 @@ https://nytimes.com/2020/04/05/crosswords/the-meaning-of-life.html?searchResultP
 `Boeing said Sunday it will continue its shutdown of production indefinitely at its Seattle area facilities due to the spread of the coronavirus.`\
 https://nytimes.com/aponline/2020/04/05/business/bc-us-virus-outbreak-washington-boeing-1st-ld-writethru.html?searchResultPosition=8
 
-**Boeing Extends Washington State Production Shutdown**\
-`Boeing Co said Sunday it would extend its temporary suspension of production operations at its Washington state production facilities until further notice.`\
+**Boeing Extends Washington State Production Shutdown Indefinitely**\
+`Boeing Co said on Sunday it would extend the suspension of production operations at its Washington state facilities until further notice amid the coronavirus outbreak.`\
 https://nytimes.com/reuters/2020/04/05/business/05reuters-health-coronavirus-boeing.html?searchResultPosition=9
 
 **Progressives Built an Organizing Juggernaut for 2020. Then the Virus Hit.**\
