@@ -3,7 +3,7 @@
 https://nytimes.com/2020/04/05/realestate/coronavirus-construction.html?searchResultPosition=5
 
 **Ireland's PM Returns to Medical Practice to Help in Coronavirus Crisis**\
-`Ireland's prime minister Leo Varadkar has re-registered as a medical practitioner and will work one shift a week to help out during the coronavirus crisis, a spokesman for his office said on Sunday.`\
+`Ireland's prime minister Leo Varadkar has re-registered as a medical practitioner and will work one shift a week to help out during the coronavirus crisis, his office said on Sunday.`\
 https://nytimes.com/reuters/2020/04/05/world/europe/05reuters-health-coronavirus-ireland-varadkar.html?searchResultPosition=6
 
 **Europe Sees More Signs of Hope as Italy's Virus Curve Falls**\
