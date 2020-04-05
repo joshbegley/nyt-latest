@@ -1,5 +1,5 @@
-**Mexican Health Ministry Registers 1,890 Coronavirus Cases, 79 Deaths**\
-`The Mexican health ministry on Saturday registered 1,890 cases of the novel coronavirus in the country, an increase of 202 cases from a day earlier. `\
+**Mexico Official Calls Diet a Factor as Coronavirus Death Toll Climbs**\
+`Mexican Deputy Hugo Lopez-Gatell said on Saturday that decades of poor eating habits in the country have created an epidemic of obesity, diabetes and other related health complications that make its people more vulnerable to the novel coronavirus.`\
 https://nytimes.com/reuters/2020/04/04/world/americas/04reuters-health-coronavirus-mexico.html?searchResultPosition=5
 
 **Trump Says He May Take Drug to Treat Coronavirus, Questions States' Ventilator Needs**\
