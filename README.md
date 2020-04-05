@@ -1,24 +1,24 @@
-**Philippines Reports 8 Additional Coronavirus Deaths, 152 New Cases**\
-`The Philippine health ministry reported on Sunday 8 additional coronavirus deaths and 152 newly confirmed cases.`\
-https://nytimes.com/reuters/2020/04/05/world/asia/05reuters-health-coronavirus-philippines-cases.html?searchResultPosition=5
+**The Nurse Was Holding Up. Then Her 3 Close Relatives Were Brought In.**\
+`After crippling New York City, the coronavirus outbreak is now enveloping New Jersey’s densely packed cities and suburbs.`\
+https://nytimes.com/2020/04/05/nyregion/coronavirus-new-jersey-hospitals.html?searchResultPosition=5
 
-**AP PHOTOS: Bustling London Life Stilled by COVID-19 Lockdown**\
-`When Associated Press photographer Frank Augstein moved to London in 2015, what struck him most was the crowds.`\
-https://nytimes.com/aponline/2020/04/05/world/europe/ap-virus-outbreak-britain-then-and-now-photo-gallery-1st-ld-writ.html?searchResultPosition=6
+**With Campaigns in Remote Mode, Pandemic Upends Battle for Congress**\
+`As retail campaigning has become all but impossible amid the public health crisis, candidates tread carefully in an uncertain political environment.`\
+https://nytimes.com/2020/04/05/us/congress-campaigns-coronavirus.html?searchResultPosition=6
 
-**9 Rebels, Indian Soldier Killed in Kashmir Fighting**\
-`Nine rebels and an Indian soldier were killed in two gunbattles in disputed Kashmir, an Indian army official said Sunday.`\
-https://nytimes.com/aponline/2020/04/05/world/asia/ap-as-kashmir-fighting.html?searchResultPosition=7
+**Gaps in Amazon’s Virus Response Fuel Warehouse Workers’ Demands**\
+`Shifting sick-leave policy and communication issues are causing employees to assert themselves after they stayed on the job.`\
+https://nytimes.com/2020/04/05/technology/coronavirus-amazon-workers.html?searchResultPosition=7
 
-**British Health Minister Denies Clash With Finance Chief Over Lockdown Strategy**\
-`British Health Secretary Matt Hancock on Sunday denied there was any disagreement with Finance Minister Rishi Sunak about when lockdown restrictions to fight the coronavirus could be lifted.`\
-https://nytimes.com/reuters/2020/04/05/world/europe/05reuters-health-coronavirus-britain-lockdown.html?searchResultPosition=8
+**Another Thing to Fear Out There: Coronavirus Scammers**\
+`The authorities say there has been a surge in fraud and cons seeking to capitalize on fears of the virus.`\
+https://nytimes.com/2020/04/05/us/politics/coronavirus-scams-fraud-price-gouging.html?searchResultPosition=8
 
-**Death at Home: The Unseen Toll of Italy's Coronavirus Crisis**\
-`It took Silvia Bertuletti 11 days of frantic phone calls to persuade a doctor to visit her 78-year-old father Alessandro, who was gripped by fever and struggling for breath.`\
-https://nytimes.com/reuters/2020/04/05/world/europe/05reuters-health-coronavirus-italy-deaths-insight.html?searchResultPosition=9
+**Chinese-Americans, Facing Abuse, Unite to Aid Hospitals in Coronavirus Battle**\
+`Although many have weathered racist remarks and some physical attacks over the virus, Chinese-Americans are tapping their deep social networks to procure medical supplies.`\
+https://nytimes.com/2020/04/05/nyregion/coronavirus-chinese-americans-supplies.html?searchResultPosition=9
 
-**China's Luckin Coffee Says Business Will Continue Amid Financial Fraud Probe**\
-`Luckin Coffee Inc said on Sunday it will maintain normal operations at its stores and apologised to the public, days after it announced an internal investigation had shown its chief operating officer and other employees fabricated sales deals.`\
-https://nytimes.com/reuters/2020/04/05/world/asia/05reuters-luckin-investigation.html?searchResultPosition=10
+**How to Live in the Face of Fear: Lessons From a Cancer Survivor**\
+`Kate Bowler is a religion scholar and best-selling author who is sharing daily reflections on Instagram.`\
+https://nytimes.com/2020/04/05/us/kate-bowler-cancer-coronavirus.html?searchResultPosition=10
 
