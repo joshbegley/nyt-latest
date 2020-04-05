@@ -1,24 +1,24 @@
+**Turkey's Coronavirus Death Toll Reaches 574 With 27,069 Cases: Minister**\
+`Turkey's death toll from the new coronavirus rose by 73 on Saturday to total 574, and new confirmed cases rose by 3,135 to bring the country's total to 27,069, Health Minister Fahrettin Koca said on Twitter. `\
+https://nytimes.com/reuters/2020/04/05/world/europe/05reuters-health-coronavirus-turkey.html?searchResultPosition=5
+
+**What Does a Sports Desk Do When Sports Are on Hold?**\
+`A cascade of postponements and cancellations upended the coverage that Times editors and reporters had planned. So they called a different play.`\
+https://nytimes.com/2020/04/05/reader-center/coronavirus-sports-reporting.html?searchResultPosition=6
+
 **Czech Republic to Treat Six French COVID-19 Patients**\
 `The Czech Republic will treat six COVID-19 patients from France at a university hospital in its second largest city Brno to help alleviate pressure on the French medical system, Prime Minister Andrej Babis said on Sunday.`\
-https://nytimes.com/reuters/2020/04/05/world/europe/05reuters-health-coronavirus-czech-france.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/05/world/europe/05reuters-health-coronavirus-czech-france.html?searchResultPosition=7
 
 **MLS 25th Anniversary Remains Quiet Milestone Amid Pandemic**\
 `Sporting Kansas City coach Peter Vermes is cautiously optimistic that Major League Soccer can still have a full season.`\
-https://nytimes.com/aponline/2020/04/05/sports/soccer/ap-soc-mls-delayed-anniversary-.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/04/05/sports/soccer/ap-soc-mls-delayed-anniversary-.html?searchResultPosition=8
 
 **U.S. Banking Group Warns of 'Massive' Delays, Tech Issues With Small-Business Rescue Program**\
 `Hundreds of U.S. lenders are struggling to access the technology system for distributing $349 billion of government rescue loans, while the pot of money is insufficient and will soon be expended, a top banking group warned over the weekend.`\
-https://nytimes.com/reuters/2020/04/05/us/05reuters-health-coronavirus-stimulus-banks.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/04/05/us/05reuters-health-coronavirus-stimulus-banks.html?searchResultPosition=9
 
 **U.S. Banks to Defend Dividend Payments in Stress Tests: FT**\
 `U.S. banks are expected to defend their dividend payments when they submit their annual capital plans to the Federal Reserve on Monday for the upcoming stress tests, the Financial Times reported on Sunday, citing people familiar with the situation. `\
-https://nytimes.com/reuters/2020/04/05/business/05reuters-usa-banks-stress-tests.html?searchResultPosition=8
-
-**Of Beards and Bubonic Plague: German Village Prays for a (2nd) Miracle**\
-`In 1633 the Bavarian village of Oberammergau, ravaged by a pandemic, made a pledge to God. Now another pandemic has forced villagers to abandon their promise.`\
-https://nytimes.com/2020/04/05/world/europe/germany-oberammergau-passion-play-coronavirus.html?searchResultPosition=9
-
-**Britain Has Sufficient Critical Care, Ventilator Capacity-Health Minister**\
-`Britain still had enough critical care capacity to treat patients with COVID-19, Health Secretary Matt Hancock said on Sunday, and it had more than half of the 18,000 ventilators he now forecast would be needed for the peak of the pandemic.`\
-https://nytimes.com/reuters/2020/04/05/world/europe/05reuters-health-coronavirus-britain-ventilators.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/05/business/05reuters-usa-banks-stress-tests.html?searchResultPosition=10
 
