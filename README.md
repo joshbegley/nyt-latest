@@ -1,6 +1,6 @@
 **Finland, ‘Prepper Nation of the Nordics,’ Isn’t Worried About Masks**\
 `Unlike their neighbors, the Finns never stopped stockpiling after the Cold War. Now Finland sits on an enviable supply of medical and survival gear in the Covid-19 era.`\
-https://nytimes.com/2020/04/05/world/europe/finland-coronavirus-stockpile.html?searchResultPosition=5
+https://nytimes.com/2020/04/05/world/europe/finland-stockpile-coronavirus.html?searchResultPosition=5
 
 **Indonesia Orders Citizens to Wear Masks as Infections Rise**\
 `Indonesia has ordered its citizens to wear cloth face masks when going outside as the numbers of coronavirus infections rise to 2,273 on Sunday, Health Ministry official Achmad Yurianto said.`\
