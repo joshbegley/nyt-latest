@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/04/05/world/middleeast/05reuters-health-coronavirus-lebanon-expats.html?searchResultPosition=5
 
 **Malaysia Intercepts Boat Ferrying 202 Suspected Rohingya**\
-`Malaysian authorities on Sunday said they had intercepted a boat ferrying a group of 202 people believed to be ethnic Rohingya.`\
+`Malaysian authorities said on Sunday they had intercepted a boat ferrying a group of 202 people believed to be ethnic Rohingya.`\
 https://nytimes.com/reuters/2020/04/05/world/asia/05reuters-myanmar-rohingya-malaysia.html?searchResultPosition=6
 
 **Iran's Deaths From Coronavirus Reach 3,603: Health Ministry**\
