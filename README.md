@@ -2,7 +2,7 @@
 `The 2020 NFL Draft now will be a stay-at-home affair as top team officials will participate in the April 23-25 event from their individual residences, ESPN reported Saturday.`\
 https://nytimes.com/reuters/2020/04/04/sports/football/04reuters-football-nfl-draft-home.html?searchResultPosition=5
 
-**Mainland China Reports 30 New Coronavirus Cases vs 19 a Day Earlier**\
+**Mainland China Reports 30 New Coronavirus Cases Versus 19 a Day Earlier**\
 `Mainland China reported 30 new coronavirus cases on Saturday, up from 19 a day earlier as the number of cases involving travellers from abroad as well as local transmissions increased. `\
 https://nytimes.com/reuters/2020/04/04/world/asia/04reuters-health-coronavirus-china-toll.html?searchResultPosition=6
 
