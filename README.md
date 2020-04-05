@@ -1,5 +1,5 @@
-**Report: Trump Hopeful for a Full NFL Season**\
-`President Donald Trump is optimistic pro sports can return to having fans in the stands by August or September, he told league commissioners on Saturday, ESPN reported.`\
+**Trump Hopes U.S. Sport Can Resume Soon, Wants Fans 'Back in Arenas'**\
+`U.S. President Donald Trump told sports commissioners on Saturday he hoped that their leagues and competitions, which have been suspended by the coronavirus outbreak, would soon be back in action.`\
 https://nytimes.com/reuters/2020/04/04/sports/football/04reuters-sports-trump-commissioners.html?searchResultPosition=5
 
 **NBA, Knicks, Nets Help Donate One Million Masks**\
