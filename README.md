@@ -1,24 +1,24 @@
-**Swiss Face Shortage of Ethanol for Disinfectant After Abandoning Stockpile**\
-`Switzerland faces a shortage of the raw material needed to make disinfectant to tackle the coronavirus pandemic after the country abandoned its emergency reserve of 10,000 tonnes of ethanol two years ago, newspaper Tages-Anzeiger reported on Monday.`\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-swiss-ethanol.html?searchResultPosition=5
+**Esports: Dybala Too Good for Bale in Charity Video Game Clash**\
+`Paulo Dybala left Gareth Bale out of his Real Madrid starting line-up but had no trouble beating the Welshman's Manchester City side in a FIFA 20 video game as part of a Combat Corona fundraiser for UNICEF at the weekend.`\
+https://nytimes.com/reuters/2020/04/06/sports/soccer/06reuters-health-coronavirus-esports-soccer.html?searchResultPosition=5
 
-**Healthcare Group Novacyt Wins French Approval for COVID Testing Product**\
-`Novacyt's COVID-19 testing product has been approved by France's CNR arm of the Institut Pasteur, making it available for immediate distribution in France, the healthcare company said on Monday.`\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-novacyt.html?searchResultPosition=6
+**Taiwan Execution Casts Pall Over Coronavirus Diplomacy With Europe**\
+`Taiwan's outreach to the European Union has been overshadowed by the bloc's displeasure at the island's use of the death penalty, just days after a rare high-profile mention that thanked it for the donation of 6 million masks to battle the coronavirus.`\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-taiwan-diplomacy.html?searchResultPosition=6
 
-**Norwegian Air's March Traffic Tumbles 60% Amid Virus Lockdown**\
-`Norwegian Air's passenger volume fell by 60% year-on-year in March as the company gradually grounded its fleet amid global efforts to halt the spread of the novel coronavirus.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-norwegianair.html?searchResultPosition=7
+**Shares Rebound on Signs of Progress in Battling Virus**\
+`Asian shares and U.S. futures rebounded on Monday as investors grasped at threads of hope that the battle against the coronavirus pandemic may be making some progress in some hard-hit areas. `\
+https://nytimes.com/aponline/2020/04/06/business/ap-financial-markets.html?searchResultPosition=7
 
-**UK New Car Sales Plunge More Than 40% in March-BBC**\
-`New car registrations in Britain are expected to show an annual drop of more than 40% in March as the coronavirus crisis forced many would-be buyers to stay at home, the BBC said on Monday.`\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-britain-autos.html?searchResultPosition=8
+**German Orders Slip in February in Early Taste of Likely Corona Impact**\
+`Orders for German-made goods fell 1.4% in February from a revised 4.8% increase the month before, as a sharp fall in orders from abroad hinted at the likely impact of the coronavirus on the exporting powerhouse's economic prospects.`\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-germany-economy-industrial-orders.html?searchResultPosition=8
 
-**Australia's Highest Court to Judge Cardinal's Abuse Appeal**\
-`Australia’s highest court on Tuesday will judge Cardinal George Pell’s appeal against convictions for molesting two teenage choirboys more than two decades ago. But the legal battle over the world’s most senior Catholic convicted of sexually abusing children may not end there.`\
-https://nytimes.com/aponline/2020/04/06/world/ap-australia-cardinal-charged-.html?searchResultPosition=9
+**Cyclone Pounds Vanuatu, Levelling Buildings, Amid Virus Shutdown**\
+`A powerful tropical cyclone made landfall on the South Pacific island nation of Vanuatu on Monday, witnesses said, levelling buildings in a country already in a state of emergency due to concerns about the coronavirus.`\
+https://nytimes.com/reuters/2020/04/06/world/asia/06reuters-storm-pacific-vanuatu.html?searchResultPosition=9
 
-**Rolls-Royce Scraps Targets, Dividend on Pandemic Hit**\
-`British aero-engine maker Rolls-Royce said it was scrapping its targets and its final dividend, taking steps to shore up its finances as airlines around the world ground planes due to the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-rolls-royce-hldg.html?searchResultPosition=10
+**UAE Agriculture Tech Start-Up Secures $120 Million Investment Commitment**\
+`United Arab Emirates agriculture technology start-up Pure Harvest Smart Farms has raised $20.6 million in fresh funding and secured commitments for a further $100 million, it said on Monday. `\
+https://nytimes.com/reuters/2020/04/06/business/06reuters-emirates-investment-farming.html?searchResultPosition=10
 
