@@ -1,24 +1,24 @@
+**Top U.S. Chefs Seek Restaurant Help From Congress**\
+`Top chefs including Tom Colicchio on Monday wrote to the U.S. Congress, seeking more help for independent restaurants amid the coronavirus crisis, including changes to the small-business rescue loan program they say does not work as intended. `\
+https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-usa-chefs.html?searchResultPosition=5
+
+**Milken Conference Pushed Back Again as Coronavirus Crisis Deepens**\
+`The Milken Institute said on Monday its global conference has been pushed back again to October from July as the coronavirus pandemic continues to spread across the United States.`\
+https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-milken-institute.html?searchResultPosition=6
+
+**U.S. Prosecutors Charge Former Fox Executives, Others in FIFA Corruption Probe**\
+`U.S. prosecutors on Monday announced new criminal charges against two former executives of 21st Century Fox Inc and others stemming from a long-running investigation of corruption surrounding FIFA, soccer's world governing body.`\
+https://nytimes.com/reuters/2020/04/06/sports/soccer/06reuters-soccer-fifa-usa.html?searchResultPosition=7
+
+**Market Tumult Threatens PG&E Deal With Wildfire Victims**\
+`Lawyers who negotiated a crucial $13.5 billion deal for the victims of deadly wildfires caused by Pacific Gas & Electric equipment are expressing serious doubts about whether the nation's largest utility will be able to pay the full amount as the economy sinks toward a recession.`\
+https://nytimes.com/aponline/2020/04/06/business/ap-us-california-wildfires-utility.html?searchResultPosition=8
+
 **Peter Navarro Has Antagonized Multinational Companies. Now He’s in Charge.**\
 `As the United States races to secure supplies to fight the coronavirus, the president’s trade adviser has been handed expansive authority over the firms’ global supply chains.`\
-https://nytimes.com/2020/04/06/business/economy/peter-navarro-coronavirus-defense-production-act.html?searchResultPosition=5
+https://nytimes.com/2020/04/06/business/economy/peter-navarro-coronavirus-defense-production-act.html?searchResultPosition=9
 
 **NYSE in Talks With SEC to Ease Listing Rules During Coronavirus Volatility**\
 `The New York Stock Exchange said on Monday it was in talks with regulators to temporarily ease its listing requirements to take the strain off companies that may have fallen out of compliance due to the market rout spurred by the coronavirus.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-nyse.html?searchResultPosition=6
-
-**Airbus Announces Additional Production Pauses**\
-`Airbus said on Monday it had decided additional production pauses, in Germany and in the United States, in response to an industry-wide slowdown triggered by the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-airbus-production.html?searchResultPosition=7
-
-**UFC 249 Still on, With Ferguson Fighting Gaethje on April 18**\
-`The UFC says Tony Ferguson will fight Justin Gaethje for the interim lightweight title in the main event of UFC 249 on April 18.`\
-https://nytimes.com/aponline/2020/04/06/sports/ap-mma-ufc-249-ferguson-gaethje.html?searchResultPosition=8
-
-**Hit by Coronavirus, Fiat Chrysler, Peugeot Seek to Boost Cash Before Merger Consummation**\
-`With their sales hammered by the coronavirus outbreak, car makers Fiat Chrysler and Peugeot's owner PSA have postponed their shareholder meetings and are looking at ways to boost cash reserves ahead of their planned merger.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-fiat-chrysler-dividend.html?searchResultPosition=9
-
-**Trump Speaks With Pharmaceutical, Biotech CEOs About Coronavirus Therapies-Spokeswoman**\
-`President Donald Trump on Monday spoke with the heads of pharmaceutical and biotechnology companies to discuss developments in therapeutics to fight coronavirus, according to White House Press Secretary Stephanie Grisham. `\
-https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-usa-therapeutics.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-nyse.html?searchResultPosition=10
 
