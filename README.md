@@ -1,24 +1,24 @@
-**Argentina Buys Time to Defuse Debt Crisis With Payment Freeze**\
-`Argentina has bought itself some badly-needed breathing room, after the coronavirus outbreak stalled restructuring talks with international creditors, by halting payments on debt denominated in dollars but covered by local law until 2021.`\
-https://nytimes.com/reuters/2020/04/06/world/americas/06reuters-argentina-debt-freeze-analysis.html?searchResultPosition=5
+**Marguerite Derrida, French Psychoanalyst and Translator, Dies at 87**\
+`A clinician by training, she translated major works in the field of psychoanalysis. She was the wife of Jacques Derrida, the French philosopher, for more than 40 years.`\
+https://nytimes.com/2020/04/06/obituaries/marguerite-derrida-dead-coronavirus.html?searchResultPosition=5
 
-**Business Groups Say Mexican Plans to Boost Economy Are Insufficient**\
-`Mexico's most powerful business lobbies on Monday said President Andres Manuel Lopez Obrador's plans to lift the Mexican economy out of a coronavirus-induced crisis are insufficient, and that more is needed to protect jobs and companies.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-mexico-economy-business.html?searchResultPosition=6
+**Navy Leader Calls Fired Carrier Captain 'Naive' or 'Stupid'**\
+`In an extraordinary broadside punctuated with profanity, the Navy’s top leader accused the fired commander of the COVID-stricken USS Theodore Roosevelt of being “too naive or too stupid” to be in charge of an aircraft carrier.`\
+https://nytimes.com/aponline/2020/04/06/us/politics/ap-us-virus-outbreak-aircraft-carrier.html?searchResultPosition=6
 
-**Sergio Rossi, Italian Shoemaker and Ready-to-Wear Ally, Dies at 84**\
-`Known for his spindly heels and designer collaborations, Mr. Rossi was part of the postwar generation that transformed Italian fashion`\
-https://nytimes.com/2020/04/06/obituaries/sergio-rossi-dead.html?searchResultPosition=7
+**The Pandemic Is Not an Excuse to Exploit Writers**\
+`Internet Archive’s “National Emergency Library” is meant to benefit consumers during the coronavirus crisis. Authors everywhere are losing.`\
+https://nytimes.com/2020/04/06/opinion/coronavirus-authors.html?searchResultPosition=7
 
-**Mexican Inflation in March Likely Still Above Central Bank Target: Reuters Poll**\
-`Mexican annual inflation likely dipped in March due to lower fuel prices but will probably remain above the central bank's 3% target, a Reuters poll showed on Monday.`\
-https://nytimes.com/reuters/2020/04/06/world/americas/06reuters-mexico-inflation-poll.html?searchResultPosition=8
+**Great Barrier Reef Is Bleaching Again. It’s Getting More Widespread.**\
+`New data shows example after example of overheating and damage along the 1,500-mile natural wonder.`\
+https://nytimes.com/2020/04/06/world/australia/great-barrier-reefs-bleaching-dying.html?searchResultPosition=8
 
-**Two Iowa Meat Plants Close as Coronavirus Outbreak Spreads**\
-`Tyson Foods Inc said on Monday it shut an Iowa hog slaughterhouse after more than 24 cases of COVID-19 involving employees at the facility, in the latest disruption to the U.S. food supply chain from the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-usa-meat.html?searchResultPosition=9
+**Trump Keeps Putting the Lives of Lupus Patients at Risk**\
+`We now have to deal with a shortage of hydroxychloroquine, the drug that has been keeping me alive for more than two decades.`\
+https://nytimes.com/2020/04/06/opinion/coronavirus-hydroxychloroquine-lupus.html?searchResultPosition=9
 
-**Cryptocurrency Issuers, Exchanges Face U.S. Class Action Lawsuits**\
-`Investors have brought class action lawsuits in federal court against seven cryptocurrency issuers and four exchanges, claiming they sold billions of dollars in unregistered assets in violation of U.S. securities laws.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-cryptocurrency-usa-lawsuit.html?searchResultPosition=10
+**What Moms Always Knew About Working from Home**\
+`The obsession with office “face time” hurts women. When the coronavirus pandemic is behind us, let’s not return to it.`\
+https://nytimes.com/2020/04/06/opinion/Coronavirus-remote-work.html?searchResultPosition=10
 
