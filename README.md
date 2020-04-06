@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/04/05/world/americas/05reuters-mexico-economy-p
 `Panama's health ministry on Sunday registered 1,988 cases of the novel coronavirus in the Central American country, a rise of 187 cases from a day earlier. The number of deaths increased by eight to 54.`\
 https://nytimes.com/reuters/2020/04/05/world/americas/05reuters-health-coronavirus-panama.html?searchResultPosition=7
 
-**Oil Skids on Oversupply Fears, U.S. Stock Futures Jump**\
-`Oil prices skidded on Monday after Saudi-Russian output discussions showed no immediate signs of progress while U.S. stock futures jumped as investors were encouraged by a slowdown in coronavirus-related deaths and new cases.`\
+**Oil Skids on Oversupply Fears, Stocks Jump on Virus Slowdown**\
+`Oil prices skidded on Monday after Saudi-Russian negotiations to cut output were delayed, keeping oversupply concerns alive, while stocks jumped as investors were encouraged by a slowdown in coronavirus-related deaths and new cases.`\
 https://nytimes.com/reuters/2020/04/05/business/05reuters-global-markets.html?searchResultPosition=8
 
 **Americans Don’t Trust the Media Anymore. So Why Do They Trust the Cuomos?**\
