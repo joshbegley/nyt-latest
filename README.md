@@ -1,4 +1,4 @@
-**Federal Reserve Tries to Pump Up Small Business Lending**\
+**Federal Reserve Moves to Pump Up Small Business Lending**\
 `The Fed announced that it would try motivating banks to make loans under the new S.B.A. program.`\
 https://nytimes.com/2020/04/06/business/economy/federal-reserve-small-business-loans.html?searchResultPosition=5
 
