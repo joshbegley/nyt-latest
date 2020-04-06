@@ -1,24 +1,24 @@
-**Bronx Zoo Tiger is Sick with the Coronavirus**\
-`Several other tigers and lions have also exhibited symptoms of the illness, according to federal officials.`\
-https://nytimes.com/2020/04/06/nyregion/bronx-zoo-tiger-coronavirus.html?searchResultPosition=5
+**The Next Virus Bill**\
+`Will Democrats make the same mistake?`\
+https://nytimes.com/2020/04/06/opinion/coronavirus-stimulus-democrats.html?searchResultPosition=5
 
-**EU Privacy Watchdog Calls for Pan-European Mobile App for Virus Tracking**\
-`The European Data Protection Supervisor (EDPS) called on Monday for a pan-European mobile app to track the spread of the coronavirus instead of the current hodge-podge of apps used in various EU countries which could breach people's privacy rights.`\
-https://nytimes.com/reuters/2020/04/06/technology/06reuters-health-coronavirus-tech-privacy.html?searchResultPosition=6
+**Uber Connects Out-Of-Work U.S. Ride-Hail Drivers to Delivery, Production Jobs**\
+`Uber Technologies Inc said on Monday its app will list job openings in the delivery, food production and grocery industry that can be accessed by its U.S. drivers who have been hit by a slump in ride-hailing demand due to the coronavirus.`\
+https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-usa-uber.html?searchResultPosition=6
 
-**China's Vehicle Production to Drop 11.5% This Year: IHS Markit**\
-`China's light vehicle production will drop 11.5% this year to around 21.6 million vehicles and will rebound by 7.5% next year, research firm IHS Markit predicted on Monday.`\
-https://nytimes.com/reuters/2020/04/06/world/asia/06reuters-health-coronavirus-china-autos.html?searchResultPosition=7
+**Greece Suggests EU Buy Patent Rights for Vaccines and Coronavirus Tests: FAZ**\
+`Greece has suggested EU member states jointly buy patent rights for vaccines against COVID-19 and rapid tests under development  to help ensure that if they are effective they are quickly distributed to those in need across the bloc.`\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-greece-pm.html?searchResultPosition=7
 
-**ILO Annual Gathering of Labour Ministers Postponed for a Year**\
-`An annual gathering of the world's labour ministers will not take place this year because of the coronavirus pandemic, but will convene in June 2021, the International Labour Organization (ILO) said on Monday.`\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-un-labour.html?searchResultPosition=8
+**Fear Gauges Signal Calmer Trade as Coronavirus Deaths Slow**\
+`Major stock and currency fear gauges steadily declined over the last week from 2008 levels as a slowdown in the number of coronavirus-related deaths calmed investor nerves and increased appetite for risky assets.`\
+https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-volatility.html?searchResultPosition=8
 
-**IBM Taps Former Bank of America CTO to Oversee Cloud Business**\
-`International Business Machines Corp on Monday named former Bank of America Corp top technology executive Howard Boville head of its cloud business, as Arvind Krishna takes over from long-time chief Ginni Rometty.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-ibm-moves.html?searchResultPosition=9
+**World's Fastest Blind Man Adjusts Training in Coronavirus Crisis**\
+`David Brown, the world's fastest totally blind sprinter, has been accompanied every step of the way by his guide Jerome Avery but the coronavirus outbreak has forced them apart for the first time in six years of training and racing together.`\
+https://nytimes.com/reuters/2020/04/06/sports/06reuters-health-coronavirus-athletics-brown.html?searchResultPosition=9
 
-**Allstate to Return $600 Million in Auto Premiums to Customers as Pandemic Cuts Driving**\
-`U.S. insurer Allstate Corp said on Monday that it would return more than $600 million in auto insurance premiums to customers as many Americans stay home and drive less due to "shelter-in-place" orders to curb the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-insurance-auto.html?searchResultPosition=10
+**UK Group Calls for Grounded Planes to Be Used as Intensive Care Wards**\
+`Airlines, airports and regulators have given their backing to a plan to turn large passenger aircraft into intensive care wards during the coronavirus pandemic, a UK-based group working on the idea said on Monday.`\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-caircraft.html?searchResultPosition=10
 
