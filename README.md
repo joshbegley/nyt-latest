@@ -1,24 +1,24 @@
-**After Virus Fades, Service Industries May Be Changed Forever**\
-`For years, personal trainer Amanda Tikalsky didn’t have to worry much about her job. The U.S. economy’s record-breaking 11-year expansion offered security to service workers like her.`\
-https://nytimes.com/aponline/2020/04/06/business/ap-virus-outbreak-threatening-service-jobs.html?searchResultPosition=5
+**How to Quarantine Yourself**\
+`Thousands who may have been exposed to the coronavirus have been asked to seclude themselves. It’s harder than it sounds.`\
+https://nytimes.com/article/quarantine-coronavirus.html?searchResultPosition=5
 
-**Fed May Ease Lending Curb on Wells Fargo to Help Small Businesses**\
-`The bank could do more to help distribute money to small businesses — if the Federal Reserve agrees to ease restrictions imposed after Wells Fargo’s fake account scandals.`\
-https://nytimes.com/2020/04/06/business/coronavirus-wells-fargo-ppp.html?searchResultPosition=6
+**Facebook Asks Users About Coronavirus Symptoms, Releases Friendship Data to Researchers**\
+`Facebook Inc said on Monday it would start surveying some U.S. users about their health as part of a Carnegie Mellon University research project aimed at generating "heat maps" of self-reported coronavirus infections.`\
+https://nytimes.com/reuters/2020/04/06/technology/06reuters-health-coronavirus-facebook.html?searchResultPosition=6
 
-**Wayfair, Carnival Rise on Wall Street; Zoom, Peloton Fall**\
-`Stocks that moved heavily or traded substantially on Monday:`\
-https://nytimes.com/aponline/2020/04/06/business/ap-financial-markets-stocks.html?searchResultPosition=7
+**France's Coronavirus Death Rate Accelerates, Cases Near 100,000**\
+`France's coronavirus figures on Monday showed that the rate of increase in fatalities - now at almost 9,000 - sped up again after several days of slowing, while the increase in people needing intensive care continued to decelerate.`\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-france-toll.html?searchResultPosition=7
 
-**Former Fox Executives Charged With Bribes in World Cup Bid**\
-`A pair of former sports marketing executives of 21st Century Fox have been indicted on charges they paid bribes to soccer officials to obtain confidential bidding information during FIFA’s sale of U.S. television rights to the 2018 and 2022 World Cups.`\
-https://nytimes.com/aponline/2020/04/06/sports/soccer/ap-soc-fifa-investigation-former-fox-executives-charged.html?searchResultPosition=8
+**U.S. Flights Returning Guatemalan Deportees Halted One Week: Guatemala**\
+`Guatemala's foreign ministry said on Monday that all flights from the United States returning deported Guatemalan migrants are suspended this week due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/06/world/americas/06reuters-usa-immigration-guatemala-coronavirus.html?searchResultPosition=8
 
-**Beloved Detroit Tigers Star Al Kaline Dies at 85**\
-`Al Kaline, who spent his entire 22-season Hall of Fame career with the Detroit Tigers and was known affectionately as “Mr. Tiger,” has died. He was 85.`\
-https://nytimes.com/aponline/2020/04/06/sports/baseball/ap-bba-obit-kaline.html?searchResultPosition=9
+**Israel Declares Coronavirus Lockdown for Passover Holiday Feast**\
+`Israeli Prime Minister Benjamin Netanyahu announced on Monday a national lockdown would begin on Tuesday and end on Friday to try to stem the spread of the new coronavirus during the Jewish holiday of Passover.`\
+https://nytimes.com/reuters/2020/04/06/world/middleeast/06reuters-health-coronavirus-israel.html?searchResultPosition=9
 
-**How Racism Is Destroying America**\
-`Eduardo Porter’s “American Poison” details the long legacy of racism and inequality in the United States.`\
-https://nytimes.com/2020/04/06/books/review/american-poison-racial-hostility-eduardo-porter.html?searchResultPosition=10
+**Swiss Street Artist Pays Tribute to Unsung Coronavirus Heroes**\
+`Street artist David Perez has found his own way to pay tribute in Switzerland to the people he regards as the unsung heroes of the coronavirus crisis. `\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-swiss-graffiti.html?searchResultPosition=10
 
