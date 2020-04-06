@@ -1,24 +1,24 @@
-**Mexican Auto Lobby Says 90 Days Not Enough to Meet USMCA Rules**\
-`Mexican auto industry group AMIA said on Monday that 90 days is not enough time for the sector to adapt its supply chains to meet the rules of origin requirements in the United States-Mexico-Canada Agreement, which could take effect on July 1.`\
-https://nytimes.com/reuters/2020/04/06/world/americas/06reuters-mexico-usmca-autos.html?searchResultPosition=5
+**Factbox: UK's Johnson in Intensive Care: Health Experts Comment**\
+`British Prime Minister Boris Johnson was moved to an intensive care unit at a London hospital on Monday after his symptoms of COVID-19 infection worsened. `\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-johnson-experts-factbox.html?searchResultPosition=5
 
-**S&P Revises Outlook on Illinois' Credit Rating to Negative on Virus Concerns**\
-`Illinois became the first state to get a negative rating outlook in the wake of the coronavirus crisis, which will put the state's finances and economy under pressure, an S&P Global Ratings analyst said on Monday. `\
-https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-illinois-s-p.html?searchResultPosition=6
+**UK's Raab Says Government Will Continue as PM Moved to Intensive Care**\
+`The British government will continue to make sure Prime Minister Boris Johnson's plans for defeating the coronavirus outbreak are carried out while he receives treatment in intensive care, Foreign Secretary Dominic Raab said on Monday.`\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-britain-raab-government.html?searchResultPosition=6
 
-**Despite Trump’s Optimism, Lack of Sports Could Extend Into the Fall**\
-`Public officials and sports leaders, worried events could wipe out gains made in the pandemic, are examining shortened seasons or not having them at all.`\
-https://nytimes.com/2020/04/06/sports/trump-sports-return-coronavirus.html?searchResultPosition=7
+**Trump Says Americans Are Praying for British Prime Minister**\
+`President Donald Trump said on Monday that he was saddened to hear that British Prime Minister Boris Johnson had been moved to an intensive care unit after his coronavirus symptoms worsened and that Americans were praying for his recovery. `\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-britain-trump.html?searchResultPosition=7
 
-**U.S. Prosecutors Say Qatar and Russia Bribed FIFA Officials to Win World Cup Bids**\
-`For nearly a decade, Russia and Qatar have been suspected of buying votes to win hosting rights for the 2018 and 2022 World Cups. On Monday, for the first time, the Department of Justice put things in black and white.`\
-https://nytimes.com/2020/04/06/sports/soccer/qatar-and-russia-bribery-world-cup-fifa.html?searchResultPosition=8
+**Rugby: EPCR Admits to Discussions to Launch Club World Cup**\
+`Club rugby's top organizing body is exploring holding a Club World Cup after French federation president Bernard Laporte proposed a radical new competition to replace the existing European Champions Cup.`\
+https://nytimes.com/reuters/2020/04/06/sports/rugby/06reuters-rugby-union-champions.html?searchResultPosition=8
 
-**Cantor Fitzgerald to Pay $3.2 Million to Settle Charges on Deficient 'Blue Sheet Data': U.S. SEC**\
-`The U.S. Securities and Exchange Commission said on Monday that Cantor Fitzgerald agreed to pay $3.2 million to settle charges it provided inaccurate and incomplete "blue sheet data" on securities trading.`\
-https://nytimes.com/reuters/2020/04/06/us/06reuters-sec-cantor-settlement.html?searchResultPosition=9
+**U.S. Chipmaking Industry Pushes Back on Proposed Export Rule Changes**\
+`Industry groups are pushing back on proposed changes to U.S. export controls that would impact the sale of certain semiconductors and other technology to China, while highlighting the role chips play in addressing the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/04/06/technology/06reuters-usa-china-chipmakers.html?searchResultPosition=9
 
-**Senior Administration Official Says Reports Small Business Loan System Crashed Are 'Not Accurate'**\
-`It is "not accurate" that banks were unable to submit small business relief loan applications after the Small Business Administration's portal crashed, according to a senior administration official.`\
-https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-banks-sba.html?searchResultPosition=10
+**NFL Draft to Occur in 'Fully Virtual Format,' With Team Personnel Kept Apart**\
+`The upcoming NFL draft will take place in a "fully virtual format," the league confirmed in a letter to teams on Monday, with personnel advised to stay at home amid the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/06/sports/football/06reuters-health-coronavirus-nfl-draft.html?searchResultPosition=10
 
