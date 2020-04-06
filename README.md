@@ -1,24 +1,24 @@
-**EU Imposes Tariffs on Glass Fibre From China, Egypt Over Dumping**\
-`The European Union will impose tariffs of up to 99.7% on glass fibre producers in China and Egypt that it accuses of selling at unfairly low prices, in a closely watched and rare case involving Chinese companies operating abroad.`\
-https://nytimes.com/reuters/2020/04/06/world/middleeast/06reuters-eu-china-egypt-trade.html?searchResultPosition=5
+**The U.F.C. Card Will Continue. Maybe.**\
+`One high-profile sporting event remains on the schedule. And it’s not korfball or fistball.`\
+https://nytimes.com/2020/04/06/sports/Nurmagomedov-Ferguson-UFC-virus.html?searchResultPosition=5
 
-**U.S. Consumers Fear for Jobs, Debt Payments Because of Coronavirus: New York Fed Survey**\
-`The economic toll of the coronavirus pandemic hit home for Americans last month, as consumers braced for job losses, anticipated spending cuts and grew more pessimistic about their ability to cover their bills, according to data released by the Federal Reserve Bank of New York on Monday.`\
-https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-fed-consumerexpectations.html?searchResultPosition=6
+**Justices Rule for Federal Employee Over Age Discrimination**\
+`Well, OK, boomer. `\
+https://nytimes.com/aponline/2020/04/06/us/politics/ap-us-supreme-court-age-discrimination.html?searchResultPosition=6
 
-**Luckin Coffee Chairman Defaults on Loan, Surrenders Company Shares**\
-`Luckin Coffee Chairman Charles Zhengyao Lu and Chief Executive Jenny Zhiya Qian have handed over shares in the embattled Chinese coffee chain to lenders after a company controlled by Lu's family defaulted on a $518 million margin loan, one of the banks said on Monday.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-luckin-coffee-investigation-chairman.html?searchResultPosition=7
+**City Considers Mass Grave in Park for Virus Victims**\
+`City Councilman Mark Levine says the city has a contingency plan to bury victims in a public park if morgues fill up, though the medical examiner’s office said no final decision had been made.`\
+https://nytimes.com/2020/04/06/nyregion/mass-graves-nyc-parks-coronavirus.html?searchResultPosition=7
 
-**Michael Kors Owner Capri Furloughs All North America Store Staff**\
-`Michael Kors owner Capri Holdings Ltd said on Monday it would furlough all its 7,000 employees in North America amid the coronavirus pandemic, as it expects to open its stores only after June 1.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-capri-holdings.html?searchResultPosition=8
+**Your Money: Freelancers Have 'Perfect Storm' of Anxiety Because of COVID-19**\
+`The crisis posed by COVID-19 is worrisome enough for full-time employees. Imagine life as a freelancer.`\
+https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-freelancers.html?searchResultPosition=8
 
-**Iran Supreme Leader Approves Tapping Sovereign Wealth Fund to Fight Coronavirus**\
-`Iran's Supreme Leader Ayatollah Ali Khamenei has approved the withdrawal of one billion euros from the country's sovereign wealth fund to help fight the coronavirus epidemic, President Hassan Rouhani's official website said on Monday.`\
-https://nytimes.com/reuters/2020/04/06/world/middleeast/06reuters-health-coronavirus-iran-fund.html?searchResultPosition=9
+**U.S. Open Postponed Due to Coronavirus**\
+`The U.S. Open golf championship, which had been set for June 18-21 at Winged Foot in New York, has been rescheduled due to the novel coronavirus outbreak, the U.S. Golf Association announced on Monday.`\
+https://nytimes.com/reuters/2020/04/06/sports/golf/06reuters-health-coronavirus-golf-usopen.html?searchResultPosition=9
 
-**White House, Experts Clash Over Use of Drug for Coronavirus**\
-`White House trade adviser Peter Navarro on Monday acknowledged that members of the task force dealing with the coronavirus crisis clashed over the efficacy of the malaria drug, hydroxychloroquine, for use against the disease.`\
-https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-usa-navarro.html?searchResultPosition=10
+**With Small Businesses Suffering, Putin Faces Criticism Over Shutdown**\
+`Left with no income because of the coronavirus lockdown, Dmitry Volodin, the co-owner of several bars in Moscow, says he's getting inadequate government support, and he has no idea how he can keep paying his staff and his rent.`\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-russia-business.html?searchResultPosition=10
 
