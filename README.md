@@ -1,24 +1,24 @@
+**Futures Jump on Hopes of Slowdown in Coronavirus Cases**\
+`U.S. stock index futures jumped about 4% on Monday after President Donald Trump expressed hope that the coronavirus health crisis in the United States was "leveling-off" in some of the country's hardest-hit areas.`\
+https://nytimes.com/reuters/2020/04/06/business/06reuters-usa-stocks.html?searchResultPosition=5
+
+**Swedish Government Seeks Wider Executive Powers to Fight Virus**\
+`Sweden's government is seeking wider executive powers, including the right to shut airports and railway stations without parliament's approval, in its fight to halt the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-sweden-government.html?searchResultPosition=6
+
+**Police: 7-Year-Old Boy Shot in Face Dies in Pennsylvania**\
+`A 7-year-old boy who was shot in the face died from his injuries, police in Pennsylvania said.`\
+https://nytimes.com/aponline/2020/04/06/us/ap-us-child-killed-pennsylvania.html?searchResultPosition=7
+
+**Japan PM to Declare State of Emergency as Early as Tuesday**\
+`Japanese Prime Minister Shinzo Abe says that he will declare a state of emergency for Tokyo and six other prefectures as early as Tuesday to bolster measures to fight the coronavirus outbreak, but that there will be no hard lockdowns.`\
+https://nytimes.com/aponline/2020/04/06/world/asia/ap-as-virus-outbreak-japan.html?searchResultPosition=8
+
+**Iraqi Military: 3 Rockets Target US Oil Company in South**\
+`At least three rockets hit near the site of an American oil field service company in southern Iraq early on Monday, Iraq's military said, the first such attack in recent months to target U.S. energy interests in Iraq. `\
+https://nytimes.com/aponline/2020/04/06/business/ap-ml-iraq-us.html?searchResultPosition=9
+
 **How to Put Your Pantry in Order (and Stop Wasting Food)**\
 `Step one: Start by making a mess. Here’s what to do after that.`\
-https://nytimes.com/2020/04/06/realestate/how-to-put-your-pantry-in-order-and-stop-wasting-food.html?searchResultPosition=5
-
-**Malaysia Reports 131 New Coronavirus Cases; 3,793 in Total, With One New Death**\
-`Malaysia on Monday reported 131 new coronavirus infections, raising the country's total to 3,793 cases, the highest in Southeast Asia.  `\
-https://nytimes.com/reuters/2020/04/06/world/asia/06reuters-health-coronavirus-malaysia.html?searchResultPosition=6
-
-**Who Is Dominic Raab, Britain's Standby Leader?**\
-`British foreign minister Dominic Raab is designated to take over leadership of the country if Prime Minister Boris Johnson, currently ill in hospital with persistent symptoms of the coronavirus, is unable to fulfil his role. `\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-britain-raab-factbox.html?searchResultPosition=7
-
-**Accused of 'Piracy', U.S. Denies Diverting Masks Bound for Germany**\
-`The United States had no knowledge of a shipment of face masks bound for Germany that officials in Berlin have accused it of diverting from an airport in Bangkok, a spokeswoman for the U.S. embassy in Thailand said. `\
-https://nytimes.com/reuters/2020/04/06/world/americas/06reuters-health-coronavirus-masks.html?searchResultPosition=8
-
-**Spain to Widen Coronavirus Tests as Hopes Rise for Easing Lockdown**\
-`Spain said on Monday it plans to widen coronavirus testing to include people without symptoms as a first step towards slowly easing a lockdown in the nation with the second highest death toll from the global pandemic. `\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-spain.html?searchResultPosition=9
-
-**Iran Will Never Ask U.S. for Coronavirus Help: Official**\
-`Iran will never ask the United States to help Tehran in its fight against the new coronavirus, Foreign Ministry spokesman Abbas Mousavi said on Monday, adding that Washington should lift its "illegal" sanctions on the Islamic Republic.`\
-https://nytimes.com/reuters/2020/04/06/world/middleeast/06reuters-health-coronavirus-iran-usa.html?searchResultPosition=10
+https://nytimes.com/2020/04/06/realestate/how-to-put-your-pantry-in-order-and-stop-wasting-food.html?searchResultPosition=10
 
