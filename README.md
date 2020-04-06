@@ -3,7 +3,7 @@
 https://nytimes.com/2020/04/06/health/coronavirus-children-us.html?searchResultPosition=5
 
 **Boris Johnson’s Condition ‘Worsened,’ British Foreign Secretary Says**\
-`In a recorded statement, Britain’s Foreign Secretary, Dominic Raab, said Prime Minister Boris Johnson asked Raab to stand in for him if needed.`\
+`In a recorded statement, Britain’s Foreign Secretary, Dominic Raab, said Prime Minister Boris Johnson asked Mr. Raab to stand in for him if needed.`\
 https://nytimes.com/video/world/europe/100000007073970/raab-coronavirus-johnson.html?searchResultPosition=6
 
 **Ohio, Oklahoma Courts Rule Abortions Can Continue Amid Virus**\
