@@ -19,6 +19,6 @@ https://nytimes.com/reuters/2020/04/05/us/05reuters-health-coronavirus-wells-far
 https://nytimes.com/aponline/2020/04/05/world/ap-un-virus-outbreak-un-domestic-violence.html?searchResultPosition=9
 
 **Outgoing U.S. Intel Watchdog Fired by Trump Says He Acted Appropriately**\
-`Michael Atkinson, the outgoing top watchdog of the U.S. Intelligence Community, on Sunday said he was fired by President Donald Trump for acting impartially in his handling the whistleblower complaint that triggered an impeachment probe of the president last year.`\
+`Michael Atkinson, the outgoing top watchdog of the U.S. Intelligence Community, on Sunday said he was fired by President Donald Trump for acting impartially in his handling of the whistleblower complaint that triggered an impeachment probe of the president last year.`\
 https://nytimes.com/reuters/2020/04/05/us/politics/05reuters-usa-trump-inspector-general.html?searchResultPosition=10
 
