@@ -1,24 +1,24 @@
-**How to Quarantine Yourself**\
-`Thousands who may have been exposed to the coronavirus have been asked to seclude themselves. It’s harder than it sounds.`\
-https://nytimes.com/article/quarantine-coronavirus.html?searchResultPosition=5
+**Peter Navarro Has Antagonized Multinational Companies. Now He’s in Charge.**\
+`As the United States races to secure supplies to fight the coronavirus, the president’s trade adviser has been handed expansive authority over the firms’ global supply chains.`\
+https://nytimes.com/2020/04/06/business/economy/peter-navarro-coronavirus-defense-production-act.html?searchResultPosition=5
 
-**Facebook Asks Users About Coronavirus Symptoms, Releases Friendship Data to Researchers**\
-`Facebook Inc said on Monday it would start surveying some U.S. users about their health as part of a Carnegie Mellon University research project aimed at generating "heat maps" of self-reported coronavirus infections.`\
-https://nytimes.com/reuters/2020/04/06/technology/06reuters-health-coronavirus-facebook.html?searchResultPosition=6
+**NYSE in Talks With SEC to Ease Listing Rules During Coronavirus Volatility**\
+`The New York Stock Exchange said on Monday it was in talks with regulators to temporarily ease its listing requirements to take the strain off companies that may have fallen out of compliance due to the market rout spurred by the coronavirus.`\
+https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-nyse.html?searchResultPosition=6
 
-**France's Coronavirus Death Rate Accelerates, Cases Near 100,000**\
-`France's coronavirus figures on Monday showed that the rate of increase in fatalities - now at almost 9,000 - sped up again after several days of slowing, while the increase in people needing intensive care continued to decelerate.`\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-france-toll.html?searchResultPosition=7
+**Airbus Announces Additional Production Pauses**\
+`Airbus said on Monday it had decided additional production pauses, in Germany and in the United States, in response to an industry-wide slowdown triggered by the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-airbus-production.html?searchResultPosition=7
 
-**U.S. Flights Returning Guatemalan Deportees Halted One Week: Guatemala**\
-`Guatemala's foreign ministry said on Monday that all flights from the United States returning deported Guatemalan migrants are suspended this week due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/06/world/americas/06reuters-usa-immigration-guatemala-coronavirus.html?searchResultPosition=8
+**UFC 249 Still on, With Ferguson Fighting Gaethje on April 18**\
+`The UFC says Tony Ferguson will fight Justin Gaethje for the interim lightweight title in the main event of UFC 249 on April 18.`\
+https://nytimes.com/aponline/2020/04/06/sports/ap-mma-ufc-249-ferguson-gaethje.html?searchResultPosition=8
 
-**Israel Declares Coronavirus Lockdown for Passover Holiday Feast**\
-`Israeli Prime Minister Benjamin Netanyahu announced on Monday a national lockdown would begin on Tuesday and end on Friday to try to stem the spread of the new coronavirus during the Jewish holiday of Passover.`\
-https://nytimes.com/reuters/2020/04/06/world/middleeast/06reuters-health-coronavirus-israel.html?searchResultPosition=9
+**Hit by Coronavirus, Fiat Chrysler, Peugeot Seek to Boost Cash Before Merger Consummation**\
+`With their sales hammered by the coronavirus outbreak, car makers Fiat Chrysler and Peugeot's owner PSA have postponed their shareholder meetings and are looking at ways to boost cash reserves ahead of their planned merger.`\
+https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-fiat-chrysler-dividend.html?searchResultPosition=9
 
-**Swiss Street Artist Pays Tribute to Unsung Coronavirus Heroes**\
-`Street artist David Perez has found his own way to pay tribute in Switzerland to the people he regards as the unsung heroes of the coronavirus crisis. `\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-swiss-graffiti.html?searchResultPosition=10
+**Trump Speaks With Pharmaceutical, Biotech CEOs About Coronavirus Therapies-Spokeswoman**\
+`President Donald Trump on Monday spoke with the heads of pharmaceutical and biotechnology companies to discuss developments in therapeutics to fight coronavirus, according to White House Press Secretary Stephanie Grisham. `\
+https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-usa-therapeutics.html?searchResultPosition=10
 
