@@ -1,5 +1,5 @@
-**Inspector General Fired by Trump Urges Whistle-blowers ‘to Bravely Speak Up’**\
-`Michael Atkinson, whom President Trump made clear was dismissed in reprisal for his role in revealing the Ukraine matter, broke his silence.`\
+**Inspector General Fired by Trump Urges Whistle-Blowers ‘to Bravely Speak Up’**\
+`Michael Atkinson, who President Trump made clear was dismissed in reprisal for his role in revealing the Ukraine matter, broke his silence.`\
 https://nytimes.com/2020/04/06/us/politics/michael-atkinson-inspector-general-fired.html?searchResultPosition=5
 
 **Venezuela Elderly Feel 'Sentenced to Euthanasia' Under Coronavirus Quarantine**\
