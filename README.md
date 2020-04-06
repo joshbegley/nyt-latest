@@ -1,24 +1,24 @@
-**Don’t Freak Out About Quarantine Screen Time**\
-`The evidence directly linking children’s screen time to cognitive and social harm seems, in reality, to be paper thin.`\
-https://nytimes.com/2020/04/06/opinion/screen-time-kids-covid.html?searchResultPosition=5
+**Indonesia Reports Biggest Daily Rise in Coronavirus Cases**\
+`Indonesia on Monday confirmed 218 new coronavirus cases, the biggest daily jump since the first cases were announced a month ago, taking the total number of infections to 2,491, a Health Ministry official said.`\
+https://nytimes.com/reuters/2020/04/06/world/asia/06reuters-health-coronavirus-indonesia.html?searchResultPosition=5
 
-**How Will We Know When It’s Time to Reopen the Nation?**\
-`Experts offer four benchmarks that can serve as a guide for cities and states, eliminating some of the guesswork.`\
-https://nytimes.com/2020/04/06/upshot/coronavirus-four-benchmarks-reopening.html?searchResultPosition=6
+**Lockdown Can’t Last Forever. Here’s How to Lift It.**\
+`We need to hit and release the brakes on physical distancing, again and again, until we safely get to immunity.`\
+https://nytimes.com/2020/04/06/opinion/coronavirus-end-social-distancing.html?searchResultPosition=6
 
-**How to Help the Helpers**\
-`The coronavirus pandemic has pushed medical professionals into the front lines of danger. Here’s what you can do to help, safely.`\
-https://nytimes.com/2020/04/06/smarter-living/how-to-help-the-helpers.html?searchResultPosition=7
+**U.S. Is Nowhere Close to Reopening the Economy, Experts Say**\
+`Here’s what economists say the United States needs to start returning to normal amid the coronavirus outbreak — and how the economy can survive in the meantime.`\
+https://nytimes.com/2020/04/06/business/economy/coronavirus-economy.html?searchResultPosition=7
 
-**How Painkiller Pushers Took Over Coal Country**\
-`Eric Eyre’s “Death in Mud Lick” builds on his Pulitzer Prize-winning reporting about the opioid crisis in West Virginia.`\
-https://nytimes.com/2020/04/06/books/review-death-in-mud-lick-opioid-crisis-west-virginia-eric-eyre.html?searchResultPosition=8
+**‘Scared to Death’ by Arbitration: Companies Drowning in Their Own System**\
+`Lawyers and a Silicon Valley start-up have found ways to flood the system with claims, so companies are looking to thwart a process they created.`\
+https://nytimes.com/2020/04/06/business/arbitration-overload.html?searchResultPosition=8
 
-**Congo Mine Attack Kills Three Chinese Nationals: Xinhua**\
-`A gun attack in a mining area in the Democratic Republic of Congo (DRC) has killed three Chinese nationals, China's official Xinhua news agency reported on Monday, citing the Chinese embassy in the mineral-rich central African country. `\
-https://nytimes.com/reuters/2020/04/06/world/africa/06reuters-china-congo-mining.html?searchResultPosition=9
+**As School Moves Online, Many Students Stay Logged Out**\
+`Teachers at some schools across the country report that less than half of their students are participating in online learning.`\
+https://nytimes.com/2020/04/06/us/coronavirus-schools-attendance-absent.html?searchResultPosition=9
 
-**Healthcare Workers Are Begging For Masks. Is The President Listening?**\
-`The country that spends the most in the world on health care doesn’t have nearly enough protective equipment.`\
-https://nytimes.com/video/opinion/100000007063646/health-care-workers-ppe-coronavirus.html?searchResultPosition=10
+**What the Caribou Taught Me About Being Together, and Apart**\
+`Disappearing in the Arctic wilderness for half a year, a traveler discovered there is always a way forward.`\
+https://nytimes.com/2020/04/06/travel/caribou-migration-arctic-alaska.html?searchResultPosition=10
 
