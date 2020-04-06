@@ -1,24 +1,24 @@
+**Kuwait Locks Down Two Areas Over Coronavirus, Extends Curfew**\
+`Kuwait placed a full lockdown on two areas and extended its partial curfew by two hours to run from 5 pm (1400 GMT) till 6 am effective Monday until further notice, a statement from the cabinet said.   `\
+https://nytimes.com/reuters/2020/04/06/world/middleeast/06reuters-health-coronavirus-gulf.html?searchResultPosition=5
+
+**Phelps Urges Athletes to Take Care of Mental Health After Games Delay**\
+`Olympic great Michael Phelps has voiced his concerns over the negative impact on athletes' mental health of the Tokyo Games postponement prompted by the new coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/06/sports/olympics/06reuters-health-coronavirus-olympics-phelps.html?searchResultPosition=6
+
+**Golf: Majors Rescheduled or Canceled Due to Coronavirus**\
+`The rescheduled golf majors calendar due to the novel coronavirus outbreak (original date, event, location, rescheduled date).  `\
+https://nytimes.com/reuters/2020/04/06/sports/golf/06reuters-health-coronavirus-golf-majors.html?searchResultPosition=7
+
+**All-Decade Team: Brady, Rodgers Headline Team of 2010s**\
+`You can now download all free assets in one place. This includes Watermark, Keyframe, Screener, XML, and Shotlist.`\
+https://nytimes.com/reuters/2020/04/06/sports/football/06reuters-football-nfl-all-decade-team.html?searchResultPosition=8
+
+**French Union CGT Calls Strike by Retail Sector, Demanding Safer Working Conditions**\
+`French far-left union CGT on Monday called on workers in the retail, security services and logistics sectors to go on strike from Wednesday demanding safer working conditions during the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-france-strike.html?searchResultPosition=9
+
 **Our Horses Were Not Prepared for 2020 Games: France's Staut**\
 `The Olympics being postponed by a year proved to be a blessing in disguise for France's equestrian team whose horses were not quite ready to defend their crown at the Tokyo Games this year, French show jumper Kevin Staut has said.`\
-https://nytimes.com/reuters/2020/04/06/sports/olympics/06reuters-health-coronavirus-olympics-equestrian.html?searchResultPosition=5
-
-**Mexico Auto Production, Exports Nosedive as Coronavirus Bites**\
-`Mexico's auto production and exports plummeted in March, data from the national statistics agency INEGI showed on Monday, as demand dried up and car makers halted their production lines due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/06/world/americas/06reuters-mexico-autos.html?searchResultPosition=6
-
-**Report: NFL Delays Offseason Phase 1**\
-`Teams are being advised the first phase of the offseason program, which includes rookie minicamps after the NFL draft, will be delayed by at least one week, NFL Network reported.`\
-https://nytimes.com/reuters/2020/04/06/sports/football/06reuters-football-nfl-coronavirus-nfl-offseason.html?searchResultPosition=7
-
-**Off Broadway’s Season Shook Up Norms of Life and Theater**\
-`Our co-chief theater critics discuss the plays and musicals that reflected and predicted an unstable world.`\
-https://nytimes.com/2020/04/06/theater/off-broadway-theater-season.html?searchResultPosition=8
-
-**African Americans More Likely to Die From Coronavirus Illness, Early Data Shows**\
-`Early data from U.S. states shows African Americans are more likely to die from COVID-19, highlighting longstanding disparities in health and inequalities in access to medical care, experts said.`\
-https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-usa-race.html?searchResultPosition=9
-
-**Catch This Week's Supermoon, Biggest and Brightest of Year**\
-`A supermoon rises in the sky this week, looking to be the biggest and brightest of the year. `\
-https://nytimes.com/aponline/2020/04/06/science/ap-us-sci-supermoon.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/06/sports/olympics/06reuters-health-coronavirus-olympics-equestrian.html?searchResultPosition=10
 
