@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/04/06/world/asia/06reuters-health-coronavirus-i
 `Pope Francis has started an emergency fund to help areas affected by the coronavirus in developing countries, the Vatican said on Monday.`\
 https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-pope-fund.html?searchResultPosition=7
 
-**The U.F.C. Card Will Continue. Maybe.**\
+**The U.F.C. Card Will Be Held. Maybe.**\
 `One high-profile sporting event remains on the schedule. And it’s not korfball or fistball.`\
 https://nytimes.com/2020/04/06/sports/Nurmagomedov-Ferguson-UFC-virus.html?searchResultPosition=8
 
