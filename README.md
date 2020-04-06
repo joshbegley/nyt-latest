@@ -1,24 +1,24 @@
+**Poland's Parliament Rejects Ruling Party Plan to Vote on Postal Ballot Proposal**\
+`Polish lawmakers rejected a ruling Law and Justice (PiS) party proposal on Monday to hold a presidential election on May 10 by post, making it more uncertain whether the ballot will take place amid the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-poland-postalvoting.html?searchResultPosition=5
+
+**Pakistan Police Clash With Doctors Protesting Lack of Virus Protection Gear**\
+`Riot police wielding batons used force to break up a protest by Pakistani doctors and medical staff against a lack of gear to protect against coronavirus, arresting dozens of medics who say the government has failed to deliver promised supplies.`\
+https://nytimes.com/reuters/2020/04/06/world/asia/06reuters-health-coronavirus-pakistan-healthcare.html?searchResultPosition=6
+
+**Cemex to Shut Mexico Operations Until at Least April 30 Due to Coronavirus**\
+`Mexican cement company Cemex will suspend its operations in the country until at least April 30 in line with government guidelines aimed at stopping the spread of coronavirus, the firm said in a statement on Monday.`\
+https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-mexico-cemex.html?searchResultPosition=7
+
+**Indonesia Open Among Host of Events Suspended Due to COVID-19**\
+`The Indonesia Open was among a host of badminton events that have been cancelled due to the COVID-19 pandemic, the Badminton World Federation said on Monday.`\
+https://nytimes.com/reuters/2020/04/06/sports/06reuters-health-coronavirus-badminton.html?searchResultPosition=8
+
+**Charities Face Crisis During UK Shutdown as Sports Fundraising Dries Up**\
+`The postponement of major sporting events during the coronavirus pandemic has left some British charities concerned about their survival, representatives have told Reuters, while others are worried about delivering services to vulnerable people.`\
+https://nytimes.com/reuters/2020/04/06/sports/06reuters-health-coronavirus-sport-charities-feature.html?searchResultPosition=9
+
 **Getinge to Ramp Up Ventilator Production Capacity by 160% Due to Coronavirus**\
 `Getinge, one of the world's biggest makers of medical ventilators, said on Monday it will increase production capacity this year by 160% to 26,000 ventilators to meet demand spurred by the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/04/06/technology/06reuters-health-coronavirus-getinge-ventilators.html?searchResultPosition=5
-
-**Migrant Workers Keep Picking Swiss Asparagus Amid Coronavirus Curbs**\
-`Migrant workers drawn by attractive pay are keeping Switzerland's asparagus supplies moving during the coronavirus crisis despite fears they could be kept out by border restrictions.`\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-swiss-food.html?searchResultPosition=6
-
-**Apple Supplier Foxconn's Sales Down 7.7% in March**\
-`Sales at Taiwan's Hon Hai Precision Industry, a key supplier of Apple Inc's products known by its trade name Foxconn, were down by 7.7% in March.`\
-https://nytimes.com/reuters/2020/04/06/technology/06reuters-foxconn-results.html?searchResultPosition=7
-
-**SeaWorld CEO Steps Down After Just Five Months on the Job**\
-`SeaWorld Entertainment Inc said on Monday Sergio Rivera, the theme park operator's chief executive officer for just five months, has resigned due to disagreements with the board. `\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-seaworld-entrnmt-ceo.html?searchResultPosition=8
-
-**Britain Committed to Continuing Talks With EU: PM's Spokesman**\
-`Britain is absolutely committed to continuing negotiations with the European Union on their future relationship, a spokesman for Prime Minister Boris Johnson said on Monday, repeating that the government did not intend to extend the transition period.`\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-britain-eu-talks.html?searchResultPosition=9
-
-**British PM 'in Good Spirits' but to Stay in Hospital: Spokesman**\
-`British Prime Minister Boris Johnson had a comfortable night in hospital, is in good spirits and continues to carry out work as leader of the government but will remain in hospital under observation, his spokesman said on Monday. `\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-britain-pm.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/06/technology/06reuters-health-coronavirus-getinge-ventilators.html?searchResultPosition=10
 
