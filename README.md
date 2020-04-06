@@ -1,24 +1,24 @@
+**Don’t Freak Out About Quarantine Screen Time**\
+`The evidence directly linking children’s screen time to cognitive and social harm seems, in reality, to be paper thin.`\
+https://nytimes.com/2020/04/06/opinion/screen-time-kids-covid.html?searchResultPosition=5
+
+**How Will We Know When It’s Time to Reopen the Nation?**\
+`Experts offer four benchmarks that can serve as a guide for cities and states, eliminating some of the guesswork.`\
+https://nytimes.com/2020/04/06/upshot/coronavirus-four-benchmarks-reopening.html?searchResultPosition=6
+
+**How to Help the Helpers**\
+`The coronavirus pandemic has pushed medical professionals into the front lines of danger. Here’s what you can do to help, safely.`\
+https://nytimes.com/2020/04/06/smarter-living/how-to-help-the-helpers.html?searchResultPosition=7
+
+**How Painkiller Pushers Took Over Coal Country**\
+`Eric Eyre’s “Death in Mud Lick” builds on his Pulitzer Prize-winning reporting about the opioid crisis in West Virginia.`\
+https://nytimes.com/2020/04/06/books/review-death-in-mud-lick-opioid-crisis-west-virginia-eric-eyre.html?searchResultPosition=8
+
+**Congo Mine Attack Kills Three Chinese Nationals: Xinhua**\
+`A gun attack in a mining area in the Democratic Republic of Congo (DRC) has killed three Chinese nationals, China's official Xinhua news agency reported on Monday, citing the Chinese embassy in the mineral-rich central African country. `\
+https://nytimes.com/reuters/2020/04/06/world/africa/06reuters-china-congo-mining.html?searchResultPosition=9
+
 **Healthcare Workers Are Begging For Masks. Is The President Listening?**\
 `The country that spends the most in the world on health care doesn’t have nearly enough protective equipment.`\
-https://nytimes.com/video/opinion/100000007063646/health-care-workers-ppe-coronavirus.html?searchResultPosition=5
-
-**Britain's BT Commits to No Job Losses Due to Coronavirus Crisis**\
-`Britain's BT on Monday committed to no job losses related to the coronavirus crisis for the foreseeable future.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-bt.html?searchResultPosition=6
-
-**Trump Hopes Virus Leveling-Off in Hot Spots; Advisers Take Tempered View**\
-`President Donald Trump expressed hope on Sunday that the United States was seeing a “leveling-off” of the coronavirus crisis in some of the nation's hot spots, but some of his top medical advisers took a more tempered view.`\
-https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-trump.html?searchResultPosition=7
-
-**Thousands of Pakistanis in UAE Seek to Return Home Amid Coronavirus Outbreak**\
-`More than 20,000 Pakistani workers stuck in the United Arab Emirates are seeking to return home, as the Gulf Arab state tightens restrictions due to the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/04/06/world/asia/06reuters-health-coronavirus-emirates-pakistan.html?searchResultPosition=8
-
-**Dollar Borrowing Costs Drop to Lowest in Decade in FX Swap Markets**\
-`Dollar borrowing costs in the foreign exchange swap markets retreated further on Monday, with swap rates against the euro and pound falling to their lowest levels in more than a decade.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-dollar-funding.html?searchResultPosition=9
-
-**UK Construction Activity Falls in March at Fastest Rate Since 2009-PMI**\
-`Britain's construction sector saw the sharpest fall in activity since the financial crisis last month, a survey showed on Monday, despite facing much less pressure than other industries to shut down operations due to the coronavirus.`\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-britain-economy-pmi.html?searchResultPosition=10
+https://nytimes.com/video/opinion/100000007063646/health-care-workers-ppe-coronavirus.html?searchResultPosition=10
 
