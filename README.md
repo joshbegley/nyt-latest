@@ -1,24 +1,24 @@
-**Judge Dismisses Case Against Universal Music Over Losses in 2008 Fire**\
-`A group of high-profile musicians and estates had sued the Universal Music Group over a fire that destroyed thousands of archived recordings.`\
-https://nytimes.com/2020/04/06/arts/music/universal-music-fire-lawsuit.html?searchResultPosition=5
+**Mexican Auto Lobby Says 90 Days Not Enough to Meet USMCA Rules**\
+`Mexican auto industry group AMIA said on Monday that 90 days is not enough time for the sector to adapt its supply chains to meet the rules of origin requirements in the United States-Mexico-Canada Agreement, which could take effect on July 1.`\
+https://nytimes.com/reuters/2020/04/06/world/americas/06reuters-mexico-usmca-autos.html?searchResultPosition=5
 
-**Wisconsin's Supreme Court Rules Governor Cannot Push Back Tuesday's Election: AP**\
-`Wisconsin's Supreme Court on Monday ruled that Democratic Governor Tony Evers cannot postpone the state's presidential primary scheduled for Tuesday despite the coronavirus crisis, the Associated Press reported.`\
-https://nytimes.com/reuters/2020/04/06/us/politics/06reuters-health-coronavirus-election-court.html?searchResultPosition=6
+**S&P Revises Outlook on Illinois' Credit Rating to Negative on Virus Concerns**\
+`Illinois became the first state to get a negative rating outlook in the wake of the coronavirus crisis, which will put the state's finances and economy under pressure, an S&P Global Ratings analyst said on Monday. `\
+https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-illinois-s-p.html?searchResultPosition=6
 
-**South Carolina Becomes Latest U.S. State to Issue 'Stay at Home' Orders**\
-`The governor of South Carolina on Monday ordered all residents of the state to remain at home except for visits with family members or essential outings to get groceries, medicine or exercise, to help slow the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-south-carolina.html?searchResultPosition=7
+**Despite Trump’s Optimism, Lack of Sports Could Extend Into the Fall**\
+`Public officials and sports leaders, worried events could wipe out gains made in the pandemic, are examining shortened seasons or not having them at all.`\
+https://nytimes.com/2020/04/06/sports/trump-sports-return-coronavirus.html?searchResultPosition=7
 
-**U.S. to Give Prosecutors More Leeway on Bail in Coronavirus Crisis**\
-`The United States on Monday gave federal prosecutors more leeway to keep people accused of non-violent crimes out of jail before their trials, saying the new coronavirus pandemic presents unique health risks that must be weighed in each case.`\
-https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-usa-prisons.html?searchResultPosition=8
+**U.S. Prosecutors Say Qatar and Russia Bribed FIFA Officials to Win World Cup Bids**\
+`For nearly a decade, Russia and Qatar have been suspected of buying votes to win hosting rights for the 2018 and 2022 World Cups. On Monday, for the first time, the Department of Justice put things in black and white.`\
+https://nytimes.com/2020/04/06/sports/soccer/qatar-and-russia-bribery-world-cup-fifa.html?searchResultPosition=8
 
-**Boeing Suspending 787 Production at South Carolina Plant**\
-`Boeing Co said on Monday it would suspend production of its 787 airplane at its facilities in South Carolina amid the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-boeing.html?searchResultPosition=9
+**Cantor Fitzgerald to Pay $3.2 Million to Settle Charges on Deficient 'Blue Sheet Data': U.S. SEC**\
+`The U.S. Securities and Exchange Commission said on Monday that Cantor Fitzgerald agreed to pay $3.2 million to settle charges it provided inaccurate and incomplete "blue sheet data" on securities trading.`\
+https://nytimes.com/reuters/2020/04/06/us/06reuters-sec-cantor-settlement.html?searchResultPosition=9
 
-**OPEC+ Likely to Agree to Cut Production if U.S. Joins Effort: Sources**\
-`Major oil producers including Saudi Arabia and Russia are likely to agree to cut production at a Thursday meeting but only if the United States joins the effort, aimed at coping with the disastrous effect of the coronavirus on fuel demand, three OPEC+ sources told Reuters on Monday. `\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-oil-opec-russia-saudi.html?searchResultPosition=10
+**Senior Administration Official Says Reports Small Business Loan System Crashed Are 'Not Accurate'**\
+`It is "not accurate" that banks were unable to submit small business relief loan applications after the Small Business Administration's portal crashed, according to a senior administration official.`\
+https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-banks-sba.html?searchResultPosition=10
 
