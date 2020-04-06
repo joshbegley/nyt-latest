@@ -1,5 +1,5 @@
 **Some Insurers Offer a Break for Drivers Stuck at Home**\
-`Allstate and American Family Insurance are pushing savings to customers automatically. Many others haven not. We asked.`\
+`Allstate and American Family Insurance are pushing savings to customers automatically. Many others have not. We asked.`\
 https://nytimes.com/2020/04/06/business/coronavirus-car-insurance.html?searchResultPosition=5
 
 **Despite Staggering Death Toll, N.Y. Outbreak Could Be Slowing**\
