@@ -1,24 +1,24 @@
-**Spain's Government Seeks to Consolidate Coronavirus Contagion Slowdown**\
-`Spain's government wants to consolidate the current rate of coronavirus contagion slowdown in Europe's second-worst hit country, Health Minister Salvador Illa said on Monday, as Spain enters its fourth week of confinement.`\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-spain-consolidation.html?searchResultPosition=5
+**GSK to Partner With Vir for Potential COVID-19 Treatments, Invest $250 Million**\
+`British drugmaker GlaxoSmithKline Plc will invest $250 million in Vir Biotechnology Inc and collaborate to develop potential treatments for COVID-19, the disease caused by the new coronavirus, the companies said on Monday.`\
+https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-gsk-vir.html?searchResultPosition=5
 
-**AP-NORC Poll: Americans Increasing Effort to Avoid Infection**\
-`Americans in overwhelming numbers are actively avoiding others as much as possible and taking additional steps to protect themselves from the coronavirus, according to a survey from The Associated Press-NORC Center for Public Affairs Research that shows how concerns about infection have grown sharply in the past six weeks.`\
-https://nytimes.com/aponline/2020/04/06/us/ap-us-ap-poll-virus-outbreak.html?searchResultPosition=6
+**Tracker Funds a Better Choice for Retail Investors: EU Watchdog**\
+`Retail investors are better off sticking with tracker funds than putting their cash with more expensive stock or bond pickers, the European Union's securities watchdog said on Monday in its latest report on fund performances.`\
+https://nytimes.com/reuters/2020/04/06/business/06reuters-eu-funds-regulator.html?searchResultPosition=6
 
-**Kansas City Police: Officer Accidentally Shot Neighbor**\
-`Kansas City police are investigating a shooting involving an off-duty officer who told investigators he shot his neighbor when his service weapon unintentionally fired.`\
-https://nytimes.com/aponline/2020/04/06/us/ap-us-officer-shoots-neighbor-1st-ld-writethru.html?searchResultPosition=7
+**Mormon Church to Open First Temple in Mainland China**\
+`The Utah-based Church of Jesus Christ of Latter-day Saints, also known as the Mormon church, plans to open its first temple in mainland China at a time when Beijing has been clamping down steadily on religious freedoms.`\
+https://nytimes.com/reuters/2020/04/06/world/asia/06reuters-china-religion.html?searchResultPosition=7
 
-**Romania Will Extend State of Emergency by 30 Days: President**\
-`Romania's government will extend its state of emergency by another 30 days after the current period ending next week, to help halt the spread of the new coronavirus, President Klaus Iohannis said on Monday.`\
-https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-romania.html?searchResultPosition=8
+**Nigeria Asking Multilateral Lenders to Fund Coronavirus Fight**\
+`Nigeria has requested a total of $6.9 billion from the International Monetary Fund (IMF), World Bank and African Development Bank (AfDB) to combat the impact of the novel coronavirus pandemic, the finance minister said on Monday.`\
+https://nytimes.com/reuters/2020/04/06/world/africa/06reuters-health-coronavirus-nigeria.html?searchResultPosition=8
 
-**Total Among Companies Seeking Force Majeure on EDF Contracts: Sources**\
-`Energy major Total is among several power suppliers that tried to declare force majeure on buying nuclear power from EDF, sources said, as the coronavirus outbreak has pushed prices in the French electricity market far below existing contracts.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-edf-nuclearpower.html?searchResultPosition=9
+**Dutch Confirmed Coronavirus Cases Rise by 5.3% to 18,803: Authorities**\
+`The number of confirmed cases of the new coronavirus in the Netherlands has risen by 952, or 5.3%, to 18,803, health authorities said, with 101 new deaths.`\
+https://nytimes.com/reuters/2020/04/06/world/europe/06reuters-health-coronavirus-netherlands-tally.html?searchResultPosition=9
 
-**Graphic: 'Sustainable' Funds a Safer Harbour in Coronavirus Market Meltdown**\
-`Funds focused on buying stocks that score well on environmental, social and governance-related metrics proved a safer harbour for investors during the coronavirus-fuelled market rout last month, Morningstar data shows.`\
-https://nytimes.com/reuters/2020/04/06/business/06reuters-health-coronavirus-funds-esg.html?searchResultPosition=10
+**AP-NORC Poll: Pandemic Impact Varies by Age, Income Level**\
+`Americans are increasingly taking preventative measures, including staying away from large crowds and avoiding touching their hands to their faces, to confront the coronavirus pandemic, according to a new poll from The Associated Press-NORC Center for Public Affairs Research.`\
+https://nytimes.com/aponline/2020/04/06/us/politics/ap-us-ap-poll-virus-outbreak-glance.html?searchResultPosition=10
 
