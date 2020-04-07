@@ -1,24 +1,24 @@
-**How to Edit Your Own Writing**\
-`Writing is hard, but don’t overlook the difficulty — and the importance — of editing your own work before letting others see it. Here’s how.`\
-https://nytimes.com/2020/04/07/smarter-living/how-to-edit-your-own-writing.html?searchResultPosition=5
+**North Korea Testing, Quarantining for COVID-19, Still Says No Cases: WHO Representative**\
+`North Korea, one of only a handful of countries not to have reported confirmed cases of COVID-19, has said that it continues testing and has more than 500 people in quarantine, the World Health Organization (WHO) told Reuters on Tuesday.`\
+https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-northkorea.html?searchResultPosition=5
 
-**Idelle Weber, Who Stretched the Meaning of Pop Art, Dies at 88**\
-`One of the few women involved in the Pop Art movement, she captured the anonymity of corporate life in silhouettes. She later turned to realism.`\
-https://nytimes.com/2020/04/07/arts/idelle-weber-dead.html?searchResultPosition=6
+**U.S. Regulators Delay Decision on Roche SMA Drug Risdiplam to Aug. 24**\
+`U.S. regulators delayed a decision on Roche's spinal muscular atrophy drug risdiplam, the Swiss drugmaker said on Tuesday, after the company submitted more data in February on the medicine against the genetic muscle-wasting disease.`\
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-roche-risdiplam.html?searchResultPosition=6
 
-**Anita Fial, Who Carried the Banner of Exotic Food, Dies at 87**\
-`Ms. Fial worked to burnish the reputation of mangoes, avocados, radishes and celery, among other produce.`\
-https://nytimes.com/2020/04/07/obituaries/anita-fial-dead-coronavirus.html?searchResultPosition=7
+**CDC Removes Unusual Guidance to Doctors About Drug Favored by Trump**\
+`The U.S. Centers for Disease Control and Prevention has removed from its website highly unusual guidance informing doctors on how to prescribe hydroxychloroquine and chloroquine, drugs recommended by President Donald Trump to treat the coronavirus.`\
+https://nytimes.com/reuters/2020/04/07/us/07reuters-health-coronavirus-usa-cdcguidance.html?searchResultPosition=7
 
-**Case Against Mexican Megachurch Leader Dismissed**\
-`The criminal case against a Mexican megachurch leader on charges of child rape and human trafficking was dismissed Tuesday by a California appeals court on procedural grounds.`\
-https://nytimes.com/aponline/2020/04/07/us/ap-us-mexican-church-leader-child-rapes.html?searchResultPosition=8
+**U.S. DEA Relaxes Production Limits on Controlled Drugs for COVID-19 Patients**\
+`The U.S. Drug Enforcement Administration said on Tuesday it was increasing production limits by 15% for certain controlled substance medicines that were in high demand due to the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/04/07/us/07reuters-health-coronavirus-dea.html?searchResultPosition=8
 
-**Their Grandmother Left by Ambulance. Then They Could Not Find Her.**\
-`“I believe she passed away,” said a relative who led the family’s increasingly frantic search. “But where?”`\
-https://nytimes.com/2020/04/07/nyregion/jamaica-hospital-queens-maria-correa-coronavirus.html?searchResultPosition=9
+**Coronavirus Patients, Families Exchange Virtual Kisses in Italy Hospital**\
+`It is just a kiss blown over a video call on a computer tablet to a loved one miles away.`\
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-italy-communication.html?searchResultPosition=9
 
-**Trump Takes Aim at Agency Watchdogs: 'Give Me the Name'**\
-`President Donald Trump is moving aggressively to challenge the authority and independence of agency watchdogs overseeing his administration, including removing the inspector general tasked with overseeing the $2.2 trillion coronavirus rescue package that passed Congress with bipartisan support. `\
-https://nytimes.com/aponline/2020/04/07/us/politics/ap-us-virus-outbreak-inspectors-general.html?searchResultPosition=10
+**U.S. Appeals Court Allows Abortion Curbs in Texas During Coronavirus Outbreak**\
+`A U.S. appeals court on Tuesday ruled that Texas can enforce limits on the ability of women to obtain abortions as part of the state's policy requiring postponement of non-urgent medical procedures during the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/07/us/07reuters-health-coronavirus-usa-abortion.html?searchResultPosition=10
 
