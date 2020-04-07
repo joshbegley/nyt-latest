@@ -1,24 +1,24 @@
+**Judy Drucker, Who Brought Miami Top-Notch Music, Dies at 91**\
+`She presented musicians, opera singers and dancers. “I don’t think of Judy as” an impresario, Itzhak Perlman said. “I think of her as a friend.”`\
+https://nytimes.com/2020/04/07/arts/music/judy-drucker-dies.html?searchResultPosition=5
+
+**Venezuelan Doctors Languish in Fuel Lines Amid Coronavirus Pandemic**\
+`Venezuela's acute fuel shortages are leaving medical professionals stuck in gas lines or struggling to reach their place of work just as the coronavirus outbreak threatens to overwhelm the crisis-stricken country's battered health system.`\
+https://nytimes.com/reuters/2020/04/07/world/americas/07reuters-health-coronavirus-venezuela-fuel.html?searchResultPosition=6
+
+**Qatar Says It's Working to Protect Laborers From Coronavirus**\
+`The Qatari government said Tuesday it has implemented widespread measures to protect immigrant workers from the coronavirus, after a German documentary highlighted that ongoing construction of World Cup infrastructure raised the risk of infections. `\
+https://nytimes.com/aponline/2020/04/07/sports/soccer/ap-soc-virus-outbreak-qatar.html?searchResultPosition=7
+
+**Golf: Immelman Says Masters in November Presents New Challenge**\
+`Trevor Immelman may not be putting the finishing touches on his Masters preparations this week but the former champion already has a good understanding of what to expect should the postponed tournament be contested in November.`\
+https://nytimes.com/reuters/2020/04/07/sports/golf/07reuters-golf-masters-immelman.html?searchResultPosition=8
+
 **Rulings on Wisconsin Election Raise Questions About Judicial Partisanship**\
 `Some legal scholars said the decisions by the state and U.S. supreme courts could undermine confidence in the rule of law. Others said they were the product of judicial philosophy, not partisanship.`\
-https://nytimes.com/2020/04/07/us/politics/wisconsin-elections-supreme-court.html?searchResultPosition=5
+https://nytimes.com/2020/04/07/us/politics/wisconsin-elections-supreme-court.html?searchResultPosition=9
 
 **Yves Tumor Redefines Rock Stardom, Body on the Line**\
 `The musician known for a constantly shifting sound moves a little closer to standard pop on the new album “Heaven to a Tortured Mind,” but remains a master of anarchic energy.`\
-https://nytimes.com/2020/04/07/arts/music/yves-tumor-heaven-to-a-tortured-mind.html?searchResultPosition=6
-
-**How Major US Stock Indexes Fared Tuesday**\
-`Stocks closed modestly lower Tuesday on Wall Street after a rally faded in the last few minutes of trading following a sudden drop in the price of crude oil. `\
-https://nytimes.com/aponline/2020/04/07/business/ap-financial-markets-box.html?searchResultPosition=7
-
-**Wuhan Re-Opens After Coronavirus Lockdown**\
-`Wuhan, China, had been sealed off since late January in an effort to limit the coronavirus outbreak’s spread. The city’s recovery could dictate how other places move forward.`\
-https://nytimes.com/video/world/asia/100000007076068/wuhan-china-coronavirus.html?searchResultPosition=8
-
-**S&P Joins Fitch, Moody's in Downgrading Argentina Amid Coronavirus Crisis**\
-`S&P Global Ratings downgraded Argentina on Tuesday, marking the third agency to knock down its sovereign credit rating in less than a week as the coronavirus crisis further complicates the economic outlook of the indebted South American nation. `\
-https://nytimes.com/reuters/2020/04/07/world/americas/07reuters-argentina-ratings.html?searchResultPosition=9
-
-**China Willing to Work Bilaterally With Low-Income Countries on Debt Challenges: Chinese Official**\
-`China, a major creditor, is willing to work on a bilateral basis with low-income countries facing economic challenges due to the COVID-19 pandemic, including the possibility of delaying some debt service payments, a Chinese official told Reuters.`\
-https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-china-debt.html?searchResultPosition=10
+https://nytimes.com/2020/04/07/arts/music/yves-tumor-heaven-to-a-tortured-mind.html?searchResultPosition=10
 
