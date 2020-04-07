@@ -1,24 +1,24 @@
-**German Industry Output Up 0.3% in February-Before Corona Impact**\
-`German industry output rose by 0.3% in February, surpassing economists' expectations, but the figures reflect the period shortly before the coronavirus pandemic started to majorly affect Europe's largest economy.`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-germany-economy-output.html?searchResultPosition=5
+**China Must Step Up on Africa Debt Relief: Ghana Finance Minister**\
+`China must do more to help ease the debt burden of African countries facing economic calamity as a result of the coronavirus pandemic, Ghana's finance minister said.`\
+https://nytimes.com/reuters/2020/04/07/world/africa/07reuters-health-coronavirus-africa-debt.html?searchResultPosition=5
 
-**Cineworld Closes All Cinemas in 10 Countries Due to Coronavirus**\
-`British cinema operator Cineworld said on Tuesday all its 787 cinemas across 10 countries have been shut due to the coronavirus pandemic and that it was in talks with its lenders for ongoing liquidity requirements.   `\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-cineworld.html?searchResultPosition=6
+**Will Coronavirus Freeze the Search for Dark Matter?**\
+`An experiment under 4,600 feet of Italian rock wasn’t immune from the pandemic’s interruption.`\
+https://nytimes.com/2020/04/07/science/dark-matter-elena-aprile-coronavirus.html?searchResultPosition=6
 
-**Late Night Wants Trump to Cover Up His Face**\
-`Trevor Noah joked Monday that President Trump will follow C.D.C. guidelines only if aides tell him a mask is “a border wall for your face.”`\
-https://nytimes.com/2020/04/07/arts/television/late-night-trump-mask-coronavirus.html?searchResultPosition=7
+**France's ADP Loses 3 Million Euros a Day in Sales Due to Coronavirus-CEO**\
+`French airports operator ADP is losing more than 3 million euros  ($3.25 million) in sales a day due to the coronavirus crisis, Chief Executive Augustin de Romanet said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-france-adp.html?searchResultPosition=7
 
-**AP Was There: Snead Tops Hogan in Playoff to Win '54 Masters**\
-`A survey of 15 golf writers voted on the top five Masters in history. They are being republished this week because the Masters has been postponed due to the coronavirus pandemic. The 1954 Masters was voted No. 6. The following story moved on April 12, 1954.`\
-https://nytimes.com/aponline/2020/04/07/sports/golf/ap-glf-ap-was-there-1954-masters.html?searchResultPosition=8
+**Sport: On This Day: Born April 8, 1912: Sonja Henie, Norwegian Figure Skater**\
+`Oslo's shock April snowfall of 1912 is remembered as one of the city's more memorable events of the last century, but it pales in comparison to the emergence of Sonja Henie, the precocious figure-skater who went on to become a hugely successful Hollywood movie star and performer, in its wake.`\
+https://nytimes.com/reuters/2020/04/07/sports/olympics/07reuters-sport-anniversary-henie.html?searchResultPosition=8
 
-**Asian Companies Pose Lower Dividend Risk Due to Stronger Finances**\
-`Asian firms appear better equipped to pay stable dividends compared with their western counterparts that are constrained by highly levered balance-sheets and a need to preserve cash during the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-asia-markets-dividends-graphic.html?searchResultPosition=9
+**Superfund, Meet Super Plants**\
+`Can the plant microbiome help clean up contaminated land?`\
+https://nytimes.com/2020/04/07/science/superfund-plant-microbiome.html?searchResultPosition=9
 
-**Factbox: Latest on the Spread of the Coronavirus Around the World**\
-`European nations including hard-hit Italy and Spain have started looking ahead to easing coronavirus lockdowns after steady falls in fatality rates, as the United States prepared on Monday for what one official called "peak death week".`\
-https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-latest-factbox.html?searchResultPosition=10
+**How’s the View From a Spinning Star?**\
+`Stargazing is fun. Now try it at 43,000 miles per hour.`\
+https://nytimes.com/2020/04/07/science/pulsar-xkcd-munroe-stars.html?searchResultPosition=10
 
