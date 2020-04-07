@@ -1,24 +1,24 @@
+**In a First, China Knocks U.S. From Top Spot in Global Patent Race**\
+`China was the biggest source of applications for international patents in the world last year, pushing the United States out of the top spot it has held since the global system was set up more than 40 years ago, the U.N. patent agency said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/07/arts/07reuters-usa-china-patents.html?searchResultPosition=5
+
+**France's Macron to Address Nation on Thursday on Coronavirus Crisis: French Radio**\
+`French President Emmanuel Macron will address the nation regarding the new coronavirus situation on Thursday evening, French Europe 1 radio reported on Tuesday.`\
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-france-macron.html?searchResultPosition=6
+
+**To Fight Coronavirus, U.K. Asked for Some Volunteers. It Got an Army.**\
+`More than 750,000 people are pitching in to help older and more vulnerable Britons, helping dispel the discord of the Brexit era.`\
+https://nytimes.com/2020/04/07/world/europe/coronavirus-volunteers-uk.html?searchResultPosition=7
+
+**Coronavirus Crisis Spells Trouble for Many Egyptian Breadwinners**\
+`Squatting with other day labourers under a bridge in Cairo, 48-year-old Yasser Nagi says he has waited in vain for two weeks for work on a construction site so he can feed his family.`\
+https://nytimes.com/reuters/2020/04/07/world/africa/07reuters-health-coronavirus-egypt-economy.html?searchResultPosition=8
+
+**UK PM Johnson Stable Overnight and in Good Spirits: Spokesman**\
+`British prime minister Boris Johnson was stable overnight in intensive care after suffering a deterioration of his COVID-19 symptoms and he remains in good spirits, his spokesman said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-johnson-stable.html?searchResultPosition=9
+
 **Switzerland Working on Scenarios for Progressive Confinement Easing: President**\
 `Switzerland's president said on Tuesday that the government was working on different scenarios for easing confinement measures in the country "when the time comes" but that the situation was "still very far from normal".`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-heath-coronavirus-switzerland-president.html?searchResultPosition=5
-
-**Wisconsin Primary Election: What to Watch For**\
-`The state is the first to hold a major election with in-person voting since stay-at-home orders were widely instituted because of the coronavirus.`\
-https://nytimes.com/2020/04/07/us/politics/wisconsin-primary-election.html?searchResultPosition=6
-
-**Coronavirus Lockdown Is Nothing New for Some Moscow Residents**\
-`For some elderly Moscow residents, the coronavirus lockdown has a familiar feel - they lived through something like it during a dramatic Soviet-era smallpox outbreak six decades ago.`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-moscow-smallpox.html?searchResultPosition=7
-
-**Honda Furloughs U.S. Workers Until May 1 as Coronavirus Suspends Operations**\
-`Honda Motor Co on Tuesday said that it had furloughed workers at its U.S. plants which will be closed until May 1 as demand for cars in the country has plummeted due to the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-honda.html?searchResultPosition=8
-
-**Taiwan Tells Agencies Not to Use Zoom on Security Grounds**\
-`Taiwan's cabinet has told government agencies to stop using Zoom Video Communications Inc's conferencing app, the latest blow to the company as it battles criticism of its booming platform over privacy and security. `\
-https://nytimes.com/reuters/2020/04/07/technology/07reuters-zoom-video-commn-privacy-taiwan.html?searchResultPosition=9
-
-**New Research Links Air Pollution to Higher Coronavirus Death Rates**\
-`A nationwide study has found that counties with even slightly higher levels of long-term air pollution are seeing far larger numbers of Covid-19 deaths.`\
-https://nytimes.com/2020/04/07/climate/air-pollution-coronavirus-covid.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-heath-coronavirus-switzerland-president.html?searchResultPosition=10
 
