@@ -1,24 +1,24 @@
-**Bosnian Band Cheers Up Fans With Weekly Online 'Quarantine Show'**\
-`Bosnia's most popular band, Dubioza Kolektiv, invites its audience to "stay connected and disinfected" during a weekly "Quarantine Show" online to cheer up fans locked in their homes due to the coronavirus.`\
-https://nytimes.com/reuters/2020/04/07/arts/07reuters-health-coronavirus-bosnia-entertainment.html?searchResultPosition=5
+**Turkey Orders All Citizens to Wear Masks as Infections Rise**\
+`Resisting a total lockdown, Turkey has introduced gradual restrictions but sought to keep industry and construction working.`\
+https://nytimes.com/2020/04/07/world/europe/turkey-virus-erdogan-masks.html?searchResultPosition=5
 
-**Ukraine Lawmakers Flood Banking Bill Needed for IMF Deal With Thousands of Amendments**\
-`Ukrainian lawmakers have proposed thousands of amendments to banking legislation required by the International Monetary Fund, threatening to derail an $8 billion IMF aid package needed to fight the economic fall-out from the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-ukraine-politics-economy.html?searchResultPosition=6
+**Motor Racing: Canadian Grand Prix Postponed Due to New Coronavirus**\
+`The June 14 Canadian Formula One Grand Prix in Montreal has been postponed due to the new coronavirus, the local promoter said in a statement on Tuesday.`\
+https://nytimes.com/reuters/2020/04/07/sports/autoracing/07reuters-health-coronavirus-f1-canada.html?searchResultPosition=6
 
-**UK Will Share More Legal Texts With EU Shortly: Brexit Trade Deal Negotiator**\
-`Britain remains in touch with the European Union over negotiations for a trade deal and will share further legal texts with the bloc shortly, the country's Brexit negotiator David Frost said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-britain-brexit.html?searchResultPosition=7
+**Robots Replace Japanese Students at Graduation Amid Coronavirus**\
+`Spring graduation ceremonies in Japan have been cancelled because of the coronavirus pandemic, but students at one school were able to attend remotely by controlling avatar robots while logged on at home.`\
+https://nytimes.com/reuters/2020/04/07/technology/07reuters-health-coronavirus-japan-remote-graduation.html?searchResultPosition=7
 
-**Red Sox Ace Sale Confident He'll Be Strong After Tommy John**\
-`Red Sox left-hander Chris Sale says he has no regrets about the timing of his recent Tommy John surgery and is confident he can return as a stronger pitcher following his yearlong rehab. `\
-https://nytimes.com/aponline/2020/04/07/sports/baseball/ap-bba-red-sox-sale.html?searchResultPosition=8
+**Pelosi Says U.S. Administration Wants More Funds for Coronavirus Relief: CNN**\
+`U.S. House Speaker Nancy Pelosi said Treasury Secretary Steven Mnuchin called her to ask Congress for more money to help small businesses hobbled by the coronavirus pandemic, and said she agreed an existing program for small businesses "really needs money right away, because of the demand." `\
+https://nytimes.com/reuters/2020/04/07/us/politics/07reuters-health-coronavirus-usa-pelosi.html?searchResultPosition=8
 
-**Your Wednesday Briefing**\
-`Wuhan, Boris Johnson, Japan’s virus emergency: Here’s what you need to know.`\
-https://nytimes.com/2020/04/07/briefing/wuhan-japan-emergency-boris-johnson.html?searchResultPosition=9
+**Video Service Zoom Taking Security Seriously: U.S. Government Memo**\
+`Video conferencing company Zoom has been responsive to concerns over its software, the U.S. Department of Homeland Security (DHS) said in a memo recently distributed to top government cybersecurity officials and seen by Reuters.`\
+https://nytimes.com/reuters/2020/04/07/technology/07reuters-zoom-video-commn-privacy.html?searchResultPosition=9
 
-**Earl Graves Sr., Founder of Black Enterprise Magazine, Dies**\
-`Earl Graves Sr., who championed black businesses as the founder of the first African American-owned magazine focusing on black entrepreneurs, has died. He was 85. `\
-https://nytimes.com/aponline/2020/04/07/business/ap-us-obit-earl-graves-sr.html?searchResultPosition=10
+**Lessons From the Plagues, Painted for Passover**\
+`The artist Zoya Cherkassky evokes Jewish life in the shtetl in her new virtual exhibition.`\
+https://nytimes.com/2020/04/07/arts/design/zoya-cherkassky-coronavirus.html?searchResultPosition=10
 
