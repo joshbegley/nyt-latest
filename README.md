@@ -1,24 +1,24 @@
+**Coronavirus Pandemic Breeds Washington Lobbying Boom**\
+`The coronavirus pandemic has gut-punched global markets, put 6.6 million Americans out of work and raised the strong likelihood of a recession. But in the Washington lobbying world, business is booming. `\
+https://nytimes.com/aponline/2020/04/07/business/bc-us-virus-outbreak-lobbying.html?searchResultPosition=5
+
+**Quinn the Quarantine Fox Wants You to Be Safe at Home**\
+`The United States Consumer Product Safety Commission created a coronavirus mascot to help prevent additional emergency room trips.`\
+https://nytimes.com/2020/04/07/style/quinn-quarantine-fox-us-consumer-product-safety-commission-coronavirus.html?searchResultPosition=6
+
+**One Summer Theater May Be Dark, but Shows Will Go On, via Audio**\
+`Bobby Cannavale, Carla Gugino and Audra McDonald will still perform for the Williamstown Theater Festival this summer, but their shows will be on Audible, not onstage.`\
+https://nytimes.com/2020/04/07/theater/coronavirus-williamstown-audible.html?searchResultPosition=7
+
 **Turkey Orders All Citizens to Wear Masks as Infections Rise**\
 `Resisting a total lockdown, Turkey has introduced gradual restrictions but sought to keep industry and construction working.`\
-https://nytimes.com/2020/04/07/world/europe/turkey-virus-erdogan-masks.html?searchResultPosition=5
+https://nytimes.com/2020/04/07/world/europe/turkey-virus-erdogan-masks.html?searchResultPosition=8
 
 **Motor Racing: Canadian Grand Prix Postponed Due to New Coronavirus**\
 `The June 14 Canadian Formula One Grand Prix in Montreal has been postponed due to the new coronavirus, the local promoter said in a statement on Tuesday.`\
-https://nytimes.com/reuters/2020/04/07/sports/autoracing/07reuters-health-coronavirus-f1-canada.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/04/07/sports/autoracing/07reuters-health-coronavirus-f1-canada.html?searchResultPosition=9
 
 **Robots Replace Japanese Students at Graduation Amid Coronavirus**\
 `Spring graduation ceremonies in Japan have been cancelled because of the coronavirus pandemic, but students at one school were able to attend remotely by controlling avatar robots while logged on at home.`\
-https://nytimes.com/reuters/2020/04/07/technology/07reuters-health-coronavirus-japan-remote-graduation.html?searchResultPosition=7
-
-**Pelosi Says U.S. Administration Wants More Funds for Coronavirus Relief: CNN**\
-`U.S. House Speaker Nancy Pelosi said Treasury Secretary Steven Mnuchin called her to ask Congress for more money to help small businesses hobbled by the coronavirus pandemic, and said she agreed an existing program for small businesses "really needs money right away, because of the demand." `\
-https://nytimes.com/reuters/2020/04/07/us/politics/07reuters-health-coronavirus-usa-pelosi.html?searchResultPosition=8
-
-**Video Service Zoom Taking Security Seriously: U.S. Government Memo**\
-`Video conferencing company Zoom has been responsive to concerns over its software, the U.S. Department of Homeland Security (DHS) said in a memo recently distributed to top government cybersecurity officials and seen by Reuters.`\
-https://nytimes.com/reuters/2020/04/07/technology/07reuters-zoom-video-commn-privacy.html?searchResultPosition=9
-
-**Lessons From the Plagues, Painted for Passover**\
-`The artist Zoya Cherkassky evokes Jewish life in the shtetl in her new virtual exhibition.`\
-https://nytimes.com/2020/04/07/arts/design/zoya-cherkassky-coronavirus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/07/technology/07reuters-health-coronavirus-japan-remote-graduation.html?searchResultPosition=10
 
