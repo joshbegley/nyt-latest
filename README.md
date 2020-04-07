@@ -1,24 +1,24 @@
-**Doping: Testing Gap Due to Coronavirus a 'Gift' to Cheats: Race Walker Bosworth**\
-`Reduced drug testing during the COVID-19 pandemic is like a "gift" for those unscrupulous athletes who will go to any lengths to win and make money, British race walker Tom Bosworth has told The Times newspaper.`\
-https://nytimes.com/reuters/2020/04/07/sports/olympics/07reuters-health-coronavirus-doping-bosworth.html?searchResultPosition=5
+**Britain's Supermarkets Wrestle With Coronavirus Demand Conundrum**\
+`Britain's big supermarkets fear they won't be able to supply the country's 60 million people without longer opening hours or a relaxation of social distancing rules introduced to curb the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-britain-supermarkets.html?searchResultPosition=5
 
-**British Virus Crisis Deepens, While New York Sees Positives**\
-`British Prime Minister Boris Johnson remained in intensive care Tuesday for treatment of his coronavirus illness, while authorities in New York hoped that a leveling off of deaths and new hospitalizations would hold and signal that the epicenter of the U.S. outbreak had turned a corner.`\
-https://nytimes.com/aponline/2020/04/07/business/ap-virus-outbreak.html?searchResultPosition=6
+**Wimbledon Champion Halep Is Pain-Free From Foot Injury**\
+`Wimbledon champion Simona Halep is recovering well from a foot injury she suffered in February and is able to run without pain, the former world number one has said.`\
+https://nytimes.com/reuters/2020/04/07/sports/tennis/07reuters-health-coronavirus-tennis-halep.html?searchResultPosition=6
 
-**Singapore Central Bank to Adjust Banks' Capital Requirements**\
-`SINGAPORE (Reuters - Singapore's central bank will adjust selected regulatory requirements and supervisory programs to enable financial institutions to focus on tackling issues stemming from the coronavirus pandemic, it said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-singapore-banks.html?searchResultPosition=7
+**Lives Lost: A Mismatched Pair's Love Story Ends With Virus**\
+`He was a by-the-book, buttoned-up conservative whose opinions could be quick and blunt. She was a free-thinking, authority-snubbing liberal who would draw stories out in meandering conversation.`\
+https://nytimes.com/aponline/2020/04/07/us/ap-us-virus-outbreak-lives-lost-opposites-attract.html?searchResultPosition=7
 
-**China's Ucar, in Which Luckin Chairman Is Top Shareholder, Halts Shares**\
-`China's Ucar Inc, in which Luckin Coffee Chairman Charles Zhengyao Lu is the biggest shareholder, suspended trading of its shares on Tuesday after regulators questioned the car service provider about how the alleged fraud at Luckin would impact it.`\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-luckin-investigation-ucar-shares.html?searchResultPosition=8
+**UK PM Johnson in Intensive Care With Worsening Coronavirus Symptoms**\
+`British Prime Minister Boris Johnson was fighting worsening coronavirus symptoms in an intensive care unit on Tuesday, leaving his foreign minister to lead the government's response to the accelerating outbreak.`\
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-britain.html?searchResultPosition=8
 
-**No Decision on Resuming Play Before May, Says NBA Commissioner Silver**\
-`NBA Commissioner Adam Silver said on Monday there will be no decision on ending the league's coronavirus shutdown until May at the earliest.`\
-https://nytimes.com/reuters/2020/04/07/sports/basketball/07reuters-health-coronavirus-basketball-nba.html?searchResultPosition=9
+**Italy Is Sending Another Warning**\
+`This is what a country a month into lockdown looks like: desperate, hungry and scared.`\
+https://nytimes.com/2020/04/07/opinion/italy-coronavirus-naples.html?searchResultPosition=9
 
-**China’s Big Developers Shrug Off Short-Term Virus Impact to Splurge on Land**\
-`China's top developers are prising open their war chests to snap up land this year as local governments sell more prime real estate to boost revenues and smaller, distressed property firms look to offload assets as the coronavirus takes a toll.  `\
-https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-china-property-land.html?searchResultPosition=10
+**What’s on TV Tuesday: ‘Schitt’s Creek’ and ‘What You Gonna Do’**\
+`Say goodbye to the beloved Rose family, or watch a poignant portrait of African-American life in the South.`\
+https://nytimes.com/2020/04/07/arts/television/whats-on-tv-tuesday-schitts-creek-and-what-you-gonna-do.html?searchResultPosition=10
 
