@@ -1,24 +1,24 @@
-**From Filmmaker to Medicine Courier: Volunteers Helped Wuhan's Virus Fight**\
-`While most people in the Chinese city of Wuhan were hunkered down in their homes at the height of the country's coronavirus outbreak, Lin Wenhua was out on the empty streets in his car, driving toward the next person or task on his list. `\
-https://nytimes.com/reuters/2020/04/06/world/asia/06reuters-health-coronavirus-china-volunteer.html?searchResultPosition=5
+**Australian Job Ads Slide 10.3% in March Amid Virus Shutdown**\
+`Australian job advertisements suffered their largest drop in more than a decade in March as strict social distancing rules and business closures to combat the coronavirus curbed demand for labour.`\
+https://nytimes.com/reuters/2020/04/06/world/asia/06reuters-australia-economy-vacancies.html?searchResultPosition=5
 
-**Our Best Passover Recipes**\
-`Here are all of the recipes you need for your Passover feast.`\
-https://nytimes.com/article/passover-recipes.html?searchResultPosition=6
+**Silver: No NBA Decision Until at Least May**\
+`The NBA doesn't expect to have a decision about the status of the 2019-20 season -- currently suspended due to the coronavirus pandemic -- until at least May, commissioner Adam Silver said Monday.`\
+https://nytimes.com/reuters/2020/04/06/sports/basketball/06reuters-basketball-nba-silver.html?searchResultPosition=6
 
-**Mainland China Reports 32 New Confirmed Cases of Coronavirus**\
-`Mainland China reported 32 new confirmed cases of the coronavirus, down from 39 cases a day earlier, the National Health Commission said on Tuesday. `\
-https://nytimes.com/reuters/2020/04/06/world/asia/06reuters-health-coronavirus-china-toll.html?searchResultPosition=7
+**USGA Considered December U.S. Open at Riviera**\
+`Before the U.S. Golf Association settled on a September date for the rescheduled U.S. Open at Winged Foot in Mamaroneck, N.Y., a backup plan to hold the major event at Riviera Country Club near Los Angeles in December was considered. A USGA executive told Golfweek on Monday of the maneuverings.`\
+https://nytimes.com/reuters/2020/04/06/sports/06reuters-golf-pga-usopen-riviera.html?searchResultPosition=7
 
-**Shark Kills Australian Wildlife Worker on Great Barrier Reef**\
-`A shark fatally mauled a young Australian wildlife worker on the Great Barrier Reef, officials said Tuesday.`\
-https://nytimes.com/aponline/2020/04/06/world/asia/ap-as-australia-shark-death.html?searchResultPosition=8
+**Sheriff: Louisiana Man Kills Kidnapped Woman After Escape**\
+`A Louisiana man turned himself in Monday after police said he kidnapped a woman and later fatally shot her in the head when she escaped, authorities said. `\
+https://nytimes.com/aponline/2020/04/06/us/ap-us-abducted-mother-killed.html?searchResultPosition=8
 
-**Chad’s Ex-president, Sentenced to Life, Given Temporary Reprieve From Prison**\
-`Hissène Habré, the former president of Chad who was convicted of crimes against humanity, was freed from his prison cell for 60 days for humanitarian reasons.`\
-https://nytimes.com/2020/04/06/world/africa/Hissene-Habre-chad-senegal.html?searchResultPosition=9
+**In Korea, Watching ‘Tiger King’ and Training for Baseball Alone**\
+`Foreign players in the Korean Baseball Organization who went home during the peak of South Korea’s outbreak are self-isolating as the league aims to resume exhibitions later this month.`\
+https://nytimes.com/2020/04/06/sports/baseball/kbo-baseball-coronavirus.html?searchResultPosition=9
 
-**Trump’s Aggressive Advocacy of Malaria Drug for Treating Coronavirus Divides Medical Community**\
-`While Dr. Anthony Fauci has urged caution in using hydroxychloroquine, some doctors are prescribing it to patients who have the virus despite the fact it has never been tested for it.`\
-https://nytimes.com/2020/04/06/us/politics/coronavirus-trump-malaria-drug.html?searchResultPosition=10
+**Acting U.S. Navy Secretary Apologizes to Carrier Commander After Rebuke**\
+`Acting U.S. Navy Secretary Thomas Modly issued an apology on Monday to the former commander of a coronavirus-stricken aircraft carrier after sharply criticizing him in a speech to his crew, just days after firing him.`\
+https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-usa-navy-apology.html?searchResultPosition=10
 
