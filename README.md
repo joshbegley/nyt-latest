@@ -1,24 +1,24 @@
-**Venezuela's Opposition-Held Congress to Probe Rosneft Asset Sale**\
-`Venezuela's opposition-controlled National Assembly on Tuesday opened an investigation into Rosneft's sale of its assets in the country to another unnamed Russian state company.`\
-https://nytimes.com/reuters/2020/04/07/world/americas/07reuters-venezuela-oil-rosneft.html?searchResultPosition=5
+**Yves Tumor Redefines Rock Stardom, Body on the Line**\
+`The musician known for a constantly shifting sound moves a little closer to standard pop on the new album “Heaven to a Tortured Mind,” but remains a master of anarchic energy.`\
+https://nytimes.com/2020/04/07/arts/music/yves-tumor-heaven-to-a-tortured-mind.html?searchResultPosition=5
 
-**Small Business Aid Program Stretches Agency to Its Limits**\
-`The Small Business Administration is not equipped to handle the demand for emergency loans. It is trying to fix aging systems, but the delays are rattling banks and small businesses.`\
-https://nytimes.com/2020/04/07/business/coronavirus-ppp-small-business-aid.html?searchResultPosition=6
+**How Major US Stock Indexes Fared Tuesday**\
+`Stocks closed modestly lower Tuesday on Wall Street after a rally faded in the last few minutes of trading following a sudden drop in the price of crude oil. `\
+https://nytimes.com/aponline/2020/04/07/business/ap-financial-markets-box.html?searchResultPosition=6
 
-**Acting Navy Secretary Offers to Resign Over Handling of Carrier Crisis**\
-`Acting U.S. Navy Secretary Thomas Modly has offered his resignation after coming under fire for his handling of a crisis involving the captain of a coronavirus-stricken aircraft carrier, a U.S. official and a congresssional aide told Reuters on Tuesday, speaking on condition of anonymity.`\
-https://nytimes.com/reuters/2020/04/07/us/politics/07reuters-health-coronavirus-usa-navy-resigns.html?searchResultPosition=7
+**Wuhan Re-Opens After Coronavirus Lockdown**\
+`Wuhan, China, had been sealed off since late January in an effort to limit the coronavirus outbreak’s spread. The city’s recovery could dictate how other places move forward.`\
+https://nytimes.com/video/world/asia/100000007076068/wuhan-china-coronavirus.html?searchResultPosition=7
 
-**U.S. Deports 400 Migrant Children Under New Coronavirus Rules**\
-`U.S. immigration officials have rapidly deported nearly 400 migrant children intercepted at the U.S.-Mexico border in the past two weeks under new rules billed as seeking to limit the spread of the novel coronavirus in the United States, according to government data seen by Reuters.`\
-https://nytimes.com/reuters/2020/04/07/world/americas/07reuters-health-coronavirus-usa-deportations.html?searchResultPosition=8
+**S&P Joins Fitch, Moody's in Downgrading Argentina Amid Coronavirus Crisis**\
+`S&P Global Ratings downgraded Argentina on Tuesday, marking the third agency to knock down its sovereign credit rating in less than a week as the coronavirus crisis further complicates the economic outlook of the indebted South American nation. `\
+https://nytimes.com/reuters/2020/04/07/world/americas/07reuters-argentina-ratings.html?searchResultPosition=8
 
-**Acting U.S. Navy Secretary Offers to Resign Over Handling of Coronavirus-Hit Carrier**\
-`Acting U.S. Navy Secretary Thomas Modly has offered his resignation following criticism of his handling of a crisis involving the captain of a coronavirus-stricken aircraft carrier, two U.S. officials and a congressional aide told Reuters on Tuesday, speaking on condition of anonymity.`\
-https://nytimes.com/reuters/2020/04/07/us/politics/07reuters-health-coronavirus-usa-navy.html?searchResultPosition=9
+**China Willing to Work Bilaterally With Low-Income Countries on Debt Challenges: Chinese Official**\
+`China, a major creditor, is willing to work on a bilateral basis with low-income countries facing economic challenges due to the COVID-19 pandemic, including the possibility of delaying some debt service payments, a Chinese official told Reuters.`\
+https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-china-debt.html?searchResultPosition=9
 
-**Drive-In Churches an Option for Faithful Who Want Closeness**\
-`As the morning sun melts the last traces of snow in the surrounding farmland, the faithful, gathered to celebrate Christianity’s holiest week, cheerfully honk out their hallelujahs and peace greetings.`\
-https://nytimes.com/aponline/2020/04/07/world/ap-virus-outbreak-drive-in-church.html?searchResultPosition=10
+**U.S. Lawmakers Introduce Bill to Fund Oil Purchase for Emergency Reserve**\
+`A bipartisan group of U.S. lawmakers introduced a bill on Tuesday providing $3 billion to buy oil for the national emergency reserve as a way to help energy companies hit by the plunge in crude prices. `\
+https://nytimes.com/reuters/2020/04/07/us/politics/07reuters-global-oil-usa-reserve.html?searchResultPosition=10
 
