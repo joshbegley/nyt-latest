@@ -1,5 +1,5 @@
 **Their Grandmother Left by Ambulance. Then They Could Not Find Her.**\
-`A woman from Queens with coronavirus symptoms was taken by an emergency medical crew to a hospital. It took a week for the family to find out where she was.`\
+`“I believe she passed away,” said a relative who led the family’s increasingly frantic search. “But where?”`\
 https://nytimes.com/2020/04/07/nyregion/jamaica-hospital-queens-maria-correa-coronavirus.html?searchResultPosition=5
 
 **Trump Takes Aim at Agency Watchdogs: 'Give Me the Name'**\
