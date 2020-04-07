@@ -1,24 +1,24 @@
-**Venezuelan Migrants Quarantined in Crowded Shelters as They Return Home**\
-`By Anggy Polanco and Vivian Sequera`\
-https://nytimes.com/reuters/2020/04/07/world/americas/07reuters-health-coronavirus-venezuela-migrants.html?searchResultPosition=5
+**Small U.S. Businesses Were Already Struggling. Then Coronavirus Hit**\
+`Many small businesses were struggling with funding shortfalls and financial challenges even before the coronavirus pandemic hit, leaving them with little cash on hand to weather the slowdown caused by the virus, according to data released by the Federal Reserve on Tuesday. `\
+https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-fed-small-business.html?searchResultPosition=5
 
-**Investors Await Data on Coronavirus Drugs as Market Rally Builds**\
-`Clinical data on potential treatments for the new coronavirus could help sustain a market bounce that has buoyed stocks after last month's plunge, as investors look for signs that authorities may be able to stabilize the pandemic. `\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-treatments-stocks.html?searchResultPosition=6
+**U.S. SEC Issues Compliance Focus Areas for Brokers Before New Rules Take Effect**\
+`The head of the examination office at the U.S. Securities and Exchange Commission (SEC) on Tuesday published details about the expected scope and content for compliance with a new rule requiring broker-dealers and investment advisers to disclose potential conflicts of interest.`\
+https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-sec-brokers.html?searchResultPosition=6
 
-**Tunisia Seeks Donations to Fund Coronavirus Facilities**\
-`Tunisia on Tuesday asked for donations to fund 250 intensive care beds to be placed in a sports hall in the capital as it tries to ramp up medical facilities in response to the coronavirus. `\
-https://nytimes.com/reuters/2020/04/07/world/africa/07reuters-health-coronavirus-tunisia.html?searchResultPosition=7
+**Jobless Americans to See Extra Payments as Soon as This Week**\
+`Americans who have lost their jobs due to the new coronavirus will start getting enhanced jobless benefits as soon as this week as states deploy hundreds of billions of dollars in federal aid, state officials said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-usa-unemployment.html?searchResultPosition=7
 
-**Priest Takes 'Drive-In' Confessions as Coronavirus Spreads in Poland**\
-`A priest in Poland has started taking confession from the faithful in the parking lot of his church in the Polish capital Warsaw, as the coronavirus pandemic disrupts one of the most hallowed rituals for Roman Catholics in the run up to Easter.`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-healthcare-coronavirus-poland-confession.html?searchResultPosition=8
+**NTSB: School District Shares Blame for Crash That Killed 3**\
+`The National Transportation Safety Board said Tuesday that a northern Indiana school district is partially to blame for a 2018 crash that killed three siblings crossing a rural highway to reach their stopped school bus.`\
+https://nytimes.com/aponline/2020/04/07/us/ap-us-children-killed-indiana.html?searchResultPosition=8
 
-**Iconic Sports Cities Turn Eery During Coronavirus Shutdown**\
-`They are cities defined by iconic sporting events. `\
-https://nytimes.com/aponline/2020/04/07/sports/ap-us-sports-deserted-icons.html?searchResultPosition=9
+**BlackRock's Aladdin Investment Management Platform to Be Hosted on Microsoft's Cloud**\
+`BlackRock Inc, the world's largest asset manager, has partnered with Microsoft Corp to have its Aladdin investment and risk management system hosted on the Microsoft Azure cloud platform, the companies said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/07/business/07reuters-blackrock-aladdin-microsoft.html?searchResultPosition=9
 
-**Redskins Weigh Drafting Chase Young vs. Trading No. 2 Pick**\
-`It has long seemed like a virtual certainty that the Redskins will take Chase Young with the second pick in the NFL draft.`\
-https://nytimes.com/aponline/2020/04/07/sports/football/ap-fbn-redskins-second-pick.html?searchResultPosition=10
+**U.S. Banking Regulators Encourage 'Prudent Efforts' by Banks to Help Borrowers**\
+`U.S. banks should feel welcome to pursue "prudent efforts" to help borrowers impacted by the coronavirus pandemic, according to a new joint statement issued by banking regulators Tuesday.`\
+https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-fed-banks.html?searchResultPosition=10
 
