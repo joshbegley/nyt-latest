@@ -1,24 +1,24 @@
+**Southwest Building June Flight Schedule to Reflect 'Different Phases of Recovery'**\
+`Southwest Airlines Co said on Tuesday it would publish this week a new flight schedule for June 6 to June 27 with overall flight activity dropping by about 50% while taking into account "different phases of the recovery anticipated ahead."`\
+https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-southwest.html?searchResultPosition=5
+
+**Gamers Check Back In to Habbo Hotel as Coronavirus Refuge**\
+`Habbo Hotel, a hit online networking game more than a decade ago, is drawing back hundreds of thousand of players as locked-down millennials look to rediscover a childhood favourite, its Finnish maker said.`\
+https://nytimes.com/reuters/2020/04/07/technology/07reuters-health-coronavirus-finland-habbohotel.html?searchResultPosition=6
+
+**U.S. Job Openings Fall in February, Hiring Steady**\
+`U.S. job openings fell in February, suggesting the labor market was losing momentum even before stringent measures to control the coronavirus outbreak shuttered businesses, throwing millions out of work.`\
+https://nytimes.com/reuters/2020/04/07/us/07reuters-usa-economy-jobs.html?searchResultPosition=7
+
 **European Competitions Could Wait for Domestic Leagues to End**\
 `Finishing off domestic soccer seasons could take precedence over completing the Champions League.`\
-https://nytimes.com/aponline/2020/04/07/sports/soccer/ap-soc-spanish-league-restart.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/04/07/sports/soccer/ap-soc-spanish-league-restart.html?searchResultPosition=8
 
 **Dua Lipa’s Unplanned, Uncertain, Unprecedented Album Launch**\
 `The English pop star spent years preparing to release her anticipated second LP, “Future Nostalgia.” Should she — and could she — do it during a pandemic?`\
-https://nytimes.com/2020/04/07/arts/music/dua-lipa-future-nostalgia-coronavirus.html?searchResultPosition=6
+https://nytimes.com/2020/04/07/arts/music/dua-lipa-future-nostalgia-coronavirus.html?searchResultPosition=9
 
 **Impossible Dilemma? World Watches Italy as Businesses Plead to Return to Work**\
 `Many Italian companies and academics are pressing the government to reopen factories to prevent an economic catastrophe, as the world watches how the first Western country to impose a lockdown can extricate itself from the unprecedented measures.`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-italy-industry-insight.html?searchResultPosition=7
-
-**BWF Seek Clarity on Denmark's Ability to Host Thomas & Uber Cup Finals**\
-`Badminton World Federation (BWF) and Badminton Denmark said on Tuesday they are seeking clarification from Danish authorities on how the ban on large gatherings will affect their ability to stage the Thomas and Uber Cup Finals in August.`\
-https://nytimes.com/reuters/2020/04/07/sports/07reuters-health-coronavirus-badminton.html?searchResultPosition=8
-
-**Grisham Out as Press Secretary, Will Head First Lady's Staff**\
-`White House press secretary Stephanie Grisham is leaving her post after never holding a single formal press briefing.`\
-https://nytimes.com/aponline/2020/04/07/us/politics/ap-trump-press-secretary-.html?searchResultPosition=9
-
-**Judge Grants Iowa Inmate's Request for DNA Test in 1976 Case**\
-`A judge has ordered DNA testing on a hat left at the scene of a fatal 1976 shooting that an Iowa inmate hopes will prove he has been wrongly imprisoned for decades.`\
-https://nytimes.com/aponline/2020/04/07/us/ap-us-1976-slaying-dna-testing-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-italy-industry-insight.html?searchResultPosition=10
 
