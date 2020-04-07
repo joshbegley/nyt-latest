@@ -1,24 +1,24 @@
-**U.S. Appeals Court Hands Win to Trump Plan to Resume Federal Executions**\
-`The Trump administration's effort to resume federal executions got a boost on Tuesday from a U.S. appeals court, which tossed a district judge's injunction that blocked four death penalty sentences from being carried out.`\
-https://nytimes.com/reuters/2020/04/07/us/07reuters-usa-court-deathpenalty.html?searchResultPosition=5
+**U.S. Senate Leader Hopes to OK More Money for Small Businesses on Thursday**\
+`U.`\
+https://nytimes.com/reuters/2020/04/07/us/politics/07reuters-health-coronavirus-usa-congress.html?searchResultPosition=5
 
-**OPEC+ Won't Meet Until Oil Output Numbers Agreed: Iran Oil Minister**\
-`There needs to be an agreement on oil production numbers before any future meeting between OPEC and non-OPEC members, Iran's Oil Minister Bijan Zanganeh tweeted on Tuesday.`\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-global-oil-opec-iran.html?searchResultPosition=6
+**Boris Johnson Is a ‘Fighter and He’ll Be Back,’ Raab Says**\
+`Britain’s foreign secretary, Dominic Raab, said that Prime Minister Boris Johnson was breathing without any assistance at a hospital as he battles the coronavirus.`\
+https://nytimes.com/video/world/europe/100000007075555/boris-johnson-coronavirus.html?searchResultPosition=6
 
-**How a Luxury Hotel on Billionaires’ Row Became a Dorm for Hospital Workers**\
-`The Four Seasons reinvented itself in a matter of days.`\
-https://nytimes.com/2020/04/07/nyregion/coronavirus-four-seasons-hotel-new-york.html?searchResultPosition=7
+**China Investigates Tycoon Who Criticized Xi’s Response to Coronavirus**\
+`The decision to investigate the tycoon, Ren Zhiqiang, reflects broad unease in the government about growing criticism of its early efforts to conceal the outbreak.`\
+https://nytimes.com/2020/04/07/world/asia/china-tycoon-coronavirus.html?searchResultPosition=7
 
-**Trump Effectively Ousts Top Watchdog for $2 Trillion Coronavirus Relief**\
-`The official had been the acting inspector general for the Pentagon, but in removing him from that role, the president stripped him of his pandemic relief oversight duties as well.`\
-https://nytimes.com/2020/04/07/us/politics/trump-coronavirus-watchdog-glenn-fine.html?searchResultPosition=8
+**21 Things Teenagers Can Do With a New York Times Subscription**\
+`From April 6 to July 6, The Times is providing free digital access to all high students and teachers in the United States. If you’ve never explored NYTimes.com before, here are some things we offer that might surprise you.`\
+https://nytimes.com/2020/04/07/learning/21-things-teenagers-can-do-with-a-new-york-times-subscription.html?searchResultPosition=8
 
-**Trump: Health and Human Services Watchdog Produced 'Fake Dossier' on Coronavirus**\
-`U.S. President Donald Trump on Tuesday accused a federal health department watchdog as having produced a "fake dossier" with a report that confirmed hospitals nationwide faced "substantial challenges" including shortages of equipment and staff.`\
-https://nytimes.com/reuters/2020/04/07/us/07reuters-health-coronavirus-usa-watchdog.html?searchResultPosition=9
+**Special April Challenge: What Got Your Attention in The Times This Month?**\
+`Explore NYTimes.com and tell us what you read, watched or listened to and why. Times judges will then pick favorite responses to honor.`\
+https://nytimes.com/2020/04/07/learning/special-april-challenge-what-got-your-attention-in-the-times-this-month.html?searchResultPosition=9
 
-**New York State Overtakes Italy, Has Coronavirus Cases Second Only to Spain: Reuters Tally**\
-`New York state overtook Italy on Tuesday, reporting overall coronavirus cases second in the world only to Spain, according to a Reuters tally.`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-usa-cases.html?searchResultPosition=10
+**Trump Removes Inspector General Overseeing Implementation of $2.3 Trillion Coronavirus Relief: Politico**\
+`President Donald Trump has removed the inspector general who was named to oversee implementation of the $2.3 trillion coronavirus economic relief, Politico reported on Tuesday.`\
+https://nytimes.com/reuters/2020/04/07/us/politics/07reuters-health-coronavirus-usa-inspector-general.html?searchResultPosition=10
 
