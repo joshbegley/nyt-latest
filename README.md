@@ -1,24 +1,24 @@
-**Coronavirus Briefing: What Happened Today**\
-`China eased its lockdown of Wuhan, and Wisconsin went on with its elections.`\
-https://nytimes.com/2020/04/07/us/coronavirus-today.html?searchResultPosition=5
+**Levi's Coming Back to Life in China as Stores Reopen, Online Sales Rise**\
+`Levi Strauss & Co said on Tuesday a majority of its stores in China, where the coronavirus outbreak first emerged in December, were open with sales recovering on a weekly basis and digital sales rising last month. `\
+https://nytimes.com/reuters/2020/04/07/business/07reuters-levi-strauss-results.html?searchResultPosition=5
 
-**We Must Reveal the Truth About Coronavirus**\
-`That starts with releasing data on race and ethnicity.`\
-https://nytimes.com/2020/04/07/opinion/coronavirus-blacks.html?searchResultPosition=6
+**U.S. Immigration Officials Evaluate Vulnerable Detainees for Possible Release Amid Pandemic**\
+`U.S. immigration officials said on Tuesday they are considering releasing some detainees at high risk for coronavirus infection as detainees and workers have tested positive for the resulting COVID-19 illness.`\
+https://nytimes.com/reuters/2020/04/07/us/07reuters-health-coronavirus-usa-crime.html?searchResultPosition=6
 
-**KKR Sets Up $50 Million International Coronavirus Relief Fund**\
-`KKR & Co Inc has established a $50 million global relief fund to help people affected by the new coronavirus, according to a letter the U.S. private equity firm sent to its investors on Tuesday.`\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-kkr.html?searchResultPosition=7
+**Boeing Making New 737 MAX Software Updates to Address Computer Issue**\
+`Boeing Co said late on Tuesday it will make two new software updates to the 737 MAX's flight control computer as it works to win regulatory approval to resume flights after the jet was grounded following two fatal crashes in five months.`\
+https://nytimes.com/reuters/2020/04/07/business/07reuters-boeing-737max-software.html?searchResultPosition=7
 
-**Airbnb to Terminate $1 Billion Credit Facility After Private Equity Deal: Sources**\
-`Airbnb Inc is planning to terminate a $1 billion credit facility following an investment of the same amount it secured from private equity firms Silver Lake and Sixth Street Partners, people familiar with the matter said on Tuesday. `\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-airbnb-debt.html?searchResultPosition=8
+**Trump Blasts World Health Group, Defends Early Virus Steps**\
+`President Donald Trump on Tuesday threatened to freeze U.S. funding to the World Health Organization, saying the international group had “missed the call” on the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/04/07/us/politics/ap-us-virus-outbreak-washington.html?searchResultPosition=8
 
-**United States Deports Haitians Despite Coronavirus Fears**\
-`The United States, the new epicenter of the global coronavirus pandemic, deported 61 Haitian migrants on Tuesday despite fears of further spreading the deadly disease in the poorest country in the Americas.`\
-https://nytimes.com/reuters/2020/04/07/world/americas/07reuters-health-coronavirus-haiti.html?searchResultPosition=9
+**With No Theaters, Film Fans Find Ways to Gather Virtually**\
+`There are 44 people in the Social Distance Movie Club's Slack channel, where co-workers at Crooked Media have had discussions about everything from a Dwayne Johnson earthquake film to Faye Dunaway’s turn as Joan Crawford in “Mommie Dearest.” `\
+https://nytimes.com/aponline/2020/04/07/us/ap-us-film-virtual-viewing-parties-1st-ld-writethru.html?searchResultPosition=9
 
-**Trump Says $70 Billion in Coronavirus Rescue Loans Authorized. But Where's the Cash?**\
-`Roughly $70 billion of a $350 billion pot of loans to cover the payrolls of ailing small businesses have been originated by U.S. lenders in recent days, President Donald Trump said on Tuesday, adding that that money was "essentially loaned." `\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-stimulus-cash.html?searchResultPosition=10
+**U.F.C. 249, Skirting Coronavirus Limits, Is Set for Tribal Land in California**\
+`The move for a card that includes a highly anticipated fight involving Tony Ferguson is an end run around state regulators and nationwide public health guidelines.`\
+https://nytimes.com/2020/04/07/sports/ufc-249-coronavirus-location.html?searchResultPosition=10
 
