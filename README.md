@@ -1,24 +1,24 @@
+**Colombia Extends Coronavirus Quarantine by Two Weeks**\
+`Colombia will extend a nationwide quarantine meant to stem the transmission of the coronavirus until April 27, President Ivan Duque said on Monday.`\
+https://nytimes.com/reuters/2020/04/06/world/americas/06reuters-health-coronavirus-colombia-quarantine.html?searchResultPosition=5
+
+**India Lifts Restrictions on 24 Drug Exports Amid Coronavirus**\
+`India, the world's main supplier of generic drugs, has lifted restrictions on the export of 24 pharmaceutical ingredients and medicines made from them, the government said in a statement.`\
+https://nytimes.com/reuters/2020/04/06/world/asia/06reuters-health-coronavirus-india-drugs.html?searchResultPosition=6
+
+**School Closures Will Have Little Impact on COVID-19 Control, Review Finds**\
+`School closures do not tend to help contain the spread of infections during outbreaks of disease such as COVID-19, but will have a big impact on how societies restart after lockdown, scientists said on Monday.`\
+https://nytimes.com/reuters/2020/04/06/world/asia/06reuters-health-coronavirus-schools.html?searchResultPosition=7
+
+**Trump Says He, Others Will Be Tested Regularly**\
+`President Donald Trump said on Monday that he and others, without specifying who, would be regularly tested for the coronavirus, a pandemic disease that has killed more than 10,000 Americans and throttled the U.S. economy.`\
+https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-usa-pence.html?searchResultPosition=8
+
+**Freeport-McMoRan Workers at New Mexico Mine Test Positive for COVID-19**\
+`Three Freeport-McMoRan Inc employees at the company's Chino copper mine in New Mexico have tested positive for COVID-19, according to the state's lieutenant governor, Howie Morales.`\
+https://nytimes.com/reuters/2020/04/06/us/06reuters-health-coronavirus-freeport-mcmoran.html?searchResultPosition=9
+
 **Red States Are Exploiting Coronavirus to Ban Abortion**\
 `For autocrats everywhere, the crisis is a chance to restrict rights.`\
-https://nytimes.com/2020/04/06/opinion/abortion-covid.html?searchResultPosition=5
-
-**Australian Court Dismisses Cardinal's Sex Abuse Convictions**\
-`Australia's highest court has dismissed the convictions of the most senior Catholic found guilty of child sex abuse.`\
-https://nytimes.com/aponline/2020/04/06/world/asia/ap-as-australia-cardinal-charged-.html?searchResultPosition=6
-
-**Australian Court Overturns Sex Abuse Conviction of Cardinal George Pell**\
-`The cardinal was the highest-ranking Roman Catholic leader ever found guilty of sexually abusing children.`\
-https://nytimes.com/2020/04/06/world/australia/cardinal-george-pell-conviction.html?searchResultPosition=7
-
-**AP Sources: MLB, Union Discuss Playing All Games in Arizona**\
-`Putting all 30 teams in the Phoenix area and playing in empty ballparks was among the ideas discussed Monday by Major League Baseball and the players’ association.`\
-https://nytimes.com/aponline/2020/04/06/sports/baseball/ap-bbo-virus-outbreak-baseball.html?searchResultPosition=8
-
-**Wisconsin Election Fight Heralds a National Battle Over Virus-Era Voting**\
-`The state stands as a first test case in what could potentially be the biggest voting rights clash since the passage of the Voting Rights Act of 1965.`\
-https://nytimes.com/2020/04/06/us/politics/wisconsin-primary-voting-coronavirus.html?searchResultPosition=9
-
-**3M, U.S. Reach Agreement That Allows Mask Exports to Canada**\
-`Manufacturing giant 3M said Monday it has an agreement with the Trump administration that will allow the company to continue to export N95 protective masks to Canada and Latin America amid the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/04/06/business/ap-cn-virus-outbreak-canada-us-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/2020/04/06/opinion/abortion-covid.html?searchResultPosition=10
 
