@@ -1,24 +1,24 @@
+**Poland Pushes Forward Postal Election Legislation**\
+`Poland's lower house of parliament controlled by ruling nationalists approved late on Monday draft legislation to allow a May presidential election to be held as a postal ballot due to the coronavirus, state news agency PAP said.`\
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-poland-election.html?searchResultPosition=5
+
+**The Latest: New Zealand Official Demoted for Lockdown Breach**\
+`The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
+https://nytimes.com/aponline/2020/04/07/business/ap-virus-outbreak-the-latest.html?searchResultPosition=6
+
+**Scammers Try Selling World's Tallest Statue as Pandemic Boosts India's Cyber Crime**\
+`Police in India lodged a case this week against an unknown online fraudster who tried selling the world's largest statue for $4 billion, claiming the proceeds would be used to help the Gujarat state government fund its fight against the coronavirus.`\
+https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-india-fraud.html?searchResultPosition=7
+
+**UFC Close to Securing Private Island for Fights: White**\
+`Ultimate Fighting Championship (UFC) President Dana White has said the mixed martial arts promotion is close to securing a "private island" to stage bouts for international fighters during the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/04/07/sports/07reuters-health-coronavirus-mixed-martial-arts.html?searchResultPosition=8
+
+**165 VIPs Urge 20 Economic Powers for Billions for COVID-19**\
+`Many former global leaders and other VIPs urged the world’s 20 major industrialized nations to approve $8 billion in emergency funding to speed the search for a vaccine, cure and treatment for COVID-19 and prevent a second wave of the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/04/07/business/ap-un-virus-outbreak-appeal-to-g20.html?searchResultPosition=9
+
 **No Change in British PM Johnson's Condition: Sources**\
 `There has been no change in Boris Johnson's condition, two sources close to him said on Tuesday, after the British prime minister was taken into intensive care following a deterioration in his coronavirus symptoms.`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-johnson-condition.html?searchResultPosition=5
-
-**India Will Allow Some Exports of Anti-Malaria Drug After Trump Appeal**\
-`India will allow some exports of the anti-malaria drug hydroxychloroquine, the foreign ministry said on Tuesday, after U.S. President Donald Trump urged New Delhi to release supplies of the drug seen as a possible treatment for COVID-19. `\
-https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-india-drug-exports.html?searchResultPosition=6
-
-**Factbox: Reaction to the Acquittal of Cardinal Pell on Child Sex Offences**\
-`Ex-Vatican Treasurer George Pell, 78, was released from jail on Tuesday after Australia's highest court acquitted him of charges of sexually assaulting two teenaged choirboys in the 1990s.`\
-https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-australia-abuse-pell-factbox.html?searchResultPosition=7
-
-**Thailand Reports 38 New Coronavirus Infections, One Death**\
-`Thailand reported 38 new coronavirus infections and the death of a 54-year-old man on Tuesday, a spokesman for a government agency said. `\
-https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-thailand-cases.html?searchResultPosition=8
-
-**Hackers' New Target During Pandemic: Video Conference Calls**\
-`Ceri Weber had just begun to defend her dissertation when the chaos began: Echoes and voices interrupted her. Someone parroted her words. Then Britney Spears music came on, and someone told Weber to shut up. Someone threatened to rape her.`\
-https://nytimes.com/aponline/2020/04/07/business/bc-us-virus-outbreak-video-conference-hacking.html?searchResultPosition=9
-
-**Oil Rises 3% on Hopes for Output Cut as Coronavirus Ravages Demand**\
-`Oil prices gained on Tuesday as hopes rose that the world's biggest producers of crude will agree to cut output as the coronavirus pandemic crushes demand, even as analysts warn a global recession may be deeper than expected.`\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-global-oil.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-johnson-condition.html?searchResultPosition=10
 
