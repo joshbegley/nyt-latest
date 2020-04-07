@@ -1,24 +1,24 @@
-**AT&T Takes on $5.5 Billion Loan to Boost 'Financial Flexibility'**\
-`AT&T Inc. on Tuesday announced a $5.5 billion term-loan agreement, which it said would give the company "financial flexibility" during the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-at-t-debt.html?searchResultPosition=5
+**MLB Plays Down Talk of May Return to Action Amid Coronavirus**\
+`Major League Baseball threw cold water on reports it is developing plans to restart play as early as May in an isolation bubble protected from the novel coronavirus outbreak, saying on Tuesday several options were being considered.`\
+https://nytimes.com/reuters/2020/04/07/sports/baseball/07reuters-health-coronavirus-baseball-mlb.html?searchResultPosition=5
 
-**Huawei Laments U.S. Plans to Crimp Its Global Chip Supply**\
-`A Huawei Technologies Co Ltd [HWT.UL] executive on Tuesday described as "unfortunate" plans by the U.S. government to curb the Chinese telecom equipment maker's access to global chip supplies.`\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-huawei-tech-usa-chipmakers.html?searchResultPosition=6
+**U.S. Treasury Preparing to Ask for Further $200 Billion for Small Business Lending: Washington Post**\
+`The U.S. Treasury Department is preparing to ask Congress for a further $200 billion for a small business lending program that is a mainstay of the nation's coronavirus economic relief efforts, the Washington Post reported on Tuesday.`\
+https://nytimes.com/reuters/2020/04/07/us/07reuters-health-coronavirus-usa-lending.html?searchResultPosition=6
 
-**UK-Wide Coronavirus Death Toll Increases by 786 to 6,159**\
-`The United Kingdom coronavirus death toll rose by 786 to 6,159 people as of 1600 GMT on April 6, the health ministry said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-britain-casualties.html?searchResultPosition=7
+**Shipping Industry Urges Free Movement of Crews to Keep Trade Moving**\
+`Ships must be allowed to change over overworked and exhausted crews to help to keep trade flowing as coronavirus lockdowns shut many transit points across the globe, shipping industry officials said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/07/us/07reuters-health-coronavirus-shipping.html?searchResultPosition=7
 
-**Lufthansa Grounds Germanwings in Sweeping Restructuring**\
-`Lufthansa on Tuesday said it will ground its Germanwings low-cost airline as part of a broader overhaul which includes cutting flight capacity across the group.`\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-lufthansa.html?searchResultPosition=8
+**Many Canadian Small Businesses Shut Out of Coronavirus Crisis Help**\
+`Many Canadian small businesses reeling from losses due to the coronavirus outbreak may be ineligible for federal government and bank aid designed to help them survive, industry experts say, with several already shuttered or rapidly running out of cash.`\
+https://nytimes.com/reuters/2020/04/07/us/07reuters-health-coronavirus-canada-smallbusinesses.html?searchResultPosition=8
 
-**Border Wall Workers in New Mexico Spark Coronavirus Anxiety**\
-`Some residents of a southern New Mexico village, immigrant advocates and others are raising concerns about an influx of workers in the community as part of the effort to build the border wall during the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/04/07/us/ap-us-border-wall-camp.html?searchResultPosition=9
+**Steelers QB Roethlisberger 'on Schedule' for Next Step**\
+`Pittsburgh Steelers quarterback Ben Roethlisberger was ready to put his surgically repaired right elbow on display at organized team activities.`\
+https://nytimes.com/reuters/2020/04/07/sports/football/07reuters-football-nfl-pit-roethlisberger.html?searchResultPosition=9
 
-**China Ends Wuhan Lockdown, but Normal Life Is a Distant Dream**\
-`In the city where the coronavirus outbreak was first reported, the reopening of outbound travel won’t end hard times, wariness or confinement.`\
-https://nytimes.com/2020/04/07/world/asia/wuhan-lockdown-coronavirus.html?searchResultPosition=10
+**Most People on Antarctica Cruise Ship Have the Coronavirus**\
+`Nearly 60 percent of 217 people — many from Australia, Europe and the United States — on board a cruise ship off the coast of Uruguay have tested positive for the new coronavirus, the ship's operator said Tuesday. `\
+https://nytimes.com/aponline/2020/04/07/world/americas/ap-lt-virus-outbreak-uruguay-cruise-ship.html?searchResultPosition=10
 
