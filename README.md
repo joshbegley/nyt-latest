@@ -1,24 +1,24 @@
+**Indonesia Grants Jakarta More Powers to Tackle Coronavirus Outbreak**\
+`Indonesia approved on Tuesday a request by the Jakarta administration to impose further large-scale social restrictions on the capital, the epicentre for novel coronavirus cases in the Southeast Asian country.`\
+https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-indonesia.html?searchResultPosition=5
+
+**Italy's Diasorin Aims to Launch COVID-19 Antibody Test by End-April**\
+`Italy's medical diagnostic group Diasorin said on Tuesday it aims to launch a new serological test to detect antibodies in patients infected with the new coronavirus by the end of April.`\
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-diasorin.html?searchResultPosition=6
+
+**Australian Regulator Urges Banks, Insurers to Defer Dividends Amid Virus Outbreak**\
+`The Australian financial regulator on Tuesday urged banks and insurers to consider deferring dividend payouts or use buffers like dividend reinvestment plans until the impact of the coronavirus pandemic is better known.`\
+https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-regulator.html?searchResultPosition=7
+
+**A City Traumatized: Lockdown Easing, Wuhan Residents Fret Over Future**\
+`Li Xiaoli has been hard at work in recent days at the car dealership she owns in Wuhan, making sure she has enough sanitizer and protective gear for the company's long-awaited reopening. `\
+https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-china-wuhan.html?searchResultPosition=8
+
 **Indian Traders Ask Court for Amazon, Flipkart Antitrust Probe Restart**\
 `An Indian retail group has asked a court to allow the restart of an antitrust investigation into Amazon.com Inc and a Walmart unit that is on hold following a legal challenge by the companies, a court filing seen by Reuters showed.`\
-https://nytimes.com/reuters/2020/04/07/technology/07reuters-antitrust-india-ecommerce.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/07/technology/07reuters-antitrust-india-ecommerce.html?searchResultPosition=9
 
 **Social Groups Urge Mass Debt Relief for Poor Countries Hit by Virus Crisis**\
 `Nearly 140 campaign groups and charities urged the IMF and World Bank, G20 governments and private creditors on Tuesday to help the world's poorest countries through the coronavirus crisis by cancelling debt payments. `\
-https://nytimes.com/reuters/2020/04/07/world/07reuters-health-coronavirus-debtrelief.html?searchResultPosition=6
-
-**Thailand Announces $58 Billion Economic Measures to Mitigate Coronavirus Impact**\
-`Thailand's cabinet approved on Tuesday a package of economic measures worth 1.9 trillion baht ($58 billion) to alleviate the impact of the coronavirus outbreak on Southeast Asia's second-largest economy, the finance minister said.`\
-https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-thailand-measures.html?searchResultPosition=7
-
-**UK Foreign Minister Raab in Charge, Will Decide on Lockdown Measures: Gove**\
-`Britain's Foreign Secretary Dominic Raab will run the country while Prime Minister Boris Johnson is in intensive care and any decision on lifting coronavirus lockdown restrictions won't be delayed, Cabinet Office minister Michael Gove said on Tuesday.    `\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-britain-lockdown.html?searchResultPosition=8
-
-**Czech Billionaire Kretinsky Widens Investment Scope as Energy Deals Ease**\
-`Czech billionaire Daniel Kretinsky, who forged one of Europe's largest energy groups through more than a decade of deals, is diversifying and scouring retail, media and other areas for investments.`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-czech-kretinsky.html?searchResultPosition=9
-
-**Online Grocery Services Struggle to Meet Spike in Demand**\
-`A pandemic forcing everyone to stay home could be the perfect moment for online grocery services. In practice, they've been struggling to keep up with a surge in orders, highlighting their limited ability to respond to an unprecedented onslaught of demand.`\
-https://nytimes.com/aponline/2020/04/07/business/bc-virus-outbreak-online-groceries.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/07/world/07reuters-health-coronavirus-debtrelief.html?searchResultPosition=10
 
