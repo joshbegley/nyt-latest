@@ -1,24 +1,24 @@
-**Cardinal Pell’s Acquittal Was as Opaque as His Sexual Abuse Trial**\
-`Critics argue that Australia’s courts exhibited a penchant for secrecy and insular decision making that resembled the Roman Catholic Church’s flawed response to sexual abuse within its ranks.`\
-https://nytimes.com/2020/04/07/world/australia/cardinal-george-pell-acquittal.html?searchResultPosition=5
+**Israel Makes Masks in Public Compulsory**\
+`The Israeli government issued orders on Tuesday making the wearing of masks in public compulsory to try to stem the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/04/07/world/middleeast/07reuters-health-coronavirus-israel.html?searchResultPosition=5
 
-**Crew Member of Navy Hospital Ship in NYC Has COVID-19**\
-`A crew member of a Navy hospital ship sent to New York City for the coronavirus outbreak has tested positive for the disease.`\
-https://nytimes.com/aponline/2020/04/07/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=6
+**Big OPEC+ Oil Output Cuts Depend on U.S., Others Joining: Sources**\
+`Saudi Arabia, Russia and allied oil producers will only agree to deep cuts to their crude output at talks this week if the United States and several others join in with curbs to help prop up prices that have been hammered by the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/04/07/business/07reuters-global-oil-opec-cuts.html?searchResultPosition=6
 
-**Turkey Plans Prisoner Release, Excluding Those Jailed on Post-Coup Terrorism Charges**\
-`Turkey's parliament discussed a prisoner release law on Tuesday which aims to ease overcrowding in jails and protect detainees from the coronavirus, but which critics slam for excluding people jailed on terrorism charges in a post-coup crackdown.`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-turkey-prisoners.html?searchResultPosition=7
+**U.S. Finalizes Minimum Service Rules for Airlines Receiving Assistance**\
+`The U.S. Transportation Department on Tuesday issued final rules setting minimum service requirements for passenger airlines receiving government financial assistance.`\
+https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-usa-airlines.html?searchResultPosition=7
 
-**Airlines Cannot Afford to Refund Cancelled Tickets: IATA**\
-`Global airlines cannot afford to refund cancelled flights because of the coronavirus crisis, said the head of the industry's representative body IATA, and carriers are issuing vouchers instead as they conserve cash to survive.  `\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-airlines-refunds.html?searchResultPosition=8
+**U.S. Treasury Chief Says 3,000 Lenders Making Small Business Rescue Loans**\
+`U.S. Treasury Secretary Steven Mnuchin said on Tuesday that over 3,000 lenders were participating in a new $349 billion small business coronavirus loan program and the Federal Reserve and Treasury were working to set up facilities to support "main street" and municipal borrowers.`\
+https://nytimes.com/reuters/2020/04/07/us/07reuters-health-coronavirus-usa-mnuchin.html?searchResultPosition=8
 
-**What You Need to Know Today About the Virus Outbreak**\
-`The steep rise in coronavirus deaths appeared to be leveling off Monday in hard-hit New York, echoing a trend underway in Italy and Spain. Meanwhile, the crisis escalated alarmingly in Britain, where Prime Minister Boris Johnson was moved to intensive care after his condition deteriorated.`\
-https://nytimes.com/aponline/2020/04/07/us/ap-us-virus-outbreak-whats-happening.html?searchResultPosition=9
+**McConnell Reports His Best Fundraising Quarter Ever**\
+`Senate Majority Leader Mitch McConnell flexed his fundraising strength in the midst of a global pandemic, raising nearly $7.5 million in the first three months of 2020, his campaign said Tuesday.`\
+https://nytimes.com/aponline/2020/04/07/us/ap-us-election-2020-kentucky-senate.html?searchResultPosition=9
 
-**U.S. SEC's Clayton Says Companies Seeking Bailouts Must Disclose Plans, Communicate With Investors**\
-`Top U.S. Securities and Exchange Commission (SEC) official said on Tuesday said that companies in discussions about bailouts stemming from the fallout of the coronavirus should disclose where they stand to regulators.`\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-health-coronavirus-sec-clayton.html?searchResultPosition=10
+**Insurers, Banks Cut Customers Some Slack During Outbreak**\
+`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Tuesday related to the global economy, the work place and the spread of the virus. `\
+https://nytimes.com/aponline/2020/04/07/business/ap-virus-outbreak-business-fallout.html?searchResultPosition=10
 
