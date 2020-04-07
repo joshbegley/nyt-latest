@@ -1,24 +1,24 @@
-**Biden Nabs Endorsement of Prominent Black Lawmaker John Lewis**\
-`U.S. Representative John Lewis of Georgia endorsed Joe Biden's presidential campaign on Tuesday, giving the Democrat's bid further support among the party's black leadership.`\
-https://nytimes.com/reuters/2020/04/07/us/politics/07reuters-usa-election-biden-endorsement.html?searchResultPosition=5
+**Coronavirus in N.Y.C.: Latest Updates**\
+`For the second day in a row, officials found reasons for hope, with fewer than 600 deaths in the state.`\
+https://nytimes.com/2020/04/07/nyregion/coronavirus-nyc.html?searchResultPosition=5
 
-**Beijing-Backed AIIB Approves Emergency Loan to China to Help With Coronavirus Response**\
-`Beijing-backed Asian Infrastructure Investment Bank (AIIB) said on Tuesday it had approved its first emergency assistance loan of 2.485 billion yuan ($352 million) to China in order to help in the fight against the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-aiib.html?searchResultPosition=6
+**Spain's Coronavirus Deaths Up to 13,798 as Pace Ticks Up Again**\
+`The pace of coronavirus deaths in Spain ticked up slightly for the first time in five days on Tuesday, with 743 people succumbing overnight to reach a total of 13,798. `\
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-spain.html?searchResultPosition=6
 
-**John Lewis, Once a Trump Target, Lines Up Behind Joe Biden**\
-`Civil rights icon and Georgia Rep. John Lewis is backing Joe Biden for president, giving the prospective Democratic nominee perhaps his biggest symbolic endorsement among the many veteran black lawmakers who back his candidacy. `\
-https://nytimes.com/aponline/2020/04/07/us/politics/ap-us-election-2020-biden-lewis.html?searchResultPosition=7
+**Size of OPEC+ Oil Cuts Will Depend on How Much Others Cut: Source**\
+`Any final agreement for how much OPEC and its allies, a group know as OPEC+, will cut during their talks on Thursday would depend on the volumes that other producers such as the United States, Canada and Brazil are willing to reduce, an OPEC source said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/07/business/07reuters-global-oil-opec.html?searchResultPosition=7
 
-**John Lewis, Civil Rights Leader, Endorses Biden**\
-`The endorsement was another example of the strong backing Joseph R. Biden Jr. enjoys from African-American leaders and voters.`\
-https://nytimes.com/2020/04/07/us/politics/joe-biden-john-lewis.html?searchResultPosition=8
+**Euro Zone to Agree on Half Trillion-Euro Package Against Coronavirus**\
+`Euro zone finance ministers are likely to agree on Tuesday on measures worth more than half a trillion euros to fight the economic fallout of the coronavirus epidemic, but say that  plans to jointly issue debt will need more talks.`\
+https://nytimes.com/reuters/2020/04/07/us/07reuters-health-coronavirus-eurozone.html?searchResultPosition=8
 
-**Japan's Government Approves Emergency Stimulus Package to Combat Coronavirus**\
-`Japan's government approved an emergency economic stimulus package worth 108.2 trillion yen ($993 billion), with fiscal spending of 39.5 trillion yen, aimed at battling the deepening fallout from the coronavirus, government officials said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-japan-stimulus-approval.html?searchResultPosition=9
+**Parisians Banned From Outdoor Sports Between 10am and 7pm**\
+`French authorities tightened their lockdown measures in the capital on Tuesday by banning Parisians from outdoors sports activity between 10 a.m. and 7 p.m. local time, aiming to curb the spread of the new coronavirus.`\
+https://nytimes.com/reuters/2020/04/07/sports/07reuters-health-coronavirus-france-paris.html?searchResultPosition=9
 
-**Early Asia Tech Results Signal Slow Recovery After Virus Battering**\
-`Smartphone sales in China are rising again as COVID-19 cases there decline and global demand for chips used in work-from-home networks is surging, positioning Asian tech firms for a slow but steady recovery, their early quarterly report cards showed.`\
-https://nytimes.com/reuters/2020/04/07/technology/07reuters-health-coronavirus-asia-tech.html?searchResultPosition=10
+**New Zealand Family Hosts 4 German Students During Lockdown**\
+`Four German students who were invited to shelter with a New Zealand family during a nationwide lockdown say they've been having lots of fun sharing meals, playing soccer and trying to learn guitar.`\
+https://nytimes.com/aponline/2020/04/07/world/asia/ap-as-new-zealand-stranded-germans.html?searchResultPosition=10
 
