@@ -1,24 +1,24 @@
+**Wuhan Farmers Struggle as Crops Wither From Travel Limits**\
+`Stuck in the same bind as many other Chinese farmers whose crops are rotting in their fields, Jiang Yuewu is preparing to throw out a 500-ton harvest of lotus root because anti-coronavirus controls are preventing traders from getting to his farm near Wuhan, where the global pandemic started.`\
+https://nytimes.com/aponline/2020/04/07/business/bc-as-virus-outbreak-china-struggling-farmers.html?searchResultPosition=5
+
 **Samsung First-Quarter Beats Estimates; Chips Likely to Prop Up Virus-Hit Second-Quarter**\
 `Samsung Electronics Co Ltd said on Tuesday its first-quarter operating profit likely managed to rise slightly from a slump a year earlier, as solid chip sales helped cushion the blow from the coronavirus pandemic on smartphones and TVs.`\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-samsung-elec-results.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/07/business/07reuters-samsung-elec-results.html?searchResultPosition=6
 
 **Players to Swap Rackets for Game Controllers as Madrid Open Goes Online**\
 `The world's top tennis players will swap rackets for game controllers this month after organisers of the cancelled Madrid Open said they will stage a virtual competition to raise funds for struggling professionals amid the coronavirus shutdown.`\
-https://nytimes.com/reuters/2020/04/07/sports/tennis/07reuters-health-coronavirus-tennis.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/04/07/sports/tennis/07reuters-health-coronavirus-tennis.html?searchResultPosition=7
 
 **Australia to Chart Course Out of Coronavirus Crisis After Lockdowns Buy Time**\
 `Australia's lock-down measures have bought it time in its fight against the coronavirus and it must now decide its next course, its top medical officer said on Tuesday, as the prime minister warned against irreparable economic damage.`\
-https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-australia.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-australia.html?searchResultPosition=8
 
 **The Cruise Industry, a Symbol of the Pandemic, Scrambles to Survive**\
 `Carnival and the other big companies have no revenue and face questions over whether customers will return once the threat of the coronavirus passes.`\
-https://nytimes.com/2020/04/07/business/coronavirus-cruise-industry-carnival.html?searchResultPosition=8
+https://nytimes.com/2020/04/07/business/coronavirus-cruise-industry-carnival.html?searchResultPosition=9
 
 **UK PM Johnson Is Not on a Ventilator but Had Oxygen Support, Minister Says**\
 `British Prime Minister Boris Johnson is not on a ventilator but has had some oxygen support and if his condition changes the government will make an official statement, Cabinet Office Minister Michael Gove said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-britain-gove-ventilator.html?searchResultPosition=9
-
-**AP PHOTOS: Virus Haunts the Destitute Living on the Margins**\
-`In a housing complex in the Moroccan city of Sale, over 900 people live in crowded rooms without running water or an income to support them.`\
-https://nytimes.com/aponline/2020/04/07/us/ap-virus-outbreak-living-on-the-margins-photo-gallery.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-britain-gove-ventilator.html?searchResultPosition=10
 
