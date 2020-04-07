@@ -1,24 +1,24 @@
+**Indonesia Records Biggest Daily Rise in Coronavirus Infections**\
+`Indonesia confirmed on Tuesday 247 new coronavirus infections, taking the total to 2,738, said a health ministry official.`\
+https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=5
+
+**Hong Kong Office Demand Shrinks the Most in 18 Years: Cushman & Wakefield**\
+`Real estate consultancy Cushman & Wakefield on Tuesday revised its forecasts for Hong Kong office rents to fall as much as 18% in the full year while retail rents to drop as much as 40% in the first half, as the coronavirus takes a toll in one of the world's most expensive property markets.`\
+https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-hongkong-property.html?searchResultPosition=6
+
+**UK's Queen Elizabeth Sends Message of Enduring Appreciation to Health Workers**\
+`Britain's Queen Elizabeth on Tuesday sent a message of "enduring appreciation and good wishes" to health workers around the world for World Health Day.`\
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-britain-royals.html?searchResultPosition=7
+
+**Russia Confirms Its Participation in OPEC+ Meeting on April 9**\
+`Russia on Tuesday confirmed its participation in the OPEC+ meeting of leading oil producers set for April 9, a spokeswoman for energy ministry told Reuters.`\
+https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-oil-opec-russia.html?searchResultPosition=8
+
 **HSBC Hong Kong Asset Management Units Fined $450,000**\
 `Hong Kong's markets regulator has fined two HSBC units HK$3.5 million ($451,456) for regulatory breaches. `\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-hsbc-hldg-hongkong-fine.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/07/business/07reuters-hsbc-hldg-hongkong-fine.html?searchResultPosition=9
 
 **‘Old School’ Technique Helps Identify Victim in 50-Year-Old Killing**\
 `A longtime criminalist in New Hampshire manually plotted the details of one of the victim’s fingers to find a match.`\
-https://nytimes.com/2020/04/07/us/winston-skip-morris-body-found-1969.html?searchResultPosition=6
-
-**Philippines Reports 14 New Coronavirus Deaths, 104 More Infections**\
-`The Philippines' health ministry on Tuesday reported 14 new coronavirus deaths and 104 additional infections.`\
-https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-philippines-cases.html?searchResultPosition=7
-
-**UK's Johnson Spends Night in ICU; Not on Ventilator**\
-`British Prime Minister Boris Johnson has spent the night in the intensive care unit of a London hospital with the new coronavirus, but is not on a ventilator, a senior government minister said Tuesday.`\
-https://nytimes.com/aponline/2020/04/07/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=8
-
-**Who Goes Alt-Right in a Lockdown?**\
-`Mass anxiety, political instability, and isolation are a pretty good combination for warping peoples’ world views.`\
-https://nytimes.com/2020/04/07/opinion/coronavirus-isolation-radicalization.html?searchResultPosition=9
-
-**The United States Needs a ‘Smart Quarantine’**\
-`Evidence from around the world shows that stay-at-home orders take us only so far.`\
-https://nytimes.com/2020/04/07/opinion/coronavirus-smart-quarantine.html?searchResultPosition=10
+https://nytimes.com/2020/04/07/us/winston-skip-morris-body-found-1969.html?searchResultPosition=10
 
