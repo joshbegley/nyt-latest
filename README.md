@@ -1,4 +1,4 @@
-**New Battle for Those on the Coronavirus Front Lines: Child Custody**\
+**New Battle for Those on Coronavirus Front Lines: Child Custody**\
 `Doctors, firefighters and others who risk exposure to Covid-19 are being taken to court by ex-spouses who want to keep them away from their children.`\
 https://nytimes.com/2020/04/07/us/coronavirus-child-custody.html?searchResultPosition=5
 
