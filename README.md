@@ -1,24 +1,24 @@
-**US Says Airstrike in Somalia Kills an Al-Shabab Leader**\
-`The U.S. military said Tuesday it has killed a high-ranking leader of the al-Qaida-linked al-Shabab extremist group with an airstrike in Somalia.`\
-https://nytimes.com/aponline/2020/04/07/world/africa/ap-af-somalia-us-airstrikes.html?searchResultPosition=5
+**Paralympians Adapt to New Challenges as Virus Spreads**\
+`Sam Grewe could end up missing the start of medical school to go to the Paralympics, and that will be fine with him.`\
+https://nytimes.com/aponline/2020/04/07/sports/olympics/ap-oly-paralympics-challenges.html?searchResultPosition=5
 
-**Investors Flock to Buy UK Debt, Despite Record Supply**\
-`Britain attracted the strongest investor demand since 2005 for its government bonds on Tuesday, when it kicked off a record period of debt issuance to fund higher spending on measures to fight the coronavirus.`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-britain-bonds.html?searchResultPosition=6
+**Millennial Money: 8 Ways to Switch Up the New At-Home Normal**\
+`As COVID-19 sparks closures, cancellations and stay-at-home orders, household stressors are piling up. On top of health concerns, lost incomes and lack of child care amid the pandemic, there’s also coping with isolation, whether individually or as a couple or family.`\
+https://nytimes.com/aponline/2020/04/07/business/ap-nerdwallet-quarantine-activities.html?searchResultPosition=6
 
-**UK Finance Minister Sunak, 39, Next in Line to Lead Country After Raab**\
-`British finance minister Rishi Sunak would take responsibility for leading the country if Dominic Raab, currently standing in for hospitalised Prime Minister Boris Johnson, were also incapacitated.`\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-britain-sunak.html?searchResultPosition=7
+**India's Small Businesses Struggle to Pay Wages Amid Coronavirus Lockdown**\
+`Hundreds of thousands of cash-starved Indian small businesses have either deferred or cut their workers' wages this month, say industrialists and union leaders, amid a 21-day nationwide lockdown to stem the spread of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-india-business.html?searchResultPosition=7
 
-**Croatian Lawmakers Meet in Hotel After Earthquake Damage**\
-`Croatian lawmakers on Tuesday held a session in the conference hall of a Zagreb hotel, sitting separate from each other as part of measures to curb the spread of the new coronavirus.`\
-https://nytimes.com/aponline/2020/04/07/world/europe/ap-eu-croatia-lawmakers.html?searchResultPosition=8
+**Japan Declared a Coronavirus Emergency. Is It Too Late?**\
+`Some medical experts said the move amounted to a tacit admission that the approach the country had adopted for months was no longer working.`\
+https://nytimes.com/2020/04/07/world/asia/japan-coronavirus-emergency.html?searchResultPosition=8
 
-**With Boris Johnson Ailing, U.K. Faces a Leadership Quandary**\
-`Lacking a written constitution, Britain has no codified order of succession for prime minister. For now, the foreign secretary, Dominic Raab, will take the reins.`\
-https://nytimes.com/2020/04/07/world/europe/boris-johnson-coronavirus.html?searchResultPosition=9
+**Tiny Digital Businesses Play Key Role in Local Economies, Study Says**\
+`A new study examines the millions of small digital businesses. They could help many communities weather the economic blow from the coronavirus outbreak.`\
+https://nytimes.com/2020/04/07/technology/tiny-digital-businesses-play-key-role-in-local-economies-study-says.html?searchResultPosition=9
 
-**Japan's SoftBank to Invest $48 Million in Brazil Pet Products Site Petlove**\
-`Japan's SoftBank Group Corp reached an agreement to invest 250 million reais ($48 million) in pet products online retailer Petlove, the companies said in a statement on Tuesday.`\
-https://nytimes.com/reuters/2020/04/07/business/07reuters-softbank-group-latam-petlove.html?searchResultPosition=10
+**What Will Tomorrow’s Workplace Bring? More Elbow Room, for Starters**\
+`The pandemic may result in fundamental changes, altering how office buildings are designed. In the short term, expect more hand sanitizer and less “hot-desking.”`\
+https://nytimes.com/2020/04/07/business/workplace-telecommuting-coronavirus.html?searchResultPosition=10
 
