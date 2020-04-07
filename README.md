@@ -1,24 +1,24 @@
+**New Battle for Those on the Coronavirus Front Lines: Child Custody**\
+`Doctors, firefighters and others who risk exposure to Covid-19 are being taken to court by ex-spouses who want to keep them away from their children.`\
+https://nytimes.com/2020/04/07/us/coronavirus-child-custody.html?searchResultPosition=5
+
+**With Demand Soaring, Congress Weighs Adding $250 Billion in Small-Business Aid**\
+`Less than two weeks after enactment of a $2 trillion stimulus plan, the Trump administration is asking for a fresh infusion of funds to help businesses survive the economic damage of the coronavirus.`\
+https://nytimes.com/2020/04/07/us/politics/coronavirus-congress-small-businesses.html?searchResultPosition=6
+
+**‘Thanking God for My Breath’: Dispatch From New York’s Frontline**\
+`An E.R. doctor predicted the chaos that Covid-19 would unleash long before it was declared a pandemic. Then she came down with it herself.`\
+https://nytimes.com/2020/04/07/us/female-doctor-coronavirus-frontline.html?searchResultPosition=7
+
+**Players, Managers Intrigued by MLB's All-Arizona Option**\
+`Boston’s Chris Sale, out for the season following Tommy John surgery, thought about the prospect of his teammates sequestered in the Phoenix area for an extended period if Major League Baseball and its players adopt an all-Arizona start to the season.`\
+https://nytimes.com/aponline/2020/04/07/sports/baseball/ap-bbo-virus-outbreak-baseball.html?searchResultPosition=8
+
+**Jack Dorsey Vows to Donate $1 Billion to Fight the Coronavirus**\
+`The founder of Twitter and Square said he was putting nearly a third of his total wealth toward the effort.`\
+https://nytimes.com/2020/04/07/technology/jack-dorsey-donate-1-billion-coronavirus.html?searchResultPosition=9
+
 **Coronavirus, Wisconsin, Pandas: Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/04/07/briefing/coronavirus-wisconsin-pandas.html?searchResultPosition=5
-
-**Families With Food Allergies Struggle With Bare Shelves**\
-`As the coronavirus spreads and locked-down communities stock up, products needed by allergy sufferers are increasingly hard to come by.`\
-https://nytimes.com/2020/04/07/health/coronavirus-food-allergies.html?searchResultPosition=6
-
-**Uruguay to Repatriate 112 Australians, New Zealanders From Coronavirus-Hit Cruise Ship**\
-`Uruguay said on Tuesday it has agreed to repatriate 112 Australians and New Zealanders from a cruise ship that has been stranded in the La Plata River near Montevideo since March 27, with most of the 219 passengers infected by coronavirus. `\
-https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-uruguay-cruiseship.html?searchResultPosition=7
-
-**Ecuador's Former President Found Guilty of Corruption**\
-`An Ecuadorian court sentenced former president Rafael Correa on Tuesday to eight years in prison after finding him guilty of corruption charges. `\
-https://nytimes.com/reuters/2020/04/07/technology/07reuters-politics-ecuador.html?searchResultPosition=8
-
-**First Patients Arrive at London's New Coronavirus Hospital**\
-`The first patients have been admitted to the new Nightingale Hospital in London, which has been set up in just nine days at the Excel Exhibition Centre to handle the coronavirus crisis. `\
-https://nytimes.com/reuters/2020/04/07/world/europe/07reuters-health-coronavirus-britain-hospital-nightingale.html?searchResultPosition=9
-
-**The Masters in November Is Better Than No Masters at All**\
-`C.T. Pan could become a footnote in history at Augusta National. Imagine qualifying for his first Masters and then having to wait 571 days before he can hear the most understated announcement in golf.`\
-https://nytimes.com/aponline/2020/04/07/sports/golf/ap-glf-on-the-fringe-masters.html?searchResultPosition=10
+https://nytimes.com/2020/04/07/briefing/coronavirus-wisconsin-pandas.html?searchResultPosition=10
 
