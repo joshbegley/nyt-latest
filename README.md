@@ -26,8 +26,8 @@ https://nytimes.com/interactive/2020/04/07/magazine/italy-hospitals-covid.html?s
 `Hong Kong said on Wednesday social-distancing restrictions including the closure of some bars and pubs and a ban on public gatherings of more than four people would be extended until April 23 as it battles to halt the spread of coronavirus.`\
 https://nytimes.com/reuters/2020/04/07/world/asia/07reuters-health-coronavirus-hongkong.html?searchResultPosition=7
 
-**Country Folk Singer John Prine Dies at 73 of Coronavirus Complications: Report**\
-`Grammy-winning singer John Prine, who wrote his early songs in his head while delivering mail and later emerged from Chicago's folk revival scene in the 1970s to become one of the most influential songwriters of his generation, died on Tuesday, the New York Times reported. He was 73.`\
+**Country Folk Singer John Prine Dies at 73 of Coronavirus Complications**\
+`Grammy-winning singer John Prine, who wrote his early songs in his head while delivering mail and later emerged from Chicago's folk revival scene in the 1970s to become one of the most influential songwriters of his generation, died on Tuesday. He was 73.`\
 https://nytimes.com/reuters/2020/04/07/arts/07reuters-people-john-prine.html?searchResultPosition=8
 
 **Winging It**\
