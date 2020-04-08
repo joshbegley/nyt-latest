@@ -1,40 +1,40 @@
+**Hong Kong to Offer HK$100 Billion COVID-19 Relief Package: SCMP**\
+`Hong Kong government will offer a relief package worth more than HK$100 billion ($12.90 billion) to help workers and businesses struggling with COVID-19 crisis, the South China Morning Post reported https://bit.ly/2woconH on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-hong-kong-relief.html?searchResultPosition=1
+
 **Here’s How Those Hot Jigsaw Puzzles Are Made**\
 `The coronavirus has sent businesses racing as demand surges past levels seen at Christmas.`\
-https://nytimes.com/2020/04/08/business/coronavirus-jigsaw-puzzles.html?searchResultPosition=1
+https://nytimes.com/2020/04/08/business/coronavirus-jigsaw-puzzles.html?searchResultPosition=2
 
 **French Military Ship Heading Back to Port Due to Possible COVID-19 Cases**\
 `France's flagship military aircraft carrier the Charles de Gaulle is on its way back to port after some staff on board showed signs of COVID-19 symptoms, said the French armed forces ministry on Wednesday.`\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-france-military.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-france-military.html?searchResultPosition=3
 
 **India Savors a Rare Upside to Coronavirus: Clean Air**\
 `Delhi residents are stunned by how blue the sky really is as a strict lockdown cuts back drastically on air pollution.`\
-https://nytimes.com/2020/04/08/world/asia/india-pollution-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/04/08/world/asia/india-pollution-coronavirus.html?searchResultPosition=4
 
 **AP PHOTOS: German Charity Goes Home-To-Home in Virus Crisis**\
 `Poor families are particularly hard-hit by the coronavirus pandemic, even in rich countries like Germany.`\
-https://nytimes.com/aponline/2020/04/08/world/europe/bc-eu-virus-outbreak-germany-helping-families.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/04/08/world/europe/bc-eu-virus-outbreak-germany-helping-families.html?searchResultPosition=5
 
 **French Virus Lockdown Should Be Extended for Weeks: Chief Adviser**\
 `France should extend its lockdown period for several weeks in order to contain the coronavirus epidemic, the head of the medical council advising the government said on France Info radio on Wednesday.`\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-france-confinement.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-france-confinement.html?searchResultPosition=6
 
 **China Orders Baidu to Clean Up 'Low-Brow Content'**\
 `China'a internet regulator ordered search engine Baidu to clean up improper information and halt the spread of "low-brow content."`\
-https://nytimes.com/reuters/2020/04/08/technology/08reuters-baidu-order.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/04/08/technology/08reuters-baidu-order.html?searchResultPosition=7
 
 **European Shares Retreat After Two-Day Rally as Tesco Slumps**\
 `European shares dipped on Wednesday following a two-day rally, as the number of coronavirus deaths rose again in Spain, while France became the fourth country to report a death toll of more than 10,000.`\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-europe-stocks.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-europe-stocks.html?searchResultPosition=8
 
 **BAE Systems Plans to Raise $1.3 Billion in Bonds Due 2030**\
 `Britain's BAE Systems is seeking to raise $1.3 billion in bonds to fund its employee benefit plans and repay debt, the company said on Wednesday, as it braced any blow from the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-bae-systems.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-bae-systems.html?searchResultPosition=9
 
 **Oman Sultan Pardons 599 Prisoners, Including 336 Foreigners: Oman News Agency**\
 `The Sultan of Oman, Haitham bin Tariq al-Said, has pardoned 599 prisoners jailed for various offenses, including 336 foreigners, the state-run Oman News Agency said on Twitter on Wednesday.`\
-https://nytimes.com/reuters/2020/04/08/world/middleeast/08reuters-health-oman-prisoners.html?searchResultPosition=9
-
-**UK Coronavirus Testing Capacity to Be Expanded in May: AstraZeneca CEO**\
-`Britain will have a new coronavirus testing facility capable of carrying out 30,000 tests per day by early May, said the chief executive of British pharmaceutical company AstraZeneca. `\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-astrazeneca.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/08/world/middleeast/08reuters-health-oman-prisoners.html?searchResultPosition=10
 
