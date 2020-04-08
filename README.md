@@ -1,40 +1,40 @@
-**Group Monitoring Tennis Gambling Ties Alert Rise to COVID-19**\
-`The group charged with monitoring gambling and punishing corruption in tennis found a near-doubling in the number of suspect matches during the first three months of 2020 — an increase it tied to the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/08/sports/tennis/ap-ten-virus-outbreak-gambling-alerts.html?searchResultPosition=1
+**Brady to Stern: 'I Never Cared About Legacy'**\
+`Tom Brady knew before the start of last season that it likely was his last ride in New England.`\
+https://nytimes.com/reuters/2020/04/08/sports/football/08reuters-football-nfl-tb-nep-brady-stern.html?searchResultPosition=1
 
-**Race, pollution and the Coronavirus**\
-`Also this week: How to be ready for overlapping disasters`\
-https://nytimes.com/2020/04/08/climate/coronavirus-pollution-race.html?searchResultPosition=2
+**Cycling: Contador Auctions 2011 Bike for Spanish Red Cross**\
+`Seven-time grand tour winner Alberto Contador is auctioning the bike he used during the 2011 Giro d'Italia and Tour de France races and will donate the money to the Spanish Red Cross's fight against the new coronavirus, the Spaniard said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/sports/08reuters-health-coronavirus-cycling-contador.html?searchResultPosition=2
 
-**A New Album Reflects a Composer’s Stubborn Versatility**\
-`Paul Dessau, who collaborated with Bertolt Brecht and Walt Disney, is relatively obscure in part because he diverged from musical trends.`\
-https://nytimes.com/2020/04/08/arts/music/paul-dessau-classical-music.html?searchResultPosition=3
+**Syrian Air Force Behind Chemical Attacks, Investigation Team Finds**\
+`Syrian Arab Air Force pilots flying Sukhoi Su-22 military planes and a helicopter dropped bombs containing poisonous chlorine and sarin nerve gas on a village in the country's western Hama region in March 2017, a new team at the global chemical weapons watchdog has concluded in its first report.`\
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-mideast-syria-chemicalweapons.html?searchResultPosition=3
 
-**Esports: Super League Triathlon Enlists Top Athletes to Compete in Zwift Classics**\
-`Super League Triathlon has made a foray into the world of esports and enlisted leading athletes such as double Olympic champion Alistair Brownlee and reigning Super League champion Vincent Luis to take part in the online Zwift Classics series.`\
-https://nytimes.com/reuters/2020/04/08/sports/cycling/08reuters-health-coronavirus-triathlon-esports.html?searchResultPosition=4
+**Cubans Cast Aside Coronavirus Fears to Search for Scarcer Food**\
+`From the seafront capital Havana to the foothills of the Sierra Maestra mountains, Cubans are defying fear of the new coronavirus to search for food as global trade disruptions worsen shortages of basic goods on the Caribbean island.`\
+https://nytimes.com/reuters/2020/04/08/world/americas/08reuters-health-coronavirus-cuba-economy-feature.html?searchResultPosition=4
 
-**Britain Trying to Get Money Back for Unreliable Antibody Tests, Official Says**\
-`Britain is looking to get its money back after buying some COVID-19 antibody tests to trial them only to find that none of the products worked reliably enough, a British health official said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-britain-antibodies.html?searchResultPosition=5
+**Infantino Talks of Different Football, but What Might It Look Like?**\
+`FIFA president Gianni Infantino has said that football will be "totally different" when it re-starts after the coronavirus. He has talked of smaller, but more meaningful, competitions, more balance and football being "more attentive to true values."`\
+https://nytimes.com/reuters/2020/04/08/sports/soccer/08reuters-health-coronavirus-soccer-fifa.html?searchResultPosition=5
 
-**Vietnam to Ship 450,000 Protective Suits to United States**\
-`Vietnam has expedited the shipment of 450,000 DuPont protective suits to the United States to help healthcare professionals there fight the coronavirus, the U.S. Embassy in Hanoi said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-vietnam.html?searchResultPosition=6
+**Fed Eases Limit on Wells Fargo to Make More Small Biz Loans**\
+`Citing the coronavirus pandemic and an unprecedented need for loans and assistance for small businesses, the Federal Reserve is lifting its lending restrictions on Wells Fargo. `\
+https://nytimes.com/aponline/2020/04/08/business/bc-virus-outbreak-small-business-relief.html?searchResultPosition=6
 
-**Factbox: Global Economic Policy Response to Coronavirus Crisis**\
-`Governments and central banks around the world have unleashed unprecedented fiscal and monetary stimulus and other support for economies floored by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/08/world/08reuters-health-coronavirus-economy-factbox.html?searchResultPosition=7
+**Novelty Toilet Roll Cakes Keep Finnish Baker in Business**\
+`A quick-thinking Helsinki bakery has saved itself from financial ruin due to the new coronavirus pandemic by creating a cake that looks like a toilet roll.`\
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-finland-cake.html?searchResultPosition=7
 
-**AP PHOTOS: As Wuhan Reopens, People Begin to Venture Outside**\
-`Some people couldn't wait to leave town. Others just wanted to get outside and feel free again. All of them wore face masks against the virus that had forced them to stay in their homes for more than two months.`\
-https://nytimes.com/aponline/2020/04/08/world/asia/ap-as-virus-outbreak-wuhan-photo-gallery.html?searchResultPosition=8
+**Fed Says Modifying Wells Fargo Asset Cap So Bank Can Make More Small Business Loans**\
+`The U.S. Federal Reserve said on Wednesday it would "temporarily and narrowly" modify the growth restriction on Wells Fargo & Co's asset cap so the bank can make more loans under government assistance programs for small businesses hurt by the coronavirus disruption.`\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-wells-fargo.html?searchResultPosition=8
 
-**Watch Live: Bernie Sanders Exits Presidential Race**\
-`Senator Bernie Sanders of Vermont announced that he will end his bid for the Democratic nomination for president.`\
-https://nytimes.com/video/us/politics/100000007077496/bernie-sanders-live.html?searchResultPosition=9
+**Fed's Evans Says He Hopes for Recovery to Start in Second Half**\
+`Employment and output will drop sharply this quarter, Chicago Federal Reserve Bank President Charles Evans said Wednesday, but if government programs are successful in getting cash to households and businesses to tide them over while people are staying home amid the pandemic, the economy could start to recover in the second half.`\
+https://nytimes.com/reuters/2020/04/08/us/08reuters-health-coronavirus-fed-evans.html?searchResultPosition=9
 
-**Biden vs. Trump: The General Election Is Here, and Transformed**\
-`The coronavirus crisis means many questions remain about how the 2020 race will proceed, but the top of the ticket is now clear.`\
-https://nytimes.com/2020/04/08/us/politics/joe-biden-donald-trump-2020-election.html?searchResultPosition=10
+**Google Makes Stadia Gaming Service Free**\
+`The $130 entry fee is being waived indefinitely, as interest in playing video games surges during the coronavirus pandemic.`\
+https://nytimes.com/2020/04/08/technology/google-stadia-free-virus.html?searchResultPosition=10
 
