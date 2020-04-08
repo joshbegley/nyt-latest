@@ -1,40 +1,40 @@
-**Malta Records Its First Coronavirus Death**\
-`Malta announced its first death from COVID-19 on Wednesday, a 92-year-old woman with severe underlying medical problems.`\
-https://nytimes.com/reuters/2020/04/08/world/08reuters-health-coronavirus-malta.html?searchResultPosition=1
+**U.S. Senator to Liquidate Individual Stock Shares After Coronavirus Flap**\
+`U.S. Senator Kelly Loeffler said on Wednesday she would liquidate her individual stock share positions after the wealthy Republican and her husband were criticized over sales of millions of dollars in stock during the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-usa-senator.html?searchResultPosition=1
 
-**Trade Forecast, Bernie Sanders, India’s Air: Your Thursday Briefing**\
-`Let us help you start your day. `\
-https://nytimes.com/2020/04/08/briefing/trade-forecast-bernie-sanders-indias-air.html?searchResultPosition=2
+**Airbnb Warns 2020 Revenue Can Fall by Half Amid COVID-19 Hit: The Information**\
+`Home rental company Airbnb has projected its revenue can fall about 54% to some $2.2 billion this year due to the COVID-19 pandemic, The Information reported on Wednesday, citing people familiar with the matter.`\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-airbnb-outlook.html?searchResultPosition=2
 
-**France's Macron 'Refuses to See WHO Locked Into U.S.-China War': Elysee**\
-`French President Emmanuel Macron offered his full support to the World Health Organization (WHO) in a call with its director on Wednesday, a day after U.S. President Donald Trump criticised the international organisation.`\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-france-who.html?searchResultPosition=3
+**The List of U.S. Treasury Questions for Airlines Seeking Bailout Cash**\
+`U.S. Treasury officials have asked airlines seeking money from a $25 billion fund for payroll support to provide detailed information on their capital structure, liquidity and collateral, people briefed on the matter said.`\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-usa-airlines-factbox.html?searchResultPosition=3
 
-**'We'll Be a History Project': Children in the U.S. Talk About the Coronavirus**\
-`"I feel like 20 years from now, we'll be a history project." `\
-https://nytimes.com/reuters/2020/04/08/us/08reuters-health-coronavirus-usa-kids.html?searchResultPosition=4
+**Google Bans Zoom Software From Employee Laptops**\
+`Alphabet Inc's Google on Wednesday banned Zoom video conferencing application from its employees' laptops, citing security concerns. `\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-google-zoom.html?searchResultPosition=4
 
-**Italy PM Rebuffs Employers' Call to Ease Coronavirus Lockdown**\
-`Prime Minister Giuseppe Conte said on Wednesday that Italy must stick with its rigid lockdown to try to curb the COVID-19 epidemic, rejecting calls from businesses to reopen factories.`\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-italy-conte.html?searchResultPosition=5
+**Nasdaq CEO Hopeful IPOs Will Pickup Again in Second Half**\
+`Nasdaq Inc is hopeful initial public offerings will pick up in the second half of 2020, but much depends on how well companies and investors emerge from the coronavirus pandemic, the head of the exchange operator said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-nasdaq.html?searchResultPosition=5
 
-**Dow Jones Chief, William Lewis, to Step Down**\
-`Mr. Lewis, who is also the publisher of The Wall Street Journal, said he was leaving the company in “strong financial shape.”`\
-https://nytimes.com/2020/04/08/business/media/dow-jones-wall-street-journal-william-lewis.html?searchResultPosition=6
+**Zoom Rushes to Improve Privacy for Consumers Flooding Its Service**\
+`The features that allowed companies to hop on videoconferences also made it easy for trolls to hijack meetings and harass students.`\
+https://nytimes.com/2020/04/08/business/zoom-video-privacy-security-coronavirus.html?searchResultPosition=6
 
-**7 Answers to Questions About the Malaria Drug Trump Keeps Pushing**\
-`Here are the facts on hydroxychloroquine, which the president has promoted despite little evidence that it works against the coronavirus.`\
-https://nytimes.com/2020/04/08/health/coronavirus-hydroxychloroquine-malaria.html?searchResultPosition=7
+**Starting to Run Out of Time to Build Facilities to Assist Coronavirus Efforts: Army Corps**\
+`The Army Corps of Engineers said on Wednesday that time was running out to build new facilities to help in efforts to combat the coronavirus around the United States.`\
+https://nytimes.com/reuters/2020/04/08/us/08reuters-health-coronavirus-usa-army.html?searchResultPosition=7
 
-**AP FACT CHECK: Trump Skews Truth on Lending Aid, Virus Risk**\
-`President Donald Trump offered a rosy portrait of a smoothly running federal emergency lending program for small businesses that doesn't match reality and revised history yet again on how seriously he took the coronavirus threat, suggesting he likened it to a pandemic flu. He never did.`\
-https://nytimes.com/aponline/2020/04/08/business/ap-us-virus-outbreak-trump-fact-check.html?searchResultPosition=8
+**U.S. Nurses Who Can't Get Tested Fear They Are Spreading COVID-19**\
+`In New York City, an intensive care nurse treated patients for three days after she started displaying symptoms of COVID-19 - but couldn't get a test from her hospital. In Georgia, a nurse was denied a test after treating an infected patient who died. `\
+https://nytimes.com/reuters/2020/04/08/us/08reuters-health-coronavirus-usa-nurses.html?searchResultPosition=8
 
-**Poachers Kill More Rhinos as Coronavirus Halts Tourism to Africa**\
-`Threatened and endangered animals may become additional casualties of the pandemic.`\
-https://nytimes.com/2020/04/08/science/coronavirus-poaching-rhinos.html?searchResultPosition=9
+**FDA Approves Generic to Commonly Used Inhaler as Demand Surges Due to Coronavirus**\
+`The U.S Food and Drug Administration on Wednesday approved https://reut.rs/2RnpE3h first generic of a commonly used albuterol sulfate-based inhaler, catering to increased demand from COVID-19 patients suffering from breathing difficulties.`\
+https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-fda-cipla.html?searchResultPosition=9
 
-**Outcry Over Racial Data Grows as Virus Slams Black Americans**\
-`As the coronavirus tightens its grip across the country, it is cutting a particularly devastating swath through an already vulnerable population — black Americans.`\
-https://nytimes.com/aponline/2020/04/08/us/ap-us-virus-outbreak-race.html?searchResultPosition=10
+**Doctor's Death Highlights Limits of Coronavirus Death Count**\
+`As the coronavirus bore down on New York, Dr. Doug Bass' family begged him to work from home. He refused, pointing to his patients at Phoenix House, a drug and alcohol treatment center where he served as medical director. `\
+https://nytimes.com/aponline/2020/04/08/us/ap-us-virus-outbreak-the-uncounted.html?searchResultPosition=10
 
