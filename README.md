@@ -31,7 +31,7 @@ https://nytimes.com/aponline/2020/04/08/us/politics/ap-us-virus-outbreak-melania
 https://nytimes.com/2020/04/08/world/americas/ecuador-coronavirus.html?searchResultPosition=8
 
 **Why Blacks Are Hit Harder by the Coronavirus**\
-`A doctor explains how systemic inequality is playing out in the pandemic. Also: The changing face of grief; domestic abuse in the immigrant community; social distancing on sidewalks.`\
+`How systemic inequality is playing out in the pandemic. Also: Sanctions on Iran; the changing face of grief; domestic abuse in the immigrant community; social distancing on sidewalks.`\
 https://nytimes.com/2020/04/08/opinion/letters/coronavirus-race-inequality.html?searchResultPosition=9
 
 **Saudi-Led Coalition to Announce Yemen Ceasefire at Midnight: Sources**\
