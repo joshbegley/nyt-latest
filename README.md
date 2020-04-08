@@ -1,40 +1,40 @@
-**'Painful Lesson': How a Military-Style Lockdown Unfolded in Wuhan**\
-`As the world grapples with the escalating coronavirus pandemic, China reopened the city of Wuhan on Wednesday, allowing its 11 million residents to leave for the first time in over two months, a milestone in its effort to combat the outbreak.`\
-https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-wuhan-scientists-insight.html?searchResultPosition=1
+**Polish Presidential Postal Ballot Raises Concern: EU Commissioner**\
+`Poland's last-minute decision to carry out its May presidential elections by post due to the coronavirus pandemic has raised "concern", EU Values and Transparency Commissioner Vera Jourova told Polish daily Rzeczpospolita on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-poland-election.html?searchResultPosition=1
 
-**Latest on the Spread of the Coronavirus Around the World**\
-`The number of confirmed infections of the novel coronavirus exceeded 1.38 million globally and the death toll crossed 81,400, according to a Reuters tally as of 0200 GMT.`\
-https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-latest-factbox.html?searchResultPosition=2
+**Serena's Coach Says 'Revolting' That Players Can't Make a Living**\
+`Serena Williams' coach Patrick Mouratoglou has called on tennis governing bodies to come together and devise a way of helping lower level professionals struggling financially due to the coronavirus shutdown.`\
+https://nytimes.com/reuters/2020/04/08/sports/tennis/08reuters-health-coronavirus-tennis.html?searchResultPosition=2
 
-**Masked Crowds Fill Streets and Trains in Post-Lockdown Wuhan**\
-`After more than two months indoors, Wuhan resident Tong Zhengkun was one of millions of people enjoying a renewed sense of freedom Wednesday when the Chinese city's 76-day coronavirus lockdown was lifted. `\
-https://nytimes.com/aponline/2020/04/08/world/asia/ap-as-virus-outbreak-china-lockdown-lifted.html?searchResultPosition=3
+**AP Was There: Faldo Wins a Masters Known for Shark Tanking**\
+`By The Associated Press`\
+https://nytimes.com/aponline/2020/04/08/sports/golf/ap-glf-ap-was-there-1996-masters.html?searchResultPosition=3
 
-**Outbreak Poses Dilemma for Palestinians Working in Israel**\
-`At the construction site in Tel Aviv, Jamal Salman and the other Palestinian workers wore gloves and masks, and their employer provided apartments for them to stay overnight.`\
-https://nytimes.com/aponline/2020/04/08/world/middleeast/ap-ml-virus-outbreak-palestinian-workers.html?searchResultPosition=4
+**College Baseball Talent Level to Go Up With Change to Draft**\
+`As disappointing as it's been to have the college baseball season shut down because of the coronavirus pandemic, Michigan coach Erik Bakich sees a silver lining.`\
+https://nytimes.com/aponline/2020/04/08/sports/baseball/ap-bbc-virus-outbreak-college-baseball.html?searchResultPosition=4
 
-**Word + Quiz: bonanza**\
-`This word has appeared in 98 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/04/08/learning/word-quiz-bonanza.html?searchResultPosition=5
+**The Latest: Report: Japan's Economy to Shrink by Record 25%**\
+`The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
+https://nytimes.com/aponline/2020/04/08/business/ap-virus-outbreak-the-latest.html?searchResultPosition=5
 
-**Dollar Firms as Virus Worries Return**\
-`The dollar found a footing on Wednesday as investors returned to safe-havens, reversing some risk currency gains made on hopes the coronavirus crisis in Europe and New York was slowing.`\
-https://nytimes.com/reuters/2020/04/08/business/08reuters-global-forex.html?searchResultPosition=6
+**Euro Zone Talks on Coronavirus Econ Support Package Suspended Until Thursday**\
+`The chairman of euro zone finance ministers Mario Centeno said on Wednesday he was suspending talks on half a trillion euro package to support the economy against the coronavirus epidemic until Thursday, to bridge divisions over its elements.`\
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-eurogroup-suspension.html?searchResultPosition=6
 
-**New York's Virus Toll Tops 9/11, While Wuhan Ends Lockdown**\
-`As New York City faced one of its darkest days with the death toll from the coronavirus surging past 4,000 — more than the number killed on 9/11 — the Chinese city where the global pandemic began lifted its final restrictions on movement Wednesday as deaths there plummeted.`\
-https://nytimes.com/aponline/2020/04/08/us/ap-virus-outbreak.html?searchResultPosition=7
+**France's Central Bank Estimates First-Quarter GDP Shrunk 6% From Previous Quarter**\
+`France's economy likely contracted 6% in the first quarter from the previous three months as a nationwide lockdown due to the coronavirus outbreak shut down vast swathes of the economy, the central bank estimated on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-france-economy.html?searchResultPosition=7
 
-**African-Americans Dying of Coronavirus at Higher Rates, Preliminary Data Shows**\
-`The new coronavirus is killing African-Americans at a higher rate than the U.S. population at large, according to preliminary numbers from Louisiana, Michigan and Illinois that officials say point to disparities in health and healthcare access.`\
-https://nytimes.com/reuters/2020/04/08/us/08reuters-health-coronavirus-usa-race.html?searchResultPosition=8
+**UK Fashion Retailer ASOS Raises 247 Million Pounds in Placing**\
+`British online fashion retailer ASOS Plc said it had raised 247 million pounds ($304 million) via a placing, to help it shore up its finances in case of a prolonged business downturn from the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-asos.html?searchResultPosition=8
 
-**Asian Shares Turn Mixed, Oil Rebounds in Choppy Trade**\
-`Asian stocks were mixed on Wednesday after two sessions of sharp gains as investors tempered their optimism about the coronavirus while death tolls were still mounting across the globe.`\
-https://nytimes.com/reuters/2020/04/08/business/08reuters-global-markets.html?searchResultPosition=9
+**Bank of England Backs COVID-19 Pause in Insurers' Dividends**\
+`The Bank of England said on Wednesday that it welcomed the decision by some insurers to pause paying dividends due to the risk of heavy costs from the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-britain-boe-insurance.html?searchResultPosition=9
 
-**Exclusive: China's Central Bank to Step Up Easing, Won't Borrow Fed Playbook-Sources**\
-`China's central bank will ramp up its policy easing to support the coronavirus-ravaged economy but debt worries and property risks will prevent it from following the U.S. Federal Reserve's steep rate cuts or quantitative easing moves, policy sources said.`\
-https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-china-pboc-exclusive.html?searchResultPosition=10
+**Late Night Says Wisconsin’s Voting Day Is a ‘Coronavirus All-You-Can-Eat Buffet’**\
+`“I guess it’s the Wisconsin way of showing New Hampshire that you can live free and die,” Stephen Colbert joked of Wisconsin’s voting.`\
+https://nytimes.com/2020/04/08/arts/television/late-night-wisconsin-voting-coronavirus.html?searchResultPosition=10
 
