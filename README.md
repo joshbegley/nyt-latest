@@ -1,40 +1,40 @@
-**Coronavirus Live Updates: Virus Kills More in New York Than 9/11 Did; Trump Threatens W.H.O. Funding**\
-`President Trump sidelined the top official monitoring how the administration spends the $2 trillion relief package. New York, New Jersey and Connecticut all announced their highest daily death tolls this week.`\
-https://nytimes.com/2020/04/08/us/coronavirus-updates.html?searchResultPosition=1
+**The Magic of Empty Streets**\
+`Social distancing gives us a rare chance to fix cities.`\
+https://nytimes.com/2020/04/08/opinion/coronavirus-tips-new-york-san-francisco.html?searchResultPosition=1
 
-**Craft-Brewed Hand Sanitizer**\
-`There’s a dire need for medical and other supplies for hospitals. Some unexpected businesses are stepping up to help.`\
-https://nytimes.com/video/opinion/100000007063653/dogfish-head-hand-sanitizer-coronavirus.html?searchResultPosition=2
+**Head of EU's Top Science Body Quits Over Coronavirus Response**\
+`The president of the European Union's main science organisation has quit the post he took up only in January, the European Commission said, over frustration at the EU response to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-eu-scientist.html?searchResultPosition=2
 
-**Honda Back to Work in China's Wuhan With Temperature Checks and Masks**\
-`Temperature checkpoints and posters telling workers to keep more than a metre apart at Japanese automaker Honda Motor Co's reopened plant in the Chinese city of Wuhan show how the coronavirus has created a new normal on the factory floor.`\
-https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-china-wuhan-honda.html?searchResultPosition=3
+**‘That Is What We Do’: The Power of Passover and Tradition Across Generations**\
+`Jewish families on Wednesday will again recount the 10 plagues from the Book of Exodus. Only this year will be a little different.`\
+https://nytimes.com/2020/04/08/us/passover-seder-plagues-coronavirus.html?searchResultPosition=3
 
-**How Coronavirus at Rikers Puts All of N.Y.C. at Risk**\
-`Officials have promised a mass release of inmates from city jails to slow the spread of coronavirus. Critics say the government isn’t moving fast enough.`\
-https://nytimes.com/video/us/100000007059873/coronavirus-rikers-island.html?searchResultPosition=4
+**Cruise Lines Were Shut Out of the Stimulus. Here’s Why.**\
+`The hard-hit sector of the travel industry was left out of the $2 trillion stimulus package. Century-old tax provisions help explain what happened.`\
+https://nytimes.com/2020/04/08/travel/cruises-coronavirus-stimulus.html?searchResultPosition=4
 
-**Fire at Building Site of Palace in Berlin**\
-`A fire broke out on Wednesday at the royal palace that is being rebuilt at great expense in central Berlin, the fire service said.`\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-germany-palace-fire.html?searchResultPosition=5
+**Rents Are Late, and ‘It’s Only Going to Get Worse’**\
+`As the economic shutdown pares tenants’ incomes, April payments have been reduced, deferred or withheld. Some landlords see their property at risk.`\
+https://nytimes.com/2020/04/08/business/economy/coronavirus-rent.html?searchResultPosition=5
 
-**Explosion on Road in Southeast Turkey Kills 5**\
-`An improvised explosive device went off on a road in southeast Turkey on Wednesday, killing five forestry workers traveling to work, officials said.`\
-https://nytimes.com/aponline/2020/04/08/world/europe/ap-eu-turkey-kurds.html?searchResultPosition=6
+**Cuomo, Fauci, Birx: The New Influencers**\
+`This is what authority looks like today.`\
+https://nytimes.com/2020/04/08/fashion/fauci-birx-cuomo-style-influencers.html?searchResultPosition=6
 
-**China Snake Village Scales Down as Coronavirus Prompts Wildlife Trade Ban**\
-`Since China began frantic efforts to curb a coronavirus epidemic in late January, residents in the tiny snake breeding village of Zisiqiao have had to come to terms with a ban on wildlife trading, its lifeline for decades. `\
-https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-china-snakes.html?searchResultPosition=7
+**‘I’m in High School Again’: Virus Sends College Students Home to Parents, and Their Rules**\
+`Their college campuses closed, crestfallen students have journeyed back to their childhood bedrooms — and to chores, revived sibling rivalries and curfews.`\
+https://nytimes.com/2020/04/08/us/coronavirus-college-students.html?searchResultPosition=7
 
-**BMW to Start Producing Face Masks**\
-`German carmaker BMW will start producing face masks to help protect its own staff and the public against the spread of the new coronavirus, Chief Executive Oliver Zipse said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-bmw.html?searchResultPosition=8
+**Want to Be Better at Sports? Listen to the Machines**\
+`The pattern-recognizing power of machine learning is affecting players, teams, sports medicine and even betting.`\
+https://nytimes.com/2020/04/08/technology/ai-sports-athletes-machine-learning.html?searchResultPosition=8
 
-**Former Citic Bank President Arrested on Corruption Charge: China Prosecutor**\
-`The top Chinese prosecutor said on Wednesday that Sun Deshun, former president of China's Citic Bank Corp Ltd, had been arrested on a charge of corruption.`\
-https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-china-corruption-citic.html?searchResultPosition=9
+**Raising a Glass, Remotely**\
+`You can’t go to the vineyard, but some of Napa and Sonoma’s best wineries are letting you buy a bottle, then participate in streamed tastings.`\
+https://nytimes.com/2020/04/08/travel/coronavirus-wine-tastings.html?searchResultPosition=9
 
-**As Europe Confronts the Coronavirus, What Shape Will Solidarity Take?**\
-`Contentious talks over how to help economies decimated by the virus have become a pivotal political moment for the world’s richest bloc of nations.`\
-https://nytimes.com/2020/04/08/world/europe/eu-coronavirus-aid.html?searchResultPosition=10
+**For H.I.V. Survivors, a Feeling of Weary Déjà Vu**\
+`Some of them are now senior citizens: vulnerable again, mistrustful of government directives about coronavirus and unable to organize.`\
+https://nytimes.com/2020/04/08/style/coronavirus-hiv.html?searchResultPosition=10
 
