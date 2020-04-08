@@ -1,40 +1,40 @@
-**Ecuador Struggles to Bury Coronavirus Dead; Some Bodies Lost**\
-`Alfonso Cedeño died at a crowded hospital in the Ecuadorian city of Guayaquil, where the only bed doctors could offer was an ambulance stretcher. Two weeks later, his family doesn’t know where his body is.`\
-https://nytimes.com/aponline/2020/04/08/world/americas/ap-lt-virus-outbreak-ecuador.html?searchResultPosition=1
+**Coronavirus Will Hit Jobs, Livelihoods, Says Sunak**\
+`Britain's economy and people's livelihoods will take a hit due to the coronavirus outbreak which has forced a lockdown of much of society, finance minister Rishi Sunak said on Wednesday, adding that the government had taken the right steps to get through the crisis.    `\
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-britain-economy.html?searchResultPosition=1
 
-**Tradition Stymied: A Year Unlike Any Since WWII for Augusta**\
-`The Masters is so intertwined with Augusta, they added an extra day to spring break.`\
-https://nytimes.com/aponline/2020/04/08/sports/ap-us-sports-deserted-icons-augusta.html?searchResultPosition=2
+**UK Coronavirus Cases and Hospital Admissions Starting to 'Plateau'**\
+`The number of coronavirus infections and hospital admissions in Britain is beginning to show signs of flattening, Stephen Powis,  medical director of the National Health Service, said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-britain-plateau.html?searchResultPosition=2
 
-**Microloans, Seen as Salvation for Poor Women, Trap Many in Debt**\
-`In Jordan, an unregulated microloan industry offers easy money. But with no way to repay loans, many women end up buried in debt, or in prison.`\
-https://nytimes.com/2020/04/08/world/middleeast/microloans-jordan-debt-poverty.html?searchResultPosition=3
+**Athletics: Sweden's European Cross-Country Champion Fsiha Fails Dope Test**\
+`Swedish cross-country runner Robel Fsiha, who won gold at the European Championships in Lisbon in December, is under investigation by the country's Anti-Doping Agency after testing positive for an unnamed substance.`\
+https://nytimes.com/reuters/2020/04/08/sports/08reuters-sport-doping-fsiha.html?searchResultPosition=3
 
-**Angry Fans Say First the Concerts Were Canceled, Then the Refunds**\
-`Ticket vendors are being criticized for treating the thousands of live events that were called off as postponements, on which some do not offer refunds.`\
-https://nytimes.com/2020/04/08/arts/music/ticketmaster-refunds-coronavirus.html?searchResultPosition=4
+**Broadway Extends Coronavirus Shutdown Through June 7**\
+`Broadway theaters, among New York's most-visited tourist attractions, will remain closed through June 7 due to the global coronavirus outbreak, an industry group said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/arts/08reuters-health-coronavirus-broadway.html?searchResultPosition=4
 
-**Ireland's Fine Gael and Fianna Fail Near Deal, Seek Third Ruling Partner**\
-`Ireland's Fianna Fail and Fine Gael will publish an agreement in the next day or so aimed at attracting enough additional support to form a government two months after an inconclusive election, senior members of both parties said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-ireland-politics.html?searchResultPosition=5
+**Gaza Runs Out of Coronavirus Tests, Palestinian Health Officials Say**\
+`The Gaza Strip has no more coronavirus test kits, Palestinian health officials said on Wednesday, amid fears of disaster if the illness spreads in the blockaded, densely packed enclave.`\
+https://nytimes.com/reuters/2020/04/08/world/middleeast/08reuters-health-coronavirus-palestinians-gaza.html?searchResultPosition=5
 
-**Somalia Has Registered First Death From Coronavirus: Health Minister**\
-`Somalia said on Wednesday it had registered its first death from coronavirus, the Horn of African country's health minister said without giving details about the patient.`\
-https://nytimes.com/reuters/2020/04/08/world/africa/08reuters-health-coronavirus-somalia.html?searchResultPosition=6
+**Toyota Extends North American Plant Shutdown; Will Stop Paying 5,000 Temporary Workers**\
+`Toyota Motor Corp said Wednesday it plans to reopen its North American auto plants on May 4, extending its current shutdown by two additional weeks.`\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-toyota.html?searchResultPosition=6
 
-**Man Behind France Knife Attack Charged With Terrorism Offences, Murder**\
-`French authorities have charged with terrorism offences and murder a man who carried out a fatal knife attack southeastern France at the weekend, the French anti-terrorist prosecutor’s office told Reuters on Wednesday.`\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-france-security.html?searchResultPosition=7
+**WHO Head Dismisses Suggestions He's Too Close to China**\
+`World Health Organization Director General Tedros Adhanom Ghebreyesus dismissed suggestions that his agency was too close to China after criticism by U.S. President Donald Trump.`\
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-who-tedros.html?searchResultPosition=7
 
-**Read Bernie Sanders’s Full Speech on Ending His Campaign**\
-`“While this campaign is coming to an end, our movement is not,” Mr. Sanders said in a video address on Wednesday.`\
-https://nytimes.com/2020/04/08/us/politics/bernie-sanders-concession-speech.html?searchResultPosition=8
+**Timeline: Norwegian Air Targets Relaunch With Debt-For-Equity Deal**\
+`Norwegian Air plans to convert up to $4.3 billion of its debt into equity and to issue new shares as it seeks to stay in business following the COVID-19 outbreak that has grounded almost all of its fleet.`\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-norwegianair-history.html?searchResultPosition=8
 
-**Snooker: Hearn to Return Home After Successful Surgery Following Heart Attack**\
-`World Snooker Tour chairman Barry Hearn is in "good spirits" after suffering a minor heart attack on Sunday and is set to return home following successful surgery, the 71-year-old's son Eddie Hearn confirmed on Wednesday.`\
-https://nytimes.com/reuters/2020/04/08/sports/08reuters-snooker-hearn.html?searchResultPosition=9
+**Colombian Capital to Restrict Outings by Gender During Quarantine**\
+`Colombia's capital Bogota will restrict outings to buy supplies or carry out financial transactions by gender beginning Monday, the mayor's office said in a decree on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/world/americas/08reuters-health-coronavirus-colombia.html?searchResultPosition=9
 
-**Lufthansa's Austrian Unit Negotiates State Aid, Job Cuts**\
-`Austrian Airlines is in negotiations with the government regarding state aid to save jobs and keep Vienna as a transfer hub for long-haul flights, the carrier said on Wednesday, adding the talks were at an early stage and will probably take weeks.`\
-https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-lufthansa-austria.html?searchResultPosition=10
+**Norwegian Air Seeks $4.3 Billion Debt-For-Equity Deal as Crisis Deepens**\
+`Norwegian Air plans to convert up to $4.3 billion of its debt into equity and to issue new shares as it seeks to stay in business following the COVID-19 outbreak that has grounded almost all of its fleet, the budget carrier said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-norwegianair.html?searchResultPosition=10
 
