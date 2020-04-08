@@ -1,40 +1,40 @@
+**U.S. to Seize Exports of Masks and Gloves Amid Coronavirus Crisis**\
+`The United States will seize exports of key protective medical gear until it determines whether the equipment should be kept in the country to combat the spread of the new coronavirus, two federal agencies announced on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/us/08reuters-health-coronavirus-usa-supplies.html?searchResultPosition=1
+
+**France's Macron to Address Nation on Monday on Coronavirus Crisis**\
+`French President Emmanuel Macron will address the nation regarding the new coronavirus situation on Monday evening, the presidential palace said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-france-macron.html?searchResultPosition=2
+
+**Trump Thanks India for Decision on Anti-Malaria Drug**\
+`President Donald Trump on Wednesday thanked India for its decision to increase exports of the anti-malaria drug hydroxychloroquine, an unproven treatment that Trump has promoted in the fight against the novel coronavirus.`\
+https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-usa-hcq.html?searchResultPosition=3
+
+**Italy Working on Coronavirus Tracing App to Help Lockdown Exit**\
+`Italian authorities are working on introducing a smartphone app that would help health services trace the contacts of people who test positive for the coronavirus as the government looks at ways of gradually lifting a lockdown imposed a month ago.   `\
+https://nytimes.com/reuters/2020/04/08/technology/08reuters-health-coronavirus-italy-technology.html?searchResultPosition=4
+
+**20 Doctors at Mexican Public Hospital Test Positive for Coronavirus**\
+`At least 20 doctors at a public hospital outside Mexico City have tested positive for the coronavirus, the head of Mexico's social security institute (IMSS) said on Wednesday, in the second major outbreak among health workers in the country.`\
+https://nytimes.com/reuters/2020/04/08/world/americas/08reuters-health-coronavirus-mexico-healthcare.html?searchResultPosition=5
+
+**Ten Thousand More U.S. National Guard Troops to Help With Coronavirus Efforts in Coming Weeks**\
+`The number of National Guard troops helping combat coronavirus is expected to increase by more than 10,000 in the next week or two, the head of the U.S. National Guard said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/us/08reuters-health-coronavirus-usa-nationalguard.html?searchResultPosition=6
+
+**'Full House,' Broadway Producer Thomas Miller Dies at 79**\
+`Thomas L. Miller, who produced a string of hit TV comedies included “Full House” and “Perfect Strangers” before beginning a new chapter as a Broadway producer, has died. He was 79.`\
+https://nytimes.com/aponline/2020/04/08/us/ap-us-obit-thomas-miller.html?searchResultPosition=7
+
 **Seven Reasons Your ‘Coronavirus Party’ Is a Bad Idea**\
 `Some people want to intentionally infect themselves. As an epidemiologist, I can confirm that’s a horrible idea.`\
-https://nytimes.com/2020/04/08/opinion/coronavirus-parties-herd-immunity.html?searchResultPosition=1
+https://nytimes.com/2020/04/08/opinion/coronavirus-parties-herd-immunity.html?searchResultPosition=8
 
 **What Congress Must Do Now to Confront the Coronavirus**\
 `The next relief package should include more aid for workers and small businesses, closer oversight of government spending and assurances of free and fair elections.`\
-https://nytimes.com/2020/04/08/opinion/coronavirus-congress-warren.html?searchResultPosition=2
+https://nytimes.com/2020/04/08/opinion/coronavirus-congress-warren.html?searchResultPosition=9
 
 **Some Doctors Moving Away From Ventilators for Virus Patients**\
 `As health officials around the world push to get more ventilators to treat coronavirus patients, some doctors are moving away from using the breathing machines when they can.`\
-https://nytimes.com/aponline/2020/04/08/health/ap-us-med-virus-outbreak-ventilator-deaths.html?searchResultPosition=3
-
-**Presidential Betting Gets Axed Fast in West Virginia**\
-`For a moment, West Virginia looked like it was going to allow betting on the presidential election.`\
-https://nytimes.com/aponline/2020/04/08/us/ap-us-presidential-election-betting.html?searchResultPosition=4
-
-**86-Year-Old Is Killed in E.R. Over Social Distancing**\
-`The woman became disoriented and grabbed the IV pole of another patient, who shoved her and caused a fatal head wound, officials said.`\
-https://nytimes.com/2020/04/08/nyregion/coronavirus-brooklyn-janie-marshall-cassandra-lundy.html?searchResultPosition=5
-
-**Syria Used Chemical Weapons 3 Times in One Week, Watchdog Says**\
-`An investigative team from the Organization for the Prohibition of Chemical Weapons accused the Syrian government of launching three chemical attacks on one village in 2017.`\
-https://nytimes.com/2020/04/08/world/middleeast/syria-assad-chemical-weapons.html?searchResultPosition=6
-
-**Fed Emergency Rate Cuts Came as Economy Turned ‘Profoundly Uncertain’**\
-`The Federal Reserve chair, Jerome H. Powell, and his colleagues slashed interest rates to near zero on March 15, and meeting minutes show why.`\
-https://nytimes.com/2020/04/08/business/economy/fed-emergency-rate-cuts-minutes.html?searchResultPosition=7
-
-**Jordan Announces a 48-Hour Nationwide Curfew Starting Thursday Midnight: Government Spokesman**\
-`Jordan announced a 48-hour sweeping nationwide curfew that would start from Thursday midnight, in a stepped-up bid to stem the spread of the coronavirus, the government spokesman said.`\
-https://nytimes.com/reuters/2020/04/08/world/middleeast/08reuters-health-coronavirus-jordan-curfew.html?searchResultPosition=8
-
-**Fighting in Yemen Kills Over 270, Rebels Suffer Heavy Losses**\
-`Heavy fighting in Yemen between pro-government forces and Shiite rebels killed more than 270 people in the past 10 days, government officials and tribal leaders said Wednesday.`\
-https://nytimes.com/aponline/2020/04/08/world/middleeast/ap-ml-yemen.html?searchResultPosition=9
-
-**Inequality Fuels Racial Disparities in Coronavirus Deaths, N.Y.C. Mayor Says**\
-`Mayor Bill de Blasio of New York addressed the disproportionate coronavirus death rates among Hispanic and black residents.`\
-https://nytimes.com/video/us/politics/100000007077886/nyc-coronavirus-deaths-inequality.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/08/health/ap-us-med-virus-outbreak-ventilator-deaths.html?searchResultPosition=10
 
