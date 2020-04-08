@@ -12,7 +12,7 @@ https://nytimes.com/reuters/2020/04/07/arts/07reuters-people-john-prine.html?sea
 
 **Winging It**\
 `Sam Buchbinder strikes a common note.`\
-https://nytimes.com/2020/04/07/crosswords/winging-it.html?searchResultPosition=4
+https://nytimes.com/2020/04/07/crosswords/daily-puzzle-2020-04-08.html?searchResultPosition=4
 
 **BOJ Says It Will Scale Back Operations Amid Coronavirus Pandemic**\
 `The Bank of Japan said on Wednesday it would scale back some operations in the wake of the government's decision to declare a state of emergency amid the coronavirus pandemic.`\
