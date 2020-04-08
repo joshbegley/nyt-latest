@@ -1,4 +1,4 @@
-**Trump Says Would Like to Reopen U.S. Economy With a 'Big Bang'**\
+**Trump: Like to Reopen the U.S. Economy With a 'Big Bang'**\
 `U.S. President Donald Trump said on Wednesday he would like to reopen the U.S. economy with a "big bang" but that the death toll from the coronavirus needs to be on the down slope before that can happen.`\
 https://nytimes.com/reuters/2020/04/08/us/08reuters-health-coronavirus-trump.html?searchResultPosition=1
 
