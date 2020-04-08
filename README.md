@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus
 https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-indonesia-lgbt.html?searchResultPosition=9
 
 **Democrats Want Additions to Trump $250B Emergency Virus Aid**\
-`Congressional Democratic leaders proposed Wednesday adding hundreds of billions of dollars for health care, state and local governments, and food stamps to $250 billion in fresh emergency aid President Donald Trump wants to help small businesses weather the coronavirus epidemic. `\
+`Congressional Democratic leaders proposed Wednesday adding hundreds of billions of dollars for health care, state and local governments, and food stamps to $250 billion in fresh emergency aid President Donald Trump wants to help small businesses weather the coronavirus epidemic.`\
 https://nytimes.com/aponline/2020/04/08/us/politics/ap-us-virus-outbreak-congress.html?searchResultPosition=10
 
