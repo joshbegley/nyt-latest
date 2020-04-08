@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/04/08/business/ap-virus-outbreak-celebrity-che
 `From the playground game ring-around-the-rosy to the short stories of Edgar Allan Poe, the scars of illnesses throughout history are still visible today.`\
 https://nytimes.com/2020/04/08/t-magazine/art-coronavirus.html?searchResultPosition=9
 
-**Share Your Story and Photos From the Coronavirus Frontlines**\
+**Share Your Story and Photos From the Coronavirus Front Lines**\
 `We want to hear from the doctors, nurses and health care workers risking their lives to save us from the coronavirus pandemic. What makes you do what you do?`\
 https://nytimes.com/2020/04/08/us/doctors-treating-coronavirus.html?searchResultPosition=10
 
