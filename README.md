@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus
 `Japan will next week pledge to contribute to an International Monetary Fund (IMF) trust offering debt relief to low-income countries hit hard by the coronavirus, a finance ministry official told Reuters on Wednesday.`\
 https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-japan-imf.html?searchResultPosition=4
 
-**Britain's Tesco Says Not Prudent to Give Guidance for 2020-21 Due to Coronavirus Crisis**\
-`Britain's biggest retailer Tesco said on Wednesday it would not be prudent to give financial guidance for the 2020-21 year due to uncertainty caused by the coronavirus emergency.`\
+**Britain's Tesco Says Coronavirus Costs Could Reach $1.1 Billion**\
+`Britain's biggest retailer Tesco expects to take a hit of up to 925 million pounds ($1.1 billion) from the costs of dealing with the coronavirus pandemic and warned it was unable to give a profit forecast for this financial year. `\
 https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-tesco.html?searchResultPosition=5
 
 **Guirantes Headed Back to Rutgers Instead of WNBA Draft**\
