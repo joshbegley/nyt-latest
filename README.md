@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/04/08/business/08reuters-amazon-com-delivery.ht
 https://nytimes.com/2020/04/08/briefing/coronavirus-boris-johnson-wuhan.html?searchResultPosition=9
 
 **Wuhan, Birthplace of Coronavirus, Lifts Lockdown After 11 Weeks: Live Coverage**\
-`Prime Minister Boris Johnson spent a second night in intensive care, and President Trump threated to cut funding for the World Health Organization.`\
+`Prime Minister Boris Johnson spent a second night in intensive care, and President Trump threatened to cut funding for the World Health Organization.`\
 https://nytimes.com/2020/04/08/world/coronavirus-news.html?searchResultPosition=10
 
