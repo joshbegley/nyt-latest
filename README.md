@@ -1,40 +1,40 @@
+**Indonesia Reports 218 New Coronavirus Infections, Taking Total to 2,956**\
+`Indonesia confirmed on Wednesday 218 new coronavirus infections, taking the total in the Southeast Asian country to 2,956, health ministry official Achmad Yurianto said. `\
+https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=1
+
+**Australian Regulators, Central Bank Tell Firms to Prep More for End of LIBOR**\
+`Australia's central bank and regulators urged financial firms on Wednesday to double down on their plans for the phasing out of the Libor benchmark, as some still showed substantial exposure to the interbank lending rate.`\
+https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-australia-rates-libor.html?searchResultPosition=2
+
+**China Investors Flock to Money Market Funds Despite Record Low Yield**\
+`Chinese investors have poured cash into money market funds despite falling yields on the low-risk instruments as authorities enact powerful monetary easing to combat the impact of the coronavirus epidemic.`\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-china-markets-funds.html?searchResultPosition=3
+
+**The East River Waterfront Dazzles. Take a Virtual Tour.**\
+`With views of the water, skyline, bridges and piers, the promenade encapsulates New York’s history. Our critic walks with the architect Deborah Berke.`\
+https://nytimes.com/2020/04/08/arts/east-river-virtual-tour.html?searchResultPosition=4
+
 **The Magic of Empty Streets**\
 `Social distancing gives us a rare chance to fix cities.`\
-https://nytimes.com/2020/04/08/opinion/coronavirus-tips-new-york-san-francisco.html?searchResultPosition=1
+https://nytimes.com/2020/04/08/opinion/coronavirus-tips-new-york-san-francisco.html?searchResultPosition=5
 
 **Head of EU's Top Science Body Quits Over Coronavirus Response**\
 `The president of the European Union's main science organisation has quit the post he took up only in January, the European Commission said, over frustration at the EU response to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-eu-scientist.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-eu-scientist.html?searchResultPosition=6
 
 **‘That Is What We Do’: The Power of Passover and Tradition Across Generations**\
 `Jewish families on Wednesday will again recount the 10 plagues from the Book of Exodus. Only this year will be a little different.`\
-https://nytimes.com/2020/04/08/us/passover-seder-plagues-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/04/08/us/passover-seder-plagues-coronavirus.html?searchResultPosition=7
 
 **Cruise Lines Were Shut Out of the Stimulus. Here’s Why.**\
 `The hard-hit sector of the travel industry was left out of the $2 trillion stimulus package. Century-old tax provisions help explain what happened.`\
-https://nytimes.com/2020/04/08/travel/cruises-coronavirus-stimulus.html?searchResultPosition=4
+https://nytimes.com/2020/04/08/travel/cruises-coronavirus-stimulus.html?searchResultPosition=8
 
 **Rents Are Late, and ‘It’s Only Going to Get Worse’**\
 `As the economic shutdown pares tenants’ incomes, April payments have been reduced, deferred or withheld. Some landlords see their property at risk.`\
-https://nytimes.com/2020/04/08/business/economy/coronavirus-rent.html?searchResultPosition=5
+https://nytimes.com/2020/04/08/business/economy/coronavirus-rent.html?searchResultPosition=9
 
 **Cuomo, Fauci, Birx: The New Influencers**\
 `This is what authority looks like today.`\
-https://nytimes.com/2020/04/08/fashion/fauci-birx-cuomo-style-influencers.html?searchResultPosition=6
-
-**‘I’m in High School Again’: Virus Sends College Students Home to Parents, and Their Rules**\
-`Their college campuses closed, crestfallen students have journeyed back to their childhood bedrooms — and to chores, revived sibling rivalries and curfews.`\
-https://nytimes.com/2020/04/08/us/coronavirus-college-students.html?searchResultPosition=7
-
-**Want to Be Better at Sports? Listen to the Machines**\
-`The pattern-recognizing power of machine learning is affecting players, teams, sports medicine and even betting.`\
-https://nytimes.com/2020/04/08/technology/ai-sports-athletes-machine-learning.html?searchResultPosition=8
-
-**Raising a Glass, Remotely**\
-`You can’t go to the vineyard, but some of Napa and Sonoma’s best wineries are letting you buy a bottle, then participate in streamed tastings.`\
-https://nytimes.com/2020/04/08/travel/coronavirus-wine-tastings.html?searchResultPosition=9
-
-**For H.I.V. Survivors, a Feeling of Weary Déjà Vu**\
-`Some of them are now senior citizens: vulnerable again, mistrustful of government directives about coronavirus and unable to organize.`\
-https://nytimes.com/2020/04/08/style/coronavirus-hiv.html?searchResultPosition=10
+https://nytimes.com/2020/04/08/fashion/fauci-birx-cuomo-style-influencers.html?searchResultPosition=10
 
