@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/04/08/sports/ncaafootball/ap-fbc-virus-outbrea
 `On Day Infinity of the lockdown, our critics and readers watched Cary Grant and Rosalind Russell fast-talk through “His Girl Friday.” Here’s what happened.`\
 https://nytimes.com/2020/04/08/movies/his-girl-friday-viewing-party.html?searchResultPosition=2
 
-**Virus Killing Black and Latino People at Twice the Rate of Whites in N.Y.C.**\
+**Virus Is Killing Black and Latino People at Twice the Rate of Whites in N.Y.C.**\
 `Officials revealed that disparity on Wednesday as they announced that 779 more people in the state had died of the virus, the second straight day that deaths spiked to new highs.`\
 https://nytimes.com/2020/04/08/nyregion/coronavirus-race-deaths.html?searchResultPosition=3
 
