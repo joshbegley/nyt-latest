@@ -1,3 +1,7 @@
+**U.S. Companies Criticized for Cutting Jobs Rather Than Investor Payouts**\
+`U.S. companies laying off workers in response to the coronavirus pandemic but still paying dividends and buying back shares are drawing criticism from labor unions, pension fund advisers, lawmakers and corporate governance experts.`\
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-corporatelayoffs-analysis.html?searchResultPosition=1
+
 **Factbox: Short-Time Work Schemes Gain Traction in Crisis-Hit Europe**\
 `European policymakers are pushing short-time work schemes as a way to mitigate the fallout from the coronavirus, emulating a policy tool which helped Germany, Europe's largest economy, recover from the 2009 economic crisis.   `\
 https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-germany-kurzarbeit-factbox.html?searchResultPosition=2
