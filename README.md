@@ -1,40 +1,40 @@
+**Esports: Super League Triathlon Enlists Top Athletes to Compete in Zwift Classics**\
+`Super League Triathlon has made a foray into the world of esports and enlisted leading athletes such as double Olympic champion Alistair Brownlee and reigning Super League champion Vincent Luis to take part in the online Zwift Classics series.`\
+https://nytimes.com/reuters/2020/04/08/sports/cycling/08reuters-health-coronavirus-triathlon-esports.html?searchResultPosition=1
+
+**Britain Trying to Get Money Back for Unreliable Antibody Tests, Official Says**\
+`Britain is looking to get its money back after buying some COVID-19 antibody tests to trial them only to find that none of the products worked reliably enough, a British health official said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-britain-antibodies.html?searchResultPosition=2
+
+**Vietnam to Ship 450,000 Protective Suits to United States**\
+`Vietnam has expedited the shipment of 450,000 DuPont protective suits to the United States to help healthcare professionals there fight the coronavirus, the U.S. Embassy in Hanoi said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-vietnam.html?searchResultPosition=3
+
+**Factbox: Global Economic Policy Response to Coronavirus Crisis**\
+`Governments and central banks around the world have unleashed unprecedented fiscal and monetary stimulus and other support for economies floored by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/08/world/08reuters-health-coronavirus-economy-factbox.html?searchResultPosition=4
+
+**AP PHOTOS: As Wuhan Reopens, People Begin to Venture Outside**\
+`Some people couldn't wait to leave town. Others just wanted to get outside and feel free again. All of them wore face masks against the virus that had forced them to stay in their homes for more than two months.`\
+https://nytimes.com/aponline/2020/04/08/world/asia/ap-as-virus-outbreak-wuhan-photo-gallery.html?searchResultPosition=5
+
+**Watch Live: Bernie Sanders to Exit Presidential Race**\
+`Senator Bernie Sanders of Vermont is expected to announce that he will end his bid for the Democratic nomination for president.`\
+https://nytimes.com/video/us/politics/100000007077496/bernie-sanders-live.html?searchResultPosition=6
+
 **Biden vs. Trump: The General Election Is Here, and Transformed**\
 `The coronavirus crisis means many questions remain about how the 2020 race will proceed, but the top of the ticket is now clear.`\
-https://nytimes.com/2020/04/08/us/politics/joe-biden-donald-trump-2020-election.html?searchResultPosition=1
+https://nytimes.com/2020/04/08/us/politics/joe-biden-donald-trump-2020-election.html?searchResultPosition=7
 
 **Nordstrom Temporarily Shutters Headquarters on Coronavirus Fears**\
 `Nordstrom Inc has temporarily shut down its corporate headquarters in Seattle due to the spread of the coronavirus in the area, the retailer said in a filing on Wednesday.`\
-https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-nordstrom.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-nordstrom.html?searchResultPosition=8
 
 **Paralympics: IPC Suffering Cashflow Issues After Games Postponement**\
 `After the postponement of the Tokyo 2020 Games following the coronavirus outbreak, Paralympics chief Andrew Parsons is focused on consolidating losses and protecting smaller national federations stung by the change.`\
-https://nytimes.com/reuters/2020/04/08/sports/olympics/08reuters-health-coronavirus-paralympics-parsons.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/08/sports/olympics/08reuters-health-coronavirus-paralympics-parsons.html?searchResultPosition=9
 
 **With No Tourists, Vienna's Horse-Drawn Carriages Deliver Lockdown Meals**\
 `Under coronavirus lockdown, one aspect of modern Vienna might look familiar to victims of plagues past - horse-drawn carriages delivering meals to those most at risk during the pandemic.`\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-austria-carriages.html?searchResultPosition=4
-
-**Bernie Sanders Suspends 2020 Democratic Campaign: Statement**\
-`U.S. Senator Bernie Sanders suspended his campaign for the 2020 Democratic presidential nomination on Wednesday in a conference call with staff, his campaign said in a statement.`\
-https://nytimes.com/reuters/2020/04/08/us/politics/08reuters-usa-election-sanders.html?searchResultPosition=5
-
-**Ferrari to Pilot Employee Screening for Coronavirus: Elkann**\
-`Luxury group Ferrari will pilot a project to conduct voluntary screening of employees and their families to better fight the novel coronavirus outbreak, the head of holding group Exor, which controls the supercarmaker, said on Wednesday. `\
-https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-exor.html?searchResultPosition=6
-
-**Irish Coronavirus-Hit Firms Can Tap Extra 1 Billion Euros of Liquidity**\
-`Ireland has made an additional 1 billion euros in liquidity support available to firms reeling from the coronavirus lockdown of the economy, Business Minister Heather Humphreys said on Wednesday, promising there was more to come.`\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-ireland-economy.html?searchResultPosition=7
-
-**Sanders Drops 2020 Bid, Leaving Biden as Likely Nominee**\
-`Sen.`\
-https://nytimes.com/aponline/2020/04/08/us/politics/ap-election-2020-sanders.html?searchResultPosition=8
-
-**E.U. Court Rules Poland Must Suspend Disciplinary Panel for Judges**\
-`It was another setback for the governing party’s bid to control the courts, which European officials called a grave threat to Poland’s democracy.`\
-https://nytimes.com/2020/04/08/world/europe/poland-judges-eu-court.html?searchResultPosition=9
-
-**Northern Irish Driver Pleads Guilty Over 39 Vietnamese Truck Deaths**\
-`Northern Irish truck driver Maurice Robinson has pleaded guilty to 39 counts of manslaughter related to the deaths of Vietnamese people found in a shipping container in southeast England last year, British media reported on Wednesday.`\
-https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-britain-bodies.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-austria-carriages.html?searchResultPosition=10
 
