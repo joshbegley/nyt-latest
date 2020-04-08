@@ -1,5 +1,5 @@
 **A&M Boss Says Full Football Sked Could Occur With Oct. Start**\
-`Texas A&M Cancellor John Sharp said Wednesday that officials believe a 13-game college football schedule would be possible even if the start of the season was delayed until October because of the new coronvirus.`\
+`Texas A&M Chancellor John Sharp said Wednesday that officials believe a 13-game college football schedule would be possible even if the start of the season was delayed until October because of the new coronvirus.`\
 https://nytimes.com/aponline/2020/04/08/sports/ncaafootball/ap-fbc-virus-outbreak-football-schedule.html?searchResultPosition=1
 
 **He Said, She Said, We Said, You Said**\
