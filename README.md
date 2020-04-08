@@ -1,40 +1,40 @@
-**After Pleas, Pro Jumper Vows Not to Leap in National Parks**\
-`A professional jumper vowed Wednesday not to leap anymore from cliffs inside national parks after he pleaded guilty to doing it twice in Zion National Park in Utah. `\
-https://nytimes.com/aponline/2020/04/08/sports/ap-us-zion-national-park-base-jumping.html?searchResultPosition=1
+**Paul Kasmin, Gallerist Who Ruled a Mini-Empire of Art, Dies at 60**\
+`With his eclectic range and loyalty to living artists, one didn’t know what to expect on walking into one of his New York galleries.`\
+https://nytimes.com/2020/04/08/arts/paul-kasmin-dead.html?searchResultPosition=1
 
-**How It Ended for Sanders**\
-`It wasn’t the Democratic establishment that defeated him. It was the ceiling on his support.`\
-https://nytimes.com/2020/04/08/us/politics/how-bernie-sanders-lost.html?searchResultPosition=2
+**Automakers Push to Reopen Plants With Testing and Lots of Masks**\
+`Global automakers reeling from the COVID-19 pandemic are accelerating efforts to restart factories from Wuhan to Maranello to Michigan, using safety protocols developed for China and U.S. ventilator production operations launched in recent weeks. `\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-autos-plants.html?searchResultPosition=2
 
-**'It’s Hit Our Front Door’: Homes for the Disabled See Surge of Covid-19**\
-`Caregivers for people with special needs are reeling as the coronavirus preys on the most vulnerable.`\
-https://nytimes.com/2020/04/08/nyregion/coronavirus-disabilities-group-homes.html?searchResultPosition=3
+**BlackRock Will Not Layoff Employees Due to COVID-19 Pandemic: CEO**\
+`BlackRock Inc, the world's largest asset manager, will not layoff any employees during the year due to the coronavirus outbreak, Chief Executive Officer Larry Fink said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-blackrock.html?searchResultPosition=3
 
-**Hacienda Santa Fe**\
-`Hacienda Santa Fe`\
-https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007078756/hacienda-santa-fe.html?searchResultPosition=4
+**Fed's Kaplan Sees U.S. Growth Returning in Second Half, but Consumers Staying Cautious**\
+`The U.S. economy is headed for a return to growth in the second half of the year after a steep decline this quarter, Dallas Federal Reserve Bank President Robert Kaplan said on Wednesday. `\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-health-coronavirus-fed-kaplan.html?searchResultPosition=4
 
-**Chicago’s Jail Is Top U.S. Hot Spot as Virus Spreads Behind Bars**\
-`At least 1,324 confirmed coronavirus cases are tied to prisons and jails across the United States, according to data tracked by The Times, including at least 32 deaths.`\
-https://nytimes.com/2020/04/08/us/coronavirus-cook-county-jail-chicago.html?searchResultPosition=5
+**Streaming Service Disney+ Crosses 50 Million Paid Subscribers Mark Globally**\
+`Walt Disney Co said on Wednesday Disney+ has garnered over 50 million paid users globally, with 8 million of them coming from India where the streaming service was launched last week.`\
+https://nytimes.com/reuters/2020/04/08/business/08reuters-disney-susbcribers.html?searchResultPosition=5
 
-**Guatemala to Resume Deportation Flights From US Next Week**\
-`Guatemala's government said Wednesday it will resume receiving deportation flights from the United States next week. It had suspended the flights during Holy Week after three deported Guatemalans later tested positive for COVID-19.`\
-https://nytimes.com/aponline/2020/04/08/world/americas/ap-lt-virus-outbreak-guatemala-deportations.html?searchResultPosition=6
+**Coronavirus Briefing: What Happened Today**\
+`As the virus tears through New York, it’s spreading through rural America, too.`\
+https://nytimes.com/2020/04/08/us/coronavirus-today.html?searchResultPosition=6
 
-**A Rush to Stocks, Driven by Bargains and Bravery**\
-`The S&P 500 is up 23 percent from its low last month. Opportunistic buyers are seeking bargains, while short-sellers are paradoxically helping amplify the rally.`\
-https://nytimes.com/2020/04/08/business/coronavirus-stock-market-rally.html?searchResultPosition=7
+**New York Hospital Sends Some 'Borderline' COVID-19 Patients Home With Oxygen Monitors**\
+`Some coronavirus patients who would have been admitted into the emergency department at a New York hospital are being sent home with an oxygen-monitoring device as the city's medical system struggles to reserve resources for only the sickest people.`\
+https://nytimes.com/reuters/2020/04/08/us/08reuters-health-coronavirus-usa-home.html?searchResultPosition=7
 
-**Kobe Bryant's Latest Book to Debut Atop Best-Seller List**\
-`Kobe Bryant is back atop the best-seller lists, days after the late Los Angeles Lakers superstar was selected to the Hall of Fame.`\
-https://nytimes.com/aponline/2020/04/08/sports/basketball/ap-bkn-kobe-bryant-books.html?searchResultPosition=8
+**In Trump’s Marathon Briefings, the Answers and the Message Are Often Contradictory**\
+`The president does not need adversaries to dispute his statements. He does that all by himself.`\
+https://nytimes.com/2020/04/08/us/politics/trump-coronavirus-news-briefings.html?searchResultPosition=8
 
-**Biden vs. Trump: General Election Battle Is Now Set**\
-`The stage is set for November.`\
-https://nytimes.com/aponline/2020/04/08/us/politics/ap-us-election-2020.html?searchResultPosition=9
+**Cats Can Catch Coronavirus, Study Finds, Prompting WHO Investigation**\
+`Cats can become infected with the new coronavirus but dogs appear not to be vulnerable, according to a study published on Wednesday, prompting the WHO to say it will take a closer look at transmission of the virus between humans and pets.`\
+https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-pets.html?searchResultPosition=9
 
-**Ahmed Ismail Hussein, Venerable Somali Musician, Dies at 91**\
-`Famously known as the “King of Oud,” Mr. Hussein was considered one of the giants of modern Somali music. He had the novel coronavirus.`\
-https://nytimes.com/2020/04/08/obituaries/ahmed-ismail-hussein-dead-coronavirus.html?searchResultPosition=10
+**U.S. Coronavirus Deaths Top 14,600, Second Highest in World Behind Italy: Reuters Tally**\
+`U.S. deaths due to coronavirus topped 14,600 on Wednesday, the second highest reported number in the world behind Italy, according to a Reuters tally.`\
+https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus-usa-casualties.html?searchResultPosition=10
 
