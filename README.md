@@ -8,7 +8,7 @@ https://nytimes.com/aponline/2020/04/08/us/politics/ap-us-virus-outbreak-melania
 
 **Ecuador Gives Glimpse Into Pandemic’s Impact on Latin America**\
 `In Guayaquil, Ecuador’s biggest city, a surge in deaths has overwhelmed health care and burial services. Scenes of bodies on sidewalks and desperate families serve as a warning for the region.`\
-https://nytimes.com/2020/04/08/world/americas/virus-ecuador-guayaquil.html?searchResultPosition=3
+https://nytimes.com/2020/04/08/world/americas/ecuador-coronavirus.html?searchResultPosition=3
 
 **Why Blacks Are Hit Harder by the Coronavirus**\
 `A doctor explains how systemic inequality is playing out in the pandemic. Also: The changing face of grief; domestic abuse in the immigrant community; social distancing on sidewalks.`\
@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/04/08/world/europe/08reuters-health-coronavirus
 https://nytimes.com/2020/04/08/arts/music/hal-willner-dead.html?searchResultPosition=9
 
 **Trump-Biden Election Off-Limits for US Bettors (So Far)**\
-`Double down on Donald, or bet the farm on Biden? Plenty of Americans would like the chance to place a bet on the upcoming presidential election (and sports books would love to take their money), but so far, it is not legal anywhere in the country.`\
+`Double down on Donald, or bet big on Biden? Plenty of Americans would like the chance to place a bet on the upcoming presidential election (and sports books would love to take their money), but so far, it is not legal anywhere in the country.`\
 https://nytimes.com/aponline/2020/04/08/us/ap-us-betting-on-elections.html?searchResultPosition=10
 
