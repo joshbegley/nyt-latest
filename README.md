@@ -26,7 +26,7 @@ https://nytimes.com/video/us/politics/100000007076562/fauci-expresses-concern-ov
 `Jordan is in discussions with the IMF seeking to change some of the objectives of a four-year programme of structural reforms because of the negative impact of the coronavirus on the aid-dependent economy, the central bank governor said on Tuesday.`\
 https://nytimes.com/reuters/2020/04/07/world/middleeast/07reuters-health-coronavirus-jordan-imf.html?searchResultPosition=7
 
-**Trump Attacks W.H.O; Threatens to Pull Funding**\
+**Trump Attacks W.H.O.; Threatens to Pull Funding**\
 `President Trump lashed out at the World Health Organization, saying he may withhold U.S. funding from it in the midst of the coronavirus pandemic.`\
 https://nytimes.com/video/us/politics/100000007076563/trump-attacks-who-threatens-to-pull-funding.html?searchResultPosition=8
 
