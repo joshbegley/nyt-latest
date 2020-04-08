@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/04/08/us/ap-us-virus-outbreak-race.html?search
 `Benchmark U.S. crude oil rose $1.46, or 6.2%, to settle at $25.09 a barrel Wednesday. Brent crude oil, the international standard, rose 97 cents, or 3%, to $32.84 a barrel.`\
 https://nytimes.com/aponline/2020/04/08/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=2
 
-**Trump Is Pushing a False Argument on Vote-by-Mail Fraud. Here are the Facts.**\
+**Trump Is Pushing a False Argument on Vote-by-Mail Fraud. Here Are the Facts.**\
 `As the coronavirus pandemic accelerates a national trend toward voting by mail, experts say it can be conducted safely, despite Republican claims of corruption.`\
 https://nytimes.com/article/mail-in-voting-explained.html?searchResultPosition=3
 
