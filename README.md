@@ -1,40 +1,40 @@
+**Irish Coronavirus Adjusted Unemployment Rate Soars to 16.5%**\
+`Ireland's unemployment rate more than trebled to 16.5% at the end of March including those receiving emergency coronavirus jobless benefits, the state's statistics office said on Thursday, ahead of a likely further surge this month.`\
+https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-ireland-economy-employment.html?searchResultPosition=1
+
+**Prague Aims Gets a Grip on Airbnb With Coronavirus Crisis Laws**\
+`Officials in Prague are using the coronavirus crisis to get a firmer grip on short-term rentals like Airbnb, which they say have squeezed locals out of the Czech capital's centre. `\
+https://nytimes.com/reuters/2020/04/09/business/09reuters-health-coronavirus-czech-airbnb.html?searchResultPosition=2
+
+**Saudi-Led Ceasefire in Yemen Begins, Raising Hopes for Peace**\
+`A nationwide ceasefire in response to the global coronavirus outbreak went into effect in Yemen on Thursday, stirring hope for an end to the five-year-old war that has pushed millions to the brink of famine.`\
+https://nytimes.com/reuters/2020/04/09/world/middleeast/09reuters-yemen-security.html?searchResultPosition=3
+
+**Rosneft Believes OPEC+ Output Cut of 10 Million Bpd Would Rebalance Markets: RenCap**\
+`Rosneft believes a cut in oil production of 10 million barrels per day (bpd) by OPEC+ would be sufficient to rebalance oil markets, Renaissance Capital (RenCap) said late on Wednesday following a call with the Russian energy giant.`\
+https://nytimes.com/reuters/2020/04/09/business/09reuters-global-oil-opec-rosneft.html?searchResultPosition=4
+
+**5 Things to Know Today-That Aren't About the Virus**\
+`Your daily look at late-breaking news, upcoming events and the stories that are being talked about today:`\
+https://nytimes.com/aponline/2020/04/09/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=5
+
 **Small Caps Rally but Risks Loom as Coronavirus Batters Economy**\
 `Some investors are casting a wary eye on a recent rally in small-cap stocks, highlighting the struggles many expect smaller companies to face as the novel coronavirus slows the U.S. economy.`\
-https://nytimes.com/reuters/2020/04/09/business/09reuters-health-coronavirus-smallcaps.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/04/09/business/09reuters-health-coronavirus-smallcaps.html?searchResultPosition=6
 
 **Iran's Coronavirus Death Toll Rises by 117 to Reach 4,110: Health Official**\
 `Iran's coronavirus death toll has risen by 117 to 4,110, Health Ministry spokesman Kianush Jahanpur said on Thursday.`\
-https://nytimes.com/reuters/2020/04/09/world/middleeast/09reuters-health-coronavirus-iran.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/09/world/middleeast/09reuters-health-coronavirus-iran.html?searchResultPosition=7
 
 **African Leaders Rally Around WHO Head After Trump Criticism**\
 `African leaders have rallied around the Ethiopian head of the World Health Organization (WHO) after U.S. President Donald Trump criticised the United Nations agency and threatened to withhold his country's contribution to its budget.`\
-https://nytimes.com/reuters/2020/04/09/world/africa/09reuters-health-coronavirus-africa-who.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/09/world/africa/09reuters-health-coronavirus-africa-who.html?searchResultPosition=8
 
 **UniCredit Renews Commitment to Boosting Shareholder Returns: Chairman**\
 `UniCredit remains strongly committed to increasing returns for investors in Italy's biggest bank, its chairman said, following a decision to suspend dividend payments and a share buyback to comply with supervisory guidance.`\
-https://nytimes.com/reuters/2020/04/09/business/09reuters-health-coronavirus-banks-unicredit.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/09/business/09reuters-health-coronavirus-banks-unicredit.html?searchResultPosition=9
 
 **Top Swiss Court Upholds Prosecutor's Removal From Soccer Corruption Probe**\
 `Switzerland's top court rejected Attorney General Michael Lauber's bid to rejoin investigations of corruption in soccer, refusing to overturn a lower court's ruling that his closed-door meetings with FIFA's head had raised the appearance of bias.`\
-https://nytimes.com/reuters/2020/04/09/sports/soccer/09reuters-soccer-fifa-swiss.html?searchResultPosition=5
-
-**Turkish Prosecutor Appeals Acquittal Verdict in Landmark Protests Trial**\
-`A Turkish prosecutor appealed the acquittal of philanthropist Osman Kavala and eight others over their alleged role in the 2013 Gezi Park protests, calling for convictions as charged, a document obtained by Reuters showed on Thursday.`\
-https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-turkey-security-gezi.html?searchResultPosition=6
-
-**May Is Crunch Time for U.S. Auto Suppliers Amid Coronavirus Shutdown**\
-`Auto parts maker Kevin Clay landed a series of new contracts from customers early this year, and was bullish on 2020 after two challenging years.`\
-https://nytimes.com/reuters/2020/04/09/business/09reuters-health-coronavirus-autos-suppliers-focus.html?searchResultPosition=7
-
-**250-Year-Old U.S. Easter Tradition's Horns Silenced by Coronavirus Pandemic**\
-`Every Easter Sunday for almost 250 years, residents of Winston-Salem, North Carolina, have been awakened by small groups of musicians playing the hymn "Sleepers, Wake," before the Home Moravian church's sunrise service.`\
-https://nytimes.com/reuters/2020/04/09/us/09reuters-health-coronavirus-usa-moravian-church.html?searchResultPosition=8
-
-**Exclusive: Wall Street Firm Dangled Up to 175% Returns to Investors Using U.S. Aid Programs**\
-`A New York investment firm pitched wealthy investors in recent days on a way to make returns of 22% to 175% using U.S. government programs designed to help Americans keep their jobs and boost the coronavirus-stricken economy, according to a marketing document seen by Reuters.`\
-https://nytimes.com/reuters/2020/04/09/business/09reuters-health-coronavirus-arcadia-returns-exclusive.html?searchResultPosition=9
-
-**Democrats Tread Carefully in Attacking Trump on Coronavirus**\
-`For weeks, President Donald Trump has dominated television coverage with daily White House briefings on the coronavirus pandemic, declaring himself a "wartime president" and touting his administration's response.`\
-https://nytimes.com/reuters/2020/04/09/us/politics/09reuters-health-coronavirus-trump-democrats.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/09/sports/soccer/09reuters-soccer-fifa-swiss.html?searchResultPosition=10
 
