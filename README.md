@@ -22,8 +22,8 @@ https://nytimes.com/2020/04/08/science/new-york-coronavirus-cases-europe-genomes
 `The governor of central Japan's Aichi, which includes the city of Nagoya and also hosts Toyota Motor Corp, on Thursday said he would declare a state of emergency for his prefecture the following day. `\
 https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-japan-aichi.html?searchResultPosition=6
 
-**BOJ's Kuroda Warns Corporate Funding Strains Worsening**\
-`Bank of Japan Governor Haruhiko Kuroda on Thursday warned that uncertainty over the country's economic outlook was "extremely high," with corporate funding strains worsening.`\
+**Japan's Economy Faces 'Extremely High' Uncertainty on Pandemic Hit: Central Bank Head**\
+`Uncertainty over Japan's economic outlook is "extremely high" as the coronavirus pandemic hits output and consumption, central bank Governor Haruhiko Kuroda said, stressing his readiness to take additional monetary steps to prevent a deep recession.`\
 https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-japan-boj.html?searchResultPosition=7
 
 **Australian Businesses, Households Can Withstand GDP Contraction: RBA**\
