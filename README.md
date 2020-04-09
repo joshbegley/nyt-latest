@@ -1,36 +1,36 @@
+**The Science of Helping Out**\
+`During a crisis, the people who cope best are those who help others.`\
+https://nytimes.com/2020/04/09/well/mind/coronavirus-resilience-psychology-anxiety-stress-volunteering.html?searchResultPosition=2
+
 **Dubai to Set Up Field Hospitals to Cope With Any Coronavirus Surge: Official**\
 `The emirate of Dubai is preparing field hospitals to handle any surge in cases of the new coronavirus, a health official said on Thursday, as the United Arab Emirates saw its infection count more than double in the last week.`\
-https://nytimes.com/reuters/2020/04/09/world/middleeast/09reuters-health-coronavirus-emirates.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/09/world/middleeast/09reuters-health-coronavirus-emirates.html?searchResultPosition=3
 
 **Trump Family Loses Bid to Move Marketing Scam Lawsuit to Arbitration**\
 `A federal judge in Manhattan rejected an effort by U.S. President Donald Trump and his adult children to send a lawsuit accusing them of exploiting their family name to promote a marketing scam into arbitration.`\
-https://nytimes.com/reuters/2020/04/09/technology/09reuters-usa-trump-marketing-lawsuit.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/09/technology/09reuters-usa-trump-marketing-lawsuit.html?searchResultPosition=4
 
 **Iraqi Oil Minister Says It's Necessary to Determine Oil Cuts' Limits**\
 `Iraqi oil minister Thamer Ghadhban said on Thursday it was necessary to determine the limit of oil cuts, the timeline, the start date of applying the measures and to distribute the shares fairly and equally, a statement from oil ministry said.`\
-https://nytimes.com/reuters/2020/04/09/business/09reuters-global-oil-opec-iraq.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/09/business/09reuters-global-oil-opec-iraq.html?searchResultPosition=5
 
 **Historic Oil Price Plunge Trashes Sector's Profit Outlook**\
 `Amid a historic Wall Street crash it's been the energy sector that's suffering the worst selling, thanks to a double whammy of the coronavirus crisis and a price war among big crude producers.`\
-https://nytimes.com/aponline/2020/04/09/business/ap-off-the-charts-energy-stocks.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/04/09/business/ap-off-the-charts-energy-stocks.html?searchResultPosition=6
 
 **N.Y.’s Changed Streets: In One Spot, Traffic Speeds Are Up 288%**\
 `Faster buses. Plentiful parking. Cleaner air. A shift in habits offers a glimpse of what the city could be like without so much congestion.`\
-https://nytimes.com/2020/04/09/nyregion/nyc-coronavirus-empty-streets.html?searchResultPosition=6
+https://nytimes.com/2020/04/09/nyregion/nyc-coronavirus-empty-streets.html?searchResultPosition=7
 
 **NIH Begins Trial to Test Hydroxychloroquine for Treating COVID-19**\
 `The National Institutes of Health (NIH) said on Thursday it was testing anti-malaria drug hydroxychloroquine for treating COVID-19, days after several U.S. doctors said they were using the drug on infected patients without evidence that it worked.`\
-https://nytimes.com/reuters/2020/04/09/us/09reuters-health-coronavirus-hydroxychloroquine.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/04/09/us/09reuters-health-coronavirus-hydroxychloroquine.html?searchResultPosition=8
 
 **Esports-Villeneuve Joins Legends Racing Series**\
 `Formula One and IndyCar drivers champion Jacques Villeneuve, who has raced everything from NASCAR to Le Mans, will add to his resume when the Canadian announced on Thursday he will be joining the virtual 'Legends Trophy' series.`\
-https://nytimes.com/reuters/2020/04/09/sports/autoracing/09reuters-health-coronavirus-esports-legends.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/04/09/sports/autoracing/09reuters-health-coronavirus-esports-legends.html?searchResultPosition=9
 
 **Armed Group Robs Mexican Gold Mine, Flees in Plane**\
 `An armed group stormed a gold mine in northern Mexico and stole bars of gold and silver alloy before fleeing in a light aircraft, mine operator Minas de Oro Nacional said.`\
-https://nytimes.com/reuters/2020/04/09/world/americas/09reuters-mexico-robbery.html?searchResultPosition=9
-
-**How to Quit Smoking and Vaping During the Coronavirus Pandemic**\
-`People who smoke and vape may be at greater risk for Covid-19, but quitting is hard, especially now. The good news: There are a lot of helpful resources.`\
-https://nytimes.com/2020/04/09/health/coronavirus-smoking-vaping-quit.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/09/world/americas/09reuters-mexico-robbery.html?searchResultPosition=10
 
