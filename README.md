@@ -14,7 +14,7 @@ https://nytimes.com/2020/04/09/opinion/was-your-state-ahead-of-the-coronavirus-c
 `The cuts for May and June were smaller than some investors and analysts had expected, and oil prices gave up earlier gains.`\
 https://nytimes.com/2020/04/09/business/energy-environment/opec-saudiarabia-russia-oil-coronavirus.html?searchResultPosition=5
 
-**New Episode of ‘Tiger King’ Announced**\
+**New Episode of ‘Tiger King’ Is Announced**\
 `Netflix says an ‘after show’ of its popular and divisive hit true-crime series will premiere on Sunday.`\
 https://nytimes.com/2020/04/09/arts/television/tiger-king-sequel.html?searchResultPosition=6
 
