@@ -22,13 +22,13 @@ https://nytimes.com/aponline/2020/04/08/sports/baseball/ap-bbo-josh-hamilton-arr
 `Travelers seeded multiple cases starting as early as mid-February, genomes show.`\
 https://nytimes.com/2020/04/08/science/new-york-coronavirus-cases-europe-genomes.html?searchResultPosition=6
 
-**Central Japanese Prefecture to Declare State of Emergency**\
-`The governor of central Japan's Aichi, which includes the city of Nagoya and also hosts Toyota Motor Corp, on Thursday said he would declare a state of emergency for his prefecture the following day. `\
-https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-japan-aichi.html?searchResultPosition=7
-
 **Japan's Economy Faces 'Extremely High' Uncertainty on Pandemic Hit: Central Bank Head**\
 `Uncertainty over Japan's economic outlook is "extremely high" as the coronavirus pandemic hits output and consumption, central bank Governor Haruhiko Kuroda said, stressing his readiness to take additional monetary steps to prevent a deep recession.`\
-https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-japan-boj.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-japan-boj.html?searchResultPosition=7
+
+**Central Japanese Prefecture to Declare State of Emergency**\
+`The governor of central Japan's Aichi, which includes the city of Nagoya and also hosts Toyota Motor Corp, on Thursday said he would declare a state of emergency for his prefecture the following day. `\
+https://nytimes.com/reuters/2020/04/08/world/asia/08reuters-health-coronavirus-japan-aichi.html?searchResultPosition=8
 
 **Australian Businesses, Households Can Withstand GDP Contraction: RBA**\
 `Australian businesses and households are well placed to face the "large contraction" in economic activity from the coronavirus crisis though it will test their financial resilience, the country's central bank said on Thursday. `\
