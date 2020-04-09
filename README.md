@@ -1,40 +1,40 @@
+**Vietnam Says 15,000 People Linked to COVID-19 Hotspot Tested Negative**\
+`More than 1,000 healthcare workers and 14,400 others linked to a COVID-19 outbreak at a hospital in Hanoi have tested negative for the coronavirus, the Vietnamese capital's ruling body said on Thursday.`\
+https://nytimes.com/reuters/2020/04/09/world/asia/09reuters-health-coronavirus-vietnam.html?searchResultPosition=1
+
+**Factbox: OPEC+ Talks Face Challenges Over Baseline for Cuts and U.S. Role**\
+`OPEC and its allies hold talks on Thursday to discuss plans for the biggest coordinated oil output cut in history but two hurdles remain: reaching a deal on the levels from which to make reductions and securing the participation of the United States.`\
+https://nytimes.com/reuters/2020/04/09/business/09reuters-global-oil-opec-factbox.html?searchResultPosition=2
+
+**'Sadness in My Heart': Residents of China's Hubei, Freed From Lockdown, Face Suspicion**\
+`Driving to a factory in China's southeastern province of Fujian to meet a friend, Ye Jing was stopped by a security guard soon after returning from two months of lockdown in Hubei, the province hardest hit by the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/09/world/asia/09reuters-health-coronavirus-china-hubei.html?searchResultPosition=3
+
+**S&P Cuts Renault Bonds to 'Junk' and Downgrades Outlook on PSA**\
+`Credit rating agency Standard & Poor's (S&P) delivered downgrades on Thursday to France's top car companies Renault and PSA, cutting Renault's bonds to 'junk' status due to the impact of the new coronavirus.`\
+https://nytimes.com/reuters/2020/04/09/business/09reuters-renault-psa-downgrade.html?searchResultPosition=4
+
+**Storms Packing High Winds Cause Damage in Indiana, Arkansas**\
+`Severe storms with high winds, rain, hail and possible tornadoes moved across the Midwest and caused damage to dozens of homes in parts of Indiana and Arkansas, authorities said.`\
+https://nytimes.com/aponline/2020/04/09/us/ap-us-severe-weather.html?searchResultPosition=5
+
+**Half Billion More People Face Poverty Due to Virus-Report**\
+`Around half a billion people could be pushed into poverty as a result of the economic fallout from the coronavirus pandemic unless richer countries take “urgent action” to help developing nations, a leading aid organization warned Thursday.`\
+https://nytimes.com/aponline/2020/04/09/business/bc-eu-virus-outbreak-global-poverty.html?searchResultPosition=6
+
 **Factbox: Global Economic Policy Response to Coronavirus Crisis**\
 `Governments and central banks around the world have unleashed unprecedented fiscal and monetary stimulus and other support for economies floored by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/09/world/09reuters-health-coronavirus-economy-factbox.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/04/09/world/09reuters-health-coronavirus-economy-factbox.html?searchResultPosition=7
 
 **U.S. Bank Results to Focus on Looming Loan Losses During Coronavirus**\
 `How much money will U.S. banks lose on loans because of the coronavirus recession?`\
-https://nytimes.com/reuters/2020/04/09/business/09reuters-usa-banks-results-preview.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/09/business/09reuters-usa-banks-results-preview.html?searchResultPosition=8
 
 **Polish President Wants Firms to Be Relieved From Social Security Payments**\
 `Poland's President Andrzej Duda said on Thursday he asked Prime Minister Mateusz Morawiecki to exempt all Polish firms from social security payments for three months.`\
-https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-health-coronavirus-duda.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-health-coronavirus-duda.html?searchResultPosition=9
 
 **Key China Coronavirus Hospital Says HIV Drug Beneficial to Patients**\
 `Chinese doctors at the primary hospital treating severe coronavirus patients in the city of Wuhan said they have been using the HIV drug Kaletra since January and believe it is beneficial, despite a previous study that it was ineffective. `\
-https://nytimes.com/reuters/2020/04/09/world/asia/09reuters-health-coronavirus-china-wuhan-hospital.html?searchResultPosition=4
-
-**On Politics: Biden’s Big Challenge**\
-`The general election starts … now, basically. This is your morning tip sheet.`\
-https://nytimes.com/2020/04/09/us/politics/biden-sanders-trump-election.html?searchResultPosition=5
-
-**‘Same Boat’ Review: At Sea, With an Assassin From the Future**\
-`Chris Roberti directs and stars in this sci-fi comedy about time travelers on a cruise ship, but the plot never leaves port.`\
-https://nytimes.com/2020/04/09/movies/same-boat-review.html?searchResultPosition=6
-
-**UK Braces for More Virus Deaths; Johnson Reported Stable**\
-`Britons braced Thursday for several more weeks in lockdown as Prime Minister Boris Johnson remained in a London hospital after three nights in intensive care for treatment of his coronavirus infection. `\
-https://nytimes.com/aponline/2020/04/09/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=7
-
-**‘Sea Fever’ Review: A Timely but Derivative Contagion Thriller**\
-`Self-quarantining is an issue when a mysterious infection arrives on a fishing boat.`\
-https://nytimes.com/2020/04/09/movies/sea-fever-review.html?searchResultPosition=8
-
-**‘Stray Dolls’ Review: Woman on the Verge**\
-`The American dream turns rancid for a young immigrant trapped in upstate New York.`\
-https://nytimes.com/2020/04/09/movies/stray-dolls-review-woman-on-the-verge.html?searchResultPosition=9
-
-**DealBook: The Hedge Fund That Saw It Coming**\
-`Paul Singer of Elliott Management warned employees two months ago that they should prepare for a monthlong quarantine.`\
-https://nytimes.com/2020/04/09/business/dealbook/coronavirus-hedge-fund-singer-elliott.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/09/world/asia/09reuters-health-coronavirus-china-wuhan-hospital.html?searchResultPosition=10
 
