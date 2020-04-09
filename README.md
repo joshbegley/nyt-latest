@@ -1,40 +1,40 @@
+**Pass the Salt: The Minute Details That Helped Germany Build Virus Defences**\
+`One January lunchtime in a car parts company, a worker turned to a colleague and asked to borrow the salt.`\
+https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-health-coronavirus-germany-defences-insight.html?searchResultPosition=1
+
+**Kremlin Calls for Coordinated Joint Action on Global Oil Markets**\
+`Russia wants coordinated joint action to stabilise global oil markets, Kremlin spokesman Dmitry Peskov said on Thursday ahead of a meeting between OPEC and non-OPEC producers.`\
+https://nytimes.com/reuters/2020/04/09/business/09reuters-oil-opec-russia-kremlin.html?searchResultPosition=2
+
+**The Upheaval in New York’s Rental Market**\
+`As many leave the city to move home with their parents, roommates are left to scramble to find subletters, but moving itself can actually be easier.`\
+https://nytimes.com/2020/04/09/realestate/the-upheaval-in-new-yorks-rental-market.html?searchResultPosition=3
+
+**Their Car Beat Hitler’s Racers, but Who Owns It Now?**\
+`A French automaker, an American heiress and a French-Jewish racer formed a team that beat Germany’s far more powerful cars in a 1938 Grand Prix. Its history since then traces a more complex path.`\
+https://nytimes.com/2020/04/09/business/delahaye-racecar-faster-neal-bascomb.html?searchResultPosition=4
+
+**Where Can I Find a Marriage License?**\
+`Though most municipal offices are closed across the country, some cities are still issuing licenses to nonresident couples who plan to marry within city or state limits.`\
+https://nytimes.com/2020/04/09/fashion/weddings/coronavirus-where-to-find-marriage-licenses.html?searchResultPosition=5
+
+**For Workers Over 50, a Job Without Benefits Spells Long-Term Trouble**\
+`A study shows that three out of four U.S. workers ages 50 to 62 didn’t have an employer-provided retirement plan and health insurance — which will be a big blow to their income later.`\
+https://nytimes.com/2020/04/09/business/retirement-jobs-no-benefits.html?searchResultPosition=6
+
+**On the Front Lines in New Orleans**\
+`“The first thing I think, if you’ve got the symptoms, are you going to live, or are you going to die?”`\
+https://nytimes.com/2020/04/09/podcasts/the-daily/coronavirus-new-orleans.html?searchResultPosition=7
+
 **Spain's Daily Coronavirus Deaths Decrease as Toll Surpasses 15,000**\
 `Spain's number of daily coronavirus deaths slowed on Thursday after two days of increases as 683 people succumbed in 24 hours, taking the total to 15,238, the health ministry said.`\
-https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-health-coronavirus-spain-tally.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-health-coronavirus-spain-tally.html?searchResultPosition=8
 
 **Hungary Registers Over 100 Coronavirus Cases in Old People's Home**\
 `Hungary has found more than 100 coronavirus infections in an old people's home in Budapest, Surgeon General Cecilia Muller told a news briefing on Thursday.`\
-https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-health-coronavirus-hungary-infections.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-health-coronavirus-hungary-infections.html?searchResultPosition=9
 
 **Tesla's China Sales Hit Record High in March: Industry Association**\
 `Tesla Inc sold 10,160 vehicles in China in March, its highest ever monthly sales in the world's largest auto market, the China Passenger Car Association (CPCA) said on Thursday.`\
-https://nytimes.com/reuters/2020/04/09/business/09reuters-tesla-china-sales.html?searchResultPosition=3
-
-**Dollar Steadies Before US Jobs Data, Riskier FX Up on OPEC Hopes**\
-`The dollar held firm on Thursday after the swings caused by the coronavirus pandemic, but some selling pressure may be in store with U.S. jobless data due later expected to show claims near record highs.`\
-https://nytimes.com/reuters/2020/04/09/business/09reuters-global-forex.html?searchResultPosition=4
-
-**European Companies Ditch Dividends to Save Cash**\
-`European companies are scrapping dividends to maintain cash and comply with regulations in response to the financial havoc caused by the spread of the new coronavirus.`\
-https://nytimes.com/reuters/2020/04/09/us/09reuters-health-coronavirus-dividends-graphic.html?searchResultPosition=5
-
-**Second Prime Minister-Designate in 5 Weeks Resigns in Iraq**\
-`Iraq's second prime minister-designate in just over a month withdrew his candidacy Thursday following political infighting, leaving a leadership vacuum at the helm of the government amid a severe economic crisis and viral pandemic. `\
-https://nytimes.com/aponline/2020/04/09/world/middleeast/ap-ml-iraq-politics-.html?searchResultPosition=6
-
-**India and Pakistan Locked in Border Fighting Amid Coronavirus Crisis**\
-`Indian and Pakistani troops in disputed Kashmir are engaged in their most frequent cross-border fighting of at least two years, official data shows, even as both nuclear-armed rivals battle surging coronavirus outbreaks.`\
-https://nytimes.com/reuters/2020/04/09/world/asia/09reuters-india-pakistan-kashmir.html?searchResultPosition=7
-
-**Your Thursday Briefing**\
-`Coronavirus, Saudi Arabia, Bernie Sanders: Here's what you need to know.`\
-https://nytimes.com/2020/04/09/briefing/news-today.html?searchResultPosition=8
-
-**Formula One Faces New Reality Amid Coronavirus Crisis: Todt**\
-`Formula one is facing a new reality and must make deeper cost cuts to ensure the sport emerges intact from the coronavirus crisis, FIA president Jean Todt said.`\
-https://nytimes.com/reuters/2020/04/09/sports/autoracing/09reuters-health-coronavirus-f1-todt.html?searchResultPosition=9
-
-**Ex-Kazakh President's Grandson Wins UK Case Over Purchase of London Mansion**\
-`London's High Court removed anti-graft orders against the grandson of the former president of Kazakhstan on Wednesday, dealing a blow to powers that British crime fighters use to target dirty money. `\
-https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-britain-kazakhstan-wealthorder.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/09/business/09reuters-tesla-china-sales.html?searchResultPosition=10
 
