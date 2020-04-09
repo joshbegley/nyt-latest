@@ -1,40 +1,40 @@
+**Key China Coronavirus Hospital Says HIV Drug Beneficial to Patients**\
+`Chinese doctors at the primary hospital treating severe coronavirus patients in the city of Wuhan said they have been using the HIV drug Kaletra since January and believe it is beneficial, despite a previous study that it was ineffective. `\
+https://nytimes.com/reuters/2020/04/09/world/asia/09reuters-health-coronavirus-china-wuhan-hospital.html?searchResultPosition=1
+
+**On Politics: Biden’s Big Challenge**\
+`The general election starts … now, basically. This is your morning tip sheet.`\
+https://nytimes.com/2020/04/09/us/politics/biden-sanders-trump-election.html?searchResultPosition=2
+
+**‘Same Boat’ Review: At Sea, With an Assassin From the Future**\
+`Chris Roberti directs and stars in this sci-fi comedy about time travelers on a cruise ship, but the plot never leaves port.`\
+https://nytimes.com/2020/04/09/movies/same-boat-review.html?searchResultPosition=3
+
+**UK Braces for More Virus Deaths; Johnson Reported Stable**\
+`Britons braced Thursday for several more weeks in lockdown as Prime Minister Boris Johnson remained in a London hospital after three nights in intensive care for treatment of his coronavirus infection. `\
+https://nytimes.com/aponline/2020/04/09/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=4
+
+**‘Sea Fever’ Review: A Timely but Derivative Contagion Thriller**\
+`Self-quarantining is an issue when a mysterious infection arrives on a fishing boat.`\
+https://nytimes.com/2020/04/09/movies/sea-fever-review.html?searchResultPosition=5
+
+**‘Stray Dolls’ Review: Woman on the Verge**\
+`The American dream turns rancid for a young immigrant trapped in upstate New York.`\
+https://nytimes.com/2020/04/09/movies/stray-dolls-review-woman-on-the-verge.html?searchResultPosition=6
+
 **DealBook: The Hedge Fund That Saw It Coming**\
 `Paul Singer of Elliott Management warned employees two months ago that they should prepare for a monthlong quarantine.`\
-https://nytimes.com/2020/04/09/business/dealbook/coronavirus-hedge-fund-singer-elliott.html?searchResultPosition=1
+https://nytimes.com/2020/04/09/business/dealbook/coronavirus-hedge-fund-singer-elliott.html?searchResultPosition=7
 
 **Pfizer Says Early Studies of Potential Coronavirus Treatment Show Promise**\
 `U.S. drugmaker Pfizer Inc said on Thursday that early  data has helped it identify a drug candidate with the potential to help treat patients infected with the novel coronavirus.  `\
-https://nytimes.com/reuters/2020/04/09/us/09reuters-health-coronavirus-pfizer.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/09/us/09reuters-health-coronavirus-pfizer.html?searchResultPosition=8
 
 **Futures Dip Ahead of Weekly Jobless Claims Number**\
 `U.S. stock index futures dipped on Thursday as investors braced for another staggering weekly jobless claims number, while oil prices rose on hopes of sweeping production cuts.`\
-https://nytimes.com/reuters/2020/04/09/us/09reuters-usa-stocks.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/09/us/09reuters-usa-stocks.html?searchResultPosition=9
 
 **Aileen Baviera, Leading Philippines Scholar of China, Dies at 60**\
 `Dr. Baviera studied in Beijing in the early 1980s, at the start of her lifelong fascination with China.`\
-https://nytimes.com/2020/04/09/obituaries/aileen-baviera-dead-coronavirus.html?searchResultPosition=4
-
-**Geneva Couple Rethink Birth Plan Amid Coronavirus Crisis**\
-`The coronavirus epidemic has forced a Swiss couple to rethink their plans for the birth of their first child.`\
-https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-health-coronavirus-swiss-baby.html?searchResultPosition=5
-
-**Whales Filmed Having Whale of a Time During Lockdown**\
-`With humans away, the whales will play.`\
-https://nytimes.com/aponline/2020/04/09/world/europe/ap-eu-virus-outbreak-roaming-whales.html?searchResultPosition=6
-
-**In Overcrowded Cells, Bahrain's Political Prisoners Fear Coronavirus Threat**\
-`When jailed Bahraini activist Abdullah Habeeb Swar developed a bad cough that lasted several days, his 14 cell mates feared he might have contracted the coronavirus and would spread it through their overcrowded wing.`\
-https://nytimes.com/reuters/2020/04/09/world/middleeast/09reuters-health-coronavirus-bahrain-prisons.html?searchResultPosition=7
-
-**Finland Extends Most Coronavirus Related Restrictions by One Month**\
-`Finland on Thursday extended most of its restrictions imposed to contain the spread of the novel coronavirus by one month to May 13, the government said in a statement.`\
-https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-health-coronavirus-finland.html?searchResultPosition=8
-
-**Turkish Legislation Banning Layoffs to Go to Parliament Next Week: Sources**\
-`The Turkish government plans to send legislation to parliament early next week temporarily banning layoffs to reduce an expected jump in unemployment due to the spread of coronavirus, two senior officials told Reuters on Thursday.`\
-https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-health-coronavirus-turkey-jobs.html?searchResultPosition=9
-
-**Irish Coronavirus Adjusted Unemployment Rate Soars to 16.5%**\
-`Ireland's unemployment rate more than trebled to 16.5% at the end of March including those receiving emergency coronavirus jobless benefits, the state's statistics office said on Thursday, ahead of a likely further surge this month.`\
-https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-ireland-economy-employment.html?searchResultPosition=10
+https://nytimes.com/2020/04/09/obituaries/aileen-baviera-dead-coronavirus.html?searchResultPosition=10
 
