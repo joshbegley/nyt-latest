@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/04/09/sports/football/ap-fbn-tagovailoas-healt
 https://nytimes.com/2020/04/09/opinion/mental-health-isolation-coronavirus.html?searchResultPosition=3
 
 **Jailed on a Minor Parole Violation, He Caught the Virus and Died**\
-`Two weeks after Gov. Andrew M. Cuomo promised to release 400 Rikers inmates held on minor parole violations, only half have been freed.`\
+`By Jan Ransom`\
 https://nytimes.com/2020/04/09/nyregion/rikers-coronavirus-deaths-parolees.html?searchResultPosition=4
 
 **Dana White Says U.F.C. 249 Canceled by Request of ESPN and Disney**\
