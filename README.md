@@ -1,5 +1,5 @@
 **Take Me Out to the (Backyard) Ball Game**\
-`The Yankees are trying to keep busy, a Taiwanese major league team is employing robots as fans, and English soccer looks for a comeback date.`\
+`The Yankees try to keep busy, a Taiwanese major league team will employ robots as fans, and English soccer looks for a comeback date.`\
 https://nytimes.com/2020/04/09/sports/yankees-premier-league-coronavirus.html?searchResultPosition=2
 
 **US Casino Workers: Pay Us Through the Shutdown**\
