@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/04/09/business/ap-us-virus-outbreak-home-buyin
 `Speed is of the essence if a federal relief program for small businesses is going to be effective in combating the damage wrought by the coronavirus lockdowns.`\
 https://nytimes.com/aponline/2020/04/09/business/ap-us-virus-outbreak-small-business-relief-qa.html?searchResultPosition=9
 
-**Pandemic Has Set the Number of Air Travelers Back Decades**\
-`The number of Americans getting on airplanes has sunk to a level not seen in more than 60 years as people shelter in their homes to avoid catching or spreading the new coronavirus.`\
-https://nytimes.com/aponline/2020/04/09/business/ap-virus-outbreak-air-travel.html?searchResultPosition=10
+**Australian Police Take 'Black Box' Off Cruise Ship in Coronavirus Homicide Probe**\
+`Australian police said on Thursday they have taken the "black box" of a cruise ship which disembarked hundreds of passengers infected with the coronavirus in Sydney, as part of a homicide investigation into the country's deadliest infection source.`\
+https://nytimes.com/reuters/2020/04/09/world/asia/09reuters-health-coronavirus-australia.html?searchResultPosition=10
 
