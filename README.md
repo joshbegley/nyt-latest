@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/04/09/world/asia/09reuters-health-coronavirus-china-toll.html?searchResultPosition=1
 
 **UBS and Credit Suisse to Partially Postpone Dividend Payout**\
-`Switzerland's two big banks, UBS and Credit Suisse, said they decided to pay out part of their dividend for 2019 later this year after financial markets watchdog FINMA had criticised their decision to maintain a full payout during the coronavirus crisis.`\
+`UBS and Credit Suisse have decided to pay out part of their dividend for 2019 later this year after financial markets watchdog FINMA criticised the Swiss banks' decision to maintain a full payout during the coronavirus crisis.`\
 https://nytimes.com/reuters/2020/04/09/business/09reuters-healthswiss-banks.html?searchResultPosition=2
 
 **Swiss Financial Watchdog Welcomes UBS' and Credit Suisse's Dividend Decisions**\
