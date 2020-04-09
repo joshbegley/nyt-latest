@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/04/08/arts/08reuters-people-kennedy-missing.htm
 `Taiwan's foreign ministry on Thursday strongly protested accusations from the head of the World Health Organization that it condoned racist personal attacks on him that he alleged were coming from the self-governing island democracy. `\
 https://nytimes.com/aponline/2020/04/08/world/asia/ap-as-virus-outbreak-taiwan-who-chief.html?searchResultPosition=5
 
-**Mexico's Cemex Asks Employees, Executives to Take Reduced Pay Amid Coronavirus**\
-`Mexican cement maker Cemex said on Wednesday that it had asked employees to voluntarily defer 10% of their monthly salaries and members of the executive team to give up 15% of their monthly pay, citing the impact of the coronavirus.`\
+**Cemex Asks Staff, Executives to Take Reduced Pay as Coronavirus Hits Demand**\
+`Mexican cement maker Cemex said on Wednesday it had asked employees to voluntarily defer payment of 10% of their salaries for three months, part of a raft of measures to combat the  impact of coronavirus that include the scrapping of its 2020  dividend.`\
 https://nytimes.com/reuters/2020/04/08/world/americas/08reuters-mexico-cemex.html?searchResultPosition=6
 
 **LeBron: Closure Not Likely Unless Lakers Can Finish Season**\
