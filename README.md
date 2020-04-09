@@ -1,36 +1,36 @@
-**Boris Johnson Leaves Intensive Care, but Britain Faces Weeks of More Lockdown**\
-`The prime minister’s exit from the intensive care ward of a London hospital offered a ray of hope for a country still reeling from the trauma of the coronavirus pandemic.`\
-https://nytimes.com/2020/04/09/world/europe/coronavirus-boris-johnson-united-kingd.html?searchResultPosition=2
+**U.S., UK Cyber Officials Say State-Backed Hackers Taking Advantage of Outbreak**\
+`American and British cybersecurity officials are warning that state-backed hackers and online criminals are taking advantage of the coronavirus outbreak to further their operations, echoing concerns from digital safety experts.`\
+https://nytimes.com/reuters/2020/04/09/technology/09reuters-health-coronavirus-cyber.html?searchResultPosition=2
 
-**9 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2020/04/09/books/review/9-new-books-we-recommend-this-week.html?searchResultPosition=3
+**On Holy Thursday, Pope Hails Front-Line 'Saints' Helping Virus Victims**\
+`Pope Francis presided at a scaled-down Holy Thursday Mass in an empty St. Peter's Basilica, praising ordinary doctors, nurses and priests who risk their lives helping coronavirus victims as "the saints next door".`\
+https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-health-coronavirus-easter-pope-holythursday.html?searchResultPosition=3
 
-**The Invasion of Antarctica Begins With Mussels**\
-`The bivalves — likely transported from Patagonia via ship — are the first nonnative marine species to settle on the White Continent.`\
-https://nytimes.com/2020/04/09/science/antarctica-invasive-mussels.html?searchResultPosition=4
+**FIBA Postpones Olympic Qualifiers by a Year in Rejigged Schedule**\
+`World basketball's governing body has postponed the men's Olympic qualifiers, the European Championship and the Americas Championship by a year amid the COVID-19 pandemic, FIBA said on Thursday. `\
+https://nytimes.com/reuters/2020/04/09/sports/basketball/09reuters-health-coronavirus-basketball-olympics.html?searchResultPosition=4
 
-**Jimmie Johnson Mulls Future in Red-Flagged Farewell Season**\
-`Jimmie Johnson, seven-time NASCAR champion and all-around Everyman, has added home-schooling elementary teacher to his resume.`\
-https://nytimes.com/aponline/2020/04/09/sports/ap-car-nascar-johnson-future-.html?searchResultPosition=5
+**U.S. Fed Buys $109.4 Billion of Mortgage Bonds, Sells None**\
+`- The Federal Reserve bought $109.352 billion of agency mortgage-backed securities in the week`\
+https://nytimes.com/reuters/2020/04/09/us/09reuters-markets-mortgages-fed.html?searchResultPosition=5
 
-**How to Write a Condolence Note**\
-`At this particular moment, email is fine.`\
-https://nytimes.com/2020/04/09/style/best-way-to-write-a-condolence-note-coronavirus.html?searchResultPosition=6
+**Coronavirus Must Not Stymie Global Tax Reform: Germany's Scholz**\
+`German Finance Minister Olaf Scholz said on Thursday that efforts to introduce global rules on taxing digital giants such as Google, Amazon and Facebook should not be derailed by the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-health-coronavirus-germany-taxation.html?searchResultPosition=6
 
-**Law Classmates ‘Deeply Dismayed’ by Inspector General’s Firing**\
-`Members of the Cornell Law class of 1991 condemn the president’s decision to dismiss their classmate Michael Atkinson from his post.`\
-https://nytimes.com/2020/04/09/opinion/letters/atkinson-trump-cornell.html?searchResultPosition=7
+**U.S. Local News Outlets Need Government Rescue: Lawmakers, Trade Groups**\
+`Four groups representing local newspapers and broadcast media outlets on Thursday asked U.S. lawmakers to provide assistance amid rising economic woes tied to the coronavirus outbreak, including up to $10 billion in government advertising.`\
+https://nytimes.com/reuters/2020/04/09/world/africa/09reuters-health-coronavirus-usa-media.html?searchResultPosition=7
 
-**Italian Tenor Bocelli to Offer Easter 'Prayer' in Empty Milan Cathedral**\
-`Italian tenor Andrea Bocelli will sing to a Milan cathedral bare of worshippers on Easter Sunday, hoping to bring together people isolated during the coronavirus lockdown in a livestreamed broadcast he said would not be a concert but a prayer.`\
-https://nytimes.com/reuters/2020/04/09/arts/09reuters-health-coronavirus-easter-bocelli.html?searchResultPosition=8
+**Fed Lifeline for Cash-Strapped U.S. States and Cities Lifts Muni Market**\
+`A move by the Federal Reserve on Thursday to aid states, counties and cities facing a coronavirus-caused cash crunch helped boost the troubled U.S. municipal bond market. `\
+https://nytimes.com/reuters/2020/04/09/world/africa/09reuters-health-coronavirus-municipals.html?searchResultPosition=8
 
-**Moscow Zoo's Giant Pandas Miss Their Usual Visitors Amid Lockdown**\
-`Moscow's zoo said on Thursday that its two giant pandas appeared to miss their usual flow of visitors and were clearly hankering after more human interaction with the city in lockdown because of the coronavirus.  `\
-https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-russia-panda-zoo.html?searchResultPosition=9
+**Factbox: Insurers Return Part of Auto Premiums as Coronavirus Cuts Driving**\
+`Major U.S. insurers are offering credit to auto and motorcycle policyholders following a decline in driving, as most Americans stay at home to help contain the spread of the novel coronavirus.`\
+https://nytimes.com/reuters/2020/04/09/us/09reuters-health-coronavirus-insurance-auto-factbox.html?searchResultPosition=9
 
-**Frosted Flakes**\
-`We explore “Tiger King” and what it says about America’s unique relationship to freedom.`\
-https://nytimes.com/2020/04/09/podcasts/still-processing-tiger-king.html?searchResultPosition=10
+**French People in ICU for Coronavirus Falls for First Time: Ministry**\
+`The number of people in intensive care units (ICU) for coronavirus infection in France fell slightly for the first time since the start of the epidemic, but the number of people dying in nursing homes jumped by more than 50 percent over two days, health ministry data showed on Thursday. `\
+https://nytimes.com/reuters/2020/04/09/world/europe/09reuters-health-coronavirus-france-toll.html?searchResultPosition=10
 
