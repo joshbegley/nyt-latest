@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/04/10/world/asia/10reuters-health-coronavirus-y
 https://nytimes.com/aponline/2020/04/10/us/politics/ap-us-election-2020-biden-vp-search.html?searchResultPosition=3
 
 **OPEC Plan for Oil Output Disappoints Traders: Live Updates**\
-`Live updates on stock market and business news during the coronavirus outbreak.`\
+`The latest on stock market and business news during the coronavirus outbreak.`\
 https://nytimes.com/2020/04/10/business/stock-market-today-coronavirus.html?searchResultPosition=4
 
 **If You Can’t Go Outside, Read**\
