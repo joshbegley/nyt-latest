@@ -1,36 +1,36 @@
-**What California Is Doing to Prepare for Elections During the Pandemic**\
-`Friday: California’s secretary of state talks about the challenges ahead. Also: Gov. Gavin Newsom defends the move to send ventilators out of state.`\
-https://nytimes.com/2020/04/10/us/california-mail-in-ballot-coronavirus.html?searchResultPosition=2
+**Italy Widens Disclosure Requirements in Response to Volatility**\
+`Ialy has widened investor disclosure rules to cover 104 firms in a bid to counter volatility fuelled by the coronavirus pandemic, market watchdog Consob said on Friday, more than doubling the list of such companies.`\
+https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-italy-markets.html?searchResultPosition=2
 
-**Mississippi Court Won't Undo 12-Year Sentence for Jail Phone**\
-`An attorney says he will ask the U.S. Supreme Court to overturn the 12-year prison sentence given to an African American man in Mississippi for carrying his mobile phone into a jail cell after he was arrested on a misdemeanor charge.`\
-https://nytimes.com/aponline/2020/04/10/us/ap-us-cellphone-prison-sentence.html?searchResultPosition=3
+**VIRUS DIARY: Isolation and Patience on a Quiet Gaza Farm**\
+`I haven't spent more than a single night at my family's farm on the northern edge of Gaza since an Israeli airstrike killed my father there more than a decade ago. But the arrival of the coronavirus has upended our notions of danger and refuge.`\
+https://nytimes.com/aponline/2020/04/10/world/middleeast/ap-ml-virus-outbreak-diary-patience-in-gaza.html?searchResultPosition=3
 
-**Dutch Coronavirus Cases Rise by 1,335 to 23,097: Health Authorities**\
-`The number of confirmed coronavirus cases in the Netherlands rose by 1,335 on Friday to 23,097, health authorities said, with 115 new deaths.`\
-https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-netherlands-tally.html?searchResultPosition=4
+**Consumer Prices Slump as Virus Suppresses Spending**\
+`Consumer prices fell 0.4% in March, the largest decline in five years, revealing the downward pressure that the coronavirus pandemic is exerting on the cost gasoline, airfares, hotel rooms and other goods and services. `\
+https://nytimes.com/aponline/2020/04/10/business/bc-us-consumer-prices.html?searchResultPosition=4
 
-**The Fine Line Between Helpful and Harmful Authenticity**\
-`When we express ourselves, let’s not forget to think of others.`\
-https://nytimes.com/2020/04/10/smarter-living/the-fine-line-between-helpful-and-harmful-authenticity.html?searchResultPosition=5
+**AP Week in Pictures, North America**\
+`April 3–April 9, 2020`\
+https://nytimes.com/aponline/2020/04/10/us/ap-us-pictures-of-the-week-in-north-america-photo-gallery.html?searchResultPosition=5
 
-**U.S. Consumer Prices Decline in March**\
-`U.S. consumer prices fell in March and further decreases are likely as the novel coronavirus outbreak suppresses demand for some goods and services, offsetting price increases related to shortages resulting from disruptions to the supply chain.`\
-https://nytimes.com/reuters/2020/04/10/us/10reuters-usa-economy-economy.html?searchResultPosition=6
+**Bavarian Town's 17th Century Vow Has Spared It From Coronavirus, Pastor Says**\
+`The small Bavarian town of Oberammergau has yet to record any cases of the new coronavirus, and its pastor believes a 17th century promise could be the reason why.`\
+https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-germany-passion-play.html?searchResultPosition=6
 
-**EU Leaders to Hold Coronavirus Video Conference on April 23**\
-`European Union leaders will hold a video conference on April 23 to discuss the economic response to coronavirus, the President of the European Council Charles Michel said on Friday, a day after EU finance ministers agreed on half-a-trillion euros worth of support for their coronavirus-battered economies.`\
-https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-eu-summit.html?searchResultPosition=7
+**What You Need to Know Today About the Virus Outbreak**\
+`Christians observed Good Friday without the solemn church services or emotional processions of past years, instead watching livestreams at home as the world remained locked down by the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/04/10/us/ap-us-virus-outbreak-whats-happening.html?searchResultPosition=7
 
-**30 MLB Players Sign On for The Show Video Game Tournament**\
-`Blake Snell, Juan Soto and Bo Bichette are among the baseball stars switching over to PlayStation with America's pastime on hold. `\
-https://nytimes.com/aponline/2020/04/10/sports/baseball/ap-bbo-the-show-tournament.html?searchResultPosition=8
+**Virus Relief Efforts Give Rise to New Tax Strategies**\
+`Government plans to ease the financial impact of the pandemic have created significant opportunities to reduce personal and business tax bills for years.`\
+https://nytimes.com/2020/04/10/your-money/coronavirus-wealth-taxes.html?searchResultPosition=8
 
-**For Festival Fashion, the Music Has Stopped**\
-`Festivals like Coachella have been postponed, leaving scores of online fashion retailers with a mass of unsold inventory and unpaid suppliers.`\
-https://nytimes.com/2020/04/10/fashion/coronavirus-coachella-festival-fashion.html?searchResultPosition=9
+**Property Taxes Are Probably Still Due Despite Coronavirus**\
+`Local governments rely on them to pay for services like trash pickup and the public schools. But some are trying to give flexibility to homeowners in financial trouble.`\
+https://nytimes.com/2020/04/10/your-money/coronavirus-property-taxes.html?searchResultPosition=9
 
-**Notre-Dame Service a Message of Hope for France in Coronavirus Lockdown**\
-`Nearly a year after fire devastated Notre-Dame cathedral in Paris, the city's Archbishop held a small ceremony there to mark Good Friday, praying that Easter's message of rebirth might bring comfort to a country stricken by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-easter-notredame.html?searchResultPosition=10
+**A ‘Car Wreck’ Puts the Business of Bringing People Together on Hold**\
+`South by Southwest and the co-working start-up the Riveter are each focused on the creativity sparked by in-person contact. But that’s impossible in the era of social distancing.`\
+https://nytimes.com/2020/04/10/business/corner-office-roland-swenson-amy-nelson.html?searchResultPosition=10
 
