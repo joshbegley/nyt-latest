@@ -1,36 +1,36 @@
-**Coronavirus-Hit Airlines in Push for Divisive Route Subsidies**\
-`Major airlines are seeking operating subsidies for key routes once coronavirus restrictions are lifted, a leaked lobbying document shows, stoking tensions with some low-cost carriers that are less likely to benefit from the additional funds.`\
-https://nytimes.com/reuters/2020/04/10/business/10reuters-health-coronavirus-airlines-subsidies.html?searchResultPosition=2
+**Portugal Set to Extend Coronavirus Lockdown Till May 1**\
+`Portuguese President Marcelo Rebeleo de Sousa said on Friday he would propose next week extending a national lockdown till May 1 as the number of coronavirus cases in the country rose above 15,000.`\
+https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-portugal.html?searchResultPosition=2
 
-**U.S. CDC Extends 'No Sail Order' for All Cruise Ships**\
-`The U.S. Centers for Disease Control and Prevention extended its "no sail order" for all cruise ships, as it looks to prevent the spread of the novel coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/10/us/10reuters-health-coronavirus-cdc-cruise.html?searchResultPosition=3
+**US International Aid Groups Sending Help Home**\
+`In Santa Barbara, forklifts chug through the warehouse of Direct Relief, hustling pallets of much-needed medical supplies into waiting FedEx trucks.`\
+https://nytimes.com/aponline/2020/04/10/us/ap-us-virus-outbreakaid-comes-home.html?searchResultPosition=3
 
-**Cartoons Aren’t Just for Kids. Stream These 11 Series for Adults.**\
-`Some of the best animated series are designed for viewers old enough to get the references and understand the emotions at play. Here are several to stream after the children go to bed.`\
-https://nytimes.com/2020/04/10/arts/television/cartoons-for-adults.html?searchResultPosition=4
+**U.S. Energy Secretary Tells G20 All Nations Should Help Reduce Oil Surplus**\
+`U.S. Energy Secretary Dan Brouillette on Friday described a  dire situation in global energy markets, saying that the coronavirus pandemic and massive oil surplus have created a lethal combination.  `\
+https://nytimes.com/reuters/2020/04/10/business/10reuters-global-oil-g20-usa.html?searchResultPosition=4
 
-**Singapore Reports 198 New Coronavirus Infections and Seventh Death**\
-`Singapore reported 198 new coronavirus cases on Friday, taking the total in the city-state to 2,108.`\
-https://nytimes.com/reuters/2020/04/10/world/asia/10reuters-health-coronavirus-singapore.html?searchResultPosition=5
+**Lebanon Seizes 25 Tonnes of Hashish to Be Smuggled to Africa**\
+`Lebanese police have seized about 25 tonnes of hashish that were set to be smuggled to an African state, in the country's biggest drug bust, Lebanese security forces said on Friday.`\
+https://nytimes.com/reuters/2020/04/10/world/middleeast/10reuters-lebanon-crime-hashish.html?searchResultPosition=5
 
-**Tennis: French Federation Launches 35-Million Euro Support Plan**\
-`The French federation is launching a 35-million euro support plan for French tennis amid the coronavirus crisis, it said on Friday.`\
-https://nytimes.com/reuters/2020/04/10/sports/tennis/10reuters-health-coronavirus-tennis.html?searchResultPosition=6
+**Where to Find Drama Now? All the Internet’s a Stage**\
+`A roundup of streaming theater that covers classics and new shows, endearingly D.I.Y. webcasts and slick Broadway extravaganzas.`\
+https://nytimes.com/2020/04/10/theater/plays-streaming.html?searchResultPosition=6
 
-**New York Revamps Overwhelmed Unemployment System**\
-`New York state is getting help from Google to overhaul a decades-old unemployment benefits system that has left laid-off workers frustrated and awaiting help.`\
-https://nytimes.com/aponline/2020/04/10/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=7
+**‘Mrs. America’ Depicts a Different Kind of Feminist: The Anti- Kind**\
+`The new FX series stars Cate Blanchett as Phyllis Schlafly, who helped defeat the Equal Rights Amendment in the 1970s — and set the terms of a debate that continues today.`\
+https://nytimes.com/2020/04/10/arts/television/mrs-america-cate-blanchett.html?searchResultPosition=7
 
-**Turkey Held Talks With U.S. Over Possible Fed Swap Line: Turkish Officials**\
-`Turkey has held talks with the United States about possibly securing a swap line from the Federal Reserve and has discussed other funding options to mitigate fallout from the coronavirus outbreak, Turkish officials said on Friday. `\
-https://nytimes.com/reuters/2020/04/10/business/10reuters-health-coronavirus-turkey-funding.html?searchResultPosition=8
+**Where Women and Artists of Color Set the Tone**\
+`Francie Bishop Good, an artist herself, can’t resist adding to the collection she and her husband have amassed.`\
+https://nytimes.com/2020/04/10/arts/design/francie-bishop-good-art-collection.html?searchResultPosition=8
 
-**Russia Calls on G20 to Join Efforts With OPEC+ on Oil Market**\
-`Russian Energy Minister Alexander Novak called on the G20 group of the world's largest economies on Friday to join the efforts of the group of leading oil producers, known as the OPEC+, to stabilize energy markets.`\
-https://nytimes.com/reuters/2020/04/10/business/10reuters-global-oil-g20-energy-russia.html?searchResultPosition=9
+**Michael C. Cooper, Convicted in Tax Scam, Dies a Prisoner at 66**\
+`Seeing an opportunity to profit off widespread resentment over the tax system, he ensnared 50,000 Americans who sought to dodge the I.R.S.`\
+https://nytimes.com/2020/04/10/us/michael-c-cooper-dead.html?searchResultPosition=9
 
-**2 Die in Texas Crash, Man Jumps From Overpass to Avoid Truck**\
-`Two women were killed after a tractor-trailer smashed into several vehicles that had stopped on a Houston freeway early Friday because of previous collisions, authorities said.`\
-https://nytimes.com/aponline/2020/04/10/us/ap-us-texas-freeway-crash.html?searchResultPosition=10
+**Factbox: Europe Begins to Consider Easing Coronavirus Lockdowns**\
+`Some European countries have announced plans to ease restrictions on social life, transport and cross-border travel put in place since mid-March to battle the spread of the novel coronavirus.`\
+https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-europe-factbox.html?searchResultPosition=10
 
