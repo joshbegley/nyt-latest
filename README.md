@@ -1,5 +1,5 @@
 **Victor Skrebneski, Who Captured Stars in Striking Photos, Dies at 90**\
-`A renowned career began when as a boy he found a camera in park. A famous campaign for Estée Lauder followed, as did images of celebrities in black turtlenecks.`\
+`His career began when he found a camera in a park as a boy. A famous campaign for Estée Lauder followed, as did images of celebrities in black turtlenecks.`\
 https://nytimes.com/2020/04/10/arts/victor-skrebneski-dead.html?searchResultPosition=3
 
 **UK Urges Citizens to Stay at Home Over Easter, Police Ready to Get Tough**\
