@@ -1,32 +1,32 @@
+**William R. Polk, Historian and Middle East Envoy, Dies at 91**\
+`He wrote or edited more than two-dozen books, but he was no armchair academic — he crossed a desert by camel in part to understand a poem.`\
+https://nytimes.com/2020/04/10/us/william-polk-dead.html?searchResultPosition=3
+
+**Quibi: 9 Shows Worth Your Time. Or at Least a Few Minutes.**\
+`The short-form streaming service debuted this week with more than 40 series in a variety of genres. Here are a handful worth watching from the first round.`\
+https://nytimes.com/2020/04/10/arts/television/quibi-best-shows.html?searchResultPosition=4
+
+**U.S. Offers $10 Million for Information on Hezbollah Commander in Iraq**\
+`The United States on Friday offered up to $10 million for information on Sheikh Mohammad al-Kawtharani, a senior military commander of the Islamist group Hezbollah in Iraq who was an associate of the late Iranian General Qassem Soleimani.`\
+https://nytimes.com/reuters/2020/04/10/world/middleeast/10reuters-usa-iraq-hezbollah.html?searchResultPosition=5
+
+**NOT REAL NEWS: A Week of False News Around the Coronavirus**\
+`A roundup of some of the most popular but completely untrue stories and visuals of the week. None of these are legit, even though they were shared widely on social media. The Associated Press checked them out. Here are the facts:`\
+https://nytimes.com/aponline/2020/04/10/us/ap-not-real-news.html?searchResultPosition=6
+
+**How to Make the Perfect Playlist**\
+`Need something fresh to listen to? Maybe something inspiring? These tips will help.`\
+https://nytimes.com/2020/04/10/automobiles/make-the-perfect-playlist-spotify-apple-music-pandora.html?searchResultPosition=7
+
 **White House Slams Voice of America, VOA Fights Back**\
 `The White House on Friday launched an unusual attack on the congressionally funded Voice of America, the U.S. broadcaster that for decades has provided independent news reporting around the world.`\
-https://nytimes.com/aponline/2020/04/10/us/politics/ap-us-white-house-voice-of-america.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/04/10/us/politics/ap-us-white-house-voice-of-america.html?searchResultPosition=8
 
 **How to Make Your Own Face Mask**\
 `The coronavirus pandemic is leading citizens everywhere to put on masks while in public. Here’s how to make one out of an old T-shirt.`\
-https://nytimes.com/video/well/100000007078467/homemade-face-mask-tutorial.html?searchResultPosition=4
+https://nytimes.com/video/well/100000007078467/homemade-face-mask-tutorial.html?searchResultPosition=9
 
 **Virus Deaths Mount, but N.Y. Avoids Predicted Surge at Hospitals So Far**\
 `Officials had estimated that 140,000 hospital beds might be needed to treat coronavirus patients. Only about 18,500 were in use by week’s end.`\
-https://nytimes.com/2020/04/10/nyregion/new-york-coronavirus-hospitals.html?searchResultPosition=5
-
-**What N.Y.C. Sounds Like Every Night at 7**\
-`For many New Yorkers, the time of coronavirus has brought a ritual: the cheer for front-line workers.`\
-https://nytimes.com/interactive/2020/04/10/nyregion/nyc-7pm-cheer-thank-you-coronavirus.html?searchResultPosition=6
-
-**G20 Agree on Need for Oil Price Stability, but More Work to Do - Canadian Minister**\
-`G20 energy ministers on Friday agreed on the need for oil price stability and a well-functioning market, but did not hammer out the details of how it would be achieved, said Canada's natural resources minister, Seamus O'Regan.`\
-https://nytimes.com/reuters/2020/04/10/world/americas/10reuters-global-oil-canada.html?searchResultPosition=7
-
-**IMF Lends 51.6 Million Euros to Kosovo to Address Virus Crisis**\
-`The International Monetary Fund has approved a 51.6 million euro ($56.06 million) loan for Kosovo to tackle the economic crisis caused by the new coronavirus and address urgent balance of payments issues, the international lender said.`\
-https://nytimes.com/reuters/2020/04/10/world/10reuters-health-coronavirus-kosovo-imf.html?searchResultPosition=8
-
-**A User’s Guide to Face Masks**\
-`By now you’ve figured out that wearing a mask is not as simple as all those TV doctors made it look. Here’s our guide to the wear and care of your new mask.`\
-https://nytimes.com/2020/04/10/well/live/coronavirus-face-masks-guides-protection-personal-protective-equipment.html?searchResultPosition=9
-
-**Global Business, Workers, Civil Society Join Call for Debt Relief for Poorer Nations**\
-`The International Chamber of Commerce on Friday joined a global trade union and a major civil society group to urge immediate debt relief for the world's poorest countries to help them fight the coronavirus pandemic and mitigate its economic impact.`\
-https://nytimes.com/reuters/2020/04/10/us/10reuters-health-coronavirus-debt.html?searchResultPosition=10
+https://nytimes.com/2020/04/10/nyregion/new-york-coronavirus-hospitals.html?searchResultPosition=10
 
