@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/04/10/world/asia/10reuters-health-coronavirus-a
 `The number of confirmed coronavirus infections in Germany rose by 5,323 in the past 24 hours to 113,525 on Friday, climbing for a fourth straight day after four previous days of declines, data from the Robert Koch Institute for infectious diseases showed.`\
 https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-germany-infections.html?searchResultPosition=5
 
-**Saudi Energy Minister Says OPEC+ Oil Pact 'Hinges on' Mexico Joining**\
-`Saudi Arabia's energy minister said on Friday that a final OPEC+ oil supply pact to reduce 10 million barrels per day, which was agreed on Thursday, "hinges on" Mexico joining in the cuts.`\
+**Saudi Energy Minister Says OPEC+ Oil Pact Hinges on Mexico Joining**\
+`Saudi Arabia's energy minister said on Friday that a final OPEC+ oil supply pact to reduce 10 million barrels per day (bpd), which was agreed on Thursday, hinges on Mexico joining in the cuts.`\
 https://nytimes.com/reuters/2020/04/10/business/10reuters-global-oil-saudi.html?searchResultPosition=6
 
 **Indonesia Leans on Healthtech Startups to Cope With Virus Surge**\
