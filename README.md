@@ -3,7 +3,7 @@
 https://nytimes.com/2020/04/10/briefing/11-of-our-best-weekend-reads.html?searchResultPosition=2
 
 **Portugal Set to Extend Coronavirus Lockdown Till May 1**\
-`Portuguese President Marcelo Rebeleo de Sousa said on Friday he would propose next week extending a national lockdown till May 1 as the number of coronavirus cases in the country rose above 15,000.`\
+`Portuguese President Marcelo Rebelo de Sousa said on Friday he would propose next week extending a national lockdown till May 1 as the number of coronavirus cases in the country rose above 15,000.`\
 https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-portugal.html?searchResultPosition=3
 
 **US International Aid Groups Sending Help Home**\
