@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/04/10/us/ap-lt-pictures-of-the-week-in-latin-a
 https://nytimes.com/2020/04/10/world/coronavirus-news.html?searchResultPosition=6
 
 **Widow Walks Into Wall, Finds Hope**\
-`After losing her husband on the eve of a pandemic, she anticipated despair. Instead, she felt resilient. Here’s why.`\
+`After losing her husband on the eve of a pandemic, she anticipated despair but found resilience. Here’s why.`\
 https://nytimes.com/2020/04/10/style/modern-love-coronavirus-widow-walks-into-wall-finds-hope.html?searchResultPosition=7
 
 **AP Source: Bulls Tab Nuggets' Karnisovas to Lead Operations**\
