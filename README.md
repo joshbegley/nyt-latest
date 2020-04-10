@@ -1,32 +1,32 @@
+**White House Points to Hopeful Signs as Deaths Keep Rising**\
+`At the end of a week officials had warned would be this generation's Pearl Harbor, White House officials pointed to hopeful signs Friday that the spread of the coronavirus could be slowing, even as President Donald Trump insisted he would not move to reopen the country until it is safe.`\
+https://nytimes.com/aponline/2020/04/10/us/politics/ap-us-virus-outbreak-washington-.html?searchResultPosition=3
+
+**Love Letter: They Got Married, Against the Odds**\
+`And, a widow’s loss leads to hope.`\
+https://nytimes.com/2020/04/10/style/love-letter-they-got-married-against-the-odds.html?searchResultPosition=4
+
+**Louis Johnson, 90, Genre-Crossing Dancer and Choreographer, Dies**\
+`His career spanned Broadway (“Damn Yankees”), film (“The Wiz”) opera (“Aida”) and the stages of the Alvin Ailey and Dance Theater of Harlem companies.`\
+https://nytimes.com/2020/04/10/arts/dance/louis-johnson-90-genre-crossing-dancer-and-choreographer-dies.html?searchResultPosition=5
+
+**Tracking NYC's Coronavirus Fight, From 911 Call to ER Door**\
+`The coronavirus crisis is taxing New York City’s 911 system like never before. `\
+https://nytimes.com/aponline/2020/04/10/us/ap-us-virus-outbreak-911.html?searchResultPosition=6
+
+**Russia Expects Oil Cuts of 5 Million Bpd on Top of OPEC+**\
+`Russian Energy Minister Alexander Novak said on Friday he expected oil production cuts by countries outside of the OPEC+ group to amount to 5 million barrels per day (bpd).`\
+https://nytimes.com/reuters/2020/04/10/world/middleeast/10reuters-global-oil-opec-russia-novak.html?searchResultPosition=7
+
 **Quarantines Extended at Austrian Ski Resorts as Coronavirus Lingers**\
 `Lockdowns at two of Austria's top ski resorts in the province of Tyrol are being extended for two more weeks as tests have confirmed the coronavirus is still widespread there, the provincial government said on Friday.`\
-https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-austria-quarantines.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-austria-quarantines.html?searchResultPosition=8
 
 **Watchdog: Treasury Acted Appropriately on Trump Tax Returns**\
 `A watchdog has found that the Treasury Department appropriately handled Congress' request for President Donald Trump's tax returns, which Treasury Secretary Steven Mnuchin has refused to provide.`\
-https://nytimes.com/aponline/2020/04/10/business/bc-us-trump-tax-returns.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/04/10/business/bc-us-trump-tax-returns.html?searchResultPosition=9
 
 **Virtual Racing Brings Success, Complications for Sponsors**\
 `The popularity of virtual motorsports racing on television has come with surprising success stories and occasional complications as race teams scramble to create value for sponsors and partners. `\
-https://nytimes.com/aponline/2020/04/10/sports/ap-car-iracing-phenomenon-sponsors-.html?searchResultPosition=5
-
-**Virtual Racing Puts NASCAR, IndyCar Ahead in Sports Shutdown**\
-`Get this: Some 1 million people have tuned in to watch professional racers play a video game on national television.`\
-https://nytimes.com/aponline/2020/04/10/sports/ap-car-iracing-phenomenon-.html?searchResultPosition=6
-
-**Uruguay to Repatriate Australians and New Zealanders From Coronavirus-Hit Cruise Ship**\
-`Uruguay on Saturday will repatriate 112 Australians and New Zealanders from a cruise ship that has been stranded in the La Plata River near capital Montevideo since March 27, the government of the small South American country said.`\
-https://nytimes.com/reuters/2020/04/10/world/asia/10reuters-health-coronavirius-uruguay-cruiseship.html?searchResultPosition=7
-
-**Come Back, New York, All Is Forgiven**\
-`How could I ever begrudge you your restlessness, your lip, your effrontery, your impatience? Forgive me, as I forgive you.`\
-https://nytimes.com/2020/04/10/opinion/coronavirus-new-york.html?searchResultPosition=8
-
-**Fed Policymakers Working to Limit Damage as Pandemic Puts U.S. Economy on Pause**\
-`The U.S. economy was on a strong footing before the coronavirus pandemic and Federal Reserve officials are working to help the economy rebound quickly once businesses that were shuttered because of the virus begin to reopen, two policymakers said Friday. `\
-https://nytimes.com/reuters/2020/04/10/business/10reuters-health-coronavirus-usa-fed.html?searchResultPosition=9
-
-**Portugal's Costa Criticises Netherlands Over Commitment to EU**\
-`Portuguese Prime Minister Antonio Costa said on Friday that the Netherlands' attempt to block economic support to fight the coronavirus raised questions about the future of the European Union.`\
-https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-portugal-europe.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/10/sports/ap-car-iracing-phenomenon-sponsors-.html?searchResultPosition=10
 
