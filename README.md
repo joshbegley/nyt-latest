@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus
 https://nytimes.com/2020/04/10/world/asia/coronavirus-south-korea-election.html?searchResultPosition=3
 
 **DealBook: What Went Wrong, and How to Fix It**\
-`A special guest column by one of the most influential judges in corporate America.`\
+`A special guest column by one of the most influential judges in corporate America about how business should change after the coronavirus crisis.`\
 https://nytimes.com/2020/04/10/business/dealbook/coronavirus-corporate-governance.html?searchResultPosition=4
 
 **The Latest: Russia Wants Doping Past Forgotten Amid Virus**\
