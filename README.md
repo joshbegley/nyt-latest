@@ -1,36 +1,36 @@
+**Notre-Dame Service a Message of Hope for France in Coronavirus Lockdown**\
+`Nearly a year after fire devastated Notre-Dame cathedral in Paris, the city's Archbishop held a small ceremony there to mark Good Friday, praying that Easter's message of rebirth might bring comfort to a country stricken by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-easter-notredame.html?searchResultPosition=2
+
+**Yanomami Indigenous Youth With Coronavirus Dies in Brazil**\
+`A Yanomami youth has died after testing positive for coronavirus, health officials said on Friday, raising fears that the epidemic will spread among the largest indigenous tribe in northern Brazil.`\
+https://nytimes.com/reuters/2020/04/10/world/americas/10reuters-health-coronavirus-brazil-yanomami.html?searchResultPosition=3
+
+**India Set to Ship Drug Sought by Trump for Coronavirus**\
+`India is set to begin shipping the malaria drug hydroxychloroquine to the United States where President Donald Trump has touted it as a potential weapon against the coronavirus.`\
+https://nytimes.com/reuters/2020/04/10/world/asia/10reuters-health-coronavirus-india-drugmakers.html?searchResultPosition=4
+
+**Summer Camps Facing Rocky Start, Uncertain Future**\
+`For 17-year-old Morgan Carney, missing her seventh summer at overnight camp in the Ozarks would be worse than what she's feeling now in isolation without her school friends and usual slate of activities.`\
+https://nytimes.com/aponline/2020/04/10/us/ap-us-virus-outbreak-summer-camps.html?searchResultPosition=5
+
+**29 Years on Death Row, Pakistan Woman Suffers Mental Illness**\
+`Kanizan Bibi was 16 when she was charged with murdering her employer’s wife and five children. The police said she was having an affair with her employer, who was also arrested and later hanged.`\
+https://nytimes.com/aponline/2020/04/10/world/asia/ap-as-pakistan-death-row.html?searchResultPosition=6
+
 **Doping: Russian Ban Could Harm Olympic Movement During Coronavirus Crisis-Minister**\
 `Russian Sports Minister Oleg Matytsin said on Friday officials should not rule against the country in its appeal to overturn a doping ban because it would undermine the Olympic movement as the world struggles to contain the coronavirus. `\
-https://nytimes.com/reuters/2020/04/10/sports/olympics/10reuters-health-coronavirus-russia-doping.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/10/sports/olympics/10reuters-health-coronavirus-russia-doping.html?searchResultPosition=7
 
 **Lawmakers Look to Reaffirm U.S. Commitment to Global Health, Amid Coronavirus**\
 `Republican and Democratic U.S. senators will introduce legislation on Friday seeking to reaffirm the country's commitment to global health amid the coronavirus crisis, including reestablishing a panel - similar to one disbanded by President Donald Trump - charged with preparing for pandemics.`\
-https://nytimes.com/reuters/2020/04/10/us/politics/10reuters-health-coronavirus-usa-senate.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/10/us/politics/10reuters-health-coronavirus-usa-senate.html?searchResultPosition=8
 
 **It’s Going to Be Difficult**\
 `What the next phase of the virus may look like.`\
-https://nytimes.com/2020/04/10/opinion/coronavirus-social-distancing.html?searchResultPosition=4
+https://nytimes.com/2020/04/10/opinion/coronavirus-social-distancing.html?searchResultPosition=9
 
 **They Found a Way to Get Married**\
-`Couples changed plans and dates and had hurry-up events (with very few guests) before the effects of the coronavirus pandemic curbed so many weddings.`\
-https://nytimes.com/2020/04/10/fashion/weddings/coronavirus-weddings-go-on-couples.html?searchResultPosition=5
-
-**Russia's Putin to Hold New Talks on Oil-TASS**\
-`Russian President Vladimir Putin said on Friday he was planning to hold new talks on oil prices after phone calls with U.S. President Donald Trump and the leadership of Saudi Arabia, TASS news agency reported.`\
-https://nytimes.com/reuters/2020/04/10/business/10reuters-global-oil-opec-russia-putin.html?searchResultPosition=6
-
-**Saudi, Russia Seek to Finalise Oil Cuts in G20 Talks, Want U.S. Involved**\
-`Saudi Arabia, Russia and their allies will press Mexico on Friday to join an accord for collective oil production cuts equivalent to 10% of global supplies and will push the United States and other producers to remove a further 5%.`\
-https://nytimes.com/reuters/2020/04/10/business/10reuters-global-oil-g20-energy.html?searchResultPosition=7
-
-**Japan's Coronavirus Infections Surpass 6,000 Cases: NHK**\
-`The total number of novel coronavirus infections in Japan hit 6,003 on Friday, NHK public broadcaster reported.`\
-https://nytimes.com/reuters/2020/04/10/world/asia/10reuters-health-coronavirus-japan-total.html?searchResultPosition=8
-
-**Start of Ex-Baltimore Mayor's Prison Term Delayed to June 26**\
-`A federal judge on Thursday agreed to delay for a second time the start of former Baltimore Mayor Catherine Pugh's prison sentence related to the fraudulent sales of her self-published children’s books.`\
-https://nytimes.com/aponline/2020/04/10/us/ap-us-former-baltimore-mayor-sentence.html?searchResultPosition=9
-
-**UK PM Johnson in 'Very Good Spirits' After Leaving Intensive Care: Spokesman**\
-`British Prime Minister Boris Johnson is in "very good spirits" after returning to a hospital ward from intensive care but his recovery is at an early stage, his spokesman said on Friday.    `\
-https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-johnson-health.html?searchResultPosition=10
+`Across America, couples changed plans and dates and had hurry-up events (with very few guests) before the effects of the coronavirus pandemic curbed so many weddings.`\
+https://nytimes.com/2020/04/10/fashion/weddings/coronavirus-weddings-go-on-couples.html?searchResultPosition=10
 
