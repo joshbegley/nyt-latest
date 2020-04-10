@@ -1,36 +1,36 @@
-**How Many People Have Actually Died From Coronavirus in New York?**\
-`The official statistics paint a partial picture and may understate the death toll. Here’s why.`\
-https://nytimes.com/2020/04/10/nyregion/new-york-coronavirus-death-count.html?searchResultPosition=2
+**Latest on the Spread of the Coronavirus Around the World**\
+`The number of confirmed infections of the novel coronavirus were reported to have exceeded 1.52 million globally and the death toll rose above 89,400, according to a Reuters tally as of 0200 GMT.`\
+https://nytimes.com/reuters/2020/04/10/world/asia/10reuters-health-coronavirus-latest.html?searchResultPosition=2
 
-**AP PHOTOS: Spain's Elderly Suffer as Virus Tears Safety Nets**\
-`The elderly of Barcelona’s working-class Poble Sec neighborhood, the generation who survived widespread hunger after the Spanish Civil War, started out vulnerable. `\
-https://nytimes.com/aponline/2020/04/10/world/europe/ap-eu-virus-outbreak-spains-most-vulnerable.html?searchResultPosition=3
+**Devils Defenseman P.K. Subban Is Host of New NHL Trivia Show**\
+`Tired of sitting around the house and watching reruns on television every day?`\
+https://nytimes.com/aponline/2020/04/10/sports/hockey/ap-hkn-subban-trivia-show-1st-ld-writethru.html?searchResultPosition=3
 
-**Endless Conversation**\
-`What story could this image tell?`\
-https://nytimes.com/2020/04/10/learning/endless-conversation.html?searchResultPosition=4
+**The Latest: Easter Observed at Home, Economies Hit Hard**\
+`The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
+https://nytimes.com/aponline/2020/04/10/business/ap-virus-outbreak-the-latest.html?searchResultPosition=4
 
-**Late Night Laments Fauci’s Advice to End Handshakes for Good**\
-`Stephen Colbert said secret societies would suffer, while Jimmy Fallon imagined a time when “every job interview starts with an awkward chest bump.”`\
-https://nytimes.com/2020/04/10/arts/television/late-night-fauci-handshakes.html?searchResultPosition=5
+**Japan Auto Industry Vows to Protect Jobs Amid Virus Crisis**\
+`Toyota Chief Executive Akio Toyoda promised Friday that the Japanese auto industry would seek to protect jobs worldwide as it endures the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/04/10/business/bc-japan-virus-outbreak-autos.html?searchResultPosition=5
 
-**France Has Earmarked 20 Billion Euros for Corporate Bailouts: Finance Minister**\
-`The French government has set aside 20 billion euros ($21.7 billion) to help big companies that need their capital base shored up by the state, Finance Minister Bruno Le Maire said on Friday.`\
-https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-france-business-capital.html?searchResultPosition=6
+**‘LA Originals’ Review: How Two Artists Shaped a Hip-Hop Scene**\
+`With film, photos and tattoos, Estevan Oriol and Mark Machado put their stamp on the culture of Los Angeles.`\
+https://nytimes.com/2020/04/10/movies/la-originals-review.html?searchResultPosition=6
 
-**Poland May Reach Peak of Coronavirus Infections in Coming Days: Government Spokesman**\
-`Poland may see the peak of infections from the coronavirus in the coming days, government spokesman Piotr Muller said on Friday.`\
-https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-poland.html?searchResultPosition=7
+**‘Tigertail’ Review: A Taiwanese Man’s American Dream**\
+`The “Master of None” co-creator Alan Yang wrote and directed this family drama based on his personal history.`\
+https://nytimes.com/2020/04/10/movies/tigertail-review.html?searchResultPosition=7
 
-**Japan Auto Industry Seeks to Avoid Suspending Operations, but Worker Safety Priority**\
-`Japan's car industry will try to avoid suspending operations during the coronavirus pandemic, but worker safety takes priority, said its automakers' association, adding the industry was considering financial support for struggling firms.`\
-https://nytimes.com/reuters/2020/04/10/world/asia/10reuters-health-coronavirus-japan-automakers.html?searchResultPosition=8
+**‘Love Wedding Repeat’ Review: A Tumble Down the Aisle**\
+`A couple’s reception becomes a disaster (or does it?) in this comedy of multiple errors.`\
+https://nytimes.com/2020/04/10/movies/love-wedding-repeat-review-a-tumble-down-the-aisle.html?searchResultPosition=8
 
-**AP Was There: Tiger Wins Masters to Cap Remarkable Comeback**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/04/10/sports/golf/ap-glf-ap-was-there-2019-masters.html?searchResultPosition=9
+**‘The Main Event’ Review: A Kid Pro Wrestler, in a Magic Mask**\
+`In Jay Karas’s silly Netflix comedy, an 11-year-old pipsqueak finds a mask that lets him wrestle in the big leagues.`\
+https://nytimes.com/2020/04/10/movies/the-main-event-review.html?searchResultPosition=9
 
-**Israelis Looking Out for Overworked Healthcare Professionals**\
-`While hunkering down at home and keeping three young children entertained in coronavirus isolation, Adi Karmon Scope had a thought: How much harder was it for those on the front lines of the pandemic?`\
-https://nytimes.com/aponline/2020/04/10/world/middleeast/ap-ml-virus-outbreakone-good-thingdoc-adoption.html?searchResultPosition=10
+**Women’s Soccer Was Having a Moment. Then the Clock Stopped.**\
+`As the coronavirus pandemic forces soccer clubs and sponsors to tighten their belts, a women’s game poised to break out hopes it doesn’t have to bear the cost.`\
+https://nytimes.com/2020/04/10/sports/soccer/womens-soccer-coronavirus-glasgow-city.html?searchResultPosition=10
 
