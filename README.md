@@ -1,32 +1,32 @@
+**Italy's Daily Coronavirus Death Toll and New Cases Decline Slightly**\
+`Deaths from the COVID-19 epidemic in Italy rose by 570 on Friday, down from 610 the day before, and the number of new cases also slowed modestly to 3,951 from a previous 4,204.`\
+https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-italy-tally.html?searchResultPosition=3
+
+**Man Accused of Pointing Gun at a Waving Easter Bunny**\
+`A man brandished a gun and threatened a person playing the Easter Bunny who was waving to motorists from an interstate overpass in Ohio, authorities said.`\
+https://nytimes.com/aponline/2020/04/10/us/ap-us-easter-bunny-threatened-1st-ld-writethru.html?searchResultPosition=4
+
+**WHO Warns About Dangers of Premature Lifting of COVID-19 Restrictions**\
+`The World Health Organization (WHO) warned countries on Friday to be cautious about lifting restrictions introduced to curb the spread of the new coronavirus.`\
+https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-who.html?searchResultPosition=5
+
+**Coconut Macaroons, Two Easy Ways**\
+`Make a candylike version with all coconut and an egg white, or use a whole egg and almond flour for a more cakelike result.`\
+https://nytimes.com/2020/04/10/dining/coconut-macaroons-coronavirus.html?searchResultPosition=6
+
 **Victor Skrebneski, Who Captured Stars in Striking Photos, Dies at 90**\
 `His career began when he found a camera in a park as a boy. A famous campaign for Estée Lauder followed, as did images of celebrities in black turtlenecks.`\
-https://nytimes.com/2020/04/10/arts/victor-skrebneski-dead.html?searchResultPosition=3
+https://nytimes.com/2020/04/10/arts/victor-skrebneski-dead.html?searchResultPosition=7
 
 **UK Urges Citizens to Stay at Home Over Easter, Police Ready to Get Tough**\
 `The British government urged people to stay at home over the Easter holidays, concerned that the pull of wanting to see family and friends could undermine efforts to stop the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-britain-police.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-britain-police.html?searchResultPosition=8
 
 **‘Telephone’: When Lady Gaga Took Beyoncé Into the Deep End**\
 `With Lady Gaga’s pop extravaganza “Chromatica” on hold, a look back at one of her most over-the-top videos, which recently turned 10.`\
-https://nytimes.com/2020/04/10/arts/music/lady-gaga-beyonce-telephone.html?searchResultPosition=5
+https://nytimes.com/2020/04/10/arts/music/lady-gaga-beyonce-telephone.html?searchResultPosition=9
 
 **Quarantined With a Newborn, Alone**\
 `Raising a baby is already isolating. The pandemic highlighted how fragile my social networks are.`\
-https://nytimes.com/2020/04/10/parenting/single-mom-coronavirus-tanzina-vega.html?searchResultPosition=6
-
-**Virus Costly to Draft Prospects Needing Face Time With Teams**\
-`The NFL's shutdown because of the coronavirus pandemic is denying teams the opportunity to get face time with draft prospects who have been injured, have checkered pasts or are under the radar.`\
-https://nytimes.com/aponline/2020/04/10/sports/football/ap-fbn-draft-pick-six-damaged-chances.html?searchResultPosition=7
-
-**Neil Young’s Call to Action, and 14 More New Songs**\
-`Hear tracks by Laura Marling, Frank Ocean, Charli XCX and others.`\
-https://nytimes.com/2020/04/10/arts/music/playlist-frank-ocean-charli-xcx-twenty-one-pilots.html?searchResultPosition=8
-
-**New York Sees First Slight Drop in Intensive Care Unit Patients in a Day: Governor**\
-`New York Governor Andrew Cuomo said on Friday that the number of coronavirus patients in intensive care units across the state dropped in the last day, offering a glimmer of hope that the surge in critical care hospitalizations might be leveling off.`\
-https://nytimes.com/reuters/2020/04/10/us/10reuters-health-coronavirus-usa-new-york.html?searchResultPosition=9
-
-**Trump Feels No Need for Crisis Counsel From Predecessors**\
-`President George W. Bush turned to one of the world's most exclusive clubs for help raising money after an Indian Ocean tsunami killed more than 200,000 people in 2004. `\
-https://nytimes.com/aponline/2020/04/10/us/politics/ap-us-virus-outbreak-trump-ex-presidents-.html?searchResultPosition=10
+https://nytimes.com/2020/04/10/parenting/single-mom-coronavirus-tanzina-vega.html?searchResultPosition=10
 
