@@ -1,32 +1,32 @@
+**Trump Orders U.S. Government to Help Italy in Coronavirus Fight**\
+`U.S. President Donald Trump on Friday ordered top U.S. administration officials to help Italy in fighting the novel coronavirus by providing medical supplies, humanitarian relief and other assistance.`\
+https://nytimes.com/reuters/2020/04/10/world/europe/10reuters-health-coronavirus-usa-italy.html?searchResultPosition=3
+
+**Report: MLB Considering Radical 2020 Realignment Plan**\
+`Major League Baseball is considering a radical realignment plan that would scrap traditional leagues and place teams in six divisions based on spring training locations for the 2020 season, USA Today reported on Friday.`\
+https://nytimes.com/reuters/2020/04/10/sports/baseball/10reuters-baseball-mlb-realignment-plan.html?searchResultPosition=4
+
+**NHL Exec: Cities Are Offering to Host Neutral-Site Games**\
+`The NHL is listening to offers from venues around North America that are volunteering to host neutral-site playoff games.`\
+https://nytimes.com/reuters/2020/04/10/sports/hockey/10reuters-icehockey-nhl-neutral-sites.html?searchResultPosition=5
+
+**Boeing Supplier Furloughs 2,300 Employees on Closure of Boeing Facilities Amid COVID-19**\
+`U.S. aero parts maker Triumph Group Inc said it was furloughing about 2,300 employees across its U.S. and European plants for two to four weeks to cut capacity linked to Boeing commercial aircraft programs amid the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/10/business/10reuters-health-coronavirus-triumph-group-boeing.html?searchResultPosition=6
+
+**Ecuador Announces Humanitarian Account and Social Measures to Address Pandemic**\
+`Ecuadorean President Lenin Moreno announced on Friday the creation of a humanitarian assistance account that will be funded with contributions from companies and citizens to address the economic effects of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/10/world/americas/10reuters-health-coronavirus-ecuador.html?searchResultPosition=7
+
 **Props**\
 `Erik Agard and Wyna Liu get us good in their Saturday collaboration.`\
-https://nytimes.com/2020/04/10/crosswords/daily-puzzle-2020-04-11.html?searchResultPosition=3
+https://nytimes.com/2020/04/10/crosswords/daily-puzzle-2020-04-11.html?searchResultPosition=8
 
 **World Bank's Malpass Upbeat on Prospects for Progress on Debt Relief**\
 `World Bank Group President David Malpass on Friday said he was confident of progress on his joint call with the International Monetary Fund for a temporary standstill in official bilateral debt payments by the world's poorest countries.`\
-https://nytimes.com/reuters/2020/04/10/us/10reuters-health-coronavirus-debt-world-bank.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/10/us/10reuters-health-coronavirus-debt-world-bank.html?searchResultPosition=9
 
 **Mainland China Reports 46 New Coronavirus Cases, Up From 42 a Day Earlier**\
 `Mainland China reported on Saturday 46 new coronavirus cases, including 42 involving travellers from overseas, up from 42 cases a day earlier.  `\
-https://nytimes.com/reuters/2020/04/10/world/asia/10reuters-health-coronavirus-china-toll.html?searchResultPosition=5
-
-**Filmmaker Obayashi, Who Portrayed War's Horrors, Dead at 82**\
-`Nobuhiko Obayashi, one of Japan's most prolific filmmakers who devoted his works to depicting war's horrors and singing the eternal power of movies, has died. He was 82. `\
-https://nytimes.com/aponline/2020/04/10/world/asia/ap-as-japan-obit-nobuhiko-obayashi.html?searchResultPosition=6
-
-**Seattle-Area Nursing Home Hit With Wrongful Death Lawsuit Over Coronavirus Death**\
-`A woman whose mother died of the coronavirus at a Seattle-area nursing home that was ravaged by the COVID-19 outbreak filed a wrongful death lawsuit on Friday against the company that owns the facility.`\
-https://nytimes.com/reuters/2020/04/10/us/10reuters-health-coronavirus-lawsuit.html?searchResultPosition=7
-
-**'Hope' the Giraffe Born in New Orleans Amid Pandemic**\
-`The Audubon Nature Institute in New Orleans welcomed a new resident, a baby giraffe named Hope.`\
-https://nytimes.com/aponline/2020/04/10/us/ap-us-giraffe-birth-new-orleans.html?searchResultPosition=8
-
-**Uruguay Evacuates 112 Australians, New Zealanders From Ship**\
-`Uruguay evacuated 112 Australians and New Zealanders Friday from a cruise ship that has been anchored off the South American country’s coast since March 27 with more than half its passengers and crew infected with the new coronavirus.`\
-https://nytimes.com/aponline/2020/04/10/world/americas/ap-lt-virus-outbreak-uruguay-cruise-ship.html?searchResultPosition=9
-
-**Airlines and Trump Administration Haggle Over Payroll Grants**\
-`The Trump administration is proposing that a significant amount of the $25 billion in cash that airlines expected to keep workers on the job will instead be low-interest loans that big airlines will have to repay, according to two people familiar with the matter.`\
-https://nytimes.com/aponline/2020/04/10/business/bc-us-virus-outbreak-airlines.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/10/world/asia/10reuters-health-coronavirus-china-toll.html?searchResultPosition=10
 
