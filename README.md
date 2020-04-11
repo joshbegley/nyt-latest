@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/04/11/world/europe/11reuters-health-coronavirus-usa-italy.html?searchResultPosition=3
 
 **Rouhani Urges Iranians to Respect Health Protocols as Coronavirus Curbs Ease**\
-`President Hassan Rouhani urged Iranians to respect health protocols as "low-risk" economic activities resumed in most of the country on Saturday, state news agency IRNA reported.`\
+`President Hassan Rouhani urged Iranians to respect health protocols to guard against the new coronavirus as "low-risk" economic activities resumed in most of the country on Saturday, state news agency IRNA reported.`\
 https://nytimes.com/reuters/2020/04/11/world/middleeast/11reuters-health-coronavirus-iran.html?searchResultPosition=4
 
 **Russia Reports 1,667 New Coronavirus Cases in Last Day**\
