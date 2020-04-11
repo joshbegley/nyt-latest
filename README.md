@@ -10,7 +10,7 @@ https://nytimes.com/2020/04/11/nyregion/coronavirus-new-york-update.html?searchR
 `Politics aside, many states will face daunting financial, logistical and personnel challenges to making mail balloting the norm.`\
 https://nytimes.com/2020/04/11/us/coronavirus-voting-by-mail-elections.html?searchResultPosition=5
 
-**Trump and His Trail of Unmet Promises in Coronavirus Fight**\
+**Trump Leaves Trail of Unmet Promises in Coronavirus Response**\
 `For several months, President Donald Trump and his officials have cast a fog of promises meant to reassure a country in the throes of the coronavirus pandemic. Trump and his team haven't delivered on critical ones.`\
 https://nytimes.com/aponline/2020/04/11/business/bc-us-virus-outbreak-promises.html?searchResultPosition=6
 
