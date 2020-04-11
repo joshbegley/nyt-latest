@@ -1,32 +1,32 @@
-**Indonesia Reports 330 New Coronavirus Cases, 21 Deaths**\
-`Indonesia confirmed 330 new coronavirus infections on Saturday, taking its tally to 3,842, health ministry official Achmad Yurianto said.`\
-https://nytimes.com/reuters/2020/04/11/world/asia/11reuters-health-coronavirus-indonesia.html?searchResultPosition=3
+**Where Thousands of Masks a Day Are Decontaminated to Battle the Virus**\
+`A mask cleaning project inside shipping containers is part of  recent efforts to greatly increase the supply of equipment to health care workers.`\
+https://nytimes.com/2020/04/11/business/coronavirus-n95-mask-decontaminating-reuse.html?searchResultPosition=3
 
-**Taiwan, WHO Spar Again Over Coronavirus Information Sharing**\
-`Tension flared again on Saturday as Taiwan accused the World Health Organization (WHO) of playing word games in a dispute over details it sought in an email querying if the new coronavirus could be transmitted between people.`\
-https://nytimes.com/reuters/2020/04/11/world/asia/11reuters-health-coronavirus-taiwan.html?searchResultPosition=4
+**Bill Cunningham’s Easter Parade**\
+`Like other public events, it is canceled this year. But that doesn’t mean we can’t celebrate what it represents in absentia, thanks to Bill’s photo archive.`\
+https://nytimes.com/2020/04/11/fashion/easter-parade-bill-cunningham.html?searchResultPosition=4
 
-**U.S. Commander in Afghanistan and Taliban Discuss Violence Reduction in Doha Meeting**\
-`The commander of U.S. forces in Afghanistan met Taliban leadership in Doha to discuss the need to reduce violence in the war-torn country, spokesmen for both sides said on Saturday, as continued clashes threaten to derail a fragile peace process.`\
-https://nytimes.com/reuters/2020/04/11/world/asia/11reuters-usa-afghanistan-taliban.html?searchResultPosition=5
+**Coronavirus Live Updates: As Health Experts Urge Caution, Trump Eyes the Calendar**\
+`Businesses are urging President Trump to reopen the country as soon as possible, but medical experts want more time. Polls show slipping support for his handling of the pandemic.`\
+https://nytimes.com/2020/04/11/us/coronavirus-live-updates.html?searchResultPosition=5
 
-**Trump Orders U.S. Government to Help Italy in Coronavirus Fight**\
-`U.S. President Donald Trump on Friday ordered top U.S. administration officials to help Italy in fighting the novel coronavirus by providing medical supplies, humanitarian relief and other assistance.`\
-https://nytimes.com/reuters/2020/04/11/world/europe/11reuters-health-coronavirus-usa-italy.html?searchResultPosition=6
+**‘Not as Wisconsin Nice as We Used to Be’: The Divisions in Dairyland**\
+`Keeping the polls open in a pandemic is just one example of the state pushing political partisanship to the extreme.`\
+https://nytimes.com/2020/04/11/us/politics/wisconsin-politics.html?searchResultPosition=6
 
-**Rouhani Urges Iranians to Respect Health Protocols as Coronavirus Curbs Ease**\
-`President Hassan Rouhani urged Iranians to respect health protocols to guard against the new coronavirus as "low-risk" economic activities resumed in most of the country on Saturday, state news agency IRNA reported.`\
-https://nytimes.com/reuters/2020/04/11/world/middleeast/11reuters-health-coronavirus-iran.html?searchResultPosition=7
+**After Coronavirus, Survivors’ Symptoms Include Relief — and Guilt**\
+`As the rest of the nation shelters in place, the first Americans to recover from the virus have emerged: “You could lick the benches.”`\
+https://nytimes.com/2020/04/11/us/coronavirus-survivors.html?searchResultPosition=7
 
-**Russia Reports 1,667 New Coronavirus Cases in Last Day**\
-`Russia reported 1,667 new coronavirus cases on Saturday, bringing the national tally of confirmed cases to 13,584. `\
-https://nytimes.com/reuters/2020/04/11/world/europe/11reuters-health-coronavirus-russia-statistics.html?searchResultPosition=8
+**How a Pandemic Rescued the Political Image of Ireland’s Leader**\
+`Leo Varadkar is winning praise after reactivating his registration as a medical doctor and heading to the coronavirus front lines.`\
+https://nytimes.com/2020/04/11/world/europe/ireland-leo-varadkar-coronavirus.html?searchResultPosition=8
 
-**Siemens CEO Rules Out Job Cuts From Coronavirus Impact**\
-`Siemens will not cut its workforce because of the economic downturn triggered by the new coronavirus, Chief Executive Joe Kaeser said, although short-time working measures could be extended in Germany.`\
-https://nytimes.com/reuters/2020/04/11/business/11reuters-siemens-jobs-ceo.html?searchResultPosition=9
+**Nearly 2,000 Dead as Coronavirus Ravages Nursing Homes in N.Y. Region**\
+`The facilities knew that frail and aging residents were especially vulnerable to the outbreak, but they were unable to stop it.`\
+https://nytimes.com/2020/04/11/nyregion/nursing-homes-deaths-coronavirus.html?searchResultPosition=9
 
-**Congo Governor Condemns Rising Insecurity at Mines in Gold Province**\
-`Illegal mining and trading are fuelling worsening violence on mine sites, the governor of Democratic Republic of Congo's gold-rich Ituri province said, after armed robbers killed four people, including three Chinese nationals, at a gold mine.`\
-https://nytimes.com/reuters/2020/04/11/world/africa/11reuters-china-congo-mining.html?searchResultPosition=10
+**Murder Rates Were Staggering. The Virus Has Brought Some Quiet, For Now.**\
+`With businesses and commercial activity all but shut down, there are fewer people outdoors, making the streets easier to police and less likely to be zones of criminal opportunity and conflict.`\
+https://nytimes.com/2020/04/11/world/americas/coronavirus-murder-latin-america-crime.html?searchResultPosition=10
 
