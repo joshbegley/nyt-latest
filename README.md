@@ -1,4 +1,4 @@
-**Texas Clinics Ask Supreme Court to Abortions During Pandemic**\
+**Texas Clinics Ask Supreme Court to Allow Certain Abortions**\
 `Abortion clinics in Texas on Saturday asked the Supreme Court to step in to allow certain abortions to continue during the coronavirus pandemic.`\
 https://nytimes.com/aponline/2020/04/11/us/politics/ap-us-supreme-court-texas-abortions.html?searchResultPosition=3
 
