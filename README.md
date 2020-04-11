@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/04/11/world/europe/ap-eu-germany-buchenwald-anniversary.html?searchResultPosition=3
 
 **Alaska Primary Election Results 2020**\
-`Detailed results and maps from the Alaska presidential primary election.`\
+`Results from the Alaska presidential primary election.`\
 https://nytimes.com/interactive/2020/04/11/us/elections/results-alaska-president-democrat-primary-election.html?searchResultPosition=4
 
 **Hogan, Cuomo Call for Additional $500B in Aid to States**\
