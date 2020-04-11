@@ -27,6 +27,6 @@ https://nytimes.com/reuters/2020/04/11/world/europe/11reuters-health-coronavirus
 https://nytimes.com/2020/04/11/world/europe/italy-priests-coronavirus.html?searchResultPosition=9
 
 **Spain's Overnight Coronavirus Death Toll at 510, Lowest in 19 Days**\
-`Spain's daily coronavirus death toll fell for the third day in a row on Saturday after 510 fatalities were reported in the past 24 hours, the health ministry said in a statement, marking the smallest overnight increase since March 23. `\
+`The number of coronavirus deaths in Spain fell for a third consecutive day on Saturday, with 510 fatalities reported in the past 24 hours -- the smallest overnight increase since March 23. `\
 https://nytimes.com/reuters/2020/04/11/world/europe/11reuters-health-coronavirus-spain.html?searchResultPosition=10
 
