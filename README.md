@@ -31,6 +31,6 @@ https://nytimes.com/aponline/2020/04/12/us/ap-us-virus-outbreak-mask-scam.html?s
 https://nytimes.com/reuters/2020/04/12/business/12reuters-global-oil-opec-mexico.html?searchResultPosition=9
 
 **Global Pact Forged to Contain Oil Price Crash**\
-`The OPEC oil cartel and other oil producers agreed Sunday to boost oil prices by cutting nearly 10 million barrels a day in production, or a tenth of global supply, according to several national energy officials who participated in the talks.`\
+`The OPEC oil cartel and other oil producers agreed Sunday to boost oil prices by cutting nearly 10 million barrels a day in production, or a tenth of global supply, according to energy officials from several nations who participated in the talks.`\
 https://nytimes.com/aponline/2020/04/12/business/ap-oil-markets.html?searchResultPosition=10
 
