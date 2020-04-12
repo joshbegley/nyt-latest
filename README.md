@@ -1,5 +1,5 @@
 **Number of Coronavirus Cases Rises 17% on Navajo Reservation**\
-`The number of coronavirus cases on the nation's largest Native American reservation jumped jumped by 17% Saturday as the Navajo Nation prepared to get new rapid-test kits. `\
+`The number of coronavirus cases on the nation's largest Native American reservation jumped by 17% Saturday as the Navajo Nation prepared to get new rapid-test kits. `\
 https://nytimes.com/aponline/2020/04/11/us/ap-us-virus-outbreak-navajo-nation.html?searchResultPosition=2
 
 **Guatemala Registers 16 New Coronavirus Cases, Infections Rise to 153-President**\
