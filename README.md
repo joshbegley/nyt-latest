@@ -1,5 +1,5 @@
 **Biden Beats Sanders to Win Alaska Democratic Primary**\
-`Joe BIden has won the Alaska Democrats' party-run presidential primary, beating Sen. Bernie Sanders days after Sanders suspended his campaign.`\
+`Joe Biden has won the Alaska Democrats' party-run presidential primary, beating Sen. Bernie Sanders days after Sanders suspended his campaign.`\
 https://nytimes.com/aponline/2020/04/11/us/ap-us-alaska-presidential-primary.html?searchResultPosition=2
 
 **Joe Biden Wins Alaska Primary**\
