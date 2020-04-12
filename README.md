@@ -1,36 +1,36 @@
+**Transit Workers Risking Lives With Little Protective Gear**\
+`While many Americans are cloistered inside their homes, transit workers are out there making sure that other essential workers can get to their jobs. But they often lack the masks or gloves they need to protect themselves from riders crowding onto buses and trains. `\
+https://nytimes.com/aponline/2020/04/12/business/ap-us-insider-qa-transit-workers.html?searchResultPosition=2
+
+**'Absolute Chaos' as Businesses Try to Tap Into Rescue Funds**\
+`Desperate small business owners who hoped for a quick government lifeline to help them survive the coronavirus crisis are still without funds, instead battling red tape, wary banks and swamped computer systems.`\
+https://nytimes.com/aponline/2020/04/12/business/ap-us-virus-outbreak-small-business-relief.html?searchResultPosition=3
+
+**Stores Try to Stay Relevant While Their Doors Are Closed**\
+`Long before there was a global coronavirus pandemic, brick-and-mortar retailers struggled to get people to walk through their doors instead of shopping online.`\
+https://nytimes.com/aponline/2020/04/12/business/ap-us-virus-outbreak-retail-pivot.html?searchResultPosition=4
+
+**Taiwan Says Chinese Carrier Group Drills Close to Island**\
+`A Chinese naval flotilla led by the country's first aircraft carrier passed by the eastern and southern coasts of Taiwan on Sunday to carry out drills, the island's defence ministry said, in the latest uptick in military tensions.`\
+https://nytimes.com/reuters/2020/04/12/world/asia/12reuters-taiwan-china-defence.html?searchResultPosition=5
+
+**With Her First Solo Museum Show Delayed, an Artist Stands Fast**\
+`The coronavirus has pushed Deborah Roberts’s exhibition at the Contemporary Austin at least to January. She is looking at the postponement as a gift.`\
+https://nytimes.com/2020/04/12/arts/design/deborah-roberts-artist-virus-austin.html?searchResultPosition=6
+
 **Tiger's Last Masters as Much About Family as a Green Jacket**\
 `Tiger Woods walked off the 18th green as a Masters champion for the fifth time, a major champion for the 15th time, and the sensation was unlike anything he had ever felt.`\
-https://nytimes.com/aponline/2020/04/12/sports/golf/ap-glf-masters-one-year-later.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/04/12/sports/golf/ap-glf-masters-one-year-later.html?searchResultPosition=7
 
 **Air France Flight Stopped in Republic of Congo After Gunshot**\
 `By The Associated Press`\
-https://nytimes.com/aponline/2020/04/12/world/africa/ap-af-republic-of-congo-repatriation-flight-delayed.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/04/12/world/africa/ap-af-republic-of-congo-repatriation-flight-delayed.html?searchResultPosition=8
 
 **Bulgarian Churches Open for Easter, but Only Most Devout Go**\
 `Clad in protective masks and gloves, a few dozen pious Orthodox Christians prayed for health on Sunday at the Bulgarian capital Sofia's expansive Saint Nedelya Cathedral, in one of the few nations where churches are open over the Easter holidays.`\
-https://nytimes.com/reuters/2020/04/12/world/europe/12reuters-health-coronavirus-easter-bulgaria.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/12/world/europe/12reuters-health-coronavirus-easter-bulgaria.html?searchResultPosition=9
 
 **From the Files: Isle Used for Virus Burials Has Long History**\
 `In 2010, AP National Writer Adam Geller filed an in-depth story about Hart Island, the island off New York City where the unclaimed, unidentified and indigent have long been buried.`\
-https://nytimes.com/aponline/2020/04/12/us/ap-us-virus-outbreak-lookback-hart-island.html?searchResultPosition=5
-
-**Russian, Saudi Ministers to Chair OPEC+ Meeting on Sunday: Azerbaijan**\
-`Russian Energy Minister Alexander Novak and Saudi Energy Minister Prince Abdulaziz bin Salman will chair an OPEC and non-OPEC online meeting later on Sunday, the Azerbaijan energy ministry said.`\
-https://nytimes.com/reuters/2020/04/12/business/12reuters-global-oil-opec-azerbaijan.html?searchResultPosition=6
-
-**U.S. Officials Hopeful About May 1 Target Date for Reopening U.S.**\
-`The Trump administration views May 1 as a target date for relaxing stay-at-home restrictions across the United States, Food and Drug Administration Commissioner Stephen Hahn said on Sunday, but he cautioned that it was still too early to say that target would be met.`\
-https://nytimes.com/reuters/2020/04/12/us/12reuters-health-coronavirus-target.html?searchResultPosition=7
-
-**England's Coronavirus Death Toll Rises by 657 to 9,594**\
-`The death toll from the novel coronavirus in English hospitals rose by 657 to 9,594, officials said on Sunday.`\
-https://nytimes.com/reuters/2020/04/12/world/europe/12reuters-health-coronavirus-england-toll.html?searchResultPosition=8
-
-**After Worst Week in Pandemic Deaths, NY Sees Signs of Hope**\
-`New York is wrapping up its worst week in deaths so far of the coronavirus outbreak, but there were a few signs of hope.`\
-https://nytimes.com/aponline/2020/04/12/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=9
-
-**The Sunday Read: Weird Al Yankovic’s Weirdly Enduring Appeal**\
-`National economies collapse; species go extinct; coronavirus upends our world. But — through it all — Weird Al keeps rocking.`\
-https://nytimes.com/2020/04/12/podcasts/the-daily/weird-al-yankovic-coronavirus-music.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/12/us/ap-us-virus-outbreak-lookback-hart-island.html?searchResultPosition=10
 
