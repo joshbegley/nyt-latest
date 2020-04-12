@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/04/12/world/europe/ap-eu-russia-us-space.html?
 https://nytimes.com/reuters/2020/04/12/us/12reuters-health-coronavirus-usa-tests.html?searchResultPosition=5
 
 **Smithfield Closes South Dakota Pork Plant Due to Coronavirus**\
-`Virginia-based Smithfield Foods announced Sunday that it is closing its pork processing plant in Sioux Falls until further notice after dozens of employees tested positive for the coronavirus. `\
+`Virginia-based Smithfield Foods announced Sunday that it is closing its pork processing plant in Sioux Falls until further notice after hundreds of employees tested positive for the coronavirus — a step the head of the company warned could hurt the nation's meat supply. `\
 https://nytimes.com/aponline/2020/04/12/business/bc-us-virus-outbreak-meat-plant.html?searchResultPosition=6
 
 **Older States Grapple With Fear, Isolation and Medical Care**\
