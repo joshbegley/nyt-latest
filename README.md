@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/04/12/business/12reuters-global-oil-opec-kazakh
 `Christians around the world celebrated an Easter Sunday upended by the coronavirus without the usual crowded church Masses and large family gatherings.`\
 https://nytimes.com/aponline/2020/04/12/us/ap-us-virus-outbreak-easter.html?searchResultPosition=6
 
-**Brazilian Woman, 97, Become Country's Oldest Coronavirus Survivor**\
+**Brazilian Woman, 97, Becomes Country's Oldest Coronavirus Survivor**\
 `When 97-year-old Brazilian Gina Dal Colleto was hospitalized on April 1 with coronavirus symptoms, few could have thought she would survive the deadly virus.`\
 https://nytimes.com/reuters/2020/04/12/world/americas/12reuters-healthcare-coronavirus-brazil-survivor.html?searchResultPosition=7
 
