@@ -22,13 +22,13 @@ https://nytimes.com/aponline/2020/04/12/business/bc-us-obit-wilhelmsen.html?sear
 `As the virus sweeps across the U.S., a dusty migrant camp along the southern border in Mexico is on the brink of becoming a humanitarian disaster.`\
 https://nytimes.com/2020/04/12/opinion/matamoros-migrants-coronavirus.html?searchResultPosition=7
 
-**The Best Response to Disaster Is Resilience**\
-`These are hard times, but we have seen worse. Courage, staying calm and counting on one another can get us through.`\
-https://nytimes.com/2020/04/12/opinion/madeleine-albright-coronavirus.html?searchResultPosition=8
-
 **The Dangerous History of Immunoprivilege**\
 `We’ve seen what happens when people with immunity to a deadly disease are given special treatment. It isn’t pretty.`\
-https://nytimes.com/2020/04/12/opinion/coronavirus-immunity-passports.html?searchResultPosition=9
+https://nytimes.com/2020/04/12/opinion/coronavirus-immunity-passports.html?searchResultPosition=8
+
+**The Best Response to Disaster Is Resilience**\
+`These are hard times, but we have seen worse. Courage, staying calm and counting on one another can get us through.`\
+https://nytimes.com/2020/04/12/opinion/madeleine-albright-coronavirus.html?searchResultPosition=9
 
 **Last Man on the Appalachian Trail**\
 `The coronavirus hit just as my dad set out on a journey three years in the making. Convincing him to come home has been difficult.`\
