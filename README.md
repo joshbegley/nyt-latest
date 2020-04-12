@@ -30,7 +30,7 @@ https://nytimes.com/aponline/2020/04/12/business/bc-us-virus-outbreak-restaurant
 `Israel locked down mainly ultra-Orthodox Jewish areas of Jerusalem on Sunday to try to contain the spread of the coronavirus from the densely populated neighbourhoods where the infection rate is high.`\
 https://nytimes.com/reuters/2020/04/12/world/middleeast/12reuters-health-coronavirus-israel-palestinians.html?searchResultPosition=9
 
-**Pope Francis Says Coronavirus Is ‘Testing Our Whole Human Family’**\
+**Pope Francis Says the Coronavirus Is ‘Testing Our Whole Human Family’**\
 `Standing in a nearly deserted St. Peter’s Basilica on Easter Sunday, the pontiff called for solidarity around the world to confront the pandemic.`\
 https://nytimes.com/2020/04/12/world/europe/pope-easter-mass-coronavirus.html?searchResultPosition=10
 
