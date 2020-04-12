@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/04/12/us/12reuters-health-coronavirus-easter-us
 https://nytimes.com/reuters/2020/04/12/world/asia/12reuters-health-coronavirus-southasia.html?searchResultPosition=8
 
 **Congo Records Second Ebola Death in Days: WHO**\
-`Democratic Republic of Congo recorded a second Ebola death in days following more than six weeks without a new case, the World Health Organization said on Sunday.`\
+`Democratic Republic of Congo recorded a second Ebola death in days following more than seven weeks without a new case, the World Health Organization said on Sunday.`\
 https://nytimes.com/reuters/2020/04/12/world/africa/12reuters-health-ebola-congo.html?searchResultPosition=9
 
 **Irish PM Says Coronavirus Rent Freeze Unlikely to Be Extended**\
