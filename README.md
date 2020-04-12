@@ -1,4 +1,4 @@
-**Minn-Duluth Star Scott Perunovich Wins Hobey Baker Award**\
+**Minnesota Duluth Star Scott Perunovich Wins Hobey Baker**\
 `Minnesota Duluth defenseman Scott Perunovich won the Hobey Baker Memorial Award on Saturday night as college hockey’s top player, becoming the Bulldogs' record sixth recipient.`\
 https://nytimes.com/aponline/2020/04/11/sports/ap-hkc-hobey-baker-award.html?searchResultPosition=2
 
