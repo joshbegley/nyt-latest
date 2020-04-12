@@ -14,8 +14,8 @@ https://nytimes.com/2020/04/12/nyregion/schools-cuomo-de-blasio-nyc-coronavirus.
 `The Masters over, Tiger Woods slipped on the green jacket again on the second Sunday in April.`\
 https://nytimes.com/aponline/2020/04/12/sports/golf/ap-glf-masters-woods.html?searchResultPosition=5
 
-**OPEC+ Deal Could Boost Oil Prices, but Oversupply Remains**\
-`An oil producer deal to make record output cuts will lend some support this week to oil prices that have lost half their value this year as the coronavirus hammers demand. `\
+**Oil Futures Little Changed Despite Record Output Cut by OPEC+**\
+`Oil futures were little changed on Sunday even after major oil producers reached a deal for a record 10 million bpd output cut, with analysts saying the agreement is insufficient to head off oversupply as the coronavirus hammers demand.`\
 https://nytimes.com/reuters/2020/04/12/business/12reuters-global-oil.html?searchResultPosition=6
 
 **Severe Weather Tears a Destructive Path in Parts of the South**\
