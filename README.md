@@ -1,10 +1,10 @@
-**Lives Lost: Milwaukee Police Leader Ensured Racial Equality**\
-`Lenard “Lenny” Wells didn’t just put on a badge and grind through his police work.`\
-https://nytimes.com/aponline/2020/04/12/us/ap-us-virus-outbreak-lives-lost-a-police-mentor.html?searchResultPosition=2
-
 **Wet Markets in China's Wuhan Struggle to Survive Coronavirus Blow**\
 `Fish and vegetable merchants are reopening stalls at wet markets in China's central city of Wuhan as it lifts a months-long lockdown against the coronavirus pandemic, but their future looks uncertain with few customers as the virus stigma persists.`\
-https://nytimes.com/reuters/2020/04/12/world/europe/12reuters-health-coronavirus-china-wuhan-market.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/12/world/europe/12reuters-health-coronavirus-china-wuhan-market.html?searchResultPosition=2
+
+**Lives Lost: Milwaukee Police Leader Ensured Racial Equality**\
+`Lenard “Lenny” Wells didn’t just put on a badge and grind through his police work.`\
+https://nytimes.com/aponline/2020/04/12/us/ap-us-virus-outbreak-lives-lost-a-police-mentor.html?searchResultPosition=3
 
 **World Bank Forecasts Worst Economic Slump in South Asia in 40 Years**\
 `India and other South Asian countries are likely to record their worst growth performance in four decades this year due to the coronavirus outbreak, the World Bank said on Sunday.`\
