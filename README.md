@@ -14,8 +14,8 @@ https://nytimes.com/2020/04/12/arts/television/tiger-king-new-episode.html?searc
 `A former Israeli chief rabbi has died after contracting the coronavirus, Prime Minister Benjamin Netanyahu said on Monday, in what is the country's highest-profile death from the pandemic.`\
 https://nytimes.com/reuters/2020/04/12/world/middleeast/12reuters-health-coronavirus-israel-bakshidoron.html?searchResultPosition=5
 
-**Froome Says Recovery Almost Complete as He Waits Out Lockdown**\
-`Four-times Tour de France winner Chris Froome said his recovery from a horrific accident last year was nearly complete and his training load was back to normal as he prepares for when competition resumes after the new coronavirus pandemic.`\
+**Cycling: Froome Says Recovery Almost Complete as He Waits Out Lockdown**\
+`Four-times Tour de France winner Chris Froome said his recovery from a horrific accident last year was nearly complete and his training load was back to normal as he prepares for when competition resumes after the new coronavirus outbreak.`\
 https://nytimes.com/reuters/2020/04/12/sports/cycling/12reuters-cycling-froome.html?searchResultPosition=6
 
 **Doug Sanders, Colorful 20-Time Winner Without a Major, Dies**\
