@@ -1,12 +1,12 @@
-**Virus Closes Some Meat Plants, Raising Fears of Shortages**\
-`Some massive meat processing plants have closed at least temporarily because their workers were sickened by the new coronavirus, raising concerns that there could soon be shortages of beef, pork and poultry in supermarkets. `\
-https://nytimes.com/aponline/2020/04/13/business/bc-us-virus-outbreak-meat-processing.html?searchResultPosition=8
+**42 Dead in Coronavirus Outbreak at Virginia Nursing Home, More Expected**\
+`Forty-two residents of a Virginia nursing home near Richmond have died from the COVID-19 disease pandemic in one of the worst clusters of the new coronavirus in the United States, and officials expect more deaths to come.`\
+https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-virginia-nursing-home.html?searchResultPosition=8
 
-**The TV Show I Love: ‘Grey’s Anatomy’**\
-`Nothing replaces the feeling — unique to television — of watching a show age in real time.`\
-https://nytimes.com/2020/04/13/arts/television/greys-anatomy-fans.html?searchResultPosition=9
+**Israeli Election Rivals Seek Deadline Extension to Form Unity Government**\
+`Down to the wire in their negotiations, Prime Minister Benjamin Netanyahu and his rival, Benny Gantz, asked for more time to resolve their differences.`\
+https://nytimes.com/2020/04/13/world/middleeast/israel-election-netanyahu-gantz.html?searchResultPosition=9
 
-**Report: WR Hopkins Passes Physical**\
-`Four-time Pro Bowl wide receiver DeAndre Hopkins passed his physical with the Arizona Cardinals, according to report from NFL Network's James Palmer on Monday.`\
-https://nytimes.com/reuters/2020/04/13/sports/football/13reuters-football-nfl-hou-ari-hopkins.html?searchResultPosition=10
+**Trump Says Plan to Re-Open Shuttered U.S. Economy to Be Completed Soon**\
+`President Donald Trump said on Monday that his administration was close to completing a plan to re-open the U.S. economy, which has been largely shut down to slow the spread of the novel coronavirus.`\
+https://nytimes.com/reuters/2020/04/13/business/13reuters-health-coronavirus-trump-economy.html?searchResultPosition=10
 
