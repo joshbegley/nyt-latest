@@ -1,12 +1,12 @@
-**China Appoints Sun Jinlong as New Environment Ministry Party Head**\
-`China has appointed Sun Jinlong as the new Communist Party Secretary of the Ministry of Ecology and Environment, replacing Li Ganjie, the ministry's website showed on Tuesday.`\
-https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-china-environment.html?searchResultPosition=8
+**Maida Heatter’s Baking Recipes Remixed**\
+`These books, focused on cookies and chocolate, would make a good Mother’s Day gift.`\
+https://nytimes.com/2020/04/13/dining/maida-heatter-baking-recipes.html?searchResultPosition=8
 
-**Coronavirus Briefing: What Happened Today**\
-`Governors plan to band together to decide when to reopen different regions of the United States.`\
-https://nytimes.com/2020/04/13/us/coronavirus-today.html?searchResultPosition=9
+**She’s Got Everything You Want': Ionescu to Shine in WNBA Draft**\
+`Oregon's Sabrina Ionescu is set to seize the spotlight in Friday's virtual WNBA draft, as players and coaches stay behind closed doors amid the coronavirus pandemic that forced the postponement of the league's upcoming season.`\
+https://nytimes.com/reuters/2020/04/13/sports/basketball/13reuters-basketball-wnba.html?searchResultPosition=9
 
-**Ecuadorian Firefighter Livens Up Coronavirus Lockdown Playing Trumpet**\
-`With Ecuador in lockdown to battle one of the worst outbreaks of the new coronavirus in Latin America, a Quito firefighter is seeking to raise spirits by serenading the capital's residents with folk tunes on his trumpet from atop his truck's crane. `\
-https://nytimes.com/reuters/2020/04/13/world/americas/13reuters-health-coronavirus-ecuador-firefighter.html?searchResultPosition=10
+**Live: Wisconsin Supreme Court and Statewide Election Results**\
+``\
+https://nytimes.com/interactive/2020/04/07/us/elections/results-wisconsin-spring-elections.html?searchResultPosition=10
 
