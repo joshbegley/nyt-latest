@@ -1,12 +1,12 @@
-**Brazil Moves to Protect Indigenous Tribes From Coronavirus**\
-`The Brazilian government has banned non-indigenous people from entering tribal lands to stop the spread of coronavirus in their villages and will distribute masks, gloves, test kits and food to their communities, officials said on Monday.`\
-https://nytimes.com/reuters/2020/04/13/world/americas/13reuters-health-coronavirus-brazil-indigenous.html?searchResultPosition=8
+**BAM Executives Take Steep Pay Cuts After Canceling Programs Through June**\
+`The president of the art center said that though other reductions may be necessary to offset millions in lost ticket sales, “we wanted to start at the top.”`\
+https://nytimes.com/2020/04/13/arts/bam-cancellation-salary-cuts.html?searchResultPosition=8
 
-**Feds: Online Drug Dealer Planned to Bomb Nebraska Pharmacy**\
-`A Maryland man who operated an online drug dealing website engaged in extensive plans to bomb and burn down a competing pharmacy in Nebraska, an FBI agent testified Monday.`\
-https://nytimes.com/aponline/2020/04/13/us/ap-us-online-drugs-arrest.html?searchResultPosition=9
+**Knocked Off Track by Coronavirus, Census Announces Delay in 2020 Count**\
+`The Census Bureau said it would extend the deadlines for collecting census data and would ask Congress for a delay in providing final counts used for congressional redistricting.`\
+https://nytimes.com/2020/04/13/us/census-coronavirus-delay.html?searchResultPosition=9
 
-**Lockdowns Cut Driving and Crashes, Bring Insurance Discounts**\
-`Interstates and city streets are empty and cars are quarantined in their owners' garages, so consumer advocates argue that it only makes sense for auto insurance rates to reflect that.`\
-https://nytimes.com/aponline/2020/04/13/business/bc-us-virus-outbreak-auto-insurance.html?searchResultPosition=10
+**Supreme Court Asked to Suspend Wealth Test for Green Cards in Light of Virus**\
+`New limits on the “public charge” rule will deter immigrants from seeking care during the pandemic, lawyers for New York and other states said.`\
+https://nytimes.com/2020/04/13/us/coronavirus-wealth-test-supreme-court.html?searchResultPosition=10
 
