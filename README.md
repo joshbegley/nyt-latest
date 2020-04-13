@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/04/12/world/asia/12reuters-northkorea-politics.
 `The 2020 NFL Draft won't have crowds, big stage and the usual fanfare that comes with the offseason's biggest night because of the ongoing coronavirus pandemic. But fans who do tune in for the first night of the event will reportedly get a different sort of treat.`\
 https://nytimes.com/reuters/2020/04/12/sports/football/12reuters-football-nfl-goodell-draft.html?searchResultPosition=5
 
-**Kia Motors Wants to Suspend Three South Korean Factories as Virus Hits Exports: Union**\
-`Kia Motors told its labour union in South Korea that it wants to suspend operations at three of its factories in the country as the coronavirus oubreak weighs on exports to Europe and the United States, a union official said on Monday.`\
+**Kia Motors Considers Halting Three South Korean Plants as Virus Hits Exports**\
+`Kia Motors Corp told its labour union in South Korea that it wants to suspend operations at three of its domestic factories as the coronavirus outbreak weighs on exports to Europe and the United States, a union official said on Monday.`\
 https://nytimes.com/reuters/2020/04/12/business/12reuters-health-coronavirus-kia-motors.html?searchResultPosition=6
 
 **UK Finance Minister Says GDP May Fall by Up to 30% Amid Virus Crisis: Paper**\
