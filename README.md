@@ -1,12 +1,12 @@
-**Cuomo Announces East Coast Plan to Devise Reopening Strategy**\
-`Gov. Andrew M. Cuomo of New York said that some East Coast states would form a working group to develop a plan for reopening the region.`\
-https://nytimes.com/video/us/politics/100000007085400/cuomo-governors-coronavirus.html?searchResultPosition=8
+**XFL Files for Bankruptcy, Cites COVID-19 Crisis**\
+`The XFL filed for bankruptcy on Monday, likely spelling the end of the second iteration of the league.`\
+https://nytimes.com/aponline/2020/04/13/sports/ap-fbo-xfl-bankruptcy-1st-ld-writethru.html?searchResultPosition=8
 
-**‘I Just Want to Eat Her Up!’**\
-`Why do we compare babies and fetuses to food?`\
-https://nytimes.com/2020/04/13/parenting/baby/compare-babies-food.html?searchResultPosition=9
+**Economic Pain Will Persist Long After Lockdowns End**\
+`President Trump has predicted an economic boom once stay-at-home and other restrictions are lifted. But economic activity is likely to remain subdued until the threat of the coronavirus recedes.`\
+https://nytimes.com/2020/04/13/business/coronavirus-economic-pain.html?searchResultPosition=9
 
-**Governors of California, Oregon and Washington Make Deal to Reopen Economies**\
-`The governors of three U.S. West Coast states, California, Oregon and Washington, said on Monday they had reached an agreement to work together to reopen their economies and lift health restrictions as the coronavirus pandemic eases.`\
-https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-west-coast.html?searchResultPosition=10
+**Reasons for Hope: The Drugs, Tests and Tactics That May Conquer Coronavirus**\
+`With much of the world living in lockdown, the spread of the new coronavirus, SARS-CoV-2, that was first detected in China late last year is beginning to slow in some places. As of April 12, 1.8 million had been infected and 115,000 killed  by COVID-19, the disease caused by the virus.`\
+https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-lifeline.html?searchResultPosition=10
 
