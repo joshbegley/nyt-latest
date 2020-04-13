@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/04/13/business/13reuters-health-coronavirus-mea
 `The coronavirus shock to the economy won't push the United States into a damaging bout of deflation given the Fed's response and power to do more, Fed vice chair Richard Clarida said on Monday.`\
 https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-fed-clarida.html?searchResultPosition=8
 
-**Easter Storms Sweep South, Killing at Least 12 People**\
-`Severe weather has swept across the South, killing at least six people in Mississippi, six more in Georgia and damaging hundreds of homes from Louisiana into the Appalachian Mountains.`\
+**Easter Storms Sweep South, Killing at Least 18 People**\
+`Severe weather has swept across the South, killing at least 18 people and damaging hundreds of homes from Louisiana into the Appalachian Mountains. Many people spent part of the night early Monday sheltering in basements, closets and bathroom tubs as sirens wailed to warn of possible tornadoes. `\
 https://nytimes.com/aponline/2020/04/13/us/ap-us-severe-weather-south.html?searchResultPosition=9
 
 **Gaza Resumes Coronavirus Testing Amid Shortages**\
