@@ -1,12 +1,12 @@
-**Jeans Company True Religion Files for Chapter 11 _ Again**\
-`Jeans retailer True Religion Apparel Inc. filed for bankruptcy protection under Chapter 11 on Monday, the second time in three years, as extended closures of its stores in the pandemic have hurt its business. `\
-https://nytimes.com/aponline/2020/04/13/business/ap-us-true-religion-chapter-11.html?searchResultPosition=8
+**Live Analysis: Wisconsin Primary Election Results**\
+`See full results and maps from the Wisconsin primary.`\
+https://nytimes.com/interactive/2020/04/13/us/elections/live-analysis-wisconsin.html?searchResultPosition=8
 
-**SoftBank’s Troubles Deepen With Warning of $16.7 Billion Writedown**\
-`The Japanese conglomerate, which bet big on tech start-ups with its $100 billion Vision Fund, also expects its first annual loss in 15 years.`\
-https://nytimes.com/2020/04/13/technology/softbank-167-billion-writedown.html?searchResultPosition=9
+**Bogota Metro Work Start Could Be Delayed Six Months Over Coronavirus Restrictions**\
+`The start of work on Colombian capital Bogota's first metro line could be delayed by at least six months because companies involved in its construction are affected by quarantine orders to control the spread of the coronavirus, officials said Monday. `\
+https://nytimes.com/reuters/2020/04/13/world/americas/13reuters-health-coronavirus-colombia-metro.html?searchResultPosition=9
 
-**New Ventilator-Sharing Device Eases Treatment of Two COVID-19 Patients at Once**\
-`A hospital in Connecticut has successfully employed a new 3D-printed device that makes it possible to modify one ventilator for use in two critically ill patients with COVID-19 who have different respiratory needs, as the coronavirus outbreak puts a crunch on medical resources. `\
-https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-usa-ventilators.html?searchResultPosition=10
+**Democratic Governors Form Compacts to Coordinate Reopenings**\
+`Democratic governors in the Northeast and along the West Coast on Monday announced separate state compacts to coordinate one of their biggest challenges in the weeks to come: How to begin reopening society amid the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/04/13/us/ap-us-virus-outbreak-state-compacts.html?searchResultPosition=10
 
