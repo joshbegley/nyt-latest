@@ -1,12 +1,12 @@
-**The Weeknd’s ‘After Hours’ Earns a Third Straight Week at No. 1**\
-`The album was aided once again by bundles of the music with sales of merchandise.`\
-https://nytimes.com/2020/04/13/arts/music/the-weeknd-billboard-chart.html?searchResultPosition=8
+**Pixar's Summer Release 'Soul' Postponed to November**\
+`Pixar's “Soul,” the last major release planned for June, has been postponed to November because of the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/04/13/us/ap-us-film-pixar-delay.html?searchResultPosition=8
 
-**New York and Five Other States to Work Together on Reopening Amid Coronavirus**\
-`The governors of New York, New Jersey, Connecticut, Pennsylvania, Rhode Island and Delaware said on Monday that they planned to coordinate on a plan to reopen businesses and schools after getting the novel coronavirus pandemic under control.`\
-https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-usa-coordination.html?searchResultPosition=9
+**‘Which Death is Going to Be Worse?’ Coronavirus Invades a Conflict Zone**\
+`Libyans have been fleeing bombs and shells throughout the country’s six-year civil war. But with the arrival of the coronavirus, virtually nowhere is safe to hide.`\
+https://nytimes.com/video/world/africa/100000007058303/coronavirus-libya-war.html?searchResultPosition=9
 
-**Why New Orleans Pushed Ahead With Mardi Gras, Even as It Planned for Coronavirus**\
-`A cache of internal emails reveals city officials believed chances were “low” that the festivities would help spread the virus, a prediction that proved tragically off base.`\
-https://nytimes.com/2020/04/13/us/coronavirus-new-orleans-mardi-gras.html?searchResultPosition=10
+**Forces Aligned With Tripoli Government Advance Along West Libyan Coast**\
+`Forces aligned with Libya's internationally recognized government seized two towns west of the capital Tripoli on Monday after heavy clashes and drone strikes, military sources and residents said.`\
+https://nytimes.com/reuters/2020/04/13/world/africa/13reuters-libya-security.html?searchResultPosition=10
 
