@@ -1,12 +1,12 @@
-**Despite Qualms, Arthritis Drug to Be Tested in Coronavirus Study**\
-`Even though it can make infections worse, it also may be able to keep the immune system from overreacting.`\
-https://nytimes.com/2020/04/13/health/coronavirus-arthritis-drug-baricitinib.html?searchResultPosition=8
+**Fauci Defends Trump, Who Says He Has No Plans to Dismiss Him**\
+`The president had reposted a message on Twitter on Sunday calling for Dr. Fauci’s firing.`\
+https://nytimes.com/2020/04/13/us/politics/coronavirus-trump-fauci.html?searchResultPosition=8
 
-**U.S. Food Supply Chain Is Strained as Virus Spreads**\
-`Disruptions are expected in the production and distribution of products like pork, and localized shortages could occur.`\
-https://nytimes.com/2020/04/13/business/coronavirus-food-supply.html?searchResultPosition=9
+**U.N. Agencies: 117 Million Children May Miss Measles Shots Due to COVID-19**\
+`More than 117 million children could miss out on immunization against measles as the COVID-19 pandemic forces social distancing and piles pressure on health services, United Nations health agencies warned on Tuesday.`\
+https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-health-coronavirus-measles.html?searchResultPosition=9
 
-**IMF Cancels Debt Payments for 6 Months for 25 Poor Nations**\
-`The International Monetary Fund approved $500 million on Monday to cancel six months of debt payments for 25 of the world’s most impoverished countries so they can help tackle the COVID-19 pandemic.`\
-https://nytimes.com/aponline/2020/04/13/business/ap-un-virus-outbreak-imf-debt-relief.html?searchResultPosition=10
+**Belichick, Patriots 'Moving Forward' Minus Brady**\
+`New England Patriots head coach Bill Belichick is ready for turn the page after 20 years with Tom Brady.`\
+https://nytimes.com/reuters/2020/04/13/sports/football/13reuters-football-nfl-nep-belichick-brady.html?searchResultPosition=10
 
