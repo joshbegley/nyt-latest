@@ -1,12 +1,12 @@
-**Vaccine Needed to End Social Distancing: Irish Health Minister**\
-`Social distancing rules adopted to slow the spread of coronavirus by keeping people two metres apart will remain largely in place until an effective treatment or vaccine is available, Ireland's health minister said on Monday.`\
-https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-health-coronavirus-ireland.html?searchResultPosition=8
+**Trump Campaign Sues Wisconsin TV Station Over Critical Ad**\
+`President Donald Trump's reelection campaign is suing a Wisconsin TV station for running an anti-Trump commercial that pieces together audio clips of the president talking about the coronavirus outbreak in a way they argue is misleading and false.`\
+https://nytimes.com/aponline/2020/04/13/us/politics/ap-us-election-2020-trump-ads.html?searchResultPosition=8
 
-**Bernie Sanders Endorses Joe Biden for President**\
-`The Vermont senator added the weight of his left-wing support to Mr. Biden’s candidacy in a step toward Democratic unity against President Trump.`\
-https://nytimes.com/2020/04/13/us/politics/bernie-sanders-joe-biden-endorsement.html?searchResultPosition=9
+**British PM's Praise for Health Service Could Boost Its Cause**\
+`His skin pale and his eyes hooded from a week in the hospital with the coronavirus, British Prime Minister Boris Johnson looked into the camera and paid tribute to the two nurses who never left his bedside for 48 hours, a time when his fight to survive "could have gone either way.″`\
+https://nytimes.com/aponline/2020/04/13/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=9
 
-**U.S. Budget Watchdog Group Projects $3.8 Trillion Deficit for 2020**\
-`A steep economic downturn and massive coronavirus rescue spending will nearly quadruple the fiscal 2020 U.S. budget deficit to a record $3.8 trillion, a staggering 18.7% of U.S. economic output, a Washington budget watchdog group said on Monday.`\
-https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-usa-budget.html?searchResultPosition=10
+**Quick-Hit Streaming Service Quibi Reports 1.7 Million Downloads in First Week**\
+`About 1.7 million people downloaded the new entertainment streaming app Quibi during its first week on the market, Chief Executive Meg Whitman told CNBC television on Monday.`\
+https://nytimes.com/reuters/2020/04/13/arts/13reuters-television-quibi.html?searchResultPosition=10
 
