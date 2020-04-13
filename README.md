@@ -1,12 +1,12 @@
+**ESPN and NFL Network Will Combine for NFL Draft Telecast**\
+`ESPN and NFL Network will join forces for this year's NFL draft. They will produce a broadcast that will air on both networks over all three days.`\
+https://nytimes.com/aponline/2020/04/13/sports/football/ap-fbn-nfl-draft-tv.html?searchResultPosition=8
+
+**Britain's Raab Does Not Expect Changes to Lockdown Measures for Now**\
+`Britain's foreign minister Dominic Raab said on Monday that he does not expect the government to make any changes to the lockdown measures currently in place until it is confident they can be made safely. `\
+https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-britain-coronavirus-raab.html?searchResultPosition=9
+
 **Italy's Daily Coronavirus Cases Decline, Deaths Rise**\
 `Deaths from the COVID-19 epidemic in Italy rose by 566 on Monday, up from 431 the day before, but the number of new cases slowed to 3,153 from a previous 4,092.`\
-https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-health-coronavirus-italy-tally.html?searchResultPosition=8
-
-**Athene Pays $45 Million Fine in First Settlement of New York Pension Transfer Probe**\
-`Athene Holding Ltd agreed on Monday to pay a $45 million civil fine to settle charges it conducted insurance business in New York without a license, the first settlement in a probe into an industry where life insurers take over corporate pension plans.`\
-https://nytimes.com/reuters/2020/04/13/business/13reuters-athene-hldg-settlement.html?searchResultPosition=9
-
-**A Salad for When You’re Out of Lettuce**\
-`This starchy grain bowl makes use of those sturdy vegetables in your fridge.`\
-https://nytimes.com/2020/04/13/dining/grain-salad-coronavirus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-health-coronavirus-italy-tally.html?searchResultPosition=10
 
