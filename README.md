@@ -1,12 +1,12 @@
-**U.S. Government Holding Firm on Airline Aid Plan, Could End Up With 3% of American Airlines**\
-`The U.S. Treasury Department is holding firm on the terms of a $25 billion offer for government aid to airlines to help them meet payroll during the coronavirus downturn, officials said on Monday, and the plan could give the government more than 3% of American Airlines Group Inc.`\
-https://nytimes.com/reuters/2020/04/13/business/13reuters-health-coronavirus-usa-airlines.html?searchResultPosition=8
+**U.S. GDP Will Contract 30% in Second Quarter, 5% in 2020: PIMCO**\
+`The forced closure of businesses across the United States and surge in unemployment due to the coronavirus pandemic will force U.S. growth to contract by 30% at an annualized rate in the second quarter and 5% overall in 2020, Pacific Investment Management Co (PIMCO) wrote on Wednesday.`\
+https://nytimes.com/reuters/2020/04/13/business/13reuters-usa-gdp-pimco.html?searchResultPosition=8
 
-**Our Cruel Treatment of Animals Led to the Coronavirus**\
-`The conditions that lead to the emergence of new infectious diseases are the same ones that inflict horrific harms on animals.`\
-https://nytimes.com/2020/04/13/opinion/animal-cruelty-coronavirus.html?searchResultPosition=9
+**Broadcast Crews Struggling After Sports Go Dark**\
+`Greg Calvin believed his job as an audio technician could survive most economic downturns because people will keep watching sports while the networks that air the games still receive advertising revenue.`\
+https://nytimes.com/aponline/2020/04/13/sports/ap-virus-outbreak-sports-behind-the-scenes.html?searchResultPosition=9
 
-**Spain’s Lethal Secret: We Didn’t Have “the Best Health Care in the World”**\
-`It took Prime Minister Pedro Sánchez too long to bring coherence to the pandemic’s response. Overconfidence in our health care capacity took care of the rest.`\
-https://nytimes.com/2020/04/13/opinion/spain-coronavirus-hospitals.html?searchResultPosition=10
+**After Pandemic, Fed Policymakers See Slow U.S. Recovery**\
+`The U.S. economy is set for a deep slide in coming months with the coronavirus forcing businesses to shut and putting millions out of work, but Federal Reserve policymakers are also warning of a slugging recovery once the pandemic subsides.`\
+https://nytimes.com/reuters/2020/04/13/business/13reuters-usa-fed-barkin.html?searchResultPosition=10
 
