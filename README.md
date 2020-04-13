@@ -1,12 +1,12 @@
-**Maida Heatter’s Baking Recipes Remixed**\
-`These books, focused on cookies and chocolate, would make a good Mother’s Day gift.`\
-https://nytimes.com/2020/04/13/dining/maida-heatter-baking-recipes.html?searchResultPosition=8
+**A Queens Caterer Delivers**\
+`Neuman’s Kitchen will send its homestyle food — lasagna, meatloaf and more — to Manhattan, Brooklyn and even the Hamptons.`\
+https://nytimes.com/2020/04/13/dining/catered-food-delivered-coronavirus.html?searchResultPosition=8
 
-**She’s Got Everything You Want': Ionescu to Shine in WNBA Draft**\
-`Oregon's Sabrina Ionescu is set to seize the spotlight in Friday's virtual WNBA draft, as players and coaches stay behind closed doors amid the coronavirus pandemic that forced the postponement of the league's upcoming season.`\
-https://nytimes.com/reuters/2020/04/13/sports/basketball/13reuters-basketball-wnba.html?searchResultPosition=9
+**Mashed Potatoes, the Robuchon Way**\
+`To make the chef Joël Robuchon’s pommes purées, you’ll need butter, lots of it.`\
+https://nytimes.com/2020/04/13/dining/mashed-potatoes-robuchon.html?searchResultPosition=9
 
-**Live: Wisconsin Supreme Court and Statewide Election Results**\
-``\
-https://nytimes.com/interactive/2020/04/07/us/elections/results-wisconsin-spring-elections.html?searchResultPosition=10
+**Cuomo vs. De Blasio: Even Pandemic Doesn't Bridge Their Rift**\
+`A dangerous virus has transformed New York as it has claimed the lives of 10,000 people, but one thing hasn't changed: the contentious relationship between the state's two most prominent politicians, Gov. Andrew Cuomo and New York City Mayor Bill de Blasio.`\
+https://nytimes.com/aponline/2020/04/13/us/ap-us-virus-outbreak-cuomo-de-blasio.html?searchResultPosition=10
 
