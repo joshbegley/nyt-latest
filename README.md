@@ -1,12 +1,12 @@
-**Factbox: Non OPEC+ Crude Oil Supply Cuts**\
-`The Organization of the Petroleum Exporting Countries and its allies, known as OPEC+, agreed on Sunday to reduce output by 9.7 million barrels per day (bpd) for May and June in an effort to prop up oil prices as the coronavirus outbreak slashes fuel demand.`\
-https://nytimes.com/reuters/2020/04/13/world/13reuters-global-oil-non-opec-cuts-factbox.html?searchResultPosition=8
+**In About-Face, Musicians’ Union Agrees to Pandemic Fund-Raiser**\
+`Broadway Cares said it would reschedule a canceled event featuring a concert of Disney songs after the American Federation of Musicians dropped a demand for additional compensation.`\
+https://nytimes.com/2020/04/13/theater/musicians-union-disney-fund-raiser-broadway-covid.html?searchResultPosition=8
 
-**Craig Gilbert, 94, Dies; Created Groundbreaking ‘American Family’**\
-`Airing in 1973 and making national stars out of the Loud family, it is now considered the first reality TV show. It had people buzzing then, and fighting.`\
-https://nytimes.com/2020/04/13/arts/television/craig-gilbert-dead.html?searchResultPosition=9
+**Lawmaker: Trump Officials Want Delay in Census Due to Virus**\
+`The Trump administration wants to delay deadlines for the 2020 census because of the coronavirus outbreak, a move that if approved would push back timetables for releasing data used to draw congressional and legislative districts, the chair of the House oversight committee said Monday.`\
+https://nytimes.com/aponline/2020/04/13/us/ap-us-2020-census.html?searchResultPosition=9
 
-**Carnival, American Airlines, Fall; Marathon Oil, eBay Rise**\
-`Stocks that moved heavily or traded substantially on Monday:`\
-https://nytimes.com/aponline/2020/04/13/business/ap-financial-markets-stocks.html?searchResultPosition=10
+**How Major US Stock Indexes Fared Monday**\
+`Banks and industrial companies led a slide in stocks on Wall Street Monday that erased some of the market's gains after a big rally last week. `\
+https://nytimes.com/aponline/2020/04/13/business/ap-financial-markets-box.html?searchResultPosition=10
 
