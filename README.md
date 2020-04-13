@@ -1,12 +1,12 @@
-**Onaje Allan Gumbs, Musically Ecumenical Pianist, Dies at 70**\
-`As a musician, composer and arranger, Mr. Gumbs was a close collaborator with stars across musical styles.`\
-https://nytimes.com/2020/04/13/arts/music/onaje-allan-gumbs-dead.html?searchResultPosition=8
+**Americans Start to See Relief Payments; Some Face a Wait**\
+`Americans are beginning to see the first economic impact payments hit their bank accounts. `\
+https://nytimes.com/aponline/2020/04/13/business/bc-virus-outbreak-economic-impact-checks.html?searchResultPosition=8
 
-**Mexico's Economy to Shrink 7.6% This Year: UBS**\
-`Mexico's economy will shrink 7.6% in 2020, more than double a previous forecast, and its "policy response to the coronavirus is among the weakest anywhere in the world," according to UBS.`\
-https://nytimes.com/reuters/2020/04/13/world/americas/13reuters-mexico-economy.html?searchResultPosition=9
+**What Food Expiration Dates You Should Actually Follow**\
+`The first thing you should know? The dates, as we know them, have nothing to do with safety. J. Kenji López-Alt explains.`\
+https://nytimes.com/2020/04/13/dining/expiration-dates-coronavirus.html?searchResultPosition=9
 
-**Turkey to Impose Fresh Lockdown Next Weekend to Halt COVID-19 Spread: Erdogan**\
-`President Tayyip Erdogan said on Monday that Turkey would impose a fresh lockdown next weekend as part of measures to halt the spread of COVID-19, having locked down 31 provinces last weekend.`\
-https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-health-coronavirus-turkey-lockdown.html?searchResultPosition=10
+**New York Governor Says 'Worst Is Over' as Growth in Deaths Ticks Lower**\
+`New York Governor Andrew Cuomo said on Monday that he believed "the worst is over" as hospitalizations appeared to be reaching a plateau and the daily increase in deaths came to 671, the lowest total in about a week.`\
+https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-usa-new-york.html?searchResultPosition=10
 
