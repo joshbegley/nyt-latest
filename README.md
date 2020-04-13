@@ -1,12 +1,12 @@
-**Mom of T-Wolves Star Karl-Anthony Towns Dies From COVID-19**\
-`Jacqueline Cruz-Towns, the mother of Minnesota Timberwolves center Karl-Anthony Towns, died Monday due to complications from COVID-19 after more than a month of fighting the virus.`\
-https://nytimes.com/aponline/2020/04/13/sports/basketball/ap-bkn-obit-towns-mother.html?searchResultPosition=8
+**Denim Retailer True Religion Files for Bankruptcy Protection Amid Virus Crisis**\
+`True Religion Apparel Inc on Monday filed for Chapter 11 bankruptcy protection for a second time in less than three years, becoming another corporate casualty of the coronavirus outbreak that has ravaged the retail sector.`\
+https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-true-religion.html?searchResultPosition=8
 
-**AP Source: Panthers Make McCaffrey Highest-Paid Running Back**\
-`The Carolina Panthers have agreed to a four-year, $64 million contract extension with All-Pro Christian McCaffrey, a person familiar with the contract negotiation told The Associated Press, making McCaffrey the highest-paid running back in the NFL.`\
-https://nytimes.com/aponline/2020/04/13/sports/football/ap-fbn-panthers-mccaffrey.html?searchResultPosition=9
+**How Often Should I Bathe My Baby?**\
+`Giving baby a bath without harming that delicate skin is one more minefield for new parents to traverse. Here are a few tips.`\
+https://nytimes.com/article/bathe-newborn-baby.html?searchResultPosition=9
 
-**Florida Man Dead After Shootout With Deputies**\
-`A Florida man is dead following a shootout with deputies, authorities said.`\
-https://nytimes.com/aponline/2020/04/13/us/ap-us-deputy-shooting-florida.html?searchResultPosition=10
+**Dozens Are Killed as Tornadoes and Severe Weather Strike Southern States**\
+`The storm carved a destructive path across six states on Sunday and Monday, causing widespread damage and cutting power to tens of thousands of customers.`\
+https://nytimes.com/2020/04/13/us/tornado-storm-south.html?searchResultPosition=10
 
