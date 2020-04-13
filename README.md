@@ -1,12 +1,12 @@
-**ESPN and NFL Network Will Combine for NFL Draft Telecast**\
-`ESPN and NFL Network will join forces for this year's NFL draft. They will produce a broadcast that will air on both networks over all three days.`\
-https://nytimes.com/aponline/2020/04/13/sports/football/ap-fbn-nfl-draft-tv.html?searchResultPosition=8
+**Navarro Warns Shutdown Could Be More Deadly Than Virus**\
+`President Trump’s trade adviser called medical experts “tone deaf” to link job losses and health.`\
+https://nytimes.com/2020/04/13/us/politics/coronavirus-navarro-economic-shutdown.html?searchResultPosition=8
 
-**Britain's Raab Does Not Expect Changes to Lockdown Measures for Now**\
-`Britain's foreign minister Dominic Raab said on Monday that he does not expect the government to make any changes to the lockdown measures currently in place until it is confident they can be made safely. `\
-https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-britain-coronavirus-raab.html?searchResultPosition=9
+**As Reality TV Reunions Go Virtual, What About the Fights?**\
+`Castmates, prepare to yell into your Zoom.`\
+https://nytimes.com/2020/04/13/style/reunions-bravo-tlc-reality.html?searchResultPosition=9
 
-**Italy's Daily Coronavirus Cases Decline, Deaths Rise**\
-`Deaths from the COVID-19 epidemic in Italy rose by 566 on Monday, up from 431 the day before, but the number of new cases slowed to 3,153 from a previous 4,092.`\
-https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-health-coronavirus-italy-tally.html?searchResultPosition=10
+**Virus Fuels Pot Industry's Push for Online Sales, Delivery**\
+`Colorado has made online sales of recreational marijuana legal during the coronavirus epidemic, fulfilling one of the pot industry's biggest wishes and fueling its argument for more concessions that could be made permanent when the crisis eases.`\
+https://nytimes.com/aponline/2020/04/13/business/ap-us-virus-outbreak-online-marijuana-sales.html?searchResultPosition=10
 
