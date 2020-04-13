@@ -1,12 +1,12 @@
-**California Orders Insurance Premium Refunds During Outbreak**\
-`California's insurance commissioner on Monday ordered some companies to refund premiums for March and April because of the coronavirus, issuing a broad directive that includes payments made for workers compensation, medical malpractice and private and commercial auto policies.`\
-https://nytimes.com/aponline/2020/04/13/business/bc-us-virus-outbreak-california-insurance-premiums.html?searchResultPosition=8
+**Kansas' Devon Dotson Announces He's Entering NBA Draft**\
+`Kansas guard Devon Dotson is entering the NBA draft after leading the Big 12 Conference in scoring his sophomore season.`\
+https://nytimes.com/aponline/2020/04/13/sports/ncaabasketball/ap-bkc-kansas-dotson-nba.html?searchResultPosition=8
 
-**Ocasio-Cortez: Biden Needs a 'Real' Health Care Plan**\
-`Presumptive Democratic nominee Joe Biden should “at a bare minimum” talk specifics about providing health care for everyone if he hopes to build enthusiasm for his campaign against President Donald Trump, Rep. Alexandria Ocasio-Cortez told The Associated Press.`\
-https://nytimes.com/aponline/2020/04/13/us/politics/ap-us-election-2020-biden-progressives.html?searchResultPosition=9
+**U.S. Coronavirus Death Toll Tops 23,000-Reuters Tally**\
+`U.S. deaths from the novel coronavirus topped 23,000 on Monday, according to a Reuters tally, as officials said the worst may be over and the outbreak could reach its peak this week.`\
+https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-usa-casualties.html?searchResultPosition=9
 
-**LOT Owner Drops Takeover of German Carrier Condor**\
-`The parent company of Polish airline LOT is pulling out of its takeover bid of for German vacation carrier Condor, a subsidiary of collapsed tour operator Thomas Cook, Condor said Monday. `\
-https://nytimes.com/aponline/2020/04/13/business/bc-eu-germany-lot-condor.html?searchResultPosition=10
+**‘It’s a Time Bomb’: 23 Die as Virus Hits Packed Homeless Shelters**\
+`The virus is spreading where social distancing is nearly impossible. But there’s no staying at home when you do not have one.`\
+https://nytimes.com/2020/04/13/nyregion/new-york-coronavirus-homeless.html?searchResultPosition=10
 
