@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/04/13/business/bc-virus-outbreak-business-fall
 https://nytimes.com/2020/04/13/dining/how-to-cook-now.html?searchResultPosition=5
 
 **Amazon to Add 75,000 More Jobs Amid Coronavirus Pandemic**\
-`Amazon.com Inc said on Monday it plans to hire 75,000 more people for jobs ranging from warehouse staff to delivery drivers as coronavirus epidemic kept Americans locked in their homes.`\
+`Amazon.com Inc said on Monday it plans to hire 75,000 more people for jobs ranging from warehouse staff to delivery drivers as the coronavirus epidemic kept Americans locked in their homes and demand for online orders surged.`\
 https://nytimes.com/reuters/2020/04/13/technology/13reuters-health-coronavirus-amazon-com.html?searchResultPosition=6
 
 **Steve Jobs**\
