@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/04/13/business/13reuters-global-oil-opec-japan.
 https://nytimes.com/reuters/2020/04/13/world/middleeast/13reuters-health-coronavirus-emirates-cenbank.html?searchResultPosition=3
 
 **Vietnam Orders Workers at Samsung Display Unit to Be Quarantined After COVID-19 Case**\
-`Authorities in northern Vietnam have ordered people working at a unit of Samsung Display factory in the country to be quarantined after a worker there tested positive for the new coronavirus.`\
+`Authorities in northern Vietnam have ordered people working at a unit of Samsung Display in the country to be quarantined after a worker there tested positive for the new coronavirus.`\
 https://nytimes.com/reuters/2020/04/13/technology/13reuters-health-coronavirus-vietnam-samsung.html?searchResultPosition=4
 
 **Backup Coronavirus Hospital in Memphis Worries Residents**\
