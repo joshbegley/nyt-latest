@@ -1,12 +1,12 @@
-**Masks, Thermometers for Spaniards Gradually Going Back to Work**\
-`A factory in northern Spain that makes gearboxes for wind turbines welcomed back workers on Monday after a two-week lockdown across the country to halt the spread of coronavirus -- but only after they'd shown their temperatures were normal. `\
-https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-health-coronavirus-spain-business.html?searchResultPosition=8
+**250-Year-Old U.S. Easter Tradition's Horns Silenced by Coronavirus Pandemic**\
+`Every Easter Sunday for almost 250 years, residents of Winston-Salem, North Carolina, have been awakened by small groups of musicians playing the hymn "Sleepers, Wake," before the Home Moravian church's sunrise service.`\
+https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-usa-moravian-church.html?searchResultPosition=8
 
-**Fire Raging Near Ukraine's Chernobyl Poses Radiation Risk, Say Activists**\
-`A huge forest fire in Ukraine that has been raging for more than a week is now just one kilometre from the defunct Chernobyl nuclear power plant and poses a radiation risk, Greenpeace Russia warned on Monday, citing satellite images.`\
-https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-ukraine-chernobyl-fire.html?searchResultPosition=9
+**Concrete Room Saves Mississippi Family of 4 From Twister**\
+`With a tornado bearing down on their rural home, Andrew Phillips told his wife to grab their two children and get into the safest place they had: A small room built from concrete blocks.`\
+https://nytimes.com/aponline/2020/04/13/us/ap-us-severe-weather-safe-room.html?searchResultPosition=9
 
-**'Mrs. America' ERA Miniseries Gives Women of Color Their Due**\
-`“Mrs. America,” which dramatizes the Equal Rights Amendment fight that pitted a surprising and determined opponent against a deep bench of supporters, is a marvel in many ways. `\
-https://nytimes.com/aponline/2020/04/13/us/ap-us-tv-mrs-america.html?searchResultPosition=10
+**Driver Kyle Larson Suspended After Using Racial Slur**\
+`NASCAR suspended the driver Kyle Larson indefinitely after he used a racial slur during a live stream of a virtual auto race. His team also suspended him without pay.`\
+https://nytimes.com/2020/04/13/sports/driver-kyle-larson-suspended-after-using-racial-slur.html?searchResultPosition=10
 
