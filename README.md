@@ -1,12 +1,12 @@
-**Trump's Disdain for 'Obamacare' Could Hamper Virus Response**\
-`The Trump administration’s unrelenting opposition to “Obamacare” could become an obstacle for millions of uninsured people in the coronavirus outbreak, as well as many who are losing coverage in the economic shutdown.`\
-https://nytimes.com/aponline/2020/04/13/business/bc-us-virus-outbreak-uninsured.html?searchResultPosition=8
+**The Weeknd’s ‘After Hours’ Earns a Third Straight Week at No. 1**\
+`The album was aided once again by bundles of the music with sales of merchandise.`\
+https://nytimes.com/2020/04/13/arts/music/the-weeknd-billboard-chart.html?searchResultPosition=8
 
-**Heart Woes Spur Partial Stop of Malaria Drug Study for Virus**\
-`Scientists in Brazil have stopped part of a study of a malaria drug touted as a possible coronavirus treatment after heart rhythm problems developed in one-quarter of people given the higher of two doses being tested.`\
-https://nytimes.com/aponline/2020/04/13/health/bc-us-med-virus-outbreak-malaria-drug.html?searchResultPosition=9
+**New York and Five Other States to Work Together on Reopening Amid Coronavirus**\
+`The governors of New York, New Jersey, Connecticut, Pennsylvania, Rhode Island and Delaware said on Monday that they planned to coordinate on a plan to reopen businesses and schools after getting the novel coronavirus pandemic under control.`\
+https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-usa-coordination.html?searchResultPosition=9
 
-**Egypt Opens Gaza Border for Returnees Stranded by Outbreak**\
-`Egypt reopened its border crossing on Monday with the Gaza Strip after nearly three weeks, allowing hundreds of Palestinians stranded by the coronavirus pandemic to return home.`\
-https://nytimes.com/aponline/2020/04/13/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=10
+**Why New Orleans Pushed Ahead With Mardi Gras, Even as It Planned for Coronavirus**\
+`A cache of internal emails reveals city officials believed chances were “low” that the festivities would help spread the virus, a prediction that proved tragically off base.`\
+https://nytimes.com/2020/04/13/us/coronavirus-new-orleans-mardi-gras.html?searchResultPosition=10
 
