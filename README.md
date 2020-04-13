@@ -1,36 +1,36 @@
-**China Says Willing to Study African Debt Relief Jointly With International Community**\
-`China said on Monday it is aware of calls for a debt relief program for African countries, and is willing to study the possibility with the international community.`\
-https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-africa-china.html?searchResultPosition=2
+**Soccer: More Than 1,000 Fans Shrug Off Virus Concerns to Attend Match in Belarus**\
+`More than 1,000 soccer fans cheered, chanted and hugged each other as they attended a Belarusian top-flight league match on Sunday despite calls from a growing number of supporters to boycott games due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/13/sports/soccer/13reuters-health-coronavirus-soccer-belarus.html?searchResultPosition=2
 
-**'Force of Nature' Georgieva Leads IMF Through Coronavirus Storm**\
-`Bulgarian economist Kristalina Georgieva is emerging as a powerful voice for the poor, as the coronavirus pandemic that has plunged the world into recession threatens to tip developing countries into chaos. `\
-https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-health-coronavirus-imf-georgieva.html?searchResultPosition=3
+**Aquarium Seals Must Be Wondering: Who's That Masked Trainer?**\
+`Humans can't always recognize each other in face masks, so imagine the confusion that wild animals in captivity must feel.`\
+https://nytimes.com/aponline/2020/04/13/us/ap-us-virus-outbreak-harbor-seals.html?searchResultPosition=3
 
-**Mayor and Governor Clash Over N.Y.C. School Shutdown: Live Updates**\
-`Mayor de Blasio said he would keep schools closed for the rest of the year, but Governor Cuomo says that was for him to decide.`\
-https://nytimes.com/2020/04/13/nyregion/coronavirus-new-york-update.html?searchResultPosition=4
+**Chinese Manufacturing Recovering, but Demand Now a Concern: EU Business Group**\
+`Manufacturing in China, the original epicentre of the COVID-19 pandemic, has largely recovered, but now shutdowns in the rest of the world are threatening the supply of key parts and demand, a European business group in China warned on Monday. `\
+https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-china-business.html?searchResultPosition=4
 
-**'Elbow to Elbow:' North America Meat Plant Workers Fall Ill, Walk Off Jobs**\
-`At a Wayne Farms chicken processing plant in Alabama, workers recently had to pay the company 10 cents a day to buy masks to protect themselves from the new coronavirus, according to a meat inspector.    `\
-https://nytimes.com/reuters/2020/04/13/business/13reuters-health-coronavirus-meat-focus.html?searchResultPosition=5
+**Trump Retweets #FireFauci After Coronavirus Scientist Comments**\
+`U.S. President Donald Trump retweeted a call to fire Dr. Anthony Fauci after the nation's top expert on infectious diseases said lives could have been saved if the country had shut down sooner during the novel coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/13/us/politics/13reuters-health-coronavirus-trump-fauci.html?searchResultPosition=5
 
-**Fed's Clarida Says Central Bank Has Tools to Avoid Deflation: BBG**\
-`The coronavirus shock to the U.S. economy won't push the country into a damaging bout of deflation given the Federal Reserve's response and its power to do more, Fed vice chair Richard Clarida said on Monday.`\
-https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-fed-clarida.html?searchResultPosition=6
+**China Will Step Up Coronavirus Testing for People Leaving Wuhan**\
+`China will step up coronavirus testing and health management for people leaving Wuhan, state television reported Monday, quoting a meeting chaired by Premier Li Keqiang.`\
+https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-china-li.html?searchResultPosition=6
 
-**Easter Storms Sweep South, Killing at Least 18 People**\
-`Severe weather has swept across the South, killing at least 18 people and damaging hundreds of homes from Louisiana into the Appalachian Mountains. Many people spent part of the night early Monday sheltering in basements, closets and bathroom tubs as sirens wailed to warn of possible tornadoes. `\
-https://nytimes.com/aponline/2020/04/13/us/ap-us-severe-weather-south.html?searchResultPosition=7
+**Saudi Arabia May Tap Debt Market as Oil Output Cuts Hit Revenues: Sources**\
+`Saudi Arabia is likely to sell new international bonds soon as Sunday's historic deal to cut oil output among major producers puts further pressure on revenues already hurt by the collapse in crude prices, four banking sources said.`\
+https://nytimes.com/reuters/2020/04/13/business/13reuters-saudi-economy-debt.html?searchResultPosition=7
 
-**Gaza Resumes Coronavirus Testing Amid Shortages**\
-`Coronavirus testing has resumed in the Gaza Strip after Israel allowed five testing kits purchased by the World Health Organization (WHO) into the enclave, a Gaza health ministry spokesman said on Monday.`\
-https://nytimes.com/reuters/2020/04/13/world/middleeast/13reuters-health-coronavirus-palestinians-gaza.html?searchResultPosition=8
+**Putin’s Long War Against American Science**\
+`A decade of health disinformation has sown wide confusion, hurt major institutions and encouraged the spread of deadly illnesses.`\
+https://nytimes.com/2020/04/13/science/putin-russia-disinformation-health-coronavirus.html?searchResultPosition=8
 
-**Vietnam's Total Coronavirus Cases Climb to 265, No Deaths**\
-`Vietnam's health ministry reported five more confirmed coronavirus cases on Monday, taking the country's tally to 265, with no deaths.`\
-https://nytimes.com/reuters/2020/04/13/business/13reuters-health-coronavirus-vietnam.html?searchResultPosition=9
+**Why You Should Start a Coronavirus Diary**\
+`It’ll help you organize your thoughts during these difficult times, and may help educate future generations.`\
+https://nytimes.com/2020/04/13/smarter-living/why-you-should-start-a-coronavirus-diary.html?searchResultPosition=9
 
-**On Politics: How Trump Fell Short on the Coronavirus**\
-`An investigation found many early warnings of the virus’s threat: This is your morning tip sheet.`\
-https://nytimes.com/2020/04/13/us/politics/trump-coronavirus-response.html?searchResultPosition=10
+**Trading Gains for Big U.S. Banks May Not Last Past First Quarter**\
+`Big U.S. banks made a pretty penny in trading during the first quarter as the coronavirus pandemic caused wild market swings, analysts said, but those gains will likely be overshadowed by declines in other businesses and a bleak outlook for the rest of the year.`\
+https://nytimes.com/reuters/2020/04/13/business/13reuters-usa-banks-results-trading.html?searchResultPosition=10
 
