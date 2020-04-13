@@ -1,12 +1,12 @@
-**Live Analysis: Wisconsin Primary Election Results**\
-`See full results and maps from the Wisconsin primary.`\
-https://nytimes.com/interactive/2020/04/13/us/elections/live-analysis-wisconsin.html?searchResultPosition=8
+**Mother-Of-Four Diving Into an Olympic Comeback**\
+`If you are Laura Wilkinson, a 42-year-old mother making your return to competitive diving after under-going spinal fusion surgery, a year delay in the 2020 Tokyo Olympics is not a bad thing -- it's a gift.`\
+https://nytimes.com/reuters/2020/04/13/sports/olympics/13reuters-olympics-diving-usa-wilkinson.html?searchResultPosition=8
 
-**Bogota Metro Work Start Could Be Delayed Six Months Over Coronavirus Restrictions**\
-`The start of work on Colombian capital Bogota's first metro line could be delayed by at least six months because companies involved in its construction are affected by quarantine orders to control the spread of the coronavirus, officials said Monday. `\
-https://nytimes.com/reuters/2020/04/13/world/americas/13reuters-health-coronavirus-colombia-metro.html?searchResultPosition=9
+**Katharine, the Great White Shark Who Ghosted Her Trackers, Resurfaces**\
+`The last that researchers heard from Katharine via her transmitter was nearly a year ago, leaving her fate a mystery. Recently, though, there came some weak pings.`\
+https://nytimes.com/2020/04/13/science/shark-katharine-found-twitter.html?searchResultPosition=9
 
-**Democratic Governors Form Compacts to Coordinate Reopenings**\
-`Democratic governors in the Northeast and along the West Coast on Monday announced separate state compacts to coordinate one of their biggest challenges in the weeks to come: How to begin reopening society amid the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/13/us/ap-us-virus-outbreak-state-compacts.html?searchResultPosition=10
+**Kiev Authorities Seal Off Orthodox Monastery That Became Coronavirus Hotspot**\
+`Authorities in Kiev sealed off a 1,000-year-old Orthodox Christian monastery on Monday after reporting that two of its members had died and more than 90 had contracted the coronavirus, accounting for around a fifth of the Ukrainian capital's cases.`\
+https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-health-coronavirus-ukraine-church.html?searchResultPosition=10
 
