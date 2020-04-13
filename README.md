@@ -1,12 +1,12 @@
-**‘We Need You in the White House’: Sanders Endorses Biden**\
-`Senator Bernie Sanders of Vermont endorsed former Vice President Joe Biden’s presidential campaign in a step toward uniting the Democratic party against President Trump.`\
-https://nytimes.com/video/us/politics/100000007085637/sanders-endorses-biden.html?searchResultPosition=8
+**The List of U.S. Treasury Questions for Airlines Seeking Bailout Cash**\
+`U.S. Treasury officials have asked airlines seeking money from a $25 billion fund for payroll support to provide detailed information on their capital structure, liquidity and collateral, people briefed on the matter said.`\
+https://nytimes.com/reuters/2020/04/13/business/13reuters-health-coronavirus-usa-airlines-factbox.html?searchResultPosition=8
 
-**Brazil Likely Has 12 Times More Coronavirus Cases Than Official Count: Study**\
-`Brazil likely has 12 times more cases of new coronavirus than are being officially reported by the government, with too little testing and long waits to confirm the results, according to a study released on Monday.`\
-https://nytimes.com/reuters/2020/04/13/world/americas/13reuters-health-coronavirus-brazil-cases.html?searchResultPosition=9
+**Your Tuesday Briefing**\
+`Lifting lockdowns, #MeToo in China, SoftBank: Here’s what you need to know.`\
+https://nytimes.com/2020/04/13/briefing/coronavirus-lockdowns-metoo-china.html?searchResultPosition=9
 
-**Richard Brodsky, Legislator Known as Albany’s Conscience, Dies at 73**\
-`A 14-term Assemblyman from Westchester County, he was instrumental in empowering New York State to monitor its 700 quasi-public authorities.`\
-https://nytimes.com/2020/04/13/nyregion/richard-brodsky-dead.html?searchResultPosition=10
+**How Native Americans Are Fighting a Food Crisis**\
+`As the coronavirus limits access to food, many are turning to customs, like seed saving and canning, that helped their forebears survive hard times.`\
+https://nytimes.com/2020/04/13/dining/native-americans-coronavirus.html?searchResultPosition=10
 
