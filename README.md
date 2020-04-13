@@ -2,7 +2,7 @@
 `When COVID-19 came to Nepal, attention turned to an unlikely group of victims: hundreds of monkeys, cows and pigeons.`\
 https://nytimes.com/aponline/2020/04/13/world/asia/ap-as-virus-outbreak-one-good-thing-nepal-animals.html?searchResultPosition=2
 
-**Oil Prices Rise After Deal on Cutting Production: Live Markets Updates**\
+**Oil Prices Rise After Deal on Cutting Production: Live Updates**\
 `The latest on stock market and business news during the coronavirus outbreak.`\
 https://nytimes.com/2020/04/13/business/stock-market-today-coronavirus.html?searchResultPosition=3
 
