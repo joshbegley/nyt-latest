@@ -1,12 +1,12 @@
-**McDonald's Faces New Class Action Over 'Pervasive Sexual Harassment'**\
-`McDonald's Corp has been hit with a class action lawsuit accusing it of subjecting female employees in its corporate-owned fast-food restaurants in Florida to widespread sexual harassment.`\
-https://nytimes.com/reuters/2020/04/13/business/13reuters-mcdonald-s-corp-lawsuit.html?searchResultPosition=8
+**Mexico's Economy to Shrink 7.6% This Year: UBS**\
+`Mexico's economy will shrink 7.6% in 2020, more than double a previous forecast, and its "policy response to the coronavirus is among the weakest anywhere in the world," according to UBS.`\
+https://nytimes.com/reuters/2020/04/13/world/americas/13reuters-mexico-economy.html?searchResultPosition=8
 
-**Lila Fenwick, Who Broke a Barrier at Harvard Law, Dies at 87**\
-`She was the first black female graduate of the school and went on to a career at the United Nations; she also was a major supporter of sickle cell research. She was a victim of the coronavirus.`\
-https://nytimes.com/2020/04/13/obituaries/lila-fenwick-dead-coronavirus.html?searchResultPosition=9
+**Turkey to Impose Fresh Lockdown Next Weekend to Halt COVID-19 Spread: Erdogan**\
+`President Tayyip Erdogan said on Monday that Turkey would impose a fresh lockdown next weekend as part of measures to halt the spread of COVID-19, having locked down 31 provinces last weekend.`\
+https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-health-coronavirus-turkey-lockdown.html?searchResultPosition=9
 
-**Exclusive: Brazil to Launch $1.9 Billion Credit Scheme for Micro Firms-Sources**\
-`Brazil will launch a 10 billion-real ($1.9 billion) program to support micro businesses with good credit history but whose finances have been hit hard by the economic impact of the coronavirus pandemic, two Economy Ministry sources told Reuters.`\
-https://nytimes.com/reuters/2020/04/13/world/americas/13reuters-brazil-economy-credit-exclusive.html?searchResultPosition=10
+**Sudan Imposes Lockdown on Capital After 10 New Coronavirus Cases**\
+`Sudan will impose a lockdown on the capital Khartoum, the country's most populous city, for three weeks after 10 more cases of the new coronavirus were discovered on Monday, its information minister said.`\
+https://nytimes.com/reuters/2020/04/13/world/africa/13reuters-health-coronavirus-sudan.html?searchResultPosition=10
 
