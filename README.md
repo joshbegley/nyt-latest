@@ -1,12 +1,12 @@
-**Pixar's Summer Release 'Soul' Postponed to November**\
-`Pixar's “Soul,” the last major release planned for June, has been postponed to November because of the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/04/13/us/ap-us-film-pixar-delay.html?searchResultPosition=8
+**U.S. Government Holding Firm on Airline Aid Plan, Could End Up With 3% of American Airlines**\
+`The U.S. Treasury Department is holding firm on the terms of a $25 billion offer for government aid to airlines to help them meet payroll during the coronavirus downturn, officials said on Monday, and the plan could give the government more than 3% of American Airlines Group Inc.`\
+https://nytimes.com/reuters/2020/04/13/business/13reuters-health-coronavirus-usa-airlines.html?searchResultPosition=8
 
-**‘Which Death is Going to Be Worse?’ Coronavirus Invades a Conflict Zone**\
-`Libyans have been fleeing bombs and shells throughout the country’s six-year civil war. But with the arrival of the coronavirus, virtually nowhere is safe to hide.`\
-https://nytimes.com/video/world/africa/100000007058303/coronavirus-libya-war.html?searchResultPosition=9
+**Our Cruel Treatment of Animals Led to the Coronavirus**\
+`The conditions that lead to the emergence of new infectious diseases are the same ones that inflict horrific harms on animals.`\
+https://nytimes.com/2020/04/13/opinion/animal-cruelty-coronavirus.html?searchResultPosition=9
 
-**Forces Aligned With Tripoli Government Advance Along West Libyan Coast**\
-`Forces aligned with Libya's internationally recognized government seized two towns west of the capital Tripoli on Monday after heavy clashes and drone strikes, military sources and residents said.`\
-https://nytimes.com/reuters/2020/04/13/world/africa/13reuters-libya-security.html?searchResultPosition=10
+**Spain’s Lethal Secret: We Didn’t Have “the Best Health Care in the World”**\
+`It took Prime Minister Pedro Sánchez too long to bring coherence to the pandemic’s response. Overconfidence in our health care capacity took care of the rest.`\
+https://nytimes.com/2020/04/13/opinion/spain-coronavirus-hospitals.html?searchResultPosition=10
 
