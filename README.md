@@ -1,12 +1,12 @@
-**Congo Records Third New Ebola Case From Same Infection Chain: WHO**\
-`The Democratic Republic of Congo recorded a third new Ebola case on Monday, a seven-year-old girl who had started showing symptoms after visiting the same health center as the two previous cases, the World Health Organization said on Monday.`\
-https://nytimes.com/reuters/2020/04/13/world/africa/13reuters-health-ebola-congo.html?searchResultPosition=8
+**Cuomo Announces East Coast Plan to Devise Reopening Strategy**\
+`Gov. Andrew M. Cuomo of New York said that some East Coast states would form a working group to develop a plan for reopening the region.`\
+https://nytimes.com/video/us/politics/100000007085400/cuomo-governors-coronavirus.html?searchResultPosition=8
 
-**Draft Date Unknown, but NBA Presses on With Evaluations**\
-`There are many unknowns about the NBA draft, though some elements are proceeding as usual and one deadline is looming this week.`\
-https://nytimes.com/aponline/2020/04/13/sports/basketball/ap-bkn-nba-draft-process.html?searchResultPosition=9
+**‘I Just Want to Eat Her Up!’**\
+`Why do we compare babies and fetuses to food?`\
+https://nytimes.com/2020/04/13/parenting/baby/compare-babies-food.html?searchResultPosition=9
 
-**Ohio's High Court to Hear Arguments About Gunman's Records**\
-`The Ohio Supreme Court agreed to hear oral arguments in a case filed by news media groups seeking school records about the man who gunned down nine people in Dayton last August before being killed by police.`\
-https://nytimes.com/aponline/2020/04/13/us/ap-us-ohio-shooting-gunmans-records.html?searchResultPosition=10
+**Governors of California, Oregon and Washington Make Deal to Reopen Economies**\
+`The governors of three U.S. West Coast states, California, Oregon and Washington, said on Monday they had reached an agreement to work together to reopen their economies and lift health restrictions as the coronavirus pandemic eases.`\
+https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-west-coast.html?searchResultPosition=10
 
