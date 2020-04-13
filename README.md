@@ -1,12 +1,12 @@
-**How to Be a Supportive Partner During Pregnancy (and Beyond)**\
-`The research is resoundingly clear: A strong mate makes a difference. Having a supportive partner is good for everyone involved, including the baby.`\
-https://nytimes.com/article/pregnancy-birth-partner.html?searchResultPosition=8
+**Pregnancy Pains Got You Down? Read This.**\
+`Most cases of pain during pregnancy aren’t an emergency and can be managed, though there are some warning signs to watch out for.`\
+https://nytimes.com/article/pregnancy-cramps-pains-guide.html?searchResultPosition=8
 
-**Illinois Primary Voters Notified of Possible Virus Exposure**\
-`Hundreds of Chicago voters who went to the polls in last month's primary were being notified of possible exposure to COVID-19 including from a site where a poll worker later developed symptoms and died, election officials said Monday. `\
-https://nytimes.com/aponline/2020/04/13/us/ap-us-virus-outbreak-illinois-primary.html?searchResultPosition=9
+**Israel Political Deadlock Persists With Unity Deal Still Out of Reach**\
+`Israeli Prime Minister Benjamin Netanyahu and his main rival Benny Gantz remained in political deadlock on Tuesday with a deal to form a national emergency government to battle the coronavirus crisis still out of reach.`\
+https://nytimes.com/reuters/2020/04/13/world/middleeast/13reuters-israel-politics.html?searchResultPosition=9
 
-**Can’t Sleep While Pregnant?**\
-`Certain hormonal changes, along with other pregnancy-related discomforts can sink a good night’s sleep. Here’s how to snooze more soundly.`\
-https://nytimes.com/article/pregnant-sleep-issues-guide.html?searchResultPosition=10
+**Government Loans Start Flowing to Small Businesses**\
+`The flow of money to small businesses under the government's $349 billion coronavirus relief plan is picking up momentum although many company owners are still waiting and wondering.`\
+https://nytimes.com/aponline/2020/04/13/business/bc-us-virus-outbreak-small-business-relief.html?searchResultPosition=10
 
