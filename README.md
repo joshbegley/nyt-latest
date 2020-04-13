@@ -1,12 +1,12 @@
-**Virus Exposes US Inequality. Will It Spur Lasting Remedies?**\
-`The sick who still go to work because they have no paid leave.`\
-https://nytimes.com/aponline/2020/04/13/business/bc-us-virus-outbreak-economic-inequality-exposed.html?searchResultPosition=8
+**Italy's Daily Coronavirus Cases Decline, Deaths Rise**\
+`Deaths from the COVID-19 epidemic in Italy rose by 566 on Monday, up from 431 the day before, but the number of new cases slowed to 3,153 from a previous 4,092.`\
+https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-health-coronavirus-italy-tally.html?searchResultPosition=8
 
-**Americans Start to See Relief Payments; Some Face a Wait**\
-`Americans are beginning to see the first economic impact payments hit their bank accounts. `\
-https://nytimes.com/aponline/2020/04/13/business/bc-virus-outbreak-economic-impact-checks.html?searchResultPosition=9
+**Athene Pays $45 Million Fine in First Settlement of New York Pension Transfer Probe**\
+`Athene Holding Ltd agreed on Monday to pay a $45 million civil fine to settle charges it conducted insurance business in New York without a license, the first settlement in a probe into an industry where life insurers take over corporate pension plans.`\
+https://nytimes.com/reuters/2020/04/13/business/13reuters-athene-hldg-settlement.html?searchResultPosition=9
 
-**What Food Expiration Dates You Should Actually Follow**\
-`The first thing you should know? The dates, as we know them, have nothing to do with safety. J. Kenji López-Alt explains.`\
-https://nytimes.com/2020/04/13/dining/expiration-dates-coronavirus.html?searchResultPosition=10
+**A Salad for When You’re Out of Lettuce**\
+`This starchy grain bowl makes use of those sturdy vegetables in your fridge.`\
+https://nytimes.com/2020/04/13/dining/grain-salad-coronavirus.html?searchResultPosition=10
 
