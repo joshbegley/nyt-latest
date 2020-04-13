@@ -1,12 +1,12 @@
-**IMF to Provide Debt Relief for 25 Countries to Help Them Address Pandemic**\
-`The International Monetary Fund on Monday said it would provide immediate debt service relief to 25 member countries under its Catastrophe Containment and Relief Trust to allow them to focus their scarce resources on fighting the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/13/world/13reuters-imf-world-bank-debt.html?searchResultPosition=8
+**Mom of T-Wolves Star Karl-Anthony Towns Dies From COVID-19**\
+`Jacqueline Cruz-Towns, the mother of Minnesota Timberwolves center Karl-Anthony Towns, died Monday due to complications from COVID-19 after more than a month of fighting the virus.`\
+https://nytimes.com/aponline/2020/04/13/sports/basketball/ap-bkn-obit-towns-mother.html?searchResultPosition=8
 
-**US Clears First Saliva Test to Help Diagnose New Virus**\
-`Rutgers University researchers have received U.S. government clearance for the first saliva test to help diagnose COVID-19, a new approach that could help expand testing options and reduce risks of infection for health care workers.`\
-https://nytimes.com/aponline/2020/04/13/health/ap-us-med-virus-outbreak-saliva-test.html?searchResultPosition=9
+**AP Source: Panthers Make McCaffrey Highest-Paid Running Back**\
+`The Carolina Panthers have agreed to a four-year, $64 million contract extension with All-Pro Christian McCaffrey, a person familiar with the contract negotiation told The Associated Press, making McCaffrey the highest-paid running back in the NFL.`\
+https://nytimes.com/aponline/2020/04/13/sports/football/ap-fbn-panthers-mccaffrey.html?searchResultPosition=9
 
-**In About-Face, Musicians’ Union Agrees to Pandemic Fund-Raiser**\
-`Broadway Cares said it would reschedule a canceled event featuring a concert of Disney songs after the American Federation of Musicians dropped a demand for additional compensation.`\
-https://nytimes.com/2020/04/13/theater/musicians-union-disney-fund-raiser-broadway-covid.html?searchResultPosition=10
+**Florida Man Dead After Shootout With Deputies**\
+`A Florida man is dead following a shootout with deputies, authorities said.`\
+https://nytimes.com/aponline/2020/04/13/us/ap-us-deputy-shooting-florida.html?searchResultPosition=10
 
