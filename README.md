@@ -1,36 +1,36 @@
+**'Rice ATM' Feeds Vietnam's Poor Amid Virus Lockdown**\
+`A Vietnamese entrepreneur in Ho Chi Minh City has invented a 24/7 automatic dispensing machine providing free rice for people out of work following an ongoing nationwide lockdown to curb the spread of the novel coronavirus.`\
+https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-vietnam-riceatm.html?searchResultPosition=2
+
 **One in Five Kazakhs Seek State Aid Over Coronavirus Emergency**\
 `Some 3.7 million Kazakhs, or 20% of the oil-exporting Central Asian nation's population, have applied for financial aid offered by the government because of the novel coronavirus outbreak, the cabinet said on Monday.`\
-https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-kazakhstan-aid.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-kazakhstan-aid.html?searchResultPosition=3
 
 **Baseball, Soccer Seasons Get Underway in Taiwan**\
 `The baseball and soccer seasons got underway behind closed doors in Taiwan at the weekend, providing rare live action for fans at home at a time when the COVID-19 pandemic has shut down most professional sport around the globe. `\
-https://nytimes.com/reuters/2020/04/13/sports/baseball/13reuters-health-coronavirus-taiwan.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/13/sports/baseball/13reuters-health-coronavirus-taiwan.html?searchResultPosition=4
 
 **Virus-Era Decisions: Way Too Many, and Each With High Stakes**\
 `Should you wash your hands?`\
-https://nytimes.com/aponline/2020/04/13/us/ap-virus-outbreak-too-many-decisions.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/04/13/us/ap-virus-outbreak-too-many-decisions.html?searchResultPosition=5
 
 **The East Coast, Always in the Spotlight, Owes a Debt to the West**\
 `California, Oregon and Washington have shipped 1,000 ventilators to New York. Should Western states be getting more attention for their relative success in battling Covid-19?`\
-https://nytimes.com/2020/04/13/us/politics/coronavirus-response-california-washington-oregon.html?searchResultPosition=5
+https://nytimes.com/2020/04/13/us/politics/coronavirus-response-california-washington-oregon.html?searchResultPosition=6
 
 **N.F.L. Bows to Marijuana’s New Status**\
 `The league’s new labor agreement eased rules about players’ use and caught up with many sports that had already liberalized their policies.`\
-https://nytimes.com/2020/04/13/sports/football/nfl-marijuana-policy.html?searchResultPosition=6
+https://nytimes.com/2020/04/13/sports/football/nfl-marijuana-policy.html?searchResultPosition=7
 
 **Singapore Readies 'Floating Hotels' for Workers as Coronavirus Spreads**\
 `Singapore is preparing to house hundreds of foreign workers in accommodation vessels typically used for offshore and marine industry staff as it races to find alternatives to dormitories where the novel coronavirus has been spreading rapidly.`\
-https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-singapore.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-singapore.html?searchResultPosition=8
 
 **The Latest: Pakistan PM: Rich Countries Need to Relieve Debt**\
 `The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
-https://nytimes.com/aponline/2020/04/13/business/ap-virus-outbreak-the-latest.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/04/13/business/ap-virus-outbreak-the-latest.html?searchResultPosition=9
 
 **Exclusive: South Korea to Ship 600,000 Coronavirus Testing Kits to U.S. on Tuesday-Source**\
 `South Korea plans to send 600,000 coronavirus testing kits to the United States on Tuesday in the first such shipment following a request from U.S. President Donald Trump, a Seoul official told Reuters on Monday. `\
-https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-southkorea-usa-exclusive.html?searchResultPosition=9
-
-**Oil Gains on OPEC+ Deal, Stocks Stymied by Pandemic Worries**\
-`Global equities weakened on Monday as investors braced for more indications of economic damage from the coronavirus pandemic while oil prices rose in choppy trade following a landmark deal by OPEC and its allies to cut output.`\
-https://nytimes.com/reuters/2020/04/13/business/13reuters-global-markets.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-southkorea-usa-exclusive.html?searchResultPosition=10
 
