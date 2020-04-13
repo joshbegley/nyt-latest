@@ -1,12 +1,12 @@
+**Biden and Bernie, Bros**\
+`As Joe Biden and Bernie Sanders exchanged warm smiles today, Mr. Biden was also shifting his tone.`\
+https://nytimes.com/2020/04/13/us/politics/on-politics-biden-sanders.html?searchResultPosition=8
+
+**Austria Reopening Thousands of Shops in First Loosening of Lockdown**\
+`Thousands of shops across Austria will reopen on Tuesday as it becomes one of the first countries in Europe to loosen its coronavirus lockdown, but the government is still telling the nation it is "not out of the woods" yet.`\
+https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-health-coronavirus-austria.html?searchResultPosition=9
+
 **Watch This: ‘What We Do in the Shadows’**\
 `The FX vampire comedy returns this week, as does a critically acclaimed Israeli thriller.`\
-https://nytimes.com/2020/04/13/arts/television/fauda-what-we-do-in-the-shadows.html?searchResultPosition=8
-
-**The Times Took 19 Days to Report an Accusation Against Biden. Here’s Why.**\
-`Dean Baquet, the executive editor of The New York Times, said the article was published when there was enough reporting “to present to readers for them to make their own judgment.”`\
-https://nytimes.com/2020/04/13/business/media/joe-biden-tara-reade-new-york-times.html?searchResultPosition=9
-
-**News Corp Sees Hit to Ad Revenue From Coronavirus Pandemic**\
-`News Corp said on Monday that its newspaper advertising revenue would take a hit from economic disruptions caused by the spread of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/13/business/13reuters-health-coronavirus-news-corp.html?searchResultPosition=10
+https://nytimes.com/2020/04/13/arts/television/fauda-what-we-do-in-the-shadows.html?searchResultPosition=10
 
