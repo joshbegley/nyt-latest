@@ -1,12 +1,12 @@
-**World Bank Sees 'Huge Willingness' to Suspend Debt Payments for Poorest Countries**\
-`The World Bank is seeing "a huge willingness" on the part of official bilateral creditors to suspend debt payments by the world's poorest countries so they can focus on fighting the coronavirus pandemic, a top Bank official said on Monday.`\
-https://nytimes.com/reuters/2020/04/13/us/13reuters-health-coronavirus-debt-worldbank.html?searchResultPosition=8
+**Masks, Thermometers for Spaniards Gradually Going Back to Work**\
+`A factory in northern Spain that makes gearboxes for wind turbines welcomed back workers on Monday after a two-week lockdown across the country to halt the spread of coronavirus -- but only after they'd shown their temperatures were normal. `\
+https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-health-coronavirus-spain-business.html?searchResultPosition=8
 
-**Israel's Coalition Talks Falter Ahead of Midnight Deadline**\
-`Israel was bracing for more political turmoil Monday as talks between the country's rival political leaders faltered ahead of a midnight deadline to form a coalition government.`\
-https://nytimes.com/aponline/2020/04/13/world/middleeast/ap-ml-israel-politics.html?searchResultPosition=9
+**Fire Raging Near Ukraine's Chernobyl Poses Radiation Risk, Say Activists**\
+`A huge forest fire in Ukraine that has been raging for more than a week is now just one kilometre from the defunct Chernobyl nuclear power plant and poses a radiation risk, Greenpeace Russia warned on Monday, citing satellite images.`\
+https://nytimes.com/reuters/2020/04/13/world/europe/13reuters-ukraine-chernobyl-fire.html?searchResultPosition=9
 
-**Tenderness With the Dead**\
-`A reader says this will be the true measure of how we respond to the pandemic. Also: A son with autism finds his place; airlines need to collect passenger information.`\
-https://nytimes.com/2020/04/13/opinion/letters/coronavirus-deaths.html?searchResultPosition=10
+**'Mrs. America' ERA Miniseries Gives Women of Color Their Due**\
+`“Mrs. America,” which dramatizes the Equal Rights Amendment fight that pitted a surprising and determined opponent against a deep bench of supporters, is a marvel in many ways. `\
+https://nytimes.com/aponline/2020/04/13/us/ap-us-tv-mrs-america.html?searchResultPosition=10
 
