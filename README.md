@@ -1,36 +1,36 @@
+**Child Sex Abuse in Pakistan's Religious Schools Is Endemic**\
+`Muhimman proudly writes his name slowly, carefully, one letter at a time, grinning broadly as he finishes. He’s just 11 years old and was a good student who had dreams of being a doctor. `\
+https://nytimes.com/aponline/2020/04/13/world/asia/ap-as-pakistan-madrassa-abuse.html?searchResultPosition=2
+
+**China in the Driver's Seat Amid Calls for Africa Debt Relief**\
+`Support is growing for debt relief to help the world's poorest, indebted nations - most of them in Africa - confront the economic havoc wreaked by COVID-19. But there is one big question mark: China.`\
+https://nytimes.com/reuters/2020/04/13/world/africa/13reuters-health-coronavirus-africa-china-analysis.html?searchResultPosition=3
+
+**Thailand Reports 28 New Coronavirus Cases, Two New Deaths**\
+`Thailand reported 28 new coronavirus cases and 2 new deaths on Monday.`\
+https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-thailand-cases.html?searchResultPosition=4
+
+**Amazon Stops Accepting New Online Grocery Customers Amid Surging Demand**\
+`Amazon will begin to put new grocery delivery customers on a wait list and curtail shopping hours at some Whole Foods stores to prioritize orders from existing customers buying food online during the coronavirus outbreak, the company said on Sunday.`\
+https://nytimes.com/reuters/2020/04/13/technology/13reuters-health-coronavirus-amazon-com-grocery.html?searchResultPosition=5
+
 **Word + Quiz: salacious**\
 `This word has appeared in 85 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/04/13/learning/word-quiz-salacious.html?searchResultPosition=2
+https://nytimes.com/2020/04/13/learning/word-quiz-salacious.html?searchResultPosition=6
 
 **Russian Border Becomes China's Frontline in Fight Against Second Virus Wave**\
 `China's northeastern border with Russia has become a frontline in the fight against a resurgence of the coronavirus epidemic as  new daily cases rose to the highest in nearly six weeks - with more than 90% involving people coming from abroad.`\
-https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-china.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-china.html?searchResultPosition=7
 
 **Japan's Narita Airport Offers Cardboard Beds for Travellers Awaiting Coronavirus All-Clear**\
 `Japan's Narita Airport has prepared an impromptu hotel of cardboard beds and quilts in its baggage-claim area for passengers from overseas who might have to stay there while awaiting the results of tests for the novel coronavirus.`\
-https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-japan-narita.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-japan-narita.html?searchResultPosition=8
 
 **Oil Climbs More Than 4% as OPEC+ Agree Record Output Cut**\
 `Oil prices jumped more than $1 a barrel on Monday after major producers finally agreed their biggest-ever output cut, but gains were capped amid concern that it won't be enough to head off oversupply with the coronavirus pandemic hammering demand.`\
-https://nytimes.com/reuters/2020/04/13/business/13reuters-global-oil.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/13/business/13reuters-global-oil.html?searchResultPosition=9
 
 **Countries Facing Pressure to Loosen Virus Restrictions**\
 `South Korean officials warned Monday that hard-earned progress fighting the coronavirus pandemic could be upset by new infections at bars and leisure spots, highlighting global tensions between governments desperate to maintain social distancing and citizens eager to resume their lives as economic pressure mounts and infections slow in some places.`\
-https://nytimes.com/aponline/2020/04/13/business/ap-virus-outbreak.html?searchResultPosition=6
-
-**Japan Petroleum Industry Head Says OPEC+ Deal Falls Short of Expectations**\
-`The agreement by the Organization of the Petroleum Exporting Countries (OPEC) and its allies to cut output failed to reach the reduction levels expected by the market, leading to oil prices remaining stagnant, the head of the Japanese petroleum industry said.`\
-https://nytimes.com/reuters/2020/04/13/business/13reuters-global-oil-opec-japan.html?searchResultPosition=7
-
-**UAE Central Bank Urges Commercial Lenders to Use Stimulus Scheme**\
-`The United Arab Emirates (UAE) central bank has urged commercial lenders to use the $70 billion-worth of capital and liquidity measures launched by the regulator to support the economy during the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/13/world/middleeast/13reuters-health-coronavirus-emirates-cenbank.html?searchResultPosition=8
-
-**Vietnam Orders Workers at Samsung Display Unit to Be Quarantined After COVID-19 Case**\
-`Authorities in northern Vietnam have ordered people working at a unit of Samsung Display in the country to be quarantined after a worker there tested positive for the new coronavirus.`\
-https://nytimes.com/reuters/2020/04/13/technology/13reuters-health-coronavirus-vietnam-samsung.html?searchResultPosition=9
-
-**Backup Coronavirus Hospital in Memphis Worries Residents**\
-`Faced with the threat of overburdened hospitals, states across the country are converting convention centers, sports facilities and performance spaces into backup treatment sites for coronavirus patients. Tennessee is no exception. `\
-https://nytimes.com/aponline/2020/04/13/us/ap-us-virus-outbreak-backup-hospitals.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/13/business/ap-virus-outbreak.html?searchResultPosition=10
 
