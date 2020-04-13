@@ -1,12 +1,12 @@
-**Trump Campaign Sues Wisconsin TV Station Over Critical Ad**\
-`President Donald Trump's reelection campaign is suing a Wisconsin TV station for running an anti-Trump commercial that pieces together audio clips of the president talking about the coronavirus outbreak in a way they argue is misleading and false.`\
-https://nytimes.com/aponline/2020/04/13/us/politics/ap-us-election-2020-trump-ads.html?searchResultPosition=8
+**Workers Sue McDonald's Over Harassment at Florida Stores**\
+`Two McDonald’s workers in Florida are filing a $500 million class action lawsuit against the company, claiming a “systemic sexual harassment problem” at company-owned stores.`\
+https://nytimes.com/aponline/2020/04/13/business/ap-us-mcdonalds-harassment-suit.html?searchResultPosition=8
 
-**British PM's Praise for Health Service Could Boost Its Cause**\
-`His skin pale and his eyes hooded from a week in the hospital with the coronavirus, British Prime Minister Boris Johnson looked into the camera and paid tribute to the two nurses who never left his bedside for 48 hours, a time when his fight to survive "could have gone either way.″`\
-https://nytimes.com/aponline/2020/04/13/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=9
+**States Largely Have Authority Over When to Shut Down, Reopen**\
+`President Donald Trump has shown no reluctance to use his White House perch to commend and criticize governors over steps they've taken to try to slow the spread of the coronavirus.`\
+https://nytimes.com/aponline/2020/04/13/us/politics/bc-us-virus-outbreak-shutdown-qa.html?searchResultPosition=9
 
-**Quick-Hit Streaming Service Quibi Reports 1.7 Million Downloads in First Week**\
-`About 1.7 million people downloaded the new entertainment streaming app Quibi during its first week on the market, Chief Executive Meg Whitman told CNBC television on Monday.`\
-https://nytimes.com/reuters/2020/04/13/arts/13reuters-television-quibi.html?searchResultPosition=10
+**A Letter From the Editors of the Book Review**\
+`We hope that you find time and space in this difficult moment to turn to books.`\
+https://nytimes.com/2020/04/13/books/review/a-letter-from-the-editors-of-the-book-review.html?searchResultPosition=10
 
