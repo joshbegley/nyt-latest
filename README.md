@@ -1,12 +1,12 @@
-**BAM Executives Take Steep Pay Cuts After Canceling Programs Through June**\
-`The president of the art center said that though other reductions may be necessary to offset millions in lost ticket sales, “we wanted to start at the top.”`\
-https://nytimes.com/2020/04/13/arts/bam-cancellation-salary-cuts.html?searchResultPosition=8
+**Watch This: ‘What We Do in the Shadows’**\
+`The FX vampire comedy returns this week, as does a critically acclaimed Israeli thriller.`\
+https://nytimes.com/2020/04/13/arts/television/fauda-what-we-do-in-the-shadows.html?searchResultPosition=8
 
-**Knocked Off Track by Coronavirus, Census Announces Delay in 2020 Count**\
-`The Census Bureau said it would extend the deadlines for collecting census data and would ask Congress for a delay in providing final counts used for congressional redistricting.`\
-https://nytimes.com/2020/04/13/us/census-coronavirus-delay.html?searchResultPosition=9
+**The Times Took 19 Days to Report an Accusation Against Biden. Here’s Why.**\
+`Dean Baquet, the executive editor of The New York Times, said the article was published when there was enough reporting “to present to readers for them to make their own judgment.”`\
+https://nytimes.com/2020/04/13/business/media/joe-biden-tara-reade-new-york-times.html?searchResultPosition=9
 
-**Supreme Court Asked to Suspend Wealth Test for Green Cards in Light of Virus**\
-`New limits on the “public charge” rule will deter immigrants from seeking care during the pandemic, lawyers for New York and other states said.`\
-https://nytimes.com/2020/04/13/us/coronavirus-wealth-test-supreme-court.html?searchResultPosition=10
+**News Corp Sees Hit to Ad Revenue From Coronavirus Pandemic**\
+`News Corp said on Monday that its newspaper advertising revenue would take a hit from economic disruptions caused by the spread of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/13/business/13reuters-health-coronavirus-news-corp.html?searchResultPosition=10
 
