@@ -1,4 +1,4 @@
-**The Seductive Appeal of ‘Snitch on Thy Neighbor’**\
-`I can’t control who gets sick or when we might return to something that looks like normal. But judging a random guy on the sidewalk? That I can do.`\
-https://nytimes.com/2020/04/14/opinion/coronavirus-shaming.html?searchResultPosition=10
+**'Bigger Than Winning the War': WWII Vet, Aged 99, Survives Coronavirus in Brazil**\
+`World War Two veteran Ermando Piveta, aged 99, became the oldest Brazilian to recover from the coronavirus on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/world/americas/14reuters-health-coronavirus-brazil-veteran.html?searchResultPosition=10
 
