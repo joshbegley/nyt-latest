@@ -1,8 +1,8 @@
-**Tensions Rise in U.S. Over China’s ‘Donation Diplomacy’**\
-`New regulations in China are delaying its shipments of medical supplies around the world. And some American officials worry accepting donated gear helps China’s propaganda efforts.`\
-https://nytimes.com/2020/04/14/us/politics/coronavirus-china-trump-donation.html?searchResultPosition=9
+**Our Best Recipes and Tips for Quarantine Cooking**\
+`Here is a regularly updated list of our latest articles — and some older resources — to help you find what you need.`\
+https://nytimes.com/2020/04/14/dining/recipes-cooking-tips-coronavirus.html?searchResultPosition=9
 
-**Starved for Sports? Here Are 5 Options That Aren’t N.B.A. Classic**\
-`On the menu: trenchant documentaries from ESPN and HBO, dramas about Norwegian soccer and Korean baseball, and an addictive exploration of pro wrestling.`\
-https://nytimes.com/2020/04/14/arts/television/sports-TV.html?searchResultPosition=10
+**Trump to Announce Ventilator Loan Plan to Fight Virus**\
+`U.S. President Donald Trump is to announce a loan program on Tuesday with the aim of making as many as 60,000 ventilators available to help coronavirus patients, a senior administration official said.`\
+https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-trump-ventilators.html?searchResultPosition=10
 
