@@ -1,4 +1,4 @@
-**U.S. State Department Reports First Coronavirus Fatality Among Washington Staff**\
-`The U.S. State Department on Tuesday reported its first coronavirus fatality among the staff at its headquarters in Washington, bringing the total death toll in its global workforce due to the outbreak to five.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-usa-statedepartment.html?searchResultPosition=10
+**Strength of U.S. Consumer Staples Stocks Shows Cracks as Market Recovers**\
+`A broad rebound in U.S. stocks is leaving behind shares of some supermarkets, household product makers and other staples companies that provided a haven in last month's coronavirus-fueled selloff.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-staples-stocks.html?searchResultPosition=10
 
