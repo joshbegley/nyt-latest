@@ -1,4 +1,4 @@
-**Franklin Graham Says He Is Being Harassed Over Central Park Hospital**\
-`The evangelical leader’s relief group has been criticized for requiring workers at its field hospital to say they oppose same-sex marriage.`\
-https://nytimes.com/2020/04/14/nyregion/reverend-franklin-graham-harassment.html?searchResultPosition=10
+**The Seductive Appeal of ‘Snitch on Thy Neighbor’**\
+`I can’t control who gets sick or when we might return to something that looks like normal. But judging a random guy on the sidewalk? That I can do.`\
+https://nytimes.com/2020/04/14/opinion/coronavirus-shaming.html?searchResultPosition=10
 
