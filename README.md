@@ -1,4 +1,4 @@
-**University of Cincinnati Drops Men's Soccer in Virus Fallout**\
-`The University of Cincinnati eliminated its men's soccer program Tuesday as other colleges weighed cutbacks because of budget problems resulting from the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/14/sports/ap-virus-outbreak-sports-eliminated-1st-ld-writethru.html?searchResultPosition=10
+**Democratic State Lawmaker in Georgia Endorses Trump**\
+`A polarizing Democratic state lawmaker in Georgia broke party ranks on Tuesday to endorse President Donald Trump's reelection.`\
+https://nytimes.com/aponline/2020/04/14/us/ap-us-democrat-endorses-trump-georgia.html?searchResultPosition=10
 
