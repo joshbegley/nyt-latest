@@ -1,12 +1,12 @@
-**Trump Declines to Tighten Clean Air Rule, Disregarding Coronavirus Link**\
-`Despite an emerging link between air pollution and Covid-19 death rates, the Trump administration will decline to tighten standards on soot emissions.`\
-https://nytimes.com/2020/04/14/climate/coronavirus-soot-clean-air-regulations.html?searchResultPosition=8
+**India Lockdown Sends Grey-Market Booze Prices Soaring**\
+`Alcohol prices in India's grey market have more than quadrupled and online searches for how to make homemade alcohol have soared during India's nationwide coronavirus lockdown, with bars and liquor stores shut for weeks across most parts of the country.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-india-liquor.html?searchResultPosition=8
 
-**Fiat Chrysler Recalls Pickups, SUVs to Fix Windshield Wipers**\
-`Fiat Chrysler is recalling more than 550,000 pickup trucks and SUVs worldwide because the windshield wiper arms can come loose and stop the wipers from working properly.`\
-https://nytimes.com/aponline/2020/04/14/business/ap-us-fiat-chrysler-recall.html?searchResultPosition=9
+**Amazon Ordered to Limit France Trade to Essential Goods Within 24 Hours**\
+`A French court on Tuesday ordered Amazon to limit its business to essential goods within 24 hours to allow for an assessment of epidemic risks, trade union Sud said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-amazon-france.html?searchResultPosition=9
 
-**Hyundai to Provide COVID 19 Tests,' Drive Through' Testing Support in U.S.**\
-`Hyundai Motor Co's North American unit will expand its support for "drive through" testing for the coronavirus and donate 65,000 tests to hospitals in the United States, the South Korean automaker said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-hyundai-motor.html?searchResultPosition=10
+**Russian Foreign Minister Calls for Unity in Fighting Virus**\
+`Russia's foreign minister on Tuesday angrily rejected Western claims that Moscow has used the coronavirus crisis to expand its political influence, saying the world needs unity to surmount the pandemic.`\
+https://nytimes.com/aponline/2020/04/14/world/europe/ap-eu-virus-outbreak-russia-diplomacy-1st-ld-writethru.html?searchResultPosition=10
 
