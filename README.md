@@ -1,4 +1,4 @@
-**Republicans Take Aim at Michigan Governor Over Virus Response**\
-`Republicans in Michigan escalated attacks Tuesday on Democratic Governor Gretchen Whitmer's efforts to combat COVID-19, arguing her policies are unnecessarily straining the state's economy even as the state saw a jump in deaths from the virus.`\
-https://nytimes.com/reuters/2020/04/14/us/politics/14reuters-health-coronavirus-michigan-governor.html?searchResultPosition=10
+**McDonald's and Its U.S. Franchisees at Odds Over Financial Relief as Crisis Weighed**\
+`McDonald's Corp rejected a request from its U.S. franchisees to delay collecting some March rent and royalty payments, prompting claims that the world's largest fast-food company is not providing enough support during the coronavirus crisis, according to several letters seen by Reuters.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-mcdonald-s-franchisees-focus.html?searchResultPosition=10
 
