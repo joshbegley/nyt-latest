@@ -1,12 +1,12 @@
-**UK PM Johnson Continues His Recovery From COVID-19**\
-`Prime Minister Boris Johnson is continuing his recovery from COVID-19 at his official country residence, his spokesman said on Tuesday, repeating that the British leader will only return to work on his medical team's advice.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-johnson.html?searchResultPosition=8
+**Plunge in Convention Hotel Travel Puts Municipal Bonds at Risk**\
+`The industry can withstand a downturn of a month or two, experts say, but a longer delay could hamper financing for projects in development.`\
+https://nytimes.com/2020/04/14/business/convention-hotels-municipal-bonds-coronavirus.html?searchResultPosition=8
 
-**U.S. Import Prices Decline in March**\
-`U.S. import prices dropped in March, pointing to import deflation that could deepen amid the pandemic.`\
-https://nytimes.com/reuters/2020/04/14/us/14reuters-usa-economy-inflation.html?searchResultPosition=9
+**Recent Commercial Real Estate Transactions**\
+`Recent commercial real estate transactions in New York.`\
+https://nytimes.com/2020/04/14/business/new-york-commercial-real-estate.html?searchResultPosition=9
 
-**Europe, LatAm to Lead 2020 Emerging Economies' Downturn; Asia to Limit Damage, IMF Says**\
-`Emerging and developing economies are likely to contract about 1% this year as the coronavirus pandemic disrupts economic activity across the world, the International Monetary Fund said on Tuesday, with Asia ticking up to slightly offset the sharp declines expected in emerging Europe and Latin America.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-imf-worldbank-emerging.html?searchResultPosition=10
+**What You Need to Know Today About the Virus Outbreak**\
+`Beaten down by the coronavirus outbreak, the world economy in 2020 will suffer its worst year since the Great Depression of the 1930s, the International Monetary Fund says. `\
+https://nytimes.com/aponline/2020/04/14/us/ap-us-virus-outbreak-whats-happening.html?searchResultPosition=10
 
