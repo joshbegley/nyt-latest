@@ -1,12 +1,12 @@
-**Millions of Children Are at Risk for Measles as Coronavirus Fears Halt Vaccines**\
-`U.N. and global health experts warned that poor countries around the world were having to stop mass immunization programs to reduce the risk of spreading Covid-19.`\
-https://nytimes.com/2020/04/13/health/coronavirus-measles-vaccines.html?searchResultPosition=8
+**Trump Uses Pandemic Virus Briefing to Air Laudatory Video**\
+`President Donald Trump on Monday used the daily White House briefing to air a taxpayer-funded promotional video praising his own handling of the coronavirus outbreak and slamming his critics and the press. `\
+https://nytimes.com/aponline/2020/04/13/us/politics/ap-us-virus-outbreak-trump-briefing.html?searchResultPosition=8
 
-**What to Do With Tara Reade’s Allegation Against Joe Biden?**\
-`A sexual assault accusation against the presumptive Democratic nominee is being used to troll the #MeToo movement.`\
-https://nytimes.com/2020/04/13/opinion/tara-reade-joe-biden.html?searchResultPosition=9
+**SoftBank Shares Untraded After Estimating Historic Loss**\
+`SoftBank Group Corp shares were untraded with a glut of sell orders on Tuesday morning after estimating the Vision Fund will record a 1.8 trillion yen ($16.73 billion) loss in the year ended March due to faltering bets on unproven startups. `\
+https://nytimes.com/reuters/2020/04/13/business/13reuters-softbank-group-stocks.html?searchResultPosition=9
 
-**Cocktail Mixers Enter the Ice Age**\
-`For your next old-fashioned, margarita or cosmopolitan, reach for a Cocktail Cube, a premixed, frozen helper ready to shake.`\
-https://nytimes.com/2020/04/13/dining/cocktail-cubes.html?searchResultPosition=10
+**Prosecutors Defend Seizures in Giuliani Associates' Case**\
+`A Florida man cannot hide his electronic devices and their contents from prosecutors after he tried to send them to his lawyers before he was arrested on charges that he conspired with associates of Rudy Giuliani to make illegal campaign contributions, prosecutors told a judge Monday.`\
+https://nytimes.com/aponline/2020/04/13/us/ap-us-trump-impeachment-giuliani.html?searchResultPosition=10
 
