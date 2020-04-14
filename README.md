@@ -1,4 +1,4 @@
-**Albert K. Webster, Who Built Up the New York Philharmonic, Dies at 82**\
-`Mr. Webster, who had the coronavirus, lived and breathed the Philharmonic as a career orchestra administrator and consultant.`\
-https://nytimes.com/2020/04/14/obituaries/albert-webster-dead-coronavirus.html?searchResultPosition=10
+**Robby Browne, Real Estate Player and Philanthropist, Dies at 72**\
+`As a top agent in New York City, he socialized with celebrities and the business elite. He also contributed to numerous AIDS- and gay-related charities.`\
+https://nytimes.com/2020/04/14/realestate/luxury/robby-browne-real-estate-player-and-philanthropist-dies-at-72.html?searchResultPosition=10
 
