@@ -1,12 +1,12 @@
-**MLS Considers Alternative Formats for 2020 Season**\
-`MLS commissioner Don Garber told ESPN that the league will explore alternative formats when it comes to completing the 2020 season.`\
-https://nytimes.com/reuters/2020/04/14/sports/14reuters-soccer-mls-formats.html?searchResultPosition=8
+**Japan's Lower House Approves Hitachi Exec Nakamura to Join BOJ Board**\
+`Japan's lower house on Tuesday approved Toyoaki Nakamura, a Hitachi Ltd executive, to join the Bank of Japan's nine-member policy board, paving the way for parliamentary approval of the government nominee.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-japan-economy-boj-board.html?searchResultPosition=8
 
-**Value of China's Farm Imports From U.S. Were $5.05 Billion in First Quarter: Customs**\
-`China brought in 35.56 billion yuan ($5.05 billion) worth of farm goods from the United States in the first three months of 2020, according to customs data. `\
-https://nytimes.com/reuters/2020/04/14/world/americas/14reuters-usa-trade-china-agriculture.html?searchResultPosition=9
+**New Trump Panel to Explore Path to Reopening US Economy**\
+`Every day, a team of public health officials turns up in the White House briefing room to lay out measures being taken to contain the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/04/14/business/bc-us-virus-outbreak-trump-economic-council.html?searchResultPosition=9
 
-**Brazil's Leader Hasn’t Fired Coronavirus Messenger ... Yet**\
-`Brazilian President Jair Bolsonaro and his health minister are in open conflict over the country’s coronavirus response, leading many to worry that the far-right leader could soon fire the official who has played a major role in containing the outbreak. `\
-https://nytimes.com/aponline/2020/04/14/world/americas/ap-lt-virus-outbreak-brazil-health-minister.html?searchResultPosition=10
+**Stock Markets in Asia Rise on Positive Chinese Trade Data: Live Updates**\
+`The latest on stock market and business news during the coronavirus outbreak.`\
+https://nytimes.com/2020/04/14/business/stocks-today-coronavirus.html?searchResultPosition=10
 
