@@ -1,8 +1,8 @@
-**Our Best Recipes and Tips for Quarantine Cooking**\
-`Here is a regularly updated list of our latest articles — and some older resources — to help you find what you need.`\
-https://nytimes.com/2020/04/14/dining/recipes-cooking-tips-coronavirus.html?searchResultPosition=9
+**U.S. Funds That Beat Market Plunge Seek Recession-Proof Stocks**\
+`Beating the first quarter's market crash took some extreme strategies, such as moving nearly everything to cash, or going very short. Now, fund managers who prevailed during the worst start to a year for U.S. stocks are betting on recession-resilient companies to take them to the next leg.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-funds.html?searchResultPosition=9
 
-**Trump to Announce Ventilator Loan Plan to Fight Virus**\
-`U.S. President Donald Trump is to announce a loan program on Tuesday with the aim of making as many as 60,000 ventilators available to help coronavirus patients, a senior administration official said.`\
-https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-trump-ventilators.html?searchResultPosition=10
+**Fauci: May 1 Target for Reopening U.S. Economy 'Overly Optimistic'-AP**\
+`The top U.S. infectious disease expert Anthony Fauci said on Tuesday that a May 1 target date for reopening the economy was "a bit overly optimistic," citing a lack of critical testing and tracing procedures. `\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-usa-fauci.html?searchResultPosition=10
 
