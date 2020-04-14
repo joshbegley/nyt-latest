@@ -1,4 +1,4 @@
-**Column: Scheffler a Rookie on the Rise Who's in No Hurry**\
-`Scottie Scheffler has never been in such a hurry that he fails to recognize what's right in front of him.`\
-https://nytimes.com/aponline/2020/04/14/sports/golf/ap-glf-on-the-fringe-scheffler.html?searchResultPosition=10
+**Everyone Wants an Antibody Test. Everyone on This Private Island Can Get One.**\
+`The tests show whether someone has been exposed to the coronavirus. They’re being provided to everyone in an exclusive Florida community that was able to pay for them.`\
+https://nytimes.com/2020/04/14/us/coronavirus-florida-fisher-island-tests.html?searchResultPosition=10
 
