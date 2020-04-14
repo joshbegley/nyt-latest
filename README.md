@@ -1,8 +1,8 @@
-**Czech Government Present Gradual Plan to Open Shops, Services by June 8**\
-`The Czech government has approved a plan to gradually open stores and restaurants between April 20 and June 8, according to a government presentation on Tuesday signalling the restart of an economy in standstill due to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-czech.html?searchResultPosition=9
+**Americans Stuck in Africa Trying to Bring Adopted Kids Home**\
+`Stranded in Nigeria for months, a Colorado couple had a rare chance to catch an evacuation flight to the U.S. recently during the coronavirus outbreak. But they refused because they would have had to leave behind their adopted daughter, who has yet to get a U.S. visa.`\
+https://nytimes.com/aponline/2020/04/14/us/ap-virus-outbreak-adoptions-from-africa.html?searchResultPosition=9
 
-**Irish Rival Leaders Sign Off on Initial Government Deal: Local Media**\
-`The leaders of Ireland's rival Fianna Fail and Fine Gael parties signed off on a broad agreement struck by their negotiating teams aimed at attracting enough additional support to form a new government, local media reported on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-ireland-politics.html?searchResultPosition=10
+**IMF Projects Lebanon's Economy Will Shrink 12% in 2020**\
+`The International Monetary Fund projected Tuesday that Lebanon’s economy will shrink 12% in 2020 amid the country's worst economic and financial crisis in decades. `\
+https://nytimes.com/aponline/2020/04/14/business/ap-ml-lebanon-economy.html?searchResultPosition=10
 
