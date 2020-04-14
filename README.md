@@ -1,12 +1,12 @@
-**Turkish Airlines Extends Flight Cancellations Until May 20**\
-`Turkish Airlines has extended the cancellation of international flights to May 20 from May 1 over the coronavirus outbreak, the airline said on Tuesday, adding that domestic flights would remain suspended until April 20.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-turkey-thy.html?searchResultPosition=8
+**Kazakhstan Summons Chinese Ambassador in Protest Over Article**\
+`Kazakhstan's foreign ministry summoned the Chinese ambassador on Tuesday to protest over an article saying the country was keen to become part of China, the ministry said.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-kazakhstan-china.html?searchResultPosition=8
 
-**Technical Problems at Deutsche Boerse Hit Vienna Stock Exchange Trading**\
-`Trading on the Vienna Stock Exchange has been interrupted by  technical problems at system provider Deutsche Boerse, the Austrian exchange said on Tuesday, and the German operator said many other centres were affected too.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-austria-stocks.html?searchResultPosition=9
+**DealBook: Does Private Equity Deserve a Public Bailout?**\
+`Whatever you think about it, public pensions are dependent on private equity investments for returns, and their portfolio companies employ millions.`\
+https://nytimes.com/2020/04/14/business/dealbook/bailout-private-equity-venture-capital.html?searchResultPosition=9
 
-**'Mixed Picture' in Europe, COVID-19 Vaccine at Least 12 Months Off: WHO**\
-`The number of new cases of COVID-19 is easing in some parts of Europe, including Italy and Spain, but outbreaks are still growing in Britain and Turkey, the World Health Organization (WHO) said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-who.html?searchResultPosition=10
+**Johnson & Johnson Cuts 2020 Profit Forecast on Coronavirus Uncertainty**\
+`Johnson & Johnson on Tuesday cut its 2020 adjusted profit forecast, as the coronavirus outbreak causes uncertainty across global markets.  `\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-johnson-johnson-results.html?searchResultPosition=10
 
