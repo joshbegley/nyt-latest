@@ -1,12 +1,12 @@
-**Mexico Registers 5,014 Cases of Coronavirus and 332 Deaths-Health Ministry**\
-`Mexico registered 353 new cases of coronavirus on Monday, bringing its total to 5,014 cases and 332 deaths, the health ministry said.`\
-https://nytimes.com/reuters/2020/04/13/world/americas/13reuters-health-coronavirus-mexico-healthministry.html?searchResultPosition=8
+**U.S. SEC Charges Former Banker for Bribes to Ghana Officials**\
+`The U.S. securities regulator on Monday charged a former banker at a subsidiary of a U.S. bank for arranging at least $2.5 million in bribes to be paid to Ghana government officials to gain approval for a client's power plant project.`\
+https://nytimes.com/reuters/2020/04/13/business/13reuters-usa-sec-bribery.html?searchResultPosition=8
 
-**Trump Leaps to Call Shots on Combating Coronavirus, Setting Up Standoff With Governors**\
-`The president’s insistence that only he can decide if the country should reopen for business was disputed by constitutional scholars and contrasted with his earlier message that it was not for the federal government to take the lead in fighting the virus.`\
-https://nytimes.com/2020/04/13/us/politics/trump-coronavirus-governors.html?searchResultPosition=9
+**British American Tobacco Under Criminal Probe by U.S. Regulators: The Times**\
+`Lucky Strike cigarette maker British American Tobacco is under criminal investigation by U.S. regulators over suspected sanctions-busting, The Times reported https://bit.ly/2ydR5Wm on Tuesday.`\
+https://nytimes.com/reuters/2020/04/13/business/13reuters-britishamericantobacco-investigation.html?searchResultPosition=9
 
-**Liberal Projected to Win Hotly Contested Wisconsin Supreme Court Seat**\
-`Liberal challenger Jill Karofsky won a hotly contested race for the Wisconsin Supreme Court on Monday, beating a conservative incumbent in state elections marred by court challenges and worries about coronavirus health risks.`\
-https://nytimes.com/reuters/2020/04/13/us/13reuters-usa-election-wisconsin-court.html?searchResultPosition=10
+**China's Heilongjiang Reports 79 New Imported Coronavirus Cases: CCTV**\
+`The northeastern Chinese border province of Heilongjiang reported 79 new imported coronavirus cases on April 13, state broadcaster CCTV said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-china-heilongjiang.html?searchResultPosition=10
 
