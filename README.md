@@ -1,8 +1,8 @@
-**Who Is Kyle Larson?**\
-`A NASCAR driver who was dismissed from his team after using a racial slur is a product of a diversity program.`\
-https://nytimes.com/2020/04/14/sports/autoracing/nascar-kyle-larson-fired.html?searchResultPosition=9
+**France Becomes Fourth Country to Pass the 15,000 Coronavirus Death Toll**\
+`France officially registered more than 15,000 deaths from coronavirus infections on Tuesday, becoming the fourth country to go beyond that threshold after Italy, Spain and the United States, while the rate of increase of fatalities is slightly up again after steadying the days before.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-france-toll.html?searchResultPosition=9
 
-**Fed's Evans Says Too-Soon U.S. Reopening Could Prolong Downturn**\
-`The U.S. economy is in for a very sharp, but hopefully short, downturn, Chicago Federal Reserve Bank President Charles Evans said on Tuesday, adding that if employee-employer relations can be maintained during the shutdown, the economy stands a better chance of reviving quickly.`\
-https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-fed-evans.html?searchResultPosition=10
+**CDC Reports 579,005 Coronavirus Cases, 22,252 Deaths**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Tuesday reported 579,005 cases of coronavirus, an increase of 24,156 cases from its previous count, and said the number of deaths had risen by 310 to 22,252.`\
+https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-usa-cdc.html?searchResultPosition=10
 
