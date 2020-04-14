@@ -1,12 +1,12 @@
-**Coronavirus in N.Y.C.: Latest Updates**\
-`New York and six nearby states have created an alliance to plan for the reopening when the coronavirus lockdown eases.`\
-https://nytimes.com/2020/04/14/nyregion/coronavirus-nyc.html?searchResultPosition=8
+**Reports: NFL, Union Agree on 'Virtual' Offseason Programs**\
+`NFL teams will begin virtual offseason programs with players at home over the next two weeks after an agreement was reached Monday with the NFL Players Association, multiple media outlets reported.`\
+https://nytimes.com/reuters/2020/04/14/sports/football/14reuters-football-nfl.html?searchResultPosition=8
 
-**Australia Aid Plane to Vanuatu Delayed as Chinese Plane Was Parked at Port Vila Airport**\
-`A Royal Australian Air Force (RAAF) plane carrying aid to cyclone-struck Vanuatu turned around and returned home on Sunday as a Chinese plane with medical equipment was already on the airport's tarmac, Vanuatu airport officials said.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-vanuatu-australia-china.html?searchResultPosition=9
+**Insta-Star Wars: China Tensions in Southeast Asia Flare Online**\
+`Social media anger from Chinese nationalists over a Thai internet model's comments has set off a regional storm uniting pro-democracy campaigners against pro-Beijing cyber-warriors, with insults and mocking memes flying back and forth.`\
+https://nytimes.com/reuters/2020/04/14/technology/14reuters-thailand-china-internet.html?searchResultPosition=9
 
-**Coronavirus Live Updates: As States Make Plans, Trump Says His ‘Authority Is Total’**\
-`Newly detected infections in New Jersey surged even as the situation in New York stabilized. Governors on the East and West Coasts formed alliances to coordinate future action.`\
-https://nytimes.com/2020/04/14/us/coronavirus-updates-usa.html?searchResultPosition=10
+**Many Cities, Counties Fear Losing Out on Stimulus Funding**\
+`The $2.2 trillion federal stimulus package could fail to deliver badly needed financial aid to thousands of smaller cities and counties where a majority of Americans live, according to documents and interviews with local officials.`\
+https://nytimes.com/aponline/2020/04/14/us/politics/ap-us-virus-outbreak-local-relief-aid.html?searchResultPosition=10
 
