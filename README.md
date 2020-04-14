@@ -1,12 +1,12 @@
-**AstraZeneca to Start Calquence in COVID-19 Trial**\
-`AstraZeneca Plc said on Tuesday that it would start a clinical trial to assess the potential of Calquence in the treatment of the exaggerated immune response associated with COVID-19 infection in severely ill patients.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-astrazeneca.html?searchResultPosition=8
+**Lonely Times to Be a New Mum as UK Coronavirus Lockdown Halts Normal Life**\
+`Kimberley Hutton went to hospital to have a baby in the middle of March, stayed for a week, and returned to a world completely changed.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-britain-birth.html?searchResultPosition=8
 
-**Shift From Sports to Medical Gear Keeps RI Company Open**\
-`Sports have gone dark, and so have the sporting goods stores that sold the G-Form protective pads used in soccer, mountain biking and by dozens of major league baseball players. `\
-https://nytimes.com/aponline/2020/04/14/sports/ap-hko-virus-outbreak-face-shields.html?searchResultPosition=9
+**How Bad Will the Economy Get? Companies Will Provide Clues**\
+`The quarterly parade of corporate earnings and management comments could reveal how much damage the pandemic will do and how long the pain will last.`\
+https://nytimes.com/2020/04/14/business/economy/coronavirus-corporate-earnings-stocks.html?searchResultPosition=9
 
-**What You Need to Know About the Coronavirus Right Now**\
-`Here's what you need to know about the coronavirus right now:`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-snapshot.html?searchResultPosition=10
+**N.F.L. Draft 2020: No Goodell Hugs? No Boos? No Problem**\
+`Commissioner Roger Goodell will announce picks from his basement, and players will miss out on the bear hugs that have become a tradition.`\
+https://nytimes.com/2020/04/14/sports/football/nfl-draft-virtual.html?searchResultPosition=10
 
