@@ -1,12 +1,12 @@
-**Barclays Halts New Job Cuts During Coronavirus Crisis: Memo**\
-`Barclays has halted new job cuts while the coronavirus crisis is ongoing, the bank said in an internal memo seen by Reuters on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-barclays-employment.html?searchResultPosition=8
+**As Rebel-Held Syria Fears Virus, Just One Machine Is There to Test**\
+`A single machine at Mohamad Shahim Makki's medical centre in Idlib province, part of Syria's last rebel stronghold, is the only alarm that will sound when the coronavirus strikes a population of millions of the world's most vulnerable people.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-syria-north.html?searchResultPosition=8
 
-**Singapore Reports 334 New Coronavirus Infections, Total Reaches 3,252**\
-`Singapore's health ministry confirmed 334 more coronavirus infections on Tuesday, taking its tally to 3,252.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-singapore.html?searchResultPosition=9
+**UK Must Stop China's Bid to Remove Imagination Technologies' Tech, British Lawmaker Says**\
+`The British government should seek every mechanism to prevent the removal of Imagination Technologies' technology base to China, including seeking a Western purchaser for the company, British lawmaker David Davis said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/technology/14reuters-china-britain-imaginationtechnologies.html?searchResultPosition=9
 
-**Human Rights Watch Warns Against Polish Abortion Debate**\
-`Human Rights Watch, one of the world's largest human rights groupings, on Tuesday accused the Polish government of taking advantage of the coronavirus lockdown to debate new limits on abortion and sexual education.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-poland-abortion.html?searchResultPosition=10
+**Idled Day Workers May Slip Though Turkey's Cash Safety Net**\
+`Countless Turkish day workers risk falling through a financial safety net being set up to support those idled due to the coronavirus outbreak, as authorities in Ankara scramble for funds to stretch it more widely.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-turkey-funding-analysis.html?searchResultPosition=10
 
