@@ -1,12 +1,12 @@
-**Lesson of the Day: ‘Five Takeaways on What Trump Knew as the Virus Spread’**\
-`In this lesson, students will analyze the causes and effects of the federal government’s response to the coronavirus pandemic.`\
-https://nytimes.com/2020/04/14/learning/lesson-of-the-day-five-takeaways-on-what-trump-knew-as-the-virus-spread.html?searchResultPosition=8
+**Pandemic Shows Investment Fund Vulnerabilities, G20 Watchdog Says**\
+`Non-bank financial firms such as investment funds have exhibited  vulnerabilities during the coronavirus crisis that may need fixing to help economies recover, a global regulatory watchdog said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-g20-markets.html?searchResultPosition=8
 
-**Tokyo 2020: 'No B Plan' for Another Olympic Postponement**\
-`Tokyo organizers said Tuesday they have no “B Plan” in the event the Olympics need to be postponed again because of the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/14/sports/olympics/ap-oly-tokyo-going-forward.html?searchResultPosition=9
+**Insults and Fines: Autistic Young Spaniards Struggle Under Lockdown**\
+`For Susana Cristo and other parents of autistic children, Spain's strict coronavirus lockdown is proving especially harrowing and has led to insults, harassment and even fines.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-spain-autism.html?searchResultPosition=9
 
-**Taiwan Reports No New Coronavirus Cases for First Time in a Month**\
-`Taiwan on Tuesday reported no new cases of the coronavirus for the first time in more than a month, in the latest sign that the island's early and effective prevention methods have paid off.`\
-https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-taiwan.html?searchResultPosition=10
+**China Moves to Block New Virus Flare-Up on Russian Border**\
+`China is facing a new coronavirus flare-up along its remote northern border with Russia, far from the epicenter of Wuhan, where it has all but declared victory in the battle against the pandemic. `\
+https://nytimes.com/aponline/2020/04/14/world/asia/ap-as-virus-outbreak-china-northern-threat.html?searchResultPosition=10
 
