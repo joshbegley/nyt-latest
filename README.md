@@ -1,4 +1,4 @@
-**Feel Like You’re in Prison? These Trainers Actually Were**\
-`The formerly incarcerated have lessons to share about emerging from confinement fitter, in mind and body.`\
-https://nytimes.com/2020/04/14/style/coronaviurs-personal-training-former-inmates-a-second-u.html?searchResultPosition=10
+**Jim Frey, Manager Who Flirted With Championships, Dies at 88**\
+`He managed the Royals to the World Series in 1980 but lost there. He then took the Cubs to within one game of the Series in 1984.`\
+https://nytimes.com/2020/04/14/sports/baseball/jim-frey-dead.html?searchResultPosition=10
 
