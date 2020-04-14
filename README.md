@@ -1,12 +1,12 @@
+**Obama to Endorse Biden for 2020 Democratic Nomination, Source Close to Obama Says**\
+`Former U.S. President Barack Obama will endorse his vice president, Joe Biden, for the 2020 Democratic presidential nomination on Tuesday, according to a person close to Obama.`\
+https://nytimes.com/reuters/2020/04/14/us/politics/14reuters-usa-election-obama.html?searchResultPosition=8
+
+**Barack Obama to Endorse Joe Biden for Democratic Nomination**\
+`The former president will endorse his former vice president one day after Senator Bernie Sanders threw his support behind Mr. Biden.`\
+https://nytimes.com/2020/04/14/us/politics/obama-endorses-biden.html?searchResultPosition=9
+
 **Fund Managers Find a Way With Words in Coronavirus Chronicles**\
 `For many money managers their most recent investor letters were among the hardest they have had to pen, saying why their funds were so deeply in the red and what they planned to do about it.   `\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-funds-letters.html?searchResultPosition=8
-
-**Fed Pledge on Bond-Buying Expansion Revives U.S. Junk Bond Market**\
-`Investor demand for the riskiest U.S. corporate credit rose on Monday and Tuesday after the Federal Reserve last week expanded its bond-buying program to include some so-called junk bonds, and pledged to buy shares in exchange-traded funds which track the junk-rated market. `\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-usa-bonds-junkbonds.html?searchResultPosition=9
-
-**G7 Backs Debt Moratorium for Poor Countries if G20 Creditors, Paris Club Join**\
-`Group of Seven (G7) finance officials on Tuesday vowed to continue to act as needed to combat the coronavirus pandemic and stabilize the global economy, and threw their support behind temporary debt relief to the poorest countries.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-imf-worldbank-g7-creditors.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-funds-letters.html?searchResultPosition=10
 
