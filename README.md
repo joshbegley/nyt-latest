@@ -1,8 +1,8 @@
-**Italy's Daily Coronavirus Death Toll Climbs, but New Cases Lowest for a Month**\
-`Deaths from the COVID-19 epidemic in Italy rose by 602 on Tuesday, up from 566 the day before, posting a second consecutive daily increase, but new infections slowed to 2,972 from 3,153, seeing the smallest daily tally since March 13.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-italy-tally.html?searchResultPosition=9
+**Czech Government Present Gradual Plan to Open Shops, Services by June 8**\
+`The Czech government has approved a plan to gradually open stores and restaurants between April 20 and June 8, according to a government presentation on Tuesday signalling the restart of an economy in standstill due to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-czech.html?searchResultPosition=9
 
-**World Wars Stopped the Tour de France. Now Coronavirus Has, Too.**\
-`The Tour de France will not start on time. But the N.F.L. will allow virtual workouts, and there are some 250 table tennis matches happening, too.`\
-https://nytimes.com/2020/04/14/sports/cycling/coronavirus-tour-de-france-table-tennis-nfl.html?searchResultPosition=10
+**Irish Rival Leaders Sign Off on Initial Government Deal: Local Media**\
+`The leaders of Ireland's rival Fianna Fail and Fine Gael parties signed off on a broad agreement struck by their negotiating teams aimed at attracting enough additional support to form a new government, local media reported on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-ireland-politics.html?searchResultPosition=10
 
