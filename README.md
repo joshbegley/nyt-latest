@@ -1,12 +1,12 @@
-**Philippines Ramps Up Coronavirus Testing to Find Thousands of Unknown Infections**\
-`The Philippines introduced a more aggressive testing programme for the coronavirus on Tuesday to locate as many as 15,000 unknown infections, despite having implemented some of Asia's strictest and earliest lockdown measures.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-philippines.html?searchResultPosition=8
+**Brewer AB InBev Halves Final Dividend and Pushes Back AGM**\
+`Anheuser-Busch InBev, the world's largest brewer, proposes to halve its final dividend and has postponed its annual shareholder meeting owing to uncertainty around the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-ab-inbev-dividend.html?searchResultPosition=8
 
-**European Shares Jump on China Trade Data, Coronavirus Hopes**\
-`European shares rose on Tuesday after a strong rally last week, as better-than-expected trade data from China added to relief from early signs that sweeping lockdown measures to contain the coronavirus pandemic were working.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-europe-stocks.html?searchResultPosition=9
+**Norwegian Air Shares Drop 60% After Proposed Debt-For-Equity Swap**\
+`The share price of Norwegian Air fell by 60% on Tuesday, the first day of trading following the company's proposal of a financial rescue package on April 8. `\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-norwegianair.html?searchResultPosition=9
 
-**Thai Grocery Trucks Get New Life From Coronavirus Shutdown**\
-`Cries of "Food, here comes the food," echoed through a Bangkok neighbourhood as Wannapa Yarnsarn's truck arrived with everything from mangoes and dried chillies to fresh pork for sale.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-thailand-grocery-trucks.html?searchResultPosition=10
+**Transfer Portal Causing College Basketball Coaches Headaches**\
+`Gregg Marshall began his career as an assistant at tiny Randolph-Macon and Belmont Abbey, but it was during eight years on the staff of Hall of Fame coach John Kresse at College of Charleston that he learned to build a basketball program.`\
+https://nytimes.com/aponline/2020/04/14/sports/ncaabasketball/ap-bkc-transfer-portal-problems.html?searchResultPosition=10
 
