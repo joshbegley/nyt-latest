@@ -1,4 +1,4 @@
-**The WWE Is Now Considered an ‘Essential Service’ in Florida**\
-`Officials in the state permitted “employees at professional sports and media production with a national audience” to hold an event if it is closed to the public.`\
-https://nytimes.com/2020/04/14/us/wwe-essential-business-florida-coronavirus.html?searchResultPosition=10
+**Rio De Janeiro Governor Tests Positive for Coronavirus**\
+`The governor of Rio de Janeiro state said on Tuesday that he had tested positive for the new coronavirus, becoming the latest Brazilian government leader to contract the disease as it spreads across the country.`\
+https://nytimes.com/reuters/2020/04/14/world/americas/14reuters-health-coronavirus-brazil-rio-de-janeiro.html?searchResultPosition=10
 
