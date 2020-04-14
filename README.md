@@ -1,4 +1,4 @@
-**Treasury and Airlines Agree on Terms of Industry Bailout**\
-`Airlines will receive billions of dollars in grants and loans to pay flight attendants, pilots and other employees.`\
-https://nytimes.com/2020/04/14/business/coronavirus-airlines-bailout-treasury-department.html?searchResultPosition=10
+**Justice Dept. Voices Support for Church’s Drive-in Services Despite Virus Orders**\
+`Attorney General William Barr said in a statement on Tuesday that “even in times of emergency,” the First Amendment prohibits religious discrimination.`\
+https://nytimes.com/2020/04/14/us/politics/virus-justice-department-religious-freedom.html?searchResultPosition=10
 
