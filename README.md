@@ -1,12 +1,12 @@
-**Top Creditors Agree Moratorium on Poorest Countries Debt: French Finmin**\
-`Major international creditors have agreed a moratorium on the poorest countries debt in response to the new coronavirus crisis, French Finance Minister Bruno Le Maire said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-debt-moratorium.html?searchResultPosition=8
+**'Mixed Picture' in Europe, COVID-19 Vaccine at Least 12 Months Off: WHO**\
+`The number of new cases of COVID-19 is easing in some parts of Europe, including Italy and Spain, but outbreaks are still growing in Britain and Turkey, the World Health Organization (WHO) said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-who.html?searchResultPosition=8
 
-**Russia Will Not Ask EU for Sanctions Relief Over Coronavirus: TASS Cites Foreign Minister**\
-`Russia is not intending to ask the European Union to lift sanctions due to the coronavirus outbreak, the TASS news agency cited Foreign Minister Sergei Lavrov as saying on Tuesday. `\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-russia-sanctions.html?searchResultPosition=9
+**Thai Economy Could Lose Over $40 Billion if Virus Crisis Goes Beyond Second Quarter**\
+`Thailand's economy is expected to lose 1.3 trillion baht (nearly $40 billion), almost all of it in the tourist sector, due to the initial impact of the coronavirus pandemic, a banking association said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-thailand-impact.html?searchResultPosition=9
 
-**Futures Rise on China Trade Data; Focus on Corporate Results**\
-`U.S. stock index futures gained on Tuesday as better-than-expected trade data from China and signs some economies might be preparing to ease sweeping lockdowns lifted the mood ahead of the first batch of quarterly earnings reports.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-usa-stocks.html?searchResultPosition=10
+**Coronavirus Forces Russian Florists to Destroy Millions of Roses as Demand Wilts**\
+`Russia's rose growers are destroying a million flowers a day after a coronavirus-induced slump in sales, with fears of worse to come as self-isolation measures take hold across the country. `\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirius-russia-business-flowers.html?searchResultPosition=10
 
