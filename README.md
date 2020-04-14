@@ -1,4 +1,4 @@
-**Israeli Police Use Drones to Check In on Virus Patients**\
-`The drone glides up toward a high-rise until it reaches an apartment window where a woman waves from inside, proving to police that she is self-isolating after testing positive for the coronavirus.`\
-https://nytimes.com/aponline/2020/04/14/business/ap-ml-virus-outbreak-israeli-drones.html?searchResultPosition=10
+**Exclusive: Stay Off Zoom, Google Hangouts, Standard Chartered Chief Tells Staff**\
+`Standard Chartered Plc is the first major global bank to tell employees not to use Zoom Video Communications Inc during the coronavirus pandemic due to cybersecurity concerns, according to a memo seen by Reuters.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-zoom-exclusive.html?searchResultPosition=10
 
