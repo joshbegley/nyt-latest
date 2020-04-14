@@ -1,4 +1,4 @@
-**N.Y. Got $12,000 Per Virus Case, by One Count. Nebraska Got $379,000.**\
-`Gov. Andrew Cuomo and New York lawmakers are taking issue with how much federal funding their state is receiving compared with those with fewer cases.`\
-https://nytimes.com/2020/04/14/nyregion/coronavirus-ny-cuomo-funding.html?searchResultPosition=10
+**Louisiana Presidential Primary Pushed Back Again, to July 11**\
+`Gov. John Bel Edwards on Tuesday again delayed Louisiana's presidential primary because of the coronavirus — this time to July 11 — as the state's chief elections officer asked lawmakers to expand mail-in balloting and early voting.`\
+https://nytimes.com/aponline/2020/04/14/us/ap-us-virus-outbreak-louisiana-election-1st-ld-writethru.html?searchResultPosition=10
 
