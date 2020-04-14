@@ -1,4 +1,4 @@
-**Sidelined by Coronavirus, Congressional Leaders Face Pressure to Vote Remotely**\
-`Rank-and-file lawmakers, scholars and good government groups say it is time for Congress to allow remote voting and virtual legislating.`\
-https://nytimes.com/2020/04/14/us/politics/coronavirus-congress-remote-voting.html?searchResultPosition=10
+**Trump’s Claim of Total Authority in Crisis Is Rejected Across Ideological Lines**\
+`Trading barbs with governors about their powers over when to ease restrictions on society, the president made an assertion that lacks a basis in the Constitution or federal law.`\
+https://nytimes.com/2020/04/14/us/politics/trump-total-authority-claim.html?searchResultPosition=10
 
