@@ -1,12 +1,12 @@
-**The Latest: New Zealand PM Believes Nation Is Over the Worst**\
-`The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
-https://nytimes.com/aponline/2020/04/14/business/ap-virus-outbreak-the-latest.html?searchResultPosition=8
+**Shift From Sports to Medical Gear Keeps RI Company Open**\
+`Sports have gone dark, and so have the sporting goods stores that sold the G-Form protective pads used in soccer, mountain biking and by dozens of major league baseball players. `\
+https://nytimes.com/aponline/2020/04/14/sports/ap-hko-virus-outbreak-face-shields.html?searchResultPosition=8
 
-**AstraZeneca-Merck Genetic Disorder Treatment Wins FDA Nod**\
-`The U.S. Food and Drug Administration approved a treatment developed by AstraZeneca Plc and Merck & Co Inc for a rare genetic disorder, the companies said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-astrazeneca-fda.html?searchResultPosition=9
+**What You Need to Know About the Coronavirus Right Now**\
+`Here's what you need to know about the coronavirus right now:`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-snapshot.html?searchResultPosition=9
 
-**Poland Likely to Lift Coronavirus Limits on Shops First: Government**\
-`Poland will likely lift restrictions on shops first when it eases curbs put in place to cope with the coronavirus, government spokesman Piotr Muller said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-poland-restrictions.html?searchResultPosition=10
+**Indonesia Trying to Avert Recession Due to Virus Outbreak: Finance Minister**\
+`Indonesian authorities are making efforts to prevent an economic recession due to the coronavirus outbreak, but their worst case scenario is for contraction in two consecutive quarters beginning this April-June, the country's finance minister said.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-indonesia-economy.html?searchResultPosition=10
 
