@@ -1,12 +1,12 @@
-**India Lockdown Sends Grey-Market Booze Prices Soaring**\
-`Alcohol prices in India's grey market have more than quadrupled and online searches for how to make homemade alcohol have soared during India's nationwide coronavirus lockdown, with bars and liquor stores shut for weeks across most parts of the country.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-india-liquor.html?searchResultPosition=8
+**Comic Creators Unite to Benefit Stores**\
+`A large group of comic book creators will be using Twitter to auction books, art and more to benefit stores upended by the coronavirus pandemic.`\
+https://nytimes.com/2020/04/14/arts/comic-book-auction-virus.html?searchResultPosition=8
 
-**Amazon Ordered to Limit France Trade to Essential Goods Within 24 Hours**\
-`A French court on Tuesday ordered Amazon to limit its business to essential goods within 24 hours to allow for an assessment of epidemic risks, trade union Sud said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-amazon-france.html?searchResultPosition=9
+**Officials Say Eight Killed in Myanmar's Rakhine State; Army Says Reports Fabricated**\
+`Eight people were killed by shelling in Myanmar's Rakhine state on Monday, two local officials and a resident said, but the army said reports that civilians in the village had been shelled were "fabricated".`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-myanmar-rakhine.html?searchResultPosition=9
 
-**Russian Foreign Minister Calls for Unity in Fighting Virus**\
-`Russia's foreign minister on Tuesday angrily rejected Western claims that Moscow has used the coronavirus crisis to expand its political influence, saying the world needs unity to surmount the pandemic.`\
-https://nytimes.com/aponline/2020/04/14/world/europe/ap-eu-virus-outbreak-russia-diplomacy-1st-ld-writethru.html?searchResultPosition=10
+**Iraq Suspends Reuters for Three Months Over Report on Coronavirus Cases**\
+`Iraq has suspended the licence of the Reuters news agency after it published a story saying the number of confirmed COVID-19 cases in the country was higher than officially reported.`\
+https://nytimes.com/reuters/2020/04/14/world/middleeast/14reuters-iraq-reuters.html?searchResultPosition=10
 
