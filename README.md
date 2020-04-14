@@ -1,12 +1,12 @@
-**Russia Ready to Discuss Hypersonic Missiles With U.S.: RIA Cites Foreign Minister**\
-`Russia is ready to discuss hypersonic missiles with the United States in the context of strategic stability, the RIA news agency cited Foreign Minister Sergei Lavrov as saying on Tuesday. `\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-usa-russia-arms.html?searchResultPosition=8
+**South Korea Set to Double Supply of Coronavirus Tests to U.S.**\
+`South Korea's SolGent has secured an order to supply a U.S. government agency with an additional 7,500 kits which can each perform 100 coronavirus tests, the CEO of the biotech firm told Reuters.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-south-korea-usa.html?searchResultPosition=8
 
-**Turkish Parliament Passes Bill to Free Thousands From Prison Amid Coronavirus**\
-`Turkey's parliament on Tuesday passed a law that will allow the release of tens of thousands of prisoners to ease overcrowding in jails and protect detainees from the coronavirus, but which critics slam for excluding those jailed on terrorism charges.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-turkey-security-prisoners.html?searchResultPosition=9
+**Bedtime Was Hard Enough. Then Came Quarantine.**\
+`Kids across the world are having trouble sleeping. There are ways to help.`\
+https://nytimes.com/2020/04/14/parenting/coronavirus-kids-sleep.html?searchResultPosition=9
 
-**Toyota Plans Limited Operations in France, Poland From April 22**\
-`Toyota Motor Corp on Monday said it plans to restart limited production at vehicle plants in France and Poland from April 22 after closing them due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-toyota.html?searchResultPosition=10
+**5 Things to Know Today-That Aren't About the Virus**\
+`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today:`\
+https://nytimes.com/aponline/2020/04/14/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=10
 
