@@ -1,12 +1,12 @@
-**India Extends World's Biggest Lockdown as Coronavirus Cases Cross 10,000**\
-`India on Tuesday extended until May 3 a nationwide lockdown for its 1.3 billion people as the number of coronavirus cases crossed 10,000 despite a three-week shutdown.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-southasia.html?searchResultPosition=8
+**Dollar Slips as Chinese Trade Data Brightens Mood**\
+`The dollar slipped on Tuesday and the Australian dollar led a rally in riskier currencies as China's trade data painted a less gloomy picture of the coronavirus' economic fallout than markets had feared.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-global-forex.html?searchResultPosition=8
 
-**McIlroy Hopes Delayed Masters Can Help End Wait for Green Jacket**\
-`World number one Rory McIlroy expects this year's Masters to feel a bit different and says the tournament being pushed back to November due to the COVID-19 pandemic could help him win the coveted green jacket.`\
-https://nytimes.com/reuters/2020/04/14/sports/golf/14reuters-golf-masters-mcilroy.html?searchResultPosition=9
+**Word + Quiz: filigree**\
+`This word has appeared in 23 articles on NYTimes.com in the past year.`\
+https://nytimes.com/2020/04/14/learning/word-quiz-filigree.html?searchResultPosition=9
 
-**Renault Sells Its Stake in Chinese Joint Venture to Partner Dongfeng Motor**\
-`French carmaker Renault said on Tuesday it was selling out of its stake in a Chinese joint venture with Dongfeng Motor Corporation to Dongfeng, which Renault said would help it maximise synergies with Japanese partner Nissan.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-renault-m-a-dongfeng.html?searchResultPosition=10
+**Far-Right US Politicians Label Lockdowns Anti-Constitutional**\
+`In deeply conservative eastern Washington state, a prominent state lawmaker kicked out of his Republican Party caucus labels the coronavirus as a foreign bio-weapon, accuses Marxists of using the pandemic to advance totalitarianism and rails against lockdown restrictions imposed by the Democratic governor.`\
+https://nytimes.com/aponline/2020/04/14/business/ap-us-virus-outbreak-far-right-politicians-1st-ld-writethru.html?searchResultPosition=10
 
