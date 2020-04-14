@@ -1,4 +1,4 @@
-**Exclusive: Stay Off Zoom, Google Hangouts, Standard Chartered Chief Tells Staff**\
-`Standard Chartered Plc is the first major global bank to tell employees not to use Zoom Video Communications Inc during the coronavirus pandemic due to cybersecurity concerns, according to a memo seen by Reuters.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-zoom-exclusive.html?searchResultPosition=10
+**Trump to Convene G7 Leaders in Video Link to Discuss Pandemic**\
+`U.S. President Donald Trump will hold a video teleconference with G7 leaders on Thursday to coordinate national responses to the coronavirus pandemic, the White House said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-trump-g7.html?searchResultPosition=10
 
