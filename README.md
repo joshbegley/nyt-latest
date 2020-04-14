@@ -1,12 +1,12 @@
+**Millions of Children Are at Risk for Measles as Coronavirus Fears Halt Vaccines**\
+`U.N. and global health experts warned that poor countries around the world were having to stop mass immunization programs to reduce the risk of spreading Covid-19.`\
+https://nytimes.com/2020/04/13/health/coronavirus-measles-vaccines.html?searchResultPosition=8
+
+**What to Do With Tara Reade’s Allegation Against Joe Biden?**\
+`A sexual assault accusation against the presumptive Democratic nominee is being used to troll the #MeToo movement.`\
+https://nytimes.com/2020/04/13/opinion/tara-reade-joe-biden.html?searchResultPosition=9
+
 **Cocktail Mixers Enter the Ice Age**\
 `For your next old-fashioned, margarita or cosmopolitan, reach for a Cocktail Cube, a premixed, frozen helper ready to shake.`\
-https://nytimes.com/2020/04/13/dining/cocktail-cubes.html?searchResultPosition=8
-
-**Grubhub, DoorDash, Postmates, Uber Eats Are Sued Over Restaurant Prices Amid Pandemic**\
-`GrubHub, DoorDash, Postmates and Uber Eats were sued on Monday for allegedly exploiting their dominance in restaurant meal deliveries to impose fees that consumers ultimately bear through higher menu prices, including during the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/13/business/13reuters-health-coronavirus-food-delivery-lawsuit.html?searchResultPosition=9
-
-**Order Your Farmers’ Market Produce Online for Pickup**\
-`To keep social distance, the Greenmarkets are offering an online option to preorder from its vendors.`\
-https://nytimes.com/2020/04/13/dining/farmers-market-takeout-coronavirus.html?searchResultPosition=10
+https://nytimes.com/2020/04/13/dining/cocktail-cubes.html?searchResultPosition=10
 
