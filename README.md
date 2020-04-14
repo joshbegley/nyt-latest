@@ -1,8 +1,8 @@
-**Kate the Chemist Book Has 25 Experiments for Housebound Kids**\
-`If your housebound family needs a new diversion, follow Kate Biberdorf’s example and try a hands-on approach to something besides a video game controller.`\
-https://nytimes.com/aponline/2020/04/14/us/ap-us-books-kate-the-chemist.html?searchResultPosition=9
+**Italy's Daily Coronavirus Death Toll Climbs, but New Cases Lowest for a Month**\
+`Deaths from the COVID-19 epidemic in Italy rose by 602 on Tuesday, up from 566 the day before, posting a second consecutive daily increase, but new infections slowed to 2,972 from 3,153, seeing the smallest daily tally since March 13.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-italy-tally.html?searchResultPosition=9
 
-**Will the Coronavirus End Israel’s Political Paralysis?**\
-`Benny Gantz, who had been seeking to unseat Prime Minister Benjamin Netanyahu, is now talking with his rival about forming a unity government amid the public health crisis.`\
-https://nytimes.com/2020/04/14/world/middleeast/israel-coronavirus-netanyahu-gantz.html?searchResultPosition=10
+**World Wars Stopped the Tour de France. Now Coronavirus Has, Too.**\
+`The Tour de France will not start on time. But the N.F.L. will allow virtual workouts, and there are some 250 table tennis matches happening, too.`\
+https://nytimes.com/2020/04/14/sports/cycling/coronavirus-tour-de-france-table-tennis-nfl.html?searchResultPosition=10
 
