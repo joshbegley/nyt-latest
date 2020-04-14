@@ -1,8 +1,8 @@
-**Time Running Out on Hopes for Full Season, Says MLS**\
-`Major League Soccer is still planning to play a full season but said on Tuesday that it could soon run out of available dates due to the novel coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/14/sports/soccer/14reuters-health-coronavirus-soccer-usa.html?searchResultPosition=9
+**New York Bridal Fashion Week Goes Virtual**\
+`Five fashion designers share their plans for showcasing their new bridal collections during the coronavirus outbreak.`\
+https://nytimes.com/2020/04/14/fashion/weddings/new-york-bridal-fashion-week-goes-virtual.html?searchResultPosition=9
 
-**Fed's Bostic: Recovery May Be Delayed in Areas Where Virus Peaks Later**\
-`The U.S. economy may start growing again this summer but recovery could be delayed in places where the virus peaks later or that were slower to address the developing health crisis, Atlanta Federal Reserve president Raphael Bostic said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-fed-bostic.html?searchResultPosition=10
+**U.S. SEC Charges Ex-Goldman Sachs Banker for Bribes to Ghana Officials**\
+`The U.S. securities regulator on Monday charged a former banker at Goldman Sachs Group Inc for arranging at least $2.5 million in bribes to be paid to Ghana government officials to gain approval for a client's power plant project.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-usa-sec-bribery.html?searchResultPosition=10
 
