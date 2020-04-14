@@ -1,8 +1,8 @@
-**Court Vacates Trump's Rollback of School Nutrition Rules**\
-`After making a brief comeback on school lunch menus, white bread and other refined grains may be vanishing again when schools reopen after a federal court vacated the Trump administration’s rollback of school nutrition standards.`\
-https://nytimes.com/aponline/2020/04/14/health/ap-us-med-school-lunch-rules.html?searchResultPosition=9
+**Time Running Out on Hopes for Full Season, Says MLS**\
+`Major League Soccer is still planning to play a full season but said on Tuesday that it could soon run out of available dates due to the novel coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/14/sports/soccer/14reuters-health-coronavirus-soccer-usa.html?searchResultPosition=9
 
-**Big Banks Set Aside Billions for Loan Losses**\
-`First-quarter earnings reports from JPMorgan Chase and Wells Fargo showed the country’s largest banks were preparing for customer pain.`\
-https://nytimes.com/2020/04/14/business/bank-earnings-jpmorgan-wells-fargo.html?searchResultPosition=10
+**Fed's Bostic: Recovery May Be Delayed in Areas Where Virus Peaks Later**\
+`The U.S. economy may start growing again this summer but recovery could be delayed in places where the virus peaks later or that were slower to address the developing health crisis, Atlanta Federal Reserve president Raphael Bostic said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-fed-bostic.html?searchResultPosition=10
 
