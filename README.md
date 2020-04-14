@@ -1,12 +1,12 @@
-**Governor Cuomo Says if Trump Ordered New York to Reopen,' I Wouldn't Do It'**\
-`New York Governor Andrew Cuomo said on Tuesday he would not abide by any order that President Donald Trump gave to reopen his state in an unsafe manner during the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/14/us/politics/14reuters-health-coronavirus-usa-cuomo.html?searchResultPosition=8
+**IMF Projects a Recession for Sub-Saharan Africa in 2020**\
+`Sub-Saharan Africa's gross domestic product is expected to contract 1.6% this year, compared 3.1% growth last year, as the coronavirus pandemic wrecks the region's economies, the International Monetary Fund said on Tuesday .`\
+https://nytimes.com/reuters/2020/04/14/world/africa/14reuters-health-coronavirus-africa-imf.html?searchResultPosition=8
 
-**Watch Church Services on TV, Order Easter Eggs by Phone, Kazakh Christians Told**\
-`Kazakhstan's Orthodox Christians should watch Easter services on television and order eggs and other festive foods by phone as churches remain closed due to the coronavirus outbreak, the country's top clergyman said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-kazakhstan-easter.html?searchResultPosition=9
+**Truck Driver Rescued From Cab Dangling 70 Feet Over River**\
+`Firefighters rescued a truck driver whose tractor-trailer was nearly blown off a bridge in Virginia, leaving his cab dangling 70 feet over a river.`\
+https://nytimes.com/aponline/2020/04/14/us/ap-us-virginia-bridge-rescue.html?searchResultPosition=9
 
-**Tour De France Called Off Amid Virus, No New Dates Set**\
-`After weeks of holding out hope the Tour de France would be able to go ahead as planned despite the coronavirus pandemic, the world’s most famous cycling race was finally added to the list of sporting events called off.`\
-https://nytimes.com/aponline/2020/04/14/sports/ap-cyc-tour-de-france-postponed.html?searchResultPosition=10
+**Coronavirus 'Great Lockdown' to Shrink Global Economy by 3% in 2020: IMF**\
+`The global economy is expected to shrink by 3.0% during 2020 in a stunning coronavirus-driven collapse of activity that will mark the steepest downturn since the Great Depression of the 1930s, the International Monetary Fund said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-imf-worldbank-outlook.html?searchResultPosition=10
 
