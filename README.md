@@ -1,12 +1,12 @@
-**UK Does Not Face Health Versus Economics Choice Over Coronavirus: Sunak**\
-`British finance minister Rishi Sunak said the government was not facing a choice between slowing the spread of the coronavirus or protecting the economy.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-britain-sunak.html?searchResultPosition=8
+**Governor Cuomo Says if Trump Ordered New York to Reopen,' I Wouldn't Do It'**\
+`New York Governor Andrew Cuomo said on Tuesday he would not abide by any order that President Donald Trump gave to reopen his state in an unsafe manner during the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/14/us/politics/14reuters-health-coronavirus-usa-cuomo.html?searchResultPosition=8
 
-**Spain Split Between Concern and Relief as Coronavirus Lockdown Eased**\
-`The construction sector across Spain and other industries in Catalonia and the Basque Country went back to work on Tuesday, after the government eased one of the world's toughest coronavirus lockdowns as the pace of new infections slowed.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-spain.html?searchResultPosition=9
+**Watch Church Services on TV, Order Easter Eggs by Phone, Kazakh Christians Told**\
+`Kazakhstan's Orthodox Christians should watch Easter services on television and order eggs and other festive foods by phone as churches remain closed due to the coronavirus outbreak, the country's top clergyman said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-kazakhstan-easter.html?searchResultPosition=9
 
-**Wells Fargo First-Quarter Profit Decimated as Coronavirus Boosts Provisions**\
-`Wells Fargo & Co first-quarter profit plunged as it set aside billions of dollars to cover potential loan-losses from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-wells-fargo-results.html?searchResultPosition=10
+**Tour De France Called Off Amid Virus, No New Dates Set**\
+`After weeks of holding out hope the Tour de France would be able to go ahead as planned despite the coronavirus pandemic, the world’s most famous cycling race was finally added to the list of sporting events called off.`\
+https://nytimes.com/aponline/2020/04/14/sports/ap-cyc-tour-de-france-postponed.html?searchResultPosition=10
 
