@@ -1,12 +1,12 @@
-**AP Explains: India Scrambles to Curb Virus After Late Start**\
-`Indian Prime Minister Narendra Modi extended the world’s largest coronavirus lockdown on Tuesday to head off the epidemic's peak, with officials racing to make up for lost time as the caseload crossed 10,000.`\
-https://nytimes.com/aponline/2020/04/14/business/ap-as-ap-explains-virus-outbreak-india.html?searchResultPosition=8
+**Renault Sells Its Stake in Chinese Joint Venture to Partner Dongfeng Motor**\
+`French carmaker Renault said on Tuesday it was selling out of its stake in a Chinese joint venture with Dongfeng Motor Corporation to Dongfeng, which Renault said would help it maximise synergies with Japanese partner Nissan.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-renault-m-a-dongfeng.html?searchResultPosition=8
 
-**Apple Shipped 2.5 Million iPhones in China in March Following Virus Slump: Government Data**\
-`Apple Inc shipped roughly 2.5 million iPhones in China in March, a slight rebound after one of its worst months in the country ever, according to government data published on Friday.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-china-smartphones.html?searchResultPosition=9
+**Julius Baer to Postpone AGM, Propose Split Dividend**\
+`Swiss wealth manager Julius Baer will propose splitting its 2019 dividend payment into two halves following a regulatory request, it said on Tuesday, postponing by a month its annual general meeting in order to meet notification requirements.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-julius-baer.html?searchResultPosition=9
 
-**China Tightens Russian Border Checks, Approves Experimental Coronavirus Vaccine Trials**\
-`China has approved early-stage human tests for two experimental vaccines to combat the new coronavirus as it battles to contain imported cases, especially from neighbouring Russia, the new "front line" in the war on COVID-19.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-china.html?searchResultPosition=10
+**Latest on the Spread of the Coronavirus Around the World**\
+`More than 1.88 million people have been reported to be infected by the novel coronavirus globally and 119,168 have died, according to a Reuters tally, as of 0200 GMT on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-latest-factbox.html?searchResultPosition=10
 
