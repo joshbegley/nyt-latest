@@ -1,12 +1,12 @@
-**Sanders Backs Biden as Ex-Rivals Join Forces to Beat Trump**\
-`Bernie Sanders has endorsed Joe Biden's presidential campaign, encouraging his progressive supporters to rally behind the presumptive Democratic nominee in an urgent bid to defeat President Donald Trump.`\
-https://nytimes.com/aponline/2020/04/14/us/politics/ap-us-election-2020-biden-sanders.html?searchResultPosition=8
+**Spain Seizes Virus Tests Bound for Returning Siemens Gamesa Workers: Union**\
+`Spanish authorities have requisitioned 2,000 antibody tests procured by wind turbine maker Siemens Gamesa and intended to check whether employees have been infected with the coronavirus, a labour union spokeswoman said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-spain-testing.html?searchResultPosition=8
 
-**Backlog for Virus Tests Grows in New Jersey: Live Updates**\
-`A crucial element in the fight to contain the coronavirus is hindered by a lack of equipment and nurses and a pileup at labs.`\
-https://nytimes.com/2020/04/14/nyregion/coronavirus-new-york-update.html?searchResultPosition=9
+**Factbox: Sports Events Around the World Hit by Coronavirus Pandemic**\
+`Major sports events around the world that have been hit by the coronavirus pandemic:`\
+https://nytimes.com/reuters/2020/04/14/sports/skiing/14reuters-health-coronavirus-sport-factbox.html?searchResultPosition=9
 
-**China's Stocks Short-Selling at a Record High**\
-`The value of shares that investors in China's onshore stock markets have borrowed to sell short held close to record levels set last week, amid bearishness over the new coronavirus pandemic, market data released on Tuesday showed.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-china-markets-shortselling.html?searchResultPosition=10
+**Ten U.S. States Developing 'Reopening' Plans Account for 38% of U.S. Economy**\
+`The ten U.S. states coordinating plans separately from the White House to reopen businesses shut by the coronavirus are responsible for an outsized proportion of the U.S. economy. `\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-usa-states.html?searchResultPosition=10
 
