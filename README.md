@@ -1,8 +1,8 @@
-**2 Largest US Rivers Top New Listing of Endangered Waterways**\
-`The nation's two largest rivers top a new listing of the most endangered waterways, according to a report released Tuesday.`\
-https://nytimes.com/aponline/2020/04/14/us/ap-us-endangered-rivers.html?searchResultPosition=9
+**Empty Pews, Empty Collection Baskets: Coronavirus Hits U.S. Church Finances**\
+`St. Anselm Roman Catholic Church in New York's Brooklyn borough is used to limping along, month after month, at a budget deficit of several thousand dollars a week. `\
+https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-usa-church-finances.html?searchResultPosition=9
 
-**Apple Launches Tool to Track People Movement to Curb Virus Spread**\
-`Apple Inc said on Tuesday it has released a tool based on Apple Maps that will help governments fight the spread of coronavirus by showing the change in volume of people driving, walking or taking public transit.  `\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-apple.html?searchResultPosition=10
+**Global Creditors Agree Debt Relief for Poor Countries Hit by Pandemic**\
+`Major international creditors will suspend debt payments this year for the world's poorest countries, who will be hit hardest by the rapidly spreading coronavirus pandemic that has sparked the steepest downturn in the global economy since the 1930s.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-imf-worldbank-debt.html?searchResultPosition=10
 
