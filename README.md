@@ -1,12 +1,12 @@
-**Corrections: April 14, 2020**\
-`Corrections that appeared in print on Tuesday, April 14, 2020.`\
-https://nytimes.com/2020/04/13/pageoneplus/corrections-april-14-2020.html?searchResultPosition=8
+**MLS Considers Alternative Formats for 2020 Season**\
+`MLS commissioner Don Garber told ESPN that the league will explore alternative formats when it comes to completing the 2020 season.`\
+https://nytimes.com/reuters/2020/04/14/sports/14reuters-soccer-mls-formats.html?searchResultPosition=8
 
-**Quotation of the Day: Americans Salute Cashiers, Meat Packers and Others, but Their Risk Is Rising**\
-`Quotation of the Day for Tuesday, April 14, 2020.`\
-https://nytimes.com/2020/04/13/todayspaper/quotation-of-the-day-americans-salute-cashiers-meat-packers-and-others-but-their-risk-is-rising.html?searchResultPosition=9
+**Value of China's Farm Imports From U.S. Were $5.05 Billion in First Quarter: Customs**\
+`China brought in 35.56 billion yuan ($5.05 billion) worth of farm goods from the United States in the first three months of 2020, according to customs data. `\
+https://nytimes.com/reuters/2020/04/14/world/americas/14reuters-usa-trade-china-agriculture.html?searchResultPosition=9
 
-**Japan to Allow Companies to Extend Deadline for Submission of Securities Reports**\
-`Japan will allow companies to extend the deadline for submission of securities and financial reports until the end of September, amid difficulty closing their books for the recent financial year-end due to the coronavirus pandemic, Finance Minister Taro Aso said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-health-coronavirus-japan-securities.html?searchResultPosition=10
+**Brazil's Leader Hasn’t Fired Coronavirus Messenger ... Yet**\
+`Brazilian President Jair Bolsonaro and his health minister are in open conflict over the country’s coronavirus response, leading many to worry that the far-right leader could soon fire the official who has played a major role in containing the outbreak. `\
+https://nytimes.com/aponline/2020/04/14/world/americas/ap-lt-virus-outbreak-brazil-health-minister.html?searchResultPosition=10
 
