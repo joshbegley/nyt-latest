@@ -1,8 +1,8 @@
-**California Set the Tone on Coronavirus Shutdowns. What’s Its Next Move?**\
-`A state once considered one of the most vulnerable to coronavirus infections has kept deaths comparatively low, and is cautiously looking at next steps.`\
-https://nytimes.com/2020/04/14/us/california-coronavirus-shutdown.html?searchResultPosition=9
+**Kate the Chemist Book Has 25 Experiments for Housebound Kids**\
+`If your housebound family needs a new diversion, follow Kate Biberdorf’s example and try a hands-on approach to something besides a video game controller.`\
+https://nytimes.com/aponline/2020/04/14/us/ap-us-books-kate-the-chemist.html?searchResultPosition=9
 
-**Jordan to Ban Mosque Prayers During Fasting Month of Ramadan: Minister**\
-`Jordan will not allow public worship in mosques during the holy month of Ramadan that begins next week as part of measures to stem the spread of coronavirus, the religious affairs minister said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/world/middleeast/14reuters-health-coronavirus-jordan-mosques.html?searchResultPosition=10
+**Will the Coronavirus End Israel’s Political Paralysis?**\
+`Benny Gantz, who had been seeking to unseat Prime Minister Benjamin Netanyahu, is now talking with his rival about forming a unity government amid the public health crisis.`\
+https://nytimes.com/2020/04/14/world/middleeast/israel-coronavirus-netanyahu-gantz.html?searchResultPosition=10
 
