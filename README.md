@@ -1,12 +1,12 @@
-**Kazakhstan Summons Chinese Ambassador in Protest Over Article**\
-`Kazakhstan's foreign ministry summoned the Chinese ambassador on Tuesday to protest over an article saying the country was keen to become part of China, the ministry said.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-kazakhstan-china.html?searchResultPosition=8
+**On Politics: An Eye Toward Opening for Business**\
+`East and West Coast governors unite, and so do Biden and Sanders: This is your morning tip sheet.`\
+https://nytimes.com/2020/04/14/us/politics/trump-coronavirus-governors.html?searchResultPosition=8
 
-**DealBook: Does Private Equity Deserve a Public Bailout?**\
-`Whatever you think about it, public pensions are dependent on private equity investments for returns, and their portfolio companies employ millions.`\
-https://nytimes.com/2020/04/14/business/dealbook/bailout-private-equity-venture-capital.html?searchResultPosition=9
+**As Pandemic Grips Russia, an Age-Old Bane Returns: Drinking**\
+`The widespread, false belief that alcohol will protect drinkers from the coronavirus is helping drive a spike in liquor sales and domestic violence.`\
+https://nytimes.com/2020/04/14/world/europe/russia-coronavirus-alcoholism.html?searchResultPosition=9
 
-**Johnson & Johnson Cuts 2020 Profit Forecast on Coronavirus Uncertainty**\
-`Johnson & Johnson on Tuesday cut its 2020 adjusted profit forecast, as the coronavirus outbreak causes uncertainty across global markets.  `\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-johnson-johnson-results.html?searchResultPosition=10
+**What Day Is It? You’re Not the Only One Asking**\
+`When no one’s leaving the house, what does time even mean?`\
+https://nytimes.com/2020/04/14/us/coronavirus-time-what-day-is-it.html?searchResultPosition=10
 
