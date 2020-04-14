@@ -1,12 +1,12 @@
-**Lonely Times to Be a New Mum as UK Coronavirus Lockdown Halts Normal Life**\
-`Kimberley Hutton went to hospital to have a baby in the middle of March, stayed for a week, and returned to a world completely changed.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-britain-birth.html?searchResultPosition=8
+**Trump Will Replace Fauci With First Fox News Guest He Sees, Colbert Says**\
+`“So get ready for new director of allergy and infectious disease, Kid Rock,” Stephen Colbert joked on Monday night.`\
+https://nytimes.com/2020/04/14/arts/television/late-night-trump-fauci.html?searchResultPosition=8
 
-**How Bad Will the Economy Get? Companies Will Provide Clues**\
-`The quarterly parade of corporate earnings and management comments could reveal how much damage the pandemic will do and how long the pain will last.`\
-https://nytimes.com/2020/04/14/business/economy/coronavirus-corporate-earnings-stocks.html?searchResultPosition=9
+**North Korea Fires Missiles as South’s Elections Loom**\
+`The tests of short-range missiles came a day before South Korea holds parliamentary elections amid the coronavirus pandemic.`\
+https://nytimes.com/2020/04/14/world/asia/north-korea-fires-missiles.html?searchResultPosition=9
 
-**N.F.L. Draft 2020: No Goodell Hugs? No Boos? No Problem**\
-`Commissioner Roger Goodell will announce picks from his basement, and players will miss out on the bear hugs that have become a tradition.`\
-https://nytimes.com/2020/04/14/sports/football/nfl-draft-virtual.html?searchResultPosition=10
+**Australia Jobless Rate to Spike but Coronavirus Restrictions to Remain**\
+`Australia's jobless rate is forecast to spike to the highest level in a quarter of a century because of the coronavirus pandemic, but officials said on Tuesday it was still too soon to let up on social restrictions that are curbing economic growth.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-australia.html?searchResultPosition=10
 
