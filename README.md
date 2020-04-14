@@ -1,12 +1,12 @@
+**Special Report: Hong Kong Judges Battle Beijing Over Rule of Law as Pandemic Chills Protests**\
+`The independence of Hong Kong's judicial system is under assault from the Communist Party leadership in Beijing, senior judges in the city told Reuters, posing the gravest threat to the rule of law since Britain handed its former colony back to Chinese sovereignty in 1997.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-hongkong-politics-judiciary-specialreport.html?searchResultPosition=8
+
+**JPMorgan 1Q Profit Plunges as Virus Causes Massive Losses**\
+`JPMorgan Chase said Tuesday that first-quarter profit plunged by 69% from a year ago, as the bank set aside billions of dollars to cover potential losses tied to the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/04/14/business/ap-us-jpmorgan-results.html?searchResultPosition=9
+
 **Spain Seizes Virus Tests Bound for Returning Siemens Gamesa Workers: Union**\
 `Spanish authorities have requisitioned 2,000 antibody tests procured by wind turbine maker Siemens Gamesa and intended to check whether employees have been infected with the coronavirus, a labour union spokeswoman said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-spain-testing.html?searchResultPosition=8
-
-**Factbox: Sports Events Around the World Hit by Coronavirus Pandemic**\
-`Major sports events around the world that have been hit by the coronavirus pandemic:`\
-https://nytimes.com/reuters/2020/04/14/sports/skiing/14reuters-health-coronavirus-sport-factbox.html?searchResultPosition=9
-
-**Ten U.S. States Developing 'Reopening' Plans Account for 38% of U.S. Economy**\
-`The ten U.S. states coordinating plans separately from the White House to reopen businesses shut by the coronavirus are responsible for an outsized proportion of the U.S. economy. `\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-usa-states.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-spain-testing.html?searchResultPosition=10
 
