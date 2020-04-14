@@ -1,4 +1,4 @@
-**The Top iPhone and iPad Apps on App Store**\
-`The top iPhone and iPad apps on App Store week ending April 12th`\
-https://nytimes.com/aponline/2020/04/14/business/ap-us-itunes-apps-top-10.html?searchResultPosition=10
+**Republicans Take Aim at Michigan Governor Over Virus Response**\
+`Republicans in Michigan escalated attacks Tuesday on Democratic Governor Gretchen Whitmer's efforts to combat COVID-19, arguing her policies are unnecessarily straining the state's economy even as the state saw a jump in deaths from the virus.`\
+https://nytimes.com/reuters/2020/04/14/us/politics/14reuters-health-coronavirus-michigan-governor.html?searchResultPosition=10
 
