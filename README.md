@@ -1,4 +1,4 @@
-**Kentucky Lawmakers Override Veto of Voter ID Measure**\
-`Republican lawmakers in Kentucky swept aside the Democratic governor's veto of a bill to require the state's residents to show a government-issued photo ID in order to vote.`\
-https://nytimes.com/aponline/2020/04/14/us/ap-us-xgr-photo-id-voting-kentucky.html?searchResultPosition=10
+**Trump Directs Halt to Payments to WHO During Virus Pandemic**\
+`President Donald Trump said Tuesday that he was cutting off U.S. payments to the World Health Organization during the coronavirus pandemic, accusing the organization of failing to do enough to stop the virus from spreading when it first surfaced in China.`\
+https://nytimes.com/aponline/2020/04/14/us/politics/ap-us-virus-outbreak-trump-who.html?searchResultPosition=10
 
