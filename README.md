@@ -1,4 +1,4 @@
-**Some European Nations Ease Pandemic Rules, but Move Warily**\
-`The lifting of restrictions is an early test of whether democracies can restart their economies and restore basic freedoms without refueling the spread of the coronavirus.`\
-https://nytimes.com/2020/04/14/world/europe/coronavirus-reopenings-europe.html?searchResultPosition=10
+**Treasury and Airlines Agree on Terms of Industry Bailout**\
+`Airlines will receive billions of dollars in grants and loans to pay flight attendants, pilots and other employees.`\
+https://nytimes.com/2020/04/14/business/coronavirus-airlines-bailout-treasury-department.html?searchResultPosition=10
 
