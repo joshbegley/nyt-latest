@@ -1,4 +1,4 @@
-**Justice Dept. Voices Support for Church’s Drive-in Services Despite Virus Orders**\
-`Attorney General William Barr said in a statement on Tuesday that “even in times of emergency,” the First Amendment prohibits religious discrimination.`\
-https://nytimes.com/2020/04/14/us/politics/virus-justice-department-religious-freedom.html?searchResultPosition=10
+**Trump Adviser Interview Helps '60 Minutes' to Top of Ratings**\
+`A contentious interview with White House adviser Peter Navarro over the administration's response to the coronavirus helped “60 Minutes” earn the top spot in the ratings for the third time this season. `\
+https://nytimes.com/aponline/2020/04/14/business/bc-us-nielsens.html?searchResultPosition=10
 
