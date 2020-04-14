@@ -1,8 +1,8 @@
-**Red Sox WS Hero Pearce: 'Right Now I'm Retired'**\
-`Steve Pearce said he is retired, ending a 13-year career that included the 2018 World Series Most Valuable Player award.`\
-https://nytimes.com/reuters/2020/04/14/sports/baseball/14reuters-baseball-mlb-bos-pearce-retirement.html?searchResultPosition=9
+**Fauci: 'We're Not There Yet' on Key Steps to Reopen Economy**\
+`Dr. Anthony Fauci, the government's top infectious disease expert, said Tuesday the U.S. does not yet have the critical testing and tracing procedures needed to begin reopening the nation's economy, adding a dose of caution to increasingly optimistic projections from the White House. `\
+https://nytimes.com/aponline/2020/04/14/us/politics/ap-us-virus-outbreak-fauci-.html?searchResultPosition=9
 
-**Cigar-Shaped Interstellar Trespasser May Be Fragment of Wrecked Planet**\
-`A reddish-colored cigar-shaped interstellar object called 'Oumuamua that is tumbling through our solar system may be wreckage from a planet ripped apart when it roamed too close to the faraway star it once orbited, according to researchers.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-space-exploration-interstellar.html?searchResultPosition=10
+**French Court Orders Amazon to Suspend Non-Essential Sales**\
+`A French court has ordered Amazon to stop selling, storing or delivering non-essential goods for the next month to protect its employees from the virus.`\
+https://nytimes.com/aponline/2020/04/14/business/bc-virus-outbreak-france-amazon.html?searchResultPosition=10
 
