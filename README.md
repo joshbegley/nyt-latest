@@ -1,4 +1,4 @@
-**Peru Will Emerge From 'Economic Hibernation' by May, Elections Date Safe: President**\
-`Peru hopes to gradually emerge from the economic hibernation aimed at halting the spread of the novel coronavirus and return to "more or less" normal levels of productive activity in 2021, President Martin Vizcarra said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/world/americas/14reuters-peru-economy.html?searchResultPosition=10
+**General Motors Says Will Make 1.5 Million Masks a Month in Mexico**\
+`General Motors Co will begin producing 1.5 million face masks a month at its plant in the Mexican city of Toluca at the end of April, it said on Tuesday, aiming for 9 million masks over six months to help curb the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-general-motors-mexico.html?searchResultPosition=10
 
