@@ -1,12 +1,12 @@
-**Australia Business Survey Shows Record Falls in Activity, Confidence**\
-`Measures of Australian business and consumer sentiment suffered their steepest falls on record in March as whole sectors of the economy were shut down to stem the coronavirus, likely tipping the country into its first recession in three decades.`\
-https://nytimes.com/reuters/2020/04/13/world/asia/13reuters-australia-economy-businesssentiment.html?searchResultPosition=8
+**‘Better Call Saul’ Season 5, Episode 9 Recap: Bullet Holes**\
+`Jimmy’s newest client asks a lot of questions, a few of which he can’t quite answer. Thankfully, Kim can.`\
+https://nytimes.com/2020/04/13/arts/television/better-call-saul-episode-9-recap.html?searchResultPosition=8
 
-**Plea Reached for Man Accused of ‘Swatting’ With White Supremacists**\
-`John William Kirby Kelley, a former Virginia college student, suggested his school as a swatting target, according to court records.`\
-https://nytimes.com/2020/04/13/us/black-church-swatting-threats-plea.html?searchResultPosition=9
+**Virginia’s New Laws on L.G.B.T. Protections, Guns and Marijuana Reflect a Shift in Power**\
+`The measures came about after Democrats took control of the Legislature for the first time in more than two decades last year.`\
+https://nytimes.com/2020/04/13/us/virginia-democrats-new-laws.html?searchResultPosition=9
 
-**AP PHOTOS: Tokyo Airports — Eerie Reminder of Virus' Toll**\
-`An express train bound for the Narita International Airport departed Tokyo Station on time at 5:33 p.m. with only one passenger.`\
-https://nytimes.com/aponline/2020/04/13/sports/ap-virus-outbreak-tokyo-empty-airports.html?searchResultPosition=10
+**Talk to the Hand**\
+`Joe Hansen makes his New York Times Crossword debut.`\
+https://nytimes.com/2020/04/13/crosswords/daily-puzzle-2020-04-14.html?searchResultPosition=10
 
