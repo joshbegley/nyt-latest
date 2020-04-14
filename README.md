@@ -1,8 +1,8 @@
-**Adidas Cleared for 3 Billion Euros in Rescue Loans**\
-`Sports apparel and shoe company Adidas says it has been approved by the German government for a 3 billion-euro ( $3.3 billion) emergency loan to help the company get through a period of lost business due to the virus outbreak.`\
-https://nytimes.com/aponline/2020/04/14/business/ap-germany-adidas-rescue-loan.html?searchResultPosition=9
+**2 Largest US Rivers Top New Listing of Endangered Waterways**\
+`The nation's two largest rivers top a new listing of the most endangered waterways, according to a report released Tuesday.`\
+https://nytimes.com/aponline/2020/04/14/us/ap-us-endangered-rivers.html?searchResultPosition=9
 
-**Even Google and Facebook May be Facing an Ad Slump**\
-`Though ad sales at the two companies are expected to be down, they are likely to fare better than smaller peers and publishers.`\
-https://nytimes.com/2020/04/14/technology/coronavirus-google-facebook-advertising.html?searchResultPosition=10
+**Apple Launches Tool to Track People Movement to Curb Virus Spread**\
+`Apple Inc said on Tuesday it has released a tool based on Apple Maps that will help governments fight the spread of coronavirus by showing the change in volume of people driving, walking or taking public transit.  `\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-apple.html?searchResultPosition=10
 
