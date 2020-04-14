@@ -1,12 +1,12 @@
-**Pandemic Survival Plans: U.S. Businesses Scramble to Conserve Cash, Boost Liquidity**\
-`Charlie Straface, president of Norwegian aluminum maker Norsk Hydro's North American extrusion operations, convenes a coronavirus task force every other day to draw up cost-cutting measures to offset declining revenues and protect the unit's cash balance during the economic slump related to the outbreak.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-companies-strategy.html?searchResultPosition=8
+**Spain, Austria Allow Partial Return to Normal From Coronavirus Lockdowns**\
+`Spain and Austria allowed partial returns to work after the Easter holiday on Tuesday but Britain, France and India extended their lockdowns to try to rein in the coronavirus outbreak, the most serious world pandemic in a century.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus.html?searchResultPosition=8
 
-**Explainer: Trump Has Little Power to Restart U.S. Economy**\
-`President Donald Trump said on Monday it was his decision when to reopen the U.S. economy, which has been largely shut down to slow the spread of the novel coronavirus.`\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-usa-reopen-explainer.html?searchResultPosition=9
+**As Virus Tears Through Reservation, Navajos Give Lifeline to Elders and Families**\
+`To the sound of birdsong on rolling grassland, a pickup truck crawls up a dirt track to bring firewood and food to a Navajo family of seven whose father died of the coronavirus hours earlier.`\
+https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-usa-navajo.html?searchResultPosition=9
 
-**Coronavirus Drives U.S. Political Protest Off the Streets and Into Online Forums**\
-`At any other time, a divisive U.S. president dealing with a national crisis that is causing severe economic dislocation might bring throngs of demonstrators to the streets of Washington and state capitals across the country. `\
-https://nytimes.com/reuters/2020/04/14/us/politics/14reuters-health-coronavirus-usa-protests.html?searchResultPosition=10
+**Why Vote by Mail Triggered a Partisan Battle Ahead of November's Election**\
+`The drive to expand vote-by-mail options during the coronavirus pandemic has emerged as the centerpiece of a growing political fight ahead of November's election.`\
+https://nytimes.com/reuters/2020/04/14/us/politics/14reuters-usa-election-absentee-voting.html?searchResultPosition=10
 
