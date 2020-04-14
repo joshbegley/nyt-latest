@@ -1,4 +1,4 @@
-**With Cheers, New York Nurses Greet Reinforcements From Across the U.S.**\
-`With loud cheers and applause, medical staff at New York's Northwell Health network greeted 46 nurses on Tuesday who had arrived from all over the United States to reinforce hospitals as they battle the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-usa-nurses.html?searchResultPosition=10
+**Former London Marathon Winner Wanjiru Provisionally Suspended**\
+`Kenyan Daniel Wanjiru, the winner of the 2017 London Marathon, has been provisionally suspended by the Athletics Integrity Unit.`\
+https://nytimes.com/reuters/2020/04/14/sports/14reuters-athletics-kenya-wanjiru.html?searchResultPosition=10
 
