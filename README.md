@@ -1,4 +1,4 @@
-**Louisiana Presidential Primary Pushed Back Again, to July 11**\
-`Gov. John Bel Edwards on Tuesday again delayed Louisiana's presidential primary because of the coronavirus — this time to July 11 — as the state's chief elections officer asked lawmakers to expand mail-in balloting and early voting.`\
-https://nytimes.com/aponline/2020/04/14/us/ap-us-virus-outbreak-louisiana-election-1st-ld-writethru.html?searchResultPosition=10
+**Bernie Sanders Pitches His Supporters a New Idea: Biden 2020**\
+`The Vermont senator’s devoted backers might come to embrace Joe Biden’s candidacy, but it’s going to take more than a joint appearance via live stream.`\
+https://nytimes.com/2020/04/14/us/politics/bernie-sanders-joe-biden-democrats.html?searchResultPosition=10
 
