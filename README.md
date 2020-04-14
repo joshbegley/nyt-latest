@@ -1,8 +1,8 @@
-**For Black Men, Fear That Masks Will Invite Racial Profiling**\
-`African-American men worry that following the C.D.C. recommendation to cover their faces in public could expose them to harassment from the police.`\
-https://nytimes.com/2020/04/14/us/coronavirus-masks-racism-african-americans.html?searchResultPosition=9
+**Pandemic Exposing 'Cracks' in Financial System, Bank Losses 'Likely': IMF**\
+`The novel coronavirus outbreak has exposed "cracks" in the global financial system and "will likely" see banks suffer both credit losses and market losses that will test their reserves, the International Monetary Fund (IMF) warned on Tuesday. `\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-imf-worldbank-financial-stability.html?searchResultPosition=9
 
-**Police: Woman Crashes News Van With Reporter Still Inside**\
-`Atlanta police say a woman who wrecked her car later stole the van of a TV news crew that came to cover the crash, ignoring the screams of a reporter who was still inside, and then wrecked that vehicle as well. `\
-https://nytimes.com/aponline/2020/04/14/us/ap-us-news-van-kidnapping.html?searchResultPosition=10
+**Man Charged in Fatal Shooting of Indianapolis Police Officer**\
+`A man was formally charged with murder Tuesday in the slaying of an Indianapolis police officer who authorities said was shot through an apartment's door while responding with other officers to a domestic violence call.`\
+https://nytimes.com/aponline/2020/04/14/us/ap-us-indianapolis-officer-shot.html?searchResultPosition=10
 
