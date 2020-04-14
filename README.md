@@ -1,12 +1,12 @@
-**South Carolina House Candidate Promotes Trump Ties in TV Ad**\
-`With less than two months until South Carolina primary voters select a Republican challenger they hope can take back the congressional seat Rep.`\
-https://nytimes.com/aponline/2020/04/14/us/politics/ap-us-election-2020-congress-south-carolina.html?searchResultPosition=8
+**Women in Poland Protest Draft Law Curbing Abortion Rights**\
+`Paying lip service to COVID-19 lockdown rules, scores of women driving cars or riding bicycles in Warsaw protested Tuesday against a new effort by the conservative government to tighten already restrictive anti-abortion laws. `\
+https://nytimes.com/aponline/2020/04/14/world/europe/ap-eu-poland-womens-protest.html?searchResultPosition=8
 
-**AP Interview: Sports Medicine Leader Promotes Virus Protocol**\
-`While soccer leagues around Europe are still debating whether and when to resume playing, the leader of the continent’s Federation of Sports Medicine Associations is calling for a detailed series of tests to clear athletes before they return to training.`\
-https://nytimes.com/aponline/2020/04/14/sports/soccer/ap-soc-european-soccer-health-protocol.html?searchResultPosition=9
+**Death Toll From Tornado Outbreak Rises To at Least 34**\
+`The death toll from a tornado outbreak that ravaged the South rose to at least 34 on Tuesday as Mississippi officials said a 12th person had died there.`\
+https://nytimes.com/aponline/2020/04/14/us/ap-us-severe-weather.html?searchResultPosition=9
 
-**Where to Order Fried Chicken for Takeout and Delivery**\
-`Spots across the city, including Adda, The Beatrice Inn and Peaches HotHouse, are all offering the dish.`\
-https://nytimes.com/2020/04/14/dining/fried-chicken-nyc-coronavirus.html?searchResultPosition=10
+**'Tomorrow Will Be a Good Day': Briton, 99, Raises £1.5 Million for Health Service**\
+`A 99-year-old war veteran has raised nearly 1.5 million pounds for British health workers by attempting to walk the length of his garden one hundred times before his 100th birthday later this month.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-britain-veteran.html?searchResultPosition=10
 
