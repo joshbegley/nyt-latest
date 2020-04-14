@@ -1,12 +1,12 @@
-**South Korea Set to Double Supply of Coronavirus Tests to U.S.**\
-`South Korea's SolGent has secured an order to supply a U.S. government agency with an additional 7,500 kits which can each perform 100 coronavirus tests, the CEO of the biotech firm told Reuters.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-south-korea-usa.html?searchResultPosition=8
+**Explainer: Trump Has Little Power to Restart U.S. Economy**\
+`President Donald Trump said on Monday it was his decision when to reopen the U.S. economy, which has been largely shut down to slow the spread of the novel coronavirus.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-usa-reopen-explainer.html?searchResultPosition=8
 
-**Bedtime Was Hard Enough. Then Came Quarantine.**\
-`Kids across the world are having trouble sleeping. There are ways to help.`\
-https://nytimes.com/2020/04/14/parenting/coronavirus-kids-sleep.html?searchResultPosition=9
+**Coronavirus Drives U.S. Political Protest Off the Streets and Into Online Forums**\
+`At any other time, a divisive U.S. president dealing with a national crisis that is causing severe economic dislocation might bring throngs of demonstrators to the streets of Washington and state capitals across the country. `\
+https://nytimes.com/reuters/2020/04/14/us/politics/14reuters-health-coronavirus-usa-protests.html?searchResultPosition=9
 
-**5 Things to Know Today-That Aren't About the Virus**\
-`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today:`\
-https://nytimes.com/aponline/2020/04/14/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=10
+**Figures Show Hundreds of COVID-19 Deaths in UK Care Homes**\
+`Hundreds more people with COVID-19 have died in Britain than have been recorded in the government’s daily tally, official figures showed Tuesday — including a tide of deaths in nursing homes that staff say are being overlooked.`\
+https://nytimes.com/aponline/2020/04/14/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=10
 
