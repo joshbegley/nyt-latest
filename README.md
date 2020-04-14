@@ -1,4 +1,4 @@
-**Trump Adviser Interview Helps '60 Minutes' to Top of Ratings**\
-`A contentious interview with White House adviser Peter Navarro over the administration's response to the coronavirus helped “60 Minutes” earn the top spot in the ratings for the third time this season. `\
-https://nytimes.com/aponline/2020/04/14/business/bc-us-nielsens.html?searchResultPosition=10
+**Franklin Graham Says He Is Being Harassed Over Central Park Hospital**\
+`The evangelical leader’s relief group has been criticized for requiring workers at its field hospital to say they oppose same-sex marriage.`\
+https://nytimes.com/2020/04/14/nyregion/reverend-franklin-graham-harassment.html?searchResultPosition=10
 
