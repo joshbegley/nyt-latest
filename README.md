@@ -1,12 +1,12 @@
-**Wells Fargo Takes 1Q Earnings, Revenue Hit From Virus**\
-`Wells Fargo's profits plunged nearly 90% in the first quarter as the bank had to set aside billion of dollars to cover potentially bad loans due to the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/14/business/bc-earns-wells-fargo.html?searchResultPosition=8
+**UK PM Johnson Continues His Recovery From COVID-19**\
+`Prime Minister Boris Johnson is continuing his recovery from COVID-19 at his official country residence, his spokesman said on Tuesday, repeating that the British leader will only return to work on his medical team's advice.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-johnson.html?searchResultPosition=8
 
-**The White House Blessed a War in Libya, but Russia Won It**\
-`Russia wanted more leverage over an aspiring Libyan strongman. The White House provided it by assenting to a disastrous civil war.`\
-https://nytimes.com/2020/04/14/world/middleeast/libya-russia-john-bolton.html?searchResultPosition=9
+**U.S. Import Prices Decline in March**\
+`U.S. import prices dropped in March, pointing to import deflation that could deepen amid the pandemic.`\
+https://nytimes.com/reuters/2020/04/14/us/14reuters-usa-economy-inflation.html?searchResultPosition=9
 
-**Is California a Nation-State?**\
-`Tuesday: Gov. Gavin Newsom said he doesn’t mean “nation-state” literally. But he’s proud of it. Also: Remembering Rosary Celaya Castro-Olega.`\
-https://nytimes.com/2020/04/14/us/california-coronavirus-newsom-nation-state.html?searchResultPosition=10
+**Europe, LatAm to Lead 2020 Emerging Economies' Downturn; Asia to Limit Damage, IMF Says**\
+`Emerging and developing economies are likely to contract about 1% this year as the coronavirus pandemic disrupts economic activity across the world, the International Monetary Fund said on Tuesday, with Asia ticking up to slightly offset the sharp declines expected in emerging Europe and Latin America.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-imf-worldbank-emerging.html?searchResultPosition=10
 
