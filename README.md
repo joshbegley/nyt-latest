@@ -1,8 +1,8 @@
-**Pakistan Clerics Call for Lifting of Congregational Prayer Limits**\
-`Prominent clerics are demanding the lifting of restrictions on congregational prayers at mosques in Pakistan, which has recorded 5,837 coronavirus cases and 96 related deaths.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-pakistan-mosques.html?searchResultPosition=9
+**Veterans Group Continues Legal Battle Over Discharge Records**\
+`A veterans group is continuing to sue the Pentagon over access to military discharge records despite a federal judge's recent dismissal of the case. `\
+https://nytimes.com/aponline/2020/04/14/us/ap-us-veterans-lawsuit-discharge-records.html?searchResultPosition=9
 
-**Chile to Let Some Prisoners Out of Jail, but Not Pinochet-Era Human Rights Violators**\
-`Some Chilean criminals are set to be released from crowded jails vulnerable to coronavirus after right-wing lawmakers withdrew a controversial lawsuit that sought to also commute the sentences of those convicted of human rights abuses under dictator Augusto Pinochet. `\
-https://nytimes.com/reuters/2020/04/14/world/americas/14reuters-health-coronavirus-chile-jails.html?searchResultPosition=10
+**Court Sets June Arguments on Dayton Gunman's School Records**\
+`The Ohio Supreme Court on Tuesday set June 3 to hear oral arguments in a case filed by news media groups seeking school records about the man who gunned down nine people in Dayton in August.`\
+https://nytimes.com/aponline/2020/04/14/business/ap-us-ohio-shooting-gunmans-records.html?searchResultPosition=10
 
