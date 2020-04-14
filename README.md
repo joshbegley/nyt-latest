@@ -1,4 +1,4 @@
-**Bernie Sanders Pitches His Supporters a New Idea: Biden 2020**\
-`The Vermont senator’s devoted backers might come to embrace Joe Biden’s candidacy, but it’s going to take more than a joint appearance via live stream.`\
-https://nytimes.com/2020/04/14/us/politics/bernie-sanders-joe-biden-democrats.html?searchResultPosition=10
+**Idaho AG to Probe Spouse Death in Tangled Missing Kids Case**\
+`The Idaho attorney general has agreed to investigate the mother of two missing children and her new husband in connection with the death of his first wife.`\
+https://nytimes.com/aponline/2020/04/14/us/ap-us-missing-kids-suspicious-deaths.html?searchResultPosition=10
 
