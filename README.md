@@ -1,12 +1,12 @@
-**Beijing Says People Arriving From Wuhan Test Negative for Coronavirus**\
-`The municipal government of Beijing said on Tuesday it had tested 1,056 people arriving from Wuhan since the lockdown ended on April 8, and all had tested negative for coronavirus.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-returnee.html?searchResultPosition=8
+**52 Places, Virtually**\
+`While you’re stuck at home waiting for travel restrictions to be lifted, we invite you on a virtual visit to each and every one of our Places to Go in 2020.`\
+https://nytimes.com/2020/04/14/travel/52-places-to-go-virtual-travel.html?searchResultPosition=8
 
-**Historic Women’s Golf Event in Saudi Arabia Set for October**\
-`The first women’s professional golf event to be staged in Saudi Arabia has been rescheduled for Oct. 8-11 after it was postponed last month due to the coronavirus pandemic, organisers have confirmed.`\
-https://nytimes.com/reuters/2020/04/14/sports/golf/14reuters-golf-european.html?searchResultPosition=9
+**‘This Is Big: How the Founder of Weight Watchers Changed the World — and Me,’ By Marisa Meltzer: An Excerpt**\
+`An excerpt from “This Is Big: How the Founder of Weight Watchers Changed the World — and Me,” By Marisa Meltzer`\
+https://nytimes.com/2020/04/14/books/review/this-is-big-how-the-founder-of-weight-watchers-changed-the-world-and-me-by-marisa-meltzer-an-excerpt.html?searchResultPosition=9
 
-**Sports: On This Day... April 15**\
-`ON THIS DAY – APRIL 15`\
-https://nytimes.com/reuters/2020/04/14/sports/football/14reuters-sport-retrospective-april15.html?searchResultPosition=10
+**‘The Address Book,’ by Deirdre Mask: An Excerpt**\
+`An excerpt from “The Address Book,” by Deirdre Mask`\
+https://nytimes.com/2020/04/14/books/review/the-address-book-by-deirdre-mask-an-excerpt.html?searchResultPosition=10
 
