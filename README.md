@@ -1,12 +1,12 @@
-**Obama to Endorse Biden for 2020 Democratic Nomination, Source Close to Obama Says**\
-`Former U.S. President Barack Obama will endorse his vice president, Joe Biden, for the 2020 Democratic presidential nomination on Tuesday, according to a person close to Obama.`\
-https://nytimes.com/reuters/2020/04/14/us/politics/14reuters-usa-election-obama.html?searchResultPosition=8
+**Oil Producers Pin Hopes for Massive Cuts on Unprecedented Stocks Purchases**\
+`An unprecedented deal by oil producers to curb supply to match demand hollowed out by the coronavirus pandemic is set to depend partly on purchases by consumer countries for their strategic stocks on a scale not before seen.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-global-oil-opec.html?searchResultPosition=8
 
-**Barack Obama to Endorse Joe Biden for Democratic Nomination**\
-`The former president will endorse his former vice president one day after Senator Bernie Sanders threw his support behind Mr. Biden.`\
-https://nytimes.com/2020/04/14/us/politics/obama-endorses-biden.html?searchResultPosition=9
+**Pelosi Rejects McConnell Emergency Coronavirus Spending Plan, Urges Fed to Widen Loans**\
+`U.S. House Speaker Nancy Pelosi on Tuesday rejected Senate Majority Leader Mitch McConnell's proposed emergency spending plan to help small businesses cope with the coronavirus outbreak, saying it did not do enough to help hospitals or state and local governments. `\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-usa-congress.html?searchResultPosition=9
 
-**Fund Managers Find a Way With Words in Coronavirus Chronicles**\
-`For many money managers their most recent investor letters were among the hardest they have had to pen, saying why their funds were so deeply in the red and what they planned to do about it.   `\
-https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-funds-letters.html?searchResultPosition=10
+**Czech Toys Don Masks to Help Medics Tackle Coronavirus**\
+`A popular line of toy figures in the Czech Republic have begun wearing face masks along with the rest of the country to raise funds to buy equipment for medical staff fighting the novel coronavirus.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-czech-toy.html?searchResultPosition=10
 
