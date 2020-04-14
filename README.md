@@ -1,4 +1,4 @@
-**Trump’s Claim of Total Authority in Crisis Is Rejected Across Ideological Lines**\
-`Trading barbs with governors about their powers over when to ease restrictions on society, the president made an assertion that lacks a basis in the Constitution or federal law.`\
-https://nytimes.com/2020/04/14/us/politics/trump-total-authority-claim.html?searchResultPosition=10
+**Kentucky Lawmakers Override Veto of Voter ID Measure**\
+`Republican lawmakers in Kentucky swept aside the Democratic governor's veto of a bill to require the state's residents to show a government-issued photo ID in order to vote.`\
+https://nytimes.com/aponline/2020/04/14/us/ap-us-xgr-photo-id-voting-kentucky.html?searchResultPosition=10
 
