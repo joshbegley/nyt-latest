@@ -1,12 +1,12 @@
-**Formula E Teams Up With UNICEF on Coronavirus Appeal**\
-`The all-electric Formula E motor racing series is partnering with the U.N. children's fund UNICEF to support a global coronavirus appeal, it announced on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/sports/autoracing/14reuters-health-coronavirus-electric.html?searchResultPosition=8
+**Russia Ready to Discuss Hypersonic Missiles With U.S.: RIA Cites Foreign Minister**\
+`Russia is ready to discuss hypersonic missiles with the United States in the context of strategic stability, the RIA news agency cited Foreign Minister Sergei Lavrov as saying on Tuesday. `\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-usa-russia-arms.html?searchResultPosition=8
 
-**India Plans to Fill Strategic Oil Storage by the Third Week of May**\
-`India plans to completely fill its strategic petroleum reserve (SPR) by the third week of May by moving about 19 million barrels into the sites by then, the managing director of the country's SPR said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/world/middleeast/14reuters-india-oil-spr.html?searchResultPosition=9
+**Turkish Parliament Passes Bill to Free Thousands From Prison Amid Coronavirus**\
+`Turkey's parliament on Tuesday passed a law that will allow the release of tens of thousands of prisoners to ease overcrowding in jails and protect detainees from the coronavirus, but which critics slam for excluding those jailed on terrorism charges.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-turkey-security-prisoners.html?searchResultPosition=9
 
-**Lin Pledges Up to $1 Million to Combat Coronavirus**\
-`Former NBA star Jeremy Lin pledged up to $1 million to coronavirus relief efforts and said he had been pained by the treatment meted out to some of Asian-Americans in the United States.`\
-https://nytimes.com/reuters/2020/04/14/sports/basketball/14reuters-health-coronavirus-basketball-lin.html?searchResultPosition=10
+**Toyota Plans Limited Operations in France, Poland From April 22**\
+`Toyota Motor Corp on Monday said it plans to restart limited production at vehicle plants in France and Poland from April 22 after closing them due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-health-coronavirus-toyota.html?searchResultPosition=10
 
