@@ -1,12 +1,12 @@
-**Germany Can't Say Yet That New Coronavirus Cases Are Falling: Institute**\
-`A lower number of new coronavirus cases in Germany in recent days is likely due to less testing over the Easter holiday, the head of the Robert Koch health institute said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-germany.html?searchResultPosition=8
+**Moscow Warns It Faces Coronavirus Hospital Bed Shortage Within Weeks**\
+`Authorities in Moscow have warned that the Russian capital may run out of hospital beds to treat a rising influx of coronavirus patients in the next two to three weeks despite frantic efforts to get more beds in place.  `\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-russia-beds.html?searchResultPosition=8
 
-**Forest Fires Rage Near Chernobyl Nuclear Plant**\
-`Forest fires raged Tuesday in the contaminated area near the Chernobyl nuclear power plant, but officials insisted there is no radiation threat.`\
-https://nytimes.com/aponline/2020/04/14/world/europe/ap-eu-ukraine-chernobyl-fire.html?searchResultPosition=9
+**Southeast Asian Leaders Vow to Cooperate in Coronavirus Fight**\
+`Southeast Asian leaders agreed at their first video conference summit on Tuesday to fight together against the "gravest public health crisis" in 100 years to make the region safe again. `\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-asean.html?searchResultPosition=9
 
-**UK Media Regulator to Assess ITV Programme Over 5G-Coronavirus Conspiracy Comments**\
-`Britain's media regulator Ofcom is assessing a programme on broadcaster ITV after a presenter questioned why the mainstream media had slapped down a conspiracy theory linking the spread of the coronavirus to 5G masts. `\
-https://nytimes.com/reuters/2020/04/14/technology/14reuters-health-coronavirus-britain-5g.html?searchResultPosition=10
+**China's 2020 GDP Growth Set to Sink to 44-Year Low as Coronavirus Cripples Economy: Reuters Poll**\
+`China's economic growth is set to stumble to its slowest annual pace in nearly half a century, as the coronavirus health crisis shutters businesses and brings the global economy to a  standstill, a Reuters poll showed on Tuesday.    `\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-china-economy-poll.html?searchResultPosition=10
 
