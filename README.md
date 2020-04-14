@@ -1,12 +1,12 @@
-**What’s on TV Tuesday: ‘Elmo’s Playdate’ and ‘Fleabag’**\
-`Celebrities join “Sesame Street” muppets for a virtual special, while Phoebe Waller-Bridge’s one-woman show is available to rent on Amazon.`\
-https://nytimes.com/2020/04/14/arts/television/whats-on-tv-tuesday-elmos-playdate-and-fleabag.html?searchResultPosition=8
+**Virtual Summit: SE Asia Leaders Meet by Video on Pandemic**\
+`Forced apart by the coronavirus pandemic, Southeast Asian leaders linked up by video Tuesday to plot a strategy to overcome a crisis that has threatened their economies and kept millions of people in their homes under lockdowns.`\
+https://nytimes.com/aponline/2020/04/14/world/asia/ap-as-virus-outbreak-southeast-asia.html?searchResultPosition=8
 
-**Germany's Coronavirus Cases Rise by 2,082, Deaths by 170: RKI**\
-`Germany's number of confirmed coronavirus infections has risen by 2,082 to 125,098, data from the Robert Koch Institute (RKI) for infectious diseases showed on Tuesday, marking the fourth decline in the number of new cases after four days of increases.`\
-https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-germany-infections.html?searchResultPosition=9
+**Indian PM Extends Lockdown to May 3 as Coronavirus Cases Cross 10,000**\
+`Indian Prime Minister Narendra Modi on Tuesday extended a nationwide lockdown until May 3 as the number of coronavirus cases crossed 10,000 despite a three-week shutdown.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-southasia-modi.html?searchResultPosition=9
 
-**UN Releases $2.5 Million to Help Cyclone-Ravaged Vanuatu**\
-`The United Nations released $2.5 million from its emergency humanitarian fund on Monday to help thousands of people in the South Pacific island nation of Vanuatu affected by Cyclone Harold and offered support to other hard-hit countries.`\
-https://nytimes.com/aponline/2020/04/14/world/ap-un-united-nations-pacific-cyclone-1st-ld-writethru.html?searchResultPosition=10
+**There Are No Games. But Basketball Coaches Are Still Busy.**\
+`Coaching clinics that were supposed to happen during the Final Four have instead become very popular online.`\
+https://nytimes.com/2020/04/14/sports/basketball/coaching-clinics.html?searchResultPosition=10
 
