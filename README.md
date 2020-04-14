@@ -1,4 +1,4 @@
-**$5 Cans of Tuna: Colombia Corruption Thrives During Coronavirus Outbreak**\
-`Colombian authorities have detected widespread overcharging for food and medical supplies meant to help the Andean country deal with its coronavirus outbreak, Colombia's comptroller said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/world/americas/14reuters-health-coronavirus-colombia-corruption.html?searchResultPosition=10
+**N.Y. Got $12,000 Per Virus Case, by One Count. Nebraska Got $379,000.**\
+`Gov. Andrew Cuomo and New York lawmakers are taking issue with how much federal funding their state is receiving compared with those with fewer cases.`\
+https://nytimes.com/2020/04/14/nyregion/coronavirus-ny-cuomo-funding.html?searchResultPosition=10
 
