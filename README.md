@@ -1,4 +1,4 @@
-**Classic Board Games With a Touch of Tech**\
-`How to use video conferencing to play traditional, real-life board games with people who are sheltering in different places.`\
-https://nytimes.com/2020/04/14/well/family/coronavirus-quarantine-board-games-videoconferencing.html?searchResultPosition=10
+**Trump Administration Faces Pressure to Buy Food for the Needy, Avoid Waste**\
+`The Trump administration is facing mounting pressure to buy more meat, dairy and produce for food banks as farmers destroy agricultural goods due to reduced restaurant demand during the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-usa-food.html?searchResultPosition=10
 
