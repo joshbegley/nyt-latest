@@ -1,8 +1,8 @@
-**Wynn Handman, Influential Director and Teacher, Dies at 97**\
-`At the American Place Theater, he championed new works. In his acting classes, he nurtured countless future stars. His death was related to the coronavirus.`\
-https://nytimes.com/2020/04/14/theater/wynn-handman-dead-coronavirus.html?searchResultPosition=9
+**Turkey's Coronavirus Death Toll Rises by 107 to 1,403: Health Minister**\
+`Turkey's confirmed cases of the coronavirus increased by 4,062 in the past 24 hours, and 107 more people have died, taking the death toll to 1,403, Health Minister Fahrettin Koca said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/14/world/europe/14reuters-health-coronavirus-turkey-toll.html?searchResultPosition=9
 
-**UK Organization: Armed Men Board Ship Off Strait of Hormuz**\
-`A United Kingdom maritime organization says a ship reportedly has been boarded by armed men off the crucial Strait of Hormuz.`\
-https://nytimes.com/aponline/2020/04/14/world/middleeast/ap-ml-persian-gulf-tensions.html?searchResultPosition=10
+**Tesla Surges 28% in Two Days as Traders Look Beyond Coronavirus Disruption**\
+`Shares of Tesla Inc surged 12% on Tuesday after Credit Suisse upgraded its rating on the electric carmaker and as Wall Street rallied on optimism the coronavirus outbreak was reaching a plateau.`\
+https://nytimes.com/reuters/2020/04/14/business/14reuters-tesla-stocks.html?searchResultPosition=10
 
