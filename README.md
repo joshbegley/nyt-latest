@@ -1,4 +1,4 @@
-**Democratic Bills Call for Racial Breakdown of COVID-19 Cases**\
-`Democratic lawmakers on Tuesday introduced legislation to compel federal health officials to post data daily that breaks down COVID-19 cases and deaths by race and ethnicity. `\
-https://nytimes.com/aponline/2020/04/14/us/ap-us-virus-outbreak-race-legislation.html?searchResultPosition=10
+**The WWE Is Now Considered an ‘Essential Service’ in Florida**\
+`Officials in the state permitted “employees at professional sports and media production with a national audience” to hold an event if it is closed to the public.`\
+https://nytimes.com/2020/04/14/us/wwe-essential-business-florida-coronavirus.html?searchResultPosition=10
 
