@@ -10,8 +10,8 @@ https://nytimes.com/2020/04/14/crosswords/daily-puzzle-2020-04-15.html?searchRes
 `President Donald Trump said on Tuesday he is close to completing a plan to end the coronavirus shutdown and reopen the battered U.S. economy with some parts of the country likely to be ready to go before May 1.`\
 https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-trump.html?searchResultPosition=5
 
-**China Central Bank Will Conduct Medium-Term Lending Facility Operation on Wednesday: Sources**\
-`China's central bank will conduct medium-term lending facility (MLF) operations on Wednesday, traders with direct knowledge of the matter said.`\
+**China Cuts Medium-Term Borrowing Costs by 20 Bps, Steps Up Fight Against Pandemic**\
+`China's central bank on Wednesday cut the interest rate on its medium-term funding for financial institutions to the lowest level on record, in an attempt to combat the economic fallout from the coronavirus health crisis.`\
 https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-china-economy-mlf.html?searchResultPosition=6
 
 **New Zealand's Ardern, Ministers Take 20% Pay Cut for Six Months Due to Coronavirus Impact**\
