@@ -1,32 +1,32 @@
+**Berkshire Hathaway Unit Wins 643 Million Euro Award Over 'Fraudulent' German Pipemaker Purchase**\
+`Precision Castparts Corp, a unit of Warren Buffett's Berkshire Hathaway Inc, has been awarded 643 million euros ($700 million) in arbitration for having been fraudulently induced to buy a German maker of pipes and fittings.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-berkshire-buffett-arbitration-award.html?searchResultPosition=3
+
+**G20 Financial Officials Agree on Debt Suspension for World's Poorest Countries**\
+`Financial officials of the Group of 20 major economies said on Wednesday in a joint statement they had agreed on a coordinated approach for a suspension of debt service payments for the world's poorest countries.`\
+https://nytimes.com/reuters/2020/04/15/world/15reuters-health-coronavirus-g20-statement.html?searchResultPosition=4
+
+**EY Cuts Partner Profit Payouts by 20% in Britain During Pandemic**\
+`Global accounting and consultancy firm EY said on Wednesday it would cut profit distributions to partners in Britain by up to 20% to secure the long-term success of the company.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-britain-ey.html?searchResultPosition=5
+
+**U.S. Business Inventories Fall in February**\
+`U.S. business inventories fell in February amid a decline in imports and further decreases are likely as the novel coronavirus outbreak severely disrupts global supply chains and the flow of goods.`\
+https://nytimes.com/reuters/2020/04/15/us/15reuters-usa-economy-inventories.html?searchResultPosition=6
+
+**Meeting of G20 Finance Officials Runs Late, News Conference Delayed**\
+`Finance ministers and central bank governors from the Group of 20 major economies (G20) are still meeting, and a news conference expected at 9:15 ET (1315 GMT) has been delayed, the Saudi G20 secretariat said in a statement.`\
+https://nytimes.com/reuters/2020/04/15/world/15reuters-health-coronavirus-g20.html?searchResultPosition=7
+
+**WWII Veteran, Age 99, Raises Millions for UK Health Service**\
+`A 99-year-old British army veteran who started walking laps in his garden as part of a humble fundraiser for the National Health Service has surprised himself by generating millions of pounds. `\
+https://nytimes.com/aponline/2020/04/15/world/europe/ap-eu-virus-outbreak-britain-veterans-thanks.html?searchResultPosition=8
+
+**Four Swipes on Washing Your Hands**\
+`This video and explainer will show you how to properly wash your hands during the coronavirus pandemic.`\
+https://nytimes.com/interactive/2020/04/15/burst/how-to-wash-your-hands.html?searchResultPosition=9
+
 **Indian Airline Vistara Defers Payments to Some Suppliers: Internal Memo**\
 `Indian airline Vistara has negotiated a reduction and deferment of payments to some suppliers to conserve cash, the airline's CEO said in an internal memo, after the government extended India's lockdown to contain the coronavirus.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-vistara.html?searchResultPosition=3
-
-**Some Governors Believe Their States Ready to Reopen After Coronavirus Shutdown, CDC Head Says**\
-`Governors of about 20 U.S. states where the new-coronavirus pandemic has had a low impact believe they may be ready to start the process of reopening their economies by President Donald Trump's May 1 target date, a top U.S. health official said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-usa.html?searchResultPosition=4
-
-**IMF, World Bank Leaders Praise G20 Debt Relief Initiative**\
-`International Monetary Fund Managing Director Kristalina Georgieva and World Bank David Malpass on Wednesday praised a new G20 debt relief agreement that suspends bilateral debt servbice payments by poor countries.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-imf-worldbank-coronavirus-g20.html?searchResultPosition=5
-
-**Pentagon Probe Unable to Rule Out White House Influence on JEDI Contract**\
-`The Pentagon's inspector general on Wednesday said it could not determine whether the White House influenced the award of a $10 billion cloud computing contract to Microsoft over Amazon after several administration officials said their conversations were privileged "presidential communications".  `\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-amazon-com-pentagon-microsoft.html?searchResultPosition=6
-
-**Ryanair Sees Quick Airline Recovery Marked by Low Fares**\
-`Ryanair is steeling for an airline price war that it expects to win once coronavirus restrictions are lifted and passengers flock back to tourist destinations, Chief Executive Michael O'Leary told Reuters on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-ryanair-market.html?searchResultPosition=7
-
-**Apple Releases Budget iPhone SE Priced at $399 as Coronavirus Stalls Economy**\
-`Apple Inc on Wednesday released a smaller iPhone priced at $399, cutting the starting price for the company's smartphone line in a move to broaden its appeal to budget-conscious customers as the coronavirus hobbles the global economy.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-apple-iphone.html?searchResultPosition=8
-
-**Singapore Reports 447 New Cases in Biggest Daily Jump, Total 3,699**\
-`Singapore's health ministry on Wednesday confirmed 447 new coronavirus cases in the biggest daily jump, to bring the total number of cases in the city-state to 3,699.`\
-https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-singapore.html?searchResultPosition=9
-
-**Best Buy to Furlough 51,000 Hourly U.S. Store Employees**\
-`Best Buy Co Inc said on Wednesday it would furlough about 51,000 hourly U.S. store employees and that its sales dropped about 5% in the first two months of the current quarter, as the electronics retailer kept its stores shut due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-best-buy.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-vistara.html?searchResultPosition=10
 
