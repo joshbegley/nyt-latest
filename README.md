@@ -1,32 +1,32 @@
+**Citing a Technicality, Australian Court Quashes Search Warrant on Journalist**\
+`Australia's High Court ruled on Wednesday that a warrant used by police to search a journalist's home was invalid but declined to order seized material destroyed, a setback for investigators that received qualified praise from press freedom advocates.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-australia-security-media.html?searchResultPosition=3
+
+**China Says Virus Outbreak Will Not Impact Nuclear Power Plant Construction**\
+`The coronavirus outbreak will have no impact on the progress of nuclear power plant construction in China in the short term, and reactors already in operation have not been affected, a nuclear safety official said at a briefing on Wednesday.`\
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-china-energy-nuclear.html?searchResultPosition=4
+
+**Frontier Communications Files for Bankruptcy Protection**\
+`Frontier Communications Corp said on Tuesday it would file for bankruptcy protection in the United States as the high-speed internet company restructures finances to cut down its debt load by more than $10 billion.`\
+https://nytimes.com/reuters/2020/04/14/technology/14reuters-frontier-commn-bankruptcy.html?searchResultPosition=5
+
 **Chinese Airlines Report $4.8 Billion Loss in First Quarter as Virus Erodes Travel Demand**\
 `Chinese airlines reported a total loss of 33.62 billion yuan  ($4.8 billion) in the first quarter as the coronavirus pandemic hit travel demand, the aviation regulator said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-china-aviation.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/14/world/asia/14reuters-health-coronavirus-china-aviation.html?searchResultPosition=6
 
 **NBA's Silver, NFL's Goodell Among Those Advising Trump on Sports Restart**\
 `NBA Commissioner Adam Silver, NFL chief Roger Goodell and Dallas Mavericks owner Mark Cuban are among the 14 sports figures advising the U.S. government on when to resume with sporting events, President Donald Trump said on Tuesday. `\
-https://nytimes.com/reuters/2020/04/14/sports/football/14reuters-health-coronavirus-sports.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/14/sports/football/14reuters-health-coronavirus-sports.html?searchResultPosition=7
 
 **Corrections: April 15, 2020**\
 `Corrections that appeared in print on Wednesday, April 15, 2020.`\
-https://nytimes.com/2020/04/14/pageoneplus/corrections-april-15-2020.html?searchResultPosition=5
+https://nytimes.com/2020/04/14/pageoneplus/corrections-april-15-2020.html?searchResultPosition=8
 
 **Quotation of the Day: In a Rising Food Crisis, Drawing On Survival Skills**\
 `Quotation of the Day for Wednesday, April 15, 2020.`\
-https://nytimes.com/2020/04/14/todayspaper/quotation-of-the-day-in-a-rising-food-crisis-drawing-on-survival-skills.html?searchResultPosition=6
+https://nytimes.com/2020/04/14/todayspaper/quotation-of-the-day-in-a-rising-food-crisis-drawing-on-survival-skills.html?searchResultPosition=9
 
 **Getting a Stimulus Check? Trump’s Signature Will Be on It**\
 `The decision to have President Trump’s name appear on the checks is a break in protocol.`\
-https://nytimes.com/2020/04/14/us/politics/stimulus-check-trump-signature.html?searchResultPosition=7
-
-**Trump Announces His ‘Opening the Country’ Council**\
-`He read off dozens of prominent names from Wall Street, Silicon Valley and the sports world. At least one person on the list was surprised to be on it.`\
-https://nytimes.com/2020/04/14/us/politics/coronavirus-trump-reopening-council.html?searchResultPosition=8
-
-**Baseball: League Employees, Families Invited to COVID-19 Test Study**\
-`Major League Baseball employees and their families were invited to participate in an independent community testing study for COVID-19 in order to gauge the presence of the disease in the United States, a league source confirmed to Reuters on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/sports/baseball/14reuters-health-coronavirus-mlb.html?searchResultPosition=9
-
-**Trump's Name to Be on Stimulus Checks Going to Americans: Washington Post**\
-`The U.S. Treasury Department has ordered President Donald Trump's name to be printed on checks the Internal Revenue Service is planning to send to tens of millions of Americans, a decision that will slow their delivery by several days, the Washington Post reported on Tuesday.`\
-https://nytimes.com/reuters/2020/04/14/us/14reuters-health-coronavirus-usa-checks.html?searchResultPosition=10
+https://nytimes.com/2020/04/14/us/politics/stimulus-check-trump-signature.html?searchResultPosition=10
 
