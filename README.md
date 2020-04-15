@@ -1,32 +1,32 @@
-**North Korea Hacking Threatens U.S., Other Countries, International Financial System: U.S. State Department**\
-`The U.S. State Department, Treasury, and Department of Homeland Security Issues, along with the FBI, issued an advisory on Wednesday about North Korean cyber threats that called particular attention to banking and finance. `\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-usa-northkorea-cyber-advisory.html?searchResultPosition=3
+**Hiscox Says UK Lockdown Not Covered Under Business Interruption Policy**\
+`Insurer Hiscox said on Wednesday that its core policy wordings do not provide cover for business interruption due to a UK government-ordered lockdown put in place to prevent the spread of coronavirus. `\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-hiscox-coronavirus.html?searchResultPosition=3
 
-**Warren Releases Video Endorsing Biden**\
-`Sen. Elizabeth Warren endorsed her one-time rival, former Vice President Joseph R. Biden Jr., for president, praising his decades in public service.`\
-https://nytimes.com/video/us/politics/100000007089056/warren-releases-video-endorsing-biden.html?searchResultPosition=4
+**Elizabeth Warren Endorses Democrat Joe Biden for President**\
+`U.S. Senator Elizabeth Warren endorsed former Vice President Joe Biden for president on Wednesday, delivering another high-profile backing from one of his former rivals as he aims to unify the Democratic Party ahead of a bruising contest with Republican President Donald Trump.`\
+https://nytimes.com/reuters/2020/04/15/us/politics/15reuters-usa-election-biden-warren.html?searchResultPosition=4
 
-**UnitedHealth CEO Says Most Procedures at SCA Ambulatory Surgery Centers Postponed**\
-`UnitedHealth Group Inc Chief Executive David Wichmann said on Wednesday that a broad hold on elective procedures due to the new coronavirus pandemic has negatively impacted its Surgical Care Affiliates ambulatory surgery centers that provide outpatient joint, spine and cardiovascular procedures.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-unitedhealth-results-electives.html?searchResultPosition=5
+**G20 Debt Moratorium Should Be Followed by More Measures: Germany's Scholz**\
+`A debt moratorium to help poor countries survive the coronavirus crisis should be followed by more measures, German Finance Minister Olaf Scholz told Reuters on Wednesday, adding that China's support for those international efforts was crucial.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-germany-scholz.html?searchResultPosition=5
 
-**P&G Boosts Dividend, Says Earnings to Be Released Ahead of Schedule**\
-`Procter & Gamble Co raised its quarterly dividend by 6% on Tuesday and advanced the release of its third-quarter earnings to April 17, saying that it aims to provide shareholders information as quickly and transparently as possible. `\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-procter-gamble-dividend.html?searchResultPosition=6
+**Polar Capital Shuts 300 Million Sterling UK Equity Fund**\
+`Asset manager Polar Capital said on Wednesday that the directors of its UK Absolute Equity Fund have decided to terminate the fund with effect from next month.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-britain-investment-polar-capital.html?searchResultPosition=6
 
-**U.S. Manufacturing Output Posts Biggest Drop Since 1946**\
-`U.S. manufacturing output dropped by the most since 1946 in March as the novel coronavirus pandemic fractured supply chains, suggesting business investment contracted further in the first quarter.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-usa-economy-manufacturing.html?searchResultPosition=7
+**Ex-NSA Contractor Seeks Prison Release Because of Virus**\
+`A former National Security Agency contractor sentenced to federal prison for leaking classified government information is asking for a compassionate release due to the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/04/15/us/ap-us-russia-hacking-accused-leaker.html?searchResultPosition=7
 
-**Chile's LATAM Airlines Plans to Suspend 2019 Dividend Due to Coronavirus Crisis**\
-`The board of South America's largest carrier, LATAM Airlines Group, plans to suspend a $57 million dividend payment tied to the company's 2019 profits to preserve cash to weather the new coronavirus crisis, it said on Tuesday night. `\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-latam-airlines.html?searchResultPosition=8
+**Inmate Released Early Due to COVID-19 Accused of Killing Man**\
+`A Florida inmate who was among those released last month in an effort to contain the coronavirus has been arrested on a murder charge, sheriff's officials said.`\
+https://nytimes.com/aponline/2020/04/15/us/ap-us-virus-outbreak-murder-charge.html?searchResultPosition=8
 
-**Deloitte UK Joins Rivals in Cutting Pay During Pandemic**\
-`Global accounting and consulting firm Deloitte is cutting pay for partners at its British arm by a fifth to protect jobs during the coronavirus crisis, mirroring moves at rivals PwC and BDO.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-deloitte.html?searchResultPosition=9
+**Sweden's Clas Ohlson Says Sales Reflect People Staying More at Home**\
+`Swedish DIY and homewares retailer Clas Ohlson said on Wednesday that although the COVID-19 pandemic had hit sales in March, demand had grown for products such as food jars and headsets as people spent more time at home. `\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-clas-ohlson.html?searchResultPosition=9
 
-**WHO COVID-19 Envoy Says Leave Recriminations for When Virus Is Defeated**\
-`The World Health Organization's (WHO) special envoy for the COVID-19 on Wednesday urged any recriminations about the organisation to be left until after the virus has been defeated.   `\
-https://nytimes.com/reuters/2020/04/15/world/middleeast/15reuters-health-coronavirus-who-usa.html?searchResultPosition=10
+**Canada's March GDP Shrinks a Record 9% on Month Amid Coronavirus Outbreak**\
+`Canada's economy shrank a record 9% in March from February as the coronavirus outbreak forced the shutdown of economic activity during the course of the month, Statistics Canada said in a flash estimate on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/us/15reuters-canada-economy-gdp.html?searchResultPosition=10
 
