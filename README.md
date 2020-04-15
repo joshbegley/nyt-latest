@@ -1,32 +1,32 @@
-**Cellphone Tracking Reveals Coronavirus Hit to U.S. Economy**\
-`The millions of bits of cellphone data tracked by analytics firm Unacast show the economic impact of the coronavirus spreading  across the United States like a deep freeze - long-distance travel was hit early on, but eventually overall retail foot traffic slowed to a crawl, too. `\
-https://nytimes.com/reuters/2020/04/15/technology/15reuters-health-coronavirus-usa-mobility.html?searchResultPosition=3
+**Pentagon: $10B Cloud Contract That Snubbed Amazon Was Legal**\
+`A government watchdog agency said Wednesday the Pentagon's process for awarding a highly lucrative cloud computing contract to Microsoft was in line with legal and government purchasing standards.`\
+https://nytimes.com/aponline/2020/04/15/business/bc-us-pentagon-cloud-contract.html?searchResultPosition=3
 
-**UK and EU Agree Three Negotiating Rounds for Post-Brexit Deal**\
-`Britain and the European Union agreed dates for three, week-long negotiating rounds to reach a post-Brexit deal on their future relationship, a joint statement said on Wednesday, with a high-level review of progress in June. `\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-britain-eu-negotiations.html?searchResultPosition=4
+**Liberty Trade Ex-MVP Charles to Mystics**\
+`The New York Liberty traded seven-time All-Star Tina Charles to the Washington Mystics as part of a three-team deal on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/sports/15reuters-basketball-wnba-ny-was-charles-trade.html?searchResultPosition=4
 
-**Highlights: Bank of Canada's Poloz and Wilkins Speak After Rate Decision**\
-`Below are some key quotes from a news conference by Bank of Canada Governor Stephen Poloz and Senior Deputy Governor Carolyn Wilkins on Wednesday after the central bank held interest rates steady.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-canada-cenbank-highlights.html?searchResultPosition=5
+**Horse Racing: British Horse Racing Suspension Extended Amid Pandemic**\
+`British horse racing will remain suspended beyond April due to the COVID-19 pandemic, the British Horseracing Authority (BHA) said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/sports/15reuters-health-coronavirus-britain-horseracing.html?searchResultPosition=5
 
-**Liberty Trade Tina Charles to Mystics in Three-Team Deal**\
-`Charles, the veteran All-Star center, was drafted No. 1 over all in 2010 and had been with the Liberty for six seasons.`\
-https://nytimes.com/2020/04/15/sports/basketball/liberty-trade-tina-charles-mystics.html?searchResultPosition=6
+**Formula E Launches Esports 'Race at Home' Challenge**\
+`Formula E launched an esports 'Race at Home Challenge' series on Wednesday involving regular race drivers and gamers in the absence of any real track action due to the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/04/15/sports/autoracing/15reuters-motor-electric.html?searchResultPosition=6
 
-**Separated From Their Families, Parents Quarantine Apart**\
-`NYT Parenting readers share their coronavirus stories.`\
-https://nytimes.com/2020/04/15/parenting/coronavirus-families-quarantine.html?searchResultPosition=7
+**Sport Could Resume in Empty Stadiums Says Top U.S. Disease Expert**\
+`The NFL campaign and an abbreviated baseball season may be possible if games are played without fans and players are kept in lockdown, U.S. President Donald Trump’s leading infectious disease adviser said on Wednesday. `\
+https://nytimes.com/reuters/2020/04/15/sports/football/15reuters-health-coronavirus-usa-sport.html?searchResultPosition=7
 
-**Russia's Major Banks, Foreigners Help Government Raise Funds Amid Coronavirus**\
-`Russia enjoyed strong demand for its government bonds on Wednesday as central bank data showed that major Russian banks and foreign investors could help Moscow raise funds to finance its response to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-russia-debt.html?searchResultPosition=8
+**Trial for Giuliani Associates Parnas, Fruman Pushed Back to February 2021**\
+`A federal judge on Wednesday delayed the trial of Lev Parnas and Igor Fruman, two associates of U.S. President Donald Trump's personal lawyer Rudy Giuliani, on charges of violating campaign finance laws to Feb. 1, 2021 because of difficulties caused by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/15/us/politics/15reuters-usa-trump-giuliani.html?searchResultPosition=8
 
-**UK Banks Have Ample Funds to Help Pandemic-Hit Economy: BoE's Woods**\
-`Britain's banks have enough funds to keep lending to the economy even under the deep recession scenario outlined by a government watchdog, Bank of England Deputy Governor Sam Woods said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-boe-banks.html?searchResultPosition=9
+**Report: PGA Tour to Restart in Texas on June 11**\
+`Golf is coming back with the rescheduled Charles Schwab Challenge on June 11 in Texas, Golf Digest reported.`\
+https://nytimes.com/reuters/2020/04/15/sports/golf/15reuters-golf-pga-pga-schedule-june.html?searchResultPosition=9
 
-**Moelis Hires Former Lazard Banker Renton for Oil and Gas Team: Memo**\
-`Moelis & Co has hired veteran oil and gas banker Mark Renton to work in its energy team, according to a memo seen by Reuters, the contents of which were confirmed by a spokeswoman.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-moelis-moves-renton.html?searchResultPosition=10
+**Ex-Flames Coach Peters Takes KHL Job**\
+`Former Calgary Flames coach Bill Peters signed a two-year contract to coach in Russia's KHL.`\
+https://nytimes.com/reuters/2020/04/15/sports/hockey/15reuters-icehockey-nhl-cgy-peters-khl.html?searchResultPosition=10
 
