@@ -1,32 +1,32 @@
-**U.S. Industry Says Mexico Shutdown Endangers 'Critical' North American Supply Chains**\
-`The National Association of Manufacturers, representing U.S. companies, on Wednesday told Mexican President Andres Manuel Lopez Obrador an economic shutdown due to the novel coronavirus could weaken North America's response to the pandemic.`\
-https://nytimes.com/reuters/2020/04/15/world/americas/15reuters-health-coronavirus-mexico-trade.html?searchResultPosition=3
+**F1 Can Save Season With Double-Headers, Says Rosberg**\
+`Formula One needs at least 16 races for a proper championship this year but eight double-header weekends would do if the COVID-19 pandemic limits options, Nico Rosberg said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/sports/autoracing/15reuters-health-coronavirus-f1-rosberg.html?searchResultPosition=3
 
-**Saudi Arabia Sells $7 Billion in Three-Part Bonds as Oil Squeezes Budget**\
-`Saudi Arabia was set to raise $7 billion with a three-tranche bond deal on Wednesday, a document showed, as the world's biggest oil exporter seeks to replenish state coffers battered by low oil prices and expectations of lower output.`\
-https://nytimes.com/reuters/2020/04/15/world/middleeast/15reuters-saudi-bonds.html?searchResultPosition=4
+**Your Money: Your Remote Work Questions, Answered**\
+`Many Americans have found themselves quickly adjusting to new routines, offices and "co-workers" as mass lockdowns keep millions of employees confined to their homes and apartments. `\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-usa-remote-work.html?searchResultPosition=4
 
-**Washington: Where Everyone Votes by Mail**\
-`We spoke to the secretary of state to get her take on voting by mail and whether she thinks the balloting option could be implemented across the country.`\
-https://nytimes.com/2020/04/15/us/politics/washington-where-everyone-votes-by-mail.html?searchResultPosition=5
+**Investors Fled Bonds as Well as Stocks in March**\
+`Investors withdrew record amounts of money from bond and equity funds in March while money market funds showed record inflows, as the prospect of a massive economic downturn due to coronavirus rattled nerves, according to the latest data from Lipper. `\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-usa-funds.html?searchResultPosition=5
 
-**15 Passengers, Including 6 Americans, Leave Ship Off Uruguay**\
-`The final 15 passengers, including six Americans, were evacuated Wednesday from an Australian cruise ship that has been anchored off Uruguay’s coast for almost three weeks with more than half the people aboard infected with the new coronavirus at one point.`\
-https://nytimes.com/aponline/2020/04/15/world/americas/ap-lt-virus-outbreak-uruguay-cruise-ship.html?searchResultPosition=6
+**Lunch With A-Rod, Serenade by Bieber as #allinchallenge on Coronavirus Takes Off**\
+`Leonardo DiCaprio is offering a walk-on role in his next movie, Justin Bieber says he will serenade the winner in their hometown, and Ellen DeGeneres is offering one lucky American the chance to co-host an episode of "The Ellen Show."`\
+https://nytimes.com/reuters/2020/04/15/arts/15reuters-health-coronavirus-allinchallenge.html?searchResultPosition=6
 
-**Baxter to Hire 2,000 Employees as Demand for Medical Products Surge**\
-`Baxter International Inc said on Wednesday it would hire up to 2,000 employees globally, including 800 people in the United States, in response to higher demand for its medical devices due to rise in cases of the new coronavirus infections.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-baxter.html?searchResultPosition=7
+**WarnerMedia in Distribution Deal for HBO Max With Charter**\
+`AT&T Inc's WarnerMedia signed a distribution agreement with Charter Communications Inc on Wednesday, allowing the cable operator's customers to access its upcoming streaming service HBO Max.`\
+https://nytimes.com/reuters/2020/04/15/technology/15reuters-at-t-charter-commns-hbo-max.html?searchResultPosition=7
 
-**Japan to Offer Bleakest View on Economy in Over a Decade as Pandemic Hits: Nikkei**\
-`Japan's government is expected to offer its bleakest assessment of the economy in over a decade in April as the coronavirus pandemic inflicts deeper pain on consumption and factory output, the Nikkei newspaper reported on Thursday.`\
-https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-japan-economy.html?searchResultPosition=8
+**Toyota to Reopen Onnaing Plant in Northern France**\
+`Toyota Motor Corp. will resume production at its Onnaing plant in northern France on April 21, the Japanese carmaker said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-france-toyota.html?searchResultPosition=8
 
-**U.S. Immigration Agency Targets Coronavirus-Related Fraud**\
-`Coronavirus fraud is being targeted by the U.S. Immigration and Customs Enforcement under a new operation that has led to the seizure of bogus protective equipment and COVID-19 test kits, and over $3 million in illicit proceeds, the agency said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-usa-crime.html?searchResultPosition=9
+**U.S. Diesel Market Starts to Show Weakness, Follows Gasoline**\
+`The U.S. diesel market is weakening as the nation's economy crashes, cutting demand for the refined product that had until recently been a lifeline for refiners dealing with the sharp fall in gasoline and jet fuel consumption.`\
+https://nytimes.com/reuters/2020/04/15/us/15reuters-global-oil-diesel-usa.html?searchResultPosition=9
 
-**U.S. Senator Says Apple, Google Need to Show Contact Tracing Will Not Violate Privacy**\
-`Smartphone software makers Alphabet's Google and Apple will have to convince the public that any contact tracing technology to track who has been exposed to the new coronavirus will not lead to a violation of their privacy, Senator Richard Blumenthal said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/technology/15reuters-health-coronavirus-google-apple.html?searchResultPosition=10
+**WNBA Coach Will Be on the Clock From France in Virtual Draft**\
+`Chicago coach James Wade jokes that he might have an advantage in the WNBA's virtual draft Friday night despite picking from France where it will be after midnight when the Sky make their first choice. `\
+https://nytimes.com/aponline/2020/04/15/sports/basketball/ap-bkl-wnba-draft-virtual-war-rooms.html?searchResultPosition=10
 
