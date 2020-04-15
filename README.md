@@ -1,32 +1,32 @@
+**This Is Not the Time to Let the Market Decide**\
+`When it comes to crucial medical supplies, cooperation, not competition, will save lives. History shows that it works.`\
+https://nytimes.com/2020/04/15/opinion/coronavirus-trade-medical-supplies.html?searchResultPosition=3
+
+**How Do You Mourn During a Pandemic?**\
+`Readers, please share your stories of mourning during the coronavirus.`\
+https://nytimes.com/2020/04/15/opinion/letters/how-do-you-mourn-during-a-pandemic.html?searchResultPosition=4
+
+**For My Mother’s FaceTime Burial, Lipstick and Howling Winds**\
+`In Jewish tradition the body must be buried within 24 hours. I fight with myself about whether to travel to Cleveland.`\
+https://nytimes.com/2020/04/15/opinion/coronavirus-burial-facetime.html?searchResultPosition=5
+
+**My Toddler Survived Cancer. Then Came the Coronavirus.**\
+`We’re applying the lessons we learned when she was sick all over again.`\
+https://nytimes.com/2020/04/15/opinion/coronavirus-anxiety-advice.html?searchResultPosition=6
+
+**When Older Relatives Shrug at Coronavirus Restrictions**\
+`Although the virus poses a heightened threat to older people, some of their middle-aged children feel they aren’t taking it seriously enough.`\
+https://nytimes.com/2020/04/15/well/family/coronavirus-elderly-relatives-quarantine.html?searchResultPosition=7
+
+**Netanyahu, Rival, Make Last-Ditch Effort at Coalition Deal**\
+`Israeli Prime Minister Benjamin Netanyahu and his chief rival faced a midnight deadline Wednesday to form an emergency government to tackle the coronavirus threat and prevent another costly and divisive election.`\
+https://nytimes.com/aponline/2020/04/15/world/middleeast/ap-ml-israel-politics.html?searchResultPosition=8
+
+**We Tweeted Our Pregnancy the Day We Found Out**\
+`A same-sex couple discusses their long and public road to motherhood.`\
+https://nytimes.com/2020/04/15/parenting/fertility/queer-pregnant-ivf.html?searchResultPosition=9
+
 **WWE Cuts Wrestlers After Florida Deems It 'Essential'**\
 `WWE started releasing professional wrestlers on Wednesday in budget cuts related to the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/15/sports/ap-wre-virus-outbreak-wwe-cuts.html?searchResultPosition=3
-
-**Attorney Who Fought for Civil Rights in Louisiana Has Died**\
-`A white lawyer who defended black civil rights activists at the height of the movement in Louisiana, often weathering threats to his own life, has died.`\
-https://nytimes.com/aponline/2020/04/15/us/ap-us-obit-sobol-1st-ld-writethru.html?searchResultPosition=4
-
-**'A Crisis Like No Other': IMF Facing Huge Demand for Support**\
-`The head of the International Monetary Fund said Wednesday that the lending agency is facing huge demand for support from its members during the global pandemic.`\
-https://nytimes.com/aponline/2020/04/15/business/bc-us-virus-outbreak-global-finance.html?searchResultPosition=5
-
-**Government Nears Lending Limit on Small Business Program**\
-`The government is approaching the $349 billion lending limit on its Paycheck Protection Program that is funneling relief money to the nation’s small businesses.`\
-https://nytimes.com/aponline/2020/04/15/business/ap-virus-outbreak-small-business-relief.html?searchResultPosition=6
-
-**A Ticking Clock and Anxiety on the Way to Motherhood**\
-`A queer couple pursuing assisted fertility discuss the judgment and self-doubt they’ve encountered along the way.`\
-https://nytimes.com/2020/04/15/parenting/fertility/fertility-anxiety-judgment.html?searchResultPosition=7
-
-**Swimming in the Alphabet Soup of Assisted Fertility**\
-`As my wife and I explore reproductive treatment options, we’re not putting all our eggs in one basket.`\
-https://nytimes.com/2020/04/15/parenting/fertility/ivf-journey.html?searchResultPosition=8
-
-**Kenya Barris Plumbs His Id to Reinvent the Family Comedy**\
-`Freed from the creative shackles of the broadcast networks, the creator of “black-ish” stars as successful TV writer named Kenya Barris in Netflix’s “#blackAF.”`\
-https://nytimes.com/2020/04/15/arts/television/kenya-barris-blackaf-netflix.html?searchResultPosition=9
-
-**Little League World Series Faces 0-2 Count Amid Coronavirus**\
-`Put them in, coach. The boys and girls of summer are ready to play.`\
-https://nytimes.com/aponline/2020/04/15/sports/ap-us-sports-deserted-icons-llws.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/15/sports/ap-wre-virus-outbreak-wwe-cuts.html?searchResultPosition=10
 
