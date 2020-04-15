@@ -1,32 +1,32 @@
-**F1 Can Save Season With Double-Headers, Says Rosberg**\
-`Formula One needs at least 16 races for a proper championship this year but eight double-header weekends would do if the COVID-19 pandemic limits options, Nico Rosberg said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/sports/autoracing/15reuters-health-coronavirus-f1-rosberg.html?searchResultPosition=3
+**Mobile World Congress to Be Held in Barcelona Until 2024: Organiser**\
+`The Mobile World Congress (MWC), the telecoms industry's biggest annual gathering, will be held in Barcelona until 2024, extending its current contract by one year, the GSMA association that hosts the congress said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/technology/15reuters-telecoms-mobileworld.html?searchResultPosition=3
 
-**Your Money: Your Remote Work Questions, Answered**\
-`Many Americans have found themselves quickly adjusting to new routines, offices and "co-workers" as mass lockdowns keep millions of employees confined to their homes and apartments. `\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-usa-remote-work.html?searchResultPosition=4
+**To Beat the Virus, Colombia Tries Separating Men and Women**\
+`As the virus hits Latin America, countries are trying different approaches to keep people off the street. In Bogotá, men and women are only allowed out on alternate days.`\
+https://nytimes.com/2020/04/15/world/americas/virus-colombia-bogota-men-women.html?searchResultPosition=4
 
-**Investors Fled Bonds as Well as Stocks in March**\
-`Investors withdrew record amounts of money from bond and equity funds in March while money market funds showed record inflows, as the prospect of a massive economic downturn due to coronavirus rattled nerves, according to the latest data from Lipper. `\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-usa-funds.html?searchResultPosition=5
+**Stop Dawdling. People Need Money.**\
+`An antiquated financial system is slowing distribution of federal stimulus to families. Policymakers are making things worse.`\
+https://nytimes.com/2020/04/15/opinion/coronavirus-stimulus-check-payment.html?searchResultPosition=5
 
-**Lunch With A-Rod, Serenade by Bieber as #allinchallenge on Coronavirus Takes Off**\
-`Leonardo DiCaprio is offering a walk-on role in his next movie, Justin Bieber says he will serenade the winner in their hometown, and Ellen DeGeneres is offering one lucky American the chance to co-host an episode of "The Ellen Show."`\
-https://nytimes.com/reuters/2020/04/15/arts/15reuters-health-coronavirus-allinchallenge.html?searchResultPosition=6
+**IWF President Ajan Resigns During Corruption Investigation**\
+`Tamas Ajan has resigned as president of the International Weightlifting Federation (IWF) while an investigation into alleged corruption is ongoing, the governing body said in a statement on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/sports/olympics/15reuters-weightlifting-ajan.html?searchResultPosition=6
 
-**WarnerMedia in Distribution Deal for HBO Max With Charter**\
-`AT&T Inc's WarnerMedia signed a distribution agreement with Charter Communications Inc on Wednesday, allowing the cable operator's customers to access its upcoming streaming service HBO Max.`\
-https://nytimes.com/reuters/2020/04/15/technology/15reuters-at-t-charter-commns-hbo-max.html?searchResultPosition=7
+**California Official: 'Major Miracle' for NFL to Start on Time**\
+`There is a Hail Mary's chance football season starts on schedule, at least in California.`\
+https://nytimes.com/reuters/2020/04/15/sports/football/15reuters-sports-california-coronavirus.html?searchResultPosition=7
 
-**Toyota to Reopen Onnaing Plant in Northern France**\
-`Toyota Motor Corp. will resume production at its Onnaing plant in northern France on April 21, the Japanese carmaker said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-france-toyota.html?searchResultPosition=8
+**Report: RB Johnson Passes Physical With Texans, Trade to Become Official**\
+`Running back David Johnson passed his physical with the Houston Texans, clearing the final hurdle for the trade sending DeAndre Hopkins to the Arizona Cardinals to become official.`\
+https://nytimes.com/reuters/2020/04/15/sports/15reuters-football-nfl-hou-ari-johnson-hopkins-trade.html?searchResultPosition=8
 
-**U.S. Diesel Market Starts to Show Weakness, Follows Gasoline**\
-`The U.S. diesel market is weakening as the nation's economy crashes, cutting demand for the refined product that had until recently been a lifeline for refiners dealing with the sharp fall in gasoline and jet fuel consumption.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-global-oil-diesel-usa.html?searchResultPosition=9
+**Canada Fails to Make Cut on Reworked PGA Tour Schedule**\
+`The PGA Tour is poised to announce a compacted calendar this week but the coronavirus-ravaged schedule will not include the Canadian Open due to cross-border travel restrictions between the United States and Canada, TSN.ca reported on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/sports/golf/15reuters-health-coronavirus-golf-pga.html?searchResultPosition=9
 
-**WNBA Coach Will Be on the Clock From France in Virtual Draft**\
-`Chicago coach James Wade jokes that he might have an advantage in the WNBA's virtual draft Friday night despite picking from France where it will be after midnight when the Sky make their first choice. `\
-https://nytimes.com/aponline/2020/04/15/sports/basketball/ap-bkl-wnba-draft-virtual-war-rooms.html?searchResultPosition=10
+**'She’s Got Everything You Want': Ionescu to Shine in WNBA Draft**\
+`Oregon's Sabrina Ionescu is set to seize the spotlight in Friday's virtual WNBA draft, as players and coaches stay behind closed doors amid the coronavirus pandemic that forced the postponement of the league's upcoming season.`\
+https://nytimes.com/reuters/2020/04/15/sports/basketball/15reuters-basketball-wnba.html?searchResultPosition=10
 
