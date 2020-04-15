@@ -1,5 +1,5 @@
 **New York Orders Residents to Wear Masks in Public**\
-`Gov. Andrew M. Cuomo took the aggressive step of requiring all residents to wear masks in settings where social distancing is not possible.`\
+`Gov. Andrew Cuomo said all New Yorkers must wear face coverings when social distancing is not possible, including on public transport, in stores and on crowded sidewalks.`\
 https://nytimes.com/2020/04/15/nyregion/coronavirus-face-masks-andrew-cuomo.html?searchResultPosition=3
 
 **When Court Moves Online, Do Dress Codes Still Matter?**\
