@@ -1,32 +1,32 @@
+**Uzbekistan Asks Rights Groups to Lift Cotton Boycott**\
+`Uzbekistan on Thursday asked a coalition of human rights groups, the Cotton Campaign, to end a boycott of Uzbek cotton and textiles so that the Central Asian nation could boost export revenue and create jobs at a time of a global recession.`\
+https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-uzbekistan-cotton-rights.html?searchResultPosition=3
+
+**Iranian Vessels Come Dangerously Close to U.S. Military Ships**\
+`Eleven vessels from Iran's Islamic Revolutionary Guard Corps Navy (IRGCN) came dangerously close to U.S. Navy and Coast Guard ships in the Gulf, the U.S. military said on Wednesday, calling the moves "dangerous and provocative."`\
+https://nytimes.com/reuters/2020/04/15/world/middleeast/15reuters-usa-iran-military.html?searchResultPosition=4
+
+**U.S. Navy Says Iran Revolutionary Guards Navy Harassed Its Vessels in Gulf**\
+`Iranian Islamic Revolutionary Guard Corps Navy (IRGCN) vessels approached U.S. Navy vessels on Wednesday in a "dangerous and harassing" manner, the U.S. Navy said in a statement. `\
+https://nytimes.com/reuters/2020/04/15/world/middleeast/15reuters-gulf-iran-security.html?searchResultPosition=5
+
+**Libya's Internationally Recognized Government Imposes 24-Hour Curfew for 10 Days From April 17**\
+`Libya's internationally recognized government, in the west, imposed a 24-hour curfew for 10 days effective from Friday, April 17, the Tripoli-based Government of National Accord (GNA) said in a statement.`\
+https://nytimes.com/reuters/2020/04/15/world/africa/15reuters-health-coronavirus-libya.html?searchResultPosition=6
+
 **Israel's Netanyahu, Gantz Fail to Reach Unity Deal, Deadlock Persists**\
 `Israeli Prime Minister Benjamin Netanyahu and his main rival Benny Gantz failed to strike a unity government deal in last-ditch talks late on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/world/middleeast/15reuters-israel-politics.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/15/world/middleeast/15reuters-israel-politics.html?searchResultPosition=7
 
 **China May Have Conducted Low-Level Nuclear Test Blasts, U.S. Says**\
 `China may have secretly set off low-level underground nuclear test explosions despite claiming to observe an international pact banning such blasts, the U.S. State Department said in a report on Wednesday that could fuel U.S.-Chinese tensions.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-usa-china-nuclear.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-usa-china-nuclear.html?searchResultPosition=8
 
 **Coronavirus Checkpoints Help Irish Police Seize Drugs, Weapons**\
 `Irish police made one of their largest drug seizures of the year when a car tried to evade one of their checkpoints set up to enforce strict measures to curtail the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-ireland-police.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-ireland-police.html?searchResultPosition=9
 
 **Poland's PiS Seeks Constitutional Change to Extend President's Term**\
 `Poland's ruling nationalists have proposed changing the constitution to extend President Andrzej Duda's term by two years because of threats related to the coronavirus pandemic, a draft bill filed with the parliament showed late on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-poland-constitution.html?searchResultPosition=6
-
-**Brazil Health Minister Does Not Accept the Resignation of Key Lieutenant**\
-`Brazilian Health Minister Luiz Henrique Mandetta said on Wednesday he did not accept the resignation of a key health official helping lead efforts to combat the spread of the new coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/15/world/americas/15reuters-health-coronavirus-brazil-secretary.html?searchResultPosition=7
-
-**Two Dead in French Military Helicopter Crash**\
-`A French military helicopter crashed on Wednesday near Tarbes, in southwestern France, killing two people and injuring five, local authorities said.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-france-helicopter.html?searchResultPosition=8
-
-**Inmate Released Amid Pandemic Killed Someone the Next Day, Officials Say**\
-`Joseph Edward Williams shot and killed a man in Tampa, Fla., on March 20, the authorities said, one day after he was among more than 160 inmates released from Hillsborough County jails.`\
-https://nytimes.com/2020/04/15/us/florida-inmate-coronavirus-murder.html?searchResultPosition=9
-
-**​In South Korea Vote, ​Virus Delivers Landslide Win to Governing Party**\
-`President Moon Jae-in’s left-leaning alliance in South Korea won a historic majority in Parliament thanks in part to the country’s largely successful handling of the coronavirus.`\
-https://nytimes.com/2020/04/15/world/asia/south-korea-election.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-poland-constitution.html?searchResultPosition=10
 
