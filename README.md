@@ -1,32 +1,32 @@
-**Why Apple’s New Phone Doesn’t Matter**\
-`New smartphones have become like refrigerators. They’re just not that exciting.`\
-https://nytimes.com/2020/04/15/technology/apple-iphone-coronavirus.html?searchResultPosition=3
+**‘We Regret the Decision,’ W.H.O. Says of Trump’s Funding Halt**\
+`The World Health Organization’s leader expressed his dismay at President Trump’s move to cut funding to the group during the coronavirus pandemic.`\
+https://nytimes.com/video/world/europe/100000007089450/coronavirus-who-trump.html?searchResultPosition=3
 
-**Now Arriving at La Guardia Airport: One Passenger**\
-`New York’s three major airports are operating at about 5% of their normal traffic, with terminals that are eerily silent.`\
-https://nytimes.com/2020/04/15/nyregion/coronavirus-empty-airports-jfk-lga-ewr.html?searchResultPosition=4
+**Italy's Coronavirus Death Toll Climbs by 578, New Cases Continue to Slow**\
+`Deaths from the COVID-19 epidemic in Italy rose by 578 on Wednesday, down from 602 the day before, while the number of new cases slowed to 2,667 from a previous 2,972, continuing the recent downward trend.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-italy-tally.html?searchResultPosition=4
 
-**Rachael Ray Tapes Show From Home, Makes $4M Virus Donation**\
-`Rachael Ray had big plans for the quarantine break at her home in upstate New York. She envisioned “a Renaissance time," rereading the classics, resuming her Danish lessons and studying Italian. `\
-https://nytimes.com/aponline/2020/04/15/us/ap-us-virus-outbreak-rachael-ray-.html?searchResultPosition=5
+**Germany Plans Partial Reopening of Shops and Schools: Sources**\
+`Germany wants to allow some shops to reopen next week while keeping social distancing rules in place, said two participants in a video conference on Wednesday between Chancellor Angela Merkel and the governors of Germany's 16 states.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-germany-exit.html?searchResultPosition=5
 
-**Fiona Apple’s Essential Songs**\
-`In anticipation of “Fetch the Bolt Cutters,” her first new album in almost a decade, hear a quick trip through some of her best tracks.`\
-https://nytimes.com/article/fiona-apple-songs.html?searchResultPosition=6
+**From Eurovision Host to Coronavirus Care, Rotterdam Venue Changes Tune**\
+`Rotterdam's Ahoy concert hall had been gearing up for the glitter and glamour of next month's Eurovision song contest - but on Wednesday it opened its doors to medics instead as the Netherlands' newest care centre for coronavirus patients.`\
+https://nytimes.com/reuters/2020/04/15/arts/15reuters-health-coronavirus-netherlands-eurovision.html?searchResultPosition=6
 
-**Emerging Economic Data Reveals Devastation; Job Losses Grow**\
-`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Wednesday related to the global economy, the work place and the spread of the virus.`\
-https://nytimes.com/aponline/2020/04/15/business/ap-virus-outbreak-business-fallout.html?searchResultPosition=7
+**N. Carolina Lawsuit Cites Virus to Stop Touch-Screen Voting**\
+`The threat of hand-to-hand contamination from the new coronavirus while voting entered arguments in a lawsuit seeking to stop the use of touch-screen ballot-marking machines in North Carolina. `\
+https://nytimes.com/aponline/2020/04/15/us/ap-us-virus-outbreak-voting-machines-1st-ld-writethru.html?searchResultPosition=7
 
-**Biden Comes Out on Top. Now, the Really Hard Part.**\
-`Also this week, how to stay environmentally engaged`\
-https://nytimes.com/2020/04/15/climate/biden-comes-out-on-top-now-the-really-hard-part.html?searchResultPosition=8
+**World Health Organization Chief Regrets U.S. Decision to Pull Funding**\
+`The head of the World Health Organization said on Wednesday that he regretted President Trump's decision to pull funding for the organisation, but called on world unity to fight the new coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-who.html?searchResultPosition=8
 
-**Joyful Participation in a World of Sorrows**\
-`Cheryl Strayed calls the writer Pico Iyer to talk about forest fires, the Dalai Lama and losing what you love.`\
-https://nytimes.com/2020/04/15/podcasts/sugar-calling-pico-iyer-coronavirus.html?searchResultPosition=9
+**UK, EU Hold Brexit Trade Talks by Video Amid Virus Outbreak**\
+`The European Union and Britain said Wednesday they had held “constructive” talks on their future relationship despite the coronavirus pandemic scuttling face-to-face negotiations. But the two sides remain far apart on whether a deal can be sealed by the end of the year.`\
+https://nytimes.com/aponline/2020/04/15/business/bc-eu-brexit.html?searchResultPosition=9
 
-**Justice Dept Watchdog Reviewing Prisons for Virus Safety**\
-`The Justice Department’s inspector general will check Bureau of Prisons facilities to ensure they are following best practices to mitigate the spread of the coronavirus after hundreds of federal inmates tested positive for the virus. `\
-https://nytimes.com/aponline/2020/04/15/us/politics/ap-us-virus-outbreak-federal-prisons.html?searchResultPosition=10
+**For the Foreseeable Future, U.K. Parliament May Meet in Cyberspace**\
+`Few places are as ill suited to social distancing as the crammed chambers of the House of Commons, which is now looking for a digital alternative.`\
+https://nytimes.com/2020/04/15/world/europe/uk-parliament-cyberspace.html?searchResultPosition=10
 
