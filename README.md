@@ -1,32 +1,32 @@
-**Twelve Dead or Missing as Migrants Returned to Libyan Capital: U.N. Agency**\
-`At least five migrants died and seven were missing when the coast guard returned 49 others to Libya's capital Tripoli on Wednesday as fighting there raged, the U.N. migration agency said.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-europe-migrants-libya.html?searchResultPosition=3
+**Outraged French Lawmakers Demand Answers on 'Fake' Chinese Embassy Accusations**\
+`A diplomatic spat between France and China widened on Wednesday as members of the French Senate demanded answers at a hearing with the foreign minister as to why an article they said was fake and cast them in a bad light was still up on the Chinese embassy website.`\
+https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-france-china.html?searchResultPosition=3
 
-**Your Thursday Briefing**\
-`Trump v. W.H.O., South Korean elections, neutrinos`\
-https://nytimes.com/2020/04/15/briefing/trump-who-south-korea-elections-wuhan.html?searchResultPosition=4
+**What Happened Next? An Update on the World Before the Coronavirus**\
+`The year started with protests, bushfires and a missile strike.`\
+https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-stories.html?searchResultPosition=4
 
-**Stuart Cohen, a Cabdriver Thirsty for Knowledge, Dies at 73**\
-`Collecting used books, he read voraciously when not having lively conversations with his passengers. He died in the coronavirus pandemic.`\
-https://nytimes.com/2020/04/15/nyregion/stuart-cohen-dead-coronavirus.html?searchResultPosition=5
+**Police Boss Says Nowhere in Northern Mozambique Under Insurgent Control**\
+`No parts of Mozambique's troubled northernmost province are under the control of insurgents, national police commander Bernardino Rafael said on Wednesday. `\
+https://nytimes.com/reuters/2020/04/15/world/africa/15reuters-mozambique-insurgency.html?searchResultPosition=5
 
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark U.S. crude oil fell 24 cents, or 1.2%, to settle at $19.87 a barrel Wednesday. Brent crude oil, the international standard, fell $1.91, or 6.5%, to $27.69 a barrel.`\
-https://nytimes.com/aponline/2020/04/15/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=6
+**France Says 668 Tested Positive for Coronavirus in Aircraft Carrier Charles De Gaulle Naval Group**\
+`The French Armed Forces Ministry said on Wednesday that 668 people tested positive for the coronavirus in the aircraft carrier Charles de Gaulle Naval Group, the majority of them on the carrier.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-army.html?searchResultPosition=6
 
-**Frontier Communications Files for Bankruptcy Protection**\
-`Frontier Communications Corp has filed for bankruptcy protection in the United States, the high-speed internet company said on Tuesday, as it restructures finances to cut down its borrowings by more than $10 billion. `\
-https://nytimes.com/reuters/2020/04/15/technology/15reuters-frontier-commn-bankruptcy.html?searchResultPosition=7
+**Polish Health Minister to Assess Safety of Elections This Week or Next**\
+`Poland's Health Minister Lukasz Szumowski will present his opinion on whether or not it is safe to carry out May presidential elections amidst the coronavirus pandemic at the end of this week or at the start of next week, he said on Wednesday. `\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-poland-election.html?searchResultPosition=7
 
-**The Ongoing Trauma of Prematurity**\
-`Dr. Jen Gunter on why we need to start talking about the difficult aftermath of those long NICU stays and medical interventions.`\
-https://nytimes.com/2020/04/15/parenting/baby/prematurity-baby-burden.html?searchResultPosition=8
+**Qatar Illegally Expelled Workers During Coronavirus Outbreak: Amnesty**\
+`Qatar detained dozens of migrant workers and expelled them last month after telling them they were being taken to be tested for the new coronavirus, human rights group Amnesty International said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/world/middleeast/15reuters-health-coronavirus-qatar.html?searchResultPosition=8
 
-**Even Without a Home, We Always Had a Family Meal**\
-`Actor Misha Collins remembers a nomadic childhood grounded only by his mother’s cooking.`\
-https://nytimes.com/2020/04/15/parenting/misha-collins-supernatural-family-meal.html?searchResultPosition=9
+**Colombia to Put 4,000 Prisoners on House Arrest to Curb Coronavirus Spread in Jails**\
+`Colombia will temporarily release some 4,000 prisoners to house arrest in an attempt to stem the spread of the coronavirus, the justice minister said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/world/americas/15reuters-health-coronavirus-colombia-prison.html?searchResultPosition=9
 
-**How to Reconnect With Your Partner After Having Kids**\
-`Don’t wait for the most convenient time to rebuild intimacy. You’ll be waiting a long time.`\
-https://nytimes.com/2020/04/15/parenting/sex-romance-after-kids.html?searchResultPosition=10
+**Potential Irish Ruling Partners Would Set Up United Ireland Unit**\
+`Ireland's Fine Gael and Fianna Fail would set up a unit in the prime minister's office to "work towards a consensus on a united Ireland" if they are able to form a new government, according to an initial agreement between the two parties.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-ireland-politics.html?searchResultPosition=10
 
