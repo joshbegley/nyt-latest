@@ -1,32 +1,32 @@
-**‘We Regret the Decision,’ W.H.O. Says of Trump’s Funding Halt**\
-`The World Health Organization’s leader expressed his dismay at President Trump’s move to cut funding to the group during the coronavirus pandemic.`\
-https://nytimes.com/video/world/europe/100000007089450/coronavirus-who-trump.html?searchResultPosition=3
+**U.S. Defense Secretary Says China Still Withholding Information on Coronavirus**\
+`China is still withholding information related to the coronavirus needed to inform the global response, U.S. Defense Secretary Mark Esper said in a television interview on Wednesday, as he called on Beijing to share its data.  `\
+https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-usa-china-pentagon.html?searchResultPosition=3
 
-**Italy's Coronavirus Death Toll Climbs by 578, New Cases Continue to Slow**\
-`Deaths from the COVID-19 epidemic in Italy rose by 578 on Wednesday, down from 602 the day before, while the number of new cases slowed to 2,667 from a previous 2,972, continuing the recent downward trend.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-italy-tally.html?searchResultPosition=4
+**Britain Probably Reaching Virus Peak, Says England's Chief Medical Officer**\
+`Britain is probably reaching the peak of its coronavirus epidemic but it is too soon to be confident of that and begin thinking about next steps, England's Chief Medical Officer Chris Whitty said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-britain-lockdown.html?searchResultPosition=4
 
-**Germany Plans Partial Reopening of Shops and Schools: Sources**\
-`Germany wants to allow some shops to reopen next week while keeping social distancing rules in place, said two participants in a video conference on Wednesday between Chancellor Angela Merkel and the governors of Germany's 16 states.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-germany-exit.html?searchResultPosition=5
+**UK's Social Distancing Has Flattened COVID-19 Curve: Science Official**\
+`Britain's restrictions on social interactions to contain the coronavirus outbreak are working and have flattened the curve of new COVID-19 cases, a government science adviser said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-britain-curve.html?searchResultPosition=5
 
-**From Eurovision Host to Coronavirus Care, Rotterdam Venue Changes Tune**\
-`Rotterdam's Ahoy concert hall had been gearing up for the glitter and glamour of next month's Eurovision song contest - but on Wednesday it opened its doors to medics instead as the Netherlands' newest care centre for coronavirus patients.`\
-https://nytimes.com/reuters/2020/04/15/arts/15reuters-health-coronavirus-netherlands-eurovision.html?searchResultPosition=6
+**Venezuela Tries Harsher Coronavirus Quarantine Measures in Restless Caracas Barrio**\
+`Venezuela's government is employing harsher measures in one of Caracas' largest barrios to ensure residents comply with a coronavirus quarantine, as many poor Venezuelans continue to head outside in search of scarce food and water.`\
+https://nytimes.com/reuters/2020/04/15/world/americas/15reuters-health-coronavirus-venezuela.html?searchResultPosition=6
 
-**N. Carolina Lawsuit Cites Virus to Stop Touch-Screen Voting**\
-`The threat of hand-to-hand contamination from the new coronavirus while voting entered arguments in a lawsuit seeking to stop the use of touch-screen ballot-marking machines in North Carolina. `\
-https://nytimes.com/aponline/2020/04/15/us/ap-us-virus-outbreak-voting-machines-1st-ld-writethru.html?searchResultPosition=7
+**Jordan Will Ease Lockdown by Allowing More Businesses to Open: PM**\
+`Jordan's Prime Minister Omar al Razzaz said on Wednesday the government would soon ease a tight lockdown imposed to stem the spread of new coronavirus by allowing more businesses and industries to return to work.`\
+https://nytimes.com/reuters/2020/04/15/world/middleeast/15reuters-health-coronavirus-jordan-lockdown.html?searchResultPosition=7
 
-**World Health Organization Chief Regrets U.S. Decision to Pull Funding**\
-`The head of the World Health Organization said on Wednesday that he regretted President Trump's decision to pull funding for the organisation, but called on world unity to fight the new coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-who.html?searchResultPosition=8
+**Belgium Extends Coronavirus Restrictions Until May 3: RTBF**\
+`Belgium has extended its measures to restrict the spread of the  coronavirus by two weeks until May 3, Belgian broadcaster RTBF said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-belgium.html?searchResultPosition=8
 
-**UK, EU Hold Brexit Trade Talks by Video Amid Virus Outbreak**\
-`The European Union and Britain said Wednesday they had held “constructive” talks on their future relationship despite the coronavirus pandemic scuttling face-to-face negotiations. But the two sides remain far apart on whether a deal can be sealed by the end of the year.`\
-https://nytimes.com/aponline/2020/04/15/business/bc-eu-brexit.html?searchResultPosition=9
+**Mourning a 'Supermom': U.S. Health Worker Casualties Mount in Virus Fight**\
+`"Home soon," Madhvi Aya texted from her hospital bed. "Love you." `\
+https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-medical-deaths.html?searchResultPosition=9
 
-**For the Foreseeable Future, U.K. Parliament May Meet in Cyberspace**\
-`Few places are as ill suited to social distancing as the crammed chambers of the House of Commons, which is now looking for a digital alternative.`\
-https://nytimes.com/2020/04/15/world/europe/uk-parliament-cyberspace.html?searchResultPosition=10
+**China, U.S. Must Cooperate Amid Coronavirus, Top Chinese Diplomat Tells Pompeo**\
+`It is crucial that China and the United States properly manage their relations amid the coronavirus pandemic, top Chinese diplomat Yang Jiechi told U.S. Secretary of State Mike Pompeo on Wednesday, Chinese state broadcaster CCTV reported.`\
+https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-china-pompeo.html?searchResultPosition=10
 
