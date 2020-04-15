@@ -1,32 +1,32 @@
-**China Removes Vice Director of Hong Kong Liaison Office From Post**\
-`China has removed Yang Jian, vice director of its Hong Kong liaison office from post, the state council said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-hongkong-protests-china-liaison.html?searchResultPosition=3
+**Australian PM Urges Schools to Re-Open So Parents Can Go Back to Work**\
+`Australian Prime Minister Scott Morrison on Wednesday urged schools to reopen after Easter holidays so students did not lose a year of education and parents could work, as health authorities reiterated that schools were safe for children.`\
+https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-australia-crisis.html?searchResultPosition=3
 
-**UK Lenders Provide 1.1 Billion Pounds in Emergency COVID Loans**\
-`Britain's banks have provided 1.115 billion pounds ($1.39 billion) in emergency loans to small and medium-sized companies under a government-backed scheme to help businesses survive the coronavirus lockdown, an industry group said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-britain-loans.html?searchResultPosition=4
+**Rockefeller Center’s Art Deco Marvel: A Virtual Tour**\
+`When the complex opened in the 1930s, some mocked it. Now it’s a symbol of New York’s glory. Our critic chats with the historian Daniel Okrent.`\
+https://nytimes.com/2020/04/15/arts/design/rockefeller-center-virtual-tour.html?searchResultPosition=4
 
-**On Fire's Anniversary, Notre-Dame's Great Bell to Break Its Silence**\
-`A year on from the inferno that gutted Notre-Dame de Paris and stunned the world, the cathedral's great bell will ring out on Wednesday evening, as a mark of the building's resilience and that of the medics battling France's coronavirus epidemic.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-france-notre-dame-anniversary-bells.html?searchResultPosition=5
+**A Visual Trek Through the Sweltering Jungle: In Search of Colombia’s ‘Lost City’**\
+`Ciudad Perdida, an ancient city that predates Machu Picchu by several hundred years, has become one of South America’s most rewarding adventure destinations.`\
+https://nytimes.com/2020/04/15/travel/colombia-lost-city-ciudad-perdida.html?searchResultPosition=5
 
-**Germany Arrests 4 IS Suspects Planning Attack on US Bases**\
-`German authorities say police have arrested four suspected members of the Islamic State group alleged to be planning an attack on American military facilities.`\
-https://nytimes.com/aponline/2020/04/15/world/europe/ap-eu-germany-extremists-arrested-1st-ld-writethru.html?searchResultPosition=6
+**Coronavirus Live Updates: In Midst of Pandemic, Trump Halts W.H.O. Payments**\
+`New York City deaths jumped on a revised official count. Governors outlined early plans to reopen economies. President Trump ordered his name to appear on stimulus checks.`\
+https://nytimes.com/2020/04/15/us/coronavirus-updates-usa.html?searchResultPosition=6
 
-**Bank of Italy Warns Virus Crisis May Tip Some Smaller Banks Over the Edge**\
-`Italian banks have a solid liquidity and capital position to face the coronavirus crisis but some smaller lenders may not be able to sustain its impact, the central bank warned on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-italy-banks.html?searchResultPosition=7
+**NoHo, Manhattan: A Place to ‘Live and Work and Create’**\
+`A once-forgotten part of the city, the neighborhood north of Houston Street now has a vibrant retail and cultural scene — and some of the priciest housing.`\
+https://nytimes.com/2020/04/15/realestate/noho-manhattan-a-place-to-live-and-work-and-create.html?searchResultPosition=7
 
-**'As Long as Necessary': Coronavirus Holdout Palau Opts for Self-Isolation**\
-`The Pacific island nation of Palau is one of the world's last countries still free of the coronavirus, and it's doing all it can to stay that way.`\
-https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-palau.html?searchResultPosition=8
+**Treating Coronavirus in a Central Park ‘Hot Zone’**\
+`They’ve set up field hospitals in wartime, after natural disasters and during disease outbreaks overseas. But this is a first.`\
+https://nytimes.com/2020/04/15/nyregion/coronavirus-central-park-hospital-tent.html?searchResultPosition=8
 
-**China's Wuhan to Fully Resume Rail, Flight and Freight Ops by End-April: Vice Mayor**\
-`The vice mayor of Wuhan, epicentre of the coronavirus outbreak in China, said on Wednesday the city aimed to fully resume rail, flight and freight operations by the end of April after a more than two-month lockdown was lifted earlier this month.`\
-https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-china-wuhan.html?searchResultPosition=9
+**Trump Has a Gut Feeling About What Covid-19 Means for 2020**\
+`It’s not too soon to wonder whether he’s on to something.`\
+https://nytimes.com/2020/04/15/opinion/coronavirus-trump-election.html?searchResultPosition=9
 
-**EU to Unveil Virus Exit Plan, Hoping to Avoid More Chaos**\
-`The European Union moved Wednesday to head off a chaotic and potentially disastrous easing of restrictions that are limiting the spread of the coronavirus, warning its 27 nations to move very cautiously as they return to normal life and base their actions on scientific advice.`\
-https://nytimes.com/aponline/2020/04/15/world/europe/bc-virus-outbreak-europe.html?searchResultPosition=10
+**I Harvest Your Food. Why Isn’t My Health ‘Essential’?**\
+`We sacrifice so much for a country that doesn’t value our lives.`\
+https://nytimes.com/2020/04/15/opinion/covid-farmworkers-paid-leave.html?searchResultPosition=10
 
