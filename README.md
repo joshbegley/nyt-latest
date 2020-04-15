@@ -1,32 +1,32 @@
-**After Trump Halt to WHO Funds, U.S. Could Redirect Money to Aid Groups: Officials**\
-`The United States could redirect to other international aid groups some $400 million it would have paid the World Health Organization this year, senior Trump administration officials said on Wednesday after President Donald Trump halted funding for the U.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-usa-who.html?searchResultPosition=3
+**Coronavirus Hospitalizations in New York Down for Second Day: Governor**\
+`Hospitalizations of people with the novel coronavirus fell for a second day in New York and the state would send ventilators to Michigan and Maryland, further signs some control is being gained on the outbreak, Governor Andrew Cuomo said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-usa-new-york.html?searchResultPosition=3
 
-**U.S. Coronavirus Deaths Top 30,000-Reuters Tally**\
-`Total U.S. coronavirus deaths topped 30,000 on Wednesday, after a record single-day increase in COVID-19-related fatalities the prior day, according to a Reuters tally.  `\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-usa-casualties.html?searchResultPosition=4
+**Uruguay Set to Finish Repatriation of Passengers From Coronavirus-Hit Cruise Ship**\
+`The repatriation of the final 15 passengers from the Greg Mortimer cruise ship, stranded in Uruguayan waters since March 27 due to an outbreak of the coronavirus on board, will take place on Wednesday afternoon, the government said.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-uruguay-cruiseship.html?searchResultPosition=4
 
-**French Coronavirus Death Toll Rises, Intensive Care Numbers Down**\
-`The number of people who died in France from the coronavirus infection in hospitals and nursing homes reached 17,167 on Wednesday, the head of the public health authority said.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-france.html?searchResultPosition=5
+**3 Men Arrested in Theft of Alabama Town's Welcome Signs**\
+`Three men were arrested after someone stole the welcome signs from a small town in north Alabama, authorities said Wednesday.`\
+https://nytimes.com/aponline/2020/04/15/us/ap-us-welcome-signs-stolen.html?searchResultPosition=5
 
-**Roivant Begins Giving Experimental COVID-19 Drug to First U.S. Patients**\
-`Biotechnology company Roivant Sciences is beginning to give U.S. COVID-19 patients its experimental drug gimsilumab in a clinical trial on Wednesday, Chief Executive Vivek Ramaswamy said at a Reuters Events pharmaceutical conference.`\
-https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-roivant.html?searchResultPosition=6
+**Pro-Trump Super PAC Backs Collins in Georgia Senate Race**\
+`A political fundraising committee loyal to President Donald Trump endorsed Rep. Doug Collins’ bid Wednesday to unseat his fellow Georgia Republican, Sen. Kelly Loeffler, in a November special election.`\
+https://nytimes.com/aponline/2020/04/15/us/ap-us-election-2020-senate-georgia.html?searchResultPosition=6
 
-**Turkey's Coronavirus Death Toll Rises by 115 to 1,518: Health Minister**\
-`Turkey's confirmed cases of COVID-19 increased by 4,281 in the past 24 hours, and 115 more people have died, taking the death toll to 1,518, Health Minister Fahrettin Koca said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-turkey-toll.html?searchResultPosition=7
+**No More Bets: March Revenue Plunges as Virus Shuts Casinos**\
+`Revenue from casinos in numerous U.S. states plunged in March as the coronavirus forced the shutdown of in-person gambling across the country in the middle of the month.`\
+https://nytimes.com/aponline/2020/04/15/us/ap-us-new-jersey-gambling-revenue.html?searchResultPosition=7
 
-**Pompeo Urges Full Transparency on Coronavirus in Call With Top Chinese Diplomat**\
-`U.S. Secretary of State Mike Pompeo on Wednesday pressed China's top diplomat on the need for full transparency and information sharing as Washington ramped up its pressure on Beijing over the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-usa-pompeo.html?searchResultPosition=8
+**'Don't Go to the ER': How a New York Pediatrician Is Dealing With the Coronavirus Outbreak**\
+`When a 3-year-old patient of New York pediatrician Dr. Greg Gulbransen dislocated her arm, he told her parents not to take her to the emergency care center, fearing that could put the family at risk of contracting COVID-19, the disease caused by the new coronavirus.`\
+https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-usa-pediatrician.html?searchResultPosition=8
 
-**Fed Notes What Most Americans See: A Sharp Economic Downturn**\
-`The Federal Reserve is noting what most Americans are already acutely aware of: Economic activity contracted sharply and abruptly cross all regions of the country in recent weeks as the country locked down to combat the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/15/business/bc-us-federal-reserve-beige-book.html?searchResultPosition=9
+**'It's Covid! Stay Away!' Latin America's Health Workers Face Rising Hostility**\
+`Shoved to the ground, splashed with bleach or glared at on public transportation, health workers face a growing tide of hostility across Latin America for potentially spreading COVID-19.`\
+https://nytimes.com/reuters/2020/04/15/world/americas/15reuters-health-coronavirus-latinamerica-medics.html?searchResultPosition=9
 
-**UnitedHealth Explores Growth in ACA Insurance Marketplaces**\
-`UnitedHealth Group’s on-and-off relationship with the Affordable Care Act’s health insurance marketplaces is heating up again.`\
-https://nytimes.com/aponline/2020/04/15/business/ap-us-unitedhealth-marketplace-expansion.html?searchResultPosition=10
+**Portugal Flattens Coronavirus Curve, but Too Early to Reopen Economy**\
+`Portugal's coronavirus curve has flattened but the good news is still not enough for the country to lift lockdown measures and  reopen its tourism-dependent, export-oriented economy, government ministers said on Wednesday.  `\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-portugal.html?searchResultPosition=10
 
