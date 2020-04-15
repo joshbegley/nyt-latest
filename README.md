@@ -1,5 +1,5 @@
 **Rethinking National Security for the Coronavirus Age**\
-`The Cuban Missile Crisis forced Kennedy to begin an era of arms control, and Sept. 11 forced Bush to reinvent counterterrorism. Will the coronavirus change the priorities of the Trump administration?`\
+`The Cuban missile crisis forced John F. Kennedy to begin an era of arms control, and Sept. 11 forced George W. Bush to reinvent counterterrorism. Will the coronavirus change the priorities of the Trump administration?`\
 https://nytimes.com/2020/04/15/us/politics/coronavirus-trump-national-security.html?searchResultPosition=3
 
 **Warren Is Latest Former Presidential Rival to Back Biden**\
