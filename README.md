@@ -1,32 +1,32 @@
-**Coronavirus Hospitalizations in New York Down for Second Day: Governor**\
-`Hospitalizations of people with the novel coronavirus fell for a second day in New York and the state would send ventilators to Michigan and Maryland, further signs some control is being gained on the outbreak, Governor Andrew Cuomo said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-usa-new-york.html?searchResultPosition=3
+**Coast to Coast, Fed Survey Shows Sharp, Abrupt Toll of Coronavirus**\
+`U.S. companies have been battered by the fallout from the novel coronavirus outbreak as economic activity "contracted sharply and abruptly across all regions," a report by the Federal Reserve released on Wednesday showed.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-fed-beigebook.html?searchResultPosition=3
 
-**Uruguay Set to Finish Repatriation of Passengers From Coronavirus-Hit Cruise Ship**\
-`The repatriation of the final 15 passengers from the Greg Mortimer cruise ship, stranded in Uruguayan waters since March 27 due to an outbreak of the coronavirus on board, will take place on Wednesday afternoon, the government said.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-uruguay-cruiseship.html?searchResultPosition=4
+**Canadian Hospitals Prepare to Sterilize, Re-Use N95 Masks if Supplies Dwindle**\
+`Some Canadian hospitals are collecting used N95 masks so that they can be decontaminated and worn again should new ones become impossible to find amid a global scramble for personal protective equipment caused by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/15/world/americas/15reuters-health-coronavirus-canada.html?searchResultPosition=4
 
-**3 Men Arrested in Theft of Alabama Town's Welcome Signs**\
-`Three men were arrested after someone stole the welcome signs from a small town in north Alabama, authorities said Wednesday.`\
-https://nytimes.com/aponline/2020/04/15/us/ap-us-welcome-signs-stolen.html?searchResultPosition=5
+**Exclusive: Major U.S. Airlines Plan to Apply for Government Loans in Addition to Grants-Sources**\
+`Numerous major U.S. airlines are preparing to apply this week for a $25 billion U.S. government loan program after winning billions in federal payroll grants, people familiar with the matter said.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-usa-airlines-exclusive.html?searchResultPosition=5
 
-**Pro-Trump Super PAC Backs Collins in Georgia Senate Race**\
-`A political fundraising committee loyal to President Donald Trump endorsed Rep. Doug Collins’ bid Wednesday to unseat his fellow Georgia Republican, Sen. Kelly Loeffler, in a November special election.`\
-https://nytimes.com/aponline/2020/04/15/us/ap-us-election-2020-senate-georgia.html?searchResultPosition=6
+**Bezos and Zuckerberg Join White House Phone Call on Reopening U.S. Economy**\
+`Jeff Bezos, the chief executive of Amazon.com Inc, and Mark Zuckerberg, Facebook Inc's CEO, on Wednesday participated in a White House conference call about how to reopen the U.S. economy in light of the coronavirus pandemic, company spokespeople said.`\
+https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-white-house-ceos.html?searchResultPosition=6
 
-**No More Bets: March Revenue Plunges as Virus Shuts Casinos**\
-`Revenue from casinos in numerous U.S. states plunged in March as the coronavirus forced the shutdown of in-person gambling across the country in the middle of the month.`\
-https://nytimes.com/aponline/2020/04/15/us/ap-us-new-jersey-gambling-revenue.html?searchResultPosition=7
+**Volkswagen to Resume Production in Germany Starting April 20**\
+`Volkswagen on Wednesday said factories producing cars for its core brand in Zwickau, Germany and Bratislava, Slovakia will resume production starting on April 20, with other locations ramping up plants starting from April 27 onwards. `\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-volkswagen.html?searchResultPosition=7
 
-**'Don't Go to the ER': How a New York Pediatrician Is Dealing With the Coronavirus Outbreak**\
-`When a 3-year-old patient of New York pediatrician Dr. Greg Gulbransen dislocated her arm, he told her parents not to take her to the emergency care center, fearing that could put the family at risk of contracting COVID-19, the disease caused by the new coronavirus.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-usa-pediatrician.html?searchResultPosition=8
+**With Confidence Shattered, the Road to a 'Normal' U.S. Economy Looks Long**\
+`U.S. air travel was shut down for three days after the Sept. 11, 2001, attacks. It took three years for the industry to recover despite toughened passenger screening and the creation of a new agency devoted to transportation security.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-usa-confidence-analysis.html?searchResultPosition=8
 
-**'It's Covid! Stay Away!' Latin America's Health Workers Face Rising Hostility**\
-`Shoved to the ground, splashed with bleach or glared at on public transportation, health workers face a growing tide of hostility across Latin America for potentially spreading COVID-19.`\
-https://nytimes.com/reuters/2020/04/15/world/americas/15reuters-health-coronavirus-latinamerica-medics.html?searchResultPosition=9
+**Harley-Davidson Lays Off Staff, Cuts Salaries, Amid Coronavirus Outbreak**\
+`Harley-Davidson Inc said on Wednesday it had temporarily laid off most of its global production employees and implemented salary cuts in a bid to lower costs as the coronavirus pandemic has hurt its business.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-harley-davidson.html?searchResultPosition=9
 
-**Portugal Flattens Coronavirus Curve, but Too Early to Reopen Economy**\
-`Portugal's coronavirus curve has flattened but the good news is still not enough for the country to lift lockdown measures and  reopen its tourism-dependent, export-oriented economy, government ministers said on Wednesday.  `\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-portugal.html?searchResultPosition=10
+**Kimarlee Nguyen, Writer Who Explored Cambodian Roots, Dies at 33**\
+`Ms. Nguyen’s writing career was budding; she was also an inspiring teacher of first generation Americans. She died of the coronavirus.`\
+https://nytimes.com/2020/04/15/obituaries/kimarlee-nguyen-dead-coronavirus.html?searchResultPosition=10
 
