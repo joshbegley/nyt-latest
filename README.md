@@ -26,7 +26,7 @@ https://nytimes.com/2020/04/15/world/middleeast/virus-israel-Orthodox-Bnei-Brak.
 `Two lawsuits have been filed against the Catholic Diocese of Charlotte claiming two boys were sexually abused in separate instances by the two priests they sought out for help with personal problems decades ago.`\
 https://nytimes.com/aponline/2020/04/15/us/ap-us-charlotte-diocese-sex-abuse-lawsuits.html?searchResultPosition=9
 
-**Macron Vows to Rebuild Notre-Dame by 2024, Despite Virus and Other Blows**\
-`Events to mark the first anniversary of the catastrophic fire were canceled, and renovation work at the cathedral halted, because of the coronavirus.`\
+**Marking Notre-Dame Tragedy, Quietly, in Locked-Down Paris**\
+`Events to pay tribute to the first anniversary of the catastrophic fire were canceled, and renovation work at the cathedral halted, because of the coronavirus.`\
 https://nytimes.com/2020/04/15/world/europe/france-notre-dame-fire.html?searchResultPosition=10
 
