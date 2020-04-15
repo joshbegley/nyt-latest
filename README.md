@@ -1,32 +1,32 @@
-**Pandemic Could Trigger Social Unrest in Some Countries: IMF**\
-`New waves of social unrest could erupt in some countries if government measures to mitigate the coronavirus pandemic are seen as insufficient or unfairly favoring the wealthy, the IMF said in a new report on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-imf-worldbank-coronavirus-protests.html?searchResultPosition=3
+**Questions and Answers About What’s Next**\
+`Wednesday: Public health officials set a six-part framework for deciding how to slowly reopen the economy. Also: A dispatch from the U.S.N.S. Mercy.`\
+https://nytimes.com/2020/04/15/us/coronavirus-california-quarantine-end.html?searchResultPosition=3
 
-**Austria to Allow Tennis, Golf and Other Social-Distancing-Friendly Sports**\
-`Austria, which has started loosening its coronavirus lockdown, said on Wednesday it would allow some sports compatible with social distancing like tennis and golf to resume from May 1.`\
-https://nytimes.com/reuters/2020/04/15/sports/skiing/15reuters-health-coronavirus-austria-sports.html?searchResultPosition=4
+**Norway PM Tells Children It Will Take Time for Life to Return to Normal**\
+`Prime Minister Erna Solberg told Norwegian children on Wednesday it would take time for life to return to normal with the country, like others in Europe, preparing to reopen parts of society shut down by the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-norway-children.html?searchResultPosition=4
 
-**Africa May Rebound in 2021, but Coronavirus Impact to Endure: IMF**\
-`Africa is expected to reverse an economic contraction linked to fallout from the COVID-19 pandemic next year, according to the International Monetary Fund, but the impact will be felt for years to come.`\
-https://nytimes.com/reuters/2020/04/15/world/africa/15reuters-health-coronavirus-africa-imf.html?searchResultPosition=5
+**Poland Debates Curbs to Abortion Rights, Coronavirus Limits Protests**\
+`Polish lawmakers are to debate a proposal to tighten already restrictive abortion rules on Wednesday, while rights activists protested on social media as coronavirus limits public gatherings. `\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-poland-abortion.html?searchResultPosition=5
 
-**Thailand Plans $33 Billion Public-Private Investment Projects**\
-`Thailand plans public-private partnership (PPP) projects worth 1.09 trillion baht ($33.39 billion) during 2020-2027, the finance ministry said on Wednesday, as the government tries to revive the struggling economy amid the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-thailand-economy-investment.html?searchResultPosition=6
+**Mekong River Groups Urge China to Show Transparency After Dam Report**\
+`Groups working to protect the Mekong River have called for greater transparency and cooperation from China after a report that Chinese dams held back water during a damaging drought in downstream countries last year.`\
+https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-mekong-river.html?searchResultPosition=6
 
-**Coronavirus Crimps LSE Group's First-Quarter Debt Issuance Volumes**\
-`London Stock Exchange Group posted a "marginal decline" in year-on-year debt issuance volumes in the first quarter on Wednesday, despite a flurry of public sector and investment grade activity in March as the coronavirus pandemic intensified. `\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-lse-outlook.html?searchResultPosition=7
+**Greece Transfers First Group of Young Refugees to EU Countries**\
+`Greece transferred a dozen unaccompanied children from overcrowded migrant camps to Luxembourg on Wednesday, the first of more than 1,000 relocations that are being expedited amid concerns over the impact of coronavirus on vulnerable groups.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-europe-migrants-greece-unaccompanied.html?searchResultPosition=7
 
-**Proxy Group ISS Backs Credit Suisse AGM Proposals**\
-`Proxy advisory ISS has backed Credit Suisse's proposals for its annual general meeting on April 30, recommending shareholders vote in favour of the group's pay proposals and approving the performance of its leadership.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-credit-suisse-gp-advisor.html?searchResultPosition=8
+**$1.5 Million Homes in Florida, Illinois and California**\
+`A vintage clapboard house in Miami, a midcentury-modernist ranch in Highland Park and a 1959 beach house in Marin County.`\
+https://nytimes.com/2020/04/15/realestate/1-5-million-homes-in-florida-illinois-and-california.html?searchResultPosition=8
 
-**Toshiba to Temporarily Close Factories, Offices in Japan**\
-`Toshiba Corp on Wednesday said it will temporarily close factories and offices in Japan from May 6 to May 15, allowing as many as 76,000 to stay at home as the coronavirus spreads, Kyodo newswire reported.  `\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-toshiba.html?searchResultPosition=9
+**What You Get for $1.5 Million**\
+`A vintage clapboard house in Miami; a midcentury-modernist ranch in Highland Park, Ill.; and a 1959 beach house in Marin County, Calif.`\
+https://nytimes.com/slideshow/2020/04/15/realestate/what-you-get-for-1-5-million.html?searchResultPosition=9
 
-**Uber Targets Older Americans With Phone-Based Food Ordering During Coronavirus Crisis**\
-`Uber Technologies Inc on Wednesday said customers in New York City and the Miami area could now order restaurant meal deliveries over the phone, instead of through its app, as it aims to expand its service to older Americans.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-uber-eats.html?searchResultPosition=10
+**VIRUS DIARY: For the Smallest Ballplayers, an Unsure Spring**\
+`The question comes frequently. Usually in the morning, when the day is still brimming with confidence.`\
+https://nytimes.com/aponline/2020/04/15/sports/ap-us-virus-outbreak-diary-silent-bats.html?searchResultPosition=10
 
