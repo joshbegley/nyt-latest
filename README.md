@@ -1,32 +1,32 @@
+**Toyota to Cut Production in Japan in May as Coronavirus Squeezes Demand**\
+`Toyota Motor Corp on Wednesday said it will cut production of finished vehicles by 40 percent in Japan in May as demand shrinks around the world because of the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-toyota.html?searchResultPosition=3
+
+**Kids Aren't Coronavirus 'Guinea Pigs': Danish Mums Rebel as Schools Reopen**\
+`Denmark eased its coronavirus lockdown on Wednesday by reopening schools and day care centres, but concerns they might become breeding grounds for a second wave of cases convinced thousands of parents to keep their children at home.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-denmark.html?searchResultPosition=4
+
+**Citigroup Profit Nearly Halves as Loan Defaults Loom**\
+`Citigroup Inc reported a 46% plunge in quarterly profit on Wednesday as the bank set aside nearly $5 billion to prepare for an expected flood of defaults on loans due to a virtual halt in economic activity caused by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-citigroup-results.html?searchResultPosition=5
+
+**Goldman Sachs Profit Halves on Higher Loan Loss Provisions, Investment Hit**\
+`Goldman Sachs Group Inc reported a 49% drop in quarterly profit on Wednesday, as it set aside significantly higher provisions related to corporate loans due to the impact of COVID-19 and booked heavy losses on its debt and equity investments.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-goldman-sachs-results.html?searchResultPosition=6
+
+**US Retail Sales Plunge by Record 8.7% in March Amid Shutdown**\
+`U.S. retail sales plummeted 8.7% in March, a record drop as the viral outbreak closed down thousands of stores and shoppers stayed home. `\
+https://nytimes.com/aponline/2020/04/15/business/bc-us-retail-sales.html?searchResultPosition=7
+
 **‘Will We Die Hungry?’ A Teeming Manila Slum Chafes Under Lockdown.**\
 `Life was already a struggle in the crowded shanties of San Roque. Then came the coronavirus.`\
-https://nytimes.com/2020/04/15/world/asia/manila-coronavirus-lockdown-slum.html?searchResultPosition=3
+https://nytimes.com/2020/04/15/world/asia/manila-coronavirus-lockdown-slum.html?searchResultPosition=8
 
 **From Wax Jackets to Medical Gowns: Barbour Joins Coronavirus Battle**\
 `British fashion brand Barbour has turned over its production line to making protective gowns for frontline healthcare workers battling the coronavirus outbreak, reviving memories of its patriotic efforts in both world wars.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-barbour.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-barbour.html?searchResultPosition=9
 
 **A Day Fighting COVID-19: U.S. Hospital Staff Share Hardest Moments on Shift**\
 `The shifts are long and the scenes are heartbreaking inside a Maryland hospital where nurses and doctors have been treating coronavirus patients for weeks, unable to let family inside to visit loved ones on their death beds.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-usa-medics-widerimage.html?searchResultPosition=5
-
-**Dutch Coronavirus Cases Rise by 734 to 28,153: Authorities**\
-`The number of confirmed coronavirus cases in the Netherlands rose by 734 to 28,153, health authorities said on Wednesday, with 189 new deaths.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-netherlands-tally.html?searchResultPosition=6
-
-**Vietnam to Extend Coronavirus Lockdown in 12 Provinces for Seven Days**\
-`Vietnam will extend its coronavirus lockdown in 12 provinces, including Hanoi and Ho Chi Minh City, for seven days, although restrictions will be lifted in some areas outside of the Southeast Asian country's main cities, the government said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-vietnam.html?searchResultPosition=7
-
-**Italian Virus Hospital Offers Fauci Work if Trump Fires Him**\
-`The scientific director of Italy’s leading infectious disease hospital says he'd like to hire Dr. Anthony Fauci should President Donald Trump remove him from the White House coronavirus task force.`\
-https://nytimes.com/aponline/2020/04/15/world/europe/ap-eu-virus-outbreak-italy-fauci.html?searchResultPosition=8
-
-**Obama Pivots Left**\
-`‘The world is different.’`\
-https://nytimes.com/2020/04/15/opinion/obama-biden-endorsement.html?searchResultPosition=9
-
-**Pileup Along Icy Chicago Expressway Sends 14 to Hospitals**\
-`Portions of a Chicago expressway left icy by a wintry blast that brought overnight snowfall led to a pileup involving of dozens of vehicles early Wednesday, sending 14 people to hospitals, officials said.`\
-https://nytimes.com/aponline/2020/04/15/us/ap-us-chicago-expressway-pileup.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-usa-medics-widerimage.html?searchResultPosition=10
 
