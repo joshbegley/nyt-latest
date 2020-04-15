@@ -1,32 +1,32 @@
-**U.S. Justice Department Watchdog to Inspect Federal Prisons' Handling of Coronavirus**\
-`The U.S. Justice Department's inspector general said on Wednesday his office had launched "remote inspections" to review whether the federal Bureau of Prisons (BOP) was complying with guidelines to prevent, manage and contain the spread of the novel coronavirus inside the prison system.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-usa-prisons.html?searchResultPosition=3
+**Wilder Says Fury Not Yet Champion After 'Zombie' Fight**\
+`Dethroned world heavyweight champion Deontay Wilder says he still does not see his conqueror Tyson Fury as the true titleholder.`\
+https://nytimes.com/reuters/2020/04/15/sports/15reuters-boxing-heavy-wilder.html?searchResultPosition=3
 
-**As Pandemic Lingers, U.S. House Looking 'Very Closely' at Remote Voting**\
-`The U.S. House of Representatives is now looking "very closely" at how its members could vote from outside the Capitol as a coronavirus-forced recess looks poised to last into at least next month, the chamber's No. 2 Democrat said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/us/politics/15reuters-health-coronavirus-usa-congress.html?searchResultPosition=4
+**Factbox: Sports Events Around the World Hit by Coronavirus Pandemic**\
+`Major sports events around the world that have been hit by the coronavirus pandemic:`\
+https://nytimes.com/reuters/2020/04/15/sports/skiing/15reuters-health-coronavirus-sport-factbox.html?searchResultPosition=4
 
-**U.S. Supreme Court to Hear Trump Financial Records Cases on May 12**\
-`The U.S. Supreme Court on Wednesday announced it will hear a dispute over whether President Donald Trump's tax and financial records should be disclosed on May 12 as part of its first ever round of oral arguments by teleconference.`\
-https://nytimes.com/reuters/2020/04/15/us/politics/15reuters-usa-court-trump-finances.html?searchResultPosition=5
+**We Need to Talk About ‘The Giving Tree’**\
+`Kids — and parents — need to understand that there’s a big difference between selflessness and generosity.`\
+https://nytimes.com/2020/04/15/parenting/we-need-to-talk-about-the-giving-tree.html?searchResultPosition=5
 
-**Commissioners Tell VP No Football Before Campuses Open**\
-`The commissioners of the nation's major college football conferences held a 30-minute conference call Wednesday with Vice President Mike Pence and stressed that college sports cannot return from the coronavirus shutdown until campuses have re-opened. `\
-https://nytimes.com/aponline/2020/04/15/sports/ncaafootball/ap-fbc-virus-outbreak-college-football.html?searchResultPosition=6
+**NBA-League Veteran Conley Rides Out Lockdown With 'HORSE'**\
+`After 13 seasons in the NBA, Utah Jazz point guard Mike Conley Jr. might have thought he had seen it all - that is, until he found himself playing HORSE on ESPN live via webcam on Sunday. `\
+https://nytimes.com/reuters/2020/04/15/sports/basketball/15reuters-health-coronavirus-nba.html?searchResultPosition=6
 
-**Amazon Suspends All Activity in France Amid Virus Crisis**\
-`Amazon said Wednesday it will “temporarily” suspend all activity in France, one day after a French court ruled it wasn’t doing enough to protect its workers in the country amid the pandemic.`\
-https://nytimes.com/aponline/2020/04/15/business/ap-eu-virus-outbreak-france-amazon.html?searchResultPosition=7
+**Reports: MLS on Hold Until June 8**\
+`Major League Soccer will not return until at least June 8, according to multiple reports.`\
+https://nytimes.com/reuters/2020/04/15/sports/soccer/15reuters-soccer-mls-ppd-coronavirus.html?searchResultPosition=7
 
-**Photojournalists Struggle Through the Pandemic, With Masks and Long Lenses**\
-`Assignments have dried up for many photographers. Others risk going into the fray to capture images of a changed world.`\
-https://nytimes.com/2020/04/15/business/media/photographers-coronavirus.html?searchResultPosition=8
+**Esports: Triple Podium Success for Verstappen in Virtual Aussie Supercars**\
+`Red Bull Formula One driver Max Verstappen took a hat-trick of second places on his V8 Supercars All-Stars esports debut on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/sports/autoracing/15reuters-esports-supercars-verstappen.html?searchResultPosition=8
 
-**Coronavirus Unmasks Amazon's Stumbles at Whole Foods**\
-`Amazon's moves to reduce strain on its grocery businesses by putting new online shoppers on wait lists and switching more Whole Foods resources to filling orders, is unmasking limitations at the company that was expected to upend the supermarket industry.    `\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-whole-foods-analysis.html?searchResultPosition=9
+**Soft-Serve Defiance: Ice Cream Trucks Ply Brooklyn Streets**\
+`Usually a welcome harbinger of spring and summer, Mister Softee's signature jingle has made a startling juxtaposition to the piercing wails of ambulances on Brooklyn's otherwise quiet streets. `\
+https://nytimes.com/aponline/2020/04/15/business/ap-us-virus-outbreak-ice-cream-trucks.html?searchResultPosition=9
 
-**U.S. Self-Driving Car Startup Zoox Agrees to Settle Lawsuit With Tesla**\
-`Zoox Inc said on Tuesday it had settled a lawsuit with Tesla Inc after admitting that some new hires from the electric carmaker were in possession of certain Tesla documents when they joined the U.S. self-driving car startup. `\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-tesla-lawsuit-zoox.html?searchResultPosition=10
+**Overcoming Motherhood Imposter Syndrome**\
+`Casey Wilson learned to trust her parenting instincts after her son received a surprise diagnosis.`\
+https://nytimes.com/2020/04/15/parenting/casey-wilson-motherhood.html?searchResultPosition=10
 
