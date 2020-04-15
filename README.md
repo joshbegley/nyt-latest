@@ -3,7 +3,7 @@
 https://nytimes.com/2020/04/15/us/politics/coronavirus-small-business-program.html?searchResultPosition=3
 
 **Navy May Reinstate Fired Captain to Command of Roosevelt**\
-`President Trump has since indicated he may be willing to take a new look at events around Captain Crozier’s firing, which stemmed from a coronavirus outbreak aboard the aircraft carrier.`\
+`Adm. Michael Gilday has indicated that he may reinstate Captain Crozier, who was removed from command after pleading for more help fighting a coronavirus outbreak on his ship.`\
 https://nytimes.com/2020/04/15/us/politics/coronavirus-navy-roosevelt-crozier.html?searchResultPosition=4
 
 **Soccer’s Business Hasn’t Stopped. It’s Just Waiting for the New Prices.**\
