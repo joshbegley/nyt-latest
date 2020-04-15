@@ -1,32 +1,32 @@
-**Berkshire Hathaway Unit Wins 643 Million Euro Award Over 'Fraudulent' German Pipemaker Purchase**\
-`Precision Castparts Corp, a unit of Warren Buffett's Berkshire Hathaway Inc, has been awarded 643 million euros ($700 million) in arbitration for having been fraudulently induced to buy a German maker of pipes and fittings.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-berkshire-buffett-arbitration-award.html?searchResultPosition=3
+**Essence Fest Moves to 2021 After Mayor Signals Need to Shift**\
+`Amid the spread of the coronavirus, the organizers of Essence Festival said Wednesday they would move their festival to next year after the New Orleans mayor suggested that major spring and summer festivals that had been postponed to later this year should not be held at all in 2020.`\
+https://nytimes.com/aponline/2020/04/15/us/ap-us-virus-outbreak-essence-festival.html?searchResultPosition=3
 
-**G20 Financial Officials Agree on Debt Suspension for World's Poorest Countries**\
-`Financial officials of the Group of 20 major economies said on Wednesday in a joint statement they had agreed on a coordinated approach for a suspension of debt service payments for the world's poorest countries.`\
-https://nytimes.com/reuters/2020/04/15/world/15reuters-health-coronavirus-g20-statement.html?searchResultPosition=4
+**G20 Debt Relief Deal to Run Through Year-End: Source**\
+`An agreement by Group of 20 major economies to suspend official bilateral debt payments by the poorest countries will begin on May 1 and runs through the end of the year, a source familiar with the discussions said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/world/15reuters-health-coronavirus-g20-timetable.html?searchResultPosition=4
 
-**EY Cuts Partner Profit Payouts by 20% in Britain During Pandemic**\
-`Global accounting and consultancy firm EY said on Wednesday it would cut profit distributions to partners in Britain by up to 20% to secure the long-term success of the company.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-britain-ey.html?searchResultPosition=5
+**How Bubonic Plague Has Helped Russia Fight the Coronavirus**\
+`A network of health centers formed by the Soviet Union in the 1920s is providing expertise in quarantines and epidemic response for Covid-19.`\
+https://nytimes.com/2020/04/15/world/europe/coronavirus-plague-russia-soviet-union.html?searchResultPosition=5
 
-**U.S. Business Inventories Fall in February**\
-`U.S. business inventories fell in February amid a decline in imports and further decreases are likely as the novel coronavirus outbreak severely disrupts global supply chains and the flow of goods.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-usa-economy-inventories.html?searchResultPosition=6
+**Bain Capital Credit Owns 9.8% of doValue: Filing**\
+`U.S. credit specialist Bain Capital Credit Member held 9.8% of Italy's biggest bad loan specialist doValue as of April 6, a regulatory filing showed on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-italy-dovalue.html?searchResultPosition=6
 
-**Meeting of G20 Finance Officials Runs Late, News Conference Delayed**\
-`Finance ministers and central bank governors from the Group of 20 major economies (G20) are still meeting, and a news conference expected at 9:15 ET (1315 GMT) has been delayed, the Saudi G20 secretariat said in a statement.`\
-https://nytimes.com/reuters/2020/04/15/world/15reuters-health-coronavirus-g20.html?searchResultPosition=7
+**Bank of Canada Says Coronavirus to Trigger Biggest Slump Ever, Drops Forecasts**\
+`The Bank of Canada on Wednesday said the coronavirus outbreak was set to trigger the biggest ever near-term Canadian slump but suspended its regular economic forecasts, citing exceptional uncertainty over the outlook.`\
+https://nytimes.com/reuters/2020/04/15/us/15reuters-canada-cenbank.html?searchResultPosition=7
 
-**WWII Veteran, Age 99, Raises Millions for UK Health Service**\
-`A 99-year-old British army veteran who started walking laps in his garden as part of a humble fundraiser for the National Health Service has surprised himself by generating millions of pounds. `\
-https://nytimes.com/aponline/2020/04/15/world/europe/ap-eu-virus-outbreak-britain-veterans-thanks.html?searchResultPosition=8
+**Franklin Templeton Grabs More Gulf Government Debt Amid Oil Crash**\
+`Franklin Templeton has recently bought more bonds issued by governments in the Gulf, including high-yield names like Oman and Bahrain, seeing value as yields spiked on the back of plunging oil prices and the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-franklin-templeton-bonds-gulf.html?searchResultPosition=8
 
-**Four Swipes on Washing Your Hands**\
-`This video and explainer will show you how to properly wash your hands during the coronavirus pandemic.`\
-https://nytimes.com/interactive/2020/04/15/burst/how-to-wash-your-hands.html?searchResultPosition=9
+**UK Should Consider 100% State Guarantee for Small Business Loans, Banks Say**\
+`Britain's government should consider fully guaranteeing small emergency loans to businesses to speed up processing, rather than requiring banks to take on some of the risk, Britain's banking industry trade body told lawmakers on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-britain-banks.html?searchResultPosition=9
 
-**Indian Airline Vistara Defers Payments to Some Suppliers: Internal Memo**\
-`Indian airline Vistara has negotiated a reduction and deferment of payments to some suppliers to conserve cash, the airline's CEO said in an internal memo, after the government extended India's lockdown to contain the coronavirus.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-vistara.html?searchResultPosition=10
+**India March Exports Shrink, Outlook Grim as Coronavirus Hits Demand**\
+`India's merchandise exports shrank by more than one-third from a year ago, hit by a fall in global demand and shipments due to the new coronavirus, and analysts warned of a grim outlook for exports in 2020 as global economic activity collapses.  `\
+https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-india-economy.html?searchResultPosition=10
 
