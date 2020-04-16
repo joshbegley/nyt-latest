@@ -22,8 +22,8 @@ https://nytimes.com/2020/04/16/us/coronavirus-today.html?searchResultPosition=7
 `President Trump said governors could reopen sooner than next month if they wanted to, adding that he will not control when they reopen businesses, schools and everyday life.`\
 https://nytimes.com/video/us/politics/100000007092689/trump-coronavirus-states-reopen.html?searchResultPosition=8
 
-**FBI Official Says Foreign Hackers Have Targeted COVID-19 Research**\
-`A senior cybersecurity official with the Federal Bureau of Investigation said on Thursday that foreign government hackers have broken into companies conducting research into treatments for COVID-19, the sometimes fatal respiratory illness caused by the coronavirus. `\
+**Foreign State Hackers Target U.S. Coronavirus Treatment Research: FBI Official**\
+`A senior FBI cybersecurity official said on Thursday that foreign government hackers have broken into institutions conducting research into treatments for COVID-19, the sometimes fatal respiratory illness caused by the new coronavirus. `\
 https://nytimes.com/reuters/2020/04/16/technology/16reuters-health-coronavirus-cyber.html?searchResultPosition=9
 
 **Toyota-Backed Pony.ai to Offer Autonomous Delivery Service in California**\
