@@ -1,32 +1,32 @@
-**Nvidia Gets China Government's Nod to Buy Mellanox, Says All Conditions Satisfied**\
-`Chipmaker Nvidia Corp on Thursday received approval from China's antitrust authority for its $6.9 billion proposed acquisition of Mellanox Technologies Ltd and said with that all the conditions to the deal's closing have been satisfied.`\
-https://nytimes.com/reuters/2020/04/16/technology/16reuters-mellanox-m-a-nvidia-china.html?searchResultPosition=3
+**New Fires Fanned by Strong Winds Flare Near Chernobyl in Ukraine**\
+`New fires broke out in the area around the defunct Chernobyl nuclear plant on Thursday, fanned by heavy winds that have made it harder to put out the blaze, Ukrainian officials said. `\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-ukraine-chernobyl-fire.html?searchResultPosition=3
 
-**U.S. Fintech Startup Stripe Raises $600 Million, Valued at $36 Billion**\
-`U.S. fintech startup Stripe Inc said on Thursday it raised $600 million, and the company was valued at $36 billion.`\
-https://nytimes.com/reuters/2020/04/16/technology/16reuters-stripe-funding.html?searchResultPosition=4
+**Poland's Borders to Be Closed Until at Least May 3: PM**\
+`Poland's borders will remain closed until at least May 3, Prime Minister Mateusz Morawiecki said on Thursday.`\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-poland-border.html?searchResultPosition=4
 
-**‘Beyond the Visible: Hilma af Klint’ Review: What Did She See, and When?**\
-`How the rediscovery of a Swedish abstract painter changed the course of art history.`\
-https://nytimes.com/2020/04/16/movies/beyond-the-visible-hilma-af-klint-review.html?searchResultPosition=5
+**Libyans Rush to Stock Up for Ramadan Before Coronavirus Curfew Kicks In**\
+`Libyans rushed on Thursday to stock up on food for the holy Muslim month of Ramadan before a curfew starts in the capital Tripoli and other western areas aimed at curbing the spread of coronavirus.`\
+https://nytimes.com/reuters/2020/04/16/world/africa/16reuters-health-coronavirus-libya-curfew.html?searchResultPosition=5
 
-**Democratic Super PAC: We Will Fight Trump in Court Over Ads**\
-`A leading Democratic super PAC has promised it will tangle in court with President Donald Trump's reelection campaign to keep airing television ads the Republican president is trying to keep off the airwaves.`\
-https://nytimes.com/aponline/2020/04/16/us/politics/ap-us-election-2020-trump-ad.html?searchResultPosition=6
+**Christian Mindfulness, Meditation Apps Find Their Moment**\
+`(RNS) — Rachael Reynolds is a busy wife and mom of three who, like many, suddenly has been tasked with home-schooling her children and managing the anxiety of a pandemic.`\
+https://nytimes.com/aponline/2020/04/16/us/ap-rns-meditation-apps.html?searchResultPosition=6
 
-**7 Midwest States to Partner on Reopening the Economy**\
-`Seven Midwestern governors announced Thursday that they will coordinate on reopening their state economies, after similar pacts were made in the Northeast and on the West Coast.`\
-https://nytimes.com/aponline/2020/04/16/business/ap-us-virus-outbreak-midwest-pact.html?searchResultPosition=7
+**U.N. Warns Economic Downturn Could Kill Hundreds of Thousands of Children in 2020**\
+`Hundreds of thousands of children could die this year due to the global economic downturn sparked by the coronavirus pandemic and tens of millions more could fall into extreme poverty as a result of the crisis, the United Nations warned on Thursday. `\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-children-un.html?searchResultPosition=7
 
-**31 Deaths: Toll at Quebec Nursing Home in Pandemic Reflects Global Phenomenon**\
-`Investigators are examining accusations of gross negligence after dozens of deaths at a residence where health care staff fled amid a coronavirus outbreak.`\
-https://nytimes.com/2020/04/16/world/canada/montreal-nursing-homes-coronavirus.html?searchResultPosition=8
+**G7 Seeks WHO Review and Reform, Commits to Coordinated Virus Response: White House**\
+`Leaders from the G7 group of industrialized nations on Thursday called for a review and reform process at the World Health Organization and agreed to ensure a coordinated global approach to the coronavirus pandemic, the White House said.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-usa-g7.html?searchResultPosition=8
 
-**Concert Giant AEG Offers Frustrated Fans a Refund**\
-`The company will open a 30-day window for ticket buyers to get their money back for shows that have been rescheduled.`\
-https://nytimes.com/2020/04/16/arts/music/aeg-presents-ticket-refunds.html?searchResultPosition=9
+**Kuwait to Operate 75 Flights for Evacuating Citizens Abroad: State News Agency**\
+`Kuwait announced on Thursday that its civil aviation directorate general will operate 75 flights in the next phase for evacuating citizens abroad who face the spread of the coronavirus pandemic, the state news agency reported.`\
+https://nytimes.com/reuters/2020/04/16/world/middleeast/16reuters-health-coronavirus-kuwait.html?searchResultPosition=9
 
-**Does the Pandemic Have a Purpose?**\
-`Only if we give it one. The coronavirus is neither good nor bad. It wants only to reproduce.`\
-https://nytimes.com/2020/04/16/opinion/covid-philosophy.html?searchResultPosition=10
+**Union Calls for Maintaining Support for Women's Soccer**\
+`The international players' union FIFPro is calling for continued financial support of women's soccer worldwide in the wake of the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/04/16/sports/soccer/ap-soc-virus-outbreak-womens-soccer.html?searchResultPosition=10
 
