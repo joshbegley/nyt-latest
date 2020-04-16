@@ -1,32 +1,32 @@
-**Bangladesh Rescues 382 Rohingya Drifting at Sea for Weeks**\
-`Bangladesh's coast guard has rescued 382 starving Rohingya refugees who had been drifting at sea for weeks after failing to reach Malaysia, officials said Thursday.`\
-https://nytimes.com/aponline/2020/04/16/world/asia/ap-as-bangladesh-rohingya.html?searchResultPosition=3
+**U.S. Teen Gauff Says Stronger Now After Battling Depression**\
+`American teenager Coco Gauff says she struggled to deal with the hype and mental pressure brought on by her rapid rise in the tennis world and that she had to rediscover her love for the game after becoming depressed.`\
+https://nytimes.com/reuters/2020/04/16/sports/tennis/16reuters-tennis-gauff.html?searchResultPosition=3
 
-**Latest on the Spread of the Coronavirus Around the World**\
-`Reported cases of the coronavirus crossed 2.05 million globally and more than 136,600 people have died, according to a Reuters tally as of 0200 GMT on Thursday. `\
-https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-latest-factbox.html?searchResultPosition=4
+**El Salvador's President Disregards Top Court Rulings on Coronavirus**\
+`El Salvador's President Nayib Bukele said on Wednesday he would not accept several Supreme Court rulings meant to stop him from enforcing some measures to curb the spread of the coronavirus, but it was not immediately clear if he could challenge them.`\
+https://nytimes.com/reuters/2020/04/16/world/16reuters-health-coronavirus-el-salvador.html?searchResultPosition=4
 
-**Australia Says Coronavirus Restrictions to Continue at Least Four More Weeks**\
-`Australia will keep in place restrictions implemented to curb the spread of the coronavirus for at least four more weeks, Prime Minister Scott Morrison said on Thursday, despite signs that Canberra has been successful in slowing infection rates. `\
-https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-australia-restrictions.html?searchResultPosition=5
+**India Charges Muslim Leader With Culpable Homicide for Coronavirus Surge**\
+`India has brought charges of culpable homicide not amounting to murder against the chief of a Muslim seminary for holding a gathering last month that authorities say led to a big jump in coronavirus infections, police said on Thursday.`\
+https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-southasia.html?searchResultPosition=5
 
-**China, Europe Show Restarting Virus-Hit Economies Not Easy**\
-`As countries consider how to restart their virus-halted economies, the early experiences in China and parts of Europe show it will be no easy task.`\
-https://nytimes.com/aponline/2020/04/16/world/europe/ap-virus-outbreak.html?searchResultPosition=6
+**EasyJet Says Able to Survive a Lengthy Fleet Grounding**\
+`British low cost airline easyJet, whose aircraft are all grounded due to the coronavirus pandemic, said steps it had taken to shore up its finances meant it would be able to survive a lengthy fleet grounding.`\
+https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-easyjet.html?searchResultPosition=6
 
-**Asian Stocks Slide After Weak US Data Add to Global Gloom**\
-`Asian stocks were mostly lower Thursday after unexpectedly weak U.S. retail and other data added to gloom about the impact of the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/16/business/bc-financial-markets.html?searchResultPosition=7
+**IMF Boss Says UK Should Seek Longer Brexit Transition**\
+`Britain should ask for an extension to its post-Brexit transition period to ease uncertainty at a time when the world economy is being hammered by the coronavirus pandemic, the head of the International Monetary Fund said.`\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-britain-eu-imf.html?searchResultPosition=7
 
-**Video Chats to Home Workouts, Draft Prospects Get It Done**\
-`UCLA running back Joshua Kelley was looking forward to visiting various NFL teams, checking out their facilities and meeting coaches before the COVID-19 pandemic changed the pre-draft process.`\
-https://nytimes.com/aponline/2020/04/16/sports/football/ap-fbn-draft-working-it.html?searchResultPosition=8
+**Germany's Coronavirus Cases Rise by 2,866, Deaths by 315: RKI**\
+`Germany's confirmed coronavirus cases have risen by 2,866 to 130,450, data from the Robert Koch Institute (RKI) for infectious diseases showed on Thursday, meaning the number of new infections rose for a second consecutive day.`\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-germany-cases.html?searchResultPosition=8
 
-**AP PHOTOS: In Iran, Isolated Musicians Perform From Rooftops**\
-`On the rooftop terrace of her Tehran apartment building, 28-year-old Mojgan Hosseini's fingers pluck the strings of her qanun, an ancient stringed instrument, bringing life to an Iranian capital stilled by the coronavirus. `\
-https://nytimes.com/aponline/2020/04/16/world/middleeast/ap-ml-virus-outbreak-iran-musicians-photo-essay.html?searchResultPosition=9
+**Stocks Slide and Dollar Rally Runs as Economic Realities Bite**\
+`Asia's stock markets retreated from their highest levels for a month and the dollar extended gains on Thursday as the damage the coronavirus has wrought on the world economy soured appetite for risk.`\
+https://nytimes.com/reuters/2020/04/16/business/16reuters-global-markets.html?searchResultPosition=9
 
-**Women's Sports Likely to Bear Brunt of Coronavirus Fallout**\
-`Linked to the rising call for gender equity worldwide, women’s sports were enjoying unprecedented attention and support before the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/04/16/sports/ap-virus-outbreak-womens-sports.html?searchResultPosition=10
+**Lazard Boosts Restructuring Team as Coronavirus-Hit Firms Run Into Trouble**\
+`Lazard Ltd has bolstered its senior restructuring team as it seeks to win business from companies struggling to stay afloat in the midst of the economic turbulence caused by the global coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-lazard-mallon.html?searchResultPosition=10
 
