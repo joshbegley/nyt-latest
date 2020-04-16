@@ -1,4 +1,4 @@
-**Testing Falls Woefully Short as Trump Seeks to Lift Stay-at-Home Orders**\
+**Testing Falls Woefully Short as Trump Seeks an End to Stay-at-Home Orders**\
 `Flawed tests, scarce supplies and limited access to screening have hurt the U.S.’s ability to monitor Covid-19, governors and health officials warn.`\
 https://nytimes.com/2020/04/15/us/coronavirus-testing-trump.html?searchResultPosition=3
 
