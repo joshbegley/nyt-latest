@@ -26,7 +26,7 @@ https://nytimes.com/aponline/2020/04/16/world/middleeast/ap-ml-saudi-execution.h
 `Governor Cuomo said that all New Yorkers must carry face coverings and wear them if they cannot stay six feet from others.`\
 https://nytimes.com/2020/04/16/nyregion/coronavirus-new-york-update.html?searchResultPosition=9
 
-**The Latest: PSG Helping to Provide Meals to Medical Staff**\
+**The Latest: Vieira Thanked for Donating iPads to Elderly**\
 `The Latest on the effects of the coronavirus outbreak on sports around the world:`\
 https://nytimes.com/aponline/2020/04/16/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=10
 
