@@ -1,32 +1,32 @@
-**The T List: Five Things We Recommend This Week**\
-`A pajama designer’s easy but unexpected egg dish — and more.`\
-https://nytimes.com/2020/04/16/t-magazine/citrus-tree-tlist.html?searchResultPosition=3
+**For Struggling Venezuelans in Quarantine, an Opportunity in Delivery Services**\
+`Delivery services have become one of the few employment opportunities for Venezuelans living under a coronavirus quarantine in a country already struggling with a recession, hyperinflation and fuel shortages.`\
+https://nytimes.com/reuters/2020/04/16/world/americas/16reuters-health-coronavirus-venezuela-transportation.html?searchResultPosition=3
 
-**My Friends Should Let Health Care Workers Stay in Their Empty Apartments. Right?**\
-`Doctors and nurses are heading to hot spots to provide front-line aid, and they need housing.`\
-https://nytimes.com/2020/04/16/style/doctors-nurses-city-housing-coronavirus.html?searchResultPosition=4
+**Dutch Coronavirus Cases Rise by 1,061 to 29,214: Authorities**\
+`The number of confirmed coronavirus cases in the Netherlands rose by 1,061 to 29,214, health authorities said on Thursday, with 181 new deaths.`\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-netherlands.html?searchResultPosition=4
 
-**Amid Lockdown, Danes Find Way to Celebrate Queen's Birthday**\
-`Observing social distancing, Danes on Thursday sang birthday songs from homes, balconies, parks and public gardens to honor popular Queen Margrethe II, who turned 80 amid the pandemic lockdown.`\
-https://nytimes.com/aponline/2020/04/16/world/europe/ap-eu-virus-outbreak-denmark-royal-birthday.html?searchResultPosition=5
+**Factbox: Countries Pondering an Easing of Coronavirus Curbs**\
+`Various countries around the world are wondering when and how to ease coronavirus lockdowns, though the World Health Organization (WHO) is warning that should be done slowly and only when there is capacity to isolate cases and trace contacts.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-lockdowns-factbox.html?searchResultPosition=5
 
-**Indianapolis Officer's Funeral Will Follow Social Distancing**\
-`An Indianapolis police officer who was fatally shot last week while responding to a domestic violence call will be laid to rest Thursday following funeral services at the Indianapolis Motor Speedway that were planned to adhere to social distancing rules because of the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/16/us/ap-us-indianapolis-officer-shot.html?searchResultPosition=6
+**Sanofi Teams Up With U.S. Firm Luminostics on Developing COVID-19 Testing App**\
+`French healthcare company Sanofi and U.S. start-up technology company Luminostics said they were joining up to work on developing a smartphone-based self-testing solution to see if someone has the COVID-19 coronavirus.`\
+https://nytimes.com/reuters/2020/04/16/technology/16reuters-health-coronavirus-tech-sanofi.html?searchResultPosition=6
 
-**Lesson of the Day: ‘Lessons in Constructive Solitude From Thoreau’**\
-`In this lesson, students will learn about Henry David Thoreau and why his two-year-plus experiment in self-isolation at Walden Pond is relevant today.`\
-https://nytimes.com/2020/04/16/learning/lesson-of-the-day-lessons-in-constructive-solitude-from-thoreau.html?searchResultPosition=7
+**Leading in Pandemic Becomes Part of Audition for Biden's VP**\
+`California Sen. Kamala Harris is raising money for presumptive Democratic presidential nominee Joe Biden while speaking out about the disproportionate number of African Americans with COVID-19.`\
+https://nytimes.com/aponline/2020/04/16/us/politics/ap-us-election-2020-campaigning-for-vp.html?searchResultPosition=7
 
-**US Home Construction Collapsed 22.3% in March**\
-`U.S. home-building activity collapsed in March as the coronavirus spread, with housing starts tumbling 22.3% from a month ago.`\
-https://nytimes.com/aponline/2020/04/16/business/bc-us-home-construction.html?searchResultPosition=8
+**A Frank Talk About Fat**\
+`The author of “This Is Big,” a history of Weight Watchers, comes to terms with a lifetime of dieting, a wavering self-image and the persistence of fat shaming in our society.`\
+https://nytimes.com/2020/04/16/style/weight-watchers-a-frank-talk-about-fat.html?searchResultPosition=8
 
-**NWS: More Than 100 Tornadoes Hit From Texas to Maryland**\
-`More than 100 tornadoes struck the South in the two-day outbreak that killed more than 30 people this week, the National Weather Service said.`\
-https://nytimes.com/aponline/2020/04/16/us/ap-us-severe-weather.html?searchResultPosition=9
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties include a five-bedroom in Tenafly, N.J., and a three-bedroom in Briarcliff Manor, N.Y.`\
+https://nytimes.com/2020/04/16/realestate/homes-for-sale-in-new-york-and-new-jersey.html?searchResultPosition=9
 
-**‘Nowhere to Hide’ as Unemployment Permeates the Economy**\
-`Jobless claims exceed 20 million in four weeks, inflicting a toll on the labor force not seen since the Great Depression.`\
-https://nytimes.com/2020/04/16/business/economy/coronavirus-unemployment-claims.html?searchResultPosition=10
+**Homes for Sale in Manhattan, Staten Island and Brooklyn**\
+`This week’s properties are in Murray Hill, St. George, and Crown Heights.`\
+https://nytimes.com/2020/04/16/realestate/homes-for-sale-in-manhattan-staten-island-and-brooklyn.html?searchResultPosition=10
 
