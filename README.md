@@ -1,5 +1,5 @@
 **China Tries to Revive Economy but Consumer Engine Sputters**\
-`China, the first country hit by the coronavirus pandemic, is cautiously beginning to get back to business, but it's not easy with many millions of workers wary of spending much or even going out. `\
+`China, where the coronavirus pandemic started in December, is cautiously trying to get back to business, but it’s not easy when many millions of workers are wary of spending much or even going out. `\
 https://nytimes.com/aponline/2020/04/15/business/bc-as-virus-outbreak-china-economy.html?searchResultPosition=3
 
 **New Details Hint at Risk of Russian Misinformation in Dossier**\
