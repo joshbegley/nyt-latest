@@ -3,7 +3,7 @@
 https://nytimes.com/2020/04/15/us/coronavirus-testing-trump.html?searchResultPosition=3
 
 **Essence Festival Canceled Amid Coronavirus Outbreak in New Orleans**\
-`The 25th annual Essence Fest was canceled after Mayor LaToya Cantrell recommended that all large-scale events be paused until 2021.`\
+`The annual Essence Fest was canceled after Mayor LaToya Cantrell recommended that all large-scale events be paused until 2021.`\
 https://nytimes.com/2020/04/15/us/essence-fest-canceled-coronavirus.html?searchResultPosition=4
 
 **After Anonymous Tip, 17 Bodies Found at Nursing Home Hit by Virus**\
