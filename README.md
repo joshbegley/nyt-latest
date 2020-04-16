@@ -1,5 +1,5 @@
 **After Anonymous Tip, 17 Bodies Found at Nursing Home Hit by Virus**\
-`There have been 68 recent deaths of people at the facility in a small New Jersey town.`\
+`There have been 68 recent deaths of residents and nurses from the facility in a small New Jersey town.`\
 https://nytimes.com/2020/04/15/nyregion/coronavirus-nj-andover-nursing-home-deaths.html?searchResultPosition=3
 
 **Trump’s ‘Opening Our Country Council’ Runs Into Its Own Opening Problems**\
