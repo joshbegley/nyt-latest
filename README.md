@@ -1,32 +1,32 @@
-**New Ventilator Receives Approval in UK's Battle Against Coronavirus: Source**\
-`A new ventilator from medical device company Penlon has received regulatory approval from Britain in the first such go-ahead as part of ramped-up efforts to combat the coronavirus, an industry source told Reuters on Thursday. `\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-ventilators.html?searchResultPosition=3
+**What You Need to Know About the Coronavirus Right Now**\
+`Here's what you need to know about the coronavirus right now:`\
+https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-snapshot.html?searchResultPosition=3
 
-**UK Banks Expect to Lend More to Business as COVID-19 Crisis Deepens**\
-`British banks expect to lend more to businesses but curb mortgage and consumer lending over the next three months as the country feels the economic effects of the coronavirus, a Bank of England survey showed on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-britain-boe-credit.html?searchResultPosition=4
+**This Is How to Hold a Coronavirus Election**\
+`South Korea has been a model of testing and tracing during the epidemic. Now it is for voting, too.`\
+https://nytimes.com/2020/04/16/opinion/south-korea-election-coronavirus.html?searchResultPosition=4
 
-**Etihad Says Has Full Support From State Owner, to Resume Flights in May**\
-`Abu Dhabi’s Etihad Airways has the full support of its state shareholder, its chief executive said on Thursday as the airline announced a partial resumption of passenger flights from May 1. `\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-etihad-airways.html?searchResultPosition=5
+**As Coronavirus Fades in China, Nationalism and Xenophobia Flare**\
+`Now that the pandemic is raging outside China’s borders, foreigners are being shunned, barred from public spaces and even evicted.`\
+https://nytimes.com/2020/04/16/world/asia/coronavirus-china-nationalism.html?searchResultPosition=5
 
-**A Quarter of UK Firms Temporarily Closed Due to Coronavirus: ONS**\
-`A quarter of companies in Britain had temporarily closed or paused trading due to the coronavirus lockdown by early April, according to a survey published by the country's official statistics office on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-britain-economy.html?searchResultPosition=6
+**W.H.O., Now Trump’s Scapegoat, Warned About Coronavirus Early and Often**\
+`The World Health Organization, always cautious, acted more forcefully and faster than many national governments. But President Trump has decided to cut off U.S. funding to the organization.`\
+https://nytimes.com/2020/04/16/health/WHO-Trump-coronavirus.html?searchResultPosition=6
 
-**How Does a New Yawker Tawk?**\
-`The #BestNYAccent challenge on Instagram brought out the sound of an unflappable city.`\
-https://nytimes.com/video/arts/100000007085224/best-ny-accent-instagram-new-york-nico.html?searchResultPosition=7
+**Biden Is Losing the Internet. Does That Matter?**\
+`The coronavirus has forced the Democrats’ presumptive presidential nominee into an all-digital campaign, and he’s struggling to break through.`\
+https://nytimes.com/2020/04/16/technology/joe-biden-internet.html?searchResultPosition=7
 
-**Pandemic to Bring Asia's 2020 Growth to Halt for First Time in 60 Years: IMF**\
-`Asia's economic growth this year will grind to a halt for the first time in 60 years, as the coronavirus crisis takes an "unprecedented" toll on the region's service sector and major export destinations, the International Monetary Fund said on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-asia-imf.html?searchResultPosition=8
+**An Army of Virus Tracers Takes Shape in Massachusetts**\
+`Asian countries have invested heavily in digital contact-tracing, which uses technology to warn people when they have been exposed to the coronavirus. Massachusetts is using an old-fashioned means: people.`\
+https://nytimes.com/2020/04/16/us/coronavirus-massachusetts-contact-tracing.html?searchResultPosition=8
 
-**CNN Anchor Chris Cuomo's Wife Also Diagnosed With the Coronavirus**\
-`CNN anchor Chris Cuomo, who late in March disclosed he had tested positive for the coronavirus, said late on Wednesday his wife Cristina has also been diagnosed with it.`\
-https://nytimes.com/reuters/2020/04/16/technology/16reuters-health-coronavirus-usa-new-york.html?searchResultPosition=9
+**A Reporter’s Challenge: Maintaining Distance in a Close Community**\
+`The logistics of working on an article in Amish country in Ohio proved trickier than expected.`\
+https://nytimes.com/2020/04/16/insider/reporter-amish-coronavirus.html?searchResultPosition=9
 
-**Coronavirus Crisis Provides Excuses for Curbs on Free Speech**\
-`Health concerns were on artist Danai Ussama’s mind when he returned to Thailand last month from a trip to Spain. He noticed that he and his fellow passengers did not go through medical checks after arriving at Bangkok’s airport, and thought it worth noting on his Facebook page.`\
-https://nytimes.com/aponline/2020/04/16/world/asia/ap-as-virus-outbreak-controlling-critics-.html?searchResultPosition=10
+**Inside the Fringe Japanese Religion That Claims It Can Cure Covid-19**\
+`Happy Science, which boasts millions of followers, is led by a man who channels Buddha (and Jesus and Freddie Mercury) and says he can defeat the coronavirus. For a fee.`\
+https://nytimes.com/2020/04/16/nyregion/happy-science-japan-coronavirus-cure.html?searchResultPosition=10
 
