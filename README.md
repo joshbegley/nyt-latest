@@ -1,32 +1,32 @@
-**Did Moms Exist Before Social Media?**\
-`How the “mamasphere” went from scrappy blogs to multi-platform personal brands in the past decade.`\
-https://nytimes.com/2020/04/16/parenting/mommy-influencers.html?searchResultPosition=3
+**What Everyone Can Learn From Parents of Big Families**\
+`When you’re parenting at scale, keeping things simple is key.`\
+https://nytimes.com/2020/04/16/parenting/big-families.html?searchResultPosition=3
 
-**15 Documentaries That Get Inside an Artist’s Head**\
-`Kick back with these movies old and new — and gain a new appreciation for artists from Alice Neel to Mark Hogancamp and Sun Ra.`\
-https://nytimes.com/2020/04/16/arts/design/art-documentaries-streaming-virus.html?searchResultPosition=4
+**This Simple Five-Ingredient Pasta Has Loads of Flavor**\
+`You don’t need much to yield a lot of deliciousness — just a creamy base and a willingness to experiment.`\
+https://nytimes.com/2020/04/16/dining/miso-pasta-coronavirus.html?searchResultPosition=4
 
-**'I Want to Win': Athletes in Medicine Fields Facing Virus**\
-`Kelsey Diemer feels the same energy as a doctor that she did a few years ago when she was among the best 3-point shooters in college basketball.`\
-https://nytimes.com/aponline/2020/04/16/sports/ap-us-virus-outbreak-athletes-on-frontlines.html?searchResultPosition=5
+**When Your Name Becomes ‘Mom,’ Do Your Other Identities Matter?**\
+`Finding the road back to yourself after parenthood takes over.`\
+https://nytimes.com/2020/04/16/parenting/motherhood-identity-crisis.html?searchResultPosition=5
 
-**Southwest Drought Rivals Those of Centuries Ago, Thanks to Climate Change**\
-`The drought that has gripped the American Southwest since 2000 is as bad as or worse than droughts in the region over the past 1,200 years, a new study finds.`\
-https://nytimes.com/2020/04/16/climate/drought-southwest-climate-change.html?searchResultPosition=6
+**Study: Warming Makes US West Megadrought Worst in Modern Age**\
+`A two-decade-long dry spell that has parched much of the western United States is turning into one of the deepest megadroughts in the region in more than 1,200 years, a new study found.`\
+https://nytimes.com/aponline/2020/04/16/us/ap-us-western-megadrought.html?searchResultPosition=6
 
-**Actor Brian Dennehy Dies at 81**\
-`The versatile actor, whose career spanned more than 50 years in theater, movies and television, won two Tony Awards, including for his performance in “Death of a Salesman.”`\
-https://nytimes.com/2020/04/16/movies/brian-dennehy-dead.html?searchResultPosition=7
+**Saying ‘No’ Is Self-Care for Parents**\
+`Facing parental burnout? Use the magic word.`\
+https://nytimes.com/2020/04/16/parenting/burnout-boundaries.html?searchResultPosition=7
 
-**‘#blackAF’ Review: A Second Portrait of the Artist, With More Scars**\
-`The creator of “black-ish” arrives on Netflix, playing “himself” in an outspoken show with a lot of familiar echoes.`\
-https://nytimes.com/2020/04/16/arts/television/blackaf-review.html?searchResultPosition=8
+**Nora Illi, Swiss Muslim Convert Who Sparked Controversy, Dies at 35**\
+`When the first Swiss canton banned full-body veils for Muslim women, Ms. Illi showed up wearing one, prompting the police to get involved.`\
+https://nytimes.com/2020/04/16/world/europe/nora-illi-dead.html?searchResultPosition=8
 
-**Virus Forces a ‘Wartime’ Budget on N.Y.C., With $2 Billion in Cuts**\
-`With the city projecting a $7.4 billion loss in tax revenue, municipal services that “can’t be a priority right now” are being slashed, Mayor de Blasio said.`\
-https://nytimes.com/2020/04/16/nyregion/nyc-budget-coronavirus.html?searchResultPosition=9
+**Trump Considers Billionaire Investor for Intelligence Job**\
+`Stephen Feinberg, who backed the president’s campaign, is said to be in talks for a top post in the Office of the Director of National Intelligence.`\
+https://nytimes.com/2020/04/16/us/politics/stephen-feinberg-trump-intelligence.html?searchResultPosition=9
 
-**El Salvador President to Defy Court on Lockdown Detentions**\
-`The president of El Salvador said Thursday he will not obey the country’s Supreme Court, after it ruled authorities cannot detain people who disobey lockdown measures. `\
-https://nytimes.com/aponline/2020/04/16/world/americas/ap-lt-virus-outbreak-el-salvador.html?searchResultPosition=10
+**How L.O.L. Dolls Became the Dopamine Hit of a Generation**\
+`Meet the man behind the $5 billion toy juggernaut.`\
+https://nytimes.com/2020/04/16/parenting/lol-surprise-doll-isaac-larian.html?searchResultPosition=10
 
