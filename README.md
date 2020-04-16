@@ -1,32 +1,32 @@
+**Canadian Banks Ease Credit Rules for Energy Companies to Stave Off Defaults, Bankruptcies**\
+`Canadian banks are beginning to relax lending standards for energy firms struggling to operate with oil prices at half the level needed to cover costs, seeking to keep them afloat until the industry recovers from its deepest slump ever.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-energy-lending.html?searchResultPosition=3
+
+**Fed's Kashkari Says Major U.S. Banks Should Raise $200 Billion in Capital: FT**\
+`Big banks in the United States should raise $200 billion in capital right now amid the ongoing coronavirus outbreak, Minneapolis Federal Reserve Bank President Neel Kashkari wrote in an op-ed for the Financial Times newspaper https://on.ft.com/34JV0qq. `\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-fed-kashkari.html?searchResultPosition=4
+
+**Spotlight on WNBA, as League Navigates Draft on Lockdown**\
+`All eyes will be on the WNBA this Friday as it becomes the first major professional league in North America to carry out a "virtual draft" since the coronavirus outbreak that put the start of its season on hold.`\
+https://nytimes.com/reuters/2020/04/16/sports/basketball/16reuters-basketball-wnba.html?searchResultPosition=5
+
+**Uzbek Banks to Get $150 Million From EBRD's Coronavirus Package**\
+`The European Bank for Reconstruction and Development (EBRD) [EBRD.UL] will make $150 million in trade finance facilities available to three Uzbek banks under its coronavirus support package, it said on Thursday.`\
+https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-uzbekistan-ebrd.html?searchResultPosition=6
+
+**Russia to Spend More Than $27 Billion on Anti-Crisis Measures: Minister**\
+`Russia is set to spend more than 2 trillion roubles ($26.96 billion) on its anti-crisis programme to counter the effects of the coronavirus pandemic, Economy Minister Maxim Reshetnikov said on Thursday. `\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-russia-economy.html?searchResultPosition=7
+
+**ECB Ready to Do More to Avoid Euro 'Fragmentation': Schnabel**\
+`The European Central Bank is ready to do more to avoid financial fragmentation in the euro zone, ECB board member Isabel Schnabel said on Thursday, after a significant widening of the spread between Italian and German bond yields.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-ecb.html?searchResultPosition=8
+
+**Australia to Send Aid to Fiji After Cyclone Tears Across Pacific**\
+`Australia is to send humanitarian aid to Fiji after a tropical cyclone caused widespread destruction across the Pacific, Minister for Foreign Affairs Marise Payne said on Thursday.`\
+https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-fiji-australia.html?searchResultPosition=9
+
 **‘Charger Desert’ in Big Cities Keeps Electric Cars From Mainstream**\
 `For city dwellers who would love an E.V., the biggest hurdle might be keeping it juiced up without a garage or other convenient charging stations.`\
-https://nytimes.com/2020/04/16/business/electric-cars-cities-chargers.html?searchResultPosition=3
-
-**The Soundtrack to an Electric Car**\
-`The film composer Hans Zimmer is creating a sonic signature for BMW’s forthcoming electric i4 sedan.`\
-https://nytimes.com/2020/04/16/business/bmw-i4-hans-zimmer.html?searchResultPosition=4
-
-**Interested in a Short-Term Rental for Social Distancing? Be Prepared to Stay Longer**\
-`From Airbnb to luxury “quarantine apartments,” rental platforms are offering bargains for longer stays — some even offer coronavirus testing.`\
-https://nytimes.com/2020/04/16/realestate/coronavirus-short-term-rentals.html?searchResultPosition=5
-
-**Malaysia Reports 110 New Coronavirus Cases With One New Death**\
-`Malaysia reported 110 new confirmed cases of the novel coronavirus on Thursday, raising the cumulative total to 5,182.`\
-https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-malaysia.html?searchResultPosition=6
-
-**Kicked Out of China**\
-`As the coronavirus escalated to a worldwide crisis, China expelled our journalists — and surveilled our correspondents to thwart their reporting before they left.`\
-https://nytimes.com/2020/04/16/podcasts/the-daily/china-coronavirus.html?searchResultPosition=7
-
-**Hazmats and Home Deliveries: How One Iberian Ham Producer Is Countering Coronavirus**\
-`Having lived through animal-related influenzas like SARS and H1N1, Iberian ham producer Joselito was quick to enhance quality controls with tougher sanitary measures when the coronavirus hit.`\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-spain-ham.html?searchResultPosition=8
-
-**Europe COVID-19 Cases Almost at 1 Million, Coming Weeks 'Critical'-WHO**\
-`Europe is currently in eye of the storm of the COVID-19 pandemic, with the number of cases nearing a million, the World Health Organization's (WHO) European regional director said on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-who-europe.html?searchResultPosition=9
-
-**Ford's First-Quarter China Vehicle Sales Down 35% Year-On-Year to 88,770 Units**\
-`Ford Motor Co said on Thursday that its China vehicle sales in the first three months this year fell 34.9% from a year earlier to 88,770 units, as coronavirus epidemic hit demands in the world's biggest auto market.`\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-ford-china.html?searchResultPosition=10
+https://nytimes.com/2020/04/16/business/electric-cars-cities-chargers.html?searchResultPosition=10
 
