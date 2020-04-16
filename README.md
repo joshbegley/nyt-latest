@@ -1,32 +1,32 @@
-**Lockdown Lifted, Wuhan's Residence Committees Keep Watch**\
-`The lockdown of the Chinese city of Wuhan may have lifted, but Feng Jing keeps watching the 5,400 residents in the Tanhualin neighbourhood to see where they go and how they are feeling, guarding against the coronavirus creeping back.`\
-https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-china-wuhan.html?searchResultPosition=3
+**Japan's Abe Leans Toward Blanket Cash Payouts to Fight Coronavirus Downturn**\
+`Japanese Prime Minister Shinzo Abe will likely instruct cabinet to make changes to a draft supplementary budget to offer blanket cash payouts of 100,000 yen ($926) each to all citizens, Kyodo news agency reported on Thursday, as the coronavirus pandemic inflicts deeper pain on the world's third-largest economy.`\
+https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-japan-budget.html?searchResultPosition=3
 
-**Amid Coronavirus Outbreak, Florida County Pulls Welcome Mat**\
-`As Jessica Cherry watched traffic from her porch, she wondered with each passing vehicle if the coronavirus had made its way into her rural Florida Panhandle community. `\
-https://nytimes.com/aponline/2020/04/16/us/ap-us-virus-outbreak-rural-florida.html?searchResultPosition=4
+**As Japan Slows Down, Prices at Risk of Falling While Bars, Restaurants Suffer**\
+`For someone like Sumako Furihata, who owns two small restaurants in Tokyo's Akasaka nightlife district, the coronavirus pandemic has been a nightmare that crushed sales and put her in a difficult situation.`\
+https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-japan-prices.html?searchResultPosition=4
 
-**Coronavirus Could Erode Global Fight Against Other Diseases**\
-`Lavina D’Souza hasn’t been able to collect her government-supplied anti-HIV medication since the abrupt lockdown of India's 1.3 billion people last month during the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/04/16/health/ap-med-virus-outbreak-other-diseases.html?searchResultPosition=5
+**Man GLG Hires Asia Equities Head From Rival BlackRock**\
+`Man GLG, the discretionary investment arm of asset manager Man Group, has hired Andrew Swan from rival BlackRock to lead its Asia ex-Japan equities business, it said on Thursday.`\
+https://nytimes.com/reuters/2020/04/16/business/16reuters-asia-investment-man-group-blackrock.html?searchResultPosition=5
 
-**'Dreary Summer' Expected in California as Virus Dims Plans**\
-`In these dark times, clouded by fears of an enemy we can’t see and sheltered in homes we're itching to leave, it's reassuring to know that California's sunsets over the Pacific are just as vivid. You just can't enjoy them with sand between your toes.`\
-https://nytimes.com/aponline/2020/04/16/business/ap-us-virus-outbreak-postcard-from-california.html?searchResultPosition=6
+**Dollar Extends Gains as U.S. Retail Slump Sparks Flight to Safety**\
+`A flight to safety bid pushed the dollar higher against its peers on Thursday after dire retail and factory data showed the severity of the collapse in U.S. economic activity caused by the novel coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/16/business/16reuters-global-forex.html?searchResultPosition=6
 
-**Rams' Allen 1st NFL Player to Reveal Positive COVID-19 Test**\
-`Los Angeles Rams center Brian Allen says he tested positive for COVID-19 three weeks ago.`\
-https://nytimes.com/aponline/2020/04/16/sports/football/ap-fbn-rams-allen-coronavirus.html?searchResultPosition=7
+**Japan's Abe to Tweak Draft Extra Budget to Offer Blanket Cash Payouts: Kyodo**\
+`Japanese Prime Minister Shinzo Abe will likely instruct his cabinet to make changes to a draft supplementary budget to offer blanket cash payouts of 100,000 yen ($926) each to all citizens, Kyodo news agency reported on Thursday.`\
+https://nytimes.com/reuters/2020/04/16/world/asia/15reuters-health-coronavirus-japan-budget.html?searchResultPosition=7
 
-**Lives Lost: Spanish Father Leaves Behind Bits of History**\
-`Julián Iglesias could always connect with his loved ones through his gaze, even after dementia stole his memory. `\
-https://nytimes.com/aponline/2020/04/16/world/europe/ap-eu-virus-outbreak-lives-lost-spanish-patriarch.html?searchResultPosition=8
+**Trump Backers Protest Michigan Stay-At-Home Orders at State Capitol**\
+`Thousands of demonstrators in cars with horns honking thronged around Michigan's state Capitol on Wednesday, some chanting "lock her up," to protest against stay-at-home orders imposed by Governor Gretchen Whitmer to stop the coronavirus.`\
+https://nytimes.com/reuters/2020/04/16/us/politics/15reuters-health-coronavirus-michigan.html?searchResultPosition=8
 
-**The Soft Side of China’s Coronavirus Propaganda**\
-`The Communist Party’s messaging is both more agile and more fragile than it seems.`\
-https://nytimes.com/2020/04/16/opinion/china-coronavirus-propaganda.html?searchResultPosition=9
+**Thailand Reports 29 New Coronavirus Cases, Three New Deaths**\
+`Thailand on Thursday reported 29 new coronavirus cases and 3 new deaths, bringing it to a total of 2,672 cases and 46 fatalities since the outbreak there escalated in January. `\
+https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-thailand-cases.html?searchResultPosition=9
 
-**U.S.T.A. Plans a $15 Million Bailout for Various Tennis Groups**\
-`The funding, intended to help during shutdowns associated with the coronavirus pandemic, comes amid uncertainty about whether the association will be able to host the U.S. Open tournament as planned.`\
-https://nytimes.com/2020/04/16/sports/tennis/usta-bailout-tennis.html?searchResultPosition=10
+**Mexico Could Force Businesses to Close if They Violate Coronavirus Rules**\
+`Mexico could force the closure of companies in non-essential sectors if they refuse to suspend operations during a state of emergency to curb spread of the coronavirus, a top health official said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/16/world/americas/16reuters-health-coronavirus-mexico.html?searchResultPosition=10
 
