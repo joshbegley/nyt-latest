@@ -1,32 +1,32 @@
-**German Auto Industry Calls for Incentives to Boost Green Car Demand**\
-`Germany's auto industry association VDA on Thursday joined a chorus of demands from auto industry executives and politicians calling for more incentives to revive demand for low emission vehicles in the wake of the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-germany-autos.html?searchResultPosition=3
+**Nvidia Gets China Government's Nod to Buy Mellanox, Says All Conditions Satisfied**\
+`Chipmaker Nvidia Corp on Thursday received approval from China's antitrust authority for its $6.9 billion proposed acquisition of Mellanox Technologies Ltd and said with that all the conditions to the deal's closing have been satisfied.`\
+https://nytimes.com/reuters/2020/04/16/technology/16reuters-mellanox-m-a-nvidia-china.html?searchResultPosition=3
 
-**New York Fed's Williams Says Full Economic Consequences of Coronavirus Still Unknown**\
-`The Federal Reserve took "bold action" to shore up markets disrupted by the coronavirus pandemic and launched an unprecedented level of open market operations, but the full scale of the virus' toll on the economy is still unknown, New York Federal Reserve Bank President John Williams said Thursday. `\
-https://nytimes.com/reuters/2020/04/16/us/16reuters-usa-fed-williams.html?searchResultPosition=4
+**U.S. Fintech Startup Stripe Raises $600 Million, Valued at $36 Billion**\
+`U.S. fintech startup Stripe Inc said on Thursday it raised $600 million, and the company was valued at $36 billion.`\
+https://nytimes.com/reuters/2020/04/16/technology/16reuters-stripe-funding.html?searchResultPosition=4
 
-**U.S. Fed Buys $59.4 Billion of Mortgage Bonds, Sells $1 Bln**\
-`The Federal Reserve bought $59.403 billion of agency mortgage-backed securities in the week`\
-https://nytimes.com/reuters/2020/04/16/us/16reuters-markets-mortgages-fed.html?searchResultPosition=5
+**‘Beyond the Visible: Hilma af Klint’ Review: What Did She See, and When?**\
+`How the rediscovery of a Swedish abstract painter changed the course of art history.`\
+https://nytimes.com/2020/04/16/movies/beyond-the-visible-hilma-af-klint-review.html?searchResultPosition=5
 
-**UK Delays Consultation on Reform to Flawed Inflation Measure**\
-`Britain's government will delay until August a consultation to decide when it should fix a flawed measure of inflation, the retail price index, finance minister Rishi Sunak said in a letter published on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-britain-inflation-consultation.html?searchResultPosition=6
+**Democratic Super PAC: We Will Fight Trump in Court Over Ads**\
+`A leading Democratic super PAC has promised it will tangle in court with President Donald Trump's reelection campaign to keep airing television ads the Republican president is trying to keep off the airwaves.`\
+https://nytimes.com/aponline/2020/04/16/us/politics/ap-us-election-2020-trump-ad.html?searchResultPosition=6
 
-**Coronavirus Spurs New Clash Between Big Oil and Big Corn Over U.S. Biofuels**\
-`A fuel demand meltdown caused by the coronavirus outbreak in the United States has started up a new fight between the oil and agriculture industries over the nation's biofuel policy, this time over whether the policy should be suspended or expanded as a result of the crisis.`\
-https://nytimes.com/reuters/2020/04/16/us/16reuters-usa-biofuels-coronavirus.html?searchResultPosition=7
+**7 Midwest States to Partner on Reopening the Economy**\
+`Seven Midwestern governors announced Thursday that they will coordinate on reopening their state economies, after similar pacts were made in the Northeast and on the West Coast.`\
+https://nytimes.com/aponline/2020/04/16/business/ap-us-virus-outbreak-midwest-pact.html?searchResultPosition=7
 
-**Americans Are Spending Coronavirus Checks on Rent and Groceries**\
-`When Jessica Rosner saw the $1,200 coronavirus relief payment from the U.S. government was deposited into her bank account Wednesday morning, the furloughed behavioral therapist knew immediately how she would spend the cash. `\
-https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-usa-relief.html?searchResultPosition=8
+**31 Deaths: Toll at Quebec Nursing Home in Pandemic Reflects Global Phenomenon**\
+`Investigators are examining accusations of gross negligence after dozens of deaths at a residence where health care staff fled amid a coronavirus outbreak.`\
+https://nytimes.com/2020/04/16/world/canada/montreal-nursing-homes-coronavirus.html?searchResultPosition=8
 
-**Fed's Kaplan Says Open to Doing More, but 'Moral Hazard' a Concern**\
-`Dallas Federal Reserve Bank President Robert Kaplan said Thursday he is "open minded about what else we need to do" to help the U.S. economy amid the coronavirus pandemic, including potentially coming to the aid of non-profits and mortgage servicers. `\
-https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-fed-kaplan.html?searchResultPosition=9
+**Concert Giant AEG Offers Frustrated Fans a Refund**\
+`The company will open a 30-day window for ticket buyers to get their money back for shows that have been rescheduled.`\
+https://nytimes.com/2020/04/16/arts/music/aeg-presents-ticket-refunds.html?searchResultPosition=9
 
-**A's Minor League Manager Off Ventilator in Coronavirus Fight**\
-`Oakland Athletics minor league manager Webster Garrison has resumed breathing completely on his own for the first time in more than three weeks and no longer requires a ventilator as he fights the coronavirus, his fiance said Thursday.`\
-https://nytimes.com/aponline/2020/04/16/sports/baseball/ap-bba-athletics-minor-league-manager.html?searchResultPosition=10
+**Does the Pandemic Have a Purpose?**\
+`Only if we give it one. The coronavirus is neither good nor bad. It wants only to reproduce.`\
+https://nytimes.com/2020/04/16/opinion/covid-philosophy.html?searchResultPosition=10
 
