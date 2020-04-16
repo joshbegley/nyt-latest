@@ -1,32 +1,32 @@
+**Carnival CEO Defends Company's Safety Record as Cruise Industry Remains Grounded**\
+`Carnival Corp Chief Executive Officer Arnold Donald defended the company’s safety record on Thursday, telling reporters in a media call that Carnival followed protocols from international authorities while handling high-profile coronavirus outbreaks aboard two of its ships.`\
+https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-carnival.html?searchResultPosition=3
+
+**Gilead Surges After Report Suggests COVID-19 Patients Responding to Remdesivir**\
+`Shares of Gilead Sciences Inc soared 15% on Thursday after a media report suggested that severe COVID-19 patients were positively responding to the drugmaker's experimental treatment remdesivir.     `\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-gilead-sciences.html?searchResultPosition=4
+
+**'Makeshift Morgue' at New Jersey Nursing Home Sparks Broader Coronavirus Probe**\
+`New Jersey's governor on Thursday ordered a probe into long-term care facilities after a "makeshift morgue" was found at a nursing home devastated by the novel coronavirus, raising questions about the death toll at homes for the elderly.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-usa-new-jersey-nursing-home.html?searchResultPosition=5
+
+**Pence Says More Than 5 Million Americans Will Have Been Tested for Coronavirus by End of April**\
+`Vice President Mike Pence said on Thursday that he expects more than 5 million Americans will have been tested for the novel coronavirus by the end of April. `\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-pence-testing.html?searchResultPosition=6
+
+**Moderna Receives $483 Million BARDA Award for COVID-19 Vaccine Development**\
+`Moderna Inc said on Thursday that it received a $483 million contract from the Biomedical Advanced Research and Development Authority (BARDA) to accelerate the development of its vaccine candidate for the novel coronavirus.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-moderna-funding.html?searchResultPosition=7
+
 **Tracking Trump’s Promises on Responding to the Virus**\
 `The president has promised enhanced testing and monitoring capabilities, thousands of ventilators and millions of masks. Here’s a status report.`\
-https://nytimes.com/2020/04/16/us/politics/trump-coronavirus-promises-fact-check.html?searchResultPosition=3
+https://nytimes.com/2020/04/16/us/politics/trump-coronavirus-promises-fact-check.html?searchResultPosition=8
 
 **House Democrats Back Changing Rules to Allow Remote Voting During Pandemic**\
 `If approved by the House, the switch to proxy voting would be the first time in the history of Congress that lawmakers could cast votes other than in person.`\
-https://nytimes.com/2020/04/16/us/politics/house-coronavirus-remote-voting.html?searchResultPosition=4
+https://nytimes.com/2020/04/16/us/politics/house-coronavirus-remote-voting.html?searchResultPosition=9
 
 **Navy IDs Arkansas Sailor as 1st Active-Duty COVID-19 Death**\
 `The crew member of the aircraft carrier USS Theodore Roosevelt who died of the coronavirus was an Arkansas man, the Navy disclosed on Thursday.`\
-https://nytimes.com/aponline/2020/04/16/us/ap-us-virus-outbreak-aircraft-carrier.html?searchResultPosition=5
-
-**29 Dead at One Nursing Home From the Virus. Or More. No One Will Say.**\
-`What is happening inside a Queens nursing home hit by the outbreak? Relatives of residents said there was a disturbing lack of information.`\
-https://nytimes.com/2020/04/16/nyregion/new-york-nj-nursing-homes-coronavirus-deaths.html?searchResultPosition=6
-
-**Loyal Trump Backer Is Now a Face of the Administration’s Virus Response**\
-`The loyalty of the longtime Trump adviser Michael Caputo helped him secure a post as the top public affairs official at the Health and Human Services Department during the pandemic.`\
-https://nytimes.com/2020/04/16/us/politics/michael-caputo-hhs.html?searchResultPosition=7
-
-**Judge Denies Roger Stone’s Bid for a New Trial**\
-`The judge rejected the defense’s argument of juror bias in a politically fraught case in which President Trump publicly attacked his friend’s conviction.`\
-https://nytimes.com/2020/04/16/us/politics/roger-stone-new-trial-denied.html?searchResultPosition=8
-
-**Wisconsin Voters Faced an Impossible Choice. It Shouldn’t Happen Again.**\
-`Americans need not risk their health to cast their ballots.`\
-https://nytimes.com/2020/04/16/opinion/wisconsin-coronavirus-elections-mail.html?searchResultPosition=9
-
-**Man Cleared in Deputy Shooting by 'Stand Your Ground' Law**\
-`An appeals court has dismissed charges under Florida's “stand your ground” law against a man accused of shooting at deputies during an arrest in front of his home.`\
-https://nytimes.com/aponline/2020/04/16/us/ap-us-deputy-shooting-stand-your-ground.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/16/us/ap-us-virus-outbreak-aircraft-carrier.html?searchResultPosition=10
 
