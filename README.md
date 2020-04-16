@@ -28,5 +28,5 @@ https://nytimes.com/2020/04/15/opinion/letters/russia-alexei-botyan.html?searchR
 
 **Trump Threatens to Adjourn Congress to Install Nominees. McConnell Demurs.**\
 `The House and Senate have both taken extended recesses amid the pandemic, convening at least every few days for so-called pro forma sessions to keep their chambers technically in session.`\
-https://nytimes.com/2020/04/15/us/politics/coronavirus-trump-congress.html?searchResultPosition=10
+https://nytimes.com/2020/04/15/us/politics/trump-adjourn-congress-coronavirus.html?searchResultPosition=10
 
