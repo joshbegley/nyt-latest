@@ -1,32 +1,32 @@
-**UK Set to Extend Lockdown Amid Signs Outbreak Nearing Peak**\
-`The U.K. government was poised Thursday to extend a nationwide lockdown for several more weeks, as health officials said Britain’s coronavirus outbreak — one of Europe’s worst — is nearing its peak.`\
-https://nytimes.com/aponline/2020/04/16/world/europe/bc-eu-virus-outbreak-britain.html?searchResultPosition=3
+**On Politics: Vice-Presidential Chatter**\
+`Unusual candor from Georgia, and protests in Michigan: This is your morning tip sheet.`\
+https://nytimes.com/2020/04/16/us/politics/stacey-abrams-biden-vice-president.html?searchResultPosition=3
 
-**Should College Savers Opt for Student Loans This Fall?**\
-`Undergraduate federal student loan interest rates could fall below 3% for the first time in more than 15 years this July, based on the most recent 10-year Treasury note auction. `\
-https://nytimes.com/aponline/2020/04/16/business/ap-nerdwallet-529-student-loans.html?searchResultPosition=4
+**I’m Working Remotely. Can I Keep Hiding My Secret Baby?**\
+`‘I’m pretty sure he thinks it’s a cat.’`\
+https://nytimes.com/2020/04/16/business/work-baby.html?searchResultPosition=4
 
-**EU Says Virus-Tracking Apps Must Not Use Personal Location Data**\
-`European Union (EU) countries using mobile apps to contain the spread of the coronavirus should ensure such apps comply with the bloc's privacy rules and avoid using personalised location data, the bloc's executive Commission said on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/technology/16reuters-health-coronavirus-eu-tech.html?searchResultPosition=5
+**‘Bad Therapy’ Review: A Twisted Therapist Sinks In Her Hooks**\
+`Rob Corddry and Alicia Silverstone play an unhappily married couple in “Bad Therapy,” a new comedy-drama about treatment that’s worse than the condition.`\
+https://nytimes.com/2020/04/16/movies/bad-therapy-review.html?searchResultPosition=5
 
-**Greeks Prepare for Muted Easter Under Extra Lockdown Measures**\
-`Greece is preparing for a muted Orthodox Easter this year after the authorities strictly forbade the traditional spirited celebrations of mass church attendance, firecrackers and large family gatherings.`\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-easter-greece-lockdown.html?searchResultPosition=6
+**How to Profit in a Stock Market Downturn**\
+`Funds managed to flourish with diverse bets on Treasury bonds and small Chinese companies — and against select American stocks.`\
+https://nytimes.com/2020/04/16/business/profit-stock-market-downturn.html?searchResultPosition=6
 
-**Some Accor Hotels to Admit Mild Coronavirus Cases in Paris Region**\
-`French hotel group Accor said that some of its hotels in the Paris region will open on Thursday to people infected with the coronavirus who are symptom-free or showing slight symptoms.`\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-accor.html?searchResultPosition=7
+**‘Endings, Beginnings’ Review: Choose Me**\
+`Shailene Woodley plays the troubled center of a love triangle in this leisurely romantic drama.`\
+https://nytimes.com/2020/04/16/movies/endings-beginnings-review.html?searchResultPosition=7
 
-**Thailand Expects Liquidity Support for Thai Airways Next Week**\
-`The Thai government expects  to conclude a capital injection plan for flagship carrier Thai Airways International Pcl next week, a government minister said on Thursday. `\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-thai-airways-investment.html?searchResultPosition=8
+**‘The Quarry’ Review: Traveling With a Guilty Conscience**\
+`A killer assumes the identity of his victim, a preacher, and goes on to a new church where some of what he tells his flock rubs off on him.`\
+https://nytimes.com/2020/04/16/movies/the-quarry-review-traveling-with-a-guilty-conscience.html?searchResultPosition=8
 
-**China Says No Plans to Limit Export of Anti-Virus Supplies**\
-`China won’t restrict exports of medical goods needed to fight the coronavirus pandemic, a government spokesman said Thursday, amid global tension over scarce masks and ventilators.`\
-https://nytimes.com/aponline/2020/04/16/business/ap-virus-outbreak-china-medical-exports.html?searchResultPosition=9
+**‘Abe’ Review: Food and Family, but No Fun**\
+`A feel-good setup turns out to be a recipe for a joyless production.`\
+https://nytimes.com/2020/04/16/movies/abe-review.html?searchResultPosition=9
 
-**Police: Officer Wounded, Suspect Killed in Missouri Shooting**\
-`An officer has fatally shot a person who shot and wounded another officer following a police chase in Missouri, authorities said Thursday.`\
-https://nytimes.com/aponline/2020/04/16/us/ap-us-police-shooting-missouri.html?searchResultPosition=10
+**‘A White, White Day’ Review: Confronting Grief in a Frozen Landscape**\
+`A man finds coping with his wife’s death hard enough — and then learns she’d been having an affair.`\
+https://nytimes.com/2020/04/16/movies/a-white-white-day-review.html?searchResultPosition=10
 
