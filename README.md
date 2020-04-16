@@ -1,32 +1,32 @@
+**U.S. Says China May Have Conducted Low-Level Nuclear Test Blasts**\
+`China may have secretly set off low-level underground nuclear test explosions despite claiming to observe an international pact banning such blasts, the U.S. State Department said in a report on Wednesday that could fuel U.S.-Chinese tensions.`\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-usa-china-nuclear.html?searchResultPosition=3
+
+**Russia Reports Nearly 28,000 Coronavirus Cases After New Record Daily Rise**\
+`Russia reported 3,448 new confirmed cases of the novel coronavirus on Thursday, up from 3,388 the day earlier.`\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-russia.html?searchResultPosition=4
+
+**Uzbekistan Appeals to Labour Rights Group to Lift Cotton Boycott**\
+`Uzbekistan on Thursday appealed to a coalition of human rights groups to end a boycott of Uzbek cotton and textiles to enable the Central Asian nation to boost export revenue and create jobs at a time of a global recession.`\
+https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-uzbekistan-cotton-rights.html?searchResultPosition=5
+
+**China Says Has Not Seen Large-Scale Exodus of Foreign Capital Amid Coronavirus Outbreak**\
+`China has not seen large-scale exodus of foreign capital from the country amid the coronavirus outbreak, the commerce ministry said on Thursday, adding that many Japanese firms have expressed a willingness to boost investment in China.`\
+https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-china-economy-foreign-investment.html?searchResultPosition=6
+
+**Indonesia May Reach Peak of Coronavirus Infections in Early May, Says Government Adviser**\
+`Indonesia may reach the peak in coronavirus infections between early May and the beginning of June, with the number of cases predicted at 95,000, said government COVID-19 task force adviser Wiku Adisasmito on Thursday.`\
+https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-indonesia.html?searchResultPosition=7
+
+**Rebel Sherborne to Withhold Vote Against Barclays Boss in AGM**\
+`Sherborne Investors said on Thursday it would withhold its vote against Barclays Chief Executive Jes Staley in the lender's upcoming general meeting, to prevent fresh boardroom turmoil as the bank grapples with the COVID 19 fallout.`\
+https://nytimes.com/reuters/2020/04/16/business/16reuters-barclays-sherborne-letter.html?searchResultPosition=8
+
 **Japan to Convene Experts Meeting About Expanding Emergency**\
 `The Japanese government will hold a meeting with a panel of experts on Thursday to consult about whether to expand the country's partial state of emergency, chief spokesman Yoshihide Suga told a news conference.`\
-https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-japan-suga.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-japan-suga.html?searchResultPosition=9
 
 **No Clear Restart Date for Amazon Warehouses in France: CEO**\
 `Amazon has no visibility yet on when its six warehouses in France might reopen, after a French court ordered it to limit its activities while it reinforces safety protocols during the coronavirus outbreak, its head of France said on Thursday. `\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-amazon-france.html?searchResultPosition=4
-
-**Explainer: Why Are Some South Koreans Who Recovered From the Coronavirus Testing Positive Again?**\
-`South Korean health officials are investigating several possible explanations for a small but growing number of recovered coronavirus patients who later test positive for the virus again.`\
-https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-southkorea-explainer.html?searchResultPosition=5
-
-**China Says WHO Has Said No Evidence Coronavirus Was Made in a Lab**\
-`China's foreign ministry said on Thursday the World Health Organization has said there is no evidence that the coronavirus that has infected more than 2 million people globally was made in a lab. `\
-https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-health-coronavirus-china-mofa.html?searchResultPosition=6
-
-**Swedish Hotel and Restaurant Bankruptcies Set to Triple in April: Credit Agency UC**\
-`Sweden is witnessing a jump in bankruptcies this month with the rate among hotels and restaurants set to triple to 3.6 from 1.2 per day a year ago, and 3.1 retailers per day going under versus 1.8 per day a year earlier, credit information firm UC said on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-sweden-bankruptcy.html?searchResultPosition=7
-
-**European Shares Bounce as Airlines Pitch Recovery**\
-`European shares rose in early trading on Thursday as daily coronavirus death tolls in both Spain and Italy eased, while a defiant statement on the crisis from two of the continent's big budget airlines helped battered travel stocks recover. `\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-europe-stocks.html?searchResultPosition=8
-
-**Israeli President Asks Parliament to Choose Prime Minister**\
-`Israel’s president Thursday asked the Knesset to choose a new prime minister, giving the parliament three weeks to agree upon a leader or plunge the country into an unprecedented fourth consecutive election in just over a year.`\
-https://nytimes.com/aponline/2020/04/16/world/middleeast/ap-ml-israel-politics.html?searchResultPosition=9
-
-**Poland to Reopen Parks and Forest on Monday as It Starts Easing Curbs**\
-`Poland will reopen parks and forests on Monday and then revise the rules on the number of customers allowed in shops, as the country starts to loosen its coronavirus lockdown, State Assets Minister Jacek Sasin said on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-poland-restrictions.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-amazon-france.html?searchResultPosition=10
 
