@@ -1,32 +1,32 @@
+**LA Man Denies Killing Ex, Prominent Family Therapist**\
+`A Los Angeles man pleaded not guilty Thursday to killing his ex-girlfriend, a prominent family therapist and former fiancee of comedian Drew Carey, prosecutors said. `\
+https://nytimes.com/aponline/2020/04/16/us/ap-us-hollywood-therapist-killed.html?searchResultPosition=3
+
+**Loan Money Runs Out While Small-Business Owners Wait in Line**\
+`Frustrated with the process and banks, they have to figure out how to stay afloat while Congress tries to come up with more funding.`\
+https://nytimes.com/2020/04/16/business/loan-money-runs-out-while-small-business-owners-wait-in-line.html?searchResultPosition=4
+
+**Faces That Can’t Be Forgotten**\
+`How the Obituaries desk is memorializing victims of the coronavirus pandemic.`\
+https://nytimes.com/2020/04/16/reader-center/coronavirus-obits.html?searchResultPosition=5
+
 **Boeing to Restart Airplane Production in Seattle**\
 `Boeing said Thursday it will restart production of its commercial airplanes next week in the Seattle area, putting about 27,000 people back to work after operations were suspended because of the COVID-19 pandemic. `\
-https://nytimes.com/aponline/2020/04/16/business/bc-us-virus-outbreak-boeing.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/04/16/business/bc-us-virus-outbreak-boeing.html?searchResultPosition=6
 
 **Jobs, Contact Tracing, Mercury Regulations: Your Thursday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/04/16/briefing/jobs-contact-tracing-mercury-regulations.html?searchResultPosition=4
+https://nytimes.com/2020/04/16/briefing/jobs-contact-tracing-mercury-regulations.html?searchResultPosition=7
 
 **Merkel's Conservatives Make Big Poll Gains in Midst of Coronavirus Crisis**\
 `German Chancellor Angela Merkel's conservative bloc has won  support during the coronavirus crisis, hitting its highest level in nearly three years, a poll showed on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-germany-politics.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-germany-politics.html?searchResultPosition=8
 
 **COVID Impasse: Bolivian and Peruvian Migrants Trapped at Chilean Border**\
 `More than a thousand mainly Bolivian migrants are stranded near Chile's northern border after informal labor sources in their host country dried up but they were unable to return home because of shutdowns to contain the spread of the new coronavirus, refugee groups and both governments have confirmed.`\
-https://nytimes.com/reuters/2020/04/16/world/americas/16reuters-chile-diplomacy-bolivia-migrants.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/04/16/world/americas/16reuters-chile-diplomacy-bolivia-migrants.html?searchResultPosition=9
 
 **Slovenia to Ease Coronavirus Lockdown From Monday**\
 `Slovenia will from Monday ease restrictions that have been imposed since the middle of March to contain the spread of the new coronavirus, the government said late on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/world/16reuters-health-coronavirus-slovenia.html?searchResultPosition=7
-
-**Chile's Coronavirus Restrictions Clean Up the Air Around Santiago, Study Says**\
-`Air pollution in Chile's capital Santiago, a sprawling metropolis and industrial hub of 6 million, has plunged in the past month by as much as a third as large swaths of the city have been shuttered to combat coronavirus, according to a report released on Thursday by the University of Santiago.`\
-https://nytimes.com/reuters/2020/04/16/world/americas/16reuters-health-coronavirus-chile-air-pollution.html?searchResultPosition=8
-
-**Georgia Bans Private Traffic Until April 21, Tightening Coronavirus Lockdown**\
-`Georgia has banned the movement of all private vehicles from Friday until April 21, tightening a state of emergency in an effort to prevent spread of the coronavirus, the government said on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-georgia.html?searchResultPosition=9
-
-**U.S. Gives $5 Million to Palestinians Amid Pandemic, After Years of Aid Cuts**\
-`The United States is giving $5 million to the Palestinians to help them fight the coronavirus epidemic, a U.S. envoy said on Thursday. `\
-https://nytimes.com/reuters/2020/04/16/world/middleeast/16reuters-health-coronavirus-usa-palestinians.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/16/world/16reuters-health-coronavirus-slovenia.html?searchResultPosition=10
 
