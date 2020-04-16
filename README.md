@@ -2,7 +2,7 @@
 `Ahead of the N.F.L. draft, which begins on April 23, teams are reaching out to the three-man team at Slants to provide tracking data based on college video footage.`\
 https://nytimes.com/2020/04/16/sports/football/nfl-draft-scouting-technology.html?searchResultPosition=3
 
-**‘E.T.’ Cinematographer Allen Daviau Has Died at 77**\
+**‘E.T.,’ 'Bugsy' Cinematographer Allen Daviau Dies at 77**\
 `Cinematographer Allen Daviau, who shot three of Steven Spielberg’s films including “E.T. The Extra-Terrestrial,” has died. A representative from the American Society of Cinematographers said Wednesday that Daviau died Tuesday at age 77. `\
 https://nytimes.com/aponline/2020/04/16/us/ap-us-obit-allen-daviau.html?searchResultPosition=4
 
