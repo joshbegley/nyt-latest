@@ -1,32 +1,32 @@
-**Government Closing In on Small Business Lending Limit**\
-`The government is closing in on the $349 billion lending limit on its Paycheck Protection Program that is sending relief money to the nation’s small businesses.`\
-https://nytimes.com/aponline/2020/04/16/business/ap-us-virus-outbreak-small-business-relief.html?searchResultPosition=3
+**Exclusive: Hedge Fund Elliott Says Stocks Could Fall 50% From February Highs-Letter**\
+`Billionaire Paul Singer’s Elliott Management said global stocks could tumble more -- ultimately losing half of their value from February's high -- as the world braces for the deepest recession since the 1930s-era Great Depression, according to a letter sent to clients on Wednesday and reviewed by Reuters.`\
+https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-elliott-exclusive.html?searchResultPosition=3
 
-**Oil and Gas Giant Shell Targets 'Net Zero' Emissions by 2050**\
-`Energy company Royal Dutch Shell told investors Thursday that it aims to stop adding greenhouse gases to the atmosphere by 2050, a move that was welcomed by some climate campaigners even as others called it “corporate greenwash.”`\
-https://nytimes.com/aponline/2020/04/16/business/ap-eu-climate-shell.html?searchResultPosition=4
+**Takeway Can Integrate Just Eat, British Watchdog Says**\
+`Britain's Competition and Markets Authority (CMA) has decided Dutch online food ordering company Takeaway.com can proceed with its integration of Just Eat, the company said on Thursday, although an investigation into the combination continues.`\
+https://nytimes.com/reuters/2020/04/16/business/16reuters-just-eat-takeaway-competition.html?searchResultPosition=4
 
-**E.P.A., Tweaking Its Math, Weakens Controls on Mercury**\
-`The E.P.A. will change the way the benefits of mercury controls are calculated, a move that would effectively loosen the rules on  other toxic pollutants. `\
-https://nytimes.com/2020/04/16/climate/epa-mercury-coal.html?searchResultPosition=5
+**Ferrari Producing Valves to Convert Underwater Masks for Covid-19 Treatment**\
+`Luxury carmaker Ferrari is producing specialist valves at its Maranello factory to convert snorkel masks into respirators used to treat coronavirus patients, Chairman John Elkann said on Thursday.`\
+https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-ferrari.html?searchResultPosition=5
 
-**Poland's Parliament Sends Abortion Bill to Parliamentary Commission**\
-`Poland's lower house of parliament voted on Thursday to send a bill on tightening abortion rules in the staunchly Catholic country to a parliamentary commission for further work.`\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-poland-abortion.html?searchResultPosition=6
+**A Gloomy Prediction on How Much Poverty Could Rise**\
+`Researchers suggest the poverty rate may reach the highest levels in half a century, hitting African-Americans and children hardest.`\
+https://nytimes.com/2020/04/16/upshot/coronavirus-prediction-rise-poverty.html?searchResultPosition=6
 
-**Bathroom Banksy: Street-Artist Stays Home for New Lockdown Work**\
-`Street-artist Banksy has followed official advice to stay at home during the coronavirus crisis by creating a new artwork in his bathroom that shows his trademark stencilled rats running amok around the sink and toilet.`\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-banksy.html?searchResultPosition=7
+**Lee Konitz, Jazz Saxophonist Who Blazed His Own Trail, Dies at 92**\
+`He was a pioneer of the cool school, but he resisted pigeonholing and focused on “making a personal statement.” He died of complications of the coronavirus.`\
+https://nytimes.com/2020/04/16/arts/music/lee-konitz-jazz-saxophonist-who-blazed-his-own-trail-dies-at-92.html?searchResultPosition=7
 
-**PGA Tour Hopes to Resume in June at Colonial With No Fans**\
-`The PGA Tour laid out an ambitious plan to resume its season Thursday, with hopes of a restart at Colonial on June 11-14 and keeping fans away for at least the first month.`\
-https://nytimes.com/aponline/2020/04/16/sports/golf/ap-glf-tour-schedule.html?searchResultPosition=8
+**UK Hospital Covid-19 Death Toll Rises 861 to 13,729**\
+`The United Kingdom's death toll from COVID-19 in hospitals rose 861 to 13,729, as of 1600 GMT on April 15, the health ministry said.`\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-britain-toll.html?searchResultPosition=8
 
-**Did You Get Married During the Coronavirus Pandemic?**\
-`If you were recently married or plan to get married during this outbreak, we want to hear from you.`\
-https://nytimes.com/2020/04/16/fashion/weddings/married-during-the-coronavirus.html?searchResultPosition=9
+**Irish PM Says Any Lifting of Restrictions Will Be Over Months**\
+`When Ireland is able to begin relaxing stay-at-home restrictions to slow the spread of the coronavirus outbreak, the measures will be rolled back over a number of months, Prime Minister Leo Varadkar said on Thursday.`\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-ireland.html?searchResultPosition=9
 
-**Tencent Takes Valor Game Into New Arenas in Latest Overseas Foray**\
-`China's Tencent Holdings will launch its 'Arena of Valor' mobile game in Russia and the Middle East on Thursday, capitalising on a global spike in online gaming as coronavirus lockdowns keep billions of people stuck at home.`\
-https://nytimes.com/reuters/2020/04/16/technology/16reuters-tencent-videogames.html?searchResultPosition=10
+**Facebook-Backed Libra Cryptocurrency Project Is Scaled Back**\
+`After months of criticism, the cryptocurrency is moving ahead with significant revisions.`\
+https://nytimes.com/2020/04/16/technology/facebook-libra-cryptocurrency.html?searchResultPosition=10
 
