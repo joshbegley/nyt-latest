@@ -1,32 +1,32 @@
-**Mylan's Robert Coury Back as Executive Chairman**\
-`Mylan NV on Wednesday named Chairman Robert Coury to the role of executive chairman to help steer the drugmaker through the coronavirus pandemic and its delayed merger with Pfizer Inc's off-patent branded drug unit, Upjohn.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-mylan-chairman.html?searchResultPosition=3
+**United Cuts May Flights by 90%, Tells Employees to Brace for Job Cuts**\
+`United Airlines Holdings Inc said on Wednesday that it has cut its flight schedule by 90% in May and expects similar cuts for June as a result of the coronavirus pandemic, and warned that travel demand that is now "essentially at zero shows no sign of improving in the near term," making job cuts likely.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-united-arlns.html?searchResultPosition=3
 
-**Ivanka Trump, Disregarding Federal Guidelines, Travels to N.J. for Passover**\
-`Ms. Trump herself has not followed the federal guidelines advising against discretionary travel, leaving Washington for another one of her family’s homes.`\
-https://nytimes.com/2020/04/15/us/politics/coronavirus-ivanka-trump.html?searchResultPosition=4
+**Exclusive: New York Taps McKinsey to Develop 'Trump-Proof' Economic Reopening Plan**\
+`New York Governor Andrew Cuomo has hired high-powered consultants to develop a science-based plan for the safe economic reopening of the region that can thwart expected pressure from President Donald Trump to move more rapidly, state government sources told Reuters on Wednesday. `\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-usa-governors-exclusive.html?searchResultPosition=4
 
-**Schools Urged to Reopen as Australia Mulls Easing of Coronavirus Restrictions**\
-`Australia's federal government on Thursday urged state premiers to reopen schools as it considers how to start winding back some other restrictions on movement that have helped slow the spread of the coronavirus throughout the country.`\
-https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-australia.html?searchResultPosition=5
+**Your Questions on the Lockdown and U.S. Small Business, Answered**\
+`After closing their doors to prevent the spread of the coronavirus, many small businesses face an uncertain future following government-ordered lockdowns. `\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-smallbiz.html?searchResultPosition=5
 
-**Factbox: Layoffs in Corporate Australia, New Zealand as Coronavirus Crisis Deepens**\
-`The coronavirus outbreak has virtually shut down corporate Australia and New Zealand, forcing companies to throw out their strategic plans and resulting in thousands of layoffs or staff suspensions.`\
-https://nytimes.com/reuters/2020/04/15/world/asia/15reuters-health-coronavirus-australia-factbox.html?searchResultPosition=6
+**How to Start Potty Training**\
+`Don’t rush your toddler into using the toilet before he’s ready. The process takes patience, preparation and praise.`\
+https://nytimes.com/article/potty-training-guide.html?searchResultPosition=6
 
-**Mexico Registers 448 New Cases of Coronavirus and New 43 Deaths: Health Ministry**\
-`Mexican health officials reported on Wednesday 448 new cases of the novel coronavirus and 43 new deaths, bringing the country's total to 5,847 cases and 449 deaths.`\
-https://nytimes.com/reuters/2020/04/15/world/americas/15reuters-health-coronavirus-mexico.html?searchResultPosition=7
+**Royal Caribbean Sheds 26% of U.S. Workforce as Coronavirus Hits Travel**\
+`Royal Caribbean Cruises Ltd said on Wednesday it would lay off or furlough about 26% of its workforce in the United States, affecting nearly 1,300 of its more than 5,000 employees in the country, as the coronavirus chokes international travel.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-royal-carib-crus-layoffs.html?searchResultPosition=7
 
-**Gates Ups Pandemic Funds to $250 Million, Says Trump WHO Move Makes 'No Sense'**\
-`Pulling funding from the World Health Organization (WHO) is a  dangerous and nonsensical move when the world is facing the health crisis brought by the COVID-19 disease pandemic, Melinda Gates said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-gates.html?searchResultPosition=8
+**Samsung to Tap Xilinx Chips for 5G Network Equipment**\
+`American semiconductor firm Xilinx Inc said on Wednesday it had won a deal to supply chips to Samsung Electronics Co Ltd for 5G networking equipment.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-xilinx-samsung-elec.html?searchResultPosition=8
 
-**Drugs and Stunts Cited in Plane Crash That Killed Roy Halladay**\
-`The Hall of Fame pitcher had high levels of amphetamine and other prescription drugs in his system when he crashed off the Florida coast in 2017, a federal report said.`\
-https://nytimes.com/2020/04/15/us/roy-halladay-death-amphetamines.html?searchResultPosition=9
+**Costco, P&G, J&J Among Few to Hike Dividend During Coronavirus Crisis**\
+`Warehouse operator Costco Wholesale Corp on Wednesday raised its quarterly dividend by about 8%, joining a small but growing list of companies to do so at a time when most of corporate America is suspending shareholders returns in order to shore up liquidity as the coronavirus crisis deepens.`\
+https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-dividend.html?searchResultPosition=9
 
-**I’m Darker Than My Daughter. Here’s Why It Matters.**\
-`Breaching colorism with my little girl sent me reeling back into my childhood shame.`\
-https://nytimes.com/2020/04/15/parenting/children-skin-color-race.html?searchResultPosition=10
+**Do Babies Cry in Different Languages?**\
+`A pioneering German researcher decodes newborns’ cries. Here’s what they reveal.`\
+https://nytimes.com/2020/04/15/parenting/baby/wermke-prespeech-development-wurzburg.html?searchResultPosition=10
 
