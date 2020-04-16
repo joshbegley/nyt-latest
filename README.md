@@ -1,32 +1,32 @@
+**The T List: Five Things We Recommend This Week**\
+`A pajama designer’s easy but unexpected egg dish — and more.`\
+https://nytimes.com/2020/04/16/t-magazine/citrus-tree-tlist.html?searchResultPosition=3
+
+**My Friends Should Let Health Care Workers Stay in Their Empty Apartments. Right?**\
+`Doctors and nurses are heading to hot spots to provide front-line aid, and they need housing.`\
+https://nytimes.com/2020/04/16/style/doctors-nurses-city-housing-coronavirus.html?searchResultPosition=4
+
+**Amid Lockdown, Danes Find Way to Celebrate Queen's Birthday**\
+`Observing social distancing, Danes on Thursday sang birthday songs from homes, balconies, parks and public gardens to honor popular Queen Margrethe II, who turned 80 amid the pandemic lockdown.`\
+https://nytimes.com/aponline/2020/04/16/world/europe/ap-eu-virus-outbreak-denmark-royal-birthday.html?searchResultPosition=5
+
+**Indianapolis Officer's Funeral Will Follow Social Distancing**\
+`An Indianapolis police officer who was fatally shot last week while responding to a domestic violence call will be laid to rest Thursday following funeral services at the Indianapolis Motor Speedway that were planned to adhere to social distancing rules because of the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/04/16/us/ap-us-indianapolis-officer-shot.html?searchResultPosition=6
+
 **Lesson of the Day: ‘Lessons in Constructive Solitude From Thoreau’**\
 `In this lesson, students will learn about Henry David Thoreau and why his two-year-plus experiment in self-isolation at Walden Pond is relevant today.`\
-https://nytimes.com/2020/04/16/learning/lesson-of-the-day-lessons-in-constructive-solitude-from-thoreau.html?searchResultPosition=3
+https://nytimes.com/2020/04/16/learning/lesson-of-the-day-lessons-in-constructive-solitude-from-thoreau.html?searchResultPosition=7
 
 **US Home Construction Collapsed 22.3% in March**\
 `U.S. home-building activity collapsed in March as the coronavirus spread, with housing starts tumbling 22.3% from a month ago.`\
-https://nytimes.com/aponline/2020/04/16/business/bc-us-home-construction.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/04/16/business/bc-us-home-construction.html?searchResultPosition=8
 
 **NWS: More Than 100 Tornadoes Hit From Texas to Maryland**\
 `More than 100 tornadoes struck the South in the two-day outbreak that killed more than 30 people this week, the National Weather Service said.`\
-https://nytimes.com/aponline/2020/04/16/us/ap-us-severe-weather.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/04/16/us/ap-us-severe-weather.html?searchResultPosition=9
 
 **‘Nowhere to Hide’ as Unemployment Permeates the Economy**\
 `Jobless claims exceed 20 million in four weeks, inflicting a toll on the labor force not seen since the Great Depression.`\
-https://nytimes.com/2020/04/16/business/economy/coronavirus-unemployment-claims.html?searchResultPosition=6
-
-**Yemen's War-Scarred Hospitals Gear Up to Combat Coronavirus Threat**\
-`In a hospital in the Yemeni city of Taiz, medics scarred by five years of war are marshalling scant resources to face a new enemy.`\
-https://nytimes.com/reuters/2020/04/16/world/middleeast/16reuters-health-coronavirus-yemen.html?searchResultPosition=7
-
-**Jordan: Winning 6th NBA Title With Bulls Was 'Trying Year'**\
-`Michael Jordan described his final NBA championship season with the Chicago Bulls as a “trying year.”`\
-https://nytimes.com/aponline/2020/04/16/sports/basketball/ap-bkn-the-last-dance-jordan.html?searchResultPosition=8
-
-**Germany's Oktoberfest Unlikely to Take Place This Year**\
-`The annual Oktoberfest, the world's largest beer festival, is unlikely to take place this year due to the coronavirus crisis, the premier of the southern German state of Bavaria said on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-germany-oktoberfest.html?searchResultPosition=9
-
-**Tokyo Games Must Focus on 'Must Haves' to Cut Costs: Coates**\
-`Olympics organisers must reduce costs related to the postponed Tokyo Games by focusing on the "must-haves", IOC Coordination Commission chief John Coates said following a remote meeting with Japanese planners on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/sports/olympics/16reuters-health-coronavirus-olympics.html?searchResultPosition=10
+https://nytimes.com/2020/04/16/business/economy/coronavirus-unemployment-claims.html?searchResultPosition=10
 
