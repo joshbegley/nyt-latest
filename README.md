@@ -1,32 +1,32 @@
-**Hand-Holding in the Pandemic: Wealth Managers Grapple With New Reality**\
-`During the early days of March, Jill Fopiano was having trouble sleeping, waking up at 3 o'clock in the morning, maybe 4 o'clock.`\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-wealth-managers-insight.html?searchResultPosition=3
+**Italy's Fashion Leaders Urge Rome to Lift Restrictions on Industry**\
+`Italy's fashion leaders called on the government on Thursday to loosen restrictions imposed in response to the coronavirus crisis to allow them to resume some production, warning that a prolonged lockdown risked irreparably damaging the sector.`\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-italy-fashion.html?searchResultPosition=3
 
-**New York Forms Team to Develop 'Trump-Proof' Economic Reopening Plan**\
-`New York Governor Andrew Cuomo has tapped high-powered consultants to develop a science-based plan for the safe economic reopening of the region that can thwart pressure from President Donald Trump to move more rapidly, state government sources told Reuters. `\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-usa-governors-exclusive.html?searchResultPosition=4
+**Is It Safe to Open Mail and Packages During the Pandemic?**\
+`Is it safe to open mail and packages during the pandemic? `\
+https://nytimes.com/aponline/2020/04/16/us/ap-us-virus-outbreak-viral-questions-mail.html?searchResultPosition=4
 
-**Find Cassavetes Confusing? Start Here.**\
-`The director was a crucial influence in indie film. And there’s magic in his madness, as “A Woman Under the Influence” shows.`\
-https://nytimes.com/2020/04/16/movies/john-cassavetes-gateway-movies.html?searchResultPosition=5
+**Macron Warns Populists Could Win if EU Fails to Launch Common Fund: FT**\
+`Populists will win "in Italy, in Spain, perhaps in France and elsewhere" if European countries do not launch a rescue fund that can issue joint debt to cope with the fallout of the coronavirus epidemic, French President Emmanuel Macron told the Financial Times.`\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-macron-fund.html?searchResultPosition=5
 
-**Italy Unions Agree Health Measures With CNH Industrial for Restart**\
-`Italian trade unions said on Thursday they had agreed with CNH Industrial on health and security measures so the vehicle maker is ready to resume work as soon as lockdown rules are eased.`\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-heatlh-coronavirus-cnh-industrial.html?searchResultPosition=6
+**French Town's Empty Main Street Tells Tale of Virus Impact**\
+`The COVID-19 outbreak forced Shirley Lind to close the hairdressing salon she runs in a French town near the German border. She has instead been volunteering as a porter at her local hospital.`\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-france-traders.html?searchResultPosition=6
 
-**Canada's WestJet to Lay Off 1,700 Pilots**\
-`Canada's privately held WestJet Airlines is laying off 1,700 pilots amid travel bans to curb the COVID-19 pandemic, according to a company memo seen by Reuters on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-westjet.html?searchResultPosition=7
+**Explainer: The Russell Index Reconstitution Is Coming Up. What Is It?**\
+`Market participants are beginning to gear up preparations for the annual reconstitution by FTSE Russell of its indexes at the end of June. The event often results in the highest volume trading day of the year.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-usa-stocks-russell-coronavirus-explainer.html?searchResultPosition=7
 
-**L'Oreal Banks on Cosmetics Bounceback, Citing Chinese Pick-Up**\
-`Maybelline make-up manufacturer L'Oreal said on Thursday it was counting on a quick recovery in cosmetics demand once global lockdowns to combat the coronavirus pandemic ease, pointing to a recovery already under way in China. `\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-loreal-results.html?searchResultPosition=8
+**Top House Republican Says No 'Fig Leaf' on Small Business Bill**\
+`The top Republican in the U.S. House of Representatives said on Thursday he saw no reason to give Democrats any concessions to secure funding to help small businesses grappling with the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/16/us/politics/16reuters-health-coronavirus-usa-mccarthy.html?searchResultPosition=8
 
-**Fed's Bostic: Small Business May Need Up to $500 Bln Monthly in Support Through Crisis**\
-`U.S. small businesses may need as much as $500 billion a month to fully ensure their survival through the widespread closures and disruptions slamming their revenue during the coronavirus crisis, Atlanta Federal Reserve bank President Raphael Bostic said Thursday.`\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-fed-bostic.html?searchResultPosition=9
+**G7 Leaders Committed to Doing Whatever It Takes to Ensure Economies Rebound: Canada**\
+`The leaders of the Group of Seven industrialized nations on Thursday reaffirmed their pledge to take all necessary steps to ensure their economies recover from the coronavirus outbreak, said Canadian Prime Minister Justin Trudeau.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-g7-canada.html?searchResultPosition=9
 
-**Sales Drop at Vuitton Owner LVMH as Virus Forces Store Closures**\
-`Louis Vuitton owner LVMH on Thursday posted a 17% drop in comparable sales in the first quarter due to the coronavirus pandemic, as government-imposed lockdowns in China and Europe forced it to close stores and production sites.`\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-lvmh-results.html?searchResultPosition=10
+**In Soweto, a South African Who Celebrated History Is Mourned**\
+`Benedict Somi Vilakazi had been surrounded by history.`\
+https://nytimes.com/aponline/2020/04/16/world/africa/ap-af-virus-outbreak-south-africa-burial.html?searchResultPosition=10
 
