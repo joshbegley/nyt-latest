@@ -1,32 +1,32 @@
-**Where Do You Go for a Walk?**\
-`Taking a walk is a good distraction from an endless stream of news about the coronavirus outbreak. How do you feel when you take a walk? We’d like to hear about it.`\
-https://nytimes.com/2020/04/16/us/where-to-go-for-a-walk-coronavirus-break.html?searchResultPosition=3
+**Boeing Restarting Commercial Airplane Production Next Week**\
+`Boeing Co said it will resume commercial airplane production next week in Washington State after suspending operations last month in response to the coronavirus pandemic, and the company's chief executive told employees the aerospace industry will need financial help from the government.`\
+https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-boeing.html?searchResultPosition=3
 
-**Warming Climate in Norway Reveals Relics of Ancient Viking Trade Route**\
-`Melting ice has receded from a mountain pass, unearthing pelts, shoes and stone structures from thousands of years ago.`\
-https://nytimes.com/2020/04/16/world/europe/norway-viking-artifacts.html?searchResultPosition=4
+**Trump Suggests U.S. States Re-Open Economies in Three Phases in New Guidelines**\
+`Parts of President Donald Trump's guidelines for re-opening the U.S. economy amid the coronavirus pandemic trickled out on Thursday afternoon, revealing a three-phase plan that could allow some states to begin as early as this month lifting limits meant to contain the disease's spread.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-usa-plan.html?searchResultPosition=4
 
-**As $2 Trillion Starts to Flow, Oversight of Virus Cash Lags**\
-`Congress unleashed $2 trillion to deal with the coronavirus crisis. So far, only one person is working to oversee how it is spent.`\
-https://nytimes.com/aponline/2020/04/16/us/politics/bc-us-virus-outbreak-congressional-oversight.html?searchResultPosition=5
+**Older Americans Get Chance to Join Virus Vaccine Study**\
+`A U.S. study of a potential COVID-19 vaccine is being expanded to include older adults, the age group most at risk from the new coronavirus.`\
+https://nytimes.com/aponline/2020/04/16/health/ap-us-med-virus-outbreak-vaccine-study.html?searchResultPosition=5
 
-**Amid Talk of Restarting Economy, Virus Keeps Killing in NYC**\
-`Hopeful talk about getting people out of their homes and back to work in some parts of the country seems a far cry from the harsh reality in New York and its suburbs: Thousands of people infected with the coronavirus are still streaming into hospitals every day. Hundreds are still dying.`\
-https://nytimes.com/aponline/2020/04/16/us/ap-us-virus-outbreak-wary-new-york.html?searchResultPosition=6
+**French State May Call on Banks to Contribute to Air France Bailout**\
+`The French government may call on banks to contribute to a bailout of Air France KLM if it offers state support to the struggling airline, the finance minister said on Thursday.`\
+https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-france-airfranceklm.html?searchResultPosition=6
 
-**Will There Be More Coronavirus Stimulus Checks?**\
-`Members of Congress are already talking about the next relief package. What should be in it?`\
-https://nytimes.com/2020/04/16/opinion/stimulus-check-coronavirus.html?searchResultPosition=7
+**Uber to Take Charge of Up to $2.2 Billion Due to Coronavirus Crisis**\
+`Uber Technologies Inc said on Thursday it expected an impairment charge of about $1.9 billion to $2.2 billion against some of its minority equity investments, due to the impact of the coronavirus outbreak on the value of those entities.`\
+https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-uber.html?searchResultPosition=7
 
-**Boeing to Restart Production in Washington State With 27,000 Workers**\
-`The aerospace giant said employees in the Puget Sound area would begin manufacturing commercial planes at the end of next week.`\
-https://nytimes.com/2020/04/16/business/boeing-restart-production-coronavirus.html?searchResultPosition=8
+**'We All Stay Home': No Work and No Stimulus Checks for Undocumented Family in U.S.**\
+`In Fresno, California, 58-year-old grandmother Maria Luisa Salazar shares a mobile home with her family of 11. Afraid that going to work would put them at risk of the coronavirus, she has stopped working and is staying at home.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-california-family.html?searchResultPosition=8
 
-**Top Infectious Disease Doctor Inspires 'Fauci Fever'**\
-`A new condition related to the coronavirus pandemic is sweeping the United States: Fauci fever.`\
-https://nytimes.com/aponline/2020/04/16/us/ap-us-virus-outbreak-fauci-fever.html?searchResultPosition=9
+**Backing Trump, U.S. Republicans Call for WHO Chief to Resign**\
+`Republican U.S. lawmakers called on President Donald Trump on Thursday to withhold payments to the World Health Organization until its director general resigns, backing Trump's criticism of the U.N. agency's handling of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/16/us/politics/16reuters-health-coronavirus-who-congress.html?searchResultPosition=9
 
-**Guatemala Official: 44 Deportees Tested Positive for Virus**\
-`Forty-four Guatemalans deported on one flight from the United States this week have tested positive for COVID-19, a Guatemala government official with knowledge of the situation said Thursday.`\
-https://nytimes.com/aponline/2020/04/16/world/americas/ap-lt-virus-outbreak-guatemala-deportations.html?searchResultPosition=10
+**FDA Cautions Slower Drug Review Activity Due to Reallocation of Staff to COVID-19**\
+`The U.S. Food & Drug Administration cautioned on Thursday that with a lot of its staff allocated to the coronavirus crisis, it may not be able to sustain its current level of timely reviews and approvals of marketing applications.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-fda.html?searchResultPosition=10
 
