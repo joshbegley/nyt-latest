@@ -1,32 +1,32 @@
+**Pandemic to Bring Asia's 2020 Growth to Halt for 1st Time in 60 Years: IMF**\
+`Asia's economic growth this year will grind to a halt for the first time in 60 years, as the coronavirus crisis takes an "unprecedented" toll on the region's service sector and major export destinations, the International Monetary Fund said on Thursday.`\
+https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-asia-imf.html?searchResultPosition=3
+
+**States Ask EPA for Nationwide Biofuel Waiver to Help Oil Refiners Weather Coronavirus**\
+`The governors of five U.S. states have asked the Trump administration for a nationwide waiver exempting the oil-refining industry from the nation’s biofuel laws to help it survive a demand meltdown caused by the coronavirus outbreak, according to letters seen by Reuters.`\
+https://nytimes.com/reuters/2020/04/15/world/europe/15reuters-health-coronavirus-usa-biofuels.html?searchResultPosition=4
+
+**Illinois Projects Sharp Revenue Drop Due to Coronavirus Fallout**\
+`Economic fallout from the coronavirus outbreak will cost Illinois $7.3 billion in revenue for the current and next fiscal year, Governor J.B. Pritzker announced on Wednesday.`\
+https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-illinois-budget.html?searchResultPosition=5
+
+**Texas Judge Allows Vote by Mail Amid Coronavirus Fears**\
+`A county judge in Texas said on Wednesday he would allow mail-in ballots from any voters who fear for their health because of the coronavirus pandemic, attorneys involved in the case said.`\
+https://nytimes.com/reuters/2020/04/15/us/politics/15reuters-health-coronavirus-usa-texaselection.html?searchResultPosition=6
+
+**Quotation of the Day: Can the Letter E Change the World? A Rising Movement Hopes So**\
+`Quotation of the Day for Thursday, April 16, 2020.`\
+https://nytimes.com/2020/04/15/todayspaper/quotation-of-the-day-can-the-letter-e-change-the-world-a-rising-movement-hopes-so.html?searchResultPosition=7
+
+**Corrections: April 16, 2020**\
+`Corrections that appeared in print on Thursday, April 16, 2020.`\
+https://nytimes.com/2020/04/15/pageoneplus/corrections-april-16-2020.html?searchResultPosition=8
+
+**What is Hypnobirthing? And Should You Try It?**\
+`Meghan Markle is rumored to have used self-hypnosis as a ‘natural’ strategy to ease her birth. Does it work?`\
+https://nytimes.com/2020/04/15/parenting/pregnancy/hypnobirthing.html?searchResultPosition=9
+
 **After 'Death Warrant' Coronavirus Showdown, Republican Congressman Sees Fundraising Surge**\
 `The Republican congressman who thought he signed his political "death warrant" when he enraged U.S. President Donald Trump by slowing the $2.3 trillion coronavirus relief bill raised a hefty $647,975 for his reelection campaign in the first quarter.`\
-https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-usa-massie.html?searchResultPosition=3
-
-**Four Puberties, One Baby**\
-`Years after accepting sterilization as the price of finding my authentic self as a transgender woman, I changed hormone therapies in order to start a family.`\
-https://nytimes.com/2020/04/15/parenting/fertility/transgender-pregnancy.html?searchResultPosition=4
-
-**United Cuts May Flights by 90%, Tells Employees to Brace for Job Cuts**\
-`United Airlines Holdings Inc said on Wednesday that it has cut its flight schedule by 90% in May and expects similar cuts for June as a result of the coronavirus pandemic, and warned that travel demand that is now "essentially at zero shows no sign of improving in the near term," making job cuts likely.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-united-arlns.html?searchResultPosition=5
-
-**Exclusive: New York Taps McKinsey to Develop 'Trump-Proof' Economic Reopening Plan**\
-`New York Governor Andrew Cuomo has hired high-powered consultants to develop a science-based plan for the safe economic reopening of the region that can thwart expected pressure from President Donald Trump to move more rapidly, state government sources told Reuters on Wednesday. `\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-usa-governors-exclusive.html?searchResultPosition=6
-
-**Your Questions on the Lockdown and U.S. Small Business, Answered**\
-`After closing their doors to prevent the spread of the coronavirus, many small businesses face an uncertain future following government-ordered lockdowns. `\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-health-coronavirus-smallbiz.html?searchResultPosition=7
-
-**How to Start Potty Training**\
-`Don’t rush your toddler into using the toilet before he’s ready. The process takes patience, preparation and praise.`\
-https://nytimes.com/article/potty-training-guide.html?searchResultPosition=8
-
-**Royal Caribbean Sheds 26% of U.S. Workforce as Coronavirus Hits Travel**\
-`Royal Caribbean Cruises Ltd said on Wednesday it would lay off or furlough about 26% of its workforce in the United States, affecting nearly 1,300 of its more than 5,000 employees in the country, as the coronavirus chokes international travel.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-royal-carib-crus-layoffs.html?searchResultPosition=9
-
-**Samsung to Tap Xilinx Chips for 5G Network Equipment**\
-`American semiconductor firm Xilinx Inc said on Wednesday it had won a deal to supply chips to Samsung Electronics Co Ltd for 5G networking equipment.`\
-https://nytimes.com/reuters/2020/04/15/business/15reuters-xilinx-samsung-elec.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/15/us/15reuters-health-coronavirus-usa-massie.html?searchResultPosition=10
 
