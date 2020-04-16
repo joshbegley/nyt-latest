@@ -11,7 +11,7 @@ https://nytimes.com/2020/04/16/business/bonds-fed-rescue-investors.html?searchRe
 https://nytimes.com/2020/04/16/world/europe/coronoavirus-spain-death-toll.html?searchResultPosition=5
 
 **Your Thursday Briefing**\
-`Coronavirus, Distancing Guidelines, Unemployment: Here’s what you need to know today.`\
+`Coronavirus, Distancing Guidelines, Unemployment: Here’s what you need to know.`\
 https://nytimes.com/2020/04/16/briefing/us-news-today.html?searchResultPosition=6
 
 **China Central Bank Will Continue to Support Smaller Firms via Targeted RRR Cuts**\
