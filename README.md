@@ -1,32 +1,32 @@
-**Boeing Restarting Commercial Airplane Production Next Week**\
-`Boeing Co said it will resume commercial airplane production next week in Washington State after suspending operations last month in response to the coronavirus pandemic, and the company's chief executive told employees the aerospace industry will need financial help from the government.`\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-boeing.html?searchResultPosition=3
+**Singer R. Kelly's New York Sexual Abuse Trial Postponed to September**\
+`Singer R. Kelly's sexual abuse trial in New York has been postponed to Sept. 27 as a judge ruled on Thursday that the previously scheduled July 7 date was not realistic in light of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/16/arts/16reuters-people-rkelly.html?searchResultPosition=3
 
-**Trump Suggests U.S. States Re-Open Economies in Three Phases in New Guidelines**\
-`Parts of President Donald Trump's guidelines for re-opening the U.S. economy amid the coronavirus pandemic trickled out on Thursday afternoon, revealing a three-phase plan that could allow some states to begin as early as this month lifting limits meant to contain the disease's spread.`\
-https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-usa-plan.html?searchResultPosition=4
+**Chesapeake Energy Lays Off 200 Oklahoma Employees**\
+`Chesapeake Energy has laid off 200 employees in Oklahoma, the state said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-global-oil-chesapeake-enrgy-layoffs.html?searchResultPosition=4
 
-**Older Americans Get Chance to Join Virus Vaccine Study**\
-`A U.S. study of a potential COVID-19 vaccine is being expanded to include older adults, the age group most at risk from the new coronavirus.`\
-https://nytimes.com/aponline/2020/04/16/health/ap-us-med-virus-outbreak-vaccine-study.html?searchResultPosition=5
+**Fed's Bond Purchase Program Closing Price Gaps in ETF Market**\
+`The Federal Reserve's unprecedented asset purchase program is easing pricing gaps in the $863 billion market for U.S. bond exchange-traded funds, a phenomenon that had drawn investor concerns during last month's sell-off.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-etfs.html?searchResultPosition=5
 
-**French State May Call on Banks to Contribute to Air France Bailout**\
-`The French government may call on banks to contribute to a bailout of Air France KLM if it offers state support to the struggling airline, the finance minister said on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-france-airfranceklm.html?searchResultPosition=6
+**U.S. Coronavirus Relief Bill to Add $1.8 Trillion to Deficit**\
+`The coronavirus response bill passed by the U.S. Congress last month will increase the federal budget deficit by about $1.8 trillion over the next decade, the Congressional Budget Office (CBO) estimated Thursday.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-usa-deficit.html?searchResultPosition=6
 
-**Uber to Take Charge of Up to $2.2 Billion Due to Coronavirus Crisis**\
-`Uber Technologies Inc said on Thursday it expected an impairment charge of about $1.9 billion to $2.2 billion against some of its minority equity investments, due to the impact of the coronavirus outbreak on the value of those entities.`\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-uber.html?searchResultPosition=7
+**Those We’ve Lost**\
+`The coronavirus pandemic has taken an incalculable death toll. This series is designed to put names and faces to the numbers.`\
+https://nytimes.com/interactive/2020/obituaries/people-died-coronavirus-obituaries.html?searchResultPosition=7
 
-**'We All Stay Home': No Work and No Stimulus Checks for Undocumented Family in U.S.**\
-`In Fresno, California, 58-year-old grandmother Maria Luisa Salazar shares a mobile home with her family of 11. Afraid that going to work would put them at risk of the coronavirus, she has stopped working and is staying at home.`\
-https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-california-family.html?searchResultPosition=8
+**UK Throws Coronavirus Lifeline to More Big Businesses**\
+`Britain will allow more large businesses to apply for government funds, finance minister Rishi Sunak announced on Thursday, after many risked being left to collapse while the coronavirus outbreak tears through the economy.`\
+https://nytimes.com/reuters/2020/04/16/world/europe/16reuters-health-coronavirus-britain-companies.html?searchResultPosition=8
 
-**Backing Trump, U.S. Republicans Call for WHO Chief to Resign**\
-`Republican U.S. lawmakers called on President Donald Trump on Thursday to withhold payments to the World Health Organization until its director general resigns, backing Trump's criticism of the U.N. agency's handling of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/16/us/politics/16reuters-health-coronavirus-who-congress.html?searchResultPosition=9
+**IMF Approves $1.39 Billion in Emergency Pandemic Aid for Pakistan**\
+`The International Monetary Fund on Thursday said its executive board had approved $1.386 billion in emergency financing to Pakistan to meet balance of payments needed stemming from the novel coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-imf-world-bank-pakistan.html?searchResultPosition=9
 
-**FDA Cautions Slower Drug Review Activity Due to Reallocation of Staff to COVID-19**\
-`The U.S. Food & Drug Administration cautioned on Thursday that with a lot of its staff allocated to the coronavirus crisis, it may not be able to sustain its current level of timely reviews and approvals of marketing applications.`\
-https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-fda.html?searchResultPosition=10
+**Big Government or Big Hassle?**\
+`Democrats believe the pandemic could usher in a broad consensus around the need for more publicly funded programs, but there are some signs that the virus’s political impact could tip the other way.`\
+https://nytimes.com/2020/04/16/us/politics/stay-at-home-protests.html?searchResultPosition=10
 
