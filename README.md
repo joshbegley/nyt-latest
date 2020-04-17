@@ -1,32 +1,32 @@
+**German Diocese Transfers Black Priest After Death Threat**\
+`Catholic Church officials in Germany say they are transferring a black priest to another post over concern for his safety, after his house and car were attacked and he received a death threat.`\
+https://nytimes.com/aponline/2020/04/17/world/europe/ap-eu-germany-priest-threatened.html?searchResultPosition=3
+
+**NFL to Hold Practice Remote Draft on Monday**\
+`The NFL will hold a practice remote draft on Monday, three days before the real thing is done in the same way.`\
+https://nytimes.com/aponline/2020/04/17/sports/football/ap-fbn-nfl-practice-draft.html?searchResultPosition=4
+
+**Itching During Pregnancy? It Might Signal a Bigger Problem.**\
+`Cholestasis is the most common pregnancy-related liver disorder. Left untreated, it can cause fetal distress, hemorrhage and even stillbirth.`\
+https://nytimes.com/2020/04/17/parenting/pregnancy/itching-pregnancy-cholestasis.html?searchResultPosition=5
+
+**Broken Bananas, ‘Big Snacks’: Your Tiny Victories at the Table**\
+`NYT Parenting readers share their little wins from the trenches.`\
+https://nytimes.com/2020/04/17/parenting/tiny-victories-food.html?searchResultPosition=6
+
+**How Do You Help a Child Leave His First Friends?**\
+`Our move was overdue. But watching our son say goodbye to his beloved day care nearly broke me.`\
+https://nytimes.com/2020/04/17/parenting/moving-with-kids.html?searchResultPosition=7
+
 **‘Graduating’ From an Infertility Support Group?**\
 `Expect a mix of happiness and resentment.`\
-https://nytimes.com/2020/04/17/parenting/fertility/infertility-support-group.html?searchResultPosition=3
+https://nytimes.com/2020/04/17/parenting/fertility/infertility-support-group.html?searchResultPosition=8
 
 **Pitbull Launches New Song to Inspire During the Pandemic**\
 `Pitbull is looking to uplift his fans around the world with a new dance anthem.`\
-https://nytimes.com/aponline/2020/04/17/us/ap-us-virus-outbreak-music-pitbull.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/04/17/us/ap-us-virus-outbreak-music-pitbull.html?searchResultPosition=9
 
 **Is It Ever O.K. for a Relative to Discipline Your Kid?**\
 `The holidays are prime time for overstepping boundaries. Here’s how to deal.`\
-https://nytimes.com/2020/04/17/parenting/relative-discipline-kid.html?searchResultPosition=5
-
-**In a Medical Emergency, a Family Plan Pays Off**\
-`Be prepared and avoid a wild scramble when a sudden illness or accident strikes.`\
-https://nytimes.com/2020/04/17/parenting/family-emergency.html?searchResultPosition=6
-
-**You Birth How You Live**\
-`Doula Domino Kirke on why your birth providers are so important, and how to choose them wisely.`\
-https://nytimes.com/2020/04/17/parenting/pregnancy/domino-kirke-doula.html?searchResultPosition=7
-
-**How Do I Know If My Kid Needs Antibiotics?**\
-`Research suggests that drug-resistant infections among children are on the rise. Here’s how you can avoid overusing these medications.`\
-https://nytimes.com/2020/04/17/parenting/antibiotics-kids.html?searchResultPosition=8
-
-**I Gave My Tinder Date Hand, Foot and Mouth Disease**\
-`This is why single mothers should not date, I thought. But this guy seemed unfazed.`\
-https://nytimes.com/2020/04/17/parenting/dating-single-parent.html?searchResultPosition=9
-
-**The Agony and Ecstasy of a 12-Hour Road Trip With 2 Small Kids**\
-`We are all positive anticipation until Houston, where road trip optimism goes to die.`\
-https://nytimes.com/2020/04/17/parenting/road-trip-kids.html?searchResultPosition=10
+https://nytimes.com/2020/04/17/parenting/relative-discipline-kid.html?searchResultPosition=10
 
