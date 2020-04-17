@@ -2,7 +2,7 @@
 `Australians were strongly urged to sign up for a controversial mobile phone app that will track their movements as officials warned on Friday that public life could be constrained for another year because of the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/04/17/technology/17reuters-health-coronavirus-australia.html?searchResultPosition=3
 
-**Italy Tests Contact-Tracing to Speed Lockdown Exit**\
+**Italy Tests Contact-Tracing App to Speed Lockdown Exit**\
 `Italy plans to use a smartphone app developed by tech start-up Bending Spoons to track people who test positive for the new coronavirus as part of efforts to lift its nationwide lockdown.`\
 https://nytimes.com/reuters/2020/04/17/technology/17reuters-health-coronavirus-italy-technology.html?searchResultPosition=4
 
