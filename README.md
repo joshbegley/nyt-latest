@@ -1,28 +1,28 @@
-**Africa Needs More Than $200 Billion to Respond to Pandemic, U.N. Chief Says**\
-`United Nations Secretary-General Antonio Guterres on Friday urged creditors to grant a debt standstill for all developing countries, not just the poorest, warning that many faced debt distress due to a global recession triggered by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/17/us/17reuters-imf-worldbank-un.html?searchResultPosition=4
+**Keep Your Kids From Going Feral During the Holidays**\
+`Loosely maintain the three pillars of wellness — sleep, food and exercise — to help keep children on track.`\
+https://nytimes.com/2020/04/17/parenting/kids-active-holidays.html?searchResultPosition=4
 
-**The Heavy Price of Holiday Magic**\
-`When you’re struggling to pay the bills, a child’s wish list can feel like an additional burden.`\
-https://nytimes.com/2020/04/17/parenting/holiday-money-stress.html?searchResultPosition=5
+**South Africa's Shuttered Storefronts a Sign of Economic Pain**\
+`It's been more than three weeks since Moses equipped a kitchen, Yambu welded a gate and Mboni sold almost everything. For their shops and others on Soweto’s deserted Luthuli Street, it could be weeks, if ever, before they see business again.`\
+https://nytimes.com/aponline/2020/04/17/world/africa/bc-virus-outbreak-africa-small-businesses.html?searchResultPosition=5
 
-**Don’t Let Food Poisoning Ruin Your Holiday**\
-`Recent outbreaks from flour and more are good reasons to keep food safety practices at the top of mind this season.`\
-https://nytimes.com/2020/04/17/parenting/holiday-food-safety.html?searchResultPosition=6
+**UK Youth Orchestra Plays 'Ode to Joy' Alone but Together**\
+`A nationwide lockdown isn’t stopping Britain’s National Youth Orchestra from making music — alone but together.`\
+https://nytimes.com/aponline/2020/04/17/world/europe/ap-eu-virus-outbreak-isolated-orchestra.html?searchResultPosition=6
 
-**Helsinki Violinist Delivers Food by Bike as City Fights Coronavirus**\
-`The second violinist of the Helsinki Philharmonic Orchestra has been redeployed to help fight the coronavirus crisis - he's using an electric bike to deliver food to the Finnish capital's elderly residents.`\
-https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-finland-violinist.html?searchResultPosition=7
+**Recovering From Covid-19, Altria CEO Howard Willard Retires**\
+`Altria Group says that Chairman and CEO Howard Willard, who was recovering from COVID-19, has retired.`\
+https://nytimes.com/aponline/2020/04/17/business/ap-altria-ceo-retires.html?searchResultPosition=7
 
-**The Best Audiobooks for Road Trips with Kids**\
-`Five series to drown out the back-seat bickering.`\
-https://nytimes.com/2020/04/17/parenting/best-audiobooks-road-trips-kids.html?searchResultPosition=8
+**Company: 4 Georgia Poultry Workers Dead From Coronavirus**\
+`Four employees of a major poultry producer's operations in rural southwest Georgia have died after becoming infected with the coronavirus, a company spokesman said Friday.`\
+https://nytimes.com/aponline/2020/04/17/us/bc-us-virus-outbreak-georgia.html?searchResultPosition=8
 
-**World Bank Development Committee Urges Debt Help for Middle-Income Countries**\
-`The World Bank's Development Committee on Friday asked the development lender and the International Monetary Fund to explore case-by-case solutions to ease debt burdens on middle-income countries that are stressed by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/17/world/middleeast/17reuters-imf-worldbank-debt-communique.html?searchResultPosition=9
+**Spirit AeroSystems Bringing Back Some Furloughed Workers**\
+`A major aircraft parts supplier in Kansas is expected to bring about 2,100 furloughed workers back to work next week as Boeing prepares to resume production of its commercial airplanes.`\
+https://nytimes.com/aponline/2020/04/17/business/bc-us-virus-outbreak-spirit-aerosystems.html?searchResultPosition=9
 
-**When the Baby You’re Expecting Turns Out to Be Twins (or More!)**\
-`Multiple pregnancies involve certain discomforts and risks, but most turn out just fine.`\
-https://nytimes.com/article/twins-multiples.html?searchResultPosition=10
+**Native American Woman Removed From Land O'Lakes Packaging**\
+`The Native American woman who has graced the packaging of Land O’Lakes butter, cheese and other products since the late 1920s has quietly disappeared. `\
+https://nytimes.com/aponline/2020/04/17/business/bc-us-land-olakes-native-american.html?searchResultPosition=10
 
