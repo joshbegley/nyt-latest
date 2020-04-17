@@ -1,28 +1,28 @@
+**Safe Sex Under Lockdown: Argentine Official Has Some Advice for Digital Lovers**\
+`An Argentine official has given some on-air sex education for onanistic lovers in the time of the coronavirus, underscoring how the pandemic and lockdown in response to it are shaking up every aspect of people's lives.`\
+https://nytimes.com/reuters/2020/04/17/world/americas/17reuters-health-coronavirus-argentina-sex.html?searchResultPosition=4
+
+**Virtual Racing Drama Dulls Shine on Popular NASCAR Platform**\
+`Scott Dixon, five-time IndyCar champion and relatively new iRacing competitor, received a brief set of instructions from boss Chip Ganassi about the world of virtual racing. `\
+https://nytimes.com/aponline/2020/04/17/business/ap-car-virtual-racing-drama-.html?searchResultPosition=5
+
+**How Major US Stock Indexes Fared Friday**\
+`Stocks closed broadly higher on Wall Street Friday as investors latched onto strands of hope about progress in the fight against the coronavirus. `\
+https://nytimes.com/aponline/2020/04/17/business/ap-financial-markets-box.html?searchResultPosition=6
+
 **Border Agent Arrested in Fatal Shooting of Texas Firefighter**\
 `An off-duty U.S. border agent has been arrested in connection with the fatal shooting of a firefighter in the Texas border city of Laredo, authorities said.`\
-https://nytimes.com/aponline/2020/04/17/us/ap-us-border-agent-arrested.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/04/17/us/ap-us-border-agent-arrested.html?searchResultPosition=7
 
 **Flaws in America’s Plan to Save Midsize Business Portend More Trouble**\
 `Congress has left it to the Federal Reserve to come to companies’ rescue, but the program may not be enough.`\
-https://nytimes.com/2020/04/17/business/economy/coronavirus-federal-reserve-midsize-business.html?searchResultPosition=5
+https://nytimes.com/2020/04/17/business/economy/coronavirus-federal-reserve-midsize-business.html?searchResultPosition=8
 
 **The Quarantine Season**\
 `What to listen to when you need escape, comfort, joy.`\
-https://nytimes.com/2020/04/17/admin/daily-newsletter-coronavirus-podcasts.html?searchResultPosition=6
+https://nytimes.com/2020/04/17/admin/daily-newsletter-coronavirus-podcasts.html?searchResultPosition=9
 
 **‘More Anxiety Than Relief’: Baby Monitors That Track Vital Signs Are Raising Questions**\
 `After a popular app stopped receiving medical data, some families wondered how reliable monitoring is.`\
-https://nytimes.com/2020/04/17/parenting/owlet-baby-monitor.html?searchResultPosition=7
-
-**Kids Don’t Say ‘Yes, Ma’am’ Anymore, but Politeness Is Still in Fashion**\
-`Manners help teach tolerance, empathy and appropriate boundaries. Instilling them early, experts say, gives children a ‘superpower.’`\
-https://nytimes.com/2020/04/17/parenting/toddler/child-manners.html?searchResultPosition=8
-
-**Czech Lawmakers Call on Government to Look Beyond China for Coronavirus Supplies**\
-`Czech lawmakers took aim on Friday at the government's decision buy protective equipment from China to limit the coronavirus outbreak and called for the next batch of supplies to come domestically or from closer to home.`\
-https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-czech-china.html?searchResultPosition=9
-
-**How to Avoid the Biggest Holiday Hazards for Kids**\
-`Food, fires, freeways and falls pose the biggest threats to young children.`\
-https://nytimes.com/2020/04/17/parenting/kids-safety-fall-fire.html?searchResultPosition=10
+https://nytimes.com/2020/04/17/parenting/owlet-baby-monitor.html?searchResultPosition=10
 
