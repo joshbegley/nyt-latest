@@ -1,5 +1,5 @@
 **British Veteran Raises $22 Million by Walking for the Health Service**\
-`Captain Tom Moore, 99, a British war veteran, has raised more than $21.7 million for the health service by walking laps of his garden.`\
+`Captain Tom Moore, 99, a British war veteran, has raised more than $22 million for the health service by walking laps of his garden, prompting calls for him to be recognized by Queen Elizabeth.`\
 https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-britain-veteran.html?searchResultPosition=3
 
 **China's Wuhan Hikes Coronavirus Death Toll by 50% Citing Gaps in Early Testing**\
