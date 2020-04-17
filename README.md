@@ -1,28 +1,28 @@
-**Hyperemesis Gravidarum: When Morning Sickness Is So Extreme You Can’t Function**\
-`In roughly 1 percent of women, the nausea and vomiting that can accompany a pregnancy can become so severe and unrelenting that those symptoms transcend simple “morning sickness.”`\
-https://nytimes.com/article/hyperemesis-gravidarum.html?searchResultPosition=4
+**AP FACT CHECK: Trump Twists US-China Coronavirus Deaths**\
+`President Donald Trump is asserting that deaths from COVID-19 are much higher in China than in the U.S., when the opposite is true.`\
+https://nytimes.com/aponline/2020/04/17/us/politics/ap-us-virus-outbreak-trump-fact-check.html?searchResultPosition=4
 
-**Norman Platnick, the ‘Real Spider-Man,’ Is Dead at 68**\
-`A renowned expert on arachnids, he traveled the world to identify unknown species. He also showed that Tobey Maguire wasn’t afraid of them.`\
-https://nytimes.com/2020/04/17/science/earth/norman-platnick-the-real-spider-man-is-dead-at-68.html?searchResultPosition=5
+**4 Texas Family Members Killed, Suspect Jailed Without Bond**\
+`A 20-year-old man was jailed without bond Friday after four members of a Texas family, including a two-year-old child, were found dead.`\
+https://nytimes.com/aponline/2020/04/17/us/ap-us-family-slain-texas.html?searchResultPosition=5
 
-**What to Know About Sexually Transmitted Infections and Pregnancy**\
-`The good news: Most are treatable without risk to you or to the baby.`\
-https://nytimes.com/article/sexually-transmitted-infections.html?searchResultPosition=6
+**Epidurals Are Just One of Many Options for Childbirth Pain Relief**\
+`Pain relief options for labor and delivery extend beyond epidural.`\
+https://nytimes.com/article/medicated-birth-epidural.html?searchResultPosition=6
 
-**Sex During Your Pregnancy**\
-`Colorful rumors — like the notion that sex can harm the fetus by “poking” it, or jostling it free like an apple from a tree — are thankfully false.`\
-https://nytimes.com/article/sex-during-pregnancy.html?searchResultPosition=7
+**How to Ask for Parental Leave When You’re an Hourly Worker**\
+`When you’re an hourly worker, parental leave is seldom guaranteed, but a patchwork of solutions can help.`\
+https://nytimes.com/article/parental-leave-hourly-worker.html?searchResultPosition=7
 
-**Scant Testing in US Migration System Risks Spreading Virus**\
-`The Trump administration’s failure to test all but a small percentage of detained immigrants for the novel coronavirus may be helping it spread through the United States’ sprawling system of detention centers and then to Central America and elsewhere aboard regular deportation flights, migrants' advocates said Friday.`\
-https://nytimes.com/aponline/2020/04/17/world/americas/ap-lt-virus-outbreak-deportees.html?searchResultPosition=8
+**Your Guide to Fertility and Getting Pregnant**\
+`Here’s a primer on how to conceive, whatever your sexual orientation, gender identity or relationship status.`\
+https://nytimes.com/2020/04/17/parenting/fertility/getting-pregnant.html?searchResultPosition=8
 
-**Morning Sickness During Pregnancy: What to Do and How to Cope**\
-`Start with home strategies like eating bland meals and ginger, and escalate to medication if necessary.`\
-https://nytimes.com/article/morning-sickness.html?searchResultPosition=9
+**Biden Says Trump Failed to Hold China Accountable on Coronavirus**\
+`Americans are paying the price for President Donald Trump's failure to hold China to account over the coronavirus pandemic, presumed Democratic presidential nominee Joe Biden said on Friday, as the two campaigns spar over who can better confront challenges posed by Beijing.`\
+https://nytimes.com/reuters/2020/04/17/us/politics/17reuters-usa-election-china.html?searchResultPosition=9
 
-**Moraes Moreira, 72, Dies; Brazilian Songwriter and ‘Cowboy of Sound’**\
-`His songs, written with a shifting assortment of lyricists, forged musical hybrids with his Bahian roots and celebrated Brazil’s multicultural vitality.`\
-https://nytimes.com/2020/04/17/arts/music/moraes-moreira-dead.html?searchResultPosition=10
+**At Least New Yorkers Can Still Roll Their Eyes**\
+`Most people are seeming to obey, if sometimes reluctantly, the new statewide order to wear facial coverings in public wherever social distancing is not possible.`\
+https://nytimes.com/2020/04/17/nyregion/new-york-coronavirus-masks.html?searchResultPosition=10
 
