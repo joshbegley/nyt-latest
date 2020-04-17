@@ -18,13 +18,13 @@ https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus
 `The Myanmar army is carrying out "almost daily airstrikes and shelling" in the restive Rakhine and Chin states, where at least 32 civilians have been killed since March 23, the United Nations human rights office said on Friday.`\
 https://nytimes.com/reuters/2020/04/17/world/asia/17reuters-myanmar-rakhine-un.html?searchResultPosition=7
 
-**Iran's Coronavirus Death Toll Rises by 89 to 4,958: Health Ministry**\
-`Iran's death toll from the new coronavirus rose by 89 in the past 24 hours to reach 4,958 on Friday, health ministry spokesman Kianush Jahanpur said on state TV.`\
-https://nytimes.com/reuters/2020/04/17/world/middleeast/17reuters-health-coronavirus-iran-cases.html?searchResultPosition=8
-
 **5 Things to Know Today-That Aren't About the Virus**\
 `Your daily look at late-breaking news and stories that are being talked about:`\
-https://nytimes.com/aponline/2020/04/17/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=9
+https://nytimes.com/aponline/2020/04/17/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=8
+
+**Iran's Coronavirus Death Toll Rises by 89 to 4,958: Health Ministry**\
+`Iran's death toll from the new coronavirus rose by 89 in the past 24 hours to reach 4,958 on Friday, health ministry spokesman Kianush Jahanpur said on state TV.`\
+https://nytimes.com/reuters/2020/04/17/world/middleeast/17reuters-health-coronavirus-iran-cases.html?searchResultPosition=9
 
 **Australian Nude Drawing Classes Move Online Amid Coronavirus**\
 `Australian life model Leigh Pitchford casually poses with a towel partly draped over his naked body, ready to be sketched by a group of art students in Sydney.`\
