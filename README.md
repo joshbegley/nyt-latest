@@ -1,32 +1,32 @@
-**Coronavirus Cases in the Netherlands Top 30,000: Health Authorities**\
-`Confirmed coronavirus infections in the Netherlands have risen by 1,235 to 30,449, Dutch health authorities said on Friday.`\
-https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-netherlands.html?searchResultPosition=3
+**North Korean Leader Absence From Anniversary Event Fuels Speculation Over Health**\
+`North Korean leader Kim Jong Un's absence from an important anniversary event this week rekindled speculation over his potential health problems, analysts said on Friday. `\
+https://nytimes.com/reuters/2020/04/17/world/asia/17reuters-northkorea-politics.html?searchResultPosition=3
 
-**UBS, HSBC Sell Down AMS Stake Left After Rights Issue**\
-`Lenders UBS and HSBC have cut their combined stake in AMS to below 1% from the 15% they were forced to take after weak demand for the sensor maker's capital increase, a notification to the Swiss stock exchange showed. `\
-https://nytimes.com/reuters/2020/04/17/business/17reuters-osram-m-a-ams.html?searchResultPosition=4
+**Progress in Women's Football Could Be Undone, Warns FIFPRO**\
+`The recent progress of women's football is at risk of being undone as the sport is brought to a standstill by the novel coronavirus, the players union FIFPRO told Reuters television in on Friday.`\
+https://nytimes.com/reuters/2020/04/17/sports/soccer/17reuters-health-coronavirus-soccer-players.html?searchResultPosition=4
 
-**South Asia Coronavirus Cases Hit 22,000 as Maldives Locks Down Capital**\
-`The number of people infected with the coronavirus crossed 22,000 in densely populated South Asia on Friday driven by a rise in cases in India as the tiny Indian Ocean island nation of Maldives locked down its capital. `\
-https://nytimes.com/reuters/2020/04/17/world/asia/17reuters-health-coronavirus-southasia.html?searchResultPosition=5
+**Poland's 5G Auction Delayed Due to Coronavirus**\
+`Poland's telecoms regulator has dropped a deadline for its first 5G auction due a government clampdown designed to tackle the spread of the corononavirus.`\
+https://nytimes.com/reuters/2020/04/17/technology/17reuters-health-coronavirus-poland-5g.html?searchResultPosition=5
 
-**Credit Suisse Gets Approval to Take Majority Stake in China JV**\
-`Credit Suisse has received regulatory approval to take a majority stake in its Chinese investment banking joint venture, the bank said in a statement on Friday. `\
-https://nytimes.com/reuters/2020/04/17/business/17reuters-credit-suisse-gp-china.html?searchResultPosition=6
+**An Equestrian ‘Superman’ Fell From a Horse. Can He Get Back Up?**\
+`How Kevin Babington, an Olympian and top coach, is rebuilding his life after being paralyzed in a show jumping accident.`\
+https://nytimes.com/2020/04/17/sports/Kevin-Babington-show-jumping-recovery.html?searchResultPosition=6
 
-**China Raises Coronavirus Death Toll by 50% in Wuhan**\
-`Officials facing skepticism about their credibility also bumped up their tally of infections in the city where the pandemic emerged.`\
-https://nytimes.com/2020/04/17/world/asia/china-wuhan-coronavirus-death-toll.html?searchResultPosition=7
+**‘I Didn’t Want to Shut My Doors’: Businesses Find Ways to Survive**\
+`Faced with closings and plunging sales while more Americans lose their jobs, entrepreneurs are becoming more nimble.`\
+https://nytimes.com/2020/04/17/your-money/small-business-survival-strategy-coronavirus.html?searchResultPosition=7
 
-**When Coronavirus Care Gets Lost in Translation**\
-`Medical interpreters must now work remotely, multiplying the challenges for front-line doctors and non-English-speaking patients.`\
-https://nytimes.com/2020/04/17/health/covid-coronavirus-medical-translators.html?searchResultPosition=8
+**Bogus Vaccines. Fake Testing Sites. Virus Frauds Are Flourishing.**\
+`By telephone, phishing emails, text messages or social media promotions, unscrupulous actors are using their warped creativity to separate people from their cash.`\
+https://nytimes.com/2020/04/17/your-money/coronavirus-fraud.html?searchResultPosition=8
 
-**Philippine Economic Chief Resigns Amid Coronavirus Crisis**\
-`The Philippine economic planning secretary has resigned partly due to “differences in development philosophy” with some Cabinet members as the country scrambles to deal with the pandemic that’s setting back the economy.`\
-https://nytimes.com/aponline/2020/04/17/business/ap-as-philippines-economic-chief-resigns.html?searchResultPosition=9
+**GE Aircraft Leasing Unit Cancels 69 737 MAX Orders**\
+`The aircraft leasing subsidiary of General Electric Co, GECAS, said on Friday it was canceling 69 orders for Boeing Co's grounded 737 MAX jets. `\
+https://nytimes.com/reuters/2020/04/17/business/17reuters-boeing-737max-ge.html?searchResultPosition=9
 
-**Chinese and Malaysian Ships in South China Sea Standoff: Sources**\
-`A Chinese government survey ship is tagging an exploration vessel operated by Malaysia's state oil company Petronas in disputed waters in the South China Sea, three regional security sources said on Friday.`\
-https://nytimes.com/reuters/2020/04/17/world/asia/17reuters-malaysia-china-southchinasea.html?searchResultPosition=10
+**Institutional Investors Tell Big Pharma to Cooperate on Coronavirus**\
+`Institutional investors in 15 major pharmaceutical companies have called on the drugmakers to set aside rivalries and short-term interests and cooperate on finding solutions to the coronavirus.`\
+https://nytimes.com/reuters/2020/04/17/business/17reuters-health-coronavirus-investors-pharmaceuticals.html?searchResultPosition=10
 
