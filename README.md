@@ -1,28 +1,28 @@
-**Postpartum Body Changes You Should Know About**\
-`From separated abs to pelvic floor issues, what to look out for after having a baby.`\
-https://nytimes.com/article/postpartum-body.html?searchResultPosition=4
+**In Phone Call, Mexican President Floats Idea of Meeting With Trump**\
+`Mexican President Andres Manuel Lopez Obrador said he spoke by telephone with U.S. President Donald Trump on Friday, suggesting they meet in June or July for what would be their first in-person encounter.`\
+https://nytimes.com/reuters/2020/04/17/world/americas/17reuters-health-coronavirus-mexico-usa.html?searchResultPosition=4
 
-**Safe Sex Under Lockdown: Argentine Official Has Some Advice for Digital Lovers**\
-`An Argentine official has given some on-air sex education for onanistic lovers in the time of the coronavirus, underscoring how the pandemic and lockdown in response to it are shaking up every aspect of people's lives.`\
-https://nytimes.com/reuters/2020/04/17/world/americas/17reuters-health-coronavirus-argentina-sex.html?searchResultPosition=5
+**Tennessee Delays June Execution Due to Coronavirus**\
+`Tennessee's Supreme Court on Friday postponed the scheduled execution of a death row prisoner by eight months because of the coronavirus. `\
+https://nytimes.com/aponline/2020/04/17/us/ap-us-virus-outbreak-execution-tennessee.html?searchResultPosition=5
 
-**Virtual Racing Drama Dulls Shine on Popular NASCAR Platform**\
-`Scott Dixon, five-time IndyCar champion and relatively new iRacing competitor, received a brief set of instructions from boss Chip Ganassi about the world of virtual racing. `\
-https://nytimes.com/aponline/2020/04/17/business/ap-car-virtual-racing-drama-.html?searchResultPosition=6
-
-**How Major US Stock Indexes Fared Friday**\
-`Stocks closed broadly higher on Wall Street Friday as investors latched onto strands of hope about progress in the fight against the coronavirus. `\
-https://nytimes.com/aponline/2020/04/17/business/ap-financial-markets-box.html?searchResultPosition=7
-
-**Border Agent Arrested in Fatal Shooting of Texas Firefighter**\
-`An off-duty U.S. border agent has been arrested in connection with the fatal shooting of a firefighter in the Texas border city of Laredo, authorities said.`\
-https://nytimes.com/aponline/2020/04/17/us/ap-us-border-agent-arrested.html?searchResultPosition=8
-
-**Flaws in America’s Plan to Save Midsize Business Portend More Trouble**\
-`Congress has left it to the Federal Reserve to come to companies’ rescue, but the program may not be enough.`\
-https://nytimes.com/2020/04/17/business/economy/coronavirus-federal-reserve-midsize-business.html?searchResultPosition=9
+**Parents, Here’s How to Avoid Doing Battle With Your Picky Eater**\
+`Accommodating a finicky diner in the family can be frustrating, but forcing foods isn’t the answer.`\
+https://nytimes.com/article/picky-eater-child.html?searchResultPosition=6
 
 **The Quarantine Season**\
 `What to listen to when you need escape, comfort, joy.`\
-https://nytimes.com/2020/04/17/admin/daily-newsletter-coronavirus-podcasts.html?searchResultPosition=10
+https://nytimes.com/2020/04/17/podcasts/daily-newsletter-quarantine-virus.html?searchResultPosition=7
+
+**Can You Reprogram the Sleep Habits of an Early Riser or a Night Owl?**\
+`Every body runs on its own schedule, but there are ways to nudge sleep patterns to better fit the needs of your family, school and job.`\
+https://nytimes.com/article/baby-sleep-waking-too-early.html?searchResultPosition=8
+
+**Fed Waives Insider Dealing Rule for Paycheck Protection Program Loans**\
+`The Federal Reserve on Friday waived restrictions on insider dealing for the popular Paycheck Protection Program loans, saying rules against banks lending to directors and shareholders was a burden particularly in rural areas.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-fed-smallbusiness.html?searchResultPosition=9
+
+**Djokovic Shares Olympic Regrets With Murray in Live Chat**\
+`Live tennis action is a fading memory during the coronavirus shutdown but 20,000 fans tuned in to watch old rivals Novak Djokovic and Andy Murray chew the fat on Instagram on Friday.`\
+https://nytimes.com/reuters/2020/04/17/sports/tennis/17reuters-health-coronavirus-tennis-djokovic-murray.html?searchResultPosition=10
 
