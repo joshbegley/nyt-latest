@@ -1,28 +1,28 @@
-**Argentine Bonds Pushed Higher by External Factors but Debt Plan Gets Panned**\
-`Argentine bonds were pushed higher by external market factors on Friday, despite a credit ratings downgrade by Fitch while Wall Street panned the government's bond restructuring proposal for its lack of detail and tight 20-day negotiating window.`\
-https://nytimes.com/reuters/2020/04/17/world/americas/17reuters-argentina-debt.html?searchResultPosition=4
+**France Finds More Than 1,000 Virus Cases on Aircraft Carrier**\
+`The French navy is investigating how the coronavirus infected more than 1,000 sailors aboard the aircraft carrier Charles de Gaulle, amid growing pressure on government leaders to explain how it could have happened.`\
+https://nytimes.com/aponline/2020/04/17/world/europe/ap-eu-virus-outbreak-france-aircraft-carrier-4th-ld-writethru.html?searchResultPosition=4
 
-**U.S. Banks Say Cost Cuts Mostly Out of Sight During Coronavirus**\
-`During recessions, big U.S. banks usually turn to cost-cuts to boost results. But during the coronavirus pandemic, they are spending more by necessity and mostly say they have no plans to dramatically alter staff levels or budgets through the rest of 2020.`\
-https://nytimes.com/reuters/2020/04/17/business/17reuters-usa-banks-results-expenses.html?searchResultPosition=5
+**NASA, SpaceX Pick May 27 to Resume Astronaut Launches in US**\
+`NASA and SpaceX have picked May 27 for resuming astronaut launches from the U.S. after nine years of complete Russian dependence. `\
+https://nytimes.com/aponline/2020/04/17/science/ap-us-sci-spacex-crew-capsule.html?searchResultPosition=5
 
-**‘They’re Death Pits’: Virus Claims At Least 6,900 Lives in U.S. Nursing Homes**\
-`More than six weeks after the first coronavirus deaths in a nursing home, outbreaks unfold across the country. About a fifth of U.S. virus deaths are linked to nursing facilities.`\
-https://nytimes.com/2020/04/17/us/coronavirus-nursing-homes.html?searchResultPosition=6
+**US Restaurants Expect Big Changes When Their Doors Reopen**\
+`The days of standing shoulder-to-shoulder at a bar or sharing a meal at a table for 10 are gone for now — and could take a long time to return even after the coronavirus pandemic ends.`\
+https://nytimes.com/aponline/2020/04/17/business/bc-us-virus-outbreak-restaurant-reality.html?searchResultPosition=6
 
-**Senators Urge Anti-Bias Police Training Over Mask Fears**\
-`Democratic lawmakers want police departments to be vigilant about any racially biased policing during the coronavirus pandemic, as people in communities of color express fears of being profiled while wearing masks or other face coverings in public.`\
-https://nytimes.com/aponline/2020/04/17/us/politics/ap-us-virus-outbreak-black-men.html?searchResultPosition=7
+**Byfuglien a Free Agent After Jets End Contract**\
+`The Winnipeg Jets and Dustin Byfuglien mutually agreed on Friday to terminate the veteran defenseman's contract, making him an unrestricted free agent.`\
+https://nytimes.com/reuters/2020/04/17/sports/hockey/17reuters-icehockey-nhl-wpg-byfuglien.html?searchResultPosition=7
 
-**They Filed for Unemployment Last Month. They Haven’t Seen a Dime.**\
-`Crashing websites, disconnected calls and problems with state-issued debit cards are common for the 1.2 million New Yorkers seeking relief.`\
-https://nytimes.com/2020/04/17/nyregion/coronavirus-pandmic-unemployment-assistance-ny-delays.html?searchResultPosition=8
+**Largest Sovereign Funds Suffer $67 Billion Paper Loss From Stock Market Rout**\
+`The world's largest sovereign wealth funds have made around $67 billion in losses so far this year as the fallout from the coronavirus has buffeted their major holdings.`\
+https://nytimes.com/reuters/2020/04/17/business/17reuters-health-coronavirus-swf.html?searchResultPosition=8
 
-**San Diego Comic-Con Canceled for First Time Amid Coronavirus Outbreak**\
-`San Diego Comic-Con, an annual celebrity-studded showcase of superhero films and pop culture, has been canceled for the first time in its 50-year history due to the global coronavirus outbreak, organizers said on Friday.`\
-https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-comic-con.html?searchResultPosition=9
+**IMF Says Africa Faces Fiscal Gap of $44 Billion to Deal With Pandemic**\
+`The International Monetary Fund on Friday called for rapid international support to help African countries respond to the unprecedented coronavirus pandemic that will cause a contraction of 1.25% in 2020, the worst reading on record.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-imf-world-bank-africa.html?searchResultPosition=9
 
-**Ex-Trump Lawyer Cohen to Be Released Due to Coronavirus Outbreak-Sources**\
-`Michael Cohen, the former personal attorney to U.S. President Donald Trump, will be released early from prison because of the coronavirus pandemic, two sources familiar with the matter told Reuters late on Thursday.`\
-https://nytimes.com/reuters/2020/04/17/us/17reuters-usa-trump-cohen.html?searchResultPosition=10
+**NASA Sets Launch Date for SpaceX U.S. Manned Mission to Space Station**\
+`NASA on Friday set a launch date of May 27 for its first astronaut mission from U.S. soil in nearly ten years. `\
+https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-space-exploration-spacex-launch.html?searchResultPosition=10
 
