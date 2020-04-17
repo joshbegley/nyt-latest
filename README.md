@@ -1,28 +1,28 @@
-**Ford's Three-Part Unsecured Debt Offering Worth $8 Billion: IFR**\
-`Ford Motor Co will launch a three-part unsecured debt offering of $8 billion, yielding up to 9.6% on the 10-year loan, capital markets intelligence provider International Financing Review reported on Friday.`\
-https://nytimes.com/reuters/2020/04/17/business/17reuters-ford-motor-debt.html?searchResultPosition=4
+**Tunisia President Extends Coronavirus Lockdown: Statement**\
+`Tunisia's president extended on Friday a coronavirus lockdown, with the government to announce later the extension period, a presidency statement said.`\
+https://nytimes.com/reuters/2020/04/17/world/africa/17reuters-health-coronavirus-tunisia.html?searchResultPosition=4
 
-**Voting by Mail in the Spotlight as U.S. Congress Debates How to Secure November Elections**\
-`Congress is scrambling for ways to safeguard the Nov. 3 U.S. elections amid the coronavirus pandemic, with a partisan fight shaping up over a Democratic proposal to require states to offer the option of voting by mail.`\
-https://nytimes.com/reuters/2020/04/17/us/politics/17reuters-health-coronavirus-usa-vote.html?searchResultPosition=5
+**Bulgaria's Roma Fear Coronavirus Lockdowns Leave Them With No Means to Live**\
+`Scores of Roma people protested in Bulgaria's capital Sofia on Friday over feared job losses due to a stricter application of a coronavirus lockdown in their main neighborhoods in efforts to halt the spread of the viral pandemic.`\
+https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-bulgaria-roma.html?searchResultPosition=5
 
-**My Power Wheelchair Makes Me a Better Mom**\
-`Because I can walk short distances, strangers judge me for using a wheelchair. But it allows me to be the parent my active toddler needs.`\
-https://nytimes.com/2020/04/17/parenting/wheelchair-dysautonomia-ehlers-danlos-syndrome.html?searchResultPosition=6
+**Photos Capture North Korea Ships' Sanctions Busting in Chinese Waters: U.N. Report**\
+`On Oct. 10 last year, eight North Korean vessels - several carrying illicit coal shipments - were anchored in Chinese waters off the port of Ningbo-Zhoushan, according to a photo in a U.N. report published online on Friday.`\
+https://nytimes.com/reuters/2020/04/17/world/asia/17reuters-northkorea-sanctions-un.html?searchResultPosition=6
 
-**Occidental Shareholders Get First Say on Anadarko Deal With Vote on Berkshire Financing**\
-`Occidental Petroleum shareholders next month will get their first say on the oil company's troubled acquisition of Anadarko Petroleum when they vote on issuing shares and warrants to Berkshire Hathaway for helping finance the $38 billion deal.`\
-https://nytimes.com/reuters/2020/04/17/business/17reuters-occidental-proxy-berkshire.html?searchResultPosition=7
+**Football Without Fans Is Nothing. Until It’s Everything.**\
+`The prospect that fans will not return to soccer stadiums until 2021 is growing increasingly real. But as odd as it might be to play without crowds, the sport may not want to wait.`\
+https://nytimes.com/2020/04/17/sports/soccer/empty-stadiums-rory-smith-newsletter.html?searchResultPosition=7
 
-**Global Coronavirus Death Toll Hits 150,000: Reuters Tally**\
-`The number of deaths worldwide linked to the novel coronavirus reached 150,000 on Friday, according to a Reuters tally.`\
-https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-death-toll.html?searchResultPosition=8
+**Help Your Child Overcome Their Fears**\
+`Kids can have phobias about needles, dogs, darkness and more. Here’s how to help them cope.`\
+https://nytimes.com/2020/04/17/parenting/childhood-fears-anxiety.html?searchResultPosition=8
 
-**U.S. Coronavirus Death Toll Passes 34,000: Reuters Tally**\
-`U.S. coronavirus deaths rose above 34,000 on Friday, according to a Reuters tally, as some states were expected to announce timetables for lifting restrictions aimed at blunting the pandemic.`\
-https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-usa-casualties.html?searchResultPosition=9
+**Bad Wi-Fi: The New Injury Card**\
+`A former world champion had to pull out of an at-home competition because of inadequate WiFi. Plus athletes voiced concern over returning to play, and the N.B.A. and W.N.B.A planned to release branded face masks.`\
+https://nytimes.com/2020/04/17/sports/sports-schedules.html?searchResultPosition=9
 
-**‘A Curious History of Sex’ Covers Aphrodisiacs, Bicycles, Graham Crackers and More**\
-`Kate Lister’s book is mostly a romp rather than an especially serious or comprehensive work of history or criticism.`\
-https://nytimes.com/2020/04/17/books/review-curious-history-sex-kate-lister.html?searchResultPosition=10
+**Under Pressure, Mexico's President to Inject $2.5 Billion Into Economy**\
+`Mexican President Andres Manuel Lopez Obrador on Friday vowed to inject around $2.5 billion into the economy in May to mitigate the effects of the coronavirus pandemic, as critics bemoan his government's modest efforts to protect businesses and jobs.`\
+https://nytimes.com/reuters/2020/04/17/world/americas/17reuters-health-coronavirus-mexico-economy.html?searchResultPosition=10
 
