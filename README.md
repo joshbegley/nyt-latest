@@ -1,28 +1,28 @@
-**How to Feed Your Baby or Toddler a Vegetarian Diet**\
-`With careful planning, vegetarian and vegan diets can be nutritious and safe for young children.`\
-https://nytimes.com/article/vegetarian-baby-guide.html?searchResultPosition=4
+**The Vaccines You Need During Pregnancy**\
+`‘For 30 years, no one wanted to touch a pregnant woman with a vaccine.’ Now, they’re indispensable life-savers for both mother and baby.`\
+https://nytimes.com/article/pregnancy-vaccines-guide.html?searchResultPosition=4
 
-**Nebraska Pharmacist Arrested in Plot to Firebomb Competitor**\
-`A Nebraska pharmacist conspired with another man to use explosives to destroy a competitor’s pharmacy, a federal prosecutor said Friday.`\
-https://nytimes.com/aponline/2020/04/17/us/ap-us-bomb-plot-pharmacist-arrested.html?searchResultPosition=5
+**Judge Extends Zookeeper's Deadline to Challenge Convictions**\
+`A former Oklahoma zookeeper who was sentenced to 22 years in prison for a murder-for-hire plot and federal wildlife violations has been granted an extra month to argue why his lawsuit challenging the convictions shouldn't be dismissed.`\
+https://nytimes.com/aponline/2020/04/17/us/ap-us-joe-exotic-lawsuit.html?searchResultPosition=5
 
-**Britons Warned to Avoid Unapproved Coronavirus Tests**\
-`Britons should not purchase unapproved antibody tests to find out if they have had the coronavirus, the official in charge of the government's testing program said on Saturday, warning that they could not be relied upon and may put people at risk.`\
-https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-britain-tests.html?searchResultPosition=6
+**The Worms Turn in My Composting Bin**\
+`My relationship with trash changed for the better from the first banana peel I kept out of it.`\
+https://nytimes.com/2020/04/17/opinion/backyard-composting-compost-coronavirus.html?searchResultPosition=6
 
-**House Republicans Take Aim at Thomas Massie After Stimulus Vote**\
-`Republicans are eager to be rid of Mr. Massie, but he is trying to turn the donations into a political weapon of his own.`\
-https://nytimes.com/2020/04/17/us/politics/house-republicans-thomas-massie.html?searchResultPosition=7
+**How to Recognize and Treat an Ectopic Pregnancy**\
+`Ectopic pregnancies are relatively rare, but because they can be deadly, it’s important to know the warning signs.`\
+https://nytimes.com/article/ectopic-pregnancy-guide.html?searchResultPosition=7
 
-**NBA: Players to Receive 25% Less Pay From May 15**\
-`The NBA has reached an agreement with the National Basketball Players Association to withhold 25% of each player's salary from May 15 due to the shutdown of the sport because of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/17/sports/basketball/17reuters-health-coronavirus-nba.html?searchResultPosition=8
+**Argentina Pushes Maturities Back to 2030 and Beyond With External Debt Revamp**\
+`Argentina laid out details of its external bond restructuring offer on Friday, which would involve pushing maturities back to 2030 and beyond, part of its drive to revamp an unsustainable debt burden.`\
+https://nytimes.com/reuters/2020/04/17/world/americas/17reuters-argentina-debt-offer.html?searchResultPosition=8
 
-**The Types of Plastics Families Should Avoid**\
-`If it seems like plastic is everywhere, that’s because it is. But there are easy ways to limit your exposure.`\
-https://nytimes.com/article/plastics-to-avoid.html?searchResultPosition=9
+**Exclusive: Norwegian Cruise Taps Goldman Sachs to Explore Stake Sale-Sources**\
+`Norwegian Cruise Line Holdings Ltd has hired investment bank Goldman Sachs Group Inc to explore financing options that could include the sale of a stake in the company, people familiar with the matter said on Friday. `\
+https://nytimes.com/reuters/2020/04/17/business/17reuters-nrwn-crs-ln-hldg-financing-exclusive.html?searchResultPosition=9
 
-**Coronavirus Briefing: What Happened Today**\
-`Nursing homes: Crowded. Understaffed. ‘Death pits.’`\
-https://nytimes.com/2020/04/17/us/coronavirus-today.html?searchResultPosition=10
+**Yes, You Absolutely Need to Baby Proof**\
+`It’s a lot of work, but it can help prevent many childhood injuries.`\
+https://nytimes.com/article/babyproofing-guide.html?searchResultPosition=10
 
