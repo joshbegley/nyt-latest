@@ -1,32 +1,32 @@
-**Comics That Stare Into the Face of Terror and Loneliness**\
-`In her latest Graphic Content column, Hillary Chute looks at emotionally stirring graphic novels from Cambodia and Japan.`\
-https://nytimes.com/2020/04/17/books/review/tian-veasna-year-of-the-rabbit-yoshiharu-tsuge-the-man-without-talent.html?searchResultPosition=3
+**Euro Zone Inflation Confirmed Dipping to 0.7% in March**\
+`Euro zone inflation slowed sharply in March to 0.7% year-on-year, the European Union statistics said on Friday confirming its earlier estimates.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-eurozone-economy-inflation.html?searchResultPosition=3
 
-**New in Paperback: ‘Everything in Its Place’ and ‘The Island of Sea Women’**\
-`Six new paperbacks to check out this week.`\
-https://nytimes.com/2020/04/17/books/review/new-paperbacks.html?searchResultPosition=4
+**Coronavirus Live Updates: N.Y. Extends Shutdown; ‘Call Your Own Shots,’ Trump Tells Governors**\
+`More than 22 million Americans lost their jobs in one month, and a federal fund to help small businesses ran out of money. China’s economy took a steep dive. An order requiring New Yorkers to wear masks went into effect.`\
+https://nytimes.com/2020/04/17/us/coronavirus-updates.html?searchResultPosition=4
 
-**Coronavirus: Which Mask Should You Wear?**\
-`Here’s a look at some of the types of masks you might encounter, how they work, what to consider when making your own and the level of protection they could provide.`\
-https://nytimes.com/interactive/2020/health/coronavirus-best-face-masks.html?searchResultPosition=5
+**All Dressed Up, With No Prom to Go To**\
+`These high school seniors were looking forward to their last dance. Then their proms started getting canceled.`\
+https://nytimes.com/2020/04/17/style/prom-canceled-coronavirus.html?searchResultPosition=5
 
-**I Am The Portrait of Downward Mobility”**\
-`Today’s 40 year-olds on the lives they’ve led, and now this.`\
-https://nytimes.com/interactive/2020/04/17/opinion/inequality-economy-1980.html?searchResultPosition=6
+**Trump’s Pandemic Tactics Hurt Cubans, Too**\
+`For once, some Cubans look north and commiserate with Americans, even as Washington prevents needed help from reaching their island.`\
+https://nytimes.com/2020/04/17/opinion/cuba-coronavirus-trump.html?searchResultPosition=6
 
-**Weekly Health Quiz: Coronavirus, Running and Comfort Foods**\
-`Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2020/04/17/well/live/17healthquiz-04172020.html?searchResultPosition=7
+**Why Epidemiologists Still Don’t Know the Death Rate for Covid-19**\
+`Determining what percentage of those infected by the coronavirus will die is a key question for epidemiologists, but an elusive one during the pandemic.`\
+https://nytimes.com/2020/04/17/us/why-epidemiologists-still-dont-know-the-death-rate-for-covid-19.html?searchResultPosition=7
 
-**China Set to Cut Benchmark Rate After First GDP Contraction on Record: Analysts**\
-`China is widely expected to cut its benchmark lending rate on Monday to provide further support for the coronavirus-hit economy, which shrank for the first time on record in the first quarter, a Reuters survey of traders and analysts found.`\
-https://nytimes.com/reuters/2020/04/17/business/17reuters-china-economy-lpr.html?searchResultPosition=8
+**The Market Grapples With Fear and the Timing of a Recovery**\
+`The health and economic effects of the pandemic are already immense, but investors need to assess how long they will last.`\
+https://nytimes.com/2020/04/17/business/market-fear-timing-recovery.html?searchResultPosition=8
 
-**Thrifty Germans Started Investing -- Just Before Markets Crashed**\
-`German households, usually among Europe's most financially conservative, bought into investment funds in the last three months of last year, just before the coronavirus pandemic caused markets to crash, Bundesbank data showed on Friday.`\
-https://nytimes.com/reuters/2020/04/17/business/17reuters-germany-economy-wealth.html?searchResultPosition=9
+**‘Normal People’ Takes Sex Seriously**\
+`This adaptation of Sally Rooney’s best-selling novel is a rare TV show about teenagers that respects intimacy as a powerful storytelling tool, both on and off camera.`\
+https://nytimes.com/2020/04/17/arts/normal-people-hulu.html?searchResultPosition=9
 
-**Spring Yet to Come: Small Businesses at Beijing's Tourist Hot-Spots Struggle**\
-`For Zhang Yu, who runs a cafe in one of Beijing's top tourist spots, business has never been so bad.`\
-https://nytimes.com/reuters/2020/04/17/world/asia/17reuters-health-coronavirus-china-tourism.html?searchResultPosition=10
+**A Food Snob’s Food Tour Conversion**\
+`Michael Ruhlman, the author of best-selling cookbooks and an accomplished cook, didn’t need a guide. Or did he?`\
+https://nytimes.com/2020/04/17/travel/food-tours.html?searchResultPosition=10
 
