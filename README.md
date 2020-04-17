@@ -1,28 +1,28 @@
-**Mexico Calls on Older Medical Workers at Home to Return to Work**\
-`Mexico's president on Friday urged medical workers aged 60 to 65 to return to their jobs and treat non-coronavirus patients, in a bid to help the health system handle an expected surge of demand from the virus.`\
-https://nytimes.com/reuters/2020/04/17/world/americas/17reuters-health-coronavirus-mexico-medics.html?searchResultPosition=4
+**San Diego Comic-Con Canceled for First Time Amid Coronavirus Outbreak**\
+`San Diego Comic-Con, an annual celebrity-studded showcase of superhero films and pop culture, has been canceled for the first time in its 50-year history due to the global coronavirus outbreak, organizers said on Friday.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-comic-con.html?searchResultPosition=4
 
-**NOT REAL NEWS: More Falsehoods Around the Novel Coronavirus**\
-`A roundup of some of the most popular but completely untrue stories and visuals of the week. None of these are legit, even though they were shared widely on social media. The Associated Press checked them out. Here are the facts:`\
-https://nytimes.com/aponline/2020/04/17/us/ap-not-real-news.html?searchResultPosition=5
+**Ex-Trump Lawyer Cohen to Be Released Due to Coronavirus Outbreak-Sources**\
+`Michael Cohen, the former personal attorney to U.S. President Donald Trump, will be released early from prison because of the coronavirus pandemic, two sources familiar with the matter told Reuters late on Thursday.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-usa-trump-cohen.html?searchResultPosition=5
 
-**Syria Virus Death Traced to Kurdish-Run Northeast Region**\
-`A 53-year-old male resident of Syria’s Kurdish-administered northeast died earlier this month from COVID-19, the illness caused by the new coronavirus, according to an email from the World Health Organization obtained by The Associated Press on Friday. `\
-https://nytimes.com/aponline/2020/04/17/world/middleeast/ap-ml-virus-outbreak-mideast-.html?searchResultPosition=6
+**Parent in College Scam Leaving Prison Early Because of Virus**\
+`A parent sentenced to six months in prison for participating in the college admissions bribery scheme is getting to go home early because of the coronavirus pandemic, a federal judge has ruled.`\
+https://nytimes.com/aponline/2020/04/17/us/ap-us-college-admissions-bribery.html?searchResultPosition=6
 
-**The Trouble With Growth Charts**\
-`For decades, parents have viewed their child’s spot on the growth chart as if it were a grade on a test. But how useful are these diagrams, really, in communicating the state of your child’s health?`\
-https://nytimes.com/2020/04/17/parenting/growth-chart-accuracy.html?searchResultPosition=7
+**Ireland Plans to Expand Weekly Coronavirus Testing Capacity to 100,000**\
+`Ireland plans to expand its coronavirus testing capacity to 100,000 tests per week over the next 10 days as it considers easing stay-at-home restrictions on May 5, Chief Medical Officer Tony Holohan said on Friday.`\
+https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-ireland-testing.html?searchResultPosition=7
 
-**Ask NYT Parenting: I Use My Phone for Everything. Is That Harming My Kids?**\
-`Modeling healthy digital habits has become more and more challenging as our smartphones become intertwined with nearly every aspect of our lives.`\
-https://nytimes.com/2020/04/17/parenting/phones-parents.html?searchResultPosition=8
+**Walmart to Hire 50,000 More Workers in Coronavirus-Driven Hiring Spree**\
+`Walmart Inc said on Friday it would hire 50,000 more workers at its stores, clubs and distribution centers to meet a surge in demand for groceries and household essentials from consumers stockpiling during the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/17/business/17reuters-health-coronavirus-walmart.html?searchResultPosition=8
 
-**Bob Hermann, Soccer Executive Who Founded NASL, Dies at 97**\
-`Bob Hermann, the soccer executive who launched the Hermann Trophy given annually to the top college soccer players in the United States, has died at age 97.`\
-https://nytimes.com/aponline/2020/04/17/sports/soccer/ap-soc-obit-hermann.html?searchResultPosition=9
+**Google to Waive Ad Serving Fees for News Publishers Amid Virus Crisis**\
+`Alphabet Inc's Google would waive off the fee it collects from news publishers using its ad services for the next five months, the search giant said on Friday.`\
+https://nytimes.com/reuters/2020/04/17/business/17reuters-health-coronavirus-alphabet-google.html?searchResultPosition=9
 
-**How to Stay Sane About Halloween Candy**\
-`No, your children won’t overload on peanut butter cups. Yes, you can eat their mini Snickers.`\
-https://nytimes.com/2020/04/17/parenting/halloween-candy-rules.html?searchResultPosition=10
+**Seattle Genetics Wins Early U.S. Approval for $18,500 Breast Cancer Therapy**\
+`Seattle Genetics Inc's add-on therapy for a type of breast cancer that has progressed despite prior treatments has won earlier-than-expected approval, the U.S. Food and Drug Administration said on Friday.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-seattle-genetics-fda.html?searchResultPosition=10
 
