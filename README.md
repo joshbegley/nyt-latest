@@ -1,28 +1,28 @@
-**European Car Sales Fall the Most in Decades, Signaling Slump**\
-`Some automakers plan to restart factories on Monday, but are likely to face a dearth of buyers.`\
-https://nytimes.com/2020/04/17/business/europe-eu-car-sales.html?searchResultPosition=4
+**Ford's Three-Part Unsecured Debt Offering Worth $8 Billion: IFR**\
+`Ford Motor Co will launch a three-part unsecured debt offering of $8 billion, yielding up to 9.6% on the 10-year loan, capital markets intelligence provider International Financing Review reported on Friday.`\
+https://nytimes.com/reuters/2020/04/17/business/17reuters-ford-motor-debt.html?searchResultPosition=4
 
-**IMF, World Bank Pledge Help Amid Calls for More Debt Relief**\
-`The 189-nation International Monetary Fund and its sister lending agency, the World Bank, on Friday pledged to step up their efforts to cushion the blow to the global economy from the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/17/business/bc-us-virus-outbreak-global-finance.html?searchResultPosition=5
+**Voting by Mail in the Spotlight as U.S. Congress Debates How to Secure November Elections**\
+`Congress is scrambling for ways to safeguard the Nov. 3 U.S. elections amid the coronavirus pandemic, with a partisan fight shaping up over a Democratic proposal to require states to offer the option of voting by mail.`\
+https://nytimes.com/reuters/2020/04/17/us/politics/17reuters-health-coronavirus-usa-vote.html?searchResultPosition=5
 
-**Trump’s Dow-at-30,000 Dream Hurt America**\
-`Trump is Mark Twain’s king, the great American con man.`\
-https://nytimes.com/2020/04/17/opinion/trump-coronavirus.html?searchResultPosition=6
+**My Power Wheelchair Makes Me a Better Mom**\
+`Because I can walk short distances, strangers judge me for using a wheelchair. But it allows me to be the parent my active toddler needs.`\
+https://nytimes.com/2020/04/17/parenting/wheelchair-dysautonomia-ehlers-danlos-syndrome.html?searchResultPosition=6
 
-**'Outlander' Star Sam Heughan Speaks Out Against Online Abuse**\
-`“Outlander” star Sam Heughan spoke out on social media about what he calls “six years of constant bullying, harassment, stalking and false narratives" about him. `\
-https://nytimes.com/aponline/2020/04/17/us/ap-us-people-sam-heughan.html?searchResultPosition=7
+**Occidental Shareholders Get First Say on Anadarko Deal With Vote on Berkshire Financing**\
+`Occidental Petroleum shareholders next month will get their first say on the oil company's troubled acquisition of Anadarko Petroleum when they vote on issuing shares and warrants to Berkshire Hathaway for helping finance the $38 billion deal.`\
+https://nytimes.com/reuters/2020/04/17/business/17reuters-occidental-proxy-berkshire.html?searchResultPosition=7
 
-**Draft's Biggest Losers: Prospects Without NFL Medical Exams**\
-`Florida receiver Josh Hammond was “a little shocked” he didn’t get an invite to the NFL combine.`\
-https://nytimes.com/aponline/2020/04/17/sports/football/ap-fbn-draft-biggest-losers.html?searchResultPosition=8
+**Global Coronavirus Death Toll Hits 150,000: Reuters Tally**\
+`The number of deaths worldwide linked to the novel coronavirus reached 150,000 on Friday, according to a Reuters tally.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-death-toll.html?searchResultPosition=8
 
-**Players, Fans Get Creative to Raise Funds in Hockey Minors**\
-`More than a month after the ECHL canceled the rest of its season, minor league hockey players are still hoping to get some financial help.`\
-https://nytimes.com/aponline/2020/04/17/sports/ap-hko-helping-minor-leaguers.html?searchResultPosition=9
+**U.S. Coronavirus Death Toll Passes 34,000: Reuters Tally**\
+`U.S. coronavirus deaths rose above 34,000 on Friday, according to a Reuters tally, as some states were expected to announce timetables for lifting restrictions aimed at blunting the pandemic.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-usa-casualties.html?searchResultPosition=9
 
-**Jobless Claims by Uber and Lyft Drivers Revive Fight Over Labor Status**\
-`California’s move to aid gig workers may break federal rules. But the state said it had few options after the ride-hailing companies resisted other benefits.`\
-https://nytimes.com/2020/04/17/business/economy/coronavirus-uber-lyft-unemployment.html?searchResultPosition=10
+**‘A Curious History of Sex’ Covers Aphrodisiacs, Bicycles, Graham Crackers and More**\
+`Kate Lister’s book is mostly a romp rather than an especially serious or comprehensive work of history or criticism.`\
+https://nytimes.com/2020/04/17/books/review-curious-history-sex-kate-lister.html?searchResultPosition=10
 
