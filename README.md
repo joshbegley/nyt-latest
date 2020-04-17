@@ -1,28 +1,28 @@
-**Security Council Backs UN Chief's Call for Yemen Cease-Fire**\
-`The U.N. Security Council on Friday endorsed the secretary-general’s call for the warring parties in Yemen to immediately stop fighting and focus on reaching a peace agreement and countering the outbreak of the new coronavirus.`\
-https://nytimes.com/aponline/2020/04/17/world/middleeast/ap-un-virus-outbreak-yemen.html?searchResultPosition=4
+**NY Fed's Markets Head Says Bank Is Trying to Match 'Speed and the Scale' of Pandemic**\
+`The Federal Reserve is moving as quickly as possible to set up new emergency lending facilities to support credit markets and the economy, and its efforts are already helping to stabilize short-term funding markets, said Daleep Singh, head of the markets group at the New York Fed.  `\
+https://nytimes.com/reuters/2020/04/17/business/17reuters-usa-fed-singh.html?searchResultPosition=4
 
-**Finding the Right Nanny for Your Family**\
-`Hiring a new nanny will take time and effort, but there are lots of places to look — and great candidates to be found.`\
-https://nytimes.com/2020/04/17/parenting/hiring-nanny-guide.html?searchResultPosition=5
+**Brazil's Loans to Airlines Would Only Be Finalized in May: Sources**\
+`Government loans for Brazilian airlines battered by the coronavirus crisis would only be ready in May, and not later this month as some had hoped, two sources familiar with the matter told Reuters on Friday. `\
+https://nytimes.com/reuters/2020/04/17/business/17reuters-health-coronavirus-brazil-airlines.html?searchResultPosition=5
 
-**Newborn Baby Care Basics: What to Know When You Leave the Hospital**\
-`What to pay attention to, the kinds of schedules to follow, and what you don’t need to worry about at all.`\
-https://nytimes.com/article/newborn-baby-care-guide.html?searchResultPosition=6
+**Why We Watch: Sports Movies' Emotional Connections Resonate**\
+`For now and the foreseeable future, thanks to the coronavirus pandemic, there are no live sports to watch -- in person, on television, online. `\
+https://nytimes.com/aponline/2020/04/17/sports/ap-t25-sports-movies-ap-poll-why-we-watch.html?searchResultPosition=6
 
-**Jets, Dustin Byfuglien Agree to Terminate His Contract**\
-`The Winnipeg Jets and Dustin Byfuglien on Friday agreed to mutually terminate the veteran defenseman's contract after a lengthy dispute.`\
-https://nytimes.com/aponline/2020/04/17/sports/hockey/ap-hkn-jets-byfuglien.html?searchResultPosition=7
+**Damage From Twister Threatens to Disrupt Ford Supply Line**\
+`A tornado strike at a critical Ford manufacturing plant threatens to disrupt the automaker's supply chain. `\
+https://nytimes.com/aponline/2020/04/17/business/ap-us-ford-supplier-plant-damaged.html?searchResultPosition=7
 
-**Let's Go to the Videotape: 'Hoosiers' No. 1 AP Top 25 Film**\
-`“Hoosiers” shot all the way to No. 1 in The Associated Press Top 25 of best sports movies, a one-of-a-kind poll from the news organization known for its rankings of college teams.`\
-https://nytimes.com/aponline/2020/04/17/sports/ap-t25-sports-movies-ap-poll.html?searchResultPosition=8
+**The Horrors and Risks on the Front Lines of the Coronavirus**\
+`Readers offer a view of what doctors and nurses are facing every day, risking their lives.`\
+https://nytimes.com/2020/04/17/opinion/letters/coronavirus-medical.html?searchResultPosition=8
 
-**When Gamers Become Parents, Finding Balance Is Next Level**\
-`Video games appeal to all ages, but when do they become a distraction for parents?`\
-https://nytimes.com/2020/04/17/parenting/video-games-parents.html?searchResultPosition=9
+**Two Jobs, Two New Parents: How to Negotiate Your New Reality**\
+`Childcare-related negotiations and professional interruptions can be a challenge new moms and dads are unprepared to face.`\
+https://nytimes.com/article/working-parents-childcare-guide.html?searchResultPosition=9
 
-**This Date in Baseball**\
-`April 18`\
-https://nytimes.com/aponline/2020/04/17/sports/baseball/ap-bbo-this-date-in-baseball.html?searchResultPosition=10
+**France Says No Evidence That COVID-19 Linked to Research Lab in Wuhan**\
+`France said on Friday that there was no evidence so far of a link between the new coronavirus and the work of the P4 research laboratory in the Chinese city of Wuhan, where the current pandemic started.`\
+https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-france-lab.html?searchResultPosition=10
 
