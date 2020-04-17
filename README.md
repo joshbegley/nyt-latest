@@ -1,28 +1,28 @@
-**NBA, WNBA to Sell Face Coverings to Benefit Hunger**\
-`Face coverings bearing NBA and WNBA team themes are being sold to benefit organizations focused on hunger relief.`\
-https://nytimes.com/reuters/2020/04/17/sports/basketball/17reuters-basketball-nba-coronavirus.html?searchResultPosition=4
+**Less Money but More Attention for the Homeless of Paris During Lockdown**\
+`Homeless people in Paris are increasingly relying on charities for food, clothing and daily necessities as the city's empty streets during the coronavirus lockdown have meant less alms for those in need.`\
+https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-france-homeless.html?searchResultPosition=4
 
-**NFL: Teams Can Pause Draft Clock During Technical Issues**\
-`NFL executives could look like part of a fantasy football league next week when the 2020 NFL Draft goes virtual.`\
-https://nytimes.com/reuters/2020/04/17/sports/football/17reuters-football-nfl-virtual-nfl-draft.html?searchResultPosition=5
+**Florida Man Encases Self in Concrete at Governor's Mansion**\
+`A Florida man encased himself in concrete Friday outside the Governor's Mansion in the state capital apparently to protest prison conditions related to the coronavirus.`\
+https://nytimes.com/aponline/2020/04/17/us/ap-us-virus-outbreak-concrete-man.html?searchResultPosition=5
 
-**New Jersey Contractor Charged With Theft of N95 Respirator Masks**\
-`A New Jersey electrical contractor has been charged with stealing up to 1,600 respirator masks that were to be donated to a local hospital, the New Jersey attorney general's office said on Thursday.`\
-https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-usa-new-jersey.html?searchResultPosition=6
+**South Africa's Ramaphosa Dismisses Call to Lift Ban on Alcohol During Lockdown**\
+`South African President Cyril Ramaphosa on Friday refused to lift a ban on alcohol during a nationwide lockdown set to last until the end of April, brushing off a threat of court action from an industry body. `\
+https://nytimes.com/reuters/2020/04/17/world/africa/17reuters-health-coronavirus-safrica-alcohol.html?searchResultPosition=6
 
-**COVID Clauses Await Wary Buyers in Canada's Home Selling Season**\
-`In Canada's typically busy home-selling season, wary buyers are donning masks and gloves to view properties while realtors offer virtual tours and coronavirus clauses as the real estate industry copes up with the outbreak.`\
-https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-canada-property.html?searchResultPosition=7
+**Russia's Lavrov, U.S. Pompeo Discuss Oil Markets, Coronavirus: Statement**\
+`Russian foreign minister Sergei Lavrov and U.S. Secretary of State Mike Pompeo agreed on a call on Friday to continue coordinating efforts to overcome the crisis in oil markets and the challenges posed by the new coronavirus, a statement said. `\
+https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-russia-usa.html?searchResultPosition=7
 
-**U.S. Drillers Slash Most Oil Rigs in a Week Since February 2015: Baker Hughes**\
-`Oil rigs in the United States saw their steepest cuts since February 2015 as crude prices more than halved since the start of the year despite fresh global efforts by producers to cut output to counter a glut triggered by demand destruction from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/17/business/17reuters-usa-rigs-baker-hughes.html?searchResultPosition=8
+**Michelin-Starred UK Chef Sends Ready Meals to Health Workers**\
+`Michelin-starred British celebrity chef Tom Kerridge is doing his bit to help overworked doctors, nurses and other frontline workers get through the coronavirus emergency by churning out 1,000 ready meals per day.`\
+https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-tom-kerridge.html?searchResultPosition=8
 
-**'It's a Financial Choice'-Romanian Farm Workers Head West Despite Coronavirus**\
-`Carmen Mocanu, a 51-year-old labourer, has spent most springs for 15 years picking fruit and vegetables on a German farm. `\
-https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-workers.html?searchResultPosition=9
+**FDA Approves Pill for Aggressive Breast Cancer That's Spread**\
+`U.S. regulators on Friday approved a new drug for an aggressive type of breast cancer that’s spread in the body — including into the brain, where it’s especially tough to treat. `\
+https://nytimes.com/aponline/2020/04/17/health/bc-us-med-fda-breast-cancer-drug.html?searchResultPosition=9
 
-**Tar Heels Star Freshman Cole Anthony Entering NBA Draft**\
-`North Carolina freshman point guard Cole Anthony is entering the NBA draft.`\
-https://nytimes.com/aponline/2020/04/17/sports/ncaabasketball/ap-bkc-north-carolina-anthony-nba.html?searchResultPosition=10
+**Why Testing Is Lagging**\
+`How to make wide testing more appealing to the president. Also: President Trump forgoes a radio show; God and the virus; a teacher’s thoughtfulness; children’s diet; China’s wildlife markets.`\
+https://nytimes.com/2020/04/17/opinion/letters/coronavirus-testing.html?searchResultPosition=10
 
