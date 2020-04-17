@@ -1,32 +1,32 @@
+**The Agony and Ecstasy of a 12-Hour Road Trip With 2 Small Kids**\
+`We are all positive anticipation until Houston, where road trip optimism goes to die.`\
+https://nytimes.com/2020/04/17/parenting/road-trip-kids.html?searchResultPosition=3
+
+**How Egg Freezing Went Mainstream**\
+`Men could easily freeze their sperm since the 1970s. So why did it take so long to figure out how to successfully freeze a woman’s eggs?`\
+https://nytimes.com/2020/04/17/parenting/fertility/egg-freezing.html?searchResultPosition=4
+
+**Is It Too Soon to Give My Kid a Tablet?**\
+`There’s not a one-size-fits-all answer to the question, but here are several things to consider before buying your child their own electronic device.`\
+https://nytimes.com/2020/04/17/parenting/tablet-child-screentime.html?searchResultPosition=5
+
+**A Black Hockey Player Faced Racial Taunts. Some Fans Aren’t Surprised.**\
+`K’Andre Miller was repeatedly harassed in a videoconference organized by the Rangers. Some fans say the incident, and the teams’ handling of it, are indicative of a larger problem.`\
+https://nytimes.com/2020/04/17/sports/hockey/rangers-kandre-miller-zoom-racism.html?searchResultPosition=6
+
+**Indian Fishermen, Caught Out by Virus Lockdown, Dock After Weeks at Sea**\
+`Hundreds of exhausted Indian fishermen, who said they were refused entry at two ports after a nationwide lockdown was imposed to fight the new coronavirus, docked in the western state of Maharashtra on Friday after about a month at sea. `\
+https://nytimes.com/reuters/2020/04/17/world/asia/17reuters-health-coronavirus-india-fishermen.html?searchResultPosition=7
+
 **When It Comes to Fertility, Access is Everything**\
 `For those who are struggling to conceive, the most fortunate always win.`\
-https://nytimes.com/2020/04/17/parenting/fertility/fertility-treatment-cost-access.html?searchResultPosition=3
+https://nytimes.com/2020/04/17/parenting/fertility/fertility-treatment-cost-access.html?searchResultPosition=8
 
 **Families Fight Back Against Surprise Air Ambulance Bills**\
 `When a seriously ill child needs air transport, parents don’t hesitate to take the flight. Then comes a bill, sometimes upward of $50,000.`\
-https://nytimes.com/2020/04/17/parenting/air-ambulance-bills.html?searchResultPosition=4
+https://nytimes.com/2020/04/17/parenting/air-ambulance-bills.html?searchResultPosition=9
 
 **Almost Half of French Aircraft Carrier Crew Test Positive for COVID-19: Minister**\
 `Almost half the 2,300-strong crew on France's sole aircraft carrier, the Charles de Gaulle, have tested positive for the new coronavirus, the armed forces minister said on Friday.`\
-https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-france-navy-tests-minister.html?searchResultPosition=5
-
-**Fed's Bullard: Programs So Far Are 'Standard' Central Banking**\
-`The aggressive programs enacted by the U.S. Federal Reserve so far are "standard" and don't cross the line to direct monetary financing of the federal government's rising deficits, St. Louis Fed president James Bullard said.`\
-https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-fed-bullard.html?searchResultPosition=6
-
-**2020 Laver Cup Called Off Due to French Open Switch**\
-`The 2020 Laver Cup will not go ahead in September as planned and will return next year due to the clash of dates with the French Open, the organisers of the exhibition event said on Friday.`\
-https://nytimes.com/reuters/2020/04/17/sports/tennis/17reuters-health-coronavrius-tennis-lavercup.html?searchResultPosition=7
-
-**BoE's Bailey Tells Banks to 'Put Their Back Into It' on COVID-19 Loans**\
-`Bank of England Governor Andrew Bailey called on Britain's banks to speed up the pace of getting state-backed loans to companies that are struggling to survive the coronavirus crisis, saying they must "put their back into it and get on with it."`\
-https://nytimes.com/reuters/2020/04/17/business/17reuters-health-coronavirus-boe-bailey.html?searchResultPosition=8
-
-**Fed's Mester Says Economic Reopening Has to Be Done Carefully, in Stages**\
-`Cleveland Federal Reserve Bank President Loretta Mester said the central bank is working to support market functioning and to shore up businesses so they can resume activity quickly when the economy reopens.`\
-https://nytimes.com/reuters/2020/04/17/us/17reuters-usa-fed-mester.html?searchResultPosition=9
-
-**What to Cook This Weekend**\
-`Springtime carbonara, a hasselback sausage or hambone soup: There are so many adaptable recipes to be made during these long days at home.`\
-https://nytimes.com/2020/04/17/dining/what-to-cook-this-weekend.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-france-navy-tests-minister.html?searchResultPosition=10
 
