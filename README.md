@@ -1,32 +1,32 @@
+**‘Graduating’ From an Infertility Support Group?**\
+`Expect a mix of happiness and resentment.`\
+https://nytimes.com/2020/04/17/parenting/fertility/infertility-support-group.html?searchResultPosition=3
+
+**Pitbull Launches New Song to Inspire During the Pandemic**\
+`Pitbull is looking to uplift his fans around the world with a new dance anthem.`\
+https://nytimes.com/aponline/2020/04/17/us/ap-us-virus-outbreak-music-pitbull.html?searchResultPosition=4
+
+**Is It Ever O.K. for a Relative to Discipline Your Kid?**\
+`The holidays are prime time for overstepping boundaries. Here’s how to deal.`\
+https://nytimes.com/2020/04/17/parenting/relative-discipline-kid.html?searchResultPosition=5
+
+**In a Medical Emergency, a Family Plan Pays Off**\
+`Be prepared and avoid a wild scramble when a sudden illness or accident strikes.`\
+https://nytimes.com/2020/04/17/parenting/family-emergency.html?searchResultPosition=6
+
+**You Birth How You Live**\
+`Doula Domino Kirke on why your birth providers are so important, and how to choose them wisely.`\
+https://nytimes.com/2020/04/17/parenting/pregnancy/domino-kirke-doula.html?searchResultPosition=7
+
+**How Do I Know If My Kid Needs Antibiotics?**\
+`Research suggests that drug-resistant infections among children are on the rise. Here’s how you can avoid overusing these medications.`\
+https://nytimes.com/2020/04/17/parenting/antibiotics-kids.html?searchResultPosition=8
+
+**I Gave My Tinder Date Hand, Foot and Mouth Disease**\
+`This is why single mothers should not date, I thought. But this guy seemed unfazed.`\
+https://nytimes.com/2020/04/17/parenting/dating-single-parent.html?searchResultPosition=9
+
 **The Agony and Ecstasy of a 12-Hour Road Trip With 2 Small Kids**\
 `We are all positive anticipation until Houston, where road trip optimism goes to die.`\
-https://nytimes.com/2020/04/17/parenting/road-trip-kids.html?searchResultPosition=3
-
-**How Egg Freezing Went Mainstream**\
-`Men could easily freeze their sperm since the 1970s. So why did it take so long to figure out how to successfully freeze a woman’s eggs?`\
-https://nytimes.com/2020/04/17/parenting/fertility/egg-freezing.html?searchResultPosition=4
-
-**Is It Too Soon to Give My Kid a Tablet?**\
-`There’s not a one-size-fits-all answer to the question, but here are several things to consider before buying your child their own electronic device.`\
-https://nytimes.com/2020/04/17/parenting/tablet-child-screentime.html?searchResultPosition=5
-
-**A Black Hockey Player Faced Racial Taunts. Some Fans Aren’t Surprised.**\
-`K’Andre Miller was repeatedly harassed in a videoconference organized by the Rangers. Some fans say the incident, and the teams’ handling of it, are indicative of a larger problem.`\
-https://nytimes.com/2020/04/17/sports/hockey/rangers-kandre-miller-zoom-racism.html?searchResultPosition=6
-
-**Indian Fishermen, Caught Out by Virus Lockdown, Dock After Weeks at Sea**\
-`Hundreds of exhausted Indian fishermen, who said they were refused entry at two ports after a nationwide lockdown was imposed to fight the new coronavirus, docked in the western state of Maharashtra on Friday after about a month at sea. `\
-https://nytimes.com/reuters/2020/04/17/world/asia/17reuters-health-coronavirus-india-fishermen.html?searchResultPosition=7
-
-**When It Comes to Fertility, Access is Everything**\
-`For those who are struggling to conceive, the most fortunate always win.`\
-https://nytimes.com/2020/04/17/parenting/fertility/fertility-treatment-cost-access.html?searchResultPosition=8
-
-**Families Fight Back Against Surprise Air Ambulance Bills**\
-`When a seriously ill child needs air transport, parents don’t hesitate to take the flight. Then comes a bill, sometimes upward of $50,000.`\
-https://nytimes.com/2020/04/17/parenting/air-ambulance-bills.html?searchResultPosition=9
-
-**Almost Half of French Aircraft Carrier Crew Test Positive for COVID-19: Minister**\
-`Almost half the 2,300-strong crew on France's sole aircraft carrier, the Charles de Gaulle, have tested positive for the new coronavirus, the armed forces minister said on Friday.`\
-https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-france-navy-tests-minister.html?searchResultPosition=10
+https://nytimes.com/2020/04/17/parenting/road-trip-kids.html?searchResultPosition=10
 
