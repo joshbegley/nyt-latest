@@ -8,7 +8,7 @@ https://nytimes.com/2020/04/17/business/economy/coronavirus-federal-reserve-mids
 
 **The Quarantine Season**\
 `What to listen to when you need escape, comfort, joy.`\
-https://nytimes.com/2020/04/17/podcasts/daily-newsletter-coronavirus-podcasts.html?searchResultPosition=6
+https://nytimes.com/2020/04/17/admin/daily-newsletter-coronavirus-podcasts.html?searchResultPosition=6
 
 **‘More Anxiety Than Relief’: Baby Monitors That Track Vital Signs Are Raising Questions**\
 `After a popular app stopped receiving medical data, some families wondered how reliable monitoring is.`\
