@@ -1,28 +1,21 @@
-**US: Naval Buildup in Caribbean Not Aimed at Ousting Maduro**\
-`The top U.S. military commander for Latin America said Friday that the Trump administration isn’t looking to use military force to remove Nicolas Maduro even as it expands counternarcotics operations in the Caribbean.`\
-https://nytimes.com/aponline/2020/04/17/us/ap-lt-venezuela-us-military.html?searchResultPosition=4
+**Majority of FCC Backs Ligado Plan for Broadband Network - Source**\
+`A majority of the five-member Federal Communications Commission (FCC) has voted to approve an order to allow Ligado Networks' to deploy a low-power nationwide 5G network despite objections from the Defense Department and major U.S. airlines, a source told Reuters.`\
+https://nytimes.com/reuters/2020/04/17/technology/17reuters-usa-telecom-wireless.html?searchResultPosition=4
 
-**Federal Judge Orders Florida Company to Stop Peddling Bleach-Based COVID-19 'Cure'**\
-`A federal judge has ordered a Florida-based company to stop selling a product that it says cures COVID-19 but prosecutors allege contains a powerful bleach that could make people sick when it is ingested, the Justice Department said on Friday.`\
-https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-fraud.html?searchResultPosition=5
+**Fiona Apple Is Back and Unbound: Let’s Discuss**\
+`“Fetch the Bolt Cutters,” the singer and songwriter’s first album since 2012, is a bold, cathartic, challenging masterpiece. Our critics have a lot to say about it.`\
+https://nytimes.com/2020/04/17/arts/music/fiona-apple-fetch-the-bolt-cutters.html?searchResultPosition=5
 
-**‘Man of My Time,’ by Dalia Sofer: An Excerpt**\
-`An excerpt from “Man of My Time,” by Dalia Sofer`\
-https://nytimes.com/2020/04/17/books/review/man-of-my-time-by-dalia-sofer-an-excerpt.html?searchResultPosition=6
+**How to Deal with Low Breastmilk Supply**\
+`Get help from skilled medical professionals, and let go of an “all-or-nothing” mentality.`\
+https://nytimes.com/article/increase-breastmilk-supply.html?searchResultPosition=6
 
-**Moored in a Fragile Paradise**\
-`Hundreds of boaters stuck in the Caribbean have converged on the U.S. Virgin Islands, but there are fears that their safe haven comes at a cost for residents.`\
-https://nytimes.com/2020/04/17/travel/coronavirus-stjohn-caribbean.html?searchResultPosition=7
+**Analysis: With New Virus Plan, Trump Passes Buck to States**\
+`President Donald Trump's guidelines for states to reopen their economies had the hallmarks of a permission structure. But what he really created was a blame structure.`\
+https://nytimes.com/aponline/2020/04/17/us/politics/ap-us-virus-outbreak-trump-analysis-.html?searchResultPosition=7
 
-**NBA Players to Receive 25% Less in Paychecks Starting May 15**\
-`A person with knowledge of the decision says NBA players will see 25% of their paychecks taken out starting May 15.`\
-https://nytimes.com/aponline/2020/04/17/sports/basketball/ap-bkn-nba-board-of-governors.html?searchResultPosition=8
+**Column: When Nightmare Is Over, a Chance for Sports to Reset**\
+`While sports is on hold during the coronavirus pandemic, there are surely lessons to be learned.`\
+https://nytimes.com/aponline/2020/04/17/sports/ap-paul-newberry-when-normal-returns.html?searchResultPosition=8
 
-**In Phone Call, Mexican President Floats Idea of Meeting With Trump**\
-`Mexican President Andres Manuel Lopez Obrador said he spoke by telephone with U.S. President Donald Trump on Friday, suggesting they meet in June or July for what would be their first in-person encounter.`\
-https://nytimes.com/reuters/2020/04/17/world/americas/17reuters-health-coronavirus-mexico-usa.html?searchResultPosition=9
-
-**Tennessee Delays June Execution Due to Coronavirus**\
-`Tennessee's Supreme Court on Friday postponed the scheduled execution of a death row prisoner by eight months because of the coronavirus. `\
-https://nytimes.com/aponline/2020/04/17/us/ap-us-virus-outbreak-execution-tennessee.html?searchResultPosition=10
-
+**What Are Your Favorite Pandemic Reads?**\
