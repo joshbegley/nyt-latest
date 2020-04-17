@@ -1,28 +1,28 @@
+**Is Mealtime Miserable? Try This.**\
+`‘Division of responsibility in feeding’ is an approach that may help picky eaters and food-fixated kids alike. What it won’t do: make anyone finish their broccoli.`\
+https://nytimes.com/2020/04/17/parenting/division-of-responsibility-in-feeding.html?searchResultPosition=4
+
+**Marchons? Coronavirus Could Stall France's Bastille Day Celebrations**\
+`France will decide whether to go ahead with the annual Bastille Day military celebrations marking its national day when clear indications emerge on the state of the coronavirus epidemic, the junior armed forces minister said on Friday.`\
+https://nytimes.com/reuters/2020/04/17/world/middleeast/17reuters-health-coronavirus-france-july14.html?searchResultPosition=5
+
+**Dubai Extends 24-Hour Coronavirus Curfew by One Week**\
+`Dubai, the United Arab Emirates' business hub, has extended by one week a 24-hour curfew imposed as part of a sterilisation drive to control the spread of the new coronavirus, the government's media office said in a Twitter post on Friday.`\
+https://nytimes.com/reuters/2020/04/17/world/middleeast/17reuters-health-coronavirus-emirates.html?searchResultPosition=6
+
+**Bolsonaro Asks Justice Minister to Consider Reopening Borders**\
+`Brazilian President Jair Bolsonaro said on Friday that he spoke to Justice Minister Sergio Moro about reopening the country's borders, a measure he said he supported.`\
+https://nytimes.com/reuters/2020/04/17/world/americas/17reuters-health-coronavirus-brazil.html?searchResultPosition=7
+
+**Poland, Hungary Scolded for Flouting 'European Values' During Pandemic**\
+`The European Union's (EU) legislature rebuked nationalist-ruled members Poland and Hungary on Friday for flouting "European values" by pressing ahead with an election and assuming extra powers respectively during the coronavirus crisis.  `\
+https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-election-europeanparliament.html?searchResultPosition=8
+
+**11 Filipino Soldiers Trying to Track an ISIS Leader Are Killed**\
+`Troops on the trail of an Islamic State regional chief died in the southern Philippines in the biggest skirmish with militants of recent months.`\
+https://nytimes.com/2020/04/17/world/asia/11-filipino-soldiers-trying-to-track-an-isis-leader-are-killed.html?searchResultPosition=9
+
 **The Truth About Food Pouches**\
 `The fruit-and-vegetable packets are O.K. in moderation, experts say, but don’t rely on them for every meal.`\
-https://nytimes.com/2020/04/17/parenting/baby-food-pouches.html?searchResultPosition=4
-
-**Belgium's Traveller Community Adjusts to Lockdown**\
-`With travelling the roads a way of life for the Sinti community,  Belgian Etienne Charpentier and his family say that having their freedom restricted due to the coronavirus epidemic is hitting them especially hard.`\
-https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-belgium-travellers.html?searchResultPosition=5
-
-**In Ecuador Pandemic, Chronic Illnesses Are Going Untreated**\
-`Ecuadoreans who suffer chronic illnesses such as cancer and kidney failure are struggling to get treatment amid the coronavirus pandemic as basic supplies go short and hospitals suspend some services to reduce further infections, according to interviews with officials and relatives of patients.`\
-https://nytimes.com/reuters/2020/04/17/world/americas/17reuters-health-coronavirus-ecuador.html?searchResultPosition=6
-
-**Ferdi German, M.T.A. Subway Car Inspector, Dies at 41**\
-`Mr. German, who worked for more than 12 years at the M.T.A.’s 207th street overhaul shop, was one of the thousands of transit workers who have fallen sick or self-quarantined.`\
-https://nytimes.com/2020/04/17/obituaries/ferdi-german-dead-coronavirus.html?searchResultPosition=7
-
-**More Melty Cheese**\
-`Indulge in small ways, with a creamy, cheesy potato gratin, or choose something bright like salmon with peas and radishes.`\
-https://nytimes.com/2020/04/17/dining/more-melty-cheese.html?searchResultPosition=8
-
-**Stanley Chera, Developer and Friend of Trump, Dies at 77**\
-`As his friend lay dying of the coronavirus, President Trump spoke of him from the White House podium.`\
-https://nytimes.com/2020/04/17/us/stanley-chera-dead-coronavirus.html?searchResultPosition=9
-
-**Dealing With Interfering Grandparents**\
-`How to navigate a challenging relationship.`\
-https://nytimes.com/2020/04/17/parenting/interfering-grandparents.html?searchResultPosition=10
+https://nytimes.com/2020/04/17/parenting/baby-food-pouches.html?searchResultPosition=10
 
