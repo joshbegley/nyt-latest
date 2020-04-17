@@ -1,28 +1,28 @@
-**NY Fed's Markets Head Says Bank Is Trying to Match 'Speed and the Scale' of Pandemic**\
-`The Federal Reserve is moving as quickly as possible to set up new emergency lending facilities to support credit markets and the economy, and its efforts are already helping to stabilize short-term funding markets, said Daleep Singh, head of the markets group at the New York Fed.  `\
-https://nytimes.com/reuters/2020/04/17/business/17reuters-usa-fed-singh.html?searchResultPosition=4
+**U.S. Asks China to Revise Export Rules for Coronavirus Medical Gear**\
+`The United States has asked China to revise new export quality control rules for protective equipment needed in the coronavirus pandemic so they are not an obstacle to timely supplies, a spokesman for the U.S. State Department said.`\
+https://nytimes.com/reuters/2020/04/17/world/asia/17reuters-heath-coronavirus-usa-china.html?searchResultPosition=4
 
-**Brazil's Loans to Airlines Would Only Be Finalized in May: Sources**\
-`Government loans for Brazilian airlines battered by the coronavirus crisis would only be ready in May, and not later this month as some had hoped, two sources familiar with the matter told Reuters on Friday. `\
-https://nytimes.com/reuters/2020/04/17/business/17reuters-health-coronavirus-brazil-airlines.html?searchResultPosition=5
+**EU to Step Up Rules on Factory Farming, Wildlife Trading Amid Pandemic**\
+`The European Union will step up efforts to control wildlife trading and make factory farming more sustainable, given that both issues have played a role in the coronavirus pandemic, the bloc's environment chief said on Thursday.`\
+https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-eu-wildlife.html?searchResultPosition=5
 
-**Why We Watch: Sports Movies' Emotional Connections Resonate**\
-`For now and the foreseeable future, thanks to the coronavirus pandemic, there are no live sports to watch -- in person, on television, online. `\
-https://nytimes.com/aponline/2020/04/17/sports/ap-t25-sports-movies-ap-poll-why-we-watch.html?searchResultPosition=6
+**Bullard Says Fed Should Keep Some 'Firepower' Reserved in Case Crisis Worsens**\
+`The U.S. Federal Reserve should be careful in adding to the set of crisis programs it has already approved in order to keep some "firepower" in case the fight against the coronavirus pandemic takes an unexpected turn for the worse, St. Louis Federal Reserve president James Bullard said on Friday.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-fed-bullard-firepower.html?searchResultPosition=6
 
-**Damage From Twister Threatens to Disrupt Ford Supply Line**\
-`A tornado strike at a critical Ford manufacturing plant threatens to disrupt the automaker's supply chain. `\
-https://nytimes.com/aponline/2020/04/17/business/ap-us-ford-supplier-plant-damaged.html?searchResultPosition=7
+**World Bank Chief Says More Trade Will Ease Pandemic's Economic Impact**\
+`World Bank President David Malpass said on Friday that countries need to allow more trade in order to recover from the economic downturn prompted by the coronavirus pandemic and said he was concerned about countries hoarding food supplies.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-imf-worldbank-trade.html?searchResultPosition=7
 
-**The Horrors and Risks on the Front Lines of the Coronavirus**\
-`Readers offer a view of what doctors and nurses are facing every day, risking their lives.`\
-https://nytimes.com/2020/04/17/opinion/letters/coronavirus-medical.html?searchResultPosition=8
+**Governing Bodies Join Forces to Answer Players' Cry for Financial Help**\
+`The tennis governing bodies have joined forces to support lower-level professionals who are struggling financially during the sport's shutdown due to the novel coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/17/sports/tennis/17reuters-health-coronavirus-tennis.html?searchResultPosition=8
 
-**Two Jobs, Two New Parents: How to Negotiate Your New Reality**\
-`Childcare-related negotiations and professional interruptions can be a challenge new moms and dads are unprepared to face.`\
-https://nytimes.com/article/working-parents-childcare-guide.html?searchResultPosition=9
+**25 Years Ago, a Prayer Service Gave Hope to a Shaken America**\
+`Search-and-rescue workers came straight from the blast site, hard hats atop their heads and mud and grime on their boots. `\
+https://nytimes.com/aponline/2020/04/17/us/ap-us-oklahoma-city-bombing25-years-laterprayer.html?searchResultPosition=9
 
-**France Says No Evidence That COVID-19 Linked to Research Lab in Wuhan**\
-`France said on Friday that there was no evidence so far of a link between the new coronavirus and the work of the P4 research laboratory in the Chinese city of Wuhan, where the current pandemic started.`\
-https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-france-lab.html?searchResultPosition=10
+**Virus Ravages NY Nursing Homes: Many Report Multiple Deaths**\
+`The despair wrought on nursing homes by the coronavirus was laid bare Friday in a state report identifying numerous New York facilities where multiple patients died over the past few weeks.`\
+https://nytimes.com/aponline/2020/04/17/us/ap-us-virus-outbreak-nursing-homes.html?searchResultPosition=10
 
