@@ -1,28 +1,28 @@
+**Some Babies Sleep Better in Car Seats and Swings, but Are They Safe?**\
+`Recent product recalls, and a new study, reaffirm the old advice: Infants should sleep flat on their backs in a crib.`\
+https://nytimes.com/2020/04/17/parenting/baby-sleep-dangerous.html?searchResultPosition=4
+
+**Is an Indian Holiday the Cure for Sibling Rivalry?**\
+`I want my children to value Raksha Bandhan, the celebration of the bond between brothers and sisters, as much as I do.`\
+https://nytimes.com/2020/04/17/parenting/raksha-bandhan.html?searchResultPosition=5
+
+**Getting Back to Sex After Pregnancy Loss**\
+`Though your body might be ready to return to sex after a miscarriage, are you?`\
+https://nytimes.com/2020/04/17/parenting/sex-after-miscarriage.html?searchResultPosition=6
+
+**At Least 14 N.Y. Nursing Homes Have Had More Than 25 Virus Deaths**\
+`Until the state released its accounting, residents’ relatives had been denied information on how hard homes had been hit.`\
+https://nytimes.com/2020/04/17/nyregion/new-york-nursing-homes-coronavirus-deaths.html?searchResultPosition=7
+
+**How Can It Happen Here? The Shocking Deaths in Canada’s Long-Term Care Homes**\
+`About half the people killed by the coronavirus in Canada have been residents of nursing homes.`\
+https://nytimes.com/2020/04/17/world/canada/quebec-herron-coronavirus.html?searchResultPosition=8
+
 **Oklahoma Judge to Recommend Regulators Rule Oil Production 'Economic Waste'**\
 `An Oklahoma Judge will recommend the state's oil and gas regulator approve an emergency order declaring oil production in the state could constitute economic waste, a spokesman for the state's Corporation Commission (OCC) said on Friday.`\
-https://nytimes.com/reuters/2020/04/17/us/17reuters-usa-oil-oklahoma-waste.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/17/us/17reuters-usa-oil-oklahoma-waste.html?searchResultPosition=9
 
 **What to Say to Someone Struggling With Infertility**\
 `Don’t offer unsolicited advice but do reach out.`\
-https://nytimes.com/2020/04/17/parenting/support-friend-infertility.html?searchResultPosition=5
-
-**Uterine Fibroids Can Wreak Reproductive Havoc. What Are They?**\
-`These benign tumors can affect women in their procreative prime, but they are more treatable than ever.`\
-https://nytimes.com/2020/04/17/parenting/uterine-fibroids.html?searchResultPosition=6
-
-**No Dynasty Can Compare to Michael Jordan’s Bulls**\
-`The Chicago Bulls ruled the 1990s under an intense media spotlight. A generation later, their greatness is still the basis for debate and, with the sports world on hold, must-see TV.`\
-https://nytimes.com/2020/04/17/sports/basketball/michael-jordan-bulls-documentary.html?searchResultPosition=7
-
-**My Partner’s IUI Treatment Drained Us Both Emotionally**\
-`Couples therapy has been good preparation for our fertility journey.`\
-https://nytimes.com/2020/04/17/parenting/two-moms-get-pregnant.html?searchResultPosition=8
-
-**NFL GMs Think the Remote Draft Will Alter the Trading Scene**\
-`To trade or not to trade?`\
-https://nytimes.com/aponline/2020/04/17/sports/football/ap-fbn-draft-tough-to-trade.html?searchResultPosition=9
-
-**I Didn’t Bond With My Baby Right Away**\
-`Despite my high hopes, it took time and patience to connect with my infant. And I’m not alone.`\
-https://nytimes.com/2020/04/17/parenting/baby-bonding.html?searchResultPosition=10
+https://nytimes.com/2020/04/17/parenting/support-friend-infertility.html?searchResultPosition=10
 
