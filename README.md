@@ -1,32 +1,32 @@
+**What’s the Deal with Mail-In Sperm Start-Ups?**\
+`Experts say these mail-in kits cannot replace in-office visits.`\
+https://nytimes.com/2020/04/16/parenting/fertility/mail-in-sperm-kits.html?searchResultPosition=3
+
+**What We Don’t Know About I.V.F.**\
+`And why there’s still a staggering lack of data for doctors to reference.`\
+https://nytimes.com/2020/04/16/parenting/fertility/ivf-long-term-effects.html?searchResultPosition=4
+
+**Some People Turn to Herbal Medicine for Virus Without Proof**\
+`With no approved drugs for the new coronavirus, some people are turning to alternative medicines, often with governments promoting them.`\
+https://nytimes.com/aponline/2020/04/16/health/ap-as-med-virus-outbreak-alternative-medicines.html?searchResultPosition=5
+
+**Preparing for Trans Pregnancy**\
+`A doctor addresses the challenges that come with this new frontier of fertility.`\
+https://nytimes.com/2020/04/16/parenting/fertility/transgender-pregnancy.html?searchResultPosition=6
+
+**China’s Economy Shrinks, Just When the World Needs Its Punch**\
+`The coronavirus ended nearly half a century of continuous growth, official figures show, underscoring how momentous the task of reviving the global economy will be.`\
+https://nytimes.com/2020/04/16/business/china-coronavirus-economy.html?searchResultPosition=7
+
+**For Kids, Marie Kondo’s Magic Falls Flat**\
+`The tidying guru’s new children’s book leans on techniques that are unlikely to spark joy.`\
+https://nytimes.com/2020/04/16/parenting/marie-kondo-kids-book.html?searchResultPosition=8
+
 **Can Pelvic Floor Therapy Relieve Postpartum Pain?**\
 `Maybe. Here’s what to know.`\
-https://nytimes.com/2020/04/16/parenting/pregnancy/pelvic-floor-therapy.html?searchResultPosition=3
+https://nytimes.com/2020/04/16/parenting/pregnancy/pelvic-floor-therapy.html?searchResultPosition=9
 
 **India Says IMF Liquidity Boost May Have Costly Side Effects**\
 `India's finance minister said on Thursday the country could not support a general allocation of new Special Drawing Rights by the International Monetary Fund because it might not be effective in easing coronavirus-driven financial pressures.`\
-https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-imf-worldbank-india.html?searchResultPosition=4
-
-**Pro-Trump Protesters Push Back on Stay-At-Home Orders**\
-`While many Americans are filled with fear, Melissa Ackison says the coronavirus pandemic has filled her with anger. The stay-at home orders are government overreach, the conservative Ohio state Senate candidate says, and the labeling of some workers as “essential” arbitrary.`\
-https://nytimes.com/aponline/2020/04/16/us/ap-us-virus-outbreak-protests.html?searchResultPosition=5
-
-**How to Recognize Miscarriage Symptoms and Cope With the Aftermath**\
-`Miscarriage happens in up to 15 percent of pregnancies. Why aren’t we talking about it?`\
-https://nytimes.com/article/miscarriage.html?searchResultPosition=6
-
-**USADA Adapts in COVID-19 Era With Self-Administered Doping Tests**\
-`The United States Anti-Doping Agency (USADA) says a new self-administered doping test could help protect clean athletes, as the agency tries to ensure no one gets a "free pass" from reduced testing during the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/04/16/sports/olympics/16reuters-health-coronavirus-doping-usada.html?searchResultPosition=7
-
-**Yes, Even Introverts Can Be Lonely Right Now**\
-`Introverts crave connection, too — we just need more boundaries.`\
-https://nytimes.com/2020/04/16/smarter-living/coronavirus-introverts-lonely.html?searchResultPosition=8
-
-**Understanding the Risks for Stillbirth, and Coping if It Happens to You**\
-`Stillbirth is rare but has a huge impact on families. It’s important to know the risk factors and warning signs.`\
-https://nytimes.com/article/stillbirth.html?searchResultPosition=9
-
-**New Jersey Contractor Charged With Theft of N95 Respirator Masks**\
-`A New Jersey electrical contractor has been charged with stealing up to 1,600 respirator masks that were to be donated to a local hospital, the New Jersey attorney general's office said on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-usa-new-jersey.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/16/world/asia/16reuters-imf-worldbank-india.html?searchResultPosition=10
 
