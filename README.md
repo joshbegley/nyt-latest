@@ -1,28 +1,28 @@
-**France Coronavirus Death Toll Up Again but More Positive Signs**\
-`France registered 761 more deaths from coronavirus infections on Friday, bringing the total to 18,681, the fourth-highest tally in the world, but the number of people in hospital has declined for a third day running.`\
-https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-france-toll.html?searchResultPosition=4
+**New Jersey Contractor Charged With Theft of N95 Respirator Masks**\
+`A New Jersey electrical contractor has been charged with stealing up to 1,600 respirator masks that were to be donated to a local hospital, the New Jersey attorney general's office said on Thursday.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-usa-new-jersey.html?searchResultPosition=4
 
-**WHO Unsure Antibodies Protect Against COVID, Little Sign of Herd Immunity**\
-`The World Health Organization is not sure whether the presence of antibodies in blood gives full protection against reinfection with the new coronavirus, Mike Ryan, the WHO's top emergencies expert, told a briefing on Friday.`\
-https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-immunity.html?searchResultPosition=5
+**COVID Clauses Await Wary Buyers in Canada's Home Selling Season**\
+`In Canada's typically busy home-selling season, wary buyers are donning masks and gloves to view properties while realtors offer virtual tours and coronavirus clauses as the real estate industry copes up with the outbreak.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-canada-property.html?searchResultPosition=5
 
-**Back to the Future? Dutch Revive 1960s Ventilator for Coronavirus Fight**\
-`Dutch scientists have pulled a British-made East Radcliff ventilator built in the 1960s from the shelves of a science museum to use as a template for cheap and easy-to-build ventilators in the fight against coronavirus.`\
-https://nytimes.com/reuters/2020/04/17/technology/17reuters-health-coronavirus-netherlands-ventilators.html?searchResultPosition=6
+**U.S. Drillers Slash Most Oil Rigs in a Week Since February 2015: Baker Hughes**\
+`Oil rigs in the United States saw their steepest cuts since February 2015 as crude prices more than halved since the start of the year despite fresh global efforts by producers to cut output to counter a glut triggered by demand destruction from the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/17/business/17reuters-usa-rigs-baker-hughes.html?searchResultPosition=6
 
-**Reopening Wet Food Markets Must Conform to Strict Standards: WHO**\
-`Any "wet markets" that are allowed to reopen after coronavirus lockdowns must conform to stringent food and hygiene standards, World Health Organization Director-General Tedros Adhanom Ghebreyesus told a briefing on Friday.`\
-https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-wetmarkets.html?searchResultPosition=7
+**'It's a Financial Choice'-Romanian Farm Workers Head West Despite Coronavirus**\
+`Carmen Mocanu, a 51-year-old labourer, has spent most springs for 15 years picking fruit and vegetables on a German farm. `\
+https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-workers.html?searchResultPosition=7
 
-**UK Tells Doctors to Treat COVID-19 Patients Without Full-Length Gowns Due to Shortage: Report**\
-`British healthcare staff have been advised to treat COVID-19 patients without full-length protective gowns due to shortages of equipment, the Guardian newspaper reported on Friday.`\
-https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-britain-gowns-advice.html?searchResultPosition=8
+**Tar Heels Star Freshman Cole Anthony Entering NBA Draft**\
+`North Carolina freshman point guard Cole Anthony is entering the NBA draft.`\
+https://nytimes.com/aponline/2020/04/17/sports/ncaabasketball/ap-bkc-north-carolina-anthony-nba.html?searchResultPosition=8
 
-**Virginia Sued Over Witness Requirement for Absentee Ballots**\
-`The American Civil Liberties Union on Friday asked a federal court to block Virginia election officials from requiring that absentee voters find a witness to watch them sign their ballots, citing the social distancing guidelines prompted by the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/17/us/ap-us-absentee-ballots-witness-requirement-1st-ld-writethru.html?searchResultPosition=9
+**The Pandemic Work Diary of a Video-Streaming C.E.O.**\
+`From her parents’ home, Vimeo’s Anjali Sud oversees 600 employees and surging demand for feeds of documentaries, yoga classes and funerals.`\
+https://nytimes.com/2020/04/17/business/vimeo-anjali-sud.html?searchResultPosition=9
 
-**The Story Our Cellphones Tell About the Coronavirus**\
-`A team of reporters for The New York Times found that cellphone data can offer insight into human behavior during the coronavirus pandemic.`\
-https://nytimes.com/2020/04/17/reader-center/the-story-our-cellphones-tell-about-the-coronavirus.html?searchResultPosition=10
+**Netflix Adds $50 Million to Relief Fund for Production Workers**\
+`Netflix Inc has increased the amount of money in its coronavirus emergency relief fund by $50 million, bringing the total for displaced production workers to $150 million, a company spokeswoman said on Friday.`\
+https://nytimes.com/reuters/2020/04/17/arts/17reuters-health-coronavirus-netflix.html?searchResultPosition=10
 
