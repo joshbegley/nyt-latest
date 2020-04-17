@@ -1,32 +1,32 @@
+**USADA Adapts in COVID-19 Era With Self-Administered Doping Tests**\
+`The United States Anti-Doping Agency (USADA) says a new self-administered doping test could help protect clean athletes, as the agency tries to ensure no one gets a "free pass" from reduced testing during the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/04/16/sports/olympics/16reuters-health-coronavirus-doping-usada.html?searchResultPosition=3
+
+**Yes, Even Introverts Can Be Lonely Right Now**\
+`Introverts crave connection, too — we just need more boundaries.`\
+https://nytimes.com/2020/04/16/smarter-living/coronavirus-introverts-lonely.html?searchResultPosition=4
+
+**Understanding the Risks for Stillbirth, and Coping if It Happens to You**\
+`Stillbirth is rare but has a huge impact on families. It’s important to know the risk factors and warning signs.`\
+https://nytimes.com/article/stillbirth.html?searchResultPosition=5
+
+**New Jersey Contractor Charged With Theft of N95 Respirator Masks**\
+`A New Jersey electrical contractor has been charged with stealing up to 1,600 respirator masks that were to be donated to a local hospital, the New Jersey attorney general's office said on Thursday.`\
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-usa-new-jersey.html?searchResultPosition=6
+
+**Sheriff: Lawmaker Drove Intoxicated After Kentucky Session**\
+`A Kentucky state representative was arrested early Thursday on accusations of driving while intoxicated only hours after the state House had adjourned, authorities said. `\
+https://nytimes.com/aponline/2020/04/16/us/ap-us-drunken-driving-state-lawmaker.html?searchResultPosition=7
+
 **Fed's Kashkari Says Trump's 'Staged Approach' to Reopen Economy Makes Sense**\
 `President Donald Trump's plan for reopening the U.S. economy following the novel coronavirus pandemic "makes sense" and is consistent with the advice of health experts, Minneapolis Federal Reserve Bank President Neel Kashkari said in an interview with Fox News Channel on Thursday.`\
-https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-usa-kashkari.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/16/us/16reuters-health-coronavirus-usa-kashkari.html?searchResultPosition=8
 
 **Man Charged With Trying to Blow Up Jewish Assisted-Living Home**\
 `Federal prosecutors said that John Michael Rathbun tried to ignite a gas canister near the center in Massachusetts that had been targeted for attack on a white supremacist website.`\
-https://nytimes.com/2020/04/16/us/massachusetts-bomb-jewish-nursing-home.html?searchResultPosition=4
+https://nytimes.com/2020/04/16/us/massachusetts-bomb-jewish-nursing-home.html?searchResultPosition=9
 
 **What’s Going On in This Graph? | April 22, 2020**\
 `How has Covid-19 changed our spending habits?`\
-https://nytimes.com/2020/04/16/learning/whats-going-on-in-this-graph-april-22-2020.html?searchResultPosition=5
-
-**Sacred Venezuelan Stone Back Home After Hiatus in Berlin**\
-`A massive stone considered sacred by an indigenous community in Venezuela returned home Thursday resolving simmering international tension after a German artist shipped it to Berlin over two decades ago as part of a public exhibition symbolizing peace. `\
-https://nytimes.com/aponline/2020/04/16/world/americas/ap-lt-venezuela-germany-returns-stone-1st-ld-writethru.html?searchResultPosition=6
-
-**GM Veach: Chiefs Working on Extension for DT Jones**\
-`The Kansas City Chiefs are working to retain franchise-tagged defensive tackle Chris Jones on a long-term deal.`\
-https://nytimes.com/reuters/2020/04/16/sports/football/16reuters-football-nfl-kc-jones-contract.html?searchResultPosition=7
-
-**Rams GM Snead on Gurley, Matthews Payments: 'They'll Get Their Money'**\
-`General manager Les Snead and the Los Angeles Rams plan to pay former running back Todd Gurley and linebacker Clay Matthews the money they're owed following their release.`\
-https://nytimes.com/reuters/2020/04/16/sports/football/16reuters-football-nfl-lar-gurley-matthews.html?searchResultPosition=8
-
-**U.S. House Speaker Pelosi Says Trump Guidelines 'Vague and Inconsistent'**\
-`U.S. House Speaker Nancy Pelosi on Thursday called President Donald Trump's guidelines for reopening the economy "vague and inconsistent" and said more coronavirus testing needed to be done.`\
-https://nytimes.com/reuters/2020/04/16/business/16reuters-health-coronavirus-usa-pelosi.html?searchResultPosition=9
-
-**How to Introduce Pets to Babies**\
-`Prepare your home and furry friends early on for the arrival of a new family member.`\
-https://nytimes.com/article/introduce-pets-dogs.html?searchResultPosition=10
+https://nytimes.com/2020/04/16/learning/whats-going-on-in-this-graph-april-22-2020.html?searchResultPosition=10
 
