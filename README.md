@@ -1,28 +1,28 @@
-**Paternity Leave Has Long-Lasting Benefits. So Why Don’t More American Men Take It?**\
-`Men who take leave are less likely to get divorced, and have better relationships with their children, research shows.`\
-https://nytimes.com/2020/04/17/parenting/paternity-leave.html?searchResultPosition=4
+**When Gamers Become Parents, Finding Balance Is Next Level**\
+`Video games appeal to all ages, but when do they become a distraction for parents?`\
+https://nytimes.com/2020/04/17/parenting/video-games-parents.html?searchResultPosition=4
 
-**To Save Afghan Peace Deal, U.S. May Scale Back C.I.A. Presence**\
-`Including the C.I.A.’s presence in negotiations with the Taliban is Washington’s latest effort to use what bargaining chips it has left to advance the peace plan.`\
-https://nytimes.com/2020/04/17/world/asia/afghanistan-cia-peace-treaty.html?searchResultPosition=5
+**This Date in Baseball**\
+`April 18`\
+https://nytimes.com/aponline/2020/04/17/sports/baseball/ap-bbo-this-date-in-baseball.html?searchResultPosition=5
 
-**The Scenes of the Crimes: Landfalls, Stadiums and Creepy Blogs**\
-`In her latest crime fiction column, Marilyn Stasio travels to some decidedly strange places.`\
-https://nytimes.com/2020/04/17/books/review/crime-fiction-stasio-john-sandford.html?searchResultPosition=6
+**Tinder for Sperm: Even in the Petri Dish, Looks and Athleticism Are Prized**\
+`What makes one sperm cell — a blob of DNA with a tail — stand out? The selection process is like a microscopic Mr. America contest.`\
+https://nytimes.com/2020/04/17/parenting/fertility/ivf-sperm-selection.html?searchResultPosition=6
 
-**Giving Birth Landed Me in the Psych Ward**\
-`Here’s how to recognize the signs of postpartum psychosis, a rare condition that strikes new moms.`\
-https://nytimes.com/2020/04/17/parenting/postpartum-psychosis-motherhood.html?searchResultPosition=7
+**Why Fertility Awareness Is My Birth Control of Choice**\
+`Watching my cycle like a hawk to prevent pregnancy has been effective for me — and, no, it’s not the rhythm method.`\
+https://nytimes.com/2020/04/17/parenting/fertility/fertility-awareness-methods.html?searchResultPosition=7
 
-**Fernando Miteff, 60, Graffiti Artist With a Generous Spirit, Dies**\
-`He brought graffiti back to the subway, only this time his work would last for only the length of a ride.`\
-https://nytimes.com/2020/04/17/nyregion/fernando-miteff-dead-coronavirus.html?searchResultPosition=8
+**MSF Splits With Sea Rescue Partner, Slams European States**\
+`Aid group Doctors without Borders said Friday it is ending its cooperation with partner SOS Mediterranee amid disagreement over the continued rescue of migrants.`\
+https://nytimes.com/aponline/2020/04/17/world/europe/ap-eu-migrants-mediterranean-rescue-.html?searchResultPosition=8
 
-**When Your Friend Is Pregnant and Depressed**\
-`Destigmatize the idea of getting treatment, then help her find it.`\
-https://nytimes.com/2020/04/17/parenting/pregnancy/prenatal-depression-postpartum-anxiety.html?searchResultPosition=9
+**The Rise of Dad Brands**\
+`Modern fathers can choose manly child care gear over the cutesy diaper bags of yesteryear. The bulletproof inserts are optional.`\
+https://nytimes.com/2020/04/17/parenting/dad-brands.html?searchResultPosition=9
 
-**Planted in Sickness, Derek Jarman’s Garden Still Gives Joy**\
-`The British filmmaker, who died of an AIDS-related illness in 1994, found solace in gardening during a public health crisis.`\
-https://nytimes.com/2020/04/17/movies/derek-jarman-garden-prospect-cottage.html?searchResultPosition=10
+**AP Sportlight**\
+`April 18`\
+https://nytimes.com/aponline/2020/04/17/sports/ap-ap-sportlight.html?searchResultPosition=10
 
