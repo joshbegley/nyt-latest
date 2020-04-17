@@ -1,28 +1,28 @@
+**Trump's Coronavirus Reopening Plan Has Big Holes, Health Experts Say**\
+`The U.S. economy has imploded in the past month amid aggressive measures to slow the spread of the novel coronavirus, with 22 million people filing for unemployment benefits and most factories, stores and other businesses at a virtual standstill.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-usa-reopen.html?searchResultPosition=4
+
+**U.S. CDC Reports 661,712 Coronavirus Cases, 33,049 Deaths**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Friday reported 661,712 cases of new coronavirus, an increase of 29,164 cases from its previous count, and said that the number of deaths had risen by 1,978 to 33,049.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-usa-cdc.html?searchResultPosition=5
+
+**Boeing to Restart Operations at Philadelphia Area Plants Next Week**\
+`Boeing Co said on Friday it would resume operations at production facilities in Philadelphia next week after a two week suspension due to the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/04/17/business/17reuters-health-coronavirus-boeing.html?searchResultPosition=6
+
+**California Records Highest Daily Number of Coronavirus Deaths: Governor**\
+`Ninety-five people in California have died from coronavirus-related disease as of Friday morning, the most in any 24-hour period since the pandemic began, Governor Gavin Newsom said.`\
+https://nytimes.com/reuters/2020/04/17/us/17reuters-health-coronavirus-california.html?searchResultPosition=7
+
 **Libya's East-Based Forces Hit Tripoli Civilian Area, 3 Dead**\
 `Libya's east-based military forces firing into residential neighborhoods of the country's besieged capital with heavy weapons killed three civilians on Friday, including an elderly man and a teenager, according to Tripoli health officials. `\
-https://nytimes.com/aponline/2020/04/17/world/middleeast/ap-ml-libya-.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/04/17/world/middleeast/ap-ml-libya-.html?searchResultPosition=8
 
 **Pat's Run Racing on Virtually During Pandemic**\
 `The calendar reminder caught Joe Thomas off-guard.`\
-https://nytimes.com/aponline/2020/04/17/sports/ap-us-pats-run-going-virtual.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/04/17/sports/ap-us-pats-run-going-virtual.html?searchResultPosition=9
 
 **The Costly Burden of Day Care and Preschool**\
 `A YouGov online survey created in collaboration with NYT Parenting found that some parents are going into debt to pay for child care.`\
-https://nytimes.com/2020/04/17/parenting/day-care-cost-yougov-survey.html?searchResultPosition=6
-
-**How to Clean Your Child’s Stuffed Toys**\
-`Some are more well-loved than others and may need special care.`\
-https://nytimes.com/2020/04/17/parenting/clean-stuffed-animals.html?searchResultPosition=7
-
-**Jane Hull, First Woman Elected Arizona Governor, Dies at 84**\
-`Jane Hull, Arizona's first woman elected governor and part of the “Fab Five” celebrated as the nation's first all-female elected state executive branch leadership group, has died. She was 84. `\
-https://nytimes.com/aponline/2020/04/17/us/ap-us-obit-jane-hull-5th-ld-writethru.html?searchResultPosition=8
-
-**Tunisia President Extends Coronavirus Lockdown: Statement**\
-`Tunisia's president extended on Friday a coronavirus lockdown, with the government to announce later the extension period, a presidency statement said.`\
-https://nytimes.com/reuters/2020/04/17/world/africa/17reuters-health-coronavirus-tunisia.html?searchResultPosition=9
-
-**Bulgaria's Roma Fear Coronavirus Lockdowns Leave Them With No Means to Live**\
-`Scores of Roma people protested in Bulgaria's capital Sofia on Friday over feared job losses due to a stricter application of a coronavirus lockdown in their main neighborhoods in efforts to halt the spread of the viral pandemic.`\
-https://nytimes.com/reuters/2020/04/17/world/europe/17reuters-health-coronavirus-bulgaria-roma.html?searchResultPosition=10
+https://nytimes.com/2020/04/17/parenting/day-care-cost-yougov-survey.html?searchResultPosition=10
 
