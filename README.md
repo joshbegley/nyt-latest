@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/04/18/world/europe/18reuters-health-coronavirus
 https://nytimes.com/reuters/2020/04/18/business/18reuters-health-coronavirus-amazon-com-cameras-exclusive.html?searchResultPosition=7
 
 **Hong Kong Police Arrest Leading Pro-Democracy Figures**\
-`More than a dozen people were arrested on charges of organizing and participating in unauthorized assemblies during last year’s protests, including veteran lawyers and former lawmakers.`\
+`Rarely have so many prominent pro-democracy figures — over a dozen — been arrested at once. They were rounded up on charges of organizing and participating in unauthorized assemblies during last year’s protests.`\
 https://nytimes.com/2020/04/18/world/asia/hong-kong-arrests.html?searchResultPosition=8
 
 **North Korean Lecturers Say There Are Confirmed Coronavirus Cases in the Country: RFA**\
