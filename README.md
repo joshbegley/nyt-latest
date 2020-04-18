@@ -1,28 +1,28 @@
+**Your 18-Month-Old**\
+`No longer a baby, but not quite a child, your 18-month-old exists in a delightful in-between that’s filled with both frequent squeals of laughter and seemingly inexplicable tears.`\
+https://nytimes.com/2020/04/18/parenting/milestones/your-18-month-old.html?searchResultPosition=4
+
+**Your 2-Year-Old**\
+`Two-year-olds have a bad reputation: they’re notoriously headstrong and prone to having temper tantrums in the snack aisle at the grocery store.`\
+https://nytimes.com/2020/04/18/parenting/milestones/your-2-year-old.html?searchResultPosition=5
+
+**Germany May Rein in Coronavirus Debt if Economy Improves: Finance Minister**\
+`Germany may be able to manage the fiscal impact of the coronavirus crisis without exceeding approved debt levels if the economy recovers in the second half of the year, Finance Minister Olaf Scholz said in an interview published on Sunday.`\
+https://nytimes.com/reuters/2020/04/18/world/europe/18reuters-helth-coronavirus-germany-debt.html?searchResultPosition=6
+
+**Your 2-Month-Old**\
+`At 2 months, there’s not much for your baby to do besides eat, sleep, poop and love (and be loved). Expectations should be low, and there are few things to look out for.`\
+https://nytimes.com/2020/04/18/parenting/milestones/your-2-month-old.html?searchResultPosition=7
+
+**Your 3-Month-Old**\
+`Lights, camera, action! At 3 months, your baby is becoming more photo-ready.`\
+https://nytimes.com/2020/04/18/parenting/milestones/3-month-old.html?searchResultPosition=8
+
 **The Trouble With Amber Teething Necklaces**\
 `Experts have warned that this popular jewelry is not only ineffective at soothing a child’s pain, but is also dangerous. So why does the trend persist?`\
-https://nytimes.com/2020/04/18/parenting/amber-teething-necklaces.html?searchResultPosition=4
+https://nytimes.com/2020/04/18/parenting/amber-teething-necklaces.html?searchResultPosition=9
 
 **C.D.C. Labs Were Contaminated, Delaying Coronavirus Testing, Officials Say**\
 `Fallout from the agency’s failed rollout of national coronavirus kits two months ago continues to haunt U.S. efforts to combat the spread of the highly infectious virus.`\
-https://nytimes.com/2020/04/18/health/cdc-coronavirus-lab-contamination-testing.html?searchResultPosition=5
-
-**‘What Kind of Father Will You Be?’**\
-`Growing up without a dad was my first lesson in parenting.`\
-https://nytimes.com/2020/04/18/parenting/what-kind-of-father-will-you-be.html?searchResultPosition=6
-
-**The Right School Can Make All the Difference for a Child With Disabilities**\
-`Transitioning my daughter with Down syndrome into our local elementary school was worth every sleepless night.`\
-https://nytimes.com/2020/04/18/parenting/special-needs-school-choice.html?searchResultPosition=7
-
-**For Parents of Kids With Special Needs, Summer Brings Added Anxiety**\
-`Federal law guarantees support and accommodation for disabled students during the school year. For many families, that’s three months too little.`\
-https://nytimes.com/2020/04/18/parenting/special-needs-summer-camp.html?searchResultPosition=8
-
-**How (and Why) to Become a Foster Parent**\
-`The licensing process – and the training, home visits and court dates – can be intimidating. Here’s what you need to know.`\
-https://nytimes.com/article/foster-care.html?searchResultPosition=9
-
-**If You’re Pregnant and Working, Know Your Rights**\
-`Decades after the passage of a federal law protecting pregnant women in the workplace, pregnancy discrimination persists.`\
-https://nytimes.com/article/pregnancy-discrimination-work.html?searchResultPosition=10
+https://nytimes.com/2020/04/18/health/cdc-coronavirus-lab-contamination-testing.html?searchResultPosition=10
 
