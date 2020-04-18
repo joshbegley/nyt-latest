@@ -2,8 +2,8 @@
 `The daily increase in coronavirus deaths in New York state has dropped under 550 for the first time in over two weeks as hospitalizations continue to decline, Gov.`\
 https://nytimes.com/aponline/2020/04/18/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=4
 
-**New York Coronavirus Daily Death Toll at Two-Week Low**\
-`New York Governor Andrew Cuomo said on Saturday that 540 people died across his state over the last 24 hours due to the novel coronavirus, marking the lowest daily tally in more than two weeks.`\
+**New York Governor Sounds Optimistic Note as Coronavirus Numbers Improve**\
+`New York Governor Andrew Cuomo said on Saturday that a recent drop in hospitalizations and other improving metrics indicated the state may be past the peak of its coronavirus crisis and on a path toward stabilizing the healthcare system.`\
 https://nytimes.com/reuters/2020/04/18/us/18reuters-health-coronavirus-usa-new-york.html?searchResultPosition=5
 
 **MLS to Get Its Kicks With 5-Week Video Game Tournament**\
