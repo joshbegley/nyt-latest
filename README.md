@@ -1,6 +1,6 @@
 **Coronavirus Live Updates: Texas Protests to Call for a Reopening**\
 `Supporters of President Trump plan to participate in the “You Can’t Close America” rally even as Texas’ governor said he was starting a “phased-in” approach to reopen the state economy.`\
-https://nytimes.com/2020/04/18/us/coronavirus-live-updates-texas-protests-to-call-for-a-reopening.html?searchResultPosition=4
+https://nytimes.com/2020/04/18/us/coronavirus-live-updates.html?searchResultPosition=4
 
 **Indonesia Reports 325 New Coronavirus Cases, Total 6,248**\
 `Indonesia reported 325 new coronavirus cases on Saturday, taking the total number of infections in the world's fourth most populous country to 6,248. `\
