@@ -1,28 +1,28 @@
+**The Seas as the Ultimate Coronavirus Isolation? Not. So. Fast.**\
+`Folks who live on boats face off with land they can’t set foot on, staring down logistical hurdles, ethical issues and social media harshness.`\
+https://nytimes.com/2020/04/18/style/coronavirus-yachts.html?searchResultPosition=4
+
+**A New Chapter in Salt Lake City**\
+`Nicholaus Shackleton and Eric Johnson met from afar on a dating app. Eventually Mr. Shackleton moved from Seattle to Utah to be with Mr. Johnson.`\
+https://nytimes.com/2020/04/18/fashion/a-new-chapter-in-salt-lake-city.html?searchResultPosition=5
+
+**An Elopement Closer to Home**\
+`They intended to elope — and elope they did — but ended up canceling their original plans and planning a new wedding within just a few days.`\
+https://nytimes.com/2020/04/18/fashion/weddings/an-elopement-closer-to-home.html?searchResultPosition=6
+
+**'Within 5 or 10 Minutes, I Was in Love’**\
+`The couple matched on Tinder in 2015, had their first date that very evening and were in love before the night was done.`\
+https://nytimes.com/2020/04/18/fashion/weddings/within-5-or-10-minutes-i-was-in-love.html?searchResultPosition=7
+
+**The 10-Foot Theory of Love**\
+`Anique Hameed and Zachary Graham seemed to always be in the vicinity of the other, even if they weren’t aware of it.`\
+https://nytimes.com/2020/04/18/fashion/weddings/the-10-foot-theory-of-love.html?searchResultPosition=8
+
+**A Wedding on the Perfect Date, After 20 Years Together**\
+`Everything came together for the couple, just before the lockdown took place.`\
+https://nytimes.com/2020/04/18/fashion/weddings/a-wedding-on-the-perfect-date-after-20-years-together.html?searchResultPosition=9
+
 **Malaysia Urged to Allow Rohingya Refugee Boats to Land**\
 `Human Rights Watch said Saturday that the coronavirus pandemic doesn't justify Malaysia's turning away of overloaded boats carrying Muslim Rohingya and risking the refugees' lives.`\
-https://nytimes.com/aponline/2020/04/18/world/asia/ap-as-malaysia-rohingya.html?searchResultPosition=4
-
-**Queen Elizabeth Cancels Gun Salutes for Her Birthday: ITV Reporter**\
-`Britain's Queen Elizabeth has asked that there be no gun salutes to mark her birthday on Tuesday, a reporter for ITV News said on Twitter, saying that the monarch did not feel it appropriate in light of the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/04/18/world/europe/18reuters-health-coronavirus-britain-royals.html?searchResultPosition=5
-
-**47 Children From Greek Refugee Camps Arrive in Germany**\
-`A group of 47 unaccompanied children evacuated from refugee camps in Greece landed in Germany on Saturday, German officials said.`\
-https://nytimes.com/aponline/2020/04/18/world/europe/ap-eu-germany-migrants.html?searchResultPosition=6
-
-**Malaysia Reports 54 New Coronavirus Cases, 2 New Deaths**\
-`Malaysian health officials reported 54 new coronavirus cases on Saturday, the lowest daily increase since the government imposed curbs on movement and business on March 18, taking the cumulative total to 5,305.`\
-https://nytimes.com/reuters/2020/04/18/world/asia/18reuters-health-coronavirus-malaysia-cases.html?searchResultPosition=7
-
-**Coronavirus Live Updates: Texas Protests to Call for a Reopening**\
-`Supporters of President Trump plan to participate in the “You Can’t Close America” rally even as Texas’ governor said he was starting a “phased-in” approach to reopen the state economy.`\
-https://nytimes.com/2020/04/18/us/coronavirus-updates.html?searchResultPosition=8
-
-**Indonesia Reports 325 New Coronavirus Cases, Total 6,248**\
-`Indonesia reported 325 new coronavirus cases on Saturday, taking the total number of infections in the world's fourth most populous country to 6,248. `\
-https://nytimes.com/reuters/2020/04/18/world/asia/18reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=9
-
-**Iranian Army Acquires Combat Capable Drones With 930-Mile Range: Defense Minister**\
-`The Iranian armed forces have acquired three bomb-carrying drones with a range of 1,500 kilometers (932 miles), Defense Minister Amir Hatami said on state television on Saturday.`\
-https://nytimes.com/reuters/2020/04/18/world/middleeast/18reuters-iran-security-military-drones.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/18/world/asia/ap-as-malaysia-rohingya.html?searchResultPosition=10
 
