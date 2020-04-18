@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/04/18/world/europe/18reuters-health-coronavirus
 `The weathered old sign that once served as a beacon to travelers along a stretch of Route 66 just outside of New Mexico’s largest city has been taken down and will be preserved as part of an initiative to build a visitor center dedicated to the historic roadway, officials said Friday. `\
 https://nytimes.com/aponline/2020/04/18/business/ap-us-route-66-historic-sign-1st-ld-writethru.html?searchResultPosition=9
 
-**Canada, U.S. Extend Border Restrictions by 30 Days: Justin Trudeau**\
+**Canada, U.S. Extend Border Restrictions by 30 Days**\
 `Canada and the United States have agreed to extend border restrictions for another 30 days, Prime Minister Justin Trudeau said on Saturday.`\
 https://nytimes.com/reuters/2020/04/18/us/18reuters-health-coronavirus-canada.html?searchResultPosition=10
 
