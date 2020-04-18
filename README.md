@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/04/18/world/asia/ap-as-malaysia-rohingya.html?searchResultPosition=4
 
 **Queen Elizabeth Cancels Gun Salutes for Her Birthday: ITV Reporter**\
-`Britain's Queen Elizabeth has asked that there be no gun salutes to mark her birthday on Tuesday, ITV reporter Chris Ship said on Twitter, adding that it would be the first such request had been made in her 68-year reign.`\
+`Britain's Queen Elizabeth has asked that there be no gun salutes to mark her birthday on Tuesday, a reporter for ITV News said on Twitter, saying that the monarch did not feel it appropriate in light of the coronavirus crisis.`\
 https://nytimes.com/reuters/2020/04/18/world/europe/18reuters-health-coronavirus-britain-royals.html?searchResultPosition=5
 
 **47 Children From Greek Refugee Camps Arrive in Germany**\
