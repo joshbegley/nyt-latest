@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/04/18/sports/tennis/18reuters-health-coronaviru
 https://nytimes.com/aponline/2020/04/18/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=7
 
 **New York Governor Sounds Optimistic Note as Coronavirus Numbers Improve**\
-`New York Governor Andrew Cuomo said on Saturday that a recent drop in hospitalizations and other improving metrics indicated the state may be past the peak of its coronavirus crisis and on a path toward stabilizing the healthcare system.`\
+`New York Governor Andrew Cuomo said on Saturday that a recent drop in hospitalizations and other improving metrics indicated the state may be past the peak of its coronavirus crisis and on a path toward stabilizing its battered healthcare system.`\
 https://nytimes.com/reuters/2020/04/18/us/18reuters-health-coronavirus-usa-new-york.html?searchResultPosition=8
 
 **MLS to Get Its Kicks With 5-Week Video Game Tournament**\
