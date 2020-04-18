@@ -1,10 +1,10 @@
-**Coronavirus Live Updates: Iran Lifts Lockdown on its Capital, Defying Warnings**\
+**Coronavirus Live Updates: Iran Lifts Lockdown on Its Capital, Defying Warnings**\
 `A judge ordered Mexico to extend virus-related protections to migrants. The first Covid-19 death in Syria’s Kurdish region took its leaders by surprise.`\
 https://nytimes.com/2020/04/18/world/coronavirus-news.html?searchResultPosition=4
 
 **Doctor Charged With Fraud After U.S. Says He Sold Treatment as ‘100 Percent’ Cure for Covid-19**\
 `A lawyer for Dr. Jennings Ryan Staley of California said his client believed he was helping people.`\
-https://nytimes.com/2020/04/17/us/Coronavirus-treatment-pack-Jennings-Ryan-Staley.html?searchResultPosition=5
+https://nytimes.com/2020/04/17/us/coronavirus-treatment-pack-jennings-ryan-staley.html?searchResultPosition=5
 
 **Virginia Juvenile Detention Center New Coronavirus Hotspot**\
 `Coronavirus has erupted inside a juvenile detention center in Virginia with 25 kids testing positive, accounting for a quarter of all cases reported at youth facilities nationwide, officials said Friday.`\
