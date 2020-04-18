@@ -1,28 +1,28 @@
-**On This Day: Born April 19 1970: Kelly Holmes, British Middle Distance Runner**\
-`Six days in August 2004 redefined the life of British middle distance runner Kelly Holmes but only in the aftermath of her double gold-medal winning display at the Athens Olympics did the price she paid to scale such athletic heights truly emerge.`\
-https://nytimes.com/reuters/2020/04/18/world/europe/18reuters-sport-anniversary-holmes.html?searchResultPosition=4
+**Iranian Army Acquires Combat Capable Drones With 930-Mile Range: Defense Minister**\
+`The Iranian armed forces have acquired three bomb-carrying drones with a range of 1,500 kilometers (932 miles), Defense Minister Amir Hatami said on state television on Saturday.`\
+https://nytimes.com/reuters/2020/04/18/world/middleeast/18reuters-iran-security-military-drones.html?searchResultPosition=4
 
-**Africa Deaths Above 1,000, Including Nigerian Chief of Staff**\
-`Africa now has more than 1,000 deaths from COVID-19, the Africa Centers for Disease Control and Prevention said Saturday, while Nigeria said the president's chief of staff had died.`\
-https://nytimes.com/aponline/2020/04/18/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=5
+**Doctors Criticize UK Government Over Coronavirus Protection Shortages**\
+`Doctors and health workers criticized the British government on Saturday for suggesting that gowns used to protect them while treating coronavirus patients could be re-used, as supplies run low across the country.`\
+https://nytimes.com/reuters/2020/04/18/world/europe/18reuters-health-coronavirus-britain.html?searchResultPosition=5
 
-**Russia Says Its Coronavirus Death Toll Rises to 313**\
-`Russia said on Saturday its death toll from the novel coronavirus had risen to 313, an overnight increase of 40, as it posted a new record daily jump in new cases.`\
-https://nytimes.com/reuters/2020/04/18/world/europe/18reuters-health-coronavirus-russia-cases.html?searchResultPosition=6
+**‘All of It Is Happening All at Once’: When Congress Works From Home.**\
+`With the Capitol shuttered for the foreseeable future, senators and representatives are struggling, with the rest of the country, to adapt to virtual working.`\
+https://nytimes.com/2020/04/18/us/politics/coronavirus-congress-remote-work.html?searchResultPosition=6
 
-**U.S. Judge Blocks Twitter's Bid to Reveal Government Surveillance Requests**\
-`Twitter Inc will not be able to reveal surveillance requests it received from the U.S. government after a federal judge accepted government arguments that this was likely to harm national security after a near six-year long legal battle.`\
-https://nytimes.com/reuters/2020/04/18/technology/18reuters-usa-twitter-lawsuit.html?searchResultPosition=7
+**6 Lives Stolen on New York City’s 2 Deadliest Days**\
+`A grocer, a nurse and a church deacon were among the 1,550 New Yorkers who died in the coronavirus outbreak’s bleakest span so far.`\
+https://nytimes.com/2020/04/18/climate/coronavirus-deaths-nyc.html?searchResultPosition=7
 
-**Taiwan to Quarantine 700 Navy Sailors After Virus Outbreak**\
-`Taiwan will put 700 navy sailors into quarantine after three cases of the new coronavirus were confirmed among sailors who had been on a goodwill mission to the Pacific island state of Palau, the government said on Saturday.`\
-https://nytimes.com/reuters/2020/04/18/world/asia/18reuters-health-coronavirus-taiwan.html?searchResultPosition=8
+**10 African Countries Have No Ventilators. That’s Only Part of the Problem.**\
+`Basic supplies like oxygen and soap are needed first to slow the spread of the coronavirus.`\
+https://nytimes.com/2020/04/18/world/africa/africa-coronavirus-ventilators.html?searchResultPosition=8
 
-**Philippines Records 10 New Coronavirus Deaths, 209 More Cases**\
-`The Philippines' health ministry on Saturday reported 10 new coronavirus deaths and 209 additional infections.`\
-https://nytimes.com/reuters/2020/04/18/world/asia/18reuters-health-coronavirus-philippines-cases.html?searchResultPosition=9
+**Vote for Biden? Sanders Supporters Say It’s ‘Up in the Air’**\
+`In interviews, some of Bernie Sanders’s primary voters saw Joe Biden as a weaker candidate than Hillary Clinton. Others didn’t think he could win. Nearly all were unenthusiastic.`\
+https://nytimes.com/2020/04/18/us/politics/bernie-sanders-voters-biden.html?searchResultPosition=9
 
-**Austria Shuts Down Last Coal-Fired Power Plant**\
-`Austria has shut down its last coal-fired power plant as part of a plan to end the use of fossil fuels for energy production by 2030.`\
-https://nytimes.com/aponline/2020/04/18/business/ap-eu-austria-coal-shutdown.html?searchResultPosition=10
+**As Amazon Rises, So Does the Opposition**\
+`Stacy Mitchell knew that taking on a trillion-dollar company would be a lopsided fight. But the pandemic has not only made Amazon more essential. It has also made it vulnerable.`\
+https://nytimes.com/2020/04/18/technology/athena-mitchell-amazon.html?searchResultPosition=10
 
