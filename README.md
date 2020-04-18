@@ -1,28 +1,28 @@
+**Latest on the Spread of the Coronavirus Around the World**\
+`Reported cases of the coronavirus have crossed 2.23 million globally and 151,657 people have died, according to a Reuters tally as of 0200 GMT on Saturday. `\
+https://nytimes.com/reuters/2020/04/18/world/asia/18reuters-health-coronavirus-latest-factbox.html?searchResultPosition=4
+
 **Beer May Lose Its Fizz as CO2 Supplies Go Flat During Pandemic**\
 `Dwindling supplies of carbon dioxide from ethanol plants is sparking concern about shortages of beer, soda and seltzer water - essentials for many quarantined Americans.`\
-https://nytimes.com/reuters/2020/04/18/business/18reuters-health-coronavirus-ethanol-beer.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/18/business/18reuters-health-coronavirus-ethanol-beer.html?searchResultPosition=5
 
 **The Seas as the Ultimate Coronavirus Isolation? Not. So. Fast.**\
 `Folks who live on boats face off with land they can’t set foot on, staring down logistical hurdles, ethical issues and social media harshness.`\
-https://nytimes.com/2020/04/18/style/coronavirus-yachts.html?searchResultPosition=5
+https://nytimes.com/2020/04/18/style/coronavirus-yachts.html?searchResultPosition=6
 
 **A New Chapter in Salt Lake City**\
 `Nicholaus Shackleton and Eric Johnson met from afar on a dating app. Eventually Mr. Shackleton moved from Seattle to Utah to be with Mr. Johnson.`\
-https://nytimes.com/2020/04/18/fashion/a-new-chapter-in-salt-lake-city.html?searchResultPosition=6
+https://nytimes.com/2020/04/18/fashion/a-new-chapter-in-salt-lake-city.html?searchResultPosition=7
 
 **An Elopement Closer to Home**\
 `They intended to elope — and elope they did — but ended up canceling their original plans and planning a new wedding within just a few days.`\
-https://nytimes.com/2020/04/18/fashion/weddings/an-elopement-closer-to-home.html?searchResultPosition=7
+https://nytimes.com/2020/04/18/fashion/weddings/an-elopement-closer-to-home.html?searchResultPosition=8
 
 **'Within 5 or 10 Minutes, I Was in Love’**\
 `The couple matched on Tinder in 2015, had their first date that very evening and were in love before the night was done.`\
-https://nytimes.com/2020/04/18/fashion/weddings/within-5-or-10-minutes-i-was-in-love.html?searchResultPosition=8
+https://nytimes.com/2020/04/18/fashion/weddings/within-5-or-10-minutes-i-was-in-love.html?searchResultPosition=9
 
 **The 10-Foot Theory of Love**\
 `Anique Hameed and Zachary Graham seemed to always be in the vicinity of the other, even if they weren’t aware of it.`\
-https://nytimes.com/2020/04/18/fashion/weddings/the-10-foot-theory-of-love.html?searchResultPosition=9
-
-**A Wedding on the Perfect Date, After 20 Years Together**\
-`Everything came together for the couple, just before the lockdown took place.`\
-https://nytimes.com/2020/04/18/fashion/weddings/a-wedding-on-the-perfect-date-after-20-years-together.html?searchResultPosition=10
+https://nytimes.com/2020/04/18/fashion/weddings/the-10-foot-theory-of-love.html?searchResultPosition=10
 
