@@ -1,28 +1,28 @@
+**A Father’s Impossible Promise**\
+`‘It’s not always like this,’ I told my newborn son. But I don’t know what he will face in his lifetime.`\
+https://nytimes.com/2020/04/18/opinion/coronavirus-parenting-war.html?searchResultPosition=4
+
+**Louisville Adjusts to New Date and Season for Kentucky Derby**\
+`Postponing the Kentucky Derby was jarring enough for a city that draws much of its identity from hosting horse racing’s marquee event.`\
+https://nytimes.com/aponline/2020/04/18/sports/ap-rac-deserted-icons-kentucky-derby.html?searchResultPosition=5
+
+**With No School, Calls Drop but Child Abuse Hasn't Amid Virus**\
+`With schools closed and teachers unable to report suspected cases of abuse and neglect, child welfare agencies have lost some of their best eyes and ears during a stressful time for families who have lost jobs and are locked down together during the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/04/18/us/ap-us-virus-outbreak-child-abuse-hotlines.html?searchResultPosition=6
+
+**Former Treasury Secretary Paul O'Neill Dies at Age 84.**\
+`Paul O’Neill, a former Treasury secretary who broke with George W. Bush over tax policy and then produced a book critical of the administration, died Saturday. He was 84.`\
+https://nytimes.com/aponline/2020/04/18/business/bc-us-obit-paul-oneill.html?searchResultPosition=7
+
+**AP Sportlight**\
+`April 19`\
+https://nytimes.com/aponline/2020/04/18/sports/ap-ap-sportlight.html?searchResultPosition=8
+
 **About 25 People Killed in Flooding in Eastern Congo**\
 `A local official says about 25 people have been killed by flooding in eastern Congo.`\
-https://nytimes.com/aponline/2020/04/18/world/africa/ap-af-congo-flooding.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/04/18/world/africa/ap-af-congo-flooding.html?searchResultPosition=9
 
 **This Date in Baseball**\
 `April 19`\
-https://nytimes.com/aponline/2020/04/18/sports/baseball/ap-bbo-this-date-in-baseball.html?searchResultPosition=5
-
-**Nigerian President's Chief of Staff Dies From Coronavirus**\
-`The Nigerian president's chief of staff died on Friday from COVID-19, the presidency said on Saturday, making him the most high profile person in the country to die in the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/04/18/world/africa/18reuters-health-coronavirus-nigeria.html?searchResultPosition=6
-
-**Bangladesh Garment Workers Pack Streets to Demand Wages During Coronavirus Lockdown**\
-`Hundreds of workers poured onto the streets of Bangladesh's port city of Chittagong on Saturday, flouting social distancing rules to demand work and wages during the coronavirus shutdown.`\
-https://nytimes.com/reuters/2020/04/18/world/asia/18reuters-health-coronavirus-southasia.html?searchResultPosition=7
-
-**Texas Protest Reflects Spreading Frustration With Coronavirus Closings**\
-`The “You Can’t Close America” rally at the Capitol in Austin, planned for Saturday afternoon, follows demonstrations in states from Ohio to California.`\
-https://nytimes.com/2020/04/18/us/texas-protests-stay-at-home.html?searchResultPosition=8
-
-**3 Indian Soldiers Killed, 2 Wounded in Kashmir Rebel Attack**\
-`Rebels fighting against Indian rule in disputed Kashmir attacked a paramilitary post on Saturday, killing three soldiers and wounding two others, an Indian official said. `\
-https://nytimes.com/aponline/2020/04/18/world/asia/ap-as-kashmir-fighting.html?searchResultPosition=9
-
-**The Coronavirus Has Put Tennis on Hold. Will Its Spirit Play On?**\
-`Covid-19 has dealt the sport a tough blow. But how will it impact the ideals that tennis has come to embody?`\
-https://nytimes.com/2020/04/18/opinion/tennis-coronavirus.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/18/sports/baseball/ap-bbo-this-date-in-baseball.html?searchResultPosition=10
 
