@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/04/18/world/americas/18reuters-health-coronavir
 https://nytimes.com/reuters/2020/04/18/world/asia/18reuters-health-coronavirus-southkorea.html?searchResultPosition=4
 
 **Federal Judge Blocks Kansas Limits on Religious Gatherings**\
-`A federal judge on Saturday blocked Kansas from limiting attendance at in-person religious worship services or activities to 10 people or fewer to check the spread of the coronavirus, signaling that he believes there’s a good chance the policy violates religious freedom and free speech rights.`\
+`A federal judge on Saturday blocked Kansas from limiting attendance at in-person religious worship services or activities to 10 people or fewer to check the spread of the coronavirus, signaling that he believes that it's likely that the policy violates religious freedom and free speech rights.`\
 https://nytimes.com/aponline/2020/04/18/us/ap-us-virus-outbreak-kansas-1st-ld-writethru.html?searchResultPosition=5
 
 **2 Georgia High Schoolers Posted Racist Video, Officials Say**\
