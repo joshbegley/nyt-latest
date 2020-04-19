@@ -1,32 +1,32 @@
+**6 Things That Drive Day Care Workers Crazy**\
+`Here’s what you can do to make a caregiver’s life easier, and improve things for your family.`\
+https://nytimes.com/2020/04/19/parenting/day-care-rules.html?searchResultPosition=3
+
+**Fighting Vaccine Hesitancy, One Parent at a Time**\
+`Programs aim to counter anti-vaccine sentiments with parent-to-parent connections.`\
+https://nytimes.com/2020/04/19/parenting/measles-vaccine-hesitancy.html?searchResultPosition=4
+
+**AP FACT CHECK: Trump Falsely Blames Governors for Virus Test**\
+`President Donald Trump is wrongly casting blame on governors and the Obama administration for shortages in coronavirus testing and declaring victory over what he calls relatively low death rates in the U.S. That's too soon to tell.`\
+https://nytimes.com/aponline/2020/04/19/business/ap-us-virus-outbreak-trump-fact-check.html?searchResultPosition=5
+
+**The Latest on the Children Affected by the Crisis at the Southern Border**\
+`Recent coverage of the youngest detainees shows how dire the situation has become.`\
+https://nytimes.com/2020/04/19/parenting/migrant-children-detained.html?searchResultPosition=6
+
+**What Are Reggio Emilia Schools?**\
+`The educational philosophy born out of the ashes of World War II lacks the strictures of the typical North American classroom`\
+https://nytimes.com/2020/04/19/parenting/reggio-emilia-preschool.html?searchResultPosition=7
+
+**What Is the Waldorf School Method?**\
+`The system of private schools is based on a philosophy that prioritizes the arts and the imagination.`\
+https://nytimes.com/2020/04/19/parenting/waldorf-school.html?searchResultPosition=8
+
 **What to Know About Montessori Preschools**\
 `They’re popular, but how do they differ from conventional nursery schools?`\
-https://nytimes.com/2020/04/19/parenting/montessori-preschools.html?searchResultPosition=3
+https://nytimes.com/2020/04/19/parenting/montessori-preschools.html?searchResultPosition=9
 
 **Protesting for the Right to Catch the Coronavirus**\
 `The reopen America protests are the logical conclusion of a twisted liberty movement.`\
-https://nytimes.com/2020/04/19/opinion/coronavirus-trump-protests.html?searchResultPosition=4
-
-**Impeachment Taught Trump All the Wrong Lessons**\
-`He thinks he can get away with anything.`\
-https://nytimes.com/2020/04/19/opinion/trump-impeachment-coronavirus.html?searchResultPosition=5
-
-**Google and Facebook Must Pay for Local Journalism**\
-`The U.S. should emulate the French government’s resolve to fight for the news media industry.`\
-https://nytimes.com/2020/04/19/opinion/coronavirus-newspapers-journalism.html?searchResultPosition=6
-
-**Can Climbing Trees Replace Preparing for Tests?**\
-`Nature-based preschools are becoming increasingly popular. But what are they, and are they effective?`\
-https://nytimes.com/2020/04/19/parenting/forest-school.html?searchResultPosition=7
-
-**What Does It Really Mean to Be 6 Weeks Pregnant?**\
-`So-called ‘heartbeat’ legislation restricting abortion as early as six weeks into pregnancy has started a conversation about when most women actually learn that they’re pregnant.`\
-https://nytimes.com/2020/04/19/parenting/abortion-six-weeks-pregnant.html?searchResultPosition=8
-
-**This Flu Season Is Looking Rough for Kids**\
-`Here’s what parents should know.`\
-https://nytimes.com/2020/04/19/parenting/flu-season-children.html?searchResultPosition=9
-
-**From Hopkinton to Boston, Marathon Absence Is Seen and Felt**\
-`“It All Starts Here.”`\
-https://nytimes.com/aponline/2020/04/19/sports/ap-ath-missing-marathon.html?searchResultPosition=10
+https://nytimes.com/2020/04/19/opinion/coronavirus-trump-protests.html?searchResultPosition=10
 
