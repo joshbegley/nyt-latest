@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/04/19/world/americas/19reuters-heatlh-coronavir
 `Wayne Gretzky sees a lot of himself in Alex Ovechkin, from the smile on his face each time he steps on the ice to his passion for scoring goals.`\
 https://nytimes.com/aponline/2020/04/19/sports/hockey/ap-hkn-gretzky-and-ovechkin.html?searchResultPosition=5
 
-**Dylan's 'Times They Are A-Changin' Lyrics for Sale for $2.2 Million**\
+**Dylan's 'Times They Are A-Changin'' Lyrics for Sale for $2.2 Million**\
 `Bob Dylan's handwritten lyrics to his 1960s classic "The Times They Are A-Changin'" are going up for sale with a $2.2 million asking price in what could mark a world record for rock lyrics.`\
 https://nytimes.com/reuters/2020/04/19/arts/19reuters-music-bob-dylan-lyrics.html?searchResultPosition=6
 
