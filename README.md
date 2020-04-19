@@ -27,6 +27,6 @@ https://nytimes.com/reuters/2020/04/19/world/europe/19reuters-health-coronavirus
 https://nytimes.com/reuters/2020/04/19/world/asia/19reuters-health-coronavirus-malaysia.html?searchResultPosition=9
 
 **Coronavirus Live Updates: Governors in U.S. Hot Spots Plea for More Testing**\
-`New York and New Jersey, the epicenter of the outbreak in the United States, say they can’t reopen their economies without wider tests for the virus.`\
+`New York and New Jersey say they can’t reopen their economies without wider tests for the virus. School cafeterias are essentially serving as community food banks for families in need.`\
 https://nytimes.com/2020/04/19/us/coronavirus-updates.html?searchResultPosition=10
 
