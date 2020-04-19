@@ -18,8 +18,8 @@ https://nytimes.com/aponline/2020/04/18/sports/baseball/ap-bbo-obit-winkles-2nd-
 `Mexican Deputy Health Minister Hugo Lopez-Gatell said on Saturday that Mexico has registered 7,497 confirmed coronavirus cases and 650 deaths.`\
 https://nytimes.com/reuters/2020/04/18/world/americas/18reuters-health-coronavirus-mexico-tally.html?searchResultPosition=7
 
-**Navajo Nation Orders Masks Be Worn in Public on Reservation**\
-`The Navajo Nation is ordering all people on the tribe's sprawling reservation to wear protective masks when out in public to help fight the spread of the coronavirus.`\
+**Navajo Nation Orders Protective Masks Worn on Reservation**\
+`The Navajo Nation is ordering all people on the tribe's vast reservation to wear protective masks when out in public to help fight the spread of the coronavirus.`\
 https://nytimes.com/aponline/2020/04/18/us/ap-us-virus-outbreak-navajo-nation-2nd-ld-writethru.html?searchResultPosition=8
 
 **Patrick McEnroe Praises New York Drive-Through Coronavirus Testing**\
