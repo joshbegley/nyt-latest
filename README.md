@@ -1,32 +1,32 @@
+**As Coronavirus Cases Rise in U.S. Hot Spots, Governors Tell Trump It's Too Soon to Reopen America**\
+`Governors in U.S. states hardest hit by the novel coronavirus sparred with President Donald Trump over his claims they have enough tests and should quickly reopen their economies as more protests are planned over the extension of stay-at-home orders.`\
+https://nytimes.com/reuters/2020/04/19/us/19reuters-health-coronavirus-usa.html?searchResultPosition=3
+
+**Coronavirus Accelerates Decline of Slumping Coal Industry**\
+`Travis Deti has been working the phones to try to get government support for the U.S. coal industry during the coronavirus pandemic. Between recent calls, the head of the Wyoming Mining Association tried to unclog a sink at home.`\
+https://nytimes.com/aponline/2020/04/19/business/bc-us-virus-outbreak-slumping-coal.html?searchResultPosition=4
+
+**Beyond ‘Trolls’ and ‘Frozen’: What Are Our Kids Listening To?**\
+`Children’s films lean heavily on pop, but the elementary school set has access to a whole universe of music now.`\
+https://nytimes.com/2020/04/19/arts/music/popcast-kids-music.html?searchResultPosition=5
+
 **North Korea Denies That Kim Sent Trump 'a Nice Note'**\
 `North Korea on Sunday dismissed as “ungrounded” President Donald Trump’s comment that he recently received “a nice note” from the North's leader, Kim Jong Un.`\
-https://nytimes.com/aponline/2020/04/19/world/asia/ap-as-north-korea-us.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/04/19/world/asia/ap-as-north-korea-us.html?searchResultPosition=6
 
 **Vietnam Protests Beijing's Expansion in Disputed South China Sea**\
 `Vietnam protested on Sunday at China saying it had established two administrative units on islands in the South China Sea, in Beijing's latest move to demonstrate its assertiveness in the disputed waters.`\
-https://nytimes.com/reuters/2020/04/19/world/asia/19reuters-vietnam-china-southchinasea.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/19/world/asia/19reuters-vietnam-china-southchinasea.html?searchResultPosition=7
 
 **Canadian Coronavirus Deaths Rise by Almost 12% in a Day: Official Data**\
 `The total number of people killed by the coronavirus in Canada rose by just under 12% to 1,506 in a day, official data posted by the public health agency showed on Sunday.`\
-https://nytimes.com/reuters/2020/04/19/world/americas/19reuters-health-coronavirus-canada.html?searchResultPosition=5
-
-**Facebook to Introduce an App for Gaming**\
-`Video games are surging in popularity in the pandemic. So Facebook is rolling out an app designed for creating and watching live gameplay.`\
-https://nytimes.com/2020/04/19/technology/facebook-app-gaming.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/04/19/world/americas/19reuters-health-coronavirus-canada.html?searchResultPosition=8
 
 **Bernie Sanders: The Foundations of American Society Are Failing Us**\
 `The unequal impact of the pandemic and economic collapse are forcing us to rethink the assumptions of our system.`\
-https://nytimes.com/2020/04/19/opinion/coronavirus-inequality-bernie-sanders.html?searchResultPosition=7
+https://nytimes.com/2020/04/19/opinion/coronavirus-inequality-bernie-sanders.html?searchResultPosition=9
 
-**Does Gavin Newsom Have the Grit to Take On the Coronavirus?**\
-`The governor has delivered fanfare. Now he must lead the state through the calamities of the pandemic.`\
-https://nytimes.com/2020/04/19/opinion/gavin-newsom-california-coronavirus.html?searchResultPosition=8
-
-**Books, Dance Lessons, ‘Sopranos’ — Freebies Abound Online**\
-`We might not be totally free these days, but there’s a lot out there that is.`\
-https://nytimes.com/aponline/2020/04/19/business/ap-us-virus-outbreak-free-stuff.html?searchResultPosition=9
-
-**‘My Last Stand’: In South Korea, a Protester’s Lone Fight Against Samsung**\
-`Kim Yong-hee has been ​staging sit-ins and hunger strikes at the top of an 82-foot-tall traffic camera tower overlooking the busiest intersection in Seoul — for more than 300 days and counting.`\
-https://nytimes.com/2020/04/19/world/asia/samsung-tower-protest.html?searchResultPosition=10
+**Facebook to Introduce an App for Gaming**\
+`Video games are surging in popularity in the pandemic. So Facebook is rolling out an app designed for creating and watching live gameplay.`\
+https://nytimes.com/2020/04/19/technology/facebook-app-gaming.html?searchResultPosition=10
 
