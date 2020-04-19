@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/04/19/world/americas/19reuters-health-coronavir
 https://nytimes.com/aponline/2020/04/19/world/middleeast/ap-ml-virus-outbreak-iraq-reuters.html?searchResultPosition=4
 
 **Your Monday Briefing**\
-`Let us help you start your day.`\
+`India's zealous lockdown, virus cases in the Afghan presidential palace,  Hong Kong protests.`\
 https://nytimes.com/2020/04/19/briefing/india-lockdown-virus-Afghanistan-palace-Hong-Kong-protests.html?searchResultPosition=5
 
 **Byron Wins 2nd NASCAR Virtual Race in a Drama-Free Event**\
