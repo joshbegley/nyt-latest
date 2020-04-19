@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/04/19/us/ap-us-dallas-bus-hijacked-gunman-kill
 https://nytimes.com/reuters/2020/04/19/world/americas/19reuters-health-coronavirus-honduras-curfew.html?searchResultPosition=8
 
 **Iraq Lifts Reuters News Agency Suspension Over Virus Report**\
-`By The Associated Press`\
+`Iraq will allow the Reuters news agency to go back to work after its license was suspended earlier this month over a report that the government was underreporting coronavirus cases, the news agency said Sunday. `\
 https://nytimes.com/aponline/2020/04/19/world/middleeast/ap-ml-virus-outbreak-iraq-reuters.html?searchResultPosition=9
 
 **Your Monday Briefing**\
