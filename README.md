@@ -1,4 +1,4 @@
-**The Latest: McDonalds to Suspend Operations in Singapore**\
+**The Latest: Dirty Masks Cause Complaints to Japan Government**\
 `The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
 https://nytimes.com/aponline/2020/04/19/business/ap-virus-outbreak-the-latest.html?searchResultPosition=3
 
