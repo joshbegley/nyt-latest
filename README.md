@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/04/19/world/europe/19reuters-health-coronavirus
 https://nytimes.com/aponline/2020/04/19/world/europe/ap-eu-virus-outbreak-france-nursing-home-tests.html?searchResultPosition=5
 
 **'Captain Tom', 99, Raises More Than $31 Million for UK Carers**\
-`Captain Tom Moore, a 99-year-old British war veteran, has now raised more than 25 million pounds ($31.3 million) for the health service by walking 100 laps of his garden.`\
+`Captain Tom Moore, a 99-year-old British war veteran described by Prince Harry as "utterly amazing", has now raised more than 25 million pounds ($31.3 million) for the health service by walking 100 laps of his garden.	`\
 https://nytimes.com/reuters/2020/04/19/world/europe/19reuters-health-coronavirus-britain-veteran.html?searchResultPosition=6
 
 **South Korea Relaxes Some Social Distancing Rules as New Virus Cases Fall**\
