@@ -10,7 +10,7 @@ https://nytimes.com/2020/04/18/todayspaper/quotation-of-the-day-meat-producers-a
 `A gunman shot and killed a Texas police officer and wounded two others Saturday after they responded to a call at an apartment complex, authorities said. `\
 https://nytimes.com/aponline/2020/04/18/us/ap-us-officers-shot-texas.html?searchResultPosition=5
 
-**Asia Today: S Korea Reports Single-Digit Rise in Infections**\
+**Asia Today: Fewer Sick in S Korea, Infections Rise in Japan**\
 `South Korea on Sunday reported eight more cases of the coronavirus, the first time a daily increase has dropped to a single digit in about two months.`\
 https://nytimes.com/aponline/2020/04/18/business/ap-as-virus-outbreak-asia.html?searchResultPosition=6
 
