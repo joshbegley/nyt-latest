@@ -2,7 +2,7 @@
 `An Ebola flare-up in eastern Congo may spread again after a patient escaped from a clinic, complicating efforts to contain the disease that has infected six people since last week, the World Health Organization said on Sunday.`\
 https://nytimes.com/reuters/2020/04/19/world/africa/19reuters-health-ebola-congo.html?searchResultPosition=3
 
-**Hollywood’s Backstage Creatives Try Soldiering On**\
+**Hollywood’s Backstage Creatives Try to Soldier On**\
 `Production has ground to a halt, leaving a vast number of people without work and others trying to figure out how to finish projects remotely.`\
 https://nytimes.com/2020/04/19/business/media/coronavirus-hollywood-production-jobs.html?searchResultPosition=4
 
