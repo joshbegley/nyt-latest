@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/04/18/world/asia/18reuters-hongkong-protests-ar
 `China's National Health Commission reported 16 new confirmed coronavirus cases on April 18, the lowest number since March 17 and down from 27 a day earlier, according to data published on Sunday.`\
 https://nytimes.com/reuters/2020/04/18/world/asia/18reuters-health-coronavirus-china.html?searchResultPosition=7
 
-**Guatemala Says 19 More Deported Migrants Test Positive for Coronavirus**\
-`Guatemalan President Alejandro Giammattei said on Saturday that 19 more Guatemalans deported from the United States to the Central American nation have tested positive for coronavirus.`\
+**Guatemala Says 32 on Deportation Flight From U.S. Infected With Coronavirus**\
+`Thirty-two Guatemalan migrants on a deportation flight from the United States earlier this week have now tested positive for the coronavirus, according to the Central American nation's health ministry.`\
 https://nytimes.com/reuters/2020/04/18/world/americas/18reuters-health-coronavirus-guatemala-deportees.html?searchResultPosition=8
 
 **South Korea's New Coronavirus Cases Fall to Single Digits for First Time in Two Months**\
