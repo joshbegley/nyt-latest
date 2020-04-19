@@ -7,7 +7,7 @@ https://nytimes.com/2020/04/19/arts/peter-beard-dead.html?searchResultPosition=3
 https://nytimes.com/reuters/2020/04/19/sports/tennis/19reuters-health-coronavirus-tennis-djokovic.html?searchResultPosition=4
 
 **Crude Oil Futures Drop at Open of Asian Trading**\
-`Crude oil futures fell on Sunday evening in CME Group trading, continuing last week's weakness on the back of sliding demand due to the COVID-19 disease that has killed more than 159,000 worldwide.`\
+`Crude oil futures fell in electronic trading on Sunday evening, with U.S. futures touching levels not seen since November 2001, extending last week's weakness on the back of sliding demand because of the COVID-19 pandemic that has killed more than 159,000 people worldwide.`\
 https://nytimes.com/reuters/2020/04/19/business/19reuters-global-oil.html?searchResultPosition=5
 
 **Brazil's Bolsonaro Attacks Coronavirus Lockdowns as Supporters Take to Streets**\
