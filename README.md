@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/04/19/world/europe/19reuters-health-coronavirus
 https://nytimes.com/reuters/2020/04/19/sports/tennis/19reuters-health-coronavirus-tennis.html?searchResultPosition=4
 
 **Glance at Plans Sports Leagues Have Made to Resume Play**\
-`Bull Riding: Professional Bull Riders returning to action next weekend in “closed, made-for-TV event” in Oklahoma. `\
+`The Associated Press canvassed major sports around the world asking what the plan was to return to action. Most leagues gave aggressive and optimistic plans to start play within weeks, while fall sports said they plan to start on schedule. `\
 https://nytimes.com/aponline/2020/04/19/sports/ap-virus-outbreak-sports-glance.html?searchResultPosition=5
 
 **The Latest: Top Racehorse Trainer Recovering From Virus**\
