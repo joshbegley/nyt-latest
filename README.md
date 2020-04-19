@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/04/19/world/middleeast/19reuters-health-coronav
 https://nytimes.com/reuters/2020/04/19/world/asia/19reuters-health-coronavirus-philippines-cases.html?searchResultPosition=6
 
 **Saudi Top Religious Authority Recommends Home Prayers in Ramadan Amid Coronavirus**\
-`Saudi Arabia's highest religious body, the Council of Senior Scholars, urged Muslims worldwide to pray at home during Ramadan if their countries require social distancing to combat coronavirus, state news agency SPA reported on Sunday.`\
+`Saudi Arabia's highest religious body, the Council of Senior Scholars, urged Muslims worldwide to pray at home during Ramadan if their countries require social distancing to curb the spread of the coronavirus, state news agency SPA reported on Sunday.`\
 https://nytimes.com/reuters/2020/04/19/world/middleeast/19reuters-health-cornavirus-saudi-ramadan.html?searchResultPosition=7
 
 **Russia Reports Record Daily Rise in Coronavirus Cases**\
