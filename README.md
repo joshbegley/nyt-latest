@@ -1,32 +1,32 @@
+**Multiple Victims in Nova Scotia Shooting, Police Say**\
+`The authorities identified the gunman as Gabriel Wortman, 51, who may be driving a vehicle that resembles a Royal Canadian Mounted Police patrol.`\
+https://nytimes.com/2020/04/19/world/canada/nova-scotia-shooting-gabriel-wortman.html?searchResultPosition=3
+
+**Amazon to Extend French Warehouse Closures After Union Dispute**\
+`Amazon will keep its six warehouses in France closed until at least April 22 after a stand-off with unions over sanitary conditions amid the coronavirus outbreak, it said on Sunday.`\
+https://nytimes.com/reuters/2020/04/19/business/19reuters-health-coronavirus-amazon-france.html?searchResultPosition=4
+
+**Nobuhiko Obayashi, Unpredictable Japanese Director, Dies at 82**\
+`He made a splash in 1977 with a horror movie about a  house full of furniture that eats schoolgirls. His later movies explored a range of themes.`\
+https://nytimes.com/2020/04/19/movies/nobuhiko-obayashi-dead.html?searchResultPosition=5
+
 **Liquor Store Closures Drive Drinkers to Seek Booze Options**\
 `The unparalleled decision a month ago to close the state-owned stores that sell nearly all of Pennsylvania's liquor and much of its wine prompted some people to drive across state lines to stock up, risking a misdemeanor charge.`\
-https://nytimes.com/aponline/2020/04/19/business/ap-pa-virus-outbreak-pennsylvania-liquor.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/04/19/business/ap-pa-virus-outbreak-pennsylvania-liquor.html?searchResultPosition=6
 
 **Democrats Close to Deal With Republicans on New Coronavirus Response Bill**\
 `The top Democrat in the U.S. Senate, Chuck Schumer, said on Sunday that he is close to reaching a deal with Republicans on a new coronavirus response bill.`\
-https://nytimes.com/reuters/2020/04/19/us/politics/19reuters-health-coronavirus-usa-schumer.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/19/us/politics/19reuters-health-coronavirus-usa-schumer.html?searchResultPosition=7
 
 **Churches Mostly Empty for Orthodox Easter Due to Virus Rules**\
 `The holiest day of the year for Orthodox Christians was reserved and glum in many countries where churches were closed to worshipers for Easter services because of restrictions aimed at suppressing the spread of the coronavirus.`\
-https://nytimes.com/aponline/2020/04/19/world/europe/ap-eu-virus-outbreak-orthodox-easter-1st-ld-writethru.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/04/19/world/europe/ap-eu-virus-outbreak-orthodox-easter-1st-ld-writethru.html?searchResultPosition=8
 
 **Canadian Police Look for Shooter Possibly Driving Police Car**\
 `Canadian police on Sunday asked residents in a rural area of the Atlantic coast province of Nova Scotia to stay in their homes as they look for a suspected shooter who may be driving a police car and in police uniform. `\
-https://nytimes.com/aponline/2020/04/19/world/ap-cn-canada-shooting.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/04/19/world/ap-cn-canada-shooting.html?searchResultPosition=9
 
 **Video Tribute Honors Oklahoma Bombing Victims Amid Outbreak**\
 `Survivors and loved ones of the 168 people who were killed in the Oklahoma City bombing won't be able to gather Sunday on the grounds of the city’s memorial to mark the 25th anniversary of the attack, but that won't stop them from remembering.`\
-https://nytimes.com/aponline/2020/04/19/us/ap-us-oklahoma-city-bombing-25-years-later.html?searchResultPosition=7
-
-**France's Pinot Can't Wait to Be on the Road Again With Tour in Mind**\
-`Frenchman Thibaut Pinot cannot wait to be allowed to train on the road again as part of his preparation for the Tour de France after the race was postponed amid the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/04/19/sports/cycling/19reuters-cycling-tour-pinot.html?searchResultPosition=8
-
-**Amid Virus Bad News Glimpses of Human Decency and Good Works**\
-`The idea formed on a day when all the news headlines were dire. The coronavirus was surging worldwide; Nashville had lost lives in a devastating tornado and children had their lives upended as they separated from beloved classmates to shelter at home.`\
-https://nytimes.com/aponline/2020/04/19/us/ap-virus-outbreak-one-good-thing-month-highlights.html?searchResultPosition=9
-
-**Mnuchin Says Congress Close to Deal on Coronavirus Bill**\
-`U.S. Treasury Secretary Steven Mnuchin said on Sunday that senior Republicans and Democrats in Congress are close to reaching agreement on a new coronavirus response bill.`\
-https://nytimes.com/reuters/2020/04/19/us/politics/19reuters-health-coronavirus-usa-mnuchin.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/19/us/ap-us-oklahoma-city-bombing-25-years-later.html?searchResultPosition=10
 
