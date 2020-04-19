@@ -22,8 +22,8 @@ https://nytimes.com/2020/04/19/nyregion/metropolitan-diary.html?searchResultPosi
 `As Spain hunkers down after five weeks of confinement, the brave few keep the country going during a coronavirus outbreak  that has killed more than 20,000 of their fellow citizens. `\
 https://nytimes.com/aponline/2020/04/19/business/bc-eu-virus-outbreak-spain-photo-gallery.html?searchResultPosition=8
 
-**Taiwan Reports 22 New Coronavirus Cases, Mostly Navy Sailors**\
-`Taiwan's government on Sunday reported 22 new coronavirus cases, 21 of whom had been on a Taiwanese navy mission to the Pacific island state of Palau last month.`\
+**Taiwan Virus Cases Spike, Mostly Navy Sailors on Palau Trip**\
+`Taiwan reported 22 new coronavirus cases on Sunday, almost all of them sailors who had been on a friendly visit of Taiwanese navy ships to the small Pacific island state of Palau last month.`\
 https://nytimes.com/reuters/2020/04/19/world/asia/19reuters-health-coronavirus-taiwan.html?searchResultPosition=9
 
 **India Says No Decision Yet on Easing or Lifting Flight Restrictions**\
