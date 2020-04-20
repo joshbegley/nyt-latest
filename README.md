@@ -1,32 +1,32 @@
+**Novartis, U.S. Regulators Agree to Malaria Drug Trial Against COVID-19**\
+`Novartis has reached an agreement with U.S. regulators to hold a randomized trial of generic malaria drug hydroxychloroquine against COVID-19 disease in 440 hospitalised patients, the Swiss drugmaker said on Monday. `\
+https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-novartis-coronavirus-test.html?searchResultPosition=3
+
+**EU Economics Chief: 1.5 Trillion Euros in Aid Could Be Needed to Tackle Coronavirus**\
+`The European Union's Economics Commissioner Paolo Gentiloni told German magazine Der Spiegel that aid worth around 1.5 trillion euros ($1.63 trillion) could be needed to tackle the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-health-coronavirus-eu-aid.html?searchResultPosition=4
+
+**New Zealand to Ease Tough Virus Lockdown Measures Next Week**\
+`New Zealand will next week ease some of the world's strictest lockdown measures taken to tackle the novel coronavirus pandemic, Prime Minister Jacinda Ardern said on Monday, after a month of tight restrictions slowed the spread of the disease.`\
+https://nytimes.com/reuters/2020/04/20/world/asia/20reuters-health-coronavirus-newzealand.html?searchResultPosition=5
+
+**Sparkling Waters Hide Some Lasting Harm From 2010 Oil Spill**\
+`Ten years after a well blew wild under a BP platform in the Gulf of Mexico, killing 11 men and touching off the nation’s worst offshore oil spill, gulf waters sparkle in the sunlight, its fish are safe to eat, and thick, black oil no longer visibly stains the beaches and estuaries.`\
+https://nytimes.com/aponline/2020/04/20/us/bc-us-deepwater-horizon-ecosystem-recovery.html?searchResultPosition=6
+
 **Spectacles Group EssilorLuxottica to Scrap Dividend, Cut Costs**\
 `EssilorLuxottica, the spectacles company whose brands include Oakley and Ray-Ban, said on Monday that it would scrap its dividend and would look to cut costs, in order to cope with the hit to its business from the coronavirus.`\
-https://nytimes.com/reuters/2020/04/20/business/20reuters-health-coronavirus-essilorluxottica.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/20/business/20reuters-health-coronavirus-essilorluxottica.html?searchResultPosition=7
 
 **This Week: Netflix Earns, Delta Results, New Home Sales**\
 `A look at some of the key business events and economic indicators upcoming this week:`\
-https://nytimes.com/aponline/2020/04/20/business/ap-this-week-in-business.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/04/20/business/ap-this-week-in-business.html?searchResultPosition=8
 
 **UNICEF Seeks More Aid for At-Risk Mideast Kids Amid Pandemic**\
 `The U.N. children’s agency appealed Monday for an additional $92.4 million to help fight the coronavirus pandemic in the Middle East and North Africa, a conflict-battered region with the highest number of children in need anywhere.`\
-https://nytimes.com/aponline/2020/04/20/world/middleeast/ap-ml-virus-outbreak-mideast-children.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/04/20/world/middleeast/ap-ml-virus-outbreak-mideast-children.html?searchResultPosition=9
 
 **Young Climate Activists Slowed by Pandemic, but Not Defeated**\
 `Jamie Margolin had not expected to be sitting in her bedroom right now. `\
-https://nytimes.com/aponline/2020/04/20/business/ap-earth-day-young-climate-activists.html?searchResultPosition=6
-
-**Asia Today: Sri Lanka Eases Curfew, Japan's Exports Tumble**\
-`Sri Lanka's government has partially lifted a monthlong curfew and declared the coronavirus outbreak under control.`\
-https://nytimes.com/aponline/2020/04/20/business/ap-as-virus-outbreak-asia.html?searchResultPosition=7
-
-**Home Gardening Blooms Around the World During Coronavirus Lockdowns**\
-`Jaime Calder all but gave up on gardening after moving from the fertile soils of Illinois to dusty Texas, but the coronavirus changed her mind. `\
-https://nytimes.com/reuters/2020/04/20/us/20reuters-health-coronavirus-gardens.html?searchResultPosition=8
-
-**Germany's Coronavirus Cases Rise by 1,775, Deaths by 110: RKI**\
-`Germany's confirmed coronavirus cases rose by 1,775 to 141,672, data from the Robert Koch Institute (RKI) for infectious diseases showed on Monday, marking the second consecutive day that the number of new infections had fallen. `\
-https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-health-coronavirus-germany-cases.html?searchResultPosition=9
-
-**What’s on TV Monday: ‘Better Call Saul’ and ‘The Plot Against America’**\
-`The “Breaking Bad” prequel series wraps its fifth season. And the final installment of an Ed Burns and David Simon mini-series airs on HBO.`\
-https://nytimes.com/2020/04/20/arts/television/whats-on-tv-monday-better-call-saul-and-the-plot-against-america.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/20/business/ap-earth-day-young-climate-activists.html?searchResultPosition=10
 
