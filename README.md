@@ -1,32 +1,32 @@
+**How bad is climate change now?**\
+`The only real debates left are over how fast and how far the climate will change, and what society should do to  limit the damage.`\
+https://nytimes.com/interactive/2020/04/19/climate/climate-crash-course-1.html?searchResultPosition=3
+
+**China Cuts Benchmark Rate for Second Time This Year, as Widely Expected**\
+`China cut its benchmark lending rate as expected on Monday to reduce borrowing costs for companies and prop up the coronavirus-hit economy, after it contracted for the first time in decades.`\
+https://nytimes.com/reuters/2020/04/19/world/asia/19reuters-china-economy-lpr.html?searchResultPosition=4
+
+**Food Crisis Will Not Take Place in China: Agriculture Minister**\
+`A food crisis will not take place in China, Agriculture Minister Han Changfu said on Monday, adding that the country has the confidence and ability to secure supplies of grains and other major agricultural products. `\
+https://nytimes.com/reuters/2020/04/19/world/asia/19reuters-china-agriculture.html?searchResultPosition=5
+
+**Who is influencing key decisions?**\
+`Behind the scenes, rule-making involves extensive lobbying with the oil and gas industry spending $125 million at the federal level last year alone. `\
+https://nytimes.com/interactive/2020/04/19/climate/climate-crash-course-3.html?searchResultPosition=6
+
+**Do environmental rules matter?**\
+`Deeply entrenched partisanship over climate change over the past decade ushered in the era of climate policy by executive order.`\
+https://nytimes.com/interactive/2020/04/19/climate/climate-crash-course-5.html?searchResultPosition=7
+
+**China's CDB Financial Scraps Purchase of 29 Boeing 737 MAX Jets**\
+`China Development Bank (CDB) Financial Leasing Co said on Monday it had agreed with Boeing Co to cancel the purchase of 29 undelivered 737 MAX jets, adding to a string of recent cancellations of the grounded airplane. `\
+https://nytimes.com/reuters/2020/04/19/business/19reuters-boeing-737max-cdb-leasing.html?searchResultPosition=8
+
+**How do we stop fossil fuel emissions?**\
+`It’s an enormous task, but a rough game plan for solving climate change exists.`\
+https://nytimes.com/interactive/2020/04/19/climate/climate-crash-course-4.html?searchResultPosition=9
+
 **Dollar Firm as Caution on Economic Re-Start Returns**\
 `The dollar found support on Monday and a rally in riskier currencies lost steam, as investors braced for more dire news on the fallout from the coronavirus and governments across the globe moved only cautiously toward an economic re-start.`\
-https://nytimes.com/reuters/2020/04/19/world/asia/19reuters-global-forex.html?searchResultPosition=3
-
-**North Korean Defectors, Experts Question Zero Virus Claim**\
-`As a doctor in North Korea during the SARS outbreak and flu pandemic, Choi Jung Hun didn't have much more than a thermometer to decide who should be quarantined. `\
-https://nytimes.com/aponline/2020/04/19/world/asia/ap-as-virus-outbreak-nkorea-defectors-view.html?searchResultPosition=4
-
-**With Economy in Crisis, U.S. Lets Importers Delay Some Tariff Payments**\
-`The Trump administration on Sunday said it would allow importers hit by the national health crisis to defer for three months any tariff payments they owe the government.`\
-https://nytimes.com/reuters/2020/04/19/business/19reuters-health-coronavirus-usa-trade.html?searchResultPosition=5
-
-**Prince Harry and Wife Meghan Cut Ties With Four British Tabloids: Media**\
-`Prince Harry and his wife, Meghan, have cut ties with some of Britain's biggest tabloids and said they will adopt a policy of "zero engagement" with them, British media reported on Monday.`\
-https://nytimes.com/reuters/2020/04/19/world/europe/19reuters-britain-royals-media.html?searchResultPosition=6
-
-**China Reports 12 New Mainland Coronavirus Cases on April 19, Eight Imported**\
-`China reported 12 new confirmed coronavirus cases on April 19, down from 16 a day earlier, with no new deaths, the country's health authority said on Monday. `\
-https://nytimes.com/reuters/2020/04/19/world/asia/19reuters-health-coronavirus-china-toll.html?searchResultPosition=7
-
-**Panama Registers 194 New Coronavirus Cases, Six New Deaths**\
-`Panama registered 194 new cases of the coronavirus on Sunday, bringing the country's total to 4,467 cases, the health ministry said.`\
-https://nytimes.com/reuters/2020/04/19/world/americas/19reuters-health-coronavirus-panama-toll.html?searchResultPosition=8
-
-**Asia Shares Off to Cautious Start, U.S. Crude Slides**\
-`Caution gripped Asian share markets on Monday on expectations a busy week of corporate earnings reports and economic data will  drive home the damage done by the global virus lockdown, while U.S. crude prices took an early spill.`\
-https://nytimes.com/reuters/2020/04/19/business/19reuters-global-markets.html?searchResultPosition=9
-
-**About 2,500 Protesters Converge at Washington State Capitol Against Stay-At-Home Order**\
-`An estimated 2,500 people rallied at the Washington state capitol on Sunday to protest Democratic Governor Jay Inslee’s stay-at-home order to limit the spread of coronavirus, defying a ban on gatherings of 50 or more people.`\
-https://nytimes.com/reuters/2020/04/19/us/19reuters-health-coronavirus-washington.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/19/world/asia/19reuters-global-forex.html?searchResultPosition=10
 
