@@ -1,28 +1,28 @@
-**Judge: Hanukkah Stabbing Suspect Not Fit to Stand Trial**\
-`A man accused of stabbing five people with a machete at a suburban New York Hanukkah celebration is not mentally fit to stand trial, a judge ruled in a decision made public Monday.`\
-https://nytimes.com/aponline/2020/04/20/us/ap-us-hanukkah-stabbings.html?searchResultPosition=4
+**Suburban New York City County Residents Sue WHO Over Coronavirus Pandemic Response**\
+`Residents of a suburban New York City county that was one of the earliest U.S. hot spots for the coronavirus sued the World Health Organization on Monday, accusing it of gross negligence in covering up and responding to the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/04/20/us/20reuters-health-coronavirus-westchester-lawsuit.html?searchResultPosition=4
 
-**Celebrating Literature’s Slacker Heroes, Lunch-Cancelers and Liers-In**\
-`Dwight Garner surveys the varied and glorious classic works on indolence.`\
-https://nytimes.com/2020/04/20/books/idleness-lockdown-how-to-be-idle-tom-hodgkinson.html?searchResultPosition=5
+**Coronavirus Cases in Ecuador Top 10,000, Doubling About Once a Week**\
+`Ecuador reported over 10,000 cases of coronavirus on Monday, the fourth-highest tally in Latin America, as the disease ravages the economy of the oil-producing country.`\
+https://nytimes.com/reuters/2020/04/20/world/americas/20reuters-health-coronavirus-ecuador.html?searchResultPosition=5
 
-**Global Auto Output Could Fall by Nearly 20 Million in 2020: LMC**\
-`Global vehicle production is now expected to fall more than 20% to around 71 million in 2020 as a result of the Covid-19 pandemic and ensuing recession, a top automotive forecaster said Monday.`\
-https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-health-coronavirus-autos-forecast.html?searchResultPosition=6
+**Meredith Corp Cuts Pay for 60% of Employees Amid COVID-19**\
+`People Magazine owner Meredith Corp, will temporarily cut pay for 60% of its employees and paused its dividend as advertising revenue takes a hit during the coronavirus outbreak, the company announced on Monday.`\
+https://nytimes.com/reuters/2020/04/20/us/20reuters-health-coronavirus-meredith.html?searchResultPosition=6
 
-**Pope Postpones Two Mega-Events by a Year Because of Coronavirus**\
-`Pope Francis has postponed two major international Catholic Church events by a year because of the uncertainties caused by the coronavirus pandemic, the Vatican said on Monday.`\
-https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-health-coronavirus-pope-events.html?searchResultPosition=7
+**Jane Goodall Talks Coronavirus Impact, Nat Geo Documentary**\
+`Even though the planet has reaped the benefits of a cleaner environment from society shutting down during the coronavirus outbreak, Jane Goodall worries about human behavior resorting back to a “business as usual” mindset after the pandemic is over.`\
+https://nytimes.com/aponline/2020/04/20/us/ap-us-tv-qa-jane-goodall.html?searchResultPosition=7
 
-**Talks Drag on Over U.S. Small Business Aid; Senate Sets Tuesday Session**\
-`U.S. Senate Majority Leader Mitch McConnell on Monday announced the scheduling of a session on Tuesday, as negotiators continue working on a coronavirus aid bill providing more money for small businesses seeking loans to help them stay afloat during the pandemic.`\
-https://nytimes.com/reuters/2020/04/20/us/20reuters-health-coronavirus-usa-senate.html?searchResultPosition=8
+**Can You Make Money in Live Comedy Right Now? Some Producers Say Yes**\
+`Experiments with online business models have led in at least one case to more tickets sold. And as the trappings change, the nature of the humor seems to be changing, too.`\
+https://nytimes.com/2020/04/20/arts/television/live-comedy-economics.html?searchResultPosition=8
 
-**Massachusetts Becomes Coronavirus Hotspot as Cases Surge**\
-`Massachusetts has become a hotspot of coronavirus infections, drawing the concern of federal officials and promises of aid from hard-hit New York as the state's death toll prepares to double in less than a week. `\
-https://nytimes.com/aponline/2020/04/20/us/ap-us-virus-outbreak-surging-massachusetts.html?searchResultPosition=9
+**Coronavirus the Musical: U.S. Scientists Turn Virus Into Melody to Aid Research**\
+`From tinkling harmonies as the virus disarms cells to clashing and stormy as it replicates, U.S. scientists have translated the novel coronavirus' spiked protein structure to music in an effort to better understand the pathogen. `\
+https://nytimes.com/reuters/2020/04/20/arts/20reuters-health-coronavirus-music.html?searchResultPosition=9
 
-**Report Says Burkina Faso Forces Killed 31 Unarmed Men**\
-`Burkina Faso’s security forces reportedly killed 31 unarmed men in the country’s north earlier this month, according to a report on Monday by Human Rights Watch.`\
-https://nytimes.com/aponline/2020/04/20/world/africa/ap-af-burkina-faso-violence.html?searchResultPosition=10
+**NASA Sets Launch Date for SpaceX U.S. Manned Mission to Space Station**\
+`NASA on Friday set a launch date of May 27 for its first astronaut mission from U.S. soil in nearly 10 years. `\
+https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-space-exploration-spacex-launch.html?searchResultPosition=10
 
