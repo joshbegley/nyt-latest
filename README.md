@@ -1,32 +1,32 @@
+**NFL: League Navigates Cyber Risk as Draft Moves Online**\
+`With countless hours of research and planning kept as closely guarded as the President's nuclear football, cyber security is in focus for this week's NFL Draft, as teams pivot to a "virtual" format on COVID-19 lockdown.`\
+https://nytimes.com/reuters/2020/04/20/sports/football/20reuters-football-nfl-draft.html?searchResultPosition=3
+
+**Harry and Meghan Say They Won't Cooperate With UK Tabloids**\
+`The Duke and Duchess of Sussex say they will no longer cooperate with several British tabloid newspapers because of what they call “distorted, false or invasive” stories.`\
+https://nytimes.com/aponline/2020/04/20/business/bc-eu-harry-and-meghan.html?searchResultPosition=4
+
+**ICICI Seeks Impounding of Ships Operated by HLT Unit Ocean Tankers: Source**\
+`India's ICICI Bank is seeking the impounding of two vessels operated by Ocean Tankers (Pte) Ltd, a unit of Singapore oil-trading company Hin Leong Trading Pte Ltd (HLT), an ICICI source said on Monday.`\
+https://nytimes.com/reuters/2020/04/20/world/asia/20reuters-singapore-oil-hinleong-icici-bank.html?searchResultPosition=5
+
+**Germany to Recover Slowly After Severe Recession: Bundesbank**\
+`The Germany economy is in a severe recession and recovery is unlikely to be quick as many coronavirus-related restrictions could stay in place for an extended period, the Bundesbank said in a regular monthly economic report on Monday.`\
+https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-health-coronavirus-germany-bundesbank.html?searchResultPosition=6
+
+**Coronavirus Crisis Stoking Anti-Semitism Worldwide: Report**\
+`The coronavirus crisis is stirring anti-Semitism around the world, fuelled by centuries-old lies that Jews are spreading infection, researchers in Israel said on Monday.`\
+https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-health-coronavirus-israel-antisemitism.html?searchResultPosition=7
+
 **At Mercy of Banks, India's Cash-Tight Shadow Lenders Face New Turmoil**\
 `India's banks are freezing credit lines to shadow lenders as the coronavirus crisis shuts down commerce in Asia's third-largest economy, but leaving this sector in the lurch risks wider financial contagion.`\
-https://nytimes.com/reuters/2020/04/20/world/asia/20reuters-health-coronavirus-india-banks-analysis.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/20/world/asia/20reuters-health-coronavirus-india-banks-analysis.html?searchResultPosition=8
 
 **Empty Resorts Spell Long Crisis for Caribbean as Coronavirus Hits**\
 `No one is swimming in the turquoise Caribbean waters of Cuba's Varadero beach resort, nor lounging on its white, palm-fringed beaches. Its hundreds of hotels, shops and restaurants stand empty and eerily quiet.`\
-https://nytimes.com/reuters/2020/04/20/world/americas/20reuters-health-coronavirus-caribbean-tourism-feature.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/20/world/americas/20reuters-health-coronavirus-caribbean-tourism-feature.html?searchResultPosition=9
 
 **Miami Police Disperse Crowd by David Guetta's Relief Concert**\
 `Police said they dispersed crowds violating social distancing guidelines during David Guetta’s coronavirus relief concert in Miami. `\
-https://nytimes.com/aponline/2020/04/20/us/ap-us-virus-outbreak-david-guetta.html?searchResultPosition=5
-
-**Afghan Officials: Taliban Attacks on Checkpoints Kill 29**\
-`A wave of Taliban attacks on checkpoints across Afghanistan has killed 29 members of the security forces, officials said Monday. `\
-https://nytimes.com/aponline/2020/04/20/world/asia/ap-as-afghanistan.html?searchResultPosition=6
-
-**Taiwan Virus Cases Jump After Ship Visit, Palau Says Not the Source**\
-`Taiwan reported 22 new coronavirus cases on Sunday, almost all of them sailors who were on a navy visit to the small Pacific islands state of Palau, which said there was "little chance" it was the source of the infection.`\
-https://nytimes.com/reuters/2020/04/20/world/asia/20reuters-health-coronavirus-taiwan.html?searchResultPosition=7
-
-**Kept Home by COVID-19, U.S. Politics Goes Virtual With Digital Dance Parties and Avatars**\
-`When stay-at-home orders sparked by the coronavirus forced him to find new ways to reach young voters ahead of the November U.S. election, Felix Clarke turned to an online computer game.`\
-https://nytimes.com/reuters/2020/04/20/us/politics/20reuters-health-coronavirus-election.html?searchResultPosition=8
-
-**Sri Lanka in Quandary Over Holding Elections Amid Virus**\
-`Sri Lanka’s election commission is meeting with government officials on Monday to discuss ways to avoid a possible constitutional crisis if the country fails to hold parliamentary elections before a mandated deadline of June 2 because of the coronavirus.`\
-https://nytimes.com/aponline/2020/04/20/world/asia/ap-as-sri-lanka-election.html?searchResultPosition=9
-
-**The Small-Space Workout Challenge**\
-`If your home isn’t that big, finding a place to exercise while you’re confined there may seem nearly impossible. Here’s what the experts suggest.`\
-https://nytimes.com/2020/04/20/realestate/the-small-space-workout-challenge.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/20/us/ap-us-virus-outbreak-david-guetta.html?searchResultPosition=10
 
