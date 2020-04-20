@@ -1,32 +1,32 @@
+**Japan Scientist 'Very Pessimistic' Olympics Go on Next Year**\
+`A Japanese professor of infectious disease says he is “very pessimistic” the postponed Tokyo Olympics can open in 15 months.`\
+https://nytimes.com/aponline/2020/04/20/sports/olympics/ap-oly-tokyo-virus-threat.html?searchResultPosition=3
+
+**Shake Shack Gets Funding, to Return Paycheck Protection Loan**\
+`The burger chain Shake Shack says it has obtained new funding and will return a small-business loan it got to help weather the coronavirus crisis. `\
+https://nytimes.com/aponline/2020/04/20/business/bc-virus-outbreak-shake-shack.html?searchResultPosition=4
+
+**U.S. Oil Off Lows After Falling Over 20% to Levels Unseen Since 1999**\
+`Crude oil futures fell on Monday, with U.S. futures dropping more than 10% to levels unseen since 1999 amid concerns that U.S. storage facilities will soon be brimful with demand  evaporating due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/20/business/20reuters-global-oil.html?searchResultPosition=5
+
+**Casino Operator Rank Furloughs Nearly 90% of UK Staff**\
+`Casino and gaming operator Rank Group Plc said on Monday it had furloughed nearly 90% of its workforce in the UK as its venues remain closed due to coronavirus-led lockdowns.`\
+https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-health-coronavirus-rank-group-gb.html?searchResultPosition=6
+
+**Pakistan Says Militant Attack in Northwest Kills Soldier**\
+`Militants armed with assault rifles attacked a Pakistani army security post in a former Taliban stronghold in the country's northwest early on Monday, triggering a shootout that killed a soldier, the military said. Five insurgents were also killed, it said.`\
+https://nytimes.com/aponline/2020/04/20/world/asia/ap-as-pakistan-attack.html?searchResultPosition=7
+
 **On Pandemic’s Front Lines, Nurses From Half a World Away**\
 `Nurses from the Philippines and other developing countries have long made up for shortages in Western nations. Now they are risking their lives.`\
-https://nytimes.com/2020/04/20/world/asia/coronavirus-philippines-nurses.html?searchResultPosition=3
+https://nytimes.com/2020/04/20/world/asia/coronavirus-philippines-nurses.html?searchResultPosition=8
 
 **German Plan Sees Eurofighter, F-18 Mix Replacing Tornado: Source**\
 `A German procurement proposal to replace Germany's aging fleet of Tornado fighter jets foresees the purchase of up to 93 Eurofighters, and up to 45 F-18s from Boeing, a German Defense Ministry source said.`\
-https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-germany-military-fighterjets.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-germany-military-fighterjets.html?searchResultPosition=9
 
 **Vietnam Says Over 13,000 People Linked to Coronavirus Cluster Tested Negative**\
 `More than 13,400 people linked to a COVID-19 outbreak in a village on the outskirts of the Vietnamese capital Hanoi have tested negative for the coronavirus, the government said on Monday.`\
-https://nytimes.com/reuters/2020/04/20/world/asia/20reuters-health-coronavirus-vietnam.html?searchResultPosition=5
-
-**UK Is Tight on Gowns for Front Line Fighting COVID-19, Minister Says**\
-`The United Kingdom is tight on gowns for front line health workers fighting COVID-19 but hopes to get the right equipment where it is needed by the end of this weekend, Health Secretary Matt Hancock said on Friday.`\
-https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-health-coronavirus-britain-gowns.html?searchResultPosition=6
-
-**UK to Collect COVID-19 Survivors' Blood for Treatment Trials**\
-`The United Kingdom is preparing to collect the blood from COVID-19 survivors to investigate if convalescent plasma transfusions could improve a COVID-19 patient's speed of recovery and chances of survival.`\
-https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-health-coronavirus-britain-blood.html?searchResultPosition=7
-
-**India Reports Biggest One-Day Virus Spike as Lockdown Eased**\
-`India recorded its biggest single-day spike in coronavirus cases on Monday as the government eased one of the world's strictest lockdowns to allow some manufacturing and agricultural activity to resume.`\
-https://nytimes.com/aponline/2020/04/20/world/asia/ap-as-virus-outbreak-india.html?searchResultPosition=8
-
-**Picking for Britain-Coronavirus Crisis Draws Workers to Farms**\
-`Thousands of Britons have answered the call for backbreaking work on the country's fruit and vegetable farms this summer as the coronavirus crisis keeps Eastern European workers away but it may still not be enough to secure the harvest.`\
-https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-health-coronavirus-britain-farming.html?searchResultPosition=9
-
-**Tajikistan Leader's Son Named Senate Speaker**\
-`The eldest son of Tajik President Emomali Rakhmon was elected as speaker in the senate on Friday, cementing the family's grip on power in the Central Asian nation ahead of a presidential election.`\
-https://nytimes.com/reuters/2020/04/20/world/asia/20reuters-tajikistan-president-son-senate.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/20/world/asia/20reuters-health-coronavirus-vietnam.html?searchResultPosition=10
 
