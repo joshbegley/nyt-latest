@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/04/19/world/asia/19reuters-china-economy-soe.ht
 https://nytimes.com/reuters/2020/04/19/world/asia/19reuters-newzealand-economy-inflation.html?searchResultPosition=7
 
 **Japan's Exports Sink in March as Pandemic Hits Major Markets**\
-`Japan’s exports sank 11.7% in March as the coronavirus pandemic slammed auto shipments to the U.S. `\
+`Japan’s exports sank 11.7% in March as the coronavirus pandemic slammed auto shipments to the U.S. and China, generally its two biggest markets. `\
 https://nytimes.com/aponline/2020/04/19/business/bc-as-japan-trade.html?searchResultPosition=8
 
 **Australia Plans Law Forcing Google, Facebook to Share Ad Revenue With Domestic Media Firms**\
