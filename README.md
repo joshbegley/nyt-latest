@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/04/20/business/20reuters-health-coronavirus-aut
 `Hundreds of Tunisians who were stranded in Libya after the borders were closed over the coronavirus crisis reached a Tunisian frontier post on Monday, Tunisia's Interior Ministry said.`\
 https://nytimes.com/reuters/2020/04/20/world/africa/20reuters-health-coronavirus-tunisia-libya.html?searchResultPosition=5
 
-**Argentina Widens Coronavrus Aid Package to $12.9 Billion, 2.9% of GDP**\
+**Argentina Widens Coronavirus Aid Package to $12.9 Billion, 2.9% of GDP**\
 `Argentina's government said on Monday that it would widen an economic aid package to counter the impact of coronavirus to 850 billion pesos ($12.9 billion), equivalent to around 2.9% of the country's gross domestic product.`\
 https://nytimes.com/reuters/2020/04/20/world/americas/20reuters-health-coronavirus-argentina.html?searchResultPosition=6
 
