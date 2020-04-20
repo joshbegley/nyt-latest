@@ -1,5 +1,5 @@
 **How do scientists know what they know?**\
-`Researchers weave lots of pieces of data to stitch together a comprehensive picture of our changing climate.`\
+`Researchers weave lots of pieces of data to stitch together a comprehensive picture of our changing climate. `\
 https://nytimes.com/interactive/2020/04/19/climate/climate-crash-course-2.html?searchResultPosition=3
 
 **Can insurance protect us?**\
