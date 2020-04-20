@@ -1,28 +1,28 @@
+**Noach Dear, Combative Brooklyn Councilman and Judge, Dies at 66**\
+`In pursuing his constituents’ Orthodox Jewish agenda, he opposed abortion rights and legislation to ban discrimination against gay people.`\
+https://nytimes.com/2020/04/20/obituaries/noach-dear-dead-coronavirus.html?searchResultPosition=4
+
+**U.S. Car Rental Company Hertz to Lay Off 10,000 Staff**\
+`U.S. car rental company Hertz Global Holdings Inc said on Monday it plans to lay off 10,000 employees to cut costs amid the economic fallout of the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/04/20/us/20reuters-hertz-layoffs.html?searchResultPosition=5
+
+**Is Michael Jordan Playing Defense in ‘The Last Dance’?**\
+`Jordan’s production company is a partner of the ESPN documentary, and the tone of the series so far bends toward reaffirming a legacy in the LeBron James era.`\
+https://nytimes.com/2020/04/20/sports/basketball/michael-jordan-last-dance-legacy-lebron.html?searchResultPosition=6
+
+**Businesses Say Big Banks Flouted ‘First Come First Served’ for Aid**\
+`Small-business owners are suing, claiming that applications for stimulus loans weren’t processed in the order they were received.`\
+https://nytimes.com/2020/04/20/business/sba-loans-banks-sued.html?searchResultPosition=7
+
+**Marlins' Jeter Giving Up Salary During Pandemic**\
+`Miami Marlins CEO Derek Jeter is forgoing his reported $5 million salary indefinitely during the coronavirus outbreak, multiple outlets reported Monday.`\
+https://nytimes.com/reuters/2020/04/20/sports/baseball/20reuters-baseball-mlb-mia-jeter.html?searchResultPosition=8
+
 **Supreme Court Rules Against Landowners in Montana Superfund Fight**\
 `Landowners may not sue the Atlantic Richfield Company to force it to do more than a federal cleanup plan requires unless the Environmental Protection Agency consents, the court ruled.`\
-https://nytimes.com/2020/04/20/us/supreme-court-montana-superfund.html?searchResultPosition=4
+https://nytimes.com/2020/04/20/us/supreme-court-montana-superfund.html?searchResultPosition=9
 
 **Robert Loomis, Who Edited Angelou, Styron and Morris, Dies at 93**\
 `He wielded his pencil at Random House for more than 50 years, nurturing the writing of Seymour Hersh, Neil Sheehan, Pete Dexter and other authors.`\
-https://nytimes.com/2020/04/20/obituaries/robert-loomis-dead.html?searchResultPosition=5
-
-**Saudi Arabia Suspends Praying in the Two Holy Mosques in Ramadan: Tweet**\
-`Saudi Arabia extended on Monday the suspension of praying in the Grand Mosque and Prophet's Mosque during the holy month of Ramadan to stem the spread of the coronavirus, the presidency of the Two Holy Mosques said on Twitter citing its President General Sheikh Dr.`\
-https://nytimes.com/reuters/2020/04/20/world/middleeast/20reuters-health-coronavirus-saudi-islam.html?searchResultPosition=6
-
-**Excluded From Bailouts, Mortgage Servicers Face Cash Crunch**\
-`Lawmakers and lobbyists warn that missed house payments could leave servicers insolvent but federal officials are not sold on the need for a rescue.`\
-https://nytimes.com/2020/04/20/us/politics/coronavirus-housing-mortgages.html?searchResultPosition=7
-
-**Kemp: Some Shuttered Georgia Businesses Can Reopen Friday**\
-`Georgia Gov. Brian Kemp on Monday rolled out aggressive plans to reopen the state's economy, saying many businesses shuttered to mitigate the spread of the coronavirus may reopen their doors as early as Friday.`\
-https://nytimes.com/aponline/2020/04/20/business/ap-us-virus-outbreak-georgia-4th-ld-writethru.html?searchResultPosition=8
-
-**Syrian Air Defences Intercept Israeli Aerial Strikes on Palmyra: State Media**\
-`Syrian air defences responded to an Israeli aerial attack on the city of Palmyra in eastern Homs province in central Syria and downed several "hostile targets", state media said on Monday.`\
-https://nytimes.com/reuters/2020/04/20/world/middleeast/20reuters-syria-security-israel-attacks.html?searchResultPosition=9
-
-**Syria: Israel Fired Missile on Areas Near Historic Palmyra**\
-`Syrian air defenses have opened fire and shot down several missiles launched by Israeli warplanes Monday night near the central historic town of Palmyra, state media said. `\
-https://nytimes.com/aponline/2020/04/20/world/middleeast/ap-ml-syria-israel.html?searchResultPosition=10
+https://nytimes.com/2020/04/20/obituaries/robert-loomis-dead.html?searchResultPosition=10
 
