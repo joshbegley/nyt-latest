@@ -26,7 +26,7 @@ https://nytimes.com/2020/04/19/arts/television/westworld-episode-6-recap.html?se
 `If the 50th anniversary of Earth Day has inspired you to finally read a book about climate change, we’re here to help you find just the right one.`\
 https://nytimes.com/interactive/2020/climate/climate-change-books.html?searchResultPosition=9
 
-**Guatemala Says 50 Deported Migrants From U.S. Test Positive for Coronavirus**\
-`Guatemalan President Alejandro Giammattei said on Sunday that a total of 50 migrants deported by the United States to Guatemala have tested positive for coronavirus, including 14 sent to the Central American nation on a Tuesday flight.`\
+**Guatemala Says 50 Migrants Deported From U.S. Test Positive for Coronavirus**\
+`Guatemalan President Alejandro Giammattei said on Sunday a total of 50 migrants deported by the United States to Guatemala have tested positive for coronavirus, including 14 sent to the Central American nation on a Tuesday flight.`\
 https://nytimes.com/reuters/2020/04/19/world/americas/19reuters-health-coronavirus-guatemala-deportees.html?searchResultPosition=10
 
