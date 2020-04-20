@@ -1,28 +1,28 @@
+**Federer, Nadal, Djokovic Let Fans Eavesdrop on Their Convos**\
+`Ever wondered what a chat between Roger Federer and Rafael Nadal  might sound like? How about Novak Djokovic and Andy Murray or Stan Wawrinka?`\
+https://nytimes.com/aponline/2020/04/20/sports/tennis/ap-ten-virus-outbreak-big-three-live-chats.html?searchResultPosition=4
+
+**Chilean Seniors Look to the Sky for Medicine and Masks**\
+`The small Chilean beach enclave of Zapallar has turned to high-tech drones to deliver medications, masks and hand sanitizer to its elderly in remote areas as the coronavirus continues its advance across the largely rural South American nation.`\
+https://nytimes.com/reuters/2020/04/20/world/americas/20reuters-health-coronavirus-chile-drone.html?searchResultPosition=5
+
+**The World Has a $2.5 Trillion Problem. Here’s How to Solve It.**\
+`Poor countries are going to be decimated by the coronavirus. They need a serious rescue package.`\
+https://nytimes.com/2020/04/20/opinion/coronavirus-economy-bailout.html?searchResultPosition=6
+
+**Instant View: Spot U.S. Oil Futures Crash Below Zero With Nowhere to Store Crude**\
+`Energy traders fled from the expiring May U.S. oil futures contract in a frenzy on Monday, sending the contract deep into negative territory for the first time in history, as barely any buyers are willing to take delivery of oil barrels because there is no place to put the crude.`\
+https://nytimes.com/reuters/2020/04/20/business/20reuters-usa-markets-instantview.html?searchResultPosition=7
+
+**Istanbul Death Toll Hints Turkey Is Hiding a Wider Coronavirus Calamity**\
+`Istanbul recorded 2,100 more deaths over recent years between March and April, The Times found, suggesting a hidden toll.`\
+https://nytimes.com/2020/04/20/world/middleeast/coronavirus-turkey-deaths.html?searchResultPosition=8
+
 **Suburban New York City County Residents Sue WHO Over Coronavirus Pandemic Response**\
 `Residents of a suburban New York City county that was one of the earliest U.S. hot spots for the coronavirus sued the World Health Organization on Monday, accusing it of gross negligence in covering up and responding to the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/04/20/us/20reuters-health-coronavirus-westchester-lawsuit.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/20/us/20reuters-health-coronavirus-westchester-lawsuit.html?searchResultPosition=9
 
 **Coronavirus Cases in Ecuador Top 10,000, Doubling About Once a Week**\
 `Ecuador reported over 10,000 cases of coronavirus on Monday, the fourth-highest tally in Latin America, as the disease ravages the economy of the oil-producing country.`\
-https://nytimes.com/reuters/2020/04/20/world/americas/20reuters-health-coronavirus-ecuador.html?searchResultPosition=5
-
-**Meredith Corp Cuts Pay for 60% of Employees Amid COVID-19**\
-`People Magazine owner Meredith Corp, will temporarily cut pay for 60% of its employees and paused its dividend as advertising revenue takes a hit during the coronavirus outbreak, the company announced on Monday.`\
-https://nytimes.com/reuters/2020/04/20/us/20reuters-health-coronavirus-meredith.html?searchResultPosition=6
-
-**Jane Goodall Talks Coronavirus Impact, Nat Geo Documentary**\
-`Even though the planet has reaped the benefits of a cleaner environment from society shutting down during the coronavirus outbreak, Jane Goodall worries about human behavior resorting back to a “business as usual” mindset after the pandemic is over.`\
-https://nytimes.com/aponline/2020/04/20/us/ap-us-tv-qa-jane-goodall.html?searchResultPosition=7
-
-**Can You Make Money in Live Comedy Right Now? Some Producers Say Yes**\
-`Experiments with online business models have led in at least one case to more tickets sold. And as the trappings change, the nature of the humor seems to be changing, too.`\
-https://nytimes.com/2020/04/20/arts/television/live-comedy-economics.html?searchResultPosition=8
-
-**Coronavirus the Musical: U.S. Scientists Turn Virus Into Melody to Aid Research**\
-`From tinkling harmonies as the virus disarms cells to clashing and stormy as it replicates, U.S. scientists have translated the novel coronavirus' spiked protein structure to music in an effort to better understand the pathogen. `\
-https://nytimes.com/reuters/2020/04/20/arts/20reuters-health-coronavirus-music.html?searchResultPosition=9
-
-**NASA Sets Launch Date for SpaceX U.S. Manned Mission to Space Station**\
-`NASA on Friday set a launch date of May 27 for its first astronaut mission from U.S. soil in nearly 10 years. `\
-https://nytimes.com/reuters/2020/04/20/world/europe/20reuters-space-exploration-spacex-launch.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/20/world/americas/20reuters-health-coronavirus-ecuador.html?searchResultPosition=10
 
