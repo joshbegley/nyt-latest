@@ -1,8 +1,8 @@
-**WHO Says Concerned About Rising Confirmed Cases in Japan**\
-`The World Health Organization said on Tuesday that it was concerned about the increasing number of confirmed cases of the new coronavirus in Japan.     `\
-https://nytimes.com/reuters/2020/04/20/world/asia/20reuters-health-coronavirus-who-japan.html?searchResultPosition=9
+**Coronavirus Infections Rate Among Philippine Health Workers 'Worrisome': WHO Expert**\
+`The World Health Organization has recognised a worrisome trend of infections among healthcare workers in the Philippines and is working closely with the country's health ministry on ways of addressing it.`\
+https://nytimes.com/reuters/2020/04/20/world/asia/20reuters-health-coornavirus-who-asiapac-philippines.html?searchResultPosition=9
 
-**Japan Hasn't Agreed on Additional Costs for Olympics Delay: Suga**\
-`Japan has not agreed to shoulder the additional costs for the postponement of the 2020 Olympics, Chief Cabinet Secretary Yoshihide Suga said on Tuesday, after Kyodo News reported Prime Minister Shinzo Abe had committed to cover the costs.`\
-https://nytimes.com/reuters/2020/04/20/sports/olympics/20reuters-health-coronavirus-olypmics-suga.html?searchResultPosition=10
+**Trump Plans to Suspend Immigration to U.S.**\
+`The president portrayed the measure, his most wide-ranging attempt yet to seal off the country from the world, as a bid to save Americans’ jobs amid the coronavirus pandemic.`\
+https://nytimes.com/2020/04/20/us/politics/trump-immigration.html?searchResultPosition=10
 
