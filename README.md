@@ -1,8 +1,8 @@
-**Ferrari Rolls Out Coronavirus Testing to Get Staff Ready for Work**\
-`Workers at Ferrari are signing up en masse for voluntary coronavirus screening so they can return to work as soon as possible in an ambitious scheme that could serve as a blueprint for manufacturers desperate to resume production.`\
-https://nytimes.com/reuters/2020/04/21/business/21reuters-health-coronavirus-ferrari-tests.html?searchResultPosition=9
+**What You Need to Know About the Coronavirus Right Now**\
+`Here's what you need to know about the coronavirus right now:`\
+https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronavirus-snapshot.html?searchResultPosition=9
 
-**BOJ Warns of Potential Financial System Risks Triggered by Pandemic**\
-`The coronavirus pandemic, if prolonged, could trigger a negative feedback loop in which a worsening economy threatens to destabilize Japan's financial system, the Bank of Japan warned on Tuesday.`\
-https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronavirus-boj-banks.html?searchResultPosition=10
+**Muslims Try to Keep Ramadan Spirit Amid Virus Restrictions**\
+`Every year during Ramadan, the Light of Muhammad Mosque sets up long tables on the street and dishes up free meals at sunset for the poor to break their daily fast. It’s a charity that many rely on in this impoverished district on the edge of the Egyptian capital.`\
+https://nytimes.com/aponline/2020/04/21/world/middleeast/ap-ml-virus-outbreak-ramadan.html?searchResultPosition=10
 
