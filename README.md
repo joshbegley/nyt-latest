@@ -1,8 +1,8 @@
-**Buffalo Trace Releases Three Kosher Whiskeys**\
-`Created under the supervision of the Chicago Rabbinical Council, the Kentucky distillery has created two kosher bourbons and a rye whiskey.`\
-https://nytimes.com/2020/04/20/dining/buffalo-trace-kosher-bourbon.html?searchResultPosition=9
+**Exporting Coronavirus? Infections Among U.S. Deportees Reach Haiti, Mexico**\
+`Mexico and Haiti have detected coronavirus infections among migrants deported recently from the United States, officials said on Tuesday, part of a growing trend of contagion among deportees.`\
+https://nytimes.com/reuters/2020/04/20/world/americas/20reuters-health-coronavirus-usa-deportees.html?searchResultPosition=9
 
-**Nissan to Shut Down Global Headquarters, Other Japan Facilities Through Mid-May Due to Virus**\
-`Nissan Motor Co on Tuesday said that it would temporarily shut down operations at its global headquarters and other facilities in Japan through early May to contain the spread of the coronavirus. `\
-https://nytimes.com/reuters/2020/04/20/business/20reuters-health-coronavirus-nissan.html?searchResultPosition=10
+**Records: Man Charged in Aniah Blanchard's Death Bit Officer**\
+`An Alabama man accused of kidnapping and killing the stepdaughter of a UFC fighter has also been charged with biting a correctional officer while in jail, authorities said. `\
+https://nytimes.com/aponline/2020/04/20/us/ap-us-ufc-fighter-missing-stepdaughter.html?searchResultPosition=10
 
