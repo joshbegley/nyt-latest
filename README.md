@@ -1,8 +1,8 @@
-**Factbox: Countries Pondering an Easing of Coronavirus Curbs**\
-`Countries around the world are wondering when and how to ease coronavirus lockdowns, though the World Health Organization (WHO) is warning that should be done slowly and only when there is capacity to isolate cases and trace contacts.`\
-https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronavirus-lockdowns-factbox.html?searchResultPosition=9
+**Djokovic Says He May Reconsider His Anti-Vaccination Stand**\
+`Novak Djokovic has reiterated he is against taking an anti-coronavirus vaccination if it becomes mandatory to travel once the pandemic subsides, but says he’s open to changing his mind. `\
+https://nytimes.com/aponline/2020/04/21/sports/tennis/ap-ten-virus-outbreak-djokovic.html?searchResultPosition=9
 
-**Streaming Service HBO Max to Launch on May 27**\
-`AT&T Inc's WarnerMedia said on Tuesday it's streaming service, HBO Max, will launch on May 27, featuring original shows like "Love Life", "Legendary" and new episodes of the popular "Looney Tunes Cartoons". `\
-https://nytimes.com/reuters/2020/04/21/arts/21reuters-at-t-hbo-max.html?searchResultPosition=10
+**What Will Our New Normal Feel Like? Hints Are Beginning to Emerge**\
+`Fear of others may linger long after the pandemic is over. But so may a new sense of community.`\
+https://nytimes.com/2020/04/21/world/americas/coronavirus-social-impact.html?searchResultPosition=10
 
