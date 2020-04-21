@@ -1,8 +1,8 @@
-**Asia Today: Hong Kong Extends Virus Measures for 2 Weeks**\
-`Hong Kong on Tuesday announced a two-week extension of measures aimed at controlling the spread of the new coronavirus, including banning public gatherings of more than four people as well as keeping entertainment venues closed.`\
-https://nytimes.com/aponline/2020/04/21/world/asia/ap-as-virus-outbreak-asia.html?searchResultPosition=9
+**Your Tuesday Briefing**\
+`Coronavirus, oil prices, U.S. immigration: Here’s what you need to know.`\
+https://nytimes.com/2020/04/21/briefing/coronavirus-oil-prices-america-immigration.html?searchResultPosition=9
 
-**Japan Tests Show 11 Dead Were Infected With Coronavirus: Media**\
-`Japanese police reported last month the deaths of 11 people deemed to be unnatural before tests showed the victims had been infected with the new coronavirus, media said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronavirus-japan.html?searchResultPosition=10
+**Indonesia Bans Ramadan Mass Exodus Tradition to Curb Coronavirus Spread**\
+`Indonesia will ban the mass exodus tradition, locally known as 'mudik,' at the end of the Muslim fasting month in May in a bid to curb the spread of coronavirus in the Southeast Asian country, President Joko Widodo said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronavirus-indonesia-ramadan.html?searchResultPosition=10
 
