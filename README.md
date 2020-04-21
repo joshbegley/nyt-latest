@@ -1,8 +1,8 @@
-**Apple Expands Services Business to Markets in Africa and Beyond**\
-`Apple Inc on Tuesday said it would expand its App Store, Apple Music and other services to dozens of new markets in Africa, the Middle East and beyond in the biggest geographical expansion of its services in almost a decade.`\
-https://nytimes.com/reuters/2020/04/21/technology/21reuters-apple-services.html?searchResultPosition=9
+**The S11 Dormitory: Inside Singapore's Biggest Coronavirus Cluster**\
+`For Habibur Rahman, the only glimpse of life outside the four walls of the cramped Singapore dormitory room he shares with 11 other migrant workers are security guards urging people to stay apart and cleaners scrubbing down communal toilets.`\
+https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronavirus-singapore-migrants-insight.html?searchResultPosition=9
 
-**Bookseller Who Fled Hong Kong Attacked With Red Paint in Taiwan**\
-`A Hong Kong bookseller who fled to Taiwan amid fears of Chinese persecution was attacked on Tuesday by a man who threw red paint at him, just days before he was set to open a new bookshop in Taipei.`\
-https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-hongkong-protests-taiwan-bookseller.html?searchResultPosition=10
+**Pandemic’s Costs Stagger the Nursing Home Industry**\
+`Even before the coronavirus swept through care facilities, many were struggling with thin profit margins. Now they could be wiped out.`\
+https://nytimes.com/2020/04/21/business/coronavirus-nursing-home-finances.html?searchResultPosition=10
 
