@@ -1,8 +1,8 @@
-**Coronavirus to Impoverish Millions of Children in Middle East: UNICEF**\
-`Millions of children in the Middle East will become poorer as their caregivers lose jobs from lockdowns aimed at stemming the spread of coronavirus across the region, according to the U.N. Children's Fund (UNICEF).`\
-https://nytimes.com/reuters/2020/04/20/world/middleeast/20reuters-health-coronavirus-mideast-children.html?searchResultPosition=9
+**Nissan to Shut Down Global Headquarters, Other Japan Facilities Through Mid-May Due to Virus**\
+`Nissan Motor Co on Tuesday said that it would temporarily shut down operations at its global headquarters and other facilities in Japan through early May to contain the spread of the coronavirus. `\
+https://nytimes.com/reuters/2020/04/20/business/20reuters-health-coronavirus-nissan.html?searchResultPosition=9
 
-**Japan Told IOC It Would Pay for Cost of Postponing Olympics: Kyodo Citing IOC**\
-`Japanese Prime Minister Shinzo Abe has agreed that his country would shoulder the cost of postponing the Olympics - estimated at around $3 billion - in line with the existing contract, Kyodo news agency said, citing the International Olympic Committee.`\
-https://nytimes.com/reuters/2020/04/20/sports/olympics/20reuters-health-coronavirus-olympics.html?searchResultPosition=10
+**UN in Libya Warns of Possible War Crimes as Fighting Rages**\
+`The United Nations on Monday warned of rapidly escalating violence and a worsening humanitarian crisis in Libya, which it said could amount to war crimes.`\
+https://nytimes.com/aponline/2020/04/20/world/middleeast/ap-ml-libya-.html?searchResultPosition=10
 
