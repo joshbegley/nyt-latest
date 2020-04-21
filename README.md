@@ -1,8 +1,8 @@
-**Your Tuesday Briefing**\
-`Coronavirus, Immigration, Kim Jong-un: Here's what you need to know.`\
-https://nytimes.com/2020/04/21/briefing/coronavirus-immigration-kim-jong-un.html?searchResultPosition=9
+**Driver Killed in WHO Vehicle Carrying Virus Swabs in Myanmar's Rakhine**\
+`A World Health Organization vehicle carrying swabs from patients to be tested for coronavirus came under gunfire in Myanmar's western Rakhine state and the driver was killed, the United Nations said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronavirus-myanmar-rakhine.html?searchResultPosition=9
 
-**Coronavirus Live Updates: Trump Says He Will Suspend Immigration**\
-`President Trump announced the temporary ban in a late-night tweet with few details. The worldwide death toll from the pandemic is far higher than official counts suggest, according to a Times analysis.`\
-https://nytimes.com/2020/04/21/us/coronavirus-updates.html?searchResultPosition=10
+**5 Things to Know Today-That Aren't About the Virus**\
+`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today:`\
+https://nytimes.com/aponline/2020/04/21/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=10
 
