@@ -1,8 +1,8 @@
-**European New Car Sales Plunge by 51.8% in March Due to Coronavirus: ACEA**\
-`Passenger car sales tumbled by more than 50% in Europe's major markets in March as lockdowns imposed due to the new coronavirus took their toll, data showed on Friday.`\
-https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-europe-vehicleregistrations-march.html?searchResultPosition=9
+**Being a Good Roommate During Coronavirus: Dos and Don’ts**\
+`In most zombie movies, there’s usually someone who endangers the lot. Don’t let that be you.`\
+https://nytimes.com/article/coronavirus-roommates.html?searchResultPosition=9
 
-**Global Hunger Could Double Due to COVID-19 Blow: UN**\
-`The number of people facing acute food insecurity could nearly double this year to 265 million due to the economic fallout of COVID-19, the United Nations' World Food Programme (WFP) said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/21/us/21reuters-health-coronavirus-un-food.html?searchResultPosition=10
+**Coronavirus in N.Y.C.: Latest Updates**\
+`Fewer than 500 died of the coronavirus in New York State, the lowest single-day toll in more than two weeks.`\
+https://nytimes.com/2020/04/21/nyregion/coronavirus-nyc.html?searchResultPosition=10
 
