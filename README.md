@@ -1,4 +1,4 @@
-**Exclusive: Lord & Taylor Explores Bankruptcy as Stores Remain Shut in Coronavirus Pandemic-Sources**\
+**Exclusive: Lord & Taylor Explores Bankruptcy as Stores Remain Shut in Coronavirus Pandemic**\
 `Lord & Taylor is exploring filing for bankruptcy protection after it was forced to temporarily shut all of its 38 U.S. department stores in the wake of the coronavirus outbreak, people familiar with the matter said on Monday.`\
 https://nytimes.com/reuters/2020/04/20/business/20reuters-lord-taylor-bankruptcy-exclusive.html?searchResultPosition=4
 
@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/04/20/world/asia/20reuters-health-coronavirus-a
 `California regulators are being advised to approve Pacific Gas & Electric's plan for getting out of bankruptcy with new controls designed to prevent a recurrence of the utility's past bad behavior that has resulted in deadly wildfires, infuriating blackouts and high electricity rates.`\
 https://nytimes.com/aponline/2020/04/20/business/bc-us-california-wildfires-utility.html?searchResultPosition=7
 
-**Panama Posts Nearly 200 New Coronavirus Cases: Health Ministry**\
-`Panama registered 191 new cases of the coronavirus on Monday, bringing the country's total to 4,658 cases, the health ministry said.`\
+**Panama Posts Nearly 200 New Coronavirus Cases, Extends Flights Ban**\
+`Panama registered 191 new cases of the coronavirus on Monday, bringing the country's total to 4,658 cases, the Health Ministry said.`\
 https://nytimes.com/reuters/2020/04/20/world/americas/20reuters-health-coronavirus-panama.html?searchResultPosition=8
 
 **Indebted Virgin Australia Goes Into Voluntary Administration**\
