@@ -1,8 +1,8 @@
-**US Appeals Order to Give Detained Migrants Beds in Arizona**\
-`The Trump administration on Monday appealed a federal court order requiring the U.S. Border Patrol to provide beds, blankets, showers, quality food and medical evaluations to migrants held in many Arizona facilities longer than 48 hours.`\
-https://nytimes.com/aponline/2020/04/20/us/ap-us-border-patrol-freezing-cells-.html?searchResultPosition=9
+**Coronavirus to Impoverish Millions of Children in Middle East: UNICEF**\
+`Millions of children in the Middle East will become poorer as their caregivers lose jobs from lockdowns aimed at stemming the spread of coronavirus across the region, according to the U.N. Children's Fund (UNICEF).`\
+https://nytimes.com/reuters/2020/04/20/world/middleeast/20reuters-health-coronavirus-mideast-children.html?searchResultPosition=9
 
-**'One World' Celebrity Special for Coronavirus Draws 21 Million Americans**\
-`Almost 21 million Americans watched the "One World: Together At Home" global special on Saturday in support of frontline workers battling the coronavirus pandemic, according to Nielsen data released on Monday.`\
-https://nytimes.com/reuters/2020/04/20/arts/20reuters-health-coronavirus-one-world.html?searchResultPosition=10
+**Japan Told IOC It Would Pay for Cost of Postponing Olympics: Kyodo Citing IOC**\
+`Japanese Prime Minister Shinzo Abe has agreed that his country would shoulder the cost of postponing the Olympics - estimated at around $3 billion - in line with the existing contract, Kyodo news agency said, citing the International Olympic Committee.`\
+https://nytimes.com/reuters/2020/04/20/sports/olympics/20reuters-health-coronavirus-olympics.html?searchResultPosition=10
 
