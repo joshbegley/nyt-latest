@@ -1,8 +1,8 @@
-**Trump Says He Will Suspend All Immigration Into U.S. Over Coronavirus**\
-`President Donald Trump said on Monday he will suspend all immigration into the United States temporarily through an executive order in response to the coronavirus outbreak and to protect American jobs.`\
-https://nytimes.com/reuters/2020/04/21/us/21reuters-health-coronavirus-usa-immigration.html?searchResultPosition=9
+**Trump to Consider Halting Saudi Oil Imports, Says U.S. Has 'Plenty'**\
+`President Donald Trump said on Monday that his administration was considering the possibility of stopping incoming Saudi Arabian crude oil shipments as a measure to support the battered domestic drilling industry.`\
+https://nytimes.com/reuters/2020/04/21/business/21reuters-global-oil-trump.html?searchResultPosition=9
 
-**Fast Retailing Plans to Reopen Two Uniqlo Stores in Berlin This Week**\
-`Casual clothing chain Uniqlo plans to reopen two stores in Berlin this week, the first in Europe to resume business after nearly all of its stores there were closed due to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/21/business/21reuters-health-coronavirus-fast-retailing.html?searchResultPosition=10
+**In India, a Pandemic of Prejudice and Repression**\
+`The coronavirus outbreak has allowed authoritarianism and anti-Muslim sentiment to flourish.`\
+https://nytimes.com/2020/04/21/opinion/coronavirus-india.html?searchResultPosition=10
 
