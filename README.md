@@ -1,8 +1,8 @@
-**The Half a Trillion Dollar British Money Transfusion That May Not Be Enough**\
-`It took Lucio and Meera Santoro 35 years to build up their London design company and just a week to watch it fall apart. `\
-https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-britain-companies.html?searchResultPosition=9
+**UK Parliament: Holding Feet to the Fire via Zoom?**\
+`Britain's House of Commons, where lawmakers notoriously jeer at rivals seated two sword-lengths away, is about to find out whether it can make ministers sweat over Zoom.`\
+https://nytimes.com/reuters/2020/04/21/technology/21reuters-health-coronavirus-britain-parliament.html?searchResultPosition=9
 
-**LabCorp to Launch At-Home Coronavirus Test Among Healthcare Workers**\
-`LabCorp said on Tuesday its at-home coronavirus testing kits had won U.S. authorization and it would work to make the tests available to healthcare workers who may have been exposed to the virus or may be symptomatic.`\
-https://nytimes.com/reuters/2020/04/21/us/21reuters-health-coronavirus-laboratory-corp.html?searchResultPosition=10
+**Thailand Approves $3 Billion in Relief Measures to Ease Virus Impact**\
+`Thailand's cabinet approved 98.7 billion baht ($3 billion) in relief measures on Tuesday to help mitigate the impact of the coronavirus outbreak, which is driving the country towards recession.`\
+https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronarivus-thailand-measures.html?searchResultPosition=10
 
