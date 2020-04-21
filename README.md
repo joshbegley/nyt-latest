@@ -1,8 +1,8 @@
-**Coronavirus Very Likely of Animal Origin, No Sign of Lab Manipulation-WHO**\
-`The World Health Organization (WHO) said on Tuesday that all available evidence suggests that the novel coronavirus originated in bats in China late last year and it was not manipulated or constructed in a laboratory.`\
-https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-who-virus.html?searchResultPosition=9
+**LSE Says No Plans to Revisit Savings Target From Refinitiv Deal**\
+`The London Stock Exchange said it has no plans to change its targets for synergies from its planned $27 billion takeover of data and analytics company Refinitiv.`\
+https://nytimes.com/reuters/2020/04/21/business/21reuters-lse-refinitiv.html?searchResultPosition=9
 
-**Japan Waiting for Golden Week to Decide on Extending Coronavirus Emergency: Sources**\
-`Japan will decide during its Golden Week holiday between April 29 and May 6 whether to extend its month-long state of emergency to fight a widening coronavirus outbreak, government and ruling party sources told Reuters on Tuesday.`\
-https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronavirus-japan-emergency.html?searchResultPosition=10
+**London Stock Exchange Committed to Refinitiv Deal in Pandemic-Hit Markets**\
+`The London Stock Exchange said on Tuesday it was committed to completing its $27 billion takeover of data company Refinitiv in the second half of the year, with no plans to revise its savings targets for the deal as a deep recession beckons.`\
+https://nytimes.com/reuters/2020/04/21/business/21reuters-lse-results.html?searchResultPosition=10
 
