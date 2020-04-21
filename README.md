@@ -1,8 +1,8 @@
-**Finding the Magic of Cinema in the Tedium of Quarantine**\
-`A Greek festival invited some top art-house filmmakers to create short movies about the lockdown experience. Here are five.`\
-https://nytimes.com/2020/04/21/movies/thessaloniki-film-festival-short-films-lockdown.html?searchResultPosition=9
+**COVID-19 Epidemic Could Fragment Euro Zone, Single Market: Eurogroup Head**\
+`The coronavirus pandemic, if not properly addressed, could cause fragmentation of the European Union economy, undermining the bloc's single market and single currency, the head of euro zone finance ministers Mario Centeno told European Parliament.`\
+https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-eurozone-centeno.html?searchResultPosition=9
 
-**Former UCLA Soccer Coach to Plead Guilty in Admissions Scam**\
-`The former University of California at Los Angeles men's soccer coach will plead guilty to taking $200,000 in bribes as part of the college admissions cheating scheme, federal prosecutors said Tuesday. `\
-https://nytimes.com/aponline/2020/04/21/us/ap-us-college-admissions-bribery.html?searchResultPosition=10
+**Speculative Bet or Inflation Hedge? Bitcoin in the Coronavirus Crisis**\
+`Bitcoin has fared better than stocks but worse than gold and U.S. Treasuries during the coronavirus pandemic, with investors ascribing its performance to speculative bets and bids to hedge against inflation linked to stimulus measures. `\
+https://nytimes.com/reuters/2020/04/21/technology/21reuters-health-coronavirus-bitcoin-graphic.html?searchResultPosition=10
 
