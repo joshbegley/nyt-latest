@@ -1,8 +1,8 @@
-**Kentucky Lawmaker Who Ran for Governor Faces Assault Charge**\
-`A Kentucky lawmaker who challenged the state’s governor in last year’s Republican primary was arrested Tuesday on strangulation and assault charges.`\
-https://nytimes.com/aponline/2020/04/21/us/ap-us-kentucky-lawmaker-arrested.html?searchResultPosition=9
+**Moroccan Prison Becomes Coronavirus Hotspot**\
+`Sixty-eight people, mostly staff, have come down with the coronavirus at a prison in the southern Moroccan city of Ouarzazate, prison authorities said on Tuesday, without reporting any deaths. `\
+https://nytimes.com/reuters/2020/04/21/world/africa/21reuters-health-coronavirus-morocco.html?searchResultPosition=9
 
-**Uganda Detains Prominent Journalist for 'Subversive' Activities**\
-`Police in Uganda said on Tuesday they had arrested a prominent journalist and news anchor at one of the country's biggest TV stations for alleged subversive activities.`\
-https://nytimes.com/reuters/2020/04/21/world/africa/21reuters-uganda-rights.html?searchResultPosition=10
+**Czechs to Test 27,000 People to Gauge Coronavirus Antibodies**\
+`The Czech Republic will test 27,000 people for coronavirus antibodies to gain information on how many came into contact with the infection, officials said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-czech.html?searchResultPosition=10
 
