@@ -1,8 +1,8 @@
-**U.S. Oil Prices Plunge Into Negative Territory: Live Updates**\
-`The latest on stock market and business news during the coronavirus outbreak.`\
-https://nytimes.com/2020/04/21/business/stock-market-today-coronavirus.html?searchResultPosition=9
+**Fast Retailing Plans to Reopen Two Uniqlo Stores in Berlin This Week**\
+`Casual clothing chain Uniqlo plans to reopen two stores in Berlin this week, the first in Europe to resume business after nearly all of its stores there were closed due to the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/21/business/21reuters-health-coronavirus-fast-retailing.html?searchResultPosition=9
 
-**AP: Publicly Traded Firms Get $300M in Small-Business Loans**\
-`Companies with thousands of employees, past penalties from government investigations and risks of financial failure even before the coronavirus walloped the economy were among those receiving millions of dollars from a relief fund that Congress created to help small businesses through the crisis, an Associated Press investigation found.`\
-https://nytimes.com/aponline/2020/04/21/business/bc-us-virus-outbreak-loans.html?searchResultPosition=10
+**Germany's Confirmed Coronavirus Cases Rise by 1,785 to 143,457: RKI**\
+`Germany's confirmed coronavirus cases rose by 1,785 to 143,457, data from the Robert Koch Institute (RKI) for infectious diseases showed on Tuesday, marking a slight increase in the number of new infections after two days of declines.`\
+https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-germany-cases.html?searchResultPosition=10
 
