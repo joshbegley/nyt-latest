@@ -1,8 +1,8 @@
-**Spain's Service Sector Created Net Jobs in Mid-April After March Layoffs**\
-`Spanish labour minister Yolanda Diaz said on Tuesday the country's services sector started creating net jobs last week, marking a slight improvement after companies massively laid off workers in March, but overall unemployment still rose in April. `\
-https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-spain-jobs.html?searchResultPosition=9
+**World Bank Tells G20: Pandemic Threatens Food Security of Poor, Stop Hoarding Food**\
+`The poorest countries in the world face food insecurity and malnutrition due to the pandemic, a drop in foreign exchange earnings, export restrictions on food and the breakdown of supply chains, a senior World Bank official said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/21/world/21reuters-health-coronavirus-food-worldbank.html?searchResultPosition=9
 
-**Bosnian Police Move Migrants to Emergency Tent Camp**\
-`Police in Bosnia on Tuesday began moving hundreds of migrants and refugees off the streets of the northwestern city of Bihac and transferring them into a nearby emergency tent camp set up amid the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/04/21/world/europe/ap-eu-europe-migrants.html?searchResultPosition=10
+**U.S. Could See Biggest Ever Second-Quarter GDP Decline: White House Adviser Hassett**\
+`White House economic adviser Kevin Hassett said on Tuesday the current dip of negative oil prices is due to a "very short-run thing" - the coronavirus pandemic - and that a decline in second quarter gross domestic could be the biggest ever posted.`\
+https://nytimes.com/reuters/2020/04/21/business/21reuters-health-coronavirus-usa-hasssett.html?searchResultPosition=10
 
