@@ -1,8 +1,8 @@
-**Biden's Campaign Steps Up Fundraising, Gathers $46.7 Million in March**\
-`Former U.S. Vice President Joe Biden raised $46.7 million in March for his presidential campaign, the largest one-month haul of his bid, Biden's campaign said on Monday.`\
-https://nytimes.com/reuters/2020/04/20/us/politics/20reuters-usa-election-fundraising-biden.html?searchResultPosition=9
+**Speculation About Kim Jong-Un’s Health After His Absence From Key Events**\
+`North Korea’s leader underwent a cardiovascular procedure earlier this month, according to a South Korean media report citing unidentified sources in the North.`\
+https://nytimes.com/2020/04/20/world/asia/Kim-jong-un-coronavirus.html?searchResultPosition=9
 
-**‘Better Call Saul’: Rhea Seehorn on Kim’s Dark Turn**\
-`The Season 5 finale turns Jimmy and Kim’s dynamic on its head, and sets up a possible mortal threat for next season, the show’s last.`\
-https://nytimes.com/2020/04/20/arts/television/better-call-saul-rhea-seehorn.html?searchResultPosition=10
+**When E.V.O.O. Met Chocolate**\
+`A sweet confection was born. Kosterina now sells dark chocolate bars blended with olive oil.`\
+https://nytimes.com/2020/04/20/dining/olive-oil-chocolate-bar.html?searchResultPosition=10
 
