@@ -1,8 +1,8 @@
-**World Bank Tells G20: Pandemic Threatens Food Security of Poor, Stop Hoarding Food**\
-`The poorest countries in the world face food insecurity and malnutrition due to the pandemic, a drop in foreign exchange earnings, export restrictions on food and the breakdown of supply chains, a senior World Bank official said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/21/world/21reuters-health-coronavirus-food-worldbank.html?searchResultPosition=9
+**Latin America and Caribbean Poised for Worst Crisis in Decades as Pandemic Bites: U.N. Agency**\
+`The economies of Latin America and the Caribbean will contract by a record 5.3% in 2020 as the impacts of coronavirus ravage the region, unleashing the worst social and economic crisis in decades, according to a United Nations agency report on Tuesday. `\
+https://nytimes.com/reuters/2020/04/21/world/americas/21reuters-health-coronavirus-eclac.html?searchResultPosition=9
 
-**U.S. Could See Biggest Ever Second-Quarter GDP Decline: White House Adviser Hassett**\
-`White House economic adviser Kevin Hassett said on Tuesday the current dip of negative oil prices is due to a "very short-run thing" - the coronavirus pandemic - and that a decline in second quarter gross domestic could be the biggest ever posted.`\
-https://nytimes.com/reuters/2020/04/21/business/21reuters-health-coronavirus-usa-hasssett.html?searchResultPosition=10
+**Germany's BaFin Fines BlackRock for Late Filing of Voting Rights**\
+`The German financial markets watchdog BaFin said on Tuesday it had fined BlackRock Investment Management (UK) Ltd 744,000 euros ($809,000) for failure to file voting rights notifications in a timely way.`\
+https://nytimes.com/reuters/2020/04/21/business/21reuters-germany-regulation-blackrock.html?searchResultPosition=10
 
