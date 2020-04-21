@@ -1,8 +1,8 @@
-**Factbox: German Companies Seek State Aid to Cope With Coronavirus**\
-`A number of German companies, including Adidas and Lufthansa, have taken out government-guaranteed loans as part of the Germany's federal government's aid package to deal with the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-germany-companies-factbox.html?searchResultPosition=9
+**Doctors: Execution Drugs Could Help COVID-19 Patients**\
+`Secrecy surrounding executions could hinder efforts by a group of medical professionals who are asking the nation’s death penalty states for medications used in lethal injections so that they can go to coronavirus patients who are on ventilators, according to a death penalty expert and a doctor who's behind the request.`\
+https://nytimes.com/aponline/2020/04/21/business/bc-us-virus-outbreak-execution-drugs.html?searchResultPosition=9
 
-**Weary Algerians Fear Fresh Economic Turmoil as Oil Prices Dive**\
-`Algerians are watching the collapse of oil prices with alarm as the energy markets on which the North African nation relies for most of its export revenues have been plunged into turmoil by the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/04/21/world/africa/21reuters-global-oil-algeria.html?searchResultPosition=10
+**Watch Live: Cuomo Delivers Coronavirus Update for New York**\
+`Gov. Andrew Cuomo of New York provides the state’s latest coronavirus statistics before his meeting with President Trump about increasing testing.`\
+https://nytimes.com/video/us/politics/100000007098907/new-york-governor-andrew-cuomo-press-conference-coronavirus.html?searchResultPosition=10
 
