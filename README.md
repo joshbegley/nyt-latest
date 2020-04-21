@@ -1,8 +1,8 @@
-**Being a Good Roommate During Coronavirus: Dos and Don’ts**\
-`In most zombie movies, there’s usually someone who endangers the lot. Don’t let that be you.`\
-https://nytimes.com/article/coronavirus-roommates.html?searchResultPosition=9
+**Your Tuesday Briefing**\
+`Coronavirus, Immigration, Kim Jong-un: Here's what you need to know.`\
+https://nytimes.com/2020/04/21/briefing/coronavirus-immigration-kim-jong-un.html?searchResultPosition=9
 
-**Coronavirus in N.Y.C.: Latest Updates**\
-`Fewer than 500 died of the coronavirus in New York State, the lowest single-day toll in more than two weeks.`\
-https://nytimes.com/2020/04/21/nyregion/coronavirus-nyc.html?searchResultPosition=10
+**Coronavirus Live Updates: Trump Says He Will Suspend Immigration**\
+`President Trump announced the temporary ban in a late-night tweet with few details. The worldwide death toll from the pandemic is far higher than official counts suggest, according to a Times analysis.`\
+https://nytimes.com/2020/04/21/us/coronavirus-updates.html?searchResultPosition=10
 
