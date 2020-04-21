@@ -1,8 +1,8 @@
-**Twist, Bend, Reach, Step: A Merce Cunningham Solo Anyone Can Try**\
-`Though Cunningham is known for his tricky coordinations, the solo “50 Looks” is possibly his plainest. And it is being taught online.`\
-https://nytimes.com/2020/04/21/arts/dance/DIY-merce-cunningham.html?searchResultPosition=9
+**Barcelona to Sell Title Rights to Camp Nou to Raise Money**\
+`Barcelona will sell the title rights to its storied stadium for one year in an effort to raise money for the fight against the coronavirus.`\
+https://nytimes.com/aponline/2020/04/21/sports/soccer/ap-soc-barcelona-camp-nou.html?searchResultPosition=9
 
-**Earth Day’s Gone Digital. Here’s Where to Find It.**\
-`New York offers many ways to celebrate online. You can hike, play environmental games, conduct experiments, meet scientists and blast into space — all without leaving home.`\
-https://nytimes.com/2020/04/21/arts/design/earth-day-digital-coronavirus.html?searchResultPosition=10
+**Under Cover of Coronavirus, Hong Kong Cracks Down on Protest Movement**\
+`The antigovernment demonstrations that shook the Chinese territory last year have eased since the coronavirus outbreak, but a spate of arrests and Beijing’s assertive rhetoric could revive them.`\
+https://nytimes.com/2020/04/21/world/asia/coronavirus-hong-kong-protests.html?searchResultPosition=10
 
