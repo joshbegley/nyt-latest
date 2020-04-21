@@ -1,8 +1,8 @@
-**Moroccan Prison Becomes Coronavirus Hotspot**\
-`Sixty-eight people, mostly staff, have come down with the coronavirus at a prison in the southern Moroccan city of Ouarzazate, prison authorities said on Tuesday, without reporting any deaths. `\
-https://nytimes.com/reuters/2020/04/21/world/africa/21reuters-health-coronavirus-morocco.html?searchResultPosition=9
+**Bosnian Police Move Migrants to Emergency Tent Camp**\
+`Police in Bosnia on Tuesday began moving hundreds of migrants and refugees off the streets of the northwestern city of Bihac and transferring them into a nearby emergency tent camp set up amid the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/04/21/world/europe/ap-eu-europe-migrants.html?searchResultPosition=9
 
-**Czechs to Test 27,000 People to Gauge Coronavirus Antibodies**\
-`The Czech Republic will test 27,000 people for coronavirus antibodies to gain information on how many came into contact with the infection, officials said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-czech.html?searchResultPosition=10
+**U.S. House Leader Recommends Remote Work, Amid Coronavirus**\
+`A top U.S. House of Representatives Democrat recommended measures on Tuesday to allow members to vote and do committee work remotely, even when they are back in Washington, to comply with social distancing guidelines to prevent the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/04/21/us/politics/21reuters-health-coronavirus-usa-remote.html?searchResultPosition=10
 
