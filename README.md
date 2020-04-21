@@ -1,8 +1,8 @@
-**What You Need to Know About the Coronavirus Right Now**\
-`Here's what you need to know about the coronavirus right now:`\
-https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronavirus-snapshot.html?searchResultPosition=9
+**NFL Prospect Only Played in Two High School Games**\
+`Like any high school football star, Davion Taylor proudly wore his jersey to class on Friday, sauntered into the pep assembly and chowed down the pregame meal with his teammates.`\
+https://nytimes.com/aponline/2020/04/21/sports/football/ap-fbn-nfl-draft-faith-football.html?searchResultPosition=9
 
-**Muslims Try to Keep Ramadan Spirit Amid Virus Restrictions**\
-`Every year during Ramadan, the Light of Muhammad Mosque sets up long tables on the street and dishes up free meals at sunset for the poor to break their daily fast. It’s a charity that many rely on in this impoverished district on the edge of the Egyptian capital.`\
-https://nytimes.com/aponline/2020/04/21/world/middleeast/ap-ml-virus-outbreak-ramadan.html?searchResultPosition=10
+**On This Day: Died April 22, 2004; Pat Tillman, American Football Player**\
+`The word hero is overused in sport but it truly applies to Pat Tillman, who bravely traded a successful multi-million dollar NFL career to enlist in the U.S. Army in the wake of the Sept. 11 attacks on the United States.`\
+https://nytimes.com/reuters/2020/04/21/sports/football/21reuters-sport-anniversary-tillman.html?searchResultPosition=10
 
