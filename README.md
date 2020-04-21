@@ -1,8 +1,8 @@
-**UK Has Funneled 6 Billion Pounds to Small Firms via COVID Grants: Ministry**\
-`Small companies in Britain have received 6.1 billion pounds of a total 12 billion pounds available in emergency grants to help them withstand the coronavirus crisis, a finance ministry spokesman said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-britain-grants.html?searchResultPosition=9
+**NYC Mayor: Don't Jump the Gun on Easing Virus Restrictions**\
+`New York City Mayor Bill de Blasio said Tuesday that if governors of states such as Georgia start to ease coronavirus restrictions they had better have the facts on their side or they could enable a resurgence of the virus beyond their states' borders.`\
+https://nytimes.com/aponline/2020/04/21/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=9
 
-**Schumer Says He Sees U.S. Senate Deal on Coronavirus Funding Bill**\
-`U.S. Senate Democratic Leader Chuck Schumer said on Tuesday he thinks Republicans and Democrats have agreed on a fourth coronavirus spending bill, and that the Trump administration has also agreed to a national testing strategy.`\
-https://nytimes.com/reuters/2020/04/21/us/politics/21reuters-health-coronavirus-usa-congress.html?searchResultPosition=10
+**Murder Charges Filed Against German Synagogue Attack Suspect**\
+`German prosecutors said Tuesday they have charged the suspect in last year’s botched attack on a synagogue in the eastern city of Halle with murder and attempted murder, among other offenses.`\
+https://nytimes.com/aponline/2020/04/21/world/europe/ap-eu-germany-synagogue-attack.html?searchResultPosition=10
 
