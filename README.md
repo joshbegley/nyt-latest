@@ -1,8 +1,8 @@
-**On Politics: Trump Pledges to Halt Immigration**\
-`Lawmakers argue over virus testing, and restrictions begin to lift: This is your morning tip sheet.`\
-https://nytimes.com/2020/04/21/us/politics/coronavirus-testing-trump.html?searchResultPosition=9
+**China Finds African Swine Fever in Pigs in Sichuan Province**\
+`China's agriculture ministry said on Tuesday it had detected the deadly African swine fever virus in pigs transported to the southwestern province of Sichuan.`\
+https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-china-swinefever.html?searchResultPosition=9
 
-**Pandemic Is Dealing European Tourism 'Staggering' Blow**\
-`The European Union says its vaunted tourist industry is facing “staggering” figures of decline because of the coronavirus crisis and the bloc's internal market commissioner wants the sector to be first in line when it comes to recovery funds. `\
-https://nytimes.com/aponline/2020/04/21/business/bc-eu-virus-outbreak-tourism-crisis.html?searchResultPosition=10
+**Lululemon Apologises After Staffer Offends With 'Bat Fried Rice' T-Shirt**\
+`U.S. exercise apparel brand Lululemon issued statements on Tuesday apologising for, and distancing itself from, a T-shirt design promoted by one of its art directors that triggered outrage and accusations of racism online.`\
+https://nytimes.com/reuters/2020/04/21/business/21reuters-health-coronavirus-lululemon.html?searchResultPosition=10
 
