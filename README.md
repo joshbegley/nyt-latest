@@ -1,8 +1,8 @@
-**Northwest China Sees Return of Coronavirus Cases**\
-`A northwestern Chinese province on the frontline of the fight against coronavirus reported on Tuesday its first cases in nearly three weeks, all involving travellers from overseas, as imported infections in the rest of China started to ease. `\
-https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-china-toll.html?searchResultPosition=9
+**SAP Reverts to Sole CEO to Handle Coronavirus Pandemic**\
+`The coronavirus pandemic brought a six-month experiment in dual leadership at SAP to an abrupt end as the German business software group named Christian Klein as its sole CEO to provide clarity to its 400,000 clients.`\
+https://nytimes.com/reuters/2020/04/21/business/21reuters-sap-results.html?searchResultPosition=9
 
-**Bruised Hedge Funds Tentatively Looking for Risk Again**\
-`After a tough March, some hedge funds, emboldened by early signs of the coronavirus outbreak peaking in some of the biggest U.S. hot spots, have begun tentatively adding to risk.`\
-https://nytimes.com/reuters/2020/04/21/business/21reuters-health-coronavirus-hedgefunds-analysis.html?searchResultPosition=10
+**Two U.S. Warships in South China Sea Amid China-Malaysia Standoff**\
+`Two U.S. warships are operating in the South China Sea, the Navy said on Tuesday, with three regional security sources saying they were near an area of a standoff between China and Malaysia. `\
+https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-china-security-malaysia.html?searchResultPosition=10
 
