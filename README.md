@@ -1,8 +1,8 @@
-**Watchdog: Pandemic Worsening Threat to Global Media Freedom**\
-`Media watchdog Reporters Without Borders is sounding the alarm that the coronavirus pandemic  poses a threat for press freedom around the world.`\
-https://nytimes.com/aponline/2020/04/21/business/bc-eu-virus-outbreak-media-freedom.html?searchResultPosition=9
+**European Shares Tumble on Oil Crash, Dour Earnings**\
+`European stocks fell on Tuesday as the double whammy from a crash in U.S. crude to minus $40 per barrel and dismal first-quarter earnings reports spooked investors about the lasting damage to the global economy from the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-europe-stocks.html?searchResultPosition=9
 
-**German Oktoberfest Cancelled Due to Coronavirus**\
-`Germany's Oktoberfest, the world's largest folk festival, where revellers from all over the world gather to swig large quantities of beer, has been cancelled due to the coronavirus crisis, the southern state of Bavaria said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-oktoberfest.html?searchResultPosition=10
+**China Supports Hong Kong Government's Arrest of 15 Activists**\
+`China said on Tuesday it supported the Hong Kong government's decision to arrest 15 activists and said criticisms from the United States and Britain exposed their "political conspiracy" to back anti-China forces in the city. `\
+https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-hongkong-protests-china-hkmao.html?searchResultPosition=10
 
