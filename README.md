@@ -1,8 +1,8 @@
-**EU Heads Unlikely to Make Final Call on Coronavirus Economic Recovery on Thursday: Sources**\
-`European Union leaders meeting via videocall on Thursday are not expected to make any final decisions on exactly how to finance economic recovery from the coronavirus pandemic, diplomats and officials told Reuters. `\
-https://nytimes.com/reuters/2020/04/21/us/21reuters-health-coronavirus-eu-economy.html?searchResultPosition=9
+**Ferrari Rolls Out Coronavirus Testing to Get Staff Ready for Work**\
+`Workers at Ferrari are signing up en masse for voluntary coronavirus screening so they can return to work as soon as possible in an ambitious scheme that could serve as a blueprint for manufacturers desperate to resume production.`\
+https://nytimes.com/reuters/2020/04/21/business/21reuters-health-coronavirus-ferrari-tests.html?searchResultPosition=9
 
-**Word + Quiz: chiasmus**\
-`This word has appeared in one article on NYTimes.com in the past year.`\
-https://nytimes.com/2020/04/21/learning/word-quiz-chiasmus.html?searchResultPosition=10
+**BOJ Warns of Potential Financial System Risks Triggered by Pandemic**\
+`The coronavirus pandemic, if prolonged, could trigger a negative feedback loop in which a worsening economy threatens to destabilize Japan's financial system, the Bank of Japan warned on Tuesday.`\
+https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronavirus-boj-banks.html?searchResultPosition=10
 
