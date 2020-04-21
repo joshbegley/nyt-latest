@@ -1,8 +1,8 @@
-**Huawei First-Quarter Revenue Growth Slows Sharply Amid U.S. Ban, Virus Headwinds**\
-`Huawei Technologies' revenue growth slowed sharply in the first quarter but the world's top telecoms equipment supplier labeled the performance as "resilient" in light of pressure from the United States and the impact of the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/04/21/business/21reuters-huawei-tech-results.html?searchResultPosition=9
+**UK Parliament to Hold Virtual Debates Amid Virus Lockdown**\
+`Britain’s Parliament is going back to work, and the political authorities have a message for lawmakers: Stay away.`\
+https://nytimes.com/aponline/2020/04/21/world/europe/ap-eu-virus-outbreak-britain-virtual-parliament.html?searchResultPosition=9
 
-**Lesson of the Day: ‘The Daily | The Next Year (or Two) of the Pandemic’**\
-`What is next for the United States? In this lesson, students will understand the path out of the pandemic.`\
-https://nytimes.com/2020/04/21/learning/lesson-of-the-day-the-daily-the-next-year-of-the-pandemic.html?searchResultPosition=10
+**The Latest: South Korean Baseball Season to Start May 5**\
+`The Latest on the effects of the coronavirus outbreak on sports around the world:`\
+https://nytimes.com/aponline/2020/04/21/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=10
 
