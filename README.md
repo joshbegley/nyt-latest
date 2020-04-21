@@ -1,8 +1,8 @@
-**LSE Says No Plans to Revisit Savings Target From Refinitiv Deal**\
-`The London Stock Exchange said it has no plans to change its targets for synergies from its planned $27 billion takeover of data and analytics company Refinitiv.`\
-https://nytimes.com/reuters/2020/04/21/business/21reuters-lse-refinitiv.html?searchResultPosition=9
+**Coca-Cola Sees Second Quarter Sales Hit From Coronavirus Lockdown**\
+`Coca-Cola Co on Tuesday forecast a significant hit to current-quarter results as restaurants, theaters and other venues that represent about half of the company's revenue remain closed because of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/21/business/21reuters-coca-cola-results.html?searchResultPosition=9
 
-**London Stock Exchange Committed to Refinitiv Deal in Pandemic-Hit Markets**\
-`The London Stock Exchange said on Tuesday it was committed to completing its $27 billion takeover of data company Refinitiv in the second half of the year, with no plans to revise its savings targets for the deal as a deep recession beckons.`\
-https://nytimes.com/reuters/2020/04/21/business/21reuters-lse-results.html?searchResultPosition=10
+**Congo Artisanal Cobalt Programme Expands With Industry Backing**\
+`A programme to monitor and improve artisanal cobalt mines in Democratic Republic of Congo will double the number of mining sites it covers this year through a partnership between RCS Global and the Responsible Minerals Initiative. `\
+https://nytimes.com/reuters/2020/04/21/world/africa/21reuters-congo-mining-cobalt.html?searchResultPosition=10
 
