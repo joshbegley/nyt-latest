@@ -1,8 +1,8 @@
-**Speculation About Kim Jong-Un’s Health After His Absence From Key Events**\
-`North Korea’s leader underwent a cardiovascular procedure earlier this month, according to a South Korean media report citing unidentified sources in the North.`\
-https://nytimes.com/2020/04/20/world/asia/Kim-jong-un-coronavirus.html?searchResultPosition=9
+**Brady Told to Leave Park Closed Due to COVID-19, Says Tampa Mayor**\
+`Six-times Super Bowl-winning quarterback Tom Brady was told to leave a Tampa park that had been closed as part of measures to curb the spread of the new coronavirus, the city's mayor said on Monday.`\
+https://nytimes.com/reuters/2020/04/20/sports/football/20reuters-health-coronavirus-nfl-brady.html?searchResultPosition=9
 
-**When E.V.O.O. Met Chocolate**\
-`A sweet confection was born. Kosterina now sells dark chocolate bars blended with olive oil.`\
-https://nytimes.com/2020/04/20/dining/olive-oil-chocolate-bar.html?searchResultPosition=10
+**Trump Says He'll 'Suspend Immigration,' Offers No Details**\
+`President Donald Trump said Monday that he will sign an executive order “to temporarily suspend immigration into the United States” because of the coronavirus. `\
+https://nytimes.com/aponline/2020/04/20/us/politics/ap-virus-outbreak-trump-immigration.html?searchResultPosition=10
 
