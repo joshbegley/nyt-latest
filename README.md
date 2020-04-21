@@ -1,8 +1,8 @@
-**A Bridge for Tamarins**\
-`One of the world’s most spectacular primates has become a symbol of conservation in Brazil, where an overpass is being built over a major highway to keep the species going.`\
-https://nytimes.com/2020/04/21/science/tamarins-monkeys-brazil.html?searchResultPosition=9
+**Latest on the Spread of the Coronavirus Around the World**\
+`Reported cases of the coronavirus have crossed 2.46 million globally and 169,863 people have died, according to a Reuters tally as of 0200 GMT on Tuesday, with U.S. President Donald Trump saying he will suspend all immigration into the country.`\
+https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronavirus-latest-factbox.html?searchResultPosition=9
 
-**Italy to Start Easing Coronavirus Lockdown From May 4: PM Conte**\
-`Italy will announce before the end of this week its plans for the gradual reopening from a lockdown imposed to fight the coronavirus emergency that will be applied starting from May 4, Prime Minister Giuseppe Conte said on Tuesday. `\
-https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-italy-lockdown.html?searchResultPosition=10
+**AP PHOTOS: Traveling Circus Stays Put in Virus-Hit Italy**\
+`They say the show must go on, but the Rony Roller circus isn’t going anywhere right now.`\
+https://nytimes.com/aponline/2020/04/21/world/europe/bc-eu-virus-outbreak-italy-circus-photo-gallery.html?searchResultPosition=10
 
