@@ -1,9 +1,8 @@
-**Syrian War Monitor Says Israeli Strike Near Palmyra Kills 9**\
-`An Israeli airstrike in central Syria killed nine fighters, including six who were not Syrians and some who were loyal to the militant Hezbollah group, an opposition war monitor said Tuesday.`\
-https://nytimes.com/aponline/2020/04/21/world/middleeast/ap-ml-syria-israel.html?searchResultPosition=9
+**Streaming Service HBO Max to Launch on May 27**\
+`AT&T Inc's WarnerMedia said on Tuesday it's streaming service, HBO Max, will launch on May 27, featuring original shows like "Love Life", "Legendary" and new episodes of the popular "Looney Tunes Cartoons". `\
+https://nytimes.com/reuters/2020/04/21/arts/21reuters-at-t-hbo-max.html?searchResultPosition=9
 
-**Committed to a More Sustainable Future**\
-`Nordstrom is evolving its approach to customer service with environmental sustainability at the core.
-`\
-https://nytimes.com/paidpost/nordstrom/nordstrom-earth-day-ad-post/committed-to-a-more-sustainable-future.html?searchResultPosition=10
+**Coronavirus Hits Third Migrant Facility as Greece Plans to Ease Lockdown**\
+`Dozens of migrants in a hostel south of Greece tested positive for the novel coronavirus on Tuesday, hours after the government said it would open some public services on April 27 as part of a gradual easing of the nation's coronavirus lockdown.`\
+https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-greece.html?searchResultPosition=10
 
