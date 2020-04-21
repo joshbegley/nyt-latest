@@ -1,8 +1,8 @@
-**German Investors See Light at End of 'Very Long Tunnel'-ZEW**\
-`The mood among German investors improved in April as concerns about the impact of the coronavirus pandemic on Europe's largest economy seemed to have eased, a survey showed on Tuesday.`\
-https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-germany-economy-zew.html?searchResultPosition=9
+**Coronavirus Very Likely of Animal Origin, No Sign of Lab Manipulation-WHO**\
+`The World Health Organization (WHO) said on Tuesday that all available evidence suggests that the novel coronavirus originated in bats in China late last year and it was not manipulated or constructed in a laboratory.`\
+https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-health-coronavirus-who-virus.html?searchResultPosition=9
 
-**Coronavirus Shelter-At-Home Rules Upend U.S. Child Abuse Prevention System**\
-`A California case worker hears screaming as she tries to conduct a telephone session for a child abuse prevention agency; an Oregon doctor sees signs of abuse a teacher might have spotted days earlier.`\
-https://nytimes.com/reuters/2020/04/21/us/21reuters-health-coronavirus-usa-child-abuse.html?searchResultPosition=10
+**Japan Waiting for Golden Week to Decide on Extending Coronavirus Emergency: Sources**\
+`Japan will decide during its Golden Week holiday between April 29 and May 6 whether to extend its month-long state of emergency to fight a widening coronavirus outbreak, government and ruling party sources told Reuters on Tuesday.`\
+https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronavirus-japan-emergency.html?searchResultPosition=10
 
