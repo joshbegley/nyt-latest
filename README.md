@@ -1,8 +1,8 @@
-**Trump Criticism Aside, Governors Call for More Federal Help**\
-`A chorus of governors from both parties pushed back hard after President Donald Trump accused Democrats of playing “a very dangerous political game” by insisting there is a shortage of tests for coronavirus.`\
-https://nytimes.com/aponline/2020/04/21/us/politics/ap-us-virus-outbreak-washington.html?searchResultPosition=9
+**U.S. Oil Prices Plunge Into Negative Territory: Live Updates**\
+`The latest on stock market and business news during the coronavirus outbreak.`\
+https://nytimes.com/2020/04/21/business/stock-market-today-coronavirus.html?searchResultPosition=9
 
-**Virgin Australia Falls to Virus Crisis, Appoints Administrator to Find Investor**\
-`Virgin Australia Holdings Ltd on Tuesday succumbed to third-party led restructuring that could lead to a sale, making Australia's second-biggest airline the Asia-Pacific region's biggest victim of the coronavirus crisis gripping the industry.`\
-https://nytimes.com/reuters/2020/04/21/business/21reuters-health-coronavirus-virgin-australia.html?searchResultPosition=10
+**AP: Publicly Traded Firms Get $300M in Small-Business Loans**\
+`Companies with thousands of employees, past penalties from government investigations and risks of financial failure even before the coronavirus walloped the economy were among those receiving millions of dollars from a relief fund that Congress created to help small businesses through the crisis, an Associated Press investigation found.`\
+https://nytimes.com/aponline/2020/04/21/business/bc-us-virus-outbreak-loans.html?searchResultPosition=10
 
