@@ -1,8 +1,8 @@
-**Lebanese MPs Sprayed With Sanitizer at Makeshift Parliament**\
-`Lebanese MPs were sprayed with sanitizer as they arrived for a legislative session on Tuesday that was relocated from the Beirut parliament building to a theatre to allow for social distancing against the coronavirus.`\
-https://nytimes.com/reuters/2020/04/21/world/middleeast/21reuters-health-coronavirus-lebanon-parliament.html?searchResultPosition=9
+**Millennial Money: Put Whatever You Want on a Baby Registry**\
+`My husband and I want love and opportunity for our first baby, due this summer. We also want a $95 digital thermometer. And a $160 video monitor.`\
+https://nytimes.com/aponline/2020/04/21/business/ap-nerdwallet-millennial-money-baby-registry.html?searchResultPosition=9
 
-**Muted Celebrations as Britain's Queen Elizabeth Turns 94**\
-`Britain's Queen Elizabeth turned 94 on Tuesday but the coronavirus lockdown meant there was little fanfare to mark the occasion.`\
-https://nytimes.com/reuters/2020/04/21/arts/21reuters-britain-royals-queen.html?searchResultPosition=10
+**DealBook: You Have to Pay to Give Oil Away**\
+`The price of a barrel of oil dropped below zero, reflecting both short-term technical factors and long-term fundamentals. A recovery seems remote.`\
+https://nytimes.com/2020/04/21/business/dealbook/oil-price-negative.html?searchResultPosition=10
 
