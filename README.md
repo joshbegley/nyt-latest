@@ -1,8 +1,8 @@
-**Barcelona to Sell Title Rights to Camp Nou to Raise Money**\
-`Barcelona will sell the title rights to its storied stadium for one year in an effort to raise money for the fight against the coronavirus.`\
-https://nytimes.com/aponline/2020/04/21/sports/soccer/ap-soc-barcelona-camp-nou.html?searchResultPosition=9
+**Weekly News Quiz for Students: U.S. Funding Halt, SAT Exams, Global Concert**\
+`How well did you follow the news this past week? How many of these 10 questions can you get right?`\
+https://nytimes.com/interactive/2020/04/21/learning/21News-Quiz-for-Students.html?searchResultPosition=9
 
-**Under Cover of Coronavirus, Hong Kong Cracks Down on Protest Movement**\
-`The antigovernment demonstrations that shook the Chinese territory last year have eased since the coronavirus outbreak, but a spate of arrests and Beijing’s assertive rhetoric could revive them.`\
-https://nytimes.com/2020/04/21/world/asia/coronavirus-hong-kong-protests.html?searchResultPosition=10
+**Dealing With the Dead: The Female Undertakers of Harlem**\
+`There are 48 bodies in the basement of the funeral home in Harlem. Forty are in cardboard boxes, ready for cremation. The other eight are in the refrigerator, to be embalmed and buried. It will be weeks or months before they get either. `\
+https://nytimes.com/reuters/2020/04/21/us/21reuters-health-coronavirus-usa-mortuary-widerimage.html?searchResultPosition=10
 
