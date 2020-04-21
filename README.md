@@ -1,8 +1,8 @@
-**Google Drops Charges on Shopping Service to Counter Amazon's Surging Ad Sales**\
-`Google said on Tuesday it would stop charging merchants to place products on its Google Shopping search page as it looks to win e-commerce advertising business from Amazon.`\
-https://nytimes.com/reuters/2020/04/21/business/21reuters-google-amazon.html?searchResultPosition=9
+**What You Need to Know Today About the Virus Outbreak**\
+`Here are some of AP’s top stories Tuesday on the world’s coronavirus pandemic. Follow APNews.com/VirusOutbreak for updates through the day and APNews.com/UnderstandingtheOutbreak for stories explaining some of its complexities.`\
+https://nytimes.com/aponline/2020/04/21/us/ap-us-virus-outbreak-whats-happening.html?searchResultPosition=9
 
-**Oil Price Collapse Threatens Global Economy: French Finance Minister**\
-`The collapse of crude oil prices threatens the global economy as it is already struggling to cope with the fallout from the coronavirus outbreak, French Finance Minister Bruno Le Maire said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/21/world/europe/21reuters-global-oil-france-economy.html?searchResultPosition=10
+**Will Democrats Fold Again?**\
+`They keep accepting flawed bills.`\
+https://nytimes.com/2020/04/21/opinion/coronavirus-stimulus-democrats.html?searchResultPosition=10
 
