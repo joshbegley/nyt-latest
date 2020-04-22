@@ -26,7 +26,7 @@ https://nytimes.com/2020/04/21/us/coronavirus-trump-harvard.html?searchResultPos
 `Japan's Nagasaki prefecture said on Wednesday it had confirmed 33 cases of coronavirus infection on an Italian cruise ship docked for repairs and would carry out further testing on other crew members.`\
 https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronavirus-japan-ship.html?searchResultPosition=7
 
-**Facebook Invests $5.7 Billion in India Internet Giant Jio**\
+**Facebook Invests $5.7 Billion in Indian Internet Giant Jio**\
 `It was the largest bet by the social network on the developing market, where millions of people have gone online in recent years.`\
 https://nytimes.com/2020/04/21/technology/facebook-jio-india.html?searchResultPosition=8
 
