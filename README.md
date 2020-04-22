@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/04/21/business/21reuters-expedia-group-stake.ht
 https://nytimes.com/aponline/2020/04/21/us/ap-us-boy-kills-sister-1st-ld-writethru.html?searchResultPosition=6
 
 **Trump Tells Chevron to 'Wind Down' Oil Fields in Venezuela**\
-`The Trump administration on Tuesday ordered Chevron Corp.`\
+`The Trump administration on Tuesday ordered Chevron Corp. to “wind down” operations in Venezuela by Dec. 1, barring the California-based oil giant in the meantime from drilling or exporting, as the U.S. increases pressure on President Nicolás Maduro to give up power. `\
 https://nytimes.com/aponline/2020/04/21/business/bc-lt-venezuela-chevron.html?searchResultPosition=7
 
 **Medtronic Sees Hit to Revenue as Hospitals Delay Elective Procedures**\
