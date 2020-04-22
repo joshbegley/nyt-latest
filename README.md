@@ -1,36 +1,36 @@
-**AP-NORC Poll: States Earn More Praise for Outbreak Response**\
-`To fight the spread of coronavirus, Americans are confined to their homes and public life is all but shuttered — and a majority say that’s the right call.`\
-https://nytimes.com/aponline/2020/04/22/us/politics/ap-us-ap-poll-virus-outbreak-glance.html?searchResultPosition=2
+**U.S. Treasury Market Faces Structural Issues Even as Liquidity Improves**\
+`The recent liquidity crisis in the $17 trillion U.S. Treasury market has exposed structural problems that are unlikely to be fixed any time soon, which could lead to new bouts of volatility and make it more costly for the U.S. government to sell bonds. `\
+https://nytimes.com/reuters/2020/04/22/business/22reuters-health-coronavirus-treasuryliquidity-analysis.html?searchResultPosition=2
 
-**'Incredibly Small' Chance of Mass Vaccine or Treatment in Next Year: UK Official**\
-`There is an "incredibly small" chance of having a highly effective vaccine or treatment for the coronavirus within the next year, England's Chief Medical Officer Chris Whitty said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-britain-timeline.html?searchResultPosition=3
+**Cash Is King as U.S. Quarterly Reporting Season Gains Steam**\
+`As the U.S. quarterly earnings season picks up steam this week, investors are getting a glimpse of how companies are weathering the coronavirus outbreak, including the strength of their balance sheets.`\
+https://nytimes.com/reuters/2020/04/22/business/22reuters-health-coronavirus-companies-cash-graphic.html?searchResultPosition=3
 
-**Center of 'Beastie Boys Story' Is Music. So Is Friendship.**\
-`Getting the Beastie Boys’ Michael “Mike D” Diamond and Adam “Ad-Rock” Horovitz and longtime collaborator and friend, Spike Jonze, together during normal times would be full of jokes, playful banter and overall fun.`\
-https://nytimes.com/aponline/2020/04/22/us/ap-us-music-beastie-boys.html?searchResultPosition=4
+**Finland Adopts Hybrid Strategy to Contain Coronavirus**\
+`Finland will adopt a hybrid strategy to move towards more normal life while still containing the coronavirus outbreak, Prime Minister Sanna Marin said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-finland.html?searchResultPosition=4
 
-**Putin's Problems Mount as Coronavirus Hits Russian Economy**\
-`It was meant to be the day Russians voted to change the constitution to allow President Vladimir Putin to extend his rule until 2036. `\
-https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-russia-putin-analysis.html?searchResultPosition=5
+**Exclusive: Quibi Downloads Reach 2.7 Million, Casting to TV to Start in May**\
+`New streaming service Quibi, which offers entertainment and news in episodes of 10 minutes or less on mobile phones, has been downloaded more than 2.7 million times since its April 6 debut, founder Jeffrey Katzenberg told Reuters on Wednesday.`\
+https://nytimes.com/reuters/2020/04/22/arts/22reuters-television-quibi-exclusive.html?searchResultPosition=5
 
-**Son of Russian Tycoon Gutseriyev Buys Bank in Belarus**\
-`Said Gutseriyev, a son of Russian tycoon Mikhail Gutseriyev, has bought Paritetbank in Belarus, the country's state property committee said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-belarus-banks-safmar.html?searchResultPosition=6
+**France Coronavirus Death Toll Close to Spain's, Still World's Fourth Highest**\
+`France registered a total of 21,340 deaths from coronavirus infections on Wednesday, an increase of 544 or 2.6%, the fourth-highest casualty tally in the world, but trailing just a few hundred behind Spain, which has a death toll of 21,717.`\
+https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-france-casualties.html?searchResultPosition=6
 
-**Pricing the Benefits of Cheap Oil in a World of Economic Lockdowns**\
-`The oil price collapse that took U.S. crude prices sub-zero for the first time in history may turn out to be a silver lining for the world economy, possibly offering a springboard for recovery when coronavirus lockdowns finally end.`\
-https://nytimes.com/reuters/2020/04/22/business/22reuters-health-coronavirus-oil-analysis.html?searchResultPosition=7
+**U.S. CDC Reports ﻿802,583 Coronavirus Cases, 44,575 Deaths**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Wednesday reported ﻿802,583 cases of the novel coronavirus, an increase of 26,490 from its previous count, and said the number of deaths had risen by 2,817 to 44,575.`\
+https://nytimes.com/reuters/2020/04/22/us/22reuters-health-coronavirus-usa-cdc.html?searchResultPosition=7
 
-**Kraft-Heinz Extends Factory Worker Bonuses in Pandemic**\
-`Kraft Heinz will extend for two weeks a $100 per week stipend for factory workers producing its packaged foods during the COVID-19 pandemic, the company said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/22/business/22reuters-health-coronavirus-kraft-heinz.html?searchResultPosition=8
+**Pakistani Doctors Urge Government to Reimpose Mosque Restrictions**\
+`Leading Pakistani doctors on Wednesday urged the government and clerics to reverse a decision to allow prayer congregations at mosques during the Muslim holy month of Ramadan, warning that the spread of coronavirus could spiral out of control. `\
+https://nytimes.com/reuters/2020/04/22/world/asia/22reuters-health-coronavirus-pakistan.html?searchResultPosition=8
 
-**WHO Says It Hopes U.S. Will Reconsider Funding, but Focus Is on Ending Pandemic**\
-`The head of the World Health Organization (WHO) said on Wednesday that he hoped the Trump administration would reconsider its suspension of funding, but that his main focus was on ending the pandemic and saving lives.`\
-https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-who-usa.html?searchResultPosition=9
+**Residents of Syrian Village Hurl Stones at U.S. Convoy**\
+`Residents of a northeastern Syrian village blocked a road and threw stones at a U.S. military convoy Wednesday forcing it to leave the area, state media and an opposition war monitor reported. It was the second such incident in the region in two months. `\
+https://nytimes.com/aponline/2020/04/22/world/middleeast/ap-ml-syria.html?searchResultPosition=9
 
-**U.S. Auto Sales Begin Recovery From March Coronavirus Drop: J.D. Power Analysts**\
-`Auto retail sales in the United States are beginning to recover from a massive slump in March due to the outbreak of the coronavirus and nationwide stay-at-home orders, according to analysts at research firm J.D. Power on Wednesday.`\
-https://nytimes.com/reuters/2020/04/22/business/22reuters-health-coronavirus-usa-autos.html?searchResultPosition=10
+**Five Artists to Follow on Instagram Now**\
+`Sketches from Kara Walker, wild designs from a hot architect-turned-artist, and a photo diary from Bedford-Stuyvesant, Brooklyn.`\
+https://nytimes.com/2020/04/22/arts/design/five-artists-to-follow-instagram.html?searchResultPosition=10
 
