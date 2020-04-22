@@ -1,36 +1,36 @@
+**The ‘2 Lizards’ of Instagram Are Coronavirus Art Stars**\
+`Meriem Bennani and Orian Barki are building a world of animated anxiety and resistance aimed at phones.`\
+https://nytimes.com/2020/04/22/arts/lizards-instagram-coronavirus-stars.html?searchResultPosition=2
+
+**Editorial Roundup: US**\
+`Excerpts from recent editorials in the United States and abroad:`\
+https://nytimes.com/aponline/2020/04/22/us/ap-us-editorial-rdp-.html?searchResultPosition=3
+
+**Closing Prices for Crude Oil, Gold and Other Commodities**\
+`Benchmark U.S. crude oil for June delivery rose $2.21, or 19.1%, to close at $13.78 a barrel Wednesday. Brent crude oil, the international standard, rose $1.04, or 5.4%, $20.37 a barrel.`\
+https://nytimes.com/aponline/2020/04/22/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=4
+
+**The Bridesmaids Wore Masks: Colombian Couple Meets, Marries in Coronavirus Shelter**\
+`The wedding was traditional - a white dress for the bride, a suit for the groom and a large entourage of around 240 guests. `\
+https://nytimes.com/reuters/2020/04/22/world/americas/22reuters-health-coronavirus-colombia-wedding.html?searchResultPosition=5
+
+**Ex-Georgian President Saakashvili Poised for Another Political Comeback in Ukraine**\
+`The former president of Georgia, Mikheil Saakashvili, said on Wednesday he had been invited to become deputy prime minister of Ukraine in charge of driving reforms, in what would mark another comeback for the maverick politician.`\
+https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-ukraine-politics-saakashvili.html?searchResultPosition=6
+
+**Canada Police Face Criticism for Poor Communication During Mass Shooting**\
+`Canadian police are facing mounting criticism for using social media and not a provincial emergency alert system to notify the public that a gunman was at large for some 13 hours after he murdered the first of his 22 victims over the weekend.`\
+https://nytimes.com/reuters/2020/04/22/world/americas/22reuters-canada-crime-novascotia.html?searchResultPosition=7
+
+**US States Represent Patchwork as They Mull Economic Restarts**\
+`As governors around the country weigh reopening their economies amid the fight against COVID-19, a patchwork of stay-home orders and other business restrictions exist. `\
+https://nytimes.com/aponline/2020/04/22/us/ap-us-virus-outbreak-reopening-rundown.html?searchResultPosition=8
+
+**Sheriff: Man Wounded After Shootout With Florida Deputy**\
+`A man who had been driving a stolen pickup truck was wounded Wednesday afternoon following a shootout with a deputy near a Florida shopping center, authorities said.`\
+https://nytimes.com/aponline/2020/04/22/us/ap-us-deputy-shooting-florida.html?searchResultPosition=9
+
 **Luxury Hotel Company Benefits From $40 Million in Small-Business Funds**\
 `Two real estate investment trusts advised by Ashford Inc. tapped into Paycheck Protection Program funds through a Ritz Carlton in Atlanta and other luxury hotels.`\
-https://nytimes.com/2020/04/22/business/economy/coronavirus-small-business-loans-real-estate-trusts.html?searchResultPosition=2
-
-**Preparation, Quick Action Aid Germany, SKorea Virus Fight**\
-`Derided by many economists for years for insisting on a balanced budget and criticized for a health care system seen as bloated and overly expensive, Germany has found itself well equipped now to weather the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/22/business/ap-eu-virus-outbreak-germanys-way.html?searchResultPosition=3
-
-**Red Sox Stripped of Draft Pick, Cora Suspended for 2020**\
-`The Boston Red Sox were stripped of their second-round pick in this year’s amateur draft by Major League Baseball for breaking video rules in 2018 and former manager Alex Cora was suspended through the 2020 postseason for his previous conduct as bench coach with the Houston Astros.`\
-https://nytimes.com/aponline/2020/04/22/sports/baseball/ap-bba-red-sox-sign-stealing.html?searchResultPosition=4
-
-**Seven Confirmed COVID-19 Cases Linked to Wisconsin's April Elections**\
-`At least seven people contracted the coronavirus during Wisconsin's primary election on April 7, Milwaukee health officials said on Tuesday, confirming fears that holding in-person voting during the health crisis put people at risk.`\
-https://nytimes.com/reuters/2020/04/22/us/22reuters-health-coronavirus-wisconsin-election.html?searchResultPosition=5
-
-**Trump and Pakistan's Khan Discuss Coordination Against COVID-19**\
-`U.S. President Donald Trump and Pakistan Prime Minister Imran Khan on Wednesday discussed the global coronavirus pandemic and efforts to blunt its spread, the White House and the Pakistani leader's office said.`\
-https://nytimes.com/reuters/2020/04/22/world/asia/22reuters-health-coronavirus-usa-pakistan.html?searchResultPosition=6
-
-**House Democrats Retreat on Remote Voting as Republicans Clamor to Reopen**\
-`Speaker Nancy Pelosi scrapped a planned vote to change House rules to allow remote voting for the first time in Congress’s history, amid Republican opposition.`\
-https://nytimes.com/2020/04/22/us/politics/house-remote-voting-coronavirus.html?searchResultPosition=7
-
-**Hotels Become Barracks for Health Workers 'Going to War'**\
-`The tourists and conventioneers who once filled the rooms of The New Yorker hotel are long gone, driven away by the coronavirus, but its lobby is still bustling.`\
-https://nytimes.com/aponline/2020/04/22/business/ap-us-virus-outbreak-hotel-barracks.html?searchResultPosition=8
-
-**Tanzania's President Calls for Debt Forgiveness to Help Battle Virus**\
-`Tanzania's President John Magufuli called on international creditors on Wednesday to cancel debts owed by African nations to enable them use the savings to battle the coronavirus.`\
-https://nytimes.com/reuters/2020/04/22/world/africa/22reuters-health-coronavirus-tanzania.html?searchResultPosition=9
-
-**Muslim Grouping OIC Urges Help for Vulnerable States in Coronavirus Battle**\
-`The Organization of Islamic Cooperation (OIC) urged member states on Wednesday to help struggling Muslim states combat the coronavirus pandemic, particularly in Africa.`\
-https://nytimes.com/reuters/2020/04/22/world/middleeast/22reuters-health-coronavirus-oic.html?searchResultPosition=10
+https://nytimes.com/2020/04/22/business/economy/coronavirus-small-business-loans-real-estate-trusts.html?searchResultPosition=10
 
