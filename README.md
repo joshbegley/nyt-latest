@@ -1,40 +1,40 @@
+**Trump Says U.S. States Safely Reopening Despite Warnings of Virus Resurgence**\
+`President Donald Trump said on Wednesday that U.S. states are safely starting to reopen businesses, even as some public health officials warned that relaxing restrictions too quickly could trigger a new surge in cases of the coronavirus.`\
+https://nytimes.com/reuters/2020/04/22/us/politics/22reuters-health-coronavirus-usa.html?searchResultPosition=1
+
+**Euro Zone Economy Set for Deepest Recession on Record: Reuters Poll**\
+`The euro zone economy is already in its deepest recession on record, according to a Reuters poll of economists, who have stuck to a bleak outlook and worry the downturn might be even worse as coronavirus lockdowns across the bloc take their toll.`\
+https://nytimes.com/reuters/2020/04/22/business/22reuters-eurozone-economy-poll.html?searchResultPosition=2
+
+**Iran Says It Will Fare Better Than Others After Oil Crash Amid Battered Economy**\
+`Iran will not suffer as much as other countries from the oil price plunge as it is less reliant on crude exports, its president said on Wednesday, with the state budget depending far less than before on oil revenue due to U.S. sanctions. `\
+https://nytimes.com/reuters/2020/04/22/business/22reuters-iran-oil-rouhani.html?searchResultPosition=3
+
+**Iran's Zanganeh Says Oil Production Cut Should Be Taken Seriously**\
+`Oil producer countries should respect crude production cuts aimed at stabilizing the oil market, Iranian Oil Minister Bijan Zanganeh told state TV on Wednesday. `\
+https://nytimes.com/reuters/2020/04/22/business/22reuters-iran-oil-zanganeh.html?searchResultPosition=4
+
+**Climate Activist: Leaders Must Act in Unison During Crises**\
+`Teenage climate activist Greta Thunberg on Wednesday urged world leaders to act together, based on scientists' advice, in addressing major crises from the COVID-19 pandemic to global warming.`\
+https://nytimes.com/aponline/2020/04/22/world/europe/ap-eu-virus-outbreak-climate-thunberg.html?searchResultPosition=5
+
+**‘I Have to Look at It as a Blessing’: Mourning in a Pandemic**\
+`Wednesday: A California family navigates grief in the time of Covid-19. Also: Santa Clara County had two coronavirus deaths in February.`\
+https://nytimes.com/2020/04/22/us/coronavirus-california-funerals-nursing-homes.html?searchResultPosition=6
+
 **Federer Raises Prospect of Merging Men's and Women's Tours**\
 `Roger Federer raised the prospect of merging the governing bodies that oversee the men’s and women’s professional tennis tours on Wednesday.`\
-https://nytimes.com/aponline/2020/04/22/sports/tennis/ap-ten-federer-merging-tours.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/04/22/sports/tennis/ap-ten-federer-merging-tours.html?searchResultPosition=7
 
 **$600,000 Homes in Rhode Island, Colorado and Maryland**\
 `A 1725 cottage in Newport, a ranch house in Denver and a Queen Anne Victorian in Baltimore.`\
-https://nytimes.com/2020/04/22/realestate/600000-homes-in-rhode-island-colorado-and-maryland.html?searchResultPosition=2
+https://nytimes.com/2020/04/22/realestate/600000-homes-in-rhode-island-colorado-and-maryland.html?searchResultPosition=8
 
 **The (Video) Diary of Anne Frank**\
 `What if Anne Frank had been a vlogger? That’s the premise behind a new online series aimed at young people living in isolation right now.`\
-https://nytimes.com/2020/04/22/arts/anne-frank-video-diary.html?searchResultPosition=3
+https://nytimes.com/2020/04/22/arts/anne-frank-video-diary.html?searchResultPosition=9
 
 **Big Pandemic Feelings**\
 `My kid is asking existential questions I’m not equipped to answer.`\
-https://nytimes.com/2020/04/22/parenting/coronavirus-kid-questions.html?searchResultPosition=4
-
-**Trump Tweets He's Ordered Navy to Destroy Iranian Gunboats**\
-`Amid tensions with Iran, President Donald Trump said Wednesday on Twitter he has given orders for the Navy to “shoot down and destroy” any Iranian gunboats found to be harassing U.S. ships. `\
-https://nytimes.com/aponline/2020/04/22/us/politics/ap-us-trump-iran.html?searchResultPosition=5
-
-**France's Macron Says Now Not the Time for Pandemic Probe**\
-`French President Emmanuel Macron told the Australian prime minister now was not the time for an international investigation into the coronavirus pandemic and that the urgency was to act in unison before looking for who was at fault, an official said.`\
-https://nytimes.com/reuters/2020/04/22/world/asia/22reuters-health-coronavirus-australia-france.html?searchResultPosition=6
-
-**Trump Instructs U.S. Navy to Destroy Iranian Gunboats 'if They Harass Our Ships at Sea'**\
-`President Donald Trump said on Wednesday he had instructed the U.S. Navy to fire on any Iranian ships that harass it at sea, a week after 11 vessels from Iran's Islamic Revolutionary Guard Corps Navy (IRGCN) came dangerously close to U.S. ships in the Gulf.`\
-https://nytimes.com/reuters/2020/04/22/world/middleeast/22reuters-usa-iran-military.html?searchResultPosition=7
-
-**Vietnam to Ease Nationwide Coronavirus Lockdown**\
-`Vietnam, which has reported under 300 cases of coronavirus and no deaths since the first infections were detected in January, said on Wednesday it would start lifting tough movement restrictions as most of Southeast Asia remained in lockdown.`\
-https://nytimes.com/reuters/2020/04/22/world/asia/22reuters-health-coronavirus-vietnam.html?searchResultPosition=8
-
-**French Government: Remaining Vigilant Over Troubles in Paris Suburbs**\
-`The French government will be "extremely vigilant" over this week's violence in suburbs around Paris, even though it believes the unrest to be of a relatively low level, government spokeswoman Sibeth Ndiaye told a news briefing on Wednesday.`\
-https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-france-violence.html?searchResultPosition=9
-
-**Once Victims of Their Own Success, Belgian Tourist Spots Emptied by Coronavirus**\
-`Belgium's historic city centres of Bruges and Brussels, usually so busy with visitors that authorities have considered limiting tourists, are facing an unprecedented challenge as the coronavirus pandemic cuts tourism to zero, officials say.`\
-https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-belgium-tourism.html?searchResultPosition=10
+https://nytimes.com/2020/04/22/parenting/coronavirus-kid-questions.html?searchResultPosition=10
 
