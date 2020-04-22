@@ -1,36 +1,36 @@
-**Charlize Theron Launches Initiative to Fight Gender Violence**\
-`Actress Charlize Theron and her foundation are committing $1 million to coronavirus relief efforts, with half of that dedicated to fighting gender-based violence resulting from the outbreak.`\
-https://nytimes.com/aponline/2020/04/22/us/ap-us-virus-outbreak-theron-gender-violence.html?searchResultPosition=2
+**Rupert Murdoch, His Son Lachlan and Other Fox Executives Will Take Pay Cuts**\
+`The company behind Fox News, Fox Business and the Fox network is guarding against the pandemic’s economic fallout.`\
+https://nytimes.com/2020/04/22/business/media/rupert-murdoch-lachlan-murdoch-pay-cut-fox-coronavirus.html?searchResultPosition=2
 
-**Reliable Amazon Isn’t Anymore**\
-`Amazon no longer gets us everything we need and quickly. Will this affect our shopping habits for good?`\
-https://nytimes.com/2020/04/22/technology/coronavirus-amazon-shopping.html?searchResultPosition=3
+**Turkey Says Virus Outbreak Under Control, as Death Toll Rises by 117 to 2,376**\
+`Turkey has gotten the coronavirus outbreak under control, Health Minister Fahrettin Koca said on Wednesday, as data showed deaths from the virus increasing by 117 to 2,376, with 3,083 confirmed cases in the past 24 hours.`\
+https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-turkey.html?searchResultPosition=3
 
-**Chicago City Council Signs Off on New Police Superintendent**\
-`The Chicago City Council on Wednesday voted unanimously to approve the appointment of former Dallas Police Chief David Brown as the city's new police superintendent. `\
-https://nytimes.com/aponline/2020/04/22/us/ap-us-chicago-police-superintendent.html?searchResultPosition=4
+**Google Says State-Backed Hackers Increasing Coronavirus Phishing Attacks**\
+`Security experts at Alphabet Inc's Google have identified more than a dozen government-backed hacking groups using the COVID-19 pandemic as cover for phishing and malware attempts.`\
+https://nytimes.com/reuters/2020/04/22/business/22reuters-health-coronavirus-alphabet.html?searchResultPosition=4
 
-**The Best Way to Freeze Baked Goods**\
-`Here’s how to store biscuits, cookies, pie dough and more, so they taste just as good later.`\
-https://nytimes.com/2020/04/22/dining/freeze-baked-goods-coronavirus.html?searchResultPosition=5
+**WHO Chief Says 'Virus Will Be With Us for a Long Time'**\
+`The World Health Organization (WHO) said on Wednesday that there were "worrying upward trends" in early epidemics in parts of Africa and central and South America, while also warning that opening up global travel needed to be managed carefully.`\
+https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-who.html?searchResultPosition=5
 
-**A Cast Album I Love: ‘Twelfth Night’**\
-`We continue our cast album series with more recommendations for wonderful musicals to listen to at home`\
-https://nytimes.com/2020/04/22/theater/musical-cast-album-twelfth-night.html?searchResultPosition=6
+**U.S. Dentists Seeking to Conduct Coronavirus Testing Face Regulatory, Supply Hurdles**\
+`U.S. dental care providers are pushing for permission to test patients for the coronavirus, both to help augment a nationwide effort to combat its spread and shore up their own dwindling business, with most of the country still under stay-at-home orders. `\
+https://nytimes.com/reuters/2020/04/22/us/22reuters-health-coronavirus-testing-dentists.html?searchResultPosition=6
 
-**The Women Doctors Who Fought to Serve in World War I**\
-`In “No Man’s Land,” Wendy Moore chronicles the remarkable story of two female physicians who founded and ran a military hospital in London.`\
-https://nytimes.com/2020/04/22/books/no-mans-land-wendy-moore.html?searchResultPosition=7
+**U.S. Says Review of WHO to Assess if the Body Is Run in the Way It Should Be**\
+`The United States will assess whether the World Health Organization (WHO) is being run in the way that it should be as Washington conducts a review after President Donald Trump paused U.S. funding to the global body, USAID's Acting Administrator John Barsa said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/22/us/22reuters-health-coronavirus-who-usaid.html?searchResultPosition=7
 
-**Why Phil Jackson Needs ‘The Last Dance’**\
-`In this week’s newsletter, Marc Stein explains how Jackson’s legacy as a winning coach was tarnished — and how Michael Jordan’s new documentary can help.`\
-https://nytimes.com/2020/04/22/sports/basketball/phil-jackson-michael-jordan-last-danc.html?searchResultPosition=8
+**U.S. to Reopen National Parks, Follow Coronavirus Guidelines: Trump**\
+`The Trump administration plans to reopen the country's national parks and other public lands in line with coronavirus guidelines, U.S. President Donald Trump said on Wednesday, but gave no other details.`\
+https://nytimes.com/reuters/2020/04/22/us/politics/22reuters-health-coronavirus-usa-parks.html?searchResultPosition=8
 
-**‘Ratatouille’ Director Brad Bird Joins TCM’s ‘Essentials’**\
-`Turner Classic Movies has enlisted “Ratatouille” and “The Iron Giant” director Brad Bird to program the latest 20-episode season of “The Essentials," the channel said Wednesday.`\
-https://nytimes.com/aponline/2020/04/22/us/ap-us-film-brad-bird-essentials.html?searchResultPosition=9
+**Ex-Michigan Tight End Chuck Christian Says He Was Abused**\
+`The first former Michigan football player to publicly say that a team doctor abused him believes he would have sought medical help sooner for what has become late-stage cancer if he hadn't been victimized in college.`\
+https://nytimes.com/aponline/2020/04/22/sports/ap-us-university-of-michigan-doctor.html?searchResultPosition=9
 
-**Logistics Share Draft Spotlight With Joe Burrow, Chase Young**\
-`From his home in suburban New York, Roger Goodell will handle perhaps his most visible annual chore — announcing draft picks. `\
-https://nytimes.com/aponline/2020/04/22/sports/football/ap-fbn-draft-overview.html?searchResultPosition=10
+**For Joe Burrow, the N.F.L. Draft Offers a Path Home**\
+`L.S.U.’s Heisman Trophy-winning quarterback grew up near Athens, Ohio, which gives fans of the Cincinnati Bengals more reason to take heart that their team has the No. 1 pick.`\
+https://nytimes.com/article/joe-burrow-nfl-draft.html?searchResultPosition=10
 
