@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/04/21/world/middleeast/21reuters-health-coronav
 `China's banking and insurance regulator said on Wednesday that the sector's bad loan ratio is 2.04%, and estimated it will continue to rise in the second quarter but not at a fast pace.`\
 https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-heath-coronavirus-china-banking.html?searchResultPosition=2
 
-**South Korea's Moon Says to Prepare Third Supplementary Budget, Hike Subsidies to Keep Jobs**\
+**South Korea Prepares Third Supplementary Budget, Aims to Protect Jobs**\
 `South Korea President Moon Jae-in said on Wednesday the government will prepare a third supplementary budget and sharply increase subsidies to keep more Koreans in jobs through the course of the coronavirus outbreak.`\
 https://nytimes.com/reuters/2020/04/21/world/asia/21reuters-health-coronarivus-southkorea-economy.html?searchResultPosition=3
 
