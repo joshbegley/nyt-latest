@@ -1,40 +1,40 @@
+**Asia Stocks on Defensive as Oil Pain Spreads**\
+`Asian share markets were on the defensive on Wednesday as the floor fell out from under crude prices, sparking worries about further turmoil in the energy sector, already reeling from the heavy blow from global shutdowns.`\
+https://nytimes.com/reuters/2020/04/22/business/22reuters-global-markets.html?searchResultPosition=1
+
+**Exclusive: Facebook Agreed to Censor Posts After Vietnam Slowed Traffic-Sources**\
+`Facebook's local servers in Vietnam were taken offline early this year, slowing local traffic to a crawl until it agreed to significantly increase the censorship of "anti-state" posts for local users, two sources at the company told Reuters on Tuesday.`\
+https://nytimes.com/reuters/2020/04/22/business/22reuters-vietnam-facebook-exclusive.html?searchResultPosition=2
+
+**Oil Collapse and Covid-19 Create Toxic Geopolitical Stew**\
+`For nations reliant on oil sales, the combination of the price collapse and the coronavirus pandemic has created new threats of poverty and political instability from Iraq to Venezuela.`\
+https://nytimes.com/2020/04/22/world/middleeast/oil-price-collapse-coronavirus.html?searchResultPosition=3
+
+**The Mortuary Science Professor Who Came ‘Out of Nowhere’ to Help N.Y.C.**\
+`With New York City funeral homes overwhelmed by the coronavirus, a professor from an upstate town has been transporting bodies so families don’t have to wait weeks for cremation services.`\
+https://nytimes.com/2020/04/22/nyregion/coronavirus-deaths-cremation-mortician.html?searchResultPosition=4
+
+**From 1 to 1,000s: Solving the Mysteries of Coronavirus With Genetic Fingerprints**\
+`Scientists traced the virus brought to the Seattle area in January. They were astonished to learn that the same branch of the virus traveled on through at least a dozen states and to other parts of the world.`\
+https://nytimes.com/2020/04/22/us/coronavirus-sequencing.html?searchResultPosition=5
+
+**Canada Will Have a Big Say on the Return of Major Sports in the U.S.**\
+`President Trump is pushing for the return of sports soon in the United States. Up in Canada, that’s not happening.`\
+https://nytimes.com/2020/04/22/sports/coronavirus-sports-canada.html?searchResultPosition=6
+
+**FT Analysis Sees UK Coronavirus Death Toll at 41,000**\
+`The novel coronavirus outbreak has caused as many as 41,000 deaths in the United Kingdom, according to a Financial Times analysis of the latest data from the statistics office.`\
+https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-britain-toll-ft.html?searchResultPosition=7
+
+**Protesting**\
+`What is this image saying? How does it relate to or comment on society or current events? What is your opinion of its message?`\
+https://nytimes.com/2020/04/22/learning/protesting.html?searchResultPosition=8
+
 **Companies Give Yemen Tens of Thousands of Coronavirus Test Kits to Ease Shortage**\
 `A group of multinational companies said on Wednesday it was donating tens of thousands of coronavirus testing kits and medical equipment to Yemen, where a five-year war has destroyed the health system and left millions vulnerable to disease. `\
-https://nytimes.com/reuters/2020/04/22/world/middleeast/22reuters-health-coronavirus-yemen.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/04/22/world/middleeast/22reuters-health-coronavirus-yemen.html?searchResultPosition=9
 
 **Dutch Consumer Confidence Makes Biggest Fall on Record in April**\
 `The coronavirus pandemic prompted the largest fall on record in Dutch consumer confidence in April, the national statistics office said on Wednesday, driven by concerns about personal  finances and the overall state of the economy.`\
-https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-netherlands-consumers.html?searchResultPosition=2
-
-**South Korea Plans Third Extra Budget, Bond Issuance to Safeguard Jobs**\
-`South Korea is preparing for a third supplementary budget and a 40 trillion won ($32.4 billion) fund to sharply increase subsidies to keep more Koreans in jobs and help businesses stay afloat through the course of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/22/world/asia/22reuters-health-coronarivus-southkorea-economy.html?searchResultPosition=3
-
-**French Financial Watchdog Fines Elliott 20 Million Euros for Obstructing Investigation**\
-`France's financial regulator said on Wednesday it had imposed a 20 million euros ($21.73 million) fine on Elliott Management, saying the New York-based hedge had filed inaccurate reports in connection with a 2015 tender offer launched by XPO Logistics on Norbert Dentressangle.`\
-https://nytimes.com/reuters/2020/04/22/business/22reuters-france-elliott-regulator.html?searchResultPosition=4
-
-**Latest on the Spread of the Coronavirus Around the World**\
-`Reported cases of the coronavirus have crossed 2.5 million globally and 177,004 people have died, according to a Reuters tally as of 0200 GMT on Wednesday.`\
-https://nytimes.com/reuters/2020/04/22/world/asia/22reuters-health-coronavirus-latest.html?searchResultPosition=5
-
-**Hong Kong Reshuffles Govt. As Debate Rages Over Beijing's Role**\
-`Hong Kong unveiled a government shake-up on Wednesday that it said was aimed at reviving the financial hub's beleaguered economy and had nothing to do with a recent controversy over Beijing's role in the city's affairs. `\
-https://nytimes.com/reuters/2020/04/22/world/asia/22reuters-hongkong-politics-reshuffle.html?searchResultPosition=6
-
-**China's Coronavirus Crisis Fans Calls for Fast-Tracked Stimulus**\
-`The collapse in China's economic activity caused by the coronavirus has loudened calls from top policy advisers for the government to hasten the rollout of fiscal stimulus, as ballooning unemployment threatens social stability.`\
-https://nytimes.com/reuters/2020/04/22/world/asia/22reuters-health-coronavirus-china-stimulus.html?searchResultPosition=7
-
-**Tokyo 'Orphanage' for Babies Reports Eight Coronavirus Cases: Media**\
-`A residential-care facility in Tokyo for babies and toddlers on Wednesday reported eight cases of coronavirus infections, local media said.`\
-https://nytimes.com/reuters/2020/04/22/world/asia/22reuters-health-coronavirus-japan-orphanage.html?searchResultPosition=8
-
-**Apollo, Oaktree, BGH Among Those Circling Virgin Australia: Sources**\
-`Private equity and distressed situation specialists Apollo Global Management, Oaktree Capital Management and BGH Capital are among those that have expressed interest in restructuring Virgin Australia Holdings Ltd, five sources said.`\
-https://nytimes.com/reuters/2020/04/22/business/22reuters-health-coronavirus-virgin-australia.html?searchResultPosition=9
-
-**What You Need to Know About the Coronavirus Right Now**\
-`Here's what you need to know about the coronavirus right now:`\
-https://nytimes.com/reuters/2020/04/22/world/asia/22reuters-health-coronavirus-snapshot.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-netherlands-consumers.html?searchResultPosition=10
 
