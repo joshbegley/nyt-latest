@@ -1,14 +1,14 @@
+**Scores of Young Men in Mozambique Said to Be Killed by Islamist Insurgents**\
+`About 52 villagers in Mozambique’s troubled northernmost province were killed by Islamist insurgents on April 7 after they refused to be recruited, the country’s police reported on Tuesday.`\
+https://nytimes.com/2020/04/21/world/africa/mozambique-islamist-insurgents.html?searchResultPosition=1
+
 **50 Years of Earth Day: What’s Better Today, and What’s Worse**\
 `Here are 10 big environmental victories — and 10 big failures.`\
-https://nytimes.com/interactive/2020/climate/earth-day-history.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/climate/earth-day-history.html?searchResultPosition=2
 
 **Wuhan Embraces Yangtze River as Virus-Hit City Reopens**\
 `Bathed in golden late-afternoon light, Chen Enting snapped a photo of his ticket to commemorate his first ferry ride across the Yangtze River after a 76-day quarantine ended in the Chinese city where the coronavirus pandemic began.`\
-https://nytimes.com/aponline/2020/04/21/business/ap-as-virus-outbreak-wuhans-yangtze.html?searchResultPosition=2
-
-**Scores of Young Men in Mozambique Said to Be Killed by Islamist Insurgents**\
-`About 52 villagers in Mozambique’s troubled northernmost province were killed by Islamist insurgents on April 7 after they refused to be recruited, the country’s police reported on Tuesday.`\
-https://nytimes.com/2020/04/21/world/africa/mozambique-islamist-insurgents.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/04/21/business/ap-as-virus-outbreak-wuhans-yangtze.html?searchResultPosition=3
 
 **How Many More Weeks (Years)? Watching ‘Groundhog Day’ Together**\
 `It’s the same thing every day. Clean up your room. Stand up straight. Sit down for a classic comedy while we’re in quarantine. Here’s what happened at our viewing party.`\
