@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/04/22/business/ap-us-virus-outbreak-nevada-may
 https://nytimes.com/reuters/2020/04/22/us/politics/22reuters-usa-election-battlegrounds-exclusive.html?searchResultPosition=4
 
 **The Fear of Coronavirus and Flu Colliding in the Fall**\
-`Even as the president downplays possibility, the C.D.C. chief and other experts warn of a dual challenge.`\
+`Even as the president plays down that possibility, the C.D.C. chief and other experts warn of a dual challenge.`\
 https://nytimes.com/2020/04/22/health/coronavirus-flu-second-wave.html?searchResultPosition=5
 
 **Whitney Houston's Life to Be Made Into Feature Film**\
