@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/04/22/sports/golf/22reuters-health-coronavirus-
 https://nytimes.com/2020/04/22/us/coronavirus-first-united-states-death.html?searchResultPosition=9
 
 **Ericsson Beats First-Quarter Core Profit Estimates, Defying Virus Outbreak**\
-`Sweden's Ericsson on Wednesday reported quarterly core earnings ahead of market estimates, as demand for 5G network equipment stayed strong even as the coronavirus outbreak wreaked havoc in its main markets, China and the United States.`\
+`Sweden's Ericsson on Wednesday reported quarterly core earnings ahead of market estimates as demand for 5G network equipment stayed strong even as the coronavirus outbreak wreaked havoc in its main markets, China and the United States.`\
 https://nytimes.com/reuters/2020/04/22/technology/22reuters-ericsson-results.html?searchResultPosition=10
 
