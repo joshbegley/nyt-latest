@@ -1,40 +1,40 @@
+**Canada Coronavirus Map and Case Count**\
+`A detailed map shows the extent of the coronavirus outbreak, with charts and tables of the number of cases and deaths.`\
+https://nytimes.com/interactive/2020/world/canada/canada-coronavirus-cases.html?searchResultPosition=1
+
+**Earth Day Turns 50**\
+`Also this week, our recommendations for climate books`\
+https://nytimes.com/2020/04/22/climate/earth-day-nyt-climate-newsletter.html?searchResultPosition=2
+
+**India Sees Coronavirus Threat to Fragile Population: Tigers**\
+`The country is home to most of the world’s wild tigers, and wildlife authorities announced steps to protect them.`\
+https://nytimes.com/2020/04/22/science/india-tigers-coronavirus.html?searchResultPosition=3
+
+**Germany Condemns Anti-Semitic Disruption of Memorial on Zoom**\
+`The German government has condemned an anti-Semitic incident that took place during an online Holocaust memorial event organized by the Israeli Embassy in Berlin.`\
+https://nytimes.com/aponline/2020/04/22/world/europe/ap-eu-germany-israel-anti-semitism.html?searchResultPosition=4
+
 **For Indian Diaspora, Panic and Anger Over Trump’s Immigration Plans**\
 `Indian citizens fill critical jobs in the United States in tech and business. Now, they fear for their futures — the ‘upending of life by a tweet.’`\
-https://nytimes.com/2020/04/22/world/asia/india-immigration-trump-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2020/04/22/world/asia/india-immigration-trump-coronavirus.html?searchResultPosition=5
 
 **UK Criticized for Slow Testing, Lack of Protective Gear**\
 `The British government came under sustained criticism Wednesday for being slow in ramping up its testing for coronavirus and for failing to deliver enough personal protective equipment to front-line medical workers in hospitals and nursing homes.`\
-https://nytimes.com/aponline/2020/04/22/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/04/22/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=6
 
 **World Bank: Global Remittances to Drop 20% Amid Coronavirus**\
 `Remittances sent home by migrants from low- and middle-income countries are expected to drop around 20 percent this year amid the global economic slowdown caused by the novel coronavirus. the World Bank said Wednesday. `\
-https://nytimes.com/aponline/2020/04/22/world/americas/ap-lt-virus-outbreak-global-remittances.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/04/22/world/americas/ap-lt-virus-outbreak-global-remittances.html?searchResultPosition=7
 
 **Jim Brown: Better Benefits for Former N.F.L. Players**\
 `The football great says the new agreement between the league and the players provides “benefits that will help transform the lives of thousands of former N.F.L. players and their families.”`\
-https://nytimes.com/2020/04/22/opinion/letters/jim-brown-nfl-players.html?searchResultPosition=4
+https://nytimes.com/2020/04/22/opinion/letters/jim-brown-nfl-players.html?searchResultPosition=8
 
 **Beyond Recipes**\
 `Build your confidence in the kitchen: All you need are your ingredients and a few rules.`\
-https://nytimes.com/2020/04/22/dining/beyond-recipes.html?searchResultPosition=5
+https://nytimes.com/2020/04/22/dining/beyond-recipes.html?searchResultPosition=9
 
 **Coronavirus Movement Ban for Seniors, Youth Illegal: Bosnia's Top Court**\
 `Bosnia's top court ruled on Wednesday that a measure curtailing freedom of movement for people older than 65 and younger than 18 to try and halt the spread of the coronavirus is not in line with the constitution.`\
-https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-bosnia.html?searchResultPosition=6
-
-**South Africa Considers Flexible Restrictions After Lockdown**\
-`South Africa is considering introducing flexible restrictions on economic activity after it phases out a nationwide lockdown, according to a draft government presentation seen by Reuters on Wednesday.`\
-https://nytimes.com/reuters/2020/04/22/world/africa/22reuters-health-coronavirus-safrica.html?searchResultPosition=7
-
-**Iran Says U.S. Should Focus on Saving Military From Coronavirus**\
-`The United States should focus on saving its military from the coronavirus, an Iranian armed forces spokesman said on Wednesday after President Donald Trump said he had instructed the U.S. Navy to destroy any Iranian gunboats that harass American ships.`\
-https://nytimes.com/reuters/2020/04/22/world/middleeast/22reuters-iran-usa-gulf.html?searchResultPosition=8
-
-**First Syria Torture Trial Opens in Germany on Thursday**\
-`The first trial of suspected members of Syrian President Bashar al-Assad's security services for crimes against humanity, including torture and sexual assault, starts in Germany on Thursday.`\
-https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-syria-security-germany.html?searchResultPosition=9
-
-**Russian Communists Defy Lockdown With Red Square Parade for Lenin's 150th**\
-`Dozens of Russian communists defied Moscow's coronavirus lockdown on Wednesday by marching across Red Square to lay flowers outside Vladimir Lenin's tomb to mark 150 years since the birth of the Bolshevik leader.  `\
-https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-lenin-anniversary-russia.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/22/world/europe/22reuters-health-coronavirus-bosnia.html?searchResultPosition=10
 
