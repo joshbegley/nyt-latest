@@ -1,36 +1,36 @@
-**John Pfahl, Photographer Who Played With Landscapes, Dies at 81**\
-`Long before Photoshop, he manipulated landscapes with everyday objects, and found beauty in compost piles and other peculiar places.`\
-https://nytimes.com/2020/04/23/arts/john-pfahl-photographer-who-played-with-landscapes-dies-at-81.html?searchResultPosition=2
+**Canadian Police Encourage Tipsters While Working on Timeline of Mass Shooting**\
+`Canadian police on Thursday worked to piece together the timeline of a shooting spree that started in a rural hamlet in the Atlantic province of Nova Scotia and ended 13 hours later when the gunman, who killed 22 people, was shot dead.`\
+https://nytimes.com/reuters/2020/04/23/world/americas/23reuters-canada-crime-novascotia.html?searchResultPosition=2
 
-**UK Business Lobby Wants Easier Terms for Government-Backed Loans**\
-`Britain's government needs to relax lending terms for government-backed loans to smaller businesses to stop them going bust during the COVID-19 lockdown, the Confederation of British Industry said on Thursday.`\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-britain-business.html?searchResultPosition=3
+**North Dakota Sets All-Mail June Primary Due to Virus Fears**\
+`North Dakota's June 9 primary will be conducted entirely by mail after all 53 counties chose to avoid in-person voting due to the coronavirus.`\
+https://nytimes.com/aponline/2020/04/23/us/ap-us-virus-outbreak-north-dakota-election.html?searchResultPosition=3
 
-**U.S. Lawmakers Urge Fed to Keep Energy Industry Out of Lending Program**\
-`Two Democratic U.S. lawmakers on Thursday urged the Federal Reserve to reject a request by the energy industry to be allowed to use funding from a $600 billion emergency lending facility to pay off their debts.`\
-https://nytimes.com/reuters/2020/04/23/us/23reuters-usa-fed-lending-energy.html?searchResultPosition=4
+**With New Time and Busier Schedule, HBO's 'Axios' Thinks Big**\
+`No one can accuse Axios co-founder and CEO Jim VandeHei of small dreams for his bi-weekly news series on HBO, which is ramping up production to air nearly every two weeks for the rest of the year and moving to Monday nights.`\
+https://nytimes.com/aponline/2020/04/23/us/ap-us-media-axios-on-hbo.html?searchResultPosition=4
 
-**Cheap Oil Poses New Quandary for Iran as It Relaxes Virus Lockdown**\
-`The country has been hit with a triple-whammy: raging coronavirus, American sanctions and, now, oil so cheap that it’s barely profitable.`\
-https://nytimes.com/2020/04/23/world/middleeast/iran-coronavirus-oil.html?searchResultPosition=5
+**Mariners' Gordon Wins Prestigious Hutch Award**\
+`Seattle Mariners second baseman Dee Gordon won the Hutch Award, given annually to honor a player's exemplary community service.`\
+https://nytimes.com/reuters/2020/04/23/sports/23reuters-baseball-mlb-sea-gordon-award.html?searchResultPosition=5
 
-**'We Are Failing Our Grandparents' Canada's Trudeau Says as COVID-19 Hammers Nursing Homes**\
-`Canada is failing its seniors as officials struggle to contain fatal outbreaks of the novel coronavirus in long-term care homes across the country, Prime Minister Justin Trudeau said on Thursday.`\
-https://nytimes.com/reuters/2020/04/23/world/americas/23reuters-health-coronavirus-canada-seniors.html?searchResultPosition=6
+**Bolsonaro Clips Wings of Guedes as Generals Unveil Stimulus**\
+`Brazil is drawing up a new wave of fiscal stimulus in its battle against the economic ravages of the new coronavirus, but the most notable aspect may be what is missing: the fingerprints of Economy Minister Paulo Guedes.`\
+https://nytimes.com/reuters/2020/04/23/world/americas/23reuters-brazil-economy-minister-analysis.html?searchResultPosition=6
 
-**U.S. Aid for Greenland Prompts Praise and Suspicion in Denmark**\
-`The offer of $12.1 million in support revived memories of President Trump’s suggestion last year that the United States could simply buy the semiautonomous island.`\
-https://nytimes.com/2020/04/23/world/europe/us-greenland-denmark.html?searchResultPosition=7
+**U.S. House Creates Panel to Probe Federal Coronavirus Response**\
+`The Democratic-controlled U.S. House of Representatives on Thursday approved the creation of a special investigative panel to examine the federal government's response to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/23/us/politics/23reuters-health-coronavirus-usa-investigation.html?searchResultPosition=7
 
-**What Students Are Saying About Family Conflict in Quarantine, Starting Over and Health Care Heroics**\
-`Teenage comments in response to our recent writing prompts, and an invitation to join the ongoing conversation.`\
-https://nytimes.com/2020/04/23/learning/what-students-are-saying-about-family-conflict-in-quarantine-starting-over-and-health-care-heroics.html?searchResultPosition=8
+**WTO Report Says 80 Countries Limiting Exports of Face Masks, Other Goods**\
+`Eighty countries and customs territories have banned or limited the export of face masks, protective gear, gloves and other goods to mitigate shortages since the coronavirus outbreak began, the World Trade Organization reported on Thursday.`\
+https://nytimes.com/reuters/2020/04/23/us/23reuters-health-coronavirus-trade-wto.html?searchResultPosition=8
 
-**Will the Coronavirus Forever Alter the College Experience?**\
-`The answer so far appears to be no. But some online education tools are likely to stick around.`\
-https://nytimes.com/2020/04/23/education/learning/coronavirus-online-education-college.html?searchResultPosition=9
+**2020 NFL Draft: No. 1 Need for All 32 Teams**\
+`Just hours before the start of the 2020 NFL Draft, Field Level Media's team of NFL writers and draft analysts take a final look at the most pressing need for all 32 NFL teams.`\
+https://nytimes.com/reuters/2020/04/23/sports/football/23reuters-football-nfl-draft-team-needs.html?searchResultPosition=9
 
-**Czech Government Lifts Ban on Travel Abroad, Health Minister Says**\
-`The Czech government lifted a ban on its citizens traveling abroad for reasons other than work following an improvement in conditions of the coronavirus outbreak, Health Minister Adam Vojtech said on Thursday.`\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-czech-travel.html?searchResultPosition=10
+**Locked-Down Rolling Stones Release New Track 'Living in a Ghost Town'**\
+`The Rolling Stones gave their fans some satisfaction on Thursday by releasing a new track "Living in a Ghost Town", part-recorded during the coronavirus lockdown.`\
+https://nytimes.com/reuters/2020/04/23/arts/23reuters-health-coronavirus-music-rolling-stones.html?searchResultPosition=10
 
