@@ -1,36 +1,36 @@
-**Getting to Know You: Life With 10 Kids Under Hungary's Lockdown**\
-`When Hungarian ex-world champion canoeist Marton Joob and fiancee Dora got married they planned to have six children.`\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-hungary-family.html?searchResultPosition=2
+**Company Buses, Extra Shifts: Italy Retools Transport to End Lockdown**\
+`Buses for use by companies. Staggered shifts. Metro turnstiles that let in a limited number of commuters at any one time.`\
+https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-italy-transport.html?searchResultPosition=2
 
-**WHO Warns That Malaria Deaths in Africa Could Double This Year**\
-`The number of deaths caused by malaria in Sub-Saharan Africa could double to 769,000 this year, as efforts to curb the disease are disrupted by the COVID-19 pandemic, the World Health Organisation warned on Thursday. `\
-https://nytimes.com/reuters/2020/04/23/world/africa/23reuters-africa-malaria.html?searchResultPosition=3
+**Quick Cash Helps Swiss Firms Survive Crisis as Austrians Await Aid**\
+`Mats Klingberg got the green light for an emergency bank loan under the Swiss government's coronavirus aid programme in just three hours, easing fears about his clothes boutique's future.`\
+https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-swiss-business.html?searchResultPosition=3
 
-**England's COVID-19 Hospital Death Toll Rises to 16,786: Health Service**\
-`England's COVID-19 death toll in hospitals rose by 514 to 16,786, the National Health Service said on Thursday `\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-britain-toll.html?searchResultPosition=4
+**As a Means of Survival, Russian Airlines Allowed to Ship Cargo in Passenger Cabin**\
+`Seven Russian airlines have received permission to transport cargo in the passenger cabin, when no passengers are on board, as the coronavirus outbreak has halted the majority of flights, the Russian aviation authority Rosaviatsiya said on Thursday. `\
+https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-russia-airlines.html?searchResultPosition=4
 
-**Moves to Shore Up E.U. Economies Lay Bare Leaders’ Divisions**\
-`A teleconference on Thursday is expected to show disagreements on how resources should be used to mitigate the crisis caused by the coronavirus pandemic.`\
-https://nytimes.com/2020/04/23/world/europe/coronavirus-eu-economic-recovery.html?searchResultPosition=5
+**Russian Firms to Build World's Most Powerful Nuclear Icebreaker**\
+`Two Russian companies signed a deal on Thursday to build the world's most powerful nuclear icebreaker to help boost trade on a northern sea route crucial to forging closer links with Asia. `\
+https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-russia-icebreaker.html?searchResultPosition=5
 
-**Hospitals Play ‘Songs of Hope’ as Virus Patients Go Home**\
-`Anthems like “Don’t Stop Believin’,” the “Rocky” theme and “Every Breath You Take” have been adopted by hospitals to celebrate each victory in the battle against coronavirus.`\
-https://nytimes.com/2020/04/23/arts/music/coronavirus-hospital-songs.html?searchResultPosition=6
+**Tokyo Launches Coronavirus Drive-Through Tests as Crisis Deepens**\
+`Tokyo's first drive-through coronavirus test centre was launched this week, as Japan ramps up efforts to prevent its medical system crumbling under the growing weight of new infections. `\
+https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-health-coronavirus-japan-testing.html?searchResultPosition=6
 
-**3,000 Interviews. 50 Years. Listen to the History of American Music.**\
-`Vivian Perlis founded Yale’s Oral History of American Music in 1968. Today, the project continues her mission to record the voices of American composers.`\
-https://nytimes.com/2020/04/23/arts/music/yale-american-music.html?searchResultPosition=7
+**U.S. Business Activity Hits Fresh Record Lows Amid Coronavirus Lockdowns**\
+`U.S. business activity plumbed new record lows in April as the novel coronavirus severely disrupted manufacturing and services industry production, pushing the economy into uncharted waters. `\
+https://nytimes.com/reuters/2020/04/23/business/23reuters-usa-economy-pmi.html?searchResultPosition=7
 
-**What to Say (and Not Say) to Workers on the Front Lines**\
-`Send messages of support, without the expectation of a reply.`\
-https://nytimes.com/2020/04/23/well/live/coronavirus-support-doctors-nurses-communication.html?searchResultPosition=8
+**Empty Kitchens, Closed Stores: Small China Firms Struggle to Cope With Epidemic Fallout**\
+`Ma Xinli has shut four of his clothing stores and expects to close another three by mid-June. Unsold winter stock is now hard to sell, there's no money to buy summer clothing, and rent and staff salaries still need paying.`\
+https://nytimes.com/reuters/2020/04/23/business/23reuters-health-coronavirus-china-retail.html?searchResultPosition=8
 
-**Criticism Is My Love Language**\
-`Nine years into my marriage, it’s taken a global crisis to make me a nicer person.`\
-https://nytimes.com/2020/04/23/parenting/coronavirus-marriage-fight.html?searchResultPosition=9
+**Air France-KLM Says CEO Ben Smith to Give Up 2020 Bonus**\
+`Air France-KLM Chief Executive Ben Smith will give up his 2020 bonus, the airline group said on Thursday as it negotiates financial aid from the French and Dutch governments.`\
+https://nytimes.com/reuters/2020/04/23/business/23reuters-air-france-klm-pay.html?searchResultPosition=9
 
-**Professor Accused of Taking Flammables Into Cathedral Dies**\
-`A college instructor who was accused last year of carrying gasoline and lighters into St. Patrick’s Cathedral in New York has died, his lawyer said. `\
-https://nytimes.com/aponline/2020/04/23/us/ap-us-st-patricks-cathedral-arrest.html?searchResultPosition=10
+**Jaguar Land Rover to Restart Some European Output From Mid-May**\
+`Jaguar Land Rover (JLR) will restart some production in Europe from May 18, including at one of its three British car plants and its factory in Slovakia, where the new Defender vehicle is being made. `\
+https://nytimes.com/reuters/2020/04/23/business/23reuters-health-coronavirus-jaguarlandrover.html?searchResultPosition=10
 
