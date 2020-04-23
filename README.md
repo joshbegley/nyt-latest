@@ -1,5 +1,5 @@
 **Virus Silently Spread in N.Y.C. Months Ago, New Model Says: Live Updates**\
-`Researchers at Northeastern University found that there were already thousands of cases in New York City by the time the first positive case was recorded on March 1.`\
+`Researchers at Northeastern University found that there were already thousands of cases in New York City by the time the first positive case was recorded March 1.`\
 https://nytimes.com/2020/04/23/nyregion/coronavirus-new-york-update.html?searchResultPosition=2
 
 **China Imposes New Limits as Coronavirus Fears Return**\
