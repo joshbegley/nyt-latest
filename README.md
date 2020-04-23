@@ -1,36 +1,36 @@
+**In Texas, a Coastal City Tries to Test Its Way Out of Coronavirus Pandemic**\
+`Each day, hundreds of residents of Galveston County, Texas, are  tested for the new coronavirus. Free diagnostic tests are being offered to anyone over the age of seven and the county has enough test kits to last a month.`\
+https://nytimes.com/reuters/2020/04/23/us/23reuters-health-coronavirus-usa-testing.html?searchResultPosition=2
+
+**Ferrari Say They Remain Committed to F1 After Quit Reports**\
+`Ferrari have said they remain committed to Formula One after reports on Thursday that the sport's oldest and most successful team could walk away if a proposed budget cap for 2021 was set too low.`\
+https://nytimes.com/reuters/2020/04/23/sports/autoracing/23reuters-motor-f1-ferrari.html?searchResultPosition=3
+
+**Another Surge in US Unemployment Applications Is Likely**\
+`The U.S. government is set Thursday to issue another gloomy report on the layoffs that have swept through America’s workforce since the coronavirus outbreak forced businesses to shut down beginning last month.`\
+https://nytimes.com/aponline/2020/04/23/business/bc-us-virus-outbreak-unemployment-benefits.html?searchResultPosition=4
+
+**Futures Dip Ahead of Jobless Claims, Business Activity Data**\
+`U.S. stock index futures retreated on Thursday as investors braced for another staggering jobless claims report and an expected plunge in business activity data as sweeping lockdown measures hammer economic growth.`\
+https://nytimes.com/reuters/2020/04/23/business/23reuters-usa-stocks.html?searchResultPosition=5
+
+**U.S. Bank Investors Put on Mute as Shareholder Meetings Go Virtual**\
+`Often rowdy and confrontational, this year's bank shareholder meetings have so far been brief and uneventful as the annual gatherings move online amid U.S. coronavirus lockdowns.`\
+https://nytimes.com/reuters/2020/04/23/business/23reuters-health-coronavirus-usa-banks.html?searchResultPosition=6
+
+**Americans Too Scared to Go to Work Risk Losing Unemployment Aid, Experts Say**\
+`U.S. workers who refuse to return to their jobs because they are worried about catching the coronavirus should not count on getting unemployment benefits, state officials and labor law experts say.`\
+https://nytimes.com/reuters/2020/04/23/us/23reuters-health-coronavirus-usa-georgia-workers.html?searchResultPosition=7
+
 **Iran Summons Swiss Ambassador as U.S. Representative in Tehran Over Gulf Tensions: IRIB**\
 `Iran has summoned the Swiss ambassador in Tehran, who represents U.S. interests in the country, over recent Gulf tensions, Iran's Foreign Ministry spokesman Abbas Mousavi said on Thursday, according to the IRIB news agency.`\
-https://nytimes.com/reuters/2020/04/23/world/middleeast/23reuters-usa-iran-military-diplomacy.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/23/world/middleeast/23reuters-usa-iran-military-diplomacy.html?searchResultPosition=8
 
 **Burping Bags and Dancing Raisins: Tricks for Teaching Science During a Pandemic**\
 `Texas science teacher Avri DiPietro has a secret weapon in her tool kit to help keep her students engaged now that the coronavirus pandemic has forced them to stay home indefinitely. It's a home experiment known as "the burping bag."  `\
-https://nytimes.com/reuters/2020/04/23/us/23reuters-health-coronavirus-usa-science.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/23/us/23reuters-health-coronavirus-usa-science.html?searchResultPosition=9
 
 **Locked-Down Indian Economy in Its Worst Quarter Since Mid-1990s: Reuters Poll**\
 `The Indian economy is likely to suffer its worst quarter since the mid-1990s, hit by the ongoing lockdown imposed to stem the spread of coronavirus, according to a Reuters poll, which predicted a mild and gradual recovery.`\
-https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-india-economy-poll.html?searchResultPosition=4
-
-**Britain Suffering Worst Peacetime Downturn Ever; Recovery May Falter: Reuters Poll**\
-`Britain is in the midst of its deepest downturn in peacetime as the coronavirus pandemic wreaks havoc on the economy, a Reuters poll of economists found, while an expected recovery in the second half is already in jeopardy.`\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-britain-economy-poll.html?searchResultPosition=5
-
-**Drowning in Crude, U.S. Drillers Say Trump Strategic Reserve Plan Is No Lifeline**\
-`President Donald Trump's plan to fill the U.S. emergency crude oil stockpile has become the centerpiece of his administration's strategy to shield drillers from a meltdown in energy demand - but company officials and industry groups said the program will not be enough.`\
-https://nytimes.com/reuters/2020/04/23/business/23reuters-global-oil-usa-reserves.html?searchResultPosition=6
-
-**China's BYD, Toyota's Hino Partner in Electric Commercial Vehicles**\
-`Chinese electric vehicle maker BYD said on Thursday it has partnered with Toyota-owned truck maker Hino Motors to develop electric commercial vehicles, as BYD deepens electric collaboration with Japan's top automaker.`\
-https://nytimes.com/reuters/2020/04/23/business/23reuters-byd-hino-electric.html?searchResultPosition=7
-
-**African Airlines Could Lose $6 Billion in Passenger Revenue in 2020: IATA**\
-`African airlines could lose $6 billion in passenger revenue in 2020, the International Air Transport Association said on Thursday, as flight restrictions due to the novel coronavirus hit the sector on the continent. `\
-https://nytimes.com/reuters/2020/04/23/business/23reuters-health-coronavirus-africa-airlines.html?searchResultPosition=8
-
-**Japanese Governor Pledges Support for Toyota Suppliers as Production Dips**\
-`As Toyota prepares to nearly halve production at  Japanese factories, a regional governor said on Thursday he would offer 400 billion yen ($3.72 billion) in emergency loans for small and mid-size companies including Toyota's suppliers.`\
-https://nytimes.com/reuters/2020/04/23/business/23reuters-health-coronavirus-japan-aichi.html?searchResultPosition=9
-
-**Eli Lilly Lifts 2020 Profit View as Coronavirus Lockdowns Fuel Profit Beat**\
-`Eli Lilly and Co beat quarterly profit estimates and raised the top-end of its 2020 earnings forecast on Thursday, benefiting from customers stockpiling on medicines such as its diabetes treatment Trulicity amid the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/23/business/23reuters-lilly-results.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-india-economy-poll.html?searchResultPosition=10
 
