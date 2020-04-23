@@ -2,8 +2,8 @@
 `Italy's Economy Minister said on Thursday he expected a "strong rebound" in output in the third quarter of the year and significant growth in 2021, after an exceptional contraction due to the restrictions imposed to fight the coronavirus. `\
 https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-italy-gualtieri.html?searchResultPosition=2
 
-**Hyundai Motor First-Quarter Profit Slides 44%, Far Below Forecasts, as Coronavirus Hits Demand**\
-`South Korea's Hyundai Motor Co said on Thursday first-quarter net profit slumped 44% from a year earlier as the spreading coronavirus outbreak hit demand for cars worldwide.`\
+**Hyundai First-Quarter Profit Tumbles 44%, Far Short of Estimates, as Coronavirus Slams Car Demand**\
+`South Korea's Hyundai Motor Co said on Thursday first-quarter net profit slumped 44% to its lowest level for the quarter in a decade as the spreading coronavirus outbreak hit demand for cars worldwide. `\
 https://nytimes.com/reuters/2020/04/23/business/23reuters-hyundai-motor-results.html?searchResultPosition=3
 
 **Malaysia Committed to Safeguarding Its Interests in South China Sea: Foreign Minister**\
