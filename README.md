@@ -1,36 +1,36 @@
-**Inside Trump's Proposal to Suspend Some Legal Immigration Amid Coronavirus Crisis**\
-`President Donald Trump issued an executive order on Wednesday that temporarily blocks some foreigners outside the United States from obtaining U.S. permanent residency, a move he said would protect American workers amid the economic fallout from the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/23/us/23reuters-health-coronavirus-usa-immigration-explainer.html?searchResultPosition=2
+**Jailed Saudi Princess Pleads for Release as Ramadan Arrives**\
+`A prominent Saudi princess has appealed to the kingdom's king and crown prince to release her from prison as the holy month of Ramadan began, according to a letter published on her official website and Facebook account.`\
+https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-saudi-arrests-princess.html?searchResultPosition=2
 
-**Senator Elizabeth Warren's Brother Dies After Contracting the Coronavirus**\
-`Former Democratic presidential candidate Elizabeth Warren's oldest brother, Donald Reed Herring, died on Tuesday night after contracting the novel coronavirus, she confirmed on Thursday.`\
-https://nytimes.com/reuters/2020/04/23/us/23reuters-health-coronavirus-usa-warren.html?searchResultPosition=3
+**Journalists at Prominent Russian Business Newspaper Complain of Pro-Kremlin Censorship**\
+`Journalists at Vedomosti, one of Russia's most prominent business publications, on Thursday accused their editor of imposing stifling pro-Kremlin censorship upon them and suggested the board of directors appoint someone else. `\
+https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-russia-politics-newspaper.html?searchResultPosition=3
 
-**Quarantine With Rube Goldberg: California Family Builds Ultimate Domino Effect Machine**\
-`Isolation at home inspired one California family to build an elaborate two-story Rube Goldberg machine, and it probably didn't hurt that mom is a high school science teacher. `\
-https://nytimes.com/reuters/2020/04/23/us/23reuters-health-coronavirus-lockdown-game.html?searchResultPosition=4
+**Teachers and Students Describe a Remote-Learning Life**\
+`They talk about how the change to online instruction has affected them.`\
+https://nytimes.com/2020/04/23/education/learning/coronavirus-teachers-students-remote-learning.html?searchResultPosition=4
 
-**Court Declines to Unseal Video in Shooting of Indiana Judges**\
-`A man charged with shooting and wounding two judges during a fight outside an Indianapolis fast food restaurant lost a bid to have surveillance video and other evidence unsealed.`\
-https://nytimes.com/aponline/2020/04/23/us/ap-us-judges-shot-indiana.html?searchResultPosition=5
+**Clean Water Act Covers Groundwater Discharges, Supreme Court Rules**\
+`In a 6-to-3 ruling, the court rejected arguments by a county in Hawaii and the Trump administration that only pollution discharged directly into navigable waters requires permits.`\
+https://nytimes.com/2020/04/23/us/supreme-court-clean-water-act-hawaii.html?searchResultPosition=5
 
-**High Court Rules for Connecticut Company in Trademark Case**\
-`The Supreme Court is making it easier to get certain monetary awards in trademark infringement lawsuits.`\
-https://nytimes.com/aponline/2020/04/23/us/politics/bc-us-supreme-court-trademark-case.html?searchResultPosition=6
+**NHL Players to Take Part in Charity Gaming Challenge**\
+`Players from all 31 NHL teams will play NHL 20 for charity.`\
+https://nytimes.com/reuters/2020/04/23/sports/hockey/23reuters-icehockey-nhl-nhl20-charity.html?searchResultPosition=6
 
-**Nearly All Patients Hospitalized With Covid-19 Had Chronic Health Issues, Study Finds**\
-`Only 6 percent of patients at one New York area health system had no chronic conditions. Hypertension, obesity and diabetes were common.`\
-https://nytimes.com/2020/04/23/health/coronavirus-patients-risk.html?searchResultPosition=7
+**Season Should Resume Next March at Indian Wells, Says Jabeur**\
+`The tennis season stalled by the COVID-19 pandemic should only resume next March and tournaments that have already been completed this year should not be played in the 2021 season, Australian Open quarter-finalist Ons Jabeur said.`\
+https://nytimes.com/reuters/2020/04/23/sports/tennis/23reuters-health-coronavirus-tennis-jabeur.html?searchResultPosition=7
 
-**The Learning Bulletin Board**\
-`Virtual study abroad, video skills and more: a collection of views and news from our special report.`\
-https://nytimes.com/2020/04/23/education/learning/coronavirus-online-learning.html?searchResultPosition=8
+**F1 Boosts Liquidity and Advances Payments to Teams**\
+`Formula One's commercial rights holder Liberty Media boosted the sport's liquidity on Thursday and said some teams had received advance payments to help them through the COVID-19 crisis.`\
+https://nytimes.com/reuters/2020/04/23/sports/autoracing/23reuters-health-coronavirus-f1.html?searchResultPosition=8
 
-**WHO to Launch Initiative to Share COVID-19 Drugs, Tests and Vaccines: Statement**\
-`The World Health Organization (WHO) said it would announce a "landmark collaboration" on Friday to speed development, production and the use of safe, effective drugs, tests and vaccines to prevent, diagnose and treat COVID-19.`\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-who-covid.html?searchResultPosition=9
+**Merkel Open to Big EU Recovery Fund but Needs More Clarity First**\
+`German Chancellor Angela Merkel signalled on Thursday she was open to offering major financial support for a coronavirus recovery package worth as much as 2 trillion euros, but wanted to see how it would be used before committing.`\
+https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-germany-merkel-fund.html?searchResultPosition=9
 
-**Coronavirus Cases Accelerate in Peru to Top 20,000, Government Extends Quarantine**\
-`Peru's reported coronavirus cases rapidly increased this week and topped 20,000 on Thursday, doubling in nine days, as President Martin Vizcarra extended a national quarantine in the world's No. 2 copper producer.`\
-https://nytimes.com/reuters/2020/04/23/world/americas/23reuters-health-coronavirus-peru.html?searchResultPosition=10
+**Panel Reinstates 3 Nebraska Officers Fired in Stun Gun Death**\
+`Three of four Nebraska police officers who were fired for their involvement in the stun gun-related death of a mentally ill Oklahoma man in 2017 have been reinstated, police and union officials said Thursday.`\
+https://nytimes.com/aponline/2020/04/23/us/ap-us-stun-gun-death.html?searchResultPosition=10
 
