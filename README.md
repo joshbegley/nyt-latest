@@ -6,8 +6,8 @@ https://nytimes.com/2020/04/23/briefing/coronavirus-tornadoes-nfl-draft.html?sea
 `The City Council introduced a virus relief package that included measures to protect tenants, small businesses, essential workers and homeless people.`\
 https://nytimes.com/2020/04/23/nyregion/coronavirus-nyc.html?searchResultPosition=3
 
-**Coronavirus Live Updates: House to Vote on $484 Billion Relief; States Left Wanting**\
-`Mitch McConnell, the Republican Senate leader, said states should consider declaring bankruptcy. Unemployment is set to soar again. The discovery of an early death rewrites the timeline of the U.S. outbreak.`\
+**Coronavirus Live Updates: House to Vote on $484 Billion Aid Bill; States Left Wanting**\
+`Mitch McConnell, the Republican Senate leader, said states should consider declaring bankruptcy. Unemployment is set to soar again. The discovery of an early death rewrote the timeline of the U.S. outbreak.`\
 https://nytimes.com/2020/04/23/us/coronavirus-updates.html?searchResultPosition=4
 
 **South Africa's Itinerant Wastepickers Lose Livelihood in Lockdown**\
