@@ -1,36 +1,36 @@
+**New House Panel Poised to Track Aid Dollars, Virus Response**\
+`The House is voting Thursday to create a new subcommittee that will track more than $2 trillion in coronavirus aid, adding another layer of oversight as President Donald Trump's administration carries out the largest economic rescue in U.S. history. `\
+https://nytimes.com/aponline/2020/04/23/us/politics/ap-us-virus-outbreak-congress-oversight.html?searchResultPosition=2
+
+**Saudi Arabia Announces Start of Ramadan After Sighting Moon**\
+`Saudi Arabia and some other Muslim-majority nations, including the United Arab Emirates and Jordan, declared that the holy month of Ramadan — when the faithful observe a dawn-to-dusk fast — would begin on Friday, based on a moon-sighting methodology.`\
+https://nytimes.com/aponline/2020/04/23/world/middleeast/ap-ml-mideast-ramadan.html?searchResultPosition=3
+
+**AP-NORC Poll: Few Americans Trust Trump's Info on Pandemic**\
+`President Donald Trump has made himself the daily spokesman for the nation’s coronavirus response. Yet few Americans regularly look to or trust Trump as a source of information on the pandemic, according to a new survey from The Associated Press-NORC Center for Public Affairs Research. `\
+https://nytimes.com/aponline/2020/04/23/us/politics/ap-us-ap-poll-virus-outbreak-trump.html?searchResultPosition=4
+
+**Antibody Tests Show High Infection Rate for New York City**\
+`About 21 percent of people in New York City who were tested for coronavirus antibodies tested positive, Gov. Andrew M. Cuomo said.`\
+https://nytimes.com/video/us/politics/100000007103985/cuomo-coronavirus-testing.html?searchResultPosition=5
+
+**World Chess Moves Online. But Check, Don’t Cheat, Mate.**\
+`Grandmasters compete from the safety of their own homes. But it’s now much easier for players to cheat. Plus, the slow return of sports in some parts of the world, and auto racing in South Dakota.`\
+https://nytimes.com/2020/04/23/sports/chess-cheating-south-dakota-races.html?searchResultPosition=6
+
+**Correction: Virus Outbreak-Florida Unemployment Story**\
+`In a story April 20, 2020, about Florida’s unemployment claims, The Associated Press incorrectly said that Luis Perulero was furloughed by Delta Air Lines from his job as a ramp supervisor at Palm Beach International Airport.`\
+https://nytimes.com/aponline/2020/04/23/business/ap-us-virus-outbreak-florida-unemployment-corrective.html?searchResultPosition=7
+
+**1 in 5 New Yorkers May Have Had Covid-19, Antibody Tests Suggest**\
+`Accurate antibody testing is a critical tool to determine if the pandemic has slowed enough to begin restarting the economy.`\
+https://nytimes.com/2020/04/23/nyregion/coronavirus-antibodies-test-ny.html?searchResultPosition=8
+
 **Hungary Seen Wrongly Holding Asylum Seekers in Transit Zones**\
 `Hungary's practice of keeping asylum seekers in a closed transit zone on the border with Serbia qualifies as “unlawful detention,” according to an nonbinding opinion issued Thursday by a senior official at the European Union's highest court. `\
-https://nytimes.com/aponline/2020/04/23/world/europe/ap-eu-hungary-migrants.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/04/23/world/europe/ap-eu-hungary-migrants.html?searchResultPosition=9
 
 **Beyoncé Identifies Groups Receiving $6M in Coronavirus Aid**\
 `Beyoncé is focusing her coronavirus relief efforts on organizations that are helping communities of color that have been hit hard by the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/23/us/ap-us-virus-relief-beyonce.html?searchResultPosition=3
-
-**Lesotho PM Shows No Signs of Leaving to Defuse Crisis**\
-`Lesotho Prime Minister Thomas Thabane has said he will not be told when to leave office, a national newspaper reported on Thursday, resisting efforts to defuse a political crisis with the offer of a "dignified retirement."`\
-https://nytimes.com/reuters/2020/04/23/world/africa/23reuters-lesotho-politics.html?searchResultPosition=4
-
-**Czech Government Aiming to Reopen Locked-Down Shops, Restaurants Faster**\
-`The Czech Republic will move forward plans to ease its coronavirus lockdown by two weeks to get most businesses and restaurants operating again by May 25, Industry Minister Karel Havlicek said on Thursday.`\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-czech.html?searchResultPosition=5
-
-**Activists: 2 Killed in Puerto Rico Were Transgender Women**\
-`Activists said Thursday that the two bodies found inside a charred car in southeast Puerto Rico were of transgender women, marking four such deaths in the past two months.`\
-https://nytimes.com/aponline/2020/04/23/world/americas/ap-cb-puerto-rico-transgender-killings.html?searchResultPosition=6
-
-**French Village Bids Adieu to Doctor Who Succumbed to COVID-19**\
-`In Villers-Outreaux's village square, doctors, nurses and patients gathered, heads bowed and standing apart, to bid farewell to a local practitioner who succumbed to the new coronavirus.`\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-france-doctor-funeral.html?searchResultPosition=7
-
-**Trump's Criticism Adds to Tough Choices in Georgia Reopening**\
-`President Donald Trump's blunt disapproval of Georgia Gov. Brian Kemp's decision to let certain businesses reopen in limited ways is only complicating the decisions of many owners, workers and customers amid the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/23/business/ap-us-virus-outbreak-georgia.html?searchResultPosition=8
-
-**Donald Kennedy, Who Led Stanford in 1980s, Dies at 88**\
-`As president, he expanded the university and battled a government inquiry into its research expenses. He also headed the F.D.A. under President Carter.`\
-https://nytimes.com/2020/04/23/us/donald-kennedy-who-led-stanford-in-1980s-dies-at-88.html?searchResultPosition=9
-
-**Naomi Campbell-From Catwalk Queen to Chat Show Host**\
-`Coronavirus quarantine has supermodel Naomi Campbell reinventing herself as a talk show host with the new series "No Filter with Naomi." `\
-https://nytimes.com/reuters/2020/04/23/arts/23reuters-people-naomi-campbell.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/23/us/ap-us-virus-relief-beyonce.html?searchResultPosition=10
 
