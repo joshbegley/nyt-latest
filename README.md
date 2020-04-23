@@ -7,7 +7,7 @@ https://nytimes.com/2020/04/23/learning/word-quiz-philatelist.html?searchResultP
 https://nytimes.com/2020/04/23/arts/television/tree-planting-trump-earth-day.html?searchResultPosition=3
 
 **French Lockdown Still Reducing Economic Activity by 35%: INSEE**\
-`A country-wide lockdown in France is still reducing economic activity by 35% from normal levels despite a slight pick-up in the industrial and construction sectors, the INSEE official statistics agency said on Thursday.`\
+`A country-wide lockdown in France is still reducing economic activity by 35% more than a month since it was imposed, despite a slight pick-up in the industrial and construction sectors, the INSEE official statistics agency said on Thursday.`\
 https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-france-economy.html?searchResultPosition=4
 
 **Truck Maker Volvo First-Quarter Profit Falls Less Than Expected**\
