@@ -23,7 +23,7 @@ https://nytimes.com/2020/04/23/us/florida-is-a-terrible-state-to-be-an-unemploye
 https://nytimes.com/aponline/2020/04/23/world/middleeast/ap-ml-yemen-bahai-prisoners.html?searchResultPosition=7
 
 **Elizabeth Warren's Oldest Brother Dies of Coroanvirus**\
-`The oldest brother of Sen. Elizabeth Warren, Donald Reed Herring, has died from the coronavirus, the senator said Thursday. `\
+`The oldest brother of Sen. Elizabeth Warren, Donald Reed Herring, has died from the coronavirus, the Massachusetts senator said Thursday. `\
 https://nytimes.com/aponline/2020/04/23/us/ap-us-virus-outbreak-warren-brother.html?searchResultPosition=8
 
 **$23M to Provide Laptops for Detroit Students Amid Pandemic**\
