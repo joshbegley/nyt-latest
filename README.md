@@ -18,7 +18,7 @@ https://nytimes.com/2020/04/23/health/coronavirus-mental-health.html?searchResul
 `Benchmark U.S. crude oil for June delivery rose $2.72, or 19.7%, to close at $16.50 a barrel Thursday. Brent crude oil, the international standard, rose 96 cents, or 4.7%, $21.33 a barrel.`\
 https://nytimes.com/aponline/2020/04/23/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=6
 
-**A Rhode Island College Was Forced to Adapt**\
+**How a Rhode Island College Was Forced to Adapt**\
 `Well-run colleges are known for thoughtful planning and execution. The pandemic made the Community College of Rhode Island work in a new way, instantaneously.`\
 https://nytimes.com/2020/04/23/education/learning/coronavirus-ccri-rhode-island.html?searchResultPosition=7
 
