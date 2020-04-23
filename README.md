@@ -1,36 +1,36 @@
+**Hungary Seen Wrongly Holding Asylum Seekers in Transit Zones**\
+`Hungary's practice of keeping asylum seekers in a closed transit zone on the border with Serbia qualifies as “unlawful detention,” according to an nonbinding opinion issued Thursday by a senior official at the European Union's highest court. `\
+https://nytimes.com/aponline/2020/04/23/world/europe/ap-eu-hungary-migrants.html?searchResultPosition=2
+
+**Beyoncé Identifies Groups Receiving $6M in Coronavirus Aid**\
+`Beyoncé is focusing her coronavirus relief efforts on organizations that are helping communities of color that have been hit hard by the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/04/23/us/ap-us-virus-relief-beyonce.html?searchResultPosition=3
+
+**Lesotho PM Shows No Signs of Leaving to Defuse Crisis**\
+`Lesotho Prime Minister Thomas Thabane has said he will not be told when to leave office, a national newspaper reported on Thursday, resisting efforts to defuse a political crisis with the offer of a "dignified retirement."`\
+https://nytimes.com/reuters/2020/04/23/world/africa/23reuters-lesotho-politics.html?searchResultPosition=4
+
+**Czech Government Aiming to Reopen Locked-Down Shops, Restaurants Faster**\
+`The Czech Republic will move forward plans to ease its coronavirus lockdown by two weeks to get most businesses and restaurants operating again by May 25, Industry Minister Karel Havlicek said on Thursday.`\
+https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-czech.html?searchResultPosition=5
+
+**Activists: 2 Killed in Puerto Rico Were Transgender Women**\
+`Activists said Thursday that the two bodies found inside a charred car in southeast Puerto Rico were of transgender women, marking four such deaths in the past two months.`\
+https://nytimes.com/aponline/2020/04/23/world/americas/ap-cb-puerto-rico-transgender-killings.html?searchResultPosition=6
+
 **French Village Bids Adieu to Doctor Who Succumbed to COVID-19**\
 `In Villers-Outreaux's village square, doctors, nurses and patients gathered, heads bowed and standing apart, to bid farewell to a local practitioner who succumbed to the new coronavirus.`\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-france-doctor-funeral.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-france-doctor-funeral.html?searchResultPosition=7
 
 **Trump's Criticism Adds to Tough Choices in Georgia Reopening**\
 `President Donald Trump's blunt disapproval of Georgia Gov. Brian Kemp's decision to let certain businesses reopen in limited ways is only complicating the decisions of many owners, workers and customers amid the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/23/business/ap-us-virus-outbreak-georgia.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/04/23/business/ap-us-virus-outbreak-georgia.html?searchResultPosition=8
 
 **Donald Kennedy, Who Led Stanford in 1980s, Dies at 88**\
 `As president, he expanded the university and battled a government inquiry into its research expenses. He also headed the F.D.A. under President Carter.`\
-https://nytimes.com/2020/04/23/us/donald-kennedy-who-led-stanford-in-1980s-dies-at-88.html?searchResultPosition=4
+https://nytimes.com/2020/04/23/us/donald-kennedy-who-led-stanford-in-1980s-dies-at-88.html?searchResultPosition=9
 
 **Naomi Campbell-From Catwalk Queen to Chat Show Host**\
 `Coronavirus quarantine has supermodel Naomi Campbell reinventing herself as a talk show host with the new series "No Filter with Naomi." `\
-https://nytimes.com/reuters/2020/04/23/arts/23reuters-people-naomi-campbell.html?searchResultPosition=5
-
-**South Dakota Auto Races Go Forward Without Fans Due to Virus**\
-`Two South Dakota speedways reversed course Thursday and said they would hold their weekend races without spectators, after Gov. Kristi Noem warned fans against attending the sold-out events because of the coronavirus. `\
-https://nytimes.com/aponline/2020/04/23/sports/ap-car-virus-outbreak-auto-races.html?searchResultPosition=6
-
-**EU Leaders Nudge Towards Joint Coronavirus Recovery Aid**\
-`European Union leaders edged forward on Thursday towards joint financing of an economic recovery after the coronavirus pandemic by agreeing to ask the European Commission to work out the details of such common support, EU sources said. `\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-eu-sources.html?searchResultPosition=7
-
-**Saudi Sovereign Fund Sees Opportunities After Coronavirus, PIF Head Says**\
-`The head of Saudi Arabia’s sovereign wealth fund Yassir al-Rumayyan said there will be a lot of potential for investment opportunities once the coronavirus crisis passes.`\
-https://nytimes.com/reuters/2020/04/23/business/23reuters-saudi-economy-pif.html?searchResultPosition=8
-
-**Mexico Eyes Agreement to End Virus-Induced Disruptions to U.S.-Mexico Supply Chains**\
-`Mexican President Andres Manuel Lopez Obrador said on Thursday he expected an agreement to enable industrial supply chains linking the United States and Mexico to begin operating normally again pending a review by authorities.`\
-https://nytimes.com/reuters/2020/04/23/world/americas/23reuters-health-coronavirus-mexico-trade.html?searchResultPosition=9
-
-**Dallas Hotelier Gets $58.7 Million in Small Business Bailout Funds**\
-`Three publicly traded companies overseen by Dallas hotelier Monty Bennett have borrowed $58.7 million under a program aimed at helping small businesses through the coronavirus pandemic, and that may be just a start.`\
-https://nytimes.com/reuters/2020/04/23/us/23reuters-health-coronavirus-usa-small-business-ppp.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/23/arts/23reuters-people-naomi-campbell.html?searchResultPosition=10
 
