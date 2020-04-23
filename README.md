@@ -1,36 +1,36 @@
-**Fed Will Provide Monthly Disclosures on Support Programs**\
-`The Federal Reserve said Thursday that it will provide monthly reports on several of its economic rescue programs supported by the $2 trillion rescue program passed by Congress.`\
-https://nytimes.com/aponline/2020/04/23/business/ap-us-federal-reserve-support-programs.html?searchResultPosition=2
+**Newsom Details ‘Deadliest Day’ for California**\
+`Gov. Gavin Newsom of California said the state recorded 115 Covid-19 deaths on Wednesday, the deadliest day since the start of the pandemic.`\
+https://nytimes.com/video/us/politics/100000007104680/coronavirus-california-deaths-newsom.html?searchResultPosition=2
 
-**Abba Kyari, Nigerian President’s Right-Hand Man, Dies**\
-`As chief of staff to President Muhammadu Buhari, Mr. Kyari was a “gatekeeper” and “loyal friend.”`\
-https://nytimes.com/2020/04/23/obituaries/abba-kyari-dead-coronavirus.html?searchResultPosition=3
+**Tornado-Damaged Parts Plant May Not Disrupt Auto Production**\
+`A tornado strike at a critical parts supply plant in South Carolina may not disrupt auto production as badly as feared.`\
+https://nytimes.com/aponline/2020/04/23/business/ap-us-autos-supplier-plant-damaged.html?searchResultPosition=3
 
-**Britain Launches COVID-19 Vaccine Study, Latest in Race**\
-`Testing of an experimental COVID-19 vaccine began in healthy volunteers in Britain Thursday, the latest in a cluster of early-stage studies in search of protection against the coronavirus. `\
-https://nytimes.com/aponline/2020/04/23/health/ap-med-virus-outbreak-vaccine-study.html?searchResultPosition=4
+**McConnell to Every State: Drop Dead**\
+`Blocking federal aid is vile, but it’s also hypocritical.`\
+https://nytimes.com/2020/04/23/opinion/mcconnell-coronavirus-states.html?searchResultPosition=4
 
-**How School Districts Are Outsmarting a Microbe**\
-`Schools thrust into turmoil by the coronavirus are slowly finding ways to cope.`\
-https://nytimes.com/2020/04/23/education/learning/coronavirus-online-class-public-schools.html?searchResultPosition=5
+**From Afar, a Fugitive in the Knoedler Art Fraud Gives His Defense**\
+`Until now, little has been heard from José Carlos Bergantiños Diaz, who the authorities charged in connection with the sale of $80 million in phony works.`\
+https://nytimes.com/2020/04/23/arts/design/knoedler-art-jose-carlos-bergantios-diaz.html?searchResultPosition=5
 
-**Canadian Police Encourage Tipsters While Working on Timeline of Mass Shooting**\
-`Canadian police on Thursday worked to piece together the timeline of a shooting spree that started in a rural hamlet in the Atlantic province of Nova Scotia and ended 13 hours later when the gunman, who killed 22 people, was shot dead.`\
-https://nytimes.com/reuters/2020/04/23/world/americas/23reuters-canada-crime-novascotia.html?searchResultPosition=6
+**Congress Meets Pandemic With Masked Faces, Heavy Emotions**\
+`If the coronavirus threat is waning, as President Donald Trump suggests, you wouldn't know it by watching Congress.`\
+https://nytimes.com/aponline/2020/04/23/us/politics/ap-us-virus-outbreak-congress-scene.html?searchResultPosition=6
 
-**North Dakota Sets All-Mail June Primary Due to Virus Fears**\
-`North Dakota's June 9 primary will be conducted entirely by mail after all 53 counties chose to avoid in-person voting due to the coronavirus.`\
-https://nytimes.com/aponline/2020/04/23/us/ap-us-virus-outbreak-north-dakota-election.html?searchResultPosition=7
+**Appeals Court: Detroit Students Have a Right to Literacy**\
+`Students at underperforming Detroit public schools have a constitutional right to literacy, a federal appeals court ruled Thursday.`\
+https://nytimes.com/aponline/2020/04/23/us/ap-us-detroit-schools-literacy.html?searchResultPosition=7
 
-**With New Time and Busier Schedule, HBO's 'Axios' Thinks Big**\
-`No one can accuse Axios co-founder and CEO Jim VandeHei of small dreams for his bi-weekly news series on HBO, which is ramping up production to air nearly every two weeks for the rest of the year and moving to Monday nights.`\
-https://nytimes.com/aponline/2020/04/23/us/ap-us-media-axios-on-hbo.html?searchResultPosition=8
+**Iowa Governor: Tip From Ashton Kutcher Led to Testing Deal**\
+`Iowa’s governor said the state’s $26 million contract to increase coronavirus testing was reached after she acted on a tip from actor Ashton Kutcher, a revelation that increased skepticism about the no-bid deal.`\
+https://nytimes.com/aponline/2020/04/23/business/ap-us-virus-outbreak-iowa-testing-1st-ld-writethru.html?searchResultPosition=8
 
-**Mariners' Gordon Wins Prestigious Hutch Award**\
-`Seattle Mariners second baseman Dee Gordon won the Hutch Award, given annually to honor a player's exemplary community service.`\
-https://nytimes.com/reuters/2020/04/23/sports/23reuters-baseball-mlb-sea-gordon-award.html?searchResultPosition=9
+**C.D.C. Stresses Need for Coronavirus Testing at Homeless Shelters**\
+`A study of four cities suggested that those living in close quarters in shelters can spread the virus at high rates even when asymptomatic.`\
+https://nytimes.com/2020/04/23/health/coronavirus-testing-homeless-shelters.html?searchResultPosition=9
 
-**Bolsonaro Clips Wings of Guedes as Generals Unveil Stimulus**\
-`Brazil is drawing up a new wave of fiscal stimulus in its battle against the economic ravages of the new coronavirus, but the most notable aspect may be what is missing: the fingerprints of Economy Minister Paulo Guedes.`\
-https://nytimes.com/reuters/2020/04/23/world/americas/23reuters-brazil-economy-minister-analysis.html?searchResultPosition=10
+**Antibodies, Stimulus, Angela Merkel: Your Thursday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/04/23/briefing/antibodies-stimulus-angela-merkel.html?searchResultPosition=10
 
