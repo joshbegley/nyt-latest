@@ -1,36 +1,36 @@
-**Chinese Citizen Journalist Resurfaces After Going Missing in Wuhan**\
-`A Chinese citizen journalist who posted videos about the coronavirus situation in the city of Wuhan has resurfaced after going missing for almost two months, saying in a YouTube video that he had been forcibly quarantined. `\
-https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-health-coronavirus-china-journalist.html?searchResultPosition=2
+**11 Books to Watch For in May**\
+`A prequel to “The Hunger Games,” a love letter to French cooking, a novel by Curtis Sittenfeld that reimagines Hillary Clinton’s life and much more.`\
+https://nytimes.com/2020/04/23/arts/new-may-books.html?searchResultPosition=2
 
-**A Lot Has Changed in 50 Years, Off Paris Stages and On**\
-`Our Paris theater critic looked though a new online archive to discover what was on offer for French theatergoers in 1970.`\
-https://nytimes.com/2020/04/23/theater/ina-madelen-archive.html?searchResultPosition=3
+**Vaccine Rates Drop Dangerously as Parents Avoid Doctor’s Visits**\
+`Afraid of Covid-19, parents are postponing well-child checkups, including shots, putting millions of children at risk of exposure to preventable deadly diseases.`\
+https://nytimes.com/2020/04/23/health/coronavirus-measles-vaccines.html?searchResultPosition=3
 
-**Eight of 10 UK Firms Interested in Coronavirus Furlough Scheme: ONS**\
-`Around eight of every 10 of British companies are interested in the government's offer to pay 80% of the wages of staff who are temporarily laid off, according to a survey published by the country's official statistics office.`\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-britain-furloughs.html?searchResultPosition=4
+**Hidden Outbreaks Spread Through U.S. Cities Far Earlier Than Americans Knew, Estimates Say**\
+`By Benedict Carey and James Glanz`\
+https://nytimes.com/2020/04/23/us/coronavirus-early-outbreaks-cities.html?searchResultPosition=4
 
-**Taiwan Says Chinese Carrier Group Has Ended South China Sea Mission**\
-`Taiwan's Defence Ministry said on Thursday that a Chinese aircraft carrier group which this month sailed down Taiwan's east coast had ended its mission in the South China Sea on Wednesday.`\
-https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-malaysia-china-southchinasea-taiwan.html?searchResultPosition=5
+**What the Great Pandemic Novels Teach Us**\
+`People have always responded to epidemics by spreading rumor and false information and portraying the disease as foreign and brought in with malicious intent.`\
+https://nytimes.com/2020/04/23/opinion/sunday/coronavirus-orhan-pamuk.html?searchResultPosition=5
 
-**UK Lenders Provide 2.8 Billion Pounds in Emergency COVID Loans**\
-`Britain's banks have provided 2.8 billion pounds ($3.5 billion)in emergency loans to small and medium-sized companies under a government-backed scheme to help businesses survive the coronavirus lockdown, an industry group said on Thursday.`\
-https://nytimes.com/reuters/2020/04/23/business/23reuters-health-coronavirus-britain-loans.html?searchResultPosition=6
+**A Precedent Overturned Reveals a Supreme Court in Crisis**\
+`Separate opinions in a case show nine justices pursuing agendas far removed from the dispute at hand.`\
+https://nytimes.com/2020/04/23/opinion/supreme-court-precedent.html?searchResultPosition=6
 
-**EU Official: Aiming to Launch EU Recovery Fund at Start of 2021 in Best Case Scenario**\
-`The European Union is aiming to launch a recovery fund on Jan 1, 2021 in the best case scenario, an EU official said on Thursday.`\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-eu-recovery.html?searchResultPosition=7
+**‘Staying Nimble’: How Small Businesses Can, and Do, Shift Gears**\
+`With the coronavirus restrictions, entrepreneurs are learning in real time just how they need to adapt to survive.`\
+https://nytimes.com/2020/04/23/business/coronavirus-small-businesses-adapt.html?searchResultPosition=7
 
-**Spanish Hotels See 66% Visitor Slump in March Amid Epidemic**\
-`The number of foreign visitors staying in Spanish hotels slumped almost 66% in March to 1.19 million as the coronavirus epidemic forced the tourism-dependent country to impose one of the strictest lockdowns in Europe, data showed on Thursday.`\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-spain-tourism.html?searchResultPosition=8
+**Few Travelers, Few Flights and Now, a Total Airport Shutdown**\
+`Westchester County Airport, north of New York City, is closing temporarily, using the time to complete long-planned construction.`\
+https://nytimes.com/2020/04/23/nyregion/westchester-county-airport-closing-coronavirus.html?searchResultPosition=8
 
-**Japan Offers Bleakest View of Economy in Over a Decade as Virus Damage Deepens**\
-`Japan's government on Thursday offered its bleakest assessment of the economy in over a decade as the fallout from the coronavirus pandemic threatens to tip the world's third-largest economy into a deep recession.`\
-https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-health-coronavirus-japan-economy.html?searchResultPosition=9
+**New York and Boston Pigeons Don’t Mix**\
+`The East Coast is made up of two pigeon genetic megacities, and a patch of Connecticut seems to be what’s keeping them apart.`\
+https://nytimes.com/2020/04/23/science/pigeons-boston-new-york.html?searchResultPosition=9
 
-**Finland PM to Work From Home as Precaution Against Coronavirus**\
-`Finnish Prime Minister Sanna Marin will work from home from Thursday as a precaution against possible exposure to the coronavirus, her office said.`\
-https://nytimes.com/reuters/2020/04/23/world/europe/23reuters-health-coronavirus-finland-primeminister.html?searchResultPosition=10
+**As Coronavirus Threatens, Teenage Migrants ‘Age Out’ Into ICE Jails**\
+`Those initially detained by the government’s Office of Refugee Resettlement are being held until their 18th birthday, then transferred to ICE custody.`\
+https://nytimes.com/2020/04/23/us/politics/coronavirus-teenage-migrants-ice.html?searchResultPosition=10
 
