@@ -1,36 +1,36 @@
-**Mexico Family Hurt by No Funeral for Father Dead of COVID-19**\
-`The family of Manuel Briseño knows how they would have mourned the 78-year-old, who died Tuesday of the new coronavirus: a big funeral with the extended family, an extended mourning period and a burial at a Mexico City cemetery next to the grave of his wife of 49 years, Consuelo García. `\
-https://nytimes.com/aponline/2020/04/23/world/americas/ap-lt-virus-outbreak-a-farewell.html?searchResultPosition=2
+**McLaren's Brown Says Ferrari Are in Denial Over Budget Cap**\
+`McLaren boss Zak Brown has accused Ferrari of being in denial about the existential threat Formula One faces from COVID-19 as arguments heat up over how much teams should be allowed to spend.`\
+https://nytimes.com/reuters/2020/04/23/sports/autoracing/23reuters-health-coronavirus-f1-mclaren.html?searchResultPosition=2
 
-**Newsom Details ‘Deadliest Day’ for California**\
-`Gov. Gavin Newsom of California said the state recorded 115 Covid-19 deaths on Wednesday, the deadliest day since the start of the pandemic.`\
-https://nytimes.com/video/us/politics/100000007104680/coronavirus-california-deaths-newsom.html?searchResultPosition=3
+**Coronavirus Critics’ Picks**\
+`Now is an excellent time to read about the 1918 flu. Or maybe just watch the Fast & Furious movies.`\
+https://nytimes.com/2020/04/23/opinion/coronavirus-bored-quarantine.html?searchResultPosition=3
 
-**Tornado-Damaged Parts Plant May Not Disrupt Auto Production**\
-`A tornado strike at a critical parts supply plant in South Carolina may not disrupt auto production as badly as feared.`\
-https://nytimes.com/aponline/2020/04/23/business/ap-us-autos-supplier-plant-damaged.html?searchResultPosition=4
+**Halle Berry? Hallelujah.**\
+`We come to terms with Halle Berry’s “Catwoman.”`\
+https://nytimes.com/2020/04/23/podcasts/still-processing-halle-berry-sharon-stone-catwoman-quarantine.html?searchResultPosition=4
 
-**McConnell to Every State: Drop Dead**\
-`Blocking federal aid is vile, but it’s also hypocritical.`\
-https://nytimes.com/2020/04/23/opinion/mcconnell-coronavirus-states.html?searchResultPosition=5
+**Proxy Adviser ISS Recommends Vote 'Against' CEO Pay at Goldman Sachs**\
+`Influential proxy adviser Institutional Shareholder Services has recommended investors cast advisory votes against the pay of top executives at Goldman Sachs Group Inc, which could lead to hard-fought ballot item at the bank's annual meeting next week.`\
+https://nytimes.com/reuters/2020/04/23/business/23reuters-goldman-sachs-ceopay.html?searchResultPosition=5
 
-**From Afar, a Fugitive in the Knoedler Art Fraud Gives His Defense**\
-`Until now, little has been heard from José Carlos Bergantiños Diaz, who the authorities charged in connection with the sale of $80 million in phony works.`\
-https://nytimes.com/2020/04/23/arts/design/knoedler-art-jose-carlos-bergantios-diaz.html?searchResultPosition=6
+**Federal Reserve Eases Bank Access to Intraday Fed Credit**\
+`The U.S. Federal Reserve on Thursday temporarily eased requirements for banks to access intraday credit from Fed banks to ensure that lending continues during the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/23/us/23reuters-health-coronavirus-fed-credit.html?searchResultPosition=6
 
-**Congress Meets Pandemic With Masked Faces, Heavy Emotions**\
-`If the coronavirus threat is waning, as President Donald Trump suggests, you wouldn't know it by watching Congress.`\
-https://nytimes.com/aponline/2020/04/23/us/politics/ap-us-virus-outbreak-congress-scene.html?searchResultPosition=7
+**U.S. Treasury Mulling Using COVID Loan to Force Postal Service Rate Changes: Washington Post**\
+`The Treasury Department is mulling using a $10 billion emergency coronavirus loan to the U.S. Postal Service to force changes in how it does business, including what it charges for packages, the Washington Post reported on Thursday citing two people familiar with the matter.`\
+https://nytimes.com/reuters/2020/04/23/us/23reuters-health-coronavirus-usa-postoffice.html?searchResultPosition=7
 
-**Appeals Court: Detroit Students Have a Right to Literacy**\
-`Students at underperforming Detroit public schools have a constitutional right to literacy, a federal appeals court ruled Thursday.`\
-https://nytimes.com/aponline/2020/04/23/us/ap-us-detroit-schools-literacy.html?searchResultPosition=8
+**Exclusive: Poll Signals Strengthening Support for Biden Over Trump in Three Battleground States**\
+`Republican President Donald Trump trails Democrat Joe Biden among registered voters in three battleground states that he narrowly carried in 2016 and are seen as crucial to winning November's election, according to an Ipsos public opinion poll conducted exclusively for Reuters.`\
+https://nytimes.com/reuters/2020/04/23/us/politics/23reuters-usa-election-battlegrounds-exclusive.html?searchResultPosition=8
 
-**Iowa Governor: Tip From Ashton Kutcher Led to Testing Deal**\
-`Iowa’s governor said the state’s $26 million contract to increase coronavirus testing was reached after she acted on a tip from actor Ashton Kutcher, a revelation that increased skepticism about the no-bid deal.`\
-https://nytimes.com/aponline/2020/04/23/business/ap-us-virus-outbreak-iowa-testing-1st-ld-writethru.html?searchResultPosition=9
+**The Latest: 6 Teams Set to Sit Out First Round of NFL Draft**\
+`The Latest on the first round of the NFL draft. `\
+https://nytimes.com/aponline/2020/04/23/sports/football/ap-fbn-the-latest-nfl-draft.html?searchResultPosition=9
 
-**C.D.C. Stresses Need for Coronavirus Testing at Homeless Shelters**\
-`A study of four cities suggested that those living in close quarters in shelters can spread the virus at high rates even when asymptomatic.`\
-https://nytimes.com/2020/04/23/health/coronavirus-testing-homeless-shelters.html?searchResultPosition=10
+**'The Chi' Star Arrested for Drugs, Weapons in Mississippi**\
+`A star of the hit Showtime series “The Chi" who was also featured in the Academy Award-nominated film “Straight Outta Compton" has been arrested on drugs and weapons charges on Mississippi's coast.`\
+https://nytimes.com/aponline/2020/04/23/us/ap-us-actor-arrested-the-chi.html?searchResultPosition=10
 
