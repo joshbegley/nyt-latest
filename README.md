@@ -2,7 +2,7 @@
 `The pandemic has disrupted the creative lives of everyday Americans who used to spend untold hours together singing, dancing and making art, sometimes for money, always with love.`\
 https://nytimes.com/2020/04/23/arts/coronavirus-creatives-artists-musicians-photographers.html?searchResultPosition=2
 
-**Rule No. 1 for Parents doing ‘Crisis Schooling’: Take a Deep Breath.**\
+**Rule No. 1 for Parents Doing ‘Crisis Schooling’: Take a Deep Breath.**\
 `It’s not like you have to worry about teaching calculus or advanced biology. Not yet, at least.`\
 https://nytimes.com/2020/04/23/education/learning/coronavirus-remote-learning-tips-home-schooling.html?searchResultPosition=3
 
