@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/04/23/us/politics/ap-us-virus-outbreak-congress-oversight.html?searchResultPosition=2
 
 **Saudi Arabia Announces Start of Ramadan After Sighting Moon**\
-`Saudi Arabia and some other Muslim-majority nations, including the United Arab Emirates and Jordan, declared that the holy month of Ramadan — when the faithful observe a dawn-to-dusk fast — would begin on Friday, based on a moon-sighting methodology.`\
+`Saudi Arabia and some other Muslim-majority nations, including Egypt, the United Arab Emirates and Jordan, declared that the holy month of Ramadan — when the faithful observe a dawn-to-dusk fast — would begin on Friday, based on a moon-sighting methodology.`\
 https://nytimes.com/aponline/2020/04/23/world/middleeast/ap-ml-mideast-ramadan.html?searchResultPosition=3
 
 **AP-NORC Poll: Few Americans Trust Trump's Info on Pandemic**\
