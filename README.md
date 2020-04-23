@@ -30,7 +30,7 @@ https://nytimes.com/reuters/2020/04/23/business/23reuters-health-coronavirus-afr
 `As Toyota prepares to nearly halve production at  Japanese factories, a regional governor said on Thursday he would offer 400 billion yen ($3.72 billion) in emergency loans for small and mid-size companies including Toyota's suppliers.`\
 https://nytimes.com/reuters/2020/04/23/business/23reuters-health-coronavirus-japan-aichi.html?searchResultPosition=9
 
-**Eli Lilly Reports 15% Rise in Quarterly Sales**\
-`Eli Lilly and Co reported a 15.1% rise in first-quarter sales on Thursday, boosted by higher sales of its top-selling diabetes drug Trulicity and also benefiting from customers stockpiling its medicines amid the coronavirus pandemic.`\
+**Eli Lilly Lifts 2020 Profit View as Coronavirus Lockdowns Fuel Profit Beat**\
+`Eli Lilly and Co beat quarterly profit estimates and raised the top-end of its 2020 earnings forecast on Thursday, benefiting from customers stockpiling on medicines such as its diabetes treatment Trulicity amid the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/04/23/business/23reuters-lilly-results.html?searchResultPosition=10
 
