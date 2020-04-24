@@ -1,36 +1,36 @@
+**Swedish Group: Imprisoned Saudi Activist Dies in Custody**\
+`The foundation behind a renowned Swedish prize known as the “Alternative Nobel" said that one of its 2018 award recipients, imprisoned Saudi activist Abdullah al-Hamid, died on Friday in custody in a hospital in Saudi Arabia.`\
+https://nytimes.com/aponline/2020/04/24/world/europe/ap-eu-sweden-saudi-arabia-activist-dies.html?searchResultPosition=2
+
+**Biden Will Fund-Raise With D.N.C. and His Appointee Will Lead the Committee**\
+`Joe Biden’s presidential campaign is beginning to consolidate control over the Democratic National Committee and will have the ability to raise badly needed cash.`\
+https://nytimes.com/2020/04/24/us/politics/DNC-joe-biden-fundraising-mary-beth-cahill.html?searchResultPosition=3
+
+**EU's Amorphous Recovery Fund Bails Out Italian PM, for Now**\
+`Prime Minister Giuseppe Conte, struggling to map a way out of Italy's coronavirus crisis and facing political fire from all sides, has won much-needed breathing space from the European Union.`\
+https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-health-coronavirus-eu-italy-analysis.html?searchResultPosition=4
+
+**Take Five: The Long Road Ahead**\
+`1/A BATTLE FAR FROM WON`\
+https://nytimes.com/reuters/2020/04/24/world/asia/24reuters-global-markets-themes.html?searchResultPosition=5
+
+**Exclusive: U.S. Navy Destroyer in Caribbean Sees Significant Coronavirus Outbreak-Officials**\
+`A U.S. Navy destroyer is believed to have a significant coronavirus outbreak on board as it carries out a counter-narcotics mission in the Caribbean, U.S. officials told Reuters on Friday, marking the latest challenge for the military in dealing with the virus. `\
+https://nytimes.com/reuters/2020/04/24/world/americas/24reuters-health-coronavirus-usa-navy-exclusive.html?searchResultPosition=6
+
+**Taliban Ramp Up Attacks Even as Coronavirus Spreads in Afghanistan**\
+`With peace negotiations apparently stuck, the insurgents are killing dozens of Afghan government forces every day.`\
+https://nytimes.com/2020/04/24/world/asia/taliban-attacks-afghanistan-coronavirus.html?searchResultPosition=7
+
+**Wall Street Backs Off European Corporate Lending to Focus on America: Sources**\
+`U.S. investment banks are shrinking lending activity in Europe as the pandemic forces them to focus on home, allowing BNP Paribas and other European lenders to fill the gaps and grab market share, sources familiar with the matter told Reuters.`\
+https://nytimes.com/reuters/2020/04/24/business/24reuters-health-coronavirus-europe-loans.html?searchResultPosition=8
+
+**U.S. Not at Geneva Meet, but Says It Will Lead on 'Global Health Matters'**\
+`The U.S. mission in Geneva said on Friday that although the United States did not participate in a meeting of world leaders on the coronavirus outbreak there was "no doubt about our continuing determination to lead on global health matters".`\
+https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-health-coronavirus-who-usa-meet.html?searchResultPosition=9
+
 **What’s a Pulse Oximeter, and Do I Really Need One at Home?**\
 `A tiny fingertip device can give you valuable information about your health during a bout of Covid-19 or any respiratory illness.`\
-https://nytimes.com/2020/04/24/well/live/coronavirus-pulse-oximeter-oxygen.html?searchResultPosition=2
-
-**Watch Live: Cuomo Delivers Coronavirus Update for New York**\
-`Gov. Andrew Cuomo provides New York’s latest coronavirus stats, and the status of the state’s reopening plans.`\
-https://nytimes.com/video/us/politics/100000007105648/new-york-governor-andrew-cuomo-press-conference-coronavirus.html?searchResultPosition=3
-
-**Even Partial View of Economic Damage From Virus Is Massive**\
-`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Friday related to the global economy, the work place and the spread of the virus.`\
-https://nytimes.com/aponline/2020/04/24/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=4
-
-**What Is a Conservative? And Other Letters to the Editor**\
-`Readers respond to recent issues of the Sunday Book Review.`\
-https://nytimes.com/2020/04/24/books/review/what-is-a-conservative-letters-to-the-editor.html?searchResultPosition=5
-
-**Smithfield Foods Sued Over Working Conditions in Missouri During Coronavirus**\
-`Smithfield Foods Inc, the world's largest pork processor, has been accused in a lawsuit of failing to adequately protect workers at a Missouri plant who have been forced to work "shoulder to shoulder" during the novel coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/24/us/24reuters-health-coronavirus-usa-smithfield.html?searchResultPosition=6
-
-**FCA to Resume Preparatory Operations at Melfi Plant in Italy From Monday**\
-`An average of 750 workers of Fiat Chrysler Melfi assembly plant in southern Italy will be back to work next week to prepare the facility for the final development of the group's new hybrid cars, a union representative said on Friday.`\
-https://nytimes.com/reuters/2020/04/24/business/24reuters-health-coronavirus-fiat-chrysler.html?searchResultPosition=7
-
-**AT&T Names John Stankey C.E.O. as Randall Stephenson Plans to Retire**\
-`The longtime telecommunications executive, who led the company’s move into the entertainment industry, will take the top job July 1.`\
-https://nytimes.com/2020/04/24/business/media/att-ceo-john-stankey-randall-stephenson.html?searchResultPosition=8
-
-**Honeymoon Over, Spain's Fragile Coalition Tested by Pandemic Politics**\
-`Spain's Socialist-led government marked its first 100 days in power this week by passing an emergency decree with the help of its eternal adversary the conservative People's Party.`\
-https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-health-coronavirus-spain-politics.html?searchResultPosition=9
-
-**Italy's Coronavirus Epidemic Began in January, Study Shows**\
-`The first COVID-19 infections in Italy date back to January, according to a scientific study presented on Friday, shedding new light on the origins of the outbreak in one of the world's worst-affected countries.`\
-https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-health-coronavirus-italy-study.html?searchResultPosition=10
+https://nytimes.com/2020/04/24/well/live/coronavirus-pulse-oximeter-oxygen.html?searchResultPosition=10
 
