@@ -1,36 +1,36 @@
+**Denuded of Tourists, Paris Reveals Its Old Beating Heart**\
+`With the mobs of visitors gone, the city once again belongs to the Parisians. And, of course, to “les microbes.”`\
+https://nytimes.com/2020/04/24/world/europe/coronavirus-paris.html?searchResultPosition=2
+
+**NYSE Eyes Reopening Trading Floor, but Timeline Still Unclear**\
+`The New York Stock Exchange plans to reopen its iconic trading floor, which is shuttered due to coronavirus concerns, as soon as possible, but it has not yet set a date to do so, the NYSE and people familiar with the matter said on Friday.    `\
+https://nytimes.com/reuters/2020/04/24/business/24reuters-health-coronavirus-nyse.html?searchResultPosition=3
+
+**Water Shortage Leaves Poorer Mexicans High and Dry in Coronavirus Fight**\
+`In the shade of a rust-colored hill, a dozen women gathered on a dusty road to fill buckets from a water tanker truck that pulled up to service their modest community built on a former Mexico City dump.`\
+https://nytimes.com/reuters/2020/04/24/world/americas/24reuters-health-coronavirus-mexico-water.html?searchResultPosition=4
+
+**Up to One in 10 Residents of Moscow May Have Had Coronavirus Infections: Laboratory**\
+`Tests in the wider Moscow region to see if people are carrying coronavirus antibodies suggest that as many as one in 10 residents may have been infected, a government project said on Friday. `\
+https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-health-coronavirus-russia-antibodies.html?searchResultPosition=5
+
+**France's Coronavirus Death Toll Rises by 389 to 22,245**\
+`The death toll in France from the coronavirus rose by 389 to 22,245 on Friday, the country's top health official Jerome Salomon said.`\
+https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-health-coronavirus-france-casualties.html?searchResultPosition=6
+
+**Navy Leaders Recommend Reinstating Roosevelt Captain Fired Over Virus Warning**\
+`Capt. Brett E. Crozier, who was removed from command after sending a letter pleading for help to fight the coronavirus on his aircraft carrier, was largely cleared after Navy review.`\
+https://nytimes.com/2020/04/24/us/politics/coronavirus-navy-roosevelt-brett-crozier.html?searchResultPosition=7
+
+**Paraguay Plans Switch to 'Smart' Quarantine After Coronavirus Curve Flattens**\
+`Paraguay will ease its coronavirus lockdown in May, replacing its currently tough sanctions with a "smart quarantine" after the South American country became one of the most successful in the region to stem the spread of the pandemic.`\
+https://nytimes.com/reuters/2020/04/24/world/americas/24reuters-health-coronavirus-paraguay.html?searchResultPosition=8
+
+**Exclusive: Trial of Gilead's Potential Coronavirus Treatment Running Ahead of Schedule, Researcher Says**\
+`A key U.S. government trial of Gilead Sciences Inc's experimental coronavirus treatment may yield results as early as mid-May, according to the study's lead investigator, after doctors clamored to enroll their patients in the study.`\
+https://nytimes.com/reuters/2020/04/24/us/24reuters-health-coronavirus-gilead-exclusive.html?searchResultPosition=9
+
 **UFC to Offer 3 Shows Without Fans in Jacksonville, Florida**\
 `The UFC is returning to competition on May 9 with three shows in eight days in Jacksonville, Florida.`\
-https://nytimes.com/aponline/2020/04/24/sports/ap-mma-ufc-returns.html?searchResultPosition=2
-
-**Lots of Companies Now Want Your Video Chats -- Even Facebook**\
-`Amid the coronavirus pandemic, this has become an era of Zoom birthdays, virtual happy hours, FaceTime story times and Google yoga classes. Our friends, coworkers, teachers — and doctors, if we're lucky — now largely exist as faces in rectangles on our phones and computer screens.`\
-https://nytimes.com/aponline/2020/04/24/business/ap-us-virus-outbreak-video-chat-war.html?searchResultPosition=3
-
-**Lebanon PM Blames Currency Crash on Central Bank Governor**\
-`Lebanon’s prime minister said Friday he is holding the country's Central Bank governor responsible for the downward spiral of the national currency, accusing him of pursuing “opaque” policies that sent the pound crashing against the dollar. `\
-https://nytimes.com/aponline/2020/04/24/business/ap-ml-lebanon-economy.html?searchResultPosition=4
-
-**Zoom’s Biggest Rivals Are Coming for It**\
-`Facebook, Google and other behemoths are training their sights on Silicon Valley’s company of the moment.`\
-https://nytimes.com/2020/04/24/technology/zoom-rivals-virus-facebook-google.html?searchResultPosition=5
-
-**Answers to Questions About New Coronavirus Antibody Studies**\
-`Studies have begun to emerge that try to determine how many Americans have been infected by the new coronavirus. But are they accurate?`\
-https://nytimes.com/aponline/2020/04/24/health/ap-us-med-virus-outbreak-antibody-studies.html?searchResultPosition=6
-
-**Coronavirus Interrupts, but Doesn’t End, an Arctic Research Expedition**\
-`The Polarstern, a science ship, will have to temporarily break out of polar ice because supply flights are no longer possible.`\
-https://nytimes.com/2020/04/24/climate/arctic-mosaic-expedition-coronavirus.html?searchResultPosition=7
-
-**Hubble Marks 30 Years of Seeing a Universe Being Born and Dying**\
-`A new image reminds us of what the orbiting observatory has let us see.`\
-https://nytimes.com/2020/04/24/science/hubble-telescope-30th-birthday.html?searchResultPosition=8
-
-**Don’t Inject Disinfectants!**\
-`A doctor warns against President Trump’s suggestion that disinfectant use inside the body might be a treatment for coronavirus. Also: Portrait of a president; Mitch McConnell on bailout partisanship.`\
-https://nytimes.com/2020/04/24/opinion/letters/coronavirus-trump-disinfectant.html?searchResultPosition=9
-
-**Pence a Voice of Calm on Virus -- Balancing Health, Politics**\
-`Watching as nearly 1,000 Air Force Academy cadets celebrated their graduation standing 8 feet apart, Vice President Mike Pence choked up briefly at that slice of life in a nation transformed.`\
-https://nytimes.com/aponline/2020/04/24/us/politics/ap-us-virus-outbreak-pence.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/24/sports/ap-mma-ufc-returns.html?searchResultPosition=10
 
