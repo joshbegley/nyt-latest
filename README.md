@@ -1,36 +1,36 @@
-**United States Repatriates Stranded Citizens From Cuba**\
-`About 300 U.S. citizens stranded in Cuba since Havana suspended regular air travel earlier this month due to the coronavirus pandemic were repatriated on two charter flights on Friday.`\
-https://nytimes.com/reuters/2020/04/24/world/americas/24reuters-health-coronavirus-cuba-usa.html?searchResultPosition=2
+**Kentucky's Democratic Governor Vetoes Abortion Legislation**\
+`Kentucky's Democratic governor vetoed legislation Friday that would have given the state's anti-abortion attorney general new authority to regulate abortion clinics.`\
+https://nytimes.com/aponline/2020/04/24/us/ap-us-abortion-kentucky.html?searchResultPosition=2
 
-**Pentagon Chief to 'Thoroughly Review' Navy Inquiry Into Coronavirus-Hit Ship**\
-`U.S. Defense Secretary Mark Esper will "thoroughly review" the Navy's preliminary inquiry into a coronavirus outbreak aboard the aircraft carrier Theodore Roosevelt and then meet with Navy leadership to discuss the next steps, the Pentagon said on Friday.`\
-https://nytimes.com/reuters/2020/04/24/us/24reuters-health-coronavirus-usa-navy-pentagon.html?searchResultPosition=3
+**Nova Scotia Mourns In an Uneasy Time**\
+`The most deadly mass shooting in Canada’s history came in the midst of a public health crisis that the nation has never seen before.`\
+https://nytimes.com/2020/04/24/world/canada/mourning-nova-scotia-coronavirus.html?searchResultPosition=3
 
-**'Spider-Man,' 'Doctor Strange,' 'Thor' Shift Release Dates**\
-`Hollywood studios are shuffling more release dates as a result of the coronavirus, including sequels to “Doctor Strange," “Spider-Man: Far From Home" and “Into the Spider-Verse.”`\
-https://nytimes.com/aponline/2020/04/24/us/ap-us-film-superhero-release-dates.html?searchResultPosition=4
+**Reports: Texans Make Tunsil Highest-Paid OL**\
+`The Houston Texans and left tackle Laremy Tunsil agreed to a three-year, $66 million contract extension, making him the NFL's highest-paid offensive lineman, according to multiple reports Friday.`\
+https://nytimes.com/reuters/2020/04/24/sports/football/24reuters-football-nfl-hou-tunsil-thomas.html?searchResultPosition=4
 
-**Protesters Demand Wisconsin Governor to Reopen State as Coronavirus Cases Rise**\
-`A rally outside Wisconsin's capitol building in Madison on Friday drew hundreds of protesters who demanded Democratic Governor Tony Evers reopen the state even as it reported its largest single day jump of new coronavirus cases. `\
-https://nytimes.com/reuters/2020/04/24/us/24reuters-health-coronavirus-usa-wisconsin.html?searchResultPosition=5
+**Unique 2020 NFL Draft Drives Record Betting Handle**\
+`The first round of the 2020 NFL Draft shattered viewing records and saw sports-starved bettors flock to get in on Thursday's action.`\
+https://nytimes.com/reuters/2020/04/24/sports/football/24reuters-football-nfl-draft-handle.html?searchResultPosition=5
 
-**Explainer: How the U.S. Could Use Taxpayer Dollars to Save Oil and Energy Companies**\
-`The U.S. federal government is looking at "a whole bunch of alternatives" to support oil and other energy companies, Treasury Secretary Steven Mnuchin said on Friday as the industry struggles with plummeting prices and demand as the coronavirus crushes economic activity.`\
-https://nytimes.com/reuters/2020/04/24/business/24reuters-health-coronavirus-usa-energy-explainer.html?searchResultPosition=6
+**Packers' Bakhtiari on Love Pick: Rodgers 'About to Be on Fire'**\
+`Green Bay Packers left tackle David Bakhtiari said he believes the team's selection of quarterback Jordan Love in the first round of the 2020 NFL Draft is going to ignite a spark in Aaron Rodgers.`\
+https://nytimes.com/reuters/2020/04/24/sports/football/24reuters-football-nfl-gb-bakhtiari-rodgers.html?searchResultPosition=6
 
-**Unions Denounce Las Vegas Mayor's Call to Re-Open Casinos**\
-`The powerful United Auto Workers union on Friday criticized Las Vegas Mayor Carolyn Goodman's call to re-open casinos despite the continued risk of coronavirus, the latest labor organization to weigh in on her remarks.`\
-https://nytimes.com/reuters/2020/04/24/business/24reuters-health-coronavirus-lasvegas-unions.html?searchResultPosition=7
+**Before Becoming Frozen Wasteland, Antarctica Was Home to Frogs**\
+`When paleontologist Thomas Mörs was peering into a microscope while sorting through tiny 40 million-year-old fossils unearthed on Seymour Island near the tip of the Antarctic Peninsula, he came across quite a surprise - hip and skull bones of a frog.`\
+https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-science-frog.html?searchResultPosition=7
 
-**Icahn Sees Opportunities but Warns of More 'Downdrafts' Ahead: Bloomberg**\
-`Billionaire investor Carl Icahn said he expects to see "good opportunities" to buy after the historic stock market sell-off but warned there will likely be more heavy selling because the coronavirus outbreak has yet to be contained.`\
-https://nytimes.com/reuters/2020/04/24/business/24reuters-icahn-stocks.html?searchResultPosition=8
+**IMF Approves $309 Million in Emergency Financing to Mozambique to Address Coronavirus Hit**\
+`The International Monetary Fund (IMF) said on Friday it has approved a disbursement of $309 million to help Mozambique meet urgent balance of payment and fiscal needs stemming from the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/24/world/africa/24reuters-health-coronavirus-mozambique-imf.html?searchResultPosition=8
 
-**Explainer: Could Warmer Weather Help Contain the Coronavirus?**\
-`The world is looking for signs that the arrival of warmer weather in the northern hemisphere could slow the spread of the coronavirus outbreak, which has killed more than 190,000 people and sent the global economy into a tailspin as countries impose lockdowns and restrict travel. `\
-https://nytimes.com/reuters/2020/04/24/world/asia/24reuters-health-coronavirus-seasonality-explainer.html?searchResultPosition=9
+**First Night of Draft Breaks Records for TV Viewership, League Says**\
+`Television viewership for the first round of the NFL Draft broke records, the league said on Friday, with an average of more than 15.6 million tuning in for one of the rare few live sports events left on a professional calendar otherwise frozen during the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/24/sports/football/24reuters-football-nfl-draft-tv.html?searchResultPosition=9
 
-**Guest Lineups for the Sunday News Shows**\
-`Guest lineups for the Sunday news shows:`\
-https://nytimes.com/aponline/2020/04/24/arts/ap-us-news-shows.html?searchResultPosition=10
+**Column: Bowling Becomes Butt of Joke as Georgia Reopens**\
+`The sign outside the bowling alley in this bedroom community east of Atlanta contained a brief but compelling message Friday.`\
+https://nytimes.com/aponline/2020/04/24/sports/ap-paul-newberry-bowling-.html?searchResultPosition=10
 
