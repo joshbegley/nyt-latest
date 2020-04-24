@@ -1,36 +1,36 @@
+**Gronkowski Thanks Patriots, Says 'Fire Is Back'**\
+`Tight end Rob Gronkowski posted a thank you and farewell to his former team, the New England Patriots, on Instagram on Thursday, two days after he was traded to the Tampa Bay Buccaneers.`\
+https://nytimes.com/reuters/2020/04/23/sports/football/23reuters-football-nfl-tb-nep-gronkowski.html?searchResultPosition=2
+
+**Venezuelan Man Shot Dead Amid Protests Over Shortages, NGO Says**\
+`A Venezuelan man was shot dead on Thursday as locals protesting food and gas shortages looted several stores in one southern town, a rights group said, as frustrations spiked six weeks into a quarantine that has worsened an economic crisis.`\
+https://nytimes.com/reuters/2020/04/23/world/americas/23reuters-venezuela-politics.html?searchResultPosition=3
+
+**Pompeo Urges Egypt to Keep American Prisoners Safe From Coronavirus**\
+`U.S. Secretary of State Mike Pompeo stressed to his Egyptian counterpart on Thursday that Americans detained in Egypt should be kept safe during the coronavirus pandemic, the State Department said.`\
+https://nytimes.com/reuters/2020/04/23/world/middleeast/23reuters-health-coronavirus-egypt-usa.html?searchResultPosition=4
+
+**Factbox: First Overall Draft Pick Joe Burrow**\
+`Factbox on Joe Burrow, who was selected by the Cincinnati Bengals with the first overall pick of the NFL Draft on Thursday.`\
+https://nytimes.com/reuters/2020/04/23/sports/football/23reuters-football-nfl-draft-factbox.html?searchResultPosition=5
+
+**List of All-Time First Overall NFL Draft Picks**\
+`List of first overall NFL draft picks:`\
+https://nytimes.com/reuters/2020/04/23/sports/football/23reuters-football-nfl-draft-first.html?searchResultPosition=6
+
 **China Reports Six New Coronavirus Cases in Mainland vs 10 a Day Earlier**\
 `Mainland China reported 6 new coronavirus cases as of end-April 23, down from 10 reported a day earlier, putting the total number of COVID-19 infections at 82,804. `\
-https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-health-coronavirus-china-toll.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-health-coronavirus-china-toll.html?searchResultPosition=7
 
 **L Brands Files Complaint Against Sycamore for Backing Out of Victoria's Secret Deal**\
 `L Brands Inc filed a legal complaint against Sycamore Partners on Thursday, after the buyout firm walked away from a $525 million deal to acquire a majority stake in the company's Victoria's Secret lingerie brand.`\
-https://nytimes.com/reuters/2020/04/23/business/23reuters-victoria-s-secret-m-a-sycamore-partners.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/23/business/23reuters-victoria-s-secret-m-a-sycamore-partners.html?searchResultPosition=8
 
 **Trump Showcases Idea Heat, Humidity Could Help Fight Virus**\
 `The White House on Thursday pitched “emerging” research on the benefits of sunlight and humidity in diminishing the threat of the coronavirus as President Donald Trump encourages states to move to reopen their economies. `\
-https://nytimes.com/aponline/2020/04/23/us/politics/ap-us-virus-outbreak-trump-sunlight.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/04/23/us/politics/ap-us-virus-outbreak-trump-sunlight.html?searchResultPosition=9
 
 **Philippines' Duterte Threatens Martial Law if Communist Rebels Disrupt Aid**\
 `Philippine President Rodrigo Duterte threatened to declare martial law if communist rebels disrupted the flow of relief goods for Filipinos impacted by the coronavirus lockdown restrictions, and asked his military to be ready.`\
-https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-health-coronavirus-philippines-rebels.html?searchResultPosition=5
-
-**U.S. Warship Sails Through Taiwan Strait, Second Time in a Month**\
-`A U.S. warship has sailed through the sensitive Taiwan Strait for the second time in a month, Taiwanese and U.S. militaries said on Friday, amid heightened tensions between Taiwan and China and as a Chinese aircraft carrier passes near the island.`\
-https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-taiwan-security-usa.html?searchResultPosition=6
-
-**Lions Select Ohio State Cornerback Jeff Okudah in NFL Draft**\
-`The Detroit Lions selected Ohio State cornerback Jeff Okudah in the NFL draft Thursday night.`\
-https://nytimes.com/aponline/2020/04/23/sports/football/ap-fbn-lions-draft.html?searchResultPosition=7
-
-**Bengals Select Quarterback Burrow With Top Pick in NFL Draft**\
-`The Cincinnati Bengals selected Louisiana State University quarterback Joe Burrow with the first pick of the NFL Draft on Thursday that was held online in a bid to help stem the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/04/23/sports/football/23reuters-football-nfl-draft.html?searchResultPosition=8
-
-**Taylor Swift Calls Release of Old Songs 'Shameless Greed'**\
-`Taylor Swift on Thursday revived her feud with her former  record company, complaining that the release of a 2008 collection of recordings for a radio show was "tasteless."`\
-https://nytimes.com/reuters/2020/04/23/arts/23reuters-music-taylor-swift.html?searchResultPosition=9
-
-**Japan's March Consumer Inflation Slows as Pandemic Hit Deepens**\
-`The rate of growth in Japan's annual core consumer inflation slowed for the second straight month, data showed on Friday, underscoring fears that slumping oil costs and soft consumption blamed on the coronavirus pandemic may push the country back into deflation.`\
-https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-japan-economy-inflation.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-health-coronavirus-philippines-rebels.html?searchResultPosition=10
 
