@@ -1,36 +1,36 @@
+**Britain's Self-Referral Testing Website Closes After 'Significant Demand'**\
+`A website for essential workers in Britain applying to get a test for COVID-19 said on Friday it was closed for new applicants just hours after the government widened the number of people eligible for its testing programme.`\
+https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-health-coronavirus-britain-testing.html?searchResultPosition=2
+
+**BofA Sees STOXX 600 Gaining a Further 20% by August**\
+`The pan-European STOXX 600 index is expected to gain a further 20% and hit 400 points by August, while business activity sentiment in the region could rise back to above 50 by the third quarter, BofA said on Friday. `\
+https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-health-coronavirus-research.html?searchResultPosition=3
+
+**Knife Found in Jail Cell of Accused White Supremacist**\
+`Authorities said they found a knife in the jail cell of a Georgia man accused of being part of a violent white supremacist group known as The Base.`\
+https://nytimes.com/aponline/2020/04/24/us/ap-us-white-supremacist-suspect-knife.html?searchResultPosition=4
+
 **Big Oil Investors to Look Past Earnings Pain and Focus on Dividends**\
 `Investors already braced for poor first-quarter earnings from major oil and gas companies next week will focus on how executives plan to save cash and whether they will cut dividends following the collapse in oil prices.`\
-https://nytimes.com/reuters/2020/04/24/business/24reuters-global-oil-majors-preview.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/24/business/24reuters-global-oil-majors-preview.html?searchResultPosition=5
 
 **Analysts Cut EU Carbon Price Forecasts as Coronavirus Causes Demand Slump**\
 `Analysts have sharply cut forecasts for the price of European Union carbon permits for 2020 to 2022 as measures to limit the spread of the novel coronavirus have led to a slump in industrial output and power consumption, reducing permit demand.`\
-https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-eu-carbon-poll.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-eu-carbon-poll.html?searchResultPosition=6
 
 **Saudi-Led Coalition Announces Extension of Yemen Ceasefire by One Month**\
 `The Saudi-led coalition announced on Friday it was extending a unilateral ceasefire in Yemen by one month, the state-run Saudi Press Agency reported, citing a spokesman of the coalition.`\
-https://nytimes.com/reuters/2020/04/24/world/middleeast/24reuters-yemen-security-saudi.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/24/world/middleeast/24reuters-yemen-security-saudi.html?searchResultPosition=7
 
 **Futures Rise at the End of Stormy Week**\
 `U.S. stock index futures gained on Friday with bargain hunters returning at the end of a tumultuous week marked by a record collapse in oil prices and growing evidence of the economic damage from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/24/business/24reuters-usa-stocks.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/24/business/24reuters-usa-stocks.html?searchResultPosition=8
 
 **Indians Try to Flee Unsanitary, Overcrowded Coronavirus Quarantine Centres**\
 `Thousands of people in overcrowded coronavirus quarantine centres in government buildings across India are complaining of poor food and sanitation and lack of social distancing, inmates and officials say. Some are trying to escape. `\
-https://nytimes.com/reuters/2020/04/24/world/asia/24reuters-health-coronavirus-india-quarantine.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/04/24/world/asia/24reuters-health-coronavirus-india-quarantine.html?searchResultPosition=9
 
 **Georgia Expects Its Economy to Contract 4% in 2020: Prime Minister**\
 `Georgia expects its economy to contract 4% in 2020 due to the spread of the coronavirus, the ex-Soviet country's prime minister said on Friday.`\
-https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-georgia-economy.html?searchResultPosition=7
-
-**Climate Activists Take Global Protest Online During Pandemic**\
-`Youth groups are staging a long-planned global climate demonstration online Friday because of restrictions on public protests during the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/24/world/europe/ap-eu-climate-protest.html?searchResultPosition=8
-
-**A Dark Debut Propels a Dutch Writer to Reluctant Fame**\
-`Marieke Lucas Rijneveld’s novel “The Discomfort of Evening” was a best seller in the Netherlands. Now, it’s been nominated for the Booker International Prize.`\
-https://nytimes.com/2020/04/24/books/marieke-lucas-rijneveld-the-discomfort-of-evening.html?searchResultPosition=9
-
-**UK Royal Meghan's Privacy Action Against Tabloid Has First Court Hearing**\
-`The first court hearing in a privacy case brought by Meghan, Britain's Duchess of Sussex, against a tabloid newspaper for printing part of a letter to her father began at London's High Court on Friday.`\
-https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-britain-royals-meghan.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-georgia-economy.html?searchResultPosition=10
 
