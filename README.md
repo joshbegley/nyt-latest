@@ -1,36 +1,36 @@
-**US Factory Orders Plunge 14.4% as Economy Grinds to Halt**\
-`Orders to U.S. factories for big-ticket manufactured goods plunged 14.4% in March, a worse-than-expected performance that underscored the severe impact the coronavirus pandemic is having on the U.S. economy`\
-https://nytimes.com/aponline/2020/04/24/business/bc-us-durable-goods.html?searchResultPosition=2
+**World's Biggest Cold Storage Supplier Could Reach Full UK Capacity in Three Weeks**\
+`The world's biggest cold storage supplier said its UK warehouses could soon run out of space as suppliers to restaurants and mass  caterers closed due to the coronavirus lockdown are forced to freeze food for longer to ride out the crisis.`\
+https://nytimes.com/reuters/2020/04/24/us/24reuters-health-coronavirus-storage.html?searchResultPosition=2
 
-**U. Of Michigan Facing More Legal Action Over Alleged Abuse**\
-`A legal team that says it represents more than 100 people who allege they were abused by a deceased University of Michigan sports doctor on Friday announced the first step in filing a lawsuit against the school.`\
-https://nytimes.com/aponline/2020/04/24/sports/ap-us-university-of-michigan-doctor.html?searchResultPosition=3
+**South Africa's Finance Minister Says More Than $4 Billion Available From IMF, World Bank**\
+`South Africa's Finance Minister Tito Mboweni said on Friday there was more than $4 billion available from the International Monetary Fund and World Bank to help South Africa fight the COVID-19 crisis.`\
+https://nytimes.com/reuters/2020/04/24/world/africa/24reuters-health-coronavirus-safrica.html?searchResultPosition=3
 
-**Is More Cases Good News?**\
-`Not really. Here’s why.`\
-https://nytimes.com/2020/04/24/opinion/coronavirus-antibodies-test.html?searchResultPosition=4
+**Ryanair Could See Job Losses if Flights Grounded Beyond May: CEO**\
+`Ryanair may see job losses if flights remain grounded due to coronavirus restrictions on travel beyond May, Chief Executive Michael O'Leary said on Friday.`\
+https://nytimes.com/reuters/2020/04/24/business/24reuters-health-coronavirus-ryanair-jobs.html?searchResultPosition=4
 
-**U.S. Core Capital Goods Orders Unexpectedly Rise in March**\
-`New orders for key U.S.-made capital goods unexpectedly rose in March, but the gains are not likely to be sustainable amid the novel coronavirus outbreak, which has abruptly shut down the economy and contributed to a collapse in crude oil prices.`\
-https://nytimes.com/reuters/2020/04/24/us/24reuters-usa-economy-durablegoods.html?searchResultPosition=5
+**Journalists at Russian Business Newspaper Complain of Pro-Kremlin Censorship**\
+`Journalists at Vedomosti, a prominent Russian business publication, on Thursday accused their editor of imposing pro-Kremlin censorship upon them and suggested the board of directors appoint someone else. `\
+https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-russia-politics-newspaper.html?searchResultPosition=5
 
-**Firm Behind Monster Trucks, Ice Shows Lays Off Workers**\
-`The company that brings live shows ranging from “Disney on Ice" to monster trucks to local arenas has laid off nearly 1,500 workers because of the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/04/24/business/ap-us-arena-shows-layoffs.html?searchResultPosition=6
+**How ‘Extraction’ Leaps Into Action**\
+`The director Sam Hargrave discusses how he jumped across a building with his camera to capture energetic stunts for his debut feature.`\
+https://nytimes.com/2020/04/24/movies/extraction-clip-netflix.html?searchResultPosition=6
 
-**German Business Outlook Plunges Due to Virus Lockdown**\
-`A closely watched indicator of German business executives' outlooks plunged to its lowest ever level in April as economists struggled to predict just how deep the coronavirus downturn would be in Europe's largest economy. `\
-https://nytimes.com/aponline/2020/04/24/business/ap-eu-germany-economy.html?searchResultPosition=7
+**Britain's Co-op Warns of $340 Million Hit From Coronavirus Crisis**\
+`Britain's Co-operative, the supermarkets to funerals group, warned on Friday additional costs associated with the coronavirus crisis could be up to 275 million pounds ($340 million).`\
+https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-health-coronavirus-cooperative-group.html?searchResultPosition=7
 
-**Indecisive EU to Force ECB Into More Emergency Action**\
-`After another disappointing EU summit, the European Central Bank finds itself in a familiar position as the leading saviour of the euro, once again being called upon to push out its boundaries while politicians bicker.`\
-https://nytimes.com/reuters/2020/04/24/business/24reuters-health-coronavirus-eu-ecb-analysis.html?searchResultPosition=8
+**Norway Approves New Law That Could Help Rescue Norwegian Air**\
+`Norway's parliament voted through a new company restructuring law on Friday that could help save Norwegian Air and many other companies from potential bankruptcy as a result of the restrictions to stem the spread of COVID-19.`\
+https://nytimes.com/reuters/2020/04/24/business/24reuters-health-coronavirus-norway-lawmaking.html?searchResultPosition=8
 
-**FIA Safeguard Clause Could Facilitate Lower F1 Budget Cap**\
-`Formula One's governing body, the FIA, added a clause to its International Sporting Code on Friday that could facilitate a tighter budget cap next season and sidestep Ferrari's objections.`\
-https://nytimes.com/reuters/2020/04/24/sports/autoracing/24reuters-health-coronavirus-f1-clause.html?searchResultPosition=9
+**U.S. Says Will Not Take Part in WHO Global Drugs, Vaccine Initiative Launch**\
+`The United States will not take part in the launching of a global initiative on Friday to speed the development, production and distribution of drugs and vaccines against COVID-19, a spokesman for the U.S. mission in Geneva told Reuters.`\
+https://nytimes.com/reuters/2020/04/24/world/24reuters-health-coronavirus-who-usa.html?searchResultPosition=9
 
-**Nestle CEO Not Getting Carried Away by Strong First-Quarter Sales Growth**\
-`Nestle Chief Executive Mark Schneider warned on Friday against reading too much into the company's first-quarter results, which marked its best quarterly growth for nearly five years as customers stockpiled food to deal with coronavirus shutdowns. `\
-https://nytimes.com/reuters/2020/04/24/business/24reuters-nestle-results-ceo.html?searchResultPosition=10
+**IKEA Says Visitors Returning Fast to Reopened Shopping Centres in China and Germany**\
+`Furniture brand IKEA's main retail vehicle said on Friday shoppers were returning quickly to its shopping centres after it reopened three in China last week, and one in Germany this week - its first four to open after closures due to the coronavirus. `\
+https://nytimes.com/reuters/2020/04/24/business/24reuters-health-coronavirus-ikea-shopping-centres.html?searchResultPosition=10
 
