@@ -30,7 +30,7 @@ https://nytimes.com/reuters/2020/04/23/world/americas/23reuters-health-coronavir
 `The Saudi presidency of the Group of 20 major economies on Thursday called for additional immediate donations to fund the emergency response to the coronavirus pandemic and develop needed vaccines.`\
 https://nytimes.com/reuters/2020/04/23/world/middleeast/23reuters-health-coronavirus-g20.html?searchResultPosition=9
 
-**China Central Bank Cuts Interest Rate on TMLF by 20 Basis Points**\
+**China Cuts TMLF Interest Rate by 20 Basis Points in Latest Economy Support Step**\
 `China's central bank cut the interest rate on its targeted medium-term lending facility (TMLF) on Friday, following similar reductions to borrowing costs on other liquidity tools in the past few weeks to support the economy.`\
 https://nytimes.com/reuters/2020/04/23/business/23reuters-china-economy-tmlf.html?searchResultPosition=10
 
