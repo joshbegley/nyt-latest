@@ -24,7 +24,7 @@ https://nytimes.com/2020/04/24/us/politics/biden-trump-swing-state-polls.html?se
 
 **Power of Sun Is Seen as Slowing the Coronavirus**\
 `A study suggests that ultraviolet rays could impede the outbreak this summer, though not enough to stop it cold.`\
-https://nytimes.com/2020/04/24/health/power-of-sun-is-seen-as-slowing-the-coronavirus.html?searchResultPosition=8
+https://nytimes.com/2020/04/24/health/coronavirus-summer-ultraviolet-light.html?searchResultPosition=8
 
 **Denmark Says $8 Billion Tunnel Link to Germany Will Begin Construction in January 2021**\
 `Construction of the world's longest immersed tunnel connecting Denmark and Germany will begin in January next year, the Danish transport minister said on Friday. `\
