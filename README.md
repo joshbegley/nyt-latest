@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-health-coronavirus-n
 https://nytimes.com/reuters/2020/04/23/world/americas/23reuters-health-coronavirus-haiti-deportation.html?searchResultPosition=8
 
 **Saudi G20 Presidency Urges More Donations to Fund Pandemic Response**\
-`The Saudi presidency of the Group of 20 major economies on Thursday called for additional immediate donations to fund the emergency response to the coronavirus pandemic and develop needed vaccines.`\
+`The Saudi presidency of the Group of 20 major economies on Thursday called for further immediate donations to fund the emergency response to the coronavirus pandemic and develop needed vaccines.`\
 https://nytimes.com/reuters/2020/04/23/world/middleeast/23reuters-health-coronavirus-g20.html?searchResultPosition=9
 
 **China Cuts TMLF Interest Rate by 20 Basis Points in Latest Economy Support Step**\
