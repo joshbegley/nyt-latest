@@ -1,6 +1,6 @@
 **These Women Were Told Their Help Wasn’t Needed. They Didn’t Listen.**\
 `A women’s group in Shanghai started donation drives to get health care workers with crucial personal hygiene supplies. But wary hospitals, hard-to-get road passes and online backlash made the process difficult.`\
-https://nytimes.com/2020/04/24/us/china-coronavirus-women-pads-healthcare-workers.html?searchResultPosition=2
+https://nytimes.com/2020/04/24/world/china-coronavirus-women-pads-healthcare-workers.html?searchResultPosition=2
 
 **Despotism and Democracy in the Age of the Virus**\
 `The battle for humanity and solidarity in the post-American world.`\
