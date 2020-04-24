@@ -1,36 +1,36 @@
+**Iraqi on Genocide Charges in Germany for IS Killing of Child**\
+`An Iraqi man went on trial in Frankfurt on Friday for genocide, war crimes and crimes against humanity, on allegations that as an Islamic State member he was part of an effort to exterminate the Yazidi religious minority, and killed a five-year-old girl he purchased as a slave by chaining her in the hot sun to die of thirst.`\
+https://nytimes.com/aponline/2020/04/24/world/europe/ap-eu-germany-islamic-state.html?searchResultPosition=2
+
+**FDA Cautions Against Use of Malaria Drugs in COVID-19 Patients**\
+`The U.S. Food and Drug Administration on Friday cautioned against the use of malaria drugs, hydroxychloroquine and chloroquine, in COVID-19 patients due to the risk of serious heart rhythm problems.`\
+https://nytimes.com/reuters/2020/04/24/us/24reuters-health-coronavirus-fda-hydroxychloroquine.html?searchResultPosition=3
+
+**UK Says Limited Progress Made With EU in Round Two of Brexit Talks**\
+`Britain and the European Union have held a construtive second round of negotiations on their future relationship but limited progress was made in bridging the gaps between the two sides, the British government said on Friday.`\
+https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-britain-eu-talks.html?searchResultPosition=4
+
+**Dancing in the Streets: Ballet Stars Perform in Empty Amsterdam**\
+`Six dancers from the Dutch National Ballet headed out into the empty streets of Amsterdam this week to perform their parts in a piece of choreography inspired by the coronavirus lockdown.`\
+https://nytimes.com/reuters/2020/04/24/arts/24reuters-health-coronavirus-netherlands-ballet.html?searchResultPosition=5
+
+**Hungry Venezuela's Crops Rot in Fields for Lack of Fuel**\
+`With millions of people hungry in Venezuela, acute fuel shortages are forcing farmers to let crops rot in fields or feed them to livestock since they cannot transport food to market during the coronavirus quarantine.`\
+https://nytimes.com/reuters/2020/04/24/world/americas/24reuters-health-coronavirus-venezuela-crops-feature.html?searchResultPosition=6
+
 **Astronomer Files Trademark Lawsuit Against American Girl**\
 `A Chicago astronomer has sued the maker of American Girl dolls, alleging the Wisconsin company stole her likeness and name to create its astronaut doll. `\
-https://nytimes.com/aponline/2020/04/24/business/ap-us-american-girl-doll-lawsuit.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/04/24/business/ap-us-american-girl-doll-lawsuit.html?searchResultPosition=7
 
 **Cycling: Tokyo Delay Means End of Line for New Zealander Dawkins**\
 `For most athletes a 12-month delay for the Tokyo Olympics was frustrating but for Eddie Dawkins, New Zealand's most successful track cyclist, it convinced him to call time on his career.`\
-https://nytimes.com/reuters/2020/04/24/sports/cycling/24reuters-health-coronavirus-cycling-newzealand.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/24/sports/cycling/24reuters-health-coronavirus-cycling-newzealand.html?searchResultPosition=8
 
 **The Ballet World Needs Robert Garland. Why Isn’t It Calling?**\
 `Creating steps is no problem for the resident choreographer of Dance Theater of Harlem. But he does more: He makes ballet relevant.`\
-https://nytimes.com/2020/04/24/arts/dance/robert-garland-dance-theater-of-harlem.html?searchResultPosition=4
+https://nytimes.com/2020/04/24/arts/dance/robert-garland-dance-theater-of-harlem.html?searchResultPosition=9
 
 **In ‘Penny Dreadful: City of Angels,’ California Dreaming, Darkly**\
 `In this new “Penny Dreadful” series, the creator John Logan imagines a lost Los Angeles of cops, pachucos, Nazi sympathizers and a slinky chaos demon.`\
-https://nytimes.com/2020/04/24/arts/television/penny-dreadful-city-of-angels.html?searchResultPosition=5
-
-**Brené Brown is Rooting for You, Especially Now**\
-`The vulnerability researcher, TED Talk star and new podcast host was urging people to face their deepest fears long before the world fell apart.`\
-https://nytimes.com/2020/04/24/arts/brene-brown-podcast-virus.html?searchResultPosition=6
-
-**Quotation of the Day: Dying in Hotels After New York Tried Isolation**\
-`Quotation of the Day for Friday, April 24, 2020.`\
-https://nytimes.com/2020/04/24/todayspaper/quotation-of-the-day-dying-in-hotels-after-new-york-tried-isolation.html?searchResultPosition=7
-
-**World Must Ensure Equal Access for All to COVID-19 Vaccines, Drugs: WHO**\
-`All new vaccines, diagnostics and treatments against the new coronavirus must be made equally available to everyone worldwide, the World Health Organization said on Friday as it outlined a plan to accelerate work to fight COVID-19.`\
-https://nytimes.com/reuters/2020/04/24/world/europe/24reuters-health-coronavirus-who-launch.html?searchResultPosition=8
-
-**Ex-US Rep Brown Out of Prison Early Amid Virus Concerns**\
-`Former U.`\
-https://nytimes.com/aponline/2020/04/24/us/ap-us-former-congresswoman-fraud-trial.html?searchResultPosition=9
-
-**If Camp Is Canceled, Will I Get My Money Back?**\
-`Policies are all over the map.`\
-https://nytimes.com/2020/04/24/parenting/summer-camp-canceled-refund-coronavirus.html?searchResultPosition=10
+https://nytimes.com/2020/04/24/arts/television/penny-dreadful-city-of-angels.html?searchResultPosition=10
 
