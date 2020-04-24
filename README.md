@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/04/23/us/politics/ap-us-virus-outbreak-trump-s
 https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-health-coronavirus-philippines-rebels.html?searchResultPosition=5
 
 **U.S. Warship Sails Through Taiwan Strait, Second Time in a Month**\
-`A U.S. warship has again sailed through the sensitive Taiwan Strait, Taiwan's Defence Ministry said on Friday, the second time in a month amid heighten tension between Taiwan and China and as a Chinese aircraft carrier passes near the island.`\
+`A U.S. warship has sailed through the sensitive Taiwan Strait for the second time in a month, Taiwanese and U.S. militaries said on Friday, amid heightened tensions between Taiwan and China and as a Chinese aircraft carrier passes near the island.`\
 https://nytimes.com/reuters/2020/04/23/world/asia/23reuters-taiwan-security-usa.html?searchResultPosition=6
 
 **Lions Select Ohio State Cornerback Jeff Okudah in NFL Draft**\
