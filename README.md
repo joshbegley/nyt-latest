@@ -30,7 +30,7 @@ https://nytimes.com/2020/04/24/magazine/behind-the-cover-afghanistans-next-war.h
 `Amazon is studying its next moves in France after an appeals court upheld a ruling saying the company hadn’t done enough to protect workers from the coronavirus.`\
 https://nytimes.com/aponline/2020/04/24/world/europe/bc-virus-outbreak-france-amazon.html?searchResultPosition=9
 
-**When Hugs Can Kill: Mourning a Mass Shooting in a Pandemic**\
+**When Hugs Can Kill: Mourning Nova Scotia’s Mass Shooting in a Pandemic**\
 `The coronavirus has destroyed most of our rituals to cope with death.`\
 https://nytimes.com/2020/04/24/world/canada/nova-scotia-killings-coronavirus-funerals.html?searchResultPosition=10
 
