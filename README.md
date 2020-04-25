@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/04/25/sports/basketball/ap-bkn-virus-outbreak-nba-facilities.html?searchResultPosition=3
 
 **Serving Wings and a Prayer: It’s Back to Business for Fairbanks Restaurants**\
-`The Alaskan city 200 miles from the Arctic Circle was one of the first in the country to reopen restaurants after a long shutdown.`\
+`The Alaskan city 200 miles from the Arctic Circle was one of the first in the country to reopen restaurants after a long coronavirus shutdown.`\
 https://nytimes.com/2020/04/25/us/coronavirus-alaska-fairbanks-restaurants-reopen.html?searchResultPosition=4
 
 **New Pats Draft Pick Rohrwasser Says He Regrets Tattoo**\
