@@ -1,4 +1,4 @@
-**Islamophobia After Large Cluster Affects India's Virus Fight**\
+**Indian Muslims Face Stigma, Blame for Surge in Infections**\
 `India's government is blaming an Islamic missionary meeting for a surge in coronavirus cases, triggering a wave of violence, business boycotts and hate speech toward Muslims that experts warn could worsen the pandemic in the world's second-most populous country.`\
 https://nytimes.com/aponline/2020/04/25/world/asia/ap-as-rel-virus-outbreak-india-islamophobia.html?searchResultPosition=3
 
