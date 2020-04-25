@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/04/25/world/asia/25reuters-northkorea-politics-
 `Shopper Lexie Mayewski is having a hard time finding frozen french fries in Washington, D.C.-area supermarkets in the wake of coronavirus-fueled stockpiling. `\
 https://nytimes.com/reuters/2020/04/25/business/25reuters-health-coronavirus-french-fries-analysis.html?searchResultPosition=5
 
-**Germany Tries Accused ISIS Member for Genocide in Death of Yazidi Girl**\
+**Genocide Trial in Germany for Accused ISIS Member in Death of Yazidi Girl**\
 `The 27-year-old Iraqi man is accused of enslaving and murdering of a 5-year-old. His trial is believed to be the first that carries the charge of genocide in relation to the Yazidis.`\
 https://nytimes.com/2020/04/25/world/europe/germany-genocide-trial-iraq-yazidi.html?searchResultPosition=6
 
