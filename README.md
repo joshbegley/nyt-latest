@@ -18,15 +18,15 @@ https://nytimes.com/reuters/2020/04/25/world/asia/25reuters-health-coronavirus-i
 `The last time Amado Compaore saw his wife, she asked him for a phone charger so she could text friends and let them know she was OK. She died just hours later. `\
 https://nytimes.com/aponline/2020/04/25/world/africa/ap-af-virus-oubreak-burkina-faso-challenges.html?searchResultPosition=7
 
-**‘My World Is Shattering’: Foreign Students Stranded by Coronavirus**\
-`When the pandemic shuttered colleges, many international students had no idea where to live or whether they would ever be able to return to class.`\
-https://nytimes.com/2020/04/25/us/coronavirus-international-foreign-students-universities.html?searchResultPosition=8
+**Bored Russians Posted Silly Art Parodies. The World Has Joined In.**\
+`Frozen dumplings as skulls and A/C ducts as fashion accessories. A Facebook group for art re-enactors has gained 540,000 followers across the locked-down globe.`\
+https://nytimes.com/2020/04/25/world/europe/russia-Facebook-art-parodies.html?searchResultPosition=8
 
 **A Candidate in Isolation: Inside Joe Biden’s Cloistered Campaign**\
 `Walled off from voters in a distinctive kind of lockdown, Mr. Biden has developed a routine, of sorts, as he seeks the presidency from his basement.`\
 https://nytimes.com/2020/04/25/us/politics/joe-biden-coronavirus-quarantine.html?searchResultPosition=9
 
-**Bored Russians Posted Silly Art Parodies. The World Has Joined In.**\
-`Frozen dumplings as skulls and A/C ducts as fashion accessories. A Facebook group for art re-enactors has gained 540,000 followers across the locked-down globe.`\
-https://nytimes.com/2020/04/25/world/europe/russia-Facebook-art-parodies.html?searchResultPosition=10
+**‘My World Is Shattering’: Foreign Students Stranded by Coronavirus**\
+`When the pandemic shuttered colleges, many international students had no idea where to live or whether they would ever be able to return to class.`\
+https://nytimes.com/2020/04/25/us/coronavirus-international-foreign-students-universities.html?searchResultPosition=10
 
