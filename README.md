@@ -2,8 +2,8 @@
 `Singapore has registered 618 new coronavirus infections, its health ministry said on Saturday, taking the city-state's total number of COVID-19 cases to 12,693.`\
 https://nytimes.com/reuters/2020/04/25/world/asia/25reuters-health-coronavirus-singapore.html?searchResultPosition=3
 
-**Australia, New Zealand Honour Military Personnel From Home as Coronavirus Scuppers Parades**\
-`Thousands of people across Australia and New Zealand on Saturday honoured their country's military personnel in private ceremonies held in driveways and on balconies as the coronavirus outbreak forced traditional Anzac Day memorials to be cancelled for the first time in decades.`\
+**Australia, New Zealand Honour Military From Home as Coronavirus Scuppers Parades**\
+`Thousands across Australia and New Zealand honoured their countries' military personnel on Saturday in private ceremonies held in driveways and on balconies, as the coronavirus outbreak forced most traditional Anzac Day memorials to be cancelled for the first time in decades.`\
 https://nytimes.com/reuters/2020/04/25/world/asia/25reuters-health-coronavirus-anzac-day.html?searchResultPosition=4
 
 **Britain Nears Grim Milestone of 20,000 Coronavirus Hospital Deaths**\
