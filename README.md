@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/04/24/world/asia/ap-as-australia-anzac-day.htm
 https://nytimes.com/aponline/2020/04/24/sports/ncaafootball/ap-fbc-washington-state-beekman.html?searchResultPosition=4
 
 **Eagles Pull Off a Stunner, Draft Jalen Hurts in Second Round**\
-`The Philadelphia Eagles have selected Oklahoma quarterback Jalen Hurts in the second round of the NFL draft.`\
+`After giving Carson Wentz a playmaker, the Philadelphia Eagles drafted his backup.`\
 https://nytimes.com/aponline/2020/04/24/sports/football/ap-fbn-eagles-draft.html?searchResultPosition=5
 
 **Harold Reid, Statler Brothers Bass Singer, Dies at 80**\
