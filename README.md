@@ -18,7 +18,7 @@ https://nytimes.com/2020/04/25/nyregion/richard-hake-dead.html?searchResultPosit
 `Royce Ferguson whips around the bend with a smashing debut.`\
 https://nytimes.com/2020/04/25/crosswords/daily-puzzle-2020-04-26.html?searchResultPosition=7
 
-**MLB Official Thought Manfred Would Stop Hernández for Series**\
+**MLB Official Thought Manfred Would Nix Hernández for Series**\
 `A major league official testified he suggested Ángel Hernández be removed from consideration for the 2015 World Series because he did not think Commissioner Rob Manfred would approve the umpire to work baseball’s premier event.`\
 https://nytimes.com/aponline/2020/04/25/sports/baseball/ap-bbo-umpire-lawsuit.html?searchResultPosition=8
 
