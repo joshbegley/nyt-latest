@@ -14,13 +14,13 @@ https://nytimes.com/2020/04/25/us/politics/joe-biden-coronavirus-quarantine.html
 `Frozen dumplings as skulls and A/C ducts as fashion accessories. A Facebook group for art re-enactors has gained 540,000 followers across the locked-down globe.`\
 https://nytimes.com/2020/04/25/world/europe/russia-Facebook-art-parodies.html?searchResultPosition=6
 
-**Reopening Has Begun. No One Is Sure What Happens Next.**\
-`The heated debate over when to restart the economy has obscured an issue that could prove just as thorny: How to do it.`\
-https://nytimes.com/2020/04/25/business/economy/coronavirus-economy-reopening.html?searchResultPosition=7
-
 **Tux, Gown, Masks: Arab Couples Scramble to Marry During a Pandemic**\
 `Undeterred by the coronavirus, couples across the Middle East are pressing ahead with scaled-back weddings. The authorities aren’t always thrilled.`\
-https://nytimes.com/2020/04/25/world/middleeast/virus-weddings-arab.html?searchResultPosition=8
+https://nytimes.com/2020/04/25/world/middleeast/virus-weddings-arab.html?searchResultPosition=7
+
+**Reopening Has Begun. No One Is Sure What Happens Next.**\
+`The heated debate over when to restart the economy has obscured an issue that could prove just as thorny: How to do it.`\
+https://nytimes.com/2020/04/25/business/economy/coronavirus-economy-reopening.html?searchResultPosition=8
 
 **Nervous Republicans See Trump Sinking, and Taking Senate With Him**\
 `The election is still six months away, but a rash of ominous new polls and the president’s erratic briefings have the G.O.P. worried about a Democratic takeover.`\
