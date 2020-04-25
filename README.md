@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/04/25/sports/football/25reuters-football-nfl-tb
 https://nytimes.com/aponline/2020/04/25/us/ap-us-islamic-center-fire-2nd-ld-writethru.html?searchResultPosition=4
 
 **F.T.C. Warns 10 Companies About Virus-Related Health and Business Claims**\
-`The warning letters, sent on Friday, were the first to crack down on claims related to potential earnings amid the pandemic.`\
+`In warning letters sent on Friday, the agency cracked down for the first time on claims about earnings opportunities amid the pandemic.`\
 https://nytimes.com/2020/04/25/us/ftc-mlm-coronavirus-claims.html?searchResultPosition=5
 
 **Boeing Terminates $4.2 Billion Deal to Buy Stake in Embraer Unit**\
