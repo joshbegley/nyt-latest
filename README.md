@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/04/25/world/europe/25reuters-health-coronavirus
 https://nytimes.com/aponline/2020/04/25/us/ap-us-plane-crash-nevada-1st-ld-writethru.html?searchResultPosition=5
 
 **AP Source: NBA Facilities Will Begin to Reopen Friday**\
-`A person with knowledge of the situation says NBA players will be allowed to return to team training facilities starting Friday, provided that their local governments do not have a stay-at-home order prohibiting such movement.`\
+`NBA players will be allowed to return to team training facilities starting Friday, provided that their local governments do not have a stay-at-home order prohibiting such movement still in place as part of the response to the coronavirus pandemic.`\
 https://nytimes.com/aponline/2020/04/25/sports/basketball/ap-bkn-virus-outbreak-nba-facilities.html?searchResultPosition=6
 
 **Serving Wings and a Prayer: It’s Back to Business for Fairbanks Restaurants**\
