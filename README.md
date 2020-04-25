@@ -1,4 +1,4 @@
-**2020 NFL Draft: Second Round Loaded With WRs**\
+**2020 NFL Draft: SEC Dominates, Run on WRs**\
 `Teams continued to dip into the 2020 NFL Draft's deep receiver class on Friday, with the Cincinnati Bengals kicking off the run at the top of Round 2 by grabbing Clemson wideout Tee Higgins.`\
 https://nytimes.com/reuters/2020/04/24/us/24reuters-football-nfl-2020nfldraft-day2.html?searchResultPosition=3
 
