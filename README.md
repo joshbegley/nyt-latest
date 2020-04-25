@@ -19,7 +19,7 @@ https://nytimes.com/2020/04/25/crosswords/daily-puzzle-2020-04-26.html?searchRes
 https://nytimes.com/aponline/2020/04/25/sports/baseball/ap-bbo-umpire-lawsuit.html?searchResultPosition=7
 
 **British PM Johnson Will Be Back at Work on Monday, Office Says**\
-`British Prime Minister Boris Johnson will be back at work on Monday, a spokeswoman for his Downing Street office confirmed on Saturday. `\
+`British Prime Minister Boris Johnson will be back at work on Monday, a Downing Street spokeswoman confirmed on Saturday, after having recovered from a case of coronavirus that sent him to intensive care for three nights in early April.`\
 https://nytimes.com/reuters/2020/04/25/world/europe/25reuters-health-coronavirus-britain-johnson.html?searchResultPosition=8
 
 **Wall Street Week Ahead: Spotlight Falls on 'Dividend Aristocrats' After Market Tumult**\
