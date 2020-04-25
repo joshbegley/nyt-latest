@@ -1,6 +1,6 @@
 **Here’s How You Can Change Lives in the Pandemic**\
 `These causes will make great use of your money or your time.`\
-https://nytimes.com/2020/04/25/opinion/sunday/coronavirus-how-to-help.html?searchResultPosition=3
+https://nytimes.com/2020/04/25/opinion/sunday/coronavirus-giving-guide.html?searchResultPosition=3
 
 **Thousands Demonstrate Against Israeli Coalition Deal**\
 `Several thousand Israelis on Saturday demonstrated against a unity government deal reached last week that leaves Prime Minister Benjamin Netanyahu in power as he prepares to go on trial for corruption charges.`\
