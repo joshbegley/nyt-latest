@@ -1,6 +1,6 @@
 **Post Malone Covering Nirvana? Bring on the ‘Bleach’**\
 `The woozy-singing pop superstar performed a faithful set of covers to raise money for the W.H.O.’s Covid-19 solidarity fund, and won over the band’s bassist, Krist Novoselic.`\
-https://nytimes.com/2020/04/25/arts/music/post-malone-nirvana-virus.html?searchResultPosition=3
+https://nytimes.com/2020/04/25/arts/music/post-malone-nirvana-coronavirus.html?searchResultPosition=3
 
 **Slovakia Lifts Coronavirus Quarantine From a Roma Settlement**\
 `Slovak authorities have lifted a quarantine on one of five Roma settlements locked down in early April to prevent the spread of coronavirus from the communities, chief public health officer Jan Mikas said on Saturday.`\
