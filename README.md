@@ -18,7 +18,7 @@ https://nytimes.com/2020/04/25/fashion/weddings/rave-reviews-at-the-salon.html?s
 `Sarah Fagan and Ohmar Bogle opted for a scaled-down event at the Episcopal Church of the Transfiguration in Manhattan.`\
 https://nytimes.com/2020/04/25/fashion/weddings/family-over-flowers.html?searchResultPosition=7
 
-**'No Evidence' Yet That Recovered COVID Patients Cannot Be Reinfected: WHO**\
+**'No Evidence' That Recovered COVID-19 Patients Cannot Be Reinfected: WHO**\
 `The World Health Organization (WHO) said on Saturday that there was currently "no evidence" that people who have recovered from COVID-19 and have antibodies are protected from a second coronavirus infection.`\
 https://nytimes.com/reuters/2020/04/25/world/americas/25reuters-health-coronavirus-who.html?searchResultPosition=8
 
