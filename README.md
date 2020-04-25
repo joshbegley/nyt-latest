@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/04/25/business/25reuters-usa-stocks-weekahead.h
 https://nytimes.com/reuters/2020/04/25/world/americas/25reuters-health-coronavirus-pemex.html?searchResultPosition=7
 
 **Naval Destroyer USS Kidd Reports Rise in Virus Cases to 33**\
-`The Navy reports that the number of sailors aboard the USS Kidd confirmed to be infected with the novel coronavirus has nearly doubled, rising from 18 to 33.`\
+`The Navy reports that the number of sailors aboard the USS Kidd confirmed to be infected with the novel coronavirus has nearly doubled, rising from 18 on Friday to 33.`\
 https://nytimes.com/aponline/2020/04/25/us/politics/ap-us-virus-outbreak-kidd.html?searchResultPosition=8
 
 **Older French School Kids Should Wear Masks: Advisory Body**\
