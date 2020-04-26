@@ -1,36 +1,36 @@
-**UK Stand-In Leader Declines to Explain Lockdown Exit Strategy**\
-`The British government must not rush to ease the coronavirus lockdown and should act cautiously to avoid a second spike in infections and a second lockdown that would damage public confidence, its stand-in leader said on Sunday.`\
-https://nytimes.com/reuters/2020/04/26/world/europe/26reuters-health-coronavirus-britain-raab.html?searchResultPosition=2
+**How to Make an Illustrated Map in 8 Steps**\
+`Release your inner explorer. Here’s a way to relive, commemorate or envision a favorite place in the world by creating an illustrated map.`\
+https://nytimes.com/2020/04/26/travel/how-to-make-an-illustrated-map-in-8-steps.html?searchResultPosition=2
 
-**Tokyo Confirms 72 New Coronavirus Cases on Sunday: Kyodo**\
-`Tokyo registered 72 new coronavirus cases on Sunday, Kyodo news agency reported, the lowest daily tally since April 1.`\
-https://nytimes.com/reuters/2020/04/26/world/asia/26reuters-health-coronavirus-japan-toll.html?searchResultPosition=3
+**Kashmir, Under Siege and Lockdown, Faces a Mental Health Crisis**\
+`Years of strife left a generation traumatized. India’s clampdown disrupted daily life. Now the battle against the coronavirus has further isolated and scarred a people with little access to help.`\
+https://nytimes.com/2020/04/26/world/asia/kasmir-india-mental-health-coronavirus.html?searchResultPosition=3
 
-**Malaysia Reports 38 New Coronavirus Cases, No New Deaths**\
-`Malaysia reported 38 new coronavirus cases on Sunday with no new deaths, Noor Hisham Abdullah, the secretary general of Malaysia's Ministry of Health, told reporters at a news conference.`\
-https://nytimes.com/reuters/2020/04/26/world/asia/26reuters-health-coronavirus-malaysia.html?searchResultPosition=4
+**As States Push to Reopen, Business Leaders Say Not So Fast**\
+`“Shutting down was hard, but opening up is going to be harder,” one C.E.O. said of balancing public health and a damaged economy.`\
+https://nytimes.com/2020/04/26/business/coronavirus-states-businesses-reopen.html?searchResultPosition=4
 
-**Philippines' Coronavirus Death Toll Tops 500**\
-`The Philippines' health ministry on Sunday reported seven more fatalities due to the novel coronavirus outbreak, taking the death toll in the Southeast Asian country to 501.`\
-https://nytimes.com/reuters/2020/04/26/world/asia/26reuters-health-coronavirus-philippines-cases.html?searchResultPosition=5
+**High School Sports Pushed Out of Bounds By the Pandemic**\
+`The cancellation of the Texas state basketball tournament hit a small town hard and reflected the wave of spring sports shutdowns in all 50 states during a normally busy playoff season.`\
+https://nytimes.com/2020/04/26/sports/coronavirus-high-school-sports.html?searchResultPosition=5
 
-**Virus Lockdown Raises Tensions in France's Poorest Areas**\
-`Joining more than 1,000 others, Djemba Diatite stood for hours in line to feed her growing family, grateful for handouts of fruits, vegetables and soap. It was her first time accepting charity, but she had no choice. The coronavirus pandemic has turned her small world upside down.`\
-https://nytimes.com/aponline/2020/04/26/world/europe/bc-virus-outbreak-france-inequality.html?searchResultPosition=6
+**Safe Dining? Hard to Imagine, but Many Restaurants Are Trying**\
+`Though widespread reopenings may be a long way off, chefs and health officials have begun studying how a post-pandemic restaurant might look.`\
+https://nytimes.com/2020/04/26/dining/restaurants-open-coronavirus.html?searchResultPosition=6
 
-**South Africa Seeking $5 Billion From Multilateral Lenders to Fight Virus: Treasury Official**\
-`South Africa is seeking 95 billion rand ($4.99 billion) from multilateral lenders to help it fight the COVID-19 pandemic, a senior Treasury official said on Sunday.`\
-https://nytimes.com/reuters/2020/04/26/world/africa/26reuters-health-coronavirus-safrica.html?searchResultPosition=7
+**Volunteer Emergency Responders Face a Dilemma: Save Lives or Stay Safe**\
+`The coronavirus has overwhelmed scores of volunteer emergency response units, many of which are the sole responders across America.`\
+https://nytimes.com/2020/04/26/us/coronavirus-volunteer-emergency-responders.html?searchResultPosition=7
 
-**Israel Reopens Some Businesses, Eyes Schools as Coronavirus Curbs Ease**\
-`Israel permitted some businesses to reopen on Sunday and said it would consider allowing children back to school as part of trial efforts to ease coronavirus restrictions and help the struggling economy.`\
-https://nytimes.com/reuters/2020/04/26/world/middleeast/26reuters-health-coronavirus-israel.html?searchResultPosition=8
+**U.K. Coronavirus Briefings Offer a More Genteel Spin Than Trump’s**\
+`Downing Street’s daily updates are worlds away from the White House’s in tone, but they share a purpose: to control the narrative and deflect blame over a heavily criticized response.`\
+https://nytimes.com/2020/04/26/world/europe/uk-us-coronavirus-briefings-trump-johnson.html?searchResultPosition=8
 
-**India's Modi Urges Citizens Follow Lockdown as Coronavirus Cases Rise**\
-`Indian Prime Minister Narendra Modi on Sunday appealed to citizens to strictly comply with a nationwide lockdown and maintain social distancing norms, as cases of coronavirus mounted steadily despite over a month-long curfew. `\
-https://nytimes.com/reuters/2020/04/26/world/asia/26reuters-health-coronavirus-southasia.html?searchResultPosition=9
+**Trump Turns Shared American Experiences Into Us vs. Them**\
+`Nostalgia for a time when Democratic leaders could embrace Republican leaders in a moment of crisis — and when a bipartisan group would gather for an annual roasting in Washington.`\
+https://nytimes.com/2020/04/26/us/politics/white-house-correspondents-dinner-bipartisan-trump.html?searchResultPosition=9
 
-**Germany Flips on Smartphone Contact Tracing, Backs Apple and Google**\
-`Germany changed course on Sunday over which type of smartphone technology it wanted to use to trace coronavirus infections, backing an approach supported by Apple and Google along with a growing number of other European countries.`\
-https://nytimes.com/reuters/2020/04/26/technology/26reuters-health-coronavirus-europe-tech.html?searchResultPosition=10
+**For Pop Stars in Their 20s, It’s Totally the ’90s All Over Again**\
+`Every two decades or so, the old becomes stylishly new. And now the pop artifacts of the Y2K era — winking futurism, loads of glitter, “TRL”-style videos — are back, with an update.`\
+https://nytimes.com/2020/04/26/arts/music/y2k-trl-pop-music.html?searchResultPosition=10
 
