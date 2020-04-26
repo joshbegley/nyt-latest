@@ -1,36 +1,36 @@
+**Face Masks to Strawberries: Abu Dhabi Hospital Keeps Tabs on Resources**\
+`Dozens of N95 protective face masks hang on a line in a room of an Abu Dhabi hospital to be decontaminated so they can be used again by medical staff should there be a shortage due to the new coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/04/26/world/middleeast/26reuters-health-coronavirus-emirates-hospital-resources.html?searchResultPosition=2
+
 **Singapore Races to Build Beds for COVID-19 Patients as Cases Surge**\
 `Singapore is rapidly building bed space for coronavirus patients in cavernous exhibition halls and other temporary facilities as it faces a surge in cases, mainly among its large community of low-paid migrant workers.`\
-https://nytimes.com/reuters/2020/04/26/world/asia/26reuters-health-coronavirus-singapore-temp-hospital.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/26/world/asia/26reuters-health-coronavirus-singapore-temp-hospital.html?searchResultPosition=3
 
 **When Oil Became Waste: a Week of Turmoil for Crude, and More Pain to Come**\
 `The magnitude of how damaged the energy industry is came into full view on April 20 when the benchmark price of U.S. oil futures <CLc1>, which had never dropped below $10 a barrel in its nearly 40-year history, plunged to a previously unthinkable minus $38 a barrel. `\
-https://nytimes.com/reuters/2020/04/26/business/26reuters-global-oil-turmoil.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/26/business/26reuters-global-oil-turmoil.html?searchResultPosition=4
 
 **What’s on TV Sunday: ‘Penny Dreadful: City of Angels’ and ‘Vida’**\
 `A new supernatural horror series and a returning drama highlight very different experiences of Mexican-Americans in Los Angeles.`\
-https://nytimes.com/2020/04/26/arts/television/whats-on-tv-sunday-penny-dreadful-city-of-angels-and-vida.html?searchResultPosition=4
+https://nytimes.com/2020/04/26/arts/television/whats-on-tv-sunday-penny-dreadful-city-of-angels-and-vida.html?searchResultPosition=5
 
 **Thailand Reports 15 New Coronavirus Cases, No New Deaths**\
 `Thailand on Sunday reported 15 new coronavirus cases and no new deaths, bringing the total number of cases since its outbreak in January to 2,922 cases and 51 deaths.`\
-https://nytimes.com/reuters/2020/04/26/world/asia/26reuters-health-coronavirus-thailand-cases.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/26/world/asia/26reuters-health-coronavirus-thailand-cases.html?searchResultPosition=6
 
 **Coronavirus Live Updates: Pandemic Alters Ramadan Traditions; Scientists Ponder More Versatile Drugs**\
 `The virus is transforming the Muslim holy month, clearing out mosques and forcing families to replace physical gatherings with virtual meet-ups.`\
-https://nytimes.com/2020/04/26/world/coronavirus-news.html?searchResultPosition=6
+https://nytimes.com/2020/04/26/world/coronavirus-news.html?searchResultPosition=7
 
 **Cuba Sends Doctors to South Africa to Combat Coronavirus**\
 `Cuba sent 216 healthcare workers to South Africa on Saturday, the latest of more than 20 medical brigades it has sent worldwide to combat the coronavirus pandemic, in what some call socialist solidarity and others medical diplomacy.`\
-https://nytimes.com/reuters/2020/04/26/world/africa/25reuters-health-coronavirus-cuba-safrica.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/04/26/world/africa/25reuters-health-coronavirus-cuba-safrica.html?searchResultPosition=8
 
 **Emily Herzberg, Samuel Dowd**\
 `The couple met on the dating app Bumble, and, boldly, spent their second and third dates answering “36 questions that lead to love.”`\
-https://nytimes.com/2020/04/26/fashion/weddings/emily-herzberg-samuel-dowd.html?searchResultPosition=8
+https://nytimes.com/2020/04/26/fashion/weddings/emily-herzberg-samuel-dowd.html?searchResultPosition=9
 
 **Jessica Murray, Joshua Sheppard**\
 `“We wanted certainty in the times of uncertainty,” the bride said.`\
-https://nytimes.com/2020/04/26/fashion/weddings/jessica-murray-joshua-sheppard.html?searchResultPosition=9
-
-**Health Canada Cautions on Use of Malaria Drugs to Treat COVID-19**\
-`Health Canada cautioned on Saturday against the use of malaria drugs hydroxychloroquine and chloroquine to prevent or treat COVID-19.`\
-https://nytimes.com/reuters/2020/04/25/us/25reuters-health-coronavirus-health-canada-hydroxychloroquine.html?searchResultPosition=10
+https://nytimes.com/2020/04/26/fashion/weddings/jessica-murray-joshua-sheppard.html?searchResultPosition=10
 
