@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/04/26/world/africa/26reuters-usa-trade-kenya.ht
 `The Inter-American Development Bank (IDB) and a major Mexican business lobby on Sunday announced a program to provide up to $12 billion in loans a year to small and medium-sized businesses in the country to help deal with the coronavirus crisis.`\
 https://nytimes.com/reuters/2020/04/26/world/americas/26reuters-health-coronavirus-mexico-business.html?searchResultPosition=5
 
-**U.S. to Cap Individual Firms' Lending Through Emergency Loan Program: Memo**\
-`The U.S. Small Business Administration (SBA) plans to cap how much institutions can lend under the Paycheck Protection Program designed to keep workers on payrolls amid the novel coronavirus, according to a memo seen by Reuters.`\
+**U.S. Will Cap How Much Each Bank Can Lend Under Emergency Coronavirus Program: Memo**\
+`The U.S. government will cap how much each bank can lend under the emergency loan program designed to keep workers on payrolls amid the coronavirus pandemic, according to a memo seen by Reuters hours ahead of the reopening of the lending program.`\
 https://nytimes.com/reuters/2020/04/26/us/26reuters-health-coronavirus-usa-lending.html?searchResultPosition=6
 
 **The N.F.L. Draft Pics You Haven’t Seen**\
