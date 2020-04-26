@@ -22,8 +22,8 @@ https://nytimes.com/2020/04/26/opinion/coronavirus-colleges-universities.html?se
 `Turkish troops fired tear gas and live bullets at protesters blocking a major highway in northwest Syria early Sunday, killing two people and wounding others, opposition activists said.`\
 https://nytimes.com/aponline/2020/04/26/world/middleeast/ap-ml-syria-turkey.html?searchResultPosition=7
 
-**White House Sees Jobless Rate Hitting 16% or Higher in April**\
-`The U.S. unemployment rate is likely to hit 16% or higher in April, and "really big thoughtful policies" will be needed to rebuild confidence, a White House adviser said on Sunday.`\
+**White House Aims to Zero In on Further Stimulus to Help Battered Economy**\
+`White House advisers hope to come up with several options to present to President Donald Trump for "big thoughtful policies" to help rebuild confidence in an economy battered by the coronavirus pandemic, a Trump economic adviser said on Sunday.`\
 https://nytimes.com/reuters/2020/04/26/business/26reuters-health-coronavirus-usa-economy.html?searchResultPosition=8
 
 **Hong Kong Police Break Up Pro-Democracy Singing Protest at Mall**\
