@@ -15,7 +15,7 @@ https://nytimes.com/2020/04/26/obituaries/steve-dalkowski-dead.html?searchResult
 https://nytimes.com/aponline/2020/04/26/sports/ap-sports-virus-outbreak-the-latest-2nd-ld-writethru.html?searchResultPosition=5
 
 **U.S. Renews Waiver for Iraq to Import Iranian Electricity, Shortens Time**\
-`The United States has renewed a waiver for Iraq to import Iranian electricity imports, a State Department official said on Sunday, but this time for a shorter period of time, adding that Washington would be reassessing whether to renew again once a 'credible government' is formed in Iraq.`\
+`The United States has renewed a waiver for Iraq to continue importing Iranian electricity, a State Department official said on Sunday, but this time for a shorter period of 30 days, adding that Washington would be reassessing whether to renew again once a 'credible government' is formed in Iraq.`\
 https://nytimes.com/reuters/2020/04/26/world/middleeast/26reuters-iraq-energy-iran-usa.html?searchResultPosition=6
 
 **Allison Thanks Mercedes for Their 'Gamble' on a Grieving Man**\
