@@ -1,20 +1,20 @@
-**Libya's Hifter Declares UN Unity Deal 'Thing of the Past'**\
-`Libyan commander Khalifa Hifter on Monday declared a landmark United Nations-brokered agreement to unite the country “a thing of the past,” and pledged his authorities would move toward creating a new government.`\
-https://nytimes.com/aponline/2020/04/27/world/middleeast/ap-ml-libya-.html?searchResultPosition=6
+**Argentina, Chile Defuse Spat, Vow United Fight Against Pandemic and Recession**\
+`The leaders of Argentina and Chile have moved to defuse a recent diplomatic spat after officials in Santiago accused President Alberto Fernandez of "meddling" in Chile's internal affairs after he met with Chilean opposition leaders.`\
+https://nytimes.com/reuters/2020/04/27/world/americas/27reuters-argentina-diplomacy-chile.html?searchResultPosition=6
 
-**Census Says Restart to Field Operations Will Be in Phases**\
-`The U.S. Census Bureau's return to field operations for the 2020 national head count will take place in phases based on a region's lockdown orders and the availability of protective gear against the new coronavirus, bureau officials told lawmakers late last week.`\
-https://nytimes.com/aponline/2020/04/27/us/ap-us-2020-census.html?searchResultPosition=7
+**U.S. Senate Republican Leader Sees Further Aid for States, Cities**\
+`U.S. Senate Republican leader Mitch McConnell on Monday predicted that Congress would approve further funding for states and cities whose budgets have been hit hard by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/27/us/politics/27reuters-health-coronavirus-usa-mcconnell.html?searchResultPosition=7
 
-**Airlines and Hotels Reach Out to Their Top Spenders**\
-`They’re giving those customers an extra year to accumulate the points that result in free upgrades, breakfasts, club access and other perks. And that may be just the beginning.`\
-https://nytimes.com/2020/04/27/business/coronavirus-airlines-hotels-customers.html?searchResultPosition=8
+**In Shift, Bloomberg Offers Ex-Campaign Staff Health Coverage**\
+`Mike Bloomberg will cover the cost of health care for his former presidential campaign staffers through November, reversing course on a decision that had prompted outrage and sparked lawsuits against the billionaire businessman.`\
+https://nytimes.com/aponline/2020/04/27/us/politics/ap-us-election-2020-bloomberg.html?searchResultPosition=8
 
-**Bruce Myers, Actor With Voice of a ‘Stradivarius,’ Dies at 78**\
-`He was a stalwart member of the group of actors who worked with the director Peter Brook. Mr. Myers died of the novel coronavirus.`\
-https://nytimes.com/2020/04/27/theater/bruce-myers-dead-coronavirus.html?searchResultPosition=9
+**Pete Davidson's 'King of Staten Island' to Open On-Demand**\
+`Judd Apatow's “The King of Staten Island,” starring Pete Davidson, will release straight to home on-demand video after having its theatrical release canceled. `\
+https://nytimes.com/aponline/2020/04/27/us/ap-us-film-king-of-staten-island.html?searchResultPosition=9
 
-**Get the Kids Back to School. Please!**\
-`A parent wonders what happens if schools don’t reopen in the fall. Also: A 9/11-type compensation fund for medical workers; Christian health care sharing ministries.`\
-https://nytimes.com/2020/04/27/opinion/letters/coronavirus-parenting-schools.html?searchResultPosition=10
+**Win 30 Minutes With a Chef**\
+`The #AskChefsAnything auction will give bidders a chance for a one-on-one with their favorite chef, writer or other food expert, with the proceeds benefiting immigrant workers.`\
+https://nytimes.com/2020/04/27/dining/ask-chefs-anything-auction.html?searchResultPosition=10
 
