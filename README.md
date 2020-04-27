@@ -1,20 +1,20 @@
+**Israelis and Palestinians Remember the Slain, Home Alone or Online En Masse**\
+`With Israel’s cemeteries closed, Memorial Day mourning had to adapt to the coronavirus lockdown. An alternative ceremony bringing together Israelis and Palestinians attracted 170,000 people online.`\
+https://nytimes.com/2020/04/27/world/middleeast/israel-palestinian-memorial-day.html?searchResultPosition=6
+
+**3 Takeaways of AP Review of COVID-19 in Youth Detention**\
+`Fear and frustration is rising in some juvenile detention centers as the number of youth and staff infected by the coronavirus continues to mount, with riots and escapes reported in facilities in hard hit New York and Louisiana.`\
+https://nytimes.com/aponline/2020/04/27/us/ap-us-virus-outbreak-juveniles-takeaways.html?searchResultPosition=7
+
+**British Airways Considers Slashing About 800 Pilot Jobs: Sky News Reporter**\
+`British Airways is planning to launch a consultation that could result in cutting about 800 of its 4,500 pilot jobs, a Sky News reporter tweeted https://twitter.com/MarkKleinmanSky/status/1254880282899091456 on Monday. `\
+https://nytimes.com/reuters/2020/04/27/business/27reuters-health-coronavirus-ba-jobs.html?searchResultPosition=8
+
+**Boeing to Resume 787 Production at South Carolina**\
+`Boeing Co will resume production of 787 aircraft at its facilities in South Carolina, with most of the staff returning by May 4, the company said on Monday.`\
+https://nytimes.com/reuters/2020/04/27/us/27reuters-health-coronavirus-boeing.html?searchResultPosition=9
+
 **Piglets Aborted, Chickens Gassed as Pandemic Slams Meat Sector**\
 `With the pandemic hobbling the meat-packing industry, Iowa farmer Al Van Beek had nowhere to ship his full-grown pigs to make room for the 7,500 piglets he expected from his breeding operation.`\
-https://nytimes.com/reuters/2020/04/27/business/27reuters-health-coronavirus-livestock-insight.html?searchResultPosition=6
-
-**Draft Could Bring Vikings More Help Now Than North Foes**\
-`The Minnesota Vikings were forced by a salary-cap crunch this spring into a soft remodel, with many more exits than enhancements to the lineup.`\
-https://nytimes.com/aponline/2020/04/27/sports/football/ap-fbn-nfc-north-analysis.html?searchResultPosition=7
-
-**‘This Virus Doesn’t Take the Weekends Off,’ Newsom Says**\
-`Gov. Gavin Newsom of California pleaded with residents to continue social distancing, after images of crowds on some of the state’s beaches circulated over the weekend.`\
-https://nytimes.com/video/us/politics/100000007110289/california-coronavirus-newsom.html?searchResultPosition=8
-
-**Judge to Chicago Jail: Do More to Protect Inmates From Virus**\
-`Cook County Jail in Chicago must do more to ensure social distancing among its 4,000 inmates to stem the spread of the coronavirus that’s already killed six detainees and one guard at the facility, a federal judge ruled Monday. `\
-https://nytimes.com/aponline/2020/04/27/us/ap-us-virus-outbreak-cook-county-jail.html?searchResultPosition=9
-
-**Watch This: ‘Never Have I Ever’**\
-`The new Netflix series was cocreated by Mindy Kaling. Or watch another, albeit darker, new coming-of-age story on Hulu, “Normal People.”`\
-https://nytimes.com/2020/04/27/arts/television/never-have-i-ever-normal-people.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/27/business/27reuters-health-coronavirus-livestock-insight.html?searchResultPosition=10
 
