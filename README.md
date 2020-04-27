@@ -1,36 +1,36 @@
+**After Closing for the Virus, Is Michelin Moving Too Quickly?**\
+`The tire maker’s C.E.O. says the company must be ready for the end of quarantine, but French unions are wary.`\
+https://nytimes.com/2020/04/27/business/michelin-coronavirus-resuming-production.html?searchResultPosition=2
+
+**‘Possible Covid’: Why the Lulls Never Last for Weary E.M.S. Crews**\
+`New York’s ambulance workers have weathered the peak of the coronavirus epidemic, but their ordeal is not over yet.`\
+https://nytimes.com/2020/04/27/nyregion/fdny-coronavirus-paramedics.html?searchResultPosition=3
+
+**How I Found Common Ground With My Immigrant Dad on a Clay Court**\
+`Our writer was not much of an athlete growing up but long pined to connect with his father through sports. It took 30 years and a humid day on a tennis court in India.`\
+https://nytimes.com/2020/04/27/sports/tennis/tennis-immigrant-india-parenting.html?searchResultPosition=4
+
+**Saudi-Led Coalition in Yemen Calls for End to Escalation in South**\
+`The Saudi-led coalition engaged in Yemen on Monday urged a main separatist group that declared self-rule in the south to rescind its move, saying it was an "escalatory action" at a time all parties should focus on confronting the novel coronavirus.`\
+https://nytimes.com/reuters/2020/04/27/world/middleeast/27reuters-yemen-security-south-coalition.html?searchResultPosition=5
+
+**He Found One of Stalin’s Mass Graves. Now He’s in Jail.**\
+`The discovery by Yuri Dmitriev, after years of searching, “has clearly made some people very uncomfortable,” his daughter says.`\
+https://nytimes.com/2020/04/27/world/europe/russia-historian-stalin-mass-graves.html?searchResultPosition=6
+
+**Can Estrogen and Other Sex Hormones Help Men Survive Covid-19?**\
+`Men are more likely than women to die of the coronavirus, so scientists are treating them with something women have more of: female sex hormones.`\
+https://nytimes.com/2020/04/27/health/coronavirus-estrogen-men.html?searchResultPosition=7
+
 **Highlights: BOJ Governor Kuroda's Comments at News Conference**\
 `The Bank of Japan expanded monetary stimulus on Monday and pledged to buy an unlimited amount of bonds to keep borrowing costs low as the government tries to spend its way out of the deepening economic pain from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/27/world/asia/27reuters-japan-economy-boj-kuroda-highlights.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/27/world/asia/27reuters-japan-economy-boj-kuroda-highlights.html?searchResultPosition=8
 
 **German Companies Call for COVID-19 Aid to Be Tied to Climate Action**\
 `German companies including ThyssenKrupp, Salzgitter, Bayer, Covestro, E.ON, HeidelbergCement, Puma, Allianz and Deutsche Telekom have called for coronavirus-related state aid to be tied to climate action, daily Handelsblatt reported. `\
-https://nytimes.com/reuters/2020/04/27/business/27reuters-health-coronavirus-germany-climatechange.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/27/business/27reuters-health-coronavirus-germany-climatechange.html?searchResultPosition=9
 
 **Britain Making Good Progress With Antibody Tests, Junior Minister Says**\
 `Britain is continuing to test whether antibody tests can be used in the fight against the novel coronavirus and is hopeful they will work, junior health minister Edward Argar said on Monday. `\
-https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-britain-testing.html?searchResultPosition=4
-
-**Holiday Inn-Owner Reorders Debt as First-Quarter Revenue Per Room Sinks 25%**\
-`Holiday Inn-owner InterContinental Hotels said on Monday it had agreed changes to the terms of its borrowing with creditors and made use of UK government supported loans as it predicted a 25% plunge in global revenue per available room in the first quarter.`\
-https://nytimes.com/reuters/2020/04/27/business/27reuters-intercontinental-outlook.html?searchResultPosition=5
-
-**Norwegian Air's Debt Plan Sharply Dilutes Stake of Current Owners**\
-`Norwegian Air's proposed financial rescue plan could leave current shareholders with a combined ownership stake of just 5.2%, details of its proposed debt-to-equity swap showed on Monday.`\
-https://nytimes.com/reuters/2020/04/27/business/27reuters-health-coronavirus-norwegianair.html?searchResultPosition=6
-
-**VW Re-Starts Europe's Largest Car Factory After Coronavirus Shutdown**\
-`Volkswagen the world's largest carmaker by sales, on Monday said it had resumed work at its biggest factory in Wolfsburg, Germany, to give its workers time to adapt to new hygiene measures to combat the coronavirus.`\
-https://nytimes.com/reuters/2020/04/27/business/27reuters-health-coronavirus-volkswagen-factory.html?searchResultPosition=7
-
-**Back at Work, British PM Johnson Faces Lockdown Catch-22**\
-`Prime Minister Boris Johnson returns to work on Monday to the biggest dilemma of his premiership: how to lift the coronavirus lockdown that is destroying swathes of the British economy without triggering a deadly second wave of the outbreak.`\
-https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-britain.html?searchResultPosition=8
-
-**Invisible Virus, Invisible Fear: How to Navigate the Unseen?**\
-`Back in the early 20th century, the baseball pitcher Walter Johnson confounded opposing batters by throwing the fastest fastball they’d ever seen. “You can’t hit what you can’t see,” they would say.`\
-https://nytimes.com/aponline/2020/04/27/us/ap-us-virus-outbreak-navigating-the-invisible.html?searchResultPosition=9
-
-**China Eases Restrictions on Exports of Some Coronavirus Equipment**\
-`China is dropping a requirement that a number of key virus care products get domestic regulatory approval before export, as long as they are approved in the importing countries, the commerce ministry said on Saturday.`\
-https://nytimes.com/reuters/2020/04/27/world/asia/27reuters-health-coronavirus-china-medicalgear.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-britain-testing.html?searchResultPosition=10
 
