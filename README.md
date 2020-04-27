@@ -1,36 +1,36 @@
+**What You Need to Know Today About the Virus Outbreak**\
+`Some countries — and U.`\
+https://nytimes.com/aponline/2020/04/27/us/ap-us-virus-outbreak-whats-happening.html?searchResultPosition=2
+
+**Makers Gotta Make: Finding Solace, Joy in Dangerous Times**\
+`Their reasons may differ, but crafters agree: Makers gotta make. Those who create things by hand — who weld, weave, play in clay or paints — are pursuing their passions the best they can during the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/04/27/us/ap-us-virus-outbreak-crafts-creative-impulse.html?searchResultPosition=3
+
+**Thai Airways to Press Ahead With Maintenance Facility After Airbus Withdraws**\
+`State-owned Thai Airways International Pcl will press on with a project to build a $339 million maintenance facility east of Bangkok after partner Airbus dropped out due to the coronavirus outbreak, a senior official said on Monday. `\
+https://nytimes.com/reuters/2020/04/27/business/27reuters-thai-airways-investment.html?searchResultPosition=4
+
+**Lesson of the Day: ‘New York and Boston Pigeons Don’t Mix’**\
+`In this lesson, students will consider geographic factors that may explain why the pigeons in one part of the East Coast are genetically different from the rest.`\
+https://nytimes.com/2020/04/27/learning/lesson-of-the-day-new-york-and-boston-pigeons-dont-mix.html?searchResultPosition=5
+
+**Germany Says China Sought to Encourage Positive COVID-19 Comments**\
+`Chinese diplomats approached German government officials in an attempt to encourage them to make positive statements on how Beijing is handling the coronavirus pandemic, the German interior ministry said in a letter this month.`\
+https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-germany-china.html?searchResultPosition=6
+
+**Swiss Rush to Get Haircuts, Visit Dentists as Coronavirus Curbs Ease**\
+`Haircuts, massages and shopping for garden supplies topped the agenda for Swiss on Monday as the country slowly started easing restrictions on public life imposed in March to slow the spread of the novel coronavirus.`\
+https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-swiss-business.html?searchResultPosition=7
+
 **Marry Someone Nicer Than You**\
 `And more guidance from NYT Parenting.`\
-https://nytimes.com/2020/04/27/parenting/virus-marriage-criticism.html?searchResultPosition=2
+https://nytimes.com/2020/04/27/parenting/virus-marriage-criticism.html?searchResultPosition=8
 
 **British Sprinter Henry Says Will Put Health Before Olympics**\
 `British sprinter Desiree Henry will prioritise her health and family's well-being over competing at the Tokyo Olympics next year if the COVID-19 pandemic has not been brought under control.`\
-https://nytimes.com/reuters/2020/04/27/sports/olympics/27reuters-health-coronavirus-britain-olympics.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/27/sports/olympics/27reuters-health-coronavirus-britain-olympics.html?searchResultPosition=9
 
 **Senegal Groups Get Homeless Children Off Streets Amid Coronavirus**\
 `The boys cheer as they play a ball game in the courtyard of a medical centre in Dakar that has become a refuge for Senegal's street children since the coronavirus further upended their lives.`\
-https://nytimes.com/reuters/2020/04/27/world/africa/27reuters-health-coronavirus-senegal-children.html?searchResultPosition=4
-
-**California Beaches: A (Photo) Study in Contrasts**\
-`Monday: The weekend’s heat wave may be a window into the future. Also: A talk with Marin County’s health officer, and the closure of the Noriega Hotel.`\
-https://nytimes.com/2020/04/27/us/california-beaches-coronavirus.html?searchResultPosition=5
-
-**Medical Director Resigns From Troubled Iowa Institution**\
-`The medical director at a state-run institution for people with intellectual disabilities has resigned amid questions about the care residents received at the Glenwood Resource Center in southwest Iowa.`\
-https://nytimes.com/aponline/2020/04/27/us/ap-us-arousal-study-iowa-2nd-ld-writethru.html?searchResultPosition=6
-
-**Adidas Earnings Slammed by Virus, Online Sales Picking Up**\
-`Sports apparel and shoe company Adidas saw its earnings fall sharply in the first quarter as the virus outbreak closed 70% of its global store base. Net profit from continuing operations fell 97% to only 20 million euros from 631 million euros in the same period a year ago.`\
-https://nytimes.com/aponline/2020/04/27/business/bc-eu-germany-earns-adidas.html?searchResultPosition=7
-
-**French Lawmakers Cry Foul as Government Redraws Coronavirus App Debate**\
-`Lawmakers from France's ruling party accused their own government on Monday of withdrawing a vote on a planned coronavirus tracing app, saying they had been robbed of a chance to raise privacy concerns.`\
-https://nytimes.com/reuters/2020/04/27/technology/27reuters-health-coronavirus-france-tech.html?searchResultPosition=8
-
-**Louisiana Police Officer Killed in Shooting Before 4-Hour Standoff**\
-`A second officer was shot and remained in critical condition. After negotiations with SWAT teams, the gunman eventually surrendered to the authorities.`\
-https://nytimes.com/2020/04/27/us/baton-rouge-shooting.html?searchResultPosition=9
-
-**$700,000 Homes in California**\
-`A condo in a former Masonic temple in Long Beach, a 1922 bungalow in Petaluma and a cottage in Monrovia.`\
-https://nytimes.com/2020/04/27/realestate/700000-homes-in-california.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/27/world/africa/27reuters-health-coronavirus-senegal-children.html?searchResultPosition=10
 
