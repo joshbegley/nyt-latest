@@ -1,5 +1,5 @@
 **AP-NORC Poll: Rising Support for Mail Voting Amid Pandemic**\
-`Americans’ support for mail-in voting has jumped amid concerns about the safety of polling places, but a wide partisan divide suggests President Donald Trump’s public campaign against vote by mail may be resonating with his Republican backers.`\
+`Americans’ support for mail-in voting has jumped amid concerns about the safety of polling places during the coronavirus pandemic, but a wide partisan divide suggests President Donald Trump’s public campaign against vote by mail may be resonating with his Republican backers.`\
 https://nytimes.com/aponline/2020/04/27/us/politics/ap-us-ap-poll-virus-outbreak-voting.html?searchResultPosition=2
 
 **An All-Star Virtual Graduation Awaits College Students**\
