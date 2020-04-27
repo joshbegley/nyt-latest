@@ -1,24 +1,24 @@
-**Audi to Leave DTM at End of Season, Focus on Formula E**\
-`Audi will withdraw from the German Touring Car series (DTM) at the end of the year and focus its motorsport activities on all-electric Formula E and customer racing, the carmaker announced on Monday.`\
-https://nytimes.com/reuters/2020/04/27/sports/autoracing/27reuters-health-coronavirus-electric-audi.html?searchResultPosition=5
+**Britain to Pay $75,000 to Families of Health Workers Who Die of COVID-19**\
+`Families of British health and care workers who die on the frontline of the COVID-19 pandemic will be paid 60,000 pounds ($74,472) as part of a new life assurance scheme, Health Secretary Matt Hancock said on Monday.`\
+https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-britain-assurance.html?searchResultPosition=5
 
-**Patriots FB Develin Retires Due to Neck Injury**\
-`New England Patriots fullback James Develin retired Monday due to complications from a neck injury.`\
-https://nytimes.com/reuters/2020/04/27/sports/football/27reuters-football-nfl-nep-develin-retires.html?searchResultPosition=6
+**Amazon Extends Closure of French Warehouses Until May 5**\
+`Amazon said on Monday it would extend the closure of its six warehouses in France to May 5 after a French court rejected the U.S. online retailer's appeal against aruling that restricts what it can deliver during the coronaviruscrisis.`\
+https://nytimes.com/reuters/2020/04/27/technology/27reuters-health-coronavirus-amazon-france.html?searchResultPosition=6
 
-**Exclusive: Traders Book Jones Act Tankers for Storage, Foreign Trips as U.S. Fuel Glut Swells-Sources**\
-`Oil traders are hiring expensive U.S. vessels, normally only used for domestic shipments, to store gasoline or ship fuel overseas, five shipping sources said, in a sign of how desperate the energy industry is to find places to park petroleum with a 30% drop in worldwide demand.`\
-https://nytimes.com/reuters/2020/04/27/us/27reuters-global-oil-storage-tankers-exclusive.html?searchResultPosition=7
+**French Scientists to Test Theory That Nicotine Combats COVID-19**\
+`French researchers are preparing to launch a human trial to test their hypothesis that nicotine can help the body combat the COVID-19 infection.`\
+https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-france-nicotine.html?searchResultPosition=7
 
-**Austrian Court Ends Fraud Probe of 2003 Eurofighter Deal, Bribery Case Continues**\
-`A Vienna court has stopped an Austrian investigation into alleged fraud by Airbus and Eurofighter Jagdflugzeug GmbH in connection with a $2 billion Eurofighter jet purchase in 2003, it said on Monday.`\
-https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-airbus-group-austria-inquiry.html?searchResultPosition=8
+**'Likely Default': Creditors Knock Back Argentine Province's Debt Revamp Offer**\
+`Bondholders on Monday rejected a debt restructuring proposal by Argentina's Buenos Aires province and said the offer would likely lead to a default, adding tension to a larger debt crisis plaguing the South American country.`\
+https://nytimes.com/reuters/2020/04/27/world/americas/27reuters-argentina-debt-buenosaires.html?searchResultPosition=8
 
-**New This Week: Netflix Teen Romances, Chesney, JoJo Albums**\
-`It's good to see familiar faces and hear familiar voices, and several are returning this week in ways retro and new. JoJo, Kenny Chesney and Offset are among those with new projects out this week, while Indiana Jones will be back fighting Nazis and hating snakes on network TV.`\
-https://nytimes.com/aponline/2020/04/27/us/ap-us-the-stream.html?searchResultPosition=9
+**Films to Heal a Broken Moment**\
+`These characters find reasons to carry on in the face of hardship or crisis — examples that can help in our own difficult time.`\
+https://nytimes.com/2020/04/27/movies/films-to-heal-a-broken-moment.html?searchResultPosition=9
 
-**Extra $2 Billion Available for U.S. Coronavirus Relief Loans: SBA**\
-`The United States will be able to lend an additional $2 billion to small businesses through its Paycheck Protection Program, after a number of borrowers in the first round of funding for the coronavirus relief declined or returned their loans, the top official on the program said on Monday.`\
-https://nytimes.com/reuters/2020/04/27/us/27reuters-health-coronavirus-usa-loans.html?searchResultPosition=10
+**Diagnosing and Treating Covid-19**\
+`Readers urge caution in the use of oximeters, see promise in a new kind of UV lamp and lament the surge in prescriptions of two antiviral drugs touted by the president.`\
+https://nytimes.com/2020/04/27/opinion/letters/coronavirus-diagnosis.html?searchResultPosition=10
 
