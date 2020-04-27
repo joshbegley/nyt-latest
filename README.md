@@ -1,20 +1,20 @@
-**Texas to Lift Some Restrictions, Restart Businesses in Phases: Governor**\
-`Texas Governor Greg Abbott on Monday said the state will allow its stay-at-home order to expire and begin re-opening businesses including restaurants and retail stores in phases beginning on Friday. `\
-https://nytimes.com/reuters/2020/04/27/us/27reuters-health-coronavirus-texas.html?searchResultPosition=6
+**Tesla, Big Lots Rise; Embraer, Regeneron Fall**\
+`Stocks that moved heavily or traded substantially on Monday:`\
+https://nytimes.com/aponline/2020/04/27/business/ap-financial-markets-stocks.html?searchResultPosition=6
 
-**A Cast Album I Love: ‘The Secret Garden’**\
-`We continue our cast album series with more recommendations for wonderful musicals to listen to at home.`\
-https://nytimes.com/2020/04/27/theater/secret-garden-broadway-cast-album.html?searchResultPosition=7
+**N.Y.C. Deaths Reach 6 Times the Normal Level, Far More than Coronavirus Count Suggests**\
+`There have been some 20,000 more deaths than would be expected over all, and thousands more than have been captured in the city’s official coronavirus statistics.`\
+https://nytimes.com/interactive/2020/04/27/upshot/coronavirus-deaths-new-york-city.html?searchResultPosition=7
 
-**Nearly 7% of U.S. Mortgage Borrowers Receiving Payment Relief, Industry Survey Shows**\
-`About 3.5 million mortgage borrowers have had their payments paused or reduced as the novel coronavirus outbreak in the United States continues to throw millions out of work, a survey from the Mortgage Bankers Association showed on Monday.`\
-https://nytimes.com/reuters/2020/04/27/us/27reuters-usa-economy-mortgages.html?searchResultPosition=8
+**Google, Facebook May Be Heading Toward First Revenue Slumps**\
+`Demand for digital advertising is shriveling after a decade of explosive growth amid the pandemic-fueled downturn. That could complicate things for Google and Facebook, who for the first time may have to contend with revenues that are actually shrinking.`\
+https://nytimes.com/aponline/2020/04/27/business/bc-us-virus-outbreak-digital-ad-recession.html?searchResultPosition=8
 
-**Argentina, Chile Defuse Spat, Vow United Fight Against Pandemic and Recession**\
-`The leaders of Argentina and Chile have moved to defuse a recent diplomatic spat after officials in Santiago accused President Alberto Fernandez of "meddling" in Chile's internal affairs after he met with Chilean opposition leaders.`\
-https://nytimes.com/reuters/2020/04/27/world/americas/27reuters-argentina-diplomacy-chile.html?searchResultPosition=9
+**Venezuela Appoints Alleged Drug Trafficker El Aissami as Oil Minister**\
+`Venezuelan President Nicolas Maduro on Monday appointed his economy vice president, Tareck El Aissami, who has been indicted in the United States on drug trafficking charges, as oil minister, amid acute fuel shortages across the country.`\
+https://nytimes.com/reuters/2020/04/27/world/americas/27reuters-venezuela-oil-minister.html?searchResultPosition=9
 
-**U.S. Senate Republican Leader Sees Further Aid for States, Cities**\
-`U.S. Senate Republican leader Mitch McConnell on Monday predicted that Congress would approve further funding for states and cities whose budgets have been hit hard by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/27/us/politics/27reuters-health-coronavirus-usa-mcconnell.html?searchResultPosition=10
+**Russia Dismisses Media Report of Plot to Poison Prague Mayor**\
+`The Russian embassy in Prague has formally protested to the Czech Foreign Ministry over a media report claiming that Russian spies may have plotted to poison the mayor of Prague and another local official whose recent actions have angered Moscow.`\
+https://nytimes.com/aponline/2020/04/27/world/europe/ap-eu-czech-russia.html?searchResultPosition=10
 
