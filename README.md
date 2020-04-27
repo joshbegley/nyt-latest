@@ -22,8 +22,8 @@ https://nytimes.com/aponline/2020/04/26/us/ap-us-california-commissioner-cat-thr
 `He will use deception to keep his bungled response to Covid-19 from ruining his re-election chances.`\
 https://nytimes.com/2020/04/26/opinion/trump-coronavirus.html?searchResultPosition=7
 
-**Police: 1 Officer Dead, 1 More Wounded in Louisiana Shooting**\
-`A shooting in Louisiana's capital city of Baton Rouge has left one police officer dead and a wounded colleague fighting for life Sunday, authorities said, adding a suspect was in custody after an hourslong standoff at a home.`\
+**Police: 1 Officer Dies, 2nd Wounded in Louisiana Shooting**\
+`A shooting in Louisiana's capital city left one police officer dead and his wounded colleague fighting for his life Sunday, authorities said, adding a suspect was later taken into custody after an hourslong standoff in which shots were fired at a SWAT team.`\
 https://nytimes.com/aponline/2020/04/26/us/ap-us-louisiana-police-shooting-1st-ld-writethru.html?searchResultPosition=8
 
 **Patriots Draft Kicker With Tattoo of a Militia Group**\
