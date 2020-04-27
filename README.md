@@ -1,4 +1,4 @@
-**Text: UK PM Johnson Says It's Too Soon to Ease Relax COVID Lockdown**\
+**Text: UK PM Johnson Says It's Too Soon to Relax COVID Lockdown**\
 `British Prime Minister Boris Johnson said on Monday it was still too dangerous to relax a stringent lockdown hammering the economy as that may cause a deadly second outbreak.`\
 https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-britain-johnson-text.html?searchResultPosition=2
 
