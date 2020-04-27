@@ -1,24 +1,24 @@
-**U.S. House Committee Launches Probe of Trump WHO Aid Cutoff**\
-`The U.S. House of Representatives Foreign Affairs Committee launched an investigation on Monday of President Donald Trump's blocking of funds for the World Health Organization, giving the State Department a week to provide information about the decision as the world faces the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/27/us/politics/27reuters-health-coronavirus-who-usa.html?searchResultPosition=5
+**‘We’re Seeing a Tremendous Demand,’ Cuomo Says of Food Banks**\
+`With over a million New Yorkers out of work because of the coronavirus outbreak, food banks across the state are experiencing a huge jump in demand.`\
+https://nytimes.com/video/us/politics/100000007109738/were-seeing-a-tremendous-demand-cuomo-says-of-food-banks.html?searchResultPosition=5
 
-**World Bank Pandemic Bonds Will Funnel $196 Million to 64 Poor Countries**\
-`A World Bank pandemic funding programme will see $195.84 million distributed as soon as next week among 64 of the world's poorest countries that have reported cases of COVID-19 to help tackle the fast-spreading disease, the lender said on Monday.`\
-https://nytimes.com/reuters/2020/04/27/us/27reuters-health-coronavirus-worldbank-bonds.html?searchResultPosition=6
+**Diamond Offshore Files for Bankruptcy, Citing 'Price War,' Coronavirus**\
+`Diamond Offshore Drilling Inc filed for bankruptcy protection in Texas on Sunday, after the company recently skipped making an interest payment and said it had retained restructuring advisers.`\
+https://nytimes.com/reuters/2020/04/27/us/27reuters-diamondoffshore-bankruptcy.html?searchResultPosition=6
 
-**Georgia Can’t Copyright Its Entire State Code, the Supreme Court Rules**\
-`In a 5-to-4 ruling with unusual alliances, the court said that annotations cannot be copyrighted if they are the official work of state lawmakers.`\
-https://nytimes.com/2020/04/27/us/politics/georgia-copyright-code-supreme-court.html?searchResultPosition=7
+**Police: Man Ambushed Police; Stood Over Body, Kept Shooting**\
+`A man accused of murder ambushed two officers who wanted to interview him about a killing hours earlier, then stood over a dead officer’s body while continuing to shoot him, according to police documents released Monday. `\
+https://nytimes.com/aponline/2020/04/27/us/ap-us-louisiana-police-shooting.html?searchResultPosition=7
 
-**Mindy Kaling’s Netflix Show Tells a New Kind of Story: One Like Hers**\
-`The new series “Never Have I Ever” is a comedy about a first-generation Indian-American teenage girl much like Kaling, updated to a 2020 setting.`\
-https://nytimes.com/2020/04/27/arts/television/mindy-kaling-never-have-I-ever-netflix.html?searchResultPosition=8
+**Samin Nosrat Wants Us to Make Lasagna Together**\
+`The “Salt Fat Acid Heat” authorhas long gathered people around a table.But what will happen when the festivities move to that sometimes-terrible place, the internet?`\
+https://nytimes.com/2020/04/27/dining/samin-nosrat-lasagna.html?searchResultPosition=8
 
-**No 'V-Shaped' Recovery for U.S. Economy Likely Without More Stimulus: White House Adviser**\
-`The U.S. economy needs another, fourth stimulus bill that could push it to take off again in what is commonly called a "V-shaped recovery," one of the top White House advisers charged with blunting economic damage from the global coronavirus pandemic said on Monday.`\
-https://nytimes.com/reuters/2020/04/27/us/27reuters-health-coronavirus-usa-stimulus.html?searchResultPosition=9
+**Exclusive: Investors to Challenge Neiman Marcus Bankruptcy Loan, Push for Sale-Sources**\
+`An investor group that comprises investment firm Mudrick Capital Management LP and Daniel Loeb's hedge fund Third Point LLC plans to challenge a $600 million financing package that Neiman Marcus Group has lined up for its looming bankruptcy, and will push the U.`\
+https://nytimes.com/reuters/2020/04/27/business/27reuters-neimanmarcus-bankruptcy-exclusive.html?searchResultPosition=9
 
-**Remembering Mike Huckaby, a Towering Figure in Detroit House Music**\
-`The widely beloved D.J., producer and booster championed the sounds of his hometown and served as a trusted tastemaker, in Michigan and around the globe.`\
-https://nytimes.com/2020/04/27/arts/music/mike-huckaby-detroit-coronavirus.html?searchResultPosition=10
+**Michelle Obama's Book Tour Documented for 'Becoming' Film**\
+`Michelle Obama's tour to promote her best-selling 2018 memoir "Becoming" has been turned into a documentary film for Netflix.`\
+https://nytimes.com/reuters/2020/04/27/arts/27reuters-people-michelle-obama-documentary.html?searchResultPosition=10
 
