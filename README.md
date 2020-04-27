@@ -1,36 +1,36 @@
+**No Corrections: April 27, 2020**\
+`No corrections  appeared in print on Monday, April 27, 2020.`\
+https://nytimes.com/2020/04/27/pageoneplus/no-corrections-april-27-2020.html?searchResultPosition=2
+
+**Coronavirus Live Updates: Worldwide Deaths Top 200,000**\
+`Limited testing means the actual toll is higher. In Italy, the government outlines plans to lift Europe’s longest lockdown.`\
+https://nytimes.com/2020/04/27/world/coronavirus-news.html?searchResultPosition=3
+
+**Dennis Rodman’s College Coach Recalls Recruiting Him Over H-O-R-S-E**\
+`Lonn Reisman, who coached Rodman at Southeastern Oklahoma State, said he dreamed of wooing the “raw” elite rebounder from junior college but figured it wasn’t possible.`\
+https://nytimes.com/2020/04/27/sports/basketball/last-dance-dennis-rodman-bulls.html?searchResultPosition=4
+
+**Quotation of the Day: Mayors Press Case in Inventive Ways**\
+`Quotation of the Day for Monday, April 27, 2020.`\
+https://nytimes.com/2020/04/27/todayspaper/quotation-of-the-day-mayors-press-case-in-inventive-ways.html?searchResultPosition=5
+
+**South Korea Confident That Rumors of Kim Jong-un Illness Are Wrong**\
+`Comments by the country’s unification minister represent the South’s most categorical rebuttal of reports that the North’s leader may be incapacitated.`\
+https://nytimes.com/2020/04/26/world/asia/kim-jong-un-health.html?searchResultPosition=6
+
+**Japan Central Bank Eases Monetary Policy to Boost Economy**\
+`Japan’s central bank is making it easier for cash-strapped companies to get funding and expanding collateral for debt in response to the growing economic damage from the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/04/26/world/asia/ap-japan-economy.html?searchResultPosition=7
+
+**U.S. Democrats Urge Paycheck Scheme Coverage for Community, Minority Lenders**\
+`Top Democrats have urged the U.S. Treasury Department and the Small Business Administration (SBA) to expand opportunities for community development financial institutions (CDFIs) and minority depository institutions (MDIs) in the Paycheck Protection Program funding.`\
+https://nytimes.com/reuters/2020/04/26/us/politics/26reuters-health-coronavirus-usa-ppp.html?searchResultPosition=8
+
 **BOJ Ramps Up Risky Asset Buying, Pledges Unlimited Bond Buying**\
 `The Bank of Japan on Monday ramped up risky asset purchases and pledged to buy unlimited amounts of government bonds to combat the economic fallout from the coronavirus epidemic.`\
-https://nytimes.com/reuters/2020/04/26/world/asia/26reuters-japan-economy-boj-decision.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/26/world/asia/26reuters-japan-economy-boj-decision.html?searchResultPosition=9
 
 **Seahawks Part Ways With C Britt, G Fluker**\
 `The Seattle Seahawks revamped their offensive line on Sunday, parting ways with center Justin Britt and guard D.J. Fluker.`\
-https://nytimes.com/reuters/2020/04/26/sports/football/26reuters-football-nfl-sea-roster-moves.html?searchResultPosition=3
-
-**Recent Developments Surrounding the South China Sea**\
-`A look at recent developments in the South China Sea, where China is pitted against smaller neighbors in multiple territorial disputes over islands, coral reefs and lagoons. The waters are a major shipping route for global commerce and are rich in fish and possible oil and gas reserves. `\
-https://nytimes.com/aponline/2020/04/26/world/asia/ap-as-south-china-sea-watch-.html?searchResultPosition=4
-
-**In ‘Run,’ Archie Panjabi Sees Shades of Her Most Famous Role**\
-`The actress’s part in the comic thriller, one of two HBO shows she is joining this spring, reminds her of Kalinda, her beloved character in “The Good Wife.”`\
-https://nytimes.com/2020/04/26/arts/television/archie-panjabi-run.html?searchResultPosition=5
-
-**Saudi Coalition Urges Yemen Separatists to Honor Riyadh Deal**\
-`A Saudi-led coalition mired in a yearslong war in Yemen on Monday urged Emirati-backed separatists to honor terms of a Riyadh peace deal and return control of Aden to the country's internationally recognized government. `\
-https://nytimes.com/aponline/2020/04/26/world/middleeast/ap-ml-yemen.html?searchResultPosition=6
-
-**Japan's Aso: Expect BOJ to Support Financial Markets Stability, Corporate Finance**\
-`Japanese Finance Minister Taro Aso said on Monday he would expect the Bank of Japan to support financial market stability and corporate finance. `\
-https://nytimes.com/reuters/2020/04/26/world/asia/26reuters-japan-economy-boj-aso.html?searchResultPosition=7
-
-**Starbucks Says in Partnership With Sequoia Capital China for Investments**\
-`Starbucks on Monday said it has entered a strategic partnership with investment firm Sequoia Capital China that will see the two companies make strategic co-investments in China's technology sector. `\
-https://nytimes.com/reuters/2020/04/26/business/26reuters-starbucks-china-sequoia-capital.html?searchResultPosition=8
-
-**South Korean Officials Call for Caution Amid Reports That North Korean Leader Kim Is Ill**\
-`South Korean officials are calling for caution amid reports that North Korean leader Kim Jong Un may be ill, emphasising that they have detected no unusual movements in North Korea.`\
-https://nytimes.com/reuters/2020/04/26/world/asia/26reuters-northkorea-kim.html?searchResultPosition=9
-
-**Syrian Air Defences Intercept Hostile Targets Over Damascus: State News Agency**\
-`Syrian air defences early on Monday intercepted "hostile targets" over the capital of Damascus, the state news agency SANA reported.`\
-https://nytimes.com/reuters/2020/04/26/world/middleeast/26reuters-syria-security.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/26/sports/football/26reuters-football-nfl-sea-roster-moves.html?searchResultPosition=10
 
