@@ -1,36 +1,36 @@
-**Detroit Students Have a Constitutional Right to Literacy, Court Rules**\
-`A major ruling in a lawsuit involving the Detroit public schools comes at a time when school shutdowns are expected to affect poor children most adversely.`\
-https://nytimes.com/2020/04/27/us/detroit-literacy-lawsuit-schools.html?searchResultPosition=2
+**U.S. Acknowledges Killing Two Civilians in 2019 Somalia Air Strike**\
+`The United States said on Monday it had killed two civilians and injured three in an air strike in Somalia early last year, in a rare acknowledgement of civilian casualties from U.S. Africa Command military operations in the Horn of Africa country.`\
+https://nytimes.com/reuters/2020/04/27/world/africa/27reuters-somalia-security-usa.html?searchResultPosition=2
 
-**Erdogan Says Turkey Will Send Medical Gear to United States**\
-`President Tayyip Erdogan said that Turkey will send medical gear including protective suits and masks to the United States on Tuesday to help its efforts to contain the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-turkey.html?searchResultPosition=3
+**Israel Marks Memorial Day Under Tightened Virus Restrictions**\
+`Israel came to a standstill for a minute on Monday evening to mark the beginning of the country's memorial day for fallen soldiers and victims of attacks.`\
+https://nytimes.com/aponline/2020/04/27/world/middleeast/ap-ml-israel-memorial-day.html?searchResultPosition=3
 
-**The Man With the Epidemiologist Tattoo-a Very Swedish Tribute**\
-`It's not every day that the face of a chief epidemiologist is inked as a tattoo. But then it's not every country that has tackled the coronavirus pandemic like Sweden.`\
-https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-tegnell-tattoo.html?searchResultPosition=4
+**EU Pledges to Continue Search for Kosovo’s War Missing**\
+`The European Union’s mission to ensure the rule of law in Kosovo said Monday that the number of people still missing since the war more than 20 years ago is a good reason to continue the mission.`\
+https://nytimes.com/aponline/2020/04/27/world/europe/ap-eu-kosovo-war-missing.html?searchResultPosition=4
 
-**F1 Still Faces a Challenge With Revised Season Plan**\
-`Formula One plans to start its stalled season with two races behind closed doors in Austria in July before more of the same at Britain's Silverstone circuit, insiders said on Monday.`\
-https://nytimes.com/reuters/2020/04/27/sports/autoracing/27reuters-health-coronavirus-f1-season.html?searchResultPosition=5
+**'You Are a Miracle': Home Care Is New Front in Virus Fight**\
+`Ruth Caballero paused outside an unfamiliar apartment door, preparing to meet her new patient. `\
+https://nytimes.com/aponline/2020/04/27/us/ap-us-virus-outbreak-home-health-care.html?searchResultPosition=5
 
-**Michelle Obama Documentary 'Becoming' to Premiere on Netflix**\
-`A documentary portrait of Michelle Obama titled “Becoming” will premiere on Netflix next week, the streaming company announced Monday.`\
-https://nytimes.com/aponline/2020/04/27/us/ap-us-film-michelle-obama-netflix.html?searchResultPosition=6
+**HBO Max Streaming Service Will Be Available on Apple Devices at May 27 Launch**\
+`HBO Max, the forthcoming streaming service from AT&T Inc.-owned WarnerMedia, will be available on Apple Inc. devices when it launches on May 27, the company said on Monday. `\
+https://nytimes.com/reuters/2020/04/27/technology/27reuters-media-streaming-hbo-max.html?searchResultPosition=6
 
-**No, the Best Doesn’t Win**\
-`“It just works” are some of the most powerful words in technology.`\
-https://nytimes.com/2020/04/27/technology/no-the-best-doesnt-win.html?searchResultPosition=7
+**FDA Warns 10 Firms Against Sale of Products Promoting Teen Vaping**\
+`The U.S. Food and Drug Administration (FDA) on Monday warned 10 manufacturers and retailers against selling or producing products likely to promote e-cigarette use among teenagers.`\
+https://nytimes.com/reuters/2020/04/27/us/27reuters-fda-ecigarettes.html?searchResultPosition=7
 
-**Michelle Obama’s Memoir ‘Becoming’ Will Be a Netflix Documentary**\
-`The film, which follows the former first lady’s book tour after the release of her memoir in 2018, will premiere May 6.`\
-https://nytimes.com/2020/04/27/movies/michelle-obama-netflix-documentary-memoir-becoming.html?searchResultPosition=8
+**Oklahoma Asks Trump to Declare Coronavirus an 'Act of God' to Help Oil Producers**\
+`Oklahoma's governor has called on U.S. President Donald Trump to declare the coronavirus pandemic an "act of God," a step to help oil-producing states contend with a crude glut that caused futures prices to close below $0 last week for the first time. `\
+https://nytimes.com/reuters/2020/04/27/business/27reuters-oil-usa-oklahoma.html?searchResultPosition=8
 
-**AP Source: Bulls Hiring 76ers' Eversley as General Manager**\
-`The Chicago Bulls have hired Philadelphia 76ers executive Marc Eversley to replace the fired Gar Forman as general manager and work under new top basketball executive Arturas Karnisovas, a person familiar with the situation said Monday.`\
-https://nytimes.com/aponline/2020/04/27/sports/basketball/ap-bkn-bulls-eversley-.html?searchResultPosition=9
+**World's Biggest Film Festivals Unite for 10-Day Global Streaming Event**\
+`More than 20 film festivals around the world have joined  together to stream movies free on YouTube after the coronavirus pandemic shuttered movie theaters and forced the cancellation of annual showcases in Cannes and New York.`\
+https://nytimes.com/reuters/2020/04/27/arts/27reuters-film-festivals-youtube.html?searchResultPosition=9
 
-**Agents in College Bribery Probe Deny Bullying Core Witness**\
-`Federal agents didn't entrap the wealthy parents accused of cheating the college admissions process, the man who helped investigators build their case reportedly told the FBI recently, boosting prosecutors' arguments that claims of misconduct are false.`\
-https://nytimes.com/aponline/2020/04/27/sports/ap-us-college-admissions-bribery.html?searchResultPosition=10
+**BoE Says UK State Credit Guarantees Should Limit Banks' Loan Risks**\
+`The British government's 80% guarantees to banks for emergency coronavirus-related lending to companies should generally reduce the amount of capital banks need to cover loans that are at risk of not being repaid, the Bank of England said on Monday.`\
+https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-britain-boe.html?searchResultPosition=10
 
