@@ -1,36 +1,36 @@
+**Companies Bet on AI Cameras to Track Social Distancing, Limit Liability**\
+`Stores and workplaces eager to avoid spreading the novel coronavirus are equipping existing security cameras with artificial intelligence software that can track compliance with health guidelines including social distancing and mask-wearing.`\
+https://nytimes.com/reuters/2020/04/27/technology/27reuters-health-coronavirus-surveillance-tech.html?searchResultPosition=2
+
+**Nissan to Slash Japan Production by 70% in May, 43% in June: Documents**\
+`Japan's Nissan Motor Co Ltd will slash its domestic auto production plans by 70% in May and 43% in June, documents seen by Reuters show, as the impact of the coronavirus shakes the troubled automaker.`\
+https://nytimes.com/reuters/2020/04/27/business/27reuters-health-coronarivus-nissan-production.html?searchResultPosition=3
+
+**U.S. House Speaker Nancy Pelosi Endorses Joe Biden for President**\
+`U.S. House Of Representatives Speaker Nancy Pelosi has endorsed Joe Biden for president, according to a video statement released by her on Monday. `\
+https://nytimes.com/reuters/2020/04/27/us/politics/27reuters-usa-election-biden-pelosi.html?searchResultPosition=4
+
+**Formula One Chairman Carey Hopes Season Starts July 5**\
+`The Formula One season could start in July despite the first 10 races being canceled or postponed because of the coronavirus pandemic, F1 chairman Chase Carey said Monday.`\
+https://nytimes.com/aponline/2020/04/27/sports/ap-car-f1-2020-season.html?searchResultPosition=5
+
+**Iran Death Toll From New Coronavirus Outbreak Rises by 96 to 5,806-Health Ministry Official**\
+`The death toll from the outbreak of new coronavirus in Iran rose by 96 in the past twenty four hours to 5,806, Health Ministry spokesman Kianush Jahanpur said in a statement on state TV on Monday.`\
+https://nytimes.com/reuters/2020/04/27/world/middleeast/27reuters-health-coronavirus-iran.html?searchResultPosition=6
+
+**U.S. Extradition Case Against Assange Next Month Postponed, London Judge Says**\
+`The second part of the U.S. extradition case against WikiLeaks founder Julian Assange will not go ahead as planned next month, a British judge decided on Monday, saying the coronavirus lockdown meant the hearings could not take place.`\
+https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-britain-assange.html?searchResultPosition=7
+
 **Blow for China's Virus Diplomacy as Friendship Song Leaves Filipinos Furious**\
 `A music video produced by China to promote its support for neighbours battling the coronavirus has backfired in the Philippines, attracting a flood of public criticism and an online petition that is fast attracting signatures.`\
-https://nytimes.com/reuters/2020/04/27/world/asia/27reuters-health-coronavirus-philippines-china.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/27/world/asia/27reuters-health-coronavirus-philippines-china.html?searchResultPosition=8
 
 **A Glut of Oil**\
 `This is the energy crisis nobody saw coming.`\
-https://nytimes.com/2020/04/27/podcasts/the-daily/oil-prices-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/04/27/podcasts/the-daily/oil-prices-coronavirus.html?searchResultPosition=9
 
 **After Beating Coronavirus, a Zimbabwe Survivor Lives With the Stigma**\
 `When Saul Sakudya arrived in an ambulance at a hospital in Zimbabwe's capital after catching COVID-19, he said the medical staff wouldn't go near him because they were afraid of becoming infected. `\
-https://nytimes.com/reuters/2020/04/27/world/africa/27reuters-health-coronavirus-zimbabwe-survivor.html?searchResultPosition=4
-
-**Explainer: Hong Kong's Currency Finds Strength in Testing Times**\
-`The Hong Kong dollar <HKD=D3> is bumping against the top end of its narrow 7.75-7.85 band against the U.S. dollar and is among the best-performing currencies this year even as the city's economy struggles to contain the fallout of the coronavirus.`\
-https://nytimes.com/reuters/2020/04/27/world/asia/27reuters-hongkong-markets-peg-explainer.html?searchResultPosition=5
-
-**Russia's Stranded Migrants Lose Jobs, Rely on Handouts and Peers for Food**\
-`Even before Moscow's coronavirus lockdown, Ibragim Artykov, a builder from Tajikistan, was down on his luck. Over two months, he had four jobs and in all of them his employers either underpaid him or disappeared without paying him at all.`\
-https://nytimes.com/reuters/2020/04/27/world/asia/27reuters-health-coronavirus-russia-migrants.html?searchResultPosition=6
-
-**Your Monday Briefing**\
-`Coronavirus, Lockdown, Kim Jong-un: Here’s what you need to know.`\
-https://nytimes.com/2020/04/27/briefing/coronavirus-lockdown-kim-jong-un.html?searchResultPosition=7
-
-**Coronavirus Live Updates: More States Ease Restrictions as Pressure to Reopen Grows**\
-`About three million cases have been detected around the world, and the global death toll passed 200,000. States across the U.S. gradually allowed some businesses to resume.`\
-https://nytimes.com/2020/04/27/us/coronavirus-updates.html?searchResultPosition=8
-
-**China Denies Spreading Coronavirus Disinformation Following EU Report**\
-`China's foreign ministry on Monday denied claims that Beijing is spreading disinformation about the coronavirus following a European Union report that said there was "significant evidence" of covert Chinese operations on social media. `\
-https://nytimes.com/reuters/2020/04/27/world/asia/27reuters-health-coronavirus-china-eu.html?searchResultPosition=9
-
-**In Cash-Loving Japan, Banks Still Busy Despite Coronavirus Emergency**\
-`Japanese retail customers' love affair with cash - and some extra free time while working at home - is keeping bank branches busy despite government calls for people to reduce contacts during the state of emergency to contain a coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/27/world/asia/27reuters-health-coronavirus-japan-banks.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/27/world/africa/27reuters-health-coronavirus-zimbabwe-survivor.html?searchResultPosition=10
 
