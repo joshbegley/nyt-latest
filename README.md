@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus
 https://nytimes.com/reuters/2020/04/27/sports/27reuters-football-nfl-cle-garrett-njoku.html?searchResultPosition=3
 
 **Top E.R. Doctor Who Treated Virus Patients Dies by Suicide**\
-`“She tried to do her job, and it killed her,” said the father of Dr. Laura M. Breen, who worked at a Manhattan hospital hit hard by the coronavirus outbreak.`\
+`“She tried to do her job, and it killed her,” said the father of Dr. Lorna M. Breen, who worked at a Manhattan hospital hit hard by the coronavirus outbreak.`\
 https://nytimes.com/2020/04/27/nyregion/new-york-city-doctor-suicide.html?searchResultPosition=4
 
 **Will Returning Players Be Out of Shape? Soccer May Need More Subs**\
