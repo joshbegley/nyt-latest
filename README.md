@@ -14,7 +14,7 @@ https://nytimes.com/aponline/2020/04/27/business/ap-nerdwallet-liz-weston-ask-ba
 `The House speaker described the former vice president as “a leader with the humility to seek expertise and science, and the confidence to act upon it.”`\
 https://nytimes.com/2020/04/27/us/politics/nancy-pelosi-endorses-joe-biden.html?searchResultPosition=5
 
-**Motor Racing: F1 Expects to Start Delayed Season in Austria in July**\
+**F1 Expects to Start Delayed Season in Austria in July**\
 `Formula One hopes to start its delayed 2020 season in Austria in July without spectators before ending in Abu Dhabi in December after races in Asia and the Americas, chairman and CEO Chase Carey said on Monday.`\
 https://nytimes.com/reuters/2020/04/27/sports/autoracing/27reuters-health-coronavirus-f1-france.html?searchResultPosition=6
 
