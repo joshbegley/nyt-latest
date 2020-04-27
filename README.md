@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/04/27/world/americas/ap-lt-virus-outbreak-braz
 `Following a season in which Lamar Jackson and the Baltimore Ravens ran away with the AFC North title, the rest of the division has been working diligently to narrow the gap.`\
 https://nytimes.com/aponline/2020/04/27/sports/football/ap-fbn-afc-north-analysis.html?searchResultPosition=6
 
-**Ohio Governor Outlines 'First Steps' to Begin Reopening State Amid Coronavirus**\
+**Ohio Governor Outlines 'First Steps' to Begin Reopening State Amid Coronavirus Crisis**\
 `Ohio Governor Mike DeWine on Monday outlined the "first steps" to begin reopening the Midwestern state's economy, starting with non-essential surgeries on May 1 and then moving on to the manufacturing and retail sectors after that.`\
 https://nytimes.com/reuters/2020/04/27/us/27reuters-health-coronavirus-usa-ohio.html?searchResultPosition=7
 
