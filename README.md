@@ -1,36 +1,36 @@
-**Court Rules Insurers Can Collect $12B Under Health Care Law**\
-`The Supreme Court ruled Monday that insurance companies can collect $12 billion from the federal government to cover their losses in the early years of the health care law championed by President Barack Obama. `\
-https://nytimes.com/aponline/2020/04/27/business/bc-us-supreme-court-health-care-law.html?searchResultPosition=2
+**Court Tosses NY Case That Could Have Expanded Gun Rights**\
+`The Supreme Court sidestepped a major decision on gun rights Monday in a dispute over New York City’s former ban on transporting guns.`\
+https://nytimes.com/aponline/2020/04/27/us/politics/ap-us-supreme-court-guns.html?searchResultPosition=2
 
-**Alaska Girl Scouts to Get Relief Loan for Lost Cookie Sales**\
-`Selling Girl Scout cookies is normally a foolproof business model, but the coronavirus outbreak cooled sales of for Alaska scourts.`\
-https://nytimes.com/aponline/2020/04/27/business/ap-us-virus-outbreak-alaska-girl-scouts.html?searchResultPosition=3
+**Jakarta’s Trash Mountain: ‘When People Are Desperate for Jobs, They Come Here’**\
+`The scavengers who make a living picking plastic, metal and even bones from a huge landfill face additional misery as the global economic slowdown closes the recycling centers they count on.`\
+https://nytimes.com/2020/04/27/world/asia/indonesia-jakarta-trash-mountain.html?searchResultPosition=3
 
-**Without Tourist Revenue, Prague's Jewish Community Fears for Future of Welfare Services**\
-`With ticket sales to Prague's Jewish quarter halted during the coronavirus lockdown, the community is having to tap its reserves to pay for welfare services for Holocaust survivors that tourists usually help fund.`\
-https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-czech-jewish.html?searchResultPosition=4
+**C.D.C. Adds New Symptoms to Its List of Possible Covid-19 Signs**\
+`Chills, muscle pain, sore throat and headache are among the ailments now considered potential indicators of the disease.`\
+https://nytimes.com/2020/04/27/health/coronavirus-symptoms-cdc.html?searchResultPosition=4
 
-**Germany's Far-Right AfD Suspends Spokesman Over 'Fascist' Remark**\
-`The far-right Alternative for Germany (AfD) has suspended a spokesman after he suggested in an email exchange that the term "fascist" was used too freely, an AfD lawmaker said on Monday.`\
-https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-germany-politics-afd.html?searchResultPosition=5
+**‘I Understand Your Impatience, I Share Your Anxiety,’ Johnson Says**\
+`Prime Minister Boris Johnson of Britain returned to work after being released from the hospital. He said there were signs the country was “beginning to turn the tide” against coronavirus.`\
+https://nytimes.com/video/world/europe/100000007109123/boris-johnson-coronavirus-britain.html?searchResultPosition=5
 
-**Microsoft Wins Five-Year Deal With Coca-Cola to Supply Business Software**\
-`Microsoft Corp on Monday said it had won a five-year deal with Coca-Cola Co to supply business software, including its Teams chat app and tools for customer service agents.`\
-https://nytimes.com/reuters/2020/04/27/business/27reuters-microsoft-coke.html?searchResultPosition=6
+**Welcome Mat at Florida Home Seeks Warrant and Deputies Did**\
+`A welcome mat at the front door of a Florida home read “come back with a warrant” — and that's just what deputies did before finding drugs and drug paraphernalia inside.`\
+https://nytimes.com/aponline/2020/04/27/us/ap-us-odd-warrant-welcome-mat.html?searchResultPosition=6
 
-**German Tourism Body: Lockdown Cost Industry 24 Billion Euros in March/April-Report**\
-`Lockdown has cost Germany's tourism industry 24 billion euros  ($26.04 billion) in March and April alone, the sector's industry association said, calling in an interview with the RND media group for immediate state aid for the sector's smallest firms.`\
-https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-germany-tourism.html?searchResultPosition=7
+**Buffett and Abel, but Not Munger, to Field Questions at Berkshire Annual Meeting**\
+`Warren Buffett's Berkshire Hathaway Inc will hold a truncated virtual annual meeting on Saturday where its billionaire chairman will be present but his longtime Vice Chairman Charlie Munger will not.`\
+https://nytimes.com/reuters/2020/04/27/business/27reuters-berkshire-buffett-meeting.html?searchResultPosition=7
 
-**A Pandemic Gives the Funny Pages a Jolt of Reality**\
-`Daily newspaper cartoonists have finally caught up with the coronavirus.`\
-https://nytimes.com/2020/04/27/arts/design/comic-strips-coronavirus.html?searchResultPosition=8
+**Speed Skating: Russian Short Track Great Ahn Retires Due to Injuries**\
+`Six-time Olympic gold medallist Viktor Ahn on Monday announced his retirement from short track speed skating, citing several lingering injuries. `\
+https://nytimes.com/reuters/2020/04/27/sports/olympics/27reuters-russia-sport-speedskating-ahn.html?searchResultPosition=8
 
-**Companies Save Cash to Survive; Europe Reopens, Very Slowly**\
-`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Monday related to the global economy, the work place and the spread of the virus.`\
-https://nytimes.com/aponline/2020/04/27/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=9
+**Brexit Talks Can Still Be Done Within Agreed Timescale, UK Minister Says**\
+`Talks to strike a deal on a post-Brexit relationship between Britain and the European Union can still be concluded within the agreed timescale, British Cabinet Office minister Michael Gove said on Monday.`\
+https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-britain-eu.html?searchResultPosition=9
 
-**S.D. Governor Says She Hopes Smithfield Plant Can Reopen in Days**\
-`South Dakota Governor Kristi Noem on Monday said she believes that Smithfield's Sioux Falls pork processing plant can reopen "really quickly" as soon as employees can safely be accommodated, hopefully within days.`\
-https://nytimes.com/reuters/2020/04/27/us/27reuters-health-coronavirus-usa-meatpacking.html?searchResultPosition=10
+**U.N. Raises Alarm About Police Brutality in Lockdowns**\
+`The U.N. human rights office voiced concern on Monday about more than a dozen countries that have declared states of emergency due to the COVID-19 pandemic where police have arrested or detained hundreds of thousands of people and killed others.`\
+https://nytimes.com/reuters/2020/04/27/world/27reuters-health-coronavirus-un-rights.html?searchResultPosition=10
 
