@@ -1,24 +1,24 @@
-**Verizon Will Not Cancel Customers Through June 30 Because of Coronavirus**\
-`Verizon Communications Inc, the largest U.S. wireless carrier, said Monday it will extend a commitment through June 30 not to cancel service or charge late fees to customers because of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/27/business/27reuters-health-coronavirus-usa-wireless.html?searchResultPosition=5
+**At a Glance: Brazil Buckles Under Spread of New Coronavirus**\
+`Latin America's largest nation is moving closer to becoming one of the world’s hardest hit by the coronavirus pandemic. The number of cases in Brazil is growing amid political discord over the nation's response, threatening to overwhelm hospitals, morgues and cemeteries. `\
+https://nytimes.com/aponline/2020/04/27/world/americas/ap-lt-virus-outbreak-brazil-glance.html?searchResultPosition=5
 
-**Britain to Pay $75,000 to Families of Health Workers Who Die of COVID-19**\
-`Families of British health and care workers who die on the frontline of the COVID-19 pandemic will be paid 60,000 pounds ($74,472) as part of a new life assurance scheme, Health Secretary Matt Hancock said on Monday.`\
-https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-britain-assurance.html?searchResultPosition=6
+**AFC North Has New Look, Though Ravens Still the Team to Beat**\
+`Following a season in which Lamar Jackson and the Baltimore Ravens ran away with the AFC North title, the rest of the division has been working diligently to narrow the gap.`\
+https://nytimes.com/aponline/2020/04/27/sports/football/ap-fbn-afc-north-analysis.html?searchResultPosition=6
 
-**Amazon Extends Closure of French Warehouses Until May 5**\
-`Amazon said on Monday it would extend the closure of its six warehouses in France to May 5 after a French court rejected the U.S. online retailer's appeal against aruling that restricts what it can deliver during the coronaviruscrisis.`\
-https://nytimes.com/reuters/2020/04/27/technology/27reuters-health-coronavirus-amazon-france.html?searchResultPosition=7
+**Ohio Governor Outlines 'First Steps' to Begin Reopening State Amid Coronavirus**\
+`Ohio Governor Mike DeWine on Monday outlined the "first steps" to begin reopening the Midwestern state's economy, starting with non-essential surgeries on May 1 and then moving on to the manufacturing and retail sectors after that.`\
+https://nytimes.com/reuters/2020/04/27/us/27reuters-health-coronavirus-usa-ohio.html?searchResultPosition=7
 
-**French Scientists to Test Theory That Nicotine Combats COVID-19**\
-`French researchers are preparing to launch a human trial to test their hypothesis that nicotine can help the body combat the COVID-19 infection.`\
-https://nytimes.com/reuters/2020/04/27/world/europe/27reuters-health-coronavirus-france-nicotine.html?searchResultPosition=8
+**It Took Big Toes to Save These Lizards From Hurricanes**\
+`A new study suggests cataclysmic weather can reshape entire species.`\
+https://nytimes.com/2020/04/27/science/lizards-hurricanes-toes.html?searchResultPosition=8
 
-**'Likely Default': Creditors Knock Back Argentine Province's Debt Revamp Offer**\
-`Bondholders on Monday rejected a debt restructuring proposal by Argentina's Buenos Aires province and said the offer would likely lead to a default, adding tension to a larger debt crisis plaguing the South American country.`\
-https://nytimes.com/reuters/2020/04/27/world/americas/27reuters-argentina-debt-buenosaires.html?searchResultPosition=9
+**Invest in People First**\
+`Cities should avoid bankruptcy. It hasn’t helped Detroit.`\
+https://nytimes.com/2020/04/27/opinion/coronavirus-bankruptcy-detroit.html?searchResultPosition=9
 
-**Films to Heal a Broken Moment**\
-`These characters find reasons to carry on in the face of hardship or crisis — examples that can help in our own difficult time.`\
-https://nytimes.com/2020/04/27/movies/films-to-heal-a-broken-moment.html?searchResultPosition=10
+**We Can’t Police Our Way Out of a Pandemic**\
+`Punitive responses will just burden those who have already been hit hard by the coronavirus.`\
+https://nytimes.com/2020/04/27/opinion/coronavirus-police.html?searchResultPosition=10
 
