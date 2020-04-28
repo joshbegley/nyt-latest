@@ -1,20 +1,20 @@
-**Why I’m Reopening My Georgia Nail Salon**\
-`When the government is mostly just helping big business, the rest of us have to begin to find a new normal, as best as we can.`\
-https://nytimes.com/2020/04/28/opinion/coronavirus-reopening-georgia.html?searchResultPosition=6
+**UK Regulator Ends Probe of Ex-Barclays Banker Roger Jenkins: Lawyer**\
+`Britain's Financial Conduct Authority (FCA) has closed a civil inquiry into former Barclays executive Roger Jenkins over how the bank secured billions of pounds of funding from Qatar during the credit crisis, his lawyer said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-barclays-regulator-jenkins.html?searchResultPosition=6
 
-**DeSantis Defends Coronavirus Response, Looks Toward Reopening**\
-`During a meeting with President Trump, Gov. Ron DeSantis of Florida defended his resistance to closures throughout the coronavirus pandemic and said he would release plans to reopen the state Wednesday.`\
-https://nytimes.com/video/us/politics/100000007111515/desantis-trump-coronavirus-florida.html?searchResultPosition=7
+**Mexico, European Union Conclude Trade Negotiations**\
+`Mexico and the European Union successfully concluded negotiations on a new, updated trade agreement, the two sides said Tuesday.`\
+https://nytimes.com/aponline/2020/04/28/world/americas/ap-lt-mexico-eu-trade-deal.html?searchResultPosition=7
 
-**You Need Something New to Watch. What About the Universe?**\
-`Discover the boundaries of science — from your couch.`\
-https://nytimes.com/2020/04/28/opinion/the-sound-of-gravity-einstein.html?searchResultPosition=8
+**Rams Chasing 49ers, Seahawks, Cards in Power-Packed NFC West**\
+`A year ago, the Los Angeles Rams were fresh off a Super Bowl trip and back-to-back NFC West titles, feeling good about where they stood in the division.`\
+https://nytimes.com/aponline/2020/04/28/sports/football/ap-fbn-nfc-west-analysis.html?searchResultPosition=8
 
-**I Run a Bakery. The Paycheck Protection Program Isn’t Enough.**\
-`The terms of the loan are overly restrictive, and don’t help small businesses to reopen.`\
-https://nytimes.com/2020/04/28/opinion/coronavirus-ppp-loan-detroit.html?searchResultPosition=9
+**When Schools Reopen, They Could Look Very Different**\
+`Schools in most states will stay closed through the end of the academic year, and some are considering the need to continue remote learning in the fall.`\
+https://nytimes.com/2020/04/28/us/coronavirus-schools-reopen.html?searchResultPosition=9
 
-**What I Learned From Being Off My Anxiety Meds in a Pandemic**\
-`How do I know therapy works? Because I’m surviving this.`\
-https://nytimes.com/2020/04/28/opinion/coronavirus-anxiety-medication.html?searchResultPosition=10
+**Ireland Will Not Hit 100,000 Weekly Coronavirus Testing Goal Until Mid-May**\
+`Ireland has failed to reach its target to carry out 100,000 coronavirus tests per week and will not meet it until the week of May 18, three weeks later than planned, a senior health official said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-ireland.html?searchResultPosition=10
 
