@@ -1,20 +1,20 @@
-**Investors Bet Giant Companies Will Dominate After Crisis**\
-`The virus outbreak supercharged a continuing shift in the markets, with a few giant companies now exerting the most influence over the direction of stocks since the tech boom.`\
-https://nytimes.com/2020/04/28/business/coronavirus-stocks.html?searchResultPosition=6
+**Virus, Stalled Economy Raise Democratic Hopes to Take Senate**\
+`Steve Bullock was the lame-duck governor of solidly red Montana, fresh off a failed Democratic presidential bid, when he pivoted and announced he’d challenge Republican Sen. Steve Daines for his seat.`\
+https://nytimes.com/aponline/2020/04/28/us/politics/ap-us-election-2020-battle-for-senate-.html?searchResultPosition=6
 
-**Public Suicide Bid as Millions of Thais Wait for Virus Aid**\
-`A woman who took rat poison this week outside Thailand's finance ministry over the slow rollout of aid during the coronavirus lockdown was promised on Tuesday she would get her money soon. For millions of other Thais, the waiting continues.`\
-https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-health-coronavirus-thailand-aid.html?searchResultPosition=7
+**Birds That Eat Fire, Pet Food and Sugar Packets to Live Another Day**\
+`A willingness to experiment with new foods and ways of foraging may make some birds less vulnerable to extinction.`\
+https://nytimes.com/2020/04/28/science/birds-diets-survival.html?searchResultPosition=7
 
-**U.S. Banks Battle Technology Issues in Race for $310 Billion in New Small-Business Aid**\
-`U.S. bankers racing to grab $310 billion in fresh small-business aid worked through the night on Tuesday, with many battling ongoing technology problems created by 11th hour changes to the first-come-first-served program, multiple bankers said.`\
-https://nytimes.com/reuters/2020/04/28/business/28reuters-health-coronavirus-banks-lending.html?searchResultPosition=8
+**Corliss Henry, Trailblazing New Jersey Nurse, Dies at 95**\
+`She was the first black staff nurse at Muhlenberg Hospital and went on to become a nursing professor.`\
+https://nytimes.com/2020/04/28/obituaries/corliss-henry-dead-coronavirus.html?searchResultPosition=8
 
-**Watch Live: Cuomo Delivers Coronavirus Update for New York**\
-`Gov. Andrew M. Cuomo provides the state’s latest coronavirus statistics.`\
-https://nytimes.com/video/us/politics/100000007111151/new-york-governor-andrew-cuomo-press-conference-coronavirus.html?searchResultPosition=9
+**Sexting, Consent and the ‘Quaranteen’**\
+`Guidance for parents on talking to teens about consent while on lockdown. Hint: Use French fries as an example.`\
+https://nytimes.com/2020/04/28/well/family/coronavirus-shutdown-teen-sexting-consent.html?searchResultPosition=9
 
-**Mail Fraud Suspect Named Speedy Gonzalez Arrested in Georgia**\
-`After months on the run, a mail fraud suspect who lived up to his legal name — Speedy Gonzalez — has been arrested in Georgia.`\
-https://nytimes.com/aponline/2020/04/28/us/ap-us-odd-speedy-gonzalez-arrested.html?searchResultPosition=10
+**‘Normal People’ Review: Their Love Will Tear You Apart**\
+`Sally Rooney’s novel comes to Hulu as a sad, sexy, class- and power-conscious coming-of-age story.`\
+https://nytimes.com/2020/04/28/arts/television/normal-people-review.html?searchResultPosition=10
 
