@@ -1,20 +1,20 @@
-**Harvard Agrees to Repay $1.3M for Federal Grant Overcharges**\
-`Harvard University has agreed to pay more than $1.3 million to settle claims that a research team overcharged certain federal grants, federal prosecutors in Boston said.`\
-https://nytimes.com/aponline/2020/04/28/us/ap-us-harvard-grant-overcharges-1st-ld-writethru.html?searchResultPosition=6
+**Piglets Aborted, Chickens Gassed as Pandemic Slams Meat Sector**\
+`With the pandemic hobbling the meat-packing industry, Iowa farmer Al Van Beek had nowhere to ship his full-grown pigs to make room for the 7,500 piglets he expected from his breeding operation.`\
+https://nytimes.com/reuters/2020/04/28/business/28reuters-health-coronavirus-livestock-insight.html?searchResultPosition=6
 
-**France to Widen COVID-19 Testing Programme: PM**\
-`France will implement a new doctrine on COVID-19 testing from May 11 with the aim of testing everyone who has come into contact with people who are infected, Prime Minister Edouard Philippe told parliament.`\
-https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-france-testing.html?searchResultPosition=7
+**As U.S. States Ease Restrictions, Projected Coronavirus Death Toll Rises**\
+`As Georgia lifted a ban on eating in restaurants and a handful of other U.S. states began easing other restrictions aimed at fighting the coronavirus pandemic, scientists warned the death toll would climb if governors reopen businesses prematurely.`\
+https://nytimes.com/reuters/2020/04/28/us/28reuters-health-coronavirus-usa.html?searchResultPosition=7
 
-**France: Terrorism Probe Into Car Attack That Hurt 3 Police**\
-`A 29-year-old Frenchman who claimed allegiance to the Islamic State group is facing possible terrorism charges after he rammed his car into police, injuring three officers.`\
-https://nytimes.com/aponline/2020/04/28/world/europe/ap-eu-france-car-attack.html?searchResultPosition=8
+**Factbox: France's Blueprint for Emerging From Coronavirus Lockdown**\
+`French Prime Minister Edouard Philippe presented on Tuesday plans to unwind, from May 11, a nationwide lockdown that has been in place since mid-March`\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-france-measures-factbox.html?searchResultPosition=8
 
-**U.S. Goods Trade Deficit Rises as Auto Exports Tumble**\
-`The U.S. goods trade deficit widened in March amid a collapse in exports of motor vehicles and parts, but overall imports continued to decline likely as the novel coronavirus outbreak disrupted the flow of goods.`\
-https://nytimes.com/reuters/2020/04/28/business/28reuters-usa-economy-tradefigures.html?searchResultPosition=9
+**At Least Three Inmates Dead After Peruvian Prison Riot Over Coronavirus**\
+`At least three inmates died following a Peruvian prison riot over the demand for better sanitary measures and coronavirus medical care, the country's prison authority said late on Monday.`\
+https://nytimes.com/reuters/2020/04/28/world/americas/28reuters-health-coronavirus-peru-prison.html?searchResultPosition=9
 
-**‘This Is How It Is Now’: Ramona Quimby, Meet Ryan Hart**\
-`In “Ways to Make Sunshine,” Renée Watson gives us a new spin on Beverly Cleary’s beloved heroine and a timely primer on how kids can navigate a world of change that’s coming at them fast.`\
-https://nytimes.com/2020/04/28/books/review/renee-watson-ways-to-make-sunshine.html?searchResultPosition=10
+**Star of Lifetime Reality Series Dies in Georgia Car Crash**\
+`Ashley Ross of the Atlanta-filmed reality TV show “Little Women: Atlanta” has died in a Georgia car crash, her representative confirmed Tuesday.`\
+https://nytimes.com/aponline/2020/04/28/us/ap-us-reality-show-actor-deadly-wreck.html?searchResultPosition=10
 
