@@ -1,20 +1,20 @@
-**Making Theater Essential, Digitally**\
-`The Homebound Project convenes 50 actors and playwrights to raise money for a project combating childhood hunger.`\
-https://nytimes.com/2020/04/28/theater/homebound-project-no-kid-hungry-virus.html?searchResultPosition=6
+**UN Chief: Use Pandemic to 'Rebuild Our World for the Better'**\
+`U.N. Secretary-General Antonio Guterres said Tuesday that the coronavirus pandemic has exposed how fragile societies are but that if governments work together on common challenges, including global warming, it can be an opportunity to “rebuild our world for the better.”`\
+https://nytimes.com/aponline/2020/04/28/world/europe/bc-eu-germany-climate-talks.html?searchResultPosition=6
 
-**The Vinyl? It’s Pricey. The Sound? Otherworldly.**\
-`The Electric Recording Co. in London cuts albums the way they were made in the 1950s and ’60s — literally.`\
-https://nytimes.com/2020/04/28/arts/music/electric-recording-co-vinyl.html?searchResultPosition=7
+**Merkel Says Climate Protection Must Not Drop Off Budget Agenda**\
+`Governments must not let climate protection slip down the agenda when holding budget discussions and considering stimulus packages, German Chancellor Angela Merkel said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-climate-change-accord-germany.html?searchResultPosition=7
 
-**Taylor Mac’s Week: Watching Bond Movies on VHS and Discovering the Banjo**\
-`The playwright and performance artist is working on two new productions from the Berkshires, and is enjoying virtual cocktail hours.`\
-https://nytimes.com/2020/04/28/theater/taylor-mac-quarantine.html?searchResultPosition=8
+**Portugal to Lift Coronavirus State of Emergency From May 3**\
+`Portugal's lockdown, which shut most non-essential services last month to contain the spread of the coronavirus, will be lifted gradually from May 3, President Marcelo Rebelo de Sousa said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-portugal.html?searchResultPosition=8
 
-**Piglets Aborted, Chickens Gassed as Pandemic Slams Meat Sector**\
-`With the pandemic hobbling the meat-packing industry, Iowa farmer Al Van Beek had nowhere to ship his full-grown pigs to make room for the 7,500 piglets he expected from his breeding operation.`\
-https://nytimes.com/reuters/2020/04/28/business/28reuters-health-coronavirus-livestock-insight.html?searchResultPosition=9
+**France Will Not Lift Lockdown May 11 Unless New Virus Infections Drop Below 3,000 Per Day: PM**\
+`France will not end its nationwide lockdown unless the number of new cases of coronavirus infection drops below 3,000 per day, French Prime Minister Edouard Philippe told parliament on Tuesday. `\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-france-lockdown-cases.html?searchResultPosition=9
 
-**As U.S. States Ease Restrictions, Projected Coronavirus Death Toll Rises**\
-`As Georgia lifted a ban on eating in restaurants and a handful of other U.S. states began easing other restrictions aimed at fighting the coronavirus pandemic, scientists warned the death toll would climb if governors reopen businesses prematurely.`\
-https://nytimes.com/reuters/2020/04/28/us/28reuters-health-coronavirus-usa.html?searchResultPosition=10
+**French PM: High School Students Will Have to Wear Masks**\
+`French secondary school pupils returning to school next month after a coronavirus lockdown will be required to wear masks, French Prime Minister Edouard Philippe said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-france-education.html?searchResultPosition=10
 
