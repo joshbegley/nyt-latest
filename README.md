@@ -1,20 +1,20 @@
+**Uber Tech Chief Thuan Pham Steps Down**\
+`Uber Technologies Inc's Chief Technology Officer Thuan Pham has resigned, effective May 16, the ride-hailing company said in a regulatory filing https://bit.ly/2SiLDZB on Tuesday. `\
+https://nytimes.com/reuters/2020/04/28/business/28reuters-uber-layoffs.html?searchResultPosition=6
+
+**Peru Coronavirus Cases Surpass 30,000: Health Ministry**\
+`Peru's health ministry on Tuesday confirmed its toll of coronavirus cases had surpassed 30,000, with 854 associated deaths.`\
+https://nytimes.com/reuters/2020/04/28/world/americas/28reuters-health-coronavirus-peru.html?searchResultPosition=7
+
+**New Research Says Players at Risk of Coronavirus Spread to Lungs**\
+`Research from Germany and Italy suggests that footballers and other athletes face a particular risk of the coronavirus infecting their lungs, raising major questions over attempts to restart professional soccer.`\
+https://nytimes.com/reuters/2020/04/28/sports/soccer/28reuters-health-coronavirus-soccer.html?searchResultPosition=8
+
+**Pirates Temporarily Suspend 401k Benefits Amid Pandemic**\
+`The Pirates are suspending retirement benefits for members of Pittsburgh's baseball operations staff in an effort to cope with the economic fallout of the COVID-19 pandemic.`\
+https://nytimes.com/aponline/2020/04/28/sports/baseball/ap-bbn-pirates-401k-suspension.html?searchResultPosition=9
+
 **Starbucks Sales Fall as Virus Cripples Global Operations**\
 `Starbucks said Tuesday that its global sales plunged in the first three months of the year as coronavirus-related shutdowns crippled its global operations.`\
-https://nytimes.com/aponline/2020/04/28/business/bc-us-results-starbucks.html?searchResultPosition=6
-
-**MLB Allows Each Team to Decide Its Ticket Refund Policy**\
-`Major League Baseball told teams on Tuesday they could decide their own ticket refund policies.`\
-https://nytimes.com/aponline/2020/04/28/business/ap-bbo-mlb-ticket-refunds.html?searchResultPosition=7
-
-**N.Y. Building Sites Reopen, Carefully, in Sign of Life Gearing Back Up**\
-`More than 5,200 construction projects have reopened in New York City, offering a glimpse of new routines in postpandemic workplaces.`\
-https://nytimes.com/2020/04/28/nyregion/nyc-construction-coronavirus-safety.html?searchResultPosition=8
-
-**Trump Plans to Sign Order to Secure Meat Supply**\
-`The executive order is aimed at preventing shortages of pork, chicken and other products by ensuring that meat processing facilities remain open despite a risk of coronavirus outbreaks.`\
-https://nytimes.com/2020/04/28/business/economy/trump-meat-food-supply.html?searchResultPosition=9
-
-**Man Charged With Hate Crime in Suspected Arson at Islamic Center**\
-`Nicholas Proffitt pleaded guilty to a hate crime after throwing rocks at the Islamic center in Cape Girardeau, Mo., in 2009. Eleven years later he returned to set the building on fire, the police say.`\
-https://nytimes.com/2020/04/28/us/nicholas-proffitt-missouri-islamic-center-arson.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/28/business/bc-us-results-starbucks.html?searchResultPosition=10
 
