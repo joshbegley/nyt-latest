@@ -1,20 +1,20 @@
-**Malaysia Reports 31 New Coronavirus Cases and One Death**\
-`Malaysian health authorities on Tuesday reported 31 new coronavirus cases, raising the cumulative total to 5,851.`\
-https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-health-coronavirus-malaysia.html?searchResultPosition=6
+**Tesla's Musk Nears $750 Million Options Payday Ahead of Results**\
+`Tesla Inc Chief Executive Elon Musk is on the cusp of a roughly $750 million payday as the electric carmaker's stock recovers from a slump caused by the coronavirus, which led the company to close its factories and furlough workers.`\
+https://nytimes.com/reuters/2020/04/28/business/28reuters-tesla-stocks-musk.html?searchResultPosition=6
 
-**Australia, China Tensions Rise Over Coronavirus Inquiry Call**\
-`Australia has asked the Chinese ambassador to explain what it called a threat of "economic coercion" in response to Canberra's push for an international inquiry into the source and spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-health-coronavirus-australia-china.html?searchResultPosition=7
+**Spain's Daily Coronavirus Death Toll Falls to 301**\
+`Spain recorded 301 fatalities from the novel coronavirus overnight, down from 331 on the previous day, the health ministry said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-spain.html?searchResultPosition=7
 
-**Japan Automakers Post 34% Plunge in March Global Sales**\
-`Japanese automakers saw a 34% fall in global vehicle sales in March when the coronavirus outbreak began to spread globally, and face a further tumble in the coming months. `\
-https://nytimes.com/reuters/2020/04/28/business/28reuters-japan-automakers-sales.html?searchResultPosition=8
+**Czechs Report Six-Week Low in Daily Rise of New Coronavirus Cases**\
+`The Czech Republic has reported its lowest daily rise in new coronavirus cases in more than six weeks as it eases out of a lockdown imposed to curb the spread of infection.`\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-czech.html?searchResultPosition=8
 
-**Unified in Coronavirus Lockdown, India Splinters Over Reopening**\
-`As India starts loosening restrictions, a once-broad consensus among leaders on how to proceed has weakened — and many people are staying home anyway.`\
-https://nytimes.com/2020/04/28/world/asia/india-coronavirus-lockdown.html?searchResultPosition=9
+**‘The Celestial Hunter,’ by Roberto Calasso: An Excerpt**\
+`An excerpt from “The Celestial Hunter,” by Roberto Calasso`\
+https://nytimes.com/2020/04/28/books/review/the-celestial-hunter-by-roberto-calasso-an-excerpt.html?searchResultPosition=9
 
-**Banks Must Eliminate Coronavirus Refund Confusion, Consumer Champion Says**\
-`One of Britain's largest consumer interest groups has called on banks to adopt a consistent approach to managing claims from customers who have failed to secure refunds from travel firms and other businesses after coronavirus cancellations.`\
-https://nytimes.com/reuters/2020/04/28/business/28reuters-health-coronavirus-bank-refunds.html?searchResultPosition=10
+**‘Little Family,’ by Ishmael Beah: An Excerpt**\
+`An excerpt from “Little Family,” by Ishmael Beah`\
+https://nytimes.com/2020/04/28/books/review/little-family-by-ishmael-beah-an-excerpt.html?searchResultPosition=10
 
