@@ -1,20 +1,20 @@
-**COVID-19 Deaths in England and Wales 35% Higher Than Early Stats Showed: ONS**\
-`The death toll involving COVID-19 in England and Wales was 35% higher than the daily figures for deaths in hospitals released by the government as of April 17, according to official data that include deaths in the community.`\
-https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-britain-death.html?searchResultPosition=6
+**Your Tuesday Briefing**\
+`Coronavirus, Texas, Paycheck Protection Program: Here’s what you need to know.`\
+https://nytimes.com/2020/04/28/briefing/coronavirus-texas-paycheck-protection-program.html?searchResultPosition=6
 
-**Should People Without Coronavirus Antibodies Be Second-Class Citizens?**\
-`Let’s stop and think before we start issuing “immunity passports.”`\
-https://nytimes.com/2020/04/28/opinion/coronavirus-antibody-certificate-testing.html?searchResultPosition=7
+**Hezbollah Blames 'Negative' C. Bank Performance for Pound Collapse: Report**\
+`The decline of the Lebanese pound to record lows against the U.S. dollar points to a "negative performance" by the central bank and the governor is responsible, but not on his own, the deputy leader of Hezbollah said, according to media reports.`\
+https://nytimes.com/reuters/2020/04/28/world/middleeast/28reuters-lebanon-crisis-hezbollah.html?searchResultPosition=7
 
-**Lufthansa CEO Warns of Too Much Government Influence: Die Zeit**\
-`Lufthansa would be hard to steer if governments had too much influence on the company, its CEO was quoted as saying by German weekly Die Zeit on Tuesday, as the airline is struggling with the impact of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/28/business/28reuters-health-coronavirus-lufthansa-ceo.html?searchResultPosition=8
+**Madagascar's President Touts Herbal Drink Against COVID-19**\
+`As their high school reopened after being closed for a month due to the coronavirus, students in Madagascar's capital city were given face masks and a small bottle of an herbal extract they were told to drink to protect them from COVID-19.`\
+https://nytimes.com/aponline/2020/04/28/world/africa/ap-af-virus-outbreak-madagascar-herbal-drink.html?searchResultPosition=8
 
-**Indonesia Reports 415 New Coronavirus Cases, Eight Deaths**\
-`Indonesia confirmed on Tuesday 415 new coronavirus infections, taking the total in the Southeast Asian country to 9,511.`\
-https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=9
+**Coronavirus Live Updates: W.H.O. Warns Pandemic Is ‘Far From Over’ as Nations Edge Toward Reopening**\
+`At least a dozen U.S. states forged ahead with a variety of strategies to ease restrictions. The C.D.C. expanded the list of symptoms associated with the virus.`\
+https://nytimes.com/2020/04/28/us/coronavirus-updates.html?searchResultPosition=9
 
-**Trump Says China Could Have Stopped Coronavirus, Beijing Decries Shifting of Blame**\
-`U.S. President Donald Trump said on Monday that China could have stopped the coronavirus before it swept the globe and that his administration was conducting "serious investigations" into what happened.`\
-https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-health-coronavirus-usa-china-trump.html?searchResultPosition=10
+**New Chance for House Democrats to Force McGahn's Testimony**\
+`The federal appeals court in Washington, D.C., is giving the House another shot at forcing former White House counsel Don McGahn to appear before Congress.`\
+https://nytimes.com/aponline/2020/04/28/us/politics/ap-us-trump-mcgahn-subpoena.html?searchResultPosition=10
 
