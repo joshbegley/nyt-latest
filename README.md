@@ -1,20 +1,20 @@
-**Turkey Flies Medical Aid to Coronavirus-Stricken U.S.**\
-`A Turkish military plane carrying medical supplies and protective equipment was heading for the United States on Tuesday to deliver aid to its NATO ally battling the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-turkey-usa.html?searchResultPosition=6
+**Ford Investors Keen for Details on When Automaker Will Restart U.S. Operations**\
+`Investors already know how the coronavirus outbreak has hurt Ford Motor Co's bottom line, so when the automaker releases first-quarter results on Tuesday they will focus on how and when Ford plans to restart North American operations.`\
+https://nytimes.com/reuters/2020/04/28/business/28reuters-ford-motor-results.html?searchResultPosition=6
 
-**The State of Testing**\
-`Rigorous testing has been key to reopening economies in Asia. So why is the U.S. lagging behind?`\
-https://nytimes.com/2020/04/28/podcasts/the-daily/the-state-of-testing.html?searchResultPosition=7
+**Exclusive: North Korea Economic Delegation to Visit Beijing for Food, Trade Talks-Sources**\
+`A North Korean economic delegation is due to arrive in Beijing this week to discuss food supplies and trade issues as the coronavirus pandemic has severely disrupted the country's food supply, two people with direct knowledge of the situation told Reuters.`\
+https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-health-coronavirus-northkorea-china-exclusive.html?searchResultPosition=7
 
-**Shopping Your Garden**\
-`Why make a trip to the nursery when you may have everything you need in your own backyard?`\
-https://nytimes.com/2020/04/28/realestate/shopping-your-garden.html?searchResultPosition=8
+**Iran's Coronavirus Death Toll Rises by 71 to 5,877 - Health Ministry Official**\
+`The death toll in Iran from the coronavirus pandemic rose by 71 in the past 24 hours to 5,877, health ministry spokesman Kianush Jahanpur said on state TV on Tuesday.`\
+https://nytimes.com/reuters/2020/04/28/world/middleeast/28reuters-health-coronavirus-iran.html?searchResultPosition=8
 
-**Trouble in Paradise: Spanish Holiday Island Reels From Coronavirus**\
-`On the tourism-dependent Spanish island of Mallorca, a total shutdown of hotels due to the coronavirus outbreak has destroyed livelihoods across the sector, from reception staff to farmers who provide food for restaurants.`\
-https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-spain-tourism.html?searchResultPosition=9
+**Exclusive: Aurubis to Win EU Approval for Metallo Takeover-Sources**\
+`Europe's biggest copper smelter Aurubis is set to win EU antitrust approval for its planned 380-million-euro ($412 million) acquisition of Belgian-Spanish metal recycling group Metallo, people familiar with the matter said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/28/business/28reuters-metallo-m-a-aurubis-eu-exclusive.html?searchResultPosition=9
 
-**German Retailers Seek Full Reopening From May 4**\
-`German retailers sought on Tuesday to persuade the government to let all stores operate normally from May 4, saying customers had not stormed back into the smaller shops that were allowed to reopen last week and were behaving prudently.`\
-https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-germany-retail.html?searchResultPosition=10
+**Lebanese Riots Over Price Hikes Leave 1 Dead, Scores Injured**\
+`Anger over the crash of Lebanon's national currency that sent food prices soaring boiled over into street violence overnight in the northern city of Tripoli, where a man wounded in clashes between protesters and security forces died Tuesday. `\
+https://nytimes.com/aponline/2020/04/28/world/middleeast/ap-ml-lebanon.html?searchResultPosition=10
 
