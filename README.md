@@ -1,20 +1,20 @@
-**EU Sees New Brexit Talks 'at an Impasse': Sources**\
-`Negotiations between the European Union (EU) and ex-member Britain over new trade arrangements from next year are at an impasse due to disagreements and the coronavirus crisis, according to diplomats and officials in the bloc's hub Brussels.`\
-https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-britain-eu-impasse.html?searchResultPosition=6
+**Texas Oil Port Hit by One-Two Punch: Falling Demand and Overproduction**\
+`Corpus Christi has become the largest energy exporter in the United States, but several expansion projects have been delayed or scuttled, threatening jobs and investments.`\
+https://nytimes.com/2020/04/28/business/coronavirus-oil-texas-port.html?searchResultPosition=6
 
-**Weekly News Quiz for Students: States Reopen, N.F.L. Draft, a Fiftieth Anniversary**\
-`How well did you follow the news this past week? How many of these 10 questions can you get right?`\
-https://nytimes.com/interactive/2020/04/28/learning/28News-Quiz-for-Students.html?searchResultPosition=7
+**How Can I Say Goodbye to My City in the Middle of a Pandemic?**\
+`“I feel more connected to my family and friends than ever before,” writes one of our advice columnists. “The virus has collapsed distances.”`\
+https://nytimes.com/2020/04/28/t-magazine/coronavirus-relocating-moving.html?searchResultPosition=7
 
-**Scotland's Sturgeon Recommends Wearing Face Masks in Enclosed Public Spaces**\
-`Scotland's First Minister Nicola Sturgeon has urged people to start wearing a face mask if they are in enclosed places such as public transport and shops, diverging for now from the official advice from London. `\
-https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-britain-scotland.html?searchResultPosition=8
+**Recent Commercial Real Estate Transactions**\
+`Recent commercial real estate transactions in New York.`\
+https://nytimes.com/2020/04/28/business/new-york-commercial-real-estate.html?searchResultPosition=8
 
-**EU Governments Risk Clash With EU Exec in Bid to Save Tourism Season**\
-`European Union governments risk a clash with the EU executive arm over their support for travel firms issuing vouchers for cancelled holiday deals without giving customers the option of cash refunds as required by EU law, diplomats said.`\
-https://nytimes.com/reuters/2020/04/28/us/28reuters-health-coronavirus-eu-tourism.html?searchResultPosition=9
+**Top U.S. Senate Democrat Warns of Massive Layoffs Without State Aid**\
+`The top Democrat in the U.S. Senate warned on Tuesday that state and local governments will see "massive" layoffs if Congress fails to act soon to provide financial assistance to help them combat the effects of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/04/28/us/28reuters-health-coronavirus-usa-congress.html?searchResultPosition=9
 
-**Lufthansa Still Considering Protection From Creditors: Company Source**\
-`The idea of German flagship carrier Lufthansa using a type of protection from creditors is not yet off the table, a source at the airline said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/28/business/28reuters-health-coronavirus-lufthansa-creditors.html?searchResultPosition=10
+**Pfizer 2Q Sales and Profit Down, but It Maintains 2020 Views**\
+`Drugmaker Pfizer said the COVID-19 pandemic is disrupting its patient testing of experimental drugs and will reduce revenue significantly in the second quarter, but its manufacturing plants are running normally.`\
+https://nytimes.com/aponline/2020/04/28/business/ap-us-earns-pfizer.html?searchResultPosition=10
 
