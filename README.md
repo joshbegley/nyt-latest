@@ -1,20 +1,20 @@
-**As Japan Fights Coronavirus With Shutdowns, Rats Emerge Onto Deserted Streets**\
-`As more Japanese restaurants shut down and people stay home during the country's state of emergency to fight the coronavirus, experts say rats may be expanding their search for food to deserted streets once crowded with humans.`\
-https://nytimes.com/reuters/2020/04/27/world/asia/27reuters-health-coronavirus-japan-rats.html?searchResultPosition=6
+**Companies Press for Limited Liability From Virus Lawsuits**\
+`As companies start planning their reopening in the coming weeks, business groups are pushing Congress to limit liability from potential lawsuits filed by workers and customers infected by the coronavirus.`\
+https://nytimes.com/aponline/2020/04/28/business/ap-us-virus-outbreak-companies-liability.html?searchResultPosition=6
 
-**Brazil Court OKs Investigating Allegations Bolsonaro Tried to Interfere With Police**\
-`A Supreme Court judge on Monday authorized an investigation of allegations that Brazil's President Jair Bolsonaro tried to interfere in the work of the country's federal police force for political motives, the top court said on its website.`\
-https://nytimes.com/reuters/2020/04/27/world/americas/27reuters-brazil-politics.html?searchResultPosition=7
+**Jamaica Says One Migrant on U.S. Deportation Flight Had Coronavirus**\
+`One of the 46 people who arrived in Jamaica on a deportation flight from the United States a week ago has tested positive for the new coronavirus, Jamaican Prime Minister Andrew Holness said on Monday.`\
+https://nytimes.com/reuters/2020/04/28/world/americas/27reuters-health-coronavirus-jamaica.html?searchResultPosition=7
 
-**Federal Agency Releasing Report on Missouri Duck Boat Deaths**\
-`Nearly two years after 17 people died when a tourist boat sank on a Missouri lake, federal transportation safety investigators on Tuesday will release the results of an investigation into the tragedy. `\
-https://nytimes.com/aponline/2020/04/27/business/ap-us-missouri-boat-accident.html?searchResultPosition=8
+**Coronavirus Live Updates: In a Test for Africa, Nigeria to Ease Lockdowns**\
+`Gradual openings in Africa’s most populous country will begin next week. In Bangladesh, garment factories are allowed to reopen, but workers fear infection.`\
+https://nytimes.com/2020/04/28/world/coronavirus-news.html?searchResultPosition=8
 
-**UN: $90 Billion Could Protect 700 Million Poor in Pandemic**\
-`The U.`\
-https://nytimes.com/aponline/2020/04/27/world/ap-un-virus-outbreak-helping-poorest.html?searchResultPosition=9
+**‘Blood Quantum’ Review:**\
+`This Canadian zombie movie is more notable for its cultural backdrop and moody vibe than for its gore.`\
+https://nytimes.com/2020/04/28/movies/blood-quantum-review.html?searchResultPosition=9
 
-**China Says Coronavirus Posing New Risks, Challenges to Workplace Safety**\
-`The coronavirus outbreak is posing new challenges and risks to workplace safety for manufacturers, including an increase in unused inventory of dangerous goods and lack of adequate safety training for staff, a senior Chinese official said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/27/world/asia/27reuters-health-coronavirus-china-safety.html?searchResultPosition=10
+**European Soccer Tries to Find a Way Back, or a Way Out**\
+`The Netherlands has canceled its season. Germany wants to play again next month. But European soccer is finding that clarity tends not to last long.`\
+https://nytimes.com/2020/04/28/sports/soccer/european-netherlands-germany-return-virus.html?searchResultPosition=10
 
