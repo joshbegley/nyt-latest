@@ -1,20 +1,20 @@
-**Rhode Island's Not Big, but Now It Can Brag a Lizard (Maybe)**\
-`The smallest state has some big news, if you're a biologist: its first lizard.`\
-https://nytimes.com/aponline/2020/04/28/us/ap-us-odd-surprising-skink.html?searchResultPosition=6
+**Greece Has ‘Defied the Odds’ in the Pandemic. At Least, So Far.**\
+`The Greeks have been dogged by years of instability, but their government’s response to the coronavirus has won praise from citizens.`\
+https://nytimes.com/2020/04/28/world/europe/coronavirus-greece-europe.html?searchResultPosition=6
 
-**Hungary Fines Booking.com Operator 6.1 Million Pounds for Unfair Practices**\
-`Hungarian competition watchdog GVH has fined online reservation operator Booking.com 2.5 billion forints (6.1 million pounds) for unfair business practices, including misleading advertisements and psychological pressure on consumers.`\
-https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-booking-hldg-hungary.html?searchResultPosition=7
+**Live: Ohio State Primary Election Results 2020**\
+`Detailed results and maps from the Ohio primary election.`\
+https://nytimes.com/interactive/2020/04/28/us/elections/results-ohio-primary-elections.html?searchResultPosition=7
 
-**Streaming Films Eligible for Oscars, but for 1 Year Only**\
-`Movies that debuted on a streaming service without a theatrical run will be eligible for the Oscars, but only this year. `\
-https://nytimes.com/aponline/2020/04/28/arts/ap-us-film-oscars-changes.html?searchResultPosition=8
+**Ohio Primary Election Results: 15th House District**\
+``\
+https://nytimes.com/interactive/2020/04/28/us/elections/results-ohio-house-district-15-primary-election.html?searchResultPosition=8
 
-**Fed Signals Annual Central Bankers' Meeting Will Not Be Business as Usual**\
-`The Federal Reserve Bank of Kansas City is "considering the implications" for its annual global central bankers' confab in August after learning that the historic lodge in Jackson Hole, Wyoming where the high-powered gathering usually takes place will not be able to open for the 2020 season.`\
-https://nytimes.com/reuters/2020/04/28/us/28reuters-health-coronavirus-fed-jacksonhole.html?searchResultPosition=9
+**Ohio Primary Election Results: Third Congressional District**\
+`Many will be watching the results from Ohio’s third congressional district as a progressive first-time candidate hopes to beat a four-term incumbent.`\
+https://nytimes.com/interactive/2020/04/28/us/elections/results-ohio-house-district-3-primary-election.html?searchResultPosition=9
 
-**Fed Seen Making Small Changes to Keep Fed Funds Above Zero**\
-`The Federal Reserve is widely expected on Wednesday to lift the interest rates that influence its fed funds target, a technical move that could keep interbank lending running smoothly and help  prevent financial market disruption should the benchmark rate fall below zero.`\
-https://nytimes.com/reuters/2020/04/28/business/28reuters-health-coronavirus-fed-ioer.html?searchResultPosition=10
+**Live Results: Ohio Presidential Primary 2020**\
+`Detailed results and maps from the Ohio presidential primary election.`\
+https://nytimes.com/interactive/2020/04/28/us/elections/results-ohio-president-democrat-primary-election.html?searchResultPosition=10
 
