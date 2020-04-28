@@ -1,20 +1,20 @@
-**With Virus War Still Raging, Fed Peers Out of the Foxhole**\
-`The Federal Reserve has two core jobs assigned by Congress: Foster maximum employment and stable prices.`\
-https://nytimes.com/reuters/2020/04/28/business/28reuters-health-coronavirus-usa-fed.html?searchResultPosition=6
+**Oil Prices Dive as World Runs Low on Storage Capacity While Demand Plunges**\
+`Oil prices slumped again on Tuesday amid concern about dwindling crude storage capacity worldwide and fears that fuel demand may only recover slowly once countries ease curbs imposed on economic and social activity to combat the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/28/business/28reuters-global-oil.html?searchResultPosition=6
 
-**Washington Mental Hospital Staff Call Virus Testing Unsafe**\
-`Workers who had been exposed to the coronavirus at Washington state’s largest psychiatric hospital were herded into a small building to be tested. Inside, few wore masks. They were given test kits by people without gloves and told to swirl a swab inside their noses.`\
-https://nytimes.com/aponline/2020/04/28/us/ap-us-virus-outbreak-washington-psychiatric-hospital.html?searchResultPosition=7
+**Deflation Fears to Force Japan to Trim Inflation-Linked Bond Issuance**\
+`Japan plans to cut the amount of inflation-linked bonds it sells to the market next month to the lowest level in seven years, sources said, as plunging oil costs and the economic fallout of the coronavirus pandemic stoke fears of deflation.`\
+https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-japan-economy-mof.html?searchResultPosition=7
 
-**Thailand Reports Seven New Coronavirus Cases, Two New Deaths**\
-`Thailand on Tuesday reported seven more coronavirus cases and two new deaths, bringing the total number of infections since the outbreak began in January to 2,938 cases and 54 fatalities.`\
-https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-health-coronavirus-thailand-cases.html?searchResultPosition=8
+**Beach Crowds Lead California to Step Up Enforcement of Coronavirus Restrictions**\
+`California will step up enforcement of coronavirus-related public health restrictions after crowds jammed beaches over the weekend, Governor Gavin Newsom said on Monday.`\
+https://nytimes.com/reuters/2020/04/28/technology/28reuters-health-coronavirus-usa-california.html?searchResultPosition=8
 
-**A Time to Save the Sick and Rescue the Planet**\
-`With closer cooperation among nations, the head of the United Nations argues, we could stop a pandemic faster and slow climate change.`\
-https://nytimes.com/2020/04/28/opinion/coronavirus-climate-antonio-guterres.html?searchResultPosition=9
+**Nokia Wins Order From Bharti Airtel in India**\
+`Nokia said on Tuesday it has won a multi-year deal with India's third-largest telecom firm Bharti Airtel [BRTI.NS] to provide equipment and services.`\
+https://nytimes.com/reuters/2020/04/28/technology/28reuters-nokia-india.html?searchResultPosition=9
 
-**Swiss Government Agrees Aid for Aviation Sector: Tages-Anzeiger**\
-`The Swiss government has agreed in principle to support an aid package worth around 1.5 billion Swiss francs ($1.54 billion) for Lufthansa unit Swiss via state-backed bank loans, the Tages-Anzeiger newspaper reported on Tuesday.`\
-https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-swiss-aviation.html?searchResultPosition=10
+**AP PHOTOS: Finding Joy Amid Pandemic's Anxiety and Heartache**\
+`Joy is visible during the pandemic, just not with the usual, recognizable cues.`\
+https://nytimes.com/aponline/2020/04/28/us/ap-virus-outbreak-one-good-thing-human-touch.html?searchResultPosition=10
 
