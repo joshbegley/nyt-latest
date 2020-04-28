@@ -1,20 +1,20 @@
+**You Are Being Influenced**\
+`Digital influencers are shaping our habits, even now and even if we’re clueless about it.`\
+https://nytimes.com/2020/04/28/technology/digital-influencers-coronavirus.html?searchResultPosition=6
+
+**Britain Widens Its Coronavirus Testing Scheme**\
+`Britain's coronavirus testing scheme will be opened up to a much wider pool of people including those over the age of 65 with symptoms, and all care home residents, health minister Matt Hancock said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-britain-testing.html?searchResultPosition=7
+
+**Spain Aims for End-June Return to Normality, to Phase Out Coronavirus Lockdown**\
+`Spanish Prime Minister Pedro Sanchez announced on Tuesday a four-phase plan to lift the lockdown enforced on the nation to control one of the world's worst outbreaks of the coronavirus with an aim to return to normality by the end of June.`\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-spain-sanchez.html?searchResultPosition=8
+
+**BA Owner Swings to First-Quarter Loss, Warns of Major Job Cuts as Virus Punishes**\
+`British Airways-owner IAG reported on Tuesday a big loss in the first quarter and warned it may cut up to 12,000 jobs in sweeping restructuring measures aimed at weathering the crisis inflicted on the airline industry from the coronavirus.`\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-britishairways.html?searchResultPosition=9
+
 **2 Art Gallery Shows to Explore From Home**\
 `Galleries and museums are getting creative about presenting work online during the coronavirus crisis. Here are two shows worth viewing virtually.`\
-https://nytimes.com/2020/04/28/arts/design/art-virtual-gallery-shows.html?searchResultPosition=6
-
-**Facebook Restructures Its Security Teams**\
-`The social network displaced more than two dozen employees who work on security, as the company fights threats such as foreign meddling.`\
-https://nytimes.com/2020/04/28/technology/facebook-security-restructure.html?searchResultPosition=7
-
-**Orioles 1B Mancini Expects to Miss Season to Treat Cancer**\
-`Orioles outfielder Trey Mancini is undergoing chemotherapy for stage 3 colon cancer and expects to miss the season if major leaguers return this summer.`\
-https://nytimes.com/aponline/2020/04/28/sports/baseball/ap-bba-orioles-mancini-cancer.html?searchResultPosition=8
-
-**Woman Born During Spanish Flu Survives Second Pandemic**\
-`A New York woman who was born during the Spanish Flu pandemic has survived COVID-19.`\
-https://nytimes.com/aponline/2020/04/28/us/ap-us-virus-outbreak-survivor.html?searchResultPosition=9
-
-**Former Aides to Bernie Sanders Form a Super PAC to Support Joe Biden**\
-`Mr. Sanders’s 2016 campaign manager and another architect of the 2016 bid are joining together in an effort to rally progressive support for the former vice president ahead of the November election.`\
-https://nytimes.com/2020/04/28/us/politics/bernie-sanders-biden-progressive-super-pac.html?searchResultPosition=10
+https://nytimes.com/2020/04/28/arts/design/art-virtual-gallery-shows.html?searchResultPosition=10
 
