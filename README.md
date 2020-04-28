@@ -1,20 +1,20 @@
-**UK Regulator Ends Probe of Ex-Barclays Banker Roger Jenkins: Lawyer**\
-`Britain's Financial Conduct Authority (FCA) has closed a civil inquiry into former Barclays executive Roger Jenkins over how the bank secured billions of pounds of funding from Qatar during the credit crisis, his lawyer said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-barclays-regulator-jenkins.html?searchResultPosition=6
+**Trump to Sign Order Keeping Meat Processing Plants Open**\
+`President Donald Trump will sign an executive order Tuesday meant to stave off a shortage of chicken, pork and other meat on American supermarket shelves because of the coronavirus.`\
+https://nytimes.com/aponline/2020/04/28/business/bc-us-virus-outbreak-trump-meat.html?searchResultPosition=6
 
-**Mexico, European Union Conclude Trade Negotiations**\
-`Mexico and the European Union successfully concluded negotiations on a new, updated trade agreement, the two sides said Tuesday.`\
-https://nytimes.com/aponline/2020/04/28/world/americas/ap-lt-mexico-eu-trade-deal.html?searchResultPosition=7
+**Sanders' Campaign Alumni Now Backing Biden With a Super PAC**\
+`Alumni of Senator Bernie Sanders' unsuccessful presidential campaigns on Tuesday said they had started a new political fundraising group to support onetime rival Joe Biden.`\
+https://nytimes.com/reuters/2020/04/28/us/politics/28reuters-usa-election-sanders.html?searchResultPosition=7
 
-**Rams Chasing 49ers, Seahawks, Cards in Power-Packed NFC West**\
-`A year ago, the Los Angeles Rams were fresh off a Super Bowl trip and back-to-back NFC West titles, feeling good about where they stood in the division.`\
-https://nytimes.com/aponline/2020/04/28/sports/football/ap-fbn-nfc-west-analysis.html?searchResultPosition=8
+**Birthday Tributes Flood In for Fund-Raising British Veteran 'Captain Tom'**\
+`British World War Two veteran Captain Tom Moore is in for a very special 100th birthday on Thursday after well-wishers from around the world repaid his record-breaking fundraising efforts by sending tens of thousands of birthday cards.`\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-britain-veteran.html?searchResultPosition=8
 
-**When Schools Reopen, They Could Look Very Different**\
-`Schools in most states will stay closed through the end of the academic year, and some are considering the need to continue remote learning in the fall.`\
-https://nytimes.com/2020/04/28/us/coronavirus-schools-reopen.html?searchResultPosition=9
+**Front Lines: First Responders Beat COVID-19, Return to Work**\
+`The new coronavirus doesn’t care about a blue uniform or a shiny badge.`\
+https://nytimes.com/aponline/2020/04/28/us/ap-us-virus-outbreak-first-responders-back-to-work-glance.html?searchResultPosition=9
 
-**Ireland Will Not Hit 100,000 Weekly Coronavirus Testing Goal Until Mid-May**\
-`Ireland has failed to reach its target to carry out 100,000 coronavirus tests per week and will not meet it until the week of May 18, three weeks later than planned, a senior health official said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-ireland.html?searchResultPosition=10
+**U.S. Navy Pays Contractors $600 Million That Had Been Withheld for Poor Performance**\
+`The U.S. Navy has paid defense contractors $600 million it had previously withheld due to poor workmanship, hoping the funds would shore up finances for suppliers ravaged by the coronavirus-driven economic downturn, a Navy official said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-usa-navy-procurement.html?searchResultPosition=10
 
