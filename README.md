@@ -1,20 +1,20 @@
+**Putin Extends Russia's Non-Working Period Due to Coronavirus Until May 11**\
+`President Vladimir Putin on Tuesday extended a non-working period in Russia aimed at containing the spread of the novel coronavirus until May 11, speaking during a televised meeting with senior government officials and regional heads. `\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-russia.html?searchResultPosition=6
+
+**Pandemic Upends Lives of Latin America's Domestic Servants**\
+`The coronavirus pandemic has upended the lives of many of Latin America's household maids, leaving them without work or government assistance or effectively trapping them inside the homes of their employers because of government-ordered lockdowns.`\
+https://nytimes.com/aponline/2020/04/28/world/americas/ap-lt-virus-outbreak-maids.html?searchResultPosition=7
+
+**Another Coronavirus Aid Bill Could Spur U.S. Growth: White House Adviser**\
+`A fourth coronavirus response bill could help spur economic growth in the second half of 2020, White House economic adviser Kevin Hassett told CNN on Tuesday as Republicans and Democrats in Congress weigh another potential aid measure.`\
+https://nytimes.com/reuters/2020/04/28/us/28reuters-health-coronavirus-usa-hassett.html?searchResultPosition=8
+
+**Prenatal Care May Look Very Different After Coronavirus**\
+`The shift from in-person visits to telehealth appointments could be here to stay.`\
+https://nytimes.com/2020/04/28/parenting/pregnancy/coronavirus-prenatal-care.html?searchResultPosition=9
+
 **Bottleneck Continues as Businesses Seek Gov't Relief Loans**\
 `Banks trying to submit applications for thousands of small businesses seeking coronavirus relief loans have hit a bottleneck for a second day at the Small Business Administration. `\
-https://nytimes.com/aponline/2020/04/28/business/bc-virus-outbreak-small-business-relief-delays.html?searchResultPosition=6
-
-**Masks, Separated Slots, More Cleaning Once Casinos Reopen**\
-`The coronavirus could be a literal game changer once America's casinos reopen.`\
-https://nytimes.com/aponline/2020/04/28/business/ap-us-virus-outbreak-reopening-casinos.html?searchResultPosition=7
-
-**‘The World Goes Away’ and Other Lessons From Online Acting Class**\
-`Remote learning may not be ideal, but Zoom encourages acting students to be more nuanced, more private and more intimate.`\
-https://nytimes.com/2020/04/28/theater/acting-class-online-coronavirus.html?searchResultPosition=8
-
-**Ivory Coast Presidential Candidate Soro Sentenced to 20 Years in Prison**\
-`Guillaume Soro, a candidate for president in Ivory Coast and former rebel leader, was convicted in absentia on Tuesday of embezzlement and sentenced to 20 years in prison, the judge in the case said. `\
-https://nytimes.com/reuters/2020/04/28/world/africa/28reuters-ivorycoast-politics-soro.html?searchResultPosition=9
-
-**Oil Majors, Governments Haggle Over Sharing Pain of Deepest Cuts Yet**\
-`From Kazakhstan and Azerbaijan to Nigeria and Angola, oil majors are haggling with national governments over how to share out deep production cuts that add to their pain from low oil prices and depressed fuel sales because of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/28/world/28reuters-global-oil-opec-majors.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/28/business/bc-virus-outbreak-small-business-relief-delays.html?searchResultPosition=10
 
