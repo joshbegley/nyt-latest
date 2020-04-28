@@ -1,20 +1,20 @@
-**AP Sources: MLB Opening Options Include 3 Regional Divisions**\
-`Major League Baseball is exploring various options that could allow the season to start if the medical situation allows, including a plan in which the 30 teams could be split into three regional divisions.`\
-https://nytimes.com/aponline/2020/04/28/sports/baseball/ap-bbo-virus-outbreak-baseball.html?searchResultPosition=6
+**Which Woman Should Be Biden’s Vice-Presidential Pick?**\
+`Here are seven he might be considering.`\
+https://nytimes.com/2020/04/28/opinion/biden-vice-president.html?searchResultPosition=6
 
-**What We Know About the Shooting Death of Ahmaud Arbery**\
-`Mr. Arbery, a 25-year-old black man, was chased by armed white residents of a South Georgia neighborhood. He was shot dead during a confrontation.`\
-https://nytimes.com/2020/04/28/us/politics/ahmaud-arbery-shooting-georgia.html?searchResultPosition=7
+**Pence Tours Mayo Clinic Without a Mask**\
+`Vice President Mike Pence did not wear a mask while visiting coronavirus patients at the Mayo Clinic in Minnesota, a violation of the facility’s policy.`\
+https://nytimes.com/video/us/politics/100000007112259/pence-coronavirus-mayo-clinic-mask.html?searchResultPosition=7
 
-**May Congress Sue the Executive Branch? Court Hears Cases on Subpoena and Border Wall**\
-`A federal appeals court took up two cases testing whether the House can challenge a president in court.`\
-https://nytimes.com/2020/04/28/us/politics/appeals-court-mcgahn-subpoena-border-wall.html?searchResultPosition=8
+**Judge: No Early Prison Release for Cali Cartel Cocaine Lord**\
+`One of the most notorious Colombian cocaine cartel kingpins will not be released early from a U.S. prison over claims of ill health and fears of the deadly effects on him of a potential coronavirus infection, a federal judge ruled Tuesday.`\
+https://nytimes.com/aponline/2020/04/28/us/ap-us-drug-kingpin-early-release.html?searchResultPosition=8
 
-**Summer Olympics in 2021? ‘Exceedingly Difficult’ Without a Coronavirus Vaccine**\
-`A Japanese medical authority has raised doubt about staging the Games, even a year later than originally planned, unless an effective vaccine has been developed.`\
-https://nytimes.com/2020/04/28/sports/olympics/coronavirus-olympics-vaccine-tokyo.html?searchResultPosition=9
+**Argentine Budget Airlines Say Government Blindsided Them With Travel Ban**\
+`Argentina's two low-cost airlines on Tuesday accused its Peronist government of lying about whether the implementation of an air travel ban to combat the coronavirus had been discussed with the industry beforehand. `\
+https://nytimes.com/reuters/2020/04/28/world/americas/28reuters-health-coronavirus-argentina-airlines.html?searchResultPosition=9
 
-**Canadian Province Sends Nurses to Northern Community Hit by COVID-19**\
-`The Canadian province of Ontario has dispatched nurses to a remote northern indigenous community hit hard by the coronavirus to conduct testing and provide healthcare support, the local leader said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/28/world/americas/28reuters-health-coronavirus-canada-gull-bay.html?searchResultPosition=10
+**Exclusive: Shale Producer Oasis Petroleum to Halt Drilling in Bakken-Sources**\
+`Oasis Petroleum Inc has begun to wind down all drilling in the Bakken, three sources familiar with the matter said on Tuesday, as production cuts intensify across the United States the aftermath of a historic plunge in crude oil prices.`\
+https://nytimes.com/reuters/2020/04/28/us/28reuters-oasis-petr-shale-northdakota-excusive.html?searchResultPosition=10
 
