@@ -1,20 +1,20 @@
-**Players Should Not Be Rushed Back to Action: World Players Association**\
-`Professional athletes across the world should not be rushed back to action once the COVID-19 pandemic subsides, and they must have a strong say in determining the conditions for their return, the World Players Association said on Tuesday. `\
-https://nytimes.com/reuters/2020/04/28/sports/basketball/28reuters-health-coronavirus-sports-interview.html?searchResultPosition=6
+**Turkey Aims to Reopen Economy Starting Late May: Senior Official**\
+`Turkey's government aims to begin reviving the economy in late May after a sharp slowdown due to measures to contain the coronavirus outbreak, while minimising the risk of a second wave of infections, a senior official said on Tuesday. `\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-health-coronavirus-turkey-reopening.html?searchResultPosition=6
 
-**‘Life Has to Go On’: How Sweden Has Faced the Virus Without a Lockdown**\
-`The country was an outlier in Europe, trusting its people to voluntarily follow the protocols. Many haven’t, but it does not seem to have hurt them.`\
-https://nytimes.com/2020/04/28/world/europe/sweden-coronavirus-herd-immunity.html?searchResultPosition=7
+**China’s Factories Are Back. Its Consumers Aren’t.**\
+`The manufacturing giant is once again turning out steel and cellphones. But job losses and pay cuts have left its people reluctant to spend — a problem the U.S. and Europe may soon face, too.`\
+https://nytimes.com/2020/04/28/business/china-virus-economy-consumption.html?searchResultPosition=7
 
-**Virus-Ravaged Europe Nudges Some Doors Open, Not Others**\
-`Europeans are starting to venture outside after weeks of confinement, scarred by a virus that has overwhelmed some of the world's best health care systems and killed more than 120,000, yet yearning to rediscover signs of normalcy.`\
-https://nytimes.com/aponline/2020/04/28/business/bc-eu-virus-outbreak-europe-opens-up.html?searchResultPosition=8
+**NFL to Hold 2021 Draft in Cleveland From April 29-May 1**\
+`After a successful virtual, stay-at-home experience this year, the NFL plans to hold its draft outdoors in downtown Cleveland next year from April 29 to May 1.`\
+https://nytimes.com/aponline/2020/04/28/sports/football/ap-fbn-draft-cleveland.html?searchResultPosition=8
 
-**Canada Province Hit Worst by Coronavirus to Announce Restart Plans**\
-`Quebec, the Canadian province hit hardest by the coronavirus outbreak, is set on Tuesday to announce plans for restarting its economy, paving the way for companies like Bombardier Inc to gradually reopen key facilities.`\
-https://nytimes.com/reuters/2020/04/28/world/americas/28reuters-health-coronavirus-canada.html?searchResultPosition=9
+**Where There’s a Will in England, There’s a Way**\
+`Prodded by the coronavirus, thousands are making or updating their estate arrangements, but an archaic law requiring two witnesses in person is forcing people to take drastic measures.`\
+https://nytimes.com/2020/04/28/world/europe/will-writing-coronavirus.html?searchResultPosition=9
 
-**Bomb Blast Kills 40 People in Syria's Afrin: Turkey**\
-`At least 40 civilians were killed, including 11 children, when a bomb detonated on an oil tanker in the northern Syrian town of Afrin on Tuesday, the Turkish Defence Ministry said, blaming the attack on the Syrian Kurdish YPG militia.`\
-https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-syria-security-turkey-blast-afrin.html?searchResultPosition=10
+**Oprah to Headline Facebook, Instagram Graduation Event**\
+`Oprah will be the commencement speaker and Awkwafina, Jennifer Garner, Lil Nas X and Simone Biles will offer words of wisdom to the Class of 2020 in a multi-hour graduation streaming event on Facebook and Instagram on May 15.`\
+https://nytimes.com/aponline/2020/04/28/us/ap-us-virus-outbreak-oprah-commencement.html?searchResultPosition=10
 
