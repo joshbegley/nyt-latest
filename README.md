@@ -1,20 +1,20 @@
-**Eco-Isolation: Ramadan Quarantine With an Indonesian Twist**\
-`Returning to his Java village for Ramadan, Abdullah Al-Mabrur pitched a tent in the forest over concerns he might be carrying the coronavirus - and is now spending his self-imposed isolation cleaning up the river he played in as a child. `\
-https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-health-coronavirus-ramadan-indonesia-quarantine.html?searchResultPosition=6
+**U.S. Coronavirus Cases Approach One Million, One-Third of Global Infections: Reuters Tally**\
+`U.S. cases of the novel coronavirus were approaching 1 million on Tuesday, having doubled in 18 days, and made up one-third of all infections in the world, according to a Reuters tally.`\
+https://nytimes.com/reuters/2020/04/28/us/28reuters-health-coronavirus-usa-cases.html?searchResultPosition=6
 
-**Cemeteries Off-Limits as Israelis Honour War Dead Under Coronavirus**\
-`With military cemeteries and ceremonies off-limits, Israelis went online on Tuesday to honour the dead in annual remembrances held under the shadow of the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/04/28/world/middleeast/28reuters-health-coronavirus-israel-memorial-day.html?searchResultPosition=7
+**Food 2 Go-Go: Oregon Strip Club Brings Burlesque to Coronavirus Carry-Out**\
+`An Oregon strip club forced into the takeout-dining business in the age of the coronavirus has returned to its burlesque roots by offering delivery and drive-through services featuring exotic dancers - a concept the owner has promoted as "Food 2 Go-Go."`\
+https://nytimes.com/reuters/2020/04/28/us/28reuters-health-coronavirus-usa-dancers.html?searchResultPosition=7
 
-**Hello, Social Distancing. Goodbye, Handshakes?**\
-`It started centuries ago as a symbol of peace, a gesture to prove you weren't holding a weapon, and over time it became part of almost every social, religious, professional, business and sporting exchange.`\
-https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-health-coronavirus-handshakes.html?searchResultPosition=8
+**PepsiCo Scraps Forecast Due to Coronavirus Crisis**\
+`PepsiCo Inc reported a rise in first-quarter revenue, but ditched its full-year forecast on Tuesday, citing uncertainty around the globe due to the novel coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/28/business/28reuters-pepsico-results.html?searchResultPosition=8
 
-**Coronavirus Brings UK Retailers Worst Month Since 2008: CBI**\
-`British retailers suffered their biggest fall in sales since the 2008 financial crisis in the first half of this month as the coronavirus hit demand and forced store closures, the Confederation of British Industry said on Tuesday. `\
-https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-britain-economy-salesfigures.html?searchResultPosition=9
+**Hi-Tech Scans Get Under Skin of 'Girl With a Pearl Earring'**\
+`Researchers using a battery of modern imaging techniques have gotten under the skin of Johannes Vermeer's “Girl with a Pearl Earring,” but tests haven't answered the key question about the world famous painting's enigmatic subject.`\
+https://nytimes.com/aponline/2020/04/28/world/europe/ap-eu-netherlands-girl-with-a-pearl-earring.html?searchResultPosition=9
 
-**Ford Investors Keen for Details on When Automaker Will Restart U.S. Operations**\
-`Investors already know how the coronavirus outbreak has hurt Ford Motor Co's bottom line, so when the automaker releases first-quarter results on Tuesday they will focus on how and when Ford plans to restart North American operations.`\
-https://nytimes.com/reuters/2020/04/28/business/28reuters-ford-motor-results.html?searchResultPosition=10
+**Southwest Posts First Quarterly Loss in Nine Years and Warns of More Coronavirus Clouds**\
+`Southwest Airlines Co posted on Tuesday a $94 million net loss in the first quarter, its first quarterly loss in nine years, due to the coronavirus pandemic and said it sees no major improvement in air travel in the second quarter. `\
+https://nytimes.com/reuters/2020/04/28/business/28reuters-southwest-results.html?searchResultPosition=10
 
