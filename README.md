@@ -1,20 +1,20 @@
-**Airborne Coronavirus Detected in Wuhan Hospitals**\
-`While the RNA of the virus was found in tiny droplets in China, scientists don’t know if it was capable of transmitting the virus.`\
-https://nytimes.com/2020/04/28/health/coronavirus-hospital-aerosols.html?searchResultPosition=6
+**CDC Reports 981,246 Coronavirus Cases, 55,258 Deaths**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Tuesday reported 981,246 cases of new coronavirus, an increase of 23,371 cases from its previous count, and said the number of deaths had risen by 1,336 to 55,258.`\
+https://nytimes.com/reuters/2020/04/28/us/28reuters-health-coronavirus-usa-cdc.html?searchResultPosition=6
 
-**Teams to Set New Ticketing Guidelines Amid Coronavirus Season Delay**\
-`As ballparks across North America sit empty, Major League Baseball teams are set to release new ticket policies that could see some fans getting refunds, a little over a month after the season was supposed to start. `\
-https://nytimes.com/reuters/2020/04/28/sports/baseball/28reuters-health-coronavirus-mlb.html?searchResultPosition=7
+**Homa Missing Out on Masters and Return to Quail Hollow**\
+`Missing the Masters was hard enough for Max Homa, who was a month away from making his debut at Augusta National.`\
+https://nytimes.com/aponline/2020/04/28/sports/golf/ap-glf-golf-notes.html?searchResultPosition=7
 
-**Oklahoma, Utah Face Scrutiny Over Malaria Drug Purchases**\
-`Republican state leaders in Oklahoma and Utah are facing scrutiny for spending millions of dollars combined to purchase malaria drugs promoted by President Trump to treat COVID-19 patients that many other states obtained for free and that doctors warned shouldn't be used without more testing. `\
-https://nytimes.com/aponline/2020/04/28/us/ap-us-virus-outbreak-malaria-drugs-states.html?searchResultPosition=8
+**Prague District Mayor Says He Is Under Police Protection Against Russian Threat**\
+`The mayor of one of the Czech capital's districts said on Tuesday he had been put under police protection due to a threat that a Russian man had been sent to kill him, escalating a row between Prague and Moscow.`\
+https://nytimes.com/reuters/2020/04/28/world/europe/28reuters-czech-russia-threat.html?searchResultPosition=8
 
-**Alphabet’s Profit Is Up, but Company Warns of Difficulties**\
-`The chief executive of Google’s parent company said it experienced a “significant and sudden slowdown” in advertising in March.`\
-https://nytimes.com/2020/04/28/technology/alphabet-google-earnings-coronavirus.html?searchResultPosition=9
+**Malawi Launches $40 Monthly Cash Transfers to Combat Coronavirus Impact**\
+`Malawi will launch an emergency cash transfer programme targeting about 1 million people and small businesses affected by the coronavirus pandemic, President Arthur Peter Mutharika said on Tuesday.`\
+https://nytimes.com/reuters/2020/04/28/world/africa/28reuters-health-coronavirus-malawi-economy.html?searchResultPosition=9
 
-**Coronavirus, Meat Plants, U.F.O.s: Your Tuesday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/04/28/briefing/coronavirus-us-meat-plant-ufo.html?searchResultPosition=10
+**Wealthy Norwegian Businessman Charged With Murdering Missing Wife**\
+`The authorities have announced that the kidnapping of Anne-Elizabeth Hagen may have been fabricated by her husband, Tom Hagen, one of Norway’s wealthiest businessmen.`\
+https://nytimes.com/2020/04/28/world/europe/tom-hagen-murder-anne-elisabeth-hagen.html?searchResultPosition=10
 
