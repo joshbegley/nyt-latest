@@ -1,20 +1,20 @@
-**China Mounts Aggressive Defense to Calls for Coronavirus Compensation**\
-`Beijing has adopted a “no-holds barred” diplomatic push to quash criticism of its handling of the outbreak and to fend off efforts, including by President Trump, to hold it financially accountable.`\
-https://nytimes.com/2020/04/28/world/asia/coronavirus-china-compensation.html?searchResultPosition=6
+**‘Governors Don’t Do Global Pandemics’: Cuomo Faults Others Over Virus**\
+`The governor accused various world and federal health groups, as well as the news media, for not sufficiently warning the world of the coronavirus outbreak.`\
+https://nytimes.com/2020/04/28/nyregion/andrew-cuomo-bugle-coronavirus.html?searchResultPosition=6
 
-**Nova Scotia Gunman Killed 9 of His 22 Victims by Setting Fire to Their Houses, Police Say**\
-`Nine of the 22 victims killed in Canada's Nova Scotia province earlier this month in a weekend shooting rampage died in house fires set by the gunman, Canadian police told reporters on Tuesday.`\
-https://nytimes.com/reuters/2020/04/28/world/americas/28reuters-canada-crime-novascotia.html?searchResultPosition=7
+**Trump Administration’s Message on Reopening Continues to Be Contradictory**\
+`The president said the coronavirus wouldn’t come back while Dr. Anthony Fauci said it would be “a bad fall” and the attorney general threatened to sue states for enforcing restrictions.`\
+https://nytimes.com/2020/04/28/us/politics/trump-coronavirus-reopening.html?searchResultPosition=7
 
-**U.S. Muni Market Assesses Fed's Lifeline for Cash-Strapped States, Cities**\
-`The Federal Reserve broadened the universe of states and local governments that can tap into a new $500 billion borrowing program for cash needed in the wake of the coronavirus outbreak, but certain newly disclosed requirements may shut some out, municipal market analysts said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/28/us/28reuters-health-coronavirus-fed-municipals.html?searchResultPosition=8
+**How to Defend a Dissertation Virtually**\
+`Isolation paves the way for community.`\
+https://nytimes.com/2020/04/28/style/defending-virtual-dissertations.html?searchResultPosition=8
 
-**Tucker Carlson Beats Sean Hannity as Trump Briefings Give Fox News a Boost**\
-`The network’s ratings surged in April, but “Hannity” missed its top spot for the first time since 2017.`\
-https://nytimes.com/2020/04/28/business/media/virus-tucker-carlson-sean-hannity-fox-ratings.html?searchResultPosition=9
+**Cooperstown: Wait Till Next Year?**\
+`The Hall of Fame induction ceremony is still planned for late July, but making it happen with the proper fanfare seems impossible while the threat of the coronavirus looms.`\
+https://nytimes.com/2020/04/28/sports/baseball/cooperstown-baseball-hall-of-fame-pandemic.html?searchResultPosition=9
 
-**It’s Not Enough to ‘Get Back to Normal’**\
-`We can rebuild better. Here’s how.`\
-https://nytimes.com/2020/04/28/opinion/coronavirus-trump-us.html?searchResultPosition=10
+**Saints Agree to Terms With QB Winston on One-Year Contract**\
+`The New Orleans Saints have agreed to terms on a one-year contract with unrestricted free agent quarterback Jameis Winston.`\
+https://nytimes.com/aponline/2020/04/28/sports/football/ap-fbn-saints-winston.html?searchResultPosition=10
 
