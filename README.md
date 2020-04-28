@@ -1,20 +1,20 @@
-**South Korea Says North Korea's Kim May Be Trying to Avoid Coronavirus**\
-`Kim Jong Un may have missed a key holiday on April 15 because of concerns over the coronavirus, not because he is ill, South Korea's minister for North Korean affairs said on Tuesday.`\
-https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-northkorea-kim.html?searchResultPosition=6
+**Trevor Noah Doesn’t Think Trump Knows What Bleach Is**\
+`The “Daily Show” host says the reason the president doesn’t understand disinfectants is that he’s never personally cleaned anything.`\
+https://nytimes.com/2020/04/28/arts/television/trevor-noah-trump-bleach.html?searchResultPosition=6
 
-**Thailand Shelves Asia-Pacific Trade Pact Membership Decision Amid Growing Opposition**\
-`Thailand's cabinet will not consider on Tuesday whether Thailand will seek membership of an Asia-Pacific trade agreement, which could boost its economy hit by the coronavirus pandemic, due to widespread opposition.`\
-https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-cptpp-thailand.html?searchResultPosition=7
+**Angry Birds Maker Rovio Reports Profit Rise on Lower Costs**\
+`Rovio Entertainment, maker of the 10-year-old "Angry Birds" mobile game series, on Tuesday reported a nearly 75% rise in first-quarter profit helped by lower costs. `\
+https://nytimes.com/reuters/2020/04/28/technology/28reuters-rovio-results.html?searchResultPosition=7
 
-**As Virus Cases Rise, UAE Adjusts to a New Normal in Pandemic**\
-`In a Dubai industrial park, workers weld, drill and build what one entrepreneur sees as key to the near future of this desert city-state amid the coronavirus pandemic: disinfection gates. `\
-https://nytimes.com/aponline/2020/04/28/world/middleeast/ap-ml-virus-outbreak-emirates-new-normal.html?searchResultPosition=8
+**Latest on the Spread of the Coronavirus Around the World**\
+`More than 3.03 million people have been reported to be infected by the novel coronavirus globally and 210,263 have died, according to a Reuters tally, as of 0200 GMT on Tuesday.`\
+https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-health-coronavirus-latest-factbox.html?searchResultPosition=8
 
-**JPMorgan Poaches Citi's Torun to Build Up Senior Paris Ranks**\
-`JPMorgan is betting on a female banker to take the reins of its investment banking business in France as it seeks to bolster its leadership in one of Europe's hardest-hit markets from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/28/business/28reuters-jpmorgan-torun-moves.html?searchResultPosition=9
+**China's April Factory Activity Seen Expanding as Lockdowns Ease: Reuters Poll**\
+`China's factory activity likely rose for a second straight month in April as more businesses re-opened from strict lockdowns implemented to contain the coronavirus outbreak, which has now paralysed the global economy.`\
+https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-china-economy-pmi.html?searchResultPosition=9
 
-**China Lab Rejects COVID-19 Conspiracy Claims, but Virus Origins Still a Mystery**\
-`Claims that the coronavirus pandemic originated in a laboratory in the Chinese city of Wuhan have no basis in fact, the head of the lab told Reuters, adding that there were still no conclusive answers as to where the disease started.`\
-https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-health-coronavirus-china-lab.html?searchResultPosition=10
+**Airline SAS to Cut Up to 5,000 Jobs Due to Pandemic**\
+`Scandinavian airline SAS said on Tuesday it would reduce its workforce by up to 5,000 full-time positions, due to the COVID-19 pandemic and its impact on air travel.`\
+https://nytimes.com/reuters/2020/04/28/business/28reuters-health-coronavirus-sas-jobs.html?searchResultPosition=10
 
