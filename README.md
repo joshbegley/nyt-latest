@@ -1,20 +1,20 @@
-**Texas Oil Port Hit by One-Two Punch: Falling Demand and Overproduction**\
-`Corpus Christi has become the largest energy exporter in the United States, but several expansion projects have been delayed or scuttled, threatening jobs and investments.`\
-https://nytimes.com/2020/04/28/business/coronavirus-oil-texas-port.html?searchResultPosition=6
+**New Report Says Virus Could Worsen Zimbabwe's Hunger Crisis**\
+`Zimbabwe, where millions of people already face acute hunger, could sink deeper into crisis as the coronavirus pandemic takes a toll on the country’s troubled economy and food supply, United Nations agencies say in a new report.`\
+https://nytimes.com/aponline/2020/04/28/world/africa/ap-af-zimbabwe-hunger.html?searchResultPosition=6
 
-**How Can I Say Goodbye to My City in the Middle of a Pandemic?**\
-`“I feel more connected to my family and friends than ever before,” writes one of our advice columnists. “The virus has collapsed distances.”`\
-https://nytimes.com/2020/04/28/t-magazine/coronavirus-relocating-moving.html?searchResultPosition=7
+**UK Mourns Front-Line Workers Who Have Died From Coronavirus**\
+`The U.K. held a minute's silence Tuesday for all front-line workers who have died from the coronavirus, as official figures showed a new weekly high in the total number of deaths in England and Wales.`\
+https://nytimes.com/aponline/2020/04/28/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=7
 
-**Recent Commercial Real Estate Transactions**\
-`Recent commercial real estate transactions in New York.`\
-https://nytimes.com/2020/04/28/business/new-york-commercial-real-estate.html?searchResultPosition=8
+**US Home Prices Rose Before Viral Outbreak Shut Economy**\
+`U.S home prices were rising at a steady pace in February, before the viral outbreak shuttered much of the economy and caused a sharp decline in home sales.`\
+https://nytimes.com/aponline/2020/04/28/business/bc-us-home-prices.html?searchResultPosition=8
 
-**Top U.S. Senate Democrat Warns of Massive Layoffs Without State Aid**\
-`The top Democrat in the U.S. Senate warned on Tuesday that state and local governments will see "massive" layoffs if Congress fails to act soon to provide financial assistance to help them combat the effects of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/28/us/28reuters-health-coronavirus-usa-congress.html?searchResultPosition=9
+**Coronavirus Cases in India Climb Towards 30,000; Pakistan Mosques a Growing Worry**\
+`India was nearing 30,000 coronavirus infections on Tuesday, second only to China in Asia, a steady rise that would make it difficult to lift a nearly six-week lockdown that ends this weekend, health officials and some government leaders said. `\
+https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-health-coronavirus-southasia.html?searchResultPosition=9
 
-**Pfizer 2Q Sales and Profit Down, but It Maintains 2020 Views**\
-`Drugmaker Pfizer said the COVID-19 pandemic is disrupting its patient testing of experimental drugs and will reduce revenue significantly in the second quarter, but its manufacturing plants are running normally.`\
-https://nytimes.com/aponline/2020/04/28/business/ap-us-earns-pfizer.html?searchResultPosition=10
+**Egyptian Pound's Initial Coronavirus Immunity Seen Waning**\
+`Egypt's pound has been a rare riser among emerging market currencies beaten down by the coronavirus fallout but pressure is growing on it to weaken.`\
+https://nytimes.com/reuters/2020/04/28/world/middleeast/28reuters-health-coronavirus-egypt-currency-analysis.html?searchResultPosition=10
 
