@@ -1,36 +1,36 @@
+**Food Crisis Deepens as Puerto Rico School Cafeterias Shutter**\
+`Puerto Rico’s government is refusing to open school cafeterias amid coronavirus health concerns and has not tapped into millions of federal dollars set aside for the island even as a growing number of unemployed parents struggle to feed their children in a U.`\
+https://nytimes.com/aponline/2020/04/29/world/americas/ap-cb-virus-outbreak-puerto-rico-missing-meals.html?searchResultPosition=2
+
+**Russia Slams US Arguments for Low-Yield Nukes**\
+`The Russian Foreign Ministry on Wednesday rejected U.S. arguments for fielding low-yield nuclear warheads, warning that an attempt to use such weapons against Russia would trigger an all-out nuclear retaliation.`\
+https://nytimes.com/aponline/2020/04/29/world/europe/ap-eu-russia-us-nuclear.html?searchResultPosition=3
+
+**AP Exclusive: Texas AG Helped Donor Fight Virus Lockout**\
+`When a small county in the Colorado mountains banished everyone but locals to blunt the spread of the coronavirus, an unlikely outsider raised a fuss: Texas Attorney General Ken Paxton, who called it an affront to Texans who own property there and pressed health officials to soften the rules.`\
+https://nytimes.com/aponline/2020/04/29/us/ap-us-virus-outbreak-texas-attorney-general.html?searchResultPosition=4
+
+**Polish Ombudsman Asks Court to Block Presidential Election Plan**\
+`Poland's human rights commissioner sought a court order on Wednesday to block government preparations to hold a presidential election on May 10 by postal ballot, saying they were a "gross violation" of the law.`\
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-poland-ombudsman.html?searchResultPosition=5
+
+**Nigeria to Ease Lockdowns in Three States Over Six-Week Period**\
+`Nigeria will ease coronavirus lockdowns in three states over a six-week period from May 4, the head of the country's task force on the virus said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/29/world/africa/29reuters-health-coronavirus-nigeria.html?searchResultPosition=6
+
+**Terry Lenzner, Sleuth With a Wide-Ranging Career, Dies at 80**\
+`He prosecuted civil rights violators, investigated the Nixon administration during the Watergate scandal and had brushes with scandal himself.`\
+https://nytimes.com/2020/04/29/us/politics/terry-lenzner-dead.html?searchResultPosition=7
+
+**Record-Setting Navy QB Perry Will Get NFL Shot With Dolphins**\
+`As Malcolm Perry started his senior year last fall, he knew the Marine Corps was in his future.`\
+https://nytimes.com/aponline/2020/04/29/sports/football/ap-fbn-dolphins-navys-perry.html?searchResultPosition=8
+
 **JD Wetherspoon to Raise $175 Million via Placement; Plans June Reopening**\
 `British pubs group JD Wetherspoon plans to raise 141 million pounds ($175 million) in a share placing as it tries to cope with the economic fallout from the coronavirus pandemic, which has forced all pubs to close. `\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-jd-wetherspoon.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-jd-wetherspoon.html?searchResultPosition=9
 
 **Fear, Sticker Shock Over Health Insurance Greet Laid-Off Workers**\
 `If you were laid off in April, the health insurance from your job may stop at the end of the month. Then what? `\
-https://nytimes.com/reuters/2020/04/29/us/29reuters-health-coronavirus-usa-insurance.html?searchResultPosition=3
-
-**Big Insurers Face Fresh Coronavirus Claim Threat From UK Hospitality Sector**\
-`Top insurers such as AXA, RSA, QBE and Zurich face a potential multi-million pound lawsuit from British pubs, hotels, restaurants and leisure groups, who allege that legitimate business interruption claims have been rejected.`\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-britain-insurers.html?searchResultPosition=4
-
-**Twitter Opens Up Data for Researchers to Study COVID-19 Tweets**\
-`Twitter Inc will grant researchers and software developers access to a real-time data stream of tens of millions of daily public tweets about COVID-19, which they can use to study the spread of the disease or track misinformation, the company said in a blog post on Wednesday.`\
-https://nytimes.com/reuters/2020/04/29/technology/29reuters-health-coronavirus-twitter-data.html?searchResultPosition=5
-
-**WHO Declines Comment on Remdesivir in COVID-19, Hopes for Best**\
-`A top World Health Organization official declined comment on Wednesday on reports that Gilead Science's remdesivir could help treat COVID-19, the respiratory disease caused by the novel coronavirus, but said that further data was needed.`\
-https://nytimes.com/reuters/2020/04/29/world/asia/29reuters-health-coronavirus-who-remdesivir.html?searchResultPosition=6
-
-**UK Will Have to Wait for Excess Death Statistics for Clearer COVID-19 Picture: Health Official**\
-`Figures for the number of excess deaths in Britain as a result of the coronavirus crisis will provide a clearer picture of the impact of the COVID-19 pandemic but might not be available for a while, England's deputy Chief Medical Officer said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-britain-excess.html?searchResultPosition=7
-
-**Making Public Transit Safe a Next Hurdle in Easing Lockdowns**\
-`In cities around the world, public transportation systems are key to getting workers back on the job and restarting devastated economies. Yet methods of getting around ranging from trains and buses to ferries and bicycles will have to be re-imagined for the coronavirus era.`\
-https://nytimes.com/aponline/2020/04/29/business/bc-virus-outbreak-public-transit.html?searchResultPosition=8
-
-**U.S. Nonprofits Scramble for Loans as Need Jumps, Funds Disappear**\
-`Domestic violence incidents are surging during coronavirus lockdowns, just as the largest U.S. network providing emergency housing for abused women and their children is running short of money. `\
-https://nytimes.com/reuters/2020/04/29/us/29reuters-health-coronavirus-usa-nonprofits.html?searchResultPosition=9
-
-**U.S. Consumer Groups Urge Lawmakers Against Shielding Businesses From Coronavirus-Related Lawsuits**\
-`U.S. consumer advocates are urging Congress to resist growing demands by companies for protections from coronavirus-related lawsuits as states start to ease pandemic restrictions and businesses begin to reopen.`\
-https://nytimes.com/reuters/2020/04/29/us/29reuters-health-coronavirus-usa-litigation.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/29/us/29reuters-health-coronavirus-usa-insurance.html?searchResultPosition=10
 
