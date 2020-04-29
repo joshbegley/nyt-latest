@@ -1,36 +1,36 @@
+**Microsoft's Cloud Business Helps Offset Pandemic Woes**\
+`Ongoing demand for Microsoft's cloud computing services help softened the blow of the coronavirus pandemic on the software giant's other products during the first three months of the year. `\
+https://nytimes.com/aponline/2020/04/29/business/ap-us-microsoft-results.html?searchResultPosition=2
+
+**Barney Ales, Indispensable Motown Executive, Is Dead at 85**\
+`In the 1960s, he promoted the black-owned company’s music to the white-dominated music industry, helping to make it a ubiquitous force in American pop culture.`\
+https://nytimes.com/2020/04/29/arts/music/barney-ales-dead.html?searchResultPosition=3
+
+**The Coronavirus Stimulus Package Is a Mess**\
+`Congress gets an A+ for speed but a B- for quality.`\
+https://nytimes.com/2020/04/29/opinion/coronavirus-stimulus.html?searchResultPosition=4
+
+**Democratic Frustration Mounts as Biden Remains Silent on Sexual Assault Allegation**\
+`Activists and women’s rights advocates have urged Mr. Biden to address a former aide’s allegation that he sexually assaulted her in 1993. His lack of response has angered them.`\
+https://nytimes.com/2020/04/29/us/politics/tara-reade-joe-biden.html?searchResultPosition=5
+
 **Formula One Hails Britain's Fundraising Hero 'Captain Tom'**\
 `Formula One teams and drivers have sent 100th birthday congratulations to Captain Tom Moore, the World War Two veteran whose own laps have raised more than 29 million pounds ($36.13 million) for Britain's National Health Service.`\
-https://nytimes.com/reuters/2020/04/29/sports/autoracing/29reuters-health-coronavirus-britain-veteran-f1.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/29/sports/autoracing/29reuters-health-coronavirus-britain-veteran-f1.html?searchResultPosition=6
 
 **Modern Love Podcast: Daisy Edgar-Jones Reads ‘Years Ago, My Sister Vanished. I See Her Whenever I Want.’**\
 `The “Normal People” star reads an essay about the benefits and detriments of legacies online.`\
-https://nytimes.com/2020/04/29/style/modern-love-podcast-daisy-edgar-jones.html?searchResultPosition=3
+https://nytimes.com/2020/04/29/style/modern-love-podcast-daisy-edgar-jones.html?searchResultPosition=7
 
 **How Major US Stock Indexes Fared Wednesday**\
 `Stocks marched higher around the world Wednesday following an encouraging report on a possible treatment for COVID-19. `\
-https://nytimes.com/aponline/2020/04/29/business/ap-financial-markets-box.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/04/29/business/ap-financial-markets-box.html?searchResultPosition=8
 
 **Fed Chair to Congress: Do Whatever It Takes to Keep the Economy From Collapse**\
 `It’s a reversal of the usual relationship between elected officials and independent central bankers.`\
-https://nytimes.com/2020/04/29/upshot/fed-powell-economy-pandemic.html?searchResultPosition=5
+https://nytimes.com/2020/04/29/upshot/fed-powell-economy-pandemic.html?searchResultPosition=9
 
 **Just Spit and Wait: New Coronavirus Test Offers Advantages**\
 `Saliva tests like the one developed by Rutgers are less painful for patients and less risky to medical workers.`\
-https://nytimes.com/2020/04/29/health/coronavirus-saliva-spit-tests.html?searchResultPosition=6
-
-**Tesla Ekes Out Small 1Q Net Profit, Surprising Wall Street**\
-`Tesla eked out a small first-quarter net profit just as the coronavirus started to affect the electric car and solar panel maker.`\
-https://nytimes.com/aponline/2020/04/29/business/ap-us-results-tesla.html?searchResultPosition=7
-
-**'River Monster': Huge African Dinosaur Spinosaurus Thrived in the Water**\
-`The huge African predator ​Spinosaurus spent much of its life in the water, propelled by a paddle-like tail while hunting large fish - a "river monster," according to scientists, that showed that some dinosaurs invaded the aquatic realm.`\
-https://nytimes.com/reuters/2020/04/29/world/africa/29reuters-science-spinosaurus.html?searchResultPosition=8
-
-**Brazil Has Record Number of New Cases of Coronavirus, Deaths Total 5,466**\
-`The number of confirmed cases of new coronavirus in Brazil soared by a record number on Wednesday to 78,162 from 71,886 the day before, with 449 deaths in the last 24 hours, the Health Ministry said.`\
-https://nytimes.com/reuters/2020/04/29/world/americas/29reuters-health-coronavirus-brazil.html?searchResultPosition=9
-
-**Trump Administration to Speed Coronavirus Vaccine Development: Senior Administration Official**\
-`The Trump administration is planning to speed up development of a coronavirus vaccine with the goal of having 100 million doses ready by the end of 2020, a senior administration official said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/29/us/29reuters-health-coronavirus-usa-vaccine.html?searchResultPosition=10
+https://nytimes.com/2020/04/29/health/coronavirus-saliva-spit-tests.html?searchResultPosition=10
 
