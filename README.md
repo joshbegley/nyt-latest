@@ -1,36 +1,36 @@
+**U.S. Treasury Chief Says Reserving Capital to Add to Fed Coronavirus Lending Programs**\
+`U.S. Treasury Secretary Steven Mnuchin said on Wednesday he is keeping some $259 billion worth of coronavirus aid capital in reserve for new or expanded Federal Reserve Lending programs, but is not considering further aid to airlines at the moment.`\
+https://nytimes.com/reuters/2020/04/29/us/29reuters-usa-treasury-mnuchin.html?searchResultPosition=2
+
+**Trump Trade Office Adds Amazon to 'Notorious Markets' List**\
+`The United States for the first time added five of Amazon’s overseas operations to its list of “notorious markets’’ where pirated goods are sold. The e-commerce giant dismissed the move as part of the Trump administration's “personal vendetta'' against it.`\
+https://nytimes.com/aponline/2020/04/29/business/bc-us-trade-notorious-markets.html?searchResultPosition=3
+
+**Colombia to Offer Legal Benefits to Those Who Leave Gangs**\
+`Colombia will offer individuals who leave crime gangs and rebel dissident groups legal benefits including reduced sentences in an effort to weaken illegal armed groups, the Andean country's high peace commissioner said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/29/world/americas/29reuters-colombia-crime.html?searchResultPosition=4
+
+**Self-Driving Vehicles Get In on the Delivery Scene Amid COVID-19**\
+`Self-driving cars, trucks, sidewalk robots and shuttles are rolling out of the labs and parking garages and onto American streets to help deliver groceries, meals, and medical supplies.   `\
+https://nytimes.com/reuters/2020/04/29/technology/29reuters-health-coronavirus-self-driving-delivery.html?searchResultPosition=5
+
+**Juul Plans to Cut a Third of Its Workforce: WSJ**\
+`Juul Labs Inc is planning to cut around a third of its staff as the e-cigarette maker faces a relentless series of regulatory headaches and falling market share, the Wall Street Journal reported on Wednesday.`\
+https://nytimes.com/reuters/2020/04/29/business/29reuters-juul-layoffs.html?searchResultPosition=6
+
+**Cycling: Tour of Spain Organisers Scrap Netherlands Start Plan, Cut Race to 18 Stages**\
+`This year's Tour of Spain will not start in the Netherlands as planned because of the coronavirus crisis but from the Basque Country and will be reduced from 21 to 18 stages, organisers said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/29/sports/cycling/29reuters-health-coronavirus-cycling-spain.html?searchResultPosition=7
+
 **Wall Street Uniform to Get a New Accessory-The Face Mask**\
 `Face masks, temperature checks and packaged sandwiches could all become part of the daily routine for bankers as their employers work out how to get them safely back into the office. `\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-banks-offices.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-banks-offices.html?searchResultPosition=8
 
 **The Easiest Roast Chicken (and Even Easier Stock)**\
 `Master this before-bedtime stock, and you, too, can be one of those cooks who always has it on hand.`\
-https://nytimes.com/2020/04/29/dining/chicken-stock-recipe-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/04/29/dining/chicken-stock-recipe-coronavirus.html?searchResultPosition=9
 
 **Scott Perry Keeps Knicks General Manager Job for One More Year**\
 `Perry, the Knicks’ general manager since 2017, will be staying in his role for a bit longer. But as the coronavirus continues to spread, what moves will he be able to make?`\
-https://nytimes.com/2020/04/29/sports/basketball/scott-perry-knicks.html?searchResultPosition=4
-
-**Tadashi Tsufura, Internment Survivor and New York Principal, Dies at 89**\
-`During World War II, he and his family were forcibly relocated to Arizona. He later became a beloved educator in New York City.`\
-https://nytimes.com/2020/04/29/obituaries/tadashi-tsufura-dead-coronavirus.html?searchResultPosition=5
-
-**Trump, Fauci See Hope With Gilead's Drug in Coronavirus Fight**\
-`President Donald Trump on Wednesday greeted reports that Gilead Science Inc's antiviral drug remdesivir might help fight the coronavirus as good news, and infectious disease official Anthony Fauci said data on remdesivir shows a drug can target the novel coronavirus.`\
-https://nytimes.com/reuters/2020/04/29/us/29reuters-health-coronavirus-trump-drug.html?searchResultPosition=6
-
-**Scientists Urge Germans to Keep Social Distancing Discipline**\
-`Germans must persevere with social distancing or risk exponential growth in the number of coronavirus cases, four leading science institutes said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-germany-scientists.html?searchResultPosition=7
-
-**Brees, Brady Give 'Quarterback South' Top 2 All-Time Passers**\
-`Dan Quinn says the NFC South has earned a new moniker.`\
-https://nytimes.com/aponline/2020/04/29/sports/football/ap-fbn-nfc-south-analysis.html?searchResultPosition=8
-
-**Video Shows California Officer Punching 14-Year-Old**\
-`The police in Rancho Cordova and the Sacramento County Sheriff’s Department are investigating the incident, which was captured in a video that was widely shared on social media.`\
-https://nytimes.com/2020/04/29/us/rancho-cordova-police.html?searchResultPosition=9
-
-**Italy's Daily Coronavirus Death Toll Falls, New Cases Stable**\
-`Deaths from the COVID-19 epidemic in Italy climbed by 323 on Wednesday, against 382 the day before, the Civil Protection Agency said, while the daily tally of new infections stood at 2,086, broadly stable from 2,091 on Tuesday.`\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-italy-tally.html?searchResultPosition=10
+https://nytimes.com/2020/04/29/sports/basketball/scott-perry-knicks.html?searchResultPosition=10
 
