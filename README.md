@@ -1,40 +1,40 @@
-**US Pending Home Sales Sank 20.8% in March**\
-`U.S. home sales showed signs of collapsing in March, as the number of contract signs plunged sharply because of the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/04/29/business/bc-us-pending-home-sales.html?searchResultPosition=1
+**Italy's Amplifon Withdraws Guidance, Freezes M&A Cash-Out Over Virus Hit**\
+`Italy's Amplifon said on Wednesday it had withdrawn its 2020 guidance after reporting a slump in first-quarter core earnings due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-amplifon-guidance.html?searchResultPosition=1
 
-**Japan to Extend State of Emergency Due to Coronavirus: Nikkei**\
-`The Japanese government is planning to extend the state of emergency over the new coronavirus pandemic by about one month for the entire country, the Nikkei business daily reported on Wednesday.`\
-https://nytimes.com/reuters/2020/04/29/world/asia/29reuters-health-coronavirus-japan-emergency.html?searchResultPosition=2
+**U.S. Pending Home Sales Fall Sharply in March**\
+`Contracts to purchase previously owned homes declined sharply in March as the coronavirus outbreak kept would-be buyers away, National Association of Realtors data showed on Wednesday.`\
+https://nytimes.com/reuters/2020/04/29/us/29reuters-usa-economy-homes.html?searchResultPosition=2
 
-**Pompeo Says No Sign of North Korea's Kim, Real Risk of Famine in Country**\
-`The United States has caught no sight of North Korean leader Kim Jong Un and is watching reports about his health closely, U.S. Secretary of State Mike Pompeo said on Wednesday, adding there is a real risk of famine in the country amid the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/29/world/asia/29reuters-northkorea-kim-pompeo.html?searchResultPosition=3
+**Amazon Renews Streaming Deal With NFL**\
+`Amazon.com Inc said on Wednesday it would renew its partnership with National Football League (NFL) to live stream Thursday night games exclusively on its video streaming platforms, Prime Video and Twitch. `\
+https://nytimes.com/reuters/2020/04/29/arts/29reuters-amazon-nfl.html?searchResultPosition=3
 
-**UK PM Johnson Back at Work After Birth of Son: Spokesman**\
-`British Prime Minister Boris Johnson is back at work at his Downing Street office after being present while his fiancee Carrie Symonds gave birth to their son, his political spokesman said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-britain-johnson-baby-work.html?searchResultPosition=4
+**British Airways to Drive Job Cuts With Cabin Crew Overhaul: Memo**\
+`British Airways is planning a major overhaul of its cabin crew that will "significantly reduce" their numbers, an internal memo circulated on Wednesday showed, after parent IAG moved to cut as many as 12,000 of the airline's 42,000 staff.`\
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-iag-cabincrew.html?searchResultPosition=4
 
-**Brazil Supreme Court Bars Ramagem Appointment as Federal Police Chief: Ruling**\
-`Brazilian Supreme Court Justice Alexandre de Moraes on Wednesday granted an injunction suspending the appointment of Alexandre Ramagem as chief of the country's federal police, according to a ruling seen by Reuters.`\
-https://nytimes.com/reuters/2020/04/29/world/americas/29reuters-brazil-politics.html?searchResultPosition=5
+**Report: Nicaragua Government Failing to Protect Indigenous**\
+`Nicaragua’s government has not only failed to enforce laws that protect its indigenous peoples and their communal lands, but is actively promoting illegal land grabs and granting concessions to mining and timber companies, according to a report released Wednesday.`\
+https://nytimes.com/aponline/2020/04/29/world/americas/ap-lt-nicaragua-indigenous.html?searchResultPosition=5
 
-**Ramadan in Quarantine: Turks Fast Solo After Mass Repatriation**\
-`As the coronavirus epidemic took hold, Duygu Yucelen - like thousands of her fellow Turks - made the decision to fly home to be with her family for Ramadan rather than spend the Muslim fasting month locked down abroad.`\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-turkey-ramadan.html?searchResultPosition=6
+**Brazil Supreme Court Suspends Federal Police Nomination**\
+`Brazil's Supreme Court on Wednesday temporarily suspended the contentious appointment of the new director general of the Federal Police, delivering a fresh blow to the Brazilian leader.`\
+https://nytimes.com/aponline/2020/04/29/world/americas/ap-lt-brazil-bolsonaro.html?searchResultPosition=6
 
-**Your Power Bill Is Likely to Rise Under Lockdown. Here’s Why.**\
-`Some 400 special electric meters in New York apartments provide a shifting view of power use while people are stuck inside.`\
-https://nytimes.com/2020/04/29/climate/energy-use-coronavirus.html?searchResultPosition=7
+**Sweden’s Sweet Tooth Turns Sour as Coronavirus Stirs Hygiene Fears**\
+`While the coronavirus has not stopped Swedes from eating in restaurants, drinking in pubs or playing organised sport, it has halted the country's love affair with pick & mix candy. `\
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-sweden-pick-mix.html?searchResultPosition=7
 
-**Portraits That More Than Meet the Eye**\
-`Jordan Casteel’s vibrant colors capture the spirit and humanity of her subjects: black and brown people who have often been excluded from art institutions.`\
-https://nytimes.com/2020/04/29/arts/design/jordan-casteel-new-museum.html?searchResultPosition=8
+**McConnell Says Business Protection a Condition for Next COVID Bill**\
+`U.S. Senate Majority Leader Mitch McConnell on Wednesday doubled down on his demand that Congress protect businesses from coronavirus-related liabilities in its next legislative package for combating the pandemic.`\
+https://nytimes.com/reuters/2020/04/29/business/29reuters-health-coronavirus-mcconnell.html?searchResultPosition=8
 
-**The Passion of Perfume Genius**\
-`The musician Mike Hadreas wanted “new rules” for himself. After a pivotal collaboration with a dance group, he’s returning with a thrilling album, “Set My Heart on Fire Immediately.”`\
-https://nytimes.com/2020/04/29/arts/music/perfume-genius-set-my-heart-on-fire-immediately.html?searchResultPosition=9
+**Germany Expects Record Recession in 2020 Because of Coronavirus**\
+`The coronavirus pandemic will plunge Germany's economy into its deepest recession since World War Two, Economy Minister Peter Altmaier said on Wednesday as the government cut its economic growth forecast for this year.`\
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-germany-economy.html?searchResultPosition=9
 
-**A Father’s Love, Whether He Says Too Much or Not Enough**\
-`In “A River Runs Through It,” a loving patriarch can’t find the words to rescue his wayward boy. Years later, another dad sees words as the best way to help his son.`\
-https://nytimes.com/2020/04/29/movies/fathers-a-river-runs-through-it.html?searchResultPosition=10
+**Florida to Unveil Reopening Plan as Data Shows Painful Contraction of U.S. Economy**\
+`Florida Governor Ron DeSantis on Wednesday was preparing to unveil his plan for loosening restrictions on business activity in one of the most populous states in the United States as data showed the economy contracted 4.`\
+https://nytimes.com/reuters/2020/04/29/us/29reuters-health-coronavirus-usa.html?searchResultPosition=10
 
