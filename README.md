@@ -1,40 +1,40 @@
+**Democrats Unveil Bill Requiring U.S. Coronavirus Supply Czar**\
+`U.S. Senate Democrats unveiled legislation on Wednesday requiring the Pentagon to name a civilian officer to oversee the nation's supply and production of medical supplies and equipment needed to combat the spread of the new coronavirus.`\
+https://nytimes.com/reuters/2020/04/29/us/politics/29reuters-health-coronavirus-usa-congress.html?searchResultPosition=1
+
+**Pandemic Means IOC Must Review Budget and Priorities, Says Bach**\
+`The International Olympic Committee is reviewing its budget and priorities due to the pandemic and postponed Tokyo 2020 Games, president Thomas Bach said on Wednesday, with adjustments necessary to meet changed priorities.`\
+https://nytimes.com/reuters/2020/04/29/sports/olympics/29reuters-health-coronavirus-japan-bach.html?searchResultPosition=2
+
+**India Has 1,000 Coronavirus Deaths but Expert Says No Exponential Rise**\
+`India has recorded its 1,000th novel coronavirus death, but the head of a government think-tank said on Wednesday that its 1.3 billion people, strained from weeks of lockdown, were not experiencing the feared exponential surge in infections.`\
+https://nytimes.com/reuters/2020/04/29/world/asia/29reuters-health-coronavirus-southasia.html?searchResultPosition=3
+
+**GSK Boss Sees No Coronavirus Vaccine Mass-Produced Before Mid-2021**\
+`The chief executive of the world's largest vaccine maker, GlaxoSmithKline, said the global push to develop an  immunisation against the coronavirus would not lead to widely available products before the second half of next year.`\
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-gsk-results-vaccine.html?searchResultPosition=4
+
+**Car Tech to Guard Against Distracted Driving**\
+`Distracted driving puts not only drivers on the road at risk but also passengers, cyclists and pedestrians. In 2018, it led to the deaths of 2,841 people, according to the most current data from the National Highway Traffic Safety Administration. `\
+https://nytimes.com/aponline/2020/04/29/business/bc-us-behind-the-wheel-distracted-driving.html?searchResultPosition=5
+
 **COVID-19 Showing Suburbs Are Just as Vulnerable as Cities**\
 `Haunting images of an empty Times Square and the daily accounting of hundreds of fatalities in New York City have reinforced the idea of the coronavirus as an urban contagion.`\
-https://nytimes.com/aponline/2020/04/29/us/ap-us-virus-outbreak-vulnerable-suburbs.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/04/29/us/ap-us-virus-outbreak-vulnerable-suburbs.html?searchResultPosition=6
 
 **NCAA Board Supports Name, Image and Likeness Compensation**\
 `The NCAA is moving forward with a plan to allow college athletes to earn money for endorsements and a host of other activities involving personal appearances and social media.`\
-https://nytimes.com/aponline/2020/04/29/sports/ap-us-ncaa-compensating-athletes.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/04/29/sports/ap-us-ncaa-compensating-athletes.html?searchResultPosition=7
 
 **California Food for Seniors Plan Could Run Out of Money Soon**\
 `California Gov. Gavin Newsom’s first-in-the-nation plan to pay for and deliver three meals a day to vulnerable seniors during the coronavirus crisis has less than two weeks to launch before federal funding runs out, government documents show.`\
-https://nytimes.com/aponline/2020/04/29/business/ap-us-virus-outbreak-california-subsidized-meals.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/04/29/business/ap-us-virus-outbreak-california-subsidized-meals.html?searchResultPosition=8
 
 **Syria Extends Night Curfew but Allows Businesses to Reopen**\
 `The Syrian government said on Wednesday it extended a nationwide curfew to stem the spread of coronavirus but had eased a tight lockdown by allowing all businesses and public markets to go back to work.`\
-https://nytimes.com/reuters/2020/04/29/world/middleeast/29reuters-health-coronovirus-syria.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/29/world/middleeast/29reuters-health-coronovirus-syria.html?searchResultPosition=9
 
 **Reopening California**\
 `Wednesday: A look at the four phases state leaders laid out to lift stay-at-home orders. Also: Getting creative for gatherings.`\
-https://nytimes.com/2020/04/29/us/california-reopen-coronavirus.html?searchResultPosition=5
-
-**$1.3 Million Homes in Oregon, North Carolina and Georgia**\
-`A 1910 Craftsman in Portland, a modern house in Charlotte and an Italianate Victorian in Savannah.`\
-https://nytimes.com/2020/04/29/realestate/1-3-million-homes-in-oregon-north-carolina-and-georgia.html?searchResultPosition=6
-
-**What You Get for $1.3 Million**\
-`A 1910 Craftsman in Portland, Ore.; a modern house in Charlotte, N.C.; and an Italianate Victorian in Savannah, Ga.`\
-https://nytimes.com/slideshow/2020/04/29/realestate/what-you-get-for-1-3-million.html?searchResultPosition=7
-
-**How Do I Get My Neighbors to Respect Social Distancing?**\
-`Social distancing rules are evolving quickly, and our sense of safety often depends on how people around us interpret those rules.`\
-https://nytimes.com/2020/04/29/realestate/when-people-ignore-social-distancing-coronavirus.html?searchResultPosition=8
-
-**Alcohol Consumption Slightly Down Under Belgian Lockdown**\
-`A university research survey has found that alcohol consumption in Belgium is remaining mostly stable during the country's coronavirus lockdown, with only one out of four respondents saying they are drinking more while confined at home. `\
-https://nytimes.com/aponline/2020/04/29/world/europe/ap-eu-virus-outbreak-alcohol.html?searchResultPosition=9
-
-**Northern Chinese Region Including Beijing to Ease COVID-19 Curbs**\
-`A populous region in northern China that includes Beijing will ease restrictions imposed to halt the spread of the new coronavirus, as the country gradually transitions to a new state of normal amid dwindling cases of COVID-19.`\
-https://nytimes.com/reuters/2020/04/29/world/asia/29reuters-health-coronavirus-china-easing.html?searchResultPosition=10
+https://nytimes.com/2020/04/29/us/california-reopen-coronavirus.html?searchResultPosition=10
 
