@@ -31,6 +31,6 @@ https://nytimes.com/reuters/2020/04/29/sports/football/29reuters-football-nfl-co
 https://nytimes.com/2020/04/29/opinion/coronavirus-funerals-mourning.html?searchResultPosition=9
 
 **When Mourning Is at a Distance**\
-`More responses from letters to the editor about how readers have marked the deaths of loved ones: struggling with not saying goodbye, not being comforted in person, but also finding some solace in the collective virtual grieving.`\
+`In response to our query, readers discuss how they have marked the deaths of loved ones: struggling with not saying goodbye, not being comforted in person, but also finding some solace in the collective virtual grieving.`\
 https://nytimes.com/2020/04/29/opinion/letters/coronavirus-mourning.html?searchResultPosition=10
 
