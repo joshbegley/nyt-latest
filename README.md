@@ -19,7 +19,7 @@ https://nytimes.com/2020/04/29/nyregion/samuel-hargress-jr-dead-coronavirus.html
 https://nytimes.com/reuters/2020/04/29/world/middleeast/29reuters-health-coronavirus-syria-who.html?searchResultPosition=6
 
 **Two Dozen People Deported to Colombia on U.S. Flight Found to Have Coronavirus: Sources**\
-`About two dozen migrants deported from the United States on a flight to Colombia last month have tested positive for the new coronavirus, two people familiar with the matter said, adding to worries that U.S. deportations are helping spread the disease.`\
+`About two dozen migrants deported from the United States on a flight to Colombia last month have since tested positive for the new coronavirus, two people familiar with the matter said, adding to worries that U.S. deportations could be spreading the disease.`\
 https://nytimes.com/reuters/2020/04/29/world/americas/29reuters-health-coronavirus-usa-colombia.html?searchResultPosition=7
 
 **Joe Biden Says He'd Leave US Embassy in Jerusalem if Elected**\
