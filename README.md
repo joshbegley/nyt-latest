@@ -1,40 +1,40 @@
-**Indonesia Announces 260 Coronavirus Cases, 11 Deaths**\
-`Indonesia confirmed 260 new coronavirus infections on Wednesday, taking the total in the Southeast Asian nation to 9,771, said health ministry official Achmad Yurianto.`\
-https://nytimes.com/reuters/2020/04/29/world/asia/29reuters-health-coronavirus-indonesia.html?searchResultPosition=1
+**As Virus Infections Dwindle, Hong Kong Protests Gain Steam**\
+`Demonstrators chanted pro-democracy slogans in a luxury mall in Hong Kong on Wednesday, the latest in a string of small but determined protests as the city's coronavirus outbreak slows.`\
+https://nytimes.com/aponline/2020/04/29/world/asia/ap-as-virus-outbreak-hong-kong-protests.html?searchResultPosition=1
 
-**John Lewis Partnership Names Former Sainsbury's Director James Bailey as New Waitrose Boss**\
-`Britain's John Lewis Partnership [JLPLC.UL] has appointed James Bailey, a former director of Sainsbury's, to be the new boss of its upmarket supermarket chain Waitrose, it said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/29/business/29reuters-john-lewis-waitrose-boss.html?searchResultPosition=2
+**Poland Plans Revenue Surcharge on Netflix and Others**\
+`Poland plans to introduce a 1.5% surcharge on the revenue of video-on-demand platforms such as Netflix, Finance Minister Tadeusz Koscinski said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/29/arts/29reuters-poland-netflix-surcharge.html?searchResultPosition=2
 
-**Malaysia Reports 94 New Coronavirus Cases, No New Deaths**\
-`Malaysia reported 94 new coronavirus cases on Wednesday with no new deaths, the health ministry said. `\
-https://nytimes.com/reuters/2020/04/29/world/asia/29reuters-health-coronavirus-malaysia.html?searchResultPosition=3
+**The Hidden Feats That Built New York’s Towering Skyscrapers**\
+`The ingenuity of engineers helped build landmarks like Black Rock and the new supertalls. Our critic takes a virtual tour with Guy Nordenson.`\
+https://nytimes.com/2020/04/29/arts/design/new-york-virtual-tour-virus.html?searchResultPosition=3
 
-**Headset, Webcam Sales Boom at GN Store Nord, but Profits Drop**\
-`Sales at GN Store Nord's audio business jumped in the first quarter as demand for headsets and webcams from locked down workers soared, and the Danish company said the boom would continue as it caught up with the order backlog.`\
-https://nytimes.com/reuters/2020/04/29/technology/29reuters-gn-store-nord-results.html?searchResultPosition=4
+**When N.Y. Needed Hospital Space, Film Location Scouts Pitched In**\
+`Enterprising creatives like artists, photographers and students are using their unique skills to help the city through the pandemic.`\
+https://nytimes.com/2020/04/29/nyregion/coronavirus-nyc-volunteers-location-scouts.html?searchResultPosition=4
 
-**Poland to Reopen Hotels and Shopping Malls on May 4: PM**\
-`Poland will reopen hotels and shopping malls on May 4 while it will consider reopening pre-schools on May 6, Poland's Prime Minister Mateusz Morawiecki said on Wednesday, in a move to ease restrictions imposed to stop the spread of the coronavirus. `\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-poland-restrictions.html?searchResultPosition=5
+**Pandemic Shakes France’s Faith in a Cornerstone: Strong Central Government**\
+`Local governments are now challenging the primacy of the centralized state, the foundation of French society, after it allowed supplies of virus-fighting masks and test kits to be depleted.`\
+https://nytimes.com/2020/04/29/world/europe/coronavirus-france-masks.html?searchResultPosition=5
 
-**Auto Supplier Bosch Sees Global Car Production Down 20% in 2020**\
-`German auto supplier and technology company Robert Bosch [ROBG.UL] on Wednesday said it expected automotive production to fall by at least 20% this year, as the coronavirus pandemic slams the brakes on factory production lines and saps demand.`\
-https://nytimes.com/reuters/2020/04/29/business/29reuters-robert-bosch-results-2019.html?searchResultPosition=6
+**Their Met Gala, Their Way. You’re Invited.**\
+`A group of internet kids are about to hold the biggest fashion party of the year.`\
+https://nytimes.com/2020/04/29/fashion/coronavirus-met-gala-twitter.html?searchResultPosition=6
 
-**Volkswagen Sees Second-Quarter Operating Loss Over Coronavirus Impact**\
-`German carmaker Volkswagen is expecting an operating loss in the current quarter due the impact of the coronavirus pandemic, its chief financial officer said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/29/business/29reuters-volkswagen-results-q2.html?searchResultPosition=7
+**A Scramble for Virus Apps That Do No Harm**\
+`Dozens of tracking apps for smartphones are being used or developed to help contain the coronavirus pandemic. But there are worries about privacy and hastily written software.`\
+https://nytimes.com/2020/04/29/business/coronavirus-cellphone-apps-contact-tracing.html?searchResultPosition=7
 
-**VW Car Sales, Earnings Plunge During Coronavirus Crisis**\
-`Automaker Volkswagen saw car sales and operating profit plunge in the first quarter as the coronavirus outbreak closed dealerships and halted production. `\
-https://nytimes.com/aponline/2020/04/29/business/bc-eu-germany-earns-volkswagen.html?searchResultPosition=8
+**Drawing Places, Capturing Memories**\
+`The writer learns to step away from life filtered through a camera and catches memories with pencil and paper.`\
+https://nytimes.com/2020/04/29/travel/travel-photography.html?searchResultPosition=8
 
-**Ryder Cup May Have to 'Take One for Team' and Go Ahead Without Fans: Harrington**\
-`Staging this year's Ryder Cup without fans is not in the event's best interests but it might have to "take one for the team" and proceed that way amid the COVID-19 crisis, Team Europe captain Padraig Harrington told The Times newspaper.`\
-https://nytimes.com/reuters/2020/04/29/sports/golf/29reuters-health-coronavirus-golf-rydercup.html?searchResultPosition=9
+**Obstacles and Opportunities for the Aviation Industry**\
+`With air travel in turmoil during the pandemic, businesses pivot toward new avenues.`\
+https://nytimes.com/2020/04/29/business/smallbusiness/aviation-coronovirus-impact.html?searchResultPosition=9
 
-**Philippines' Coronavirus Infections Breach 8,000 Mark**\
-`The Philippines' health ministry said on Wednesday that confirmed cases of the new coronavirus in the country have risen to more than 8,000.`\
-https://nytimes.com/reuters/2020/04/29/world/asia/29reuters-health-coronavirus-philippines-cases.html?searchResultPosition=10
+**Create Your Own Digital Comics Whether You Can Draw or Not**\
+`Even if you can’t draw a stick person, you can still express yourself and tell stories through the time-honored tradition of sequential art.`\
+https://nytimes.com/2020/04/29/technology/personaltech/create-your-own-digital-comics-whether-you-can-draw-or-not.html?searchResultPosition=10
 
