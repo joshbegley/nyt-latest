@@ -24,7 +24,7 @@ https://nytimes.com/aponline/2020/04/28/us/politics/ap-us-election-2020-amash.ht
 
 **Filtered Coffee May Be Especially Good for Heart Health**\
 `Coffee put through a paper filter had enhanced benefits compared to methods like French press or espresso.`\
-https://nytimes.com/2020/04/28/well/eat/filtered-coffee-may-be-especially-good-for-heart-health.html?searchResultPosition=7
+https://nytimes.com/2020/04/28/well/eat/filtered-coffee-heart-health-benefits.html?searchResultPosition=7
 
 **Justin Amash Moves Toward a Third-Party Bid for President**\
 `Mr. Amash, an independent congressman from Michigan who left the Republican Party last year, said he was exploring running as a Libertarian, adding new volatility to the race.`\
