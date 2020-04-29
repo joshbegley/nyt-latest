@@ -1,40 +1,40 @@
+**TikTok, Gates Pledge $20 Million to Help Africa Tackle COVID-19**\
+`The social media platform TikTok and the philanthropic Gates Foundation donated $10 million each on Wednesday to the vaccine alliance GAVI to help fund efforts to tackle the COVID-19 pandemic in Africa.`\
+https://nytimes.com/reuters/2020/04/29/technology/29reuters-health-coronavirus-gavi-tiktok.html?searchResultPosition=1
+
 **GE Revenue Falls 7.6% as Coronavirus Crisis Takes Toll**\
 `General Electric Co reported a 7.6% drop in first-quarter revenue, hurt by weakness in its aviation and power units due to the coronavirus pandemic, and fell short of its own free cash flow targets for the quarter.`\
-https://nytimes.com/reuters/2020/04/29/business/29reuters-general-electric-results.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/04/29/business/29reuters-general-electric-results.html?searchResultPosition=2
 
 **Sports Must First Resume Safely at Lower Levels, WHO Expert Says**\
 `It will be easier to bring back community level sport such as Parkruns as the coronavirus lockdowns are eased than bigger events due to the risk of travel from larger gatherings, a member of a World Health Organization expert group said.`\
-https://nytimes.com/reuters/2020/04/29/sports/rugby/29reuters-health-coronavirus-sport-mccloskey.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/29/sports/rugby/29reuters-health-coronavirus-sport-mccloskey.html?searchResultPosition=3
 
 **Face Masks and a Factory Redesign: How Bentley Plans Reduced Return to Work**\
 `Bentley will make wearing face masks compulsory at its British car factory and has introduced a two-metre distance between workers which will result in output halving over the first couple of weeks of production, its boss told Reuters.`\
-https://nytimes.com/reuters/2020/04/29/business/29reuters-health-coronavirus-bentley.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/29/business/29reuters-health-coronavirus-bentley.html?searchResultPosition=4
 
 **U.S. SEC Investigates Luckin Coffee Over Accounting Scandal: WSJ**\
 `The U.S. Securities and Exchange Commission is investigating Luckin Coffee Inc for fabricating millions of dollars worth of sales deals last year, the Wall Street Journal reported https://on.wsj.com/3eYO4Kx on Wednesday citing people familiar with the matter. `\
-https://nytimes.com/reuters/2020/04/29/business/29reuters-luckin-investigation.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/29/business/29reuters-luckin-investigation.html?searchResultPosition=5
 
 **Spotify Paid Music Subscribers Rises to 130 Million, Quarterly Revenue Jumps 22%**\
 `Spotify Technology SA reported a 22% jump in first-quarter revenue on Wednesday as the music streaming company beat analysts' expectations to reach 130 million paid subscribers for its premium service.    `\
-https://nytimes.com/reuters/2020/04/29/technology/29reuters-spotify-tech-results.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/29/technology/29reuters-spotify-tech-results.html?searchResultPosition=6
 
 **Most of Spain Has Virus Contagion 'R' Number Below One: Health Official**\
 `Almost all areas of Spain have a ratio of contagion per patient, dubbed the 'R' number, below 1, head of health emergencies Fernando Simon said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-spain-contagion.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-spain-contagion.html?searchResultPosition=7
 
 **Wirecard Slides Again After Short Seller Demands CEO's Head**\
 `Shares in Wirecard slumped again on Wednesday as a prominent short seller demanded the sacking of CEO Markus Braun after a special audit of the German payments company was unable to verify its financial statements.`\
-https://nytimes.com/reuters/2020/04/29/business/29reuters-wirecard-auditor-report.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/04/29/business/29reuters-wirecard-auditor-report.html?searchResultPosition=8
 
 **5 Things to Know Today-That Aren't About the Virus**\
 `Your daily look at nonvirus stories in the news:`\
-https://nytimes.com/aponline/2020/04/29/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/04/29/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=9
 
 **German SWAT Team Member Killed in Drug Raid Shooting**\
 `German authorities say a police SWAT team member was shot and killed during a drug raid in the western city of Gelsenkirchen.`\
-https://nytimes.com/aponline/2020/04/29/world/europe/ap-eu-germany-officer-killed.html?searchResultPosition=9
-
-**Ruling on UBS French Tax Case Appeal Could Be Postponed to Next Year: Chairman**\
-`A court decision on UBS's appeal of its 4.5 billion euro ($4.89 billion) French tax case penalty could be postponed until next year due to the coronavirus pandemic, the Swiss bank's chairman said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/29/business/29reuters-ubs-group-agm.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/29/world/europe/ap-eu-germany-officer-killed.html?searchResultPosition=10
 
