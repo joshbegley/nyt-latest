@@ -22,7 +22,7 @@ https://nytimes.com/2020/04/29/opinion/coronavirus-baby-boomers.html?searchResul
 `Opposition Labour leader Keir Starmer said on Wednesday that according to his calculations 27,241 people had died in Britain from COVID-19.`\
 https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-britain-starmer.html?searchResultPosition=6
 
-**Mayor Breaks Up Crowd at Rabbi’s Funeral: Live Updates**\
+**Mayor Breaks Up Crowd at Rabbi’s Funeral: Latest Updates**\
 `Mayor Bill de Blasio called the gathering in Williamsburg, Brooklyn, “absolutely unacceptable,” but some leaders accused him of a double standard.`\
 https://nytimes.com/2020/04/29/nyregion/coronavirus-new-york-update.html?searchResultPosition=7
 
