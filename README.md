@@ -1,10 +1,10 @@
-**IAG Shares Fall After Warning Over Slow Recovery**\
-`Shares in airline group IAG fell 3% after the airline group launched a plan to shrink its main British Airways business, axing staff numbers by a quarter as it warned of a slow recovery from the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/04/29/business/29reuters-health-coronavirus-iag.html?searchResultPosition=1
-
 **Irrfan Khan, of 'Slumdog Millionaire,' 'Life of Pi,' Dies**\
 `Irrfan Khan, a veteran character actor in Bollywood movies and one of India's most well-known exports to Hollywood, has died. He was 54.`\
-https://nytimes.com/aponline/2020/04/29/world/asia/ap-as-india-obit-irrfan-khan.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/04/29/world/asia/ap-as-india-obit-irrfan-khan.html?searchResultPosition=1
+
+**IAG Shares Fall After Warning Over Slow Recovery**\
+`Shares in airline group IAG fell 3% after the airline group launched a plan to shrink its main British Airways business, axing staff numbers by a quarter as it warned of a slow recovery from the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/04/29/business/29reuters-health-coronavirus-iag.html?searchResultPosition=2
 
 **BerGenBio Shares More Than Double on COVID-19 Drug Trial News**\
 `Shares of Norwegian pharmaceutical company BerGenBio rose nearly 160% on Wednesday after news that a drug it is developing has been selected for a British trial of potential COVID-19 treatments.`\
