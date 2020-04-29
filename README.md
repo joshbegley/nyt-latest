@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/04/29/business/ap-financial-markets-box.html?searchResultPosition=2
 
 **Fed Chair to Congress: Do Whatever It Takes to Keep the Economy From Collapse**\
-`It’s a striking reversal of the usual relationship between elected officials and an independent central banker.`\
+`It’s a striking reversal of the usual relationship between elected officials and independent central bankers.`\
 https://nytimes.com/2020/04/29/upshot/fed-powell-economy-pandemic.html?searchResultPosition=3
 
 **Just Spit and Wait: New Coronavirus Test Offers Advantages**\
