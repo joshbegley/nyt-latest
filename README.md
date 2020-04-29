@@ -26,7 +26,7 @@ https://nytimes.com/reuters/2020/04/29/business/29reuters-astrazeneca-results.ht
 `Jake Murphy expected this summer to be his showcase for college coaches, a chance to catch an eye, hopefully earn a Division I basketball scholarship.`\
 https://nytimes.com/aponline/2020/04/29/sports/ncaabasketball/ap-bkc-virus-outbreak-mid-level-recruits.html?searchResultPosition=7
 
-**Next Sales Slump After Stores Shuttered in Coronavirus Lockdown**\
+**British Retailer Next Says Quarterly Sales Plunge 41%**\
 `British clothing retailer Next said on Wednesday total product sales in its latest quarter crashed 41%, reflecting the closure of all its stores in the coronavirus lockdown and the temporary shutdown of its online operations.`\
 https://nytimes.com/reuters/2020/04/29/business/29reuters-health-coronavirus-next.html?searchResultPosition=8
 
