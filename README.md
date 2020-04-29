@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/04/28/us/politics/ap-us-election-2020-amash.ht
 https://nytimes.com/2020/04/28/well/eat/filtered-coffee-may-be-especially-good-for-heart-health.html?searchResultPosition=2
 
 **Justin Amash Moves Toward a Third-Party Bid for President**\
-`Mr. Amash, an independent congressman from Michigan who left the Republican Party last year, announced that he was moving to seek the Libertarian Party’s nomination, adding new volatility to the race.`\
+`Mr. Amash, an independent congressman from Michigan who left the Republican Party last year, said he was exploring running as a Libertarian, adding new volatility to the race.`\
 https://nytimes.com/2020/04/28/us/politics/justin-amash-president.html?searchResultPosition=3
 
 **Mfume to Return to Congress, Succeeding Elijah Cummings**\
