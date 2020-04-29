@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-health-coronavirus-c
 `The Mexican American Legal Defense and Educational Fund has sued the federal government over its denial of coronavirus relief payments to U.S. citizens who are married to immigrants without social security numbers. `\
 https://nytimes.com/aponline/2020/04/28/business/ap-us-coronavirus-relief-immigrants.html?searchResultPosition=7
 
-**Australia's Crown Resorts Says Blackstone Bought Near 10% of Its Shares**\
-`Australia's Crown Resorts Ltd said on Wednesday that U.S. private equity firm Blackstone Group Inc had bought some of its shares from Macau casino operator Melco Resorts & Entertainment Ltd.`\
+**Blackstone Buys $360 Million Stake in Australia's Crown Resorts; Shares Soar**\
+`Australia's Crown Resorts Ltd said on Wednesday that U.S. private equity firm Blackstone Group Inc had bought all of its shares held by Macau casino operator Melco Resorts & Entertainment Ltd, sending its share price soaring.`\
 https://nytimes.com/reuters/2020/04/28/world/asia/28reuters-crown-resorts-equity-blackstone-group.html?searchResultPosition=8
 
 **Mexico's Registers 1,223 New Coronavirus Cases, 135 Deaths**\
