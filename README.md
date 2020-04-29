@@ -1,40 +1,40 @@
-**China's Virus-Hit Box Office Faces Losses of Over $42 Billion: State Media**\
-`China's movie box office faces losses of more than 300 billion yuan ($42.43 billion) this year after the coronavirus epidemic forced theatres to shut and the production and distribution of films to be suspended, state media reported on Wednesday. `\
-https://nytimes.com/reuters/2020/04/29/arts/29reuters-health-coronavirus-china-movie.html?searchResultPosition=1
+**Fire at Construction Site Kills at Least 8 in South Korea, With More Feared Dead**\
+`The death toll is expected to rise with many workers believed to be missing inside a warehouse filled with toxic gas.`\
+https://nytimes.com/2020/04/29/world/asia/fire-south-korea-warehouse.html?searchResultPosition=1
+
+**Soccer: French League Facing Tough Choices After Season Abandoned**\
+`The French football league is facing a number of issues such as who gets to be named champions, who gets promoted and relegated after the Ligue 1 and Ligue 2 seasons were ended amid the COVID-19 crisis with 10 games left.`\
+https://nytimes.com/reuters/2020/04/29/sports/soccer/29reuters-health-coronavirus-soccer-france.html?searchResultPosition=2
+
+**Fly-Past, Flags on Rooftops Mark Israel's Independence Day Under Lockdown**\
+`Military jets flew in formation over Tel Aviv's deserted parks and streets on Wednesday, cheered on from rooftops by flag-waving residents in face masks as Israel marked its independence day under lockdown.`\
+https://nytimes.com/reuters/2020/04/29/world/middleeast/29reuters-health-coronavirus-israel-independence-day.html?searchResultPosition=3
+
+**China's Virus-Hit Box Office Faces Losses of Over $4.2 Billion: State Media**\
+`China's movie box office faces losses of more than 30 billion yuan ($4.24 billion) this year after the coronavirus epidemic forced theatres to shut and the production and distribution of films to be suspended, state media reported on Wednesday. `\
+https://nytimes.com/reuters/2020/04/29/arts/29reuters-health-coronavirus-china-movie.html?searchResultPosition=4
 
 **The BoE's Mission Impossible-Predicting the Scale of a COVID Recession**\
 `The Bank of England faces the nearly impossible task of putting numbers on the scale of the coronavirus recession next week, when it must also decide whether to expand its already huge 645 billion pound bond-buying programme.`\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-britain-boe.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-britain-boe.html?searchResultPosition=5
 
 **UK Watchdog Delays Libor Transition Deadline for Loans**\
 `Britain's markets watchdog said it has extended the cut off date for ending the use of the Libor interest rate benchmark in new loans until the end of March next year due to the pandemic.`\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-britain-libor.html?searchResultPosition=3
-
-**Spain's Daily Coronavirus Death Toll Rises to 325**\
-`Spain recorded 325 deaths from the novel coronavirus overnight, up from 301 reported the previous day, the health ministry said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-spain.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-britain-libor.html?searchResultPosition=6
 
 **The Latest: Spanish Vuelta Won’t Start in the Netherlands**\
 `The Latest on the effects of the coronavirus outbreak on sports around the world:`\
-https://nytimes.com/aponline/2020/04/29/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/04/29/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=7
+
+**Spain's Daily Coronavirus Death Toll Rises to 325**\
+`Spain recorded 325 deaths from the novel coronavirus overnight, up from 301 reported the previous day, the health ministry said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-spain.html?searchResultPosition=8
 
 **Poland's PM Calls on Senate to Speed Up Work on Election Legislation**\
 `Poland's Prime Minister Mateusz Morawiecki has called on the upper house of the parliament, the Senate, to speed up work that would enable holding the presidential election on May 10 via a postal vote. `\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-poland-election.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-poland-election.html?searchResultPosition=9
 
 **It’s a Boy: Boris Johnson and Carrie Symonds Announce Birth of 1st Child**\
 `The prime minister of Britain and Ms. Symonds, who both recently battled the coronavirus, have said they planned to be married this summer.`\
-https://nytimes.com/2020/04/29/world/europe/boris-johnson-baby.html?searchResultPosition=7
-
-**IOC Official Disagrees COVID-19 Vaccine Needed for Olympics**\
-`The head of the IOC’s coordination commission for the Tokyo Olympics said Wednesday he disagrees with suggestions by some scientists and doctors that a vaccine for COVID-19 is needed to hold the games.`\
-https://nytimes.com/aponline/2020/04/29/sports/olympics/ap-oly-tokyo-vaccine.html?searchResultPosition=8
-
-**Lockdown Forces Spain's Property Market to Modernise**\
-`Spain's lockdown is dragging one of Europe's older-fashioned property markets into the 21st century, with estate agents scrambling to offer virtual visits and notaries lobbying to legalise e-signatures to offset a near-total halt of business.`\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-spain-real-estate.html?searchResultPosition=9
-
-**Your Wednesday Briefing**\
-`Coronavirus, Justin Amash, Irrfan Khan: Here’s what you need to know.`\
-https://nytimes.com/2020/04/29/briefing/coronavirus-justin-amash-irrfan-khan.html?searchResultPosition=10
+https://nytimes.com/2020/04/29/world/europe/boris-johnson-baby.html?searchResultPosition=10
 
