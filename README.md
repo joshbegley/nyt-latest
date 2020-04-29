@@ -1,36 +1,36 @@
+**Favre: Rodgers 'Surprised' by Packers' Decision to Take Love**\
+`Former Packers quarterback Brett Favre says Aaron Rodgers was surprised by Green Bay’s decision to draft a quarterback in the first round.`\
+https://nytimes.com/aponline/2020/04/29/sports/football/ap-fbn-packers-favre.html?searchResultPosition=2
+
+**Is Justin Amash a Threat to Biden or to Trump?**\
+`Democrats shouldn’t freak out just yet. It’s just as likely that in November he could hurt the president.`\
+https://nytimes.com/2020/04/29/opinion/justin-amash-president.html?searchResultPosition=3
+
+**Baseball Hall of Fame Cancels Induction Ceremony**\
+`Derek Jeter, Larry Walker and the rest of this year's Baseball Hall of Fame class will have to wait another year for their big moment at Cooperstown.`\
+https://nytimes.com/aponline/2020/04/29/sports/baseball/ap-bbo-hall-of-fame-induction-ceremonies-canceled.html?searchResultPosition=4
+
+**Police: Man Killed in Shootout With Officers in Traffic Stop**\
+`Police officers in Florida fatally shot a man who fired at them during a late night traffic stop, authorities said.`\
+https://nytimes.com/aponline/2020/04/29/us/ap-us-deadly-police-shooting-florida-1st-ld-writethru.html?searchResultPosition=5
+
 **Ricardo Brennand, Brazilian Entrepreneur and Collector, Dies at 92**\
 `He amassed a vast trove of art and artifacts and built a castle-like repository so the public could see it, partly because his family wasn’t happy with his collecting.`\
-https://nytimes.com/2020/04/29/obituaries/ricardo-brennand-dead-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2020/04/29/obituaries/ricardo-brennand-dead-coronavirus.html?searchResultPosition=6
 
 **Biden Weighs Naming Cabinet Officials Before Election, Including Republicans**\
 `Democratic presidential candidate Joe Biden said on Wednesday he would consider announcing the names of some cabinet officials before the election - and that some of the people might be Republicans.`\
-https://nytimes.com/reuters/2020/04/29/us/politics/29reuters-usa-election-biden.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/29/us/politics/29reuters-usa-election-biden.html?searchResultPosition=7
 
 **Small Protests Break Out in Lebanese Cities in Third Night of Unrest**\
 `Small protests fueled by worsening economic conditions in Lebanon broke out across several cities late on Wednesday, marking a third night of unrest.`\
-https://nytimes.com/reuters/2020/04/29/world/middleeast/29reuters-lebanon-crisis-protests.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/29/world/middleeast/29reuters-lebanon-crisis-protests.html?searchResultPosition=8
 
 **Microsoft's Cloud Business Helps Offset Pandemic Woes**\
 `Ongoing demand for Microsoft's cloud computing services help softened the blow of the coronavirus pandemic on the software giant's other products during the first three months of the year. `\
-https://nytimes.com/aponline/2020/04/29/business/ap-us-microsoft-results.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/04/29/business/ap-us-microsoft-results.html?searchResultPosition=9
 
 **Barney Ales, Indispensable Motown Executive, Is Dead at 85**\
 `In the 1960s, he promoted the black-owned company’s music to the white-dominated music industry, helping to make it a ubiquitous force in American pop culture.`\
-https://nytimes.com/2020/04/29/arts/music/barney-ales-dead.html?searchResultPosition=6
-
-**The Coronavirus Stimulus Package Is a Mess**\
-`Congress gets an A+ for speed but a B- for quality.`\
-https://nytimes.com/2020/04/29/opinion/coronavirus-stimulus.html?searchResultPosition=7
-
-**Democratic Frustration Mounts as Biden Remains Silent on Sexual Assault Allegation**\
-`Activists and women’s rights advocates have urged Mr. Biden to address a former aide’s allegation that he sexually assaulted her in 1993. His lack of response has angered them.`\
-https://nytimes.com/2020/04/29/us/politics/tara-reade-joe-biden.html?searchResultPosition=8
-
-**Formula One Hails Britain's Fundraising Hero 'Captain Tom'**\
-`Formula One teams and drivers have sent 100th birthday congratulations to Captain Tom Moore, the World War Two veteran whose own laps have raised more than 29 million pounds ($36.13 million) for Britain's National Health Service.`\
-https://nytimes.com/reuters/2020/04/29/sports/autoracing/29reuters-health-coronavirus-britain-veteran-f1.html?searchResultPosition=9
-
-**Modern Love Podcast: Daisy Edgar-Jones Reads ‘Years Ago, My Sister Vanished. I See Her Whenever I Want.’**\
-`The “Normal People” star reads an essay about the benefits and detriments of legacies online.`\
-https://nytimes.com/2020/04/29/style/modern-love-podcast-daisy-edgar-jones.html?searchResultPosition=10
+https://nytimes.com/2020/04/29/arts/music/barney-ales-dead.html?searchResultPosition=10
 
