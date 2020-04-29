@@ -2,13 +2,13 @@
 `Britain's markets watchdog said it has extended the cut off date for ending the use of the Libor interest rate benchmark in new loans until the end of March next year due to the pandemic.`\
 https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-britain-libor.html?searchResultPosition=1
 
-**Spain's Daily Coronavirus Death Toll Rises to 325**\
-`Spain recorded 325 deaths from the novel coronavirus overnight, up from 301 reported the previous day, the health ministry said on Wednesday.`\
-https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-spain.html?searchResultPosition=2
-
 **The Latest: Spanish Vuelta Won’t Start in the Netherlands**\
 `The Latest on the effects of the coronavirus outbreak on sports around the world:`\
-https://nytimes.com/aponline/2020/04/29/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/04/29/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=2
+
+**Spain's Daily Coronavirus Death Toll Rises to 325**\
+`Spain recorded 325 deaths from the novel coronavirus overnight, up from 301 reported the previous day, the health ministry said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/29/world/europe/29reuters-health-coronavirus-spain.html?searchResultPosition=3
 
 **Poland's PM Calls on Senate to Speed Up Work on Election Legislation**\
 `Poland's Prime Minister Mateusz Morawiecki has called on the upper house of the parliament, the Senate, to speed up work that would enable holding the presidential election on May 10 via a postal vote. `\
