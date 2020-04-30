@@ -1,36 +1,36 @@
-**Tennis: Germany's Brown Heads Cast as Live Action Resumes**\
-`The ATP and WTA Tours remain on hold because of the COVID-19 pandemic but professional tennis resumes on Friday with the first in a televised series of exhibition events in Germany.`\
-https://nytimes.com/reuters/2020/04/30/sports/tennis/30reuters-health-coronavirus-tennis-germany.html?searchResultPosition=2
+**Funds Suggest Cutting Stocks, Expect U-Shaped Global Economic Recovery: Reuters Poll**\
+`Global funds recommended an increase in bond holdings to the highest level in seven years, at the expense of stocks, and said the recovery in the coronavirus-hit world economy will be U-shaped, a Reuters poll showed.`\
+https://nytimes.com/reuters/2020/04/30/business/30reuters-funds-global-poll.html?searchResultPosition=2
 
-**Comcast First-Quarter Broadband Growth Tops Views, Coronavirus Hurts Advertising**\
-`Comcast Corp on Thursday reported its best quarter of broadband net additions in 12 years, but revenue fell shy of Wall Street's estimate as the coronavirus pandemic hurt advertising.`\
-https://nytimes.com/reuters/2020/04/30/business/30reuters-comcast-results.html?searchResultPosition=3
+**ConocoPhillips Reports 58% Fall in Quarterly Profit**\
+`U.S. oil and gas company ConocoPhillips reported a 58% plunge in adjusted quarterly profit on Thursday, weighed down by lower output and an unprecedented plunge in crude prices.`\
+https://nytimes.com/reuters/2020/04/30/business/30reuters-conocophillips-results.html?searchResultPosition=3
 
-**Twitter Tops Sales Estimates, Sees Rebound From Asia's Eased Coronavirus Rules**\
-`Twitter Inc on Thursday said that its ads sales had slightly rebounded in Asia after a plunge due to the coronavirus outbreak and that it had accelerated work on tools to attract key advertisers, becoming the latest tech company to report a lighter blow from the pandemic than forecast.`\
-https://nytimes.com/reuters/2020/04/30/business/30reuters-twitter-results.html?searchResultPosition=4
+**Companies on China's STAR Hi-Tech Market Post Profit Growth Amid Pandemic**\
+`Companies listed on China's new Nasdaq-style STAR Market posted combined profit growth in the first quarter as Beijing looks to bolster its tech sector to aid an economy ravaged by the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/04/30/technology/30reuters-china-markets-star-board.html?searchResultPosition=4
 
-**Another Glut of US Unemployment Applications Is Expected**\
-`The U.S. government is expected Thursday to issue another bleak report on the layoffs that have cut through America’s workforce since the coronavirus forced businesses across the country to shut down starting last month.`\
-https://nytimes.com/aponline/2020/04/30/business/bc-us-virus-outbreak-unemployment-benefits.html?searchResultPosition=5
+**Police: 4 Amish Children Killed, 1 Missing in Buggy Accident**\
+`Authorities in Kentucky said four children died and one is missing after a buggy carrying an Amish family was swept away in the current while trying to cross a low-water bridge.`\
+https://nytimes.com/aponline/2020/04/30/us/ap-us-amish-children-killed-buggy-accident-1st-ld-writethru.html?searchResultPosition=5
 
-**Dozens of Bodies Found in Trucks at Brooklyn Funeral Home: Latest Updates**\
-`It was not clear how many of the bodies were of victims of the coronavirus, but the city’s death-care system has been under strain.`\
-https://nytimes.com/2020/04/30/nyregion/coronavirus-new-york-update.html?searchResultPosition=6
+**While at Home, Let’s Color the World**\
+`With the coronavirus confining people to their homes, coloring books for both children and adults have experienced a renewed popularity. Here are some pages inspired by a few of our favorite travel photos.`\
+https://nytimes.com/2020/04/30/travel/coloring-books.html?searchResultPosition=6
 
-**Bodies Found in Unrefrigerated Trucks in New York During COVID-19 Pandemic**\
-`The city of New York delivered a freezer truck to a funeral home on Wednesday after it was found to be storing dead bodies in unrefrigerated U-Haul vehicles, a Reuters eyewitness said.`\
-https://nytimes.com/reuters/2020/04/30/us/30reuters-health-coronavirus-usa-new-york.html?searchResultPosition=7
+**I’m Sorry**\
+`What story does this image inspire for you?`\
+https://nytimes.com/2020/04/30/learning/im-sorry.html?searchResultPosition=7
 
-**McDonald's Profit Slides as Restaurants Limit Services**\
-`McDonald's Corp reported a 16.7% slide in quarterly profit on Thursday as most of its restaurants across the globe limited their services to deliveries and take-aways to halt the spread of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/30/business/30reuters-mcdonald-s-corp-results.html?searchResultPosition=8
+**Word + Quiz: chignon**\
+`This word has appeared in three articles on NYTimes.com in the past year.`\
+https://nytimes.com/2020/04/30/learning/word-quiz-chignon.html?searchResultPosition=8
 
-**Oil Prices Set for Deeper Fall in 2020, Even as Lockdowns Ease**\
-`Oil prices are headed for further falls this year even as countries ease restrictions related to the coronavirus crisis, while output cuts by top producers will do little to fix a supply glut, a Reuters poll showed on Thursday.`\
-https://nytimes.com/reuters/2020/04/30/business/30reuters-oil-prices.html?searchResultPosition=9
+**Prada Has Gradually Reopened Production From April 20, Will Use Antibody Tests**\
+`Italy's Prada said on Thursday it had gradually reopened production in several sites across Italy after almost two months of lockdown imposed to contain the spread of coronavirus.`\
+https://nytimes.com/reuters/2020/04/30/world/asia/30reuters-health-coronavirus-italy-prada.html?searchResultPosition=9
 
-**Long-Sought U.S. Labor Rule Change Raises Worker Safety Questions in Coronavirus Crisis**\
-`Some contract workers in America's fast food restaurants, hospitals and warehouses could find it harder to demand equipment and other measures to protect them from the coronavirus under a new labor agency rule, according to workers' advocates and unions.`\
-https://nytimes.com/reuters/2020/04/30/us/30reuters-health-coronavirus-usa-nlrb.html?searchResultPosition=10
+**Berlin's Battle Scars Linger 75 Years After Nazi Defeat**\
+`Germany has been forced to cancel public events to mark the 75th anniversary of the end of World War Two in Europe but Berliners need no ceremonies to remember their downfall - the scars of war are all around them.`\
+https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-ww2-anniversary-germany.html?searchResultPosition=10
 
