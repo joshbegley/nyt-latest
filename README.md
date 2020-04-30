@@ -30,7 +30,7 @@ https://nytimes.com/2020/04/29/sports/gymnastics-coach-banned-maggie-haney.html?
 `Caitlin Reid foots it to the intersection.`\
 https://nytimes.com/2020/04/29/crosswords/daily-puzzle-2020-04-30.html?searchResultPosition=9
 
-**A Strange Dinosaur May Have Swam the Rivers of Africa**\
+**A Strange Dinosaur May Have Swum the Rivers of Africa**\
 `The Spinosaurus possessed a long, powerful tail. Paleontologists think the dinosaur used that to propel itself through water.`\
 https://nytimes.com/2020/04/29/science/spinosaurus-dinosaur-tail-swimming.html?searchResultPosition=10
 
