@@ -1,36 +1,36 @@
-**Coronavirus No Excuse to Block Peace Monitoring in Eastern Ukraine: Foreign Ministers**\
-`The coronavirus epidemic must not be used as an excuse to hinder the work of international observers monitoring the ceasefire in force in Eastern Ukraine, German Foreign Minister Heiko Maas said on Thursday.`\
-https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-ukraine-crisis-osce.html?searchResultPosition=2
+**Biden Reaches Deal to Let Sanders Keep Hundreds of Delegates**\
+`Presumptive Democratic nominee Joe Biden has agreed to let former primary rival Bernie Sanders keep hundreds of delegates he would otherwise forfeit by dropping out of the presidential race in a deal designed to avoid the bitter feelings that marred the party in 2016 and helped lead to Hillary Clinton's defeat.`\
+https://nytimes.com/aponline/2020/04/30/us/politics/ap-us-election-2020-biden-sanders.html?searchResultPosition=2
 
-**Macy's to Reopen 68 Stores, Targets All Within Six Weeks**\
-`Macy's Inc plans to reopen 68 U.S. stores on Monday in states that have loosened coronavirus lockdowns, the department store operator said on Thursday, as more retailers sought to get business going after a crushing month of closures.`\
-https://nytimes.com/reuters/2020/04/30/business/30reuters-health-coronavirus-macy-s.html?searchResultPosition=3
+**Germany Wary of Lifting Lockdown, Despite Economic Pain**\
+`Politicians and scientists in Germany pushed back against calls for a rapid relaxation of pandemic restrictions as new figures released Thursday showed that businesses have applied for state aid to avoid slashing 10 million jobs because of the economic downturn.`\
+https://nytimes.com/aponline/2020/04/30/business/bc-eu-virus-outbreak-germany.html?searchResultPosition=3
 
-**US Intel: Coronavirus Not Manmade, Still Studying Lab Theory**\
-`U.S. intelligence agencies have concluded that the new coronavirus was “not manmade or genetically modified" but say they are still examining whether the origins of the pandemic trace to contact with infected animals or an accident at a Chinese lab.`\
-https://nytimes.com/aponline/2020/04/30/us/politics/ap-us-virus-outbreak-intelligence.html?searchResultPosition=4
+**U.S. FDA Moving With 'Lightning Speed' on Gilead's COVID-19 Drug: Bloomberg**\
+`The U.S. Food and Drug Administration is working at "lightning speed" to review data on Gilead Sciences Inc's experimental antiviral drug remdesivir in treating COVID-19 disease, the head of the agency told Bloomberg in an interview. `\
+https://nytimes.com/reuters/2020/04/30/us/30reuters-health-coronavirus-remdesivir-fda.html?searchResultPosition=4
 
-**Militants, Fringe Groups Exploiting COVID-19, Warns EU Anti-Terrorism Chief**\
-`The coronavirus pandemic is fuelling extremism on the far-right and far-left in Europe and giving Islamic State and other militants cover to regain influence, the European Union's counter-terrorism chief has warned.`\
-https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-health-coronavirus-eu-security.html?searchResultPosition=5
+**Arab Foreign Ministers Condemns Israeli Plan to Annex Parts of Occupied West Bank**\
+`Arab countries condemned Israel's plan to de facto annex parts of the occupied West Bank as a "new war crime" against Palestinians, the Arab League said in a statement after a video conference of Arab foreign ministers on Thursday.`\
+https://nytimes.com/reuters/2020/04/30/world/middleeast/30reuters-israel-palestinians-arabs.html?searchResultPosition=5
 
-**Renault Puts Historic Boulogne Property Up for Sale: Sources**\
-`Renault <RENA>PA> has put one of its historic buildings up for sale in Boulogne-Billancourt, the birthplace of the carmaker, to cut costs, three sources close to the company told Reuters.`\
-https://nytimes.com/reuters/2020/04/30/business/30reuters-renault-costs.html?searchResultPosition=6
+**Alice Trumbull Mason: America’s Forgotten Modernist**\
+`The first monograph of a painter’s painter brings a jolt of new insight and a confident show of her works’ mindfulness and beauty.`\
+https://nytimes.com/2020/04/30/arts/design/alice-trumbull-mason-painting.html?searchResultPosition=6
 
-**Vatican Closes Latest Probe Into Girl's 1983 Disappearance**\
-`The Vatican has formally closed its latest investigation into the 1983 disappearance of an employee’s 15-year-old daughter after digging up a Holy See cemetery in search of her remains.`\
-https://nytimes.com/aponline/2020/04/30/world/europe/ap-eu-rel-vatican-missing-girl.html?searchResultPosition=7
+**Mark Ruffalo Fights (and Comforts) Himself for ‘I Know This Much Is True’**\
+`The actor, who plays twin brothers in this new HBO series, and the director Derek Cianfrance discuss why this dark story of family bonds and mental illness is right for right now.`\
+https://nytimes.com/2020/04/30/arts/television/mark-ruffalo-i-know-this-much-is-true.html?searchResultPosition=7
 
-**VIRUS DIARY: In a Morning Run, a Tonic for Pandemic Anxiety**\
-`My alarm goes off shortly after 6 a.m. I’m usually up before then, lit by the glow of my iPhone, rifling through my inboxes, mindlessly scrolling feeds that don’t matter. `\
-https://nytimes.com/aponline/2020/04/30/us/ap-us-virus-outbreak-diary-running-from-home.html?searchResultPosition=8
+**‘Our Mothers’ Review: Uncovering Atrocities in Guatemala, Bone by Bone**\
+`A young anthropologist is on a mission in this feature debut from César Díaz.`\
+https://nytimes.com/2020/04/30/movies/our-mothers-review.html?searchResultPosition=8
 
-**Goldman Sachs Shareholders Vote to Approve Executive Compensation**\
-`Goldman Sachs Group Inc said Thursday at its annual shareholder meeting that 71% of votes were cast in favor of the bank's executive compensation policies for 2019, in preliminary tallies. `\
-https://nytimes.com/reuters/2020/04/30/business/30reuters-goldman-sachs-shareholder-meeting.html?searchResultPosition=9
+**Ukraine Says Still Far From 'All for All' Prisoner Swaps With Russia**\
+`Ukraine's Foreign Minister Dmytro Kuleba said on Thursday that Kiev and Moscow were still far from finalising a prisoner swap of all inmates.`\
+https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-ukraine-crisis-minister.html?searchResultPosition=9
 
-**Britain Confident of EU Deal This Year: Source**\
-`Britain is confident it can get a deal on its future ties with the European Union: London just needs Brussels to start treating the country as an independent negotiator, a source close to the British negotiating team said on Thursday.`\
-https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-britain-eu-confidence.html?searchResultPosition=10
+**New Slovakian Government Wins Mandatory Confidence Vote**\
+`Slovakia’s new government, which was faced with the immediate policy challenge of the coronavirus pandemic, won a mandatory confidence vote in Parliament on Thursday.`\
+https://nytimes.com/aponline/2020/04/30/world/europe/ap-eu-slovakia-new-government.html?searchResultPosition=10
 
