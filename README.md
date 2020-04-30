@@ -1,36 +1,36 @@
-**Virus Pushes the Bang on a Can Marathon Online**\
-`The beloved New York musical event was set to expand this year, but will instead be livestreamed on Sunday.`\
-https://nytimes.com/2020/04/30/arts/music/bang-on-a-can-marathon-coronavirus.html?searchResultPosition=2
+**JP Morgan Cuts Mexico 2020 GDP Forecast to - 8.4% From - 7.5%**\
+`Investment bank JP Morgan has cut its forecast for the Mexican economy in 2020 to a contraction of 8.4% from a contraction of 7.5%, it said in a document.`\
+https://nytimes.com/reuters/2020/04/30/world/americas/30reuters-mexico-economy-jpmorgan.html?searchResultPosition=2
 
-**‘We Have So Many Reasons to Be Hopeful,’ Johnson Says**\
-`Prime Minister Boris Johnson of Britain said that the country was “past the peak” of the coronavirus outbreak, but signaled that it was too soon to lift restrictions.`\
-https://nytimes.com/video/world/middleeast/100000007116040/coronavirus-britain-johnson.html?searchResultPosition=3
+**Crisis-Torn Airlines Scramble to Convert Empty Cabins to Cargo**\
+`Once the airline industry's ugly ducklings, air freighters are now flying high as some of the only airplanes still criss-crossing the skies during the global coronavirus crisis. `\
+https://nytimes.com/reuters/2020/04/30/world/americas/30reuters-health-coronavirus-aviation-maintenance.html?searchResultPosition=3
 
-**Live Webinar: The New York Times Summer Reading Contest**\
-`Join us on May 6 as The Learning Network discusses ways to keep teenagers reading, writing, thinking and learning on their own this summer.`\
-https://nytimes.com/2020/04/30/learning/live-webinar-the-new-york-times-summer-reading-contest.html?searchResultPosition=4
+**ADM Sees Increased Cardboard Demand, Weak Ethanol Use During Pandemic**\
+`The coronavirus pandemic is fueling demand for cardboard boxes - a boon for global food company Archer Daniels Midland Co's industrial starches business - as consumers rush to order goods online amid widespread shutdowns, company executives said onThursday.`\
+https://nytimes.com/reuters/2020/04/30/world/americas/30reuters-archer-daniels-results-call.html?searchResultPosition=4
 
-**Tech, Business and Consumer Groups Urge Aid to COVID 19-Hit U.S. Postal Service**\
-`More than 1,200 groups ranging from the Package Coalition, whose members include Amazon.com, to small town newspapers sent a letter to congressional leaders on Thursday urging support for the U.S. Postal Service, which was struggling before a pandemic slashed its revenues.`\
-https://nytimes.com/reuters/2020/04/30/us/30reuters-health-coronavirus-usps-support.html?searchResultPosition=5
+**Plans for Training First Step in Premier League's 'Project Restart'**\
+`Premier League clubs will discuss plans for resuming the season in a conference call on Friday but the practicalities of how to even begin training will be the first obstacle they have to overcome with "Project Restart".`\
+https://nytimes.com/reuters/2020/04/30/sports/soccer/30reuters-health-coronavirus-soccer-england.html?searchResultPosition=5
 
-**Bank of America Has 256,000 Loan Applications Ready for SBA**\
-`Bank of America Corp said on Thursday it has 256,000 loan applications ready to be processed by the Small Business Administration, a U.S. government agency that provides support to entrepreneurs and small businesses, as part of the Paycheck Protection Program.`\
-https://nytimes.com/reuters/2020/04/30/us/30reuters-bankofamerica-loans.html?searchResultPosition=6
+**U.S. State Department Approves Possible Attack Helicopter Sale to Philippines**\
+`The U.S. State Department has approved a possible sale to the Philippines of one of two attack helicopter variants, the Defense Security Cooperation Agency said on Thursday in an official notification to the U.S. Congress.`\
+https://nytimes.com/reuters/2020/04/30/world/asia/30reuters-usa-philippines-helicopter.html?searchResultPosition=6
 
-**Trump Fires New Volley in War of Words With Biden Over China**\
-`President Donald Trump's re-election campaign plans to roll out a new advertisement targeting Democratic opponent Joe Biden's record on China in must-win states for November's election, doubling down on a tough-on-China argument that helped his successful 2016 campaign.`\
-https://nytimes.com/reuters/2020/04/30/us/politics/30reuters-usa-election-china.html?searchResultPosition=7
+**Kia to Offer 'Job Loss Insurance' to New Car Buyers in Europe**\
+`Korean carmaker Kia plans to offer insurance in Europe which protects clients from having to make monthly payments on a new vehicle if they lose their job, a scheme designed to entice reticent customers back into showrooms after the coronavirus  shutdown. `\
+https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-health-coronavirus-kia-motors.html?searchResultPosition=7
 
-**U.N. Chief Laments Lack of Global Leadership in Coronavirus Fight**\
-`United Nations Secretary-General Antonio Guterres on Thursday lamented a lack of leadership by world powers and a divided international community in the fight against the coronavirus as he raised concern about inadequate support for poor countries.`\
-https://nytimes.com/reuters/2020/04/30/world/asia/30reuters-health-coronavirus-guterres.html?searchResultPosition=8
+**Hall of Famer Dawson Deals With Coronavirus as a Mortician**\
+`The man consoling mourners and directing his staff at Paradise Memorial Funeral Home might look familiar if he wasn't wearing a mask.`\
+https://nytimes.com/aponline/2020/04/30/sports/baseball/ap-bbn-dawsons-funeral-home.html?searchResultPosition=8
 
-**CDC Reports 1,031,659 Coronavirus Cases, 60,057 Deaths**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Thursday reported 1,031,659 cases of new coronavirus, an increase of 26,512 cases from its previous count, and said the number of deaths had risen by 2,552 to 60,057.`\
-https://nytimes.com/reuters/2020/04/30/us/30reuters-health-coronavirus-usa-cdc.html?searchResultPosition=9
+**‘There’s No Way We Can Bury or Cremate Them Fast Enough’**\
+`Bodies are being stacked in trucks and gravediggers are working around the clock as the coronavirus crisis overwhelms New York’s system for burying the dead.`\
+https://nytimes.com/2020/04/30/nyregion/coronavirus-nyc-funeral-home-morgue-bodies.html?searchResultPosition=9
 
-**Exclusive: Wells Fargo Shifts Energy Bankers to Focus on Bankruptcies**\
-`Wells Fargo & Co has revived its special group for bad energy loans in recent weeks as the bank braces for more pain from the sharp downturn in oil prices, people familiar with the matter told Reuters.`\
-https://nytimes.com/reuters/2020/04/30/business/30reuters-wells-fargo-energy-bad-loans-exclusive.html?searchResultPosition=10
+**Police to Build Levee in Search for Missing Missouri Woman**\
+`A levee will be built on a river in Missouri where police have previously searched for the body of a missing Chinese woman.`\
+https://nytimes.com/aponline/2020/04/30/us/ap-us-missing-woman-levee-1st-ld-writethru.html?searchResultPosition=10
 
