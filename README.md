@@ -1,5 +1,5 @@
 **Pence Visits Ventilator Plant in Indiana, This Time Wearing a Mask**\
-`The vice president had been sharply criticized for visiting the Mayo Clinic earlier in the week and violating its requirement to wear one.`\
+`The vice president had been sharply criticized for visiting the Mayo Clinic this week and violating its requirement to wear one.`\
 https://nytimes.com/2020/04/30/us/politics/coronavirus-pence-mask.html?searchResultPosition=2
 
 **Kremlin Questions Reliability of Coronavirus Allegations by Junior Medic**\
