@@ -1,36 +1,36 @@
+**AP Exclusive: NFL Being 'Deliberate, Reasonable' With Plans**\
+` The NFL is planning to play a full season though it’s uncertain what that will look like.`\
+https://nytimes.com/aponline/2020/04/30/sports/football/ap-fbn-nfl-schedule-vincent.html?searchResultPosition=2
+
+**Milwaukee Man Charged With Killing 5 Family Members**\
+`A Milwaukee man shot and killed five of his family members, including four teenagers, before calling police and saying “I just massacred my whole family,” according to a criminal complaint filed Thursday.`\
+https://nytimes.com/aponline/2020/04/30/us/ap-us-milwaukee-shooting.html?searchResultPosition=3
+
+**Apple Reports Higher Sales as China Reopens After Coronavirus but Gives No Forecast**\
+`Apple Inc reported sales and profits that beat Wall Street expectations Thursday, with Chief Executive Officer Tim Cook saying China sales were "headed in the right direction" as that country reopens from the novel coronavirus.`\
+https://nytimes.com/reuters/2020/04/30/business/30reuters-apple-results.html?searchResultPosition=4
+
+**Gilead Aims to Expand Remdesivir Output for COVID-19, Posts Flat First-Quarter Results**\
+`Gilead Sciences Inc, maker of the experimental coronavirus drug remdesivir, on Thursday reported flat first-quarter earnings and said it with work with international partners to expand production of potential COVID-19 treatment.`\
+https://nytimes.com/reuters/2020/04/30/business/30reuters-gilead-sciences-results.html?searchResultPosition=5
+
 **Pass the Plate? Not Yet, as Churches Rethink Their Routines**\
 `It's almost unheard of to go into a Southern Baptist church and not have a plate passed for donations. `\
-https://nytimes.com/aponline/2020/04/30/us/ap-us-virus-outbreak-churches-1st-ld-writethru.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/04/30/us/ap-us-virus-outbreak-churches-1st-ld-writethru.html?searchResultPosition=6
 
 **Local journalism helps tell the full story**\
 `Local journalism is in crisis and at risk of disappearing.`\
-https://nytimes.com/interactive/2020/us/support-local-journalism.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/us/support-local-journalism.html?searchResultPosition=7
 
 **Republicans Step Up Attacks Over Tara Reade as Pelosi Defends Biden**\
 `Nancy Pelosi sought to calm her party, calling Joe Biden a person of “great integrity,” while Republicans accused congressional Democrats of hypocrisy on the issue.`\
-https://nytimes.com/2020/04/30/us/politics/joe-biden-tara-reade-pelosi.html?searchResultPosition=4
+https://nytimes.com/2020/04/30/us/politics/joe-biden-tara-reade-pelosi.html?searchResultPosition=8
 
 **Wells Fargo to Stop Granting Home Equity Lines Amid Uncertainty: Sources**\
 `Wells Fargo & Co said on Thursday it will temporarily stop accepting applications for home equity loans given the economic uncertainty fueled by the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/04/30/us/30reuters-health-coronavirus-wells-fargo-mortgages.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/30/us/30reuters-health-coronavirus-wells-fargo-mortgages.html?searchResultPosition=9
 
 **Amazon Forecasts Second-Quarter Operating Income Below Estimates**\
 `Amazon.com Inc on Thursday forecast second-quarter profit below estimates, as the e-commerce company spent more on hiring workers and their pay due to a surge in online shopping during the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/04/30/business/30reuters-amazon-com-results.html?searchResultPosition=6
-
-**The Sun Is Less Active Than Similar Stars. That's Good News**\
-`The sun appears to be far less active than similar stars in terms of brightness variations caused by sunspots and other phenomena - a "boring" personality, according to scientists, that may not be a bad thing for us Earthlings.`\
-https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-space-exploration-sun.html?searchResultPosition=7
-
-**Minnesota Nursing Home Reports 47 Deaths From Coronavirus**\
-`A suburban Minneapolis nursing home said 47 residents have died from complications of COVID-19, the most at any long-term care facility in Minnesota.`\
-https://nytimes.com/aponline/2020/04/30/us/ap-us-virus-outbreak-minnesota-nursing-home-1st-ld-writethru.html?searchResultPosition=8
-
-**Molson Coors, Tapestry Fall; Tesla, Facebook Rise**\
-`Stocks that moved heavily or traded substantially on Thursday:`\
-https://nytimes.com/aponline/2020/04/30/business/ap-financial-markets-stocks.html?searchResultPosition=9
-
-**UN Chief: World Should Follow South Korea on COVID-19 Fight**\
-`The United Nations chief said Thursday he hopes many countries in the world will follow the “remarkable example” of South Korea, which he said has been “extremely successful” in addressing the coronavirus pandemic and is planning to tackle climate change in its recovery from COVID-19.`\
-https://nytimes.com/aponline/2020/04/30/world/ap-un-virus-outbreak-un-south-korea-example.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/30/business/30reuters-amazon-com-results.html?searchResultPosition=10
 
