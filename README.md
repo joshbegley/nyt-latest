@@ -2,7 +2,7 @@
 `Telecoms operator Orange posted higher revenues for the first quarter on Thursday, as business in its French home market improved despite the onset of the coronavirus crisis that dented its equipment sales. `\
 https://nytimes.com/reuters/2020/04/30/technology/30reuters-orange-results.html?searchResultPosition=2
 
-**Latest on the Spread of the Coronavirus Around the World**\
+**Factbox: Latest on the Spread of the Coronavirus Around the World**\
 `More than 3.19 million people have been reported to be infected by the novel coronavirus globally and 226,880 have died, according to a Reuters tally as of 0200 GMT on Thursday.`\
 https://nytimes.com/reuters/2020/04/30/world/asia/30reuters-health-coronavirus-latest-factbox.html?searchResultPosition=3
 
