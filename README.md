@@ -1,36 +1,36 @@
-**Navy Hospital Ship, Once Thought Critical, Sees Few Patients**\
-`About a month ago, with Los Angeles girding for a potentially crippling surge of coronavirus cases, a massive white Navy hospital ship chugged into port: a powerful symbol of the government's response to the pandemic. `\
-https://nytimes.com/aponline/2020/04/30/us/ap-us-virus-outbreak-hospital-ship-few-patients.html?searchResultPosition=2
+**Factbox: Elon Musk Protest Tweets Against Coronavirus Lockdowns**\
+`Tesla Inc Chief Executive Officer Elon Musk, who has a history of being outspoken on Twitter, lashed out on the social media platform over the past several days with his strong views on restrictions to curb the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/04/30/technology/30reuters-health-coronavirus-musk-factbox.html?searchResultPosition=2
 
-**Ex-Honduran National Police Chief Charged in New York**\
-`The former chief of the Honduran National Police faces drug and weapons charges in New York, where prosecutors claimed Thursday that he traded his law enforcement clout to protect U.S.-bound shipments of cocaine.`\
-https://nytimes.com/aponline/2020/04/30/us/ap-us-honduras-drug-trafficking.html?searchResultPosition=3
+**Canada Set to Ban 11 Categories of Assault Rifles, Other Weapons: Source**\
+`Canada is set to announce it is banning 11 categories of assault rifles and other weapons, including those that have been used in mass shootings, a security source said on Thursday.`\
+https://nytimes.com/reuters/2020/04/30/world/americas/30reuters-canada-politics-guns.html?searchResultPosition=3
 
-**How Lobbyists Robbed Small Business Relief Loans**\
-`Years of lavish political spending by special interest groups were all in anticipation of a time like this.`\
-https://nytimes.com/2020/04/30/opinion/coronavirus-small-business-loans.html?searchResultPosition=4
+**NASCAR to Resume Season in Mid-May Without Spectators**\
+`NASCAR will be the first major sport in the United States to return to action amid the COVID-19 pandemic after the organisers of the popular racing series said on Thursday that the season will resume without fans in mid-May.`\
+https://nytimes.com/reuters/2020/04/30/sports/autoracing/30reuters-health-coronavirus-motor-nascar.html?searchResultPosition=4
 
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark U.S. crude oil for June delivery rose $3.78, or 25.1%, to close at $18.84 a barrel Thursday. Brent crude oil, the international standard, rose $2.73, or 12.1%, to $25.27 a barrel.`\
-https://nytimes.com/aponline/2020/04/30/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=5
+**NASCAR to Resume May 17 With Seven Races in 11 Days**\
+`NASCAR plans to return to on-track competition with a NASCAR Cup Series race next month at Darlington Raceway in South Carolina.`\
+https://nytimes.com/reuters/2020/04/30/sports/autoracing/30reuters-motor-nascar-schedule-return.html?searchResultPosition=5
 
-**Three: Mirror Image**\
-`Five years into a rabbit hole, Caleb goes from one side of the screen to the other.`\
-https://nytimes.com/2020/04/30/podcasts/rabbit-hole-internet-youtube-virus.html?searchResultPosition=6
+**Sources: Most of U.S. House Wants Trump to Shift Iran Tactics at U.N.**\
+`Nearly 90% of U.S. House of Representatives members have signed a letter urging the Trump administration to change the way it is dealing with the United Nations as it pushes the Security Council to extend an arms embargo on Iran, congressional sources said on Thursday.`\
+https://nytimes.com/reuters/2020/04/30/world/middleeast/30reuters-usa-iran-sanctions-congress.html?searchResultPosition=6
 
-**Congo's Economy Expected to Contract Due to Coronavirus: Central Bank**\
-`Democratic Republic of Congo has cut its 2020 economic growth forecast to -1.9% and is expecting its economy to contract due to the negative impact of the coronavirus pandemic, the country's central bank said in a statement on Thursday.`\
-https://nytimes.com/reuters/2020/04/30/world/africa/30reuters-congo-economy.html?searchResultPosition=7
+**NFLPA President Calls for Relook at Portion of Labor Deal**\
+`NFL Players Association President JC Tretter is calling for a re-examination of a portion of the labor agreement with the league affecting disability coverage for former players.`\
+https://nytimes.com/aponline/2020/04/30/sports/football/ap-fbn-labor-issues.html?searchResultPosition=7
 
-**Fearing Huge Demand, UK Baker Greggs Postpones Store Reopenings**\
-`British baker and takeaway food group Greggs - famed for its sausage rolls and vegan snacks - has changed its mind about reopening 20 shops next week, fearing crowds of customers could gather, it said on Thursday.`\
-https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-greggs-stores.html?searchResultPosition=8
+**Amgen Studying Otezla for Coronavirus, First-Quarter Results Beat Street Estimates**\
+`Amgen Inc on Thursday reported better-than-expected first-quarter results on Thursday and said it plans to study psoriasis drug Otezla as a potential treatment for COVID-19, the respiratory disease caused by the new coronavirus.`\
+https://nytimes.com/reuters/2020/04/30/business/30reuters-amgen-results.html?searchResultPosition=8
 
-**Peruvian Authorities Close Food Market Due to Coronavirus Cases**\
-`Peruvian police and soldiers on Thursday closed a busy food market in the capital Lima after mass rapid testing confirmed more than 160 of its traders had tested positive for the new coronavirus.`\
-https://nytimes.com/reuters/2020/04/30/world/americas/30reuters-health-coronavirus-peru-market.html?searchResultPosition=9
+**Brazil's New Coronavirus Cases Rise to 85,380: Ministry**\
+`Brazil has reported a record 7,218 confirmed cases of new coronavirus in the last 24 hours, raising the total to 85,380 cases, the Health Ministry said on Thursday.`\
+https://nytimes.com/reuters/2020/04/30/world/americas/30reuters-health-coronavirus-brazil.html?searchResultPosition=9
 
-**Nearly a Dozen Approved Drugs Could Be Effective Against COVID-19: Study**\
-`At least 10 different drug compounds ranging from cancer therapies to antipsychotics and antihistamines may be effective at preventing the new coronavirus from multiplying in the body, according to a multidisciplinary study conducted by a team of scientists in the United States and France.`\
-https://nytimes.com/reuters/2020/04/30/us/30reuters-health-coronavirus-protein-study.html?searchResultPosition=10
+**Guatemala Says US Testing Deportees for Virus Before Sending**\
+`A planeload of 92 Guatemalan deportees scheduled to arrive Thursday all tested negative for the coronavirus before boarding their flight from Texas, Guatemalan officials said Thursday.`\
+https://nytimes.com/aponline/2020/04/30/world/americas/ap-lt-virus-outbreak-guatemala-deportees.html?searchResultPosition=10
 
