@@ -30,7 +30,7 @@ https://nytimes.com/2020/04/30/opinion/coronavirus-vaccine-covid.html?searchResu
 `Mr. Bey, who died of the coronavirus, was a popular instructor at the Fire Department’s Emergency Medical academy.`\
 https://nytimes.com/2020/04/30/obituaries/idris-bey-dead-coronavirus.html?searchResultPosition=9
 
-**U.S. Navy Awards $5.5 Billion 10-Ship Frigate Contract to Fincantieri**\
-`The U.S. Navy announced on Thursday that Italy's Fincantieri won a competition worth more than $5.5 billion to build the Navy's newest class of warships known as frigates. `\
+**U.S. Navy Awards $5.5 Billion 10-Ship Frigate Contract to Italy's Fincantieri**\
+`The U.S. Navy said on Thursday it awarded a contract worth more than $5.5 billion to Italy's Fincantieri to build the Navy's newest class of warships, known as frigates. `\
 https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-usa-navy-frigate.html?searchResultPosition=10
 
