@@ -1,36 +1,36 @@
+**Coronavirus Response Boosts Approval for Colombia's Duque**\
+`President Ivan Duque's response to the coronavirus has earned him a rare boost in approval ratings, a survey showed, as Colombia's long nationwide quarantine stretches on.`\
+https://nytimes.com/reuters/2020/04/30/world/americas/30reuters-health-coronavirus-colombia-politics.html?searchResultPosition=2
+
+**Should You Give Your Kid CBD?**\
+`More Americans are using the hemp (or marijuana) extract on their kids, but experts aren’t sold on its efficacy.`\
+https://nytimes.com/2020/04/30/parenting/cbd-oil-children.html?searchResultPosition=3
+
+**What Should I Do if I Think My Child Has Autism?**\
+`Autism spectrum disorder affects about one in 54 children. An early diagnosis can mean quicker access to the medical, behavioral and social services that a child may need.`\
+https://nytimes.com/2020/04/30/parenting/toddler/autism-early-diagnosis.html?searchResultPosition=4
+
+**Pegu Club, the Pioneering Manhattan Cocktail Bar, Won’t Reopen**\
+`The SoHo bar kicked off the craft cocktail movement in New York, and beyond.`\
+https://nytimes.com/2020/04/30/dining/drinks/pegu-club-closed.html?searchResultPosition=5
+
+**U.S. Economy May Not Need More Stimulus to Weather Coronavirus Hit: White House Official**\
+`The U.S. economy may be able to weather the hit from the coronavirus with the stimulative policies already in the pipeline without the need for more measures to spur activity, a White House adviser said on Thursday.`\
+https://nytimes.com/reuters/2020/04/30/business/30reuters-health-coronavirus-usa-economy.html?searchResultPosition=6
+
+**Fast-Food Chicken Demand Nears Pre-Pandemic Levels - Pilgrim's Pride**\
+`Chicken demand from U.S. quick service restaurants has bounced back to near where it was before the coronavirus outbreak caused consumers to isolate themselves at home, poultry company Pilgrim's Pride Corp said on Thursday.`\
+https://nytimes.com/reuters/2020/04/30/us/30reuters-health-coronavirus-usa-pilgrims-pride.html?searchResultPosition=7
+
+**Latin America Wrestles With Reopening as Coronavirus Peak Looms**\
+`Last week, a mall in southern Brazil laid out a red carpet and welcomed back a stream of masked customers after the state loosened coronavirus lockdowns for commercial businesses. A saxophone player serenaded clients as they filed in. `\
+https://nytimes.com/reuters/2020/04/30/world/americas/30reuters-health-coronavirus-latam-lockdowns.html?searchResultPosition=8
+
+**Search Continues for Military Chopper Lost in Sea Off Greece**\
+`Search efforts continued Thursday after a military helicopter operating off a Canadian frigate that was taking part in a NATO operation in the Mediterranean crashed into the sea between Greece and Italy. `\
+https://nytimes.com/aponline/2020/04/30/world/europe/ap-cn-greece-italy-missing-helicopter.html?searchResultPosition=9
+
 **The Triumphant Return of Fiona Apple, Pop Music Renegade**\
 `A conversation about everything “Fetch the Bolt Cutters” and beyond.`\
-https://nytimes.com/2020/04/30/arts/music/popcast-fiona-apple.html?searchResultPosition=2
-
-**Review: ‘Hollywood’ Gives Movie History a Sudsy Rewrite**\
-`Ryan Murphy’s latest for Netflix starts an intriguing journey into an alternative 1940s Tinseltown, then swerves into schmaltz.`\
-https://nytimes.com/2020/04/30/arts/television/hollywood-review.html?searchResultPosition=3
-
-**Big U.S. Banks Cry Foul Over Temporary Exclusion From Small Business Lending Program**\
-`Wall Street banks criticized the U.S. government on Wednesday after the Small Business Administration said it would temporarily close its Paycheck Protection Program (PPP) for small businesses hurt by the novel coronavirus to all but the country's smallest lenders.`\
-https://nytimes.com/reuters/2020/04/30/us/30reuters-health-coronavirus-banks-lending.html?searchResultPosition=4
-
-**South Africa's Tax Revenue Down $711 Million, to Worsen Once COVID-19 Relief Measures Commence**\
-`South Africa's tax commissioner said on Thursday year-to-date revenue collection was already down 13 billion rand ($711 million), and was likely get "significantly worse" once coronavirus tax relief measures kick in.`\
-https://nytimes.com/reuters/2020/04/30/world/africa/30reuters-safrica-economy-tax.html?searchResultPosition=5
-
-**In Spain's Market Gardens, Migrants Left Jobless Under Coronavirus Lockdown**\
-`In shanty towns outside the polythene-covered market gardens of Almeria in southern Spain, doctors' charity "Medicos del Mundo" provides health checks and food to migrants left without work during the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-health-coronavirus-spain-shanty-town.html?searchResultPosition=6
-
-**Reward Offered After Pets, Wildlife Poisoned in Wisconsin**\
-`The U.S. Fish and Wildlife Service is offering a $1,000 reward for information that leads to the arrest of someone who is poisoning pets and wildlife in northern Wisconsin.`\
-https://nytimes.com/aponline/2020/04/30/us/ap-us-pets-poisoned-1st-ld-writethru.html?searchResultPosition=7
-
-**The Virus vs. Journalism**\
-`The disappearance of local information.`\
-https://nytimes.com/2020/04/30/opinion/journalists-newspapers-coronavirus.html?searchResultPosition=8
-
-**Trump Ally Roger Stone Appeals Sentence in Russia Probe**\
-`Roger Stone, a longtime confidant of President Donald Trump, is appealing his three-year prison sentence following his conviction as part of special counsel Robert Mueller’s Russia investigation. `\
-https://nytimes.com/aponline/2020/04/30/us/politics/ap-us-trump-russia-probe-stone.html?searchResultPosition=9
-
-**Tyson Temporarily Closes Nebraska Beef Plant for Cleaning**\
-`Tyson Foods said Thursday that it was temporarily suspending operations at a Nebraska beef processing plant that serves as the largest employer for neighboring Sioux City, Iowa, after a surge of coronavirus cases in the area. `\
-https://nytimes.com/aponline/2020/04/30/business/bc-us-virus-outbreak-meat-plants.html?searchResultPosition=10
+https://nytimes.com/2020/04/30/arts/music/popcast-fiona-apple.html?searchResultPosition=10
 
