@@ -24,7 +24,7 @@ https://nytimes.com/reuters/2020/04/30/world/middleeast/30reuters-egypt-security
 
 **Tim Brooke-Taylor, a Mainstay of British Comedy, Dies at 79**\
 `The humor on the BBC sketch show “The Goodies,” of which he was a creator and star, was visual, anarchic and very silly. He died of the coronavirus.`\
-https://nytimes.com/2020/04/30/obituaries/tim-brooke-taylor-dead-coronavirus.html?searchResultPosition=8
+https://nytimes.com/2020/04/30/arts/television/tim-brooke-taylor-dead-coronavirus.html?searchResultPosition=8
 
 **JP Morgan Cuts Mexico 2020 GDP Forecast to - 8.4% From - 7.5%**\
 `Investment bank JP Morgan has cut its forecast for the Mexican economy in 2020 to a contraction of 8.4% from a contraction of 7.5%, it said in a document.`\
