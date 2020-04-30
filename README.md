@@ -1,36 +1,36 @@
+**Nintendo Seen Extending Profit Streak as Housebound Consumers Switch On**\
+`Japan's Nintendo Co Ltd is expected to extend its decade-high earnings streak when it reports fourth-quarter results next week, powered by the hit Switch console which is expanding its reach among locked-down consumers. `\
+https://nytimes.com/reuters/2020/04/29/technology/29reuters-nintendo-results-preview.html?searchResultPosition=2
+
+**IMF Sees Caribbean Economy Shrinking 6.2% in 2020 Due to Pandemic**\
+`A sudden stop in tourism caused by border closures and lockdowns aimed at containing the coronavirus pandemic will cause a 6.2% contraction of the Caribbean economy in 2020, the deepest recession in over half a century, the IMF said on Wednesday.`\
+https://nytimes.com/reuters/2020/04/29/world/americas/29reuters-health-coronavirus-caribbean-imf.html?searchResultPosition=3
+
+**China's Manufacturing Weaker in April as Virus Hurts Exports**\
+`China’s manufacturing activity weakened in April as the coronavirus pandemic clobbered global consumer demand, hampering Beijing’s efforts to revive the world’s second-largest economy, two surveys showed Thursday. `\
+https://nytimes.com/aponline/2020/04/29/business/bc-china-manufacturing.html?searchResultPosition=4
+
 **China Cancels Annual Boao Forum Due to Coronavirus**\
 `China has cancelled the 2020 Boao Forum for Asia, which Beijing is trying to promote as the region's answer to Davos, due to the coronavirus epidemic, the official China News agency reported on Thursday. `\
-https://nytimes.com/reuters/2020/04/29/world/asia/29reuters-health-coronavirus-china-boao.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/04/29/world/asia/29reuters-health-coronavirus-china-boao.html?searchResultPosition=5
 
 **NHL Targets May Opening of Training Facilities if COVID-19 Restrictions Ease**\
 `The National Hockey League said on Wednesday it hopes to reopen training facilities to players by mid-to-late May as long as local restrictions during the COVID-19 pandemic allow for a return to small group activities.`\
-https://nytimes.com/reuters/2020/04/29/sports/hockey/29reuters-health-coronavirus-icehockey-nhl.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/04/29/sports/hockey/29reuters-health-coronavirus-icehockey-nhl.html?searchResultPosition=6
 
 **Clash of Tech Titans: Zuckerberg Praises Coronavirus Lockdowns; Musk Sees 'Fascism'**\
 `Silicon Valley billionaires Elon Musk and Mark Zuckerberg offered dueling views on lockdown measures designed to slow the spread of the coronavirus on Wednesday, with Facebook's Zuckerberg endorsing the measures while Tesla's Musk condemned them as anti-democratic.`\
-https://nytimes.com/reuters/2020/04/29/business/29reuters-health-coronavirus-siliconvalley.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/04/29/business/29reuters-health-coronavirus-siliconvalley.html?searchResultPosition=7
 
 **IMF Approves $650 Million in Emergency Pandemic Aid for Dominican Republic**\
 `The International Monetary Fund said on Wednesday its executive board had approved $650 million in emergency financial assistance to help the Dominican Republic respond to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/04/29/world/americas/29reuters-health-coronavirus-dominican-republic-imf.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/04/29/world/americas/29reuters-health-coronavirus-dominican-republic-imf.html?searchResultPosition=8
 
 **Quotation of the Day: Pandemic Is Further Eroding France’s Trust in Central Government**\
 `Quotation of the Day for Thursday, April 30, 2020.`\
-https://nytimes.com/2020/04/29/todayspaper/quotation-of-the-day-pandemic-is-further-eroding-frances-trust-in-central-government.html?searchResultPosition=6
+https://nytimes.com/2020/04/29/todayspaper/quotation-of-the-day-pandemic-is-further-eroding-frances-trust-in-central-government.html?searchResultPosition=9
 
 **Mayor: LA 1st Major US City Offering All Residents Tests**\
 `The city of Los Angeles will offer free coronavirus testing to all residents regardless of whether they have symptoms, Mayor Eric Garcetti announced Wednesday.`\
-https://nytimes.com/aponline/2020/04/29/us/ap-us-virus-outbreak-los-angeles-testing.html?searchResultPosition=7
-
-**Maggie Haney, Elite Gymnastics Coach, Is Suspended for 8 Years**\
-`Haney was accused of verbal abuse and mistreatment of athletes, which included forcing them to train through injuries.`\
-https://nytimes.com/2020/04/29/sports/gymnastics-coach-banned-maggie-haney.html?searchResultPosition=8
-
-**Goal-Scoring Opportunities**\
-`Caitlin Reid foots it to the intersection.`\
-https://nytimes.com/2020/04/29/crosswords/daily-puzzle-2020-04-30.html?searchResultPosition=9
-
-**A Strange Dinosaur May Have Swum the Rivers of Africa**\
-`The Spinosaurus possessed a long, powerful tail. Paleontologists think the dinosaur used that to propel itself through water.`\
-https://nytimes.com/2020/04/29/science/spinosaurus-dinosaur-tail-swimming.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/04/29/us/ap-us-virus-outbreak-los-angeles-testing.html?searchResultPosition=10
 
