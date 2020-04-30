@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-health-coronavirus
 `Museums, exhibitions, memorials, zoos and botanical gardens in Germany can reopen in Germany, provided they can fulfill social distancing and hygiene requirements to minimise the risk of infection, German media cited news agency DPA as reporting.`\
 https://nytimes.com/reuters/2020/04/30/us/30reuters-health-coronavirus-germany-reopening.html?searchResultPosition=7
 
-**Dow, S&P 500 Futures Dip at End of Strong Month; Jobless Data Awaited**\
-`Dow and S&P 500 stock index futures dipped on Thursday as nerves kicked in at the end of an overall strong month for stocks with investors awaiting the weekly jobless claims data, while Nasdaq futures rose after upbeat earnings from Facebook and Tesla.`\
+**Dow, S&P 500 Futures Dip at End of Strong Month; Jobless Data Eyed**\
+`Dow and S&P 500 stock index futures dipped on Thursday at the end of a strong month for Wall Street, with investors nervous about another stunning jobless claims figure, while Nasdaq futures were supported by upbeat earnings from Facebook and Tesla.`\
 https://nytimes.com/reuters/2020/04/30/business/30reuters-usa-stocks.html?searchResultPosition=8
 
 **Europe's Falling Angels Pin Hopes on $33 Billion ECB Redemption**\
