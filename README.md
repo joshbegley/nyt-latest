@@ -1,36 +1,36 @@
+**The Heart of Britain’s Watch Revival**\
+`It’s known for the annual regatta. But Henley-on-Thames is also fast becoming the center of the country’s horology industry.`\
+https://nytimes.com/2020/04/30/fashion/watches-britain-henley-on-thames-bremont.html?searchResultPosition=2
+
+**In Denmark, Young Watch Brands Focus on Design**\
+`Businesses use flair, modest prices and ecological practices to attract buyers.`\
+https://nytimes.com/2020/04/30/fashion/watches-design-copenhagen-denmark.html?searchResultPosition=3
+
+**It’s Time at Luxury Resale Sites**\
+`Buyers are finding higher-end watches — but for less — on consignment and secondhand sites.`\
+https://nytimes.com/2020/04/30/fashion/watches-resale-online-realreal.html?searchResultPosition=4
+
+**A ‘Wellness Wearable’ on Your Wrist**\
+`Makers — and their legion of fans — say the timepieces help decrease stress and improve health.`\
+https://nytimes.com/2020/04/30/fashion/watches-wearables-teslar-philip-stein.html?searchResultPosition=5
+
+**In Canada, Watches From Wood**\
+`Companies like Tense Watches use small pieces that otherwise might be thrown away.`\
+https://nytimes.com/2020/04/30/fashion/watches-canada-wood-sustainability.html?searchResultPosition=6
+
+**Flypast and Promotion for UK Fund-Raising Hero 'Colonel' Tom as He Turns 100**\
+`British World War Two veteran Captain Tom Moore, who has become a national hero after raising millions for the health service, celebrated his 100th birthday on Thursday with a promotion, military flypasts and a message from the prime minister.`\
+https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-health-coronavirus-britain-captaintom.html?searchResultPosition=7
+
+**European Shares Inch Lower as Shell Drags; ECB Awaited**\
+`European shares edged lower on Thursday as a slump in Royal Dutch Shell and another batch of mixed earnings reports weighed on the mood ahead of the conclusion of a European Central Bank meeting.`\
+https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-europe-stocks.html?searchResultPosition=8
+
+**China Says It Has No Interest in Meddling in U.S. Presidential Election**\
+`China has no interest in interfering in the U.S. presidential election, it said on Thursday, following comments by U.S. President Donald Trump that Beijing "will do anything they can" to make him lose his re-election bid in November.`\
+https://nytimes.com/reuters/2020/04/30/us/politics/30reuters-usa-china-trump-mofa.html?searchResultPosition=9
+
 **Malaysia Airlines Working With Khazanah for Financial Support, Parent Co Says**\
 `Malaysia Airlines (MAB) is working closely with sole shareholder Khazanah Nasional for financial support needed due to the coronavirus crisis, it said on Thursday.`\
-https://nytimes.com/reuters/2020/04/30/business/30reuters-airlines-khazanah.html?searchResultPosition=2
-
-**Chinese Coffee Chain’s Scandal Renews U.S. Calls for Oversight**\
-`The implosion of a Chinese competitor to Starbucks has bolstered the cause of American politicians aiming to stop opaque Chinese companies from raising money in the U.S.`\
-https://nytimes.com/2020/04/30/business/luckin-coffee-china-fraud-wall-street.html?searchResultPosition=3
-
-**Millions Had Risen Out of Poverty. The Coronavirus Is Pulling Them Back.**\
-`Experts say that for the first time since 1998, global poverty will increase. At least a half a billion people could slip into destitution by the end of the year.`\
-https://nytimes.com/2020/04/30/world/asia/coronavirus-poverty-unemployment.html?searchResultPosition=4
-
-**Exclusive: Thai Airways to Seek $1.8 Billion Emergency Loan to Navigate Virus Impact-Document**\
-`Thai Airways International PCL aims to seek a 58.1 billion baht ($1.80 billion) emergency loan to maintain liquidity and see it through a coronavirus-induced drop in demand, showed a document from the airline detailing its plan.`\
-https://nytimes.com/reuters/2020/04/30/business/30reuters-thai-airways-rescue-exclusive.html?searchResultPosition=5
-
-**China Commerce Ministry Says Unaware of Any North Korea Delegation Visit**\
-`China's commerce ministry spokesman Gao Feng said on Thursday he was unaware of any North Korean economic delegation visiting China this week. `\
-https://nytimes.com/reuters/2020/04/30/world/asia/30reuters-northkorea-china-delegation-mofcom.html?searchResultPosition=6
-
-**Russia's Coronavirus Case Tally Passes 100,000 With Record Daily Rise**\
-`Russia on Thursday reported 7,099 new cases of the novel coronavirus, a record daily rise, bringing its nationwide tally to 106,498.`\
-https://nytimes.com/reuters/2020/04/30/world/europe/30reuters-health-coronavirus-russia-cases.html?searchResultPosition=7
-
-**On This Day: Died May 1, 1994: Ayrton Senna, Triple F1 Champion**\
-`A brass plaque on a grassy circle in Sao Paulo's Morumbi cemetery marks the last resting place of a man revered by many as Formula One's greatest driver.`\
-https://nytimes.com/reuters/2020/04/30/sports/autoracing/30reuters-sport-anniversary-senna.html?searchResultPosition=8
-
-**JAL Forgoes Earnings Forecast, Dividend Amid Coronavirus Uncertainty**\
-`Japan Airlines on Thursday declined to release an annual earnings forecast or pay a shareholder dividend amid uncertainty over the future of air travel as the coronavirus pandemic saps demand for flights. `\
-https://nytimes.com/reuters/2020/04/30/business/30reuters-health-coronavirus-japan-airlines.html?searchResultPosition=9
-
-**Asian Shares Rise on Hopes for Drug to Treat Coronavirus**\
-`Asian shares advanced on Thursday, riding a wave of optimism about a possible treatment for the coronavirus that set off a rally on Wall Street powerful enough to override data showing the U.S. economy had logged its worst quarterly performance since 2009. `\
-https://nytimes.com/aponline/2020/04/30/business/ap-financial-markets.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/04/30/business/30reuters-airlines-khazanah.html?searchResultPosition=10
 
