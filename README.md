@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/04/29/us/29reuters-health-coronavirus-tyson-foo
 `South Korea reported on Thursday no new domestic coronavirus cases for the first time since its Feb. 29 peak, the Korea Centers for Disease Control and Prevention (KCDC) said.`\
 https://nytimes.com/reuters/2020/04/29/world/asia/29reuters-health-coronavirus-southkorea.html?searchResultPosition=3
 
-**China's April Factory Activity Expands for Second Month, Just Below Forecast**\
-`Factory activity in China expanded for a second straight month in April, as more businesses resumed work after the coronavirus-led shutdowns, though worldwide lockdowns and sliding global demand are set to hamper a recovery in the embattled economy.`\
+**China's Factory Activity Expands for Second Month, but Slump in Export Orders Deepens**\
+`Factory activity in China expanded for a second straight month in April as more businesses resumed work from the coronavirus-led shutdowns, but a worsening slump in export orders pointed to a long road to recovery for the embattled economy. `\
 https://nytimes.com/reuters/2020/04/29/world/asia/29reuters-china-economy-pmi-factory-official.html?searchResultPosition=4
 
 **Harrison Ford Strayed Onto an Active Runway in His Plane**\
