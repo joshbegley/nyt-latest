@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/04/30/business/30reuters-health-coronavirus-com
 `Global funds recommended an increase in bond holdings to the highest level in seven years, at the expense of stocks, and said the recovery in the coronavirus-hit world economy will be U-shaped, a Reuters poll showed.`\
 https://nytimes.com/reuters/2020/04/30/business/30reuters-funds-global-poll.html?searchResultPosition=8
 
-**ConocoPhillips Reports 58% Fall in Quarterly Profit**\
-`U.S. oil and gas company ConocoPhillips reported a 58% plunge in adjusted quarterly profit on Thursday, weighed down by lower output and an unprecedented plunge in crude prices.`\
+**ConocoPhillips Swings to Loss on Oil Price Slump, Impairments**\
+`U.S. oil and gas company ConocoPhillips swung to a  first quarter loss on Thursday as it took big hits from impairments and the falling value of its stake in Canadian producer Cenovus Energy.`\
 https://nytimes.com/reuters/2020/04/30/business/30reuters-conocophillips-results.html?searchResultPosition=9
 
 **Companies on China's STAR Hi-Tech Market Post Profit Growth Amid Pandemic**\
