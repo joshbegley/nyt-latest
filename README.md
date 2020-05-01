@@ -10,8 +10,8 @@ https://nytimes.com/aponline/2020/05/01/sports/football/ap-fbn-troy-vincent-cba.
 `More than 70 scholars urge leaders in Washington and Beijing to put partisan interests aside and coordinate their responses to Covid-19.`\
 https://nytimes.com/2020/05/01/opinion/letters/coronavirus-us-china.html?searchResultPosition=5
 
-**FDA Authorizes Remdesivir Drug for COVID-19**\
-`President Donald Trump said on Friday the U.S. Food and Drug Administration (FDA) had granted authorization to Gilead Sciences Inc for emergency use of its experimental antiviral drug Remdesivir to treat patients with COVID-19.`\
+**FDA Authorizes Remdesivir Drug as Emergency Treatment for COVID-19**\
+`The U.S. Food and Drug Administration (FDA) has granted authorization to Gilead Sciences Inc for emergency use of its experimental antiviral drug remdesivir to treat patients with COVID-19, it said in a letter to Gilead.`\
 https://nytimes.com/reuters/2020/05/01/us/01reuters-health-coronavirus-usa-fda.html?searchResultPosition=6
 
 **For Sports, Coronavirus Testing Remains a Major Hurdle**\
