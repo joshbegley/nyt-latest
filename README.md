@@ -1,36 +1,36 @@
+**‘All Day and a Night’ Review: Growth Behind Bars**\
+`In this drama from one of the screenwriters of “Black Panther,” a young man embarks on a journey of belated self-discovery.`\
+https://nytimes.com/2020/05/01/movies/all-day-and-a-night-review.html?searchResultPosition=2
+
+**‘The Half of It’ Review: Being Yourself (and That Person, Too)**\
+`In this comedy from Alice Wu, love letters reveal everything about a person, except their identity.`\
+https://nytimes.com/2020/05/01/movies/the-half-of-it-review.html?searchResultPosition=3
+
+**Rome Has Been Sacked, Conquered and Abandoned. Now It’s the Coronavirus’s Turn.**\
+`The city’s turbulent history has forged an irreverent, anti-authoritarian and, in some ways, cynical character. Can that survive the virus?`\
+https://nytimes.com/2020/05/01/world/europe/italy-rome-coronavirus-lockdown.html?searchResultPosition=4
+
+**The Best Movies and TV Shows Coming to Netflix, Amazon and More in May**\
+`Every month, subscription streaming services add a new batch of titles to their libraries. Here are our picks for May.`\
+https://nytimes.com/2020/05/01/arts/new-to-stream-netflix.html?searchResultPosition=5
+
+**#CancelRent Is New Rallying Cry for Tenants. Landlords Are Alarmed.**\
+`From New York to Los Angeles, tenant groups are encouraging millions of renters to withhold May rent, which landlords warn would be devastating.`\
+https://nytimes.com/2020/05/01/nyregion/rent-strike-coronavirus.html?searchResultPosition=6
+
+**Eyeballs**\
+`What is this image saying? How does it relate to or comment on society or current events?`\
+https://nytimes.com/2020/05/01/learning/eyeballs.html?searchResultPosition=7
+
 **Germany's Confirmed Coronavirus Cases Rise by 1,639; Deaths Up 193: RKI**\
 `The number of confirmed coronavirus cases in Germany increased by 1,639 to 160,758, data from the Robert Koch Institute (RKI) for infectious diseases showed on Friday.`\
-https://nytimes.com/reuters/2020/05/01/world/europe/01reuters-health-coronavirus-germany-cases.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/01/world/europe/01reuters-health-coronavirus-germany-cases.html?searchResultPosition=8
 
 **Britain May Have Hit Its Daily Testing Target: Minister**\
 `Britain may have hit its daily target of 100,000 COVID-19 tests, or come close, putting in place the beginnings of a network to test, track and trace people through the pandemic, housing minister Robert Jenrick said on Friday. `\
-https://nytimes.com/reuters/2020/05/01/world/europe/01reuters-health-coronavirus-britain-testing.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/01/world/europe/01reuters-health-coronavirus-britain-testing.html?searchResultPosition=9
 
 **Norwegian Air's Fate Unclear as Deadline to Accept Rescue Offer Passes**\
 `The fate of Norwegain Air was in the balance on Friday after a deadline passed overnight for bondholders to vote on a rescue package for the transatlantic budget airline.`\
-https://nytimes.com/reuters/2020/05/01/business/01reuters-health-coronavirus-norwegianair.html?searchResultPosition=4
-
-**Coronavirus Lessons From Roosevelt Outbreak Helped 2nd Ship**\
-`The Navy destroyer USS Kidd was heading east across the Pacific from Pearl Harbor when it added an unusual twist to its transit — a quarantine-and-isolation drill.`\
-https://nytimes.com/aponline/2020/05/01/us/politics/ap-us-virus-outbreak-uss-kidd.html?searchResultPosition=5
-
-**'Everyone's Watching': Biden's VP Audition Process Begins**\
-`Gov.`\
-https://nytimes.com/aponline/2020/05/01/us/politics/ap-us-election-2020-vice-presidential-search.html?searchResultPosition=6
-
-**Old Explosive From Nepal's Insurgency Kills 4 Children**\
-`An old explosive device left during Nepal's decadelong communist insurgency has killed four children in a mountain village, official said Friday. `\
-https://nytimes.com/aponline/2020/05/01/world/asia/ap-as-nepal-children-killed.html?searchResultPosition=7
-
-**Asian Shares Fall After Wall St Slips on Grim Economic News**\
-`Shares fell in Asia on Friday after a crush of dismal data about the economy sent markets lower overnight in a meek ending to a historic, juggernaut month for stocks. `\
-https://nytimes.com/aponline/2020/05/01/business/bc-financial-markets.html?searchResultPosition=8
-
-**This ‘Hospital Needs to Be Quarantined,’ but This Country Is at War**\
-`Twenty percent of staff at one hospital are quarantined, but the doors remain open as the war wounded are brought in.`\
-https://nytimes.com/2020/05/01/world/asia/afghanistan-coronavirus-hospitals.html?searchResultPosition=9
-
-**COVID-19 Survivor Urges: 'To All of You: Continue to Fight'**\
-`Sucking in the little oxygen her lungs could still process, Diane Wanten wouldn't back down in her fight against a disease that is killing tens of thousands a week around the globe. Too much was still waiting for her.`\
-https://nytimes.com/aponline/2020/05/01/world/europe/ap-eu-virus-outbreak-belgium-hope.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/01/business/01reuters-health-coronavirus-norwegianair.html?searchResultPosition=10
 
