@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/05/01/business/01reuters-global-oil.html?search
 `U.S. President Donald Trump said on Thursday his hard-fought trade deal with China was now of secondary importance to the coronavirus pandemic and he threatened new tariffs on Beijing, as his administration crafted retaliatory measures over the outbreak.`\
 https://nytimes.com/reuters/2020/05/01/business/01reuters-health-coronavirus-usa-china.html?searchResultPosition=4
 
-**Malaysia to Allow Majority of Businesses to Reopen Next Week as Virus Curbs Eased**\
-`Malaysia will allow the majority of businesses to resume operations from May 4, Prime Minister Muhyiddin Yassin said on Friday, easing restrictions imposed to contain the spread of the new coronavirus. `\
+**Malaysia Partially Easing Virus Curbs for Most Businesses From Next Week**\
+`Malaysia will allow the majority of businesses to resume operations from May 4, Prime Minister Muhyiddin Yassin said on Friday, partially easing restrictions imposed to contain the spread of the new coronavirus.`\
 https://nytimes.com/reuters/2020/05/01/world/asia/01reuters-health-coronavirus-malaysia.html?searchResultPosition=5
 
 **Your Friday Briefing**\
