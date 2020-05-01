@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/04/30/us/ap-as-pictures-of-the-week-in-asia-ph
 https://nytimes.com/aponline/2020/04/30/business/ap-as-virus-outbreak-asia.html?searchResultPosition=6
 
 **Labs Across U.S. Join Federal Initiative to Study Coronavirus Genome**\
-`The project, announced by the C.D.C., will help trace patterns of transmission, investigative outbreaks and map how the virus is evolving, which can impact a cure.`\
+`The project, announced by the C.D.C., will help trace patterns of transmission, investigate outbreaks and map how the virus is evolving, which can impact a cure.`\
 https://nytimes.com/2020/04/30/science/coronavirus-genetic-sequencing.html?searchResultPosition=7
 
 **'Remain in Mexico' Asylum Hearings Suspended Through June 1**\
