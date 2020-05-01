@@ -1,36 +1,36 @@
-**One in Three Australians Financially Worse Off Due to Pandemic: ABS Survey**\
-`One in three Australians reported a deterioration in household finances in the month to mid-April, an official survey showed  on Friday, as the COVID-19 pandemic shut businesses and forced many people into the unemployment queue. `\
-https://nytimes.com/reuters/2020/05/01/world/asia/01reuters-health-coronavirus-australia-economy.html?searchResultPosition=2
+**Most California Health Corps Volunteers Not Eligible to Join**\
+`For days after Gov. Gavin Newsom announced the all-volunteer California Health Corps, he provided updates on how many retired medical workers had signed up and marveled at the numbers — 34,000 in the first 48 hours, 82,000 a week later. `\
+https://nytimes.com/aponline/2020/05/01/us/ap-us-virus-outbreak-california-health-corps.html?searchResultPosition=2
 
-**Fax-Loving Japan to Introduce Online System for Reporting Coronavirus**\
-`Japan's health ministry will introduce a system for health centres to report new coronavirus cases online instead of by hand-written faxes, phone or email - drawing praise from some but scorn from others wondering what took it so long.`\
-https://nytimes.com/reuters/2020/05/01/world/asia/01reuters-health-coronavirus-japan-internet.html?searchResultPosition=3
+**Tennis Coming Back Slowly With Exhibition Matches**\
+`The small-scale events could create a road map to help the men’s and women’s tours return.`\
+https://nytimes.com/2020/05/01/sports/tennis/coronavirus-tennis.html?searchResultPosition=3
 
-**Rapinoe Offers to Be Biden's Running Mate**\
-`Megan Rapinoe, the reigning FIFA Women's World Player of the Year, is eyeing another prestigious title: vice president of the United States of America.`\
-https://nytimes.com/reuters/2020/05/01/sports/soccer/01reuters-soccer-worldcup-rapinoe-biden.html?searchResultPosition=4
+**What’s on TV Friday: ‘Hollywood’ and ‘Prop Culture’**\
+`A soapy period drama from two creators of “Glee” debuts on Netflix. And a new series on Disney Plus showcases famous film props.`\
+https://nytimes.com/2020/05/01/arts/television/whats-on-tv-friday-hollywood-and-prop-culture.html?searchResultPosition=4
 
-**Japan to Decide Whether to Extend State of Emergency as Early as Monday: Broadcaster NHK**\
-`Japan will formally decide as early as Monday whether to extend its nationwide state of emergency, public broadcaster NHK reported, after Prime Minister Shinzo Abe warned citizens to prepare for a "drawn-out battle" against the coronavirus.`\
-https://nytimes.com/reuters/2020/05/01/world/asia/01reuters-health-coronavirus-japan.html?searchResultPosition=5
+**Moderna, Switzerland's Lonza Strike Deal on Potential COVID-19 Vaccine**\
+`Moderna Inc and Swiss contract drugmaker Lonza Group AG said on Friday they would accelerate the manufacturing of the U.S. drug developer's potential coronavirus vaccine.`\
+https://nytimes.com/reuters/2020/05/01/technology/01reuters-health-coronavirus-moderna-lonza-group.html?searchResultPosition=5
 
-**AP Week in Pictures, North America**\
-`April 24–April 30, 2020`\
-https://nytimes.com/aponline/2020/05/01/us/ap-us-pictures-of-the-week-in-north-america-photo-gallery.html?searchResultPosition=6
+**Hairstylist Gives Free Haircuts to Thai Health Frontliners**\
+`Scrubs may be in fashion during the coronavirus crisis, but split ends — never. That's where Pornsupa Hattayong comes in.`\
+https://nytimes.com/aponline/2020/05/01/world/asia/ap-as-virus-outbreak-one-good-thing-bangkok-hairdresser.html?searchResultPosition=6
 
-**Hundreds of Rohingya Muslims Stuck at Sea in Refugee Crisis With ‘Zero Hope’**\
-`At least three boats carrying Rohingya refugees have been adrift for more than two months. As of this week, rights groups that had been tracking the boats lost sight of them.`\
-https://nytimes.com/2020/05/01/world/asia/rohingya-muslim-refugee-crisis.html?searchResultPosition=7
+**Michigan Governor Reinstates State of Emergency as Protests Ramp Up**\
+`The governor’s moves were in response to the Republican-led Legislature’s refusal to extend the original emergency declaration.`\
+https://nytimes.com/2020/05/01/us/michigan-protests-capitol-virus-armed.html?searchResultPosition=7
 
-**Will New N.C.A.A. Rules Really Keep Agents and Boosters at Bay?**\
-`If college athletes are permitted to cash in on their fame, how can the N.C.A.A. forbid guidance from people who have long worked in the shadows?`\
-https://nytimes.com/2020/05/01/sports/ncaa-paying-athletes-boosters.html?searchResultPosition=8
+**Thailand Reports Six New Coronavirus Cases, No Deaths**\
+`Thailand reported six new coronavirus cases and no new death on Friday, taking its tally to 2,960 infections while fatalities remained at 54 since the outbreak began in January. `\
+https://nytimes.com/reuters/2020/05/01/world/asia/01reuters-health-coronavirus-thailand.html?searchResultPosition=8
 
-**Anderson Cooper Announces Birth of His First Child**\
-`Wyatt Morgan Cooper, who is named after the newscaster’s late father, was delivered by a surrogate.`\
-https://nytimes.com/2020/05/01/us/anderson-cooper-baby-son-wyatt.html?searchResultPosition=9
+**Australia to Consider Next Friday Easing of Coronavirus Containment Measures**\
+`Australia will consider next Friday whether to relax coronavirus-related mobility restrictions, as the growth rate of new infections slows, Prime Minister Scott Morrison said on Friday following a national cabinet meeting. `\
+https://nytimes.com/reuters/2020/05/01/world/asia/01reuters-health-coronavirus-australia.html?searchResultPosition=9
 
-**Oil Rises Again as Output Cuts Kick in, Inventories Grow Less Than Expected**\
-`Oil prices rose on Friday, extending the previous session's gains, as major producers began output cuts to offset a slump in fuel demand triggered by the coronavirus pandemic while data showed U.S. crude inventories grew less than expected.`\
-https://nytimes.com/reuters/2020/05/01/business/01reuters-global-oil.html?searchResultPosition=10
+**Musk's SpaceX, Bezos' Blue Origin Land Contracts to Build NASA's Astronaut Moon Lander**\
+`NASA on Thursday selected space firms SpaceX, Blue Origin and Dynetics to build lunar landing systems that can carry astronauts to the moon by 2024, the White House's accelerated deadline under the space agency's moon-to-Mars campaign.`\
+https://nytimes.com/reuters/2020/05/01/technology/01reuters-space-exploration-nasa.html?searchResultPosition=10
 
