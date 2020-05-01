@@ -1,32 +1,32 @@
-**David Najem Has Been Reading a Lot, but He’d Rather Be Playing Soccer**\
-`With his league suspended, the professional defender stays fit by kicking the ball wherever he can — like on the parking deck in his apartment building.`\
-https://nytimes.com/2020/05/01/sports/soccer/coronavirus-david-najem.html?searchResultPosition=3
+**An Eerily Prescient Pandemic Novel That’s Guaranteed to Terrify**\
+`In Lawrence Wright’s “The End of October,” a virulent flu races around the globe, killing millions and plunging society into disarray.`\
+https://nytimes.com/2020/05/01/books/review/lawrence-wright-end-of-october.html?searchResultPosition=3
 
-**McDonald's to Reopen 15 Outlets in UK This Month, Fast Food Fans Relieved**\
-`McDonald's Corp said it would reopen 15 restaurants in the United Kingdom this month, only for delivery, leaving some fast food fans cheering.`\
-https://nytimes.com/reuters/2020/05/01/business/01reuters-mcdonalds-restaurants.html?searchResultPosition=4
+**UK Coronavirus Death Toll Rises by 739 to 27,510**\
+`The United Kingdom's death toll from COVID-19 rose on Friday to 27,510, an increase of 739, according to figures that include deaths in hospital and in other settings like nursing homes.`\
+https://nytimes.com/reuters/2020/05/01/world/europe/01reuters-health-coronavirus-britain-casualties.html?searchResultPosition=4
 
-**Turkey's Coronavirus Death Toll Rises to 3,258, New Cases 2,188: Ministry**\
-`The number of people who have died from COVID-19 in Turkey has risen by 84 in the last 24 hours to 3,258, with 2,188 new cases of the virus, Health Ministry data showed on Friday.`\
-https://nytimes.com/reuters/2020/05/01/world/europe/01reuters-health-coronavirus-turkey-toll.html?searchResultPosition=5
+**Coronavirus Quarantine in Syria's Northwest Looks to Shield Most Vulnerable**\
+`At a quarantine centre in war-torn northern Syria, doctors near the Turkish frontier are providing a first line of defence to prevent the new coronavirus from spreading to one of the world's most vulnerable populations.`\
+https://nytimes.com/reuters/2020/05/01/world/middleeast/01reuters-health-coronavirus-syria-quarantine.html?searchResultPosition=5
 
-**Russia Drops Plans for Putin Mosaic in Military Church**\
-`A grandiose mosaic depicting Russian President Vladimir Putin and other high-ranking officials will not be put on display in a new military church after objections from the Kremlin leader, a church official said on Friday. `\
-https://nytimes.com/reuters/2020/05/01/world/europe/01reuters-russia-politics-putin-mosaic.html?searchResultPosition=6
+**Captive Neighbors Seek Relief From Amazon Construction Noise**\
+`Amazon deliveries may be delayed for some folks because of the coronavirus, but construction of Amazon’s new Virginia headquarters is moving right along, with piledriving work so loud it's driving the stuck-at-home neighbors crazy. `\
+https://nytimes.com/aponline/2020/05/01/business/bc-us-virus-outbreak-amazon-noise.html?searchResultPosition=6
 
-**‘Hollywood’ Offers Alternate History, and Glimpses of a Real One**\
-`Ryan Murphy’s new period melodrama, debuting Friday on Netflix, uses real figures from the past to tell an invented history of 1940s Hollywood.`\
-https://nytimes.com/2020/05/01/arts/television/hollywood-ryan-murphy-netflix.html?searchResultPosition=7
+**Your Next Baking Project? This Snickerdoodle in Poundcake Form**\
+`Warming and gently spiced, this easy loaf cake comes together in just about an hour — and may not last nearly as long.`\
+https://nytimes.com/2020/05/01/dining/snickerdoodle-poundcake-recipe-coronavirus.html?searchResultPosition=7
 
-**Now Is the Time to Learn to Play Bridge**\
-`It’s easier to pick up the world’s best card game at home on your own.`\
-https://nytimes.com/2020/05/01/smarter-living/learn-to-play-bridge.html?searchResultPosition=8
+**Senate to Convene but Without Quick Coronavirus Testing**\
+`The Senate is set to convene Monday but the health risks from the coronavirus  are being laid bare as the Capitol physician says there is no way to quickly test the 100 senators and staff.`\
+https://nytimes.com/aponline/2020/05/01/us/politics/ap-us-virus-outbreak-congress.html?searchResultPosition=8
 
-**Parmesan! Crusted! Chicken!**\
-`Take those boneless chicken breasts and give them a crispy, cheesy exterior you won’t soon forget.`\
-https://nytimes.com/2020/05/01/dining/parmesan-crusted-chicken.html?searchResultPosition=9
+**JPMorgan Chase Approved to Process $15 Billion in New PPP Loans**\
+`JPMorgan Chase & Co said on Friday that it received government approval to process roughly $15 billion in loans through the Small Business Administration's Paycheck Protection Program, bringing its total number of funded loans through the program to about $29 billion.`\
+https://nytimes.com/reuters/2020/05/01/business/01reuters-health-coronavirus-jp-morgan-loans.html?searchResultPosition=9
 
-**7 Savory Pancakes for Any Time of Day**\
-`Prepare this easy savory pancake mix, pull a few items from the fridge and you’re just minutes away from breakfast, lunch or dinner.`\
-https://nytimes.com/2020/05/01/dining/pancake-mix-coronavirus.html?searchResultPosition=10
+**A Minute With: Tim Gunn on Pajamas and Post-Quarantine Fashion**\
+`Even Tim Gunn, the immaculately dressed fashion mentor from "Project Runway" and Amazon's new competition show "Making the Cut," is finding it hard to get out of his pajamas these days. `\
+https://nytimes.com/reuters/2020/05/01/arts/01reuters-people-tim-gunn.html?searchResultPosition=10
 
