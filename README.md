@@ -30,7 +30,7 @@ https://nytimes.com/reuters/2020/05/01/world/europe/01reuters-health-coronavirus
 `Britain may have hit its daily target of 100,000 COVID-19 tests, or come close, putting in place the beginnings of a network to test, track and trace people through the pandemic, housing minister Robert Jenrick said on Friday. `\
 https://nytimes.com/reuters/2020/05/01/world/europe/01reuters-health-coronavirus-britain-testing.html?searchResultPosition=9
 
-**Norwegian Air's Fate Unclear as Deadline to Accept Rescue Offer Passes**\
-`The fate of Norwegain Air was in the balance on Friday after a deadline passed overnight for bondholders to vote on a rescue package for the transatlantic budget airline.`\
+**Norwegian Air's Fate in Balance as Result of Rescue Vote Awaited**\
+`The fate of Norwegian Air was in the balance on Friday after a deadline passed overnight for bondholders to vote on a rescue package for the transatlantic budget airline.`\
 https://nytimes.com/reuters/2020/05/01/business/01reuters-health-coronavirus-norwegianair.html?searchResultPosition=10
 
