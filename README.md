@@ -4,7 +4,7 @@ https://nytimes.com/aponline/2020/04/30/business/ap-cb-virus-outbreak-puerto-ric
 
 **Closing Number of a Musical**\
 `Trenton Charlson raises the curtain on our solving weekend.`\
-https://nytimes.com/2020/04/30/crosswords/closing-number-of-a-musical.html?searchResultPosition=3
+https://nytimes.com/2020/04/30/crosswords/daily-puzzle-2020-05-01.html?searchResultPosition=3
 
 **Trump to Leave White House on Friday for First Time in a Month**\
 `U.S. President Donald Trump will leave the White House on Friday for the first time in a month when he travels to the Camp David presidential retreat in Maryland.`\
