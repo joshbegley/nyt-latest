@@ -1,6 +1,6 @@
 **Anderson Cooper Announces Birth of His First Child**\
 `Wyatt Morgan Cooper, who is named after the newscaster’s late father, was delivered by a surrogate.`\
-https://nytimes.com/2020/05/01/us/nderson-cooper-baby-son-wyatt.html?searchResultPosition=2
+https://nytimes.com/2020/05/01/us/anderson-cooper-baby-son-wyatt.html?searchResultPosition=2
 
 **Oil Rises Again as Output Cuts Kick in, Inventories Grow Less Than Expected**\
 `Oil prices rose on Friday, extending the previous session's gains, as major producers began output cuts to offset a slump in fuel demand triggered by the coronavirus pandemic while data showed U.S. crude inventories grew less than expected.`\
