@@ -15,7 +15,7 @@ https://nytimes.com/2020/04/30/science/coronavirus-genetic-sequencing.html?searc
 https://nytimes.com/aponline/2020/04/30/us/ap-us-asylum-waiting-in-mexico.html?searchResultPosition=5
 
 **Puerto Rico to Partially Reopen Despite Coronavirus Concerns**\
-`Puerto Rico is taking its first tentative steps in relaxing a nearly two-month lockdown for the coronavirus pandemic, while health officials warn that the U.S. territory is relying on faulty statistics and has not yet seen its peak of cases.`\
+`Puerto Rico is taking its first tentative steps in relaxing a nearly two-month lockdown for the coronavirus pandemic, while health experts warn that the U.S. territory is relying on faulty statistics and has not yet seen its peak of cases.`\
 https://nytimes.com/aponline/2020/04/30/business/ap-cb-virus-outbreak-puerto-rico.html?searchResultPosition=6
 
 **Closing Number of a Musical**\
