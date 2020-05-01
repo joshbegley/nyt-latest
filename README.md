@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/05/01/world/asia/01reuters-health-coronavirus-j
 `April 24–April 30, 2020`\
 https://nytimes.com/aponline/2020/05/01/us/ap-us-pictures-of-the-week-in-north-america-photo-gallery.html?searchResultPosition=3
 
-**Hundreds of Rohingya Muslims Stuck at Sea in Refugee Crisis with ‘Zero Hope’**\
+**Hundreds of Rohingya Muslims Stuck at Sea in Refugee Crisis With ‘Zero Hope’**\
 `At least three boats carrying Rohingya refugees have been adrift for more than two months. As of this week, rights groups that had been tracking the boats lost sight of them.`\
 https://nytimes.com/2020/05/01/world/asia/rohingya-muslim-refugee-crisis.html?searchResultPosition=4
 
