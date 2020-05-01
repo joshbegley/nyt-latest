@@ -1,32 +1,32 @@
+**Indians Reliever Clase Suspended 80 Games for PED Violation**\
+`Indians reliever Emmanuel Clase has been suspended 80 games by Major League Baseball for testing positive for a banned performance-enhancing drug.`\
+https://nytimes.com/aponline/2020/05/01/sports/baseball/ap-bba-indians-clase-drug-suspension.html?searchResultPosition=3
+
+**GM Not a Target in UAW Corruption Probe: U.S. Attorney's Office**\
+`General Motors Co is not a target in the Justice Department's investigation into corruption within the United Auto Workers union, the U.S. Attorney's Office in Detroit said on Friday.`\
+https://nytimes.com/reuters/2020/05/01/us/01reuters-usa-autos-gm.html?searchResultPosition=4
+
+**Albania to Take a Step Closer to Pre-Virus Freedom in May**\
+`Albania will enlarge its area of green zones and let taxis travel between cities from Monday, and allow shopping centres to open and cars to travel without permits from May 11, according to a plan published by Prime Minister Edi Rama on Friday. `\
+https://nytimes.com/reuters/2020/05/01/world/europe/01reuters-health-coronavirus-albania.html?searchResultPosition=5
+
+**Times Square's Lonesome 'Naked Cowboy' Still Playing His Tunes**\
+`One of the enduring sights in New York City's Times Square is the Naked Cowboy, who - dressed only in underpants, boots and cowboy hat - charms the tourists that usually throng the area out of a few dollars with a wink and a song. `\
+https://nytimes.com/reuters/2020/05/01/us/01reuters-health-coronavirus-usa-naked-cowboy.html?searchResultPosition=6
+
+**Nats Skipper Martinez: Banner, Rings to Be Revealed for Fans**\
+`No one knows for sure how, when and where -- or, truly, even if -- Major League Baseball will play games in 2020. Washington Nationals manager Dave Martinez feels certain of this much: His team will wait to properly mark its World Series championship with spectators in the seats.`\
+https://nytimes.com/aponline/2020/05/01/sports/baseball/ap-bbn-virus-outbreak-nationals-martinez.html?searchResultPosition=7
+
+**Anheuser-Busch Wins Latest Round of Beer Wars Against Molson**\
+`A federal appeals court on Friday struck down a lower court's ruling in favor of brewing giant Molson Coors, determining that Anheuser-Busch can advertise and use packaging implying that its rival beers contain corn syrup. `\
+https://nytimes.com/aponline/2020/05/01/us/bc-us-beer-wars-corn-syrup.html?searchResultPosition=8
+
+**May: The Month That Sports, Kind of, Come Back**\
+`This month, fans may finally get a chance to see some real live sports on television, if not in person.`\
+https://nytimes.com/2020/05/01/sports/may-sports-soccer-tennis-horse-racing.html?searchResultPosition=9
+
 **Shore Towns Cite Virus to Keep Outsiders Off Their Beaches**\
 `American taxpayers helped pay for the sand on the Maryland Avenue beach, a popular spot on the New Jersey shore that was devastated by Superstorm Sandy and that has since been rebuilt and maintained with federal money.`\
-https://nytimes.com/aponline/2020/05/01/us/ap-us-virus-outbreak-unequal-beaches.html?searchResultPosition=3
-
-**Matty Simmons, a Force Behind ‘Animal House,’ Is Dead at 93**\
-`He helped get National Lampoon off the ground and was a producer of the Lampoon franchise’s hit movies.`\
-https://nytimes.com/2020/05/01/business/media/matty-simmons-dead.html?searchResultPosition=4
-
-**FDA Allows Emergency Use of Drug for Coronavirus**\
-`U.S. regulators on Friday allowed emergency use of an experimental drug that appears to help some coronavirus patients recover faster. `\
-https://nytimes.com/aponline/2020/05/01/health/ap-us-med-virus-outbreak-treatment.html?searchResultPosition=5
-
-**Is Physics on the Wrong Track? And Other Letters to the Editor**\
-`Readers respond to recent issues of the Sunday Book Review.`\
-https://nytimes.com/2020/05/01/books/review/is-physics-on-the-wrong-track-and-other-letters-to-the-editor.html?searchResultPosition=6
-
-**Petition Seeks to Put Medicaid Expansion on Missouri Ballot**\
-`Missouri voters could get to decide whether to expand Medicaid health care coverage for thousands of low-income adults after a decade of repeated rejections by the state's Republican-led Legislature.`\
-https://nytimes.com/aponline/2020/05/01/us/ap-us-medicaid-expansion-missouri.html?searchResultPosition=7
-
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark U.S. crude oil for June delivery rose 94 cents, or 5%, to close at $19.78 a barrel Friday. Brent crude oil, the international standard, fell 4 cents, or 0.2%, to $26.44 a barrel.`\
-https://nytimes.com/aponline/2020/05/01/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=8
-
-**Kroger Limiting Ground Beef, Pork Purchases in Some Stores: CNN**\
-`Supermarket chain Kroger Co is setting purchase limits on ground beef and fresh pork in some of its stores, CNN reported on Friday, amid growing concerns over meat shortages due to coronavirus-led supply disruptions.`\
-https://nytimes.com/reuters/2020/05/01/us/01reuters-health-coronavirus-kroger.html?searchResultPosition=9
-
-**USA Badminton Back in Good Standing After Safe-Sport Issues**\
-`USA Badminton is off probation. It received a reprieve from the U.S. Olympic and Paralympic Committee, which had been looking to decertify the organization because of noncompliance with a number of requirements designed to protect athletes from sex abuse. `\
-https://nytimes.com/aponline/2020/05/01/sports/ap-usopc-badminton-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/01/us/ap-us-virus-outbreak-unequal-beaches.html?searchResultPosition=10
 
