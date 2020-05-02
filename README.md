@@ -26,7 +26,7 @@ https://nytimes.com/2020/05/02/technology/eric-schmidt-pentagon-google.html?sear
 `For researchers using delicate, one-of-a-kind equipment, the extreme conditions at the bottom of the planet pose special challenges.`\
 https://nytimes.com/2020/05/02/science/antarctica-science-equipment.html?searchResultPosition=9
 
-**Fearing Political Peril, Republicans Edge Away From Trump on Pandemic Response**\
-`Moderate Republicans in competitive districts are navigating a careful balance in addressing the coronavirus crisis, eager to put some distance between themselves and a president whose response has been criticized.`\
-https://nytimes.com/2020/05/02/us/politics/coronavirus-trump-republicans.html?searchResultPosition=10
+**Jewish Characters Star in Saudi TV Show, Igniting an Arab Debate**\
+`Fans have praised a hit TV series for promoting religious diversity. Critics say it encourages “normalization” with Israel and betrays the Palestinian cause.`\
+https://nytimes.com/2020/05/02/world/middleeast/saudi-arabia-um-haroun-jews.html?searchResultPosition=10
 
