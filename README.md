@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/05/02/world/middleeast/ap-ml-egypt-obit-shady-
 https://nytimes.com/reuters/2020/05/02/technology/02reuters-tokopedia-cyber.html?searchResultPosition=6
 
 **Saudi to Take 'Strict, Painful' Measures to Deal With Coronavirus Impact**\
-`Saudi Arabia will take strict and painful measures to deal with the impact of the coronavirus pandemic, the finance minister said in an interview with Al Arabiya on Saturday, adding that "all options for dealing with the crisis are open".`\
+`Saudi Arabia will take strict and painful measures to deal with the economic impact of the coronavirus pandemic, finance minister Mohammed al-Jadaan said in an interview with Al Arabiya TV, adding that "all options for dealing with the crisis are open".`\
 https://nytimes.com/reuters/2020/05/02/world/middleeast/02reuters-health-coronavirus-saudi-finance.html?searchResultPosition=7
 
 **Afghanistan Investigating Claims Migrants Were Killed by Iranian Guards**\
