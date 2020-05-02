@@ -28,5 +28,5 @@ https://nytimes.com/2020/05/02/business/Parents-retirement-moving-in-millennials
 
 **After a Lifetime Together, Coronavirus Takes Them Both**\
 `Across the country, reports are surfacing of long-term couples dying from Covid-19 in quick succession, redoubling the pain for those they leave behind.`\
-https://nytimes.com/2020/05/02/us/after-a-lifetime-together-coronavirus-takes-them-both.html?searchResultPosition=10
+https://nytimes.com/2020/05/02/us/coronavirus-couples.html?searchResultPosition=10
 
