@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/05/02/world/asia/02reuters-pakistan-court-danie
 `Conner Brown, a 25-year-old law student at Stanford University, spent the early days of the pandemic following his brother as he spotted and collected characters in the Pokemon Go mobile game.`\
 https://nytimes.com/aponline/2020/05/02/business/ap-us-virus-outbreak-birding-boom.html?searchResultPosition=4
 
-**Pakistani Journalist Who Covered Crime and Insurgency Is Found Dead in Sweden**\
+**Exiled Pakistani Journalist Found Dead in Sweden**\
 `The police said an initial investigation did not suggest foul play in the death of Sajid Hussain, but journalism groups expressed skepticism and concern.`\
 https://nytimes.com/2020/05/02/world/asia/pakistan-journalist-dead.html?searchResultPosition=5
 
