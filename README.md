@@ -6,7 +6,7 @@ https://nytimes.com/2020/05/02/nyregion/paramedic-paul-cary-coronavirus-nyc.html
 `Maryland officials are seeking an investigation into a politically connected company that contracted to provide the state with $12.5 million worth of personal protective equipment that never arrived.`\
 https://nytimes.com/aponline/2020/05/02/us/ap-us-virus-outbreak-maryland-equipment.html?searchResultPosition=4
 
-**Was That a Cough? Going Back to the Movies in Texas.**\
+**Was That a Cough? Going Back to the Movies in Texas**\
 `A few movie theaters in Texas opened on Saturday, early experiments in back-to-normal living after a long coronavirus lockdown.`\
 https://nytimes.com/2020/05/02/us/coronavirus-movie-theaters-texas.html?searchResultPosition=5
 
