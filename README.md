@@ -10,7 +10,7 @@ https://nytimes.com/aponline/2020/05/02/us/ap-us-call-to-unite-marathon.html?sea
 `The Senate will reopen on Monday as the coronavirus crisis  rages and the House stays shuttered, a risky strategy that leaves Congress as divided as the nation. `\
 https://nytimes.com/aponline/2020/05/02/us/politics/ap-us-virus-outbreak-congress.html?searchResultPosition=5
 
-**As Weather Warms Up, New Yorkers Rush to Parks**\
+**Balmy Weather Presents a Challenge: New Yorkers Rushing to Parks**\
 `After weeks spent indoors, people ventured outside in droves, but worried officials warned them to wear masks and keep social distance.`\
 https://nytimes.com/2020/05/02/nyregion/weather-parks-nyc-nj-coronavirus.html?searchResultPosition=6
 
