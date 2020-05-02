@@ -26,7 +26,7 @@ https://nytimes.com/reuters/2020/05/02/world/africa/02reuters-lesotho-politics.h
 `The International Monetary Fund (IMF) said on Saturday it would disburse a $200 million loan tranche to Georgia to help the ex-Soviet country meet urgent balance of payments and fiscal needs stemming from the COVID-19 pandemic.`\
 https://nytimes.com/reuters/2020/05/02/world/europe/02reuters-georgia-economy-imf.html?searchResultPosition=9
 
-**Magnitude 6.0 Earthquake Strikes Crete, Greece: EMSC**\
-`An earthquake of magnitude 6 struck the Greek island of Crete on Saturday, the European Mediterranean Seismological Centre (EMSC) said https://www.emsc-csem.org/Earthquake/earthquake.php?id=853296.`\
+**Strong Earthquake Strikes South of Crete, No Word on Damage**\
+`A strong earthquake struck south of the Greek island of Crete on Saturday, the European Mediterranean Seismological Centre (EMSC) said https://www.emsc-csem.org/Earthquake/earthquake.php?id=853296 , but there were no immediate reports of casualties or damage.`\
 https://nytimes.com/reuters/2020/05/02/world/europe/02reuters-greece-quake.html?searchResultPosition=10
 
