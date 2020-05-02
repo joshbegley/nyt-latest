@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/05/02/technology/02reuters-tokopedia-cyber.html
 `Saudi Arabia will take strict and painful measures to deal with the impact of the coronavirus pandemic, the finance minister said in an interview with Al Arabiya on Saturday, adding that "all options for dealing with the crisis are open".`\
 https://nytimes.com/reuters/2020/05/02/world/middleeast/02reuters-health-coronavirus-saudi-finance.html?searchResultPosition=6
 
-**Afghanistan to Probe Claims Migrants Were Drowned by Iranian Guards**\
+**Afghanistan Investigating Claims Migrants Were Drowned by Iranian Guards**\
 `About 50 Afghan migrants crossing into Iran illegally were beaten and thrown into a river, local news media and witnesses say. As many as half did not survive, they said.`\
 https://nytimes.com/2020/05/02/world/asia/afghanistan-iran-migrants-drown.html?searchResultPosition=7
 
