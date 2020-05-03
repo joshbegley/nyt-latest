@@ -3,7 +3,7 @@
 https://nytimes.com/2020/05/03/business/media/britain-newspapers-coronavirus.html?searchResultPosition=2
 
 **President Trump, I Am Not Your Enemy. I Am a Doctor.**\
-`For now, my future and those of other immigrants in America remains uncertain.`\
+`For now, my future and that of other immigrants in America remain uncertain.`\
 https://nytimes.com/2020/05/03/opinion/coronavirus-doctors-immigration-trump.html?searchResultPosition=3
 
 **Democrats, It’s Time to Consider a Plan B**\
