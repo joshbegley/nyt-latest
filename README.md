@@ -1,5 +1,5 @@
 **Lufthansa Board Hopeful of Securing Government Bailout Soon**\
-`Lufthansa is hopeful that its bailout talks with the German government can be concluded soon, the airline's board told staff in a letter seen by Reuters, adding that it is also considering alternatives such as creditor protection.`\
+`Lufthansa is hopeful its bailout talks with the German government can be concluded soon, the airline's board told staff in a letter seen by Reuters, adding that it is also considering alternatives such as creditor protection.`\
 https://nytimes.com/reuters/2020/05/03/business/03reuters-health-coronavirus-lufthansa.html?searchResultPosition=2
 
 **Venezuela Government Says It Foils Attempted Mercenary 'Incursion'**\
