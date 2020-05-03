@@ -26,7 +26,7 @@ https://nytimes.com/2020/05/03/world/europe/backlash-china-coronavirus.html?sear
 `Oral arguments before the U.S. Supreme Court are typically a formal affair, dictated by adherence to tradition by an institution historically resistant to altering its ways. Come Monday, thanks to the coronavirus pandemic, all that changes.`\
 https://nytimes.com/reuters/2020/05/03/us/03reuters-usa-court-arguments.html?searchResultPosition=8
 
-**The Latest: Some Serie A Players Set to Resume Practicing**\
+**The Latest: La Liga to Resume Individual Training Sessions**\
 `The Latest on the effects of the new coronavirus outbreak on sports around the world:`\
 https://nytimes.com/aponline/2020/05/03/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=9
 
