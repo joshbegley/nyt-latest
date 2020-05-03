@@ -1,36 +1,36 @@
-**Malaysia Reports 122 New Coronavirus Cases, Two New Deaths**\
-`Malaysia reported 122 new confirmed cases of the novel coronavirus on Sunday, taking the cumulative total to 6,298 infections.`\
-https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-health-coronavirus-malaysia.html?searchResultPosition=2
+**The Covid-19 Riddle: Why Does the Virus Wallop Some Places and Spare Others?**\
+`Experts are trying to figure out why the coronavirus is so capricious. The answers could determine how to best protect ourselves and how long we have to.`\
+https://nytimes.com/2020/05/03/world/asia/coronavirus-spread-where-why.html?searchResultPosition=2
 
-**Afghanistan Probes Report Iranian Border Guards Forced Migrants Into River, Many Drowned**\
-`Afghan officials on Sunday launched a hunt to retrieve bodies of Afghan migrants from a river in a western province after reports that Iranian border guards tortured and threw Afghans into the river to prevent their entry into Iran.`\
-https://nytimes.com/reuters/2020/05/03/world/middleeast/03reuters-afghanistan-iran-migrants.html?searchResultPosition=3
+**I Bought a Car From Northern Italy as the Pandemic Took Hold**\
+`The little blue coupe’s journey shows how ordinary things played out in extraordinary circumstances.`\
+https://nytimes.com/2020/05/03/business/italian-car-coronavirus.html?searchResultPosition=3
 
-**Factbox: Latest on the Worldwide Spread of the New Coronavirus**\
-`More than 3.44 million people have been reported to be infected by the novel coronavirus globally and 243,015 have died, according to a Reuters tally, as of 0200 GMT on Sunday.`\
-https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-health-coronavirus-latest-may3-factbox.html?searchResultPosition=4
+**Percival Everett Has a Book or Three Coming Out**\
+`“Telephone,” a novel whose multiple versions were originally intended as a secret before the coronavirus pandemic, is the latest from a rule-breaking writer.`\
+https://nytimes.com/2020/05/03/books/percival-everett-telephone.html?searchResultPosition=4
 
-**As Putin Dallies, Russia’s Small Businesses Are Withering Away**\
-`The Russian president, who seems to share the traditional Soviet view of entrepreneurs as “swindlers,” is doing little to help them through a coronavirus lockdown.`\
-https://nytimes.com/2020/05/03/world/europe/russia-coronavirus-small-business.html?searchResultPosition=5
+**One of Amazon’s Most Powerful Critics Lives in Its Backyard**\
+`Representative Pramila Jayapal of Washington tried to keep her concerns about the company private. Now she’s going public.`\
+https://nytimes.com/2020/05/03/technology/amazon-pramila-jayapal.html?searchResultPosition=5
 
-**Mosques and Schools to Reopen in Iran's Low-Risk Areas**\
-`Iran plans to reopen mosques and schools in areas that have been consistently free of the coronavirus as President Hassan Rouhani's government starts to ease restrictions that were aimed at containing the outbreak.`\
-https://nytimes.com/reuters/2020/05/03/world/middleeast/03reuters-health-coronavirus-iran.html?searchResultPosition=6
+**Trump Nominee Is Among Judges Opposed to Banning Membership in Conservative Group**\
+`Judge Justin Walker joined a bevy of judges, many appointees of the president, in railing against an ethics proposal on the Federalist Society.`\
+https://nytimes.com/2020/05/03/us/politics/judges-federalist-society.html?searchResultPosition=6
 
-**UK Royal Kate Calls Midwives and Parents to Highlight Mental Health Issues**\
-`British royal Kate, the Duchess of Cambridge, has video-called a number of new parents, midwives and other maternity service professionals to promote her message of mental health awareness during the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/03/world/europe/03reuters-health-coronavirus-britain-kate.html?searchResultPosition=7
+**The Coronavirus Becomes a Battle Cry for U.S. Extremists**\
+`White supremacists seek to stoke the fear and disruption caused by the pandemic to push their agenda and to recruit.`\
+https://nytimes.com/2020/05/03/us/coronavirus-extremists.html?searchResultPosition=7
 
-**Philippines Coronavirus Cases Surpass 9,000, Death Toll Rises**\
-`The number of coronavirus cases in the Philippines climbed to 9,223 after the Health Ministry reported 295 new infections on Sunday.`\
-https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-health-coronavirus-philippines-cases.html?searchResultPosition=8
+**These Are the Bedside Concerts Comforting Virus Patients**\
+`An I.C.U. doctor felt despair at how little could be done for the sick. Soon, she had musicians playing over the phone in hospital rooms.`\
+https://nytimes.com/2020/05/03/nyregion/coronavirus-doctor-musician-rachel-easterbrook.html?searchResultPosition=8
 
-**Scrub Hub to the Rescue: 4 Women Succeed Where UK Stumbled**\
-`They just wanted to help. But they created a movement.`\
-https://nytimes.com/aponline/2020/05/03/world/europe/bc-eu-virus-outbreak-britain-scrub-hub.html?searchResultPosition=9
+**Concert for One: I.C.U. Doctor Brings Classical Music to Coronavirus Patients**\
+`Dr. Rachel Easterwood, a professionally trained musician-turned-physician, has found a unique way to help her patients with Covid-19 — live classical music concerts.`\
+https://nytimes.com/video/nyregion/100000007092240/coronavirus-covid-patients-classical-music.html?searchResultPosition=9
 
-**Israel's Supreme Court Discusses Netanyahu's Fate as Prime Minister**\
-`Israel's Supreme Court began a two-day hearing on Sunday to determine whether Prime Minister Benjamin Netanyahu, who has been indicted for corruption, will be allowed to form a new government.`\
-https://nytimes.com/reuters/2020/05/03/world/middleeast/03reuters-israel-politics-netanyahu.html?searchResultPosition=10
+**Andy Warhol, Superstar**\
+`Blake Gopnik’s mammoth biography traces the life and career of the original King of Pop.`\
+https://nytimes.com/2020/05/03/books/review/warhol-blake-gopnik.html?searchResultPosition=10
 
