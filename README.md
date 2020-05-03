@@ -1,36 +1,36 @@
+**Philippines Temporarily Bars Incoming Flights to Decongest Quarantine Facilities**\
+`The Philippines barred incoming passenger flights from Sunday morning for one week to contain the spread of the coronavirus and help reduce pressure on quarantine facilities housing thousands of Filipino repatriates, officials said on Sunday. `\
+https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-health-coronavirus-philippines.html?searchResultPosition=2
+
 **With Fighter Jets and Army Bands, India's Military Thank Health Workers**\
 `India's air force flew aircraft low over more than a dozen cities on Sunday, part of a nationwide campaign by the armed forces to thank healthcare workers and other essential services personnel fighting the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-health-coronavirus-india-flypast.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-health-coronavirus-india-flypast.html?searchResultPosition=3
 
 **AP PHOTOS: Italian Mountain Retreat Banks on Summer Recovery**\
 `As Italy gradually emerges from its two-month coronavirus lockdown, tourism operators in the hard-hit Val Seriana valley look ahead with trepidation at an uncertain summer season that could make or break them. `\
-https://nytimes.com/aponline/2020/05/03/world/europe/bc-virus-outbreak-italy-mountain-tourism-photo-gallery.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/05/03/world/europe/bc-virus-outbreak-italy-mountain-tourism-photo-gallery.html?searchResultPosition=4
 
 **Foiled Prison Break Leaves Inmate Dead in Sri Lanka**\
 `Prison guards in Sri Lanka foiled an attempt by inmates to escape on Sunday after they used ropes and bed sheets to scale down the wall, leaving at least one dead, police said. `\
-https://nytimes.com/aponline/2020/05/03/world/asia/ap-as-sri-lanka-foiled-prison-break.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/05/03/world/asia/ap-as-sri-lanka-foiled-prison-break.html?searchResultPosition=5
 
 **On This Day: Born May 4, 1989: Rory McIlroy, Northern Irish Golfer**\
 `The North of Ireland Amateur Open in 2005 was not an event expected to produce much glamour, but a 16-year-old Rory McIlroy was dressed to impress.`\
-https://nytimes.com/reuters/2020/05/03/sports/golf/03reuters-sport-anniversary-mcilroy.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/05/03/sports/golf/03reuters-sport-anniversary-mcilroy.html?searchResultPosition=6
 
 **Ramadan TV Series About Gulf Jews Ignites Controversy**\
 `A television series aired by a Saudi broadcaster during the Muslim holy month of Ramadan has sparked controversy by offering a positive depiction of a Jewish community in the Gulf at the time of Israel's creation.`\
-https://nytimes.com/aponline/2020/05/03/world/middleeast/ap-ml-gulf-israel-tv-series.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/05/03/world/middleeast/ap-ml-gulf-israel-tv-series.html?searchResultPosition=7
 
 **North and South Korea Exchange Gunfire Across Border at Guard Post**\
 `North and South Korea exchanged gunfire around the South's guard post early on Sunday, raising tension a day after North Korean leader Kim Jong Un ended an almost three-week absence from public life with state media showing him visiting a factory.`\
-https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-northkorea-southorea.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-northkorea-southorea.html?searchResultPosition=8
 
 **Singapore Looks to Ramp Up Factory Activities as Virus Curbs Ease**\
 `Singapore will progressively ramp up its manufacturing activities, its minister of trade and industry said on Sunday, with the city-state looking to restart its economy as coronavirus curbs start to ease over the next few weeks.`\
-https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-health-coronavirus-singapore.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-health-coronavirus-singapore.html?searchResultPosition=9
 
 **The Latest: Residents Flocking to Tourist Sites in China**\
 `The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
-https://nytimes.com/aponline/2020/05/03/business/ap-virus-outbreak-the-latest.html?searchResultPosition=9
-
-**Singapore Minister Says RCEP Trade Deal on Track for Year-End Signing**\
-`The Regional Comprehensive Economic Partnership (RCEP) trade deal is still on track to be signed by the end of 2020, Singapore's Minister of Trade and Industry Chan Chun Sing said on Sunday.`\
-https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-singapore-trade-rcep.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/03/business/ap-virus-outbreak-the-latest.html?searchResultPosition=10
 
