@@ -18,7 +18,7 @@ https://nytimes.com/2020/05/03/us/coronavirus-high-school-principals.html?search
 `President Donald Trump will take questions about the new coronavirus at a televised virtual town hall on Sunday as some states relax stay-at-home orders while others keep them firmly in place.`\
 https://nytimes.com/reuters/2020/05/03/us/03reuters-health-coronavirus-trump-townhall.html?searchResultPosition=6
 
-**Report: China Hid Coronavirus' Severity to Hoard Supplies**\
+**DHS Report: China Hid Virus' Severity to Hoard Supplies**\
 `U.S. officials believe China covered up the extent of the coronavirus outbreak — and how contagious the disease is — to stock up on medical supplies needed to respond to it, intelligence documents show. `\
 https://nytimes.com/aponline/2020/05/03/us/politics/ap-us-virus-outbreak-intelligence-china-1st-ld-writethru.html?searchResultPosition=7
 
