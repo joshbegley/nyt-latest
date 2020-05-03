@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/05/02/business/ap-as-virus-outbreak-asia.html?
 `Is Nadal good enough to beat a Charlatan?`\
 https://nytimes.com/reuters/2020/05/02/sports/02reuters-horseracing-arkansas.html?searchResultPosition=3
 
-**AP Sources: Cowboys Add QB Dalton as Prescott's Backup**\
+**Dalton Comes Home to Texas as Prescott's Backup With Cowboys**\
 `Andy Dalton is coming home to Texas as Dak Prescott's backup with the Dallas Cowboys.`\
 https://nytimes.com/aponline/2020/05/02/sports/football/ap-fbn-cowboys-dalton.html?searchResultPosition=4
 
