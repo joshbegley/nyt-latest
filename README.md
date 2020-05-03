@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/05/03/us/03reuters-health-coronavirus-canada-ab
 `French car hire company Europcar said on Sunday it had secured a total of 307 million euros ($337.18 million) in new financing to manage through the coronavirus crisis.`\
 https://nytimes.com/reuters/2020/05/03/world/europe/03reuters-eurazeo-europcar-mobilit.html?searchResultPosition=5
 
-**France's COVID-19 Tracing App Expected to Enter Testing Week on Monday**\
-`France's state-supported "StopCOVID" contact-tracing app should enter its testing phase a week on Monday when the country starts  to unwind its lockdown, a government minister said on Sunday. `\
+**France's COVID-19 Tracing App Expected to Enter Testing in Week of May 11**\
+`France's state-supported "StopCOVID" contact-tracing app should enter its testing phase in the week of May 11 when the country starts to unwind its lockdown, a government minister said on Sunday. `\
 https://nytimes.com/reuters/2020/05/03/technology/03reuters-health-coronavirus-france.html?searchResultPosition=6
 
 **Rohingya Survivors Tell of Misery and Death at Sea; Hundreds Still Adrift**\
