@@ -1,5 +1,5 @@
 **County Has Highest Rate of COVID-19 Cases on West Coast**\
-`The highest rate of coronavirus cases of any county on the U.S. West Coast is Washington state’s Yakima County.`\
+`The highest rate of coronavirus cases of any county on the U.S. West Coast is in Washington state’s Yakima County.`\
 https://nytimes.com/aponline/2020/05/02/us/ap-us-virus-outbreak-yakima-county-3rd-ld-writethru.html?searchResultPosition=2
 
 **Bolivian Light Plane Crash Kills Six, Including Four Spanish Citizens**\
