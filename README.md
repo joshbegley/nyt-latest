@@ -1,4 +1,4 @@
-**North and South Korea Exchange Gunfire Across Boarder at Guard Post**\
+**North and South Korea Exchange Gunfire Across Border at Guard Post**\
 `North and South Korea exchanged gunfire around the South's guard post early on Sunday, raising tension a day after North Korean leader Kim Jong Un ended an almost three-week absence from public life with state media showing him visiting a factory.`\
 https://nytimes.com/reuters/2020/05/02/world/asia/02reuters-northkorea-southorea.html?searchResultPosition=2
 
