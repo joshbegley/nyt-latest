@@ -1,36 +1,36 @@
+**Why Biden’s Choice of Running Mate Has Momentous Implications**\
+`Mr. Biden has hinted that he might serve only one term if he wins. That would set up a woman as the front-runner for 2024 and perhaps define the Democratic agenda for the next decade.`\
+https://nytimes.com/2020/05/03/us/politics/joe-biden-vice-president-pick.html?searchResultPosition=2
+
+**Iceland Could Mull Taking Stake in Icelandair if State Injects Funds: PM**\
+`Iceland may consider taking a stake in Icelandair Group if the government injects funds into the airline, Bloomberg reported, citing comments by Prime Minister Katrin Jakobsdottir to a local radio station.`\
+https://nytimes.com/reuters/2020/05/03/business/03reuters-health-coronavirus-icelandair-group.html?searchResultPosition=3
+
+**Olympians Look to Help Young Athletes During Shutdown**\
+`When Jesse Smith looks out at his Zoom audience, he knows exactly what the crowd is going through.`\
+https://nytimes.com/aponline/2020/05/03/sports/olympics/ap-oly-reaching-out.html?searchResultPosition=4
+
+**Gil Schwartz, Aka Humorist Stanley Bing, Has Died at 68**\
+`Gil Schwartz, the longtime CBS communications executive who wrote humorous novels and columns under the pen name Stanley Bing, has died. He was 68. `\
+https://nytimes.com/aponline/2020/05/03/business/ap-us-obit-gil-schwartz.html?searchResultPosition=5
+
 **On Subways as Riders Return: Odes to Their Resilience**\
 `Leaders of the “Poetry in Motion” program hope verse can help to comfort and encourage people as they return to the trains in greater numbers.`\
-https://nytimes.com/2020/05/03/arts/virus-subway-riders-poems.html?searchResultPosition=2
+https://nytimes.com/2020/05/03/arts/virus-subway-riders-poems.html?searchResultPosition=6
 
 **Ex-MLB All-Star Keough Dies at 64**\
 `Former All-Star pitcher Matt Keough died Saturday of undisclosed causes. He was 64.`\
-https://nytimes.com/reuters/2020/05/03/sports/baseball/03reuters-baseball-mlb-oak-keough-obit.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/03/sports/baseball/03reuters-baseball-mlb-oak-keough-obit.html?searchResultPosition=7
 
 **Canada Giving AbCellera Biologics C$176 Million for Coronavirus Research**\
 `Canada said on Sunday it was giving privately held Canadian firm AbCellera Biologics Inc C$176 million to help it find naturally produced antibodies that could be used to battle the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/05/03/us/03reuters-health-coronavirus-canada-abcellera.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/03/us/03reuters-health-coronavirus-canada-abcellera.html?searchResultPosition=8
 
 **Europcar Gets 307 Million Euros in Financing to Cope With COVID-19 Crisis**\
 `French car hire company Europcar said on Sunday it had secured a total of 307 million euros ($337.18 million) in new financing to manage through the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/05/03/world/europe/03reuters-eurazeo-europcar-mobilit.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/05/03/world/europe/03reuters-eurazeo-europcar-mobilit.html?searchResultPosition=9
 
 **France's COVID-19 Tracing App Expected to Enter Testing in Week of May 11**\
 `France's state-supported "StopCOVID" contact-tracing app should enter its testing phase in the week of May 11 when the country starts to unwind its lockdown, a government minister said on Sunday. `\
-https://nytimes.com/reuters/2020/05/03/technology/03reuters-health-coronavirus-france.html?searchResultPosition=6
-
-**Rohingya Survivors Tell of Misery and Death at Sea; Hundreds Still Adrift**\
-`Rohingya refugee Shahab Uddin thought the wooden trawler he boarded in February would be his ticket out of a camp in Bangladesh to a better life in Malaysia. `\
-https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-health-coronavirus-rohingya.html?searchResultPosition=7
-
-**Turkey Records 61 New COVID-19 Deaths, Lowest in Over a Month**\
-`Turkey’s health minister has announced 61 new deaths from COVID-19 in the past 24 hours, which is the lowest number in over a month. The country's total death toll stands at 3,397.`\
-https://nytimes.com/aponline/2020/05/03/world/europe/ap-eu-virus-outbreak-turkey.html?searchResultPosition=8
-
-**At Lincoln Memorial, Trump to Take Public's Pandemic Queries**\
-`Anxious for an economic recovery, President Donald Trump prepared to field Americans' questions about decisions by some states to allow nonessential businesses to reopen while other states are on virtual lockdown due to the coronavirus.`\
-https://nytimes.com/aponline/2020/05/03/us/politics/ap-us-virus-outbreak-washington.html?searchResultPosition=9
-
-**Race, Loyalty and Transparency in an Artist’s Lawsuit**\
-`Did a gallery that helped black artists in the 1980s also take advantage of them? Howardena Pindell is seeking the return of almost two dozen works. Other artists say the gallery skipped payments.`\
-https://nytimes.com/2020/05/03/arts/design/howardena-pindell-lawsuit.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/03/technology/03reuters-health-coronavirus-france.html?searchResultPosition=10
 
