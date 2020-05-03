@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/05/02/world/americas/02reuters-health-coronavir
 `Under the collective bargaining agreement ratified in March, more than 400 retired players are set to see reductions to their monthly benefits.`\
 https://nytimes.com/2020/05/02/sports/football/nfl-disability-retired-player-benefits.html?searchResultPosition=6
 
-**Berkshire Sells Entire Stakes in U.S. Airlines: Buffett**\
+**Berkshire Sells Entire Stakes in U.S Airlines: Buffett**\
 `Berkshire Hathaway Inc has sold its entire stakes in the four largest U.S. airlines, Chairman Warren Buffett said Saturday at the company's annual meeting.`\
 https://nytimes.com/reuters/2020/05/02/business/02reuters-berkshire-airlines.html?searchResultPosition=7
 
