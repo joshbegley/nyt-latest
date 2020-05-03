@@ -10,12 +10,12 @@ https://nytimes.com/reuters/2020/05/03/us/03reuters-health-coronavirus-usa-hunti
 `The country’s economy is starting to reopen. But health officials warn against moving too fast.`\
 https://nytimes.com/2020/05/03/business/the-week-in-business-whos-ready-to-go-shopping.html?searchResultPosition=4
 
-**Ivory Coast PM Evacuated to France for Medical Checks**\
-`Ivory Coast's Prime Minister Amadou Gon Coulibaly, who is the ruling party’s candidate in October’s presidential election, was evacuated on Saturday to France for medical checks, the presidency said.`\
+**Ivory Coast PM Flies to France for Medical Checks**\
+`Ivory Coast Prime Minister Amadou Gon Coulibaly, the ruling party's candidate in October's presidential election, has flown to France for medical checks, the presidency said on Sunday.`\
 https://nytimes.com/reuters/2020/05/03/world/africa/03reuters-health-coronavirus-ivorycoast-politics.html?searchResultPosition=5
 
 **Syrian Tycoon Makhlouf Says Security Forces Are Arresting His Employees**\
-`Sanctions-hit Syrian tycoon Rami Makhlouf on Sunday said that security forces are arresting employees at his diversified companies in what he said were "mounting pressures" on him days after Syrian authorities asked him to repay hefty taxes.`\
+`Sanctions-hit Syrian tycoon Rami Makhlouf on Sunday said that security forces were arresting employees at his diversified companies in what he said was "mounting pressure" on him days after Syrian authorities asked him to pay hefty taxes.`\
 https://nytimes.com/reuters/2020/05/03/technology/03reuters-syria-security-tycoon.html?searchResultPosition=6
 
 **Lebanese Detains 5 Sudanese Along the Border With Israel**\
