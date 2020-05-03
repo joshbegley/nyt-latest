@@ -2,7 +2,7 @@
 `Heavily dependent on advertising and circulation, local and regional newspapers in the U.K. could face financial ruin as a result of the coronavirus pandemic.`\
 https://nytimes.com/2020/05/03/business/media/britain-newspapers-coronavirus.html?searchResultPosition=2
 
-**President Trump, I Am Not Your Enemy**\
+**President Trump, I Am Not Your Enemy. I Am a Doctor.**\
 `For now, my future and those of other immigrants in America remains uncertain.`\
 https://nytimes.com/2020/05/03/opinion/coronavirus-doctors-immigration-trump.html?searchResultPosition=3
 
