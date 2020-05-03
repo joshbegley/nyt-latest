@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/05/02/world/europe/02reuters-health-coronavirus
 https://nytimes.com/reuters/2020/05/02/world/asia/02reuters-northkorea-southorea.html?searchResultPosition=3
 
 **S Korea Says Troops Exchange Fire Along N Korean Border**\
-`South Korea says its troops have exchanged fire with North Korea along their tense land border. `\
+`North and South Korean troops exchanged fire along their tense border on Sunday, the South’s military said, blaming North Korean soldiers for targeting a guard post. `\
 https://nytimes.com/aponline/2020/05/02/world/asia/ap-as-koreas-tensions-.html?searchResultPosition=4
 
 **North and South Korea Exchange Gunfire Across Demilitarized Zone**\
