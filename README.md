@@ -1,4 +1,4 @@
-**Turkey's Coronavirus Death Toll Rises to 3,397 - Ministry**\
+**Turkey's Coronavirus Death Toll Rises to 3,397: Ministry**\
 `The number of people who have died from COVID-19 in Turkey has risen by 61 in the last 24 hours to 3,397, Health Ministry data showed on Sunday. `\
 https://nytimes.com/reuters/2020/05/03/world/europe/03reuters-health-coronavirus-turkey-toll.html?searchResultPosition=2
 
