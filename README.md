@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/05/03/world/americas/03reuters-health-coronavir
 `New Yorkers were mostly adhering to social distancing rules while outside enjoying the warmest weekend in a spring clouded by the coronavirus crisis, Mayor Bill de Blasio said Sunday.`\
 https://nytimes.com/aponline/2020/05/03/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=3
 
-**Indian Bank Bad Debt Could Double After Coronavirus Crisis: Sources**\
+**Indian Bank Bad Debt Could Double in Coronavirus Crisis: Sources**\
 `India expects bad debts at its banks could double after the coronavirus crisis brought the economy to a sudden halt, a senior government official and four top bankers told Reuters.`\
 https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-health-coronavirus-india-npa.html?searchResultPosition=4
 
