@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-health-coronavirus
 `The awarding body for World Expos is set to approve a one-year postponement of Expo 2020 Dubai, the Bureau International des Expositions (BIE) said on Monday.`\
 https://nytimes.com/reuters/2020/05/04/technology/04reuters-health-coronavirus-emirates-expo.html?searchResultPosition=6
 
-**Bangladesh Coronavirus Cases Above 10,000: Health Ministry**\
+**Bangladesh Coronavirus Cases Exceed 10,000: Health Ministry**\
 `The number of coronavirus cases in Bangladesh surpassed 10,000 on Monday, the country's health ministry said, with infections increasing in pace over the past several days.`\
 https://nytimes.com/reuters/2020/05/04/world/asia/04reuters-health-coronavirus-bangladesh.html?searchResultPosition=7
 
