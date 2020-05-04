@@ -1,36 +1,36 @@
+**What the Heck Is That?**\
+`A look at one of the entries from last week’s puzzles that stumped our solvers.`\
+https://nytimes.com/2020/05/04/crosswords/heck-olla-crosswords.html?searchResultPosition=2
+
 **NFL Moving London, Mexico City Games Back to US Stadiums**\
 `The NFL is moving its five games scheduled for London and Mexico City this season back to U.S. stadiums because of the coronavirus pandemic, two people with knowledge of the switch told The Associated Press.`\
-https://nytimes.com/aponline/2020/05/04/sports/football/ap-fbn-international-games-moved.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/05/04/sports/football/ap-fbn-international-games-moved.html?searchResultPosition=3
 
 **Swiss Gold Refineries Reopen as Virus Lockdown Eases**\
 `Two of the world's biggest gold refiners, Valcambi and Argor-Heraeus, said on Monday they were restoring close to full operations after Swiss authorities relaxed coronavirus lockdown measures. `\
-https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-gold-refining-switzerland.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-gold-refining-switzerland.html?searchResultPosition=4
 
 **Italy's Coronavirus Death Toll Far Higher Than Reported: Stats Office**\
 `Italy's coronavirus death toll is much higher than reported, statistics bureau ISTAT said on Monday in an analysis pointing to thousands of fatalities that have never been officially attributed to COVID-19.`\
-https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-health-coronavirus-italy-mortality.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-health-coronavirus-italy-mortality.html?searchResultPosition=5
 
 **Fitness Group Cure.fit Lays Off Employees, Mulls All-Digital Move: Sources**\
 `Indian gym and wellness startup cure.fit has laid off as many as 800 of its staff across the country and permanently closed a number of fitness centres to cut costs amid the world's biggest coronavirus lockdown, sources familiar with the situation said. `\
-https://nytimes.com/reuters/2020/05/04/technology/04reuters-curefit-jobs.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/05/04/technology/04reuters-curefit-jobs.html?searchResultPosition=6
 
 **Meatpackers Cautiously Reopen Plants Amid Coronavirus Fears**\
 `A South Dakota pork processing plant took its first steps toward reopening Monday after being shuttered for over two weeks because of a coronavirus outbreak that infected more than 800 employees.`\
-https://nytimes.com/aponline/2020/05/04/business/bc-us-virus-outbreak-meat-plants.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/05/04/business/bc-us-virus-outbreak-meat-plants.html?searchResultPosition=7
 
 **Motor Racing: F1 Agrees $145 Million Cap for Teams in 2021, Says Brawn**\
 `Formula One has agreed a $145 million budget cap for teams next year and will continue to try and tighten that for future  seasons, managing director Ross Brawn said on Monday.`\
-https://nytimes.com/reuters/2020/05/04/sports/autoracing/04reuters-health-coronavirus-f1-brawn.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/05/04/sports/autoracing/04reuters-health-coronavirus-f1-brawn.html?searchResultPosition=8
 
 **Longtime Newspaper Publisher Brandt Ayers Dead at 85**\
 `Longtime Alabama newspaper publisher H. Brandt Ayers, who made The Anniston Star a voice for progressive politics during the civil rights era, has died.`\
-https://nytimes.com/aponline/2020/05/04/us/ap-us-obit-brandt-ayers.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/05/04/us/ap-us-obit-brandt-ayers.html?searchResultPosition=9
 
 **Ferrari Slashes 2020 Earnings Forecast of COVID-19 Pandemic**\
 `Luxury sports carmaker Ferrari on Monday lowered its full-year earnings guidance significantly due to the COVID-19 pandemic, and acknowledged that the new outlook assumes a sharp recovery in the second half of the year. `\
-https://nytimes.com/aponline/2020/05/04/business/bc-italy-earns-ferrari.html?searchResultPosition=9
-
-**Watch Live: Cuomo Delivers Coronavirus Update for New York**\
-`Gov. Andrew M. Cuomo of New York provides the state’s latest coronavirus stats.`\
-https://nytimes.com/video/us/politics/100000007120714/new-york-governor-andrew-cuomo-press-conference-coronavirus.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/04/business/bc-italy-earns-ferrari.html?searchResultPosition=10
 
