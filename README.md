@@ -1,20 +1,20 @@
-**AIG Quarterly Profit Nosedives as COVID-19 Claims Loom**\
-`Insurer American International Group Inc on Monday posted a 93% drop in quarterly adjusted profit, as it set aside money to cover claims related to the COVID-19 outbreak, which it called the single largest catastrophe loss the industry has ever seen.   `\
-https://nytimes.com/reuters/2020/05/04/business/04reuters-aig-results.html?searchResultPosition=6
+**Shula Remembered by Peers for 'Playing Within the Rules'**\
+`Don Shula often said he wanted to be remembered for playing within the rules, and that's what happened Monday.`\
+https://nytimes.com/aponline/2020/05/04/sports/football/ap-fbn-shula-reax.html?searchResultPosition=6
 
-**How Major US Stock Indexes Fared Monday**\
-`Stocks notched modest gains on Wall Street Monday as another solid showing by big technology companies helped the market overcome a weak start.`\
-https://nytimes.com/aponline/2020/05/04/business/ap-financial-markets-box.html?searchResultPosition=7
+**When Can Child Care Resume?**\
+`The answer will depend on location, the age and health of caretakers, and everyone’s levels of acceptable risk.`\
+https://nytimes.com/2020/05/04/parenting/child-care-resume-questions.html?searchResultPosition=7
 
-**Joe Biden and Tara Reade: Whom to Believe?**\
-`Readers look at the allegations from many angles: #MeToo, hypocrisy, pantyhose and politics.`\
-https://nytimes.com/2020/05/04/opinion/letters/joe-biden-tara-reade.html?searchResultPosition=8
+**For Joanna Gaines, Home Is the Heart of a Food and Design Empire**\
+`She and her husband, Chip, the co-stars of “Fixer Upper,” have married Texas tradition with modern taste to create a wildly popular brand.`\
+https://nytimes.com/2020/05/04/dining/joanna-gaines-magnolia.html?searchResultPosition=8
 
-**Air France-KLM Union Tensions Surface in Bailout's Wake**\
-`Air France-KLM's French unions on Monday criticised calls by their Dutch counterparts for KLM to be given greater autonomy, amid signs that a multibillion-euro coronavirus bailout is increasing tensions within the airline group.`\
-https://nytimes.com/reuters/2020/05/04/business/04reuters-air-france-klm-unions.html?searchResultPosition=9
+**Delta, Tyson Fall; Co-Diagnostics, Sempra Energy Rise**\
+`Stocks that moved heavily or traded substantially on Monday:`\
+https://nytimes.com/aponline/2020/05/04/business/ap-financial-markets-stocks.html?searchResultPosition=9
 
-**Syrian Air Defences Thwart Missile Attack in Aleppo: State Media**\
-`Syrian air defences thwarted an aerial missile attack in the skies of the northern city of Aleppo, state media said on Monday.`\
-https://nytimes.com/reuters/2020/05/04/world/middleeast/04reuters-syria-security-missiles.html?searchResultPosition=10
+**Linda Yang, Who Offered Advice for Urban Gardeners, Dies at 83**\
+`Ms. Yang grew trees, flowers and herbs on a 19th-floor terrace. She was a contributor to The New York Times from 1979 until 1995.`\
+https://nytimes.com/2020/05/04/obituaries/linda-yang-dead.html?searchResultPosition=10
 
