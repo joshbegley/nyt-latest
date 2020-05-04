@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-hongkong-economy-hkm
 https://nytimes.com/reuters/2020/05/03/us/03reuters-health-coronavirus-pence-mask.html?searchResultPosition=4
 
 **Asia Today: No New Cases in N Zealand; Malaysia Reopens Some**\
-`New Zealand reported no new cases of the coronavirus on Monday, marking a significant moment that indicated the country’s bold strategy of trying to eliminate the virus was working. `\
+`New Zealand reported no new cases of the coronavirus on Monday, marking a significant moment that indicated the country’s bold strategy of trying to eliminate the virus was working.`\
 https://nytimes.com/aponline/2020/05/03/business/ap-as-virus-outbreak-asia.html?searchResultPosition=5
 
 **‘Billions’ Season 5 Premiere Recap: Chopping Heads**\
