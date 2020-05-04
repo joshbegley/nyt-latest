@@ -1,20 +1,20 @@
-**IMF Chief Says Had 'Productive' Call With Lebanon on Its Recovery Plan**\
-`The head of the International Monetary Fund said on Monday she had a "productive" discussion with Lebanese Prime Minister Hassan Diab on the country's economic recovery plan, and an IMF team would begin talks with Lebanese authorities soon.`\
-https://nytimes.com/reuters/2020/05/04/world/middleeast/04reuters-lebanon-imf.html?searchResultPosition=6
+**A Nice Thing for Spring**\
+`Pastel place mats and napkins add a bit of cheer to your dining room table.`\
+https://nytimes.com/2020/05/04/dining/hay-place-mats.html?searchResultPosition=6
 
-**Biden Says He Wears a Face Mask Around Secret Service**\
-`Joe Biden said Monday that he wears a face mask around Secret Service agents, drawing a distinction between himself and President Donald Trump as the issue of using face coverings in public amid a pandemic increasingly becomes a political flash point. `\
-https://nytimes.com/aponline/2020/05/04/us/politics/ap-us-election-2020-biden-mask.html?searchResultPosition=7
+**Spain Coronavirus Map and Case Count**\
+`A detailed map shows the extent of the coronavirus outbreak, with charts and tables of the number of cases and deaths.`\
+https://nytimes.com/interactive/2020/world/europe/spain-coronavirus-cases.html?searchResultPosition=7
 
-**Judge Weighs Constitutionality of NY Primary Shutdown**\
-`Lawyers for supporters of withdrawn presidential candidates Bernie Sanders and Andrew Yang on Monday urged a judge to overrule New York state’s decision to cancel its 2020 Democratic presidential primary.`\
-https://nytimes.com/aponline/2020/05/04/us/ap-us-election-2020-new-york-primary.html?searchResultPosition=8
+**U.S. Should Keep Congress Informed About Nuclear Talks With Saudis: GAO**\
+`The U.S. Departments of State and Energy should commit to regular briefings to relevant committees in Congress on talks about nuclear power cooperation with Saudi Arabia, a congressional watchdog said in a report on Monday. `\
+https://nytimes.com/reuters/2020/05/04/us/politics/04reuters-usa-saudi-nuclearpower.html?searchResultPosition=8
 
-**Victoria’s Secret Sale to Private Equity Firm Falls Apart**\
-`The agreement to sell a majority of the lingerie brand to Sycamore Partners was terminated after the firms sparred in court.`\
-https://nytimes.com/2020/05/04/business/coronavirus-victorias-secret-sale-falls-apart.html?searchResultPosition=9
+**Travel Somewhere Else via Your Dinner Plate**\
+`The League of Kitchens, which trains immigrants to give cooking lessons in their homes, now offers online instruction.`\
+https://nytimes.com/2020/05/04/dining/league-of-kitchens.html?searchResultPosition=9
 
-**A Farmer to Restaurants Now Delivers**\
-`The Chef’s Garden in Ohio has opened its vegetable sales to home cooks.`\
-https://nytimes.com/2020/05/04/dining/the-chefs-garden-produce-delivery.html?searchResultPosition=10
+**White House Makes Appointments That Could Impact Pension Fund Decision to Invest in China**\
+`The White House on Monday named three nominees to sit on a board that oversees federal employee pension funds, a move that could see the reversal of a decision to allow one of the funds to invest in Chinese companies under scrutiny from Washington. `\
+https://nytimes.com/reuters/2020/05/04/business/04reuters-usa-china-investments.html?searchResultPosition=10
 
