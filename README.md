@@ -1,32 +1,32 @@
+**Amazon Plans to Extend Closure of French Warehouses Until May 8**\
+`Amazon plans to extend the closure of its French warehouses until May 8 included, the e-commerce giant said on Monday.`\
+https://nytimes.com/reuters/2020/05/04/business/04reuters-health-coronavirus-amazon-france-warehouses.html?searchResultPosition=3
+
+**Russia's Ventilators: Plentiful, but Often Old and Sometimes Broken**\
+`As new cases of the coronavirus accelerate in Russia, by one measure it is relatively well placed to cope with the pandemic.`\
+https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-health-coronavirus-russia-ventilators-insight.html?searchResultPosition=4
+
+**Brazil's Defense Ministry Says Committed to Democracy, Rejects Pro-Coup Protests**\
+`Brazil's Defense Ministry issued a relatively rare statement on Monday, saying the armed forces are dedicated to their constitutional mission and democracy and that violence against members of the press is not acceptable.`\
+https://nytimes.com/reuters/2020/05/04/world/americas/04reuters-brazil-democracy.html?searchResultPosition=5
+
+**LAPD Officer Accused of Shooting Fellow Cop Is Army Veteran**\
+`A Los Angeles police officer accused of shooting a fellow officer during an off-duty, weekend camping trip had served in the U.S. Army for 21 years, his lawyer said Monday.`\
+https://nytimes.com/aponline/2020/05/04/us/ap-us-off-duty-police-shooting-california.html?searchResultPosition=6
+
+**Bolsonaro Picks New Top Cop After Clashing With Brazil Supreme Court**\
+`Brazilian President Jair Bolsonaro on Monday picked a new head of the federal police following a Supreme Court decision to block his effort to appoint a family friend - a tactical retreat a day after he and supporters threatened the court in anti-democratic protests.`\
+https://nytimes.com/reuters/2020/05/04/world/americas/04reuters-brazil-politics.html?searchResultPosition=7
+
+**Plans on Ice: USA Luge's Mazdzer Wondering What Comes Next**\
+`Chris Mazdzer was supposed to be in Thailand right now. The 2018 Olympic men’s luge silver medalist was going to be getting married there on Saturday, before resuming training for another World Cup sliding season.`\
+https://nytimes.com/aponline/2020/05/04/sports/ap-lug-usa-luge-national-team.html?searchResultPosition=8
+
 **McLaren Boss Expects to 'Hit a Glitch' in F1 Season Plans**\
 `Formula One can be expected to 'hit a glitch' as the sport tries to complete a 2020 season stalled by the COVID-19 pandemic but 14-15 races looks feasible, McLaren boss Zak Brown said on Monday.`\
-https://nytimes.com/reuters/2020/05/04/sports/autoracing/04reuters-health-coronavirus-f1-season.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/04/sports/autoracing/04reuters-health-coronavirus-f1-season.html?searchResultPosition=9
 
 **Zoos Turn to Social Media to Delight, Raise Money Amid Virus**\
 `The Phoenix Zoo, struggling like others worldwide during coronavirus closures, has found an unlikely savior in a sloth.`\
-https://nytimes.com/aponline/2020/05/04/business/bc-us-virus-outbreak-zoos-engagement.html?searchResultPosition=4
-
-**Reducing Jail Populations**\
-`The Pew Charitable Trusts discusses policy changes involving public safety in Michigan. Also: Turkey’s response to the virus.`\
-https://nytimes.com/2020/05/04/opinion/letters/coronavirus-prisons.html?searchResultPosition=5
-
-**Neutralizing Antibody; New Virus Details to Aid Vaccine Research**\
-`The following is a brief roundup of the latest scientific studies on the novel coronavirus and efforts to find treatments and vaccines for COVID-19, the illness caused by the virus.`\
-https://nytimes.com/reuters/2020/05/04/us/04reuters-health-coronavirus-science.html?searchResultPosition=6
-
-**Turkey's Coronavirus Death Toll Rises by 64 to 3,461, Slowdown Continues**\
-`The number of people who have died from COVID-19 in Turkey has risen by 65 in the last 24 hours to 3,461, Health Ministry data showed on Monday, as a slowdown in deaths and confirmed cases continued.`\
-https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-health-coronavirus-turkey.html?searchResultPosition=7
-
-**Postal Workers Raise Alarm Over Hasty Polish Mail Vote**\
-`Poland's postal workers are growing increasingly concerned as the country prepares for its first presidential election by mail on Sunday, arguing they are not equipped to carry out the vote safely and effectively amid the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-health-coronavirus-poland-postal-workers.html?searchResultPosition=8
-
-**Carnival to Resume Cruises in Summer When Virus Order Ends**\
-`Carnival Cruise Line announced Monday it will start cruising again, from Florida and Texas, beginning in August. These Caribbean trips will be the company's first new itineraries since the coronavirus pandemic forced a near-total pause in the global cruise industry.`\
-https://nytimes.com/aponline/2020/05/04/business/bc-virus-outbreak-cruise-ships.html?searchResultPosition=9
-
-**Private Sector Creditors Raise Concerns Over Debt Relief Plan**\
-`The Institute of International Finance (IIF), a trade association comprising the world's largest financial institutions, has outlined obstacles to the private sector joining a plan to ease the debt of the world's poorest nations.`\
-https://nytimes.com/reuters/2020/05/04/business/04reuters-health-coronavirus-debt-relief.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/04/business/bc-us-virus-outbreak-zoos-engagement.html?searchResultPosition=10
 
