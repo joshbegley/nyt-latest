@@ -23,7 +23,7 @@ https://nytimes.com/2020/05/03/arts/television/billions-season-5-premiere-recap.
 https://nytimes.com/aponline/2020/05/03/us/politics/ap-us-trump-fact-check.html?searchResultPosition=7
 
 **New Zealand Reports No New Coronavirus Cases for First Time Since Mid-March**\
-`New Zealand has recorded no new cases of the coronavirus for the first time since March 16, the health ministry said at a news conference on Monday. `\
+`New Zealand on Monday recorded no new cases of the coronavirus for the first time since March 16 and less than a week after the Pacific nation ended a strict lockdown that appears to have contained the outbreak.`\
 https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-health-coronavirus-newzealand-toll.html?searchResultPosition=8
 
 **China Reports Three New Coronavirus Cases, All Imported**\
