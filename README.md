@@ -1,32 +1,32 @@
+**Serbia to Hold General Election Despite Pandemic**\
+`Serbia’s president has set June 21 as the date of a parliamentary election which has been postponed because of the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/05/04/world/europe/ap-eu-serbia-election.html?searchResultPosition=3
+
+**Baseball Artists, Writers Shut Out by Coronavirus Pandemic**\
+`Anika Orrock was all warmed up for her big pitch. On the mound at Yankee Stadium, tossing out the ceremonial first ball.`\
+https://nytimes.com/aponline/2020/05/04/sports/baseball/ap-bbo-virus-outbreak-artists-shut-out.html?searchResultPosition=4
+
+**'Fowl' Play: Alabama Police Search for 'Aggressive Chicken'**\
+`Police are searching for an “aggressive chicken” accused of engaging in fowl play at an Alabama bank.`\
+https://nytimes.com/aponline/2020/05/04/us/ap-us-odd-aggressive-chicken.html?searchResultPosition=5
+
+**Senate Office Says It Can’t Release Records Biden Requested**\
+`Joseph Biden, promising transparency, has asked for any potential records related to a sexual assault allegation against him by Tara Reade to be released. A Senate office says it is legally unable to do so.`\
+https://nytimes.com/2020/05/04/us/politics/joe-biden-tara-reade-sexual-assault.html?searchResultPosition=6
+
+**Justin Bieber, Hailey Baldwin Open Their Lives for Candid New Series**\
+`Justin Bieber and his wife Hailey Baldwin are opening up in an intimate series for Facebook Watch in which they discuss their marriage, their problems and their lives together.`\
+https://nytimes.com/reuters/2020/05/04/arts/04reuters-people-justin-bieber.html?searchResultPosition=7
+
 **Westwood: Tough to 'Visualize' Ryder Cup Without Fans**\
 `Former world No. 1 Lee Westwood joined the chorus of players questioning whether the Ryder Cup should be played in September if fans will not be permitted on the course.`\
-https://nytimes.com/reuters/2020/05/04/sports/golf/04reuters-golf-pga-ryder-cup-westwood.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/04/sports/golf/04reuters-golf-pga-ryder-cup-westwood.html?searchResultPosition=8
 
 **News Corp Appoints Almar Latour as CEO of Dow Jones**\
 `News Corp said on Monday it had appointed Almar Latour as Chief Executive Officer of Dow Jones. `\
-https://nytimes.com/reuters/2020/05/04/technology/04reuters-dow-jones-moves-almar-latour.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/04/technology/04reuters-dow-jones-moves-almar-latour.html?searchResultPosition=9
 
 **Indonesia Calls for 'Equal Access' to Coronavirus Medicine for Developing Countries**\
 `Indonesian President Joko Widodo called on Monday for "equal access" for developing countries to medicine to treat the new coronavirus, as global cases pass three million.`\
-https://nytimes.com/reuters/2020/05/04/world/asia/04reuters-health-coronavirus-indonesia-medicine.html?searchResultPosition=5
-
-**ESPN’s Live Sport Savior: Korean Baseball**\
-`ESPN will air six games a week to its sports-deprived audience, at least those who are night owls or early risers. Plus World’s Strongest Man at home, and bumps in the road for Australian rugby.`\
-https://nytimes.com/2020/05/04/sports/espns-live-sport-savior-korean-baseball.html?searchResultPosition=6
-
-**Pictures From the Met Gala! (Yes, Last Year’s)**\
-`Look at all these people crammed so close together, wow.`\
-https://nytimes.com/2020/05/04/fashion/met-gala-photos.html?searchResultPosition=7
-
-**'Murder Hornets,' With Sting That Can Kill, Lands in US**\
-`The world's largest hornet, a 2-inch killer dubbed the "Murder Hornet" with an appetite for honey bees, has been found in Washington state, where entomologists were making plans to wipe it out.`\
-https://nytimes.com/aponline/2020/05/04/us/ap-us-murder-hornets.html?searchResultPosition=8
-
-**Erdogan Begins to Ease Turkey's Coronavirus Restrictions**\
-`Turkey will start easing coronavirus containment measures from Monday, President Tayyip Erdogan said, lifting inter-city travel restrictions in seven provinces and easing a curfew imposed on senior and youth citizens.`\
-https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-health-coronavirus-turkey-erdogan.html?searchResultPosition=9
-
-**Massive U.S. Stock Bounce Stokes Doubts, Provokes Bears**\
-`Investors are treating the U.S. equity market’s blistering rally with a dose of caution, socking away cash, staying on the sidelines or buying insurance against a reversal even as markets scream higher in the midst of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/04/business/04reuters-health-coronavirus-bears-analysis.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/04/world/asia/04reuters-health-coronavirus-indonesia-medicine.html?searchResultPosition=10
 
