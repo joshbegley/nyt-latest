@@ -18,13 +18,13 @@ https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-health-coronavirus
 `Israel's Supreme Court was hearing arguments Monday against the legality of Prime Minister Benjamin Netanyahu's coalition deal with formal rival Benny Gantz, a day after it deliberated on whether the longtime leader could head a government while indicted on serious crimes.`\
 https://nytimes.com/aponline/2020/05/04/world/middleeast/ap-ml-israel-netanyahu.html?searchResultPosition=6
 
-**The Latest: India Eases Lockdown as Infection Rate Rises**\
-`The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
-https://nytimes.com/aponline/2020/05/04/business/ap-virus-outbreak-the-latest.html?searchResultPosition=7
-
 **Singapore's Health Ministry Confirms 573 New Coronavirus Cases**\
 `Singapore's health ministry said on Monday it confirmed 573 new coronavirus cases, taking the city-state's tally of infections to 18,778.`\
-https://nytimes.com/reuters/2020/05/04/world/asia/04reuters-health-coronavirus-singapore.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/05/04/world/asia/04reuters-health-coronavirus-singapore.html?searchResultPosition=7
+
+**The Latest: Greece Gradually Lifting 42-Day Lockdown**\
+`The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
+https://nytimes.com/aponline/2020/05/04/business/ap-virus-outbreak-the-latest.html?searchResultPosition=8
 
 **Paramedic Honored After Death While Volunteering in NYC**\
 `A retired Colorado paramedic who died from coronavirus after volunteering to help combat the pandemic in New York City was being honored Sunday as his body was returned to Denver.`\
