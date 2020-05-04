@@ -2,8 +2,8 @@
 `The NFL is moving its five games scheduled for London and Mexico City this season back to U.S. stadiums because of the coronavirus pandemic, two people with knowledge of the switch told The Associated Press.`\
 https://nytimes.com/aponline/2020/05/04/sports/football/ap-fbn-international-games-moved.html?searchResultPosition=2
 
-**Swiss Gold Refiner Valcambi Says It Has Permission to Fully Reopen**\
-`Swiss precious metals refinery Valcambi said on Monday it had received government permission to fully reopen, but that measures to protect staff from the coronavirus meant it would operate at around 85% of normal levels. `\
+**Swiss Gold Refineries Reopen as Virus Lockdown Eases**\
+`Two of the world's biggest gold refiners, Valcambi and Argor-Heraeus, said on Monday they were restoring close to full operations after Swiss authorities relaxed coronavirus lockdown measures. `\
 https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-gold-refining-switzerland.html?searchResultPosition=3
 
 **Italy's Coronavirus Death Toll Far Higher Than Reported: Stats Office**\
