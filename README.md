@@ -1,32 +1,32 @@
-**Police: Woman Wanted to Get Close to Alligator Before Attack**\
-`A woman killed by an alligator at a South Carolina pond told a friend she wanted to get close to the animal and didn't scream as it attacked her and dragged her into the water, according to a police report.`\
-https://nytimes.com/aponline/2020/05/04/us/ap-us-alligator-attack.html?searchResultPosition=3
+**'Murder Hornets,' With Sting That Can Kill, Lands in US**\
+`The world's largest hornet, a 2-inch killer dubbed the "Murder Hornet" with an appetite for honey bees, has been found in Washington state, where entomologists were making plans to wipe it out.`\
+https://nytimes.com/aponline/2020/05/04/us/ap-us-murder-hornets.html?searchResultPosition=3
 
-**Fears Overnight Closure of New York Subway Will Push Homeless 'Into the Shadows'**\
-`Plans to close New York City's subways at night to disinfect trains during the coronavirus pandemic risk pushing hundreds of homeless people "further into the shadows", housing experts warned, calling for safe alternatives to house them.`\
-https://nytimes.com/reuters/2020/05/04/us/04reuters-health-coronavirus-new-york-homelessness.html?searchResultPosition=4
+**Erdogan Begins to Ease Turkey's Coronavirus Restrictions**\
+`Turkey will start easing coronavirus containment measures from Monday, President Tayyip Erdogan said, lifting inter-city travel restrictions in seven provinces and easing a curfew imposed on senior and youth citizens.`\
+https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-health-coronavirus-turkey-erdogan.html?searchResultPosition=4
 
-**New York City to Distribute 7.5 Million Masks, de Blasio Says**\
-`Mayor Bill de Blasio of New York said the city would begin handing out 7.5 million face coverings in public places like parks and grocery stores.`\
-https://nytimes.com/video/us/politics/100000007121398/de-blasio-masks-new-york-coronavirus.html?searchResultPosition=5
+**Massive U.S. Stock Bounce Stokes Doubts, Provokes Bears**\
+`Investors are treating the U.S. equity market’s blistering rally with a dose of caution, socking away cash, staying on the sidelines or buying insurance against a reversal even as markets scream higher in the midst of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/04/business/04reuters-health-coronavirus-bears-analysis.html?searchResultPosition=5
 
-**Sudan Appoints First Ambassador to U.S. for Decades**\
-`Sudan has appointed its first ambassador to the United States for almost a quarter of a century, its foreign ministry said on Monday, in a move to normalise relations after decades of antagonism.`\
-https://nytimes.com/reuters/2020/05/04/world/africa/04reuters-usa-sudan.html?searchResultPosition=6
+**Italy Eases Virus Lockdown, and Gets First Reckoning of Toll**\
+`Italians strolled in the park, grabbed take-out cappuccinos and paid their respects to the astonishing number of dead Monday as the European epicenter of the coronavirus pandemic gingerly woke up from the continent’s first and longest lockdown.`\
+https://nytimes.com/aponline/2020/05/04/world/europe/ap-eu-virus-outbreaks-europe-unlocks.html?searchResultPosition=6
 
-**US: Russia Could Try to Covertly Advise Candidates in 2020**\
-`The Department of Homeland Security and FBI warned states earlier this year that Russia could look to interfere in the 2020 U.S. elections by covertly advising political candidates and campaigns, according to a law enforcement memo obtained by The Associated Press.`\
-https://nytimes.com/aponline/2020/05/04/us/politics/ap-us-russian-election-interference.html?searchResultPosition=7
+**NCAA Women's Hoops Committee Moves Away From RPI to NET**\
+`The women's basketball committee will start using the NCAA Evaluation Tool instead of RPI to help evaluate teams for the tournament starting with the upcoming season. `\
+https://nytimes.com/aponline/2020/05/04/sports/ncaabasketball/ap-bkw-ncaa-evaluation-tool.html?searchResultPosition=7
 
-**Bank of Canada Will Do Its Part to Support Lasting Recovery From Coronavirus: Wilkins**\
-`Canada's central bank will do its part to help bridge the economy through the coronavirus pandemic while standing ready to adjust its asset purchases to support a lasting recovery, Bank of Canada Senior Deputy Governor Carolyn Wilkins said on Monday. `\
-https://nytimes.com/reuters/2020/05/04/us/04reuters-canada-cenbank-wilkins.html?searchResultPosition=8
+**EU's Vestager Says German Bailouts Can Be Locomotive for Europe**\
+`Germany's extensive bailouts of coronavirus-hit companies can work as a locomotive for Europe, the EU's competition chief said on Monday amid criticism from other, less wealthy EU countries about what they see as an unfair edge given to German firms.`\
+https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-health-coronavirus-stateaid.html?searchResultPosition=8
 
-**Newspaper’s Top Editor Is Now a ‘Homeless’ Blogger**\
-`A 54-year-old journalist lost his job running an Indiana newspaper, as well as the apartment that went with it. He moved to a Motel 6.`\
-https://nytimes.com/2020/05/04/business/newspaper-editor-gannett-homeless-blogger.html?searchResultPosition=9
+**‘This Is a Rarity,’ de Blasio Says of Video Showing Violent Police Action**\
+`Mayor Bill de Blasio of New York commended the police’s social distancing enforcement overall, but condemned a violent incident that raised concerns of unequal policing of the measures.`\
+https://nytimes.com/video/nyregion/100000007121236/nyc-coronavirus-police-video.html?searchResultPosition=9
 
-**Stranglers Keyboardist Dave Greenfield Dies With COVID-19**\
-`Dave Greenfield, the keyboard player with British punk band The Stranglers and who penned the music to their biggest hit, Golden Brown, has died after testing positive for coronavirus. He was 71.`\
-https://nytimes.com/aponline/2020/05/04/world/europe/ap-eu-britain-obit-greenfield.html?searchResultPosition=10
+**They Survived the Holocaust. Now They’re Confronting the Virus.**\
+`The generation that endured Nazi death camps is especially vulnerable to the pandemic.`\
+https://nytimes.com/2020/05/04/nyregion/holocaust-survivors-coronavirus.html?searchResultPosition=10
 
