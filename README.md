@@ -1,36 +1,36 @@
+**Explainer: When Will PM Johnson Send Britain Back to Work?**\
+`British Prime Minister Boris Johnson is due this week to present a possible way out of the coronavirus lockdown to get the world's fifth largest economy back to work without triggering a second spike in cases.`\
+https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-health-coronavirus-britain-lockdown-explainer.html?searchResultPosition=2
+
 **EU Clears 7 Billion Euros in State Aid for Air France**\
 `The European Union's competition watchdog on Monday approved 7 billion euros worth of French state aid for Air France AIRF.PA.`\
-https://nytimes.com/reuters/2020/05/04/business/04reuters-health-coronavirus-airfrance-eu.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/04/business/04reuters-health-coronavirus-airfrance-eu.html?searchResultPosition=3
 
 **European Stock Futures Drop as U.S., China Spar Over Virus Origin**\
 `European stock index futures tumbled on Monday, as investors returned from a May Day break to a fresh trade spat between the  United States and China over the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-europe-stocks.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-europe-stocks.html?searchResultPosition=4
 
 **Kuwait Breaks Up Egyptian Worker Riot Over Repatriation**\
 `Kuwaiti security forces broke up a riot by Egyptian workers seeking repatriation who were being held in shelters dedicated for those in violation of the Gulf Arab state's residency laws, the Ministry of Interior said on Monday.`\
-https://nytimes.com/reuters/2020/05/04/world/middleeast/04reuters-kuwait-egypt-security.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/04/world/middleeast/04reuters-kuwait-egypt-security.html?searchResultPosition=5
 
 **Britain's Hotel Chocolat Bolsters Finances to Get Through Coronavirus Crisis**\
 `British chocolatier Hotel Chocolat has increased its banking facilities to help get it through the coronavirus crisis, it said on Monday.`\
-https://nytimes.com/reuters/2020/05/04/business/04reuters-hotel-chocolat-outlook.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/05/04/business/04reuters-hotel-chocolat-outlook.html?searchResultPosition=6
 
 **Iran Says U.S. Push to Extend Tehran's Arms Embargo Is 'Illegitimate'**\
 `Iran dismissed as "illegitimate" efforts by the United States to extend the U.N. Security Council arms embargo on Tehran, an Iranian Foreign Ministry spokesman said on Monday. `\
-https://nytimes.com/reuters/2020/05/04/world/middleeast/04reuters-iran-usa.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/05/04/world/middleeast/04reuters-iran-usa.html?searchResultPosition=7
 
 **Online Trading Platform IG Appoints Ex-JLT Director Rozes as Finance Head**\
 `IG Group said on Monday Charlie Rozes, former finance director of Jardine Lloyd Thompson, will join the online trading group as chief financial officer, at a time when the sector is benefiting from strong volatility due to a coronavirus-induced selloff.`\
-https://nytimes.com/reuters/2020/05/04/technology/04reuters-ig-cfo.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/05/04/technology/04reuters-ig-cfo.html?searchResultPosition=8
 
 **Top UK Companies Expect COVID-19 to Cut Sales by a Fifth: Deloitte**\
 `Britain's largest companies expect the coronavirus to reduce their sales by more than a fifth this year and are gloomier than during the 2008-09 financial crisis, according to a survey published on Monday by accountants Deloitte.`\
-https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-health-coronavirus-britain-economy.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/05/04/world/europe/04reuters-health-coronavirus-britain-economy.html?searchResultPosition=9
 
 **With Testing, Iceland Claims Major Success Against COVID-19**\
 `Winter storms isolated the northern village of Hvammstangi from the rest of Iceland. Then spring brought the coronavirus, isolating villagers from each other. Now, as summer approaches, residents hope life is getting back to some kind of normal.`\
-https://nytimes.com/aponline/2020/05/04/world/europe/ap-eu-virus-outbreak-iceland.html?searchResultPosition=9
-
-**Bobok 'Til You Drop: South Koreans Roar Back to Malls as Coronavirus Curbs Ease**\
-`At a glitzy Chanel boutique in downtown Seoul, Kim Soo-yeon joined dozens of others in festive shorts and flare dresses, her eyes out for a clutch purse she had coveted for weeks during the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/04/world/asia/04reuters-health-coronavirus-southkorea-revengeshopping.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/04/world/europe/ap-eu-virus-outbreak-iceland.html?searchResultPosition=10
 
