@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-health-coronavirus-c
 https://nytimes.com/reuters/2020/05/03/world/asia/03reuters-southkorea-economy-pmi.html?searchResultPosition=5
 
 **San Francisco Police Chief Bans 'Thin Blue Line' Face Masks**\
-`San Francisco’s police chief said the city’s rank and file will wear neutral face coverings to diffuse a controversy that was sparked when officers sent to patrol a May Day protest wore masks adorned with the “thin blue line” flag. `\
+`San Francisco’s police chief said the city’s rank and file will wear neutral face coverings to defuse a controversy that was sparked when officers sent to patrol a May Day protest wore masks adorned with the “thin blue line” flag. `\
 https://nytimes.com/aponline/2020/05/03/us/ap-us-san-francisco-police-mask-change-1st-ld-writethru.html?searchResultPosition=6
 
 **Global Coronavirus Cases Surpass 3.5 Million, Although Rate Slowing**\
