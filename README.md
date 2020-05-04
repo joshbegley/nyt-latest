@@ -1,20 +1,20 @@
-**Biden Camp Finds Selling Point in Ailing Economy: His Work on 2009 Recovery**\
-`He oversaw the rollout of a $787 billion stimulus package. His campaign may leverage that as the coronavirus pandemic and economic collapse dominate the conversation.`\
-https://nytimes.com/2020/05/04/us/politics/biden-obama-stimulus.html?searchResultPosition=6
+**World Leaders Join to Pledge $8 Billion for Vaccine. U.S. Sits It Out.**\
+`The E.U. organized a teleconference to raise money for coronavirus vaccine research, drawing contributions from around the world.`\
+https://nytimes.com/2020/05/04/world/europe/eu-coronavirus-vaccine.html?searchResultPosition=6
 
-**Bearing With the Present While Recalling the Past**\
-`Parts of the country are starting to reopen even though the government is projecting a much higher death toll. Given this reality, who can think much about the future?`\
-https://nytimes.com/2020/05/04/us/politics/politics-present-past.html?searchResultPosition=7
+**Brazil Fears Agriculture Protectionism Amid Pandemic: Draft Report**\
+`Brazilian officials expect the coronavirus outbreak to spark a rise in global agricultural protectionism as countries seek to secure local food supplies, according to a draft report from the agriculture ministry seen by Reuters.`\
+https://nytimes.com/reuters/2020/05/04/world/americas/04reuters-health-coronavirus-brazil-agriculture.html?searchResultPosition=7
 
-**Virus Deaths, Migration, Disney: Your Monday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/05/04/briefing/virus-deaths-migration-disney.html?searchResultPosition=8
+**Israel Isolates Coronavirus Antibody in 'Significant Breakthrough': Minister**\
+`Israel has isolated a key coronavirus antibody at its main biological research laboratory, the Israeli defence minister said on Monday, calling the step a "significant breakthrough" toward a possible treatment for the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/05/04/world/middleeast/04reuters-health-coronavirus-israel-treatment.html?searchResultPosition=8
 
-**Watch This: The ‘Brockmire’ Finale**\
-`This week, our TV critic recommends the final episode of the show with TV’s lewdest banter, as well as another series about an emotionally damaged sports guy.`\
-https://nytimes.com/2020/05/04/arts/television/brockmire-finale.html?searchResultPosition=9
+**Census Field Operations Restart This Week on Limited Basis**\
+`After shutting down field operations for a month and a half because of the pandemic, the U.S. Census Bureau said Monday that it was restarting some work in the field for the 2020 census on a limited basis.`\
+https://nytimes.com/aponline/2020/05/04/us/ap-us-2020-census-.html?searchResultPosition=9
 
-**Kennedy Center Cancels Performances Through August**\
-`Citing the pandemic, the Washington institution has decided to cancel many events and reschedule others, including its summer run of “Hamilton” and three-week celebration of Beethoven.`\
-https://nytimes.com/2020/05/04/arts/kennedy-center-coronavirus.html?searchResultPosition=10
+**Kingfish Ingram Wins 5 Blues Music Awards in Online Show**\
+`Guitarist Christone “Kingfish” Ingram took home five Blues Music Awards in an online ceremony that featured appearances by Bonnie Raitt, Robert Cray and other musicians.`\
+https://nytimes.com/aponline/2020/05/04/us/ap-us-blues-music-awards.html?searchResultPosition=10
 
