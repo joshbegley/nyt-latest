@@ -1,20 +1,20 @@
-**Australia, New Zealand Work to Open Borders to Each Other**\
-`Australia and New Zealand said on Tuesday efforts to resume travel between the two countries would take some time, as they cautiously re-open their mostly shuttered economies after containing outbreaks of the novel coronavirus.`\
-https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-australia.html?searchResultPosition=6
+**Spain's April Jobless Rises by 7.97% Month-On-Month to 3.8 Million**\
+`The number of people in Spain registering as jobless rose by 7.97% in April from a month earlier, or by 282,891 people, leaving 3.8 million people out of work, as the lockdown imposed to curb the coronavirus epidemic ground the country's economy to a halt, the Labour Ministry said on Tuesday. `\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-spain-economy-unemployed.html?searchResultPosition=6
 
-**Air France Says Passengers Must Wear Masks From May 11**\
-`French carrier Air France is to require all passengers on board its flights to wear masks from May 11 to comply with French government guidelines on COVID-19 protection measures.`\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-air-france-klm-masks.html?searchResultPosition=7
+**Tokyo Governor Koike to Ask Businesses to Refrain From Operating Until End of May: NHK**\
+`Tokyo Governor Yuriko Koike will ask businesses in Japan's biggest city to refrain from operating until the end of this month, following the central government's extension of the state of emergency, a public broadcaster NHK reported. `\
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-japan-tokyo.html?searchResultPosition=7
 
-**US Attorney: Colorado Man Arrested for Pipe Bombs in Home**\
-`A Colorado man arrested by federal authorities after four pipe bombs were found in his home told investigators he planned to use them to defend himself, according to a court document. `\
-https://nytimes.com/aponline/2020/05/05/us/ap-us-pipe-bomb-arrest-2nd-ld-writethru.html?searchResultPosition=8
+**Here Come COVID-19 Tracing Apps -- and Privacy Tradeoffs**\
+`As governments around the world consider how to monitor new coronavirus outbreaks while reopening their societies, many are starting to bet on smartphone apps to help stanch the pandemic.`\
+https://nytimes.com/aponline/2020/05/05/business/ap-us-virus-outbreak-phone-surveillance.html?searchResultPosition=8
 
-**4 New Cases in South Korea, China Show Work on Containment**\
-`China and South Korea, which had early, intense outbreaks of the coronavirus, together reported only four new infections Tuesday and were slowly resuming public events after months of containment efforts.`\
-https://nytimes.com/aponline/2020/05/05/business/ap-virus-outbreak.html?searchResultPosition=9
+**Airline SAS Agrees Credit Facility Backed by Sweden, Denmark**\
+`Airline SAS said on Tuesday it had signed a 3.3 billion Swedish crown ($336 million) three-year revolving credit facility agreement, 90% guaranteed by Sweden and Denmark's governments, as it looked to beat a path through the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-sas.html?searchResultPosition=9
 
-**Italy's Prime Minister Says Foreign Policy Hasn't Changed: Paper**\
-`Italy's Prime Minister said on Tuesday foreign policy had not shifted after the country received aid for the coronavirus emergency from both China and Russia, in a response to an interview with U.S. Defense Secretary Mark Esper.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-italy-diplomacy.html?searchResultPosition=10
+**Faces, Faces Everywhere**\
+`In this Covid-19 spring, a socially hungry person is inclined to see faces where there are none.`\
+https://nytimes.com/2020/05/05/health/covid-psychology-distancing-faces.html?searchResultPosition=10
 
