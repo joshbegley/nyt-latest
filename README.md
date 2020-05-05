@@ -1,20 +1,20 @@
+**Gore to Sign One-Year Deal With Jets**\
+`Running back Frank Gore is signing a one-year contract with the New York Jets, his agent, Drew Rosenhaus, told ESPN's Adam Schefter on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/sports/football/05reuters-football-nfl-nyj-gore.html?searchResultPosition=6
+
+**Iran News Agency: Gunmen Kill 3 Revolutionary Guard Members**\
+`Unknown gunmen on Tuesday killed three members of the paramilitary Revolutionary Guard in a shootout in a Kurdish area, Iranian media reported.`\
+https://nytimes.com/aponline/2020/05/05/world/middleeast/ap-ml-iran-shootout.html?searchResultPosition=7
+
+**Barack Obama Will Headline Televised Prime-Time Commencement**\
+`Former President Barack Obama will deliver a televised prime-time commencement address for the Class of 2020 during an hour-long event that will also feature LeBron James, Malala Yousafzai and Ben Platt, among others.`\
+https://nytimes.com/aponline/2020/05/05/us/ap-us-virus-outbreak-obama-commencement.html?searchResultPosition=8
+
+**NFL: Favre Received $1.1 Million for Appearances He Didn't Make**\
+`Hall of Fame quarterback Brett Favre received $1.1 million from the state of Mississippi for public appearances he never made, an audit of the state's Department of Human Services showed.`\
+https://nytimes.com/reuters/2020/05/05/sports/football/05reuters-football-nfl-gb-favre.html?searchResultPosition=9
+
 **Impact of COVID-19 Pandemic on Sports Events Around the World**\
 `Major sports events around the world that are in the process of re-starting or have been rescheduled due to the COVID-19 pandemic:`\
-https://nytimes.com/reuters/2020/05/05/sports/skiing/05reuters-health-coronavirus-sport-factbox.html?searchResultPosition=6
-
-**UK Coronavirus Death Toll Rises by 693 to 29,427**\
-`Britain's COVID-19 death toll has risen by 693 to 29,427, according to figures announced on Tuesday by Foreign Secretary Dominic Raab.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-britain-toll.html?searchResultPosition=7
-
-**Podcasts Inspired by Love and Relationships**\
-`Looking for guidance, or a diversion to help pass the time? Here are 21 podcasts featuring insightful takes on love, sex and relationship advice.`\
-https://nytimes.com/2020/05/05/fashion/weddings/podcasts-inspired-by-love-and-relationships.html?searchResultPosition=8
-
-**Jordan to Continue Night Curfew Even After Virus Outbreak 'Contained'**\
-`Jordan is to continue to impose a daily night curfew even after containing the spread of the new coronavirus and allowing businesses to reopen and more movement, a government spokesman said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/middleeast/05reuters-health-coronavirus-jordan-curfew.html?searchResultPosition=9
-
-**Democratic U.S. Senators Push for Coronavirus Aid to Nonprofits**\
-`Two Democratic U.S. senators said Tuesday they are pushing for financial assistance for nonprofits struggling to provide food, shelter and other aid to Americans coping with the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-usa-nonprofits.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/05/sports/skiing/05reuters-health-coronavirus-sport-factbox.html?searchResultPosition=10
 
