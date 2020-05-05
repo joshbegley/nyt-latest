@@ -15,6 +15,6 @@ https://nytimes.com/reuters/2020/05/05/sports/football/05reuters-football-nfl-ny
 https://nytimes.com/aponline/2020/05/05/world/middleeast/ap-ml-iran-shootout.html?searchResultPosition=9
 
 **Barack Obama Will Headline Televised Prime-Time Commencement**\
-`Former President Barack Obama will deliver a televised prime-time commencement address for the Class of 2020 during an hour-long event that will also feature LeBron James, Malala Yousafzai and Ben Platt, among others.`\
+`Former President Barack Obama will deliver a televised prime-time commencement address for the high school Class of 2020 during an hour-long event that will also feature LeBron James, Malala Yousafzai and Ben Platt, among others.`\
 https://nytimes.com/aponline/2020/05/05/us/ap-us-virus-outbreak-obama-commencement.html?searchResultPosition=10
 
