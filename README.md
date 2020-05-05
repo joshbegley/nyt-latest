@@ -1,20 +1,20 @@
-**WHO Says France COVID-19 Case in December 'Not Surprising'**\
-`The World Health Organization said on Tuesday that it was not "not surprising" that a report of COVID-19 had emerged in December in France, earlier than it was thought to have spread there, saying more reports of early cases were possible.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-who.html?searchResultPosition=6
+**U.S. Supreme Court to Weigh Overseas Anti-AIDS Funding Restrictions**\
+`The Supreme Court on Tuesday is set to hear arguments over whether a U.`\
+https://nytimes.com/reuters/2020/05/05/us/05reuters-usa-court-aids.html?searchResultPosition=6
 
-**Millennial Money: Still Employed? Focus on Savings and Debt**\
-`The coronavirus pandemic has thrown tens of millions of people into financial turmoil. But not everyone is feeling the pinch. Not yet, at least. `\
-https://nytimes.com/aponline/2020/05/05/business/ap-nerdwallet-millennial-money-covid-finances.html?searchResultPosition=7
+**German Court Asks ECB to Justify Bond Purchase Stimulus**\
+`Germany's Constitutional Court has ruled that the country's central bank must stop participating in a key European Central Bank stimulus program but gave the ECB time to demonstrate that the stimulus program is needed and appropriate. `\
+https://nytimes.com/aponline/2020/05/05/business/bc-eu-european-central-bank.html?searchResultPosition=7
 
-**Is It Time to Prune Yet?**\
-`That depends on what you’re growing — and what your goal is. Here’s a short refresher.`\
-https://nytimes.com/2020/05/05/realestate/is-it-time-to-prune-yet.html?searchResultPosition=8
+**Tents and Immunity Testing: U.S. Colleges Weigh Return to Campus Life**\
+`By Jan Wolfe`\
+https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-universities.html?searchResultPosition=8
 
-**Bursting the College Bubble**\
-`Not all students are experiencing the effects of the pandemic equally.`\
-https://nytimes.com/2020/05/05/podcasts/the-daily/college-kids-coronavirus.html?searchResultPosition=9
+**Trump Allies on the Sidelines in Supreme Court Financial Records Fight**\
+`Congressional Republicans who strenuously objected when a Democratic-led U.S. House of Representatives panel subpoenaed President Donald Trump's financial records last year have remained unusually quiet now that the fight has reached the Supreme Court.`\
+https://nytimes.com/reuters/2020/05/05/us/politics/05reuters-usa-court-trump-finances.html?searchResultPosition=9
 
-**Ireland Sees Crisis Point in Brexit Talks if No Progress Soon: Coveney**\
-`Progress in trade talks between the European Union and ex-member Britain "has not been good" and the two sides will hit a crisis point unless there is progress in the coming weeks, Irish Foreign Minister Simon Coveney said on Tuesday. `\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-britain-eu-ireland-coveney.html?searchResultPosition=10
+**Iran Death Toll From New Coronavirus Outbreak Rises by 63 to 6,340: Health Ministry Official**\
+`The death toll from the outbreak of new coronavirus in Iran rose by 63 in the past 24 hours to 6,340, Health Ministry spokesman Kianush Jahanpur said in a statement on state TV on Tuesday. `\
+https://nytimes.com/reuters/2020/05/05/world/middleeast/05reuters-health-coronavirus-iran.html?searchResultPosition=10
 
