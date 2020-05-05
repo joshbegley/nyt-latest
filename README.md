@@ -1,20 +1,20 @@
-**Agent: Jets, Ageless Gore Agree to Terms on 1-Year Deal**\
-`Running back Frank Gore has agreed to terms on a one-year contract with the New York Jets, agent Drew Rosenhaus announced.`\
-https://nytimes.com/aponline/2020/05/05/sports/football/ap-fbn-jets-gore.html?searchResultPosition=6
+**Walgreens to Restore Standard Operating Hours at Most U.S. Stores**\
+`Drugstore chain Walgreens Boots Alliance Inc said it would resume standard operating hours at most of its stores across the United States, beginning Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-walgreens-boots.html?searchResultPosition=6
 
-**New York to Work With Gates Foundation to 'Reimagine' Education: Governor**\
-`New York will work with the Bill & Melinda Gates Foundation to  "reimagine" the state's school system in the wake of the coronavirus pandemic, part of a broader reform of society, Governor Andrew Cuomo said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-usa-new-york.html?searchResultPosition=7
+**With Camps Shut, Families Face Summer in the Great Indoors**\
+`Welcome to summer in the great indoors.`\
+https://nytimes.com/aponline/2020/05/05/business/bc-us-virus-outbreak-summer-camp.html?searchResultPosition=7
 
-**Book a Table for Fast Food? Burger King Trials Post-Lockdown App in Italy**\
-`Burger King is trialling an app for ordering food and booking a table at its outlets in Italy, as it seeks to persuade locals it is safe to eat out again after more than two months of coronavirus lockdown. `\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-italy-burgerking.html?searchResultPosition=8
+**The Bumpy Road to Restarting Even Small Sports Leagues**\
+`Social distancing snafus, athletes in isolation and cities uncomfortable with traveling teams. This is not going to be easy.`\
+https://nytimes.com/2020/05/05/sports/german-soccer-australian-rugby-restart-virus.html?searchResultPosition=8
 
-**Wayfair Shares Soar 35% as Lockdown Boosts Home Furniture Orders**\
-`Shares of online furniture retailer Wayfair Inc soared as much as 35% to hit a record high on Tuesday after posting better-than-expected quarterly results, as more consumers took to renovating and furnishing their homes while being stuck indoors due to the COVID-19 pandemic. `\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-wayfair-stocks.html?searchResultPosition=9
+**Why Rural America’s Digital Divide Persists**\
+`The pandemic is making clear that rural Americans are left behind. Less clear is how to fix it.`\
+https://nytimes.com/2020/05/05/technology/rural-america-digital-divide-coronavirus.html?searchResultPosition=9
 
-**Ivory Coast PM to Spend Weeks in France on Medical Rest After Heart Exam**\
-`Ivory Coast Prime Minister Amadou Gon Coulibaly, the ruling party's candidate in this year's presidential race, will stay in France for a few weeks of medical rest after undergoing a heart exam, the presidency said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/africa/05reuters-ivorycoast-politics.html?searchResultPosition=10
+**Poland's Senate Leader Accuses Ruling PiS of Election-By-Post 'Trickery'**\
+`The head of Poland's opposition-led Senate on Tuesday accused the ruling nationalists of "procedural trickery" to force through a May presidential election by postal ballot amid the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-poland-election.html?searchResultPosition=10
 
