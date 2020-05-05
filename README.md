@@ -1,20 +1,20 @@
-**Todd Ready to Return to PGA Tour, Willing to Take on Risks**\
-`Brendon Todd sees risks involved in the PGA Tour resuming its schedule next month, and he's willing to take them.`\
-https://nytimes.com/aponline/2020/05/05/sports/golf/ap-glf-golf-notes.html?searchResultPosition=6
+**UK Government Mulls Emergency Scheme to Aid SMEs: Sky News**\
+`Britain's Treasury and Bank of England are discussing an emergency funding scheme to help payments to cash-starved small businesses, Sky News reported https://bit.ly/2SCBtDg on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-britain-loans.html?searchResultPosition=6
 
-**Virus Tests CBS' Venerable '60 Minutes' on Air and Off**\
-`The coronavirus has tested “60 Minutes” both on and off the air in ways that the Sunday night newsmagazine has never seen in the 51 years of its existence.`\
-https://nytimes.com/aponline/2020/05/05/us/ap-us-virus-outbreak-60-minutes.html?searchResultPosition=7
+**Trump Outlines Wish List as Congress Mulls More Coronavirus Relief**\
+`U.S. President Donald Trump on Tuesday outlined a wish list of policies he suggested Congress should consider as it weighs a possible fourth round of coronavirus relief legislation, including payroll tax cuts and a business expense deduction.`\
+https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-usa-trump.html?searchResultPosition=7
 
-**Trump Denies Ties to Venezuelan Attack With 2 US Men Jailed**\
-`President Donald Trump said Tuesday that the United States had nothing to do with an alleged incursion into Venezuela that landed two U.S. citizens behind bars in the crisis-stricken South American nation.`\
-https://nytimes.com/aponline/2020/05/05/world/americas/ap-lt-venezuela.html?searchResultPosition=8
+**Herd Immunity, or Big 2d Wave? Israel’s Antibody Testing Hopes to Find Out.**\
+`Blood tests of 100,000 Israelis will try to assess exposure to Covid-19 on a nationwide scale.`\
+https://nytimes.com/2020/05/05/world/middleeast/israel-to-test-for-antibodies.html?searchResultPosition=8
 
-**Governing Bodies Must Balance Calendar, Says Becker**\
-`Tennis governing bodies should use the time during the lengthy coronavirus shutdown to align their interests and fix the imbalance in the calendar, six-times Grand Slam winner Boris Becker told Reuters on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/sports/tennis/05reuters-health-coronavirus-tennis-becker-interview.html?searchResultPosition=9
+**Fox News Media Ties-Up With Spotify to Distribute Podcasts**\
+`Fox News Media, a unit of Fox Corp, said on Tuesday it has partnered with digital streaming services company Spotify Technology SA to distribute its podcast catalogue featuring more than 20 original series.`\
+https://nytimes.com/reuters/2020/05/05/arts/05reuters-spotify-tech-fox-c.html?searchResultPosition=9
 
-**Bana Ali, Who Championed Basketball in Somalia, Dies at 54**\
-`Mr. Ali, who had the novel coronavirus, dedicated his own time and finances to promoting basketball and sports among Somali youth.`\
-https://nytimes.com/2020/05/05/obituaries/bana-ali-dead-coronavirus.html?searchResultPosition=10
+**Fed's Bostic: Pace of U.S. Economic Recovery Will Differ by Area**\
+`The pace and shape of the U.S. economic recovery when the coronavirus outbreak abates is still highly uncertain and will differ by area of the country, Atlanta Federal Reserve bank President Raphael Bostic said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/us/05reuters-usa-fed-bostic.html?searchResultPosition=10
 
