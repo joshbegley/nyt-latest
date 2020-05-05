@@ -1,20 +1,20 @@
+**Palestinians Extend Coronavirus State of Emergency to June 5**\
+`Palestinian President Mahmoud Abbas has extended to June 5 a state of emergency declared in areas under his administration  in the Israeli-occupied West Bank in response to the coronavirus crisis, the official news agency Wafa said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/world/middleeast/05reuters-health-coronavirus-palestinians-emergency.html?searchResultPosition=6
+
+**Third of French Aerospace Sector on Partial Unemployment Schemes**\
+`About a third of the people employed by the French aerospace sector are out of action on government-backed partial unemployment schemes, the head of the country's aerospace industry association said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-france-aerospace.html?searchResultPosition=7
+
+**Hong Kong to Relax Some Restrictions as New Coronavirus Cases Dwindle**\
+`Hong Kong's government said on Tuesday it will relax restrictions on public gatherings and allow gyms, cinemas and beauty parlours to re-open later this week as only a handful of new coronavirus cases have been reported in recent weeks.`\
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-hongkong.html?searchResultPosition=8
+
+**Germany Issues Arrest Warrant for Russian Suspect in Parliament Hack: Newspaper**\
+`German federal prosecutors issued an arrest warrant for an individual they suspected of hacking into the German parliament's computer systems in 2015 on behalf of Russia's GRU intelligence service, the Sueddeutsche Zeitung reported on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-russia-germany-warrant.html?searchResultPosition=9
+
 **Liechtenstein's LGT Group to Be Split Up in 2021**\
 `Liechtenstein-based financial group LGT will be split into three separate firms in 2021, all directly held by the Prince of Liechtenstein Foundation, LGT said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-lgt-group-split.html?searchResultPosition=6
-
-**Philippines Reports 14 Deaths, 199 More Coronavirus Infections**\
-`The Philippines' health ministry on Tuesday reported 14 new coronavirus deaths and 199 additional infections.`\
-https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-philippines-cases.html?searchResultPosition=7
-
-**Russia Reports 10,102 New Coronavirus Cases**\
-`The number of new coronavirus cases in Russia has risen by 10,102 over the past 24 hours, compared with 10,581 the previous day. This brought Russia's nationwide tally to 155,370, the country's coronavirus crisis response centre said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-russia.html?searchResultPosition=8
-
-**Lesson of the Day: ‘No More Jenga, No More “Amen” as Cities Learn to Live With Coronavirus’**\
-`In this lesson, students will reimagine daily life for the coronavirus era.`\
-https://nytimes.com/2020/05/05/learning/lesson-of-the-day-no-more-jenga-no-more-amen-as-cities-learn-to-live-with-coronavirus.html?searchResultPosition=9
-
-**Thailand's Pet Groomer Reopens as New Coronavirus Cases Slow**\
-`Chewy and Miley, both two-year-old Schnauzer dogs, are getting their hair cut at a groomer in Bangkok for the first time since the new coronavirus outbreak began in Thailand in January.`\
-https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-thailand-dog-grooming.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/05/business/05reuters-lgt-group-split.html?searchResultPosition=10
 
