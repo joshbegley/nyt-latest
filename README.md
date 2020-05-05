@@ -1,20 +1,20 @@
-**Cuban Sugar Harvest Goes Into Overtime Amid Pandemic**\
-`Some 40 Cuban sugar mills remain open out of season despite a partial lockdown of the country, in a last-ditch effort to add foreign exchange to the government's all-but-empty coffers.`\
-https://nytimes.com/reuters/2020/05/05/world/americas/05reuters-health-coronavirus-cuba-economy.html?searchResultPosition=6
+**Dutch Mark 75th Liberation Anniversary, King Urges Reflection**\
+`The Dutch celebrated the 75th anniversary of their liberation from Nazi occupation on Tuesday after King Willem-Alexander paid tribute to war victims and acknowledged that some had "felt abandoned" by his great-grandmother during World War II.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-ww2-anniversary-netherlands.html?searchResultPosition=6
 
-**Global Airlines Body IATA Opposes Leaving Middle Seats Empty**\
-`The body representing global airlines came out against leaving middle seats empty on aircraft on Tuesday, as debate intensifies over how to get airlines flying while respecting social-distancing rules in the wake of the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-airlines-iata.html?searchResultPosition=7
+**Athletes Harassed in Spain While Practicing Amid Confinement**\
+`Some got jeered. Others were yelled at by people on their balconies. Many received disapproving looks.`\
+https://nytimes.com/aponline/2020/05/05/sports/olympics/ap-oly-spain-athletes-harassed.html?searchResultPosition=7
 
-**Longtime Newspaper Publisher Brandt Ayers Dead at 85**\
-`Longtime Alabama newspaper publisher H. Brandt Ayers, who made The Anniston Star a voice for progressive politics during the civil rights era, has died.`\
-https://nytimes.com/aponline/2020/05/05/us/ap-us-obit-brandt-ayers.html?searchResultPosition=8
+**Transit Systems Face Plunging Ridership Amid Virus Fears**\
+`Before the pandemic, Boston commuters bonded over a slew of ills that plagued the nation’s oldest subway system, from delays and breakdowns to the occasional derailment.`\
+https://nytimes.com/aponline/2020/05/05/business/ap-us-virus-outbreak-transit-woes.html?searchResultPosition=8
 
-**Virgin Atlantic to Cut 3,000 Jobs, Stop Using Gatwick: Sky News**\
-`Virgin Atlantic is to cut just over 3,000 jobs, or up to a third of its workforce, and stop using Gatwick Airport as part of its battle to survive, Sky News reported on Tuesday. `\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-britain-virgin.html?searchResultPosition=9
+**Coronavirus Crisis Threatens Push for Denser Housing**\
+`Transit-oriented developments were seen as a solution to severe housing shortages, but experts say developers need to rethink the design for a post-pandemic world.`\
+https://nytimes.com/2020/05/05/business/coronavirus-live-leave.html?searchResultPosition=9
 
-**AerCap Warns Could Scrap Some Boeing MAX Orders, Withdraws Outlook**\
-`Aircraft leasing company AerCap Holdings on Tuesday warned it could cancel some Boeing 737 MAX orders and withdrew its full-year outlook amid a slump in travel demand due to the COVID-19 pandemic that has battered business globally.`\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-aercap-hldg-outlook.html?searchResultPosition=10
+**Recent Commercial Real Estate Transactions**\
+`Recent commercial real estate transactions in New York.`\
+https://nytimes.com/2020/05/05/business/new-york-commercial-real-estate.html?searchResultPosition=10
 
