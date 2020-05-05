@@ -1,20 +1,20 @@
+**Israel Extends Coronavirus Cell Phone Surveillance by Three Weeks**\
+`A parliamentary panel on Tuesday authorised Israel's Shin Bet security service to continue using mobile phone data to track people infected by the coronavirus until May 26, prolonging an initiative described by critics as a threat to privacy.`\
+https://nytimes.com/reuters/2020/05/05/world/middleeast/05reuters-health-coronavirus-israel-surveillance.html?searchResultPosition=6
+
+**Report: Israeli Airstrikes on Eastern Syria Kill 14 Fighters**\
+`Israeli airstrikes in eastern Syria killed 14 Iranian and Iraqi fighters and wounded others, some seriously, an opposition war monitoring group said Tuesday.`\
+https://nytimes.com/aponline/2020/05/05/world/middleeast/ap-ml-syria-israel.html?searchResultPosition=7
+
+**Kenya Questions Deadly Plane Crash in Somalia That Killed 6**\
+`Kenyan authorities are looking into the deadly crash of a plane carrying medical supplies in Somalia, while one Somali official asserts that the aircraft was shot down. Six people on board were killed.`\
+https://nytimes.com/aponline/2020/05/05/world/africa/ap-af-somalia-plane-crash.html?searchResultPosition=8
+
+**Coronavirus Pushes Oil Majors to Biggest Output Cuts in 17 Years**\
+`Oil and gas output from some of the world's top oil companies is set to drop by nearly 11% in the second quarter of 2020 to levels not seen in at least 17 years, according to Reuters calculations.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-global-oil-production.html?searchResultPosition=9
+
 **Putin Awards Commemorative WWII Medal to Kim Jong Un**\
 `Russian President Vladimir Putin has awarded Kim Jong Un a commemorative war medal marking the 75th anniversary of the victory over Nazi Germany, the Russian embassy in Pyongyang said Tuesday. `\
-https://nytimes.com/aponline/2020/05/05/world/europe/ap-eu-russia-north-korea.html?searchResultPosition=6
-
-**Instant View: Bundesbank Must Stop Buying Government Bonds Unless ECB Proves Need-Court**\
-`Euro zone bond yields rose on Tuesday and the euro fell after a German consitutional court instructed the Bundesbank to stop participation in the ECB's long-running PSPP stimulus scheme unless unless the ECB can prove those purchases are needed.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-ecb-policy-markets-instantview.html?searchResultPosition=7
-
-**Coronavirus in N.Y.C.: Latest Updates**\
-`Gov. Andrew M. Cuomo listed seven requirements that each of the state’s 10 regions must meet before restrictions could be eased.`\
-https://nytimes.com/2020/05/05/nyregion/coronavirus-nyc.html?searchResultPosition=8
-
-**The Latest: Belgian Players and Fans Engage in Virtual Wave**\
-`The Latest on the effects of the coronavirus outbreak on sports around the world:`\
-https://nytimes.com/aponline/2020/05/05/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=9
-
-**Seasonal and Undocumented Workers in Portugal Fall Through Safety Net**\
-`Fatima, 57, was midway through a course for the long-term unemployed at her local job centre in Lisbon, earning about 10  euros a day selling jewellery and knick-knacks at street stalls and community centres to make ends meet.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-portugal-unemployment.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/05/world/europe/ap-eu-russia-north-korea.html?searchResultPosition=10
 
