@@ -1,20 +1,20 @@
+**Agent: Jets, Ageless Gore Agree to Terms on 1-Year Deal**\
+`Running back Frank Gore has agreed to terms on a one-year contract with the New York Jets, agent Drew Rosenhaus announced.`\
+https://nytimes.com/aponline/2020/05/05/sports/football/ap-fbn-jets-gore.html?searchResultPosition=6
+
+**New York to Work With Gates Foundation to 'Reimagine' Education: Governor**\
+`New York will work with the Bill & Melinda Gates Foundation to  "reimagine" the state's school system in the wake of the coronavirus pandemic, part of a broader reform of society, Governor Andrew Cuomo said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-usa-new-york.html?searchResultPosition=7
+
+**Book a Table for Fast Food? Burger King Trials Post-Lockdown App in Italy**\
+`Burger King is trialling an app for ordering food and booking a table at its outlets in Italy, as it seeks to persuade locals it is safe to eat out again after more than two months of coronavirus lockdown. `\
+https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-italy-burgerking.html?searchResultPosition=8
+
+**Wayfair Shares Soar 35% as Lockdown Boosts Home Furniture Orders**\
+`Shares of online furniture retailer Wayfair Inc soared as much as 35% to hit a record high on Tuesday after posting better-than-expected quarterly results, as more consumers took to renovating and furnishing their homes while being stuck indoors due to the COVID-19 pandemic. `\
+https://nytimes.com/reuters/2020/05/05/us/05reuters-wayfair-stocks.html?searchResultPosition=9
+
 **Ivory Coast PM to Spend Weeks in France on Medical Rest After Heart Exam**\
 `Ivory Coast Prime Minister Amadou Gon Coulibaly, the ruling party's candidate in this year's presidential race, will stay in France for a few weeks of medical rest after undergoing a heart exam, the presidency said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/africa/05reuters-ivorycoast-politics.html?searchResultPosition=6
-
-**Ecuador Indigenous Community Fears Extinction From COVID-19**\
-`One of Ecuador's indigenous communities fears it could be wiped out as coronavirus infections rise in its territory, prompting dozens of its members to flee into the Amazon rainforest for shelter from the pandemic which has killed nearly 1,600 in the country.`\
-https://nytimes.com/reuters/2020/05/05/world/americas/05reuters-health-coronavirus-ecuador-indigenous.html?searchResultPosition=7
-
-**Remdesivir May Be Approved in Japan on Thursday-Health Minister**\
-`Gilead Sciences Inc's antiviral drug remdesivir may be approved in Japan for domestic COVID-19 patients when the health  ministry's review board is held on Thursday, Japanese Health Minister Katsunobu Kato said.`\
-https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-japan-remdesivir.html?searchResultPosition=8
-
-**Broadway Considers the Path Forward for Shows to Go On**\
-`When Broadway theaters finally reopen, at least one musical theater fan will show up. But she'll look a little different.`\
-https://nytimes.com/aponline/2020/05/05/us/ap-us-virus-outbreak-broadway-future.html?searchResultPosition=9
-
-**Turkey's Coronavirus Death Toll Rises by 59 to 3,520, Slowdown Continues**\
-`The number of people who have died from COVID-19 in Turkey has risen by 59 in the last 24 hours to 3,520, Health Ministry data showed on Tuesday, as a slowdown in deaths and ICU patients continued.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-turkey.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/05/world/africa/05reuters-ivorycoast-politics.html?searchResultPosition=10
 
