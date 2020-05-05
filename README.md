@@ -1,20 +1,20 @@
-**Another Coronavirus Case in German Soccer Before Key Meeting**\
-`Second-division German soccer club Erzgebirge Aue put its entire squad in home isolation on Tuesday after a member of staff tested positive for the coronavirus.`\
-https://nytimes.com/aponline/2020/05/05/sports/soccer/ap-soc-germany-restart.html?searchResultPosition=6
+**Cycling: No Guarantee Tour Will Go Ahead, Says France Sports Minister**\
+`There is no guarantee that the Tour de France will go ahead this year due to the COVID-19 crisis, French sports minister Roxana Maracineanu said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/sports/cycling/05reuters-health-coronavirus-france-cycling.html?searchResultPosition=6
 
-**Dutch Coronavirus Cases Rise by 317 to 41,087, 86 New Deaths: Authorities**\
-`The number of confirmed coronavirus cases in the Netherlands rose by 317 to 41,087 on Tuesday, with 86 new deaths, health authorities said.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-netherlands-tally.html?searchResultPosition=7
+**Dutch Police Disperse Coronavirus Protest in The Hague**\
+`The mayor of The Hague on Tuesday issued a statement ordering police to break up a demonstration by around 200 people who had gathered to protest against measures ordered by the government to slow the country's coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-netherlands-protests.html?searchResultPosition=7
 
-**China Launches Trial Version of Latest Spacecraft**\
-`China launched a newly designed spacecraft on Tuesday as part of its program to build an orbiting space station, furthering its aspirations to rival the U.S., Russia and private companies in outer space exploration. `\
-https://nytimes.com/aponline/2020/05/05/world/asia/ap-as-china-space.html?searchResultPosition=8
+**EU Fraud Prosecutor Wrongly Dismissed From Romanian Anti-Graft Job: Court**\
+`The European Union's fraud prosecutor was wrongly removed from her previous job as head of Romania's anti-corruption agency, the European Court of Human Rights said on Tuesday in a landmark ruling against political interference in the judiciary.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-romania-corruption.html?searchResultPosition=8
 
-**Prison Contagion in Americas 'Deeply Worrying', U.N. Says**\
-`Overcrowded, unhygienic prisons in Latin America and the spread of the new coronavirus both in regional prisons and in the United States are a source of "major concern", the U.N. rights office (OHCHR) said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/americas/05reuters-health-coronavirus-un-prisons.html?searchResultPosition=9
+**Another 1,700 Virus Deaths Reported in NY Nursing Homes**\
+`New York state is now reporting more than 1,700 previously undisclosed deaths at nursing homes and adult care facilities as the state faces scrutiny over how it’s protected vulnerable residents during the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/05/05/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=9
 
-**Yemen Records Nine New Coronavirus Infections, Taking Total to 21**\
-`Yemen's internationally-recognised government announced on Tuesday nine new coronavirus cases and one death, raising total infections to 21 and three deaths, the country's supreme national emergency committee said on Twitter.`\
-https://nytimes.com/reuters/2020/05/05/world/middleeast/05reuters-health-coronavirus-yemen.html?searchResultPosition=10
+**Weekly News Quiz for Students: Biden Allegation, Antiviral Drug, U.S. Women’s Soccer Team**\
+`How well did you follow the news this past week? How many of these 10 questions can you get right?`\
+https://nytimes.com/interactive/2020/05/05/learning/05News-Quiz-for-Students.html?searchResultPosition=10
 
