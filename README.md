@@ -1,20 +1,20 @@
-**Venezuela Claims 2 Americans Were Captured in Failed Invasion**\
-`President Nicolás Maduro said the Americans were among 13 “terrorists” involved in an armed incursion on Sunday.`\
-https://nytimes.com/2020/05/05/world/americas/venezuela-invasion-americans-captured.html?searchResultPosition=6
+**Coronavirus Health Fears Outweigh Concern for Economy: Global Survey**\
+`A substantial majority of people around the world want their governments to prioritise saving lives over moves to restart economies being hammered by measures aimed at halting the spread of the new coronavirus, a global survey found.`\
+https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-politics-trust.html?searchResultPosition=6
 
-**Coronavirus Live Updates: U.S. Opts Out of $8 Billion Global Vaccine Pledge**\
-`President Trump says the U.S. is pouring billions into its own effort to develop a vaccine. In New York, Holocaust survivors face a new threat from the coronavirus.`\
-https://nytimes.com/2020/05/05/world/coronavirus-news.html?searchResultPosition=7
+**'No Remedy, No Rights': China Blocks Foreigners From Leaving**\
+`Mandy Luo was supposed to get on a plane back to Seattle with her mother and finish high school like everyone else. `\
+https://nytimes.com/aponline/2020/05/05/world/asia/ap-as-china-exit-bans-abridged.html?searchResultPosition=7
 
-**Watching South Korean Baseball on TV? Let Us Help**\
-`Bat flips galore but no spitting allowed. And a crop of players to keep an eye on who may land in the American major leagues.`\
-https://nytimes.com/2020/05/05/sports/baseball/coronavirus-baseball-korea-opening.html?searchResultPosition=8
+**U.S. Couple's Nightmare: Held in China, Away From Daughter**\
+`The first thing Daniel Hsu noticed about the room was that there were no sharp edges. The walls were covered with beige rubber, the table wrapped in soft, grey leather. White blinds covered two barred windows.`\
+https://nytimes.com/aponline/2020/05/05/world/asia/ap-as-china-exit-bans.html?searchResultPosition=8
 
-**Coronavirus Cuts 'Deep Scars' Through Meatpacking Cities**\
-`As the coronavirus spread from the nation’s meatpacking plants to the broader communities where they are located, it burned through a modest duplex in Waterloo, Iowa.`\
-https://nytimes.com/aponline/2020/05/04/business/ap-us-virus-outbreak-slaughterhouse-cities.html?searchResultPosition=9
+**15 Children Are Hospitalized With Mysterious Illness Possibly Tied to Covid-19**\
+`The health authorities in New York City issued an alert saying that the children had a syndrome that doctors do not yet fully understand.`\
+https://nytimes.com/2020/05/05/nyregion/children-Kawasaki-syndrome-coronavirus.html?searchResultPosition=9
 
-**Call Centres Expose Fault Line in Japan's Pandemic Fight**\
-`Almost a month after Tokyo declared a state of emergency, dozens of call centre employees for telecom KDDI Corp still commute into their crowded office, where the fear of coronavirus infection has taken a back seat to data security. `\
-https://nytimes.com/reuters/2020/05/04/technology/04reuters-health-coronavirus-japan-telecommuting.html?searchResultPosition=10
+**Stock Markets in Asia Follow Wall Street Higher: Live Updates**\
+`The latest on stock market and business news during the coronavirus outbreak.`\
+https://nytimes.com/2020/05/05/business/stock-market-today-coronavirus.html?searchResultPosition=10
 
