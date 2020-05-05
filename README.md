@@ -1,20 +1,20 @@
-**Lebanon Set to Extend Coronavirus Shutdown Until May 24**\
-`Lebanon's supreme defence council will advise the government to extend a shutdown to curb the spread of coronavirus by two weeks until May 24, a security source said after the council convened on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/middleeast/05reuters-health-coronavirus-lebanon.html?searchResultPosition=6
+**Microsoft to Invest $1 Billion in Poland: Statement**\
+`Microsoft will invest $1 billion in Poland as part of a plan that will involve opening a data centre in the country to provide cloud services to businesses and government institutions, the company said in a statement on Tuesday. `\
+https://nytimes.com/reuters/2020/05/05/technology/05reuters-microsoft-poland.html?searchResultPosition=6
 
-**What it’s like to Give Birth in the Middle of a Pandemic**\
-`Poonam Sharma Mathis documented her experience having a baby in New York City, just as hospitalizations and deaths from coronavirus were starting to rise.`\
-https://nytimes.com/video/nyregion/100000007092040/coronavirus-pregnant-birth-pandemic-quarantine.html?searchResultPosition=7
+**The Leader We Wish We All Had**\
+`A look at the style of Dr. Amy Acton, who has earned praise for her daily briefings on the pandemic.`\
+https://nytimes.com/video/opinion/100000007111965/coronavirus-ohio-amy-acton.html?searchResultPosition=7
 
-**UK Economy Set to Shrink 7% or More, April PMIs Dive: IHS Markit**\
-`Britain's economy is on course for an unprecedented 7% quarterly contraction after measures to slow the spread of the coronavirus forced business closures across the country last month, a business survey showed on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-britain-economy-pmi.html?searchResultPosition=8
+**UK COVID-19 Death Toll Rises Above 30,000, Highest in Europe: Data**\
+`More than 30,000 people in the United Kingdom have died with suspected COVID-19, the highest official toll yet reported in Europe, according to data published on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-britain.html?searchResultPosition=8
 
-**Quick Economic Bounce-Back Post-Corona Unlikely: ECB's Weidmann**\
-`Measures to constrain and combat the coronavirus pandemic are likely to remain in place for a long time, meaning a rapid and strong economic recovery is relatively unlikely, German central bank President Jens Weidmann said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-ecb-weidmann.html?searchResultPosition=9
+**Malaysia Reports 30 New Coronavirus Cases and One Death**\
+`Malaysian health authorities on Tuesday reported 30 new coronavirus cases, bringing the cumulative total to 6,383 cases as the country entered the second day of relaxed curbs on movement and businesses.`\
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-coronavirus-health-malaysia.html?searchResultPosition=9
 
-**Coronavirus Reproduction Rate in Germany at 0.71: RKI**\
-`The reproduction rate for the coronavirus pandemic in Germany is currently estimated at 0.71, the head of public health authority RKI said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-germany-reproduction.html?searchResultPosition=10
+**Hong Kong March Retail Sales Plunge 42% Year-On-Year as Coronavirus Hurts Economy**\
+`Hong Kong's retail sales fell by 42% in March from a year earlier, as travel restrictions kept tourists away and most residents steered clear of shops and restaurants for fear of catching the coronavirus.`\
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-hongkong-economy-salesfigures.html?searchResultPosition=10
 
