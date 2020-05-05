@@ -1,20 +1,20 @@
-**Exclusive: Greece to Issue Two New Bonds by Year-End, May Postpone Early IMF Payment**\
-`Greece plans at least two more bond issues by the end of the year and could postpone an early repayment to the International Monetary Fund to boost cash reserves and cover extra funding needs related to COVID-19, government officials told Reuters on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-greece-bonds-exclusive.html?searchResultPosition=6
+**Virgin Atlantic to Cut 3,000 Jobs, Stop Using Gatwick: Sky News**\
+`Virgin Atlantic is to cut just over 3,000 jobs, or up to a third of its workforce, and stop using Gatwick Airport as part of its battle to survive, Sky News reported on Tuesday. `\
+https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-britain-virgin.html?searchResultPosition=6
 
-**Cycling: No Guarantee Tour Will Go Ahead, Says France Sports Minister**\
-`There is no guarantee that the Tour de France will go ahead this year due to the COVID-19 crisis, French sports minister Roxana Maracineanu said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/sports/cycling/05reuters-health-coronavirus-france-cycling.html?searchResultPosition=7
+**AerCap Warns Could Scrap Some Boeing MAX Orders, Withdraws Outlook**\
+`Aircraft leasing company AerCap Holdings on Tuesday warned it could cancel some Boeing 737 MAX orders and withdrew its full-year outlook amid a slump in travel demand due to the COVID-19 pandemic that has battered business globally.`\
+https://nytimes.com/reuters/2020/05/05/us/05reuters-aercap-hldg-outlook.html?searchResultPosition=7
 
-**Dutch Police Disperse Coronavirus Protest in The Hague**\
-`The mayor of The Hague on Tuesday issued a statement ordering police to break up a demonstration by around 200 people who had gathered to protest against measures ordered by the government to slow the country's coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-netherlands-protests.html?searchResultPosition=8
+**Here’s What 11 TV Writers Are Bingeing**\
+`With the coronavirus pandemic shutting down most productions for now, TV makers are now primarily TV viewers. Here’s what they’re watching as they shelter in place.`\
+https://nytimes.com/2020/05/05/arts/television/what-showrunners-are-watching.html?searchResultPosition=8
 
-**EU Fraud Prosecutor Wrongly Dismissed From Romanian Anti-Graft Job: Court**\
-`The European Union's fraud prosecutor was wrongly removed from her previous job as head of Romania's anti-corruption agency, the European Court of Human Rights said on Tuesday in a landmark ruling against political interference in the judiciary.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-romania-corruption.html?searchResultPosition=9
+**Philippine Telecoms Body Orders TV Broadcaster That Irked Duterte to Shut**\
+`The Philippines' telecoms body ordered the country's leading broadcaster ABS-CBN Corp to cease operations on Tuesday, as a parliament dominated by President Rodrigo Duterte's loyalists dragged its feet over renewing its license.`\
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-philippines-media.html?searchResultPosition=9
 
-**Another 1,700 Virus Deaths Reported in NY Nursing Homes**\
-`New York state is now reporting more than 1,700 previously undisclosed deaths at nursing homes and adult care facilities as the state faces scrutiny over how it’s protected vulnerable residents during the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/05/05/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=10
+**U.S. Trade Deficit Increases in March**\
+`The U.S. goods trade deficit widened in March as declining exports offset a shrinking import bill, suggesting the novel coronavirus outbreak was upending the global flow of goods and services.`\
+https://nytimes.com/reuters/2020/05/05/us/05reuters-usa-economy-tradefigures.html?searchResultPosition=10
 
