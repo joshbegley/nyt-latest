@@ -1,20 +1,20 @@
-**Italy Expects at Least 100 Billion Euros From EU Recovery Fund**\
-`Economy Minister Roberto Gualtieri said on Tuesday he was confident the new European Recovery Fund will make available at least 100 billion euros ($109 billion) for Italy to help its economy bounce back from the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-italy-eu.html?searchResultPosition=6
+**Facebook Says It Dismantles Disinformation Network Tied to Iran's State Media**\
+`Iran's state broadcaster has used hundreds of fake social media accounts to covertly spread pro-Iranian messaging online since at least 2011, targeting voters in countries including Britain and the United States, Facebook said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/technology/05reuters-iran-facebook.html?searchResultPosition=6
 
-**An Italian Specialty for Spring, Veal, for Takeout and Delivery**\
-`Carbone, Sant Ambroeus and others are offering Parmesan and Milanese versions of the favorite.`\
-https://nytimes.com/2020/05/05/dining/veal-parm-takeout-coronavirus.html?searchResultPosition=7
+**A London Community Shattered by the Coronavirus**\
+`In Britain's Turkish-Cypriot community, early April was a period of anxious waiting. With a strong presence in Enfield, people of Turkish origin number around 500,000 in the UK, and, like many minorities, feel they have suffered disproportionately from the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-britain-elderly-turks.html?searchResultPosition=7
 
-**Too Soon for Reliable International Comparisons on COVID-19 Deaths: UK Minister**\
-`It is too soon to make reliable international comparisons on death tolls from the new coronavirus, British foreign minister Dominic Raab said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-britain-comparison.html?searchResultPosition=8
+**Another 1,700 Virus Deaths Reported in NY Nursing Homes**\
+`New York state has reported more than 1,700 previously undisclosed deaths at nursing homes and adult care facilities as the state faces scrutiny over how it has protected vulnerable residents during the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/05/05/us/ap-us-virus-outbreak-nursing-homes.html?searchResultPosition=8
 
-**Watchdog Concerned Over Census Bureau's Vetting of Workers**\
-`Almost 300 people working for the U.`\
-https://nytimes.com/aponline/2020/05/05/us/ap-us-2020-census.html?searchResultPosition=9
+**TV's 'Blacklist' Draws on Animation to Thwart Virus Shutdown**\
+`Raymond “Red” Reddington, a man who relishes a challenge, likely would admire how TV’s “The Blacklist” took a creative gamble amid the industry’s coronavirus-forced production shutdown to end the season with a bang, not a whimper.`\
+https://nytimes.com/aponline/2020/05/05/us/ap-us-virus-outbreak-tv-blacklist.html?searchResultPosition=9
 
-**The End of the Open Plan Office? Workspaces Get Post-Pandemic Makeovers**\
-`One-way corridors, buffer zones around desks, and clear plastic screens to guard against colleagues' coughs and sneezes may become office standards after coronavirus stay-at-home orders are lifted, say occupational experts.`\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-usa-workplace.html?searchResultPosition=10
+**Doctors Without Patients: ‘Our Waiting Rooms Are Like Ghost Towns.’**\
+`As visits plummet because of the coronavirus, small physician practices are struggling to survive.`\
+https://nytimes.com/2020/05/05/health/primary-doctors-coronavirus.html?searchResultPosition=10
 
