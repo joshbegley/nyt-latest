@@ -1,20 +1,20 @@
-**How to Build a Fort**\
-`Gather couch cushions, pillows, chairs, sheets and blankets. Don’t get attached; feel free to renovate when needed.`\
-https://nytimes.com/2020/05/05/magazine/how-to-build-a-fort.html?searchResultPosition=6
+**Indonesia Reports Biggest Daily Rise in Coronavirus Infections**\
+`Indonesia reported on Tuesday its biggest daily rise in coronavirus infections with 484 new cases, taking the total in the Southeast Asian country to 12,071, said health ministry official Achmad Yurianto.`\
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=6
 
-**Bundesbank Must Stop Buying Govt Bonds if ECB Can't Prove Need: Court**\
-`The Bundesbank must stop buying government bonds under the European Central Bank's long-running stimulus scheme within the next three months unless the ECB can prove those purchases are needed, Germany's top court ruled on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-ecb-policy-germany.html?searchResultPosition=7
+**‘Pelosi,’ by Molly Ball: An Excerpt**\
+`An excerpt from “Pelosi,” by Molly Ball`\
+https://nytimes.com/2020/05/05/books/review/pelosi-by-molly-ball-an-excerpt.html?searchResultPosition=7
 
-**EU to Demand Progress on Fishing, Level Playing Field in Brexit Talks: Ireland**\
-`The European Union will insist on making progress on its priorities of fisheries and level-playing-field provisions in parallel to trade talks with ex-member Britain, Ireland's Foreign Minister Simon Coveney said. `\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-britain-eu-ireland.html?searchResultPosition=8
+**‘All Adults Here,’ by Emma Straub: An Excerpt**\
+`An excerpt from “All Adults Here,” by Emma Straub`\
+https://nytimes.com/2020/05/05/books/review/all-adults-here-by-emma-straub-an-excerpt.html?searchResultPosition=8
 
-**Nadal Pessimistic About Return to Action Before 2021**\
-`Rafael Nadal does not expect to return to play competitive tennis until 2021 due to the coronavirus pandemic, which has decimated much of this year's calendar.`\
-https://nytimes.com/reuters/2020/05/05/sports/tennis/05reuters-health-coronavirus-tennis-nadal.html?searchResultPosition=9
+**‘Little Eyes,’ by Samanta Schweblin: An Excerpt**\
+`An excerpt from “Little Eyes,” by Samanta Schweblin`\
+https://nytimes.com/2020/05/05/books/review/little-eyes-by-samanta-schweblin-an-excerpt.html?searchResultPosition=9
 
-**Microsoft to Invest $1 Billion in Poland: Statement**\
-`Microsoft will invest $1 billion in Poland as part of a plan that will involve opening a data centre in the country to provide cloud services to businesses and government institutions, the company said in a statement on Tuesday. `\
-https://nytimes.com/reuters/2020/05/05/technology/05reuters-microsoft-poland.html?searchResultPosition=10
+**Madagascar: A Cornucopia of Beauty**\
+`Join us for a visual tour of the island nation of Madagascar, about 90 percent of whose flora and fauna is found nowhere else on Earth.`\
+https://nytimes.com/2020/05/05/travel/madagascar.html?searchResultPosition=10
 
