@@ -1,20 +1,20 @@
-**Some Canadian Banks Freeze New Financing for Commercial Properties on COVID-19 Concerns**\
-`Some Canadian banks have frozen new lending for smaller commercial property purchases, in some cases withdrawing letters of intent, as the coronavirus crisis raises concerns about owners’ ability to make payments, mortgage and real estate brokers said.`\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-canada-property.html?searchResultPosition=6
+**Trump Denies Ties to Venezuelan Attack With 2 US Men Jailed**\
+`President Donald Trump said Tuesday that the United States had nothing to do with an alleged incursion into Venezuela that landed two U.S. citizens behind bars in the crisis-stricken South American nation.`\
+https://nytimes.com/aponline/2020/05/05/world/americas/ap-lt-venezuela.html?searchResultPosition=6
 
-**Scientist Says He Was Fired After Concerns Over Malaria Drug**\
-`A government scientist says he was ousted from his position after raising concerns that the Trump administration wanted to “flood” coronavirus hot spots like New York and New Jersey with a malaria drug that President Donald Trump was pushing despite scant scientific evidence it helped.`\
-https://nytimes.com/aponline/2020/05/05/us/politics/ap-us-virus-outbreak-whistleblower.html?searchResultPosition=7
+**Governing Bodies Must Balance Calendar, Says Becker**\
+`Tennis governing bodies should use the time during the lengthy coronavirus shutdown to align their interests and fix the imbalance in the calendar, six-times Grand Slam winner Boris Becker told Reuters on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/sports/tennis/05reuters-health-coronavirus-tennis-becker-interview.html?searchResultPosition=7
 
-**Wayne Koestenbaum’s Cerebral, Smutty Essays Playfully Disobey the Rules**\
-`In “Figure It Out,” the polymathic writer turns his attention to Shakespeare, Adrienne Rich, translation and pornography, among other subjects.`\
-https://nytimes.com/2020/05/05/books/review-figure-it-out-wayne-koestenbaum.html?searchResultPosition=8
+**Bana Ali, Who Championed Basketball in Somalia, Dies at 54**\
+`Mr. Ali, who had the novel coronavirus, dedicated his own time and finances to promoting basketball and sports among Somali youth.`\
+https://nytimes.com/2020/05/05/obituaries/bana-ali-dead-coronavirus.html?searchResultPosition=8
 
-**A Food Delivery Worker Won’t Let Coronavirus Get in Her Way**\
-`D’Shea Grant’s deliveries take longer than they used to. Her customers are on edge. The pandemic has made everything more complicated. But she keeps at it anyway.`\
-https://nytimes.com/2020/05/05/us/food-delivery-worker-coronavirus-doordash.html?searchResultPosition=9
+**Saints Emails, Lawsuits Could Be Buried in Church Bankruptcy**\
+`A bankruptcy filing by New Orleans’ Roman Catholic archdiocese freezes sexual abuse lawsuits and could help bury the details of alleged coverups of predator priests and thousands of internal emails documenting a behind-the-scenes alliance with the New Orleans Saints. `\
+https://nytimes.com/aponline/2020/05/05/sports/ap-us-clergy-abuse-new-orleans-bankruptcy.html?searchResultPosition=9
 
-**Koepka Eyes Return at Colonial: 'I'm Going to Be There'**\
-`World No. 3 Brooks Koepka said he is ready to return to competitive golf, whenever that time comes.`\
-https://nytimes.com/reuters/2020/05/05/sports/golf/05reuters-golf-pga-koepka.html?searchResultPosition=10
+**Greek Parliament Approves Controversial Environmental Bill**\
+`Greek lawmakers approved a controversial environmental bill Tuesday that the opposition and environmental groups slammed for opening the door to exploratory oil and gas drilling in protected areas.`\
+https://nytimes.com/aponline/2020/05/05/business/ap-eu-greece-energy-spat.html?searchResultPosition=10
 
