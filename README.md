@@ -1,20 +1,20 @@
+**Trump to Visit Factory Making Masks After Researchers Double U.S. Coronavirus Death Projection**\
+`President Donald Trump on Tuesday will travel far beyond the Washington area for the first time in weeks to visit Arizona, one of dozens of U.S. states that is partially lifting its shutdown of businesses to stem the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-usa.html?searchResultPosition=6
+
+**Sudan Appoints Its First Ambassador to the US in 25 Years**\
+`Sudan’s Foreign Ministry announced that it appointed the country’s first envoy to the U.S. in more than a quarter century, a step toward normalizing relations after the overthrow of former president Omar al-Bashir last year.`\
+https://nytimes.com/aponline/2020/05/05/world/middleeast/ap-ml-sudan.html?searchResultPosition=7
+
+**A Quarantine Surprise: Americans Are Cooking More Seafood**\
+`In a rare bright spot for the fish trade, retail sales have set records, and consumers are trying species that even restaurants shy away from.`\
+https://nytimes.com/2020/05/05/dining/seafood-fish-coronavirus.html?searchResultPosition=8
+
+**Estimate Shows US Traffic Deaths Fell 1.2% in 2019 to 36,120**\
+`The U.S. government is estimating that traffic deaths fell 1.2% last year to 36,120.`\
+https://nytimes.com/aponline/2020/05/05/business/ap-us-traffic-deaths.html?searchResultPosition=9
+
 **U.S. Stock Exchange Field Heats Up as MEMX Gets SEC Nod**\
 `Members Exchange (MEMX), a new bourse backed by major Wall Street firms looking to take on the New York Stock Exchange and Nasdaq Inc through lower fees, said on Tuesday regulators had approved its exchange application. `\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-usa-exchanges-memx.html?searchResultPosition=6
-
-**UAW Union Clears Way for U.S. Factory Restart After FCA Reveals Plans**\
-`The union that represents U.S. hourly workers at the Detroit automakers on Tuesday cleared the way for the companies to restart vehicle production amid the coronavirus pandemic after Fiat Chrysler Automobiles NV (FCA) said it expected to reopen its North American plants on May 18.`\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-automakers-union.html?searchResultPosition=7
-
-**A Push for Normalcy; Industries, Nations Test the Waters**\
-`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Tuesday related to the global economy, the work place and the spread of the virus.`\
-https://nytimes.com/aponline/2020/05/05/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=8
-
-**XPO Logistics Jump 13% on Cost-Cutting, e-Commerce Growth**\
-`XPO Logistics Inc shares jumped almost 13% on Tuesday  after executives said its e-commerce fulfillment, returns and home delivery businesses are thriving during the novel coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-xpo-logistics-results.html?searchResultPosition=9
-
-**U.S. Household Debt Reached $14.3 Trillion, Credit Standards Tightened in First Quarter**\
-`American households added $155 billion of debt in the first quarter and overall debt levels rose to a new record at $14.`\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-usa-fed-debt.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/05/business/05reuters-usa-exchanges-memx.html?searchResultPosition=10
 
