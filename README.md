@@ -2,7 +2,7 @@
 `Gov. Andrew M. Cuomo listed seven requirements that each of the state’s 10 regions must meet before restrictions could be eased.`\
 https://nytimes.com/2020/05/05/nyregion/coronavirus-nyc.html?searchResultPosition=6
 
-**The Latest: Health Minister Defends German Soccer's Plans**\
+**The Latest: Belgian Players and Fans Engage in Virtual Wave**\
 `The Latest on the effects of the coronavirus outbreak on sports around the world:`\
 https://nytimes.com/aponline/2020/05/05/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=7
 
