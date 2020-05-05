@@ -1,20 +1,20 @@
+**What You Need to Know About the Coronavirus Right Now**\
+`Here's what you need to know about the coronavirus right now:`\
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-snapshot.html?searchResultPosition=6
+
+**Thailand Reports One New Coronavirus Case, No New Deaths**\
+`Thailand on Tuesday reported one new coronavirus case and no new deaths, the lowest number of new infections since March 9.`\
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-thailand.html?searchResultPosition=7
+
+**Coronavirus Returns Long-Banned Drive-In Movies to Iran**\
+`The new coronavirus pandemic has brought back something unseen in Iran since its 1979 Islamic Revolution: a drive-in movie theater. `\
+https://nytimes.com/aponline/2020/05/05/world/middleeast/ap-ml-virus-outbreak-iran-drive-in-movies.html?searchResultPosition=8
+
 **EssilorLuxottica First-Quarter Sales Show First Signs of Coronavirus Hit**\
 `Oakley and Ray-Ban maker EssilorLuxottica reported a steep decline in first-quarter sales as the coronavirus prompted store closures.`\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-essilorluxottica-results.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/05/05/business/05reuters-essilorluxottica-results.html?searchResultPosition=9
 
 **Australia, New Zealand Start Work on Plan for Travel Between Them**\
 `Australia and New Zealand have agreed to begin work on allowing travel between both countries and this arrangement could be eventually extend to other Pacific island nations, the countries said in a joint statement on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-newzealand-travel.html?searchResultPosition=7
-
-**BNP Paribas Profit Falls 33% on Expected Loan Losses, Equity Trading Hit**\
-`Profit at BNP Paribas fell by 33.1% in the first-quarter as the coronavirus crisis hit equity trading and prompted the eurozone's biggest bank to set aside more than half a billion euros in loan provisions.`\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-bnp-paribas-results.html?searchResultPosition=8
-
-**Singapore Retail Sales Suffer Biggest Drop in Over 20 Years**\
-`Singapore's retail sales in March fell at the steepest pace in more than 20 years on an annual basis, official data showed on Tuesday, as consumption especially of discretionary items such as clothes and jewellery fell due to the COVID-19 outbreak.`\
-https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-singapore-economy-retailsales.html?searchResultPosition=9
-
-**Former Australian Boom Town Carves Road to Coronavirus Recovery**\
-`In the world's biggest iron ore loading hub, Western Australia's Port Hedland, huge vessels line up near the red-dirt coast, waiting to be loaded with the sought-after steel-making material.`\
-https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-australia-recovery.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-newzealand-travel.html?searchResultPosition=10
 
