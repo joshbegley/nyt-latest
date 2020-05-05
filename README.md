@@ -1,20 +1,20 @@
-**U.N. Palestinian Refugee Agency Operating on 'Month-To-Month' Basis Due to U.S. Aid Cut: Official**\
-`Scrambling to tackle COVID-19 in camps across the Middle East, the U.N. agency supporting Palestinian refugees said on Tuesday it only has enough cash to operate until the end of May because of American funding cuts.`\
-https://nytimes.com/reuters/2020/05/05/world/middleeast/05reuters-health-coronavirus-palestinians-unrwa.html?searchResultPosition=6
+**Where's My Check? Answers to Common Relief Payment Questions**\
+`The US government has distributed about 130 million economic impact payments to taxpayers in less than 30 days. The IRS anticipates sending more than 150 million payments as part of a massive coronavirus rescue package. `\
+https://nytimes.com/aponline/2020/05/05/business/bc-us-virus-outbreak-relief-check-issues.html?searchResultPosition=6
 
-**UK, US Kick Off Post-Brexit Free Trade Talks Amid Outbreak**\
-`After a delay caused by the coronavirus pandemic, British and American negotiators have opened negotiations on a trade agreement that the U.K. government hopes will bring a post-Brexit economic and diplomatic boost.`\
-https://nytimes.com/aponline/2020/05/05/business/bc-eu-britain-us-trade.html?searchResultPosition=7
+**A Dire Coronavirus Forecast as States Move to Reopen**\
+`One reader is horrified by projections showing a possible sevenfold increase in cases. Another notes that they “will come as no surprise to public health professionals.”`\
+https://nytimes.com/2020/05/05/opinion/letters/coronavirus-toll-states-reopen.html?searchResultPosition=7
 
-**French Commander: Extremists in Africa Try to Exploit Virus**\
-`Islamic extremists in West Africa's Sahel region are trying to exploit COVID-19 to gain followers but haven’t had much success, according to the commander of the French military's Operation Barkhane there.`\
-https://nytimes.com/aponline/2020/05/05/world/africa/ap-af-sahel-extremism.html?searchResultPosition=8
+**Brazil's Bolsonaro Confirms His Top Cop Appointee Replaced Rio Police Chief**\
+`Brazil's right-wing President Jair Bolsonaro confirmed on Tuesday the replacement of the federal police chief in Rio de Janeiro, where two of his sons are under investigation.`\
+https://nytimes.com/reuters/2020/05/05/world/americas/05reuters-brazil-politics.html?searchResultPosition=8
 
-**Canada to Spend C$252 Million to Help Farmers and Food Processors: PM Trudeau**\
-`Canada will invest C$252 million ($179.5 million) to help some of the country's farm and food processing sectors during the coronavirus outbreak, Prime Minister Justin Trudeau said on Tuesday, and said more money could come later if needed.`\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-canada.html?searchResultPosition=9
+**Trial Date Pushed in Alton Sterling Wrongful Death Lawsuit**\
+`A new trial date has been set in the wrongful death lawsuit filed the family of a black man killed by a white police officer in Louisiana’s capital city four years ago.`\
+https://nytimes.com/aponline/2020/05/05/us/ap-us-police-shooting-louisiana.html?searchResultPosition=9
 
-**Fed's Evans Says 'Reasonable' to Expect U.S. to Return to Growth After June**\
-`Chicago Federal Reserve Bank President Charles Evans said on Tuesday that it's "reasonable" to expect a return to economic growth in the second half of the year, but that such an outcome is only slightly more likely than other, more pessimistic views. `\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-fed-evans.html?searchResultPosition=10
+**Cambodian Leader Meets Rival Who Faces Treason Charges**\
+`Cambodian Prime Minister Hun Sen met Tuesday with an opposition leader whose political party was dissolved after he was charged with treason.`\
+https://nytimes.com/aponline/2020/05/05/world/asia/ap-as-cambodia-politics.html?searchResultPosition=10
 
