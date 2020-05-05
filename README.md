@@ -1,20 +1,20 @@
+**Texas Back in Business? Barely, Y'all, as Malls, Restaurants Empty**\
+`The Domain mall in Austin, Texas, is open for business - unlike most of its 100 upscale shops - as the state entered its first work week of eased pandemic restrictions in the hopes of rekindling the economy.`\
+https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-usa-texas.html?searchResultPosition=6
+
+**Uber, Lyft Investors Want to Hear Plans to Get Riders Back in Cars**\
+`As U.S. lockdowns and fears of the coronavirus pandemic stretch into a third month, who wants to take an Uber ride? `\
+https://nytimes.com/reuters/2020/05/05/business/05reuters-uber-results-lyft.html?searchResultPosition=7
+
+**Lufthansa Not Planning to Buy Rivals Weakened by COVID-19 Crisis - CEO**\
+`Lufthansa is not planning to buy rivals weakened by the coronavirus crisis, Chief Executive Carsten Spohr told shareholders at the company's virtual annual general meeting on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/business/05reuters-lufthansa-restructuring.html?searchResultPosition=8
+
+**DealBook: Things Fall Apart**\
+`The sudden collapse of deals that seemed destined to close, like the private equity buyout of Victoria’s Secret, sends an ominous signal.`\
+https://nytimes.com/2020/05/05/business/dealbook/coronavirus-victorias-secret-acquisition.html?searchResultPosition=9
+
 **Judge Questions VW's Defense in Landmark Case Over Diesel Damages**\
 `A German federal court judge cast doubt on Volkswagen's reasoning after the carmaker urged the court to dismiss a claim for damages from a diesel customer. `\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-volkswagen-emissions-lawsuit.html?searchResultPosition=6
-
-**On Politics: What Reopening Really Means**\
-`A grim government projection as deaths rise and economies restart: This is your morning tip sheet.`\
-https://nytimes.com/2020/05/05/us/politics/trump-coronavirus.html?searchResultPosition=7
-
-**Ramping Up COVID-19 Testing Earlier Would Have Helped the UK, Top Adviser Says**\
-`If the United Kingdom had ramped up testing for COVID-19 earlier, it could have been beneficial, the British government's chief scientific adviser said on Tuesday. `\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-britain-sceintists.html?searchResultPosition=8
-
-**Futures Rise on Oil Gains, Easing of Lockdowns**\
-`U.S. stock index futures rose on Tuesday, building on gains in the previous session, as oil prices jumped and a slew of countries eased coronavirus-led restrictions in an attempt to revive their economies.`\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-usa-stocks.html?searchResultPosition=9
-
-**Pfizer, BioNTech Set to Begin U.S. Coronavirus Vaccine Trial**\
-`Pfizer Inc and BioNTech SE said on Tuesday they have begun delivering doses of their experimental coronavirus vaccines for initial human testing in the United States.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-vaccines-pfizer.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/05/business/05reuters-volkswagen-emissions-lawsuit.html?searchResultPosition=10
 
