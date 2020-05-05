@@ -1,20 +1,20 @@
-**Met Opera Furloughs Nearly 20% of Staff in Cost-Cutting**\
-`The financially challenged Metropolitan Opera is furloughing 41 administrative employees, nearly 20% of its full-time staff, in response to the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/05/05/us/ap-us-met-opera-furloughs.html?searchResultPosition=6
+**U.S. Says Does Not Accept at 'Face Value' What Venezuela Says Was Armed Incursion**\
+`The United States does not accept at "face value" the Venezuelan government's account of an alleged armed incursion there and is seeking further information about the incident, including on two Americans reported to have been detained, the State Department said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/world/americas/05reuters-venezuela-security-usa.html?searchResultPosition=6
 
-**Exclusive: Sanofi to Enroll Thousands for Its Coronavirus Vaccine Trials**\
-`French drugmaker Sanofi SA said it plans to enroll thousands of subjects globally for trials of an experimental vaccine for the coronavirus it is developing with GlaxoSmithKline Plc, and that it has started to discuss advanced purchases with several countries.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-sanofi-exclusive.html?searchResultPosition=7
+**Task Force, Meat Shortage, Madagascar: Your Tuesday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/05/05/briefing/task-force-meat-shortage-madagascar.html?searchResultPosition=7
 
-**Fed Policymakers See Slow, Uneven U.S. Recovery After Coronavirus Downturn**\
-`The U.S. economy could start to recover in the second half of the year after what is shaping up to be the worst recession in decades, but growth is likely to be slow and uneven, several top Federal Reserve policymakers indicated on Tuesday.  `\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-usa-fed.html?searchResultPosition=8
+**Are Democrats Canceling #MeToo for Biden?**\
+`Tara Reade’s sexual assault allegation has sparked a reckoning about what it means to “believe women.”`\
+https://nytimes.com/2020/05/05/opinion/biden-me-too.html?searchResultPosition=8
 
-**Biden to Be Endorsed by LGBTQ Group on Notable Anniversary**\
-`On May 6, 2012, Vice President Joe Biden declared on NBC's “Meet the Press” that he supported the legalization of same-sex marriage – getting out ahead of his boss, Barack Obama, on one of the most volatile political issues of the day.`\
-https://nytimes.com/aponline/2020/05/05/us/politics/ap-us-election-2020-biden-lgbtq.html?searchResultPosition=9
+**Ousted U.S. Vaccine Official to Testify Before House Panel: Spokeswoman**\
+`Rick Bright, the ousted director of a U.S. agency responsible for developing a coronavirus vaccine, will testify before a U.S. House of Representatives panel on May 14, a representative said on Twitter on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/us/politics/05reuters-health-coronavirus-usa-whistleblower.html?searchResultPosition=9
 
-**11 Attorneys General Seek Probe Into Meatpacking Industry**\
-`The attorneys general for 11 Midwestern states urged the Justice Department on Tuesday to pursue a federal investigation into market concentration and potential price fixing by meatpackers in the cattle industry during the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/05/05/business/bc-us-virus-outbreak-cattle-prices.html?searchResultPosition=10
+**Euro Divisions May Again Impede a Crisis Response: Fed's Bullard**\
+`As the U.S. economy began crawling out of recession in 2009, policymakers got a rude surprise: a new round of intensifying problems in Europe threatened to break up the euro zone currency union and weighed on hopes of a faster global recovery for years to come.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-ecb-policy-germany-euro.html?searchResultPosition=10
 
