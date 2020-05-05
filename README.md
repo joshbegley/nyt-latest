@@ -1,20 +1,20 @@
-**Democrats, Tara Reade and the #MeToo Trap**\
-`Don’t compare the case against Joe Biden to the one against Brett Kavanaugh.`\
-https://nytimes.com/2020/05/04/opinion/tara-reade-biden.html?searchResultPosition=6
+**US Women's Team Players Have Options After Setback in Court**\
+`Players for the U.S. women’s national team may have been dealt a blow by a judge’s ruling in their gender discrimination lawsuit against the U.S. Soccer Federation but the case is far from over. `\
+https://nytimes.com/aponline/2020/05/04/sports/soccer/ap-soc-equal-pay-whats-next.html?searchResultPosition=6
 
-**Australia Consumers See Glimmer of Hope, Start to Spend More**\
-`The mood among Australian consumers brightened just a little in the latest week as success in containing the coronavirus led to talk of easing the economic lockdown, helping lift spending from very depressed levels.`\
-https://nytimes.com/reuters/2020/05/04/world/asia/04reuters-australia-economy-consumers.html?searchResultPosition=7
+**California Governor Says Some Business May Reopen This Week**\
+`With more local governments moving ahead with their own plans for reopening, California Gov. Gavin Newsom announced Monday the state will begin gradually allowing clothing stores, florists, bookstores and sporting goods shops to open their doors after a nearly seven-week coronavirus shutdown.`\
+https://nytimes.com/aponline/2020/05/04/business/ap-us-virus-outbreak-california-6th-ld-writethru.html?searchResultPosition=7
 
-**China's Banned Sun Lodges Appeal With Swiss Federal Court: Report**\
-`Banned Chinese swimmer Sun Yang has lodged an appeal at the Swiss federal court in a bid to overturn his eight-year suspension for doping, the Swimming World website reported on Tuesday.`\
-https://nytimes.com/reuters/2020/05/04/sports/olympics/04reuters-swimming-china-sun.html?searchResultPosition=8
+**Don Shula Kept Winning Interesting**\
+`Shula’s teams claimed 347 victories under him, but it was the variety of styles and personnel that made his record number of victories truly remarkable.`\
+https://nytimes.com/2020/05/04/sports/football/don-shula-deathmiami-dolphins.html?searchResultPosition=8
 
-**Apple Borrows on the Cheap to Fund Buybacks, Dividends**\
-`Apple Inc on Monday capitalized on the Federal Reserve's emergency measures in response to the coronavirus outbreak to issue its cheapest bonds in years, making it the latest blue-chip company to do so to fund stock buybacks and dividends.`\
-https://nytimes.com/reuters/2020/05/04/business/04reuters-apple-debt.html?searchResultPosition=9
+**Mexico Registers 1,434 New Coronavirus Cases, 117 Deaths**\
+`Mexico registered 1,434 new cases of the novel coronavirus on Monday and 117 new deaths, a health official said, bringing the total in the country to 24,905 confirmed cases and 2,271 deaths.`\
+https://nytimes.com/reuters/2020/05/04/world/americas/04reuters-health-coronavirus-mexico.html?searchResultPosition=9
 
-**Mr. Trump’s War on Accountability**\
-`Firing the watchdogs charged with protecting the public’s money and policing the executive branch undermines democracy.`\
-https://nytimes.com/2020/05/04/opinion/inspector-general-trump-coronavirus.html?searchResultPosition=10
+**Black Robes or Bathrobes? Virus Alters High Court Traditions**\
+`The coronavirus pandemic is forcing big changes at the tradition-bound Supreme Court. `\
+https://nytimes.com/aponline/2020/05/04/us/politics/ap-us-supreme-court-telephone-arguments-5-things.html?searchResultPosition=10
 
