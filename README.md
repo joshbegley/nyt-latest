@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/05/05/us/05reuters-usa-traffic-fatalities.html?
 `Tuesday: Here’s what we know about the soon-to-be-relaxed stay-at-home order. Also: the state’s economy; and virtual tourism.`\
 https://nytimes.com/2020/05/05/us/california-coronavirus-reopening.html?searchResultPosition=9
 
-**Virgin Atlantic to Cut 3,150 Jobs After Pandemic Hits Demand**\
+**Virgin Atlantic to Cut 3,150 Jobs; Move Flights to Heathrow From Gatwick**\
 `British airline Virgin Atlantic said on Tuesday it planned to cut 3,150 jobs and would move its flying programme from London Gatwick to Heathrow airport as it counts the cost of the COVID-19 pandemic.`\
 https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-britain-virgin-atlantic.html?searchResultPosition=10
 
