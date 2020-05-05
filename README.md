@@ -1,20 +1,20 @@
-**How to Make Stir-Fry With Practically Any Vegetables**\
-`Don’t let those wilted greens or wobbly carrots go to waste.`\
-https://nytimes.com/2020/05/05/dining/stir-fry-vegetables-coronavirus.html?searchResultPosition=6
+**Koepka Eyes Return at Colonial: 'I'm Going to Be There'**\
+`World No. 3 Brooks Koepka said he is ready to return to competitive golf, whenever that time comes.`\
+https://nytimes.com/reuters/2020/05/05/sports/golf/05reuters-golf-pga-koepka.html?searchResultPosition=6
 
-**Trump Pick to Oversee Rescue Spending Pledges Impartiality**\
-`President Donald Trump’s choice to oversee a significant chunk of the $2 trillion economic rescue law is pledging to conduct audits and investigations "with fairness and impartiality.''`\
-https://nytimes.com/aponline/2020/05/05/us/politics/ap-us-virus-outbreak-inspector-general-1st-ld-writethru.html?searchResultPosition=7
+**BMW Lowers Margin Outlook for Autos Division Citing Coronavirus Woes**\
+`BMW lowered the outlook for the profitability of its automotive division, citing worse-than-expected demand which has been impacted by global measures to contain the coronavirus. `\
+https://nytimes.com/reuters/2020/05/05/business/05reuters-bmw-results-outlook.html?searchResultPosition=7
 
-**ECB Committed to Easy Policy Even After Court Ruling**\
-`The European Central Bank (ECB) remains committed to doing everything in its mandate to lift inflation back to its target, the bank said on Tuesday after the German constitutional court ruled it exceeded its powers with its asset purchase scheme.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-ecb-policy-germany-response.html?searchResultPosition=8
+**Peru's President Confirms Coronavirus Caseload Now Over 50,000**\
+`Peru's President Martin Vizcarra confirmed on Tuesday that confirmed cases of the new coronavirus have now exceeded 50,000.`\
+https://nytimes.com/reuters/2020/05/05/world/americas/05reuters-health-coronavirus-peru.html?searchResultPosition=8
 
-**After a Terrible First Quarter, Executives Offer Some Hope**\
-`While the pandemic has made it hard to offer forecasts, some corporate leaders said that things might be getting a little better — or at least no worse.`\
-https://nytimes.com/2020/05/05/business/economy/coronavirus-earnings-first-quarter.html?searchResultPosition=9
+**White House Plans to Wind Down Coronavirus Task Force in Coming Weeks: New York Times**\
+`The White House plans to wind down its coronavirus task force in coming weeks, the New York Times reported on Tuesday, adding it is not clear whether another group might replace the task force headed by Vice President Mike Pence and made up of health and logistics officials. `\
+https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-usa-task-force.html?searchResultPosition=9
 
-**France Report More Than 25,500 Coronavirus Deaths**\
-`The number of people who have died from a coronavirus infection in France increased by 330 to 25,531 on Tuesday, the sharpest rate of increase in six days, government data showed.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-france-casualties.html?searchResultPosition=10
+**California Sues Uber, Lyft Over Misclassifying Drivers as Contractors**\
+`California's attorney general on Tuesday sued Uber Technologies Inc and Lyft Inc for classifying its drivers improperly as independent contractors instead of employees, evading workplace protections and withholding worker benefits.`\
+https://nytimes.com/reuters/2020/05/05/business/05reuters-uber-lawsuit-california.html?searchResultPosition=10
 
