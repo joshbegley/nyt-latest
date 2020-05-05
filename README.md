@@ -1,20 +1,20 @@
+**IMF Chief Says Talks With Lebanon on Reforms to Begin Soon**\
+`An economic recovery plan recently adopted by the Lebanese government is “an important step forward” to address Lebanon's economic challenges, the International Monetary Fund's chief said.`\
+https://nytimes.com/aponline/2020/05/05/business/ap-ml-lebanon.html?searchResultPosition=6
+
+**Carbon Emissions Cuts Do Not Mean Repsol Will Exit Oil Sector: CEO**\
+`A target to reduce carbon emissions to net zero by 2050 does not mean Spanish oil and gas firm Repsol will stop producing oil though it will focus on certain projects, Chief Executive Josu Jon Imaz said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/business/05reuters-repsol-results-emissions.html?searchResultPosition=7
+
+**Russia: Domestic Violence Reports Spike Amid Virus Lockdown**\
+`The number of domestic violence cases in Russia grew 2 1/2 times during the lockdown the government ordered to stem the spread of the coronavirus, Russia's human rights ombudswoman said Tuesday. `\
+https://nytimes.com/aponline/2020/05/05/world/europe/ap-eu-virus-outbreak-russia-domestic-violence.html?searchResultPosition=8
+
 **Exclusive: Bangladesh's Beximco to Begin Producing COVID-19 Drug Remdesivir-COO**\
 `One of Bangladesh largest drugmakers, Beximco Pharmaceuticals Ltd, will start production this month of the experimental antiviral drug remdesivir, which has shown promise in fighting the new coronavirus, a senior company executive said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-bangladesh-remdesivir-exclusive.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-bangladesh-remdesivir-exclusive.html?searchResultPosition=9
 
 **SAP Discloses Security Lapses; Says There Was No Data Breach**\
 `Business software group SAP disclosed on Tuesday that some of its cloud products did not meet contractual or statutory security standards and said it would take remedial action to fix the problem as soon as possible.`\
-https://nytimes.com/reuters/2020/05/05/technology/05reuters-sap-cyber.html?searchResultPosition=7
-
-**Fiat Chrysler Turns to 1.7 Billion Euro Loss in First Quarter on Virus Crisis**\
-`Fiat Chrysler said on Tuesday it turned to a net loss in the first quarter as a consequence of the crisis triggered by the spread of the coronavirus.    `\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-fca-results.html?searchResultPosition=8
-
-**Wizz Air Plans for Easing of Restrictions With Holiday Flights From June**\
-`Low cost airline Wizz Air said it is planning for the easing of travel restrictions by starting new routes from Britain's London Luton airport to holiday destinations in Portugal from 16 June and to Greece from July. `\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-wizz-air-hldgs-holidays.html?searchResultPosition=9
-
-**Egypt 2020/21 Budget Deficit Could Widen to 7.8% of GDP Due to Coronavirus**\
-`Egypt's budget deficit for the financial year that will begin in July will widen to 7.8% of gross domestic product from a previously projected 6.2% if the coronavirus crisis continues until the end of December, the finance minister said on Tuesday. `\
-https://nytimes.com/reuters/2020/05/05/world/middleeast/05reuters-egypt-economy-budget.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/05/technology/05reuters-sap-cyber.html?searchResultPosition=10
 
