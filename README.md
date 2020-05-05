@@ -1,20 +1,20 @@
-**Didn’t Get Your Stimulus Payment Yet? Here’s What to Do.**\
-`Tens of millions of people have already received their payments, but if you haven’t, these are the things you should check on.`\
-https://nytimes.com/article/where-is-my-stimulus-payment.html?searchResultPosition=6
+**Canada Sends Nurses to Northern Community Hit by COVID-19**\
+`Canada has dispatched nurses to a remote northern indigenous community hit hard by the coronavirus to conduct testing and provide healthcare support, the local leader said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/world/americas/05reuters-health-coronavirus-canada-gull-bay.html?searchResultPosition=6
 
-**Delta Caps Aircraft Seating Capacity to Ensure Safety Amid COVID-19**\
-`Delta Air Lines said on Tuesday it was putting a limit to seating capacity in its airplanes, as the U.S. carrier looks to provide a safe flying experience to customers amid the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-delta-air.html?searchResultPosition=7
+**Goldman Sachs CEO: Return to Work Will Be Gradual: Memo**\
+`Goldman Sachs Group Inc is working on a strategy to gradually return staff to working in offices worldwide, the bank's chief executive told staff on Tuesday in an internal memo viewed by Reuters. `\
+https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-goldman-sachs.html?searchResultPosition=7
 
-**Italy's Daily Coronavirus Death Toll Rises, but Fewer New Cases**\
-`Deaths from the COVID-19 epidemic in Italy climbed by 236 on Tuesday, against 195 the day before, the Civil Protection Agency said, while the daily tally of new infections came in at 1,075 against 1,221 on Monday.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-italy-tally.html?searchResultPosition=8
+**Reuters Pulitzer Team Captured Hong Kong's Descent Into Chaos**\
+`The young woman is pressed to the ground next to a riot police shield. Detained by Hong Kong authorities, she screams her name out to friends so they can call a lawyer to help.`\
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-usa-pulitzer-widerimage.html?searchResultPosition=8
 
-**Woman Arraigned in Killing of Security Guard Over Virus Mask**\
-`A Michigan woman was formally charged Tuesday in the fatal shooting of a store security guard who refused to allow her daughter inside because she wasn’t wearing a face mask to protect against transmission of the coronavirus.`\
-https://nytimes.com/aponline/2020/05/05/us/ap-us-virus-outbreak-security-guard-slain.html?searchResultPosition=9
+**JetBlue, Spirit Can Suspend Some U.S. Flights Through Sept. 30: USDOT**\
+`The U.S. Transportation Department said Tuesday that JetBlue Airways Corp and Spirit Airlines Co can halt some flights through Sept. 30 amid the massive travel falloff due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-usa-airlines.html?searchResultPosition=9
 
-**Virus Concerns Flare Up Again on Stricken Carrier Roosevelt**\
-`For the second time in about a month, the Navy is weighing crew safety against war readiness aboard the Theodore Roosevelt.`\
-https://nytimes.com/2020/05/05/us/politics/coronavirus-carrier-roosevelt.html?searchResultPosition=10
+**Belgium Brings Back Its Bling With Reopening of World's Largest Diamond Hub**\
+`Antwerp is regaining its glitz as Belgium eases a two-month nationwide coronavirus lockdown that virtually halted business in the world's largest diamond trade centre.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-belgium-diamonds.html?searchResultPosition=10
 
