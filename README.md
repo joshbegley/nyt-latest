@@ -1,20 +1,20 @@
-**Facebook Removes Accounts Linked to Fringe Group QAnon**\
-`Facebook says it has removed several groups, accounts and pages linked to QAnon, taking action for the first time against the far-right U.S. conspiracy theory circulated among supporters of President Donald Trump. `\
-https://nytimes.com/aponline/2020/05/05/business/bc-us-facebook-qanon.html?searchResultPosition=6
+**Zarina Hashmi, Artist of a World in Search of Home, Dies at 82**\
+`Ms. Hashmi was of a generation of artists whose life and work were haunted by the 1947 partition of India.`\
+https://nytimes.com/2020/05/05/arts/zarina-hashmi-dead.html?searchResultPosition=6
 
-**Irish Return a 173-Year-Old Favor to Native American Tribes**\
-`In 1847 the Choctaw people sent $170 to help during the potato famine. Irish donors are citing that gesture as they help two tribes during the Covid-19 pandemic.`\
-https://nytimes.com/2020/05/05/world/coronavirus-ireland-native-american-tribes.html?searchResultPosition=7
+**Nadal Pessimistic About Tennis in 2020**\
+`Tennis great Rafael Nadal said he doubts tennis can be played in 2020 and said the focus should turn to next year.`\
+https://nytimes.com/reuters/2020/05/05/sports/tennis/05reuters-tennis-tennis-nadal.html?searchResultPosition=7
 
-**Workers Want Virus Protections Before Casinos Reopen**\
-`Casino workers across the country want their employers to provide them with protective equipment and adopt tough new cleaning and social distancing policies before the gambling halls reopen during the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/05/05/business/bc-us-reopening-casinos-unions.html?searchResultPosition=8
+**Marbella Club Apologises to Djokovic Over Lockdown Confusion**\
+`The Spanish tennis club where world number one Novak Djokovic was seen training in violation of the rules of Spain's lockdown to fight the novel coronavirus pandemic has confirmed it had given the Serbian permission to play there.`\
+https://nytimes.com/reuters/2020/05/05/sports/tennis/05reuters-health-coronavirus-tennis-djokovic.html?searchResultPosition=8
 
-**Children at Risk as Pandemic Pushes Them Online, Warns U.N. Agency**\
-`Children are accessing the internet at a younger age, spending longer online and are at greater risk of cyber bullying as the COVID-19 pandemic keeps them at home, a U.N. agency said on Tuesday. `\
-https://nytimes.com/reuters/2020/05/05/technology/05reuters-healthcare-coronavirus-technology.html?searchResultPosition=9
+**Banks Lending Firepower in Pandemic May Need Reinforcing: BIS**\
+`Banks might not have enough capital to keep credit flowing if the COVID-19 pandemic leads to an economic downturn on the same scale as the global financial crisis a decade ago, research from the Bank for International Settlements (BIS) said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-bis-banks.html?searchResultPosition=9
 
-**Rare Bob Dylan Lyrics Could Fetch $19,000 in Sale**\
-`A 1966 manuscript, on which a young Bob Dylan typed and wrote lyrics for a track on his "Blonde on Blonde" album and another song he later abandoned, went on sale at Sotheby's auction house from Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/arts/05reuters-auction-sothebys-dylan.html?searchResultPosition=10
+**Prosecutor: Grant Jury to Weigh Charges in Georgia Shooting**\
+`A Georgia prosecutor said Tuesday that he wants a grand jury to consider criminal charges in the death of a man shot after a pursuit by armed men who later told police they suspected him of being a burglar. `\
+https://nytimes.com/aponline/2020/05/05/us/ap-us-georgia-chase-deadly-shooting.html?searchResultPosition=10
 
