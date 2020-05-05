@@ -1,20 +1,20 @@
-**Saudi Non-Oil Private Sector Contracts Again, Output Hits New Low: PMI**\
-`Saudi Arabia's non-oil private sector shrank for the second consecutive month in April and its output hit a record low as lockdowns and business closures to tackle the new coronavirus hammered the economy, a survey showed on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/middleeast/05reuters-saudi-economy-pmi.html?searchResultPosition=6
+**Indonesia's First-Quarter GDP Growth Slows to Weakest Since 2001 on Virus Curbs**\
+`Indonesia's economic growth in the first quarter slowed significantly more than expected to the weakest in nearly two decades, as the coronavirus pandemic brought business activity to a halt, statistics bureau data showed on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-indonesia-economy-gdp.html?searchResultPosition=6
 
-**Duterte Says Sorry to Philippine Tycoons, Their Firms' Shares Surge**\
-`Philippine President Rodrigo Duterte has apologised for his "hurting words" about two tycoons whom he openly dislikes, responding to their help in fighting the coronavirus by offering an olive branch to settle a costly regulatory row.`\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-ayalacorp-metropacific-stocks.html?searchResultPosition=7
+**Money for Worldwide AIDS Fight at Issue in Supreme Court**\
+`The Supreme Court's second day of arguments by phone is devoted to a new version of a case it decided seven years ago involving federal money to fight AIDS around the world.`\
+https://nytimes.com/aponline/2020/05/05/us/politics/ap-us-supreme-court-prostitution-pledge.html?searchResultPosition=7
 
-**'A Resume for Future Office': Virus Tests a GOP Governor**\
-`Kristi Noem had been South Dakota's governor for less than six months when she made clear she wasn’t going to let her job in the sleepy capital of Pierre keep her out of national politics — or off President Donald Trump’s radar.`\
-https://nytimes.com/aponline/2020/05/05/us/politics/ap-us-virus-outbreak-south-dakota-governor.html?searchResultPosition=8
+**Egypt Non-Oil Business Collapses as Coronavirus Hits Activity: PMI**\
+`Egypt's non-oil private sector activity collapsed in April, hit by a shutdown in the tourism industry, weakening demand and the imposition of a curfew as the government battled the new coronavirus pandemic, a survey showed on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/world/middleeast/05reuters-egypt-economy-pmi.html?searchResultPosition=8
 
-**As Trump Resumes Travel, Staff Takes Risks to Prepare Trip**\
-`For much of the last two months, President Donald Trump has rarely left the grounds of the White House as he’s dealt with the fallout of the coronavirus pandemic and sought to minimize his own exposure to the disease. `\
-https://nytimes.com/aponline/2020/05/05/us/politics/ap-us-virus-outbreak-trump-travel.html?searchResultPosition=9
+**UAE Non-Oil Private Sector Hits Second Consecutive Record Low: PMI**\
+`The United Arab Emirates' (UAE) non-oil private sector shrank at a record rate for the second month running in April, as lockdown measures to fight the coronavirus pandemic piled pressure on an already sluggish economy.`\
+https://nytimes.com/reuters/2020/05/05/world/middleeast/05reuters-emirates-economy-pmi.html?searchResultPosition=9
 
-**Biden Pressed to Choose a Black Woman as His Running Mate**\
-`After a devastating start to the Democratic primary, Joe Biden's campaign was revived when black voters in South Carolina and throughout the South overwhelmingly sided with him.`\
-https://nytimes.com/aponline/2020/05/05/us/politics/ap-us-election-2020-biden-vp-.html?searchResultPosition=10
+**Senate to Vet New Intelligence Chief Amid Shakeup, Pandemic**\
+`A Senate panel is considering Texas Rep. John Ratcliffe’s nomination for director of national intelligence, holding the in-person hearing amid President Donald Trump’s shakeup of the intelligence community and under drastic new distancing rules to protect Capitol Hill from the coronavirus. `\
+https://nytimes.com/aponline/2020/05/05/us/politics/ap-us-congress-intelligence.html?searchResultPosition=10
 
