@@ -7,7 +7,7 @@ https://nytimes.com/2020/05/04/pageoneplus/corrections-may-5-2020.html?searchRes
 https://nytimes.com/reuters/2020/05/04/sports/tennis/04reuters-health-coronavirus-tennis-fritz-interview.html?searchResultPosition=7
 
 **Clippers Complete Purchase of Forum**\
-`Steve Ballmer finalized his $400 million purchase of the Forum in Inglewood, Calif., on Monday, allowing Los Angeles Clippers to move closer to building their new arena in the neighborhood.`\
+`Steve Ballmer finalized his $400 million purchase of the Forum in Inglewood, Calif., on Monday, allowing the Los Angeles Clippers to move closer to building their new arena in the neighborhood.`\
 https://nytimes.com/reuters/2020/05/04/sports/basketball/04reuters-basketball-nba-lac-forum-sale-inglewood.html?searchResultPosition=8
 
 **Your Tuesday Briefing**\
