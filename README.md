@@ -1,20 +1,20 @@
-**Exclusive: 'We're Winning'-Mexico's Coronavirus Czar Sees Victory in Sight**\
-`Mexico is winning the battle against the coronavirus and has enough spare capacity to see off the peak of the pandemic this week, but the number of deaths linked to the disease is likely higher than official data reflects, a top health official said.`\
-https://nytimes.com/reuters/2020/05/05/world/americas/05reuters-health-coronavirus-mexico-minister-exclusive.html?searchResultPosition=6
+**Exclusive: Trump Administration Drafting 'Artemis Accords' Pact for Moon Mining-Sources**\
+`The Trump administration is drafting a legal blueprint for mining on the moon under a new U.S.-sponsored international agreement called the Artemis Accords, people familiar with the proposed pact told Reuters.`\
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-space-exploration-moon-mining-exclusive.html?searchResultPosition=6
 
-**NY's Cuomo Starts 'Wear a Mask!' Ad Contest, Credits Daughter**\
-`What does a New York governor do when not everyone heeds his advice to wear a mask during the coronavirus pandemic?`\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-cuomo.html?searchResultPosition=7
+**Exclusive: Lord & Taylor to Liquidate Its Stores as Soon as They Reopen-Sources**\
+`Venerable U.S. retailer Lord & Taylor plans to liquidate inventory in its 38 department stores once restrictions to curb the spread of coronavirus are lifted as it braces for a bankruptcy process from which it does not expect to emerge, people familiar with the matter said on Tuesday. `\
+https://nytimes.com/reuters/2020/05/05/business/05reuters-lord-taylor-liquidation-exclusive.html?searchResultPosition=7
 
-**French Open in Talks With Governing Bodies Amid Rescheduling Reports**\
-`French Open organisers have been in talks with the sport's governing bodies to fine-tune the tennis calendar amid media reports that the Grand Slam tournament is being delayed by a week.`\
-https://nytimes.com/reuters/2020/05/05/sports/tennis/05reuters-health-coronavirus-tennis.html?searchResultPosition=8
+**Court Overturns Quincy Jones' Win in Michael Jackson Lawsuit**\
+`A California appeals court on Tuesday overturned most of a 2017 jury verdict awarding Quincy Jones $9.4 million in royalties and fees from the Michael Jackson estate over the use of Jones-produced Jackson hits in the concert film “This Is It” and two Cirque du Soleil shows.`\
+https://nytimes.com/aponline/2020/05/05/us/ap-us-quincy-jones-michael-jackson-lawsuit-1st-ld-writethru.html?searchResultPosition=8
 
-**Fed's Clarida Says U.S. Unemployment Could Surge to Worst Level in Decades**\
-`The U.S. economy is likely to contract sharply during the second quarter as a result of intentional business shutdowns in response to the coronavirus pandemic, but there is a chance the recovery could start in the second half of the year, Federal Reserve Vice Chair Richard Clarida said on Tuesday. `\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-usa-fed-clarida.html?searchResultPosition=9
+**King County in Washington State Agrees to $2.25 Million Settlement in Teen’s Shooting**\
+`MiChance Dunlap-Gittens was fatally shot by officers during an undercover operation in 2017. The settlement includes a promise to pursue a policy requiring dashboard and body cameras.`\
+https://nytimes.com/2020/05/05/us/king-county-shooting-lawsuit-settlement.html?searchResultPosition=9
 
-**Pentagon Denies Any Role in Any Venezuelan Incursion, Echoing Trump**\
-`The Pentagon added its voice to President Donald Trump's denial on Tuesday of any involvement in what Venezuelan officials have called a failed armed incursion in the South American country.`\
-https://nytimes.com/reuters/2020/05/05/world/americas/05reuters-venezuela-security-trump-pentagon.html?searchResultPosition=10
+**How to Dye Your Clothes Using Food Scraps**\
+`You probably weren’t going to finish those beets anyway.`\
+https://nytimes.com/interactive/2020/05/05/burst/how-to-dye-coronavirus.html?searchResultPosition=10
 
