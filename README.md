@@ -1,20 +1,20 @@
+**As US Piles Up Debt to Aid Economy, Even Usual Critics Cheer**\
+`The U.S. government has opened the spigots and let loose nearly $3 trillion to try to rescue the economy from the coronavirus outbreak — a river of debt that would have been unthinkable even a few months ago.`\
+https://nytimes.com/aponline/2020/05/05/business/bc-us-virus-outbreak-exploding-federal-debt.html?searchResultPosition=6
+
+**Trump Eyes New Tax Cuts for Next Stimulus Package**\
+`The president and his advisers are mulling a variety of deductions and rate cuts meant to help businesses, workers and investors, setting up a clash with Democrats.`\
+https://nytimes.com/2020/05/05/business/economy/trump-tax-cuts-coronavirus-stimulus.html?searchResultPosition=7
+
+**BuzzFeed News Has a New Editor in Chief**\
+`The investigative journalist Mark Schoofs, a Pulitzer Prize winner, returns to the site after having set up its investigative unit in 2014.`\
+https://nytimes.com/2020/05/05/business/media/buzzfeed-news-editor-mark-schoofs.html?searchResultPosition=8
+
+**‘Blue Story’ Review: Gang Wars in Southeast London**\
+`The feature debut of the writer-director Rapman began as a 2014 series on YouTube.`\
+https://nytimes.com/2020/05/05/movies/blue-story-review.html?searchResultPosition=9
+
 **Coronavirus Notebook: Finding Solace, and Connection, in Classic Books**\
 `In this time of crisis, Michiko Kakutani writes, we are reminded that literature provides historical perspective, connecting us with others who lived through similar events.`\
-https://nytimes.com/2020/05/05/books/review/coronavirus-new-york-life-michiko-kakutani.html?searchResultPosition=6
-
-**Michiko Kakutani’s Manhattan Observations**\
-`New York City during the pandemic`\
-https://nytimes.com/slideshow/2020/05/05/books/michiko-kakutanis-manhattan-observations.html?searchResultPosition=7
-
-**Canada Sends Nurses to Northern Community Hit by COVID-19**\
-`Canada has dispatched nurses to a remote northern indigenous community hit hard by the coronavirus to conduct testing and provide healthcare support, the local leader said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/world/americas/05reuters-health-coronavirus-canada-gull-bay.html?searchResultPosition=8
-
-**Goldman Sachs CEO: Return to Work Will Be Gradual: Memo**\
-`Goldman Sachs Group Inc is working on a strategy to gradually return staff to working in offices worldwide, the bank's chief executive told staff on Tuesday in an internal memo viewed by Reuters. `\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-goldman-sachs.html?searchResultPosition=9
-
-**Reuters Pulitzer Team Captured Hong Kong's Descent Into Chaos**\
-`The young woman is pressed to the ground next to a riot police shield. Detained by Hong Kong authorities, she screams her name out to friends so they can call a lawyer to help.`\
-https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-usa-pulitzer-widerimage.html?searchResultPosition=10
+https://nytimes.com/2020/05/05/books/review/coronavirus-new-york-life-michiko-kakutani.html?searchResultPosition=10
 
