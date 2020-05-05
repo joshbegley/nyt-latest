@@ -1,20 +1,20 @@
-**Texas Back in Business? Barely, Y'all, as Malls, Restaurants Empty**\
-`The Domain mall in Austin, Texas, is open for business - unlike most of its 100 upscale shops - as the state entered its first work week of eased pandemic restrictions in the hopes of rekindling the economy.`\
-https://nytimes.com/reuters/2020/05/05/us/05reuters-health-coronavirus-usa-texas.html?searchResultPosition=6
+**Top EU Court Declines Comment After German Ruling on ECB Stimulus Scheme**\
+`The highest EU court, the Luxembourg-based Court of Justice of the European Union (ECJ), on Tuesday declined comment after the top German court ruled that the Bundesbank might have to stop buying government bonds under the European Central Bank's long-running stimulus scheme in three months.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-ecb-policy-germany-ecj.html?searchResultPosition=6
 
-**Uber, Lyft Investors Want to Hear Plans to Get Riders Back in Cars**\
-`As U.S. lockdowns and fears of the coronavirus pandemic stretch into a third month, who wants to take an Uber ride? `\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-uber-results-lyft.html?searchResultPosition=7
+**Kenya Urges Somalia to Speedily Investigate Fatal Plane Crash**\
+`Kenya on Tuesday called for an urgent investigation into the fatal crash of a private cargo plane in Somalia amid unconfirmed reports it may have been shot down.`\
+https://nytimes.com/reuters/2020/05/05/world/africa/05reuters-somalia-crash-kenya.html?searchResultPosition=7
 
-**Lufthansa Not Planning to Buy Rivals Weakened by COVID-19 Crisis - CEO**\
-`Lufthansa is not planning to buy rivals weakened by the coronavirus crisis, Chief Executive Carsten Spohr told shareholders at the company's virtual annual general meeting on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-lufthansa-restructuring.html?searchResultPosition=8
+**EU Law and EU Top Court Have Primacy Over German National Law: EU Commission**\
+`European Union law has primacy over the German constitution and the rulings of the European Union's top court are binding for the German constitutional court as well, the European Commission said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-ecb-policy-germany-commission.html?searchResultPosition=8
 
-**DealBook: Things Fall Apart**\
-`The sudden collapse of deals that seemed destined to close, like the private equity buyout of Victoria’s Secret, sends an ominous signal.`\
-https://nytimes.com/2020/05/05/business/dealbook/coronavirus-victorias-secret-acquisition.html?searchResultPosition=9
+**Coronavirus in N.Y.: Latest Updates**\
+`Starting tonight, the city’s subway will shut for four hours each night for disinfection in an attempt to rid the system of the coronavirus.`\
+https://nytimes.com/2020/05/05/nyregion/coronavirus-new-york-update.html?searchResultPosition=9
 
-**Judge Questions VW's Defense in Landmark Case Over Diesel Damages**\
-`A German federal court judge cast doubt on Volkswagen's reasoning after the carmaker urged the court to dismiss a claim for damages from a diesel customer. `\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-volkswagen-emissions-lawsuit.html?searchResultPosition=10
+**Afghanistan Distributes Free Bread as Prices Soar Amid Coronavirus**\
+`Afghanistan's government began distributing free bread to hundreds of thousands of people across the country this week as supplies have been disrupted during the coronavirus shutdown and prices have soared, officials and experts said. `\
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-afghanistan-food.html?searchResultPosition=10
 
