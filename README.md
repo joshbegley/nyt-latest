@@ -1,40 +1,40 @@
+**Merkel: We Can Be a Bit Bold but Must Be Careful on Easing Lockdown**\
+`Chancellor Angela Merkel has agreed with premiers of Germany's 16 states to make sure local action is taken quickly to prevent individual, local, coronavirus outbreaks from spreading around the country, she said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-merkel-courageous.html?searchResultPosition=1
+
+**Germany's Bundesliga Can Restart in Second Half of May: Merkel**\
+`Germany's Bundesliga can restart games from the second half of May following the coronavirus stoppage, Chancellor Angela Merkel said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/06/sports/soccer/06reuters-health-coronavirus-germany-soccer.html?searchResultPosition=2
+
+**Trump: COVID-19 Task Force Not Dismantling, Just Refocusing**\
+`One day after saying that the COVID-19 task force would be winding down, President Donald Trump said Wednesday that it would continue indefinitely, but focus more on rebooting the economy.`\
+https://nytimes.com/aponline/2020/05/06/us/ap-us-virus-outbreak-washington.html?searchResultPosition=3
+
+**U.S. Supreme Court's Ginsburg Takes Part in Arguments After Treatment**\
+`Justice Ruth Bader Ginsburg, at 87 the oldest member of the U.S. Supreme Court, participated in oral arguments on Wednesday a day after being hospitalized to undergo treatment for a benign gall bladder condition. `\
+https://nytimes.com/reuters/2020/05/06/us/06reuters-usa-court-ginsburg.html?searchResultPosition=4
+
+**Trump Tours Mask Factory Without Wearing a Mask**\
+`The song “Live and Let Die” blared as President Trump visited a mask factory in Arizona. The president wore protective glasses, but not a mask, despite signs telling visitors to wear one.`\
+https://nytimes.com/video/us/politics/100000007124695/trump-coronavirus-mask-factory.html?searchResultPosition=5
+
+**A Special Dessert No Matter What’s in Your Pantry**\
+`This delicious and simple icebox cake uses French biscuits dipped in espresso. But you can use whatever cookies you have on hand.`\
+https://nytimes.com/2020/05/06/magazine/french-icebox-cake-recipe.html?searchResultPosition=6
+
+**AP PHOTOS: Italian Resort Wonders When It Will See Visitors**\
+`Normally at this time of year, the Italian seaside beach town of Sperlonga would have been bustling with its first clients of the season. `\
+https://nytimes.com/aponline/2020/05/06/us/politics/ap-eu-virus-outbreak-italy-seaside-tourism-photo-gallery.html?searchResultPosition=7
+
 **Earthquake of Magnitude 6.9 Strikes Kepulauan Babar, Indonesia: EMSC**\
 `An earthquake of magnitude 6.9 struck near Kepulauan Babar region in Indonesia, the European Mediterranean Seismological Centre (EMSC) said.`\
-https://nytimes.com/reuters/2020/05/06/world/asia/06reuters-indonesia-quake.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/05/06/world/asia/06reuters-indonesia-quake.html?searchResultPosition=8
 
 **Golf: 2020 World Amateur Team Championships Cancelled Due to COVID-19 Pandemic**\
 `This year's World Amateur Team Championships (WATC), scheduled for October, have been cancelled due to the COVID-19 pandemic, the International Golf Federation (IGF) said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/06/sports/golf/06reuters-health-coronavirus-golf-amateur.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/06/sports/golf/06reuters-health-coronavirus-golf-amateur.html?searchResultPosition=9
 
 **Greece: Locals Stop Migrants From Camps Reaching New Housing**\
 `Protesting locals stopped asylum-seekers relocated from congested Aegean island camps from reaching new accommodation in northern Greece and set fire to a hotel where they were supposed to be housed, Greek authorities said Wednesday.`\
-https://nytimes.com/aponline/2020/05/06/world/europe/ap-eu-greece-migrants.html?searchResultPosition=3
-
-**Germany to Ease Lockdown as Merkel Hails End of First Phase of Pandemic**\
-`Chancellor Angela Merkel on Wednesday announced a range of steps agreed with Germany's 16 federal state leaders to ease the coronavirus lockdown, saying the first phase of the pandemic had passed, although there was still a long way to go.`\
-https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-merkel.html?searchResultPosition=4
-
-**Motor Racing: Ganassi to Take on Andretti in Extreme E Electric Series**\
-`Chip Ganassi Racing will take on U.S. track rivals Andretti Autosport in electric racing next year after being announced on Wednesday as the latest team to sign up for the Extreme E off-road SUV series.`\
-https://nytimes.com/reuters/2020/05/06/sports/autoracing/06reuters-motor-electric-extreme.html?searchResultPosition=5
-
-**Chinese Envoy Airs Backing for WHO Amid Criticism From Trump**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/05/06/world/europe/ap-eu-virus-outbreak-china-who.html?searchResultPosition=6
-
-**New Anthology Collects Dozens of Poems About Pandemic**\
-`As the coronavirus spread in March, poet Ada Limon struggled at first to write, feeling “flattened and silenced” by a pandemic that had shut down much of the world she knew. `\
-https://nytimes.com/aponline/2020/05/06/us/ap-us-books-pandemic-poetry-.html?searchResultPosition=7
-
-**Small Businesses Slash More Than 11 Million Jobs in April**\
-`The nation’s small businesses slashed more than 11 million jobs in April as they were forced to close or suffered steep revenue losses amid the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/05/06/business/ap-virus-outbreak-small-business-job-losses.html?searchResultPosition=8
-
-**Coronavirus Crisis Exacts Toll on People With Disabilities**\
-`Even before the coronavirus hit, cystic fibrosis meant a cold could put Jacob Hansen in the hospital for weeks.`\
-https://nytimes.com/aponline/2020/05/06/us/ap-us-virus-outbreak-disabilities.html?searchResultPosition=9
-
-**‘Sea Wife,’ by Amity Gaige: An Excerpt**\
-`An excerpt from “Sea Wife,” by Amity Gaige`\
-https://nytimes.com/2020/05/06/books/review/sea-wife-by-amity-gaige-an-excerpt.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/06/world/europe/ap-eu-greece-migrants.html?searchResultPosition=10
 
