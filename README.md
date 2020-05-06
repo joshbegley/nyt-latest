@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-wal
 `Família Geisse from Brazil sells a sparkling wine that you disgorge yourself.`\
 https://nytimes.com/2020/05/05/dining/drinks/sparkling-wine-disgorging-coronavirus.html?searchResultPosition=9
 
-**Australia's CSL to Start Work on Immunoglobulin Product to Treat COVID-19**\
-`Australian biotech firm CSL Ltd said on Wednesday it will start local development of an immunoglobulin product to treat serious cases of COVID-19, the disease caused by the novel coronavirus. `\
+**Top Australian Biotech Firm CSL Joins Virus Treatment Race**\
+`Australia's biggest biotech company CSL Ltd said on Wednesday it will start trials for an antibody product to treat people with the new coronavirus, joining a global rush to find a cure for a fast-spreading and potentially fatal illness.`\
 https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-health-coronavirus-csl.html?searchResultPosition=10
 
