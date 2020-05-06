@@ -1,40 +1,40 @@
+**Aramco Close to Inking $10 Billion Deal With Group of About 10 Banks: Sources**\
+`Saudi Aramco is about to finalise a $10 billion loan with a group of roughly 10 banks, three sources familiar with the matter said, as the oil giant seeks cash amid record low oil prices.`\
+https://nytimes.com/reuters/2020/05/06/world/asia/06reuters-saudi-aramco-loans.html?searchResultPosition=1
+
+**Ukraine Faces Deepening Recession Due to Coronavirus Lockdown: Reuters Poll**\
+`Lockdown measures to battle the coronavirus pandemic will cause Ukraine's economy to shrink by 1% in the first quarter of this year and contract 10.9% in the second quarter, a Reuters monthly poll of analysts said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-ukraine-economy-poll.html?searchResultPosition=2
+
+**Zoom Adds Ex-Trump Adviser, Tech Lobbyist to PR Push**\
+`Zoom Video Communications Inc on Wednesday named former White House National Security Adviser HR McMaster to its board and hired the policy chief of one of the tech world's big lobby groups to drive governmental relations as it poured more money into improving its image on security.`\
+https://nytimes.com/reuters/2020/05/06/technology/06reuters-zoom-video-commn-moves.html?searchResultPosition=3
+
+**Powerful Earthquake Shakes Indonesia; No Injuries Expected**\
+`A powerful earthquake shook islands in eastern Indonesia on Wednesday evening, but no damage or injuries were expected.`\
+https://nytimes.com/aponline/2020/05/06/world/asia/ap-as-indonesia-earthquake.html?searchResultPosition=4
+
 **Virus Delays Orangutans’ Long Awaited Return Home**\
 `If one ape in the forest is infected, a whole population could be wiped out, experts say. So orangutans in Indonesia’s rehabilitation centers are staying where they are.`\
-https://nytimes.com/2020/05/06/world/asia/orangutans-indonesia-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2020/05/06/world/asia/orangutans-indonesia-coronavirus.html?searchResultPosition=5
 
 **Belgium to Open Shops and Allow Mother's Day Meetings**\
 `Belgian shops will be allowed to open from Monday and people will be able to host others at their homes from Sunday, opening the door for Mother's Day celebrations, Prime Minister Sophie Wilmes said on Wednesday.`\
-https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-belgium.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-belgium.html?searchResultPosition=6
 
 **Switzerland Seeks Medical Furlough Extension of American Detained by Iran: Pompeo**\
 `Switzerland, which represents the United States in Iran, has asked Tehran to extend the medical furlough from detention of U.S. Navy veteran Michael White, U.S. Secretary of State Mike Pompeo said on Thursday, as the coronavirus continues spreading.`\
-https://nytimes.com/reuters/2020/05/06/world/middleeast/06reuters-usa-iran-pompeo-detainees.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/06/world/middleeast/06reuters-usa-iran-pompeo-detainees.html?searchResultPosition=7
 
 **On Amtrak Trains, There Are Still Passengers**\
 `These are some of the people traveling across the country by train.`\
-https://nytimes.com/2020/05/06/opinion/amtrak-trains-coronavirus.html?searchResultPosition=4
+https://nytimes.com/2020/05/06/opinion/amtrak-trains-coronavirus.html?searchResultPosition=8
 
 **Obama Says G.O.P.’s Biden Inquiry Promotes ‘Russian Disinformation’**\
 `The letter came in response to a November request from two Republican senators seeking Obama administration meeting records related to Ukrainian officials.`\
-https://nytimes.com/2020/05/06/us/politics/obama-letter-biden-GOP-investigation.html?searchResultPosition=5
+https://nytimes.com/2020/05/06/us/politics/obama-letter-biden-GOP-investigation.html?searchResultPosition=9
 
 **Exclusive: India's Zomato Targets Push Into Alcohol Deliveries-Document**\
 `Indian food delivery company Zomato aims to branch out into delivering alcohol, according to a document seen by Reuters, as it seeks to cash in on high demand for booze during the country's coronavirus lockdown.`\
-https://nytimes.com/reuters/2020/05/06/technology/06reuters-health-coronavirus-zomato-india-exclusive.html?searchResultPosition=6
-
-**U.S. Judge Dismisses Lawsuit Over Worker Safety at Smithfield Pork Plant**\
-`A U.S. federal judge has dismissed a worker advocacy group's lawsuit accusing Smithfield Foods Inc, the world's largest pork processor, of failing to adequately protect employees from the novel coronavirus at a plant in Missouri.`\
-https://nytimes.com/reuters/2020/05/06/us/06reuters-health-coronavirus-usa-smithfield.html?searchResultPosition=7
-
-**Yemen Reports First Three Coronavirus Cases, One Death in Lahaj Province**\
-`Yemen on Wednesday reported the first three cases of the novel coronavirus in the southern province of Lahaj, one of whom has died, and another infection in the southern port of Aden.`\
-https://nytimes.com/reuters/2020/05/06/world/middleeast/06reuters-health-coronavirus-yemen.html?searchResultPosition=8
-
-**Denmark to Ease Curbs on Restaurants, Retail Business in Second Reopening Phase: PM**\
-`Denmark's government hopes to be able allow retail businesses, restaurants and cafes to open in the second phase of the Nordic country's reopening strategy, the Danish prime minister said on Wednesday according to the Ritzau news agency. `\
-https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-denmark.html?searchResultPosition=9
-
-**Pompeo Renews Criticism of China Over Coronavirus**\
-`China could have prevented the deaths of hundreds of thousands of people around the world by being more transparent about the new coronavirus, U.S. Secretary of state Mike Pompeo said on Wednesday.`\
-https://nytimes.com/reuters/2020/05/06/us/06reuters-health-coronavirus-china-pompeo.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/06/technology/06reuters-health-coronavirus-zomato-india-exclusive.html?searchResultPosition=10
 
