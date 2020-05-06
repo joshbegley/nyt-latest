@@ -1,40 +1,40 @@
+**Facility Near Pyongyang Airport Linked to North Korea's Missile Programme, U.S. Think-Tank Says**\
+`A new facility near Pyongyang International Airport is almost certainly linked to North Korea's expanding ballistic missile programme, according to a report from a Washington-based think-tank.`\
+https://nytimes.com/reuters/2020/05/06/world/asia/06reuters-northkorea-missiles.html?searchResultPosition=1
+
+**Pelosi Pushes Ahead on Massive Virus Bill, but GOP Wary**\
+`Even in absentia, House Democrats are seeking to drive the debate on the fifth coronavirus response bill, promising to produce a mega-package stuffed with Democratic priorities even as a chorus of GOP leaders voices hesitation about more spending.`\
+https://nytimes.com/aponline/2020/05/06/us/politics/ap-us-virus-outbreak-congress.html?searchResultPosition=2
+
+**Senior Scientist Says Administration Ignored Virus Warnings**\
+`The Trump administration failed to prepare for the onslaught of the coronavirus,  then sought a quick fix by trying to rush an unproven drug to patients, a senior government scientist alleged in a whistleblower complaint.`\
+https://nytimes.com/aponline/2020/05/06/us/politics/ap-us-virus-outbreak-whistleblower.html?searchResultPosition=3
+
+**France, Tunisia Urge UN Council to Adopt COVID-19 Resolution**\
+`France and Tunisia urged the U.N. Security Council on Tuesday to adopt a resolution demanding an immediate cease-fire in major conflicts to tackle the coronavirus pandemic after weeks of contentious negotiations that have paralyzed the United Nations’ most powerful body.`\
+https://nytimes.com/aponline/2020/05/06/world/africa/ap-un-virus-outbreak-security-council.html?searchResultPosition=4
+
+**Supreme Court Set to Hear Obamacare Case Argued by Phone**\
+`The Supreme Court's third day of hearing arguments by telephone is its first chance at a high-profile case, this one involving the Affordable Care Act. `\
+https://nytimes.com/aponline/2020/05/06/us/politics/ap-us-supreme-court-contraception.html?searchResultPosition=5
+
+**Pandemic Pushes Some Iraqis, Broken by Conflict, Into Poverty**\
+`When shops and homes shutter at curfew, some Iraqis in this Baghdad district say it reminds them of past traumas that destroyed lives and livelihoods: sectarian death squads, foreign invasion, and the ruin wrought by international sanctions.`\
+https://nytimes.com/reuters/2020/05/06/world/middleeast/06reuters-health-coronavirus-iraq.html?searchResultPosition=6
+
 **Coronavirus Live Updates: Leading U.K. Adviser Quits After Distancing Breach**\
 `The scientist had pushed for the country’s lockdown. In the Philippines, a major broadcaster critical of Duterte has been forced off the air even as the need for pandemic news is peaking.`\
-https://nytimes.com/2020/05/06/world/coronavirus-news.html?searchResultPosition=1
+https://nytimes.com/2020/05/06/world/coronavirus-news.html?searchResultPosition=7
 
 **UK's 'Captain Tom' Inspires Campaign by 97-Year-Old Russian**\
 `By The Associated Press`\
-https://nytimes.com/aponline/2020/05/06/world/europe/ap-eu-virus-outbreak-russia-veterans-campaign-.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/05/06/world/europe/ap-eu-virus-outbreak-russia-veterans-campaign-.html?searchResultPosition=8
 
 **South Korea's Spy Agency Says No Signs North Korea's Kim Received Heart Surgery: Yonhap**\
 `South Korea's spy agency said on Wednesday there are no signs North Korean leader Kim Jong Un has received heart surgery, the Yonhap news agency reported. `\
-https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-northkorea-kim-health.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-northkorea-kim-health.html?searchResultPosition=9
 
 **Tyson Foods to Resume Limited Production at Largest U.S. Pork Plant**\
 `Tyson Foods Inc will resume limited production at its largest U.S. pork plant this week, the company said late on Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-tyson-foods.html?searchResultPosition=4
-
-**Dolphins Rookie QB Tua Tagovailoa Will Wear Uniform No. 1**\
-`Rookie quarterback Tua Tagovailoa, the Miami Dolphins' top draft pick, will wear uniform No. 1.`\
-https://nytimes.com/aponline/2020/05/05/sports/football/ap-fbn-dolphins-tagovailoas-number.html?searchResultPosition=5
-
-**Indonesia Delays September Regional Elections Due to Virus**\
-`The Indonesian government has postponed Sept. 23 regional elections until at least December because of the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/05/05/world/asia/ap-as-virus-outbreak-indonesia-elections.html?searchResultPosition=6
-
-**China Says HK Will Never Be Calm Unless Violent Protesters Removed**\
-`China's Hong Kong affairs office on Wednesday condemned Hong Kong protesters as a "political virus" who seek independence, warning that the city will never be calm unless what it said were violent black-clad protesters were all removed. `\
-https://nytimes.com/reuters/2020/05/05/world/asia/05reuters-hongkong-protests-china-hk-affairs.html?searchResultPosition=7
-
-**Germany's Confirmed Coronavirus Cases Rise by 947 to 164,807: RKI**\
-`The number of confirmed coronavirus cases in Germany increased by 947 to 164,807, data from the Robert Koch Institute (RKI) for infectious diseases showed on Wednesday.`\
-https://nytimes.com/reuters/2020/05/05/world/europe/05reuters-health-coronavirus-germany-cases.html?searchResultPosition=8
-
-**Jazz Boss: Gobert, Mitchell Set to Move on From Feud**\
-`The Jazz's two All-Stars, center Rudy Gobert and guard Donovan Mitchell, are moving past their feud, Utah executive vice president of basketball operations Dennis Lindsey said Tuesday.`\
-https://nytimes.com/reuters/2020/05/05/sports/basketball/05reuters-basketball-nba-uta-gobert-mitchell.html?searchResultPosition=9
-
-**After Racism Claims, Boston Museum Creates Diversity Fund**\
-`The $500,000 fund comes a year after black students said they had been subjected to racist remarks by employees and patrons at the Museum of Fine Arts.`\
-https://nytimes.com/2020/05/05/arts/museum-of-fine-arts-boston-racism-settlement.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-tyson-foods.html?searchResultPosition=10
 
