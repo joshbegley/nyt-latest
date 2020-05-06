@@ -1,40 +1,40 @@
+**Smith+Nephew April Sales Halve as Patients Push Back Elective Surgeries**\
+`British medical products maker Smith+Nephew said on Wednesday sales in April nearly halved as more patients postponed elective surgeries, such as hip replacements, due to coronavirus-driven lockdowns.`\
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-smith-nephew-outlook.html?searchResultPosition=1
+
+**Metro Bank Posts Rising Deposits, Lower First Quarter Lending**\
+`Britain's Metro Bank reported a modest dip in lending in the first quarter and a 77 million pounds rise in total deposits to 14.6 billion pounds ($18.15 billion) as customers shrugged off lower fixed term deposit rates.`\
+https://nytimes.com/reuters/2020/05/06/business/06reuters-metro-bank-trading.html?searchResultPosition=2
+
+**What You Need to Know About Coronavirus Right Now**\
+`Here's what you need to know about the coronavirus right now:`\
+https://nytimes.com/reuters/2020/05/06/world/asia/06reuters-health-coronavirus-snapshot.html?searchResultPosition=3
+
+**Pro Football Hall of Fame Teams With Project Isaiah**\
+`When David Baker heard about Project Isaiah and its goal of feeding families in need during the coronavirus pandemic, there was no question what the Pro Football Hall of Fame would do.`\
+https://nytimes.com/aponline/2020/05/06/sports/ap-fbo-hall-of-fame-project-isaiah.html?searchResultPosition=4
+
+**AstraZeneca's Diabetes Drug Gets FDA Nod to Treat Heart Failure**\
+`The U.S. Food and Drug Administration approved AstraZeneca Plc's drug to reduce the risk of cardiovascular death and hospitalisation for heart failure in certain patients, the drugmaker said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-astrazeneca-fda.html?searchResultPosition=5
+
+**German Industrial Orders Slide 15.6% to Record Low in March as Virus Hits**\
+`Orders for German industrial goods dived 15.6% in March to their lowest level since records began in 1991, data showed on Wednesday, as the coronavirus slashed domestic and foreign demand for goods from Europe's biggest economy.`\
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-germany-economy-industrialorders.html?searchResultPosition=6
+
 **UK Broadcaster ITV's Advertising Revenue Falls 42% in April**\
 `ITV, Britain's biggest free-to-air commercial broadcaster, said the coronavirus pandemic had hit advertising, with ad revenue last month down by 42%, and an uncertain outlook meant it could not give guidance for the rest of the year.`\
-https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-itv-trading.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-itv-trading.html?searchResultPosition=7
 
 **China Allows Asset Investment Companies to Conduct Asset Management Business**\
 `China has allowed asset investment companies (AIC) to conduct asset management business to invest in debt-to-equity assets as regulators seek to expand equity financing and reduce leverage in the economy.`\
-https://nytimes.com/reuters/2020/05/06/business/06reuters-china-banks.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/06/business/06reuters-china-banks.html?searchResultPosition=8
 
 **Late Night Laughs Off Trump’s Saying Hosts Have Zero Talent**\
 `“It’s nice to know that Trump is staying laser-focused on the ball during a crisis,” Colbert joked after the president referred to him as talentless and unfunny in a new interview.`\
-https://nytimes.com/2020/05/06/arts/television/late-night-trump-coronavir.html?searchResultPosition=3
+https://nytimes.com/2020/05/06/arts/television/late-night-trump-coronavirus.html?searchResultPosition=9
 
 **Virgin Money Profits Erased by Coronavirus Provision**\
 `British lender Virgin Money swung to a first-half loss after setting aside 237 million pounds ($294.7 million) to handle loans likely to go bad because of the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/05/06/business/06reuters-virgin-money-results.html?searchResultPosition=4
-
-**Trump Tours New Face-Mask Factory in Arizona but Does Not Wear One**\
-`Without wearing a face-covering himself, President Donald Trump toured a new medical mask factory in Arizona on Tuesday, taking a rare trip out of Washington to visit a state he hopes to win in the November election even as Americans avoid travel to slow the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/05/06/us/politics/06reuters-health-coronavirus-trump.html?searchResultPosition=5
-
-**Give Us First-Hand Information to Fight Virus, Taiwan Asks WHO**\
-`Taiwan's health minister asked the World Health Organization (WHO) on Wednesday to ensure the island had access to first-hand information about the coronavirus, saying that not having the full picture slows down epidemic-prevention work.`\
-https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-taiwan.html?searchResultPosition=6
-
-**German Federal Government and States Agree on Way to Ease Lockdown: Draft Document**\
-`The German federal government and the states have agreed that all shops and amateur open-air sports can restart under certain conditions and states will each decide on a gradual opening of various aspects of public life, a draft document showed.`\
-https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-germany-document.html?searchResultPosition=7
-
-**Palestinians Fear Outbreak in Jerusalem's 'No Man's Land'**\
-`As the coronavirus pandemic gathered strength last month, community leaders in a Palestinian neighborhood on the outskirts of Jerusalem tried to impose lockdown and quarantine measures to protect residents.`\
-https://nytimes.com/aponline/2020/05/06/world/middleeast/ap-ml-virus-outbreak-palestinian-no-mans-land.html?searchResultPosition=8
-
-**Asia Stocks Higher After Wall Street Gains on Recovery Hopes**\
-`Asian stock markets gained Wednesday as hopes for a global economic recovery rose after more governments eased anti-virus controls.`\
-https://nytimes.com/aponline/2020/05/06/business/ap-financial-markets.html?searchResultPosition=9
-
-**People Are Panic-Buying Meat, Toilet Paper … and Pelotons?**\
-`With gyms closed and nowhere to go, more people are shelling out $2,245 for the workout bike.`\
-https://nytimes.com/2020/05/06/technology/peloton-boom-workout-virus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/06/business/06reuters-virgin-money-results.html?searchResultPosition=10
 
