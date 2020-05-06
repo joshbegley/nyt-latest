@@ -1,9 +1,9 @@
-**Risky Business? NASA and Tom Cruise Talk Movie Plans for Space Station**\
-`The head of NASA said the agency is working with the “Mission: Impossible” star to shoot a new action-adventure film.`\
+**Risky Business? NASA and Tom Cruise Talk Movie Plans**\
+`The head of NASA said the agency is working with the “Mission: Impossible” star on a new film shot at the International Space Station.`\
 https://nytimes.com/2020/05/05/science/nasa-tom-cruise-space-station.html?searchResultPosition=1
 
 **New York Must Hold Democratic Presidential Primary, Judge Rules**\
-`The state’s primary in June, which had been canceled over concerns about the coronavirus, should still be hold, with all qualifying candidates restored to the ballot, a federal judge ruled.`\
+`The primary in June, which had been canceled over concerns about the coronavirus, should still be hold, with all qualifying candidates restored to the ballot, a federal judge ruled.`\
 https://nytimes.com/2020/05/05/us/politics/ny-presidential-primary.html?searchResultPosition=2
 
 **Administration to Phase Out Coronavirus Task Force**\
