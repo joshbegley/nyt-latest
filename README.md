@@ -1,40 +1,40 @@
+**Italy Nursing Home Ravaged by Virus Discloses 300 Dead**\
+`Italy’s biggest nursing home defended the measures it took to protect residents and staff from the coronavirus Wednesday amid a criminal investigation and family outrage over 300 deaths from January to April.`\
+https://nytimes.com/aponline/2020/05/06/world/europe/ap-eu-virus-outbreak-italy-nursing-home.html?searchResultPosition=1
+
+**No Time Like the Present: End-Of-Life Plans and the Pandemic**\
+`Coronavirus has more people addressing their end-of-life planning. And for those who haven't, it’s a great time to take it on. `\
+https://nytimes.com/aponline/2020/05/06/business/ap-on-the-money-end-of-life-planning-1st-ld-writethru.html?searchResultPosition=2
+
+**Gap Plans to Reopen Up to 800 Stores by the End of May**\
+`The parent company of Gap, Old Navy, Banana Republic and Athleta said it aims to be “responsibly aggressive” as it returns to business.`\
+https://nytimes.com/2020/05/06/business/gap-stores-reopen.html?searchResultPosition=3
+
+**Loss of Neighborhood Fixtures Shreds N.Y.C.’s Human Fabric**\
+`“His high in life was talking to people from everywhere,” a son said of his father, a Harlem bar owner.`\
+https://nytimes.com/2020/05/06/nyregion/nyc-neighborhood-coronavirus-deaths.html?searchResultPosition=4
+
+**We Are in This Together**\
+`Living a rich life while stuck inside can be difficult, but At Home is here to help.`\
+https://nytimes.com/2020/05/06/at-home/welcome-newsletter.html?searchResultPosition=5
+
+**Jana Prince, a Selfless Social Worker, Dies at 43**\
+`She had cerebral palsy, but her interest was in helping others with their problems. She died of the novel coronavirus.`\
+https://nytimes.com/2020/05/06/obituaries/jana-prince-dead-coronavirus.html?searchResultPosition=6
+
+**Questions Linger in Joe Biden Assault Allegation in New Monmouth Poll**\
+`In the first national survey asking voters about the allegations, Mr. Biden widened his lead over President Trump in a head-to-head matchup that has continued to grow in the last couple of months.`\
+https://nytimes.com/2020/05/06/us/politics/joe-biden-tara-reade-monmouth-poll.html?searchResultPosition=7
+
+**Germany Relaxes More Virus Rules, but With Fallback Clause**\
+`German officials on Wednesday cleared the way for restaurants, hotels and remaining stores to reopen in the coming weeks, and for the country's soccer league to resume play. They also put in place a requirement for regions to reimpose restrictions if coronavirus infections rebound.`\
+https://nytimes.com/aponline/2020/05/06/business/bc-eu-virus-outbreak-germany.html?searchResultPosition=8
+
 **An Adoption, a Pandemic and an Evacuation**\
 `The Mosiers flew to India in March to pick up their daughter. The country locked down before they could leave.`\
-https://nytimes.com/2020/05/06/parenting/fertility/pandemic-adoption-india.html?searchResultPosition=1
+https://nytimes.com/2020/05/06/parenting/fertility/pandemic-adoption-india.html?searchResultPosition=9
 
 **WHO Warns of New Lockdowns if Transition Not Managed Carefully**\
 `The head of the World Health Organization (WHO) on Wednesday warned of the risks of returning to lockdown if countries emerging from pandemic restrictions do not manage transitions "extremely carefully and in a phased approach".`\
-https://nytimes.com/reuters/2020/05/06/business/06reuters-health-coronavirus-who.html?searchResultPosition=2
-
-**U.S. Will Use 'Every Tool' to Secure Release if Any Americans Held in Venezuela: Pompeo**\
-`The U.S. government will use “every tool” available to secure the return of Americans if they are being held in Venezuela, U.S. Secretary of State Mike Pompeo vowed on Wednesday, after Venezuelan officials said they had captured two U.S. “mercenaries” in a failed armed incursion.`\
-https://nytimes.com/reuters/2020/05/06/world/americas/06reuters-venezuela-security-usa.html?searchResultPosition=3
-
-**NYT Says It Can 'Ride Out' Virus as Subscriber Numbers Boom**\
-`The New York Times Co. added new digital subscribers at a record rate as the coronavirus spread in the first quarter, helping offset shrinking ad revenues. `\
-https://nytimes.com/aponline/2020/05/06/business/ap-us-earns-new-york-times.html?searchResultPosition=4
-
-**Life in a Pandemic; Massive Job Cuts, Lots of Homemade Bread**\
-`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Wednesday related to central governments, the work place and the spread of the virus.`\
-https://nytimes.com/aponline/2020/05/06/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=5
-
-**Five Artists to Follow on Instagram Now**\
-`Take a look at David Adjaye’s sketchbook, Ola Ronke Akinmowo’s black female writers, Andrea Zittel in seclusion and weird works from Brad Phillips and David Shrigley.`\
-https://nytimes.com/2020/05/06/arts/design/artists-instagram-coronavirus.html?searchResultPosition=6
-
-**Fed Has Swap Lines With Countries of 'Mutual Trust', Policymaker Says**\
-`The Federal Reserve has swap lines with countries that have a relationship of "mutual trust" with the United States and the highest credit standards, a Fed policymaker said on Wednesday when asked about extending lines to Turkey or others in need. `\
-https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-turkey-economy-reserves-fed.html?searchResultPosition=7
-
-**Democrats Want $25 Billion for U.S. Postal Service: Hoyer**\
-`Democrats would like to see $25 billion for the U.S. Postal Service in the next major coronavirus legislation before the House of Representatives, Majority Leader Steny Hoyer said on Wednesday.`\
-https://nytimes.com/reuters/2020/05/06/us/06reuters-health-coronavirus-usa-postal.html?searchResultPosition=8
-
-**‘Whatever We Have, We Have to Work With It’**\
-`Cheryl Strayed talks with the writer Alice Walker about ancestors, solitude and the time it takes to heal.`\
-https://nytimes.com/2020/05/06/podcasts/sugar-calling-alice-walker-quarantine-virus.html?searchResultPosition=9
-
-**DeVos’s Rules Bolster Rights of Students Accused of Sexual Misconduct**\
-`Education Secretary Betsy DeVos released final regulations for schools dealing with sexual misconduct, giving them the force of law for the first time and bolstering due-process rights.`\
-https://nytimes.com/2020/05/06/us/politics/campus-sexual-misconduct-betsy-devos.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/06/business/06reuters-health-coronavirus-who.html?searchResultPosition=10
 
