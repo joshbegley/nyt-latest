@@ -1,40 +1,40 @@
-**Barrick Reports 55% Higher Adjusted Profit Helped by Gold Prices**\
-`Canadian miner Barrick Gold Corp reported a nearly 55% rise in quarterly adjusted profit on Wednesday, benefiting from a surge in gold prices and higher copper production. `\
-https://nytimes.com/reuters/2020/05/06/business/06reuters-barrick-gold-results.html?searchResultPosition=1
+**Bundesbank's Weidmann: Extraordinary ECB Support Was Necessary**\
+`Extraordinary measures enacted by the European Central Bank were necessary to support the euro zone economy, even if opinions differed on the details of the measures, Bundesbank President Jens Weidmann told Germany newspaper Die Zeit.`\
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-ecb-policy-weidmann.html?searchResultPosition=1
 
-**New York Times Beats First-Quarter Revenue Estimates**\
-`The New York Times Co beat Wall Street's revenue  estimates on Wednesday as it added more subscribers in a quarter dominated by heavy news coverage around the COVID-19 pandemic. `\
-https://nytimes.com/reuters/2020/05/06/business/06reuters-newyorktimes-results.html?searchResultPosition=2
+**Slovakia Reopens More Shops, Other Businesses as Coronavirus Cases Ease**\
+`Slovakia reopened restaurant terraces, hotels, all shops outside large malls and other businesses on Wednesday, expediting plans to revive the economy thanks to better-than-expected progress in containing the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-slovakia.html?searchResultPosition=2
 
-**Community Fishing's a Popular Outlet During Pandemic**\
-`Tim Wirtz Jr. slowly spun the reel, tracking the retrieval of a plastic worm, when two shapes moved into his peripheral vision. The teen's eyes gleamed as he peered through the crystal clear water at a pair of beefy rainbow trout cruising parallel to the shore.`\
-https://nytimes.com/aponline/2020/05/06/sports/ap-us-virus-outbreak-community-fishing.html?searchResultPosition=3
+**Cute Dress. How Many Bells Did You Pay?**\
+`Move over, Armani, Dior and Versace. Fashion under lockdown is all about the Able Sisters, three adorable hedgehogs from Animal Crossing.`\
+https://nytimes.com/2020/05/06/fashion/animal-crossing-fashion.html?searchResultPosition=3
 
-**India's Plans Airlift for 400,000 Stranded Abroad by Virus Travel Restrictions**\
-`India will begin flights on Thursday to bring home some 400,000 citizens stranded overseas by travel restrictions due to the coronavirus pandemic, prompting some worries over the risk that imported infections could fuel contagion in the country.`\
-https://nytimes.com/reuters/2020/05/06/world/middleeast/06reuters-health-coronavirus-india.html?searchResultPosition=4
+**Group of Investors Say Total Should Expand Net Zero Climate Target**\
+`A group of 11 shareholders representing around 1.35% of energy major Total's capital on Wednesday welcomed the firm's new climate change targets, but said they would maintain a planned resolution to push the company to do more.`\
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-climatechange-investors-total.html?searchResultPosition=4
 
-**Indian Troops Kill Maths Teacher-Turned-Rebel Commander in Kashmir**\
-`Indian troops killed four militants in gun battles in Kashmir on Wednesday, including the commander of the biggest separatist group fighting New Delhi in the disputed Himalayan region, a police official said.`\
-https://nytimes.com/reuters/2020/05/06/world/asia/06reuters-india-kashmir.html?searchResultPosition=5
+**UK Royal Archie Celebrates First Birthday With Story From Mum Meghan**\
+`Archie Mountbatten-Windsor, the son of Britain's Prince Harry and his American wife Meghan, celebrated his first birthday on Wednesday, with his parents marking the occasion with a video of his mother reading him a story.`\
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-britain-royals-archie.html?searchResultPosition=5
 
-**UK Health Minister: We Did Not Sacrifice Care Homes by Prioritising Hospitals**\
-`British health minister Matt Hancock denied on Wednesday that the government had left many elderly people in care homes more vulnerable to the novel coronavirus by prioritising hospitals.`\
-https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-britain.html?searchResultPosition=6
+**Putin to Review Government Plan to Gradually Ease Coronavirus Curbs: Kremlin**\
+`Russian President Vladimir Putin will later on Wednesday hear details of a government plan to gradually ease restrictions imposed over the coronavirus crisis, the Kremlin said. `\
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-russia-kremlin.html?searchResultPosition=6
 
-**N.Y.C. Subway Halts for Virus Cleaning: Latest Updates**\
-`The city’s famously round-the-clock train system is now closing each night for four hours for the duration of the coronavirus pandemic.`\
-https://nytimes.com/2020/05/06/nyregion/coronavirus-new-york-update.html?searchResultPosition=7
+**Wendy's Cuts Dividend, Reports Huge Decline in Profit**\
+`Wendy's Co on Wednesday lowered its current-quarter dividend to 5 cents per share on COVID-19 crisis, and reported more than 50% decline in first-quarter profit, hurt by investments in its breakfast launch. `\
+https://nytimes.com/reuters/2020/05/06/us/06reuters-wendy-results.html?searchResultPosition=7
 
-**U.S. Graduates Turn Regalia Into PPE: Wear the Cap, Donate the Gown**\
-`In this year's mostly virtual commencement ceremonies, thousands of American graduates are adorning their mortarboards with the slogan "Gowns 4 Good" after donating their gowns to healthcare workers fighting the coronavirus pandemic to use as personal protective equipment.`\
-https://nytimes.com/reuters/2020/05/06/us/06reuters-health-coronavirus-usa-graduation.html?searchResultPosition=8
+**Rush to Fill Medicine Cabinets Ahead of Outbreak Fuels CVS**\
+`The rush to fill medicine cabinets and pantries ahead of the rapidly spreading COVID-19 pandemic fueled surging profits and revenue at CVS Health during its first quarter. `\
+https://nytimes.com/aponline/2020/05/06/business/ap-cvs-health-results.html?searchResultPosition=8
 
-**Bunge Lowers 2020 Outlook After First-Quarter Loss**\
-`Agricultural commodities trader Bunge Ltd on Wednesday lowered its full-year outlook, as its edible oils business takes a demand hit from the coronavirus outbreak and its sugar and bioenergy joint venture suffers a steep crash in Brazilian ethanol prices.`\
-https://nytimes.com/reuters/2020/05/06/us/06reuters-bunge-results.html?searchResultPosition=9
+**Indonesia Warns on COVID-19 Poverty Setback as Regional Elections Postponed**\
+`COVID-19 has set Indonesia's poverty eradication efforts back by a decade, its finance minister said on Wednesday, after regional elections were postponed amid concerns about the spread of the coronavirus. `\
+https://nytimes.com/reuters/2020/05/06/world/asia/06reuters-health-coronavirus-indonesia-election.html?searchResultPosition=9
 
-**CVS Health First-Quarter Profit Beats on COVID-19 Stockpiling**\
-`CVS Health Corp on Wednesday posted first-quarter profit above Wall Street estimates, as its pharmacy benefits management business and its drugstores benefited from customers stockpiling medicines due to COVID-19 lockdowns. `\
-https://nytimes.com/reuters/2020/05/06/business/06reuters-cvs-health-results.html?searchResultPosition=10
+**Qatar Airways to Add More Flights, Rebuild Network to 80 Destinations by June**\
+`Qatar Airways on Wednesday said it planned to start rebuilding its network this month and targeted flying to 80 destinations by June.`\
+https://nytimes.com/reuters/2020/05/06/business/06reuters-health-coronavirus-qatar-airways.html?searchResultPosition=10
 
