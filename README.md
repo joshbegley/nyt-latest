@@ -18,23 +18,23 @@ https://nytimes.com/reuters/2020/05/06/us/politics/06reuters-health-coronavirus-
 `Some senators now say they'd like lawmakers to be tested for the coronavirus, just days after congressional leaders declined an offer of 1,000 tests from the Trump White House.`\
 https://nytimes.com/aponline/2020/05/06/us/politics/ap-us-virus-outbreak-congress-testing.html?searchResultPosition=5
 
+**The European Union Is Facing Its Worst Recession Ever. Watch Out, World.**\
+`New forecasts predict a 7.4 percent economic collapse and risks of even worse decline if the reopening triggers a second virus wave.`\
+https://nytimes.com/2020/05/06/business/european-union-recession-coronavirus.html?searchResultPosition=6
+
 **Federal Prosecutors Subpoena Maryland PPE Contract Records**\
 `Federal prosecutors have subpoenaed Maryland records relating to a $12.5 million contract for personal protective equipment that never arrived, a spokesman for Gov. Larry Hogan said Wednesday.`\
-https://nytimes.com/aponline/2020/05/06/us/ap-us-virus-outbreak-maryland-equipment.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/05/06/us/ap-us-virus-outbreak-maryland-equipment.html?searchResultPosition=7
 
 **Small Businesses Counting on Loan Forgiveness Could Be Stuck With Debt**\
 `Business owners who took out loans under the Paycheck Protection Program thought converting them to grants would be easy. It’s not.`\
-https://nytimes.com/2020/05/06/business/small-businesses-loans-ppp-coronavirus.html?searchResultPosition=7
+https://nytimes.com/2020/05/06/business/small-businesses-loans-ppp-coronavirus.html?searchResultPosition=8
 
 **Some U.S. Senators Worry That Without Tests They Could Bring Coronavirus Home**\
 `Several U.S. senators have urged congressional leaders to accept the White House's offer of rapid coronavirus testing for lawmakers, saying they could otherwise unwittingly spread the disease when they returned to their home districts.`\
-https://nytimes.com/reuters/2020/05/06/us/06reuters-health-coronavirus-usa-congress.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/05/06/us/06reuters-health-coronavirus-usa-congress.html?searchResultPosition=9
 
 **Uber Lays Off Hundreds in Egypt Amid Global Cuts, Staff Says**\
 `Uber Technologies Inc laid off hundreds of office-based staff in Egypt on Wednesday as the ride-hailing firm made wider cuts amid the fallout from the new coronavirus, one current and two former employees said.`\
-https://nytimes.com/reuters/2020/05/06/world/middleeast/06reuters-uber-egypt.html?searchResultPosition=9
-
-**Brazil Hits New Daily Record for Novel Coronavirus Cases**\
-`Brazil registered a record 10,503 new confirmed cases of the novel coronavirus in the last 24 hours and 615 deaths, the health ministry said on Wednesday.`\
-https://nytimes.com/reuters/2020/05/06/world/americas/06reuters-health-coronavirus-brazil.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/06/world/middleeast/06reuters-uber-egypt.html?searchResultPosition=10
 
