@@ -6,8 +6,8 @@ https://nytimes.com/2020/05/05/us/ruth-bader-ginsburg-gallbladder-treatment.html
 `A Georgia county prosecutor said on Tuesday he would ask a grand jury to decide if charges should be filed against a white former law enforcement officer and his son in the fatal shooting of an unarmed young black man as he ran through a small town.`\
 https://nytimes.com/reuters/2020/05/05/us/05reuters-shooting-georgia.html?searchResultPosition=2
 
-**Supreme Court Justice Ginsburg Recovering After Gallbladder Treatment**\
-`U.S. Supreme Court Justice Ruth Bader Ginsburg, who has had a series of health scares, underwent non-surgical treatment for a gallbladder condition on Tuesday and is "resting comfortably," a court spokeswoman said.`\
+**U.S. Supreme Court Justice Ginsburg Recovering After Gallbladder Treatment**\
+`U.S. Supreme Court Justice Ruth Bader Ginsburg, who has had a series of health scares, underwent non-surgical treatment for a gallbladder condition on Tuesday and was resting comfortably, a court spokeswoman said.`\
 https://nytimes.com/reuters/2020/05/05/us/05reuters-usa-court-ginsburg.html?searchResultPosition=3
 
 **Justice Ginsburg in Hospital With Infection, Court Says**\
