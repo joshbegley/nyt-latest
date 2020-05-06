@@ -23,7 +23,7 @@ https://nytimes.com/2020/05/05/crosswords/daily-puzzle-2020-05-06.html?searchRes
 https://nytimes.com/2020/05/05/us/dallas-salon-opens-coronavirus.html?searchResultPosition=6
 
 **Disney Tests Reopening Strategy at Shanghai Disneyland**\
-`Walt Disney Co.`\
+`Walt Disney Co. will kick off its strategy next week to begin restoring its lucrative parks business that has suffered $1 billion in lost profits from the coronavirus-led shutdown.    `\
 https://nytimes.com/reuters/2020/05/05/business/05reuters-health-coronavirus-walt-disney-shanghai.html?searchResultPosition=7
 
 **A Quarantine Activity for the Wine Lover**\
