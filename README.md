@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/05/06/us/06reuters-dominos-pizza-sp500.html?sea
 https://nytimes.com/aponline/2020/05/06/world/middleeast/ap-ml-iraq-.html?searchResultPosition=4
 
 **A New Source of Coronavirus Spread: ‘Covid-19 Parties’**\
-`Authorities in southeast Washington State have identified at least two social events that people attended in the hope of contracting the virus.`\
+`The authorities in southeast Washington State have identified at least two social events that people attended in the hope of contracting the virus.`\
 https://nytimes.com/2020/05/06/us/coronavirus-covid-parties.html?searchResultPosition=5
 
 **Iraq Lawmakers Approve Government of New Prime Minister Kadhimi**\
