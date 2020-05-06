@@ -4,7 +4,7 @@ https://nytimes.com/2020/05/05/pageoneplus/corrections-may-6-2020.html?searchRes
 
 **Protesters Say the Police Use Social Distancing to Justify Crackdown**\
 `After the police broke up a demonstration in New York City on Sunday, activists expressed concern that safety orders were being used to curtail free speech.`\
-https://nytimes.com/2020/05/05/nyregion/police-protests-coronavirus-crackdown.html?searchResultPosition=2
+https://nytimes.com/2020/05/05/nyregion/nypd-coronavirus.html?searchResultPosition=2
 
 **Biden's Edge Evaporates as Trump Seen as Better Suited for Economy, Coronavirus Response, Poll Shows**\
 `Joe Biden's advantage over President Donald Trump in popular support has eroded in recent weeks as the presumptive Democratic presidential nominee struggles for visibility with voters during the coronavirus pandemic, according to a Reuters/Ipsos poll released on Tuesday.`\
