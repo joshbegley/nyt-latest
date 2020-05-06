@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/05/05/us/05reuters-shooting-georgia.html?search
 https://nytimes.com/reuters/2020/05/05/us/05reuters-usa-court-ginsburg.html?searchResultPosition=3
 
 **Justice Ginsburg in Hospital With Infection, Court Says**\
-`Justice Ruth Bader Ginsburg was hospitalized Tuesday with an infection caused by a gallstone, the Supreme Court said.`\
+`Justice Ruth Bader Ginsburg was hospitalized Tuesday with an infection caused by a gallstone, but plans to take part in the court's arguments by telephone Wednesday, the Supreme Court said.`\
 https://nytimes.com/aponline/2020/05/05/us/politics/ap-us-supreme-court-ginsburg.html?searchResultPosition=4
 
 **EU Aims to Counter Chinese, Russian Influence at Balkan Summit**\
