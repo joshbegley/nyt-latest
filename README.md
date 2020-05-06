@@ -1,40 +1,40 @@
+**South Korea Season Openers Score With MLB-Craving Americans**\
+`As Mo Chang-min of South Korean baseball club NC Dinos tossed the bat after knocking the ball over the fence for the season's first back-to-back home-runs on Tuesday, elated American fans watching the game on ESPN flocked to social media.`\
+https://nytimes.com/reuters/2020/05/06/sports/baseball/06reuters-health-coronavirus-southkorea-baseball.html?searchResultPosition=1
+
+**In a Town Split by a Border, Virus Rules Vary From Door to Door**\
+`Life in one of the world’s most complex border towns was made even more puzzling when Dutch and Belgian officials took very different approaches to handling the coronavirus.`\
+https://nytimes.com/2020/05/06/world/europe/Baarle-Hertog-Nassau-belgium-netherlands-coronavirus.html?searchResultPosition=2
+
+**Poland Raises Prospect of Snap Election in Standoff Over Presidential Vote**\
+`Poland may need to dissolve parliament and hold a snap election unless lawmakers allow a presidential vote, which the government wants to hold by postal ballot during the coronavirus crisis, the prime minister's chief of staff said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-poland-election.html?searchResultPosition=3
+
+**Coronavirus in N.Y.C.: Latest Updates**\
+`A federal judge ordered New York election officials to hold the state’s Democratic presidential primary in June, after it was canceled last month.`\
+https://nytimes.com/2020/05/06/nyregion/coronavirus-nyc.html?searchResultPosition=4
+
+**Hapag-Lloyd Seeks Savings to Offset Coronavirus Losses: CEO**\
+`German container line Hapag-Lloyd is to implement cost cuts to take account of the coronavirus crisis, its chief executive Rolf Habben Jansen said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/06/business/06reuters-health-coronavirus-shipping-hapag.html?searchResultPosition=5
+
+**Coronavirus Is No Excuse to Exploit Workers, Pope Says**\
+`Pope Francis said on Wednesday employers must respect the dignity of workers, particularly migrants, despite economic difficulties brought on by the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-pope-workers.html?searchResultPosition=6
+
+**UK Says Over 2 Billion Pounds Lent on First Day of New Credit Scheme**\
+`Britain's finance ministry said more than 69,000 loans to small businesses worth more than 2 billion pounds ($2.5 billion) were made in the first 24 hours of the launch of the emergency coronavirus credit scheme which carries 100% state guarantees.`\
+https://nytimes.com/reuters/2020/05/06/business/06reuters-health-coronavirus-britain-loans.html?searchResultPosition=7
+
+**Indonesia Reports 367 New Coronavirus Cases, 23 Deaths**\
+`Indonesia reported 367 new cases of the coronavirus on Wednesday, taking the total to 12,438, said health ministry official Achmad Yurianto.`\
+https://nytimes.com/reuters/2020/05/06/world/asia/06reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=8
+
 **Spain's Daily Death Toll Picks Up After Three Days Below 200: Health Ministry**\
 `The number of daily fatalities from the coronavirus in Spain picked up on Wednesday as health authorities registered 244 deaths, up from below 200 on each of the three previous days.`\
-https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-spain.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-spain.html?searchResultPosition=9
 
 **Cameroon Doctor Faces Influx of COVID-19 Patients**\
 `With the help of a nurse, Dominique Djomo puts on his personal protective equipment - a cap, coveralls, protective glasses, visor and gloves - and starts another day dealing with an influx of COVID-19 cases. `\
-https://nytimes.com/reuters/2020/05/06/world/africa/06reuters-health-coronavirus-cameroon-doctor.html?searchResultPosition=2
-
-**India to Send Nearly 1,000 Tonnes of Paracetamol Raw Material to Europe**\
-`India will supply Europe with about 1,000 tonnes of the active pharmaceutical ingredient (API) for common pain reliever paracetamol, a top exports body said, easing export controls on over-the counter medicines used to cope with COVID-19 symptoms.`\
-https://nytimes.com/reuters/2020/05/06/world/asia/06reuters-health-coronavirus-india-paracetamol.html?searchResultPosition=3
-
-**Lebanese PM Says No Time to Lose in Tackling Crisis, Urges Unity**\
-`Lebanon's prime minister said Lebanese must set aside their disputes as the country had no time to lose in tackling a financial crisis, adding that a government economic recovery plan could be amended and was not a sacred text.`\
-https://nytimes.com/reuters/2020/05/06/world/middleeast/06reuters-lebanon-crisis-meeting.html?searchResultPosition=4
-
-**Spanish Nurse Returns to Frontline After Bout With Coronavirus**\
-`Just a few months ago, coronavirus floated around unnoticed in the hospital near Madrid where Cristina Cadenas worked as nurse in the orthopaedics department.`\
-https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-spain-nurse.html?searchResultPosition=5
-
-**Euro Zone Set for Record Recession, Inflation to Vanish: Commission**\
-`The euro zone economy will contract by a record 7.7% this year because of the COVID-19 pandemic and inflation will almost disappear while public debt and budget deficits will balloon, the European Commission forecast on Wednesday.`\
-https://nytimes.com/reuters/2020/05/06/us/06reuters-health-coronavirus-eu-economy.html?searchResultPosition=6
-
-**Euro Zone Retail Sales Suffer Largest Fall on Record in March**\
-`Retail sales in the euro zone suffered their largest decline on record in March as restrictions to stem the spread of the coronavirus were put in place and shoppers reduced their spending on everything except food and online orders.`\
-https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-eurozone-economy-salesfigures.html?searchResultPosition=7
-
-**South Africa 'Virtual Safaris' Liven Up Lockdown With Jackals and Leopard Cubs**\
-`Most visitors wanting to see big game in Africa jet in from faraway places, so when the new coronavirus grounded flights and put the world into lockdown, the legendary African safari died.`\
-https://nytimes.com/reuters/2020/05/06/world/africa/06reuters-health-coronavirus-safrica-virtual-safari.html?searchResultPosition=8
-
-**One Ancient Mill Rises as Britain Bakes at Home**\
-`Shipton Mill, which was milling flour when the Normans conquered England nearly a thousand years ago, has seen a rare boon from the novel coronavirus outbreak: soaring demand for their organic flour from a new generation of locked-down home bakers.`\
-https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-britain-flour.html?searchResultPosition=9
-
-**BMW: Outbreak Will Slow Auto Industry 'for Quite Some Time'**\
-`Automaker BMW saw net profit fall slightly in the first quarter from a year earlier, when the company had a large one-time expense.`\
-https://nytimes.com/aponline/2020/05/06/business/ap-eu-germany-earns-bmw.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/06/world/africa/06reuters-health-coronavirus-cameroon-doctor.html?searchResultPosition=10
 
