@@ -1,40 +1,40 @@
+**Turkey to Sample Test 150,000 to Gauge Scope of Outbreak**\
+`Turkey is preparing to test 150,000 citizens to determine how widely the novel coronavirus has spread among the population, the country's health minister said Wednesday. .`\
+https://nytimes.com/aponline/2020/05/06/world/europe/ap-eu-virus-outbreak-turkey.html?searchResultPosition=1
+
+**UK Will Only Consider Support for Individual Aero Firms as a Last Resort: Minister**\
+`British aerospace and aviation firms must look at existing government schemes and self-help measures before individual packages for companies are considered, housing minister Robert Jenrick said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-britain-aviation.html?searchResultPosition=2
+
+**Will Gilead Price Its Coronavirus Drug for Public Good or Company Profit?**\
+`Gilead Sciences Inc faces a new dilemma in deciding how much it should profit from the only treatment so far proven to help patients infected with the novel coronavirus.`\
+https://nytimes.com/reuters/2020/05/06/us/06reuters-health-coronavirus-gilead-pricing.html?searchResultPosition=3
+
+**The Jobs Numbers Will Be Terrible. Here’s How to Interpret Them.**\
+`Government figures due Friday will undoubtedly show that job losses in April were the worst ever. But they could provide key hints about the recovery.`\
+https://nytimes.com/2020/05/06/business/economy/coronavirus-jobs-report.html?searchResultPosition=4
+
+**Top Kashmiri Militant Is Killed, Sparking Protests and Rage**\
+`Over years of fighting, Riyaz Ahmad Naikoo recruited scores of young Kashmiris in an armed quest for independence from India. His death has set off a fresh wave of unrest.`\
+https://nytimes.com/2020/05/06/world/asia/india-pakistan-kashmir-riyaz-ahmad-naikoo.html?searchResultPosition=5
+
 **Florian Schneider, 73, Dies; Revolutionized Pop Music With Kraftwerk**\
 `The German band he helped found toyed with ideas about technology and society, leaving a profound mark on rock, dance music and hip-hop.`\
-https://nytimes.com/2020/05/06/arts/music/florian-schneider-kraftwerk-dead.html?searchResultPosition=1
+https://nytimes.com/2020/05/06/arts/music/florian-schneider-kraftwerk-dead.html?searchResultPosition=6
 
 **Facebook Names First Members of Oversight Board That Can Overrule Zuckerberg**\
 `Facebook Inc's new content oversight board will include a former head of state, a Nobel Peace Prize laureate and several constitutional law experts and rights advocates in its first 20 members, the company announced on Wednesday.`\
-https://nytimes.com/reuters/2020/05/06/business/06reuters-facebook-oversight.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/06/business/06reuters-facebook-oversight.html?searchResultPosition=7
 
 **Factbox: Who Are the First Members of Facebook's Oversight Board?**\
 `Facebook Inc on Wednesday named the first members of its independent oversight board, which will be able to overturn the company's decisions on individual pieces of content and recommend policy changes.`\
-https://nytimes.com/reuters/2020/05/06/business/06reuters-facebook-oversight-members-factbox.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/06/business/06reuters-facebook-oversight-members-factbox.html?searchResultPosition=8
 
 **Factbox: What to Know About Facebook's Content Oversight Board**\
 `Facebook Inc on Wednesday announced the first 20 members of its independent oversight board that can overrule the company’s own content moderation decisions. Here are some key facts about how the board will work:`\
-https://nytimes.com/reuters/2020/05/06/business/06reuters-facebook-oversight-board-factbox.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/06/business/06reuters-facebook-oversight-board-factbox.html?searchResultPosition=9
 
 **Firm Set Up by G.O.P. Operatives Under Scrutiny Over Contracts**\
 `Blue Flame Medical boasted that it could acquire masks, testing kits and other equipment to respond to the pandemic. State and local governments paid up — and are still waiting for delivery.`\
-https://nytimes.com/2020/05/06/us/politics/firm-set-up-by-gop-operatives-under-scrutiny-over-contracts.html?searchResultPosition=5
-
-**Nearly Half of Men Say They Do Most of the Home Schooling. 3 Percent of Women Agree.**\
-`A survey suggests that pandemic-era domestic work isn’t being divided more equitably than before the lockdown.`\
-https://nytimes.com/2020/05/06/upshot/pandemic-chores-homeschooling-gender.html?searchResultPosition=6
-
-**Musicals Out, One-Man Plays In: Broadway Gets Creative Waiting for Show to Go On**\
-`Television can fake it, movie audiences can wear masks, but a live theatre performance like "Romeo and Juliet" needs real actors kissing and fighting rivals in front of real people.`\
-https://nytimes.com/reuters/2020/05/06/arts/06reuters-health-coronavirus-theatre.html?searchResultPosition=7
-
-**U.S. Announces $225 Million in Emergency Aid to Yemen**\
-`The United States will provide $225 million in emergency aid to Yemen to support food programs, U.S. Secretary of State Mike Pompeo said on Wednesday, as aid groups there are forced to scale down operations due to Houthi interference and amid a spreading coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/05/06/world/middleeast/06reuters-health-coronavirus-yemen-aid.html?searchResultPosition=8
-
-**EU Wants WHO Review of Lessons Learnt From Coronavirus Crisis: Draft**\
-`The European Union is backing calls for a timely review of the international response to the coronavirus pandemic, including the World Health Organization's performance, according to the draft of a resolution for ministers to debate at the WHO.`\
-https://nytimes.com/reuters/2020/05/06/world/europe/06reuters-health-coronavirus-resolution.html?searchResultPosition=9
-
-**MLB: Indians Prepping for June 10 Workouts, July 1 Opening Day**\
-`At least one MLB team is planning to resume workouts June 10 with designs on being ready for a potential 2020 Opening Day of July 1.`\
-https://nytimes.com/reuters/2020/05/06/sports/baseball/06reuters-baseball-mlb-cle-opening-day-2020.html?searchResultPosition=10
+https://nytimes.com/2020/05/06/us/politics/firm-set-up-by-gop-operatives-under-scrutiny-over-contracts.html?searchResultPosition=10
 
