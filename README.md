@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/05/06/us/06reuters-usa-treasury-refunding.html?
 `U.S. businesses cut an unprecedented 20.2 million jobs in April, an epic collapse as the coronavirus outbreak closed of offices, factories, schools, construction sites and stores that propel the U.S. economy.`\
 https://nytimes.com/aponline/2020/05/06/business/bc-us-employment-adp.html?searchResultPosition=6
 
-**U.S. Private Payrolls Decline by a Record 20.2 Million**\
+**U.S. Private Payrolls Plunge by a Record 20.2 Million in April**\
 `U.S. private employers laid off a record 20.236 million workers in April as mandatory business closures in response to the novel coronavirus outbreak savaged the economy, setting up the overall labor market for historic job losses last month.`\
 https://nytimes.com/reuters/2020/05/06/business/06reuters-usa-economy-jobs.html?searchResultPosition=7
 
