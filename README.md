@@ -1,36 +1,36 @@
+**Venezuela Opposition Negotiated Maduro Overthrow Plan With Security Firm, Report Says**\
+`Members of Venezuela's opposition in October negotiated a $213 million deal with a small Florida security company to invade the country and overthrow President Nicolas Maduro, according to a document published by the Washington Post on Thursday.  `\
+https://nytimes.com/reuters/2020/05/07/world/americas/07reuters-venezuela-security.html?searchResultPosition=2
+
+**Canadian Dollar Seen Recouping Some Losses if Global Economy Starts Healing: Reuters Poll**\
+`The Canadian dollar will regain some lost ground over the coming year along with a potential recovery in the price of oil and in the global economy after it was crippled by the coronavirus pandemic, a Reuters poll showed.    `\
+https://nytimes.com/reuters/2020/05/07/us/07reuters-forex-poll-canada.html?searchResultPosition=3
+
+**U.N. Triples Coronavirus Appeal to $6.7 Billion to Help Poor Countries**\
+`The United Nations on Thursday more than tripled its appeal to help vulnerable countries combat the spread and destabilizing effects of the coronavirus pandemic, asking for $6.7 billion to help 63 states mainly in Africa and Latin America. `\
+https://nytimes.com/reuters/2020/05/07/us/07reuters-health-coronavirus-un.html?searchResultPosition=4
+
+**Black Man Shot Dead by Police in Indianapolis; Video Prompts Calls for Probe**\
+`Indianapolis police shot and killed a black man after a car pursuit and foot chase in an incident that was apparently captured on Facebook Live, leading to calls on Thursday by civil rights leaders for a thorough investigation of the incident.   `\
+https://nytimes.com/reuters/2020/05/07/us/07reuters-indiana-shooting-civil-rights.html?searchResultPosition=5
+
+**Airbus Deliveries Plunge 80% in April**\
+`Airbus deliveries tumbled 80% to just 14 aircraft in April, compared with a year earlier, as operations were hit by the coronavirus crisis, company data showed on Thursday.`\
+https://nytimes.com/reuters/2020/05/07/business/07reuters-airbus-deliveries.html?searchResultPosition=6
+
+**How Deere, Caterpillar Kept Plants Running During the Coronavirus Outbreak**\
+`While Detroit automakers' unionized auto factories have been idled by the coronavirus pandemic, farm and construction equipment makers Deere and Caterpillar have won the support of the United Auto Workers and other unions to run their facilities during the pandemic. `\
+https://nytimes.com/reuters/2020/05/07/business/07reuters-health-coronavirus-usa-equipment.html?searchResultPosition=7
+
+**Coronavirus Killing Black Britons at Twice the Rate as Whites**\
+`That gap grows to four times when class and health differences aren’t considered. South Asians have also been dying disproportionately.`\
+https://nytimes.com/2020/05/07/world/europe/virus-uk-minorities-whites.html?searchResultPosition=8
+
 **Barry Farber Dies; Conservative Radio Host Ran for NYC Mayor**\
 `Pioneering radio host Barry Farber, who hosted a conservative talk show for decades in New York City and ran unsuccessfully for mayor in 1977, has died.`\
-https://nytimes.com/aponline/2020/05/07/us/ap-us-obit-farber.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/05/07/us/ap-us-obit-farber.html?searchResultPosition=9
 
 **John Singer Sargent’s Drawings Bring His Model Out of the Shadows**\
 `Sketches by the great portraitist, shown together for the first time, illuminate the contribution of his African-American muse, Thomas McKeller.`\
-https://nytimes.com/2020/05/07/arts/design/john-singer-sargent-drawings-gardner-museum.html?searchResultPosition=3
-
-**Many Races, Little Time: Cycling Faces a Crowded Calendar**\
-`Most of cycling's races have been crammed into the new schedule, and many races overlap. Plus a possible heavyweight bout in a Roman amphitheater and Formiga’s next move.`\
-https://nytimes.com/2020/05/07/sports/tour-de-france-anthony-joshua.html?searchResultPosition=4
-
-**Top 20 Global Concert Tours From Pollstar**\
-`The Top 20 Global Concert Tours ranks artists by average box office gross per city and includes the average ticket price for shows Worldwide during a 90 day window.. The list is based on data provided to the trade publication Pollstar by concert promoters and venue managers. Week of May 6, 2020: `\
-https://nytimes.com/aponline/2020/05/07/arts/ap-us-top-20-concert-tours.html?searchResultPosition=5
-
-**De Blasio Describes Plan to Potentially Limit Entry to Parks**\
-`Mayor Bill de Blasio of New York said he would release details on a plan to manage crowding in some city parks where social distancing has been a problem.`\
-https://nytimes.com/video/us/politics/100000007127389/deblasio-coronavirus-parks.html?searchResultPosition=6
-
-**Lift the Bans and Let the Surfers Ride the Waves?**\
-`Readers react to an Op-Ed by a surfer arguing that his sport can be done safely.`\
-https://nytimes.com/2020/05/07/opinion/letters/coronavirus-surfing.html?searchResultPosition=7
-
-**Push for Profits Left Nursing Homes Struggling to Provide Care**\
-`Some with private equity owners, focused on making money, were particularly ill equipped and understaffed to handle Covid-19.`\
-https://nytimes.com/2020/05/07/business/nursing-homes-profits-private-coronavirus.html?searchResultPosition=8
-
-**Don't Forget Past, Jewish Leader Warns Germans on Eve of WW2 Anniversary**\
-`Many young Germans have failed to learn the lessons of history, and anti-Semitism is becoming entrenched in the land responsible for the Holocaust, a Jewish leader warned, a day before the 75th anniversary of the end of World War Two in Europe.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-ww2-anniversary-germany-jews.html?searchResultPosition=9
-
-**Easing British Lockdown Is 'Point of Maximum Risk': Raab**\
-`Any easing of Britain's lockdown represents a huge risk and could be stalled by an increase in infection rates, foreign minister Dominic Raab said on Thursday, warning that if social distancing lapsed, the virus would spread exponentially.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-britain-raab.html?searchResultPosition=10
+https://nytimes.com/2020/05/07/arts/design/john-singer-sargent-drawings-gardner-museum.html?searchResultPosition=10
 
