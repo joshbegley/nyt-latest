@@ -20,7 +20,7 @@ https://nytimes.com/aponline/2020/05/07/health/ap-us-med-virus-outbreak-cdc-side
 
 **Criticized on Virus, Trump Goes to His Playbook: Deflect, Reject and Minimize**\
 `The president has served up a series of false and misleading statements as he seeks to counter uncomfortable facts about the spread of Covid-19 and questions about his push to reopen the economy.`\
-https://nytimes.com/2020/05/07/us/politics/coronavirus-trump-playbook-fact-check.html?searchResultPosition=7
+https://nytimes.com/2020/05/07/us/politics/trump-coronavirus-fact-check.html?searchResultPosition=7
 
 **Georgia Governor Calls Shooting Video 'Absolutely Horrific'**\
 `Georgia's governor on Thursday described as “absolutely horrific” a cellphone video that appears to show a white father and son fatally shooting a black man on a residential street as the national outcry over the slaying escalated.`\
