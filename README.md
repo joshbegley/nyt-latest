@@ -1,36 +1,36 @@
+**Utah Gun Advocate Looses Appeal to Block Bump Stock Ban**\
+`A U.S. appeals court on Thursday ruled against a Utah gun rights advocate who challenged the Trump administration’s ban on bump stocks, the gun attachments that allow semi-automatic weapons to fire like machine guns. `\
+https://nytimes.com/aponline/2020/05/07/us/ap-us-bump-stock-ban.html?searchResultPosition=2
+
+**California Sets Rules to Reopen Manufacturing; Tesla's Musk Cheers**\
+`California has set rules to allow state manufacturers to begin reopening on Friday from a coronavirus lockdown, Governor Gavin Newsom said, drawing an enthusiastic "Yeah!!" on Twitter from Tesla Inc Chief Executive Elon Musk.`\
+https://nytimes.com/reuters/2020/05/07/technology/07reuters-health-coronavirus-usa-california.html?searchResultPosition=3
+
+**CFL: League's Future 'in Jeopardy' Due COVID-19, Commissioner Says**\
+`The commissioner of the Canadian Football League (CFL) said on Thursday the league's future is "very much in jeopardy" because of the COVID-19 pandemic that will likely result in the cancellation of the 2020 season.`\
+https://nytimes.com/reuters/2020/05/07/sports/football/07reuters-health-coronavirus-football-cfl.html?searchResultPosition=4
+
+**Screenings Were Porous as Trump Spurred Exodus From Virus Hot Spots**\
+`A House report found that Americans fleeing Asia and Europe to beat the president’s travel bans faced few temperature checks or other rigorous screenings to see if they were bringing the virus home.`\
+https://nytimes.com/2020/05/07/us/politics/trump-coronavirus-hot-spots-screenings.html?searchResultPosition=5
+
 **We Need National Service. Now.**\
 `The formative moment for a new generation.`\
-https://nytimes.com/2020/05/07/opinion/national-service-americorps-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2020/05/07/opinion/national-service-americorps-coronavirus.html?searchResultPosition=6
 
 **Frontier Airlines to Mandate Temperature Screening for All Passengers**\
 `Frontier Airlines said on Thursday it would begin temperature screenings for all passengers and crew members on June 1 and bar anyone with a temperature at or exceeding 100.4 degrees Fahrenheit (38 C).`\
-https://nytimes.com/reuters/2020/05/07/us/07reuters-health-coronavirus-frontier.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/07/us/07reuters-health-coronavirus-frontier.html?searchResultPosition=7
 
 **The Great Potato Giveaway: U.S. Farmers Hand Out Spuds to Avoid Food Waste**\
 `When Tina Yates pulled her truck up to a mall in western Washington state on Thursday, workers waved her past hundreds of cars waiting to pick up free russet potatoes.`\
-https://nytimes.com/reuters/2020/05/07/business/07reuters-health-coronavirus-food.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/07/business/07reuters-health-coronavirus-food.html?searchResultPosition=8
 
 **NFL Committee Chief Confirms End of PI Reviews**\
 `After just one year, the NFL is eliminating replay reviews of pass-interference calls.`\
-https://nytimes.com/reuters/2020/05/07/sports/football/07reuters-football-nfl-pass-interference.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/05/07/sports/football/07reuters-football-nfl-pass-interference.html?searchResultPosition=9
 
 **As Governors Urge Caution on Reopening, G.O.P. Lawmakers Rebel**\
 `In Ohio, a Republican governor is facing an open revolt from members of his own party over whether to keep businesses closed.`\
-https://nytimes.com/2020/05/07/us/governors-reopening-rebellion.html?searchResultPosition=6
-
-**11 Great Movies and Shows Leaving Netflix in May**\
-`Catch these great titles while you can. Chances are, you’ll have a little more time this month than usual to watch them.`\
-https://nytimes.com/2020/05/07/arts/television/leaving-netflix-may.html?searchResultPosition=7
-
-**Brazil Registers 9,888 New Cases of Coronavirus, 610 Deaths on Thursday**\
-`Brazil's Health Ministry on Thursday registered 9,888 new confirmed cases of the novel coronavirus and 610 related deaths in the past 24 hours, according to a ministry website.`\
-https://nytimes.com/reuters/2020/05/07/world/americas/07reuters-coronavirus-health-brazil.html?searchResultPosition=8
-
-**Whistleblower Offers Window Into HHS’s Flawed COVID-19 Response**\
-`A new whistleblower complaint has drawn attention for its allegations that the Trump administration retaliated against a scientist who sent early coronavirus warnings.`\
-https://nytimes.com/reuters/2020/05/07/us/07reuters-health-coronavirus-usa-hhs.html?searchResultPosition=9
-
-**Experts Worry CDC Is Sidelined in Coronavirus Response**\
-`The Centers for Disease Control and Prevention has repeatedly found its suggestions for fighting the coronavirus outbreak taking a backseat to other concerns within the Trump administration.`\
-https://nytimes.com/aponline/2020/05/07/health/ap-us-med-virus-outbreak-cdc-sidelined.html?searchResultPosition=10
+https://nytimes.com/2020/05/07/us/governors-reopening-rebellion.html?searchResultPosition=10
 
