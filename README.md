@@ -1,36 +1,36 @@
-**No-Frills Tycoon Franke Says Low Air Fares No Panacea for COVID-19 Crisis**\
-`Budget airline backer Bill Franke, who pioneered rock-bottom fares topped up by optional charges, says slashing prices alone will not be enough to get people flying again as carriers try to inch back to profitability after the coronavirus shutdown.`\
-https://nytimes.com/reuters/2020/05/07/world/americas/07reuters-health-coronavirus-airlines-franke.html?searchResultPosition=2
+**Northern Ireland Says 'No Headroom' to Lift COVID-19 Restrictions Now**\
+`Northern Ireland does not plan to soften restrictions designed to curb the spread of COVID-19 at this time due to the high infection rate, Deputy First Minister Michelle O'Neill said on Thursday. `\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-britain-nireland.html?searchResultPosition=2
 
-**U.S. Will Not Require Automakers to Recall 56 Million Takata Air Bag Inflators**\
-`The National Highway Traffic Safety Administration (NHTSA) said Thursday it will not require automakers to require 56 million additional Takata air bag inflators, saying the devices do not pose a safety risk.`\
-https://nytimes.com/reuters/2020/05/07/world/asia/07reuters-usa-autos-takata.html?searchResultPosition=3
+**Belgian Chefs Lay Down Jackets to Protest at Lockdown**\
+`Hundreds of chefs' jackets were laid down in the center of Brussels on Thursday to highlight the plight of hotels, restaurants and cafes that have been shuttered for nearly two months during the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-belgium-restaurant.html?searchResultPosition=3
 
-**Massachusetts Must Allow Gun Retailers to Reopen Despite Pandemic, Judge Rules**\
-`A federal judge on Thursday ordered Massachusetts authorities to allow gun shops to reopen after the governor deemed them non-essential businesses that needed to close to slow the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/05/07/us/07reuters-health-coronavirus-massachusetts-guns.html?searchResultPosition=4
+**French PM Does Not Rule Out Re-Imposing Lockdown if Necessary**\
+`French Prime Edouard Philippe said on Thursday that the government will reinforce the national lockdown it is partially lifting on Monday if the spread of the new coronavirus acclerates again.`\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-france-lockdown-pm.html?searchResultPosition=4
 
-**Trump Valet Has Coronavirus; President Again Tests Negative**\
-`A member of the military serving as one of President Donald Trump’s valets has tested positive for the coronavirus, the White House said Thursday. It said Trump and Vice President Mike Pence have since tested negative for the virus and “remain in good health.”`\
-https://nytimes.com/aponline/2020/05/07/us/politics/ap-us-virus-outbreak-trump-valet.html?searchResultPosition=5
+**More Than 50% of Shops on Paris' Champs-Elysees to Re-Open on May 11**\
+`More than 50 percent of shops on Paris' famed Champs-Elysees avenue are expecting to re-open for business on May 11, said the business committee representing the district in a statement on Thursday.`\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-france-paris.html?searchResultPosition=5
 
-**Britain's COVID-19 Death Toll Rises 539 to 30,615: Minister**\
-`Britain's COVID-19 death toll has risen by 539 to 30,615, according to figures announced on Thursday by foreign minister Dominic Raab.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-britain-toll.html?searchResultPosition=6
+**France to Keep Borders Closed Until at Least June 15, Interior Minister Says**\
+`French Interior Minister Christophe Castaner said that following the lifting of the coronavirus lockdown in France on May 11, the country's borders would remain closed until further notice. `\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-france-lockdown-borders.html?searchResultPosition=6
 
-**White House Shelved CDC Guidance on Easing of Virus Restrictions**\
-`The White House shelved a step-by-step guide prepared by U.S. health officials to help states safely reopen mass transit, restaurants, daycare centers and other public places closed by the coronavirus pandemic, an administration official said on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/us/07reuters-health-coronavirus-usa.html?searchResultPosition=7
+**Luminaries Lost: A Look at Some of the Artists Lost to Virus**\
+`A man made to make shoes. The king of the Congolese dance hall. A novelist in exile. In the first of an occasional series, The Associated Press takes a look at figures in arts, entertainment and culture who have died after contracting the coronavirus. `\
+https://nytimes.com/aponline/2020/05/07/us/ap-us-virus-outbreak-entertainment-the-toll-part-i-.html?searchResultPosition=7
 
-**Say a Brief Goodbye to the Nice Weather**\
-`An Arctic blast will sweep parts of the Northeast, bringing record-cold temperatures and even some snow to states that are coming out of a mild winter.`\
-https://nytimes.com/2020/05/07/us/northeast-polar-vortex-snow.html?searchResultPosition=8
+**Putin-Trump Call Focuses on Coronavirus, Arms Control, Oil**\
+`U.S. President Donald Trump and Russian President Vladimir Putin discussed progress in combating the coronavirus pandemic along with arms control issues and oil prices in a phone call Thursday, the White House and the Kremlin said.`\
+https://nytimes.com/aponline/2020/05/07/world/europe/ap-eu-russia-us.html?searchResultPosition=8
 
-**U.S. Employers Must Try to Accommodate Workers Vulnerable to Coronavirus: Agency**\
-`The U.S. agency that enforces laws prohibiting disability discrimination said on Thursday that employers must try to accommodate workers with medical conditions that make them vulnerable to the novel coronavirus before sending them home.`\
-https://nytimes.com/reuters/2020/05/07/business/07reuters-health-coronavirus-usa-workers.html?searchResultPosition=9
+**UK Appoints Former TalkTalk Boss to Lead Coronavirus Test and Trace Programme**\
+`Dido Harding, the former chief executive of internet provider TalkTalk, has been appointed by the British government to head its coronavirus test and trace programme with responsibility for overseeing contact tracing.`\
+https://nytimes.com/reuters/2020/05/07/technology/07reuters-health-coronavirus-testing-harding.html?searchResultPosition=9
 
-**NYC to Test 140K People for Virus Antibodies in Next Month**\
-`New York City will test 140,000 people for coronavirus antibodies between next week and early June, Mayor Bill de Blasio announced Thursday.`\
-https://nytimes.com/aponline/2020/05/07/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=10
+**Warner Music Forges Ahead With Market Debut Despite COVID-19 Gloom**\
+`Warner Music Group said on Thursday it received an approval to list its shares on the Nasdaq stock exchange in what could be a rare initial public offering after the COVID-19 pandemic forced a number of companies to put their plans on hold.`\
+https://nytimes.com/reuters/2020/05/07/business/07reuters-warner-music-ipo.html?searchResultPosition=10
 
