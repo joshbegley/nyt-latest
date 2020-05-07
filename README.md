@@ -1,36 +1,36 @@
-**Senate Fails to Override Trump Veto on Iran Conflict**\
-`Congress has failed in its bid to block President Donald Trump from engaging in further military action against Iran without backing from the legislative branch. `\
-https://nytimes.com/aponline/2020/05/07/us/politics/ap-us-trump-war-powers-congress.html?searchResultPosition=2
+**Russia's Putin Accepted U.S. Offer of Ventilators: Trump**\
+`President Donald Trump on Thursday said Russian President Vladimir Putin had accepted his offer to provide ventilators to aid in the fight against the novel coronavirus causes a potentially deadly respiratory illness, adding that Russia is having a hard time with the disease.`\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-usa-russia.html?searchResultPosition=2
 
-**For Latinos and Covid-19, Doctors are Seeing an ‘Alarming’ Disparity**\
-`The outsized infection rate among Hispanics in some states could hobble efforts to quash the spread of Covid-19, prompting states like Oregon to step up testing and take emergency measures.`\
-https://nytimes.com/2020/05/07/us/coronavirus-latinos-oregon.html?searchResultPosition=3
+**False Negative: Officials Say Russian Virus Tests Often Give Wrong Result**\
+`Tests used throughout Russia to determine if someone has the novel coronavirus or not often give the wrong result, Moscow officials said on Thursday, in a statement further calling into question the veracity of official statistics.`\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-russia-tests.html?searchResultPosition=3
 
-**Fears Grow as Coronavirus Bears Down on Mexico City**\
-`A hand-washing station and bright yellow signs warning of an area of “high infection” now greet the steady stream of hearses at the entrance to the San Nicolas Tolentino cemetery in a working-class neighborhood of this sprawling metropolis. `\
-https://nytimes.com/aponline/2020/05/07/world/americas/ap-lt-virus-outbreak-mexico.html?searchResultPosition=4
+**Coronavirus Could Kill Up to 190,000 in Africa in First Year if Not Contained: WHO**\
+`The novel coronavirus could kill between 83,000 and 190,000 people in Africa in the first year and infect between 29 million and 44 million in the first year if it is not contained, the World Health Organization (WHO) said on Thursday.`\
+https://nytimes.com/reuters/2020/05/07/world/africa/07reuters-health-coronavirus-africa.html?searchResultPosition=4
 
-**Justice Dept. Drops Case Against Michael Flynn**\
-`The extraordinary move came after the former national security adviser had fought the case in court for months, a reversal after pleading guilty twice and cooperating with investigators.`\
-https://nytimes.com/2020/05/07/us/politics/michael-flynn-case-dropped.html?searchResultPosition=5
+**US Pulls Anti-Missile Systems From Saudi Arabia Amid Dispute**\
+`The U.S. is pulling two Patriot missile batteries and some fighter aircraft out of Saudi Arabia, an American official said Thursday, amid tensions between the kingdom and the Trump administration over oil production.`\
+https://nytimes.com/aponline/2020/05/07/us/politics/ap-us-united-states-saudi-arabia.html?searchResultPosition=5
 
-**U.S. Says Does Not Support Haftar's Military Action Against Libya's Tripoli**\
-`The United States does not support the offensive of Libya's eastern-based military leader Khalifa Haftar against capital Tripoli, U.S. Deputy Assistant Secretary Henry Wooster said on Thursday, adding that Washington found Haftar's establishing ties with Syrian President Bashar al-Assad 'troubling'.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-libya-security-usa-syria.html?searchResultPosition=6
+**Jim Harbaugh Proposes One-And-Done Rule Change for NFL Draft**\
+`Michigan coach Jim Harbaugh is pushing for a change that would allow football players to enter the NFL draft after one year in college.`\
+https://nytimes.com/aponline/2020/05/07/sports/football/ap-fbn-harbaughs-draft-proposals.html?searchResultPosition=6
 
-**U.S. Arrests Along Border With Mexico Plummet in April Amid Coronavirus**\
-`U.S. arrests along the border with Mexico fell dramatically in April as migrants were swiftly deported under new rules aimed at limiting the spread of the novel coronavirus, the top U.S. Customs and Border Protection official told reporters on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/world/americas/07reuters-health-coronavirus-usa-border.html?searchResultPosition=7
+**Where Did All the Lesbian Bars Go? Increasingly, They’re on TV**\
+`Most lesbian bars have vanished in recent decades — and that was before the pandemic. But three current TV shows offer their own fictional forms of wish fulfillment.`\
+https://nytimes.com/2020/05/07/arts/television/lesbian-bars-vida-l-word-batwoman.html?searchResultPosition=7
 
-**Afghan Official Says 2 Explosions Rock Kabul; No Injuries**\
-`Two explosions, about an hour apart, struck different areas of the Afghan capital late on Thursday, an official said. There were no casualties but some damage to a power station was reported. `\
-https://nytimes.com/aponline/2020/05/07/world/asia/ap-as-afghanistan.html?searchResultPosition=8
+**Hospitals Are Having to Ration Essential Care. Can They Do It Fairly?**\
+`Treating people “equally” means many different things.`\
+https://nytimes.com/2020/05/07/opinion/coronavirus-rationing-dialysis-ventilator.html?searchResultPosition=8
 
-**U.S. Senate Fails to Override Trump Veto of Iran War Powers Resolution**\
-`The U.S. Senate failed on Thursday to override President Donald Trump's veto of a resolution that would have limited his ability to wage war against Iran by requiring him to obtain congressional approval before undertaking military action.`\
-https://nytimes.com/reuters/2020/05/07/us/politics/07reuters-mideast-crisis-congress.html?searchResultPosition=9
+**How to Test More People With the Few Tests We Have**\
+`Combine several samples and test them together. It can be highly efficient.`\
+https://nytimes.com/2020/05/07/opinion/coronavirus-group-testing.html?searchResultPosition=9
 
-**Can COVID-19 Survive on My Phone?**\
-`Can COVID-19 survive on my phone? `\
-https://nytimes.com/aponline/2020/05/07/us/ap-us-virus-outbreak-viral-questions-phone.html?searchResultPosition=10
+**Woods, Mickelson, QBs to Donate $10 Million to Virus Relief**\
+`The next match involving Tiger Woods and Phil Mickelson involves a $10 million donation for COVID-19 relief efforts, along with plenty of bragging rights in a star-powered foursome May 24 at Medalist Golf Club.`\
+https://nytimes.com/aponline/2020/05/07/sports/golf/ap-glf-woods-mickelson-match.html?searchResultPosition=10
 
