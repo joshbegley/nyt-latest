@@ -1,36 +1,36 @@
-**Malaria Drug Shows No Benefit in Another Coronavirus Study**\
-`A new study finds no evidence of benefit from a malaria drug widely promoted as a treatment for coronavirus infection.`\
-https://nytimes.com/aponline/2020/05/07/health/bc-us-med-virus-outbreak-malaria-drug.html?searchResultPosition=2
+**Closing Prices for Crude Oil, Gold and Other Commodities**\
+`Benchmark U.S. crude oil fell 44 cents, or 1.8%, to settle at $23.55 a barrel Thursday. Brent crude oil, the international standard, fell 26 cents, or 0.9% to $29.46 a barrel. `\
+https://nytimes.com/aponline/2020/05/07/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=2
 
-**With Layoffs High but Slowing, Can US Job Market Rise Up?**\
-`Since its record-setting peak five weeks ago, the number of laid-off U.S. workers applying for jobless benefits, while still extraordinarily high, has steadily slowed.`\
-https://nytimes.com/aponline/2020/05/07/business/bc-us-virus-outbreak-job-market-qa.html?searchResultPosition=3
+**Biden Uses Virtual Events to Target Battleground Florida**\
+`Joe Biden is back on the campaign trail, targeting the critical battleground state of Florida — but without actually leaving home.`\
+https://nytimes.com/aponline/2020/05/07/us/politics/ap-us-election-2020-biden.html?searchResultPosition=3
 
-**IndyCar to Start Season June 6 in Texas**\
-`The IndyCar season will begin June 6 with the Genesys 300 at Texas Motor Speedway, the circuit announced Thursday. No fans will be in the stands because of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/07/sports/07reuters-motor-indy-genesys-300.html?searchResultPosition=4
+**Police: Ravens' Thomas Threatened by Wife With Gun in Texas**\
+`The lawyer for the wife of Baltimore Ravens safety Earl Thomas said she is being subjected to an “unfounded ongoing investigation" by Texas police after she allegedly pointed a loaded gun at her husband's head upon finding him in bed with another woman last month.`\
+https://nytimes.com/aponline/2020/05/07/sports/football/ap-fbn-ravens-thomas.html?searchResultPosition=4
 
-**Latvia Approves Investment in airBaltic Amid Virus Crisis**\
-`Latvia's government on Thursday gave the go-ahead to an investment of up to 250 million euros ($271 million) in airBaltic to help the airline get through the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/05/07/world/asia/07reuters-health-coronavirus-airbaltic-investment.html?searchResultPosition=5
+**White House Blocks C.D.C. Guidance Over Economic and Religious Concerns**\
+`Detailed guidelines for reopening drafted by the Centers for Disease Control and Prevention were blocked from publication after Trump administration officials labeled them “overly prescriptive.”`\
+https://nytimes.com/2020/05/07/us/politics/trump-cdc.html?searchResultPosition=5
 
-**Fed's Barkin: Negative Interest Rates Not Suitable for United States**\
-`There is nothing to suggest that negative interest rates would be a suitable option for the United States, Richmond Federal Reserve president Thomas Barkin said on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/us/07reuters-usa-fed-barkin-rates.html?searchResultPosition=6
+**Wonderful Feeling: After 75 Years, Berliner Recalls End of WW2 in Europe**\
+`As a 15-year-old boy in the capital of Nazi Germany during the final days of the Battle of Berlin in 1945, Guenter Boehm recalls the relief when he realised German soldiers had disappeared and the sound of gunfire had stopped.`\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-ww2-anniversary-germany.html?searchResultPosition=6
 
-**U.S. Stock Funds Shed $10.8 Million in Week: Lipper**\
-`U.S.-based stock funds posted $10.8 billion in outflows in the week ended ON Wednesday, according to Lipper.`\
-https://nytimes.com/reuters/2020/05/07/business/07reuters-usa-investments-mutualfunds.html?searchResultPosition=7
+**Merkel and Pope Francis Want to Help Poor Countries Face Pandemic**\
+`German Chancellor Angela Merkel and Pope Francis discussed the effects of the coronavirus pandemic on the world in a phone call on Thursday and agreed on the need to help poorer countries, her spokesman said.`\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-merkel-pope.html?searchResultPosition=7
 
-**Free Beer! German Brewery Gives Away Beverages It Can't Sell**\
-`Unable to deliver to hotels and restaurants closed due to coronavirus restrictions, a German brewery on Thursday gave away some 2,600 litres (690 gallons) of beer.`\
-https://nytimes.com/reuters/2020/05/07/business/07reuters-health-coronavirus-germany-beer.html?searchResultPosition=8
+**Croatia's Defense Minister Resigns After Fatal Plane Crash**\
+`Croatia's defense minister resigned Thursday after an air force training plane crashed in the southwest of the country, killing both crew members.`\
+https://nytimes.com/aponline/2020/05/07/world/europe/ap-eu-croatia-air-force-crash-1st-ld-writethru.html?searchResultPosition=8
 
-**Trump Says His Administration Is Talking to Republican Senators About Work Visa Issue**\
-`President Donald Trump said on Thursday his administration is talking to Republican senators about work visa issues, amid the coronavirus outbreak that has wreaked havoc on the U.S. economy.`\
-https://nytimes.com/reuters/2020/05/07/us/politics/07reuters-health-coronavirus-usa-visas.html?searchResultPosition=9
+**Fighters Tested on Arrival Ahead of UFC Return in Florida**\
+`Fighters taking part in Saturday's UFC 249 card in Jacksonville, Florida have been tested on arrival and many have been isolating  in their rooms as the mixed martial arts promotion prepares to to get back to business in the wake of the COVID-19 pandemic. `\
+https://nytimes.com/reuters/2020/05/07/sports/07reuters-health-coronavirus-mma-ufc.html?searchResultPosition=9
 
-**U.S. Coronavirus Deaths Exceed 75,000: Reuters Tally**\
-`U.S. deaths from the novel coronavirus topped 75,000 deaths on Thursday, according to a Reuters tally, after the White House shelved a step-by-step guide prepared by health officials to help states safely reopen.`\
-https://nytimes.com/reuters/2020/05/07/us/07reuters-health-coronavirus-usa-casualties.html?searchResultPosition=10
+**Amazon Planning to Extend Closure of French Warehouses Until May 13**\
+`Amazon plans to extend the closure of its French warehouses until May 13 included, the e-commerce giant said on Thursday.`\
+https://nytimes.com/reuters/2020/05/07/technology/07reuters-health-coronavirus-amazon-france.html?searchResultPosition=10
 
