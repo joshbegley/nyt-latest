@@ -1,4 +1,4 @@
-**Germany’s Bundesliga to Return Next Saturday**\
+**Germany’s Bundesliga to Return May 16**\
 `The league will be the focus of the soccer world when play resumes. Its fate may determine what happens to sports well beyond Germany’s border.`\
 https://nytimes.com/2020/05/07/sports/germany-soccer-bundesliga-coronavirus.html?searchResultPosition=1
 
