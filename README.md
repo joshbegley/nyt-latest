@@ -1,36 +1,36 @@
+**10 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2020/05/07/books/review/10-new-books-to-read-this-week.html?searchResultPosition=2
+
+**Never Had It So Bad? Plague, Weather and War Did Worse to the UK Economy**\
+`For anyone pondering how the coronavirus outbreak is about to deliver the British economy's worst year in modern history, only a handful of things have wrought such severe and sudden damage in the past: weather, war and pestilence. `\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-britain-economy.html?searchResultPosition=3
+
+**Ukraine Wants to Finish Talks With IMF Next Week: Finance Ministry**\
+`Ukrainian Finance Ministry said on Thursday the government planned to complete talks with the International Monetary Fund about a new loan next week.`\
+https://nytimes.com/reuters/2020/05/07/business/07reuters-imf-ukraine.html?searchResultPosition=4
+
+**France's Coronavirus Death Toll Just Below 26,000**\
+`The number of people who have died from a coronavirus infection in France was up 178 or 0.7% to 25,987 on Thursday, the lowest rate of increase in four days.`\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-france-casualties.html?searchResultPosition=5
+
+**Czech Central Bank Surprises With Hefty 75 Bps Rate Cut**\
+`The Czech National Bank cut its main interest rate by a bigger-than-expected 75 basis points on Thursday, bringing borrowing costs ever closer to zero as it seeks to soften the economic blow of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-czech-economy-rates.html?searchResultPosition=6
+
+**Texas Court Orders Release of Dallas Salon Owner Jailed for Reopening**\
+`The salon owner, Shelley Luther, had become a symbol of conservative outrage over state lockdowns and stay-at-home orders.`\
+https://nytimes.com/2020/05/07/us/dallas-salon-owner-shelley-luther.html?searchResultPosition=7
+
+**Supreme Court Is Asked to Block House From Seeing Mueller’s Grand Jury Secrets**\
+`The Justice Department asked the justices to temporarily halt a lower-court order, arguing that the executive branch would suffer irreparable harm if the evidence is disclosed.`\
+https://nytimes.com/2020/05/07/us/politics/mueller-report-grand-jury-evidence.html?searchResultPosition=8
+
 **Set for New Term, Netanyahu Eyes Risky West Bank Annexation**\
 `Now that Israeli Prime Minister Benjamin Netanyahu has secured a new term in office, there seems to be little to prevent him from annexing large parts of the occupied West Bank as early as this summer.`\
-https://nytimes.com/aponline/2020/05/07/world/middleeast/ap-ml-israel-west-bank-annexation.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/05/07/world/middleeast/ap-ml-israel-west-bank-annexation.html?searchResultPosition=9
 
 **France, Favourite Vacation Destination for So Many, Looks Inwards to Save Summer**\
 `The sweeping Atlantic bay in La Baule-Escoublac should be filling up with holidaymakers taking advantage of a series of long weekends in May. Instead the only activity is a bulldozer and excavator reshaping the shoreline.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-france-holidays.html?searchResultPosition=3
-
-**Gulf States Should Consider U.S. Ties When Dealing With China: Official**\
-`Gulf Arab states should consider their relationship with the United States when dealing with China, a U.S. official said on Thursday, as tensions flare between Washington and Beijing in the wake of the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/05/07/world/middleeast/07reuters-health-coronavirus-usa-gulf.html?searchResultPosition=4
-
-**Norway and Britain Negotiators in Brexit Talks Thursday: Norway Foreign Ministry**\
-`Chief negotiators from Norway and Britain met for the first time since Britain's exit from the European Union to discuss the future relationship of the two countries, Norway's Foreign Ministry said on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-britain-eu-norway.html?searchResultPosition=5
-
-**La Scala Opens Virtual Tour During Coronavirus Lockdown**\
-`Milan’s famed La Scala opera house on Thursday unveiled a virtual journey through its ornate premises and rich archives via Google Arts & Culture, with serendipitous timing as theaters throughout Italy and the western world remain closed due to the coronavirus.`\
-https://nytimes.com/aponline/2020/05/07/world/europe/ap-eu-virus-outbreak-italy-la-scala-virtual-tour.html?searchResultPosition=6
-
-**EU Commission Proposes Scrapping Usual Conditions for ESM Use in Virus Battle**\
-`The European Commission on Thursday proposed scrapping the usual conditions for countries using the euro zone's bailout fund as they try to revive their economies hit by the coronavirus epidemic.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-eurozone-esm.html?searchResultPosition=7
-
-**Trump Doing Well After President's Valet Tests Positive for Virus: Conway**\
-`U.S. President Donald Trump is doing well and is very healthy, White House adviser Kellyanne Conway told Fox News on Thursday, after a U.S. military official who worked at the White House was found to have been infected with the novel coronavirus.`\
-https://nytimes.com/reuters/2020/05/07/us/07reuters-health-coronavirus-usa-conway.html?searchResultPosition=8
-
-**Denmark to Allow Reopening of Entire Retail Sector From Monday**\
-`Danish shopping malls will be allowed to open again on Monday as the Nordic country enters its second phase of reopening after the coronavirus lockdown, the government said on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-denmark.html?searchResultPosition=9
-
-**Canada's Aldo Group to Restructure as COVID-19 Pressure Weighs**\
-`Canada's privately held Aldo Group Inc said on Thursday it would restructure under the Companies' Creditors Arrangement Act (CCAA) as the impact of the COVID-19 outbreak weighed on the footwear retailer's business.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-aldo-group-restructuring.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-france-holidays.html?searchResultPosition=10
 
