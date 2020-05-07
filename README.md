@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/05/07/world/asia/07reuters-health-coronavirus-p
 https://nytimes.com/reuters/2020/05/07/business/07reuters-usa-stocks.html?searchResultPosition=7
 
 **DealBook: After the Bailouts, Will Taxes Go Up?**\
-`BlackRock’ C.E.O., Larry Fink, is worried about what happens when the bill for government rescues comes due.`\
+`BlackRock’s C.E.O., Larry Fink, is worried about what happens when the bill for government rescues comes due.`\
 https://nytimes.com/2020/05/07/business/dealbook/coronavirus-bailout-taxes.html?searchResultPosition=8
 
 **Laura Harrier on Rewriting Hollywood in Netflix’s ‘Hollywood’**\
