@@ -1,40 +1,40 @@
+**Brazil's Bolsonaro Authorizes Military to Fight Amazon Destruction**\
+`Brazilian President Jair Bolsonaro has authorized deployment of the armed forces in the Amazon rainforest region to fight deforestation and fires, according to a decree published in the government gazette on Thursday.`\
+https://nytimes.com/reuters/2020/05/07/world/americas/07reuters-brazil-environment.html?searchResultPosition=1
+
+**Philippine TV Network Fights Closure With Court Petition**\
+`The Philippines' largest TV and radio network, which was shut this week by a government regulator, asked the Supreme Court on Thursday to allow it to return to the air amid an uproar over its closure.`\
+https://nytimes.com/aponline/2020/05/07/business/ap-as-philippines-tv-network-closed.html?searchResultPosition=2
+
+**Wildfires in Florida Panhandle Force Hundreds to Evacuate**\
+`More than 1,000 residents were told to move away from fires that a state official called “extremely dangerous.”`\
+https://nytimes.com/2020/05/07/us/florida-wildfire.html?searchResultPosition=3
+
+**Lufthansa Says Is Seeking 9 Bln Eur Bailout**\
+`Lufthansa on Thursday said it is negotiating a 9 billion euro ($9.71 billion) "stabilisation package" with Germany's Federal Economic Stabilization Fund.`\
+https://nytimes.com/reuters/2020/05/07/business/07reuters-lufthansa-germany-bailout.html?searchResultPosition=4
+
+**Fed's Bostic: Recovery Hinges on Permanence of Unemployment**\
+`The strength of any coming U.S. economic recovery will depend on whether the emergency programs rolled out provide an effective "bridge" so companies rehire workers when the health crisis recedes, Atlanta Federal Reserve bank president Raphael Bostic said on Thursday.`\
+https://nytimes.com/reuters/2020/05/07/us/07reuters-health-coronavirus-fed-bostic.html?searchResultPosition=5
+
+**Leaked Reopening Guidance Not Cleared by U.S. Public Health Leaders, Official Says**\
+`A leaked document on how to safely reopen states prepared by officials at the U.S. Centers for Disease Control and Prevention was never cleared by CDC leadership, a White House official said on Thursday, cautioning against "overly prescriptive" guidance.`\
+https://nytimes.com/reuters/2020/05/07/us/07reuters-health-coronavirus-usa-guidance.html?searchResultPosition=6
+
+**Public Masses in Italy to Resume May 18, Ending Bitter Church-State Rift**\
+`Italy's government and Roman Catholic bishops signed an agreement on Thursday to allow the faithful to attend Masses again from later this month, ending a standoff between the Church and state over the coronavirus lockdown.`\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-italy-church.html?searchResultPosition=7
+
+**U.S. Demand for Cars Expected to Rebound While Travel, Dining Lag: Ad Agency**\
+`Consumer demand for cars could begin to recover this month in the United States after steep declines due to the coronavirus pandemic, but the hard-hit travel and dining industries will likely continue to face difficult times, according to a major U.S. advertising agency.`\
+https://nytimes.com/reuters/2020/05/07/us/07reuters-health-coronavirus-advertising.html?searchResultPosition=8
+
 **Coronavirus Lockdown Measures in Moscow Extended Till May 31, Mayor Says**\
 `Restrictions aimed at containing the spread of the novel coronavirus in Moscow have been extended until May 31, Moscow Mayor Sergei Sobyanin said on Thursday in a blog post on his personal website.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-moscow-lockdown.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-moscow-lockdown.html?searchResultPosition=9
 
 **French Open Ticket Holders to Be Reimbursed: Organisers**\
 `All tickets purchased for this year's French Open are going to be cancelled and reimbursed instead of being transferred, after the tournament was delayed by four months, organisers said on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/sports/tennis/07reuters-health-coronavirus-tennis.html?searchResultPosition=2
-
-**GSK Tests Experimental Drug to Treat Pneumonia From COVID-19**\
-`GlaxoSmithKline has started a trial to test an experimental rheumatoid arthritis drug on patients suffering from COVID-19 related pneumonia, after screening its drugs for potential in the fight against the coronavirus.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-gsk-otilimab.html?searchResultPosition=3
-
-**Harley-Davidson Names Jochen Zeitz as CEO**\
-`Motorcycle maker Harley-Davidson Inc on Thursday named Jochen Zeitz as chief executive officer. Zeitz has served as acting president and CEO of the company since February 2020.`\
-https://nytimes.com/reuters/2020/05/07/business/07reuters-harley-davidson-ceo.html?searchResultPosition=4
-
-**Forcing Insurance Pay Outs in Pandemic Could Hit Financial Stability-IAIS**\
-`Forcing insurers to retroactively cover business disruption losses from the pandemic could ultimately put financial stability at risk, the International Association of Insurance Supervisors (IAIS) said on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-insurance-regulator.html?searchResultPosition=5
-
-**German Military Spy Chief Apologizes for Israel Map Mistake**\
-`The head of Germany's military counterintelligence agency has apologized for publishing a report containing a map that failed to show the state of Israel.`\
-https://nytimes.com/aponline/2020/05/07/world/europe/ap-eu-germany-israel-map-mistake.html?searchResultPosition=6
-
-**Global Luxury Goods Sales to Slide Up to 35%-Study**\
-`The global luxury goods sector is heading for a stunning collapse of up to 35% this year due to coronavirus lockdowns, according to a new study by the Bain consultancy published Thursday.`\
-https://nytimes.com/aponline/2020/05/07/business/bc-virus-outbreak-luxury-goods.html?searchResultPosition=7
-
-**Poland to Test 1,000 Miners a Day as Coronavirus Grips Coal Region**\
-`Poland plans to test 1,000 miners a day at drive-through sites to check whether they have been infected with the coronavirus as data show a rapid growth in new cases in the coal region.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-poland-miners.html?searchResultPosition=8
-
-**Pope: Ohio Bishop Who Didn't Raise Abuse Concerns Can Quit**\
-`Pope Francis has accepted the resignation of a bishop in Ohio who failed to bring to the attention of superiors concerns about a priest, who has been ordered to stand trial for allegedly raping a young boy. `\
-https://nytimes.com/aponline/2020/05/07/world/europe/ap-eu-rel-vatican-ohio-sex-abuse.html?searchResultPosition=9
-
-**Carved Stone Turtle Unearthed From Angkor Reservoir Site**\
-`Cambodian archaeologists have unearthed a large centuries-old statue of a turtle in an excavation at the famous Angkor temple complex in the country’s northwest.`\
-https://nytimes.com/aponline/2020/05/07/world/asia/ap-as-cambodia-angkor-artifact.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/07/sports/tennis/07reuters-health-coronavirus-tennis.html?searchResultPosition=10
 
