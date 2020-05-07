@@ -1,36 +1,36 @@
+**Top U.S. House Republican Calls for Pause in Coronavirus Legislation**\
+`The top Republican in the U.S. House of Representatives called for a pause in coronavirus legislation on Thursday, saying Congress should first assess the impact of earlier relief bills and then take a slower path forward through committee hearings.`\
+https://nytimes.com/reuters/2020/05/07/us/07reuters-usa-congress-mccarthy.html?searchResultPosition=2
+
+**‘How to Build a Girl’ Review: Write On**\
+`Beanie Feldstein rocks as a nerdy high schooler who transforms into a music critic in this clever comedy.`\
+https://nytimes.com/2020/05/07/movies/how-to-build-a-girl-review.html?searchResultPosition=3
+
+**Factbox: Who Are the First Members of Facebook's Oversight Board?**\
+`Facebook Inc on Wednesday named the first members of its independent oversight board, which will be able to overturn the company's decisions on individual pieces of content and recommend policy changes.`\
+https://nytimes.com/reuters/2020/05/07/business/07reuters-facebook-oversight-members-factbox.html?searchResultPosition=4
+
+**German Woman Accuses French Ex-President of Sexual Assault**\
+`A German journalist has accused former French President Valery Giscard d’Estaing of repeatedly grabbing her during an interview, and filed a sexual assault complaint with Paris prosecutors, according to French and German news reports.`\
+https://nytimes.com/aponline/2020/05/07/world/europe/ap-eu-france-sexual-misconduct-claim.html?searchResultPosition=5
+
+**California Doom: Staggering $54 Billion Budget Deficit Looms**\
+`California will have a budget shortfall of $54.3 billion because of the economic devastation wrought by the coronavirus, Gov. Gavin Newsom's administration announced Thursday, a stunning reversal for a state that had a $21 billion surplus a year ago.`\
+https://nytimes.com/aponline/2020/05/07/business/ap-us-virus-outbreak-california-budget.html?searchResultPosition=6
+
 **The Pleasures and Pitfalls of Obsessing about the Pandemic**\
 `A visual diary by Daehyun Kim.`\
-https://nytimes.com/interactive/2020/05/07/multimedia/seoul-coronavirus-diary.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/05/07/multimedia/seoul-coronavirus-diary.html?searchResultPosition=7
 
 **Governor Softens Order Over Jailed Texas Hair Salon Owner**\
 `Republican Texas Gov. Greg Abbott on Thursday removed jail as a punishment for violating his coronavirus restrictions following outcry by conservatives over a Dallas salon owner who was jailed for refusing to keep her business closed. `\
-https://nytimes.com/aponline/2020/05/07/business/bc-us-virus-outbreak-texas-salon.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/05/07/business/bc-us-virus-outbreak-texas-salon.html?searchResultPosition=8
 
 **Neiman Marcus Files for Chapter 11 Bankruptcy Protection**\
 `Neiman Marcus, the 112-year-old storied luxury department store chain, has filed for Chapter 11 bankruptcy protection, the first department store chain to be toppled by the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/05/07/business/bc-neiman-marcus-bankruptcy.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/05/07/business/bc-neiman-marcus-bankruptcy.html?searchResultPosition=9
 
 **No Yeast at the Store? No Problem. It’s Everywhere in Your Home.**\
 `You just need to corral and nurture the stuff, which should be easy for anyone with some time and patience.`\
-https://nytimes.com/2020/05/07/climate/how-to-make-yeast.html?searchResultPosition=5
-
-**Lloyd's of London to Recover End-2019 Solvency Levels by June-Chairman**\
-`The coronavirus pandemic has hit Lloyd's of London's [SOLYD.UL] solvency levels but the commercial insurance market's capital position should recover by the end of June, its chairman said on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-lloyd-s-of-london.html?searchResultPosition=6
-
-**U.S. Military Killed 132 Civilians in Wars Last Year, Pentagon Says**\
-`The tally has changed little since the previous year’s report, which put the total at 120 civilians killed. Civilian deaths in Afghanistan again eclipsed those in Syria and Iraq.`\
-https://nytimes.com/2020/05/07/world/middleeast/pentagon-civilian-deaths-afghanistan-iraq-syria.html?searchResultPosition=7
-
-**ECB Is 'Undeterred' by German Court Ruling Against Bond Buys: Lagarde**\
-`The European Central Bank is undeterred by a German court ruling demanding that it justify its massive purchases of government bonds or lose the Bundesbank as its main buyer, ECB President Christine Lagarde said on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-ecb-policy-germany.html?searchResultPosition=8
-
-**Airlines Suffering, Turkish Currency Hits All-Time Low**\
-`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Thursday related to national and global response, the work place and the spread of the virus.`\
-https://nytimes.com/aponline/2020/05/07/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=9
-
-**Zoom Buys Security Firm Keybase**\
-`Zoom Video Communications is buying security firm Keybase in an effort to shore up security for its video meetings.`\
-https://nytimes.com/aponline/2020/05/07/business/ap-zoom-keybase.html?searchResultPosition=10
+https://nytimes.com/2020/05/07/climate/how-to-make-yeast.html?searchResultPosition=10
 
