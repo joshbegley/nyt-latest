@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/05/07/world/middleeast/ap-un-united-nations-israel-lebanon.html?searchResultPosition=1
 
 **Gas Leak at LG Polymers Plant in India Kills Six, Over 120 Hospitalised**\
-`A chemical gas leak at an LG Polymers plant in southern India on Thursday killed at least six people, and led to more than 120 people being admitted to hospital and the evacuation of three nearby villages, a local official in Andra Pradesh state said.`\
+`A chemical gas leak at an LG Polymers plant in southern India on Thursday killed at least six people, and led to more than 120 people being admitted to hospital and the evacuation of three nearby villages, a local official in Andhra Pradesh state said.`\
 https://nytimes.com/reuters/2020/05/07/world/asia/07reuters-india-disaster.html?searchResultPosition=2
 
 **Oil Steadies as China Imports Rebound but Glut Weighs**\
