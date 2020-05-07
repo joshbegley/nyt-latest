@@ -1,36 +1,36 @@
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark U.S. crude oil fell 44 cents, or 1.8%, to settle at $23.55 a barrel Thursday. Brent crude oil, the international standard, fell 26 cents, or 0.9% to $29.46 a barrel. `\
-https://nytimes.com/aponline/2020/05/07/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=2
+**F.D.A. Bans 65 Mask Manufacturers**\
+`Citing poor quality, the Food and Drug Administration prohibited dozens of companies from continuing to sell their N95-style face masks here.`\
+https://nytimes.com/2020/05/07/health/fda-bans-masks.html?searchResultPosition=2
 
-**Biden Uses Virtual Events to Target Battleground Florida**\
-`Joe Biden is back on the campaign trail, targeting the critical battleground state of Florida — but without actually leaving home.`\
-https://nytimes.com/aponline/2020/05/07/us/politics/ap-us-election-2020-biden.html?searchResultPosition=3
+**Senators Send Letters to NCAA Leaders With NIL Questions**\
+`The chairman of the Senate Commerce Committee has sent a letter to NCAA leaders, conferences and schools requesting details about how college athletes can be compensated for their names, images and likenesses.`\
+https://nytimes.com/aponline/2020/05/07/sports/ap-us-ncaa-compensating-athletes.html?searchResultPosition=3
 
-**Police: Ravens' Thomas Threatened by Wife With Gun in Texas**\
-`The lawyer for the wife of Baltimore Ravens safety Earl Thomas said she is being subjected to an “unfounded ongoing investigation" by Texas police after she allegedly pointed a loaded gun at her husband's head upon finding him in bed with another woman last month.`\
-https://nytimes.com/aponline/2020/05/07/sports/football/ap-fbn-ravens-thomas.html?searchResultPosition=4
+**Senior Rebel Commander Killed in Yemen Amid Fierce Battles**\
+`A senior Yemeni rebel commander was killed on Thursday, the Shiite rebels announced as fierce battles with government forces intensified along the front lines in the country's central provinces. `\
+https://nytimes.com/aponline/2020/05/07/world/middleeast/ap-ml-yemen.html?searchResultPosition=4
 
-**White House Blocks C.D.C. Guidance Over Economic and Religious Concerns**\
-`Detailed guidelines for reopening drafted by the Centers for Disease Control and Prevention were blocked from publication after Trump administration officials labeled them “overly prescriptive.”`\
-https://nytimes.com/2020/05/07/us/politics/trump-cdc.html?searchResultPosition=5
+**Uber Loses $2.9 Billion, Offloads Bike and Scooter Business**\
+`Uber lost $2.9 billion in the first quarter as its overseas investments were hammered by the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/05/07/business/ap-results-uber.html?searchResultPosition=5
 
-**Wonderful Feeling: After 75 Years, Berliner Recalls End of WW2 in Europe**\
-`As a 15-year-old boy in the capital of Nazi Germany during the final days of the Battle of Berlin in 1945, Guenter Boehm recalls the relief when he realised German soldiers had disappeared and the sound of gunfire had stopped.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-ww2-anniversary-germany.html?searchResultPosition=6
+**Uber Sees Encouraging Signs in Reopening Markets, Posts $2.9 Billion Loss**\
+`Uber Technologies Inc said on Thursday it saw encouraging signs in markets hit by the coronavirus epidemic as it posted a 14% rise in revenue growth, supported by its Uber Eats food-delivery business.`\
+https://nytimes.com/reuters/2020/05/07/business/07reuters-uber-results.html?searchResultPosition=6
 
-**Merkel and Pope Francis Want to Help Poor Countries Face Pandemic**\
-`German Chancellor Angela Merkel and Pope Francis discussed the effects of the coronavirus pandemic on the world in a phone call on Thursday and agreed on the need to help poorer countries, her spokesman said.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-merkel-pope.html?searchResultPosition=7
+**British-Australian Academic Has Repeatedly Attempted Suicide in Iranian Jail: Rights Group**\
+`British-Australian academic Kylie Moore-Gilbert has repeatedly attempted suicide while detained in Iran, the Center for Human Rights in Iran (CHRI), a New York-based advocacy group, said on Thursday.`\
+https://nytimes.com/reuters/2020/05/07/world/middleeast/07reuters-iran-britain-detainee.html?searchResultPosition=7
 
-**Croatia's Defense Minister Resigns After Fatal Plane Crash**\
-`Croatia's defense minister resigned Thursday after an air force training plane crashed in the southwest of the country, killing both crew members.`\
-https://nytimes.com/aponline/2020/05/07/world/europe/ap-eu-croatia-air-force-crash-1st-ld-writethru.html?searchResultPosition=8
+**Fed's Harker Sees Second U.S. Recession in 2021 if Too Quick to Reopen**\
+`The U.`\
+https://nytimes.com/reuters/2020/05/07/us/07reuters-health-coronavirus-fed-harker.html?searchResultPosition=8
 
-**Fighters Tested on Arrival Ahead of UFC Return in Florida**\
-`Fighters taking part in Saturday's UFC 249 card in Jacksonville, Florida have been tested on arrival and many have been isolating  in their rooms as the mixed martial arts promotion prepares to to get back to business in the wake of the COVID-19 pandemic. `\
-https://nytimes.com/reuters/2020/05/07/sports/07reuters-health-coronavirus-mma-ufc.html?searchResultPosition=9
+**Store Workers Become Enforcers of Social Distancing Rules**\
+`Sandy Jensen's customer service job at a Sam's Club in Fullerton, California, normally involves checking members' ID cards at the door and answering questions. But the coronavirus has turned her into a kind of a store sheriff.`\
+https://nytimes.com/aponline/2020/05/07/business/bc-us-virus-outbreak-customer-tensions.html?searchResultPosition=9
 
-**Amazon Planning to Extend Closure of French Warehouses Until May 13**\
-`Amazon plans to extend the closure of its French warehouses until May 13 included, the e-commerce giant said on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/technology/07reuters-health-coronavirus-amazon-france.html?searchResultPosition=10
+**Four: Headquarters**\
+`A trip to YouTube for a conversation with the woman trying to change it.`\
+https://nytimes.com/2020/05/07/podcasts/rabbit-hole-youtube-susan-wojcicki-virus.html?searchResultPosition=10
 
