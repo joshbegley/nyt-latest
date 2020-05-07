@@ -1,40 +1,40 @@
-**An Online Theater Festival Where the Future Is Female**\
-`If this year’s Theatertreffen had gone ahead, it would have featured more women-led productions than ever before. Instead, an online version of the German festival features an even greater proportion.`\
-https://nytimes.com/2020/05/07/theater/theatertreffen.html?searchResultPosition=1
+**Black, Indian and Pakistani People More Likely to Die From COVID-19: UK Stats**\
+`Black people and those of Indian, Bangladeshi and Pakistani ethnicity have a significantly higher chance of dying from COVID-19 than white people, the British statistics office said on Thursday. `\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-britain-ethnicity.html?searchResultPosition=1
 
-**Japan's Mizuho Cuts Profit Estimate by 5% Amid Coronavirus Outbreak**\
-`Mizuho Financial Group Inc, Japan's third-largest lender by assets, on Thursday cut its full-year estimate for group net profit by 5.3% as it books credit-related costs amid the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/05/07/world/asia/07reuters-mizuho-outlook.html?searchResultPosition=2
+**‘The Universe Hit Pause’: The Ripple Effects of Broadway’s Shutdown**\
+`‘Mrs. Doubtfire’ got through three performances before the pandemic intervened. This is the story of what happened next.`\
+https://nytimes.com/2020/05/07/theater/mrs-doubtfire-broadway-shutdown-virus.html?searchResultPosition=2
 
-**European Stocks Lifted by Surprise Rise in Chinese Exports**\
-`European shares rose on Thursday as a surprise rise in China's  exports overshadowed another set of grim results and a warning from Air France-KLM that demand could take "several years" to recover.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-europe-stocks.html?searchResultPosition=3
+**How Hip-Hop Royalty Found a New Home on Instagram Live**\
+`The pandemic halted in-person gatherings, but a new type of party was born on social media, with rap stars leading the charge.`\
+https://nytimes.com/2020/05/07/arts/music/hip-hop-instagram-coronavirus.html?searchResultPosition=3
 
-**Dua Lipa’s ‘Physical’ Gets You Moving. See How She Makes a Dance Hit.**\
-`Watch how a tarot card reading, alpacas and a wacky flute sample conspired to create the ’80s throwback dance track “Physical” for the pop star Dua Lipa.`\
-https://nytimes.com/video/arts/music/100000007062893/dua-lipa-physical-song.html?searchResultPosition=4
+**Here’s What the First Night of the Subway Shutdown Looked Like**\
+`New York City’s subway closed overnight for the first time since 1904. We sent six photographers to document how it unfolded.`\
+https://nytimes.com/2020/05/07/nyregion/subway-shut-down-cleaning.html?searchResultPosition=4
 
-**Pictet Sees More Market Turbulence Ahead, Cautious on Stocks**\
-`Pictet Asset Management said on Thursday it remained cautious on equities as more turbulence in markets was likely given the possibility of a second wave of infections from the coronavirus.`\
-https://nytimes.com/reuters/2020/05/07/business/07reuters-health-coronavirus-markets-pictet.html?searchResultPosition=5
+**His Day Job: Cory Booker’s Top Aide. His Night One: E.M.S. Volunteer.**\
+`When coronavirus cases rose in New Jersey, Matt Klapper, a former firefighter and ambulance crew chief, answered a call for retired medical workers to help out.`\
+https://nytimes.com/2020/05/07/us/politics/coronavirus-new-jersey.html?searchResultPosition=5
 
-**Nintendo Marks Profit Jump as People Stay Home Amid Pandemic**\
-`Japanese video-game maker Nintendo Co. scored a 33% jump in annual profit, as people stuck at home turn to playing games. `\
-https://nytimes.com/aponline/2020/05/07/business/bc-as-japan-earns-nintendo.html?searchResultPosition=6
+**As Restaurants Remain Shuttered, American Cities Fear the Future**\
+`Restaurants have become the economic lifeblood for many cities. The coronavirus threatens to take away more than just delicious food.`\
+https://nytimes.com/2020/05/07/us/politics/coronavirus-restaurants-closings.html?searchResultPosition=6
 
-**Dutch Agency Will Review Government Performance During Coronavirus**\
-`The Dutch Safety Board said on Thursday it would conduct an independent investigation and review of the country's preparedness and government performance during the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-netherlands-investigation.html?searchResultPosition=7
+**Knock, Knock, Who’s There? No Political Canvassers, for the First Time Maybe Ever**\
+`Candidates and political parties are struggling to plan for a fall campaign without some of the most basic building blocks of politics.`\
+https://nytimes.com/2020/05/07/us/politics/2020-elections.html?searchResultPosition=7
 
-**July 12 Is Possible Date for Poland's Postponed Election**\
-`A spokesman for Poland’s ruling party said Thursday that July 12 is a potential new date for the presidential election that will not take place Sunday as previously scheduled.`\
-https://nytimes.com/aponline/2020/05/07/world/europe/ap-eu-poland-politics.html?searchResultPosition=8
+**Boom in Canned Food Means a Boom in Cans, Too**\
+`With soup and vegetables flying off supermarket shelves to feed a shut-in nation, canneries are bustling — and they really need metal containers.`\
+https://nytimes.com/2020/05/07/business/coronavirus-cans-food.html?searchResultPosition=8
 
-**German Economy Minister: We'll Prevent Lufthansa From Being Sold Out**\
-`The German government will prevent Lufthansa, the country's flagship carrier, from being sold out, Economy Minister Peter Altmaier told Bild newspaper on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/business/07reuters-lufthansa-report.html?searchResultPosition=9
+**Sports Begin to Reawaken in a Changed World**\
+`The rules differ among counties, states and countries, but the athletic world is beginning to creep toward competition again.`\
+https://nytimes.com/2020/05/07/sports/coronavirus-sports-restarting-golf-nba.html?searchResultPosition=9
 
-**China, U.S. Trade Negotiators to Hold Talks as Early as Next Week: Bloomberg**\
-`Trade negotiators from the United States and China will hold a phone call as early as next week, Bloomberg reported on Thursday, citing people familiar with the matter.`\
-https://nytimes.com/reuters/2020/05/07/world/asia/07reuters-usa-trade-china-talks.html?searchResultPosition=10
+**Catch Up on Korean Cinema From Your Couch**\
+`“Parasite” is hardly the only export worth popping a bowl of popcorn for.`\
+https://nytimes.com/2020/05/07/at-home/coronavirus-free-korean-films.html?searchResultPosition=10
 
