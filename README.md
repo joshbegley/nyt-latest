@@ -1,36 +1,36 @@
+**Becton Dickinson to Boost Testing Capacity for Potential Second COVID-19 Wave**\
+`Medical technology company Becton Dickinson and Co said on Thursday it was preparing to ramp up manufacturing operations to handle demand for COVID-19 testing kits in the event of a second wave of infections in the fall.`\
+https://nytimes.com/reuters/2020/05/07/us/07reuters-health-coronavirus-bd.html?searchResultPosition=2
+
+**Royals Learning About New Manager During Stay-At-Home Orders**\
+`When the Kansas City Royals learned that spring training was over and they were headed home, with questions swirling around if and when they might start the season, Mike Matheny sent them each a copy of a book called “Legacy.”`\
+https://nytimes.com/aponline/2020/05/07/sports/baseball/ap-bba-royals-meeting-mike.html?searchResultPosition=3
+
+**The Polarizing Power of Orange Wine**\
+`The best examples of these white wines, made with red techniques, are striking and wonderful. Still some dismiss this ancient wine, now trendy once more.`\
+https://nytimes.com/2020/05/07/dining/drinks/orange-wine-skin-contact.html?searchResultPosition=4
+
+**Zoom, Xoom, Züm: Why Does Every Start-Up Sound Fast Now?**\
+`An investigation into Zoomd, Zoomi, Zoomy and Zoomies. Also, Zoomin. And Zoomvy and Zoomly. And …`\
+https://nytimes.com/2020/05/07/technology/zooooooooooooom.html?searchResultPosition=5
+
+**The Pandemic May Change How We Treat Low-Income Parents**\
+`Will the outbreak shift long-held attitudes about Americans in poverty?`\
+https://nytimes.com/2020/05/07/parenting/coronavirus-low-income-families.html?searchResultPosition=6
+
+**Nats' Star Ryan Zimmerman's AP Diary: South Korean Baseball**\
+`EDITOR’S NOTE: Ryan Zimmerman is a two-time All-Star infielder who has played 15 years in the majors, all with the Washington Nationals.`\
+https://nytimes.com/aponline/2020/05/07/sports/baseball/ap-bbo-virus-outbreak-zimmermans-ap-diary.html?searchResultPosition=7
+
 **US Won't Seek Recall of Millions of Takata Air Bag Inflators**\
 `The U.S. government's highway safety agency will not force automakers to recall millions of newer Takata air bag inflators, citing industry research that shows the devices are safe.`\
-https://nytimes.com/aponline/2020/05/07/business/ap-us-air-bags-monitoring.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/05/07/business/ap-us-air-bags-monitoring.html?searchResultPosition=8
 
 **AP Week in Pictures, Middle East**\
 `This photo gallery highlights some of the most compelling images made or published by Associated Press photographers in the Middle East, Afghanistan & Pakistan Region between April 30-May 6, 2020.`\
-https://nytimes.com/aponline/2020/05/07/us/ap-ml-pictures-of-the-week-in-the-middle-eastphoto-gallery.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/05/07/us/ap-ml-pictures-of-the-week-in-the-middle-eastphoto-gallery.html?searchResultPosition=9
 
 **As Local Health Systems Buckle, Russia’s Oligarchs Take Charge**\
 `The growing role of business tycoons in the fight against the coronavirus highlights the weaknesses of the state apparatus built by President Vladimir V. Putin.`\
-https://nytimes.com/2020/05/07/world/europe/oligarchs-russia-coronavirus.html?searchResultPosition=4
-
-**Where the Small Business Relief Loans Have Gone**\
-`A centerpiece of the government’s stimulus program directed many early loans to parts of the country that were not as hard hit, as well as to a small number of companies seeking millions in assistance.`\
-https://nytimes.com/interactive/2020/05/07/business/small-business-loans-coronavirus.html?searchResultPosition=5
-
-**Rare Inflammatory Condition Affects Some Kids With COVID-19**\
-`Dozens of U.S. children have been hospitalized with a serious inflammatory condition possibly linked with the coronavirus and first seen in Europe.`\
-https://nytimes.com/aponline/2020/05/07/health/ap-us-med-virus-outbreak-kids-rare-syndrome.html?searchResultPosition=6
-
-**Pence: Citation for Small Church Service 'Beyond the Pale'**\
-`Vice President Mike Pence says it is “beyond the pale” that the pastor of a Virginia church was issued a criminal citation for having 16 people at a Palm Sunday service that authorities claim violated the state's coronavirus restrictions.`\
-https://nytimes.com/aponline/2020/05/07/us/ap-us-virus-outbreak-church-lawsuit.html?searchResultPosition=7
-
-**What’s Going On in This Graph? | May 13, 2020**\
-`How long will it take to produce a Covid-19 vaccine? These three graphs provide some answers.`\
-https://nytimes.com/2020/05/07/learning/whats-going-on-in-this-graph-may-13-2020.html?searchResultPosition=8
-
-**Small Change: Smaller Stocks Are Making a Bigger Noise**\
-`It’s just a small change so far, but smaller stocks may finally be wresting some of investors’ attention away from the huge companies that have so dominated the market for years.`\
-https://nytimes.com/aponline/2020/05/07/business/ap-off-the-charts-small-revival.html?searchResultPosition=9
-
-**Indianapolis Police Officer Fatally Strikes Pregnant Woman**\
-`An Indianapolis police officer on his way to work struck and killed a pregnant woman who was walking on an expressway ramp, police said Thursday.`\
-https://nytimes.com/aponline/2020/05/07/us/ap-us-indianapolis-police-pedestrian-killed-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/2020/05/07/world/europe/oligarchs-russia-coronavirus.html?searchResultPosition=10
 
