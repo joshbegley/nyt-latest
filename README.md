@@ -1,40 +1,40 @@
-**The Jobs Report Friday Will Be a Portrait of Devastation**\
-`For such numbers, there are no words.`\
-https://nytimes.com/2020/05/07/upshot/jobs-report-portrait-devastation.html?searchResultPosition=1
+**Saudi Arabia Forms Police Unit to Enforce Coronavirus Curbs on Social Gatherings: State News Agency**\
+`Saudi Arabia has formed a police unit to monitor violations of rules banning gatherings of more than five people imposed to curb the spread of the coronavirus, the state news agency SPA said on Thursday.`\
+https://nytimes.com/reuters/2020/05/07/world/middleeast/07reuters-health-coronavirus-saudi-gatherings.html?searchResultPosition=1
 
-**‘Rewind’ Review: Filmmaking as Therapy**\
-`In a disturbingly personal documentary, a filmmaker looks back on his experience of being sexually abused as a child.`\
-https://nytimes.com/2020/05/07/movies/rewind-review-filmmaking-as-therapy.html?searchResultPosition=2
+**Fashion Shift Online Picks Up Even as Stores Reopen**\
+`Retailers selling fashion online are emerging as the winners of the coronavirus crisis as consumers are staying home even as stores start to reopen, results from major companies showed on Thursday.`\
+https://nytimes.com/reuters/2020/05/07/business/07reuters-europe-retail-fashion.html?searchResultPosition=2
 
-**‘Clementine’ Review: Lovers by the Lake**\
-`A trite premise is stretched glacially over 90 minutes in this erotic thriller that runs low on both erotics and thrills.`\
-https://nytimes.com/2020/05/07/movies/clementine-review.html?searchResultPosition=3
+**Kohl's to Reopen 25% of Stores as States Lift Lockdown Restrictions**\
+`Kohl's Corp said on Thursday it plans to reopen a quarter of its stores by next week, as retailers start to get business going again in states where coronavirus-induced lockdown restrictions have eased.`\
+https://nytimes.com/reuters/2020/05/07/business/07reuters-health-coronavirus-kohls.html?searchResultPosition=3
 
-**‘A Good Woman Is Hard to Find’ Review: Driven to Extremes**\
-`A riveting Sarah Bolger adds emotional weight to this revenge tale.`\
-https://nytimes.com/2020/05/07/movies/a-good-woman-is-hard-to-find-review.html?searchResultPosition=4
+**PayPal, Square Eye Boost as Crisis Spurs Online Shopping Shift**\
+`Wall Street analysts looked past a surprisingly shaky first quarter for payment processors PayPal Holdings Inc and Square Inc hoping that the shift towards more online buying will see their businesses surge this year.`\
+https://nytimes.com/reuters/2020/05/07/business/07reuters-payment-processors-stocks.html?searchResultPosition=4
 
-**Where Are Your Jobless Benefits?**\
-`Thursday: Millions have applied for unemployment insurance in California. Here’s what you need to know now. Also: Find a testing site near you.`\
-https://nytimes.com/2020/05/07/us/unemployment-benefits-edd-california.html?searchResultPosition=5
+**Greece to Reopen Ancient Monuments This Month as It Eases Coronavirus Ban**\
+`After standing empty for two months, Greece's ancient sites, including the Acropolis hill towering over Athens, will reopen to visitors on May 18, authorities said on Thursday. `\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-greece.html?searchResultPosition=5
 
-**Why Should Our Daughter Be Left Out of Pandemic Playtime?**\
-`My wife works in an emergency room. One neighborhood family has asked that we keep our child away from the other kids.`\
-https://nytimes.com/2020/05/07/style/children-playing-lockdown-coronavirus.html?searchResultPosition=6
+**Dubai in Talks for Financing Backed by Road Toll Revenue: Sources**\
+`Dubai is in talks with banks to raise a financing worth billions of dollars which would be backed by road toll revenue, one of the main income generators for the government amid the coronavirus crisis, three sources familiar with the matter said.`\
+https://nytimes.com/reuters/2020/05/07/world/middleeast/07reuters-emirates-economy-dubai-debt.html?searchResultPosition=6
 
-**Egypt Extends Nationwide Nighttime Curfew Until End of Ramadan**\
-`Egypt extended a nationwide nighttime curfew until end of the holy month of Ramadan to slow the spread of the new coronavirus,  Prime Minister Mostafa Madbouly said on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/world/middleeast/07reuters-health-coronavirus-curfew.html?searchResultPosition=7
+**New Banksy Art Unveiled at Hospital to Thank Doctors, Nurses**\
+`A new work by the elusive street artist Banksy, honoring health workers, has been unveiled at a British hospital.`\
+https://nytimes.com/aponline/2020/05/07/world/europe/ap-eu-virus-outbreak-britain-new-banksy.html?searchResultPosition=7
 
-**Bundesliga Soccer to Resume on May 16 in Empty Stadiums**\
-`The Bundesliga soccer season will resume on May 16 in empty stadiums, picking up right where it left off two months ago amid the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/05/07/sports/soccer/ap-soc-bundesliga-restart.html?searchResultPosition=8
+**ËU Executive Seeks Supervisor of Anti-Money Laundering Fight**\
+`The European Union's executive arm unveiled plans Thursday for improving how money laundering and financing for extremist groups are countered across the 27-country bloc, with the goal of creating a supervising authority to ensure every member nation follows EU rules. `\
+https://nytimes.com/aponline/2020/05/07/business/bc-eu-money-laundering.html?searchResultPosition=8
 
-**US Productivity Drops Sharp 2.5% in Q1 as Labor Costs Rise**\
-`U.S. productivity fell a sharp 2.5% in the first three months of this year as labor costs jumped 4.8%.`\
-https://nytimes.com/aponline/2020/05/07/business/bc-us-productivity.html?searchResultPosition=9
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties include a four-bedroom in Irvington, N.Y., and a six-bedroom in Monroe, Conn.`\
+https://nytimes.com/2020/05/07/realestate/homes-for-sale-in-new-york-and-connecticut.html?searchResultPosition=9
 
-**UK Will Announce Very Limited Easing of Lockdown, PM Johnson's Spokesman Says**\
-`Prime Minister Boris Johnson will announce a very limited easing of Britain's coronavirus lockdown next week, adopting a cautious approach to ensure there is no second peak of infections, his spokesman said on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-britain-johnson.html?searchResultPosition=10
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in Chelsea, Manhattan Valley and Mill Basin.`\
+https://nytimes.com/2020/05/07/realestate/homes-for-sale-in-manhattan-and-brooklyn.html?searchResultPosition=10
 
