@@ -26,7 +26,7 @@ https://nytimes.com/reuters/2020/05/07/world/asia/07reuters-health-coronavirus-w
 `Even before they check in to the hotel, every fighter, coach, cameraman, journalist and UFC employee arriving in Jacksonville, Florida, is immediately directed to a screening station. Their temperatures are taken, and their fingers are pricked for a coronavirus antibody test.`\
 https://nytimes.com/aponline/2020/05/07/sports/ap-mma-ufc-249-staying-safe.html?searchResultPosition=8
 
-**Utah Gun Advocate Looses Appeal to Block Bump Stock Ban**\
+**Utah Gun Advocate Loses Appeal to Block Bump Stock Ban**\
 `A U.S. appeals court on Thursday ruled against a Utah gun rights advocate who challenged the Trump administration’s ban on bump stocks, the gun attachments that allow semi-automatic weapons to fire like machine guns. `\
 https://nytimes.com/aponline/2020/05/07/us/ap-us-bump-stock-ban.html?searchResultPosition=9
 
