@@ -1,40 +1,40 @@
-**Turkey Says It Is Still Delivering Parts for U.S. F-35 Jets**\
-`Turkey is still producing and delivering parts for U.S. F-35 jets despite being suspended from the program nearly a year ago over its purchase of a Russian anti-aircraft defense system, Defence Industry Director Ismail Demir said on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-usa-turkey-defence.html?searchResultPosition=1
+**The Jobs Report Friday Will Be a Portrait of Devastation**\
+`For such numbers, there are no words.`\
+https://nytimes.com/2020/05/07/upshot/jobs-report-portrait-devastation.html?searchResultPosition=1
 
-**For Workers, No Sign of ‘What Normal Is Going to Look Like’**\
-`Initial steps to reopen businesses have yet to offset continuing job losses, with a “secondary wave” of layoffs hitting white-collar industries.`\
-https://nytimes.com/2020/05/07/business/economy/coronavirus-unemployment-claims.html?searchResultPosition=2
+**‘Rewind’ Review: Filmmaking as Therapy**\
+`In a disturbingly personal documentary, a filmmaker looks back on his experience of being sexually abused as a child.`\
+https://nytimes.com/2020/05/07/movies/rewind-review-filmmaking-as-therapy.html?searchResultPosition=2
 
-**Bosnia Sets Local Polls for October 4, but Mostar Excluded Again**\
-`Bosnia will hold local elections on Oct. 4 but Mostar, an ethnically divided town in the south of the Balkan country where no vote has been held since 2008, will be exempted again, the state election authority said on Thursday.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-bosnia-election.html?searchResultPosition=3
+**‘Clementine’ Review: Lovers by the Lake**\
+`A trite premise is stretched glacially over 90 minutes in this erotic thriller that runs low on both erotics and thrills.`\
+https://nytimes.com/2020/05/07/movies/clementine-review.html?searchResultPosition=3
 
-**Leaving Lockdown, Entering Recession: Strike in Spain Shows Workers’ Fears**\
-`Two days after Nissan reopened its main car factory in Barcelona, a walkout at a smaller plant forced production to halt. It may be a hint of what’s to come.`\
-https://nytimes.com/2020/05/07/business/spain-nissan-strike-recession.html?searchResultPosition=4
+**‘A Good Woman Is Hard to Find’ Review: Driven to Extremes**\
+`A riveting Sarah Bolger adds emotional weight to this revenge tale.`\
+https://nytimes.com/2020/05/07/movies/a-good-woman-is-hard-to-find-review.html?searchResultPosition=4
 
-**Finland's Government to Work Remotely Due to Possible Coronavirus Exposure**\
-`Finland's government will work remotely at least until the end of this week as a precaution, it said on Thursday, after two ministers were possibly exposed to the coronavirus this week.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-finland-government.html?searchResultPosition=5
+**Where Are Your Jobless Benefits?**\
+`Thursday: Millions have applied for unemployment insurance in California. Here’s what you need to know now. Also: Find a testing site near you.`\
+https://nytimes.com/2020/05/07/us/unemployment-benefits-edd-california.html?searchResultPosition=5
 
-**Israeli Parliament Passes Bill Paving Path to New Government**\
-`The Israeli parliament passed legislation Thursday approving a new coalition government framework and paving the path for Prime Minister Benjamin Netanyahu and his rival-turned-partner to join together in a controversial power-sharing deal.`\
-https://nytimes.com/aponline/2020/05/07/world/middleeast/ap-ml-israel-politics.html?searchResultPosition=6
+**Why Should Our Daughter Be Left Out of Pandemic Playtime?**\
+`My wife works in an emergency room. One neighborhood family has asked that we keep our child away from the other kids.`\
+https://nytimes.com/2020/05/07/style/children-playing-lockdown-coronavirus.html?searchResultPosition=6
 
-**'What's the Point of Staying?': Gulf Faces Expatriate Exodus**\
-`A popular Saudi talk show host told private businesses this week it was their national duty to lay off foreign rather than local employees, warning that the dominance of Saudi Arabia's workforce by expatriates was a "real danger".`\
-https://nytimes.com/reuters/2020/05/07/world/middleeast/07reuters-health-coronavirus-gulf-jobs.html?searchResultPosition=7
+**Egypt Extends Nationwide Nighttime Curfew Until End of Ramadan**\
+`Egypt extended a nationwide nighttime curfew until end of the holy month of Ramadan to slow the spread of the new coronavirus,  Prime Minister Mostafa Madbouly said on Thursday.`\
+https://nytimes.com/reuters/2020/05/07/world/middleeast/07reuters-health-coronavirus-curfew.html?searchResultPosition=7
 
-**Italy Impounds Migrant Rescue Ships; Charities Claim Harassment**\
-`Italian coastguards have seized two charity rescue boats at the port of Palermo citing "technical and operational" irregularities, which the owners called an excuse to hinder missions to save the lives of migrants at sea.`\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-europe-migrants-italy.html?searchResultPosition=8
+**Bundesliga Soccer to Resume on May 16 in Empty Stadiums**\
+`The Bundesliga soccer season will resume on May 16 in empty stadiums, picking up right where it left off two months ago amid the coronavirus outbreak.`\
+https://nytimes.com/aponline/2020/05/07/sports/soccer/ap-soc-bundesliga-restart.html?searchResultPosition=8
 
-**Turkey's Lira Hits Record Low Against Dollar Amid Pandemic**\
-`Turkey’s currency dropped to an all-time low against the dollar on Thursday as the country struggles with the economic impact of the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/05/07/business/bc-eu-virus-outbreak-turkey-lira.html?searchResultPosition=9
+**US Productivity Drops Sharp 2.5% in Q1 as Labor Costs Rise**\
+`U.S. productivity fell a sharp 2.5% in the first three months of this year as labor costs jumped 4.8%.`\
+https://nytimes.com/aponline/2020/05/07/business/bc-us-productivity.html?searchResultPosition=9
 
-**Putin Warns Global Market Rivalry Rising Amid Coronavirus Pandemic**\
-`Russian President Vladimir Putin said on Thursday that international rivalry on global markets was rising because of a fall in demand caused by the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-russia-putin.html?searchResultPosition=10
+**UK Will Announce Very Limited Easing of Lockdown, PM Johnson's Spokesman Says**\
+`Prime Minister Boris Johnson will announce a very limited easing of Britain's coronavirus lockdown next week, adopting a cautious approach to ensure there is no second peak of infections, his spokesman said on Thursday.`\
+https://nytimes.com/reuters/2020/05/07/world/europe/07reuters-health-coronavirus-britain-johnson.html?searchResultPosition=10
 
