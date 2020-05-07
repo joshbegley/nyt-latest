@@ -1,5 +1,5 @@
 **Democrats to Appeal Reinstatement of NY Presidential Primary**\
-`Democratic members of the state’s Board of Elections filed an appeal Wednesday to a federal judge's reinstatement of the New York presidential primary.`\
+`Democratic members of the state’s Board of Elections filed an appeal Wednesday of a federal judge's reinstatement of the New York presidential primary.`\
 https://nytimes.com/aponline/2020/05/06/us/ap-us-election-2020-new-york-primary.html?searchResultPosition=1
 
 **AP PHOTOS: Animals at Closed Zoo Depend on Helping Hands**\
