@@ -1,40 +1,40 @@
+**Russian Central Bank Will Consider 100 Bp Rate Cut in June, Governor Says**\
+`Russia's central bank will consider cutting its key rate by 100 basis points in June, its governor Elvira Nabiullina said on Friday, opening the door for a bigger cut than the market had expected as the country battles the new coronavirus.`\
+https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-russia-cenbank-nabiullina-rates.html?searchResultPosition=1
+
+**Boeing Expects to Start 737 MAX Production in May: Fox Business News**\
+`Boeing Co expects to start production of grounded 737 MAX jet this month, Chief Executive Officer David Calhoun said https://bit.ly/2Ab5t2R in an interview with Fox Business News on Friday.`\
+https://nytimes.com/reuters/2020/05/08/us/08reuters-boeing-737max.html?searchResultPosition=2
+
+**Iran Allows Prayer Gatherings in Areas Seen as Low Coronavirus Risk**\
+`Friday prayer gatherings resumed in up to 180 Iranian cities and towns seen as only at low risk of coronavirus contagion after a two-month suspension, state media reported.`\
+https://nytimes.com/reuters/2020/05/08/world/middleeast/08reuters-health-coronavirus-iran-prayers.html?searchResultPosition=3
+
+**U.S. Jobless Rate Likely to Move Higher in Month Ahead: White House Adviser**\
+`The U.S. unemployment rate is likely to move up to around 20% this month from an already historically high 14.7%, a White House adviser said on Friday, adding the economy should transition to stronger footing in the summer.`\
+https://nytimes.com/reuters/2020/05/08/us/08reuters-health-coronavirus-usa-hassett.html?searchResultPosition=4
+
+**What to Cook This Weekend**\
+`Cook for mom, and make pancakes, a springy asparagus soup, or a carrot cake, or cook for yourself, and make a flawless bacon, egg and cheese sandwich.`\
+https://nytimes.com/2020/05/08/dining/what-to-cook-this-weekend.html?searchResultPosition=5
+
+**5 New Comedy Specials to Remind You of the Old Normal**\
+`The featured comedians, including Jerry Seinfeld, developed much of their material before the quarantine. Their bits can lighten your mood in unexpected ways.`\
+https://nytimes.com/2020/05/08/arts/television/best-new-comedy-specials.html?searchResultPosition=6
+
+**India Government Sharply Increases Borrowing, Markets Watch Central Bank**\
+`The Indian government plans to borrow 12 trillion rupees ($160 billion) in the fiscal year to March 2021, up from the previously budgeted 7.8 trillion rupees to cushion the blow from the new coronavirus pandemic, it said on Friday.`\
+https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-india-borrowing-markets.html?searchResultPosition=7
+
+**Opera Star Sings Britain's VE Day Hits From an Empty Albert Hall**\
+`Welsh mezzo-soprano Katherine Jenkins will stream a concert from an empty Royal Albert Hall on Friday evening, as locked-down Britain marks the 75th anniversary of "Victory in Europe" Day.`\
+https://nytimes.com/reuters/2020/05/08/arts/08reuters-ww2-anniversary-britain-victory-day-concert-preview.html?searchResultPosition=8
+
 **Turkey Plans Nearly $3-Billion Capital Injection for State Banks, Sources Say**\
 `Turkey aims to inject roughly 20 billion lira ($2.81 billion) of new capital into three state banks - Ziraat Bank, Halkbank and Vakifbank - in coming days, two banking sources told Reuters on Friday. `\
-https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-turkey-banks-capital.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-turkey-banks-capital.html?searchResultPosition=9
 
 **EU Aiming to Agree First Part of Coronavirus Economic Rescue, but Work Unfinished**\
 `Euro zone governments are working to give their final approval, later on Friday, of the first part of a 500 billion-euro rescue plan for states hit hard by the coronavirus pandemic, but key elements of  response are still missing.`\
-https://nytimes.com/reuters/2020/05/08/business/08reuters-health-coronavirus-eu-economy.html?searchResultPosition=2
-
-**Health Care Used to Be Recession-Proof. Not Anymore.**\
-`The tumble in health jobs caused by the coronavirus is likely to make the recession deeper and the recovery slower.`\
-https://nytimes.com/2020/05/08/upshot/health-jobs-plummeting-pandemic.html?searchResultPosition=3
-
-**Trump Offers Biden Rapid COVID-19 Test to Resume Travel**\
-`President Donald Trump said Friday that he is willing to provide Joe Biden, his presumptive Democratic opponent, with a rapid COVID-19 testing system so Biden can return to the campaign trail.`\
-https://nytimes.com/aponline/2020/05/08/us/politics/ap-us-virus-outbreak-biden-testing.html?searchResultPosition=4
-
-**Russian Investors Take Fight to Moscow Exchange as WTI Futures Row Drags On**\
-`A group of more than 100 people has asked the Russian central bank in its role as regulator and the Moscow Exchange's major shareholder to investigate whether the bourse deliberately misled investors who bought crude oil futures contracts.  `\
-https://nytimes.com/reuters/2020/05/08/business/08reuters-russia-moex-investors.html?searchResultPosition=5
-
-**Sweden to Tighten Foreign Takeover Rules Amid Security Worries**\
-`Sweden plans to tighten its rules to enable the government to block takeovers of important firms by foreign companies amid increasing concerns over the threat to national security from China and Russia.`\
-https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-sweden-security-m-a.html?searchResultPosition=6
-
-**Polish Coal Producer to Cut Pay and Hours by 20% in May**\
-`Trade unions at Poland's biggest coal producer, state-run PGG, have agreed to the company reducing hours and pay by 20% in May, which would make PGG eligible for government help.`\
-https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-poland-coal.html?searchResultPosition=7
-
-**Portugal's Exports and Imports Slump in March as Pandemic Bites**\
-`Portugal's exports fell by 13% in March after a near 1% rise the previous month as the coronavirus crisis shut down large parts of the economy, data from the National Statistics Institute (INE) showed on Friday. `\
-https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-portugal-economy-trade.html?searchResultPosition=8
-
-**ECB's Latest Asset Purchase Programme Meets Principles of Proportionality: Spiegel**\
-`The German Finance Ministry has concluded that the ECB's latest asset purchase programme to tackle the coronavirus pandemic meets the principles of proportionality defined by Germany's constitutional court, Der Spiegel magazine reported on Friday.`\
-https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-ecb-policy-germany-scholz.html?searchResultPosition=9
-
-**Firefighters Continue Battling Fires in Florida Panhandle**\
-`Florida firefighters were working to hold containment lines around a 2,000-acre (809-hectare) fire in the state's Panhandle, where winds were expected to shift Friday and push it toward homes.`\
-https://nytimes.com/aponline/2020/05/08/us/ap-us-florida-wildfires-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/08/business/08reuters-health-coronavirus-eu-economy.html?searchResultPosition=10
 
