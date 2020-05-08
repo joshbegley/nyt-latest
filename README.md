@@ -1,40 +1,40 @@
+**U.S. Joblessness Slams Latinos, Less Educated With Brutal Force**\
+`The U.S. economy's record run of job growth and historically low unemployment has been stopped in its tracks by the fight against the coronavirus pandemic: joblessness hit 14.7% in April, and even if it starts to fall in coming weeks there will be scars.`\
+https://nytimes.com/reuters/2020/05/08/business/08reuters-usa-economy-unemployment-demographics.html?searchResultPosition=1
+
+**Dutch Watchdog to Investigate TikTok's Use of Children's Data**\
+`The Dutch privacy watchdog said on Friday it would investigate how Chinese-owned social media app TikTok, which has become hugely popular during the COVID-19 pandemic, handles the data of millions of young users. `\
+https://nytimes.com/reuters/2020/05/08/technology/08reuters-netherlands-dataprivacy-tiktok.html?searchResultPosition=2
+
+**Indonesia Provinces Blame Reagents, Labs for Stalling COVID-19 Testing**\
+`Indonesian provinces have blamed flawed distribution of reagents, too few laboratories and a lack of expertise for preventing them from getting near President Joko Widodo's target of 10,000 coronavirus tests a day in the country.`\
+https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-health-coronavirus-indonesia-testing.html?searchResultPosition=3
+
+**Spanish Cat Tests Positive for Coronavirus**\
+`A cat belonging to a family in the Spanish region of Catalonia tested positive for the novel coronavirus, the professor who conducted an autopsy on the pet said on Friday.`\
+https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-health-coronavirus-spain-cat.html?searchResultPosition=4
+
+**For Candidates Seeking Attention, It's Time to Volunteer**\
+`Peter Ellertsen and his wife are used to getting political phone calls, usually with automated voices shilling for a candidate or asking for money. What is not normal is the call they received a few weeks ago: A real person from a congressional campaign who didn't want to talk about politics. `\
+https://nytimes.com/aponline/2020/05/08/us/politics/ap-us-election-2020-charitable-campaigning.html?searchResultPosition=5
+
+**Space Agency: Human Urine Could Help Make Concrete on Moon**\
+`The European Space Agency said Friday that human urine could one day become a useful ingredient in making concrete to build on the Moon.`\
+https://nytimes.com/aponline/2020/05/08/science/ap-eu-sci-europe-moon-urine.html?searchResultPosition=6
+
 **Ahmaud Arbery Shooting in Georgia: Live Updates and Coverage**\
 `Gregory McMichael and Travis McMichael were arrested in connection with the killing of Mr. Arbery, which had led to protests in Georgia.`\
-https://nytimes.com/2020/05/08/us/ahmaud-arbery-shooting-georgia.html?searchResultPosition=1
+https://nytimes.com/2020/05/08/us/ahmaud-arbery-shooting-georgia.html?searchResultPosition=7
 
 **What You Need to Know Today About the Virus Outbreak**\
 `European leaders held muted commemorations Friday to mark the end of World War II on the continent as coronavirus lockdowns kept crowds from celebrating VE Day. Across the ocean, 20.5 million jobs disappeared in the U.S. in April, a monthly record.`\
-https://nytimes.com/aponline/2020/05/08/us/bc-us-virus-outbreak-whats-happening.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/05/08/us/bc-us-virus-outbreak-whats-happening.html?searchResultPosition=8
 
 **How Coronavirus is Taking a Toll on Mental Health**\
 `As quarantine drags on, two journalists have an honest conversation about the hard-to-ignore rising levels of stress.`\
-https://nytimes.com/2020/05/08/us/coronavirus-mental-health-stress-anxiety-loneliness.html?searchResultPosition=3
+https://nytimes.com/2020/05/08/us/coronavirus-mental-health-stress-anxiety-loneliness.html?searchResultPosition=9
 
 **Debt, Deadlines and Default: Argentina's Last-Ditch Push for $65 Billion Deal**\
 `Argentina and its international creditors are racing to find middle-ground over a $65 billion debt restructuring, with sources close to the government indicating it may be willing to be flexible to break a deadlock that risks triggering a default.`\
-https://nytimes.com/reuters/2020/05/08/world/americas/08reuters-argentina-debt-analysis.html?searchResultPosition=4
-
-**Some White House Personnel to Wear Masks After Staffer Tests Positive: Trump**\
-`U.S. President Donald Trump on Friday said certain White House staff members have started wearing masks, one day after the White House said his personal valet had tested positive for the novel coronavirus.`\
-https://nytimes.com/reuters/2020/05/08/us/08reuters-health-coronavirus-usa-trump.html?searchResultPosition=5
-
-**Japan Lowers Bar to Coronavirus Testing, Drops Temperature Guideline**\
-`The Japanese Health Ministry said on Friday it now wants people experiencing difficulty breathing or those with a fever to seek advice on whether they may have been infected with the new coronavirus, easing public access to testing.`\
-https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-health-coronavirus-japan-test.html?searchResultPosition=6
-
-**As Italy Ends Lockdown, Milan Mayor Rebukes Crowds Socialising Outside**\
-`The mayor of Milan issued a furious threat on Friday to close down popular open spaces in the city after television footage showed crowds socialising and apparently ignoring public health rules aimed at preventing a resurgence of the coronavirus.`\
-https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-health-coronavirus-italy.html?searchResultPosition=7
-
-**Trump Says Had Nothing to Do With Venezuela Incursion**\
-`President Donald Trump on Friday again said the U.S. government was not behind a bungled incursion into Venezuela allegedly to overthrow President Nicolas Maduro, saying in a Fox News interview he would not rely on a small group for such an operation.`\
-https://nytimes.com/reuters/2020/05/08/world/americas/08reuters-venezuela-security-trump.html?searchResultPosition=8
-
-**Lesson of the Day: ‘Gaps in Amazon’s Response as Virus Spreads to More Than 50 Warehouses’**\
-`In this lesson, students will learn about essential workers fighting for protective equipment and better benefits.`\
-https://nytimes.com/2020/05/08/learning/lesson-of-the-day-gaps-in-amazons-response-as-virus-spreads-to-more-than-50-warehouses.html?searchResultPosition=9
-
-**Prominent Beirut University Faces Fight of Its Life as Crises Hit**\
-`One of the Arab world's oldest universities faces its worst crisis since its foundation, with huge losses, staff cuts and an uphill battle to stay afloat as Lebanon's economic meltdown and the coronavirus pandemic hit revenues.`\
-https://nytimes.com/reuters/2020/05/08/world/middleeast/08reuters-lebanon-crisis-aub.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/08/world/americas/08reuters-argentina-debt-analysis.html?searchResultPosition=10
 
