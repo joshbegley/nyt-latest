@@ -34,7 +34,7 @@ https://nytimes.com/2020/05/08/world/americas/mexico-coronavirus-count.html?sear
 `Ashley Gruber and Jeph Mwaituka had originally invited 230 guests to their church wedding in Birmingham, Ala. But, almost everyone stayed home and watched online, from near and far.`\
 https://nytimes.com/2020/05/08/fashion/weddings/the-little-wedding-on-the-deck.html?searchResultPosition=9
 
-**Spoiled Milk, Rotten Vegetables and a Very Broken Food System**\
-`The coronavirus crisis demonstrates what is wrong with how the world feeds itself.`\
-https://nytimes.com/2020/05/08/opinion/coronavirus-global-food-supply.html?searchResultPosition=10
+**Coronavirus Escape: To the Suburbs**\
+`The pandemic has convinced some New Yorkers that it’s time to finally give up on city living.`\
+https://nytimes.com/2020/05/08/realestate/coronavirus-escape-to-the-suburbs.html?searchResultPosition=10
 
