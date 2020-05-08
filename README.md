@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/05/08/business/08reuters-usa-rigs-baker-hughes.
 `BP Plc has won Australian government backing for a feasibility study into producing hydrogen using wind and solar power to split water and converting the hydrogen to ammonia in Western Australia.`\
 https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-bp-hydrogen-australia.html?searchResultPosition=3
 
-**Siemens Sees Strongest Coronavirus Impact in Next Quarter as Second-Quarter Profit Plunges**\
-`Siemens expects "even stronger impacts" from the coronavirus pandemic in the weeks ahead, it said on Friday as it ditched its 2020 guidance and posted an 18% drop in industrial profit during its second quarter.`\
+**Siemens Sees Bigger Hit From Coronavirus Impact Coming as Second-Quarter Profit Plunges**\
+`Siemens on Friday said it expected "even stronger impacts" from the coronavirus pandemic in the weeks ahead as it ditched its 2020 guidance and posted an 18% drop in industrial profit during its second quarter.`\
 https://nytimes.com/reuters/2020/05/08/business/08reuters-siemens-results.html?searchResultPosition=4
 
 **Explainer: Why Friday's U.S. Jobless Figures Won't Capture the True State of the Coronavirus Economy**\
