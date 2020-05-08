@@ -1,32 +1,24 @@
+**Polish Opposition Demands Minister's Dismissal Over Election 'Embarrassment'**\
+`Polish opposition lawmakers on Friday called for the dismissal of a government minister tasked with organising Sunday's presidential election, after the ruling coalition unexpectedly said the vote could not take place due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-poland-election.html?searchResultPosition=5
+
+**The First Signs of Travel’s Return?**\
+`As Australia announces plans to revive tourism, we look at 10 top travel destinations and their timetables for reopening. The challenge: balancing safety with the need to reboot.`\
+https://nytimes.com/2020/05/08/travel/travel-reopenings-virus.html?searchResultPosition=6
+
+**The Angry Children Are Our Future**\
+`Lydia Millet talks about “A Children’s Bible,” and Barry Gewen discusses “The Inevitability of Tragedy.”`\
+https://nytimes.com/2020/05/08/books/review/podcast-lydia-millet-childrens-bible-inevitability-of-tragedy-henry-kissinger-barry-gewen.html?searchResultPosition=7
+
+**EU Governments Allowed to Take Stakes in Virus-Hit Firms**\
+`The European Commission on Friday adopted rules allowing EU governments to help virus-hit companies by acquiring stakes in the firms, which will be subjected to a ban on dividends, share buybacks, bonuses and acquisitions.`\
+https://nytimes.com/reuters/2020/05/08/us/08reuters-health-coronavirus-eu-recapitalisation.html?searchResultPosition=8
+
+**CBS Reimagines 'Equalizer' and 'The Silence of the Lambs'**\
+`Queen Latifah, Rebecca Breeds and Thomas Middleditch are set to star in three new CBS shows for the 2020-21 season as the network adds a reimagined “Equalizer,” a show based on “The Silence of the Lambs" and a comedy about organ donation.`\
+https://nytimes.com/aponline/2020/05/08/us/ap-us-tv-cbs-new-shows.html?searchResultPosition=9
+
 **Five Wounded in Shootout on Kyrgyz-Tajik Border**\
 `Three Kyrgyz border guards and two Tajik citizens were wounded in a shootout on Friday in a disputed border area between the two former Soviet republic, authorities on both sides said, blaming each other for the violence.`\
-https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-kyrgyzstan-tajikistan-border-clash.html?searchResultPosition=3
-
-**Bob Dylan Announces First Album of New Music Since 2012**\
-`Bob Dylan is releasing his first album of new music in eight years following a spurt of creativity from the man regarded as one of the world's most influential songwriters.`\
-https://nytimes.com/reuters/2020/05/08/arts/08reuters-music-bob-dylan.html?searchResultPosition=4
-
-**China Should Boost U.S. Goods Purchasing as Economy Recovers: U.S. Chamber**\
-`The U.S. Chamber of Commerce on Friday urged Beijing to sharply increase its purchases of U.S. goods as China's economy recovers from the novel coronavirus outbreak, saying that increased purchases would help both countries and the global economy.`\
-https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-usa-trade-china-chamber.html?searchResultPosition=5
-
-**Trump, Pence Have Not Had Contact With Infected Pence Staffer Recently: Official**\
-`U.S. President Donald Trump and Vice President Mike Pence have not been in contact recently with a member of Pence's staff who was found to be infected with the coronavirus, a senior administration official said on Friday.`\
-https://nytimes.com/reuters/2020/05/08/us/08reuters-health-coronavirus-usa-staffer.html?searchResultPosition=6
-
-**Abbott Coronavirus Test Is Accurate; Infected Mother's Breast Milk May Protect Infants**\
-`The following is a brief roundup of the latest scientific studies on the novel coronavirus and efforts to find treatments and vaccines for COVID-19, the illness caused by the virus.`\
-https://nytimes.com/reuters/2020/05/08/us/08reuters-health-coronavirus-science.html?searchResultPosition=7
-
-**New Mexico Town Near Vast US Reservation Shuts Everyone Out**\
-`Like clockwork, payday arrives and tens of thousands of people from the Navajo reservation and other rural stretches along the New Mexico-Arizona border flood into Gallup, a freewheeling desert oasis of just 22,000 that can quickly quadruple in size with all the visitors.`\
-https://nytimes.com/aponline/2020/05/08/us/ap-us-virus-outbreak-barricaded-town.html?searchResultPosition=8
-
-**A Vibrant Celebration of Moroccan Design**\
-`In February, the hotelier Philomena Schurer Merckoll toasted her new creative showcase, Design Marrakech, with a gathering at her guesthouse, Riad Mena.`\
-https://nytimes.com/2020/05/08/t-magazine/design-marrakech-philomena-schurer-merckoll.html?searchResultPosition=9
-
-**‘Found Unresponsive at Home’: Grim Records Recount Lonely Deaths**\
-`Records kept by medical examiners in Florida offer a window into how the coronavirus has killed more than 1,600 people there. Many died at home.`\
-https://nytimes.com/2020/05/08/us/coronavirus-florida-medical-examiner-records.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-kyrgyzstan-tajikistan-border-clash.html?searchResultPosition=10
 
