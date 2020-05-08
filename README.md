@@ -19,7 +19,7 @@ https://nytimes.com/2020/05/07/us/ahmaud-arbery-shooting-arrest.html?searchResul
 https://nytimes.com/reuters/2020/05/07/world/americas/07reuters-health-coronavirus-mexico.html?searchResultPosition=5
 
 **De Blasio Strips Control of Virus Tracing From Health Department**\
-`Several leading health officials expressed serious concerns over the transfer of the city’s contact tracing efforts to the Health and Hospitals agency, a departure from current and past practice.`\
+`Several leading health officials expressed serious concerns over the transfer of contact tracing efforts to the agency that runs the city’s public hospitals, a departure from current and past practice.`\
 https://nytimes.com/2020/05/07/nyregion/coronavirus-contact-tracing-nyc.html?searchResultPosition=6
 
 **Aerospace Firm Safran Cuts 3,000 Workers in Mexico as Coronavirus Hits Demand**\
