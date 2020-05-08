@@ -1,40 +1,40 @@
-**WWII Vets to Join Trump at VE Day Ceremony**\
-`Eight World War II veterans — the youngest of them age 96 — will join President Donald Trump at a wreath-laying ceremony Friday to commemorate the 75th anniversary of the end of the war in Europe. Their hopes to mark the day in Moscow were dashed because of the coronovirus pandemic. `\
-https://nytimes.com/aponline/2020/05/08/us/politics/ap-us-trump-ve-day.html?searchResultPosition=1
+**Virus Tracing App Raises Privacy Concerns in India**\
+`As India enters an extended coronavirus lockdown, the government is actively pursuing contact tracing to help control infections.`\
+https://nytimes.com/aponline/2020/05/08/business/ap-as-virus-outbreak-india-tracing-app.html?searchResultPosition=1
 
-**Facebook, YouTube Remove 'Plandemic' Video With 'Unsubstantiated' Coronavirus Claims**\
-`Facebook Inc and YouTube, the video service of Alphabet Inc's Google, said on Thursday that they were removing a video that made medically unsubstantiated claims relating to the novel coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/08/technology/08reuters-health-coronavirus-tech-video.html?searchResultPosition=2
+**Explainer: Why Friday's U.S. Jobless Figures Won't Capture the True State of the Coronavirus Economy**\
+`The U.S. economy is expected to have shed 22 million jobs in April, tripling the nationwide unemployment rate to 16%, when new government data is published Friday morning. `\
+https://nytimes.com/reuters/2020/05/08/business/08reuters-usa-economy-unemployment-data-explainer.html?searchResultPosition=2
 
-**Aussie and Kiwi to Cool Their Heels After Red-Hot Rally: Reuters Poll**\
-`Analysts suspect the Australian and New Zealand dollars have climbed too far, too fast and a pullback is likely in the near term, though both are expected to move higher over a one-year horizon.`\
-https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-forex-poll-aud-poll.html?searchResultPosition=3
+**A Voracious Reader Takes Drastic Measures After Running Out of Books**\
+`For a grandmother who can read a book in two hours, lockdown has presented some obstacles.`\
+https://nytimes.com/2020/05/08/books/a-voracious-reader-takes-drastic-measures-after-running-out-of-books.html?searchResultPosition=3
 
-**Dems Eye Money for Smaller Cities, Towns in Next Virus Bill**\
-`Eyeing a major expansion of federal assistance, top Democrats are promising that small- to medium-sized cities and counties and small towns that were left out of four prior coronavirus bills will receive hundreds of billions of dollars in the next one.`\
-https://nytimes.com/aponline/2020/05/08/us/politics/bc-us-virus-outbreak-congress-local-funding.html?searchResultPosition=4
+**Thailand Reports Eight New Coronavirus Cases, No New Deaths**\
+`Thailand on Friday reported eight new coronavirus cases but no deaths, bringing the total to 3,000 cases and 55 deaths since the outbreak started in January.`\
+https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-health-coronavirus-thailand.html?searchResultPosition=4
 
-**Japan Likely Slipped Into First Recession Since 2015 as Spending Collapsed: Reuters Poll**\
-`Japan's economy likely shrank for a second straight quarter in the first three months of this year, a Reuters poll showed, meeting the technical definition of recession as the coronavirus pandemic wiped out consumption and business activity.`\
-https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-japan-economy-gdp.html?searchResultPosition=5
+**Lives Lost: Purveyor of Tacos, Joy Well Loved in Seattle**\
+`Tomas Lopez didn’t make the food he sold from his family’s bright green taco truck, but it was his face the customers knew.`\
+https://nytimes.com/aponline/2020/05/08/us/ap-us-virus-outbreak-lives-lost-food-truck-owner.html?searchResultPosition=5
 
-**Trump 'Not Sure We Even Have a Choice' on Reopening States**\
-`President Donald Trump is continuing his push to get states reopened as he praised another Republican governor for rolling back state coronavirus restrictions while welcoming that governor, Greg Abbott of Texas, to the White House.`\
-https://nytimes.com/aponline/2020/05/08/us/politics/bc-us-virus-outbreak-washington.html?searchResultPosition=6
+**Amid Pandemic, the World's Working Poor Hustle to Survive**\
+`From India to Argentina, untold millions who were already struggling to get by on the economic margins have had their lives made even harder by pandemic lockdowns, layoffs and the loss of a chance to earn from a hard day’s work. `\
+https://nytimes.com/aponline/2020/05/08/business/ap-virus-outbreak-vulnerable-workers-abridged.html?searchResultPosition=6
 
-**India Train Crushes Migrant Workers Killing 14**\
-`An Indian train ran over migrant workers sleeping on the track on Friday, killing at least 14 of the group, who were apparently on their way to their home villages, the railway ministry and media said.`\
-https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-health-coronavirus-india.html?searchResultPosition=7
+**Amid Pandemic, the World's Working Poor Hustle to Survive**\
+`From India to Argentina, untold millions who were already struggling to get by on the economic margins have had their lives made even harder by pandemic lockdowns, layoffs and the loss of a chance to earn from a hard day’s work. `\
+https://nytimes.com/aponline/2020/05/08/business/bc-virus-outbreak-vulnerable-workers.html?searchResultPosition=7
 
-**Police: Woman Buried by Her Son Saved After 3 Days in Grave**\
-`Police in northern China charged a man with attempted murder after he allegedly buried his mother in an abandoned grave, where she was found traumatized but alive after three days covered by loose dirt.`\
-https://nytimes.com/aponline/2020/05/08/world/asia/ap-as-china-mother-buried-alive.html?searchResultPosition=8
+**What’s on TV Friday: ‘The Eddy’ and the Los Angeles Philharmonic**\
+`Netflix debuts a jazz-infused mini-series by Jack Thorne. And footage of the Los Angeles Philharmonic’s recent centennial concert airs on PBS.`\
+https://nytimes.com/2020/05/08/arts/television/whats-on-tv-friday-the-eddy-and-the-los-angeles-philharmonic.html?searchResultPosition=8
 
-**Michigan, California Move to Reopen Factories as U.S. Jobless Ranks Grow**\
-`Michigan and California, two U.S. manufacturing powerhouses, acted on Thursday to allow factories to reopen from coronavirus lockdowns over the next few days, as millions more Americans joined the ranks of workers left jobless by the pandemic.`\
-https://nytimes.com/reuters/2020/05/08/us/08reuters-health-coronavirus-usa.html?searchResultPosition=9
+**Train Kills 14 Migrant Workers Walking Home in India**\
+`A train in India crashed into a group of migrant workers walking along the railroad tracks on to their way back to their home state on Friday, killing at least 14, officials and local media said.`\
+https://nytimes.com/aponline/2020/05/08/world/asia/ap-as-india-migrant-workers-killed.html?searchResultPosition=9
 
-**Dollar Eases, Risk Currencies Gain on Economic Recovery Hopes**\
-`The dollar slipped on Friday as investors defied a broader sense of doom around upcoming U.S. employment data and found reasons to buy riskier currencies with more governments slowly reopening their economies for business.`\
-https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-global-forex.html?searchResultPosition=10
+**Opening Up, Australia Maps Out Staged Easing of COVID-19 Curbs**\
+`Australia will ease social distancing restrictions in a three-step process, Prime Minister Scott Morrison said on Friday, as Canberra aims to remove all curbs by July and get nearly 1 million people back to work amid a decline in coronavirus cases.`\
+https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-health-coronavirus-australia.html?searchResultPosition=10
 
