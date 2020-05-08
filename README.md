@@ -1,40 +1,40 @@
+**Austrian Ski Resort Covers Glacier After Coronavirus Cuts Season**\
+`With its season cut short by the coronavirus pandemic, one of Austria's most popular glacial ski resorts covered its glacier in protective fabric earlier than usual this year to help preserve it for a still uncertain reopening.`\
+https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-austria-environment-glacier.html?searchResultPosition=1
+
+**Coronavirus Narrows Options for Migrants Buffeted by Libya's War**\
+`After several failed crossings from Libya to Italy and a long spell in detention, Nigerian migrant Olu had pinned his hopes on being evacuated from the besieged city of Tripoli with his family. `\
+https://nytimes.com/reuters/2020/05/08/world/africa/08reuters-health-coronavirus-libya-migrants.html?searchResultPosition=2
+
+**Nigerian Comics Fight COVID-19 With Gags and Slapstick Slaps**\
+`Nigerian comedian Maryam Apaokagi has a sure-fire way of getting people to listen to her coronavirus health advice - she delivers it with a hard slap in the face.`\
+https://nytimes.com/reuters/2020/05/08/arts/08reuters-health-coronavirus-nigeria-comedy.html?searchResultPosition=3
+
+**Father, Son Charged With Killing Black Man Ahmaud Arbery**\
+`Georgia authorities charged a white father and son with murder and put them in jail in the February shooting death of a black man they had pursued in a truck after spotting him running in their neighborhood.`\
+https://nytimes.com/aponline/2020/05/08/us/ap-us-georgia-chase-deadly-shooting.html?searchResultPosition=4
+
+**Take Five: Trade War II**\
+`1/THIRD LAW OF TARIFFS`\
+https://nytimes.com/reuters/2020/05/08/business/08reuters-global-markets-themes.html?searchResultPosition=5
+
 **Palestinians Say Israel Targeting Prisoners' Bank Accounts**\
 `Palestinian officials said Friday that Israel is forcing banks in the occupied West Bank to close accounts held by the families of prisoners in Israeli jails to prevent the Palestinian Authority from providing stipends to them.`\
-https://nytimes.com/aponline/2020/05/08/world/middleeast/ap-ml-israel-palestinians.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/05/08/world/middleeast/ap-ml-israel-palestinians.html?searchResultPosition=6
 
 **Vatican Cardinal in New Row Over Virus 'Pretext' Petition**\
 `A petition signed by some conservative Catholics claiming the coronavirus is an overhyped “pretext" to deprive the faithful of Mass and impose a new world order has run into a bit of a hitch.`\
-https://nytimes.com/aponline/2020/05/08/world/europe/ap-eu-rel-vatican-virus-conservatives.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/05/08/world/europe/ap-eu-rel-vatican-virus-conservatives.html?searchResultPosition=7
 
 **Wales Announces Modest Changes to Coronavirus Lockdown**\
 `Wales has announced plans to modify the coronavirus lockdown so that from Monday people can exercise more than once a day, garden centres can reopen, and the government will look at reopening libraries and recycling centres.`\
-https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-health-coronavirus-britain-wales.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-health-coronavirus-britain-wales.html?searchResultPosition=8
 
 **Chile Says Consumer Prices Flat in April, Annual Inflation 3.4%**\
 `Chile consumer prices stayed steady in April, the government's statistics agency said on Friday, as a drop in transportation and clothing costs were counterbalanced by an uptick in the price of food and beverages.  `\
-https://nytimes.com/reuters/2020/05/08/world/americas/08reuters-chile-inflation.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/08/world/americas/08reuters-chile-inflation.html?searchResultPosition=9
 
 **Spain: Police Arrest Man Suspected of Planning Terror Attack**\
 `Spanish police arrested a Moroccan man on Friday suspected of planning a terror attack in the name of the Islamic State group during Spain’s coronavirus crisis. `\
-https://nytimes.com/aponline/2020/05/08/world/europe/ap-eu-virus-outbreak-spain-terrorism.html?searchResultPosition=5
-
-**Virus Could Kill 190,000 Africans and 'Smolder' in Continent**\
-`An estimated 190,000 people in Africa could die of COVID-19 in the first year of the pandemic and the disease could “smolder” across the continent for years, the World Health Organization has warned.`\
-https://nytimes.com/aponline/2020/05/08/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=6
-
-**Displaced Somalis Share Ramadan Meal Under Shadow of COVID-19**\
-`In makeshift metal homes in a camp in Mogadishu, women wrapped in brightly patterned scarves are making savoury pastries and mixing flour for flatbreads. `\
-https://nytimes.com/reuters/2020/05/08/world/africa/08reuters-health-coronavirus-ramadan-somalia.html?searchResultPosition=7
-
-**Michael Jordan's First Air Jordans Up for Auction at Sotheby's**\
-`An autographed and well-worn pair of basketball legend Michael Jordan's Nike shoes hits the auction block at Sotheby's on Friday, in a celebrity-infused test of the market for sneakers as highly-prized collectibles.`\
-https://nytimes.com/reuters/2020/05/08/arts/08reuters-people-michael-jordan-sneakers.html?searchResultPosition=8
-
-**Pakistan Coronavirus Cases Surge Past 25,000, Pace Quickens: Reuters Tally**\
-`Coronavirus cases in Pakistan surged past 25,000 on Friday, just hours before the government was due to lift lockdown measures, with the country reporting some of the biggest daily increases in new infections in the world.`\
-https://nytimes.com/reuters/2020/05/08/world/asia/08reuters-health-coronavirus-pakistan.html?searchResultPosition=9
-
-**EU Project at Stake if Recovery Fund Not Agreed Soon, Gentiloni Says**\
-`The European Union is at a crossroads and risks falling apart if governments do not quickly agree on a new fund to sustain the bloc's economic recovery from the coronavirus crisis, EU economics commissioner Paolo Gentiloni said on Thursday.`\
-https://nytimes.com/reuters/2020/05/08/business/08reuters-health-coronavirus-eu-gentiloni.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/08/world/europe/ap-eu-virus-outbreak-spain-terrorism.html?searchResultPosition=10
 
