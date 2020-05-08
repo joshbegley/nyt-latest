@@ -1,20 +1,20 @@
+**German Soccer Faces Uphill Battle to Convince Public, Fans**\
+`The German politicians have been persuaded to allow soccer to resume in the country despite the coronavirus pandemic. The public, it seems, still needs to be convinced.`\
+https://nytimes.com/aponline/2020/05/08/sports/soccer/ap-soc-germany-restart-1st-ld-writethru.html?searchResultPosition=6
+
+**Talking to Children About Job Loss During the Pandemic**\
+`How parents can be honest with children about financial stresses while avoiding making them feel too burdened.`\
+https://nytimes.com/2020/05/08/well/family/coronavirus-kids-economic-impact-job-loss.html?searchResultPosition=7
+
+**Paul Shelden, Clarinetist and Classical Music Advocate, Dies at 79**\
+`Mr. Shelden, who had the coronavirus, played under Leonard Bernstein and was inspired by his Young People’s Concerts.`\
+https://nytimes.com/2020/05/08/obituaries/paul-shelden-dead-coronavirus.html?searchResultPosition=8
+
+**This Rich Challah May Be as Good as a Hug From Mom**\
+`This simple, satisfying baking project, perfect for Mother’s Day (or just for yourself), is cause enough to celebrate.`\
+https://nytimes.com/2020/05/08/dining/challah-recipe-coronavirus.html?searchResultPosition=9
+
 **K-League Kicks Off With No Crowd, but Big Broadcast Interest**\
 `Soccer is back in South Korea for the first time since the coronavirus pandemic shut down sports around the world, and its success or failure will be closely watched by leagues everywhere.`\
-https://nytimes.com/aponline/2020/05/08/sports/soccer/ap-soc-south-korea-season-kick-off-1st-ld-writethru.html?searchResultPosition=6
-
-**Trump Administration Asks Court to Toss Lawsuit Over ERA**\
-`The Trump administration has asked a judge to throw out a lawsuit filed by three Democratic state attorneys general seeking to force the U.S. archivist to recognize Virginia's vote to ratify the Equal Rights Amendment and adopt it in the U.S. Constitution.`\
-https://nytimes.com/aponline/2020/05/08/us/ap-us-equal-rights-amendment.html?searchResultPosition=7
-
-**Nadal: Djokovic Will Need Vaccine if Required by the Tour**\
-`Rafael Nadal says Novak Djokovic will need to be vaccinated to keep playing if the governing bodies of tennis make coronavirus shots obligatory once they become available.`\
-https://nytimes.com/aponline/2020/05/08/sports/tennis/ap-ten-nadal-djokovic.html?searchResultPosition=8
-
-**With ‘Four More Shots Please!,’ India Gets Its Own ‘Sex and the City’**\
-`The Amazon series has become a hit in India for its frank depictions of modern Mumbai women and sex, in a country where even kissing has been rare onscreen.`\
-https://nytimes.com/2020/05/08/arts/television/four-more-shots-please.html?searchResultPosition=9
-
-**Canadian Amateur Sport Gets C$72 Million in Coronavirus Relief Funding**\
-`Canada's amateur sport system will receive C$72 million ($51.72 million) in coronavirus relief funding from the federal government, the country's Heritage Minister said on Friday.`\
-https://nytimes.com/reuters/2020/05/08/sports/olympics/08reuters-health-coronavirus-olympics-canada.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/08/sports/soccer/ap-soc-south-korea-season-kick-off-1st-ld-writethru.html?searchResultPosition=10
 
