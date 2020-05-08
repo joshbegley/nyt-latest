@@ -1,20 +1,21 @@
-**Jobs Report, Ahmaud Arbery, Mother’s Day: Your Friday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/05/08/briefing/jobs-report-ahmaud-arbery-mothers-day.html?searchResultPosition=6
+**Virus Rages in Remote Canadian Village as Province Prepares to Reopen Economy**\
+`Coronavirus infections are multiplying through a remote indigenous Saskatchewan village even as the rest of the western Canadian province sees few cases and starts to reopen its economy.`\
+https://nytimes.com/reuters/2020/05/08/us/08reuters-health-coronavirus-canada-saskatchewan.html?searchResultPosition=6
 
-**Ghana Records Over 500 Coronavirus Cases at Industrial Facility**\
-`More than 500 workers at an industrial facility in Ghana have tested positive for the coronavirus, the country's health service said on Friday, as total cases jumped by nearly 30% in a single day. `\
-https://nytimes.com/reuters/2020/05/08/world/africa/08reuters-health-coronavirus-ghana.html?searchResultPosition=7
+**As Trump Returns to the Road, Some Democrats Want to Bust Biden Out of His Basement**\
+`While President Donald Trump traveled to the battleground state of Arizona this week, his Democratic opponent for the White House, Joe Biden, campaigned from his basement as he has done throughout the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/08/us/politics/08reuters-health-coronavirus-usa-election.html?searchResultPosition=7
 
-**Satish Gujral, Versatile Indian Artist, Is Dead at 94**\
-`After losing his hearing as a child, he became one of his country’s best-known painters, sculptors and architects.`\
-https://nytimes.com/2020/05/08/arts/satish-gujral-dead.html?searchResultPosition=8
+**Column: Glimmer of Hope for Sports, but Don't Pop Champagne**\
+`Finally, some signs of hope.`\
+https://nytimes.com/aponline/2020/05/08/sports/ap-paul-newberry-sports-reopens.html?searchResultPosition=8
 
-**Auto Production Collapses by 99% in Mexico and Brazil Due to Coronavirus**\
-`Auto production in Mexico and Brazil, Latin America's top producers, plunged by an unprecedented 99% in April as a result of the coronavirus crisis, with the two countries building a total of just 5,569 units. `\
-https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-health-coronavirus-latam-autos.html?searchResultPosition=9
+**Trump Says 'No Rush' on More Aid as Jobless Crisis Grows**\
+`President Donald Trump said Friday he’s in “no rush” to negotiate another financial rescue bill, even as the government reported that more than 20 million Americans lost their jobs last month due to economic upheaval caused by the coronavirus.`\
+https://nytimes.com/aponline/2020/05/08/us/politics/bc-us-virus-outbreak-trump-congress.html?searchResultPosition=9
 
-**UK to Place All Incoming Travellers Under 14-Day Quarantine: The Times**\
-`British Prime Minister Boris Johnson will announce on Sunday that all travellers coming to the United Kingdom will be quarantined for a fortnight, The Times reported`\
-https://nytimes.com/reuters/2020/05/08/world/europe/08reuters-health-coronavirus-britain-johnson.html?searchResultPosition=10
+**The Kindness Contributors**\
+`Stories of heroism, determination and unexpected generosity from a nation in flux.
+`\
+https://nytimes.com/paidpost/paypal/the-kindness-contributors.html?searchResultPosition=10
 
