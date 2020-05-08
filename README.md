@@ -1,32 +1,32 @@
+**Anarchy in Venezuela's Jails Laid Bare by Massacre Over Food**\
+`Three weeks before he was shot dead, Miguel Calderon, an inmate in the lawless Los Llanos jail on Venezuela's central plains, sent a voice message to his father.`\
+https://nytimes.com/reuters/2020/05/08/world/americas/08reuters-venezuela-security-prison-insight.html?searchResultPosition=3
+
+**Family of U.S. Meat Plant Worker Who Died of COVID-19 Sues JBS**\
+`The family of a Pennsylvania man who died from COVID-19 has sued JBS S.A., the world's largest beef producer, for causing his death by failing to protect him from the disease at the meat processing plant where he worked.`\
+https://nytimes.com/reuters/2020/05/08/world/americas/08reuters-health-coronavirus-usa-lawsuit.html?searchResultPosition=4
+
+**U.S. CDC Reopening Guidelines Are Under Review: White House**\
+`The U.S. Centers for Disease Control and Prevention's recommended guidelines on when and how localities should reopen activity are being edited, White House spokeswoman Kayleigh McEnany told reporters on Friday.`\
+https://nytimes.com/reuters/2020/05/08/us/08reuters-health-coronavirus-usa-guidelines.html?searchResultPosition=5
+
+**Dropping the Charges Against Michael Flynn**\
+`Two readers express their outrage at what they see as a subversion of the justice system.`\
+https://nytimes.com/2020/05/08/opinion/letters/michael-flynn-trump.html?searchResultPosition=6
+
 **Union Garment Workers Fear ‘an Opportunity to Get Rid of Us’**\
 `From Bangladesh to Cambodia, basic labor rights are unraveling for some as the industry grapples with the coronavirus fallout.`\
-https://nytimes.com/2020/05/08/fashion/coronavirus-garment-workers-asia-unions.html?searchResultPosition=3
+https://nytimes.com/2020/05/08/fashion/coronavirus-garment-workers-asia-unions.html?searchResultPosition=7
 
 **Exclusive: Iran-Linked Hackers Recently Targeted Coronavirus Drugmaker Gilead-Sources**\
 `Hackers linked to Iran have targeted staff at U.S. drugmaker Gilead Sciences Inc in recent weeks, according to publicly-available web archives reviewed by Reuters and three cybersecurity researchers, as the company races to deploy a treatment for the COVID-19 virus.`\
-https://nytimes.com/reuters/2020/05/08/business/08reuters-healthcare-coronavirus-gilead-iran-exclusive.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/08/business/08reuters-healthcare-coronavirus-gilead-iran-exclusive.html?searchResultPosition=8
 
 **Rockets Ready to Move on From D'Antoni**\
 `Houston Rockets head coach Mike D'Antoni is in championship-or-else territory when the 2019-20 season resumes.`\
-https://nytimes.com/reuters/2020/05/08/sports/basketball/08reuters-basketball-nba-hou-after-season.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/05/08/sports/basketball/08reuters-basketball-nba-hou-after-season.html?searchResultPosition=9
 
 **Athletics: Coe Says Children Will Need More Sport in Post-Pandemic World**\
 `Children will need more access to sport in the post-pandemic world and there is a pressing need to press authorities to stop school sports "withering on the vine", World Athletics president Sebastian Coe said on Friday. `\
-https://nytimes.com/reuters/2020/05/08/sports/08reuters-health-coronavirus-athletics-coe-interview.html?searchResultPosition=6
-
-**Wirecard Revamps Management Board Amid Probes**\
-`Wirecard on Friday reshuffled its management board, including the appointment of a new compliance officer, as the payments system provider faces multiple regulatory probes into financial disclosure.`\
-https://nytimes.com/reuters/2020/05/08/business/08reuters-wirecard-board-reshuffle.html?searchResultPosition=7
-
-**Grit and Red Wine: Famous War Photographer Beats Virus at 97**\
-`Tony Vaccaro's mother died in childbirth, and at a tender age he also lost his father to tuberculosis. By age 5, he was an orphan in Italy, enduring beatings from an uncle. As an American GI during World War II, he survived the Battle of Normandy.`\
-https://nytimes.com/aponline/2020/05/08/us/ap-us-virus-outbreak-war-photographer-.html?searchResultPosition=8
-
-**Players Coalition Seeks Federal Probe of Georgia Shooting**\
-`The Players Coalition and dozens of professional athletes sent a letter to Attorney General William Barr and FBI Director Christopher Wray requesting an immediate federal investigation into the death of Ahmaud Arbery in Georgia.`\
-https://nytimes.com/aponline/2020/05/08/sports/ap-us-georgia-chase-deadly-shooting-letter.html?searchResultPosition=9
-
-**Swiss Plan to Ask Diners for Contacts Dropped Over Privacy**\
-`The Swiss government on Friday backed down from plans to require restaurants and bars to take the names and phone numbers of their patrons as a way to fight the coronavirus, after the plan fell foul of privacy concerns.`\
-https://nytimes.com/aponline/2020/05/08/business/bc-eu-virus-outbreak-switzerland.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/08/sports/08reuters-health-coronavirus-athletics-coe-interview.html?searchResultPosition=10
 
