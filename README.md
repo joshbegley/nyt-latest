@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/05/09/us/09reuters-health-coronavirus-usa-cdc.h
 `Tesla CEO Elon Musk threatened Saturday to pull the company’s factory and headquarters out of California in an escalating spat with local officials who have stopped the company from reopening its electric vehicle factory.`\
 https://nytimes.com/aponline/2020/05/09/business/bc-us-elon-musk-relocation-threats.html?searchResultPosition=9
 
-**Gerber Selects First Adopted Spokesbaby in Its 92-Year History**\
+**A First Among Gerber Babies: She’s Adopted**\
 `Magnolia Earl, a 1-year-old from California, was selected from among more than 327,000 entrants to represent Gerber in marketing campaigns.`\
 https://nytimes.com/2020/05/09/us/gerber-baby-adopted.html?searchResultPosition=10
 
