@@ -2,8 +2,8 @@
 `Polish opposition lawmakers on Friday called for the dismissal of a government minister tasked with organising Sunday's presidential election, after the ruling coalition unexpectedly said the vote could not take place due to the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/05/09/world/europe/09reuters-poland-election.html?searchResultPosition=6
 
-**Sheriff's Deputy Faces Charges Charges After Targeting Teen**\
-`A sheriff's deputy in North Carolina is facing criminal charges after authorities say he led a group of armed people to wrong home in a search for a missing girl.`\
+**Sheriff's Deputy Faces Charges After Targeting Teen**\
+`A sheriff's deputy in North Carolina is facing criminal charges after authorities say he led a group of armed people to the wrong home in a search for a missing girl.`\
 https://nytimes.com/aponline/2020/05/09/us/ap-us-north-carolina-deputy-fired.html?searchResultPosition=7
 
 **Jimmy Glenn, Ex-Boxer Whose Times Square Bar Endures, Dies at 89**\
