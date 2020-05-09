@@ -1,20 +1,20 @@
-**Grand Slam Tally Should Decide 'GOAT' Debate, Says Lendl**\
-`Eight-time Grand Slam winner Ivan Lendl said whoever ends up winning the most majors among the 'Big Three' of Roger Federer, Rafa Nadal and Novak Djokovic should be considered the greatest male tennis player of the Open era.`\
-https://nytimes.com/reuters/2020/05/09/sports/tennis/09reuters-tennis-lendl.html?searchResultPosition=6
+**Tokyo Reports 36 New Cases of Coronavirus Infection on Saturday-TV Asahi**\
+`Tokyo reported 36 new cases of coronavirus infections on Saturday, TV Asahi said, three less than a day earlier and the seventh consecutive day that new infections have remained below 100.`\
+https://nytimes.com/reuters/2020/05/09/world/asia/09reuters-health-coronavirus-tokyo-infections.html?searchResultPosition=6
 
-**Philippines' Coronavirus Deaths Breach 700**\
-`The Philippines' health ministry reported on Saturday that coronavirus deaths have reached more than 700.`\
-https://nytimes.com/reuters/2020/05/09/world/asia/09reuters-health-coronavirus-philippines-cases.html?searchResultPosition=7
+**A Uighur Disappeared in China After Attending a U.S. Leadership Program. His Sister Is Fighting for His Freedom.**\
+`Ekpar Asat came to the United States for the State Department’s most prestigious program for foreign citizens. Chinese security officers detained him weeks after he returned home.`\
+https://nytimes.com/2020/05/09/us/politics/china-uighurs-arrest.html?searchResultPosition=7
 
-**Rights Group Says Saudi Arabia Is Holding a Senior Prince Incommunicado Since March**\
-`Human Rights Watch (HRW) said on Saturday that Saudi Arabian authorities recently detained and are holding incommunicado Prince Faisal bin Abdullah, who had previously been netted in an anti-corruption drive and released in late 2017.`\
-https://nytimes.com/reuters/2020/05/09/world/middleeast/09reuters-saudi-arrests.html?searchResultPosition=8
+**Taiwan’s Weapon Against Coronavirus: An Epidemiologist as Vice President**\
+`Chen Chien-jen has embraced a rare dual role, using his political authority as vice president to criticize China’s response to the virus even as he hunkers down to analyze trends in transmission.`\
+https://nytimes.com/2020/05/09/world/asia/taiwans-weapon-against-coronavirus-an-epidemiologist-as-vice-president.html?searchResultPosition=8
 
-**Reports: MLB Shortens Draft to Five Rounds**\
-`Major League Baseball reportedly cut the 2020 draft down to five rounds on Friday, immediately drawing criticism.`\
-https://nytimes.com/reuters/2020/05/09/sports/baseball/09reuters-baseball-mlb-draft.html?searchResultPosition=9
+**Anxious About the Virus, Older Voters Grow More Wary of Trump**\
+`Surveys show the president’s standing with seniors, the group most vulnerable to the coronavirus, has fallen as he pushes to reopen the country.`\
+https://nytimes.com/2020/05/09/us/politics/trump-older-voters-2020.html?searchResultPosition=9
 
-**Reports: Silver Says NBA Doesn't Expect Fans Back This Year**\
-`With major sports leagues preparing for the eventuality of restarting behind closed doors amid the coronavirus pandemic, NBA commissioner Adam Silver reportedly took the concept to the next level on Friday.`\
-https://nytimes.com/reuters/2020/05/09/sports/basketball/09reuters-basketball-nba-silver.html?searchResultPosition=10
+**Nightly Applause Is Nice, but Some Doctors Think Votes Would Be Nicer**\
+`“My day job is talking people into getting colonoscopies,” one doctor said. So how much harder could the campaign trail be?`\
+https://nytimes.com/2020/05/09/us/politics/doctor-politicians-coronavirus.html?searchResultPosition=10
 
