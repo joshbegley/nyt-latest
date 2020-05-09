@@ -1,20 +1,20 @@
+**Reports: MLB Shortens Draft to Five Rounds**\
+`Major League Baseball reportedly cut the 2020 draft down to five rounds on Friday, immediately drawing criticism.`\
+https://nytimes.com/reuters/2020/05/09/sports/baseball/09reuters-baseball-mlb-draft.html?searchResultPosition=6
+
+**Reports: Silver Says NBA Doesn't Expect Fans Back This Year**\
+`With major sports leagues preparing for the eventuality of restarting behind closed doors amid the coronavirus pandemic, NBA commissioner Adam Silver reportedly took the concept to the next level on Friday.`\
+https://nytimes.com/reuters/2020/05/09/sports/basketball/09reuters-basketball-nba-silver.html?searchResultPosition=7
+
+**NCAA President: Sports Won't Return Until Campuses Reopen**\
+`College sports will not resume until all students are back on campus, NCAA president Mark Emmert said Friday.`\
+https://nytimes.com/reuters/2020/05/09/sports/09reuters-sports-ncaa-emmert.html?searchResultPosition=8
+
+**Putin Marks Victory Day in Virus-Reduced Ceremony**\
+`Russian President Vladimir Putin marked Victory day, the anniversary of the defeat of Nazi Germany in World War II, in a ceremony shorn of its usual military parade and pomp by the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/05/09/world/europe/ap-eu-russia-victory-day.html?searchResultPosition=9
+
 **Russia Records More Than 10,000 New Coronavirus Cases in Past Day**\
 `Russian authorities said on Saturday they had recorded 10,817 new cases of the coronavirus in the last day, pushing the nationwide tally to 198,676.`\
-https://nytimes.com/reuters/2020/05/09/world/europe/09reuters-health-coronavirus-russia-cases.html?searchResultPosition=6
-
-**Latest on the Worldwide Spread of the Coronavirus**\
-`More than 3.95 million people have been reported to be infected by the novel coronavirus globally and 273,805 have died, according to a Reuters tally, as of 0214 GMT on Saturday. `\
-https://nytimes.com/reuters/2020/05/09/world/asia/09reuters-health-coronavirus-latest-factbox.html?searchResultPosition=7
-
-**Clashes and Unity Calls at UN on World War II Anniversary**\
-`A U.N. Security Council meeting on the 75th anniversary of the end of World War II in Europe on Friday saw a clash between Russia and some Europeans, calls for unity to fight COVID-19, and warnings that the seeds of a new global conflict must be prevented from growing.`\
-https://nytimes.com/aponline/2020/05/09/world/europe/ap-un-europe-v-e-day-united-nations.html?searchResultPosition=8
-
-**China Approves Novartis' Multiple Sclerosis Treatment Mayzent**\
-`Chinese regulators have approved Novartis' Mayzent to treat relapsing multiple sclerosis in adults, the Swiss drug maker said in a statement on Saturday.`\
-https://nytimes.com/reuters/2020/05/09/world/europe/09reuters-novartis-china-multiple-sclerosis.html?searchResultPosition=9
-
-**Singapore Reports 753 New Coronavirus Cases, Taking Total to 22,460**\
-`Singapore registered 753 new coronavirus infections, its health ministry said on Saturday, taking the city-state's total to 22,460 cases.`\
-https://nytimes.com/reuters/2020/05/09/world/asia/09reuters-health-coronavirus-singapore.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/09/world/europe/09reuters-health-coronavirus-russia-cases.html?searchResultPosition=10
 
