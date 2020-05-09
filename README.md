@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/05/08/business/ap-as-virus-outbreak-asia.html?searchResultPosition=6
 
 **Roy Horn of Siegfried & Roy Dies From Coronavirus at 75**\
-`Magician Roy Horn of the famed Las Vegas act Siegfried & Roy has died of complications from the coronavirus. He was 75. `\
+`Roy Horn of Siegfried & Roy, the duo whose extraordinary magic tricks astonished millions until Horn was critically injured in 2003 by one of the act’s famed white tigers, has died. He was 75.`\
 https://nytimes.com/aponline/2020/05/08/us/ap-us-obit-roy-horn.html?searchResultPosition=7
 
 **Kyle Larson Returns to Racing in World of Outlaws Event**\
