@@ -10,8 +10,8 @@ https://nytimes.com/2020/05/09/us/gerber-baby-adopted.html?searchResultPosition=
 `The Chicago Bulls' new leaders have gotten enough negative reviews of coach Jim Boylen that they are leaning toward moving on without him, according to a report.`\
 https://nytimes.com/reuters/2020/05/09/sports/basketball/09reuters-basketball-nba-chi-boylen.html?searchResultPosition=8
 
-**U.S. to Buy $3 Billion Worth of Agricultural Goods From Farmers: Trump**\
-`U.S. President Donald Trump on Saturday said the United States would buy $3 billion worth of dairy, meat and produce from farmers as unemployment soars and the prices that slaughterhouses pay farmers for animals have fallen in the midst of the coronavirus pandemic.`\
+**U.S. Next Week to Start Purchasing $3 Billion Worth of Farm Goods - Trump**\
+`President Donald Trump on Saturday said the United States will next week begin purchasing $3 billion worth of dairy, meat and produce from farmers as unemployment soars and people are forced to food lines.`\
 https://nytimes.com/reuters/2020/05/09/us/09reuters-health-coronavirus-usa-agriculture.html?searchResultPosition=9
 
 **Polish Opposition Demands Minister's Dismissal Over Election 'Embarrassment'**\
