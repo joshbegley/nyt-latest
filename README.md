@@ -1,5 +1,5 @@
 **Latest on the Worldwide Spread of the Coronavirus**\
-`More than 3.9 million people have been reported to be infected by the coronavirus globally and 271,030 have died, according to a Reuters tally, as of 1704 GMT on Friday. `\
+`More than 3.95 million people have been reported to be infected by the novel coronavirus globally and 273,805 have died, according to a Reuters tally, as of 0214 GMT on Saturday. `\
 https://nytimes.com/reuters/2020/05/09/world/asia/09reuters-health-coronavirus-latest-factbox.html?searchResultPosition=6
 
 **Clashes and Unity Calls at UN on World War II Anniversary**\
