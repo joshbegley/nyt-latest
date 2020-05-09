@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/05/09/world/americas/09reuters-venezuela-securi
 `The jet fuel tank farm at Tripoli's Mitiga airport was attacked on Saturday, causing several fires, Libya's National Oil Corp (NOC) said. `\
 https://nytimes.com/reuters/2020/05/09/world/africa/09reuters-libya-security-oil-airport.html?searchResultPosition=7
 
-**The Latest: Watford Says at Least 6 EPL Teams Oppose Restart**\
+**The Latest: Horse Racing Set to Resume in France on Monday**\
 `The Latest on the effects of the coronavirus outbreak on sports around the world:`\
 https://nytimes.com/aponline/2020/05/09/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=8
 
