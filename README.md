@@ -1,20 +1,20 @@
+**The Week That Was: A Balance of Economy and Public Health**\
+`As heads of state, local leaders, business owners and individual citizens weighed the costs of re-opening the global economy, fears of new outbreaks grew. A central question emerged: How much infection and loss of life will emerge amid the push to restart business?`\
+https://nytimes.com/aponline/2020/05/09/us/ap-us-the-week-that-was.html?searchResultPosition=6
+
+**Franklin Graham: No Interest in Federal Money Meant for WHO**\
+`Rev. Franklin Graham says his Christian relief charity has no interest in receiving any of the funding President Donald Trump has withheld from the World Health Organization over its handling of the coronavirus.`\
+https://nytimes.com/aponline/2020/05/09/us/ap-virus-outbreak-samaritans-purse.html?searchResultPosition=7
+
 **UK Test-And-Trace App Trial on Isle of Wight 'Going Well': Minister**\
 `A trial of Britain's proposed coronavirus test-and-trace app being conducted on the Isle of Wight off the coast of southern England is going well, Transort Secretary Grant Shapps said on Saturday.`\
-https://nytimes.com/reuters/2020/05/09/technology/09reuters-health-coronavirus-britain-app.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/05/09/technology/09reuters-health-coronavirus-britain-app.html?searchResultPosition=8
 
 **Italian Govt Hails Release of Volunteer Kidnapped in Kenya**\
 `Officials in Italy say an Italian aid worker who was kidnapped in Kenya in late 2018 has been freed. `\
-https://nytimes.com/aponline/2020/05/09/world/europe/ap-eu-italy-kenya-kidnapping.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/05/09/world/europe/ap-eu-italy-kenya-kidnapping.html?searchResultPosition=9
 
 **Trudeau Warns Premature Reopening Could Send Canada 'Back Into Confinement'**\
 `Prime Minister Justin Trudeau warned that if provinces move too quickly to reopen their economies, a flare-up of the coronavirus pandemic could send Canada "back into confinement this summer."`\
-https://nytimes.com/reuters/2020/05/09/world/americas/09reuters-health-coronavirus-canada.html?searchResultPosition=8
-
-**Separatists Claim Bomb Attack That Killed 6 Pakistani Troops**\
-`A small Pakistani separatist group claimed responsibility Saturday for targeting a security convoy with a roadside bomb that killed six soldiers, including an army major, in the country's southwest.`\
-https://nytimes.com/aponline/2020/05/09/world/asia/ap-as-pakistan-bombing.html?searchResultPosition=9
-
-**An Ode to the Humble Balcony**\
-`It is private, yet public; exposed, yet secluded. It offers company without the demands of intimacy, and we should never take it for granted again.`\
-https://nytimes.com/2020/05/09/opinion/covid-balconies-architecture.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/09/world/americas/09reuters-health-coronavirus-canada.html?searchResultPosition=10
 
