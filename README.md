@@ -1,20 +1,20 @@
-**Andre Harrell, Executive Who Bridged Hip-Hop and R&B, Dies at 59**\
-`He founded the influential label Uptown Records and gave a first break to Sean Combs, who would go on to become one of hip-hop’s signature moguls.`\
-https://nytimes.com/2020/05/09/arts/music/andre-harrell-dead.html?searchResultPosition=6
+**Mexico: 2 Men Arrested in Strangling Deaths of Sister Nurses**\
+`Two men were arrested for the strangling deaths of three sisters who worked in Mexico’s government hospital system, and authorities ruled out any link to nationwide assaults on medical staff as anxiety over the pandemic escalates.`\
+https://nytimes.com/aponline/2020/05/09/world/americas/ap-lt-mexico-nurses-killed.html?searchResultPosition=6
 
-**FDA Grants Emergency Use Authorization to Quidel for First Antigen Test for COVID-19**\
-`The U.S. Food and Drug Administration (FDA) on Saturday approved emergency use authorization (EUA) to Quidel Corp for the first COVID-19 antigen test.`\
-https://nytimes.com/reuters/2020/05/09/us/09reuters-healthcare-coronavirus-quidel-antigen.html?searchResultPosition=7
+**AP Sportlight**\
+`May 10`\
+https://nytimes.com/aponline/2020/05/09/sports/ap-ap-sportlight.html?searchResultPosition=7
 
-**Small Tribes Seal Borders, Push Testing to Keep Out Virus**\
-`On a dusty plaza in a Native American village that dates back nearly a millennium, a steady trickle of vehicles inched through a pop-up coronavirus testing site.`\
-https://nytimes.com/aponline/2020/05/09/us/ap-us-virus-outbreak-endangered-tribes.html?searchResultPosition=8
+**Watch Live: Cuomo Delivers New York Coronavirus Update**\
+`Gov. Andrew M. Cuomo of New York discusses the state’s continuing response to the coronavirus outbreak.`\
+https://nytimes.com/video/us/politics/100000007130891/cuomo-new-york-coronavirus-briefing.html?searchResultPosition=8
 
-**NY's Cuomo Criticized Over Highest Nursing Home Death Toll**\
-`New York Gov. Andrew Cuomo, who has won bipartisan praise for rallying supplies for his ravaged hospitals and helping slow the coronavirus, is coming under increasing criticism for not bringing that same level of commitment to a problem that has so far stymied him: nursing homes.`\
-https://nytimes.com/aponline/2020/05/09/us/ap-us-virus-outbreak-new-york-nursing-homes.html?searchResultPosition=9
+**Mangoes Off the Menu for Lonely Primates, as Kiev Zoo Struggles in Lockdown**\
+`Mykhailo Pinchuk takes a short walk around his empty zoo, greeting some animals with a stroke and a morsel of food.`\
+https://nytimes.com/reuters/2020/05/09/world/europe/09reuters-health-coronavirus-ukraine-zoo.html?searchResultPosition=9
 
-**10 Films to Watch With Mom**\
-`Remind her that she’s the best: You can stream these shorts right here, from the safety of home.`\
-https://nytimes.com/2020/05/09/opinion/mothers-day-documentaries.html?searchResultPosition=10
+**This Date in Baseball**\
+`May 10`\
+https://nytimes.com/aponline/2020/05/09/sports/baseball/ap-bbo-this-date-in-baseball.html?searchResultPosition=10
 
