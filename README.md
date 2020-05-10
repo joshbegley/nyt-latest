@@ -1,5 +1,5 @@
-**In U.K., Hard-Hit Ethnic Minority Communities Struggle to Bury Dead**\
-`A Birmingham mosque’s car park has been transformed into a makeshift mortuary to handle the influx of bodies. The coronavirus outbreak has disproportionately affected ethnic minority communities.`\
+**In U.K., Hard-Hit Minority Communities Struggle to Bury the Dead**\
+`The coronavirus outbreak has disproportionately affected some areas of Britain. A Birmingham mosque’s car park has been transformed into a makeshift mortuary to handle the influx of bodies.`\
 https://nytimes.com/2020/05/10/world/europe/uk-mosque-burials-coronavirus.html?searchResultPosition=6
 
 **Italian Woman Returns Home After 18-Month African Kidnapping**\
