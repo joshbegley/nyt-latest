@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/05/10/world/asia/10reuters-health-coronavirus-j
 `China's National Health Commission reported 14 new confirmed coronavirus cases on May 9, the highest number since April 28, including the first for more than a month in the city of Wuhan where the outbreak was first detected late last year. `\
 https://nytimes.com/reuters/2020/05/10/world/asia/10reuters-health-coronavirus-china.html?searchResultPosition=8
 
-**The Latest: South Korea Reiterates Proposal to North Korea**\
+**The Latest: Ship Carrying Stranded Indian Citizens Returns**\
 `The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
 https://nytimes.com/aponline/2020/05/10/business/ap-virus-outbreak-the-latest.html?searchResultPosition=9
 
