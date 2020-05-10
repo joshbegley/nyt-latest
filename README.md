@@ -1,5 +1,5 @@
 **Japan to Compile Second Extra Budget to Combat Coronavirus Pandemic: Nikkei**\
-`Japan will compile a second supplementary budget for the current fiscal year to fund additional measures to combat the economic fallout from the coronavirus pandemic, the Nikkei newspaper reported on Monday.`\
+`Japan will compile a second supplementary budget for the current fiscal year to fund new measures to combat the economic fallout from the coronavirus pandemic, the Nikkei newspaper reported on Monday.`\
 https://nytimes.com/reuters/2020/05/10/world/asia/10reuters-health-coronavirus-japan-stimulus.html?searchResultPosition=6
 
 **Men Have High Levels of Enzyme Key to COVID-19 Infection, Study Finds**\
