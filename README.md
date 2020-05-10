@@ -1,20 +1,20 @@
+**Pakistan Police: Cross Border Firing From India Kills Woman**\
+`Police in the Pakistan-ruled part of Kashmir say Indian troops across the disputed border opened fire with automatic rifles on Sunday, shooting a women dead. `\
+https://nytimes.com/aponline/2020/05/10/world/asia/ap-as-pakistan-india.html?searchResultPosition=6
+
+**Bangkok Opens Up as Virus Caseloads Drop, and Pretty Pups Benefit**\
+`Bangkok is crazy for purebred dogs. Some wear nail polish, and many wear clothes. Our overheated schnauzer needed a trim, and the government opened up pet groomers just in time.`\
+https://nytimes.com/2020/05/10/world/asia/bangkok-coronavirus-pet-salons-dogs.html?searchResultPosition=7
+
+**Why the Path to Reopening New York City Will Be So Difficult**\
+`The factors that made the city one of the hardest hit on the planet — its density, mass transit and tourism — complicate a return to normalcy.`\
+https://nytimes.com/2020/05/10/nyregion/reopen-coronavirus-nyc-testing.html?searchResultPosition=8
+
 **Malaysia Extends Curbs on Movement, Businesses to June 9**\
 `Malaysia's government extended the time frame for movement and business curbs by another four weeks to June 9, amid a gradual reopening of economic activity stunted by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/10/world/asia/10reuters-health-coronavirus-malaysia.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/05/10/world/asia/10reuters-health-coronavirus-malaysia.html?searchResultPosition=9
 
 **‘S.N.L.’ Salutes Mothers as Baldwin’s Trump Gives Advice to Graduates**\
 `Tina Fey joined the Mother’s Day tribute in the remotely-produced season finale, which also featured Kristen Wiig and Boyz II Men.`\
-https://nytimes.com/2020/05/10/arts/television/snl-season-finale-tina-fey-kristen-wiig.html?searchResultPosition=7
-
-**Virus Delay, Early Ice Melt Challenge Arctic Science Mission**\
-`They prepared for icy cold and trained to be on the watch for polar bears, but a pandemic just wasn't part of the program.`\
-https://nytimes.com/aponline/2020/05/10/world/europe/ap-eu-virus-outbeak-arctic-expedition.html?searchResultPosition=8
-
-**U.S. Next Week to Start Purchasing $3 Billion Worth of Farm Goods: Trump**\
-`President Donald Trump on Saturday said the United States will next week begin purchasing $3 billion worth of dairy, meat and produce from farmers as unemployment soars and people are forced to food lines.`\
-https://nytimes.com/reuters/2020/05/10/us/10reuters-health-coronavirus-usa-agriculture.html?searchResultPosition=9
-
-**Gaethje Upsets Ferguson to Win UFC Interim Lightweight Title**\
-`Justin Gaethje put on a striking masterclass to score a surprise  knockout victory over Tony Ferguson and win the interim lightweight title at UFC 249, which took place at the VyStar Veterans Memorial Arena in Jacksonville, Florida on Saturday. `\
-https://nytimes.com/reuters/2020/05/10/sports/10reuters-health-coronavirus-mma-ufc.html?searchResultPosition=10
+https://nytimes.com/2020/05/10/arts/television/snl-season-finale-tina-fey-kristen-wiig.html?searchResultPosition=10
 
