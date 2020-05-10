@@ -15,6 +15,6 @@ https://nytimes.com/aponline/2020/05/10/world/asia/ap-virus-outbreak.html?search
 https://nytimes.com/aponline/2020/05/10/world/americas/ap-lt-virus-outbreak-venezuela-migrants.html?searchResultPosition=9
 
 **Coronavirus Live Updates: Top U.S. Health Officials Will Quarantine After Exposure**\
-`Three members of the coronavirus task force, including Dr. Anthony Fauci, were exposed to people who tested positive. In Geneva, more than 1,500 people waited in line for food.`\
+`Three members of the coronavirus task force, including Dr. Anthony Fauci, were exposed to people who tested positive. A new cluster in China highlights the challenge of controlling infections.`\
 https://nytimes.com/2020/05/10/world/coronavirus-news.html?searchResultPosition=10
 
