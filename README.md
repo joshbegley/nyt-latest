@@ -14,7 +14,7 @@ https://nytimes.com/aponline/2020/05/10/world/europe/ap-eu-virus-outbreak-dealin
 `The coronavirus pandemic is driving up stress levels for many Americans — and new business for online therapy companies.`\
 https://nytimes.com/aponline/2020/05/10/business/ap-us-insider-qa-teletherapy.html?searchResultPosition=9
 
-**Coronavirus Live Updates: Voting by Mail Comes Center Stage as Public Health Risk Lingers**\
-`Three top U.S. public health officials have begun partial or full self-quarantine for two weeks after coming into contact with someone who has tested positive.`\
+**Coronavirus Live Updates: 3 Top U.S. Health Officials Go Into Quarantine**\
+`Looking at when and how the pandemic might end. And the issue of voting by mail comes center stage as the public health risk lingers.`\
 https://nytimes.com/2020/05/10/us/coronavirus-updates.html?searchResultPosition=10
 
