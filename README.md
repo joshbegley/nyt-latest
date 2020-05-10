@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/05/10/us/10reuters-health-coronavirus-ace2-men.
 `Formula One is working to put on a British Grand Prix in July even if the country imposes quarantine measures on visitors during the COVID-19 crisis, F1 sources said on Sunday.`\
 https://nytimes.com/reuters/2020/05/10/sports/soccer/10reuters-health-coronavirus-f1-britain.html?searchResultPosition=8
 
-**U.S. to Accuse China of Trying to Hack Vaccine Data, as Virus Remakes Cyberattacks**\
+**U.S. to Accuse China of Trying to Hack Vaccine Data, as Virus Redirects Cyberattacks**\
 `Iran and other nations are also looking to steal data and exploit the pandemic with attacks on infrastructure, officials say.`\
 https://nytimes.com/2020/05/10/us/politics/coronavirus-china-cyber-hacking.html?searchResultPosition=9
 
