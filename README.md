@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/05/10/sports/soccer/ap-soc-morgan-baby.html?se
 `New York state announced new protections on Sunday for residents of nursing homes, which have accounted for a large percentage of the almost 80,000 coronavirus deaths recorded across the country.`\
 https://nytimes.com/reuters/2020/05/10/us/10reuters-health-coronavirus-usa.html?searchResultPosition=7
 
-**Watch: Boris Johnson Addresses Britain’s Coronavirus Outbreak**\
-`Prime Minister Boris Johnson of Britain is expected to announce, in a pre-recorded message, the nation’s next steps in combatting the coronavirus.`\
+**Watch Full Video: Boris Johnson Addressed Britain’s Coronavirus Outbreak**\
+`Prime Minister Boris Johnson of Britain announced, in a pre-recorded message, the nation’s next steps in combatting the coronavirus.`\
 https://nytimes.com/video/world/europe/100000007131674/boris-johnson-britain-coronavirus.html?searchResultPosition=8
 
 **UK Retailers Says Bailout Funds Not Sufficient to Stop 'Imminent Collapse': FT**\
