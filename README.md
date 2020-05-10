@@ -7,7 +7,7 @@ https://nytimes.com/2020/05/10/arts/music/betty-wright-dead.html?searchResultPos
 https://nytimes.com/reuters/2020/05/10/nyregion/10reuters-health-coronavirus-newyork.html?searchResultPosition=7
 
 **Paramedics, Strained in the Hot Zone, Pull Back From CPR**\
-`Their mission is to save lives at any cost. But in New Jersey, so many emergency workers have been infected with the coronavirus that some units are holding off on risky procedures like CPR.`\
+`Their mission is to save lives at any cost. But in New Jersey, the coronavirus has sickened so many emergency workers that some units are holding off on risky procedures like CPR.`\
 https://nytimes.com/2020/05/10/nyregion/paramedics-cpr-coronavirus.html?searchResultPosition=8
 
 **‘Scary to Go to Work’: White House Races to Contain Virus in Its Ranks**\
