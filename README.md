@@ -2,8 +2,8 @@
 `The deputy was fired after “terrorizing” a North Carolina family in what appeared to be a case of mistaken identity, officials said.`\
 https://nytimes.com/2020/05/10/us/North-Carolina-deputy-charges-racism.html?searchResultPosition=6
 
-**Britain Won't Quarantine Travellers From France at This Stage: Elysee**\
-`Britain won't impose quarantine to travellers coming from France at this stage, French President Emmanuel Macron's office said on Sunday, adding that any such measure would be reciprocal and only be imposed after mutual consultation.`\
+**Britain Won't Quarantine Travellers From France at This Stage**\
+`Britain won't impose quarantine to travellers coming from France at this stage, France and Britain said on Sunday, with the two countries adding that any such measure would be reciprocal and only be imposed after mutual consultation.`\
 https://nytimes.com/reuters/2020/05/10/world/europe/10reuters-health-coronavirus-britain-france.html?searchResultPosition=7
 
 **Skadden Said to Have Paid $11 Million to Settle Ukraine Dispute**\
