@@ -8,7 +8,7 @@ https://nytimes.com/aponline/2020/05/10/us/ap-us-virus-outbreak-multigenerationa
 
 **‘The Sunday Read’: The Iceman and Winter**\
 `What happened to Val Kilmer? The unlikeliest star in Hollywood history is just starting to figure it out.`\
-https://nytimes.com/2020/05/10/podcasts/the-daily/the-sunday-read-the-iceman-and-winter.html?searchResultPosition=8
+https://nytimes.com/2020/05/10/podcasts/the-daily/val-kilmer.html?searchResultPosition=8
 
 **Little Richard’s Queer Triumph**\
 `The legend himself sometimes sought to distance himself from the L.G.B.T.Q. community. But his queerness is what made him a dynamic performer.`\
