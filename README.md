@@ -1,20 +1,20 @@
-**Take Five: Trade War II**\
-`1/THIRD LAW OF TARIFFS`\
-https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-global-markets-themes.html?searchResultPosition=6
+**The Cost of Coronavirus: Greek Tourism Slump Threatens a Decade of Hard-Won Gains**\
+`About now, Charlie Chahine should be welcoming his first international guests of the season to his Suites of the Gods resort on Santorini, Greece's most popular holiday island.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-greece-economy.html?searchResultPosition=6
 
-**Singapore Hawker Won't Let Virus Write 'Tragic' End to Family Business**\
-`Kristen Choong had accepted her family's decades-old noodle stall in Singapore would likely fold when she retires. `\
-https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-health-coronavirus-singapore-hawker.html?searchResultPosition=7
+**What Would Have Been: Another PGA Major, Triple Crown Race**\
+`While NASCAR will resume its season with live racing and the world's No.`\
+https://nytimes.com/aponline/2020/05/11/sports/ap-us-sports-what-would-have-been.html?searchResultPosition=7
 
-**Word + Quiz: affront**\
-`This word has appeared in 135 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/05/11/learning/word-quiz-affront.html?searchResultPosition=8
+**Frozen Fare Cold Comfort for Fishing Industry Battered by Coronavirus**\
+`Frozen fish sticks and canned salmon have made a comeback as the coronavirus crisis keeps people home, forcing a change of tack for the fishing industry that usually turns to restaurants from Paris to New York and Shanghai to serve their fresh seafood.`\
+https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-health-coronavirus-fishing.html?searchResultPosition=8
 
-**Yemen Declares Aden an 'Infested' City as Coronavirus Spreads**\
-`Yemeni authorities declared Aden, interim seat of the Saudi-backed government, an "infested" city on Monday after the number of coronavirus cases there jumped to 35, with four deaths. `\
-https://nytimes.com/reuters/2020/05/11/world/middleeast/11reuters-health-coronavirus-yemen.html?searchResultPosition=9
+**If Games Resume, Athletes Will 'Need to Know When to Peak'**\
+`Making it safe for America’s professional sports teams to start playing games is one thing.`\
+https://nytimes.com/aponline/2020/05/11/sports/ap-us-virus-outbreak-game-shape.html?searchResultPosition=9
 
-**Roche's U.S. gRED Research Head to Retire, Be Replaced by MIT's Regev**\
-`Roche said Monday it has hired a Massachusetts Institute of Technology (MIT) professor as the new head of the Swiss drugmaker's U.S. research arm that was responsible for some of the company's best-selling medicines of the last few decades.`\
-https://nytimes.com/reuters/2020/05/11/business/11reuters-roche-hldg-research.html?searchResultPosition=10
+**Lebanon Faces Grave Threat to Stability as Poverty Mounts**\
+`Living in a slum built precariously on the banks of a sewage-tainted river in Lebanon, Faiqqa Homsi feels her family being pushed closer and closer to the edge. `\
+https://nytimes.com/aponline/2020/05/11/business/ap-ml-lebanon-slide-into-poverty.html?searchResultPosition=10
 
