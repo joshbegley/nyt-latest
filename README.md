@@ -1,20 +1,20 @@
-**Washington, D.C. Expected to Waive Bus Fares Until Spring 2021**\
-`The Washington, D.C.-area transit system said on Monday it plans to extend its system of waiving bus fares, likely until spring 2021, as it begins plans for a gradual return to service from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/11/us/11reuters-health-coronavirus-washingtondc-transit.html?searchResultPosition=6
+**M.L.B. Proposes an 82-Game Season Starting in July**\
+`The proposal, which would require approval from the players’ union, would have teams start the season in early July and mainly play teams in their geographic region.`\
+https://nytimes.com/2020/05/11/sports/baseball/coronavirus-baseball-mlb-restart.html?searchResultPosition=6
 
-**NBC News Apologizes for 'Inaccurately' Quoting William Barr**\
-`NBC has apologized for “inaccurately” cutting a portion of an interview with Attorney General William Barr that left a false impression with viewers of “Meet the Press.”`\
-https://nytimes.com/aponline/2020/05/11/us/ap-us-media-nbc-barr.html?searchResultPosition=7
+**United Airlines Appoints Brett Hart as President**\
+`United Airlines Holdings on Monday named its Executive Vice President Brett Hart as president of the airline, effective May 20.`\
+https://nytimes.com/reuters/2020/05/11/us/11reuters-united-arlns-moves.html?searchResultPosition=7
 
-**Shanghai Disneyland Reopens With Masked Guests and Temperature Checks**\
-`Shanghai Disneyland welcomed visitors after its temporary closure because of the coronavirus outbreak, offering a glimpse of how other parks may reopen.`\
-https://nytimes.com/video/shanghai-disneyland-reopens-with-masked-guests-and-temperature-checks.html?searchResultPosition=8
+**Italy to Give Regions Powers to Roll Back Coronavirus Lockdown**\
+`The Italian government said on Monday it would give the regions the power to roll back restrictions introduced to halt the new coronavirus in a move that is likely to see most remaining curbs lifted next week.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-italy.html?searchResultPosition=8
 
-**The Baked Pleasures of Australia Delivered**\
-`Bourke Street Bakery in Manhattan has added savory pies to its pickup and delivery menu.`\
-https://nytimes.com/2020/05/11/dining/bourke-street-bakery.html?searchResultPosition=9
+**Fauci, Other Witnesses and Chairman Are Quarantined, but Hearing Must Go On**\
+`Tuesday’s hearing before the Senate Health Committee will be a chance for Dr. Anthony S. Fauci and other top health experts to speak to lawmakers, albeit by video, without President Trump nearby.`\
+https://nytimes.com/2020/05/11/us/politics/coronavirus-hearing-fauci-quarantine.html?searchResultPosition=9
 
-**South Carolina's Roman Catholic Churches Among the First in Nation to Reopen**\
-`Roman Catholic churches across South Carolina reopened for services on Monday for the first time since a coronavirus-related shutdown began on March 17, allowing parishioners to attend Mass in person.`\
-https://nytimes.com/reuters/2020/05/11/us/11reuters-health-coronavirus-usa-church.html?searchResultPosition=10
+**How Major US Stock Indexes Fared Monday**\
+`Major stock indexes erased much of their early losses, leaving the market mixed at the end of trading Monday. `\
+https://nytimes.com/aponline/2020/05/11/business/ap-financial-markets-box.html?searchResultPosition=10
 
