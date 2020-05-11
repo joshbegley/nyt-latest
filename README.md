@@ -1,20 +1,20 @@
+**PDVSA Worker Arrested After Criticism of Venezuela's Maduro, Says Union Leader**\
+`A worker at Venezuelan state-oil company Petroleos de Venezuela's [PDVSA.UL] maritime unit was arrested after criticizing President Nicolas Maduro in a meeting with company leadership, according to a union leader and a person present at the meeting. `\
+https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-venezuela-pdvsa.html?searchResultPosition=6
+
+**No Prince Without the King**\
+`The pompadour, the pancake, the pantsuits, the pink — in style as in music, Little Richard led the way.`\
+https://nytimes.com/2020/05/11/style/no-prince-without-the-king.html?searchResultPosition=7
+
+**White House Recommends Tests for All Nursing Home Residents**\
+`With deaths mounting at the nation's nursing homes, the White House strongly recommended to governors Monday that all residents and staff at such facilities be tested for the coronavirus in the next two weeks.`\
+https://nytimes.com/aponline/2020/05/11/us/politics/ap-us-virus-outbreak-nursing-homes-1st-ld-writethru.html?searchResultPosition=8
+
+**Closing Prices for Crude Oil, Gold and Other Commodities**\
+`Benchmark U.S. crude oil fell 60 cents, or 2.4%, to settle at $24.14 a barrel Monday. Brent crude oil, the international standard, fell $1.34, or 4.3% to $29.63 a barrel. `\
+https://nytimes.com/aponline/2020/05/11/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=9
+
 **Trump Tells Iraq's New PM: US Willing to Give Economic Help**\
 `President Donald Trump said in a phone call to Iraq's new prime minister that the U.S. was willing to provide Iraq with economic assistance, according to an Iraqi government statement on Monday, as the country faces a severe financial crisis brought on by falling oil prices. `\
-https://nytimes.com/aponline/2020/05/11/world/middleeast/ap-ml-iraq-politics-.html?searchResultPosition=6
-
-**Park: Crowds Stayed Manageable During Reopening of Smokies**\
-`Crews had to rescue one hiker and dealt with congestion in a few popular places when the Great Smoky Mountains reopened over the weekend, but crowds stayed manageable, a park spokeswoman said Monday.`\
-https://nytimes.com/aponline/2020/05/11/us/ap-us-virus-outbreak-smokies-1st-ld-writethru.html?searchResultPosition=7
-
-**Johnson, Love III Named as U.S. Vice Captains for Ryder Cup**\
-`Zach Johnson and Davis Love III were named as vice captains by U.S. captain Steve Stricker for the 2020 Ryder Cup, which is scheduled to take place in September at Whistling Straits in Kohler, Wisconsin.`\
-https://nytimes.com/reuters/2020/05/11/sports/golf/11reuters-golf-rydercup.html?searchResultPosition=8
-
-**Delayed 'Friends' Reunion Holding Out for Live Audience Over Remote Event**\
-`Fans may have to wait until the fall for the "Friends" reunion special as HBO Max executives are holding out hopes of filming it before a live audience rather than shooting the much-anticipated get together remotely with stars under quarantine.`\
-https://nytimes.com/reuters/2020/05/11/arts/11reuters-television-friends.html?searchResultPosition=9
-
-**U.S. National Guard Chief Tests Negative for Coronavirus**\
-`The chief of the U.S. National Guard tested negative for COVID-19 on Monday, in his second negative test since receiving a positive result at a routine screening before a Saturday national security meeting at the White House, the Guard said.`\
-https://nytimes.com/reuters/2020/05/11/us/11reuters-health-coronavirus-usa-military-guard.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/11/world/middleeast/ap-ml-iraq-politics-.html?searchResultPosition=10
 
