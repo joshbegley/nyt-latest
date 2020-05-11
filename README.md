@@ -1,5 +1,5 @@
 **Viral Video Sensation 'Double Rainbow Guy' Dies at 57**\
-`Paul L. Vasquez, the burly mountain man whose psychedelic reaction upon seeing a double rainbow propelled him to Internet stardom and turned him into a folk hero, has died in Central California. He was 57.`\
+`Paul L. Vasquez, the burly mountain man whose awestruck reaction upon seeing a double rainbow propelled him to Internet stardom and turned him into a folk hero, has died in Central California. He was 57.`\
 https://nytimes.com/aponline/2020/05/10/business/ap-us-obit-double-rainbow-man.html?searchResultPosition=6
 
 **Iran Reports One Dead in Naval Exercise**\
