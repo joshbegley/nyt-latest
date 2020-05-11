@@ -1,20 +1,20 @@
-**Merkel: We Must Stick to Basic Rules Even as Coronavirus Lockdown Eases**\
-`Chancellor Angela Merkel on Monday stressed that people needed to continue keeping their distance from one another and covering their mouths and noses even as Germany eases some of the restrictions it had imposed to slow the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-germany-merkel.html?searchResultPosition=6
+**Premier League Boost: Gov't Aims for Return of Sport in June**\
+`Sports events will be allowed to resume in England in June if there is no new spike in coronavirus infections but spectators will not be allowed into stadiums until “significantly later,” the government said Monday.`\
+https://nytimes.com/aponline/2020/05/11/sports/soccer/ap-soc-premier-league-restart.html?searchResultPosition=6
 
-**Bristol Myers to Pay Bluebird $200 Million for Future Royalties on Cancer Therapies**\
-`Bluebird bio Inc said on Monday Bristol Myers Squibb Co would give it a one-time payment of $200 million to buy out obligations for future royalties on sales outside the United States of two cancer therapies being developed by them.`\
-https://nytimes.com/reuters/2020/05/11/us/11reuters-bluebird-bio-bristol-myers.html?searchResultPosition=7
+**Cape Town and Its Province Are South Africa's Virus Hotspot**\
+`Cape Town and the surrounding Western Cape province have become South Africa's coronavirus hotspot, accounting for more than half of the nation’s confirmed cases, which have gone above 10,000.`\
+https://nytimes.com/aponline/2020/05/11/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=7
 
-**Cycling: Olympic Champion Van Der Breggen to Retire After Tokyo Games**\
-`Dutch Olympic champion Anna van der Breggen has said she will retire from cycling after defending her road race title at the rescheduled Tokyo Games in 2021.`\
-https://nytimes.com/reuters/2020/05/11/sports/cycling/11reuters-olympics-cycling-netherlands-vanderbreggen.html?searchResultPosition=8
+**American Hockey League Cancels Rest of Season, Playoffs**\
+`The American Hockey League canceled the rest of its season Monday because of the coronavirus pandemic and shifted its focus toward returning next season.`\
+https://nytimes.com/aponline/2020/05/11/sports/ap-hko-virus-outbreak-ahl-canceled.html?searchResultPosition=8
 
-**Turkey Cancels Basketball, Volleyball Seasons Due to Outbreak**\
-`Turkey canceled its basketball and volleyball leagues for the 2019-2020 season on Monday, with no relegated teams and the current standings valid for European competition, following a stoppage in play due to the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/05/11/sports/basketball/11reuters-health-coronavirus-turkey-sports.html?searchResultPosition=9
+**‘Have a Good Trip’ Review: Stars Tell Their Groovy Acid Tales**\
+`Netflix’s drug story compendium is like a long, awkward hang in your dealer’s grimy apartment.`\
+https://nytimes.com/2020/05/11/movies/have-good-trip-review.html?searchResultPosition=9
 
-**Pandemic Upends Life on Isolated, Idyllic Galapagos Islands**\
-`Before the coronavirus, sudden life-threatening ailments among tourists, fishermen and others on the Galapagos Islands were considered so rare that hospitals didn’t have a single intensive care unit bed.`\
-https://nytimes.com/aponline/2020/05/11/world/americas/ap-lt-virus-outbreak-lonely-galapagos.html?searchResultPosition=10
+**The Social-Distancing Shamers Are Watching**\
+`The internet has long been identified as a breeding ground for public shaming, but the coronavirus has advanced the game.`\
+https://nytimes.com/2020/05/11/arts/social-distance-shaming.html?searchResultPosition=10
 
