@@ -1,20 +1,20 @@
+**If U.K. Schools Reopen, Will the Students Return?**\
+`Schools have remained open for vulnerable children and the children of essential workers, but many parents are too concerned about the spread of the coronavirus to let their children attend.`\
+https://nytimes.com/2020/05/11/world/europe/coronavirus-uk-schools-reopen.html?searchResultPosition=6
+
+**Street Ball Scene on Hiatus, Including NYC's Iconic Courts**\
+`No sounds of bouncing balls. No scuffing of sneakers against dusty concrete. No whipping of basketballs as they fall through nylon nets or metallic ringing of balls careening off rims. `\
+https://nytimes.com/aponline/2020/05/11/sports/basketball/ap-bko-deserted-icons-rucker-park.html?searchResultPosition=7
+
+**Nashville Police Investigate Bull’s-Eye in N.A.A.C.P. Leader’s Yard**\
+`The Rev. Keith Caldwell found the target propped up outside his house on Saturday night. A police officer was dismissive, he said, but the department is now investigating.`\
+https://nytimes.com/2020/05/11/us/naacp-nashville.html?searchResultPosition=8
+
+**Victim or Executioner? Let the Computer Decide**\
+`An interactive plan for a Holocaust museum envisioned sorting visitors into victims, executioners and collaborators. Backlash ensued.`\
+https://nytimes.com/2020/05/11/world/europe/ukraine-holocaust-babyn-yar.html?searchResultPosition=9
+
 **Ghana President Says One Person Infected 533 With Coronavirus at Fish Factory**\
 `A worker at a fish-processing factory in Ghana's Atlantic seafront city of Tema infected 533 other workers at the facility with the coronavirus, Ghana's President Nana Akufo-Addo said in a broadcast late on Sunday.`\
-https://nytimes.com/reuters/2020/05/11/world/africa/11reuters-health-coronavirus-ghana.html?searchResultPosition=6
-
-**AHL Cancels Remainder of 2019-20 Season**\
-`The American Hockey League announced Monday that it has canceled the remainder of the 2019-20 season due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/11/sports/11reuters-icehockey-unk-season-canceled.html?searchResultPosition=7
-
-**No Immediate EU Legal Action Likely Against Germany Over Court Ruling on ECB Bonds-EU Officials**\
-`The European Commission is unlikely to take immediate legal action against Germany over a ruling by the country's top court that the European Central Bank has overstepped its mandate with its bond purchases, European Union officials said on Monday.`\
-https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-ecb-policy-germany-eu.html?searchResultPosition=8
-
-**Trump Again Pressures U.S. Regulator on News Programming**\
-`U.S. President Donald Trump is again pressuring the U.S. Federal Communications Commission over a broadcast news program after failing for years to convince regulators to take any action against broadcasters.`\
-https://nytimes.com/reuters/2020/05/11/arts/11reuters-usa-trump-nbc-pai.html?searchResultPosition=9
-
-**FDA Authorizes Use of Abbott's COVID-19 Antibody Test on Second System**\
-`The U.S. Food and Drug Administration on Monday authorized the emergency use of Abbott Laboratories' coronavirus test for detecting antibodies using another of its diagnostic platforms, which will allow the company to ship nearly 30 million tests this month.`\
-https://nytimes.com/reuters/2020/05/11/us/11reuters-health-coronavirus-abbott.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/11/world/africa/11reuters-health-coronavirus-ghana.html?searchResultPosition=10
 
