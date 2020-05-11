@@ -1,20 +1,20 @@
-**China's Wuhan Plans City-Wide Testing for Coronavirus Over Period of 10 Days: Sources**\
-`The Chinese city of Wuhan, the epicentre of China's coronavirus outbreak, plans to conduct city-wide nucleic acid testing over a period of 10 days, according to an internal document seen by Reuters and two sources familiar with the situation. `\
-https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-health-coronavirus-china-wuhan.html?searchResultPosition=6
+**Venezuela's Timid Gains in Taming Inflation Fade as Food Prices Soar**\
+`Venezuela's modest advances in taming inflation since last year are being wiped out by chronic fuel shortages and a plummeting exchange rate, driving food prices up amid the coronavirus pandemic, according to economists, lawmakers and industry leaders. `\
+https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-venezuela-economy.html?searchResultPosition=6
 
-**Coronavirus in Mexico Made Worse by Trio of Health Risk Factors**\
-`The spread of the new coronavirus is taking a deadly toll on Mexico due to the widespread presence of a trio of pre-existing medical conditions that put Mexicans at higher risk.`\
-https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-health-coronavirus-mexico-risk.html?searchResultPosition=7
+**U.S. Consumers' Expectations Deteriorated Sharply in April: New York Fed Survey**\
+`In a month when Americans in most states were being asked to stay home because of the coronavirus pandemic, U.`\
+https://nytimes.com/reuters/2020/05/11/us/11reuters-usa-fed-consumer-expectations.html?searchResultPosition=7
 
-**AP PHOTOS: Rituals Upended Amid the Coronavirus Pandemic**\
-`A man in a full protective suit prepares to remove the body of someone who died at home in one of the Brazilian cities hit hardest by the coronavirus pandemic. A woman speaks through a closed window to her daughter and grandchild on Mother's Day in the United States.`\
-https://nytimes.com/aponline/2020/05/11/us/ap-virus-outbreak-a-week-photo-gallery.html?searchResultPosition=8
+**Dollar Outlook Powers Rare Gap Between Positioning Surveys**\
+`A rare gap has opened up between a widely tracked positioning gauge and investor surveys collated by the world's top banks in the global $6.6 trillion per day foreign exchange market.`\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-health-coronavirus-dollar-positions-graphic.html?searchResultPosition=8
 
-**Indiana Attorney General's Law License Suspended for Groping**\
-`Indiana Attorney General Curtis Hill’s law license will be suspended for 30 days over an allegation that he drunkenly groped four women during a party, the state Supreme Court ruled Monday.`\
-https://nytimes.com/aponline/2020/05/11/us/politics/ap-us-indiana-attorney-general-groping-allegations.html?searchResultPosition=9
+**Russia Says U.S. Has Legal Curbs on Oil Output Cuts, but Should Be Flexible**\
+`Russian Energy Minister Alexander Novak said on Friday that the United States has legal restrictions on oil output cuts, but the country should be flexible with them, RIA news agency reported.`\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-oil-opec-russia-usa-novak.html?searchResultPosition=9
 
-**Multiple Ohio Prison Deaths Include Inmate Arguing Innocence**\
-`Ohio prison inmate Carlos Ridley, four decades into a life sentence for a triple slaying, was awaiting a court ruling this month he hoped would help him prove innocence through DNA testing.`\
-https://nytimes.com/aponline/2020/05/11/us/ap-us-virus-outbreak-prison-inmate-deaths.html?searchResultPosition=10
+**Deep Oil Output Cuts Won't Offset Unprecedented Demand Loss: IEA**\
+`Deep output cuts by OPEC and other oil producing nations will not prevent a huge build up of crude, the head of the IEA said on Friday, urging the world's richest economies to discuss broader ways to stabilise oil markets.`\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-global-oil-iea.html?searchResultPosition=10
 
