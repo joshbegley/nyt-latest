@@ -1,20 +1,20 @@
-**What to Do With 50 Pounds of Potatoes? The Quandaries of Bulk Buying**\
-`The pandemic has turned many cooks into big-volume shoppers, and left them puzzling out how to manage a bursting pantry of ingredients.`\
-https://nytimes.com/2020/05/11/dining/bulk-food-buying-coronavirus.html?searchResultPosition=6
+**U.S. National Guard Chief Tests Negative for Coronavirus**\
+`The chief of the U.S. National Guard tested negative for COVID-19 on Monday, in his second negative test since receiving a positive result at a routine screening before a Saturday national security meeting at the White House, the Guard said.`\
+https://nytimes.com/reuters/2020/05/11/us/11reuters-health-coronavirus-usa-military-guard.html?searchResultPosition=6
 
-**Western U.S. States Request $1 Trillion in Coronavirus Aid: California Governor**\
-`California, Oregon, Washington and other states involved in a western states pact to coordinate coronavirus response have asked the federal government for a combined $1 trillion in aid, California Governor Gavin Newsom said on Monday.`\
-https://nytimes.com/reuters/2020/05/11/us/11reuters-health-coronavirus-usa-aid.html?searchResultPosition=7
+**About 136,000 People in England Currently Infected With COVID-19: Study**\
+`Around 136,000 people in England are currently infected with COVID-19, according to early results from the first large-scale study in Britain into the spread of the disease.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-britain-prevalence.html?searchResultPosition=7
 
-**Brazil to Announce New Business Measures, Eyes Tax Exemptions: Official**\
-`Brazil will announce further measures to support businesses and help preserve jobs in the coming weeks, productivity and competition secretary Carlos da Costa said on Monday, adding that the government is considering longer-term tax exemptions for companies.`\
-https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-brazil-economy-support.html?searchResultPosition=8
+**White House Directs West Wing Staff to Wear Masks at All Times - Administration Official**\
+`The White House has directed staff working in the West Wing, where the daily operations of President Donald Trump's administration are carried out, to wear masks at all times in the building, except when they are at their own desks, a senior administration official confirmed on Monday.`\
+https://nytimes.com/reuters/2020/05/11/us/11reuters-health-coronavirus-usa-white-house.html?searchResultPosition=8
 
-**UK Economy May Need to Adapt if Virus Vaccine Takes Time: Johnson**\
-`Britain will need to think about how its economy can adapt if a vaccine for the novel coronavirus does not emerge quickly, Prime Minister Boris Johnson said on Monday.`\
-https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-britain-economy.html?searchResultPosition=9
+**WeWork Directors Seek to Preserve Right to Sue Owner SoftBank**\
+`A special committee of WeWork board members filed a motion in Delaware on Monday to prevent it from being disbanded, as it pursues legal action against majority owner SoftBank Group Corp over an abandoned $3 billion tender offer for the office space-sharing start-up. `\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-wework-softbank-lawsuit.html?searchResultPosition=9
 
-**California Sheriff Says Inmates Tried to Infect Themselves**\
-`A group of inmates at a Los Angeles County jail tried to infect themselves with the coronavirus by sharing a cup of water and a mask and within a week 21 prisoners tested positive, Sheriff Alex Villanueva said Monday.`\
-https://nytimes.com/aponline/2020/05/11/us/ap-us-virus-outbreak-california-infected-inmates-.html?searchResultPosition=10
+**Report: Owners Approve '20 Season Model, Will Send to Players**\
+`MLB owners approved a plan on Monday to start the 2020 season, The Athletic's Ken Rosenthal reported.`\
+https://nytimes.com/reuters/2020/05/11/sports/baseball/11reuters-basebasll-mlb-season-rev-share-plan.html?searchResultPosition=10
 
