@@ -1,20 +1,20 @@
-**At Least One Dead, Several Injured in Iranian Naval Accident: TV**\
-`At least one Iranian navy man was killed and several were injured in an incident on a military ship during a naval exercise in the Gulf of Oman, Iranian state TV reported on Monday. `\
-https://nytimes.com/reuters/2020/05/11/world/middleeast/11reuters-iran-military-accident.html?searchResultPosition=6
+**Thailand Reports Six New Coronavirus Cases, No New Deaths**\
+`Thailand reported six new coronavirus cases on Monday, bringing its total to 3,015 cases since the outbreak began in January. `\
+https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-health-coronavirus-thailand.html?searchResultPosition=6
 
-**Factbox: Latest on the Worldwide Spread of the New Coronavirus**\
-`More than 3.89 million people have been reported to be infected by the novel coronavirus globally and 269,840 have died, according to a Reuters tally, as of 1248 GMT on Friday. `\
-https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-health-coronavirus-latest-factbox.html?searchResultPosition=7
+**Virginia Governor Urged to Halt Release of Officer's Killer**\
+`A group of Republican Virginia lawmakers called on Democratic Gov. Ralph Northam, at the last minute, to prevent the release of a man who killed a police officer in 1979.`\
+https://nytimes.com/aponline/2020/05/11/us/ap-us-virus-outbreak-virginia-parole-controversy.html?searchResultPosition=7
 
-**South Korea's May 1-10 Exports Dive as Coronavirus Wipes Out Global Demand**\
-`South Korean exports and imports suffered a precipitous decline in the first 10 days of May, underlining a bleak outlook for Asia's fourth largest economy and international trade as the coronavirus crisis slammed global demand. `\
-https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-southkorea-economy-trade.html?searchResultPosition=8
+**Australia Expects China to Keep Barley, COVID-19 Issues Separate**\
+`Australian Prime Minister Scott Morrison said on Monday he  expects Beijing to keep its judgment on whether Australia dumped barley into China separate from protests over Canberra's call for an inquiry into the origins of the novel coronavirus. `\
+https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-australia-china-trade.html?searchResultPosition=8
 
-**AP FACT CHECK: Trump's Perfect China 'Ban,' Death Toll Myths**\
-`Truth often takes a beating when President Donald Trump talks about his administration’s response to the coronavirus and the subsequent death toll in the U.S. This past week was no exception.`\
-https://nytimes.com/aponline/2020/05/11/us/politics/ap-us-fact-check-week.html?searchResultPosition=9
+**As Contracts Expire During Shutdown, Players and Clubs Ask: Now What?**\
+`On June 30, most contracts in European soccer expire, and that will put hundreds, if not thousands, of players out of work. For the vast majority, the future is anything but certain.`\
+https://nytimes.com/2020/05/11/sports/soccer/soccer-transfers-contracts.html?searchResultPosition=9
 
-**Trump Takes Cautious Approach to Highlighting Biden Accuser**\
-`President Donald Trump rarely holds his fire, hurling accusations true and false.`\
-https://nytimes.com/aponline/2020/05/11/us/politics/ap-us-election-2020-trump-biden.html?searchResultPosition=10
+**What’s on TV Monday: ‘Have a Good Trip’ and ‘Phantom India’**\
+`A documentary about celebrity experiences with hallucinogenic drugs drops on Netflix. And Louis Malle’s mammoth movie about India is available on the Criterion Channel.`\
+https://nytimes.com/2020/05/11/arts/television/whats-on-tv-monday.html?searchResultPosition=10
 
