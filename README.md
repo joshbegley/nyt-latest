@@ -1,20 +1,20 @@
-**If Airlines Are Suffering, Why Are Some Planes So Full?**\
-`Most flights are empty but some are still operating near capacity, frustrating travelers who say that airlines are not doing enough to keep them safe.`\
-https://nytimes.com/2020/05/11/business/packed-united-flight-crowded-airlines.html?searchResultPosition=6
+**Trumps Says Coronavirus Among White House Staff Is ‘Well Contained’**\
+`President Trump played down concerns over coronavirus exposure among White House staff members, after two aides tested positive last week.`\
+https://nytimes.com/video/us/politics/100000007133391/trump-coronavirus-white-house.html?searchResultPosition=6
 
-**South Dakota Governor Threatens Tribes With Legal Action on Checkpoints**\
-`South Dakota Governor Kristi Noem on Monday threatened to take legal action against two Native American tribes who have set up vehicle checkpoints in an attempt to contain the coronavirus that has impacted other Native American reservations.`\
-https://nytimes.com/reuters/2020/05/11/us/11reuters-health-coronavirus-usa-checkpoints.html?searchResultPosition=7
+**Abba Eban Was the Last to Hold These Two Israeli Posts at Once. Next: Gilad Erdan.**\
+`A younger rival to Netanyahu is to become Israel’s ambassador to the United Nations and, in November, to Washington as well.`\
+https://nytimes.com/2020/05/11/world/middleeast/israel-ambassador-gilad-erdan.html?searchResultPosition=7
 
-**In Flip, Georgia System Nixes Ex-Leader of New York Schools**\
-`One of Georgia’s largest school districts won't be hiring the former leader of school systems in New York City and Miami after board members were faced with complaints about his past record.`\
-https://nytimes.com/aponline/2020/05/11/us/ap-us-georgia-school-superintendent.html?searchResultPosition=8
+**The Era of Offshoring U.S. Jobs Is Over**\
+`The pandemic, and Trump’s trade policy, are accelerating a trend to bring manufacturing back to America.`\
+https://nytimes.com/2020/05/11/opinion/coronavirus-jobs-offshoring.html?searchResultPosition=8
 
-**More Aid to States? That May Depend on Their Political Hue**\
-`With governors and mayors pressing for substantial federal help to deal with the effects of the coronavirus pandemic, Republicans are divided, with some reluctant to help Democratic strongholds.`\
-https://nytimes.com/2020/05/11/us/politics/state-aid-coronavirus-congress.html?searchResultPosition=9
+**Trump Abruptly Ends Briefing After Contentious Exchanges**\
+`President Donald Trump abruptly ended his White House news conference Monday following combative exchanges with reporters Weijia Jiang of CBS News and Kaitlan Collins of CNN.`\
+https://nytimes.com/aponline/2020/05/11/arts/ap-us-virus-outbreak-media.html?searchResultPosition=9
 
-**Tribal Nations Face Most Severe Crisis in Decades as the Coronavirus Closes Casinos**\
-`Nearly 500 tribal casinos remain shut down during the pandemic, causing job losses to spike. The economic damage is spreading quickly, wreaking havoc on fragile tribal finances.`\
-https://nytimes.com/2020/05/11/us/coronavirus-native-americans-indian-country.html?searchResultPosition=10
+**UK Should Extend Part of Furlough Scheme to End of Year: Think Tank**\
+`Britain's government should extend a costly job support programme until the end of the year for retail and hospitality workers hit hardest by the coronavirus, a think tank said on Tuesday, ahead of an expected government announcement.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-britain-furlough.html?searchResultPosition=10
 
