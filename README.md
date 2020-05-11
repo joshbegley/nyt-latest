@@ -1,20 +1,20 @@
-**Epidemic Response Group to Invest Up to $384 Million in Novavax's Coronavirus Vaccine**\
-`The Coalition for Epidemic Preparedness Innovations (CEPI) will invest up to $384 million to support the development and production of Novavax Inc's vaccine candidate against the coronavirus, the company said on Monday. `\
-https://nytimes.com/reuters/2020/05/11/business/11reuters-health-coronavirus-vaccines-cepi.html?searchResultPosition=6
+**U.S. Supreme Court Conservatives Lean Toward Shielding Religious Schools From Suits**\
+`Conservative U.S. Supreme Court justices signaled sympathy on Monday toward a bid by two Catholic elementary schools in California to avoid discrimination lawsuits by former teachers in a case that could make it harder to hold religious institutions liable in employment disputes.`\
+https://nytimes.com/reuters/2020/05/11/us/11reuters-usa-court-religion.html?searchResultPosition=6
 
-**Relive Memories of the Queens Night Market**\
-`A new cookbook profiles the makers at this popular outdoor food festival, on hold until the pandemic passes.`\
-https://nytimes.com/2020/05/11/dining/queens-night-market-cookbook.html?searchResultPosition=7
+**Tencent Music Misses First-Quarter Revenue Estimates**\
+`China's Tencent Music Entertainment Group missed Wall Street estimates for quarterly revenue on Monday, sending its shares down 2% in extended trade.`\
+https://nytimes.com/reuters/2020/05/11/technology/11reuters-tencent-music-results.html?searchResultPosition=7
 
-**Brazil Launches Military Operations in the Amazon Rainforest**\
-`Vice President Hamilton Mourao said Brazil launched a military deployment to protect the Amazon rainforest on Monday, beginning with an operation to combat environmental destruction in the state of Rondonia near the Bolivian border.`\
-https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-brazil-environment.html?searchResultPosition=8
+**Mexican Supreme Court Throws Out Law Extending Governor's Mandate**\
+`Mexico's Supreme Court on Monday unanimously struck down a law extending the gubernatorial mandate of a member of President Andres Manuel Lopez Obrador's ruling party which had fed concerns it could lead to broader changes to term limits.`\
+https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-mexico-politics-court.html?searchResultPosition=8
 
-**California Governor to Look Into Tesla Reopening in Defiance of Health Order**\
-`California Governor Gavin Newsom said both he and local health officials would speak to officials at Tesla Inc, after the company ordered workers back on the job despite ongoing coronavirus restrictions in Alameda County, where its auto plant is located.`\
-https://nytimes.com/reuters/2020/05/11/business/11reuters-health-coronavirus-tesla-newsom.html?searchResultPosition=9
+**Bulgarian Fossils Show Early Arrival of Homo Sapiens Into Europe**\
+`Fragmentary bone fossils and a molar found in Bulgaria dated to roughly 45,000 years ago show that Homo sapiens populations swept into Europe - until then a bastion for the Neanderthals - earlier than previously known, scientists said on Monday.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-science-fossils.html?searchResultPosition=9
 
-**U.S. Tells Iran to Send Plane So Washington Can Deport 11 Iranian Nationals**\
-`The United States urged Tehran on Monday to send a charter plane to take home 11 Iranian nationals whom Washington wants to deport, and accused the Islamic Republic of stalling the repatriation process.`\
-https://nytimes.com/reuters/2020/05/11/world/middleeast/11reuters-iran-usa-prisoners.html?searchResultPosition=10
+**Commission to Further Study Gun Ban at Michigan Capitol**\
+`A commission that oversees the Michigan Capitol voted Monday to further study the issue of banning guns from the building, days before another scheduled protest against the governor's restrictions to curb the coronavirus.`\
+https://nytimes.com/aponline/2020/05/11/us/politics/ap-us-michigan-capitol-guns-2nd-ld-writethru.html?searchResultPosition=10
 
