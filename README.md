@@ -1,20 +1,20 @@
-**Dozens of Local Food Banks Spring Up in Thailand as Virus Hits Incomes**\
-`Villages and urban communities in Thailand have turned to helping neighbours left jobless due to the coronavirus lockdown by creating dozens of local food banks comprising instant noodles, canned food, rice grains and soap bars.`\
-https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-health-coronavirus-thailand-food-pantry.html?searchResultPosition=6
+**Can the N.F.L. Really Return to Normal This Fall?**\
+`Before the N.F.L. can begin the season as planned in September, it must first figure out how to safely open team facilities for training camps in mid-July.`\
+https://nytimes.com/2020/05/11/sports/will-there-be-an-nfl-season.html?searchResultPosition=6
 
-**Denmark Charges Two Swedes With Bomb Blast Against Tax Office**\
-`Denmark's prosecutor said on Monday it had brought formal charges against two Swedes, aged 22 and 23 years, accused of carrying out a bombing of the Danish Tax Agency in Copenhagen last year.`\
-https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-denmark-security-sweden.html?searchResultPosition=7
+**Is Your Office Closed? Compensate With a Workplace Comedy.**\
+`A writer asks the minds behind “Veep,” “Brooklyn Nine-Nine” and other office comedies to join her in pondering what makes the genre so great — and so vital during a pandemic.`\
+https://nytimes.com/2020/05/11/arts/television/workplace-comedies.html?searchResultPosition=7
 
-**India Says Troops in Brief Border Skirmish With Chinese Soldiers**\
-`Indian and Chinese troops on border patrols skirmished briefly in the northeastern state of Sikkim neighbouring China, the south Asian nation's defence ministry said on Sunday, blaming "aggressive behaviour on both sides".`\
-https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-india-china-army.html?searchResultPosition=8
+**On Politics: Coronavirus at the White House**\
+`Infection fears hit the West Wing, and more grim job numbers emerge: This is your morning tip sheet.`\
+https://nytimes.com/2020/05/11/us/politics/white-house-coronavirus.html?searchResultPosition=8
 
-**'Gathering to Kill Me': Coronavirus Patients in Haiti Fear Attacks, Harassment**\
-`Haitian pastor Burel Fontilus feared for his life in late March when he contracted the new coronavirus.`\
-https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-health-coronavirus-haiti-stigma-insight.html?searchResultPosition=9
+**Asylum Seekers Fly From Greece to UK for Relocation**\
+`A group of 16 unaccompanied asylum-seeking children and 34 adults left Greece Monday morning on a flight to the United Kingdom, where they will be reunited with family members who are already there.`\
+https://nytimes.com/aponline/2020/05/11/world/europe/ap-eu-greece-britain-migrants.html?searchResultPosition=9
 
-**China's Health Authority to Tighten Rules on Laboratory Controls**\
-`China will require local health authorities to tighten their supervision over how virus strains and their samples are handled in labs, the National Health Commission said in a draft rule issued on Monday.`\
-https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-china-health-coronavirus-lab.html?searchResultPosition=10
+**Liz Weston: Should You Give Your Kids an Equal Inheritance?**\
+`Your estate plan may be your last words to those you leave behind. If you’re a parent, you should think carefully about the message you’ll be sending.`\
+https://nytimes.com/aponline/2020/05/11/business/ap-nerdwallet-liz-weston-giving-unequal-inheritance.html?searchResultPosition=10
 
