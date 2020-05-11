@@ -8,7 +8,7 @@ https://nytimes.com/aponline/2020/05/11/us/ap-us-media-nbc-barr.html?searchResul
 
 **Shanghai Disneyland Reopens With Masked Guests and Temperature Checks**\
 `Shanghai Disneyland welcomed visitors after its temporary closure because of the coronavirus outbreak, offering a glimpse of how other parks may reopen.`\
-https://nytimes.com/video/world/asia/100000007133374/shanghai-disneyland-reopens.html?searchResultPosition=8
+https://nytimes.com/video/shanghai-disneyland-reopens-with-masked-guests-and-temperature-checks.html?searchResultPosition=8
 
 **The Baked Pleasures of Australia Delivered**\
 `Bourke Street Bakery in Manhattan has added savory pies to its pickup and delivery menu.`\
