@@ -1,20 +1,20 @@
+**After Months Apart, Mother’s Day Visits Through a Doorway**\
+`At a Los Angeles nursing home, families got their first chance to see mom since the lockdown began — as long as they stayed outside, and she stayed in.`\
+https://nytimes.com/2020/05/11/us/coronavirus-nursinghome-mothersday-photos.html?searchResultPosition=6
+
+**Wife of U.S. Diplomat Wanted Over Car Crash Should Return to UK: PM Johnson's Spokesman**\
+`The British government continues to believe that the wife of a U.S. diplomat who is wanted in Britain over a fatal car crash should return to face justice, Prime Minister Boris Johnson's spokesman said on Monday.    `\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-britain-usa-crash-johnson.html?searchResultPosition=7
+
+**Turkey's Erdogan Imposes Four-Day Lockdown From Saturday**\
+`Turkish President Tayyip Erdogan said on Monday that a lockdown would be imposed starting on Saturday and ending after Tuesday, May 19, which is a national holiday.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-turkey.html?searchResultPosition=8
+
+**As States Rush to Reopen, Scientists Fear a Coronavirus Comeback**\
+`Officials are under pressure to restart the economy, but many states are moving too quickly, researchers say. The costs may be measured in lost lives.`\
+https://nytimes.com/2020/05/11/health/coronavirus-second-wave-infections.html?searchResultPosition=9
+
 **California Should Do Whatever's Needed to Help Tesla Reopen Car Factory: Mnuchin**\
 `California should do whatever is necessary to help electric carmaker Tesla Inc reopen its only U.S. vehicle factory, U.S. Treasury Secretary Steven Mnuchin said on Monday.`\
-https://nytimes.com/reuters/2020/05/11/business/11reuters-health-coronavirus-tesla-california.html?searchResultPosition=6
-
-**Twitter Launches Labels, Warnings on Misleading COVID-19 Information**\
-`Twitter Inc will add labels and warning messages on some tweets with disputed or misleading information about COVID-19, the company said on Monday, as part of a new approach to misinformation that will eventually extend to other topics.`\
-https://nytimes.com/reuters/2020/05/11/technology/11reuters-health-coronavirus-twitter.html?searchResultPosition=7
-
-**U.S. Supreme Court Weighs Oklahoma Tribal Authority Dispute**\
-`U.S. Supreme Court justices on Monday wrestled with the potentially broad consequences of a rape case that could lead to huge swathes of Oklahoma being deemed tribal territory, with Justice Neil Gorsuch emerging as a potential decisive vote.`\
-https://nytimes.com/reuters/2020/05/11/us/11reuters-usa-court-oklahoma.html?searchResultPosition=8
-
-**Documents: Federal Agents Had Sex With Trafficking Victims**\
-`The women were forced to live and work in filth and near darkness, the federal agent said, surviving on only the tips they received from performing massages and sexual favors. `\
-https://nytimes.com/aponline/2020/05/11/us/ap-us-operation-agent-touch.html?searchResultPosition=9
-
-**Tua, Tom Brady Top NFL Jersey Sales**\
-`Miami Dolphins quarterback Tua Tagovailoa was drafted two weeks ago, but his No. 1 jersey already ranks at the top of the NFL's jersey sales ahead of another Florida newcomer.`\
-https://nytimes.com/reuters/2020/05/11/sports/11reuters-football-nfl-tb-mia-tagovailoa-brady-jersey.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/11/business/11reuters-health-coronavirus-tesla-california.html?searchResultPosition=10
 
