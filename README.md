@@ -1,20 +1,20 @@
-**Lebanon Fears Second Coronavirus Wave as New Infections Surge**\
-`Lebanese authorities warned of a new wave of coronavirus cases after the number jumped to its highest point in more than a month as the government eased some restrictions on public life. `\
-https://nytimes.com/reuters/2020/05/11/world/middleeast/11reuters-health-coronavirus-lebanon.html?searchResultPosition=6
+**Anti-Lockdown Protests Threaten Germany's Coronavirus Battle: Politicians**\
+`German politicians expressed alarm on Monday over anti-lockdown protests held in major cities at the weekend, warning that conspiracy theorists and others with an agenda were exploiting frustration with measures to contain the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-germany-protests.html?searchResultPosition=6
 
-**UK COVID-19 Study Reassures Pregnant Women, but Warns Risks Higher Later**\
-`Pregnant women are no more likely to become severely ill with COVID-19 than other women, according to a preliminary study in Britain, but most expectant mothers who do develop serious illness tend to be in the later stages of pregnancy.`\
-https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-pregnancy.html?searchResultPosition=7
+**In France's Race for Virus Masks, Old People Lost Out**\
+`In late February, as the COVID-19 pandemic was about to hit, French President Emmanuel Macron faced a critical decision. Like most countries, France did not have enough protective face masks.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-france-elderly-insight.html?searchResultPosition=7
 
-**Malls, Barber Shops and Beauty Salons Reopen Across Turkey**\
-`Lines formed outside of shopping malls Monday in Turkey as they opened for the first time in seven weeks, albeit with strict hygiene requirements.`\
-https://nytimes.com/aponline/2020/05/11/business/ap-eu-virus-outbreak-turkey.html?searchResultPosition=8
+**Thirsty Czechs Toast Return to Beer Gardens as Lockdown Eases**\
+`Thirsty Czechs were allowed to return to beer gardens on Monday in one of the government's most eagerly anticipated measures to relax coronavirus restrictions.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-czech.html?searchResultPosition=8
 
-**AP Courtside: Second Week of Live Supreme Court Arguments**\
-`The Supreme Court is holding its second week of arguments by telephone, with audio available live to audiences around the world. `\
-https://nytimes.com/aponline/2020/05/11/us/politics/ap-us-supreme-court-ap-courtside.html?searchResultPosition=9
+**Boost for Bikes as Europeans Gear Up for Coronavirus Commute**\
+`Bicycles could play a central role in more major European cities as governments scramble to get commuters back to work without crowding buses or trains after coronavirus lockdowns are eased.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-commuting.html?searchResultPosition=9
 
-**Sen. Ted Cruz Writing Book on Supreme Court Cases**\
-`Sen. Ted Cruz is working on a book, to be published in October, about the Supreme Court.`\
-https://nytimes.com/aponline/2020/05/11/us/ap-us-books-ted-cruz.html?searchResultPosition=10
+**Praying for Child Care**\
+`When will anyone else be able to watch our children?`\
+https://nytimes.com/2020/05/11/parenting/coronavrius-childcare.html?searchResultPosition=10
 
