@@ -1,20 +1,20 @@
+**Report: Rocky Relationship With McDaniels Played a Part in Brady's Departure**\
+`Quarterback Tom Brady's departure from the New England Patriots was due, in part, to a "deteriorating relationship" with offensive coordinator Josh McDaniels, longtime NFL columnist Gary Myers reported Monday.`\
+https://nytimes.com/reuters/2020/05/11/sports/football/11reuters-football-nfl-nep-brady-mcdaniels.html?searchResultPosition=6
+
+**Albania Lifts Curbs on Driving, Slashes Curfew in Green Zones**\
+`Albania had its lowest daily infections from the new coronavirus in eight weeks on Monday as half its 2.8 million people began enjoying more freedom in green zones and life went on almost as normal in the other half.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-albania.html?searchResultPosition=7
+
+**New Coronavirus Test Is Imperfect Step Toward Mass Screening**\
+`A new type of coronavirus test offers a cheaper, quicker way to screen for infections, moving the U.S. toward the kind of mass screening that experts say is essential to returning millions of Americans to school and work.`\
+https://nytimes.com/aponline/2020/05/11/health/ap-us-med-virus-outbreak-new-testing-option.html?searchResultPosition=8
+
+**Family of Black Choir Director Killed by Houston Police Demand Release of Video**\
+`Friends and family of a Houston choir director and gospel singer who was shot and killed by police during a traffic stop demanded on Monday that video of the incident be released. `\
+https://nytimes.com/reuters/2020/05/11/us/11reuters-texas-shooting.html?searchResultPosition=9
+
 **PDVSA Worker Arrested After Criticism of Venezuela's Maduro, Says Union Leader**\
 `A worker at Venezuelan state-oil company Petroleos de Venezuela's [PDVSA.UL] maritime unit was arrested after criticizing President Nicolas Maduro in a meeting with company leadership, according to a union leader and a person present at the meeting. `\
-https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-venezuela-pdvsa.html?searchResultPosition=6
-
-**No Prince Without the King**\
-`The pompadour, the pancake, the pantsuits, the pink — in style as in music, Little Richard led the way.`\
-https://nytimes.com/2020/05/11/style/no-prince-without-the-king.html?searchResultPosition=7
-
-**White House Recommends Tests for All Nursing Home Residents**\
-`With deaths mounting at the nation's nursing homes, the White House strongly recommended to governors Monday that all residents and staff at such facilities be tested for the coronavirus in the next two weeks.`\
-https://nytimes.com/aponline/2020/05/11/us/politics/ap-us-virus-outbreak-nursing-homes-1st-ld-writethru.html?searchResultPosition=8
-
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark U.S. crude oil fell 60 cents, or 2.4%, to settle at $24.14 a barrel Monday. Brent crude oil, the international standard, fell $1.34, or 4.3% to $29.63 a barrel. `\
-https://nytimes.com/aponline/2020/05/11/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=9
-
-**Trump Tells Iraq's New PM: US Willing to Give Economic Help**\
-`President Donald Trump said in a phone call to Iraq's new prime minister that the U.S. was willing to provide Iraq with economic assistance, according to an Iraqi government statement on Monday, as the country faces a severe financial crisis brought on by falling oil prices. `\
-https://nytimes.com/aponline/2020/05/11/world/middleeast/ap-ml-iraq-politics-.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-venezuela-pdvsa.html?searchResultPosition=10
 
