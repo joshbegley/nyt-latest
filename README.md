@@ -1,20 +1,20 @@
-**Almost 4 Million U.S. Mortgage Borrowers in Forbearance Plans: Industry Survey**\
-`Almost four million mortgage borrowers have had their payments paused or reduced as the novel coronavirus outbreak continues to strain household balance sheets, a survey from the Mortgage Bankers Association showed on Monday.`\
-https://nytimes.com/reuters/2020/05/11/us/11reuters-usa-economy-mortgages.html?searchResultPosition=6
+**Epidemic Response Group to Invest Up to $384 Million in Novavax's Coronavirus Vaccine**\
+`The Coalition for Epidemic Preparedness Innovations (CEPI) will invest up to $384 million to support the development and production of Novavax Inc's vaccine candidate against the coronavirus, the company said on Monday. `\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-health-coronavirus-vaccines-cepi.html?searchResultPosition=6
 
-**Serbian Police Separate Pro-Government, Opposition Rallies**\
-`Serbia’s special police deployed on Monday to keep apart supporters of the populist government and the opposition, who were holding separate rallies in Belgrade amid heightened political tensions ahead of next month’s parliamentary election. `\
-https://nytimes.com/aponline/2020/05/11/world/europe/ap-eu-serbia-politics.html?searchResultPosition=7
+**Relive Memories of the Queens Night Market**\
+`A new cookbook profiles the makers at this popular outdoor food festival, on hold until the pandemic passes.`\
+https://nytimes.com/2020/05/11/dining/queens-night-market-cookbook.html?searchResultPosition=7
 
-**Senate to Reconsider Expired Surveillance Tools**\
-`The U.S. Senate will make a renewed attempt this week to extend parts of the Foreign Intelligence Surveillance Act (FISA), Senate Majority Leader Mitch McConnell said on Monday, two months after the divisive government surveillance tools expired.`\
-https://nytimes.com/reuters/2020/05/11/technology/11reuters-usa-surveillance-congress.html?searchResultPosition=8
+**Brazil Launches Military Operations in the Amazon Rainforest**\
+`Vice President Hamilton Mourao said Brazil launched a military deployment to protect the Amazon rainforest on Monday, beginning with an operation to combat environmental destruction in the state of Rondonia near the Bolivian border.`\
+https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-brazil-environment.html?searchResultPosition=8
 
-**Your Tuesday Briefing**\
-`Wuhan cases, India’s trains, Silk Road: Here’s what you need to know.`\
-https://nytimes.com/2020/05/11/briefing/wuhan-cases-india-trains-australia-diplomacy.html?searchResultPosition=9
+**California Governor to Look Into Tesla Reopening in Defiance of Health Order**\
+`California Governor Gavin Newsom said both he and local health officials would speak to officials at Tesla Inc, after the company ordered workers back on the job despite ongoing coronavirus restrictions in Alameda County, where its auto plant is located.`\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-health-coronavirus-tesla-newsom.html?searchResultPosition=9
 
-**Incoming Bank of Canada Governor Saw 'Stop-Start' Recovery After Lockdown**\
-`Newly appointed Bank of Canada Governor Tiff Macklem projected a halting economic recovery during an exclusive interview conducted before he was named, suggesting he will continue the central bank's loose monetary policy approach.`\
-https://nytimes.com/reuters/2020/05/11/us/11reuters-canada-cenbank-macklem.html?searchResultPosition=10
+**U.S. Tells Iran to Send Plane So Washington Can Deport 11 Iranian Nationals**\
+`The United States urged Tehran on Monday to send a charter plane to take home 11 Iranian nationals whom Washington wants to deport, and accused the Islamic Republic of stalling the repatriation process.`\
+https://nytimes.com/reuters/2020/05/11/world/middleeast/11reuters-iran-usa-prisoners.html?searchResultPosition=10
 
