@@ -1,20 +1,20 @@
+**Biden and Democrats Raise $60.5 Million in April: Statement**\
+`Presumptive U.S. Democratic presidential nominee Joe Biden on Monday said his campaign and party raised $60.5 million combined in April, a figure that could help the campaign compete with better-funded Republican adversaries.`\
+https://nytimes.com/reuters/2020/05/11/us/politics/11reuters-usa-election-biden-fundraising.html?searchResultPosition=6
+
+**Trump’s Taxes and the Supreme Court: What You Need to Know**\
+`The court will hear highly anticipated arguments over whether the president’s accountants and bankers must disclose information about his financial affairs.`\
+https://nytimes.com/2020/05/11/us/scotus-trump-tax-returns.html?searchResultPosition=7
+
+**Potbelly Settlement With Activists Includes Twist: Stock, Not Cash, for Outlays**\
+`Sandwich maker Potbelly Corp on Monday promised to reimburse activist shareholders' expenses with stock not cash, creating a situation that lawyers call an outlier for now but which they said could find traction in tough economic times.`\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-potbelly-settlement.html?searchResultPosition=8
+
+**Bitcoin Undergoes Third 'Halving', Falls vs U.S. Dollar**\
+`Bitcoin slid on Monday in volatile trading, after it went through a technical adjustment that reduced the rate at which new coins are created, but the outlook remained upbeat as the increase in supply slows down.`\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-crypto-currencies-bitcoin-halving.html?searchResultPosition=9
+
 **Column: NASCAR Set for 'Huge Microscope' as Racing Returns**\
 `NASCAR's season started with the Secret Service doing a security check on the firesuit-clad pole-sitter for the Daytona 500 and thousands of fans waiting hours in line to pass through a metal detector. `\
-https://nytimes.com/aponline/2020/05/11/sports/ap-car-nascar-in-the-pits.html?searchResultPosition=6
-
-**W Series Has the Resources to Race on Next Year, Says CEO**\
-`The all-female W Series has the resources to get through this year even if no races can be held because of the COVID-19 pandemic, founder and chief executive Catherine Bond Muir said on Monday.`\
-https://nytimes.com/reuters/2020/05/11/sports/autoracing/11reuters-health-coronavirus-wseries.html?searchResultPosition=7
-
-**Ex-Justice Dept. Officials Lash Out at Barr Over Flynn and Stone Cases**\
-`The attorney general’s interventions damaged the Justice Department, argued the former officials, who were directly involved in the cases of the two Trump allies.`\
-https://nytimes.com/2020/05/11/us/politics/mccord-kravis-barr.html?searchResultPosition=8
-
-**Washington, the Nation’s Capital, Moves to Reopen. Washington, the City, Is Not Ready.**\
-`As the coronavirus hits the White House, Congress and D.C.’s poorest areas, many across the region are asking the Trump administration to proceed with caution.`\
-https://nytimes.com/2020/05/11/us/politics/coronavirus-virginia-maryland-district-of-columbia.html?searchResultPosition=9
-
-**MLB Owners to Present Proposal to Start Season**\
-`Major League Baseball owners will present a proposal to players on Tuesday that will outline plans for the start of the coronavirus-hit 2020 season, a source close to the talks told Reuters on Monday. `\
-https://nytimes.com/reuters/2020/05/11/sports/baseball/11reuters-health-coronavirus-mlb.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/11/sports/ap-car-nascar-in-the-pits.html?searchResultPosition=10
 
