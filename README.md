@@ -1,20 +1,20 @@
-**Remembering Tony Allen and Florian Schneider, Two Pillars of Rhythm**\
-`Thousands of miles apart, and with radically different tools, both musicians were innovating.`\
-https://nytimes.com/2020/05/11/arts/music/popcast-tony-allen-florian-schneider.html?searchResultPosition=6
+**In Flip, Georgia System Nixes Ex-Leader of New York Schools**\
+`One of Georgia’s largest school districts won't be hiring the former leader of school systems in New York City and Miami after board members were faced with complaints about his past record.`\
+https://nytimes.com/aponline/2020/05/11/us/ap-us-georgia-school-superintendent.html?searchResultPosition=6
 
-**Biggest US Solar Project Approved in Nevada Despite Critics**\
-`The Trump administration announced final approval Monday of the largest solar energy project in the U.`\
-https://nytimes.com/aponline/2020/05/11/business/bc-us-nevada-solar-project.html?searchResultPosition=7
+**More Aid to States? That May Depend on Their Political Hue**\
+`With governors and mayors pressing for substantial federal help to deal with the effects of the coronavirus pandemic, Republicans are divided, with some reluctant to help Democratic strongholds.`\
+https://nytimes.com/2020/05/11/us/politics/state-aid-coronavirus-congress.html?searchResultPosition=7
 
-**Colombia's Avianca Faces Rocky Road After Chapter 11 Filing**\
-`Latin American airline giant Avianca is hoping to sail into smoother skies after a Chapter 11 bankruptcy filing – but it will take more to keep the region’s second largest carrier afloat.`\
-https://nytimes.com/aponline/2020/05/11/business/bc-colombia-aviancas-troubles.html?searchResultPosition=8
+**Tribal Nations Face Most Severe Crisis in Decades as the Coronavirus Closes Casinos**\
+`Nearly 500 tribal casinos remain shut down during the pandemic, causing job losses to spike. The economic damage is spreading quickly, wreaking havoc on fragile tribal finances.`\
+https://nytimes.com/2020/05/11/us/coronavirus-native-americans-indian-country.html?searchResultPosition=8
 
-**The ‘Festivus Miracle’ Lives On**\
-`The anti-holiday holiday, made famous by Jerry Stiller in his role as Frank Costanza, is still celebrated by fans who also find tinsel distracting.`\
-https://nytimes.com/2020/05/11/arts/television/jerry-stiller-festivus-seinfeld.html?searchResultPosition=9
+**The G.O.P.’s Pandemic Playbook**\
+`Republicans can flip a House seat in California, but they’re raising doubts about the voting anyway.`\
+https://nytimes.com/2020/05/11/us/politics/ca-25-voting.html?searchResultPosition=9
 
-**Brazil Records 5,632 New Coronavirus Cases, 396 Deaths on Monday**\
-`Brazil registered 5,632 new coronavirus cases on Monday and 396 deaths from the disease, according to the Health Ministry.`\
-https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-health-coronavirus-brazil.html?searchResultPosition=10
+**Federal Watchdog to Examine Official’s Role in Tribal Fund Distribution**\
+`The inspector general is also investigating allegations that the Interior Department inappropriately leaked sensitive tribal data.`\
+https://nytimes.com/2020/05/11/us/politics/native-american-tribes-coronavirus-funds.html?searchResultPosition=10
 
