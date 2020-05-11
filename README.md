@@ -1,20 +1,20 @@
-**Let’s Clean Up the Toxic Internet**\
-`If we understand how conspiracy theories spread online, we can help stop them.`\
-https://nytimes.com/2020/05/11/technology/coronavirus-plandemic-misinformation.html?searchResultPosition=6
+**Spanish Banks Reopen Branches With Staff Gradually Returning to Work**\
+`Spanish banks such as BBVA and Santander are reopening branches and letting staff return to work, although employees at their headquarters will still mainly work remotely as the country starts to ease lockdown measures.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-spain-banks.html?searchResultPosition=6
 
-**Italy's Daily Coronavirus New Cases Fall, Death Toll Edges Up**\
-`Deaths from the COVID-19 epidemic in Italy rose by 179 on Monday, against 165 the day before, the Civil Protection Agency said, as the daily tally of new cases fell to 744 from 802 on Sunday.`\
-https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-italy-tally.html?searchResultPosition=7
+**KKR Builds 5.2% Stake in ProSieben, Says Company Undervalued**\
+`Private equity investor KKR said on Monday it had acquired a stake of 5.2% in German broadcaster ProSiebenSat.1 Media, returning as an investor in the company it had backed from 2006 to 2014.`\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-prosieben-m-a-kkr.html?searchResultPosition=7
 
-**WHO Chief Says 'Slow, Steady Lifting' of Coronavirus Lockdowns Key**\
-`The head of the World Health Organization (WHO) said on Monday that the "slow, steady lifting of lockdowns" was key, as a jump in new coronavirus cases in South Korea and Germany raised global concerns about a second wave of infections.`\
-https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-who.html?searchResultPosition=8
+**U.S. Justice Department Weighs Hate Crime Charges in Death of Ahmaud Arbery**\
+`The U.S. Justice Department is weighing whether to file hate crime charges against the white men who killed Ahmaud Arbery, an unarmed black man who was gunned down while jogging in the small coastal town of Brunswick, Georgia, department spokeswoman Kerri Kupec said on Monday.`\
+https://nytimes.com/reuters/2020/05/11/us/11reuters-shooting-georgia.html?searchResultPosition=8
 
-**Gorsuch, Likely Key Vote, Seems to Favor Oklahoma Tribe**\
-`Justice Neil Gorsuch appeared Monday to be a pivotal vote for the proposition that a large chunk of eastern Oklahoma remains an American Indian reservation, a question the Supreme Court failed to resolve a year ago.`\
-https://nytimes.com/aponline/2020/05/11/us/politics/ap-us-supreme-court-indian-country.html?searchResultPosition=9
+**Chinese Investment in the U.S. Drops to Lowest Level Since Global Financial Crisis**\
+`Chinese investment in the United States dropped to $5 billion in 2019, a slight decrease from a year earlier and the lowest level since the global financial crisis a decade ago, according to a new analysis by the U.S.-China Investment Project.`\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-healthcare-coronavirus-china-usa.html?searchResultPosition=9
 
-**Paris Awakens After 2-Month Slumber to World of Yore, Slowly**\
-`After a two-month freeze, Paris slowly awakened on Monday to the world it had lost under lockdown as hairdressers, florists, nail salons and some other businesses reopened - but under mandatory social distancing requirements.`\
-https://nytimes.com/aponline/2020/05/11/business/bc-virus-outbreak-france-paris-reawakens.html?searchResultPosition=10
+**NBCUniversal, Sky Expand Ad-Buying Tool Globally**\
+`Comcast Corp units NBCUniversal and Sky said Monday that advertising across both of the media companies can now be purchased through the same tool, as the firms look to attract more global advertisers and weather the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-comcast-advertising.html?searchResultPosition=10
 
