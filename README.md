@@ -1,20 +1,20 @@
-**Sony Suspends PlayStation Store in Mainland China to Upgrade Security**\
-`Sony has suspended its PlayStation Store in mainland China saying it wanted to improve the online store's security, in a move that will temporarily prevent it from selling games in the world's largest video game market. `\
-https://nytimes.com/reuters/2020/05/11/technology/11reuters-sony-playstation-china.html?searchResultPosition=6
+**Ericsson Raises 2025 Forecast for 5G Subscriptions Due to Pandemic**\
+`Sweden's Ericsson will lift its forecast for 5G subscriptions globally to around 2.8 billion by 2025 from 2.6 billion seen previously, as a consequence of the coronavirus outbreak, it said on Monday.`\
+https://nytimes.com/reuters/2020/05/11/technology/11reuters-health-coronavirus-ericsson.html?searchResultPosition=6
 
-**Dollar Holds Gains as Focus Shifts to Life After Lockdowns End**\
-`The dollar rose against the yen on Monday as moves by the United States and other countries to re-open their economies raised hopes for a quicker global recovery from a deep recession triggered by the coronavirus health crisis.`\
-https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-global-forex.html?searchResultPosition=7
+**Hong Kong Police Arrest More Than 200 as Pro-Democracy Protests Return**\
+`Hong Kong authorities arrested more than 200 people during pro-democracy protests, media reported on Monday, after a sing-along demonstration at a shopping mall spilled out on to the streets of the Chinese-ruled city.  `\
+https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-hongkong-protests-arrests.html?searchResultPosition=7
 
-**EasyJet Urges Britain to Keep Quarantine Rules for Short Period**\
-`Britain's easyJet urged the government to keep any quarantine requirements on travellers arriving in the UK for only a short period, as airlines face a new threat to their survival. `\
-https://nytimes.com/reuters/2020/05/11/business/11reuters-health-coronavirus-easyjet.html?searchResultPosition=8
+**Toshiba Sees FY2019 Profit Roughly in Line With Forecast, Limited Virus Impact**\
+`Toshiba Corp said on Monday it expects operating profit for the year ended March to more than triple, as the Japanese industrial conglomerate sees a limited impact from the coronavirus outbreak on its earnings for the financial year.`\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-toshiba-results.html?searchResultPosition=8
 
-**Japanese Telco SoftBank Sees Full-Year Operating Profit Stable at $8.6 Billion**\
-`Japanese telco SoftBank Corp on Monday forecast operating profit for the current financial year at 920 billion yen ($8.6 billion), largely unchanged from a year earlier.`\
-https://nytimes.com/reuters/2020/05/11/business/11reuters-softbank-results.html?searchResultPosition=9
+**German Insolvency Applications Down 13.4% in April: Statistic Office**\
+`The number of insolvency procedures opened in Germany in April was down 13.4% year-on-year in the midst of the coronavirus crisis, the federal statistics office said on Monday.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-statistics-insolvencies.html?searchResultPosition=9
 
-**Fire at Nursing Home in Moscow Suburb Kills 9, Injures 9**\
-`At least nine people have died in a fire at a nursing home on Moscow’s outskirts, officials said Monday.`\
-https://nytimes.com/aponline/2020/05/11/world/europe/ap-eu-russia-fire.html?searchResultPosition=10
+**Vietnam Reopens Schools After Easing Coronavirus Curbs**\
+`Authorities at kindergartens and primary schools in Vietnam took children's temperatures at the gates when they re-opened on Monday from a months-long closure over the coronavirus pandemic, following last week's partial re-opening of other schools. `\
+https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-health-coronavirus-vietnam-schools.html?searchResultPosition=10
 
