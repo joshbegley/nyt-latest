@@ -1,20 +1,20 @@
-**Munich Court to Drop Case Against British Short Seller Over Wirecard Shares**\
-`A Munich court is planning to drop proceedings against British short seller Fraser Perring for suspected manipulation of the share price of German payment processor Wirecard, a court spokesman said on Monday.`\
-https://nytimes.com/reuters/2020/05/11/business/11reuters-wirecard-shortsale.html?searchResultPosition=6
+**UK's Raab: Makes Sense to Impose Quarantine Now Infection Rates Falling**\
+`It makes sense for Britain to introduce quarantine measures for travellers arriving in the country now that the reproduction rate of the coronavirus domestically has fallen, foreign minister Dominic Raab said on Monday.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-britain-quarantine.html?searchResultPosition=6
 
-**U.S. Has No Need to Buy Back Debt, Will Take Advantage of Low Interest Rates: Mnuchin**\
-`U.S. Treasury Secretary Steven Mnuchin said on Monday he sees no need for the country to buy back debt and that he plans to borrow money long-term to lock in low interest rates, as the coronavirus pandemic rocks the economy.`\
-https://nytimes.com/reuters/2020/05/11/business/11reuters-health-coronavirus-usa-treasury.html?searchResultPosition=7
+**Czechs Will Not Need Masks When in Open Spaces From May 25: Government**\
+`Czechs no longer need to wear face masks in most public spaces starting on May 25, the government decided on Monday, in the latest easing of restrictions it put in place to curb the new coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-czech-masks.html?searchResultPosition=7
 
-**BoE's Haldane Sees Long-Term COVID Risks, Perhaps Not 'The End of the World'**\
-`Bank of England Chief Economist Andy Haldane said there was a risk that the coronavirus pandemic would cause a long-term hit to spending by companies saddled with higher debts and by households worried about their job prospects.`\
-https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-boe-haldane.html?searchResultPosition=8
+**Afghanistan Arrests Regional Islamic State Leader**\
+`Afghan security forces arrested three senior South Asia Islamic State members including the group's regional leader, the government said on Monday.`\
+https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-afghanistan-islamicstate.html?searchResultPosition=8
 
-**Fritz Gerber, Who Steered Roche From Infamy to Biotech Success, Dies at 91**\
-`Fritz Gerber, the long-time head of Roche Holding who helped transform the Swiss company from an image-tarnished vitamins, drugs and chemicals conglomerate into a biotechnology and diagnostics giant, has died at the age of 91.`\
-https://nytimes.com/reuters/2020/05/11/business/11reuters-roche-gerber.html?searchResultPosition=9
+**Gloved and Masked, Belgians Head Back Into Shops After Lockdown**\
+`Belgium allowed most of its shops to reopen on Monday with strict hygiene rules for customers, following in the footsteps of Spain in an easing of its eight-week lockdown as the number of COVID-19 cases fall.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-belgium.html?searchResultPosition=9
 
-**Wizz Air Tells UK: We Need More Detail on Quarantine**\
-`Wizz Air needs more details on British plans to quarantine travellers before it can assess its impact after seeing strong demand for the routes it has started operating, its chief executive told Reuters.`\
-https://nytimes.com/reuters/2020/05/11/business/11reuters-health-coronavirus-wizz-air-hldgs-interview.html?searchResultPosition=10
+**Three Weeks in April: An E.M.T. Crew Faces Exhaustion, Isolation and Death**\
+`A photojournalist switched careers and became an E.M.T. just months before the coronavirus pandemic hit. Recently, he brought his camera along to document what he and his crew are seeing.`\
+https://nytimes.com/2020/05/11/health/coronavirus-EMT-worker.html?searchResultPosition=10
 
