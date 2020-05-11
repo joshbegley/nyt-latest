@@ -1,20 +1,20 @@
-**NYC Deaths From Non-COVID Causes Rise Over 5,000 Above Normal Rate: CDC**\
-`The number of deaths in New York City from causes other than COVID-19 rose by more than 5,000 people above the seasonal norm during the first two months of the pandemic, the Centers for Disease Control and Prevention (CDC) said on Monday. `\
-https://nytimes.com/reuters/2020/05/11/us/11reuters-health-coronavirus-usa-casualties.html?searchResultPosition=6
+**Too Soon to Start Easing Lockdown in Scotland, Sturgeon Says**\
+`It is too soon to begin easing coronavirus lockdown measures in Scotland, its First Minister Nicola Sturgeon said on Monday, after British Prime Minister Boris Johnson set out a cautious plan to get lift some restrictions.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-scotland.html?searchResultPosition=6
 
-**Twitter to Label Disputed COVID-19 Tweets**\
-`Twitter announced Monday it will warn users when a tweet contains disputed or misleading information about the coronavirus. `\
-https://nytimes.com/aponline/2020/05/11/business/bc-us-virus-outbreak-twitter-misinfo-labels.html?searchResultPosition=7
+**The Coziest Vegetable-and-Sausage Soup for Those Chilly May Days**\
+`Make a big pot, brimming with roots and greens from the crisper, for a little bit of comfort.`\
+https://nytimes.com/2020/05/11/dining/vegetable-sausage-soup-recipe-coronavirus.html?searchResultPosition=7
 
-**‘We’re Going Into June,’ de Blasio Says of N.Y.C. Coronavirus Measures**\
-`Mayor Bill de Blasio said a ban on large gatherings in New York City and the widespread closing of nonessential businesses are not likely to end before June.`\
-https://nytimes.com/video/us/politics/100000007132873/nyc-coronavirus-measures.html?searchResultPosition=8
+**After Charges in Ahmaud Arbery’s Killing, a New Prosecutor Will Lead the Case**\
+`Joyette M. Holmes, an Atlanta-area district attorney, was tapped to take over a case that has stirred protests over its handling, as the Justice Department said it was weighing federal hate crimes charges.`\
+https://nytimes.com/2020/05/11/us/ahmaud-arbery-prosecutor-joyette-holmes.html?searchResultPosition=8
 
-**'We Want to Go Home': Moroccans Stranded by Virus Seek Help**\
-`Moroccans stranded abroad since their country abruptly grounded flights due to the coronavirus two months ago were holding protests in multiple countries Monday to beg their government to let them back home.`\
-https://nytimes.com/aponline/2020/05/11/world/europe/ap-eu-virus-outbreak-stranded-moroccans.html?searchResultPosition=9
+**NFL: Fauci Says Season Depends on Response to Second Wave of COVID-19**\
+`There is no guarantee the NFL will complete its season due to the COVID-19 pandemic, although some fans may be allowed to attend games if things go well, said Anthony Fauci, director of the National Institute of Allergy and Infectious Diseases.`\
+https://nytimes.com/reuters/2020/05/11/sports/football/11reuters-health-coronavirus-nfl-fauci.html?searchResultPosition=9
 
-**Johnson Describes ‘Careful Modification’ of Coronavirus Guidelines**\
-`Prime Minister Boris Johnson of Britain addressed Parliament about plans to slowly ease lockdown measures after a vague televised speech caused confusion.`\
-https://nytimes.com/video/world/europe/100000007132903/boris-johnson-coronavirus-lockdown-measures.html?searchResultPosition=10
+**UK Issues Guidance for Employers as Lockdown Cautiously Eased**\
+`Britain published guidance for employers on how they should begin the cautious re-opening of the economy after Prime Minister Boris Johnson laid out a planned route towards an easing of the coronavirus lockdown.`\
+https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-britain-guidance.html?searchResultPosition=10
 
