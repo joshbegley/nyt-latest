@@ -1,20 +1,20 @@
-**Biden Campaign Reports Raising $60 Million With DNC in April**\
-`Joe Biden's presidential campaign said Monday that it and the Democratic National Committee jointly raised $60 million in April, a solid sum that may ease some Democratic worries that the party's presumptive nominee is stumbling in the money race.`\
-https://nytimes.com/aponline/2020/05/11/us/politics/ap-us-election-2020-biden-fundraising.html?searchResultPosition=6
+**The ‘Festivus Miracle’ Lives On**\
+`The anti-holiday holiday, made famous by Jerry Stiller in his role as Frank Costanza, is still celebrated by fans who also find tinsel distracting.`\
+https://nytimes.com/2020/05/11/arts/television/jerry-stiller-festivus-seinfeld.html?searchResultPosition=6
 
-**Organ Transplants Dive Amid Virus Crisis, Start to Inch Back**\
-`Organ transplants plummeted as COVID-19 swept through communities, with surgeons wary of endangering living donors and unable to retrieve possibly usable organs from the dead -- and hospitals sometimes too full even when they could.`\
-https://nytimes.com/aponline/2020/05/11/health/ap-us-med-virus-outbreak-organ-transplants.html?searchResultPosition=7
+**Brazil Records 5,632 New Coronavirus Cases, 396 Deaths on Monday**\
+`Brazil registered 5,632 new coronavirus cases on Monday and 396 deaths from the disease, according to the Health Ministry.`\
+https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-health-coronavirus-brazil.html?searchResultPosition=7
 
-**Shut Casinos Hit Caesars as COVID-19 Puts Gambling Industry in Survival Mode**\
-`Caesars Entertainment Corp missed quarterly revenue estimates on Monday as it shuttered its casinos amid nationwide lockdowns to contain the spread of the COVID-19 pandemic. `\
-https://nytimes.com/reuters/2020/05/11/business/11reuters-caesars-results.html?searchResultPosition=8
+**United to Notify Flyers About Full Flights After Social Media Backlash**\
+`United Airlines Holdings Inc said on Monday that starting next week it will notify passengers ahead of time if their flight is expected to be "closer to full capacity," allowing them to re-book on a different flight or receive a travel credit.`\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-health-coronavirus-united-arlns.html?searchResultPosition=8
 
-**Masks, State Aid, Ahmaud Arbery: Your Monday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/05/11/briefing/masks-state-aid-ahmaud-arbery.html?searchResultPosition=9
+**In Jerry Stiller, the Rage of Jewish Fathers Found a Hilarious Outlet**\
+`The comic actor’s rat-a-tat timing and bristling bass reminded us why we loved those strange, embarrassing relatives.`\
+https://nytimes.com/2020/05/11/arts/television/jerry-stiller-remembrance.html?searchResultPosition=9
 
-**Mexico Fears Pandemic Pushing Millions Into Poverty**\
-`The economic fallout from coronavirus could add nine million people to Mexico's poor, according to a government study released on Monday calling for aid like pensions and insurance in the country that provides no federal jobless benefits.`\
-https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-health-coronavirus-mexico-poverty.html?searchResultPosition=10
+**Explainer: Tracking the Coronavirus 'Reproduction Rate' as Lockdowns Ease**\
+`Global alarm was sounded on Monday over a potential second wave of coronavirus infections after Germany reported that the reproduction rate of the pathogen had risen above 1, indicating  the disease was again spreading just days after the first tentative steps there to reopen the economy.`\
+https://nytimes.com/reuters/2020/05/11/us/11reuters-health-coronavirus-transmission-explainer.html?searchResultPosition=10
 
