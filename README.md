@@ -1,20 +1,20 @@
+**Trump Says Not in Favor of Reopening China Trade Deal**\
+`President Donald Trump on Monday said he is not in favor of the United States reopening negotiations with China on Phase 1 of a  trade deal, which the two countries agreed on at the beginning of the year.`\
+https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-usa-china-trade-trump.html?searchResultPosition=6
+
+**Agent Seeks Zion Williamson's Answers on Improper Benefits**\
+`The marketing agent who has sued NBA rookie Zion Williamson wants the former Duke star to answer questions about whether he received improper benefits before playing his lone season with the Blue Devils.`\
+https://nytimes.com/aponline/2020/05/11/sports/basketball/ap-bkn-zion-williamson-lawsuit.html?searchResultPosition=7
+
+**Acupuncture May Ease Indigestion**\
+`Feelings of bloating and fullness were relieved by use of acupuncture needles.`\
+https://nytimes.com/2020/05/11/well/eat/acupuncture-indigestion-bloating-fullness.html?searchResultPosition=8
+
 **M.L.B. Proposes an 82-Game Season Starting in July**\
 `The proposal, which would require approval from the players’ union, would have teams start the season in early July and mainly play teams in their geographic region.`\
-https://nytimes.com/2020/05/11/sports/baseball/coronavirus-baseball-mlb-restart.html?searchResultPosition=6
+https://nytimes.com/2020/05/11/sports/baseball/coronavirus-baseball-mlb-restart.html?searchResultPosition=9
 
 **United Airlines Appoints Brett Hart as President**\
 `United Airlines Holdings on Monday named its Executive Vice President Brett Hart as president of the airline, effective May 20.`\
-https://nytimes.com/reuters/2020/05/11/us/11reuters-united-arlns-moves.html?searchResultPosition=7
-
-**Italy to Give Regions Powers to Roll Back Coronavirus Lockdown**\
-`The Italian government said on Monday it would give the regions the power to roll back restrictions introduced to halt the new coronavirus in a move that is likely to see most remaining curbs lifted next week.`\
-https://nytimes.com/reuters/2020/05/11/world/europe/11reuters-health-coronavirus-italy.html?searchResultPosition=8
-
-**Fauci, Other Witnesses and Chairman Are Quarantined, but Hearing Must Go On**\
-`Tuesday’s hearing before the Senate Health Committee will be a chance for Dr. Anthony S. Fauci and other top health experts to speak to lawmakers, albeit by video, without President Trump nearby.`\
-https://nytimes.com/2020/05/11/us/politics/coronavirus-hearing-fauci-quarantine.html?searchResultPosition=9
-
-**How Major US Stock Indexes Fared Monday**\
-`Major stock indexes erased much of their early losses, leaving the market mixed at the end of trading Monday. `\
-https://nytimes.com/aponline/2020/05/11/business/ap-financial-markets-box.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/11/us/11reuters-united-arlns-moves.html?searchResultPosition=10
 
