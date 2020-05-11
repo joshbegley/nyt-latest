@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/05/11/business/ap-us-virus-outbreak-south-dako
 https://nytimes.com/2020/05/11/books/last-trial-scott-turow.html?searchResultPosition=7
 
 **Bafflement Greets Boris Johnson’s Plan for Reopening Britain**\
-`Critics say the government’s has failed to answer some basic questions. Among them: 1) when to return to work and 2) how to get there.`\
+`Critics say the government has failed to answer some basic questions. Among them: 1) when to return to work and 2) how to get there.`\
 https://nytimes.com/2020/05/11/world/europe/coronavirus-britain-boris-johnson.html?searchResultPosition=8
 
 **Strip Clubs, Other 'Disfavored' Businesses Entitled to Emergency Loans in Pandemic: U.S. Judge**\
