@@ -1,20 +1,20 @@
-**How to Rethink Your Wedding**\
-`It can still be great. First, do not panic.`\
-https://nytimes.com/2020/05/11/style/self-care/how-to-rethink-your-wedding.html?searchResultPosition=6
+**China Is Defensive. The U.S. Is Absent. Can the Rest of the World Fill the Void?**\
+`Smaller countries like Australia are trying to build a new kind of alliance, by first investigating what went wrong in the early stages of the coronavirus pandemic.`\
+https://nytimes.com/2020/05/11/world/australia/coronavirus-china-inquiry.html?searchResultPosition=6
 
-**No Natural Light? No Problem**\
-`Fake plants are bringing some joy to homebound lives.`\
-https://nytimes.com/2020/05/11/style/fake-plants-decor.html?searchResultPosition=7
+**As Banks Stumble in Delivering Aid, Congress Weighs Other Options**\
+`Accounts provided by the Federal Reserve and distributions handled by payroll processors are among the ideas floating around Capitol Hill.`\
+https://nytimes.com/2020/05/11/business/coronavirus-aid-banks.html?searchResultPosition=7
 
-**What’s the Best Book You Ever Read for School?**\
-`Do you generally like the books your teachers assign? Are they similar to or different from the books you choose to read on your own?`\
-https://nytimes.com/2020/05/11/learning/whats-the-best-book-you-ever-read-for-school.html?searchResultPosition=8
+**The Night the Lights Went Out in Nashville**\
+`This year has brought tornadoes, plague and weather patterns we’ve never heard of. On the bright side, no murder hornets yet.`\
+https://nytimes.com/2020/05/11/opinion/nashville-storms-coronavirus.html?searchResultPosition=8
 
-**I Didn’t Feel Parisian Until I Escaped Paris**\
-`There's nothing more French than descending on the countryside in times of trouble.`\
-https://nytimes.com/interactive/2020/05/11/magazine/quarantine-paris.html?searchResultPosition=9
+**Alanis Morissette Is Helping Us Meditate. Want to Join?**\
+`Plus, Michelle Wolf on running in place, Elaine Welteroth on relationships at a distance and more in our live events this week.`\
+https://nytimes.com/2020/05/11/arts/alanis-morissette-is-helping-us-meditate-want-to-join.html?searchResultPosition=9
 
-**Quarantine Was Driving Me Crazy — So I Decided to Lose My Mind on Purpose**\
-`If you can't live normally, why not find little harebrained ways to warp reality?`\
-https://nytimes.com/interactive/2020/05/11/magazine/quarantine-insanity.html?searchResultPosition=10
+**They Fled the Coronavirus. Now They’re in Scenic Limbo.**\
+`Some feel sheepish about their choice to retreat from stricken cities, for intervals that are stretching on. Others have found it liberating.`\
+https://nytimes.com/2020/05/11/style/they-fled-the-coronavirus-now-theyre-in-scenic-limbo.html?searchResultPosition=10
 
