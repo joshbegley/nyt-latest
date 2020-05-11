@@ -1,20 +1,20 @@
-**Stock Markets in Asia Open Strong: Live Business Updates**\
-`The latest on stock market and business news during the coronavirus outbreak.`\
-https://nytimes.com/2020/05/11/business/stock-market-today-coronavirus.html?searchResultPosition=6
+**Oil Prices Drop Amid Supply Glut, Fears of Second Coronavirus Wave**\
+`Oil prices slid nearly $1 a barrel on Monday as concern over a persistent glut and economic gloom caused by the coronavirus pandemic combined to cancel out support from supply cuts at some of the world's top producers.`\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-global-oil.html?searchResultPosition=6
 
-**Coronavirus Live Updates: India to Restart Trains Even as Infections Rise**\
-`Passengers will have to wear masks and undergo health screenings. U.K. announces mandatory quarantine for incoming travelers.`\
-https://nytimes.com/2020/05/11/world/coronavirus-news.html?searchResultPosition=7
+**Chinese Investment in U.S. Drops, Pandemic to Weigh on This Year's Bilateral Flows: Report**\
+`Chinese direct investment in the United States dropped to the lowest level since 2009 last year amid bilateral tensions, and the COVID-19 pandemic will continue to weigh on investment flows between the world's two biggest economies, according to a report. `\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-china-us-investment.html?searchResultPosition=7
 
-**Washington in Talks With Chipmakers About Building U.S. Factories**\
-`The Trump administration is in talks with semiconductor companies about building chip factories in the United States, representatives from two chipmakers said on Sunday.`\
-https://nytimes.com/reuters/2020/05/11/business/11reuters-usa-tech-trump.html?searchResultPosition=8
+**5 Shot in Texas Park Crowded With 600 People, Police Say**\
+`It was not clear what such a large crowd was doing at the park in Fort Worth during the pandemic, the police said. Witnesses told officials at least 30 gunshots were heard.`\
+https://nytimes.com/2020/05/11/us/virus-fort-worth-park-shooting.html?searchResultPosition=8
 
-**Chinese Investment in US Drops to Lowest Level Since 2009**\
-`China’s direct investment in the United States fell last year to its lowest level since the Great Recession, even before the coronavirus pandemic shut down much of global commerce.`\
-https://nytimes.com/aponline/2020/05/11/business/ap-us-china-investment-in-us.html?searchResultPosition=9
+**For Central Banks, Hope for Precision Fades Amid Pandemic Uncertainty**\
+`Central bankers who have spent a generation researching how their words influence the economy and honing the craft of "forward guidance" are now effectively tongue-tied by a health crisis that has no clear destination yet to guide households and investors toward.`\
+https://nytimes.com/reuters/2020/05/11/business/11reuters-health-coronavirus-centralbanks-guidance-analysis.html?searchResultPosition=9
 
-**Tesla China Sold 3,635 Model 3 Vehicles in April, Down 64% vs March: CPCA**\
-`U.S. electric vehicle maker Tesla Inc sold 3,635 Shanghai-made Model 3 vehicles in China in April, down 64% from March, according to the China Passenger Car Association (CPCA).`\
-https://nytimes.com/reuters/2020/05/10/business/10reuters-tesla-china-sales.html?searchResultPosition=10
+**1 Sailor Dead, Others Hurt on Iranian Ship in Gulf of Oman**\
+`An Iranian navy sailor was killed and several injured in an unexplained “incident” on a military support ship in the Gulf of Oman, Iranian media reported Monday. `\
+https://nytimes.com/aponline/2020/05/11/world/middleeast/ap-ml-iran-navy.html?searchResultPosition=10
 
