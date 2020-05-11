@@ -1,20 +1,20 @@
-**New York to Begin Limited Reopening in Upstate Region**\
-`Parts of New York that have met seven health and testing criteria related to the coronavirus will be allowed to restart construction, manufacturing and curbside retail.`\
-https://nytimes.com/2020/05/11/nyregion/reopen-new-york-coronavirus.html?searchResultPosition=6
+**China's Wuhan Plans City-Wide Testing for Coronavirus Over Period of 10 Days: Sources**\
+`The Chinese city of Wuhan, the epicentre of China's coronavirus outbreak, plans to conduct city-wide nucleic acid testing over a period of 10 days, according to an internal document seen by Reuters and two sources familiar with the situation. `\
+https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-health-coronavirus-china-wuhan.html?searchResultPosition=6
 
-**Quarantine Fashion: Buyers Ditch PJs for Elevated Loungewear**\
-`When Los Angeles-based fashion blogger Jacey Duprie finally emerged from days in sweats, changing into black jeans, an ankle-length camel sweater and Gucci loafers, she counted it as one of those “very big victories that used to be small victories.” `\
-https://nytimes.com/aponline/2020/05/11/business/bc-virus-outbreak-fashion-loungewear.html?searchResultPosition=7
+**Coronavirus in Mexico Made Worse by Trio of Health Risk Factors**\
+`The spread of the new coronavirus is taking a deadly toll on Mexico due to the widespread presence of a trio of pre-existing medical conditions that put Mexicans at higher risk.`\
+https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-health-coronavirus-mexico-risk.html?searchResultPosition=7
 
-**Business and Economic Events Scheduled for Tuesday**\
-`Business and economic events scheduled for Tuesday.`\
-https://nytimes.com/aponline/2020/05/11/business/ap-the-day-ahead.html?searchResultPosition=8
+**AP PHOTOS: Rituals Upended Amid the Coronavirus Pandemic**\
+`A man in a full protective suit prepares to remove the body of someone who died at home in one of the Brazilian cities hit hardest by the coronavirus pandemic. A woman speaks through a closed window to her daughter and grandchild on Mother's Day in the United States.`\
+https://nytimes.com/aponline/2020/05/11/us/ap-virus-outbreak-a-week-photo-gallery.html?searchResultPosition=8
 
-**Our Species Might Have Reached Europe Earlier Than Thought**\
-`Human bones from a Bulgarian cave suggest our species arrived in Europe thousands of years earlier than previously thought, sharing the continent much longer with Neanderthals.`\
-https://nytimes.com/aponline/2020/05/11/science/ap-us-sci-early-europeans.html?searchResultPosition=9
+**Indiana Attorney General's Law License Suspended for Groping**\
+`Indiana Attorney General Curtis Hill’s law license will be suspended for 30 days over an allegation that he drunkenly groped four women during a party, the state Supreme Court ruled Monday.`\
+https://nytimes.com/aponline/2020/05/11/us/politics/ap-us-indiana-attorney-general-groping-allegations.html?searchResultPosition=9
 
-**Study Offers Details of U.S. Children Severely Sickened by Coronavirus**\
-`Most of the 48 I.C.U. patients studied had pre-existing medical conditions, including two who died. Eighteen of the children were put on ventilators.`\
-https://nytimes.com/2020/05/11/health/coronavirus-children-icu.html?searchResultPosition=10
+**Multiple Ohio Prison Deaths Include Inmate Arguing Innocence**\
+`Ohio prison inmate Carlos Ridley, four decades into a life sentence for a triple slaying, was awaiting a court ruling this month he hoped would help him prove innocence through DNA testing.`\
+https://nytimes.com/aponline/2020/05/11/us/ap-us-virus-outbreak-prison-inmate-deaths.html?searchResultPosition=10
 
