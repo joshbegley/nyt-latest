@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-global-forex.html?se
 `Britain's easyJet urged the government to keep any quarantine requirements on travellers arriving in the UK for only a short period, as airlines face a new threat to their survival. `\
 https://nytimes.com/reuters/2020/05/11/business/11reuters-health-coronavirus-easyjet.html?searchResultPosition=8
 
-**Japanese Telco SoftBank Sees Full-Year Operating Profit Stable at Y920 Billion**\
-`Japanese telco SoftBank Corp on Monday said it forecasts operating profit will rise 0.9% to 920 billion yen  ($8.6 billion) in the current financial year. `\
+**Japanese Telco SoftBank Sees Full-Year Operating Profit Stable at $8.6 Billion**\
+`Japanese telco SoftBank Corp on Monday forecast operating profit for the current financial year at 920 billion yen ($8.6 billion), largely unchanged from a year earlier.`\
 https://nytimes.com/reuters/2020/05/11/business/11reuters-softbank-results.html?searchResultPosition=9
 
 **Fire at Nursing Home in Moscow Suburb Kills 9, Injures 9**\
