@@ -4,7 +4,7 @@ https://nytimes.com/reuters/2020/05/12/world/americas/12reuters-health-coronavir
 
 **Europe’s Museums Begin Reopening, Cautiously, With New Rules**\
 `Compulsory face masks, hand-sanitizer stations and one-way routes are common features as institutions reinvent themselves for the Covid-19 era.`\
-https://nytimes.com/2020/05/12/arts/museums-reopening-europe-berlin.html?searchResultPosition=7
+https://nytimes.com/2020/05/12/arts/design/museums-reopening-europe-berlin.html?searchResultPosition=7
 
 **Curtains for Broadway: No Shows Until Labor Day, at Least**\
 `The Broadway League canceled performances through Sept. 6 and said it did not know when they might resume.`\
