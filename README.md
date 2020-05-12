@@ -1,20 +1,20 @@
-**Bang & Olufsen Seeks Rights Issue to Cope With Coronavirus Crisis**\
-`TV and stereo maker Bang & Olufsen on Tuesday said it will ask shareholders at an extraordinary general meeting to approve a 400 million crown ($57.99 million) rights issue to help the struggling company through the coronavirus crisis.  `\
-https://nytimes.com/reuters/2020/05/12/technology/12reuters-bang-olufsen-issue.html?searchResultPosition=6
+**Key Japan Indicator Drops at Fastest Pace in Nine Years, Signals Steep Recession**\
+`A key economic indicator in Japan fell at the fastest pace since 2011 in March and the government warned of a deep recession as the coronavirus crisis takes a heavy toll on business activity and consumer spending.`\
+https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-japan-economy-indicators.html?searchResultPosition=6
 
-**In Japan's Elder-Care Homes, Coronavirus Tests Limits of Overstretched Staff**\
-`At the Tokyo elder-care home where 27-year-old Yoshimu works, the coronavirus has stretched already tight staffing, leaving residents to sometimes sit longer in soiled diapers or to steal food from one another.`\
-https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-health-coronavirus-japan-elderly.html?searchResultPosition=7
+**Honda Sinks Deeper Into Quarterly Losses on Virus Outbreak**\
+`Japanese automaker Honda Motor Co. sank deeper into losses for the fiscal quarter that ended in March, as the damage to the industry from the coronavirus outbreak hurt sales and crimped production. `\
+https://nytimes.com/aponline/2020/05/12/business/ap-as-japan-earns-honda.html?searchResultPosition=7
 
-**UK to Set Out Details on Making Workplaces Safer as Lockdown Unwind Begins**\
-`The British government will on Tuesday set out details on how to make workplaces safer as some businesses start to return to work after Prime Minister Boris Johnson set out a cautious plan to exit the coronavirus lockdown.`\
-https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-britain.html?searchResultPosition=8
+**Eat Rat, Make New Body: Easy Stuff for Pythons**\
+`The extreme metabolism of some snakes could provide leads on how to regenerate human tissue.`\
+https://nytimes.com/2020/05/12/science/pythons-metabolism-animals-digestion.html?searchResultPosition=8
 
-**'Foretaste' of Brexit: Virus Cuts Off Much of UK Farm Labor**\
-`Britain's fruit and vegetable farmers have l ong dreaded their country's exit from the European Union, worrying that it would keep out the tens of thousands of Eastern European workers who come every year to pick produce.`\
-https://nytimes.com/aponline/2020/05/12/business/bc-eu-virus-outbreak-britain-brexit-farmers.html?searchResultPosition=9
+**Momentous Choices for Supreme Court as It Hears Trump Financial Records Cases**\
+`The court ruled unanimously against Presidents Richard Nixon and Bill Clinton when they sought to withhold evidence. But the current court is unlikely to achieve consensus.`\
+https://nytimes.com/2020/05/12/us/politics/trump-supreme-court-financial-records.html?searchResultPosition=9
 
-**What You Need to Know About the Coronavirus Right Now**\
-`Here's what you need to know about the coronavirus right now:`\
-https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-health-coronavirus-snapshot.html?searchResultPosition=10
+**Hasidic Jews, Hit Hard by the Outbreak, Flock to Donate Plasma**\
+`“The community has taken a tragedy and turned it into a superpower,” said an expert on using plasma to treat people after virus exposure.`\
+https://nytimes.com/2020/05/12/nyregion/virus-orthodox-plasma-donation.html?searchResultPosition=10
 
