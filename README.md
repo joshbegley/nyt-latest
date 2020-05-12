@@ -1,20 +1,20 @@
-**Amandla Stenberg Sees Beauty Underwater, and Strength in Maya Angelou**\
-`“The Hunger Games” and “The Hate U Give” actress also lists Tierra Whack’s music and her grandfather’s violin among the 10 things she can’t live without.`\
-https://nytimes.com/2020/05/12/arts/television/amandla-stenberg-the-eddy.html?searchResultPosition=6
+**U.S. Will Let Air Carriers Suspend More Flights, Warns on Refunds**\
+`The U.S. Transportation Department on Tuesday said it will allow carriers to halt flights to up to 5% of destinations as a condition of receiving government assistance amid the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/12/us/12reuters-health-coronavirus-usa-airlines.html?searchResultPosition=6
 
-**Want a Show That Goes Places? Try ‘Travel Man’**\
-`Our television critic answers your questions and offers guidance on what to watch next.`\
-https://nytimes.com/2020/05/12/arts/television/bobs-burgers-travel-shows.html?searchResultPosition=7
+**Bullard: Credit Facilities, Including ETF Purchases Begun Today, Already Helping**\
+`The Fed's credit facilities including the purchases that opened today of some exchange traded funds has already helped markets just by their announcement, St. Louis Federal Reserve bank president James Bullard said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/12/us/12reuters-usa-fed-bullard.html?searchResultPosition=7
 
-**Funeral Director Balances Safety and Emotional Needs in Virus-Hit Britain**\
-`At a time when more people are dying but few can attend funerals, the job of an undertaker in virus-hit Britain is difficult, stressful - and often creative.`\
-https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-britain-funerals.html?searchResultPosition=8
+**The Planes in Spain Parked Neatly on the Plain**\
+`Dozens of passenger jetliners belonging to European carriers  stand idled in neat lines in what has become a giant aeroplane parking lot amid the flat farmlands of eastern Spain.`\
+https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-spain-planes.html?searchResultPosition=8
 
-**Family of Woman Killed by Police Hires Civil Rights Attorney**\
-`A prominent civil rights and personal injury attorney has been hired by the family of a black woman who was fatally shot by Kentucky police in her home.`\
-https://nytimes.com/aponline/2020/05/12/us/ap-us-fatal-police-shooting-kentucky.html?searchResultPosition=9
+**Trump Wants California to Let Automaker Tesla Reopen Assembly Plant**\
+`U.S. President Donald Trump on Tuesday urged California to allow Tesla Inc to reopen its electric vehicle assembly plan.`\
+https://nytimes.com/reuters/2020/05/12/business/12reuters-health-coronavirus-tesla-trump.html?searchResultPosition=9
 
-**Violence in Northwest Nigeria Drives 23,000 Into Niger: UNHCR**\
-`Violence in northwest Nigeria has forced about 23,000 refugees to flee to Niger since April and raised concerns about the deteriorating security situation, the United Nations refugee agency said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/12/world/africa/12reuters-nigeria-security.html?searchResultPosition=10
+**The Daily Call That 200 Arts Groups Hope Will Help Them Survive**\
+`In a sign of the pandemic’s toll, New York’s cultural institutions, large and small, feel compelled to share their woes and tactics in strategy sessions.`\
+https://nytimes.com/2020/05/12/arts/coronavirus-new-york-culture.html?searchResultPosition=10
 
