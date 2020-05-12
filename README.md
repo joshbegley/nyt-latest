@@ -1,20 +1,20 @@
-**American Pilot Dies in Light Plane Crash in Indonesia**\
-`An American pilot died after her light plane crashed into a lake Tuesday while delivering humanitarian supplies in Indonesia’s easternmost province of Papua, police said. `\
-https://nytimes.com/aponline/2020/05/12/world/asia/ap-as-indonesia-light-plane-crash.html?searchResultPosition=6
+**Mexico to Present Plan on Wednesday for Return to 'New Normal'**\
+`Mexican President Andres Manuel Lopez Obrador said on Tuesday that he will present plans on Wednesday to reopen the country and the economy after several weeks of quarantine measures to curb the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/05/12/world/americas/12reuters-health-coronavirus-mexico-politics.html?searchResultPosition=6
 
-**Special Elections in California and Wisconsin: What to Watch For**\
-`In California, the race to fill former Representative Katie Hill’s seat in the state’s 25th District is a microcosm of national politics right now.`\
-https://nytimes.com/2020/05/12/us/politics/special-election-in-california-wisconsin.html?searchResultPosition=7
+**Exclusive: Lack of Financing for Buyers May Extend Delay in Petrobras Refineries Bids-Sources**\
+`Lack of financing for the buyers of Brazil's Petroleo Brasileiro SA refineries may extend the delay in the sale process, three people with knowledge of the matter said. `\
+https://nytimes.com/reuters/2020/05/12/world/americas/12reuters-petrobras-divestiture-exclusive.html?searchResultPosition=7
 
-**Thyssenkrupp in Informal Talks About Warship Unit Consolidation**\
-`Thyssenkrupp is in informal talks about consolidation in the shipbuilding sector, its finance chief said on Tuesday, responding to speculation that the group might sell parts of its Marine Systems (TKMS) unit or merge it with rivals German Naval Yards and Luerssen.`\
-https://nytimes.com/reuters/2020/05/12/business/12reuters-thyssenkrupp-results-ship.html?searchResultPosition=8
+**Sheriff: Grandmother Filmed Man Perform Sex Acts on Infant**\
+`A man is accused of performing sexual acts on a 1-year-old girl while the child's grandmother livestreamed it on a pornographic site, authorities in Alabama said.`\
+https://nytimes.com/aponline/2020/05/12/us/ap-us-child-porn-livestreamed.html?searchResultPosition=8
 
-**Fauci to Warn U.S. Senate That Easing Virus Restrictions Will Risk Lives: New York Times**\
-`Leading U.S. infectious disease expert Anthony Fauci will warn Congress on Tuesday that moving too quickly to ease restrictions on business and social life will put lives at risk from the coronavirus pandemic and hamper the economic recovery, the New York Times reported.`\
-https://nytimes.com/reuters/2020/05/12/us/12reuters-health-coronavirus-usa.html?searchResultPosition=9
+**Watch Live: Fauci Testifies Before Senate**\
+`Dr. Anthony S. Fauci, a central figure in the response to the coronavirus pandemic, is expected to warn senators about the dangers of reopening the country too quickly.`\
+https://nytimes.com/video/us/politics/100000007134717/dr-fauci-senate-testimony-live.html?searchResultPosition=9
 
-**Swiss Attorney General Faces Possible Impeachment Over Handling of FIFA Corruption Probe**\
-`Swiss Attorney General Michael Lauber faces the start of  proceedings on Wednesday that could lead to his impeachment after criticism of his handling of an investigation into alleged corruption surrounding soccer's governing body FIFA.`\
-https://nytimes.com/reuters/2020/05/12/sports/soccer/12reuters-swiss-attorneygeneral-impeachment.html?searchResultPosition=10
+**Live Audio: Supreme Court Hears Arguments for Trump Case**\
+`The Supreme Court will hear arguments on whether President Trump can block the release of his financial records. This is a live audio feed of the proceedings.`\
+https://nytimes.com/video/us/politics/100000007134702/trump-supreme-court-oral-arguments-live.html?searchResultPosition=10
 
