@@ -1,20 +1,20 @@
+**November Trial Run: California House Fight Centers on Trump**\
+`A swing U.S. House district north of Los Angeles is up for grabs Tuesday in a special election that has become an early test for President Donald Trump as he seeks a second term.`\
+https://nytimes.com/aponline/2020/05/12/us/ap-us-election-2020-house-california-special-election.html?searchResultPosition=6
+
+**Oil Prices Boosted by Saudi Arabia Pledge to Deepen Output Cut**\
+`Oil futures rose on Tuesday, boosted by an unexpected commitment from Saudi Arabia to deepen production cuts in June in a bid to help drain the glut in the global market that has built up as the coronavirus pandemic crushed fuel demand.`\
+https://nytimes.com/reuters/2020/05/12/business/12reuters-global-oil.html?searchResultPosition=7
+
+**Stocks Falter as Anxiety Grows Over Second Coronavirus Wave**\
+`Asian shares tumbled on Tuesday on growing worries about a second wave of coronavirus infections after the Chinese city where the pandemic originated reported its first new cases since its lockdown was lifted.`\
+https://nytimes.com/reuters/2020/05/12/business/12reuters-global-markets.html?searchResultPosition=8
+
+**Lives Lost: Victims of the Virus, Remembered for Tomorrow**\
+`Across the world, the devastation caused by the coronavirus is told in the voices of those left behind.`\
+https://nytimes.com/aponline/2020/05/12/us/ap-us-virus-outbreak-ap-captures-lives-lost.html?searchResultPosition=9
+
 **Thyssenkrupp Second-Quarter Loss Widens as Coronavirus Impact Starts to Show**\
 `Thyssenkrupp on Tuesday said its second-quarter net loss more than quintupled as the coronavirus pandemic hit all business lines at the struggling steel-to-submarines conglomerate.`\
-https://nytimes.com/reuters/2020/05/12/business/12reuters-thyssenkrupp-results.html?searchResultPosition=6
-
-**Thailand Reports Two New Coronavirus Cases, No New Deaths**\
-`Thailand on Tuesday reported two new coronavirus cases and no new deaths, bringing the total to 3,017 cases and 56 deaths since the outbreak started in January.`\
-https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-health-coronavirus-thailand.html?searchResultPosition=7
-
-**Hong Kong to Prioritize Passing of Contentious Anthem Bill**\
-`Hong Kong's government is working to push through a contentious bill that seeks to criminalize abuse of the Chinese national anthem, days after a pro-Beijing lawmaker wrested control over a key committee that vets bills.`\
-https://nytimes.com/aponline/2020/05/12/world/asia/ap-as-hong-kong-national-anthem-bill.html?searchResultPosition=8
-
-**What’s on TV Tuesday: A ‘Kimmy Schmidt’ Special and ‘Cinema Paradiso’**\
-`An interactive special based on the “Unbreakable Kimmy Schmidt” series debuts on Netflix, and the director’s cut of Giuseppe Tornatore’s film heads to HBO.`\
-https://nytimes.com/2020/05/12/arts/television/whats-on-tv-tuesday-a-kimmy-schmidt-special-and-cinema-paradiso.html?searchResultPosition=9
-
-**Afghan Airlines at Risk of Collapse, Taking Women's Jobs With Them**\
-`Shagufa Haidari, 23, a flight attendant for Afghanistan's Kam Air, used to fly six days a week around the country and abroad, to Istanbul, Islamabad and Delhi.`\
-https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-health-coronavirus-afghanistan-airlines.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/12/business/12reuters-thyssenkrupp-results.html?searchResultPosition=10
 
