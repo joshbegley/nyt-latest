@@ -1,20 +1,20 @@
-**Biden Warns Against Coronavirus Stimulus Corruption**\
-`Democratic presidential candidate Joe Biden warned on Tuesday he would scrutinize any "big company or political insider" who received federal stimulus money they were not supposed to get from the government's trillion-dollar relief package.`\
-https://nytimes.com/reuters/2020/05/12/us/12reuters-health-coronavirus-usa-biden.html?searchResultPosition=6
+**'Dengue Kills Too'-Latin America Faces Two Epidemics at Once**\
+`As the coronavirus kills thousands and dominates government attention across Latin America, another deadly viral infection is quietly stalking the region.`\
+https://nytimes.com/reuters/2020/05/12/world/americas/12reuters-health-coronavirus-latam-dengue.html?searchResultPosition=6
 
-**US Consumer Prices Drop 0.4% With Core Down Record Amount**\
-`U.S. consumer prices fell 0.8% in April, the biggest drop since the 2008 financial crisis, with decreases led by a huge drop in gasoline prices and from businesses most affected by the coronavirus shutdowns.`\
-https://nytimes.com/aponline/2020/05/12/business/bc-us-consumer-prices.html?searchResultPosition=7
+**Morgan Stanley Settles SEC Charges It Misled Clients, to Pay $5 Mln Penalty**\
+`A unit of Morgan Stanley will pay a $5 million penalty to settle U.S. Securities and Exchange Commission charges it provided misleading information to clients in its retail wrap fee programs regarding trade execution services and transaction costs, the regulator said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/12/business/12reuters-morgan-stanley-sec-settlement.html?searchResultPosition=7
 
-**What You Need to Know Today About the Virus Outbreak**\
-`Thousands of new coronavirus infections are reported daily, many of them job-related, even as President Donald Trump urges people back to work.`\
-https://nytimes.com/aponline/2020/05/12/us/bc-us-virus-outbreak-whats-happening.html?searchResultPosition=8
+**BlackRock Throws Weight Behind New NYSE and Nasdaq Challenger MEMX**\
+`The Members Exchange on Tuesday said BlackRock Inc, the world's biggest asset manager, was among its latest financial and strategic backers as the new bourse gears up to take on the New York Stock Exchange and Nasdaq Inc with a third-quarter launch. `\
+https://nytimes.com/reuters/2020/05/12/business/12reuters-usa-exchange-memx-blackrock.html?searchResultPosition=8
 
-**Italy Magistrates Open Probe After Freed Aid Worker Bombarded by Hate Mail**\
-`An Italian aid worker, freed at the weekend after being held hostage for 18 months by Islamist militants in Africa, has been deluged with hate mail because she converted to Islam, judicial sources said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/12/world/africa/12reuters-italy-kenya-aidworker.html?searchResultPosition=9
+**Russian President Vladimir Putin's Spokesman Tests Positive for Coronavirus**\
+`Russian President Vladimir Putin's spokesman Dmitry Peskov said on Tuesday he had tested positive for the novel coronavirus and was receiving treatment at hospital, Russian news agencies reported.`\
+https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-putin-spokesman.html?searchResultPosition=9
 
-**U.S. ITC Says It Will Probe Altria, Philip Morris After RJ Reynolds Complaint**\
-`The U.S. International Trade Commission will investigate certain tobacco heating elements and components following a complaint filed by RJ Reynolds' vaping and tobacco units, the agency said in a statement on Tuesday.`\
-https://nytimes.com/reuters/2020/05/12/us/12reuters-rjreynolds-usa.html?searchResultPosition=10
+**‘Hamilton’ Movie Will Stream on Disney Plus on July 3**\
+`In a surprise move, the film of the original Broadway production is being released 15 months early.`\
+https://nytimes.com/2020/05/12/movies/hamilton-movie-disney-plus.html?searchResultPosition=10
 
