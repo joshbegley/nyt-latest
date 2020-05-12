@@ -1,20 +1,20 @@
-**Aiming to Thwart China, U.S. Senator Pushes Rare Earths Funding Bill**\
-`U.S. Senator Ted Cruz introduced legislation on Tuesday to help revive the U.S. rare earths industry with tax breaks for mine developers and manufacturers who buy their products, the latest attempt by Washington to break China's control over the strategic sector.`\
-https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-usa-rareearths-cruz.html?searchResultPosition=6
+**My Weekend Binge Online at Frieze**\
+`The virtual art fair tries to condense 160 galleries onto your phone screen. Can art hold your attention amid the infinite scroll?`\
+https://nytimes.com/2020/05/12/arts/design/frieze-new-york-online.html?searchResultPosition=6
 
-**UK Researchers Try to Crack Genetic Riddle of COVID-19**\
-`British researchers will study the genes of thousands of ill COVID-19 patients to try to crack one of the most puzzling riddles of the novel coronavirus: why does it kill some people but give others not even a mild headache?`\
-https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-britain-genetics.html?searchResultPosition=7
+**UK Opens 10 Billion Pound COVID-19 Aid Programme for Self-Employed**\
+`Millions of British self-employed workers will be able to apply for one-off grants of up to 7,500 pounds ($9,210) from Wednesday, as part of a government assistance package for people whose businesses are affected by the coronavirus.`\
+https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-britain-selfemployed.html?searchResultPosition=7
 
-**Police Video Shows Chaos in Texas Park as Gunshots Erupt**\
-`Newly-released police video of a weekend shooting in a crowded North Texas park shows a chaotic scene as gunfire erupted and five people were left wounded.`\
-https://nytimes.com/aponline/2020/05/12/us/ap-us-fort-worth-park-shooting.html?searchResultPosition=8
+**Investment Banks Cut Jobs Despite Coronavirus Trading Surge: Coalition**\
+`Investments banks cut jobs at the fastest pace in six years during a first quarter in 2020 even though the coronavirus pandemic triggered a surge in volatility and boosted revenues to a five-year high, data published on Wednesday by research firm Coalition showed.`\
+https://nytimes.com/reuters/2020/05/12/business/12reuters-banks-redundancies.html?searchResultPosition=8
 
-**The U.S. Needs More Fiscal Help to Fight Coronavirus, Fed Officials Say**\
-`U.S. businesses and households are going to need more fiscal support to get through what will likely be a longer period of recovery from the coronavirus shutdown than initially expected, Federal Reserve policymakers said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/12/business/12reuters-usa-fed.html?searchResultPosition=9
+**A Tale of Two Japanese Drugs in Tests to Fight COVID-19**\
+`In the global hunt for coronavirus treatments, a Japanese antiviral medicine known as Avigan has won plaudits from Prime Minister Shinzo Abe and $128 million in government funding.`\
+https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-health-coronavirus-japan-medicine.html?searchResultPosition=9
 
-**The Coronavirus Mental Health Crisis Hits Home**\
-`A journal of the Plague Year: Week 9.`\
-https://nytimes.com/2020/05/12/opinion/coronavirus-mental-health.html?searchResultPosition=10
+**UK Retail Sales Plunge 19% in April as COVID Lockdown Hits: BRC**\
+`British retail spending plunged by nearly a fifth in April as the government's coronavirus lockdown hammered the sector, and a broader measure of consumer spending tumbled by more than a third, surveys showed on Wednesday.`\
+https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-britain-economy-retail.html?searchResultPosition=10
 
