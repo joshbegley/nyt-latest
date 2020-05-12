@@ -1,20 +1,20 @@
+**Ryanair Gets Ready to Fly More Often in July**\
+`Budget airline Ryanair says it will begin operating nearly 1,000 daily flights starting in July, assuming government restrictions on flights within Europe are lifted after the shutdown due to the COVID-19 outbreak.`\
+https://nytimes.com/aponline/2020/05/12/business/bc-virus-outbreak-britain-ryanair.html?searchResultPosition=6
+
+**Coronavirus in N.Y.: Live Updates**\
+`Three upstate regions have met the conditions required to start reopening on Friday. New York City will likely stay shut down for several weeks.`\
+https://nytimes.com/2020/05/12/nyregion/coronavirus-new-york-update.html?searchResultPosition=7
+
+**Georgia Democrat Stacey Abrams Endorses Biden for U.S. President**\
+`Former Georgia state minority leader Stacey Abrams, a possible Democratic vice presidential pick, endorsed presumptive nominee Joe Biden for U.S. president on Tuesday, citing his stance on climate chance, economic recovery and voting rights.`\
+https://nytimes.com/reuters/2020/05/12/us/politics/12reuters-usa-election-biden.html?searchResultPosition=8
+
+**Fire Guts 400 Shanties, Shops in Bangladesh Rohingya Camp**\
+`A fire on Tuesday raced through a crowded camp housing Rohingya refugees in southern Bangladesh, destroying nearly 400 shanties and shops, a Bangladeshi official and the U.N.’s refugee agency said. `\
+https://nytimes.com/aponline/2020/05/12/world/asia/ap-as-bangladesh-rohingya.html?searchResultPosition=9
+
 **Gun Control Group Starts Faith-Driven Push Ahead of Election**\
 `A leading gun control advocacy group has enlisted more than a dozen religious leaders to boost voter turnout this fall in support of candidates who support measures to prevent gun violence.`\
-https://nytimes.com/aponline/2020/05/12/us/ap-religion-faith-and-guns.html?searchResultPosition=6
-
-**China Cuts Australian Beef Imports Amid Virus Tension**\
-`China suspended imports of beef from four Australian producers on Tuesday following a threat by Beijing of possible trade retaliation if Australia pushed for an inquiry into the origins of the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/05/12/business/ap-as-australia-china-beef-exports.html?searchResultPosition=7
-
-**How Walking Changes Us**\
-`“In Praise of Walking” and “In Praise of Paths” offer two very different approaches to the benefits of taking regular strolls.`\
-https://nytimes.com/2020/05/12/books/review/omara-ekelund-praise-walking-paths.html?searchResultPosition=8
-
-**Concern Mounts That Border Measures Threaten EU Free Travel**\
-`The future of ID-check free travel across 26 European countries is at risk if governments do not ease soon the emergency border restrictions they introduced to halt the spread of the coronavirus, European Union lawmakers and officials warned Tuesday.`\
-https://nytimes.com/aponline/2020/05/12/business/bc-virus-outbreak-europe-borders.html?searchResultPosition=9
-
-**Embraer Blames Failed Boeing Deal for Sharp Drop in Commercial Jet Deliveries**\
-`Brazil planemaker Embraer said Tuesday it delivered just five commercial jets in the first quarter, less than half what it delivered a year ago, blaming the slump on its preparations for a deal with Boeing Co that ultimately fell apart.`\
-https://nytimes.com/reuters/2020/05/12/business/12reuters-brazil-embraer-backlog.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/12/us/ap-religion-faith-and-guns.html?searchResultPosition=10
 
