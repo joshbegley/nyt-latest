@@ -1,20 +1,20 @@
-**Albania, Once Haven of Illicit Cannabis, Set to Legalise Crop for Medical Use**\
-`Albania plans to legalise the cultivation of cannabis for medical purposes, six years after beginning a crackdown on an illegal trade that turned it, by some accounts, into Europe's largest outdoor grower of cannabis.`\
-https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-albania-cannabis-medical.html?searchResultPosition=6
+**Verstappen Tips Sainz Over Ricciardo for Vettel's Seat**\
+`Red Bull's Max Verstappen reckons Spaniard Carlos Sainz is more likely to replace Sebastian Vettel at Ferrari next year than Daniel Ricciardo.`\
+https://nytimes.com/reuters/2020/05/12/sports/autoracing/12reuters-motor-f1-ferrari-sainz.html?searchResultPosition=6
 
-**Stretch It Out: Serena, Venus Williams Offer Fans Yoga Tips**\
-`Serena Williams is looking forward to getting back to competing when the coronavirus pandemic permits it, in part because she’s “feeling better than ever.”`\
-https://nytimes.com/aponline/2020/05/12/sports/tennis/ap-ten-virus-outbreak-serena-and-venus.html?searchResultPosition=7
+**Republican Bill Seeks Sanctions on China Over COVID-19 Probe**\
+`A leading U.S. Republican senator on Tuesday proposed  legislation that would authorize the U.S. president to impose far-reaching sanctions on China if it fails to give a full account of events leading to the outbreak of the novel coronavirus.`\
+https://nytimes.com/reuters/2020/05/12/us/politics/12reuters-health-coronavirus-usa-graham.html?searchResultPosition=7
 
-**Taxpayers Foot Bill to Supply Legislators, Army of Aides**\
-`It takes hundreds of millions of taxpayer dollars a year for the Pennsylvania General Assembly to maintain one of the country’s largest legislative staffs, a small army that needs food, shelter, transportation, office supplies and modern electronics.`\
-https://nytimes.com/aponline/2020/05/12/us/ap-us-legislatures-spending-abridged-1st-ld-writethru.html?searchResultPosition=8
+**Gymnastics: U.S. Calls Off 2020 National Championships**\
+`USA Gymnastics has called off its premier events this year including June's national championships due to the coronavirus pandemic, officials said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/12/sports/olympics/12reuters-health-coronavirus-gymnastics.html?searchResultPosition=8
 
-**Taxpayers Foot Bill to Supply Legislators, Army of Aides**\
-`It takes hundreds of millions of taxpayer dollars a year for the Pennsylvania General Assembly to maintain one of the country's largest legislative staffs, a small army that needs food, shelter, transportation, office supplies and modern electronics. `\
-https://nytimes.com/aponline/2020/05/12/us/ap-us-legislatures-spending-1st-ld-writethru.html?searchResultPosition=9
+**Singer Bryan Adams Apologizes for Coronavirus Conspiracy Rant**\
+`Canadian singer Bryan Adams apologized on Tuesday for a social media post in which he blamed "bat eating, wet market animal selling, virus making greedy bastards" for the novel coronavirus.`\
+https://nytimes.com/reuters/2020/05/12/arts/12reuters-people-bryan-adams.html?searchResultPosition=9
 
-**Still Life With Fly Swatter, or Hourglass, or Lemons**\
-`Five housebound photographers used everyday items to create images that speak to both their inner lives and the world beyond their walls.`\
-https://nytimes.com/2020/05/12/t-magazine/photographers-coronavirus-still-life-pictures.html?searchResultPosition=10
+**In Strange Offseason, Falcons' Quinn Embraces the Challenge**\
+`In an offseason that's anything but normal, Atlanta Falcons coach Dan Quinn hasn’t lost his eternal optimism.`\
+https://nytimes.com/aponline/2020/05/12/sports/football/ap-fbn-falcons-offseason.html?searchResultPosition=10
 
