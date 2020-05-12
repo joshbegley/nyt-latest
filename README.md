@@ -1,20 +1,20 @@
-**Electric Car Sales in Europe Jump, but Still Just 4% of Market**\
-`Registrations of electric cars in Europe jumped 57.4% in the first quarter of 2020, but still only accounted for 4.3% of total registrations, auto industry data showed on Tuesday, as carmakers struggle to meet tough new anti-pollution rules. `\
-https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-europe-autos-electric.html?searchResultPosition=6
+**India's Modi Announces $266 Billion Economic Package After Coronavirus Hit**\
+`Prime Minister Narendra Modi announced a 20 trillion rupee ($266 billion) support package for India's economy on Tuesday to help mitigate the damage caused by the novel coronavirus and the lockdown it has triggered. `\
+https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-health-coronavirus-india-economy.html?searchResultPosition=6
 
-**Boeing Goes Another Month Without a Single Airliner Order**\
-`Boeing failed to sell a single commercial airplane but saw orders for 108 planes canceled in April as a sharp drop in air travel erased any demand among airlines for new jetliners.`\
-https://nytimes.com/aponline/2020/05/12/business/ap-us-boeing-planes.html?searchResultPosition=7
+**Trump’s Barefaced Deceptions**\
+`He won’t wear a mask, fearing it will project weakness and defeat. Who does he think he’s fooling?`\
+https://nytimes.com/2020/05/12/opinion/trump-pence-coronavirus-masks.html?searchResultPosition=7
 
-**Fed Makes Initial Purchases in Its First Corporate Debt Buying Program**\
-`The Federal Reserve is buying corporate debt exchange traded funds starting Tuesday. The announcement alone had soothed the market.`\
-https://nytimes.com/2020/05/12/business/economy/fed-corporate-debt-coronavirus.html?searchResultPosition=8
+**Uber Approaches GrubHub With Takeover Offer: Bloomberg News**\
+`Uber Technologies Inc has made an offer to buy online food delivery company GrubHub Inc, Bloomberg News reported on Tuesday.`\
+https://nytimes.com/reuters/2020/05/12/business/12reuters-grubhub-m-a-uber.html?searchResultPosition=8
 
-**Exclusive: OPEC+ Wants to Maintain Oil Output Cuts Beyond June-Sources**\
-`OPEC and its allies want to maintain existing oil cuts beyond June when the OPEC+ group is next due to meet to shore up prices and demand, which has been hit by the coronavirus pandemic, four OPEC+ sources said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/12/world/middleeast/12reuters-oil-opec-exclusive.html?searchResultPosition=9
+**Fauci Warns of 'Serious Problems' if States Reopen Too Soon**\
+`The Latest on the Senate Health, Education, Labor and Pensions committee hearing on the coronavirus pandemic (all times local): . `\
+https://nytimes.com/aponline/2020/05/12/us/politics/ap-us-virus-outbreak-hearing-the-latest.html?searchResultPosition=9
 
-**Hungary Summons Nordic Diplomats Over Rule-By-Decree Row**\
-`Hungary summoned the ambassadors of four Nordic countries on Monday over their countries' criticism of a controversial law that empowers Prime Minister Viktor Orban to act by decree against the novel coronavirus.`\
-https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-hungary-law.html?searchResultPosition=10
+**Education Department Targets Employers Over Wage Garnishment**\
+`The U.S. Education Department says it's ramping up efforts to contact more than 37,000 employers who have improperly continued to garnish wages from workers who have fallen behind on their student loans.`\
+https://nytimes.com/aponline/2020/05/12/us/ap-us-virus-outbreak-wage-garnishment.html?searchResultPosition=10
 
