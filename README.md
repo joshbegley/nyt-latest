@@ -1,20 +1,20 @@
+**Truck Maker Volvo Ditches Dividend Payment Amid COVID-19 Crisis**\
+`Swedish truck maker Volvo will withdraw its proposed dividend for 2019, it said on Tuesday, joining a slew of firms opting not to make payments to shareholders because of the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/05/12/business/12reuters-health-coronavirus-volvo-dividend.html?searchResultPosition=6
+
+**Mayor: 52 NYC Children Diagnosed With Inflammatory Syndrome**\
+`A total of 52 children in New York City have been diagnosed with an inflammatory syndrome possibly linked to COVID-19 and another 10 cases are pending, Mayor Bill de Blasio said Tuesday. `\
+https://nytimes.com/aponline/2020/05/12/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=7
+
+**Watch Live: Cuomo Delivers Coronavirus Update for New York**\
+`Gov. Andrew M. Cuomo of New York provides the state’s latest coronavirus stats.`\
+https://nytimes.com/video/us/politics/100000007134701/new-york-governor-andrew-cuomo-press-conference-coronavirus.html?searchResultPosition=8
+
+**Migration Issue Opens Rift in Italy's Coalition Amid COVID-19 Crisis**\
+`Italy's coalition parties quarrelled on Tuesday over a move to grant permits to irregular migrants working in farms and as carers, in a row that delayed the approval of a stimulus package for the coronavirus-hit economy.`\
+https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-italy-politics.html?searchResultPosition=9
+
 **Brussels Airlines to Cut 1,000 Jobs Amid COVID-19 Crisis**\
 `Hard-hit by the global clampdown on travel, Belgium’s Brussels Airlines said Tuesday it will cut a quarter of its workforce as part of a cost-cutting plan, a move that has enraged politicians.`\
-https://nytimes.com/aponline/2020/05/12/business/ap-eu-brussels-airlines.html?searchResultPosition=6
-
-**Broadway Theaters to Remain Closed Through September 6**\
-`Broadway theaters have extended their closures due to the coronavirus pandemic through Labor Day on September 6, the Broadway League, an industry group, said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/12/arts/12reuters-health-coronavirus-broadway.html?searchResultPosition=7
-
-**Italy's Daily Coronavirus Death Toll Stable, New Cases Climb**\
-`Deaths from the COVID-19 epidemic in Italy climbed by 172 on Tuesday, against 179 the day before, the Civil Protection Agency said, but the daily tally of new cases doubled to 1,402 from 744 on Monday.`\
-https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-italy-tally.html?searchResultPosition=8
-
-**India's Jubilant Signs Licensing Deal for Gilead's Potential COVID-19 Drug**\
-`India's Jubilant Life Sciences Ltd said on Tuesday it had signed a non-exclusive licensing agreement for selling Gilead Sciences Inc's experimental COVID-19 treatment remdesivir in 127 countries, including India. `\
-https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-health-coronavirus-gilead-sciences.html?searchResultPosition=9
-
-**Brazil Arrests Argentine Dictatorship Fugitive on Rio Coast**\
-`Brazil's federal police agency says it has arrested a former Argentine navy officer accused of dictatorship-era crimes, including crimes against humanity and kidnapping. `\
-https://nytimes.com/aponline/2020/05/12/world/americas/ap-lt-brazil-argentine-fugitive.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/12/business/ap-eu-brussels-airlines.html?searchResultPosition=10
 
