@@ -1,20 +1,20 @@
+**Appeals Court Urged to OK June 23 NY Presidential Primary**\
+`A federal appeals court should let New York’s Democratic presidential primary proceed on June 23 over the objections of the state, a lawyer for delegates said Monday.`\
+https://nytimes.com/aponline/2020/05/11/us/ap-us-election-2020-new-york-primary.html?searchResultPosition=6
+
+**Seen at a Genius bar**\
+`Now Tom Pepper and Zhouqin Burnikel are just playing with us.`\
+https://nytimes.com/2020/05/11/crosswords/daily-puzzle-2020-05-12.html?searchResultPosition=7
+
+**California’s Plan to Trace Travelers for Virus Faltered When Overwhelmed, Study Finds**\
+`Identifying and tracing air passengers from high-risks countries is useful when begun early, a C.D.C. study found, but California’s effort came too late.`\
+https://nytimes.com/2020/05/11/health/contact-tracing-coronavirus.html?searchResultPosition=8
+
+**Japan to Approve Its First Antigen Coronavirus Test Kits on Weds**\
+`The Japanese Health Ministry is set to approve antigen coronavirus testing kits on Wednesday, a ministry official said on Tuesday, in a move to boost the number of diagnostic tests available to battle the pandemic. `\
+https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-health-coronavirus-japan-antigen.html?searchResultPosition=9
+
 **Man Arrested in Notorious 1980s Killing of Gay American in Australia**\
 `The killing of Scott Johnson drew attention to a rash of crimes in past decades in which gay men were targeted by gangs of young people.`\
-https://nytimes.com/2020/05/11/world/australia/steve-johnson-gay-murder.html?searchResultPosition=6
-
-**Democrats Will Take Their First Step Toward a Virtual Convention**\
-`A vote by the party’s rules committee comes as officials hold out hope for some kind of in-person celebration in August, even as a large gathering appears increasingly unlikely because of the coronavirus.`\
-https://nytimes.com/2020/05/11/us/politics/democratic-convention.html?searchResultPosition=7
-
-**China April PPI Posts Sharpest Year-On-Year Fall in Four Years**\
-`China's factory gate prices in April fell at the sharpest annual rate in four years, official data showed on Tuesday, underscoring the downward pressure on production in the world's second-largest economy from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/11/world/asia/11reuters-china-economy-inflation.html?searchResultPosition=8
-
-**Mexico's President Orders Military on Streets to Curb Rising Violence**\
-`Mexico's president has ordered the armed forces to tackle security on the streets for another four years, extending a policy he had previously criticized as the government struggles to curb runaway violence.`\
-https://nytimes.com/reuters/2020/05/11/world/americas/11reuters-mexico-crime-military.html?searchResultPosition=9
-
-**Telethon Raises $115M for New Yorkers Impacted by COVID-19**\
-`Tina Fey shed tears after announcing that more than $115 million was raised toward supporting New Yorkers impacted by COVID-19 during a virtual telethon. `\
-https://nytimes.com/aponline/2020/05/11/sports/ap-us-rise-up-new-york.html?searchResultPosition=10
+https://nytimes.com/2020/05/11/world/australia/steve-johnson-gay-murder.html?searchResultPosition=10
 
