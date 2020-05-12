@@ -1,20 +1,20 @@
-**‘Double Rainbow Guy’ Paul Vasquez Is Dead at 57**\
-`His unbridled joy at the sight of two concentric rainbows made him a YouTube star.`\
-https://nytimes.com/2020/05/12/style/double-rainbow-paul-vasquez-dead.html?searchResultPosition=6
+**UK Royals Pay Tribute to Nurses Across the World**\
+`Queen Elizabeth and other senior members of Britain's royal family joined together on Tuesday to thank nurses around the world for their efforts in the COVID-19 pandemic. `\
+https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-britain-royals-nurses.html?searchResultPosition=6
 
-**U.S. Motorists Drove 19% Fewer Miles in March Amid Coronavirus**\
-`Travel by U.S. motorists fell nearly 19% in March from the same month last year as the coronavirus pandemic prompted millions of Americans to work from home, the U.S. Transportation Department said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/12/us/12reuters-health-coronavirus-usa-motorists.html?searchResultPosition=7
+**Texas Artists Will Be in Rangers Lot for Drive-In Concerts**\
+`Texas Rangers season ticket holder Pat Green will be among the Texas artists who will play a series of drive-in concerts in the parking lot of the team's new stadium that has not yet hosted a baseball game because of the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/05/12/sports/ap-us-rangers-stadium-drive-in-concerts.html?searchResultPosition=7
 
-**Florida Mother Accused of Abusing Adopted 14-Year-Old Son**\
-`A Florida woman is accused of beating her 14-year-old adopted son with a dog chain, cutting his arms and head and chipping his teeth with pliers, sheriff's officials said.`\
-https://nytimes.com/aponline/2020/05/12/us/ap-us-mother-arrested-child-abuse.html?searchResultPosition=8
+**Golf: PGA Tour to Provide Charter Planes for Players, Says Streelman**\
+`The PGA Tour plans to use chartered planes to shuttle golfers and caddies between tournaments when the circuit returns from its coronavirus hiatus at the Charles Schwab Challenge in June, said Kevin Streelman.`\
+https://nytimes.com/reuters/2020/05/12/sports/golf/12reuters-health-coronavirus-golf-charters.html?searchResultPosition=8
 
-**Uber Considers Buying Grubhub, According to Newspaper Report**\
-`Uber is considering acquiring Grubhub in a deal that would give the companies control over a majority of the U.S. food delivery business, according to published reports.`\
-https://nytimes.com/aponline/2020/05/12/business/ap-uber-grubhub.html?searchResultPosition=9
+**Told He's Not the 'End-All,' Fauci Agrees but Says,' I'm a Scientist'**\
+`Public health official Anthony Fauci clashed with a senator on Tuesday about when to reopen U.S. schools, acknowledging he did not have the final word on pandemic-related decisions but warning against being "cavalier" about the danger to children.`\
+https://nytimes.com/reuters/2020/05/12/us/12reuters-health-coronavirus-usa-fauci.html?searchResultPosition=9
 
-**Bat Maker Says Loan Resulted in Return of Furloughed Workers**\
-`The manufacturer of Louisville Slugger bats says it put 171 furloughed employees back on the payroll after receiving a loan from a government program aimed at helping small businesses.`\
-https://nytimes.com/aponline/2020/05/12/business/ap-bbo-hillerich-bradsby-loan.html?searchResultPosition=10
+**Counterfeit Masks Reaching Frontline Health Workers in US**\
+`On a day when COVID-19 cases soared, healthcare supplies were scarce and an anguished doctor warned he was being sent to war without bullets, a cargo plane landed at the Los Angeles International Airport, supposedly loaded with the ammo doctors and nurses were begging for: some of the first N95 medical masks to reach the U.`\
+https://nytimes.com/aponline/2020/05/12/us/politics/ap-us-virus-outbreak-counterfeit-masks-1st-ld-writethru.html?searchResultPosition=10
 
