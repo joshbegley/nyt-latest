@@ -1,20 +1,20 @@
-**Texas High Courts Hit by Ransomware Attack, Refuse to Pay**\
-`Texas courts have been hit with a ransomware attack that took down the website and case management systems for the state's appellate and high courts.`\
-https://nytimes.com/aponline/2020/05/12/us/ap-us-texas-courts-ransomware.html?searchResultPosition=6
+**Richard Fenno, Who Studied Congress Close Up, Dies at 93**\
+`His books broke new ground in political science, emphasizing politicians’ interactions not in Washington but in their home districts.`\
+https://nytimes.com/2020/05/12/us/politics/richard-fenno-dead.html?searchResultPosition=6
 
-**Golf's Soft Opening Has Arizona Event, Made-For-TV Matches**\
-`The next few weeks might resemble a return to the silly season.`\
-https://nytimes.com/aponline/2020/05/12/sports/golf/ap-glf-on-the-fringe-golfs-return.html?searchResultPosition=7
+**Factbox: New U.S. House Coronavirus Bill Contains $3 Trillion Plus in Aid**\
+`The Democratic-led U.S. House of Representatives unveiled on Tuesday a sweeping new coronavirus bill with more than $3 trillion in assistance to states, families and epidemiologists seeking to track the extent of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/12/us/12reuters-health-coronavirus-usa-legislation-factbox.html?searchResultPosition=7
 
-**Novavax, Vodafone Rise; CommVault, BlackRock Fall**\
-`Stocks that moved heavily or traded substantially on Tuesday:`\
-https://nytimes.com/aponline/2020/05/12/business/ap-financial-markets-stocks.html?searchResultPosition=8
+**Tips to U.S. Securities and Exchange Commission Have Surged in Recent Weeks: Official**\
+`The U.S. Securities and Exchange Commission (SEC) has been handling a surge in tips, complaints and referrals that have come into the agency since mid-March, an agency official said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/12/us/12reuters-usa-sec-enforcement.html?searchResultPosition=8
 
-**Inside Georgia’s Citizen’s Arrest Law**\
-`From the days of the Civil War, Georgia has allowed its residents to arrest one another. But after the shooting death of Ahmaud Arbery, critics are calling for such laws to be repealed.`\
-https://nytimes.com/2020/05/12/us/ahmaud-arbery-citizen-arrest-law-georgia.html?searchResultPosition=9
+**In Israel, Modern Medicine Grapples With Ghosts of the Third Reich**\
+`A Palestinian surgeon, a Jewish patient, a Nazi medical text — and an unlikely bond.`\
+https://nytimes.com/2020/05/12/world/middleeast/nazi-medical-text-israel.html?searchResultPosition=9
 
-**Amid a Sea of Vouchers, Road Scholar Offers Cash**\
-`Many travelers seeking refunds are instead given only credit for a future trip. How one nonprofit is managing to give people their money back.`\
-https://nytimes.com/2020/05/12/travel/coronavirus-road-scholar-refunds.html?searchResultPosition=10
+**Modi Announces $260 Billion Coronavirus Rescue Package for India**\
+`He was scant on details. But the relief is more than economists predicted and comes as Indian cities are hemorrhaging jobs and workers.`\
+https://nytimes.com/2020/05/12/world/asia/virus-india-rescue-package.html?searchResultPosition=10
 
