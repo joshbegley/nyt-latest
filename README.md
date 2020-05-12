@@ -1,20 +1,20 @@
+**Tackling Banned Under Terms of Premier League Protocol for Training: BBC**\
+`Premier League players will be prohibited from tackling and pitches will have to be disinfected when clubs return to training as part of plans to prevent the further spread of COVID-19, the BBC reported on Tuesday.  `\
+https://nytimes.com/reuters/2020/05/12/sports/soccer/12reuters-health-coronavirus-soccer-england.html?searchResultPosition=6
+
+**Brazil Has Conducted 482,743 Coronavirus Tests: Health Official**\
+`Brazil has processed 482,743 tests for the novel coronavirus in official labs, a health ministry official said on Tuesday, up from around 181,000 tests on April 22, when the government previously reported testing numbers. `\
+https://nytimes.com/reuters/2020/05/12/world/americas/12reuters-health-coronavirus-brazil-tests.html?searchResultPosition=7
+
+**Democrats Move to Allow Voting Changes for Presidential Convention Amid Health Crisis**\
+`The Democratic Party's rules committee moved on Tuesday to allow  organizers to change the format of the party's U.S. presidential nominating convention, including considering whether voting can be conducted remotely, as it grapples with how to hold the event during the coronavirus pandemic.  `\
+https://nytimes.com/reuters/2020/05/12/us/politics/12reuters-usa-election-democrats.html?searchResultPosition=8
+
 **Aimee Stephens, Transgender Plaintiff in Supreme Court Case, Dies at 59**\
 `Ms. Stephens, who was fired from her job in 2013 after she announced to her colleagues in a letter that she would begin living as a woman, won her case in the U.S. Court of Appeals.`\
-https://nytimes.com/2020/05/12/obituaries/aimee-stephens-supreme-court-dead.html?searchResultPosition=6
+https://nytimes.com/2020/05/12/us/aimee-stephens-supreme-court-dead.html?searchResultPosition=9
 
 **Anthony Fauci, Supreme Court, ‘Hamilton’: Your Tuesday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/05/12/briefing/anthony-fauci-coronavirus-supreme-court-hamilton.html?searchResultPosition=7
-
-**Austria's Kurz Aims to Lift Border Controls to Switzerland by June**\
-`Austria aims to ease some border controls with Switzerland within days and to end all controls by June, Chancellor Sebastian Kurz told Swiss broadcaster SRF on Tuesday, as countries push ahead with loosening COVID-19 restrictions.`\
-https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-austria-swiss.html?searchResultPosition=8
-
-**Brazil's Bolsonaro Challenges Governors to Sue Over Gym Reopenings Amid COVID**\
-`Brazil's President Jair Bolsonaro said on Tuesday that governors protesting his decree to reopen gyms and hair salons can file lawsuits against it, escalating a dispute over local lockdowns instituted to slow the spread of the new coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/05/12/world/americas/12reuters-health-coronavirus-brazil.html?searchResultPosition=9
-
-**Lesotho PM Thabane Says He Will Resign on Wednesday: Report**\
-`Lesotho's Prime Minister Thomas Thabane will leave office on Wednesday, clearing the way for a solution to a political crisis that erupted late last year, he was quoted as saying in an interview with AFP.`\
-https://nytimes.com/reuters/2020/05/12/world/africa/12reuters-lesotho-politics.html?searchResultPosition=10
+https://nytimes.com/2020/05/12/briefing/anthony-fauci-coronavirus-supreme-court-hamilton.html?searchResultPosition=10
 
