@@ -1,20 +1,20 @@
-**Homophobia Threatens to Hamper South Korea's Virus Campaign**\
-`As South Korea grapples with a new spike in coronavirus infections thought to be linked to nightspots in Seoul, including several popular with gay men, it's also seeing rising homophobia that's making it difficult for sexual minorities to come forward for diagnostic tests.`\
-https://nytimes.com/aponline/2020/05/12/world/asia/ap-as-virus-outbreak-skorea-homophobia-.html?searchResultPosition=6
+**The Spy Who Handed America’s Nuclear Secrets to the Soviets**\
+`Nancy Thorndike Greenspan’s “Atomic Spy” offers new material on Klaus Fuchs, the notorious Manhattan Project physicist.`\
+https://nytimes.com/2020/05/12/books/review/atomic-spy-nancy-thorndike-greenspan-klaus-fuchs.html?searchResultPosition=6
 
-**India's Packed Trains Ready to Roll Again Despite Rising Coronavirus Cases**\
-`Tens of thousands of people have booked out seats on Indian  trains that are due to restart on Tuesday after a near seven-week lockdown, raising concerns of spreading the coronavirus in the absence of social distancing.`\
-https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-health-coronavirus-india.html?searchResultPosition=7
+**A French Expert Surveys the Entire Middle East**\
+`Gilles Kepel’s “Away From Chaos” is a useful overview of the many changes that have roiled the Muslim world.`\
+https://nytimes.com/2020/05/12/books/review/away-from-chaos-gilles-kepel.html?searchResultPosition=7
 
-**Groomed but Still Grounded: Hairdressers Reopen During Singapore Lockdown**\
-`Long queues formed outside hairdressers in Singapore on Tuesday as the government eased some restrictions of a nationwide lockdown, although any styles beyond a trim would have to wait.      `\
-https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-health-coronavirus-singapore-hairdressers.html?searchResultPosition=8
+**Tragedy in the Middle East**\
+`Noah Feldman’s “The Arab Winter” tries to find hope in a grim turn of events.`\
+https://nytimes.com/2020/05/12/books/review/the-arab-winter-noah-feldman.html?searchResultPosition=8
 
-**Denmark Increases Testing, Contact Tracing to Prevent Second Coronavirus Wave**\
-`Denmark will significantly increase testing for COVID-19 and put a contact tracing system in place to prevent a second wave of the coronavirus, Prime Minister Mette Frederiksen said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-denmark.html?searchResultPosition=9
+**‘These Are Not Numbers. These Are Souls.’ Georgia Pastors Say No to Reopening.**\
+`Churches in Albany, Ga., have been devastated by the coronavirus. As the state reopens, pastors are uniting to keep people home.`\
+https://nytimes.com/video/us/100000007113691/albany-georgia-churches-closed-coronavirus.html?searchResultPosition=9
 
-**Tokyo Olympics Closing 5 Souvenir Shops; Downsizing Another**\
-`Five official Olympic merchandise shops in Tokyo will close by early June with business hindered by the coronavirus pandemic and the games being postponed until next year, organizers said Tuesday.`\
-https://nytimes.com/aponline/2020/05/12/sports/olympics/ap-oly-tokyo-stores-closing.html?searchResultPosition=10
+**Why We’re Obsessed With Celebrities’ Bookcases**\
+`Now that the expert class is stuck at home, the bookcase has become the preferred background for applying a patina of authority to an amateurish video feed. Amanda Hess looks at why scrutinizing a celebrity’s bookcase has become a pandemic parlor game.`\
+https://nytimes.com/video/arts/100000007120740/celebrity-bookshelves-coronavirus.html?searchResultPosition=10
 
