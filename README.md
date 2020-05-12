@@ -1,20 +1,20 @@
-**Bulgaria to End State of Emergency, but Some Restrictions Remain**\
-`Bulgaria will end its state of emergency on Wednesday, though some restrictions will remain in place and the government will be able to declare an emergency once again if the COVID-19 outbreak escalates, parliament has decided.`\
-https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-bulgaria-emergency.html?searchResultPosition=6
+**Reopening the Country: When and How?**\
+`One reader says rushing the reopening is like driving a car downhill before a brake repair is complete. Another urges, “Get people back to work.”`\
+https://nytimes.com/2020/05/12/opinion/letters/coronavirus-reopening.html?searchResultPosition=6
 
-**US Choir Outbreak Called 'Superspreader Event' in Report**\
-`Disease trackers are calling a choir practice in Washington state a superspreader event that illustrates how easily the coronavirus can pass from person to person.`\
-https://nytimes.com/aponline/2020/05/12/health/ap-us-med-virus-outbreak-choir-superspreader.html?searchResultPosition=7
+**Designers Revolt Against the Shopping Cycle**\
+`Imagine buying a wool coat when it is actually cold out, instead of in the middle of summer. The coronavirus could make that a reality.`\
+https://nytimes.com/2020/05/12/style/coronavirus-shopping-cycle.html?searchResultPosition=7
 
-**NFL Awards 2 New Grants in Social Justice Initiative**\
-`The NFL has awarded two new grants and renewed seven others through its social justice platform Inspire Change.`\
-https://nytimes.com/aponline/2020/05/12/sports/football/ap-fbn-offseason-update-nfl-grants.html?searchResultPosition=8
+**UK Tests Use of Drone to Deliver Supplies to Hospitals**\
+`Britain is testing the use of a car-sized drone to deliver medical supplies more quickly to hospitals and help ease pressure on the country’s health system during the new coronavirus crisis.`\
+https://nytimes.com/aponline/2020/05/12/business/bc-britain-drone-deliveries.html?searchResultPosition=8
 
-**Simon & Schuster CEO Carolyn Reidy Dies at 71, Company Says**\
-`Simon & Schuster CEO Carolyn Reidy died of a heart attack Tuesday morning. She was 71. `\
-https://nytimes.com/aponline/2020/05/12/business/ap-us-obit-carolyn-reidy.html?searchResultPosition=9
+**Twitter to Let Some Employees to Work From Home Forever**\
+`Twitter Inc on Tuesday became the first major tech company to allow employees who can work remotely to do so permanently, as the coronavirus outbreak forces unprecedented changes in work culture across the world.`\
+https://nytimes.com/reuters/2020/05/12/technology/12reuters-health-coronavirus-twitter.html?searchResultPosition=9
 
-**Motorised British Wheelbarrow Aims to Set World Speed Record**\
-`The creator of the world's fastest shed has turned his hand to another niche mode of transport: a motorised wheelbarrow built on a zero budget during the coronavirus lockdown in Britain.`\
-https://nytimes.com/reuters/2020/05/12/us/12reuters-guinness-record-britain-wheelbarrow.html?searchResultPosition=10
+**Democrats Accuse Conservatives of a ‘Dark Money’ Bid to Influence Judges**\
+`A proposal to ban membership among judges in the Federalist Society has set off a partisan battle. The influential group has guided President Trump’s rightward overhaul of the judiciary.`\
+https://nytimes.com/2020/05/12/us/federalist-society-judges.html?searchResultPosition=10
 
