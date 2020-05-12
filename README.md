@@ -1,20 +1,20 @@
-**TV Special on 'Tiger Slam' to Air After Woods' Charity Match**\
-`Golf Channel was going to wait until a few hours after the Masters was over to show the latest project from its Golf Films unit called “Tiger Slam.” But it wasn't going to wait until November.`\
-https://nytimes.com/aponline/2020/05/12/sports/golf/ap-glf-golf-notes.html?searchResultPosition=6
+**By Spurning a Mask, Trump Elevates a Symbol**\
+`A simple accessory tells the story of a presidency and a pandemic.`\
+https://nytimes.com/2020/05/12/opinion/coronavirus-masks.html?searchResultPosition=6
 
-**It Is Not Illegal to Film Women’s Bodies in Public, Tennessee Judges Rule**\
-`David Eric Lambert, 40, lurked in stores and followed women around, pointing his phone at their breasts and buttocks, but because he was in public, he committed no crime, an appeals court concluded.`\
-https://nytimes.com/2020/05/12/us/privacy-laws-public-tennessee.html?searchResultPosition=7
+**In Netflix’s ‘Hollywood,’ One Movie Fixes Racism**\
+`Ryan Murphy’s revisionist series is laughably self-satisfied and willfully naïve about complex real-world problems. I also kind of enjoyed it.`\
+https://nytimes.com/2020/05/12/opinion/netflix-hollywood-ryan-murphy.html?searchResultPosition=7
 
-**Ailey, Balanchine and a Lesson in Mourning**\
-`A guide to the best dance online this week, with a class to get your heart pumping (“dress cute, and stay on mute”).`\
-https://nytimes.com/2020/05/12/arts/dance/what-to-stream-this-week-dance.html?searchResultPosition=8
+**Tiny Love Stories: ‘A Picture of Me Looking at You’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2020/05/12/style/tiny-modern-love-stories-coronavirus-me-looking-at-you.html?searchResultPosition=8
 
-**Coronavirus Hits World Superpowers as Some Look to Reopen**\
-`As health officials issued warnings Tuesday against reopening economies too quickly, the coronavirus struck inside some of the world’s superpowers, with a top aide to Russian President Vladimir Putin diagnosed just days after U.S. Vice President Mike Pence's press secretary also tested positive.`\
-https://nytimes.com/aponline/2020/05/12/us/ap-virus-outbreak-developments.html?searchResultPosition=9
+**McDonald's Plans to Reopen All UK, Ireland Drive-Throughs by June**\
+`McDonald's Corp said on Tuesday it plans to reopen all its drive-throughs in the United Kingdom and Ireland by early June, as both countries ease coronavirus-led restrictions on road travel after weeks-long lockdowns.`\
+https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-mcdonald-s.html?searchResultPosition=9
 
-**Impact of COVID-19 Pandemic on Sports Events Around the World**\
-`Major sports events around the world that are in the process of re-starting or have been rescheduled due to the COVID-19 pandemic:`\
-https://nytimes.com/reuters/2020/05/12/sports/skiing/12reuters-health-coronavirus-sport.html?searchResultPosition=10
+**Cuba Doubles Down on Testing as Coronavirus Cases Decline**\
+`Cuba began mass testing for the new coronavirus this week even as it appeared to have contained infections, and residents struggled to move around amid a partial shutdown in search of scarce basic goods.`\
+https://nytimes.com/reuters/2020/05/12/world/americas/12reuters-health-coronavirus-cuba-testing.html?searchResultPosition=10
 
