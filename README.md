@@ -1,20 +1,20 @@
-**The Spy Who Handed America’s Nuclear Secrets to the Soviets**\
-`Nancy Thorndike Greenspan’s “Atomic Spy” offers new material on Klaus Fuchs, the notorious Manhattan Project physicist.`\
-https://nytimes.com/2020/05/12/books/review/atomic-spy-nancy-thorndike-greenspan-klaus-fuchs.html?searchResultPosition=6
+**Factory Workers in Russia Resume Work After Putin Eases Coronavirus Lockdown**\
+`Factory and construction workers in Russia were set to return to work on Tuesday after President Vladimir Putin ordered a gradual easing of coronavirus lockdown measures despite a sharp increase in new cases of the novel virus. `\
+https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-russia.html?searchResultPosition=6
 
-**A French Expert Surveys the Entire Middle East**\
-`Gilles Kepel’s “Away From Chaos” is a useful overview of the many changes that have roiled the Muslim world.`\
-https://nytimes.com/2020/05/12/books/review/away-from-chaos-gilles-kepel.html?searchResultPosition=7
+**A Red Corner of a Blue State Fights to Reopen**\
+`In Farmington, N.M., the economy was already struggling. Now everyone knows someone who is out of work because of the coronavirus. Very few say they know anyone who got sick.`\
+https://nytimes.com/2020/05/12/us/farmington-nm-jobs-coronavirus-reopening.html?searchResultPosition=7
 
-**Tragedy in the Middle East**\
-`Noah Feldman’s “The Arab Winter” tries to find hope in a grim turn of events.`\
-https://nytimes.com/2020/05/12/books/review/the-arab-winter-noah-feldman.html?searchResultPosition=8
+**Lena Olin’s Real Obsession**\
+`The actor is sheltering at home in Bedford, N.Y., with her husband, the director Lasse Hallström, and a massive collection of throw pillows.`\
+https://nytimes.com/2020/05/12/realestate/lena-olins-real-obsession.html?searchResultPosition=8
 
-**‘These Are Not Numbers. These Are Souls.’ Georgia Pastors Say No to Reopening.**\
-`Churches in Albany, Ga., have been devastated by the coronavirus. As the state reopens, pastors are uniting to keep people home.`\
-https://nytimes.com/video/us/100000007113691/albany-georgia-churches-closed-coronavirus.html?searchResultPosition=9
+**A Rocket Attack. Two Narratives. This Is What Happened.**\
+`Nine Americans were injured last October in an attack by the Taliban in southern Afghanistan. The U.S. military said there were no casualties.`\
+https://nytimes.com/2020/05/12/magazine/helmand-afghanistan-rocket-marines.html?searchResultPosition=9
 
-**Why We’re Obsessed With Celebrities’ Bookcases**\
-`Now that the expert class is stuck at home, the bookcase has become the preferred background for applying a patina of authority to an amateurish video feed. Amanda Hess looks at why scrutinizing a celebrity’s bookcase has become a pandemic parlor game.`\
-https://nytimes.com/video/arts/100000007120740/celebrity-bookshelves-coronavirus.html?searchResultPosition=10
+**Tuesday’s Livestreaming Events: Neil Gaiman Reads ‘Coraline,’ and the Music of George Gershwin**\
+`Appointment viewing is back. Find out what online events to look for today, and when to tune in.`\
+https://nytimes.com/2020/05/12/arts/livestreaming-coronavirus.html?searchResultPosition=10
 
