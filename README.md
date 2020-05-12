@@ -1,20 +1,20 @@
+**NBA Players Polled About Return; Stars Want to Resume**\
+`The National Basketball Players Association is informally polling players to gauge where they stand on restarting the season, ESPN's Adrian Wojnarowski reported Tuesday.`\
+https://nytimes.com/reuters/2020/05/12/sports/basketball/12reuters-basketball-nba-player-polling.html?searchResultPosition=6
+
+**Russia Slams U.S. Assertion at U.N. That It Remains Party to Iran Nuclear Deal**\
+`Russia's U.N. ambassador slammed the United States on Tuesday as "ridiculous" for arguing it was still a member of the Iran nuclear deal two years after it quit, so Washington could trigger a return of all United Nations sanctions on Tehran.`\
+https://nytimes.com/reuters/2020/05/12/world/middleeast/12reuters-usa-iran-sanctions-russia.html?searchResultPosition=7
+
+**Pregnant Woman and Her Longtime Boyfriend Murdered in Home Invasion**\
+`An ex-convict with a gun was arrested as he left the house on Staten Island where the bodies were found.`\
+https://nytimes.com/2020/05/12/nyregion/staten-island-murder.html?searchResultPosition=8
+
 **Dr. Julie Butler, Vet Who Cared for Harlem and Its Pets, Dies at 62**\
 `She owned and operated the 145th Street Animal Hospital and lived by the principle that “if you have it to give, you give,” caring for animals and opening her home to friends in need.`\
-https://nytimes.com/2020/05/12/obituaries/dr-julie-butler-dead-coronavirus.html?searchResultPosition=6
+https://nytimes.com/2020/05/12/obituaries/dr-julie-butler-dead-coronavirus.html?searchResultPosition=9
 
 **German Economy Ministry Open to Supporting Thyssenkrupp: Paper**\
 `The German government's "protective umbrella" for businesses is open to struggling conglomerate Thyssenkrupp, which warned on Tuesday it faced a deep quarterly loss, the Rheinische Post newspaper quoted an Economy Ministry spokeswoman as saying.`\
-https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-thyssenkrupp-germany.html?searchResultPosition=7
-
-**Officials Probe Why Man Killed on Texas Runway Was There**\
-`Investigators are trying to determine how a man with apparently no security clearance ended up on a runway at a Texas airport where he was struck and killed by a landing commercial jet.`\
-https://nytimes.com/aponline/2020/05/12/business/ap-us-man-hit-on-runway.html?searchResultPosition=8
-
-**EU Will Push to Unlock Borders as Coronavirus Ravages Travel and Tourism**\
-`The European Union executive will recommend on Wednesday that border restrictions be gradually lifted and travel stalled by the coronavirus pandemic allowed to restart in order to revive tourism, a major industry across the 27-country bloc. `\
-https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-eu-travel.html?searchResultPosition=9
-
-**Will the Trump Administration’s New Sexual Assault Rules Hurt Survivors?**\
-`Betsy DeVos just rewrote the regulations for how schools and colleges respond to sexual misconduct.`\
-https://nytimes.com/2020/05/12/opinion/sexual-assault-college.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-thyssenkrupp-germany.html?searchResultPosition=10
 
