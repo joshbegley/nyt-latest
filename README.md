@@ -1,20 +1,20 @@
+**Special Elections in California and Wisconsin: What to Watch For**\
+`In California, the race to fill former Representative Katie Hill’s seat in the state’s 25th District is a microcosm of national politics right now.`\
+https://nytimes.com/2020/05/12/us/politics/special-election-in-california-wisconsin.html?searchResultPosition=6
+
+**Thyssenkrupp in Informal Talks About Warship Unit Consolidation**\
+`Thyssenkrupp is in informal talks about consolidation in the shipbuilding sector, its finance chief said on Tuesday, responding to speculation that the group might sell parts of its Marine Systems (TKMS) unit or merge it with rivals German Naval Yards and Luerssen.`\
+https://nytimes.com/reuters/2020/05/12/business/12reuters-thyssenkrupp-results-ship.html?searchResultPosition=7
+
+**Fauci to Warn U.S. Senate That Easing Virus Restrictions Will Risk Lives: New York Times**\
+`Leading U.S. infectious disease expert Anthony Fauci will warn Congress on Tuesday that moving too quickly to ease restrictions on business and social life will put lives at risk from the coronavirus pandemic and hamper the economic recovery, the New York Times reported.`\
+https://nytimes.com/reuters/2020/05/12/us/12reuters-health-coronavirus-usa.html?searchResultPosition=8
+
 **Swiss Attorney General Faces Possible Impeachment Over Handling of FIFA Corruption Probe**\
 `Swiss Attorney General Michael Lauber faces the start of  proceedings on Wednesday that could lead to his impeachment after criticism of his handling of an investigation into alleged corruption surrounding soccer's governing body FIFA.`\
-https://nytimes.com/reuters/2020/05/12/sports/soccer/12reuters-swiss-attorneygeneral-impeachment.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/05/12/sports/soccer/12reuters-swiss-attorneygeneral-impeachment.html?searchResultPosition=9
 
 **Italian Police Nab Mafiosi to Thwart Pandemic Exploitation**\
 `Italian police have arrested 91 suspected mobsters in a probe of money-laundering and extortion in a bid to thwart Sicily’s Cosa Nostra from exploiting economic woes triggered by the pandemic.`\
-https://nytimes.com/aponline/2020/05/12/business/bc-eu-italy-mafia-business.html?searchResultPosition=7
-
-**Trump Administration Moves to Halt Pension Fund Investment in Chinese Stocks**\
-`The Trump administration is pressing a board charged with overseeing billions in federal retirement dollars to halt plans to invest in Chinese companies that Washington suspects of abusing human rights or threatening U.S. security. `\
-https://nytimes.com/reuters/2020/05/12/business/12reuters-usa-china-investment.html?searchResultPosition=8
-
-**Sao Paulo Homeless Face Choice Between Cold and Virus Risk**\
-`Brazil’s biggest homeless population has begun succumbing to COVID-19, and activists warn the worst is yet to come as colder weather bears down and shelters risk becoming hotbeds for infection.`\
-https://nytimes.com/aponline/2020/05/12/world/americas/ap-lt-virus-outbreak-brazil-homeless.html?searchResultPosition=9
-
-**Thai Airways Must Submit Rehabilitation Plan by End-May: Official**\
-`Loss-making Thai Airways International Pcl must submit a rehabilitation plan by the end of the month if it wants the government to consider a rescue package, a senior official said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-thai-airways-rescue.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/12/business/bc-eu-italy-mafia-business.html?searchResultPosition=10
 
