@@ -1,20 +1,20 @@
-**US Government Sees Record Monthly Deficit of $737.9 Billion**\
-`The federal government piled up a record deficit in April, traditionally a month of big budget surpluses.`\
-https://nytimes.com/aponline/2020/05/12/business/ap-us-monthly-budget.html?searchResultPosition=6
+**What Do We Lose When Cannes Is Canceled?**\
+`With no Riviera red carpets to trip over, our film writers discuss what the festival means to movies, moviegoers and especially Hollywood at this pivotal moment.`\
+https://nytimes.com/2020/05/12/movies/cannes-critics.html?searchResultPosition=6
 
-**Boycott Trump’s Briefings**\
-`A reader is shocked by how the president treated two female reporters at a news conference on Monday. Also: New York, the way it was; homes of the famous, online.`\
-https://nytimes.com/2020/05/12/opinion/letters/coronavirus-trump.html?searchResultPosition=7
+**Elon Musk Becomes Champion of Defying Virus Stay-Home Orders**\
+`Tesla CEO Elon Musk has emerged as a champion of defying stay-home orders intended to stop the coronavirus from spreading, picking up support — as well as critics — on social media. `\
+https://nytimes.com/aponline/2020/05/12/business/bc-us-virus-outbreak-tesla.html?searchResultPosition=7
 
-**Facebook Reports Spike in Takedowns of Hate Speech, Terrorism**\
-`Facebook Inc on Tuesday reported a sharp increase in the number of posts it removed for promoting violence and hate speech across its apps, which it attributed to improvements made to its technology for automatically identifying text and images.`\
-https://nytimes.com/reuters/2020/05/12/technology/12reuters-facebook-enforcement.html?searchResultPosition=8
+**Manhattan Faces a Reckoning if Working From Home Becomes the Norm**\
+`Companies are re-evaluating the need for all workers to come to offices. Their decisions will affect an entire ecosystem, from transit to restaurants to shops.`\
+https://nytimes.com/2020/05/12/nyregion/nyc-commercial-real-estate-coronavirus.html?searchResultPosition=8
 
-**Kobe Bryant's Sports Academy Retires 'Mamba' Nickname**\
-`The Southern California sports academy previously co-owned by the late Kobe Bryant has retired his “Mamba” nickname and rebranded itself nearly four months after the basketball icon's death in a helicopter crash. `\
-https://nytimes.com/aponline/2020/05/12/sports/ap-us-kobe-bryant-crash.html?searchResultPosition=9
+**A Choice Board for Teaching and Learning With The New York Times**\
+`A menu of 10 activities — including telling a story, analyzing a photo and watching a short film — for students to try at home or in school.`\
+https://nytimes.com/2020/05/12/learning/a-choice-board-for-teaching-and-learning-with-the-new-york-times.html?searchResultPosition=9
 
-**U.S. FTC Indicates It Is Looking at Zoom Privacy Woes**\
-`Federal Trade Commission Chairman Joseph Simons indicated on Monday that the agency was looking at privacy complaints regarding Zoom Video Communications Inc.`\
-https://nytimes.com/reuters/2020/05/12/technology/12reuters-zoom-ftc.html?searchResultPosition=10
+**Chile to Face Worst of Coronavirus Outbreak in Coming Weeks: Pinera**\
+`Chile is set to face the worst of the novel coronavirus outbreak in the coming weeks, President Sebastián Piñera said on Tuesday, as a sharp spike in cases and the southern hemisphere winter push its healthcare system to the limit.`\
+https://nytimes.com/reuters/2020/05/12/world/americas/12reuters-health-coronavirus-chile.html?searchResultPosition=10
 
