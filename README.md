@@ -1,20 +1,20 @@
+**Patagonia, Quick to Close, Could Be Last to Reopen**\
+`It was one of the first retailers to temporarily close as the coronavirus spread. But now, it has lost half of its sales in North America and is looking at a transformed landscape.`\
+https://nytimes.com/2020/05/12/business/patagonia-reopening-coronavirus.html?searchResultPosition=6
+
+**Europe, Asia Risk Coronavirus Relapse if Lockdowns Eased Too Soon: IMF**\
+`Asia and Europe risk a coronavirus relapse if they reopen their economies too early and before wide-reaching measures are in place to quickly identify and contain new infections, IMF senior economists said in a blog published on Tuesday.`\
+https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-health-coronavirus-imf-risk.html?searchResultPosition=7
+
+**Several Surfers Are Found Dead in the Netherlands**\
+`At least five bodies were found or seen in the foamy waters off the beach resort of Scheveningen, a district of The Hague.`\
+https://nytimes.com/2020/05/12/world/europe/surfers-netherlands-dead.html?searchResultPosition=8
+
+**Democrats Set to Take Next Steps Toward Virtual Convention**\
+`Democrats are making new moves toward a virtual presidential nominating convention this August, with party officials preparing to grant convention organizers in Milwaukee the authority to design an event that won’t require delegates to attend in person amid the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/05/12/us/politics/ap-us-election-2020-democrats-convention.html?searchResultPosition=9
+
 **Indian LG Plant Lacked Environmental Clearance Before Leak**\
 `A plastics factory in India where a chemical gas leak killed 12 people and sickened hundreds more last week lacked federal environmental clearance but had been issued state permits to operate anyway, exposing a potentially dangerous enforcement gap in the country's laws.`\
-https://nytimes.com/aponline/2020/05/12/business/bc-as-india-gas-leak-permissions.html?searchResultPosition=6
-
-**Trump Again Urges Fed to Adopt Negative U.S. Interest Rates**\
-`President Donald Trump on Tuesday again pushed the Federal Reserve to adopt negative interest rates, even as several members of the U.S. central bank have said they do not see a need for rates - now near zero - to move into negative territory.`\
-https://nytimes.com/reuters/2020/05/12/business/12reuters-usa-fed-trump.html?searchResultPosition=7
-
-**Fed's Kashkari: 'We Might Be in This for a Long Time'**\
-`Minneapolis Federal Reserve President Neel Kashkari repeated Tuesday his view that the economy is not likely to bounce back quickly from the coronavirus crisis, and may not fully recover until a vaccine is discovered. `\
-https://nytimes.com/reuters/2020/05/12/us/12reuters-usa-fed-kashkari.html?searchResultPosition=8
-
-**Fed's Harker Says Opening Economy Too Soon Risks Second Wave of Virus**\
-`The U.S. economy's recovery from the coronavirus crisis will likely be uneven and could be reversed if businesses open too soon and lead to a second wave of infections, Philadelphia Federal Reserve Bank President Patrick Harker said Tuesday. `\
-https://nytimes.com/reuters/2020/05/12/us/12reuters-usa-fed-harker.html?searchResultPosition=9
-
-**Coronavirus Could Hit Banks Hard, EU Warns**\
-`Euro zone lenders could take a sizeable hit from the coronavirus outbreak as an economic slowdown puts strain on borrowers, European officials have told the bloc's governments in a recent report.`\
-https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-banks-europe.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/12/business/bc-as-india-gas-leak-permissions.html?searchResultPosition=10
 
