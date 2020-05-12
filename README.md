@@ -1,20 +1,20 @@
-**Stricken by Coronavirus, Some New Yorkers Find Solace in Empty City Streets**\
-`Harold Quintana sat nearly alone on a recent spring morning in New York City's Bryant Park, jotting down notes at a table overlooking the almost empty surroundings.`\
-https://nytimes.com/reuters/2020/05/12/us/12reuters-health-coronavirus-new-york-empty.html?searchResultPosition=6
+**Brady Relieved to Be Facing Peyton, Not Eli, in Golf Match**\
+`Tom Brady traditionally got the better of fellow quarterback Peyton Manning during their encounters on the gridiron, however the latter's family holds a 2-0 edge in head-to-head Super Bowl tilts.`\
+https://nytimes.com/reuters/2020/05/12/sports/12reuters-golf-pga-brady-manning.html?searchResultPosition=6
 
-**Restaurants in Parts of California Can Open for Sit-Down Dining**\
-`Restaurants in parts of California can host sit-down dining, and shopping malls throughout the state can open for curbside pickup as coronavirus restrictions ease, Governor Gavin Newsom said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/12/us/12reuters-health-coronavirus-california.html?searchResultPosition=7
+**Portugal to Take in 500 Unaccompanied Migrant Children From Greek Camps**\
+`Portugal is to take in 500 children from Greek refugee camps as soon as restrictions on movement imposed to contain the spread of the coronavirus outbreak are lifted, the country's Foreign Minister Augusto Santos Silva said on Tuesday. `\
+https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-health-coronavirus-portugal-migrants.html?searchResultPosition=7
 
-**Virginia Gov Rejects Call to Halt Parole for Violent Felons**\
-`Democratic Gov. Ralph Northam rejected a call Tuesday from several top GOP lawmakers to institute a moratorium on the release of certain inmates by the Virginia Parole Board, which has come under criticism for some recent decisions.`\
-https://nytimes.com/aponline/2020/05/12/us/ap-us-virus-outbreak-virginia-parole-controversy.html?searchResultPosition=8
+**Brazilian Digital Wallet PicPay Reaches 20 Million Customers**\
+`Brazilian digital wallet PicPay hit 20 million clients in early May, reaching a goal previously expected for December as social isolation measures to combat the coronavirus accelerates the search for digital financial services, an executive said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/12/technology/12reuters-banks-brazil-picpay.html?searchResultPosition=8
 
-**For Bookstore Owners, Reopening Holds Promise and Peril**\
-`Across the country, booksellers are wrestling with how to safely open their stores. Some are racing ahead. Others feel it’s too risky.`\
-https://nytimes.com/2020/05/12/books/bookstores-reopening-coronavirus.html?searchResultPosition=9
+**Mozambique Court Declares Void Two Loans in 'Hidden Debt' Scandal**\
+`Mozambique's constitutional court has declared void two loans totalling more than $1 billion at the heart of a "hidden debt" scandal that triggered a currency collapse and sovereign debt default, a court ruling showed.`\
+https://nytimes.com/reuters/2020/05/12/world/africa/12reuters-mozambique-debt.html?searchResultPosition=9
 
-**Highlights of Democrats' $3 Trillion-Plus Virus Relief Bill**\
-`Democrats controlling the House have unveiled a $3 trillion-plus coronavirus relief bill — the fifth coronavirus response legislation so far — and are planning to pass the measure on Friday.`\
-https://nytimes.com/aponline/2020/05/12/us/politics/bc-us-virus-outbreak-congress-highlights.html?searchResultPosition=10
+**Deutsche Bank Managers to Forego Some Pay in Cost Cutting Effort**\
+`Deutsche Bank's top managers will waive one month of fixed pay in an effort to cut costs, the bank's chief will tell shareholders next week.`\
+https://nytimes.com/reuters/2020/05/12/world/europe/12reuters-deutsche-bank-agm.html?searchResultPosition=10
 
