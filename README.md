@@ -1,20 +1,20 @@
-**Richard Fenno, Who Studied Congress Close Up, Dies at 93**\
-`His books broke new ground in political science, emphasizing politicians’ interactions not in Washington but in their home districts.`\
-https://nytimes.com/2020/05/12/us/politics/richard-fenno-dead.html?searchResultPosition=6
+**As Coronavirus Crisis Saps His Popularity, Brazil's Bolsonaro Courts Former Foes**\
+`Facing a criminal investigation that could oust him from office, Brazil's President Jair Bolsonaro is courting political power brokers he once decried as corrupt in a bid to survive a crisis worsened by his handling of the coronavirus epidemic.`\
+https://nytimes.com/reuters/2020/05/12/world/americas/12reuters-brazil-politics-bolsonaro-analysis.html?searchResultPosition=6
 
-**Factbox: New U.S. House Coronavirus Bill Contains $3 Trillion Plus in Aid**\
-`The Democratic-led U.S. House of Representatives unveiled on Tuesday a sweeping new coronavirus bill with more than $3 trillion in assistance to states, families and epidemiologists seeking to track the extent of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/12/us/12reuters-health-coronavirus-usa-legislation-factbox.html?searchResultPosition=7
+**Pompeo Urges Taliban, Afghan Government to Bring Hospital, Funeral Attacker to Justice**\
+`Secretary of State Mike Pompeo on Tuesday called on the government of Afghanistan and the Taliban to cooperate to bring to justice the perpetrators of attacks on a hospital and a funeral that killed dozens of people, including two newborn babies.`\
+https://nytimes.com/reuters/2020/05/12/world/asia/12reuters-usa-afghanistan-pompeo.html?searchResultPosition=7
 
-**Tips to U.S. Securities and Exchange Commission Have Surged in Recent Weeks: Official**\
-`The U.S. Securities and Exchange Commission (SEC) has been handling a surge in tips, complaints and referrals that have come into the agency since mid-March, an agency official said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/12/us/12reuters-usa-sec-enforcement.html?searchResultPosition=8
+**China's CCTV to Continue to Shun NBA Games: State Media**\
+`China Central Television (CCTV) will continue to not show National Basketball Association (NBA) games in the country, state media outlet Global Times has said, citing a statement from the state broadcaster.`\
+https://nytimes.com/reuters/2020/05/12/sports/basketball/12reuters-china-basketball-nba-cctv.html?searchResultPosition=8
 
-**In Israel, Modern Medicine Grapples With Ghosts of the Third Reich**\
-`A Palestinian surgeon, a Jewish patient, a Nazi medical text — and an unlikely bond.`\
-https://nytimes.com/2020/05/12/world/middleeast/nazi-medical-text-israel.html?searchResultPosition=9
+**Brazilian Card Processor StoneCo Lays Off 20% of Workforce, 1,300 Employees**\
+`Brazilian card processor StoneCo Ltd on Tuesday is cutting 20% of its workforce, or 1,300 employees, according to a statement signed by its CEO Thiago Piau, who added that the measure aims to keep the business strong.`\
+https://nytimes.com/reuters/2020/05/12/technology/12reuters-stoneco-layoff.html?searchResultPosition=9
 
-**Modi Announces $260 Billion Coronavirus Rescue Package for India**\
-`He was scant on details. But the relief is more than economists predicted and comes as Indian cities are hemorrhaging jobs and workers.`\
-https://nytimes.com/2020/05/12/world/asia/virus-india-rescue-package.html?searchResultPosition=10
+**Grocery Delivery Startup Instacart Weighs New Financing: The Information**\
+`U.S. online grocery delivery company Instacart is in discussions to raise several hundred million dollars from existing and new investors, The Information reported on Tuesday, citing two people with knowledge of the situation.`\
+https://nytimes.com/reuters/2020/05/12/business/12reuters-instacart-financing.html?searchResultPosition=10
 
