@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus
 `Russia on Wednesday reported 10,028 new confirmed cases of the novel coronavirus, pushing its nationwide tally to 242,271. `\
 https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-russia-cases.html?searchResultPosition=8
 
-**Amazon Plans to Extend France Warehouse Closures to May 18**\
-`Amazon plans to extend the closure of its French warehouses until May 18, the U.S. e-commerce giant said on Wednesday.`\
+**Amazon Expects to Extend France Warehouse Closures to May 18**\
+`Amazon plans to extend until May 18 the closure of its six French warehouses, which have been closed since April 16 after court rulings ordering the U.S. e-commerce giant to restrict deliveries during the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/05/13/business/13reuters-health-coronavirus-amazon-france.html?searchResultPosition=9
 
 **Dollar Eases From Three-Week Highs Ahead of Fed Speech**\
