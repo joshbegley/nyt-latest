@@ -22,13 +22,13 @@ https://nytimes.com/reuters/2020/05/13/business/13reuters-usa-china-investment.h
 `Currency service provider Travelex [TFPI.UL] said on Wednesday it would default on a 14.4 million euro ($15.6 million) coupon payment on some of its senior notes as it grapples with a hit to earnings amid the coronavirus crisis.`\
 https://nytimes.com/reuters/2020/05/13/business/13reuters-travelex-fin-notes.html?searchResultPosition=6
 
-**Flynn Case Boosts Trump's Bid to Undo Russia Probe Narrative**\
-`When Michael Flynn was forced from the White House, Vice President Mike Pence said he was disappointed the national security adviser had misled him about his talks with the Russian ambassador. President Donald Trump called the deception unacceptable. `\
-https://nytimes.com/aponline/2020/05/13/us/politics/ap-us-trump-russia-probe.html?searchResultPosition=7
-
 **India's Financial Center Strains From Virus Amid Rescue Plan**\
 `As Indians await details of a huge coronavirus relief package Prime Minister Narendra Modi has announced to jump-start the economy, the virus outbreak in the financial capital of Mumbai and elsewhere in Maharashtra state is starting to overwhelm hospitals and slums, complicating any economic recovery plan.`\
-https://nytimes.com/aponline/2020/05/13/business/bc-virus-outbreak-india-mumbai.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/05/13/business/bc-virus-outbreak-india-mumbai.html?searchResultPosition=7
+
+**Flynn Case Boosts Trump's Bid to Undo Russia Probe Narrative**\
+`When Michael Flynn was forced from the White House, Vice President Mike Pence said he was disappointed the national security adviser had misled him about his talks with the Russian ambassador. President Donald Trump called the deception unacceptable. `\
+https://nytimes.com/aponline/2020/05/13/us/politics/ap-us-trump-russia-probe.html?searchResultPosition=8
 
 **Euro Zone Industry Output Suffers Deepest Monthly Fall on Record**\
 `Euro zone industrial production suffered its steepest monthly fall on record in March as coronavirus containment measures severely hit activity across the single currency area, data showed on Wednesday.`\
