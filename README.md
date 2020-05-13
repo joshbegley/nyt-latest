@@ -1,40 +1,40 @@
+**Italy Warns EU States Not to Forge Limited Tourist Pacts**\
+`European Union states must not forge de-facto tourist pacts between themselves during the coronavirus crisis, Italian Prime Minister Giuseppe Conte said on Wednesday, warning such a move could destroy the single market.`\
+https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-eu-travel-italy.html?searchResultPosition=1
+
+**Golf: Players Travelling to U.S. Must Be Quarantined**\
+`PGA Tour players living outside the U.S. must undergo a quarantine period before playing tournaments, which are due to restart next month amid the coronavirus pandemic, the Tour said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/sports/golf/13reuters-health-coronavirus-golf.html?searchResultPosition=2
+
+**Coronavirus Wrecked Tesla’s Momentum and Elon Musk Is Furious**\
+`Mr. Musk opened his California factory this week in defiance of local orders. He has also criticized the response to the pandemic as “dumb” and “fascist.”`\
+https://nytimes.com/2020/05/13/business/Elon-Musk-tesla-factory-coronavirus.html?searchResultPosition=3
+
+**Too Many States Are Flying Blind Into Reopening. Not Indiana.**\
+`The federal government doesn’t seem willing to mobilize, so states will have to do the heavy lifting.`\
+https://nytimes.com/2020/05/13/opinion/indiana-reopening-coronavirus-testing.html?searchResultPosition=4
+
 **Officials Move to Block Concert Billed as First Since Virus Hit**\
 `Arkansas officials said the state’s health department would issue an order prohibiting the concert by Travis McCready to go forward.`\
-https://nytimes.com/2020/05/13/arts/music/travis-mccready-concert-arkansas-virus.html?searchResultPosition=1
+https://nytimes.com/2020/05/13/arts/music/travis-mccready-concert-arkansas-virus.html?searchResultPosition=5
 
 **North Dakota Governor Funds PAC Targeting Fellow Republican**\
 `North Dakota Gov. Burgum is helping bankroll a political action campaign that so far has set its sights on defeating one of the state's most powerful legislators, a member of his own party.`\
-https://nytimes.com/aponline/2020/05/13/us/ap-us-burgum-political-spending-.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/05/13/us/ap-us-burgum-political-spending-.html?searchResultPosition=6
 
 **Yellowstone to Half Reopen Amid Self-Quarantine Differences**\
 `Access to the southern half of Yellowstone National Park will resume Monday by way of Wyoming but park officials continue to talk with Montana officials about reopening the rest of the park after a seven-week closure due to the coronavirus, Superintendent Cam Sholly said Wednesday.`\
-https://nytimes.com/aponline/2020/05/13/us/ap-us-virus-outbreak-national-parks.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/05/13/us/ap-us-virus-outbreak-national-parks.html?searchResultPosition=7
 
 **FBI: Charges in Weapons Sting Follow Anti-Semitic Posts**\
 `The FBI brought weapons charges Wednesday following a New York City sting operation against two men, one of whom espoused racist and anti-Semitic views on social media and had been acquiring tactical military gear, authorities said. `\
-https://nytimes.com/aponline/2020/05/13/us/ap-us-weapons-arrests-.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/05/13/us/ap-us-weapons-arrests-.html?searchResultPosition=8
 
 **South Africa's Ramaphosa to Discuss Easing COVID-19 Restrictions Further by End-May**\
 `South African President Cyril Ramaphosa said on Wednesday that his government would start talks on moving most of the country to "alert level 3" COVID-19 restrictions by the end of May, from the current "alert level 4".`\
-https://nytimes.com/reuters/2020/05/13/world/africa/13reuters-health-coronavirus-safrica.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/05/13/world/africa/13reuters-health-coronavirus-safrica.html?searchResultPosition=9
 
 **After Tyson, Holyfield Teases Fans by Releasing Training Video**\
 `Former heavyweight champion Evander Holyfield has released a training video on Twitter, fuelling speculation that he could come out of retirement to face one-time rival Mike Tyson in the ring.`\
-https://nytimes.com/reuters/2020/05/13/sports/13reuters-boxing-usa-holyfield.html?searchResultPosition=6
-
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark U.S. crude oil for June delivery fell 49 cents, or 1.9%, to settle at $25.29 a barrel Wednesday. Brent crude oil for July delivery fell 79 cents, or 2.6% to $29.19 a barrel. `\
-https://nytimes.com/aponline/2020/05/13/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=7
-
-**Matt Damon Dishes About His Irish Lockdown in Radio Interview**\
-`In an interview with a Dublin radio station, the actor praised the people of Dalkey, the coastal town whose residents have adopted him as one of their own during the coronavirus epidemic.`\
-https://nytimes.com/2020/05/13/world/europe/matt-damon-ireland-coronavirus.html?searchResultPosition=8
-
-**California Prepares for Increased Wildfire as Coronavirus Challenges Budget**\
-`Drier weather has led California to experience 60% more wildfires so far in 2020 than the prior year, Governor Gavin Newsom said Wednesday.`\
-https://nytimes.com/reuters/2020/05/13/us/13reuters-health-coronavirus-california-wildfire.html?searchResultPosition=9
-
-**AP Source: Miami Marlins to Furlough Some Employees June 1**\
-`The Miami Marlins will temporarily furlough 90 to 100 baseball operations employees beginning June 1 because of the coronavirus pandemic, a person familiar with the decision said Wednesday.`\
-https://nytimes.com/aponline/2020/05/13/sports/baseball/ap-bbn-marlins-furloughs.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/13/sports/13reuters-boxing-usa-holyfield.html?searchResultPosition=10
 
