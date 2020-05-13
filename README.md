@@ -1,40 +1,40 @@
-**Solo for Flute, Airport Terminal and One Listener**\
-`A lucky group of concertgoers experienced live music for the first time since lockdown, in a series of ultra-intimate recitals.`\
-https://nytimes.com/2020/05/13/arts/music/stuttgart-airport-coronavirus-concert.html?searchResultPosition=1
+**WHO Chief 'Shocked and Appalled' by Afghan Clinic Attack**\
+`World Health Organization chief Tedros Adhanom Ghebreyesus said on Wednesday he was "shocked and appalled" by an attack on a maternity clinic run by the international humanitarian organisation Médecins Sans Frontières in Afghanistan.`\
+https://nytimes.com/reuters/2020/05/13/world/asia/13reuters-health-coronavirus-who-afghanistan.html?searchResultPosition=1
 
-**AP Interview: Pelosi: Americans 'Worth It' on $3T Virus Aid**\
-`House Speaker Nancy Pelosi defended the stunning $3 trillion price  of tag of Democrats' pandemic relief package Wednesday as what's needed to confront the “villainous virus” and economic collapse. `\
-https://nytimes.com/aponline/2020/05/13/business/ap-us-virus-outbreak-pelosi-ap-interview.html?searchResultPosition=2
+**Chile's Health Minister Announces General Quarantine for Santiago**\
+`Chile's health minister Jaime Manalich on Wednesday announced a general quarantine for Santiago to force down a surging rate of fresh coronavirus cases in the capital. `\
+https://nytimes.com/reuters/2020/05/13/world/americas/13reuters-health-coronavirus-chile.html?searchResultPosition=2
 
-**Wait … What’s Getting You Through?**\
-`Even a screen saver can help right now.`\
-https://nytimes.com/2020/05/13/style/get-happy.html?searchResultPosition=3
+**VIRUS DIARY: On a River, With Rod and Reel, He Finds Peace**\
+`The Catskills village that calls itself “Trout Town USA” is all but a ghost town this spring. `\
+https://nytimes.com/aponline/2020/05/13/us/ap-us-virus-outbreak-diary-the-river-hymn.html?searchResultPosition=3
 
-**Tour Plans Constant Testing, Limiting Access for Golf Return**\
-`Players, caddies and key personnel will be tested once a week at tournaments and have their temperatures taken every day as part of a PGA Tour plan to limit the risk of the new coronavirus when golf resumes next month in Texas.`\
-https://nytimes.com/aponline/2020/05/13/sports/golf/ap-glf-tour-testing-plan.html?searchResultPosition=4
+**ECB's De Guindos Says Euro Zone Economy Has Already Bottomed Out**\
+`The euro zone has already left the worst behind in terms of the economic impact from the current coronavirus pandemic although it will take the bloc two years to fully recover, European Central Bank  Vice President Luis de Guindos said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-ecb-policy-deguindos.html?searchResultPosition=4
 
-**12 Essential Lesser-Known Power-Pop Songs**\
-`You already listen to Cheap Trick, Big Star and the Raspberries. Now hear a dozen irresistibly upbeat tunes by smaller bands made between 1977 and 1983.`\
-https://nytimes.com/2020/05/13/arts/music/power-pop-songs.html?searchResultPosition=5
+**France to Force Web Giants to Delete Some Illicit Content Within the Hour**\
+`Social networks and other online content providers will have to remove paedophile and terrorism-related content from their platforms within the hour or face a fine as high as four percent of their global revenue under a new French law voted on Wednesday. `\
+https://nytimes.com/reuters/2020/05/13/technology/13reuters-france-tech-regulation.html?searchResultPosition=5
 
-**Motor Racing: Sainz, Ricciardo Set for F1 Moves as Alonso Return Mooted**\
-`Spaniard Carlos Sainz is on pole position to be Charles Leclerc's team mate at Ferrari next year, with Australian Daniel Ricciardo set to replace him at McLaren according to Formula One sources.`\
-https://nytimes.com/reuters/2020/05/13/sports/autoracing/13reuters-motor-f1-ferrari-sainz.html?searchResultPosition=6
+**MLB Outlines Player Safety Plans in 80-Page Memo**\
+`Major League Baseball will send to players an outline of plans for player safety in the midst of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/13/sports/baseball/13reuters-baseball-mlb-coronavirus-player-safety.html?searchResultPosition=6
 
-**Brazil's Bolsonaro Says He May Release Tape in Police Probe**\
-`Brazil's President Jair Bolsonaro on Wednesday said he is considering releasing a video that sources say shows him explaining that he needs a friendly police chief in Rio de Janeiro to shield his family from investigations. `\
-https://nytimes.com/reuters/2020/05/13/world/americas/13reuters-brazil-politics.html?searchResultPosition=7
+**LA Faces Stay-At-Home Order Through July**\
+`Los Angeles County is expected to extend its stay-at-home order through at least July due to the coronavirus pandemic, the Los Angeles Times reported on Tuesday.`\
+https://nytimes.com/reuters/2020/05/13/sports/baseball/13reuters-sports-la-sports-teams.html?searchResultPosition=7
 
-**Hezbollah Leader Nasrallah: Israel Attacking Everything Linked to Missile-Making in Syria**\
-`Hezbollah leader Sayyed Hassan Nasrallah said on Wednesday that Israel has been attacking "everything linked to missile-manufacturing" in Syria, in rare comments on Israeli attacks in the war-torn country.`\
-https://nytimes.com/reuters/2020/05/13/world/middleeast/13reuters-syria-security-hezbollah.html?searchResultPosition=8
+**PGA Safety Measures, Player Protection Plan Approved**\
+`A three-stage screening process and isolation within tournament cities are part of the approved safety plan outlined by the PGA Tour.`\
+https://nytimes.com/reuters/2020/05/13/sports/golf/13reuters-golf-pga-pga-return-guidelines.html?searchResultPosition=8
 
-**Maternity Ward Massacre Shakes Afghanistan and Its Peace Process**\
-`After struggling to get pregnant for years, Zainab, 27, gave  birth to a baby boy on Tuesday morning at a small hospital in the southwestern corner of Kabul. She was overjoyed and named the boy Omid, meaning 'hope' in Dari.`\
-https://nytimes.com/reuters/2020/05/13/world/asia/13reuters-afghanistan-attacks-hospital-insight.html?searchResultPosition=9
+**Cases of Rare COVID-Linked Syndrome Impacting Children in 15 States: New York Governor**\
+`At least 15 states are investigating cases of a rare inflammatory syndrome impacting children that is believed to be linked to the novel coronavirus, New York Governor Andrew Cuomo said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/us/13reuters-health-coronavirus-usa-new-york.html?searchResultPosition=9
 
-**Trump's Surprising Target in War on Media: Voice of America**\
-`President Donald Trump' has had many targets in his war against the media, but perhaps none is more surprising than the Voice of America, the venerable U.S.-funded institution created during World War II to broadcast independent news and promote American values to the world.`\
-https://nytimes.com/aponline/2020/05/13/us/politics/ap-us-voice-of-america.html?searchResultPosition=10
+**Brazil - 4.7% GDP This Year Would Be Biggest Fall Since 1900: Economy Ministry**\
+`A 4.7% contraction in Brazil's economy this year would be the biggest annual fall since records began in 1900, a senior Economy Ministry official said on Wednesday, referring to the government's new gross domestic product forecast for the year.`\
+https://nytimes.com/reuters/2020/05/13/business/13reuters-brazil-gdp-fall.html?searchResultPosition=10
 
