@@ -10,8 +10,8 @@ https://nytimes.com/2020/05/13/learning/whats-the-craziest-thing-you-did-as-a-ki
 `An Amsterdam-based group has filed a lawsuit against the European Union for funding an infrastructure project in Eritrea built by conscripts.`\
 https://nytimes.com/2020/05/13/world/europe/eritrea-eu-lawsuit-forced-labor.html?searchResultPosition=3
 
-**Lesotho Records First Case of COVID-19: Health Ministry**\
-`Lesotho recorded its first case of COVID-19 on Thursday, the health ministry said.`\
+**Remote Lesotho Becomes Last Country in Region to Record COVID-19 Case**\
+`Lesotho recorded its first case of COVID-19 on Wednesday, the health ministry said, becoming the last country in southern and East Africa to be afflicted by the virus. `\
 https://nytimes.com/reuters/2020/05/13/world/13reuters-health-coronavirus-lesotho.html?searchResultPosition=4
 
 **Merkel Wants to Improve Ties With Russia Despite Hacking**\
