@@ -1,40 +1,40 @@
+**Uber to Require Drivers, Riders to Wear Masks Around the World**\
+`Uber Technologies, Inc. on Wednesday said it will require drivers, delivery workers and riders globally to wear a mask as countries around the world begin easing restrictions aimed at curbing the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/05/13/business/13reuters-health-coronavirus-uber.html?searchResultPosition=1
+
+**BoE's Bailey Signals More Bond Buys Are on the Way: ITV**\
+`Bank of England Governor Andrew Bailey signalled in an interview with ITV that the central bank is likely to increase its purchases of British government debt, the broadcaster said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-britain-boe.html?searchResultPosition=2
+
+**Collapse in Consumption Dragging Down Global Economic Outlook: IMF**\
+`A collapse in consumption and other data point to a downward revision of the International Monetary Fund's already pessimistic outlook for the global economy given the global coronavirus pandemic, a top IMF official said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/world/americas/13reuters-health-coronavirus-imf.html?searchResultPosition=3
+
+**Across Europe, Reopening Borders in Time for Summer**\
+`Countries across Europe, eyeing the summer holidays, are taking steps to begin reopening borders that had been closed to prevent the spread of coronavirus.`\
+https://nytimes.com/2020/05/13/world/europe/coronavirus-europe-vacation.html?searchResultPosition=4
+
+**Paul Manafort, Trump’s Ex-Campaign Manager, Released to Home Confinement**\
+`Paul Manafort, who had been serving a seven-and-a-half-year sentence in Pennsylvania for fraud, is among the prisoners released over the spreading coronavirus.`\
+https://nytimes.com/2020/05/13/us/politics/paul-manafort-released-coronavirus.html?searchResultPosition=5
+
+**Investigating Tara Reade’s Accusation Against Joe Biden**\
+`Readers react to an Op-Ed writer’s reliance on philosophy to defend her decision to vote for Joe Biden even though she believes his accuser.`\
+https://nytimes.com/2020/05/13/opinion/letters/joe-biden-tara-reade.html?searchResultPosition=6
+
+**We Miss You, Cannes: 23 Filmmakers Relive Indelible Moments**\
+`Alejandro González Iñárritu, Clint Eastwood and other auteurs share memories from the film festival, like the rapturous boos and the police chief in love with movies.`\
+https://nytimes.com/2020/05/13/movies/cannes-filmmaker-memories.html?searchResultPosition=7
+
+**Kremlin Spox Has Virus-Induced Double-Sided Pneumonia**\
+`Kremlin spokesman Dmitry Peskov said Wednesday that he has been diagnosed with double pneumonia caused by the coronavirus and that he hadn't met in person with Russian President Vladimir Putin for a month.`\
+https://nytimes.com/aponline/2020/05/13/world/europe/ap-virus-outbreak-russia-peskov.html?searchResultPosition=8
+
+**How Faxes and Email Are Slowing the U.S. COVID-19 Response**\
+`You’d hardly know the U.S. invented the internet by the way its public health agencies are collecting vital pandemic data. `\
+https://nytimes.com/aponline/2020/05/13/business/ap-us-virus-outbreak-dysfunctional-data-abridged.html?searchResultPosition=9
+
 **Low-Tech Way to Help Some Covid Patients: Flip Them Over**\
 `Turning ventilated patients onto their stomachs, called proning, helps them by opening their lungs. Now doctors are testing to see if it can keep others off ventilators altogether.`\
-https://nytimes.com/2020/05/13/health/coronavirus-proning-lungs.html?searchResultPosition=1
-
-**Union Presses United to Disinfect Kitchen After Virus Cases**\
-`A union representing catering workers wants to shut down a United Airlines facility in New Jersey, saying that more than 40 workers have contracted the new coronavirus and four have died.`\
-https://nytimes.com/aponline/2020/05/13/business/ap-nj-virus-outbreak-airline-kitchen.html?searchResultPosition=2
-
-**Five Artists to Follow on Instagram Now**\
-`Cultural hosts Lu Zang and Herb Tam, ‘Corona Daze’ poetry, printable exhibitions by Tiger Strikes Asteroid, Google street views.`\
-https://nytimes.com/2020/05/13/arts/design/artists-follow-instagram-coronavirus-quarantine.html?searchResultPosition=3
-
-**Virus Restrictions Fuel Anti-Government 'Boogaloo' Movement**\
-`They carry high-powered rifles and wear tactical gear, but their Hawaiian shirts and leis are what stand out in the crowds that have formed at state capital buildings to protest COVID-19 lockdown orders. The signature look for the “boogaloo” anti-government movement is designed to get attention.`\
-https://nytimes.com/aponline/2020/05/13/us/ap-us-virus-outbreak-boogaloo.html?searchResultPosition=4
-
-**Niger Says 75 Boko Haram Extremists Killed This Week**\
-`Niger’s defense ministry says 75 fighters with the Boko Haram extremist group have been killed in two operations this week. `\
-https://nytimes.com/aponline/2020/05/13/world/africa/ap-af-niger-boko-haram.html?searchResultPosition=5
-
-**State Department Told to Revisit Sexual Listing on Passports**\
-`Under a ruling from a federal appeals court, the U.S. State Department is once again being ordered to consider whether to grant an intersex person a passport if they do not specify a gender.`\
-https://nytimes.com/aponline/2020/05/13/us/ap-us-gender-passports.html?searchResultPosition=6
-
-**AP Source: NFL Extends Virtual Offseason Work Through May**\
-`The NFL has extended its virtual offseason workouts through the end of May, a person familiar with the move tells The Associated Press.`\
-https://nytimes.com/aponline/2020/05/13/sports/football/ap-fbn-virtual-offseason.html?searchResultPosition=7
-
-**Ukraine Passes a Critical Anticorruption Bill**\
-`The Parliament approved a measure to stop insiders from siphoning aid money, but other forms of fraud persist.`\
-https://nytimes.com/2020/05/13/world/europe/ukraine-zelensky-corruption-kolomoisky.html?searchResultPosition=8
-
-**Myanmar's Army Investigating Soldiers Over Video of Abuses**\
-`Myanmar's army said on Wednesday it was investigating soldiers filmed beating and threatening to kill suspected insurgents in the western state of Rakhine, where dozens of people have been killed during an upsurge of fighting in recent weeks.`\
-https://nytimes.com/reuters/2020/05/13/world/asia/13reuters-myanmar-rakhine.html?searchResultPosition=9
-
-**Spokesman for Mexican Foreign Minister Has Coronavirus**\
-`The chief spokesman for Mexican Foreign Minister Marcelo Ebrard has tested positive for coronavirus and an official in the president's office has died of the disease, bringing the pandemic closer to the inner circle of government.`\
-https://nytimes.com/reuters/2020/05/13/world/americas/13reuters-health-coronavirus-mexico-officials.html?searchResultPosition=10
+https://nytimes.com/2020/05/13/health/coronavirus-proning-lungs.html?searchResultPosition=10
 
