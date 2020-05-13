@@ -1,40 +1,40 @@
+**Lessons From Porn Industry Could Help Hollywood Adapt to Coronavirus**\
+`As Hollywood tries to figure out how to resume production of movies and TV shows in the coronavirus era, one sector may be better prepared than others to deal with the challenges.`\
+https://nytimes.com/reuters/2020/05/13/arts/13reuters-health-coronavirus-hiv-pornography.html?searchResultPosition=1
+
+**China Warns France Not to Sell Weapons to Taiwan**\
+`China warned France on Wednesday not to sell arms to neighbouring self-ruled Taiwan which is planning to buy weapons as part of an upgrade to a French-made warship fleet bought 30 years ago.`\
+https://nytimes.com/reuters/2020/05/13/world/asia/13reuters-china-france-taiwan.html?searchResultPosition=2
+
+**Edmunds: Best Used Cars for Under $15,000**\
+`Vehicle sales hit a record low in April as most Americans stayed home and countless dealerships closed due to the coronavirus crisis. But as a number of businesses begin to open, those who are in need of a vehicle may find that this may be a good time to shop. `\
+https://nytimes.com/aponline/2020/05/13/business/ap-us-behind-the-wheel-used-cars-under-15k.html?searchResultPosition=3
+
+**Two New Cars, Designed From the Inside Out**\
+`Byton and Canoo offer radically distinct approaches to the way cars work for their owners. Canoo even does away with the idea of ownership.`\
+https://nytimes.com/2020/05/13/business/byton-canoo-ev.html?searchResultPosition=4
+
+**2 Art Gallery Shows to Explore From Home**\
+`Galleries and museums are getting creative about presenting work online during the coronavirus crisis. Here are two shows worth viewing virtually.`\
+https://nytimes.com/2020/05/13/arts/design/virtual-art-shows-coronavirus.html?searchResultPosition=5
+
+**The Conference Call Court**\
+`Yesterday, the Supreme Court considered two sets of cases with potentially historic implications for presidential power — over the phone.`\
+https://nytimes.com/2020/05/13/podcasts/the-daily/supreme-court-trump-taxes-affairs.html?searchResultPosition=6
+
+**The Blessing of Distraction**\
+`The comforting logic of sudoku puzzles offered respite from one woman’s tragedy.`\
+https://nytimes.com/2020/05/13/crosswords/essay-solver-crosswords-sudoku-pownall.html?searchResultPosition=7
+
+**South Africa Amends Arms Export Document After Inspection Row**\
+`South Africa has made a subtle change to arms export rules that could unlock more than a billion dollars of weapons sales to countries including Saudi Arabia and the United Arab Emirates.`\
+https://nytimes.com/reuters/2020/05/13/world/middleeast/13reuters-safrica-defence.html?searchResultPosition=8
+
+**UK Supreme Court Overturns Jailbreak Convictions of Northern Ireland's Adams**\
+`The British Supreme Court overturned two 1975 convictions of Irish nationalist leader Gerry Adams for trying to escape from a prison in Northern Ireland, ruling on Wednesday that his initial detention had not been lawful. `\
+https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-britain-nireland-adams.html?searchResultPosition=9
+
 **Fore! English Golf Courses Reopen in Modest Lockdown Easing**\
 `The sound of a crisply struck golf ball could be heard in England for the first time in nearly two months as courses reopened Wednesday as part of some modest easing of coronavirus lockdown restrictions. `\
-https://nytimes.com/aponline/2020/05/13/business/bc-eu-virus-outbreak-britain.html?searchResultPosition=1
-
-**Malaysian PM Delays Confidence Vote, Says Virus Battle Takes Priority**\
-`Malaysian Prime Minister Muhyiddin Yassin will not face a confidence vote on May 18 as earlier scheduled, the speaker of parliament said on Wednesday after the government cited the battle against the coronavirus as a priority.`\
-https://nytimes.com/reuters/2020/05/13/world/asia/13reuters-malaysia-politics.html?searchResultPosition=2
-
-**Taiwan's Exclusion From WHO Caused Coronavirus Deaths, U.S. Panel Says**\
-`Lives have been lost in the coronavirus pandemic because of the World Health Organization's (WHO) exclusion of Taiwan and refusal to allow it to share best practices and information, a top U.S. government commission on China said.`\
-https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-taiwan-usa.html?searchResultPosition=3
-
-**Emirates Plans Scheduled Flights From May 21 to Nine Cities**\
-`Emirates Airline from May 21 plans to operate scheduled flight services from Dubai to London Heathrow, Frankfurt, Paris, Milan, Madrid, Chicago, Toronto, Sydney and Melbourne, it said in a statement on Wednesday.`\
-https://nytimes.com/reuters/2020/05/13/business/13reuters-coronavirus-health-emirates-airlines.html?searchResultPosition=4
-
-**Ocasio-Cortez Among Top Dems Promoting Biden-Sanders Unity**\
-`Joe Biden and the last rival he bested to become the presumptive Democratic presidential nominee, Bernie Sanders, on Wednesday announced the members of joint task forces their campaigns will use to promote party unity by hammering out consensus on six top policy issues. `\
-https://nytimes.com/aponline/2020/05/13/us/politics/ap-us-election-2020-biden-sanders.html?searchResultPosition=5
-
-**Lockdown Gaming Boom Drives Tencent First Quarter Revenue Jump**\
-`High demand for video games during the coronavirus pandemic lifted first quarter revenue at Chinese gaming and social media giant Tencent Holdings by 26%, beating forecasts.`\
-https://nytimes.com/reuters/2020/05/13/technology/13reuters-tencent-results.html?searchResultPosition=6
-
-**EU Pushes to Unlock Borders as Coronavirus Ravages Travel**\
-`The European Union's borders must reopen fast as coronavirus transmissions ease, with air passengers wearing masks, the bloc's executive was to say on Wednesday in efforts to salvage the ravaged tourism sector for the lucrative summer season. `\
-https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-eu-travel.html?searchResultPosition=7
-
-**German Government to Relax Border Controls From Saturday: Media Reports**\
-`The German government will from Saturday relax border controls introduced to slow the spread of the coronavirus, media including broadcaster n-tv and Focus magazine reported on Wednesday.`\
-https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-germany-borders.html?searchResultPosition=8
-
-**UK's Sunak Says It Is Too Soon to Talks About Post-COVID Spending Cuts**\
-`British finance minister Rishi Sunak said it was too soon to look at how to fund the longer-term financing cost of measures to mitigate the impact of COVID-19, following a newspaper report that officials were recommending tax rises or spending cuts.`\
-https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-britain-borrowing.html?searchResultPosition=9
-
-**Baseball: Korean Team Dinos Cheered On by Cardboard Cut-Outs of Fans**\
-`South Korean baseball fans may not be allowed to watch their favourite teams live at stadiums due to the COVID-19 pandemic but NC Dinos' stands were not empty thanks to life-sized cardboard cut-outs of portraits sent in by the fans.`\
-https://nytimes.com/reuters/2020/05/13/sports/baseball/13reuters-health-coronavirus-southkorea-baseball-fan.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/13/business/bc-eu-virus-outbreak-britain.html?searchResultPosition=10
 
