@@ -1,40 +1,40 @@
-**Court: Brazil President Tested Negative 3 Times for Virus**\
-`Brazilian President Jair Bolsonaro tested negative three times for the coronavirus in March after he attended a widely publicized meeting with U.S. President Donald Trump in Florida, according to test results made public Wednesday.`\
-https://nytimes.com/aponline/2020/05/13/world/americas/ap-lt-virus-outbreak-brazil-bolsonaro.html?searchResultPosition=1
+**Federal Retirement Fund Halts Planned China Investment Under Pressure**\
+`The change in plans for the $600 billion Thrift Savings Plan for federal workers comes as the Trump administration ramps up criticism of China.`\
+https://nytimes.com/2020/05/13/business/economy/china-tsp-federal-retirement-fund.html?searchResultPosition=1
 
-**Joel Kupperman, Scarred by Success as a ‘Quiz Kid,’ Dies at 83**\
-`As a philosophy professor in adulthood, he would not speak of the World War II-era radio show (later on TV) that had made him famous and left him embittered.`\
-https://nytimes.com/2020/05/13/arts/television/joel-kupperman-dead.html?searchResultPosition=2
+**Reprogrammed Skin Cells Inserted in Brain Help Parkinson's Patient Regain Function: Study**\
+`Skin cells reprogrammed to produce the neurotransmitter dopamine and inserted deep into the brain of a 69-year-old man with Parkinson's disease have allowed him to tie his shoes again and resume swimming and biking, researchers reported in The New England Journal of Medicine on Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/us/13reuters-health-parkinsons.html?searchResultPosition=2
 
-**Florida Governor Willing to Host Teams for Restart of Sports**\
-`Florida is willing to be a restart site for professional sports leagues, just like Arizona, when play resumes following shutdowns caused by the new coronavirus.`\
-https://nytimes.com/aponline/2020/05/13/sports/ap-virus-outbreak-florida-sports.html?searchResultPosition=3
+**Wells Fargo Keeps Work-From-Home Policies at Least Through June: Memo**\
+`Wells Fargo & Co is advising employees to work from home through at least June 30, it said in a memo on Wednesday, noting that the bank is unlikely to return to business as usual the next day.`\
+https://nytimes.com/reuters/2020/05/13/us/13reuters-health-coronavirus-wells-fargo.html?searchResultPosition=3
 
-**Buried in N.Y. Budget: Legal Shield for Nursing Homes Rife With Virus**\
-`In New York, 5,300 nursing home residents have died of Covid-19. The nursing home lobby pressed for a provision that makes it hard for their families to sue.`\
-https://nytimes.com/2020/05/13/nyregion/nursing-homes-coronavirus-new-york.html?searchResultPosition=4
+**Pandemic Has Dolphins' Tagovailoa-Wilson Tandem on Hold**\
+`Miami Dolphins newcomer Tua Tagovailoa is starting to connect with his receivers.`\
+https://nytimes.com/aponline/2020/05/13/sports/football/ap-fbn-dolphins-wilson-2nd-ld-writethru.html?searchResultPosition=4
 
-**Nine U.S. States Sue EPA for Easing Environmental Enforcement Amid Pandemic**\
-`Nine states on Wednesday filed a lawsuit against the U.S. Environmental Protection Agency for relaxing a range of companies' compliance and monitoring requirements with federal clean air and water laws in response to the coronavirus pandemic, arguing the policy is too broad and not transparent.`\
-https://nytimes.com/reuters/2020/05/13/us/13reuters-health-coronavirus-epa.html?searchResultPosition=5
+**Study Ties 'Obamacare' to Fewer Cancer Deaths in Some States**\
+`Cancer deaths have dropped more in states that expanded Medicaid coverage under the Affordable Care Act than in states that did not, new research reveals.`\
+https://nytimes.com/aponline/2020/05/13/health/bc-us-med-cancer-deaths-health-insurance.html?searchResultPosition=5
 
-**Sanofi to Accelerate European COVID-19 Vaccine Access After CEO Prioritizes U.S. Preorders**\
-`French drugmaker Sanofi SA said on Wednesday that it is working with European regulators to speed up access to a potential coronavirus vaccine in Europe after its chief executive suggested Americans would likely get the vaccine first.`\
-https://nytimes.com/reuters/2020/05/13/business/13reuters-health-coronavirus-sanofi.html?searchResultPosition=6
+**Republican Wins House Seat in California Special Election**\
+`Mike Garcia, who won the endorsement of President Trump, flipped California’s 25th Congressional District after Representative Katie Hill, a Democrat, resigned last year.`\
+https://nytimes.com/2020/05/13/us/politics/christy-smith-mike-garcia.html?searchResultPosition=6
 
-**John Macurdy, Bass Who Sang 1,001 Times at Met, Dies at 91**\
-`John Macurdy, a bass who sang 1,001 performances at the Metropolitan Opera over four decades and created characters in notable world premieres, has died at 91, his wife said Wednesday.`\
-https://nytimes.com/aponline/2020/05/13/us/ap-us-obit-macurdy.html?searchResultPosition=7
+**Modern Love Podcast: Alone.**\
+`We wanted to know how those living alone during the coronavirus pandemic were faring in isolation. More than 2,000 people around the world responded.`\
+https://nytimes.com/2020/05/13/style/modern-love-podcast-coronavirus-living-alone.html?searchResultPosition=7
 
-**Native American Tribe Says Sovereignty Allows Checkpoints**\
-`The head of a Native American tribe said Wednesday it won't comply with South Dakota Gov. Kristi Noem's demand to remove coronavirus checkpoints it set up on federal and state highways that run through its reservation.`\
-https://nytimes.com/aponline/2020/05/13/us/ap-us-virus-outbreak-south-dakota-tribes.html?searchResultPosition=8
+**Police, Protesters Clash in Montenegro's North Over Bishop's Detention**\
+`Montenegrin police clashed on Wednesday with dozens of hardline believers of the Serbian Orthodox Church in the northern city of Niksic who were protesting the detention of a bishop and priests charged with violating coronavirus-related restrictions.`\
+https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-montenegro-protests.html?searchResultPosition=8
 
-**U.S. March, April Job Losses Revised Higher**\
-`The U.S. economy lost a record 20.537 million jobs in April and not 20.5 million as reported last Friday, according to revised data published by the Labor Department this week. `\
-https://nytimes.com/reuters/2020/05/13/business/13reuters-usa-economy-jobs.html?searchResultPosition=9
+**Peru's Vizcarra Says Coronavirus Outbreak at Its Peak, Expected to Begin Slow Decline**\
+`Peru's rate of coronavirus cases is peaking and will begin a slow decline, President Martin Vizcarra said on Wednesday, as the country moves into a "final stage" of lockdown more than two months after the first case was detected in the South American nation. `\
+https://nytimes.com/reuters/2020/05/13/world/americas/13reuters-health-coronavirus-peru.html?searchResultPosition=9
 
-**Mexico: 2 More Mass Alcohol Poisonings, 35 Die of Methanol**\
-`Authorities said at least 35 people died after drinking methanol in two states in central Mexico, the latest in a series of mass bad-alcohol poisonings since coronavirus lockdowns began and many towns banned legitimate alcohol sales. `\
-https://nytimes.com/aponline/2020/05/13/world/americas/ap-lt-mexico-alcohol-poisoning.html?searchResultPosition=10
+**AGs in 14 States to Trump: Let's Hold China Accountable**\
+`Republican attorneys general in 14 states asked President Donald Trump on Wednesday to form a state-federal partnership to hold China accountable for damages caused by the spread of the new coronavirus.`\
+https://nytimes.com/aponline/2020/05/13/us/ap-us-virus-outbreak-attorneys-general.html?searchResultPosition=10
 
