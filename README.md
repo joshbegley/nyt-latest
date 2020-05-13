@@ -1,40 +1,40 @@
+**Bulgaria Declares Epidemic Emergency Until June 14**\
+`Bulgaria's government on Wednesday declared an epidemic emergency until June 14, allowing the health minister to extend restrictions aimed at containing the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-bulgaria.html?searchResultPosition=1
+
+**Over 100 Mexicans Die of Tainted Alcohol as Beer Supply Dries Up: Reports**\
+`More than 100 people in Mexico have died from drinking adulterated alcohol over the past two weeks, according to a tally by Mexican daily newspaper Reforma on Wednesday, as measures to halt the coronavirus' spread have crimped beer production.`\
+https://nytimes.com/reuters/2020/05/13/world/americas/13reuters-mexico-alcohol.html?searchResultPosition=2
+
+**Congolese Citizens Bring Civil Action in Belgium Against Passport Maker**\
+`Congolese citizens and international campaign groups have filed a civil action in Belgium against passport manufacturer Semlex, which is being investigated by prosecutors for possible money laundering and corruption, the petitioners said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/world/africa/13reuters-congo-passports-belgium.html?searchResultPosition=3
+
+**NFL Extends Virtual Offseason Through May 29**\
+`The NFL extended its virtual offseason through May 29, the league announced Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/sports/football/13reuters-football-nfl-virtual-offseason.html?searchResultPosition=4
+
+**Your Thursday Briefing**\
+`Hong Kong virus cases, Indonesia’s wildlife markets, quarantine: Here’s what you need to know.`\
+https://nytimes.com/2020/05/13/briefing/hong-kong-coronavirus-indonesia-quarantine.html?searchResultPosition=5
+
+**W.H.O. Official Warns That Coronavirus ‘May Never Go Away’**\
+`The World Health Organization’s head of health emergencies said the coronavirus causing Covid-19 could become a long-term threat to be managed, not one that can be eradicated.`\
+https://nytimes.com/video/world/100000007137382/world-health-organization-coronavirus.html?searchResultPosition=6
+
+**Bank of America Cuts Brazil GDP Forecast to - 7.7% From - 3.5%**\
+`Brazil's economy will shrink by 7.7% this year, according to new forecasts from economists at Bank of America, a sharp revision from their previous call of a 3.5% contraction and one of the gloomiest outlooks yet for Latin America's largest economy. `\
+https://nytimes.com/reuters/2020/05/13/business/13reuters-brazil-economy-forecast.html?searchResultPosition=7
+
+**US Money Market Assets Increased in Latest Week: iMoneyNet**\
+`U.S. money market fund assets increased by $26.28 billion to $4.716 trillion in the week ended May 12, the Money Fund Report said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/business/13reuters-funds-imoneynet.html?searchResultPosition=8
+
+**BoE's Bailey: Clear That Markets Expect Us to Buy More Bonds**\
+`Financial markets are working on the assumption that the Bank of England will buy more bonds to help lessen the economic cost of the coronavirus crisis, Governor Andrew Bailey told ITV's Peston show on Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-britain-boe-bonds.html?searchResultPosition=9
+
 **Netanyahu Reaches Threshold for Forming Government**\
 `Israeli Prime Minister Benjamin Netanyahu announced Wednesday he has cobbled together enough lawmakers to form a government, a step that will send him back to the premiership after three inconclusive elections.`\
-https://nytimes.com/aponline/2020/05/13/world/middleeast/ap-ml-israel-politics.html?searchResultPosition=1
-
-**Homeowner: Nothing Stolen Before Black Man Was Shot**\
-`The owner of a house under construction that played a role in the fatal shooting of a black man chased down by two white men in Georgia says nothing was stolen from the house.`\
-https://nytimes.com/aponline/2020/05/13/us/ap-us-georgia-chase-deadly-shooting.html?searchResultPosition=2
-
-**Coronavirus: The Risks of Reopening Too Soon**\
-`A reader, citing Dr. Anthony Fauci’s warning, says states are moving too quickly to reopen without taking the proper precautions. Also: Jared Kushner’s election remark; the World Trade Organization.`\
-https://nytimes.com/2020/05/13/opinion/letters/coronavirus-reopening.html?searchResultPosition=3
-
-**Indiana Legislator Accused of Racist Facebook Post, Again**\
-`A white Indiana state lawmaker who was accused of posting something racist on Facebook last year is defending himself again after he posted a meme that showed black children in diapers dancing with the caption, “We gon’ get free money!”`\
-https://nytimes.com/aponline/2020/05/13/us/politics/ap-us-indiana-lawmaker-meme-complaint.html?searchResultPosition=4
-
-**Hikers Fight Plan for Border Wall at Start of Historic Trail**\
-`Tess Mullaney remembers looking at endless rolling desert hills, covered in a thin layer of white snow just as the sun was rising the day she embarked on a 2½-month journey through the Arizona Trail, an 800-mile system that starts at the U.S.-Mexico border in Arizona and ends at the Utah one.`\
-https://nytimes.com/aponline/2020/05/13/us/ap-us-border-wall-arizona-trail-.html?searchResultPosition=5
-
-**Prominent Surgeon Gawande Steps Down as Health Venture CEO**\
-`A health care venture created by three corporate giants to attack some of the system’s biggest flaws has lost its high-profile CEO.`\
-https://nytimes.com/aponline/2020/05/13/business/ap-haven-ceo-departure.html?searchResultPosition=6
-
-**French Lawmakers Adopt Bill on Removing Hate Content Online**\
-`France’s parliament has approved a bill aimed at fighting hate online that obliges platforms and search engines to remove prohibited content within 24 hours starting July 1.`\
-https://nytimes.com/aponline/2020/05/13/business/bc-eu-france-online-hate.html?searchResultPosition=7
-
-**‘I Have Given Up’: Parenting in Quarantine**\
-`Readers tell us how they’re managing the Parent-Employee-Teacher trifecta during the pandemic.`\
-https://nytimes.com/2020/05/13/opinion/parenting-coronavirus-burnout.html?searchResultPosition=8
-
-**Now Is the Time to Ask Your Loved Ones About Their Lives**\
-`I’ve spent years collecting intimate interviews. Take it from me: A conversation about life’s big questions is the very definition of time well spent.`\
-https://nytimes.com/2020/05/13/opinion/quarantine-storycorps-interview.html?searchResultPosition=9
-
-**My Grandmother’s Last Days Were in Our Living Room**\
-`The small blessing of quarantine is that we were all together.`\
-https://nytimes.com/2020/05/13/opinion/coronavirus-hospice-home-death.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/13/world/middleeast/ap-ml-israel-politics.html?searchResultPosition=10
 
