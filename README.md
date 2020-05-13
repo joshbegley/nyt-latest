@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/05/13/business/13reuters-coronavirus-health-emi
 `Joe Biden and the last rival he bested to become the presumptive Democratic presidential nominee, Bernie Sanders, on Wednesday announced the members of joint task forces their campaigns will use to promote party unity by hammering out consensus on six top policy issues. `\
 https://nytimes.com/aponline/2020/05/13/us/politics/ap-us-election-2020-biden-sanders.html?searchResultPosition=5
 
-**Tencent First-Quarter Revenue Jumps 26% as Lockdowns Spur Game Spending**\
-`Chinese gaming and social media giant Tencent Holdings Ltd said on Wednesday net profit in its first quarter rose 6%, beating market estimates, boosted by high demand for its video games during the pandemic.`\
+**Lockdown Gaming Boom Drives Tencent First Quarter Revenue Jump**\
+`High demand for video games during the coronavirus pandemic lifted first quarter revenue at Chinese gaming and social media giant Tencent Holdings by 26%, beating forecasts.`\
 https://nytimes.com/reuters/2020/05/13/technology/13reuters-tencent-results.html?searchResultPosition=6
 
 **EU Pushes to Unlock Borders as Coronavirus Ravages Travel**\
