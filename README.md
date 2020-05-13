@@ -26,13 +26,13 @@ https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus
 `Magazine publisher Conde Nast, which owns Vogue, GQ and The New Yorker, is laying off a broad group of nearly 100 employees based in the United States as the coronavirus pandemic has sharply reduced ad revenue, according to an internal memo distributed on Wednesday seen by Reuters. `\
 https://nytimes.com/reuters/2020/05/13/us/13reuters-condenast-layoffs.html?searchResultPosition=7
 
-**Amazon Extends Temporary Raise in Pay Through May 30**\
-`Amazon.com Inc said on Wednesday it would extend the temporary increase in its hourly pay and double the overtime pay through May 30, bringing its total salary cost for hourly employees to nearly $800 million.`\
-https://nytimes.com/reuters/2020/05/13/business/13reuters-health-coronavirus-amazon.html?searchResultPosition=8
-
 **States, Tribe Seek to Suspend Coal Sales From US Lands**\
 `A coalition of U.S. states, environmentalists and an American Indian tribe are seeking to revive a moratorium on coal sales from federal lands that was imposed under former President Barack Obama then dropped by the Trump administration.`\
-https://nytimes.com/aponline/2020/05/13/business/ap-us-coal-climate-change.html?searchResultPosition=9
+https://nytimes.com/aponline/2020/05/13/business/ap-us-coal-climate-change.html?searchResultPosition=8
+
+**Amazon Extends Temporary Raise in Pay Through May 30**\
+`Amazon.com Inc said on Wednesday it would extend the temporary increase in its hourly pay and double the overtime pay through May 30, bringing its total salary cost for hourly employees to nearly $800 million.`\
+https://nytimes.com/reuters/2020/05/13/business/13reuters-health-coronavirus-amazon.html?searchResultPosition=9
 
 **U.S. House Sets Friday Vote on Lawmaking by Proxy During Pandemic**\
 `The U.S. House of Representatives on Friday will vote on a measure temporarily allowing members to vote from outside the Capitol so they can work while keeping social distance during the coronavirus pandemic, the chamber's Democratic leadership said.`\
