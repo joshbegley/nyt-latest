@@ -1,40 +1,40 @@
-**Factbox: New U.S. House Coronavirus Bill Contains $3 Trillion Plus in Aid**\
-`The Democratic-led U.S. House of Representatives unveiled on Tuesday a sweeping new coronavirus bill with more than $3 trillion in assistance to states, families and epidemiologists seeking to track the extent of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/13/us/13reuters-health-coronavirus-usa-legislation-factbox.html?searchResultPosition=1
+**Trump Pressures Federal Pension to Halt Planned Chinese Stock Purchases**\
+`The Trump administration is pressing an independent board charged with overseeing billions in federal retirement dollars to freeze plans to invest in Chinese companies that Washington suspects of abusing human rights or threatening U.S. security. `\
+https://nytimes.com/reuters/2020/05/13/business/13reuters-usa-china-investment.html?searchResultPosition=1
 
-**Will the Supreme Court Put the President Above the Law?**\
-`In a bid to keep his tax and financial records secret, the president’s lawyers tell the justices that he is beyond the reach of Congress and prosecutors.`\
-https://nytimes.com/2020/05/13/opinion/supreme-court-trump-tax-returns.html?searchResultPosition=2
+**Forex Firm Travelex to Default on Coupon Payment**\
+`Currency service provider Travelex [TFPI.UL] said on Wednesday it would default on a 14.4 million euro ($15.6 million) coupon payment on some of its senior notes as it grapples with a hit to earnings amid the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/05/13/business/13reuters-travelex-fin-notes.html?searchResultPosition=2
 
-**Indonesia Reports Biggest Daily Rise in Coronavirus Infections**\
-`Indonesia reported on Wednesday its biggest daily rise in coronavirus infections with 689 new cases, taking the total in the Southeast Asian country to 15,438, said health ministry official Achmad Yurianto.`\
-https://nytimes.com/reuters/2020/05/13/world/asia/13reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=3
+**Flynn Case Boosts Trump's Bid to Undo Russia Probe Narrative**\
+`When Michael Flynn was forced from the White House, Vice President Mike Pence said he was disappointed the national security adviser had misled him about his talks with the Russian ambassador. President Donald Trump called the deception unacceptable. `\
+https://nytimes.com/aponline/2020/05/13/us/politics/ap-us-trump-russia-probe.html?searchResultPosition=3
 
-**Missing the Acts You Love? Spare a Thought for These Superfans**\
-`Hard-core music, theater and movie aficionados from around the world told us how they’re coping in coronavirus lockdown.`\
-https://nytimes.com/2020/05/13/arts/superfans-virus-lockdown.html?searchResultPosition=4
+**India's Financial Center Strains From Virus Amid Rescue Plan**\
+`As Indians await details of a huge coronavirus relief package Prime Minister Narendra Modi has announced to jump-start the economy, the virus outbreak in the financial capital of Mumbai and elsewhere in Maharashtra state is starting to overwhelm hospitals and slums, complicating any economic recovery plan.`\
+https://nytimes.com/aponline/2020/05/13/business/bc-virus-outbreak-india-mumbai.html?searchResultPosition=4
 
-**When Manhattan Was Mannahatta: A Stroll Through the Centuries**\
-`From lush forest to metropolis, the evolution of Lower Manhattan. Our critic walks with Eric W. Sanderson of the Wildlife Conservation Society.`\
-https://nytimes.com/2020/05/13/arts/design/manhattan-virtual-tour-virus.html?searchResultPosition=5
+**Euro Zone Industry Output Suffers Deepest Monthly Fall on Record**\
+`Euro zone industrial production suffered its steepest monthly fall on record in March as coronavirus containment measures severely hit activity across the single currency area, data showed on Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/us/13reuters-eurozone-economy-industrialoutput.html?searchResultPosition=5
 
-**Three Months, Two Continents and Four Stints in Quarantine**\
-`A reporter got a close-up look at how different governments handled the developing pandemic. Some were more impressive than others.`\
-https://nytimes.com/2020/05/13/world/asia/coronavirus-quarantine.html?searchResultPosition=6
+**Poland to Keep Borders Closed for Foreigners Until June 12**\
+`Poland will extend its strict border controls until June 12 due to the coronavirus pandemic, its Interior Ministry said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-poland-borders.html?searchResultPosition=6
 
-**This NASA Mission May Cause an Artificial Meteor Shower**\
-`A study says the DART mission’s collision with an asteroid near Earth may liberate enough debris to reach Earth’s atmosphere.`\
-https://nytimes.com/2020/05/13/science/meteor-shower-nasa-dart.html?searchResultPosition=7
+**Global Trade Seen Cut by More Than a Quarter in Second Quarter: U.N. Agency**\
+`World trade in goods is set to slump at a rate not seen since the global financial crisis in 2009, with estimates becoming increasingly gloomy over the past weeks, the United Nations Conference on Trade and Development (UNCTAD) said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-un-trade.html?searchResultPosition=7
 
-**Helping the Environment, One Small Sensor at a Time**\
-`New York City nonprofits are using a cloud-based service from the start-up Temboo that helps monitor storm-water runoff and other environmental factors.`\
-https://nytimes.com/2020/05/13/climate/environment-sensor-technology.html?searchResultPosition=8
+**Where Bats Are Still on the Menu, if No Longer the Best Seller**\
+`Indonesia’s wildlife markets are “like a cafeteria for animal pathogens,” but they have resisted efforts to close even as China has shut its own markets over coronavirus fears.`\
+https://nytimes.com/2020/05/13/world/asia/coronavirus-bats-market-Indonesia.html?searchResultPosition=8
 
-**A Life on and Off the Navajo Nation**\
-`The reservation has more coronavirus cases per capita than any state in the country.`\
-https://nytimes.com/2020/05/13/opinion/navajo-nation-coronavirus.html?searchResultPosition=9
+**Pompeo Lauds Israel Over Coronavirus Cooperation, Raps China**\
+`U.S. Secretary of State Mike Pompeo praised Israel on Wednesday for sharing information during global efforts to combat the  coronavirus pandemic and took another swipe at China over what he said was its lack of transparency.`\
+https://nytimes.com/reuters/2020/05/13/world/middleeast/13reuters-israel-usa-pompeo.html?searchResultPosition=9
 
-**Willie Mays at 89: ‘My Thing Is Keep Talking and Keep Moving’**\
-`As the coronavirus pandemic keeps him homebound, the greatest living baseball player is missing visits to the ballpark, as well as opportunities to promote a new book on his life.`\
-https://nytimes.com/2020/05/13/sports/baseball/willie-mays-book.html?searchResultPosition=10
+**Locked Down Shoppers Turn to Vegetables, Shun Ready Meals**\
+`Shoppers cut spending on ready-made meals and bought more fruit and vegetables, turning to healthier eating during coronavirus lockdowns, preliminary results of a research project showed.`\
+https://nytimes.com/reuters/2020/05/13/world/americas/13reuters-health-coronavirus-food.html?searchResultPosition=10
 
