@@ -1,40 +1,40 @@
+**UK Rejects Calls to Publish Detailed Data of Care-Home Deaths From COVID-19**\
+`Campaigners for the welfare of elderly people and their relatives are calling on the UK government to be more transparent after authorities declined to disclose the number of COVID-19 deaths in individual care homes.`\
+https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-britain-carehomes-data.html?searchResultPosition=1
+
+**CEO of Amazon, Berkshire, JPMorgan Healthcare JV to Step Down**\
+`Harvard surgeon and author Atul Gawande will step down as chief executive officer to take on the role of chairman at Haven, the healthcare joint venture of Amazon.com Inc, Berkshire Hathaway Inc and JPMorgan Chase & Co.`\
+https://nytimes.com/reuters/2020/05/13/us/13reuters-amazon-com-berkshire-jp-morgan-healthcare.html?searchResultPosition=2
+
+**Common's #WeMatterToo Push Urges Jail Releases Amid Virus**\
+`Rapper and activist Common went into quarantine concerned about incarcerated people he has met during visits to jails, prisons and juvenile detention centers around the U.S. and who aren't able to maintain social distance or adopt rigorous hygiene routines to prevent the spread of COVID-19.`\
+https://nytimes.com/aponline/2020/05/13/us/ap-us-virus-outbreak-jail-campaign.html?searchResultPosition=3
+
+**‘There’s a Quiet All Over the World’**\
+`Cheryl Strayed talks with the poet Billy Collins about memorization, “picture language” and the power of collective silence.`\
+https://nytimes.com/2020/05/13/podcasts/sugar-calling-billy-collins-poetry-virus.html?searchResultPosition=4
+
+**Morocco Hopes to Boost Domestic Tourism to Save Key Sector**\
+`Morocco's government and tourism industry hope to encourage more Moroccans to explore the ancient souks of Marrakech and the beaches of Agadir this year, to make up for the collapse in foreign visitors due to the global pandemic.`\
+https://nytimes.com/reuters/2020/05/13/world/africa/13reuters-health-coronavirus-morocco-tourism.html?searchResultPosition=5
+
+**Deutsche Bank Criticised in Internal N.Y. Fed Audit: German Newspaper**\
+`Deutsche Bank's regulators in the United States have criticised the German lender in an internal audit for weaknesses in fighting money laundering and in risk management, according to a German newspaper on Wednesday.`\
+https://nytimes.com/reuters/2020/05/13/business/13reuters-deutsche-bank-fed.html?searchResultPosition=6
+
+**MLB Draft Picks Feel Fortunate to Avoid This Year's Process**\
+`Ethan Hearn has some good friends who are eligible for baseball's amateur draft this year. Hearn is just an interested spectator this time around, and he feels pretty fortunate about his situation.`\
+https://nytimes.com/aponline/2020/05/13/sports/baseball/ap-bbo-amateur-draft-changes.html?searchResultPosition=7
+
 **Germany Finds Arms, Explosives Cache at Special Forces Soldier's Home**\
 `German police on Wednesday seized arms and explosives in a raid at the home of a special forces soldier, the defence minister and army sources said, an embarrassment to a military trying to deflect accusations that it harbours right-wing extremists.`\
-https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-germany-army-arrests.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-germany-army-arrests.html?searchResultPosition=8
 
 **Pompeo to Israel: Be Circumspect on West Bank Annexation**\
 `U.S. Secretary of State Mike Pompeo on Wednesday urged Israeli leaders to consider "all the factors" involved in a proposed de facto annexation of the occupied West Bank so that it squares with Washington's plan for Israeli-Palestinian peace. `\
-https://nytimes.com/reuters/2020/05/13/world/middleeast/13reuters-israel-usa-pompeo-annexation.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/13/world/middleeast/13reuters-israel-usa-pompeo-annexation.html?searchResultPosition=9
 
 **More Mexican Beef Headed to U.S. Dinner Tables as American Supply Crunch Bites**\
 `More Mexican steaks and other beef cuts are headed north of the border after the coronavirus outbreak has hobbled U.S. meat processing plants, potentially offsetting fears of shortages affecting businesses from fast-food chains to grocery stores but angering American ranchers.`\
-https://nytimes.com/reuters/2020/05/13/world/asia/13reuters-mexico-usa-trade-beef.html?searchResultPosition=3
-
-**No Kissing, No Fighting as TV Soap 'Neighbours' Resumes Filming**\
-`Australian soap opera "Neighbours" is filming again, but don't expect any kisses, hugs or punch-ups in the new episodes as cast members adhere to strict social distancing rules imposed to curb the spread of the new coronavirus.`\
-https://nytimes.com/reuters/2020/05/13/arts/13reuters-health-coronavirus-television-neighbours.html?searchResultPosition=4
-
-**The Planes in Spain Parked Neatly on the Plain**\
-`Dozens of passenger jetliners belonging to European carriers  stand idled in neat lines in a giant aeroplane parking lot amid the flat farmlands of eastern Spain.`\
-https://nytimes.com/reuters/2020/05/13/world/europe/13reuters-health-coronavirus-spain-planes.html?searchResultPosition=5
-
-**Airbus Examining Restructuring Including Redundancies: Sources**\
-`Airbus is drawing up plans for restructuring involving "deep" job cuts, but has not taken a final decision, industry sources said.`\
-https://nytimes.com/reuters/2020/05/13/business/13reuters-airbus-restructuring.html?searchResultPosition=6
-
-**Royal Caribbean Offers $3.3 Billion in Bonds, Pledges 28 Ships as Collateral**\
-`Royal Caribbean Cruises on Wednesday launched a $3.3 billion bond offering, pledging 28 of its ships as collateral and forecast heavy losses for the first quarter as the COVID-19 pandemic brings the sector to a virtual standstill.        `\
-https://nytimes.com/reuters/2020/05/13/business/13reuters-royal-carib-crus-liquidity.html?searchResultPosition=7
-
-**Iowa to Reopen Restaurants, Salons, Barber Shops and Gyms**\
-`Restaurants, salons, barber shops and gyms in Iowa will be allowed to reopen Friday under new restrictions intended to slow the coronavirus, the governor announced.`\
-https://nytimes.com/aponline/2020/05/13/business/ap-us-virus-outbreak-iowa.html?searchResultPosition=8
-
-**IndyCar to Close Season at Rescheduled St. Petersburg Race**\
-`IndyCar plans to crown its champion on the streets of St. Petersburg, Florida, with the original opener being rescheduled for Oct. 25 as the finale. `\
-https://nytimes.com/aponline/2020/05/13/sports/ap-car-indycar-st-pete-finale-.html?searchResultPosition=9
-
-**Venezuela: Warden Charged in Deadly Prison Riot With 47 Dead**\
-`Authorities in Venezuela said Wednesday that they're filing criminal charges against a prison warden and five guards following a riot that left 47 inmates dead and dozens more injured. `\
-https://nytimes.com/aponline/2020/05/13/world/americas/ap-lt-venezuela-prison-riot.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/13/world/asia/13reuters-mexico-usa-trade-beef.html?searchResultPosition=10
 
