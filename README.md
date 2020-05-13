@@ -1,6 +1,6 @@
 **The Electoral College Is a Confusing Mess**\
 `Even the Supreme Court justices are perplexed.`\
-https://nytimes.com/2020/05/13/opinion/supreme-court-faithless-electors.html?searchResultPosition=1
+https://nytimes.com/2020/05/13/opinion/supreme-court-electoral-college.html?searchResultPosition=1
 
 **'Love & Hip Hop' Star, Texas Engineer Charged With Coronavirus Bailout Fraud: DOJ**\
 `The U.S. Department of Justice (DOJ) on Wednesday said it has charged two more individuals for defrauding the U.S. government coronavirus bailout program: a Texas engineer and a star from the reality television show "Love & Hip Hop Atlanta".`\
