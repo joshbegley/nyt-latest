@@ -6,8 +6,8 @@ https://nytimes.com/2020/05/13/arts/podcast-jill-lepore-last-archive.html?search
 `German Chancellor Angela Merkel said Wednesday there is “hard evidence” of Russian involvement in a cyberattack on the German parliament in 2015 that reportedly also involved the theft of documents from her own parliamentary office.`\
 https://nytimes.com/aponline/2020/05/13/business/ap-eu-germany-russia.html?searchResultPosition=2
 
-**Trump Ramps Up Expulsions of Young Migrants, Citing Virus**\
-`The young migrants and asylum seekers swim across the Rio Grande and clamber into the dense brush of South Texas. Many are teens who left Central America on their own; others were sent along by parents from refugee camps in Mexico. They are as young as 10. `\
+**Trump Ramps Up Expulsions of Migrant Youth, Citing Virus**\
+`The young migrants and asylum seekers swim across the Rio Grande and clamber into the dense brush of Texas. Many are teens who left Central America on their own; others were sent along by parents from refugee camps in Mexico. They are as young as 10. `\
 https://nytimes.com/aponline/2020/05/13/us/ap-us-virus-outbreak-migrant-children.html?searchResultPosition=3
 
 **Tunisia Relaxes Coronavirus Curfew Hours**\
