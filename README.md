@@ -1,40 +1,40 @@
+**EU Rules Asylum Seekers on Hungary Border Have Been 'Detained', Should Be Released**\
+`The European Union's top court ruled on Thursday that four asylum seekers stuck in a transit zone on the Hungarian-Serbian border had effectively been detained and that a local court should release them immediately.	`\
+https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-eu-migration-hungary-ruling.html?searchResultPosition=1
+
+**France Says It Will Take Reciprocal Steps if Spain Quarantines Its Visitors**\
+`France will impose reciprocal quarantine measures on travellers coming from Spain after Spanish authorities' decided to impose a 10-day quarantine on travellers from France, an official at the French presidential palace said on Thursday.`\
+https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-france-spain.html?searchResultPosition=2
+
+**As Lockdown Hurts, Desperate Venezuelans Turn to Cow Blood Soup**\
+`Since Venezuela went into its coronavirus lockdown, dozens of needy people have been lining up at a slaughterhouse in the western town of San Cristobal to pick up the only protein they can find for free: cattle blood. `\
+https://nytimes.com/reuters/2020/05/14/world/americas/14reuters-health-coronavirus-venezuela-food.html?searchResultPosition=3
+
+**McConnell Hits Democrats' 'Totally Unserious' Relief Bill**\
+`Senate Majority Leader Mitch McConnell on Thursday branded House Democrats' $3 trillion economic relief bill a “totally unserious effort” to address the coronavirus pandemic, underscoring the deep election-year gulch over what Congress' next response to the crisis should be. `\
+https://nytimes.com/aponline/2020/05/14/us/politics/ap-us-virus-outbreak-congress.html?searchResultPosition=4
+
 **U.S. Says It Condemns Attempts by China-Linked 'Cyber Actors' to Steal U.S. COVID Research**\
 `The United States condemned on Thursday attempts by "cyber actors and non-traditional collectors affiliated" with China to steal U.S. intellectual property and data related to coronavirus research, U.S. Secretary of State Mike Pompeo said in a statement.`\
-https://nytimes.com/reuters/2020/05/14/technology/14reuters-health-coronavirus-pompeo-china.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/05/14/technology/14reuters-health-coronavirus-pompeo-china.html?searchResultPosition=5
 
 **Canned Cocktails in Quarantine Make Mixing a One-Step Process**\
 `Already on an upswing in recent years, the sales of pre-mixed drinks are now booming.`\
-https://nytimes.com/2020/05/14/dining/drinks/canned-cocktails-coronavirus.html?searchResultPosition=2
+https://nytimes.com/2020/05/14/dining/drinks/canned-cocktails-coronavirus.html?searchResultPosition=6
 
 **City of London Curbs Cars to Aid Social Distancing**\
 `London's "Square Mile" financial district said it will close some streets to cars to create more space for pedestrians and cyclists so that workers can observe social distancing when the coronavirus lockdown is lifted.`\
-https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-britain-finance.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-britain-finance.html?searchResultPosition=7
 
 **Exclusive: Turkey Seeks Global Funding Help to Gird Against Lira Shock**\
 `Turkey's government has appealed to foreign allies in an urgent search for funding, three senior Turkish officials said, as it prepares defences against what analysts fear could be a second currency crisis in as many years.`\
-https://nytimes.com/reuters/2020/05/14/world/asia/14reuters-health-coronavirus-turkey-funding-exclusive.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/14/world/asia/14reuters-health-coronavirus-turkey-funding-exclusive.html?searchResultPosition=8
 
 **Canadian Farmers Rush to Grab Government Credit as Pandemic Hits Cash Flow**\
 `Canadian farmers and agriculture businesses have claimed most of the C$5 billion ($3.55 billion) in extra credit offered by Ottawa to boost their cash flow during the coronavirus pandemic, in less than two months.`\
-https://nytimes.com/reuters/2020/05/14/us/14reuters-health-coronavirus-canada-farmers.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/05/14/us/14reuters-health-coronavirus-canada-farmers.html?searchResultPosition=9
 
 **Bank of Canada Says Its Coronavirus Measures Appear to Be Working,' Robust' Recovery Possible**\
 `The Bank of Canada said on Thursday that the measures it has taken to help stabilize financial markets during the coronavirus pandemic appear to be working and predicted the economic recovery could be robust.`\
-https://nytimes.com/reuters/2020/05/14/us/14reuters-canada-cenbank.html?searchResultPosition=6
-
-**Luxury Handbags Jump in Price as Brands Make Up for Coronavirus Hit**\
-`Top luxury brands from Chanel to Louis Vuitton have increased prices of some of their most coveted products as they seek to make up for sales lost during weeks of coronavirus lockdowns.`\
-https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-luxury-prices.html?searchResultPosition=7
-
-**Canada's Trudeau: World Has Changed Even if Pandemic Ends, Vaccine Found**\
-`Canadians should accept the world will change even if a vaccine is found and the coronavirus pandemic ends, Canadian Prime Minister Justin Trudeau said on Thursday, urging people to adjust to a new normal that will require modified behaviour.`\
-https://nytimes.com/reuters/2020/05/14/us/14reuters-health-coronavirus-canada.html?searchResultPosition=8
-
-**‘Worrisome,’ de Blasio Says of Illness Affecting Children**\
-`New York City has confirmed 100 cases of a dangerous illness, which is known as pediatric multisystem inflammatory syndrome`\
-https://nytimes.com/video/us/politics/100000007139222/nyc-coronavirus-children.html?searchResultPosition=9
-
-**U.S. Electricity Use to Drop by Record Amount in 2020 Due Coronavirus**\
-`U.S. electricity consumption will collapse by a record 4.6% in 2020 as businesses shut due to government lockdowns to slow the spread of coronavirus, the U.S. Energy Information Administration (EIA) said in its short-term outlook this week.`\
-https://nytimes.com/reuters/2020/05/14/us/14reuters-usa-electricity-outlook.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/14/us/14reuters-canada-cenbank.html?searchResultPosition=10
 
