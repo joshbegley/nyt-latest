@@ -11,7 +11,7 @@ https://nytimes.com/2020/05/14/technology/fixing-gadgets-diy.html?searchResultPo
 https://nytimes.com/aponline/2020/05/14/sports/baseball/ap-bba-rays-snell-no-pay-cut.html?searchResultPosition=3
 
 **Burr Steps Aside as Senate Intelligence Chair Amid FBI Probe**\
-`Sen. Richard Burr, R-N.C., stepped aside as chairman of the Senate Intelligence Committee on Thursday after the FBI served a search warrant for his phone as part of an ongoing insider-trading investigation tied to the coronavirus pandemic.`\
+`Sen. Richard Burr, R-N.C., stepped aside as chairman of the Senate Intelligence Committee on Thursday after the FBI served a search warrant for his cellphone as part of an ongoing insider-trading investigation tied to the coronavirus pandemic.`\
 https://nytimes.com/aponline/2020/05/14/us/ap-us-burr-investigation.html?searchResultPosition=4
 
 **Quartz to Lay Off 80 Employees**\
