@@ -12,7 +12,7 @@ https://nytimes.com/2020/05/14/arts/television/whats-on-tv-thursday-how-to-get-a
 
 **Duterte’s Shutdown of TV Network Leaves Void Amid Coronavirus Crisis**\
 `Critics of the Philippine president say the move was yet more evidence of an increasingly domineering government using a crisis like the pandemic to crack down on dissent.`\
-https://nytimes.com/2020/05/14/international-home/dutertes-philippines-tv-network-ABS-CBN.html?searchResultPosition=4
+https://nytimes.com/2020/05/14/world/asia/dutertes-philippines-tv-network-ABS-CBN.html?searchResultPosition=4
 
 **BOJ's Kuroda Defends Elusive Inflation Goal Despite Pandemic Headwinds**\
 `Bank of Japan Governor Haruhiko Kuroda said there was no change to its target of getting inflation to 2%, despite headwinds from the coronavirus pandemic that is hurting the economy and stoking fears of a return to deflation.`\
