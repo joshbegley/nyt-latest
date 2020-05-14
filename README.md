@@ -22,8 +22,8 @@ https://nytimes.com/2020/05/14/movies/alice-review.html?searchResultPosition=5
 `Thursday: Fostering animals has risen in popularity since shelter-in-place orders went into effect. Here’s what you need to know about bringing home a pet from a shelter.`\
 https://nytimes.com/2020/05/14/us/california-pet-adoption-coronavirus.html?searchResultPosition=6
 
-**Canada March Factory Sales Down 9.2% as Shutdowns Start to Bite**\
-`Canadian factory sales fell by 9.2% in March from February as many businesses shut down as part of efforts to fight the coronavirus, Statistics Canada said on Thursday.`\
+**Canada March Factory Sales Slump by the Most in Over 11 Years**\
+`Canadian manufacturing sales in March slumped by 9.2%, the biggest drop in over 11 years, as the coronavirus pandemic forced the shutdown of many businesses, Statistics Canada said on Thursday.`\
 https://nytimes.com/reuters/2020/05/14/us/14reuters-canada-economy-manufacturing.html?searchResultPosition=7
 
 **We Will Not Give Up Our Independence to EU, UK Cabinet Agrees**\
