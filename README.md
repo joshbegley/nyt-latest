@@ -1,40 +1,40 @@
+**Trump Pushes to Reopen Schools and Dismisses Fauci’s Testimony**\
+`President Trump pressed governors to reopen schools and brushed off the testimony of Dr. Anthony S. Fauci, the nation’s leading infectious disease expert, about impacts of the coronavirus.`\
+https://nytimes.com/video/us/politics/100000007137600/trump-fauci-schools.html?searchResultPosition=1
+
+**Nicaragua Releases More Than 2,800 Inmates Amid Pandemic**\
+`Nicaragua released more than 2,800 prisoners Wednesday, one day after the death of an inmate who reportedly had suffered from respiratory problems and while the government maintained there was no local spread of the coronavirus in the country.`\
+https://nytimes.com/aponline/2020/05/13/world/americas/ap-lt-virus-outbreak-nicaragua-prisons.html?searchResultPosition=2
+
+**Pick Your Favorite Anxiety**\
+`Cuomo or Trump? China or Europe?`\
+https://nytimes.com/2020/05/13/opinion/coronavirus-trump-china.html?searchResultPosition=3
+
+**Trump Picks Ex-Drug Company Executive to Lead Accelerated Coronavirus Vaccine Effort**\
+`The chief operating officer will be an Army general who specializes in logistics.`\
+https://nytimes.com/2020/05/13/us/politics/coronavirus-trump-operation-warp-speed.html?searchResultPosition=4
+
+**America’s True Covid Toll Already Exceeds 100,000**\
+`The reported numbers leave out thousands of deaths clearly resulting from the pandemic.`\
+https://nytimes.com/2020/05/13/opinion/coronavirus-us-deaths.html?searchResultPosition=5
+
+**Burkina Prosecutor Launches Probe After 12 Detainees Die in Custody**\
+`A Burkina Faso prosecutor has launched an investigation after 12 people died during the same night in detention cells, hours after they were arrested for suspected terrorism-related offences in a town in the east of the country. `\
+https://nytimes.com/reuters/2020/05/13/world/africa/13reuters-burkina-security.html?searchResultPosition=6
+
+**Takeda Says Coronavirus Treatment Trial Using Recovered Patients' Blood Could Start in July**\
+`Takeda Pharmaceutical Co Ltd could start a clinical trial as early as July for a potential treatment of COVID-19 that is based on antibodies from recovered patients' blood, company executives said on Wednesday. `\
+https://nytimes.com/reuters/2020/05/13/world/asia/13reuters-health-coronavirus-takeda-pharma-treatments.html?searchResultPosition=7
+
 **The Electoral College Is a Confusing Mess**\
 `Even the Supreme Court justices are perplexed.`\
-https://nytimes.com/2020/05/13/opinion/supreme-court-electoral-college.html?searchResultPosition=1
+https://nytimes.com/2020/05/13/opinion/supreme-court-electoral-college.html?searchResultPosition=8
 
 **'Love & Hip Hop' Star, Texas Engineer Charged With Coronavirus Bailout Fraud: DOJ**\
 `The U.S. Department of Justice (DOJ) on Wednesday said it has charged two more individuals for defrauding the U.S. government coronavirus bailout program: a Texas engineer and a star from the reality television show "Love & Hip Hop Atlanta".`\
-https://nytimes.com/reuters/2020/05/13/us/13reuters-health-coronavirus-usa-fraud.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/13/us/13reuters-health-coronavirus-usa-fraud.html?searchResultPosition=9
 
 **Ex-Judge Asked to Evaluate Whether to Hold Flynn in Contempt**\
 `The judge presiding over Michael Flynn’s criminal case appointed a retired jurist on Wednesday to evaluate whether the former Trump administration national security adviser should be held in criminal contempt. `\
-https://nytimes.com/aponline/2020/05/13/us/politics/ap-us-trump-russia-probe-flynn.html?searchResultPosition=3
-
-**United Airlines Employee Files Class Action Lawsuit Over Unpaid Days Off Policy**\
-`A United Airlines Holdings Inc non-union employee filed a class action lawsuit on Wednesday alleging that a requirement that management and administration employees take 20 unpaid days off breaches the terms of federal payroll aid.`\
-https://nytimes.com/reuters/2020/05/13/business/13reuters-united-arlns-lawsuit.html?searchResultPosition=4
-
-**M.I.T. Closes ‘Food Computer’ Project After Scientists Raised Doubts**\
-`The OpenAg project, which promised crops that could be grown in thin air, faced scrutiny at the same time that Jeffrey Epstein’s financial ties to the M.I.T. Media Lab came to light.`\
-https://nytimes.com/2020/05/13/business/media/mit-closes-food-computer-project.html?searchResultPosition=5
-
-**Republicans Release Names of Obama-Era Officials in ‘Unmaskings’ That Revealed Flynn**\
-`The moves prompted accusations that President Trump’s allies were disclosing the information for his political benefit.`\
-https://nytimes.com/2020/05/13/us/politics/unmasking-flynn.html?searchResultPosition=6
-
-**Treasury's Mnuchin Says U.S. Will Slowly Reopen Economy**\
-`U.S. Treasury Secretary Steven Mnuchin said on Wednesday the  economy will be reopened slowly but he cautioned that waiting too long risked severe economic damage.`\
-https://nytimes.com/reuters/2020/05/13/us/13reuters-health-coronavirus-usa-mnuchin.html?searchResultPosition=7
-
-**Ontario Redeploys Educators Into Nursing Homes, as Just One Facility Records 56 Deaths**\
-`The Canadian province of Ontario is allowing its education staff, including teachers and custodians, to voluntarily redeploy into the province's long-term care homes, the provincial government said on Wednesday, as the coronavirus outbreak at just one Toronto-area home alone has killed dozens.`\
-https://nytimes.com/reuters/2020/05/13/world/americas/13reuters-health-coronavirus-canada-ontario.html?searchResultPosition=8
-
-**DOJ: Reality Star Spent Emergency Loan on Rolex, Rolls Royce**\
-`A reality TV star in Atlanta used an emergency loan from the federal government to lease a Rolls Royce, make child support payments and purchase $85,000 worth of jewelry, authorities said Wednesday.`\
-https://nytimes.com/aponline/2020/05/13/us/ap-us-reality-star-loan-fraud-charge.html?searchResultPosition=9
-
-**Reds' Bauer: MLB's Restart Plan Is 'Laughable'**\
-`Cincinnati Reds right-hander Trevor Bauer labeled Major League Baseball's restart proposal as "laughable" on Wednesday.`\
-https://nytimes.com/reuters/2020/05/13/sports/baseball/13reuters-baseball-mlb-cin-bauer.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/13/us/politics/ap-us-trump-russia-probe-flynn.html?searchResultPosition=10
 
