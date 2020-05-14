@@ -1,40 +1,40 @@
-**Here’s How Wuhan Plans to Test All 11 Million of Its People for Coronavirus**\
-`The Chinese city’s goal is unrivaled in scale. But a top expert has questioned the need for it, given the low number of infections.`\
-https://nytimes.com/2020/05/14/world/asia/coronavirus-testing-china-wuhan.html?searchResultPosition=1
+**Iran Dismisses U.S. Threat to Trigger Return of U.N. Sanctions**\
+`Iran's Foreign Minister on Thursday dismissed as "foolish claims" U.S. threats to trigger a return of all United Nations sanctions if the U.N. Security Council does not extend an arms embargo on Tehran, state media reported.`\
+https://nytimes.com/reuters/2020/05/14/world/middleeast/14reuters-iran-usa-sanctions.html?searchResultPosition=1
 
-**Malaysia to Recover $107.3 Million After Settling 1MDB Case Against Film Producer**\
-`Malaysia's anti-corruption commission said on Thursday it will recover overseas assets worth about $107.3 million in a settlement deal reached with Riza Aziz, a producer of Hollywood film "The Wolf of Wall Street" and the stepson of former Prime Minister Najib Razak. `\
-https://nytimes.com/reuters/2020/05/14/world/asia/14reuters-malaysia-politics-1mdb-recovery.html?searchResultPosition=2
+**Soccer: Austria's Bundesliga to Resume on June 2**\
+`Austria's Bundesliga, the country's professional soccer league, will resume on June 2 and hold matches every three days to clear the backlog built up during the coronavirus shutdown, the league's Chief Executive Christian Ebenbauer said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/14/sports/soccer/14reuters-health-coronavirus-soccer-austria.html?searchResultPosition=2
 
-**Global Coordination Needed to Fight COVID-19 and Climate Crises-BIS**\
-`More global coordination is necessary to fight the twin threat of the coronavirus crisis and climate change, a new report from central bank umbrella group, the Bank for International Settlements, said on Thursday.`\
-https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-bis.html?searchResultPosition=3
+**French Health Minister: Reassured After Chat With Head of Sanofi**\
+`French Health Minister Olivier Veran said on Thursday he was "reassured" by a conversation with the head of Sanofi, after critics in France targeted Sanofi for suggesting vaccine doses produced in the United States could go to U.S. patients first.`\
+https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-sanofi-france.html?searchResultPosition=3
 
-**Pandemic Crisis Forecast to Hit Insurers for $200 Billion**\
-`The pandemic will cost the insurance industry over $200 billion, according to Lloyds of London, who estimated that its own payouts are now on a par with the Sept. 11, 2001 attacks or the combined impact of hurricanes Harvey, Maria and Irma in 2017. `\
-https://nytimes.com/aponline/2020/05/14/business/bc-eu-virus-outbreak-insurance.html?searchResultPosition=4
+**McDonald's to Resume Take-Out Service in 30 Restaurants in Canada**\
+`McDonald's will restart take-out services at 30 restaurants in Canada, weeks after shutting down all of its stores in the country due to the COVID-19 pandemic, the company's Canadian unit said on Thursday.`\
+https://nytimes.com/reuters/2020/05/14/us/14reuters-health-coronavirus-mcdonald-s-corp.html?searchResultPosition=4
 
-**The ‘American Way of Life’ Is Shaping Up to Be a Battleground**\
-`There are limits to what ordinary people are willing to endure to secure the bottom line of their employers.`\
-https://nytimes.com/2020/05/14/opinion/coronavirus-reopen-workers.html?searchResultPosition=5
+**India’s ‘Maximum City’ Engulfed by Coronavirus**\
+`Overflowing hospitals. Exhausted cops. Desperate slums. Here are images from Mumbai as the coronavirus upends the metropolis.`\
+https://nytimes.com/2020/05/14/world/asia/mumbai-lockdown-coronavirus.html?searchResultPosition=5
 
-**Porsches, Popcorn and Social Distancing at Dubai Drive-In Cinema**\
-`Movie-goers in Dubai frustrated by the closure of cinemas during the coronavirus pandemic will soon be able to watch films from the comfort of their own car at a new drive-in cinema created on the roof of one of the world's largest shopping malls.`\
-https://nytimes.com/reuters/2020/05/14/arts/14reuters-health-coronavirus-emirates-cinema.html?searchResultPosition=6
+**‘The Wrong Missy’ Review: Bad Romance**\
+`In this Netflix comedy featuring David Spade and Lauren Lapkus, a texting mix-up leads to calamitous times at a retreat.`\
+https://nytimes.com/2020/05/14/movies/the-wrong-missy-review.html?searchResultPosition=6
 
-**Futures Dip on Fears of Prolonged Economic Downturn**\
-`U.S. stock index futures edged lower on Thursday following two sessions of sharp declines, as investors worried that the current economic downturn maybe be here for longer than initially presumed.`\
-https://nytimes.com/reuters/2020/05/14/business/14reuters-usa-stocks.html?searchResultPosition=7
+**‘The Wolf House’ Review: A Different Kind of Quarantine**\
+`A predator is at the door in a stunning new animated film from Chile.`\
+https://nytimes.com/2020/05/14/movies/the-wolf-house-review.html?searchResultPosition=7
 
-**Trump Says He's Very Disappointed in China-Fox Business Network**\
-`U.S. President Donald Trump on Thursday said he was very disappointed in China after the novel coronavirus broke out soon after the two countries agreed on a Phase 1 trade deal.`\
-https://nytimes.com/reuters/2020/05/14/business/14reuters-usa-trade-china.html?searchResultPosition=8
+**‘Graves Without a Name’ Review: An Impossible Quest in Cambodia**\
+`The filmmaker Rithy Panh attempts to find where his parents, victims of the Khmer Rouge, are buried.`\
+https://nytimes.com/2020/05/14/movies/graves-without-a-name-review.html?searchResultPosition=8
 
-**The Latest: Women's Pole Vaulters Get Their Turn to Compete**\
-`The Latest on the effects of the coronavirus outbreak on sports around the world:`\
-https://nytimes.com/aponline/2020/05/14/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=9
+**‘Fourteen’ Review: An Intertwined Friendship Unravels**\
+`Dan Sallitt’s intimate character drama leaves a little too much left unsaid.`\
+https://nytimes.com/2020/05/14/movies/fourteen-review.html?searchResultPosition=9
 
-**U.S. Priority on Sanofi Virus Vaccine Would Be Unacceptable, Says France**\
-`Giving some countries such as the United States priority access to any coronavirus vaccine developed by Sanofi would be unacceptable, France's junior economy minister said on Thursday, after the firm suggested Americans could get it first. `\
-https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-sanofi.html?searchResultPosition=10
+**On Politics: Stay at Home? States Can’t Agree**\
+`A governor’s order is overturned as a virus-era fight heats up: This is your morning tip sheet.`\
+https://nytimes.com/2020/05/14/us/politics/coronavirus-lockdown-economy.html?searchResultPosition=10
 
