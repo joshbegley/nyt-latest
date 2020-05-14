@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/05/13/business/ap-as-virus-outbreak-asia.html?
 https://nytimes.com/reuters/2020/05/13/world/asia/13reuters-australia-economy-unemployment.html?searchResultPosition=9
 
 **HC2 Holdings Nears Settlement With Activist MG Capital for Board Seats: Sources**\
-`HC2 Holdings Inc is nearing a settlement with activist investor MG Capital that would bring four newcomers onto the board of the company being run by former hedge fund manager Philip Falcone, sources familiar with the discussions said on Wednesday. `\
+`HC2 Holdings Inc is nearing a settlement with activist investor MG Capital that would bring four newcomers onto the board of the company being run by former hedge fund manager Philip Falcone, sources familiar with the discussions said. `\
 https://nytimes.com/reuters/2020/05/13/business/13reuters-hc2holdings-settlement.html?searchResultPosition=10
 
