@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/05/14/us/ap-us-virus-outbreak-the-spring-that-
 https://nytimes.com/2020/05/14/technology/china-bilibili-generation-youth.html?searchResultPosition=7
 
 **China Unicorn Creation Falls to Six-Year Low as Investors Play It Safe**\
-`China's rate of creating unicorns has dropped to a seven-year low as venture capital funds shy away from early-stage funding while the economic impact of the coronavirus outbreak batters portfolio investments.`\
+`China's rate of creating unicorns has dropped to a six-year low as venture capital funds shy away from early-stage funding while the economic impact of the coronavirus outbreak batters portfolio investments.`\
 https://nytimes.com/reuters/2020/05/14/business/14reuters-health-coronavirus-china-unicorn.html?searchResultPosition=8
 
 **Australian Pedophile Priest Sentenced to More Jail Time**\
