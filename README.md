@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/05/13/world/americas/13reuters-first-majestic-m
 `The U.S. navy said on Thursday it had sailed a guided-missile destroyer through the sensitive Taiwan Strait, a week before Taiwan President Tsai Ing-wen's inauguration for a second term in office amid rising tensions with China.`\
 https://nytimes.com/reuters/2020/05/13/world/asia/13reuters-taiwan-security-usa.html?searchResultPosition=9
 
-**Wisconsin Supreme Court Invalidates COVID-19 Stay-At-Home Order**\
-`The Wisconsin Supreme Court on Wednesday struck down an extension of the state's shelter-at-home order after the Republican-controlled legislature sued, saying they should have been consulted before it was enacted.`\
+**Wisconsin Supreme Court Invalidates State's COVID-19 Stay-At-Home Order**\
+`The Wisconsin Supreme Court on Wednesday struck down an extension of the state's stay-at-home order to combat the coronavirus pandemic after the Republican-controlled legislature sued, saying it should have been consulted before the order was enacted.`\
 https://nytimes.com/reuters/2020/05/13/us/13reuters-health-coronavirus-usa-wisconsin.html?searchResultPosition=10
 
