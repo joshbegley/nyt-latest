@@ -8,7 +8,7 @@ https://nytimes.com/aponline/2020/05/14/health/bc-us-med-virus-outbreak-cdc-guid
 
 **Travis McCready Concert Is Postponed, but Not Happily**\
 `The decision came after Arkansas officials barred the concert, billed as the first since the virus hit, and pulled the venue’s liquor license.`\
-https://nytimes.com/2020/05/14/arts/music/mccready-concert-postponed-virus.html?searchResultPosition=3
+https://nytimes.com/2020/05/14/arts/music/travis-mccready-concert-postponed-virus.html?searchResultPosition=3
 
 **Britons Hold Eighth Week of Applause for Carers**\
 `Britons joined in a weekly nationwide round of applause on Thursday to pay tribute to care workers and hospital staff as the country gingerly starts to return to work.`\
