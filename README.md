@@ -1,40 +1,40 @@
-**Turkey's Coronavirus Death Toll Reaches 4,000: Health Minister**\
-`Turkey's coronavirus death toll has reached 4,007, after 55 more people died in the last 24 hours, Health Minister Fahrettin Koca said on Thursday.`\
-https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-turkey-toll.html?searchResultPosition=1
+**U.S. Electricity Use to Drop by Record Amount in 2020 Due Coronavirus**\
+`U.S. electricity consumption will collapse by a record 4.6% in 2020 as businesses shut due to government lockdowns to slow the spread of coronavirus, the U.S. Energy Information Administration (EIA) said in its short-term outlook this week.`\
+https://nytimes.com/reuters/2020/05/14/us/14reuters-usa-electricity-outlook.html?searchResultPosition=1
 
-**UK Health Official Expects Rapid Rollout of Roche Antibody Test**\
-`Britain will begin using an antibody test for COVID-19 in coming days, focusing its use on health workers and carers, England's Deputy Chief Medical Officer Jonathan Van-Tam said on Thursday.`\
-https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-britain-tests.html?searchResultPosition=2
+**Search Warrant Served on Senator Burr's Attorney Over Stock Trades: Official**\
+`The FBI served a search warrant to Senator Richard Burr's attorney in connection with the stock trades that Burr made in advance of a sharp market downturn triggered by the coronavirus pandemic, a senior Justice Department official confirmed on Thursday.`\
+https://nytimes.com/reuters/2020/05/14/us/politics/14reuters-health-coronavirus-usa-burr-warrant.html?searchResultPosition=2
 
-**Russia's ChemRar Says in Second-, Third-Phase Testing of Coronavirus Drug Favipiravir**\
-`A Russian company trialling a drug to treat the new coronavirus said on Thursday it was testing it on infected patients in what it called second- and third-phase clinical trials based on World Health Organisation (WHO) criteria.`\
-https://nytimes.com/reuters/2020/05/14/world/asia/14reuters-health-coronavirus-russia-drug.html?searchResultPosition=3
+**Senate Intelligence Committee Chairman Stepping Down During Stock Sale Investigation**\
+`Republican Senator Richard Burr will temporarily step aside as chairman of the intelligence committee, effective at the end of Friday, during a federal investigation into whether he sold shares ahead of a market plunge tied to the coronavirus pandemic, Senate Majority Leader Mitch McConnell said on Thursday.`\
+https://nytimes.com/reuters/2020/05/14/us/politics/14reuters-health-coronavirus-usa-burr-mcconnell.html?searchResultPosition=3
 
-**Italy's Daily Coronavirus Death Toll and New Cases Climb**\
-`Deaths from the COVID-19 epidemic in Italy climbed by 262 on Thursday, against 195 the day before, the Civil Protection Agency said, while the daily tally of new cases rose to 992 from 888 on Wednesday.`\
-https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-italy-tally.html?searchResultPosition=4
+**Why the United States Might Not Open Up to International Travelers Any Time Soon**\
+`The U.S. government largely shut down international travel to the United States in March with a series of rapid-fire moves, but restarting it will likely be a longer, more piecemeal process that could be complicated by rising tensions with China.`\
+https://nytimes.com/reuters/2020/05/14/world/asia/14reuters-health-coronavirus-usa-travel-analysis.html?searchResultPosition=4
 
-**What’s Going On in This Graph? | May 20, 2020**\
-`When easing social-distancing rules during the pandemic, should certain businesses and public places reopen first, while others remain closed?`\
-https://nytimes.com/2020/05/14/learning/whats-going-on-in-this-graph-may-20-2020.html?searchResultPosition=5
+**Data Trackers Show U.S. Retail Traffic Edging Up**\
+`Traffic to U.S. retail stores ticked up last week and hours worked at a sample of small businesses increased as the country's patchwork reopening continued, though overall indices of economic activity showed little change and 2.98 million more Americans filed for unemployment.`\
+https://nytimes.com/reuters/2020/05/14/us/14reuters-usa-economy-reopen-data.html?searchResultPosition=5
 
-**Buying the Plunge: Individual Investors Remain Optimistic**\
-`The lure of snapping up stocks at bargain prices has been too strong to pass up for many people, even as uncertainty over the coronavirus pandemic clouds the market and global economic outlook.`\
-https://nytimes.com/aponline/2020/05/14/business/ap-us-financial-markets-individual-investors.html?searchResultPosition=6
+**Exclusive: U.S. Weighs Measures in Response to Iran Fuel Shipment to Venezuela-Source**\
+`The United States is considering measures it could take in response to Iran's shipment of fuel to crisis-stricken  Venezuela, a senior official in President Donald Trump's administration told Reuters on Thursday.`\
+https://nytimes.com/reuters/2020/05/14/world/middleeast/14reuters-venezuela-fuel-iran-usa-exclusive.html?searchResultPosition=6
 
-**Europe Pins Hopes on Antibody Tests to Avoid Second Virus Wave**\
-`As Europe gingerly eases its coronavirus lockdowns, many governments are scrambling to buy antibody tests to find out how many of their citizens were infected, in the hope that will help them craft strategies to avoid a second wave of COVID-19 cases. `\
-https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-antibody-testing.html?searchResultPosition=7
+**Acquitted Former Barclays Rainmaker Jenkins Plots Gentler Comeback**\
+`A near decade-long battle to clear his name has ended in victory, but the star rainmaker credited with playing a pivotal role in saving one of Britain's biggest banks from a government bailout in 2008 is still waiting to put his life back on track.`\
+https://nytimes.com/reuters/2020/05/14/business/14reuters-britain-barclays-jenkins.html?searchResultPosition=7
 
-**Akron Drops 3 Sports as Pandemic Inflicts Financial Pain**\
-`With its athletic budget being stretched and future funding uncertain, Akron dropped three sports on Thursday in a cost-cutting move necessitated by the COVID-19 pandemic.`\
-https://nytimes.com/aponline/2020/05/14/sports/ap-us-virus-outbreak-college-sports-.html?searchResultPosition=8
+**Goldman Sachs to Buy Boutique Wealth Management Custodian Folio**\
+`Goldman Sachs Group Inc plans to buy a boutique wealth management custodian and technology company called Folio Financial Inc for an undisclosed amount of money, according to a letter that Folio sent to its customers on Thursday and was viewed by Reuters.`\
+https://nytimes.com/reuters/2020/05/14/business/14reuters-goldman-sachs-m-a-folio.html?searchResultPosition=8
 
-**Poll: Virus, Econ Crisis Drive Fears of Having Enough to Eat**\
-`Kate Maehr has never seen anything like it: lines stretching for blocks as people, many with children, inch forward to get boxes of food they hope will last until the next giveaway, until the next paycheck or until they can get government food assistance.`\
-https://nytimes.com/aponline/2020/05/14/us/ap-us-virus-outbreak-food-security-poll.html?searchResultPosition=9
+**Most Ford U.S. Dealers Got Federal Payroll Protection Loans: COO**\
+`Most of Ford Motor Co's U.S. dealers received payroll protection loans from the U.S. government amid the coronavirus pandemic, the automaker's chief operating officer said on Thursday.`\
+https://nytimes.com/reuters/2020/05/14/business/14reuters-health-coronavirus-ford-motor.html?searchResultPosition=9
 
-**10 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2020/05/14/books/review/10-new-books-we-recommend-this-week.html?searchResultPosition=10
+**Fed: Lower-Income Workers and Less Educated Facing More Job Losses Caused by Coronavirus**\
+`The coronavirus crisis led to dramatic changes in Americans' finances as millions of workers faced layoffs or other cutbacks in their jobs, with low-wage workers taking the biggest hit, according to a report released by the Federal Reserve on Thursday. `\
+https://nytimes.com/reuters/2020/05/14/business/14reuters-usa-fed-jobs.html?searchResultPosition=10
 
