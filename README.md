@@ -1,40 +1,40 @@
-**Does It Matter What I Look Like When No One’s Watching?**\
-`I gathered over three million followers as a beauty guru. In quarantine, I’m wondering if I’ve been wearing makeup all wrong.`\
-https://nytimes.com/video/opinion/100000007126150/ingrid-nilsen-makeup-coronavirus.html?searchResultPosition=1
+**European Medicines Agency: Coronavirus Vaccine Could Be Ready for Approval in a Year**\
+`A vaccine for the new coronavirus could be approved in about a year's time in an "optimistic" scenario, the European Medicines Agency said on Thursday.`\
+https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-ema-vaccine.html?searchResultPosition=1
 
-**UK Survey Shows 76% of Firms Apply for COVID Job Retention Scheme**\
-`More than three-quarters of companies in Britain which took part in a survey by the country's official statistics office have applied for the government's emergency job retention scheme to help them through the coronavirus lockdown.`\
-https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-britain-economy.html?searchResultPosition=2
+**Germany Must Stabilise Social Security System With Cash Injection: Officials**\
+`Germany will have to stabilise its social security system with cash injections to cushion the effect of coronavirus on health, the labour market and pensions, officials said on Thursday, an effort experts estimate could cost many billions of euros.`\
+https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-germany-budget.html?searchResultPosition=2
 
-**Out-Of-Work Thai Chefs Cook for Others Made Jobless by Virus Crisis**\
-`Professional chefs on Wednesday started cooking up around 40,000 lunches in Thailand's capital for communities affected by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/14/us/14reuters-health-coronavirus-thailand-chefs.html?searchResultPosition=3
+**Malaysia Reports 40 New Coronavirus Cases; One Additional Death**\
+`Malaysia on Thursday reported 40 new coronavirus cases with one additional death, the health ministry said. `\
+https://nytimes.com/reuters/2020/05/14/world/asia/14reuters-health-coronavirus-malaysia.html?searchResultPosition=3
 
-**Sony Aims to Make Image Sensors Smarter to Expand Beyond Smartphones**\
-`Sony Corp on Thursday said it would make its cash-cow image sensors smarter to broaden their application, as the Japanese electronics maker seeks to reduce reliance on a saturated smartphone market.`\
-https://nytimes.com/reuters/2020/05/14/technology/14reuters-sony-sensors.html?searchResultPosition=4
+**How Do You Maintain Dignity for the Dead in a Pandemic?**\
+`Overwhelmed by bodies, funeral homes are struggling to fulfill their mission to grieving families.`\
+https://nytimes.com/2020/05/14/magazine/funeral-home-covid.html?searchResultPosition=4
 
-**U.S. Sails Warship Near Taiwan a Week Ahead of Presidential Inauguration**\
-`The U.S. navy said on Thursday it had sailed a guided-missile destroyer through the sensitive Taiwan Strait, a week before Taiwan President Tsai Ing-wen's inauguration for a second term in office amid rising tension with China.`\
-https://nytimes.com/reuters/2020/05/14/world/asia/14reuters-taiwan-security-usa.html?searchResultPosition=5
+**Meat Plant Closures Mean Pigs Are Gassed or Shot Instead**\
+`Coronavirus outbreaks at meatpacking plants have created a backlog of animals ready for slaughter but with nowhere to go. Farmers are having to cull them.`\
+https://nytimes.com/2020/05/14/business/coronavirus-farmers-killing-pigs.html?searchResultPosition=5
 
-**France Accuses Venezuela of Harassing Embassy, Summons Envoy**\
-`France has summoned Venezuela's envoy over accusations President Nicolas Maduro's government has been harassing its embassy in Caracas, including by cutting water and electricity to the ambassador's residence, diplomats said on Thursday. `\
-https://nytimes.com/reuters/2020/05/14/world/americas/14reuters-venezuela-politics-france.html?searchResultPosition=6
+**Quarantining With a Ghost? It’s Scary**\
+`For those who believe they’re locked down with spectral roommates, the pandemic has been less isolating than they bargained for.`\
+https://nytimes.com/2020/05/14/style/haunted-house-ghost-quarantine.html?searchResultPosition=6
 
-**BMW CEO Sees 'Very Slow' U.S. Recovery After Corona Rebound in China**\
-`BMW on Thursday said China sales of luxury passenger cars rebounded in April but the German premium car and motorbike manufacturer cautioned that other markets including the United States will be "very slow" to recover from the corona pandemic.`\
-https://nytimes.com/reuters/2020/05/14/business/14reuters-bmw-outlook-agm.html?searchResultPosition=7
+**Outside Egypt, Critics Speak Freely. Inside, Families Pay the Price.**\
+`Egyptian officials have jailed the relatives of President Abdel Fattah el-Sisi’s loudest critics in exile. It is his latest effort to silence all opposition.`\
+https://nytimes.com/2020/05/14/world/middleeast/egypt-critics-arrests.html?searchResultPosition=7
 
-**Ariane Mnouchkine: Half a Century Building Utopia**\
-`Times have changed, but the revered French theater director has always stayed true to her beliefs.`\
-https://nytimes.com/2020/05/14/theater/ariane-mnouchkine-archive.html?searchResultPosition=8
+**As Unemployment Soars, Lawmakers Push to Cover Workers’ Wages**\
+`Progressive and conservative lawmakers are increasingly pushing for the government to guarantee workers’ incomes, signaling how profoundly the economic debate has shifted during the pandemic.`\
+https://nytimes.com/2020/05/14/us/politics/coronavirus-workers-income-lawmakers.html?searchResultPosition=8
 
-**Armenia Extends State of Emergency Over Coronavirus Until June 13**\
-`Armenia on Thursday extended a state of emergency in the country over the coronavirus outbreak until June 13, the government said, after the number of new daily infections began rising at the end of April. `\
-https://nytimes.com/reuters/2020/05/14/world/14reuters-health-coronavirus-armenia-emergency.html?searchResultPosition=9
+**A Black Hole’s Boomerangs**\
+`Astronomers dissect the energy flow in a distant galaxy.`\
+https://nytimes.com/2020/05/14/science/black-hole-astronomy-meerkat.html?searchResultPosition=9
 
-**Japan Says Drugmaker Gilead's COVID-19 Treatment Remdesivir Now in Use in Hospitals**\
-`Japan has begun treating severely ill COVID-19 patients with Gilead Sciences Inc's COVID-19 remdesivir drug, a health ministry official said, just days after giving the drug emergency approval as it seeks to curb the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/05/14/world/asia/14reuters-health-coronavirus-japan-remdesivir.html?searchResultPosition=10
+**Hotels vs. Airbnb: Has Covid-19 Disrupted the Disrupter?**\
+`For years, home sharing has put pressure on hotel rates and occupancy levels. Social distancing, hygiene and refund policies may be the new game changers.`\
+https://nytimes.com/2020/05/14/travel/hotels-versus-airbnb-pandemic.html?searchResultPosition=10
 
