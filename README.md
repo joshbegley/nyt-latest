@@ -1,40 +1,40 @@
+**Coronavirus Crisis a Window of Opportunity for Bankers to the Rich**\
+`When markets slumped in March as the spread of coronavirus gathered pace, wealth managers' trading volumes soared as ultra rich clients reshuffled their portfolios.  `\
+https://nytimes.com/reuters/2020/05/14/business/14reuters-global-banking-wealth-analysis.html?searchResultPosition=1
+
+**Britain's M&S Ties Up With Health Service for Huge Clothing Sale**\
+`British retailer Marks & Spencer launched a clothing sale on Thursday to help clear stock built up in the coronavirus lockdown, tapping into widespread public support for health workers by giving some proceeds to NHS charities.    `\
+https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-m-s.html?searchResultPosition=2
+
+**China's Task to Prevent Rebound in Local Coronavirus Cases Remains Arduous**\
+`China's task to prevent rebound in local coronavirus cases remains arduous, the ruling Communist Party's politburo said on Thursday, state television reported. `\
+https://nytimes.com/reuters/2020/05/14/world/asia/14reuters-health-coronavirus-china-politburo.html?searchResultPosition=3
+
+**Israel Swears in New Government After 3 Deadlocked Elections**\
+`After three deadlocked and divisive elections, and a year and a half of political paralysis, Israel was finally swearing in a new government on Thursday, with Prime Minister Benjamin Netanyahu securing a historic fifth term in office thanks to a controversial power-sharing deal with rival-turned-partner Benny Gantz.`\
+https://nytimes.com/aponline/2020/05/14/world/middleeast/ap-ml-israel-politics.html?searchResultPosition=4
+
+**Sergeant Fired in School Shooting Response to Get Job Back**\
+`A Florida sheriff's sergeant fired because he sat in a parked car during a 2018 mass shooting at Marjory Stoneman Douglas High School will get his job back along with back pay, according to a statement from the union that represents deputies.`\
+https://nytimes.com/aponline/2020/05/14/us/ap-us-school-shooting-florida-deputy.html?searchResultPosition=5
+
 **Coronavirus to Exacerbate Gender Pay Gap: German Study**\
 `The coronavirus crisis is likely to widen the gender pay gap in Germany as more women are cutting their hours to look after children due to the closure of schools and nurseries, a survey showed on Thursday.`\
-https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-germany-women.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-germany-women.html?searchResultPosition=6
 
 **No More 'Kissing the Ball' in South American Soccer**\
 `There will be no more kissing the ball for good luck in South American soccer.`\
-https://nytimes.com/aponline/2020/05/14/sports/soccer/ap-soc-south-america-restart-1st-ld-writethru.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/05/14/sports/soccer/ap-soc-south-america-restart-1st-ld-writethru.html?searchResultPosition=7
 
 **Irish PM Says It Will Take Months for EU Travel to Return to Normal**\
 `It will take months not weeks for COVID-19 restrictions to be lifted and travel around the European Union to return to normal, Irish Prime Minister Leo Varadkar told parliament on Thursday. `\
-https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-ireland-travel.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-ireland-travel.html?searchResultPosition=8
 
 **EU Starts Legal Actions Against Luxembourg Over Money Laundering, Tax Avoidance**\
 `The European Commission launched legal actions on Thursday against Luxembourg over laws to prevent money laundering and tax avoidance, it said in a statement.`\
-https://nytimes.com/reuters/2020/05/14/world/14reuters-eu-luxembourg-moneylaundering-tax.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/14/world/14reuters-eu-luxembourg-moneylaundering-tax.html?searchResultPosition=9
 
 **Bank of England Not Considering Taking Rates Below Zero: Bailey**\
 `The Bank of England is not considering taking "the very big step" of pushing interest rates below zero, Governor Andrew Bailey said on Thursday although he declined to rule it out altogether.`\
-https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-britain-bailey.html?searchResultPosition=5
-
-**Coronavirus in N.Y.: Live Updates**\
-`New York City’s police commissioner disputed accusations that his department was unfairly targeting black and Hispanic residents in enforcing social-distancing rules.`\
-https://nytimes.com/2020/05/14/nyregion/coronavirus-new-york-update.html?searchResultPosition=6
-
-**Thyssenkrupp, Union Call for Further Consolidation in Warship Sector**\
-`Thyssenkrupp and Germany's largest union IG Metall on Thursday called for further consolidation of the country's warship sector, saying a tie-up of rivals Luerssen and German Naval Yards (GNYK) did not go far enough.`\
-https://nytimes.com/reuters/2020/05/14/business/14reuters-thyssenkrupp-ship.html?searchResultPosition=7
-
-**Cycling: Tour of Britain Canceled, Route to Be Used for 2021**\
-`This year's Tour of Britain scheduled for September has been cancelled and the same route will be used for the 2021 edition, organisers said on Thursday.`\
-https://nytimes.com/reuters/2020/05/14/sports/cycling/14reuters-health-coronavirus-cycling-britain.html?searchResultPosition=8
-
-**DealBook: What Satya Nadella Thinks**\
-`The Microsoft chief says the recovery will be more like a “dial” than a “switch,” and worries about what is lost when everybody works from home.`\
-https://nytimes.com/2020/05/14/business/dealbook/satya-nadella-microsoft.html?searchResultPosition=9
-
-**Fiat Chrysler/Peugeot Deal in Spotlight After Exor Setbacks**\
-`Fiat Chrysler's decision to scrap its dividend marks another setback for plans by the Agnelli family's Exor arm to raise cash after a $9 billion sale of its reinsurer unit PartnerRe collapsed this week.`\
-https://nytimes.com/reuters/2020/05/14/business/14reuters-health-coronavirus-fca-exor.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/14/world/europe/14reuters-health-coronavirus-britain-bailey.html?searchResultPosition=10
 
