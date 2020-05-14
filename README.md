@@ -22,13 +22,13 @@ https://nytimes.com/2020/05/14/opinion/viola-davis-how-to-get-away-with-murder.h
 `Young, healthy people like me are getting very, very sick from the disease caused by the coronavirus.`\
 https://nytimes.com/2020/05/14/opinion/coronavirus-young-people.html?searchResultPosition=6
 
-**What Churches Really Think About Opening Up**\
-`Pastors who ignore coronavirus restrictions grab headlines. But most are being very careful about worship during the pandemic.`\
-https://nytimes.com/2020/05/14/opinion/coronavirus-churches.html?searchResultPosition=7
-
 **Will the Pandemic Make the West More Vulnerable to Wildfires?**\
 `The fight against Covid-19 has disrupted preparations for the fire season.`\
-https://nytimes.com/2020/05/14/opinion/wildfires-coronavirus.html?searchResultPosition=8
+https://nytimes.com/2020/05/14/opinion/wildfires-coronavirus.html?searchResultPosition=7
+
+**What Churches Really Think About Opening Up**\
+`Pastors who ignore coronavirus restrictions grab headlines. But most are being very careful about worship during the pandemic.`\
+https://nytimes.com/2020/05/14/opinion/coronavirus-churches.html?searchResultPosition=8
 
 **Exclusive: U.S. Considers Returning Cuba to List of State Sponsors of Terrorism-Source**\
 `The United States is considering returning Cuba to its list of state sponsors of terrorism, a senior Trump administration official told Reuters on Thursday, a move that would mark another major blow to increasingly tense relations between Washington and Havana.`\
