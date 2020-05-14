@@ -1,4 +1,4 @@
-**A Caddie’s Most Important Measure of Distance? Now It’s Six Feet.**\
+**A Caddie’s Most Important Measure of Distance? Now It’s Six Feet**\
 `Professional golf is making plans to resume play even as coronavirus concerns linger, leaving players and caddies to figure out how close is close enough for a consultation.`\
 https://nytimes.com/2020/05/14/sports/golf/pga-lpga-tour-caddies-coronavirus.html?searchResultPosition=1
 
