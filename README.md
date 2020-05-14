@@ -1,5 +1,5 @@
 **U.S. Appeals Court Rejects Trump Bid to Escape 'Emoluments' Lawsuit**\
-`A U.S. appeals court on Thursday rejected an effort by President Donald Trump to end a lawsuit alleging his ownership of a hotel in Washington violates anti-corruption provisions of the U.S. Constitution known as the "Emoluments Clauses."`\
+`A U.S. appeals court on Thursday rejected President Donald Trump's effort to end a lawsuit alleging his ownership of a hotel in Washington violates anti-corruption provisions of the U.S. Constitution known as the "Emoluments Clauses."`\
 https://nytimes.com/reuters/2020/05/14/us/14reuters-usa-trump-emoluments.html?searchResultPosition=1
 
 **Amazon to the Rescue of the Fashion World!**\
