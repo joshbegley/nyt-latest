@@ -31,6 +31,6 @@ https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-usa-afghanistan-pent
 https://nytimes.com/aponline/2020/05/15/sports/ap-rac-virus-outbreak-horse-racing.html?searchResultPosition=9
 
 **From Nearly Free to Out-of-Reach: Gasoline’s Crazy Price Swing in Venezuela**\
-`Motorists queue for days to buy subsidized gasoline for next to nothing, but it is increasingly scarce — a reflection of the economic absurdities that have bankrupted what was once the region’s wealthiest country.`\
+`Motorists queue for days to buy subsidized gasoline for next to nothing, but it is increasingly scarce — a reflection of the economic absurdities in the country.`\
 https://nytimes.com/2020/05/15/world/americas/venezuela-gasoline-shortage.html?searchResultPosition=10
 
