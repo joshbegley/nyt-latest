@@ -1,40 +1,40 @@
+**India Announces Reforms to Help Millions of Poor Farmers**\
+`India on Friday announced agricultural market reforms and investment in facilities like cold storage warehouses to improve earnings for farmers who make up more than 60% of India’s 1.3 billion people.`\
+https://nytimes.com/aponline/2020/05/15/business/ap-as-india-economy.html?searchResultPosition=1
+
+**Women Face Dilemma in a War Zone: Risk the Blasts or Sexual Assault**\
+`As shelling between Pakistan and India intensifies in Kashmir, some women and girls are staying away from community shelters that have become a stalking ground for sexual predators.`\
+https://nytimes.com/2020/05/15/world/asia/kashmir-pakistan-shelters-assault.html?searchResultPosition=2
+
+**Euro Zone Banks Sell Subordinated Bonds After Three Month Hiatus**\
+`The euro zone issuance market for subordinated, loss-absorbing bank bonds re-opened this week for the first time in almost three months after a severe sell-off in the asset class due to the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-eurozone-banks-capital-issuance.html?searchResultPosition=3
+
+**Eni Appoints Citi to Sell Australia Gas Assets: Sources**\
+`Italian energy group Eni is working with investment bank Citi to sell natural gas assets in Australia that could fetch up to $1 billion, sources said.`\
+https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-eni-m-a-australia.html?searchResultPosition=4
+
+**Venezuelans Struggle to Educate Kids Amid Pandemic Lockdown**\
+`María Figueroa often climbs onto the rooftop of her building in Venezuela’s capital clutching a phone and laptop looking for a signal and has paid to run an internet cable to her neighbor’s home, as she struggles to educate her children remotely amid a coronavirus lockdown.`\
+https://nytimes.com/aponline/2020/05/15/world/americas/ap-lt-virus-outbreak-venezuela-struggling-schools.html?searchResultPosition=5
+
+**In Jerusalem, Ramadan Restrictions Last Seen During the Crusades Return**\
+`A pandemic has transformed how Muslims in Israel and the Palestinian Territories are experiencing Ramadan.`\
+https://nytimes.com/2020/05/15/world/middleeast/ramadan-coronavirus-al-aqsa.html?searchResultPosition=6
+
+**Exclusive: Kenya Eschews G20 Debt Relief Initiative Over Restrictive Terms**\
+`Kenya will not seek a suspension of debt payments under a G20 initiative aimed at helping poor countries weather the COVID-19 pandemic, its finance minister said on Friday, saying the terms of the deal were too restrictive.`\
+https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-kenya.html?searchResultPosition=7
+
+**Exclusive: Virgin Atlantic Won't Restart Flights Until August if UK Introduces Quarantine-Source**\
+`Virgin Atlantic will not be able to resume passenger flights until August at the earliest if Britain introduces a 14 day quarantine for travellers, according to a source at the airline.`\
+https://nytimes.com/reuters/2020/05/15/business/15reuters-health-coronavirus-virgin-atlantic-exclusive.html?searchResultPosition=8
+
 **Exclusive: Italy Doubles Down on Debt Sales to Retail Investors**\
 `Italy will launch a campaign this month to entice individual investors to buy its government debt and shift some of the burden of funding the fight against the coronavirus from its banks, which are still recovering from the last crisis.`\
-https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-italy-debt-chief-exclusive.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-italy-debt-chief-exclusive.html?searchResultPosition=9
 
 **Almighty Cleanup: St. Peter's in Rome Gets Coronavirus Scrub-Down**\
 `Next time you fret about sanitising your desk or kitchen counter because of the coronavirus, spare a thought for the workers whose task on Friday was to wipe down St. Peter's Basilica.`\
-https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-vatican.html?searchResultPosition=2
-
-**Court Orders Suspension of South African Soldiers Over Death of Man in Lockdown**\
-`South Africa's High Court ordered the suspension on Friday of soldiers and police officers who were at or near the home of a man who was killed last month, following allegations he was beaten to death by security forces. `\
-https://nytimes.com/reuters/2020/05/15/world/africa/15reuters-health-coronavirus-safrica-military.html?searchResultPosition=3
-
-**Italy: Chemical Plant Fire Hurts 2, Forces Venetians Indoors**\
-`A fire at a chemical plant near Venice critically injured two people, belched thick black smoke into the air and forced Venetians to stay indoors for fear of noxious fumes, Italian authorities said Friday.`\
-https://nytimes.com/aponline/2020/05/15/world/europe/ap-eu-italy-chemical-fire.html?searchResultPosition=4
-
-**Within a Week, They Fell in Love**\
-`Clare Goslant and Alex Plum met in Washington, and fell in love right away. But she went back to college, and then he joined the Marine Corps. They managed to marry even so.`\
-https://nytimes.com/2020/05/15/fashion/weddings/within-a-week-they-fell-in-love.html?searchResultPosition=5
-
-**Cycling: UK Has Chance to Change Transport Forever-Boardman**\
-`It has taken a pandemic, empty roads and one of the sunniest Springs on record for Britons to fall back in love with the bicycle but the fear keeping Chris Boardman awake at night is that it will be a brief flirtation.`\
-https://nytimes.com/reuters/2020/05/15/sports/cycling/15reuters-health-coronavirus-cycling-britain-boardman.html?searchResultPosition=6
-
-**Pandemic Teleworking Is Straining Families: EU Study**\
-`The COVID-19 pandemic is placing unprecedented strain on families and working life, an EU study showed on Friday, with more than a fifth of people who now work at home in households with younger children struggling to concentrate on their jobs.`\
-https://nytimes.com/reuters/2020/05/15/us/15reuters-health-coronavirus-family.html?searchResultPosition=7
-
-**Toyota Plans to Cut Japan Car Output by 122,000 Units in June Due to Virus**\
-`Toyota Motor Corp on Friday said it would reduce vehicle production in Japan by 122,000 units in June, as a lack of demand for new cars due to the coronavirus prompts the automaker to keep its plants running on limited operations.`\
-https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-health-coronavirus-toyota.html?searchResultPosition=8
-
-**U.S. Manufacturing Production Posts Record Decline**\
-`U.S. manufacturing output suffered a record drop in April as the novel coronavirus pandemic fractured supply chains and depressed demand, supporting economists' views the economy will shrink in the second quarter at a pace not seen since the Great Depression. `\
-https://nytimes.com/reuters/2020/05/15/us/15reuters-usa-economy-output.html?searchResultPosition=9
-
-**Six Swipes for a Better Night’s Sleep**\
-`Our daily patterns are all off, so our circadian rhythms are too. These tips will help.`\
-https://nytimes.com/interactive/2020/05/15/burst/how-to-sleep-better.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-vatican.html?searchResultPosition=10
 
