@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-hungary-roma-segre
 https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-italy.html?searchResultPosition=2
 
 **‘The First Step Was the Hardest’**\
-`In the space of six weeks, “Captain Tom” Moore, 100, raised $40 million for the British health service and become a national hero.`\
+`In the space of six weeks, “Captain Tom” Moore, 100, raised $40 million for the British health service and became a national hero.`\
 https://nytimes.com/2020/05/15/world/europe/captain-tom-moore.html?searchResultPosition=3
 
 **Coronavirus in N.Y.C.: Latest Updates**\
