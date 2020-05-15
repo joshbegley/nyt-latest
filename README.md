@@ -1,40 +1,40 @@
+**Coronavirus Could Last Years, Says Japanese Economist Urging More Tests, Support**\
+`Japan should boost coronavirus testing and offer more generous cash payouts to households as the epidemic could last for several years, an economist appointed to a government panel on the virus response said on Friday.`\
+https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-health-coronavirus-panel.html?searchResultPosition=1
+
+**Baltics Open Europe's First Pandemic 'Travel Bubble' as Curbs Ease**\
+`Lithuania, Latvia and Estonia opened their common borders at the stroke of midnight, creating the first "travel bubble" within the European Union in a bid to jump-start economies broken down by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-baltic.html?searchResultPosition=2
+
 **Euro Zone First-Quarter Growth Plunge Deepest on Record as Coronavirus Hits**\
 `The euro zone economy saw its deepest contraction on record in the first three months of the year against the previous quarter, as expected by markets, data showed on Friday, as a result of  lockdowns introduced in March to slow the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/15/us/15reuters-health-coronavirus-eurozone-growth.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/05/15/us/15reuters-health-coronavirus-eurozone-growth.html?searchResultPosition=3
 
 **Africa's Endangered Wildlife at Risk as Tourism Dries Up**\
 `The armed rangers set off at dusk in pursuit of poachers. The COVID-19 pandemic has brought a new alertness, and a new fear.`\
-https://nytimes.com/aponline/2020/05/15/business/bc-af-virus-outbreak-poaching.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/05/15/business/bc-af-virus-outbreak-poaching.html?searchResultPosition=4
 
 **Indonesia Reports 490 New Coronavirus Cases, 33 New Deaths**\
 `Indonesia reported 490 new coronavirus infections and 33 new deaths, taking the total number of cases to 16,496 and deaths to 1,076, health ministry official Achmad Yurianto said on Friday.`\
-https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-health-coronavirus-indonesia.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-health-coronavirus-indonesia.html?searchResultPosition=5
 
 **Fincantieri Says Cooperation With Thyssenkrupp Chance to Talk About Consolidation**\
 `Cooperation between Fincantieri and Thyssenkrupp to build submarines is a good opportunity to talk about future consolidation in the European defence sector, the Italian shipbuilder's general manager Alberto Maestrini said on Friday.    `\
-https://nytimes.com/reuters/2020/05/15/business/15reuters-fincantieri-thyssenkrupp.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/15/business/15reuters-fincantieri-thyssenkrupp.html?searchResultPosition=6
 
 **Turkey Detains Pro-Kurdish Mayors, Removes Them From Office**\
 `Turkish authorities on Friday detained four more elected mayors from Turkey’s mainly Kurdish populated east and southeast regions, the state-run news agency reported, as the government pressed ahead with its crackdown on a pro-Kurdish party it accuses of links to Kurdish militants.`\
-https://nytimes.com/aponline/2020/05/15/world/europe/ap-eu-turkey-kurds.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/05/15/world/europe/ap-eu-turkey-kurds.html?searchResultPosition=7
 
 **Ethiopia Migrants Recall Nightmare When 64 Died in a Metal Container**\
 `Silence gradually replaced the screams around Dejene Degefa as his fellow travelers suffocated one by one inside a locked metal container. He struggled to stay conscious but finally passed out, only waking to the sounds of rescue. `\
-https://nytimes.com/reuters/2020/05/15/world/africa/15reuters-ethiopia-migrants.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/05/15/world/africa/15reuters-ethiopia-migrants.html?searchResultPosition=8
 
 **Check-Up After Check-In: Accor Bets on Online Medicine for Hotel Rebound**\
 `France's Accor, which runs hotels such as Ibis and Movenpick, said on Friday it would offer its clients free access to online medical consultations run by insurer AXA as it prepares for a recovery from the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/05/15/business/15reuters-health-coronavirus-accor.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/05/15/business/15reuters-health-coronavirus-accor.html?searchResultPosition=9
 
 **Sweden Stayed Open. A Deadly Month Shows the Risks.**\
 `While Sweden has avoided the worst outbreaks in Italy, Spain and Britain, it has also seen an extraordinary increase in deaths, mortality data shows.`\
-https://nytimes.com/interactive/2020/05/15/world/europe/sweden-coronavirus-deaths.html?searchResultPosition=8
-
-**No Pomp and Circumstance? No Problem**\
-`Students, parents and alumni are making graduation a special occasion, even in quarantine.`\
-https://nytimes.com/2020/05/15/style/graduation-parties-2020.html?searchResultPosition=9
-
-**What Home Means to the Homeless**\
-`These are the things they hung on to, when so many things were lost.`\
-https://nytimes.com/2020/05/15/opinion/sunday/homeless-photographs.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/05/15/world/europe/sweden-coronavirus-deaths.html?searchResultPosition=10
 
