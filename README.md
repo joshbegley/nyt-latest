@@ -2,7 +2,7 @@
 `Colombia's commerce regulator said on Friday it will investigate mobile applications Rappi, Uber Eats, iFood and Domicilios.com for failure to fulfill delivery times, delays in returning money and other alleged problems on Mother's Day.`\
 https://nytimes.com/reuters/2020/05/15/technology/15reuters-colombia-apps-deliveries.html?searchResultPosition=1
 
-**There Are Live Sports on TV This Weekend**\
+**The Biggest Weekend of Live Sports on TV in a Long Time**\
 `Yes you heard that right. NASCAR, German soccer, U.F.C., horse racing and golf will be live.`\
 https://nytimes.com/2020/05/15/sports/bundesliga-games-this-weekend.html?searchResultPosition=2
 
