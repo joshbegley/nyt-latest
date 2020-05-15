@@ -2,8 +2,8 @@
 `New York Giants cornerback Deandre Baker and Seattle Seahawks cornerback Quinton Dunbar are wanted by the Miramar (Fla.) Police Department on charges of armed robbery with a firearm after an alleged incident at a party late Wednesday night.`\
 https://nytimes.com/reuters/2020/05/14/sports/football/14reuters-football-nfl-baker-dunbar-armed-robbery.html?searchResultPosition=1
 
-**China's April Industrial Output Rises Faster Than Expected**\
-`China's industrial output rose 3.9% in April from a year earlier, official data showed on Friday, expanding for the first time this year as the world's second-largest economy slowly emerges from its coronavirus lockdown.`\
+**China's Factory Output Posts First Increase for 2020 but Consumption Still Weak**\
+`China's industrial output rose 3.9% in April from a year earlier, data showed on Friday, expanding for the first time this year as the world's second-largest economy slowly emerged from its coronavirus lockdown.`\
 https://nytimes.com/reuters/2020/05/14/world/asia/14reuters-china-economy-activity.html?searchResultPosition=2
 
 **Brazil and Mexico Report Record Surge in Coronavirus Cases as Latin America Reels**\
