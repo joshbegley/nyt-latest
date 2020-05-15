@@ -1,40 +1,40 @@
+**New Date for Intra-Afghan Peace Talks Under Discussion, Khalilzad Says**\
+`A new date for intra-Afghan peace talks is under discussion and the United States has heard positive things about the formation of an inclusive Afghan government, U.S. Special Representative for Afghanistan Zalmay Khalilzad said on Friday.`\
+https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-usa-afghanistan-khalilzad.html?searchResultPosition=1
+
+**UK Coronavirus Death Toll Rises 384 to 33,998: Government**\
+`The number of people who have died in the United Kingdom after testing positive to COVID-19 rose by 384 to 33,998, Britain's health ministry said on Friday.`\
+https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-britain-toll.html?searchResultPosition=2
+
+**Fiat Chrysler in Talks Over 6.3 Billion Euro State-Guaranteed Loan: Source**\
+`Fiat Chrysler is in talks with Italian lender Intesa Sanpaolo over a 6.3 billion euro ($6.8 billion) state-guaranteed loan to help the automaker weather the coronavirus crisis, a source close to the matter said on Friday.`\
+https://nytimes.com/reuters/2020/05/15/business/15reuters-health-coronavirus-fca-intesa.html?searchResultPosition=3
+
+**What Is Beauty Now?**\
+`In a pandemic, we are coming face to face with what lies beneath all that beauty maintenance.`\
+https://nytimes.com/2020/05/15/us/beauty-coronavirus-body-looks.html?searchResultPosition=4
+
+**In Quarantined Venezuela, Karate Champion Takes Training to Living Room**\
+`Accustomed to working out among Venezuela's best youth karate athletes, 16-year-old Ricardo Perez now trains between four barstools and two black leather couches - in his living room. `\
+https://nytimes.com/reuters/2020/05/15/world/americas/15reuters-health-coronavirus-venezuela-karate.html?searchResultPosition=5
+
+**Portland, Oregon, Homeless Tax Tests Voter Mood in Pandemic**\
+`Voters in metropolitan Portland, Oregon, will be asked Tuesday to approve taxes on personal income and business profits that would raise $2.5 billion over a decade to fight homelessness even as the state grapples with the coronavirus and its worst recession in years. `\
+https://nytimes.com/aponline/2020/05/15/us/ap-us-election-2020-portland-homeless-tax.html?searchResultPosition=6
+
+**U.S. Layoffs Surged to Record High of 11.4 Million in March**\
+`U.S. layoffs soared in March to a record 11.4 million after state and local governments closed restaurants, bars, movie theaters and other nonessential businesses in response to the intensifying viral outbreak. `\
+https://nytimes.com/aponline/2020/05/15/business/bc-us-job-openings.html?searchResultPosition=7
+
 **Turkish Teenagers Get Very Brief Respite From Virus Lockdown**\
 `Turkish teenagers were allowed to briefly leave their homes for the first time in 42 days on Friday, as their turn came for a few hours of respite — but just for one day — from coronavirus lockdowns.`\
-https://nytimes.com/aponline/2020/05/15/world/europe/ap-eu-virus-outbreak-turkey.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/05/15/world/europe/ap-eu-virus-outbreak-turkey.html?searchResultPosition=8
 
 **London Streets to Go Car-Free to Encourage Walking and Cycling**\
 `Cars will be banished from miles of streets in central London to encourage more walking and cycling and help public transport cope with social distancing restrictions, the city's mayor said on Friday.`\
-https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-london-streets.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-london-streets.html?searchResultPosition=9
 
 **Moscow Rolls Out Mass Coronavirus Antibody Testing Programme**\
 `Moscow began testing thousands of randomly-chosen residents for coronavirus antibodies on Friday under a mass screening programme authorities hope will help them determine when it is safe to lift the city's lockdown restrictions. `\
-https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-moscow-testing.html?searchResultPosition=3
-
-**U.S. Business Inventories Decline Further in March**\
-`U.S. business inventories fell in March amid a decline in imports and further decreases are likely as the novel coronavirus outbreak severely disrupts global supply chains and the flow of goods.`\
-https://nytimes.com/reuters/2020/05/15/us/15reuters-usa-economy-inventories.html?searchResultPosition=4
-
-**What to Cook This Weekend**\
-`Treat yourself to a Bloody Mary, alcoholic or non, and think of Gabrielle Hamilton’s Prune. Or settle in with some barbecued chicken or lemony orzo.`\
-https://nytimes.com/2020/05/15/dining/what-to-cook-this-weekend.html?searchResultPosition=5
-
-**After Coronabonds, EU Heads for Clash Over 'Corona' Tax in Next Budget**\
-`After a row over joint borrowing to respond to the new coronavirus pandemic, the European Union looks set to clash over whether governments should assign new tax revenues to the EU to help finance a recovery from the pandemic-induced recession.`\
-https://nytimes.com/reuters/2020/05/15/us/15reuters-health-coronavirus-eu-tax-analysis.html?searchResultPosition=6
-
-**Motor Racing: Silverstone Agrees Terms With F1 for Back-To-Back Races**\
-`Formula One and Silverstone have agreed terms for two races without spectators at the circuit this season, subject to government approval, the track's managing director Stuart Pringle said on Friday.`\
-https://nytimes.com/reuters/2020/05/15/sports/autoracing/15reuters-health-coronavirus-f1-siverstone.html?searchResultPosition=7
-
-**Exclusive: Spain Plans to Side-Step EU Bailout Fund-Sources**\
-`Spain plans to avoid using cheap European Union bailout funds in all but a worst-case scenario in its fight against the coronavirus pandemic, joining Italy in deeming it a politically unpopular option, sources told Reuters.`\
-https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-eu-funding-exclusive.html?searchResultPosition=8
-
-**Canadian Investors Shed Record Level of Foreign Securities in March**\
-`Canadian investors divested a record-breaking C$42.2 billion  ($30 billion) in foreign securities in March amid heightened market volatility caused by the coronavirus pandemic, Statistics Canada data showed on Friday. `\
-https://nytimes.com/reuters/2020/05/15/us/15reuters-canada-economy-securities.html?searchResultPosition=9
-
-**Mrs.**\
-`A poem explores how society erases a woman’s history, sacrifices and identity when it defines her by her husband’s name.`\
-https://nytimes.com/2020/05/15/arts/sarah-kay-identity-poem.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-moscow-testing.html?searchResultPosition=10
 
