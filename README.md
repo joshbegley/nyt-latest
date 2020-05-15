@@ -1,40 +1,40 @@
+**Exclusive: Nissan Sees Bigger Role for U.S., China Markets in Global Car Sales-Sources**\
+`Nissan Motor Co expects equal contributions to global car sales from China, the United States and elsewhere in coming years as the struggling Japanese carmaker strategises to recover profitability, two people with knowledge of the issue said.`\
+https://nytimes.com/reuters/2020/05/15/business/15reuters-nissan-restructuring-exclusive.html?searchResultPosition=1
+
+**U.S. Extends Temporary General License for Huawei**\
+`The U.S. Department of Commerce on Friday announced that it was extending the Temporary General License that allows certain transactions with Huawei Technologies Co Ltd for another 90 days.`\
+https://nytimes.com/reuters/2020/05/15/business/15reuters-usa-china-huaweitech.html?searchResultPosition=2
+
+**Japan's Renown Files for Bankruptcy With $130 Million Debt**\
+`Japanese apparel maker Renown Inc, part of Chinese fashion empire Shandong Ruyi, said it filed the bankruptcy protection on Friday with 13.9 billion yen ($130 million) in debt as the coronavirus outbreak stalled its business.`\
+https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-health-coronavirus-japan-renown.html?searchResultPosition=3
+
+**By Default: Virus Threatens to Derail Retail Boom for Indian Lenders**\
+`Indian lenders are facing a jump in coronavirus-related defaults on credit card dues, personal and vehicle loans, forcing them to set aside hundreds of millions of dollars and take steps like asking sales staff to track down borrowers who have vanished.`\
+https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-health-coronavirus-india-loans-analysis.html?searchResultPosition=4
+
+**US Retail Sales Likely Tumbled in April as Virus Took Hold**\
+`U.S. retail sales likely plummeted last month as the coronavirus paralyzed the economy, kept away millions of shoppers and threatened the future of stores across the country.`\
+https://nytimes.com/aponline/2020/05/15/business/bc-us-retail-sales.html?searchResultPosition=5
+
+**Trump’s Ratings on the Virus Are Sagging. Why Isn’t Biden Surging?**\
+`Joe Biden may have a lead in most polls, but it’s not anywhere close to a comfortable one.`\
+https://nytimes.com/2020/05/15/us/politics/biden-trump-polls.html?searchResultPosition=6
+
+**Masks, Tests, Empty Stadiums: Bundesliga Resumes Amid Virus**\
+`No fans, no hugging, no spitting.`\
+https://nytimes.com/aponline/2020/05/15/sports/soccer/ap-soc-germany-restart.html?searchResultPosition=7
+
 **Georgia Will Cancel Its Coronavirus State of Emergency After May 22: TASS**\
 `Georgia will cancel the state of emergency it declared over the new coronavirus after May 22, the TASS news agency cited Georgia's Prime Minister Giorgi Gakharia as saying on Friday. `\
-https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-georgia-emergency.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-georgia-emergency.html?searchResultPosition=8
 
 **Futures Edge Higher on China Industrial Data**\
 `U.S. stock index futures rose on Friday as better-than-expected industrial data from China raised hopes of an eventual economic recovery from coronavirus-related lockdowns.`\
-https://nytimes.com/reuters/2020/05/15/business/15reuters-usa-stocks.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/15/business/15reuters-usa-stocks.html?searchResultPosition=9
 
 **Motorcycling: No Return for Lorenzo in 2020 as MotoGP Cancels Wild Cards**\
 `Former MotoGP world champion Jorge Lorenzo will not have a chance to race this season after series organisers ruled out wild card entries due to the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/05/15/sports/autoracing/15reuters-health-coronavirus-motogp.html?searchResultPosition=3
-
-**As Euro Zone Recession Deepens, ECB to Scale Up Bond Buying Next Month**\
-`The euro zone economy's worst recession on record will be even deeper than forecast less than a month ago, according to a Reuters poll of economists who said the European Central Bank will ramp up its bond-buying again next month.`\
-https://nytimes.com/reuters/2020/05/15/us/15reuters-eurozone-economy-poll.html?searchResultPosition=4
-
-**Afghan Accused of Mutilating Wife After She Asks for Divorce**\
-`An Afghan man cut off his wife's nose with a kitchen knife after she asked for a divorce, officials said on Friday, amid a surge in domestic violence triggered by the coronavirus lockdown.`\
-https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-afghanistan-crime-women.html?searchResultPosition=5
-
-**Hong Kong Government Will Accept Police Watchdog Recommendations, Says Lam**\
-`Hong Kong leader Carrie Lam said on Friday her government will accept the recommendations made by the police watchdog in its review of the force's handling of often violent pro-democracy protests since June last year.`\
-https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-hongkong-protests-carrielam.html?searchResultPosition=6
-
-**Britain's Markets Watchdog Says Business Interruption Case Will Be Legally Binding**\
-`Britain's Financial Conduct Authority said on Friday a test case it is bringing over business interruption claims would be legally binding for those insurers involved in the case.`\
-https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-insurance.html?searchResultPosition=7
-
-**Hawaii Plans to Extend Stay-At-Home Measures, Travel Quarantine Until End of June**\
-`Hawaii is likely to keep its coronavirus stay-at-home measures in place until the end of June and will also discourage tourists from visiting, state Governor David Ige said.`\
-https://nytimes.com/reuters/2020/05/15/us/15reuters-health-coronavirus-usa-hawaii.html?searchResultPosition=8
-
-**Hong Kong Police Watchdog Upholds Actions Against Protesters**\
-`A long-awaited report from an official Hong Kong police watchdog group issued Friday said officers used force only in response to threats to their safety during months of anti-government protests last year.`\
-https://nytimes.com/aponline/2020/05/15/world/asia/ap-as-hong-kong-protests.html?searchResultPosition=9
-
-**Austrian Culture Minister Quits Amid Criticism in Crisis**\
-`Austria’s culture minister resigned on Friday amid mounting criticism and disappointment with her performance in the coronavirus crisis.`\
-https://nytimes.com/aponline/2020/05/15/world/europe/ap-eu-austria-minister-quits.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/15/sports/autoracing/15reuters-health-coronavirus-motogp.html?searchResultPosition=10
 
