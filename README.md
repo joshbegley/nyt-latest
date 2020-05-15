@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-health-coronavirus-j
 `Global oil refining production could start rebounding in June, the International Energy Agency said on Thursday, but refiners' margins may be squeezed due to rising crude prices as producers slashed output much faster than expected.`\
 https://nytimes.com/reuters/2020/05/15/us/15reuters-global-oil-refining.html?searchResultPosition=5
 
-**Your Friday Briefing**\
-`Coronavirus, U.S. Jobless Claims, Amazon: Here’s what you need to know.`\
+**Coronavirus, U.S. Jobless Claims, Amazon: Your Friday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/05/15/briefing/coronavirus-america-jobless-claims-amazon.html?searchResultPosition=6
 
 **Cathay Pacific Losing Money, Says Business Outlook Remains 'Very Bleak'**\
