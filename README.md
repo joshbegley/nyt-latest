@@ -1,40 +1,40 @@
+**German Finance Minister Calls for Fund to Restart Europe's Economy**\
+`A pan-European fund is needed to restart Europe's economy after the lockdown imposed to slow the spread of the coronavirus, German Finance Minister Olaf Scholz said on Friday ahead of a video conference with his fellow euro zone finance ministers.`\
+https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-eurogroup-scholz.html?searchResultPosition=1
+
+**Motor Racing: Spa Given Green Light for Belgian GP Without Spectators**\
+`The Belgian Formula One Grand Prix, scheduled for the end of August but threatened by the COVID-19 pandemic, can go ahead without spectators, regional authorities said on Friday.`\
+https://nytimes.com/reuters/2020/05/15/sports/autoracing/15reuters-health-coronavirus-f1-belgium.html?searchResultPosition=2
+
+**I'll Give Up Pandemic Decree Power This Month, Hungary's Orban Says**\
+`Hungary's nationalist prime minister, Viktor Orban, said on Friday he expected to renounce a set of much-criticised emergency powers to fight the coronavirus this month.`\
+https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-hungary-serbia.html?searchResultPosition=3
+
+**Mexico Now Says Auto Sector Could Reopen Before June 1**\
+`Mexico's automotive industry can exit the coronavirus lockdown before June 1 if companies have approved safety measures in place, the government said on Friday, seeking to set the record straight after sending out confusing signals on the matter.`\
+https://nytimes.com/reuters/2020/05/15/world/americas/15reuters-health-coronavirus-mexico-economy.html?searchResultPosition=4
+
+**Morningstar Agrees to Pay $3.5 Mln to Settle U.S. SEC Charges: Statement**\
+`Morningstar Credit Ratings LLC has agreed to pay $3.5 million to settle U.S. Securities and Exchange Commission (SEC) charges for violating a conflict of interest rule, the agency said in a statement on Friday.`\
+https://nytimes.com/reuters/2020/05/15/us/15reuters-usa-sec-morningstar.html?searchResultPosition=5
+
+**Hologic's Latest COVID-19 Test Gets FDA Approval for Emergency Use**\
+`Hologic Inc said on Friday the U.S. Food and Drug Administration granted emergency use authorization for its COVID-19 diagnostic test that can provide initial results in about three hours and process more than 1,000 tests in 24 hours.`\
+https://nytimes.com/reuters/2020/05/15/us/15reuters-health-coronavirus-test-hologic.html?searchResultPosition=6
+
+**Chinese Envoy Says U.S. Undermining Global Economy, Virus Fight**\
+`A Chinese envoy has accused the United States of undermining the global economy by building trade barriers and artificially prolonging the global coronavirus pandemic by halting funding to the World Health Organization.`\
+https://nytimes.com/reuters/2020/05/15/world/americas/15reuters-health-coronavirus-china-envoy.html?searchResultPosition=7
+
+**Oprah’s 2020 Commencement Tries to Make Up for Lost Traditions**\
+`Graduates aren’t getting the usual pomp and circumstance this year. Instead, Oprah Winfrey and many, many other celebrities will offer virtual celebrations.`\
+https://nytimes.com/2020/05/15/us/oprah-winfrey-2020-commencement-speech.html?searchResultPosition=8
+
 **Why Sofas? These Books Explain the Joys and Mysteries of the Home**\
 `Whether you live in an apartment, house, mansion or cabin, here are books that will help you explore the meaning of where you are right now.`\
-https://nytimes.com/2020/05/15/books/review/coronavirus-books-about-house-home.html?searchResultPosition=1
+https://nytimes.com/2020/05/15/books/review/coronavirus-books-about-house-home.html?searchResultPosition=9
 
 **Poland's Interim Top Judge Resigns in Supreme Court Turmoil**\
 `The interim head of Poland's Supreme Court resigned on Friday, deepening judicial and political turmoil in a country struggling to choose its top judge and decide when presidential elections that were due in May will eventually be held.`\
-https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-poland-judiciary.html?searchResultPosition=2
-
-**Once Adversaries, Boston Lawyers Now Aid COVID-19 Caregivers**\
-`During a storied legal career, Clyde Bergstresser has become one of the go-to medical malpractice lawyers in Massachusetts. But as COVID-19 cases surged at Boston area hospitals, Bergstresser found his sympathies aligning with the professions he has often fingered in million-dollar lawsuits.`\
-https://nytimes.com/aponline/2020/05/15/us/ap-virus-outbreak-one-good-thing-lawyers.html?searchResultPosition=3
-
-**Invesco Fund Manager Barnett to Leave After 24 Years**\
-`Invesco Ltd said money manager Mark Barnett would leave the company after 24 years, ending a tough couple of years in which clients pulled billions from his funds.`\
-https://nytimes.com/reuters/2020/05/15/business/15reuters-invesco-moves.html?searchResultPosition=4
-
-**Pakistan's Ferozsons to Begin Producing COVID-19 Drug Remdesivir**\
-`Pakistan will soon start production of the antiviral drug remdesivir, which has shown promise in treating the novel coronavirus, the country's top health official and a pharmaceutical company's chief executive announced on Friday.`\
-https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-health-coronavirus-pakistan-remdesivir.html?searchResultPosition=5
-
-**Extremists Step Up Violence in Gas-Rich Northern Mozambique**\
-`Mozambique’s armed forces have killed 50 Islamic extremist fighters this week in two battles in the country's north where the insurgents have launched 11 attacks this month, the government said Thursday.`\
-https://nytimes.com/aponline/2020/05/15/world/africa/ap-af-mozambique-extremist-violence-.html?searchResultPosition=6
-
-**Malaysia Drops Charge Against 'Wolf of Wall Street' Producer**\
-`Malaysian prosecutors have dropped money laundering charges against “The Wolf of Wall Street” film producer and stepson of ex-Prime Minister Najib Razak in a move slammed by Human Rights Watch on Friday as a “triumph for impunity and corruption."`\
-https://nytimes.com/aponline/2020/05/15/business/ap-as-malaysia-corruption.html?searchResultPosition=7
-
-**Why So Many Filipino Californians Are on the Front Lines**\
-`Friday: A look at how history has shaped American nursing. Also: Gov. Gavin Newsom unveiled his revised budget proposal.`\
-https://nytimes.com/2020/05/15/us/california-governor-newsom-budget-coronavirus.html?searchResultPosition=8
-
-**One Side Effect of the Virus: Free Credit Reports Each Week**\
-`That’s an improvement over the normal once-a-year limit. While it won’t fix potential credit woes, it can be a helpful tool to stay on top of your finances.`\
-https://nytimes.com/2020/05/15/your-money/coronavirus-credit-reports.html?searchResultPosition=9
-
-**‘The Blacklist’ Draws Up a Novel End to Its Season**\
-`The showrunners for the NBC thriller discuss how and why they hired animators to finish the season after the pandemic brought production to a halt. The finale airs Friday night.`\
-https://nytimes.com/2020/05/15/arts/television/the-blacklist-animated-season-finale.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-poland-judiciary.html?searchResultPosition=10
 
