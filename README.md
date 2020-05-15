@@ -1,4 +1,4 @@
-**Fed's Powell to Appear on CBS' '60 Minutes' on Sunday - CBS**\
+**Fed's Powell to Appear on CBS' '60 Minutes' on Sunday: CBS**\
 `U.S. Federal Reserve Chair Jerome Powell will appear on CBS' "60 Minutes" news show on Sunday at 7 p.m., the network said on Friday, his second broadcast television interview since the outbreak of the coronavirus pandemic prompted the Fed into a series of emergency moves to stabilize the economy. `\
 https://nytimes.com/reuters/2020/05/15/us/15reuters-usa-fed-powell.html?searchResultPosition=2
 
