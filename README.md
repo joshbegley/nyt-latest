@@ -1,40 +1,40 @@
-**Coronavirus Live Updates: Congress Debates New Relief as State Budgets Are Ravaged**\
-`A $3 trillion package would include billions for struggling states but has been criticized as a “blue-state bailout” by Republican leaders. A test used on White House personnel might not be accurate, the F.D.A. said.`\
-https://nytimes.com/2020/05/15/us/coronavirus-updates.html?searchResultPosition=1
+**No Pomp and Circumstance? No Problem**\
+`Students, parents and alumni are making graduation a special occasion, even in quarantine.`\
+https://nytimes.com/2020/05/15/style/graduation-parties-2020.html?searchResultPosition=1
 
-**Malaysia Reports 36 New Coronavirus Cases With No New Deaths**\
-`Malaysia reported 36 new coronavirus cases on Friday with no additional deaths, the health ministry said. `\
-https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-health-coronavirus-malaysia.html?searchResultPosition=2
+**What Home Means to the Homeless**\
+`These are the things they hung on to, when so many things were lost.`\
+https://nytimes.com/2020/05/15/opinion/sunday/homeless-photographs.html?searchResultPosition=2
 
-**German Stats Office: Most Forecasts Point to 10% Second-Quarter GDP Contraction**\
-`Most forecasts see the German economy contracting by about 10% in the second quarter but the exact extent of the slump depends in part on the easing of restrictions on public life, Federal Statistics Office official Albert Braakmann said on Friday.`\
-https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-germany-economy-gdp-outlook.html?searchResultPosition=3
+**Lobby Heroes of the Lockdown**\
+`Doormen and supers keep New York’s miniature vertical cities humming. But that’s not all they’re doing.`\
+https://nytimes.com/2020/05/15/nyregion/coronavirus-doormen-residential-nyc.html?searchResultPosition=3
 
-**Eurovision’s Canceled, but Not for These Fans**\
-`Europe’s annual song contest would have had its final this Saturday. Its devoted followers aren’t letting its coronavirus-related cancellation slow them down.`\
-https://nytimes.com/2020/05/15/arts/music/eurovision-fans.html?searchResultPosition=4
+**Trump Is Following in Herbert Hoover’s Footsteps**\
+`And we know how that worked out.`\
+https://nytimes.com/2020/05/15/opinion/coronavirus-trump-hoover.html?searchResultPosition=4
 
-**Swedish Central Bank to Use Blackrock for Corporate Bond Market Analysis**\
-`Sweden's central bank will engage BlackRock’s Financial Markets Advisory for analysis work on the Swedish corporate bonds market, it said in a statement on Friday.`\
-https://nytimes.com/reuters/2020/05/15/business/15reuters-riksbank-corporate-bonds-analysis.html?searchResultPosition=5
+**Examining the Meaning of ‘Mrs.’**\
+`In a new special project, a team of Times reporters and editors is taking a deeper look at the tradition of using honorifics to address married women.`\
+https://nytimes.com/2020/05/15/reader-center/examining-the-meaning-of-mrs.html?searchResultPosition=5
 
-**EU Weighs Stance Amid Concern Over Israeli Annexation Plans**\
-`European Union foreign ministers will weigh later Friday what action the bloc could take should Israeli Prime Minister Benjamin Netanyahu push ahead with plans to annex the West Bank in coming months.`\
-https://nytimes.com/aponline/2020/05/15/world/europe/ap-eu-europe-mideast.html?searchResultPosition=6
+**America’s Cities Could House Everyone, if They Chose To**\
+`Our housing crisis is a symptom of America’s wealth, and its indifference.`\
+https://nytimes.com/2020/05/15/opinion/homeless-crisis-affordable-housing-cities.html?searchResultPosition=6
 
-**Two More Migrants Quarantined on Lesbos Test Positive for COVID-19**\
-`Two asylum seekers recently arrived on Greece's Lesbos island, the site of the country's biggest migrant camp, have tested positive for the coronavirus, migration ministry sources said on Friday.`\
-https://nytimes.com/reuters/2020/05/15/world/europe/15reuters-health-coronavirus-greece-migrants.html?searchResultPosition=7
+**9 Top (and Stubborn) Design Trends**\
+`And how they came to be staples on Instagram and in our homes.`\
+https://nytimes.com/2020/05/15/realestate/9-top-and-stubborn-design-trends.html?searchResultPosition=7
 
-**Credit Rating 'Fallen Angel' Danger at Record High: S&P Global**\
-`The number of companies or countries at risk of seeing their credit ratings cut to junk from investment grade has been pushed to a record high of 111 by the coronavirus pandemic, S&P Global analysis shows.`\
-https://nytimes.com/reuters/2020/05/15/world/americas/15reuters-ratings-fallenangels-s-p.html?searchResultPosition=8
+**Livestreams to Watch: A Star-Studded Graduation Event, and Katy Perry Performs**\
+`Appointment viewing is back. Find out what online events to look for in the coming days, and when to tune in.`\
+https://nytimes.com/2020/05/15/arts/graduation-facebook-livestreaming-coronavirus.html?searchResultPosition=8
 
-**Philippines' Coronavirus Infections Top 12,000, Deaths Pass 800 Mark**\
-`The number of novel coronavirus cases in the Philippines' has passed the 12,000 mark, and more than 800 people have now died, the health ministry said on Friday.`\
-https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-health-coronavirus-philippines-cases.html?searchResultPosition=9
+**‘We’re Just Horrified’: Why a Springsteen Sideman Took on Nursing Homes**\
+`After his mother-in-law was infected with the coronavirus, the guitarist for Bruce Springsteen’s E Street Band became determined to make nursing homes accountable.`\
+https://nytimes.com/2020/05/15/us/politics/were-just-horrified-why-a-springsteen-sideman-took-on-nursing-homes.html?searchResultPosition=9
 
-**Main Opposition Candidate Leaves Poland's Presidential Race**\
-`The main opposition candidate in Poland’s trouble-ridden presidential election said Friday she was quitting the race after her support dropped dramatically. `\
-https://nytimes.com/aponline/2020/05/15/world/europe/ap-eu-poland-politics.html?searchResultPosition=10
+**Bringing ‘Normal People’ to Sexy, Soundtracked Life**\
+`Critics at The Times discuss the transfer of Sally Rooney’s novel to TV.`\
+https://nytimes.com/2020/05/15/books/normal-people-sally-rooney-hulu-adaptation.html?searchResultPosition=10
 
