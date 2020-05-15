@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/05/15/world/asia/15reuters-thailand-economy-gdp
 `The phone rings and the voice on the other side gets straight to the point: "Fancy a pint?"`\
 https://nytimes.com/aponline/2020/05/15/world/europe/ap-eu-virus-outbreak-britain-pubs-closed.html?searchResultPosition=8
 
-**William Hill Revenue Hit by Sports Events Cancellations, Shop Closures**\
-`William Hill on Friday posted a 57% plunge in total net revenue for the weeks since coronavirus lockdowns were imposed in Europe and North America, as sports betting volumes collapsed and it was forced to close its retail network of betting shops.`\
+**William Hill Revenue Falls 57% in COVID Lockdowns**\
+`Total net revenue at William Hill plunged 57% in the weeks following the start of coronavirus lockdowns in Europe and North America, as sports betting volumes collapsed and it was forced to close its retail network of betting shops.`\
 https://nytimes.com/reuters/2020/05/15/sports/15reuters-william-hill-outlook.html?searchResultPosition=9
 
 **Britain Approves Abbott's COVID-19 Antibody Test**\
