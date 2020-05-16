@@ -27,7 +27,7 @@ https://nytimes.com/2020/05/16/sports/football/cody-latimer-arrest-redskins.html
 https://nytimes.com/reuters/2020/05/16/world/europe/16reuters-health-coronavirus-britain-boe.html?searchResultPosition=8
 
 **Obama Criticizes Virus Response in Online Graduation Speech**\
-`Former President Barack Obama on Saturday criticized some officials overseeing the coronavirus response, telling college graduates in an online commencement address that the pandemic shows many officials "aren’t even pretending to be in charge.”`\
+`Former President Barack Obama on Saturday criticized U.S. leaders overseeing the nation's response to the coronavirus, telling college graduates in an online commencement address that the pandemic shows many officials "aren’t even pretending to be in charge.”`\
 https://nytimes.com/aponline/2020/05/16/us/politics/ap-us-obama-graduation-.html?searchResultPosition=9
 
 **Nevada Rep. Horsford Acknowledges He Had Extramarital Affair**\
