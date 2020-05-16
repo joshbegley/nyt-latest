@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/05/16/world/europe/16reuters-health-coronavirus
 https://nytimes.com/2020/05/16/sports/football/cody-latimer-arrest-redskins.html?searchResultPosition=4
 
 **Bank of England Looking More Urgently at Negative Rates, Riskier Assets: Haldane**\
-`The Bank of England is looking more urgently at options such as negative interest rates and buying riskier assets to prop up the country's economy to fight the coronavirus crisis, the BoE's chief economist was quoted as saying.`\
+`The Bank of England is looking more urgently at options such as negative interest rates and buying riskier assets to prop up the country's economy as it slides into a deep coronavirus slump, the BoE's chief economist was quoted as saying.`\
 https://nytimes.com/reuters/2020/05/16/world/europe/16reuters-health-coronavirus-britain-boe.html?searchResultPosition=5
 
 **Obama Criticizes Virus Response in Online Graduation Speech**\
