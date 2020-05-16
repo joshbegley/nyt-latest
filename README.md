@@ -14,7 +14,7 @@ https://nytimes.com/2020/05/16/arts/astrid-kirchherr-dead.html?searchResultPosit
 `Around 600 banks, most of them small community institutions, tapped the Federal Reserve's Paycheck Protection Program facility for about $30 billion of loans as of May 6, the U.S. central bank reported on Saturday in its first detailed disclosure under the new program.`\
 https://nytimes.com/reuters/2020/05/16/us/16reuters-usa-fed-ppp.html?searchResultPosition=5
 
-**New York to Reopen Auto, Horse Racing Tracks Without Fans**\
+**New York to Reopen Auto, Horse-Racing Tracks Without Fans**\
 `New York's Watkins Glen International auto race circuit and several horse racing tracks in the state can reopen without fans from June 1, Governor Andrew Cuomo said on Saturday. `\
 https://nytimes.com/reuters/2020/05/16/nyregion/16reuters-health-coronavirus-newyork-sports.html?searchResultPosition=6
 
