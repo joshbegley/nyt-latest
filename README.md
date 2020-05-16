@@ -4,7 +4,7 @@ https://nytimes.com/aponline/2020/05/16/sports/soccer/ap-soc-england-sansom.html
 
 **Iran Sentences French-Iranian Academic to 6 Years in Prison**\
 `Fariba Adelkhah has been detained north of Tehran since 2019.`\
-https://nytimes.com/2020/05/16/world/europe/fariba-adelkah-iran.html?searchResultPosition=3
+https://nytimes.com/2020/05/16/world/middleeast/fariba-adelkah-iran.html?searchResultPosition=3
 
 **Serbia Deploys Army Near Border to Protect Against Migrants**\
 `Serbia has sent its army to a town near the border with Croatia where hundreds of migrants remain stranded in hopes of reaching the European Union.`\
