@@ -2,7 +2,7 @@
 `The filmmaker got a late start on her career but won acclaim for a freewheeling style that made room for contributions from actors like Marc Maron, who survives her.`\
 https://nytimes.com/2020/05/16/obituaries/lynn-shelton-dead.html?searchResultPosition=2
 
-**Hundreds Demand Justice at Georgia Rally in Arbery Case**\
+**Hundreds Demand Justice for Arbery at Georgia Rally**\
 `Justice for Ahmaud Arbery, a black man killed during a pursuit by a white man and his son in Georgia, isn't just prison time for his killers — it's changes in a local justice system that never charged them with a crime, rallygoers said Saturday.`\
 https://nytimes.com/aponline/2020/05/16/us/ap-us-georgia-chase-deadly-shooting.html?searchResultPosition=3
 
