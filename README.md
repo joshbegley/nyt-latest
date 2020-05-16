@@ -1,36 +1,36 @@
+**Exclusive: FBI Probes Mexican, European Firms Over Venezuela Oil Trading-Sources**\
+`The FBI is probing several Mexican and European companies allegedly involved in trading Venezuelan oil as it gathers information for a U.S. Treasury Department inquiry into possible sanctions busting, according to four people familiar with the matter.`\
+https://nytimes.com/reuters/2020/05/16/world/americas/16reuters-venezuela-usa-oil-probe-exclusive.html?searchResultPosition=2
+
 **Colombian Director Films Quarantine 'Bathroom' Comedy With Mobile Phones**\
 `This time there are no lights, cameras, dressing rooms or the hundreds of people who usually crowd a film shoot. There is just a mobile phone, a tripod, a bathroom and "Action!"`\
-https://nytimes.com/reuters/2020/05/16/arts/16reuters-health-coronavirus-colombia-film.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/16/arts/16reuters-health-coronavirus-colombia-film.html?searchResultPosition=3
 
 **Swim but Don't Sunbathe-French Riviera Beach Re-Opens With Post-Lockdown Rules**\
 `Bathers took a dip in the sea or strolled Nice's Promenade des Anglais on the French Riviera on Saturday, many wearing protective masks, as the beach reopened to the public for the first time since a nationwide coronavirus lockdown in mid-March.`\
-https://nytimes.com/reuters/2020/05/16/world/europe/16reuters-health-coronavirus-france-beaches.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/16/world/europe/16reuters-health-coronavirus-france-beaches.html?searchResultPosition=4
 
 **Doctor to Congress and Supreme Court Toils to Sidestep Politics Amid Pandemic**\
 `Dr. Brian P. Monahan has found himself in the middle of politicized debates over how quickly to reopen the country and who should be testing for Covid-19.`\
-https://nytimes.com/2020/05/16/us/politics/congress-doctor-virus-brian-monahan.html?searchResultPosition=4
+https://nytimes.com/2020/05/16/us/politics/congress-doctor-virus-brian-monahan.html?searchResultPosition=5
 
 **How Washington Learned to Embrace the Budget Deficit**\
 `Many economists who once warned of mounting debt are now urging lawmakers to spend more to combat economic pain from coronavirus.`\
-https://nytimes.com/2020/05/16/business/deficits-virus-economists-trump.html?searchResultPosition=5
+https://nytimes.com/2020/05/16/business/deficits-virus-economists-trump.html?searchResultPosition=6
 
 **Giants CB Baker Turns Himself In to Face Florida Charges**\
 `New York Giants cornerback DeAndre Baker turned himself in to police in Florida on Saturday morning to face four counts of armed robbery with a firearm and four counts of aggravated assault.`\
-https://nytimes.com/reuters/2020/05/16/sports/football/16reuters-football-nfl-nyg-baker-arrest.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/05/16/sports/football/16reuters-football-nfl-nyg-baker-arrest.html?searchResultPosition=7
 
 **Live Golf Returns to TV With a Different Look at Seminole**\
 `Live golf returns to television on Sunday, and it might not look entirely familiar except for the players.`\
-https://nytimes.com/aponline/2020/05/16/sports/golf/ap-glf-seminole-match.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/05/16/sports/golf/ap-glf-seminole-match.html?searchResultPosition=8
 
 **Return to Play or Not? A Thorny Question for Youth Sports**\
 `Konrad Ott and some of the parents with his Northern California girls volleyball club skipped a popular Florida tournament that is now postponed. They could soon face a similar decision about a national event in Dallas.`\
-https://nytimes.com/aponline/2020/05/16/sports/ap-us-virus-outbreak-youth-sports.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/05/16/sports/ap-us-virus-outbreak-youth-sports.html?searchResultPosition=9
 
 **Italy's Daily Coronavirus Death Toll Dips to Lowest Since March 9**\
 `The daily toll from the COVID-19 epidemic in Italy fell to 153 on Saturday, its lowest since March 9, against 242 the day before, the Civil Protection Agency said, while the daily tally of new cases increased to 875 from 789 on Friday.`\
-https://nytimes.com/reuters/2020/05/16/world/europe/16reuters-health-coronavirus-italy-tally.html?searchResultPosition=9
-
-**Bye Buy Games? G5 Could Lose Millions in Power 5 Payouts**\
-`In 2018, with his school facing the possibility of cutting staff to make up a huge shortfall in state funding, Northern Illinois athletic director Sean Frazier added a football game at Florida State to the Huskies' schedule.`\
-https://nytimes.com/aponline/2020/05/16/sports/ncaafootball/ap-fbc-buy-games.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/16/world/europe/16reuters-health-coronavirus-italy-tally.html?searchResultPosition=10
 
