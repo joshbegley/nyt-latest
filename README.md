@@ -27,7 +27,7 @@ https://nytimes.com/2020/05/16/us/politics/abraham-lincoln-trump-biden.html?sear
 https://nytimes.com/reuters/2020/05/16/us/16reuters-health-coronavirus-tests.html?searchResultPosition=8
 
 **Canada's Trudeau to Look at Possible Further Aid for Airlines, After Air Canada Layoffs**\
-`Canadian Prime Minister Justin Trudeau said on Saturday that he would look at possible ways to help airlines further, but announced no new measures after the country’s biggest airline Air Canada said it would lay off most of its workers.`\
+`Canadian Prime Minister Justin Trudeau said on Saturday he would look at possible ways to help airlines further, but laid out no new measures after the country’s biggest airline announced mass layoffs due to the coronavirus pandemic. `\
 https://nytimes.com/reuters/2020/05/16/business/16reuters-health-coronavirus-canada.html?searchResultPosition=9
 
 **Soccer: Eerie Silence Across Stadiums on Bundesliga Restart**\
