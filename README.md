@@ -18,8 +18,8 @@ https://nytimes.com/2020/05/15/pageoneplus/corrections-may-16-2020.html?searchRe
 `The Texas Supreme Court on Friday blocked a lower-court order that had allowed residents to vote by mail if they cite concerns about catching the coronavirus at polling places.`\
 https://nytimes.com/aponline/2020/05/15/us/ap-us-election-2020-texas.html?searchResultPosition=6
 
-**Pompeo Fires State Dept. Watchdog Critical of Trump Moves**\
-`Secretary of State Mike Pompeo has fired the State Department’s inspector general, an Obama administration appointee whose office was critical of alleged political bias in the agency’s management.`\
+**Trump Fires State Dept. Watchdog Critical of Admin Moves**\
+`President Donald Trump has fired the State Department’s inspector general, an Obama administration appointee whose office was critical of alleged political bias in the agency’s management.`\
 https://nytimes.com/aponline/2020/05/15/us/politics/ap-us-united-states-state-department.html?searchResultPosition=7
 
 **Germany's Confirmed Coronavirus Cases Rise by 620 to 173,772: RKI**\
