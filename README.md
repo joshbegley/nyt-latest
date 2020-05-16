@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/05/16/world/americas/ap-lt-guatemala-us-migrat
 https://nytimes.com/aponline/2020/05/16/sports/ap-rac-preakness.html?searchResultPosition=8
 
 **Blackstone Shale Oil Venture Gavilan Resources Files for Bankruptcy**\
-`Blackstone Group's Gavilan Resources LLC filed for Chapter 11 bankruptcy on Friday, citing this year's oil price collapse and a bitter legal battle with a partner. `\
+`Blackstone Group's Gavilan Resources LLC filed for Chapter 11 bankruptcy late on Friday, citing this year's oil price collapse and a bitter legal battle with a partner. `\
 https://nytimes.com/reuters/2020/05/16/us/16reuters-gavilan-resources-bankruptcy.html?searchResultPosition=9
 
 **Europe Should Temporarily Ban Chinese Takeovers: Germany's Weber**\
