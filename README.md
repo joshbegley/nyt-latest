@@ -10,8 +10,8 @@ https://nytimes.com/2020/05/16/world/europe/germany-flag-burning-law.html?search
 `U.K.-based multinational groceries chain Tesco PLC has found abuses against migrant workers at its stores and distribution centres in Malaysia and Thailand, it said in its annual modern slavery statement.`\
 https://nytimes.com/reuters/2020/05/16/business/16reuters-tesco-malaysia-workers.html?searchResultPosition=4
 
-**Germany Mulls 57 Billion Euros Emergency Aid for Virus-Hit Municipalities: Document**\
-`German Finance Minister Olaf Scholz is working on an aid package worth 57 billion euros ($61.65 billion) to help municipalities cope with a plunge in tax revenues caused by the coronavirus crisis, a finance ministry document showed on Saturday.`\
+**Germany Plans 57 Billion Euro Aid Package for Virus-Hit Municipalities**\
+`German Finance Minister Olaf Scholz is working on an aid package worth 57 billion euros ($61.65 billion) to help municipalities cope with plunging tax revenues caused by the coronavirus crisis, a ministry document showed on Saturday.`\
 https://nytimes.com/reuters/2020/05/16/world/europe/16reuters-health-coronavirus-germany-budget.html?searchResultPosition=5
 
 **Married but Living Far Apart**\
