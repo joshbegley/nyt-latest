@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/05/16/world/europe/16reuters-health-coronavirus
 `Some couples, driven by their careers, decide to stay put rather than move in with their spouse. Lately, some have changed their minds about that arrangement.`\
 https://nytimes.com/2020/05/16/fashion/weddings/coronavirus-some-couples-reconsider-living-apart.html?searchResultPosition=6
 
-**Rwanda Genocide Suspect Kabuga Arrested in Paris Region: French Justice Ministry**\
-`Rwandan genocide suspect Felicien Kabuga was arrested on Saturday in the Paris region, the French Justice Ministry said.`\
+**Rwanda Genocide Suspect Kabuga Arrested in Paris Region After 25 Years**\
+`Rwandan genocide suspect Felicien Kabuga, who is accused of funding militias that massacred about 800,000 people, was arrested on Saturday near Paris after 25 years on the run, the French justice ministry said.`\
 https://nytimes.com/reuters/2020/05/16/world/europe/16reuters-france-rwanda-arrest.html?searchResultPosition=7
 
 **No Special Favors: New Zealand Leader Turned Away From Cafe**\
