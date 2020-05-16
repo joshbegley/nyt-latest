@@ -1,5 +1,5 @@
 **Deadly Rio Police Raid Brings Crowds Into Streets of Quarantined Favela**\
-`A deadly police raid in Rio de Janeiro on Friday morning drew crowds into the streets of a neighborhood under quarantine, provoking criticism from residents and activists.`\
+`A deadly police raid in Rio de Janeiro on suspected drug traffickers on Friday morning drew crowds into the streets of a neighborhood under quarantine, provoking criticism from residents and activists.`\
 https://nytimes.com/reuters/2020/05/16/world/americas/16reuters-brazil-violence.html?searchResultPosition=2
 
 **2 Missouri Officers Accused of Assaulting Transgender Woman**\
