@@ -23,7 +23,7 @@ https://nytimes.com/2020/05/17/arts/music/moses-sumney-perfume-genius-review.htm
 https://nytimes.com/reuters/2020/05/17/us/17reuters-health-coronavirus.html?searchResultPosition=7
 
 **12 Los Angeles Firefighters Recovering After Explosion**\
-`Eight firefighters remained hospitalized Sunday after being injured in an explosion at a hash oil manufacturer in downtown Los Angeles that sent crews running for their lives when a ball of flames shot out of the building and scorched a fire truck across the street. `\
+`Eight firefighters remained hospitalized Sunday after being hurt in an explosion at a hash oil manufacturer in downtown Los Angeles that sent crews running for their lives when a ball of flames shot out of the building and scorched a fire truck across the street. `\
 https://nytimes.com/aponline/2020/05/17/us/ap-us-los-angeles-explosion.html?searchResultPosition=8
 
 **Senator Klobuchar Says Uber, Grubhub Combination Would Be Anticompetitive**\
