@@ -31,6 +31,6 @@ https://nytimes.com/reuters/2020/05/17/world/europe/17reuters-health-coronavirus
 https://nytimes.com/reuters/2020/05/17/world/asia/17reuters-health-coronavirus-indonesia.html?searchResultPosition=9
 
 **China Says Opposed to Latest U.S. Rules Against Huawei**\
-`China's commerce ministry said on Sunday it is firmly opposed to the latest rules by the United States against Huawei and will take all necessary measures to safeguard Chinese firms rights and interests.`\
+`China's commerce ministry said on Sunday it is firmly opposed to the latest rules by the United States against Huawei and will take all necessary measures to safeguard Chinese firms' rights and interests.`\
 https://nytimes.com/reuters/2020/05/17/business/17reuters-china-us-huawei.html?searchResultPosition=10
 
