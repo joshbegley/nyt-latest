@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/05/17/world/africa/17reuters-health-coronavirus
 https://nytimes.com/reuters/2020/05/17/world/americas/17reuters-health-coronavirus-mexico-market.html?searchResultPosition=7
 
 **Coronavirus Live Updates: Obama Cites Need for Leadership**\
-`Economic experts urge U.S. lawmakers to take on a bigger financial burden to help the country weather the pandemic. Medical workers face an increased risk of post-traumatic stress.`\
+`Researchers look at how pollution in low-income areas might be affecting the pandemic’s impact. Economic experts urge U.S. lawmakers to take on a bigger financial burden.`\
 https://nytimes.com/2020/05/17/us/coronavirus-live-updates.html?searchResultPosition=8
 
 **I’ll Take Biden’s Confusion Over Trump’s Corruption**\
