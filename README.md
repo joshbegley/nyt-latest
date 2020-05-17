@@ -30,7 +30,7 @@ https://nytimes.com/aponline/2020/05/17/world/europe/ap-eu-virus-outbreak-italy-
 `China has asked trading firms and food processors to boost inventories of grains and oilseeds as a possible second wave of coronavirus cases and worsening infection rates elsewhere raise concerns about global supply lines.`\
 https://nytimes.com/reuters/2020/05/17/business/17reuters-health-coronavirus-china-food.html?searchResultPosition=9
 
-**The Latest: UN Chief: LGBTI Vulnerable During Pandemic**\
+**The Latest: SKorea Needs Week to Judge Nightclub Virus Links**\
 `The Latest on the coronavirus pandemic. The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
 https://nytimes.com/aponline/2020/05/17/business/ap-virus-outbreak-the-latest.html?searchResultPosition=10
 
