@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/05/17/us/17reuters-health-coronavirus-usa-cdc.h
 `Wearing a face mask, Brazil's President Jair Bolsonaro posed for photographs with kids plucked out of a crowd of supporters on Sunday, disregarding public health advice aimed at containing one of the world's worst coronavirus outbreaks.`\
 https://nytimes.com/reuters/2020/05/17/world/americas/17reuters-health-coronavirus-brazil.html?searchResultPosition=7
 
-**France Says Coronavirus Death Toll Rises to 28,108**\
-`French health authorities reported 483 new coronavirus deaths on Sunday, bringing the total to 28,108.`\
+**France Coronavirus Death Toll Rises to 28,108: Ministry**\
+`France reported 483 new coronavirus deaths on Sunday, bringing the total to 28,108, as the country eases out of a two-month lockdown.`\
 https://nytimes.com/reuters/2020/05/17/world/europe/17reuters-health-coronavirus-france-cases.html?searchResultPosition=8
 
 **Americans Will Be Expelled From Iraq and Syria: Iran Supreme Leader**\
