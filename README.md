@@ -3,7 +3,7 @@
 https://nytimes.com/2020/05/16/us/AP-exams-test-glitch-virus.html?searchResultPosition=2
 
 **Phyllis George, Female Sportscasting Pioneer, Dies at 70**\
-`Phyllis George, the former Miss America who became a female sportscasting pioneer on CBS's “The NFL Today,” has died. She was 70.`\
+`Phyllis George, the former Miss America who became a female sportscasting pioneer on CBS's “The NFL Today” and served as the first lady of Kentucky, has died. She was 70.`\
 https://nytimes.com/aponline/2020/05/16/sports/ap-us-obit-phyllis-george.html?searchResultPosition=3
 
 **Michael McCaskey, Who Succeeded Halas as Bears' Leader, Dies**\
