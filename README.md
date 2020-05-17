@@ -10,8 +10,8 @@ https://nytimes.com/2020/05/17/health/coronavirus-children-inflammatory-syndrome
 `German ailing conglomerate Thyssenkrupp is in talks with international peers about consolidating its loss-making steel business, a person familiar with the matter said.`\
 https://nytimes.com/reuters/2020/05/17/business/17reuters-thyssenkrupp-steel.html?searchResultPosition=4
 
-**Jet From Canadian Air Force Exhibition Team Crashes: CBC**\
-`A jet from the Canadian air force's Snowbirds exhibition team crashed shortly following takeoff on Sunday from an airport in Kamloops in the Pacific province of British Columbia after the pilot ejected, the Canadian Broadcasting Corp said.`\
+**Jet From Canadian Air Force Show Team Crashes Into Residential Neighborhood: Witnesses**\
+`A jet from the Canadian air force's Snowbirds exhibition team crashed into a residential neighborhood in the British Columbia city of Kamloops on Sunday after the pilot ejected, witnesses said.`\
 https://nytimes.com/reuters/2020/05/17/world/americas/17reuters-canada-crash.html?searchResultPosition=5
 
 **Pirates Attack Tanker Off Yemen Coast, Causing Minor Damage**\
