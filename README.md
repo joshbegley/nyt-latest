@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/05/17/world/middleeast/17reuters-israel-politic
 `The Latest on the effects of the coronavirus outbreak on sports around the world:`\
 https://nytimes.com/aponline/2020/05/17/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=8
 
-**U.S. Likely to Revise Paycheck Protection Program to Cope With COVID-19 Impact: WSJ**\
-`The United States is expected to revise its aid program for small businesses to cope with the economic fallout of the coronavirus outbreak, the Wall Street Journal reported on Sunday. `\
+**U.S. Expected to Revise PPP Aid Program for Small Businesses: WSJ**\
+`The United States is expected to revise its aid program for small businesses to cope with the economic fallout of the coronavirus outbreak, the Wall Street Journal reported on Sunday.`\
 https://nytimes.com/reuters/2020/05/17/us/17reuters-health-coronavirus-usa-ppp.html?searchResultPosition=9
 
 **Syrian Tycoon Says Will Refuse Government Demand to Step Down From Mobile Operator**\
