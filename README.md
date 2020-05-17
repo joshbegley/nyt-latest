@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/05/16/world/asia/ap-as-china-bus-accident-.htm
 https://nytimes.com/aponline/2020/05/16/world/asia/ap-as-china-everest.html?searchResultPosition=3
 
 **Fire, Explosion in Los Angeles Injures 10 Firefighters**\
-`An explosion in downtown Los Angeles has injured 10 firefighters, and dozens more are trying to douse the blaze. `\
+`An explosion in downtown Los Angeles injured 10 firefighters Saturday, and more than 200 others rushed to the scene as the flames spread to several buildings.`\
 https://nytimes.com/aponline/2020/05/16/us/ap-us-los-angeles-explosion-.html?searchResultPosition=4
 
 **NZ Gives Sports Sector $157 Million Boost to Get Through COVID-19**\
