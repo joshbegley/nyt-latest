@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/05/17/world/asia/17reuters-health-coronavirus-a
 https://nytimes.com/aponline/2020/05/17/us/ap-virus-outbreak-.html?searchResultPosition=5
 
 **Walt Harris Loses 1st UFC Fight Since Stepdaughter's Death**\
-`Walt Harris lost his first UFC fight since the death of his stepdaughter.`\
+`Walt Harris pointed to the sky and proudly showed off a “Fighting for Aniah” T-shirt as he entered the arena. He left a few minutes later with tears in his eyes, hardly the result he wanted in his first UFC fight since the death of his stepdaughter.`\
 https://nytimes.com/aponline/2020/05/17/sports/ap-mma-ufc-jacksonville.html?searchResultPosition=6
 
 **China Central Bank Should Shun Risky Bond Buying as Economy Improves: Adviser**\
