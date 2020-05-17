@@ -1,5 +1,5 @@
 **‘The Sunday Read’: Letters of Recommendation**\
-`Our worlds are smaller now. So for today, peer through the views offered by a writer’s window, a grandmother’s diary and a believer’s superstition.`\
+`Our worlds are smaller now. So for today, peer through the views offered by a writer’s window, a grandmother’s diary and a believer’s superstition to find a bit of distraction.`\
 https://nytimes.com/2020/05/17/podcasts/the-daily/letters-of-recommendation.html?searchResultPosition=2
 
 **Oil, Tourism, Seafood -- All Hit in Louisiana Virus Fight**\
