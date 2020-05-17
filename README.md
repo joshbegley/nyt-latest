@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/05/17/world/middleeast/17reuters-health-sudan.h
 https://nytimes.com/aponline/2020/05/17/sports/soccer/ap-soc-germany-stadium-scene.html?searchResultPosition=7
 
 **13 Hurt, None Killed in Louisiana Memorial Service Shooting**\
-`Thirteen people were shot Saturday night as a large group gathered in a Louisiana city for a memorial service for a man killed earlier this week, authorities said.`\
+`Thirteen people were shot Saturday night as a large group gathered in a Louisiana city for a memorial service for a man whose body was found earlier this month, authorities said.`\
 https://nytimes.com/aponline/2020/05/17/us/ap-us-louisiana-memorial-service-shooting.html?searchResultPosition=8
 
 **Report: NHL, Players Make Progress on Return-To-Play Plan**\
