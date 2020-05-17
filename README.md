@@ -2,7 +2,7 @@
 `Shops, restaurants and hair salons prepared to reopen in Italy on Monday as the government further eased one of the world's strictest coronavirus lockdowns, saying it was taking a "calculated risk" to put the country back on its feet.`\
 https://nytimes.com/reuters/2020/05/17/world/europe/17reuters-health-coronavirus-italy-shops.html?searchResultPosition=2
 
-**Fed's Powell Says Full Economic Recovery Will Likely Require Coronavirus Vaccine: CBS**\
+**Fed's Powell Says Full Economic Recovery May Require Coronavirus Vaccine: CBS**\
 `Federal Reserve Chairman Jerome Powell said a U.S. economic recovery may stretch deep into next year and a full comeback may depend on a coronavirus vaccine.`\
 https://nytimes.com/reuters/2020/05/17/business/17reuters-usa-fed-powell.html?searchResultPosition=3
 
