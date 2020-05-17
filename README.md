@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/05/16/sports/golf/16reuters-golf-pga-gonzalez-o
 `J.C. Penney Co Inc said on Saturday a U.S. Bankruptcy Court will allow it to keep paying wages and benefits to workers who will remain on the job after the U.S. department store chain filed for Chapter 11 protection from creditors, and also to pay vendors for goods delivered to its stores.`\
 https://nytimes.com/reuters/2020/05/16/business/16reuters-jcpenney-bankruptcy.html?searchResultPosition=7
 
-**Brazil Registers 14,919 New Coronavirus Cases, 816 Deaths**\
-`Brazil confirmed 14,919 new cases of the novel coronavirus on Saturday, as well as 816 related deaths, according to data from the Health Ministry.`\
+**Brazil Passes Italy and Spain in Confirmed Coronavirus Cases**\
+`Brazil's confirmed cases of the novel coronavirus rose on Saturday past those of Spain and Italy, which was once the epicenter of the pandemic, making Brazil's outbreak the fourth largest in the world, according to official figures.`\
 https://nytimes.com/reuters/2020/05/16/world/americas/16reuters-health-coronavirus-brazil-cases.html?searchResultPosition=8
 
 **MLB-League Proposes Rigorous Testing Among Guidelines for Return**\
