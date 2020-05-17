@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/05/17/business/ap-us-virus-outbreak-graceland.
 https://nytimes.com/2020/05/17/opinion/coronavirus-cancer.html?searchResultPosition=5
 
 **Jordan's First Air Jordan Sneakers Sold for Record $560,000 at Sotheby's**\
-`NBA great Michael Jordan's autographed match-worn sneakers from his rookie season fetched a record $560,000 in an online auction, Sotheby's said https://www.sothebys.com/en/buy/auction/2020/the-one-mjs-air-jordan-1s/michael-jordans-game-worn-1985-player-sample-air?locale=en on Sunday.`\
+`NBA great Michael Jordan's autographed match-worn sneakers from his rookie season fetched a record $560,000 in an online auction, Sotheby's said on Sunday.`\
 https://nytimes.com/reuters/2020/05/17/arts/17reuters-basketball-jordan-sneakers.html?searchResultPosition=6
 
 **Pirates Attack Tanker Stolt Apal Off Yemen, Ship's Manager Says**\
