@@ -31,6 +31,6 @@ https://nytimes.com/reuters/2020/05/17/world/asia/17reuters-health-coronavirus-c
 https://nytimes.com/aponline/2020/05/17/sports/ap-car-paul-newberry-darlington.html?searchResultPosition=9
 
 **Asia Shares Make Cautious Gains, Oil and Gold Jump**\
-`Asian shares crept ahead on Monday and oil prices hit a five-week high as more countries re-opened their economies stirring hopes the world was nearer to emerging from recession.`\
+`Asian shares crept ahead on Monday and oil prices hit a five-week high as more countries re-opened their economies, stirring hopes the world was nearer to emerging from recession.`\
 https://nytimes.com/reuters/2020/05/17/business/17reuters-global-markets.html?searchResultPosition=10
 
