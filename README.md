@@ -1,36 +1,36 @@
+**Thermo Fisher Launches 39 Euros/share Bid for Qiagen**\
+`U.S. life science tools company Thermo Fisher on Monday launched its agreed $11.5 billion takeover offer for Qiagen, calling on investors of the German genetic testing specialist to tender their shares.`\
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-qiagen-m-a-thermo-fisher-offer.html?searchResultPosition=2
+
+**5 Things to Know Today-That Aren't About the Virus**\
+`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today:`\
+https://nytimes.com/aponline/2020/05/18/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=3
+
+**EU Calls for Independent Probe of WHO's Pandemic Response**\
+`The European Union and other countries on Monday called for an independent evaluation of the World Health Organization’s response to the coronavirus pandemic “to review experience gained and lessons learned.”`\
+https://nytimes.com/aponline/2020/05/18/business/bc-eu-virus-outbreak-who-probe.html?searchResultPosition=4
+
+**Libyan Forces Aligned With Tripoli Government Claim Key Air Base**\
+`Forces aligned with Libya's internationally recognised government said on Monday they had taken control of an air base south-west of Tripoli in what could be their most significant advance for nearly a year.`\
+https://nytimes.com/reuters/2020/05/18/world/africa/18reuters-libya-security.html?searchResultPosition=5
+
 **Thai Central Bank Seen Cutting Key Rate to Help Economy in Recession**\
 `Thailand's central bank is widely expected to cut its benchmark interest rate to a new low at its policy review on Wednesday to cushion the economy from the impact of the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-thailand-economy-rates.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-thailand-economy-rates.html?searchResultPosition=6
 
 **Hong Kong's Hang Seng Benchmark Paves Way to Include Alibaba**\
 `The Hang Seng Index made rule changes on Monday to allow it to incorporate Chinese internet giants Alibaba, Xiaomi and Meituan Dianping, a move set to shake up the composition of the 50-year-old index.`\
-https://nytimes.com/reuters/2020/05/18/technology/18reuters-china-hongkong-markets-alibaba.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/18/technology/18reuters-china-hongkong-markets-alibaba.html?searchResultPosition=7
 
 **2020 Watch: Battleground Map Taking Shape for Trump, Biden**\
 `Presidential politics move fast. What we’re watching heading into a new week on the 2020 campaign:`\
-https://nytimes.com/aponline/2020/05/18/us/politics/ap-us-election-2020-watch.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/05/18/us/politics/ap-us-election-2020-watch.html?searchResultPosition=8
 
 **QE or Not QE? China's Central Bank Grapples With Policy Dilemma**\
 `China's plans to step up stimulus support for the virus-ravaged economy have promoted a heated debate among economists and advisers over whether the central bank should monetize its fiscal deficit through quantitative easing.`\
-https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-china-economy-policy.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-china-economy-policy.html?searchResultPosition=9
 
 **Coronavirus in N.Y.C.: Latest Updates**\
 `With the state increasing its testing capacity, health officials are pushing more residents to get tested to help trace and contain the virus.`\
-https://nytimes.com/2020/05/18/nyregion/coronavirus-nyc.html?searchResultPosition=6
-
-**German Engineering Exports to See Double-Digit Decline in Second Quarter: VDMA**\
-`German engineering association VDMA on Monday said it expected exports to fall by a double-digit figure in the second quarter as the coronavirus take its toll on the sector.`\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-germany-engineering.html?searchResultPosition=7
-
-**GSK's Long-Acting Injection Beats Truvada in HIV Prevention Trial**\
-`GlaxoSmithKline said an injection every other month of its cabotegravir drug was shown to avert an HIV infection more effectively than Gilead's daily Truvada pill, potentially giving its ViiV unit a foothold in HIV prevention.`\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-gsk-hiv-prevention-trial.html?searchResultPosition=8
-
-**Japan to Put Off Bid to Raise Prosecutors' Retirement Age After Backlash**\
-`Japan's government will postpone a bid to raise the retirement age of public prosecutors, media said on Monday, given an intense public backlash fuelled by fears for judicial independence.`\
-https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-japan-politics-prosecutors.html?searchResultPosition=9
-
-**Coronavirus Live Updates: U.S.-China Tensions Threaten to Dominate W.H.O. Meeting**\
-`As states ease restrictions, public health experts warned of a resurgence of the virus if the authorities move too fast. The Fed chief said the economy would not fully recover until there was a vaccine.`\
-https://nytimes.com/2020/05/18/us/coronavirus-updates.html?searchResultPosition=10
+https://nytimes.com/2020/05/18/nyregion/coronavirus-nyc.html?searchResultPosition=10
 
