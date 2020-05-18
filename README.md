@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/05/18/world/18reuters-health-coronavirus-souths
 https://nytimes.com/reuters/2020/05/18/us/politics/18reuters-usa-trump-inspectorgeneral-pompeo.html?searchResultPosition=5
 
 **California Relaxes Some Criteria for Reopening**\
-`California is relaxing some of its reopening criteria and that could mean most of the state may soon be offering services such as dining at restaurants.`\
+`California Gov. Gavin Newsom relaxed county reopening criteria on Monday, a move he said will allow most of the state’s 58 counties to begin allowing dining in restaurants and other services.`\
 https://nytimes.com/aponline/2020/05/18/us/ap-us-virus-outbreak-california.html?searchResultPosition=6
 
 **EU's Breton Tells Facebook's Zuckerberg the Fake News Buck Stops With Him**\
