@@ -22,8 +22,8 @@ https://nytimes.com/aponline/2020/05/18/world/middleeast/ap-ml-israel-evangelica
 `The Florida Keys will reopen to tourists on June 1, more than two months after the island chain closed to visitors to minimize the spread of the coronavirus.`\
 https://nytimes.com/aponline/2020/05/18/us/ap-us-virus-outbreak-florida-keys.html?searchResultPosition=7
 
-**Hotels Group Accor Secures 560 Million Euros Credit Line, Sees Some Signs of Recovery**\
-`French hotel company Accor - one of many in the tourism sector to have been hit hard by the impact of the coronavirus - said on Monday it had secured a new 560 million euros ($605.9 million) banking credit facility.`\
+**Hotels Firm Accor Gets 560 Million Euros Credit Line, Sees Signs of Recovery**\
+`French hotel company Accor - one of many in the tourism sector to have been hit hard by the impact of the coronavirus - said on Monday it had secured a new 560 million euros ($606 million) banking credit facility.`\
 https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-accor.html?searchResultPosition=8
 
 **Did the Coronavirus Kill Ideology in Australia?**\
