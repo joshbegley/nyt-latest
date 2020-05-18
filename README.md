@@ -1,20 +1,20 @@
-**Pandemic-Related Vaccination Drop Raises Concern About U.S. Measles Outbreak**\
-`Researchers have documented a drop in child vaccination rates in Michigan since restrictions were imposed to slow the spread of the novel coronavirus, raising concern about outbreaks of other diseases such as measles, the U.S. Centers for Disease Control and Prevention said in a report on Monday.`\
-https://nytimes.com/reuters/2020/05/18/us/18reuters-health-coronavirus-usa-children.html?searchResultPosition=6
+**Group of GOP State AGs Calls on Judge to Dismiss Flynn Case**\
+`A group of 15 Republican state attorneys general filed an amicus brief Monday supporting the Justice Department’s motion to drop its case against former Trump administration national security adviser Michael Flynn. `\
+https://nytimes.com/aponline/2020/05/18/us/politics/ap-us-trump-russia-probe-flynn.html?searchResultPosition=6
 
-**Column: Former Georgia Player Shows Power of Persistence**\
-`For all its ills, there are times when college athletics gets it just right.`\
-https://nytimes.com/aponline/2020/05/18/sports/ncaafootball/ap-fbc-paul-newberry-persistence-pays-off.html?searchResultPosition=7
+**AP Sources: Rooney Rule to Require for More Interviews**\
+`The NFL is amending the Rooney Rule to require more interviews of minority candidates for head coaching and coordinator positions, two people familiar with the decision tell The Associated Press.`\
+https://nytimes.com/aponline/2020/05/18/sports/football/ap-fbn-rooney-rule-amended.html?searchResultPosition=7
 
-**Bull Riding May Be 1st US Professional Sport to Welcome Fans**\
-`One of the first professional athletic sports to allow spectators to attend as states gradually lift restrictions imposed due to the coronavirus is known for its wild, dangerous action: bull riding.`\
-https://nytimes.com/aponline/2020/05/18/sports/ap-us-virus-outbreak-bull-riding-live-crowds.html?searchResultPosition=8
+**Le Mans 24 Hours Must Happen, Says WEC Boss**\
+`A cast of top drivers will race in a virtual 24 Hours of Le Mans in June but the postponed real-life version must also happen this year, even if without spectators, World Endurance Championship (WEC) boss Gerard Neveu said on Monday.`\
+https://nytimes.com/reuters/2020/05/18/sports/autoracing/18reuters-motor-lemans-neveu-interview.html?searchResultPosition=8
 
-**3 Summery Sweets You Can Make With Frozen Fruit**\
-`Farm-fresh fruit might be harder to come by this year, but store-bought frozen fruit works just as well in these three simple recipes.`\
-https://nytimes.com/2020/05/18/dining/frozen-fruit-recipes.html?searchResultPosition=9
+**Brazil Will Need to Examine Social Programs, Re-Impose Spending Limits in 2021: Official**\
+`Brazil will need to take another look at social problems, and focus on ones that really generate results, Economic Policy Secretary Adolfo Sachsida said on Monday.`\
+https://nytimes.com/reuters/2020/05/18/world/americas/18reuters-brazil-economy-sachsida.html?searchResultPosition=9
 
-**Indiana Court Sidesteps Ruling on Suspended Attorney General**\
-`The Indiana Supreme Court sidestepped giving its opinion Monday on whether the state attorney general can remain in office even while serving a 30-day law license suspension for groping a state legislator and three other women.`\
-https://nytimes.com/aponline/2020/05/18/us/ap-us-indiana-attorney-general-groping-allegations-1st-ld-writet.html?searchResultPosition=10
+**El Salvador Supreme Court Orders State of Emergency Suspended**\
+`El Salvador's Supreme Court said on Monday it has ordered the immediate suspension of the state of emergency declared by President Nayib Bukele over the coronavirus.`\
+https://nytimes.com/reuters/2020/05/18/world/18reuters-health-coronavirus-elsalvador.html?searchResultPosition=10
 
