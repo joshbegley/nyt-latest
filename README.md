@@ -1,32 +1,32 @@
-**Elon Musk’s Latest Gambit**\
-`The Tesla chief executive is putting the safety of employees on the line.`\
-https://nytimes.com/2020/05/18/opinion/elon-musk-tesla-factory.html?searchResultPosition=3
+**Goldman Sachs: Brazil, Turkey Vulnerable to Local Debt Splurge**\
+`Brazil, Turkey and some frontier markets face the biggest risk from a possible surge in local sovereign debt issuance as developing governments ramp up spending to tackle the economic fallout from the coronavirus pandemic, Goldman Sachs said on Monday.`\
+https://nytimes.com/reuters/2020/05/18/world/americas/18reuters-health-coronavirus-debt-brazil.html?searchResultPosition=3
 
-**‘W.H.O. Must Change,’ Azar Says**\
-`Secretary of Health and Human Services Alex M. Azar II said the World Health Organization’s handling of the coronavirus outbreak in China led to unnecessary deaths. The organization has denied the claims.`\
-https://nytimes.com/video/us/politics/100000007145127/coronavirus-who-azar.html?searchResultPosition=4
+**Rome's Coronavirus-Hit Raphael Exhibition to Reopen in June**\
+`An exhibition commemorating the 500th anniversary of the death of Renaissance artist Raphael will reopen on June 2 in Rome and its run extended until Aug.30, after it fell foul of the COVID-19 lockdown.`\
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-italy-art-raphael.html?searchResultPosition=4
 
-**Cuffing of Black Miami Doctor Was Justified, Review Finds**\
-`But a Police Department investigation found that a sergeant had violated department rules in other ways when he detained Dr. Armen Henderson outside his home last month.`\
-https://nytimes.com/2020/05/18/us/armen-henderson-miami-police.html?searchResultPosition=5
+**Amid 'Some Calm', U.N. Envoy Urges U.S., Russia Push for Syria Peace**\
+`The United Nations Syria mediator urged the United States and Russia on Monday to make the most of "some calm" in the war-torn country and talk with each other about a push for peace. `\
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-syria-security-un.html?searchResultPosition=5
 
-**Who the Heck Is That?**\
-`Despite the feature name, solvers will know the actress Uzo Aduba from Netflix’s “Orange Is the New Black.” A look at one of the entries from last week’s puzzles that stumped our solvers.`\
-https://nytimes.com/2020/05/18/crosswords/heck-crosswords-uzo-aduba.html?searchResultPosition=6
+**Gene Rossides, 92, Dies; Led Columbia to Historic Upset of Army**\
+`A star quarterback, he helped snap West Point’s 32-game unbeaten streak in 1947. Instead of the N.F.L., he became a lawyer and served two presidents.`\
+https://nytimes.com/2020/05/18/sports/football/gene-rossides-92-dies-led-columbia-to-historic-upset-of-army.html?searchResultPosition=6
 
-**Venice Biennale Postpones Next Two Editions**\
-`This year’s international architecture show moves to 2021, and the next art exhibition will also be delayed a year, to 2022.`\
-https://nytimes.com/2020/05/18/arts/design/venice-biennales-postponed-coronavirus.html?searchResultPosition=7
+**AstraZeneca in Talks With Other Governments to Replicate UK Vaccine Deal**\
+`AstraZeneca Plc said it was in talks with governments around the world to strike coronovirus vaccine production deals similar to one it agreed with Britain over the weekend.`\
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-astrazeneca-alliances.html?searchResultPosition=7
 
-**IMF Chief Says Ratings Worries Dampen Interest in G20 Debt Relief**\
-`Some of the world's poorest countries are reluctant to seek debt relief under a program backed by the Group of 20 major economies out of concern it could harm their credit ratings and future market access, the head of the International Monetary Fund said.`\
-https://nytimes.com/reuters/2020/05/18/us/18reuters-health-coronavirus-debt-imf.html?searchResultPosition=8
+**Northern Ireland Eases Restrictions, Ireland Deaths at Seven-Week Low**\
+`Northern Ireland gently eased its coronavirus restrictions on Monday, allowing small groups to meet outside and churchgoers to pray alone, broadly keeping pace with Ireland where a partial lifting of the lockdown began.`\
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-ireland-nireland.html?searchResultPosition=8
 
-**As Biden Crafts U.S. Coronavirus Response Proposals, Warren Has His Ear**\
-`Presumptive Democratic U.S. presidential nominee Joe Biden has been speaking regularly with former rival Elizabeth Warren on public health and economic relief ideas as he crafts more ambitious proposals aimed at helping Americans through the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/05/18/us/politics/18reuters-usa-election-biden-warren.html?searchResultPosition=9
+**Chiefs' Hill Completes Year-Long Reclamation of Himself**\
+`The steady stream of nurses filing out of St. Luke's Hospital for close to an hour was finally slowing down, which was altogether fortunate, because the young man with thighs like tree trunks was running out of food to give them.`\
+https://nytimes.com/aponline/2020/05/18/sports/football/ap-fbn-chiefs-hill.html?searchResultPosition=9
 
-**Spain's Prime Minister Sanchez Welcomes French-German Recovery Fund Initiative**\
-`Spain's Prime Minister Pedro Sanchez welcomed a 500 billion euro ($543 billion) Recovery Fund proposed by France and Germany on Monday to help regions and sectors hardest hit by the coronavirus. `\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-france-germany-spain.html?searchResultPosition=10
+**Climate Change Is Making Hurricanes Stronger, Researchers Find**\
+`An analysis of satellite imagery from the past four decades suggests that global warming has increased the chances of storms reaching Category 3 or higher.`\
+https://nytimes.com/2020/05/18/climate/climate-changes-hurricane-intensity.html?searchResultPosition=10
 
