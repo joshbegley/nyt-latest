@@ -12,7 +12,7 @@ https://nytimes.com/aponline/2020/05/18/world/europe/ap-eu-germany-syria-torture
 
 **Michelle Obama and MTV to Host Virtual Prom Celebrations for High School Seniors**\
 `The event on May 22 would be the latest high school ritual that students were celebrating online because of social-distancing rules.`\
-https://nytimes.com/2020/05/18/us/michelle-obama-virtual-prom-mtv.html?searchResultPosition=6
+https://nytimes.com/2020/05/18/us/michelle-obama-virtual-prom-mtv-coronavirus.html?searchResultPosition=6
 
 **With Help From 100 Bundles, Nav Lands Another No. 1 Album**\
 `The Canadian rapper’s “Good Intentions” reached the top of the Billboard 200 with the equivalent of 135,000 album sales.`\
