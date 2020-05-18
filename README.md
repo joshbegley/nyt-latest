@@ -1,36 +1,36 @@
+**Coronavirus Vaccine Trial by Moderna Shows Promising Early Results**\
+`The company said its preliminary test in 8 healthy volunteers was safe. It is on an accelerated timetable to begin a larger human trial soon.`\
+https://nytimes.com/2020/05/18/health/coronavirus-vaccine-moderna.html?searchResultPosition=2
+
+**70 Cases of COVID-19 at French Schools Days After Re-Opening**\
+`Just one week after a third of French schoolchildren went back to school in an easing ofthe coronavirus lockdown, there's been a worrying flareup of about 70 COVID-19 cases linked to schools.`\
+https://nytimes.com/aponline/2020/05/18/world/europe/ap-virus-outbreak-france-schools.html?searchResultPosition=3
+
+**Africa Backs WHO, Needs Help With Debt Relief, Supplies: Ramaphosa**\
+`South Africa's President Cyril Ramaphosa said on Monday that Africa affirms its "full support" for the World Health Organization (WHO) which he said had been key in guiding the international response to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/18/world/18reuters-health-coronavirus-who-ramaphosa.html?searchResultPosition=4
+
+**Spain Aims to Reopen Borders to Tourism in Late June**\
+`Tourism-dependent Spain aims to reopen borders to visitors around the end of June as its coronavirus lockdown fully unwinds, a minister said on Monday, in a much-needed boost for the ravaged travel sector.`\
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-spain.html?searchResultPosition=5
+
+**China's Xi Says Supports WHO Probe When COVID-19 Controlled**\
+`China supports a comprehensive review of the global response to the COVID-19 pandemic led by the World Health Organization (WHO) after the virus that causes the disease is brought under control, Chinese President Xi Jinping said on Monday. `\
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-health-coronavirus-china-xi.html?searchResultPosition=6
+
+**Stacey Abrams’ Election Warning**\
+`Will counting the votes take weeks?`\
+https://nytimes.com/2020/05/18/opinion/stacey-abrams-election.html?searchResultPosition=7
+
 **Coffees and Creches: Portuguese Enjoy Some Normality Again**\
 `Cafes served morning coffee, creches reopened and masked pupils went back to school for the first time in months as Portugal entered a second phase of its lockdown exit on Monday.`\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-portugal.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-portugal.html?searchResultPosition=8
 
 **China to Deepen Market-Based Interest Rate Reform, Push Property Tax Law**\
 `China will deepen market-based interest rate reform and minimize direct interference from government on microeconomic activities, the official Xinhua News Agency said on Monday, adding that it will push forward property tax legislation. `\
-https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-china-economy-reforms.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-china-economy-reforms.html?searchResultPosition=9
 
 **Explainer: The U.N. Tribunal Set Up to Try Rwanda Genocide Perpetrators**\
 `French gendarmes arrested Felicien Kabuga, wanted for allegedly financing the Rwandan genocide, near Paris on May 16 after a global manhunt spanning more than a quarter of a century.`\
-https://nytimes.com/reuters/2020/05/18/world/africa/18reuters-france-rwanda-arrest-justice-explainer.html?searchResultPosition=4
-
-**Esports: Leclerc's Girlfriend Subscribes to Get Him to Open the Door**\
-`Ferrari Formula One driver Charles Leclerc has gained a special subscriber to his Twitch streaming channel after his girlfriend found herself locked out of his Monaco apartment while he was racing online at the weekend.`\
-https://nytimes.com/reuters/2020/05/18/sports/autoracing/18reuters-esports-f1-leclerc.html?searchResultPosition=5
-
-**Putin Says Coronavirus Situation in Southern Russia's Dagestan Is Difficult**\
-`President Vladimir Putin said on Monday the coronavirus situation in Russia's southern region of Dagestan was particularly difficult and that the mainly Muslim region's healthcare system was under serious strain. `\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-russia-dagestan.html?searchResultPosition=6
-
-**Italy Opens Churches as Virus Rules Dictate How to Eat, Pray**\
-`Italy and the Vatican opened a new phase in the virus crisis Monday, with churches resuming public Masses after a sharp confrontation between the Italian church and state over limits on worshipping in the era of COVID-19.`\
-https://nytimes.com/aponline/2020/05/18/business/bc-eu-virus-outbreak-italy-worships.html?searchResultPosition=7
-
-**Moderna's Experimental COVID-19 Vaccine Shows Promise in Early-Stage Study**\
-`Moderna Inc said on Monday its experimental vaccine for COVID-19 showed promise in early trials and it looks to advance the vaccine into late-stage trials in July.`\
-https://nytimes.com/reuters/2020/05/18/us/18reuters-health-coronavirus-moderna.html?searchResultPosition=8
-
-**Factbox: Investors Pour Billions Into Automated Delivery Startups**\
-`Since September, investors have pumped at least $6 billion into more than two dozen startups that are automating delivery of goods and food, from heavy trucks to sidewalk robots and drones. `\
-https://nytimes.com/reuters/2020/05/18/business/18reuters-health-coronavirus-delivery-robots-factbox.html?searchResultPosition=9
-
-**Automated Delivery Cashes In on Pandemic-Driven Demand**\
-`The coronavirus crisis is accelerating a shift in the world of autonomous cars toward delivering packages instead of people, as big players open up a lead over startups in the race for funding.`\
-https://nytimes.com/reuters/2020/05/18/business/18reuters-health-coronavirus-delivery-robots-focus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/18/world/africa/18reuters-france-rwanda-arrest-justice-explainer.html?searchResultPosition=10
 
