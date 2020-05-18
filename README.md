@@ -1,4 +1,4 @@
-**Subaru Full-Year Profit Rises 16% but Uncertain About Coronavirus Impact**\
+**Subaru Says Full-Year Profit Rose 16%, Braces for Coronavirus Impact**\
 `Subaru Corp on Monday posted a 15.7% rise in annual operating profit in the year that ended in March as it recovered from production delays and product recalls last year, but warned of uncertainties from the coronavirus outbreak this year.`\
 https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-subaru-results.html?searchResultPosition=2
 
