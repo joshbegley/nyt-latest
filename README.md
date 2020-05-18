@@ -1,12 +1,8 @@
-**Fear of Risk Could Diminish the Economic Rescue by the Treasury and Fed**\
-`The Treasury does not want to lose taxpayer money on central bank emergency lending. That could leave riskier companies out in the cold.`\
-https://nytimes.com/2020/05/18/business/economy/economic-stimulus-treasury-fed-risk.html?searchResultPosition=8
+**Glorious Chicken on the Grill**\
+`The hardest meat to grill can also be the best if it’s prepared and cooked properly. Here are the basic principles to follow.`\
+https://nytimes.com/2020/05/18/dining/grilled-chicken-recipes.html?searchResultPosition=9
 
-**Brazil Sees 674 New Coronavirus Deaths, World's Third Highest Number of Infections**\
-`Brazil recorded 674 new coronavirus deaths on Monday, the Health Ministry said, and announced a total of 254,220 confirmed cases, overtaking Britain to become the country with the third-highest number of infections behind the United States and Russia.`\
-https://nytimes.com/reuters/2020/05/18/world/americas/18reuters-health-coronavirus-brazil.html?searchResultPosition=9
-
-**Factbox: Fashion Brands Cut Orders With Asian Garment Makers**\
-`As stores closed across Europe and the United States in March and April in response to the new coronavirus, many fashion brands and retailers cancelled orders for clothes, bags, and shoes worth billions of dollars from Asian garment factories, forcing them to close and lay off hundreds of thousands of workers.`\
-https://nytimes.com/reuters/2020/05/18/business/18reuters-health-coronavirus-garment-factbox.html?searchResultPosition=10
+**Israel Linked to Cyberattack on Iranian Port: Washington Post**\
+`Israel appears to be behind a cyberattack earlier this month on computers at Iran's Shahid Rajaee port that caused massive backups on waterways and roads leading to the facility, the Washington Post reported on Monday.`\
+https://nytimes.com/reuters/2020/05/18/world/middleeast/18reuters-mideast-iran-israel-cyber.html?searchResultPosition=10
 
