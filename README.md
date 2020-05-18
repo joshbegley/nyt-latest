@@ -1,36 +1,36 @@
-**NASCAR Tries to Make Noise as Drivers Restart Their Engines**\
-`“It’s dead silent out here,” Kevin Harvick said after winning Sunday’s 400-mile race at Darlington. “How weird. We really miss the fans.”`\
-https://nytimes.com/2020/05/18/sports/autoracing/nascar-darlington-return.html?searchResultPosition=2
+**Coffees and Creches: Portuguese Enjoy Some Normality Again**\
+`Cafes served morning coffee, creches reopened and masked pupils went back to school for the first time in months as Portugal entered a second phase of its lockdown exit on Monday.`\
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-portugal.html?searchResultPosition=2
 
-**Police: Man Angry About Virus Closure Attacks 2 With Machete**\
-`A Nashville couple were in critical care after a man attacked them with a machete because he was angry about shutdowns that were taking place during the coronavirus pandemic, police said.`\
-https://nytimes.com/aponline/2020/05/18/us/ap-us-virus-outbreak-machete-attack.html?searchResultPosition=3
+**China to Deepen Market-Based Interest Rate Reform, Push Property Tax Law**\
+`China will deepen market-based interest rate reform and minimize direct interference from government on microeconomic activities, the official Xinhua News Agency said on Monday, adding that it will push forward property tax legislation. `\
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-china-economy-reforms.html?searchResultPosition=3
 
-**Finnair Wants to Resume Flights in July, Focus on Asia**\
-`Finland's national airline, a major carrier between Europe and China, said Monday it will add more flights and routes beginning in July if governments ease their lockdowns enough for travel to resume. `\
-https://nytimes.com/aponline/2020/05/18/business/bc-eu-europe-airlines.html?searchResultPosition=4
+**Explainer: The U.N. Tribunal Set Up to Try Rwanda Genocide Perpetrators**\
+`French gendarmes arrested Felicien Kabuga, wanted for allegedly financing the Rwandan genocide, near Paris on May 16 after a global manhunt spanning more than a quarter of a century.`\
+https://nytimes.com/reuters/2020/05/18/world/africa/18reuters-france-rwanda-arrest-justice-explainer.html?searchResultPosition=4
 
-**Israel Katz Takes Over as Israeli Finance Minister**\
-`Israel Katz took over as Israel's finance minister on Monday as part of a new government, saying he planned to work towards helping the economy recover from the effects of the coronavirus while also promoting competition.`\
-https://nytimes.com/reuters/2020/05/18/world/middleeast/18reuters-israel-economy-finmin.html?searchResultPosition=5
+**Esports: Leclerc's Girlfriend Subscribes to Get Him to Open the Door**\
+`Ferrari Formula One driver Charles Leclerc has gained a special subscriber to his Twitch streaming channel after his girlfriend found herself locked out of his Monaco apartment while he was racing online at the weekend.`\
+https://nytimes.com/reuters/2020/05/18/sports/autoracing/18reuters-esports-f1-leclerc.html?searchResultPosition=5
 
-**Longer-Lasting Coronavirus Shock to Hit Spain's GDP Further in Q2-Bank of Spain**\
-`The economic impact from the coronavirus pandemic will last longer than initially expected and the Spanish economy could experience a significant deterioration in the second quarter, Bank of Spain governor Pablo Hernandez de Cos said on Monday.`\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-spain-economy.html?searchResultPosition=6
+**Putin Says Coronavirus Situation in Southern Russia's Dagestan Is Difficult**\
+`President Vladimir Putin said on Monday the coronavirus situation in Russia's southern region of Dagestan was particularly difficult and that the mainly Muslim region's healthcare system was under serious strain. `\
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-russia-dagestan.html?searchResultPosition=6
 
-**Irish Drone Operator Bins Fast Food for Medical Drops**\
-`Ireland's Manna Aero should have been dropping off its first takeaway orders around a Dublin university campus by drone in March but then the coronavirus pandemic shut the country and its pilot programme down.`\
-https://nytimes.com/reuters/2020/05/18/technology/18reuters-health-coronavirus-ireland-drones.html?searchResultPosition=7
+**Italy Opens Churches as Virus Rules Dictate How to Eat, Pray**\
+`Italy and the Vatican opened a new phase in the virus crisis Monday, with churches resuming public Masses after a sharp confrontation between the Italian church and state over limits on worshipping in the era of COVID-19.`\
+https://nytimes.com/aponline/2020/05/18/business/bc-eu-virus-outbreak-italy-worships.html?searchResultPosition=7
 
-**'Get Out! Move!' Belgium Relaxes Lockdown for Lazier Nation**\
-`Belgium is taking the next step in its relaxation of the coronavirus lockdown on Monday and is also telling people: get up! Schools are opening up to more students, markets are setting up again and museums are the reopening their doors. And the snip of a barber’s scissors fills the air again. `\
-https://nytimes.com/aponline/2020/05/18/world/europe/ap-eu-virus-outbreak-belgium-.html?searchResultPosition=8
+**Moderna's Experimental COVID-19 Vaccine Shows Promise in Early-Stage Study**\
+`Moderna Inc said on Monday its experimental vaccine for COVID-19 showed promise in early trials and it looks to advance the vaccine into late-stage trials in July.`\
+https://nytimes.com/reuters/2020/05/18/us/18reuters-health-coronavirus-moderna.html?searchResultPosition=8
 
-**Merkel: Coronavirus Pandemic Will Be Overcome Quicker if World Works Together**\
-`German Chancellor Angela Merkel said the coronavirus pandemic would be overcome more quickly if the world works together to tackle it, adding that it was necessary to look at whether the World Health Organization's processes could be improved.`\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-who-merkel.html?searchResultPosition=9
+**Factbox: Investors Pour Billions Into Automated Delivery Startups**\
+`Since September, investors have pumped at least $6 billion into more than two dozen startups that are automating delivery of goods and food, from heavy trucks to sidewalk robots and drones. `\
+https://nytimes.com/reuters/2020/05/18/business/18reuters-health-coronavirus-delivery-robots-factbox.html?searchResultPosition=9
 
-**PG&E Says Wildfire Victims Back Settlement in Bankruptcy**\
-`The vote to accept a $13.5 billion deal will help the California utility resolve its bankruptcy in time to qualify for a state wildfire fund.`\
-https://nytimes.com/2020/05/18/business/energy-environment/pge-bankruptcy-wildfire-victims.html?searchResultPosition=10
+**Automated Delivery Cashes In on Pandemic-Driven Demand**\
+`The coronavirus crisis is accelerating a shift in the world of autonomous cars toward delivering packages instead of people, as big players open up a lead over startups in the race for funding.`\
+https://nytimes.com/reuters/2020/05/18/business/18reuters-health-coronavirus-delivery-robots-focus.html?searchResultPosition=10
 
