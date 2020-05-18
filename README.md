@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/05/18/business/bc-as-japan-earns-softbank.html
 `Softbank Group will raise 1.25 trillion yen ($11.7 billion) using Alibaba stock to fund buybacks of its own shares, Chief Executive Masayoshi Son said on Monday.`\
 https://nytimes.com/reuters/2020/05/18/business/18reuters-softbankgroup-results-alibaba.html?searchResultPosition=6
 
-**EU's Initial Green-Light to Remdesivir Might Be Granted in Coming Days: EMA**\
+**Remdesivir Close to EU's Initial Authorisation as COVID-19 Treatment**\
 `The head of the European Union's medicines agency Guido Rasi said on Monday an initial authorisation for U.S. pharmaceutical company Gilead's remdesivir as a COVID-19 treatment could be granted in coming days.`\
 https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-eu-medicines.html?searchResultPosition=7
 
