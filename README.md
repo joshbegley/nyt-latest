@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/05/17/sports/golf/17reuters-health-coronavirus-
 `SoftBank Group Corp said on Monday that Alibaba co-founder Jack Ma will resign from its board, in the latest departure by a high-profile ally of CEO Masayoshi Son. `\
 https://nytimes.com/reuters/2020/05/17/business/17reuters-softbank-group-governance.html?searchResultPosition=4
 
-**Japan First-Quarter GDP Shrinks 3.4% Annualised, Second Straight Quarter of Contraction**\
-`Japan's economy contracted at an annualised rate of 3.4% in January-March, government data showed on Monday, marking the second straight quarter of contraction and meeting the technical definition of recession, due to the coronavirus pandemic.`\
+**Japan Slips Into Recession, Worst Yet to Come as Pandemic Wreaks Havoc**\
+`Japan's economy slipped into recession for the first time in 4-1/2 years, GDP data showed on Monday, putting the nation on course for its deepest postwar slump as the coronavirus crisis takes a heavy toll on businesses and consumers.`\
 https://nytimes.com/reuters/2020/05/17/world/asia/17reuters-japan-economy-gdp.html?searchResultPosition=5
 
 **Japan Falls Into Recession, and Worse Lies Ahead**\
