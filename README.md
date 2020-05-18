@@ -2,7 +2,7 @@
 `Britain will set out the final details of its coronavirus quarantine plan early next month and will consider different measures for travellers arriving from countries with low infection levels, transport minister Grant Shapps said.`\
 https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-britain-shapps.html?searchResultPosition=2
 
-**IMF Chief Georgieva Says Sees Only Partial Recovery of Global Economy in 2021; Full Recovery Will Take 'Much Longer': Interview**\
+**IMF Chief Warns Full Global Economic Recovery Unlikely in 2021**\
 `The global economy will take much longer to recover fully from the shock caused by the new coronavirus than initially expected, the head of the International Monetary Fund said, and she stressed the danger of protectionism.`\
 https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-health-coronavirus-imf.html?searchResultPosition=3
 
