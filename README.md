@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/05/17/world/asia/17reuters-singapore-economy-ex
 `Shares of SK Hynix, the world's No.2 memory chip maker after Samsung Electronics, fell 3.2% on Monday after the United States on Friday moved to curb shipments of semiconductors to Huawei from global chipmakers.`\
 https://nytimes.com/reuters/2020/05/17/business/17reuters-usa-huawei-tech-shares.html?searchResultPosition=8
 
-**China Reports Seven New Coronavirus Cases, Up From Five a Day Earlier**\
-`China reported seven new coronavirus cases for May 17, up from five a day earlier, the country's health authority said on Monday.`\
+**China Reports Seven New Coronavirus Infections**\
+`China reported seven new confirmed coronavirus cases for May 17, up from five a day earlier, the country's health authority said on Monday.`\
 https://nytimes.com/reuters/2020/05/17/world/asia/17reuters-health-coronavirus-china-cases.html?searchResultPosition=9
 
 **Column: NASCAR Gives All Sports Fans a Reason to Celebrate**\
