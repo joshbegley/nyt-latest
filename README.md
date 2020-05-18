@@ -1,20 +1,20 @@
+**Fossil of One of the Last Megaraptors on the Planet Found in Argentina**\
+`Paleontologists from the Argentine Museum of Natural Sciences said on Monday they found the 70-million-year-old remains of a megaraptor, making it one of the last carnivorous dinosaurs to inhabit the earth.`\
+https://nytimes.com/reuters/2020/05/18/world/americas/18reuters-argentina-dinosaur.html?searchResultPosition=6
+
+**Scandal-Hit Westpac Picks Insider to Head Financial Crime and Compliance**\
+`Westpac Banking Corp named an insider on Tuesday to a newly created role overseeing financial crime and compliance after the bank was caught up in a major money laundering scandal last year.`\
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-westpac-moves.html?searchResultPosition=7
+
 **Bills, Ole Miss Lineman 'Gentle Ben' Williams, 65, Dies**\
 `Robert Jerry “Ben” Williams Jr., former Buffalo Bills defensive end and the first African- American player to appear in a game at Mississippi, has died. He was 65.`\
-https://nytimes.com/aponline/2020/05/18/sports/football/ap-fbn-obit-bills-ben-williams.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/05/18/sports/football/ap-fbn-obit-bills-ben-williams.html?searchResultPosition=8
 
 **Texas Salon Owner Travels to Michigan to Back Defiant Barber**\
 `A Texas salon owner who was sent to jail for opening her business during the coronavirus outbreak called Michigan's governor a “tyrant” on Monday as she stood next to a barber whose license was suspended for cutting hair.`\
-https://nytimes.com/aponline/2020/05/18/business/ap-us-virus-outbreak-defiant-barber.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/05/18/business/ap-us-virus-outbreak-defiant-barber.html?searchResultPosition=9
 
 **As Catholics Mark 100 Years Since Birth of John Paul, Shadows Remain**\
 `The Catholic Church on Monday marked the 100th anniversary of the birth of Pope John Paul II but questions remained about whether he did enough against sexual abuse.`\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-poland-church-johnpaul.html?searchResultPosition=8
-
-**Mexico Faces Infectious Waste Disposal Problem Amid Pandemic**\
-`Mountains of infectious waste, including huge piles of discarded coffins and tons of hospital garbage, are popping up across Mexico amid the coronavirus pandemic, a grisly problem authorities attribute to illegal dumping and unscrupulous operators. `\
-https://nytimes.com/aponline/2020/05/18/world/americas/ap-lt-mexico-virus-outbreak-infectious-waste.html?searchResultPosition=9
-
-**Coronavirus Deadliest in New York City's Black and Latino Neighborhoods, Data Shows**\
-`Some New York City neighborhoods have seen death rates from the novel coronavirus nearly 15 times higher than others, according to data released by New York City's health department on Monday, showing the disproportionate toll taken on poor communities.`\
-https://nytimes.com/reuters/2020/05/18/us/18reuters-health-coronavirus-new-york-deaths.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-poland-church-johnpaul.html?searchResultPosition=10
 
