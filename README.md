@@ -1,37 +1,36 @@
+**Cash Strapped Thai Airways to Seek Bankruptcy Rehabilitation**\
+`Thailand’s flag carrier Thai Airways International will file a plan for restructuring its business with the Central Bankruptcy Court, a government spokeswoman said Monday.`\
+https://nytimes.com/aponline/2020/05/18/business/bc-as-thailand-thai-airways.html?searchResultPosition=2
+
+**Australia Welcomes Growing Support for COVID-19 Inquiry at WHO Meeting**\
+`A draft resolution pushed by the European Union and Australia calling for an independent review into the origins and spread of the coronavirus has support from 116 nations at the World Health Assembly, almost enough for it to pass, a document showed.`\
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-health-coronavirus-who-australia.html?searchResultPosition=3
+
+**Australia Welcomes Growing Support for Coronavirus Inquiry**\
+`Australia’s foreign minister on Monday welcomed international support for an independent investigation of the coronavirus pandemic, a proposed inquiry that has been condemned by China and blamed for a bilateral trade rift.`\
+https://nytimes.com/aponline/2020/05/18/world/asia/ap-as-virus-outbreak-australia.html?searchResultPosition=4
+
+**‘License to Kill’: Inside Rio’s Record Year of Police Killings**\
+`A Times analysis found officers shoot without restraint, protected by their bosses and by politicians, certain that illegal killings will not be held against them.`\
+https://nytimes.com/2020/05/18/world/americas/brazil-rio-police-violence.html?searchResultPosition=5
+
+**‘I Feel Like a Hero’: A Day in the Life of a Grocery Delivery Man**\
+`Gerald Timothee walks miles everyday to deliver groceries, taking every precaution against the coronavirus. He rarely sees his customers anymore.`\
+https://nytimes.com/2020/05/18/nyregion/Instacart-shopper-coronavirus.html?searchResultPosition=6
+
+**Passed By for Decades, Clarence Thomas Is a New Symbol of the Trump Era**\
+`He isn’t yet the pop culture star that Ruth Bader Ginsburg — “Notorious R.B.G.” to many — is. But his fans think he could be.`\
+https://nytimes.com/2020/05/18/us/politics/clarence-thomas-supreme-court.html?searchResultPosition=7
+
 **French Plan to Help Auto Sector Due Within 15 Days: Le Maire**\
 `France is hoping to announce a plan within 15 days to help the country's automobile sector, which has been hit hard by the impact of the coronavirus, finance minister Bruno Le Maire told France Info radio on Monday.`\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-france-autos.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-france-autos.html?searchResultPosition=8
 
 **Korean Soccer Club Apologizes for Putting Sex Dolls in Seats**\
 `A South Korean professional soccer club has apologized after being accused of putting sex dolls in empty seats during a match Sunday in Seoul.`\
-https://nytimes.com/aponline/2020/05/18/sports/soccer/ap-soc-south-korea-sex-dolls-1st-ld-writethru.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/05/18/sports/soccer/ap-soc-south-korea-sex-dolls-1st-ld-writethru.html?searchResultPosition=9
 
 **Taiwan Says Not Receive WHO Meeting Invite, Issue Off the Table for Now**\
 `Despite strong efforts Taiwan did not get invited to this week's meeting of a key World Health Organization (WHO) body due to Chinese pressure, its foreign minister said on Monday, adding they had agreed to put the issue off until later this year.`\
-https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-health-coronavirus-taiwan-who.html?searchResultPosition=4
-
-**Me and We: Individual Rights, Common Good and Coronavirus**\
-`
-                We, the people. But individual rights. The common good. But don’t tread on me. Form a more perfect union and promote the general welfare. But secure the blessings of liberty to ourselves and our posterity.`\
-https://nytimes.com/aponline/2020/05/18/us/ap-us-virus-outbreak-me-and-we.html?searchResultPosition=5
-
-**Ryanair CEO: 'Idiotic' UK Mismanaging Coronavirus Crisis**\
-`Ryanair Chief Executive Michael O’Leary said the British government had mismanaged its response to the novel coronavirus outbreak for many weeks and its policy on a 14-day quarantine for international travellers was idiotic.`\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-britain-ryanair.html?searchResultPosition=6
-
-**Britain Still in Talks With France Over Quarantine Exemption: Minister**\
-`Britain is still in talks with France over whether French travellers should be exempt from a requirement for a 14-day quarantine when they arrive in the United Kingdom, culture minister Oliver Dowden said on Monday. `\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-britain-france.html?searchResultPosition=7
-
-**ISS Poaches Danske Bank's Aarup-Andersen as New CEO**\
-`Danish services provider ISS said on Monday it had hired Danske Bank's Jacob Aarup-Andersen as its new chief executive officer starting Sept 1.     `\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-iss-dk-moves.html?searchResultPosition=8
-
-**Hungary Government to Propose Giving Up Emergency Powers on May 26**\
-`Hungary's government will submit a proposal to parliament on May 26 to end its special coronavirus emergency powers, hirtv.hu quoted Prime Minister Viktor Orban's chief of staff as saying late on Sunday.`\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-hungary-powers.html?searchResultPosition=9
-
-**Total Calls Off Plan to Buy Occidental Petroleum's Ghana Asset**\
-`Total has called off plans to acquire Occidental Petroleum's assets in Ghana, the French energy company said on Monday.  `\
-https://nytimes.com/reuters/2020/05/18/business/18reuters-occidental-m-a-total.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-health-coronavirus-taiwan-who.html?searchResultPosition=10
 
