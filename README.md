@@ -1,32 +1,32 @@
+**New Cases? Deaths? U.S. States' Reopening Plans Are All Over the Map**\
+`Washington, D.C. Mayor Muriel Bowser has set some distinct goals the federal district needs to meet in order for her to feel comfortable ending a stay-at-home order, she told reporters last week.  `\
+https://nytimes.com/reuters/2020/05/18/us/18reuters-health-coronavirus-usa-states-analysis.html?searchResultPosition=3
+
+**Your Tuesday Briefing**\
+`W.H.O., Xi Jinping, SoftBank: Here’s what you need to know.`\
+https://nytimes.com/2020/05/18/briefing/world-health-organization-xi-jinping.html?searchResultPosition=4
+
+**Ken Osmond, Eddie Haskell on 'Leave It to Beaver,' Dies**\
+`Ken Osmond, who played the two-faced teenage scoundrel Eddie Haskell on TV's “Leave It to Beaver,” died Monday, his family said.`\
+https://nytimes.com/aponline/2020/05/18/us/ap-us-obit-ken-osmond.html?searchResultPosition=5
+
+**Exclusive: U.S. CDC Plans Sweeping COVID-19 Antibody Study in 25 Metropolitan Areas**\
+`The U.S. Centers for Disease Control and Prevention (CDC) plans a nationwide study of up to 325,000 people to track how the new coronavirus is spreading across the country into next year and beyond, a CDC spokeswoman and researchers conducting the effort told Reuters.`\
+https://nytimes.com/reuters/2020/05/18/us/18reuters-health-coronavirus-testing-cdc.html?searchResultPosition=6
+
+**Sudan Extends Lockdown in Khartoum State by Two Weeks: SUNA**\
+`Sudan has extended a lockdown of the state of Khartoum by an additional two weeks from Tuesday to try to slow the spread of the deadly COVID-19 disease, the state news agency reported late on Monday. `\
+https://nytimes.com/reuters/2020/05/18/world/africa/18reuters-health-coronavirus-sudan.html?searchResultPosition=7
+
+**ECB's Lagarde Welcomes Franco-German EU Recovery Fund Plan**\
+`European Central Bank President Christine Lagarde welcomed a proposed 500-billion euro ($546-billion) coronavirus recovery fund proposed by France and Germany on Monday, saying it would bring much-needed relief to the worst-hit EU countries.`\
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-france-germany-fund-ecb.html?searchResultPosition=8
+
+**Civil Rights Groups Sue ICE Over Buffalo Detention Facility**\
+`Civil rights groups sued Immigration and Customs Enforcement officials Monday, saying the Buffalo Federal Detention Facility is failing to impose social distancing rules to protect individuals held on civil immigration charges during the coronavirus outbreak.`\
+https://nytimes.com/aponline/2020/05/18/world/ap-us-virus-outbreak-buffalo-lawsuit.html?searchResultPosition=9
+
 **Iraq Faces Full Local Lockdowns as Virus Cases Jump**\
 `Iraq will impose a complete lockdown on some areas of the capital, the country's new health minister said on Monday, amid an uptick in coronavirus cases in recent weeks since curfew hours were relaxed.`\
-https://nytimes.com/aponline/2020/05/18/world/middleeast/ap-ml-virus-outbreak-mideast-3rd-ld-writethru.html?searchResultPosition=3
-
-**Man Arrested on Way to Lockdown Protest Will Remain Detained**\
-`A judge on Monday ordered a mental health evaluation for a Colorado man whom prosecutors said was heading to a protest against COVID-19 lockdown restrictions when FBI agents found pipe bombs in his home.`\
-https://nytimes.com/aponline/2020/05/18/us/ap-us-pipe-bomb-arrest.html?searchResultPosition=4
-
-**Louisville Mayor Increasing Body Cams After Police Shooting**\
-`Louisville police will be required to wear body cameras and will change a search warrant policy after their fatal shooting of a black emergency medical worker in her home, the city's mayor said Monday.`\
-https://nytimes.com/aponline/2020/05/18/us/ap-us-fatal-police-shooting-kentucky.html?searchResultPosition=5
-
-**Who Got What? Details Scant on Small-Business Relief Effort**\
-`A small, overlooked federal agency is shouldering a massive relief effort for the nation’s small businesses and their workers left reeling by the pandemic. `\
-https://nytimes.com/aponline/2020/05/18/business/bc-us-virus-outbreak-loans-transparency.html?searchResultPosition=6
-
-**Cleon and Leon Boyd, Vermont Twins Tied to the Land, Die at 64**\
-`They boiled sap at the family farm, groomed the ski slopes and played country music. The brothers died of the novel coronavirus, which also sickened many in their extended family.`\
-https://nytimes.com/2020/05/18/obituaries/cleon-and-leon-boyd-dead-coronavirus.html?searchResultPosition=7
-
-**Covid-19 Deaths in Moscow: The Government’s Account**\
-`The city’s Healthcare Department says, “We perform an autopsy in every case, and therefore we are confident in the accuracy of our data.” Also: The reopening; tough luck with the airlines.`\
-https://nytimes.com/2020/05/18/opinion/letters/coronavirus-russia-moscow.html?searchResultPosition=8
-
-**US Open No Longer 'Open,' Eliminates Qualifying for Major**\
-`The U.S. Open might feel more like a closed shop this year.`\
-https://nytimes.com/aponline/2020/05/18/sports/golf/ap-glf-us-open.html?searchResultPosition=9
-
-**Trump Says Should Be Possible to Allow PPP Borrowers More Time to Use Loans**\
-`U.S. President Donald Trump said on Monday extending the amount of time borrowers in the Paycheck Protection Program have to spend their funds to 24 weeks from the current eight weeks "should be easy."`\
-https://nytimes.com/reuters/2020/05/18/us/18reuters-health-coronavirus-usa-ppp.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/18/world/middleeast/ap-ml-virus-outbreak-mideast-3rd-ld-writethru.html?searchResultPosition=10
 
