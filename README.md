@@ -1,20 +1,20 @@
-**USGA Eliminates Qualifying for U.S. Open, Citing Health Concerns**\
-`The U.S. Open will be held without qualifying this year, the United States Golf Association announced on Monday, with the field "filled entirely through exemptions."`\
-https://nytimes.com/reuters/2020/05/18/sports/golf/18reuters-health-coronavirus-golf.html?searchResultPosition=6
+**Column: Former Georgia Player Shows Power of Persistence**\
+`For all its ills, there are times when college athletics gets it just right.`\
+https://nytimes.com/aponline/2020/05/18/sports/ncaafootball/ap-fbc-paul-newberry-persistence-pays-off.html?searchResultPosition=6
 
-**NHC Says Storm Arthur Forecast to Move Away From U.S. East Coast**\
-`The center of tropical storm Arthur is forecast to continue to move away from the east coast of the United States, the U.S. National Hurricane Center (NHC) said on Monday.`\
-https://nytimes.com/reuters/2020/05/18/us/18reuters-storm-atlantic-nhc.html?searchResultPosition=7
+**Bull Riding May Be 1st US Professional Sport to Welcome Fans**\
+`One of the first professional athletic sports to allow spectators to attend as states gradually lift restrictions imposed due to the coronavirus is known for its wild, dangerous action: bull riding.`\
+https://nytimes.com/aponline/2020/05/18/sports/ap-us-virus-outbreak-bull-riding-live-crowds.html?searchResultPosition=7
 
-**Sheriff: Boy Dead After Police Chase Partly Taped by TV Crew**\
-`A man led Alabama officers and a reality television crew on a weekend chase that ended when he crashed his vehicle into a tanker truck, killing the man''s 15-year-old son, authorities said.`\
-https://nytimes.com/aponline/2020/05/18/us/ap-us-police-chase-reality-tv.html?searchResultPosition=8
+**3 Summery Sweets You Can Make With Frozen Fruit**\
+`Farm-fresh fruit might be harder to come by this year, but store-bought frozen fruit works just as well in these three simple recipes.`\
+https://nytimes.com/2020/05/18/dining/frozen-fruit-recipes.html?searchResultPosition=8
 
-**NIBC Says It Will Pay 2019 Dividend to Blackstone to Ensure Acquisition**\
-`Dutch bank NIBC Holding NV said late on Monday it has agreed to pay its 2019 dividend to its proposed buyer, U.S. equity firm Blackstone Group Inc, before the deal settles, in order to remove one hurdle to the proposed 1.36 billion-euro ($1.47 billion) takeover.`\
-https://nytimes.com/reuters/2020/05/18/business/18reuters-nibc-holding-m-a-blackstone-group.html?searchResultPosition=9
+**Indiana Court Sidesteps Ruling on Suspended Attorney General**\
+`The Indiana Supreme Court sidestepped giving its opinion Monday on whether the state attorney general can remain in office even while serving a 30-day law license suspension for groping a state legislator and three other women.`\
+https://nytimes.com/aponline/2020/05/18/us/ap-us-indiana-attorney-general-groping-allegations-1st-ld-writet.html?searchResultPosition=9
 
-**‘I Happen to Be Taking It,’ Trump Says of Hydroxychloroquine**\
-`President Trump revealed that he has been taking hydroxychloroquine, an antimalarial drug whose effectiveness against the coronavirus is unproven.`\
-https://nytimes.com/video/us/politics/100000007145496/trump-hydroxychloroquine-coronavirus.html?searchResultPosition=10
+**Ken Osmond, Troublemaker Eddie Haskell on ‘Beaver,’ Dies at 76**\
+`He was the memorably two-faced friend of Wally Cleaver, a perfect young gentleman in front of parents, a perfect devil when the adults weren’t around.`\
+https://nytimes.com/2020/05/18/arts/television/ken-osmond-eddie-haskell-dead.html?searchResultPosition=10
 
