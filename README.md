@@ -1,36 +1,36 @@
+**New Protest in Albania Over National Theater Demolition**\
+`Albanian artists and opposition party supporters gathered for a second day Monday to protest the demolition of the crumbling National Theater building in the capital, which has triggered strong political tension amid a major heritage debate.`\
+https://nytimes.com/aponline/2020/05/18/world/europe/ap-eu-albania-theater-protest.html?searchResultPosition=2
+
+**Barr Dismisses Trump’s Claim That Russia Inquiry Was an Obama Plot**\
+`The attorney general said that an investigation into the Russia inquiry was focusing on others, not the former president.`\
+https://nytimes.com/2020/05/18/us/politics/barr-trump-obama.html?searchResultPosition=3
+
+**Aching Neck? Sore Back? Simple Fixes to Better Work from Home.**\
+`Is your body suffering from your work-from-home setup? Good news: You can make your experience more comfortable with a little tweak or two.`\
+https://nytimes.com/interactive/2020/05/18/burst/work-from-home-chair-ergonomics-coronavirus.html?searchResultPosition=4
+
+**Authorities: Boko Haram Attacks Nigerian Village, Killing 20**\
+`Islamic extremists stormed a village just as people were preparing to break their Ramadan fast after sundown, killing at least 20 people in the first attack of its kind in northeastern Nigeria since the Muslim holy month began, authorities said Monday. `\
+https://nytimes.com/aponline/2020/05/18/world/africa/ap-af-nigeria-attack.html?searchResultPosition=5
+
+**Italy's Daily Coronavirus Death Toll Below 100 for First Time Since March 9**\
+`Deaths from the COVID-19 epidemic in Italy climbed by 99 on Monday, against 145 the day before, the Civil Protection Agency said, registering the first tally of below 100 since March 9.`\
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-italy-tally.html?searchResultPosition=6
+
 **Report: NHL Plotting Two Playoffs Hubs, 12 Teams Each**\
 `The NHL Board of Governors is scheduled to hold a conference call at 3 p.m. ET on Monday, and the prevailing preference appears to be using two hub cities with 12 teams apiece for the 2020 playoffs.`\
-https://nytimes.com/reuters/2020/05/18/sports/hockey/18reuters-icehockey-nhl-playoff-hubs.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/18/sports/hockey/18reuters-icehockey-nhl-playoff-hubs.html?searchResultPosition=7
 
 **Maryland, Virginia, D.C. Intend to Sue EPA on Bay Pollution**\
 `Maryland, Virginia and the District of Columbia filed a notice of intent to sue the Environmental Protection Agency for failing to require two other states to implement plans to cut pollution in the Chesapeake Bay, officials said Monday.`\
-https://nytimes.com/aponline/2020/05/18/us/ap-us-chesapeake-bay-pollution-lawsuit.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/05/18/us/ap-us-chesapeake-bay-pollution-lawsuit.html?searchResultPosition=8
 
 **Walmart Trailed Supermarkets Amid Peak Panic-Buying: Data**\
 `Americans increased their visits to supermarkets far more than to Walmart Inc stores as panic-buying peaked in mid-March, a Reuters analysis of foot traffic to retailers in the United States shows.`\
-https://nytimes.com/reuters/2020/05/18/business/18reuters-health-coronavirus-walmart-analysis.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/18/business/18reuters-health-coronavirus-walmart-analysis.html?searchResultPosition=9
 
 **A Sixth Region of New York Ready to Reopen: Governor**\
 `A region in the western corner of New York will become the sixth region to start reopening on Tuesday after hiring enough people to trace contacts of people who test positive for the novel coronavirus, Governor Andrew Cuomo told a daily briefing.`\
-https://nytimes.com/reuters/2020/05/18/us/18reuters-health-coronavirus-usa-new-york.html?searchResultPosition=5
-
-**The Man Who Coaches Husbands on How to Avoid Divorce**\
-`Would he be able to help smooth out my own marital conflicts?`\
-https://nytimes.com/2020/05/18/parenting/marriage-invisible-labor-coach.html?searchResultPosition=6
-
-**Jupiter’s Biggest Moons Started as Tiny Grains of Hail**\
-`A new model offers an explanation for how the Galilean satellites formed around the solar system’s largest world.`\
-https://nytimes.com/2020/05/18/science/jupiter-moons-europa.html?searchResultPosition=7
-
-**AmEx Says Employees Can Work From Home Through 2020**\
-`American Express Co employees that are able to work from home should continue to do so for the rest of the year, Chief Executive Officer Steve Squeri said in a video message on LinkedIn as he spoke about a return-to-office plan.   `\
-https://nytimes.com/reuters/2020/05/18/business/18reuters-health-coronavirus-american-express.html?searchResultPosition=8
-
-**Europe Drawing Lessons From Previous Crisis: France's Macron**\
-`Europe is drawing lessons from the financial crisis, French President Emmanuel Macron said on Monday after France and Germany proposed a European "Recovery Fund" worth 500 billion euros to help the bloc overcome the new coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-france-germany-europe.html?searchResultPosition=9
-
-**U.S. Attorney General Does Not Expect Review of 2016 Election Interference to Lead to Obama Criminal Probe**\
-`U.S. Attorney General William Barr said on Monday he does not expect a Justice Department review of the FBI's handling of 2016 election interference to lead to criminal charges for former President Barack Obama or former Vice President Joe Biden.`\
-https://nytimes.com/reuters/2020/05/18/us/politics/18reuters-usa-trump-russia.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/18/us/18reuters-health-coronavirus-usa-new-york.html?searchResultPosition=10
 
