@@ -1,36 +1,36 @@
+**Start 'Travel Bubbles' for Low-Risk Countries, Heathrow Urges UK Government**\
+`Britain should set up "travel bubbles" with low-risk countries to allow the movement of people, instead of bringing in new coronavirus quarantine rules when flights restart, according to Heathrow Airport.`\
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-britain-quarantine.html?searchResultPosition=2
+
+**Thyssenkrupp in Talks With Peers Over Steel Business: Source**\
+`German ailing conglomerate Thyssenkrupp is in talks with international peers about consolidating its loss-making steel business, a person familiar with the matter said.`\
+https://nytimes.com/reuters/2020/05/18/business/18reuters-thyssenkrupp-steel.html?searchResultPosition=3
+
+**SoftBank Racks Up Losses as Vision Fund Investments Plunge**\
+`Japanese technology company SoftBank Group Corp. racked up a loss of 961.6 billion yen ($9 billion) for the fiscal year through March, on red ink related to its Vision Fund investments including troubled office space-sharing venture WeWork.`\
+https://nytimes.com/aponline/2020/05/18/business/bc-as-japan-earns-softbank.html?searchResultPosition=4
+
+**SoftBank to Raise Over $11 Billion for Buybacks Using Alibaba Shares**\
+`Softbank Group will raise 1.25 trillion yen ($11.7 billion) using Alibaba stock to fund buybacks of its own shares, Chief Executive Masayoshi Son said on Monday.`\
+https://nytimes.com/reuters/2020/05/18/business/18reuters-softbankgroup-results-alibaba.html?searchResultPosition=5
+
+**EU's Initial Green-Light to Remdesivir Might Be Granted in Coming Days: EMA**\
+`The head of the European Union's medicines agency Guido Rasi said on Monday an initial authorisation for U.S. pharmaceutical company Gilead's remdesivir as a COVID-19 treatment could be granted in coming days.`\
+https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-eu-medicines.html?searchResultPosition=6
+
 **Philippines Records Seven Novel Coronavirus Deaths, 205 More Cases**\
 `The Philippines' health ministry on Monday reported seven new coronavirus deaths and 205 additional infections.`\
-https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-health-coronavirus-philippines-cases.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-health-coronavirus-philippines-cases.html?searchResultPosition=7
 
 **Senegal Online Food Company Sees Sales Double Due to Epidemic**\
 `Since the coronavirus reached Senegal, a growing number of residents in the capital have begun ordering groceries online, a welcome boost to a fledgling delivery service in a country where produce is usually bought in shops or markets.`\
-https://nytimes.com/reuters/2020/05/18/technology/18reuters-health-coronavirus-senegal-e-commerce.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/18/technology/18reuters-health-coronavirus-senegal-e-commerce.html?searchResultPosition=8
 
 **Indonesians Act to Feed Poor as Lockdown Hits Daily Wage Earners**\
 `Alarmed by how the coronavirus pandemic has left many Indonesians destitute, a group of volunteers are providing free meals to vulnerable daily wage earners in their neighbourhoods, ranging from rickshaw drivers to trash collectors. `\
-https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-health-coronavirus-indonesia-free-food.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-health-coronavirus-indonesia-free-food.html?searchResultPosition=9
 
 **Teva Pharm Gets Approval in China for Huntington's Treatment**\
 `China has given the greenlight to Teva Pharmaceutical Industries' Austedo treatment for Huntington's disease, the company said on Monday.`\
-https://nytimes.com/reuters/2020/05/18/world/middleeast/18reuters-teva-pharm-ind-china.html?searchResultPosition=5
-
-**Money Markets Ramp Up Bets on British Interest Rates Falling Below Zero**\
-`Money markets ramped up expectations of negative interest rates in the United Kingdom as policymakers debate further steps to support the struggling economy.`\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-markets-rates.html?searchResultPosition=6
-
-**Yemen Could Face 'Catastrophic' Food Situation as Pandemic Worsens: FAO**\
-`Yemen, already pushed to the brink of famine by a five-year war, could see a "catastrophic" food security situation due to the coronavirus pandemic and lower remittances from the Gulf, the U.N.'s Food and Agriculture Organisation (FAO) said on Monday.`\
-https://nytimes.com/reuters/2020/05/18/world/middleeast/18reuters-health-coronavirus-food-fao.html?searchResultPosition=7
-
-**Taiwan Says It Will Not Press for WHA Participation**\
-`Taiwan will not press for participation at the World Health Assembly beginning Monday, but will continue to donate medical supplies abroad and protest China's “two-faced behavior" that excludes it from such forums, the foreign minister said. `\
-https://nytimes.com/aponline/2020/05/18/world/asia/ap-as-taiwan-world-health-assembly.html?searchResultPosition=8
-
-**India's Swiggy to Lay Off 1,100 Employees as COVID-19 Hits Online Food Orders**\
-`Indian food delivery startup Swiggy said on Monday it would lay off 1,100 employees, or nearly 14% of its workforce, to cut costs, as a weeks-long nationwide lockdown to curb the coronavirus outbreak hits demand for online food ordering.`\
-https://nytimes.com/reuters/2020/05/18/technology/18reuters-india-swiggy-layoffs.html?searchResultPosition=9
-
-**China Says Australia Minister Should Use Appropriate Channel to Contact China Counterpart**\
-`China's foreign ministry said on Monday that Australian Trade Minister Simon Birmingham should use the appropriate channels if he wishes to speak with his Chinese counterpart. `\
-https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-china-australia-trade-minister.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/18/world/middleeast/18reuters-teva-pharm-ind-china.html?searchResultPosition=10
 
