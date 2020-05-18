@@ -1,36 +1,36 @@
-**Japan's Growth Drops Amid Pandemic, Worse Times Likely Ahead**\
-`Japan plunged into recession in the first quarter as the coronavirus pandemic battered manufacturing, exports and spending, and economists expect worse damage lies ahead. `\
-https://nytimes.com/aponline/2020/05/18/business/bc-as-japan-economy.html?searchResultPosition=2
+**China Jan-April Fiscal Revenues Down 14.5% Year-On-Year: Finance Ministry**\
+`China's fiscal revenues fell 14.5% on-year in the first four months of the year to 6.213 trillion yuan ($872.76 billion), the country's finance ministry said on Monday.`\
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-china-economy-fiscal-revenues.html?searchResultPosition=2
 
-**Yemen's Saudi-Backed Government Pleads for Coronavirus Aid**\
-`Yemen's Saudi-backed government accused its Houthi foes of covering up a big outbreak of coronavirus in areas they hold and the United Nations warned that the country could suffer a "catastrophic" food security situation due to the pandemic.`\
-https://nytimes.com/reuters/2020/05/18/world/middleeast/18reuters-health-coronavirus-yemen.html?searchResultPosition=3
+**Coronavirus Lets Salamanders Own the Road**\
+`Traffic is down, thanks to the pandemic. That’s good news for amphibians looking to migrate safely.`\
+https://nytimes.com/2020/05/18/science/salamanders-amphibians-wildlife-migration.html?searchResultPosition=3
 
-**Diageo Exploring Options to Delist Indian Arm: CNBC TV-18**\
-`Diageo Plc, the world's largest spirits maker, is exploring options to delist its Indian arm, United Spirits Ltd, by buying out minority shareholders, CNBC TV-18 reported on Monday. `\
-https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-diageo-unitedspirits-delisting.html?searchResultPosition=4
+**Keeping Your Business Going May Mean Both Growing and Shrinking**\
+`For some companies, like Mike’s Organic Delivery, embracing higher demand without changing their core strategy is the key to survival.`\
+https://nytimes.com/2020/05/18/business/small-business-coronavirus-pandemic-mikes-organic.html?searchResultPosition=4
 
-**Coronavirus Hits UK Households Hard Again in May: Survey**\
-`The financial health of British households has deteriorated sharply this month, though not as quickly as in April when the coronavirus lockdown all but closed down the economy, a survey showed on Monday.`\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-britain-households.html?searchResultPosition=5
+**Parents Are Relying on Melatonin to Help Their Kids Sleep. Should They?**\
+`A survey suggests that nearly half of children with difficulty sleeping have taken melatonin.`\
+https://nytimes.com/2020/05/18/parenting/melatonin-sleep-kids.html?searchResultPosition=5
 
-**Malaysia Reports 47 New Coronavirus Cases With No New Deaths**\
-`Malaysian health authorities on Monday reported 47 new coronavirus cases, bringing the cumulative total to 6,941 cases.`\
-https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-health-coronavirus-malaysia-cases.html?searchResultPosition=6
+**The Mount St. Helens Eruption Was the Volcanic Warning We Needed**\
+`It’s been 40 years since the sideways explosion that changed volcanology forever.`\
+https://nytimes.com/2020/05/18/science/mt-st-helens-eruption.html?searchResultPosition=6
 
-**Huawei Says Expect Business Impact From U.S. Move to Cut Off Chip Supply**\
-`Huawei Technologies said on Monday that its business will be inevitably impacted by the latest U.S. move to restrict chip sales to the Chinese technology company, but it is confident of finding solutions soon.`\
-https://nytimes.com/reuters/2020/05/18/business/18reuters-usa-huawei-tech-supply.html?searchResultPosition=7
+**Shopping for Planters**\
+`Because houseplants need more than just water and sun.`\
+https://nytimes.com/2020/05/18/realestate/shopping-for-planters.html?searchResultPosition=7
 
-**Start 'Travel Bubbles' for Low-Risk Countries, Heathrow Urges UK Government**\
-`Britain should set up "travel bubbles" with low-risk countries to allow the movement of people, instead of bringing in new coronavirus quarantine rules when flights restart, according to Heathrow Airport.`\
-https://nytimes.com/reuters/2020/05/18/world/europe/18reuters-health-coronavirus-britain-quarantine.html?searchResultPosition=8
+**If Democrats Hold a Big Convention, Will Anybody Come?**\
+`The Times interviewed 59 delegates who will help nominate Joe Biden. Most said they don’t want to risk their own health, or the health of others, by attending a full-scale convention in Milwaukee.`\
+https://nytimes.com/2020/05/18/us/politics/democratic-convention-virus.html?searchResultPosition=8
 
-**Thyssenkrupp in Talks With Peers Over Steel Business: Source**\
-`German ailing conglomerate Thyssenkrupp is in talks with international peers about consolidating its loss-making steel business, a person familiar with the matter said.`\
-https://nytimes.com/reuters/2020/05/18/business/18reuters-thyssenkrupp-steel.html?searchResultPosition=9
+**A Brooklyn Hospital Mourns the Doctor Who Was ‘Our Jay-Z’**\
+`Dr. James A. Mahoney, who had spent his whole career at a poorly financed public hospital, went to extraordinary lengths to help patients.`\
+https://nytimes.com/2020/05/18/nyregion/doctor-dies-coronavirus-james-mahoney.html?searchResultPosition=9
 
-**SoftBank Racks Up Losses as Vision Fund Investments Plunge**\
-`Japanese technology company SoftBank Group Corp. racked up a loss of 961.6 billion yen ($9 billion) for the fiscal year through March, on red ink related to its Vision Fund investments including troubled office space-sharing venture WeWork.`\
-https://nytimes.com/aponline/2020/05/18/business/bc-as-japan-earns-softbank.html?searchResultPosition=10
+**No ‘Prairie Home Companion’ at Sea, and So Far, No Refund, Either**\
+`Garrison Keillor’s cruise was to set sail in March. Loyal fans out thousands of dollars are still scrambling to determine if they will get their money back — and if so, how much.`\
+https://nytimes.com/2020/05/18/travel/prairie-home-companion-garrison-keillor-cruises.html?searchResultPosition=10
 
