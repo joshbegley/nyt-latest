@@ -1,8 +1,8 @@
-**Exclusive: India Resumes Purchases of Malaysian Palm Oil-Traders**\
-`Indian buyers have resumed purchases of Malaysian palm oil after a four-month gap following a diplomatic row, with buying spurred by a fall in domestic inventories and discounted prices, trade sources said.`\
-https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-india-malaysia-palmoil-exclusive.html?searchResultPosition=9
+**Spain's Bautista Agut Still Eyeing Elusive ATP Finals Spot**\
+`Qualifying for the season-ending men's ATP Finals, which features the world's top eight singles players and doubles teams, is one of the goals for Roberto Bautista Agut before he retires, the Spaniard has said.`\
+https://nytimes.com/reuters/2020/05/19/sports/tennis/19reuters-tennis-atpfinals-bautistaagut.html?searchResultPosition=9
 
-**Australia Says It Doesn't Want Trade War With China**\
-`Australia’s trade minister said Tuesday that his country does not want a trade war with China, but maintained Beijing had erred by imposing stiff tariffs on Australian barley in what is widely seen as punishment for advocating an investigation into the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/05/19/world/asia/ap-as-virus-outbreak-australia-china.html?searchResultPosition=10
+**French Foreign Minister: Regrets New Rebel Party but LREM Majority Not in Danger**\
+`French Foreign Affairs Minister Jean-Yves Le Drian said on Tuesday it was a "pity" that rebels had defected from President Emmanuel Macron's ruling LREM party to form a new group, but that he felt Macron's majority remained safe.`\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-france-politics-minister.html?searchResultPosition=10
 
