@@ -1,8 +1,8 @@
-**Kumail Nanjiani Is Finding His Way Through 'The Weirds'**\
-`Kumail Nanjiani has a few names for quarantine life.`\
-https://nytimes.com/aponline/2020/05/19/us/ap-us-film-kumail-nanjiani.html?searchResultPosition=9
+**Trump Says Considering Travel Ban on Brazil Over Coronavirus**\
+`U.S. President Donald Trump said on Tuesday he is considering imposing a ban on travel from Brazil, which has the world's third highest number of people infected by the novel coronavirus.`\
+https://nytimes.com/reuters/2020/05/19/world/americas/19reuters-health-coronavirus-usa-brazil.html?searchResultPosition=9
 
-**N.F.L. Team Owners Enhance Rooney Rule, but Stop Short of Incentives**\
-`Tuesday’s vote prevents teams from blocking assistant coaches and executives from interviewing for new jobs. Team owners also rejected a measure to reward teams who hire nonwhite candidates with better draft position.`\
-https://nytimes.com/2020/05/19/sports/football/nfl-rooney-rule-minority-coaches.html?searchResultPosition=10
+**Suspect in Toronto Sword Slaying Also Charged With Terrorism**\
+`A teenager accused of stabbing a woman to death at a Toronto massage parlor was charged with terrorism Tuesday after police said they uncovered evidence the attack was inspired by an online community of sexually frustrated men. `\
+https://nytimes.com/aponline/2020/05/19/world/ap-cn-canada-terrorism-case.html?searchResultPosition=10
 
