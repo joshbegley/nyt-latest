@@ -1,8 +1,8 @@
-**Novartis Wins Conditional European Approval for Gene Therapy Zolgensma**\
-`Swiss drugmaker Novartis said on Tuesday it was awarded conditional European approval for its gene therapy Zolgensma for treating children with the hereditary disease spinal muscular atrophy (SMA). `\
-https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-novartis-zolgensma.html?searchResultPosition=9
+**Peruvian Player Gets Two-Year Doping Ban**\
+`Peruvian player Arklon Huertas Del Pino has been handed a two-year ban for doping, the International Tennis Federation has said.`\
+https://nytimes.com/reuters/2020/05/19/sports/tennis/19reuters-sport-doping-tennis.html?searchResultPosition=9
 
-**Carrier Sidelined by Coronavirus Heads Back to Sea This Week**\
-`The USS Theodore Roosevelt will return to sea later this week, nearly two months after the ship was sidelined in Guam with a rapidly growing coronavirus outbreak, U.S. officials said as the crew finished final preparations to depart.`\
-https://nytimes.com/aponline/2020/05/19/us/politics/ap-us-virus-outbreak-aircraft-carrier.html?searchResultPosition=10
+**China's Embassy Says Australia Claim of WHA Vindication Is 'a Joke'**\
+`China derided as "a joke" on Tuesday an Australian assertion that a resolution at the World Health Assembly (WHA) for an enquiry into the novel coronavirus was a vindication of its push for a global review, another sign of worsening relations.`\
+https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-health-coronavirus-australia-china.html?searchResultPosition=10
 
