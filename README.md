@@ -1,8 +1,8 @@
-**U.S. Economy Won't Reclaim All of Its Lost Ground Until After 2021: CBO**\
-`The U.S. economy should bounce back sharply in the third quarter after its deep coronavirus-related collapse, but it will not fully retake its lost ground until sometime after next year, the non-partisan Congressional Budget Office said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-usa-economy.html?searchResultPosition=9
+**Canada's Reitmans Seeks Bankruptcy Protection as COVID-19 Shuts Stores**\
+`Reitmans Canada Ltd on Tuesday obtained preliminary approval to seek bankruptcy protection under the Companies' Creditors Arrangement Act, the latest retailer seeking to restructure its operations as the COVID-19 pandemic causes prolonged store closures.`\
+https://nytimes.com/reuters/2020/05/19/us/19reuters-reitmans-canada-bankruptcy.html?searchResultPosition=9
 
-**Russia: Military Helicopter Crash Lands Killing All Crew**\
-`The Russian military said one of its helicopters crash-landed in an uninhabited area north of Moscow late Tuesday, killing all crew members.`\
-https://nytimes.com/aponline/2020/05/19/world/europe/ap-eu-russia-helicopter-crash.html?searchResultPosition=10
+**Kevin Harvick Looks to Sweep NASCAR's Return at Darlington**\
+`The win by Kevin Harvick in NASCAR's return to racing over the weekend was a bit predictable considering the enormous task teams are facing in a flurry of rescheduled events. `\
+https://nytimes.com/aponline/2020/05/19/sports/ap-car-nascar-darlington-.html?searchResultPosition=10
 
