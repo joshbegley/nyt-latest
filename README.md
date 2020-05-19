@@ -1,8 +1,8 @@
-**France's Renault Reaches Deal on 5 Billion Euro State-Backed Loan: Sources**\
-`French carmaker Renault has sealed a deal with banks on a 5 billion-euro ($5.47 billion) state-guaranteed loan to help the company to cope with the coronavirus outbreak, two sources close to the matter told Reuters on Tuesday.    `\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-renault-loan.html?searchResultPosition=9
+**Facebook Fined by Canada Competition Watchdog After Privacy Probe**\
+`Canada's competition watchdog said on Tuesday it had fined Facebook Inc C$9 million ($6.5 million) after an investigation found the social network made "misleading" claims about personal information of Canadians on Facebook and Messenger.`\
+https://nytimes.com/reuters/2020/05/19/technology/19reuters-facebook-canada.html?searchResultPosition=9
 
-**Italy's Daily Coronavirus Death Toll and New Cases Climb**\
-`Deaths from the COVID-19 epidemic in Italy climbed by 162 on Tuesday, against 99 the day before, the Civil Protection Agency said, while the daily tally of new cases rose sharply to 813 from 451 on Monday.`\
-https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-health-coronavirus-italy-tally.html?searchResultPosition=10
+**UK Death Toll From Confirmed Coronavirus Cases Rises to 35,341**\
+`The United Kingdom's death toll from confirmed cases of COVID-19 rose to 35,341 on Tuesday, an increase of 545 on the day, environment minister George Eustice said.`\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-health-coronavirus-britain-casualties.html?searchResultPosition=10
 
