@@ -1,8 +1,8 @@
-**Julius Baer Posts 8% AuM Drop, Margin Boost in First Four Months**\
-`Julius Baer saw assets under management fall 8% in the first four months of 2020 to 392 billion Swiss francs ($403.38 billion), the Swiss private bank said on Tuesday, even as a hit to markets from coronavirus turmoil boosted its gross margins.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-julius-baer-results.html?searchResultPosition=9
+**Novartis Wins Conditional European Approval for Gene Therapy Zolgensma**\
+`Swiss drugmaker Novartis said on Tuesday it was awarded conditional European approval for its gene therapy Zolgensma for treating children with the hereditary disease spinal muscular atrophy (SMA). `\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-novartis-zolgensma.html?searchResultPosition=9
 
-**China Urges Its Firms to List in London in Renewed Global Push: Sources**\
-`China is urging domestic companies to look at listing in London, several sources told Reuters, as the country aims to revive deals under a Stock Connect scheme and strengthen overseas ties in the wake of the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-britain-listings-china.html?searchResultPosition=10
+**Carrier Sidelined by Coronavirus Heads Back to Sea This Week**\
+`The USS Theodore Roosevelt will return to sea later this week, nearly two months after the ship was sidelined in Guam with a rapidly growing coronavirus outbreak, U.S. officials said as the crew finished final preparations to depart.`\
+https://nytimes.com/aponline/2020/05/19/us/politics/ap-us-virus-outbreak-aircraft-carrier.html?searchResultPosition=10
 
