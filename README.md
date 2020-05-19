@@ -1,8 +1,8 @@
-**Sony to Turn Financial Arm Into Wholly Owned Unit for $3.7 Billion: Nikkei**\
-`Sony Corp will turn its financial arm, Sony Financial Holdings Inc, into a wholly owned unit through a tender offer worth about 400 billion yen ($3.72 billion), the Nikkei business daily reported.`\
-https://nytimes.com/reuters/2020/05/19/technology/19reuters-sony-outlook-sony-financial.html?searchResultPosition=9
+**Stranded M.L.B. Prospects Find a Backyard of Dreams**\
+`Seth Blair, a longtime pitching prospect, set up a practice area in his Arizona backyard and opened it to other players who did not have access to baseball facilities during the game’s shutdown. As many as 15 of them show up in staggered groups on a given day.`\
+https://nytimes.com/2020/05/19/sports/baseball/mlb-prospects-training-coronavirus.html?searchResultPosition=9
 
-**Thailand Reports Two New Coronavirus Cases, No Additional Deaths**\
-`Thailand on Tuesday confirmed two new coronavirus cases and no additional deaths, bringing its total to 3,033 infections, a senior official said. `\
-https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-health-coronavirus-thailand.html?searchResultPosition=10
+**He Had Picked the Last Day of His Career. Now It May Never Come.**\
+`The Spanish striker Aritz Aduriz seemed to have been given the perfect way to say goodbye to his 20-year career. Then the pandemic struck, and now he may just fade to black.`\
+https://nytimes.com/2020/05/19/sports/soccer/aritz-aduriz-bilbao.html?searchResultPosition=10
 
