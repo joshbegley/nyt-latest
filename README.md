@@ -1,8 +1,8 @@
-**Learned My Lesson**\
-`Trent H. Evans brings back a theme we haven’t seen for a while.`\
-https://nytimes.com/2020/05/18/crosswords/daily-puzzle-2020-05-19.html?searchResultPosition=9
+**Trump to Tap New Company to Make Covid-19 Drugs in the U.S.**\
+`The Trump administration on Tuesday will announce one of the largest-ever contracts to bring pharmaceutical manufacturing from abroad to a new plant in Virginia.`\
+https://nytimes.com/2020/05/18/us/politics/trump-coronavirus-drug-manufacturing.html?searchResultPosition=9
 
-**Michael Jordan’s Game-Worn Sneakers Sell for $560,000**\
-`A pair of Air Jordan 1s from 1985, signed by the NBA legend, broke an auction record on Sunday.`\
-https://nytimes.com/2020/05/18/sports/michael-jordan-sneakers-auction-record.html?searchResultPosition=10
+**Australian Students Return to School, Qantas Plans Return to Skies**\
+`Children in Australia's most populated state will return to school full-time next week, a major step towards normalising public life since the coronavirus pandemic, as Qantas Airways detailed new safety measures for the resumption of flights. `\
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-health-coronarivus-australia.html?searchResultPosition=10
 
