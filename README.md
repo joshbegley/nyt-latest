@@ -1,8 +1,8 @@
-**NFL Expands Rooney Rule to Boost Diversity**\
-`NFL teams must interview at least two minority candidates when looking to fill a head coaching position under a resolution passed on Tuesday by team owners that is designed to increase diversity, the league said.`\
-https://nytimes.com/reuters/2020/05/19/sports/football/19reuters-football-nfl-diversity.html?searchResultPosition=9
+**One Crisis Too Many: How the Coronavirus Pushed Germany to Shift Course**\
+`Some may not like it back home, but in the twilight of her career, Angela Merkel joined with France to try to save the European Union.`\
+https://nytimes.com/2020/05/19/world/europe/coronavirus-germany-merkel-france.html?searchResultPosition=9
 
-**Battle Over How Quickly Kansas Reopens Increasingly Bitter**\
-`A battle in Kansas between the Democratic governor and Republican-controlled Legislature over reopening the economy has grown increasingly bitter, clouded by election year politics present and past. `\
-https://nytimes.com/aponline/2020/05/19/us/ap-us-xgr-kansas-legislature.html?searchResultPosition=10
+**Economy, Johnson & Johnson, Suze Orman: Your Tuesday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/05/19/briefing/economy-johnson-johnson-suze-orman.html?searchResultPosition=10
 
