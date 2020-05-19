@@ -1,8 +1,8 @@
-**Ceremony Marks 10th Anniversary of Quashing of Thai Protests**\
-`A group of former demonstrators gathered in Thailand's capital on Tuesday to remember those killed when soldiers violently ended a months-long anti-government protest 10 years ago.`\
-https://nytimes.com/aponline/2020/05/19/world/asia/ap-as-thailand-protest-anniversary.html?searchResultPosition=9
+**Merkel, Visegrad States: We'll Dismantle Border Controls When Pandemic Allows**\
+`German Chancellor Angela Merkel and the leaders of the Visegrad Four group of countries on Tuesday agreed that in was in their interests to gradually dismantle border crossing restrictions and controls as soon as the coronavirus pandemic allowed.`\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-health-coronavirus-germany-czech.html?searchResultPosition=9
 
-**Cost Spreading Virus Weighed on Home Depot in Early 2020**\
-`The cost of the spreading coronavirus pandemic dragged on profits early in the year at Home Depot. `\
-https://nytimes.com/aponline/2020/05/19/business/ap-us-home-depot-results.html?searchResultPosition=10
+**Kyrgyzstan to Lift Most Coronavirus-Linked Restrictions**\
+`Kyrgyzstan will lift most of the remaining coronavirus-related restrictions in the coming days, reopening the retail and services sectors and public transportation, the government said   on Tuesday.`\
+https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-health-coronavirus-kyrgyzstan.html?searchResultPosition=10
 
