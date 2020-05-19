@@ -1,8 +1,8 @@
-**British Backing Gives Some RBS Investors Comfort in Crisis**\
-`Best known as Britain's biggest financial crisis failure, some investors and analysts view majority state-owned Royal Bank of Scotland as the lender likely to emerge strongest from the coronavirus downturn.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-rbs-strateg-focus.html?searchResultPosition=9
+**Rwanda Orders Release of Young Women Jailed Over Abortions**\
+`Rwanda’s president has pardoned and ordered the release of 50 young women who were jailed for having or assisting with abortions.`\
+https://nytimes.com/aponline/2020/05/19/world/africa/ap-af-rwanda-abortions.html?searchResultPosition=9
 
-**China's Wuhan Conducts 467,847 COVID-19 Tests, Says Health Authority**\
-`The city of Wuhan, the original epicentre of the new coronavirus outbreak in China, conducted 467,847 nucleic acid tests on May 18, the local health authority said on Tuesday, up from the 335,887 tests a day earlier. `\
-https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-health-coronavirus-china-wuhan.html?searchResultPosition=10
+**EasyJet Reveals 'Sophisticated' Hack of Customer Details**\
+`U.K.-based budget airline easyJet says that “highly sophisticated” hackers have accessed the email addresses and travel details of approximately 9 million customers.`\
+https://nytimes.com/aponline/2020/05/19/business/ap-eu-britain-easyjet-hack.html?searchResultPosition=10
 
