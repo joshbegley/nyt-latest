@@ -1,8 +1,8 @@
-**Mnuchin and Powell Warn of Economic Scarring, and Offer Divergent Solutions**\
-`The Treasury secretary and Fed chair said economic damage could last. One prescribed rapid reopening, the other robust policy action.`\
-https://nytimes.com/2020/05/19/us/politics/mnuchin-powell-senate-hearing.html?searchResultPosition=9
+**Exclusive: Eying Iran, U.S. Issues Warning to Stay 100 Meters Away From Its Warships**\
+`The U.S. Navy on Tuesday issued a warning to mariners to stay 100 meters (yards) away from U.S. warships or risk being "interpreted as a threat and subject to lawful defensive measures."`\
+https://nytimes.com/reuters/2020/05/19/world/middleeast/19reuters-usa-iran-military-exclusive.html?searchResultPosition=9
 
-**Lockheed's F-35 Production Could Slow by 24 Jets as COVID-19 Hits Suppliers**\
-`Lockheed Martin said on Tuesday it will slow production of its stealthy F-35 fighter jets at its Texas facility, possibly delaying delivery of between 18 and 24 jets due to a parts shortage as the coronavirus hampers production across the jet's vast supply chain.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-usa-lockheed-f35.html?searchResultPosition=10
+**Former WWE Pro Shad Gaspard Missing in Ocean Off California**\
+`Former World Wrestling Entertainment pro Shad Gaspard was still missing Tuesday after he was swept out to sea in Southern California last weekend while swimming with his young son.`\
+https://nytimes.com/aponline/2020/05/19/sports/ap-us-ocean-search-missing-wrestler.html?searchResultPosition=10
 
