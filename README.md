@@ -1,8 +1,8 @@
-**Fed's Barkin Says Officials Still 'Riding Blind' in Assessing Reopening: Interview**\
-`Polling local businesses about the U.`\
-https://nytimes.com/reuters/2020/05/19/us/19reuters-usa-fed-barkin.html?searchResultPosition=9
+**How to Start a No-Smell, No-Hassle Compost Box in Your Living Room**\
+`We’re all doing a lot of cooking right now, so grab a cardboard box and turn those scraps into nutrient-rich soil instead of smelly garbage.`\
+https://nytimes.com/interactive/2020/05/19/burst/compost-box-indoors-coronavirus.html?searchResultPosition=9
 
-**De Blasio’s Health Chief Vanished for Days. Is She Still in Charge?**\
-`Dr. Oxiris Barbot re-emerged and said she’s on the team. But one of her agency’s key functions in managing the pandemic has been handed to another city department.`\
-https://nytimes.com/2020/05/19/nyregion/barbot-police-health-coronavirus.html?searchResultPosition=10
+**Trump Says He Will Sign Order to Cut Federal Regulations**\
+`U.S. President Donald Trump said on Tuesday he will sign an executive order directing federal agencies to eliminate "unnecessary regulations that impede economic recovery."`\
+https://nytimes.com/reuters/2020/05/19/us/19reuters-health-coronavirus-usa-regulations.html?searchResultPosition=10
 
