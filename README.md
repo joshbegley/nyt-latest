@@ -1,8 +1,8 @@
-**Virginia Family Out for Ride Finds Nearly $1 Million in Road**\
-`A Virginia family out for a ride to get a change of scenery after being holed up due to the coronavirus found nearly $1 million in two bags lying in the road.`\
-https://nytimes.com/aponline/2020/05/19/us/ap-us-odd-million-dollar-find.html?searchResultPosition=9
+**Annie Glenn, Champion of Those With Speech Disorders, Dies at 100**\
+`Being an astronaut’s wife thrust her into the spotlight, but a stutter left her struggling for words until she found help.`\
+https://nytimes.com/2020/05/19/us/annie-glenn-champion-of-those-with-speech-disorders-dies-at-100.html?searchResultPosition=9
 
-**Argentina Having 'Constructive' Dialogue With Creditors: Economy Minister**\
-`Argentina and its creditors are still having a "constructive" dialogue and need to deepen their collaboration, economy minister Martin Guzman said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/19/world/americas/19reuters-argentina-debt-guzman.html?searchResultPosition=10
+**U.S. Energy Secretary Criticized by Advocacy Groups for 'Redlining' Comment**\
+`Liberal groups criticized U.S. Energy Secretary Dan Brouillette on Tuesday for a comment they interpreted as comparing the reluctance of some banks to finance fossil fuels projects with discrimination against minorities.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-usa-discrimination-brouillette.html?searchResultPosition=10
 
