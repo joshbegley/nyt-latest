@@ -1,8 +1,8 @@
-**Starbucks Says Reopening Many Stores in Japan**\
-`Starbucks Coffee Japan said it was reopening many of its stores in Japan, including Tokyo, starting on Tuesday, although many of them will be limited to take-out and drive-through services. `\
-https://nytimes.com/reuters/2020/05/18/business/18reuters-health-coronarivus-japan-starbucks.html?searchResultPosition=9
+**What to Know About the Malaria Drug Trump Is Using to Prevent Covid-19**\
+`Here are the facts on hydroxychloroquine, which the president has promoted despite warnings from the F.D.A. that it can cause heart problems.`\
+https://nytimes.com/2020/05/18/us/hyrdoxychloroquine-coronavirus.html?searchResultPosition=9
 
-**Japan's Nomura to Bolster Private Investment Business, CEO Says**\
-`Nomura Holdings Inc will beef up its private investment business including advising start-ups, its chief executive said on Tuesday, after the firm surprised with its first loss in five quarters.`\
-https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-nomura-hldgs-strategy.html?searchResultPosition=10
+**The Commander in Chief’s Following Wanes**\
+`Trump started his term with strong support in America’s armed forces. But the respect the president typically gets from the military has cooled.`\
+https://nytimes.com/2020/05/18/opinion/trump-military.html?searchResultPosition=10
 
