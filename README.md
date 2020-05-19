@@ -1,8 +1,8 @@
-**Auto Industry Key Part of Italy GDP, Fair to Support FCA if Creates Jobs: Minister**\
-`The auto industry represents a significant share of Italy's economy and it's right to support those who create jobs in the country, Deputy Economy Minister Laura Castelli said when asked about Fiat Chrysler's request for state-backed loans. `\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-fca-loan.html?searchResultPosition=9
+**Facing Adulthood With an Economic Disaster’s Lasting Scars**\
+`Those entering the job market in a downturn may never catch up in pay, opportunities or confidence.`\
+https://nytimes.com/2020/05/19/business/economy/coronavirus-young-old.html?searchResultPosition=9
 
-**Czech Coronavirus Cases Show Biggest Jump in Four Weeks**\
-`The number of new coronavirus cases in the Czech Republic showed its biggest daily rise in four weeks and climbed above 100 for the first time this month, the Health Ministry said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-health-coronavirus-czech.html?searchResultPosition=10
+**It Took a Pandemic, but 7-Eleven in Japan Is Letting Stores Take a Break**\
+`The chain, so omnipresent it is considered part of the national infrastructure, has begun making exceptions to a store hours policy that it has long enforced.`\
+https://nytimes.com/2020/05/19/business/coronavirus-7-eleven.html?searchResultPosition=10
 
