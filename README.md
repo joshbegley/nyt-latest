@@ -1,8 +1,8 @@
-**On Politics: Hopeful Virus News (This Is Not a Drill)**\
-`Vaccine testing progresses, and Trump makes an admission: This is your morning tip sheet.`\
-https://nytimes.com/2020/05/19/us/politics/coronavirus-vaccine.html?searchResultPosition=9
+**Thai Anger Unabated, Banned Politician Says, 10 Years After Deadly Army Crackdown**\
+`Thailand marked the 10th anniversary of a bloody army crackdown on protesters on Tuesday, with a banned opposition politician saying anger was unabated, especially after last year's disputed election that kept a coup leader in power.`\
+https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-thailand-politics-anniversary.html?searchResultPosition=9
 
-**China Says Boy Picked by Dalai Lama Now a College Graduate**\
-`China said Tuesday that a boy who disappeared 25 years ago after being picked by the Dalai Lama as Tibetan Buddhism’s second-highest figure is now a college graduate with a stable job. `\
-https://nytimes.com/aponline/2020/05/19/world/asia/ap-as-china-panchen-lama.html?searchResultPosition=10
+**Booking Holding's Agoda Cuts 1,500 Jobs**\
+`Bookings Holdings Inc's Asian online travel agency Agoda cut 1,500 jobs and reduces expense as global travel slowed amid the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-booking-hldg-agoda-jobs.html?searchResultPosition=10
 
