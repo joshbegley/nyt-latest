@@ -1,8 +1,8 @@
-**Sport-On This Day: Born May 20, 1952: Roger Milla, Cameroonian Footballer**\
-`When the country’s president demanded that a soon-to-turn 38-year-old striker be included in the World Cup squad, it was seen as a new low for African football.`\
-https://nytimes.com/reuters/2020/05/19/sports/soccer/19reuters-sport-anniversary-milla.html?searchResultPosition=9
+**UK Announces New Brexit Tariff Regime: Keeps Tariffs on Cars and Agricultural Products**\
+`The United Kingdom on Tuesday announced a new post-Brexit tariff regime to replace the European Union's external tariff, maintaining a 10% tariff on cars and levies on agricultural products such as lamb, beef, and poultry.`\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-britain-eu.html?searchResultPosition=9
 
-**April European Car Sales See Worst Drop Since Records Kept**\
-`European car sales bottomed out last month as the automotive industry faces its worst crisis in decades. `\
-https://nytimes.com/aponline/2020/05/19/business/ap-eu-virus-outbreak-europe-car-sales-tank-embargoed-for-0600-gm.html?searchResultPosition=10
+**Trump Signs Deal With Company in Effort Shift Drug Manufacturing to U.S.: New York Times**\
+`The United States will announce on Tuesday that it has signed a $354 million contract with a company to make generic medicines and pharmaceutical ingredients in the country needed to treat COVID-19, the New York Times reported late on Monday. `\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-usa-phlow.html?searchResultPosition=10
 
