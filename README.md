@@ -1,8 +1,8 @@
-**Lufthansa Expects Hundreds of Aircraft to Be Grounded Until 2022**\
-`Lufthansa is bracing for hundreds of aircraft to remain grounded due to the coronavirus pandemic well into 2022 and that further job cuts at its maintenance and catering businesses were inevitable.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-lufthansa-fleet.html?searchResultPosition=9
+**Spain Ready to Approve New Credit Lines to Help Companies Cope With COVID-19**\
+`Spain said on Tuesday it would approve new liquidity lifelines to help companies and households weather the coronavirus crisis after releasing another tranche of the 100 billion euros of state-backed credit announced in March. `\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-health-coronavirus-spain-measures.html?searchResultPosition=9
 
-**UN Agency Warns Pandemic Could Kill 1 in 8 Museums Worldwide**\
-`Museums are starting to reopen in some countries as governments ease coronavirus restrictions, but experts warn one in eight worldwide could face permanent closure due to the pandemic.`\
-https://nytimes.com/aponline/2020/05/19/world/europe/ap-eu-virus-outbreak-museums-.html?searchResultPosition=10
+**SC Man Kills Woman in Jealous Rage, Daughters Trying to Help**\
+`A man who shot and killed a woman and two of her daughters in South Carolina before killing himself was angry that his one-time girlfriend had gone to the beach with another man, authorities said.`\
+https://nytimes.com/aponline/2020/05/19/us/ap-us-family-killed.html?searchResultPosition=10
 
