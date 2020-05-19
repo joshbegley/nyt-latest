@@ -1,8 +1,8 @@
-**Brazil's Stock Exchange to Skip Sao Paulo Early Holidays**\
-`Brazilian stock exchange operator B3 SA said on Tuesday its operations will be open this week despite plans by Sao Paulo city and state officials to declare an extended  holiday to get workers to stay home to reduce potential spread of the novel coronavirus.`\
-https://nytimes.com/reuters/2020/05/19/world/americas/19reuters-health-coronavirus-brazil-banks.html?searchResultPosition=9
+**U.S. 'Likely' to Extend Travel Restrictions on Canada, Mexico: Homeland Security's Wolf**\
+`Acting U.S. Department of Homeland Security chief Chad Wolf said Tuesday the Trump administration is "likely" to extend non-essential travel restrictions at U.S. land borders with Mexico and Canada that are set to expire on Wednesday.`\
+https://nytimes.com/reuters/2020/05/19/world/americas/19reuters-health-coronavirus-usa-travel.html?searchResultPosition=9
 
-**Elderly Home Turns to Wearables for Contact Tracing, Sidestepping Apple-Google Limits**\
-`When a senior living facility in Amarillo, Texas suspected a nurse may have caught the novel coronavirus this month, it had a list within five minutes of staff and residents the nurse could have infected. `\
-https://nytimes.com/reuters/2020/05/19/technology/19reuters-health-coronavirus-wearables-tracing.html?searchResultPosition=10
+**Fiserv's First Data Pays $40 Million to Settle FTC Charges It Aided Merchants' Fraud**\
+`First Data Merchant Services LLC and a former executive will pay nearly $40.3 million to settle U.S. civil charges they knowingly processed payments and helped launder credit card transactions in four scams that harmed hundreds of thousands of consumers.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-ftc-fiserv-settlement.html?searchResultPosition=10
 
