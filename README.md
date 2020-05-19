@@ -1,8 +1,8 @@
-**Trump Threatens Permanent Freeze of WHO Funding**\
-`U.S. President Donald Trump threatened on Monday to permanently stop funding of the World Health Organization (WHO) and reconsider membership of the United States in the body. `\
-https://nytimes.com/reuters/2020/05/18/us/18reuters-health-coronavirus-trump-who.html?searchResultPosition=9
+**India Coronavirus Infections Surge Past 100,000, Deaths Top 3,000**\
+`The number of coronavirus cases in India surged past 100,000 on Tuesday, with the rate of growth of new infections showing little sign of slowing despite a strict weeks-long lockdown.`\
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-health-coronavirus-india-cases.html?searchResultPosition=9
 
-**Button Shocked Vettel Will Not Be at Ferrari Next Season**\
-`Former world champion Jenson Button says he is shocked Sebastian Vettel will not drive for Ferrari next season and that it would be "madness" if the team had pushed him out.`\
-https://nytimes.com/reuters/2020/05/18/sports/autoracing/18reuters-motor-f1-ferrari-vettel-button.html?searchResultPosition=10
+**Empty Middle Seat? Depends on Which Country You Are Flying In**\
+`In Thailand, you cannot have food or water in flight and must wear a mask. In Malaysia and Indonesia, the plane needs to be half-empty. In the United States and Europe, it's not mandatory for airlines to leave the middle seat open.`\
+https://nytimes.com/reuters/2020/05/18/business/18reuters-health-coronavirus-airlines.html?searchResultPosition=10
 
