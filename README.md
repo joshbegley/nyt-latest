@@ -1,8 +1,8 @@
-**Factbox: France, Germany Propose 500 Billion Euros in Grants for Post-COVID Recovery**\
-`France and Germany have proposed a half-a-trillion euro fund to make grants to European Union regions and sectors worst hit by coronavirus, to help them recover without taking on a mountain of new debt.`\
-https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-eu-recovery-fund-factbox.html?searchResultPosition=9
+**Japan Ready to Deploy Fiscal, Monetary Tools to Combat Pandemic: Economy Minister**\
+`Japan is ready to deploy all available fiscal and monetary policy means to protect jobs and businesses from the widening fallout of the coronavirus pandemic, economy minister Yasutoshi Nishimura said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-japan-economy-nishimura.html?searchResultPosition=9
 
-**Super Cyclone Bears Down on India and Bangladesh**\
-`Hundreds of thousands have been evacuated as Cyclone Amphan approaches, one of the region’s most powerful storms in decades.`\
-https://nytimes.com/2020/05/19/world/asia/cyclone-amphan-bangladesh-india.html?searchResultPosition=10
+**U.S. Guitar Maker PRS Resumes Hand-Building Instruments-At a Safe Distance**\
+`Maryland's decision to reopen non-essential businesses came just in time for high-end guitar maker PRS Guitars, which kept 374 workers on its payroll during an eight-week shutdown that has gouged a deep hole in revenues, executives said.`\
+https://nytimes.com/reuters/2020/05/19/arts/19reuters-usa-small-business-guitars.html?searchResultPosition=10
 
