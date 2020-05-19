@@ -1,8 +1,8 @@
-**Susan Pompeo Draws Scrutiny in Inquiry Over Dry Cleaning and Dog Walking**\
-`The wife of Secretary of State Mike Pompeo is at the center of an investigation into whether a State Department employee was assigned to do household tasks.`\
-https://nytimes.com/2020/05/19/us/politics/mike-susan-pompeo-inspector-general.html?searchResultPosition=9
+**Mining Companies Rush to Shield Indigenous Communities From Coronavirus**\
+`Big mining companies that rely on indigenous workforces or operate near remote communities have acted fast to curb the spread of the coronavirus and avoid a public health crisis that could damage their reputations.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-miners-indigenous-focus.html?searchResultPosition=9
 
-**GM Delays Tentative Restart for Plant in Silao, Mexico to May 21**\
-`General Motors Co signaled it has pushed back the tentative date for restarting operations at its auto assembly plant in the central Mexican city of Silao to May 21 from May 20, according to a message to workers seen by Reuters on Tuesday.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-mexico-generalmotors.html?searchResultPosition=10
+**Brazil Records 1,179 Coronavirus Deaths, 271,628 Confirmed Cases: Health Ministry**\
+`Brazil recorded a new daily record of 1,179 deaths from the new coronavirus on Tuesday, with a total of 17,971 total fatalities and 271,628 confirmed cases, the health ministry said. `\
+https://nytimes.com/reuters/2020/05/19/world/americas/19reuters-health-coronavirus-brazil.html?searchResultPosition=10
 
