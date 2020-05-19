@@ -1,8 +1,8 @@
-**U.S. Senate Panel Backs Trump Nominee Ratcliffe to Be Top U.S. Spy**\
-`The U.S. Senate Intelligence Committee voted along party lines on Tuesday to back President Donald Trump's nomination of Republican Representative John Ratcliffe to be director of national intelligence.`\
-https://nytimes.com/reuters/2020/05/19/us/politics/19reuters-usa-trump-intelligence.html?searchResultPosition=9
+**U.S. Blacklists Chinese Logistics Firm Over Business With Iranian Airline**\
+`Washington on Tuesday imposed sanctions on a China-based company it accused of acting on behalf of U.S.-blacklisted Iranian Mahan Air, the Treasury Department said, warning further sanctions could be imposed on those doing business with the airline.`\
+https://nytimes.com/reuters/2020/05/19/world/middleeast/19reuters-usa-china-iran.html?searchResultPosition=9
 
-**Trump Heads to Capitol Hill to Meet With Senate GOP on Virus**\
-`President Donald Trump is heading to Capitol Hill for lunch Tuesday with Senate Republicans as Washington considers next steps in the coronavirus response.`\
-https://nytimes.com/aponline/2020/05/19/us/politics/ap-us-virus-outbreak-congress.html?searchResultPosition=10
+**Sri Lanka Threatens to Leave Int'l Organizations Over Rights**\
+`Sri Lanka’s president said Tuesday that he will withdraw the country from any international organization that continuously “targets” the military with allegations of human rights violations during its long civil war. `\
+https://nytimes.com/aponline/2020/05/19/world/asia/ap-as-sri-lanka-civil-war-anniversary.html?searchResultPosition=10
 
