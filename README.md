@@ -1,8 +1,8 @@
-**Facing Adulthood With an Economic Disaster’s Lasting Scars**\
-`Those entering the job market in a downturn may never catch up in pay, opportunities or confidence.`\
-https://nytimes.com/2020/05/19/business/economy/coronavirus-young-old.html?searchResultPosition=9
+**Australia Says It Doesn't Want Trade War With China**\
+`Australia’s trade minister said Tuesday that his country does not want a trade war with China, but maintained Beijing had erred by imposing stiff tariffs on Australian barley in what is widely seen as punishment for advocating an investigation into the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/05/19/world/asia/ap-as-virus-outbreak-australia-china.html?searchResultPosition=9
 
-**It Took a Pandemic, but 7-Eleven in Japan Is Letting Stores Take a Break**\
-`The chain, so omnipresent it is considered part of the national infrastructure, has begun making exceptions to a store hours policy that it has long enforced.`\
-https://nytimes.com/2020/05/19/business/coronavirus-7-eleven.html?searchResultPosition=10
+**Trump's Use of Malaria Drug to Combat Virus Spurs India Boon**\
+`President Donald Trump’s declaration that he was taking an antimalarial drug of dubious effectiveness to help fend off the coronavirus will be welcomed in India.`\
+https://nytimes.com/aponline/2020/05/19/business/ap-as-virus-outbreak-india-malaria-drug.html?searchResultPosition=10
 
