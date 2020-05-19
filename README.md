@@ -1,8 +1,8 @@
-**Stranded M.L.B. Prospects Find a Backyard of Dreams**\
-`Seth Blair, a longtime pitching prospect, set up a practice area in his Arizona backyard and opened it to other players who did not have access to baseball facilities during the game’s shutdown. As many as 15 of them show up in staggered groups on a given day.`\
-https://nytimes.com/2020/05/19/sports/baseball/mlb-prospects-training-coronavirus.html?searchResultPosition=9
+**Long-Lasting Global Recession Likely Due to COVID-19, Says World Economic Forum Report**\
+`Risk managers expect a prolonged global recession as a result of the coronavirus pandemic, a report by the World Economic Forum showed on Tuesday. `\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-wef-report.html?searchResultPosition=9
 
-**He Had Picked the Last Day of His Career. Now It May Never Come.**\
-`The Spanish striker Aritz Aduriz seemed to have been given the perfect way to say goodbye to his 20-year career. Then the pandemic struck, and now he may just fade to black.`\
-https://nytimes.com/2020/05/19/sports/soccer/aritz-aduriz-bilbao.html?searchResultPosition=10
+**Outbreak on Edge of Navajo Nation Overwhelms Rural Hospital**\
+`On the eve of New Mexico's shutdown of bars and restaurants to stem the spread of the coronavirus, the city of Gallup came alive for one last night of revelry.`\
+https://nytimes.com/aponline/2020/05/19/us/ap-us-virus-outbreak-besieged-hospital.html?searchResultPosition=10
 
