@@ -1,8 +1,8 @@
-**Zoom Suspends New Free User Registrations in China**\
-`Video conferencing provider Zoom Video Communications Inc said on Tuesday it was limiting new user registrations in mainland China to enterprise customers only.`\
-https://nytimes.com/reuters/2020/05/19/technology/19reuters-zoom-video-commn-china.html?searchResultPosition=9
+**JPMorgan Hands Out $30 Billion in Loans to Small Businesses: Memo**\
+`JPMorgan Chase & Co has given out more than $30 billion in loans to over 250,000 businesses as part of the United States' coronavirus aid program for small businesses, Chief Executive Officer Jamie Dimon said in a memo on Tuesday.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-jp-morgan.html?searchResultPosition=9
 
-**EU Recovery Fund Should Support Aerospace Sector: France's Le Maire**\
-`The aerospace industry should be among the sectors that can tap a planned European recovery fund, French Finance Minister Bruno Le Maire said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-eu-recovery-france-aerospace.html?searchResultPosition=10
+**UK Lawmakers Say Testing Lapses Increased Nursing Home Toll**\
+`An influential group of British lawmakers on Tuesday accused Prime Minister Boris Johnson’s government of failing to conduct enough tests for the new coronavirus, saying the lapse helped COVID-19 cut a deadly swath through U.K. nursing homes.`\
+https://nytimes.com/aponline/2020/05/19/business/bc-eu-virus-outbreak-britain.html?searchResultPosition=10
 
