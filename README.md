@@ -1,8 +1,8 @@
-**Walmart's First-Quarter Same-Store Sales Rise 10%, Online Revenues Surge**\
-`Walmart Inc's first-quarter U.S. comparable sales rose 10% and the retailer reported a 74% rise in online sales on Tuesday as stockpiling of groceries and other essentials drove consumers to its stores and website during the coronavirus-related lockdowns.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-walmart-results.html?searchResultPosition=9
+**Kohl's Quarterly Net Sales Slump Nearly 44%**\
+`Kohl's Corp reported a nearly 44% slump in quarterly net sales on Tuesday, as the department store chain's stores remained shut for most of the first quarter due to the COVID-19 lockdowns.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-kohls-results.html?searchResultPosition=9
 
-**Investor Urges Reinsurer Watford to Sell Itself as It Lags Peers: Letter**\
-`Investment firm Capital Returns Management asked Watford Holdings Ltd to hire an investment bank and consider selling itself as the reinsurer's stock has lost more than half of its value since January and lags its peers.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-watford-holdings-investor.html?searchResultPosition=10
+**Zimbabweans in South Africa Use App to Send Food Home After Border Restrictions**\
+`Petronella Mabhena, a domestic worker in South Africa, has been paying bus drivers to ferry food to her relatives in Zimbabwe for over a decade.`\
+https://nytimes.com/reuters/2020/05/19/technology/19reuters-health-coronavirus-safrica-malaicha.html?searchResultPosition=10
 
