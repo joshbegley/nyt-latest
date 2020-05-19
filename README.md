@@ -1,8 +1,8 @@
-**Asda CEO Expects Resumption of Stake Sale Talks When Walmart Ready**\
-`Talks between Walmart and possible buyers of a majority stake in its British supermarket Asda will likely resume when the industry settles into a "new norm" with the worst of the coronavirus crisis behind it, the boss of Asda said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-asda-walmart.html?searchResultPosition=9
+**Woods Became David Berman’s Band. Then They Picked Up the Pieces.**\
+`The leaders of the psych-rock group helped Berman make his first album in a decade. After his suicide, they tried to get lost in finishing their own LP, “Strange to Explain.”`\
+https://nytimes.com/2020/05/19/arts/music/woods-david-berman-strange-to-explain.html?searchResultPosition=9
 
-**Dig Near Jerusalem's Western Wall Yields 'Puzzling' Chambers**\
-`Israeli archaeologists on Tuesday exhibited a recently uncovered, unusual series of 2,000-year-old chambers carved out of the bedrock beneath the Western Wall plaza in Jerusalem.`\
-https://nytimes.com/aponline/2020/05/19/world/middleeast/ap-ml-israel-archaeology.html?searchResultPosition=10
+**Russia Says It Scales Down War Games Amid Pandemic**\
+`Russia's foreign minister said Tuesday that Moscow has scaled down its military drills amid the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/05/19/world/europe/ap-eu-russia-military.html?searchResultPosition=10
 
