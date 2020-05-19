@@ -1,8 +1,8 @@
-**A Bridge Too Close: Cairo Flyover Angers Residents**\
-`If Osama Fayez reaches out from his balcony he can touch a flyover that is cutting a swathe through a densely populated area of Giza, across the Nile from central Cairo. `\
-https://nytimes.com/reuters/2020/05/19/world/middleeast/19reuters-egypt-bridge.html?searchResultPosition=9
+**Germany Breaks Taboo in Effort to Get EU Through Pandemic**\
+`Germany’s agreement to share debt with other EU countries to finance an economic recovery plan is being greeted as an overdue sign of unity in the face of the worst downturn the bloc has ever seen and as a potential advance toward deeper integration among its 27 members.`\
+https://nytimes.com/aponline/2020/05/19/business/bc-virus-outbreak-europe-economy.html?searchResultPosition=9
 
-**Indonesia's Capital Extends Coronavirus Measures Until June 4**\
-`Indonesia's capital city Jakarta on Tuesday extended its large-scale social curbs until June 4, maintaining restrictions that limited public transportation and gatherings in a bid to contain the spread of the coronavirus.`\
-https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-health-coronavirus-indonesia-capital.html?searchResultPosition=10
+**Mobileye CEO Sees 'Great Consolidation' Ahead in Autonomous Car Sector**\
+`The autonomous car industry will have to consolidate because it is too difficult for separate companies to cooperate in developing self-driving vehicles, the head of Intel's autonomous car unit said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/19/technology/19reuters-intel-autonomous.html?searchResultPosition=10
 
