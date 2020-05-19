@@ -1,8 +1,8 @@
-**Rain Delays Start of Xfinity Series' Return at Darlington**\
-`Xfinity Series racers will have to wait a little longer for their first event since March as rain has hit Darlington Raceway, delaying the start of the Toyota 200 on Tuesday. `\
-https://nytimes.com/aponline/2020/05/19/sports/ap-car-nascar-xfinity.html?searchResultPosition=9
+**Global CO2 Emissions Could Fall by Up to 7% This Year Amid Pandemic: Research**\
+`Global carbon dioxide emissions could fall by up to 7% this year, depending on ongoing restrictions and social distancing measures during the coronavirus pandemic, research published in the journal Nature Climate Change showed on Tuesday.`\
+https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-carbon-emissions.html?searchResultPosition=9
 
-**Furman Drops Baseball, Men's Lacrosse Amid Virus Budget Cuts**\
-`A university in South Carolina announced that it is shutting down the men's varsity lacrosse team and the varsity baseball team in response to financial hardships caused by the cornavirus pandemic. `\
-https://nytimes.com/aponline/2020/05/19/sports/ap-sc-university-budget-cuts-sports.html?searchResultPosition=10
+**Two California Border Hospitals Hit by Surge in COVID-19 Cases From Mexico**\
+`The only two hospitals in Southern California's rural Imperial County were forced to close their doors to new coronavirus patients on Tuesday, after admitting scores believed stricken with the virus from Mexico's nearby border town of Mexicali, officials said.`\
+https://nytimes.com/reuters/2020/05/19/world/americas/19reuters-health-coronavirus-usa-border.html?searchResultPosition=10
 
