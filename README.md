@@ -1,8 +1,8 @@
-**F1 Could Manage to Race Even With COVID-19 Cases, Says FIA**\
-`Formula One could cope with up to 10 positive tests for COVID-19 when the sport starts the season in July, according to the chairman of the governing FIA's medical commission.`\
-https://nytimes.com/reuters/2020/05/19/sports/autoracing/19reuters-health-coronavirus-f1.html?searchResultPosition=9
+**Brazil's Stock Exchange to Skip Sao Paulo Early Holidays**\
+`Brazilian stock exchange operator B3 SA said on Tuesday its operations will be open this week despite plans by Sao Paulo city and state officials to declare an extended  holiday to get workers to stay home to reduce potential spread of the novel coronavirus.`\
+https://nytimes.com/reuters/2020/05/19/world/americas/19reuters-health-coronavirus-brazil-banks.html?searchResultPosition=9
 
-**What Can a COVID-19 Antibody Test Tell Us?**\
-`What can a COVID-19 antibody test tell me?`\
-https://nytimes.com/aponline/2020/05/19/us/ap-us-virus-outbreak-viral-questions-antibody-test.html?searchResultPosition=10
+**Elderly Home Turns to Wearables for Contact Tracing, Sidestepping Apple-Google Limits**\
+`When a senior living facility in Amarillo, Texas suspected a nurse may have caught the novel coronavirus this month, it had a list within five minutes of staff and residents the nurse could have infected. `\
+https://nytimes.com/reuters/2020/05/19/technology/19reuters-health-coronavirus-wearables-tracing.html?searchResultPosition=10
 
