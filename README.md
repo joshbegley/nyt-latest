@@ -1,8 +1,8 @@
-**How to Start a No-Smell, No-Hassle Compost Box in Your Living Room**\
-`We’re all doing a lot of cooking right now, so grab a cardboard box and turn those scraps into nutrient-rich soil instead of smelly garbage.`\
-https://nytimes.com/interactive/2020/05/19/burst/compost-box-indoors-coronavirus.html?searchResultPosition=9
+**U.S. Economy Won't Reclaim All of Its Lost Ground Until After 2021: CBO**\
+`The U.S. economy should bounce back sharply in the third quarter after its deep coronavirus-related collapse, but it will not fully retake its lost ground until sometime after next year, the non-partisan Congressional Budget Office said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-usa-economy.html?searchResultPosition=9
 
-**Trump Says He Will Sign Order to Cut Federal Regulations**\
-`U.S. President Donald Trump said on Tuesday he will sign an executive order directing federal agencies to eliminate "unnecessary regulations that impede economic recovery."`\
-https://nytimes.com/reuters/2020/05/19/us/19reuters-health-coronavirus-usa-regulations.html?searchResultPosition=10
+**Russia: Military Helicopter Crash Lands Killing All Crew**\
+`The Russian military said one of its helicopters crash-landed in an uninhabited area north of Moscow late Tuesday, killing all crew members.`\
+https://nytimes.com/aponline/2020/05/19/world/europe/ap-eu-russia-helicopter-crash.html?searchResultPosition=10
 
