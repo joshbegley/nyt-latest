@@ -1,8 +1,8 @@
-**England Reports Far Fewer COVID-19 Deaths in Care Homes Than European States**\
-`England has reported the lowest level of deaths in nursing homes as a share of total COVID-19 fatalities compared to other European nations, a document from the European Centre for Disease Prevention and Control (ECDC) showed on Tuesday. `\
-https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-health-coronavirus-eu-casualties.html?searchResultPosition=9
+**Mnuchin Says Seeing Large Second Quarter Unemployment, Negative Economic Data**\
+`U.S. Treasury Secretary Steven Mnuchin said on Tuesday that he is continuing to see large unemployment numbers and other negative economic indicators during the second quarter, but the situation is expected to improve as the U.S. economy starts to reopen.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-usa-mnuchin.html?searchResultPosition=9
 
-**U.S. Housing Starts Drop More Than Expected**\
-`U.S. homebuilding dropped to a five-year low in April, underlining fears that the novel coronavirus crisis would lead to the deepest economic contraction in the second quarter since the Great Depression. `\
-https://nytimes.com/reuters/2020/05/19/us/19reuters-usa-economy-housingstarts.html?searchResultPosition=10
+**Myanmar Raids Reveal New Production of a Killer Drug**\
+`After dominating the global methamphetamine trade, crime syndicates in Myanmar are starting to make fentanyl, the drug that has fueled the U.S. opioid crisis.`\
+https://nytimes.com/2020/05/19/world/asia/myanmar-drug-raid-fentanyl.html?searchResultPosition=10
 
