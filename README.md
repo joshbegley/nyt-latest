@@ -1,8 +1,8 @@
-**DanceAfrica, Dormeshia and Contact Improvisation (for One)**\
-`In this guide to the best virtual dance this week, a festival goes digital, and classes at Movement Research illuminate the body-mind connection.`\
-https://nytimes.com/2020/05/19/arts/dance/dance-streaming.html?searchResultPosition=9
+**Top House Republican Backs Giving Borrowers Up to 12 Weeks to Repay PPP Loans**\
+`U.S. House Republican Leader Kevin McCarthy on Tuesday said he could support giving borrowers up to 10 or 12 weeks to repay their federal loans and seek forgiveness under the Paycheck Protection Program.`\
+https://nytimes.com/reuters/2020/05/19/us/politics/19reuters-health-coronavirus-usa-congress.html?searchResultPosition=9
 
-**America’s Immigration Paradox**\
-`Two new books, Jia Lynn Yang’s “One Mighty and Irresistible Tide” and Adam Goodman’s “The Deportation Machine,” take very different approaches to the immigration question.`\
-https://nytimes.com/2020/05/19/books/review/one-mighty-and-irresistible-tide-jia-lynn-yang-the-deportation-machine-adam-goodman.html?searchResultPosition=10
+**Turkey Reports Downward Trend in Virus Deaths, Infections**\
+`Turkey reported a continued downward trajectory in COVID-19 deaths and confirmed infections Tuesday, with 28 new deaths and 1,022 infections over the past 24 hours.`\
+https://nytimes.com/aponline/2020/05/19/world/europe/ap-eu-virus-outbreak-turkey.html?searchResultPosition=10
 
