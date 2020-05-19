@@ -1,8 +1,8 @@
-**Russian First Quarter Economic Growth Slows to 1.6% Before Sliding Into Contraction**\
-`Economic growth in Russia slowed to 1.6% in the first quarter, preliminary data showed on Tuesday, before sliding into a projected contraction in the second quarter caused by lockdowns aimed at curbing the new coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-russia-economy-gdp.html?searchResultPosition=9
+**Season 2: Sal Khan, Educator and Founder of Khan Academy**\
+`Sal Khan, a guest from season 1, returns to discuss how himself, his family and Khan Academy are dealing with an unprecedented crisis — and to share a bit of his vision for the future of education.`\
+https://nytimes.com/paidpost/bank-of-america/that-made-all-the-difference/season-2-sal-khan-educator-and-founder-of-khan-academy.html?searchResultPosition=9
 
-**UFC Tags Woodley-Burns for May 30 Main Event**\
-`Gilbert Burns and former welterweight champ Tyron Woodley are signed to square off in the main event at UFC Fight Night on May 30.`\
-https://nytimes.com/reuters/2020/05/19/sports/19reuters-fighting-mma-ufc-fightnight-may30.html?searchResultPosition=10
+**Ecuador Cuts Public Spending by $4 Billion in Face of New Debt Crisis**\
+`Ecuadorean President Lenin Moreno on Tuesday announced new public spending cuts aimed at saving his government $4 billion as the Andean country faces a new debt crisis worsened by the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/05/19/world/americas/19reuters-ecuador-economy.html?searchResultPosition=10
 
