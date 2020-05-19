@@ -1,8 +1,8 @@
-**Australian Job Losses Slowing, Wages Start to Recover: ABS**\
-`Australian job losses caused by coronavirus lockdowns slowed in the last couple of weeks while wages paid ticked higher as government support programs kicked in, data showed on Tuesday.`\
-https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-australia-economy-employment.html?searchResultPosition=9
+**AP PHOTOS: Recovered Filipino Doctor Back Helping Patients**\
+`Uncertainties over the coronavirus remain, but there have been heartwarming anecdotes too, like the acts of courage and sacrifice of people helping deal with the unprecedented crisis at their life’s peril.`\
+https://nytimes.com/aponline/2020/05/18/world/asia/ap-as-virus-outbreak-philippines-photo-gallery.html?searchResultPosition=9
 
-**Libyan Forces Aligned With Tripoli Government Take Key Base From Rivals**\
-`Forces aligned with the U.N.-backed government retook the al-Watiya air base, dealing a heavy blow to rival forces under Gen. Khalifa Hifter.`\
-https://nytimes.com/2020/05/18/world/africa/libya-tripoli-forces.html?searchResultPosition=10
+**Australia Faces 'Unprecedented' Economic Hit From Coronavirus: RBA Minutes**\
+`Australia is facing a "significant" and "unprecedented" economic contraction due to the coronavirus pandemic, though massive fiscal and monetary policy stimulus would help cushion the blow, minutes of the country's central bank's latest meeting showed on Tuesday.`\
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-australia-economy-rba-minutes.html?searchResultPosition=10
 
