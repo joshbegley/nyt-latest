@@ -1,8 +1,8 @@
-**UK's Post-Brexit Tariff Plan Shows Need for Free Trade Deals: UK Car Body**\
-`Britain's post-Brexit tariff plan, which maintains the EU's 10% levy on car imports, shows the need for the country to secure free trade arrangements with major economies, an automotive industry body said on Tuesday. `\
-https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-britain-eu-carmakers.html?searchResultPosition=9
+**Macron Party Loses Ground, but Not Control, Amid Defections**\
+`Defections by lawmakers disgruntled over President Emmanuel Macron's economic policies cost France’s ruling party its absolute majority in the lower house of parliament Tuesday, in a symbolic blow to Macron’s leadership amid the coronavirus crisis.`\
+https://nytimes.com/aponline/2020/05/19/world/europe/ap-eu-france-macron-majority.html?searchResultPosition=9
 
-**Exclusive: Exxon Revives Sale of Stake in Giant Azeri Oilfield**\
-`Exxon Mobil has relaunched the sale of its stake in Azerbaijan's largest oilfield, the company said on Tuesday, as banking and industry sources said the move was drawing interest from large Asian oil and gas companies seeking to capitalize on the recent collapse in oil prices.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-exxon-m-a-azerbaijan-exclusive.html?searchResultPosition=10
+**Sweden Tops Europe COVID-19 Deaths Per Capita Over Last Seven Days**\
+`Sweden, which has opted for a more open strategy in combating the virus than other European countries, has the highest number of deaths in Europe per capita from the COVID-19 disease over the last seven days, data showed.`\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-health-coronavirus-sweden-casualties.html?searchResultPosition=10
 
