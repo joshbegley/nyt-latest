@@ -1,8 +1,8 @@
-**Ontario Schools Not to Open at This Time: Premier**\
-`Schools in Ontario, Canada's most populous province, will not open at this time due to the COVID-19 pandemic, Premier Doug Ford said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/19/world/americas/19reuters-health-coronavirus-canada-ontarioschools.html?searchResultPosition=9
+**Premier League Confirms Six Positive COVID-19 Cases After Testing**\
+`The Premier League said on Tuesday that six people from three different clubs had tested positive for COVID-19 out of a sample of 748 individuals.`\
+https://nytimes.com/reuters/2020/05/19/sports/soccer/19reuters-health-coronavirus-soccer-england.html?searchResultPosition=9
 
-**As EU Talks Stall, UK Outlines Tariffs for Post-Brexit World**\
-`The British government published Tuesday the outlines of a new post-Brexit tariff regime that could potentially lead to a fall in the price of thousands of products, including Christmas trees, cocoa and fridges. `\
-https://nytimes.com/aponline/2020/05/19/business/bc-eu-brexit.html?searchResultPosition=10
+**NCAA Postseason Bans Nearly Double Despite Steady APR Stats**\
+`The number of teams facing postseason bans because of low scores on the NCAA's Academic Progress Rate has nearly doubled in one year.`\
+https://nytimes.com/aponline/2020/05/19/sports/ap-us-ncaa-apr-scores.html?searchResultPosition=10
 
