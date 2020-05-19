@@ -1,8 +1,8 @@
-**Thyssenkrupp CEO: Cannot Put Timeline on Restructuring**\
-`Thyssenkrupp's CEO on Tuesday said that she could not put a timeline on the group's fresh turnaround plans, saying that selling assets - a key part of its strategy - was difficult in the current environment.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-thyssenkrupp-steel-timing.html?searchResultPosition=9
+**AT&T Closes Its payTV Service in Venezuela Amid U.S. Sanctions**\
+`AT&T Inc said on Tuesday it has closed its DirecTV Latin America operations in Venezuela amid sanctions by the United States on the country.`\
+https://nytimes.com/reuters/2020/05/19/arts/19reuters-at-t-venezuela.html?searchResultPosition=9
 
-**U.S. Housing Starts Post Record Decline; Permits Slump**\
-`U.S. homebuilding dropped by the most on record in April and permits for future construction tumbled, underlining fears that the novel coronavirus crisis would lead to the deepest economic contraction in the second quarter since the Great Depression.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-usa-economy.html?searchResultPosition=10
+**Cook and Deliver: Dubai Restaurants Turn Creative in Cut-Throat Market**\
+`Running a restaurant in Dubai, where a discerning international clientele has more than twice as many dining options per head as in New York, was a cut-throat business even before the coronavirus struck.`\
+https://nytimes.com/reuters/2020/05/19/world/middleeast/19reuters-health-coronavirus-emirates-restaurants.html?searchResultPosition=10
 
