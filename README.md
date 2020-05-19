@@ -1,8 +1,8 @@
-**Trump's Payroll Tax Cut 'Absolutely Not' Dead, Says Adviser Hassett**\
-`White House economic adviser Kevin Hassett said on Tuesday the idea of a payroll tax cut in the next coronavirus relief legislation is "absolutely not" dead.`\
-https://nytimes.com/reuters/2020/05/19/us/19reuters-health-coronavirus-usa-hassett.html?searchResultPosition=9
+**Labor Will Stop Giving Reporters Early Look at Economic Data**\
+`The U.S. Labor Department says it is ending its long-standing system of allowing news reporters to review government economic data, including high-profile reports on unemployment, retail sales and inflation, before the data is publicly released.`\
+https://nytimes.com/aponline/2020/05/19/business/ap-us-government-lockups.html?searchResultPosition=9
 
-**NASA Exec Resigns Days Before 1st Astronaut Launch in Years**\
-`NASA’s chief of human exploration has resigned just days before the first astronaut launch in nearly a decade from Kennedy Space Center. `\
-https://nytimes.com/aponline/2020/05/19/science/ap-us-sci-nasa-resignation.html?searchResultPosition=10
+**Melford Henson, Construction Foreman, Dies at 65**\
+`Mr. Henson fell ill from the coronavirus only months before he was to be released from California’s prison system.`\
+https://nytimes.com/2020/05/19/obituaries/melford-henson-dead-coronavirus.html?searchResultPosition=10
 
