@@ -1,8 +1,8 @@
-**Uncertainty Over Players' Return as Clubs Begin to Reopen**\
-`NFL team facilities began to reopen for non-player staff on Tuesday, though the league's chief medical officer told reporters it remains unclear when players could return.`\
-https://nytimes.com/reuters/2020/05/19/sports/football/19reuters-health-coronavirus-nfl.html?searchResultPosition=9
+**Film Star and Trump Accuser Stormy Daniels Returns as Comic Book Hero**\
+`Adult film star Stormy Daniels, whose allegations of a onetime sexual liaison with U.S. President Donald Trump triggered a legal battle, is returning as a superhero in a series of comic books.`\
+https://nytimes.com/reuters/2020/05/19/arts/19reuters-people-stormy-daniels.html?searchResultPosition=9
 
-**Global CO2 Emissions Could Fall by Up to 7% This Year Amid Pandemic: Research**\
-`Global carbon dioxide emissions could fall by up to 7% this year, depending on ongoing restrictions and social distancing measures during the coronavirus pandemic, research published in the journal Nature Climate Change showed on Tuesday.`\
-https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-carbon-emissions.html?searchResultPosition=10
+**NFLPA Pres Tretter Says 'Hurdles' Remain Before NFL's Return**\
+`Browns center JC Tretter is cautiously optimistic the NFL season — at least some version of it — will take place in 2020. He's just not certain when it will start.`\
+https://nytimes.com/aponline/2020/05/19/sports/football/ap-fbn-tretter-nflpa.html?searchResultPosition=10
 
