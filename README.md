@@ -1,8 +1,8 @@
-**Missouri Execution Would Be First Since Pandemic Began**\
-`The pause in U.S. executions during the coronavirus pandemic likely will end Tuesday with the scheduled lethal injection of a Missouri inmate for slaying an elderly woman nearly three decades ago.`\
-https://nytimes.com/aponline/2020/05/18/us/ap-us-execution-missouri.html?searchResultPosition=9
+**University of Kentucky Cheerleading Coaches Are Fired Amid Hazing Scandal**\
+`A three-month investigation also found alcohol use and public nudity by students on the team, the university said.`\
+https://nytimes.com/2020/05/18/us/university-kentucky-cheerleading-hazing-scandal.html?searchResultPosition=9
 
-**Nicaragua Closes Costa Rica Border to Protest Virus Testing**\
-`Nicaraguan President Daniel Ortega blamed new coronavirus-related health monitoring measures taken by neighboring Costa Rica for his country's decision Monday to close their two border crossings.`\
-https://nytimes.com/aponline/2020/05/18/world/americas/ap-lt-virus-outbreak-nicaragua-costa-rica.html?searchResultPosition=10
+**America’s First Concert in Months Rocks an Arkansas Stage**\
+`Fans who had to have their temperatures taken and wear masks for the Travis McCready show said it was worth it for the experience of hearing live music again.`\
+https://nytimes.com/2020/05/18/arts/music/travis-mccready-concert-virus.html?searchResultPosition=10
 
