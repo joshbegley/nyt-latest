@@ -1,8 +1,8 @@
-**Goldman Sachs Cuts Brazil 2020 GDP Forecast to - 7.4%, Mexico to - 8.5%**\
-`Economists at Goldman Sachs have slashed their Latin American economic outlook due to the coronavirus outbreak, and now expect Brazil's gross domestic product to shrink by 7.4% this year and Mexico's by 8.5%.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-latam-economy-goldman-sachs.html?searchResultPosition=9
+**Fed's Rosengren Says U.S. Unemployment Rate Could Remain at Double-Digit Levels by End of Year**\
+`Businesses will face weak demand as long as consumers and workers are worried about public health, and the unemployment rate is likely to stay in the double digits at the end of the year, Boston Federal Reserve Bank President Eric Rosengren said Tuesday. `\
+https://nytimes.com/reuters/2020/05/19/us/19reuters-usa-fed-rosengren.html?searchResultPosition=9
 
-**Red Sox LHP Sale Excited About 'Brand-New' Elbow**\
-`About six weeks after receiving a "brand-new elbow" for his birthday, Boston Red Sox left-hander Chris Sale updated the status of his recovery in an ESPN interview published Tuesday.`\
-https://nytimes.com/reuters/2020/05/19/sports/baseball/19reuters-baseball-mlb-bos-sale-elbow.html?searchResultPosition=10
+**Egypt Registers 720 New Coronavirus Cases in One Day**\
+`Egypt on Tuesday registered 720 new coronavirus cases, the health ministry said in a statement, its highest daily toll since detecting the first confirmed case in February.`\
+https://nytimes.com/reuters/2020/05/19/world/middleeast/19reuters-health-coronovirus-egypt.html?searchResultPosition=10
 
