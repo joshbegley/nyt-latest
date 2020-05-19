@@ -1,8 +1,8 @@
-**Trump Wants to See 7.6% Payroll Tax Cut: White House Economic Director**\
-`White House economic adviser Larry Kudlow said on Tuesday that President Donald Trump wants to see a 7.6% cut in the payroll tax, hoping it will help staunch economic pain caused by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-usa-tax.html?searchResultPosition=9
+**Masked Ukrainian Orchestra Makes Concert Recording as Lockdown Eases**\
+`The symphony orchestra of Ukrainian radio held its first concert recording for TV, radio and online platforms since coronavirus lockdown measures were partially eased in early May.`\
+https://nytimes.com/reuters/2020/05/19/arts/19reuters-health-coronavirus-ukraine-orchestra.html?searchResultPosition=9
 
-**The 10 Tools You Need for Basic Home Repair**\
-`Our homes are getting a lot more use while we shelter in place. Here are the tools you’ll need to handle most projects.`\
-https://nytimes.com/2020/05/19/realestate/tools-for-basic-home-repair.html?searchResultPosition=10
+**Dutch Government Asks Prosecutors to Probe Tax Office**\
+`The Dutch government reported its own taxation office to public prosecutors on Tuesday, seeking an investigation into possible discrimination in a long-running scandal centered on civil servants trying to track down parents fraudulently claiming child care benefits.`\
+https://nytimes.com/aponline/2020/05/19/business/bc-eu-netherlands-taxation-investigation.html?searchResultPosition=10
 
