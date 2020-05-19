@@ -1,8 +1,8 @@
-**Abu Dhabi's Etihad Makes First Known Flight to Israel, Carrying Palestinian Aid**\
-`An Etihad Airways plane flew on Tuesday from the United Arab Emirates to Israel to deliver coronavirus supplies to the  Palestinians, a spokeswoman for the Abu Dhabi airline said, marking the first known flight by a UAE airline to Israel.`\
-https://nytimes.com/reuters/2020/05/19/world/middleeast/19reuters-israel-emirates-palestinians.html?searchResultPosition=9
+**Trump Defends His Use of Unproven Treatment for Coronavirus**\
+`U.S. President Donald Trump on Tuesday defended his use of prescription malaria drug to try to ward off the novel coronavirus despite medical warnings, saying it was up to individuals to make their own decisions.`\
+https://nytimes.com/reuters/2020/05/19/us/19reuters-health-coronavirus-trump-drugs.html?searchResultPosition=9
 
-**Investors Seen Queuing Up for New U.S. 20-Year Bonds, Backstopped by Fed**\
-`Investors are likely to snap up 20-year bonds when the U.S. Treasury sells them on Wednesday for the first time in more than three decades, pulling out all the financing stops to mitigate the economic havoc from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-usa-bonds-20year.html?searchResultPosition=10
+**Dutch Schools, Cafes and Museums to Reopen in June**\
+`The Netherlands will press ahead with a further easing of lockdown measures in June due to a steadily declining number of coronavirus infections and hospital admissions, Prime Minister Mark Rutte said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-health-coronavirus-netherlands-measures.html?searchResultPosition=10
 
