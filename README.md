@@ -1,8 +1,8 @@
-**India Coronavirus Infections Surge Past 100,000, Deaths Top 3,000**\
-`Coronavirus cases in India reached 100,000 on Tuesday, matching its number of intensive care beds, and the rate of increase of new infections showed little sign of slowing. `\
-https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-health-coronavirus-india-cases.html?searchResultPosition=9
+**Japan's Sharp Reports 37% Profit Drop, Gives No Forecasts**\
+`Japan's Sharp Corp, an Apple Inc supplier, reported a 37% decline in annual operating profit and refrained from releasing an earnings outlook for the current year because of uncertainty over the novel coronavirus impact.`\
+https://nytimes.com/reuters/2020/05/19/technology/19reuters-sharp-results.html?searchResultPosition=9
 
-**European New Car Sales Down 78.3% in April: ACEA**\
-`European passenger car sales slumped in April as the first full month with restrictions imposed to contain the coronavirus pandemic across the continent dragged sales to a record drop, data showed on Tuesday.`\
-https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-europe-vehicleregistrations.html?searchResultPosition=10
+**British Energy Supplier SSE's Retail Division Faces 2,600 Job Cuts**\
+`The owner of British energy supplier SSE Plc's retail division is planning to cut 2,600 jobs in the business, it said on Tuesday, citing a heavy impact from the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-sse-jobs.html?searchResultPosition=10
 
