@@ -1,8 +1,8 @@
-**‘Body Cam’ Review: Rage in Physical Form**\
-`Mary J. Blige plays a bereaved police officer hunting a killer in this supernatural crime thriller.`\
-https://nytimes.com/2020/05/19/movies/body-cam-review-rage-in-physical-form.html?searchResultPosition=9
+**YouTube Goes After More TV Advertisers With New Program**\
+`Alphabet's Inc YouTube on Tuesday launched a new program to help advertisers reach more valuable viewers who watch content on their TV screens, in an effort to retain advertising revenue at a time when brands are slashing budgets due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/19/arts/19reuters-alphabet-youtube-advertising.html?searchResultPosition=9
 
-**Prayers at Jerusalem's Al-Aqsa Mosque Compound to Resume Next Week: Statement**\
-`Muslim prayers at Jerusalem's al-Aqsa mosque compound will resume next week after a nearly two-month pause now that the spread of the new coronavirus has slowed, a religious council said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/19/world/middleeast/19reuters-health-coronavirus-jerusalem-aqsa.html?searchResultPosition=10
+**Russia Says Many Coronavirus Patients Died of Other Causes. Some Disagree**\
+`Before she died in a Moscow hospital earlier this month, Liubov Kashaeva, 74, twice tested positive for the new coronavirus. Her death was not attributed to the virus, however. It was put down to the cancer she had been suffering from.`\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-health-coronavirus-russia-casualties-insight.html?searchResultPosition=10
 
