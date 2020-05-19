@@ -1,8 +1,8 @@
-**Citigroup Launches New ESG Investment Banking Group**\
-`Citigroup Inc said on Tuesday that is launching a new business unit within its corporate and investment bank dedicated to environmental sustainability to strengthen its commitment to an area that has grown increasingly important to corporate clients and investors.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-citigroup-esg.html?searchResultPosition=9
+**UK's Post-Brexit Tariff Plan Shows Need for Free Trade Deals: UK Car Body**\
+`Britain's post-Brexit tariff plan, which maintains the EU's 10% levy on car imports, shows the need for the country to secure free trade arrangements with major economies, an automotive industry body said on Tuesday. `\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-britain-eu-carmakers.html?searchResultPosition=9
 
-**Evangelist Who Built Global Ministry Dies in Atlanta at 74**\
-`Evangelist Ravi Zacharias, who built an international ministry that strives to defend Christianity on intellectual grounds, has died in Georgia. He was 74.`\
-https://nytimes.com/aponline/2020/05/19/us/ap-us-obit-ravi-zacharias.html?searchResultPosition=10
+**Exclusive: Exxon Revives Sale of Stake in Giant Azeri Oilfield**\
+`Exxon Mobil has relaunched the sale of its stake in Azerbaijan's largest oilfield, the company said on Tuesday, as banking and industry sources said the move was drawing interest from large Asian oil and gas companies seeking to capitalize on the recent collapse in oil prices.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-exxon-m-a-azerbaijan-exclusive.html?searchResultPosition=10
 
