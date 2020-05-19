@@ -1,8 +1,8 @@
-**Coronavirus Briefing: What Happened Today**\
-`A vaccine produced by Moderna appeared to be safe and effective in its first human trial.`\
-https://nytimes.com/2020/05/18/us/coronavirus-today.html?searchResultPosition=9
+**Japan Government to Delay Budget Request Deadline to End-Sept: Finance Minister**\
+`Japanese Finance Minister Taro Aso said on Tuesday that his ministry would postpone the deadline for budget requests to Sept. 30 as the government focuses on responses to the coronavirus.`\
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-health-coronavirus-japan-aso.html?searchResultPosition=9
 
-**Qatar Extends Loan Guarantee Program, Interest-Free for Full Year**\
-`Qatar has extended a program that provides guarantees to local banks by the Qatar development bank, with interest-free loans for a full year instead of 6 months, its state news agency reported on Tuesday.`\
-https://nytimes.com/reuters/2020/05/18/world/middleeast/18reuters-health-coronavirus-qatar-qdb.html?searchResultPosition=10
+**New Zealand Central Bank Could Expand, Extend QE: Official**\
+`New Zealand's central bank could expand its government bond buying programme further though it hopes to have more certainty in about three months' time on whether to go harder or ease back stimulus, a top official said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/18/world/asia/18reuters-newzealand-economy-rbnz.html?searchResultPosition=10
 
