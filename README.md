@@ -1,8 +1,8 @@
-**Brady Gathers New Bucs Teammates for Workout on Prep Field**\
-`Tom Brady isn't letting the coronavirus pandemic — or NFL rules against players working out at team facilities — keep him from preparing for a new season with his new Tampa Bay team.`\
-https://nytimes.com/aponline/2020/05/19/sports/football/ap-fbn-buccaneers-brady-workout.html?searchResultPosition=9
+**Fed's Rosengren Says Central Bank Would Consider Lowering Minimum Loan Amount on Main Street Facility**\
+`Boston Federal Reserve Bank President Eric Rosengren said on Tuesday that policymakers would consider lowering the minimum loan amount for the upcoming Main Street Lending Facility to reach more businesses. `\
+https://nytimes.com/reuters/2020/05/19/us/19reuters-usa-fed-rosengren-mainstreet.html?searchResultPosition=9
 
-**U.S. Chamber CEO Warns Against Overdoing It With Production 'Reshoring' Effort**\
-`The head of the U.S. Chamber of Commerce on Tuesday warned the U.S. government against overdoing a major effort underway to rip U.S. supply chains out of China, warning that closing the United States to business with other countries would harm the economy.`\
-https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-health-coronavirus-supply-chains.html?searchResultPosition=10
+**NPR Says $4.7 Million Grant Boosts Local News Efforts**\
+`National Public Radio said Tuesday that it has received a $4.7 million grant that will allow it to fund investigative reporting units for regional hubs in California and the Midwest.`\
+https://nytimes.com/aponline/2020/05/19/business/ap-us-media-npr-local-news.html?searchResultPosition=10
 
