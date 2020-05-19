@@ -1,8 +1,8 @@
-**Singapore Sorry for Sending Positive Coronavirus Test Results in Error**\
-`Singapore has apologised to 357 COVID-19 patients who received an erroneous text message saying they had again tested positive for the novel coronavirus. `\
-https://nytimes.com/reuters/2020/05/19/technology/19reuters-health-coronavirus-singapore-text.html?searchResultPosition=9
+**Amid Rising Talk of Negative Rates, Policies in Japan, Europe Get Subtle Tweaks**\
+`After years of applying plenty of stick to commercial lenders unhappy with negative interest rate policies, central bankers in the euro zone and Japan are experimenting with some carrot, too.`\
+https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-health-coronavirus-centralbanks-rates-analysis.html?searchResultPosition=9
 
-**ITF Plans on New Relief Fund to Support Lower-Level Players**\
-`The International Tennis Federation (ITF) has said it is working on additional measures, including a new relief fund, to support lower-ranked professionals who have been left in the lurch due to coronavirus-led lockdowns.`\
-https://nytimes.com/reuters/2020/05/19/sports/tennis/19reuters-health-coronavirus-tennis-funding.html?searchResultPosition=10
+**At the Movies: 'Ben Hur' and 'Wizard of Oz' as Japan Reopens**\
+`The chariots of 1959 epic "Ben Hur" and the yellow brick road of 1939 fantasy "The Wizard of Oz" are back on the big screen in Japan as cinemas begin reopening from the coronavirus crisis with a slate heavy on Hollywood classics.`\
+https://nytimes.com/reuters/2020/05/19/arts/19reuters-health-coronavirus-japan-cinemas.html?searchResultPosition=10
 
