@@ -1,8 +1,8 @@
-**Why Clean Shirts Become the Stuff of Dirty Laundry**\
-`Government watchdogs say skirting the rules against subordinates doing chores hints at a broader disregard for ethics restrictions.`\
-https://nytimes.com/2020/05/19/us/pompeo-ethics-dry-cleaning.html?searchResultPosition=9
+**Rain Delays Start of Xfinity Series' Return at Darlington**\
+`Xfinity Series racers will have to wait a little longer for their first event since March as rain has hit Darlington Raceway, delaying the start of the Toyota 200 on Tuesday. `\
+https://nytimes.com/aponline/2020/05/19/sports/ap-car-nascar-xfinity.html?searchResultPosition=9
 
-**Oregon Primary Election Results: Second House District**\
-``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-2-primary-election.html?searchResultPosition=10
+**Furman Drops Baseball, Men's Lacrosse Amid Virus Budget Cuts**\
+`A university in South Carolina announced that it is shutting down the men's varsity lacrosse team and the varsity baseball team in response to financial hardships caused by the cornavirus pandemic. `\
+https://nytimes.com/aponline/2020/05/19/sports/ap-sc-university-budget-cuts-sports.html?searchResultPosition=10
 
