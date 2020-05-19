@@ -1,8 +1,8 @@
-**Weekly News Quiz for Students: House Relief Bill, Baseball, Virtual Graduations**\
-`How well did you follow the news this past week? How many of these 10 questions can you get right?`\
-https://nytimes.com/interactive/2020/05/19/learning/19News-Quiz-for-Students.html?searchResultPosition=9
+**‘Body Cam’ Review: Rage in Physical Form**\
+`Mary J. Blige plays a bereaved police officer hunting a killer in this supernatural crime thriller.`\
+https://nytimes.com/2020/05/19/movies/body-cam-review-rage-in-physical-form.html?searchResultPosition=9
 
-**Cristiano Ronaldo Reports to Juventus, Gives Thumbs Up**\
-`Cristiano Ronaldo reported to Juventus’ training center for medical tests on Tuesday after a 10-week absence and gave the media a thumbs up when he left three hours later.`\
-https://nytimes.com/aponline/2020/05/19/sports/soccer/ap-soc-juventus-ronaldo-1st-ld-writethru.html?searchResultPosition=10
+**Prayers at Jerusalem's Al-Aqsa Mosque Compound to Resume Next Week: Statement**\
+`Muslim prayers at Jerusalem's al-Aqsa mosque compound will resume next week after a nearly two-month pause now that the spread of the new coronavirus has slowed, a religious council said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/19/world/middleeast/19reuters-health-coronavirus-jerusalem-aqsa.html?searchResultPosition=10
 
