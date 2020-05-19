@@ -1,8 +1,8 @@
-**Billionaire Saudi Banking Tycoon Dead at 79, Family Says**\
-`Billionaire Saudi businessman Saleh Abdullah Kamel, who founded the banking and real estate conglomerate Dallah Albaraka Group, has died, according to relatives quoted in the kingdom’s media. He was 79.`\
-https://nytimes.com/aponline/2020/05/19/business/ap-ml-saudi-arabia-obit-billionaire-businessman.html?searchResultPosition=9
+**Fidelity International Applies to Set Up China Mutual Fund Unit**\
+`Fidelity International has applied to set up a wholly owned mutual fund unit in China, an official filing showed on Tuesday.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-fidelity-china-mutualfunds.html?searchResultPosition=9
 
-**German Court Nixes Law Allowing Foreign Telecom Monitoring**\
-`Regulations allowing Germany’s foreign intelligence service to monitor the communications of reporters working abroad and others violate the country’s constitution and must be changed, Germany’s highest court ruled Tuesday, deciding in favor of journalists-rights group Reporters Without Borders and others.`\
-https://nytimes.com/aponline/2020/05/19/business/ap-eu-germany-surveillance-ruling.html?searchResultPosition=10
+**Franco-German Recovery Grants Idea a 'Historic Step': Le Maire**\
+`The Franco-German idea that the European Union should borrow to issue grants for its economic recovery is a historic step as it would be the first time that budget spending is financed through EU debt, French Finance Minister Bruno Le Maire said.`\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-eu-recovery-fund-france.html?searchResultPosition=10
 
