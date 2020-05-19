@@ -1,8 +1,8 @@
-**Indonesia Reports 486 New Coronavirus Infections, 30 Deaths**\
-`Indonesia reported on Tuesday 486 new coronavirus infections, taking the total in the Southeast Asian country to 18,496, the country's COVID-19 task force reported on its official website.`\
-https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=9
+**‘Drifts,’ by Kate Zambreno: An Excerpt**\
+`An excerpt from “Drifts,” by Kate Zambreno`\
+https://nytimes.com/2020/05/19/books/review/drifts-by-kate-zambreno-an-excerpt.html?searchResultPosition=9
 
-**Why Are Some Health Care Workers Paid Poverty Wages?**\
-`I love my job, but I can’t even afford medical insurance.`\
-https://nytimes.com/video/opinion/100000007141076/coronavirus-health-care-workers-hazard-pay.html?searchResultPosition=10
+**‘The Equivalents,’ by Maggie Doherty: An Excerpt**\
+`An excerpt from “The Equivalents,” by Maggie Doherty`\
+https://nytimes.com/2020/05/19/books/review/the-equivalents-by-maggie-doherty-an-excerpt.html?searchResultPosition=10
 
