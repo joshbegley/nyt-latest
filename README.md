@@ -1,8 +1,8 @@
-**AT&T Closes Its payTV Service in Venezuela Amid U.S. Sanctions**\
-`AT&T Inc said on Tuesday it has closed its DirecTV Latin America operations in Venezuela amid sanctions by the United States on the country.`\
-https://nytimes.com/reuters/2020/05/19/arts/19reuters-at-t-venezuela.html?searchResultPosition=9
+**Judge: Salvage Firm Can Recover Titanic's Telegraph Machine**\
+`A federal judge in Virginia has ruled that a salvage firm can retrieve the Marconi wireless telegraph machine that broadcast distress calls from the sinking Titanic ocean liner. `\
+https://nytimes.com/aponline/2020/05/19/us/ap-us-titanic-artifacts.html?searchResultPosition=9
 
-**Cook and Deliver: Dubai Restaurants Turn Creative in Cut-Throat Market**\
-`Running a restaurant in Dubai, where a discerning international clientele has more than twice as many dining options per head as in New York, was a cut-throat business even before the coronavirus struck.`\
-https://nytimes.com/reuters/2020/05/19/world/middleeast/19reuters-health-coronavirus-emirates-restaurants.html?searchResultPosition=10
+**Amid Pandemic, Finding Normalcy in the Abnormal**\
+`In a city that is no stranger to outbreaks, life has a way of going on.`\
+https://nytimes.com/2020/05/19/world/asia/cornonavirus-hong-kong.html?searchResultPosition=10
 
