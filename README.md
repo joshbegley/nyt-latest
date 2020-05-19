@@ -1,8 +1,8 @@
-**Company Makes 'Bumper Tables' for Restaurants Amid Virus**\
-`A company in Baltimore has created “bumper tables” designed to allow people to practice social distancing while eating and talking in outdoor settings amid the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/05/19/business/ap-us-social-distancing-tables.html?searchResultPosition=9
+**United Airlines Says Air Travel Demand Improving**\
+`United Airlines Holdings Inc said on Tuesday it has seen a moderate improvement in demand for air travel so far in May in the United States and some international markets, as well as a reduction in cancellation rates.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-united-arlns.html?searchResultPosition=9
 
-**YouTube Goes After More TV Advertisers With New Program**\
-`Alphabet's Inc YouTube on Tuesday launched a new program to help advertisers reach more valuable viewers who watch content on their TV screens, in an effort to retain advertising revenue at a time when brands are slashing budgets due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/19/arts/19reuters-alphabet-youtube-advertising.html?searchResultPosition=10
+**EU Resolution on Pandemic Adopted at WHO Assembly: Official**\
+`A resolution on the need to investigate the global response to the coronavirus pandemic won endorsement at the World Health Organisation's annual ministerial meeting on Tuesday.`\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-health-coronavirus-who-resolution.html?searchResultPosition=10
 
