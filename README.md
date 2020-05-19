@@ -1,8 +1,8 @@
-**Home Depot, Kohl's Fall; Southwest, Advance Auto Parts Rise**\
-`Stocks that moved heavily or traded substantially on Tuesday: `\
-https://nytimes.com/aponline/2020/05/19/business/ap-financial-markets-stocks.html?searchResultPosition=9
+**Early Data on Moderna's COVID-19 Vaccine Insufficient: Stat News**\
+`Data from a small, early-stage safety trial testing Moderna Inc's experimental COVID-19 vaccine does not provide critical data to assess its effectiveness, Stat News reported on Tuesday, citing experts.  `\
+https://nytimes.com/reuters/2020/05/19/us/19reuters-health-coronavirus-moderna.html?searchResultPosition=9
 
-**At Fox News, Mixed Message on Malaria Drug: ‘Very Safe’ vs. ‘It Will Kill You’**\
-`Laura Ingraham backed President Trump after he said he was taking hydroxychloroquine, but Neil Cavuto warned viewers about the risks.`\
-https://nytimes.com/2020/05/19/business/media/virus-fox-trump-hydroxychloroquine.html?searchResultPosition=10
+**Retailers Cautiously Return as Ontario Begins Reopening**\
+`Select retailers and auto dealerships in Ontario opened their doors to a slow trickle of customers on Tuesday after two months of lockdown aimed at preventing the spread of the novel coronavirus, with many stores choosing to remain closed.`\
+https://nytimes.com/reuters/2020/05/19/us/19reuters-health-coronavirus-canada-ontario.html?searchResultPosition=10
 
