@@ -1,8 +1,8 @@
-**Cécile Rol-Tanguy, French Resistance Fighter, Dies at 101**\
-`Passing through Nazi checkpoints in disguise, she carried machine guns and hand grenades to members of the underground.`\
-https://nytimes.com/2020/05/19/world/europe/cecile-rol-tanguy-dead.html?searchResultPosition=9
+**Election Watchdog, Dormant for Months, Can Finally Move Into Action**\
+`With the confirmation of James E. Trainor III, the Federal Election Commission can function again. But warring ideologies among its members raise questions about what it can accomplish.`\
+https://nytimes.com/2020/05/19/us/federal-election-commission-.html?searchResultPosition=9
 
-**Venezuelans Clamor for Gasoline as U.S. Weighs Response to Iran Fuel Shipment**\
-`With the United States weighing a response to a gasoline shipment from Iran to Venezuela, people waiting in line outside service stations in the country's capital said they were eager to fill their tanks, regardless of how the fuel arrived. `\
-https://nytimes.com/reuters/2020/05/19/world/middleeast/19reuters-venezuela-gasoline-iran.html?searchResultPosition=10
+**Explainer: Do Children Spread COVID-19? Risks as Schools Consider Reopening**\
+`As countries begin to emerge from shutdowns imposed during the coronavirus pandemic, the issue of how the virus affects children and whether schools should be reopened is taking on heightened importance.`\
+https://nytimes.com/reuters/2020/05/19/us/19reuters-health-coronavirus-children-explainer.html?searchResultPosition=10
 
