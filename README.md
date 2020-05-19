@@ -1,8 +1,8 @@
-**Premier League Confirms Six Positive COVID-19 Cases After Testing**\
-`The Premier League said on Tuesday that six people from three different clubs had tested positive for COVID-19 out of a sample of 748 individuals.`\
-https://nytimes.com/reuters/2020/05/19/sports/soccer/19reuters-health-coronavirus-soccer-england.html?searchResultPosition=9
+**Facebook to Launch New Shopping Feature Across Apps**\
+`Facebook Inc is launching Facebook Shops, a service that will allow small businesses to display and sell their products on the social network's platforms, Chief Executive Officer Mark Zuckerberg said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-facebook-products.html?searchResultPosition=9
 
-**NCAA Postseason Bans Nearly Double Despite Steady APR Stats**\
-`The number of teams facing postseason bans because of low scores on the NCAA's Academic Progress Rate has nearly doubled in one year.`\
-https://nytimes.com/aponline/2020/05/19/sports/ap-us-ncaa-apr-scores.html?searchResultPosition=10
+**VIRUS DIARY: Of Pandemics, Parenting and ... Michael Jordan**\
+`Back in the day, I watched Michael Jordan drop 63 on the Boston Celtics on a small black-and-white TV with dials. I was a teenager as Jordan became a global icon. I remember the crazy dunks, the commercials, the baggy shorts and the shoes.`\
+https://nytimes.com/aponline/2020/05/19/sports/basketball/ap-bkn-virus-outbreak-diary-jamming-with-jordan.html?searchResultPosition=10
 
