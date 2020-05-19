@@ -1,8 +1,8 @@
-**Amid Rising Talk of Negative Rates, Policies in Japan, Europe Get Subtle Tweaks**\
-`After years of applying plenty of stick to commercial lenders unhappy with negative interest rate policies, central bankers in the euro zone and Japan are experimenting with some carrot, too.`\
-https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-health-coronavirus-centralbanks-rates-analysis.html?searchResultPosition=9
+**China Urges Its Firms to List in London in Renewed Global Push: Sources**\
+`China is urging domestic companies to look at listing in London, several sources told Reuters, as the country aims to revive deals under a Stock Connect scheme and strengthen overseas ties in the wake of the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-britain-listings-china.html?searchResultPosition=9
 
-**At the Movies: 'Ben Hur' and 'Wizard of Oz' as Japan Reopens**\
-`The chariots of 1959 epic "Ben Hur" and the yellow brick road of 1939 fantasy "The Wizard of Oz" are back on the big screen in Japan as cinemas begin reopening from the coronavirus crisis with a slate heavy on Hollywood classics.`\
-https://nytimes.com/reuters/2020/05/19/arts/19reuters-health-coronavirus-japan-cinemas.html?searchResultPosition=10
+**France Reports Fewer New Coronavirus Deaths, Uptick in Cases**\
+`France reported a small dip in the daily tally of new coronavirus deaths on Monday, though it also saw a slight uptick in confirmed cases, a week after authorities started easing lockdown restrictions.`\
+https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-health-coronavirus-france-casualties.html?searchResultPosition=10
 
