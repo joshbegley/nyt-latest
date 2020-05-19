@@ -1,8 +1,8 @@
-**EU Commission to Propose Mix of Grants and Loans for Recovery Next Week**\
-`The European Commission will not copy and paste a Franco-German proposal when it presents its own recovery fund idea next week and will include a mix of grants and loans, rather than just grants as suggested by Paris and Berlin, its spokesman said.`\
-https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-eu-recovery-commission.html?searchResultPosition=9
+**School in Brooklyn Shut for Violating Ban: Live Updates**\
+`The police found over 60 students at a Hasidic yeshiva in Bedford-Stuyvesant.`\
+https://nytimes.com/2020/05/19/nyregion/coronavirus-new-york-update.html?searchResultPosition=9
 
-**Tropical Storm Arthur Spins Out to Sea, Will Drench Bermuda**\
-`Tropical Storm Arthur moved further out to sea Tuesday and was expected to dissipate into a depression before dumping heavy rain on Bermuda later in the week.`\
-https://nytimes.com/aponline/2020/05/19/us/ap-us-tropical-weather.html?searchResultPosition=10
+**Factbox: Insurers Return Part of Auto Premiums as Coronavirus Cuts Driving**\
+`Major U.S. insurers are offering credit to auto and motorcycle policyholders following a decline in driving, as most Americans stay at home under widespread orders to help contain the spread of the novel coronavirus.`\
+https://nytimes.com/reuters/2020/05/19/us/19reuters-health-coronavirus-insurance-auto-factbox.html?searchResultPosition=10
 
