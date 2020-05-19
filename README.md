@@ -1,8 +1,8 @@
-**JPMorgan Shareholders Back Bank's Directors, Executive Pay at Annual Meeting**\
-`JPMorgan Chase & Co shareholders voted to reelect each of the bank's board members, with each director receiving at least 84% of the shares voted, according to initial tallies. `\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-jp-morgan-shareholders-meeting.html?searchResultPosition=9
+**Asda CEO Expects Resumption of Stake Sale Talks When Walmart Ready**\
+`Talks between Walmart and possible buyers of a majority stake in its British supermarket Asda will likely resume when the industry settles into a "new norm" with the worst of the coronavirus crisis behind it, the boss of Asda said on Tuesday.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-asda-walmart.html?searchResultPosition=9
 
-**Flooding Hits Parts of Midwest, With Evacuations in Michigan**\
-`People living along two mid-Michigan lakes and parts of a river were evacuated Tuesday following several days of heavy rain that produced flooding and put pressure on dams in the area.`\
-https://nytimes.com/aponline/2020/05/19/us/ap-us-midwest-flooding-1st-ld-writethru.html?searchResultPosition=10
+**Dig Near Jerusalem's Western Wall Yields 'Puzzling' Chambers**\
+`Israeli archaeologists on Tuesday exhibited a recently uncovered, unusual series of 2,000-year-old chambers carved out of the bedrock beneath the Western Wall plaza in Jerusalem.`\
+https://nytimes.com/aponline/2020/05/19/world/middleeast/ap-ml-israel-archaeology.html?searchResultPosition=10
 
