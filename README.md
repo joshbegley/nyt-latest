@@ -1,8 +1,8 @@
-**How SoulCycle Got Stuck Spinning Its Wheels**\
-`It was the gold standard of indoor-cycling classes. Then everybody went home.`\
-https://nytimes.com/2020/05/19/style/soulcycle-peloton-home-exercise-bikes-coronavirus.html?searchResultPosition=9
+**NASA Human Spaceflight Chief Resigns Ahead of Launch**\
+`NASA's human spaceflight chief Doug Loverro resigned on Tuesday, according to an internal memo seen by agency employees, capping his brief role at the agency overseeing future astronaut launches and landing humans on the moon by 2024.`\
+https://nytimes.com/reuters/2020/05/19/us/19reuters-space-exploration-nasa-human.html?searchResultPosition=9
 
-**Widow of Late John Glenn, First American to Orbit Earth, Dies at 100 of COVID-19**\
-`Annie Glenn, philanthropist and the widow of pioneering astronaut and U.S. Senator John Glenn, died at age 100 early on Tuesday at a Minnesota nursing home from complications of COVID-19, the disease caused by the coronavirus, media reports said.`\
-https://nytimes.com/reuters/2020/05/19/arts/19reuters-people-annie-glenn-obituary.html?searchResultPosition=10
+**Trudeau Says Canada-U.S. Border Will Stay Closed Another Month**\
+`Prime Minister Justin Trudeau said Canada and the U.S. agreed to extend the closing of non-essential travel between the two countries for at least another month.`\
+https://nytimes.com/video/world/americas/100000007147501/trudeau-canada-us-border-coronavirus.html?searchResultPosition=10
 
