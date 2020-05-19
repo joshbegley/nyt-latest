@@ -1,8 +1,8 @@
-**3 Plead Guilty to Aiding Man Charged in Officer's Killing**\
-`Three men pleaded guilty Tuesday for their roles in helping the man who is charged with capital murder in the 2019 shooting death of a Mississippi police officer.`\
-https://nytimes.com/aponline/2020/05/19/us/ap-us-officer-killed-mississippi.html?searchResultPosition=9
+**U.N. Chief Suggests World Leaders Send Videos for Annual Meeting**\
+`U.N. Secretary-General Antonio Guterres has suggested that world leaders send video statements for the world body's annual September meeting because it is "highly unlikely" they will be able to travel to New York during the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/05/19/us/19reuters-health-coronavirus-un.html?searchResultPosition=9
 
-**Life Is More Like a Simulation. On These Shows, So Is Death.**\
-`As viewers shelter with screens from the pandemic, more and more TV wrestles with mortality within digital reproductions.`\
-https://nytimes.com/2020/05/19/arts/television/devs-upload-midnight-gospel.html?searchResultPosition=10
+**Mariachis Delight Quarantined Colombians With Jolts of Street Music**\
+`The boisterous music - usually heard at family celebrations and raucous birthdays - bursts through the eerily quiet streets of Colombia's capital, Bogota. The mariachis have arrived.`\
+https://nytimes.com/reuters/2020/05/19/arts/19reuters-health-coronavirus-mariachis.html?searchResultPosition=10
 
