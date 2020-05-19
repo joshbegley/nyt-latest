@@ -1,8 +1,8 @@
-**Mnuchin Says Seeing Large Second Quarter Unemployment, Negative Economic Data**\
-`U.S. Treasury Secretary Steven Mnuchin said on Tuesday that he is continuing to see large unemployment numbers and other negative economic indicators during the second quarter, but the situation is expected to improve as the U.S. economy starts to reopen.`\
-https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-usa-mnuchin.html?searchResultPosition=9
+**Trump Wants to See 7.6% Payroll Tax Cut: White House Economic Director**\
+`White House economic adviser Larry Kudlow said on Tuesday that President Donald Trump wants to see a 7.6% cut in the payroll tax, hoping it will help staunch economic pain caused by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-usa-tax.html?searchResultPosition=9
 
-**Myanmar Raids Reveal New Production of a Killer Drug**\
-`After dominating the global methamphetamine trade, crime syndicates in Myanmar are starting to make fentanyl, the drug that has fueled the U.S. opioid crisis.`\
-https://nytimes.com/2020/05/19/world/asia/myanmar-drug-raid-fentanyl.html?searchResultPosition=10
+**The 10 Tools You Need for Basic Home Repair**\
+`Our homes are getting a lot more use while we shelter in place. Here are the tools you’ll need to handle most projects.`\
+https://nytimes.com/2020/05/19/realestate/tools-for-basic-home-repair.html?searchResultPosition=10
 
