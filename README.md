@@ -1,8 +1,8 @@
-**CBS Courts Advertisers Virtually, With a Zinger From Stephen Colbert**\
-`Instead of celebrities and sizzle reels at Carnegie Hall, the network presents its wares in videos sent to ad buyers.`\
-https://nytimes.com/2020/05/19/business/media/cbs-viacomcbs-upfronts-advertising.html?searchResultPosition=9
+**Why Clean Shirts Become the Stuff of Dirty Laundry**\
+`Government watchdogs say skirting the rules against subordinates doing chores hints at a broader disregard for ethics restrictions.`\
+https://nytimes.com/2020/05/19/us/pompeo-ethics-dry-cleaning.html?searchResultPosition=9
 
-**Germany's Boehringer Braced for Slower Veterinary Market Growth in Brazil: Executive**\
-`Boehringer Ingelheim's animal health division in Brazil is bracing for slower growth as the COVID-19 pandemic has dented demand for veterinary medical products in the world's largest chicken and beef exporter, an executive said on Tuesday. `\
-https://nytimes.com/reuters/2020/05/19/world/americas/19reuters-boehringer-ingelheim-brazil.html?searchResultPosition=10
+**Oregon Primary Election Results: Second House District**\
+``\
+https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-2-primary-election.html?searchResultPosition=10
 
