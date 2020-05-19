@@ -1,8 +1,8 @@
-**Fed's Rosengren Says U.S. Unemployment Rate Could Remain at Double-Digit Levels by End of Year**\
-`Businesses will face weak demand as long as consumers and workers are worried about public health, and the unemployment rate is likely to stay in the double digits at the end of the year, Boston Federal Reserve Bank President Eric Rosengren said Tuesday. `\
-https://nytimes.com/reuters/2020/05/19/us/19reuters-usa-fed-rosengren.html?searchResultPosition=9
+**Investors Seen Queuing Up for New U.S. 20-Year Bonds, Backstopped by Fed**\
+`Investors are likely to snap up 20-year bonds when the U.S. Treasury sells them on Wednesday for the first time in more than three decades, pulling out all the financing stops to mitigate the economic havoc from the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-usa-bonds-20year.html?searchResultPosition=9
 
-**Egypt Registers 720 New Coronavirus Cases in One Day**\
-`Egypt on Tuesday registered 720 new coronavirus cases, the health ministry said in a statement, its highest daily toll since detecting the first confirmed case in February.`\
-https://nytimes.com/reuters/2020/05/19/world/middleeast/19reuters-health-coronovirus-egypt.html?searchResultPosition=10
+**Kansas GOP Congressman Using Malaria Drug to Ward Off Virus**\
+`A Republican congressman from Kansas who is also a doctor says he has been taking a malaria drug being touted by President Donald Trump as way to protect against the coronavirus, despite warnings that it could have potentially fatal side effects.`\
+https://nytimes.com/aponline/2020/05/19/us/politics/ap-us-virus-outbreak-kansas-marshall-malaria-drug.html?searchResultPosition=10
 
