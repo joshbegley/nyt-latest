@@ -1,8 +1,8 @@
-**Nita Pippins, a Mother to AIDS Patients, Dies at 93**\
-`At 60, she moved to New York to care for her dying son. Instead of returning home, she dedicated herself to AIDS patients during the worst of the epidemic.`\
-https://nytimes.com/2020/05/19/obituaries/nita-pippins-dead-coronavirus.html?searchResultPosition=9
+**Mnuchin and Powell Warn of Economic Scarring, and Offer Divergent Solutions**\
+`The Treasury secretary and Fed chair said economic damage could last. One prescribed rapid reopening, the other robust policy action.`\
+https://nytimes.com/2020/05/19/us/politics/mnuchin-powell-senate-hearing.html?searchResultPosition=9
 
-**Aid Groups Slam U.N. Council Failure to Take Coronavirus Action**\
-`Several aid groups criticized the U.N. Security Council on Tuesday for being unable to agree on a resolution backing U.N. chief Antonio Guterres' call for a global ceasefire so the world can focus on combating the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-health-coronavirus-un-usa-china.html?searchResultPosition=10
+**Lockheed's F-35 Production Could Slow by 24 Jets as COVID-19 Hits Suppliers**\
+`Lockheed Martin said on Tuesday it will slow production of its stealthy F-35 fighter jets at its Texas facility, possibly delaying delivery of between 18 and 24 jets due to a parts shortage as the coronavirus hampers production across the jet's vast supply chain.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-usa-lockheed-f35.html?searchResultPosition=10
 
