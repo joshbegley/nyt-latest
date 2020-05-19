@@ -1,8 +1,8 @@
-**Merkel, Visegrad States: We'll Dismantle Border Controls When Pandemic Allows**\
-`German Chancellor Angela Merkel and the leaders of the Visegrad Four group of countries on Tuesday agreed that in was in their interests to gradually dismantle border crossing restrictions and controls as soon as the coronavirus pandemic allowed.`\
-https://nytimes.com/reuters/2020/05/19/world/europe/19reuters-health-coronavirus-germany-czech.html?searchResultPosition=9
+**Southwest Says Bookings Outpace Cancellations in May**\
+`Southwest Airlines Co said on Tuesday it recorded positive bookings on a net basis through May 18, as passenger reservations outpaced trip cancellations.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-southwest.html?searchResultPosition=9
 
-**Kyrgyzstan to Lift Most Coronavirus-Linked Restrictions**\
-`Kyrgyzstan will lift most of the remaining coronavirus-related restrictions in the coming days, reopening the retail and services sectors and public transportation, the government said   on Tuesday.`\
-https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-health-coronavirus-kyrgyzstan.html?searchResultPosition=10
+**Exclusive: Delta Will Add Flights to Keep Planes No More Than 60% Full as Demand Rises-Sources**\
+`Delta Air Lines Inc will keep planes no more than 60% full through at least July, adding more flights to its schedule than demand would usually justify, people familiar with the matter said.`\
+https://nytimes.com/reuters/2020/05/19/business/19reuters-health-coronavirus-delta-strategy-exclusive.html?searchResultPosition=10
 
