@@ -1,24 +1,24 @@
-**Rakesses, Writers, Activists and Dukes, All of Them Hot**\
-`Does the state of the world have you desperate for a happy ending? Pick up a romance novel.`\
-https://nytimes.com/interactive/2020/books/romance-novels-summer.html?searchResultPosition=5
+**All 50 States Are Now Reopening. But at What Cost?**\
+`Governors face intensifying pressure to reopen their economies, but experts warn it could mean thousands of new deaths.`\
+https://nytimes.com/2020/05/20/us/coronavirus-reopening-50-states.html?searchResultPosition=5
 
-**Puddings, Pimento Patty Melts, Sweet Potato Muffins: Drool-Worthy New Cookbooks**\
-`Drool-Worthy New Cookbooks`\
-https://nytimes.com/interactive/2020/books/cookbooks-summer.html?searchResultPosition=6
+**When Armchair Travel Is Your Only Option**\
+`With these books, you can wander through the cities of the Silk Road, visit a bushmeat market in Congo and discover tiny museums in Iceland.`\
+https://nytimes.com/interactive/2020/books/travel-summer.html?searchResultPosition=6
 
-**Alicia Keys and Tori Amos Are the Headliners for This Season’s Music Books**\
-`Lauretta Charlton reviews Keys’s “More Myself,” Amos’s “Resistance” and Peter Gatien’s “The Club King.”`\
-https://nytimes.com/interactive/2020/books/music-summer.html?searchResultPosition=7
+**Top Tokyo Prosecutor Set to Resign, Public Broadcaster NHK Says, Citing Source**\
+`The top Tokyo prosecutor is set to resign, public broadcaster NHK said on Thursday, in what is likely to be seen as a blow to Prime Minister Shinzo Abe.`\
+https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-japan-politics.html?searchResultPosition=7
 
-**Victories, Defeats and the Science of Sports**\
-`Six new sports books this season cover everything from surfing to cognitive psychology.`\
-https://nytimes.com/interactive/2020/books/sports-summer.html?searchResultPosition=8
+**Senate Speeds Up Confirmation Vote for Intelligence Director**\
+`The Senate is poised to vote Thursday on the nomination of Texas GOP Rep. John Ratcliffe to be Director of National Intelligence, potentially confirming him sooner than expected, as senators are eager to quickly fill the post. `\
+https://nytimes.com/aponline/2020/05/20/us/politics/ap-us-congress-intelligence.html?searchResultPosition=8
 
-**US: Weasel-Like Mammal Endangered in Southern Sierra Nevada**\
-`Reversing course again in a 30-year-old battle over protection of a weasel-like mammal that eats porcupines, the U.S. government is declaring the Pacific fisher endangered in the southern Sierra Nevada but denying protection elsewhere in California and Oregon.`\
-https://nytimes.com/aponline/2020/05/20/business/ap-us-pacific-fisher-endangered-species-2nd-ld-writethru.html?searchResultPosition=9
+**Eager to Visit a Different Time? These Novels Will Transport You**\
+`We can’t promise your destination will be an easier time than the one we’re in. But the journey will provide distraction and entertainment!`\
+https://nytimes.com/interactive/2020/books/historical-fiction-summer.html?searchResultPosition=9
 
-**New Hollywood Books for Summer**\
-`A loving portrait of Natalie Wood by her daughter Natasha Gregson Wagner; Val Kilmer’s memoir; and a tribute to the entertaining trash that is “Valley of the Dolls.”`\
-https://nytimes.com/interactive/2020/books/hollywood-summer.html?searchResultPosition=10
+**Necessary Evils: New Horror Fiction**\
+`In these novels, housewives battle vampires, a troop of Sasquatch lays siege to a housing development and friends are haunted by a hunting trip gone very, very wrong.`\
+https://nytimes.com/interactive/2020/books/horror-summer.html?searchResultPosition=10
 
