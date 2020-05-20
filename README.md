@@ -1,40 +1,40 @@
-**Roll Up, Roll Up: Hungarian Circus Beats Virus by Becoming Safari Park**\
-`Like many business owners, Jozsef Richter has had to shut his circus during Hungary's lockdown to help curb the spread of the coronavirus, but he has found another way of entertaining  visitors while respecting social distancing rules.`\
-https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-hungary-safari.html?searchResultPosition=1
+**UK's Cambridge University to Hold All Lectures Online Next Year**\
+`Britain's Cambridge University became one of the first in the world on Wednesday to announce that all its lectures would be delivered online over the next academic year because of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-britain-cambridge.html?searchResultPosition=1
 
-**Volkswagen Settles Emissions Charges Against Two Managers**\
-`The German carmaker will pay a relatively modest fine to resolve criminal cases involving the chairman and chief executive. They were accused of not warning shareholders about a looming scandal.`\
-https://nytimes.com/2020/05/20/business/volkswagen-emissions-charges.html?searchResultPosition=2
+**Singapore to Allow Travellers to Transit Through Airport From June 2**\
+`Singapore, a regional travel and tourism hub, will gradually allow travellers to transit through its Changi Airport from June 2, the city-state's aviation regulator said on Wednesday.     `\
+https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-health-coronavirus-singapore-airport.html?searchResultPosition=2
 
-**Nestle to Build New Plant-Based Food Facility in China Under $100 Million Investment Plan**\
-`Food giant Nestle said on Wednesday it would spend 100 million swiss francs ($103.58 million) on expanding its manufacturing footprint in China to include a new plant-based food facility and widen its production lines. `\
-https://nytimes.com/reuters/2020/05/20/business/20reuters-nestle-investment-china.html?searchResultPosition=3
+**How Photographer Captured Baby Image Amid Coronavirus Lockdown**\
+`For Reuters photographer Hannah McKay, a recent trip to take pictures at a hospital in northern England required the kind of planning more typical of a foreign assignment.`\
+https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-britain-newborn-widerimage.html?searchResultPosition=3
 
-**Luckin Coffee Shares Crash on Delisting Risk**\
-`Shares in Luckin Coffee Inc slumped almost 40% to a record low in premarket trade on Wednesday, as they resumed trading after more than a month's halt and a day after the Chinese coffee chain said it received a delisting notice from Nasdaq.`\
-https://nytimes.com/reuters/2020/05/20/business/20reuters-luckin-coffee-investigation-nasdaq.html?searchResultPosition=4
+**U.S. Arrests Two Men Wanted by Japan Over Former Nissan Boss Carlos Ghosn's Escape**\
+`U.S. authorities on Wednesday arrested a former special forces soldier and another man wanted by Japan on charges that they enabled the escape of former Nissan Motor Co boss Carlos Ghosn out of the country.`\
+https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-nissan-ghosn.html?searchResultPosition=4
 
-**Switzerland Allocates $310 Million to Get Access to Coronavirus Vaccine**\
-`Switzerland's interior ministry and defence department will lead efforts to get COVID-19 vaccine, the government said on Wednesday, estimating costs of 300 million Swiss francs ($310.82 million) to secure enough doses for the nation's 8.6 million population. `\
-https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-swiss-vaccine.html?searchResultPosition=5
+**U.S. Open Without Fans Would Devalue Title Win: Cilic**\
+`Marin Cilic thinks winning the U.S. Open in front of empty stands at Arthur Ashe Stadium would be forever remembered as a Grand Slam triumph with a very big asterisk, the former champion told Reuters.`\
+https://nytimes.com/reuters/2020/05/20/sports/tennis/20reuters-health-coronavirus-tennis-cilic.html?searchResultPosition=5
 
-**German Court Ends Diesel Case Against Volkswagen CEO, Chairman**\
-`A German court said on Wednesday it was ending proceedings against the chairman and chief executive of Volkswagen AG after the carmaker agreed to pay a fine of 9 million euros ($9.9 million) over the diesel emissions scandal.`\
-https://nytimes.com/reuters/2020/05/20/business/20reuters-volkswagen-court.html?searchResultPosition=6
+**Cyprus to Open Airports Again on June 9: Deputy Tourism Minister**\
+`Cyprus will reopen its airports on June 9 as it gradually lifts restrictions imposed to stem the spread of coronavirus, the island's Deputy Tourism Minister Savvas Perdios said on Wednesday. `\
+https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-cyprus-airports.html?searchResultPosition=6
 
-**Baby Goat Stolen From Baltimore Garden Reunited With Owners**\
-`A stolen baby goat was returned home to its community garden in Baltimore late Tuesday night, police said.`\
-https://nytimes.com/aponline/2020/05/20/us/ap-us-stolen-goat-returned.html?searchResultPosition=7
+**Mahathir Promises 'Very Big Trouble' for Malaysia's Ruling Coalition**\
+`Veteran Malaysian politician Mahathir Mohamad said he would seek to oust Prime Minister Muhyiddin Yassin at every turn, scolding his successor for bringing back into power a graft-tainted party rejected by voters in an historic election two years ago.`\
+https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-malaysia-politics-mahathir-interview.html?searchResultPosition=7
 
-**VW Pulls Car Ad After Outcry, Apologizes for Racist Overtone**\
-`Germany’s Volkswagen has pulled a social media ad for a new car and apologized after an outcry over its racist overtones.`\
-https://nytimes.com/aponline/2020/05/20/business/bc-eu-germany-volkswagen-racism.html?searchResultPosition=8
+**Prosecutor Seeks Transfer of Rwandan Genocide Suspect Kabuga to U.N. Custody**\
+`International war crimes investigators have requested that Rwandan genocide suspect Felicien Kabuga, arrested last weekend, be transferred to United Nations custody for trial, a prosecutor said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-france-rwanda-kabuga-prosecutor.html?searchResultPosition=8
 
-**UK Government to Unveil Legislation Tightening Terror Laws**\
-`The British government is to unveil legislation Wednesday that could potentially see indefinite curbs on the movements of suspected terrorists, a move that's prompted concerns over civil liberties.`\
-https://nytimes.com/aponline/2020/05/20/world/europe/ap-eu-britain-terror-laws.html?searchResultPosition=9
+**Cycling: London Surrey Classic Off as Prudential Festival Cancelled-Organisers**\
+`This year's Prudential RideLondon cycling festival, which featured a professional elite race, has been cancelled amid the COVID-19 crisis, organisers said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/20/sports/cycling/20reuters-health-coronavirus-cycling.html?searchResultPosition=9
 
-**Oprah Winfrey Gives Grants to ‘Home’ Cities During Pandemic**\
-`Oprah Winfrey is giving grants to the cities she’s called home through her $12 million coronavirus relief fund.`\
-https://nytimes.com/aponline/2020/05/20/us/ap-us-virus-outbreak-oprah-winfrey.html?searchResultPosition=10
+**Swiss Attorney General Answers Questions Ahead of Possible Impeachment**\
+`Swiss Attorney General Michael Lauber attended a meeting of the parliamentary judicial committee on Wednesday to answer questions about how he handled an investigation into corruption at soccer body FIFA. `\
+https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-swiss-attorneygeneral-impeachment.html?searchResultPosition=10
 
