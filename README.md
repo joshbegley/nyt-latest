@@ -1,4 +1,4 @@
-**Watch This: ‘The Good Wife’**\
+**This Is Why You Should Watch ‘The Good Wife’**\
 `It’s time to binge one of the best legal dramas of recent memory. Or check out a new British mystery starring Martin Freeman.`\
 https://nytimes.com/2020/05/20/arts/television/confession-good-wife.html?searchResultPosition=1
 
