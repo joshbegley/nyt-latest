@@ -30,11 +30,11 @@ https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-tsingshan-stainless-
 `Indonesia reported on Wednesday 693 new coronavirus infections, the Southeast Asian nation's biggest daily rise and taking the total number of cases to 19,189, according to the website of Indonesia’s COVID-19 task force.`\
 https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=8
 
-**Roberto Martinez to Remain in Charge of Belgium Until 2022**\
-`Belgium coach Roberto Martinez has signed a new contract to lead the Red Devils through the 2022 World Cup in Qatar.`\
+**Roberto Martínez to Remain in Charge of Belgium Until 2022**\
+`Belgium coach Roberto Martínez has signed a new contract to lead the Red Devils through the 2022 World Cup in Qatar.`\
 https://nytimes.com/aponline/2020/05/20/sports/soccer/ap-soc-belgium-coach.html?searchResultPosition=9
 
-**WTO Says Global Goods Trade Index Falls to Lowest on Record**\
-`The World Trade Organization said on Wednesday its goods trade indicator fell to the lowest level since its launch and that global goods trade was likely to fall "precipitously" in the first half of 2020 due to disruptions caused by COVID-19.`\
+**WTO's Goods Trade Index Hits Record Low Amid COVID Disruptions**\
+`The World Trade Organization (WTO) said on Wednesday its goods trade indicator fell to the lowest level since its launch, indicating global trade was likely to fall "precipitously" in the first half of 2020 due to disruptions caused by COVID-19.`\
 https://nytimes.com/reuters/2020/05/20/world/americas/20reuters-health-coronavirus-trade-wto.html?searchResultPosition=10
 
