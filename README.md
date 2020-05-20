@@ -1,40 +1,40 @@
-**Singapore Sentences Drug Suspect to Death on Zoom**\
-`Singapore has sentenced a drug suspect to death on the popular video chat app Zoom because of the city-state's coronavirus lockdown, a move slammed by a human rights group as callous and inhumane.`\
-https://nytimes.com/aponline/2020/05/20/world/asia/ap-as-singapore-death-penalty-zoom.html?searchResultPosition=1
+**Low-Cost Carrier Norwegian Air Gets Government Loan**\
+`Low-cost carrier Norwegian Air Shuttle said Wednesday it will get 3 billion kroner ($290 million) in loan guarantees from the government as part of its restructuring plan.`\
+https://nytimes.com/aponline/2020/05/20/business/bc-eu-norwegian-air-loan.html?searchResultPosition=1
 
-**UK Still Working Out Quarantine Plan for People Entering Country**\
-`The British government is still working on the details of how it will implement quarantine measures for people arriving in the country, interior minister Priti Patel said on Wednesday.`\
-https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-britain-quarantine.html?searchResultPosition=2
+**Brooklyn, Before It Was a Global Brand: Walk Its History**\
+`A few hundred years in the borough, from the brownstones to the shipyards. Our critic chats with a fourth-generation Brooklynite and historian.`\
+https://nytimes.com/2020/05/20/arts/design/brooklyn-virtual-tour-virus.html?searchResultPosition=2
 
-**Germany Moves to Protect Healthcare Firms From Foreign Takeover**\
-`The German government gave itself new powers on Wednesday to veto hostile foreign takeover bids for healthcare companies, a measure designed to ensure a continuous supply of essential products during the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-germany-m-a.html?searchResultPosition=3
+**Hospitals Move Into Next Phase as New York Passes Viral Peak**\
+`A sharp drop in coronavirus patients was “like someone turned off the hose,” one doctor said. But the city’s health system faces challenges ahead.`\
+https://nytimes.com/2020/05/20/nyregion/hospitals-coronavirus-cases-decline.html?searchResultPosition=3
 
-**Malaysia Reports 31 New Coronavirus Cases; Total Tops 7,000**\
-`Malaysia's health ministry reported 31 new coronavirus cases on Wednesday, taking the cumulative total to 7,009 infections. `\
-https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-health-coronavirus-malaysia.html?searchResultPosition=4
+**A Visual Dispatch From One of the World’s Most Remote Islands**\
+`The inhabitants of Tristan da Cunha, which sits in the remote waters of the South Atlantic, are insulated from the coronavirus by an immense moat.`\
+https://nytimes.com/2020/05/20/travel/tristan-da-cunha.html?searchResultPosition=4
 
-**Qatar Offers Turkey Relief by Tripling FX Swap Line to $15 Billion**\
-`Turkey secured a tripling of its currency-swap agreement with Qatar to $15 billion, the central bank said on Wednesday, providing some much-needed foreign funding to reinforce its depleted reserves and help steady the Turkish lira. `\
-https://nytimes.com/reuters/2020/05/20/world/middleeast/20reuters-turkey-qatar-swap.html?searchResultPosition=5
+**How the ‘Plandemic’ Movie and Its Falsehoods Spread Widely Online**\
+`Conspiracy theories about the pandemic have gained more traction than mainstream online events. Here’s how.`\
+https://nytimes.com/2020/05/20/technology/plandemic-movie-youtube-facebook-coronavirus.html?searchResultPosition=5
 
-**U.S. Blacklists Chinese Logistics Firm Over Business With Iran Airline**\
-`Washington on Tuesday imposed sanctions on a China-based company it accused of acting on behalf of U.S.-blacklisted Mahan Air, the Treasury Department said, and denounced the Iranian airline's flights to Venezuela. `\
-https://nytimes.com/reuters/2020/05/20/business/20reuters-usa-china-iran.html?searchResultPosition=6
+**The Garage Saves the Day**\
+`Where to turn when you need a spot for an ice rink, a swimming pool, an exercise studio, a romantic cafe or even a satellite food bank.`\
+https://nytimes.com/2020/05/20/realestate/the-garage-saves-the-day.html?searchResultPosition=6
 
-**Tsingshan's Stainless Steel Order Book Fills as China Rebounds, Traders Load Up**\
-`Tsingshan Holding Group, the world's biggest stainless steel producer, has sold the entire output of its Chinese plants through June, said two sources familiar with its sales, a sign of potentially strong domestic demand for the metal `\
-https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-tsingshan-stainless-steel-china-analysis.html?searchResultPosition=7
+**No More ‘Kneecap to Kneecap’ Talks: Coronavirus Hinders Military Recruiting**\
+`There is no substitute for face-to-face conversations when trying to get Americans to sign up to be service members. Boot camp outbreaks slow the pipeline, too.`\
+https://nytimes.com/2020/05/20/us/politics/coronavirus-military-recruits.html?searchResultPosition=7
 
-**Indonesia Reports Biggest Daily Rise in Coronavirus Infections**\
-`Indonesia reported on Wednesday 693 new coronavirus infections, the Southeast Asian nation's biggest daily rise and taking the total number of cases to 19,189, according to the website of Indonesia’s COVID-19 task force.`\
-https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=8
+**The Many Masks of Nancy Pelosi**\
+`The speaker of the House has relentlessly, and strategically, made masks a part of her platform.`\
+https://nytimes.com/2020/05/20/fashion/nancy-pelosi-face-masks.html?searchResultPosition=8
 
-**Roberto Martínez to Remain in Charge of Belgium Until 2022**\
-`Belgium coach Roberto Martínez has signed a new contract to lead the Red Devils through the 2022 World Cup in Qatar.`\
-https://nytimes.com/aponline/2020/05/20/sports/soccer/ap-soc-belgium-coach.html?searchResultPosition=9
+**Poor Americans Face Hurdles in Getting Promised Internet**\
+`Broadband companies like Charter and Comcast vowed to help low-income people during the pandemic. But taking them up on the offer hasn’t always been easy.`\
+https://nytimes.com/2020/05/20/technology/coronavirus-broadband-discounts.html?searchResultPosition=9
 
-**WTO's Goods Trade Index Hits Record Low Amid COVID Disruptions**\
-`The World Trade Organization (WTO) said on Wednesday its goods trade indicator fell to the lowest level since its launch, indicating global trade was likely to fall "precipitously" in the first half of 2020 due to disruptions caused by COVID-19.`\
-https://nytimes.com/reuters/2020/05/20/world/americas/20reuters-health-coronavirus-trade-wto.html?searchResultPosition=10
+**What Do the Paparazzi Do When the Stars Are Quarantined?**\
+`More FaceTime means less face time, but the celebrity photographers are still shooting away.`\
+https://nytimes.com/2020/05/20/style/paparazzi-celebrity-photos.html?searchResultPosition=10
 
