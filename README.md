@@ -1,40 +1,40 @@
+**Quotation of the Day: Why Clean Shirts Become the Stuff of Dirty Laundry**\
+`Quotation of the Day for Wednesday, May 20, 2020.`\
+https://nytimes.com/2020/05/19/todayspaper/quotation-of-the-day-why-clean-shirts-become-the-stuff-of-dirty-laundry.html?searchResultPosition=1
+
+**Biden on Trump Hits: ‘I Don’t Want to Get Down in the Mud’**\
+`Joe Biden on Tuesday night deflected questions about President Donald Trump's allegations of improper behavior during the Obama administration and other conspiracy theories pushed by his top allies, saying, “I don't want to get down in the mud with these guys.”`\
+https://nytimes.com/aponline/2020/05/19/us/politics/ap-us-election-2020-biden.html?searchResultPosition=2
+
 **South Korea Sets Up $8.2 Billion Special Purpose Vehicle to Stabilise Bond Market**\
 `South Korea on Wednesday said the government and the central bank will set up a 10 trillion won ($8.2 billion) special purpose vehicle (SPV) to directly purchase commercial paper, to calm a local debt market hammered by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-southkorea-economy.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-southkorea-economy.html?searchResultPosition=3
 
 **Michigan Dams Collapse, Residents Told to Evacuate**\
-`Michigan's county of Midland said on Tuesday two dams have collapsed due storm and heavy rains in the past few days and residents nearby were told to evacuate immediately. `\
-https://nytimes.com/reuters/2020/05/19/us/19reuters-usa-flood-michigan.html?searchResultPosition=2
+`Michigan's county of Midland said on Tuesday two dams have collapsed due to storm and heavy rains in the past few days and residents nearby were told to evacuate immediately. `\
+https://nytimes.com/reuters/2020/05/19/us/19reuters-usa-flood-michigan.html?searchResultPosition=4
 
 **French Cheese Tasting**\
 `The J.A.S.A. class, ably assisted by Natan Last and Andrew Kravis, shows us how to look at things differently.`\
-https://nytimes.com/2020/05/19/crosswords/daily-puzzle-2020-05-20.html?searchResultPosition=3
+https://nytimes.com/2020/05/19/crosswords/daily-puzzle-2020-05-20.html?searchResultPosition=5
 
 **Oregon Primary Election Results: Second House District**\
 ``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-2-primary-election.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-2-primary-election.html?searchResultPosition=6
 
 **Oregon U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-senate-primary-election.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-senate-primary-election.html?searchResultPosition=7
 
 **Oregon Primary Election Results: Fourth House District**\
 ``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-4-primary-election.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-4-primary-election.html?searchResultPosition=8
 
 **Oregon Primary Election Results: Third House District**\
 ``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-3-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-3-primary-election.html?searchResultPosition=9
 
 **Oregon Primary Election Results: First House District**\
 ``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-1-primary-election.html?searchResultPosition=8
-
-**Oregon Primary Election Results: Fifth House District**\
-``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-5-primary-election.html?searchResultPosition=9
-
-**Venezuela Announces Border Curfews as Coronavirus Cases Jump**\
-`Venezuela imposed new curfews in a handful of towns along its borders with Colombia and Brazil in response to a jump in coronavirus cases which officials attributed mainly to returning migrants, Information Minister Jorge Rodriguez said on Tuesday.`\
-https://nytimes.com/reuters/2020/05/19/world/americas/19reuters-health-coronavirus-venezuela.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-1-primary-election.html?searchResultPosition=10
 
