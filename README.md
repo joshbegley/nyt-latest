@@ -1,24 +1,24 @@
+**Missouri Prosecutor Investigating Arrest Caught on Video**\
+`St. Louis County’s prosecutor launched an investigation Wednesday into the arrest of a black woman and her adult son who say video shows white police officers brutalizing them after they were falsely accused of stealing a television at a Sam's Club store in March. `\
+https://nytimes.com/aponline/2020/05/20/us/ap-us-police-lawsuit-missouri.html?searchResultPosition=5
+
+**AP Source: Ex-Trump Lawyer Cohen to Be Released From Prison**\
+`President Donald Trump’s longtime personal lawyer and fixer Michael Cohen will be released from federal prison Thursday and is expected to serve the remainder of his sentence at home, a person familiar with the matter told The Associated Press.`\
+https://nytimes.com/aponline/2020/05/20/us/politics/ap-us-michael-cohen-prison.html?searchResultPosition=6
+
+**Lawsuit Over Popular 'S-Town' Podcast Dismissed**\
+`A lawsuit against the makers of the hit podcast “S-Town,” which tells the story of a man's troubled life and death in rural Alabama, was dismissed after a settlement was reached with the estate of the show's late protagonist. `\
+https://nytimes.com/aponline/2020/05/20/us/ap-us-s-town-lawsuit-dismissed.html?searchResultPosition=7
+
+**Two ‘High Hazard’ Dams Failed. A Third of Michigan’s Dams Hold a Similar Risk.**\
+`More than 300 dams in the state are rated as having the potential to cause loss of life or economic and environmental damage in the case of a failure, according to the U.S. Army Corps of Engineers.`\
+https://nytimes.com/interactive/2020/05/20/us/michigan-flooding-dam-risk.html?searchResultPosition=8
+
+**Trump’s Dilemma: Reject DeVos Debt Forgiveness Rollback or Anger Veterans**\
+`Nancy Pelosi sent the president a bipartisan resolution to reverse his education secretary’s tightening of student debt forgiveness rules. He must decide whether to sign it during an economic crisis.`\
+https://nytimes.com/2020/05/20/us/politics/trump-betsy-devos-student-debt-forgiveness.html?searchResultPosition=9
+
 **Brazil Has Plenty of Room to Sell More FX Reserves: Central Bank Chief**\
 `Brazil's central bank has plenty of room to sell foreign exchange reserves and may increase its currency market intervention if it deems it necessary, bank president Roberto Campos Neto said on Wednesday.`\
-https://nytimes.com/reuters/2020/05/20/world/americas/20reuters-brazil-forex-cenbank.html?searchResultPosition=5
-
-**Mayor Says Mexico City Will Begin Gradual Reopening June 1**\
-`Mexico City, one of the world's largest cities and the epicenter of the country's coronavirus epidemic, will begin a gradual reopening June 1, its mayor said Wednesday, even as daily new infections continued to set records.`\
-https://nytimes.com/aponline/2020/05/20/business/ap-lt-virus-outbreak-mexico-reopening.html?searchResultPosition=6
-
-**Rolf Hochhuth, Who Challenged a Pope’s Wartime Silence, Dies at 89**\
-`His play “The Deputy,” from 1963, took issue with Pius XII’s stance toward Nazi atrocities and caused a furor. “The theater,” Susan Sontag wrote, “is courtroom.”`\
-https://nytimes.com/2020/05/20/theater/rolf-hochhuth-dead.html?searchResultPosition=7
-
-**U.S. Government to Demolish Buildings at Contaminated California Nuclear Test Site**\
-`The Trump administration said on Wednesday it would tear down 10 buildings at the U.S. government's former Santa Susana Field Laboratory northwest of Los Angeles that was left contaminated by decades of nuclear, rocket fuel and liquid metal testing.`\
-https://nytimes.com/reuters/2020/05/20/us/20reuters-usa-california-nuclear-site.html?searchResultPosition=8
-
-**Richard Branson's Virgin Orbit Plans First Space Launch**\
-`Richard Branson’s Virgin Orbit is targeting the coming weekend for its first attempt to launch a demonstration payload into space aboard a rocket released from beneath the wing of a Boeing 747.`\
-https://nytimes.com/aponline/2020/05/20/business/ap-us-virgin-orbit.html?searchResultPosition=9
-
-**'Sunday Night Football' Continues Run as Most-Watched Show**\
-`NBC's “Sunday Night Football” will finish as prime time's most-viewed series for the ninth consecutive year when the 2019-20 television season wraps up on Wednesday night.`\
-https://nytimes.com/aponline/2020/05/20/sports/football/ap-fbn-nbc-sunday-night-football.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/20/world/americas/20reuters-brazil-forex-cenbank.html?searchResultPosition=10
 
