@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/05/20/business/20reuters-human-interest-funding
 https://nytimes.com/reuters/2020/05/20/sports/basketball/20reuters-basketball-nba-mayoclinic-coronavirus.html?searchResultPosition=9
 
 **Take a Minute for Mindfulness**\
-`Meditation can reduce stress, increase calm and promote happiness. It may be particularly helpful for you in this trying time. Join us for a bit of mindfulness.`\
+`Meditation doesn’t have to take a lot of time, but it can help make dealing with anxieties much easier. Here are some tips.`\
 https://nytimes.com/interactive/2020/05/20/burst/take-a-minute-for-mindfulness.html?searchResultPosition=10
 
