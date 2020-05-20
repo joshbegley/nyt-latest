@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/05/20/business/20reuters-health-coronavirus-rol
 https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-astrazeneca-fda.html?searchResultPosition=7
 
 **UK Inflation Drops to Lowest Since 2016 as Coronavirus Hits**\
-`Britain's inflation rate fell sharply in April to its lowest since August 2016 as retailers resorted to discounts in the face of the coronavirus shutdown, global oil prices slumped and regulated water and power tariffs slid.`\
+`Britain's inflation rate sank in April to its lowest since August 2016 as the coronavirus pandemic pushed down global oil prices and clothing retailers cut prices, while power tariffs also slid.`\
 https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-britain-economy.html?searchResultPosition=8
 
 **Burundi Opens Crucial Presidential Election Amid Pandemic**\
