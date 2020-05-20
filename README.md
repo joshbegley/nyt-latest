@@ -1,40 +1,40 @@
+**Pompeo Says He Should Have Urged Trump to Fire Former State Department Watchdog Earlier**\
+`U.S. Secretary of State Mike Pompeo on Wednesday said he should have recommended to President Donald Trump that Trump fire former State Department Inspector General Steve Linick "some time ago."`\
+https://nytimes.com/reuters/2020/05/20/us/politics/20reuters-usa-trump-inspectorgeneral.html?searchResultPosition=1
+
+**Look, No Hands! Thai Mall Puts Pedals in Lifts to Keep Coronavirus at Bay**\
+`A mall in Thailand has swapped lift buttons for foot pedals in an effort to prevent the spread of the coronavirus as well as help restore normalcy and get shoppers spending again.`\
+https://nytimes.com/reuters/2020/05/20/technology/20reuters-health-coronavirus-thailand-lift-pedals.html?searchResultPosition=2
+
+**Cycling: Pantano Handed Four-Year Ban Following Positive Anti-Doping Test**\
+`Former Tour de France stage winner Jarlinson Pantano has been handed a four-year suspension after failing an anti-doping test last year, the International Cycling Union (UCI) said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/20/sports/cycling/20reuters-cycling-doping-pantano.html?searchResultPosition=3
+
+**UK's Johnson in June Pledge for Rollout of Contact-Tracing**\
+`The British government pledged Wednesday to bring lawmakers back to the green benches of Parliament and have a “test, track and trace” program for the coronavirus in place by June 1, hoping to persuade the country that it’s time to cautiously start to emerge from the COVID-19 lockdown.`\
+https://nytimes.com/aponline/2020/05/20/business/bc-eu-virus-outbreak-britain.html?searchResultPosition=4
+
+**Personal Foul: Hair Cut**\
+`Top athletes are getting in trouble for getting haircuts. Plus, the Australian “Bonk Ban” and the return of the Persian Gulf Pro League.`\
+https://nytimes.com/2020/05/20/sports/personal-foul-hair-cut.html?searchResultPosition=5
+
+**Scandal-Hit States Oppose Plan for EU Scrutiny of Money Laundering**\
+`A plan to boost European Union powers to curb the flow of dirty money through banks faced resistance at an EU meeting from member states recently hit by major money-laundering and financial fraud scandals, three officials told Reuters.`\
+https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-eu-moneylaundering-banks.html?searchResultPosition=6
+
+**Germans Paid to Borrow as Negative Rates Reach Consumers**\
+`Germans are being shown the bright side of negative interest rates as some online lending platforms pay customers to borrow despite the steepest recession since World War Two. `\
+https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-germany-banks-rates.html?searchResultPosition=7
+
+**EU Says Britain Not Automatically Entitled to Any Trade Benefits**\
+`The European Union's top Brexit negotiator said on Wednesday that Britain was not automatically entitled to any benefits that the bloc had previously granted to other partners in trade talks.`\
+https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-britain-eu-barnier.html?searchResultPosition=8
+
+**U.S. Blacklists Iran's Interior Minister Over Human Rights Abuses**\
+`The United States on Wednesday imposed sanctions on Iran's interior minister, accusing him of having a role in serious human rights abuse, including giving orders that led to violence against peaceful protesters, the U.S. Treasury Department said.`\
+https://nytimes.com/reuters/2020/05/20/world/middleeast/20reuters-usa-iran-sanctions.html?searchResultPosition=9
+
 **Roche's Tecentriq Wins FDA Approval as First-Line Therapy for Some Lung Cancer Forms**\
 `Swiss drugmaker Roche Holding AG's Genentech unit said on Monday the U.S. Food and Drug Administration has approved Tecentriq as a standalone therapy for an advanced form of lung cancer. `\
-https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-roche-hldg-fda.html?searchResultPosition=1
-
-**Spain's Coronavirus Death Toll Climbs by 95 on Wednesday**\
-`Spain's overnight death toll from the new coronavirus was 95 on Wednesday, a slight rise on Tuesday's 83, the health ministry said.`\
-https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-spain-toll.html?searchResultPosition=2
-
-**Estonia Starts Testing Digital Immunity Passport for Workplaces**\
-`Estonia has started to test one of the world's first digital immunity passports, created by a team including founders of global tech startups Transferwise and Bolt, seeking a safer return to workplaces following the coronavirus lockdown.`\
-https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-estonia-digital.html?searchResultPosition=3
-
-**Empty Trains, Clogged Roads: Americans Get Behind the Wheel to Avoid Transit**\
-`As Americans plan for life after pandemic lockdowns, many want to avoid public transport and use a car instead, straining already underfunded transit systems and risking an increase in road congestion and pollution.`\
-https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-health-coronavirus-usa-transit.html?searchResultPosition=4
-
-**Trump Opens Door to In-Person G7 June Meeting Amid Coronavirus**\
-`U.S. President Donald Trump on Wednesday said he may seek to revive a face-to-face meeting of G7 leaders near Washington, after earlier canceling the in-person gathering of world leaders amid the novel coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/05/20/us/20reuters-health-coronavirus-g7.html?searchResultPosition=5
-
-**Pompeo Defends Firing of Inspector General, Denying It Was Retaliation for Inquiries**\
-`Congressional officials said the inspector general was examining several areas of policy and potential misuse of government resources that had raised concerns about Mr. Pompeo’s actions.`\
-https://nytimes.com/2020/05/20/us/politics/mike-pompeo-state-inspector-general.html?searchResultPosition=6
-
-**Trump Muses About Hosting G-7 Summit in US After All**\
-`President Donald Trump said Wednesday that he's considering holding a meeting in the U.S. with the leaders of the world's major economies after all because it would be a “great sign to all” of things returning to normal during the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/05/20/us/politics/ap-us-virus-outbreak-washington.html?searchResultPosition=7
-
-**Aerial Video Shows Aftermath of Dam Failure in Michigan**\
-`Severe flooding hit central Michigan after two dams broke. Thousands of residents in the region are under evacuation orders.`\
-https://nytimes.com/video/us/100000007148814/michigan-dam-failure-flooding.html?searchResultPosition=8
-
-**Sept. 11 Convict Now Says He Renounces Terrorism, Bin Laden**\
-`The only man ever convicted in a U.S. court for a role in the Sept. 11 attacks now says he is renouncing terrorism, al-Qaida and the Islamic State.`\
-https://nytimes.com/aponline/2020/05/20/us/ap-us-moussaoui-terrorism-renounced.html?searchResultPosition=9
-
-**Watch Live: Cuomo Delivers Coronavirus Update for New York**\
-`Gov. Andrew M. Cuomo of New York provides the state’s latest coronavirus stats.`\
-https://nytimes.com/video/us/politics/100000007148584/new-york-governor-andrew-cuomo-press-conference-coronavirus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-roche-hldg-fda.html?searchResultPosition=10
 
