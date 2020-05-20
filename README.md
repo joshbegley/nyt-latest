@@ -1,40 +1,40 @@
-**GSK Ties Up With Gene Editing Start-Up Mammoth for COVID-19 Test**\
-`GlaxoSmithKline's consumer health unit has tied up with Mammoth Biosciences to develop a test that uses a technology commonly used in gene editing to detect novel coronavirus infections, the California-based startup said on Wednesday.`\
-https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-gsk-mammoth.html?searchResultPosition=1
+**Venezuela's Guaido Says Iran Fuel Shipment Ought to Alarm Latin America**\
+`Iran's fuel shipment to gasoline-starved Venezuela ought to "alarm" Latin America, Venezuelan opposition leader Juan Guaido said on Wednesday, as five Iranian fuel tankers head towards the South American country. `\
+https://nytimes.com/reuters/2020/05/20/world/middleeast/20reuters-venezuela-gasoline-iran-guaido.html?searchResultPosition=1
 
-**Pompeo Denies Retaliation in Firing of State Dept Watchdog**\
-`Secretary of State Mike Pompeo on Wednesday adamantly denied that he recommended firing the State Department’s independent watchdog in retaliation for investigations into Pompeo's conduct as America’s top diplomat.`\
-https://nytimes.com/aponline/2020/05/20/us/politics/ap-us-united-states-state-department.html?searchResultPosition=2
+**Michigan Dam Disaster Threatens Major Dow Toxic-Chemical Superfund Site**\
+`Floodwaters surged toward Midland, Mich., and one of the nation’s most extensive toxic cleanup sites, raising concerns of a wider environmental fallout from the dam disaster.`\
+https://nytimes.com/2020/05/20/climate/michigan-dam-dow-chemical-superfund.html?searchResultPosition=2
 
-**Your ZIP Code and Your Life Expectancy**\
-`Also this week, what electricity demand reveals about the pandemic`\
-https://nytimes.com/2020/05/20/climate/nyt-climate-newsletter-pollution-coronavirus.html?searchResultPosition=3
+**Britain Mutes Parliament by Videoconference**\
+`Britain's parliament will require lawmakers to attend in person from June 2, ditching the videoconferencing arrangements which were rushed in last month to allow scrutiny of the government to continue during the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-britain-parliament.html?searchResultPosition=3
 
-**Slosh! Slurp! Welcome to the ‘Walktail’ Party**\
-`With most bars still takeout only, indoor gatherings discouraged and the weather warmer, Americans are sipping and strolling.`\
-https://nytimes.com/2020/05/20/style/cocktails-to-go.html?searchResultPosition=4
+**Migrants and Those Without ID Face Hunger in South Africa**\
+`South Africa has marshalled huge resources towards preventing its poor from starving because of COVID-19, but undocumented citizens and stranded migrants face hunger as they slip through the net, aid workers say.`\
+https://nytimes.com/reuters/2020/05/20/world/africa/20reuters-health-coronavirus-safrica-hungry.html?searchResultPosition=4
 
-**Breland Is Country. Breland Is Hip-Hop. Can Breland Go Pop?**\
-`The 24-year-old’s single “My Truck” is the most viable fusion of rural and urban since “Old Town Road,” and his new EP pushes the sound even further.`\
-https://nytimes.com/2020/05/20/arts/music/breland-country-rap-my-truck.html?searchResultPosition=5
+**Irish Health Minister Says Some Sectors Could Reopen Ahead of Plan**\
+`Some parts of Ireland's economy could restart ahead of schedule if the novel coronavirus remains under control, Ireland's Health Minister told Reuters on Wednesday, expressing cautious optimism of moving into phase two of a reopening plan on June 8.`\
+https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-ireland-ireland.html?searchResultPosition=5
 
-**Mississippi Gov Is Pranked in Shout-Out to High School Grads**\
-`This one slipped through the cracks.`\
-https://nytimes.com/aponline/2020/05/20/us/ap-us-odd-mississippi-governor-pranked.html?searchResultPosition=6
+**Michigan's Harbaugh Prefers Empty Stadiums to No Games**\
+`Running out of the tunnel at Michigan Stadium with no fans is a reality Wolverines coach Jim Harbaugh prefers over the alternative -- not playing games at all in 2020.`\
+https://nytimes.com/reuters/2020/05/20/sports/20reuters-football-ncaa-mic-harbaugh-coronavirus.html?searchResultPosition=6
 
-**Direct Flights to Greek Tourist Destinations to Begin July 1**\
-`Greece's long-awaited tourist season will begin on June 15 with the opening of seasonal hotels, while international flights will begin flying directly to tourist destinations gradually as of July 1, Prime Minister Kyriakos Mitsotakis said Wednesday.`\
-https://nytimes.com/aponline/2020/05/20/business/ap-eu-virus-outbreak-greece-tourism.html?searchResultPosition=7
+**Israel Must Abandon Annexation Threat, Says U.N. Middle East Envoy**\
+`Israel must abandon its threat to annex parts of the occupied West Bank, the U.N. Middle East envoy said on Wednesday, branding such a plan as a serious violation of international law that would "close the door to a renewal of negotiations."`\
+https://nytimes.com/reuters/2020/05/20/world/middleeast/20reuters-israel-palestinians-un.html?searchResultPosition=7
 
-**Police Say 14 Kidnapped Health Workers Freed in Mexico City**\
-`Officials in Mexico City say they have rescued 14 health workers who had been kidnapped in order to demand money from their families.`\
-https://nytimes.com/aponline/2020/05/20/world/americas/ap-lt-mexico-kidnapped-health-workers.html?searchResultPosition=8
+**Retirement Services Provider Human Interest Extends Funding Round to $50 Million**\
+`Human Interest, which helps small and medium-sized businesses set up 401K plans for employees, said on Wednesday it had extended its Series C funding round to $50 million due to more demand during the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/05/20/business/20reuters-human-interest-funding.html?searchResultPosition=8
 
-**Bangladesh Garment Workers Clash With Police Over Wages**\
-`Police in Bangladesh’s capital fired tear gas and swung batons to disperse more than 1,000 garment factory workers who were demanding that they be paid salaries and bonuses ahead of Islam's biggest holiday, witnesses and an industry official said. `\
-https://nytimes.com/aponline/2020/05/20/business/ap-as-bangladesh-garment-workers.html?searchResultPosition=9
+**Mayo Clinic, NBA Partner for League Antibody Study**\
+`Mayo Clinic research hospital will conduct a leaguewide study to determine how many NBA coaches and players have developed antibodies to the coronavirus.`\
+https://nytimes.com/reuters/2020/05/20/sports/basketball/20reuters-basketball-nba-mayoclinic-coronavirus.html?searchResultPosition=9
 
-**Turkey Says Low Risk of Second Outbreak, Opens to Controlled Tourism**\
-`Turkey does not risk a second wave of infections from the new coronavirus at the moment, Health Minister Fahrettin Koca said, adding that Ankara was preparing to start what he called controlled health tourism with 31 countries as of Wednesday. `\
-https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-turkey-tourism.html?searchResultPosition=10
+**Take a Minute for Mindfulness**\
+`Meditation can reduce stress, increase calm and promote happiness. It may be particularly helpful for you in this trying time. Join us for a bit of mindfulness.`\
+https://nytimes.com/interactive/2020/05/20/burst/take-a-minute-for-mindfulness.html?searchResultPosition=10
 
