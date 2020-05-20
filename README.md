@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/05/20/business/20reuters-health-coronavirus-nor
 https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-taiwan-president-inauguration-usa.html?searchResultPosition=9
 
 **Lesotho's New Prime Minister Moeketsi Majoro Sworn In**\
-`Lesotho's new Prime Minister, Moeketsi Majoro, was sworn in on Wednesday morning, a day after his predecessor resigned over a murder case.`\
+`Moeketsi Majoro was sworn in as Lesotho's new prime minister on Wednesday, a day after his predecessor resigned under pressure over a scandal involving the killing of his wife.`\
 https://nytimes.com/reuters/2020/05/20/world/africa/20reuters-lesotho-politics.html?searchResultPosition=10
 
