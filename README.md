@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/05/19/us/ap-us-detroit-schools-literacy.html?s
 `The Maseratis, the Rolls-Royces and the Mercedes-Benzes were back on Rodeo Drive on Tuesday — along with a few high-end buyers — as America's most fashionable shopping street slowly got back to business. `\
 https://nytimes.com/aponline/2020/05/19/business/ap-us-virus-outbreak-rodeo-drive-reopens.html?searchResultPosition=9
 
-**Japan March Core Machinery Orders Fall 0.4% Month-On-Month: Government**\
-`Japan's core machinery orders fell 0.4% in March from the month before, government data showed on Wednesday.`\
+**Japan's March Machinery Orders Fall as Damage From Pandemic Spreads**\
+`Japan's core machinery orders slipped in March, suggesting a widening hit to the economy from the coronavirus although the pace of decline was offset by a large number of orders for big-ticket items.`\
 https://nytimes.com/reuters/2020/05/19/world/asia/19reuters-japan-economy-orders.html?searchResultPosition=10
 
