@@ -1,40 +1,40 @@
+**Esports: U.S. Great Andretti Goes Back to Being a Rookie on Indy Oval**\
+`Mario Andretti will go back to being a rookie at the age of 80 when the motor racing great makes his esports debut on a virtual Indianapolis oval on Saturday.`\
+https://nytimes.com/reuters/2020/05/20/sports/autoracing/20reuters-motor-esports-andretti.html?searchResultPosition=1
+
+**HBO Max Announces More Launch Partners; No Deals Yet With Amazon, Comcast, Roku**\
+`HBO Max, the forthcoming streaming service from AT&T Inc-owned WarnerMedia, announced on Wednesday several new partners will carry its content, but it has not yet announced deals with Comcast Corp, Amazon.com Inc or Roku Inc. `\
+https://nytimes.com/reuters/2020/05/20/arts/20reuters-at-t-hbo-max-media.html?searchResultPosition=2
+
+**Fighter Jet Crashes in Florida; Pilot Ejects and Survives**\
+`An Air Force fighter jet crashed while landing at a Florida base, but the pilot was able to eject and survived. `\
+https://nytimes.com/aponline/2020/05/20/us/ap-us-fighter-jet-crash.html?searchResultPosition=3
+
+**Democrats Decry 'Pandemic of Pollution' Under Trump's EPA**\
+`Democrats on Wednesday blasted the Trump administration's moves to roll back environmental regulations during the coronavirus crisis, with one senator saying the administration has unleashed a "pandemic of pollution.''`\
+https://nytimes.com/aponline/2020/05/20/business/ap-us-congress-epa.html?searchResultPosition=4
+
+**Republican-Led U.S. Senate Panel Backs Subpoena in Hunter Biden Probe**\
+`A Republican-led U.S. Senate committee authorized a subpoena on Wednesday for information in an investigation related to Hunter Biden, the son of former Vice President Joe Biden, President Donald Trump's main rival as he runs for re-election in November.`\
+https://nytimes.com/reuters/2020/05/20/us/politics/20reuters-usa-congress-biden.html?searchResultPosition=5
+
+**Chile Coronavirus Cases Surpass 53,000: Health Ministry**\
+`Chile surpassed 53,000 confirmed cases of the coronavirus on Wednesday, with the virus registering a rapid advance in recent days after it spread from more affluent areas of the country to crowded, poorer areas. `\
+https://nytimes.com/reuters/2020/05/20/world/americas/20reuters-health-coronavirus-chile.html?searchResultPosition=6
+
+**World Bank Names Harvard Professor Reinhart as Chief Economist**\
+`The World Bank on Wednesday named Harvard professor and a former Bear Stearns executive Carmen Reinhart as its new vice president and chief economist, tapping an expert on financial crises who also serves on the advisory board of the New York Federal Reserve.`\
+https://nytimes.com/reuters/2020/05/20/us/20reuters-worldbank-economist.html?searchResultPosition=7
+
+**More Than 1,100 Former U.S. Prosecutors Slam Attempt to Drop Flynn Charges**\
+`More than 1,100 former U.S. federal prosecutors on Wednesday blasted the attempt by Republican President Donald Trump's Justice Department to dismiss a charge against former national security adviser Michael Flynn, saying the move puts Trump's personal interests ahead of the public good.`\
+https://nytimes.com/reuters/2020/05/20/us/politics/20reuters-usa-trump-flynn.html?searchResultPosition=8
+
+**Low-Income Areas of New York City Show High COVID-19 Positive Rates: Governor**\
+`New York City residents from low-income communities tested positive for COVID-19 antibodies at a much higher rate than the general population, according to data disclosed by Governor Andrew Cuomo on Wednesday.`\
+https://nytimes.com/reuters/2020/05/20/us/20reuters-health-coronavirus-usa-new-york.html?searchResultPosition=9
+
 **NCAA Weighs Moratorium Amid Push to Offer Fall Sports**\
 `The NCAA Division I Council is debating whether to let a moratorium on voluntary workouts on campus expire at the end of the month as a growing number of college leaders express confidence that fall sports will be played in some form.`\
-https://nytimes.com/aponline/2020/05/20/sports/ncaafootball/ap-fbc-virus-outbreak-college-sports.html?searchResultPosition=1
-
-**Lowe's Retooled Online Business Pays Off During the Pandemic**\
-`Lowe's Cos.'s move to revamp its outdated online business in recent months paid off in the first quarter, as shoppers shut in because of the pandemic shifted to online services for supplies for their do-it-yourself home projects.`\
-https://nytimes.com/aponline/2020/05/20/business/ap-us-results-lowes.html?searchResultPosition=2
-
-**Celebrating Beethoven’s Birthday by Not Playing Beethoven**\
-`Instead, the pianist Jean-Efflam Bavouzet has recorded works by the master’s now-obscure contemporaries.`\
-https://nytimes.com/2020/05/20/arts/music/beethoven-birthday-bavouzet.html?searchResultPosition=3
-
-**UK Death Toll From Confirmed Coronavirus Cases Rises to 35,704**\
-`The death toll in the United Kingdom from confirmed cases of COVID-19 rose to 35,704, an increase of 363 on the day, culture minister Oliver Dowden said at a daily briefing on Wednesday. `\
-https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-britain-casualties.html?searchResultPosition=4
-
-**Need Recommendations? We’ve Got Google Docs for That.**\
-`A new project takes you into the lives of reporters and editors who aren’t just covering the pandemic, they’re living it.`\
-https://nytimes.com/2020/05/20/at-home/newsletter.html?searchResultPosition=5
-
-**US Health Officials Quietly Release More Reopening Guidance**\
-`U.S. health officials have quietly released more reopening guidance that was created more than a month ago but initially shelved.`\
-https://nytimes.com/aponline/2020/05/20/health/bc-us-med-virus-outbreak-reopening-guidance.html?searchResultPosition=6
-
-**Michigan Dam Disaster Threatens Major Dow Toxic-Chemical Superfund Site**\
-`Floodwaters surged toward Midland, Mich., and one of the nation’s most extensive toxic cleanup sites, raising concerns of a wider environmental fallout from the dam disaster.`\
-https://nytimes.com/2020/05/20/climate/michigan-dam-dow-chemical-superfund.html?searchResultPosition=7
-
-**Venezuela's Guaido Says Iran Fuel Shipment Ought to Alarm Latin America**\
-`Iran's fuel shipment to gasoline-starved Venezuela ought to "alarm" Latin America, Venezuelan opposition leader Juan Guaido said on Wednesday, as five Iranian fuel tankers head towards the South American country. `\
-https://nytimes.com/reuters/2020/05/20/world/middleeast/20reuters-venezuela-gasoline-iran-guaido.html?searchResultPosition=8
-
-**Britain Mutes Parliament by Videoconference**\
-`Britain's parliament will require lawmakers to attend in person from June 2, ditching the videoconferencing arrangements which were rushed in last month to allow scrutiny of the government to continue during the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-britain-parliament.html?searchResultPosition=9
-
-**Migrants and Those Without ID Face Hunger in South Africa**\
-`South Africa has marshalled huge resources towards preventing its poor from starving because of COVID-19, but undocumented citizens and stranded migrants face hunger as they slip through the net, aid workers say.`\
-https://nytimes.com/reuters/2020/05/20/world/africa/20reuters-health-coronavirus-safrica-hungry.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/20/sports/ncaafootball/ap-fbc-virus-outbreak-college-sports.html?searchResultPosition=10
 
