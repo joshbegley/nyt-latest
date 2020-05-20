@@ -1,10 +1,10 @@
-**Venezuela's Guaido Says Iran Fuel Shipment Ought to Alarm Latin America**\
-`Iran's fuel shipment to gasoline-starved Venezuela ought to "alarm" Latin America, Venezuelan opposition leader Juan Guaido said on Wednesday, as five Iranian fuel tankers head towards the South American country. `\
-https://nytimes.com/reuters/2020/05/20/world/middleeast/20reuters-venezuela-gasoline-iran-guaido.html?searchResultPosition=1
-
 **Michigan Dam Disaster Threatens Major Dow Toxic-Chemical Superfund Site**\
 `Floodwaters surged toward Midland, Mich., and one of the nation’s most extensive toxic cleanup sites, raising concerns of a wider environmental fallout from the dam disaster.`\
-https://nytimes.com/2020/05/20/climate/michigan-dam-dow-chemical-superfund.html?searchResultPosition=2
+https://nytimes.com/2020/05/20/climate/michigan-dam-dow-chemical-superfund.html?searchResultPosition=1
+
+**Venezuela's Guaido Says Iran Fuel Shipment Ought to Alarm Latin America**\
+`Iran's fuel shipment to gasoline-starved Venezuela ought to "alarm" Latin America, Venezuelan opposition leader Juan Guaido said on Wednesday, as five Iranian fuel tankers head towards the South American country. `\
+https://nytimes.com/reuters/2020/05/20/world/middleeast/20reuters-venezuela-gasoline-iran-guaido.html?searchResultPosition=2
 
 **Britain Mutes Parliament by Videoconference**\
 `Britain's parliament will require lawmakers to attend in person from June 2, ditching the videoconferencing arrangements which were rushed in last month to allow scrutiny of the government to continue during the coronavirus crisis.`\
