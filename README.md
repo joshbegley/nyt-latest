@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/05/20/sports/soccer/20reuters-health-coronaviru
 `It is unreasonable and narrow-minded to say China is vying for global leadership by giving virus assistance to other countries, a top government spokesman said on Wednesday.`\
 https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-china-parliament-cppcc.html?searchResultPosition=9
 
-**Iran's Navy Will Continue Activities in Gulf, Official Says After U.S. Warning**\
-`Iran's navy will continue its "regular missions" in the Gulf, an Iranian military official was quoted as saying by the ISNA news agency on Wednesday, a day after the U.S. Navy issued a warning to mariners there to stay away from U.S. warships.`\
+**After U.S. Warning, Iran Says Its Navy Will Still Operate in Gulf**\
+`The Iranian will maintain regular missions in the Gulf, the ISNA news agency reported on Wednesday, a day after the United States warned mariners there to stay away from U.S. warships.`\
 https://nytimes.com/reuters/2020/05/20/world/middleeast/20reuters-iran-usa-navy.html?searchResultPosition=10
 
