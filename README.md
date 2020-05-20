@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-dis
 ``\
 https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-senate-primary-election.html?searchResultPosition=9
 
-**Oregon Primary Election Results: Third House District**\
+**Oregon Primary Election Results: Fourth House District**\
 ``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-3-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-4-primary-election.html?searchResultPosition=10
 
