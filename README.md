@@ -1,40 +1,40 @@
+**Lenovo Profit Beats Estimates, Sees Growth as More People Work From Home**\
+`Lenovo Group, the world's biggest maker of personal computers, reported a deep slump in fourth-quarter profit due to disruptions caused by the coronavirus crisis, although the result was far better than expectations.`\
+https://nytimes.com/reuters/2020/05/20/technology/20reuters-lenovo-results.html?searchResultPosition=1
+
+**Taiwan President Rejects Chinese Rule, Calls for Talks to Coexist**\
+`Taiwan cannot accept becoming part of China under its "one country, two systems" offer of autonomy, President Tsai Ing-wen said on Wednesday, in a strong rejection of China's sovereignty claim, but called for talks so that both sides could coexist.`\
+https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-taiwan-president-inauguration.html?searchResultPosition=2
+
+**South Koreans Return to School Amid Virus Outbreak**\
+`South Korean students began returning to schools Wednesday as their country prepares for a new normal amid the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/05/20/world/asia/ap-as-virus-outbreak-south-korea.html?searchResultPosition=3
+
+**Oil Rises on Signs of Firmer Demand, Fall in U.S. Crude Stocks**\
+`Oil prices rose on Wednesday amid signs of improving demand and a drawdown in U.S. crude inventories but worries over the economic fallout from the coronavirus pandemic capped gains. `\
+https://nytimes.com/reuters/2020/05/20/business/20reuters-global-oil.html?searchResultPosition=4
+
+**Your Wednesday Briefing**\
+`Coronavirus Inquiry, E.U. Fund, Cyclone Amphan: Here’s what you need to know.`\
+https://nytimes.com/2020/05/20/briefing/coronavirus-inquiry-european-union-cyclone-amphan.html?searchResultPosition=5
+
 **Oregon Primary Election Results: Fifth House District**\
 ``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-5-primary-election.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-5-primary-election.html?searchResultPosition=6
 
 **Oregon Primary Election Results: Second House District**\
 ``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-2-primary-election.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-2-primary-election.html?searchResultPosition=7
 
 **Oregon U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-senate-primary-election.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-senate-primary-election.html?searchResultPosition=8
 
 **Oregon Primary Election Results: First House District**\
 ``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-1-primary-election.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-1-primary-election.html?searchResultPosition=9
 
 **Oregon Primary Election Results: Fourth House District**\
 ``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-4-primary-election.html?searchResultPosition=5
-
-**Oregon Primary Election Results: Third House District**\
-``\
-https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-3-primary-election.html?searchResultPosition=6
-
-**Cyclone Dumps Rain on India, Bangladesh, 2M Head to Shelters**\
-`A powerful cyclone began dumping rain on coastal India and Bangladesh early Wednesday as more than 2 million people were being moved to shelters before the storm hits land in the afternoon.`\
-https://nytimes.com/aponline/2020/05/20/world/asia/ap-as-asia-cyclone.html?searchResultPosition=7
-
-**Global Green Energy Growth to Fall for First Time in 20 Years: IEA**\
-`Global growth in new renewable energy capacity will experience its first annual decline in 20 years this year amid the coronavirus pandemic but is expected to pick up next year, the International Energy Agency said on Wednesday. `\
-https://nytimes.com/reuters/2020/05/20/business/20reuters-iea-renewables.html?searchResultPosition=8
-
-**Horse Racing: French Racing Authority Expects More Disruptions**\
-`France's horse racing authority has said it expects government measures to be announced in the coming days that will halt racing in COVID-19 "red zones".`\
-https://nytimes.com/reuters/2020/05/20/sports/20reuters-health-coronavirus-france-horseracing.html?searchResultPosition=9
-
-**Michigan Governor Declares Emergency After Dams Collapse**\
-`Michigan Governor Gretchen Whitmer on Tuesday declared an emergency for Midland county after two dams breached and on expectations of extreme flooding.`\
-https://nytimes.com/reuters/2020/05/20/us/20reuters-usa-flood-michigan.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/05/19/us/elections/results-oregon-house-district-4-primary-election.html?searchResultPosition=10
 
