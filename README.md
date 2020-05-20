@@ -1,40 +1,40 @@
-**Fed Is Wary About the Post-Pandemic Economy, April Minutes Show**\
-`Notes from the Federal Reserve’s late-April meeting showed that officials were worried that the coronavirus might cause a lasting hit to the economy.`\
-https://nytimes.com/2020/05/20/business/economy/fed-virus-economy-april-minutes.html?searchResultPosition=1
+**Misguided Attacks on the U.S. Postal Service**\
+`A former official of the Postal Regulatory Commission criticizes the administration’s demand that the U.S.P.S. raise its rates. Also: A message to W.H.O.; college sex abuse; a volcano for the ages.`\
+https://nytimes.com/2020/05/20/opinion/letters/postal-service.html?searchResultPosition=1
 
-**Stephen F. Austin Avoids Bans, Agrees to NCAA Sanctions**\
-`Stephen F. Austin avoided postseason bans for low scores on the NCAA's Academic Progress Rate on Wednesday by agreeing to several sanctions including probation, scholarship reductions and the forfeiture of wins. `\
-https://nytimes.com/aponline/2020/05/20/sports/ncaabasketball/ap-bkc-ncaa-stephen-f-austin.html?searchResultPosition=2
+**Astronauts Arriving for NASA's 1st Home Launch in Decade**\
+`The two astronauts who will end a nine-year launch drought for NASA flew to Kennedy Space Center on Wednesday, exactly one week before their historic SpaceX flight.`\
+https://nytimes.com/aponline/2020/05/20/science/ap-us-sci-home-launch-astronauts-arrive.html?searchResultPosition=2
 
-**Summer Webinar Series for Educators**\
-`A series of free online professional development sessions on teaching with The New York Times that you can join from home this summer.`\
-https://nytimes.com/2020/05/20/learning/summer-webinar-series-for-educators.html?searchResultPosition=3
+**AT&T to Drop Misleading '5G' Marketing for Non-5G Networks**\
+`AT&T says it will stop advertising its wireless network as “5G Evolution” after a division of the Better Business Bureau determined that its language was misleading. The network AT&T branded this way is not, in fact, 5G — a new technology for fast wireless data.`\
+https://nytimes.com/aponline/2020/05/20/business/ap-us-att-misleading-ads.html?searchResultPosition=3
 
-**Iran Pushes Burgeoning Businesses With Venezuela as a Right**\
-`Iran’s ambassador to Venezuela said Wednesday that the two nations, both under increasing U.S. pressure, are exercising their right to trade freely in a deal that includes shipping the South American nation five tankers of gasoline to relieve deep shortages. `\
-https://nytimes.com/aponline/2020/05/20/world/americas/ap-lt-venezuela-iran.html?searchResultPosition=4
+**Bank of Canada Says Downward Pressure on Inflation Likely Once Shutdown Ends**\
+`The Bank of Canada thinks there is likely to be downward pressure on inflation once coronavirus-related shutdowns are lifted, a senior official said on Wednesday, a sign the Bank is in no rush to raise near-record low interest rates.`\
+https://nytimes.com/reuters/2020/05/20/us/20reuters-canada-cenbank.html?searchResultPosition=4
 
-**Ireland Expects Scepticism in EU at UK Northern Ireland Proposal**\
-`Britain's proposal on Wednesday that its Brexit divorce deal would require no new customs infrastructure in Northern Ireland will be met with scepticism by many in the European Union, Irish Foreign Minister Simon Coveney said.`\
-https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-britain-eu-nireland-ireland.html?searchResultPosition=5
+**Europeans Ask: Will Life Still Be a Beach With Social Distancing?**\
+`A handful of beach bars at the Dutch coast unpacked their sun beds and started serving cocktails to customers as temperatures soared this week, only for authorities to warn them to stop  until June 1 or face steep fines.`\
+https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-netherlands-beach.html?searchResultPosition=5
 
-**Colombia Follows Argentina in Banning All International Flights Through August 31**\
-`Colombia on Wednesday followed Argentina's footsteps and imposed one of the toughest travel bans in the world to fight coronavirus, saying no international passenger flights will be allowed until Aug. 31. `\
-https://nytimes.com/reuters/2020/05/20/world/americas/20reuters-health-coronavirus-latam-airlines.html?searchResultPosition=6
+**Pompeo Calls China Virus Response 'Paltry' Compared to Damage Done**\
+`U.S. Secretary of State Mike Pompeo took fresh aim at China over the coronavirus on Wednesday, calling $2 billion Beijing has pledged to fight the pandemic "paltry" compared to the hundreds of thousands of lives lost and trillions of dollars of damage.`\
+https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-health-coronavirus-pompeo-china.html?searchResultPosition=6
 
-**ACLU Files Lawsuit Against Puerto Rico's 'Fake News' Laws**\
-`The American Civil Liberties Union announced on Wednesday it is representing two journalists in challenging Puerto Rico laws that makes it a crime to share information about emergencies on the island that the U.S. territory’s government considers “fake news.”`\
-https://nytimes.com/aponline/2020/05/20/world/americas/ap-cb-puerto-rico-aclu-lawsuit-1st-ld-writethru.html?searchResultPosition=7
+**Poor Countries Need More Debt Relief During Pandemic, Germany's Merkel Says**\
+`Rich countries should help the world's poorest survive the coronavirus pandemic by keeping up development aid and mulling relief measures that go beyond a moratorium on debt payments, German Chancellor Angela Merkel said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-germany-merkel.html?searchResultPosition=7
 
-**AP-NORC Poll: Americans Harbor Strong Fear of New Infections**\
-`Strong concern about a second wave of coronavirus infections is reinforcing widespread opposition among Americans to reopening public places, a new poll finds, even as many state leaders step up efforts to return to life before the pandemic.`\
-https://nytimes.com/aponline/2020/05/20/us/ap-us-ap-poll-virus-outbreak-reopening.html?searchResultPosition=8
+**Brazil Prepares to Vote Land Bill Despite Threat of Environmental Boycott**\
+`Leaders of Brazil's lower house of Congress reached a deal on Wednesday to vote on a land bill seen by some as contributing to deforestation in the Amazon rain forest and has dozens of European companies threatening to boycott Brazilian exports.`\
+https://nytimes.com/reuters/2020/05/20/world/americas/20reuters-brazil-environment.html?searchResultPosition=8
 
-**Tulsa's Golden Driller Statue Gets Tesla-Style Makeover**\
-`Tulsa's iconic Golden Driller statue is joining the effort to lure automaker Tesla to build its new U.S. assembly plant in Oklahoma's second-largest city. `\
-https://nytimes.com/aponline/2020/05/20/business/ap-us-tesla-factory.html?searchResultPosition=9
+**This One-Pan Tuna Casserole Is Just What You Need Right Now**\
+`This comforting dish has everything: creamy white beans, grated cheese, and (obviously) a crunchy potato chip topping.`\
+https://nytimes.com/2020/05/20/dining/one-pan-tuna-casserole-coronavirus.html?searchResultPosition=9
 
-**BlackRock Willing to Lower Ask on Argentine Restructuring Counter to 50-55 Cents: Source**\
-`BlackRock Inc is willing to drop the ask in a debt restructuring proposal to the Argentine government to between 50-55 cents on the dollar and had made the suggestion to its creditor committee, a source familiar with the group's discussions said.`\
-https://nytimes.com/reuters/2020/05/20/business/20reuters-argentina-debt-creditors.html?searchResultPosition=10
+**Large Contingent of Cuban Doctors Help Mexico With Coronavirus: Sources**\
+`At least 500 Cuban health workers are helping tackle the new coronavirus in Mexico City, Mexican officials say, making it likely the largest contingent the communist-led island has deployed globally as part of its response to the pandemic. `\
+https://nytimes.com/reuters/2020/05/20/world/americas/20reuters-health-coronavirus-mexico-cuba.html?searchResultPosition=10
 
