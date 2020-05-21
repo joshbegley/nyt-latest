@@ -1,24 +1,24 @@
-**Explainer: Argentina's Race to Solve $323 Billion Debt Conundrum**\
-`Argentina is racing to avoid a messy ninth sovereign default as it firefights recession, stubborn inflation and increasingly wary investors, who have pushed the South American grain giant's bonds into distressed territory since last year.`\
-https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-argentina-debt-overview-explainer.html?searchResultPosition=5
+**Building a Genocide Case for IS Crimes Against Yazidis**\
+`It was clear he was in charge when he entered the wedding hall-turned-slave pen in the Iraqi city of Mosul, where dozens of Yazidi women and girls huddled on the floor, newly abducted by Islamic State militants.`\
+https://nytimes.com/aponline/2020/05/21/world/middleeast/ap-ml-is-yazidi-slaves-justice-abridged.html?searchResultPosition=5
 
-**Investigators Build a Case for IS Crimes Against Yazidis**\
-`He was burly, with piercing blue eyes, and it was clear he was in charge when he entered the Galaxy, a wedding hall-turned-slave pen in the Iraqi city of Mosul. Dozens of Yazidi women and girls huddled on the floor, newly abducted by Islamic State group militants.`\
-https://nytimes.com/aponline/2020/05/21/world/middleeast/ap-ml-is-yazidi-slaves-justice.html?searchResultPosition=6
+**Mostert Acknowledges Family Concern Over Return to Practice**\
+`Long before the sports world had been shut down and when only one death from the coronavirus had been reported in California, San Francisco 49ers running back Raheem Mostert was concerned enough about the pandemic to cancel an appearance at an autograph show in early March.`\
+https://nytimes.com/aponline/2020/05/21/sports/football/ap-fbn-49ers-mostert.html?searchResultPosition=6
 
-**Trevor Noah: Trump Will Get Crazier the Closer He Gets to Election Day**\
-`“I guess in Trump’s mind, voting should be like your wife smiling at you: once a year, in public, and never at home,” Noah said after Trump condemned states he alleged allowed voting by mail.`\
-https://nytimes.com/2020/05/21/arts/television/late-night-trump-election-mail-michigan.html?searchResultPosition=7
+**Japan Prosecutor Seen Close to Abe Hit by Gambling Scandal**\
+`Justice Ministry officials are investigating a gambling scandal involving a top Japanese prosecutor seen as close to Prime Minister Shinzo Abe, after a magazine reported he evaded a stay-at-home request to play mahjong. `\
+https://nytimes.com/aponline/2020/05/21/world/asia/ap-as-japan-prosecutor-gambling-scandal.html?searchResultPosition=7
 
-**AstraZeneca Gets First Supply Agreements for COVID-19 Vaccine**\
-`AstraZeneca Plc said on Thursday it had received the first agreements to supply at least 400 million doses of the COVID-19 vaccine it is developing with the University of Oxford.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-astrazeneca.html?searchResultPosition=8
+**Cyclone Leaves Trail of Devastation Along Coast of Eastern India, Bangladesh**\
+`Rescue teams searched for survivors in eastern India and Bangladesh a day after the most powerful cyclone in over a decade devastated coastal villages, destroying mud houses, ripping out electricity poles and washing away bridges.`\
+https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-asia-storm-india.html?searchResultPosition=8
 
-**Wanted: New Head of WTO. Must Thrive Under Global Pressure and Conflict**\
-`Against the backdrop of a global pandemic, steep recession, intensifying U.S-China tensions and rising protectionism, the WTO needs to name a leader. Only the resilient should apply.`\
-https://nytimes.com/reuters/2020/05/21/business/21reuters-health-coronavirus-wto-analysis.html?searchResultPosition=9
+**These Coronavirus 'Carriers' Take Test Samples Around London**\
+`Ben Gee carries the coronavirus all over London.`\
+https://nytimes.com/aponline/2020/05/21/world/europe/ap-eu-virus-outbreak-britain-covid-courier.html?searchResultPosition=9
 
-**Britons Spurned by Banks Caught in a Coronavirus Credit Crunch**\
-`When a payroll glitch left Natalie Gallagher so short of cash this month she couldn't afford her bus fare to work, she turned to her usual lender Amigo for an emergency top-up loan.`\
-https://nytimes.com/reuters/2020/05/21/business/21reuters-health-coronavirus-britain-credit-insight.html?searchResultPosition=10
+**Lessons From '18: Old Pandemic Is a Murky Guide for Sports**\
+`The image is striking: Fans watching a college football game in the midst of a pandemic, wearing masks with a smidge of social distance between them on row after row of bleacher seats.`\
+https://nytimes.com/aponline/2020/05/21/sports/ncaafootball/ap-fbc-virus-outbreak-sports-lessons-from-1918.html?searchResultPosition=10
 
