@@ -1,24 +1,24 @@
+**Wanted: New Head of WTO. Must Thrive Under Global Pressure and Conflict**\
+`Against the backdrop of a global pandemic, steep recession, intensifying U.S-China tensions and rising protectionism, the WTO needs to name a leader. Only the resilient should apply.`\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-health-coronavirus-wto-analysis.html?searchResultPosition=5
+
+**Britons Spurned by Banks Caught in a Coronavirus Credit Crunch**\
+`When a payroll glitch left Natalie Gallagher so short of cash this month she couldn't afford her bus fare to work, she turned to her usual lender Amigo for an emergency top-up loan.`\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-health-coronavirus-britain-credit-insight.html?searchResultPosition=6
+
+**On This Day: Born May 22, 1946: George Best, Northern Irish Footballer**\
+`George Best was arguably the finest footballer never to have played in a World Cup yet his absence from the biggest stage did little to harm his international fame.`\
+https://nytimes.com/reuters/2020/05/21/sports/soccer/21reuters-sport-anniversary-best.html?searchResultPosition=7
+
+**Sellers Beware: Price Collapse Triggers Bartering Over Oil and Gas Deals**\
+`The collapse in oil prices to 21-year lows has led potential buyers of oil and gas fields to try and renegotiate deals already agreed at higher prices, with the first examples emerging of sellers having their hand forced. `\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-oil-m-a.html?searchResultPosition=8
+
 **How Should I Clean and Store My Face Mask?**\
 `How should I clean and store my face mask? `\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-viral-questions-clean-masks.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-viral-questions-clean-masks.html?searchResultPosition=9
 
 **Word + Quiz: pratfall**\
 `This word has appeared in three articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/05/21/learning/word-quiz-pratfall.html?searchResultPosition=6
-
-**Woman, Dying Sister Reunite After Australia Exempts Travel**\
-`A woman has tearfully embraced her dying sister in Australia after weeks of bureaucracy wrangling over pandemic travel restrictions.`\
-https://nytimes.com/aponline/2020/05/21/world/asia/ap-as-virus-outbreak-australia-.html?searchResultPosition=7
-
-**CNPC Experts Call for Reform of China's Refined Oil Pricing Scheme**\
-`Researchers at an energy think tank affiliated with China National Petroleum Corp (CNPC) are calling for the reform of China's fuel pricing system by removing the floor price or allowing state companies to spend the money to boost oil output. `\
-https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-china-energy-oil-gas.html?searchResultPosition=8
-
-**Pole Vaulters to Make Big Screen Debut at Duesseldorf Drive-In Cinema**\
-`Fans starved of live athletics action could consider bringing popcorn to an event in Duesseldorf next month with top pole vaulters set to compete at a drive-in cinema.`\
-https://nytimes.com/reuters/2020/05/21/sports/21reuters-health-coronavirus-athletics-germany.html?searchResultPosition=9
-
-**Detective, Nurse, Confidant: Virus Tracers Play Many Roles**\
-`Health investigator Mackenzie Bray smiles and chuckles as she chats by phone with a retired Utah man who just tested positive for the coronavirus. `\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-contact-tracing.html?searchResultPosition=10
+https://nytimes.com/2020/05/21/learning/word-quiz-pratfall.html?searchResultPosition=10
 
