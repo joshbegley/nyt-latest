@@ -1,20 +1,20 @@
+**IMF Reaches Staff Agreement for $5 Billion Ukraine Financing**\
+`The International Monetary Fund said it has reached a staff-level agreement with Ukraine for a new $5 billion, 18-month Stand-By Arrangement to help the Eastern European country address the economic shock caused by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-imf-ukraine.html?searchResultPosition=6
+
+**Iconic San Francisco Gay Bar to Shutter in Pandemic Fallout**\
+`One of the nation’s most celebrated gay bars is being forced from its home amid the financial fallout of the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/05/21/us/ap-us-iconic-gay-bar-closure.html?searchResultPosition=7
+
+**Pompeo Quietly Visits Conservative Donors and Political Figures on Official Trips**\
+`The meetings, often kept off his public schedule, have taken place as Mike Pompeo nurtures plans for a presidential bid in 2024 and as he considered a run for the Senate from Kansas.`\
+https://nytimes.com/2020/05/21/us/politics/mike-pompeo-inspector-general.html?searchResultPosition=8
+
 **Facebook Starts Planning for Permanent Remote Workers**\
 `The move is a stark change from an office-centric culture. But there’s a catch: Salaries are likely to change to match local costs of living.`\
-https://nytimes.com/2020/05/21/technology/facebook-remote-work-coronavirus.html?searchResultPosition=6
+https://nytimes.com/2020/05/21/technology/facebook-remote-work-coronavirus.html?searchResultPosition=9
 
 **This Date in Baseball**\
 `May 22`\
-https://nytimes.com/aponline/2020/05/21/sports/baseball/ap-bbo-this-date-in-baseball.html?searchResultPosition=7
-
-**Brazil's Bolsonaro Accepts No Proof Chloroquine Works, but May Work in Some Cases**\
-`Brazil President Jair Bolsonaro, a long-running advocate of malaria drug chloroquine to treat COVID-19, said on Thursday he knew there was no proof it works, but said there are cases in which it appears to have been successful. `\
-https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-health-coronavirus-brazil-chloroquine.html?searchResultPosition=8
-
-**Universal Orlando Seeks to Reopen Theme Parks in Early June**\
-`Universal Orlando is aiming to reopen its theme parks in early June, a resort official said Thursday, more than two months after the company joined crosstown rivals Disney World and SeaWorld in closing their gates to stop the spread of the new coronavirus.`\
-https://nytimes.com/aponline/2020/05/21/us/bc-us-virus-outbreak-theme-parks.html?searchResultPosition=9
-
-**The Atlantic Lays Off 68, Citing ‘a Bracing Decline in Advertising’**\
-`Despite the addition of 90,000 subscribers since March, the venerable publication says it has fallen victim to the pandemic’s economic fallout.`\
-https://nytimes.com/2020/05/21/business/atlantic-layoffs-media-coronavirus.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/21/sports/baseball/ap-bbo-this-date-in-baseball.html?searchResultPosition=10
 
