@@ -1,20 +1,20 @@
-**Puerto Rico to Reopen Businesses, Beaches With New Rules**\
-`Puerto Rico will cautiously reopen beaches, restaurants, churches, malls and hair salons next week under strict new rules as the U.S. territory emerges from a two-month lockdown that stifled business activity on an island already beset with economic woes.`\
-https://nytimes.com/aponline/2020/05/21/world/americas/ap-cb-virus-outbreak-puerto-rico.html?searchResultPosition=6
+**Top Safety Official at Waymo Self-Driving Unit Stepping Down**\
+`Alphabet Inc’s Waymo self-driving unit said on Thursday that its chief safety officer, Debbie Hersman, was stepping down but would remain as a consultant to the company.`\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-waymo-safety.html?searchResultPosition=6
 
-**U.S. Meat Inventories Tightened as Virus Shut Slaughterhouses: USDA**\
-`U.S. frozen pork inventories fell in April, when they typically rise, and beef inventories dropped more than normal as the coronavirus pandemic shut slaughterhouses and prompted grocers to limit customers' buying, government data showed on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/business/21reuters-health-coronavirus-usa-meat.html?searchResultPosition=7
+**Bernice Silver, Impish Puppeteer and Activist, Dies at 106**\
+`Trained in the political theater of the 1930s, Ms. Silver was a beloved figure in the puppetry, folk music and environmental worlds.`\
+https://nytimes.com/2020/05/21/obituaries/bernice-silver-dead-coronavirus.html?searchResultPosition=7
 
-**Police: 90s TV Actress Arrested During Street Racing Raid**\
-`An actress with credits from a 90s TV sitcom was among 44 people arrested in Atlanta after police disbanded what they described as an illegal street racing event.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-street-racing-actress-arrest-.html?searchResultPosition=8
+**U.S. Doctors Call for Remdesivir Data to Guide Coronavirus Treatment**\
+`U.S. doctors and others in the scientific community are calling for the release of data that convinced health regulators to authorize emergency use of Gilead Sciences Inc's antiviral drug remdesivir to treat COVID-19, so they can direct limited supplies on the right patients.`\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-gilead-sciences.html?searchResultPosition=8
 
-**Ronald Shurer II, Cited for Bravery in Afghanistan, Dies at 41**\
-`An Army medic, Staff Sergeant Shurer charged into heavy gunfire, saving fellow soldiers. He was awarded the Medal of Honor.`\
-https://nytimes.com/2020/05/21/us/ronald-shurer-dead.html?searchResultPosition=9
+**Bank of Japan to Create Its Version of Fed's 'Main Street' Lending Scheme**\
+`Japan's central bank will create its own version of the U.S. Federal Reserve's "Main Street" lending programme to channel more money to small businesses, in a bid to keep the coronavirus pandemic from pushing the economy deeper into recession.`\
+https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-health-coronavirus-boj.html?searchResultPosition=9
 
-**Marfrig, Minerva's Brazil Cattle Processing Plants Operational Despite COVID-19 Cases**\
-`Brazilian meat producers Marfrig Global Foods and Minerva SA have registered coronavirus cases among  workers in cattle processing plants this week but the units are still operational, the companies said. `\
-https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-health-coronavirus.html?searchResultPosition=10
+**Is This the End? Answers to 4 Key Questions About Hong Kong**\
+`What could China’s move to strengthen control over Hong Kong with new security laws yield? And why did it propose this now?`\
+https://nytimes.com/2020/05/21/world/asia/china-hong-kong-national-security-law.html?searchResultPosition=10
 
