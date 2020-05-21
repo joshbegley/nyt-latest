@@ -1,20 +1,20 @@
+**U.S. Insurers Propose Taxpayer-Funded Business-Loss Coverage for Future Pandemics**\
+`With U.`\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-insurance-pandemic.html?searchResultPosition=6
+
+**Virus Impact on One Landlord: 80% of Its Retail Tenants Missed Rent**\
+`Commercial owners are reporting steep drops in rental payments, which could imperil their own finances and the property tax collections that pay for city services.`\
+https://nytimes.com/2020/05/21/nyregion/commercial-rent-NYC-coronavirus.html?searchResultPosition=7
+
+**Irish Regulator Questions Apple Over Recordings**\
+`Ireland's Data Protection Commissioner (DPC), Apple's main regulator in the European Union, on Thursday said it was in contact with the company after a whistleblower called for action  over a programme that listens to users' recordings.`\
+https://nytimes.com/reuters/2020/05/21/technology/21reuters-apple-dataprotection.html?searchResultPosition=8
+
+**Hundreds Killed in New Violence in South Sudan, ICRC Says**\
+`Hundreds of people have been killed in a new burst of intercommunal violence in South Sudan, the International Committee of the Red Cross said Thursday, with “many more” injured and thousands displaced.`\
+https://nytimes.com/aponline/2020/05/21/world/africa/ap-af-south-sudan-hundreds-killed.html?searchResultPosition=9
+
 **Floodwaters Start to Recede in Michigan After Flooding**\
 `Floodwaters that breached two privately owned dams in Michigan began to recede on Thursday after displacing thousands of people and spreading to a Dow Chemical plant and a nearby hazardous waste cleanup site.`\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-usa-flood-michigan.html?searchResultPosition=6
-
-**Fed's Clarida Says Actions So Far Have Bought Time for Economy**\
-`The Federal Reserve's actions so far have helped buy time for the U.S. economy through looser financial conditions, though that could be threatened if the coronavirus pandemic and related downturn persist, Fed Vice Chair Richard Clarida said on Thursday.  `\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-usa-fed-clarida.html?searchResultPosition=7
-
-**NFL Looks at Adding 'Booth Umpire' and Tech Advisor for Refs**\
-`The NFL is considering adding a “booth umpire” and a senior technology advisor to the referee to assist the officiating crew.`\
-https://nytimes.com/aponline/2020/05/21/sports/football/ap-fbn-nfl-rule-changes.html?searchResultPosition=8
-
-**2 Accused of False Alzheimer's Diagnoses Charged With Fraud**\
-`A former director of an Ohio memory-loss clinic accused by dozens of patients of falsely diagnosing them with Alzheimer’s disease has been indicted on federal fraud charges.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-alzheimers-wrong-diagnoses.html?searchResultPosition=9
-
-**US Long-Term Mortgage Rates Ease; 30-Year at 3.24%**\
-`Long-term U.S. mortgage rates eased this week in a housing market battered by the shutdown spurred by the coronavirus pandemic. Rates hovered near all-time lows as the benchmark 30-year home loan stayed below 3.30% for the fourth straight week. `\
-https://nytimes.com/aponline/2020/05/21/business/bc-us-mortgage-rates.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/21/us/21reuters-usa-flood-michigan.html?searchResultPosition=10
 
