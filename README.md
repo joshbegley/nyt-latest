@@ -1,24 +1,24 @@
-**Italy Has Come Out of Worst Part of Virus Emergency: PM**\
-`Italy has left the worst part of the COVID-19 emergency behind and as lockdown restrictions are slowly lifted the country must now enter the new phase with confidence and responsibility, Prime Minister Giuseppe Conte said on Thursday. `\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-italy-pm.html?searchResultPosition=5
+**The End of Meat Is Here**\
+`If you care about the working poor, about racial justice, and about climate change, you have to stop eating animals.`\
+https://nytimes.com/2020/05/21/opinion/coronavirus-meat-vegetarianism.html?searchResultPosition=5
 
-**Pompeo Calls China Virus Response 'Paltry' Compared to Damage Done**\
-`U.S. Secretary of State Mike Pompeo took fresh aim at China over the coronavirus on Wednesday, calling the $2 billion Beijing has pledged to fight the pandemic "paltry" compared to the hundreds of thousands of lives lost and trillions of dollars of damage.`\
-https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-health-coronavirus-pompeo-china.html?searchResultPosition=6
+**Yes, Jersey Shore Beaches Are Reopening. Here’s How They’re Doing It.**\
+`The coronavirus has upended the rhythms of summer at the shore, a 130-mile coastline that is equal parts economic engine and cultural touchstone.`\
+https://nytimes.com/2020/05/21/nyregion/jersey-shore-reopen-coronavirus.html?searchResultPosition=6
 
-**Andrew Lloyd Webber: Now, Yesterday and Tomorrow**\
-`Online broadcasts of some of the composer’s greatest hits put the spotlight on a 50-year career.`\
-https://nytimes.com/2020/05/21/theater/andrew-lloyd-webber-now-yesterday-and-tomorrow.html?searchResultPosition=7
+**In Istanbul Under Lockdown, Baklava Makers Are Essential Workers**\
+`A strict weekend curfew quiets the city’s joyous commotion, but offers up new moments of breathtaking beauty, both spiritual and natural. And essential sweets are still delivered.`\
+https://nytimes.com/2020/05/21/world/europe/turkey-istanbul-coronavirus.html?searchResultPosition=7
 
-**Indonesia's COVID-19 Battle Faces Crucial Test Over Eid Holiday**\
-`Thousands of Indonesians made a late dash to leave Jakarta for their hometowns this week, even as authorities sought to stem the traditional mass exodus at the end of the Muslim fasting month to limit the spread of the coronavirus.  `\
-https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-health-coronavirus-eid-indonesia-travel.html?searchResultPosition=8
+**The Striking Racial Divide in How Covid-19 Has Hit Nursing Homes**\
+`Homes with a significant number of black and Latino residents have been twice as likely to be hit by the coronavirus as those where the population is overwhelmingly white.`\
+https://nytimes.com/article/coronavirus-nursing-homes-racial-disparity.html?searchResultPosition=8
 
-**Malaysia Reports 50 New Coronavirus Cases With No New Deaths**\
-`Malaysian health authorities on Thursday reported 50 new coronavirus cases, raising the cumulative total to 7,059 cases.`\
-https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-health-coronavirus-malaysia-cases.html?searchResultPosition=9
+**It’s Almost Memorial Day, and I Want to Go to the Beach. Can I Do That Safely?**\
+`As states reopen, experts say socially distant outdoor activities, like swimming or running along the shore, are some of the safer ways to re-engage with the world. Here, tips for how to enjoy the beach now.`\
+https://nytimes.com/article/beaches-coronavirus.html?searchResultPosition=9
 
-**COVID Crisis Eases Slightly for UK Economy in May: PMIs**\
-`Britain's economy flattened out a bit this month from its nosedive in April caused by the coronavirus lockdown, but it remains in the grip of a severe contraction, a business survey showed on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-britain-economy.html?searchResultPosition=10
+**Spike Lee and the Battlefield of American History**\
+`With his new film, the peerless American filmmaker — self-isolating and reflective in New York — unsettles past and present conflicts.`\
+https://nytimes.com/2020/05/21/movies/spike-lee-da-5-bloods.html?searchResultPosition=10
 
