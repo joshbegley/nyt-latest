@@ -1,24 +1,24 @@
+**Loughlin, Giannulli to Serve Prison Time for College Scam**\
+`Actress Lori Loughlin and her fashion designer husband, Mossimo Giannulli, have agreed to plead guilty to charges in the college admissions bribery case and serve two months in prison, according to court papers filed Thursday.`\
+https://nytimes.com/aponline/2020/05/21/sports/ap-us-college-admissions-bribery.html?searchResultPosition=5
+
+**Gunman Stopped at Texas Naval Base, Officials Say**\
+`A spokeswoman for the Naval Air Station Corpus Christi said the gunman was “neutralized.” A member of the base’s security force was injured, the Navy said.`\
+https://nytimes.com/2020/05/21/us/nas-corpus-christi-shooting.html?searchResultPosition=6
+
+**Polish Govt Plans to Hold Presidential Election June 28**\
+`Poland's prime minister said Thursday that his government is aiming for June 28 as the date of a presidential election that was postponed due to the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/05/21/world/europe/ap-eu-poland-politics.html?searchResultPosition=7
+
+**Cape Town Is Virus Hot Spot for South Africa and Continent**\
+`Cape Town has become the center of the COVID-19 outbreak in South Africa and one of Africa's hot spots.`\
+https://nytimes.com/aponline/2020/05/21/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=8
+
 **Lori Loughlin to Plead Guilty in College Admissions Scandal**\
 `The actress Lori Loughlin has agreed to plead guilty and to serve two months in prison. Her husband, Mossimo Giannulli, a fashion designer, is expected to serve five months.`\
-https://nytimes.com/2020/05/21/us/lori-loughlin-pleads-guilty.html?searchResultPosition=5
+https://nytimes.com/2020/05/21/us/lori-loughlin-pleads-guilty.html?searchResultPosition=9
 
 **Chafing Under Lockdown, Palestinians Long for Eid Celebrations**\
 `Bethlehem is struggling back to life just in time for the Muslim holiday of Eid al-Fitr, nearly three months after it became the first town in the West Bank to be sealed off because of a coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/05/21/world/middleeast/21reuters-health-coronavirus-eid-palestinians.html?searchResultPosition=6
-
-**Egyptians Rush to Buy Treats Before Eid Al-Fitr Curfew**\
-`Families rushed to buy sweets and biscuits in Cairo on Friday as they prepared to celebrate the end of the Muslim fasting month of Ramadan under a tightened coronavirus curfew and lockdown.`\
-https://nytimes.com/reuters/2020/05/21/world/middleeast/21reuters-health-coronavirus-eid-egypt.html?searchResultPosition=7
-
-**VIRUS DIARY: When You Prefer It Anyway, Staying in Isn't Bad**\
-`Like you, I’ve been locked away at home for two months. But for me, not much has changed.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-diary-ok-with-quarantine.html?searchResultPosition=8
-
-**Canada Sheds 226,700 Jobs in April Due as COVID-19 Weighs: ADP**\
-`Canada shed 226,700 jobs in April when efforts to contain the coronavirus outbreak shut down much of the economy, with trade, leisure and hospitality among the hardest hit industries, a report from payroll services provider ADP showed on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-canada-economy-employment.html?searchResultPosition=9
-
-**Fare Caps, Protective Suits for Crew Among Rules as India Begins Flights**\
-`Ticket pricing restrictions, protective suits and goggles for flight attendants and no food served on board planes are among the rules proposed by India's civil aviation ministry on Thursday as it prepares to resume domestic flying within days.`\
-https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-health-coronavirus-india-airlines.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/21/world/middleeast/21reuters-health-coronavirus-eid-palestinians.html?searchResultPosition=10
 
