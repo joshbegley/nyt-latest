@@ -1,20 +1,20 @@
-**Trump Says Russia Did Not Adhere to Open Skies Treaty**\
-`U.S. President Donald Trump said on Thursday he has a good relationship with Russia but Moscow did not adhere to the Open Skies treaty allowing unarmed surveillance flights over member countries.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-usa-russia-openskies-trump.html?searchResultPosition=6
+**Brady's Super Bowl Journeys to Be Part of 2021 ESPN Series**\
+`Tom Brady's journey to each of his nine Super Bowls with the New England Patriots will be the subject of an ESPN series released next year.`\
+https://nytimes.com/aponline/2020/05/21/sports/football/ap-fbn-espn-brady-series.html?searchResultPosition=6
 
-**U.S. to React Strongly if China Makes Move on Hong Kong: Trump**\
-`U.S. President Donald Trump said on Thursday the United States would react strongly if China follows through on plans to impose new national security legislation on Hong Kong after last year's often violent pro-democracy unrest. `\
-https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-usa-china-hong-kong.html?searchResultPosition=7
+**Threat to Hit Turkey in Libya Underscores Risk of Escalation**\
+`Turkey warned on Thursday against any attacks on its interests in Libya by Khalifa Haftar's forces after his Libyan National Army (LNA) threatened to respond to recent military setbacks by striking Turkish positions in the country.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-libya-security.html?searchResultPosition=7
 
-**Forecasters Predict Busy 2020 Atlantic Hurricane Season**\
-`With forecasters predicting another intense Atlantic hurricane season with as many as 13 to 19 named storms, disaster preparedness experts say it’s critically important for people in evacuation zones to plan to stay with friends or family, rather than end up in shelters during the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-hurricane-season-outlook.html?searchResultPosition=8
+**Harold Blake, Loyal to Robert Moses Until the End, Dies at 91**\
+`He was executive assistant to that imperious urban planner when Mr. Moses headed the 1964-65 World’s Fair in New York. He was later an executive with the city’s bridge and tunnel authority.`\
+https://nytimes.com/2020/05/21/nyregion/harold-blake-dead-coronavirus.html?searchResultPosition=8
 
-**U.S. Senate Confirms Trump Nominee Ratcliffe to Be Top U.S. Spy**\
-`The U.S. Senate backed Republican House of Representatives member John Ratcliffe on Thursday as the next director of national intelligence, a victory for President Donald Trump the second time he tapped the conservative lawmaker for the top spot.`\
-https://nytimes.com/reuters/2020/05/21/us/politics/21reuters-usa-trump-intelligence.html?searchResultPosition=9
+**UK Test and Trace System Is on Course for June 1: Health Minister**\
+`Britain's health minister said the health service's COVID-19 smartphone app was working on the Isle of Wight, where it is being trialled, and the country's test and trace operation would be ready to launch on June 1 when the lockdown is further eased.`\
+https://nytimes.com/reuters/2020/05/21/technology/21reuters-health-coronavirus-britain-apps.html?searchResultPosition=9
 
-**China Doesn't Seem to Understand Independence of Canada's Judiciary: Trudeau**\
-`China does not appear to understand that Canada's judiciary is independent, Prime Minister Justin Trudeau said on Thursday, taking a rare public swipe at Beijing at a time when bilateral ties are poor.`\
-https://nytimes.com/reuters/2020/05/21/technology/21reuters-canada-china-diplomacy.html?searchResultPosition=10
+**Cuomo: Summer School in New York State Will Be Online**\
+`Summer school in New York will be conducted remotely, Gov. Andrew Cuomo said Thursday, citing the risks of returning children to the classroom.`\
+https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=10
 
