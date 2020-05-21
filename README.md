@@ -1,20 +1,20 @@
-**Russia Says U.S. Withdrawal From Open Skies Treaty Will Affect All Members: RIA**\
-`The U.S. withdrawal from the Open Skies treaty will affect the interests of all of its participants, who are also members of NATO, RIA state news agency quoted Russian Deputy Foreign Minister Alexander Grushko as saying on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-usa-russia-openskies-moscow.html?searchResultPosition=6
+**Turkey Says Export of Dairy Products to China Will Resume**\
+`Turkey's exports of milk and other dairy products to China will resume, Trade Minister Ruhsar Pekcan said on Thursday, and added that 54 Turkish companies will be able to export to China.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-turkey-china.html?searchResultPosition=6
 
-**Burundi Candidate Says 200 Supporters Arrested During Vote**\
-`Burundi’s leading opposition candidate says more than 200 party supporters were arrested during Wednesday’s election, and he is keeping open the possibility of challenging the results over suspected fraud.`\
-https://nytimes.com/aponline/2020/05/21/world/africa/ap-af-burundi-election.html?searchResultPosition=7
+**Kudlow Says No Need for More Unemployment Even as Election Looms**\
+`U.S. White House economic adviser Larry Kudlow on Thursday dismissed the idea of extending unemployment benefits even as he acknowledged that nation's unemployment rate could still be in double digits when American vote in November.`\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-usa-kudlow.html?searchResultPosition=7
 
-**Judge Grants Sanctions Against DOJ Over Citizenship Question**\
-`A federal judge on Thursday agreed to impose financial sanctions against the Trump administration for failing to produce hundreds of documents during litigation over whether a citizenship question could be added to the 2020 census.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-citizenship-census.html?searchResultPosition=8
+**Russia Flouts Another Treaty. So We’re Leaving It.**\
+`The agreement undermines security instead of promoting it.`\
+https://nytimes.com/2020/05/21/opinion/trump-open-skies-treaty-russia.html?searchResultPosition=8
 
-**Nigeria's Economy to Contract by 8.9% This Year in Worst Case: Finance Minister**\
-`Nigeria's economy could shrink as much as 8.9% in 2020 in a worst case scenario without stimulus, Finance Minister Zainab Ahmed said on Thursday, a deeper recession than forecast after oil prices plunged due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/21/world/africa/21reuters-health-coronavirus-nigeria-economy.html?searchResultPosition=9
+**The 1975: Self-Aware, Self-Indulgent and, Yes, Sincere**\
+`The British band’s new album, “Notes on a Conditional Form,” is a more downcast take on the challenges of living in the internet age.`\
+https://nytimes.com/2020/05/21/arts/music/the-1975-notes-on-a-conditional-form-review.html?searchResultPosition=9
 
-**Turkey Sees Drop in Daily Coronavirus Infections**\
-`Turkey on Thursday reported its lowest daily increase in confirmed coronavirus cases in the past two months, with 961 new infections in the past 24 hours.`\
-https://nytimes.com/aponline/2020/05/21/world/europe/ap-eu-virus-outbreak-turkey.html?searchResultPosition=10
+**Atlantic Media Cuts Nearly 20% of Jobs in U.S. as Pandemic Cripples Events Business**\
+`Atlantic Media, the owner of The Atlantic magazine, announced Thursday the publication is cutting nearly 20% of the its staff as the coronavirus pandemic devastates ad sales and the live events business. `\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-atlantic-media-layoffs.html?searchResultPosition=10
 
