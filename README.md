@@ -1,24 +1,24 @@
-**13 Workers Die in Bangladesh Road Accident**\
-`A speeding truck loaded with iron bars overturned Thursday in heavy rain after its driver apparently lost control, killing 13 passengers in northern Bangladesh, police said. `\
-https://nytimes.com/aponline/2020/05/21/world/asia/ap-as-bangladesh-road-accident-.html?searchResultPosition=5
+**Indiana Mattress Business Adapts to Lure Customers Back**\
+`Lauren Taylor is figuring out what’s required to run a mattress store in the age of a deadly pandemic.`\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-usa-smallbusiness.html?searchResultPosition=5
 
-**Brazil Police Seize Marijuana in Nation's 'Biggest Bust'**\
-`Brazilian police said Thursday that nearly 28 tons of marijuana have been seized hidden in corn in what authorities have called “the biggest drug bust” ever in the country. `\
-https://nytimes.com/aponline/2020/05/21/world/americas/ap-lt-brazil-drug-bust.html?searchResultPosition=6
+**Exclusive: A Quarter of Americans Are Hesitant About a Coronavirus Vaccine-Reuters/Ipsos Poll**\
+`A quarter of Americans have little or no interest in taking a coronavirus vaccine, a Reuters/Ipsos poll published on Thursday found, with some voicing concern that the record pace at which vaccine candidates are being developed could compromise safety.`\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-vaccine-poll-exclusive.html?searchResultPosition=6
 
-**Millions More People Likely Sought US Unemployment Benefits**\
-`The government will provide its latest snapshot Thursday of the layoffs that have left tens of millions of people unemployed but that have begun to slow as states allow some businesses to reopen and fewer companies slash jobs.`\
-https://nytimes.com/aponline/2020/05/21/business/bc-us-virus-outbreak-unemployment-benefits.html?searchResultPosition=7
+**Turkey Says Attacks on Its Interests in Libya Will Have Grave Consequences**\
+`Turkey's foreign ministry warned on Thursday of grave consequences if General Khalifa Haftar's forces attacked Turkish interests in Libya.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-libya-security-turkey.html?searchResultPosition=7
 
-**DealBook: Are You Ready to Go Back to the Office?**\
-`A long stretch of remote working has led companies to rethink their office space — namely, whether they need as much of it after the pandemic subsides.`\
-https://nytimes.com/2020/05/21/business/dealbook/office-reopening-coronavirus.html?searchResultPosition=8
+**Beijing to Unveil Plans for National Security Laws in Hong Kong: Report**\
+`Beijing will announce a resolution for national security legislation in Hong Kong, proscribing secession, foreign interference and terrorism, the South China Morning Post newspaper reported on Thursday, citing unnamed sources.`\
+https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-china-parliament-hongkong.html?searchResultPosition=8
 
-**On Politics: Putting a Stamp (or Not) on Vote-by-Mail**\
-`President Trump makes false claims, and Mike Pompeo faces scrutiny: This is your morning tip sheet.`\
-https://nytimes.com/2020/05/21/us/politics/trump-mail-voting.html?searchResultPosition=9
+**Trump to Visit Ford Plant in Battleground State Michigan Amid Tensions With Governor**\
+`U.S. President Donald Trump travels to the political swing state of Michigan on Thursday to visit a Ford plant amid tension with the state's Democratic governor and differences over the speed at which the country is reopening from its COVID-19 shutdown.`\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-health-coronavirus-trump.html?searchResultPosition=9
 
-**How the Pandemic Splintered the Appalachian Trail**\
-`The coronavirus scuttled plans and forced officials to ask people to get out of the woods. Of the thousands who hoped to hike the trail this year, only a few hundred remain.`\
-https://nytimes.com/2020/05/21/us/appalachian-trail-coronavirus.html?searchResultPosition=10
+**Holy Cow! Despite Closed Borders, Argentina to Fly in Rabbis to Certify Kosher Meat**\
+`Argentina, which has enforced one of the world's toughest travel bans against the coronavirus, plans to help charter a private flight to bring in rabbis from Israel to certify meat at the country's packing plants for kosher markets around the world.`\
+https://nytimes.com/reuters/2020/05/21/world/middleeast/21reuters-health-coronavirus-argentina-meat.html?searchResultPosition=10
 
