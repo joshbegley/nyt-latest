@@ -1,20 +1,20 @@
-**Brazil Retail Tycoon Diniz Says Local Supermarkets Were Fast to Adjust to COVID-19**\
-`Brazilian retail veteran and board member of Carrefour SA, Abílio Diniz, said on Thursday that Brazil has been faster than some European countries to adopt new protocols to cope with the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-healthcare-coronavirus-abras-abilio-diniz.html?searchResultPosition=6
+**The Atlantic Lays Off 68, Citing ‘a Bracing Decline in Advertising’**\
+`Despite the addition of 90,000 subscribers since March, the venerable publication says it has fallen victim to the pandemic’s economic fallout.`\
+https://nytimes.com/2020/05/21/business/atlantic-layoffs-media-coronavirus.html?searchResultPosition=6
 
-**U.S. FDA Approves Parkinson's Treatment From Sunovion Pharma**\
-`The U.S. Food and Drug Administration on Thursday approved a sublingual film from Sunovion Pharmaceuticals Inc, a unit of Japan-based Sumitomo Dainippon, for the treatment of "off" episodes in patients with Parkinson's disease, according to a label published by the agency.`\
-https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-sumitomo-dainippon-fda.html?searchResultPosition=7
+**Third Suspect Charged With Murder of Georgia Unarmed Black Jogger**\
+`A third suspect has been charged with felony murder in the shooting death of an unarmed black man killed while jogging through a Georgia neighborhood, the Georgia Bureau of Investigation (GBI) said Thursday.`\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-usa-shooting-georgia.html?searchResultPosition=7
 
-**Feds: Man Lied to Try to Get $20M in Federal Coronavirus Aid**\
-`A Chinese man who tried to get $20 million in federal aid for distressed businesses affected by the coronavirus created bogus businesses and falsely claimed he was trying to procure COVID-19 tests and personal protective equipment in an official capacity for New York state, authorities said Thursday.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-covid-aid-arrest.html?searchResultPosition=8
+**Man Charged in Son's Death After Police Chase, Crash**\
+`An Alabama man has been charged in the death of his 15-year-old son, who died in a car crash after the man led officers and a reality television crew on a high speed chase.`\
+https://nytimes.com/aponline/2020/05/21/us/ap-us-police-chase-reality-tv.html?searchResultPosition=8
 
-**Man Who Filmed Arbery Shooting Video Charged in His Slaying**\
-`The Georgia man who filmed cellphone video of Ahmaud Arbery's fatal shooting was arrested Thursday and charged with murder in his death. `\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-georgia-chase-deadly-shooting.html?searchResultPosition=9
+**Third Man Charged With Murder in Ahmaud Arbery’s Death**\
+`The Georgia Bureau of Investigation arrested the man who filmed the fatal encounter in a South Georgia neighborhood.`\
+https://nytimes.com/2020/05/21/us/william-bryan-arrest-ahmaud-arbery.html?searchResultPosition=9
 
-**Michigan, Testing, Summer Books: Your Thursday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/05/21/briefing/michigan-testing-summer-books.html?searchResultPosition=10
+**An Invitation to Share Ideas: How Will You Be Teaching Election 2020?**\
+`As we use the summer to plan our full calendar of election-related lesson plans, professional development webinars, and student challenges and activities, we want to hear from you.`\
+https://nytimes.com/2020/05/21/learning/an-invitation-to-share-ideas-how-will-you-be-teaching-election-2020.html?searchResultPosition=10
 
