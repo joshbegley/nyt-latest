@@ -1,20 +1,20 @@
-**Exclusive: Irish Budget Deficit Could Top 10% of GDP-Finance Minister**\
-`Ireland could post a wider budget deficit this year than its worst-case scenario of 10% of GDP, even if it fully succeeds in reopening the economy, Finance Minister Paschal Donohoe told Reuters on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-ireland-exclusive.html?searchResultPosition=6
+**What Is New York Without New York Bars?**\
+`I miss promise the night offers. Liquor bottles standing sentry behind the bartender. The endless possibility in conversations overheard, lives intersecting.`\
+https://nytimes.com/2020/05/21/nyregion/nyc-bars-coronavirus.html?searchResultPosition=6
 
-**U.S. Says Reached Consensus With Sudan on 'Contours' of Future Claims Agreement**\
-`The United States and Sudan have reached a common understanding on the 'contours' of a future bilateral claims agreement linked to the 1998 al Qaeda bombings of U.S. embassies in Kenya and Tanzania, U.S. State Department's top diplomat for Africa said on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/world/africa/21reuters-usa-sudan-claims.html?searchResultPosition=7
+**Film: 'Roe' Plaintiff Says Her Anti-Abortion Switch Was Act**\
+`Norma McCorvey loved the limelight. Better known as “Jane Roe,” her story was at the center of the 1973 Supreme Court case Roe v. Wade that legalized abortion nationwide. At first she was an abortion rights advocate, but, in a twist, she became a born-again Christian in 1995 and switched sides.`\
+https://nytimes.com/aponline/2020/05/21/us/politics/ap-us-jane-roe-documentary.html?searchResultPosition=7
 
-**SelectQuote Shares Surge Nearly 40% in U.S. Market Debut**\
-`Shares of SelectQuote Inc jumped as much as 40% in their U.S. market debut on Thursday, giving the insurance policy comparison website a market valuation of over $4 billion.`\
-https://nytimes.com/reuters/2020/05/21/technology/21reuters-selectquote-ins-ipo.html?searchResultPosition=8
+**‘Horrified’ and ‘Ashamed’: Volkswagen Apologizes for Ad**\
+`The German car company withdrew an online ad that attracted criticism for its racist images.`\
+https://nytimes.com/2020/05/21/business/volkswagen-ad.html?searchResultPosition=8
 
-**Libyan Official: Tripoli Forces Seize Another Key Town**\
-`Forces allied with Libya’s U.N.-supported government in Tripoli said on Thursday that they have wrestled another key town from their rivals who have been trying to capture the Libyan capital for over a year.`\
-https://nytimes.com/aponline/2020/05/21/world/middleeast/ap-ml-libya.html?searchResultPosition=9
+**Rare Child Syndrome Linked to COVID-19 Now in 13 Countries: New York Governor**\
+`The number of countries that have reported cases of a rare inflammatory syndrome linked to COVID-19 and impacting children has nearly doubled in the past week to 13, New York Governor Andrew Cuomo told a daily briefing on Thursday.`\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-usa-new-york.html?searchResultPosition=9
 
-**Southwest Will Add More Flights to Meet Extra Demand Through July**\
-`Southwest Airlines Co will continue to limit bookings on its flights to allow for social distancing through at least July, CEO Gary Kelly told shareholders on Thursday, saying the airline would add more flights to meet any extra demand.`\
-https://nytimes.com/reuters/2020/05/21/business/21reuters-southwest-agm.html?searchResultPosition=10
+**Italy's Daily Coronavirus Death Toll and New Cases Broadly Stable**\
+`Italy recorded 156 new deaths from the COVID-19 epidemic on Thursday, against 161 the day before, the Civil Protection Agency said, while the daily tally of new cases also declined slightly to 642 from 665 on Wednesday.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-italy-tally.html?searchResultPosition=10
 
