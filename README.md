@@ -1,20 +1,20 @@
-**In Stunning Reversal, Turkey Emerges as Libya Kingmaker**\
-`With a succession of quick victories, Turkish-supported forces in Libya have rolled back the gains of a would-be strongman whose allies, Russia and the United Arab Emirates, now face tough choices.`\
-https://nytimes.com/2020/05/21/world/middleeast/libya-turkey-russia-hifter.html?searchResultPosition=6
+**Prominent Scientists Denounce End to Coronavirus Grant**\
+`A group of 77 Nobel laureates wants the U.S. government to review a grant cancellation for research in China directly related to preventing pandemics.`\
+https://nytimes.com/2020/05/21/health/wuhan-coronavirus-laboratory.html?searchResultPosition=6
 
-**Brazil Suffers Record 1,188 Daily Coronavirus Deaths**\
-`Brazil registered a record of 1,188 daily coronavirus deaths on Thursday, with more than 20,000 total fatalities from the coronavirus outbreak, the Health Ministry said. `\
-https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-health-coronavirus-brazil-casualties.html?searchResultPosition=7
+**EasyJet Board Looks Set to Win Latest Battle With Stelios**\
+`EasyJet's board looks poised to win a shareholder vote on Friday and deal a blow to its founder and long-term critic over the British low-cost airline's plan to stick with a $5.5 billion plane order. `\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-health-coronavirus-easyjet.html?searchResultPosition=7
 
-**IMF Reaches Staff Agreement for $5 Billion Ukraine Financing**\
-`The International Monetary Fund said it has reached a staff-level agreement with Ukraine for a new $5 billion, 18-month Stand-By Arrangement to help the Eastern European country address the economic shock caused by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-imf-ukraine.html?searchResultPosition=8
+**First Families Pay Tribute to Longtime White House Butler**\
+`Tributes from former first families rolled in Thursday in response to the news that a man who was a fixture in the White House who served 11 presidents had died at the age of 91 after contracting COVID-19. `\
+https://nytimes.com/aponline/2020/05/21/us/politics/ap-us-virus-outbreak-white-house-butler.html?searchResultPosition=8
 
-**Iconic San Francisco Gay Bar to Shutter in Pandemic Fallout**\
-`One of the nation’s most celebrated gay bars is being forced from its home amid the financial fallout of the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-iconic-gay-bar-closure.html?searchResultPosition=9
+**The First Invasion of America**\
+`And the cultural earthquake it’s unleashing.`\
+https://nytimes.com/2020/05/21/opinion/us-coronavirus-history.html?searchResultPosition=9
 
-**Pompeo Quietly Visits Conservative Donors and Political Figures on Official Trips**\
-`The meetings, often kept off his public schedule, have taken place as Mike Pompeo nurtures plans for a presidential bid in 2024 and as he considered a run for the Senate from Kansas.`\
-https://nytimes.com/2020/05/21/us/politics/mike-pompeo-inspector-general.html?searchResultPosition=10
+**Tech Is a Citadel. Del Seymour Built a Drawbridge.**\
+`A former drug dealer whose nonprofit helped transform the Tenderloin district joins the front lines of San Francisco’s coronavirus response.`\
+https://nytimes.com/2020/05/21/style/del-seymour-tenderloin-san-francisco-tours-coronavirus.html?searchResultPosition=10
 
