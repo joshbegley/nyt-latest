@@ -1,24 +1,24 @@
-**Trump to Tour Ford's Ventilator Assembly Plant Near Detroit**\
-`A day after threatening to withhold funds over Michigan's mail-in ballot effort, President Donald Trump was set to visit the electoral battleground Thursday to learn how the medical breathing machines governors begged for during the height of the coronavirus pandemic are made.`\
-https://nytimes.com/aponline/2020/05/21/business/bc-us-virus-outbreak-trump.html?searchResultPosition=5
+**Vietnam Jails Ex-Deputy Defence Minister Over Land Scandal**\
+`A military court in Vietnam on Thursday sentenced a former deputy defence minister accused of allowing three plots of land in Ho Chi Minh City to be illegally transferred to private investors from the navy to four years in prison.`\
+https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-vietnam-security-trial.html?searchResultPosition=5
 
-**Remember Tony Hawk’s 900? Here’s an 11-Year-Old Sticking a 1080**\
-`That’s three full spins before landing back on the halfpipe for Gui Khury.`\
-https://nytimes.com/2020/05/21/sports/1080-skateboarder-gui-khury.html?searchResultPosition=6
+**A Crisis That Has Blunted the Euro's Global Profile**\
+`The coronavirus crisis may have dealt a lethal blow to the idea that the euro could one day replace the dollar as the world's preferred currency, by exposing euro zone frailties and cementing the U.S. Fed's role as global lender of last resort.`\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-global-euro-dollar-analysis.html?searchResultPosition=6
 
-**The Most Popular Properties of April**\
-`The most popular real estate listings of April are a mixed bag of commercial and residential properties.`\
-https://nytimes.com/2020/05/21/realestate/the-most-popular-properties-of-april.html?searchResultPosition=7
+**Lori Loughlin, Husband to Plead Guilty in College Admissions Scandal**\
+`Actress Lori Loughlin and her husband, fashion designer Mossimo Giannulli, have agreed to plead guilty to conspiracy charges for trying to fraudulently win their children's admission to the University of Southern California, the U.S. Department of Justice said on Thursday.`\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-usa-education-cheating.html?searchResultPosition=7
 
-**Loughlin, Giannulli to Serve Prison Time for College Scam**\
-`Actress Lori Loughlin and her fashion designer husband, Mossimo Giannulli, have agreed to plead guilty to charges in the college admissions bribery case and serve prison time, according to court papers filed Thursday.`\
-https://nytimes.com/aponline/2020/05/21/sports/ap-us-college-admissions-bribery.html?searchResultPosition=8
+**Former Trump Lawyer Cohen Leaves Prison Early Due to Coronavirus: Source**\
+`Michael Cohen, the former personal attorney to U.S. President Donald Trump, was released from prison on Thursday due to concerns that he could be exposed to coronavirus while in prison, according to a source familiar with the case.`\
+https://nytimes.com/reuters/2020/05/21/us/politics/21reuters-usa-trump-cohen.html?searchResultPosition=8
 
-**Gunman Stopped at Texas Naval Base, Officials Say**\
-`A spokeswoman for the Naval Air Station Corpus Christi said the gunman was “neutralized.” A member of the base’s security force was injured, the Navy said.`\
-https://nytimes.com/2020/05/21/us/nas-corpus-christi-shooting.html?searchResultPosition=9
+**Starbucks Recoups Nearly Two-Thirds of Comparable U.S. Sales as Stores Reopen**\
+`Starbucks Corp said on Thursday it had regained nearly two-thirds of its comparable U.S. store sales from the prior year, as it reopened stores and modified operations due to the coronavirus-related restrictions.`\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-health-coronvirus-starbucks.html?searchResultPosition=9
 
-**Polish Govt Plans to Hold Presidential Election June 28**\
-`Poland's prime minister said Thursday that his government is aiming for June 28 as the date of a presidential election that was postponed due to the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/05/21/world/europe/ap-eu-poland-politics.html?searchResultPosition=10
+**U.S. Grants Royalty Relief to Hard-Hit Oil, Gas Drillers**\
+`The Trump administration has granted royalty relief to several drilling companies producing oil and gas on federal lands in recent weeks, according to a government database, as the industry seeks help weathering low energy prices.`\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-global-oil-usa-drilling.html?searchResultPosition=10
 
