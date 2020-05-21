@@ -14,7 +14,7 @@ https://nytimes.com/aponline/2020/05/21/world/europe/ap-virus-outbreak-russia-di
 `A tornado ripped through several villages on Indonesia’s Sumatra island, killing at least two people, damaging hundreds of homes, and fatally knocking over a cow, a disaster official said Thursday.`\
 https://nytimes.com/aponline/2020/05/21/world/asia/ap-as-indonesia-tornado.html?searchResultPosition=8
 
-**UK Says Dealing With Technical Issues of Track and Trace App-Minister**\
+**UK Says COVID Track and Trace System Will Be Ready Despite App Issues**\
 `Britain is dealing with technical issues of its track and trace app that it hopes will help it keep the novel coronavirus outbreak under control, but will use traditional tracking means until it is rolled out, the security minister said on Wednesday.`\
 https://nytimes.com/reuters/2020/05/21/technology/21reuters-health-coronavirus-britain.html?searchResultPosition=9
 
