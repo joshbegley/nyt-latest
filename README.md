@@ -1,24 +1,24 @@
-**U.S. Returns Migrant Children Despite Risks Worsened by Coronavirus: UNICEF**\
-`The United States has returned at least 1,000 unaccompanied migrant children to Mexico, El Salvador, Guatemala and Honduras since early March despite risks of violence and discrimination that have worsened because of the coronavirus pandemic, the United Nations children's agency UNICEF said on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-health-coronavirus-usa-mexico.html?searchResultPosition=5
+**Factbox: Second Time Likely the Charm for Trump's Divisive Intelligence Pick**\
+`The Republican-controlled U.S. Senate was expected to confirm U.S. Representative John Ratcliffe as director of national intelligence on Thursday over Democratic objections the second time President Donald Trump tapped him for the position.`\
+https://nytimes.com/reuters/2020/05/21/us/politics/21reuters-usa-trump-intelligence-factbox.html?searchResultPosition=5
 
-**Five Art Books to Read This Summer**\
-`As the art world mulls whether a return to “normalcy” should be its goal, publishers mine the archives of artists who found their own counterpaths.`\
-https://nytimes.com/2020/05/21/arts/design/art-books-to-read-this-summer-virus.html?searchResultPosition=6
+**NY Fed's Williams Says It's Hard to Know What Shape U.S. Economic Recovery Will Take**\
+`The U.S. unemployment rate is likely to get worse before it gets better, and it is difficult to know what the economic recovery will look like, New York Federal Reserve Bank President John Williams said Thursday. `\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-usa-fed-williams.html?searchResultPosition=6
 
-**A Season to Celebrate Asian-American Theater Is Lost to Pandemic**\
-`Briefly this spring New York theaters featured a stunning array of plays by writers of Asian descent. The scripts showed diversity and adventurous experimentation.`\
-https://nytimes.com/2020/05/21/theater/asian-american-playwrights.html?searchResultPosition=7
+**Retailers Reopening More Stores, Tourism Expanding**\
+`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Thursday related to national and global response, the work place and the spread of the virus.`\
+https://nytimes.com/aponline/2020/05/21/business/ap-virus-outbreak-business-fallout.html?searchResultPosition=7
 
-**China Parliament's Annual Session to Last Seven Days, End May 28**\
-`The annual session of China's parliament will last for seven days and end on May 28, Zhang Yesui, the spokesman for the legislature, said on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-china-parliament-dates.html?searchResultPosition=8
+**Yield on UK Five-Year Government Bonds Falls to New Record Low**\
+`The yield on five-year British government bonds fell to a record low just above zero on Thursday as investors priced in the possibility of negative interest rates by the Bank of England.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-britain-bonds-5year.html?searchResultPosition=8
 
-**W3 Injured in Mall Shooting in Arizona, Officials Say**\
-`The gunfire erupted at the Westgate Entertainment District, an outdoor shopping center that had recently reopened, the authorities said.`\
-https://nytimes.com/2020/05/21/us/westgate-mall-shooting-arizona.html?searchResultPosition=9
+**Austria Plans Heavy Virus Testing of Hotel Staff to Reassure Tourists**\
+`Austria plans a hefty expansion of its coronavirus testing just to screen hotel staff, in the hope of luring Germans and other tourists this summer and banishing the uncomfortable memory of a massive outbreak at a fashionable ski resort.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-austria-tourism.html?searchResultPosition=9
 
-**Trump to Withdraw From ‘Open Skies’ Arms Control Treaty**\
-`Mr. Trump’s decision, the third major retreat from arms control agreements, will be viewed as evidence that he also plans an exit from the last major arms treaty with Russia: New START.`\
-https://nytimes.com/2020/05/21/us/politics/trump-open-skies-treaty-arms-control.html?searchResultPosition=10
+**U.S. Existing Home Sales Post Largest Decline in Nearly 10 Years**\
+`U.S. home sales logged their biggest drop in nearly 10 years in April as the novel coronavirus pandemic upended the labor market and broader economy, undercutting demand for housing.`\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-usa-economy-housing.html?searchResultPosition=10
 
