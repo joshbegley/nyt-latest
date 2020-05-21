@@ -1,20 +1,20 @@
+**Fed's Bostic: Banks Should Be Preserving as Much Capital as Possible-CNBC**\
+`U.S. banks should be preserving as much capital as they possibly can amid the coronavirus outbreak and should perhaps decide against dividend payments, Atlanta Federal Reserve Bank President Raphael Bostic said on Thursday.`\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-fed-bostic.html?searchResultPosition=6
+
+**U.S. Prepared to Spend Russia, China 'Into Oblivion' to Win Nuclear Arms Race: U.S. Envoy**\
+`U.S. President Donald Trump's arms control negotiator on Thursday said the United States is prepared to spend Russia and China "into oblivion" in order to win a new nuclear arms race.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-usa-armscontrol.html?searchResultPosition=7
+
+**Busch and Elliott Incident Could Spark New NASCAR Rivalry**\
+`Kyle Busch is NASCAR's reigning Cup champion and the resident villain of the series. Chase Elliott has been voted most popular driver the last two years and is quickly building a loyal and rabid fan base. `\
+https://nytimes.com/aponline/2020/05/21/sports/ap-car-nascar-next-feud.html?searchResultPosition=8
+
+**Six: Impasse**\
+`An interview with PewDiePie, as he comes to grips with his influence.`\
+https://nytimes.com/2020/05/21/podcasts/rabbit-hole-PewDiePie-youtube-virus.html?searchResultPosition=9
+
 **Bank of Canada Governor: We're in an Era Where Interest Rates Will Probably Stay Low**\
 `Bank of Canada Governor Stephen Poloz on Thursday said the world was in an era where interest rates were probably going to stay low and would not go back to where they were 20 or 30 years ago.`\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-bank-canada-governor.html?searchResultPosition=6
-
-**GM to Restart Part of Its Plant in Silao, Mexico on Thursday**\
-`General Motors Co will restart its eight-speed transmission line at its plant in Silao in Mexico's Guanjuato state on Thursday, according to a company message sent to workers.`\
-https://nytimes.com/reuters/2020/05/21/business/21reuters-gm-mexico.html?searchResultPosition=7
-
-**Cubs Institute Pay Cuts, Pirates Announce Furloughs**\
-`The Chicago Cubs and Pittsburgh Pirates are trimming payroll while they await word on the fate of the Major League Baseball season.`\
-https://nytimes.com/aponline/2020/05/21/sports/baseball/ap-bbo-mlb-staff-cuts.html?searchResultPosition=8
-
-**Dark-Money Attack Ad Pastes Swastikas on House Candidate**\
-`Who is afraid of Valerie Plame?`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-election-2020-house-new-mexico.html?searchResultPosition=9
-
-**Abdullah al-Hamid, Saudi Dissident, Dies in Detention at 69**\
-`A tireless advocate for human rights and a thorn in the side of the monarchy, he spoke out for democratic reforms and was imprisoned seven times.`\
-https://nytimes.com/2020/05/21/world/middleeast/abdullah-al-hamid-saudi-dissident-dies-in-detention-at-69.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/21/us/21reuters-bank-canada-governor.html?searchResultPosition=10
 
