@@ -1,24 +1,24 @@
-**Factbox: Second Time Likely the Charm for Trump's Divisive Intelligence Pick**\
-`The Republican-controlled U.S. Senate was expected to confirm U.S. Representative John Ratcliffe as director of national intelligence on Thursday over Democratic objections the second time President Donald Trump tapped him for the position.`\
-https://nytimes.com/reuters/2020/05/21/us/politics/21reuters-usa-trump-intelligence-factbox.html?searchResultPosition=5
+**India Says China Hindered Indian Border Patrols in Latest Flare-Up**\
+`India said on Thursday that Chinese troops had stood in the way of regular Indian patrols along their disputed border in flare-ups at two locations this month and called for stability on the front line.`\
+https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-india-china.html?searchResultPosition=5
 
-**NY Fed's Williams Says It's Hard to Know What Shape U.S. Economic Recovery Will Take**\
-`The U.S. unemployment rate is likely to get worse before it gets better, and it is difficult to know what the economic recovery will look like, New York Federal Reserve Bank President John Williams said Thursday. `\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-usa-fed-williams.html?searchResultPosition=6
+**U.S. Says Pulling Out of Open Skies Treaty, Citing Russian Violations**\
+`The United States announced its intention to withdraw from the 35-nation Open Skies treaty that permits unarmed aerial surveillance flights over participating countries, saying Russia has repeatedly violated the pact's terms.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-usa-russia-openskies.html?searchResultPosition=6
 
-**Retailers Reopening More Stores, Tourism Expanding**\
-`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Thursday related to national and global response, the work place and the spread of the virus.`\
-https://nytimes.com/aponline/2020/05/21/business/ap-virus-outbreak-business-fallout.html?searchResultPosition=7
+**China Says Safeguarding National Security Serves Hong Kong's Interests**\
+`Safeguarding national security serves the fundamental interests of all Chinese and Hong Kong, the spokesman for China's parliament said on Thursday.`\
+https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-china-parliament-hongkong-lawmaking-security.html?searchResultPosition=7
 
-**Yield on UK Five-Year Government Bonds Falls to New Record Low**\
-`The yield on five-year British government bonds fell to a record low just above zero on Thursday as investors priced in the possibility of negative interest rates by the Bank of England.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-britain-bonds-5year.html?searchResultPosition=8
+**Charlie Brooker Saw All This Coming**\
+`The “Black Mirror” creator, who knows something about dystopias, discusses the cognitive dissonance of this “boring apocalypse” and the continued importance of satire.`\
+https://nytimes.com/2020/05/21/arts/television/charlie-brooker-coronavirus.html?searchResultPosition=8
 
-**Austria Plans Heavy Virus Testing of Hotel Staff to Reassure Tourists**\
-`Austria plans a hefty expansion of its coronavirus testing just to screen hotel staff, in the hope of luring Germans and other tourists this summer and banishing the uncomfortable memory of a massive outbreak at a fashionable ski resort.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-austria-tourism.html?searchResultPosition=9
+**Palestinians Shun CIA After Declaring End to Security Coordination With U.S. and Israel**\
+`The Palestinians have suspended contacts with the CIA after announcing an end to security coordination with Israel and the United States in protest at Israeli proposals to annex territory in the West Bank, a Palestinian official said on Thursday.`\
+https://nytimes.com/reuters/2020/05/21/world/middleeast/21reuters-israel-palestinians-usa.html?searchResultPosition=9
 
-**U.S. Existing Home Sales Post Largest Decline in Nearly 10 Years**\
-`U.S. home sales logged their biggest drop in nearly 10 years in April as the novel coronavirus pandemic upended the labor market and broader economy, undercutting demand for housing.`\
-https://nytimes.com/reuters/2020/05/21/business/21reuters-usa-economy-housing.html?searchResultPosition=10
+**How to Protect Kids’ Ears From Constant Headphone Use**\
+`Volume is not the only measure to consider. Duration also contributes to damage to our kids’ ears.`\
+https://nytimes.com/2020/05/21/parenting/children-headphones-hearing-loss.html?searchResultPosition=10
 
