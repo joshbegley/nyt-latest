@@ -1,20 +1,20 @@
-**US Begins Crackdown on Unvetted Virus Blood Tests**\
-`U.S. regulators are moving ahead with a crackdown on scores of antibody tests for the coronavirus that have not yet been shown to work.`\
-https://nytimes.com/aponline/2020/05/21/us/politics/ap-us-med-virus-outbreak-antibody-tests.html?searchResultPosition=6
+**Noem: Tribes' Checkpoints Dispute Not Just About Coronavirus**\
+`South Dakota Gov.`\
+https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-south-dakota-1st-ld-writethru.html?searchResultPosition=6
 
-**Judgment on Key Aspect of Huawei CFO's Extradition Trial in Canada Due Next Wednesday**\
-`A decision on a key legal aspect of the trial over whether Huawei Technologies Chief Financial Officer Meng Wanzhou can be extradited to the United States from Canada will be announced next Wednesday, the British Columbia Supreme Court said on Thursday. `\
-https://nytimes.com/reuters/2020/05/21/business/21reuters-usa-huawei-tech-canada.html?searchResultPosition=7
+**In Reversal, White House Tells CDC to Post Church Guidance**\
+`After refusing for weeks to release reopening guidance for churches, the Trump administration on Thursday abruptly changed course — with the president saying he had instructed health officials to put the advice out.`\
+https://nytimes.com/aponline/2020/05/21/health/ap-us-med-virus-outbreak-churches-reopening.html?searchResultPosition=7
 
-**Luminaries Lost: A Look at Some of the Artists Lost to Virus**\
-`A saxophonist whose sounds helped birth international dance music.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-entertainment-the-toll-part-2-.html?searchResultPosition=8
+**'Hundreds of Millions' in Fraudulent Jobless Benefits Paid**\
+`Impostors have used the stolen information of tens of thousands of people in the state to fraudulently receive hundreds of millions of dollars in unemployment benefits, the head of Washington’s Employment Security Department said Thursday.`\
+https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-washington-unemployment-benefits-1st-ld-wri.html?searchResultPosition=8
 
-**Trump Says May Head Outdoors for Campaign Rallies Amid Pandemic**\
-`U.S. President Donald Trump, eager to get back on the road and make his case for re-election on Nov. 3, said on Thursday he may have to stage campaign rallies at outdoor sites until the coronavirus pandemic settles down enough for traditional events.`\
-https://nytimes.com/reuters/2020/05/21/us/politics/21reuters-usa-election-trump.html?searchResultPosition=9
+**Brazil Unemployment Insurance Claims in First Two Weeks of May Jump 76.2%: Economy Ministry**\
+`Formal unemployment insurance claims in Brazil in the first two weeks of May rose to 504,313, the Economy Ministry said on Thursday, a rise of 76.2% from the same period a year earlier and a clear sign of the hit to jobs from the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-brazil-economy-unemployment.html?searchResultPosition=9
 
-**Salvadoran Leader to File Complaint Against Congress, Courts**\
-`President Nayib Bukele is threatening to file a complaint with an international tribunal against El Salvador's other two branches of government in a fight over his harsh coronavirus confinement policies.`\
-https://nytimes.com/aponline/2020/05/21/world/americas/ap-lt-virus-outbreak-el-salvador.html?searchResultPosition=10
+**China’s Hong Kong Crackdown Could Put Trump in an Unwelcome Spot**\
+`A proposed new security law has senators calling for sanctions. But the president is reluctant to jeopardize his ties to President Xi Jinping.`\
+https://nytimes.com/2020/05/21/us/politics/trump-china-hong-kong.html?searchResultPosition=10
 
