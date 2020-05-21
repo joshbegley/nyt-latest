@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-nursing-homes.ht
 `India said on Thursday that Chinese troops had stood in the way of regular Indian patrols along their disputed border in flare-ups at two locations this month and called for stability on the front line.`\
 https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-india-china.html?searchResultPosition=9
 
-**US Says Pulling Out of Open Skies Treaty, Citing Russian Violations**\
+**U.S. Says Pulling Out of Open Skies Treaty, Citing Russian Violations**\
 `The United States announced its intention to withdraw from the 35-nation Open Skies treaty that permits unarmed aerial surveillance flights over participating countries, saying Russia has repeatedly violated the pact's terms.`\
 https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-usa-russia-openskies.html?searchResultPosition=10
 
