@@ -1,20 +1,20 @@
-**Game On? Little League Offers 'Best Practices' for Return**\
-`Little League is offering youth baseball organizations a pathway forward as they eye a restart amid the COVID-19 pandemic.`\
-https://nytimes.com/aponline/2020/05/21/sports/ap-bby-little-league-best-practices.html?searchResultPosition=6
+**N.Y. Archdiocese Unveils Plan for Phased Worship Reopening**\
+`The Archdiocese of New York on Thursday released a plan for a phased-in reopening during the coronavirus pandemic, using protocols developed with the advice of medical professionals to help safeguard worshipers.`\
+https://nytimes.com/aponline/2020/05/21/us/ap-virus-outbreak-ny-catholics.html?searchResultPosition=6
 
-**A Case for Cooperation Between Machines and Humans**\
-`A computer scientist argues that the quest for fully automated robots is misguided, perhaps even dangerous. His decades of warnings are gaining more attention.`\
-https://nytimes.com/2020/05/21/technology/ben-shneiderman-automation-humans.html?searchResultPosition=7
+**Clinton and Patterson Again Team Up for Political Thriller**\
+`After co-writing the best-selling adult novel of 2018, Bill Clinton and James Patterson have teamed up for another political thriller. `\
+https://nytimes.com/aponline/2020/05/21/us/ap-us-books-clinton-patterson.html?searchResultPosition=7
 
-**Cuba’s Top Diplomat for US Relations Says Ties at New Low**\
-`Cuba’s top diplomat in charge of relations with the United States said Thursday relations have sunk to a new low, and potentially could sink even lower with the appointment of Florida Sen. Marco Rubio as acting chairman of the Senate Intelligence Committee.`\
-https://nytimes.com/aponline/2020/05/21/world/americas/ap-cb-cuba-us.html?searchResultPosition=8
+**University of California Considers Phasing Out Standardized Tests**\
+`Regents are voting on a proposal to make the SAT and ACT optional for in-state applicants until 2024, and then eliminate them, a decision that would have major implications for college admissions.`\
+https://nytimes.com/2020/05/21/us/university-california-sat-act.html?searchResultPosition=8
 
-**How to Refresh Your Home With Minimal Fuss**\
-`From reconsidering your lighting to upgrading your bedding, suggestions for making the space you’re isolating in feel new again.`\
-https://nytimes.com/2020/05/21/t-magazine/redecorate-home-coronavirus.html?searchResultPosition=9
+**U.S. CDC Reports 1,551,095 Coronavirus Cases, 93,061 Deaths**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Thursday reported 1,551,095 cases of the new coronavirus, an increase of 22,860 cases from its previous count, and said that the number of deaths had risen by 1,397 to 93,061.`\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-usa-cdc.html?searchResultPosition=9
 
-**Yearly Lockdown Would Be Good for Planet, Says Tsitsipas**\
-`The coronavirus pandemic has stalled young Greek Stefanos Tsitsipas's burgeoning career but he remains philosophical about the current tennis shutdown.`\
-https://nytimes.com/reuters/2020/05/21/sports/tennis/21reuters-health-coronavirus-tennis-tsitsipas.html?searchResultPosition=10
+**Americans Splurge at Walmart, Target as Stimulus Checks Kick In**\
+`The Trump Administration's coronavirus relief payment provided a fillip to sales of major retailers in April as millions of Americans used the money to buy everything from video games to sewing machines even as the country struggles with record job losses.`\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-usa-retail-results.html?searchResultPosition=10
 
