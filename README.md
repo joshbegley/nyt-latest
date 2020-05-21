@@ -1,20 +1,20 @@
-**Fed Chair Warns This Is a ‘Downturn Without Modern Precedent’**\
-`It’s impossible to guess what the trajectory for the economy will look like, a series of central bankers warned. That makes nimbleness key.`\
-https://nytimes.com/2020/05/21/business/economy/fed-chair-warns-this-is-a-downturn-without-modern-precedent.html?searchResultPosition=6
+**Texas Mayor Says Women Can't Lead Prayer at Council Meetings**\
+`The mayor of a small Dallas suburb told a fellow City Council member in an email that women shouldn’t be allowed to lead prayer at public meetings because it goes against the Bible.`\
+https://nytimes.com/aponline/2020/05/21/us/ap-us-texas-council-prayers.html?searchResultPosition=6
 
-**Russia's April Industrial Output Fell 6.6% Year-On-Year as Lockdown Took Hold**\
-`Russia's industrial output shrank 6.6% in April, the first full month of a lockdown due to COVID-19, driven by a drop in the manufacturing sector, data showed on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-russia-economy.html?searchResultPosition=7
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2020/05/21/books/review/8-new-books-to-read-this-week.html?searchResultPosition=7
 
-**As Hunger Spreads Under Lockdown, Guatemalans and Salvadorans Raise White Flag**\
-`Strict coronavirus lockdowns in Guatemala and El Salvador have so battered local economies that hundreds of families are flying white flags outside their homes or waving them in the street: not in surrender, but to seek food and assistance.`\
-https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-health-coronavirus-guatemala-elsalvador.html?searchResultPosition=8
+**Lucky Peterson, a Bluesman Since He Was a Boy, Dies at 55**\
+`He cut a record at 5 and went on to a steady if somewhat under-the-radar career as a backing musician and solo artist.`\
+https://nytimes.com/2020/05/21/arts/music/lucky-peterson-dead.html?searchResultPosition=8
 
-**US Seeking Industry Cooperation on Future Medical Supplies**\
-`U.S. officials are invoking a rarely used provision of American law that would shield companies from antitrust regulations to help the country from again running out of medical supplies in a pandemic. `\
-https://nytimes.com/aponline/2020/05/21/us/politics/ap-us-virus-outbreak-medical-supplies.html?searchResultPosition=9
+**Trump Counting on Supreme Court to Block Probes, Lawsuits**\
+`President Donald Trump won at least a temporary reprieve from the Supreme Court earlier this week in keeping secret grand jury materials from the Russia investigation away from Democratic lawmakers.`\
+https://nytimes.com/aponline/2020/05/21/us/politics/ap-us-supreme-court-trump-accountability.html?searchResultPosition=9
 
-**Police Chief Denies Racial Profiling in Controversial Video**\
-`The police chief of a South Carolina city has defended the actions of his officers who are accused of racial bias and excessive force after video of a black man being detained by officers sparked outrage.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-racial-bias-police-chief-1st-ld-writethru.html?searchResultPosition=10
+**Trump’s Inaccurate Claims on Hydroxychloroquine**\
+`The president falsely described scientific research around the malaria drug, falsely denied the existence of a federal warning against it and argued, with no evidence, that doctors were taking it.`\
+https://nytimes.com/2020/05/21/us/politics/trump-fact-check-hydroxychloroquine-coronavirus-.html?searchResultPosition=10
 
