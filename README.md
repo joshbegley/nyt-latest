@@ -1,24 +1,24 @@
+**UK PM Johnson Welcomes Dismissal of Untrue Claims of Impropriety**\
+`British Prime Minister Boris Johnson's spokesman on Thursday welcomed the dismissal of what he said were vexatious and untrue claims of impropriety over his relationship with U.S tech entrepreneur Jennifer Arcuri.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-britain-politics-johnson-watchdog-spokesman.html?searchResultPosition=5
+
+**South Korea Makes First Foreigner Arrest Over Quarantine Violation**\
+`South Korean police arrested a foreign national for violating the country's mandated 14-day quarantine rules for the first time on Thursday, amid fears of a potential second wave of the new coronavirus.`\
+https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-health-coronavirus-southkorea.html?searchResultPosition=6
+
+**PM Johnson Will Not Face Criminal Probe Over Links to U.S. Businesswoman**\
+`British Prime Minister Boris Johnson will not face criminal action following allegations of misconduct over his relationship with a U.S tech entrepreneur, the police watchdog said on Thursday.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-britain-politics-johnson-watchdog.html?searchResultPosition=7
+
+**Esports:'Despacito' Singer Fonsi Joins F1 Fast Stream in Virtual Monaco GP**\
+`Singer-songwriter Luis Fonsi, who broke all-time streaming records with his 2017 hit 'Despacito' (slowly), is joining the Formula One fast stream for a virtual Monaco Grand Prix on Sunday.`\
+https://nytimes.com/reuters/2020/05/21/arts/21reuters-health-coronavirus-f1-esports.html?searchResultPosition=8
+
+**Exclusive: Etihad Bondholders Put Airline on Notice With Debt Revamp-Sources**\
+`Owners of $1.2 billion in debt issued by Etihad and other airlines it partly owned have given the struggling Abu Dhabi carrier an ultimatum to agree to a restructuring or potentially face legal action, two sources close to the situation said.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-etihad-airways-debt-restructuring-exclusive.html?searchResultPosition=9
+
 **COVID-Era Junk Bond Deals Begin to Go Sour**\
 `Companies hard-hit by the pandemic rushed to raise debt last month, encouraged by the Federal Reserve's intervention to support the credit market. But for some of the riskier names, those bond offerings have quickly curdled. `\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-junkbonds-analysis.html?searchResultPosition=5
-
-**Bank of Israel to Hold Key Interest Rate After April Cut: Reuters Poll**\
-`The Bank of Israel is expected to leave short-term interest rates unchanged next week after a reduction last month aimed at helping the economy recover from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/21/world/middleeast/21reuters-israel-cenbank-rates-poll.html?searchResultPosition=6
-
-**Best Buy Revenue, Profit Beat Estimates as Online Sales Surge**\
-`Best Buy Co Inc's quarterly revenue and profit topped analysts' estimates on Thursday due to a surge in online sales of electronics needed for consumers to work from home.`\
-https://nytimes.com/reuters/2020/05/21/business/21reuters-best-buy-results.html?searchResultPosition=7
-
-**Macy's Warns of Up to $1 Billion Quarterly Loss Due to Lockdowns**\
-`Macy's Inc said on Thursday it could rack up operating losses of up to $1.11 billion in the first quarter, as the retailer was forced to shut stores due to COVID-19 lockdowns.`\
-https://nytimes.com/reuters/2020/05/21/business/21reuters-macy-s-outlook.html?searchResultPosition=8
-
-**Fire at Shuttered Dutch Nuclear Plant; No Radiation Risk**\
-`A fire broke out Thursday at a decommissioned nuclear power plant in the central Netherlands. An emergency services spokesman said the blaze was quickly brought under control and there was no danger of radioactive radiation.`\
-https://nytimes.com/aponline/2020/05/21/world/europe/ap-eu-netherlands-nuclear-plant-fire.html?searchResultPosition=9
-
-**U.S. Leveraged Loan Defaults at Six-Year High as Coronavirus Hits Businesses**\
-`The monthly tally of defaults in the U.S. leveraged loan market has hit a six-year high, data from Fitch Ratings showed, as companies are either missing payments or filing for bankruptcy because of the fallout from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/21/business/21reuters-usa-debt-leveraged.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-junkbonds-analysis.html?searchResultPosition=10
 
