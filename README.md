@@ -1,24 +1,24 @@
-**AP Interview: Opposition Leader Says PM Embarrassing Israel**\
-`Israel’s new opposition leader said Thursday that Benjamin Netanyahu’s upcoming corruption trial is “embarrassing” the country and that he believes the only reason the long-time prime minister is still in office is because lawmakers never imagined a scenario in which an indicted premier would not have the decency to step down himself.`\
-https://nytimes.com/aponline/2020/05/21/world/middleeast/ap-ml-israel-opposition-leader-interview.html?searchResultPosition=5
+**NY Fed's Williams Says Negative Rates Are Not a Tool Needed Now**\
+`New York Federal Reserve Bank President John Williams said negative rates would have adverse consequences for the U.S. economy and he does not view it as a tool the central bank should be using now. `\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-usa-fed-williams-rates.html?searchResultPosition=5
 
-**Hundreds Killed in South Sudan Tribal Clashes: ICRC**\
-`Hundreds of civilians, including three aid workers, were killed in a series of tribal clashes in villages in South Sudan's vast Jonglei state, the International Committee of the Red Cross (ICRC) said on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/world/africa/21reuters-southsudan-violence.html?searchResultPosition=6
+**Gone Fishing? Thrower's Olympic Dreams Capsized by Silly Fib**\
+`It makes no difference whether Mark Dry was at the fishing hole or at his parents' house on the day that all but pulverized what's left of his Olympic dreams.`\
+https://nytimes.com/aponline/2020/05/21/sports/ap-ath-doping-fish-story.html?searchResultPosition=6
 
-**Adam Scott Skipping June Tournaments, Doubts PGA Safety Plan**\
-`Adam Scott, like all PGA Tour professionals, must measure his personal risk before returning to the golf course for scheduled events. And for now, Scott's decision is to stay away from tournaments.`\
-https://nytimes.com/reuters/2020/05/21/sports/golf/21reuters-golf-pga-scott.html?searchResultPosition=7
+**Susan Rothenberg, Acclaimed Figurative Painter, Dies at 75**\
+`Her raw renditions of horses and other figures breathed new life into painting when the genre was under siege in 1970s SoHo.`\
+https://nytimes.com/2020/05/21/arts/susan-rothenberg-acclaimed-figurative-painter-dies-at-75.html?searchResultPosition=7
 
-**Boy, 6, Cracks Open Robbery Case by Reeling in Sunken Safe**\
-`A 6-year-old boy helped crack open a nearly decade-old robbery case when he reeled in a locked safe from the bottom of a South Carolina lake.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-odd-sunken-safe-mystery-solved.html?searchResultPosition=8
+**Report: Dolphins QB Rosen Drawing Trade Interest**\
+`Dolphins quarterback Josh Rosen is attracting interest from teams who expect the former first-round pick to be the odd man out after Miami drafted Tua Tagovailoa, NFL Network reported.`\
+https://nytimes.com/reuters/2020/05/21/sports/football/21reuters-football-nfl-mia-rosen.html?searchResultPosition=8
 
-**Furloughs Becoming Layoffs at Trump Resort in South Florida**\
-`Some furloughs at a Trump golf resort in South Florida are becoming permanent layoffs.`\
-https://nytimes.com/aponline/2020/05/21/us/bc-us-trump-hotel-layoffs.html?searchResultPosition=9
+**Spain's Daily Coronavirus Death Toll Below 50: Health Ministry**\
+`Spain's daily death toll from the novel coronavirus was 48, the Health Ministry said on Thursday, marking the first time it has dipped below 50 since March 16. `\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-spain.html?searchResultPosition=9
 
-**Myanmar Doctor Charged for Insulting Monks Over Sex Education**\
-`A Myanmar doctor who criticised conservative Buddhist monks has been charged with insulting religion, officials said on Thursday, as a debate heats up over a proposal to teach sex education at school.`\
-https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-myanmar-religion.html?searchResultPosition=10
+**Using Face Masks and Sanitizer, Couples Say ‘I Do’ in Vegas**\
+`The bride wore a white beaded dress and a white cloth face mask that said “Mrs.” in curly black letters. Her new husband, dressed in black, wore one that said “Mr.”`\
+https://nytimes.com/aponline/2020/05/21/business/ap-virus-outbreak-vegas-weddings.html?searchResultPosition=10
 
