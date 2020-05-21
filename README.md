@@ -1,24 +1,24 @@
+**Stacey Abrams Endorses Candidates in 7 US Senate Contests**\
+`Alongside discussions of her own national political ambitions, former Georgia gubernatorial nominee Stacey Abrams is wading into elections outside her home state, endorsing the campaigns of seven Democrats vying for U.S. Senate seats.`\
+https://nytimes.com/aponline/2020/05/21/us/politics/ap-us-election-2020-senate-abrams-endorsements.html?searchResultPosition=5
+
+**UK Watchdog Clears Johnson of Criminal Wrongdoing**\
+`British Prime Minister Boris Johnson will not face a criminal investigation into whether he offered special favors to an American businesswoman during his time as mayor of London.`\
+https://nytimes.com/aponline/2020/05/21/world/europe/ap-eu-britain-johnson.html?searchResultPosition=6
+
+**Greece: Police Break Up Huge Counterfeit Tobacco Factory**\
+`Police in Greece said Thursday they have seized 21 tons of illegally imported tobacco at warehouses near Athens, allegedly used to make counterfeit branded smoking products. `\
+https://nytimes.com/aponline/2020/05/21/business/bc-eu-greece-smoking-swindle.html?searchResultPosition=7
+
+**‘Joan of Arc’ Review: The Saint Is Revisited in Song**\
+`Bruno Dumont’s movie features a young actress as the saint in her later years — along with the French pop singer Christophe.`\
+https://nytimes.com/2020/05/21/movies/joan-of-arc-review.html?searchResultPosition=8
+
 **‘Smash,’ NBC’s Short-Lived Musical Drama, Eyes the Stage**\
 `Steven Spielberg and other original producers are adapting the backstage T.V. series, which theater fans continued to embrace after its brief run.`\
-https://nytimes.com/2020/05/21/theater/smash-musical-broadway.html?searchResultPosition=5
+https://nytimes.com/2020/05/21/theater/smash-musical-broadway.html?searchResultPosition=9
 
 **‘Villain’ Review: Brothers in Harm**\
 `An aging ex-con is forced into old ways in this superior crime thriller.`\
-https://nytimes.com/2020/05/21/movies/villain-review.html?searchResultPosition=6
-
-**‘Inheritance’ Review: A Rich Kid’s Estate Surprise**\
-`Lily Collins stars in this peculiar cat-and-mouse thriller.`\
-https://nytimes.com/2020/05/21/movies/inheritance-review.html?searchResultPosition=7
-
-**‘Nothing Fancy’ Review: Mexican Food Through British Eyes**\
-`This documentary is an admiring visit with Diana Kennedy, who has devoted her life to researching and cooking traditional Mexican food.`\
-https://nytimes.com/2020/05/21/movies/diana-kennedy-nothing-fancy-review.html?searchResultPosition=8
-
-**‘Lucky Grandma’ Review: Mean Streets of Chinatown**\
-`In Sasie Sealy’s darkly funny mafia thriller, the veteran actress Tsai Chin exudes cool.`\
-https://nytimes.com/2020/05/21/movies/lucky-grandma.html?searchResultPosition=9
-
-**‘Survive the Night’ Review: Droning Through a Home Invasion**\
-`As bored as Bruce Willis has looked in recent movies, you can’t expect him to muster much interest in this home invasion thriller.`\
-https://nytimes.com/2020/05/21/movies/survive-the-night-review.html?searchResultPosition=10
+https://nytimes.com/2020/05/21/movies/villain-review.html?searchResultPosition=10
 
