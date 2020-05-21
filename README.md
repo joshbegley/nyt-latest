@@ -1,20 +1,20 @@
+**Fed Chair Warns This is a ‘Downturn Without Modern Precedent’**\
+`It’s impossible to guess what the trajectory for the economy will look like, a series of central bankers warned. That makes nimbleness key.`\
+https://nytimes.com/2020/05/21/business/economy/fed-chair-warns-this-is-a-downturn-without-modern-precedent.html?searchResultPosition=6
+
+**Russia's April Industrial Output Fell 6.6% Year-On-Year as Lockdown Took Hold**\
+`Russia's industrial output shrank 6.6% in April, the first full month of a lockdown due to COVID-19, driven by a drop in the manufacturing sector, data showed on Thursday.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-russia-economy.html?searchResultPosition=7
+
+**As Hunger Spreads Under Lockdown, Guatemalans and Salvadorans Raise White Flag**\
+`Strict coronavirus lockdowns in Guatemala and El Salvador have so battered local economies that hundreds of families are flying white flags outside their homes or waving them in the street: not in surrender, but to seek food and assistance.`\
+https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-health-coronavirus-guatemala-elsalvador.html?searchResultPosition=8
+
+**US Seeking Industry Cooperation on Future Medical Supplies**\
+`U.S. officials are invoking a rarely used provision of American law that would shield companies from antitrust regulations to help the country from again running out of medical supplies in a pandemic. `\
+https://nytimes.com/aponline/2020/05/21/us/politics/ap-us-virus-outbreak-medical-supplies.html?searchResultPosition=9
+
 **Police Chief Denies Racial Profiling in Controversial Video**\
 `The police chief of a South Carolina city has defended the actions of his officers who are accused of racial bias and excessive force after video of a black man being detained by officers sparked outrage.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-racial-bias-police-chief-1st-ld-writethru.html?searchResultPosition=6
-
-**AP-NORC Poll: State and U.S. Government Virus Approval Dips**\
-`Views of how government at all levels is handling the coronavirus outbreak in the U.S. have deteriorated somewhat over the past month, as a growing minority of Americans prefer that states lift restrictions on social and economic life. `\
-https://nytimes.com/aponline/2020/05/21/us/politics/ap-us-ap-poll-virus-outbreak-glance.html?searchResultPosition=7
-
-**Measuring Brazil's Historic Selloff of U.S. Treasuries in March**\
-`Brazil sold a record $21.5 billion of U.S. Treasuries in March as it battled a stampede of foreign investors out of its markets and a subsequent plunge in the exchange rate, the latest data from the U.S. Treasury show.`\
-https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-brazil-forex-reserves-analysis.html?searchResultPosition=8
-
-**Former Florida State Lineman Accused of Striking Girlfriend**\
-`Former Florida State offensive lineman Jauan Williams, who is planning to transfer, is facing misdemeanor battery charges that he struck his then-girlfriend two years ago, allegations he vehemently denies. `\
-https://nytimes.com/aponline/2020/05/21/sports/ncaafootball/ap-fbc-florida-state-player-arrested.html?searchResultPosition=9
-
-**Trudeau: China Doesn't Understand Canadian Judicial System**\
-`Canadian Prime Minister Justin Trudeau said Thursday that China doesn’t get that Canada has an independent judicial system and reiterated that Beijing imprisoned two Canadians in retaliation for the arrest of a top Huawei executive.`\
-https://nytimes.com/aponline/2020/05/21/business/bc-cn-canada-china-huawei.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/21/us/ap-us-racial-bias-police-chief-1st-ld-writethru.html?searchResultPosition=10
 
