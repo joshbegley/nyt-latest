@@ -1,24 +1,24 @@
-**Texas Base Put on Lockdown After Reports of Shooter**\
-`A naval air station in Texas went on lockdown Thursday morning after an active shooter was reported near one of the facility's gates.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-naval-air-station-lockdown.html?searchResultPosition=5
+**Coronavirus Catastrophe Unfolding in South Yemen: Medical Charity MSF**\
+`The main coronavirus treatment centre in southern Yemen has recorded at least 68 deaths in just over two weeks, the medical charity running the site said on Thursday, more than double the toll announced by Yemeni authorities so far.`\
+https://nytimes.com/reuters/2020/05/21/world/middleeast/21reuters-health-coronavirus-yemen.html?searchResultPosition=5
 
-**Can Coney Island Survive This?**\
-`A dismal season is predicted. If there is one at all.`\
-https://nytimes.com/2020/05/21/nyregion/coronavirus-coney-island.html?searchResultPosition=6
+**The Latest: Man United Expects to Miss Out on $24 Million**\
+`The Latest on the effects of the coronavirus outbreak on sports around the world:`\
+https://nytimes.com/aponline/2020/05/21/sports/ap-sports-virus-outbreak-the-latest-1st-ld-writethru.html?searchResultPosition=6
 
-**‘Surreal’: What It’s Like to Ride a Motorcycle Through New York Right Now**\
-`Cruising down Broadway without crowds sounds like a total joy ride. Until you remember why it’s like this.`\
-https://nytimes.com/2020/05/21/nyregion/coronavirus-nyc-motorcycle.html?searchResultPosition=7
+**Chinese Government to Push Hong Kong Security Laws in Parliament: HK Government Source**\
+`China's government will put Hong Kong national security laws on the agenda of its parliamentary session that opens on Friday, a senior Hong Kong government source told Reuters.`\
+https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-china-parliament-hongkong-security.html?searchResultPosition=7
 
-**Talking California With Our Newest Correspondent**\
-`Thursday: Meet Shawn Hubler, a longtime California journalist who’s based in Sacramento. Also: The reopening of the state picks up speed.`\
-https://nytimes.com/2020/05/21/us/coronavirus-california-county-reopen.html?searchResultPosition=8
+**FINA Postpones 2020 World Swimming Championships to December 2021 Due to COVID-19**\
+`This year's World Swimming Championships in Abu Dhabi, scheduled to take place in December, have been pushed back by a year due to the COVID-19 pandemic, swimming's world governing body FINA said on Thursday.`\
+https://nytimes.com/reuters/2020/05/21/sports/21reuters-health-coronavirus-swimming.html?searchResultPosition=8
 
-**Workers Looking to Be Rehired Face ‘a Very Long Haul’**\
-`With over 38 million U.S. unemployment claims in nine weeks, there is growing concern that many jobs are never coming back.`\
-https://nytimes.com/2020/05/21/business/economy/coronavirus-unemployment-claims.html?searchResultPosition=9
+**Dining Dummies Help Cafe-Goers Keep a Fashionable Distance in Vilnius**\
+`Mannequins dressed in clown hats and couture frocks have taken up seats in restaurants in Lithuania's capital, to coax real customers back after the coronavirus lockdown and help them out with social distancing.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-lithuania-mannequins.html?searchResultPosition=9
 
-**Column: U.S. Petroleum Stocks Stabilize as Industry Adapts to Shock-Kemp**\
-`U.S. petroleum inventories show signs of stabilizing as domestic crude production and imports slow while refinery processing gradually increases from last month’s crisis lows.`\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-oil-global-kemp.html?searchResultPosition=10
+**Longtime News Executive William J. Keating Dead at 93**\
+`William J. Keating, who spent three decades as an Ohio newspaper executive after leaving Congress in the mid-1970s, has died, his family confirmed. He was 93.`\
+https://nytimes.com/aponline/2020/05/21/business/ap-us-obit-william-keating.html?searchResultPosition=10
 
