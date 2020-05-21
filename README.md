@@ -1,4 +1,4 @@
-**Fed Chair Warns This is a ‘Downturn Without Modern Precedent’**\
+**Fed Chair Warns This Is a ‘Downturn Without Modern Precedent’**\
 `It’s impossible to guess what the trajectory for the economy will look like, a series of central bankers warned. That makes nimbleness key.`\
 https://nytimes.com/2020/05/21/business/economy/fed-chair-warns-this-is-a-downturn-without-modern-precedent.html?searchResultPosition=6
 
