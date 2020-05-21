@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/05/21/us/ap-us-taming-stormwater.html?searchRe
 `When a friend of the Khan family got a job working for a New Jersey politician, family patriarch Shafqat Khan was a regular sight at the politician's office, frequently dropping by to seek help for people in need.`\
 https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-lives-lost-community-connector.html?searchResultPosition=9
 
-**Australian States Fracture Over Opening Borders for Domestic Tourism**\
+**Australian States Argue Over Opening Borders for Domestic Tourism**\
 `Australian state and territory leaders bickered on Thursday over whether to reopen internal borders, a major step to rejuvenating the country's A$80 billion ($50 billion) domestic tourism industry, as part of measures to ease coronavirus restrictions.`\
 https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-health-coronavirus-australia.html?searchResultPosition=10
 
