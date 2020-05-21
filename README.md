@@ -1,5 +1,5 @@
-**Lori Loughlin Pleads Guilty in College Admissions Scandal**\
-`The actress Lori Loughlin has pleaded guilty and agreed to serve two months in prison. Her husband, Mossimo Giannulli, a fashion designer, is expected to serve five months.`\
+**Lori Loughlin to Plead Guilty in College Admissions Scandal**\
+`The actress Lori Loughlin has agreed to plead guilty and to serve two months in prison. Her husband, Mossimo Giannulli, a fashion designer, is expected to serve five months.`\
 https://nytimes.com/2020/05/21/us/lori-loughlin-pleads-guilty.html?searchResultPosition=5
 
 **Chafing Under Lockdown, Palestinians Long for Eid Celebrations**\
