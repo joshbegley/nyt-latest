@@ -1,20 +1,20 @@
-**Comcast's Universal Studios Orlando to Reopen Parks on June 5**\
-`Comcast Corp's Universal Studios Orlando on Thursday announced plans to reopen its park to the public on June 5.`\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-universal-studios.html?searchResultPosition=6
+**U.S. State Dept. Warns China Over New Hong Kong Security Law**\
+`The United States on Thursday warned China against imposing a new national security legislation on Hong Kong, saying a high-degree of autonomy and respect for human rights were key to preserving the territory's special status, State Department spokeswoman Morgan Ortagus said.`\
+https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-china-parliament-hongkong-usa.html?searchResultPosition=6
 
-**Brazil's Bolsonaro to Sign $11 Billion Coronavirus Aid Package Thursday or Friday**\
-`Brazil's President Jair Bolsonaro said he is due to sign a 60 billion reais ($10.77 billion) aid package on Thursday or Friday, adding that it is normal for governments to lose support after more than a year.`\
-https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-health-coronavirus-bolsonaro.html?searchResultPosition=7
+**Sally Rowley, Jewelry Maker and Freedom Rider, Dies at 88**\
+`She fought for civil rights, learned to fly and sold her art on the streets of San Francisco. She died of the novel coronavirus.`\
+https://nytimes.com/2020/05/21/obituaries/sally-rowley-dead-coronavirus.html?searchResultPosition=7
 
-**Miner Hudbay Minerals Expects Delay to Peru Copper Expansion**\
-`Canadian miner Hudbay Minerals Inc expects a delay of up to four months before it can start mining an extension at its Constancia copper mine in Peru, the miner's chief executive said on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-hudbay-peru.html?searchResultPosition=8
+**U.S. Appeals Court Says It Wants to Hear From Flynn Judge**\
+`A U.S. appeals court on Thursday instructed the judge hearing the criminal case against President Donald Trump's former national security adviser Michael Flynn to respond to a recent petition in which Flynn asked the court to toss the charges.`\
+https://nytimes.com/reuters/2020/05/21/us/politics/21reuters-usa-trump-flynn.html?searchResultPosition=8
 
-**Improper Email Delays Key Vote on PG&E's Bankruptcy Plan**\
-`California power regulators unexpectedly delayed a key vote on Pacific Gas & Electric's plan for getting out of bankruptcy Thursday after one of the utility's most outspoken critics sent an improper email attacking the company's proposal to pay wildfire victims. `\
-https://nytimes.com/aponline/2020/05/21/business/bc-us-california-wildfires-utility.html?searchResultPosition=9
+**Fed's Powell Says Economic Forecasts Filled With Uncertainty**\
+`Efforts to forecast the U.S. economy's path to recovery from the current deep downturn face “a whole new level of uncertainty," Federal Reserve Chairman Jerome Powell said Thursday.`\
+https://nytimes.com/aponline/2020/05/21/business/bc-us-federal-reserve-powell.html?searchResultPosition=9
 
-**A U.S. Memorial Day Weekend Like No Other, With Parties and Biker Rallies on Hold**\
-`Tom McNamara had planned to ride his 2013 Harley Road Glide Ultra motorcycle through the heart of Washington on Sunday, joining hundreds of thousands of bikers in a Memorial Day weekend rally in the nation's capital to raise awareness of U.S. veterans. `\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-usa-memorialday.html?searchResultPosition=10
+**Alaska Will Send Oil-Wealth Checks Early Because of Virus**\
+`Alaska Gov. Mike Dunleavy has announced that checks from the state's oil-wealth fund will begin going out to residents three months early because of “extraordinary times” brought on by the economic hardships caused by the coronavirus.`\
+https://nytimes.com/aponline/2020/05/21/business/ap-us-virus-outbreak-alaska.html?searchResultPosition=10
 
