@@ -1,24 +1,24 @@
+**Your Thursday Briefing**\
+`Vaccines, U.S. Reopenings, Flour Frenzy: Here’s what you need to know.`\
+https://nytimes.com/2020/05/21/briefing/vaccines-us-reopenings-flour-britain.html?searchResultPosition=5
+
+**Coronavirus Live Updates: Pandemic and Natural Disasters Deal a One-Two Punch**\
+`President Xi Jinping of China hopes to rally national pride at a once-a-year legislative meeting. Mexico has acknowledged a vast discrepancy in its coronavirus death toll.`\
+https://nytimes.com/2020/05/21/world/coronavirus-news.html?searchResultPosition=6
+
+**Asia Shares Temper Rally, Await China Policy Meeting**\
+`Asian shares stepped back slightly and U.S. stock futures fell on Thursday as lingering caution about the long-term impact of the coronavirus outbreak offset some of this week's enthusiasm over re-opening of economies.`\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-global-markets.html?searchResultPosition=7
+
+**As Virus Swamps Peru, Venezuelan Migrants Collect the Dead**\
+`Faustino López was terrified after his wife, Angélica, was hospitalized with the coronavirus last month. `\
+https://nytimes.com/aponline/2020/05/21/world/americas/ap-lt-virus-outbreak-peru-collecting-the-dead.html?searchResultPosition=8
+
+**Cyclone Left Deaths, Much Destruction in India, Bangladesh**\
+`A powerful cyclone that slammed into coastal India and Bangladesh has left damage difficult to assess Thursday and about 20 deaths.`\
+https://nytimes.com/aponline/2020/05/21/world/asia/ap-as-asia-cyclone.html?searchResultPosition=9
+
 **IOC Chief Bach Says Games Would Be Cancelled if Not Held in 2021**\
 `International Olympic Committee (IOC) chief Thomas Bach says the Tokyo Games would have to be scrapped if the event cannot be held next year due to the COVID-19 crisis.`\
-https://nytimes.com/reuters/2020/05/20/sports/olympics/20reuters-health-coronavirus-olympics-bach.html?searchResultPosition=5
-
-**Police: 1 in Custody After Reported Shooting in Retail Area**\
-`A suspect is in custody after a shooting was reported in the area of the Phoenix-area Westgate shopping and entertainment district, Glendale police said. `\
-https://nytimes.com/aponline/2020/05/20/business/ap-us-shooting-retail-district-1st-ld-writethru.html?searchResultPosition=6
-
-**Germany's Confirmed Coronavirus Cases Rise by 745 to 176,752: RKI**\
-`The number of confirmed coronavirus cases in Germany increased by 745 to 176,752, data from the Robert Koch Institute (RKI) for infectious diseases showed on Thursday.`\
-https://nytimes.com/reuters/2020/05/20/world/europe/20reuters-health-coronavirus-germany-cases.html?searchResultPosition=7
-
-**Meatpacking Safety Recommendations Are Largely Unenforceable**\
-`Federal recommendations meant to keep meatpacking workers safe as they return to plants that were shuttered by the coronavirus have little enforcement muscle behind them, fueling anxiety that working conditions could put employees' lives at risk.`\
-https://nytimes.com/aponline/2020/05/20/business/ap-us-virus-outbreak-meat-plants-safety.html?searchResultPosition=8
-
-**Australia's Ioneer Signs Boric Acid Supply Deals for Flagship U.S. Project**\
-`Australian explorer ioneer Ltd said on Thursday it secured two agreements for the distribution and sales of boric acid from its flagship Nevada, U.S. project, sending its shares nearly 9% higher.`\
-https://nytimes.com/reuters/2020/05/20/world/asia/20reuters-ioneer-deals-boric-acid.html?searchResultPosition=9
-
-**Pandemic-Baking Britain Has an ‘Obscene’ Need for Flour**\
-`The Wessex Mill in Oxford, a family business started 125 years ago, is among the British mills striving to meet a surge in demand.`\
-https://nytimes.com/2020/05/20/business/britain-flour-mills-baking.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/20/sports/olympics/20reuters-health-coronavirus-olympics-bach.html?searchResultPosition=10
 
