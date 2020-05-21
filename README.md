@@ -1,20 +1,20 @@
-**F.B.I. Opens Investigation Into Fatal Police Shooting of a Black Woman in Kentucky**\
-`Breonna Taylor was killed during a police drug raid at her home in Louisville.`\
-https://nytimes.com/2020/05/21/us/fbi-louisville-shooting.html?searchResultPosition=6
+**Trump Says May Head Outdoors for Campaign Rallies Amid Pandemic**\
+`U.S. President Donald Trump, eager to get back on the road and make his case for re-election on Nov. 3, said on Thursday he may have to stage campaign rallies at outdoor sites until the coronavirus pandemic settles down enough for traditional events.`\
+https://nytimes.com/reuters/2020/05/21/us/politics/21reuters-usa-election-trump.html?searchResultPosition=6
 
-**Top Safety Official at Waymo Self-Driving Unit Stepping Down**\
-`Alphabet Inc’s Waymo self-driving unit said on Thursday that its chief safety officer, Debbie Hersman, was stepping down but would remain as a consultant to the company.`\
-https://nytimes.com/reuters/2020/05/21/business/21reuters-waymo-safety.html?searchResultPosition=7
+**Salvadoran Leader to File Complaint Against Congress, Courts**\
+`President Nayib Bukele is threatening to file a complaint with an international tribunal against El Salvador's other two branches of government in a fight over his harsh coronavirus confinement policies.`\
+https://nytimes.com/aponline/2020/05/21/world/americas/ap-lt-virus-outbreak-el-salvador.html?searchResultPosition=7
 
-**Bernice Silver, Impish Puppeteer and Activist, Dies at 106**\
-`Trained in the political theater of the 1930s, Ms. Silver was a beloved figure in the puppetry, folk music and environmental worlds.`\
-https://nytimes.com/2020/05/21/obituaries/bernice-silver-dead-coronavirus.html?searchResultPosition=8
+**Louisville Chief, Under Fire in Black Woman's Death, Retires**\
+`A Kentucky police chief is abruptly retiring as calls for his ouster intensified in the wake of a fatal shooting by officers of a black woman in her home.`\
+https://nytimes.com/aponline/2020/05/21/us/ap-us-fatal-police-shooting-kentucky.html?searchResultPosition=8
 
-**U.S. Doctors Call for Remdesivir Data to Guide Coronavirus Treatment**\
-`U.S. doctors and others in the scientific community are calling for the release of data that convinced health regulators to authorize emergency use of Gilead Sciences Inc's antiviral drug remdesivir to treat COVID-19, so they can direct limited supplies on the right patients.`\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-gilead-sciences.html?searchResultPosition=9
+**How Much Watching Time Do You Have This Weekend?**\
+`A new “30 for 30” documentary debuts this weekend, as does the second season of a smart and juicy legal drama.`\
+https://nytimes.com/2020/05/21/arts/television/lance-the-split-cheers.html?searchResultPosition=9
 
-**Bank of Japan to Create Its Version of Fed's 'Main Street' Lending Scheme**\
-`Japan's central bank will create its own version of the U.S. Federal Reserve's "Main Street" lending programme to channel more money to small businesses, in a bid to keep the coronavirus pandemic from pushing the economy deeper into recession.`\
-https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-health-coronavirus-boj.html?searchResultPosition=10
+**Democratic U.S. Senator Blasts Graham's Subpoena Push as Political Attack**\
+`A senior U.S. Democrat on Thursday accused the Republican chairman of the powerful Senate Judiciary Committee of trying to misuse subpoena powers for an attack on President Donald Trump's political rival Democrat Joe Biden.`\
+https://nytimes.com/reuters/2020/05/21/us/politics/21reuters-usa-congress-feinstein.html?searchResultPosition=10
 
