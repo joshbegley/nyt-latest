@@ -1,20 +1,20 @@
-**Brady's Super Bowl Journeys to Be Part of 2021 ESPN Series**\
-`Tom Brady's journey to each of his nine Super Bowls with the New England Patriots will be the subject of an ESPN series released next year.`\
-https://nytimes.com/aponline/2020/05/21/sports/football/ap-fbn-espn-brady-series.html?searchResultPosition=6
+**Floodwaters Start to Recede in Michigan After Flooding**\
+`Floodwaters that breached two privately owned dams in Michigan began to recede on Thursday after displacing thousands of people and spreading to a Dow Chemical plant and a nearby hazardous waste cleanup site.`\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-usa-flood-michigan.html?searchResultPosition=6
 
-**Threat to Hit Turkey in Libya Underscores Risk of Escalation**\
-`Turkey warned on Thursday against any attacks on its interests in Libya by Khalifa Haftar's forces after his Libyan National Army (LNA) threatened to respond to recent military setbacks by striking Turkish positions in the country.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-libya-security.html?searchResultPosition=7
+**Fed's Clarida Says Actions So Far Have Bought Time for Economy**\
+`The Federal Reserve's actions so far have helped buy time for the U.S. economy through looser financial conditions, though that could be threatened if the coronavirus pandemic and related downturn persist, Fed Vice Chair Richard Clarida said on Thursday.  `\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-usa-fed-clarida.html?searchResultPosition=7
 
-**Harold Blake, Loyal to Robert Moses Until the End, Dies at 91**\
-`He was executive assistant to that imperious urban planner when Mr. Moses headed the 1964-65 World’s Fair in New York. He was later an executive with the city’s bridge and tunnel authority.`\
-https://nytimes.com/2020/05/21/nyregion/harold-blake-dead-coronavirus.html?searchResultPosition=8
+**NFL Looks at Adding 'Booth Umpire' and Tech Advisor for Refs**\
+`The NFL is considering adding a “booth umpire” and a senior technology advisor to the referee to assist the officiating crew.`\
+https://nytimes.com/aponline/2020/05/21/sports/football/ap-fbn-nfl-rule-changes.html?searchResultPosition=8
 
-**UK Test and Trace System Is on Course for June 1: Health Minister**\
-`Britain's health minister said the health service's COVID-19 smartphone app was working on the Isle of Wight, where it is being trialled, and the country's test and trace operation would be ready to launch on June 1 when the lockdown is further eased.`\
-https://nytimes.com/reuters/2020/05/21/technology/21reuters-health-coronavirus-britain-apps.html?searchResultPosition=9
+**2 Accused of False Alzheimer's Diagnoses Charged With Fraud**\
+`A former director of an Ohio memory-loss clinic accused by dozens of patients of falsely diagnosing them with Alzheimer’s disease has been indicted on federal fraud charges.`\
+https://nytimes.com/aponline/2020/05/21/us/ap-us-alzheimers-wrong-diagnoses.html?searchResultPosition=9
 
-**Cuomo: Summer School in New York State Will Be Online**\
-`Summer school in New York will be conducted remotely, Gov. Andrew Cuomo said Thursday, citing the risks of returning children to the classroom.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=10
+**US Long-Term Mortgage Rates Ease; 30-Year at 3.24%**\
+`Long-term U.S. mortgage rates eased this week in a housing market battered by the shutdown spurred by the coronavirus pandemic. Rates hovered near all-time lows as the benchmark 30-year home loan stayed below 3.30% for the fourth straight week. `\
+https://nytimes.com/aponline/2020/05/21/business/bc-us-mortgage-rates.html?searchResultPosition=10
 
