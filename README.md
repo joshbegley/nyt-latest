@@ -1,20 +1,20 @@
+**Yearly Lockdown Would Be Good for Planet, Says Tsitsipas**\
+`The coronavirus pandemic has stalled young Greek Stefanos Tsitsipas's burgeoning career but he remains philosophical about the current tennis shutdown.`\
+https://nytimes.com/reuters/2020/05/21/sports/tennis/21reuters-health-coronavirus-tennis-tsitsipas.html?searchResultPosition=6
+
+**AP FACT CHECK: Trump's False 'Choice' on Vets' Health Care**\
+`President Donald Trump is putting forth a false “Choice" when he boasts about a program aimed at improving veterans' health care by steering more patients to the private sector.`\
+https://nytimes.com/aponline/2020/05/21/us/politics/ap-us-virus-outbreak-veterans-fact-check.html?searchResultPosition=7
+
+**DA: 91 More Drug Cases Tied to Ex-Texas Cop to Be Dismissed**\
+`Prosecutors announced Thursday they expect to dismiss at least 91 more drug convictions tied to an indicted ex-Houston police officer whose cases are being reviewed following a deadly drug raid. `\
+https://nytimes.com/aponline/2020/05/21/us/ap-us-houston-fatal-drug-raid.html?searchResultPosition=8
+
 **Turkey Says Export of Dairy Products to China Will Resume**\
 `Turkey's exports of milk and other dairy products to China will resume, Trade Minister Ruhsar Pekcan said on Thursday, and added that 54 Turkish companies will be able to export to China.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-turkey-china.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-turkey-china.html?searchResultPosition=9
 
-**Kudlow Says No Need for More Unemployment Even as Election Looms**\
+**Kudlow Says No Need for More Unemployment Aid Even as Election Looms**\
 `U.S. White House economic adviser Larry Kudlow on Thursday dismissed the idea of extending unemployment benefits even as he acknowledged that nation's unemployment rate could still be in double digits when American vote in November.`\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-usa-kudlow.html?searchResultPosition=7
-
-**Russia Flouts Another Treaty. So We’re Leaving It.**\
-`The agreement undermines security instead of promoting it.`\
-https://nytimes.com/2020/05/21/opinion/trump-open-skies-treaty-russia.html?searchResultPosition=8
-
-**The 1975: Self-Aware, Self-Indulgent and, Yes, Sincere**\
-`The British band’s new album, “Notes on a Conditional Form,” is a more downcast take on the challenges of living in the internet age.`\
-https://nytimes.com/2020/05/21/arts/music/the-1975-notes-on-a-conditional-form-review.html?searchResultPosition=9
-
-**Atlantic Media Cuts Nearly 20% of Jobs in U.S. as Pandemic Cripples Events Business**\
-`Atlantic Media, the owner of The Atlantic magazine, announced Thursday the publication is cutting nearly 20% of the its staff as the coronavirus pandemic devastates ad sales and the live events business. `\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-atlantic-media-layoffs.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-usa-kudlow.html?searchResultPosition=10
 
