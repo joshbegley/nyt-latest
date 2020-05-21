@@ -1,24 +1,24 @@
+**Furloughs Becoming Layoffs at Trump Resort in South Florida**\
+`Some furloughs at a Trump golf resort in South Florida are becoming permanent layoffs.`\
+https://nytimes.com/aponline/2020/05/21/us/bc-us-trump-hotel-layoffs.html?searchResultPosition=5
+
+**Myanmar Doctor Charged for Insulting Monks Over Sex Education**\
+`A Myanmar doctor who criticised conservative Buddhist monks has been charged with insulting religion, officials said on Thursday, as a debate heats up over a proposal to teach sex education at school.`\
+https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-myanmar-religion.html?searchResultPosition=6
+
+**World Bank Approves Record $500 Million to Battle Locust Swarms**\
+`The World Bank on Thursday approved a record $500 million in grants and low-interest loans to help countries in Africa and the Middle East fight swarms of desert locusts that are eating their way across vast swaths of crops and rangelands.`\
+https://nytimes.com/reuters/2020/05/21/world/africa/21reuters-world-bank-locusts.html?searchResultPosition=7
+
+**Missouri Governor Not Only Allows Graduation, but Will Speak**\
+`In a year when many states are prohibiting in-person graduation ceremonies due to the coronavirus, Missouri Gov. Mike Parson is not only allowing them, but will speak at one.`\
+https://nytimes.com/aponline/2020/05/21/us/ap-us-missouri-governor-graduation-ceremony.html?searchResultPosition=8
+
+**‘I’m Teaching Into a Vacuum’: 14 Educators on Quarantine Learning**\
+`An illustrated look at how teachers across the country are reaching students during the pandemic.`\
+https://nytimes.com/2020/05/21/business/coronavirus-teachers.html?searchResultPosition=9
+
 **Uber Has Spent $19 Million on Coronavirus Financial Assistance for Drivers**\
 `Uber Technologies Inc on Thursday for the first time detailed how much it has spent to support its ride-hail drivers and food delivery workers during the coronavirus crisis, which has battered the company and forced it to lay off thousands of employees.`\
-https://nytimes.com/reuters/2020/05/21/business/21reuters-health-coronavirus-uber.html?searchResultPosition=5
-
-**Scottish Schools to Reopen in August With Measures to Prevent Virus Spread**\
-`Scottish schools will reopen in August although at first children will spend around half their time learning at home and half at school in smaller classes to help prevent the spread of coronavirus, the Scottish government said on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-britain-scotland.html?searchResultPosition=6
-
-**Lawyer Says White Woman Attacked Girl Because She Was Black**\
-`A white woman is charged with assaulting an 11-year-old black girl in what the girl’s lawyer calls a racially motivated attack.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-racial-attack-accusation-.html?searchResultPosition=7
-
-**Authorities Assessing Damage From Mid-Michigan Flooding**\
-`Authorities were assessing damage Thursday as floodwaters from heavy rains that overtook two dams retreated in some mid-Michigan communities and continued to threaten others further downriver.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-midwest-flooding.html?searchResultPosition=8
-
-**Colombia Central Bank to Cut Rate to Historic 2.75% Low: Reuters Poll**\
-`Colombia's central bank will cut its benchmark interest rate by 50 basis points to a historic low of 2.75% at its meeting next week, as it tries to alleviate financial upheaval caused by the coronavirus pandemic, a Reuters poll showed on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-colombia-cenbank.html?searchResultPosition=9
-
-**Watch Live: Cuomo Delivers Coronavirus Update for New York**\
-`Gov. Andrew M. Cuomo of New York provides the state’s latest coronavirus stats.`\
-https://nytimes.com/video/us/politics/100000007150603/new-york-governor-andrew-cuomo-press-conference-coronavirus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/21/business/21reuters-health-coronavirus-uber.html?searchResultPosition=10
 
