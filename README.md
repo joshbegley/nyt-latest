@@ -1,4 +1,4 @@
-**Senate Approves John Ratcliffe for Top Intelligence Job**\
+**Senate Approves John Ratcliffe for Top Intelligence Job in Sharply Split Vote**\
 `The congressman from Texas was confirmed by a divided Senate to take over an office at the center of the Trump administration’s investigations of Obama administration officials.`\
 https://nytimes.com/2020/05/21/us/politics/john-ratcliffe-intelligence-director.html?searchResultPosition=6
 
