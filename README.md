@@ -1,20 +1,20 @@
-**Getting on a Plane? Please Take the Food Out of Your Bag**\
-`New security and health policies at airports and on planes will make traveling this summer a bit stranger and, officials hope, safer.`\
-https://nytimes.com/2020/05/21/business/memorial-day-travel-2020-coronavirus.html?searchResultPosition=6
+**1,700 Florida Coronavirus Tests Damaged on Way to Lab**\
+`More than 1,700 Floridians will have to be retested for the coronavirus after their state-administered tests were damaged while being transported to the lab for analysis. `\
+https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-florida-damaged-tests.html?searchResultPosition=6
 
-**Fed's Bostic: Banks Should Be Preserving as Much Capital as Possible-CNBC**\
-`U.S. banks should be preserving as much capital as they possibly can amid the coronavirus outbreak and should perhaps decide against dividend payments, Atlanta Federal Reserve Bank President Raphael Bostic said on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-fed-bostic.html?searchResultPosition=7
+**A Campaign Milestone: ‘I Was Drugged and Raped,’ Heard in a Candidate’s Ad**\
+`A Democratic congressional candidate in Virginia is releasing a TV spot where she speaks candidly about assault, a new step in a political landscape altered  by the #MeToo movement.`\
+https://nytimes.com/2020/05/21/us/politics/claire-russo-ad.html?searchResultPosition=7
 
-**U.S. Prepared to Spend Russia, China 'Into Oblivion' to Win Nuclear Arms Race: U.S. Envoy**\
-`U.S. President Donald Trump's arms control negotiator on Thursday said the United States is prepared to spend Russia and China "into oblivion" in order to win a new nuclear arms race.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-usa-armscontrol.html?searchResultPosition=8
+**Mexico Ready to Negotiate Over Power Market Shake-Up**\
+`Mexico's president on Thursday said he was ready to negotiate over changes to the electricity market that angered firms and foreign allies, opening the door to a potential compromise that could ease tensions over energy policy.`\
+https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-mexico-energy.html?searchResultPosition=8
 
-**Busch and Elliott Incident Could Spark New NASCAR Rivalry**\
-`Kyle Busch is NASCAR's reigning Cup champion and the resident villain of the series. Chase Elliott has been voted most popular driver the last two years and is quickly building a loyal and rabid fan base. `\
-https://nytimes.com/aponline/2020/05/21/sports/ap-car-nascar-next-feud.html?searchResultPosition=9
+**Impact of COVID-19 Pandemic on Sports Events Around the World**\
+`Major sports events around the world that are in the process of re-starting or which have been rescheduled due to the COVID-19 pandemic:`\
+https://nytimes.com/reuters/2020/05/21/sports/skiing/21reuters-health-coronavirus-sport.html?searchResultPosition=9
 
-**Six: Impasse**\
-`An interview with PewDiePie, as he comes to grips with his influence.`\
-https://nytimes.com/2020/05/21/podcasts/rabbit-hole-PewDiePie-youtube-virus.html?searchResultPosition=10
+**Russian Economy to Contract, Rouble to Stay Weak Amid Pandemic: Economy Ministry**\
+`Russia's economy is on track to shrink by 5% in 2020 and the rouble will remain weak as the novel coronavirus pandemic and low oil prices hit home, the economy ministry said on Thursday.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-russia-economy-outlook.html?searchResultPosition=10
 
