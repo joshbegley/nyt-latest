@@ -1,24 +1,24 @@
+**TJX's Quarterly Sales More Than Halve Amid Pandemic**\
+`TJX Cos Inc's first-quarter sales more than halved on Thursday, as the off-price retailer's stores and online operations remained shut for most of the quarter due to coronavirus-led lockdowns.`\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-tjx-results.html?searchResultPosition=5
+
+**British Shoemaker Clarks Cuts 900 Jobs, Seeks Funding**\
+`Clarks, the British shoemaker and retailer, said on Thursday it was cutting 900 jobs globally and reviewing funding options to address liquidity needs caused by the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-clarks-jobs.html?searchResultPosition=6
+
+**Exclusive: Baidu Considers Leaving the Nasdaq to Boost Its Valuation-Sources**\
+`Chinese search engine giant Baidu Inc is considering delisting from the U.S. Nasdaq and moving to an exchange closer to home to boost its valuation amid rising tension between the United States and China over investments, three sources said.`\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-baidu-delisting-excusive.html?searchResultPosition=7
+
+**Tech Firms Deploy Bluetooth Chips for Coronavirus Contact Tracing in Office**\
+`Technology companies are developing their own contact tracing systems to help prevent coronavirus outbreaks in their offices as countries begin to ease lockdown measures and a return to the workplace is in the offing.  `\
+https://nytimes.com/reuters/2020/05/21/technology/21reuters-health-coronavirus-network-tracing.html?searchResultPosition=8
+
+**Mississippi Church Suing on Virus Restrictions Burns Down**\
+`A church in Mississippi was destroyed by a suspected arson fire, about a month after its pastor filed a lawsuit challenging the city of Holly Springs on gathering restrictions amid the coronavirus outbreak.`\
+https://nytimes.com/aponline/2020/05/21/us/ap-us-virus-outbreak-church-fire.html?searchResultPosition=9
+
 **China's Wuhan Says Conducted 887,321 COVID-19 Tests on May 20**\
 `The city of Wuhan, the original epicentre of the new coronavirus outbreak in China, conducted 887,321 nucleic acid tests on May 20, the local health authority said on Thursday, compared with 856,128 a day earlier. `\
-https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-health-coronavirus-china-wuhan.html?searchResultPosition=5
-
-**One in Six Spanish Children Depressed During Pandemic: Survey**\
-`Nearly one in six Spanish children have felt regularly depressed during the coronavirus crisis, with those from poorer backgrounds suffering worse, a charity said on Thursday. `\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-spain-children.html?searchResultPosition=6
-
-**These Labs Rushed to Test for Coronavirus. Few Took Them Up on It.**\
-`The fragmented U.S. health care system has hampered efforts to expand coronavirus testing, by making it difficult for hospitals to switch to new labs with ample capacity.`\
-https://nytimes.com/2020/05/21/health/coronavirus-testing-lab-capacity.html?searchResultPosition=7
-
-**Pandemic Could Push Macy's to Losses Exceeding $1 Billion**\
-`Macy’s is warning that it could lose more than a $1 billion during its first quarter after the coronavirus pandemic paralyzed retail operations nationwide. `\
-https://nytimes.com/aponline/2020/05/21/business/bc-us-virus-outbreak-macys.html?searchResultPosition=8
-
-**Stacey Abrams Endorses Candidates in 7 US Senate Contests**\
-`Alongside discussions of her own national political ambitions, former Georgia gubernatorial nominee Stacey Abrams is wading into elections outside her home state, endorsing the campaigns of seven Democrats vying for U.S. Senate seats.`\
-https://nytimes.com/aponline/2020/05/21/us/politics/ap-us-election-2020-senate-abrams-endorsements.html?searchResultPosition=9
-
-**UK Watchdog Clears Johnson of Criminal Wrongdoing**\
-`British Prime Minister Boris Johnson will not face a criminal investigation into whether he offered special favors to an American businesswoman during his time as mayor of London.`\
-https://nytimes.com/aponline/2020/05/21/world/europe/ap-eu-britain-johnson.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-health-coronavirus-china-wuhan.html?searchResultPosition=10
 
