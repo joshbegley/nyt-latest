@@ -1,4 +1,4 @@
-**Montana Supreme Court Says Dinosaur Fossils Aren't Minerals**\
+**Court Says Dinosaur Fossils Worth Millions Aren't Minerals**\
 `Dinosaur fossils aren't minerals under state law, a divided Montana Supreme Court said in a ruling Wednesday that has implications in an ongoing legal battle over the ownership of millions of dollars of fossils unearthed on an eastern Montana ranch. `\
 https://nytimes.com/aponline/2020/05/21/us/ap-us-dueling-dinosaurs.html?searchResultPosition=6
 
