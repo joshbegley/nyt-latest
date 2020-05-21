@@ -1,20 +1,20 @@
-**Senate Approves John Ratcliffe for Top Intelligence Job in Sharply Split Vote**\
-`The congressman from Texas was confirmed by a divided Senate to take over an office at the center of the Trump administration’s investigations of Obama administration officials.`\
-https://nytimes.com/2020/05/21/us/politics/john-ratcliffe-intelligence-director.html?searchResultPosition=6
+**Boris Johnson Avoids Criminal Inquiry Into His Dealings as London’s Mayor**\
+`A police watchdog did find evidence, however, that Mr. Johnson and an American businesswoman may have had an “intimate relationship” and that the relationship helped her secure money and networking opportunities.`\
+https://nytimes.com/2020/05/21/world/europe/boris-johnson-jennifer-arcuri-uk.html?searchResultPosition=6
 
-**Senate Panel Advances Trump Pick to Head VOA, Other Outlets**\
-`A bitterly divided Senate panel voted along party lines Thursday to advance President Donald Trump’s choice to head the Voice of America and other U.S. government-funded international broadcasters that have been the subject of harsh criticism from the White House.`\
-https://nytimes.com/aponline/2020/05/21/us/politics/ap-us-united-states-voice-of-america.html?searchResultPosition=7
+**10 Great Bottles of Italian White Wine Under $25**\
+`Though noted primarily for red wine, Italy actually makes more white. These are diverse, delicious, great values and not a pinot grigio among them.`\
+https://nytimes.com/2020/05/21/dining/drinks/italian-white-wine.html?searchResultPosition=7
 
-**Britain Signs Deals for 10 Million Antibody Tests From Roche and Abbott**\
-`Britain will buy 10 million coronavirus antibody tests from Roche and Abbott and will roll them out to health workers from next week, health minister Matt Hancock said on Thursday.`\
-https://nytimes.com/reuters/2020/05/21/world/europe/21reuters-health-coronavirus-britain-tests.html?searchResultPosition=8
+**Popular New York City Eatery Gives Sneak Peek at Post-Coronavirus Dining**\
+`As shut-in Americans long for the days when they can once again enjoy simple pleasures like dining out, one New York City steakhouse has provided a possible glimpse of how reopened restaurants might look in the post-coronavirus age.`\
+https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-usa-new-york-restaurant.html?searchResultPosition=8
 
-**Xfinity Series' Return Again Delayed by Rain at Darlington**\
-`The return of Xfinity Series racing has been delayed once again by rain at Darlington Raceway on Thursday. `\
-https://nytimes.com/aponline/2020/05/21/sports/ap-car-nascar-xfinity.html?searchResultPosition=9
+**U.S. House Republicans Press TikTok on Use of Kids' Data, Ties to Beijing**\
+`Two leading Republicans in the U.S. House of Representatives wrote a letter to the founder of the popular video sharing app TikTok on Thursday, asking about potentially illegal use of data about children and ties to the Chinese government.`\
+https://nytimes.com/reuters/2020/05/21/technology/21reuters-tiktok-privacy-children-republicans.html?searchResultPosition=9
 
-**Justice Dept. Unit That Prosecuted Roger Stone Is Reorganized**\
-`The overhaul of a division of the U.S. attorney’s office in Washington came at the end of a brief tenure as head of the office by a longtime adviser to Attorney General William P. Barr.`\
-https://nytimes.com/2020/05/21/us/politics/us-attorneys-office-washington-criminal-division.html?searchResultPosition=10
+**Factbox: China Finally Moves Towards Tougher National Security Laws for Hong Kong**\
+`Beijing is moving to impose new national security legislation on Hong Kong, it announced on Thursday, following last year's often violent anti-China unrest that plunged the city into its deepest turmoil since it returned to Beijing rule in 1997.`\
+https://nytimes.com/reuters/2020/05/21/world/asia/21reuters-china-parliament-hongkong-factbox.html?searchResultPosition=10
 
