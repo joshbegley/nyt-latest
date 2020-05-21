@@ -1,20 +1,20 @@
-**N.Y. Archdiocese Unveils Plan for Phased Worship Reopening**\
-`The Archdiocese of New York on Thursday released a plan for a phased-in reopening during the coronavirus pandemic, using protocols developed with the advice of medical professionals to help safeguard worshipers.`\
-https://nytimes.com/aponline/2020/05/21/us/ap-virus-outbreak-ny-catholics.html?searchResultPosition=6
+**Facebook's Zuckerberg Embraces More Permanent Remote Work**\
+`Facebook Inc will shift toward more permanently embracing remote work even after coronavirus lockdowns ease, Chief Executive Mark Zuckerberg told employees in a publicly broadcast livestream on Thursday.`\
+https://nytimes.com/reuters/2020/05/21/business/21reuters-health-coronavirus-facebook.html?searchResultPosition=6
 
-**Clinton and Patterson Again Team Up for Political Thriller**\
-`After co-writing the best-selling adult novel of 2018, Bill Clinton and James Patterson have teamed up for another political thriller. `\
-https://nytimes.com/aponline/2020/05/21/us/ap-us-books-clinton-patterson.html?searchResultPosition=7
+**AP-NORC Poll: Trump Approval Remains Steady During Pandemic**\
+`As the coronavirus pandemic stretches on, Americans’ views of the federal and state government response to the crisis are starting to sour — yet President Donald Trump’s personal approval rating has remained steady.`\
+https://nytimes.com/aponline/2020/05/21/us/politics/ap-us-ap-poll-virus-outbreak-trump.html?searchResultPosition=7
 
-**University of California Considers Phasing Out Standardized Tests**\
-`Regents are voting on a proposal to make the SAT and ACT optional for in-state applicants until 2024, and then eliminate them, a decision that would have major implications for college admissions.`\
-https://nytimes.com/2020/05/21/us/university-california-sat-act.html?searchResultPosition=8
+**First Piece of Disputed Keystone XL Pipeline Finished**\
+`A Canadian company has built the first piece of the disputed Keystone XL oil sands pipeline across the U.S. border and started work on labor camps in Montana and South Dakota. But it has not resolved a courtroom setback that would make it hard to finish the $8 billion project.`\
+https://nytimes.com/aponline/2020/05/21/business/bc-us-keystone-xl-pipeline.html?searchResultPosition=8
 
-**U.S. CDC Reports 1,551,095 Coronavirus Cases, 93,061 Deaths**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Thursday reported 1,551,095 cases of the new coronavirus, an increase of 22,860 cases from its previous count, and said that the number of deaths had risen by 1,397 to 93,061.`\
-https://nytimes.com/reuters/2020/05/21/us/21reuters-health-coronavirus-usa-cdc.html?searchResultPosition=9
+**Bolsonaro Will 'Soon' Sign Coronavirus Aid Deal but Wants Public Pay Freeze**\
+`Brazil's President Jair Bolsonaro on Thursday said he would sign off on a federal assistance program for states and cities hit by the coronavirus outbreak "as soon as possible," but asked governors for support freezing public sector pay increases. `\
+https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-health-coronavirus-brazil.html?searchResultPosition=9
 
-**Americans Splurge at Walmart, Target as Stimulus Checks Kick In**\
-`The Trump Administration's coronavirus relief payment provided a fillip to sales of major retailers in April as millions of Americans used the money to buy everything from video games to sewing machines even as the country struggles with record job losses.`\
-https://nytimes.com/reuters/2020/05/21/business/21reuters-usa-retail-results.html?searchResultPosition=10
+**Homebuilders Climb Even as Housing Outlook Remains Cloudy**\
+`The U.S. economy and housing market had set homebuilders up for a strong 2020.`\
+https://nytimes.com/aponline/2020/05/21/business/ap-us-off-the-charts-homebuilders.html?searchResultPosition=10
 
