@@ -6,7 +6,7 @@ https://nytimes.com/2020/05/20/health/coronavirus-vaccine-czar.html?searchResult
 `Andrew Kingsley colors our world.`\
 https://nytimes.com/2020/05/20/crosswords/daily-puzzle-2020-05-21.html?searchResultPosition=6
 
-**A Bloodbath in Manhattan as Police Interrupt Domestic Attack**\
+**2 Dead in Manhattan as Police Interrupt Domestic Attack**\
 `The police fatally shot a transit worker who had just killed his sister-in-law and wounded a building superintendent in a Harlem apartment.`\
 https://nytimes.com/2020/05/20/nyregion/police-shooting-harlem.html?searchResultPosition=7
 
