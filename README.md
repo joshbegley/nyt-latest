@@ -1,24 +1,24 @@
-**The Flipside of 'Hoosiers'-No 'Miracle' for Muncie Central**\
-`The 1954 Indiana high school basketball tournament remains so vivid in Leon Agullana's memory it's as if he never left Muncie Central.`\
-https://nytimes.com/aponline/2020/05/22/sports/ap-us-t25-sports-movies-hoosiers.html?searchResultPosition=5
+**80 Million Children at Risk of Measles, Polio as Vaccines Disrupted: WHO, UNICEF**\
+`Some 80 million children worldwide could be at risk of vaccine-preventable diseases like diphtheria, measles and polio due to disruption of routine immunisation during the COVID-19 pandemic, U.N. agencies and the GAVI vaccine alliance said on Friday.`\
+https://nytimes.com/reuters/2020/05/22/us/22reuters-health-coronavirus-who-immunisation.html?searchResultPosition=5
 
-**UK Regulators Investigating Misleading Online Reviews**\
-`Britain's competition watchdog has launched an investigation into misleading reviews on several big websites amid the surge in online shopping during pandemic lockdown restrictions.`\
-https://nytimes.com/aponline/2020/05/22/business/bc-britain-online-reviews.html?searchResultPosition=6
+**Factbox: From Hairdressers to Beaches-How Spain Phases Out Lockdown**\
+`Spain will further ease its coronavirus lockdown from Monday under a four-phase plan to return to normal.`\
+https://nytimes.com/reuters/2020/05/22/world/europe/22reuters-health-coronavirus-spain-plan-factbox.html?searchResultPosition=6
 
-**Big Art, Small Package: Tiny Plays Offered to Stage at Home**\
-`The task facing playwright Tito Livas was intense: Write a new play in a few days that could be read alone or aloud with friends. Don't worry if it's too crazy. Oh, and make it 10 minutes or less.`\
-https://nytimes.com/aponline/2020/05/22/us/ap-us-virus-outbreak-playwrights.html?searchResultPosition=7
+**Turkey Jails Politician Over Videos of Song From Mosques**\
+`Authorities in Turkey's western city of Izmir have detained an opposition politician after she shared videos of an Italian anti-fascist song being blared out of mosques' loudspeakers instead of the call to prayer, the country’s state-run agency reported Friday.`\
+https://nytimes.com/aponline/2020/05/22/world/europe/ap-eu-turkey-mosques-song.html?searchResultPosition=7
 
-**Joel M. Reed, 86, Director of Horror Movies, Dies**\
-`He made the exploitation-splatter film “Blood Sucking Freaks,” which was widely reviled but achieved cult status. He died of the novel coronavirus.`\
-https://nytimes.com/2020/05/22/obituaries/joel-m-reed-dead-coronavirus.html?searchResultPosition=8
+**California's Jobless Rate Hits 15.5% in April, 2M Jobs Gone**\
+`California's unemployment rate soared to 15.5% in April as the nation's most populous state lost 2.3 million jobs because of the coronavirus pandemic that has shuttered most businesses and put millions of people out of work.`\
+https://nytimes.com/aponline/2020/05/22/business/ap-us-virus-outbreak-california-jobs.html?searchResultPosition=8
 
-**QE, Lower-Bound Rates Pose Huge Risks for Brazil, Says Central Bank Director**\
-`Brazil should steer clear of quantitative easing or cutting interest rates toward zero, a central bank director said on Friday, warning that both risked distorting markets, weakening the currency and increasing financial instability.`\
-https://nytimes.com/reuters/2020/05/22/world/americas/22reuters-brazil-markets-qe.html?searchResultPosition=9
+**Lori Loughlin Expected to Plead Guilty via Zoom in College Admissions Case**\
+`As part of an agreement with prosecutors, Ms. Loughlin, the Hollywood actress, is expected to receive a two month prison sentence.`\
+https://nytimes.com/2020/05/22/us/lori-loughlin-pleads-guilty.html?searchResultPosition=9
 
-**Former Germany, Hamburg Great Uwe Seeler Breaks Hip in Fall**\
-`Former West Germany and Hamburger SV forward Uwe Seeler is to have an operation to repair a broken hip after a bad fall at home.`\
-https://nytimes.com/aponline/2020/05/22/sports/soccer/ap-soc-seeler-fall.html?searchResultPosition=10
+**Jerry Sloan, Jazz Great and Hall of Fame Coach, Dies at 78**\
+`Jerry Sloan, the coach who took the Utah Jazz to the NBA Finals in 1997 and 1998 on his way to a spot in the Basketball Hall of Fame, died Friday. He was 78.`\
+https://nytimes.com/aponline/2020/05/22/sports/basketball/ap-bkn-obit-sloan.html?searchResultPosition=10
 
