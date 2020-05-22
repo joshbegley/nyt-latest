@@ -1,24 +1,24 @@
-**Issa Rae and Kumail Nanjiani on the Real Challenge of ‘The Lovebirds’**\
-`The actors say their new Netflix movie, which starts where most rom-coms end, needed to acknowledge their characters were people of color.`\
-https://nytimes.com/2020/05/22/movies/issa-rae-kumail-nanjiani-the-lovebirds.html?searchResultPosition=5
+**Ancient Belgian Watermill Sees Flour Demand Spike During Lockdown**\
+`As Europeans have sought stress relief from baking while under lockdown, one of Belgium's last watermills still producing flour has seen a surge in demand for its produce.`\
+https://nytimes.com/reuters/2020/05/22/us/22reuters-health-coronavirus-belgium-watermill.html?searchResultPosition=5
 
-**The Pandemic Ad Salutes You**\
-`In coronavirus-themed commercials, consumption is reframed as a public service performed by heroes, for heroes.`\
-https://nytimes.com/2020/05/22/arts/pandemic-ads-salute-you.html?searchResultPosition=6
+**White House's Hassett Expects June Turning Point in U.S. Employment: CNN**\
+`White House Adviser Kevin Hassett said on Friday he expects that May will mark another dismal month for U.S. employment, but June could mark a turning point for the massive joblessness caused by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/22/us/22reuters-health-coronavirus-usa-economy.html?searchResultPosition=6
 
-**Video Shows Aftermath of Plane Crash in Pakistan**\
-`A Pakistan International Airlines plane with at least 91 people aboard crashed into a residential area near the airport in Karachi.`\
-https://nytimes.com/video/us/politics/100000007152714/pakistan-plane-crash-video.html?searchResultPosition=7
+**Virus Crisis Exposes Cascading Weaknesses in U.S. Disaster Response**\
+`Nonprofits are sending fewer volunteers. Local emergency managers risk being overwhelmed. FEMA is trying “virtual” assistance. And hurricane season starts June 1.`\
+https://nytimes.com/2020/05/22/climate/fema-volunteer-disaster-response.html?searchResultPosition=7
 
-**Turkey Hopes 'Healthy Tourism' Scheme Will Conquer Coronavirus Slump**\
-`At a luxury hotel in Istanbul, staff in gloves and masks space out and disinfect tables as they prepare for a scheme which Turkey hopes will rescue part of its $35 billion tourism industry from the ravages of coronavirus.`\
-https://nytimes.com/reuters/2020/05/22/world/europe/22reuters-health-coronavirus-turkey-tourism.html?searchResultPosition=8
+**Pompeo: China Measure a 'Death Knell' for Hong Kong Autonomy**\
+`Secretary of State Mike Pompeo on Friday condemned China's effort to take over national security legislation in Hong Kong, calling it “a death knell for the high degree of autonomy" that Beijing had promised the territory.`\
+https://nytimes.com/aponline/2020/05/22/us/politics/ap-us-china-hong-kong-pompeo.html?searchResultPosition=8
 
-**Exclusive: Pentagon Halts Rare Earths Funding for Lynas, MP Materials-Document, Sources**\
-`The U.S. Department of Defense has reversed its decision to fund two projects to process rare earth minerals for military weapons, one of which has controversial ties to China, according to three sources and a government document seen by Reuters.`\
-https://nytimes.com/reuters/2020/05/22/us/22reuters-usa-rareearths-exclusive.html?searchResultPosition=9
+**Kosovo Albanian Women Charged With Joining IS Terror Group**\
+`Kosovo prosecutors on Friday filed terrorism charges against two ethnic Albanian women for allegedly joining the Islamic State group in Syria. `\
+https://nytimes.com/aponline/2020/05/22/world/europe/ap-eu-kosovo-terror-charges.html?searchResultPosition=9
 
-**Creating an Exhibition of Britain’s Lockdown Dreams**\
-`The artist Grayson Perry talks about his latest TV series, “Grayson’s Art Club,” which showcases art made by a British public trapped at home.`\
-https://nytimes.com/2020/05/22/arts/design/grayson-perry-artclub-coronavirus.html?searchResultPosition=10
+**U.S. Museums Are Reopening: To See Monet, Don a Mask**\
+`As museums around the country prepare to reopen, the Museum of Fine Arts, Houston, is going first with safety protocols in place.`\
+https://nytimes.com/2020/05/22/arts/design/museum-reopening-houston-virus.html?searchResultPosition=10
 
