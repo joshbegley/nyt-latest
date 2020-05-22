@@ -1,24 +1,24 @@
-**Mexico Inflation Accelerates More Than Forecast in Early May**\
-`Mexican inflation picked up faster than expected in the first half of May, giving the central bank some food for thought as policymakers move to cut borrowing costs to alleviate the economic shock of the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/05/22/world/americas/22reuters-mexico-inflation.html?searchResultPosition=5
+**IMF to Give Ukraine $5 Billion to Cope With Virus Fallout**\
+`The International Monetary Fund said Thursday it has reached an agreement with authorities in Ukraine to allocate $5 billion to help the country cope with the economic fallout of the coronavirus outbreak. `\
+https://nytimes.com/aponline/2020/05/22/business/ap-eu-ukraine-imf.html?searchResultPosition=5
 
-**ECB 'Fully Prepared' to Up Bond Purchases in June: Accounts**\
-`The European Central Bank is ready to expand its Pandemic Emergency Purchase Scheme as early as June, if economic data warrant such a move, policymakers concluded in their April 30 meeting, the accounts of discussion showed on Friday.`\
-https://nytimes.com/reuters/2020/05/22/us/22reuters-ecb-policy.html?searchResultPosition=6
+**As China Fast-Tracks Biosecurity Law, Some Experts Urge Whistleblower Protection**\
+`China is fast-tracking a new law to help prevent infectious diseases and other "biological threats", but some experts said a provision aimed at deterring false information could discourage potential whistleblowers and put the public at risk.`\
+https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-china-parliament-biosecurity.html?searchResultPosition=6
 
-**EasyJet Shareholders Reject Founder's Proposals to Oust Key Management**\
-`EasyJet on Friday said all four resolutions put forth by its founder Stelios Haji-Ioannou to oust key management were rejected by its shareholders, with nearly 60% of votes cast against his proposals at a general meeting.`\
-https://nytimes.com/reuters/2020/05/22/business/22reuters-easyjet-general-meeting.html?searchResultPosition=7
+**Spain Partly Lifts Lockdown in Madrid, Allows Terraces Reopening**\
+`Spanish authorities will lift part of the lockdown restrictions in Madrid on Monday after the pace of the coronavirus contagion in the region slowed down, the Madrid regional health department said on Friday.`\
+https://nytimes.com/reuters/2020/05/22/world/europe/22reuters-health-coronavirus-spain.html?searchResultPosition=7
 
-**Syria Bars Assad's Cousin From Travel Amid Financial Dispute**\
-`A Syrian court has ordered a travel ban on the cousin of the country's president and one of its wealthiest businessmen in the latest measure to contain a financial dispute that has pried open divisions in the Assad family. `\
-https://nytimes.com/aponline/2020/05/22/world/middleeast/ap-ml-syria-fallen-tycoon.html?searchResultPosition=8
+**Swiss Ski Resort Plans to Create Longest World Cup Downhill**\
+`A downhill ski race that would be the longest in the World Cup is being planned to join the men’s circuit on a course connecting Switzerland and Italy near the Matterhorn mountain.`\
+https://nytimes.com/aponline/2020/05/22/sports/ap-ski-zermatt-new-downhill.html?searchResultPosition=8
 
-**U.S. Urges WHO to Start Review of Pandemic Response, Seeks Reforms**\
-`The United States called on the World Health Organization (WHO) on Friday to begin work immediately on investigating the source of the novel coronavirus, as well as its own handling of the response to the pandemic.`\
-https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-health-coronavirus-who-usa.html?searchResultPosition=9
+**France Says Regrets U.S. Decision to Withdraw From Open Skies Treaty**\
+`France said on Friday it regretted the decision of the United States to plan to withdraw from the 35-nation Open Skies treaty allowing unarmed surveillance flights over member countries, even though it shared its concern over Russia's implementation of the treaty.`\
+https://nytimes.com/reuters/2020/05/22/world/europe/22reuters-france-treaty.html?searchResultPosition=9
 
-**China's Wuhan Says Conducted 1,000,729 COVID-19 Tests on May 21**\
-`The city of Wuhan, the original epicentre of the new coronavirus outbreak in China, conducted 1,000,729 nucleic acid tests on May 21, the local health authority said on Friday, compared with 887,321 tests a day earlier. `\
-https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-health-coronavirus-china-wuhan.html?searchResultPosition=10
+**Lebanon's Berri Tells Government Time for Action Not Words**\
+`Lebanon's powerful parliament speaker said on Friday it was time for government action to help citizens grappling with an economic crisis and this could not wait for the outcome of International Monetary Fund negotiations.`\
+https://nytimes.com/reuters/2020/05/22/world/middleeast/22reuters-lebanon-crisis.html?searchResultPosition=10
 
