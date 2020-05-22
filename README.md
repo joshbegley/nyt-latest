@@ -1,24 +1,24 @@
+**Coronavirus in N.Y.: Live Updates**\
+`In neighborhoods where there has been conflict over social distance policing, anti-violence workers are persuading people to follow the rules.`\
+https://nytimes.com/2020/05/22/nyregion/coronavirus-new-york-update.html?searchResultPosition=5
+
+**Pakistani Passenger Plane Crashes Near Karachi, 107 on Board**\
+`A passenger plane carrying 107 passengers and crew belonging to state-run Pakistan International Airlines crashed near the southern port city of Karachi on Friday, a civil aviation official said. `\
+https://nytimes.com/aponline/2020/05/22/world/asia/ap-as-pakistan-plane-crash-4th-ld-writethru.html?searchResultPosition=6
+
+**Do You Prefer to Dwell in the Past, Live in the Present or Dream of the Future?**\
+`A psychologist writes that when the present is unpleasant, it helps to think ahead to the future and back to the past. Is this good advice?`\
+https://nytimes.com/2020/05/22/learning/do-you-prefer-to-dwell-in-the-past-live-in-the-present-or-dream-of-the-future.html?searchResultPosition=7
+
+**Virus Surge in Indonesia Raises Questions About Battle Plan**\
+`Indonesia has seen a surge in coronavirus infections ahead of this this weekend's celebrations marking the end of Ramadan, raising questions about the commitment to the virus fight from both the government and the public.`\
+https://nytimes.com/aponline/2020/05/22/world/asia/ap-as-virus-outbreak-indonesia.html?searchResultPosition=8
+
+**The U.S. Is Getting Shorter, as Mapmakers Race to Keep Up**\
+`Scientists are hard at work recalibrating where and how the nation physically sits on the planet. It’s not shrinkage — it’s “height modernization.”`\
+https://nytimes.com/2020/05/22/science/maps-elevation-geodetic-survey.html?searchResultPosition=9
+
 **Khashoggi Family Forgive Killers, Clearing Way to Legal Reprieve**\
 `The family of slain Saudi journalist Jamal Khashoggi said on Friday that they had forgiven the men who murdered their father, paving the way for a legal reprieve for five defendants sentenced to death for the October 2018 killing.`\
-https://nytimes.com/reuters/2020/05/22/world/middleeast/22reuters-saudi-khashoggi.html?searchResultPosition=5
-
-**DealBook: Mark Zuckerberg Rethinks the Office**\
-`Facebook said that half of its employees could work remotely within a decade, the latest company to suggest that virtual working will become the norm.`\
-https://nytimes.com/2020/05/22/business/dealbook/facebook-zuckerberg-office-jobs.html?searchResultPosition=6
-
-**Lesson of the Day: ‘When Cadaver Dogs Pick Up a Scent, Archaeologists Find Where to Dig’**\
-`In this lesson, students learn about how dogs’ noses are uniquely suited for supporting archaeologists conducting ancient excavations.`\
-https://nytimes.com/2020/05/22/learning/lesson-of-the-day-when-cadaver-dogs-pick-up-a-scent-archaeologists-find-where-to-dig.html?searchResultPosition=7
-
-**5 Things to Know Today-That Aren't About the Virus**\
-`Your daily look at nonvirus stories in the news:`\
-https://nytimes.com/aponline/2020/05/22/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=8
-
-**Fun Beats Fear in Rube Goldberg Contest to Fetch Soap Amid COVID-19 Crisis**\
-`Caitlin Diel waited in the shower as her brother started their chain-reaction machine, dropping a marble into a tube that sent a toy train speeding, a deodorant stick flying and a stuffed bunny racing along a zip line to finally shoot a bar of soap into her hands.`\
-https://nytimes.com/reuters/2020/05/22/us/22reuters-health-coronavirus-usa-soap.html?searchResultPosition=9
-
-**New York Chef Turns Michelin-Starred Eatery Into Charity Kitchen in COVID-19 Crisis**\
-`Chef Daniel Humm of Eleven Madison Park, who is used to being paid for fine dining with exclusive black credit cards, says his richest reward during the COVID-19 crisis is the grateful smiles of poor New Yorkers fed by the Michelin three-starred restaurant he has turned into a charity kitchen.  `\
-https://nytimes.com/reuters/2020/05/22/us/22reuters-health-coronavirus-usa-new-york-michelin.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/22/world/middleeast/22reuters-saudi-khashoggi.html?searchResultPosition=10
 
