@@ -1,24 +1,24 @@
-**Schools Should Decide Whether to Reopen, Says UK Public Health Chief**\
-`It should be for British schools to decide when to reopen following nationwide closures to stem the spread of the coronavirus and some have the confidence to do so, a senior health official said on Friday.`\
-https://nytimes.com/reuters/2020/05/22/technology/22reuters-health-coronavirus-britain-education.html?searchResultPosition=5
+**U.S. Shale Bust Slams Rural Economies as Oil Checks Shrivel**\
+`Royalties from oil pumped on Paul Ruckman's land allowed the South Texas retiree to build a six-bedroom, seven-bathroom vacation home. He had plenty left over, and donated some of it to Helena, Texas, an 1800s ghost town that draws hundreds to historic buildings and gunfight re-enactments.`\
+https://nytimes.com/reuters/2020/05/22/business/22reuters-global-oil-shale-economy-insight.html?searchResultPosition=5
 
-**Palestinians Say They Were Not Informed of UAE-Israel Flight**\
-`The Palestinian Authority says it was not informed about a shipment of coronavirus aid sent by the United Arab Emirates to Israel earlier this week on the first known direct commercial flight between the two countries.`\
-https://nytimes.com/aponline/2020/05/22/world/middleeast/ap-ml-israel-palestinians.html?searchResultPosition=6
+**Oxford, Astra COVID-19 Vaccine Candidate to Move to Larger Human Trials**\
+`The University of Oxford on Friday started recruiting volunteers for a much larger clinical trial in the UK of its potential COVID-19 vaccine being developed with AstraZeneca. (https://bit.ly/2XhETwM)`\
+https://nytimes.com/reuters/2020/05/22/world/europe/22reuters-health-coronavirus-astrazeneca-oxford.html?searchResultPosition=6
 
-**UK Short-Dated Gilt Yields Hit Record Lows After Weak Data, BoE Comments**\
-`Short-dated British government bond yields fell further below zero on Friday, setting fresh all-time lows, after data showed a record collapse in retail sales due to the coronavirus and the Bank of England said more bond purchases are "quite possible".`\
-https://nytimes.com/reuters/2020/05/22/world/europe/22reuters-britain-bonds.html?searchResultPosition=7
+**Genie Chance and the Great Alaska Earthquake**\
+`This is the story of the biggest earthquake ever recorded in North America — and the voice that held Anchorage together in the aftermath.`\
+https://nytimes.com/2020/05/22/podcasts/the-daily/this-is-chance-alaska-earthquake.html?searchResultPosition=7
 
-**Muti to Conduct Classical Music's Return to Italian Stage**\
-`Riccardo Muti will conduct a youth orchestra in an open-air concert launching the annual Ravenna Festival next month in what organizers billed Friday as Italy’s first live classical music performance since its strict lockdown to stop the spread of coronavirus.`\
-https://nytimes.com/aponline/2020/05/22/world/europe/ap-eu-virus-outbreak-italy-classical-music.html?searchResultPosition=8
+**A More Idyllic Setting Was Found**\
+`The bride’s mother drew the line at a marriage in the county jail.`\
+https://nytimes.com/2020/05/22/fashion/weddings/a-more-idyllic-setting-was-found.html?searchResultPosition=8
 
-**South Africa Scientists Say Up to 50,000 COVID-19 Deaths Possible**\
-`South Africa could see up to 50,000 coronavirus deaths and as many as 3 million infections by the end of the year as the southern hemisphere winter leads to a higher rate of infection, scientific models showed on Thursday.`\
-https://nytimes.com/reuters/2020/05/22/world/africa/22reuters-health-coronavirus-safrica-models.html?searchResultPosition=9
+**9 Miles, 7 Locations and a 3-Hour Ceremony**\
+`“By deconstructing a traditional wedding, we performed one wedding ritual at each station, drawn from either the German or Chinese traditions,” said Dr. Huchuan Xia of his wedding to Erik Lorenz.`\
+https://nytimes.com/2020/05/22/fashion/weddings/9-miles-7-locations-and-a-3-hour-ceremony.html?searchResultPosition=9
 
-**Indonesia Reports 634 New Coronavirus Cases**\
-`Indonesia reported on Friday 634 new cases of coronavirus infection, taking the total in the Southeast Asian nation to 20,796, according to health ministry official Achmad Yurianto.`\
-https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=10
+**A Big Sur Elopement for Two Olivias**\
+`Olivia Hall and Olivia Reaney were married in an outdoor ceremony on the California coast in Big Sur as family members watched on Zoom.`\
+https://nytimes.com/2020/05/22/fashion/weddings/a-big-sur-elopement-for-two-olivias.html?searchResultPosition=10
 
