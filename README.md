@@ -2,7 +2,7 @@
 `Harley-Davidson Inc. is resuming production at its U.S. manufacturing plants after suspending production for about two months. `\
 https://nytimes.com/aponline/2020/05/21/business/ap-us-virus-outbreak-harley-davidson.html?searchResultPosition=5
 
-**GM Says It Is Reopening Two if Its Mexican Plants Friday**\
+**GM Says It Is Reopening Two of Its Mexican Plants Friday**\
 `General Motors announced Thursday that it is “gradually restarting operations” at engine and transmission plants at two of its four manufacturing complexes in Mexico.`\
 https://nytimes.com/aponline/2020/05/21/business/ap-lt-virus-outbreak-mexico-gm-reopening.html?searchResultPosition=6
 
