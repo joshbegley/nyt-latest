@@ -1,24 +1,24 @@
-**Libya's Tripoli Government Retakes More Areas of Capital**\
-`Libya's internationally recognised government retook parts of southern Tripoli on Friday from the eastern-based Libyan National Army (LNA) of Khalifa Haftar, whose 13-month campaign to seize the capital is under ever-greater pressure. `\
-https://nytimes.com/reuters/2020/05/22/world/europe/22reuters-libya-security.html?searchResultPosition=5
+**Smartphone Data Shows America's Cautious Comeback**\
+`Data from millions of mobile phones shows varying behavior across the United States in May as people responded to the loosening of stay-at-home orders, a Reuters analysis shows.`\
+https://nytimes.com/reuters/2020/05/22/us/22reuters-health-coronavirus-usa-reopening-insight.html?searchResultPosition=5
 
-**Bucs GM Had Two-Year Plan to Land Brady**\
-`Landing Tom Brady was a monumental success borne of an even more substantial mission executed by general manager Jason Licht and the Tampa Bay Buccaneers.`\
-https://nytimes.com/reuters/2020/05/22/sports/football/22reuters-football-nfl-tb-ready-arians.html?searchResultPosition=6
+**Chicago Latinos See Higher Rates of COVID-19 Infections**\
+`When Erendira Martinez’s husband started feeling sick at the beginning of April, he brushed off his cough and told her it was nothing.`\
+https://nytimes.com/aponline/2020/05/22/us/ap-us-virus-outbreak-chicago-latinos.html?searchResultPosition=6
 
-**Hungary Moves to Close Border Camps After E.U. Court Ruling**\
-`Prime Minister Viktor Orban’s government has shifted more than 300 asylum applicants out of detention in fenced “transit zones.”`\
-https://nytimes.com/2020/05/22/world/europe/hungary-migrant-camps.html?searchResultPosition=7
+**Hedge Funds Increased Exposure to Growth Favorites in First Quarter: Goldman**\
+`Hedge funds concentrated their portfolios even further into growth stocks including Amazon.com Inc and Microsoft Corp in the first quarter of 2020 as the COVID-19 pandemic pummeled U.S. markets, Goldman Sachs analysts said in a report.`\
+https://nytimes.com/reuters/2020/05/22/business/22reuters-usa-stocks-hedgefunds.html?searchResultPosition=7
 
-**Jerry Sloan, Hall of Fame N.B.A. Guard and Coach, Dies at 78**\
-`An All-Star with the Bulls, he became an immensely successful coach, turning the Utah Jazz into a powerhouse and a postseason perennial.`\
-https://nytimes.com/2020/05/22/sports/basketball/jerry-sloan-dead.html?searchResultPosition=8
+**UK, Canada, Australia Deeply Concerned at China's Security Proposals for Hong Kong**\
+`Britain, Canada and Australia issued a joint statement on Friday expressing their concern at China's proposals for legislation on national security in Hong Kong.`\
+https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-china-parliament-hongkong-statement.html?searchResultPosition=8
 
-**Parents Really Need a Break. But Is Summer Camp Too Risky?**\
-`Some programs are planning on testing, disinfecting and social distancing to protect children from the virus. Others say camp can’t be safe this year.`\
-https://nytimes.com/2020/05/22/nyregion/summer-camp-coronavirus.html?searchResultPosition=9
+**Pompeo and Hassett Condemn China Over Hong Kong Security Law**\
+`Secretary of State Mike Pompeo and the White House economic adviser, Kevin Hassett, denounced the proposal by Beijing and threatened action.`\
+https://nytimes.com/2020/05/22/world/asia/trump-pompeo-china-hong-kong.html?searchResultPosition=9
 
-**When Should NYC Reopen? Governor Says It Is His Call.**\
-`New York City's mayor unveiled a new set of data thresholds Friday to help determine when to loosen restrictions imposed during the coronavirus pandemic, but his frequent political sparring partner, Gov. Andrew Cuomo, later said it will be up to the state, not the city, to make those decisions.`\
-https://nytimes.com/aponline/2020/05/22/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=10
+**Utah Jazz Coach Jerry Sloan Dies at 78**\
+`Basketball Hall of Famer Jerry Sloan, who coached the Utah Jazz for 23 seasons and led them to two NBA finals, died on Friday due to complications from Parkinson's disease, his former team said. He was 78.`\
+https://nytimes.com/reuters/2020/05/22/sports/basketball/22reuters-basketball-nba-sloan.html?searchResultPosition=10
 
