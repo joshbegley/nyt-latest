@@ -1,24 +1,24 @@
+**Schools Should Decide Whether to Reopen, Says UK Public Health Chief**\
+`It should be for British schools to decide when to reopen following nationwide closures to stem the spread of the coronavirus and some have the confidence to do so, a senior health official said on Friday.`\
+https://nytimes.com/reuters/2020/05/22/technology/22reuters-health-coronavirus-britain-education.html?searchResultPosition=5
+
+**Palestinians Say They Were Not Informed of UAE-Israel Flight**\
+`The Palestinian Authority says it was not informed about a shipment of coronavirus aid sent by the United Arab Emirates to Israel earlier this week on the first known direct commercial flight between the two countries.`\
+https://nytimes.com/aponline/2020/05/22/world/middleeast/ap-ml-israel-palestinians.html?searchResultPosition=6
+
+**UK Short-Dated Gilt Yields Hit Record Lows After Weak Data, BoE Comments**\
+`Short-dated British government bond yields fell further below zero on Friday, setting fresh all-time lows, after data showed a record collapse in retail sales due to the coronavirus and the Bank of England said more bond purchases are "quite possible".`\
+https://nytimes.com/reuters/2020/05/22/world/europe/22reuters-britain-bonds.html?searchResultPosition=7
+
+**Muti to Conduct Classical Music's Return to Italian Stage**\
+`Riccardo Muti will conduct a youth orchestra in an open-air concert launching the annual Ravenna Festival next month in what organizers billed Friday as Italy’s first live classical music performance since its strict lockdown to stop the spread of coronavirus.`\
+https://nytimes.com/aponline/2020/05/22/world/europe/ap-eu-virus-outbreak-italy-classical-music.html?searchResultPosition=8
+
+**South Africa Scientists Say Up to 50,000 COVID-19 Deaths Possible**\
+`South Africa could see up to 50,000 coronavirus deaths and as many as 3 million infections by the end of the year as the southern hemisphere winter leads to a higher rate of infection, scientific models showed on Thursday.`\
+https://nytimes.com/reuters/2020/05/22/world/africa/22reuters-health-coronavirus-safrica-models.html?searchResultPosition=9
+
 **Indonesia Reports 634 New Coronavirus Cases**\
 `Indonesia reported on Friday 634 new cases of coronavirus infection, taking the total in the Southeast Asian nation to 20,796, according to health ministry official Achmad Yurianto.`\
-https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=5
-
-**Ethiopia, Egypt. Sudan Will Resume Talks on Disputed Dam**\
-`Three African countries have signaled their readiness to resume negotiations on a controversial dam that will be the continent's largest. The move by Ethiopia, Egypt and Sudan came after Ethiopian Prime Minister Abiy Ahmed said Thursday his country is ready to return to talks. `\
-https://nytimes.com/aponline/2020/05/22/world/africa/ap-af-ethiopia-dam-dispute.html?searchResultPosition=6
-
-**Coronavirus in N.Y.C.: Latest Updates**\
-`With about two million city residents thought to have inadequate food amid the virus pandemic, the city will soon distribute 1.5 million meals a day.`\
-https://nytimes.com/2020/05/22/nyregion/coronavirus-nyc.html?searchResultPosition=7
-
-**Yemen's Health System 'Has in Effect Collapsed' as COVID Spreads: U.N.**\
-`Coronavirus is believed to be spreading throughout Yemen, where the health care system "has in effect collapsed", the United Nations said on Friday, appealing for urgent funding.`\
-https://nytimes.com/reuters/2020/05/22/world/middleeast/22reuters-health-coronavirus-yemen-un.html?searchResultPosition=8
-
-**EasyJet Chairman Says Proxy Votes Show Founder Lost Key Challenge**\
-`EasyJet said founder Stelios Haji-Ioannou had failed in his attempt to oust the CEO, chairman, CFO and another director, preliminary results of a shareholder vote showed. `\
-https://nytimes.com/reuters/2020/05/22/business/22reuters-health-coronavirus-easyjet.html?searchResultPosition=9
-
-**China's Geely to Explore Deeper Cooperation With Daimler: Chairman**\
-`China's Geely will explore the possibility of deeper cooperation with German luxury automaker Daimler AG, its Chairman Li Shufu said on Friday.`\
-https://nytimes.com/reuters/2020/05/22/business/22reuters-geely-daimler.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=10
 
