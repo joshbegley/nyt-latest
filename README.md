@@ -1,24 +1,24 @@
+**Argentina to Amend $65 Billion Debt Offer, Talks on 'Positive' Course: Minister**\
+`Argentina is planning to amend its offer to creditors to restructure $65 billion in foreign debt, with talks on a positive course despite there being an "important distance" left to cover, Economy Minister Martin Guzman told Reuters.`\
+https://nytimes.com/reuters/2020/05/22/world/americas/22reuters-argentina-debt-guzman-exclusive.html?searchResultPosition=5
+
+**Dollar Edges Up on Rising U.S.-China Tension; Yuan, Other Asian FX Fall**\
+`The dollar gained against major peers on Friday as worries about rising diplomatic tensions between the United States and China supported safe-haven demand for the greenback.`\
+https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-global-forex.html?searchResultPosition=6
+
+**Full Disclosure? Hedge Funds Navigate COVID Health Questions**\
+`As the hedge funds once clustered in London's Mayfair negotiate gyrating markets, they are facing a new line of investor questioning: who has contracted COVID-19?`\
+https://nytimes.com/reuters/2020/05/22/business/22reuters-health-coronavirus-hedgefunds.html?searchResultPosition=7
+
+**Virus Fallout Dampens Spirits as Muslims Mark Major Holiday**\
+`Muslims worldwide will celebrate one of their biggest holidays under the long shadow of the coronavirus, with millions confined to their homes and others gripped by economic concerns during what is usually a festive time of shopping and celebration. `\
+https://nytimes.com/aponline/2020/05/22/world/middleeast/ap-ml-virus-outbreak-ramadan-holiday-lockdown.html?searchResultPosition=8
+
+**On This Day: Born May 23, 1944: John Newcombe, Australian Tennis Player**\
+`Three of John Newcombe's countrymen have won more Grand Slam singles titles but any doubts about his standing in Australian tennis are put to rest at the sport's annual awards night.`\
+https://nytimes.com/reuters/2020/05/22/sports/tennis/22reuters-sport-anniversary-newcombe.html?searchResultPosition=9
+
 **China Focus on Jobs, Fighting Virus as Layoffs Sweep Globe**\
 `China doubled down Friday on efforts to combat the coronavirus pandemic and create jobs as the number of people thrown out of work soars worldwide. `\
-https://nytimes.com/aponline/2020/05/22/business/bc-virus-outbreak.html?searchResultPosition=5
-
-**Word + Quiz: indolent**\
-`This word has appeared in 19 articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/05/22/learning/word-quiz-indolent.html?searchResultPosition=6
-
-**Church That Defied Coronavirus Restrictions Is Burned to Ground**\
-`A message at the scene that said, in part, “Bet you stay home now,” has led the police in Mississippi to suspect arson.`\
-https://nytimes.com/2020/05/22/us/mississippi-church-arson-coronavirus.html?searchResultPosition=7
-
-**FC Cincinnati Botch Announcement of New Coach Stam**\
-`FC Cincinnati hired former Manchester United defender Jaap Stam as its head coach on Thursday, although the Major League Soccer team bungled the online announcement.`\
-https://nytimes.com/reuters/2020/05/22/sports/soccer/22reuters-soccer-mls-cin-stam-coach.html?searchResultPosition=8
-
-**What You Need to Know About the Coronavirus Right Now**\
-`Here's what you need to know about the coronavirus right now:`\
-https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-health-coronavirus-snapshot.html?searchResultPosition=9
-
-**Khashoggi's Sons Forgive Saudi Killers, Sparing 5 Execution**\
-`The family of slain Washington Post columnist Jamal Khashoggi announced Friday they have forgiven his Saudi killers, giving legal reprieve to the five government agents convicted of his murder who’d been sentenced to execution.`\
-https://nytimes.com/aponline/2020/05/22/world/middleeast/ap-ml-saudi-khashoggi.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/22/business/bc-virus-outbreak.html?searchResultPosition=10
 
