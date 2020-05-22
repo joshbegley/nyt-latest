@@ -1,24 +1,24 @@
+**Indonesia Reports 634 New Coronavirus Cases**\
+`Indonesia reported on Friday 634 new cases of coronavirus infection, taking the total in the Southeast Asian nation to 20,796, according to health ministry official Achmad Yurianto.`\
+https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=5
+
+**Ethiopia, Egypt. Sudan Will Resume Talks on Disputed Dam**\
+`Three African countries have signaled their readiness to resume negotiations on a controversial dam that will be the continent's largest. The move by Ethiopia, Egypt and Sudan came after Ethiopian Prime Minister Abiy Ahmed said Thursday his country is ready to return to talks. `\
+https://nytimes.com/aponline/2020/05/22/world/africa/ap-af-ethiopia-dam-dispute.html?searchResultPosition=6
+
+**Coronavirus in N.Y.C.: Latest Updates**\
+`With about two million city residents thought to have inadequate food amid the virus pandemic, the city will soon distribute 1.5 million meals a day.`\
+https://nytimes.com/2020/05/22/nyregion/coronavirus-nyc.html?searchResultPosition=7
+
+**Yemen's Health System 'Has in Effect Collapsed' as COVID Spreads: U.N.**\
+`Coronavirus is believed to be spreading throughout Yemen, where the health care system "has in effect collapsed", the United Nations said on Friday, appealing for urgent funding.`\
+https://nytimes.com/reuters/2020/05/22/world/middleeast/22reuters-health-coronavirus-yemen-un.html?searchResultPosition=8
+
+**EasyJet Chairman Says Proxy Votes Show Founder Lost Key Challenge**\
+`EasyJet said founder Stelios Haji-Ioannou had failed in his attempt to oust the CEO, chairman, CFO and another director, preliminary results of a shareholder vote showed. `\
+https://nytimes.com/reuters/2020/05/22/business/22reuters-health-coronavirus-easyjet.html?searchResultPosition=9
+
 **China's Geely to Explore Deeper Cooperation With Daimler: Chairman**\
 `China's Geely will explore the possibility of deeper cooperation with German luxury automaker Daimler AG, its Chairman Li Shufu said on Friday.`\
-https://nytimes.com/reuters/2020/05/22/business/22reuters-geely-daimler.html?searchResultPosition=5
-
-**Coronavirus Live Updates: U.S. Faces Downturn ‘Without Modern Precedent,’ Fed Chief Warns**\
-`Fraud network targets unemployment programs as jobless claims near 39 million. Flags were ordered lowered over Memorial Day weekend for those who died from the virus.`\
-https://nytimes.com/2020/05/22/us/coronavirus-live-updates.html?searchResultPosition=6
-
-**Column: Coronavirus Is Dark Side of an Urban Interconnected World-Kemp**\
-`Like earlier pandemics, the coronavirus is the dark side of a highly productive, urbanised, interconnected and increasingly prosperous world.`\
-https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-global-energy-kemp.html?searchResultPosition=7
-
-**Ryanair's Lauda Airline to Close Vienna Base, 300 Jobs to Go**\
-`Ryanair's Austrian airline Lauda on Friday said it would shut down its main Vienna base on May 29 with the loss of more than 300 jobs in Austria after it did not manage to agree new labour contracts with the union.`\
-https://nytimes.com/reuters/2020/05/22/business/22reuters-ryanair-austria-laudamotion.html?searchResultPosition=8
-
-**Japan's Finance Minister, Central Bank Governor Meet on Pandemic Response**\
-`Japanese Finance Minister Taro Aso and Bank of Japan Governor Haruhiko Kuroda met in Tokyo, the finance ministry said on Friday, in a show of resolve to coordinate fiscal and monetary policies to combat the widening economic fallout from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-health-coronavirus-japan-economy.html?searchResultPosition=9
-
-**U.S. Strikes at a Huawei Prize: Chip Juggernaut HiSilicon**\
-`The latest U.S. government action against China's Huawei takes direct aim the company's HiSilicon chip division--a business that in a few short years has become central to China's ambitions in semiconductor technology but will now lose access to tools that are central to its success.`\
-https://nytimes.com/reuters/2020/05/22/business/22reuters-usa-huawei-tech-chips-analysis.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/22/business/22reuters-geely-daimler.html?searchResultPosition=10
 
