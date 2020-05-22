@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/05/22/world/europe/22reuters-health-coronavirus
 `On just one day this month, 50 Tanzanian truck drivers tested positive for the coronavirus after crossing into neighboring Kenya. Back home, their president insists that Tanzania has defeated the disease through prayer. `\
 https://nytimes.com/aponline/2020/05/22/world/africa/ap-af-virus-outbreak-tanzanias-defiance.html?searchResultPosition=9
 
-**Goldman Sachs Forecloses on 10,000 Homes for ‘Consumer Relief’**\
-`A federal settlement over the 2008 financial crisis required the bank to offer homeowners $1.8 billion in relief. In the process, it became a big buyer of distressed mortgages.`\
-https://nytimes.com/2020/05/22/business/goldman-sachs-mortgage-foreclosure.html?searchResultPosition=10
+**The Tokyo Olympics Are 14 Months Away. Is That Enough Time?**\
+`International sports are largely on hold. Borders are closed, and a vaccine is not expected to be available soon. The 2021 Games are anything but a slam dunk.`\
+https://nytimes.com/2020/05/22/sports/olympics/coronavirus-tokyo-olympics.html?searchResultPosition=10
 
