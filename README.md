@@ -1,24 +1,24 @@
+**Why Bond Investors Are Willing to Bet on Money-Losing Pemex After Oil Price Crash**\
+`Mexico's state-owned oil company Petroleos Mexicanos has seen investor sentiment improve in recent weeks despite sky-high debts, a slump in demand and no clear direction about how the government will turn the money-losing driller around.`\
+https://nytimes.com/reuters/2020/05/22/business/22reuters-mexico-pemex-bonds-analysis.html?searchResultPosition=5
+
+**As Big Cats Go Hungry, Indonesia Zoo Considers 'Worst-Case' Deer Cull**\
+`A zoo in Indonesia may slaughter some of its animals to feed others, such as a Sumatran tiger and a Javan leopard, if it runs out of food in coming months after the coronavirus pandemic forced it to shut it doors.`\
+https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-health-coronavirus-indonesia-zoo.html?searchResultPosition=6
+
+**AP Count: Over 4,300 Virus Patients Sent to NY Nursing Homes**\
+`More than 4,300 recovering coronavirus patients were sent to New York’s already vulnerable nursing homes under a controversial state directive that was ultimately scrapped amid criticisms it was accelerating the nation’s deadliest outbreaks, according to a count by The Associated Press.`\
+https://nytimes.com/aponline/2020/05/22/us/ap-us-virus-outbreak-new-york-nursing-home-order.html?searchResultPosition=7
+
+**San Francisco Sanctions Once-Shunned Homeless Encampments**\
+`San Francisco is joining other U.S. cities in authorizing homeless tent encampments in response to the coronavirus pandemic, a move officials have long resisted but are now reluctantly embracing to safeguard homeless people. `\
+https://nytimes.com/aponline/2020/05/22/us/ap-us-virus-outbreak-homeless-encampments.html?searchResultPosition=8
+
+**Can Europe Stay Back From the Brink?**\
+`After three months of chaos and deaths caused by the pandemic, the continent, led by Germany and France, is giving convergence another try.`\
+https://nytimes.com/2020/05/22/opinion/europe-back-from-brink.html?searchResultPosition=9
+
 **What’s on TV Friday: ‘Homecoming’ and ‘AKA Jane Roe’**\
 `Janelle Monáe stars in the second season of Amazon’s “Homecoming.” And a documentary about Norma McCorvey debuts on FX.`\
-https://nytimes.com/2020/05/22/arts/television/whats-on-tv-friday-homecoming-and-aka-jane-roe.html?searchResultPosition=5
-
-**Britain’s Ethnic Minorities Are Being Left for Dead**\
-`The government could have predicted, and perhaps prevented, many deaths. It did not.`\
-https://nytimes.com/2020/05/22/opinion/britain-coronavirus-minorities.html?searchResultPosition=6
-
-**Japan Launches Its Version of Fed's 'Main Street' Scheme as Deflation Returns**\
-`Japan's central bank unveiled its own version of the U.S. Federal Reserve's "Main Street" lending programme on Friday, to channel nearly $280 billion to small businesses hit by the coronavirus and stop the economy sliding deeper into recession.`\
-https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-health-coronavirus-boj.html?searchResultPosition=7
-
-**Oil Falls as China Omits 2020 Growth Target Amid Pandemic**\
-`Oil prices fell on Friday after China failed to set an economic growth target for 2020, sparking concerns that the fallout from the coronavirus pandemic will cap fuel demand in the world's second-largest oil user.`\
-https://nytimes.com/reuters/2020/05/22/business/22reuters-global-oil.html?searchResultPosition=8
-
-**China to Draft Food Security Plan Amid Global Coronavirus Epidemic**\
-`China will draft and carry out in 2020 a response plan for ensuring food security amid the global coronavirus pandemic, the country's state planner said on Friday. `\
-https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-china-parliament-agriculture.html?searchResultPosition=9
-
-**China Says It Will Still Pay Attention to Economic Growth Rate**\
-`China will still pay attention to its economic growth rate despite opting not to set a target this year due to heightened uncertainties stemming from the COVID-19 pandemic, an official of the country's cabinet said on Friday. `\
-https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-china-parliament-growth-2020.html?searchResultPosition=10
+https://nytimes.com/2020/05/22/arts/television/whats-on-tv-friday-homecoming-and-aka-jane-roe.html?searchResultPosition=10
 
