@@ -1,4 +1,4 @@
-**Confirmed Pakistan Plane Crash Death Toll at 41: Airline CEO**\
-`At least 41 people are confirmed to have been killed in a plane crash in a residential area of Pakistan's largest city, Karachi,  Pakistan International Airlines' (PIA) chief executive said on Friday.`\
-https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-pakistan-airline-crash-toll.html?searchResultPosition=10
+**Canada to Ramp Up COVID-19 Testing and Tracing, Recommend Digital App**\
+`Canada will ramp up COVID-19 testing and contact tracing as it gradually lifts restrictions and is working closely with Apple Inc and Alphabet Inc's Google on a mobile phone app to help, the prime minister said on Friday.`\
+https://nytimes.com/reuters/2020/05/22/technology/22reuters-health-coronavirus-canada.html?searchResultPosition=10
 
