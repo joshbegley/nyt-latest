@@ -1,24 +1,24 @@
-**AP Week in Pictures, Latin America & Caribbean**\
-`MAY 15-21, 2020`\
-https://nytimes.com/aponline/2020/05/22/us/ap-lt-pictures-of-the-week-in-latin-america-caribbean-photo-gall.html?searchResultPosition=5
+**U.S. Senate Republican Leader Threatens 'Reexamining' U.S.-China Relationship**\
+`U.S. Senate Republican leader Mitch McConnell on Thursday threatened to reexamine the U.S.-Chinese relationship if Beijing pursues a "further crackdown" on Hong Kong, after China was set to impose new national security legislation on the former British colony.`\
+https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-china-parliament-hongkong-usa-senate.html?searchResultPosition=5
 
-**Australia's Wesfarmers to Shut or Rebrand Over 100 Target Stores in Virus Slump**\
-`Australian retail giant Wesfarmers Ltd said it will close or rebrand nearly two-thirds of its Target department stores and take one-off charges totalling up to A$650 million ($426 million) as it reels from the coronavirus fallout.`\
-https://nytimes.com/reuters/2020/05/22/business/22reuters-wesfarmers-restructuring.html?searchResultPosition=6
+**Taiwan Urges China to Start Dialogue With Hong Kong People**\
+`Taiwan urged China on Friday to "sincerely start a dialogue" with people in Hong Kong after China proposed new national security legislation for the former British colony.`\
+https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-china-parliament-hongkong-taiwan-dialogue.html?searchResultPosition=6
 
-**Not Saying My Dog Is Cupid, but …**\
-`It’s hard to argue with the results.`\
-https://nytimes.com/2020/05/22/style/modern-love-coronavirus-dog-as-cupid.html?searchResultPosition=7
+**China Law Requires Hong Kong to Enact National Security Rules as Soon as Possible**\
+`China's proposed new legislation for Hong Kong requires the territory to quickly finish enacting national security regulations under its mini-constitution, the Basic law, according to a draft of the legislation seen by Reuters.`\
+https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-china-parliament-hongkong-legislation.html?searchResultPosition=7
 
-**Your Friday Briefing**\
-`Hong Kong, Coronavirus Vaccine, Arms Control: Here’s what you need to know.`\
-https://nytimes.com/2020/05/21/briefing/hong-kong-coronavirus-vaccine-arms-control.html?searchResultPosition=8
+**Hong Kong Activists Call for Protest March Against New Security Laws**\
+`Hong Kong activists called for a protest march on Friday against Beijing's plans to impose national security legislation in the city, prompting alarm that the new laws could erode its freedoms through "force and fear".`\
+https://nytimes.com/reuters/2020/05/22/world/asia/22reuters-china-parliament-hongkong.html?searchResultPosition=8
 
-**Guatemala President Scolds U.S. for Deporting Migrants With Coronavirus**\
-`Guatemalan President Alejandro Giammattei criticized the United States on Thursday for sending back migrants infected with the novel coronavirus to his Central American country and straining its weak health system.`\
-https://nytimes.com/reuters/2020/05/21/world/americas/21reuters-health-coronavirus-guatemala.html?searchResultPosition=9
+**GOP Weighs Jobless Aid Cuts to Urge Americans Back to Work**\
+`Reconsideration of jobless aid is fast becoming the focus of congressional debate over the next virus aid package`\
+https://nytimes.com/aponline/2020/05/22/us/politics/ap-us-virus-outbreak-congress.html?searchResultPosition=9
 
-**Bank of Japan Helps Fund Small Businesses Fighting Pandemic**\
-`Japan's central bank said Friday it will provide some 30 trillion yen ($280 billion) to banks for financing small and medium-size businesses battling economic hardships brought on by the coronavrius pandemic.`\
-https://nytimes.com/aponline/2020/05/21/business/ap-as-japan-virus-outbreak-central-bank.html?searchResultPosition=10
+**Coronavirus Live Updates: Pandemic Hovers Over China’s Legislative Pageant**\
+`Amid the pomp and propaganda in Beijing, the virus is weighing on President Xi Jinping’s efforts to restart the Chinese economy and show the world that his government has tamed the epidemic.`\
+https://nytimes.com/2020/05/22/world/coronavirus-news.html?searchResultPosition=10
 
