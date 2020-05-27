@@ -1,40 +1,40 @@
-**Elon Musk’s SpaceX Suit Is Like a Tuxedo for the Starship Enterprise**\
-`It also may herald the return of wearable tech.`\
-https://nytimes.com/2020/05/27/fashion/SpaceX-Dragon-Suits.html?searchResultPosition=1
+**UK's Johnson Vows to 'Double Down' on Plans to Boost Economy**\
+`British Prime Minister Boris Johnson said he wanted to "double down" on his previous promises of investing more in infrastructure and technology to help the economy recover from its coronavirus crisis.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-britain-economy.html?searchResultPosition=1
 
-**NASA Chief 'All In' for Tom Cruise to Film on Space Station**\
-`NASA is rolling out the International Space Station’s red carpet for Tom Cruise to make a movie in orbit. `\
-https://nytimes.com/aponline/2020/05/27/science/ap-us-sci-home-launch-tom-cruise.html?searchResultPosition=2
+**Ex-Watergate Prosecutors Say Judge Has Legal Duty to Review Facts in Flynn Case**\
+`Sixteen former Watergate prosecutors on Wednesday said U.S. District Judge Emmet Sullivan should be allowed to review all the facts before deciding whether to grant a Justice Department request to drop the criminal case against President Donald Trump's former national security adviser Michael Flynn.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-usa-trump-flynn.html?searchResultPosition=2
 
-**How AP and Equilar Calculated CEO Pay**\
-`For its annual analysis of CEO pay, The Associated Press used data provided by Equilar, an executive data firm.`\
-https://nytimes.com/aponline/2020/05/27/business/ap-us-ceo-pay-methodology.html?searchResultPosition=3
+**Pompeo Says Hong Kong Does Not Warrant Pre-1997 Special Treatment**\
+`Secretary of State Mike Pompeo said he had certified on Wednesday to Congress that Hong Kong no longer warranted special treatment under U.S. law in the same way that applied when the territory was still under British law before July 1997.`\
+https://nytimes.com/reuters/2020/05/27/technology/27reuters-hongkong-protests-usa-pompeo.html?searchResultPosition=3
 
-**26 Arrested in People-Smuggling Case Linked to U.K. Truck Deaths**\
-`France and Belgium said the suspects were part of a wider network that transported the 39 Vietnamese migrants whose bodies were found in Britain last year.`\
-https://nytimes.com/2020/05/27/world/europe/essex-lorry-deaths-smuggling-network.html?searchResultPosition=4
+**U.S. Sanctions Advisory Raises Hurdles for Global Maritime Industry**\
+`Ship owners and insurers say it may be impossible for the maritime industry to fully comply with the Trump administration’s new guidelines on how to avoid sanctions penalties related to Iran, North Korea and Syria, raising the risk of disruptions in a sector already struggling with the fallout of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/05/27/world/middleeast/27reuters-usa-sanctions-maritime.html?searchResultPosition=4
 
-**Mexico President to Resume Travel, Fly Commercial Next Week**\
-`Just hours after Mexican health officials reported record numbers of deaths and new coronavirus infections, President Andrés Manuel López Obrador said Wednesday he will resume his travel schedule next week, flying commercial to the beach destination of Cancun.`\
-https://nytimes.com/aponline/2020/05/27/world/americas/ap-lt-virus-outbreak-mexico.html?searchResultPosition=5
+**Starboard Set to Win Eight Board Seats at GCP Applied Technologies: Sources**\
+`Hedge fund Starboard Value LP is close to getting all of its eight nominees elected as board directors at GCP Applied Technologies Inc's annual shareholder meeting, people familiar with the matter said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-gcp-applied-tech-starboard.html?searchResultPosition=5
 
-**UK's Johnson: 24-Hour COVID Test Results as Soon as Possible**\
-`British Prime Minister Boris Johnson said on Wednesday he wanted coronavirus test results to be returned within 24 hours as his government prepares to launch a new tracing system to try to contain the spread of COVID-19.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-britain-test.html?searchResultPosition=6
+**Online Shopping Highlights Cuba's Inequality in Time of Coronavirus**\
+`The coronavirus pandemic is highlighting growth in inequality in Communist Cuba as worsening shortages force most citizens to spend hours in line to purchase basic goods while the better-off are shopping online. `\
+https://nytimes.com/reuters/2020/05/27/world/americas/27reuters-health-coronavirus-cuba-inequality.html?searchResultPosition=6
 
-**For Many Caregivers and People With Disabilities, WFH Was Never Just a Perk**\
-`The coronavirus pandemic is showing that commutes and offices aren’t always options. To some, that’s not news.`\
-https://nytimes.com/2020/05/27/at-home/work-from-home-history.html?searchResultPosition=7
+**AMD’S Su, Discovery’s Zaslav Among Highest Paid CEOs**\
+`Here are the highest paid male and female CEOs in the S&P 500 index for 2019, as calculated by The Associated Press and Equilar, an executive data firm.`\
+https://nytimes.com/aponline/2020/05/27/business/bc-ceo-pay-top-paid-male-female.html?searchResultPosition=7
 
-**Special Report: U.S. Takes Aim at the Power Behind Venezuela's Maduro: His First Lady**\
-`Four years ago, a bit player in the Venezuelan leadership was arrested in Colombia and extradited to the United States to face drug charges. He proved to be an important catch.`\
-https://nytimes.com/reuters/2020/05/27/world/americas/27reuters-venezuela-politics-flores-specialreport.html?searchResultPosition=8
+**Pompeo Says Hong Kong No Longer Has Autonomy Under China**\
+`The State Department announcement comes as President Trump weighs taking hard actions against China, which is expected to approve a national security law on Hong Kong on Thursday.`\
+https://nytimes.com/2020/05/27/us/politics/china-hong-kong-pompeo-trade.html?searchResultPosition=8
 
-**For Mothers With Coronavirus, Baby's First Coo Is Over the Phone**\
-`"It's a girl and she is fine, we all are fine," said Rayhona, 23. "They have shown her to me on a smartphone."`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-russia-hospital.html?searchResultPosition=9
+**Author, AIDS Policy Advocate Larry Kramer Dead at 84: New York Times**\
+`Author Larry Kramer, whose early advocacy for a national response to AIDS as the disease first emerged in the 1980s helped raise awareness and shape health care policy into the 1990s, died on Wednesday at 84, The New York Times reported. `\
+https://nytimes.com/reuters/2020/05/27/us/27reuters-people-larry-kramer.html?searchResultPosition=9
 
-**Washington, D.C. Will Begin Reopening on Friday: Mayor**\
-`Washington, D.C. is set to begin its first phase of reopening on Friday, the federal district's mayor said on Wednesday.`\
-https://nytimes.com/reuters/2020/05/27/us/27reuters-health-coronavirus-washingtondc.html?searchResultPosition=10
+**Italy Records 117 New Coronavirus Deaths, 584 New Cases**\
+`Deaths from the COVID-19 epidemic in Italy climbed by 117 on Wednesday, against 78 the day before, the Civil Protection Agency said, while the daily tally of new cases climbed to 584 from 397 on Tuesday.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-italy-tally.html?searchResultPosition=10
 
