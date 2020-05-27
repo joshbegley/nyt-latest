@@ -1,40 +1,40 @@
-**Denmark Residents Sue Over Laws for Dismantling 'Ghettos'**\
-`A group of Copenhagen residents sued the Danish government Wednesday over legislation that authorized dismantling neighborhoods designated as “ghettos," arguing that the measures discriminate on the basis of ethnicity and should be overturned in court. `\
-https://nytimes.com/aponline/2020/05/27/world/europe/ap-eu-denmark-ghetto-lawsuit.html?searchResultPosition=1
+**Our Favorite Restaurants, in Recipes**\
+`We’ve gathered dishes and stories from across the United States to help you remember some of the places you love most.`\
+https://nytimes.com/2020/05/27/dining/our-favorite-restaurants-in-recipes.html?searchResultPosition=1
 
-**Suspension Rust Problem Forces Mitsubishi to Recall Vehicles**\
-`Mitsubishi is recalling nearly 223,000 vehicles in Canada and cold-weather U.S. states because parts of the suspension can rust, detach and cause drivers to lose control.`\
-https://nytimes.com/aponline/2020/05/27/business/ap-us-mitsubishi-recall.html?searchResultPosition=2
+**Poland's Presidential Vote Necessary by June 28: Ruling Party**\
+`The last possible date that Poland could hold a presidential election on is June 28, the leader of the country's ruling nationalists Law and Justice (PiS) Jaroslaw Kaczynski said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-poland-election-date.html?searchResultPosition=2
 
-**New Search for Student Wanted in Killings Comes Up Empty**\
-`A man matching the description of a fugitive college student wanted in the killings of two people in Connecticut was seen in northeastern Pennsylvania, sparking a new search that lasted several hours but came up empty, authorities said Wednesday.`\
-https://nytimes.com/aponline/2020/05/27/us/ap-us-slayings-search.html?searchResultPosition=3
+**Bosnia and Croatia Arrest Eight Suspected Migrant Smugglers**\
+`Police from Bosnia, Croatia and regional agency Europol caught eight suspected traffickers on Wednesday and blocked the smuggling of 45 migrants into the European Union (EU), Bosnian authorities said.`\
+https://nytimes.com/reuters/2020/05/27/world/middleeast/27reuters-bosnia-migrants.html?searchResultPosition=3
 
-**Tech Reboot in Store for EU as Plans Recovery From Crisis**\
-`From ramping up 5G's rollout to exploiting its data, the European Union is turning to technology to help it bounce back from the coronavirus crisis and compete better in key areas with the United States and China.`\
-https://nytimes.com/reuters/2020/05/27/technology/27reuters-eu-budget-recovery-tech.html?searchResultPosition=4
+**Bulgarian Police Seize $44 Million Worth of Cocaine From Apartment**\
+`Bulgarian police on Wednesday seized more than $43 million worth of cocaine from an apartment in the capital Sofia, occupied by a man who was detained a day earlier after police found 40 kg of the drug in his car, prosecutors said in a statement.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-bulgaria-drugs.html?searchResultPosition=4
 
-**Hydrogen as Fuel? An Italian Pasta Factory Shows How It Could Work**\
-`A producer of orecchiette and paccheri is using the potentially clean energy source in a trial.`\
-https://nytimes.com/2020/05/27/business/hydrogen-fuel-climate-change.html?searchResultPosition=5
+**Brazil Poll Shows 60% Support Tougher Lockdowns to Combat Coronavirus**\
+`Most Brazilians support stricter social distancing measures, according to a survey by pollster Datafolha published on Wednesday, to combat the novel coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/27/world/americas/27reuters-health-coronavirus-brazil.html?searchResultPosition=5
 
-**Hershey Says Mint, Gum Sales Hit as Lockdowns Restrict Social Gatherings**\
-`Hershey Co said on Wednesday sales of gums and mints have taken a hit as social distancing protocols spurred by the COVID-19 pandemic discouraged people from participating in gatherings.`\
-https://nytimes.com/reuters/2020/05/27/business/27reuters-health-coronavirus-hershey.html?searchResultPosition=6
+**Zoom Calls, Drive-Ins: Danes Get Creative for Soccer Restart**\
+`When Danish soccer resumes in empty stadiums this week amid the coronavirus pandemic, teams will be competing for points on the field and to deliver the most innovative experience for their fans off it.`\
+https://nytimes.com/aponline/2020/05/27/sports/soccer/ap-soc-denmark-creative-clubs.html?searchResultPosition=6
 
-**Germany's Altmaier: Lufthansa Bailout Is in Europe's Own Interests**\
-`German Economy Minister Peter Altmaier said on Wednesday he expected the European Commission to approve a 9-billion euro bailout of flagship carrier Lufthansa, adding that it was also in Europe's interests to avoid a sell-off of such companies.`\
-https://nytimes.com/reuters/2020/05/27/business/27reuters-health-coronavirus-lufthansa-rescue-altmaier.html?searchResultPosition=7
+**Argentina's Warped Peso Means Cars Are Half Price-If You Have Dollars**\
+`Argentina's car dealers - used to selling at sky-high prices due to steep taxes - are getting a boost from the gap between official and informal values of the country's peso, which is halving the sticker price for buyers with dollars.`\
+https://nytimes.com/reuters/2020/05/27/world/americas/27reuters-argentina-autos-currency.html?searchResultPosition=7
 
-**Quest Diagnostics Launches Coronavirus Testing for Employees Returning to Work**\
-`Quest Diagnostics Inc on Wednesday launched services to support large-scale testing for the new coronavirus as companies look to bring employees back to offices safely.`\
-https://nytimes.com/reuters/2020/05/27/us/27reuters-health-coronavirus-questdiagnostics.html?searchResultPosition=8
+**NY Fed's Williams Says U.S. Economy Could Rebound in Second Half but Uncertainty Remains**\
+`The U.`\
+https://nytimes.com/reuters/2020/05/27/us/27reuters-usa-fed-williams.html?searchResultPosition=8
 
-**Vatican Exiles Leader of Bose Monastic Community**\
-`The Vatican has disciplined another charismatic religious leader, exiling the founder of an Italian monastic community over governance problems. `\
-https://nytimes.com/aponline/2020/05/27/world/europe/ap-eu-rel-vatican-governance.html?searchResultPosition=9
+**UK Can Help Companies Prepare for Brexit and COVID-19, Minister Says**\
+`The British government is working with businesses to help them prepare for the departure from the European Union even as it helps them cope with the coronavirus pandemic, cabinet office minister Michael Gove said on Wednesday. `\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-britain-eu-business.html?searchResultPosition=9
 
-**The N.B.A. May Return Too Soon**\
-`In this week’s newsletter, Marc Stein explores the risks of a July comeback, remembers Jerry Sloan and explains why the ’90s Western Conference is (wrongly) seen as weak.`\
-https://nytimes.com/2020/05/27/sports/basketball/nba-return-july.html?searchResultPosition=10
+**Factbox: EU Reactions to Commission 750 Billion Euro Coronavirus Recovery Scheme**\
+`The European Commission proposed on Wednesday to borrow 750 billion euros on the market and issue grants and loans to EU countries to kick-start an economic recovery after the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-eu-budget-recovery-reaction-factbox.html?searchResultPosition=10
 
