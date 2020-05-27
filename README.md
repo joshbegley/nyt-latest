@@ -1,6 +1,6 @@
 **6 Steps to Become a Better Reader**\
 `You want to read more but are having a hard time staying focused? This list will help keep you on track.`\
-https://nytimes.com/interactive/2020/05/27/burst/6-steps-to-become-a-bette-reader.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/05/27/burst/6-steps-to-become-a-better-reader.html?searchResultPosition=1
 
 **Our Favorite Restaurants, in Recipes**\
 `We’ve gathered dishes and stories from across the United States to help you remember some of the places you love most.`\
