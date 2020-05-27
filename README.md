@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/05/26/world/americas/26reuters-health-coronavir
 `Vowing not to back down after armed protesters gathered near his home and hung him in effigy, the governor of Kentucky on Tuesday condemned their use of “fear and terror” in a demonstration fueled by coronavirus restrictions.`\
 https://nytimes.com/aponline/2020/05/26/us/ap-us-virus-outbreak-governor-effigy-1st-ld-writethru.html?searchResultPosition=3
 
-**AP Source: A's to Place Scouts on Furlough**\
+**AP Source: A's to Place Scouts on Furlough; Dodgers Cut Pay**\
 `The Oakland Athletics are placing their scouts and selected other front office employees on furlough and cutting the salaries of other executives as part of a cost-cutting move in response to the COVID-19 pandemic.`\
 https://nytimes.com/aponline/2020/05/26/sports/baseball/ap-bba-athletics-furloughs.html?searchResultPosition=4
 
