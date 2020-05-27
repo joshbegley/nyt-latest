@@ -1,40 +1,40 @@
-**AP FACT CHECK: Trump Falsely Blames Obama for Pricey Drugs**\
-`President Donald Trump tangled the facts when he asserted Tuesday at a White House Rose Garden event that “Obamacare” raised prescription drug costs for older people — the opposite is true.`\
-https://nytimes.com/aponline/2020/05/27/business/ap-us-trump-fact-check-medicare.html?searchResultPosition=1
+**Wall Street Frets as 'Unloved' Stock Rally Powers On**\
+`The love-hate relationship many investors had with U.S. stocks during the more-than-decade-long bull market is reemerging, as equities steadily climb in the face of economic devastation and uncertainty over the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-health-coronavirus-rally-analysis.html?searchResultPosition=1
 
-**Graham Calls Rosenstein as First Witness in Russia Probe**\
-`Former Deputy Attorney General Rod Rosenstein will testify next week at a Senate committee hearing on the Justice Department's Russia investigation, the panel chairman said Wednesday.`\
-https://nytimes.com/aponline/2020/05/27/us/politics/ap-us-trump-russia-probe-congress.html?searchResultPosition=2
+**23 U.S. States Sue Trump Administration Over Fuel Efficiency Rollback**\
+`A group of 23 U.S. states led by California, the District of Columbia and four major cities are filing suit Wednesday to challenge a Trump administration decision to weaken Obama administration fuel efficiency standards.`\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-usa-autos-emissions.html?searchResultPosition=2
 
-**Steve Yzerman Says Red Wings Coach Jeff Blashill Keeping Job**\
-`Detroit Red Wings general manager Steve Yzerman is keeping coach Jeff Blashill despite another lackluster season.`\
-https://nytimes.com/aponline/2020/05/27/sports/hockey/ap-hkn-red-wings-blashill.html?searchResultPosition=3
+**New York's Cuomo Says Discussed Infrastructure With Trump, Railed Against Partisanship**\
+`New York Governor Andrew Cuomo said his meeting with U.S. President Donald Trump on Wednesday focused on how to "supercharge" the economy by investing in infrastructure, and he called on Republicans to approve federal funding to state and local governments crippled by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/27/us/27reuters-health-coronavirus-usa-new-york.html?searchResultPosition=3
 
-**Brazil's Most Populous State Eyes Reopening Business in June**\
-`Sao Paulo state, the epicenter of the coronavirus outbreak in Brazil, will reopen some of its closed businesses starting June 1 despite a fast growing number of confirmed COVID-19 cases. `\
-https://nytimes.com/aponline/2020/05/27/world/americas/ap-lt-virus-outbreak-brazil.html?searchResultPosition=4
+**Trump’s False Tweets, and Twitter’s Response**\
+`Readers discuss the president’s claim that a prominent TV host was guilty of murder and Twitter’s refusal to remove it and other untrue tweets.`\
+https://nytimes.com/2020/05/27/opinion/letters/trump-false-tweets.html?searchResultPosition=4
 
-**5 Killed in Fire at Bangladesh Coronavirus Treatment Tent**\
-`Fire swept through a tent set up outside a hospital in an upscale area of the Bangladeshi capital to treat people infected with the coronavirus, killing five people, an official said Wednesday.`\
-https://nytimes.com/aponline/2020/05/27/world/asia/ap-as-virus-outbreak-bangladesh.html?searchResultPosition=5
+**Ferragamo Calls Back Norsa to Help Weather COVID Storm**\
+`Italian luxury group Salvatore Ferragamo has called back former CEO Michele Norsa as executive director to help management revamp the brand and weather the COVID-19 storm.`\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-health-coronavirus-ferragamo.html?searchResultPosition=5
 
-**The Bird Watcher, That Incident and His Conflicted Feelings on Her Fate**\
-`Christian Cooper is already back birding at Central Park. “I’m not excusing the racism,” he said. “But I don’t know if her life needed to be torn apart.”`\
-https://nytimes.com/2020/05/27/nyregion/amy-cooper-christian-central-park-video.html?searchResultPosition=6
+**Huawei CFO Loses Key Aspect of U.S. Extradition Case in Canada Court**\
+`Huawei Technologies Co Ltd's Chief Financial Officer Meng Wanzhou has lost a key aspect of the trial on her extradition to the United States, a Canadian court announced on Wednesday.`\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-usa-huawei-tech-canada-meng.html?searchResultPosition=6
 
-**Sweaty Scrums? How Rugby May Adapt to Return to Play**\
-`What happens when the rules don’t allow for social distancing? It depends on who you ask. Plus truncated soccer seasons, and the potential return of fans to tennis matches.`\
-https://nytimes.com/2020/05/27/sports/coronavirus-rugby.html?searchResultPosition=7
+**Micron Raises Third-Quarter Revenue Forecast**\
+`Micron Technology Inc raised its revenue forecast for the third quarter on Wednesday to a range of $5.2 billion to $5.4 billion from $4.6 billion to $5.2 billion, sending its shares about 3% higher.`\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-micron-tech-outlook.html?searchResultPosition=7
 
-**Trump Opposition Throws Surveillance Legislation in Doubt**\
-`Legislation to extend surveillance authorities that the FBI sees as vital in fighting terrorism was thrown in doubt Wednesday as President Donald Trump, the Justice Department and congressional Republicans all came out in opposition. `\
-https://nytimes.com/aponline/2020/05/27/us/politics/ap-us-congress-surveillance.html?searchResultPosition=8
+**U.S. CDC Reports Total of 1.68 Million Coronavirus Cases, 99,031 Deaths**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Wednesday reported 1,678,843 cases of the new coronavirus, an increase of 16,429 cases from its previous count, and said that the number of deaths had risen by 770 to 99,031.`\
+https://nytimes.com/reuters/2020/05/27/us/27reuters-health-coronavirus-usa-cdc.html?searchResultPosition=8
 
-**Sporting Goods Industry Hit or Miss During Pandemic**\
-`Brian Morris faced a difficult scenario when the coronavirus pandemic started leading to shutdowns across the nation.`\
-https://nytimes.com/aponline/2020/05/27/business/ap-us-virus-outbreak-sporting-goods.html?searchResultPosition=9
+**Total Number of Coronavirus Cases in Gulf Arab States Surpasses 200,000: Reuters Tally**\
+`The number of coronavirus cases in the six Gulf Arab states doubled in less than a month to surpass 200,000 on Wednesday, according to a Reuters' tally, at a time the region's two biggest economies move to resume activity.`\
+https://nytimes.com/reuters/2020/05/27/world/middleeast/27reuters-health-coronavirus-gulf.html?searchResultPosition=9
 
-**Disney World Set to Reopen in July**\
-`The Florida resort attracts 93 million visitors annually but capacity will be limited, face masks will be mandatory and you won’t be able to hug Mickey Mouse.`\
-https://nytimes.com/2020/05/27/business/coronavirus-disney-world-reopening.html?searchResultPosition=10
+**Ross Stripling Pitches ... Financial Advice During Pandemic**\
+`Ross Stripling has spent much of the last two months working on an island —- the one in the kitchen of his Houston home.`\
+https://nytimes.com/aponline/2020/05/27/sports/baseball/ap-bbn-striplings-stock-up.html?searchResultPosition=10
 
