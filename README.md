@@ -1,40 +1,40 @@
-**On This Day: Born May 28, 1888: Jim Thorpe, American Athlete**\
-`Jim Thorpe, a two-time Olympic gold medallist and formidable American football and baseball player, was one of the greatest U.S. athletes of all time but the public often failed to recognise him as one of their own during his lifetime.`\
-https://nytimes.com/reuters/2020/05/27/sports/football/27reuters-sport-anniversary-thorpe.html?searchResultPosition=1
+**Swiss to Announce Further Relaxation of Coronavirus Rules-NZZ**\
+`Switzerland will decide on Wednesday on further relaxations of restrictions brought in to stem the spread of the new coronavirus, including how to reopen nightclubs and football stadiums, the Neue Zuercher Zeitung paper reported.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-swiss.html?searchResultPosition=1
 
-**AP EXPLAINS: Why Is China Pushing Hong Kong Security Law**\
-`China is taking matters into its own hands after last year's tumultuous anti-government protests in Hong Kong that often descended into tear gas-filled clashes. `\
-https://nytimes.com/aponline/2020/05/27/world/asia/ap-as-ap-explains-hong-kong-security-law.html?searchResultPosition=2
+**Bulgaria to Reopen Restaurants, Bars and Cafes on June 1**\
+`Bulgaria will allow restaurants, bars and cafes to reopen at full capacity on Monday as the Balkan country further eased restrictions imposed in mid-March to stop the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-bulgaria.html?searchResultPosition=2
 
-**Word + Quiz: cummerbund**\
-`This word has appeared in two articles on NYTimes.com in the past year.`\
-https://nytimes.com/2020/05/27/learning/word-quiz-cummerbund.html?searchResultPosition=3
+**With Test Results Lost, an Afghan Family Fell to Virus**\
+`As in many Afghan households, dinner at Dr. Yousuf Aryubi’s home meant the whole family — his mother, his siblings, their children — sitting on the floor together around a mat laid with food on the carpet.`\
+https://nytimes.com/aponline/2020/05/27/world/asia/ap-as-virus-outbreak-afghan-family.html?searchResultPosition=3
 
-**California Eases Pandemic Restrictions; New York Stock Exchange Opens**\
-`California, the most populous U.S. state, took another step on Tuesday toward ending sweeping lockdowns imposed to contain the coronavirus pandemic, allowing barber shops and hair salons in most counties to operate for the first time in more than two months.`\
-https://nytimes.com/reuters/2020/05/27/us/27reuters-health-coronavirus-usa-cuomo.html?searchResultPosition=4
+**Dollar Gains, Yuan Takes Hit as Hong Kong Simmers**\
+`The dollar edged higher on Wednesday as worries about the U.S. response to China's proposed security law and renewed protests in Hong Kong supported safe-haven demand for the greenback.`\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-global-forex.html?searchResultPosition=4
 
-**Drugmaker Sanofi to Raise Over $11 Billion via Sale of Regeneron Shares**\
-`Sanofi will raise over $11 billion from the sale of 21.6 million shares in its U.S. partner Regeneron, the French drugmaker said on Wednesday, adding it would use the proceeds for innovation and general growth.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-sanofi-regeneron.html?searchResultPosition=5
+**Lost Hikers Found Alive After 18 Days in New Zealand Forest**\
+`Two New Zealand hikers survived for more than 18 days in a densely-forested national park before being found alive on Wednesday, rescue officials said.`\
+https://nytimes.com/reuters/2020/05/27/world/asia/27reuters-newzealand-rescue.html?searchResultPosition=5
 
-**Horse Racing: Derby Favourite Charlatan Tests Positive for Banned Substance-NY Times**\
-`Two horses trained by Hall of Fame trainer Bob Baffert, including Kentucky Derby favourite Charlatan, have tested positive for a banned substances, the New York Times reported.`\
-https://nytimes.com/reuters/2020/05/27/sports/27reuters-horseracing-baffert.html?searchResultPosition=6
+**French Economy Could Contract 20% in Second Quarter: INSEE**\
+`France's economy is on course to contract 20% in the second quarter from the previous three months as the country emerges from a nationwide coronavirus lockdown, the INSEE official statistics agency estimated on Wednesday. `\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-france-economy.html?searchResultPosition=6
 
-**Hong Kong Police Fire Pepper Pellets as Protests Flare in Financial Heart**\
-`Hong Kong riot police fired pepper pellets on Wednesday to disperse protesters in the heart of the global financial centre, where Beijing's proposed national security laws have revived anti-government demonstrations. `\
-https://nytimes.com/reuters/2020/05/27/world/asia/27reuters-hongkong-protests-police.html?searchResultPosition=7
+**French Consortium Steps Up Plans for Saliva-Based COVID-19 Screening Test**\
+`A French consortium said on Wednesday that it was stepping up its previously announced plans for a saliva-based screening test to detect COVID-19, by joining up with medical laboratory and diagnostics group INOVIE.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-france-test.html?searchResultPosition=7
 
-**Malaysia's Axiata to Pick Two 5G Vendors, in Move That Could Curb Reliance on Huawei**\
-`Axiata Group Bhd, Malaysia's third-biggest telecom operator by subscribers, said it would select two equipment suppliers to roll out 5G services, opening the door for the likes of Ericsson to fight it out with dominant player Huawei.`\
-https://nytimes.com/reuters/2020/05/27/technology/27reuters-axiata-group-malaysia-5g.html?searchResultPosition=8
+**Asia Stocks Mixed on Uncertainty Over Hong Kong Security Law**\
+`Asian stock markets were mixed Wednesday as U.S.-Chinese tension over Hong Kong competed with optimism about recovery from the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/05/27/business/bc-financial-markets.html?searchResultPosition=8
 
-**AP-NORC Poll: Half of Americans Would Get a COVID-19 Vaccine**\
-`Only about half of Americans say they would get a COVID-19 vaccine if the scientists working furiously to create one succeed, according to a new poll from The Associated Press-NORC Center for Public Affairs Research. `\
-https://nytimes.com/aponline/2020/05/27/us/bc-us-ap-poll-virus-outbreak-vaccines.html?searchResultPosition=9
+**Novartis Touts Older Cancer Drug for MS in Attack on Roche's Ocrevus**\
+`Novartis said on Wednesday that an older leukaemia drug it is re-purposing for multiple sclerosis halted disease activity in many patients during the first two years of injections as the Swiss drugmaker takes aim at Roche's lucrative Ocrevus infusion. `\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-novartis-multiple-sclerosis.html?searchResultPosition=9
 
-**Tiafoe Wants to Draw More Black Kids to Tennis**\
-`American Frances Tiafoe has already changed the lives of his immigrant parents thanks to his tennis career and the 2019 Australian Open quarter-finalist hopes he can also inspire more black kids to take up the sport.`\
-https://nytimes.com/reuters/2020/05/27/sports/tennis/27reuters-tennis-men-tiafoe.html?searchResultPosition=10
+**Coronavirus Toll on Italy's Elderly Strains 'Nonni' Safety Net**\
+`Paola Berardi, 70, and her husband Mauro have taken care of their two grandchildren every weekday for the past decade while their daughter went to work in a chemical company. Every summer, they decamped with the twins to a seaside resort on the northern Italian coast.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-italy-grandparents-insight.html?searchResultPosition=10
 
