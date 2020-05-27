@@ -1,40 +1,40 @@
+**Deutsche Bank, BlackRock CEOs Warn Against Too Much Optimism in Markets**\
+`The heads of Deutsche Bank and BlackRock on Wednesday warned against too much optimism in financial markets.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-deutsche-bank-ceo-blackrock.html?searchResultPosition=1
+
+**France Concerned by the Future Adoption of Security Law on Hong Kong**\
+`Foreign Minister Jean-Yves le Drian said on Wednesday France was concerned by China's proposed national security legislation that has raised international alarm over freedoms in Hong Kong.`\
+https://nytimes.com/reuters/2020/05/27/world/asia/27reuters-hongkong-protests-france.html?searchResultPosition=2
+
+**Russia Says Postpones July BRICS Summit Due to Coronavirus**\
+`Russia said on Wednesday it has decided to postpone the summit of the BRICS nations, initially scheduled to be held in St. Petersburg in July, due to the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/05/27/world/27reuters-health-coronavirus-russia-brics.html?searchResultPosition=3
+
+**Saudi-Led Coalition Says It Downed Houthi Drone Launched Toward Najran**\
+`The Saudi-led coalition engaged in Yemen said its forces intercepted and downed a drone launched by the Iran-aligned Houthi movement towards the Saudi border city of Najran on Wednesday, state news agency SPA reported.`\
+https://nytimes.com/reuters/2020/05/27/world/middleeast/27reuters-yemen-security-saudi.html?searchResultPosition=4
+
+**Beleaguered Sterling Heads Into a Perfect Storm**\
+`Sterling is beset by woes. `\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-britain-eu-sterling-outlook-graphic.html?searchResultPosition=5
+
+**Exclusive: Chevron Sees Up to 15% Reduction in Positions-Memo**\
+`Chevron Corp expects a 10% to 15% reduction in positions across the company as part of restructuring efforts it started late last year, according to an internal memo seen by Reuters.`\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-chevron-layoffs-exclusive.html?searchResultPosition=6
+
+**Where U.S. Coronavirus Cases Are on the Rise**\
+`Twenty U.S. states reported an increase in new cases of COVID-19 for the week ended May 24, up from 13 states in the prior week, as the death toll from the novel coronavirus approaches 100,000, according to a Reuters analysis.`\
+https://nytimes.com/reuters/2020/05/27/us/27reuters-health-coronavirus-usa-trends-graphic.html?searchResultPosition=7
+
 **Forty Villagers Killed in Massacre in Northeast Congo**\
 `Suspected Islamist militants have killed at least 40 people in northeastern Congo, a rights group said on Wednesday, the latest in a wave of attacks against civilians in the mountainous jungles near the Ugandan border.`\
-https://nytimes.com/reuters/2020/05/27/world/africa/27reuters-congo-violence.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/05/27/world/africa/27reuters-congo-violence.html?searchResultPosition=8
 
 **Germany to Lift Virus-Related Travel Warning for EU Countries From June 15**\
 `Germany will lift a warning against travel to 26 fellow EU countries from June 15, Foreign Minister Heiko Maas said on Wednesday, adding that Berlin would decide later on its travel guidelines for other countries, including Turkey.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-germany-restrictions.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-germany-restrictions.html?searchResultPosition=9
 
 **France Sees Syria Scenario Being Replicated in Libya: Minister**\
 `French Foreign Minister Jean-Yves le Drian said on Wednesday the situation in Libya was very worrying, warning the Syria scenario was being replicated in the country.`\
-https://nytimes.com/reuters/2020/05/27/world/middleeast/27reuters-libya-security-france.html?searchResultPosition=3
-
-**Italy PM Meeting With Allies Fails to Break Atlantia Deadlock-Sources**\
-`A meeting between Italy's Prime Minister Giuseppe Conte and coalition allies on Wednesday to try settle a row over Atlantia's motorway business yielded no progress, two government sources said. `\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-italy-motorway-atlantia.html?searchResultPosition=4
-
-**Pakistan Says It Shot Down Indian Drone Inside Kashmir**\
-`Pakistani troops shot down a small Indian spy drone as it flew into the country's airspace over the disputed Himalayan region of Kashmir on Wednesday, the military said.`\
-https://nytimes.com/aponline/2020/05/27/world/asia/ap-as-pakistan-india.html?searchResultPosition=5
-
-**Gru and Minions Urge Handwashing, Fun at Home in New Coronavirus Public Service Announcement**\
-`Gru and the popular yellow Minions from the animated "Despicable Me" movie franchise are urging people to keep their distance to help fight the spread of the novel coronavirus in a new public service announcement unveiled on Wednesday.`\
-https://nytimes.com/reuters/2020/05/27/arts/27reuters-health-coronavirus-minions.html?searchResultPosition=6
-
-**Ex-White House Hopeful Gabbard Drops Defamation Suit Against Hillary Clinton**\
-`Tulsi Gabbard, a U.S. congresswoman from Hawaii, dropped a lawsuit against the Democratic Party's former presidential nominee Hillary Clinton for defamation on Wednesday, according to a court filing.`\
-https://nytimes.com/reuters/2020/05/27/us/politics/27reuters-usa-election-gabbard.html?searchResultPosition=7
-
-**Turkey: Soldier Killed in Explosion in Syria's Idlib**\
-`Turkey’s defense ministry has announced the death of a Turkish soldier in Idlib, the last rebel-held territory in northwest Syria.`\
-https://nytimes.com/aponline/2020/05/27/world/middleeast/ap-ml-syria.html?searchResultPosition=8
-
-**History in the Making as House Is Poised for Proxy Voting**\
-`It’s a day that's shaping up as one for the history books: For the first time, House lawmakers intend to vote by proxy, a move to avoid the risk of travel to Washington during the pandemic.`\
-https://nytimes.com/aponline/2020/05/27/business/ap-us-virus-outbreak-congress-1st-ld-writethru.html?searchResultPosition=9
-
-**Disney, SeaWorld Announce Plans for Florida Parks to Reopen**\
-`SeaWorld and Walt Disney World will reopen in Orlando, Florida, in June and July after months of inactivity because of the coronavirus pandemic, according to plans a city task force approved Wednesday. `\
-https://nytimes.com/aponline/2020/05/27/business/bc-us-virus-outbreak-florida.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/27/world/middleeast/27reuters-libya-security-france.html?searchResultPosition=10
 
