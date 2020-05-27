@@ -1,40 +1,40 @@
-**Rebel Groups Kill at Least 40 in Attacks in Eastern Congo**\
-`Rebels have killed at least 40 people in several attacks in Congo’s eastern Irumu territory, a local civil rights group says.`\
-https://nytimes.com/aponline/2020/05/27/world/africa/ap-af-congo-deadly-attacks.html?searchResultPosition=1
+**Hershey Says Mint, Gum Sales Hit as Lockdowns Restrict Social Gatherings**\
+`Hershey Co said on Wednesday sales of gums and mints have taken a hit as social distancing protocols spurred by the COVID-19 pandemic discouraged people from participating in gatherings.`\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-health-coronavirus-hershey.html?searchResultPosition=1
 
-**Police Arrest 26 People in UK Truck Deaths of 39 Vietnamese**\
-`Police in Belgium and France on Wednesday announced the arrests of 26 people suspected of human trafficking in the deaths of 39 Vietnamese migrants who were found in a refrigerated truck in Britain last year.`\
-https://nytimes.com/aponline/2020/05/27/world/europe/ap-eu-britain-truck-bodies.html?searchResultPosition=2
+**Germany's Altmaier: Lufthansa Bailout Is in Europe's Own Interests**\
+`German Economy Minister Peter Altmaier said on Wednesday he expected the European Commission to approve a 9-billion euro bailout of flagship carrier Lufthansa, adding that it was also in Europe's interests to avoid a sell-off of such companies.`\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-health-coronavirus-lufthansa-rescue-altmaier.html?searchResultPosition=2
 
-**Ex-NY Subway Boss Named to Head London Transit System**\
-`Former New York subway boss Andy Byford has been named London’s new transit commissioner, overseeing Transport for London’s vast network of Tubes, trams, trains and buses.`\
-https://nytimes.com/aponline/2020/05/27/world/europe/ap-eu-britain-london-transit.html?searchResultPosition=3
+**Quest Diagnostics Launches Coronavirus Testing for Employees Returning to Work**\
+`Quest Diagnostics Inc on Wednesday launched services to support large-scale testing for the new coronavirus as companies look to bring employees back to offices safely.`\
+https://nytimes.com/reuters/2020/05/27/us/27reuters-health-coronavirus-questdiagnostics.html?searchResultPosition=3
 
-**Merkel: We Have to Make Clear Pandemic Not Over**\
-`German Chancellor Angela Merkel said on Wednesday it has to be made clear that the coronavirus pandemic is not over and basic measures such as social distancing and wearing face masks are still needed.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-germany-merkel-pandemic.html?searchResultPosition=4
+**Vatican Exiles Leader of Bose Monastic Community**\
+`The Vatican has disciplined another charismatic religious leader, exiling the founder of an Italian monastic community over governance problems. `\
+https://nytimes.com/aponline/2020/05/27/world/europe/ap-eu-rel-vatican-governance.html?searchResultPosition=4
 
-**Central Bankers Must Devise Strategy for Return to Normal Policy, BIS Head Says**\
-`Central bankers must work to get monetary policy back to normal and create an exit strategy from aggressive measures "as soon as possible" to counteract high debt worldwide, the general manager of the Bank for International Settlements said on Wednesday.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-bis.html?searchResultPosition=5
+**The N.B.A. May Return Too Soon**\
+`In this week’s newsletter, Marc Stein explores the risks of a July comeback, remembers Jerry Sloan and explains why the ’90s Western Conference is (wrongly) seen as weak.`\
+https://nytimes.com/2020/05/27/sports/basketball/nba-return-july.html?searchResultPosition=5
 
-**Merkel: German States Taking Increasing Responsibility for Coronavirus Steps**\
-`Germany's federal government is monitoring the coronavirus  closely but practical responsibility lies increasingly with the 16 states, Chancellor Angela Merkel said on Wednesday, adding care must be taken to avoid the virus spreading fast again.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-germany-merkel.html?searchResultPosition=6
+**‘You’ll Never Walk Alone’: From Broadway Tear-Jerker to Covid-Era Anthem**\
+`Versions of the “Carousel” song by Aretha Franklin, Gerry and the Pacemakers and Liverpool F.C. fans have turned it into something universal.`\
+https://nytimes.com/2020/05/27/arts/music/youll-never-walk-alone-carousel-coronavirus.html?searchResultPosition=6
 
-**Why Good Credit Matters — Even if You Don’t Plan to Borrow**\
-`Even if you don’t plan to borrow a dime, a good credit record is valuable. Think of it like a household fire extinguisher: It’s smart to have a good one even though you have no plans to use it. `\
-https://nytimes.com/aponline/2020/05/27/business/bc-on-the-money-nerdwallet-good-credit-matters.html?searchResultPosition=7
+**Roberto Fendt Named as Brazil's Deputy Economy Minister for Foreign Trade**\
+`Economist Roberto Fendt, Executive Secretary of the Brazil-China Business Council and a graduate of the University of Chicago, is to be Brazil's new deputy economy minister for foreign trade, Economy Minister Paulo Guedes told Reuters on Wednesday.`\
+https://nytimes.com/reuters/2020/05/27/world/americas/27reuters-brazil-economy-appointment.html?searchResultPosition=7
 
-**Don't Abandon Us, We Don't Transmit Coronavirus, Say Cairo Dogs and Cats**\
-`The doggies and kitties of a Cairo veterinary clinic have an important message, and they are taking it to the internet.`\
-https://nytimes.com/reuters/2020/05/27/world/middleeast/27reuters-health-coronavirus-egypt-animals.html?searchResultPosition=8
+**Roadside Bomb in Syria's Idlib Wounds Turkish Soldiers: Demiroren**\
+`A roadside bomb exploded in Syria's northwestern region of Idlib as a Turkish military convoy passed by, Demiroren news agency reported on Wednesday.`\
+https://nytimes.com/reuters/2020/05/27/world/middleeast/27reuters-syria-security-turkey.html?searchResultPosition=8
 
-**EU Warns Against Overloading Pandemic Relief Package for Banks**\
-`Expanding a "quick fix" package of measures for helping European Union banks keep credit flowing to pandemic-hit companies would defeat its objective, a top EU official said on Wednesday.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-eu-banks.html?searchResultPosition=9
+**Lyme Disease Season Is Here. These Are Tips on How to Avoid It.**\
+`The basic symptoms mirror Covid-19, and that’s a worry nobody needs. Plus, a serious illness like Lyme could put you at greater risk from Covid.`\
+https://nytimes.com/2020/05/27/climate/covid-coronavirus-lyme-disease.html?searchResultPosition=9
 
-**Niger Lost $120 Million in Arms Deals Over Three Years: Government Audit**\
-`Almost 40% of the $312 million Niger spent on defence procurement contracts over the last three years was lost through inflated costs or materiel that was not delivered, according to a government audit of military contracts seen by Reuters.`\
-https://nytimes.com/reuters/2020/05/27/world/africa/27reuters-niger-arms-audit.html?searchResultPosition=10
+**British Government Hopeful of Securing Deal With EU: Gove**\
+`Britain's government is hopeful it can secure a deal with the European Union to cover their future relationship, cabinet office minister Michael Gove said on Wednesday, describing politics as the main difficulty.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-britain-eu-politics.html?searchResultPosition=10
 
