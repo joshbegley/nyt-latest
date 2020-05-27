@@ -1,4 +1,4 @@
-**Swiss to Announce Further Relaxation of Coronavirus Rules-NZZ**\
+**Swiss to Announce Further Relaxation of Coronavirus Rules: NZZ**\
 `Switzerland will decide on Wednesday on further relaxations of restrictions brought in to stem the spread of the new coronavirus, including how to reopen nightclubs and football stadiums, the Neue Zuercher Zeitung paper reported.`\
 https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-swiss.html?searchResultPosition=1
 
