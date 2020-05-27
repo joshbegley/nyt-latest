@@ -1,40 +1,40 @@
+**A New Thing to Fight About: Virus Risks**\
+`How to have productive conversations without rancor.`\
+https://nytimes.com/2020/05/27/parenting/virus-risks-kids.html?searchResultPosition=1
+
+**Novavax Buys Praha Vaccines for $167 Million to Boost COVID-19 Vaccine Production**\
+`Drug developer Novavax Inc on Wednesday acquired Praha Vaccines, a unit of India's Cyrus Poonawalla Group, for about $167 million as it looks to boost capacity to produce its COVID-19 vaccine candidate.`\
+https://nytimes.com/reuters/2020/05/27/us/27reuters-health-coronavirus-novavax.html?searchResultPosition=2
+
+**Twenty-Six People Arrested in France and Belgium Over Truck Deaths**\
+`The French prosecutor's office said on Wednesday that 26 people had been arrested in France and Belgium in connection with the deaths of 39 Vietnamese migrants found in the back of a truck near London last year.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-britain-bodies-france-arrests.html?searchResultPosition=3
+
+**SpaceX Ready to Launch NASA Astronauts, Back on Home Turf**\
+`A SpaceX rocket is ready to boost two NASA astronauts into orbit Wednesday, the first launch of Americans from the U.S. in nearly a decade.`\
+https://nytimes.com/aponline/2020/05/27/science/ap-us-sci-home-launch.html?searchResultPosition=4
+
+**Experts Fear Increase in Postpartum Mood and Anxiety Disorders**\
+`New and expecting moms are facing pandemic-related fears on top of social isolation.`\
+https://nytimes.com/2020/05/27/parenting/coronavirus-postpartum-depression-anxiety.html?searchResultPosition=5
+
+**Nigerian Military Unlawfully Detain Children at Rehabilitation Centre for Militants: Amnesty**\
+`The Nigerian military are unlawfully detaining boys and men at a rehabilitation centre for alleged members of the Islamist militant group Boko Haram, Amnesty International said in a report released on Wednesday.`\
+https://nytimes.com/reuters/2020/05/27/world/africa/27reuters-nigeria-security-insurgency-amnesty.html?searchResultPosition=6
+
+**EU Recovery Plan 'Great Signal From Brussels', Says Italy's PM**\
+`The European Commission's proposal for a 1.85 trillion euro recovery plan to help kick-start the EU's economy after the coronavirus emergency is a very good signal from Brussels, Italy's Prime Minister said on Wednesday. `\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-eu-budget-recovery-italy.html?searchResultPosition=7
+
+**EU Must Evolve Its Position in Talks on Future Ties: UK Negotiator**\
+`The European Union must evolve its position to reach an agreement with Britain, the UK's chief negotiator David Frost said on Wednesday, repeating his position that at the moment the two sides are far apart.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-britain-eu-evolve.html?searchResultPosition=8
+
+**Factbox: EU Solvency Support Plan for Virus-Hit Strategic Companies**\
+`The European Commission unveiled on Wednesday a plan to borrow and disburse 750 billion euros ($827 billion) in grants and loans to help EU countries recover from their coronavirus slump.`\
+https://nytimes.com/reuters/2020/05/27/technology/27reuters-eu-budget-recovery-solvency-factbox.html?searchResultPosition=9
+
 **Tropical Storm Bertha Forms Off the South Carolina Coast**\
 `Tropical Storm Bertha formed Wednesday morning off the coast of South Carolina, becoming the second named storm before the official start of this year's Atlantic hurricane season.`\
-https://nytimes.com/aponline/2020/05/27/us/ap-us-tropical-weather.html?searchResultPosition=1
-
-**Croatia Welcomes Tourists Braving Coronavirus Crisis**\
-`A few intrepid European tourists have returned to Croatia's picturesque Adriatic coast, where the owners of yachts and campsites are hoping their relative isolation will bring the numbers up over the next six weeks.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-croatia-tourism.html?searchResultPosition=2
-
-**Head of Italy's Lombardy Region Given Police Escort as COVID Anger Mounts**\
-`The governor of Lombardy, the northern region at the epicentre of Italy's coronavirus outbreak, said on Wednesday that he had been given a police escort after growing criticism of his administration's handling of the crisis.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-italy-lombardy.html?searchResultPosition=3
-
-**Factbox: Key Climate Spending in EU's 'Green Recovery' Plan**\
-`The European Commission unveiled a 750 billion euro ($826.3 billion) package on Wednesday which it says will put fighting climate change at the heart of the bloc's recovery from the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-eu-budget-recovery-climate-factbox.html?searchResultPosition=4
-
-**Ralph Lauren Quarterly Revenue Falls 15.4%**\
-`Ralph Lauren Corp reported a 15.4% fall in quarterly revenue on Wednesday after its outlets and department stores across the world were forced to close due to the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/05/27/business/27reuters-ralph-lauren-results.html?searchResultPosition=5
-
-**France's Virus Tracing App Ready to Go, Parliament to Vote**\
-`French lawmakers were set to vote Wednesday on whether to endorse a contact-tracing app designed to contain the spread of the coronavirus amid sharp debate over privacy concerns.`\
-https://nytimes.com/aponline/2020/05/27/business/ap-eu-virus-outbreak-french-tracing-app.html?searchResultPosition=6
-
-**Officials: Prison Reform Advocate Rehearsed Jail Break Plans**\
-`A longtime prison reform advocate accused of preparing to stage an escape at a Tennessee jail that's under construction had a builder create a concrete room in his condominium's basement so he could learn how to break into the walls, authorities say. `\
-https://nytimes.com/aponline/2020/05/27/us/ap-us-detention-center-weapons.html?searchResultPosition=7
-
-**Swiss National Bank Says Expansive Policy More Important in Pandemic**\
-`Swiss monetary policy must remain accommodative, Swiss National Bank Chairman Thomas Jordan said on Wednesday, saying the central bank was currently willing to intervene more strongly in currency markets.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-swiss-snb.html?searchResultPosition=8
-
-**Germany Can't Confirm Merkel Will Attend G7 in Person: Spokeswoman**\
-`German Chancellor Angela Merkel cannot confirm her physical presence at an envisaged summit of the Group of Seven (G7) in the United States yet, a spokeswoman said on Wednesday, adding that this would depend on how the coronavirus pandemic develops.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-g7-germany.html?searchResultPosition=9
-
-**Motorsport UK Aims to Get Back on Track From July 4**\
-`The governing body for motorsport in Britain aims to resume racing activities without spectators from July 4, it said on Wednesday.`\
-https://nytimes.com/reuters/2020/05/27/sports/autoracing/27reuters-health-coronavirus-motor-britain.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/27/us/ap-us-tropical-weather.html?searchResultPosition=10
 
