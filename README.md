@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/05/26/world/asia/ap-as-hong-kong-china-nationa
 https://nytimes.com/reuters/2020/05/26/business/26reuters-health-coronavirus-ford-mexico.html?searchResultPosition=9
 
 **Elliott Ends Busch's Win Streak, Collects $100,000 Bounty**\
-`Chase Elliott gained a measure of revenge against Kyle Busch on Tuesday night — and then let him know about. `\
+`Chase Elliott gained a measure of revenge against Kyle Busch on Tuesday night — and then let him know about it. `\
 https://nytimes.com/aponline/2020/05/26/sports/ap-car-nascar-trucks.html?searchResultPosition=10
 
