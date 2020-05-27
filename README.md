@@ -27,7 +27,7 @@ https://nytimes.com/2020/05/27/obituaries/steve-hann-dead-coronavirus.html?searc
 https://nytimes.com/aponline/2020/05/27/sports/football/ap-fbn-browns-mayfield-.html?searchResultPosition=7
 
 **SpaceX Launch of NASA Astronauts Is Postponed Over Weather**\
-`Persistent clouds did not clear in time pushed the launch back to either Saturday or Sunday, the next window of opportunity.`\
+`Persistent clouds did not clear in time  pushed the launch back to either Saturday or Sunday, the next window of opportunity.`\
 https://nytimes.com/2020/05/27/science/nasa-spacex-launch.html?searchResultPosition=8
 
 **US Indicts Ex-Venezuelan Lawmaker Linked With Maduro**\
