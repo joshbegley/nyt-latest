@@ -2,9 +2,9 @@
 `Boeing Co is expected to announce U.S. job cuts this week after disclosing last month it planned to shed 10% of its worldwide workforce of 160,000 employees, people briefed on the plans and a union said.`\
 https://nytimes.com/reuters/2020/05/26/business/26reuters-boeing-jobs.html?searchResultPosition=1
 
-**Corrections: May 26, 2020**\
-`Corrections that appeared in print on Wednesday, May 26, 2020.`\
-https://nytimes.com/2020/05/26/pageoneplus/corrections-may-26-2020.html?searchResultPosition=2
+**Corrections: May 27, 2020**\
+`Corrections that appeared in print on Wednesday, May 27, 2020.`\
+https://nytimes.com/2020/05/26/pageoneplus/corrections-may-27-2020.html?searchResultPosition=2
 
 **China Industrial Firms' April Profits Fall 4.3% Year-On-Year**\
 `Profits at China's industrial firms in April fell 4.3% year-on-year to 478.1 billion yuan ($67 billion), the statistics bureau said on Wednesday. `\
