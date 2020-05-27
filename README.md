@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/05/27/business/27reuters-tesla-prices.html?sear
 `Hong Kong deployed riot police around the Legislative Council on Wednesday as activists called for protests against a bill to criminalise disrespect of the Chinese anthem, amid soaring tensions over perceived threats to the city's freedoms.`\
 https://nytimes.com/reuters/2020/05/27/world/asia/27reuters-hongkong-protests.html?searchResultPosition=5
 
-**Stocks Mixed as Politics Outweigh Recover Hopes: Live Updates**\
+**Stocks Mixed as Politics Outweigh Recovery Hopes: Live Updates**\
 `The latest on stock market and business news during the coronavirus outbreak.`\
 https://nytimes.com/2020/05/27/business/stock-market-today-coronavirus.html?searchResultPosition=6
 
