@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/05/27/world/asia/27reuters-japan-economy-boj.ht
 https://nytimes.com/reuters/2020/05/27/world/asia/27reuters-health-coronavirus-southkorea-syndrome.html?searchResultPosition=2
 
 **Protesters in Hong Kong Rally Against China’s Tightening Grip**\
-`Many sought to oppose a law that would threaten prison for disrespecting the Chinese national anthem, the latest expression of public anger at Beijing’s encroachment.`\
+`Many sought to oppose a bill that would threaten prison for disrespecting the Chinese national anthem, the latest expression of public anger at Beijing’s encroachment.`\
 https://nytimes.com/2020/05/27/world/asia/hong-kong-protest-china-anthem.html?searchResultPosition=3
 
 **European Shares Edge Higher, Focus on EU Recovery Plan**\
