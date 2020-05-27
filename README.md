@@ -1,40 +1,40 @@
+**Electric Motorbike Gives Women in Rural Zimbabwe a Path Out of Poverty**\
+`In the rural Zimbabwe district of Wedza, a new electric-powered motorcycle is helping bring income to poor women and easing the burden of looking after families.`\
+https://nytimes.com/reuters/2020/05/27/world/africa/27reuters-zimbabwe-women-motorcycle.html?searchResultPosition=1
+
+**Tracee Ellis Ross Debuts Her Singing Voice in New Film 'The High Note'**\
+`Tracee Ellis Ross plays a singing superstar in her new feel-good movie "The High Note," but the actor said the film has nothing to do with her famous mother, Diana Ross. `\
+https://nytimes.com/reuters/2020/05/27/arts/27reuters-film-the-high-note.html?searchResultPosition=2
+
 **Big Pharmacy Chains Also Fed the Opioid Epidemic, Court Filing Says**\
 `New details emerge in a lawsuit asserting that chains including CVS, Rite Aid and Walgreens sold millions of pills in small towns but rarely flagged suspicious orders to authorities.`\
-https://nytimes.com/2020/05/27/health/opioids-pharmacy-cvs-litigation.html?searchResultPosition=1
+https://nytimes.com/2020/05/27/health/opioids-pharmacy-cvs-litigation.html?searchResultPosition=3
 
 **Wanted in Hollywood: COVID-19 Consultants to Help Keep Sets Safe**\
 `Along with hair stylists, camera operators and the hundreds of others who make magic happen for TV and film, Hollywood is counting on a new supporting member for future productions: COVID-19 consultants. `\
-https://nytimes.com/reuters/2020/05/27/arts/27reuters-health-coronavirus-hollywood.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/05/27/arts/27reuters-health-coronavirus-hollywood.html?searchResultPosition=4
 
 **U.S. Mortgage Applications Rise for Sixth Straight Week**\
 `U.S. applications for home mortgages jumped last week, in a sixth straight weekly increase, suggesting the housing market could lead the economy's recovery from the novel coronavirus crisis even as high unemployment is expected to linger.`\
-https://nytimes.com/reuters/2020/05/27/business/27reuters-usa-economy-housing.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/27/business/27reuters-usa-economy-housing.html?searchResultPosition=5
 
 **Why U.S. Energy CEOs Will Get Big Payouts Despite Oil Meltdown**\
 `National Oilwell Varco Inc (NOV) has had a rough few years: Since 2017, the Houston company, whose drilling equipment is in major oilfields worldwide, has lost two-thirds of its value, costing shareholders a combined $9 billion.`\
-https://nytimes.com/reuters/2020/05/27/business/27reuters-global-oil-shale-executives-insight.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/27/business/27reuters-global-oil-shale-executives-insight.html?searchResultPosition=6
 
 **DealBook: One Giant Leap for SpaceX**\
 `Elon Musk’s spacecraft company is scheduled to send two astronauts into orbit today, a major milestone for the commercial space business.`\
-https://nytimes.com/2020/05/27/business/dealbook/spacex-elon-musk.html?searchResultPosition=5
+https://nytimes.com/2020/05/27/business/dealbook/spacex-elon-musk.html?searchResultPosition=7
 
 **Kenya Rolls Out Testing in Nairobi Slums, but Some Fear Stigma**\
 `Kenya is rolling out voluntary public testing for the novel coronavirus in its biggest slum, where some residents say being declared virus-free boosts their chances of getting a job. `\
-https://nytimes.com/reuters/2020/05/27/world/africa/27reuters-health-coronavirus-kenya-testing.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/05/27/world/africa/27reuters-health-coronavirus-kenya-testing.html?searchResultPosition=8
 
 **Coronavirus Pushes Global Credit Rating Downgrade Threat to Record High**\
 `The number of companies or countries at risk of having their credit ratings cut has been pushed to an all-time high by the coronavirus pandemic, S&P Global analysis shows. `\
-https://nytimes.com/reuters/2020/05/27/world/asia/27reuters-health-coronavirus-ratings-downgrades.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/05/27/world/asia/27reuters-health-coronavirus-ratings-downgrades.html?searchResultPosition=9
 
 **Trump Plays the Old Conspiracy Theory Hits**\
 `Trump smears Joe Scarborough, and Twitter does a voting fact-check: This is your morning tip sheet.`\
-https://nytimes.com/2020/05/27/us/politics/trump-scarborough-twitter.html?searchResultPosition=8
-
-**With Black Masks and Silence, Spain Mourns Its Coronavirus Dead**\
-`Grieving Spaniards wore black and fell silent across the nation at midday on Wednesday at the start of 10 days of mourning for more than 27,000 dead from the coronavirus crisis.  `\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-spain.html?searchResultPosition=9
-
-**OPEC+ Must Plan Exit Strategy: Kemp**\
-`Saudi Arabia and its allies in the expanded OPEC+ group of oil-exporting nations have only just started to implement output cuts, so it might seem premature to start talking about the need for an exit strategy.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-oil-global-kemp.html?searchResultPosition=10
+https://nytimes.com/2020/05/27/us/politics/trump-scarborough-twitter.html?searchResultPosition=10
 
