@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/05/27/business/27reuters-global-markets.html?se
 `Oil prices fell on Wednesday as concerns over how quickly fuel demand will recover tempered an easing of lockdowns to halt the spread of coronavirus, while U.S.-China tensions added to negative sentiment.`\
 https://nytimes.com/reuters/2020/05/27/business/27reuters-global-oil.html?searchResultPosition=5
 
-**South Africa's SAA Aims to Resume Domestic Flights From Mid-June**\
-`South African Airways (SAA) aims to resume domestic flights between Johannesburg and Cape Town from mid-June as lockdown restrictions aimed at curbing the spread of the coronavirus ease, spokesman Tlali Tlali said on Tuesday.`\
+**Administrators Deny South African Airways Set to Start Flying**\
+`Administrators for state-owned South African Airways (SAA) said on Wednesday the airline is not aiming to resume domestic flights from mid-June, rejecting a statement from the airline a day earlier. `\
 https://nytimes.com/reuters/2020/05/27/business/27reuters-safrica-saa.html?searchResultPosition=6
 
 **Swiss to Announce Further Relaxation of Coronavirus Rules: NZZ**\
