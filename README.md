@@ -1,40 +1,40 @@
+**Luxury Homebuilder Toll Brothers Scraps 2020 Forecast on COVID-19 Woes**\
+`U.S. luxury homebuilder Toll Brothers Inc on Wednesday withdrew its full-year forecast and warned it would not provide such guidance for the foreseeable future due to uncertainty caused by the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-toll-brothers-results.html?searchResultPosition=1
+
+**United Reshuffles Management as It Prepares for Uncertain Recovery**\
+`United Airlines Holdings Inc said on Wednesday that Jon Roitman will be replacing Greg Hart as chief operations officer effective June 1 as part of an internal management reshuffle to prepare the airline for the near-term uncertainty of travel demand.`\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-united-arlns-management.html?searchResultPosition=2
+
+**Nissan to Begin Restart of U.S. Auto Plants on June 1**\
+`Japanese automaker Nissan Motor Co said Wednesday it plans to begin restarting its shuttered U.S. manufacturing operations beginning June 1.`\
+https://nytimes.com/reuters/2020/05/27/business/27reuters-health-coronavirus-nissan.html?searchResultPosition=3
+
+**Factbox: Where States Stand as U.S. Reaches 100,000 Coronavirus Deaths**\
+`Less than four months after a 57-year-old California woman died and was later found to be the country's first COVID-19 fatality, the coronavirus U.S. death toll topped 100,000 people on Wednesday, according to a Reuters tally.    `\
+https://nytimes.com/reuters/2020/05/27/us/27reuters-health-coronavirus-usa-states-factbox.html?searchResultPosition=4
+
+**U.S. Coronavirus Deaths Top 100,000 as Country Reopens**\
+`U.S. deaths from the novel coronavirus topped 100,000 on Wednesday even as the daily average death toll declines, businesses reopen and Americans emerge from lockdowns across the country.`\
+https://nytimes.com/reuters/2020/05/27/world/americas/27reuters-health-coronavirus-usa-casualties.html?searchResultPosition=5
+
+**Gilead Study Shows Shorter Five-Day Course of Remdesivir Works as Well as 10-Day One**\
+`Gilead Sciences Inc, which has suggested that a shorter treatment duration could extend limited supplies of its drug remdesivir, on Wednesday published results of a study showing no significant difference in outcomes between 5- and 10-day courses of the drug for patients with severe COVID-19.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-gilead-sciences.html?searchResultPosition=6
+
 **Cheyenne Frontier Days Canceled for 1st Time in 124 Years**\
 `Cheyenne Frontier Days, billed as the world's largest outdoor rodeo, has been canceled for the first time in its 124-year history due to the coronavirus, the city's mayor told The Associated Press on Wednesday.`\
-https://nytimes.com/aponline/2020/05/27/sports/ap-wy-virus-outbreak-frontier-days-1st-ld-writethru.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/05/27/sports/ap-wy-virus-outbreak-frontier-days-1st-ld-writethru.html?searchResultPosition=7
 
 **Closing Prices for Crude Oil, Gold and Other Commodities**\
 `Benchmark U.S. crude oil for July delivery fell $1.54 to settle at $32.81 a barrel Wednesday. Brent crude oil for July delivery dropped $1.43 to $34.74 a barrel. `\
-https://nytimes.com/aponline/2020/05/27/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/05/27/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=8
 
 **Remembering Larry Kramer**\
 `A look back at the passionate activist and writer, as he appeared in the pages of T.`\
-https://nytimes.com/2020/05/27/t-magazine/larry-kramer.html?searchResultPosition=3
+https://nytimes.com/2020/05/27/t-magazine/larry-kramer.html?searchResultPosition=9
 
 **Kentucky Election Laws Draw Court Challenge Amid Virus**\
 `Kentucky's new law requiring people to show a government-issued photo ID to vote drew a court challenge Wednesday from groups seeking widespread use of mail-in absentee ballots for the fall election, eager to protect voters fearful of coronavirus spread.`\
-https://nytimes.com/aponline/2020/05/27/us/ap-usvirus-outbreak-kentucky-election-1st-ld-writethru.html?searchResultPosition=4
-
-**OSHA: 3 Willful Violations Led to Plant Blasts in Texas**\
-`U.S. officials cited the owners of a Southeast Texas chemical plant where November blasts and fires injured three workers and caused widespread damage to the surrounding community.`\
-https://nytimes.com/aponline/2020/05/27/business/bc-us-plant-explosion-osha.html?searchResultPosition=5
-
-**‘Just Sitting in Limbo.’ For Many Professionals, Careers Are on Hold.**\
-`Even for well-connected high earners, hiring has dried up, advancement has ceased, job searches have paused and new ventures are in jeopardy.`\
-https://nytimes.com/2020/05/27/business/coronavirus-careers-on-hold.html?searchResultPosition=6
-
-**Modern Love Podcast: Saoirse Ronan Reads ‘Grappling With the Language of Love’**\
-`The Golden Globe winning actress reads an essay about a relationship limited by the lack of a common language.`\
-https://nytimes.com/2020/05/27/style/modern-love-podcast-saoirse-ronan.html?searchResultPosition=7
-
-**How Do I Get HBO Max if I Already Have HBO?**\
-`Almost 35 million people have HBO. But not all of them can get HBO Max. Here’s what you need to know.`\
-https://nytimes.com/article/hbo-max-amazon-roku.html?searchResultPosition=8
-
-**U.N. Warns of Possible War Crimes in Northeastern Congo**\
-`Widespread and systematic killings, beheadings, rape and other barbaric acts by militia mostly from the ethnic Lendu community in northeastern Congo may constitute crimes against humanity and war crimes, the United Nations said on Wednesday.`\
-https://nytimes.com/reuters/2020/05/27/world/africa/27reuters-congo-rights.html?searchResultPosition=9
-
-**Sea Turtles Appear Next to Rio Airport Thanks to Fewer Flights Amid Pandemic**\
-`Sea turtles have been spotted swimming amid garbage next to an airport in Brazil's tourist hotspot of Rio de Janeiro, as the scream of jet engines that would normally keep them away has been largely silenced due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/27/world/americas/27reuters-health-coronavirus-brazil-turtles.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/27/us/ap-usvirus-outbreak-kentucky-election-1st-ld-writethru.html?searchResultPosition=10
 
