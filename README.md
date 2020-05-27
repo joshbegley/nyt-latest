@@ -1,40 +1,40 @@
-**Goldman Sachs on Target to Meet Medium,long-Term Growth Goals: Executive**\
-`Goldman Sachs Group Inc President and Chief Operating Officer John Waldron said Wednesday that the bank remains on track to achieve its medium and long term growth targets despite the economic shocks caused by the novel coronavirus.`\
-https://nytimes.com/reuters/2020/05/27/business/27reuters-goldman-sachs-president-conference.html?searchResultPosition=1
+**Italians Flock to Beaches, Hoping Tourists Will Follow**\
+`Many have seized the chance to return to the sands, soak up the sun and take a swim. But social distancing? Maybe, maybe not.`\
+https://nytimes.com/2020/05/27/world/europe/italy-beaches-coronavirus-reopening.html?searchResultPosition=1
 
-**6 Steps to Become a Better Reader**\
-`You want to read more but are having a hard time staying focused? This list will help keep you on track.`\
-https://nytimes.com/interactive/2020/05/27/burst/6-steps-to-become-a-better-reader.html?searchResultPosition=2
+**Florida Homeowner Fatally Shot Man Who Smashed Through Door**\
+`A Florida homeowner fatally shot a visitor from Georgia who broke through is front door and began beating a woman inside, sheriff's officials said.`\
+https://nytimes.com/aponline/2020/05/27/us/ap-us-home-invasion-fatal-shooting.html?searchResultPosition=2
 
-**Our Favorite Restaurants, in Recipes**\
-`We’ve gathered dishes and stories from across the United States to help you remember some of the places you love most.`\
-https://nytimes.com/2020/05/27/dining/our-favorite-restaurants-in-recipes.html?searchResultPosition=3
+**Nevada Casinos to Reopen; America in Lockdown Devours Pizza**\
+`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Wednesday related to the national and global response, the work place and the spread of the virus.`\
+https://nytimes.com/aponline/2020/05/27/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=3
 
-**Poland's Presidential Vote Necessary by June 28: Ruling Party**\
-`The last possible date that Poland could hold a presidential election on is June 28, the leader of the country's ruling nationalists Law and Justice (PiS) Jaroslaw Kaczynski said on Wednesday.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-poland-election-date.html?searchResultPosition=4
+**Donors Raise $2.79 Billion for Venezuelan Refugees Amid COVID-19**\
+`More than 60 countries on Tuesday pledged $2.79 billion in emergency aid for five million Venezuelans who have fled the country to neighbouring South American nations to escape economic collapse under President Nicolas Maduro.`\
+https://nytimes.com/reuters/2020/05/27/world/americas/27reuters-health-coronavirus-eu-venezuela.html?searchResultPosition=4
 
-**Bosnia and Croatia Arrest Eight Suspected Migrant Smugglers**\
-`Police from Bosnia, Croatia and regional agency Europol caught eight suspected traffickers on Wednesday and blocked the smuggling of 45 migrants into the European Union (EU), Bosnian authorities said.`\
-https://nytimes.com/reuters/2020/05/27/world/middleeast/27reuters-bosnia-migrants.html?searchResultPosition=5
+**EU Keeps Defence Fund Alive With 8 Billion Euro Proposal**\
+`The European Commission proposed on Wednesday spending 8 billion euros ($8.81 billion) of its next budget on a new European Union defence fund, keeping alive a Franco-German plan to deepen military cooperation despite the economic impact of COVID-19.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-eu-budget-defence.html?searchResultPosition=5
 
-**Bulgarian Police Seize $44 Million Worth of Cocaine From Apartment**\
-`Bulgarian police on Wednesday seized more than $43 million worth of cocaine from an apartment in the capital Sofia, occupied by a man who was detained a day earlier after police found 40 kg of the drug in his car, prosecutors said in a statement.`\
-https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-bulgaria-drugs.html?searchResultPosition=6
+**Georgia to Reopen All Shops, Cafes, Resume Public Transport Before June 8: PM**\
+`Georgia will restart public transport and reopen shops, shopping malls and cafes and restaurants before June 8, the ex-Soviet country's Prime Minister Giorgi Gakharia said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-health-coronavirus-georgia.html?searchResultPosition=6
 
-**Brazil Poll Shows 60% Support Tougher Lockdowns to Combat Coronavirus**\
-`Most Brazilians support stricter social distancing measures, according to a survey by pollster Datafolha published on Wednesday, to combat the novel coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/27/world/americas/27reuters-health-coronavirus-brazil.html?searchResultPosition=7
+**Lawyer of Rwandan Genocide Suspect Kabuga Says Client Would Not Get Fair U.N. Trial**\
+`Rwandan genocide suspect Felicien Kabuga believes he won't receive a fair trial in an international court, which he would consider politically biased, whereas he thinks he could have one in France, his lawyer said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/27/world/europe/27reuters-warcrimes-rwanda-trial.html?searchResultPosition=7
 
-**Zoom Calls, Drive-Ins: Danes Get Creative for Soccer Restart**\
-`When Danish soccer resumes in empty stadiums this week amid the coronavirus pandemic, teams will be competing for points on the field and to deliver the most innovative experience for their fans off it.`\
-https://nytimes.com/aponline/2020/05/27/sports/soccer/ap-soc-denmark-creative-clubs.html?searchResultPosition=8
+**Shuttlers to Keep Tokyo Ranking Points Earned Before Shutdown**\
+`Shuttlers will keep ranking points they earned during the original Olympic qualification period before the novel coronavirus pandemic forced the Tokyo Games to be postponed, the Badminton World Federation said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/27/sports/olympics/27reuters-olympics-badminton-qualification.html?searchResultPosition=8
 
-**Argentina's Warped Peso Means Cars Are Half Price-If You Have Dollars**\
-`Argentina's car dealers - used to selling at sky-high prices due to steep taxes - are getting a boost from the gap between official and informal values of the country's peso, which is halving the sticker price for buyers with dollars.`\
-https://nytimes.com/reuters/2020/05/27/world/americas/27reuters-argentina-autos-currency.html?searchResultPosition=9
+**Bertha Makes Landfall Along South Carolina Coast: NHC**\
+`Tropical storm Bertha has made landfall along the South Carolina coast, the U.S. National Hurricane Center (NHC) said on Wednesday.`\
+https://nytimes.com/reuters/2020/05/27/us/27reuters-storm-atlantic-bertha-landfall.html?searchResultPosition=9
 
-**NY Fed's Williams Says U.S. Economy Could Rebound in Second Half but Uncertainty Remains**\
-`The U.`\
-https://nytimes.com/reuters/2020/05/27/us/27reuters-usa-fed-williams.html?searchResultPosition=10
+**Soccer: Top U.S. Women's League Plans Month-Long Tournament in Utah**\
+`The National Women's Soccer League (NWSL) will return to action in late June with a 25-game tournament in Utah that will be played in empty stadiums due to the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/05/27/sports/soccer/27reuters-health-coronavirus-soccer-women-nwsl.html?searchResultPosition=10
 
