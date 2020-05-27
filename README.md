@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/05/27/sports/27reuters-basketball-nba-cuban-pro
 `Fresh political unrest in Hong Kong over Beijing's proposed national security laws in the city hit Asian share markets on Wednesday, even as optimism about the re-opening of the world economy supported a broader global stock rally.`\
 https://nytimes.com/reuters/2020/05/27/business/27reuters-global-markets.html?searchResultPosition=4
 
-**Oil Eases on Demand Concerns, Tensions Over Hong Kong**\
-`Oil prices dipped on Wednesday as concerns over how quickly fuel demand will recover tempered an easing of lockdowns to halt the spread of coronavirus, while U.S.-China tensions added to negative sentiment.`\
+**Oil Falls on Demand Concerns, Tensions Over Hong Kong**\
+`Oil prices fell on Wednesday as concerns over how quickly fuel demand will recover tempered an easing of lockdowns to halt the spread of coronavirus, while U.S.-China tensions added to negative sentiment.`\
 https://nytimes.com/reuters/2020/05/27/business/27reuters-global-oil.html?searchResultPosition=5
 
 **South Africa's SAA Aims to Resume Domestic Flights From Mid-June**\
