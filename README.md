@@ -1,40 +1,40 @@
-**Dutch GP Becomes 4th Formula 1 Race Canceled This Season**\
-`The Dutch Grand Prix became the fourth Formula One race canceled this season because of the coronavirus pandemic, after organizers chose on Thursday not to host it without spectators.`\
-https://nytimes.com/aponline/2020/05/28/sports/ap-car-f1-dutch-gp-canceled-.html?searchResultPosition=1
+**Trump Continues to Claim Broad Powers He Doesn't Have**\
+`Threatening to shut down Twitter for flagging false content. Claiming he can “override" governors who dare to keep churches closed to congregants. Asserting the “absolute authority” to force states to reopen, even when local leaders say it's too soon.`\
+https://nytimes.com/aponline/2020/05/28/us/politics/ap-us-virus-outbreak-trump-powers-1st-ld-writethru.html?searchResultPosition=1
 
-**Space Travel, Privatized**\
-`How SpaceX is ushering in a new era in the exploration of the cosmos.`\
-https://nytimes.com/2020/05/28/podcasts/the-daily/spacex-launch-space-nasa.html?searchResultPosition=2
+**Manhunts After Hundreds Flee Quarantine in Zimbabwe, Malawi**\
+`Manhunts have begun after hundreds of people, some with the coronavirus, fled quarantine centers in Zimbabwe and Malawi while authorities worry they will spread COVID-19 in countries whose health systems can be rapidly overwhelmed.`\
+https://nytimes.com/aponline/2020/05/28/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=2
 
-**Japanese Automakers' April Sales More Than Halved**\
-`Global auto sales for Japanese carmakers more than halved in April as the coronavirus pandemic forced governments to impose lockdowns that left streets empty and showrooms deserted.`\
-https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-japan-autos-sales.html?searchResultPosition=3
+**Hungary to Commemorate Victims of Danube Boat Catastrophe**\
+`Commemorations will be held Friday on the anniversary of the Danube River tragedy in which a sightseeing boat carrying mostly tourists from South Korea sank after a collision with a river cruise ship that killed at least 27 people. `\
+https://nytimes.com/aponline/2020/05/28/business/ap-eu-hungary-capsized-boat-anniversary.html?searchResultPosition=3
 
-**Hungarian Central Bank Deputy Governor Nagy Unexpectedly Resigns**\
-`Hungarian central bank Deputy Governor Marton Nagy unexpectedly resigned on Thursday, raising questions about the future direction of the bank's monetary policy.`\
-https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-hungary-cenbank.html?searchResultPosition=4
+**Will U.S. Soon Treat Hong Kong Like China? For the City, Much Is at Stake.**\
+`Washington has long treated the former British colony separately from mainland China. Changing that would threaten the territory’s position as a global business hub.`\
+https://nytimes.com/2020/05/28/business/hong-kong-special-status-explained.html?searchResultPosition=4
 
-**Cockpit Voice Recorder Recovered From Debris of Crashed Pakistani Plane: Spokesman**\
-`Search teams on Thursday recovered the cockpit voice recorder from the wreckage of a Pakistani airliner that crashed last week, a spokesman for the airline said. `\
-https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-pakistan-airplane-crash.html?searchResultPosition=5
+**5 Things to Know Today-That Aren't About the Virus**\
+`Your daily look at nonvirus stories in the news:`\
+https://nytimes.com/aponline/2020/05/28/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=5
 
-**Amid Lockdown, Kenyan Medical Startup Brings Clinic to Your Home**\
-`Nathalie Maikere sat at her dining table, her two children playing video games a few feet away, as a doctor in a lab coat unpacked her medical bag and took her temperature, pulse, and blood pressure.`\
-https://nytimes.com/reuters/2020/05/28/technology/28reuters-health-coronavirus-kenya-apps.html?searchResultPosition=6
+**Siberian Zoo Sees Animal Baby Boom During Lockdown**\
+`A Siberian zoo that closed its doors to visitors for over two months due to the novel coronavirus says the lockdown has encouraged a baby boom among its animals.`\
+https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-health-coronavirus-russia-zoo.html?searchResultPosition=6
 
-**Facebook German Privacy Case Referred to European Court**\
-`The German Federal Court on Thursday referred a lawsuit filed by a consumer protection watchdog alleging privacy violations by Facebook to the Court of Justice of the European Union to seek clarification on the applicable law.`\
-https://nytimes.com/reuters/2020/05/28/technology/28reuters-facebook-germany.html?searchResultPosition=7
+**Musicians in Lockdown Rage Against Industry Machine**\
+`Lockdown bans on live performances have left many British musicians on the breadline, fuelling a campaign for them to get a bigger share of the profits from streaming their songs online.`\
+https://nytimes.com/reuters/2020/05/28/arts/28reuters-health-coronavirus-britain-music-industry.html?searchResultPosition=7
 
-**Turkey Resumes Intercity Train Operations After 2 Months**\
-`Intercity train service resumed on a limited basis Thursday in Turkey as the government eases restrictions imposed to curb the coronavirus.`\
-https://nytimes.com/aponline/2020/05/28/world/europe/ap-eu-virus-outbreak-turkey.html?searchResultPosition=8
+**F1 Teams to Be Limited to 80 People Each at Closed Races**\
+`Formula One's 10 teams will be limited to a maximum 80 people each at races held without spectators when the delayed season gets going in July.`\
+https://nytimes.com/reuters/2020/05/28/sports/autoracing/28reuters-health-coronavirus-f1-teams.html?searchResultPosition=8
 
-**Hong Kong's Business Hub Status Imperiled by Security Law**\
-`A national security law proposed by China could imperil Hong Kong’s status as one of the world’s best places to do business. `\
-https://nytimes.com/aponline/2020/05/28/business/bc-as-hong-kong-china-fallout.html?searchResultPosition=9
+**China's Same-Sex Couples Heartened by Property Protection Rights in New Civil Code**\
+`It was an ambush, said He Meili, a 51-year-old lesbian woman, describing how she met with her dead partner's step-parents at a police station where they demanded she leave the apartment the couple had shared for 12 years.`\
+https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-china-parliament-lgbt-property.html?searchResultPosition=9
 
-**China and U.S. Should Respect Each Other's Core Interests: Premier Li**\
-`China and United States should respect each other's core interests and manage their differences, Premier Li Keqiang said on Thursday, adding that a decoupling of their economies is not good for the world.`\
-https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-china-parliament-premier-usa.html?searchResultPosition=10
+**GM, Ford Turn to Fast-Payment Programs to Aid Suppliers Hit by Shutdowns**\
+`General Motors Co and Ford Motor Co are using fast-payment programs set up with financial lenders to help cash-strapped small suppliers survive production shutdowns caused by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-health-coronavirus-autos-suppliers.html?searchResultPosition=10
 
