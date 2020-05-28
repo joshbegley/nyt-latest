@@ -18,8 +18,8 @@ https://nytimes.com/aponline/2020/05/28/world/asia/ap-as-china-congress.html?sea
 `EasyJet will not fly to Italy if Rome prolongs social distancing rules on planes beyond June 15, the budget airline's chief executive said in a newspaper interview.`\
 https://nytimes.com/reuters/2020/05/28/business/28reuters-easyjet-italy.html?searchResultPosition=5
 
-**Airbus and Safran Shares Rise on Boeing Cost Cuts and 737 MAX Restart**\
-`Shares in French aerospace companies Airbus and Safran rose on Thursday, buoyed by Boeing's announcements of more cost-cutting measures and a restart to the production of the Boeing 737 MAX jet.`\
+**Safran Shares Lifted by Boeing 737 MAX Restart Plan**\
+`Safran shares rose on Thursday after Boeing said it would restart production of its 737 MAX jet and announced further cost-cutting measures.`\
 https://nytimes.com/reuters/2020/05/28/business/28reuters-boeing-jobs-airbus-safran.html?searchResultPosition=6
 
 **China Approves Plan to Rein In Hong Kong, Defying Worldwide Outcry**\
