@@ -1,32 +1,32 @@
-**Boston Marathon Canceled for 1st Time in 124-Year History**\
-`The Boston Marathon has been canceled for the first time in its 124-year history.`\
-https://nytimes.com/aponline/2020/05/28/sports/ap-ath-boston-marathon.html?searchResultPosition=3
+**Italy May Business and Consumer Morale Slammed by Coronavirus**\
+`Morale amongst Italian businesses and consumers plunged to multi-year lows in May, data showed on Thursday, as sentiment was shattered by the coronavirus epidemic and government-imposed restrictions to try to curb it.`\
+https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-italy-consumer-sentiment.html?searchResultPosition=3
 
-**Zoom Wall Takes in Soccer Match as Danish Soccer Resumes**\
-`As professional soccer returned to Denmark, fans used Zoom to be part of the action. `\
-https://nytimes.com/aponline/2020/05/28/sports/soccer/ap-soc-denmark-zoom-game.html?searchResultPosition=4
+**French Coronavirus Cases Jump by 3,325 Due to Systems Update**\
+`The number of confirmed coronavirus infections in France jumped by 3,325 to 149,071, though the increase was not due to a rise in daily infections but was a result of the inclusion of data from a new tracking system, the health ministry said in a statement. `\
+https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-health-coronavirus-france-casualties.html?searchResultPosition=4
 
-**EU Renews Syria Sanctions With Conflict in Its 10th Year**\
-`The European Union is prolonging for another year its sanctions against Syrian President Bashar Assad and other top political officials, military officers and business people over the regime's continued crackdown on civilians in the conflict-torn country.`\
-https://nytimes.com/aponline/2020/05/28/world/europe/ap-eu-europe-syria-sanctions.html?searchResultPosition=5
+**Trump Could Sign Order on Social Media Companies Later on Thursday: White House**\
+`U.S. President Donald Trump could sign an executive order on social media companies later on Thursday, but the timing could change, White House Press Secretary Kayleigh MacEnany said, after Twitter urged readers to check facts in tweets sent by Trump earlier this week for the first time.`\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-twitter-trump-executive-order-signing.html?searchResultPosition=5
 
-**NFL Owners Table Onside Kick Alternative Proposal**\
-`NFL owners have tabled a proposal for an alternative to the onside kick with a fourth-and-15 play and approved testing expanded use of video replay in the preseason to aid in officiating. `\
-https://nytimes.com/aponline/2020/05/28/sports/football/ap-fbn-rule-changes.html?searchResultPosition=6
+**Renault Poised to Announce 15,000 Layoffs Worldwide: Union**\
+`French car maker Renault is poised to announce 15,000 layoffs worldwide on Friday as it unveils a turnaround plan to cope with slumping demand and excess costs, a representative for the CFDT union said after meeting with the company on Thursday. `\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-renault-france-strategy.html?searchResultPosition=6
 
-**Keep Politics Out of Reopening Houses of Worship**\
-`A rabbi and an observant Catholic agree that much as they prefer congregating with others to pray, they will not do so until it is deemed safe. Also: A tale of two bridges.`\
-https://nytimes.com/2020/05/28/opinion/letters/coronavirus-trump-religion.html?searchResultPosition=7
+**IKEA Manager in Poland Charged for Firing Employee Over Anti-Gay Comments**\
+`A Polish prosecutor has charged an IKEA manager with religious discrimination for firing an employee who called homosexuality "an abomination" on the company's internal website.`\
+https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-ikea-ab-poland-discrimination.html?searchResultPosition=7
 
-**Boston Marathon Canceled for the First Time**\
-`The race, which had been postponed to Sept. 14 from April 20, was canceled on Thursday for the first time in its 124-year history.`\
-https://nytimes.com/2020/05/28/sports/boston-marathon-canceled.html?searchResultPosition=8
+**World Bank Suggests Possible Extra Replenishment of IDA Lending Arm**\
+`World Bank President David Malpass on Thursday suggested the Bank and donor countries should explore a possible supplemental replenishment of the International Development Association (IDA) concessional lending arm, if the pandemic crisis deepens.`\
+https://nytimes.com/reuters/2020/05/28/us/28reuters-health-coronavirus-world-bank-ida.html?searchResultPosition=8
 
-**‘Ramy’ and the New American Muslims of TV**\
-`Even positive portrayals of Muslim Americans after 9/11 seemed burdened with a responsibility to explain and defend. But that burden is starting to be cast off.`\
-https://nytimes.com/2020/05/28/arts/television/ramy-youssef-season-2-hasan-minhaj.html?searchResultPosition=9
+**Escaped Colorado Inmates Pretended to Be Immigrants**\
+`The U.S. Border Patrol says two men who escaped from a Colorado prison said they were Mexican immigrants who wished to be deported when agents patrolling the U.S.-Mexico border found them. `\
+https://nytimes.com/aponline/2020/05/28/us/ap-us-inmates-escape-.html?searchResultPosition=9
 
-**Trump’s Proposed Order on Social Media Could Harm One Person in Particular: Trump**\
-`Without certain liability protections, companies like Twitter would have to be more aggressive about policing messages that press the boundaries — like the president’s.`\
-https://nytimes.com/2020/05/28/us/politics/trump-social-media-executive-order.html?searchResultPosition=10
+**Absence of Pandemic on Florida Cabinet Agenda Is Hot Topic**\
+`Agriculture Commissioner Nikki Fried, the only Democrat holding statewide office in Florida, upbraided Republican Gov. Ron DeSantis on Thursday for keeping the state Cabinet “in the dark” by failing to convene the panel to discuss the state's response to the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/05/28/us/ap-us-virus-outbreak-florida-cabinet-3rd-ld-writethru.html?searchResultPosition=10
 
