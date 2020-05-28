@@ -1,5 +1,5 @@
 **National Guard Called as Minneapolis Erupts in Solidarity for George Floyd**\
-`Violence in the streets prompts officials to call in troops and vow a prompt federal review of troubling videotaped arrest.`\
+`Violence in the streets prompts officials to call in troops and vow a swift federal review of troubling videotaped arrest.`\
 https://nytimes.com/2020/05/28/us/george-floyd-minneapolis-protests.html?searchResultPosition=3
 
 **Activists Criticize New Anti-Violence Campaign in Mexico**\
