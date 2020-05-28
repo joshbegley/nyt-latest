@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/05/28/business/28reuters-dollar-tree-results.ht
 `Cases of community transmission of the new coronavirus are growing in Africa, particularly in Ethiopia, and a new strategy for testing is needed to prevent this, the head of the Africa Centres for Disease Control and Prevention said on Thursday.`\
 https://nytimes.com/reuters/2020/05/28/world/africa/28reuters-health-coronavirus-africa.html?searchResultPosition=9
 
-**Dollar General Expects to Exceed 2020 Forecasts After Surge in Quarterly Sales**\
-`Dollar General Corp said on Thursday it expects to exceed its annual sales and profit forecasts after the retailer saw a surge in demand from customers stocking up on groceries and household essentials amid the COVID-19 pandemic.`\
+**Dollar General Sales Surge on Coronavirus-Driven Demand**\
+`Dollar General Corp reported its biggest rise in quarterly sales in at least 14 years on Thursday, benefiting from a surge in demand from customers stocking up on groceries and household essentials amid the COVID-19 pandemic.`\
 https://nytimes.com/reuters/2020/05/28/business/28reuters-dollar-general-results.html?searchResultPosition=10
 
