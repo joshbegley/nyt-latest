@@ -1,32 +1,32 @@
+**National Guard Called as Minneapolis Erupts in Solidarity for George Floyd**\
+`Violence in the streets prompts officials to call in troops and vow a prompt federal review of troubling videotaped arrest.`\
+https://nytimes.com/2020/05/28/us/george-floyd-minneapolis-protests.html?searchResultPosition=3
+
 **Activists Criticize New Anti-Violence Campaign in Mexico**\
 `Activists criticized a new Mexican government ad campaign on violence against women Thursday, saying it minimizes the problem and depicts women as aggressors, too.`\
-https://nytimes.com/aponline/2020/05/28/world/americas/ap-lt-mexico-violence-against-women.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/05/28/world/americas/ap-lt-mexico-violence-against-women.html?searchResultPosition=4
 
 **Trump’s Order Targeting Social Media Sites, Explained**\
 `The president wants to narrow legal protections for companies like Twitter after it began appending fact-check labels to his postings.`\
-https://nytimes.com/2020/05/28/us/politics/trump-twitter-explained.html?searchResultPosition=4
+https://nytimes.com/2020/05/28/us/politics/trump-twitter-explained.html?searchResultPosition=5
 
 **More Notes From Our Homes to Yours**\
 `Suggestions, lists, distractions and quarantine diaries from our reporters, critics and editors.`\
-https://nytimes.com/interactive/2020/at-home/more-reporters-editors-diaries-lists-recommendations.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/at-home/more-reporters-editors-diaries-lists-recommendations.html?searchResultPosition=6
 
 **Police, Experts Condemn Knee Restraint Used on George Floyd**\
 `Police around the nation and law enforcement experts on Thursday broadly condemned the way George Floyd, who died in Minneapolis police custody this week, was restrained by an officer who dug his knee into the man's neck, saying no circumstances warrant such a dangerous technique. `\
-https://nytimes.com/aponline/2020/05/28/us/ap-us-minneapolis-police-death-neck-restraint.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/05/28/us/ap-us-minneapolis-police-death-neck-restraint.html?searchResultPosition=7
 
 **'Somebody Shot My Girlfriend': 911 Call in Police Shooting**\
 `The boyfriend of a Kentucky woman shot by police in her home told a 911 operator “somebody shot my girlfriend” after officers burst into the apartment.`\
-https://nytimes.com/aponline/2020/05/28/us/ap-us-fatal-police-shooting-kentucky.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/05/28/us/ap-us-fatal-police-shooting-kentucky.html?searchResultPosition=8
 
 **American Priest Moves a Step Closer to Sainthood**\
 `Pope Francis has credited a miracle to the Rev. Michael J. McGivney, a Connecticut priest who died in the flu pandemic of 1889-90 at 38.`\
-https://nytimes.com/2020/05/28/us/father-mcgivney-sainthood-beatification.html?searchResultPosition=8
+https://nytimes.com/2020/05/28/us/father-mcgivney-sainthood-beatification.html?searchResultPosition=9
 
 **Mourning Alone**\
 `As the coronavirus death toll crosses 100,000, Americans have been left without a consoler in chief.`\
-https://nytimes.com/2020/05/28/us/politics/coronavirus-100000-trump-biden.html?searchResultPosition=9
-
-**Why Is Police Brutality Still Happening?**\
-`Videos of state-sponsored killings have been going viral for years. Little has changed.`\
-https://nytimes.com/2020/05/28/opinion/minneapolis-police-brutality.html?searchResultPosition=10
+https://nytimes.com/2020/05/28/us/politics/coronavirus-100000-trump-biden.html?searchResultPosition=10
 
