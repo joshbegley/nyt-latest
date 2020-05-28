@@ -10,7 +10,7 @@ https://nytimes.com/2020/05/28/us/politics/congress-saudi-arabia-arms-sales.html
 `Emergency programs have cushioned the shutdown’s impact on workers and businesses and lifted the economy, but may not outlast the coronavirus crisis.`\
 https://nytimes.com/2020/05/28/business/economy/coronavirus-assistance-unemployment.html?searchResultPosition=5
 
-**Does a Crisis Spur Political Unity? Not This Pandemic.**\
+**Does a Crisis Spur Political Unity? Not This Pandemic**\
 `Insults, accusations and shaming characterize the current political environment even as leaders must come together at some point.`\
 https://nytimes.com/2020/05/28/us/coronavirus-political-unity-crisis.html?searchResultPosition=6
 
