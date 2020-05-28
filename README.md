@@ -1,32 +1,32 @@
-**Mexican President to Restart Trips in Spite of Coronavirus Spike**\
-`Mexican President Andres Manuel Lopez Obrador on Thursday said he would next week resume tours of the country, which he had suspended due to the coronavirus outbreak, even though fatalities and new infections have just hit record levels.`\
-https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-mexico-president.html?searchResultPosition=3
+**Mexican President Disagrees With Bank of Mexico's Recession Forecasts**\
+`Mexican President Andres Manuel Lopez Obrador said on Thursday he disagrees with the Bank of Mexico's forecasts for a major recession caused by the coronavirus pandemic, and predicted that the economy will instead recover soon.`\
+https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-mexico-economy.html?searchResultPosition=3
 
-**Paris to Reopen Parks and Public Gardens on June 2: Mayor**\
-`Paris will reopen parks and public gardens from June 2, the city's mayor said on Thursday on its websites.`\
-https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-health-coronavirus-france-parks.html?searchResultPosition=4
+**Some Bank of Mexico Board Members See Room for More Rate Cuts: Minutes**\
+`Some of the five board members of Mexico's central bank said the economic impact of the coronavirus pandemic granted scope for lowering its main interest rate further, minutes from the bank's last monetary policy meeting showed on Thursday.`\
+https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-mexico-economy-minutes.html?searchResultPosition=4
 
-**AP Week in Pictures, Middle East**\
-`This photo gallery highlights some of the most compelling images made or published by Associated Press photographers in the Middle East, Afghanistan & Pakistan Region between May 21-27, 2020.`\
-https://nytimes.com/aponline/2020/05/28/us/ap-ml-pictures-of-the-week-in-the-middle-eastphoto-gallery.html?searchResultPosition=5
+**KKR to Inject Money Into Vending Machine Group Selecta: Sources**\
+`U.S. buyout group KKR is preparing to inject funds into Swiss vending machine company Selecta, which is saddled with debts and faces a loss of business due to the coronavirus crisis, four sources close to the matter said.`\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-kkr-selecta.html?searchResultPosition=5
 
-**'We Have to Touch Each Other': Sports in the COVID-19 World**\
-`A sampling of thoughts from some of the more than two dozen athletes from 11 sports that The Associated Press spoke to about resuming competition amid the coronavirus pandemic:`\
-https://nytimes.com/aponline/2020/05/28/sports/ap-virus-outbreak-wary-athletes-quotes.html?searchResultPosition=6
+**Southwest Airlines Adds Routes Catering to Business Travelers**\
+`Southwest Airlines Co said on Thursday it was adding new routes with more frequencies and nonstop flights from Phoenix, Denver, Las Vegas and Nashville. `\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-southwest-routes.html?searchResultPosition=6
 
-**Virginia Lags in Implementing Extended Unemployment Benefits**\
-`When registered nurse Amanda Marsh lost her job working from her Virginia home as a health plan medical reviewer late last year, unemployment benefits helped support her family while she looked for work. `\
-https://nytimes.com/aponline/2020/05/28/business/ap-us-virus-outbreak-virginia-unemployment.html?searchResultPosition=7
+**White House Won't Issue Economic Projections This Summer**\
+`The White House will not release its official midyear economic update this summer, declining to put its stamp on data documenting the plunge into recession during the coronavirus pandemic and avoiding going on record with a prediction about the economy's future.`\
+https://nytimes.com/aponline/2020/05/28/business/bc-us-virus-outbreak-economy.html?searchResultPosition=7
 
-**U.S. Senator Kaine Tests Positive for Coronavirus Antibodies**\
-`U.S. Senator Tim Kaine announced on Friday that he and his wife Anne have tested positive for coronavirus antibodies after experiencing flu-like symptoms in March and April. `\
-https://nytimes.com/reuters/2020/05/28/us/politics/28reuters-health-coronavirus-usa-kaine.html?searchResultPosition=8
+**6 Things to Do at Home This Weekend**\
+`Our culture writers offer suggestions for what to watch or listen to while we’re housebound.`\
+https://nytimes.com/2020/05/28/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=8
 
-**World Bank Chief Calls for Longer-Term Debt Relief for Poorest Countries**\
-`World Bank Group President David Malpass on Thursday called for longer-term debt relief for the world's 77 poorest countries, and said many would need a permanent and significant debt reduction to cope with the fallout of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/28/us/28reuters-health-coronavirus-debt-world-bank.html?searchResultPosition=9
+**India Allows Export of Paracetamol API: Statement**\
+`India has ended restrictions on export of active pharmaceutical ingredients (API) of common pain reliever paracetamol, the Directorate General Of Foreign Trade (DGFT) said in a statement on Thursday.`\
+https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-health-coronavirus-india-paracetamol.html?searchResultPosition=9
 
-**English Premier League Plans to Resume June 17**\
-`The most-watched sports league in the world will return, pending a sign off from health authorities, but will play in stadiums without fans and with stringent health protocols.`\
-https://nytimes.com/2020/05/28/sports/soccer/coronavirus-premier-league-restart.html?searchResultPosition=10
+**Moscow Updates Coronavirus Statistics to Show More Deaths**\
+`Health officials in Moscow updated their figures on coronavirus deaths Thursday, seeking to dispel doubts about Russia's comparatively low COVID-19 death toll. `\
+https://nytimes.com/aponline/2020/05/28/world/europe/ap-virus-outbreak-russia-mortality.html?searchResultPosition=10
 
