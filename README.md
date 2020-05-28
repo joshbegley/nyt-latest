@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-health-coronavirus
 `The Stawell Gift, Australia's oldest and richest handicap footrace, has been cancelled for the first time since 1945 because of the COVID-19 pandemic, organisers said on Thursday. `\
 https://nytimes.com/reuters/2020/05/28/sports/olympics/28reuters-health-coronavirus-athletics-australia.html?searchResultPosition=2
 
-**Roche to Study remdesivir/Actemra Cocktail Against Severe COVID-19 Pneumonia**\
-`Swiss drugmaker Roche said on Thursday it would study its anti-inflammation drug Actemra mixed with Gilead Sciences Inc's remdesivir in hospitalised patients with severe COVID-19 pneumonia in a global trial of around 450 patients.`\
+**Roche Mixes Actemra With Gilead's Remdesivir in COVID-19 Trial**\
+`Roche  plans to test if mixing its anti-inflammation drug Actemra with Gilead Sciences Inc's anti-viral treatment remdesivir works better against severe COVID-19 pneumonia than remdesivir alone, the Swiss drugmaker said on Thursday. `\
 https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-health-coronavirus-roche-gilead-sciences.html?searchResultPosition=3
 
 **Hard-Line Former Tehran Mayor Named Iran Parliament Speaker**\
