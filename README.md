@@ -1,32 +1,32 @@
+**Boras to Clients in Memo: Don't Bail Out Baseball Owners**\
+`Agent Scott Boras recommends his clients refuse Major League Baseball’s attempt to cut salaries during negotiations with the players’ association, claiming team financial issues caused by the coronavirus pandemic have their origin in management debt financing.`\
+https://nytimes.com/aponline/2020/05/28/sports/baseball/ap-bbo-virus-outbreak-mlb-boras-1st-ld-writethru.html?searchResultPosition=3
+
+**US Mortgage Rates Fall; 30-Year Loan at All-Time Low 3.15%**\
+`Long-term U.S. mortgage rates fell this week as the key 30-year home loan marked an all-time low for the third time in the last few months since the coronavirus outbreak took hold. `\
+https://nytimes.com/aponline/2020/05/28/business/bc-us-mortgage-rates.html?searchResultPosition=4
+
+**NY Fed's Williams Says Central Bank Has Tools More Powerful Than Negative Rates**\
+`Negative interest rates are not a tool that makes sense for the U.S. central bank, New York Federal Reserve Bank President John Williams said on Thursday. `\
+https://nytimes.com/reuters/2020/05/28/us/28reuters-usa-fed-williams.html?searchResultPosition=5
+
+**Management of Bailout Money Poses Political Test for Trump**\
+`Democrats are mobilizing to turn an economic bailout into a liability for President Trump even as some Republicans seek to embrace it.`\
+https://nytimes.com/2020/05/28/us/politics/bailout-coronavirus-trump-ppp.html?searchResultPosition=6
+
+**Main Sports Events in France to Remain Suspended Until June 21: PM**\
+`Major sporting events in France will remain suspended for now until at least June 21, Prime Minister Edouard Philippe said on Thursday.`\
+https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-health-coronavirus-france-sports.html?searchResultPosition=7
+
+**Italy Records 70 New Coronavirus Deaths, 593 New Cases**\
+`Deaths from the COVID-19 epidemic in Italy climbed by 70 on Thursday, against 117 the day before, the Civil Protection Agency said, while the daily tally of new cases edged up to 593 from 584 on Wednesday.`\
+https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-health-coronavirus-italy-tally.html?searchResultPosition=8
+
 **Chinese Grad Students May Be Next Hit by US-China Tensions**\
 `The Trump administration may expel thousands of Chinese graduate students enrolled at U.S. universities in the latest sign of tensions between Washington and Beijing that are raging over trade, the coronavirus pandemic, human rights and the status of Hong Kong.`\
-https://nytimes.com/aponline/2020/05/28/us/politics/ap-us-united-states-china.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/05/28/us/politics/ap-us-united-states-china.html?searchResultPosition=9
 
 **UK Will Extend HK Visa Rights if China Pursues Security Law**\
 `The British government said Thursday that it will grant hundreds of thousands of Hong Kong residents greater visa rights if China doesn’t scrap a planned new security law for the semi-autonomous territory.`\
-https://nytimes.com/aponline/2020/05/28/world/europe/ap-eu-britain-hong-kong.html?searchResultPosition=4
-
-**Burundi Opposition Candidate Goes to Court to Challenge Vote**\
-`Burundi's top opposition leader went to the constitutional court Thursday to challenge the results of this month’s presidential election, alleging the vote was rigged in favor of the ruling party candidate.`\
-https://nytimes.com/aponline/2020/05/28/world/africa/ap-af-burundi-election.html?searchResultPosition=5
-
-**The New Normal: How Safe Are Beaches?**\
-`People are hitting the beach as coronavirus restrictions start to ease and summer begins in the northern hemisphere, but access might be limited and public health officials still urge caution, including continued physical distancing.`\
-https://nytimes.com/reuters/2020/05/28/us/28reuters-health-coronavirus-howtoguide-beaches.html?searchResultPosition=6
-
-**Volkswagen Becomes Biggest Shareholder of China's EV Battery Maker Guoxuan**\
-`German automaker Volkswagen AG has become the biggest shareholder of China's electric vehicle battery maker Guoxuan High-Tech Co Ltd with a 26.5% stake, Guoxuan said in stock exchange filings on Thursday.`\
-https://nytimes.com/reuters/2020/05/28/technology/28reuters-guoxuan-volkswagen-m-a-electric.html?searchResultPosition=7
-
-**Players Building Counter to MLB's Pay-Cut Proposal**\
-`Upset with MLB's economic offer to players, the Major League Baseball Players Association soon will present a counteroffer to owners that includes a schedule of more than 100 games and an accompanying prorated cut in pay, ESPN's Jeff Passan reported Thursday.`\
-https://nytimes.com/reuters/2020/05/28/sports/baseball/28reuters-baseball-mlb-counter-offer.html?searchResultPosition=8
-
-**IOC Says Record High Female Representation on Commissions**\
-`The International Olympic Committee (IOC) says women now account for almost half of the membership of its various commissions, an all-time high in the organisation's drive for gender equality.`\
-https://nytimes.com/reuters/2020/05/28/sports/olympics/28reuters-olympics-ioc.html?searchResultPosition=9
-
-**French COVID-19 Tracing App to Be Available From June 2: PM**\
-`The French government's contact-tracing app to curb the new coronavirus outbreak spread will be available from June 2, Prime Minister Edouard Philippe told a news conference on Thursday.`\
-https://nytimes.com/reuters/2020/05/28/technology/28reuters-health-coronavirus-france-tracingapp.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/28/world/europe/ap-eu-britain-hong-kong.html?searchResultPosition=10
 
