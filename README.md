@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-health-coronavirus
 `As if the coronavirus wasn't enough, India grappled with scorching temperatures and the worst locust invasion in decades as authorities prepared for the end of a monthslong lockdown despite recording thousands of new infections every day.`\
 https://nytimes.com/aponline/2020/05/28/world/asia/ap-as-virus-outbreak-india-plagues.html?searchResultPosition=2
 
-**Japan 'Serious Concerned' Over Chinese Security Laws for Hong Kong**\
+**Japan 'Seriously Concerned' Over Chinese Security Laws for Hong Kong**\
 `Japan is "seriously concerned" about the move by China's parliament to go forward with national security legislation for Hong Kong that observers fear could endanger its special autonomy and freedoms, the foreign ministry said on Thursday.`\
 https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-hongkong-protests-japan.html?searchResultPosition=3
 
