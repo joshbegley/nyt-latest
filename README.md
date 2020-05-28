@@ -1,32 +1,32 @@
+**Dubai Reopens Four Beaches and Major Parks to Public Starting Friday**\
+`Dubai announced it will reopen 4 beaches and major parks as well the Dubai Frame architectural landmark for the general public starting on Friday, the Dubai media office announced in a statement.`\
+https://nytimes.com/reuters/2020/05/28/world/middleeast/28reuters-health-coronavirus-emirates-dubai.html?searchResultPosition=3
+
+**Cancer, Coronavirus Are a Dangerous Mix, New Studies Find**\
+`New research shows how dangerous the coronavirus is for current and former cancer patients. Those who developed COVID-19 were much more likely to die within a month than people without cancer who got it, two studies found.`\
+https://nytimes.com/aponline/2020/05/28/health/ap-us-med-virus-outbreak-cancer-patients-1st-ld-writethru.html?searchResultPosition=4
+
+**NFL, EA Agree to Extension of Madden Video Game Franchise**\
+`The Madden franchise will continue to be a part of the gaming universe for at least the next six years.`\
+https://nytimes.com/aponline/2020/05/28/sports/football/ap-fbn-nfl-ea-sports.html?searchResultPosition=5
+
+**F.B.I. Once Investigated Trump Campaign Adviser’s Ties to Egypt**\
+`Investigators scrutinized ties between Walid Phares and the Egyptian government. He was never charged with a crime.`\
+https://nytimes.com/2020/05/28/us/politics/mueller-walid-phares.html?searchResultPosition=6
+
+**NSA: Russian Agents Have Been Hacking Major Email Program**\
+`By The Associated Press`\
+https://nytimes.com/aponline/2020/05/28/business/bc-us-nsa-russian-military-hackers.html?searchResultPosition=7
+
+**PGA Tour's John Deere Classic Cancelled Due to COVID-19**\
+`The John Deere Classic scheduled for July in Illinois, which was supposed to be the fifth event of the circuit's revamped schedule, has been cancelled due to state-related challenges regarding the COVID-19 pandemic, the PGA Tour said on Thursday. `\
+https://nytimes.com/reuters/2020/05/28/sports/golf/28reuters-health-coronavirus-golf-pga.html?searchResultPosition=8
+
 **George Floyd Is Killed: An Outcry Against the Police**\
 `Readers hear echoes of the Eric Garner case and are thankful for the video evidence.`\
-https://nytimes.com/2020/05/28/opinion/letters/george-floyd-police-minnesota.html?searchResultPosition=3
+https://nytimes.com/2020/05/28/opinion/letters/george-floyd-police-minnesota.html?searchResultPosition=9
 
 **Secrecy on Legislator's COVID-19 Illness Roils a Statehouse**\
 `A bitter partisan fight over a Pennsylvania lawmaker's decision to wait a week before disclosing his COVID-19 diagnosis spread to the House floor Thursday, and the state attorney general declined to investigate.`\
-https://nytimes.com/aponline/2020/05/28/us/ap-us-virus-outbreak-state-lawmaker.html?searchResultPosition=4
-
-**Officer Accused in Black Man's Death Involved in 3 Shootings**\
-`A white Minneapolis police officer accused of killing a black suspect by kneeling on his neck is a 19-year veteran of the force with a service record that includes three shooting incidents, one of them fatal, and nearly 20 complaints.`\
-https://nytimes.com/aponline/2020/05/28/us/ap-us-minneapolis-police-death-officers.html?searchResultPosition=5
-
-**Court Denies Request to Revive US Pipeline Permit Program**\
-`A U.S. appeals court on Thursday turned down a request by the Trump administration and energy industry groups to revive a permit program for new oil and gas pipelines that had been canceled by a lower court.`\
-https://nytimes.com/aponline/2020/05/28/business/ap-us-keystone-xl-pipeline.html?searchResultPosition=6
-
-**Salesforce Cuts Annual Sales Estimates on COVID-19 Hit**\
-`Salesforce.com Inc cut its annual revenue forecast on Thursday, citing the impact of the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/05/28/business/28reuters-salesforce-com-results.html?searchResultPosition=7
-
-**Trump Directs AG to Boost Enforcement of State Laws on Social Media Companies**\
-`U.S. President Donald Trump said on Thursday that he is directing Attorney General William Barr to work with states to enforce their own laws against what he described as deceptive business practices by social media companies. `\
-https://nytimes.com/reuters/2020/05/28/business/28reuters-twitter-trump-executive-order-states.html?searchResultPosition=8
-
-**John Deere Classic Chooses to Cancel PGA Tour Event**\
-`Two weeks before the PGA Tour is set to resume its schedule, John Deere Classic officials decided Thursday to cancel what would have been the fifth tournament back.`\
-https://nytimes.com/aponline/2020/05/28/sports/golf/ap-glf-john-deere-classic-1st-ld-writethru.html?searchResultPosition=9
-
-**N.F.L. Owners Drop Proposed Alternative to Onside Kicks**\
-`The league’s owners voted Thursday to approve other rule changes that included expanding reviewed plays and disallowing a Bill Belichick-favored clock management strategy.`\
-https://nytimes.com/2020/05/28/sports/football/nfl-rules-onside-kicks.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/28/us/ap-us-virus-outbreak-state-lawmaker.html?searchResultPosition=10
 
