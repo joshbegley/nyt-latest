@@ -1,32 +1,32 @@
+**The National Anthem’s Path to Fame Began With Little Fanfare**\
+`The song that became “The Star-Spangled Banner” had a modest debut in a newspaper. That first dated printing will be auctioned online at Christie’s.`\
+https://nytimes.com/2020/05/28/arts/design/star-spangled-banner-auction.html?searchResultPosition=3
+
+**IKEA Manager Charged for Firing Pole Over Anti-Gay Remarks**\
+`A Polish prosecutor has charged an IKEA manager with violating the religious rights of an employee sacked for voicing strong objections, within the company, to a corporate event supporting tolerance for LGBT people last year.`\
+https://nytimes.com/aponline/2020/05/28/world/europe/ap-eu-poland-gay-rights.html?searchResultPosition=4
+
+**Hungary Outlaws Changing Gender on Documents After Birth**\
+`A new law, the first of its kind in Europe, is a blow against transgender rights and the latest skirmish in a continuing culture war.`\
+https://nytimes.com/2020/05/28/world/europe/hungary-transgender-law.html?searchResultPosition=5
+
+**Paris No Longer Deemed a 'Red' Coronavirus Danger Zone: French PM**\
+`Paris is no longer deemed to be a "red" coronavirus danger zone, the risks posed by the virus moving down a notch to "orange", French Prime Minister Edouard Philippe said on Thursday.`\
+https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-health-coronavirus-france-paris.html?searchResultPosition=6
+
+**Health Results Are Good in France Regarding Coronavirus: PM**\
+`Health results have been good so far in France, Prime Minister Edouard Philippe said on Thursday, as the country prepares to enter a second phase in its relaxation of lockdown rules on June 2.`\
+https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-health-coronavirus-france-healthresults.html?searchResultPosition=7
+
+**Target, Walmart Outbox Department Stores in Reshaped World**\
+`The future of the post-pandemic retail economy in the U.S. looks both boxy and digital.`\
+https://nytimes.com/aponline/2020/05/28/business/ap-off-the-charts-reshaping-retail.html?searchResultPosition=8
+
+**North Koreans Accused of Laundering $2.5 Billion for Nuclear Program**\
+`The Justice Department unsealed an indictment accusing nearly three dozen people of using shell companies to launder billions through the global financial system.`\
+https://nytimes.com/2020/05/28/us/politics/north-korea-money-laundering-nuclear-weapons.html?searchResultPosition=9
+
 **William J. Small, Key Official During CBS News’s Heyday, Dies at 93**\
 `As the network’s Washington bureau chief, Mr. Small built a journalistic all-star team that included Dan Rather, Lesley Stahl and many others.`\
-https://nytimes.com/2020/05/28/business/media/william-j-small-dead.html?searchResultPosition=3
-
-**Hundreds at Vigil for Victims of Fatal Grand Forks Shooting**\
-`Dozens of first responders paraded through a North Dakota city to honor a police officer who was shot to death by a man being served with an eviction notice.`\
-https://nytimes.com/aponline/2020/05/28/us/ap-us-grand-forks-shooting.html?searchResultPosition=4
-
-**Mayor Says NYC Businesses Can't 'Jump the Gun' on Reopening**\
-`New York City businesses that try to reopen before coronavirus restrictions are lifted will face fines starting at $1,000, Mayor Bill de Blasio said Thursday.`\
-https://nytimes.com/aponline/2020/05/28/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=5
-
-**Court Orders Defiant Michigan Barber to Close His Shop**\
-`A Michigan court on Thursday ordered a barber to close his shop and stop defying the state's coronavirus restrictions, though he vowed to keep cutting hair.`\
-https://nytimes.com/aponline/2020/05/28/business/ap-us-virus-outbreak-defiant-barber.html?searchResultPosition=6
-
-**Rwandan Ex-Politician Handed Life Jail Term for Genocide Role**\
-`A Rwandan court on Thursday handed a life sentence to a former politician found guilty of orchestrating the killing of tens of thousands of people during the 1994 genocide, a court spokesman said.`\
-https://nytimes.com/reuters/2020/05/28/world/africa/28reuters-rwanda-crime.html?searchResultPosition=7
-
-**U.S. Caps Charter Flights to Cuba at 3,600 Per Year: Agency**\
-`The U.S. Transportation Department said Thursday it will cap charter flights to Cuba at 3,600 per year as the Trump administration moves to curb the Cuban government's access to revenue.`\
-https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-usa-cuba-flights.html?searchResultPosition=8
-
-**Mexican President Disagrees With Bank of Mexico's Recession Forecasts**\
-`Mexican President Andres Manuel Lopez Obrador said on Thursday he disagrees with the Bank of Mexico's forecasts for a major recession caused by the coronavirus pandemic, and predicted that the economy will instead recover soon.`\
-https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-mexico-economy.html?searchResultPosition=9
-
-**Some Bank of Mexico Board Members See Room for More Rate Cuts: Minutes**\
-`Some of the five board members of Mexico's central bank said the economic impact of the coronavirus pandemic granted scope for lowering its main interest rate further, minutes from the bank's last monetary policy meeting showed on Thursday.`\
-https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-mexico-economy-minutes.html?searchResultPosition=10
+https://nytimes.com/2020/05/28/business/media/william-j-small-dead.html?searchResultPosition=10
 
