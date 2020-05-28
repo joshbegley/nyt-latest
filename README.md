@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/05/28/sports/football/ap-fbn-rule-changes.html
 https://nytimes.com/2020/05/28/opinion/letters/coronavirus-trump-religion.html?searchResultPosition=7
 
 **Boston Marathon Canceled for the First Time**\
-`The Boston Marathon, which was initially postponed from April 20 to Sept. 14, has been canceled for the first time in the race’s 124 year history.`\
+`The race, which had been postponed to Sept. 14 from April 20, was canceled on Thursday for the first time in its 124-year history.`\
 https://nytimes.com/2020/05/28/sports/boston-marathon-canceled.html?searchResultPosition=8
 
 **‘Ramy’ and the New American Muslims of TV**\
