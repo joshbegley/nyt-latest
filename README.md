@@ -1,32 +1,32 @@
+**William J. Small, Key Official During CBS News’s Heyday, Dies at 93**\
+`As the network’s Washington bureau chief, Mr. Small built a journalistic all-star team that included Dan Rather, Lesley Stahl and many others.`\
+https://nytimes.com/2020/05/28/business/media/william-j-small-dead.html?searchResultPosition=3
+
+**Hundreds at Vigil for Victims of Fatal Grand Forks Shooting**\
+`Dozens of first responders paraded through a North Dakota city to honor a police officer who was shot to death by a man being served with an eviction notice.`\
+https://nytimes.com/aponline/2020/05/28/us/ap-us-grand-forks-shooting.html?searchResultPosition=4
+
+**Mayor Says NYC Businesses Can't 'Jump the Gun' on Reopening**\
+`New York City businesses that try to reopen before coronavirus restrictions are lifted will face fines starting at $1,000, Mayor Bill de Blasio said Thursday.`\
+https://nytimes.com/aponline/2020/05/28/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=5
+
+**Court Orders Defiant Michigan Barber to Close His Shop**\
+`A Michigan court on Thursday ordered a barber to close his shop and stop defying the state's coronavirus restrictions, though he vowed to keep cutting hair.`\
+https://nytimes.com/aponline/2020/05/28/business/ap-us-virus-outbreak-defiant-barber.html?searchResultPosition=6
+
+**Rwandan Ex-Politician Handed Life Jail Term for Genocide Role**\
+`A Rwandan court on Thursday handed a life sentence to a former politician found guilty of orchestrating the killing of tens of thousands of people during the 1994 genocide, a court spokesman said.`\
+https://nytimes.com/reuters/2020/05/28/world/africa/28reuters-rwanda-crime.html?searchResultPosition=7
+
+**U.S. Caps Charter Flights to Cuba at 3,600 Per Year: Agency**\
+`The U.S. Transportation Department said Thursday it will cap charter flights to Cuba at 3,600 per year as the Trump administration moves to curb the Cuban government's access to revenue.`\
+https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-usa-cuba-flights.html?searchResultPosition=8
+
 **Mexican President Disagrees With Bank of Mexico's Recession Forecasts**\
 `Mexican President Andres Manuel Lopez Obrador said on Thursday he disagrees with the Bank of Mexico's forecasts for a major recession caused by the coronavirus pandemic, and predicted that the economy will instead recover soon.`\
-https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-mexico-economy.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-mexico-economy.html?searchResultPosition=9
 
 **Some Bank of Mexico Board Members See Room for More Rate Cuts: Minutes**\
 `Some of the five board members of Mexico's central bank said the economic impact of the coronavirus pandemic granted scope for lowering its main interest rate further, minutes from the bank's last monetary policy meeting showed on Thursday.`\
-https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-mexico-economy-minutes.html?searchResultPosition=4
-
-**KKR to Inject Money Into Vending Machine Group Selecta: Sources**\
-`U.S. buyout group KKR is preparing to inject funds into Swiss vending machine company Selecta, which is saddled with debts and faces a loss of business due to the coronavirus crisis, four sources close to the matter said.`\
-https://nytimes.com/reuters/2020/05/28/business/28reuters-kkr-selecta.html?searchResultPosition=5
-
-**Southwest Airlines Adds Routes Catering to Business Travelers**\
-`Southwest Airlines Co said on Thursday it was adding new routes with more frequencies and nonstop flights from Phoenix, Denver, Las Vegas and Nashville. `\
-https://nytimes.com/reuters/2020/05/28/business/28reuters-southwest-routes.html?searchResultPosition=6
-
-**White House Won't Issue Economic Projections This Summer**\
-`The White House will not release its official midyear economic update this summer, declining to put its stamp on data documenting the plunge into recession during the coronavirus pandemic and avoiding going on record with a prediction about the economy's future.`\
-https://nytimes.com/aponline/2020/05/28/business/bc-us-virus-outbreak-economy.html?searchResultPosition=7
-
-**6 Things to Do at Home This Weekend**\
-`Our culture writers offer suggestions for what to watch or listen to while we’re housebound.`\
-https://nytimes.com/2020/05/28/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=8
-
-**India Allows Export of Paracetamol API: Statement**\
-`India has ended restrictions on export of active pharmaceutical ingredients (API) of common pain reliever paracetamol, the Directorate General Of Foreign Trade (DGFT) said in a statement on Thursday.`\
-https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-health-coronavirus-india-paracetamol.html?searchResultPosition=9
-
-**Moscow Updates Coronavirus Statistics to Show More Deaths**\
-`Health officials in Moscow updated their figures on coronavirus deaths Thursday, seeking to dispel doubts about Russia's comparatively low COVID-19 death toll. `\
-https://nytimes.com/aponline/2020/05/28/world/europe/ap-virus-outbreak-russia-mortality.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-mexico-economy-minutes.html?searchResultPosition=10
 
