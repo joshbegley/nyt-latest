@@ -22,7 +22,7 @@ https://nytimes.com/2020/05/28/business/energy-environment/pge-bankruptcy-califo
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2020/05/28/briefing/unemployment-minneapolis-pamela-anderson.html?searchResultPosition=8
 
-**Cortez Masto Withdraws Name From Biden VP Consideration**\
+**Sen. Cortez Masto Withdraws Name From Biden VP Consideration**\
 `Democratic Sen. Catherine Cortez Masto of Nevada said Thursday that she’s not interested in serving as running mate to presumptive presidential nominee Joe Biden. `\
 https://nytimes.com/aponline/2020/05/28/us/politics/ap-us-election-2020-biden-cortez-masto.html?searchResultPosition=9
 
