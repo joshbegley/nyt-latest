@@ -1,32 +1,32 @@
+**Democrats Charge OSHA Isn't Protecting Front-Line Workers**\
+`As U.S. coronavirus deaths top 100,000, Democrats are slamming the Trump administration for failing to protect front-line workers, including those at meatpacking plants and health care facilities where outbreaks of the disease are spiking.`\
+https://nytimes.com/aponline/2020/05/28/business/bc-us-virus-outreak-worker-protections.html?searchResultPosition=3
+
+**Chris Rock, Rosie Perez Appear With New York Gov. Cuomo, Urge Mask Wearing**\
+`Comedian Chris Rock and actress Rosie Perez made a surprise appearance at New York Governor Andrew Cuomo's daily news conference to underscore his message that the public should wear masks to help curb the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/28/us/28reuters-health-coronavirus-new-york-celebrities.html?searchResultPosition=4
+
+**S&P Cuts Rolls-Royce Credit Rating to Junk on COVID-19 Hit**\
+`Ratings agency Standard & Poor's cut engine maker Rolls-Royce's credit rating to junk on Thursday, citing the disruption caused to global air travel from the COVID-19 pandemic. `\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-health-coronavirus-rolls-royce-hldg.html?searchResultPosition=5
+
+**Roman Villa’s Mosaics Are Unearthed, Again, a Century After Last Dig**\
+`The site in northern Italy was excavated in 1922, but then reburied and mostly forgotten about. But not by archaeologists, who made “an important find” of mosaics from the third or fourth century A.D.`\
+https://nytimes.com/2020/05/28/world/europe/italy-roman-villa-mosaic.html?searchResultPosition=6
+
+**Rediscovering Wine After Covid-19**\
+`Aside from its toll on human life, the pandemic has also stolen little things, like the ability to smell and taste. How a neurologist found a deeper relationship with wine.`\
+https://nytimes.com/2020/05/28/dining/drinks/wine-coronavirus-sense-of-smell.html?searchResultPosition=7
+
 **Libya Traffickers Kill 30 Migrants in Alleged Revenge Attack**\
 `The family of a slain Libyan human trafficker attacked a group of migrants in a town that recently changed hands amid the fighting over the country's capital, killing 26 Bangladeshi and four African migrants, the Tripoli government said on Thursday. `\
-https://nytimes.com/aponline/2020/05/28/world/middleeast/ap-ml-libya-migrants.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/05/28/world/middleeast/ap-ml-libya-migrants.html?searchResultPosition=8
 
 **Margaret Maughan, Medal-Winning Wheelchair Athlete, Dies at 91**\
 `Paralyzed from the waist down, she won gold in archery and swimming at the first Paralympic Games in 1960 and became an advocate of sports as therapy.`\
-https://nytimes.com/2020/05/28/sports/olympics/margaret-maughan-dead.html?searchResultPosition=4
+https://nytimes.com/2020/05/28/sports/olympics/margaret-maughan-dead.html?searchResultPosition=9
 
 **Carvel H. Moore, Who Found a Career in Bettering a City, Dies at 90**\
 `Ms. Moore, an early proponent of business improvement districts across New York City, has died of complications from the coronavirus.`\
-https://nytimes.com/2020/05/28/obituaries/carvel-moore-dead-coronavirus.html?searchResultPosition=5
-
-**In Africa, a Drive to End Malnutrition Meets Covid-19**\
-`A way has been found to enrich the unfortified flour that Tanzanians eat as a staple. But the pandemic is getting in the way.`\
-https://nytimes.com/2020/05/28/opinion/coronavirus-africa-malnutrition.html?searchResultPosition=6
-
-**Fire Rips Through Crowded Cameroon Prison**\
-`A fire tore through an overcrowded maximum security prison in Cameroon's port city of Douala on Thursday leading to the hospitalisation of three prisoners with serious burns, a local fire chief said.`\
-https://nytimes.com/reuters/2020/05/28/world/africa/28reuters-cameroon-prison-fire.html?searchResultPosition=7
-
-**Islamic State Calls COVID-19 God's Punishment for Foes: Tape**\
-`Islamic State (IS) said the coronavirus pandemic was divine punishment for its enemies, according to an audio broadcast on Thursday, where the jihadists also vowed more attacks.`\
-https://nytimes.com/reuters/2020/05/28/world/middleeast/28reuters-health-coronavirus-islamicstate.html?searchResultPosition=8
-
-**U.S. State Department Clears $1.4 Billion Sale of Patriot Air and Missile System to Kuwait**\
-`The U.S. State Department has approved a possible $1.425 billion sale of Patriot air and missile defense system components and upgrades to Kuwait, the Pentagon said on Thursday after notifying Congress of the certification.`\
-https://nytimes.com/reuters/2020/05/28/technology/28reuters-usa-kuwait-patriot.html?searchResultPosition=9
-
-**Zuckerberg Says Facebook Stronger Than Other Tech Companies on Free Speech**\
-`Facebook Inc Chief Executive Mark Zuckerberg said on Thursday his company was more committed to free speech than other tech firms, as Twitter faced blowback from the White House for fact-checking tweets by U.S. President Donald Trump.`\
-https://nytimes.com/reuters/2020/05/28/technology/28reuters-twitter-trump-facebook-zuckerberg.html?searchResultPosition=10
+https://nytimes.com/2020/05/28/obituaries/carvel-moore-dead-coronavirus.html?searchResultPosition=10
 
