@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/05/27/us/ap-us-houston-hammer-arrest.html?sear
 `Texas officials fighting to block widespread mail-in voting during the pandemic claimed victory after the state's highest court ruled Wednesday that a lack of immunity to the coronavirus doesn't qualify someone to cast a ballot by mail. `\
 https://nytimes.com/aponline/2020/05/27/us/ap-us-election-2020-texas.html?searchResultPosition=6
 
-**‘On the Record’ Review: A Black Woman’s View of #MeToo**\
+**‘On the Record’ Review: A Black Woman Says ‘#MeToo’**\
 `This documentary about allegations against the music mogul Russell Simmons generated controversy at Sundance when Oprah Winfrey pulled out as an executive producer.`\
 https://nytimes.com/2020/05/27/movies/on-the-record-russell-simmons-review.html?searchResultPosition=7
 
