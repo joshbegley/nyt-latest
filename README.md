@@ -1,32 +1,32 @@
-**Sen. Kaine Tests Positive for Coronoavirus Antibody Test**\
-`Sen. Tim Kaine of Virginia says he and his wife have tested positive after taking coronavirus antibody tests.`\
-https://nytimes.com/aponline/2020/05/28/us/ap-us-virus-outbreak-kaine.html?searchResultPosition=3
+**Chinese Grad Students May Be Next Hit by US-China Tensions**\
+`The Trump administration may expel thousands of Chinese graduate students enrolled at U.S. universities in the latest sign of tensions between Washington and Beijing that are raging over trade, the coronavirus pandemic, human rights and the status of Hong Kong.`\
+https://nytimes.com/aponline/2020/05/28/us/politics/ap-us-united-states-china.html?searchResultPosition=3
 
-**Mammoth Skeletons Dug Up at Mexico City Airport Construction Site**\
-`Alongside construction crews racing to build the Mexican capital's new airport, skulls and curving tusks of massive mammoths peek through the dirt as archaeologists dig up more and more bones belonging to the ice age's most famous mammal.`\
-https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-mexico-mammoths.html?searchResultPosition=4
+**UK Will Extend HK Visa Rights if China Pursues Security Law**\
+`The British government said Thursday that it will grant hundreds of thousands of Hong Kong residents greater visa rights if China doesn’t scrap a planned new security law for the semi-autonomous territory.`\
+https://nytimes.com/aponline/2020/05/28/world/europe/ap-eu-britain-hong-kong.html?searchResultPosition=4
 
-**Debt Relief Plans for World's Poor Countries Inch Forward**\
-`Plans for debt relief for world's poorest countries inched forward on Thursday as private creditors laid out a blueprint for their involvement, though it received immediate criticism for not going far enough.`\
-https://nytimes.com/reuters/2020/05/28/business/28reuters-health-coronavirus-debt-private.html?searchResultPosition=5
+**Burundi Opposition Candidate Goes to Court to Challenge Vote**\
+`Burundi's top opposition leader went to the constitutional court Thursday to challenge the results of this month’s presidential election, alleging the vote was rigged in favor of the ruling party candidate.`\
+https://nytimes.com/aponline/2020/05/28/world/africa/ap-af-burundi-election.html?searchResultPosition=5
 
-**Falling Into the Gap Year**\
-`With next semester a question mark, more graduating high school seniors are considering deferring college. But what will they do instead?`\
-https://nytimes.com/2020/05/28/style/should-I-take-a-gap-year.html?searchResultPosition=6
+**The New Normal: How Safe Are Beaches?**\
+`People are hitting the beach as coronavirus restrictions start to ease and summer begins in the northern hemisphere, but access might be limited and public health officials still urge caution, including continued physical distancing.`\
+https://nytimes.com/reuters/2020/05/28/us/28reuters-health-coronavirus-howtoguide-beaches.html?searchResultPosition=6
 
-**For Top U.S. Virus Experts, Faith and Science Work Together**\
-`The relationship between faith and science has faced its share of strain during the coronavirus pandemic — but for some scientists leading the nation's response, the two have worked in concert.`\
-https://nytimes.com/aponline/2020/05/28/us/ap-virus-outbreak-scientists-of-faith.html?searchResultPosition=7
+**Volkswagen Becomes Biggest Shareholder of China's EV Battery Maker Guoxuan**\
+`German automaker Volkswagen AG has become the biggest shareholder of China's electric vehicle battery maker Guoxuan High-Tech Co Ltd with a 26.5% stake, Guoxuan said in stock exchange filings on Thursday.`\
+https://nytimes.com/reuters/2020/05/28/technology/28reuters-guoxuan-volkswagen-m-a-electric.html?searchResultPosition=7
 
-**France to Speed Up Re-Opening of Schools: PM**\
-`France will accelerate a plan a plan to re-open high schools and junior high schools across the country, Prime Minister Edouard Philippe said on Thursday.`\
-https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-health-coronavirus-france-schools.html?searchResultPosition=8
+**Players Building Counter to MLB's Pay-Cut Proposal**\
+`Upset with MLB's economic offer to players, the Major League Baseball Players Association soon will present a counteroffer to owners that includes a schedule of more than 100 games and an accompanying prorated cut in pay, ESPN's Jeff Passan reported Thursday.`\
+https://nytimes.com/reuters/2020/05/28/sports/baseball/28reuters-baseball-mlb-counter-offer.html?searchResultPosition=8
 
-**Spain's COVID-19 Deaths Edge Up to 27,119**\
-`Spain's Health Ministry said recorded deaths from the coronavirus reached 27,119 on Thursday, rising by just one for the second day in a row as authorities fine-tune a new methodology for logging cases and deaths. `\
-https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-health-coronavirus-spain-tally.html?searchResultPosition=9
+**IOC Says Record High Female Representation on Commissions**\
+`The International Olympic Committee (IOC) says women now account for almost half of the membership of its various commissions, an all-time high in the organisation's drive for gender equality.`\
+https://nytimes.com/reuters/2020/05/28/sports/olympics/28reuters-olympics-ioc.html?searchResultPosition=9
 
-**AP PHOTOS: Brazil Drive-In, a Welcome Escape From Pandemic**\
-`As daylight drained from the sky in Brazil’s capital, dozens of cars formed a line, all filled with passengers set to indulge in one of the few diversions allowed in the age of social distancing: a film at the drive-in. `\
-https://nytimes.com/aponline/2020/05/28/world/americas/ap-lt-brazil-drive-in-cinema-photo-gallery.html?searchResultPosition=10
+**French COVID-19 Tracing App to Be Available From June 2: PM**\
+`The French government's contact-tracing app to curb the new coronavirus outbreak spread will be available from June 2, Prime Minister Edouard Philippe told a news conference on Thursday.`\
+https://nytimes.com/reuters/2020/05/28/technology/28reuters-health-coronavirus-france-tracingapp.html?searchResultPosition=10
 
