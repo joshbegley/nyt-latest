@@ -1,32 +1,32 @@
-**IMF Approves Two-Year, $11 Billion Flexible Credit Line for Peru**\
-`The International Monetary Fund on Thursday said its executive board had approved Peru's request for a two-year $11 billion flexible credit line to be used as precautionary financing as the copper-rich country responds to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-imf-peru.html?searchResultPosition=3
+**Mexico's President Seeks Power Contract Review, Likens to Argentine Debt Talks**\
+`Mexico's president on Thursday likened a battle between the national power utility and private operators to Argentina's debt restructuring negotiations with creditors, calling for energy contracts signed by previous governments to be reworked.`\
+https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-mexico-power-argentina.html?searchResultPosition=3
 
-**Japan April Retail Sales Fall 13.7% Year/year: Government**\
-`Japanese retail sales slumped 13.7% in April from a year earlier, compared with a median market forecast for an 11.5% decline, government data showed on Friday.`\
-https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-japan-economy-retail.html?searchResultPosition=4
+**Long Odds: China's Bet on REITs Draws Sceptics**\
+`China's plans to introduce real estate investment trusts (REITs) mark a crucial step to get private money to fund infrastructure such as toll roads and sewage systems, but authorities have their work cut out in creating a fully-fledged market.`\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-china-reits-analysis.html?searchResultPosition=4
 
-**Brazil Mulls Extending Aid Program for Informal Workers, but Lowering Payments**\
-`Brazil's government is in talks with Congress about extending the emergency program to provide informal workers hit by the coronavirus crisis with three monthly payments of 600 reais ($112), but at a reduced level, Treasury Secretary Mansueto Almeida said on Thursday.`\
-https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-brazil-economy-emergency-measures.html?searchResultPosition=5
+**India's Economy Seen Slowing Rapidly in March Quarter, With Worse to Come**\
+`Gross domestic product data out later on Friday is expected to show India's economy grew at its slowest pace in at least two years in the March quarter as the coronavirus pandemic weakened already declining consumer demand and private investment.`\
+https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-india-economy-gdp.html?searchResultPosition=5
 
-**Shots Fired During Denver Protest of Minneapolis Man's Death**\
-`Shots were fired and protesters blocked traffic during a demonstration in downtown Denver to protest the death of a handcuffed black man during a confrontation with a white police officer in Minnesota, authorities said. There were no immediate reports of injuries.`\
-https://nytimes.com/aponline/2020/05/28/us/ap-us-minneapolis-police-death-denver-protest-1st-ld-writethru.html?searchResultPosition=6
+**Australia's New South Wales State Warns of COVID-19 Budget Toll**\
+`Australia's biggest state in economic terms said on Friday the coronavirus pandemic could cost it as much A$20 billion ($13.3 billion) in lost revenues over the next four years, underscoring the urgency to revive the country's stuttering economy.`\
+https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-health-coronavirus-australia.html?searchResultPosition=6
 
-**House Democrats Demand Probes of Police Killings of Black Americans**\
-`The Democratic-controlled U.S. House Judiciary Committee on Thursday asked the Justice Department to investigate systemic police misconduct following a spate of high-profile police killings of African Americans.`\
-https://nytimes.com/reuters/2020/05/28/us/politics/28reuters-minneapolis-police-usa-congress.html?searchResultPosition=7
+**Pandemic's Hit to Japan's Factory, Retail Sectors Deeper Than Expected**\
+`Japan's April factory output fell at a much faster-than-expected pace and retail sales tumbled the most in more than two decades as a coronavirus-triggered state of emergency dealt a heavy blow to the economy.`\
+https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-japan-economy-output.html?searchResultPosition=7
 
-**California Regulator Approves PG&E's Chapter 11 Reorganization Plan**\
-`PG&E Corp said on Thursday its Chapter 11 reorganization plan has been confirmed by a California power regulator, bringing the power provider one step closer to emerge from bankruptcy and participate in a state-backed wildfire fund.`\
-https://nytimes.com/reuters/2020/05/28/business/28reuters-pg-e-us-bankruptcy.html?searchResultPosition=8
+**South Korea's April Factory Output Shrinks Most Since 2008**\
+`South Korea's factory output shrank at its sharpest pace in more than 11 years in April, official data showed on Friday, as a spike in the number of coronavirus infections and lockdown measures across the world decimated global demand.`\
+https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-health-coronavirus-southkorea-industrialoutput.html?searchResultPosition=8
 
-**GM to Increase North America Vehicle Production**\
-`General Motors said on Thursday it would start increasing vehicle production in North America from next week to meet rising demand. `\
-https://nytimes.com/reuters/2020/05/28/business/28reuters-gm-production.html?searchResultPosition=9
+**Canada's CIBC Lost $64 Million in a Day on Paper in Gold Market Turmoil**\
+`Canadian Imperial Bank of Commerce (CIBC) took a mark-to-market trading loss of C$88.2 million ($64 million) in one day in March due mainly to volatility in the gold market, the bank said in its second-quarter earnings report on Thursday. `\
+https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-cibc-gold.html?searchResultPosition=9
 
-**ViacomCBS Slashes Up to 400 Jobs as Part of Merger Restructuring: Source**\
-`ViacomCBS Inc is cutting up to 400 employees across CBS as part of its plan to save $750 million from its merger with CBS, a source familiar with the matter said on Thursday. `\
-https://nytimes.com/reuters/2020/05/28/business/28reuters-media-viacomcbs-jobs.html?searchResultPosition=10
+**Fed Posts Fee Schedule for Municipal Liquidity Facility**\
+`The New York Federal Reserve Bank on Thursday posted a schedule of fees to be paid to BLX LLC, the administrative agent for its Municipal Liquidity Facility, the $500 billion borrowing program for states and local governments hurt by the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/05/28/us/28reuters-usa-fed-municipal.html?searchResultPosition=10
 
