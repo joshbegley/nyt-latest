@@ -1,28 +1,28 @@
+**FDA Approves Abbvie's Treatment to Control Menstrual Bleeding**\
+`The U.S. Food and Drug Administration on Friday approved Abbvie Inc's oral treatment for managing heavy menstrual bleeding associated with fibroids in premenopausal women.`\
+https://nytimes.com/reuters/2020/05/29/us/29reuters-abbvie-fda.html?searchResultPosition=4
+
+**Exclusive: Sanofi Stops Enrolling COVID-19 Patients in Hydroxychloroquine Trials Amid Safety Concerns**\
+`Sanofi has temporarily stopped recruiting new COVID-19 patients for its two clinical trials on hydroxychloroquine and will not supply the anti-malaria drug to treat COVID-19 until concerns about safety are cleared up, it said on Friday.`\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-healthcare-coronavirus-hydroxychloroquine-sanofi-fr-ex.html?searchResultPosition=5
+
+**South Africa Has Backlog of Over 96,000 Coronavirus Tests**\
+`South Africa has a backlog of more than 96,000 unprocessed specimens awaiting coronavirus tests, the health ministry said on Friday, reflecting what it called a global shortage of test kits.`\
+https://nytimes.com/reuters/2020/05/29/world/africa/29reuters-health-coronavirus-safrica.html?searchResultPosition=6
+
+**UK COVID-19 Confirmed Death Toll Rises 324 to 38,161**\
+`The United Kingdom's death toll from confirmed cases of COVID-19 has risen by 324 to 38,161, finance minister Rishi Sunak said on Friday.`\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-britain-toll.html?searchResultPosition=7
+
+**Italy Records 87 New Coronavirus Deaths, 516 New Cases**\
+`Deaths from the COVID-19 epidemic in Italy climbed by 87 on Friday, against 70 the day before, the Civil Protection Agency said, while the daily tally of new cases fell to 516 from 593 on Thursday.`\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-italy-tally.html?searchResultPosition=8
+
+**Keep These Recipes**\
+`These dishes are worth coming back to time after time.`\
+https://nytimes.com/2020/05/29/dining/keep-these-recipes.html?searchResultPosition=9
+
 **How ‘The Vast of Night’ Builds Tension With a Strange Sound**\
 `The director Andrew Patterson discusses a sequence from his film, now streaming on Amazon Prime.`\
-https://nytimes.com/2020/05/29/movies/the-vast-of-night-clip.html?searchResultPosition=4
-
-**'Never Have I Ever' Brings Rare Voice, and a Newcomer, to TV**\
-`When Mindy Kaling was growing up in the Boston area, few classmates looked like her, and her television choices ranged from angsty white teenagers to funny white teenagers.`\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-tv-never-have-i-ever.html?searchResultPosition=5
-
-**Questions on Reopening New York's Economy Baffle Businesses**\
-`Some upstate New York business owners who made plans to reopen Friday as the state gradually loosens restrictions put in place during the coronavirus crisis remained close amid last-minute confusion over whether their region indeed had the OK to move forward.`\
-https://nytimes.com/aponline/2020/05/29/business/ap-us-virus-outbreak-new-york-.html?searchResultPosition=6
-
-**‘The Vast of Night’ | Anatomy of a Scene**\
-`The director Andrew Patterson discusses a switchboard sequence from his science-fiction drama featuring Sierra McCormick.`\
-https://nytimes.com/video/movies/100000007163311/the-vast-of-night-scene.html?searchResultPosition=7
-
-**Testing Is Key to Beating Coronavirus, Right? Japan Has Other Ideas**\
-`The country has reported fewer deaths than other major nations and ended a state of emergency even while maintaining a low testing rate.`\
-https://nytimes.com/2020/05/29/world/asia/japan-coronavirus.html?searchResultPosition=8
-
-**Virus Could Lead More States to OK Sports, Online Betting**\
-`The coronavirus pandemic could lead to a quicker expansion of sports betting and internet gambling in the U.S. as states deal with huge budget deficits and look for new tax revenue wherever they can find it.`\
-https://nytimes.com/aponline/2020/05/29/sports/ap-us-virus-outbreak-gambling-expansion.html?searchResultPosition=9
-
-**Ruling Means Missouri's Last Abortion Clinic Stays Open**\
-`Missouri's only abortion clinic will be able to keep operating after a state government administrator decided Friday that the health department was wrong not to renew the license of the Planned Parenthood facility in St. Louis.`\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-abortion-missouri.html?searchResultPosition=10
+https://nytimes.com/2020/05/29/movies/the-vast-of-night-clip.html?searchResultPosition=10
 
