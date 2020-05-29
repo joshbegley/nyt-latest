@@ -12,7 +12,7 @@ https://nytimes.com/aponline/2020/05/29/business/ap-financial-markets-box.html?s
 
 **The Voice That Steadied Alaska**\
 `Why we told the story of Genie Chance and the Great Alaska Earthquake.`\
-https://nytimes.com/2020/05/29/podcasts/the-voice-that-steadied-alaska.html?searchResultPosition=8
+https://nytimes.com/2020/05/29/podcasts/genie-chance-alaska-virus.html?searchResultPosition=8
 
 **Aid Swelled Incomes, but Spending Still Saw a ‘Wild’ Drop**\
 `Government assistance, mainly stimulus checks, provided an overall boost in April. With little immediate outlet, savings soared.`\
