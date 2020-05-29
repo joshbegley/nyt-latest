@@ -1,24 +1,24 @@
-**Renault Is Slashing Its Workforce. Other Carmakers May Follow.**\
-`The French carmaker said it would close assembly lines and abandon China as sales plunge. Other carmakers are expected to take similarly harsh measures.`\
-https://nytimes.com/2020/05/29/business/renault-job-cuts.html?searchResultPosition=5
+**Los Angeles Union, Joined by 'Pandemic Pig,' Demands Meatpacking Plant Closure**\
+`The union representing workers at a meatpacking plant near Los Angeles where at least 153 employees have come down with COVID-19 called on Thursday for the plant's immediate closure, saying measures to control the outbreak were not working.`\
+https://nytimes.com/reuters/2020/05/29/business/29reuters-health-coronavirus-usa-meat-plant.html?searchResultPosition=5
 
-**Tencent in Talks to Buy Warner Music Stake: WSJ**\
-`Chinese internet giant Tencent Holdings Ltd is in discussions to invest $200 million in Warner Music Group, ahead of the record company's initial public offering next week, the Wall Street Journal reported https://www.`\
-https://nytimes.com/reuters/2020/05/29/business/29reuters-warner-music-ipo-tencent-holdings.html?searchResultPosition=6
+**Federer Tops Highest-Earning Athlete List at More Than $100M**\
+`Roger Federer leads the annual Forbes ranking of highest-paid athletes with what the magazine says is $106.3 million in total earnings.`\
+https://nytimes.com/aponline/2020/05/29/sports/tennis/ap-ten-federer-top-earning-athlete.html?searchResultPosition=6
 
-**U.S. Justice Dept. Backs Challenge to Maine Order Blocking Nonresident Campground Use**\
-`The U.S. Justice Department on Friday backed a lawsuit challenging Maine's decision to block nonresidents from using campgrounds amid the ongoing novel coronavirus pandemic, the Trump administration's second such move against state orders.`\
-https://nytimes.com/reuters/2020/05/29/us/29reuters-health-coronavirus-usa-maine.html?searchResultPosition=7
+**American Facing Espionage Charge in Russia Undergoes Surgery**\
+`An American on trial for alleged espionage in Russia has undergone emergency surgery.`\
+https://nytimes.com/aponline/2020/05/29/world/europe/ap-eu-russia-us-espionage.html?searchResultPosition=7
 
-**U.S. Treasury Unveils Rules for Carbon Capture Tax Credits**\
-`The U.S. Treasury Department has released rules guiding how companies use a federal tax credit designed to spur investment in carbon capture and sequestration projects.`\
-https://nytimes.com/reuters/2020/05/29/us/29reuters-usa-energy-carboncapture.html?searchResultPosition=8
+**Charges Recommended Against 3 Officers Involved in Violent N.Y. Arrest**\
+`The charges would be in connection with a May 2 incident during which an officer sat on a man’s neck.`\
+https://nytimes.com/2020/05/29/nyregion/nypd-officers-charged-social-distancing-arrest.html?searchResultPosition=8
 
-**Brazil GDP to Fall 5% or More This Year: Central Bank Chief Campos Neto**\
-`Brazil's economy will likely shrink by 5% or more this year, central bank president Roberto Campos Neto said on Friday, which would be a record annual downturn and worse than the government's current forecast of a 4.7% contraction.`\
-https://nytimes.com/reuters/2020/05/29/world/americas/29reuters-brazil-economy-cenbank.html?searchResultPosition=9
+**49ers DE Ford Reportedly Has 'Extensive' Knee Surgery**\
+`Dee Ford had what he termed "pretty extensive" arthroscopic knee surgery in the offseason, leaving the San Francisco 49ers' pass rusher as a question mark in his second season with the team.`\
+https://nytimes.com/reuters/2020/05/29/sports/football/29reuters-football-nfl-sf-ford-knee.html?searchResultPosition=9
 
-**India's Foreign Ministry Asks Some Officials to Quarantine After Two Positive for Virus**\
-`At least two people working at India's Foreign Affairs Ministry have tested positive for COVID-19, and the government has asked several officials to self quarantine as a precaution, according to a source and internal e-mails seen by Reuters.`\
-https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-india-ministry.html?searchResultPosition=10
+**USA Hockey President Jim Smith Facing Investigations**\
+`USA Hockey president Jim Smith is the subject of two investigations surrounding his tenure as the president of Amateur Hockey Association Illinois.`\
+https://nytimes.com/aponline/2020/05/29/sports/ap-hko-usa-hockey-investigations.html?searchResultPosition=10
 
