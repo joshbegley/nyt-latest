@@ -1,32 +1,32 @@
-**EU Watchdog Reiterates Caution on Hydroxychloroquine Use in COVID-19 Patients**\
-`Healthcare professionals should closely monitor COVID-19 patients who are receiving malaria drug hydroxychloroquine, given the serious side effects associated with the medicine, the European health regulator said on Friday.`\
-https://nytimes.com/reuters/2020/05/29/us/29reuters-health-coronavirus-ema-hydroxychloroquine.html?searchResultPosition=3
+**Brazil's Guedes Says More Credit, Reforms Needed to Revive 'Hibernating' Economy**\
+`Brazil's Economy Minister Paulo Guedes said on Friday that the government would continue pushing through economic reforms and increasing the supply of credit as it seeks to revive an economy which just shrank at its fastest rate in almost five years.`\
+https://nytimes.com/reuters/2020/05/29/world/americas/29reuters-brazil-economy-guedes.html?searchResultPosition=3
 
-**Little Fear, Lots of Love as Madrid Medics Do Home Rounds Amid Pandemic**\
-`With air kisses and palms clasped, elderly patients in Madrid greet medics who come to check them at home during the coronavirus pandemic despite the risks involved.`\
-https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-spain-home-care.html?searchResultPosition=4
+**India's Economy Slows in March Quarter, With Worse to Come**\
+`India's economy grew at its slowest pace in at least eight years in the January-March quarter as the COVID-19 pandemic weakened already sluggish consumer demand and investments.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-india-economy-gdp-views.html?searchResultPosition=4
 
-**Behind the Cover: Money**\
-`For this issue, a look at the staggering spike in unemployment in the United States.`\
-https://nytimes.com/2020/05/29/magazine/behind-the-cover-money.html?searchResultPosition=5
+**Russia to Continue Cutting Rates Amid Virus-Boosted Economic Contraction: Reuters Poll**\
+`The Russian central bank will continue cutting interest rates in 2020, as it faces a worsening economic contraction and lower inflationary risks, a Reuters poll showed on Friday.`\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-russia-economy.html?searchResultPosition=5
 
-**Danes Reopen Borders to 3 Countries, With Strings Attached**\
-`Danish Prime Minister Mette Frederiksen said Friday her country will reopen its borders next month - with strings attached - to residents of neighboring Germany, as well as Norway and Iceland, as Denmark accelerates its lockdown easing.`\
-https://nytimes.com/aponline/2020/05/29/world/europe/ap-eu-virus-outbreak-denmark-borders-open.html?searchResultPosition=6
+**Chile Jobless Rate Hits 9% Amid Pandemic**\
+`Chile's unemployment rate <CLUNR=ECI> hit 9% between February and April versus the same period a year ago, the government said on Friday, as lockdown measures to combat the coronavirus batter the South American nation´s already ailing economy.`\
+https://nytimes.com/reuters/2020/05/29/world/americas/29reuters-chile-unemployment.html?searchResultPosition=6
 
-**What You Need to Know Today About the Virus Outbreak**\
-`Europe’s extensive social welfare net is  showing signs of fraying  under economic strain from the coronavirus, as protests erupted for a second day in Spain on Friday against layoffs by French carmaker Renault, while Italy’s chief central banker warned that “uncertainty is rife.”`\
-https://nytimes.com/aponline/2020/05/29/us/bc-us-virus-outbreak-whats-happening.html?searchResultPosition=7
+**Instant View: Canada's GDP Growth in April Plunged by a Record 11% From March**\
+`Canada's economic growth in April plunged by a record 11% from March as large sections of the economy were shut down to fight the coronavirus outbreak, Statistics Canada said in a flash estimate on Friday.`\
+https://nytimes.com/reuters/2020/05/29/us/29reuters-canada-economy-instant-view.html?searchResultPosition=7
 
-**Solar Probe to Pass Through Comet's Tail for 'Bonus Science'**\
-`The European Space Agency said Friday that its Solar Orbiter probe will pass through the tail of a comet in the coming days and scientists plan to switch on its instruments early to conduct some “bonus science.”`\
-https://nytimes.com/aponline/2020/05/29/world/europe/ap-eu-europe-solar-orbiter-comets-tail.html?searchResultPosition=8
+**Coronavirus Depresses U.S. Consumer Spending in April**\
+`U.S. consumer spending suffered another month of record decline in April as the COVID-19 pandemic undercut demand, buttressing expectations that the economy could contract in the second quarter at its steepest pace since the Great Depression.`\
+https://nytimes.com/reuters/2020/05/29/us/29reuters-usa-economy-spending.html?searchResultPosition=8
 
-**How Will We Remember the Coronavirus Pandemic?**\
-`Museums are seeking artifacts that show how Americans navigated the Covid-19 crisis. What items would you submit to tell the story of this moment?`\
-https://nytimes.com/2020/05/29/learning/how-will-we-remember-the-coronavirus-pandemic.html?searchResultPosition=9
+**Canada GDP in April Fell a Record 11% as Economy Shut Down: Statscan**\
+`Canada's growth in April plunged by a record 11% from March as large sections of the economy were shut down to fight the coronavirus outbreak, Statistics Canada said in a flash estimate on Friday.`\
+https://nytimes.com/reuters/2020/05/29/us/29reuters-canada-economy-gdp.html?searchResultPosition=9
 
-**Somalia Says 8 'Very Young' Aid Workers Abducted, Killed**\
-`Somalia’s government says eight “very young” aid workers have been abducted and killed by an armed group outside the capital, Mogadishu.`\
-https://nytimes.com/aponline/2020/05/29/world/africa/ap-af-somalia-aid-workers-killed.html?searchResultPosition=10
+**Lasting Contango in Oil: Market Spread to Outlast Supply-Demand Imbalance**\
+`While vast cuts by producer countries and renewed fuel consumption from easing coronavirus lockdowns may soon rebalance oil supply and demand, some analysts and traders see a glut in storage keeping the market in contango for much longer.`\
+https://nytimes.com/reuters/2020/05/29/business/29reuters-global-oil-contango-graphic.html?searchResultPosition=10
 
