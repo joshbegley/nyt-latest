@@ -1,24 +1,24 @@
+**Factbox: Killing of Minnesota Black Man in 'I Can't Breathe' Case Sparks U.S. Protests**\
+`The killing of George Floyd, a Minneapolis black man who died after being pinned by the neck by a white police officer's knee, has triggered a wave of protests across the country, with more demonstrations expected on Friday.`\
+https://nytimes.com/reuters/2020/05/29/us/29reuters-minneapolis-police-protests-factbox.html?searchResultPosition=5
+
+**Analysts See Colombia's 2020 Inflation Below Central Bank Target: Reuters Survey**\
+`Analyst expectations for Colombia's inflation in 2020 fell below the targeted figure for the first time in six years, due to lower demand as the coronavirus pandemic chokes the economy, according to a survey by Reuters. `\
+https://nytimes.com/reuters/2020/05/29/world/americas/29reuters-colombia-inflation-poll.html?searchResultPosition=6
+
+**The Country Is Reopening. My Patients Are Still Suffering.**\
+`Nursing home residents. Cabdrivers. Immigrants. Covid-19 has become a disease of the vulnerable.`\
+https://nytimes.com/2020/05/29/opinion/sunday/coronavirus-nursing-homes.html?searchResultPosition=7
+
+**Florida Officials Approve Walt Disney World Re-Opening Plans**\
+`Florida officials have approved plans for a phased reopening of Walt Disney World in Orlando starting on July 11, according to a memo from a state agency released on Friday.`\
+https://nytimes.com/reuters/2020/05/29/us/29reuters-health-coronavirus-disney.html?searchResultPosition=8
+
+**Trump Moves to Strip Hong Kong of Special U.S. Relationship**\
+`The president said he would also terminate the United States’ relationship with the World Health Organization.`\
+https://nytimes.com/2020/05/29/us/politics/trump-hong-kong.html?searchResultPosition=9
+
 **Between Two Storms: Caribbean Braces for Hurricanes in Coronavirus Era**\
 `Ken Hutton is worried Great Abaco Island in the Bahamas where he lives is far from rebuilt after being devastated by Hurricane Dorian last year yet he is bracing for another hurricane season in the midst of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/29/world/americas/29reuters-health-coronavirus-caribbean-hurricanes.html?searchResultPosition=5
-
-**Trump Tells Administration to Begin Process of Eliminating Hong Kong Privileges**\
-`U.S. President Donald Trump said on Friday he was directing his administration to begin the process of eliminating special treatment for Hong Kong in response to China plans to impose new security legislation in the territory.`\
-https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-hongkong-protests-usa-trump.html?searchResultPosition=6
-
-**Taiwan Court Strikes Down Law Criminalizing Adultery**\
-`The decision was hailed by rights activists who said the law had disproportionately targeted women.`\
-https://nytimes.com/2020/05/29/world/asia/taiwan-adultery.html?searchResultPosition=7
-
-**Slaughterhouses Reopen but Farmers Still Euthanizing Pigs**\
-`Meatpacking plants that had to briefly close due to coronavirus outbreaks have been back up and running for weeks, but production backlogs are forcing farmers to euthanize thousands of hogs that can't be processed, drawing complaints from animal welfare advocates.`\
-https://nytimes.com/aponline/2020/05/29/business/bc-us-virus-outbreak-killing-hogs.html?searchResultPosition=8
-
-**Suspended P Vazquez Facing New Pornography Charge**\
-`Suspended Pittsburgh Pirates relief pitcher Felipe Vazquez is facing a new child pornography charge in St. Louis, separate from the 20 counts in Florida.`\
-https://nytimes.com/reuters/2020/05/29/sports/baseball/29reuters-baseball-mlb-pit-vazquez.html?searchResultPosition=9
-
-**Missouri Man Charged With 9 Felonies in Bridge Shooting**\
-`A 37-year-old Kansas City-area man was charged Friday with attempted first-degree murder and eight other felonies after authorities say he randomly fired into traffic on a bridge that connects Kansas and Missouri.`\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-bridge-shooting.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/29/world/americas/29reuters-health-coronavirus-caribbean-hurricanes.html?searchResultPosition=10
 
