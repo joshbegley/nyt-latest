@@ -1,32 +1,32 @@
+**New USAID Adviser Sparks Furor Over Past Anti-Islam Comments**\
+`Some Muslim American groups are calling for the dismissal of a newly appointed religious freedom adviser for the U.S. Agency for International Development, citing past online posts that disparage Islam on his social media.`\
+https://nytimes.com/aponline/2020/05/29/us/ap-religion-anti-islam-history.html?searchResultPosition=3
+
+**Minneapolis Protests Spread to Other Cities Across the US**\
+`Developments across the United States in connection with the death of George Floyd in Minneapolis police custody:`\
+https://nytimes.com/aponline/2020/05/29/us/ap-us-minneapolis-police-death-nationwide-protests.html?searchResultPosition=4
+
+**US Consumer Spending Sinks by Record 13.6% in Face of Virus**\
+`U.S. consumer spending plunged by a record-shattering 13.6% in April as the viral pandemic shuttered businesses, forced millions of layoffs and sent the economy into a deep recession.`\
+https://nytimes.com/aponline/2020/05/29/business/bc-us-consumer-spending.html?searchResultPosition=5
+
+**With Champions League on Hold, AP Looks Back at Past Greats**\
+`In the absence of the Champions League final on Saturday, The Associated Press will take a look back at some of the greatest teams, players and matches in the history of the tournament.`\
+https://nytimes.com/aponline/2020/05/29/sports/soccer/ap-soc-champions-league-a-z-photo-gallery.html?searchResultPosition=6
+
+**VIRUS DIARY: For Boy With Down Syndrome, New Path of Therapy**\
+`The speech therapist held up a book of animals. Our 4-year-old looked curiously at her across the Zoom call screen.`\
+https://nytimes.com/aponline/2020/05/29/us/ap-us-virus-outbreak-diary-the-new-way.html?searchResultPosition=7
+
 **AP PHOTOS: Street Art Offers Beauty, a Laugh, Some Hope**\
 `Scrawled or masterfully crafted on walls and roads are messages of hope and warning. `\
-https://nytimes.com/aponline/2020/05/29/us/ap-virus-outbreak-street-art-photo-gallery.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/05/29/us/ap-virus-outbreak-street-art-photo-gallery.html?searchResultPosition=8
 
 **Greece: Tourists From 29 Countries Can Fly In as of June 15**\
 `Greece on Friday listed 29 countries from where it will accept visitors as of June 15 as the Greek government looks to mitigate some of the financial damage from the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/05/29/business/ap-eu-virus-outbreak-greece-tourism.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/05/29/business/ap-eu-virus-outbreak-greece-tourism.html?searchResultPosition=9
 
 **Tanzania Opposition Leader Banned From Comment Ahead of Vote**\
 `A Tanzanian court has found an opposition leader guilty of sedition and banned him from making public statements for one year, just months ahead of the presidential election. `\
-https://nytimes.com/aponline/2020/05/29/world/africa/ap-af-tanzania-opposition-leader.html?searchResultPosition=5
-
-**CNN Crew Arrested While Reporting on Minneapolis Protests**\
-`The Minnesota State Patrol on Friday arrested a CNN television crew as they reported on violent protests in Minneapolis following the death of George Floyd, a handcuffed black man who pleaded for air as a white police officer kneeled on his neck.`\
-https://nytimes.com/aponline/2020/05/29/business/ap-us-minneapolis-police-death-cnn.html?searchResultPosition=6
-
-**Spain Reports First Suspected Imported Coronavirus Cases Since March, in Travellers From U.S**\
-`Two people who travelled from the United States to the Spanish region of Valencia have tested positive for coronavirus, potentially becoming Spain's first imported cases of the virus since travel restrictions were imposed in mid-March.`\
-https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-spain.html?searchResultPosition=7
-
-**Pakistan to Resume International Flight Operations: Civil Aviation Authority**\
-`Pakistan will allow international flights to resume, an aviation official said on Friday, after largely closing its airspace to commercial flights since March to curb the spread of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-pakistan-airspace.html?searchResultPosition=8
-
-**New Drugs Make Headway Against Lung, Prostate, Colon Cancers**\
-`Doctors are reporting success with newer drugs that control certain types of cancer better, reduce the risk it will come back and make treatment simpler and easier to bear. `\
-https://nytimes.com/aponline/2020/05/29/health/bc-us-med-cancer-drugs.html?searchResultPosition=9
-
-**Denmark and Norway Create Travel Bubble, Excluding Sweden: Media**\
-`Norway and Denmark will resume free travel between the two countries, three Norwegian media outlets reported on Friday, creating a travel bubble that excludes Scandinavian neighbour Sweden, where the number of COVID-19 infections is higher.    `\
-https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-nordics.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/29/world/africa/ap-af-tanzania-opposition-leader.html?searchResultPosition=10
 
