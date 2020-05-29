@@ -1,24 +1,24 @@
-**U.S. Senators Urge Probe of TikTok on Children's Privacy**\
-`Four U.S. senators, including a China hawk, urged the Federal Trade Commission on Friday to investigate allegations that the popular video app TikTok violated a consent decree protecting children's privacy.`\
-https://nytimes.com/reuters/2020/05/29/business/29reuters-tiktok-privacy-usa-children.html?searchResultPosition=5
+**PGA Tour Canada Cancels 2020 Season Due to COVID-19**\
+`The Mackenzie Tour-PGA Tour Canada said on Friday it had decided to cancel its 2020 season due to border restrictions related to the COVID-19 pandemic that also requires mandatory quarantines for those entering the country.`\
+https://nytimes.com/reuters/2020/05/29/sports/golf/29reuters-health-coronavirus-golf-canada.html?searchResultPosition=5
 
-**Power Five Leagues Ask Congress for Athlete Compensation Law**\
-`The Power Five conference commissioners are asking Congress to move forward with federal legislation regarding compensation for college athletes. `\
-https://nytimes.com/aponline/2020/05/29/sports/ap-us-ncaa-compensating-athletes.html?searchResultPosition=6
-
-**Vice President Pence Mourns Loss of Evangelist at Service**\
-`The world has lost a great evangelist in Ravi Zacharias, who could use his intellect and kindness to make the case for the Christian faith, Vice President Mike Pence said Friday.`\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-ravi-zacharias-memorial-service.html?searchResultPosition=7
-
-**Chilean Regulator Approves Uber's Purchase of Cornershop: Statement**\
-`Chile´s FNE antitrust regulator said on Friday it had approved "without conditions" Uber´s purchase of Chilean online grocery provider Cornershop.`\
-https://nytimes.com/reuters/2020/05/29/technology/29reuters-uber-chile-cornershop.html?searchResultPosition=8
+**Chilean Student Hits the Roof for Online Classes During Pandemic**\
+`To keep from falling behind in her studies amid the coronavirus pandemic, first-year Chilean college student Paulina Romero climbs onto her roof each day in search of a cell signal strong enough to transmit her online classes.`\
+https://nytimes.com/reuters/2020/05/29/world/americas/29reuters-healht-coronavirus-chile-education.html?searchResultPosition=6
 
 **I Work in an Amazon Warehouse. I Didn’t Sign Up to Be a Hero.**\
 `Thanks for the flattering commercials, but we’re about to lose our hazard pay.`\
-https://nytimes.com/video/opinion/100000007161402/coronavirus-amazon-hazard-pay.html?searchResultPosition=9
+https://nytimes.com/2020/05/29/opinion/coronavirus-amazon-hazard-pay.html?searchResultPosition=7
 
-**Trump's Tweet About Rioters Echoes 1960s Miami Police Chief**\
-`President Donald Trump's tweeted warning Friday amid unrest in Minneapolis that “when the looting starts, the shooting starts” echoes the language of a Miami police chief in 1967 who made clear his distaste for civil rights activists and his belief that violent protests should be met with deadly force.`\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-trump-minneapolis-death-quote-.html?searchResultPosition=10
+**Man Charged With 2 Counts of Murder in Grand Forks Shooting**\
+`A North Dakota man accused of fatally shooting a woman inside his home and initiating a firefight that killed a police officer was charged Friday with two counts of murder.`\
+https://nytimes.com/aponline/2020/05/29/us/ap-us-grand-forks-shooting-1st-ld-writethru.html?searchResultPosition=8
+
+**U.S. Senators Urge Probe of TikTok on Children's Privacy**\
+`Four U.S. senators, including a China hawk, urged the Federal Trade Commission on Friday to investigate allegations that the popular video app TikTok violated a consent decree protecting children's privacy.`\
+https://nytimes.com/reuters/2020/05/29/business/29reuters-tiktok-privacy-usa-children.html?searchResultPosition=9
+
+**Coronavirus Infection Rate May Shift Toward Younger Ages; Death Risk Higher in Cancer Patients**\
+`The following is a brief roundup of some of the latest scientific studies on the novel coronavirus and efforts to find treatments and vaccines for COVID-19, the illness caused by the virus.`\
+https://nytimes.com/reuters/2020/05/29/us/29reuters-health-coronavirus-science.html?searchResultPosition=10
 
