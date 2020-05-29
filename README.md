@@ -1,32 +1,32 @@
-**AP Week in Pictures, Asia**\
-`MAY 22-28, 2020`\
-https://nytimes.com/aponline/2020/05/28/us/ap-as-pictures-of-the-week-in-asia-photo-gallery.html?searchResultPosition=3
+**UPS Adds 'Peak' Surcharge Amid Coronavirus Fueled Delivery Spike**\
+`United Parcel Service Inc on May 31 will slap surcharges on U.S. e-commerce companies that have flooded its delivery network with shipments of everything from packaged food to patio furniture since the coronavirus took hold in March. `\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-ups-pricing.html?searchResultPosition=3
 
-**G.O.P. Pressures North Carolina’s Governor on Convention**\
-`In a letter, top Republicans suggested safety measures to avoid the spread of the coronavirus. President Trump has pushed Democratic leaders in the state to hold the kind of event he wants.`\
-https://nytimes.com/2020/05/28/us/politics/republican-convention-trump-north-carolina.html?searchResultPosition=4
+**Italy's Credit Agency SACE Approves State Guarantees for FCA $7 Billion Bank Loan: Source**\
+`The board of Italy's export credit agency SACE has approved state guarantees covering 80% of a 6.3 billion euro ($7 billion) bank loan for Fiat Chrysler, a  source close to the matter said on Thursday.`\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-health-coronavirus-fiat-chrysler-loan.html?searchResultPosition=4
 
-**Inside a COVID-19 Hospital in India, Doctors See No End in Sight**\
-`It was barely noon on Thursday when the metal doors of the mortuary at a hospital in south New Delhi swung open and staff in white coveralls rolled out a stretcher. Mourning relatives looked on, as a body bag was loaded into an ambulance and taken away to a cemetery. `\
-https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-health-coronavirus-india-hospital.html?searchResultPosition=5
+**Mexico Reports 81,400 Total Cases of Coronavirus and 9,044 Deaths**\
+`Mexico on Thursday registered 3,377 new cases of coronavirus and 447 deaths, bringing the total numbers to 81,400 cases and 9,044 fatalities, according to information provided by health authorities.`\
+https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-health-coronavirus-mexico.html?searchResultPosition=5
 
-**‘We Have to Do This Right,’ Says Prosecutor in George Floyd Case**\
-`Mike Freeman, the county attorney in Minneapolis, urged patience as his office investigates Mr. Floyd’s death while in police custody. State and federal officials are also conducting inquiries.`\
-https://nytimes.com/video/us/100000007162210/george-floyd-county-attorney.html?searchResultPosition=6
+**China Reports No New Coronavirus Cases for May 28**\
+`China reported no new confirmed coronavirus cases in the mainland as of the end of May 28, down from two a day earlier, the country's health authority said on Friday.`\
+https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-health-coronavirus-china-cases.html?searchResultPosition=6
 
-**NYPD: Man Shot by Officers Later Dies of Coronavirus**\
-`A man shot by New York City police last month after menacing officers with a knife and an antique gun died of the coronavirus five days after he was wounded, police said Thursday.`\
-https://nytimes.com/aponline/2020/05/28/us/ap-us-police-shooting-coronavirus.html?searchResultPosition=7
+**Brazil Registers Record 26,417 Coronavirus Cases in a Day: Ministry**\
+`Brazil reported a daily record of 26,417 new coronavirus cases on Thursday, according to the Health Ministry, bringing its total tally to 438,238, second only to the United States in confirmed cases.`\
+https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-health-coronavirus-brazil-tally.html?searchResultPosition=7
 
-**Suriname Opposition Asks Bouterse to Concede Amid Slow Count**\
-`Votes were still being counted Thursday three days after Suriname’s elections, with the opposition urging the government to concede defeat and President Desi Bouterse calling for a recount even though the final tally had not yet released. `\
-https://nytimes.com/aponline/2020/05/28/world/europe/ap-cb-suriname-elections.html?searchResultPosition=8
+**U.S. FDA Approves Eli Lilly's Diagnostic Agent for Alzheimer's Disease**\
+`The U.S. Food and Drug Administration on Thursday approved drugmaker Eli Lilly and Co's radioactive compound to detect tau, an important characteristic of Alzheimer's disease. `\
+https://nytimes.com/reuters/2020/05/28/us/28reuters-lilly-alzheimer-s.html?searchResultPosition=8
 
-**Coronavirus Briefing: What Happened Today**\
-`A crop of new studies suggests that herd immunity is still very far away.`\
-https://nytimes.com/2020/05/28/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=9
+**Hydroxychloroquine Combination Risky for Cancer Patients With COVID-19: Study**\
+`Cancer patients with COVID-19 who were treated with a drug combination promoted by U.S. President Donald Trump to counter the coronavirus were three times more likely to die within 30 days than those who got either drug alone, U.S. researchers reported on Thursday.`\
+https://nytimes.com/reuters/2020/05/28/us/28reuters-health-coronavirus-cancer.html?searchResultPosition=9
 
-**Pompeo Releases Letter Clearing Him of Violating Law With Kansas Trips**\
-`Secretary of State Mike Pompeo also criticized Senator Robert Menendez, Democrat of New Jersey, who has opened an investigation into the firing of the State Department inspector general.`\
-https://nytimes.com/2020/05/28/us/politics/mike-pompeo-inspector-general-special-counsel.html?searchResultPosition=10
+**AstraZeneca's Top-Selling Drug Slows Early-Stage Lung Cancer-Trial**\
+`AstraZeneca's top-selling drug Tagrisso has been shown to hold back a certain type of lung cancer when diagnosed at an early stage, the British drugmaker said on Thursday, potentially adding billions to its sales potential.`\
+https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-astrazeneca-cancer-tagrisso.html?searchResultPosition=10
 
