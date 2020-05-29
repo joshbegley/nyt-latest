@@ -1,32 +1,32 @@
-**The Latest: 9 Arrested in Southern California Protest**\
+**Take a Virtual Tour of the Financial District and the Battery**\
+`With workers in quarantine, the busy neighborhood now feels like a secret backyard for families. Our critic walks with the architect Claire Weisz.`\
+https://nytimes.com/2020/05/29/arts/design/manhattan-virtual-tour-virus.html?searchResultPosition=3
+
+**Watch Live: Cuomo Delivers Coronavirus Briefing for New York**\
+`Gov. Andrew M. Cuomo of New York provides the state’s latest coronavirus stats.`\
+https://nytimes.com/video/us/100000007163333/watch-live-cuomo-delivers-coronavirus-briefing-for-new-york.html?searchResultPosition=4
+
+**Disease That Began Among Rich Shifts to Latin America's Poor**\
+`The passenger from Spain that Sonia Sanchez picked up at the airport in Colombia's capital in March did not seem well.`\
+https://nytimes.com/aponline/2020/05/29/world/americas/ap-lt-virus-outbreak-latin-americas-poor.html?searchResultPosition=5
+
+**Russians Are Angry, but Putin’s Foes Struggle to Seize the Moment**\
+`The main opposition leader, Aleksei A. Navalny, has seen his YouTube audience triple during the coronavirus crisis. But street protest, his most potent weapon, is off the table.`\
+https://nytimes.com/2020/05/29/world/europe/russia-navalny-putin-coronavirus.html?searchResultPosition=6
+
+**The Beach May Be Closed, but These Books Are Worth Opening**\
+`Three new novels transport you to other places — Nantucket, Seoul and the French Riviera.`\
+https://nytimes.com/2020/05/29/books/review/28-summers-ellen-hilderbrand-the-lions-den-katherine-st-john-if-ihad-your-face-frances-cha.html?searchResultPosition=7
+
+**The Latest: Protesters Gather at Officer's Florida Home**\
 `The Latest on the death of George Floyd, a handcuffed black man who pleaded for air as a white police officer knelt on his neck (all times local):`\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-minneapolis-police-death-the-latest.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/05/29/us/ap-us-minneapolis-police-death-the-latest.html?searchResultPosition=8
 
 **Three Wounded in Shootout in Kiev Suburb, 20 Detained**\
 `Dozens of people, some armed with what appeared to be hunting rifles, clashed in broad daylight on Friday in a residential suburb outside the capital Kiev, and at least three people were wounded, according to officials.`\
-https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-ukraine-shooting.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-ukraine-shooting.html?searchResultPosition=9
 
 **Turkey's AK Party Plans Measures Seen as Potential Obstacle to New Parties**\
 `Turkish President Tayyip Erdogan's AK Party is planning to push through measures with its nationalist allies that affect how political groups may contest elections and could hamper new opposition parties taking part in any snap elections. `\
-https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-turkey-politics.html?searchResultPosition=5
-
-**Kazakhstan to Ease Lockdown Next Week**\
-`Kazakhstan will take down police checkpoints between its regions next week and reopen kindergartens and gyms as it moves to ease its coronavirus lockdown, the government said on Friday. `\
-https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-kazakhstan.html?searchResultPosition=6
-
-**UAE to Shorten Covid-19 Prevention Curfew by Two Hours**\
-`The United Arab Emirates will shorten from Saturday by two hours a nightly curfew meant to prevent the spread of the novel coronavirus, the country's state news agency said on Friday.`\
-https://nytimes.com/reuters/2020/05/29/world/middleeast/29reuters-health-coronavirus-emirates.html?searchResultPosition=7
-
-**Azerbaijan Says Extends Quarantine Regime Until June 15**\
-`Azerbaijan's government said on Friday it had extended its quarantine regime and border closure because of the coronavirus outbreak until June 15.`\
-https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-azerbaijan.html?searchResultPosition=8
-
-**Canada 'Needs' Airline Industry, Is Monitoring Day by Day: Minister**\
-`Canada is closely monitoring the slumping airline industry and extended a ban on large cruise ships to Oct. 31 to help prevent the spread of the coronavirus, Transport Minister Marc Garneau said on Friday. `\
-https://nytimes.com/reuters/2020/05/29/world/americas/29reuters-health-coronavirus-canada.html?searchResultPosition=9
-
-**Virus Protection Adds New Wrinkle to Southwest Heat Relief**\
-`Trying to stay safe during a global pandemic is hard enough, but people in Southwest desert cities like Phoenix and Las Vegas where temperatures can soar into the triple digits are also trying to protect themselves from the brutal heat. `\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-virus-outbreak-heat-relief-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-turkey-politics.html?searchResultPosition=10
 
