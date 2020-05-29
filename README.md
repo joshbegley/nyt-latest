@@ -1,24 +1,24 @@
+**Sen. Cruz Seeks Federal Twitter Probe as Trump Feuds With Company**\
+`U.S. Senator Ted Cruz on Friday urged the Treasury and Justice Departments to investigate whether Twitter, which is embroiled in a feud with the White House, is violating U.S. law by letting top Iranian officials use the social media platform.`\
+https://nytimes.com/reuters/2020/05/29/us/politics/29reuters-twitter-trump-probe.html?searchResultPosition=5
+
+**Third Asian Giant 'Murder' Hornet Found in Washington State**\
+`Washington state has confirmed its third sighting of an Asian giant hornet, dubbed the "murder hornet," indicating the invasive, predatory insect has survived the winter in the U.S. Northwest, state agriculture officials said on Friday.`\
+https://nytimes.com/reuters/2020/05/29/us/29reuters-usa-hornets.html?searchResultPosition=6
+
+**Sale of Shut Philly Refinery to Real Estate Developer Delayed**\
+`The closing of a $252 million sale of the Philadelphia Energy Solutions (PES) oil refinery to a Chicago-based real estate developer has been delayed, a city official and source with knowledge of the agreement said on Friday.`\
+https://nytimes.com/reuters/2020/05/29/business/29reuters-pes-bankruptcy-sale.html?searchResultPosition=7
+
+**Man Struck and Killed Trying to Rescue Turtle on Interstate**\
+`A tow truck driver attempting to rescue a turtle Friday on an interstate highway in southeastern Wisconsin was struck and killed by a semi-trailer driver who then fled the scene, authorities said.`\
+https://nytimes.com/aponline/2020/05/29/us/ap-us-turtle-rescue-man-killed.html?searchResultPosition=8
+
 **Woman Sentenced for Supporting Islamic State**\
 `A Florida woman was sentenced Friday to five years and 10 months in federal prison for attempting to send cellphones to the Middle East to be used as bomb detonators by the Islamic State terrorist group.`\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-terror-support-cellphones.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/05/29/us/ap-us-terror-support-cellphones.html?searchResultPosition=9
 
 **Their Minneapolis Restaurant Burned, but They Back the Protest**\
 `Though a Bangladeshi family lost their business in the uproar over the death of George Floyd, they support demonstrators and helped medics treat them.`\
-https://nytimes.com/2020/05/29/dining/minnesota-restaurant-fire-protests.html?searchResultPosition=6
-
-**Videos of U.S. Police Killings Spur Protest-And Sometimes Charges**\
-`The decision of Minneapolis prosecutors to criminally charge a police officer four days after the death of George Floyd shows how efforts to hold officers accountable often hinge on the level of public protest and whether the incident was caught on video.`\
-https://nytimes.com/reuters/2020/05/29/us/29reuters-minneapolis-police-cameras-analysis.html?searchResultPosition=7
-
-**OSHA Cites Nursing Home for Delayed Coronavirus Reporting**\
-`The federal agency that oversees workplace safety said Friday that it had issued its first citation in the U.S. related to the coronavirus outbreak: against a Georgia nursing home that delayed reporting the hospitalization of six infected workers.`\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-virus-outbreak-nursing-home-cited.html?searchResultPosition=8
-
-**Here’s the Lady. Where’s the Gaga?**\
-`On “Chromatica,” Lady Gaga strives to bring introspection to the dance-pop that made her a star. But hallmarks like her audaciousness and sense of adventure are in shorter supply.`\
-https://nytimes.com/2020/05/29/arts/music/lady-gaga-chromatica.html?searchResultPosition=9
-
-**Large Cruises Banned in Canada at Least Until Oct. 31**\
-`Large cruise ships will continue to be prohibited from operating in Canadian waters until at least Oct. 31 because of the coronavirus pandemic, the country's transport minister announced Friday. `\
-https://nytimes.com/aponline/2020/05/29/business/ap-cn-virus-outbreak-canada-cruise-shutdown.html?searchResultPosition=10
+https://nytimes.com/2020/05/29/dining/minnesota-restaurant-fire-protests.html?searchResultPosition=10
 
