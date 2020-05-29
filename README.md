@@ -1,32 +1,32 @@
-**UPS Adds 'Peak' Surcharge Amid Coronavirus Fueled Delivery Spike**\
-`United Parcel Service Inc on May 31 will slap surcharges on U.S. e-commerce companies that have flooded its delivery network with shipments of everything from packaged food to patio furniture since the coronavirus took hold in March. `\
-https://nytimes.com/reuters/2020/05/28/business/28reuters-ups-pricing.html?searchResultPosition=3
+**California Regulator Approves PG&E's Chapter 11 Reorganization Plan**\
+`PG&E Corp said on Thursday its Chapter 11 reorganization plan has been confirmed by a California power regulator, bringing the power provider one step closer to emerge from bankruptcy and participate in a state-backed wildfire fund.`\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-pg-e-us-bankruptcy.html?searchResultPosition=3
 
-**Italy's Credit Agency SACE Approves State Guarantees for FCA $7 Billion Bank Loan: Source**\
-`The board of Italy's export credit agency SACE has approved state guarantees covering 80% of a 6.3 billion euro ($7 billion) bank loan for Fiat Chrysler, a  source close to the matter said on Thursday.`\
-https://nytimes.com/reuters/2020/05/28/business/28reuters-health-coronavirus-fiat-chrysler-loan.html?searchResultPosition=4
+**GM to Increase North America Vehicle Production**\
+`General Motors said on Thursday it would start increasing vehicle production in North America from next week to meet rising demand. `\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-gm-production.html?searchResultPosition=4
 
-**Mexico Reports 81,400 Total Cases of Coronavirus and 9,044 Deaths**\
-`Mexico on Thursday registered 3,377 new cases of coronavirus and 447 deaths, bringing the total numbers to 81,400 cases and 9,044 fatalities, according to information provided by health authorities.`\
-https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-health-coronavirus-mexico.html?searchResultPosition=5
+**ViacomCBS Slashes Up to 400 Jobs as Part of Merger Restructuring: Source**\
+`ViacomCBS Inc is cutting up to 400 employees across CBS as part of its plan to save $750 million from its merger with CBS, a source familiar with the matter said on Thursday. `\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-media-viacomcbs-jobs.html?searchResultPosition=5
 
-**China Reports No New Coronavirus Cases for May 28**\
-`China reported no new confirmed coronavirus cases in the mainland as of the end of May 28, down from two a day earlier, the country's health authority said on Friday.`\
-https://nytimes.com/reuters/2020/05/28/world/asia/28reuters-health-coronavirus-china-cases.html?searchResultPosition=6
+**LATAM's Bankruptcy Filing to Delay Its Brazil Bailout To at Least July: Sources**\
+`LATAM Airlines Group's U.S. bankruptcy filing this week will delay its potential bailout in Brazil to at least July and also push back aid to its rivals at least through the end of June, two sources said on Thursday. `\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-health-coronavirus-brazil-airlines.html?searchResultPosition=6
 
-**Brazil Registers Record 26,417 Coronavirus Cases in a Day: Ministry**\
-`Brazil reported a daily record of 26,417 new coronavirus cases on Thursday, according to the Health Ministry, bringing its total tally to 438,238, second only to the United States in confirmed cases.`\
-https://nytimes.com/reuters/2020/05/28/world/americas/28reuters-health-coronavirus-brazil-tally.html?searchResultPosition=7
+**Stranded in Paradise: Hundreds of Sailors Stuck in Pacific**\
+`For as long as she can remember, 28-year-old Kristen Pankratz has shared in her dad’s dream to sail around the world. Life somehow always got in the way. But after giving up her advertising job in Dallas, she finally set sail with her parents in January.`\
+https://nytimes.com/aponline/2020/05/28/world/asia/ap-as-new-zealand-stranded-sailors.html?searchResultPosition=7
 
-**U.S. FDA Approves Eli Lilly's Diagnostic Agent for Alzheimer's Disease**\
-`The U.S. Food and Drug Administration on Thursday approved drugmaker Eli Lilly and Co's radioactive compound to detect tau, an important characteristic of Alzheimer's disease. `\
-https://nytimes.com/reuters/2020/05/28/us/28reuters-lilly-alzheimer-s.html?searchResultPosition=8
+**U.S. Judge Orders 15 Banks to Face Big Investors' Currency Rigging Lawsuit**\
+`A U.S. judge on Thursday said institutional investors, including BlackRock Inc and Allianz SE's Pacific Investment Management Co, can pursue much of their lawsuit accusing 15 major banks of rigging prices in the $6.6 trillion-a-day foreign exchange market.`\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-banks-currency-lawsuit.html?searchResultPosition=8
 
-**Hydroxychloroquine Combination Risky for Cancer Patients With COVID-19: Study**\
-`Cancer patients with COVID-19 who were treated with a drug combination promoted by U.S. President Donald Trump to counter the coronavirus were three times more likely to die within 30 days than those who got either drug alone, U.S. researchers reported on Thursday.`\
-https://nytimes.com/reuters/2020/05/28/us/28reuters-health-coronavirus-cancer.html?searchResultPosition=9
+**Exclusive: Argentina Says New Debt Revamp Proposal in Right Direction, Still Falls Short**\
+`Argentina's economy minister said on Friday that a newly received debt restructuring proposal from two creditor groups was a step in the right direction, but still fell short of what the country needed to strike a deal.`\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-argentina-debt-ministry-exclusive.html?searchResultPosition=9
 
-**AstraZeneca's Top-Selling Drug Slows Early-Stage Lung Cancer-Trial**\
-`AstraZeneca's top-selling drug Tagrisso has been shown to hold back a certain type of lung cancer when diagnosed at an early stage, the British drugmaker said on Thursday, potentially adding billions to its sales potential.`\
-https://nytimes.com/reuters/2020/05/28/world/europe/28reuters-astrazeneca-cancer-tagrisso.html?searchResultPosition=10
+**Sainsbury's New Boss Roberts Faces Unexpected In-Tray**\
+`When Sainsbury's new boss Simon Roberts hosts a virtual focus group with supermarket shoppers on his first day in charge on Monday, the conversation will be radically different from the one he might have imagined when he got the job.`\
+https://nytimes.com/reuters/2020/05/28/business/28reuters-sainsbury-s-moves.html?searchResultPosition=10
 
