@@ -1,28 +1,28 @@
+**Congress Calls State Dept. Officials for Interviews in Expanded Pompeo Inquiry**\
+`Lawmakers are investigating whether Secretary of State Mike Pompeo urged President Trump to fire Steve A. Linick, the department’s inspector general, to shield himself from Mr. Linick’s inquiries.`\
+https://nytimes.com/2020/05/29/us/politics/mike-pompeo-inspector-general-congress.html?searchResultPosition=4
+
+**South Africa Conducts Tests to Curb African Swine Fever Outbreak**\
+`South Africa is conducting extensive testing and investigations to curb the spread of African Swine Fever (ASF) after it was detected in the country's Eastern Cape province, the third known outbreak this year, government said on Friday. `\
+https://nytimes.com/reuters/2020/05/29/world/africa/29reuters-safrica-swine-fever.html?searchResultPosition=5
+
+**NCAA Offers Plan to Bring Athletes Back to Campus**\
+`The NCAA released a long and detailed plan Friday to help schools bring athletes back to campus during a pandemic. `\
+https://nytimes.com/aponline/2020/05/29/sports/ap-us-virus-outbreak-college-sports.html?searchResultPosition=6
+
+**What Happens to Powell’s Books When You Can’t Browse the Aisles?**\
+`The enormous independent bookstore in Portland, Ore., became an unlikely tourist attraction. Now that it’s shut, Emily Powell, the chief executive, is having to rethink the books business.`\
+https://nytimes.com/2020/05/29/business/emily-powell-powells-books-corner-office.html?searchResultPosition=7
+
+**A Manhunt on the 17th Century’s High Seas**\
+`Steven Johnson talks about “Enemy of All Mankind,” and Gilbert Cruz offers a guide to Stephen King’s work.`\
+https://nytimes.com/2020/05/29/books/review/podcast-enemy-of-all-mankind-piracy-steven-johnson-stephen-king-gilbert-cruz.html?searchResultPosition=8
+
 **Ruling Means Missouri's Last Abortion Clinic Stays Open**\
 `Missouri's only abortion clinic will be able to keep operating after a state government administrator decided Friday that the health department was wrong not to renew the license of the Planned Parenthood facility in St. Louis.`\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-abortion-missouri-1st-ld-writethru.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/05/29/us/ap-us-abortion-missouri-1st-ld-writethru.html?searchResultPosition=9
 
 **‘Generations of Pain’: Gov. Tim Walz Appeals for Healing in Minnesota**\
 `The governor, a Democrat, is a former member of the National Guard who deployed it after the killing of George Floyd.`\
-https://nytimes.com/2020/05/29/us/tim-walz-minnesota-governor.html?searchResultPosition=5
-
-**Israel Says It Could Reimpose Restrictions After Coronavirus Cases Rise**\
-`Coronavirus infection rates have risen in Israel, particularly in schools, since the government began easing restrictions and it may reimpose them if the trend continues, the health ministry said on Friday.`\
-https://nytimes.com/reuters/2020/05/29/world/middleeast/29reuters-health-coronavirus-israel.html?searchResultPosition=6
-
-**CNN Arrest Is What Actual Censorship Looks Like**\
-`After days of presidential complaining about Twitter policies, the live-TV arrest of a CNN crew showed America an actual offense against the First Amendment.`\
-https://nytimes.com/2020/05/29/arts/television/cnn-arrest.html?searchResultPosition=7
-
-**Report: Dodgers P Price Gives $1K Apiece to Team's Minor Leaguers**\
-`Los Angeles Dodgers pitcher David Price will gift $1,000 to each of the players in the team's minor-league system, MLB writer Francys Romero reported.`\
-https://nytimes.com/reuters/2020/05/29/sports/baseball/29reuters-baseball-mlb-lad-price.html?searchResultPosition=8
-
-**Twitter, Internet Group Oppose U.S. Rules Requiring Visitors to Disclose Social Media Info**\
-`Twitter Inc, Reddit and a group representing major internet firms backed two documentary film groups that have challenged the Trump Administration's 2019 rules requiring nearly all U.S. visitors to disclose social media user information from the prior five years.`\
-https://nytimes.com/reuters/2020/05/29/us/29reuters-usa-social-media-trump.html?searchResultPosition=9
-
-**Mark Morris Gives Video Dances a Whirl**\
-`Rolling with the times, the choreographer unveiled four new works, created with the assistance of Zoom. His musicality? It’s intact.`\
-https://nytimes.com/2020/05/29/arts/dance/mark-morris-zoom-dance.html?searchResultPosition=10
+https://nytimes.com/2020/05/29/us/tim-walz-minnesota-governor.html?searchResultPosition=10
 
