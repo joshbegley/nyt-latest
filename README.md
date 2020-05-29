@@ -1,24 +1,24 @@
-**US and China Clash Over Hong Kong Laws at Closed UN Meeting**\
-`The United States and United Kingdom clashed with China and Russia over Beijing’s new national security law for Hong Kong during closed Security Council discussions on Friday that reflected increasing U.S.-China tensions.`\
-https://nytimes.com/aponline/2020/05/29/world/europe/ap-un-united-nations-us-china-hong-kong.html?searchResultPosition=5
+**Regulator Freezes Accounts of Mexico's Cruz Azul Soccer Team**\
+`Mexico’s anti-money laundering agency said Friday it has frozen the personal accounts of some of the top directors of first-division soccer team Cruz Azul, saying that “unusual movements were detected" in bank transactions. `\
+https://nytimes.com/aponline/2020/05/29/sports/ap-lt-soc-mexico-cruz-azul-.html?searchResultPosition=5
 
-**PawSox Offer Taste of Baseball With 'Dining on the Diamond'**\
-`The Pawtucket Red Sox are going from “Play Ball” to “Bon Appetit.”`\
-https://nytimes.com/aponline/2020/05/29/sports/baseball/ap-bbm-dining-on-the-diamond.html?searchResultPosition=6
+**Ex-Minneapolis Officer Faces 12-Plus Years on Murder Count**\
+`A former Minneapolis police officer who was seen on video kneeling on the neck of George Floyd, who died in custody after pleading that he couldn't breathe, was charged Friday with two of the same counts that led to a 12 1/2-year prison sentence for another former officer from his department.`\
+https://nytimes.com/aponline/2020/05/29/us/ap-us-minneapolis-police-death-charges.html?searchResultPosition=6
 
-**Officers in Violent Arrest to Face NYPD Disciplinary Charges**\
-`A New York City police officer will face disciplinary charges for a violent arrest during a social distancing enforcement action that ended with him kneeling on a man's back or neck, a technique similar to the one that led to George Floyd's death in Minneapolis.`\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-virus-outbreak-violent-arrest.html?searchResultPosition=7
+**How Major US Stock Indexes Fared Friday**\
+`The stock market erased an early drop and ended mixed Friday, capping a strong week and month. `\
+https://nytimes.com/aponline/2020/05/29/business/ap-financial-markets-box.html?searchResultPosition=7
 
-**Charged Minn. Cop Used 'Overkill' Tactics as Nightclub Guard**\
-`A white Minneapolis police officer and the black man he's charged with killing both worked as security guards at the same Latin nightclub as recently as last year, but its former owner says she’s not sure if they knew each other. `\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-minneapolis-police-death-officer.html?searchResultPosition=8
+**The Voice That Steadied Alaska**\
+`Why we told the story of Genie Chance and the Great Alaska Earthquake.`\
+https://nytimes.com/2020/05/29/podcasts/the-voice-that-steadied-alaska.html?searchResultPosition=8
 
-**International Naval Operation Nets 50 Tonnes of Cocaine in 45 Days**\
-`A multilateral naval anti-drug operation confiscated 50 tonnes of cocaine in 45 days, Colombia President Ivan Duque said on Friday.`\
-https://nytimes.com/reuters/2020/05/29/world/americas/29reuters-colombia-crime.html?searchResultPosition=9
+**Aid Swelled Incomes, but Spending Still Saw a ‘Wild’ Drop**\
+`Government assistance, mainly stimulus checks, provided an overall boost in April. With little immediate outlet, savings soared.`\
+https://nytimes.com/2020/05/29/business/economy/coronavirus-consumer-spending.html?searchResultPosition=9
 
-**U.N. Agency Task Force Urges Uniform Approach to Flying During Coronavirus**\
-`A United Nations aviation-led task force is urging airlines, airports and countries to come up with a uniform approach to flying safely during the coronavirus pandemic, although it stopped short of providing specific requirements for the hard hit industry's recovery.`\
-https://nytimes.com/reuters/2020/05/29/business/29reuters-health-coronavirus-un-aviation.html?searchResultPosition=10
+**While Twitter Confronts Trump, Zuckerberg Keeps Facebook Out of It**\
+`The companies have similar policies on the limits of what they allow users to post. But Facebook is more permissive when the user is President Trump.`\
+https://nytimes.com/2020/05/29/technology/twitter-facebook-zuckerberg-trump.html?searchResultPosition=10
 
