@@ -1,32 +1,32 @@
-**George Floyd Protesters Set Minneapolis Police Station Afire**\
+**Travel Disruptions Challenge Global Transplant Deliveries**\
+`Over the past two months, as air travel ground to a halt, Mishel Zrian has crisscrossed the Atlantic and the United States dozens of times, sleeping in empty airports and unable to return home to see his family in Israel, all in a race against time to deliver life-saving transplants.`\
+https://nytimes.com/aponline/2020/05/29/world/middleeast/ap-ml-virus-outbreak-transplant-transport.html?searchResultPosition=3
+
+**Analysis: Onside Kicks Versus Fourth-And-15s**\
+`For a league that took so many years to find a catch rule that makes sense — we think the current one does that — it can't be a surprise that the somewhat radical proposal of an alternative to the onside kick has been tabled.`\
+https://nytimes.com/aponline/2020/05/29/sports/football/ap-fbn-on-football-fourth-and-15.html?searchResultPosition=4
+
+**VW Spending $2.2B to Expand in China's Electric Car Market**\
+`Volkswagen is spending 2 billion euros ($2.2 billion) to expand its presence in China’s electric car industry in the biggest foreign investment announced since the country's economy began to reopen following the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/05/29/business/ap-as-china-vw-electric-cars.html?searchResultPosition=5
+
+**Japan April Household Spending Seen Due to Coronavirus Emergency: Reuters Poll**\
+`Japan's April household spending likely tumbled at the fastest pace in decades, a Reuters poll showed on Friday, as the nation's state of emergency to fight the spread of the coronavirus prompted people to stay home and businesses to close.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-japan-economy-spending.html?searchResultPosition=6
+
+**Colts Hoping for Lucrative Payoff From Betting Big on Rivers**\
+`Frank Reich jumped right into research mode when he knew Philip Rivers would hit free agency.`\
+https://nytimes.com/aponline/2020/05/29/sports/football/ap-fbn-colts-philips-fit.html?searchResultPosition=7
+
+**Minneapolis Police Station Torched Amid George Floyd Protest**\
 `Cheering protesters torched a Minneapolis police station Thursday that the department was forced to abandon as three days of violent protests spread to nearby St.`\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-minneapolis-police-death-protests.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/05/29/us/ap-us-minneapolis-police-death-protests.html?searchResultPosition=8
 
 **Word + Quiz: propinquity**\
 `This word has appeared in one article on NYTimes.com in the past year.`\
-https://nytimes.com/2020/05/29/learning/word-quiz-propinquity.html?searchResultPosition=4
+https://nytimes.com/2020/05/29/learning/word-quiz-propinquity.html?searchResultPosition=9
 
 **Stocks Slip as Markets Await Trump's Hong Kong Response**\
 `Stock markets dipped and safe-havens such as bonds and Japan's yen firmed on Friday, as investors awaited Washington's response to China tightening control over the city of Hong Kong.`\
-https://nytimes.com/reuters/2020/05/29/business/29reuters-global-markets.html?searchResultPosition=5
-
-**Malaysia's Mahathir Ousted From Party Amid Power Struggle**\
-`Malaysia's former Prime Minister Mahathir Mohamad has been ousted from his ethnic Malay political party in the latest twist of a power struggle with his successor, but he has vowed to challenge the move.`\
-https://nytimes.com/aponline/2020/05/29/world/asia/ap-as-malaysia-politics.html?searchResultPosition=6
-
-**Tokyo to Further Relax Coronavirus Curbs on Monday, Governor Says**\
-`Curbs in Japan's capital of Tokyo to contain the coronavirus are to be eased further from Monday, Governor Yuriko Koike said, citing the recommendation of an advisory panel. `\
-https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-covid-tokyo.html?searchResultPosition=7
-
-**Australia's 'War Cabinet' Shifts Focus to Jobs: PM**\
-`Australia's "war cabinet" will meet every month to focus on bringing unemployment down after successfully slowing the spread of the novel coronavirus, Prime Minister Scott Morrison said on Friday.`\
-https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-australia.html?searchResultPosition=8
-
-**China's Geely Raises $836 Million From Share Sale**\
-`Geely Automobile Holdings Ltd said on Friday it raised HK$6.48 billion ($836 million) from a share placement as the Chinese automaker looks to replenish its coffers to finance growth in the world's largest auto market.`\
-https://nytimes.com/reuters/2020/05/29/business/29reuters-geely-automobile-stocks.html?searchResultPosition=9
-
-**Renault to Restructure French Factories in High-Stakes Reboot Plan**\
-`French carmaker Renault said on Friday it was launching talks with unions to reorganise and cease assembling vehicles at several plants in France as it cuts some 15,000 jobs worldwide and tries to refocus to survive a slump in sales. `\
-https://nytimes.com/reuters/2020/05/29/business/29reuters-renault-france-strategy.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/29/business/29reuters-global-markets.html?searchResultPosition=10
 
