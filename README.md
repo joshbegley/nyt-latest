@@ -1,32 +1,32 @@
-**With 'Main Street' in View, Fed Weighs Risks of Job, Productivity Shocks**\
-`U.S. Federal Reserve officials have talked broadly about helping households and firms through the current economic crisis and quickly unleashed trillions of dollars in cash and credit guarantees to build a "bridge" to the post-pandemic world.`\
-https://nytimes.com/reuters/2020/05/29/business/29reuters-usa-fed-risk-analysis.html?searchResultPosition=3
+**Attack on Taiwan an Option to Stop Independence, Top China General Says**\
+`China will attack Taiwan if there is no other way of stopping it from becoming independent, one of the country's most senior generals said on Friday, a rhetorical escalation between China and the democratically ruled island Beijing claims as its own.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-china-taiwan-security.html?searchResultPosition=3
 
-**Virgin Australia's Administrator to Shortlist Two Bidders Early Next Week**\
-`The administrator of Virgin Australia Holdings Ltd said it expected to shortlist two preferred bidders early next week after parties confirmed non-binding indicative proposals to acquire the airline on Friday.`\
-https://nytimes.com/reuters/2020/05/29/business/29reuters-health-coronavirus-virgin-australia.html?searchResultPosition=4
+**China Public Security Ministry Pledges to 'Guide and Support' HK Police**\
+`China's public security ministry pledged to "guide and support" the Hong Kong police force after China's parliament approved a decision to impose a national security law on the semi-autonomous territory, highlighting Beijing's intention to take a more hands-on law-enforcement role in the city.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-hongkong-politics-china-security.html?searchResultPosition=4
 
-**Civil Unrest Rages in Minneapolis Over Racially Charged Killing by Police**\
-`Peaceful rallies gave way to a third night of arson, looting and vandalism in Minneapolis on Thursday as protesters vented their rage over the death of a black man seen on video gasping for breath while a white police officer knelt on his neck.`\
-https://nytimes.com/reuters/2020/05/29/us/29reuters-minneapolis-police-investigation.html?searchResultPosition=5
+**Shots Fired at Louisville Protest Over the Death of Breonna Taylor**\
+`The protests in Kentucky were prompted by the shooting death of a black woman, who was killed when police entered her home.`\
+https://nytimes.com/2020/05/29/us/louisville-protest-shooting-breonna-taylor.html?searchResultPosition=5
 
-**House Democrats Demand Probes of Police Killings of Black Americans**\
-`The Democratic-controlled U.S. House Judiciary Committee on Thursday asked the Justice Department to investigate systemic police misconduct following a spate of high-profile police killings of African Americans.`\
-https://nytimes.com/reuters/2020/05/29/us/29reuters-minneapolis-police-usa-congress.html?searchResultPosition=6
+**7 Shot at Louisville Protest Over Fatal Police Shooting**\
+`At least seven people were shot Thursday night in Louisville as protesters turned out to demand justice for Breonna Taylor,  a black woman fatally shot by police in her home in March.`\
+https://nytimes.com/aponline/2020/05/29/us/ap-us-fatal-police-shooting-kentucky.html?searchResultPosition=6
 
-**Thailand Reports 11 New Coronavirus Cases, No New Deaths**\
-`Thailand confirmed 11 new coronavirus cases on Friday and no new deaths, taking the number of infections to 3,076.`\
-https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-thailand.html?searchResultPosition=7
+**Japan's Consumer Mood Higher in May but Still 'Extremely Severe': Government**\
+`Japan's consumer confidence index rose slightly in May but stayed near a record low as the new coronavirus pandemic took a heavy toll on the economy, a Cabinet Office survey showed on Friday.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-japan-confidence.html?searchResultPosition=7
 
-**Police Across US Speak Out Against Minneapolis Custody Death**\
-`Murder.`\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-minneapolis-death-police-reaction.html?searchResultPosition=8
+**Japan's Factory, Retail Sectors Slump as Pandemic Hits Auto Sector**\
+`Japan's factory output slid faster-than-expected and retail sales tumbled the most in more than two decades in April, as the coronavirus pandemic wrecked both foreign and domestic demand for the country's autos and other manufactured goods.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-japan-economy-output.html?searchResultPosition=8
 
-**Virus Taking Hold in Rural, Old Plantation Region of Alabama**\
-`Sparsely populated Lowndes County, deep in Alabama's old plantation country, has the sad distinction of having both the state’s highest rate of COVID-19 cases and its worst unemployment rate. `\
-https://nytimes.com/aponline/2020/05/29/business/ap-us-virus-outbreak-alabama.html?searchResultPosition=9
+**Some Sectors of Australian Economy Will Need Additional Support-PM Morrison**\
+`Some sectors of Australia's economy will require additional stimulus, Prime Minister Scott Morrison said on Friday.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-australia-economy.html?searchResultPosition=9
 
-**Both Businesses and Customers Conflicted as DC Reopens**\
-`Starting Friday, a tiny slice of pre-pandemic normality starts returning to the nation's capital as a three-month old coronavirus stay-home order is replaced by the first phase of a reopening plan.`\
-https://nytimes.com/aponline/2020/05/29/us/politics/ap-us-virus-outbreak-nations-capital-reopens.html?searchResultPosition=10
+**UAE's ADNOC to Cut July Crude Nominations by 5% After OPEC+ Pact: Sources**\
+`State-run Abu Dhabi National Oil Company (ADNOC) has informed customers of a cut in its crude oil nominations for July in line with a decision by OPEC+ last month to reduce supplies, three sources with knowledge of the matter told Reuters.`\
+https://nytimes.com/reuters/2020/05/29/world/middleeast/29reuters-oil-opec-adnoc.html?searchResultPosition=10
 
