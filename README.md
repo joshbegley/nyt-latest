@@ -1,32 +1,28 @@
-**Watch Live: Cuomo Delivers Coronavirus Briefing for New York**\
-`Gov. Andrew M. Cuomo of New York provides the state’s latest coronavirus stats.`\
-https://nytimes.com/video/us/100000007163333/watch-live-cuomo-delivers-coronavirus-briefing-for-new-york.html?searchResultPosition=3
+**Singapore-China to Open Essential Travel Corridor in Early June**\
+`Singapore and China plan to reopen essential travel for business and official purposes between the two countries early next month, they said in a joint statement on Friday.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-singapore-china.html?searchResultPosition=4
 
-**Disease That Began Among Rich Shifts to Latin America's Poor**\
-`The passenger from Spain that Sonia Sanchez picked up at the airport in Colombia's capital in March did not seem well.`\
-https://nytimes.com/aponline/2020/05/29/world/americas/ap-lt-virus-outbreak-latin-americas-poor.html?searchResultPosition=4
+**Austria to Loosen Face-Mask Requirement, Scrap Table-Size Limit in Bars**\
+`Austria will no longer require shoppers to wear face masks and scrap a limit of four adults at a table in bars and restaurants, Chancellor Sebastian Kurz said on Friday, outlining the next loosening of the country's coronavirus restrictions.`\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-austria.html?searchResultPosition=5
 
-**Russians Are Angry, but Putin’s Foes Struggle to Seize the Moment**\
-`The main opposition leader, Aleksei A. Navalny, has seen his YouTube audience triple during the coronavirus crisis. But street protest, his most potent weapon, is off the table.`\
-https://nytimes.com/2020/05/29/world/europe/russia-navalny-putin-coronavirus.html?searchResultPosition=5
+**Colombia ELN Rebels Would Back U.N. Ceasefire, Urge Government to Join**\
+`Colombian rebel group the National Liberation Army (ELN) would be willing to participate in a global three-month ceasefire being discussed at the United Nations to contain the spread of coronavirus, the head of its negotiating team said.`\
+https://nytimes.com/reuters/2020/05/29/world/americas/29reuters-colombia-rebels.html?searchResultPosition=6
 
-**The Beach May Be Closed, but These Books Are Worth Opening**\
-`Three new novels transport you to other places — Nantucket, Seoul and the French Riviera.`\
-https://nytimes.com/2020/05/29/books/review/28-summers-ellen-hilderbrand-the-lions-den-katherine-st-john-if-ihad-your-face-frances-cha.html?searchResultPosition=6
+**Georgian Economy Contracts at Annual 3.6% Rate in Jan-April**\
+`Georgia's economy contracted 3.6% year-on-year in the first four months of this year in comparison with 4.8% growth in the same period of 2019 as measures to curb the spread of the coronavirus took their toll, preliminary data showed on Friday.`\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-georgia-economy-gdp.html?searchResultPosition=7
 
-**The Latest: Protesters Gather at Officer's Florida Home**\
-`The Latest on the death of George Floyd, a handcuffed black man who pleaded for air as a white police officer knelt on his neck (all times local):`\
-https://nytimes.com/aponline/2020/05/29/us/ap-us-minneapolis-police-death-the-latest.html?searchResultPosition=7
+**Thirty Countries Launch Alliance to Share COVID-19 Tools**\
+`Thirty countries led by Costa Rica and the World Health Organization launched an initiative on Friday aimed at sharing vaccines, medicines and diagnostic tools to tackle the global coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-who.html?searchResultPosition=8
 
-**Three Wounded in Shootout in Kiev Suburb, 20 Detained**\
-`Dozens of people, some armed with what appeared to be hunting rifles, clashed in broad daylight on Friday in a residential suburb outside the capital Kiev, and at least three people were wounded, according to officials.`\
-https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-ukraine-shooting.html?searchResultPosition=8
+**In Canada's COVID-19 Capital, Bone-Weary Nurses Plead for Summer Break**\
+`Quebec nurses and orderlies are pleading for time off this summer, ahead of a possible second wave of coronavirus infections in the fall, as Canada's hardest-hit province from the virus wrestles with a staffing crunch in its health sector.`\
+https://nytimes.com/reuters/2020/05/29/us/29reuters-health-coronavirus-canada-quebec.html?searchResultPosition=9
 
-**Turkey's AK Party Plans Measures Seen as Potential Obstacle to New Parties**\
-`Turkish President Tayyip Erdogan's AK Party is planning to push through measures with its nationalist allies that affect how political groups may contest elections and could hamper new opposition parties taking part in any snap elections. `\
-https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-turkey-politics.html?searchResultPosition=9
-
-**Kazakhstan to Ease Lockdown Next Week**\
-`Kazakhstan will take down police checkpoints between its regions next week and reopen kindergartens and gyms as it moves to ease its coronavirus lockdown, the government said on Friday. `\
-https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-kazakhstan.html?searchResultPosition=10
+**Baltimore Voters Face Watershed Moment With Mayoral Primary**\
+`Baltimore’s most consequential election in a generation is set to take place next week, when voters will be looking for a leader who can rein in violent crime, address entrenched poverty and restore steadily eroding trust in local government.`\
+https://nytimes.com/aponline/2020/05/29/us/ap-us-election-2020-baltimore-mayor.html?searchResultPosition=10
 
