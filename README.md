@@ -1,32 +1,32 @@
-**Norway Plans $369 Million Green Industry Investments**\
-`The Norwegian government proposes spending 3.6 billion Norwegian crowns ($369 million) on investments to make its economy greener as it gradually emerges from coronavirus lockdowns, the government said on Friday.`\
-https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-norway.html?searchResultPosition=3
+**Denmark and Norway Create Travel Bubble, Excluding Sweden: Media**\
+`Norway and Denmark will resume free travel between the two countries, three Norwegian media outlets reported on Friday, creating a travel bubble that excludes Scandinavian neighbour Sweden, where the number of COVID-19 infections is higher.    `\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-nordics.html?searchResultPosition=3
 
-**EU Regulator Promises Speedy Review of Potential COVID-19 Drug Remdesivir**\
-`The European health regulator has vowed to conduct a speedy review of Gilead Sciences' potential COVID-19 drug, remdesivir, but said it has not yet received an application from the U.S. drugmaker.`\
-https://nytimes.com/reuters/2020/05/29/us/29reuters-health-coronavirus-remdesivir-ema.html?searchResultPosition=4
+**Relief, Disappointment as Philippines Restarts Some Transport Services**\
+`Philippine taxi dispatcher Meliza Venal heaved a sigh of relief when she learned that hundreds of her company's drivers can finally go back to work after being stuck in their homes for 11 weeks.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-philippines.html?searchResultPosition=4
 
-**Fired Samsung Worker Ends Tower Protest Following Apology**\
-`A former Samsung employee who spent nearly a year protesting his firing by living atop a 25-meter (82-foot) traffic camera tower in South Korea’s capital was helped back down Friday after the business giant apologized over his plight.`\
-https://nytimes.com/aponline/2020/05/29/business/ap-as-south-korea-samsung-protester-.html?searchResultPosition=5
+**Russia Says Libya Ceasefire in Tatters, Situation Deteriorating: Agencies**\
+`Russia's foreign ministry said on Friday the situation in Libya was continuing to deteriorate and that a ceasefire there was in tatters, the RIA news agency reported. `\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-libya-security-russia.html?searchResultPosition=5
 
-**Turkey Reopens Some Mosques Amid Infection Slowdown**\
-`Worshippers in Turkey have held their first communal Friday prayers in 74 days after the government reopened some mosques as part of its plans to relax measures in place to fight the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/05/29/world/europe/ap-eu-virus-outbreak-turkey.html?searchResultPosition=6
+**Germans Cook More in Coronavirus Crisis, Turn Away From Junk Food**\
+`Many Germans cooked more meals themselves during the coronavirus crisis and also used more fresh ingredients rather than processed foods, the food and agriculture ministry said on Friday. `\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-germany-food.html?searchResultPosition=6
 
-**EU Says Conditions Needed in Lufthansa Bailout, Seeks Deal**\
-`The EU competition chief said Friday that she is not “creating extra hurdles" for Lufthansa after the airline balked at accepting a 9 billion-euro German government rescue package because of what it said were tough EU conditions.`\
-https://nytimes.com/aponline/2020/05/29/business/bc-eu-lufthansa-bailout.html?searchResultPosition=7
+**Swedish High Schools to Re-Open on June 15: PM Lofven**\
+`Swedish high schools will re-open for on-site education on June 15 after having been closed since mid-March to limit the novel coronavirus outbreak in the country, the prime minister said on Friday.`\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-sweden-schools.html?searchResultPosition=7
 
-**CNN Crew Covering Minneapolis Protests Is Arrested on Live Television**\
-`Officers wearing riot gear labeled “State Patrol” arrested a correspondent, Omar Jimenez, as he and a camera crew were reporting on the protests over the death of George Floyd.`\
-https://nytimes.com/2020/05/29/us/cnn-reporter-arrested-omar-jimenez.html?searchResultPosition=8
+**Monkeys Steal Coronavirus Blood Samples in India**\
+`A troop of monkeys in India attacked a medical official and snatched away blood samples of patients who had tested positive for the novel coronavirus, authorities said on Friday.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-india-monkey.html?searchResultPosition=8
 
-**Coal Mine in Serbia Gives Up New Roman Treasure**\
-`As the sun sank over a vast opencast coal mine in eastern Serbia earlier this month, a small crane eased the front half of a Roman ship from the steep sides of the pit.`\
-https://nytimes.com/reuters/2020/05/29/world/29reuters-serbia-archaeology.html?searchResultPosition=9
+**Singapore Says Malaysia Wants Further Deferral of Joint Rail Project**\
+`Singapore said on Friday it was reviewing a request by neighbouring Malaysia to further suspend a high speed rail project set to link the city-state to Malaysia's capital Kuala Lumpur.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-singapore-malaysia-railway.html?searchResultPosition=9
 
-**Vienna's Hotel Sacher Turns Suites Into Pop-Up Restaurants**\
-`Secret love affairs, tricky business deals and political negotiations - Vienna's opulent five-star Hotel Sacher has been a popular spot for delicate missions since it opened in 1876. `\
-https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-tourism-hotel-sacher.html?searchResultPosition=10
+**Former HK Leader Calls Out HSBC Following UK Criticism of Security Law**\
+`Former Hong Kong leader Leung Chun-ying on Friday called out  banking group HSBC Holdings plc for not making its "stance" clear on China's imposition of a new security law on the city, after the United Kingdom's criticism of the move.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-hongkong-protests-hsbc-hldg.html?searchResultPosition=10
 
