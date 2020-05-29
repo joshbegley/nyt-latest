@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/05/29/us/29reuters-taiwan-court-adultery.html?s
 https://nytimes.com/2020/05/29/podcasts/the-daily/obituaries-coronavirus-100000.html?searchResultPosition=4
 
 **George Floyd Protests in Minneapolis: Live Updates**\
-`As clashes spread nationwide, police  station was set on fire in Minneapolis as people  protested the death of Mr. Floyd. And Twitter attached a warning to a tweet by President Trump, saying he had violated its policy against “glorifying violence.”`\
+`As clashes spread nationwide, a police station was set on fire in Minneapolis as people protested the death of Mr. Floyd. And Twitter attached a warning to a tweet by President Trump.`\
 https://nytimes.com/2020/05/29/us/george-floyd-minneapolis-protests.html?searchResultPosition=5
 
 **Volkswagen Pumps 2 Billion Euros Into China Electric Vehicle Bet**\
