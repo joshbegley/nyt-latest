@@ -1,32 +1,32 @@
-**French Carmaker Renault Announces 15,000 Job Cuts Worldwide**\
-`Struggling French carmaker Renault on Friday announced 15,000 job cuts worldwide as part of a 2 billion-euro cost-cutting plan over three years.`\
-https://nytimes.com/aponline/2020/05/29/business/bc-eu-france-renault.html?searchResultPosition=3
+**Punching Through Turmoil: Pro Boxer Helps Medical Staff Cope**\
+`Hassan N’Dam, former middleweight boxing champion of the world, wanted to repay the French hospital that cared for his father-in-law through his bout with COVID-19.`\
+https://nytimes.com/aponline/2020/05/29/sports/ap-virus-outbreak-one-good-thing-hospital-boxer.html?searchResultPosition=3
 
-**New Zealand Near Eradication, but Virus Has Grim Global Hold**\
-`New Zealand on Friday had all but eradicated the coronavirus from its shores with just one person in the nation of 5 million known to be still infected, but developments elsewhere were generally grim, with India reporting another record increase in cases and Pakistan a record number of deaths.`\
-https://nytimes.com/aponline/2020/05/29/business/ap-virus-outbreak.html?searchResultPosition=4
+**In George Floyd’s Death, a Police Technique Results in a Too-Familiar Tragedy**\
+`Police departments have tried to ban or severely limit the use of chokeholds and neck restraints. But in Minneapolis, a knee pressing on a neck led to a man’s death.`\
+https://nytimes.com/2020/05/29/us/george-floyd-kneehold.html?searchResultPosition=4
 
-**AP PHOTOS: Italians Say 'Ciao' to Unkempt Lockdown Locks**\
-`Two months of lockdown have left style-conscious Italians looking less well-groomed than usual. But as of last week, hair salons and barber shops are back in business, welcoming young and old in need of a trim or a complete makeover.`\
-https://nytimes.com/aponline/2020/05/29/world/europe/ap-eu-virus-outbreak-italy-hairdo-photo-gallery-.html?searchResultPosition=5
+**Who Will Own the Cars That Drive Themselves?**\
+`Fleets of vehicles roaming streets waiting to be hailed are more efficient. But the coronavirus has made people think twice about the future of car ownership even when autonomous tech arrives.`\
+https://nytimes.com/2020/05/29/business/ownership-autonomous-cars-coronavirus.html?searchResultPosition=5
 
-**Its Coronavirus Caseload Soaring, India Is Reopening Anyway**\
-`Worried for its economy, India loosened tough restrictions and may lift them entirely this weekend. But infection numbers are climbing fast.`\
-https://nytimes.com/2020/05/29/world/asia/coronavirus-india-lockdown.html?searchResultPosition=6
+**Friendship and Love**\
+`What short story of love, friendship, family, or any other kind of bonding can you tell?`\
+https://nytimes.com/2020/05/29/learning/friendship-and-love.html?searchResultPosition=6
 
-**Veterans Help UK Children Keep Calm, Cope With Virus Stress**\
-`Hula hoops, camouflage mats and tires aren't typical supplies needed during the coronavirus pandemic. But they’re useful props as British army veteran Mike Hamilton prepares to lead children in a military-style game designed to boost their resilience and mental health at a time of atypical stress. `\
-https://nytimes.com/aponline/2020/05/29/world/europe/ap-virus-outbreak-britain-stressed-kids.html?searchResultPosition=7
+**UK to Tell Employers to Help Fund Coronavirus Job Safety Net**\
+`British finance minister Rishi Sunak will tell employers on Friday how much they must contribute to the government's hugely expensive wage subsidy programme from August, a prospect that some firms say will lead to more job losses.`\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-britain-sunak.html?searchResultPosition=7
 
-**Go-Go Bars Gone as Coronavirus Hits Bangkok's Sex District**\
-`The black leather party masks that performers May and Som wear for their fetish shows in Bangkok are definitely not the sort to stop the coronavirus.`\
-https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-thailand-nightlife.html?searchResultPosition=8
+**China's PMI to Show Gradual Factory Recovery From Lockdown Paralysis: Reuters Poll**\
+`China's factory activity likely rose for a third straight month in May as the economy recovered from strict lockdowns implemented to contain the coronavirus outbreak, which has hammered global business activity.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-china-economy-pmi.html?searchResultPosition=8
 
-**Australian Court Orders Release of Letters to Britain's Queen Elizabeth Surrounding PM Sacking**\
-`An Australian court ruled on Friday that the country's archives must release letters between Britain's Queen Elizabeth and her local representative during the 1970s, a move which may shed light on the sacking of its then prime minister Gough Whitlam. `\
-https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-australia-politics-queen-letters.html?searchResultPosition=9
+**Japan Air Force Pilots Fly Over Tokyo to Salute Medical Workers**\
+`The Japanese air force's aerobatic demonstration squadron, Blue Impulse, flew over central Tokyo on Friday in a salute to medical workers on the frontline against the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-japan-jsdf.html?searchResultPosition=9
 
-**Yen Perks Up, Dollar Sags as Markets Jittery Before Trump Speaks on China**\
-`The yen rose against major currencies on Friday as caution ahead of U.S. President Donald Trump's press conference on China's treatment of Hong Kong triggered safe-haven inflows.`\
-https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-global-forex.html?searchResultPosition=10
+**German Retail Sales Fall Far Less Than Expected in April**\
+`German retail sales fell at their fastest pace since 2007 in April, data showed on Friday, but the drop was not as steep as expected in a sign of the relative resilience of Europe's largest economy during the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-germany-economy-salesfigures.html?searchResultPosition=10
 
