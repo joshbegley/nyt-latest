@@ -1,32 +1,32 @@
-**Watch: Protesters Set Minneapolis Police Precinct On Fire**\
-`Demonstrations over the killing of George Floyd boiled over late Thursday night. Protests broke out after a video went viral this week showing Mr. Floyd, a black man, struggling to breathe as a white Minneapolis police officer pressed his knee against Mr. Floyd’s neck.`\
-https://nytimes.com/video/us/100000007162707/minneapolis-police-protest-burn.html?searchResultPosition=3
+**Yen Perks Up, Dollar Sags as Markets Jittery Before Trump Speaks on China**\
+`The yen rose against major currencies on Friday as caution ahead of U.S. President Donald Trump's press conference on China's treatment of Hong Kong triggered safe-haven inflows.`\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-global-forex.html?searchResultPosition=3
 
-**Asia Shares Fall as US-China Tensions Douse Rally on Wall St**\
-`Shares fell Friday in Asia as investors awaited a news conference about China by President Donald Trump later in the day.`\
-https://nytimes.com/aponline/2020/05/29/business/bc-financial-markets.html?searchResultPosition=4
+**On This Day: Born May 30, 1949: Bob Willis, English Cricketer**\
+`Steaming in off his long run, curls bobbing, eyes fixed on the stumps, there have been few more intimidating sights in world cricket than fast bowler Bob Willis in his prime.`\
+https://nytimes.com/reuters/2020/05/29/sports/cricket/29reuters-sport-anniversary-willis.html?searchResultPosition=4
 
-**Communion Ritual Unchanged in Orthodox Church Despite Virus**\
-`One by one, the children and adults line up for the centuries-old ritual of Holy Communion, trying to keep a proper social distance.`\
-https://nytimes.com/aponline/2020/05/29/world/europe/ap-virus-outbreak-greece-orthodox-communion.html?searchResultPosition=5
+**Stick or Twist? Investors Face Coronavirus-Induced Property Dilemma**\
+`The coronavirus pandemic has emptied offices and shuttered shops but filled warehouses and highlighted demand for work-from-home spaces, leaving investors wondering if they should flee real estate or double down on their bets.`\
+https://nytimes.com/reuters/2020/05/29/business/29reuters-health-coronavirus-property-allocation-analysis.html?searchResultPosition=5
 
-**The Return to School**\
-`What Australian children have to say about going back to class`\
-https://nytimes.com/2020/05/29/world/australia/coronavirus-school-students.html?searchResultPosition=6
+**Nepali Sherpas Wait, Grow Potatoes as Himalayas Remain Closed Due to Coronavirus**\
+`Had it not been for the coronavirus, Nepali climbing guide Tashi Lakpa Sherpa would have been on Mount Everest now, guiding clients and trying to add another feather in his cap - a ninth ascent. `\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-nepal-sherpas.html?searchResultPosition=6
 
-**A Tough Call: Minor League Umps Squeezed as Lost Year Looms**\
-`Any other May weekend, Trevor Dannegger might’ve been in Hartford or Richmond or Akron on a Double-A diamond, wrangling players, coaches and managers.`\
-https://nytimes.com/aponline/2020/05/29/sports/baseball/ap-bbm-virus-outbreak-a-tough-call.html?searchResultPosition=7
+**Crisis-Hit Wall Street Checks In to Zandi's 'Impairment Studio'**\
+`When Wall Street doesn't know where the world economy is heading, it books a session at Mark Zandi's "impairment studio".`\
+https://nytimes.com/reuters/2020/05/29/business/29reuters-usa-banks-accounting-moody-s.html?searchResultPosition=7
 
-**Travel Disruptions Challenge Global Transplant Deliveries**\
-`Over the past two months, as air travel ground to a halt, Mishel Zrian has crisscrossed the Atlantic and the United States dozens of times, sleeping in empty airports and unable to return home to see his family in Israel, all in a race against time to deliver life-saving transplants.`\
-https://nytimes.com/aponline/2020/05/29/world/middleeast/ap-ml-virus-outbreak-transplant-transport.html?searchResultPosition=8
+**UK Business Confidence Matches 2008 Low in May: Lloyds Bank**\
+`British business confidence fell to its lowest since the 2008 financial crisis in May, according to a survey for Lloyds Bank which contrasts with other surveys which have shown a small improvement since the initial shock of the coronavirus lockdown.`\
+https://nytimes.com/reuters/2020/05/29/world/europe/29reuters-health-coronavirus-britain-economy.html?searchResultPosition=8
 
-**Analysis: Onside Kicks Versus Fourth-And-15s**\
-`For a league that took so many years to find a catch rule that makes sense — we think the current one does that — it can't be a surprise that the somewhat radical proposal of an alternative to the onside kick has been tabled.`\
-https://nytimes.com/aponline/2020/05/29/sports/football/ap-fbn-on-football-fourth-and-15.html?searchResultPosition=9
+**Inside a COVID-19 Hospital in India, Doctors See No End in Sight**\
+`It was barely noon on Thursday when the metal doors of the mortuary at a hospital in south New Delhi swung open and staff in white coveralls rolled out a stretcher. Mourning relatives looked on, as a body bag was loaded into an ambulance and taken away to a cemetery. `\
+https://nytimes.com/reuters/2020/05/29/world/asia/29reuters-health-coronavirus-india-hospital.html?searchResultPosition=9
 
-**VW Spending $2.2B to Expand in China's Electric Car Market**\
-`Volkswagen is spending 2 billion euros ($2.2 billion) to expand its presence in China’s electric car industry in the biggest foreign investment announced since the country's economy began to reopen following the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/05/29/business/ap-as-china-vw-electric-cars.html?searchResultPosition=10
+**Morgan Stanley Not Given Advisory Role on Aramco Pipeline Sale: Sources**\
+`Morgan Stanley has not been given an advisory role on the potential sale of a stake in Saudi Aramco's pipeline business, a deal worth over $10 billion, two sources told Reuters.`\
+https://nytimes.com/reuters/2020/05/29/business/29reuters-morgan-stanley-saudi-aramco-m-a.html?searchResultPosition=10
 
