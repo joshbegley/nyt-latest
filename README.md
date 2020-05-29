@@ -1,32 +1,32 @@
+**Coronavirus Briefing: What Happened Today**\
+`A crop of new studies suggests that herd immunity is still very far away.`\
+https://nytimes.com/2020/05/28/us/coronavirus-briefing-what-happened-today.html?searchResultPosition=3
+
 **Pompeo Releases Letter Clearing Him of Violating Law With Kansas Trips**\
 `Secretary of State Mike Pompeo also criticized Senator Robert Menendez, Democrat of New Jersey, who has opened an investigation into the firing of the State Department inspector general.`\
-https://nytimes.com/2020/05/28/us/politics/mike-pompeo-inspector-general-special-counsel.html?searchResultPosition=3
+https://nytimes.com/2020/05/28/us/politics/mike-pompeo-inspector-general-special-counsel.html?searchResultPosition=4
 
 **National Geographic Plan to Dismantle Granite Sculpture Hits Snag**\
 `The organization says the art installation must go so a redesign of the Washington campus can proceed, but a local review panel indicates there may be alternatives.`\
-https://nytimes.com/2020/05/28/arts/national-geographic-plan-hits-snag.html?searchResultPosition=4
+https://nytimes.com/2020/05/28/arts/national-geographic-plan-hits-snag.html?searchResultPosition=5
 
 **Kosovo Court Says New Government Can Be Formed Without an Election**\
 `Prime Minister Albin Kurti’s government was dismissed in March following disagreements with its main partner over the coronavirus pandemic and removal of tariffs on Serbian goods.`\
-https://nytimes.com/2020/05/28/world/europe/kosovo-government.html?searchResultPosition=5
+https://nytimes.com/2020/05/28/world/europe/kosovo-government.html?searchResultPosition=6
 
 **4-Time DUI Offender Gets 17-Year Sentence for Deadly Crash**\
 `A South Carolina man convicted of driving under the influence for a fourth time was sentenced to 17 years in prison in connection with a crash last year that left a 66-year-old man dead. `\
-https://nytimes.com/aponline/2020/05/28/us/ap-us-fourth-dui-deadly-crash.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/05/28/us/ap-us-fourth-dui-deadly-crash.html?searchResultPosition=7
 
 **National Guard Called as Minneapolis Erupts in Solidarity for George Floyd**\
 `Violence in the streets prompts officials to call in troops and vow a swift federal review of troubling videotaped arrest.`\
-https://nytimes.com/2020/05/28/us/george-floyd-minneapolis-protests.html?searchResultPosition=7
+https://nytimes.com/2020/05/28/us/george-floyd-minneapolis-protests.html?searchResultPosition=8
 
 **Activists Criticize New Anti-Violence Campaign in Mexico**\
 `Activists criticized a new Mexican government ad campaign on violence against women Thursday, saying it minimizes the problem and depicts women as aggressors, too.`\
-https://nytimes.com/aponline/2020/05/28/world/americas/ap-lt-mexico-violence-against-women.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/05/28/world/americas/ap-lt-mexico-violence-against-women.html?searchResultPosition=9
 
 **Trump’s Order Targeting Social Media Sites, Explained**\
 `The president wants to narrow legal protections for companies like Twitter after it began appending fact-check labels to his postings.`\
-https://nytimes.com/2020/05/28/us/politics/trump-twitter-explained.html?searchResultPosition=9
-
-**More Notes From Our Homes to Yours**\
-`Suggestions, lists, distractions and quarantine diaries from our reporters, critics and editors.`\
-https://nytimes.com/interactive/2020/at-home/more-reporters-editors-diaries-lists-recommendations.html?searchResultPosition=10
+https://nytimes.com/2020/05/28/us/politics/trump-twitter-explained.html?searchResultPosition=10
 
