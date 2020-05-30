@@ -1,24 +1,24 @@
+**Trump Says Protesters Would Have Met 'Vicious Dogs' if White House Fence Breached**\
+`U.S. President Donald Trump on Saturday said demonstrators protesting the death of a black man who died after a white police officer knelt on his neck would have been "greeted with the most vicious dogs, and most ominous weapons, I have ever seen" had they breached the White House fence.`\
+https://nytimes.com/reuters/2020/05/30/us/30reuters-minneapolis-police-protests-trump.html?searchResultPosition=5
+
+**Werder Beats Schalke to Boost Bundesliga Survival Hopes**\
+`Werder Bremen revived its hopes of avoiding relegation Saturday with a 1-0 win over slumping Schalke, while Hertha Berlin continued its strong form since the Bundesliga restart with another victory.`\
+https://nytimes.com/aponline/2020/05/30/sports/soccer/ap-soc-german-roundup.html?searchResultPosition=6
+
+**How to Disinfect a Police Car in a Pandemic: Make It an Oven**\
+`The N.Y.P.D. and other departments were concerned about the spread of the coronavirus in vehicles. Ford’s answer is software to crank up the heat.`\
+https://nytimes.com/2020/05/30/business/coronavirus-police-cars-heat.html?searchResultPosition=7
+
+**Muzzle Mr. Met? Mascots Wonder Why They're Banned From MLB**\
+`The Phillie Phanatic had stories of his favorite adventures -- from the Galapagos Islands to the cobblestone streets of Philadelphia -- read to him most weeks from his very best buds.`\
+https://nytimes.com/aponline/2020/05/30/sports/baseball/ap-bbo-virus-outbreak-missing-mascots.html?searchResultPosition=8
+
+**Congo Militia Leader Arrested in 2017 Murders of UN Experts**\
+`A Congolese militia leader accused of involvement in the murder of an American citizen and a Swedish national working with the United Nations has been arrested more than three years after their brutal slayings, a prosecutor said Saturday.`\
+https://nytimes.com/aponline/2020/05/30/world/africa/ap-af-congo-un-experts-killed.html?searchResultPosition=9
+
 **The Latest: Minn Gov: Fully Mobilize State National Guard**\
 `The Latest on the death of George Floyd, a handcuffed black man who pleaded for air as a white police officer knelt on his neck (all times Eastern):`\
-https://nytimes.com/aponline/2020/05/30/us/ap-us-minneapolis-police-death-the-latest.html?searchResultPosition=5
-
-**Sam Johnson, Congressman and Former P.O.W., Is Dead at 89**\
-`A much-decorated pilot held by the North Vietnamese for years, he would later criticize his fellow Republican Donald Trump for disparaging John McCain.`\
-https://nytimes.com/2020/05/30/us/politics/sam-johnson-dead.html?searchResultPosition=6
-
-**No More Money for the Police**\
-`Redirect it to emergency response programs that don’t kill black people.`\
-https://nytimes.com/2020/05/30/opinion/george-floyd-police-funding.html?searchResultPosition=7
-
-**Spain Coronavirus Death Toll Up by Four to 27,125 on Saturday**\
-`Spain's death toll from the novel coronavirus rose by four on Saturday to 27,125, the health ministry said. `\
-https://nytimes.com/reuters/2020/05/30/world/europe/30reuters-health-coronavirus-spain-toll.html?searchResultPosition=8
-
-**British Competitive Sports Given Green Light for June 1 Restart**\
-`After a near three-month shutdown, all competitive sport in Britain can resume from June 1 behind closed doors provided strict conditions are met, the government said on Saturday.`\
-https://nytimes.com/reuters/2020/05/30/sports/rugby/30reuters-health-coronavirus-britain-sport.html?searchResultPosition=9
-
-**What Top Conservatives Are Saying About George Floyd and Police Brutality**\
-`For those on the right whose usual instinct is to stand up for law enforcement, the stark video showing Mr. Floyd being subdued by a police officer raises conflicting feelings about the incident.`\
-https://nytimes.com/2020/05/30/us/politics/george-floyd-tucker-carlson-rush-limbaugh.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/05/30/us/ap-us-minneapolis-police-death-the-latest.html?searchResultPosition=10
 
