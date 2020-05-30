@@ -4,7 +4,7 @@ https://nytimes.com/reuters/2020/05/30/world/middleeast/30reuters-minneapolis-po
 
 **Remember, No One Is Coming to Save Us**\
 `Eventually doctors will find a coronavirus vaccine, but black people will continue to wait for a cure for racism.`\
-https://nytimes.com/2020/05/30/opinion/trump-george-floyd-coronavirus.html?searchResultPosition=6
+https://nytimes.com/2020/05/30/opinion/sunday/trump-george-floyd-coronavirus.html?searchResultPosition=6
 
 **Watch Live: SpaceX Astronaut Launch**\
 `SpaceX readies to launch the Crew Dragon spacecraft after weather postponed a first attempt Wednesday. If successful, it will be the first-ever crewed spaceflight for SpaceX, the company founded by Elon Musk.`\
