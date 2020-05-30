@@ -1,24 +1,24 @@
-**US Food Prices See Historic Jump and Are Likely to Stay High**\
-`As if trips to the grocery store weren’t nerve-racking enough, U.S. shoppers lately have seen the costs of meat, eggs and even potatoes soar as the coronavirus has disrupted processing plants and distribution networks.`\
-https://nytimes.com/aponline/2020/05/30/business/bc-us-virus-outbreak-food-prices.html?searchResultPosition=5
+**Sudan Summons Ethiopian Envoy Over Suspected Cross-Border Attack**\
+`Sudan summoned the Ethiopian Chargé d'Affaires on Saturday over a border attack by suspected Ethiopian militias that killed and wounded several Sudanese army personnel and civilians, it said in a statement.`\
+https://nytimes.com/reuters/2020/05/30/world/africa/30reuters-sudan-ethiopia.html?searchResultPosition=5
 
-**Italy Court Rules Uber Food Delivery Riders Were Exploited**\
-`A court in Milan has ordered the appointment of a judicial administrator to oversee Uber Italy for one year after determining the company's food delivery service exploited workers, according to Italian news reports.`\
-https://nytimes.com/aponline/2020/05/30/business/bc-eu-italy-uber.html?searchResultPosition=6
+**Where Dance and Fashion Collide**\
+`A conversation between the designer Iris van Herpen and the choreographer Damien Jalet on the creative process.`\
+https://nytimes.com/2020/05/30/opinion/dance-fashion-herpen-jalet.html?searchResultPosition=6
 
-**Number of Eliminated College Sports Programs Nearing 100**\
-`Four-year colleges facing budget shortfalls stemming from the pandemic are approaching an unwelcome milestone: In coming days, the number of eliminated sports programs will almost surely pass 100.`\
-https://nytimes.com/aponline/2020/05/30/sports/ap-us-virus-outbreak-cutting-college-sports.html?searchResultPosition=7
+**The Rich Love India’s Lockdown. For the Poor It’s Another Story.**\
+`Estimates show the lockdown is pushing tens of millions of Indians below the poverty line.`\
+https://nytimes.com/2020/05/30/opinion/india-coronavirus-lockdown-inequality.html?searchResultPosition=7
 
-**Flooded Michigan City Is Midcentury Architecture Mecca**\
-`Christopher Jue knew he was home the moment he and his wife stepped inside the sprawling 62-year-old ranch with brick floors, a sunken living room and built-in desks, shelves and bureaus — hallmarks of an Alden B. Dow original.`\
-https://nytimes.com/aponline/2020/05/30/us/ap-us-midwest-flooding-midcentury-architecture.html?searchResultPosition=8
+**In Case of Emergency, Make Art**\
+`Hand a kid colored pencils and the trepidation and confusion of the coronavirus pandemic transmutes into striped penguins.`\
+https://nytimes.com/2020/05/30/opinion/coronavirus-mcnaughton-art-children.html?searchResultPosition=8
 
-**Make the Zestiest Macaroni Salad**\
-`Macaroni salad with lemon and herbs, blueberry cobbler, and more recipes.`\
-https://nytimes.com/2020/05/30/admin/make-the-zestiest-macaroni-salad.html?searchResultPosition=9
+**Variety: Puns and Anagrams**\
+`Andrew J. Ries brings some order to this mixed-up, crazy world, or vice versa.`\
+https://nytimes.com/2020/05/30/crosswords/variety-puns-and-anagrams.html?searchResultPosition=9
 
-**Official: Bomb in Afghan Capital Targeted TV Bus, 2 Dead**\
-`A bus belonging to a local TV station was hit by a roadside bomb Saturday in the capital Kabul, killing two employees, said a spokeswoman for the Interior Ministry.`\
-https://nytimes.com/aponline/2020/05/30/world/asia/ap-as-afghanistan.html?searchResultPosition=10
+**15 Killed as Extremists Attack Traders in Burkina Faso**\
+`Islamic extremists killed at least 15 people, including children, in an attack on a group of traders traveling between towns in northern Burkina Faso, the government said Saturday.`\
+https://nytimes.com/aponline/2020/05/30/world/africa/ap-af-burkina-faso-violence.html?searchResultPosition=10
 
