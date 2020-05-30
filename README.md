@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/05/30/business/ap-us-virus-outbreak-restarting
 `Pope Francis on Saturday urged politicians to divert funds spent on weapons to research to prevent another pandemic, as he led the largest gathering in the Vatican in nearly three months. `\
 https://nytimes.com/reuters/2020/05/30/world/europe/30reuters-health-coronavirus-pope.html?searchResultPosition=9
 
-**Parolled Australian Fears Re-Arrest for Murder in Bulgaria, Seeks New Trial**\
+**Parolled Australian Fears Re-Arrest in Bulgaria, Seeks New Trial**\
 `An Australian ex-soldier, released on parole after being convicted of a street murder in Bulgaria in 2009, fears he will be rearrested if he tries to leave the country and is now seeking a new trial to try to clear his name.`\
 https://nytimes.com/reuters/2020/05/30/world/europe/30reuters-bulgaria-australia-palfreeman.html?searchResultPosition=10
 
