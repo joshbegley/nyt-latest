@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/05/30/world/asia/30reuters-health-coronavirus-u
 https://nytimes.com/reuters/2020/05/30/sports/football/30reuters-sport-anniversary-namath.html?searchResultPosition=8
 
 **National Guard Summoned to Aid Cities Amid Police Clashes**\
-`Georgia’s governor declared a state of emergency early Saturday to activate the state National Guard as violence flared in Atlanta and in dozens of cities nationwide following the killing in Minnesota of George Floyd after a white officer pressed a knee into his neck while taking him into custody.`\
+`Georgia’s governor declared a state of emergency early Saturday to activate the state National Guard as violence flared in Atlanta and in dozens of cities nationwide following the death in Minnesota of George Floyd after a white officer pressed a knee into his neck while taking him into custody.`\
 https://nytimes.com/aponline/2020/05/30/us/ap-us-minneapolis-police-death-nationwide-protests.html?searchResultPosition=9
 
 **Unrest Flares in U.S. Cities Despite Arrest of Minneapolis Policeman**\
