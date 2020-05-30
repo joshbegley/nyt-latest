@@ -1,5 +1,5 @@
 **Merkel Won't Attend G7 Summit in Person if US Goes Ahead**\
-`Chancellor Angela Merkel will not personally attend a meeting in the U.S. with the leaders of the world’s major economies if President Donald Trump goes ahead with it, unless the course of the coronavirus spread changes by then, her spokesman said Saturday.`\
+`Chancellor Angela Merkel will not personally attend a meeting in the U.S. with the leaders of the world’s major economies if President Donald Trump goes ahead with it, unless the course of the coronavirus spread changes by then, her office said Saturday.`\
 https://nytimes.com/aponline/2020/05/30/world/europe/ap-eu-germany-us-g7.html?searchResultPosition=5
 
 **Russians Rush to Public Bath After Lockdown Without Hot Water**\
