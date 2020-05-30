@@ -15,7 +15,7 @@ https://nytimes.com/2020/05/29/us/politics/flynn-russian-ambassador-transcripts.
 https://nytimes.com/2020/05/29/opinion/Minneapolis-police-George-Floyd.html?searchResultPosition=8
 
 **California Prison Employees Suspended Over Racist Remarks**\
-`California prison officials said Friday that they suspended multiple employees who made racist jokes about the death of an unarmed black man in police custody in Minneapolis, a disclosure that came amid protests across the state and nation.`\
+`California prison officials said Friday that they suspended multiple employees who made racist jokes about the death of an African American man in police custody in Minneapolis, a disclosure that came amid protests across the state and nation.`\
 https://nytimes.com/aponline/2020/05/29/us/ap-us-police-death-california-prisons.html?searchResultPosition=9
 
 **Exclusive: Zoom Plans to Roll Out Strong Encryption for Paying Customers Only**\
