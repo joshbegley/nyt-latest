@@ -10,8 +10,8 @@ https://nytimes.com/2020/05/29/world/asia/hong-kong-protest-future-china.html?se
 `When his cruise ship sailed into Manila Bay after weeks of voyaging like a castaway amid port closures set off by the global pandemic, Erick Arenas felt he was finally home.`\
 https://nytimes.com/aponline/2020/05/29/world/asia/ap-as-virus-outbreak-philippines-quarantine-gridlock.html?searchResultPosition=7
 
-**U.S. Looking to Use Security Force Assistance Brigade in Tunisia**\
-`The United States is looking to use one of its Security Force Assistance Brigades in Tunisia, the United States Africa Command said on Friday, amid concern over Russian activity in Libya. `\
+**U.S. Eyes Use of Security Brigade in Tunisia Amid Russia Concerns**\
+`The United States is looking to use one of its Security Force Assistance Brigades in Tunisia, its military said on Friday, amid concern over Russian activity in Libya.`\
 https://nytimes.com/reuters/2020/05/29/world/africa/29reuters-libya-security-usa-tunisia.html?searchResultPosition=8
 
 **China Reports Four New Coronavirus Cases for May 29**\
