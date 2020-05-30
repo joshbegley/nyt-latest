@@ -1,24 +1,24 @@
-**$10 Billion Bailout for Germany's Lufthansa Passes Hurdle**\
-`German flagship airline Lufthansa agreed Saturday to a compromise worked out between the government and the European Union, overcoming a major hurdle toward final approval of a 9 billion-euro ($10 billion) bailout from Berlin.`\
-https://nytimes.com/aponline/2020/05/30/business/bc-eu-germany-lufthansa-bailout.html?searchResultPosition=5
+**In Lockdown, a Neighborhood Opens Up**\
+`Grab a hyperlocal bakery loaf and a copy of the kids’ newspaper, and we can discuss over stoop cocktails.`\
+https://nytimes.com/2020/05/30/technology/bernal-heights.html?searchResultPosition=5
 
-**France, Britain, Germany 'Regret' U.S. End to Iran Nuclear Waivers**\
-`France, Germany and Britain on Saturday criticised a U.S. decision to end sanctions waivers allowing work on Iranian nuclear sites designed to prevent weapons development.`\
-https://nytimes.com/reuters/2020/05/30/world/middleeast/30reuters-iran-nuclear-europe-waivers.html?searchResultPosition=6
+**A Mile-Long Line for Free Food in Geneva, One of World’s Richest Cities**\
+`The Swiss city is best known for bankers, watchmakers and U.N. officials. But the virus has forced thousands from Geneva’s underclass to line up for hours for food aid.`\
+https://nytimes.com/2020/05/30/world/europe/geneva-coronavirus-reopening.html?searchResultPosition=6
 
-**Mosques in Iran to Resume Daily Prayers, President Says**\
-`Government employees went back to work in Iran on Saturday and President Hassan Rouhani said mosques are to resume daily prayers throughout the country, even though some areas are seeing high levels of coronavirus infections.`\
-https://nytimes.com/reuters/2020/05/30/world/middleeast/30reuters-health-coronavirus-iran.html?searchResultPosition=7
+**Twitter Had Been Drawing a Line for Months When Trump Crossed It**\
+`Inside the company, one faction wanted Jack Dorsey, Twitter’s chief, to take a hard line against the president’s tweets while another urged him to remain hands-off.`\
+https://nytimes.com/2020/05/30/technology/twitter-trump-dorsey.html?searchResultPosition=7
 
-**Merkel Won't Attend G7 Summit in Person if US Goes Ahead**\
-`Chancellor Angela Merkel will not personally attend a meeting in the U.S. with the leaders of the world’s major economies if President Donald Trump goes ahead with it, unless the course of the coronavirus spread changes by then, her office said Saturday.`\
-https://nytimes.com/aponline/2020/05/30/world/europe/ap-eu-germany-us-g7.html?searchResultPosition=8
+**Kris Kobach Is Back, and a Kansas Senate Seat May Be Up for Grabs**\
+`Mr. Kobach’s polarizing presence in a race in a reliably Republican stronghold has party leaders worried that Kansas will become a high-stakes battleground for control of the Senate.`\
+https://nytimes.com/2020/05/30/us/politics/kansas-senate-kobach.html?searchResultPosition=8
 
-**Russians Rush to Public Bath After Lockdown Without Hot Water**\
-`Russian women flocked to their small town's "banya" or public steam sauna when it reopened after the coronavirus lockdown, for the luxury of hot water after going without for six weeks.`\
-https://nytimes.com/reuters/2020/05/30/world/europe/30reuters-health-coronavirus-russia-banya.html?searchResultPosition=9
+**The Central Park Video and #LivingWhileBlack in New York City**\
+`The confrontation between a black bird watcher and a white woman walking her dog reminded many black residents that a diverse city can also be hostile.`\
+https://nytimes.com/2020/05/30/nyregion/central-park-video.html?searchResultPosition=9
 
-**Russia Reports 181 New Coronavirus Deaths, Down From Friday's Record High**\
-`Russia on Saturday reported 181 deaths from the coronavirus in the last 24 hours, down from the record 232 deaths registered the previous day and pushing the nationwide death toll to 4,555.`\
-https://nytimes.com/reuters/2020/05/30/world/europe/30reuters-health-coronavirus-russia-cases.html?searchResultPosition=10
+**Past Presidents Faced Police Brutality and Protests. They Handled It Differently.**\
+`President Trump’s predecessors took different approaches when responding — or not responding — to police killings or assaults of black men. But they never threatened violence against protesters.`\
+https://nytimes.com/2020/05/30/us/politics/george-floyd-trump-obama-bush-clinton.html?searchResultPosition=10
 
