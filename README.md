@@ -4,7 +4,7 @@ https://nytimes.com/aponline/2020/05/30/sports/soccer/ap-soc-virus-outbreak-span
 
 **Are Virtual Tours Really Enough Before Renting a New Home?**\
 `Video tours have quickly become the standard way to see available apartments and houses. But not all videos are created equal.`\
-https://nytimes.com/2020/05/30/realestate/virtual-tours-real-estate-renting-video-tours-leasing.html?searchResultPosition=6
+https://nytimes.com/2020/05/30/realestate/virtual-tours-renting.html?searchResultPosition=6
 
 **World Leaders to Headline 24-Hour Livestream for Gay Pride**\
 `Global Pride, a online event scheduled for June 27, will feature remarks by prime ministers and royalty as well as performances by international musical acts, according to organizers.`\
