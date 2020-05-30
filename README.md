@@ -4,7 +4,7 @@ https://nytimes.com/reuters/2020/05/29/sports/football/29reuters-football-ncaa-n
 
 **Atlanta Protesters Clash With Police as Mayor Warns ‘You Are Disgracing Our City’**\
 `Protesters broke windows and set fire to cars after the death of George Floyd in Minneapolis. Protests emerged in many U.S. cities.`\
-https://nytimes.com/2020/05/29/us/atlanta-protesters-clash-with-police-as-mayor-warns-you-are-disgracing-our-city.html?searchResultPosition=6
+https://nytimes.com/2020/05/29/us/atlanta-protest-cnn-george-floyd.html?searchResultPosition=6
 
 **Leaving the W.H.O. Shows Poor Leadership**\
 `America should be demanding answers, not retreating.`\
