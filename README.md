@@ -1,24 +1,24 @@
+**Russia Denies U.S. Claim That Libyan Banknotes Seized in Malta Are Counterfeit**\
+`Libyan currency worth over $1 billion which was printed in Moscow and seized by Malta is not counterfeit, Russia's foreign ministry said on Saturday in response to U.S. claims. `\
+https://nytimes.com/reuters/2020/05/30/world/europe/30reuters-russia-libya-usa-banknotes.html?searchResultPosition=5
+
+**AP Explains: Trump Actions on Hong Kong Just Threats for Now**\
+`President Donald Trump has announced what he said are “significant actions” regarding U.`\
+https://nytimes.com/aponline/2020/05/30/business/ap-us-ap-explains-united-states-hong-kong.html?searchResultPosition=6
+
 **Italy Records 111 New Coronavirus Deaths, 416 New Cases**\
 `Deaths from the COVID-19 epidemic in Italy climbed by 111 on Saturday, against 87 the day before, the Civil Protection Agency said, while the daily tally of new cases fell to 416 from 516 on Friday.`\
-https://nytimes.com/reuters/2020/05/30/world/europe/30reuters-health-coronavirus-italy-tally.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/05/30/world/europe/30reuters-health-coronavirus-italy-tally.html?searchResultPosition=7
 
 **Rules Apply to All, Senior Health Official Says of UK PM's Adviser Cummings**\
-`England's deputy chief medical officer said the COVID-19 rules were clear and applied to all when he was asked about the prime minister's most senior adviser, Dominic Cummings, who made a lengthy journey during the lockdown. `\
-https://nytimes.com/reuters/2020/05/30/world/europe/30reuters-health-coronavirus-britain-cummings.html?searchResultPosition=6
+`Britain's COVID-19 lockdown rules are clear and apply to everyone, a senior medical officer said when asked about a long road trip made by the prime minister's top adviser, Dominic Cummings, at the height of the lockdown.`\
+https://nytimes.com/reuters/2020/05/30/world/europe/30reuters-health-coronavirus-britain-cummings.html?searchResultPosition=8
 
 **Colombia Will Not Ease Quarantine in Capital, Cities Hit Hard by Coronavirus**\
 `Colombia issued new measures to control the spread of the novel coronavirus in three of its most affected cities on Saturday, including the capital Bogota, as the rest of the country prepares for quarantine rules to start lifting. `\
-https://nytimes.com/reuters/2020/05/30/world/americas/30reuters-health-coronavirus-colombia.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/05/30/world/americas/30reuters-health-coronavirus-colombia.html?searchResultPosition=9
 
 **Drugs Standards Group Nixes Plan to Kick Pharma's Crab Blood Habit**\
 `Horseshoe crabs' icy-blue blood is set to remain the drug industry's standard for safety tests after a powerful U.S. group ditched a plan to put on an equal footing a synthetic substitute pushed by Swiss biotech Lonza and animal welfare groups.`\
-https://nytimes.com/reuters/2020/05/30/world/europe/30reuters-lonza-crabs.html?searchResultPosition=8
-
-**Lessons for the Future From Online Learning**\
-`Should schools incorporate more virtual learning when they reopen? Students and educators respond to one student’s enthusiasm for it.`\
-https://nytimes.com/2020/05/30/opinion/letters/coronavirus-online-education.html?searchResultPosition=9
-
-**The Problem With Military Base Names**\
-`Readers say those named for Confederate Army officers should be changed; another points to the overriding fact that the U.S. military was a pioneer in achieving racial equality.`\
-https://nytimes.com/2020/05/30/opinion/letters/military-bases-confederacy.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/30/world/europe/30reuters-lonza-crabs.html?searchResultPosition=10
 
