@@ -14,11 +14,11 @@ https://nytimes.com/reuters/2020/05/30/us/30reuters-minneapolis-police-protests-
 `Living conditions make it difficult to contain the virus's spread.`\
 https://nytimes.com/2020/05/30/opinion/sunday/coronavirus-native-americans.html?searchResultPosition=8
 
-**Annexing the West Bank Is a Brazen Violation of International Law**\
-`It would also render the territory into a patchwork of simmering, unstable Palestinian areas, forever threatening a new intifada.`\
-https://nytimes.com/2020/05/30/opinion/sunday/west-bank-israel-annex.html?searchResultPosition=9
-
 **Why Have One Pandemic Hobby When You Can Have 1,000 of Them?**\
 `My quest to try everything and master nothing.`\
-https://nytimes.com/2020/05/30/opinion/coronavirus-pandemic-hobbies.html?searchResultPosition=10
+https://nytimes.com/2020/05/30/opinion/coronavirus-pandemic-hobbies.html?searchResultPosition=9
+
+**Annexing the West Bank Is a Brazen Violation of International Law**\
+`It would also render the territory into a patchwork of simmering, unstable Palestinian areas, forever threatening a new intifada.`\
+https://nytimes.com/2020/05/30/opinion/sunday/west-bank-israel-annex.html?searchResultPosition=10
 
