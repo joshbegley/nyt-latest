@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/05/30/us/30reuters-usa-court-religion-illinois.
 https://nytimes.com/reuters/2020/05/30/us/30reuters-minneapolis-police-protests-factbox.html?searchResultPosition=7
 
 **Coronavirus Live Updates: As U.S. Cities Ease Restrictions, Other Nations Backslide**\
-`Cases are soaring in India, but its already-eased lockdown may end entirely on Sunday. President Trump said the United States would end its relationship with the World Health Organization.`\
+`Cases are soaring in India, but its already-eased lockdown may end on Sunday. President Trump said the United States would end its relationship with the W.H.O.`\
 https://nytimes.com/2020/05/30/world/coronavirus-news-update.html?searchResultPosition=8
 
 **What Time Is the SpaceX Astronaut Launch? How to Watch**\
