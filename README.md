@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/05/30/world/asia/ap-as-china-hong-kong-us.html
 `Zhang Dan was among the first to respond to the call for help in China's coronavirus epicenter. The 36-year-old nurse worked through grueling days, ministering to patients who needed assistance from breathing to merely eating. `\
 https://nytimes.com/aponline/2020/05/30/world/asia/ap-as-virus-outbreak-one-good-thing-wuhan-nurse.html?searchResultPosition=9
 
-**The Latest: India Has Another Record Jump of Cases**\
+**The Latest: Pakistan Allows International Flights to Resume**\
 `The Latest on the coronavirus pandemic.  The new coronavirus causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death.`\
 https://nytimes.com/aponline/2020/05/30/business/ap-virus-outbreak-the-latest.html?searchResultPosition=10
 
