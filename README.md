@@ -14,11 +14,11 @@ https://nytimes.com/reuters/2020/05/30/technology/30reuters-space-exploration-sp
 `Grab a hyperlocal bakery loaf and a copy of the kids’ newspaper, and we can discuss over stoop cocktails.`\
 https://nytimes.com/2020/05/30/technology/bernal-heights.html?searchResultPosition=8
 
-**Twitter Had Been Drawing a Line for Months When Trump Crossed It**\
-`Inside the company, one faction wanted Jack Dorsey, Twitter’s chief, to take a hard line against the president’s tweets while another urged him to remain hands-off.`\
-https://nytimes.com/2020/05/30/technology/twitter-trump-dorsey.html?searchResultPosition=9
-
 **A Mile-Long Line for Free Food in Geneva, One of World’s Richest Cities**\
 `The Swiss city is best known for bankers, watchmakers and U.N. officials. But the virus has forced thousands from Geneva’s underclass to line up for hours for food aid.`\
-https://nytimes.com/2020/05/30/world/europe/geneva-coronavirus-reopening.html?searchResultPosition=10
+https://nytimes.com/2020/05/30/world/europe/geneva-coronavirus-reopening.html?searchResultPosition=9
+
+**Twitter Had Been Drawing a Line for Months When Trump Crossed It**\
+`Inside the company, one faction wanted Jack Dorsey, Twitter’s chief, to take a hard line against the president’s tweets while another urged him to remain hands-off.`\
+https://nytimes.com/2020/05/30/technology/twitter-trump-dorsey.html?searchResultPosition=10
 
