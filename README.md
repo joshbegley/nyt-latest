@@ -1,24 +1,24 @@
+**Are Virtual Tours Really Enough Before Renting a New Home?**\
+`Video tours have quickly become the standard way to see available apartments and houses. But not all videos are created equal.`\
+https://nytimes.com/2020/05/30/realestate/virtual-tours-real-estate-renting-video-tours-leasing.html?searchResultPosition=5
+
+**World Leaders to Headline 24-Hour Livestream for Gay Pride**\
+`Global Pride, a online event scheduled for June 27, will feature remarks by prime ministers and royalty as well as performances by international musical acts, according to organizers.`\
+https://nytimes.com/2020/05/30/us/global-pride-day-coronavirus.html?searchResultPosition=6
+
+**U.S. Considers Sending 'Training' Unit to Tunisia Amid North Africa Tensions**\
+`The United States said it is considering deploying a Security Force Assistance Brigade in Tunisia for training, as part of its assistance program with the North Africa country, amid concern over Russian activity in Libya. `\
+https://nytimes.com/reuters/2020/05/30/world/africa/30reuters-libya-security-usa-tunisia.html?searchResultPosition=7
+
+**Hong Kong Officials Say Trump 'Completely Wrong' to End City's Special Status**\
+`Hong Kong officials lashed out on Saturday at moves by U.S. President Donald Trump to strip the city of its special status in a bid to punish China for imposing national security laws on the global financial hub. `\
+https://nytimes.com/reuters/2020/05/30/world/asia/30reuters-hongkong-protests.html?searchResultPosition=8
+
+**Italian Fognini Undergoes Surgery on Both Ankles**\
+`World number 11 Fabio Fognini underwent surgery on both ankles on Saturday to cure a long-standing problem.`\
+https://nytimes.com/reuters/2020/05/30/sports/tennis/30reuters-tennis-fognini.html?searchResultPosition=9
+
 **Philippines Confirms Eight More Coronavirus Deaths, 590 New Cases**\
 `The Philippines' health ministry on Saturday reported eight additional deaths from the novel coronavirus and 590 new infections.`\
-https://nytimes.com/reuters/2020/05/30/world/asia/30reuters-health-coronavirus-philippines-cases.html?searchResultPosition=5
-
-**Pop-Up Bar Scene, Tanning Salon Test Shutdown Rules in NYC**\
-`What passes for a pandemic-era speakeasy these days in New York City isn’t secret at all.`\
-https://nytimes.com/aponline/2020/05/30/us/ap-us-virus-outbreak-bending-the-rules.html?searchResultPosition=6
-
-**Coronavirus in N.Y.: Live Updates**\
-`New York City will begin reopening on June 8, the first step in ending one of the country’s strictest lockdowns, Gov. Andrew M. Cuomo said on Friday.`\
-https://nytimes.com/2020/05/30/nyregion/coronavirus-new-york-updates.html?searchResultPosition=7
-
-**Chinese Vaccine Could Be Ready by Year-End, Government Body Says**\
-`A Chinese-made coronavirus vaccine could be ready for market as early as the end of this year, China's State-owned Assets Supervision and Administration Commission (SASAC) said in a social media post.`\
-https://nytimes.com/reuters/2020/05/30/world/asia/30reuters-health-coronavirus-china-vaccine.html?searchResultPosition=8
-
-**Schools Nationwide Brace for Cuts From New Financial Crisis**\
-`It was during the Great Recession when Catoosa County first shortened its school year, from 180 to 175 instructional days, as it began years of furloughs due to budget cuts. As a result of the coronavirus pandemic, the next school year will be shorter still, with only 170 classroom days. `\
-https://nytimes.com/aponline/2020/05/30/us/ap-us-virus-outbreak-school-budgets.html?searchResultPosition=9
-
-**Ukraine's Soccer Restart Disrupted by Positive Tests**\
-`The Ukrainian Premier League restarted Saturday but one game was called off when an unspecified number of soccer players and staff tested positive for the coronavirus.`\
-https://nytimes.com/aponline/2020/05/30/sports/soccer/ap-soc-ukraine-restart.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/30/world/asia/30reuters-health-coronavirus-philippines-cases.html?searchResultPosition=10
 
