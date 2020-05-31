@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/05/30/world/middleeast/30reuters-health-coronav
 `As protests over the death of George Floyd grow in cities across the U.S., government officials have been warning of the “outsiders” -- groups of organized rioters they say are flooding into major cities not to call for justice but to cause destruction. `\
 https://nytimes.com/aponline/2020/05/30/us/politics/ap-us-minneapolis-police-death-outsiders.html?searchResultPosition=9
 
-**China's May Factory Activity Expands for Third Straight Month**\
-`China's factory activity rose for a third straight month in May as companies got back to business after strict measures to contain the coronavirus, but worldwide lockdowns and weak demand are likely to weigh on the economy's recovery.`\
+**China's May Factory Activity Expands, but Weak Orders Signal Bumpy Recovery**\
+`China's factory activity rose for a third straight month in May as companies got back to business after strict measures to contain the coronavirus were eased, but a deep contraction in export orders means the recovery remains sluggish.`\
 https://nytimes.com/reuters/2020/05/30/world/asia/30reuters-china-economy-pmi.html?searchResultPosition=10
 
