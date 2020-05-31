@@ -1,4 +1,4 @@
-**The Latest: L.A., S.F. Under Citywide Curfews Overnight**\
+**The Latest: S.F. to Be Under Citywide Curfew Sunday Night**\
 `The Latest on the death in Minneapolis of George Floyd, a handcuffed black man who pleaded for air as a white police officer pressed a knee on his neck:`\
 https://nytimes.com/aponline/2020/05/31/us/ap-us-minneapolis-police-death-the-latest.html?searchResultPosition=4
 
