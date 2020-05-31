@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/05/31/world/africa/31reuters-health-coronavirus
 `Two members of a Reuters TV crew were hit by rubber bullets and injured in Minneapolis on Saturday night when police moved into an area occupied by about 500 protesters in the southwest of the city shortly after the 8 p.m. curfew.`\
 https://nytimes.com/reuters/2020/05/31/us/31reuters-minneapolis-police-protest-update.html?searchResultPosition=5
 
-**The Latest: S.F. to Be Under Citywide Curfew Sunday Night**\
+**The Latest: Protesters Assemble at Phoenix Police HQ**\
 `The Latest on the death in Minneapolis of George Floyd, a handcuffed black man who pleaded for air as a white police officer pressed a knee on his neck:`\
 https://nytimes.com/aponline/2020/05/31/us/ap-us-minneapolis-police-death-the-latest.html?searchResultPosition=6
 
