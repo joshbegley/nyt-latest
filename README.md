@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/05/30/business/30reuters-zoom-encryption-exclusive.html?searchResultPosition=4
 
 **Mayor Says George Floyd's Body Will Return to Houston**\
-`The mayor of Houston said Saturday that the body of George Floyd, whose death after a Minneapolis police officer pressed a knee on his neck for more than eight minutes has sparked protests across the U.S, will be returning to the city where he grew up.`\
+`The mayor of Houston said Saturday that the body of George Floyd, whose death after a Minneapolis police officer pressed a knee on his neck during an arrest has sparked protests across the U.S, will be returning to the city where he grew up.`\
 https://nytimes.com/aponline/2020/05/30/us/ap-us-minneapolis-police-death-floyd.html?searchResultPosition=5
 
 **In Virus-Hit South Korea, AI Monitors Lonely Elders**\
