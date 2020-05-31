@@ -2,7 +2,7 @@
 `Four Surinamese parties have formed an alliance that would put them close to being able to choose the country's next president following elections that may have ended the rule of President Desi Bouterse.`\
 https://nytimes.com/aponline/2020/05/31/world/americas/ap-lt-suriname-election.html?searchResultPosition=4
 
-**Hundreds of Protesters Rally in London, Berlin Over U.S. Death**\
+**Protesters Rally in London, Berlin Over George Floyd's Death**\
 `Hundreds of people protested in London and Berlin on Sunday in solidarity with demonstrations in the United States over the death of a black man shown on video gasping for breath as a white policeman knelt on his neck in Minneapolis.`\
 https://nytimes.com/reuters/2020/05/31/world/europe/31reuters-minneapolis-police-protests-britain.html?searchResultPosition=5
 
