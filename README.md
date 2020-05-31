@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/05/30/world/americas/30reuters-health-coronavir
 `At a little past midnight on Saturday as smoke billowed and flames rose from the tops of a nearby bank and a post office building, Minneapolis grocery store owner Mohammad Abdi knew he had a critical business decision to make.`\
 https://nytimes.com/reuters/2020/05/30/world/africa/30reuters-minneapolis-police-grocer.html?searchResultPosition=6
 
-**Trump Says He Is Postponing G7 Summit**\
-`U.S. President Donald Trump said on Saturday that he is postponing until September the G7 summit which had been scheduled for late June.`\
+**Trump Postpones G7 Summit, Seeks to Expand Invitation List**\
+`U.S. President Donald Trump said on Saturday he would postpone the Group of Seven summit that he wanted to hold in late June and expand the list of countries invited to include Australia, Russia, South Korea and India.`\
 https://nytimes.com/reuters/2020/05/30/world/asia/30reuters-g7-summit-usa.html?searchResultPosition=7
 
 **Global Coronavirus Cases Surpass 6 Million**\
