@@ -1,28 +1,28 @@
+**Lebanon Must Turn Reform Ideas Into Reality, U.S. Ambassador Says**\
+`The Lebanese government must turn its reform ideas into reality and take concrete steps to win international support, the U.S. ambassador said in an interview broadcast on Sunday.`\
+https://nytimes.com/reuters/2020/05/31/world/middleeast/31reuters-lebanon-crisis.html?searchResultPosition=4
+
+**Bolsonaro Joins Rally Against Brazil's Top Court; Judge Warns Democracy at Risk**\
+`Brazilian President Jair Bolsonaro joined a rally on Sunday on horseback as supporters urged the closing of the Supreme Court for investigating the right-wing leader, as one of its justices compared the risks to Brazil's democracy with Hitler's Germany. `\
+https://nytimes.com/reuters/2020/05/31/world/americas/31reuters-brazil-politics.html?searchResultPosition=5
+
+**FBI Identifies Federal Officer Killed Near Protest**\
+`A federal law enforcement officer who was shot and killed while providing security at the U.S. courthouse in Oakland during a protest has been identified.`\
+https://nytimes.com/aponline/2020/05/31/us/ap-us-federal-officer-killed.html?searchResultPosition=6
+
+**Corporate Voices Get Behind ‘Black Lives Matter’ Cause**\
+`Major companies are often wary of conflict, especially in a polarized time. But some are now taking a stand on racial injustice and police violence.`\
+https://nytimes.com/2020/05/31/business/media/companies-marketing-black-lives-matter-george-floyd.html?searchResultPosition=7
+
+**Norman Lamm, 92, Dies; Rescued Yeshiva U. From Brink of Bankruptcy**\
+`He championed the idea that Orthodox Jews could maintain their faith while engaging with modern society.`\
+https://nytimes.com/2020/05/31/obituaries/Norman-Lamm-Dead.html?searchResultPosition=8
+
 **History, Right Now: Echoes of 1968, and Other American Years**\
 `The streets were on fire as National Guard troops streamed into American cities. The shouts were soaked in anger and anguish: “We’re sick of it!”`\
-https://nytimes.com/aponline/2020/05/31/us/ap-us-american-flashpoints.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/05/31/us/ap-us-american-flashpoints.html?searchResultPosition=9
 
 **Retailers Already Hit by Coronavirus Board Up as U.S. Protests Rage**\
 `Retail giant Target shuttered stores across the U.S. as retailers already reeling from closures due to the coronavirus pandemic shut stores amid protests that included looting in many U.S. cities on Sunday. `\
-https://nytimes.com/reuters/2020/05/31/business/31reuters-minneapolis-police-protests-retail.html?searchResultPosition=5
-
-**Soccer: Hat-Trick Hero Sancho Wears 'Justice for George Floyd' Shirt**\
-`Borussia Dortmund players Jadon Sancho and Achraf Hakimi became the latest athletes to join a chorus of outrage over the death of a black man in Minneapolis by wearing shirts with the message "Justice for George Floyd" in a Bundesliga match on Sunday.`\
-https://nytimes.com/reuters/2020/05/31/sports/soccer/31reuters-soccer-germany-scp-dor-sancho.html?searchResultPosition=6
-
-**Mississippi Mayor Apologizes for Tweets on George Floyd**\
-`A white Mississippi mayor who caused an outrage with his tweets about the death of George Floyd in Minneapolis has apologized but says he won’t resign.`\
-https://nytimes.com/aponline/2020/05/31/us/ap-us-minneapolis-police-death-mississippi-mayor.html?searchResultPosition=7
-
-**More Journalists Injured Covering George Floyd Protests**\
-`The first time officers shot rubber bullets at MSNBC host Ali Velshi and his crew Saturday night in Minneapolis, he was willing to believe that the officials didn’t know they were press. The second time, Velshi said, they knew and shot anyway. `\
-https://nytimes.com/aponline/2020/05/31/us/ap-us-america-protests-journalists-injured.html?searchResultPosition=8
-
-**‘I Just Let Myself Go’: Igor Levit on Surviving a Satie Marathon**\
-`The pianist livestreamed “Vexations,” a solo of four lines repeated 840 times, to evoke the crisis facing artists during the coronavirus pandemic.`\
-https://nytimes.com/2020/05/31/arts/music/igor-levit-vexations.html?searchResultPosition=9
-
-**Athletes’ Outpouring on Civil Unrest Rekindles Kaepernick Debate in N.F.L.**\
-`As a range of players called for unity and understanding in response to the killing of George Floyd in Minneapolis, the debate over Colin Kaepernick and his campaign for social justice resurfaced.`\
-https://nytimes.com/2020/05/31/sports/football/colin-kaepernick-george-floyd.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/31/business/31reuters-minneapolis-police-protests-retail.html?searchResultPosition=10
 
