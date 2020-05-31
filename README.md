@@ -23,6 +23,6 @@ https://nytimes.com/reuters/2020/05/31/world/asia/31reuters-india-pakistan-diplo
 https://nytimes.com/2020/05/31/business/roland-berger-father-nazi-historian.html?searchResultPosition=9
 
 **Londoners Join in Protests Against Police Brutality**\
-`Hundreds of protesters rallied in Central London and marched to the United States Embassy in support of demonstrations across the U.S. that were set off by the death of George Floyd.`\
+`Hundreds of protesters rallied in central London and marched to the United States Embassy in support of demonstrations across the U.S. that were set off by the death of George Floyd.`\
 https://nytimes.com/video/world/europe/100000007165765/london-george-floyd-protest.html?searchResultPosition=10
 
