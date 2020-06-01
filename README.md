@@ -1,18 +1,18 @@
+**LA Has Seen Racial Uprisings, Many Not Shocked by New Round**\
+`When violent protests over the death of George Floyd, a black man pinned down by a white Minneapolis officer, reached Los Angeles, people of color expressed heartbreak but not necessarily surprise — they had seen it nearly 30 years ago during the Rodney King riots. `\
+https://nytimes.com/aponline/2020/06/01/us/ap-us-america-protests-rodney-king-flashback.html?searchResultPosition=4
+
 **Pakistan Prime Minister Defends Lifting Lockdown, Urges Nation to 'Live With the Virus'**\
 `Pakistan's Prime Minister Imran Khan on Monday cited economic losses to justify his government's decision to lift a coronavirus lockdown despite rising infections and deaths, urging people to "live with the virus."`\
-https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-health-coronavirus-pakistan.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-health-coronavirus-pakistan.html?searchResultPosition=5
 
 **Slovakia Takes Next Steps to Ease Coronavirus Measures**\
 `Slovakia will undo more coronavirus restrictions from Wednesday, including opening indoor sports centres and pools, as the country with one of the world's lowest death rates from the outbreak moves ahead with reopening.`\
-https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-slovakia.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-slovakia.html?searchResultPosition=6
 
 **‘Our Nation Is Falling Apart’**\
 `A reader cites the many miseries facing the U.S. and laments the president’s “utter failure to provide the requisite leadership.”`\
-https://nytimes.com/2020/06/01/opinion/letters/trump-coronavirus-unrest.html?searchResultPosition=6
-
-**America, Inflamed. Join Us for a Special Conversation About Race.**\
-`Three New York Times national correspondents who have been reporting from the front lines will provide their insights.`\
-https://nytimes.com/2020/06/01/us/george-floyd-ahmaud-arbery-race.html?searchResultPosition=7
+https://nytimes.com/2020/06/01/opinion/letters/trump-coronavirus-unrest.html?searchResultPosition=7
 
 **The Best Movies and TV Shows Coming to Netflix, Amazon and More in June**\
 `Every month, subscription streaming services add a new batch of titles to their libraries. Here are our picks for June.`\
