@@ -1,28 +1,28 @@
+**Factbox: China's Numerous Diplomatic Disputes**\
+`China is engaged in diplomatic disputes on numerous fronts, from acrimony with the United States to a backlash over its clampdown on Hong Kong, a border dispute with India and criticism over its handling of the novel coronavirus.`\
+https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-china-diplomacy-factbox.html?searchResultPosition=4
+
+**5 Things to Know Today-That Aren't About the Virus**\
+`Your daily look at nonvirus stories in the news:`\
+https://nytimes.com/aponline/2020/06/01/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=5
+
+**A Weekend of Pain and Protest**\
+`Dispatches from cities across the U.S. being rocked by protests over police brutality after the death of George Floyd.`\
+https://nytimes.com/2020/06/01/podcasts/the-daily/george-floyd-protests.html?searchResultPosition=6
+
+**Kremlin Says Putin 'Supports Dialogue' After Trump's Proposed G7 Invite**\
+`The Kremlin said on Monday it needed to see more details before responding to U.S. President Donald Trump's proposal to invite Russia to attend a Group of Seven nations summit, but that President Vladimir Putin supported dialogue on the issue. `\
+https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-g7-summit-usa-russia.html?searchResultPosition=7
+
+**As Many as 86 American Seafoods Crew Members Test Positive for Coronavirus**\
+`Eighty-six crew members in one of American Seafoods' fish processing vessels have tested positive for COVID-19, the fishing company said on Sunday.`\
+https://nytimes.com/reuters/2020/06/01/us/01reuters-health-coronavirus-american-seafoods.html?searchResultPosition=8
+
+**In Photos: The Nation Rises in a Sixth Night of Protest**\
+`George Floyd’s death continued to resonate far beyond Minneapolis, where he died. In, Boston, Philadelphia, New York, Ferguson, Mo., Portland, Ore., Los Angeles and countless other cities, demonstrations raged.`\
+https://nytimes.com/2020/06/01/us/george-floyd-protests-photos.html?searchResultPosition=9
+
 **OPEC, Russia Discuss Extending Oil Cuts for 1-2 Months: Sources**\
 `OPEC and Russia are moving closer to a compromise on extending current oil output cuts and are discussing a proposal to roll over supply curbs for one to two months, three OPEC+ sources told Reuters on Monday.`\
-https://nytimes.com/reuters/2020/06/01/world/middleeast/01reuters-oil-opec.html?searchResultPosition=4
-
-**2020 Watch: Will Tuesday Clinch the Nomination for Biden?**\
-`Presidential politics move fast. What we’re watching heading into a new week on the 2020 campaign:`\
-https://nytimes.com/aponline/2020/06/01/us/politics/ap-us-election-2020-watch-.html?searchResultPosition=5
-
-**Protests in N.Y.C.: Latest Updates**\
-`New York City descended into chaos for a fourth night  after largely peaceful demonstrations over the death of George Floyd. `\
-https://nytimes.com/2020/06/01/nyregion/protests-nyc.html?searchResultPosition=6
-
-**Saudi-Led Coalition Says Shot Down Two Drones Launched by Yemen's Houthis: Agency**\
-`The Saudi-led coalition has shot down two drones launched by Yemen's Houthi group in the direction of Saudi Arabia, the state-run Saudi Press Agency said, citing a coalition spokesman.`\
-https://nytimes.com/reuters/2020/06/01/world/middleeast/01reuters-yemen-security-saudi.html?searchResultPosition=7
-
-**Malaysia Reports 38 New Coronavirus Cases With No New Deaths**\
-`Malaysian health authorities on Monday reported 38 new coronavirus cases, bringing the cumulative total to 7,857 cases.`\
-https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-health-coronavirus-malaysia-cases.html?searchResultPosition=8
-
-**Philippines Confirms Three More Deaths From Coronavirus, 552 New Cases**\
-`The Philippine health ministry on Monday reported three new deaths and 552 more confirmed cases of the coronavirus.`\
-https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-health-coronavirus-philippines-cases.html?searchResultPosition=9
-
-**Buffett-Backed BYD to Supply EV Batteries to Ford**\
-`Chinese electric vehicle (EV) maker BYD Co Ltd, will supply EV batteries to U.S. automaker Ford Motor Co, a document on the website of the Ministry of Industry and Information Technology showed on Monday.`\
-https://nytimes.com/reuters/2020/06/01/business/01reuters-ford-byd-electric.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/01/world/middleeast/01reuters-oil-opec.html?searchResultPosition=10
 
