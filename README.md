@@ -1,5 +1,5 @@
 **New York’s Days of Protest: What It Looked Like from the Streets**\
-`Our most striking photos from four days of protest where crowds of demonstrators stopped traffic and clashed with police.`\
+`These are our most striking photos from four days of protest where crowds of demonstrators stopped traffic and clashed with police.`\
 https://nytimes.com/2020/05/31/nyregion/nyc-protest-photos.html?searchResultPosition=4
 
 **Michael Jordan: 'Truly Pained and Plain Angry.”**\
