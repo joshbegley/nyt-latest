@@ -4,7 +4,7 @@ https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus
 
 **New Ebola Outbreak in Congo, Already Hit by Measles and Coronavirus**\
 `Five people have died in Mbandaka, a western city more than 750 miles away from another Ebola outbreak in the country. It is unclear how the disease emerged in the city during lockdown.`\
-https://nytimes.com/2020/06/01/world/africa/ebola-congo.html?searchResultPosition=5
+https://nytimes.com/2020/06/01/world/africa/ebola-outbreak-congo.html?searchResultPosition=5
 
 **U.S. Renewable Fuel Credits Climb as EPA Considers Ruling on Waiver Program**\
 `U.S. renewable fuel credits have gained by more than a third over the last month as refiners have bought the credits while the Trump administration decides the future of a program that exempts smaller refineries from blending laws, traders said.`\
