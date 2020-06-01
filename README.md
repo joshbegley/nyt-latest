@@ -1,28 +1,28 @@
+**Watch This: A Poignant Documentary or a Classic Sketch Comedy**\
+`Your TV needs may vary this week. These are the titles our critic recommends checking out.`\
+https://nytimes.com/2020/06/01/arts/television/frontline-pbs-carol-burnett.html?searchResultPosition=4
+
+**Protest Scenes Across California**\
+`Demonstrations in many California cities have taken place to protest the death of George Floyd while he was in police custody in Minneapolis.`\
+https://nytimes.com/video/us/politics/100000007168015/protest-scenes-across-california.html?searchResultPosition=5
+
+**Chinese Telecom Firms Urge FCC Not to Block U.S. Operations**\
+`Pacific Networks Corp and its wholly owned subsidiary ComNet (USA) LLC on Monday urged the Federal Communications Commission (FCC) not to shut down its U.S. operations.`\
+https://nytimes.com/reuters/2020/06/01/technology/01reuters-usa-china-telecom.html?searchResultPosition=6
+
+**Trump, Protesters, Autopsy: Your Monday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/06/01/briefing/trump-protesters-autopsy.html?searchResultPosition=7
+
+**Medical Examiner Declares George Floyd Death Homicide: Report**\
+`The Hennepin County Medical Examiner on Monday declared the death of George Floyd a homicide, saying he died of "cardiopulmonary arrest complicating law enforcement subdual restraint, and neck compression," according to a Minneapolis television station. `\
+https://nytimes.com/reuters/2020/06/01/us/01reuters-minneapolis-police-protests-examiner.html?searchResultPosition=8
+
+**2 Brooklyn Attorneys Granted Bail in NYPD Firebombing Case**\
+`Two attorneys charged with firebombing a police vehicle amid the unrest convulsing New York City were granted bail Monday over the objections of federal prosecutors who warned the pair might “return to rioting."`\
+https://nytimes.com/aponline/2020/06/01/us/ap-us-america-protests-firebombing-charges.html?searchResultPosition=9
+
 **U.S. DOJ Urges Appeals Court to End Case Against Ex-Trump Aide Flynn**\
 `The U.S. Justice Department on Monday urged an appeals court to bring an end to the criminal prosecution of former Trump national security adviser Michael Flynn, saying the judge in the case is required by law to grant the department's request for dismissal.`\
-https://nytimes.com/reuters/2020/06/01/us/politics/01reuters-trump-russia-flynn-doj.html?searchResultPosition=4
-
-**Visa Sees Recovery in U.S. Payments Volume in May**\
-`Visa Inc's total U.S. payments volume fell at a much slower pace in May from the previous month, indicating that consumer spending was picking up as the government starts to ease coronavirus-induced lockdowns.`\
-https://nytimes.com/reuters/2020/06/01/business/01reuters-health-coronavirus-visa.html?searchResultPosition=5
-
-**‘All of It Is Toxic’: Misinformation About Protests Surges Online**\
-`In the universe of false online information, George Floyd remains alive and George Soros is to blame for the protests.`\
-https://nytimes.com/2020/06/01/technology/george-floyd-misinformation-online.html?searchResultPosition=6
-
-**Argentina Extends Debt Talks Deadline Until June 12: Statement**\
-`Argentina's government said on Monday that it would extend a deadline to June 12 for talks with creditors to restructure around $65 billion in foreign debt. The deadline had been set to expire on Tuesday.`\
-https://nytimes.com/reuters/2020/06/01/world/americas/01reuters-argentina-debt-deadline.html?searchResultPosition=7
-
-**Wallace Stegner and the Conflicted Soul of the West**\
-`In his first installment of a new series on overlooked or under-read American writers, A.O. Scott, a critic at large for The New York Times, considers Wallace Stegner, the Western novelist who captured, and criticized, his region’s individualistic spirit.`\
-https://nytimes.com/2020/06/01/books/review/wallace-stegner-west-angle-of-repose-big-rock-candy-mountain-crossing-to-safety.html?searchResultPosition=8
-
-**Brands Weigh In on National Protests Over Police Brutality**\
-`As thousands of protesters take to the streets in response to police killings of black people, companies are wading into the national conversation but taking care to get their messaging right.`\
-https://nytimes.com/aponline/2020/06/01/business/bc-america-protests-brands-react.html?searchResultPosition=9
-
-**Writers who show us who we are**\
-`These essays on American authors — some well known, some unjustly forgotten, some perpetually misunderstood — aim to restore a sense of the “complex fate” of being an American. Read more about the series.`\
-https://nytimes.com/2020/06/01/books/writers-who-show-us-who-we-are.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/01/us/politics/01reuters-trump-russia-flynn-doj.html?searchResultPosition=10
 
