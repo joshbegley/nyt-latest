@@ -1,28 +1,28 @@
-**Trudeau Says Russia Won't Be Included in the G7**\
-`Canadian Prime Minister Justin Trudeau said Monday that Russia will not be included in the Group of 7 nations, disagreeing with U.S. President Donald Trump, who said he plans to invite Russia. `\
-https://nytimes.com/aponline/2020/06/01/world/europe/ap-cn-canada-russia-g7.html?searchResultPosition=4
+**Pompeo Says U.S. Considering Welcoming Hong Kong People, Entrepreneurs**\
+`The United States is considering the option of welcoming people from Hong Kong, U.S. Secretary of State Mike Pompeo said in remarks released on Monday, in response to China's push to impose national security legislation in the former British colony.`\
+https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-hongkong-protests-usa-pompeo.html?searchResultPosition=4
 
-**Supreme Court Upholds Federal Response to Puerto Rico Debt**\
-`The case concerned the constitutionality of appointments to a government board charged with restructuring billion of dollars of debt.`\
-https://nytimes.com/2020/06/01/us/supreme-court-puerto-rico-debt.html?searchResultPosition=5
+**Bolsonaro Tries to Rein in Backers as Protests Shake Brazil**\
+`Brazil's President Jair Bolsonaro told his supporters on Monday they should put off their protests against the country's Supreme Court next weekend after counter-demonstrations triggered violent clashes on Sunday.`\
+https://nytimes.com/reuters/2020/06/01/world/americas/01reuters-brazil-politics.html?searchResultPosition=5
 
-**What You Need to Know Today About the Virus Outbreak**\
-`Protests across the country the past six days over the death of George Floyd have eclipsed issues over the coronavirus pandemic that have dominated much of the past three months.`\
-https://nytimes.com/aponline/2020/06/01/us/ap-us-virus-outbreak-whats-happening.html?searchResultPosition=6
+**Bird Strike Might Have Caused Snowbird Aerobatic Plane Crash**\
+`Canada's Air Force said Monday it’s focusing on a bird strike as the likely reason a Snowbird aerobatic plane crashed in British Columbia last month.`\
+https://nytimes.com/aponline/2020/06/01/world/ap-cn-canada-air-force-crash.html?searchResultPosition=6
 
-**Gay Couples Can Teach Straight People a Thing or Two About Arguing**\
-`Same-sex couples, on average, resolve conflict more constructively than different-sex couples, and with less animosity, studies have shown.`\
-https://nytimes.com/2020/06/01/parenting/relationship-advice-gay-straight.html?searchResultPosition=7
+**Oil Rescues Big Banks' Commodities Profits as Gold Income Tumbles**\
+`The world's 12 biggest investment banks cashed in on commodity price volatility caused by the coronavirus in the first quarter, with big increases in income from oil offsetting a tumble in precious metals, consultancy Coalition said.`\
+https://nytimes.com/reuters/2020/06/01/business/01reuters-banks-commodities-revenue.html?searchResultPosition=7
 
-**Eastern Libyan Forces Say They Retook Town, Relieving Pressure on Stronghold**\
-`Eastern Libyan forces said on Monday they had taken back the small town of al-Asaba south of Tripoli, relieving pressure on their stronghold at Tarhouna after weeks of territorial losses to forces of the internationally recognised government. `\
-https://nytimes.com/reuters/2020/06/01/world/africa/01reuters-libya-security.html?searchResultPosition=8
+**Police Union Discloses Arrest of de Blasio’s Daughter in Privacy Breach**\
+`The Sergeants Benevolent Association posted a police report on the arrest of Chiara de Blasio during a protest on Saturday night.`\
+https://nytimes.com/2020/06/01/nyregion/chiara-de-blasio-arrest.html?searchResultPosition=8
 
-**Facebook Employees Stage Virtual Walkout to Protest Trump Posts**\
-`While Twitter started labeling some of the president’s inflammatory posts, Facebook’s chief executive, Mark Zuckerberg, has said his company should leave them alone.`\
-https://nytimes.com/2020/06/01/technology/facebook-employee-protest-trump.html?searchResultPosition=9
+**Nationals Players Pledge Compensation for Team's Minor Leaguers**\
+`Facing additional paycuts, players in the Washington Nationals' farm system are set to receive an unexpected boost.`\
+https://nytimes.com/reuters/2020/06/01/sports/baseball/01reuters-baseball-mlb-was-minorleague-pay.html?searchResultPosition=9
 
-**Businesses Ramp Up Operations as Nations Prep for Tourists**\
-`BELT-LOOSENING:`\
-https://nytimes.com/aponline/2020/06/01/business/ap-virus-outbreak-business-fallout.html?searchResultPosition=10
+**The Hardest Part of Having a Nonbinary Kid Is Other People**\
+`A mother recounts the pushback she received from her own family in raising a gender-nonconforming child.`\
+https://nytimes.com/2020/06/01/parenting/non-binary-children-support.html?searchResultPosition=10
 
