@@ -1,28 +1,28 @@
+**Rich World's Jobs Crisis Jolts Money Flows to Millions**\
+`Carlos Sosa, a Salvadoran waiter in New York, used to send up to $500 a month back home to his mother to help pay for her medical bills and food. But now, after the coronavirus hit and he lost his job in early March, Sosa has burned through his savings and the wire transfers have stopped.`\
+https://nytimes.com/reuters/2020/06/01/business/01reuters-health-coronavirus-remittances-insight.html?searchResultPosition=4
+
+**Zimbabwean Film Industry Makes Netflix Debut With 'Cook Off'**\
+`Zimbabwean film Cook Off, a romance about a struggling single mother who finds love during a cooking competition, premiered on  Netflix on Monday, a debut that its makers hope will propel the country's small film sector to global audiences.`\
+https://nytimes.com/reuters/2020/06/01/arts/01reuters-zimbabwe-film-netflix.html?searchResultPosition=5
+
+**'Lemon' or Not, Trump Is Stuck With Phase 1 China Trade Deal**\
+`U.`\
+https://nytimes.com/reuters/2020/06/01/business/01reuters-usa-trade-china-analysis.html?searchResultPosition=6
+
+**U.S. Judge Weighing Fight Over Trump Ex-Adviser Flynn to Respond on Case**\
+`The U.S. judge weighing whether to drop a criminal case against President Donald Trump's former adviser Michael Flynn faces a Monday deadline to respond to the Justice Department's bombshell request to drop a charge to which Flynn has pleaded guilty.`\
+https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-usa-trump-flynn.html?searchResultPosition=7
+
 **Factbox: China's Numerous Diplomatic Disputes**\
 `China is engaged in diplomatic disputes on numerous fronts, from acrimony with the United States to a backlash over its clampdown on Hong Kong, a border dispute with India and criticism over its handling of the novel coronavirus.`\
-https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-china-diplomacy-factbox.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-china-diplomacy-factbox.html?searchResultPosition=8
 
 **5 Things to Know Today-That Aren't About the Virus**\
 `Your daily look at nonvirus stories in the news:`\
-https://nytimes.com/aponline/2020/06/01/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/01/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=9
 
 **A Weekend of Pain and Protest**\
 `Dispatches from cities across the U.S. being rocked by protests over police brutality after the death of George Floyd.`\
-https://nytimes.com/2020/06/01/podcasts/the-daily/george-floyd-protests.html?searchResultPosition=6
-
-**Kremlin Says Putin 'Supports Dialogue' After Trump's Proposed G7 Invite**\
-`The Kremlin said on Monday it needed to see more details before responding to U.S. President Donald Trump's proposal to invite Russia to attend a Group of Seven nations summit, but that President Vladimir Putin supported dialogue on the issue. `\
-https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-g7-summit-usa-russia.html?searchResultPosition=7
-
-**As Many as 86 American Seafoods Crew Members Test Positive for Coronavirus**\
-`Eighty-six crew members in one of American Seafoods' fish processing vessels have tested positive for COVID-19, the fishing company said on Sunday.`\
-https://nytimes.com/reuters/2020/06/01/us/01reuters-health-coronavirus-american-seafoods.html?searchResultPosition=8
-
-**In Photos: The Nation Rises in a Sixth Night of Protest**\
-`George Floyd’s death continued to resonate far beyond Minneapolis, where he died. In, Boston, Philadelphia, New York, Ferguson, Mo., Portland, Ore., Los Angeles and countless other cities, demonstrations raged.`\
-https://nytimes.com/2020/06/01/us/george-floyd-protests-photos.html?searchResultPosition=9
-
-**OPEC, Russia Discuss Extending Oil Cuts for 1-2 Months: Sources**\
-`OPEC and Russia are moving closer to a compromise on extending current oil output cuts and are discussing a proposal to roll over supply curbs for one to two months, three OPEC+ sources told Reuters on Monday.`\
-https://nytimes.com/reuters/2020/06/01/world/middleeast/01reuters-oil-opec.html?searchResultPosition=10
+https://nytimes.com/2020/06/01/podcasts/the-daily/george-floyd-protests.html?searchResultPosition=10
 
