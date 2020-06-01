@@ -1,28 +1,28 @@
+**In Cities Battered by Protest, the Cleaning Crews Come Out**\
+`Many protesters have volunteered to clean up after looting and vandalism, in the hope that the movement will not be defined by destruction.`\
+https://nytimes.com/2020/06/01/us/george-floyd-protests-cleanup.html?searchResultPosition=4
+
+**Private Autopsy of George Floyd Reveals Death Was Caused by Asphyxia**\
+`The legal team representing George Floyd’s family announced the findings from an independent autopsy, saying he died of asphyxia and loss of blood flow.`\
+https://nytimes.com/video/us/100000007168253/private-autopsy-of-george-floyd-reveals-death-was-caused-by-asphyxia.html?searchResultPosition=5
+
+**Trump Vowed to Disrupt Washington. Now He Faces Disruption in the Streets.**\
+`Washington’s elite has long bemoaned the “shattered norms” of the Trump presidency. But it has felt beside the point — like privilege talking — in the angry crowds of the last few nights.`\
+https://nytimes.com/2020/06/01/us/politics/trump-washington-protests-riots.html?searchResultPosition=6
+
+**U.S. Ruling Could Mean a Flood of New Claims Against Volkswagen**\
+`Judges on Monday cleared the way for counties to pursue the automaker, which already faces more than $20 billion in federal penalties for cheating on pollution tests, under local laws.`\
+https://nytimes.com/2020/06/01/climate/volkswagen.html?searchResultPosition=7
+
+**Twitter Places Warning on Congressman’s Tweet for Glorifying Violence**\
+`The post, from Representative Matt Gaetz, a Florida Republican, had likened protesters to terrorists and called for them to be hunted down.`\
+https://nytimes.com/2020/06/01/technology/twitter-matt-gaetz-warning.html?searchResultPosition=8
+
 **Trump Administration Shelves More Oil and Gas Lease Sales**\
 `The Trump administration has backed off its regular oil and gas lease sale schedule, postponing at least two auctions that had been set for later this month after delaying a major sale in New Mexico in May, according to an official web site.`\
-https://nytimes.com/reuters/2020/06/01/us/01reuters-usa-drilling-lease-sale.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/01/us/01reuters-usa-drilling-lease-sale.html?searchResultPosition=9
 
 **South Korea May Consumer Prices Fall for First Time in Eight Months**\
 `South Korea's annual inflation rate in May fell below zero for the first time since September 2019, data showed on Tuesday, as the coronvirus pandemic continued to weigh on domestic demand and oil prices plunged.`\
-https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-southkorea-economy-inflation.html?searchResultPosition=5
-
-**Boeing Takes Embraer to Arbitration Over Failed Aviation Deal**\
-`Boeing Co has taken former partner Embraer SA to arbitration over a failed $4.2 billion deal, the Brazilian planemaker said in a securities filing on Monday night. `\
-https://nytimes.com/reuters/2020/06/01/business/01reuters-embraer-m-a-boeing.html?searchResultPosition=6
-
-**Tear Gas Fired on Protesters Near White House as Trump Speaks**\
-`Largely peaceful protesters near the White House were repelled with tear gas and mounted police on Monday as President Donald Trump spoke in the Rose Garden, live televised images showed.`\
-https://nytimes.com/reuters/2020/06/01/us/01reuters-minneapolis-police-trump-protesters.html?searchResultPosition=7
-
-**U.S. Hikes National Guard to Address D.C. Unrest, Readies Active Duty Troops**\
-`The U.S. military is boosting the number of National Guard forces deploying to Washington, D.C., and, in an extraordinary move, has readied active-duty troops to potentially respond to protests over the death of an African-American man in police custody, a senior defense official said on Monday.`\
-https://nytimes.com/reuters/2020/06/01/us/01reuters-minneapolis-police-pentagon.html?searchResultPosition=8
-
-**Frequent Testing, Less Contact Recommended to Get Hollywood Cameras Rolling Again**\
-`Hollywood studios and labor unions on Monday proposed extensive coronavirus testing and other safeguards to allow actors and crew members to resume movie and TV show production in the United States.`\
-https://nytimes.com/reuters/2020/06/01/arts/01reuters-health-coronavirus-hollywood.html?searchResultPosition=9
-
-**Brazil Registers 11,598 Additional Cases of Coronavirus, 623 New Deaths on Monday**\
-`Brazil registered 11,598 new confirmed cases of the novel coronavirus and 623 additional deaths in the last 24 hours, the nation's Health Ministry said on Monday evening.`\
-https://nytimes.com/reuters/2020/06/01/world/americas/01reuters-health-coronavirus-brazil.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-southkorea-economy-inflation.html?searchResultPosition=10
 
