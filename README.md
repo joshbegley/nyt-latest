@@ -1,28 +1,28 @@
+**Oat Milk Powers This Ice Cream**\
+`A new offering from Planet Oat Frozen Desserts is silky smooth and comes in six flavors.`\
+https://nytimes.com/2020/06/01/dining/planet-oat-frozen-desserts.html?searchResultPosition=4
+
+**Ryanair Must Face U.S. Shareholder Lawsuit Over Unionization Comments**\
+`Ryanair Holdings Plc and Chief Executive Michael O'Leary failed to persuade a U.S. judge to dismiss a securities fraud lawsuit accusing Europe's largest budget airline of defrauding them by downplaying its willingness to recognize labor unions.`\
+https://nytimes.com/reuters/2020/06/01/business/01reuters-ryanair-lawsuit.html?searchResultPosition=5
+
+**Taliban, Al Qaeda Retain Ties Despite U.S.-Taliban Deal, U.N. Monitors Say**\
+`Ties between the Taliban, especially its Haqqani Network branch, and al Qaeda remain close, independent U.N. sanctions monitors said in a report made public on Monday, despite a U.S.-Taliban pact Washington hoped would sever them.`\
+https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-usa-afghanistan-un-taliban.html?searchResultPosition=6
+
+**Protesters Invoke Different Names to Decry Police Treatment**\
+`In Baltimore, protesters shouted the name of Freddie Gray. In Topeka, Kansas, T-shirts were emblazoned with the name of Dominique White. In Tulsa, Oklahoma, people gathered in a spot where white mobs killed hundreds of blacks a century ago  and chanted the name of Terence Crutcher. `\
+https://nytimes.com/aponline/2020/06/01/us/ap-us-america-protests-the-names.html?searchResultPosition=7
+
+**Trump Comments Raise Governor's Ire Ahead of Visit to Maine**\
+`Democratic Gov. Janet Mills urged Republican President Donald Trump to “check the rhetoric at the door" when he pays a visit Friday to a manufacturer of specialized swabs used in testing for the coronavirus.`\
+https://nytimes.com/aponline/2020/06/01/us/ap-us-trump-maine-1st-ld-writethru.html?searchResultPosition=8
+
+**New Regulator Warns Health Measures, Like Masks, May Hurt Banks**\
+`Brian P. Brooks, the acting head of the Office of the Comptroller of the Currency, warned state and local leaders that requiring face masks could help bank robbers.`\
+https://nytimes.com/2020/06/01/business/coronavirus-banks-masks.html?searchResultPosition=9
+
 **Add a Restaurant-Size Salami to Your Table**\
 `Charlito’s Cocina is selling its trufa seca, a 1.5-pound black truffle salami, to the public.`\
-https://nytimes.com/2020/06/01/dining/charlitos-cocina-black-truffle-salami.html?searchResultPosition=4
-
-**A Coffee Club Fund-Raises With Special Blends**\
-`Trade is raising money for its roasters’ communities with Come Together Coffee.`\
-https://nytimes.com/2020/06/01/dining/trade-come-together-coffee.html?searchResultPosition=5
-
-**Judge Asks Court Not to ‘Short Circuit’ His Review of Flynn Case**\
-`A lawyer for the trial judge told an appeals court why he wanted to examine the Justice Department’s “unusual” request to dismiss the charge.`\
-https://nytimes.com/2020/06/01/us/politics/emmet-sullivan-michael-flynn-appeals-court.html?searchResultPosition=6
-
-**An Oval Office Speech? Trump's Advisers Torn Over How to Address Protests**\
-`The last time U.S. President Donald Trump addressed the nation from the Oval Office, with a March 11 speech on fighting the coronavirus, the former reality TV star was panned, even by his own aides.`\
-https://nytimes.com/reuters/2020/06/01/us/politics/01reuters-minneapolis-police-trump-address.html?searchResultPosition=7
-
-**Spice Grinder, Batteries Not Included**\
-`FinaMill grinds spices from coarse to fine, with removable pods that allow for quick swaps.`\
-https://nytimes.com/2020/06/01/dining/finamill-spice-grinder.html?searchResultPosition=8
-
-**Peaceful Protesters Get Lost in Action-Packed Coverage**\
-`The nation's unrest has made for an unprecedented nightly action show on television, with control rooms that switch quickly between cars ablaze, police officers advancing on demonstrators and ransacked stores in cities across the country.`\
-https://nytimes.com/aponline/2020/06/01/us/ap-us-america-protests-media.html?searchResultPosition=9
-
-**Watch This: A Poignant Documentary or a Classic Sketch Comedy**\
-`Your TV needs may vary this week. These are the titles our critic recommends checking out.`\
-https://nytimes.com/2020/06/01/arts/television/frontline-pbs-carol-burnett.html?searchResultPosition=10
+https://nytimes.com/2020/06/01/dining/charlitos-cocina-black-truffle-salami.html?searchResultPosition=10
 
