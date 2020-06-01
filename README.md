@@ -1,28 +1,28 @@
+**Italian Soccer Considers Allowing Fans Into Stadiums in July**\
+`Italian soccer is considering allowing fans into stadiums next month.`\
+https://nytimes.com/aponline/2020/06/01/sports/soccer/ap-soc-italy-restart.html?searchResultPosition=4
+
+**Trump Cutting U.S. Ties With World Health Organization Over Virus**\
+`The United States will end its relationship with the World Health Organization over the body's handling of the coronavirus pandemic, U.S. President Donald Trump said on Friday, accusing the U.N. agency of becoming a puppet of China. `\
+https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-health-coronavirus-trump-who.html?searchResultPosition=5
+
+**No Surprise: UK Records Sunniest Month on Record in May**\
+`Britain's meteorological service has confirmed what most people cooped up at home during the coronavirus lockdown may have guessed — May was the sunniest month on record.`\
+https://nytimes.com/aponline/2020/06/01/world/europe/ap-eu-britain-weather.html?searchResultPosition=6
+
+**Florida Keys Reopen to Visitors as Miami-Area Beaches Closed**\
+`The Florida Keys reopened for visitors Monday after the tourist-dependent island chain was closed for more than two months to prevent the spread of the coronavirus. `\
+https://nytimes.com/aponline/2020/06/01/us/ap-us-virus-outbreak-florida.html?searchResultPosition=7
+
 **Black Businesses Hit Hard by COVID-19 Fight to Stay Afloat**\
 `Stephanie Byrd agonized over temporarily laying off nearly the entire staff at her family’s trio of Detroit businesses when the coronavirus pandemic hit. `\
-https://nytimes.com/aponline/2020/06/01/business/bc-virus-outbreak-black-businesses.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/01/business/bc-virus-outbreak-black-businesses.html?searchResultPosition=8
+
+**Spain Reports No New COVID-19 Deaths, 71 New Cases**\
+`Spain's Health Ministry reported no new deaths from the new coronavirus on Monday, with the total death toll unchanged from Sunday at 27,127, the health ministry said.`\
+https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-spain-tally.html?searchResultPosition=9
 
 **Trump Backpedals After 'Shooting' Threat to Minneapolis Protesters**\
 `U.S. President Donald Trump on Friday tried to walk back a Twitter threat to respond with deadly force to three days of violent protests in Minneapolis over the police killing of an unarmed black man.`\
-https://nytimes.com/reuters/2020/06/01/technology/01reuters-twitter-trump-minneapolis.html?searchResultPosition=5
-
-**Congo Now Faces 2nd Ebola Outbreak in Northern Province**\
-`Health officials have confirmed a second Ebola outbreak in Congo, the head of the World Health Organization said Monday, adding yet another health crisis for a country already battling COVID-19 and the world's largest measles outbreak.`\
-https://nytimes.com/aponline/2020/06/01/world/africa/ap-af-congo-ebola.html?searchResultPosition=6
-
-**Swedish PM to Appoint Coronavirus Inquiry Before Summer Amid Criticism**\
-`Sweden will launch an inquiry into the country's handling of the pandemic before the summer, Prime Minister Stefan Lofven said in a newspaper interview on Monday, amid growing criticism over nursing home deaths and the lack of testing.`\
-https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-sweden-commission.html?searchResultPosition=7
-
-**Virtual No More-Real Michelangelo Awes Again in Vatican Museums**\
-`If you've ever dreamed of being in the Sistine Chapel without feeling like you are craning your neck in a packed open-top tourist bus, now is your chance.`\
-https://nytimes.com/reuters/2020/06/01/arts/01reuters-health-coronavirus-vatican-museums.html?searchResultPosition=8
-
-**How a Minnesota Bail Fund Raised $20 Million**\
-`After the killing of George Floyd, a small Minneapolis fund that is paying bail for protesters saw a huge influx of donations.`\
-https://nytimes.com/2020/06/01/style/minnesota-freedom-fund-bail-george-floyd-protests.html?searchResultPosition=9
-
-**Judge Tosses Ex-Basketball Players' 'Fortnite' Dance Lawsuit**\
-`A federal judge has dismissed a lawsuit in which two former University of Maryland men’s basketball players accused makers of the “Fortnite” video game of misappropriating a dance move that the ex-teammates popularized.`\
-https://nytimes.com/aponline/2020/06/01/business/ap-us-fortnite-dance-lawsuit.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/01/technology/01reuters-twitter-trump-minneapolis.html?searchResultPosition=10
 
