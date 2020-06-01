@@ -1,28 +1,28 @@
+**U.S. Supreme Court Upholds Puerto Rico Financial Oversight Board Appointments**\
+`The U.S. Supreme Court on Monday upheld appointments to Puerto Rico's federally created financial oversight board that had been challenged by creditors in a ruling that avoids disruption to the panel's restructuring of about $120 billion of the bankrupt U.S. territory's debt.`\
+https://nytimes.com/reuters/2020/06/01/us/01reuters-court-puertorico.html?searchResultPosition=4
+
+**Military: 2 Dead After Shooting at North Dakota Air Base**\
+`A shooting early Monday has left two airmen dead at the Grand Forks Air Force Base in North Dakota, the military said.`\
+https://nytimes.com/aponline/2020/06/01/us/ap-us-military-base-shooting.html?searchResultPosition=5
+
+**Cambodian Leader Denies China's Navy Granted Basing Rights**\
+`Cambodia’s leader declared Monday that China has not been given exclusive rights to use a naval base on the country’s southern coast, and that warships from all nations, including the United States, are welcome to dock there.`\
+https://nytimes.com/aponline/2020/06/01/world/asia/ap-as-cambodia-china-naval-base.html?searchResultPosition=6
+
+**Pfizer Declines About 8% After Setback to Breast Cancer Treatment**\
+`Shares of Pfizer Inc fell nearly 8% on Monday after an independent data monitoring committee determined the drugmaker's breast cancer treatment was unlikely to meet the main goal of a late-stage study. `\
+https://nytimes.com/reuters/2020/06/01/business/01reuters-pfizer-stocks.html?searchResultPosition=7
+
+**Bulgaria Expects to Finish Russian Gas Pipeline on Time**\
+`Bulgaria says it aims to build on time its stretch of a pipeline that will bring Russian gas to Europe, despite unforeseen delays due to the COVID pandemic.`\
+https://nytimes.com/aponline/2020/06/01/business/ap-eu-bulgaria-russia-gas.html?searchResultPosition=8
+
 **Biden to Meet With Community Leaders in Delaware Amid U.S. Police-Brutality Protests**\
 `Democratic presidential candidate Joe Biden was scheduled on Monday to meet with community leaders in Wilmington, Delaware, the day after visiting a nearby site where protests against police brutality forced businesses to board up their windows.`\
-https://nytimes.com/reuters/2020/06/01/us/politics/01reuters-usa-election-biden.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/01/us/politics/01reuters-usa-election-biden.html?searchResultPosition=9
 
 **Wildlife Groups Up Pressure on Big Pharma to Curb Crab Blood Addiction**\
 `Wildlife advocates are pushing drugmakers to curb their use of horseshoe crab blood by switching to a synthetic alternative for safety tests, including those needed before a COVID-19 vaccine can be used for humans.`\
-https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-pharmaceuticals-crab-blood.html?searchResultPosition=5
-
-**Construction Spending Falls Less Than Expected**\
-`U.S. construction spending fell less than expected in April even as other sectors of the economy buckle under the COVID-19 crisis.`\
-https://nytimes.com/reuters/2020/06/01/business/01reuters-usa-economy-construction.html?searchResultPosition=6
-
-**Supreme Court Upholds Puerto Rico Financial Oversight Board**\
-`The Supreme Court on Monday upheld the oversight board established by Congress to help Puerto Rico out of a devastating financial crisis that has been exacerbated by the coronavirus outbreak, recent earthquakes and damage from Hurricane Maria in 2017.`\
-https://nytimes.com/aponline/2020/06/01/us/politics/ap-us-supreme-court-puerto-rico.html?searchResultPosition=7
-
-**Survey: US Factories Sink in May for Third Straight Month**\
-`American factories contracted for the third straight month in May as they continued to sustain economic damage from the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/06/01/business/bc-us-economy-manufacturing.html?searchResultPosition=8
-
-**Supreme Court Declines to Take Bernard Madoff Trustee Case**\
-`The Supreme Court is leaving in place a ruling that allows the trustee recovering money for investors in the Bernard Madoff Ponzi scheme to pursue more than $4 billion that went to overseas investors.`\
-https://nytimes.com/aponline/2020/06/01/business/bc-us-supreme-court-bernard-madoff.html?searchResultPosition=9
-
-**Greek Hotels Reopen to an Uncertain Future**\
-`Greece allowed year-round hotels to open on Monday, restarting its vital tourism sector hobbled by weeks of lockdown, although business remained quiet with international flights from its main airports only set to resume from June 15.`\
-https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-greece-hotels.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-pharmaceuticals-crab-blood.html?searchResultPosition=10
 
