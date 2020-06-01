@@ -1,4 +1,4 @@
-**Opinion Today: When the Protesters Carried Guns**\
+**When the Protesters Carried Guns**\
 `What if the protesters in Minneapolis had adopted the tactics of the anti-lockdown agitators?`\
 https://nytimes.com/2020/06/01/opinion/protests-george-floyd-anti-lockdown.html?searchResultPosition=4
 
