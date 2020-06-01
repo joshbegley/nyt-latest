@@ -1,28 +1,28 @@
-**Joel Revzen, Conductor and Music Festival Leader, Dies at 74**\
-`Mr. Revzen, who had the coronavirus, held posts with regional companies and was on the staff of the Metropolitan Opera.`\
-https://nytimes.com/2020/06/01/obituaries/joel-revzen-dead-coronavirus.html?searchResultPosition=4
+**Volkswagen Says Ready to Restart Mexico Operations on June 15**\
+`The Mexican unit of Germany's Volkswagen AG said on Monday the automaker was ready to restart operations in the states of Puebla and Guanajuato on June 15 after activity was idled in late March due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/01/business/01reuters-volkswagen-mexico.html?searchResultPosition=4
 
-**Gunmen Attack Refugee Camp in Niger, Cut Off Water Supply**\
-`Dozens of armed men on motorcycles have attacked a town in western Niger that has been hosting 35,000 displaced people, killing three and cutting off the community's water supply, the U.N. refugee agency said Monday.`\
-https://nytimes.com/aponline/2020/06/01/world/africa/ap-af-niger-refugees-attacked.html?searchResultPosition=5
+**Long Lines, Confusion as Venezuela Sells Iranian Fuel Under New Price System**\
+`Venezuela on Monday launched a fuel pricing system that largely rolls back decades of heavy subsidies, creating long lines and leaving drivers confused as the government seeks to end chronic shortages with gasoline imports from Iran.`\
+https://nytimes.com/reuters/2020/06/01/world/americas/01reuters-venezuela-gasoline.html?searchResultPosition=5
 
-**LA Has Seen Racial Uprisings, Many Not Shocked by New Round**\
-`When violent protests over the death of George Floyd, a black man pinned down by a white Minneapolis officer, reached Los Angeles, people of color expressed heartbreak but not necessarily surprise — they had seen it nearly 30 years ago during the Rodney King riots. `\
-https://nytimes.com/aponline/2020/06/01/us/ap-us-america-protests-rodney-king-flashback.html?searchResultPosition=6
+**Hedge Fund Angelo Gordon Raising $1.5 Billion for Distressed Energy Debt: Sources**\
+`Hedge fund Angelo Gordon & Co aims to raise as much as $1.5 billion to buy the debt of distressed oil and gas companies, according to a person familiar with the matter and an investor presentation viewed by Reuters.`\
+https://nytimes.com/reuters/2020/06/01/business/01reuters-hedgefunds-angelo-gordon.html?searchResultPosition=6
 
-**Pakistan Prime Minister Defends Lifting Lockdown, Urges Nation to 'Live With the Virus'**\
-`Pakistan's Prime Minister Imran Khan on Monday cited economic losses to justify his government's decision to lift a coronavirus lockdown despite rising infections and deaths, urging people to "live with the virus."`\
-https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-health-coronavirus-pakistan.html?searchResultPosition=7
+**Nestle to Appeal Ban on 'Incredible Burger' Branding in Europe**\
+`Nestle said on Monday it would appeal a Dutch court's ruling that prohibits the Swiss food giant from selling its plant-based burgers in Europe under the "Incredible Burger" name after a challenge from U.S.-based Impossible Foods.`\
+https://nytimes.com/reuters/2020/06/01/business/01reuters-nestle-burger-marketing.html?searchResultPosition=7
 
-**Slovakia Takes Next Steps to Ease Coronavirus Measures**\
-`Slovakia will undo more coronavirus restrictions from Wednesday, including opening indoor sports centres and pools, as the country with one of the world's lowest death rates from the outbreak moves ahead with reopening.`\
-https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-slovakia.html?searchResultPosition=8
+**UK Puts Forward Its Own 'Emissions Trading System' to Replace EU's**\
+`The United Kingdom has put forward its own new UK-wide Emissions Trading System (ETS) to replace the European Union's system for trading carbon emissions, which Britain will leave at the end of this year as the Brexit transition period ends.`\
+https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-britain-eu-emissions.html?searchResultPosition=8
 
-**‘Our Nation Is Falling Apart’**\
-`A reader cites the many miseries facing the U.S. and laments the president’s “utter failure to provide the requisite leadership.”`\
-https://nytimes.com/2020/06/01/opinion/letters/trump-coronavirus-unrest.html?searchResultPosition=9
+**Police Target Journalists as Trump Blames ‘Lamestream Media’ for Protests**\
+`‘I’ve really never seen anything like this’: Reporters and news photographers describe being roughed up, arrested and shot by projectiles while covering demonstrations across the country.`\
+https://nytimes.com/2020/06/01/business/media/reporters-protests-george-floyd.html?searchResultPosition=9
 
-**The Best Movies and TV Shows Coming to Netflix, Amazon and More in June**\
-`Every month, subscription streaming services add a new batch of titles to their libraries. Here are our picks for June.`\
-https://nytimes.com/2020/06/01/arts/television/june-netflix.html?searchResultPosition=10
+**U.S. Health Experts, Officials Warn Protests May Add to Virus Spread**\
+`Public health experts and government officials, including New York's governor, are warning that large street protests over racial inequities and excessive police force could worsen the spread of the novel coronavirus.`\
+https://nytimes.com/reuters/2020/06/01/us/01reuters-minneapolis-police-protests-coronavirus.html?searchResultPosition=10
 
