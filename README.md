@@ -1,28 +1,28 @@
+**Argentine Debt Offer Gets IMF Endorsement as Restructuring Deadline Looms**\
+`Argentina received the IMF's backing as it hit crunch time in debt restructuring talks on Monday, ahead of a deadline that may be postponed as investors try to squeeze more money out of an economy that was shrinking even before the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/01/world/americas/01reuters-argentina-debt.html?searchResultPosition=4
+
+**Khalilzad Sounds Upbeat Note on Chances for Intra-Afghan Peace Talks**\
+`Recent prisoner releases and a relatively low level of violence may bode well for the start of peace talks between the Afghan government and the Taliban, U.S. Special Representative for Afghanistan Reconciliation Zalmay Khalilzad said on Monday.`\
+https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-usa-afghanistan-khalilzad.html?searchResultPosition=5
+
+**Bird Strike May Have Caused Deadly Canadian Snowbirds Jet Crash, Ministry Says**\
+`A preliminary investigation into the crash of a Canadian Snowbirds aerobatics team jet that killed one crew member and seriously injured another may have been caused by a bird strike, Canada's defense ministry said on Monday. `\
+https://nytimes.com/reuters/2020/06/01/world/americas/01reuters-canada-crash.html?searchResultPosition=6
+
+**Michigan Governor Largely Rescinds Lockdown, Retailers to Reopen**\
+`Michigan Governor Gretchen Whitmer on Monday moved to further reopen the Midwest state's economy, largely rescinding a stay-at- home order in place since March and allowing retailers and restaurants to open back up over the next week.`\
+https://nytimes.com/reuters/2020/06/01/us/01reuters-health-coronavirus-usa-michigan.html?searchResultPosition=7
+
+**Brazil Posts May Trade Surplus of $4.5 Billion: Economy Ministry**\
+`Brazil posted a trade surplus of $4.5 billion in May, official data showed on Monday, slightly less than the median consensus forecast in a Reuters poll of economists of a $4.7 billion surplus and down 11.1% from the same month last year.`\
+https://nytimes.com/reuters/2020/06/01/world/americas/01reuters-brazil-economy-trade.html?searchResultPosition=8
+
+**U.S. EPA Moves to Curb State Powers to Deny Permits for Energy Projects**\
+`U.`\
+https://nytimes.com/reuters/2020/06/01/us/01reuters-usa-epa-water-energy.html?searchResultPosition=9
+
 **With Pompeo Out, GOP Looks to Rep. Marshall in Kansas Race**\
 `The passing of Monday's deadline to file to run for Kansas' open Senate seat confirmed that U.S. Secretary of State Mike Pompeo won't be a candidate, and a major anti-abortion group threw its support behind Rep. Roger Marshall to keep immigration hardliner Kris Kobach from the GOP nomination.`\
-https://nytimes.com/aponline/2020/06/01/us/politics/ap-us-election-2020-senate-kansas.html?searchResultPosition=4
-
-**Spike Lee on What's Different About These Protests**\
-`It's not the first time that Spike Lee's “Do the Right Thing” has been freshly urgent, but Lee's 1989 film has again found blistering relevance in the wake of George Floyd's death.`\
-https://nytimes.com/aponline/2020/06/01/us/ap-us-america-protests-spike-lee.html?searchResultPosition=5
-
-**Netanyahu’s Annexation Plans Meet Surprise Opponent: Israeli Settlers**\
-`Prime Minister Benjamin Netanyahu has promised to annex much of the occupied West Bank. But now that he can, there are questions about whether he will.`\
-https://nytimes.com/2020/06/01/world/middleeast/israel-annex-netanyahu-westbank.html?searchResultPosition=6
-
-**Kremlin: Trump Tells Putin About Idea for Summit With Russia**\
-`U.S. President Donald Trump called Russian President Vladimir Putin Monday to tell him about his proposal to convene an international summit that would involve Russia, the Kremlin said.`\
-https://nytimes.com/aponline/2020/06/01/world/europe/ap-eu-russia-us.html?searchResultPosition=7
-
-**Lithuania Sings Its Thanks for Quick Virus Containment**\
-`Lithuania celebrated its emergence from the coronavirus pandemic on Monday with a series of live musical performances across the country.`\
-https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-lithuania-concert.html?searchResultPosition=8
-
-**Gunna Extends Hip-Hop’s Dominance on the Billboard Album Chart**\
-`The rapper earned his first No. 1 with “Wunna,” and now all eyes are on Lady Gaga, whose “Chromatica” is expected to take the top spot next week.`\
-https://nytimes.com/2020/06/01/arts/music/gunna-wunna-billboard.html?searchResultPosition=9
-
-**UK PM Plans Brexit Talks With EU's Von Der Leyen, Warned to Reach Deal Pre-Autumn: FT**\
-`British Prime Minister Boris Johnson is planning to hold Brexit talks with European Commission President Ursula von der Leyen in June, with UK officials warning Johnson that an agreement was needed before autumn, the Financial Times newspaper reported.`\
-https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-britain-eu-talks-plans.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/01/us/politics/ap-us-election-2020-senate-kansas.html?searchResultPosition=10
 
