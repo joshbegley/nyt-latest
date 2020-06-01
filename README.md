@@ -22,7 +22,7 @@ https://nytimes.com/video/us/100000007166359/george-floyd-protests-minneapolis.h
 `Mexico's Deputy Health Minister Hugo Lopez-Gatell said on Sunday there were 151 new coronavirus deaths and 3,152 new cases, for an accumulated total of 9,930 fatalities and 90,664 cases.`\
 https://nytimes.com/reuters/2020/05/31/world/americas/31reuters-health-coronavirus-mexico.html?searchResultPosition=9
 
-**Curtis Cooke, Hall of Fame Welterweight Champion, Dies at 82**\
-`Curtis Cokes, the Hall of Fame welterweight who became Dallas’ first world champion in 1966, has died. He was 82.`\
+**Curtis Cokes, Hall of Fame Welterweight Champion, Dies at 82**\
+`Curtis Cokes, the Hall of Fame welterweight who became Dallas’s first world champion in 1966, has died. He was 82.`\
 https://nytimes.com/aponline/2020/05/31/sports/ap-box-obit-curtis-cokes.html?searchResultPosition=10
 
