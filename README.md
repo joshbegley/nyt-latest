@@ -1,28 +1,28 @@
+**Marriott Opens All Hotels in China, Sees Steady U.S. Recovery: CEO**\
+`Marriott International has reopened all its hotels in China and is seeing a steady recovery in the United States, its biggest market, Chief Executive Officer Arne Sorenson said on Monday.`\
+https://nytimes.com/reuters/2020/06/01/business/01reuters-health-coronavirus-marriott-intnl.html?searchResultPosition=4
+
+**In-Home Antibody Test Shows Promise; Recovering Surgery Patients at Risk From Coronavirus**\
+`The following is a brief roundup of some of the latest scientific studies on the novel coronavirus and efforts to find treatments and vaccines for COVID-19, the illness caused by the virus.`\
+https://nytimes.com/reuters/2020/06/01/us/01reuters-health-coronavirus-science.html?searchResultPosition=5
+
+**French Health Ministry Says COVID-19 Cases in Hospitals Slips**\
+`The French health ministry said on Monday that people should continue taking protective measures against the coronavirus even as cases in hospitals and intensive care continue to fall.`\
+https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-france.html?searchResultPosition=6
+
+**Former Auburn Football Coach Pat Dye Dies at 80**\
+`Former Auburn coach Pat Dye, who took over a downtrodden football program in 1981 and turned it into a Southeastern Conference power, died Monday. He was 80.`\
+https://nytimes.com/aponline/2020/06/01/sports/ncaafootball/ap-fbc-obit-dye.html?searchResultPosition=7
+
+**States Need Disaster Relief, Not Bailouts**\
+`Providing a critical lifeline while the economy gets back on its feet is essential.`\
+https://nytimes.com/2020/06/01/opinion/coronavirus-relief-states.html?searchResultPosition=8
+
 **SpaceX Captures the Flag, Beating Boeing in Cosmic Contest**\
 `The first astronauts launched by SpaceX declared victory Monday in NASA’s cosmic capture-the-flag game.`\
-https://nytimes.com/aponline/2020/06/01/science/ap-us-sci-home-launch-space-station.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/01/science/ap-us-sci-home-launch-space-station.html?searchResultPosition=9
 
 **Facebook Employees Speak Out Against Company Over Trump**\
 `Facebook employees are using Twitter to register their frustration over CEO Mark Zuckerberg's decision to leave up posts by President Donald Trump that suggested protesters in Minneapolis could be shot. `\
-https://nytimes.com/aponline/2020/06/01/business/bc-us-facebook-employees-trump.html?searchResultPosition=5
-
-**How Did George Floyd Die? Here’s What We Know.**\
-`Prosecutors said there was no sign of asphyxiation after a Minneapolis police officer knelt on his neck for nearly nine minutes. The results of a private examination will be released today.`\
-https://nytimes.com/2020/06/01/us/george-floyd-autopsy-minneapolis-baden.html?searchResultPosition=6
-
-**North Carolina Pug Was Not Infected With Coronavirus, U.S.D.A. Says**\
-`A small amount of the virus was detected in a swab of saliva from Winston, a 2-year-old pug, but he was not infected, the agency said.`\
-https://nytimes.com/2020/06/01/us/coronavirus-dog-infected-winston.html?searchResultPosition=7
-
-**E.P.A. Limits States’ Power to Oppose Pipelines and Other Energy Projects**\
-`The agency tweaked the rules on how to apply the Clean Water Act, which New York and other states have used to fight fossil-fuel ventures.`\
-https://nytimes.com/2020/06/01/climate/trump-clean-water-pipelines.html?searchResultPosition=8
-
-**How ‘Phantom of the Opera’ Survived the Pandemic**\
-`The musical’s world tour, now in Seoul, weathered a cast outbreak to become perhaps the only major show running. Can theater learn from its example?`\
-https://nytimes.com/2020/06/01/theater/phantom-of-the-opera-seoul-virus.html?searchResultPosition=9
-
-**Military Service Academies Plan for Students' Return in Fall**\
-`The U.S. Naval Academy is planning to have its 4,400 midshipmen return to campus in Annapolis, Maryland, for the fall, after students completed the last semester with online learning from their homes around the nation due to the coronavirus, academy officials said Monday.`\
-https://nytimes.com/aponline/2020/06/01/us/ap-us-military-academies-fall-opening.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/01/business/bc-us-facebook-employees-trump.html?searchResultPosition=10
 
