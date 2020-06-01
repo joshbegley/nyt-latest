@@ -1,28 +1,28 @@
-**Israel’s Plan to Annex the West Bank**\
-`A former Israeli general cautions against a unilateral move. Another reader says such action is justified.`\
-https://nytimes.com/2020/06/01/opinion/letters/israel-west-bank.html?searchResultPosition=4
+**Five Artists for This Moment**\
+`These esteemed black American creators make work that responds to violence against the black body.`\
+https://nytimes.com/2020/06/01/t-magazine/black-artists.html?searchResultPosition=4
 
-**How a City Once Consumed by Civil Unrest Has Kept Protests Peaceful**\
-`Newark, New Jersey’s largest city, made no arrests and reported only minimal property damage during a large weekend march.`\
-https://nytimes.com/2020/06/01/nyregion/newark-protests-george-floyd.html?searchResultPosition=5
+**Dozens Protest at U.S. Embassy in Paris in Solidarity With George Floyd**\
+`A few dozen protesters knelt in silence and held signs in front of the U.S. embassy in Paris on Monday in solidarity with George Floyd, an African-American whose death in police custody last week has sparked unrest in the United States.`\
+https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-minneapolis-police-france-rally.html?searchResultPosition=5
 
-**Mass Extinctions Are Accelerating, Scientists Report**\
-`Five hundred species are likely to become extinct over the next two decades, according to a new study.`\
-https://nytimes.com/2020/06/01/science/mass-extinctions-are-accelerating-scientists-report.html?searchResultPosition=6
+**Hong Kong Bans Tiananmen Vigil for 1st Time, in New Challenge to Protests**\
+`Days after China moved to enact new security laws for Hong Kong, the territory’s police rejected permission for an annual vigil to honor the victims of the 1989 Tiananmen Square protests.`\
+https://nytimes.com/2020/06/01/world/asia/Hong-kong-Tiananmen-vigil-banned.html?searchResultPosition=6
 
-**Justice Is About More Than the Killing of George Floyd**\
-`Police must take collective responsibility for the failings within their ranks.`\
-https://nytimes.com/2020/06/01/opinion/george-floyd-police-protests.html?searchResultPosition=7
+**Canada's Trudeau, Opposition Leaders Vow to Fight Racism at Home**\
+`Canadian Liberal Prime Minister Justin Trudeau and his rivals in the opposition vowed on Monday to fight racism at home as violent protests continued in the United States following the death of a black man in police custody in Minneapolis last week.`\
+https://nytimes.com/reuters/2020/06/01/us/01reuters-minneapolis-police-protests-canada.html?searchResultPosition=7
 
-**Volkswagen Says Ready to Restart Mexico Operations on June 15**\
-`The Mexican unit of Germany's Volkswagen AG said on Monday the automaker was ready to restart operations in the states of Puebla and Guanajuato on June 15 after activity was idled in late March due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/06/01/business/01reuters-volkswagen-mexico.html?searchResultPosition=8
+**U.S. Senate Leader Hopes for Quick Passage of House Coronavirus Small Business Bill**\
+`U.S. Senate majority leader Mitch McConnell said on Monday he hoped the Senate would soon pass legislation already passed by the Democratic-controlled House of Representatives easing terms of the coronavirus small-business loan program.`\
+https://nytimes.com/reuters/2020/06/01/us/01reuters-health-coronavirus-usa-ppp.html?searchResultPosition=8
 
-**Long Lines, Confusion as Venezuela Sells Iranian Fuel Under New Price System**\
-`Venezuela on Monday launched a fuel pricing system that largely rolls back decades of heavy subsidies, creating long lines and leaving drivers confused as the government seeks to end chronic shortages with gasoline imports from Iran.`\
-https://nytimes.com/reuters/2020/06/01/world/americas/01reuters-venezuela-gasoline.html?searchResultPosition=9
+**Airlines Say It’s Safe to Travel. But Is It?**\
+`They’re requiring masks, taking temperatures and speeding check-ins. But, as one travel expert put it, “So much is uncertain right now.”`\
+https://nytimes.com/2020/06/01/business/coronavirus-airports-airlines.html?searchResultPosition=9
 
-**Hedge Fund Angelo Gordon Raising $1.5 Billion for Distressed Energy Debt: Sources**\
-`Hedge fund Angelo Gordon & Co aims to raise as much as $1.5 billion to buy the debt of distressed oil and gas companies, according to a person familiar with the matter and an investor presentation viewed by Reuters.`\
-https://nytimes.com/reuters/2020/06/01/business/01reuters-hedgefunds-angelo-gordon.html?searchResultPosition=10
+**Former U.S. President Obama Praises Protests, Condemns Violence**\
+`Former U.S. President Barack Obama on Monday condemned the use of violence at nationwide protests over racial inequities and excessive police force while praising the actions of peaceful protesters seeking reform. `\
+https://nytimes.com/reuters/2020/06/01/us/01reuters-minneapolis-police-obama.html?searchResultPosition=10
 
