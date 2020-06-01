@@ -1,28 +1,28 @@
-**8 Minutes and 46 Seconds: How George Floyd Was Killed in Police Custody**\
-`The Times has reconstructed the police killing of George Floyd on May 25. Security footage, witness videos and official documents show how a series of actions by officers turned fatal.`\
-https://nytimes.com/2020/05/31/us/george-floyd-investigation.html?searchResultPosition=4
+**Truck Drives Into Protesters on Minneapolis Highway**\
+`A tanker truck drove through thousands of people marching on a Minneapolis highway to protest the death of George Floyd on Sunday before protesters dragged the driver from the cab and beat him, according to a Reuters witness and authorities.`\
+https://nytimes.com/reuters/2020/06/01/us/01reuters-minneapolis-police-protests-truck.html?searchResultPosition=4
+
+**Lives Lost: A Century of Learning, Bookended by Pandemic**\
+`In her 80s, Phyllis Antonetz moved to a new state, quickly settling in and volunteering at a school. In her 90s, she was living on her own, keeping a busy calendar of classes and outings. In her 100s, still primly dressed and manicured, she held court as she made the rounds in her nursing home.`\
+https://nytimes.com/aponline/2020/06/01/us/ap-us-virus-outbreak-lives-lost-centenarian.html?searchResultPosition=5
+
+**U.S. Lawmakers to Unveil Bill Banning Investment in Firms Tied to China's Military: Document**\
+`A group of Republican lawmakers plans to unveil legislation this week to keep Americans from investing in foreign defense companies with ties to China's military, according to a document seen by Reuters, the latest in a string of measures aimed at curbing U.S. funding for China-based firms. `\
+https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-usa-china-defense-investment.html?searchResultPosition=6
+
+**Coronavirus Live Updates: U.S. Sends Two Million Hydroxychloroquine Doses to Brazil**\
+`The two countries are studying whether the drug is safe and effective for the prevention and early treatment of Covid-19. And protests in the United States have sparked fears of spreading the virus.`\
+https://nytimes.com/2020/06/01/world/coronavirus-news.html?searchResultPosition=7
 
 **8 Minutes and 46 Seconds: How George Floyd Was Killed in Police Custody**\
-`The Times has reconstructed the police killing of George Floyd on May 25. Security footage, witness videos and official documents show how a series of actions by officers turned fatal. (This video contains scenes of graphic violence.)`\
-https://nytimes.com/video/us/100000007159353/george-floyd-arrest-death-video.html?searchResultPosition=5
+`The Times has reconstructed the police killing of George Floyd on May 25. Security footage, witness videos and official documents show how a series of actions by officers turned fatal.`\
+https://nytimes.com/2020/05/31/us/george-floyd-investigation.html?searchResultPosition=8
+
+**8 Minutes and 46 Seconds: How George Floyd Was Killed in Police Custody**\
+`The Times has reconstructed the death of George Floyd on May 25. Security footage, witness videos and official documents show how a series of actions by officers turned fatal. (This video contains scenes of graphic violence.)`\
+https://nytimes.com/video/us/100000007159353/george-floyd-arrest-death-video.html?searchResultPosition=9
 
 **Pandemic Set to Shrink Australian Economy in First Quarter, Worse Yet to Come**\
 `Australia's economy is expected to have shrunk in the first quarter as the global coronavirus pandemic is set to tip the  country into its first recession in three decades.`\
-https://nytimes.com/reuters/2020/05/31/world/asia/31reuters-australia-economy-gdp-preview.html?searchResultPosition=6
-
-**Taiwan Recall Vote Stirs Acrimony, Brings New Problems for KMT**\
-`A recall vote for a high-profile mayor is stirring political acrimony in Taiwan, with accusations of voter intimidation and official interference, and could bring new problems for the main opposition party, already reeling from losing January elections.`\
-https://nytimes.com/reuters/2020/05/31/world/asia/31reuters-taiwan-politics.html?searchResultPosition=7
-
-**Coronavirus Lockdown Eases in Moscow as Cases Fall in Russian Capital**\
-`Residents of Moscow can leave their homes to take a stroll for the first time in nine weeks on Monday under a partial easing of a tough lockdown regime following a fall in novel coronavirus cases. `\
-https://nytimes.com/reuters/2020/05/31/world/europe/31reuters-health-coronavirus-russia-moscow.html?searchResultPosition=8
-
-**Asia's Factory Pain Worsens as China's Recovery Fails to Lift Demand**\
-`Asia's factory pain deepened in May as the slump in global trade caused by the coronavirus pandemic worsened, with export powerhouses Japan and South Korea suffering the sharpest declines in business activity in more than a decade.`\
-https://nytimes.com/reuters/2020/05/31/business/31reuters-health-coronavirus-global-economy.html?searchResultPosition=9
-
-**Hong Kong Reports First Local COVID-19 Cases in Two Weeks**\
-`Hong Kong has confirmed its first locally transmitted coronavirus cases in more than two weeks, fuelling concerns over its spread as restrictions on movement are relaxed.`\
-https://nytimes.com/reuters/2020/05/31/world/asia/31reuters-health-coronavirus-hongkong-cases.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/05/31/world/asia/31reuters-australia-economy-gdp-preview.html?searchResultPosition=10
 
