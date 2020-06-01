@@ -1,28 +1,28 @@
-**Israeli Scientists Dig Up Cannabis Traces in Ancient Temple**\
-`Israeli archaeologists say they’ve found cannabis residue on artifacts from an ancient temple in southern Israel — providing the first evidence of the use of hallucinogenics in the ancient Jewish religion.`\
-https://nytimes.com/aponline/2020/06/01/world/middleeast/ap-ml-israel-ancient-cannabis.html?searchResultPosition=4
+**Israeli Defence Chief Says He's Preparing for Consequences of West Bank Annexations**\
+`Israeli Defence Minister Benny Gantz said on Monday he ordered the military to step up preparations for Israel's pending annexation of parts of the West Bank, a plan that could stoke Palestinian violence.`\
+https://nytimes.com/reuters/2020/06/01/world/middleeast/01reuters-israel-palestinians.html?searchResultPosition=4
 
-**Greece Calls Turkey's Oil-And-Gas Plan a 'Provocation'**\
-`Greece said Monday that it is determined to oppose plans by Turkey to expand oil-and-gas exploration in the Mediterranean Sea, in a deepening regional dispute over mineral rights.`\
-https://nytimes.com/aponline/2020/06/01/business/ap-eu-greece-turkey.html?searchResultPosition=5
+**Pregnancy Loss Tied to Increased Risk of Type 2 Diabetes**\
+`Compared with women who had delivered, those who experienced a pregnancy loss were at an 18 percent increased risk for Type 2 diabetes.`\
+https://nytimes.com/2020/06/01/well/family/pregnancy-loss-tied-to-increased-risk-of-type-2-diabetes.html?searchResultPosition=5
 
-**Gilead Says Drug Helped Moderately Ill Coronavirus Patients**\
-`A California biotech company says its experimental drug remdesivir improved symptoms when given for five days to moderately ill, hospitalized patients with COVID-19.`\
-https://nytimes.com/aponline/2020/06/01/health/bc-us-med-virus-outbreak-antiviral-drug.html?searchResultPosition=6
+**Putin and Trump Discussed G7, Oil Markets in Phone Call: Kremlin**\
+`U.S. President Donald Trump informed his Russian counterpart Vladimir Putin of his idea to hold an expanded Group of Seven summit later this year in a telephone call on Monday, the Kremlin said. `\
+https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-russia-usa-putin-trump.html?searchResultPosition=6
 
-**Lawmakers Question Federal Prisons' Home Confinement Rules**\
-`Democratic lawmakers are raising questions about the federal Bureau of Prisons’ release of high-profile inmates and are calling for widespread testing of federal inmates as the number of coronavirus cases has exploded in the federal prison system.`\
-https://nytimes.com/aponline/2020/06/01/us/politics/ap-us-virus-outbreak-federal-prisons.html?searchResultPosition=7
+**Non-Revenue Sports Fret Over College Athlete Compensation**\
+`College coaches in non-revenue sports are worried about the impact legislation allowing compensation for athletes could have on their programs.`\
+https://nytimes.com/aponline/2020/06/01/sports/ap-us-ncaa-compensating-athletes.html?searchResultPosition=7
 
-**Tales From Home, For Home**\
-`While you’re stuck at home, a selection of novels will let you hang out in someone else’s, whether it’s a mansion, a lighthouse or an apartment building.`\
-https://nytimes.com/interactive/2020/06/01/burst/novels-that-take-place-at-home.html?searchResultPosition=8
+**George Floyd’s Final Words, Written in the Sky**\
+`On Saturday, the artist Jammie Holmes staged his own kind of protest in five cities across the country.`\
+https://nytimes.com/2020/06/01/t-magazine/george-floyd-jammie-holmes-artist.html?searchResultPosition=8
 
-**Silver, NBA Shift Focus to Fighting Racism**\
-`NBA commissioner Adam Silver asked all 30 teams to encourage and embrace the push for social change.`\
-https://nytimes.com/reuters/2020/06/01/sports/basketball/01reuters-basketball-nba-silver.html?searchResultPosition=9
+**Moderna Extends Lipids Deal to Boost COVID-19 Vaccine Candidate Output**\
+`Moderna Inc has extended a deal to secure large volumes of the lipids used to produce its experimental COVID-19 vaccine as the U.S. biotech looks to build capacity and produce enough doses to meet expected global demand.`\
+https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-moderna-cordenpharma.html?searchResultPosition=9
 
-**Albania Reopens Land Borders, but Mass Gatherings Still Banned**\
-`Albania reopened its land borders and let people move around freely on Monday after 79 days of coronavirus curbs, but will still ban mass activities until June 23.`\
-https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-albania.html?searchResultPosition=10
+**Spain Reports No Virus Deaths for First Time Since March**\
+`Spain said Monday it's reporting no deaths in a 24-hour period from the new coronavirus for the first time since March.`\
+https://nytimes.com/aponline/2020/06/01/world/europe/ap-eu-virus-outbreak-spain.html?searchResultPosition=10
 
