@@ -1,28 +1,28 @@
+**Horse Racing: Thrumming Hooves Marks Return of English Sport at Newcastle**\
+`The thrum of hooves pounding the ground returned to Newcastle racecourse on Monday as competitive sport resumed in England after the shutdown because of the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/06/01/sports/01reuters-health-coronavirus-horseracing-britain.html?searchResultPosition=4
+
+**Facebook, Snapchat Join Chorus of Companies Condemning George Floyd Death, Racism**\
+`Facebook Inc and Snap Inc became the latest  U.S. companies condemning racial inequality in the United States  as violent protests flared up across major cities over the death of George Floyd, an unarmed black man who died while in police custody in Minneapolis last week.`\
+https://nytimes.com/reuters/2020/06/01/technology/01reuters-snapchat-protests.html?searchResultPosition=5
+
+**Stock Futures Steady Amid U.S. Protests, Simmering China Tensions**\
+`Futures tracking the S&P 500 index were trading flat on Monday following a strong showing in May, as investors turned cautious after protests erupted across the country over race, and simmering tensions between Washington and Beijing heated up.`\
+https://nytimes.com/reuters/2020/06/01/business/01reuters-usa-stocks.html?searchResultPosition=6
+
 **Music Industry Hits Pause to Reflect as U.S. Protests Rage**\
 `Leading record labels will mark "Black Out Tuesday" this week, suspending business and working with communities to fight racial inequality after protests erupted in the United States following the death of a black man, George Floyd, in police custody.`\
-https://nytimes.com/reuters/2020/06/01/arts/01reuters-minneapolis-police-music-black-out-tuesday.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/01/arts/01reuters-minneapolis-police-music-black-out-tuesday.html?searchResultPosition=7
 
 **Dutch Bar Terraces Fill Quickly as Lockdown Ends**\
 `Terraces throughout the Netherlands filled quickly on Monday as bars and restaurants were allowed to open for the first time in almost three months on a sunny public holiday.`\
-https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-netherlands.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-netherlands.html?searchResultPosition=8
 
 **AP PHOTOS: A Weekend of Protests in America**\
 `Flames shooting from a Los Angeles Police Department kiosk. Kneeling protesters having their stinging eyes flushed. Police in riot gear standing outside the White House.`\
-https://nytimes.com/aponline/2020/06/01/us/ap-us-america-protests-photo-gallery.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/06/01/us/ap-us-america-protests-photo-gallery.html?searchResultPosition=9
 
 **Zimbabwe Summons US Envoy Over White House Adviser's Comment**\
 `Zimbabwe has summoned the U.`\
-https://nytimes.com/aponline/2020/06/01/world/africa/ap-af-america-protests-zimbabwe.html?searchResultPosition=7
-
-**Under New Guidelines, Britons Plan for a Different Kind of BBQ**\
-`People across Britain plan to invite friends and family to barbecues in their gardens with the latest easing of social distancing measures on Monday, but a list of rules will make them a little more awkward than before.`\
-https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-britain-gathering.html?searchResultPosition=8
-
-**Trump, Attorney General to Meet as U.S. Cities Smolder Amid Protests**\
-`U.S. President Donald Trump was scheduled to meet with his top law enforcement officer behind closed doors on Monday as cities nationwide awoke from a smoldering weekend of violent protests over race and policing in the midst of the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/06/01/us/01reuters-minneapolis-police-protests-trump.html?searchResultPosition=9
-
-**South Africa Eases; Liquor Is Sold, School Openings Delayed**\
-`Many South Africans spent their Monday morning lining up outside liquor stores, as alcohol sales were allowed again after a two-month ban because of the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/06/01/world/africa/ap-af-virus-outbreak-south-africa.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/01/world/africa/ap-af-america-protests-zimbabwe.html?searchResultPosition=10
 
