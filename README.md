@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/05/31/us/politics/ap-us-trump.html?searchResul
 https://nytimes.com/reuters/2020/05/31/world/asia/31reuters-health-coronavirus-treatment-celltrion.html?searchResultPosition=8
 
 **AP Source: MLB Players Offer 114-Game Season, No More $ Cuts**\
-`Major League Baseball's players proposed a 114-game regular season Sunday, up from 82 in management's offer, and no additional pay cuts beyond the one the agreed to in March, a person familiar with the plan told The Associated Press.`\
+`Major League Baseball players proposed a 114-game regular season Sunday, up from 82 in management's offer, but no additional pay cuts beyond the one they agreed to in March, a person familiar with the plan told The Associated Press.`\
 https://nytimes.com/aponline/2020/05/31/sports/baseball/ap-bbo-virus-outbreak-mlb.html?searchResultPosition=9
 
 **‘Billions’ Season 5, Episode 5 Recap: Old Men**\
