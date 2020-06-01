@@ -1,28 +1,28 @@
+**Factbox: What's New With the Fed's 2020 Bank Stress Tests?**\
+`The Federal Reserve's bank stress tests will look significantly different in 2020, thanks to regulatory changes and the dramatic economic turmoil brought on by coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/01/business/01reuters-health-coronavirus-fed-factbox.html?searchResultPosition=4
+
+**Iran Risks Second Coronavirus Wave if People Ignore Restrictions: Minister**\
+`Iran could face a second, stronger wave of novel coronavirus infections if people ignore guidance and social distancing rules, health minister Saeed Namaki said on Monday.`\
+https://nytimes.com/reuters/2020/06/01/world/middleeast/01reuters-health-coronavirus-iran-minister.html?searchResultPosition=5
+
+**How Grab-And-Go Food Chains Are Adjusting to Coronavirus Reality**\
+`Restaurants devoted mainly to quick bites and drinks are reconfiguring their businesses to limit traffic in tight quarters and maintain coronavirus social distancing.`\
+https://nytimes.com/reuters/2020/06/01/business/01reuters-health-coronavirus-restaurants.html?searchResultPosition=6
+
+**U.S. Utilities Look Newly Cheap, but Face COVID-19 Headwinds This Summer**\
+`U.S. utility stocks have started to look like bargains after being considered expensive relative to the broader market for well over a year. Still, the outlook is far from certain as demand this summer is set to be hard hit by the contraction in commercial and industrial usage.  `\
+https://nytimes.com/reuters/2020/06/01/business/01reuters-health-coronavirus-utilities-analysis.html?searchResultPosition=7
+
 **Rich World's Jobs Crisis Jolts Money Flows to Millions**\
 `Carlos Sosa, a Salvadoran waiter in New York, used to send up to $500 a month back home to his mother to help pay for her medical bills and food. But now, after the coronavirus hit and he lost his job in early March, Sosa has burned through his savings and the wire transfers have stopped.`\
-https://nytimes.com/reuters/2020/06/01/business/01reuters-health-coronavirus-remittances-insight.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/01/business/01reuters-health-coronavirus-remittances-insight.html?searchResultPosition=8
 
 **Zimbabwean Film Industry Makes Netflix Debut With 'Cook Off'**\
 `Zimbabwean film Cook Off, a romance about a struggling single mother who finds love during a cooking competition, premiered on  Netflix on Monday, a debut that its makers hope will propel the country's small film sector to global audiences.`\
-https://nytimes.com/reuters/2020/06/01/arts/01reuters-zimbabwe-film-netflix.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/01/arts/01reuters-zimbabwe-film-netflix.html?searchResultPosition=9
 
 **'Lemon' or Not, Trump Is Stuck With Phase 1 China Trade Deal**\
 `U.`\
-https://nytimes.com/reuters/2020/06/01/business/01reuters-usa-trade-china-analysis.html?searchResultPosition=6
-
-**U.S. Judge Weighing Fight Over Trump Ex-Adviser Flynn to Respond on Case**\
-`The U.S. judge weighing whether to drop a criminal case against President Donald Trump's former adviser Michael Flynn faces a Monday deadline to respond to the Justice Department's bombshell request to drop a charge to which Flynn has pleaded guilty.`\
-https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-usa-trump-flynn.html?searchResultPosition=7
-
-**Factbox: China's Numerous Diplomatic Disputes**\
-`China is engaged in diplomatic disputes on numerous fronts, from acrimony with the United States to a backlash over its clampdown on Hong Kong, a border dispute with India and criticism over its handling of the novel coronavirus.`\
-https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-china-diplomacy-factbox.html?searchResultPosition=8
-
-**5 Things to Know Today-That Aren't About the Virus**\
-`Your daily look at nonvirus stories in the news:`\
-https://nytimes.com/aponline/2020/06/01/us/ap-nonvirus-news-things-to-know.html?searchResultPosition=9
-
-**A Weekend of Pain and Protest**\
-`Dispatches from cities across the U.S. being rocked by protests over police brutality after the death of George Floyd.`\
-https://nytimes.com/2020/06/01/podcasts/the-daily/george-floyd-protests.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/01/business/01reuters-usa-trade-china-analysis.html?searchResultPosition=10
 
