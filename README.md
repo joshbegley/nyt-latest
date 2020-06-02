@@ -1,28 +1,28 @@
-**The Latest: Primary Voting Underway in 9 States and DC**\
-`The Latest on Tuesday's primary elections (all times EDT):`\
-https://nytimes.com/aponline/2020/06/02/us/politics/ap-us-election-2020-the-latest.html?searchResultPosition=4
+**George Floyd, a 'Gentle Giant,' Remembered in Hometown Houston March**\
+`George Floyd's hometown of Houston held a memorial march for him on Tuesday, where attendees recounted a "gentle giant" whose legacy had helped the city largely avoid the violent protests seen elsewhere in the United States.`\
+https://nytimes.com/reuters/2020/06/02/us/02reuters-minneapolis-police-protests-houston.html?searchResultPosition=4
 
-**How Major US Stock Indexes Fared Tuesday**\
-`Stocks closing higher on Wall Street Tuesday for the third day in a row, continuing a stretch of gains for the market.`\
-https://nytimes.com/aponline/2020/06/02/business/ap-financial-markets-box.html?searchResultPosition=5
+**U.S. FDA Extends Review of Novartis' Multiple Sclerosis Drug**\
+`The U.S. Food and Drug Administration has extended the review period for Novartis AG's multiple sclerosis drug ofatumumab by three months, the company said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/02/us/02reuters-novartis-fda.html?searchResultPosition=5
 
-**Regulators May Punish Deutsche Bank for Its Jeffrey Epstein Ties**\
-`Banking regulators in New York have been investigating the German bank’s yearslong relationship with the disgraced financier.`\
-https://nytimes.com/2020/06/02/business/jeffrey-epstein-deutsche-bank.html?searchResultPosition=6
+**Lyft Says May Rides Jump 26% From Prior Month**\
+`Ride-hailing firm Lyft Inc said on Tuesday that rides on its platform rose 26% in May from the previous month, with strong growth from cities where coronavirus-induced restrictions have been eased.`\
+https://nytimes.com/reuters/2020/06/02/business/02reuters-health-coronavirus-lyft.html?searchResultPosition=6
 
-**‘He Could Have Been My Brother’: Women’s Voices in the Protests**\
-`A city that lay quiet for two months is now pulsing with protesters. Here are their stories.`\
-https://nytimes.com/2020/06/02/us/02IHW-protests-women-new-york-george-floyd.html?searchResultPosition=7
+**Twitter Names Patrick Pichette as Chair of Board**\
+`Twitter Inc said on Tuesday that it appointed Patrick Pichette as chair of the social network's board of directors, replacing Omid Kordestani.`\
+https://nytimes.com/reuters/2020/06/02/business/02reuters-twitter-board.html?searchResultPosition=7
 
-**Some Governors Balk at Trump Request to Send Troops to DC**\
-`Some governors are rejecting President Donald Trump's request to send National Guard troops to Washington, D.C., for a massive militarized show of force in the nation’s capital after several days of unrest over the death of George Floyd.`\
-https://nytimes.com/aponline/2020/06/02/us/politics/ap-us-america-protests-national-guard.html?searchResultPosition=8
+**What Democracy Scholars Thought of Trump’s Bible Photo Op**\
+`True believers saw a message to appreciate. Many others saw something more alarming.`\
+https://nytimes.com/2020/06/02/us/politics/trump-bible-photo-op.html?searchResultPosition=8
 
-**Zoom Booms as Pandemic Drives Millions to Its Video Service**\
-`Zoom Video Communications is rapidly emerging as the latest internet gold mine as millions of people flock to its conferencing service to see colleagues, friends and family while tethered to their homes during the pandemic.`\
-https://nytimes.com/aponline/2020/06/02/business/bc-us-zoom-boom.html?searchResultPosition=9
+**Tech-Rights Group Sues Trump to Stop Social-Media Order**\
+`A tech-focused civil liberties group on Tuesday sued to block President Donald Trump's executive order that seeks to regulate social media, saying it violates the First Amendment and chills speech.`\
+https://nytimes.com/aponline/2020/06/02/business/bc-us-trump-twitter-lawsuit.html?searchResultPosition=9
 
-**Rooftop Movie Entertains Violent Venezuelan Barrio During Quarantine**\
-`The sprawling working-class area of Petare on the east side of Venezuela's capital of Caracas has made headlines recently for brutal gang battles that raged for days despite a nationwide quarantine to prevent the spread of the coronavirus. `\
-https://nytimes.com/reuters/2020/06/02/arts/02reuters-health-coronavirus-venezuela-film.html?searchResultPosition=10
+**NFL Tells Teams They Must Hold Training Camps at Home**\
+`All 32 NFL teams have been told by Commissioner Roger Goodell to hold training camps at their home facilities this summer because of the COVID-19 pandemic.`\
+https://nytimes.com/aponline/2020/06/02/sports/football/ap-fbn-training-camps.html?searchResultPosition=10
 
