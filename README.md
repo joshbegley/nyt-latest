@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/06/02/us/ap-us-military-base-shooting.html?sea
 `The Russian anti-doping agency's (RUSADA) appeal against the country's four-year ban from the Olympics and other major sporting events will be heard in early November, the Lausanne-based Court of Arbitration for Sport (CAS) said on Tuesday. `\
 https://nytimes.com/reuters/2020/06/02/sports/olympics/02reuters-sport-doping-russia-ban.html?searchResultPosition=9
 
-**China Is Using Huawei to Drive a Wedge in the UK-US Special Relationship: Senator**\
+**China Is Using Huawei to Drive a Wedge in the UK-U.S. Special Relationship: Senator**\
 `China is using telecoms giant Huawei to try to drive a wedge between Britain and the United States, Republican senator Tom Cotton told British lawmakers on Tuesday.`\
 https://nytimes.com/reuters/2020/06/02/business/02reuters-usa-china-cotton.html?searchResultPosition=10
 
