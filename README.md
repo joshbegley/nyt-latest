@@ -1,28 +1,28 @@
-**African, Haitian Migrants in Honduras Defy Border Closure in Attempt to Reach U.S.**\
-`African, Cuban and Haitian migrants stranded in Honduras after borders were closed due to the coronavirus pandemic began trekking northward on Tuesday in an attempt to reach the United States, migration authorities said.  `\
-https://nytimes.com/reuters/2020/06/02/world/americas/02reuters-usa-immigration-honduras.html?searchResultPosition=4
+**Closing Prices for Crude Oil, Gold and Other Commodities**\
+`Benchmark U.S. crude oil for July delivery rose $1.37 to settle at $36.81 a barrel Tuesday. Brent crude oil for August delivery rose $1.25 to $39.57 a barrel. `\
+https://nytimes.com/aponline/2020/06/02/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=4
 
-**U.S. Attorney General Asked for Protesters to Be Pushed Back: Washington Post**\
-`U.`\
-https://nytimes.com/reuters/2020/06/02/us/02reuters-minneapolis-police-protests-barr.html?searchResultPosition=5
+**Pennsylvania Primary Election Results: 18th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/02/us/elections/results-pennsylvania-house-district-18-primary-election.html?searchResultPosition=5
 
-**Tiny Love Stories: ‘Why Aren’t You Happy?’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2020/06/02/style/tiny-modern-love-stories-coronavirus-why-arent-you-happy.html?searchResultPosition=6
+**South Dakota Republican Primary Election Results: At-Large Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/02/us/elections/results-south-dakota-house-district-at-large-republican-primary-election.html?searchResultPosition=6
 
-**Christo’s ‘Pure’ Art**\
-`A reader recalls a meeting with the artist at Yale that left a lasting impression. Also: Redeploying doctors; small joys during a pandemic.`\
-https://nytimes.com/2020/06/02/opinion/letters/christo-art.html?searchResultPosition=7
+**New Mexico Primary Election Results: First Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/02/us/elections/results-new-mexico-house-district-1-primary-election.html?searchResultPosition=7
 
-**Patricia Reed Scott, Who Cast New York as Hollywood East, Dies at 86**\
-`Working for two mayors, she re-established the city as the prime East Coast outpost for movie and TV production, clearing out traffic more than once.`\
-https://nytimes.com/2020/06/02/nyregion/patricia-reed-scott-who-cast-new-york-as-hollywood-east-dies-at-86.html?searchResultPosition=8
+**Montana Primary Election Results: At-Large Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/02/us/elections/results-montana-house-district-at-large-primary-election.html?searchResultPosition=8
 
-**Brewers: Miller Park Sustains 'Minor Damage' After Break-In**\
-`The Milwaukee Brewers say a man illegally entered Miller Park and caused minor damage to the playing field Tuesday morning.`\
-https://nytimes.com/aponline/2020/06/02/sports/baseball/ap-bbn-brewers-miller-park-break-in.html?searchResultPosition=9
+**Pennsylvania Primary Election Results: 10th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/02/us/elections/results-pennsylvania-house-district-10-primary-election.html?searchResultPosition=9
 
-**Looting Devastates Businesses Already Shaken by Virus**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/06/02/business/bc-america-protests-small-business-devastation.html?searchResultPosition=10
+**Iowa Primary Election Results: Third Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/02/us/elections/results-iowa-house-district-3-primary-election.html?searchResultPosition=10
 
