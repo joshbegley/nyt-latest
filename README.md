@@ -1,28 +1,28 @@
-**China Says Sticking to Climate Pledges Despite Coronavirus Outbreak**\
-`China will fully implement its commitment to nationally determined contributions (NDCs) on climate change despite the coronavirus outbreak, the country's environment ministry said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/01reuters-china-environment-climate.html?searchResultPosition=4
+**Mexican President Defies Leftist Label in Virus Response**\
+`When Andrés Manuel López Obrador won Mexico’s presidency after years of agitating for change, many expected a transformative leader who would take the country to the left even as much of Latin America moved right. `\
+https://nytimes.com/aponline/2020/06/02/us/ap-lt-virus-outbreak-mexico-president.html?searchResultPosition=4
 
-**‘Going in the Wrong Direction’: More Tropical Forest Loss in 2019**\
-`Brazil was responsible for more than a third of the total global loss in 2019.`\
-https://nytimes.com/2020/06/02/climate/deforestation-climate-change.html?searchResultPosition=5
+**Knicks Won’t Weigh In on George Floyd, Dolan Tells Employees**\
+`The decision makes the Knicks an exception in a league where players and coaches have called for change on social media and joined protests.`\
+https://nytimes.com/2020/06/02/sports/basketball/knicks-james-dolan-george-floyd.html?searchResultPosition=5
 
-**Iowa Primary Voters Deciding King's Fate, Ernst's Challenger**\
-`Republicans in northwest Iowa are deciding Tuesday whether they've had enough of conservative lightning rod Steve King, after tolerating the congressman's incendiary comments about immigrants and white supremacy for nearly two decades.`\
-https://nytimes.com/aponline/2020/06/01/us/ap-us-election-2020-iowa.html?searchResultPosition=6
+**Volkswagen Closes $2.6 Billion Investment in Self-Driving Startup Argo AI**\
+`German automaker Volkswagen AG has closed its $2.6 billion investment in Argo AI, the Pittsburgh-based self-driving startup disclosed in a blog post on Tuesday. `\
+https://nytimes.com/reuters/2020/06/02/business/02reuters-volkswagen-argo.html?searchResultPosition=6
 
-**U.S. Marines Undergo Quarantine After Landing in Northern Australian City**\
-`Around 200 U.S. Marines arrived in the northern Australian city of Darwin on Tuesday for an annual military training exercise, but will first undergo two weeks of quarantine, the Australian government said.`\
-https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-australia-usa-marines.html?searchResultPosition=7
+**Hong Kong Leader Calls Out 'Double Standards' on National Security, Points to U.S.**\
+`Hong Kong leader Carrie Lam accused foreign governments of "double standards" in their reaction to Beijing's plans to impose national security laws on the city, pointing to anti-police brutality protests in the United States.`\
+https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-hongkong-protests.html?searchResultPosition=7
 
-**North Korea to Open Schools Amid Signs of Relaxation of Virus Rules**\
-`North Korea will open schools this month after delays over concern about the novel coronavirus, state media has reported, the latest sign of opening up even though the isolated country has said it has had no confirmed cases of the disease.`\
-https://nytimes.com/reuters/2020/06/01/world/asia/01reuters-health-coronavirus-northkorea.html?searchResultPosition=8
+**AP FACT CHECK: Trump’s Move to Quit WHO Cites Flawed Facts**\
+`President Donald Trump spread a number of false and misleading claims about the World Health Organization in announcing his decision to cut U.S. ties with the agency over the coronavirus epidemic.`\
+https://nytimes.com/aponline/2020/06/02/us/politics/ap-us-virus-outbreak-trump-who-fact-check.html?searchResultPosition=8
 
-**Germany's Confirmed Coronavirus Cases Rise by 213 to 182,028: RKI**\
-`The number of confirmed coronavirus cases in Germany increased by 213 to 182,028, data from the Robert Koch Institute (RKI) for infectious diseases showed on Tuesday.`\
-https://nytimes.com/reuters/2020/06/01/world/europe/01reuters-health-coronavirus-germany-cases.html?searchResultPosition=9
+**China Delayed Releasing Coronavirus Info, Frustrating WHO**\
+`Throughout January, the World Health Organization publicly praised China for what it called a speedy response to the new coronavirus.`\
+https://nytimes.com/aponline/2020/06/02/us/ap-as-virus-outbreak-who-china-delays.html?searchResultPosition=9
 
-**Asia Today: South Korea Clamps Down Again as Virus Rebounds**\
-`Areas around the South Korean capital moved to curb large gatherings Tuesday and officials urged churchgoers and some health care workers to avoid crowds as the number of new coronavirus once again increased.`\
-https://nytimes.com/aponline/2020/06/01/business/ap-as-virus-outbreak-asia.html?searchResultPosition=10
+**Brands Weigh In on National Protests Over Police Brutality**\
+`As thousands of protesters take to the streets in response to police killings of black people, companies are wading into the national conversation but taking care to get their messaging right.`\
+https://nytimes.com/aponline/2020/06/02/business/ap-us-america-protests-brands-react.html?searchResultPosition=10
 
