@@ -1,28 +1,28 @@
-**Factbox: U.N. Programmes in Yemen at Risk of Going Broke**\
-`The United Nations said ahead of a pledging conference for Yemen on Tuesday that 30 of 41 major aid programmes in the war-torn country would close in the next few weeks without funding. `\
-https://nytimes.com/reuters/2020/06/02/world/middleeast/02reuters-yemen-us-aid-programmes-factbox.html?searchResultPosition=4
+**South Korea Says to Resume WTO Complaint Over Japan's Export Controls**\
+`South Korea said on Tuesday that it decided to  resume dispute settlement proceedings over Japan's export controls, saying the two sides failed to make progress over talks to resolve the trade disputes rooted in wartime history.    `\
+https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-southkorea-japan.html?searchResultPosition=4
 
-**What’s on TV Tuesday: ‘Fuller House’ and ‘Dirty John’**\
-`The fifth and final season of “Fuller House” comes to a close on Netflix, and an anthology crime series returns on USA.`\
-https://nytimes.com/2020/06/02/arts/television/whats-on-tv-tuesday-fuller-house-dirty-john.html?searchResultPosition=5
+**What You Need to Know About the Coronavirus Right Now**\
+`Here's what you need to know about the coronavirus right now: `\
+https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-health-coronavirus-snapshot.html?searchResultPosition=5
 
-**China Says Sticking to Climate Pledges Despite Coronavirus Outbreak**\
-`China will fully implement its commitment to nationally determined contributions (NDCs) on climate change under the Paris climate agreement despite the coronavirus outbreak, the country's environment ministry said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-china-environment-climate.html?searchResultPosition=6
+**Japan Allows Saliva-Based Tests to Boost Coronavirus Detection**\
+`Japan's government said on Tuesday it has approved saliva-based tests for the new coronavirus, offering a safer, simpler way to diagnose infection as well as boosting the number of tests being carried out using polymerase chain reaction (PCR) technology.   `\
+https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-health-coronavirus-japan-test.html?searchResultPosition=6
 
-**Thailand Reports One New Coronavirus Case, One New Death**\
-`Thailand confirmed one new coronavirus case and one additional death on Tuesday, a health ministry spokesman said.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-health-coronavirus-thailand.html?searchResultPosition=7
+**Plunging Cost of Wind and Solar Marks Turning Point in Energy Transition: IRENA**\
+`Plunging costs of renewables mark a turning point in a global transition to low-carbon energy, with new solar or wind farms increasingly cheaper to build than running existing coal plants, according to a report published on Tuesday.`\
+https://nytimes.com/reuters/2020/06/02/business/02reuters-energy-renewables-costs.html?searchResultPosition=7
 
-**Yemen Pledging Drive Hopes to Raise $2.4 Billion to Save Aid Ops as Virus Spreads**\
-`The United Nations and Saudi Arabia host a pledging conference for war-ravaged Yemen on Tuesday to help raise some $2.4 billion as funding shortages imperil the world's biggest aid operation.`\
-https://nytimes.com/reuters/2020/06/02/world/middleeast/02reuters-yemen-un-aid.html?searchResultPosition=8
+**Natgas Flows to U.S. LNG Export Plants Sink to 9-Month Low Due to Coronavirus**\
+`The amount of natural gas flowing on pipelines to U.S. liquefied natural gas export plants is at its lowest levels since August, a signal of weak worldwide demand due to government lockdowns to repress the coronavirus.`\
+https://nytimes.com/reuters/2020/06/02/business/02reuters-usa-lng-coronavirus.html?searchResultPosition=8
 
-**Schools Reopen as Singapore Eases Lockdown Restrictions**\
-`With temperatures checked, masks fitted, and hand sanitizers at the ready, many Singapore children returned to school on Tuesday after a novel coronavirus lockdown of nearly two months.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-health-coronavirus-singapore-reopening.html?searchResultPosition=9
+**Sundarbans Devastated by Cyclone, as Virus Halts Migration**\
+`The powerful cyclone that struck India and Bangladesh last month passed through the vast mangrove forests of the Sunderban delta, a UNESCO world heritage site. The mangroves dissipated some of Cyclone Amphan's energy, shielding densely populated cities like Kolkata. `\
+https://nytimes.com/aponline/2020/06/02/world/asia/ap-as-india-sundarbans.html?searchResultPosition=9
 
-**Australia's Central Bank Holds Cash Rate at 0.25%**\
-`Australia's central bank left its cash rate at a record low of 0.25% on Tuesday and again committed to do what it could to support the economy through the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-australia-economy-rba.html?searchResultPosition=10
+**Iranian Professor Acquitted of Sanctions Busting Leaves U.S., Zarif Says**\
+`An Iranian professor imprisoned in the United States after being acquitted of stealing trade secrets has left the country and is on his way back to Iran, Foreign Minister Mohammad Javad Zarif said in an Instagram post on Tuesday.`\
+https://nytimes.com/reuters/2020/06/02/world/middleeast/02reuters-iran-usa-asgari.html?searchResultPosition=10
 
