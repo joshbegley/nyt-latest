@@ -1,28 +1,28 @@
-**The American Military’s Newest Target: American Protesters**\
-`Military helicopters dropped to rooftop level in Washington. Tree limbs snapped. Signs were torn from buildings. Protesters hid in doorways. The helicopters were performing a “show of force” — a tactic used by military aircraft in combat zones to scatter insurgents.`\
-https://nytimes.com/2020/06/02/us/politics/military-national-guard-trump-protests.html?searchResultPosition=4
+**Report: Child Disparities Highest in US South, West**\
+`Childhood disparities around malnutrition, graduation rates, and early deaths are worst among rural, black-majority counties in the American South and isolated counties with Native American populations, according to a new report.`\
+https://nytimes.com/aponline/2020/06/02/us/ap-us-rural-childhood-disparities-report.html?searchResultPosition=4
 
-**Audible Best-Sellers for Week Ending May 29th**\
-`Fiction: `\
-https://nytimes.com/aponline/2020/06/02/business/ap-us-audiobooks-top-10.html?searchResultPosition=5
+**The Last Temptation of Trump**\
+`The president brandishes a Bible in front of a church, in search of a divine mandate that isn’t coming.`\
+https://nytimes.com/2020/06/02/opinion/trump-bible-speech-st-johns-church.html?searchResultPosition=5
 
-**Greek Tourism Minister Says All Foreign Visitors Welcome**\
-`Greece is ready to welcome tourists from all over the world this summer but will be adhering to the advice of health experts to ensure it remains a safe destination in terms of the risk of coronavirus spread, the country’s tourism minister said Tuesday. `\
-https://nytimes.com/aponline/2020/06/02/business/bc-eu-virus-outbreak-greece-tourism.html?searchResultPosition=6
+**A Dance About the State of Emergency We’re In**\
+`Jamar Roberts’s short video “Cooped” is a powerful artistic response to the Covid-19 crisis, with added resonance after the killing of George Floyd.`\
+https://nytimes.com/2020/06/02/arts/dance/jamar-roberts-cooped-coronavirus.html?searchResultPosition=6
 
-**For This Tribe, Saving a River Means Saving the Sturgeon**\
-`The Yakama Nation has been raising fish to release back into the Columbia River for more than a decade. Now, its hatchery is also producing caviar.`\
-https://nytimes.com/2020/06/02/dining/sturgeon-caviar-yakama-nation.html?searchResultPosition=7
+**Global Airport Group Says Pandemic Safety Rules to Lengthen Pre-Departure Waits**\
+`New global guidelines featuring physical distancing to restart aviation safely during the coronavirus pandemic could add up to two hours of pre-departure time for passengers at some airports during peak hours, the head of an international airports' group said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/02/business/02reuters-health-coronavirus-airlines-airports.html?searchResultPosition=7
 
-**Philippines Backs Off Threat to Terminate Military Pact With U.S.**\
-`In February President Rodrigo Duterte had angrily sought to end the Visiting Forces Agreement, seen as a buffer against Chinese power. Manila said it reversed the decision “in light of political and other developments in the region,” without further explanation.`\
-https://nytimes.com/2020/06/02/world/asia/philippines-military-pact-us-duterte.html?searchResultPosition=8
+**Safety Board Asks Helicopter Makers to Install 'Black Boxes'**\
+`Federal safety investigators bypassed aviation regulators on Tuesday and urged leading helicopter manufacturers to install so-called black boxes that would help determine the cause of crashes such as the one that killed former NBA star Kobe Bryant.`\
+https://nytimes.com/aponline/2020/06/02/business/ap-helicopter-black-boxes.html?searchResultPosition=8
 
-**Spain Reports No New COVID-19 Deaths Since Sunday**\
-`Spain reported no new deaths from the coronavirus for the second day running on Tuesday, with cumulative deaths unchanged from Sunday's total of 27,127, according to the health ministry. `\
-https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-health-coronavirus-spain-tally.html?searchResultPosition=9
+**In Brazil, the Elderly and Loved Ones Reunite, With a Little Ingenuity**\
+`Dirce Villas Boas, a 93-year-old resident of a nursing home in western Sao Paulo, had gone 70 days without seeing her daughter until this weekend, when the pair hugged and danced together in an emotional reunion.`\
+https://nytimes.com/reuters/2020/06/02/world/americas/02reuters-health-coronavirus-brazil-hugs.html?searchResultPosition=9
 
-**U.S. to Temporarily Allow Certain Impurities, Like Benzene, in Hand Sanitizer**\
-`The Trump administration said this week it will temporarily allow some impurities in alcohol-based hand sanitizer to ensure access to the product during the coronavirus pandemic, reversing course after having tightened restrictions in April.`\
-https://nytimes.com/reuters/2020/06/02/us/02reuters-health-coronavirus-ethanol-sanitizer.html?searchResultPosition=10
+**World Bank: Coronavirus to Leave 'Lasting Scars' on Developing World**\
+`The World Bank said on Tuesday that it expects the coronavirus and resulting recessions to leave "lasting scars" on developing and emerging market countries, with the worst damage on oil exporters and those suffering financial crises.`\
+https://nytimes.com/reuters/2020/06/02/us/02reuters-health-coronavirus-worldbank.html?searchResultPosition=10
 
