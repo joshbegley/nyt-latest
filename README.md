@@ -1,28 +1,28 @@
-**Report: Rutgers Softball Needs Change, but Not Discipline**\
-`A law firm released a report Tuesday on allegations of physical and emotional abuse in Rutgers University's softball program that described inappropriate behavior by coaches and a lack of communication on the part of administrators but stopped short of recommending discipline. `\
-https://nytimes.com/aponline/2020/06/02/sports/ap-us-rutgers-softball-abuse-report.html?searchResultPosition=4
+**Use of Battery Power Storage Seen Accelerating to 2030 and Beyond: WoodMac**\
+`The use of batteries for energy storage is expected to grow faster than that of other flexible assets in the period to 2030 and beyond, as renewable energy generation expands, consultancy Wood Mackenzie said in research published on Wednesday.       `\
+https://nytimes.com/reuters/2020/06/02/technology/02reuters-energy-power-flexibility.html?searchResultPosition=4
 
-**Senate Confirms Inspector General to Oversee Virus Bailout Funds**\
-`Brian D. Miller, the White House lawyer tapped to oversee the Treasury Department’s $500 billion fund, has said he would not be influenced by political pressure.`\
-https://nytimes.com/2020/06/02/us/politics/virus-bailout-inspector-general.html?searchResultPosition=5
+**Europe's Gaia-X Cloud Computing Platform Takes Shape**\
+`A proposed European cloud computing platform that seeks to break the continent's reliance on Silicon Valley will take shape in the coming weeks when a group of 22 French and German companies set up a legal entity to run it.`\
+https://nytimes.com/reuters/2020/06/02/technology/02reuters-europe-tech.html?searchResultPosition=5
 
-**Lawmakers Say Puff Bar Used Pandemic to Market to Teens**\
-`The e-cigarette company, which has quickly eclipsed Juul, has advertised its products as a break from “parental texts and WFH stress.”`\
-https://nytimes.com/2020/06/02/health/puff-bar-teens.html?searchResultPosition=6
+**‘Searching Eva’ Review: Identity Poetics**\
+`This portrait of a professed sex worker, writer, anarchist, feminist, musician and recovering addict is a tough film to pin down.`\
+https://nytimes.com/2020/06/02/movies/searching-eva-review.html?searchResultPosition=6
 
-**A Latter-Day Rip Van Winkle Emerges, Blinking, Into the Post-Virus World**\
-`Daniel Thorson went into a silent retreat in mid-March, meditating through 75 coronavirus news cycles, Boris Johnson’s hospitalization, social distancing and sourdough starter. Now he’s catching up.`\
-https://nytimes.com/2020/06/02/us/coronavirus-meditation.html?searchResultPosition=7
+**Washington Man Has Some Surprise Guests: About 60 Protesters**\
+`Rahul Dubey had some unexpected guests Monday night — about 60 in all — as a tense nation’s capital continued to grapple with the fallout from the death of George Floyd while in police custody.`\
+https://nytimes.com/aponline/2020/06/02/us/politics/ap-us-america-protests-sheltering-protesters.html?searchResultPosition=7
 
-**William Barr, George Floyd Protests, Birdsongs: Your Tuesday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/06/02/briefing/william-barr-george-floyd-protests-birdsongs.html?searchResultPosition=8
+**Trump Tries Religious Gestures to Hike Support Amid Protests**\
+`Cloaking himself in religion for the second day in a row, President Donald Trump sought Tuesday to seize the moral authority to justify his hard line against demonstrators protesting the killing of another black man in police custody and at the same time mobilize his religious conservative base.`\
+https://nytimes.com/aponline/2020/06/02/us/politics/ap-us-trump-religion.html?searchResultPosition=8
 
-**Senate Confirms Special Watchdog for Pandemic Recovery**\
-`The Senate has confirmed a new inspector general to oversee money distributed as part of the $2 trillion economic rescue law, putting at least one watchdog in place as oversight of the money has lagged. `\
-https://nytimes.com/aponline/2020/06/02/business/bc-us-virus-outbreak-congress-oversight.html?searchResultPosition=9
+**Mexico Finds Links to Over $1 Billlion in Cartel Money**\
+`Mexican financial regulators said Tuesday they have frozen the bank accounts of 1,939 people and companies believed to be linked to movements of about $1.1 billion in Jalisco drug cartel money. `\
+https://nytimes.com/aponline/2020/06/02/world/americas/ap-lt-mexico-drug-money.html?searchResultPosition=9
 
-**UK PM Prepared to Change Immigration Rules if China Imposes National Security Law on HK**\
-`The United Kingdom is prepared to change its immigration rules if China imposes a national security law on Hong Kong, British Prime Minister Boris Johnson said on Wednesday in an op-ed for the South China Morning Post.`\
-https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-hongkong-protests-britain-johnson.html?searchResultPosition=10
+**College Board Scraps Plans for SAT at Home**\
+`The organization that administers the standardized test used for college admissions said the technology requirements for taking it remotely would be too great for some students.`\
+https://nytimes.com/2020/06/02/us/at-home-sat-coronavirus.html?searchResultPosition=10
 
