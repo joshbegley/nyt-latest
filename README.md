@@ -22,7 +22,7 @@ https://nytimes.com/interactive/2020/06/02/us/elections/results-montana-house-di
 ``\
 https://nytimes.com/interactive/2020/06/02/us/elections/results-pennsylvania-house-district-10-primary-election.html?searchResultPosition=9
 
-**Iowa Primary Election Results: Third Congressional District**\
+**Live: Indiana State Primary Election Results 2020**\
 ``\
-https://nytimes.com/interactive/2020/06/02/us/elections/results-iowa-house-district-3-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/02/us/elections/results-indiana-primary-elections.html?searchResultPosition=10
 
