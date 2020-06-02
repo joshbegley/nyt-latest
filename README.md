@@ -7,7 +7,7 @@ https://nytimes.com/2020/06/02/nyregion/new-york-city-curfew-FAQs.html?searchRes
 https://nytimes.com/video/us/100000007170792/mayor-bill-de-blasio-of-new-york-extends-citywide-curfew.html?searchResultPosition=5
 
 **Pandemic, Protests and Police: An Election Like No Other**\
-`Voters cast ballots, many by mail, in eight states and the District of Columbia, with limited polling stations open and concerns about the virus and the civil unrest looming over the process.`\
+`Voters cast ballots, many by mail, in eight states and the District of Columbia, with limited polling stations open and concerns about the virus and civil unrest looming over the process.`\
 https://nytimes.com/2020/06/02/us/politics/june-2-primary-election-day-voting.html?searchResultPosition=6
 
 **Steelers RB Conner Focusing on Present, Not Uncertain Future**\
