@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/06/01/business/01reuters-softbank-group-executi
 `Formula One has a perfect opportunity to experiment with back-to-back races in Austria in July but champions Mercedes are standing in the way, Red Bull boss Christian Horner said on Monday.`\
 https://nytimes.com/reuters/2020/06/01/sports/autoracing/01reuters-motor-f1-austria-horner.html?searchResultPosition=7
 
-**Big Ten Commissioner Creates Creates Anti-Racism Coalition**\
-`Big Ten Commissioner Kevin Warren, the first black leader of a Power Five conference, is creating a coalition to give the league's athletes a platform to voice their concerns about racism. `\
+**Big Ten Commissioner Warren Creates Anti-Racism Coalition**\
+`The Big Ten's Kevin Warren, the first black commissioner of a Power Five conference, is creating a coalition to give the league's athletes a platform to voice their concerns about racism. `\
 https://nytimes.com/aponline/2020/06/01/sports/ap-us-big-ten-warren.html?searchResultPosition=8
 
 **Police in Washington Use Tear Gas on Protesters**\
