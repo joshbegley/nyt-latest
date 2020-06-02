@@ -1,28 +1,28 @@
+**Celtics' Poirier Joins Floyd Protests With Team Mates**\
+`Celtics center Vincent Poirier says he took part in a protest with NBA team mates Marcus Smart and Enes Kanter in Boston on Sunday over the killing of George Floyd, an unarmed black man who died in police custody in Minneapolis last week.`\
+https://nytimes.com/reuters/2020/06/02/sports/basketball/02reuters-minneapolis-police-nba-poirier.html?searchResultPosition=4
+
+**Australian Police Under Scrutiny as People March in Sydney Over Floyd's Death**\
+`Thousands of people protested in Sydney on Tuesday over black American George Floyd's death in U.S. police custody, as Australian police faced questions about use of force during the arrest of a teenager of aboriginal descent.`\
+https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-minneapolis-police-protests-australia.html?searchResultPosition=5
+
+**UK Lends 21 Billion Pounds to Small Firms Hit by Coronavirus**\
+`British small businesses have borrowed more than 21 billion pounds ($26 billion) under a government-guaranteed coronavirus programme in May, well ahead of other support schemes. `\
+https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-health-coronavirus-britain-loans.html?searchResultPosition=6
+
+**UK COVID-19 Death Toll Rises to Nearly 50,000, Reuters Tally Shows**\
+`The United Kingdom's COVID-19 death toll neared 50,000 on Tuesday, a grim figure for Prime Minister Boris Johnson as he takes steps to ease the coronavirus lockdown.`\
+https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-health-coronavirus-britain-casualties.html?searchResultPosition=7
+
+**U.S. Lawmaker Prepares Bill Aiming to End Court Protection for Police**\
+`With cities across America in turmoil over the death of George Floyd, a U.S. lawmaker plans to introduce legislation this week that he hopes will end a pattern of police violence by allowing victims to sue officers for illegal and unconstitutional acts. `\
+https://nytimes.com/reuters/2020/06/02/us/politics/02reuters-minneapolis-police-congress.html?searchResultPosition=8
+
+**Philippines Reports 359 More Coronavirus Cases, Total Nears 19,000**\
+`The Philippine health ministry on Tuesday confirmed six more coronavirus deaths and 359 new infections.`\
+https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-health-coronavirus-philippines-cases.html?searchResultPosition=9
+
 **Australia's Woolworths to Reward Over 100,000 Staff With Shares for Virus Efforts**\
 `Australia's biggest supermarket chain Woolworths Group said on Tuesday it will reward more than 100,000 of its staff with free company shares for their efforts during a period of upheaval amid bushfires and the coronavirus buying frenzy.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-woolworths-grp-workers-stocks.html?searchResultPosition=4
-
-**Bangladesh Confirms 1st Death of Rohingya From Coronavirus**\
-`Authorities in Bangladesh have confirmed the first death of a Rohingya refugee from the coronavirus, as infections rise in sprawling camps where more than 1 million Rohingya Muslims have been living since fleeing from neighboring Myanmar. `\
-https://nytimes.com/aponline/2020/06/02/world/asia/ap-as-virus-outbreak-rohingya.html?searchResultPosition=5
-
-**China Auto Sales Set to Rise 12% in May: Industry Body**\
-`China's vehicle sales for May are set to rise 11.7% year on year to 2.14 million, the country's top auto industry body said in a post on its official WeChat account on Tuesday.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-china-autos.html?searchResultPosition=6
-
-**The Pressures of Pandemic Cooking by Jessica Olien**\
-`In quarantine, some are pushing the limits of their very limited cooking skills.`\
-https://nytimes.com/slideshow/2020/06/02/dining/quarantine-cooking-comic-jessica-olien.html?searchResultPosition=7
-
-**Las Vegas Police Officer Shot Amid Protests, Police Say: AP**\
-`A Las Vegas police officer was shot amid protests on Monday night over the killing of George Floyd, AP news agency said.`\
-https://nytimes.com/reuters/2020/06/02/us/02reuters-minneapolis-police-protests-vegas.html?searchResultPosition=8
-
-**Senegal Postpones School Restart After Teachers Test Positive for COVID-19**\
-`Senegal has postponed the restart of schools until further notice after several teachers tested positive for the new coronavirus, the education ministry said late on Monday.`\
-https://nytimes.com/reuters/2020/06/02/world/africa/02reuters-health-coronavirus-senegal-education.html?searchResultPosition=9
-
-**Geely's Polestar Plans China Showroom Expansion to Compete With Tesla: Sources**\
-`By Yilei Sun and Brenda Goh`\
-https://nytimes.com/reuters/2020/06/02/business/02reuters-geely-polestar-electric.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-woolworths-grp-workers-stocks.html?searchResultPosition=10
 
