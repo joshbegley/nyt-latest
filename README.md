@@ -1,28 +1,28 @@
+**Photos and Videos From the California Protests**\
+`Protests following the death of George Floyd in Minneapolis swept across the state, prompting at least two countywide curfews in parts of Northern and Southern California.`\
+https://nytimes.com/article/california-george-floyd-protests.html?searchResultPosition=4
+
+**South African High Court Says Some Lockdown Restrictions Invalid, Government Says**\
+`South Africa's cabinet said on Tuesday it had taken note of a High Court judgement declaring its coronavirus restrictions as unconstitutional and that it was studying the judgment, though the lockdown remained in force for now. `\
+https://nytimes.com/reuters/2020/06/02/world/africa/02reuters-health-coronavirus-safrica-court.html?searchResultPosition=5
+
+**My Rabbit for Your Detergent? Cubans Turn to Barter as Shortages Worsen**\
+`Nelson Aguilar used to sell the rabbits that he raises on his Havana rooftop to restaurants. Now, with an ongoing pandemic, the 70-year-old uses them as currency, exchanging them for food or detergent to avoid multi-hour queues at poorly stocked shops. `\
+https://nytimes.com/reuters/2020/06/02/world/americas/02reuters-health-coronavirus-cuba-barter.html?searchResultPosition=6
+
+**U.S. Sanctions Four Shipping Firms for Transporting Venezuelan Oil**\
+`The U.S. Treasury Department on Tuesday said it had sanctioned four shipping firms for transporting Venezuelan oil, the latest escalation in Washington's effort to oust socialist President Nicolas Maduro by cutting off the OPEC nation's crude exports. `\
+https://nytimes.com/reuters/2020/06/02/business/02reuters-usa-venezuela-oil.html?searchResultPosition=7
+
+**Bolivia Electoral Body Says Country to Hold Delayed Elections by September 6**\
+`Bolivia's electoral tribunal said on Tuesday it had reached an agreement with the country's political parties to hold general elections delayed by the coronavirus pandemic by Sept. 6, a key step to bringing political stability to the landlocked nation.`\
+https://nytimes.com/reuters/2020/06/02/world/americas/02reuters-bolivia-election.html?searchResultPosition=8
+
 **'We Won't Tolerate': Sports World Unites Behind Floyd**\
 `Players who scored in the German and Hungarian soccer leagues removed their jerseys to display undershirts with the words: “Justice for George Floyd.”`\
-https://nytimes.com/aponline/2020/06/02/sports/soccer/ap-soc-soccer-floyd-protests.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/02/sports/soccer/ap-soc-soccer-floyd-protests.html?searchResultPosition=9
 
 **Less Violence in Monday Night's Protests, National Guard Chief Says**\
 `The United States saw decreasing levels of violence in protests across the United States on Monday night, the head of the National Guard bureau said on Tuesday, even as protest activity was sustained or increased. `\
-https://nytimes.com/reuters/2020/06/02/us/02reuters-minneapolis-police-protests-pentagon.html?searchResultPosition=5
-
-**6 Atlanta Officers Charged After Students Pulled From Car**\
-`Six Atlanta police officers have been charged over excessive use of force during a protest arrest incident involving two college students, a prosecutor said Tuesday.`\
-https://nytimes.com/aponline/2020/06/02/us/ap-us-america-protests-atlanta-excessive-force.html?searchResultPosition=6
-
-**Russia Invites U.S. Defense Minister to Red Square Military Parade: RIA**\
-`Russian Defence Minister Sergei Shoigu and U.S. Defense Secretary Mark Esper discussed arms control and measures to fight the new coronavirus outbreak in a phone call, the RIA news agency reported on Tuesday, citing the Russian ministry.`\
-https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-russia-usa-shoigu.html?searchResultPosition=7
-
-**H&M Closes U.S. Stores Amid Protests, Says It Stands Behind Black Community**\
-`H&M, the world's second-biggest fashion retailer, said on Tuesday it had temporarily closed 95 of its stores in the United States because of the violent protests following the death of George Floyd in police custody.`\
-https://nytimes.com/reuters/2020/06/02/business/02reuters-h-m-united-states-protests.html?searchResultPosition=8
-
-**EU Balks at Adding Russia Back Into G7**\
-`The European Union views the Group of Seven format as a vital multilateral framework that cannot be changed on a permanent basis by the chair of the group, currently the United States, an EU spokesman said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-g7-summit-usa-eu.html?searchResultPosition=9
-
-**UK COVID-19 Confirmed Death Toll Rises by 324 to 39,369**\
-`The United Kingdom's death toll from people who tested positive for COVID-19 has risen by 324 to 39,369, the government said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-health-coronavirus-britain-toll.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/02/us/02reuters-minneapolis-police-protests-pentagon.html?searchResultPosition=10
 
