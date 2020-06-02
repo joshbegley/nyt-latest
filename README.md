@@ -1,28 +1,28 @@
+**Any Resurgence of Virus Would Likely Be Local, Says UK Testing Coordinator**\
+`Any resurgence of COVID-19 in Britain would probably be local and patchy, testing coordinator John Newton said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-health-coronavirus-britain-local.html?searchResultPosition=4
+
+**Governor Race Showcases Conservative Coronavirus Fault Lines**\
+`A few months ago, the crowded contest for the Republican nomination in Utah’s first wide-open governor's race in more than a decade was about how to manage the state’s breakneck growth. Now, it's showcasing conservative fault lines over the coronavirus crisis response and what recovery looks like.`\
+https://nytimes.com/aponline/2020/06/02/us/ap-us-election-2020-utah-governor-1st-ld-writethru.html?searchResultPosition=5
+
+**NC Governor: GOP Must Prepare for Scaled-Back Convention**\
+`North Carolina's governor said in a letter Tuesday that the GOP must prepare for a scaled-back convention in Charlotte because of the coronavirus pandemic despite demands from President Donald Trump for a full-scale, in-person event. `\
+https://nytimes.com/aponline/2020/06/02/us/ap-us-virus-outbreak-republican-convention.html?searchResultPosition=6
+
+**Singapore Defends Its Coronavirus Response**\
+`Singapore’s ambassador reacts to a magazine essay about the city-state’s response to the coronavirus outbreak among migrant workers in crowded dormitories.`\
+https://nytimes.com/2020/06/02/magazine/singapore-defends-coronavirus-response.html?searchResultPosition=7
+
+**Analysis: NFL Will Play Games After Support/pressure Applied**\
+`Call it support. Call it pressure. However you describe it, the NFL is going to get it regarding playing games on schedule.`\
+https://nytimes.com/aponline/2020/06/02/sports/football/ap-fbn-offseason-update-playing-games.html?searchResultPosition=8
+
 **Kansas to Ask Supreme Court to Save Voter Citizenship Law**\
 `Kansas' Republican attorney general plans to ask the U.S. Supreme Court to allow the state to require new voters to provide papers documenting their citizenship when registering. `\
-https://nytimes.com/aponline/2020/06/02/us/ap-us-voting-rights-kansas.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/02/us/ap-us-voting-rights-kansas.html?searchResultPosition=9
 
 **Robots Dish Out the Drinks at Reopened Dutch Restaurant**\
 `At the Dadawan restaurant in the southern Dutch city of Maastricht, an unusual group of new staffers has been brought in to help after the Netherlands eased its coronavirus lockdown this week: robots.`\
-https://nytimes.com/reuters/2020/06/02/technology/02reuters-health-coronavirus-netherlands.html?searchResultPosition=5
-
-**Armenia May Face a New Lockdown, Prime Minister Says**\
-`Armenia may have to impose a new total lockdown if people do not follow hygiene rules, Prime Minister Nikol Pashinyan said on Tuesday after the number of confirmed coronavirus cases topped 10,000.`\
-https://nytimes.com/reuters/2020/06/02/world/02reuters-health-coronavirus-armenia.html?searchResultPosition=6
-
-**Trump's Actions Render Trudeau Speechless for 21 Seconds**\
-`Canadian Prime Minister Justin Trudeau said Tuesday that Canadians are watching what’s unfolding in the United States with “horror and consternation” and he paused for 21 seconds when asked about U.`\
-https://nytimes.com/aponline/2020/06/02/world/ap-cn-canada-trudeau-trump.html?searchResultPosition=7
-
-**These Books Can Help You Explain Racism and Protest to Your Kids**\
-`The conversation about race needs to start early and keep happening.`\
-https://nytimes.com/2020/06/02/parenting/kids-books-racism-protest.html?searchResultPosition=8
-
-**U.S. Auto Sales in May Encourage Detroit Plan to Rebuild Inventories**\
-`Several automakers on Tuesday reported stronger-than-expected May sales in the United States, and the Detroit automakers said they will work through their annual summer shutdowns to rebuild inventories as demand recovers from coronavirus shutdowns.`\
-https://nytimes.com/reuters/2020/06/02/business/02reuters-usa-autos-demand.html?searchResultPosition=9
-
-**California Attorney General Submits Regulations for Approval Under Privacy Law**\
-`California's attorney general on Tuesday submitted proposed regulations for approval under the state's new digital privacy law, which gives Americans the right to request that their data be deleted from e-commerce websites and social media.`\
-https://nytimes.com/reuters/2020/06/02/us/02reuters-usa-privacy-california.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/02/technology/02reuters-health-coronavirus-netherlands.html?searchResultPosition=10
 
