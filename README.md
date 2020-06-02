@@ -1,28 +1,28 @@
+**Nigeria's President Backs Embattled African Development Bank Chief**\
+`Nigerian President Muhammadu Buhari on Tuesday gave his backing to the head of the African Development Bank (AfDB), Akinwumi Adesina, in his re-election bid despite allegations of improper conduct.`\
+https://nytimes.com/reuters/2020/06/02/world/africa/02reuters-africa-bank-nigeria-adesina.html?searchResultPosition=4
+
+**Before Deliberately Infecting People With Coronavirus, Be Sure It’s Worth It**\
+`Big questions about ‘challenge trials’ to test vaccines might be addressed while ethical and scientific preparation starts.`\
+https://nytimes.com/2020/06/02/opinion/coronavirus-vaccine-challenge-trials.html?searchResultPosition=5
+
 **Closing Prices for Crude Oil, Gold and Other Commodities**\
 `Benchmark U.S. crude oil for July delivery rose $1.37 to settle at $36.81 a barrel Tuesday. Brent crude oil for August delivery rose $1.25 to $39.57 a barrel. `\
-https://nytimes.com/aponline/2020/06/02/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/02/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=6
 
 **Pennsylvania Primary Election Results: 18th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/02/us/elections/results-pennsylvania-house-district-18-primary-election.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/06/02/us/elections/results-pennsylvania-house-district-18-primary-election.html?searchResultPosition=7
 
 **South Dakota Republican Primary Election Results: At-Large Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/02/us/elections/results-south-dakota-house-district-at-large-republican-primary-election.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/06/02/us/elections/results-south-dakota-house-district-at-large-republican-primary-election.html?searchResultPosition=8
 
 **New Mexico Primary Election Results: First Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/02/us/elections/results-new-mexico-house-district-1-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/06/02/us/elections/results-new-mexico-house-district-1-primary-election.html?searchResultPosition=9
 
 **Montana Primary Election Results: At-Large Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/02/us/elections/results-montana-house-district-at-large-primary-election.html?searchResultPosition=8
-
-**Pennsylvania Primary Election Results: 10th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/02/us/elections/results-pennsylvania-house-district-10-primary-election.html?searchResultPosition=9
-
-**Live: Indiana State Primary Election Results 2020**\
-``\
-https://nytimes.com/interactive/2020/06/02/us/elections/results-indiana-primary-elections.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/02/us/elections/results-montana-house-district-at-large-primary-election.html?searchResultPosition=10
 
