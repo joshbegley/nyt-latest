@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/06/02/business/02reuters-eu-antitrust-tool.html
 https://nytimes.com/reuters/2020/06/02/us/politics/02reuters-usa-election-biden.html?searchResultPosition=7
 
 **Wes Unseld, NBA Rookie of Year and MVP in 1969, Dies at 74**\
-`Wes Unseld, one of two players in NBA history to win Rookie of the Year and MVP awards in the same season, died Tuesday. He was 74.`\
+`Wes Unseld, the workmanlike Hall of Fame center who led Washington to its only NBA championship and was chosen one of the 50 greatest players in league history, died Tuesday after a series of health issues, most recently pneumonia. He was 74.`\
 https://nytimes.com/aponline/2020/06/02/sports/basketball/ap-bkn-obit-unseld.html?searchResultPosition=8
 
 **Motorcycling: Nine-Times World Champion Ubbiali Dead at 90**\
