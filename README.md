@@ -1,28 +1,28 @@
+**Some Governors Balk at Trump Request to Send Troops to DC**\
+`Some governors are rejecting President Donald Trump's request to send National Guard troops to Washington, D.C., for a massive militarized show of force in the nation’s capital after several days of unrest over the death of George Floyd.`\
+https://nytimes.com/aponline/2020/06/02/us/politics/ap-us-america-protests-national-guard.html?searchResultPosition=4
+
+**Zoom Booms as Pandemic Drives Millions to Its Video Service**\
+`Zoom Video Communications is rapidly emerging as the latest internet gold mine as millions of people flock to its conferencing service to see colleagues, friends and family while tethered to their homes during the pandemic.`\
+https://nytimes.com/aponline/2020/06/02/business/bc-us-zoom-boom.html?searchResultPosition=5
+
+**Rooftop Movie Entertains Violent Venezuelan Barrio During Quarantine**\
+`The sprawling working-class area of Petare on the east side of Venezuela's capital of Caracas has made headlines recently for brutal gang battles that raged for days despite a nationwide quarantine to prevent the spread of the coronavirus. `\
+https://nytimes.com/reuters/2020/06/02/arts/02reuters-health-coronavirus-venezuela-film.html?searchResultPosition=6
+
+**SAT Drops Plans for Home Exam Amid Technology Concerns**\
+`The company that administers the SAT college entrance exam is scrapping plans to provide a home version of the test this year, saying it can't guarantee all students would have access to the needed technology.`\
+https://nytimes.com/aponline/2020/06/02/us/ap-us-virus-outbreak-sat-exams.html?searchResultPosition=7
+
+**Experts Watch as Rio De Janeiro Economy Starts to Reopen**\
+`Rio de Janeiro, one of the cities worst hit by COVID-19 in Brazil, slowly started to reopen on Tuesday, more than two months after non-essential businesses were forced to shut down in order to limit the spread of the new coronavirus.`\
+https://nytimes.com/aponline/2020/06/02/world/americas/ap-lt-virus-outbreak-rio.html?searchResultPosition=8
+
+**Bell, Telus Give 5G Contracts to Europeans, Huawei Shut Out**\
+`Two of Canada’s three major telecommunication companies announced Tuesday they’ve decided not to use Chinese tech giant Huawei for their next-generation 5G wireless network. `\
+https://nytimes.com/aponline/2020/06/02/business/bc-cn-canada-huawei.html?searchResultPosition=9
+
 **Argentina Says May Tax Revenue Up 12.4% vs May 2019**\
 `Argentina brought in 499.53 billion pesos ($7.288 billion) in May tax revenue, up 12.4% versus the same month last year, official data showed on Tuesday.`\
-https://nytimes.com/reuters/2020/06/02/world/americas/02reuters-argentina-tax-revenue.html?searchResultPosition=4
-
-**Recent College Grads Benefiting From Impact of Landmark ADA**\
-`Recent college graduates with disabilities are as likely as their peers without disabilities to hold jobs, according to a national survey that suggests they have benefited from coming of age under the Americans with Disabilities Act. `\
-https://nytimes.com/aponline/2020/06/02/us/ap-us-college-graduates-disabilities.html?searchResultPosition=5
-
-**Elsa Dorfman, Who Made Art With Giant Polaroids, Dies at 83**\
-`She used a 200-pound camera for her natural portraits of everyday subjects and celebrities. But as technology changed, her equipment and materials began to fade.`\
-https://nytimes.com/2020/06/02/arts/elsa-dorfman-who-made-art-with-giant-polaroids-dies-at-83.html?searchResultPosition=6
-
-**Robb Forman Dew, Novelist Who Wrote of Families, Dies at 73**\
-`Her well-regarded books chronicled day-to-day life, spurning fast-paced gimmicks in favor of carefully built portraits.`\
-https://nytimes.com/2020/06/02/books/robb-forman-dew-dies.html?searchResultPosition=7
-
-**Minnesota Files Civil Rights Charge Against Police Over Floyd Death**\
-`The state of Minnesota on Tuesday filed a civil rights charge against the Minneapolis Police Department over the death of George Floyd and said it would investigate the department to see if it engaged in systemic discriminatory practices.`\
-https://nytimes.com/reuters/2020/06/02/us/02reuters-minneapolis-police-protests-complaint.html?searchResultPosition=8
-
-**Zoom Raises Full-Year Revenue Outlook on Remote-Work Boost**\
-`Zoom Video Communications Inc raised its full-year revenue forecast on Tuesday, riding on a surge in usage of its video conferencing platform as people turn to virtual meetings to stay connected and work remotely amid broader stay-at-home measures.`\
-https://nytimes.com/reuters/2020/06/02/business/02reuters-zoom-video-commn-results.html?searchResultPosition=9
-
-**Former CEO Pleads Guilty in U.S. College Admissions Scandal**\
-`The former chief executive of ASGN Inc pleaded guilty on Tuesday to participating in a vast U.S. college admissions fraud scheme by paying $300,000 to secure his son's admission to Georgetown University as a fake tennis recruit.`\
-https://nytimes.com/reuters/2020/06/02/arts/02reuters-usa-education-cheating.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/02/world/americas/02reuters-argentina-tax-revenue.html?searchResultPosition=10
 
