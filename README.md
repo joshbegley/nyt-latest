@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-g7-summit-usa-aust
 `The dollar was on the back foot on Tuesday as investors maintained their hope in a global economic recovery, despite growing concerns over U.S.-China tensions and mass protests across America over the death of a black man in police custody.`\
 https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-global-forex.html?searchResultPosition=8
 
-**Australia Central Bank Sees Glimmer of Hope as Economy Restarts After Pandemic Shutdown**\
+**Australia Central Bank Pins Hope on Quicker Economic Recovery After Pandemic Shutdown**\
 `Australia's central bank held rates at all-time lows on Tuesday and sounded less gloomy as the economy gradually re-opens during what is likely to be the worst quarter since the Great Depression.`\
 https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-australia-economy-rba-wrap.html?searchResultPosition=9
 
