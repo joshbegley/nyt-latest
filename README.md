@@ -1,28 +1,28 @@
+**Japan's Cash Balance Hits New High as Central Bank Pumps Money to Combat Pandemic**\
+`The balance of money circulating in Japan's economy reached $5 trillion in May, hitting a record high for the second straight month, as the central bank pumped more cash to cushion the blow to businesses and consumers from the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-japan-economy-boj.html?searchResultPosition=4
+
+**Gulf Countries to Experience Worst Economic Crisis in History: IIF**\
+`The six Gulf Cooperation Council (GCC) nations are facing their worst economic crisis in history amid the double shock of plunging oil prices and the coronavirus pandemic, the Institute of International Finance (IIF) said.`\
+https://nytimes.com/reuters/2020/06/02/world/middleeast/02reuters-gulf-economy-iif.html?searchResultPosition=5
+
+**Will Temperature Checks of Employees Make Workplaces Safe?**\
+`Will temperature checks of employees make workplaces safe?`\
+https://nytimes.com/aponline/2020/06/02/us/ap-us-virus-outbreak-viral-questions-fever-screening.html?searchResultPosition=6
+
+**Paris Cafes, Restaurants Partially Reopen Post-Lockdown**\
+`Parisians who have been cooped up for months with takeout food and coffee will be able to savor their steaks tartare in the fresh air and cobbled streets of the City of Light once more — albeit in smaller numbers..`\
+https://nytimes.com/aponline/2020/06/02/business/ap-eu-virus-outbreak-france-cafes-reopen.html?searchResultPosition=7
+
 **Taiwan Says Planned Stimulus Coupons Could Boost Consumer Spending by $3 Billion**\
 `Taiwan said on Tuesday that planned "stimulus coupons" for its  coronavirus-hit economy could boost consumer spending by T$100 billion ($3.3 billion) this year.`\
-https://nytimes.com/reuters/2020/06/02/us/02reuters-health-coronavirus-taiwan-economy.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/02/us/02reuters-health-coronavirus-taiwan-economy.html?searchResultPosition=8
 
 **New Coronavirus Cases in Hong Kong Raise Concerns of Local Cluster**\
 `A cluster of nine coronavirus cases raised concerns in Hong Kong over renewed local transmission in a city that has been one of the most successful in keeping the pandemic under control.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-health-coronavirus-hongkong.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-health-coronavirus-hongkong.html?searchResultPosition=9
 
 **Japan's Naomi Osaka Adds Voice to U.S. Protests: 'Silence Is Betrayal'**\
 `Japanese tennis player Naomi Osaka has added her voice to protests over the death of an African-American man in U.S. police custody, criticising people for tweeting more about lootings than his death.`\
-https://nytimes.com/reuters/2020/06/02/sports/tennis/02reuters-minneapolis-police-protests-osaka.html?searchResultPosition=6
-
-**New Zealand May Remove All Virus Restriction Next Week**\
-`New Zealand's Prime Minister said on Tuesday that all remaining restrictions to limit the spread of the coronavirus may be lifted next week, after the country all but eliminated the virus domestically.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-minneapolis-police-protests-newzealand.html?searchResultPosition=7
-
-**Seadrill Books $1.2 Billion Impairment, Eyes Restructuring**\
-`Seadrill has written down the value of its oil drilling rigs by $1.2 billion and hired bankers and lawyers to evaluate a financial restructuring that could allow the company to reduce its $7.4 billion debt, it said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-health-coronavirus-seadrill-results.html?searchResultPosition=8
-
-**Australian PM Accepts G7 Invitation During Call With Trump**\
-`Australia will accept an invitation to attend a Group of Seven (G7) nations meeting, Australian Prime Minister Scott Morrison told U.S. President Donald Trump on Tuesday.    `\
-https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-g7-summit-usa-australia.html?searchResultPosition=9
-
-**Dollar on Defensive as Investors Stick With Risk, for Now**\
-`The dollar was on the back foot on Tuesday as investors maintained their hope in a global economic recovery, despite growing concerns over U.S.-China tensions and mass protests across America over the death of a black man in police custody.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-global-forex.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/02/sports/tennis/02reuters-minneapolis-police-protests-osaka.html?searchResultPosition=10
 
