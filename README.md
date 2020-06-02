@@ -1,28 +1,28 @@
-**Cuomo Criticizes de Blasio Over Looting as 8 P.M. Curfew Is Set: Live Updates**\
-`Mayor Bill de Blasio said a citywide curfew would be imposed for the remainder of the week, from 8 p.m. each evening until 5 a.m. the next morning.`\
-https://nytimes.com/2020/06/02/nyregion/nyc-protests-george-floyd.html?searchResultPosition=4
+**F1 Champion Hamilton 'Overcome With Rage' at Racial Injustice**\
+`Six times Formula One motor racing world champion Lewis Hamilton said on Tuesday he felt "completely overcome with rage" as he urged people to speak out against racism and stand up for justice.`\
+https://nytimes.com/reuters/2020/06/02/sports/autoracing/02reuters-minneapolis-police-protests-hamilton.html?searchResultPosition=4
 
-**Groups Condemn Detainment of Journalists in Atlanta Protests**\
-`Journalism organizations are condemning authorities' detainment of two journalists who were covering protests in Atlanta.`\
-https://nytimes.com/aponline/2020/06/02/us/ap-us-america-protests-journalists-detained.html?searchResultPosition=5
+**Hall of Famer Wes Unseld Dies Aged 74**\
+`Basketball Hall of Fame center Wes Unseld, an elite rebounder who led Washington to their only NBA championship in 1978, died on Tuesday, aged 74, his family said.`\
+https://nytimes.com/reuters/2020/06/02/sports/basketball/02reuters-basketball-nba-unseld.html?searchResultPosition=5
 
-**Major Employers Left Out of Government’s Coronavirus Relief Plan**\
-`Programs to help businesses weather the pandemic largely omit some indebted companies, Harvard economists found.`\
-https://nytimes.com/2020/06/02/business/economy/major-employers-coronavirus-relief.html?searchResultPosition=6
+**On the Streets of Washington, Pleas for Change Met With Batons and Rubber Bullets**\
+`They had come out by the hundreds on the streets of the U.S. capital to protest racism and police brutality. With a curfew fast approaching, they had only a few hours to make their voices heard. `\
+https://nytimes.com/reuters/2020/06/02/us/02reuters-minneapolis-police-washingtondc.html?searchResultPosition=6
 
-**Nigeria's President Backs Embattled African Development Bank Chief**\
-`Nigerian President Muhammadu Buhari on Tuesday gave his backing to the head of the African Development Bank (AfDB), Akinwumi Adesina, in his re-election bid despite allegations of improper conduct.`\
-https://nytimes.com/reuters/2020/06/02/world/africa/02reuters-africa-bank-nigeria-adesina.html?searchResultPosition=7
+**U.S. Senator Wants Defense Bill to Ban Use of Military Against Peaceful Protests**\
+`A Democratic U.S. senator said on Tuesday he would try to make it illegal for President Donald Trump to use the military against protesters, after days of demonstrations over the killing of George Floyd, a black man who died as a white policeman kneeled on his neck.`\
+https://nytimes.com/reuters/2020/06/02/us/politics/02reuters-minneapolis-police-defense-bill.html?searchResultPosition=7
 
-**Before Deliberately Infecting People With Coronavirus, Be Sure It’s Worth It**\
-`Big questions about ‘challenge trials’ to test vaccines might be addressed while ethical and scientific preparation starts.`\
-https://nytimes.com/2020/06/02/opinion/coronavirus-vaccine-challenge-trials.html?searchResultPosition=8
+**Teens at Dallas Cafe Make Meal Kits for Needy Amid COVID-19**\
+`Chef Chad Houser opened his downtown Dallas restaurant five years ago to help give teens coming out of juvenile detention stability, and a push toward success. `\
+https://nytimes.com/aponline/2020/06/02/us/ap-us-virus-outbreak-one-good-thing-dallas-restaurateur-1st-ld-w.html?searchResultPosition=8
 
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark U.S. crude oil for July delivery rose $1.37 to settle at $36.81 a barrel Tuesday. Brent crude oil for August delivery rose $1.25 to $39.57 a barrel. `\
-https://nytimes.com/aponline/2020/06/02/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=9
+**‘We Are Powerful. We Are Strong.’ Scenes From Peaceful Protests in Brooklyn**\
+`Amid a night of unrest in Manhattan, peaceful demonstrations against police brutality took place across Brooklyn.`\
+https://nytimes.com/video/us/100000007170104/brooklyn-protests-george-floyd.html?searchResultPosition=9
 
-**Pennsylvania Primary Election Results: 18th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/02/us/elections/results-pennsylvania-house-district-18-primary-election.html?searchResultPosition=10
+**LVMH-Tiffany Deal Seen as Uncertain: WWD**\
+`French luxury goods group LVMH's board called a meeting in Paris to discuss its $16.`\
+https://nytimes.com/reuters/2020/06/02/business/02reuters-tiffany-m-a-lvmh.html?searchResultPosition=10
 
