@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/06/02/world/americas/02reuters-mexico-venezuela
 `A California appeals court on Tuesday heard arguments in the first case that went to trial over allegations that Bayer AG's glyphosate-based weed killer Roundup causes cancer, resulting in a $289 million judgment against the company.`\
 https://nytimes.com/reuters/2020/06/02/business/02reuters-bayer-glyphosate-lawsuit.html?searchResultPosition=7
 
-**French Daily Coronavirus Death Toll Beyond the 100 Mark**\
-`France's coronavirus death toll rose by more than a 100 for the first time in 13 days on Tuesday, as the country enacts a new easing of lockdown measures.`\
+**France's Coronavirus Death Toll Up but Hospitalizations Down**\
+`France's coronavirus death toll rose by more than a 100 for the first time in 13 days on Tuesday, an increase that includes  nursing homes data again after a three-day interruption.`\
 https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-health-coronavirus-france-casualties.html?searchResultPosition=8
 
 **Protests in Top 25 Virus Hot Spots Ignite Fears of Contagion**\
