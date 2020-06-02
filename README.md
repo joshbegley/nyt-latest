@@ -1,28 +1,28 @@
+**India Launches $6.7 Billion Plan to Boost Electronics Manufacturing**\
+`India launched a $6.65 billion plan on Tuesday to boost electronics manufacturing, saying it would start by offering five global smartphone makers incentives to establish or expand domestic production.`\
+https://nytimes.com/reuters/2020/06/02/technology/02reuters-india-electronics.html?searchResultPosition=4
+
+**Watch Live: Biden Visits Philadelphia**\
+`Former Vice President Joseph R. Biden Jr. will speak in Philadelphia to address protests against police brutality.`\
+https://nytimes.com/video/us/elections/100000007169461/watch-live-biden-visits-philadelphia.html?searchResultPosition=5
+
+**The Sacrosanct Endowment? Not Anymore for Some Arts Groups**\
+`Some cultural organizations, staggered by the financial upheaval caused by the coronavirus pandemic, are dipping heavily into their endowments. Others are thinking about it.`\
+https://nytimes.com/2020/06/02/arts/endowments-coronavirus.html?searchResultPosition=6
+
+**Crowds Define Opera. They’re Also Keeping It From Returning.**\
+`As the Metropolitan Opera announces that it will remain closed through the year, our critic reflects on the chorus scenes he will miss the most.`\
+https://nytimes.com/2020/06/02/arts/music/met-opera-fall-canceled-coronavirus.html?searchResultPosition=7
+
+**Norah Jones Enjoys a Weekly Christmas, and Sweating to the (Not So) Oldies**\
+`The musician shares the movies, podcast, book and music that top her list of cultural essentials.`\
+https://nytimes.com/2020/06/02/arts/music/norah-jones-favorites.html?searchResultPosition=8
+
 **Column: A Quiet, Measured Response From Golf on Civil Unrest**\
 `Golf has never been known to move quickly.`\
-https://nytimes.com/aponline/2020/06/02/sports/golf/ap-glf-on-the-fringe-civil-unrest.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/02/sports/golf/ap-glf-on-the-fringe-civil-unrest.html?searchResultPosition=9
 
 **U.S. Rebukes China for Border 'Aggression' With India**\
 `U.S. Secretary of State Mike Pompeo and a senior congressional leader have reprimanded China for bullying behaviour towards India during a military standoff on their disputed border.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-india-china.html?searchResultPosition=5
-
-**U.S. Ambassador to Germany Grenell Steps Down**\
-`U.S. Ambassador to Germany Richard Grenell, a close political ally of President Donald Trump, has resigned after little more than two years in the job, an embassy spokesman said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-germany-usa.html?searchResultPosition=6
-
-**AP PHOTOS: Peru's Dead Mourned at Barren Cemetery for Poor**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/06/02/world/americas/ap-lt-virus-outbreak-peru-cemetery.html?searchResultPosition=7
-
-**Afghan Testing Lapse Suggests Growing and Hidden Coronavirus Crisis**\
-`Fewer than one in 10 of coronavirus test samples collected daily in Afghanistan are being processed, officials said on Tuesday, and of those more than 30% are consistently testing positive, suggesting a high and hidden number of infections.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-health-coronavirus-afghanistan.html?searchResultPosition=8
-
-**Sri Lanka's Supreme Court Won't Annul Parliament Dissolution**\
-`Sri Lanka’s Supreme Court declined on Tuesday to consider petitions filed by opposition parties and civil groups seeking to annul a presidential order dissolving Parliament because the coronavirus pandemic has prevented elections within the constitutionally mandated time.`\
-https://nytimes.com/aponline/2020/06/02/world/asia/ap-as-sri-lanka-politics.html?searchResultPosition=9
-
-**Joe Biden to Address Floyd Killing and Protests in Philadelphia Speech**\
-`With protests and the coronavirus roiling the nation, how Mr. Biden handles the coming weeks could define his candidacy, and there is a sense of increasing urgency among his allies to see him leading from the ground.`\
-https://nytimes.com/2020/06/02/us/politics/joe-biden-philadelphia-protests.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-india-china.html?searchResultPosition=10
 
