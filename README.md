@@ -1,40 +1,40 @@
+**UK's Johnson Pledges to Let in Hong Kong Citizens if Needed**\
+`British Prime Minister Boris Johnson said Wednesday that the United Kingdom stands ready to open the door to almost 3 million Hong Kong citizens as the city's leader arrived in Beijing for meetings on a planned national security law that has many worried about their futures.`\
+https://nytimes.com/aponline/2020/06/03/world/asia/ap-as-hong-kong-china.html?searchResultPosition=1
+
+**Zuckerberg Still Under Fire Over Inflammatory Trump Posts**\
+`Facebook CEO Mark Zuckerberg isn’t budging over his refusal to take action on inflammatory posts by President Donald Trump that spread misinformation about voting by mail and, many said, encouraged violence against protesters. `\
+https://nytimes.com/aponline/2020/06/03/business/ap-us-facebook-trump-resignations.html?searchResultPosition=2
+
+**Steve King, House Republican With a History of Racist Remarks, Loses Primary**\
+`Mr. King, one of the nation’s most divisive elected officials, saw his power in Congress curtailed last year after he questioned why white supremacy was considered offensive.`\
+https://nytimes.com/2020/06/03/us/politics/steve-king-iowa-primary.html?searchResultPosition=3
+
+**U.S. Firms Concerned as Tensions Simmer in Hong Kong Over Looming Legislation**\
+`A survey of U.S. businesses on Wednesday revealed deep fears for the future of their operations in Hong Kong if China imposes national security legislation that critics say could curb the financial centre's freedoms and fuel ongoing protests.`\
+https://nytimes.com/reuters/2020/06/03/world/asia/03reuters-hongkong-protests.html?searchResultPosition=4
+
+**Mexico's President Goes Full-Steam Ahead With Mayan Train**\
+`Residents of Mexico's Yucatan peninsula remember riding trains to visit relatives or sell their produce decades ago, so when President Andrés Manuel López Obrador made a nostalgic pitch to build a “Mayan train” through the region's jungles the mainly indigenous residents were initially receptive to the idea.`\
+https://nytimes.com/aponline/2020/06/03/world/americas/ap-lt-mexico-mayan-train.html?searchResultPosition=5
+
 **New Zealand Could Return to Normal Life as Early as Next Week**\
 `New Zealand Prime Minister Jacinda Ardern said on Wednesday she could lift all social distancing measures to return the country to normal life, bar the international border closure, as early as next week.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-health-coronavirus-newzealand.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-health-coronavirus-newzealand.html?searchResultPosition=6
 
 **As Asia's Tropical Storm Season Arrives, Grounded Airplanes at Risk of Damage**\
 `Airlines, airports and insurers across Asia are bracing for the prospect of unusually high damage as the region's tropical storm season begins, as hundreds of aircraft grounded by the coronavirus pandemic can't be moved easily.`\
-https://nytimes.com/reuters/2020/06/02/business/02reuters-health-coronavirus-airlines-insurance.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/02/business/02reuters-health-coronavirus-airlines-insurance.html?searchResultPosition=7
 
 **Friends Mourn Ex-Indiana Football Player Slain During Unrest**\
 `To those who knew former Indiana University football player Chris Beaty, it was no surprise that he would participate in a protest over the death of George Floyd.`\
-https://nytimes.com/aponline/2020/06/02/sports/ap-us-america-protests-indiana-death.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/06/02/sports/ap-us-america-protests-indiana-death.html?searchResultPosition=8
 
 **Germany Says Coronavirus Infections Rise 342 to 182,370**\
 `The number of confirmed coronavirus cases in Germany increased by 342 to 182,370, data from the Robert Koch Institute (RKI) for infectious diseases showed on Wednesday.`\
-https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-health-coronavirus-germany-cases.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/02/world/europe/02reuters-health-coronavirus-germany-cases.html?searchResultPosition=9
 
 **Kings Broadcaster Resigns After Tweet to Cousins**\
 `Longtime Sacramento Kings TV broadcaster Grant Napear resigned Tuesday after he tweeted “ALL LIVES MATTER” when asked by DeMarcus Cousins for his opinion on the Black Lives Matter movement.`\
-https://nytimes.com/aponline/2020/06/02/sports/basketball/ap-bkn-kings-napear.html?searchResultPosition=5
-
-**G7 Finance Leaders to Hold Virus Telecon on Weds, Japan's Jiji Says**\
-`Finance leaders of the Group of Seven nations will hold a teleconference on Wednesday to discuss measures to combat the coronavirus pandemic, Japan's Jiji news agency said.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-health-coronavirus-g7.html?searchResultPosition=6
-
-**Philippines Firm Bids $535 Million for Australia's Infigen Energy**\
-`Philippine conglomerate Ayala Corp has made a bid worth A$777 million ($535 million) to buy Infigen Energy, pouncing on the Australian renewables company at a time when wind and solar firms are battling falling power prices.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-infigen-m-a-uac-energy.html?searchResultPosition=7
-
-**Venezuela Government, Opposition Agree to Seek Funds to Fight Coronavirus**\
-`Venezuela's government has signed an agreement with the opposition-led National Assembly to work with the regional arm of the World Health Organization to fight the novel coronavirus pandemic, Information Minister Jorge Rodriguez said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/02/world/americas/02reuters-health-coronavirus-venezuela.html?searchResultPosition=8
-
-**China's Services Sector Bounces Back Into Growth, Job Losses Continue: Caixin PMI**\
-`China's services sector returned to growth last month for the first time since January as the economy recovers from strict coronavirus-induced containment measures, although employment and overseas demand remained weak, a private survey showed.`\
-https://nytimes.com/reuters/2020/06/02/world/asia/02reuters-china-economy-pmi.html?searchResultPosition=9
-
-**WhatsApp, Paypal Invest in Indonesian Payment and Ride-Hailing Firm Gojek**\
-`Facebook Inc messaging platform WhatsApp and Paypal Holdings Inc on Wednesday said they have invested in payment and ride-hailing firm Gojek as part of the Indonesian firm's ongoing fundraising round.`\
-https://nytimes.com/reuters/2020/06/02/technology/02reuters-gojek-funding-facebook-paypal.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/02/sports/basketball/ap-bkn-kings-napear.html?searchResultPosition=10
 
