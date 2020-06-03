@@ -6,7 +6,7 @@ https://nytimes.com/2020/06/02/smarter-living/should-you-reach-out-to-a-former-f
 `Johanna Fennimore tells us a story.`\
 https://nytimes.com/2020/06/02/crosswords/daily-puzzle-2020-06-03.html?searchResultPosition=2
 
-**A Walk Meant to Convey Grit Evokes Trump’s Dark Side Instead**\
+**How Trump’s Idea for a Photo Op Led to Havoc in a Park**\
 `When the history of the Trump presidency is written, the clash with protesters that preceded President Trump’s walk across Lafayette Square may be remembered as one of its defining moments.`\
 https://nytimes.com/2020/06/02/us/politics/trump-walk-lafayette-square.html?searchResultPosition=3
 
