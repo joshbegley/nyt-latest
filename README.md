@@ -22,8 +22,8 @@ https://nytimes.com/video/us/100000007172793/minnesota-officials-charge-derek-ch
 `Here’s what you need to know at the end of the day.`\
 https://nytimes.com/2020/06/03/briefing/minneapolis-barack-obama-e-bikes.html?searchResultPosition=6
 
-**Car Drives Onto Sidewalk Cafe in Southern Netherlands, Injuring Six: ANP News Agency**\
-`A car drove into an outdoor cafe in the southern Netherlands on Wednesday night, injuring six people, national news agency ANP reported.`\
+**Car Drives Onto Sidewalk Cafe in Southern Netherlands, Injuring Six**\
+`A car drove into an outdoor cafe in the southern Netherlands on Wednesday night, injuring six people, one of them seriously, police said. `\
 https://nytimes.com/reuters/2020/06/03/world/europe/03reuters-netherlands-cafe-injuries.html?searchResultPosition=7
 
 **North Dakota Tribe to Fight Ruling Giving Minerals to State**\
