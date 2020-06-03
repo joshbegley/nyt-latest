@@ -1,40 +1,40 @@
-**Jimmy Carter: Privileged, Powerful Must Fight Racial Biases**\
-`Former President Jimmy Carter called Wednesday for Americans in positions of power and influence to fight racial injustice, saying “silence can be as deadly as violence.”`\
-https://nytimes.com/aponline/2020/06/03/us/ap-us-america-protests-jimmy-carter.html?searchResultPosition=1
+**First-Time Gun Owners at Risk for Suicide, Major Study Confirms**\
+`Men were eight times more likely to kill themselves by gunshot than non-owners. Women were 35 times more likely.`\
+https://nytimes.com/2020/06/03/health/suicide-guns-firearms.html?searchResultPosition=1
 
-**Floyd Memorial Will Retrace Life, Push for Justice in Death**\
-`The memorial services to honor George Floyd are extraordinary: three cities over six days, with a chance for mourners to pay their respects in the communities where he was born, grew up, and died. `\
-https://nytimes.com/aponline/2020/06/03/us/ap-us-george-floyd-funerals.html?searchResultPosition=2
+**Fossilized Stomach Contents Show Armored Dinosaur's Leafy Last Meal**\
+`In a forest rebounding after a wildfire 110 million years ago, an armored dinosaur devoured a meal of tender ferns in western Canada before suffering a sudden death - perhaps drowning in a river or a flash flood - and being washed out to sea.`\
+https://nytimes.com/reuters/2020/06/03/us/03reuters-science-dinosaur.html?searchResultPosition=2
 
-**How Major US Stock Indexes Fared Wednesday**\
-`Stocks rallied again on Wall Street Wednesday, and the S&P 500 climbed back to where it was just one week after it set its all-time high earlier this year. `\
-https://nytimes.com/aponline/2020/06/03/business/ap-financial-markets-box.html?searchResultPosition=3
+**'We Want to Be Better': Major League Baseball on Death of George Floyd**\
+`Major League Baseball (MLB) called for action "both within our sport and society," after the death of George Floyd in police custody in Minneapolis prompted protests and calls for reform across the United States. `\
+https://nytimes.com/reuters/2020/06/03/sports/baseball/03reuters-minneapolis-police-sports-mlb.html?searchResultPosition=3
 
-**Zoom, Cheesecake Factory Rise; HealthEquity, Ambarella Fall**\
-`Stocks that moved heavily or traded substantially on Wednesday:`\
-https://nytimes.com/aponline/2020/06/03/business/ap-financial-markets-stocks.html?searchResultPosition=4
+**Norris Drives an F3 Car Ahead of F1 Return**\
+`After COVID-19 lockdown and months of virtual racing, McLaren's Lando Norris has got behind the wheel for real by taking a Formula Three car for a spin at Silverstone.`\
+https://nytimes.com/reuters/2020/06/03/sports/autoracing/03reuters-health-coronavirus-f1-norris.html?searchResultPosition=4
 
-**Modern Love Podcast: Hasan Minhaj Reads ‘Researching Jenna, Discovering Myself’**\
-`The host of “Patriot Act” reads an essay about how past trauma informs the present.`\
-https://nytimes.com/2020/06/03/style/modern-love-podcast-hasan-minhaj.html?searchResultPosition=5
+**Handling of Street Protests Creates Crisis for Pentagon Boss**\
+`Defense Secretary Mark Esper is facing the most politically charged crisis of his tenure, criticized for calling protester-filled streets a military “battle space” and accused of failing to keep the military out of politics. `\
+https://nytimes.com/aponline/2020/06/03/us/politics/ap-us-esper.html?searchResultPosition=5
 
-**Horse Named for Dr. Anthony Fauci Finishes Second in Debut**\
-`A racehorse named for Dr. Anthony Fauci finished second in his debut Wednesday at Belmont Park in New York.`\
-https://nytimes.com/aponline/2020/06/03/sports/ap-rac-horse-racing-fauci.html?searchResultPosition=6
+**Democrats' Bid to Pass Coronavirus Small Business Bill Stalls in U.S. Senate**\
+`U.S. Republican Senator Ron Johnson on Wednesday stopped an attempt by Democrats to immediately pass a bill giving small businesses more flexibility in using new federal loans during the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/03/us/politics/03reuters-health-coronavirus-usa-ppp.html?searchResultPosition=6
 
-**Broncos Coach Apologizes After Suggesting NFL Free of Racism**\
-`Denver Broncos coach Vic Fangio is apologizing for suggesting discrimination and racism aren’t problems in the NFL.`\
-https://nytimes.com/aponline/2020/06/03/sports/football/ap-fbn-america-protests-fangio-apology.html?searchResultPosition=7
+**Palestinians Snub Tax Handover by Israel Over Annexation Plan**\
+`The Palestinians said on Wednesday they were rejecting taxes collected on their behalf by Israel, an escalation of measures in protest of Israel's plan to annex parts of the occupied West Bank. `\
+https://nytimes.com/reuters/2020/06/03/world/middleeast/03reuters-israel-palestinians.html?searchResultPosition=7
 
-**Finland's PM Says She Hopes to Give Birth While in Office**\
-`Finland's Prime Minister Sanna Marin, the world's youngest leader at 34, told a magazine she would like to have a child while in office, which would make her only the third elected head of government to give birth while in power in modern times.`\
-https://nytimes.com/reuters/2020/06/03/world/europe/03reuters-finland-primeminister.html?searchResultPosition=8
+**Tonys Benefit Event Postponed Amid Unrest**\
+`Broadway.com delayed its “Show of Shows,” set to air Sunday online, in solidarity with those “in the fight for equality and unity” after George Floyd’s death, the site said.`\
+https://nytimes.com/2020/06/03/theater/tonys-benefit-postponed-floyd-protests.html?searchResultPosition=8
 
-**UK Business Minister Tested for COVID-19 After Lawmakers Return to Parliament**\
-`British business minister Alok Sharma has been tested for COVID-19 after feeling unwell in parliament on Wednesday, just a day after the government required hundreds of legislators to resume voting in person.`\
-https://nytimes.com/reuters/2020/06/03/world/europe/03reuters-health-coronavirus-britain-sharma.html?searchResultPosition=9
+**Heart Patients Avoided ERs as Coronavirus Hit, US Study Says**\
+`Emergency room visits in the U.S. for chest pain and heart attacks fell early this spring, according to a study that supports fears that the coronavirus outbreak scared away people from going to the hospital.`\
+https://nytimes.com/aponline/2020/06/03/health/ap-us-med-virus-outbreak-er-visits.html?searchResultPosition=9
 
-**Iran Says Coronavirus Restrictions Could Return if Second Wave Hits**\
-`Iran's president warned the public on Wednesday that restrictions may have to be reimposed to fight the coronavirus if the country is hit by a second wave of infections, after authorities announced the most new cases in a day since March.`\
-https://nytimes.com/reuters/2020/06/03/world/middleeast/03reuters-health-coronavirus-iran.html?searchResultPosition=10
+**Amazon Leases 12 Aircraft to Bolster Air Cargo Fleet**\
+`Amazon.com Inc said on Wednesday it leased 12 Boeing 767-300 converted cargo aircraft from Air Transport Services Group Inc, bringing its total fleet to more than 80, as it pushes for faster delivery to meet a surge in online orders.`\
+https://nytimes.com/reuters/2020/06/03/business/03reuters-amazon-aircraft.html?searchResultPosition=10
 
