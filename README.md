@@ -26,7 +26,7 @@ https://nytimes.com/reuters/2020/06/03/world/asia/03reuters-china-tiananmen-eu.h
 `The German government has agreed on a bill that would speed up the dismissal of soldiers involved in extremism or serious crimes.`\
 https://nytimes.com/aponline/2020/06/03/world/europe/ap-eu-germany-army-extremism.html?searchResultPosition=7
 
-**EU Classifies Coronavirus as Mid-Level Threat to Workers**\
+**Coronavirus Is Not High Threat to Workers, EU Says**\
 `The European Commission decided on Wednesday to classify the new coronavirus as a mid-level threat to workers, a move that allows employers in the EU to apply less stringent safety measures in the workplace than if the virus was deemed a high risk.`\
 https://nytimes.com/reuters/2020/06/03/us/03reuters-health-coronavirus-eu-workers.html?searchResultPosition=8
 
