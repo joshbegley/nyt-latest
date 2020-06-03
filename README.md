@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/06/02/us/ap-us-robert-durst-murder-trial.html?
 https://nytimes.com/2020/06/02/opinion/george-floyd-protests-first-amendment.html?searchResultPosition=2
 
 **Helicopter Crashes Onto Northern California Hillside**\
-`A helicopter with possibly three people board crashed onto a hillside next to a Northern California freeway on Tuesday, igniting a small fire and knocking out power to about 38,000 utility customers, authorities said.`\
+`A helicopter with possibly three people on board crashed onto a hillside next to a Northern California freeway on Tuesday, igniting a small fire and knocking out power to about 38,000 utility customers, authorities said.`\
 https://nytimes.com/aponline/2020/06/02/us/ap-us-helicopter-crash.html?searchResultPosition=3
 
 **Former Exec Pleads Guilty to Bribing Son's Way Into College**\
