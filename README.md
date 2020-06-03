@@ -2,13 +2,13 @@
 `I spent my early time in the city laboring over scale models for the artists.`\
 https://nytimes.com/2020/06/03/opinion/christo-artist-death.html?searchResultPosition=1
 
-**The Virus Closed His Bronx Jewelry Store. Then Looters Broke In**\
-`“I’m 100 percent with people who are protesting for justice, but is this justice?” one business owner said. “You’re killing me.”`\
-https://nytimes.com/2020/06/03/nyregion/george-floyd-bronx-protests-looting.html?searchResultPosition=2
-
 **A Documentary for the #MeToo Era, for Better and Worse**\
 `“On the Record” implicitly addresses longstanding criticism that black women have been overlooked in the conversation about sexual assault and power, but the film could have gone further.`\
-https://nytimes.com/2020/06/03/movies/metoo-documentary-russell-simmons.html?searchResultPosition=3
+https://nytimes.com/2020/06/03/movies/metoo-documentary-russell-simmons.html?searchResultPosition=2
+
+**The Virus Closed His Bronx Jewelry Store. Then Looters Broke In**\
+`“I’m 100 percent with people who are protesting for justice, but is this justice?” one business owner said. “You’re killing me.”`\
+https://nytimes.com/2020/06/03/nyregion/george-floyd-bronx-protests-looting.html?searchResultPosition=3
 
 **Walmart Drops Ammunition, Firearms on Display in Some Stores**\
 `Walmart says it has removed ammunition and firearms from displays at some of its stores in the wake of the killing of George Floyd that has set off sometimes violent demonstrations against police brutality and injustice against African Americans.`\
