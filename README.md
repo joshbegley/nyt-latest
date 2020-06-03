@@ -1,40 +1,40 @@
+**Nevada Betting on Health Safety as Las Vegas Casinos Reopen**\
+`After 58 days of historic quiet, cards will be cut, dice will roll and jackpots can jingle again 12:01 a.m. Thursday at casinos in Las Vegas and Nevada.`\
+https://nytimes.com/aponline/2020/06/03/business/bc-us-virus-outbreak-vegas-casinos.html?searchResultPosition=1
+
+**AP Report Raises Concerns About China and WHO; China Denies**\
+`At least two U.S. senators said Wednesday that China hid data from the World Health Organization that could have altered the course of the coronavirus outbreak, even as a Chinese official denied delays in sharing information and said the government acted openly and transparently.`\
+https://nytimes.com/aponline/2020/06/03/us/ap-eu-virus-outbreak-who-china-delays-reaction.html?searchResultPosition=2
+
 **‘Shirley’ Review: A Writer as Scary as Her Stories**\
 `Elisabeth Moss stars as Shirley Jackson in Josephine Decker’s gothic, feverish anti-biopic.`\
-https://nytimes.com/2020/06/03/movies/shirley-review.html?searchResultPosition=1
+https://nytimes.com/2020/06/03/movies/shirley-review.html?searchResultPosition=3
 
 **Closing Prices for Crude Oil, Gold and Other Commodities**\
 `Benchmark U.S. crude oil for July delivery rose 48 cents to settle at $37.29 a barrel Wednesday. Brent crude oil for August delivery rose 22 cents to $39.79 a barrel.`\
-https://nytimes.com/aponline/2020/06/03/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/06/03/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=4
 
 **EU, China Postpone September Summit Due to Pandemic**\
 `Germany says the European Union and China have agreed to postpone a summit planned for Sept. 14 because of the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/06/03/world/europe/ap-eu-europe-china-summit.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/06/03/world/europe/ap-eu-europe-china-summit.html?searchResultPosition=5
 
 **Watch Live: Obama Addresses George Floyd’s Death**\
 `Former President Barack Obama will make his first on-camera comments about the killing of George Floyd and the protests over police violence.`\
-https://nytimes.com/video/us/politics/100000007171835/obama-speech-town-hall-live.html?searchResultPosition=4
+https://nytimes.com/video/us/politics/100000007171835/obama-speech-town-hall-live.html?searchResultPosition=6
 
 **Malaria Drug Fails to Prevent COVID-19 in a Rigorous Study**\
 `A malaria drug President Donald Trump took to try to prevent COVID-19 proved ineffective for that in the first large, high-quality study to test it in health workers and others closely exposed to people with the disease. `\
-https://nytimes.com/aponline/2020/06/03/health/bc-us-med-virus-outbreak-malaria-drug.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/03/health/bc-us-med-virus-outbreak-malaria-drug.html?searchResultPosition=7
 
 **Snapchat to Stop 'Promoting' Trump Amid Uproar Over Tweets**\
 `Snapchat will stop “promoting” President Donald Trump on its video messaging service, the latest example of a social media platform adjusting how it treats this U.S. president. `\
-https://nytimes.com/aponline/2020/06/03/business/bc-us-snapchat-trump.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/06/03/business/bc-us-snapchat-trump.html?searchResultPosition=8
 
 **Ex-UAW President Pleads Guilty to Living High Life on Dues**\
 `A former president of the United Auto Workers pleaded guilty Wednesday to conspiring with others to embezzle dues to pay for golf trips, expensive meals and stays at California villas — the most significant conviction yet in a scandal that has roiled the union.`\
-https://nytimes.com/aponline/2020/06/03/business/bc-us-uaw-corruption.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/06/03/business/bc-us-uaw-corruption.html?searchResultPosition=9
 
 **Man Shelters Over 70 Protesters Fleeing Arrest in His Washington Home**\
 `Rahul Dubey said he welcomed a “tsunami” of people, some of whom had been pepper-sprayed, into his home on Monday night: “The first hour and half that everyone was in here was pure mayhem.”`\
-https://nytimes.com/2020/06/03/us/rahul-dubey-dc-curfew.html?searchResultPosition=8
-
-**Your Thursday Briefing**\
-`Hong Kong, Minnesota charges, Tiananmen Square: Here’s what you need to know.`\
-https://nytimes.com/2020/06/03/briefing/hong-kong-minneapolis-tiananmen-square.html?searchResultPosition=9
-
-**Activists Use Informal Tools to Keep the Peace at Protests**\
-`When Berto Aguayo heard that Chicago protests started turning violent over the weekend, he called a few dozen people to meet in front of a colorful mural in a South Side neighborhood. `\
-https://nytimes.com/aponline/2020/06/03/us/ap-us-america-protests-the-peacekeepers.html?searchResultPosition=10
+https://nytimes.com/2020/06/03/us/rahul-dubey-dc-curfew.html?searchResultPosition=10
 
