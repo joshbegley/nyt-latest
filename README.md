@@ -1,40 +1,40 @@
-**Powerful Cyclone Threatens Mumbai as City Grapples With Coronavirus**\
-`The Indian city of 20 million has not been struck by a storm as strong as Cyclone Nisarga in 70 years.`\
-https://nytimes.com/2020/06/03/world/asia/cyclone-nisarga-india-mumbai.html?searchResultPosition=1
+**Myanmar Court Denies Bail to Canadian Preacher Who Defied Virus Ban**\
+`A Myanmar court on Wednesday denied bail to a Canadian Christian preacher who held church services in defiance of a ban on gatherings to prevent the spread of the coronavirus that led to infections in dozens of people including himself.`\
+https://nytimes.com/reuters/2020/06/03/world/asia/03reuters-health-coronavirus-myanmar-court.html?searchResultPosition=1
 
-**The American Story, Splintered, and Those Vying to Tell It**\
-`What does the United States of America mean?`\
-https://nytimes.com/aponline/2020/06/03/us/ap-us-the-american-story.html?searchResultPosition=2
+**'Big Three' Join #BlackoutTuesday Campaign Against Racial Injustice**\
+`Roger Federer, Rafa Nadal and Novak Djokovic were among the tennis players who joined the #BlackOutTuesday campaign against racial injustice, as protests continue over the death of George Floyd, an unarmed black man who died in police custody.`\
+https://nytimes.com/reuters/2020/06/03/sports/basketball/03reuters-minneapolis-police-blackouttuesday-tennis.html?searchResultPosition=2
 
-**Burkina Faso's Food Woes Deepen as Extremists Expand Reach**\
-`Islamic extremists chased Adama Drabo and his family from their land in western Burkina Faso, forcing them to abandon a year's worth of crops. `\
-https://nytimes.com/aponline/2020/06/03/world/africa/ap-af-burkina-faso-hunger.html?searchResultPosition=3
+**Column: Spend or Hoard? Fate of Forced Savings Could Define Pandemic Recovery-Mike Dolan**\
+`Many households have built up a stash of savings during the coronavirus lockdowns of the past three months -- and how they view them may dictate the speed of recovery from the pandemic.`\
+https://nytimes.com/reuters/2020/06/03/world/europe/03reuters-global-policy.html?searchResultPosition=3
 
-**The Latest: Police Confront Several Hundred in Portland**\
-`The Latest on the May 25 death in Minneapolis of George Floyd, a handcuffed black man who pleaded for air as a white police officer pressed a knee on his neck:`\
-https://nytimes.com/aponline/2020/06/03/us/ap-us-america-protests-the-latest.html?searchResultPosition=4
+**Japan to Look at Building a Common Infrastructure for Digital Payments**\
+`Japan's three biggest banks have set up a study group that will look at possibly building a common settlement infrastructure for digital payments, an initiative backed by the central bank and the country's financial regulator.`\
+https://nytimes.com/reuters/2020/06/03/technology/03reuters-japan-banks-fintech.html?searchResultPosition=4
 
-**The C.D.C. Waited ‘Its Entire Existence for This Moment.’ What Went Wrong?**\
-`The technology was old, the data poor, the bureaucracy slow, the guidance confusing, the administration not in agreement. The coronavirus shook the world’s premier health agency, creating a loss of confidence and hampering the U.S. response to the crisis.`\
-https://nytimes.com/2020/06/03/us/cdc-coronavirus.html?searchResultPosition=5
+**India Approves Gilead's Remdesivir to Treat Severe COVID-19 Cases**\
+`India's government has approved Gilead Sciences Inc's antiviral drug remdesivir for emergency use for five doses in treating COVID-19 patients.`\
+https://nytimes.com/reuters/2020/06/03/world/asia/03reuters-health-coronavirus-india-gilead-sciences.html?searchResultPosition=5
 
-**The Corrosive Effects of Tear Gas Could Intensify Coronavirus Pandemic**\
-`Tear gas brings temporary misery by stinging eyes and throats. There’s also evidence that it may increase the risk of respiratory illness.`\
-https://nytimes.com/2020/06/03/us/tear-gas-risks-protests-coronavirus.html?searchResultPosition=6
+**South Korea Says Kids With Suspected COVID-19 Syndrome Had Another Disease**\
+`Two children suspected to be South Korea's first cases of a life-threatening syndrome linked with the coronavirus were found to have contracted Kawasaki disease, a similar but separate infection, health authorities said on Wednesday. `\
+https://nytimes.com/reuters/2020/06/03/world/asia/03reuters-health-coronavirus-southkorea.html?searchResultPosition=6
 
-**The Latest: Wuhan Finishes Mass Testing Effort, Isolates 300**\
-`The Latest on the coronavirus pandemic.  COVID-19 causes mild or moderate symptoms for most people. For some, especially older adults and people with existing health problems, it can cause more severe illness or death. ___`\
-https://nytimes.com/aponline/2020/06/03/business/ap-virus-outbreak-the-latest.html?searchResultPosition=7
+**Sporadic Violence Flares in Latest U.S. Protests Over Floyd Death**\
+`Tens of thousands of people defied curfews to take to the streets of U.S. cities on Tuesday for an eighth night of protests over the death of a black man in police custody, as National Guard troops lined the steps of the Lincoln Memorial.`\
+https://nytimes.com/reuters/2020/06/03/us/03reuters-minneapolis-police-protests.html?searchResultPosition=7
 
-**AP PHOTOS: Croissants and Hand Gel as Paris Cafes Reawaken**\
-`There are bottles of sanitizer gel in place of the salt and pepper pots, and glaring 1-meter (3-foot) gaps between tables.`\
-https://nytimes.com/aponline/2020/06/03/business/bc-eu-virus-outbreak-paris-cafes-photo-gallery.html?searchResultPosition=8
+**Australia Confirms End to Longest Boom as Fires, Pandemic Destroy Growth**\
+`Australia's economy has fallen into recession, the country's treasurer said on Wednesday, after official data showed gross domestic product fell last quarter as entire business sectors were closed to fight the coronavirus.`\
+https://nytimes.com/reuters/2020/06/03/world/asia/03reuters-australia-economy-gdp.html?searchResultPosition=8
 
-**Asian Shares Rise as Wall Street Gains for 3rd Straight Day**\
-`Asian shares rose Wednesday after Wall Street extended its gains for a third straight day, driven by optimism over economies reopening from shutdowns to stem the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/06/03/business/ap-financial-markets.html?searchResultPosition=9
+**Shell Weighs Sale of $2 Billion-Plus Stake in Queensland LNG Facilities**\
+`Royal Dutch Shell is considering raising more than $2 billion from the sale of a stake in the common facilities at its Queensland Curtis LNG plant in Australia, according to a sale flyer seen by Reuters.`\
+https://nytimes.com/reuters/2020/06/03/business/03reuters-shell-australia-qclng.html?searchResultPosition=9
 
-**Protests Continue Past Curfew in LA**\
-`Demonstrations continued, and protesters clashed with the police.`\
-https://nytimes.com/video/us/100000007171372/los-angeles-protests.html?searchResultPosition=10
+**Oil Gains, With Brent Above $40, as Hopes Rise for Output Cuts, Recovery**\
+`Oil rose on Wednesday, with Brent above $40 for the first time since March, as optimism mounted that major producers will extend output cuts and a recovery from the coronavirus pandemic will spur fuel demand. `\
+https://nytimes.com/reuters/2020/06/03/business/03reuters-global-oil.html?searchResultPosition=10
 
