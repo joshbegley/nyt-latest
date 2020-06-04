@@ -1,40 +1,40 @@
-**Does Drug Touted by Trump Work on COVID-19? After Data Debacle, We Still Don't Know**\
-`Scientists are resuming COVID-19 trials of the now world-famous drug hydroxychloroquine, as confusion continues to reign about the anti-malarial hailed by U.S. President Donald Trump as a potential "game-changer" in fighting the pandemic.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-hydroxychloroquine-trials-analysis.html?searchResultPosition=1
+**Tennis: Players Will Always Feel at Risk Without Vaccine, Says Ram**\
+`Athletes will not feel 100% safe until a vaccine for the novel coronavirus is available and the U.S. Open should only proceed if all qualified players are able to travel to the Grand Slam, American doubles specialist Rajeev Ram has said.`\
+https://nytimes.com/reuters/2020/06/04/sports/olympics/04reuters-health-coronavirus-tennis-ram.html?searchResultPosition=1
 
-**U.S. Trade Gap Rises to $49.4 Billion in April**\
-`The U.S. trade deficit hit the highest level in eight months in April as American commerce with other countries was smothered by the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/06/04/business/bc-us-trade-gap.html?searchResultPosition=2
+**US Productivity Falls at 0.9% Rate in First Quarter**\
+`U.S. productivity fell at a 0.9% rate in the first three months of this year, a smaller decline than first estimated, while labor costs rose at a slightly faster pace.`\
+https://nytimes.com/aponline/2020/06/04/business/bc-us-productivity.html?searchResultPosition=2
 
-**Ethiopian Domestic Workers Stranded in Crisis-Hit Lebanon**\
-`Dozens of domestic workers gathered outside the Ethiopian consulate in Beirut on Thursday, some inquiring about flights home, others stranded after they were abandoned by employers who claimed they could no longer afford to pay their salaries. `\
-https://nytimes.com/aponline/2020/06/04/world/middleeast/ap-ml-virus-outbreak-lebanon-migrant-workers.html?searchResultPosition=3
+**Insurer Anthem Lays Out $2.5 Billion Spending Plan, Offers Premium Discounts**\
+`Health insurer Anthem Inc said on Thursday it will spend $2.5 billion in financial assistance, including issuing one-month premium credit to members enrolled in certain insurance plans.`\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-anthem-rebates.html?searchResultPosition=3
 
-**IS Claims Kabul Mosque Attack That Killed Prayer Leader**\
-`The Islamic State group claimed responsibility Thursday for a bomb attack inside a mosque in the Afghan capital Kabul that killed two people, including the prayer leader, and wounded eight others.`\
-https://nytimes.com/aponline/2020/06/04/world/asia/ap-as-afghanistan.html?searchResultPosition=4
+**German Stimulus Package Requires Extra Budget of Some 25 Billion Euros: Scholz**\
+`Germany's stimulus package to help consumers and companies recover from the coronavirus pandemic will probably require a second supplementary budget worth some 25 billion euros ($28.00 billion), Finance Minister Olaf Scholz said on Thursday.`\
+https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-germany-stimulus-budget.html?searchResultPosition=4
 
-**UK PM Johnson Met Business Minister Sharma, Shortly Before Sharma Taken Ill**\
-`British Prime Minister Boris Johnson held a 45-minute meeting with business minister Alok Sharma on Wednesday, just hours before Sharma was taken ill and tested for the coronavirus, Johnson's spokesman said on Thursday.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-britain-johnson.html?searchResultPosition=5
+**Statement From the ECB Following Policy Meeting**\
+`Following is the statement from the European Central Bank following its policy meeting.`\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-ecb-policy-rates-text.html?searchResultPosition=5
 
-**Ireland Seeks Health Officials' Backing to Speed Up Reopening Plan**\
-`Ireland's government has proposed speeding up the reopening of parts of its economy to the country's top health officials and will make a decision on Friday, Prime Minister Leo Varadkar said.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-ireland-reopening.html?searchResultPosition=6
+**American Airlines to Boost U.S. Flights in July as Economy Reopens**\
+`American Airlines Group Inc said Thursday it will boost its U.S. flight schedule next month over dramatic reductions since the coronavirus pandemic, planning to fly more than 55% of its July 2019 domestic capacity.`\
+https://nytimes.com/reuters/2020/06/04/business/04reuters-health-coronavirus-american-airlines.html?searchResultPosition=6
 
-**Lebanon to Adopt One Approach on Financial Losses: Presidency**\
-`Lebanon will decide on one approach on figures it is presenting in IMF negotiations, the presidency said on Thursday, seeking to reconcile different approaches taken by the government and central bank for assessing losses in the financial system.`\
-https://nytimes.com/reuters/2020/06/04/world/middleeast/04reuters-lebanon-crisis-meeting.html?searchResultPosition=7
+**Homes for Sale in Brooklyn, Queens and Manhattan**\
+`This week’s properties are in Clinton Hill, Jackson Heights and on the Upper East Side.`\
+https://nytimes.com/2020/06/04/realestate/homes-for-sale-in-brooklyn-queens-and-manhattan.html?searchResultPosition=7
 
-**Irish Pubs Say Two Metre Social Distancing Spells Ruin**\
-`Ireland's usually tightly-packed pubs say they face ruin unless the government eases one of the strictest lockdowns in Europe, under which they can only reopen in August and must keep drinkers two metres apart - reducing capacity for some from hundreds to dozens.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-ireland-pubs.html?searchResultPosition=8
+**On the Market in New York City**\
+`This week’s properties are in Clinton Hill, Jackson Heights and on the Upper East Side.`\
+https://nytimes.com/slideshow/2020/06/04/realestate/on-the-market-in-new-york-city.html?searchResultPosition=8
 
-**Turkey Plans to Resume Flights With 40 Countries in June**\
-`Turkey plans to resume flights with around 40 countries in June and has reached preliminary agreements for reciprocal air travel with 15 countries, Transport Minister Adil Karaismailoglu said on Thursday.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-turkey-flights.html?searchResultPosition=9
+**How Pets Factor Into Home Sales**\
+`A recent study shows how pets are considered in the buying and selling property.`\
+https://nytimes.com/2020/06/04/realestate/pets-real-estate-sales-cats-dogs.html?searchResultPosition=9
 
-**Britain Checks Whether Financial Firms Are Near Collapse in Pandemic**\
-`Britain's markets watchdog has begun asking 13,000 firms how close are they to going bust because of the coronavirus pandemic to avoid being saddled with unexpectedly "lumpy" compensation bills.`\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-health-coronavirus-britain-regulator.html?searchResultPosition=10
+**Moderna Names Amgen Executive David Meline as CFO**\
+`Moderna Inc on Thursday named David Meline its chief financial officer, as the company develops a potential vaccine for COVID-19, the respiratory illness caused by the new coronavirus.`\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-moderna-moves-cfo.html?searchResultPosition=10
 
