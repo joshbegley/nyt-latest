@@ -14,7 +14,7 @@ https://nytimes.com/aponline/2020/06/03/sports/football/ap-fbn-brees-social-medi
 `Japan will consider various options such as having fewer spectators and mandatory coronavirus testing for a "simplified" Olympic Games next year to avoid the outright cancellation of the event, the Yomiuri newspaper reported on Thursday.`\
 https://nytimes.com/reuters/2020/06/03/sports/olympics/03reuters-health-coronavirus-olympics.html?searchResultPosition=4
 
-**Magnitude 5.5 Quake Hits Southern California Desert Region**\
+**Magnitude 5.5 Quake Hits Shaky California Desert Region**\
 `A magnitude 5.5 earthquake has jolted the region of California desert where a powerful quake last summer was followed by thousands of aftershocks.`\
 https://nytimes.com/aponline/2020/06/03/us/ap-us-california-earthquakes.html?searchResultPosition=5
 
