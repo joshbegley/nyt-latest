@@ -14,7 +14,7 @@ https://nytimes.com/2020/06/04/world/coronavirus-updates.html?searchResultPositi
 `Employees at Tata Steel's Dutch plant in IJmuiden on Thursday voted to go on strike over planned job cuts and the plant's further integration with Tata's British operations, Dutch news agency ANP reported.`\
 https://nytimes.com/reuters/2020/06/04/business/04reuters-health-coronavirus-netherlands-tata-steel.html?searchResultPosition=4
 
-**German Economy Should Reach Pre-Crisis Level in H2 2022: Economy Minister**\
+**German Economy Should Reach Pre-Crisis Level in Second-Half of 2022: Minister**\
 `German Economy Minister Peter Altmaier said on Thursday that his aim is for Europe's largest economy to return to pre-crisis levels in the second half of 2022.`\
 https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-germany-growth.html?searchResultPosition=5
 
