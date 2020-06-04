@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/06/03/us/ap-us-california-earthquakes.html?sea
 https://nytimes.com/2020/06/03/us/politics/coronavirus-senate-small-business-program.html?searchResultPosition=6
 
 **Magnitude 5.5 Earthquake Rocks Southern California, No Immediate Reports of Damage**\
-`A 5.5 magnitude earthquake struck on Wednesday in the California desert about 150 miles (241 km) northeast of Los Angles, the U.S. Geological Survey said. `\
+`A 5.5 magnitude earthquake struck on Wednesday in the California desert about 150 miles (241 km) northeast of Los Angeles, the U.S. Geological Survey said. `\
 https://nytimes.com/reuters/2020/06/03/us/03reuters-quake-california.html?searchResultPosition=7
 
 **Migrants Stuck in Panama Demand to Continue Journey to U.S.**\
