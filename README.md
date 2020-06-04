@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/06/03/world/americas/03reuters-health-coronavir
 https://nytimes.com/aponline/2020/06/03/us/ap-us-tv-cmt-celebrates-heroes.html?searchResultPosition=7
 
 **Trump Uses the Military to Prove His Manhood**\
-`The president’s response to the coronavirus that killed more than 100,000 people was lethargic and ineffective. But when it came to a few hundred anti-racism protesters, it was time to call in the troops.`\
+`The president’s response to the coronavirus that killed more than 100,000 people was lethargic and ineffective. But when it came to anti-racism protesters, it was time to call in the troops.`\
 https://nytimes.com/2020/06/03/opinion/trump-military-protest.html?searchResultPosition=8
 
 **Warriors' Curry, Thompson Participate in Oakland Protest**\
