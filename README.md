@@ -1,40 +1,40 @@
+**U.S. Leveraged Loan Downgrade Ratio Five Times Worse Than 2008-09**\
+`The ratio of leveraged loan credit rating downgrades to upgrades has spiked to a record level five times above that hit during the last global financial crisis, reflecting the unprecedented stress in risky assets due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-health-coronavirus-leveraged-loans-graphic.html?searchResultPosition=1
+
+**White Defendant in Arbery Shooting Used Racial Slur: Investigator**\
+`One of the white men charged in the murder of an unarmed black man in Georgia used a racial slur after shooting the man and before police arrived at the scene, an investigator for the prosecution in the case told a court hearing on Thursday.`\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-usa-shooting-georgia-slur.html?searchResultPosition=2
+
+**LVMH Propels Arnault Scion to Head Up Tag Heuer Watches**\
+`LVMH on Thursday said that Frederic Arnault, one of the younger sons of the luxury goods group's billionaire boss, would take over running watch brand Tag Heuer, joining his siblings in taking on bigger roles within the conglomerate. `\
+https://nytimes.com/reuters/2020/06/04/business/04reuters-lvmh-tagheuer-arnault.html?searchResultPosition=3
+
+**Spain's COVID-19 Deaths at 27,133; Cases at 240,660**\
+`Spain's total death toll from the coronavirus reached 27,133 on Thursday, health ministry data showed, five more than reported on Wednesday.`\
+https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-spain-tally.html?searchResultPosition=4
+
+**What You Need to Know Today About the Virus Outbreak**\
+`The United Nations is among organizations urging companies to create a “people's vaccine” for COVID-19 that would be free to everyone once one is developed.`\
+https://nytimes.com/aponline/2020/06/04/us/ap-us-virus-outbreak-whats-happening.html?searchResultPosition=5
+
+**IndyCar Ready to Race After Pandemic Delayed Start of Season**\
+`The stars of IndyCar were in Florida preparing to start their season when the coronavirus pandemic slammed the brakes on those plans 48 hours before the green flag. `\
+https://nytimes.com/aponline/2020/06/04/sports/ap-car-indycar-preview-.html?searchResultPosition=6
+
 **Watch Live: Cuomo Holds Daily News Conference**\
 `Gov. Andrew M. Cuomo of New York addresses last night’s protests.`\
-https://nytimes.com/video/us/politics/100000007173999/watch-live-cuomos-holds-daily-news-conference.html?searchResultPosition=1
+https://nytimes.com/video/us/politics/100000007173999/watch-live-cuomos-holds-daily-news-conference.html?searchResultPosition=7
 
 **U.S. Attorney General to Hold News Conference on Thursday**\
 `U.S. Attorney General Bill Barr will hold a news conference at 12:30 p.m. (1630 GMT) on Thursday, the U.S. Justice Department said in a statement. `\
-https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-barr.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-barr.html?searchResultPosition=8
 
 **Ethiopian Food Delivery Startup Rides to Restaurants' Rescue**\
 `Restaurants may still be officially open in Ethiopia, but diners are staying away due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/06/04/world/africa/04reuters-health-coronavirus-ethiopia-business.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/04/world/africa/04reuters-health-coronavirus-ethiopia-business.html?searchResultPosition=9
 
 **EBay Raises Forecasts on Online Boom, Shares Hit Record High**\
 `EBay Inc raised its current-quarter revenue and profit forecasts on Thursday, as people stuck at home due to the COVID-19 pandemic ordered more through its online platform, sending its shares to a record high.`\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-ebay-forecast.html?searchResultPosition=4
-
-**Erdogan Says Turkey to Increase Support for Libya's Serraj**\
-`President Tayyip Erdogan said on Thursday Turkey will increase its support for Libya's internationally recognised leader Fayez al Serraj and that the conflict there can only be resolved politically under the auspices of the United Nations.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-libya-security-turkey-erdogan.html?searchResultPosition=5
-
-**Make Room on Credit Cards to Add Options in an Emergency**\
-`Maybe you’ve been working through credit card debt for a while now.`\
-https://nytimes.com/aponline/2020/06/04/business/ap-on-the-money-nerdwallet-pay-debts-now.html?searchResultPosition=6
-
-**For U.S. Economy, the Bottom May Be Here, but the Rebound Is Slow So Far**\
-`The U.S. economy may have hit its low point in the coronavirus crash but the rebound so far remains tepid, according to both broad indexes of activity and higher frequency counts of cellphone data and employee time information.`\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-usa-economy-reopen-graphic.html?searchResultPosition=7
-
-**EU Commission Praises German Stimulus Plan as 'Very Positive'**\
-`The European Commission praised Germany's 130 billion euro economic stimulus plan on Thursday, noting the EU's most populous country was finally boosting spending as the bloc's executive has been urging for years.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-germany-stimulus-commission.html?searchResultPosition=8
-
-**For the Deaf, Social Distancing Can Mean Social Isolation**\
-`Masks, enforced social distance and other public health measures intended to slow the spread of the coronavirus pose unique challenges to the 37 million American adults with impaired hearing.`\
-https://nytimes.com/2020/06/04/us/coronavirus-deaf-culture-challenges.html?searchResultPosition=9
-
-**Retailers Look to Boost Sales, German Car Sales Weak**\
-`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Thursday related to the national and global response, the work place and the spread of the virus.`\
-https://nytimes.com/aponline/2020/06/04/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/04/business/04reuters-ebay-forecast.html?searchResultPosition=10
 
