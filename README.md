@@ -22,8 +22,8 @@ https://nytimes.com/2020/06/03/pageoneplus/corrections-june-4-2020.html?searchRe
 `Quotation of the Day for Thursday, June 4, 2020.`\
 https://nytimes.com/2020/06/03/todayspaper/quotation-of-the-day-mom-and-pop-stores-in-bronx-reel-from-looters-crowbars.html?searchResultPosition=6
 
-**China to Allow More Foreign Carriers to Operate Flights Into Country: The Paper**\
-`China's civil aviation regulator will let foreign airlines currently not allowed to operate international routes to China to start once-a-week routes into a designated city from June 8, news website The Paper reported on Thursday. `\
+**China Eases Flight Curbs After U.S. Order Targeting Chinese Carriers**\
+`China said on Thursday it will allow more foreign carriers to fly into the mainland, shortly after Washington barred Chinese passenger carriers from flying to the United States citing Beijing's restrictions on American airlines. `\
 https://nytimes.com/reuters/2020/06/03/world/asia/03reuters-usa-china-airlines-caac.html?searchResultPosition=7
 
 **Trump’s Magic Word**\
