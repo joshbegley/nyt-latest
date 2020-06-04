@@ -19,7 +19,7 @@ https://nytimes.com/interactive/2020/06/04/burst/brooklyn-protesters-police-conf
 https://nytimes.com/reuters/2020/06/04/business/04reuters-usa-economy-unemployment-explainer.html?searchResultPosition=5
 
 **Germany's Merkel Dismisses Talk She Might Seek 5th Term**\
-`German Chancellor Angela Merkel on Thursday firmly rejected suggestions that she might seek a fifth term at the helm or is reconsidering a pledge to leave politics when her current government leaves office.`\
+`German Chancellor Angela Merkel on Thursday firmly rejected suggestions that she might seek a fifth term at the helm after pledging in 2018 to step down when her current government leaves office.`\
 https://nytimes.com/aponline/2020/06/04/world/europe/ap-eu-germany-merkel.html?searchResultPosition=6
 
 **N.B.A. Sets July 31 Return to Play Entirely in Florida**\
