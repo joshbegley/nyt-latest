@@ -1,40 +1,40 @@
+**Some Israeli Settlers Hit Out at Trump-Backed Annexation Plan**\
+`Israel's intention to annex parts of the occupied West Bank is being challenged by Jewish settlers who might have been expected to cheer the plan promoted by Prime Minister Benjamin Netanyahu under a U.S. peace blueprint.`\
+https://nytimes.com/reuters/2020/06/04/world/middleeast/04reuters-israel-palestinians-annexation.html?searchResultPosition=1
+
+**Swiss Court Blocks Extradition of Alleged PKK Functionary to Germany**\
+`A Swiss court blocked the extradition to Germany of an alleged regional leader of the Kurdistan Workers Party (PKK), ruling that German authorities had not made enough of a case against the man whose group is not banned in Switzerland.`\
+https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-swiss-germany.html?searchResultPosition=2
+
+**Villagers in Togo Mourn Homes Swallowed by the Sea**\
+`The Togolese coastal community of Baguida has always had the ocean at its doorstep, but the waves have lapped higher and higher in recent years, destroying homes and locals' hopes for the future.`\
+https://nytimes.com/reuters/2020/06/04/world/africa/04reuters-world-environmentday-togo-erosion.html?searchResultPosition=3
+
+**Dozens Raided Over Hate Comments on Slain German Politician**\
+`German investigators on Thursday carried out raids on dozens of people suspected of posting hate messages about a regional politician from Chancellor Angela Merkel's party who was killed last year.`\
+https://nytimes.com/aponline/2020/06/04/world/europe/ap-eu-germany-politicians-death.html?searchResultPosition=4
+
 **5 Things to Know for Today**\
 `Your daily look at late-breaking news, upcoming events and the stories that will be talked about today:`\
-https://nytimes.com/aponline/2020/06/04/us/ap-5-things-to-know-today.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/06/04/us/ap-5-things-to-know-today.html?searchResultPosition=5
 
 **Police: Teen Hurt in Gunfire at Rapper YFN Lucci Video Shoot**\
 `A teenager was injured Wednesday night after gunfire rang out during the filming of a music video in Atlanta, the city’s police said.`\
-https://nytimes.com/aponline/2020/06/04/us/ap-us-rap-music-video-shooting.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/06/04/us/ap-us-rap-music-video-shooting.html?searchResultPosition=6
 
 **Strong Earthquake Shakes Eastern Indonesia; No Casualties**\
 `A powerful undersea earthquake shook eastern Indonesia on Thursday, causing panic but no immediate reports of casualties or damage. `\
-https://nytimes.com/aponline/2020/06/04/world/asia/ap-as-indonesia-earthquake.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/06/04/world/asia/ap-as-indonesia-earthquake.html?searchResultPosition=7
 
 **US Says Alaska Man Laundered Nearly $1B for Iran Through UAE**\
 `An Alaska man accused of laundering $1 billion held in South Korea for Iran funneled nearly all the money through the United Arab Emirates, U.S. federal court documents released early Thursday show. `\
-https://nytimes.com/aponline/2020/06/04/world/middleeast/ap-ml-emirates-gunrunners-luck-1st-ld-writethru.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/04/world/middleeast/ap-ml-emirates-gunrunners-luck-1st-ld-writethru.html?searchResultPosition=8
 
 **Spain to Investigate Airlines Which Haven't Offered Refunds for Cancelled Flights**\
 `Spain's government has requested an investigation into several airlines for allegedly breaching European Union regulations on compensation for cancelled flights, Consumer Protection Minister Alberto Garzon said on Thursday. `\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-spain-airlines-probe.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-spain-airlines-probe.html?searchResultPosition=9
 
 **George Floyd Was Infected With COVID-19, Autopsy Reveals**\
 `George Floyd, whose fatal encounter with Minneapolis police stirred a global outcry over racial bias by U.S. law enforcement, tested positive for the coronavirus, his autopsy showed, but the infection was not listed as a factor in his death.`\
-https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-autopsy.html?searchResultPosition=6
-
-**Inovio Partners With Non-Profit Organization to Begin COVID-19 Vaccine Trial**\
-`Inovio Pharmaceuticals Inc on Thursday said it partnered with non-profit organization International Vaccine Institute to begin an early trial of the U.S. biotech's experimental COVID-19 vaccine on humans later this month. `\
-https://nytimes.com/reuters/2020/06/04/us/04reuters-health-coronavirus-inovio-pharma.html?searchResultPosition=7
-
-**EU Watchdog Piles More Pressure on Asset Management Fees**\
-`The European Union's markets watchdog published guidance for the bloc's national regulators on Thursday to tighten scrutiny of how asset managers charge fees on investors in funds.`\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-eu-funds-regulator.html?searchResultPosition=8
-
-**Fundraisers Say Donations to Biden Surge as George Floyd Protests Sweep Country**\
-`Democratic presidential candidate Joe Biden and his allies have seen donations swell in recent days, several top fundraisers said, as protests against the police killing of an unarmed black man in Minneapolis roil U.S. cities.`\
-https://nytimes.com/reuters/2020/06/04/us/politics/04reuters-minneapolis-police-democrats.html?searchResultPosition=9
-
-**Florida Offers Drive-Through Botox to Quarantined Residents**\
-`Quarantined Florida residents worried about their laughter lines and crows' feet need frown no longer - Botox is back, and it's being offered at a drive-through.`\
-https://nytimes.com/reuters/2020/06/04/us/04reuters-health-coronavirus-usa-botox.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-autopsy.html?searchResultPosition=10
 
