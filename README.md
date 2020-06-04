@@ -1,40 +1,40 @@
+**Google: State-Based Hackers Targeted Trump, Biden Campaigns**\
+`Google said state-based hackers have targeted the campaigns of both President Donald Trump and former Vice President Joe Biden, although it saw no evidence that the phishing attempts were successful.`\
+https://nytimes.com/aponline/2020/06/04/business/bc-us-presidential-campaigns-hacking-attempts.html?searchResultPosition=1
+
+**Gambia Seeks Answers Over a Police Shooting in Georgia**\
+`The police say Momodou Lamin Sisay discharged his weapon before officers fatally shot him. Mr. Sisay’s family’s lawyer disputes that account.`\
+https://nytimes.com/2020/06/04/us/sisay-police-shooting-georgia-unrest.html?searchResultPosition=2
+
+**UK Consumer Confidence Touches New Decade Low as COVID Hits Economy: GfK**\
+`British consumer confidence in late May fell to its lowest level since the global financial crisis over a decade ago as people worried about a rise in unemployment and falling house prices caused by the coronavirus crisis, a survey showed on Friday.`\
+https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-britain-consumers.html?searchResultPosition=3
+
+**Dallas Officials Remove Texas Ranger Statue From Love Field**\
+`A published account of brutal and racist chapters in the history of an elite Texas investigative agency prompted Dallas officials to remove on Thursday a statue from Love Field’s passenger terminal that honored the agency.`\
+https://nytimes.com/aponline/2020/06/04/us/ap-us-america-protests-texas-statue-2nd-ld-writethru.html?searchResultPosition=4
+
+**How 3 Small Business Embraced Change And Came Out On Top**\
+`The path to entrepreneurship is filled with adventures — and challenges. Using their passion and determination, three small businesses talk about how they made their dream a reality, and are adapting amid Covid-19.`\
+https://nytimes.com/paidpost/us-bank/how-3-small-business-embraced-change-and-came-out-on-top.html?searchResultPosition=5
+
+**German Government Advisers Cut 2020 Economic Forecast: Funke Media**\
+`The German government's panel of advisers expects Europe's biggest economy to contract by 6-7% this year due to the coronavirus, a more pessimistic assessment than the group made in March, the group's head told the Funke media group on Friday.`\
+https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-germany-economy.html?searchResultPosition=6
+
+**Lawsuit Aims to Hold Nebulous 'Antifa' to Blame for Injuries**\
+`A conservative writer from Portland, Oregon, filed a lawsuit Thursday against purported elements of the nebulous, far-left militant groups collectively known as antifa, days after President Donald Trump blamed those groups for inciting violence at protests over police killings of black people.`\
+https://nytimes.com/aponline/2020/06/04/us/ap-us-america-protests-antifa-lawsuit.html?searchResultPosition=7
+
+**Drew Brees’s Unchanged Stance on Kneeling Is Suddenly Out of Step**\
+`The New Orleans Saints quarterback again called national anthem protests are “disrespectful.” The response from his own locker room was more ferocious than when he first said so in 2016.`\
+https://nytimes.com/2020/06/04/sports/football/drew-brees-apology-comments.html?searchResultPosition=8
+
 **Russian-Backed Libyan Commander Retreats From Tripoli**\
 `Belligerents on all sides of the Libyan conflict, including Turkey, Russia and the U.A.E., are preparing for a new stage after a pullback by the forces of the commander, Khalifa Hifter.`\
-https://nytimes.com/2020/06/04/world/middleeast/libya-hifter-retreat-russia.html?searchResultPosition=1
+https://nytimes.com/2020/06/04/world/middleeast/libya-hifter-retreat-russia.html?searchResultPosition=9
 
 **Blood Pressure Drugs Linked to Lower COVID-19 Mortality: Study**\
 `Widely used drugs to control high blood pressure may help protect against severe COVID-19, a new study found, allaying concerns that they could make the illness caused by the coronavirus worse.`\
-https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-health-coronavirus-hypertension.html?searchResultPosition=2
-
-**Calls to Suicide Helpline Show Thais' Stress in Downturn**\
-`In the weeks before she took her own life, Thai waitress Nitiwadee Sae-Tia felt growing financial pressure after she lost her job, a member of the family said.`\
-https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-health-coronavirus-thailand-suicide.html?searchResultPosition=3
-
-**Sheriff: S Carolina Deputies Kill Man Who Pointed Guns**\
-`A South Carolina man was fatally shot Wednesday by deputies after he pointed two pistols at them during a pursuit, authorities said. `\
-https://nytimes.com/aponline/2020/06/04/world/ap-us-fatal-shooting-south-carolina.html?searchResultPosition=4
-
-**Why Washington’s Streets Have Filled With Troops the Mayor Did Not Want**\
-`Because it’s not a state, the District of Columbia is at a disadvantage in any clash with federal authorities.`\
-https://nytimes.com/2020/06/04/upshot/george-floyd-protests-dc-statehood.html?searchResultPosition=5
-
-**Children Speak Up at George Floyd Memorial Amid Their Parents' Hopes and Fears**\
-`At a New York City memorial for George Floyd on Thursday, Corte Ellis held a sign he had made using a piece of cardboard from a broken-down box. The 10-year-old had written some of Floyd's final words: "I can't breathe, I can't breathe."`\
-https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-protests-children.html?searchResultPosition=6
-
-**Massachusetts Directs Agency to Study Phase-Out of Natural Gas**\
-`Massachusetts' top attorney asked the state's public utilities regulator on Thursday to probe the future of the natural gas industry as the state moves away from burning fossil fuels because they contribute to climate change.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-usa-massachusetts-natural-gas.html?searchResultPosition=7
-
-**Detained US Navy Veteran Freed by Iran as Part of Deal**\
-`A U.S. Navy veteran whose family said his only crime was falling in love left Iran on Thursday after nearly two years of detention, winning his freedom as part of a deal that spared an American-Iranian physician from any additional time behind bars.`\
-https://nytimes.com/aponline/2020/06/04/us/politics/ap-us-united-states-iran-1st-ld-writethru.html?searchResultPosition=8
-
-**Businesses Should Be Reimbursed for Damage by Protesters, California Governor Says**\
-`Businesses damaged in protests over the killing of George Floyd, an unarmed black man who was asphyxiated in police custody in Minneapolis, should be reimbursed for their losses, California Governor Gavin Newsom, a Democrat, said on Thursday.`\
-https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-protests-california.html?searchResultPosition=9
-
-**New York Times Says Senator’s Op-Ed Did Not Meet Standards**\
-`After a staff uproar, The Times says the editing process was “rushed.” Senator Tom Cotton’s “Send In the Troops” essay is now under review.`\
-https://nytimes.com/2020/06/04/business/new-york-times-op-ed-cotton.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-health-coronavirus-hypertension.html?searchResultPosition=10
 
