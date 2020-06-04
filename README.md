@@ -1,40 +1,40 @@
+**Pandemic Means a Silent June at the Supreme Court**\
+`It's the time of the year when Supreme Court justices can get testy. They might have to find a new way to show it.`\
+https://nytimes.com/aponline/2020/06/04/us/politics/ap-us-supreme-court-testy-justices.html?searchResultPosition=1
+
+**Tiananmen Vigil Organizers Say They Will Defy Hong Kong Police Ban**\
+`The event was barred for the first time over coronavirus concerns, but participants fear a move to restrict speech.`\
+https://nytimes.com/2020/06/04/world/asia/tiananmen-hong-kong-china.html?searchResultPosition=2
+
+**Protests Eclipse Pandemic, but White House Fears Resurgence**\
+`For weeks, President Donald Trump has been eager to publicly turn the page on the coronavirus pandemic. Now fears are growing within the White House that the very thing that finally shoved the virus from center stage — mass protests over the death of George Floyd — may bring about its resurgence.`\
+https://nytimes.com/aponline/2020/06/04/us/politics/ap-us-virus-outbreak-trump.html?searchResultPosition=3
+
+**GOP Reckons With Polarizing Candidates Amid Civil Unrest**\
+`The Republican Party is facing a reckoning over some of its most divisive candidates. So far the results are mixed, and that's dicey for the GOP as a country shuddering from coast-to-coast civic unrest hurtles toward November elections. `\
+https://nytimes.com/aponline/2020/06/04/us/politics/ap-us-election-2020-republicans-.html?searchResultPosition=4
+
+**Biden to Focus on Economic Plans, Inequality in Weeks Ahead**\
+`Joe Biden is pledging to unveil a series of proposals in coming weeks aimed at reversing the economic devastation wrought by the pandemic and addressing inequalities that have contributed to protests sweeping the country.`\
+https://nytimes.com/aponline/2020/06/04/us/politics/ap-us-election-2020-biden-economy.html?searchResultPosition=5
+
+**Democrats Prepare Police Reform Bills After Floyd's Death**\
+`Congressional Democrats, powered by the Congressional Black Caucus, are preparing a sweeping package of police reforms as pressure builds on the federal government to respond to the death of George Floyd  and others in law enforcement interactions.`\
+https://nytimes.com/aponline/2020/06/04/us/politics/ap-us-america-protests-congress.html?searchResultPosition=6
+
+**UN Office Denounces Human Rights Violations in Philippines**\
+`The U.N. human rights office called on the Philippine government in a new report Thursday to end all violence targeting suspected drug offenders and to disband private and state-backed paramilitary groups. `\
+https://nytimes.com/aponline/2020/06/04/world/europe/ap-un-philippines-human-rights-.html?searchResultPosition=7
+
+**Police Officer Shot in Brooklyn Hours Into New York's Curfew**\
+`The New York City police department says a police officer has been shot in Brooklyn.`\
+https://nytimes.com/aponline/2020/06/04/us/ap-us-police-shooting-brooklyn.html?searchResultPosition=8
+
 **Hong Kongers to Mark Tiananmen Anniversary With Candles, Online Vigil**\
 `People in Hong Kong planned to light candles across the city on Thursday to commemorate the bloody 1989 crackdown by Chinese troops in and around Tiananmen Square, circumventing a ban on the usual public gathering amid the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-china-tiananmen-hongkong.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-china-tiananmen-hongkong.html?searchResultPosition=9
 
 **UK Car Sales Almost 90% Below Normal in May: SMMT**\
 `British car sales edged up in May after falling to their lowest since 1946 in April, but still remained almost 90% below their level a year earlier as coronavirus restrictions limited sales.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-britain-autos.html?searchResultPosition=2
-
-**Witness Who Was in Floyd’s Car Says His Friend Did Not Resist Arrest**\
-`Maurice Lester Hall, who fled Minneapolis after witnessing George Floyd’s death, was arrested Monday in Houston and interviewed by a Minnesota investigator.`\
-https://nytimes.com/2020/06/04/us/politics/george-floyd-witness.html?searchResultPosition=3
-
-**Cowboys Quarterback Prescott Pledges $1 Million to Improve Police Training**\
-`Dallas Cowboys quarterback Dak Prescott says he will donate $1 million to "improve police training and address systemic racism" in the United States through education and advocacy.`\
-https://nytimes.com/reuters/2020/06/04/sports/football/04reuters-minneapolis-police-nfl-prescott.html?searchResultPosition=4
-
-**2 Police Officers Are Wounded in Brooklyn, Officials Say**\
-`The injuries to the officers did not appear life threatening, officials said. It was unclear whether the confrontation was connected to protests or looting.`\
-https://nytimes.com/2020/06/04/nyregion/nypd-officers-shot-brooklyn.html?searchResultPosition=5
-
-**Australia's Infigen Energy Decries Ayala's $536 Million Bid as 'Opportunistic'**\
-`Australia's Infigen Energy is still going over a takeover offer to the tune of A$777 million ($535.82 million) by Philippine conglomerate Ayala Corp, the renewables firm  said on Thursday, but described the bid as "opportunistic". `\
-https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-infigen-m-a-uac-energy.html?searchResultPosition=6
-
-**Trump Photo Op, Talk of Military Force Amp Up GOP Challenge**\
-`The mumbling and dodging this week by Republicans came straight from the GOP playbook that helped the party endure President Donald Trump’s cringe-inducing choices. `\
-https://nytimes.com/aponline/2020/06/04/us/politics/ap-us-republicans-defending-trump.html?searchResultPosition=7
-
-**Pentagon-Trump Clash Breaks Open Over Military and Protests**\
-`President Donald Trump’s Pentagon chief shot down his idea of using troops to quell protests across the United States, then reversed course on pulling part of the 82nd Airborne Division off standby in an extraordinary clash between the U.S. military and its commander in chief.`\
-https://nytimes.com/aponline/2020/06/04/us/politics/ap-us-america-protests-trump.html?searchResultPosition=8
-
-**Japan to Explore 'Simplified' Games: Tokyo Governor**\
-`Tokyo Governor Yuriko Koike said on Thursday it may be necessary to a stage a "simplified" Olympics next year due to the impact of the COVID-19 pandemic and that organisers were already discussing possible changes.`\
-https://nytimes.com/reuters/2020/06/04/sports/olympics/04reuters-health-coronavirus-olympics.html?searchResultPosition=9
-
-**Shell Plastics Plant Trump Touted Faces Oversupply Risks: Energy Institute Report**\
-`A massive Pennsylvania plastics project that President Donald Trump touted during a visit last year faces risks of oversupply and a low price outlook for the materials, a report by an institute that examines energy issues said on Thursday. `\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-usa-plastics-shell-pennsylvania.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-britain-autos.html?searchResultPosition=10
 
