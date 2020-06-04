@@ -2,7 +2,7 @@
 `A consortium that agreed to buy Thyssenkrupp's elevator division for 17.2 billion euros ($19.25 billion) earlier this year is getting regular requests to sell parts of the business, one of the co-investors said.`\
 https://nytimes.com/reuters/2020/06/04/business/04reuters-thyssenkrupp-m-a-rag.html?searchResultPosition=1
 
-**U.S. Senators to Announce Sanctions Bill on Russia's Nord Stream 2 Gas Pipeline**\
+**Senators to Announce Sanctions Bill on Russia's Nord Stream 2 Gas Pipeline**\
 `U.S. senators will announce a bill this week expanding sanctions on Russia's Gazprom-led Nord Stream 2 project, Senate aides said, targeting a pipeline Washington says will make Europe too reliant on Russian gas.`\
 https://nytimes.com/reuters/2020/06/04/business/04reuters-usa-sanctions-nord-stream-2.html?searchResultPosition=2
 
