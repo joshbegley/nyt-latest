@@ -1,40 +1,40 @@
-**Venezuela's Guaido Is Still Legitimate Head of National Assembly, EU Says**\
-`A Venezuelan Supreme Court decision to ratify an ally of President Nicolas Maduro as president of the National Assembly is illegitimate, the European Union said on Thursday, warning of a deepening crisis in the South American nation.`\
-https://nytimes.com/reuters/2020/06/04/world/americas/04reuters-venezuela-politics-eu.html?searchResultPosition=1
+**The End of College as We Knew It?**\
+`Restaurants get eulogies. Airlines get bailouts. Shakespeare gets kicked when he’s down.`\
+https://nytimes.com/2020/06/04/opinion/coronavirus-college-humanities.html?searchResultPosition=1
 
-**GM to Work Closely With CATL in Its China EV Push: Executive**\
-`General Motors will "work very closely" with Chinese electric vehicle battery maker Contemporary Amperex Technology Ltd (CATL) as it ramps up electric production in the world's biggest auto market, a senior executive said.`\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-gm-catl-electric.html?searchResultPosition=2
+**At Belmont’s Backstretch, Caring for Horses During the Shutdown**\
+`Six hundred people live at the back of Belmont Park, caring for about three times as many horses.`\
+https://nytimes.com/2020/06/04/sports/horse-racing/belmont-park-backstretch.html?searchResultPosition=2
 
-**South Korean Court to Review Prosecution's Arrest Warrant Request for Samsung Heir**\
-`A South Korean court said on Thursday it will review the prosecution's request for an arrest warrant for Samsung Electronics vice chairman Jay Y. Lee. `\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-samsung-heir-review.html?searchResultPosition=3
+**The Traffic Trade-Off**\
+`Fewer cars on the road during the pandemic has meant cleaner air, but not necessarily fewer traffic deaths. Can we have both?`\
+https://nytimes.com/2020/06/04/climate/coronavirus-traffic-air-quality.html?searchResultPosition=3
 
-**Hong Kong Confirms Five New Coronavirus Cases; Cable TV Says Residents Evacuated**\
-`Hong Kong confirmed five new cases of coronavirus on Thursday, all imported, while Cable TV reported some residents of a housing estate were evacuated after a cluster of cases was reported. `\
-https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-health-coronavirus-hongkong.html?searchResultPosition=4
+**11 Great Alternatives to the Top National Parks**\
+`Whether you like hiking, fishing, volcanoes, trees or even fossilized trees, there is a less-traveled and still awe-inspiring national park for you.`\
+https://nytimes.com/2020/06/04/travel/national-parks-social-distancing-coronavirus.html?searchResultPosition=4
 
-**Outside Bidders Keen on Thyssenkrupp Elevator Assets: RAG CFO**\
-`A consortium that agreed to buy Thyssenkrupp's elevator division for 17.2 billion euros ($19.25 billion) earlier this year is getting regular requests to sell parts of the business, one of the co-investors said.`\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-thyssenkrupp-m-a-rag.html?searchResultPosition=5
+**Pete Davidson Comes Out of His Basement With Judd Apatow’s Help**\
+`The “S.N.L.” star is open about his struggles. The director focuses on the personal. Still, their “The King of Staten Island” was “fraught with the possibility of failure.”`\
+https://nytimes.com/2020/06/04/movies/pete-davidson-king-of-staten-island.html?searchResultPosition=5
 
-**Senators to Announce Sanctions Bill on Russia's Nord Stream 2 Gas Pipeline**\
-`U.S. senators will announce a bill this week expanding sanctions on Russia's Gazprom-led Nord Stream 2 project, Senate aides said, targeting a pipeline Washington says will make Europe too reliant on Russian gas.`\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-usa-sanctions-nord-stream-2.html?searchResultPosition=6
+**Trump Tests a Role He’s Long Admired: A Strongman Imposing Order**\
+`The president’s unapologetic calls for force, and his efforts to bring the military into his political line, follow a strongman’s playbook. It’s a risky move for him, and for democracy.`\
+https://nytimes.com/2020/06/04/world/americas/trump-strongman-george-floyd.html?searchResultPosition=6
 
-**UK Offers 10 Billion Pounds in Guarantees for Trade Credit Insurance**\
-`Britain's government provided more support to businesses hit by the coronavirus crisis, saying it would guarantee up to 10 billion pounds ($12.5 billion) in trade credit insurance schemes which protect businesses against defaults or payment delays.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-britain-guarantees.html?searchResultPosition=7
+**Workers Fearful of the Coronavirus Are Getting Fired and Losing Their Benefits**\
+`Thousands who refuse to return to work are being reported to the state to have their unemployment benefits potentially revoked.`\
+https://nytimes.com/2020/06/04/us/virus-unemployment-fired.html?searchResultPosition=7
 
-**Pandemic Hits Poorest Hardest as India, Pakistan Cases Jump**\
-`The United Nations and the International Red Cross and Red Crescent Movement are urging that governments and others unite in developing a “people’s vaccine” to protect everyone against the coronavirus. `\
-https://nytimes.com/aponline/2020/06/04/business/ap-virus-outbreak.html?searchResultPosition=8
+**When Their Mother Died at a Nursing Home, 2 Detectives Wanted Answers**\
+`The sisters were used to getting information. But the Isabella Geriatric Center was secretive about the virus outbreak from the beginning.`\
+https://nytimes.com/2020/06/04/nyregion/isabella-nursing-home-coronavirus.html?searchResultPosition=8
 
-**Breaking Down Wuhan's Blueprint for Lifting Lockdown**\
-`From outbreak to lockdown and reopening, the Chinese city of Wuhan, where the novel coronavirus emerged late last year, has been through all stages of dealing with the health crisis. `\
-https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-health-coronavirus-wuhan.html?searchResultPosition=9
+**U.K. Finds That Green Business Is Good Business**\
+`With a boom in wind power and a drop in carbon-dioxide emissions, the island nation has found success in clean energy.`\
+https://nytimes.com/2020/06/04/climate/uk-wind-renewable-energy.html?searchResultPosition=9
 
-**Last Dance for Legendary Madrid Flamenco Joint, Stung by Coronavirus**\
-`A Madrid flamenco bar that has played host to some of Spain's top performers, including an early-career set from Grammy-award winner Rosalia, is shutting down as audiences dwindle in the wake of the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-spain-flamenco.html?searchResultPosition=10
+**A New Weapon Against Climate Change May Float**\
+`The wind power industry sees an opportunity in allowing windmills to be pushed into deeper water.`\
+https://nytimes.com/2020/06/04/climate/floating-windmills-fight-climate-change.html?searchResultPosition=10
 
