@@ -1,40 +1,40 @@
+**Ukraine May Grant Visa-Free Access to Citizens of China, Australia, Arab States to Boost Tourism**\
+`Ukraine is considering cancelling its visa requirement for tourists from China, Australia, New Zealand and Arab states in order to attract more visitors once lockdowns ease and bring more money into the economy, Ukrainian president Volodymyr Zelenskiy said on Thursday.`\
+https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-ukraine-tourists-visa.html?searchResultPosition=1
+
+**Turkish Parliament Strips Status of Three Opposition MPs**\
+`Turkey's parliament stripped two pro-Kurdish lawmakers and one MP from the main opposition party of their parliamentary status on Thursday after convictions against them became final, drawing sharp criticism from their parties.`\
+https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-turkey-politics-deputies.html?searchResultPosition=2
+
+**Puerto Rico: Delayed Reports Lead to 355 New COVID-19 Cases**\
+`Puerto Rico on Thursday reported 485 new cases of the coronavirus, but officials say 355 of those correspond to April and early May and had not been shared with the government until now.`\
+https://nytimes.com/aponline/2020/06/04/world/americas/ap-lt-virus-outbreak-puerto-rico.html?searchResultPosition=3
+
+**Please Send Us Your College Applications About Money**\
+`Did you apply for undergraduate admission for the fall 2020 semester? Did you write an essay about money, work or social class? We’d like to read it and perhaps publish it.`\
+https://nytimes.com/2020/06/04/your-money/college-application-essays.html?searchResultPosition=4
+
+**Iran Frees Navy Veteran Held for Two Years**\
+`The release of Michael R. White, announced by his mother in the United States, came a day after an Iranian scientist held by the American authorities was returned to Iran.`\
+https://nytimes.com/2020/06/04/world/middleeast/Iran-prisoner-michael-white.html?searchResultPosition=5
+
+**Tech Stocks Have Been a Winning Bet, but Investors Worry It Will Fade**\
+`A bet on tech companies has been a solid one in the aftermath of the coronavirus-induced market crash, but some investors are questioning whether those stocks can maintain their momentum if jobs do not recover soon. `\
+https://nytimes.com/reuters/2020/06/04/business/04reuters-usa-stocks-nasdaq-investors-analysis.html?searchResultPosition=6
+
+**Intesa CEO Says State-Backed FCA Loan Crucial to Protect Italy's Economy**\
+`A 6.3 billion euro ($7 billion) state-backed loan for Fiat Chrysler (FCA) financed by Intesa Sanpaolo is crucial to safeguard Italy's economy, the head of the country's biggest bank said.`\
+https://nytimes.com/reuters/2020/06/04/business/04reuters-fiat-chrysler-loan-intesa-sanpaolo.html?searchResultPosition=7
+
 **Stud: Autonomous Vehicles Won't Make Roads Completely Safe**\
 `A new study says that while autonomous vehicle technology has great promise to reduce crashes, it may not be able to prevent all mishaps caused by human error. `\
-https://nytimes.com/aponline/2020/06/04/business/bc-us-autonomous-vehicles-crashes.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/06/04/business/bc-us-autonomous-vehicles-crashes.html?searchResultPosition=8
 
 **Police Release Personnel Files of Officers Charged in George Floyd’s Death**\
 `Many of the pages, released by the Minneapolis Police Department, were heavily redacted, but they revealed details of the officers’ lives before joining the department and during their time on the force.`\
-https://nytimes.com/2020/06/04/us/george-floyd-police-records-chauvin.html?searchResultPosition=2
+https://nytimes.com/2020/06/04/us/george-floyd-police-records-chauvin.html?searchResultPosition=9
 
 **With 'Succession' Shut Down, Brian Cox Takes on Other Roles**\
 `“Succession” may be temporarily shut down, but star Brian Cox is still finding projects to keep him busy. Not that he's a fan of being an actor working from home.`\
-https://nytimes.com/aponline/2020/06/04/world/europe/ap-eu-people-brian-cox.html?searchResultPosition=3
-
-**Indianapolis Motor Speedway Slams Door on Fans at Brickyard**\
-`Indianapolis Motor Speedway will host the IndyCar-NASCAR doubleheader on the July 4 weekend without fans.`\
-https://nytimes.com/aponline/2020/06/04/sports/ap-car-virus-outbreak-indianapolis.html?searchResultPosition=4
-
-**John Lewis Says Video of George Floyd's Killing Made Him Cry**\
-`Civil rights icon John Lewis said Thursday that the video of George Floyd's death at the hands of police in Minnesota “made me cry.”`\
-https://nytimes.com/aponline/2020/06/04/us/politics/ap-us-america-protests-john-lewis.html?searchResultPosition=5
-
-**Azerbaijan Orders Big City Residents to Stay Home This Weekend to Halt Virus**\
-`Azerbaijan will order everyone to stay home this weekend in big cities, including the capital Baku, in tightened coronavirus restrictions after the country's number of infections rose, the government said on Thursday.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-azerbaijan.html?searchResultPosition=6
-
-**Russia Sends Second Batch of Fighter Jets to Syria: Embassy**\
-`Russia flew a batch of advanced MiG-29 fighter jets to Syria, Moscow's embassy in Damascus said, with Syrian pilots already using the planes to conduct missions within the country's airspace.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-syria-security-russia.html?searchResultPosition=7
-
-**Players' Union Concerned Over Heightened Injury Risk**\
-`Players may be at an increased risk of injury as professional sports rush back into action following the coronavirus stoppage, a global union representing 85,000 athletes said on Thursday.`\
-https://nytimes.com/reuters/2020/06/04/sports/soccer/04reuters-heath-coronavirus-sport-players.html?searchResultPosition=8
-
-**Self-Driving Cars Could Only Prevent a Third of U.S. Crashes: Study**\
-`Self-driving cars, long touted by developers as a way to eliminate road deaths, could likely only prevent a third of all U.S. road crashes, an analysis of traffic accidents released on Thursday has found.`\
-https://nytimes.com/reuters/2020/06/04/technology/04reuters-autos-self-driving.html?searchResultPosition=9
-
-**EU Regulators to Warn EssilorLuxottica About Dutch Deal, Sources Say**\
-`EU antitrust regulators will warn EssilorLuxottica that its 7.2-billion-euro ($8.1 billion) bid for Dutch opticians group GrandVision could harm competition, people familiar with the matter said on Thursday.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-grandvision-m-a-essilorluxottica-eu.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/04/world/europe/ap-eu-people-brian-cox.html?searchResultPosition=10
 
