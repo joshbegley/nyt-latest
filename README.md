@@ -1,40 +1,40 @@
-**I Reopened My Restaurant, and I Don’t Regret It**\
-`“Was I scared of getting the virus? No. I was scared of losing my business.”`\
-https://nytimes.com/2020/06/04/opinion/coronavirus-georgia-restaurant-reopening.html?searchResultPosition=1
+**Virginia Governor Orders Removal of Statue of Civil War General Lee**\
+`Virginia Governor Ralph Northam, responding to protests decrying racism after the death of a black man in police custody in Minneapolis, on Thursday ordered the removal of a statue of Confederate General Robert E. Lee in the state's capital city of Richmond. `\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-richmond-statue.html?searchResultPosition=1
 
-**Don’t Dominate the Streets**\
-`President Trump threatens to bring a particularly authoritarian brand of executive power to American cities.`\
-https://nytimes.com/2020/06/04/opinion/trump-cotton-military-floyd-protests.html?searchResultPosition=2
+**Tennis Star Gauff Demands Change Amid Protests Over Floyd Death**\
+`American teenage tennis prodigy Coco Gauff appeared at a protest in her hometown of Delray Beach, Florida, on Wednesday, calling for racial and social justice after the death of George Floyd, an unarmed black man killed in police custody in the U.S.`\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-sports-gauff.html?searchResultPosition=2
 
-**Bills Rookie QB Apologizes for Racially Insensitive Comment**\
-`Buffalo Bills rookie quarterback Jake Fromm apologized for using the phrase “elite white people” in a text conversation from more than a year ago, and posted on social media early Thursday morning.`\
-https://nytimes.com/aponline/2020/06/04/sports/football/ap-fbn-bills-fromm.html?searchResultPosition=3
+**Tesla's Elon Musk Calls for Breakup of Amazon in Tweet**\
+`Telsa Inc Chief Executive Elon Musk on Thursday called for Amazon.com Inc to be broken up. `\
+https://nytimes.com/reuters/2020/06/04/business/04reuters-tesla-amazon-com.html?searchResultPosition=3
 
-**I Reopened My Restaurant, and I Don’t Regret It**\
-`“Was I scared of getting the virus? No. I was scared of losing my business.”`\
-https://nytimes.com/video/opinion/100000007161418/coronavirus-georgia-restaurant-reopening.html?searchResultPosition=4
+**NBA: League Approves Plan to Resume Season in July at Disney World-Reports**\
+`The NBA's Board of Governors on Thursday have approved a plan to restart its suspended season in late July at Disney World in Florida amid the COVID-19 pandemic, according to multiple reports.`\
+https://nytimes.com/reuters/2020/06/04/sports/basketball/04reuters-health-coronavirus-basketball-nba.html?searchResultPosition=4
 
-**Vladimir Lopukhin, Who Held Key Post When U.S.S.R. Fell, Dies at 68**\
-`Mr. Lopukhin, who died of the novel coronavirus, was in charge of the energy ministry at a time of tumultuous change in Russia’s oil and gas industry.`\
-https://nytimes.com/2020/06/04/obituaries/vladimir-lopukhin-dead-coronavirus.html?searchResultPosition=5
+**'Stay at Home Stock' Slack Technologies Dips Ahead of Report**\
+`Shares of Slack Technologies dipped 3% on Thursday ahead of the workplace communication platform's quarterly report, pausing a three-month rally fueled by millions of people working from home due to the coronavirus. `\
+https://nytimes.com/reuters/2020/06/04/business/04reuters-slack-tech-stocks.html?searchResultPosition=5
 
-**Review: Michaela Coel Is Riveting in ‘I May Destroy You’**\
-`The actress and writer brings her comic gifts and ferocious intensity to this new HBO series, which was inspired by her own experience of sexual assault.`\
-https://nytimes.com/2020/06/04/arts/television/review-i-may-destroy-you.html?searchResultPosition=6
+**NHL Finalizes Playoff Format as Pens Player Tests Positive**\
+`The NHL announced Thurday that every playoff series will be a best-of-seven format after the intial qualifying round and teams will be reseeded throughout if the league is able to return with its 24-team plan later this summer.`\
+https://nytimes.com/aponline/2020/06/04/sports/hockey/ap-hkn-virus-outbreak-nhl.html?searchResultPosition=6
 
-**There Is a Playbook for Police Reform**\
-`We helped write it.`\
-https://nytimes.com/2020/06/04/opinion/police-reform-obama-task-force.html?searchResultPosition=7
+**Germany's Merkel Calls for Reconciliation After 'Terrible' Floyd Murder**\
+`German Chancellor Angela Merkel said the murder of George Floyd, the black man whose death in U.S. police custody set off a wave of protests, was a "very very terrible thing" and called for reconciliation.`\
+https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-minneapolis-police-protests-merkel.html?searchResultPosition=7
 
-**The Police Will Be Part of the Solution, Too**\
-`Officers who have the moral courage to kneel and march with protesters are opening a path out of this crisis.`\
-https://nytimes.com/2020/06/04/opinion/police-violence-reform-protests.html?searchResultPosition=8
+**German Prosecutors Dash Hopes of Finding Madeleine McCann Alive**\
+`The German man the authorities now suspect of murdering the British child in 2007 was previously convicted of sexually abusing children, theft and dealing drugs.`\
+https://nytimes.com/2020/06/04/world/europe/german-madeleine-mccann-murder-christian.html?searchResultPosition=8
 
-**How White Crime Writers Justified Police Brutality**\
-`We don’t need any more novels or TV shows about cops who do the wrong thing for the “right” reason.`\
-https://nytimes.com/2020/06/04/opinion/crime-fiction-police-brutality.html?searchResultPosition=9
+**Study Authors Retract Influential Lancet Hydroxychloroquine Article**\
+`Three of the authors of an influential article that found hydroxychloroquine increased the risk of death in COVID-19 patients retracted the study on concerns about the quality of the data in the study.`\
+https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-hydroxychloroquine-lancet.html?searchResultPosition=9
 
-**Study Shows Spain Far From Having 'Herd Immunity' to Virus**\
-`A second round of random testing in Spain for antibodies to the new coronavirus indicates that a third of those infected do not develop symptoms, Spanish health authorities said Thursday. `\
-https://nytimes.com/aponline/2020/06/04/world/europe/ap-eu-virus-outbreak-spain.html?searchResultPosition=10
+**Syria: Israeli Warplanes Strike Targets in Central Syria**\
+`Syrian air defenses responded to an Israeli attack near a central town on Thursday that caused explosions and a large fire in the area, state-run media said. `\
+https://nytimes.com/aponline/2020/06/04/world/middleeast/ap-ml-syria-israel.html?searchResultPosition=10
 
