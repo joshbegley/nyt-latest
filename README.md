@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/06/03/business/03reuters-usa-privateequity-reti
 `The deputy mayor of a Maine city has resigned and was charged with filing a false report after he said someone hacked his social media account to make racist statements about the George Floyd killing.`\
 https://nytimes.com/aponline/2020/06/03/us/ap-us-floyd-comments-maine-mayor-1st-ld-writethru.html?searchResultPosition=5
 
-**Australia April Retail Sales Post Record Slump, Backs Grim Outlook for Second-Quarter GDP**\
-`Australian retail sales suffered a historic plunge in April  when much of the country was locked down to combat the coronavirus, as markets and policymakers braced for the nation's worst ever economic contraction in the current quarter.`\
+**Australian Retailers Suffer Record Sales Slump, Backs Grim Outlook for Second-Quarter GDP**\
+`Australian retail sales suffered a historic plunge in April while the trade surplus narrowed as the coronavirus battered the economy, leaving the nation facing its worst ever contraction in the current quarter.`\
 https://nytimes.com/reuters/2020/06/03/world/asia/03reuters-australia-economy-salesfigures.html?searchResultPosition=6
 
 **Corrections: June 4, 2020**\
