@@ -1,40 +1,40 @@
+**Hundreds Gather at a Memorial for George Floyd in Minneapolis**\
+`The Rev. Al Sharpton was to deliver the eulogy in a memorial that was to be followed in coming days by events in Mr. Floyd’s memory in North Carolina and Texas.`\
+https://nytimes.com/2020/06/04/us/hundreds-gather-at-a-memorial-for-george-floyd-in-minneapolis.html?searchResultPosition=1
+
+**U.S. CDC Reports 1,842,101 Coronavirus Cases**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Thursday reported 1,842,101 cases of the new coronavirus, an increase of 14,676 cases from its previous count, and said that the number of deaths had risen by 827 to 107,029.`\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-health-coronavirus-usa-cdc.html?searchResultPosition=2
+
+**AstraZeneca Says Open for More Vaccine Production Deals**\
+`Britain's AstraZeneca will continue to look for more production partners for the experimental vaccine it is working on with Oxford University but it may be nearing a ceiling with    plans laid out so far to make 2 billion doses. `\
+https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-astrazeneca-partners.html?searchResultPosition=3
+
+**NFL Coaches Allowed to Return to Facilities on Friday**\
+`NFL coaches can return to work at team facilities beginning Friday, more than two months after their offices were shut down because of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/04/sports/04reuters-football-nfl-coaches.html?searchResultPosition=4
+
+**Chinese and Iranian Hackers Targeted Biden and Trump Campaigns: Google**\
+`State-backed hackers from China and Iran have recently targeted the email accounts of staffers working on the U.S. presidential campaigns of Joe Biden and Donald Trump, respectively, a senior Google security official said Thursday.`\
+https://nytimes.com/reuters/2020/06/04/technology/04reuters-usa-election-alphabet-cyberattack.html?searchResultPosition=5
+
+**Watch Live: George Floyd Memorial Service**\
+`Hundreds of people in Minneapolis are expected to attend the first of several memorials for George Floyd, who was killed in police custody, spurring global outrage.`\
+https://nytimes.com/video/us/politics/100000007174001/floyd-funeral-live-stream-video.html?searchResultPosition=6
+
+**Hundreds of Federal Agents Descend on DC to Quell Violence**\
+`The two black SUVs travel from checkpoint to checkpoint, each guarded by federal drug enforcement agents alongside members of the National Guard. `\
+https://nytimes.com/aponline/2020/06/04/us/politics/ap-us-america-protests-federal-response.html?searchResultPosition=7
+
 **For Some Minority-Owned Businesses, Their Lenders Are Now Their Defenders**\
 `Black- and Latino-owned businesses have suffered damage from vandals and arsonists on the fringes of the protests over police brutality. Non-bank community lenders are helping owners stand their ground.`\
-https://nytimes.com/2020/06/04/business/minority-businesses-damage-lenders.html?searchResultPosition=1
+https://nytimes.com/2020/06/04/business/minority-businesses-damage-lenders.html?searchResultPosition=8
 
 **WHO Says Its Representative Told to Leave Equatorial Guinea**\
 `Equatorial Guinea is "severely affected" by the coronavirus, the World Health Organization's (WHO) Africa head said on Thursday, as its representative in the country was told to leave.`\
-https://nytimes.com/reuters/2020/06/04/world/africa/04reuters-health-coronavirus-equatorial.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/04/world/africa/04reuters-health-coronavirus-equatorial.html?searchResultPosition=9
 
 **Coronavirus Spread in Canada Is Slowing, Public Health Agency Says**\
 `The spread of COVID-19 in Canada has slowed and 90% of the cases in the past two weeks have been in the provinces of Ontario and Quebec, the Public Health Agency said on Thursday.`\
-https://nytimes.com/reuters/2020/06/04/world/americas/04reuters-health-coronavirus-canada.html?searchResultPosition=3
-
-**Colorado Ex-Gov. Hickenlooper Is No-Show at Ethics Hearing**\
-`Democratic U.S. Senate candidate John Hickenlooper didn't appear Thursday at a Colorado Independent Ethics Commission, defying orders to do so as the commission considers a Republican complaint that private plane trips he took while he was Colorado's governor violated the state's gift ban. `\
-https://nytimes.com/aponline/2020/06/04/us/ap-us-election-2020-colorado-senate-hickenlooper.html?searchResultPosition=4
-
-**Cuomo: Protesters Have 'Civic Duty' to Get Virus Tested**\
-`The thousands of people protesting the death of George Floyd have a “civic duty” to be tested for the coronavirus and help New York avoid a spike in new cases as it slowly restarts its economy, Gov. Andrew Cuomo said Thursday.`\
-https://nytimes.com/aponline/2020/06/04/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=5
-
-**Washington Mayor Says Out-Of-State Troops Should Leave U.S. Capital**\
-`The mayor of Washington on Thursday called for the withdrawal from the U.S. capital of military units sent from other states to deal with protests against police brutality and racism.`\
-https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-washingtondc-mayor.html?searchResultPosition=6
-
-**Impossible Foods Starting Direct-To-Consumer Plant Burger Sales**\
-`Impossible Foods said on Thursday it will sell plant-based meat burgers in the United States directly to consumers through its own website, as demand for vegan alternatives surge amid rising beef prices due to the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/06/04/us/04reuters-impossible-foods-website-sales.html?searchResultPosition=7
-
-**Black Architect Who Knew George Floyd Hopes to Rebuild More a Just Twin Cities**\
-`George Floyd's death in Minneapolis while in police custody, and the destruction that followed during demonstrations throughout the region, cut especially deep for Saint Paul architect James Garrett Jr., a fifth-generation black resident of Minnesota's Twin Cities. `\
-https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-black-biz-owner.html?searchResultPosition=8
-
-**Ukraine Found No Evidence Against Hunter Biden in Case Audit: Former Top Prosecutor**\
-`An audit of thousands of old case files by Ukrainian prosecutors found no evidence of wrongdoing on the part of Hunter Biden, the former prosecutor general, who had launched the audit, told Reuters. `\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-usa-trump-impeachment-ukraine.html?searchResultPosition=9
-
-**Wary Canadians Start Spending as COVID-19 Restrictions Ease, Boosting Economy**\
-`The Canadian economy is showing green shoots with reports on home sales, consumer spending and new job postings trending upwards after the coronavirus pandemic forced shutdowns and caused a record plunge in economic activity.`\
-https://nytimes.com/reuters/2020/06/04/us/04reuters-canada-economy.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/04/world/americas/04reuters-health-coronavirus-canada.html?searchResultPosition=10
 
