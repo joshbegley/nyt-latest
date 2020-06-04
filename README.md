@@ -1,40 +1,40 @@
+**Anti-Racism Protest Targets British PM Johnson's Aide Cummings**\
+`A small group of protesters chanting "Black Lives Matter" gathered on Thursday outside the London home of Dominic Cummings, a close aide to British Prime Minister Boris Johnson at the centre of a scandal that has damaged the government.`\
+https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-minneapolis-police-britain-cummings.html?searchResultPosition=1
+
+**Algeria to Ease Coronavirus Restrictions on Sunday**\
+`Algeria will resume some economic activities and allow a number of businesses to reopen from Sunday as part of a plan to end the coronavirus lockdown, the prime minister's office said on Thursday.`\
+https://nytimes.com/reuters/2020/06/04/world/africa/04reuters-health-coronavirus-algeria.html?searchResultPosition=2
+
+**Attorney General: Divide Between Blacks, Police Must Change**\
+`Attorney General William Barr sought on Thursday to quell tensions over the death of George Floyd in police custody, acknowledging a divide between many black Americans and the police and promising to spare no resource as the Justice Department investigates whether a federal civil rights crime was committed.`\
+https://nytimes.com/aponline/2020/06/04/us/politics/ap-us-america-protests-attorney-general.html?searchResultPosition=3
+
+**Swiss Say Ready to Help U.S., Iran With More Releases**\
+`Switzerland confirmed its role on Thursday in the "humanitarian gesture" that led to the release of two detainees, American Michael White and Iranian Majid Taheri, saying it stood ready for "further facilitation" as a neutral intermediary.`\
+https://nytimes.com/reuters/2020/06/04/world/middleeast/04reuters-iran-usa-prisoners-swiss-statement.html?searchResultPosition=4
+
+**Dr. Bertram Brown, Mental Health Advocate, Is Dead at 89**\
+`In the 1960s and ’70s, as head of the National Institute of Mental Health, he was instrumental in improving programs for intellectually disabled Americans.`\
+https://nytimes.com/2020/06/04/us/dr-bertram-brown-dead.html?searchResultPosition=5
+
+**Southern Baptists See 13th Year of Membership Decline**\
+`The nation's largest Protestant denomination is almost 2% smaller than it was in 2018.`\
+https://nytimes.com/aponline/2020/06/04/us/ap-us-southern-baptists-membership.html?searchResultPosition=6
+
+**MLS to Allow Full-Team Training, With COVID-19 Testing in Place**\
+`Major League Soccer (MLS) said on Thursday that clubs could return to full-team training, provided they get approval from medical staff and a local infectious disease expert and follow rigorous health and safety procedures.`\
+https://nytimes.com/reuters/2020/06/04/sports/soccer/04reuters-health-coronavirus-soccer-mls.html?searchResultPosition=7
+
+**Syrian Pound Hits Record Low Against Dollar in Panic Trading, Dealers Say**\
+`The Syrian pound hit a record low on Thursday over fears of the impact of tougher U.S. sanctions this month and the repercussions of a seizure of assets of a leading tycoon on the war-battered economy, dealers, traders and businessmen said. `\
+https://nytimes.com/reuters/2020/06/04/world/middleeast/04reuters-syria-security-economy-currency.html?searchResultPosition=8
+
+**Hundreds of Active-Duty Troops to Leave Washington Region, Official Says**\
+`Several hundred active-duty troops from the 82nd Airborne Division who were sent to the Washington D.C. area to potentially respond to civil unrest are expected to start heading back to their home base in North Carolina, a U.S. official said on Thursday. `\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-protest-troops-leave.html?searchResultPosition=9
+
 **Broadcom's Revenue Forecast Disappoints on Weakness in Chip Business**\
 `Broadcom Inc on Thursday forecast current-quarter revenue, the mid-point of which was slightly below Wall Street estimates as its chip business was weighed down by the impact of the coronavirus crisis on global supply chains.`\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-broadcom-results.html?searchResultPosition=1
-
-**Gap Reports Huge First-Quarter Loss on Coronavirus-Led Store Closures**\
-`Gap Inc on Thursday reported a whopping first-quarter loss of $932 million as the apparel retailer wrote down the value of some assets due to coronavirus-driven store closures, sending its shares down about 5% after the bell. `\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-gap-results.html?searchResultPosition=2
-
-**Slack Withdraws Billings Forecast on COVID-19 Uncertainty**\
-`Slack Technologies Inc on Thursday withdrew its forecast for 2021 billings citing uncertainty driven by the COVID-19 pandemic, sending shares down 16% after market hours. `\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-slack-tech-results.html?searchResultPosition=3
-
-**How Much Watching Time Do You Have This Weekend?**\
-`“Queer Eye” is back, alongside a great new “30 for 30” documentary. And CNN and “Sesame Street” host another town hall.`\
-https://nytimes.com/2020/06/04/arts/television/queer-eye-sesame-street-cnn-town-hall-bruce-lee.html?searchResultPosition=4
-
-**AP FACT CHECK: Trump Skews History by Saying He Fired Mattis**\
-`When Jim Mattis announced his resignation as defense secretary, President Donald Trump thanked him for “tremendous progress” in helping to rebuild the military and for “retiring with distinction.” Times changed and so did Trump's story about losing his Pentagon chief.`\
-https://nytimes.com/aponline/2020/06/04/us/politics/ap-us-trump-mattis-fact-check.html?searchResultPosition=5
-
-**Heat-Trapping Carbon Dioxide in Air Hits New Record High**\
-`The world hit another new record high for heat-trapping carbon dioxide in the atmosphere, despite reduced emissions because of the coronavirus pandemic, scientists announced Thursday.`\
-https://nytimes.com/aponline/2020/06/04/science/ap-us-sci-carbon-dioxide-record.html?searchResultPosition=6
-
-**Immigrants Anxious as They Await Supreme Court DACA Decision**\
-`Reyna Montoya’s hands get sweaty and her throat feels like it’s closing just talking about the anxiety of every Monday this spring.`\
-https://nytimes.com/aponline/2020/06/04/us/ap-us-immigration-deferred-action.html?searchResultPosition=7
-
-**Trump Seeks to Scale Back Environmental Reviews for Projects**\
-`President Donald Trump was prepared to issue an executive order Thursday directing agencies to look for ways to speed up building of highways and other major projects by scaling back environmental reviews, invoking special powers he has under the coronavirus emergency.`\
-https://nytimes.com/aponline/2020/06/04/us/politics/ap-us-trump-environment.html?searchResultPosition=8
-
-**Citizenship Concerns Remain as Immigration Agency Reopens**\
-`For Albert Baraka, the ceremony outside the federal immigration office in Lawrence, Massachusetts, was brief, but the change was a lifetime.`\
-https://nytimes.com/aponline/2020/06/04/us/ap-us-virus-outbreak-citizenship.html?searchResultPosition=9
-
-**Criticism of Trump’s Threat to Use Military Force**\
-`Readers discuss comments by the current defense secretary, Mark Esper, and a predecessor, Jim Mattis.`\
-https://nytimes.com/2020/06/04/opinion/letters/unrest-trump-military-mattis-esper.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/04/business/04reuters-broadcom-results.html?searchResultPosition=10
 
