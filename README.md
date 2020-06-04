@@ -8,7 +8,7 @@ https://nytimes.com/2020/06/04/arts/music/jimmy-capps-dead.html?searchResultPosi
 
 **Hundreds Gather at a Memorial for George Floyd in Minneapolis**\
 `The Rev. Al Sharpton was to deliver the eulogy in a memorial that was to be followed in coming days by events in Mr. Floyd’s memory in North Carolina and Texas.`\
-https://nytimes.com/2020/06/04/us/hundreds-gather-at-a-memorial-for-george-floyd-in-minneapolis.html?searchResultPosition=3
+https://nytimes.com/2020/06/04/us/floyd-memorial-funeral.html?searchResultPosition=3
 
 **U.S. CDC Reports 1,842,101 Coronavirus Cases**\
 `The U.S. Centers for Disease Control and Prevention (CDC) on Thursday reported 1,842,101 cases of the new coronavirus, an increase of 14,676 cases from its previous count, and said that the number of deaths had risen by 827 to 107,029.`\
