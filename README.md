@@ -1,40 +1,40 @@
-**Burundi Court Upholds Disputed Presidential Election Results**\
-`Burundi's constitutional court on Thursday upheld the results of last month's presidential election and rejected the complaints filed by opposition leader Agathon Rwasa, who had alleged widespread irregularities.`\
-https://nytimes.com/aponline/2020/06/04/world/africa/ap-af-burundi-election.html?searchResultPosition=1
+**Washington Mayor Says Out-Of-State Troops Should Leave U.S. Capital**\
+`The mayor of Washington on Thursday called for the withdrawal from the U.S. capital of military units sent from other states to deal with protests against police brutality and racism.`\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-washingtondc-mayor.html?searchResultPosition=1
 
-**6 Shows to Stream From Latin America**\
-`Our writer recommends “The House of Flowers,” “The Queen of Flow” and four other Spanish- and Portuguese-language shows now on Netflix and Hulu.`\
-https://nytimes.com/2020/06/04/arts/television/shows-to-stream-from-latin-america.html?searchResultPosition=2
+**Impossible Foods Starting Direct-To-Consumer Plant Burger Sales**\
+`Impossible Foods said on Thursday it will sell plant-based meat burgers in the United States directly to consumers through its own website, as demand for vegan alternatives surge amid rising beef prices due to the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-impossible-foods-website-sales.html?searchResultPosition=2
 
-**Mold Can Make Your Family Sick. Here’s How to Get Rid of It.**\
-`The truth about black mold, fungus farts and that goop in the corner of your shower.`\
-https://nytimes.com/2020/06/04/parenting/mold-can-make-your-family-sick-heres-how-to-get-rid-of-it.html?searchResultPosition=3
+**Black Architect Who Knew George Floyd Hopes to Rebuild More a Just Twin Cities**\
+`George Floyd's death in Minneapolis while in police custody, and the destruction that followed during demonstrations throughout the region, cut especially deep for Saint Paul architect James Garrett Jr., a fifth-generation black resident of Minnesota's Twin Cities. `\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-black-biz-owner.html?searchResultPosition=3
 
-**Tech Is Global. Right?**\
-`The internet is evolving from a homogeneous blob into something more like the diverse world.`\
-https://nytimes.com/2020/06/04/technology/internet-global-competition.html?searchResultPosition=4
+**Ukraine Found No Evidence Against Hunter Biden in Case Audit: Former Top Prosecutor**\
+`An audit of thousands of old case files by Ukrainian prosecutors found no evidence of wrongdoing on the part of Hunter Biden, the former prosecutor general, who had launched the audit, told Reuters. `\
+https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-usa-trump-impeachment-ukraine.html?searchResultPosition=4
 
-**Why We Published the Tom Cotton Op-Ed**\
-`More on our decision.`\
-https://nytimes.com/2020/06/04/opinion/tom-cotton-op-ed.html?searchResultPosition=5
+**Wary Canadians Start Spending as COVID-19 Restrictions Ease, Boosting Economy**\
+`The Canadian economy is showing green shoots with reports on home sales, consumer spending and new job postings trending upwards after the coronavirus pandemic forced shutdowns and caused a record plunge in economic activity.`\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-canada-economy.html?searchResultPosition=5
 
-**UK Business Minister Sharma 'Doing Fine' After Being Taken Ill**\
-`British business minister Alok Sharma is "doing fine" after being taken ill in parliament on Wednesday and subsequently tested for coronavirus, transport minister Grant Shapps said on Thursday.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-britain-sharma.html?searchResultPosition=6
+**U.S. EPA Proposes Changes to How Clean Air Rules Are Written**\
+`The U.S. Environmental Protection Agency will release on Thursday a proposed overhaul of how costs and benefits factored in its major clean air rule-makings, a move that would affect the stringency of future regulations.`\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-usa-epa-regulation.html?searchResultPosition=6
 
-**UK to Make Face Coverings Compulsory on Public Transport**\
-`Face coverings will be compulsory for passengers on buses, trains, aircraft and ferries in England from June 15, Transport Secretary Grant Shapps said on Thursday.`\
-https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-britain-facemasks.html?searchResultPosition=7
+**Bishop Budde: Trump’s Visit to St. John’s Church Outraged Me**\
+`While the president cloaks himself in spiritual authority, he preaches the antithesis.`\
+https://nytimes.com/2020/06/04/opinion/trump-st-johns-church-protests.html?searchResultPosition=7
 
-**Stranded Venezuelans Build Camp in Colombia Amid Pandemic**\
-`Out of work, broke and left with few good options during the pandemic, a growing number of Venezuelan migrants in Colombia have set up a makeshift camp on a tree-covered patch along a highway outside the capital of Bogota. `\
-https://nytimes.com/aponline/2020/06/04/world/americas/ap-lt-virus-outbreak-colombia-venezuela-migrants.html?searchResultPosition=8
+**America's Billionaire Wealth Jumps by Over Half a Trillion During COVID-19 Pandemic: Report**\
+`The combined wealth of America's billionaires, including Amazon.`\
+https://nytimes.com/reuters/2020/06/04/business/04reuters-health-coronavirus-billionaires.html?searchResultPosition=8
 
-**De Blasio Denounced After Police Forcefully Clash With Protesters**\
-`The New York Police Department aggressively enforced an 8 p.m. curfew, despite assurances of restraint from the mayor.`\
-https://nytimes.com/2020/06/04/nyregion/De-blasio-protests-curfew.html?searchResultPosition=9
+**FCA to Face Checks, Sanctions on State-Backed Loan**\
+`Fiat Chrysler will file regular reports on its use of a multi-billion euro state-backed loan which Italy is set to approve soon and will face sanctions if it does not respect commitments attached to the package, the economy minister said.`\
+https://nytimes.com/reuters/2020/06/04/business/04reuters-fiat-chrysler-loan-minister.html?searchResultPosition=9
 
-**Republican Senator 'Struggling' Over Whether to Back Trump in Election**\
-`U.S. Senator Lisa Murkowski said on Thursday she is struggling over whether she can support President Donald Trump's re-election bid, saying criticism of Trump's response to nationwide protests by former Defense Secretary Jim Mattis rang true.`\
-https://nytimes.com/reuters/2020/06/04/us/politics/04reuters-minneapolis-police-protests-murkowski.html?searchResultPosition=10
+**Hutton Gibson, Extremist and Father of Mel Gibson, Dies at 101**\
+`His anti-Semitic, anti-Vatican views gained notoriety after his son starred and directed the controversial film, “The Passion of the Christ.”`\
+https://nytimes.com/2020/06/04/us/hutton-gibson-extremist-and-father-of-mel-gibson-dies-at-101.html?searchResultPosition=10
 
