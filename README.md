@@ -1,40 +1,40 @@
-**Japan's Household Spending Falls at Record Pace as Virus Stalls Economy**\
-`Japan's household spending fell at the fastest pace on record in April as the coronavirus shut down travel and dining-out in the world's third-largest economy, while fears of higher job losses chilled consumer confidence.`\
-https://nytimes.com/reuters/2020/06/05/world/asia/05reuters-japan-economy-spending.html?searchResultPosition=1
+**Malaysia Unveils Extra $8 Billion Economic Stimulus Package**\
+`Malaysia's prime minister unveiled an additional economic stimulus package worth 35 billion ringgit ($8.22 billion) on Friday in a bid to revitalise industries badly hit by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/05/world/asia/05reuters-health-coronavirus-malaysia-economy.html?searchResultPosition=1
 
-**Philippines Reports Three New Coronavirus Deaths, 244 More Cases**\
-`The Philippines' health ministry on Friday confirmed three new coronavirus deaths and 244 more infections, the lowest single-day increase in cases in two weeks.`\
-https://nytimes.com/reuters/2020/06/05/world/asia/05reuters-health-coronavirus-philippines-cases.html?searchResultPosition=2
+**‘México Lindo y Querido, Should I Die Abroad …’**\
+`When it comes to our dead, Mexicans have deeply ingrained cultural traditions, which involves bringing them back to the place where they were born.`\
+https://nytimes.com/2020/06/05/opinion/mexico-coronavirus-burials.html?searchResultPosition=2
 
-**ECB Still Needs to Underpin 'Fragile' Markets, Lane Says**\
-`The European Central Bank still needs to underpin "fragile" financial markets despite a substantial rebound since March, the ECB's chief economist Philip Lane said on Friday, a day after the bank beefed up its Pandemic Emergency Purchase Programme.`\
-https://nytimes.com/reuters/2020/06/05/us/05reuters-ecb-policy.html?searchResultPosition=3
+**Quarantined in a Museum**\
+`The resident caretakers of some of New York’s cherished landmarks may have the city’s strangest work-from-home assignment.`\
+https://nytimes.com/2020/06/05/realestate/historic-house-caretaker-coronavirus.html?searchResultPosition=3
 
-**German Factory Orders Plunge, Portending Lean Times Ahead**\
-`Factory orders in Germany plunged even more than anticipated in April, underlining the effect the coronavirus pandemic has had on Europe's largest economy.`\
-https://nytimes.com/aponline/2020/06/05/business/bc-eu-germany-economy.html?searchResultPosition=4
+**Living With History in a Pandemic**\
+`The live-in caretakers of some of New York’s cherished historic houses used to meet the city every morning from their front doors. Now they wait for that city to return.`\
+https://nytimes.com/slideshow/2020/06/05/realestate/living-with-history-in-a-pandemic.html?searchResultPosition=4
 
-**Traditional Owners Say Rio Tinto Knew Importance of Caves Razed for Mine**\
-`Rio Tinto Ltd knew the cultural and historical significance of two caves in Western Australia years before it blew them up last month as part of an iron ore mine expansion, traditional owners said on Friday.`\
-https://nytimes.com/reuters/2020/06/05/world/asia/05reuters-australia-mining-rio-tinto-indigenous.html?searchResultPosition=5
+**On Tribal Lands, a Time to Make Art for Solace and Survival**\
+`The coronavirus outbreak has had a devastating impact on the livelihoods of Native American artists. But they are responding with a creative resolve born from centuries of adversity.`\
+https://nytimes.com/2020/06/05/arts/design/native-americans-art-coronavirus.html?searchResultPosition=5
 
-**U.S. Ship Back at Sea After Virus Outbreak and Captain Fired**\
-`A U.S. aircraft carrier ship whose captain was removed for scathing remarks about a coronavirus outbreak onboard has returned to service in the Pacific Ocean, authorities said.`\
-https://nytimes.com/reuters/2020/06/05/us/05reuters-health-coronavirus-usa-navy.html?searchResultPosition=6
+**Europe’s Patchwork Reopening**\
+`As countries consider reviving tourism, the calculus is complicated, involving “travel bubbles,” ever-shifting timelines, virus testing and, in some cases, self-quarantines.`\
+https://nytimes.com/2020/06/05/travel/europe-reopening-tourism-covid.html?searchResultPosition=6
 
-**Beijing City Government to Further Cut COVID-19 Emergency Response Level**\
-`Beijing's municipal government said on Friday it will lower its COVID-19 emergency response from level II to level III effective from Saturday, state media reported.`\
-https://nytimes.com/reuters/2020/06/05/world/asia/05reuters-health-coronavirus-china.html?searchResultPosition=7
+**Watch This Black Hole Blow Bubbles**\
+`A black hole was seen shooting electrified gas and energy into space. Each blob contained about 400 million billion pounds of matter.`\
+https://nytimes.com/2020/06/05/science/black-hole-astronomy.html?searchResultPosition=7
 
-**Libyan Government Says It Has Entered Haftar Stronghold Tarhouna**\
-`Forces loyal to Libya's internationally recognised government said on Friday they had entered Tarhouna, the last major stronghold of eastern commander Khalifa Haftar near Tripoli, capping the sudden collapse of his 14-month offensive.`\
-https://nytimes.com/reuters/2020/06/05/world/africa/05reuters-libya-security.html?searchResultPosition=8
+**Musicians Playing Through the Lockdown, to One Listener at a Time**\
+`The coronavirus pandemic has forced the cancellation of most cultural events, including concerts. But two German orchestras found an intensely personal way to play on.`\
+https://nytimes.com/2020/06/05/world/europe/germany-stuttgart-coronavirus-reopening.html?searchResultPosition=8
 
-**Once Targeted by Officials, Street Vendors Make Unexpected Comeback in China**\
-`Three weeks ago, Beijing authorities swooped in on Shan Peng and her makeshift street stall, seizing her merchandise - yogurt and casual pants - and even her electric tricycle. `\
-https://nytimes.com/reuters/2020/06/05/world/asia/05reuters-china-economy-streetstalls.html?searchResultPosition=9
+**Brooks Bros., ‘Made in America’ Since 1818, May Soon Need a New Calling Card**\
+`The clothing brand, which has dressed all but four U.S. presidents, could end up closing its three American factories as it navigates the pandemic.`\
+https://nytimes.com/2020/06/05/business/brooks-brothers-factory-closings.html?searchResultPosition=9
 
-**Thailand to Tout 'Trusted' Tourism in Coronavirus Era**\
-`Thailand is positioning itself as a trusted destination for international tourists after travel restrictions ease, capitalising on its relative success in containing the coronavirus outbreak, industry officials say.     `\
-https://nytimes.com/reuters/2020/06/05/world/asia/05reuters-health-coronavirus-thailand-tourism.html?searchResultPosition=10
+**The Agonizing Question: Is New York City Worth It Anymore?**\
+`For many, the call of an easier, safer and more affordable life beckons. But die-hard New Yorkers find the city more appealing than ever.`\
+https://nytimes.com/2020/06/05/nyregion/coronavirus-leaving-nyc.html?searchResultPosition=10
 
