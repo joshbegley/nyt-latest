@@ -1,36 +1,36 @@
+**Colombia Arrests 50 for Plant and Animal Trafficking**\
+`Colombia has captured 50 people and charged them with illegally trafficking plants and animals as part of efforts by authorities to protect the environment, the government said in a statement on Friday. `\
+https://nytimes.com/reuters/2020/06/05/world/americas/05reuters-world-environmentday-colombia.html?searchResultPosition=2
+
+**France Wants 5G Auction in September, Junior Minister Tells Le Figaro**\
+`France wants to launch its planned auction of 5G frequencies in September so that the fifth generation mobile network can be deployed by year-end, junior economy minister Agnes Pannier-Runacher said in remarks published on Friday.`\
+https://nytimes.com/reuters/2020/06/05/technology/05reuters-france-5g.html?searchResultPosition=3
+
+**W.H.O. Finally Endorses Masks to Prevent Coronavirus Transmission**\
+`The agency had been opposed to public use of masks, even after governments worldwide had recommended them.`\
+https://nytimes.com/2020/06/05/health/coronavirus-masks-who.html?searchResultPosition=4
+
 **Coronavirus Briefing: What Happened Today**\
 `A look at reopenings, the future of air travel, and an unexpected decline in the unemployment rate.`\
-https://nytimes.com/2020/06/05/us/coronavirus-today.html?searchResultPosition=2
+https://nytimes.com/2020/06/05/us/coronavirus-today.html?searchResultPosition=5
 
 **Fed's Powell Scheduled for Congressional Appearances June 16-17**\
 `Federal Reserve Chair Jerome Powell will testify before the U.S. Congress on June 16 and 17 in hearings on the central bank's semi-annual monetary policy report.`\
-https://nytimes.com/reuters/2020/06/05/us/politics/05reuters-usa-fed-powell-congress.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/05/us/politics/05reuters-usa-fed-powell-congress.html?searchResultPosition=6
 
 **North Korea Criticizes South Korea, Threatens to Close Liaison Office**\
 `North Korea lashed out at South Korea for the second day in a row on Friday, threatening to close an inter-Korean liaison office and calling the South naive to think the North wants dialogue and negotiations right now.`\
-https://nytimes.com/reuters/2020/06/05/world/asia/05reuters-northkorea-southkorea.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/05/world/asia/05reuters-northkorea-southkorea.html?searchResultPosition=7
 
 **A Week of Unrest**\
 `Capturing the sounds of a nation’s anguish.`\
-https://nytimes.com/2020/06/05/podcasts/daily-newsletter-george-floyd-coronavirus.html?searchResultPosition=5
+https://nytimes.com/2020/06/05/podcasts/daily-newsletter-george-floyd-coronavirus.html?searchResultPosition=8
 
 **U.S. Oil for Belarus Reaches Europe as Country Seeks to Stand Up to Russia**\
 `A tanker carrying the first shipment of U.S. crude oil destined for Belarus reached the port of Klaipeda in Lithuania late on Friday. `\
-https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-belarus-oil-lithuania.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-belarus-oil-lithuania.html?searchResultPosition=9
 
 **US Shares Proposal to Extend Iran Arms Embargo With Russia**\
 `U.S. Ambassador Kelly Craft said Friday she has shared a draft U.N. Security Council resolution with Russia that would extend the arms embargo against Iran indefinitely.`\
-https://nytimes.com/aponline/2020/06/05/world/europe/ap-un-united-nations-us-iran.html?searchResultPosition=7
-
-**'NO KNEELING': Trump Renews Criticism of Protests During U.S. Anthem**\
-`President Donald Trump on Friday lobbed barbs at protesters who kneel during the national anthem, after NFL quarterback Drew Brees apologized for remarks he made about the practice.`\
-https://nytimes.com/reuters/2020/06/05/sports/football/05reuters-football-nfl-trump.html?searchResultPosition=8
-
-**Unemployment, Protests, Black Hole: Your Friday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/06/05/briefing/unemployment-protests-black-hole.html?searchResultPosition=9
-
-**Suriname Finally Issues Vote Results Showing Opposition Win**\
-`Suriname's electoral authorities have finally announced preliminary results from the May 25 elections won by opposition parties, which on Friday accused the government of Desi Bouterse of obstructing efforts to seat a new legislature in the small South American nation.`\
-https://nytimes.com/aponline/2020/06/05/world/americas/ap-lt-suriname-election.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/05/world/europe/ap-un-united-nations-us-iran.html?searchResultPosition=10
 
