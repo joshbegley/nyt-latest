@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-minneapolis-police-p
 https://nytimes.com/aponline/2020/06/04/sports/football/ap-fbn-nfl-players-video.html?searchResultPosition=3
 
 **Biden Says About ‘10 to 15 Percent’ of Americans Are ‘Not Very Good People’**\
-`Mr. Biden, speaking to black supporters about the need to improve and unite the country, accused President Trump of dividing the country and pledged that he would not do so.`\
+`Mr. Biden, speaking to black supporters about the need to improve the country, accused President Trump of dividing the nation and pledged to unite it.`\
 https://nytimes.com/2020/06/04/us/politics/joe-biden-not-good-people.html?searchResultPosition=4
 
 **Olympics: Tokyo Exec Says Must Watch Virus Situation for Games Decision-Kyodo**\
