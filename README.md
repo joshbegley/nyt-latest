@@ -10,21 +10,21 @@ https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-china-openmarket.htm
 `The number of confirmed coronavirus cases in Germany increased  by 394 to 183,271, data from the Robert Koch Institute (RKI) for infectious diseases showed on Friday.`\
 https://nytimes.com/reuters/2020/06/04/world/europe/04reuters-health-coronavirus-germany-cases.html?searchResultPosition=3
 
-**Park Police: Cyclist Filmed Assaulting People Posting Signs**\
-`Park police in Maryland are looking for a man after a video appeared to show him violently grab an object from a child who was posting signs protesting the death of George Floyd.`\
-https://nytimes.com/aponline/2020/06/04/us/ap-us-america-protests-cyclist-assault.html?searchResultPosition=4
-
 **Goldman Sachs Executive's Email Making Plea for Racial Equality Goes Viral at Firm**\
 `An email by a Goldman Sachs Group Inc employee about his experiences of racial injustice and criticizing managers at the Wall Street bank for not supporting junior bankers from diverse backgrounds went viral at the firm this week.`\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-usa-goldman-sachs-race.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/04/business/04reuters-usa-goldman-sachs-race.html?searchResultPosition=4
 
-**New Zealand Military Buys 5 Lockheed Hercules Planes for $1B**\
-`New Zealand's military said Friday it will buy five Super Hercules transport planes from Lockheed Martin for $1 billion.`\
-https://nytimes.com/aponline/2020/06/04/business/ap-as-new-zealand-lockheed-plane-purchase.html?searchResultPosition=6
+**Park Police: Cyclist Filmed Assaulting People Posting Signs**\
+`Park police in Maryland are looking for a man after a video appeared to show him violently grab an object from a child who was posting signs protesting the death of George Floyd.`\
+https://nytimes.com/aponline/2020/06/04/us/ap-us-america-protests-cyclist-assault.html?searchResultPosition=5
 
 **'How It's Going ...' Goldman Executive's Email on Racial Inequality in America**\
 `Frederick Baba, a managing director at Goldman Sachs who is black, sent the following email to colleagues at the bank on June 2: `\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-usa-goldman-sachs-race-letter.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/06/04/business/04reuters-usa-goldman-sachs-race-letter.html?searchResultPosition=6
+
+**New Zealand Military Buys 5 Lockheed Hercules Planes for $1B**\
+`New Zealand's military said Friday it will buy five Super Hercules transport planes from Lockheed Martin for $1 billion.`\
+https://nytimes.com/aponline/2020/06/04/business/ap-as-new-zealand-lockheed-plane-purchase.html?searchResultPosition=7
 
 **Trump Campaign Removes Space Video That Violated NASA Ad Rules**\
 `The president has tried to parlay space policy into an upbeat campaign issue for the 2020 election.`\
