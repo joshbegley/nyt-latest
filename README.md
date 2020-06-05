@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-russia-pollution-n
 `French President Emmanuel Macron has made a fresh call for Iran to immediately release a French-Iranian researcher.`\
 https://nytimes.com/aponline/2020/06/05/world/europe/ap-eu-france-detained-researcher.html?searchResultPosition=7
 
-**Tim Davie Appointed as New Head of the BBC**\
-`Tim Davie has been appointed the new head of the BBC and will take over the role at the start of September, the publicly funded British broadcaster announced on Friday.`\
+**BBC Appoints Tim Davie as New Boss to Negotiate Future Finance Model**\
+`Tim Davie was appointed the new head of the BBC on Friday, tasked with securing the future direction and financing of the publicly funded British broadcaster in the wake of government scepticism of the current model.`\
 https://nytimes.com/reuters/2020/06/05/business/05reuters-britain-bbc.html?searchResultPosition=8
 
 **'It's Not Over Until There Is No Virus Anywhere in the World': WHO**\
