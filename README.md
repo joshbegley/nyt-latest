@@ -7,7 +7,7 @@ https://nytimes.com/video/nyregion/100000007175612/police-arrest-protest-manhatt
 https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-health-coronavirus-newzealand.html?searchResultPosition=2
 
 **Qantas to Reactivate Plans for Sydney-London Flights When Financial Strength Returns**\
-`Qantas Airways Ltd will reactivate plans to order airplanes capable of the world's longest non-stop commercial flights from Sydney to London when it returns to financial strength, its chief executive said on Friday. `\
+`Qantas Airways Ltd will reactivate plans to order airplanes capable of the world's longest non-stop commercial flights from Sydney to London when the airline returns to financial strength, its chief executive said on Friday. `\
 https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-health-coronavirus-qantas.html?searchResultPosition=3
 
 **Judge: Tennessee Must Allow Vote by Mail for All Amid Virus**\
