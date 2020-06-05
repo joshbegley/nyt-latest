@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/06/05/business/05reuters-australia-investment-f
 `Hong Sang-soo’s “Yourself and Yours” has a virtual debut. And the artist Lewis Klahr takes part in a virtual Q. and A. about his latest film, which can be streamed.`\
 https://nytimes.com/2020/06/05/arts/television/whats-on-tv-friday-we-are-freestyle-love-supreme-circumstantial-pleasures.html?searchResultPosition=7
 
-**The Latest: India Reports Biggest Single-Day Spike in Cases**\
-`NEW DELHI: India on Friday registered more than 9,800 new cases of the coronavirus in another biggest single-day spike.`\
+**The Latest: Pacific Nation Fiji Declares Itself Virus-Free**\
+`WELLINGTON, New Zealand — Fiji has declared itself free of the coronavirus - at least for now - after all 18 people who tested positive have recovered. `\
 https://nytimes.com/aponline/2020/06/05/business/ap-virus-outbreak-the-latest.html?searchResultPosition=8
 
 **Hitachi, Toshiba, Miraca to Set Up Factory for Coronavirus Antigen Tests**\
