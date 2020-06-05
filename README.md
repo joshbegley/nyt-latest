@@ -26,7 +26,7 @@ https://nytimes.com/2020/06/05/arts/music/san-francisco-symphony-michael-tilson-
 `Ireland will accelerate the cautious reopening of its economy, with the fourth and final phase of easing restrictions to start on July 20, three weeks earlier than scheduled, acting Prime Minister Leo Varadkar said on Friday. `\
 https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-health-coronavirus-ireland.html?searchResultPosition=8
 
-**Patten Says China Pursuing 'Orwellian' Agenda in Hong Kong**\
+**Hong Kong's Last British Leader: China's Agenda 'Orwellian'**\
 `The last British governor of Hong Kong criticized the Chinese government on Friday over proposed national security legislation, calling it part of an “Orwellian" drive to eliminate opposition in violation of the agreement on handing the territory over to Beijing. `\
 https://nytimes.com/aponline/2020/06/05/world/asia/ap-as-britain-hong-kong-patten.html?searchResultPosition=9
 
