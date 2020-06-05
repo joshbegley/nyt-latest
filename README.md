@@ -1,36 +1,36 @@
-**To Reach a Single A.T.M., a Line of Unemployed Stretches a Block**\
-`“It’s terrible,” said a woman who spent 45 minutes traveling from her Brooklyn home to the A.T.M. It took her more than two-and-a-half hours to reach the machine.`\
-https://nytimes.com/2020/06/05/nyregion/keybank-nyc-coronavirus.html?searchResultPosition=2
+**Electric Skateboard-Mounted Trash Collector Among U.S. Protest Volunteers**\
+`As protesters chanted near the White House, Michael Piatschak leaned from his one-wheeled electric skateboard, extended a trash-grabbing claw and, like a raptor swooping on prey, snagged a plastic bag off the street and stuffed it into a shoulder sack.`\
+https://nytimes.com/reuters/2020/06/05/us/05reuters-minneapolis-police-protests-volunteers.html?searchResultPosition=2
 
-**Texas Primary Election Results: Eighth House District**\
-``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-8-primary-election.html?searchResultPosition=3
+**Self-Driving Sector Contends Its Cars Can Prevent Many More Crashes Than Insurance Study Says**\
+`Companies working on self-driving vehicles have criticized an insurance industry study suggesting that only a third of all U.S. road crashes could be prevented by driverless cars, arguing that the study has underestimated the technology's capabilities.`\
+https://nytimes.com/reuters/2020/06/05/technology/05reuters-autos-selfdriving.html?searchResultPosition=3
 
-**Texas Primary Election Results: 25th House District**\
-``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-25-primary-election.html?searchResultPosition=4
+**Canada Postpones 5G Spectrum Auction Citing COVID-19**\
+`Canada has postponed its 3500MHz spectrum auction process by six months to allow telecoms companies to focus on providing essential services during COVID-19 pandemic, the innovation ministry said in a statement on Friday.`\
+https://nytimes.com/reuters/2020/06/05/technology/05reuters-canada-telecoms-auction.html?searchResultPosition=4
 
-**Texas Primary Election Results: 32nd House District**\
-``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-32-primary-election.html?searchResultPosition=5
+**North America's Start-Up Operations Hit by COVID-19 Fallout**\
+`On the North American sports scene the Canadian Premier League is a corner store operation and, like all small businesses that have been hit by the new coronavirus, the future is uncertain.`\
+https://nytimes.com/reuters/2020/06/05/sports/rugby/05reuters-health-coronavirus-sport-canada-feature.html?searchResultPosition=5
 
-**Texas Primary Election Results: 18th House District**\
+**Live Results: Missouri Presidential Primary 2020**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-18-primary-election.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/03/10/us/elections/results-missouri-president-democrat-primary-election.html?searchResultPosition=6
 
-**Texas Primary Election Results: 24th House District**\
+**Michigan Presidential Republican Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-24-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/03/10/us/elections/results-michigan-president-republican-primary-election.html?searchResultPosition=7
 
-**Texas Primary Election Results: 34th House District**\
+**Washington Polls: Who Different Groups Supported**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-34-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/03/10/us/elections/exit-polls-washington-primary.html?searchResultPosition=8
 
-**Texas Primary Election Results: 22nd House District**\
+**Live Results: Idaho Presidential Primary 2020**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-22-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/03/10/us/elections/results-idaho-president-democrat-primary-election.html?searchResultPosition=9
 
-**Texas Primary Election Results: 21st House District**\
+**Live Results: Mississippi Presidential Primary 2020**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-21-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/03/10/us/elections/results-mississippi-president-democrat-primary-election.html?searchResultPosition=10
 
