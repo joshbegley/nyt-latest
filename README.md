@@ -1,40 +1,40 @@
+**Novavax Gets U.S. Defense Funding for Its COVID-19 Vaccine**\
+`Novavax Inc said on Thursday the U.S. Department of Defense (DoD) will give the late-stage biotech company up to $60 million to fund the manufacturing of its experimental COVID-19 vaccine.`\
+https://nytimes.com/reuters/2020/06/04/us/04reuters-health-coronavirus-novavax.html?searchResultPosition=1
+
+**Judge Finds Probable Cause for Murder Charges in Arbery Case**\
+`A Georgia investigator testified that one of the three defendants accused of chasing down and killing Ahmaud Arbery heard another defendant use a racist slur.`\
+https://nytimes.com/2020/06/04/us/ahmaud-arbery-murder-hearing.html?searchResultPosition=2
+
+**Trump Agrees to Send Home Troops From Washington, Easing Tensions With the Pentagon**\
+`But what appeared to be an uneasy truce between the White House and military leaders did not mean the conflict was over.`\
+https://nytimes.com/2020/06/04/us/politics/trump-troops-washington-pentagon.html?searchResultPosition=3
+
+**Weightlifting: Federation Plagued by Decades of Corruption, Says Investigation**\
+`The International Weightlifting Federation (IWF) was plagued by decades of corruption orchestrated by autocratic former president Tamas Ajan, said Richard McLaren after he led an independent investigation into the governing body.`\
+https://nytimes.com/reuters/2020/06/04/sports/olympics/04reuters-weightlifting-corruption.html?searchResultPosition=4
+
+**Coronavirus Briefing: What Happened Today**\
+`Scientists found that genetics may partly determine how severely people get sick with Covid-19.`\
+https://nytimes.com/2020/06/04/us/coronavirus-today.html?searchResultPosition=5
+
+**Soccer: Real and Atletico Join Forces to Aid City's Most Vulnerable**\
+`Real Madrid and Atletico Madrid have joined forces to launch a fundraiser to help the most vulnerable families in the Spanish capital hit by the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/06/04/sports/soccer/04reuters-health-coronavirus-soccer-spain.html?searchResultPosition=6
+
+**What Students Are Saying About the George Floyd Protests**\
+`In a special Student Opinion question, we asked teenagers what they are seeing, feeling and thinking. Here is what they had to say.`\
+https://nytimes.com/2020/06/04/learning/what-students-are-saying-about-the-george-floyd-protests.html?searchResultPosition=7
+
 **MLB Players Reaffirm Pay Stance, No Deal With Teams in Sight**\
 `Baseball players reaffirmed their stance for full prorated pay, leaving a huge gap with teams that could scuttle plans to start the coronavirus-delayed season around the Fourth of July and may leave owners focusing on a schedule as short as 50 games.`\
-https://nytimes.com/aponline/2020/06/04/sports/baseball/ap-bbo-virus-outbreak-mlb.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/06/04/sports/baseball/ap-bbo-virus-outbreak-mlb.html?searchResultPosition=8
 
 **U.S. Warship Sails Through Taiwan Strait on Tiananmen Anniversary**\
 `A U.S. warship sailed through the sensitive Taiwan Strait on Thursday, the U.S. and Taiwanese militaries said, on the same day as the 31st anniversary of China's bloody crackdown on pro-democracy demonstrators in and around Tiananmen Square.`\
-https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-taiwan-security-usa.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-taiwan-security-usa.html?searchResultPosition=9
 
 **AP PHOTOS: AP Week in Pictures, Asia**\
 `MAY 29-JUNE 4, 2020`\
-https://nytimes.com/aponline/2020/06/04/us/ap-as-pictures-of-the-week-in-asia-photo-gallery.html?searchResultPosition=3
-
-**Texas Football Players March to Capitol to Honor Floyd**\
-`Dozens of University of Texas football players marched with Austin police officers from campus to the state Capitol to honor the memory of George Floyd on Thursday.`\
-https://nytimes.com/aponline/2020/06/04/sports/ncaafootball/ap-fbc-texas-floyd-march.html?searchResultPosition=4
-
-**Family of Black Man Shot by Colorado Police Files Civil Rights Lawsuit**\
-`The family of a 19-year-old African-American man who was fatally shot in the back by Colorado Springs police last year has filed a federal civil rights lawsuit against the city and the officers, court documents showed on Thursday.`\
-https://nytimes.com/reuters/2020/06/04/us/04reuters-colorado-crime.html?searchResultPosition=5
-
-**Federal Court Rejects EPA Approval of Widely Used Herbicide**\
-`The federal government must revoke its approval of a widely used weed killer that has damaged other crops and turned neighbor against neighbor in some farm communities, a federal appeals court in California ruled.`\
-https://nytimes.com/aponline/2020/06/04/business/bc-us-weed-killer-court-ruling.html?searchResultPosition=6
-
-**Unidentified Federal Police Prompt Fears Amid Protests in Washington**\
-`The Trump administration has deployed phalanxes of officers in riot gear and no identifiable markings to police demonstrations in the capital. Democrats want to know who they are.`\
-https://nytimes.com/2020/06/04/us/politics/unidentified-police-protests.html?searchResultPosition=7
-
-**Rio Looks to Reopen as Brazil Approaches Italy in Coronavirus Deaths**\
-`The mayor of Rio de Janeiro allowed more than 10,000 street vendors to go back to work on Thursday and Brazil's president pressed for legal action to force local governments to reopen beaches, as the coronavirus death toll in the country quickly approached that of Italy.`\
-https://nytimes.com/reuters/2020/06/04/world/americas/04reuters-health-coronavirus-brazil.html?searchResultPosition=8
-
-**Australia to Toughen Foreign Investment Laws Citing National Security**\
-`Australia will toughen its rules around foreign investment including additional powers to change the terms of an acquisition by an overseas entity if it threatens national security, Treasurer Josh Frydenberg will announce on Friday.`\
-https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-australia-investment.html?searchResultPosition=9
-
-**AP Journalist Punched While Walking With Police Commissioner**\
-`An Associated Press photographer on assignment was attacked Thursday afternoon by a passerby while the journalist crossed the street with Philadelphia Police Commissioner Danielle Outlaw and Mayor Jim Kenney.`\
-https://nytimes.com/aponline/2020/06/04/us/ap-us-photographer-attacked.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/04/us/ap-as-pictures-of-the-week-in-asia-photo-gallery.html?searchResultPosition=10
 
