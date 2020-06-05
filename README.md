@@ -1,40 +1,40 @@
+**As Coronavirus Sinks Global Demand, China’s Exporters Go Online to Tap Domestic Market**\
+`At this time of the year, Deng Jinling would normally be welcoming foreign buyers to her vacuum flask showroom or cramming her goods into containers to be shipped to customers in the United States. `\
+https://nytimes.com/reuters/2020/06/05/business/05reuters-health-coronavirus-china-exporters.html?searchResultPosition=1
+
+**Republican Senator Murkowski 'Struggling' Over Whether to Back Trump in Election**\
+`U.S. Senator Lisa Murkowski said on Thursday she is struggling to decide whether she can support President Donald Trump's re-election bid, saying criticism of Trump's response to nationwide protests by former Defense Secretary Jim Mattis rang true.`\
+https://nytimes.com/reuters/2020/06/05/us/politics/05reuters-minneapolis-police-protests-murkowski.html?searchResultPosition=2
+
+**U.S. Unemployment Rate Seen Near 20% as COVID Slams Jobs Market Again in May**\
+`The U.S. unemployment rate likely shot up to almost 20% in May, a new post World War Two record, with millions more losing their jobs, exposing the horrific human toll from the COVID-19 crisis. `\
+https://nytimes.com/reuters/2020/06/05/business/05reuters-usa-economy.html?searchResultPosition=3
+
+**AP Week in Pictures, Latin America & Caribbean**\
+`MAY 29-JUNE 4, 2020`\
+https://nytimes.com/aponline/2020/06/05/us/ap-lt-pictures-of-the-week-in-latin-america-caribbean-photo-gall.html?searchResultPosition=4
+
+**Ex-Dodgers Star Carl Crawford Arrested on Assault Charge**\
+`Former Los Angeles Dodgers star Carl Crawford has been arrested after his former girlfriend accused him of assaulting her during an argument over a man she had begun dating.`\
+https://nytimes.com/aponline/2020/06/05/sports/baseball/ap-bbo-carl-crawford-arrested.html?searchResultPosition=5
+
+**Another Huge Blow to US Workers Expected in May Jobs Report**\
+`America's workers likely suffered another devastating blow in May, with millions more jobs lost to the viral pandemic and an unemployment rate near or even above 20% for the first time since the Great Depression.`\
+https://nytimes.com/aponline/2020/06/05/business/ap-us-economy-jobs-report.html?searchResultPosition=6
+
+**Your Friday Briefing**\
+`Coronavirus, U.S. protests, Russian oil spill: Here’s what you need to know.`\
+https://nytimes.com/2020/06/05/briefing/coronavirus-america-protests-russia-oil-spill.html?searchResultPosition=7
+
+**Philippines' Duterte Renews Threat to Kill Drug Dealers After Big Bust**\
+`Philippine President Rodrigo Duterte renewed on Friday a threat to kill drug dealers after police seized 756 kg (1,667 lb) of methamphetamines, a haul he said proved the Southeast Asian country had become a transhipment point for narcotics. `\
+https://nytimes.com/reuters/2020/06/05/world/asia/04reuters-philippines-drugs.html?searchResultPosition=8
+
 **My Quarantine Boyfriend Lost Everything (but Found Me)**\
 `If this were real life, I would have ended it. But this was no longer real life.`\
-https://nytimes.com/2020/06/05/style/modern-love-coronavirus-quarantine-boyfriend-lost-everything.html?searchResultPosition=1
+https://nytimes.com/2020/06/05/style/modern-love-coronavirus-quarantine-boyfriend-lost-everything.html?searchResultPosition=9
 
 **Corrections: June 5, 2020**\
 `Corrections that appeared in print on Friday, June 5, 2020.`\
-https://nytimes.com/2020/06/04/pageoneplus/corrections-june-5-2020.html?searchResultPosition=2
-
-**Quotation of the Day: Biden Struggles for Diversity in His Brain Trust**\
-`Quotation of the Day for Friday, June 5, 2020.`\
-https://nytimes.com/2020/06/04/todayspaper/quotation-of-the-day-biden-struggles-for-diversity-in-his-brain-trust.html?searchResultPosition=3
-
-**As Coronavirus Sinks Global Demand, China’s Exporters Go Online to Tap Domestic Market**\
-`At this time of the year, Deng Jinling would normally be welcoming foreign buyers to her vacuum flask showroom or cramming her goods into containers to be shipped to customers in the United States. `\
-https://nytimes.com/reuters/2020/06/04/business/04reuters-health-coronavirus-china-exporters.html?searchResultPosition=4
-
-**Man Who Charged New York Protesters With Knife Claw Arrested**\
-`A man seen on video charging protesters in New York while wearing a glove with four long, serrated-edged blades surrendered to authorities, the Queens district attorney said Thursday night.`\
-https://nytimes.com/aponline/2020/06/04/us/ap-us-america-protests-knife-claw.html?searchResultPosition=5
-
-**Aussie and Kiwi Forecasts Upgraded, but Far Behind Markets: Reuters Poll**\
-`Analysts again upgraded their outlook for the Australian dollar in the latest Reuters poll, but were left lagging far behind the market which has already surpassed the one-year target after a week of blistering gains.`\
-https://nytimes.com/reuters/2020/06/04/world/asia/04reuters-forex-poll-aud.html?searchResultPosition=6
-
-**Protesters Rally for Black Lives, Remind Australia of Past**\
-`Thousands gathered in Australia’s capital on Friday to remind Australians that the racial inequality underscored by George Floyd’s death was not unique to the United States.`\
-https://nytimes.com/aponline/2020/06/04/world/asia/ap-as-america-protests-australia.html?searchResultPosition=7
-
-**Montgomerie Welcomes European Tour Return Despite Smaller Prize Pots**\
-`Colin Montgomerie has welcomed the return of golf's European Tour in July amid the COVID-19 pandemic but says he feels sorry for younger players due to the less lucrative schedule.`\
-https://nytimes.com/reuters/2020/06/04/sports/golf/04reuters-health-coronavirus-golf-montgomerie.html?searchResultPosition=8
-
-**Video Shows Police in Buffalo, New York, Shoving Man to Ground**\
-`As protests over the police killing of George Floyd continued into their tenth night on Thursday, a video shows police in Buffalo, New York, in riot gear shoving a white-haired man to the ground and appearing to march past him.`\
-https://nytimes.com/reuters/2020/06/04/us/04reuters-minneapolis-police-protests-buffalo.html?searchResultPosition=9
-
-**Brazil's Petrobras Begins Process to Sell Minority Stakes in Five Power Plants**\
-`Brazilian state-run oil firm Petrobras has started the process to sell its minority stakes in five power plants throughout Brazil, it said in a filing on Thursday night.`\
-https://nytimes.com/reuters/2020/06/04/world/americas/04reuters-petrobras-divestiture-powerplants.html?searchResultPosition=10
+https://nytimes.com/2020/06/04/pageoneplus/corrections-june-5-2020.html?searchResultPosition=10
 
