@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-health-coronavirus
 `Guest lineups for the Sunday news shows:`\
 https://nytimes.com/aponline/2020/06/05/arts/ap-us-news-shows.html?searchResultPosition=3
 
-**Trump Says Jobs Report Made It a ‘Great Day’ for George Floyd, Stepping on Victory Message**\
+**Trump Says Jobs Report Made It a ‘Great Day’ for George Floyd, Stepping on Message**\
 `The president’s comments on Mr. Floyd, who died after a police officer knelt on his neck for nearly nine minutes, were immediately criticized by Joseph R. Biden Jr., his Democratic opponent.`\
 https://nytimes.com/2020/06/05/us/politics/trump-jobs-report-george-floyd.html?searchResultPosition=4
 
