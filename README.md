@@ -2,7 +2,7 @@
 `U.S. Federal Reserve Chair Jerome Powell spoke on an almost daily basis with Treasury Secretary Steven Mnuchin in April as the two officials scrambled to erect programs to soften the economic blow from the coronavirus pandemic, Fed records released Friday showed.`\
 https://nytimes.com/reuters/2020/06/05/us/05reuters-usa-fed-powell.html?searchResultPosition=2
 
-**Biden Warns Trump Against Declaring the Economic Crisis Over**\
+**Joe Biden Warns Trump Against Declaring the Economic Crisis Over**\
 `“A president who takes no responsibility for costing millions and millions of Americans their jobs deserves no credit when a fraction of them return,” Mr. Biden said, adding that President Trump should “step out of his own bunker.”`\
 https://nytimes.com/2020/06/05/us/politics/joe-biden-trump-economy-george-floyd.html?searchResultPosition=3
 
