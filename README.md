@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/06/05/business/05reuters-tesla-amazon-com.html?
 https://nytimes.com/reuters/2020/06/05/business/05reuters-stocks-europe-bofa.html?searchResultPosition=3
 
 **Protests in N.Y.C.: Latest Updates**\
-`In the Bronx’s Mott Haven neighborhood, police fenced in protesters after the 8 p.m. curfew, then charged and began making arrests.`\
+`In the Bronx’s Mott Haven neighborhood, the police fenced in protesters after the 8 p.m. curfew, then charged and began making arrests.`\
 https://nytimes.com/2020/06/05/nyregion/protests-nyc.html?searchResultPosition=4
 
 **Britain's Sunak Picks Ex-Official Hughes to Head Budget Watchdog**\
