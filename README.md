@@ -1,36 +1,36 @@
+**IndyCar Serves Up 'Daunting' Test in Season Opener**\
+`IndyCar drivers eager to get back behind the wheel will face a test unlike any other on Saturday when, with limited practice, they kick off a season delayed by the COVID-19 pandemic on one of the series' trickiest tracks and with no fans in attendance.`\
+https://nytimes.com/reuters/2020/06/05/sports/autoracing/05reuters-motor-indycar-genesys300-preview.html?searchResultPosition=2
+
+**Legend Biotech Shares Jump Nearly 61% in U.S. Market Debut**\
+`Shares of Legend Biotech, a cell therapy unit owned by Hong Kong-listed Genscript Biotech, jumped nearly 61% in their stock market debut, signaling strong investor appetite for new listings.`\
+https://nytimes.com/reuters/2020/06/05/technology/05reuters-legend-biotech-ipo.html?searchResultPosition=3
+
+**Brazil Overtakes Mexico in Auto Production in Pandemic**\
+`Brazil produced more cars than Mexico in May, reversing normal patterns as Latin America's top carmaking countries slowly restarted auto factories in the face of the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-brazil-autos-anfavea.html?searchResultPosition=4
+
+**South Dakota Couple Accused of Using Cattle Prod on Kids**\
+`A South Dakota couple is accused of giving four children illegal drugs and of zapping them with a cattle prod to get them to comply with orders.`\
+https://nytimes.com/aponline/2020/06/05/us/ap-us-children-drugs-cattle-prod.html?searchResultPosition=5
+
+**Read Up on the Links Between Racism and the Environment**\
+`Our global climate reporter suggests some smart reads on how they're related.`\
+https://nytimes.com/interactive/2020/06/05/climate/racism-climate-change-reading-list.html?searchResultPosition=6
+
+**Ford Re-evaluates Office Space in Coronavirus World**\
+`Ford Motor Co is re-evaluating how much office space it needs for white-collar workers as restrictions put in place during the coronavirus pandemic are eased and employees return to workplaces.`\
+https://nytimes.com/reuters/2020/06/05/business/05reuters-health-coronavirus-usa-ford-motor.html?searchResultPosition=7
+
 **Criminal Probe Launched of Police Seen Shoving Elderly Man in Buffalo, Says Prosecutor's Office**\
 `Two Buffalo, New York, police officers who video showed shoving a 75-year-old protestor to the ground on Thursday are under investigation for potential criminal liability, a spokeswoman for the region's district attorney said on Friday.`\
-https://nytimes.com/reuters/2020/06/05/us/05reuters-minneapolis-police-protests-erie.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/05/us/05reuters-minneapolis-police-protests-erie.html?searchResultPosition=8
 
 **Prosecutors Search Wirecard Premises in Market Manipulation Probe**\
 `Prosecutors in Munich said they had searched the premises of financial services company Wirecard and opened proceedings against its management board as part of a market manipulation probe by BaFin, Germany's financial regulator.`\
-https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-wirecard-prosecutors.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-wirecard-prosecutors.html?searchResultPosition=9
 
 **Brazil, Mexico Currencies Both Rebound but Real Has More Legs Than Peso**\
 `The Brazilian real and Mexican peso have both rebounded strongly in recent weeks, but their rallies are starting to diverge with the peso running out of steam and the real gaining momentum.`\
-https://nytimes.com/reuters/2020/06/05/business/05reuters-brazil-mexico-forex-analysis.html?searchResultPosition=4
-
-**TUIfly Seeks to Cut 1,000 Staff: Sources**\
-`Tour operator TUI's airline TUIfly is seeking to cut around 1,000 jobs as part of a cost cut plan to halve its fleet of aircraft, three sources familiar with the matter told Reuters on Friday.`\
-https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-tui-jobs-tuifly.html?searchResultPosition=5
-
-**Citigroup Closes Some Branches Due to George Floyd Protests**\
-`Citigroup Inc said on Friday that it would proactively close some branches and reduce hours at others in light of protests around the country in response to the death of George Floyd that have at times turned violent. `\
-https://nytimes.com/reuters/2020/06/05/us/05reuters-minneapolis-police-citigroup-branches.html?searchResultPosition=6
-
-**City Workers Paint ‘Black Lives Matter’ on Streets Leading to White House**\
-`The two-block-long mural is a response to the government’s deployment of troops against the protests in Washington.`\
-https://nytimes.com/video/us/100000007176577/black-lives-matter-washington-mural.html?searchResultPosition=7
-
-**Italy's Records 85 New Coronavirus Deaths on Friday, 518 New Cases**\
-`Deaths from the COVID-19 epidemic in Italy climbed by 85 on Friday against 88 the day before, the Civil Protection Agency said, while the daily tally of new cases jumped to 518 from 177 on Thursday.`\
-https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-health-coronavirus-italy-tally.html?searchResultPosition=8
-
-**WHO Continues Hydroxychloroquine Trial After UK Test Halts**\
-`The World Health Organization is continuing its clinical trial of hydroxychloroquine, after British scientists halted a large trial that had been exploring use of the drug to treat patients with COVID-19 when initial results showed no evidence of benefit.`\
-https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-health-coronavirus-wh0-trial.html?searchResultPosition=9
-
-**Malaria Drug Didn't Help Virus Patients, Big UK Study Finds**\
-`Leaders of a large study in the United Kingdom that is rigorously testing the malaria drug hydroxychloroquine and other medicines for hospitalized COVID-19 patients say they will stop putting people on the drug because it’s clear it isn’t helping. `\
-https://nytimes.com/aponline/2020/06/05/health/ap-us-med-virus-outbreak-malaria-drug.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/05/business/05reuters-brazil-mexico-forex-analysis.html?searchResultPosition=10
 
