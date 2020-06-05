@@ -1,40 +1,40 @@
+**Biplane Fliers Enjoy Exploring Lockdown London by Air**\
+`Biplane fliers are enjoying spectacular views of the Millennium Dome, the towering Canary Wharf financial district and the Thames Barrier for the first time as the COVID-19 lockdown frees up airspace over London for amateur aviation enthusiasts.`\
+https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-health-coronavirus-britain-flying.html?searchResultPosition=1
+
+**Hong Kong's Last British Governor Likens City's Democrats to Mandela, King**\
+`The last British colonial governor of Hong Kong said the city's democrats are on the same side of history as Nelson Mandela and Martin Luther King, and blamed Chinese President Xi Jinping for "tightening the screws" on the city's freedoms.`\
+https://nytimes.com/reuters/2020/06/05/world/asia/05reuters-hongkong-protests-patten.html?searchResultPosition=2
+
+**Palace of Versailles to Reopen, but Will Visitors Come?**\
+`France's sumptuous Palace of Versailles, built in the 17th century by the "Sun King" Louis XIV, throws its doors open to the public again on Saturday but with little certainty over when tourists will return as lockdown curbs are slowly eased.`\
+https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-health-coronavirus-versailles.html?searchResultPosition=3
+
+**Iranian Foreign Minister Challenges Trump to Return to Nuclear Deal**\
+`Seizing on Donald Trump’s conciliatory tone after Tehran released an American Navy veteran, Iran’s foreign minister challenged the U.S. president on Friday to return to the nuclear deal that Washington abandoned two years ago.`\
+https://nytimes.com/reuters/2020/06/05/world/middleeast/05reuters-iran-usa-zarif.html?searchResultPosition=4
+
 **Czech PM: Russian Diplomat Spread Fake Report of Poison Plot**\
 `The Czech Republic’s spy agency has discovered that a diplomat from the Russian Embassy in Prague spread false information about a Russian assassin arriving to allegedly target the Czech capital’s mayors, Prime Minister Andrej Babis said Friday.`\
-https://nytimes.com/aponline/2020/06/05/world/europe/ap-eu-czech-russia-tensions.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/06/05/world/europe/ap-eu-czech-russia-tensions.html?searchResultPosition=5
 
 **Before the Death of Manuel Ellis, a Witness Told Police: ‘Stop Hitting Him’**\
 `The mayor of Tacoma, Wash., called for the firing and prosecution of officers involved in the arrest of Mr. Ellis after video clips of the encounter emerged.`\
-https://nytimes.com/2020/06/05/us/manuel-ellis-tacoma-video-unrest.html?searchResultPosition=2
+https://nytimes.com/2020/06/05/us/manuel-ellis-tacoma-video-unrest.html?searchResultPosition=6
 
 **Dubai: Dane Involved in Sweden, Spain Gang Crime Arrested**\
 `A Danish citizen allegedly involved in gang-related crime in southern Sweden, and killings and explosions in Spain, has been arrested in Dubai, a Swedish newspaper reported Friday.`\
-https://nytimes.com/aponline/2020/06/05/world/europe/ap-eu-sweden-dubai-gang-feud.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/06/05/world/europe/ap-eu-sweden-dubai-gang-feud.html?searchResultPosition=7
 
 **Bolsonaro Asks Security Forces to Act if Protests Against His Government Exceed Limits**\
 `Brazilian President Jair Bolsonaro on Friday called groups protesting in favor of democracy "terrorists" and "delinquents", saying he had asked security forces to act if demonstrations expected on Sunday exceed limits.`\
-https://nytimes.com/reuters/2020/06/05/world/americas/05reuters-health-coronavirus-brazil.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/05/world/americas/05reuters-health-coronavirus-brazil.html?searchResultPosition=8
 
 **A Fifth Avenue Co-op Tops the List of Sales in May**\
 `The full-floor apartment, which sold for $43 million, was among several big closings during the month as New York continues to grapple with the coronavirus.`\
-https://nytimes.com/2020/06/05/realestate/a-fifth-avenue-co-op-tops-the-list-of-sales-in-may.html?searchResultPosition=5
+https://nytimes.com/2020/06/05/realestate/a-fifth-avenue-co-op-tops-the-list-of-sales-in-may.html?searchResultPosition=9
 
 **Jimmy Kimmel Does What He Can to Help Disney Attract Advertisers**\
 `“We’re a mess,” the late-night host says at an online event meant to replace the annual celebrity-studded showcase hyping the Disney-owned networks ABC, ESPN and FX.`\
-https://nytimes.com/2020/06/05/business/media/disney-advertising-television-coronavirus.html?searchResultPosition=6
-
-**Canadian Economy Unexpectedly Adds 289,600 Jobs in May**\
-`Statistics Canada reported Friday the Canadian economy added 289,600 jobs in May, with businesses reopening amid easing public health restrictions. `\
-https://nytimes.com/aponline/2020/06/05/business/bc-cn-canada-economy.html?searchResultPosition=7
-
-**World 400m Champion Naser Provisionally Suspended by AIU**\
-`Women's 400 metres world champion Salwa Eid Naser of Bahrain has been handed a provisional suspension for failing to make herself available for anti-doping tests, the Athletics Integrity Unit (AIU) said on Friday.`\
-https://nytimes.com/reuters/2020/06/05/sports/05reuters-athletics-doping.html?searchResultPosition=8
-
-**WeWork Global to Invest $100 Million in India Business**\
-`WeWork will invest $100 million in its Indian business as the office-sharing startup looks to work its way through the ongoing coronavirus crisis, which has hit its business and kept people indoors for months.`\
-https://nytimes.com/reuters/2020/06/05/business/05reuters-india-wework.html?searchResultPosition=9
-
-**Surprise May U.S. Payrolls Rise Fans Hopes for Economic Recovery**\
-`The U.S. unemployment rate unexpectedly fell in May and layoffs abated, the Labor Department said on Friday in a report that showed the latest signs the economic downturn caused by the COVID-19 pandemic was bottoming.    `\
-https://nytimes.com/reuters/2020/06/05/business/05reuters-usa-economy-instant.html?searchResultPosition=10
+https://nytimes.com/2020/06/05/business/media/disney-advertising-television-coronavirus.html?searchResultPosition=10
 
