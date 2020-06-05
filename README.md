@@ -1,36 +1,36 @@
+**Trump Says Jobs Report Made It a ‘Great Day’ for George Floyd, Stepping on Victory Message**\
+`The president’s comments on Mr. Floyd, who died after a police officer knelt on his neck for nearly nine minutes, were immediately criticized by Joseph R. Biden Jr., his Democratic opponent.`\
+https://nytimes.com/2020/06/05/us/politics/trump-jobs-report-george-floyd.html?searchResultPosition=2
+
+**AP Exclusive: MLB Plan Saves Big-Spending Teams $100M Each**\
+`The New York Yankees, Houston Astros and Los Angeles Dodgers would each save more than $100 million on player salaries as part of management’s proposal to start the coronavirus-delayed season than they would under the union's plan, according to an analysis by The Associated Press.`\
+https://nytimes.com/aponline/2020/06/05/sports/baseball/ap-bbo-virus-outbreak-mlb-proposal-analysis.html?searchResultPosition=3
+
+**Facebook's Zuckerberg Says Working on Products to Promote Racial Justice**\
+`Facebook Inc has started a workstream for building products to advance racial justice in response to the ongoing protests in the country, Chief Executive Officer Mark Zuckerberg said on Friday. `\
+https://nytimes.com/reuters/2020/06/05/technology/05reuters-facebook-zuckerberg-racial-justice.html?searchResultPosition=4
+
+**Bolsonaro Calls WHO 'Political,' Threatens Brazil Exit**\
+`President Jair Bolsonaro threatened to pull Brazil out of the World Health Organization (WHO) on Friday unless it stops being a "partisan political organization." `\
+https://nytimes.com/reuters/2020/06/05/world/americas/05reuters-health-coronavirus-brazil-bolsonaro.html?searchResultPosition=5
+
+**Trump’s False Claim That ‘Nobody Has Ever Done’ More for the Black Community Than He Has**\
+`The records of Presidents Abraham Lincoln and Lyndon B. Johnson, among others, beg to differ.`\
+https://nytimes.com/2020/06/05/us/politics/trump-black-african-americans-fact-check.html?searchResultPosition=6
+
+**Jordan Announces $100 Million Donation to Fight for Racial Equality**\
+`Basketball great Michael Jordan and his Jordan Brand on Friday pledged $100 million over the next 10 years to organizations dedicated to ensuring racial equality.`\
+https://nytimes.com/reuters/2020/06/05/sports/basketball/05reuters-basketball-nba-jordan.html?searchResultPosition=7
+
+**Venezuela Jails 3 DirecTV Managers Over US Firm Service End**\
+`Venezuelan authorities on Friday jailed the last of three local managers of DirecTV under an arrest warrant following the Dallas-based company's abrupt cutoff of services to the South American country, citing U.S. sanctions against the socialist government. `\
+https://nytimes.com/aponline/2020/06/05/business/ap-lt-venezuela-directv.html?searchResultPosition=8
+
+**Falling Jobless Rate Could Imperil Aid Underpinning the Recovery**\
+`A surprise jump in the number of people working may give Republican lawmakers less incentive to renew the very programs that have hastened the labor market’s rebound.`\
+https://nytimes.com/2020/06/05/business/jobs-economy-recovery-aid.html?searchResultPosition=9
+
 **Trump Plans to Withdraw Some U.S. Troops From Germany, a Key NATO Ally**\
 `The plan is a further blow to America’s weakening European alliances and likely to be welcomed by President Vladimir V. Putin of Russia.`\
-https://nytimes.com/2020/06/05/world/europe/trump-troops-europe-nato-germany.html?searchResultPosition=2
-
-**Memorial Cleared to Be First PGA Tour With Fans Amid COVID-19**\
-`Next month's Memorial Tournament in Dublin, Ohio will be the first on the PGA Tour's revamped schedule to allow spectators amid the COVID-19 pandemic, organisers announced on Friday.`\
-https://nytimes.com/reuters/2020/06/05/sports/golf/05reuters-health-coronavirus-golf-memorial.html?searchResultPosition=3
-
-**Milley, America’s Top General, Walks Into a Political Battle**\
-`The military that Gen. Mark A. Milley represents is facing what could be the worst schism with the American public since the fractious Vietnam War years.`\
-https://nytimes.com/2020/06/05/us/politics/protests-milley-trump.html?searchResultPosition=4
-
-**Seattle Mayor to Ban Tear Gas for Next 30 Days Amid Protests**\
-`The Seattle mayor has banned the police use of tear gas as protests continue in the city and nationally over the killing of George Floyd. `\
-https://nytimes.com/aponline/2020/06/05/us/ap-us-america-protests-washington-state-2nd-ld-writethru.html?searchResultPosition=5
-
-**Brazil Deficit Forecast of 10% of GDP Looks 'Optimistic': Treasury Secretary**\
-`Brazil's primary budget deficit target for this year of 10% of gross domestic product is looking optimistic, Treasury Secretary Mansueto Almeida said on Friday, noting that tax revenue and the economic outlook could be worse than forecast.`\
-https://nytimes.com/reuters/2020/06/05/world/americas/05reuters-brazil-treasury.html?searchResultPosition=6
-
-**Trump Rekindles His Fight With the N.F.L. Over Protests Led by Kaepernick**\
-`The president tweeted a defense of Saints quarterback Drew Brees, who had said it was disrespectful to kneel during the national anthem, as Colin Kaepernick and other players began doing in 2016 to protest racial injustice.`\
-https://nytimes.com/2020/06/05/sports/football/trump-anthem-kneeling-kaepernick.html?searchResultPosition=7
-
-**British PM Offers to Accept EU Tariffs on Some Goods to Win Trade Deal: Daily Mail**\
-`British Prime Minister Boris Johnson is willing to accept European Union tariffs on some UK goods in an attempt to win a trade deal and break the deadlock in talks with the EU, the Daily Mail reported.`\
-https://nytimes.com/reuters/2020/06/05/technology/05reuters-britain-eu-tariffs.html?searchResultPosition=8
-
-**Security Concerns Give the White House a Fortified New Look**\
-`It increasingly resembles a Washington version of the Green Zone that sheltered American and Iraqi officials in Baghdad.`\
-https://nytimes.com/2020/06/05/us/politics/white-house-security.html?searchResultPosition=9
-
-**'Selma' Snubbed at 2015 Oscars After Cast Protested Police Violence, Actor Oyelowo Says**\
-`The civil rights movie "Selma" was made free for rental on Friday, a day after actor David Oyelowo said Oscar voters had deliberately snubbed the film in 2015.`\
-https://nytimes.com/reuters/2020/06/05/arts/05reuters-minneapolis-police-selma.html?searchResultPosition=10
+https://nytimes.com/2020/06/05/world/europe/trump-troops-europe-nato-germany.html?searchResultPosition=10
 
