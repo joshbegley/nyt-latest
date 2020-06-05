@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/06/05/us/05reuters-minneapolis-police-defunding
 https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-usa-facebook-protests.html?searchResultPosition=8
 
 **A Congressman Responds to Tom Cotton: ‘This Is Not War’**\
-`“Our fellow citizens should never be treated as enemy combatants on the battlefield,” Representative Anthony Brown writes, taking strong issue with Tom Cotton’s Op-Ed article.`\
+`“Our fellow citizens should never be treated as enemy combatants on the battlefield,” Representative Anthony Brown writes, taking strong issue with Senator Cotton’s Op-Ed article.`\
 https://nytimes.com/2020/06/05/opinion/letters/tom-cotton-military.html?searchResultPosition=9
 
 **Texas State Investigates Racial Abuse Claims Against Coach**\
