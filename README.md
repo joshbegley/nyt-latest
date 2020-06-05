@@ -27,7 +27,7 @@ https://nytimes.com/2020/06/05/briefing/11-of-our-best-weekend-reads.html?search
 https://nytimes.com/video/us/politics/100000007176257/trump-news-conference-jobs-report.html?searchResultPosition=8
 
 **Trump Moves to Allow Commercial Fishing in Conservation Area**\
-`President Donald Trump took action Friday to allow commercial fishing at marine conservation area off New England coast.`\
+`President Donald Trump took action Friday to allow commercial fishing at a marine conservation area off the New England coast.`\
 https://nytimes.com/aponline/2020/06/05/business/ap-us-trump-marine-monument.html?searchResultPosition=9
 
 **US Cardinal at Vatican Prays for Floyd, and America's Future**\
