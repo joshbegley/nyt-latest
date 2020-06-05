@@ -26,7 +26,7 @@ https://nytimes.com/2020/06/05/business/media/disney-advertising-television-coro
 `Statistics Canada reported Friday the Canadian economy added 289,600 jobs in May, with businesses reopening amid easing public health restrictions. `\
 https://nytimes.com/aponline/2020/06/05/business/bc-cn-canada-economy.html?searchResultPosition=7
 
-**Women's 400m World Champion Naser Provisionally Suspended by AIU**\
+**World 400m Champion Naser Provisionally Suspended by AIU**\
 `Women's 400 metres world champion Salwa Eid Naser of Bahrain has been handed a provisional suspension for failing to make herself available for anti-doping tests, the Athletics Integrity Unit (AIU) said on Friday.`\
 https://nytimes.com/reuters/2020/06/05/sports/05reuters-athletics-doping.html?searchResultPosition=8
 
