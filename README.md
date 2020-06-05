@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-health-coronavirus
 `The last British governor of Hong Kong criticized the Chinese government on Friday over proposed national security legislation, calling it part of an “Orwellian" drive to eliminate opposition in violation of the agreement on handing the territory over to Beijing. `\
 https://nytimes.com/aponline/2020/06/05/world/asia/ap-as-britain-hong-kong-patten.html?searchResultPosition=3
 
-**Trump Takes Victory Lap on Jobs Report, but Rate Still High**\
+**Trump Hails Jobs Report, but Unemployment Rate Still High**\
 `President Donald Trump took a victory lap Friday morning after the government reported surprising job gains for last month, seizing on the data to predict that the worst of the coronavirus pandemic and its economic disruption was in the rear-view mirror.`\
 https://nytimes.com/aponline/2020/06/05/business/bc-us-trump-economy.html?searchResultPosition=4
 
