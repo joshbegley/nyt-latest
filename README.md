@@ -1,36 +1,36 @@
+**U.S. Envoy to U.N. Pushes Back Against Criticism Over Protests**\
+`U.S. Ambassador to the United Nations Kelly Craft on Friday pushed back against criticism from countries like China and Iran over the protests across the United States over racial inequality and excessive police force, challenging them to compare records.`\
+https://nytimes.com/reuters/2020/06/05/world/middleeast/05reuters-minneapolis-police-usa-un.html?searchResultPosition=2
+
+**Americans Misuse Disinfectants in 'High Risk' Practice to Prevent Coronavirus Infection: U.S. Survey**\
+`More than a third of Americans misused cleaners and disinfectants to try to prevent infection by the coronavirus, according to a U.S. survey taken shortly after President Donald Trump publicly asked whether injecting such products could treat COVID-19.`\
+https://nytimes.com/reuters/2020/06/05/us/05reuters-health-coronavirus-disinfectants.html?searchResultPosition=3
+
+**PG&E Preparing Debt Financing to Exit Bankruptcy: CNBC**\
+`San Francisco-based utility PG&E Corp is preparing debt financing to exit bankruptcy, CNBC said on Friday citing a report. `\
+https://nytimes.com/reuters/2020/06/05/us/05reuters-pg-e-us-bankruptcy.html?searchResultPosition=4
+
+**U.S. CDC Reports 1,862,656 Coronavirus Cases**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Friday reported 1,862,656 cases of the new coronavirus, an increase of 20,555 cases from its previous count, and said that the number of deaths had risen by 1,035 to 108,064.`\
+https://nytimes.com/reuters/2020/06/05/us/05reuters-health-coronavirus-usa-cdc.html?searchResultPosition=5
+
+**Bonds Falter as Blazing Stock Rally Lures Investors**\
+`Improving U.S. economic data is pushing investors out of U.S. government bonds at the fastest pace in months, the latest sign that risk appetite is returning to broader markets. `\
+https://nytimes.com/reuters/2020/06/05/business/05reuters-health-coronavirus-yields-analysis.html?searchResultPosition=6
+
+**U.S. States Lean Toward Breaking Up Google's Ad Tech Business: CNBC**\
+`The U.S. state attorneys general investigating Alphabet Inc's Google for potential antitrust violations are leaning towards pushing for a breakup of its ad technology business as part of an expected suit, CNBC reported on Friday, citing sources.`\
+https://nytimes.com/reuters/2020/06/05/technology/05reuters-usa-google.html?searchResultPosition=7
+
+**UK Government Orders Expanded Use of Face Masks in English Hospitals**\
+`All visitors to hospitals in England will be required to wear face coverings and all hospital staff must wear surgical masks from June 15, health minister Matt Hancock said on Friday. `\
+https://nytimes.com/reuters/2020/06/05/world/europe/05reuters-health-coronavirus-britain-masks.html?searchResultPosition=8
+
+**Pakistani Activists: Lawmaker Inciting Against Journalist**\
+`A Pakistani human rights group and several senior journalists on Friday lambasted a lawmaker from the ruling party, saying he has been inciting to violence against a local TV station’s news presenter. `\
+https://nytimes.com/aponline/2020/06/05/world/asia/ap-as-pakistan-journalist.html?searchResultPosition=9
+
 **Summer Camp Kids Are America’s Coronavirus Test Subjects**\
 `Companies have arrived to help sell a safer summer. “They are crawling out of the woodwork,” one camp director said.`\
-https://nytimes.com/2020/06/05/style/is-camp-safe.html?searchResultPosition=2
-
-**A Lack of Real Leadership**\
-`In this time of the virus and civil unrest, a reader wishes for a true leader. Also: Alcohol consumption in the pandemic.`\
-https://nytimes.com/2020/06/05/opinion/letters/coronavirus-trump-leadership.html?searchResultPosition=3
-
-**Patriots Pledge $1 Million to Social Justice Causes**\
-`The Patriots say team owner Robert Kraft’s family is pledging $1 million to local grassroots organizations to promote social justice causes.`\
-https://nytimes.com/aponline/2020/06/05/sports/football/ap-fbn-patriots-social-justice-pledge.html?searchResultPosition=4
-
-**Qatar's Foreign Minister Says There Is a New Initiative to End Gulf Crisis**\
-`Qatar's foreign minister said on Friday there is a new initiative to end the three-year-old Gulf crisis and that Qatar is open to negotiations, Qatar's Al Jazeera broadcaster reported on its twitter account.`\
-https://nytimes.com/reuters/2020/06/05/world/middleeast/05reuters-gulf-crisis-qatar.html?searchResultPosition=5
-
-**Prague Says Ricin Plot Was a Hoax, and Moves to Expel 2 Russians**\
-`Prime Minister Andrej Babis of the Czech Republic said a feud between employees of the Russian Embassy had led to “made-up information about a planned attack on Czech politicians.”`\
-https://nytimes.com/2020/06/05/world/europe/czech-republic-russia-ricin.html?searchResultPosition=6
-
-**Chevron Oil Cargo Tangled in U.S. Sanctions on Venezuela**\
-`A Chevron Corp crude oil cargo has become embroiled in U.S. sanctions on shipping companies for violating restrictions on doing business with Venezuela, the company confirmed on Friday.`\
-https://nytimes.com/reuters/2020/06/05/business/05reuters-usa-venezuela-chevron.html?searchResultPosition=7
-
-**Faced With Making Food for State Troopers, Workers Walk Out**\
-`Forced to choose between their beliefs and their jobs, four restaurant workers say, they walked out after they were threatened with being fired for refusing to help fill an order for a law enforcement agency that was policing nearby race protests.`\
-https://nytimes.com/aponline/2020/06/05/business/ap-us-america-protests-taco-chain.html?searchResultPosition=8
-
-**United Airlines Closing Three International Bases for Flight Crew**\
-`United Airlines Holdings Inc is closing its international bases for flight attendants in Frankfurt, Hong Kong, and Tokyo effective Oct. 1, 2020, according to an internal memo to crew on Friday seen by Reuters.`\
-https://nytimes.com/reuters/2020/06/05/business/05reuters-health-coronavirus-united-arlns.html?searchResultPosition=9
-
-**Man Charged in Attack Against Associated Press Photographer**\
-`A man who police say assaulted an Associated Press photographer in Philadelphia as the journalist was on assignment covering the city's police commissioner was charged in the attack.`\
-https://nytimes.com/aponline/2020/06/05/us/ap-us-photographer-attacked.html?searchResultPosition=10
+https://nytimes.com/2020/06/05/style/is-camp-safe.html?searchResultPosition=10
 
