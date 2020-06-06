@@ -22,13 +22,13 @@ https://nytimes.com/reuters/2020/06/06/world/europe/06reuters-usa-germany-poland
 `African-Americans and Latinos are especially vulnerable to job losses in the pandemic and at a disadvantage in getting government support.`\
 https://nytimes.com/2020/06/06/business/economy/jobs-report-minorities.html?searchResultPosition=7
 
-**Pandemic Leaves a Void for Young Athletes Seeking to Make College Teams**\
-`High school juniors who would now be in the thick of recruiting are losing the benefits of in-person recruiting.`\
-https://nytimes.com/2020/06/06/sports/coronavirus-high-school-athletes-recruiting.html?searchResultPosition=8
-
 **Shut Out of Disney World, Where Do These N.B.A. Teams Go Next?**\
 `The eight teams that will not be part of the league’s conclusion in Florida now shift their attention to the future. And some have much brighter futures than others.`\
-https://nytimes.com/2020/06/06/sports/basketball/nba-disney-world.html?searchResultPosition=9
+https://nytimes.com/2020/06/06/sports/basketball/nba-disney-world.html?searchResultPosition=8
+
+**Pandemic Leaves a Void for Young Athletes Seeking to Make College Teams**\
+`High school juniors who would now be in the thick of recruiting are losing the benefits of in-person recruiting.`\
+https://nytimes.com/2020/06/06/sports/coronavirus-high-school-athletes-recruiting.html?searchResultPosition=9
 
 **W.N.B.A. Union Mulling Plans to Start Season as Early as July**\
 `The league has reportedly been formulating plans for a shortened season, but many obstacles remain.`\
