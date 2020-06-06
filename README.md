@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/06/06/us/ap-us-climate-change-miami.html?searc
 https://nytimes.com/2020/06/06/us/politics/democrats-police-misconduct-racial-bias.html?searchResultPosition=3
 
 **Prosecutors: 2 Buffalo Police Officers Charged With Assault**\
-`Two Buffalo police officers were charged with assault Saturday, prosecutors said, after a video showed them shoving a protester in recent demonstrations over the death of George Floyd in Minnesota. `\
+`Two Buffalo police officers were charged with assault Saturday, prosecutors said, after a video showed them shoving a 75-year-old protester in recent demonstrations over the death of George Floyd in Minnesota. `\
 https://nytimes.com/aponline/2020/06/06/us/ap-us-america-protests-buffalo-police.html?searchResultPosition=4
 
 **First-Place Raptors Dump Nets in NBA 2K League**\
