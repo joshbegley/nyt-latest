@@ -18,13 +18,13 @@ https://nytimes.com/reuters/2020/06/06/world/middleeast/06reuters-global-oil-rus
 `The gay clubs are closed, but many of the Pines “boys” are keeping their summer shares. Can they also keep their social distance?`\
 https://nytimes.com/2020/06/06/style/is-the-party-over-on-fire-island.html?searchResultPosition=6
 
-**Coronavirus Depletes the Keepers of Europe’s Memory**\
-`The pandemic has hastened the departure of witnesses to the wrenching conflicts of the last century, allowing rising political forces to recast history.`\
-https://nytimes.com/2020/06/06/world/europe/coronavirus-europe-italy-elderly-deaths.html?searchResultPosition=7
-
 **City Summer, Country Summer**\
 `A photographer and a writer separately explore black boyhood and the season.`\
-https://nytimes.com/2020/06/06/style/city-summer-country-summer.html?searchResultPosition=8
+https://nytimes.com/2020/06/06/style/city-summer-country-summer.html?searchResultPosition=7
+
+**Coronavirus Depletes the Keepers of Europe’s Memory**\
+`The pandemic has hastened the departure of witnesses to the wrenching conflicts of the last century, allowing rising political forces to recast history.`\
+https://nytimes.com/2020/06/06/world/europe/coronavirus-europe-italy-elderly-deaths.html?searchResultPosition=8
 
 **How Trump’s Demands for a Full House in Charlotte Derailed a Convention**\
 `After a high-stakes and public feud with Democratic officials in a state he won four years ago, Mr. Trump and the Republican officials are moving to largely shift convention proceedings to another state.`\
