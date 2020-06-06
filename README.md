@@ -1,5 +1,5 @@
 **New York Protesters Sing Happy Birthday**\
-`Demonstrators in Brooklyn remembered Breonna Taylor on what would have been her 27th birthday.`\
+`Demonstrators in remembered Breonna Taylor on what would have been her 27th birthday.`\
 https://nytimes.com/video/us/100000007177503/breonna-taylor-birthday-protest.html?searchResultPosition=2
 
 **Plane Crashes in Rural Georgia; 2 Children Among the 5 Dead**\
