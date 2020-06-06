@@ -26,11 +26,11 @@ https://nytimes.com/reuters/2020/06/06/world/africa/06reuters-mali-security.html
 ``\
 https://nytimes.com/interactive/2020/03/03/us/elections/results-california-house-district-49-primary-election.html?searchResultPosition=8
 
-**Texas Primary Election Results: 29th House District**\
+**Texas Primary Election Results: 24th House District**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-29-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-24-primary-election.html?searchResultPosition=9
 
-**North Carolina Primary Election Results: Sixth House District**\
+**Texas Primary Election Results: 18th House District**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-north-carolina-house-district-6-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-18-primary-election.html?searchResultPosition=10
 
