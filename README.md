@@ -1,36 +1,36 @@
-**Iranian Wedding Party Fuelled New COVID-19 Surge, President Rouhani Says**\
-`- A wedding party contributed to a new surge in coronavirus infections in Iran, President Hassan Rouhani said on Saturday but insisted the country had no option but to keep its economy open despite warnings of a second wave of the epidemic. `\
-https://nytimes.com/reuters/2020/06/06/world/middleeast/06reuters-health-coronavirus-iran.html?searchResultPosition=2
+**Is the Party Over on Fire Island?**\
+`The gay clubs are closed, but many of the Pines “boys” are keeping their summer shares. Can they also keep their social distance?`\
+https://nytimes.com/2020/06/06/style/is-the-party-over-on-fire-island.html?searchResultPosition=2
 
-**France Tells China It Still Backs 'One Country, Two Systems' for Hong Kong**\
-`French President Emmanuel Macron has told Chinese counterpart Xi Jinping he is following events in Hong Kong closely and continues to back the "one country, two systems" principle for Beijing's rule over the city, an Elysee official said.`\
-https://nytimes.com/reuters/2020/06/06/world/asia/06reuters-hongkong-protests-france.html?searchResultPosition=3
+**Coronavirus Depletes the Keepers of Europe’s Memory**\
+`The pandemic has hastened the departure of witnesses to the wrenching conflicts of the last century, allowing rising political forces to recast history.`\
+https://nytimes.com/2020/06/06/world/europe/coronavirus-europe-italy-elderly-deaths.html?searchResultPosition=3
 
-**Indonesia Reports Biggest Daily Rise in Coronavirus Infections**\
-`Indonesia reported on Saturday its biggest daily rise in coronavirus infections, with 993 new cases, taking its total number to 30,514, a health ministry official said.`\
-https://nytimes.com/reuters/2020/06/06/world/asia/06reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=4
+**City Summer, Country Summer**\
+`A photographer and a writer separately explore black boyhood and the season.`\
+https://nytimes.com/2020/06/06/style/city-summer-country-summer.html?searchResultPosition=4
 
-**Throngs Marching in Australia and Europe Against Police Brutality**\
-`Tens of thousands turned out in solidarity with U.S. protests against the death of George Floyd, while denouncing the deaths of Aboriginal Australians in police custody.`\
-https://nytimes.com/2020/06/06/world/george-floyd-global-protests.html?searchResultPosition=5
+**‘Corporate America Has Failed Black America’**\
+`For a group of elite black executives, police killings and protests have unleashed an outpouring of emotion and calls for action.`\
+https://nytimes.com/2020/06/06/business/corporate-america-has-failed-black-america.html?searchResultPosition=5
 
-**Police Arrest Cyclist Who Confronted Youngsters Posting U.S. Racial Injustice Flyers**\
-`A cyclist whose videotaped confrontation with three youngsters posting flyers protesting racial injustice on a nature trail outside Washington drew widespread attention has been arrested and charged, police said late Friday.`\
-https://nytimes.com/reuters/2020/06/06/us/06reuters-minneapolis-police-protests-cyclist.html?searchResultPosition=6
+**How Trump’s Demands for a Full House in Charlotte Derailed a Convention**\
+`After a high-stakes and public feud with Democratic officials in a state he won four years ago, Mr. Trump and the Republican officials are moving to largely shift convention proceedings to another state.`\
+https://nytimes.com/2020/06/06/us/politics/republican-convention-charlotte-2020.html?searchResultPosition=6
 
-**Philippines Confirms 7 New Coronavirus Deaths, 714 More Cases**\
-`The Philippines' health ministry on Saturday reported seven new coronavirus deaths and 714 additional infections.`\
-https://nytimes.com/reuters/2020/06/06/world/asia/06reuters-health-coronavirus-philippines-cases.html?searchResultPosition=7
+**Amazon Deforestation Soars as Pandemic Hobbles Enforcement**\
+`A rise in illegal deforestation heightens the risk of fires in the Brazilian rainforest even more destructive than those that drew global outrage last year.`\
+https://nytimes.com/2020/06/06/world/americas/amazon-deforestation-brazil.html?searchResultPosition=7
 
-**Sport: On This Day... June 7**\
-`ON THIS DAY -- JUNE 7`\
-https://nytimes.com/reuters/2020/06/06/sports/cricket/06reuters-sport-retrospective-june7.html?searchResultPosition=8
+**American Diplomats Struggle to Defend Democracy Abroad Amid Crises at Home**\
+`Police violence and President Trump’s threats to use the military against protesters have undercut U.S. criticism of autocrats and called into question the country’s moral authority.`\
+https://nytimes.com/2020/06/06/us/politics/protests-diplomats-coronavirus.html?searchResultPosition=8
 
-**Kazakh Police Detain Dozens of Anti-Government Protesters**\
-`Police in Kazakhstan's largest city Almaty detained dozens of anti-government protesters who took to the streets on Saturday even as a new, more liberal law on demonstrations was expected to come into force.`\
-https://nytimes.com/reuters/2020/06/06/world/asia/06reuters-kazakhstan-protests.html?searchResultPosition=9
+**Navigating Home Care During the Pandemic**\
+`For the several million older Americans being cared for at home, the coronavirus brings new challenges.`\
+https://nytimes.com/2020/06/06/health/coronavirus-home-care-nursing.html?searchResultPosition=9
 
-**Poland to Extend Ban on International Flights to June 16**\
-`Poland plans to extend a ban on international flights until June 16 due to the coronavirus pandemic, state-run news agency PAP said late on Friday, citing a government decree. `\
-https://nytimes.com/reuters/2020/06/06/world/europe/06reuters-health-coronavirus-poland-flights.html?searchResultPosition=10
+**Young Protesters Say Voting Isn’t Enough. Will They Do It Anyway?**\
+`“Don’t boo — vote,” has been Barack Obama’s mantra. Now, Democrats want to adapt it: Protest, then vote.`\
+https://nytimes.com/2020/06/06/us/politics/young-protesters-say-voting-isnt-enough-will-they-do-it-anyway.html?searchResultPosition=10
 
