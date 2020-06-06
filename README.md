@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/06/06/world/europe/ap-eu-odd-germany-forgetful
 `Colin Kaepernick was a second-round draft pick in 2011. The next year lhe ed the San Francisco 49ers to the Super Bowl. By 2016, he had begun kneeling on the sideline at games during the national anthem to protest social injustice and police brutality. `\
 https://nytimes.com/aponline/2020/06/06/sports/football/ap-fbn-kaepernick-protests-timeline.html?searchResultPosition=7
 
-**The Latest: EPL Teams in Practice Games; No Positive Results**\
+**The Latest: Racing Resumes at Woodbine in Toronto**\
 `The Latest on the effects of the coronavirus outbreak on sports around the world:`\
 https://nytimes.com/aponline/2020/06/06/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=8
 
