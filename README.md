@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/06/06/world/asia/06reuters-health-coronavirus-l
 `Britain's Prince William has revealed that he has been anonymously helping out on a crisis helpline during the coronavirus lockdown.`\
 https://nytimes.com/aponline/2020/06/06/world/europe/ap-eu-britain-prince-william.html?searchResultPosition=6
 
-**Malaysia Reports 38 New Coronavirus Cases, One New Death**\
-`Malaysian health officials reported 38 new coronavirus cases on Saturday, taking the cumulative total to 8,304.`\
+**Malaysia Reports 37 New Coronavirus Cases, One New Death**\
+`Malaysian health officials reported 37 new coronavirus cases on Saturday, taking the cumulative total to 8,303.`\
 https://nytimes.com/reuters/2020/06/06/world/asia/06reuters-health-coronavirus-malaysia.html?searchResultPosition=7
 
 **OPEC, Russia Meet to Extend Record Oil Cuts, Push for Compliance**\
