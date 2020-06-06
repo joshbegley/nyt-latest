@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/06/06/us/ap-us-climate-change-miami.html?searc
 `Elements of the package, to be unveiled on Monday by House and Senate Democrats, are certain to meet with opposition from police unions and their allies.`\
 https://nytimes.com/2020/06/06/us/politics/democrats-police-misconduct-racial-bias.html?searchResultPosition=3
 
-**Prosecutors: 2 Buffalo Police Officers Charged With Assault**\
+**Prosecutor: 2 Buffalo Police Charged With Assault in Shoving**\
 `Two Buffalo police officers were charged with assault Saturday, prosecutors said, after a video showed them shoving a 75-year-old protester in recent demonstrations over the death of George Floyd in Minnesota. `\
 https://nytimes.com/aponline/2020/06/06/us/ap-us-america-protests-buffalo-police.html?searchResultPosition=4
 
