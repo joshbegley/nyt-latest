@@ -1,4 +1,4 @@
-**Protesters In Washington, D.C., Continue Call for Justice**\
+**Protesters In Washington, D.C. Continue Call for Justice**\
 `Peaceful protesters came together in the nation’s capital as another weekend of demonstrations unfolded across the country in response to the killing of George Floyd.`\
 https://nytimes.com/video/us/politics/100000007177962/washington-dc-protest-george-floyd.html?searchResultPosition=2
 
@@ -26,11 +26,11 @@ https://nytimes.com/reuters/2020/06/06/world/africa/06reuters-mali-security.html
 ``\
 https://nytimes.com/interactive/2020/03/03/us/elections/results-california-house-district-49-primary-election.html?searchResultPosition=8
 
-**Texas Primary Election Results: 29th House District**\
+**Texas Primary Election Results: 24th House District**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-29-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-24-primary-election.html?searchResultPosition=9
 
-**North Carolina Primary Election Results: Sixth House District**\
+**Texas Primary Election Results: 18th House District**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-north-carolina-house-district-6-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-18-primary-election.html?searchResultPosition=10
 
