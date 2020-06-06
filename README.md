@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/06/06/world/asia/ap-as-japan-obit-north-korea-
 `If confirmed, the death of Abdelmalek Droukdal would be a blow to one of the terrorist group’s most successful and resilient affiliates.`\
 https://nytimes.com/2020/06/06/world/africa/al-qaeda-abdelmalek-droukdal.html?searchResultPosition=7
 
-**Democratic U.S. Politicians Urge Police Reforms as Protesters March for 11th Day**\
+**Democratic U.S. Politicians Urge Police Reform as Protesters March for 11th Day**\
 `Prominent Democratic politicians on Friday embraced the cause of U.S. protesters angered by the death of a black man in Minneapolis police custody, adopting their slogans and announcing reforms as tensions remained high in major cities. `\
 https://nytimes.com/reuters/2020/06/06/us/politics/06reuters-minneapolis-protest-police.html?searchResultPosition=8
 
