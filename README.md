@@ -6,8 +6,8 @@ https://nytimes.com/2020/06/06/world/coronavirus-updates.html?searchResultPositi
 `In rare cases, priests have been able to offer the powerful ritual known as last rites to people dying of the coronavirus.`\
 https://nytimes.com/interactive/2020/06/06/us/coronavirus-priests-last-rites.html?searchResultPosition=3
 
-**Egypt Announces New Libya Initiative With Eastern-Based Leaders**\
-`Egypt's President Abdel Fattah al-Sisi announced a new initiative for Libya on Saturday alongside east Libya-based leaders, which proposes an elected leadership council and a ceasefire starting on June 8.`\
+**Egypt Announces New Libya Plan After Collapse of Haftar Offensive**\
+`Egypt's President Abdel Fattah al-Sisi announced a new initiative for Libya on Saturday, flanked by the war-torn nation's eastern commander Khalifa Haftar, proposing an elected leadership council and a ceasefire starting on June 8.`\
 https://nytimes.com/reuters/2020/06/06/world/europe/06reuters-libya-security.html?searchResultPosition=4
 
 **Dutch Mink Cull Starts as Coronavirus Spreads to 10th Farm**\
