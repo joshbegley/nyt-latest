@@ -3,7 +3,7 @@
 https://nytimes.com/video/nyregion/100000007178317/brooklyn-protests-george-floyd.html?searchResultPosition=2
 
 **Oval Master: Allmendinger Wins on NASCAR Oval for 1st Time**\
-`A.J. Allmendinger won a NASCAR oval race for the first time in his long career.`\
+`A.J. Allmendinger finally won on an oval.`\
 https://nytimes.com/aponline/2020/06/06/sports/ap-car-nascar-atlanta-xfinity.html?searchResultPosition=3
 
 **Senior Trump Aide Apologizes for Promoting Racially-Charged Video**\
