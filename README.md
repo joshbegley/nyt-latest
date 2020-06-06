@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/06/06/business/ap-virus-outbreak-the-latest.ht
 `Joe Biden has formally clinched the Democratic presidential nomination, setting him up for a bruising challenge to President Donald Trump that will play out against the unprecedented backdrop of a pandemic, economic collapse and civil unrest.`\
 https://nytimes.com/aponline/2020/06/06/us/politics/ap-us-election-2020-biden.html?searchResultPosition=3
 
-**Thousands in Australia Defy Bans at Black Lives Matters Protests**\
+**Thousands in Australia Defy Bans at Black Lives Matter Protests**\
 `Thousands of Australians gathered in protests on Saturday embracing the cause of U.S. protesters angered by the death of a black man in police custody, defying bans and police warnings that fines will be issued for breaching social-distancing rules.`\
 https://nytimes.com/reuters/2020/06/06/world/asia/06reuters-minneapolis-police-protests-australia.html?searchResultPosition=4
 
