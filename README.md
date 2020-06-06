@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/06/06/us/politics/06reuters-usa-election-tweet.
 https://nytimes.com/aponline/2020/06/06/us/ap-us-america-protests-california-9th-ld-writethru.html?searchResultPosition=4
 
 **Zuckerberg-Funded Scientists: Rein in Trump on Facebook**\
-`Dozens of scientists doing research funded by Mark Zuckerberg say Facebook should not be letting President Donald Trump use of the social media platform to “spread both misinformation and incendiary statements.”`\
+`Dozens of scientists doing research funded by Mark Zuckerberg say Facebook should not be letting President Donald Trump use the social media platform to “spread both misinformation and incendiary statements.”`\
 https://nytimes.com/aponline/2020/06/06/technology/bc-tec-facebook-scientists-letter.html?searchResultPosition=5
 
 **'Enough Is Enough': Jamaicans Protest in Support of George Floyd**\
