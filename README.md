@@ -1,4 +1,4 @@
-**Protestors In Washington, D.C. Continue Call for Justice**\
+**Protesters In Washington, D.C., Continue Call for Justice**\
 `Peaceful protesters came together in the nation’s capital as another weekend of demonstrations unfolded across the country in response to the killing of George Floyd.`\
 https://nytimes.com/video/us/politics/100000007177962/washington-dc-protest-george-floyd.html?searchResultPosition=2
 
