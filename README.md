@@ -23,7 +23,7 @@ https://nytimes.com/video/nyregion/100000007178444/car-strikes-brooklyn-proteste
 https://nytimes.com/reuters/2020/06/07/world/asia/07reuters-china-economy-trade.html?searchResultPosition=7
 
 **Deputy Killed, 2 Other Officers Shot in California Ambush**\
-`A Santa Cruz County sheriff’s deputy was killed and two other law enforcement officers were wounded when they were shot Saturday while making an arrest, authorities said. `\
+`A Northern California sheriff’s deputy was killed and two law enforcement officers wounded Saturday when they were ambushed with gunfire and explosives while pursuing a suspect, authorities said. `\
 https://nytimes.com/aponline/2020/06/07/us/ap-us-california-officers-shot-2nd-ld-writethru.html?searchResultPosition=8
 
 **Washington Protesters Express Optimism After Week on Edge**\
