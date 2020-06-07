@@ -1,4 +1,4 @@
-**Floyd's Death Spurs 'Gen Z' Activists to Set Up New DC Rights Group**\
+**Floyd's Death Spurs 'Gen Z' Activists to Set Up New D.C. Rights Group**\
 `Jacqueline LaBayne and Kerrigan Williams met for the very first time in person on Wednesday, at a sit-in they organized in front of the U.S. Capitol over the death of George Floyd.`\
 https://nytimes.com/reuters/2020/06/07/us/07reuters-minneapolis-police-protests-day.html?searchResultPosition=2
 
