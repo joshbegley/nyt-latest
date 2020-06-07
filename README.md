@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/06/07/sports/soccer/ap-soc-nwsl-moms.html?sear
 https://nytimes.com/aponline/2020/06/07/world/europe/ap-eu-virus-outbreak-spain.html?searchResultPosition=7
 
 **Farmers Get Billions in Virus Aid, and Democrats Are Wary**\
-`As the administration sends at least $16 billion in additional subsidies, critics are concerned that the funds could be used to ensure that the president maintains the backing of one of his key voting blocs.`\
+`As the administration sends up to $16 billion in additional subsidies, critics are concerned that the funds could be used to ensure that the president maintains the backing of one of his key voting blocs.`\
 https://nytimes.com/2020/06/07/us/politics/virus-trump-aid-farmers.html?searchResultPosition=8
 
 **Istanbul Residents Ignore Virus Rules on First Weekend Out**\
