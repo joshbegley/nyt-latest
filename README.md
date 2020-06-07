@@ -30,7 +30,7 @@ https://nytimes.com/reuters/2020/06/07/world/europe/07reuters-health-coronavirus
 `Popular South Korean band BTS donated $1 million to Black Lives Matter (BLM) in support of U.S. protests against police brutality, its music label, Big Hit Entertainment, told Reuters on Sunday.`\
 https://nytimes.com/reuters/2020/06/07/arts/07reuters-southkorea-bts-minneapolis-police.html?searchResultPosition=9
 
-**Malaysia to Lift Most Coronavirus Curbs With Outbreak 'Under Control'**\
-`Malaysia will lift most coronavirus restrictions on businesses on Wednesday, including a ban on travel between its states,  after a lockdown of nearly three months although its international borders will remain closed. `\
+**Malaysia to Reopen Most Economic Activity With Virus Outbreak 'Under Control'**\
+`Malaysia on Sunday said it would reopen nearly all economic activity and allow interstate travel starting June 10, lifting coronavirus restrictions imposed nearly three months ago as it moves to revive an economy battered by the pandemic. `\
 https://nytimes.com/reuters/2020/06/07/world/asia/07reuters-health-coronavirus-malaysia-curbs.html?searchResultPosition=10
 
