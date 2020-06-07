@@ -10,8 +10,8 @@ https://nytimes.com/2020/06/07/realestate/homes-that-sold-for-around-1-5-million
 `After nearly two weeks of national unrest, Claudia Rankine reflects on the reality of repetition in the systems of institutionalized racism.`\
 https://nytimes.com/2020/06/07/podcasts/the-daily/george-floyd-protests.html?searchResultPosition=4
 
-**Saudi Coronavirus Cases Exceed 100,000: Reuters Tally**\
-`The number of coronavirus cases in Saudi Arabia exceeded 100,000 on Sunday as the kingdom struggles to get to grips with a rise in the number of new infections over the past ten days.`\
+**Saudi Coronavirus Cases Exceed 100,000**\
+`The number of coronavirus cases in Saudi Arabia exceeded 100,000 on Sunday following a rise in new infections over the past ten days.`\
 https://nytimes.com/reuters/2020/06/07/world/middleeast/07reuters-health-coronavirus-saudi.html?searchResultPosition=5
 
 **New York City Mayor Ends 8 P.m. Curfew a Day Early**\
