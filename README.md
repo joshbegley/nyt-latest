@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/06/07/world/asia/07reuters-health-coronavirus-p
 `Fourteen police officers were injured in "shocking and completely unacceptable" assaults during anti-racism protests in central London on Saturday, London police chief Cressida Dick said on Sunday.`\
 https://nytimes.com/reuters/2020/06/07/world/europe/07reuters-minneapolis-police-protests-britain.html?searchResultPosition=5
 
-**AstraZeneca Approaches Gilead About Potential Merger-Bloomberg News**\
-`AstraZeneca Plc has approached rival drugmaker Gilead Sciences Inc about a potential merger, Bloomberg News reported https://bloom.bg/3h2GU9e on Sunday, citing people familiar with the matter.`\
+**AstraZeneca Approached Gilead About Potential Merger-Bloomberg News**\
+`AstraZeneca Plc has approached rival drugmaker Gilead Sciences Inc about a potential merger, Bloomberg News reported on Sunday, citing people familiar with the matter.`\
 https://nytimes.com/reuters/2020/06/07/business/07reuters-gilead-sciences-m-a-astrazeneca.html?searchResultPosition=6
 
 **Australia Extends Support to Airlines for Domestic Flights**\
