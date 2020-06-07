@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/06/07/world/asia/07reuters-health-coronavirus-i
 https://nytimes.com/aponline/2020/06/07/us/ap-us-confederate-monuments-richmond.html?searchResultPosition=4
 
 **Coronavirus Live Updates: Protests Present a New Front Line for Doctors**\
-`While many health care workers have shown support for rallies demanding justice for George Floyd, they are worried about a spike in new Covid-19 cases.`\
+`While many health care workers have shown support for rallies demanding justice for George Floyd, they are worried about a  spike in new Covid-19 cases.`\
 https://nytimes.com/2020/06/07/world/coronavirus-updates.html?searchResultPosition=5
 
 **Afghan Cricket Team Starts Training Despite Virus Fears**\
