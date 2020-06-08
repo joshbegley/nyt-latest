@@ -27,7 +27,7 @@ https://nytimes.com/2020/06/07/us/minneapolis-police-abolish.html?searchResultPo
 https://nytimes.com/2020/06/07/us/unrest-protests-minneapolis-ending.html?searchResultPosition=8
 
 **Former Florida, NFL Star Reche Caldwell Fatally Shot**\
-`Reche Caldwell, the former University of Florida and NFL receiver, was fatally shot Saturday night in his hometown.`\
+`Former Florida and NFL receiver Reche Caldwell was fatally shot Saturday night in his hometown.`\
 https://nytimes.com/aponline/2020/06/07/sports/football/ap-fbn-caldwell-fatal-shooting.html?searchResultPosition=9
 
 **Iowa Strength Coach Denies 'Unethical Behavior or Bias'**\
