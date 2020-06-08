@@ -1,36 +1,36 @@
+**Armenian PM Sacks Army, Police and Security Chiefs Over COVID-19 Curbs**\
+`Armenia's prime minister sacked the heads of the army, police and national security service on Monday, saying they had set a bad example over coronavirus restrictions.`\
+https://nytimes.com/reuters/2020/06/08/world/europe/08reuters-health-coronavirus-armenia.html?searchResultPosition=2
+
+**Private Equity Scouts for China Take-Private Deals Amid Tension, Volatile Markets**\
+`Private equity investors are seeking Chinese companies to take private in the hope they can snap up bargains amid the coronavirus-related sell-off, but the banks that help find such deals are proving less keen to finance them.`\
+https://nytimes.com/reuters/2020/06/08/world/asia/08reuters-china-m-a-take-privates.html?searchResultPosition=3
+
+**NTSB Seeks Stronger Lithium-Ion Battery Rules After Fire**\
+`The National Transportation Safety Board is recommending a loophole that allows some lithium-ion batteries to taken on airplanes be closed, citing insufficient safety precautions.`\
+https://nytimes.com/aponline/2020/06/08/business/ap-us-battery-fires-aircraft.html?searchResultPosition=4
+
+**Joe Biden Does Not Back Defund the Police Movement, Spokesman Says**\
+`Mr. Biden “hears and shares the deep grief and frustration of those calling out for change” and “supports the urgent need for reform,” the statement said.`\
+https://nytimes.com/2020/06/08/us/politics/biden-defund-the-police.html?searchResultPosition=5
+
+**Recession Hit US in February, Ending Record-Long Expansion**\
+`The U.S. economy entered a recession in February, a group of economists declared Monday, ending the longest expansion on record. `\
+https://nytimes.com/aponline/2020/06/08/business/bc-us-economy-recession.html?searchResultPosition=6
+
+**Plenty of Top Players Were Drafted After the Fifth Round**\
+`This year’s baseball draft has been shortened to five rounds, meaning the number of players picked will be significantly smaller than usual. That could leave several potential contributors among the large group of undrafted players.`\
+https://nytimes.com/aponline/2020/06/08/sports/baseball/ap-bbo-late-round-picks.html?searchResultPosition=7
+
 **Canadian Banks' Mortgage Deferrals, at Double the U.S. Rate, Likely to Curb Earnings**\
 `Canada's top six banks have deferred mortgage repayments at nearly double the rate of their U.S. counterparts, setting themselves up for a tough slog to return to their pre-pandemic performance as higher household debt and insolvencies weigh on borrowing.`\
-https://nytimes.com/reuters/2020/06/08/us/08reuters-health-coronavirus-mortgage-deferrals-analysis.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/08/us/08reuters-health-coronavirus-mortgage-deferrals-analysis.html?searchResultPosition=8
 
 **Motor Racing: Hamilton Supports Protesters Who Tore Down Slave Trader's Statue**\
 `Six-times Formula One world champion Lewis Hamilton has backed the anti-racism protesters who toppled the statue of a 17th-century slave trader in the English port city of Bristol, and urged governments across the world to take similar action.`\
-https://nytimes.com/reuters/2020/06/08/sports/autoracing/08reuters-minneapolis-police-protests-hamilton.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/08/sports/autoracing/08reuters-minneapolis-police-protests-hamilton.html?searchResultPosition=9
 
 **Dutch Protesters Demand End to Fur Farming After Coronavirus Outbreak**\
 `More than 100 people calling for an end to fur farming protested in front of the Dutch parliament on Monday following an outbreak of coronavirus on mink farms that has led to a cull of tens of thousands of the animals.`\
-https://nytimes.com/reuters/2020/06/08/world/europe/08reuters-health-coronavirus-netherlands-mink.html?searchResultPosition=4
-
-**Nasdaq Sets New Record, Close to Confirming Bull Market in Place**\
-`The Nasdaq composite rose to a new record high on Monday, and looks on track to confirm that it has been in a bull market for two and a half months according to many definitions, after Wall Street's nosedive on worries about coronavirus. `\
-https://nytimes.com/reuters/2020/06/08/business/08reuters-usa-stocks-nasdaq.html?searchResultPosition=5
-
-**Furious Backlash in Brazil After Ministry Withholds Coronavirus Data**\
-`President Jair Bolsonaro’s government stopped disclosing comprehensive data on coronavirus cases and deaths as cases continue to soar.`\
-https://nytimes.com/2020/06/08/world/americas/brazil-coronavirus-statistics.html?searchResultPosition=6
-
-**Volkswagen Replaces Herbert Diess as CEO of VW Brand**\
-`Volkswagen on Monday named Ralf Brandstaetter as the new chief executive (CEO) of its core VW car brand, replacing Herbert Diess, who retains his title as head of Volkswagen Group, the carmaker said. `\
-https://nytimes.com/reuters/2020/06/08/business/08reuters-volkswagen-management-brandstaetter.html?searchResultPosition=7
-
-**COVID-19 in UK Care Homes Coming Under Control, Says Minister**\
-`The COVID-19 epidemic in British care homes is coming under control, Health Secretary Matt Hancock said on Monday after announcing that all remaining adult care homes would have access to testing for residents and staff.`\
-https://nytimes.com/reuters/2020/06/08/world/europe/08reuters-health-coronavirus-britain-hancock.html?searchResultPosition=8
-
-**EU Banks Shouldn't Pay Dividends This Year, Watchdog Says**\
-`Banks in the European Union shouldn't be allowed to pay dividends, bonuses, or buy back shares at least until the end of this year, the European Systemic Risk Board (ESRB) said on Monday.`\
-https://nytimes.com/reuters/2020/06/08/us/08reuters-europe-banks-dividend.html?searchResultPosition=9
-
-**Exclusive: U.S. Navy Test Shows 60 Percent of Carrier Crew Have Coronavirus Antibodies**\
-`A U.S. Navy investigation into the spread of the coronavirus aboard the Theodore Roosevelt aircraft carrier has found that about 60 percent of sailors tested had antibodies for the coronavirus, two U.S. officials told Reuters on Monday, suggesting a far higher infection rate than previously known. `\
-https://nytimes.com/reuters/2020/06/08/us/08reuters-health-coronavirus-usa-navy-exclusive.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/08/world/europe/08reuters-health-coronavirus-netherlands-mink.html?searchResultPosition=10
 
