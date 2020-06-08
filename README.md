@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/06/08/world/asia/08reuters-hong-kong-protests-japan.html?searchResultPosition=2
 
 **BP to Cut 10,000 Jobs Worldwide Amid Virus Pandemic**\
-`Energy company BP says that its global workforce will be trimmed by 10,000 jobs amid the ongoing impact of the COVID-19 pandemic. `\
+`Energy company BP said Monday that its global workforce will be trimmed by 10,000 jobs as the COVID-19 pandemic slams the oil and gas industry.`\
 https://nytimes.com/aponline/2020/06/08/business/bc-eu-britain-bp.html?searchResultPosition=3
 
 **Poll: Pandemic Does Little to Alter US Views on Health Care**\
