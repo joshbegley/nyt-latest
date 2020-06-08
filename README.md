@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/06/08/world/asia/08reuters-china-m-a-take-priva
 `The National Transportation Safety Board is recommending a loophole that allows some lithium-ion batteries to taken on airplanes be closed, citing insufficient safety precautions.`\
 https://nytimes.com/aponline/2020/06/08/business/ap-us-battery-fires-aircraft.html?searchResultPosition=4
 
-**Joe Biden Does Not Back Defund the Police Movement, Spokesman Says**\
+**Joe Biden Does Not Want to Defund the Police, Spokesman Says**\
 `Mr. Biden “hears and shares the deep grief and frustration of those calling out for change” and “supports the urgent need for reform,” the statement said.`\
 https://nytimes.com/2020/06/08/us/politics/biden-defund-the-police.html?searchResultPosition=5
 
