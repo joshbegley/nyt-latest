@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/06/07/sports/olympics/07reuters-athletics-corruption.html?searchResultPosition=2
 
 **Is This the Trump Tipping Point?**\
-`I know, we’ve said we were there a thousand times before. This time feels different.`\
+`I know. We’ve said we’ve been here a thousand times before. This time feels different.`\
 https://nytimes.com/2020/06/07/opinion/trump-mattis-polls.html?searchResultPosition=3
 
 **Amid Pandemic and Upheaval, New Cyber Risks to the Presidential Election**\
