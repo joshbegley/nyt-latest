@@ -15,7 +15,7 @@ https://nytimes.com/2020/06/07/pageoneplus/no-corrections-june-8-2020.html?searc
 https://nytimes.com/2020/06/07/todayspaper/quotation-of-the-day-other-movements-have-faded-this-one-feels-like-home.html?searchResultPosition=5
 
 **Sen. Mitt Romney Joins Black Lives Matter Protest in DC**\
-`U.S. Sen. Mitt Romney marched Sunday in a protest against police mistreatment of minorities in the nation’s capitol, making him the first Republican senator known to do so. `\
+`U.S. Sen. Mitt Romney marched Sunday in a protest against police mistreatment of minorities in the nation’s capital, making him the first Republican senator known to do so. `\
 https://nytimes.com/aponline/2020/06/07/us/politics/ap-us-romney-police-protest-4th-ld-writethru.html?searchResultPosition=6
 
 **Asia Today: New Zealand Succeeds in Eradicating Coronavirus**\
