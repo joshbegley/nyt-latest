@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/06/08/us/ap-us-america-protests.html?searchRes
 `The vast majority of complaints about New York City police officers' mistreatment of youths stemmed from encounters with black and Hispanic children, according to a new study by the city’s police watchdog agency.`\
 https://nytimes.com/aponline/2020/06/08/us/ap-us-nypd-misconduct-complaints.html?searchResultPosition=7
 
-**New Zealand's Last Known Coronavirus Case Has Recovered**\
+**With Recovery of Last Case, New Zealand Has Eradicated Virus**\
 `Prime Minister Jacinda Ardern said Monday she was confident New Zealand has halted the spread of the coronavirus after the last known infected person in the country recovered.`\
 https://nytimes.com/aponline/2020/06/08/business/ap-as-virus-outbreak-new-zealand.html?searchResultPosition=8
 
