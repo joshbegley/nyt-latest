@@ -1,5 +1,5 @@
-**Men Accused of Helping Nissan Boss Flee Japan Challenge U.S. Extradition Case**\
-`Lawyers for the former Green Beret and son wanted by Japan for helping former Nissan Motor Co boss Carlos Ghosn flee the country on Monday argued U.S. authorities wrongly arrested them for aiding a crime that they say not exist in Japan: bail jumping. `\
+**Men Accused of Helping Ex-Nissan Boss Flee Japan Challenge U.S. Extradition Case**\
+`Lawyers for the former Green Beret and son wanted by Japan for helping former Nissan Motor Co boss Carlos Ghosn flee the country on Monday argued U.S. authorities wrongly arrested them for aiding a crime that they say does not exist in Japan: bail jumping. `\
 https://nytimes.com/reuters/2020/06/08/business/08reuters-nissan-ghosn.html?searchResultPosition=5
 
 **Guilty Plea for Racist Graffiti Found at Maryland University**\
