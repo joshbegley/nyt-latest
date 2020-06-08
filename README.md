@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/06/08/world/africa/08reuters-health-coronavirus
 `Iran's health ministry urged people on Monday to wear face masks in public areas, state television reported, following warnings that the Islamic Republic could face a new wave of coronavirus infections. `\
 https://nytimes.com/reuters/2020/06/08/world/middleeast/08reuters-health-coronavirus-iran.html?searchResultPosition=4
 
-**Belgian Economy Set to Decline by 9% in 2020: Central Bank**\
+**Belgium to Lose Three Years of Growth Due to Pandemic**\
 `Belgium's economy is set for three years of lost growth from the COVID-19 pandemic as the 2021-2022 recovery fails to make up for a 9% decline forecast for this year, the country's central bank said on Monday.`\
 https://nytimes.com/reuters/2020/06/08/world/europe/08reuters-health-coronavirus-belgium-economy.html?searchResultPosition=5
 
