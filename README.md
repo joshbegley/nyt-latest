@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/06/08/world/africa/08reuters-health-ebola-congo
 `Demonstrators gathered outside U.S. missions in South African cities on Monday to condemn the killing of George Floyd, the black man whose death in police custody has set off a wave of protests worldwide and ignited a debate about race and justice.`\
 https://nytimes.com/reuters/2020/06/08/world/africa/08reuters-minneapolis-police-protest-safrica.html?searchResultPosition=5
 
-**AP Photos: In Mexico, Pandemic's 'Last Link,' Gravediggers**\
+**AP Photos: Ashes, Graves -- Pandemic's 'Last Link' in Mexico**\
 `Gravediggers and crematorium workers in Mexico are struggling to keep pace as the country registers escalating coronavirus death numbers while gradually easing some restrictions aimed at curbing COVID-19.`\
 https://nytimes.com/aponline/2020/06/08/world/americas/ap-lt-virus-outbreak-mexico-cemeteries-photo-gallery.html?searchResultPosition=6
 
