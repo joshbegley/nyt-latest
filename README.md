@@ -14,8 +14,8 @@ https://nytimes.com/2020/06/08/briefing/minneapolis-coronavirus-new-york-your-mo
 `Spain's supreme court prosecutor has opened an investigation into former King Juan Carlos as part of a probe into a high-speed train contract in Saudi Arabia, the general prosecutor said in a statement on Monday.`\
 https://nytimes.com/reuters/2020/06/08/world/europe/08reuters-spain-king.html?searchResultPosition=5
 
-**PG&E Expects to Raise $5.75 Billion From Public Offerings to Fund Bankruptcy Exit**\
-`Power provider PG&E Corp said on Monday it plans to raise $5.75 billion from public offerings to partially fund its emergence from Chapter 11 bankruptcy.`\
+**PG&E Plans $5.75 Bln Equity Raise to Fund Bankruptcy Exit**\
+`California-based power provider PG&E Corp said on Monday it plans to raise $5.75 billion from public offerings as it tries to emerge from Chapter 11 bankruptcy by the end of this month. `\
 https://nytimes.com/reuters/2020/06/08/business/08reuters-pg-e-us-bankruptcy.html?searchResultPosition=6
 
 **German Industrial Production Down Nearly 18% in April**\
