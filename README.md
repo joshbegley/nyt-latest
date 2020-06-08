@@ -1,4 +1,4 @@
-**10 Racehorses Killed in Fiery Crash on New Jersey Turnpike, Officials Say**\
+**10 Racehorses Killed in Fiery Crash on New Jersey Turnpike**\
 `One of the horses was sired by the Triple Crown winner American Pharoah and another by the Belmont Stakes winner Tonalist.`\
 https://nytimes.com/2020/06/07/nyregion/horses-killed-nj-turnpike.html?searchResultPosition=2
 
