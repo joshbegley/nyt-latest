@@ -1,36 +1,36 @@
+**Violence Against Protesters, Press Unacceptable, Says France's Le Drian**\
+`Violence against peaceful protesters and journalists is unacceptable, whether in the United States or elsewhere, France's foreign minister Jean-Yves Le Drian said in a newspaper interview published on Sunday.`\
+https://nytimes.com/reuters/2020/06/08/world/europe/08reuters-minneapolis-police-protests-france.html?searchResultPosition=2
+
+**Google Maps to Alert Users About COVID-19-Related Travel Restrictions**\
+`Google is adding features on its Maps service to alert users about COVID-19-related travel restrictions to help them plan their trips better, the Alphabet Inc unit said on Monday.`\
+https://nytimes.com/reuters/2020/06/08/technology/08reuters-health-coronavirus-google.html?searchResultPosition=3
+
+**Growing a Family in the Shadow of a Pandemic**\
+`Six households weighed the risks of conceiving and carrying a child during the coronavirus outbreak, each balancing their concerns against an uncertain future.`\
+https://nytimes.com/2020/06/08/parenting/fertility-conception-coronavirus.html?searchResultPosition=4
+
+**NFL Gives Teams Planner for Total Reopening of Facilities**\
+`The NFL and the players' union sent a planner to the 32 teams Monday outlining procedures for the full reopening of their practice facilities, which were closed because of the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/06/08/sports/football/ap-fbn-facilities-return-plans.html?searchResultPosition=5
+
+**Factbox: EU Lawmakers Vote on 'Quick Fix' Bank Capital Relief**\
+`A panel of European Parliament members are set to back "quick fix" proposals on Monday to temporarily help banks step up the flow of credit to households and companies hit by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/08/us/08reuters-health-coronavirus-eu-banks-factbox.html?searchResultPosition=6
+
+**Britain's Interior Minister Says Violent Protestors Should Face Justice**\
+`A minority of protesters who were violent during the weekend's "Black Lives Matter" protests in Britain undermined the cause and should face justice, interior minister Priti Patel said on Monday.`\
+https://nytimes.com/reuters/2020/06/08/world/europe/08reuters-minneapolis-police-protests-britain-patel.html?searchResultPosition=7
+
 **AP PHOTOS: Protests Spotlight Racial Scars Around the World**\
 `Just like coronavirus, racism pays no attention to borders. `\
-https://nytimes.com/aponline/2020/06/08/us/politics/ap-eu-america-protests-global-photo-gallery-1st-ld-writethru.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/06/08/us/politics/ap-eu-america-protests-global-photo-gallery-1st-ld-writethru.html?searchResultPosition=8
 
 **A Poet of Found Language Who Finds Her Language in Archives**\
 `Susan Howe’s new book, “Concordance,” pastes together collages of word and thought from old letters, manuscripts and (yes) concordances.`\
-https://nytimes.com/2020/06/08/books/review/concordance-susan-howe.html?searchResultPosition=3
+https://nytimes.com/2020/06/08/books/review/concordance-susan-howe.html?searchResultPosition=9
 
 **Italy Reports 65 Coronavirus Deaths on Monday, 280 New Cases**\
 `Deaths from the COVID-19 epidemic in Italy climbed by 65 on Monday against 53 the day before, the Civil Protection Agency said, while the daily tally of new cases rose to 280 from 197 on Sunday.`\
-https://nytimes.com/reuters/2020/06/08/world/europe/08reuters-health-coronavirus-italy-tally.html?searchResultPosition=4
-
-**NY Fed Selects Eaton Vance Management to Serve as Credit Risk Service Provider for Municipal Facility**\
-`The New York Federal Reserve selected Eaton Vance Management to serve as credit risk service provider for the municipal liquidity facility. Read more about the facility here https://www.newyorkfed.org/markets/municipal-liquidity-facility.`\
-https://nytimes.com/reuters/2020/06/08/us/08reuters-usa-fed-muni.html?searchResultPosition=5
-
-**Commuters in Face Masks on the Subway as N.Y.C. Begins Reopening**\
-`After months of a devastating outbreak, the city is officially back in business, with as many 400,000 people returning to work.`\
-https://nytimes.com/2020/06/08/nyregion/nyc-reopening-coronavirus.html?searchResultPosition=6
-
-**Signs of Life in the RV Business; Zoom Falls for Third Day**\
-`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Monday related to the national and global response, the work place and the spread of the virus.`\
-https://nytimes.com/aponline/2020/06/08/business/ap-virus-outbreak-business-fallout.html?searchResultPosition=7
-
-**A Look Back, and Follow-Up, on Coronavirus Good-Deed Tales**\
-`One Good Thing, each day. That was the guiding principle when The Associated Press launched this fixture in mid-March. `\
-https://nytimes.com/aponline/2020/06/08/us/ap-virus-outbreak-one-good-thing-following-up.html?searchResultPosition=8
-
-**The Palestinian Plan to Stop Annexation: Remind Israel What Occupation Means**\
-`Officials in the West Bank say they are willing to let the Palestinian Authority collapse if Israel applies its sovereignty over occupied territory.`\
-https://nytimes.com/2020/06/08/world/middleeast/palestinian-authority-annexation-israel.html?searchResultPosition=9
-
-**Evelyn Caro, Nurse Who Realized a Lifelong Dream, Dies at 69**\
-`Nearing 50, with her children grown, she went back to school and became a nurse. She came out of retirement only to die of the coronavirus.`\
-https://nytimes.com/2020/06/08/obituaries/evelyn-caro-dead-coronavirus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/08/world/europe/08reuters-health-coronavirus-italy-tally.html?searchResultPosition=10
 
