@@ -1,8 +1,8 @@
-**Protests Reach Political Ads**\
-`Here’s how the presidential campaigns and other groups are using the mass protests in their political messaging.`\
-https://nytimes.com/2020/06/09/us/politics/protests-political-ads.html?searchResultPosition=9
+**U.S. Theatre World Accused of Exploiting, Excluding People of Color**\
+`Viola Davis, Lin-Manuel Miranda and Cynthia Erivo joined some 300 actors and playwrights on Tuesday in decrying racism in the U.S. theatre world, saying it had exploited, excluded and diminished people of color.`\
+https://nytimes.com/reuters/2020/06/09/arts/09reuters-minneapolis-police-theatre.html?searchResultPosition=9
 
-**Did You Recently Give Birth? Please Share Your Story**\
-`The New York Times would like to hear from women who delivered a baby in a hospital in the past month.`\
-https://nytimes.com/2020/06/09/science/birth-experiences-coronavirus.html?searchResultPosition=10
+**California Tech CEO Charged in Coronavirus Test Fraud Case**\
+`The president of a Silicon Valley medical technology company was charged Tuesday with misleading investors by falsely claiming the company had developed a government-approved blood test for the new coronavirus — the first criminal securities fraud prosecution related to the COVID-19 pandemic, federal officials said.`\
+https://nytimes.com/aponline/2020/06/09/business/bc-us-coronavirus-tests-fraud.html?searchResultPosition=10
 
