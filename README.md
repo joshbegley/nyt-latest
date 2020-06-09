@@ -1,24 +1,24 @@
-**Tropical Depression Cristobal Moving Into Missouri, U.S. NHC Says**\
-`Tropical depression Cristobal is moving into Missouri with some strengthening forecasted during the next 36 hours as it transitions into an extratropical cyclone, the U.S. National Hurricane Center said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/us/09reuters-storm-cristobal-missouri.html?searchResultPosition=5
+**Anger, Activism Grow Over Police Abuse Amid French Lockdown**\
+`With France confined to fight the virus, a video circulated online in April showing a young man lying on the bloody ground next to two police officers — and quickly set off protests in struggling neighborhoods around the Paris region.`\
+https://nytimes.com/aponline/2020/06/09/us/politics/ap-eu-america-protests-france-1st-ld-writethru.html?searchResultPosition=5
 
-**Indonesia Resumes Domestic Air Travel, Coronavirus Cases Jump**\
-`Indonesia has resumed domestic flights for all passengers provided airlines operate at 70% capacity and follow strict rules brought into force on Tuesday, when the country announced its biggest daily rise in cases of the novel coronavirus.`\
-https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-health-coronavirus-indonesia-flights.html?searchResultPosition=6
+**Beatings, Racial Slurs: Germany's Surge in Racism Reports**\
+`Germany's anti-discrimination agency saw a sharp rise in the number of reports of racism it received in 2019, and the agency's head urged authorities to fix the institutional failings hindering the fight against it.`\
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-minneapolis-police-protests-germany.html?searchResultPosition=6
 
-**Coronavirus Live Updates: Disease’s Peak Is Still Far Off in Some Places**\
-`Seven million people have been infected worldwide, and new cases hit a high globally on Sunday, according to the W.H.O. Central banks are seeking new tools to offset the downturn.`\
-https://nytimes.com/2020/06/09/world/coronavirus-updates.html?searchResultPosition=7
+**Kobe Bryant Honored in Bosnia With Giant Mural on School Wall**\
+`Kobe Bryant, the 18-time NBA All-Star who died in a helicopter crash in January, has been honored with a giant mural commissioned by sports enthusiasts and painted on the side of an elementary school building in northern Bosnia.`\
+https://nytimes.com/reuters/2020/06/09/sports/basketball/09reuters-basketball-bryant-bosnia-mural.html?searchResultPosition=7
 
-**N.Y.C. Reopens 100 Days After First Virus Case**\
-`The first phase of the city's reopening came as state legislative leaders vowed to approve a package of bills targeting police misconduct. `\
-https://nytimes.com/2020/06/09/nyregion/coronavirus-nyc-reopening.html?searchResultPosition=8
+**Spain Not Discussing Travel Corridor With UK, Wants Common EU Criteria Over Tourism**\
+`Spain is not discussing any travel corridor with Britain, a Spanish foreign ministry source told Reuters after a UK tourism lobby group said corridors allowing unrestricted movement with a number of countries would open from June 29.`\
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-spain-tourism.html?searchResultPosition=8
 
-**Household Spending Plunge Pulls Down Euro Zone GDP in First Quarter**\
-`A plunge in household spending and investment pulled down euro zone gross domestic product in the first quarter as the COVID-19 pandemic struck, but the fall was slightly smaller than first estimated, the European Union's statistics office said.`\
-https://nytimes.com/reuters/2020/06/09/business/09reuters-eurozone-economy.html?searchResultPosition=9
+**Hong Kong to Let Some Students From Mainland China Return to Resume Classes**\
+`Hong Kong will let some students from mainland China return to resume classes from June 15, the government said on Tuesday, in a selective easing of coronavirus border restrictions.`\
+https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-health-coronavirus-hongkong-education.html?searchResultPosition=9
 
-**Hong Kong Timeline: A Year of Protests**\
-`One year ago, a sea of humanity — a million people by some estimates — streamed through central Hong Kong on a steamy afternoon.`\
-https://nytimes.com/aponline/2020/06/09/world/asia/ap-as-hong-kong-protests-timeline.html?searchResultPosition=10
+**S&P Revises Japan's Outlook to Stable**\
+`S&P Global Ratings said it has revised Japan's outlook to stable on increased uncertainty around debt stabilization.`\
+https://nytimes.com/reuters/2020/06/09/business/09reuters-japan-rating-s-p.html?searchResultPosition=10
 
