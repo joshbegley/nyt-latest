@@ -1,8 +1,8 @@
-**Judge Mulls Conservatorship for So-Called Hawaiian Princess**\
-`A long, bitter legal battle over control of a 94-year-old Native Hawaiian heiress' $215-million fortune raged on Tuesday, with a judge saying he will issue a future decision about whether there will be limits to her conservatorship and who that will be. `\
-https://nytimes.com/aponline/2020/06/09/us/ap-us-last-hawaiian-princess.html?searchResultPosition=9
+**Coronavirus Briefing: What Happened Today**\
+`Five rules to help lower your risk of infection while still living a full life.`\
+https://nytimes.com/2020/06/09/us/coronavirus-today.html?searchResultPosition=9
 
-**Where Protesters Go, Street Medics Follow**\
-`Through tear gas and rubber bullets, professional and amateur medical volunteers have stepped forward to aide the injured.`\
-https://nytimes.com/2020/06/09/health/unrest-protests-street-medics.html?searchResultPosition=10
+**Brazil Reports 32,091 New Coronavirus Cases and 1,272 Deaths**\
+`Brazil reported 32,091 new cases of coronavirus and 1,272 new deaths for the last 24 hours, the Health Ministry said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-health-coronaviruss-brazil-toll.html?searchResultPosition=10
 
