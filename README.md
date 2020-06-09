@@ -1,8 +1,8 @@
-**A Para-Swimmer Is Using the Gap Year to Dominate Cycling**\
-`Roderick Sewell, a master of adjustments, had barely used a handcycle before last year. Now he’s hoping to become one of the few two-sport athletes in the Tokyo Games.`\
-https://nytimes.com/2020/06/09/sports/olympics/paralympics-swimming-cycling.html?searchResultPosition=9
+**U.S. Army Veteran Stunned by Negative Reaction to Kaepernick Kneeling**\
+`A former member of the U.S. Army Special Forces who advised Colin Kaepernick that kneeling during the national anthem would be a more respectful protest than remaining seated on the bench says he had no idea the gesture would become so controversial.`\
+https://nytimes.com/reuters/2020/06/09/sports/football/09reuters-minneapolis-police-knee.html?searchResultPosition=9
 
-**Pakistan's Budget to Target 2.3% Growth After Pandemic Hit**\
-`Pakistan will target growth of 2.3% in fiscal year 2020-21, according to government officials and documents seen by Reuters that said the economic landscape would depend mainly on the country's ability to control the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-pakistan-economy-budget.html?searchResultPosition=10
+**Galleries to Open in the Hamptons. It’s Not Business as Usual.**\
+`Masks will be required and there will be limited or no staff for some in-person viewing experiences.`\
+https://nytimes.com/2020/06/09/arts/design/hamptons-summer-galleries.html?searchResultPosition=10
 
