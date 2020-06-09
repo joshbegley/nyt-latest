@@ -1,8 +1,8 @@
-**Masks Reveal Partisan Split Among Lawmakers on Coronavirus**\
-`To the issues creating a partisan divide in state legislatures across the U.S., add this one: masks.`\
-https://nytimes.com/aponline/2020/06/09/us/ap-us-virus-outbreak-state-legislatures.html?searchResultPosition=9
+**U.S. Democrats See Police Bill Vote This Month, Hoyer Says**\
+`Leaders of the U.S. House of Representatives hope to vote on a policing reform bill during the week of June 22, Representative Steny Hoyer, the chamber's No. 2 Democrat, said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/09/us/politics/09reuters-minneapolis-police-congress.html?searchResultPosition=9
 
-**WHO Americas Director Concerned About Pandemic Surging in New Latin America Regions**\
-`The World Health Organization's regional director for the Americas Carissa Etienne said on Tuesday that data has raised concerns that novel coronavirus cases are surging in new places in Latin America as some areas show "exponential" rises.`\
-https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-health-coronavirus-latam-who.html?searchResultPosition=10
+**Exclusive: Oil Tankers Turn Away From Venezuela as More Sanctions Loom**\
+`Two tankers that were sailing toward Venezuela to load crude have turned around since the weekend and three other vessels have left Venezuelan waters as the United States considers blacklisting dozens of ships for transporting the country's oil, according to shipping data and industry sources.`\
+https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-venezuela-sanctions-shipping-exclusive.html?searchResultPosition=10
 
