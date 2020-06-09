@@ -1,8 +1,8 @@
-**Casa Dani, From a Michelin Chef, to Open in Manhattan West**\
-`The chef Dani García plans his restaurant for later this year, pizza for delivery and takeout in Park Slope, Brooklyn, and more restaurant news.`\
-https://nytimes.com/2020/06/09/dining/nyc-restaurant-news-coronavirus.html?searchResultPosition=9
+**A Para-Swimmer Is Using the Gap Year to Dominate Cycling**\
+`Roderick Sewell, a master of adjustments, had barely used a handcycle before last year. Now he’s hoping to become one of the few two-sport athletes in the Tokyo Games.`\
+https://nytimes.com/2020/06/09/sports/olympics/paralympics-swimming-cycling.html?searchResultPosition=9
 
-**North Korea to Sever Hotlines With South Korea in First Step to Cut Contact**\
-`North Korea said on Tuesday it would sever hotlines with South Korea as the first step toward shutting down all contact.`\
-https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-northkorea-southkorea.html?searchResultPosition=10
+**Pakistan's Budget to Target 2.3% Growth After Pandemic Hit**\
+`Pakistan will target growth of 2.3% in fiscal year 2020-21, according to government officials and documents seen by Reuters that said the economic landscape would depend mainly on the country's ability to control the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-pakistan-economy-budget.html?searchResultPosition=10
 
