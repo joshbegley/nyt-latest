@@ -1,8 +1,8 @@
-**North Carolina Speedway Ordered Shut Because of Large Crowds**\
-`The administration of North Carolina Gov. Roy Cooper has ordered the closure of a small stock-car track that's allowed large crowds to gather repeatedly for weekend races, declaring it an “imminent hazard” for the spread of COVID-19. `\
-https://nytimes.com/aponline/2020/06/09/sports/ap-us-virus-outbreak-speedway-3rd-ld-writethru.html?searchResultPosition=9
+**Protests Reach Political Ads**\
+`Here’s how the presidential campaigns and other groups are using the mass protests in their political messaging.`\
+https://nytimes.com/2020/06/09/us/politics/protests-political-ads.html?searchResultPosition=9
 
-**That Trump Tweet? Republicans Prefer Not to See It.**\
-`Even when presented with a printout of the president’s incendiary Twitter comment, Republicans toiled to avoid commenting.`\
-https://nytimes.com/2020/06/09/us/politics/trump-twitter-republicans-commentary.html?searchResultPosition=10
+**Did You Recently Give Birth? Please Share Your Story**\
+`The New York Times would like to hear from women who delivered a baby in a hospital in the past month.`\
+https://nytimes.com/2020/06/09/science/birth-experiences-coronavirus.html?searchResultPosition=10
 
