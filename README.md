@@ -1,9 +1,8 @@
-**Dozens Protest in Jerusalem Against Police Violence**\
-`Several dozen people protested against police violence in Jerusalem on Tuesday following the deadly shooting of a Palestinian man last month.`\
-https://nytimes.com/aponline/2020/06/09/world/middleeast/ap-ml-israel-police.html?searchResultPosition=9
+**Merck's Bladder Cancer Late-Stage Study Fails to Meet Main Goals**\
+`Merck & Co said on Tuesday a late-stage study assessing its cancer drug Keytruda as a first-line treatment for bladder cancer failed to meet the main goals.`\
+https://nytimes.com/reuters/2020/06/09/us/09reuters-merck-co-study.html?searchResultPosition=9
 
-**Being Together, Even in VR, Helps
-Seniors Thrive**\
-`Can V.R. help older people feel less lonely? Hosts Corey S. Powell and Kristen Meinzer uncover the new V.R. technology that’s helping seniors feel more connected — to the world and their loved ones — and how it’s improving their health.`\
-https://nytimes.com/paidpost/2020-06-09/being-together-even-in-vr-helps-seniors-thrive.html?searchResultPosition=10
+**U.S. Fed to Publish Annual Bank 'Stress Test' Results on June 25**\
+`The U.S. Federal Reserve said on Tuesday it will publish the results of its annual bank health exams, known as "stress tests," on June 25 at 4:30 p.m. EDT. `\
+https://nytimes.com/reuters/2020/06/09/us/09reuters-usa-fed-stress-tests.html?searchResultPosition=10
 
