@@ -1,8 +1,8 @@
-**Shares of Chesapeake Energy, a Shale Pioneer, Tumble in Volatile Trading**\
-`The company, which has said it could file for bankruptcy protection, helped turn the U.S. into a gas exporter but became known for an illegal scheme to suppress the price of oil and gas leases.`\
-https://nytimes.com/2020/06/09/business/energy-environment/chesapeake-energy-bankruptcy-protection.html?searchResultPosition=9
+**Japan April Real Wages Fall at Quickest Pace Since December**\
+`Japan's April inflation-adjusted real wages fell at their fastest pace since December, government data showed on Tuesday, fanning fears about the outlook for consumer sentiment after the economy took a hit from the new coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-japan-economy-wages.html?searchResultPosition=9
 
-**The Latest: Georgia Elections Chief Probing Voting Problems**\
-`The Latest on the 2020 primary elections (all times local):`\
-https://nytimes.com/aponline/2020/06/09/us/politics/ap-us-election-2020-the-latest.html?searchResultPosition=10
+**Brazil's São Paulo Registers Record Daily Coronavirus Deaths**\
+`Brazil's most populous state São Paulo registered on Tuesday a record in daily coronavirus deaths, as COVID-19 continues to ravage the country.  `\
+https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-health-coronavirus-brazil-saopaulo.html?searchResultPosition=10
 
