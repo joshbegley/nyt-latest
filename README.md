@@ -1,8 +1,8 @@
-**President of Burundi, Pierre Nkurunziza, 55, Dies of Heart Attack**\
-`Mr. Nkurunziza ruled the small Central African nation for 15 years with an iron fist, arresting journalists, stifling media outlets and cracking down on the opposition.`\
-https://nytimes.com/2020/06/09/world/africa/burundi-president-pierre-nkurunziza-dead.html?searchResultPosition=9
+**North Korea to Sever Hotlines With South Korea in First Step to Cut Contact**\
+`North Korea said on Tuesday it would sever hotlines with South Korea as the first step toward shutting down all contact.`\
+https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-northkorea-southkorea.html?searchResultPosition=9
 
-**Burundi's Nkurunziza, Militia Leader Turned President, Dies Aged 55**\
-`Burundian President Pierre Nkurunziza, who has died of a heart attack aged 55, according to a statement released on Tuesday, oversaw a reign of torture, rape and murder by his security forces that drove hundreds of thousands of people into exile.`\
-https://nytimes.com/reuters/2020/06/09/world/africa/09reuters-burundi-politics-nkurunziza-obituary.html?searchResultPosition=10
+**Rhodes Must Fall: Oxford Protesters Target Statue of Colonialist**\
+`Energised by the toppling of a monument to a slave trader in the English city of Bristol, protesters demanded on Tuesday the removal of a statue of 19th century British colonialist Cecil Rhodes from a college at Oxford University.`\
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-minneapolis-police-protests-britain-rhodes.html?searchResultPosition=10
 
