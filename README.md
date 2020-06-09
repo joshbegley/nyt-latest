@@ -1,8 +1,8 @@
-**Colombia Seizes $265 Million Worth of Cocaine in Shipping Containers**\
-`Colombian police on Tuesday seized cocaine with an estimated value of $265 million in shipping containers at the Pacific port of Buenaventura, a city on the Andean country's Pacific coast, a senior official reported.`\
-https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-colombia-cocaine.html?searchResultPosition=9
+**Factbox: Swedish Prime Minister Palme, the Man and the Murder**\
+`The 1986 murder of Swedish Prime Minister Olof Palme generated dozens of conspiracy theories but few serious leads. Swedes are hoping prosecutors will identify the person responsible on Wednesday.`\
+https://nytimes.com/reuters/2020/06/09/world/africa/09reuters-sweden-crime-palme-factbox.html?searchResultPosition=9
 
-**Half of Californians Live in Areas With Worrying Resurgence of Coronavirus**\
-`Nearly half of all Californians live in areas where coronavirus infections and hospitalizations are rising quickly enough to put their counties on a watch list for potential reinstatement of shutdowns, a Reuters analysis of state data show.    `\
-https://nytimes.com/reuters/2020/06/09/us/09reuters-health-coronavirus-california.html?searchResultPosition=10
+**English House Sales Rebound to Near Pre-Lockdown Levels, Zoopla Says**\
+`House sales in England have rebounded since the government allowed estate agents to reopen last month, and in much of the country they are back to where they were in the first week of March, property website Zoopla said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-britain-housing.html?searchResultPosition=10
 
