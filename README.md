@@ -1,12 +1,12 @@
-**Watch Live: Cuomo Holds Daily News Conference**\
-`Gov. Andrew M. Cuomo delivers an update for New York on the latest coronavirus stats and protests against police violence.`\
-https://nytimes.com/video/us/politics/100000007181789/watch-live-cuomo-news-conference.html?searchResultPosition=8
+**Sudan Militia Leader in Custody on Darfur War Crimes Charges**\
+`Sudanese militia leader Ali Kushayb has been arrested on war crimes charges related to the conflict in Darfur more than 13 years after a warrant was issued for him, authorities said Tuesday. `\
+https://nytimes.com/aponline/2020/06/09/world/africa/ap-af-international-court-darfur.html?searchResultPosition=8
 
-**Turkey's April Current Account $4.5 Billion in Deficit: Reuters Poll**\
-`Turkey's current account is expected to record a deficit of $4.5 billion in April, a Reuters poll showed on Tuesday, remaining high as measures against the coronavirus hamper exports and tourism revenues.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-turkey-economy-currentaccount-poll.html?searchResultPosition=9
+**Boeing Jet Deliveries Sink to Just Four in May**\
+`Boeing Co deliveries worsened even further in May compared to April as the coronavirus pandemic's crushing impact on airlines added to a year of crisis following the grounding of its 737 MAX planes, company data showed on Tuesday.`\
+https://nytimes.com/reuters/2020/06/09/business/09reuters-boeing-deliveries.html?searchResultPosition=9
 
-**Anxious About Family Mealtimes? Serve a Buffet**\
-`For children, a family-style meal can expose them to new foods, help them feel in control and allow them to recognize fullness cues.`\
-https://nytimes.com/2020/06/09/parenting/family-style-meals-children.html?searchResultPosition=10
+**Exclusive: Savings Surge Forces Goldman to Shut Marcus to New UK Clients**\
+`Goldman Sachs is closing its easy access savings business to new customers in Britain from Wednesday, after deposits surged to near regulatory limits during the coronavirus lockdown. `\
+https://nytimes.com/reuters/2020/06/09/business/09reuters-britain-goldmansachs-marcus-exclusive.html?searchResultPosition=10
 
