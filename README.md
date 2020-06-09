@@ -1,8 +1,8 @@
-**Former Baltimore Mayor Expected to Plead Guilty to Perjury**\
-`Baltimore’s disgraced former mayor who already has been sentenced to three years in federal prison in a scandal over her “Healthy Holly” children's books touting exercise and nutrition is expected to plead guilty to a state perjury charge, Maryland's state prosecutor confirmed Tuesday.`\
-https://nytimes.com/aponline/2020/06/09/us/ap-us-former-mayor-perjury-plea.html?searchResultPosition=9
+**Aftermath of Floyd Death Drives News Interest, Notably CNN**\
+`Public interest in demonstrations following the death of George Floyd boosted news programming — none more so than CNN.`\
+https://nytimes.com/aponline/2020/06/09/business/ap-us-nielsens.html?searchResultPosition=9
 
-**CME to Reopen Chicago Eurodollar Options Trading Pit on August 10**\
-`CME Group Inc said on Tuesday it will reopen its eurodollar options trading pit on Aug. 10, making it the latest U.S. exchange operator to resume open outcry trading, which had been put on hold due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/06/09/business/09reuters-health-coronavirus-cme.html?searchResultPosition=10
+**Sao Paulo Shops to Open, Malls Could Follow on Thursday: Mayor**\
+`Sao Paulo Mayor Bruno Covas has decided to allow street shops and real estate brokers to resume business in a new phase of easing coronavirus pandemic restrictions in Brazil's largest city.`\
+https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-health-coronavirus-brazil-saopaulo-shops.html?searchResultPosition=10
 
