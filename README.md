@@ -1,8 +1,8 @@
-**Russia, China Build Case at U.N. to Protect Iran From U.S. Sanctions Threat**\
-`Russia and China have started making the case at the United Nations against Washington's claim that it can trigger a return of all sanctions on Iran at the Security Council, with Moscow invoking a 50-year-old international legal opinion to argue against the move.`\
-https://nytimes.com/reuters/2020/06/09/world/middleeast/09reuters-usa-iran-russia-china.html?searchResultPosition=9
+**Brazil Restores Detailed COVID-19 Data to National Website**\
+`Brazil restored on Tuesday detailed COVID-19 data to the official national website, following a scandal about the removal of cumulative totals and a ruling by a Supreme Court justice that the full set of information be reinstated. `\
+https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-health-coronavirus-brazil-data.html?searchResultPosition=9
 
-**‘The Flash’ Actor and Showrunner React to Hartley Sawyer’s Dismissal**\
-`Grant Gustin, who plays the Flash, and Eric Wallace, the showrunner, expressed anger over the supporting actor’s tweets. “Words matter,” Gustin said.`\
-https://nytimes.com/2020/06/09/arts/television/the-flash-hartley-sawyer-grant-gustin.html?searchResultPosition=10
+**Exclusive: Canada, U.S. Set to Extend Border Closure to End-July-Sources**\
+`Canada and the United States are set to extend a ban on non-essential travel to late July as both countries seek to control the spread of the coronavirus, according to three sources familiar with the matter.`\
+https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-health-coronavirus-usa-canada-exclusive.html?searchResultPosition=10
 
