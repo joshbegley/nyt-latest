@@ -1,8 +1,8 @@
-**Factbox: Swedish Prime Minister Palme, the Man and the Murder**\
-`The 1986 murder of Swedish Prime Minister Olof Palme generated dozens of conspiracy theories but few serious leads. Swedes are hoping prosecutors will identify the person responsible on Wednesday.`\
-https://nytimes.com/reuters/2020/06/09/world/africa/09reuters-sweden-crime-palme-factbox.html?searchResultPosition=9
+**After Outbreak on Carrier Roosevelt, Many Have Antibodies**\
+`A C.D.C. study found that some sailors showed protection against the coronavirus three months after the onset of symptoms.`\
+https://nytimes.com/2020/06/09/science/carrier-roosevelt-coronavirus.html?searchResultPosition=9
 
-**English House Sales Rebound to Near Pre-Lockdown Levels, Zoopla Says**\
-`House sales in England have rebounded since the government allowed estate agents to reopen last month, and in much of the country they are back to where they were in the first week of March, property website Zoopla said on Wednesday.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-britain-housing.html?searchResultPosition=10
+**U.S. Soccer Reconsiders Its National Anthem Policy**\
+`A rule created after Megan Rapinoe took a knee may be rescinded as the federation, like the N.F.L. and FIFA, reconsiders its views on athletes who choose to peacefully protest.`\
+https://nytimes.com/2020/06/09/sports/soccer/us-soccer-anthem-uswnt.html?searchResultPosition=10
 
