@@ -1,8 +1,8 @@
-**WTO Backs Australia in Appeal Over Its Tobacco Packaging Law**\
-`The World Trade Organization's appeals body ruled on Tuesday that Australia's tight laws on tobacco packaging were justified, rejecting complaints by Honduras and the Dominican Republic that they are unfair restrictions on trade.`\
-https://nytimes.com/reuters/2020/06/09/world/09reuters-trade-wto-tobacco.html?searchResultPosition=9
+**New York's Cuomo 'Disgusted' at Trump Claim Protester 'Fell Harder Than Was Pushed'**\
+`New York Governor Andrew Cuomo on Tuesday said he was "disgusted" by U.S. President Donald Trump's claim that a 75-year-old man seen in video being pushed by a Buffalo police officer during a protest "fell harder than (he) was pushed."`\
+https://nytimes.com/reuters/2020/06/09/us/09reuters-minneapolis-police-protests-cuomo.html?searchResultPosition=9
 
-**Watson, Hopkins Call for Name Change at Clemson**\
-`Deshaun Watson and DeAndre Hopkins are joining with students and fellow alumni at Clemson in calling for the university to remove the name of John C. Calhoun from its honors college.`\
-https://nytimes.com/reuters/2020/06/09/sports/09reuters-football-ncaa-cle-calhoun.html?searchResultPosition=10
+**Swiss Banking Software Firm Temenos Expects H2 Rebound: Newspaper**\
+`Temenos expects better times for the Swiss banking software group in the second half of the year after lenders put IT projects on hold due to the coronavirus pandemic, CEO Max Chuard told the Finanz und Wirtschaft newspaper in an interview.`\
+https://nytimes.com/reuters/2020/06/09/technology/09reuters-temenos-group-ceo.html?searchResultPosition=10
 
