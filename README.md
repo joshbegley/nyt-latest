@@ -1,8 +1,8 @@
-**Siberian Governor Says Leaked Oil Spilled Into Arctic Lake**\
-`Some of the 20,000 tons of diesel oil that leaked from a power plant has seeped into a fragile Arctic lake, the regional governor said Tuesday.`\
-https://nytimes.com/aponline/2020/06/09/business/bc-eu-russia-oil-spill.html?searchResultPosition=9
+**WTO Backs Australia in Appeal Over Its Tobacco Packaging Law**\
+`The World Trade Organization's appeals body ruled on Tuesday that Australia's tight laws on tobacco packaging were justified, rejecting complaints by Honduras and the Dominican Republic that they are unfair restrictions on trade.`\
+https://nytimes.com/reuters/2020/06/09/world/09reuters-trade-wto-tobacco.html?searchResultPosition=9
 
-**British Opposition Leader Starmer Takes a Knee in Support of Black Lives Matter**\
-`British opposition Labour Party leader Keir Starmer was photographed taking a knee in support of the Black Lives Matter movement on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-minneapolis-police-protests-britain-starmer.html?searchResultPosition=10
+**Watson, Hopkins Call for Name Change at Clemson**\
+`Deshaun Watson and DeAndre Hopkins are joining with students and fellow alumni at Clemson in calling for the university to remove the name of John C. Calhoun from its honors college.`\
+https://nytimes.com/reuters/2020/06/09/sports/09reuters-football-ncaa-cle-calhoun.html?searchResultPosition=10
 
