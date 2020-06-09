@@ -1,24 +1,24 @@
-**No Point in 11th-Hour Brexit Free Trade Deal, UK Minister Says**\
-`There is no point having an 11th-hour Brexit free trade deal, so the format and pace of negotiations with the European Union needs to change, a junior minister said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-britain-eu-deal.html?searchResultPosition=5
+**Germany’s Far-Right Party Wins Suit Against Interior Minister**\
+`The court said the official, Horst Seehofer, had a right to criticize the Alternative for Germany party, but that a political interview should not have been posted on a government website.`\
+https://nytimes.com/2020/06/09/world/europe/horst-seehofer-afd-germany.html?searchResultPosition=5
 
-**What to Know About Calls to Defund the Police in California**\
-`Tuesday: Here’s what to know about the demands to defund and dismantle police departments. Also: An update on reopening.`\
-https://nytimes.com/2020/06/09/us/ca-defund-police.html?searchResultPosition=6
+**Brazil Airline Gol Consuming $2 Million Per Day Amid Coronavirus**\
+`Brazil airline Gol said on Monday it is consuming about 10 million reais ($2.05 million) per day, as the airline tries to keep its finances stable during the coronavirus crisis. `\
+https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-health-coronavirus-latam-airlines.html?searchResultPosition=6
 
-**China's Wangfuijing Group Wins Duty-Free Retail Licence**\
-`The parent company of one of China's largest department store chains said on Tuesday that it has been granted a government licence for duty-free retail, as the government ramped up efforts to spur domestic consumption to cushion the economy.`\
-https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-china-economy-consumption.html?searchResultPosition=7
+**Golf: Evian Championship Canceled Due to Coronavirus**\
+`The Evian Championship, one of five women's golf major tournaments, has been canceled due to the COVID-19 pandemic, the organizers said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/09/sports/golf/09reuters-health-coronavirus-golf-women-evian.html?searchResultPosition=7
 
-**Bahrain Activist Nabeel Rajab Released From Prison**\
-`A prominent human rights activist in Bahrain was released Tuesday amid the ongoing coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/06/09/world/middleeast/ap-ml-bahrain.html?searchResultPosition=8
+**Deutsche Bank Sends Note of Caution to Staff as Germany Slowly Reopens**\
+`Deutsche Bank has warned employees to exercise vigilance in dealing with the threat of the coronavirus as Europe's largest economy gradually reopens, according to a staff memo seen by Reuters.`\
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-deutsche-bank.html?searchResultPosition=8
 
-**Airline Industry Headed for $84 Billion Loss This Year: IATA**\
-`The coronavirus crisis will lead the airline industry into record annual losses of $84 billion as 2020 goes down as the "worst year in the history of aviation", the sector's main global body predicted on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/business/09reuters-health-coronavirus-airlines-iata.html?searchResultPosition=9
+**Can Jon Ossoff Win in Georgia? What to Watch as 5 States Vote Today**\
+`Seven candidates are facing off in a Democratic primary for a Georgia Senate seat. Nevada, North Dakota, South Carolina and West Virginia are also holding primaries.`\
+https://nytimes.com/2020/06/09/us/politics/primary-election-day-voting-atlanta.html?searchResultPosition=9
 
-**A Historical Novelist’s Decorating Scheme: ‘Books and Dog Hair’**\
-`For the best-selling author Beatriz Williams, home is a 200-year-old house in Lyme, Conn., with lots of bookshelves and antique furniture.`\
-https://nytimes.com/2020/06/09/realestate/a-historical-novelists-decorating-scheme-books-and-dog-hair.html?searchResultPosition=10
+**U.S. Economy Entered Recession in February, Business Cycle Arbiter Says**\
+`The U.S. economy ended its longest expansion in history in February and entered recession as a result of the coronavirus pandemic, the private economics research group that acts as the arbiter for determining U.S. business cycles said on Monday.`\
+https://nytimes.com/reuters/2020/06/09/business/09reuters-usa-economy-recession.html?searchResultPosition=10
 
