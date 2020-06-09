@@ -1,4 +1,4 @@
-**World Leaders Won’t Gather at U.N. for Annual Gathering**\
+**World Leaders Won’t Gather at U.N. for Annual Debate**\
 `The president of the U.N. General Assembly said world leaders will not be coming to New York for their annual gathering in September for the first time in the 75-year history of the United Nations.`\
 https://nytimes.com/2020/06/08/world/un-general-assembly.html?searchResultPosition=5
 
