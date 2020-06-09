@@ -1,24 +1,24 @@
+**Bon Appetit Editor Adam Rapoport Resigns After Racially Offensive Photo Resurfaces**\
+`Bon Appetit's editor-in-chief, Adam Rapoport, resigned late Monday after a 16-year-old picture of him with brownface resurfaced online and drew harsh criticism, coupled with a subsequent claim of discriminatory pay at the Conde Nast-owned U.S. food magazine by a staff editor.`\
+https://nytimes.com/reuters/2020/06/09/us/09reuters-bon-appetit-rapoport.html?searchResultPosition=5
+
+**Cambodia to Investigate Kidnapping of Exiled Thai Activist**\
+`Cambodia will investigate the suspected kidnapping of an exiled Thai activist in Phnom Penh, a police spokesman told Reuters on Tuesday, five days after unknown gunmen reportedly dragged him off the streets of the capital.`\
+https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-cambodia-thailand-disappearance.html?searchResultPosition=6
+
+**Israeli Model Bar Refaeli Signs Plea Bargain for Tax Evasion**\
+`Israeli top model Bar Refaeli signed a plea bargain agreement with authorities on Tuesday to settle a long-standing tax evasion case against her and her family.`\
+https://nytimes.com/aponline/2020/06/09/world/middleeast/ap-ml-israel-people-bar-refaeli.html?searchResultPosition=7
+
 **The ‘Defund’ Conundrum**\
 `And what else you need to know today.`\
-https://nytimes.com/2020/06/09/briefing/defund-police-george-floyd-coronavirus-your-tuesday-briefing.html?searchResultPosition=5
+https://nytimes.com/2020/06/09/briefing/defund-police-george-floyd-coronavirus-your-tuesday-briefing.html?searchResultPosition=8
 
 **Gilead's Remdesivir Slows Disease Progression in Monkeys With COVID-19**\
 `Gilead Sciences Inc's antiviral drug, remdesivir, prevented lung disease in macaques infected with the new coronavirus, according to a study published in medical journal Nature on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-gilead-sciences-remdesivir.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-gilead-sciences-remdesivir.html?searchResultPosition=9
 
 **Honda Hit by Cyber Attack, Some Production Disrupted**\
 `Honda Motor Co suspended some of its auto and motorcycle production globally as the Japanese car giant grappled with a suspected cyber attack, a spokesman said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/technology/09reuters-honda-cyber.html?searchResultPosition=7
-
-**Abu Dhabi's Etihad to Operate Second Flight to Israel Carrying Palestinian Aid**\
-`Abu Dhabi's Etihad Airways is to operate a rare, second flight to Israel on Wednesday carrying medical aid to be delivered to the Palestinians, an airline spokeswoman said.`\
-https://nytimes.com/reuters/2020/06/09/world/middleeast/09reuters-israel-emirates-palestinians-etihad-airways.html?searchResultPosition=8
-
-**South African Solar Start-Up SunExchange Raises $3 Million**\
-`South African blockchain-based renewable energy start-up SunExchange has raised $3 million from a company backed by one of the country's richest businessmen, the firm said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/world/africa/09reuters-safrica-energy.html?searchResultPosition=9
-
-**Airstrikes Again Hit Syria's Rebel Area, Displace Thousands**\
-`Suspected Russian airstrikes pounded villages on the edge of the last rebel enclave in northwestern Syria, sending thousands of civilians fleeing, activists reported Tuesday — scenes unseen in the area since a cease-fire three months ago.`\
-https://nytimes.com/aponline/2020/06/09/world/middleeast/ap-ml-syria-.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/09/technology/09reuters-honda-cyber.html?searchResultPosition=10
 
