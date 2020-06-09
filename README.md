@@ -1,8 +1,8 @@
-**Japan April Real Wages Fall at Quickest Pace Since December**\
-`Japan's April inflation-adjusted real wages fell at their fastest pace since December, government data showed on Tuesday, fanning fears about the outlook for consumer sentiment after the economy took a hit from the new coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-japan-economy-wages.html?searchResultPosition=9
+**I’m Mayor of a Small City in Kentucky. We Can Safely Reopen.**\
+`That may not be true everywhere, but we should trust local leaders to decide.`\
+https://nytimes.com/2020/06/09/opinion/kentucky-coronavirus-economy-reopen.html?searchResultPosition=9
 
-**Brazil's São Paulo Registers Record Daily Coronavirus Deaths**\
-`Brazil's most populous state São Paulo registered on Tuesday a record in daily coronavirus deaths, as COVID-19 continues to ravage the country.  `\
-https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-health-coronavirus-brazil-saopaulo.html?searchResultPosition=10
+**Black Lives Matter Sues Over Violent Seattle Police Tactics**\
+`A Black Lives Matter group sued the Seattle Police Department Tuesday to halt the violent tactics it has used to break up largely peaceful protests in recent days.`\
+https://nytimes.com/aponline/2020/06/09/us/ap-us-america-protests-washington-state.html?searchResultPosition=10
 
