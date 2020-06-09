@@ -1,8 +1,8 @@
-**2 Accused in Ex-Nissan Boss Escape Scheme Fight Extradition**\
-`A former Green Beret and his son accused of smuggling ex-Nissan Motor Co. Chairman Carlos Ghosn out of Japan in a box are fighting their extradition to the country, arguing the offense is not a crime there. `\
-https://nytimes.com/aponline/2020/06/09/business/ap-us-ex-nissan-boss-escape-arrests.html?searchResultPosition=9
+**President of Burundi, Pierre Nkurunziza, 55, Dies of Heart Attack**\
+`Mr. Nkurunziza ruled the small Central African nation for 15 years with an iron fist, arresting journalists, stifling media outlets and cracking down on the opposition.`\
+https://nytimes.com/2020/06/09/world/africa/burundi-president-pierre-nkurunziza-dead.html?searchResultPosition=9
 
-**Defaced Statue of Belgian Colonial King Taken Away, Future Unclear**\
-`A statue in Belgium of King Leopold II that was daubed with paint and burnt during protests inspired by the death of black American George Floyd was removed on Tuesday for possible renovation. `\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-minneapolis-police-belgium-statue.html?searchResultPosition=10
+**Burundi's Nkurunziza, Militia Leader Turned President, Dies Aged 55**\
+`Burundian President Pierre Nkurunziza, who has died of a heart attack aged 55, according to a statement released on Tuesday, oversaw a reign of torture, rape and murder by his security forces that drove hundreds of thousands of people into exile.`\
+https://nytimes.com/reuters/2020/06/09/world/africa/09reuters-burundi-politics-nkurunziza-obituary.html?searchResultPosition=10
 
