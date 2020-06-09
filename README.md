@@ -1,8 +1,8 @@
-**Music in the Algorithm Age**\
-`Can an algorithm write a hit song? Hosts Corey S. Powell and Kristen Meinzer discuss how artificial intelligence and other new technologies promise to upend the music industry — and create new opportunities for sharing and composing music.`\
-https://nytimes.com/paidpost/2020-06-09/invesco-qqq/music-in-the-algorithm-age.html?searchResultPosition=9
+**Statue of Leopold II, Belgian King Who Brutalized Congo, Is Removed in Antwerp**\
+`The statue was targeted by recent protests against racism and Belgium’s colonial history. The authorities said the statue would remain in a museum.`\
+https://nytimes.com/2020/06/09/world/europe/king-leopold-statue-antwerp.html?searchResultPosition=9
 
-**I Fought Two Plagues and Only Beat One**\
-`As the head of a major hospital, I fought the coronavirus. As a black man, I fight racism.`\
-https://nytimes.com/2020/06/09/opinion/coronavirus-racism-montefiore-medicine.html?searchResultPosition=10
+**Bear Shot Dead in French Pyrenees, Government to Press Charges**\
+`A bear has been shot dead in the French Pyrenees, French Environment Minister Elisabeth Borne said on Tuesday, adding that the government will press charges. `\
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-france-bear.html?searchResultPosition=10
 
