@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-arcelormittal-ilva
 `Panama has isolated nearly 200 migrants in a jungle camp to contain a novel coronavirus outbreak among a much larger group of Africans, Cubans and Haitians stranded by the pandemic in the remote Darien region.`\
 https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-health-coronavirus-panama.html?searchResultPosition=7
 
-**The Latest: Madrid Ready to Host Champions League Final**\
+**The Latest: Wales Rally GB Called Off Amid Pandemic**\
 `The Latest on the effects of the coronavirus outbreak on sports around the world:`\
 https://nytimes.com/aponline/2020/06/09/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=8
 
