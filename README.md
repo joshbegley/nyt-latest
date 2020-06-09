@@ -1,8 +1,8 @@
-**U.S. Navy to Bar Confederate Flags From Ships, Aircraft**\
-`The United States Navy is working to ban the Confederate battle flag from all public spaces on Navy installations, ships and aircraft, the Navy said on Tuesday.  `\
-https://nytimes.com/reuters/2020/06/09/us/09reuters-usa-military-race.html?searchResultPosition=9
+**Poets Criticize Poetry Foundation’s Statement on Black Lives Matter**\
+`In an open letter, more than 1,800 people criticized the foundation’s remarks and called on it to dedicate more proceeds from its $250 million endowment to antiracism efforts.`\
+https://nytimes.com/2020/06/09/books/poetry-foundation-black-lives-matter.html?searchResultPosition=9
 
-**AMC Misses Revenue Estimates as COVID-19 Shutters Movie Theaters**\
-`AMC Entertainment Holdings Inc reported its first-quarter revenue below Wall Street estimates on Tuesday, as the company reels under the closure of its movie theaters due to coronavirus-led lockdowns.`\
-https://nytimes.com/reuters/2020/06/09/technology/09reuters-amcentertainment-results.html?searchResultPosition=10
+**Austrian Army Officer Found Guilty of Spying for Russia but Set Free**\
+`An Austrian court on Tuesday found a retired army colonel guilty of spying for Russia for decades but sentenced him to just three years in prison and released him for having served half that.`\
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-austria-spy.html?searchResultPosition=10
 
