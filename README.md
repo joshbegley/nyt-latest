@@ -1,8 +1,8 @@
-**Republican Senators Push FCC to Act on Trump Social Media Order**\
-`Four Republican senators on Tuesday urged the Federal Communications Commission (FCC) to review whether to revise liability protections for internet companies after U.S. President Donald Trump urged action.`\
-https://nytimes.com/reuters/2020/06/09/technology/09reuters-twitter-trump-fcc.html?searchResultPosition=9
+**Music in the Algorithm Age**\
+`Can an algorithm write a hit song? Hosts Corey S. Powell and Kristen Meinzer discuss how artificial intelligence and other new technologies promise to upend the music industry — and create new opportunities for sharing and composing music.`\
+https://nytimes.com/paidpost/2020-06-09/invesco-qqq/music-in-the-algorithm-age.html?searchResultPosition=9
 
-**Hawks GM: NBA Planning Shortened '20-'21 Season**\
-`A shortened 2020-21 season is part of the NBA's plan to reduce the impact of a compacted offseason.`\
-https://nytimes.com/reuters/2020/06/09/sports/basketball/09reuters-basketball-nba-atl-shortened-20-21-season.html?searchResultPosition=10
+**I Fought Two Plagues and Only Beat One**\
+`As the head of a major hospital, I fought the coronavirus. As a black man, I fight racism.`\
+https://nytimes.com/2020/06/09/opinion/coronavirus-racism-montefiore-medicine.html?searchResultPosition=10
 
