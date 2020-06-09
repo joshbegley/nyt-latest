@@ -14,7 +14,7 @@ https://nytimes.com/aponline/2020/06/09/business/bc-eu-europe-pesticides.html?se
 `Thailand on Tuesday approved a draft bill requiring foreign digital service providers to pay a value-added tax (VAT), becoming the latest country in Southeast Asia to seek to boost tax revenues from international tech companies.`\
 https://nytimes.com/reuters/2020/06/09/technology/09reuters-thailand-tax-digital.html?searchResultPosition=8
 
-**Special Report: COVID Deepens the Other Opioid Crisis: a Shortage of Hospital Painkillers**\
+**Special Report: COVID Deepens the Other Opioid Crisis-a Shortage of Hospital Painkillers**\
 `As opioid pills and patches fueled a two-decade epidemic of overdoses in the United States, hospitals faced chronic shortages of the same painkillers in injectable form - narcotics vital to patients on breathing machines.`\
 https://nytimes.com/reuters/2020/06/09/us/09reuters-health-coronavirus-opioids-specialreport.html?searchResultPosition=9
 
