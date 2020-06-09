@@ -1,8 +1,8 @@
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark U.S. crude oil for July delivery rose 75 cents to settle at $38.94 a barrel Tuesday. Brent crude oil for August delivery rose 38 cents to $41.18 a barrel.`\
-https://nytimes.com/aponline/2020/06/09/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=9
+**NASCAR Set to Allow Fans Back in Florida, Alabama**\
+`NASCAR is set to allow fans back at the track for races this month at Homestead-Miami Speedway and Talladega Superspeedway. `\
+https://nytimes.com/aponline/2020/06/09/sports/ap-car-virus-outbreak-nascar.html?searchResultPosition=9
 
-**U.S. CDC Reports 1,956,421 Coronavirus Cases, 110,925 Deaths**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Tuesday reported 1,956,421 cases of new coronavirus, an increase of 17,598 cases from its previous count, and said the number of deaths rose by 550 to 110,925.`\
-https://nytimes.com/reuters/2020/06/09/us/09reuters-health-coronavirus-usa-cdc.html?searchResultPosition=10
+**Swiss Anti-Racism Protesters March in Geneva During Floyd Funeral**\
+`Some 5,000 people in the Swiss multicultural city of Geneva marched in protest at racial discrimination on Tuesday as the funeral of George Floyd was taking place in the United States.`\
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-minneapolis-police-protests-swiss.html?searchResultPosition=10
 
