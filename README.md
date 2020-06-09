@@ -1,24 +1,24 @@
-**Live Updates on George Floyd Protests: Funeral in Houston Today**\
-`Mr. Floyd’s death galvanized a movement calling for an overhaul of policing in the U.S. He will be buried in Texas on Tuesday in a grave beside his mother’s.`\
-https://nytimes.com/2020/06/09/us/george-floyd-protests.html?searchResultPosition=5
+**A Small Mississippi Town, ‘Asking for a Breath’ After Mayor’s Remarks Unleash Protests**\
+`Protests over George Floyd’s death have reached small towns like Petal, Miss., a predominantly white community where neighbors are confronting one another and talking about racial divides.`\
+https://nytimes.com/2020/06/09/us/george-floyd-protests-petal-mississippi.html?searchResultPosition=5
 
-**UK COVID-19 Death Toll Hits 51,766, Including Suspected Cases: Reuters Tally**\
-`The United Kingdom's COVID-19 death toll hit 51,766 on Tuesday, according to a Reuters tally of official data sources that confirmed the country's place as one of the worst hit in the world.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-britain-casualties.html?searchResultPosition=6
+**How to Contain Your Children’s Clutter**\
+`Working from home during a pandemic is stressful enough without having to constantly pick up after your children. Here’s how to avoid it.`\
+https://nytimes.com/2020/06/09/realestate/how-to-contain-your-childrens-clutter.html?searchResultPosition=6
 
-**How Was My Son Ahmaud Arbery’s Murder Not a Hate Crime?**\
-`Georgia is one of four remaining states without a hate crime law. This must change.`\
-https://nytimes.com/video/opinion/100000007179746/hate-crime-bill-ahmaud-arbery.html?searchResultPosition=7
+**Todd Snyder on How to Add Patches to Your Jeans**\
+`In this installment of our Designer D.I.Y. series, Mr. Snyder stitches print boxers to blown-out denim to produce a whole greater than the holes in its parts.`\
+https://nytimes.com/2020/06/09/style/diy-todd-snyder-on-how-to-add-patches-your-jeans.html?searchResultPosition=7
 
-**UK Says State-Backed COVID Loans to Companies Rise Again**\
-`British small businesses have borrowed nearly 24 billion pounds ($30 billion) under a coronavirus credit programme that offers 100% state guarantees for banks providing the loans, more than other, longer-running emergency support schemes.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-britain-loans.html?searchResultPosition=8
+**It’s America’s Bluest House Seat. How Is This Man a Top Contender?**\
+`The Rev. Ruben Diaz opposes abortion, has made homophobic statements and may vote for President Trump. And he’s a Democrat. In the Bronx.`\
+https://nytimes.com/2020/06/09/nyregion/ruben-diaz-bronx-congress.html?searchResultPosition=8
 
-**Bank of Finland Says Rapid Recovery Unlikely, but Worst Avoided**\
-`Finland's rapid recovery from the economic crisis caused by the coronavirus looks unlikely, but the worst-case scenarios have so far been avoided, Bank of Finland governor Olli Rehn said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-finland-economy.html?searchResultPosition=9
+**Testing Nursing Home Workers Can Help Stop Coronavirus. But Who Should Pay?**\
+`A patchwork of state and U.S. recommendations has hampered efforts to devise a uniform policy, leading to disputes over whether insurers or employers should cover testing costs.`\
+https://nytimes.com/2020/06/09/health/testing-coronavirus-nursing-homes-workers.html?searchResultPosition=9
 
-**Britain's AstraZeneca Ramps Up Studies for COVID-19 Antibody Treatments**\
-`British drugmaker AstraZeneca on Tuesday said it expects to move two COVID-19 antibody based therapies it has licensed from U.S. researchers into clinical studies in the next two months as it ramps up efforts to help combat the pandemic.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-astrazeneca.html?searchResultPosition=10
+**New York City’s Kettlebell Shortage: ‘People Are Kind of Freaking Out’**\
+`After fitness enthusiasts were forced to reimagine how they could keep in shape, demand led to a shortage of workout equipment.`\
+https://nytimes.com/2020/06/09/nyregion/kettlebells-in-stock.html?searchResultPosition=10
 
