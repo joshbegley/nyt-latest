@@ -1,8 +1,8 @@
-**Republican Lawmakers Ask Agriculture Department to Ease Regs on Meat Production**\
-`Six Republicans in the House of Representatives Judiciary Committee urged the U.S. Agriculture Department on Tuesday to ease regulations on meat processors that they said make it harder for smaller companies to compete.`\
-https://nytimes.com/reuters/2020/06/09/us/politics/09reuters-usa-meat-congress.html?searchResultPosition=9
+**Golf: Spieth Hopes Break Will Jump Start His Game**\
+`Jordan Spieth said he hopes the work he put in during the three-month suspension of the PGA Tour due to the COVID-19 pandemic will help the former world number one rediscover his form when he tees it up at the Colonial Country Club on Thursday. `\
+https://nytimes.com/reuters/2020/06/09/sports/golf/09reuters-golf-ftworth-spieth.html?searchResultPosition=9
 
-**Thousands of Vodafone UK Customers Face Call Connection Problems**\
-`Thousands of British customers of Vodafone Group Plc, the world's second-biggest mobile operator, faced call connection problems on Tuesday evening, although they were resolved within an hour.`\
-https://nytimes.com/reuters/2020/06/09/business/09reuters-vodafone-group-outages.html?searchResultPosition=10
+**Houston Bids Goodbye to George Floyd, Whose Killing Galvanized a Movement**\
+`The funeral served as both a national reckoning and a moment of personal mourning. The Rev. Al Sharpton demanded more action against police brutality.`\
+https://nytimes.com/2020/06/09/us/george-floyd-funeral-houston-unrest.html?searchResultPosition=10
 
