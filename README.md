@@ -1,12 +1,8 @@
-**VIRUS DIARY: The Singing Stopped, and the Emptiness Arrived**\
-`My mother taught me that the best place in the world is on the inside of a chord. If you've ever been there, you'll know what she meant. It's a bear hug of awe and wonder, a sublime sliver of beauty or dissonance or genius powered by the humble human voice. Or, more precisely, by many human voices.`\
-https://nytimes.com/aponline/2020/06/09/us/ap-us-virus-outbreak-diary-world-without-singing-.html?searchResultPosition=8
+**Package of Police Reforms Advances in New York Legislature**\
+`A sweeping package of police reform measures has started to move toward passage by the New York state legislature in the wake of the historic wave of protests sparked by the death of George Floyd in police custody.`\
+https://nytimes.com/reuters/2020/06/09/us/09reuters-minneapolis-police-protests-new-york.html?searchResultPosition=9
 
-**FCC Awarding Up to $16 Billion to Address U.S. Areas Lacking Broadband Service**\
-`The U.S. Federal Communications Commission voted on Tuesday to adopt auction procedures to provide up to $16 billion to areas that lack broadband service, including nearly six million unserved rural homes and businesses.`\
-https://nytimes.com/reuters/2020/06/09/business/09reuters-usa-telecom-internet.html?searchResultPosition=9
-
-**Eiffel Tower in Paris to Welcome Back Visitors on June 25**\
-`The Eiffel Tower in Paris will reopen on June 25 from its longest closure since World War Two after being forced to shut for more than three months due to the coronavirus pandemic, the tower's management said on Tuesday. `\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-france-eiffel-tower.html?searchResultPosition=10
+**Watch Live: Funeral for George Floyd**\
+`George Floyd, whose death sparked widespread protests against police brutality, will be laid to rest at a private funeral in Houston.`\
+https://nytimes.com/video/us/politics/100000007181858/george-floyd-funeral-watch-live.html?searchResultPosition=10
 
