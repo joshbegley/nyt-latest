@@ -1,24 +1,24 @@
+**AP Interview: Nepal Renews Call for Talks With India**\
+`Nepal’s foreign minister said Tuesday that the country was still waiting for a response from India on holding talks to resolve a border dispute that has strained relations between the South Asian neighbors.`\
+https://nytimes.com/aponline/2020/06/09/world/asia/ap-as-nepal-interview.html?searchResultPosition=5
+
+**EU's Vestager Wants Power to Investigate Foreign Aided Bids for European Companies**\
+`Foreign state-backed or state-owned companies seeking to acquire European companies may be investigated to see if they are benefiting from unfair subsidies, EU antitrust chief Margrethe Vestager said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-eu-antitrust-subsidies.html?searchResultPosition=6
+
+**Vitol's Former CEO Ian Taylor Dies After Cancer Battle: Sources**\
+`Vitol's former chief executive and chairman Ian Taylor has died at the age of 64 from cancer, according to an internal memo and four sources familiar the matter.`\
+https://nytimes.com/reuters/2020/06/09/business/09reuters-vitol-chairman.html?searchResultPosition=7
+
+**Robot Built for Japan's Aging Workforce Finds Coronavirus Role**\
+`Mira Robotics developed its "ugo" robot to reinforce greying Japan's shrinking workforce, but as the coronavirus threat persists, the Japanese startup is offering its machine as a tool in the fight against the outbreak, the company's CEO said.`\
+https://nytimes.com/reuters/2020/06/09/technology/09reuters-health-coronavirus-japan-robot.html?searchResultPosition=8
+
 **Detained Belarusian Blogger Could Be Sentenced to Three Years in Prison**\
 `A detained Belarusian blogger who helped lead protests against President Alexander Lukashenko has been charged with disrupting public order and attacking a policeman and could be sentenced to three years in prison, state investigators said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-belarus-election-blogger.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-belarus-election-blogger.html?searchResultPosition=9
 
 **Balearic Islands to Launch Airlift for German Tourists on June 15**\
 `The Spanish Balearic Islands plan to fly in thousands of German tourists from June 15, two weeks before the country as a whole starts reopening borders that have been closed since mid-March to curb the coronavirus pandemic, officials said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-spain-islands.html?searchResultPosition=6
-
-**Jehovah's Witness Jailed in Russia for Extremism, Lawyer Says**\
-`A Russian court on Tuesday sentenced a Jehovah's Witness to six and a half years in prison after finding him guilty of organising the activities of a banned extremist organisation, his lawyer said.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-russia-politics-religion.html?searchResultPosition=7
-
-**London Mayor Says Statues of Imperialists Could Be Removed**\
-`More statues of imperialist figures could be removed from Britain’s streets, following the unauthorized felling of a monument to slave trader Edward Colston in the city of Bristol, the mayor of London said Tuesday.`\
-https://nytimes.com/aponline/2020/06/09/world/europe/ap-eu-america-protests-global.html?searchResultPosition=8
-
-**Theater Artists Decry Racism in Their Industry**\
-`More than 300 sign a letter saying theater is a “house of cards built on white fragility and supremacy.”`\
-https://nytimes.com/2020/06/09/theater/theater-artists-decry-racism.html?searchResultPosition=9
-
-**The Case for Defunding the Police**\
-`Protesters across the country are calling for the abolition of policing. But what would that actually look like?`\
-https://nytimes.com/2020/06/09/podcasts/the-daily/defunding-the-police-black-lives-matter-protests.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-spain-islands.html?searchResultPosition=10
 
