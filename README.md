@@ -1,8 +1,8 @@
-**Germany to Extend Virus-Related Travel Warnings for Non-European Countries Until Aug 31: Sources**\
-`Germany plans to extend its travel warnings for non-European countries until Aug. 31, government sources told Reuters on Tuesday, adding that Berlin was also strongly advising against any cruises due to the special risks related to coronavirus.   `\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-germany-restrictions.html?searchResultPosition=9
+**What Is Herd Immunity and Could It Work With COVID-19?**\
+`What is herd immunity and could it work with COVID-19? `\
+https://nytimes.com/aponline/2020/06/09/us/ap-us-virus-outbreak-viral-questions-herd-immunity.html?searchResultPosition=9
 
-**The Roles Are L.G.B.T.Q., but the Movies Are Not About Self-Discovery**\
-`After a generation of films about sexual or emotional awakening, these titles showcase lesbian, gay, bisexual and transgender characters in all their wonderful complexity.`\
-https://nytimes.com/2020/06/09/movies/lgbt-movies-characters.html?searchResultPosition=10
+**Anti-Racism Protesters Take a Knee in Silence in Paris**\
+`Hundreds of anti-racism protesters in Paris took a knee and held an eight minute silence on Tuesday in memory of George Floyd, the black American whose death after a police officer knelt on his neck has unleashed a global outpouring of sadness and outrage.`\
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-minneapolis-police-protests-france.html?searchResultPosition=10
 
