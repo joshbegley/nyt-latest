@@ -1,8 +1,8 @@
-**Julio Guzman, Salvadoran Refugee Who Started a Church, Dies at 64**\
-`Mr. Guzman proclaimed his faith in God even as he lay dying of Covid-19 in the hospital. He started his church in New Jersey 30 years ago.`\
-https://nytimes.com/2020/06/09/obituaries/julio-guzman-dead-coronavirus.html?searchResultPosition=9
+**Colombia Seizes $265 Million Worth of Cocaine in Shipping Containers**\
+`Colombian police on Tuesday seized cocaine with an estimated value of $265 million in shipping containers at the Pacific port of Buenaventura, a city on the Andean country's Pacific coast, a senior official reported.`\
+https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-colombia-cocaine.html?searchResultPosition=9
 
-**Retracted COVID-19 Studies Expose Holes in Vetting of Data Firms**\
-`The scramble to research the novel coronavirus has exposed weaknesses in the vetting of healthcare data being supplied by a growing number of U.S. firms, a flaw that forced two of the most respected medical journals to pull studies last week.`\
-https://nytimes.com/reuters/2020/06/09/us/09reuters-health-coronavirus-studies.html?searchResultPosition=10
+**Half of Californians Live in Areas With Worrying Resurgence of Coronavirus**\
+`Nearly half of all Californians live in areas where coronavirus infections and hospitalizations are rising quickly enough to put their counties on a watch list for potential reinstatement of shutdowns, a Reuters analysis of state data show.    `\
+https://nytimes.com/reuters/2020/06/09/us/09reuters-health-coronavirus-california.html?searchResultPosition=10
 
