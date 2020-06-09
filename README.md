@@ -1,8 +1,8 @@
-**U.S. Democrats See Police Bill Vote This Month, Hoyer Says**\
-`Leaders of the U.S. House of Representatives hope to vote on a policing reform bill during the week of June 22, Representative Steny Hoyer, the chamber's No. 2 Democrat, said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/us/politics/09reuters-minneapolis-police-congress.html?searchResultPosition=9
+**Germany to Extend Virus-Related Travel Warnings for Non-European Countries Until Aug 31: Sources**\
+`Germany plans to extend its travel warnings for non-European countries until Aug. 31, government sources told Reuters on Tuesday, adding that Berlin was also strongly advising against any cruises due to the special risks related to coronavirus.   `\
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-germany-restrictions.html?searchResultPosition=9
 
-**Exclusive: Oil Tankers Turn Away From Venezuela as More Sanctions Loom**\
-`Two tankers that were sailing toward Venezuela to load crude have turned around since the weekend and three other vessels have left Venezuelan waters as the United States considers blacklisting dozens of ships for transporting the country's oil, according to shipping data and industry sources.`\
-https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-venezuela-sanctions-shipping-exclusive.html?searchResultPosition=10
+**The Roles Are L.G.B.T.Q., but the Movies Are Not About Self-Discovery**\
+`After a generation of films about sexual or emotional awakening, these titles showcase lesbian, gay, bisexual and transgender characters in all their wonderful complexity.`\
+https://nytimes.com/2020/06/09/movies/lgbt-movies-characters.html?searchResultPosition=10
 
