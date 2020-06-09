@@ -1,8 +1,8 @@
-**New York's Cuomo 'Disgusted' at Trump Claim Protester 'Fell Harder Than Was Pushed'**\
-`New York Governor Andrew Cuomo on Tuesday said he was "disgusted" by U.S. President Donald Trump's claim that a 75-year-old man seen in video being pushed by a Buffalo police officer during a protest "fell harder than (he) was pushed."`\
-https://nytimes.com/reuters/2020/06/09/us/09reuters-minneapolis-police-protests-cuomo.html?searchResultPosition=9
+**Fuel From Russian Arctic Spill Reaches Large Lake, Says Governor**\
+`Diesel fuel from a major spill in Russia's Arctic has reached a pristine lake which is the basin for a river flowing into the Arctic Ocean, a regional official said on Tuesday, but the mining giant embroiled in the scandal rejected his allegation.`\
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-russia-pollution-lake.html?searchResultPosition=9
 
-**Swiss Banking Software Firm Temenos Expects H2 Rebound: Newspaper**\
-`Temenos expects better times for the Swiss banking software group in the second half of the year after lenders put IT projects on hold due to the coronavirus pandemic, CEO Max Chuard told the Finanz und Wirtschaft newspaper in an interview.`\
-https://nytimes.com/reuters/2020/06/09/technology/09reuters-temenos-group-ceo.html?searchResultPosition=10
+**Barclays Labels Staveley Lawsuit 'Distorted and Exaggerated'**\
+`Barclays has dismissed as "distorted and exaggerated" legal arguments by financier Amanda Staveley, who is claiming up to 1.5 billion pounds in damages for alleged deceit over a financial crisis-era fundraising in a high-profile London trial. `\
+https://nytimes.com/reuters/2020/06/09/business/09reuters-britain-barclays-staveley-court.html?searchResultPosition=10
 
