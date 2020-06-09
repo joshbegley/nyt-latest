@@ -1,8 +1,8 @@
-**Trump Pushes Conspiracy Theory About Buffalo Protester**\
-`President Donald Trump on Tuesday advanced an unfounded conspiracy theory about a 75-year-old protester in Buffalo, New York, who was pushed down by police officers, tweeting without evidence that the confrontation may have been a “set up."`\
-https://nytimes.com/aponline/2020/06/09/us/politics/ap-us-america-protests-trump-.html?searchResultPosition=9
+**Dr. Wayne Frederick, President of Howard University**\
+`Dr. Frederick joins That Made All the Difference to discuss how his career as a surgeon has influenced his work as an educator and administrator and to reveal how adversity today may be what makes for a better future tomorrow.`\
+https://nytimes.com/paidpost/bank-of-america/that-made-all-the-difference/dr-wayne-frederick-president-of-howard-university.html?searchResultPosition=9
 
-**FCC Proposes Record $225 Million Fine for Massive Robocall Campaign**\
-`The Federal Communications Commission (FCC) on Tuesday voted unanimously to propose a record-setting $225 million fine against Texas-based health insurance telemarketers for allegedly making approximately 1 billion illegally spoofed robocalls.`\
-https://nytimes.com/reuters/2020/06/09/business/09reuters-usa-robocalls.html?searchResultPosition=10
+**Opposition Activist in Belarus Faces 3 Years in Prison**\
+`A Belarusian opposition activist who has rallied against the re-election of authoritarian President Alexander Lukashenko could face years behind bars, officials said Tuesday.`\
+https://nytimes.com/aponline/2020/06/09/world/europe/ap-eu-belarus-opposition-activist.html?searchResultPosition=10
 
