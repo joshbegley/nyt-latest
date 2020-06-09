@@ -1,8 +1,8 @@
-**Upper East Side Mom Group Implodes Over Accusations of Racism and Censorship**\
-`A large Facebook parenting group temporarily shut down after silencing black members. Now new groups for parents are forming that are explicitly anti-racist.`\
-https://nytimes.com/2020/06/09/style/ues-mommas-facebook-group-racism-censorship.html?searchResultPosition=9
+**Confusion Reigns as UN Scrambles Mask, Virus Spread Advice**\
+`It's an issue that's been argued about for months, both by experts and by people strolling through parks all over the world: Can people who don't feel sick spread the coronavirus, and if so should we all be wearing masks to stop it?`\
+https://nytimes.com/aponline/2020/06/09/world/europe/ap-eu-virus-outbreak-mask-confusion.html?searchResultPosition=9
 
-**WHO Americas' Official: Coronavirus Pandemic Nearing Peak in Mexico**\
-`The coronavirus pandemic in Mexico is advancing toward its peak level of infections, said Cristian Morales, the World Health Organization's representative in Mexico, in a news conference on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-health-coronavirus-mexico-who.html?searchResultPosition=10
+**Chesapeake Shares Tumble Amid Volatility, Trading Halts**\
+`Shares of shale oil and gas producer Chesapeake Energy Corp, which is staring at bankruptcy, plunged about 66% in a volatile session on Tuesday that was marked by multiple trading halts.`\
+https://nytimes.com/reuters/2020/06/09/us/09reuters-chesapeake-enrgy-stocks.html?searchResultPosition=10
 
