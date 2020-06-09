@@ -1,12 +1,12 @@
-**Explainer: Untangling the Conflict in Libya**\
-`Libya's conflict has taken a new twist after an attempt by eastern-based commander Khalifa Haftar to seize the capital, Tripoli, crumbled rapidly in recent weeks.`\
-https://nytimes.com/reuters/2020/06/09/world/africa/09reuters-libya-security-explainer.html?searchResultPosition=8
+**VIRUS DIARY: The Singing Stopped, and the Emptiness Arrived**\
+`My mother taught me that the best place in the world is on the inside of a chord. If you've ever been there, you'll know what she meant. It's a bear hug of awe and wonder, a sublime sliver of beauty or dissonance or genius powered by the humble human voice. Or, more precisely, by many human voices.`\
+https://nytimes.com/aponline/2020/06/09/us/ap-us-virus-outbreak-diary-world-without-singing-.html?searchResultPosition=8
 
-**BoE's Cunliffe Sees 'Great Deal of Pain' for Financial Sector**\
-`The initial shock of the coronavirus pandemic to Britain's financial system is over, but another sharp repricing of risk is still possible, Bank of England Deputy Governor Jon Cunliffe said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-britain-boe-cunliffe.html?searchResultPosition=9
+**FCC Awarding Up to $16 Billion to Address U.S. Areas Lacking Broadband Service**\
+`The U.S. Federal Communications Commission voted on Tuesday to adopt auction procedures to provide up to $16 billion to areas that lack broadband service, including nearly six million unserved rural homes and businesses.`\
+https://nytimes.com/reuters/2020/06/09/business/09reuters-usa-telecom-internet.html?searchResultPosition=9
 
-**Putin and Merkel Discuss Syria, Libya, Ukraine in Phone Call: Kremlin**\
-`Russian President Vladimir Putin and German Chancellor Angela Merkel discussed Syria's humanitarian aid needs in a telephone call, the Kremlin said in a statement on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-syria-security-russia-germany.html?searchResultPosition=10
+**Eiffel Tower in Paris to Welcome Back Visitors on June 25**\
+`The Eiffel Tower in Paris will reopen on June 25 from its longest closure since World War Two after being forced to shut for more than three months due to the coronavirus pandemic, the tower's management said on Tuesday. `\
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-france-eiffel-tower.html?searchResultPosition=10
 
