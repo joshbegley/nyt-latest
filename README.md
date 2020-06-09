@@ -1,24 +1,24 @@
+**EU Trade Chief Phil Hogan Mulls Run for WTO Top Job**\
+`The European Union’s trade commissioner said Tuesday that he is considering standing for the top job at the World Trade Organization if the 27 EU countries endorse him, but he maintains that whoever takes over at the helm of global trade's governing body has a major task ahead of them.`\
+https://nytimes.com/aponline/2020/06/09/business/bc-eu-europe-trade-wto.html?searchResultPosition=5
+
+**Polish State Fund to Help Big Firms Cope With Coronavirus Crisis**\
+`Poland's state fund said big companies could from Tuesday apply for financial aid to help them cope with the coronavirus crisis, after the European Union approved a 25 billion zloty ($6.4 billion) package of support.`\
+https://nytimes.com/reuters/2020/06/09/business/09reuters-health-coronavirus-poland-financing.html?searchResultPosition=6
+
+**Factbox: Why Tiffany's Debt Obligations Matter for Its Sale to LVMH**\
+`U.S. jewelry chain Tiffany & Co said on Tuesday that it amended some of the terms of its debt to give it financial breathing space, as it seeks to ensure that its $16.2 billion sale to French luxury goods giant LVMH is completed. `\
+https://nytimes.com/reuters/2020/06/09/business/09reuters-tiffany-m-a-lvmh-debt-factbox.html?searchResultPosition=7
+
+**Bahrain Releases Prominent Activist Nabeel Rajab: Lawyer**\
+`Bahrain has released prominent human rights activist Nabeel Rajab after a court agreed to pass an alternative sentence to the jail term he is currently serving, his lawyer said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/09/world/middleeast/09reuters-bahrain-security.html?searchResultPosition=8
+
+**EU Rejects Any US Attempt to Invoke Iran Nuclear Deal**\
+`The European Union’s top diplomat said Tuesday that since the United States has already withdrawn from an international agreement curbing Iran’s nuclear ambitions, it can't now use its former membership of the pact to try to impose a permanent arms embargo on the Islamic Republic.`\
+https://nytimes.com/aponline/2020/06/09/business/bc-eu-europe-us-iran-nuclear.html?searchResultPosition=9
+
 **Portugal's Centeno Says Will Step Down as Eurogroup Head**\
 `The chairman of euro zone finance ministers, Portugal's Mario Centeno, said on Tuesday he would not seek a second 2.5-year term at the helm of the powerful euro zone economic body and step down on July 13.`\
-https://nytimes.com/reuters/2020/06/09/us/09reuters-eurozone-eurogroup-centeno.html?searchResultPosition=5
-
-**Chilean Economic Growth to Sink 15.5% in May, 13% in Second Quarter: Poll**\
-`Chilean economic growth will sink 15.5% in May and 13% in the second quarter as the world's largest copper producer continues to struggle with the effects of an economic shutdown to halt the spread of the new coronavirus, analysts said in a central bank poll published on Tuesday. `\
-https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-chile-cenbank-poll.html?searchResultPosition=6
-
-**Brazil's Guedes Says Government Measures Have Saved 10 Million Jobs**\
-`Brazil's government has spent 700 billion reais ($143 billion), more than any emerging country, in emergency crisis-fighting measures, Economy Minister Paulo Guedes said on Tuesday, adding that 10 million formal jobs have been saved.`\
-https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-brazil-economy.html?searchResultPosition=7
-
-**Moscow Lifts Lockdown Restrictions Amid Virus Concerns**\
-`Moscow emerged from a strict lockdown Tuesday with the city government citing a slowdown in the coronavirus outbreak and critics expressing concerns over the potential for a new wave of infections in the Russian capital.`\
-https://nytimes.com/aponline/2020/06/09/us/ap-virus-outbreak-russia-moscow.html?searchResultPosition=8
-
-**When Will It Be Safe to Sing Together Again?**\
-`Choirs have been linked to several coronavirus outbreaks. And some scientists are skeptical about efforts to bring them back with protective measures.`\
-https://nytimes.com/2020/06/09/arts/choirs-singing-coronavirus-safe.html?searchResultPosition=9
-
-**Millennial Money: How to Stand Out in This Tough Job Market**\
-`Dear Class of 2020: You are graduating into one of the worst economies in history. But this isn’t news to you. Many of you have already felt the impact, with summer internships and full-time job offers pulled out from under you as the depth and duration of the coronavirus pandemic truly sets in.`\
-https://nytimes.com/aponline/2020/06/09/business/ap-nerdwallet-millennial-money-job-hunt-covid.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/09/us/09reuters-eurozone-eurogroup-centeno.html?searchResultPosition=10
 
