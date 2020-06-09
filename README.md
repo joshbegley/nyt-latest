@@ -1,8 +1,8 @@
-**Bert Bial, Philharmonic Musician With an Insider’s Lens, Dies at 93**\
-`When he wasn’t playing bassoon he was taking photos, capturing the orchestra’s most memorable moments as well as more subtle ones.`\
-https://nytimes.com/2020/06/09/arts/music/bert-bial-dead-photographer-bassoonist.html?searchResultPosition=9
+**Vodafone Says UK's Desire to Lead in 5G Will Suffer a Blow if Huawei Is Ripped Out**\
+`Vodafone Group Plc, the world's second-biggest mobile operator, has warned that Britain's desire to lead the world in 5G technology will face a big blow if it decides to remove China's Huawei Technologies Co Ltd from the country's telecoms infrastructure.`\
+https://nytimes.com/reuters/2020/06/09/technology/09reuters-britain-huawei-tech-vodafone-group.html?searchResultPosition=9
 
-**Why Isn’t the Stock Market Reading the Room?**\
-`The nation is in crisis, but it’s not the market’s job to care.`\
-https://nytimes.com/2020/06/09/opinion/stock-market-coronavirus.html?searchResultPosition=10
+**AMC Says ‘Almost All’ U.S. Theaters Will Reopen in July**\
+`The chain reported that it lost more than $2 billion in the most recent quarter, when the pandemic essentially stopped theatergoing.`\
+https://nytimes.com/2020/06/09/business/coronavirus-amc-movie-theaters-reopening.html?searchResultPosition=10
 
