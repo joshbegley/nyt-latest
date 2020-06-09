@@ -1,24 +1,24 @@
-**Norwegian Air Seeks Approval to Raise Cash Quickly if Needed**\
-`Norwegian Air, which has grounded most of its fleet due to the COVID-19 outbreak, is seeking approval from shareholders to potentially issue more shares at short notice as part of its recovery plan, the budget airline said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-norwegianair.html?searchResultPosition=5
+**China's Wangfuijing Group Wins Duty-Free Retail Licence**\
+`The parent company of one of China's largest department store chains said on Tuesday that it has been granted a government licence for duty-free retail, as the government ramped up efforts to spur domestic consumption to cushion the economy.`\
+https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-china-economy-consumption.html?searchResultPosition=5
 
-**UK Says It Will Not Budge on Fishing Rights in Brexit Talks**\
-`Britain said on Tuesday it would not waver over fishing rights in Brexit talks and that progress would only be possible when the European Union recognised that.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-britain-eu-fishing.html?searchResultPosition=6
+**Bahrain Activist Nabeel Rajab Released From Prison**\
+`A prominent human rights activist in Bahrain was released Tuesday amid the ongoing coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/06/09/world/middleeast/ap-ml-bahrain.html?searchResultPosition=6
 
-**World Bank Cuts 2020 GDP Forecasts for Georgia, Armenia, Azerbaijan**\
-`The World Bank has cut its 2020 economic growth forecasts for Armenia, Azerbaijan and Georgia due to the coronavirus pandemic, but it expects the three South Caucasus nations to recover next year.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-economy-southcaucasus-worldbank.html?searchResultPosition=7
+**Airline Industry Headed for $84 Billion Loss This Year: IATA**\
+`The coronavirus crisis will lead the airline industry into record annual losses of $84 billion as 2020 goes down as the "worst year in the history of aviation", the sector's main global body predicted on Tuesday.`\
+https://nytimes.com/reuters/2020/06/09/business/09reuters-health-coronavirus-airlines-iata.html?searchResultPosition=7
 
-**EU Trade Chief Hogan Says He Is Considering Bid to Become WTO Chief**\
-`European Trade Commissioner Phil Hogan confirmed on Tuesday that he was considering a bid to become the next director-general of the World Trade Organization, a post that will become vacant at start of September.`\
-https://nytimes.com/reuters/2020/06/09/business/09reuters-health-coronavirus-eu-trade.html?searchResultPosition=8
+**A Historical Novelist’s Decorating Scheme: ‘Books and Dog Hair’**\
+`For the best-selling author Beatriz Williams, home is a 200-year-old house in Lyme, Conn., with lots of bookshelves and antique furniture.`\
+https://nytimes.com/2020/06/09/realestate/a-historical-novelists-decorating-scheme-books-and-dog-hair.html?searchResultPosition=8
 
-**Emirates Airline Planning Thousands of Job Cuts, Lays Off Pilots, Cabin Crew: Sources**\
-`Emirates[EMIRA.UL] , one of the world's biggest long-haul airlines, is planning to cut thousands of jobs and on Tuesday began laying off pilots and cabin crew as to manage a cash crunch caused by the global coronavirus pandemic, according to five company sources. `\
-https://nytimes.com/reuters/2020/06/09/world/middleeast/09reuters-health-coronavirus-emirates-airline-redundancies.html?searchResultPosition=9
+**A House ‘With So Much History’**\
+`For the best-selling historical novelist Beatriz Williams, home is a 200-year-old house in Old Lyme, Conn.`\
+https://nytimes.com/slideshow/2020/06/09/realestate/a-house-with-so-much-history.html?searchResultPosition=9
 
-**Florida Officer Charged With Punching Intoxicated Man**\
-`Two Florida police officers are facing charges after video showed one of them slapping and then repeatedly punching an intoxicated man who was yelling at them at a hospital.`\
-https://nytimes.com/aponline/2020/06/09/us/ap-us-officer-punches-suspect-florida.html?searchResultPosition=10
+**The Quotidian and the Surreal**\
+`With large parts of our lives on pause, our relationship to motion, and the world outside of our homes, has been profoundly altered. We asked three photographers to explore movement in their everyday environments.`\
+https://nytimes.com/2020/06/09/arts/movement-quarantine-photographs.html?searchResultPosition=10
 
