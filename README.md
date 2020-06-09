@@ -1,8 +1,8 @@
-**Brazil Central Bank Watching FX, Commodities Impact on Inflation**\
-`Short-term asset price moves such as the recent rebound across markets will not influence Brazilian monetary policy, central bank director Fabio Kanczuk said on Tuesday, but policymakers are watching how the exchange rate and commodities feed into inflation expectations.`\
-https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-brazil-inflation-cenbank.html?searchResultPosition=9
+**Opposition Activist in Belarus Faces 3 Years in Prison**\
+`A Belarusian opposition activist who has rallied against the re-election of authoritarian President Alexander Lukashenko could face years behind bars, officials said Tuesday.`\
+https://nytimes.com/aponline/2020/06/09/world/europe/ap-eu-belarus-opposition-activist.html?searchResultPosition=9
 
-**Leagues, Teams Wary of Rising Stadium Expenses Amid Pandemic**\
-`Sporting Kansas City had just packed Children's Mercy Park to the brim for a 4-0 blowout of the Houston Dynamo when the coronavirus pandemic brought not just the Major League Soccer season but the entire sporting world to a standstill.`\
-https://nytimes.com/aponline/2020/06/09/business/ap-us-virus-outbreak-stadiums-finances.html?searchResultPosition=10
+**Artist Banksy Has New Take on Toppled Statue of English Slave Trader**\
+`The toppling of a statue of a 17th century slave trader in the English port city of Bristol was hailed by some as a long-overdue reckoning with Britain's imperalist past and denounced by others as a criminal act.`\
+https://nytimes.com/reuters/2020/06/09/world/09reuters-minneapolis-police-banksy.html?searchResultPosition=10
 
