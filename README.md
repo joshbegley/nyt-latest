@@ -1,8 +1,8 @@
-**What Makes an American a Patriot? Spike Lee Has Some Answers**\
-`Spike Lee was just 10 when Muhammad Ali, in 1967, refused to be drafted into the Vietnam. It wasn’t his fight, Ali said then. The Vietnamese “never lynched me.” `\
-https://nytimes.com/aponline/2020/06/09/us/ap-us-film-spike-lee.html?searchResultPosition=9
+**U.S. CDC Reports 1,956,421 Coronavirus Cases, 110,925 Deaths**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Tuesday reported 1,956,421 cases of new coronavirus, an increase of 17,598 cases from its previous count, and said the number of deaths rose by 550 to 110,925.`\
+https://nytimes.com/reuters/2020/06/09/us/09reuters-health-coronavirus-usa-cdc.html?searchResultPosition=9
 
-**Reinventing Life Indoors**\
-`Can plants make us (measurably) happier? On the first episode, hosts Corey Powell and Kristen Meinzer uncover the principles of biophilic design: the architectural practice that incorporates natural patterns into buildings and cities. `\
-https://nytimes.com/paidpost/invesco-qqq/innovation-uncovered/reinventing-life-indoors.html?searchResultPosition=10
+**UAE Flight Lands in Israel With Medical Aid for Palestinians**\
+`An Etihad Airways cargo plane carrying aid from the United Arab Emirates to help the Palestinians combat the coronavirus pandemic landed in Israel on Tuesday, Israel's Foreign Ministry said. It was the second direct commercial flight flew between the two countries in a month. `\
+https://nytimes.com/aponline/2020/06/09/world/middleeast/ap-ml-israel-uae.html?searchResultPosition=10
 
