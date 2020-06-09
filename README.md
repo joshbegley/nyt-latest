@@ -1,8 +1,8 @@
-**Golf: Spieth Hopes Break Will Jump Start His Game**\
-`Jordan Spieth said he hopes the work he put in during the three-month suspension of the PGA Tour due to the COVID-19 pandemic will help the former world number one rediscover his form when he tees it up at the Colonial Country Club on Thursday. `\
-https://nytimes.com/reuters/2020/06/09/sports/golf/09reuters-golf-ftworth-spieth.html?searchResultPosition=9
+**Ontario Testing Migrant Farm Workers After Coronavirus Deaths, Severe Cases**\
+`Ontario has started testing about 8,000 migrant farm workers for COVID-19 in a hard-hit rural region of the province after two young workers died and the coronavirus was found on at least 17 farms, according to the local public health authority. `\
+https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-health-coronavirus-canada-farming.html?searchResultPosition=9
 
-**Houston Bids Goodbye to George Floyd, Whose Killing Galvanized a Movement**\
-`The funeral served as both a national reckoning and a moment of personal mourning. The Rev. Al Sharpton demanded more action against police brutality.`\
-https://nytimes.com/2020/06/09/us/george-floyd-funeral-houston-unrest.html?searchResultPosition=10
+**Outcry as Some Nursing Homes Try to Grab Stimulus Checks**\
+`Compounding the hardships of the coronavirus, some nursing homes have demanded that low-income residents turn over their $1,200 economic stimulus checks, a cash grab lawmakers want to halt.`\
+https://nytimes.com/aponline/2020/06/09/business/bc-us-nursing-homes-stimulus-checks.html?searchResultPosition=10
 
