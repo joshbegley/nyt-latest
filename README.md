@@ -1,8 +1,8 @@
-**Poets Criticize Poetry Foundation’s Statement on Black Lives Matter**\
-`In an open letter, more than 1,800 people criticized the foundation’s remarks and called on it to dedicate more proceeds from its $250 million endowment to antiracism efforts.`\
-https://nytimes.com/2020/06/09/books/poetry-foundation-black-lives-matter.html?searchResultPosition=9
+**Brazil Reopens More Than Half of All Malls Despite COVID-19 Surge; Shares Jump**\
+`More than half of Brazilian malls have resumed activities with reduced opening hours, an industry group said on Tuesday, as authorities increasingly lift social distancing measures despite a growing number of coronavirus cases and deaths in Latin America's largest market.`\
+https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-health-coronavirus-brazil-malls.html?searchResultPosition=9
 
-**Austrian Army Officer Found Guilty of Spying for Russia but Set Free**\
-`An Austrian court on Tuesday found a retired army colonel guilty of spying for Russia for decades but sentenced him to just three years in prison and released him for having served half that.`\
-https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-austria-spy.html?searchResultPosition=10
+**DC Guard Members Test Positive for COVID After Protests**\
+`Members of the D.C. National Guard have tested positive for COVID-19 in the wake of the massive protests across the nation’s capital last week, according to Lt. Col. Brooke Davis, Guard spokeswoman.`\
+https://nytimes.com/aponline/2020/06/09/us/politics/ap-us-america-protests-virus-.html?searchResultPosition=10
 
