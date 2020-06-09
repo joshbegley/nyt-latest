@@ -1,8 +1,8 @@
-**Torkelson, Martin, Lacy Lead List of Top MLB Draft Prospects**\
-`Major League Baseball's amateur draft begins Wednesday night with the first of a pandemic-shortened five rounds. Detroit has the No. 1 overall pick for the second time in three years after taking pitcher Casey Mize in 2018. `\
-https://nytimes.com/aponline/2020/06/09/sports/baseball/ap-bbo-baseball-draft-top-players.html?searchResultPosition=9
+**Shares of Chesapeake Energy, a Shale Pioneer, Tumble in Volatile Trading**\
+`The company, which has said it could file for bankruptcy protection, helped turn the U.S. into a gas exporter but became known for an illegal scheme to suppress the price of oil and gas leases.`\
+https://nytimes.com/2020/06/09/business/energy-environment/chesapeake-energy-bankruptcy-protection.html?searchResultPosition=9
 
-**Big Tobacco in the Pandemic**\
-`The American Heart Association says the industry is hoping to profit from the virus. Also: Nursing homes of the future; learning how to cook.`\
-https://nytimes.com/2020/06/09/opinion/letters/coronavirus-tobacco.html?searchResultPosition=10
+**The Latest: Georgia Elections Chief Probing Voting Problems**\
+`The Latest on the 2020 primary elections (all times local):`\
+https://nytimes.com/aponline/2020/06/09/us/politics/ap-us-election-2020-the-latest.html?searchResultPosition=10
 
