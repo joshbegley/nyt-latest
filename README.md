@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/06/08/us/08reuters-health-coronavirus-usa-casua
 https://nytimes.com/2020/06/08/us/politics/defund-police-trump.html?searchResultPosition=7
 
 **Mexico Reports Nearly 3,000 New Coronavirus Cases, Total Infections at 120,000**\
-`The Mexican government reported 2,999 new coronavirus cases on Monday, while confirmed total infections stand at 120,102, according to data from the health ministry.`\
+`The Mexican government reported 2,999 new coronavirus cases on Monday, bringing total confirmed infections to 120,102, according to data from the health ministry. `\
 https://nytimes.com/reuters/2020/06/08/world/americas/08reuters-health-coronavirus-mexico.html?searchResultPosition=8
 
 **Man Who Drove Into Virginia Protest Is KKK Leader, Prosecutor Says**\
