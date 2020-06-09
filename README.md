@@ -1,8 +1,8 @@
-**U.S. Power Use to Drop by Record Amount in 2020 Due Coronavirus: EIA**\
-`U.S. electricity consumption will collapse by a record 5.7% in 2020 due to business closures for coronavirus-linked lockdowns, the U.S. Energy Information Administration (EIA) said Tuesday in its Short Term Energy Outlook (STEO).`\
-https://nytimes.com/reuters/2020/06/09/us/09reuters-usa-electricity-outlook.html?searchResultPosition=9
+**Torkelson, Martin, Lacy Lead List of Top MLB Draft Prospects**\
+`Major League Baseball's amateur draft begins Wednesday night with the first of a pandemic-shortened five rounds. Detroit has the No. 1 overall pick for the second time in three years after taking pitcher Casey Mize in 2018. `\
+https://nytimes.com/aponline/2020/06/09/sports/baseball/ap-bbo-baseball-draft-top-players.html?searchResultPosition=9
 
-**For Indian Women, the Coronavirus Economy Is a Devastating Setback**\
-`India’s women were already dropping out of the labor force. Coronavirus restrictions — and one of the worst economic slumps in decades — threaten even more losses for them.`\
-https://nytimes.com/2020/06/09/world/asia/india-coronavirus-women-economy.html?searchResultPosition=10
+**Big Tobacco in the Pandemic**\
+`The American Heart Association says the industry is hoping to profit from the virus. Also: Nursing homes of the future; learning how to cook.`\
+https://nytimes.com/2020/06/09/opinion/letters/coronavirus-tobacco.html?searchResultPosition=10
 
