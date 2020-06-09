@@ -1,8 +1,8 @@
-**Two Men Are Accused of Posing as New York Police Officers in Armed Robbery**\
-`Prosecutors said that the men, wearing bulletproof vests, medical masks and gloves, robbed a Manhattan jewelry store of $150,000 in valuables.`\
-https://nytimes.com/2020/06/09/us/nypd-impersonators-jewelry-store.html?searchResultPosition=9
+**Coronavirus Patients Most Infectious When They First Feel Unwell: WHO**\
+`Studies show people with the coronavirus are most infectious just at the point when they first begin to feel unwell, World Health Organization (WHO) experts said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/09/world/europe/09reuters-health-coronavirus-who-symptoms.html?searchResultPosition=9
 
-**Mostly Black Alabama County Covering Up Confederate Statue**\
-`A majority black county known as a birthplace of African American empowerment will cover up a Confederate memorial erected more than a century ago and is looking for ways to remove it permanently, a government leader said Tuesday.`\
-https://nytimes.com/aponline/2020/06/09/us/ap-us-america-protests-confederate-monuments.html?searchResultPosition=10
+**Bubba Wallace Wants NASCAR to Ban the Confederate Flag**\
+`NASCAR forbids the emblem from appearing on its merchandise and for years has asked fans to stop bringing the flag to races, but many have ignored the request.`\
+https://nytimes.com/2020/06/09/sports/autoracing/bubba-wallace-nascar-confederate-flag.html?searchResultPosition=10
 
