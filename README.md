@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/06/09/world/africa/09reuters-tanzania-politics.
 https://nytimes.com/aponline/2020/06/09/world/middleeast/ap-ml-persian-gulf-tensions.html?searchResultPosition=6
 
 **France Announces $16.9 Billion in Aid to Aviation Industry**\
-`France’s government has announced 15 billion euros ($16.9 billion) in aid for the virus-battered aerospace industry, including plane maker Airbus and national airline Air France.`\
+`France’s government announced 15 billion euros ($16.9 billion) in rescue money on Tuesday for the pandemic-battered aerospace industry, including plane maker Airbus and national airline Air France.`\
 https://nytimes.com/aponline/2020/06/09/business/bc-eu-france-aviation-1st-ld-writethru.html?searchResultPosition=7
 
 **South Korea's Daewoong Pharmaceutical Says Anti-Parasitic Drug Effective Against Coronavirus in Animal Tests**\
