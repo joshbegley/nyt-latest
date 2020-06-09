@@ -1,8 +1,8 @@
-**Russian Court Delays Trial of Professor Charged With Murder**\
-`A court in St. Petersburg ruled Tuesday to delay the trial of a prominent history professor charged with murdering and dismembering a female student.`\
-https://nytimes.com/aponline/2020/06/09/world/europe/ap-eu-russia-professor-dismembered-student.html?searchResultPosition=9
+**Brazil Central Bank Watching FX, Commodities Impact on Inflation**\
+`Short-term asset price moves such as the recent rebound across markets will not influence Brazilian monetary policy, central bank director Fabio Kanczuk said on Tuesday, but policymakers are watching how the exchange rate and commodities feed into inflation expectations.`\
+https://nytimes.com/reuters/2020/06/09/world/americas/09reuters-brazil-inflation-cenbank.html?searchResultPosition=9
 
-**Police, FBI Search Chad Daybell's Home in Missing Kids Case**\
-`Investigators returned Tuesday to search the Idaho home of a man with ties to the mysterious disappearance of two children who haven't been seen since last year. It's the second search of Chad Daybell's home in a case that has vexed investigators for months and attracted worldwide attention. `\
-https://nytimes.com/aponline/2020/06/09/us/ap-us-missing-kids-home-searched.html?searchResultPosition=10
+**Leagues, Teams Wary of Rising Stadium Expenses Amid Pandemic**\
+`Sporting Kansas City had just packed Children's Mercy Park to the brim for a 4-0 blowout of the Houston Dynamo when the coronavirus pandemic brought not just the Major League Soccer season but the entire sporting world to a standstill.`\
+https://nytimes.com/aponline/2020/06/09/business/ap-us-virus-outbreak-stadiums-finances.html?searchResultPosition=10
 
