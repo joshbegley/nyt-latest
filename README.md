@@ -1,8 +1,16 @@
-**How Times Reporters Handle Scientific Studies**\
-`When is research considered reliable? The answer isn’t always fully known. Here’s the approach our journalists take in evaluating studies and their results.`\
-https://nytimes.com/2020/06/09/insider/reporters-scientific-studies.html?searchResultPosition=9
+**G.O.P., Blindsided by Public’s Rage, Is Pressed to Act on Police Reform**\
+`Republicans have been startled by the extent to which public opinion has shifted in recent days after the killings of unarmed black Americans by the police and the protests that have followed.`\
+https://nytimes.com/2020/06/09/us/politics/republicans-police-reform.html?searchResultPosition=1
 
-**U.S. Theatre World Accused of Exploiting, Excluding People of Color**\
-`Viola Davis, Lin-Manuel Miranda and Cynthia Erivo joined some 300 actors and playwrights on Tuesday in decrying racism in the U.S. theatre world, saying it had exploited, excluded and diminished people of color.`\
-https://nytimes.com/reuters/2020/06/09/arts/09reuters-minneapolis-police-theatre.html?searchResultPosition=10
+**What’s Our Motto? Out of Many, One? Out of Many, None?**\
+`If we’re to thrive, our motto needs to be “Out of many, we.”`\
+https://nytimes.com/2020/06/09/opinion/trump-united-states.html?searchResultPosition=2
+
+**Washington, D.C., Deserves Statehood**\
+`Trump transformed my hometown into a war zone, underscoring the imperative that the capital should be the 51st state.`\
+https://nytimes.com/2020/06/09/opinion/trump-military-washington-statehood.html?searchResultPosition=3
+
+**Murder Conviction Voided in Accused Serial Killer's Case**\
+`A Louisiana man had his first-degree murder conviction voided by a judge on Tuesday after his lawyer argued that the jury's split verdict was unconstitutional. `\
+https://nytimes.com/aponline/2020/06/09/us/ap-us-scout-camp-killing.html?searchResultPosition=4
 
