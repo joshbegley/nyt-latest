@@ -2,7 +2,7 @@
 `They are becoming reluctant to borrow from the federal Paycheck Protection Program. Some are even returning money.`\
 https://nytimes.com/2020/06/10/business/Small-business-loans-ppp.html?searchResultPosition=1
 
-**Republicans Are Expected to Move Convention to Jacksonville from Charlotte**\
+**Republicans Are Expected to Move Convention to Jacksonville From Charlotte**\
 `The Florida city has been Republicans’ top choice for days, after President Trump told officials in North Carolina that he did not want the convention to feature social distancing.`\
 https://nytimes.com/2020/06/10/us/politics/republican-national-convention-jacksonville-florida.html?searchResultPosition=2
 
