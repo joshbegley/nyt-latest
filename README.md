@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2020/06/09/magazine/architecture-covid.html?sear
 https://nytimes.com/interactive/2020/06/09/magazine/remote-work-covid.html?searchResultPosition=3
 
 **Shakur Stevenson Stops Caraballo in Boxing's Return to Vegas**\
-`Shakur Stevenson stopped Felix Caraballo with a body-punch knockdown in the sixth round Tuesday night in the first major boxing event held in North America since the start of the coronavirus pandemic.`\
+`Shakur Stevenson ended the most unusual week of his boxing life with his usual dominance in another victory.`\
 https://nytimes.com/aponline/2020/06/09/sports/ap-box-stevenson-caraballo.html?searchResultPosition=4
 
 **Asia Today: S. Korea Requires QR Tracing at High-Risk Places**\
