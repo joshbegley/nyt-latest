@@ -30,8 +30,8 @@ https://nytimes.com/2020/06/10/arts/television/whats-on-tv-wednesday-dreamland-o
 `Voters encountered long lines and problems with voting machines on Tuesday during a chaotic day of in-person balloting in Georgia, the latest state to struggle to conduct elections amid the health worries of the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/06/10/us/politics/10reuters-usa-election.html?searchResultPosition=8
 
-**Your Wednesday Briefing**\
-`George Floyd, Europe’s statues, Moscow reopens: Here’s what you need to know.`\
+**George Floyd, Europe’s Statues, Moscow Reopens: Your Wednesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/06/10/briefing/george-floyd-europe-statues-moscow-reopens.html?searchResultPosition=9
 
 **Broadway in Trying Times: Join Us for Conversation and Song**\
