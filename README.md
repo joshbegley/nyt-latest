@@ -1,40 +1,40 @@
+**House Hunting in Greece: Sugar Cubes on the Aegean Sea for $2 Million**\
+`On the popular tourist island of Mykonos, the housing market eagerly awaits the return of foreign buyers.`\
+https://nytimes.com/2020/06/10/realestate/house-hunting-in-greece-sugar-cubes-on-the-aegean-sea-for-2-million.html?searchResultPosition=1
+
+**A Cliffside Villa on the Coast of Mykonos**\
+`This five-bedroom house overlooks the Aegean Sea from a hillside on the Greek island of Mykonos. It is on the market for $2.1 million.`\
+https://nytimes.com/slideshow/2020/06/10/realestate/a-cliffside-villa-on-the-coast-of-mykonos.html?searchResultPosition=2
+
+**Watch Live: George Floyd’s Brother Testifies Before House**\
+`Philonise Floyd is scheduled to appear before the House Judiciary Committee for a hearing on police brutality and racial profiling.`\
+https://nytimes.com/video/us/politics/100000007183839/george-floyd-brother-video.html?searchResultPosition=3
+
+**Burundi Begins Official Mourning for President Nkurunziza**\
+`Burundi began an official period of mourning for President Pierre Nkurunziza on Wednesday, a day after the announcement of his death from a heart attack aged 55 shocked the impoverished East African nation he had ruled with an iron grip.`\
+https://nytimes.com/reuters/2020/06/10/world/africa/10reuters-burundi-politics.html?searchResultPosition=4
+
+**Germany Voices Concern Over Israeli Annexation Plan but No Mention Yet of Sanctions**\
+`Germany's foreign minister on Wednesday expressed serious concern to Israel about its plans to annex parts of the occupied West Bank, but he stopped short of threatening sanctions.`\
+https://nytimes.com/reuters/2020/06/10/world/europe/10reuters-israel-palestinians-annexation-germany-israel.html?searchResultPosition=5
+
+**Ukraine Investigators Probe Former President in Intelligence Case**\
+`Ukraine's state investigation bureau said on Wednesday it suspected Petro Poroshenko of issuing an illegal decree in 2018 related to his dealings with the foreign intelligence service.`\
+https://nytimes.com/reuters/2020/06/10/world/europe/10reuters-ukraine-president-suspicion.html?searchResultPosition=6
+
+**Ethiopia Extends PM and Lawmakers' Terms, to Hold Polls Within a Year**\
+`Ethiopia's parliament approved on Wednesday an extra year in office for Prime Minister Abiy Ahmed after August elections were postponed, two days after a leading opposition politician resigned as speaker of its upper house in apparent protest at the delay.`\
+https://nytimes.com/reuters/2020/06/10/world/africa/10reuters-ethiopia-politics.html?searchResultPosition=7
+
+**India, China Hold Talks to Defuse Border Standoff, Thin Out Some Forces**\
+`Indian and Chinese military commanders made progress in talks on Wednesday to defuse a standoff along their disputed border in the western Himalayas after pulling back some troops in confidence-building gestures, Indian government officials said.`\
+https://nytimes.com/reuters/2020/06/10/world/asia/10reuters-india-china.html?searchResultPosition=8
+
+**Swedish Police Investigating Shots Fired in Suspected Robbery at Shopping Mall**\
+`Swedish police said on Wednesday they were investigating reports of gunshots having been fired at a shopping mall in the Stockholm suburb of Kista in what they believed was an attempted robbery.`\
+https://nytimes.com/reuters/2020/06/10/world/europe/10reuters-sweden-shooting.html?searchResultPosition=9
+
 **Disney's Take on Young Adult Novel 'Artemis Fowl' Debuts Friday**\
 `Walt Disney Co on Friday will release a film adaptation of popular young adult book series "Artemis Fowl," one that its stars and director admit differs from the story written by Irish author Eoin Colfer.`\
-https://nytimes.com/reuters/2020/06/10/arts/10reuters-film-artemis-fowl.html?searchResultPosition=1
-
-**ABB CEO Targets Profitability as COVID-19, Oil Price Slump Bite**\
-`ABB will focus on profitability before growth, Chief Executive Bjorn Rosengren said on Wednesday, as the Swiss engineering group tackles weaker demand caused by the COVID-19 pandemic and the drop in oil prices.`\
-https://nytimes.com/reuters/2020/06/10/world/europe/10reuters-abb-ceo.html?searchResultPosition=2
-
-**'We Need Help': Small Cities Face Fiscal Calamity From Virus**\
-`Unfilled potholes, uncollected trash, un-mowed grass and, most significantly, fewer police on the street are some of what Allentown says it’s contemplating unless Washington helps it plug a multimillion-dollar budget hole left by the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/06/10/business/bc-us-virus-outbreak-relief-left-out.html?searchResultPosition=3
-
-**Mnuchin: U.S. Recovery From Coronavirus Has Begun, Will Gain Strength in Q3, Q4**\
-`U.S. Treasury Secretary Steven Mnuchin said on Wednesday that the U.S. economy has already begun to rebound from the coronavirus pandemic and would "improve dramatically" in the third and fourth quarters.`\
-https://nytimes.com/reuters/2020/06/10/us/10reuters-health-coronavirus-mnuchin.html?searchResultPosition=4
-
-**Romanian Macroeconomic Indicators and Interest Rate Forecasts: Reuters Poll**\
-`The median forecast of a Reuters poll of analysts puts Romanian inflation at 2.4% year-on-year in May, down from April's 2.7%.`\
-https://nytimes.com/reuters/2020/06/10/world/europe/10reuters-romania-economy-poll.html?searchResultPosition=5
-
-**Dutch Tata Steel Employees Strike Over Planned Job Cuts: Union**\
-`Workers at Tata Steel's Dutch operations went on strike on Wednesday to protest against planned job cuts, the FNV union said.`\
-https://nytimes.com/reuters/2020/06/10/world/europe/10reuters-health-coronavirus-netherlands-tata-steel.html?searchResultPosition=6
-
-**S&P Affirms India's Long-Term Sovereign Credit Rating, Outlook**\
-`Standard and Poor's affirmed its rating on India's long-term foreign and local currency sovereign credit at the lowest investment-grade level and retained its stable outlook on the economy on Wednesday.`\
-https://nytimes.com/reuters/2020/06/10/world/asia/10reuters-india-ratings-s-p.html?searchResultPosition=7
-
-**Brazil May Consumer Prices Fall at Fastest Rate Since 1998: IBGE**\
-`Brazilian consumer price inflation, as measured by the IPCA index, fell 0.38% in May, government statistics agency IBGE said on Wednesday, less than the 0.46% fall economists in a Reuters poll had expected but still the lowest reading since 1998.`\
-https://nytimes.com/reuters/2020/06/10/world/americas/10reuters-brazil-economy-inflation.html?searchResultPosition=8
-
-**France Lifts Pandemic Response to 136 Billion Euros**\
-`France raised its coronavirus response measures to nearly 136 billion euros ($154.6 billion) on Wednesday, bringing the cost to 5.6% of GDP in its third budget revision so far this year.`\
-https://nytimes.com/reuters/2020/06/10/world/europe/10reuters-france-budget.html?searchResultPosition=9
-
-**Egypt's Headline Inflation Slowed to 4.7% in May: CAPMAS**\
-`Egypt's annual urban consumer price inflation slowed to 4.7% in May from 5.9% in April, the official statistics agency CAPMAS said on Wednesday.`\
-https://nytimes.com/reuters/2020/06/10/world/middleeast/10reuters-egypt-inflation.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/10/arts/10reuters-film-artemis-fowl.html?searchResultPosition=10
 
