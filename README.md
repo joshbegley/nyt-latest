@@ -35,6 +35,6 @@ https://nytimes.com/2020/06/09/business/media/harpers-bazaar-editor-samira-nasr.
 https://nytimes.com/reuters/2020/06/09/sports/baseball/09reuters-baseball-mlb-players-proposal.html?searchResultPosition=9
 
 **AP Sources: MLB Players Cut to 89 Games, Want Prorated Money**\
-`Baseball players have moved toward teams but remained far apart economically in their latest proposal for starting the pandemic-delayed season, adamant they receive full prorated salaries while offering to cut the regular season to 89.`\
+`Baseball players moved toward teams but remained far apart economically in their latest proposal for starting the pandemic-delayed season, adamant they receive full prorated salaries while offering to cut the regular season to 89 games.`\
 https://nytimes.com/aponline/2020/06/09/sports/baseball/ap-bbo-virus-outbreak-mlb.html?searchResultPosition=10
 
