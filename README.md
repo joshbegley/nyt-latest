@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/06/10/world/europe/10reuters-britain-rowling.ht
 `Vogue's Anna Wintour has apologized in an internal email for “mistakes" made in her 32-year tenure in not doing enough to elevate black voices on her staff and publishing images and stories that have been racially and culturally “hurtful or intolerant."`\
 https://nytimes.com/aponline/2020/06/10/business/bc-us-america-protests-anna-wintour.html?searchResultPosition=6
 
-**Merriam-Webster Revises ‘Racism’ Entry After Missouri Woman Argues for Changes**\
+**Merriam-Webster Revises ‘Racism’ Entry After Missouri Woman Asks for Changes**\
 `Kennedy Mitchum, 22, said the dictionary definition needed to be expanded to include systemic racism. The dictionary’s editors agreed.`\
 https://nytimes.com/2020/06/10/us/merriam-webster-racism-definition.html?searchResultPosition=7
 
