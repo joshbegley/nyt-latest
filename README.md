@@ -1,40 +1,40 @@
+**Tokyo Olympics Talk of Simplifying, but No Specifics So Far**\
+`One thing is certain: Tokyo organizers want to somehow simplify next year's postponed Olympics to keep costs down.`\
+https://nytimes.com/aponline/2020/06/10/sports/olympics/ap-oly-tokyo-simplifying-the-games.html?searchResultPosition=1
+
+**Should We Remove Statues of Congo's Coloniser King, Belgian Councillor Asks**\
+`A Brussels councillor has urged a debate on what to do with statues of Belgian King Leopold II, the brutal coloniser of what is now the Democratic Republic of Congo, which have been defaced by anti-racism protesters.`\
+https://nytimes.com/reuters/2020/06/10/world/africa/10reuters-minneapolis-police-belgium-statue.html?searchResultPosition=2
+
+**2 Art Gallery Shows to Explore From Home**\
+`Galleries and museums are getting creative about presenting work online during the coronavirus crisis. Here are two shows worth viewing virtually.`\
+https://nytimes.com/2020/06/10/arts/design/art-galleries-from-home.html?searchResultPosition=3
+
+**Stricker Gets Six Captain's Picks as U.S. Change Ryder Cup Qualification**\
+`The United States have modified their qualification criteria for this year's Ryder Cup and increased captain Steve Stricker's picks from four to six.`\
+https://nytimes.com/reuters/2020/06/10/sports/golf/10reuters-health-coronavirus-golf-rydercup.html?searchResultPosition=4
+
+**Twitter, Square to Make June 19 a Holiday to Support Racial Diversity**\
+`Jack Dorsey, the chief executive of Square Inc and Twitter Inc, said June 19, popularly known as 'Juneteenth', would be a permanent company-wide holiday in the United States to show support for racial diversity.`\
+https://nytimes.com/reuters/2020/06/10/business/10reuters-twitter-square-juneteenth.html?searchResultPosition=5
+
+**Mexico President Says Phone Call May Need to Replace Planned Meeting With Trump**\
+`Mexican President Andres Manuel Lopez Obrador said on Wednesday he was still weighing up the possibility of a meeting with his U.S. counterpart Donald Trump, but that the coronavirus pandemic meant they might have to talk by phone instead.`\
+https://nytimes.com/reuters/2020/06/10/world/americas/10reuters-mexico-usa-meeting.html?searchResultPosition=6
+
+**Mannheim Authorities Drop UBS Fine**\
+`A German case against UBS for allegedly helping clients evade tax has been concluded without any fine, prosecutors for the city of Mannheim said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/10/business/10reuters-ubs-group-germany.html?searchResultPosition=7
+
+**Britain Asks Too Much of EU in Brexit Talks, Barnier Says**\
+`Britain is seeking a trade relationship with the European Union that is very close to that of an EU member, something that is unacceptable to the bloc, the EU's Brexit negotiator Michel Barnier said on Wednesday.    `\
+https://nytimes.com/reuters/2020/06/10/world/europe/10reuters-britain-eu.html?searchResultPosition=8
+
 **Ethiopian PM's Term Extended as Election Delayed for Virus**\
 `Ethiopia’s prime minister faces an extra year or more in office after lawmakers voted Wednesday to extend their mandates and hold the national election nine to 12 months after health authorities determine it's safe.`\
-https://nytimes.com/aponline/2020/06/10/world/africa/ap-af-ethiopia-election.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/06/10/world/africa/ap-af-ethiopia-election.html?searchResultPosition=9
 
 **Global New Clean Energy Investment Totaled $282 Billion Last Year: Research**\
 `Global investment in new clean energy capacity rose 1% last year to $282.2 billion, research by UNEP, Bloomberg New Energy Finance and the Frankfurt School-UNEP Collaborating Centre showed on Wednesday.`\
-https://nytimes.com/reuters/2020/06/10/business/10reuters-renewables-investment.html?searchResultPosition=2
-
-**Erdogan and Trump Form New Bond as Interests Align**\
-`Relations between President Trump and President Recep Tayyip Erdogan of Turkey have long blown hot and cold. For the moment, they are finding common cause.`\
-https://nytimes.com/2020/06/10/world/europe/erdogan-trump-turkey-libya-syria.html?searchResultPosition=3
-
-**Lawsuit: Plane Hit, Flipped Woman's Car Before Deadly Crash**\
-`A Louisiana woman was surprising her husband with breakfast when a plane hit her vehicle, causing it to flip several times and catch fire, according to a lawsuit filed over the December crash.`\
-https://nytimes.com/aponline/2020/06/10/sports/ap-us-plane-crash-louisiana.html?searchResultPosition=4
-
-**HBO Max Pulls 'Gone With the Wind' Over Racist Portrayals**\
-`HBO Max has removed war epic film "Gone with the Wind" from its recently launched streaming service over its depiction of slavery, parent WarnerMedia said on Wednesday, joining other media companies that have pulled controversial TV shows as demand for racial sensitivity increases across the country.`\
-https://nytimes.com/reuters/2020/06/10/arts/10reuters-at-t-hbo-max.html?searchResultPosition=5
-
-**Mall Owner Simon Scraps Deal to Buy Taubman Due to Pandemic**\
-`The nation's biggest mall owner is backing out of a $3.6 billion deal to buy a major rival as the coronavirus pandemic shakes the retail economy. `\
-https://nytimes.com/aponline/2020/06/10/business/bc-us-mall-deal-scrapped.html?searchResultPosition=6
-
-**British Companies Seek Extra Time to Plug Ballooning Pension Gaps: Sources**\
-`An increasing number of British companies, trying to conserve cash through the coronavirus crisis, are seeking more time to plug pension scheme deficits, forcing pension trustees to make some tough choices, industry sources say.`\
-https://nytimes.com/reuters/2020/06/10/business/10reuters-health-coronavirus-britain-pensions.html?searchResultPosition=7
-
-**UK Regulator Gets More Time for Final Ruling on Amazon's Deliveroo Deal**\
-`Britain's competition regulator has given itself two more months to make a final ruling on Amazon's purchase of a minority stake in online delivery group Deliveroo so it can take full account of representations from all interested parties.      `\
-https://nytimes.com/reuters/2020/06/10/business/10reuters-deliveroo-m-a-amazon.html?searchResultPosition=8
-
-**U.S. Protesters Topple Columbus Statue and Throw It in a Lake**\
-`Anti-racism protesters in Virginia tore down a statue of Christopher Columbus on Tuesday night in Byrd park in Richmond, then draped it in a burning flag and dumped it in a lake, images of the incident posted on social media showed.`\
-https://nytimes.com/reuters/2020/06/10/world/europe/10reuters-minneapolis-police-protests-virginia-statue.html?searchResultPosition=9
-
-**AMC Aims to Reopen Theaters in July; Nations Eye Economies**\
-`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Wednesday related to the national and global response, the work place and the spread of the virus.`\
-https://nytimes.com/aponline/2020/06/10/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/10/business/10reuters-renewables-investment.html?searchResultPosition=10
 
