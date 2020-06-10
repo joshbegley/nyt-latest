@@ -1,40 +1,40 @@
+**New Yorkers Adopt Pets to Deal With Coronavirus Stress**\
+`When the coronavirus pandemic shut down New York City nearly three months ago, Jocelyn Tsai rushed to fill out an online application to foster a dog from the Animal Care Centers of NYC. `\
+https://nytimes.com/reuters/2020/06/10/us/10reuters-health-coronavirus-usa-pets.html?searchResultPosition=1
+
+**AP Exclusive: Police Officers' Personal Info Leaked Online**\
+`Personal information of police officers in departments nationwide is being leaked online amid tense interactions at demonstrations across the U.`\
+https://nytimes.com/aponline/2020/06/10/us/politics/ap-us-america-protests-police-doxxing.html?searchResultPosition=2
+
+**‘I’m Tired of Pain,’ Philonise Floyd Tells House Committee**\
+`Philonise Floyd, a brother of George Floyd, testified before the House Judiciary Committee during a hearing on police brutality.`\
+https://nytimes.com/video/us/politics/100000007184392/philonise-floyd-congress.html?searchResultPosition=3
+
+**Watch Live: Powell Holds News Conference After Fed Meeting**\
+`Federal Reserve Chair Jerome H. Powell will address the Fed’s economic projections and latest policy decisions.`\
+https://nytimes.com/video/us/100000007184380/fed-news-conference-powell-interest-rates.html?searchResultPosition=4
+
+**A New Low for Trump**\
+`A reader is appalled by the president’s attack on the 75-year-old protester pushed down by the police. Also: A pessimistic outlook; don’t delay a colonoscopy.`\
+https://nytimes.com/2020/06/10/opinion/letters/unrest-trump-martin-gugino.html?searchResultPosition=5
+
+**U.S. May Deficit Nearly Doubles to $399 Billion**\
+`The U.S. federal budget deficit in May nearly doubled to $399 billion from a year earlier amid continued strong spending on coronavirus relief programs and a 25% drop in receipts, the Treasury Department said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/10/business/10reuters-usa-economy-budget.html?searchResultPosition=6
+
+**New Coronavirus Deaths in France Sharply Down, but Cases Rise**\
+`France's new death toll from COVID-19 on Wednesday was only one-third of the tally the day before but the total of new confirmed infections rose again, one month out of a strict lockdown.`\
+https://nytimes.com/reuters/2020/06/10/world/europe/10reuters-health-coronavirus-france-casualties.html?searchResultPosition=7
+
+**ICC Prosecutor Urges Sudan to Hand Over Ex-Leader to Court**\
+`The chief prosecutor of the International Criminal Court called the surrender of Sudanese militia leader Ali Kushayb to the war crimes tribunal “a pivotal development” for victims awaiting justice and urged Sudan to hand over former president Omar al-Bashir and two others wanted by the court.`\
+https://nytimes.com/aponline/2020/06/10/world/africa/ap-un-united-nations-icc-sudan-darfur.html?searchResultPosition=8
+
 **U.S. CDC Reports 1,973,797 Coronavirus Cases**\
 `The U.S. Centers for Disease Control and Prevention (CDC) on Wednesday reported 1,973,797 cases of the new coronavirus, an increase of 17,376 cases from its previous count, and said that the number of deaths had risen by 950 to 112,133.`\
-https://nytimes.com/reuters/2020/06/10/us/10reuters-health-coronavirus-usa-cdc.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/06/10/us/10reuters-health-coronavirus-usa-cdc.html?searchResultPosition=9
 
 **Louisiana Lawmakers Strip Floyd Reference in Policing Study**\
 `Before they agreed to a proposal study policing approaches in the aftermath of George Floyd's death, white lawmakers on a Louisiana House committee Wednesday stripped a reference to Floyd and language questioning the criminal justice system's treatment of racial minorities.`\
-https://nytimes.com/aponline/2020/06/10/us/ap-us-america-protests-louisiana-legislature.html?searchResultPosition=2
-
-**George Floyd’s Brother Pleads With Congress: ‘Make it Stop’**\
-`Philonise Floyd, the star witness at a House hearing on Democrats’ policing bill, called for Congress to “stop the pain” caused by the killings of black men at the hands of police.`\
-https://nytimes.com/2020/06/10/us/politics/george-floyd-brother-congress-philonise.html?searchResultPosition=3
-
-**Fed to Keep Buying Bonds and Sees No Rate Hike Through 2022**\
-`The Federal Reserve says it will keep buying bonds to maintain low borrowing rates and support the U.S. economy in the midst of a recession. And it says nearly all the Fed's policymakers foresee no rate hike through 2022.`\
-https://nytimes.com/aponline/2020/06/10/business/ap-us-federal-reserve.html?searchResultPosition=4
-
-**I.M.F. Approves Critical Loan for Ukraine**\
-`President Volodymyr Zelensky of Ukraine won an endorsement for his anti-corruption policies with the approval of a $5 billion lending program from the International Monetary Fund.`\
-https://nytimes.com/2020/06/10/world/europe/imf-ukraine-loan.html?searchResultPosition=5
-
-**NY Philharmonic Cancels Fall Season, Moves Up Geffen Rebuild**\
-`The New York Philharmonic canceled its fall season because of the coronavirus pandemic and has moved up the start of Geffen Hall’s reconstruction to take advantage of the orchestra’s absence.`\
-https://nytimes.com/aponline/2020/06/10/us/ap-us-virus-outbreak-music-new-york-philharmonic.html?searchResultPosition=6
-
-**‘Cops’ Is Off the Air. But Will We Ever Get It Out of Our Heads?**\
-`However the landscape of TV changes (or doesn’t), we’ll live with the aftermath of decades of fear-mongering crime shows.`\
-https://nytimes.com/2020/06/10/arts/television/cops-canceled.html?searchResultPosition=7
-
-**Cairo Film Festival's Art Director Resigns Amid Controversy**\
-`The controversial art director of Cairo's international film festival has resigned amid calls for his removal because of past inflammatory posts on social media, the festival said. `\
-https://nytimes.com/aponline/2020/06/10/world/middleeast/ap-ml-egypt-film-festival.html?searchResultPosition=8
-
-**For a Day, Scientists Pause Science to Confront Racism**\
-`Scholars said they would not hold classes or lectures on Wednesday, and leading journals and scientific associations said they would not announce most breakthroughs.`\
-https://nytimes.com/2020/06/10/science/science-diversity-racism-protests.html?searchResultPosition=9
-
-**Manchester City’s Champions League Fate Will Be Announced in July**\
-`The English soccer champion has vowed to overturn a two-year ban at the Court of Arbitration for Sport. But the results of a three-day hearing that ended Wednesday will have repercussions for the sport.`\
-https://nytimes.com/2020/06/10/sports/soccer/manchester-city-champion-league-ban.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/10/us/ap-us-america-protests-louisiana-legislature.html?searchResultPosition=10
 
