@@ -1,40 +1,40 @@
+**'Cops,' on Air for 33 Seasons, Dropped by Paramount Network**\
+`After 33 seasons on the air, “Cops” has been dropped by the Paramount Network as protests against police proliferate around the world. `\
+https://nytimes.com/aponline/2020/06/09/business/ap-us-tv-cops.html?searchResultPosition=1
+
+**Video Shows Prison Guard Mocking George Floyd Killing**\
+`A corrections officer who participated in a counterprotest to a Black Lives Matter demonstration in New Jersey in which people reenacted the death of George Floyd was suspended after the video was widely shared on social media.`\
+https://nytimes.com/aponline/2020/06/09/us/ap-us-america-protests-floyd-reenactment.html?searchResultPosition=2
+
+**COVID-19 Magnifies Challenges to Business in China: European Business Group**\
+`The COVID-19 epidemic has exacerbated already worrisome trends to doing business in China amid slowing revenue growth, regulatory obstacles and the clout of the state-owned sector, a European business group said on Wednesday. `\
+https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-china-eu-business.html?searchResultPosition=3
+
+**DoubleLine's Gundlach Bearish on U.S. Dollar, Says Stocks 'Lofty'**\
+`The U.S. dollar is unlikely to make significant moves higher in the near term because of the ballooning budget deficit, Jeffrey Gundlach, the billionaire chief executive of DoubleLine Capital, said on a webcast presentation on Tuesday. `\
+https://nytimes.com/reuters/2020/06/09/business/09reuters-funds-doubleline.html?searchResultPosition=4
+
+**HK's Cathay Pacific Shares Set to Open Up 18.7% After $5 Billion Rescue Package**\
+`Shares of Cathay Pacific Airways Ltd were set to open sharply up 18.7% on Wednesday after it announced a HK$39 billion ($5 billion) recapitalisation plan led by the Hong Kong government to help it weather the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/06/09/business/09reuters-health-coronavirus-cathay-pacific-stocks.html?searchResultPosition=5
+
+**Missouri Woman Prompts Merriam-Webster to Redefine 'Racism'**\
+`Merriam-Webster is revising its definition of racism after a Missouri woman's emails claimed it fell short of including the systemic oppression of certain groups of people.`\
+https://nytimes.com/aponline/2020/06/09/business/ap-us-racism-definition-missouri-woman.html?searchResultPosition=6
+
 **CrossFit Founder Steps Down in Chaos**\
 `Greg Glassman, who started a fitness movement that’s grown for decades, spun CrossFit into a disaster in just days.`\
-https://nytimes.com/2020/06/09/style/crossfit-gyms-founder-protests.html?searchResultPosition=1
+https://nytimes.com/2020/06/09/style/crossfit-gyms-founder-protests.html?searchResultPosition=7
 
 **Twitter and Square Make Juneteenth a Company Holiday**\
 `The day marks the anniversary of when slaves in Galveston, Texas, first learned of their freedom on June 19, 1865.`\
-https://nytimes.com/2020/06/09/us/juneteenth-twitter-square-holiday.html?searchResultPosition=2
+https://nytimes.com/2020/06/09/us/juneteenth-twitter-square-holiday.html?searchResultPosition=8
 
 **Japan Wants to Take Lead for G7 Statement on Hong Kong: Abe**\
 `Japan wants to take the lead among Group of Seven nations on issuing a statement about the situation in Hong Kong, where China has imposed a new security law, Prime Minister Shinzo Abe said on Wednesday.`\
-https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-hongkong-protests-japan.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-hongkong-protests-japan.html?searchResultPosition=9
 
 **Movie Theaters, Shuttered for Months, Plan July Reopening**\
 `After three months of near total blackout of cinemas nationwide, movie theaters are preparing to reopen — even if it means only a few titles on the marquee and showings limited to as little as 25% capacity. `\
-https://nytimes.com/aponline/2020/06/09/business/ap-us-film-theater-reopenings.html?searchResultPosition=4
-
-**Japan's Wholesale Prices Sink at Fastest Pace in Four Years as Pandemic Hits Demand**\
-`Japan's wholesale prices fell at the fastest annual pace in nearly four years in May, data showed on Wednesday, as the coronavirus pandemic hit business activity and weighed on global demand for commodities.`\
-https://nytimes.com/reuters/2020/06/09/world/asia/09reuters-japan-economy-prices.html?searchResultPosition=5
-
-**Arizona Calls for Emergency Plan as COVID-19 Spikes After Reopening**\
-`Arizona again told hospitals to activate the coronavirus emergency plans after cases spiked following reopening, turning it into a U.S. virus hotspot along with neighboring Southwest states.`\
-https://nytimes.com/reuters/2020/06/09/us/09reuters-health-coronavirus-usa-arizona.html?searchResultPosition=6
-
-**Mexico Sees Cases Numbers Swell, Reports 596 New Deaths**\
-`Mexico accumulated 4,199 more confirmed coronavirus cases Tuesday and 596 new deaths, suggesting the planned reopening of broader economic activities may still be far away.`\
-https://nytimes.com/aponline/2020/06/09/world/americas/ap-lt-virus-outbreak-mexico.html?searchResultPosition=7
-
-**Brandon Scott Wins Democratic Nomination for Baltimore Mayor**\
-`City Council President Brandon Scott, who ran a campaign focused on youthful energy, progressive ideas and experience, has won the Democratic nomination for Baltimore mayor. He has pledged to tackle longstanding challenges in the city such as gun violence and substance abuse.`\
-https://nytimes.com/aponline/2020/06/09/us/ap-us-election-2020-baltimore-mayor.html?searchResultPosition=8
-
-**Harper’s Bazaar Appoints First Woman of Color as Top Editor**\
-`Samira Nasr, a former Vanity Fair fashion director, is leaving Condé Nast to take a key job at Hearst Magazines.`\
-https://nytimes.com/2020/06/09/business/media/harpers-bazaar-editor-samira-nasr.html?searchResultPosition=9
-
-**Reports: Players Propose 89-Game Season, Rejection Expected**\
-`In the latest back-and-forth between Major League Baseball owners and players over a potential 2020 season, the players union on Tuesday submitted a proposal to owners outlining what would be an 89-game season, multiple media outlets reported.`\
-https://nytimes.com/reuters/2020/06/09/sports/baseball/09reuters-baseball-mlb-players-proposal.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/09/business/ap-us-film-theater-reopenings.html?searchResultPosition=10
 
