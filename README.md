@@ -1,40 +1,40 @@
-**Track Is Back at Brown After Outcry About Lost Opportunities**\
-`Brown University has reinstated its men's varsity track and cross country programs, with the school president saying dropping the teams to club status would have had a negative effect on efforts to build and maintain diversity on campus, particularly for African Americans.`\
-https://nytimes.com/aponline/2020/06/10/sports/ap-us-brown-dropping-sports.html?searchResultPosition=1
+**White House Proposals on Police Reform Being Finalized, Reduced Immunity Off Table**\
+`The White House said on Wednesday it is putting the finishing touches on proposals to reform the police in the wake of George Floyd's killing while in police custody, adding that reducing immunity for cops is a "non-starter." `\
+https://nytimes.com/reuters/2020/06/10/us/politics/10reuters-usa-trump-policereform.html?searchResultPosition=1
 
-**The Floyd Protests Show That Twitter Is Real Life**\
-`Conversations on the platform stretch our understanding of the politics of the possible.`\
-https://nytimes.com/2020/06/10/opinion/twitter-protest-politics.html?searchResultPosition=2
+**Trump Rules Out Renaming U.S. Bases Named for Confederate Leaders**\
+`U.S. President Donald Trump on Wednesday rejected any proposal to rename U.S. military bases that are named for Confederate leaders from the 1860s civil war, dismissing appeals made in the wake of the death of African American George Floyd.`\
+https://nytimes.com/reuters/2020/06/10/us/politics/10reuters-usa-trump-bases.html?searchResultPosition=2
 
-**South Carolina Officials Decry 'Confusion' During Primary**\
-`Citing “extreme wait times and confusion at polling places” in some precincts in and around South Carolina's capital city during Tuesday's primary, state election officials said they are sending help before upcoming runoffs, including poll manager training and equipment testing.`\
-https://nytimes.com/aponline/2020/06/10/us/ap-us-election-2020-south-carolina-problems.html?searchResultPosition=3
+**Soccer: Frankfurt Players Display '#blacklivesmatter' on Game Shirts**\
+`Eintracht Frankfurt changed their team shirt to display "#blacklivesmatter" on the front for their German Cup semi-final at Bayern Munich on Wednesday to take a stand against racism, the club said.`\
+https://nytimes.com/reuters/2020/06/10/sports/soccer/10reuters-soccer-germany-bay-sge.html?searchResultPosition=3
 
-**Pandemic Paid Leave Is Available: Why Some Parents Aren’t Taking It**\
-`There may still be a lack of awareness about the benefit, but for families who do know, they’re weighing the risks`\
-https://nytimes.com/2020/06/10/parenting/pandemic-paid-leave.html?searchResultPosition=4
+**Statue of Former Panthers Owner Removed From Outside Stadium**\
+`A statue of former Carolina Panthers owner Jerry Richardson, which had stood in front of the team's stadium since it opened nearly 25 years ago, was removed by workers on Wednesday.`\
+https://nytimes.com/aponline/2020/06/10/sports/football/ap-fbn-panthers-richardson-statue.html?searchResultPosition=4
 
-**U.N. Chief Regrets North Korea Decision to Cut Hotlines With South**\
-`U.N. Secretary-General Antonio Guterres regrets that North Korea has severed hotlines with South Korea, warning that such channels "are necessary to avoid misunderstandings or miscalculations," a U.N. spokesman said on Wednesday.`\
-https://nytimes.com/reuters/2020/06/10/world/asia/10reuters-northkorea-southkorea-un.html?searchResultPosition=5
+**When Child Care Centers Close, Parents Scramble to Adapt**\
+`As lockdowns and quarantines stretch on, reports of child care facility closures have been coming in from coast to coast.`\
+https://nytimes.com/2020/06/10/parenting/virus-day-care-bright-horizons.html?searchResultPosition=5
 
-**Zimbabwe Dismisses Rumours of Coup, Says Country Stable**\
-`Zimbabwe's National Security Council (NSC) in a maiden news conference on Wednesday accused allies of the late former leader Robert Mugabe and some opposition officials of peddling rumours of an impending military coup and said the country was stable.`\
-https://nytimes.com/reuters/2020/06/10/world/africa/10reuters-zimbabwe-politics.html?searchResultPosition=6
+**Fiat, PSA $50 Billion Merger Faces Lengthy EU Antitrust Probe: Sources**\
+`Fiat Chrysler and Peugeot maker PSA face a lengthy EU antitrust investigation after they declined to offer concessions in a bid to allay EU antitrust concerns about their planned $50 billion merger, people familiar with the matter said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/10/business/10reuters-fiat-chrysler-m-a-peugeot-eu.html?searchResultPosition=6
 
-**Libya's GNA and LNA Engage in U.N.-Supported 5+5 Joint Military Commission Talks: Tweet**\
-`The United Nations support mission in Libya said in a tweet on Wednesday that both Libya's Government of National Accord (GNA) and the Libyan National Army (LNA) are engaged in the third round of 5+5 joint military commission talks.`\
-https://nytimes.com/reuters/2020/06/10/world/africa/10reuters-libya-security-un.html?searchResultPosition=7
+**Washington, D.C. Urges Anti-Racism Protesters to Get Tested for Coronavirus**\
+`Washington, D.C. on Wednesday urged people who had participated in protests against police brutality and systematic racism to get tested for the coronavirus.`\
+https://nytimes.com/reuters/2020/06/10/us/10reuters-minneapolis-police-washingtondc.html?searchResultPosition=7
 
-**Creamy, Eggy Polenta, Dotted With Corn**\
-`You can use whatever vegetable you want in this easily baked dish.`\
-https://nytimes.com/2020/06/10/dining/polenta-recipe-coronavirus.html?searchResultPosition=8
+**Temperature, Humidity Affects Virus Life on Surfaces, C-Section May Raise Risk for Infected Mothers**\
+`The following is a brief roundup of some of the latest scientific studies on the novel coronavirus and efforts to find treatments and vaccines for COVID-19, the illness caused by the virus.`\
+https://nytimes.com/reuters/2020/06/10/world/asia/10reuters-health-coronavirus-science.html?searchResultPosition=8
 
-**Motor Racing: Hamilton Happy With Form After Test Return at Wet Silverstone**\
-`Six-times world champion Lewis Hamilton said it was good to know he could still drive after returning to the track in a Formula One car for the first time in more than 100 days at Silverstone on Wednesday.     `\
-https://nytimes.com/reuters/2020/06/10/sports/autoracing/10reuters-motor-f1-mercedes.html?searchResultPosition=9
+**Coca-Cola Ends MLB Sponsorship After 3 Seasons**\
+`The Coca-Cola Co. has ended its sponsorship of Major League Baseball after three seasons.`\
+https://nytimes.com/aponline/2020/06/10/business/ap-bbo-mlb-coca-cola.html?searchResultPosition=9
 
-**Perez: Democrats Will 'Descend' on Milwaukee for Convention**\
-`Democrats will “descend” on Milwaukee for the national convention in August despite the ongoing coronavirus pandemic, Democratic National Committee Chairman Tom Perez said Wednesday.`\
-https://nytimes.com/aponline/2020/06/10/us/ap-us-election-2020-democratic-convention.html?searchResultPosition=10
+**How Sports Leagues Regulate Athletes’ Activism**\
+`Some are reconsidering the rules surrounding protests and demonstrations on and off the field.`\
+https://nytimes.com/2020/06/10/sports/national-anthem-policies.html?searchResultPosition=10
 
