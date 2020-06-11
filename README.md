@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/06/11/business/11reuters-tesla-china-electric-b
 `A local authority in southern England said it would remove a statue of Robert Baden-Powell, founder of the worldwide scouting movement, the latest memorial to be taken down in the wake of anti-racism protests sparked by the death of George Floyd.`\
 https://nytimes.com/reuters/2020/06/11/world/europe/11reuters-minneapolis-police-protests-britain-statue.html?searchResultPosition=6
 
-**U.S. EPA Orders Amazon, eBay to Stop Selling Unsafe COVID-19 Products: Bloomberg**\
+**U.S. EPA Orders Amazon, eBay to Stop Selling Unsafe COVID-19 Products - Bloomberg**\
 `E-commerce companies Amazon Inc and eBay Inc have been instructed by the U.S. Environmental Protection Agency (EPA) to stop selling unproven or unsafe disinfectants, including products falsely marketed as killing COVID-19, on their platforms, Bloomberg reported https://bloom.bg/3fcuLg5 on Thursday.`\
 https://nytimes.com/reuters/2020/06/11/business/11reuters-health-coronavirus-usa-epa.html?searchResultPosition=7
 
