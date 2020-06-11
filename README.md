@@ -11,7 +11,7 @@ https://nytimes.com/2020/06/11/us/derrick-scott-oklahoma-i-cant-breathe.html?sea
 https://nytimes.com/aponline/2020/06/11/world/europe/ap-eu-germany-explosives-blood-trail.html?searchResultPosition=4
 
 **‘For They Know Not What They Do’ Review: Where Faith Meets L.G.B.T.Q. Life**\
-`Daniel Karslake’s documentary outlines the uneven path toward progress for L.G.B.T.Q. people in the United States.`\
+`Daniel Karslake’s documentary follows four families navigating issues of faith in relation to the sexual orientations and gender identities of their children.`\
 https://nytimes.com/2020/06/11/movies/for-they-know-not-what-they-do-review.html?searchResultPosition=5
 
 **Moscow Uses Gift Certificates to Entice Voters to Referendum**\
