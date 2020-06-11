@@ -1,32 +1,32 @@
+**Lawmaker Quizzes Attorney General Barr on Protest Surveillance**\
+`A U.S. senator on Thursday urged Attorney General Bill Barr to provide an account of how surveillance technology has been deployed against Americans during protests over the death of George Floyd, an unarmed black man, in police custody.`\
+https://nytimes.com/reuters/2020/06/11/technology/11reuters-minneapolis-police-protests-surveillance.html?searchResultPosition=3
+
+**India Sets Out Proposals for Tighter Governance at Banks**\
+`India's central bank proposed on Thursday stricter governance rules for commercial banks, following a series of financial and governance problems at lenders in recent months.`\
+https://nytimes.com/reuters/2020/06/11/world/asia/11reuters-india-cenbank-banks.html?searchResultPosition=4
+
+**U.S. Fed Buys $28.1 Billion of Mortgage Bonds, Sells $5.6 Billion**\
+`The Federal Reserve bought $28.1 billion of agency mortgage-backed securities in the week`\
+https://nytimes.com/reuters/2020/06/11/us/11reuters-markets-mortgages-fed.html?searchResultPosition=5
+
+**Breonna Taylor Police Report Gives Few Details, Some Wrong**\
+`An incident report released by Louisville Police on the fatal shooting of Breonna Taylor is mostly blank, with few details of the incident that spurred days of protests in the city.`\
+https://nytimes.com/aponline/2020/06/11/us/ap-us-america-protests-kentucky.html?searchResultPosition=6
+
+**Ohio Lawmaker Asks Racist Question About Black People and Hand-Washing**\
+`State Senator Stephen A. Huffman, a Republican and a doctor, speculated publicly about why “the colored population” has been disproportionately affected by the coronavirus.`\
+https://nytimes.com/2020/06/11/us/politics/steve-huffman-african-americans-coronavirus.html?searchResultPosition=7
+
 **Trump Heads to Dallas for Race Relations Talk, Fundraiser**\
 `President Donald Trump was ready to discuss race relations and policing on Thursday before a friendly audience in Dallas as he weighs executive action on police reform in response to the national outcry over following the death of George Floyd.`\
-https://nytimes.com/aponline/2020/06/11/us/politics/ap-us-trump.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/06/11/us/politics/ap-us-trump.html?searchResultPosition=8
 
 **White Nationalist's Lawyer Wants Out of Rally Violence Case**\
 `A leading white nationalist told a judge on Thursday that his notoriety has made it difficult for him to raise money for his defense against a “financially crippling” lawsuit that names him as an organizer of a rally in Virginia that erupted into violence in 2017.`\
-https://nytimes.com/aponline/2020/06/11/us/ap-us-confederate-monument-protest-lawsuit.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/11/us/ap-us-confederate-monument-protest-lawsuit.html?searchResultPosition=9
 
 **‘Just Plain Love’ Among the Protesters**\
 `Their wedding was supposed to be hush-hush. And then it was enveloped in a Philadelphia Black Lives Matter protest march and went viral.`\
-https://nytimes.com/2020/06/11/fashion/weddings/just-plain-love-among-the-protesters.html?searchResultPosition=5
-
-**Solidarity in a Wedding and a March**\
-`Brad Luna and Adam Ouanes’s first act as a married couple was to applaud Black Lives Matters protesters walking by the church. It was an act returned by the protesters.`\
-https://nytimes.com/2020/06/11/style/solidarity-in-a-wedding-and-a-march.html?searchResultPosition=6
-
-**Where’s Airborne Plastic? Everywhere, Scientists Find.**\
-`There’s “no nook or cranny” on the planet where it doesn’t end up, the lead researcher on a new study said.`\
-https://nytimes.com/2020/06/11/climate/airborne-plastic-pollution.html?searchResultPosition=7
-
-**Researchers in Chile Unearth 74 Million Year Old Mammal Teeth**\
-`Chilean and Argentine researchers have unearthed teeth in far-flung Patagonia belonging to a mammal that lived 74 million years ago, the oldest such remains yet discovered in the South American country, the Chilean Antarctic Institute reported on Thursday.`\
-https://nytimes.com/reuters/2020/06/11/world/americas/11reuters-chile-fossil-discovery.html?searchResultPosition=8
-
-**Instant View: Wall Street Backslides on Economic Gloom, Uptick in Virus Cases**\
-`Wall Street indexes nosedived on Thursday, on track for their worst days since early in the coronavirus pandemic as investors reassessed a stocks resurgence after the Fed issued a gloomy growth forecast and infections showed signs of upswing.  `\
-https://nytimes.com/reuters/2020/06/11/business/11reuters-usa-markets-instantview.html?searchResultPosition=9
-
-**Snap Launches New Shows, Games, Developer Tools in Bid to Grow Audience**\
-`Snap Inc on Thursday announced a slate of new features for its photo messaging app Snapchat, such as new original shows and ways for outside developers to create products that will entice users to spend more time using the app.`\
-https://nytimes.com/reuters/2020/06/11/technology/11reuters-snap-new-features.html?searchResultPosition=10
+https://nytimes.com/2020/06/11/fashion/weddings/just-plain-love-among-the-protesters.html?searchResultPosition=10
 
