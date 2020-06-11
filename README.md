@@ -1,4 +1,4 @@
-**Lawmakers Push for U.S. Chip Investments to Counter China**\
+**Lawmakers Push to Invest Billions in Semiconductor Industry to Counter China**\
 `New legislation aimed at supporting the semiconductor industry is a sign of shifting consensus in Washington, where industrial plans are now in vogue`\
 https://nytimes.com/2020/06/11/business/economy/semiconductors-chips-congress-china.html?searchResultPosition=3
 
