@@ -1,40 +1,40 @@
+**U.S. Soccer Says It Will Allow Protests During Anthem**\
+`The U.S. Soccer Federation on Wednesday said it had repealed its requirement that players stand during the national anthem, saying the policy was wrong and detracted from the Black Lives Matter movement. `\
+https://nytimes.com/reuters/2020/06/10/sports/soccer/10reuters-soccer-usa-protests.html?searchResultPosition=1
+
+**Report: Bullet That Killed Woman Fired From Airman's Rifle**\
+`A bullet taken from the skull of a woman whose body was discovered in northern Arizona was fired from a rifle owned by an Air Force airman charged in her death, authorities said Wednesday.`\
+https://nytimes.com/aponline/2020/06/10/us/ap-us-slain-sunday-school-teacher.html?searchResultPosition=2
+
 **California Assembly Backs Repealing Affirmative Action Ban**\
-`The California Assembly has backed a plan to let voters decide on overturning affirmative action ban `\
-https://nytimes.com/aponline/2020/06/10/us/ap-us-california-affirmative-action-2nd-ld-writethru.html?searchResultPosition=1
+`A push to change California’s Constitution to let public universities and government agencies consider race when making admissions and hiring decisions passed its first test Wednesday as more than two-thirds of the state Assembly voted to put the question on the ballot in November.`\
+https://nytimes.com/aponline/2020/06/10/us/ap-us-california-affirmative-action-2nd-ld-writethru.html?searchResultPosition=3
 
 **The Civil Rights Act of 2020**\
 `Feel-good gestures from politicians and the police shift no power. Real change lies within a system overhaul.`\
-https://nytimes.com/2020/06/10/opinion/police-brutality-protests-legislation.html?searchResultPosition=2
+https://nytimes.com/2020/06/10/opinion/police-brutality-protests-legislation.html?searchResultPosition=4
 
 **Coachella, Stagecoach Canceled This Year Over Virus Concerns**\
 `The Coachella and Stagecoach music festivals have been canceled this year due to coronavirus concerns. `\
-https://nytimes.com/aponline/2020/06/10/us/ap-us-music-coachella-stagecoach.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/06/10/us/ap-us-music-coachella-stagecoach.html?searchResultPosition=5
 
 **Tigers Draft Torkelson as MLB Promises Return to Play**\
 `The Detroit Tigers drafted Arizona State slugger Spencer Torkelson with the first pick of the 2020 MLB draft on Wednesday, the same day the league's commissioner said baseball would return this year despite the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/06/10/sports/baseball/10reuters-baseball-mlb-draft.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/10/sports/baseball/10reuters-baseball-mlb-draft.html?searchResultPosition=6
 
 **Coronavirus Briefing: What Happened Today**\
 `Some countries with fast-spreading outbreaks are opening regardless.`\
-https://nytimes.com/2020/06/10/us/coronavirus-briefing.html?searchResultPosition=5
+https://nytimes.com/2020/06/10/us/coronavirus-briefing.html?searchResultPosition=7
 
 **Factbox: What Changes Are Governments Making in Response to George Floyd Protests?**\
 `Protests over the death of George Floyd while in Minneapolis police custody have prompted government and police officials across the United States to enact or propose changes aimed at showing demonstrators that their concerns about police brutality and racism are being heard.`\
-https://nytimes.com/reuters/2020/06/10/us/10reuters-minneapolis-police-protests-response-factbox.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/06/10/us/10reuters-minneapolis-police-protests-response-factbox.html?searchResultPosition=8
 
 **China Reports 11 New Imported Coronavirus Cases as of End-June 10, vs Three a Day Earlier**\
 `Mainland China reported 11 confirmed and four new asymptomatic COVID-19 cases by the end of June 10, the National Health Commission said on Thursday.`\
-https://nytimes.com/reuters/2020/06/10/world/asia/10reuters-health-coronavirus-china-toll.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/06/10/world/asia/10reuters-health-coronavirus-china-toll.html?searchResultPosition=9
 
 **When It Works to ‘Defund the Police’**\
 `Understand, the plan isn’t to get rid of all cops.`\
-https://nytimes.com/2020/06/10/opinion/defund-police-floyd-protests.html?searchResultPosition=8
-
-**Trump Rejects Renaming Military Bases Named After Confederate Generals**\
-`By dismissing an idea under consideration by the Pentagon, the president positioned himself firmly against the movement to remove racist symbols and combat racism touched off by George Floyd’s death.`\
-https://nytimes.com/2020/06/10/us/politics/trump-rejects-renaming-military-bases.html?searchResultPosition=9
-
-**Corrections: June 11, 2020**\
-`Corrections that appeared in print on Thursday, June 11, 2020.`\
-https://nytimes.com/2020/06/10/pageoneplus/corrections-june-11-2020.html?searchResultPosition=10
+https://nytimes.com/2020/06/10/opinion/defund-police-floyd-protests.html?searchResultPosition=10
 
