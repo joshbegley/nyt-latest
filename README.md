@@ -1,32 +1,32 @@
-**Northern Irish Police Recover Murder Weapon in Lyra McKee Killing**\
-`Northern Irish police said on Thursday that they had recovered the gun used to kill journalist Lyra McKee in Londonderry last year and hoped forensic evidence would help them charge the gunman whose identity they say they know.`\
-https://nytimes.com/reuters/2020/06/11/world/europe/11reuters-nireland-crime-mckee.html?searchResultPosition=3
+**Where’s Airborne Plastic? Everywhere, Scientists Find.**\
+`There’s “no nook or cranny” on the planet where it doesn’t end up, the lead researcher on a new study said.`\
+https://nytimes.com/2020/06/11/climate/airborne-plastic-pollution.html?searchResultPosition=3
 
-**British PM, Top EU Officials to Hold Talks on June 15**\
-`British Prime Minister Boris Johnson, the chairman of European Union leaders Charles Michel and the head of the European Commission Ursula von der Leyen will hold talks on June 15 to revive stalled talks on a future EU-UK relationship.`\
-https://nytimes.com/reuters/2020/06/11/world/europe/11reuters-britain-eu-talks.html?searchResultPosition=4
+**Researchers in Chile Unearth 74 Million Year Old Mammal Teeth**\
+`Chilean and Argentine researchers have unearthed teeth in far-flung Patagonia belonging to a mammal that lived 74 million years ago, the oldest such remains yet discovered in the South American country, the Chilean Antarctic Institute reported on Thursday.`\
+https://nytimes.com/reuters/2020/06/11/world/americas/11reuters-chile-fossil-discovery.html?searchResultPosition=4
 
-**'Health, Then Production': Unions Ramp Up Pressure on Chile Copper Miner Codelco**\
-`Unionized mine workers in Chile, the world´s top copper producer, warned on Thursday that health should take precedence over output, one day after state-run Codelco´s unions threatened a walk-out at some of its operations.`\
-https://nytimes.com/reuters/2020/06/11/world/americas/11reuters-health-coronavirus-codelco.html?searchResultPosition=5
+**Instant View: Wall Street Backslides on Economic Gloom, Uptick in Virus Cases**\
+`Wall Street indexes nosedived on Thursday, on track for their worst days since early in the coronavirus pandemic as investors reassessed a stocks resurgence after the Fed issued a gloomy growth forecast and infections showed signs of upswing.  `\
+https://nytimes.com/reuters/2020/06/11/business/11reuters-usa-markets-instantview.html?searchResultPosition=5
 
-**Leclerc Absence Leaves Russell as F1 Virtual GP 'Champion'**\
-`Williams driver George Russell has added an esports title to his resume after Ferrari rival Charles Leclerc withdrew from Sunday's final virtual Formula One grand prix to focus on the simulated 24 Hours of Le Mans.`\
-https://nytimes.com/reuters/2020/06/11/sports/autoracing/11reuters-health-coronavirus-f1-esports.html?searchResultPosition=6
+**Snap Launches New Shows, Games, Developer Tools in Bid to Grow Audience**\
+`Snap Inc on Thursday announced a slate of new features for its photo messaging app Snapchat, such as new original shows and ways for outside developers to create products that will entice users to spend more time using the app.`\
+https://nytimes.com/reuters/2020/06/11/technology/11reuters-snap-new-features.html?searchResultPosition=6
 
-**Comcast, Media Mogul Byron Allen Reach Carriage Deal**\
-`Comcast Corp said on Thursday it reached a content carriage deal with comedian-turned media mogul Byron Allen, who withdrew a lawsuit about racial bias against channels owned by African Americans.`\
-https://nytimes.com/reuters/2020/06/11/business/11reuters-comcast-entertainment-studios-networks.html?searchResultPosition=7
+**Goldman Sachs Is Said to Try to Avoid Pleading Guilty in 1MDB Scandal**\
+`The bank has asked the U.S. to review demands that any settlement include a guilty plea to a felony charge, according to people briefed on the matter.`\
+https://nytimes.com/2020/06/11/business/goldman-sachs-1mdb-malaysia.html?searchResultPosition=7
 
-**Judge: Reopen Puerto Rico School Cafeterias or Face Arrest**\
-`A judge on Thursday gave Puerto Rico’s education secretary 24 hours to open all public school cafeterias in the U.S. territory or face arrest as impoverished students struggle to obtain free meals amid the pandemic.`\
-https://nytimes.com/aponline/2020/06/11/world/americas/ap-cb-puerto-rico-missing-meals.html?searchResultPosition=8
+**Senate Panel Advances Mississippi Appeals Court Nominee**\
+`The Senate Judiciary Committee on Thursday advanced a federal appeals court nominee from Mississippi, despite Democratic objections over derisive comments he made about former President Barack Obama and his signature health care legislation.`\
+https://nytimes.com/aponline/2020/06/11/us/politics/ap-us-trump-judicial-nominee.html?searchResultPosition=8
 
-**6 Things to Do at Home This Weekend**\
-`Our culture writers offer suggestions for what to watch, read or listen to while we’re housebound.`\
-https://nytimes.com/2020/06/11/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=9
+**G.O.P. Platform, Rolled Over From 2016, Condemns the ‘Current President’**\
+`The party’s 2020 platform includes more than three dozen unflattering references to those in power at the White House, after the Republican National Committee chose not to change its language from four years ago.`\
+https://nytimes.com/2020/06/11/us/politics/republican-platform.html?searchResultPosition=9
 
-**Not Set in Stone: Statues Fall as Europe Reexamines Its Past**\
-`From Confederate monuments in the United States to statues of British slave traders, memorials erected in honor of historical figures have become a focus of protests around the world. `\
-https://nytimes.com/aponline/2020/06/11/world/europe/ap-america-protests-contested-statues.html?searchResultPosition=10
+**U.S. CDC Reports 1,994,283 Coronavirus Cases**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Thursday reported 1,994,283 cases of the new coronavirus, an increase of 20,486 cases from its previous count, and said that the number of deaths had risen by 834 to 112,967.`\
+https://nytimes.com/reuters/2020/06/11/us/11reuters-health-coronavirus-usa-cdc.html?searchResultPosition=10
 
