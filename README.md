@@ -1,32 +1,32 @@
+**Amazon May Face EU Antitrust Charges Over Merchant Data in Coming Weeks: Source**\
+`Amazon may face EU antitrust charges in the coming weeks over its use of data from merchants with whom it competes on its platform, a person familiar with the matter said on Thursday, putting it at risk of a hefty fine.`\
+https://nytimes.com/reuters/2020/06/11/business/11reuters-eu-amazon-com-antitrust.html?searchResultPosition=3
+
+**Viewing Party! Let’s All Watch ‘Nine to Five’!**\
+`Pour yourself a cup of ambition and watch Dolly Parton, Jane Fonda and Lily Tomlin ignite a comic revolution against their boss, a “sexist, egotistical, lying, hypocritical bigot.”`\
+https://nytimes.com/2020/06/11/movies/nine-to-five-dolly-parton.html?searchResultPosition=4
+
+**Eva Konrad Hawkins, Marine Scientist Who Fled Hungary, Dies at 90**\
+`Dr. Konrad Hawkins lived through the Holocaust, Communism and the Hungarian Revolution of 1956. She died of Covid-19.`\
+https://nytimes.com/2020/06/11/obituaries/eva-konrad-hawkins-dead-coronavirus.html?searchResultPosition=5
+
+**Senate Panel Authorizes Subpoenas in New Russia Probe**\
+`The Senate Judiciary Committee swiftly moved forward on Thursday with its investigation of the Justice Department’s Russia probe, voting to allow dozens of subpoenas over Democratic objections that the move was an effort to help President Donald Trump’s reelection. `\
+https://nytimes.com/aponline/2020/06/11/us/politics/ap-us-trump-russia-probe-congress.html?searchResultPosition=6
+
+**Carl Icahn to Raze Both Towers of Ex-Trump Casino. But When?**\
+`Billionaire investor Carl Icahn has filed plans to demolish a former Atlantic City casino built by now-President Donald Trump, but Icahn and the city have not yet agreed on when the towers will come down.`\
+https://nytimes.com/aponline/2020/06/11/us/ap-us-trump-plaza-demolition.html?searchResultPosition=7
+
+**Graves Dug in Rio Beach to Protest Handling of COVID-19 Pandemic**\
+`Brazilians critical of their government's ambiguous response to a surging coronavirus pandemic dug 100 graves and stuck black crosses in the sand of Rio's Copacabana beach on Thursday in a tribute to the nearly 40,000 people who have died so far.`\
+https://nytimes.com/reuters/2020/06/11/world/americas/11reuters-health-coronavirus-brazil-protest.html?searchResultPosition=8
+
 **Georgia Democrat Jon Ossoff Wins Nomination to Run for U.S. Senate After Chaotic Vote**\
 `Georgia Democrat Jon Ossoff has clinched his party's nomination for a U.S. Senate seat representing the state, three years after narrowly losing a special House election for a district that had been a Republican stronghold, election results showed.`\
-https://nytimes.com/reuters/2020/06/11/us/politics/11reuters-usa-election-ossoff.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/11/us/politics/11reuters-usa-election-ossoff.html?searchResultPosition=9
 
 **European Shares Run Red on Fed's Reality Check, Second-Wave Virus Fears**\
 `European shares suffered their worst day in more than 11 weeks on Thursday after a sobering economic outlook from the U.S. Federal Reserve and worries of a second wave of COVID-19 cases.`\
-https://nytimes.com/reuters/2020/06/11/world/europe/11reuters-europe-stocks.html?searchResultPosition=4
-
-**Apple Will Increase Spending With Black-Owned Suppliers as Part of $100 Million Racial Justice Effort**\
-`Apple Inc Chief Executive Tim Cook said on Thursday the iPhone maker will increase spending with black-owned partners in its supply chain and seek to increase minority representation among the firms it does business with.`\
-https://nytimes.com/reuters/2020/06/11/business/11reuters-minneapolis-police-apple.html?searchResultPosition=5
-
-**Richer EU Countries Should Pay More Into EU Budget, Says Polish PM**\
-`Wealthier EU countries should pay more into the bloc's EU budget in the wake of the coronavirus economic recovery, Poland's Prime Minister Mateusz Morawiecki said on Thursday in the Czech Republic.`\
-https://nytimes.com/reuters/2020/06/11/world/europe/11reuters-eu-visegrad-poland.html?searchResultPosition=6
-
-**U.S. Biofuel Group in Talks With Biden, Trump Campaigns to Boost Industry**\
-`A leading U.S. biofuel trade group said on Thursday it had started conversations with the campaigns of both Democratic presidential candidate Joe Biden and incumbent Donald Trump to discuss potential policy fixes for the ailing industry.`\
-https://nytimes.com/reuters/2020/06/11/us/politics/11reuters-usa-biofuels-election.html?searchResultPosition=7
-
-**‘The King of Staten Island’ Review: Pete Davidson Gets (Even More) Personal**\
-`Judd Apatow’s film should be a meatier Oedipal comedy, but it’s unwilling to explore the tragedy just below its surface.`\
-https://nytimes.com/2020/06/11/movies/the-king-of-staten-island-review.html?searchResultPosition=8
-
-**U.S. Lawmakers Back New Helicopter Safety Equipment After Kobe Bryant Crash**\
-`A group of Democratic U.S. lawmakers on Thursday introduced legislation that would require new safety equipment on helicopters that carry six or more passengers in the wake of a crash that killed NBA star Kobe Bryant in January. `\
-https://nytimes.com/reuters/2020/06/11/us/11reuters-usa-helicopters-safety.html?searchResultPosition=9
-
-**Snapchat Expands Deals With N.F.L., Disney and Others**\
-`The multiyear pacts, which also included the N.B.A., NBCUniversal and ViacomCBS, will supply the platform with more short-form original and unscripted shows.`\
-https://nytimes.com/2020/06/11/business/media/snapchat-nfl-disney-viacomcbs.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/11/world/europe/11reuters-europe-stocks.html?searchResultPosition=10
 
