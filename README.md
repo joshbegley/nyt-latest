@@ -1,32 +1,32 @@
+**North Korea Suggests U.N. Chief Pretending to Act Like a Drunk**\
+`North Korea suggested on Thursday that United Nations Secretary-General Antonio Guterres might be pretending to act like a drunk as the country slammed comments by his spokesman on Pyongyang's decision to sever hotlines with South Korea.`\
+https://nytimes.com/reuters/2020/06/11/world/asia/11reuters-northkorea-southkorea-un.html?searchResultPosition=3
+
+**Amid Pandemic, Scores of US Catholic Schools Face Closure**\
+`Catholic schools have faced tough times for years, but the pace of closures is accelerating dramatically amid economic fallout from the coronavirus pandemic, sparking heartbreak and anger in scores of affected communities.`\
+https://nytimes.com/aponline/2020/06/11/us/ap-religion-catholic-school-closures-3rd-ld-writethru.html?searchResultPosition=4
+
+**UK Abandons Plan to Introduce Full Border Checks With EU on January 1: FT**\
+`The United Kingdom has abandoned its plan to introduce full border checks with the European Union on Jan. 1 as British ministers face pressure from businesses to not increase the chaos already in place from the coronavirus outbreak, the Financial Times newspaper reported. `\
+https://nytimes.com/reuters/2020/06/11/world/europe/11reuters-britain-eu-border.html?searchResultPosition=5
+
+**Watchdog: Agency Misspent Money Meant for Migrant Care**\
+`U.S. Customs and Border Protection violated the law when it misspent money appropriated for migrant care on items like all-terrain vehicles, boats and its police dog program, according to a federal investigation. `\
+https://nytimes.com/aponline/2020/06/11/us/ap-us-immigration-misspent-money-.html?searchResultPosition=6
+
+**EMS Workers Sue NYC Over Punishment for Media Interviews**\
+`Four New York City ambulance workers who gave media interviews about their work on the front lines of the coronavirus pandemic sued the city on Thursday, saying they were punished for speaking out.`\
+https://nytimes.com/aponline/2020/06/11/us/ap-us-virus-outbreak-ems-workers-punished.html?searchResultPosition=7
+
 **Chicago Investigating Officers 'Lounging' During Unrest**\
 `More than a dozen Chicago police officers and supervisors were captured on video “lounging” inside a congressional campaign office last month as people vandalized and stole from nearby businesses while protests and unrest spread across the city, Mayor Lori Lightfoot said Thursday. `\
-https://nytimes.com/aponline/2020/06/11/us/ap-us-america-protests-chicago-police-.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/06/11/us/ap-us-america-protests-chicago-police-.html?searchResultPosition=8
 
 **Washington State Taps National Guard for Jobless Aid Backlog**\
 `The state of Washington is calling in the National Guard to help process unemployment benefit claims as officials grapple with a backlog caused in part by a fraud ring that stole more than half a billion dollars in aid, officials said Thursday.`\
-https://nytimes.com/aponline/2020/06/11/business/bc-us-national-guard-unemployment-benefits.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/11/business/bc-us-national-guard-unemployment-benefits.html?searchResultPosition=9
 
 **Quarantined Surfers Return to Peru's Famous Waves**\
 `Peruvian surfers are returning to their nation’s world-famous waves after three months spent in lockdown due to the coronavirus.`\
-https://nytimes.com/aponline/2020/06/11/sports/ap-lt-virus-outbreak-peru-surfers.html?searchResultPosition=5
-
-**Trooper Who Shot Man Should Be Charged, Victim's Mom Says**\
-`A New York man fatally shot by a New Jersey state trooper last month during a traffic stop was treated worse than a dog, and the officer should be charged with murder, the man's mother said Thursday in an interview. `\
-https://nytimes.com/aponline/2020/06/11/us/ap-us-shooting-death-police-new-jersey.html?searchResultPosition=6
-
-**Margaret Holloway, the ‘Shakespeare Lady’ of New Haven, Dies at 68**\
-`A once-promising director and actor who struggled with mental illness and drug addiction, she performed for years on the city’s streets. She died of Covid-19.`\
-https://nytimes.com/2020/06/11/nyregion/margaret-holloway-the-shakespeare-lady-of-new-haven-dies-at-68.html?searchResultPosition=7
-
-**U.N. Decries Reported Mass Graves Found in Libya Town After LNA Retreat**\
-`The United Nations mission in Libya said on Thursday it was horrified by the reported discovery of mass graves in the town of Tarhouna after the internationally recognised government recaptured it from eastern-based forces. `\
-https://nytimes.com/reuters/2020/06/11/world/africa/11reuters-libya-security.html?searchResultPosition=8
-
-**USA Cycling Announces Long Team for Delayed Tokyo Olympics**\
-`Officials from USA Cycling plan to take advantage of the yearlong delay of the Tokyo Olympics caused by the coronavirus pandemic, and a big step came with the announcement Thursday of a preliminary roster in three of its disciplines.`\
-https://nytimes.com/aponline/2020/06/11/sports/olympics/ap-oly-cyc-us-team.html?searchResultPosition=9
-
-**Flag Ban Fallout: Now Comes the Tricky Part for NASCAR**\
-`NASCAR's decision to ban the Confederate flag from its races and venues grabbed headlines and stars like actress Reese Witherspoon and New Orleans Saints running back Alvin Kamara were quick to praise the stock car series for ridding itself of a symbol long associated with slavery and racism.`\
-https://nytimes.com/aponline/2020/06/11/sports/ap-car-nascar-confederate-flag.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/11/sports/ap-lt-virus-outbreak-peru-surfers.html?searchResultPosition=10
 
