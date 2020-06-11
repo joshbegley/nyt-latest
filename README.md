@@ -1,40 +1,40 @@
-**British Airways to Put Artworks on Sale in COVID-19 Cash Crunch**\
-`British Airways will sell at least 10 works of art from its extensive collection, a source said, to try to raise millions of pounds to boost its cash reserves as it struggles through the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/06/11/business/11reuters-health-coronavirus-british-airways.html?searchResultPosition=1
+**Renault's Senard Says Relations With Nissan Much Improved**\
+`Renault's partnership with Japan's Nissan has entered an "incredibly positive" phase after episodes of strained relations in recent years, the French carmaker's chairman Jean-Dominique Senard said on Thursday. `\
+https://nytimes.com/reuters/2020/06/11/business/11reuters-renault-strategy-nissan.html?searchResultPosition=1
 
-**Police: 7 Arrested for Vandalizing Columbus Statue in Miami**\
-`Seven people have been arrested for vandalizing statues of Christopher Columbus and Juan Ponce de León in Miami, the city's police said.`\
-https://nytimes.com/aponline/2020/06/11/us/ap-us-columbus-statue-arrests.html?searchResultPosition=2
+**Europe Resurfaces to Find Odd Mix of the Familiar and the Alien**\
+`A Times photojournalist and correspondent spent two weeks driving through Europe as it edged out of lockdown. Here is what they saw in six countries.`\
+https://nytimes.com/2020/06/11/world/europe/coronavirus-reopening.html?searchResultPosition=2
 
-**Yemen's Qat Markets Still Draw Crowds Despite Coronavirus Threat**\
-`Yemeni qat seller Hamdan Hussein's customers still come daily to the crowded market to buy the addictive green stimulant, despite doctors' concerns that chewing in groups and spitting it could spread the new coronavirus.`\
-https://nytimes.com/reuters/2020/06/11/world/middleeast/11reuters-health-coronavirus-yemen-qat.html?searchResultPosition=3
+**One Bar. Twelve Weeks. Seventeen Lives in Lockdown.**\
+`Following an Oakland tavern and its staff — from the tattooed bartender to the undocumented cleaner — as they weather the economic and emotional fallout of the coronavirus.`\
+https://nytimes.com/2020/06/11/business/coronavirus-california-lockdown-small-business.html?searchResultPosition=3
 
-**Qatar 2022 World Cup Stadium Workers Went Months Without Pay: Amnesty**\
-`A Qatari company helping build a 2022 World Cup stadium has been banned from the event's projects after its labourers went unpaid for months, organisers said on Thursday, in a case Amnesty International said showed inadequate worker welfare standards.`\
-https://nytimes.com/reuters/2020/06/11/sports/soccer/11reuters-qatar-fifa-amnesty.html?searchResultPosition=4
+**The Longest Lockdown**\
+`Life in India-controlled Kashmir has been punctuated by military curfews and general strikes for three decades.`\
+https://nytimes.com/2020/06/11/opinion/kashmir-lockdown-india.html?searchResultPosition=4
 
-**Unilever to Place HQ in UK, Ending Anglo-Dutch Structure**\
-`Consumer goods giant Unilever says it will end its Anglo-Dutch corporate structure and be based in London, backing away from a proposal two years ago to move to the Netherlands.`\
-https://nytimes.com/aponline/2020/06/11/business/ap-eu-britain-unilever.html?searchResultPosition=5
+**Masks, No Kissing and ‘a Little Kinky’: Dating and Sex in a Pandemic**\
+`New York City public health officials have frank new advice for people who are looking for companionship and physical intimacy during the pandemic.`\
+https://nytimes.com/2020/06/11/well/live/coronavirus-sex-dating-masks.html?searchResultPosition=5
 
-**George Floyd's Brother Decries 'a Modern-Day Lynching' in Testimony to Congress**\
-`George Floyd's younger brother took his grief to the U.S. Congress on Wednesday with an impassioned plea that lawmakers not let his brother's death be in vain, lamenting that he "didn't deserve to die over $20" in what he called a lynching.`\
-https://nytimes.com/reuters/2020/06/11/us/politics/11reuters-minneapolis-police-protests.html?searchResultPosition=6
+**Police the Public, or Protect It? For a U.S. in Crisis, Hard Lessons From Other Countries**\
+`Those who want to remake a police model that has set off unrest and despair would do well to look at the experiences of Asia, Africa and Europe.`\
+https://nytimes.com/2020/06/11/world/police-brutality-protests.html?searchResultPosition=6
 
-**U.S. Podcast Platform Pockets Casts Says Apple Removed App From China Store**\
-`New York-based podcasting platform Pocket Casts said its app had been taken down from Apple Inc's app store in China.`\
-https://nytimes.com/reuters/2020/06/11/technology/11reuters-apple-china-pocket-casts.html?searchResultPosition=7
+**Hotels Transformed New York’s Social Life. Now What?**\
+`An industry revitalized itself with just the kind of large gathering spaces that now seem like breeding grounds for disease.`\
+https://nytimes.com/2020/06/11/style/hotels.html?searchResultPosition=7
 
-**Stock Markets Fall Sharply as U.S. Jobless Data Looms: Live Updates**\
-`The latest on stock market and business news during the coronavirus outbreak.`\
-https://nytimes.com/2020/06/11/business/jobless-claims-stock-market-coronavirus.html?searchResultPosition=8
+**Why 2 Crises May Finally Force N.Y.C. Schools to Integrate**\
+`The coronavirus has led to the collapse of New York’s usual school admissions system, and protests against racism have highlighted entrenched segregation.`\
+https://nytimes.com/2020/06/11/nyregion/coronavirus-nyc-schools-admissions.html?searchResultPosition=8
 
-**Unilever's UK Move Is Vote of Confidence: British Minister**\
-`Unilever's decision to base the company solely in Britain and not in the Netherlands represented a vote of confidence in the country, said British business minister Alok Sharma. `\
-https://nytimes.com/reuters/2020/06/11/business/11reuters-unilever-restructure-britain.html?searchResultPosition=9
+**As Energy Prices Tumble, Developing Countries Trim Subsidies**\
+`Trying to cut spending as the pandemic reduces tax revenue, governments are finding it easier to lift restraints on what consumers pay for fuel.`\
+https://nytimes.com/2020/06/11/business/energy-environment/countries-slash-energy-subsidies-coronavirus.html?searchResultPosition=9
 
-**China, U.S. Should Resume Timely Communication on Trade: China Adviser**\
-`China and the United States should resume timely communication on trade and other issues, a former senior Chinese official said on Thursday, who stressed that the world's two largest economies are too intertwined to be decoupled. `\
-https://nytimes.com/reuters/2020/06/11/business/11reuters-usa-trade-china.html?searchResultPosition=10
+**Worried About Social Distancing When Traveling? Join the Crowd and Rent an R.V.**\
+`Recreational vehicles were gaining in popularity before the pandemic. Now, with travel restrictions loosening, a surge of travelers is drawn to the relative solitude that R.V.s offer.`\
+https://nytimes.com/2020/06/11/travel/recreational-vehicles-RV-pandemic.html?searchResultPosition=10
 
