@@ -18,7 +18,7 @@ https://nytimes.com/2020/06/11/opinion/letters/white-liberals-racial-equality.ht
 `U.S. household wealth fell 5.6% to $110.8 trillion in the first quarter of this year as U.S. stock markets were hammered by the escalating novel coronavirus epidemic, which has since pushed the United States into recession.`\
 https://nytimes.com/reuters/2020/06/11/us/11reuters-usa-economy-wealth.html?searchResultPosition=7
 
-**Burundi Turns to Court for Guidance on Replacing President**\
+**Burundi Turns to Court for Guidance After President's Death**\
 `Its president dead, Burundi on Thursday turned to the constitutional court to help fill the power vacuum ahead of the expected August swearing-in of the president-elect chosen in May’s election.`\
 https://nytimes.com/aponline/2020/06/11/world/africa/ap-af-burundi-president.html?searchResultPosition=8
 
