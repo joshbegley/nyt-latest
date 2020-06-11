@@ -1,4 +1,4 @@
-**China Auto Sales Up 15% in May, Second Straight Rise After Almost Two-Year Slump**\
+**China Auto Sales Up for Second Straight Month After Almost Two-Year Slump**\
 `China's auto sales in May rose 14.5% from the same month a year earlier, industry data showed on Thursday, the second consecutive month of increase as the world's biggest vehicle market recovers from lows hit during coronavirus lockdowns.`\
 https://nytimes.com/reuters/2020/06/11/business/11reuters-china-autos.html?searchResultPosition=1
 
