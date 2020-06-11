@@ -2,7 +2,7 @@
 `The Michigan Court of Appeals ruled Thursday that legislators did not violate the state constitution by allowing construction of an oil pipeline tunnel beneath a channel linking two of the Great Lakes, clearing the way for the project to proceed unless the state appeals again.`\
 https://nytimes.com/aponline/2020/06/11/business/ap-us-michigan-pipeline.html?searchResultPosition=3
 
-**For Black Veterans, Confederate Base Names Viewed as a Painful Stain**\
+**For Black Veterans, Confederate Base Names Long Viewed as a Painful Stain**\
 `President Trump has vowed to block efforts to remove Confederate names from military bases.`\
 https://nytimes.com/2020/06/11/us/politics/military-bases-confederate-names-trump.html?searchResultPosition=4
 
