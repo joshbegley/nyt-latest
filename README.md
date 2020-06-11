@@ -11,7 +11,7 @@ https://nytimes.com/2020/06/10/business/conde-nast-matt-duckor.html?searchResult
 https://nytimes.com/reuters/2020/06/10/business/10reuters-walmart-policy.html?searchResultPosition=3
 
 **Truex Ends 2020 Winless Skid With Victory at Martinsville**\
-`Martin Truex Jr. cruised down the stretch and won his first NASCAR Cup race of the season on Wednesday night in the first race under the lights at Martinsville Speedway.`\
+`Martin Truex Jr. used a trip to NASCAR's shortest track to end a lengthy losing streak on the day the stock car series at long last banned the Confederate flag.`\
 https://nytimes.com/aponline/2020/06/10/sports/ap-car-nascar-martinsville.html?searchResultPosition=4
 
 **Cuba to Test Visitors for Coronavirus, Limit Tourism to Keys**\
