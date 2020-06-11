@@ -1,32 +1,32 @@
+**Canadian Cryptocurrency Firm Collapsed Due to Ponzi Scheme by Late Founder, Regulator Says**\
+`Canadian cryptocurrency trading platform Quadriga CX collapsed due to a Ponzi scheme operated by founder Gerald Cotten, who died suddenly in December 2018, the country's biggest securities regulator said on Thursday.`\
+https://nytimes.com/reuters/2020/06/11/technology/11reuters-crypto-currencies-quadriga.html?searchResultPosition=3
+
+**Defying Trump, Senate Panel Moves to Strip Military Bases of Confederate Names**\
+`Inclusion of the measure in a sweeping annual defense bill, which Republicans supported, raises the prospect of an election-year Senate vote on whether to honor Confederate figures.`\
+https://nytimes.com/2020/06/11/us/politics/senate-confederate-names-military-bases.html?searchResultPosition=4
+
+**Are You an Anarchist? Lawyers Say New York Police Grilled Protesters' Politics**\
+`"Are you with anarchist groups?" was one typical question. "Are you in antifa?" was another.`\
+https://nytimes.com/reuters/2020/06/11/us/11reuters-minneapolis-police-new-york.html?searchResultPosition=5
+
+**Twitter Suspends Chinese Operation Pushing Pro-Beijing Coronavirus Messages**\
+`Twitter on Thursday said it was removing hundreds of thousands of accounts tied to a Beijing-backed influence operation that deceptively spread messages favorable to the Chinese government, including about the coronavirus.`\
+https://nytimes.com/reuters/2020/06/11/technology/11reuters-china-twitter-disinformation.html?searchResultPosition=6
+
+**Senator Asks if Hygiene Is Reason 'Colored' People Get Virus**\
+`A Republican lawmaker questioned on the Senate floor if “the colored population” is contracting coronavirus at disproportionate rates because they do not wash their hands “as well as other groups.”`\
+https://nytimes.com/aponline/2020/06/11/us/ap-us-america-protests-senator-race-comments.html?searchResultPosition=7
+
 **New York Fed Tweaks Repo Operations as Market Functioning Improves**\
 `The New York Federal Reserve is slightly raising the price of its operations in the market for repurchase agreements, or repo, after seeing "substantial improvements" in market conditions, the bank announced on Thursday.  `\
-https://nytimes.com/reuters/2020/06/11/us/11reuters-usa-fed-repo.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/11/us/11reuters-usa-fed-repo.html?searchResultPosition=8
 
 **African Americans Point to Racial Biases in Economics**\
 `The field of economics is facing an upheaval, with African American scholars decrying bias in the profession and presenting evidence that leading journals have failed to publish sufficient research that documents racial inequalities.`\
-https://nytimes.com/aponline/2020/06/11/business/bc-us-america-protests-economists-racial-bias.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/11/business/bc-us-america-protests-economists-racial-bias.html?searchResultPosition=9
 
 **How Major US Stock Indexes Fared Thursday**\
 `Stocks closed with broad losses on Wall Street Thursday as coronavirus cases in the U.S. increased again, deflating recent optimism that the economy could recover quickly from its worst crisis in decades.`\
-https://nytimes.com/aponline/2020/06/11/business/ap-financial-markets-box.html?searchResultPosition=5
-
-**Minneapolis Police Officers Condemn Officer Charged in George Floyd's Death**\
-`More than a dozen Minneapolis police officers on Thursday condemned the former policeman charged with killing George Floyd in an open letter and said they were prepared to embrace "change, reform and rebuilding." `\
-https://nytimes.com/reuters/2020/06/11/us/11reuters-minneapolis-protests-police.html?searchResultPosition=6
-
-**LATAM Airlines Bondholders in Talks to Supply Up to $1.5 Billion Loan, Sources Say**\
-`A group of bondholders of LATAM Airlines Group SA are in talks to supply up to $1.5 billion in a debtor-in-possession loan within the Chapter 11 proceeding in the United States, two people with knowledge of the matter said on Thursday.`\
-https://nytimes.com/reuters/2020/06/11/business/11reuters-latam-airlines-bankruptcy-dip.html?searchResultPosition=7
-
-**Hands Off! Halls of Fame Adapt to Coronavirus Concerns**\
-`As part of a $22 million, court-to-dome renovation, the Naismith Memorial Basketball Hall of Fame replaced the static plaques honoring inductees with touch screens that display videos and career highlights.`\
-https://nytimes.com/aponline/2020/06/11/sports/ap-us-virus-outbreak-stadiums-halls-of-fame.html?searchResultPosition=8
-
-**U.S. Is 'Trouble Maker' in China-Canada Relationship, Chinese Envoy to Canada Says**\
-`The United States is using the case of a senior Chinese telecoms executive who was arrested in Vancouver on a U.S. warrant 18 months ago to create friction between China and Canada, China's envoy to Canada said on Thursday.`\
-https://nytimes.com/reuters/2020/06/11/technology/11reuters-usa-huawei-tech-canada.html?searchResultPosition=9
-
-**2nd COVID-19 Case Tied to Missouri Memorial Weekend Parties**\
-`Health officials in suburban Kansas City have linked a new coronavirus case to Memorial Day weekend parties at the Lake of the Ozarks.`\
-https://nytimes.com/aponline/2020/06/11/us/ap-us-virus-outbreak-missouri-lake-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/11/business/ap-financial-markets-box.html?searchResultPosition=10
 
