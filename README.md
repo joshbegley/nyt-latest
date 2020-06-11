@@ -34,7 +34,7 @@ https://nytimes.com/2020/06/11/nyregion/coronavirus-nyc-schools-admissions.html?
 `Trying to cut spending as the pandemic reduces tax revenue, governments are finding it easier to lift restraints on what consumers pay for fuel.`\
 https://nytimes.com/2020/06/11/business/energy-environment/countries-slash-energy-subsidies-coronavirus.html?searchResultPosition=9
 
-**Worried About Social Distancing When Traveling? Join the Crowd and Rent an R.V.**\
-`Recreational vehicles were gaining in popularity before the pandemic. Now, with travel restrictions loosening, a surge of travelers is drawn to the relative solitude that R.V.s offer.`\
-https://nytimes.com/2020/06/11/travel/recreational-vehicles-RV-pandemic.html?searchResultPosition=10
+**After Tragedy, Making a Place to Gather for Support and Solidarity**\
+`The memorial to George Floyd near Cup Foods in Minneapolis has become a place for the community to reflect.`\
+https://nytimes.com/2020/06/11/us/george-floyd-memorial-minneapolis.html?searchResultPosition=10
 
