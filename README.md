@@ -1,32 +1,32 @@
+**Senate Dems Urge White House to Reinstate Pandemic Unit**\
+`Senate Democrats urged the Trump administration on Thursday to reinstate the White House pandemic unit as a separate office, saying that dissolving it in 2018 slowed the U.S. response to the coronavirus outbreak, which has killed more than 110,000 in the United States. `\
+https://nytimes.com/aponline/2020/06/11/us/politics/ap-us-virus-outbreak-pandemic-office.html?searchResultPosition=3
+
+**VIRUS DIARY: The Pandemic Nudges Him Into the Woods, Sort Of**\
+`For someone who grew up on the sandy beaches and the urban jungle that is coastal South Florida, camping — real camping, as I imagined it — was the stuff you’d see in movies: friends gathered around a fire somewhere in the woods, eating marshmallows and telling ghost stories or listening for bears.`\
+https://nytimes.com/aponline/2020/06/11/us/ap-us-virus-outbreak-diary-finally-camping.html?searchResultPosition=4
+
+**France's 5G Spectrum Auction Planned for End September: Watchdog**\
+`France plans to hold its much-awaited 5G spectrum auction at the end of September after a delay due to the coronavirus outbreak, the country's telecoms watchdog Arcep said on Thursday.  `\
+https://nytimes.com/reuters/2020/06/11/technology/11reuters-france-telecoms-5g.html?searchResultPosition=5
+
+**NHL: Training Camps Can Open on July 10, League Says**\
+`Formal training camps for the 24 National Hockey League (NHL) teams that could return to action later this summer can open on July 10 if it is deemed safe to do so, the NHL and its players' union said on Thursday.`\
+https://nytimes.com/reuters/2020/06/11/sports/hockey/11reuters-health-coronavirus-icehockey-nhl.html?searchResultPosition=6
+
+**Signal Downloads Are Way Up Since the Protests Began**\
+`Organizers and demonstrators say they feel safer communicating with end-to-end encryption.`\
+https://nytimes.com/2020/06/11/style/signal-messaging-app-encryption-protests.html?searchResultPosition=7
+
+**White House's Kudlow Praises Fed, Discusses Possible Stimulus as Stock Markets Sink**\
+`White House economic adviser Larry Kudlow on Thursday sought to reassure stock markets sinking under concerns about a resurgence in the coronavirus pandemic, praising the Federal Reserve for planning to keep interest rates at zero for two years and saying there are constant negotiations about more economic stimulus.`\
+https://nytimes.com/reuters/2020/06/11/us/11reuters-health-coronavirus-usa-kudlow.html?searchResultPosition=8
+
+**Promoter Behind Fury-Joshua Deal Provokes Outrage in Ireland**\
+`The boxing promoter helping to arrange the all-British heavyweight fight between Tyson Fury and Anthony Joshua is the subject of dialogue between authorities in Ireland and the United Arab Emirates because of his links to organized crime.`\
+https://nytimes.com/aponline/2020/06/11/sports/ap-box-joshua-fury-promoter.html?searchResultPosition=9
+
 **‘Artemis Fowl’ Review: Fowl, Not Fair**\
 `Kenneth Branagh’s film has no reason to exist, other than to spawn sequels.`\
-https://nytimes.com/2020/06/11/movies/artemis-fowl-review.html?searchResultPosition=3
-
-**NHL Camps to Open July 10 if League, Players Agree to Resume**\
-`The NHL and NHL Players' Association gave the go-ahead Thursday for teams to open training camp on July 10 in the next step forward toward completing the pandemic-delayed season.`\
-https://nytimes.com/aponline/2020/06/11/sports/hockey/ap-hkn-virus-outbreak-nhl.html?searchResultPosition=4
-
-**Commissioner Gives Middle Fingers to Mayor in Online Meeting**\
-`A commissioner of a South Florida town displayed two middle fingers during an online meeting after the mayor muted her during a contentious discussion about a proposed anti-discrimination resolution.`\
-https://nytimes.com/aponline/2020/06/11/us/ap-us-commissioner-middle-finger-zoom.html?searchResultPosition=5
-
-**Ryanair Rejects UK Guidance for Passengers to Check in All Luggage**\
-`Ryanair on Thursday rejected new British government guidance for passengers to check in all luggage including hand bags, saying it would instead recommend that passengers minimise checked-in luggage.`\
-https://nytimes.com/reuters/2020/06/11/business/11reuters-health-coronavirus-britain-ryanair.html?searchResultPosition=6
-
-**Faith Ringgold Will Keep Fighting Back**\
-`After the loss of her husband and a pandemic lockdown, this ardent activist was creatively blocked. Now, after watching the protests, she is inspired again.`\
-https://nytimes.com/2020/06/11/arts/design/faith-ringgold-art.html?searchResultPosition=7
-
-**U.S. House Republicans Will Put Forward Their Own Police Reform Plan, Republican Leader McCarthy Says**\
-`U.S. House Republicans will be putting forward their own proposal on police reform, House Republican Leader Kevin McCarthy said on Thursday. He told reporters it would focus on reform, transparency and accountability, adding that he supported a ban on chokeholds.`\
-https://nytimes.com/reuters/2020/06/11/us/politics/11reuters-minneapolis-police-congress-republicans.html?searchResultPosition=8
-
-**EU Eases Rules for Some Foreign Clearers in Nod to United States**\
-`A new European Union law requiring closer scrutiny of foreign clearing houses used by customers from the bloc has been simplified after the United States threatened retaliation.`\
-https://nytimes.com/reuters/2020/06/11/us/11reuters-eu-regulator-clearing.html?searchResultPosition=9
-
-**Unilever Decides One Headquarters Is Better Than Two**\
-`For decades the consumer goods giant was split between London and Rotterdam, the Netherlands. Now, it’ll be just London.`\
-https://nytimes.com/2020/06/11/business/unilever-headquarters.html?searchResultPosition=10
+https://nytimes.com/2020/06/11/movies/artemis-fowl-review.html?searchResultPosition=10
 
