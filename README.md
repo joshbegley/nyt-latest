@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/06/11/us/ap-us-britain-prince-andrew-epstein.h
 `(Reuters) - Zoom Video Communications Inc said on Thursday it did not provide any user information or meeting content to the Chinese government.`\
 https://nytimes.com/reuters/2020/06/11/business/11reuters-zoom-video-commn-privacy.html?searchResultPosition=8
 
-**Exclusive: Palantir Close to Registering for Stock Market Debut-Sources**\
+**Exclusive: Palantir Close to Registering for Stock Market Debut**\
 `(Reuters) - Palantir Technologies Inc is aiming to file confidentially with U.S. regulators for a public listing in the coming weeks, according to people familiar with the matter. `\
 https://nytimes.com/reuters/2020/06/11/business/11reuters-palantir-ipo.html?searchResultPosition=9
 
