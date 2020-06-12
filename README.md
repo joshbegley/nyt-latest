@@ -10,23 +10,23 @@ https://nytimes.com/aponline/2020/06/11/world/asia/ap-as-hong-kong-protests-pola
 `A Friday Robyn Weintraub puzzle? Of course we’ll attend.`\
 https://nytimes.com/2020/06/11/crosswords/daily-puzzle-2020-06-12.html?searchResultPosition=5
 
+**These Are the 10 U.S. Army Installations Named for Confederates**\
+`A debate is unfolding over whether to rename the installations, as part of a broader national reckoning over buildings, monuments and memorials to men who fought to preserve slavery and uphold white supremacy.`\
+https://nytimes.com/2020/06/11/us/military-bases-confederates.html?searchResultPosition=6
+
 **Demonstrators Splatter Symbolic Blood on New York Streets**\
 `Protesters left a trail of red paint behind them to symbolize blood on the streets as they marched through Manhattan to oppose police brutality and racism in the criminal justice system.`\
-https://nytimes.com/video/us/politics/100000007187443/blood-on-streets-new-york-paint-protest.html?searchResultPosition=6
+https://nytimes.com/video/us/politics/100000007187443/blood-on-streets-new-york-paint-protest.html?searchResultPosition=7
 
 **AP PHOTOS: AP Week in Pictures, Asia**\
 `June 5-11, 2020`\
-https://nytimes.com/aponline/2020/06/11/us/ap-as-pictures-of-the-week-in-asia-photo-gallery.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/06/11/us/ap-as-pictures-of-the-week-in-asia-photo-gallery.html?searchResultPosition=8
 
 **California Man Charged With Videotaped Poisoning of Homeless People**\
 `A California man has been arrested on charges he poisoned eight homeless people by giving them food laced with a caustic substance derived from hot chili peppers in a string of attacks videotaped for his own enjoyment, prosecutors said on Thursday.`\
-https://nytimes.com/reuters/2020/06/11/us/11reuters-california-homeless-poison.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/06/11/us/11reuters-california-homeless-poison.html?searchResultPosition=9
 
 **Mexico Labor Lawyer to Be Held Pending Trial on Riot Charges**\
 `A judge has ordered a labor lawyer jailed pending trial on charges that prosecutors say stem from a protest this year and not from her leadership of strikes last year that won higher pay for workers at “maquiladora” assembly plants in the border city of Matamoros.`\
-https://nytimes.com/aponline/2020/06/11/business/ap-lt-mexico-labor-lawyer-arrested.html?searchResultPosition=9
-
-**Indonesia Park to Spearhead Bid to Lure China Supply Chains**\
-`Indonesia plans to build one of its largest industrial parks on the north coast of Java island in a renewed drive to attract manufacturers relocating out of China as Southeast Asia's biggest economy comes out of a coronavirus-induced lockdown.`\
-https://nytimes.com/reuters/2020/06/11/world/asia/11reuters-indonesia-investment.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/11/business/ap-lt-mexico-labor-lawyer-arrested.html?searchResultPosition=10
 
