@@ -1,28 +1,28 @@
+**Florida Governor Signs College Athlete NIL Compensation Bill**\
+`Florida Gov. Ron DeSantis on Friday signed into law a bill that will allow college athletes in the state to earn money from endorsement deals. `\
+https://nytimes.com/aponline/2020/06/12/sports/ap-us-ncaa-compensating-athletes.html?searchResultPosition=4
+
+**Zimbabwe Activists Accused of Lying About Torture, Face Jail**\
+`Three young opposition activists in Zimbabwe who said they had been abducted and sexually assaulted faced charges Friday of lying about their treatment as the government claims their allegations  are part of a plot to destabilize the country.`\
+https://nytimes.com/aponline/2020/06/12/world/africa/ap-af-zimbabwe-activists-arrested.html?searchResultPosition=5
+
+**Police Disciplinary Records Are Largely Kept Secret in US**\
+`Officer Derek Chauvin had more than a dozen misconduct complaints against him before he put his knee on George Floyd's neck.`\
+https://nytimes.com/aponline/2020/06/12/us/ap-us-america-protests-police-misconduct.html?searchResultPosition=6
+
+**Mutation Allows Coronavirus to Infect More Cells, Study Finds. Scientists Urge Caution.**\
+`Geneticists said more evidence is needed to determine if a common genetic variation of the virus spreads more easily between people.`\
+https://nytimes.com/2020/06/12/science/coronavirus-mutation-genetics-spike.html?searchResultPosition=7
+
+**Court Seems Open to Allowing Judge to Scrutinize Bid to Drop Flynn Case**\
+`An appeals court panel’s questions suggested that it is unlikely to block a lower-court judge from examining why prosecutors asked to dismiss the case against a Trump ally who already pleaded guilty.`\
+https://nytimes.com/2020/06/12/us/politics/michael-flynn-appeals-court.html?searchResultPosition=8
+
+**Wait Continues for Hundreds of Undrafted Baseball Players**\
+`They sat anxiously by their phones, computers and TVs, hoping to hear their names called by big league teams.`\
+https://nytimes.com/aponline/2020/06/12/sports/baseball/ap-bbo-baseball-draft-the-undrafted.html?searchResultPosition=9
+
 **Rhode Island Is Asked to Strip 'Plantations' From True Name**\
 `The smallest U.S. state has the longest name, and it's not sitting well with some in the George Floyd era.`\
-https://nytimes.com/aponline/2020/06/12/us/ap-us-america-protests-renaming-rhode-island.html?searchResultPosition=4
-
-**You Now Get Almost Nothing for Your Money, but It Could Be Worse**\
-`In this crisis, money is priceless, yet banks and money market funds will pay you close to zero in interest for years. That’s if everything turns out well.`\
-https://nytimes.com/2020/06/12/business/emergency-fund-money-market.html?searchResultPosition=5
-
-**Exclusive: Key U.S. Senators Draft Plan to Reform New Plane Design Approvals After 737 MAX Crashes**\
-`Two key U.S. senators are circulating a bipartisan draft bill that would reform how the Federal Aviation Administration  certifies new aircraft in the wake of two fatal Boeing 737 MAX crashes that killed 346 people.`\
-https://nytimes.com/reuters/2020/06/12/business/12reuters-boeing-737max-exclusive.html?searchResultPosition=6
-
-**With 'Lone Wolf' Event and Wide Space, Canada's COVID-19 Capital Looks to Tempt Tourists**\
-`Quebec, the Canadian province hit hardest by the coronavirus outbreak, is touting its vast spaces, "lone wolf" running event, and "end of the road" trails to travellers as a center for social distancing, tourism executives said.`\
-https://nytimes.com/reuters/2020/06/12/world/americas/12reuters-health-coronavirus-canada-tourism.html?searchResultPosition=7
-
-**Young U.S. Men Having a Lot Less Sex in the 21st Century, Study Shows**\
-`Sexual activity among young American men has declined sharply since 2000, with nearly a third reporting no sex with a partner in the prior year, according to a survey study published on Friday that suggests social media and electronic gaming might be filling the void.`\
-https://nytimes.com/reuters/2020/06/12/us/12reuters-usa-health-sex.html?searchResultPosition=8
-
-**A Portrait of America That Still Haunts, Decades Later**\
-`How, in a single photograph, Robert Frank captured the ongoing story of a divided nation.`\
-https://nytimes.com/interactive/2020/06/12/arts/design/robert-frank-americans.html?searchResultPosition=9
-
-**Sun Says JK Rowling Article Did Not Glorify Domestic Abuse**\
-`The Sun newspaper said Friday it did not intend to “glorify’’ domestic violence by giving a platform to Harry Potter author J.K. Rowling’s ex-husband just days after she revealed she had been a victim of domestic abuse.`\
-https://nytimes.com/aponline/2020/06/12/world/europe/ap-eu-britain-rowling.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/12/us/ap-us-america-protests-renaming-rhode-island.html?searchResultPosition=10
 
