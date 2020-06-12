@@ -1,32 +1,32 @@
+**Tesla at $1,000: Too Much Too Soon for Some Analysts**\
+`Top Wall Street brokerages Goldman Sachs and Morgan Stanley downgraded their ratings on Tesla Inc saying the electric carmaker's shares were overpriced, two days after the high-flying stock crossed $1,000 per share.`\
+https://nytimes.com/reuters/2020/06/12/business/12reuters-tesla-research.html?searchResultPosition=3
+
+**China Says Opposes U.S. Restrictions on Chinese Students**\
+`China on Friday said it resolutely opposes any U.S. government move to restrict Chinese students from studying abroad, and urged the United States to do more things to enhance mutual exchanges and understanding. `\
+https://nytimes.com/reuters/2020/06/12/world/asia/12reuters-china-usa-education.html?searchResultPosition=4
+
+**Severstal Says 'No' to Europe as Thyssenkrupp's Options Narrow**\
+`Russian steelmaker Severstal has no plans to get involved in industry consolidation in Europe, its finance chief said, effectively narrowing a list of potential partners for Germany's Thyssenkrupp.`\
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-thyssenkrupp-restructuring-steel-seversta.html?searchResultPosition=5
+
+**Virtual Ceremony for 4th Anniversary of Nightclub Massacre**\
+`A ceremony commemorating the fourth anniversary of a massacre at a gay nightclub in Florida was being held virtually Friday because of the coronavirus, instead of members of the public gathering outside the club to remember the victims as in years past.`\
+https://nytimes.com/aponline/2020/06/12/us/ap-us-nightclub-shooting-florida.html?searchResultPosition=6
+
+**Putin Appeals to Russians' Core Values as Vote on Extending Term Looms**\
+`President Vladimir Putin appealed to what he termed Russians' core values on Friday, the country's national day, as he sought to rally support for a vote on constitutional reforms that could potentially keep him in office until 2036.`\
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-russia-day-putin.html?searchResultPosition=7
+
 **What Los Angeles’s Homeless Count Results Tell Us**\
 `Friday: The pandemic and a more urgent focus on systemic racism have created opportunities, but also highlighted the depth of the crisis.`\
-https://nytimes.com/2020/06/12/us/la-county-homeless-population.html?searchResultPosition=3
+https://nytimes.com/2020/06/12/us/la-county-homeless-population.html?searchResultPosition=8
 
 **UConn Student Fugitive in Court on Murder Charge, Police Say**\
 `A University of Connecticut student who police say used a machete to kill a man and fatally shot a woman, then spent six days as a fugitive until he was arrested in Maryland,  will be arraigned Friday on a murder charge, authorities said.`\
-https://nytimes.com/aponline/2020/06/12/us/ap-us-student-fugitive-killings.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/12/us/ap-us-student-fugitive-killings.html?searchResultPosition=9
 
 **Summer Reading Contest Week 1: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by June 19 at 9 a.m. Eastern. This week’s winners will be announced on June 30.`\
-https://nytimes.com/2020/06/12/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html?searchResultPosition=5
-
-**Take Five: Pump It Up**\
-`1/ROBINHOOD AND THE MERRY TRADERS`\
-https://nytimes.com/reuters/2020/06/12/business/12reuters-global-markets-themes-graphic.html?searchResultPosition=6
-
-**Iran Asks French Experts to Read Black Boxes of Downed Jet: Official**\
-`Iranian investigators have asked France's BEA air accident agency to read black boxes from a downed Ukrainian jetliner, Iran's envoy to the United Nations aviation agency said.`\
-https://nytimes.com/reuters/2020/06/12/world/middleeast/12reuters-iran-crash.html?searchResultPosition=7
-
-**Ukraine President's Wife Tests Positive for Coronavirus**\
-`Olena, the wife of Ukrainian President Volodymyr Zelenskiy, said on Friday she had tested positive for coronavirus but her husband and their two children had tested negative.`\
-https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-health-coronavirus-ukraine-president.html?searchResultPosition=8
-
-**Rain Stops Play for COVID-Hit Paris Cafes**\
-`Guillaume Artru, co-owner of a Paris restaurant, has seen his business battered first by COVID-19, then by one of Europe's strictest lockdown regimes, and now by a new adversary: the weather.`\
-https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-health-coronavirus-france-restaurants.html?searchResultPosition=9
-
-**British PM Says People Should Not Attend Demonstrations**\
-`British Prime Minister Boris Johnson advised people not to attend demonstrations this weekend, and said that anyone attacking public property or the police would face "the full force of the law".`\
-https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-minneapolis-police-protests-britain-pm.html?searchResultPosition=10
+https://nytimes.com/2020/06/12/summer-reading-contest-week-1-what-got-your-attention-in-the-times-this-week.html?searchResultPosition=10
 
