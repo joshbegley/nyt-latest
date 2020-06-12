@@ -1,28 +1,28 @@
+**Northern Irishman to Be Extradited Over Vietnamese Truck Deaths**\
+`An Irish court on Friday approved the extradition of Northern Irishman Ronan Hughes to face manslaughter charges in Britain over the deaths of 39 Vietnamese people found in the back of a truck near London last year.`\
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-britain-bodies-ireland.html?searchResultPosition=4
+
+**India's Zydus Cadila Signs Pact With Gilead to Make Remdesivir**\
+`Indian drugmaker Zydus Cadila said on Friday it signed a non-exclusive agreement with Gilead Sciences Inc to manufacture and market antiviral drug remdesivir, the first treatment to show improvement in COVID-19 trials.`\
+https://nytimes.com/reuters/2020/06/12/world/asia/12reuters-health-coronavirus-cadila-health.html?searchResultPosition=5
+
+**Canadian Cryptocurrency Firm Collapsed Due to Ponzi Scheme by Late Founder, Regulator Says**\
+`Last year's collapse of Canadian cryptocurrency trading platform Quadriga CX was due to a Ponzi scheme operated by founder Gerald Cotten, who died suddenly in December 2018, the country's biggest securities regulator said on Thursday.`\
+https://nytimes.com/reuters/2020/06/12/technology/12reuters-crypto-currencies-quadriga.html?searchResultPosition=6
+
 **U.S. Consumer Sentiment Rises in Early June**\
 `U.S. consumer sentiment perked up in early June as households responded to the reopening of businesses, which had been shuttered to slow the spread of COVID-19, and a rebound in hiring.`\
-https://nytimes.com/reuters/2020/06/12/us/12reuters-usa-economy-confidence.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/12/us/12reuters-usa-economy-confidence.html?searchResultPosition=7
 
 **Behind the Cover: Tech & Design**\
 `For this issue, a look at what it will take for scientists to find a treatment and vaccine for Covid-19.`\
-https://nytimes.com/2020/06/12/magazine/behind-the-cover-tech-design.html?searchResultPosition=5
+https://nytimes.com/2020/06/12/magazine/behind-the-cover-tech-design.html?searchResultPosition=8
 
 **‘Absurd and Wrong’: Johnson Criticizes Protest Tactics**\
 `Citing damage to public property, Prime Minister Boris Johnson of Britain criticized the anti-discrimination protests prompted by the death of George Floyd.`\
-https://nytimes.com/video/world/europe/100000007188037/boris-johnson-britain-protests.html?searchResultPosition=6
+https://nytimes.com/video/world/europe/100000007188037/boris-johnson-britain-protests.html?searchResultPosition=9
 
 **Comfort Viewing: 3 Reasons I Love ‘Red Oaks’**\
 `Set in a downscale New Jersey Jewish country club in the mid-1980s, the Amazon series has a laid-back, low-stakes vibe that fans of “Dazed and Confused” should appreciate.`\
-https://nytimes.com/2020/06/12/arts/television/comfort-viewing-3-reasons-i-love-red-oaks.html?searchResultPosition=7
-
-**A Grand History of Small Operas**\
-`Opera is often assumed to be just about bigness. But here are 10 operas where size isn’t everything.`\
-https://nytimes.com/2020/06/12/arts/music/micro-operas.html?searchResultPosition=8
-
-**There’s No Reason for an Architect to Design a Death Chamber**\
-`As the country grapples with racial justice, architects should finally take a stand on the most barbaric aspects of a biased prison system.`\
-https://nytimes.com/2020/06/12/arts/design/architects-prison-death-chamber.html?searchResultPosition=9
-
-**Turkey Slams 'Propaganda Machine' Twitter Over Removal of Accounts**\
-`Turkey fiercely criticized Twitter on Friday for suspending more than 7,000 accounts that supported President Tayyip Erdogan, saying the company was smearing the government and trying to redesign Turkish politics.`\
-https://nytimes.com/reuters/2020/06/12/technology/12reuters-china-twitter-disinformation-turkey.html?searchResultPosition=10
+https://nytimes.com/2020/06/12/arts/television/comfort-viewing-3-reasons-i-love-red-oaks.html?searchResultPosition=10
 
