@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/06/12/world/asia/12reuters-hongkong-protests.ht
 `Oil prices fell on Friday, extending heavy overnight losses as a surge in U.S. coronavirus cases this week raised the prospect of a second wave of the COVID-19 outbreak hitting demand in the world's biggest consumer of crude and fuel. `\
 https://nytimes.com/reuters/2020/06/12/business/12reuters-global-oil.html?searchResultPosition=5
 
-**Stocks Markets Show Signs of Moderating After Wall Street’s Plunge: Live Updates**\
+**Stock Markets Show Signs of Moderating After Wall Street’s Plunge: Live Updates**\
 `The latest on stock market and business news during the coronavirus outbreak.`\
 https://nytimes.com/2020/06/12/business/stock-market-today-coronavirus.html?searchResultPosition=6
 
