@@ -1,28 +1,28 @@
-**UK's Cineworld Terminates Takeover of Canada's Cineplex**\
-`British-based Cineworld said Friday it has terminated its takeover of Canada’s Cineplex.`\
-https://nytimes.com/aponline/2020/06/12/business/ap-cn-canada-britain-cinema-merger.html?searchResultPosition=4
+**Player Pushback Emerges as N.B.A. Works to Complete Restart Plans**\
+`Some worry that continuing the season would hamper the active role several players have taken in the Black Lives Matter movement.`\
+https://nytimes.com/2020/06/12/sports/nba-season-restart-black-lives-matter.html?searchResultPosition=4
 
-**N.Y. Bans Chokeholds and Approves Other Measures to Rein In Police**\
-`The state became the first to make major changes in police practices in the wake of George Floyd’s killing, which has spurred nationwide protests.`\
-https://nytimes.com/2020/06/12/nyregion/50a-repeal-police-floyd.html?searchResultPosition=5
+**Guest Lineups for the Sunday News Shows**\
+`Guest lineups for the Sunday news shows:`\
+https://nytimes.com/aponline/2020/06/12/arts/ap-us-news-shows.html?searchResultPosition=5
 
-**Four Poachers Arrested After Killing of Rare Silverback Gorilla in Uganda**\
-`The silverback, known as Rafiki, was killed by a poacher with a spear, according to the Uganda Wildlife Authority. He was the leader of the famed Nkuringo gorilla group, which has been popular with tourists for decades.`\
-https://nytimes.com/2020/06/12/world/africa/rafiki-silverback-gorilla-poachers.html?searchResultPosition=6
+**Police Reform, Peru, Bob Dylan: Your Friday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/06/12/briefing/police-reform-peru-bob-dylan.html?searchResultPosition=6
 
-**William S. Sessions, F.B.I. Director at a Turbulent Time, Dies at 90**\
-`He was applauded for broadening the bureau’s ranks to include more black, Hispanic and female agents. But many of his other actions drew severe criticism.`\
-https://nytimes.com/2020/06/12/us/william-s-sessions-dead.html?searchResultPosition=7
+**Officials: Tulsa Virus Spike Linked to Recent Indoor Events**\
+`A spike in coronavirus cases in the Tulsa area is linked to indoor events and people who attend such gatherings should take health precatutions, Oklahoma health officials warned Friday.`\
+https://nytimes.com/aponline/2020/06/12/us/ap-us-virus-outbreak-tulsa.html?searchResultPosition=7
 
-**Factbox: What Changes Are Governments Making in Response to George Floyd Protests?**\
-`Protests over the death of George Floyd while in Minneapolis police custody have prompted government and police officials across the United States to enact or propose changes aimed at showing demonstrators that their concerns about police brutality and racism are being heard.`\
-https://nytimes.com/reuters/2020/06/12/us/12reuters-minneapolis-police-protests-response-factbox.html?searchResultPosition=8
+**Virus Exposes Weak Links in Peru’s Success Story**\
+`Deep-rooted inequality and graft have thwarted the steps Peru took to prepare for its response to the pandemic.`\
+https://nytimes.com/2020/06/12/world/americas/coronavirus-peru-inequality-corruption.html?searchResultPosition=8
 
-**W.H.O. Warns of Pandemic’s Indirect Dangers to Women and Children**\
-`The World Health Organization said strain on health systems from the coronavirus could result in more deaths of women and children than the disease itself.`\
-https://nytimes.com/video/world/100000007189269/world-health-organization-women-children-coronavirus.html?searchResultPosition=9
+**Voices From U.S. Protests Against Police Brutality: 'You Can't Just Sit on the Sidelines'**\
+`Americans have taken to the streets following the death of George Floyd, who died in Minneapolis on May 25 after a white police officer pinned his knee against his neck for nearly nine minutes.`\
+https://nytimes.com/reuters/2020/06/12/us/12reuters-minneapolis-police-protests-portraits.html?searchResultPosition=9
 
-**Airbnb Partners With Brazil Virus Hotspot Sao Paulo on Post-Pandemic Tourism**\
-`Home rental firm Airbnb struck a partnership with Brazil's Sao Paulo state to encourage tourism once the novel coronavirus crisis has passed, a company executive said on Friday.`\
-https://nytimes.com/reuters/2020/06/12/business/12reuters-health-coronavirus-brazil-airbnb.html?searchResultPosition=10
+**Athletics: Blech Stars in Drive-In Pole Vaulting Event**\
+`Fans deprived of live athletics action were treated to a mini pole vaulting competition on Friday as German Torben Blech won the Flight Night event at a drive-in cinema in Duesseldorf, Germany.`\
+https://nytimes.com/reuters/2020/06/12/sports/12reuters-health-coronavirus-polevault.html?searchResultPosition=10
 
