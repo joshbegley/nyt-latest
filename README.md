@@ -1,28 +1,28 @@
+**Amid a Pandemic, ‘Batman’ Matters More Than Ever**\
+`Wang Linfa has researched bats and their diseases for decades, usually drawing little public attention. Now a world wracked by the coronavirus is relying on the work of scientists like him.`\
+https://nytimes.com/2020/06/12/world/asia/coronavirus-batman-bats-viruses.html?searchResultPosition=4
+
+**A Model for the ‘Dance World We Want’**\
+`Melanie Greene and J. Bouey, hosts of the Dance Union podcast, are moving beyond “a lot of talking” to organize for change.`\
+https://nytimes.com/2020/06/12/arts/dance/dance-union-podcast-dismantling-white-supremacy.html?searchResultPosition=5
+
+**Parachuting In, Then Speaking Out**\
+`In Kelly Yang’s “Parachutes,” two very different girls at the same prep school take a sledgehammer to rape culture.`\
+https://nytimes.com/2020/06/12/books/review/kelly-yang-parachutes.html?searchResultPosition=6
+
+**Crushing: A Schoolgirl’s Beloved Teacher Crosses the Line**\
+`In Candace Bushnell and Katie Cotugno’s “Rules for Being a Girl,” a high school senior is delighted to be alone with a teacher she has a crush on — until he kisses her.`\
+https://nytimes.com/2020/06/12/books/review/candace-bushnell-katie-cotugno-rules-for-being-a-girl.html?searchResultPosition=7
+
+**Explosion in Pakistani City of Rawalpindi Kills 1, Wounds 15**\
+`A powerful explosion ripped through a crowded bazaar in Pakistan's garrison city of Rawalpindi on Friday, killing at least one person and wounding 15, police said.`\
+https://nytimes.com/aponline/2020/06/12/world/asia/ap-as-pakistan.html?searchResultPosition=8
+
 **Exclusive: Pemex Proposal Would Sharply Cut Drilling Rigs From Private Service Firms**\
 `Mexican national oil company Pemex has proposed slashing the number of privately owned drilling rigs used this year and next in an internal planning document seen by Reuters.`\
-https://nytimes.com/reuters/2020/06/12/world/americas/12reuters-mexico-oil-rigs-exclusive.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/12/world/americas/12reuters-mexico-oil-rigs-exclusive.html?searchResultPosition=9
 
 **Feds Charge Man They Say Threatened to Burn Black Church**\
 `Federal authorities say they've arrested a North Carolina man who threatened to burn down a black church in Virginia.`\
-https://nytimes.com/aponline/2020/06/12/us/ap-us-america-protests-church-fire-arrest.html?searchResultPosition=5
-
-**More Fiscal Help Likely Required if Unemployment Stays High: Fed's Barkin**\
-`If U.S. unemployment remains persistently high additional  fiscal support may be needed, Richmond Federal Reserve Bank President Thomas Barkin said on Friday.`\
-https://nytimes.com/reuters/2020/06/12/us/12reuters-usa-fed-barkin-fiscal.html?searchResultPosition=6
-
-**New Jersey to Sue Seaside City Over Plans to Reopen Indoor Seating at Restaurants**\
-`New Jersey Governor Phil Murphy on Friday said the state will sue to stop the Jersey Shore city of Asbury Park from opening restaurants to indoor seating on Monday in defiance of a statewide order to curb the spread of coronavirus.`\
-https://nytimes.com/reuters/2020/06/12/us/12reuters-health-coronavirus-new-jersey.html?searchResultPosition=7
-
-**Protesters Try to Seize African Artwork From Paris Museum**\
-`Activists dislodged a 19th century African funeral pole from its perch in a Paris museum Friday and tried to walk away with it, saying they wanted to return it to Africa in a protest against colonial-era abuses.`\
-https://nytimes.com/aponline/2020/06/12/world/europe/ap-eu-france-colonialism-protest.html?searchResultPosition=8
-
-**Pandemic Means No Podium Ceremonies for Formula One**\
-`Formula One drivers can forget about podium celebrations this season under new rules to protect them from the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/06/12/sports/autoracing/12reuters-health-coronavirus-f1-ceremonies.html?searchResultPosition=9
-
-**US Court Hears Torture Case Against Top Libyan Commander**\
-`Two Libyan families presented their case against Libya’s east-based military commander Khalifa Hifter to an American court on Friday, in an unusual effort to hold him accountable for atrocities committed during the civil war.`\
-https://nytimes.com/aponline/2020/06/12/us/ap-ml-libya-us-lawsuit.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/12/us/ap-us-america-protests-church-fire-arrest.html?searchResultPosition=10
 
