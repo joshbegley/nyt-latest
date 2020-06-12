@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/06/12/world/middleeast/12reuters-israel-palesti
 `Did you follow the headlines this week?`\
 https://nytimes.com/interactive/2020/06/12/briefing/world-health-organization-coronavirus-protests-news-quiz.html?searchResultPosition=4
 
-**BA, easyJet and Ryanair Launch Legal Action Over UK Quarantine**\
-`British Airways, easyJet and Ryanair have launched legal action against the UK government's quarantine policy, asking for a judicial review to be heard as soon as possible, a statement from BA's parent IAG said.`\
+**BA, easyJet and Ryanair Launch Legal Action Against UK Quarantine**\
+`British Airways, easyJet and Ryanair have launched legal action against the UK government's quarantine policy, asking for a judicial review to be heard as soon as possible.`\
 https://nytimes.com/reuters/2020/06/12/business/12reuters-health-coronavirus-britain-airlines.html?searchResultPosition=5
 
 **Asia Shares Skid After Wall Street Rout as Virus Cases Rise**\
