@@ -1,28 +1,28 @@
+**Moderna COVID-19 Vaccine Clears Key Safety Hurdle in Mouse Study**\
+`A study of Moderna Inc's COVID-19 vaccine in mice lends some assurance that it will not increase the risk of more severe disease, and that one dose may provide protection against the novel coronavirus, according to preliminary data released on Friday.`\
+https://nytimes.com/reuters/2020/06/12/us/12reuters-health-coronavirus-moderna.html?searchResultPosition=4
+
+**Films Aiming to Win Oscars Will Need to Meet Diversity Criteria, Academy Says**\
+`The organization that hands out the Academy Awards said Friday it would form a group to develop diversity and inclusion guidelines that filmmakers will have to meet in order for their work to be eligible for Oscars.`\
+https://nytimes.com/reuters/2020/06/12/arts/12reuters-awards-oscars-diversity.html?searchResultPosition=5
+
+**Range Resources Pleads No Contest to Environmental Crimes**\
+`Range Resources Corp., Pennsylvania’s most active shale gas driller, has pleaded no contest to environmental crimes over its handling of contamination at a pair of well sites, the state attorney general’s office announced Friday.`\
+https://nytimes.com/aponline/2020/06/12/business/bc-us-gas-drilling-charges.html?searchResultPosition=6
+
+**U.S. Government to Send Nearly 100 Million Face Coverings for Transit Passengers**\
+`The U.S. Department of Transportation unveiled plans on Friday to send nearly 100 million face coverings to airports, transit agencies and U.S. passenger railroad service Amtrak over the coming weeks, in a bid to slow the spread of the coronavirus. `\
+https://nytimes.com/reuters/2020/06/12/us/12reuters-usa-coronavirus-masks-transit.html?searchResultPosition=7
+
+**Mexico's Social Security Institute Says 344,526 Jobs Lost in May**\
+`The Mexican Social Security Institute (IMSS) said on Friday that 344,526 jobs were lost in May among employees registered with the institute due to the coronavirus health crisis.`\
+https://nytimes.com/reuters/2020/06/12/world/americas/12reuters-health-coronavirus-mexico-jobs.html?searchResultPosition=8
+
+**Reflections on Racism in America**\
+`Readers discuss President Trump (and how he may unwittingly be advancing racial equality), voter suppression, white privilege and the origins of systemic racism.`\
+https://nytimes.com/2020/06/12/opinion/letters/racism-unrest-george-floyd.html?searchResultPosition=9
+
 **Netflix and Cinemax Go to South Africa for Real**\
 `The teenage mystery-melodrama “Blood & Water” and the spy thriller “Trackers” use local studios and actors to tell local, if easily translatable, stories.`\
-https://nytimes.com/2020/06/12/arts/television/netflix-blood-and-water-trackers-cinemax.html?searchResultPosition=4
-
-**Trump Says Police Choke Holds Should Be Banned in Most Instances**\
-`U.S. President Donald Trump said in an interview broadcast on Friday that he would like to see a ban on police choke holds in most instances, although he suggested they would be understandable in some one-on-one situations.`\
-https://nytimes.com/reuters/2020/06/12/us/politics/12reuters-minneapolis-police-trump-chokeholds.html?searchResultPosition=5
-
-**U.S. Officials Reiterate COVID-19 Safety Advice, Warn of More Restrictions if Cases Spike**\
-`U.S. health officials on Friday urged Americans to continue adhering to social distancing and other COVID-19 safety measures following rising concerns among experts that the reopening of the country's economy could lead to a fresh wave of infections.`\
-https://nytimes.com/reuters/2020/06/12/us/12reuters-health-coronavirus-usa-cdc.html?searchResultPosition=6
-
-**Who Is Bubba Wallace?**\
-`He is the only African-American driver in NASCAR’s top-flight racing series, and this week got the organization to bar the Confederate flag at its events.`\
-https://nytimes.com/2020/06/12/sports/autoracing/nascar-confederate-flag-bubba-wallace.html?searchResultPosition=7
-
-**Belarus President Accuses Election Rival of Corruption After Raid**\
-`The leader of Belarus, Alexander Lukashenko, on Friday accused his political rival Viktor Babariko of corruption but denied trying to block Babariko from standing against him in the presidential election in August. `\
-https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-belarus-election.html?searchResultPosition=8
-
-**A Weeknight Salmon That Feels Like a Dinner Party**\
-`Miso-infused rice and ginger-scallion vinaigrette round out this adaptable dinner, ready in 30 minutes.`\
-https://nytimes.com/2020/06/12/dining/miso-salmon-recipe.html?searchResultPosition=9
-
-**Minnesota Senate GOP to Block Most Policing Overhaul Plans**\
-`Key Republican lawmakers in Minnesota said Friday that they’ll block most of an ambitious effort by Democrats to remake policing in the state where George Floyd died and that they plan to approve only a limited set of police accountability measures.`\
-https://nytimes.com/aponline/2020/06/12/us/politics/ap-us-george-floyd-minnesota-legislature.html?searchResultPosition=10
+https://nytimes.com/2020/06/12/arts/television/netflix-blood-and-water-trackers-cinemax.html?searchResultPosition=10
 
