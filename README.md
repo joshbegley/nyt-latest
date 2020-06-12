@@ -1,32 +1,32 @@
+**Quarantine Rules Are to Protect Public Health, Says UK PM's Spokesman**\
+`Britain's government have brought in quarantine rules to protect public health, a spokesman for Prime Minister Boris Johnson said on Friday, declining to comment on legal action brought by British Airways, easyJet and Ryanair.`\
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-health-coronavirus-britain-airlines-spokesman.html?searchResultPosition=3
+
+**OPEC+ Panel Meeting Next Week Will Advise on Policy, Not Decide: Sources**\
+`By Alex Lawler, Ahmad Ghaddar and Olesya Astakhova`\
+https://nytimes.com/reuters/2020/06/12/world/middleeast/12reuters-oil-opec.html?searchResultPosition=4
+
+**U.A.E. Envoy to Israelis: West Bank Annexation Threatens Warming Ties**\
+`In a watershed op-ed article, a key Arab diplomat warned, in Hebrew, that normalization with Israel would not survive a unilateral land grab at the Palestinians’ expense.`\
+https://nytimes.com/2020/06/12/world/middleeast/west-bank-annexation-israel-uae.html?searchResultPosition=5
+
+**Trump on Juneteenth Rally: 'Think About It as a Celebration'**\
+`President Donald Trump defended his decision to resume campaign rallies next week on a day marking the end of U.S. slavery and at the site of a black massacre 100 years ago, saying it would be a celebration.`\
+https://nytimes.com/reuters/2020/06/12/us/politics/12reuters-usa-election-trump-rally.html?searchResultPosition=6
+
+**Britain's Johnson Says Wasn't Surprised by Economic Plunge**\
+`British Prime Minister Boris Johnson said figures showing the economy had plunged by a quarter in the March-April period had not come as a surprise because it was always going to hit a country that is dependent on services.  `\
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-health-coronavirus-britain-economy-johnson.html?searchResultPosition=7
+
 **Dutch Cenbank Chief Knot Positive on European Spending Plan**\
 `While the Dutch government has been a prominent sceptic of a plan for the European Union to spend 750 billion euros on economies hurt by coronavirus, the president of the country's central bank on Friday praised the idea.`\
-https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-eu-budget-recovery-netherlands.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-eu-budget-recovery-netherlands.html?searchResultPosition=8
 
 **Putin Attends First Public Event After Months of Lockdown**\
 `Russian President Vladimir Putin on Thursday showed up at a ceremony marking the national holiday — the first big public event he has attended since announcing a nationwide lockdown more than two months ago.`\
-https://nytimes.com/aponline/2020/06/12/world/europe/ap-eu-russia-putin.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/12/world/europe/ap-eu-russia-putin.html?searchResultPosition=9
 
 **For Gay Stars of Banned Condom Ad, No Let-Up in Poland's LGBT Rights Clampdown**\
 `For Jakub Kwiecinski, a ban by Poland's public broadcaster on a condom advert featuring him and his husband has come as no surprise, but it does make him uneasy about what targets a government clampdown on LGBT rights will pick on next.`\
-https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-poland-lgbt-advert.html?searchResultPosition=5
-
-**Tesla at $1,000: Too Much Too Soon for Some Analysts**\
-`Top Wall Street brokerages Goldman Sachs and Morgan Stanley downgraded their ratings on Tesla Inc saying the electric carmaker's shares were overpriced, two days after the high-flying stock crossed $1,000 per share.`\
-https://nytimes.com/reuters/2020/06/12/business/12reuters-tesla-research.html?searchResultPosition=6
-
-**China Says Opposes U.S. Restrictions on Chinese Students**\
-`China on Friday said it resolutely opposes any U.S. government move to restrict Chinese students from studying abroad, and urged the United States to do more things to enhance mutual exchanges and understanding. `\
-https://nytimes.com/reuters/2020/06/12/world/asia/12reuters-china-usa-education.html?searchResultPosition=7
-
-**Severstal Says 'No' to Europe as Thyssenkrupp's Options Narrow**\
-`Russian steelmaker Severstal has no plans to get involved in industry consolidation in Europe, its finance chief said, effectively narrowing a list of potential partners for Germany's Thyssenkrupp.`\
-https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-thyssenkrupp-restructuring-steel-seversta.html?searchResultPosition=8
-
-**Virtual Ceremony for 4th Anniversary of Nightclub Massacre**\
-`A ceremony commemorating the fourth anniversary of a massacre at a gay nightclub in Florida was being held virtually Friday because of the coronavirus, instead of members of the public gathering outside the club to remember the victims as in years past.`\
-https://nytimes.com/aponline/2020/06/12/us/ap-us-nightclub-shooting-florida.html?searchResultPosition=9
-
-**Putin Appeals to Russians' Core Values as Vote on Extending Term Looms**\
-`President Vladimir Putin appealed to what he termed Russians' core values on Friday, the country's national day, as he sought to rally support for a vote on constitutional reforms that could potentially keep him in office until 2036.`\
-https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-russia-day-putin.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-poland-lgbt-advert.html?searchResultPosition=10
 
