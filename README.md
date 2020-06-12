@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/06/11/world/asia/11reuters-australia-mining-ind
 https://nytimes.com/reuters/2020/06/11/world/asia/11reuters-health-coronavirus-vietnam-art.html?searchResultPosition=7
 
 **Asia Today: Beijing Has 1st Locally Spread Case in Weeks**\
-`China reported the first local transmission in Beijing in weeks on Friday after the capital has been gradually reopening during a sharp decline in new cases. `\
+`China reported the first local transmission in Beijing in weeks on Friday after the capital has been gradually reopening during a sharp decline in cases. `\
 https://nytimes.com/aponline/2020/06/11/business/ap-as-virus-outbreak-asia.html?searchResultPosition=8
 
 **Germany's Confirmed Coronavirus Cases Rise by 258 to 185,674: RKI**\
