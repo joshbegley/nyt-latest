@@ -1,10 +1,10 @@
-**Fed Warns of ‘Extraordinarily Uncertain’ Path to Recovery**\
-`Assessing the pandemic’s impact, a Federal Reserve report sees strains on businesses and households and a fragile road back to steady growth and employment.`\
-https://nytimes.com/2020/06/12/business/economy/federal-reserve-economy-coronavirus.html?searchResultPosition=4
-
 **One Big Difference About George Floyd Protests: Many White Faces**\
 `Early demographic data shows a significant presence of white protesters.`\
-https://nytimes.com/2020/06/12/us/one-big-difference-about-george-floyd-protests-many-white-faces.html?searchResultPosition=5
+https://nytimes.com/2020/06/12/us/one-big-difference-about-george-floyd-protests-many-white-faces.html?searchResultPosition=4
+
+**Fed Warns of ‘Extraordinarily Uncertain’ Path to Recovery**\
+`Assessing the pandemic’s impact, a Federal Reserve report sees strains on businesses and households and a fragile road back to steady growth and employment.`\
+https://nytimes.com/2020/06/12/business/economy/federal-reserve-economy-coronavirus.html?searchResultPosition=5
 
 **Love Letter: Checking in on Your Quarantine Crew**\
 `Plus: Love amid the protests.`\
