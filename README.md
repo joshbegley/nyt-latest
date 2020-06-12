@@ -1,32 +1,32 @@
+**Your Friday Briefing**\
+`Global markets, North Korea, jaguars: Here’s what you need to know.`\
+https://nytimes.com/2020/06/12/briefing/global-markets-european-protests-jaguars.html?searchResultPosition=3
+
+**Virus Deepens Argentina's Economic Crisis as Poverty Soars**\
+`As they wait out quarantine in a cramped, windowless room, Natividad Benítez brings her six children all of their meals from the soup kitchen where she earns $133 a month, barely enough to cover her rent and a few extra monthly costs. `\
+https://nytimes.com/aponline/2020/06/12/business/ap-lt-virus-outbreak-argentine-crisis.html?searchResultPosition=4
+
+**Japan's Economy Is Bottoming Out, Eyes on Recovery: Finance Minister**\
+`Japan's economy appears to have hit bottom and is eyeing a recovery from the damage caused by the coronavirus pandemic, its finance minister said, underscoring cautious optimism spreading among policymakers after the relaxation of lockdown measures.`\
+https://nytimes.com/reuters/2020/06/12/world/asia/12reuters-japan-economy-aso.html?searchResultPosition=5
+
+**‘Gulabo Sitabo’ Review: This Old House, Lucknow Style**\
+`Amitabh Bachchan and Ayushmann Khurrana star in this charmingly low-key Hindi comedy.`\
+https://nytimes.com/2020/06/12/movies/gulabo-sitabo-review.html?searchResultPosition=6
+
+**‘Corona Cycleways’ Become the New Post-Confinement Commute**\
+`As European cities emerge from quarantines, bicycles are playing a central role in getting the work force moving again.`\
+https://nytimes.com/2020/06/12/business/paris-bicycles-commute-coronavirus.html?searchResultPosition=7
+
+**George Floyd Protests Inspire Fresh Scrutiny of Policing in Europe, Too**\
+`A history of discrimination has been brought to the surface. But so far, charges of systemic racism have been met mostly with official denial.`\
+https://nytimes.com/2020/06/12/world/europe/george-floyd-protests-europe-police.html?searchResultPosition=8
+
+**Corrections: June 12, 2020**\
+`Corrections that appeared in print on Friday, June 12, 2020.`\
+https://nytimes.com/2020/06/12/pageoneplus/corrections-june-12-2020.html?searchResultPosition=9
+
 **China Set to Complete Beidou Network Rivalling GPS in Global Navigation**\
 `The Chinese Beidou navigation network will be complete this month when its final satellite goes into orbit, giving China greater independence from U.S.-owned GPS and heating up competition in a sector long dominated by the United States. `\
-https://nytimes.com/reuters/2020/06/11/technology/11reuters-space-exploration-china-satellite.html?searchResultPosition=3
-
-**For Ellison, Floyd Case Brings Pressure -- and Opportunity**\
-`Keith Ellison has been a civil rights activist, a defense attorney, a cable-TV favorite, a rabble-rouser in Congress, a party operator and an occasional provocateur on Twitter. `\
-https://nytimes.com/aponline/2020/06/11/us/ap-us-george-floyd-investigation-ellison.html?searchResultPosition=4
-
-**Japan's PeptiDream to Work With Merck in Developing COVID-19 Therapies**\
-`Japanese drug-discovery company PeptiDream Inc said on Friday it would collaborate with Merck & Co in developing COVID-19 therapies.`\
-https://nytimes.com/reuters/2020/06/11/world/asia/11reuters-health-coronavirus-peptidream-merck-co.html?searchResultPosition=5
-
-**Floyd’s Killing Is Having a Greater Impact than King’s, Biden Says**\
-`Former Vice President Joseph R. Biden Jr. said the killing of George Floyd in police custody is having a larger global impact than the Rev. Dr. Martin Luther King Jr.’s assassination in 1968.`\
-https://nytimes.com/video/us/politics/100000007187607/biden-george-floyd-martin-luther-king-jr.html?searchResultPosition=6
-
-**Rio Tinto Chief Apologizes for Blasting Ancient Caves as Australia Starts Inquiry**\
-`Rio Tinto Chief Executive Jean-Sebastien Jacques on Friday apologized for distress caused by Rio's destruction last month of two ancient and sacred Aboriginal caves in Western Australia, pledging full cooperation with an Australian government inquiry. `\
-https://nytimes.com/reuters/2020/06/11/world/asia/11reuters-australia-mining-indigenous.html?searchResultPosition=7
-
-**Vietnam Schoolgirl Creates Art From the Chaos of the Coronavirus**\
-`Stuck at home with school suspended, Nguyen Doi Chung Anh made the most of a lockdown in Vietnam by using art to demonstrate tragedy, resilience and chaos in the world's battle against the coronavirus.`\
-https://nytimes.com/reuters/2020/06/11/world/asia/11reuters-health-coronavirus-vietnam-art.html?searchResultPosition=8
-
-**Asia Today: Beijing Has 1st Locally Spread Case in Weeks**\
-`China reported the first local transmission in Beijing in weeks on Friday after the capital has been gradually reopening during a sharp decline in cases. `\
-https://nytimes.com/aponline/2020/06/11/business/ap-as-virus-outbreak-asia.html?searchResultPosition=9
-
-**Germany's Confirmed Coronavirus Cases Rise by 258 to 185,674: RKI**\
-`The number of confirmed coronavirus cases in Germany increased by 258 to 185,674, data from the Robert Koch Institute (RKI) for infectious diseases showed on Friday.`\
-https://nytimes.com/reuters/2020/06/11/world/europe/11reuters-health-coronavirus-germany-cases.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/11/technology/11reuters-space-exploration-china-satellite.html?searchResultPosition=10
 
