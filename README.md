@@ -1,32 +1,32 @@
+**Anticipation High as Fans Return to Rugby in New Zealand**\
+`The cheers of the crowd will resound in New Zealand sports stadiums for the first time since March with more than 50,000 people expected to attend two matches this weekend in the opening round of Super Rugby Aotearoa.`\
+https://nytimes.com/aponline/2020/06/12/sports/ap-rgu-new-zealand-rugby-returns.html?searchResultPosition=3
+
+**Historical Figures Reassessed Around Globe After Floyd Death**\
+`The rapidly unfolding movement to pull down Confederate monuments around the U.`\
+https://nytimes.com/aponline/2020/06/12/us/ap-us-america-protests.html?searchResultPosition=4
+
+**Risk Currencies Slide as Recovery Optimism Faces Reality Check**\
+`The Australian dollar and other risk-sensitive currencies gave up more ground on Friday, while safe-haven currencies were supported after equities tumbled on growing doubts over a quick recovery from the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/06/12/world/asia/12reuters-global-forex.html?searchResultPosition=5
+
+**Local Electronics Firm PCI to Make Singapore's Virus-Tracing Device**\
+`Singapore-based electronics maker PCI has won a bid to supply 300,000 dongles for a government project that could eventually see everyone in the city-state given the wearable device to help identify people who have interacted with COVID-19 carriers.`\
+https://nytimes.com/reuters/2020/06/12/technology/12reuters-health-coronavirus-singapore-contact-tracing.html?searchResultPosition=6
+
 **China Set to Complete Beidou Network Rivalling GPS in Global Navigation**\
 `The Chinese Beidou navigation network will be complete this month when its final satellite goes into orbit, giving China greater independence from U.S.-owned GPS and heating up competition in a sector long dominated by the United States. `\
-https://nytimes.com/reuters/2020/06/12/technology/12reuters-space-exploration-china-satellite.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/12/technology/12reuters-space-exploration-china-satellite.html?searchResultPosition=7
 
 **India's Coronavirus Cases Reach Over 297,000, Fourth Worst Hit Nation**\
 `India on Friday reported a total of 297,535 coronavirus infections, surpassing the United Kingdom to become the fourth worst affected country in the world.`\
-https://nytimes.com/reuters/2020/06/12/world/asia/12reuters-health-coronavirus-india.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/12/world/asia/12reuters-health-coronavirus-india.html?searchResultPosition=8
 
 **US Naval Buildup in Indo-Pacific Seen as Warning to China**\
 `For the first time in nearly three years, three American aircraft carriers are patrolling the Indo-Pacific waters, a massive show of naval force in a region roiled by spiking tensions between the U.`\
-https://nytimes.com/aponline/2020/06/12/us/politics/ap-us-united-states-china-navy.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/12/us/politics/ap-us-united-states-china-navy.html?searchResultPosition=9
 
 **Pandemic Heightens Chance Japan Slides Back Into Deflation: Reuters Poll**\
 `The coronavirus pandemic has raised the chance Japan's economy will slip back into deflation as social curbs to halt the spread of the disease hits businesses and consumers, a majority of analysts polled by Reuters said.`\
-https://nytimes.com/reuters/2020/06/12/business/12reuters-japan-economy-poll.html?searchResultPosition=6
-
-**'The Walk' Thrusts Gen. Milley Reluctantly Into Spotlight**\
-`In his first eight months as chairman of the Joint Chiefs of Staff, Gen. Mark Milley carefully crafted a low-key public profile. He knew that splashy and sassy were unlikely to endear him to his boss, President Donald Trump.`\
-https://nytimes.com/aponline/2020/06/12/us/politics/ap-us-milley.html?searchResultPosition=7
-
-**Hong Kong Government Rejects UK Criticism of New Security Law as Biased**\
-`The Hong Kong government hit back on Friday at a report by Britain criticising Beijing's move to impose national security legislation on the global financial hub, saying the report was "inaccurate and biased".`\
-https://nytimes.com/reuters/2020/06/12/world/asia/12reuters-hongkong-protests.html?searchResultPosition=8
-
-**Oil Extends Slump as Prospect of Second Viral Wave in U.S. Ends Rally**\
-`Oil prices fell on Friday, extending heavy overnight losses as a surge in U.S. coronavirus cases this week raised the prospect of a second wave of the COVID-19 outbreak hitting demand in the world's biggest consumer of crude and fuel. `\
-https://nytimes.com/reuters/2020/06/12/business/12reuters-global-oil.html?searchResultPosition=9
-
-**Stock Markets Show Signs of Moderating After Wall Street’s Plunge: Live Updates**\
-`The latest on stock market and business news during the coronavirus outbreak.`\
-https://nytimes.com/2020/06/12/business/stock-market-today-coronavirus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/12/business/12reuters-japan-economy-poll.html?searchResultPosition=10
 
