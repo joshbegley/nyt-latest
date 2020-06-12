@@ -1,32 +1,32 @@
+**California Startup Aims to Monitor Social Distancing and Face Masks Using Drones**\
+`(Reuters) - Airspace Systems, a California startup company that makes drones that can hunt down and capture other drones, on Thursday released new software for monitoring social distancing and face-mask wearing from the air.`\
+https://nytimes.com/reuters/2020/06/11/technology/11reuters-health-coronavirus-drones.html?searchResultPosition=3
+
+**Rivalries Highlight 'MLS Is Back Tournament'**\
+`(Reuters) - Rivalries highlight the 'MLS is Back Tournament' after a draw on Thursday pitted regional foes against each other in a return to action following a three-month coronavirus hiatus.`\
+https://nytimes.com/reuters/2020/06/11/sports/soccer/11reuters-soccer-usa.html?searchResultPosition=4
+
+**Japanese Women Bear Brunt of Recession as Pandemic Unravels Abe's 'Womenomics'**\
+`TOKYO — Japanese Prime Minister Shinzo Abe has long made creating jobs for women central to his economic policy, but now women are suffering a bigger share of the pain as the country heads for its worst economic slump since World War Two.`\
+https://nytimes.com/reuters/2020/06/11/world/asia/11reuters-health-coronavirus-japan-women.html?searchResultPosition=5
+
 **Trump Defends Police, but Says He’ll Sign Order Encouraging Better Practices**\
-`Joseph R. Biden Jr., his Democratic opponent, accused the president of dividing the country.`\
-https://nytimes.com/2020/06/11/us/politics/trump-biden-police.html?searchResultPosition=3
+`President Trump offered only a vague policy response on Thursday to the killing of George Floyd, saying he would sign an executive order encouraging better practices by police departments while rejecting more far-reaching proposals to tackle racial injustice and police brutality in the United States.`\
+https://nytimes.com/2020/06/11/us/politics/trump-biden-police.html?searchResultPosition=6
 
 **Chicago Leaders Condemn Officers Caught Lounging During Looting**\
 `Chicago city officials lashed out at police officers caught on camera lounging in Representative Bobby Rush’s campaign office while looting took place nearby.`\
-https://nytimes.com/video/us/politics/100000007187336/chicago-police-lounging-looting.html?searchResultPosition=4
+https://nytimes.com/video/us/politics/100000007187336/chicago-police-lounging-looting.html?searchResultPosition=7
 
 **Moving Beyond ‘MAGA’?**\
-`Can a campaign of nostalgia work as more Americans recognize the racial injustices of the past?`\
-https://nytimes.com/2020/06/11/us/politics/trump-maga-blm.html?searchResultPosition=5
+`Hi. Welcome to On Politics, your guide to the day in national politics. I’m Lisa Lerer, your host.`\
+https://nytimes.com/2020/06/11/us/politics/trump-maga-blm.html?searchResultPosition=8
 
 **NFL Pledges $250 Million to Fight Racism**\
-`The National Football League on Thursday announced a 10-year, $250 million fund to combat systemic racism following widespread U.S. protests over racial bias and law enforcement brutality.`\
-https://nytimes.com/reuters/2020/06/11/sports/football/11reuters-minneapolis-police-nfl-donation.html?searchResultPosition=6
+`(Reuters) - The National Football League on Thursday announced a 10-year, $250 million fund to combat systemic racism following widespread U.S. protests over racial bias and law enforcement brutality.`\
+https://nytimes.com/reuters/2020/06/11/sports/football/11reuters-minneapolis-police-nfl-donation.html?searchResultPosition=9
 
 **Suspect Who Ambushed Sheriff’s Deputy Is in Armed Standoff, Police Say**\
-`A police officer was wounded in Thursday’s standoff with Mason James Lira, 26, who shot a deputy in the face outside of the police station in Paso Robles, Calif., early Wednesday, the authorities said.`\
-https://nytimes.com/2020/06/11/us/paso-robles-shooting.html?searchResultPosition=7
-
-**NFL to Spend $250 Million on Social Justice Initiatives**\
-`The NFL is committing $250 million over 10 years to social justice initiatives, targeting what it calls “systemic racism” and supporting “the battle against the ongoing and historic injustices faced by African Americans.”`\
-https://nytimes.com/aponline/2020/06/11/sports/football/ap-fbn-social-justice.html?searchResultPosition=8
-
-**Former VA Pathologist Pleads Guilty in Patient's Death**\
-`A pathologist fired from an Arkansas veterans hospital after officials said he had been impaired while on duty pleaded guilty Thursday to involuntary manslaughter in the death of a patient who authorities allege he misdiagnosed.`\
-https://nytimes.com/aponline/2020/06/11/us/ap-us-impaired-pathologist.html?searchResultPosition=9
-
-**Turkey Court Sentences U.S. Consulate Employee to Over 8 Years in Prison**\
-`Ignoring U.S. arguments that the charges were baseless, a court convicted Metin Topuz of aiding the group that Turkey accuses of masterminding a 2016 coup attempt.`\
-https://nytimes.com/2020/06/11/world/europe/turkey-court-sentences-metin-topuz.html?searchResultPosition=10
+`An armed standoff between police officers and the suspect in the shooting of a sheriff’s deputy prompted a lockdown on Thursday afternoon in Paso Robles, Calif., where shots were fired and a police officer was injured as they appeared to have cornered the fugitive, the authorities said.`\
+https://nytimes.com/2020/06/11/us/paso-robles-shooting.html?searchResultPosition=10
 
