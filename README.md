@@ -1,28 +1,28 @@
+**'Denied the Truth' Says Son of Black Man Who Died in Custody**\
+`The son of a black man who died in police custody in Louisiana after a videotaped altercation that appears to show officers hitting and tasing him two months ago said he feels the family has been denied the truth about what happened.`\
+https://nytimes.com/aponline/2020/06/12/us/ap-us-louisiana-police-video.html?searchResultPosition=4
+
+**U.S., Brazil in Talks on Funding to Buy 5G Gear From Ericsson, Nokia: Paper**\
+`The United States is in talks with Brazil and its local telecommunications companies on funding the acquisition of fifth-generation gear produced by Ericsson and Nokia, U.S. ambassador for Brazil Todd Chapman told Brazilian newspaper Folha de S.Paulo.`\
+https://nytimes.com/reuters/2020/06/12/technology/12reuters-brazil-usa-telecoms.html?searchResultPosition=5
+
+**ABC Names First Black 'Bachelor' Contestant After Diversity Criticism**\
+`ABC Television's long-running dating competition show "The Bachelor" said on Friday that North Carolina native Matt James will become the show's first black contestant its 25-season history.`\
+https://nytimes.com/reuters/2020/06/12/arts/12reuters-television-bachelor.html?searchResultPosition=6
+
+**Daily Turkish Coronavirus Cases Rise Back Above 1,000**\
+`The number of new coronavirus cases in Turkey rose above 1,000 in the last 24 hours for the first time since May 29, Health Ministry data showed on Friday, after the easing of travel restrictions and reopening of public facilities at the start of last week. `\
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-health-coronavirus-turkey-toll.html?searchResultPosition=7
+
+**The Scientist, the Air and the Virus**\
+`Most of us had never heard of aerosol science before the pandemic. Then Virginia Tech’s Linsey Marr showed up and became our tour guide to the invisible world of airborne particles.`\
+https://nytimes.com/2020/06/12/well/live/Coronavirus-aerosols-linsey-marr.html?searchResultPosition=8
+
 **Breast Milk Has No Links to Spread of Coronavirus Says WHO**\
 `Breastfeeding mothers do not seem to be passing on the new coronavirus to their infants, a World Health Organization (WHO) expert said on Friday.`\
-https://nytimes.com/reuters/2020/06/12/world/americas/12reuters-health-coronavirus-who-breastmilk.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/12/world/americas/12reuters-health-coronavirus-who-breastmilk.html?searchResultPosition=9
 
 **Rubber Bullets and Beanbag Rounds Can Cause Devastating Injuries**\
 `Common crowd-dispersal methods used on protesters across the country have caused brain damage and other disabilities, prompting growing calls to ban them.`\
-https://nytimes.com/2020/06/12/health/protests-rubber-bullets-beanbag.html?searchResultPosition=5
-
-**The Real Dangers of Surveillance**\
-`What Americans can learn from the protests in Hong Kong.`\
-https://nytimes.com/2020/06/12/technology/surveillance-protests-hong-kong.html?searchResultPosition=6
-
-**Mexican President Says Spoke to BlackRock CEO Over Argentina Debt Restructuring**\
-`Mexico's president on Friday said he had spoken to BlackRock Chief Executive Officer Larry Fink at the request of the Argentine government to lobby the asset management firm to accept Argentina's offer during debt restructuring talks.`\
-https://nytimes.com/reuters/2020/06/12/business/12reuters-mexico-argentina-blackrock.html?searchResultPosition=7
-
-**Investigators Hope Public Help Will Strengthen Case Against McCann Suspect**\
-`German and British investigators looking into the disappearance of British toddler Madeleine McCann 13 years ago are relying on hundreds of tips from the public to firm up evidence against Christian B., a suspected rapist they believe murdered her.`\
-https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-britain-portugal-mccann-germany-prosecutor.html?searchResultPosition=8
-
-**'Overwhelming': Georgia Poll Worker Describes Voting Chaos**\
-`First-time poll worker Kirubel Behailu thought he'd become more familiar with Georgia's new voting machines at a quiet election site during Tuesday's primary.`\
-https://nytimes.com/aponline/2020/06/12/us/ap-us-election-2020-poll-problems.html?searchResultPosition=9
-
-**Jankovic Undecided on Future After Comeback at Djokovic Event**\
-`Former world number one Jelena Jankovic is still unsure whether she would resume her tennis career after playing for the first time in nearly three years at fellow Serb Novak Djokovic's charity tournament on Friday.`\
-https://nytimes.com/reuters/2020/06/12/sports/tennis/12reuters-tennis-serbia-djokovic-jankovic.html?searchResultPosition=10
+https://nytimes.com/2020/06/12/health/protests-rubber-bullets-beanbag.html?searchResultPosition=10
 
