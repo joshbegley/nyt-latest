@@ -1,28 +1,28 @@
+**Nigeria Declares Emergency After Rapes Triple Under Lockdown**\
+`Governors across Nigeria have declared a state of emergency over rape and other gender-based violence against women and children as officials said rapes have tripled during the country's coronavirus lockdown.`\
+https://nytimes.com/aponline/2020/06/12/world/africa/ap-af-nigeria-gender-based-violence.html?searchResultPosition=4
+
+**Your 2020 Virtual Pride Guide**\
+`L.G.B.T.Q. Pride events will look and feel very different this year, but many are still on — online. Here are some of the most notable, with details on when and how to tune in.`\
+https://nytimes.com/2020/06/12/arts/gay-pride-events-online.html?searchResultPosition=5
+
+**A (Cancelled) Plane, Train and Automobile: European Travel in a Pandemic**\
+`Three months ago, the trip from Brussels to Warsaw involved a direct flight of about two hours, plus travel to and from airports.`\
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-health-coronavirus-europe-travel.html?searchResultPosition=6
+
+**The Italian Cafe Where New Yorkers Sample La Dolce Vita**\
+`For generations, Caffé Dante served aperitivi to Manhattanites at its sought-after sidewalk tables. Now, the reimagined version is offering Negronis to go.`\
+https://nytimes.com/2020/06/12/t-magazine/caffe-dante-nyc.html?searchResultPosition=7
+
+**France Looks to Insure Businesses for Future Pandemics**\
+`France's private insurers would provide business-interruption cover of up to 2 billion euros ($2.2 billion) a year in total for small companies hit by the fallout of any future pandemics, under a system proposed by the industry body.`\
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-health-coronavirus-france-insurance.html?searchResultPosition=8
+
 **New York Governor Signs Police Accountability Legislation**\
 `New York Gov. Andrew Cuomo is signing into law a sweeping package of police accountability measures that received new backing following protests of George Floyd's killing, including one allowing the release of officers' long-withheld disciplinary records. `\
-https://nytimes.com/aponline/2020/06/12/us/ap-us-police-accountability-new-york.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/12/us/ap-us-police-accountability-new-york.html?searchResultPosition=9
 
 **The Latest Police Tool in Protests: Paintball Guns**\
 `They are essentially no different than the ones used recreationally, but the projectiles carry hidden risks when fired at unsuspecting people who lack the protective gear that gamers use.`\
-https://nytimes.com/2020/06/12/us/paintball-george-floyd-protests.html?searchResultPosition=5
-
-**Arms Seized by U.S., Missiles Used to Attack Saudi Arabia 'of Iranian Origin': U.N.**\
-`Cruise missiles used in several attacks on oil facilities and an international airport in Saudi Arabia last year were of "Iranian origin," U.N. Secretary-General Antonio Guterres told the Security Council in a report seen by Reuters on Thursday.`\
-https://nytimes.com/reuters/2020/06/12/world/middleeast/12reuters-iran-usa-un.html?searchResultPosition=6
-
-**How ‘The King of Staten Island’ Handles Sibling Rivalry**\
-`Judd Apatow discusses a scene from his film, starring Pete Davidson and Maude Apatow.`\
-https://nytimes.com/2020/06/12/movies/king-of-staten-island-clip.html?searchResultPosition=7
-
-**‘The King of Staten Island’ | Anatomy of a Scene**\
-`Judd Apatow narrates a sequence from his film, featuring Pete Davidson and Maude Apatow.`\
-https://nytimes.com/video/movies/100000007188090/the-king-of-staten-island-scene.html?searchResultPosition=8
-
-**LBMA Says It Will Investigate Perth Mint Gold Sourcing Allegations**\
-`The London Bullion Market Association (LBMA) said on Friday it would investigate allegations in an Australian newspaper that the Perth Mint processed gold from small-scale gold miners in Papua New Guinea who used child labour and toxic mercury.`\
-https://nytimes.com/reuters/2020/06/12/world/asia/12reuters-gold-lbma-perth-mint.html?searchResultPosition=9
-
-**New York's Cuomo Ties State Funding to Police Changes to Fight Racism**\
-`New York Governor Andrew Cuomo said on Friday he will sign an executive order requiring local governments to develop and adopt by April 1 plans to reinvent police departments to address use of force, police bias and other issues that have triggered anti-racism protests.`\
-https://nytimes.com/reuters/2020/06/12/us/12reuters-minneapolis-police-new-york.html?searchResultPosition=10
+https://nytimes.com/2020/06/12/us/paintball-george-floyd-protests.html?searchResultPosition=10
 
