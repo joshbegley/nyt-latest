@@ -1,28 +1,28 @@
+**Netflix and Cinemax Go to South Africa for Real**\
+`The teenage mystery-melodrama “Blood & Water” and the spy thriller “Trackers” use local studios and actors to tell local, if easily translatable, stories.`\
+https://nytimes.com/2020/06/12/arts/television/netflix-blood-and-water-trackers-cinemax.html?searchResultPosition=4
+
+**Trump Says Police Choke Holds Should Be Banned in Most Instances**\
+`U.S. President Donald Trump said in an interview broadcast on Friday that he would like to see a ban on police choke holds in most instances, although he suggested they would be understandable in some one-on-one situations.`\
+https://nytimes.com/reuters/2020/06/12/us/politics/12reuters-minneapolis-police-trump-chokeholds.html?searchResultPosition=5
+
+**U.S. Officials Reiterate COVID-19 Safety Advice, Warn of More Restrictions if Cases Spike**\
+`U.S. health officials on Friday urged Americans to continue adhering to social distancing and other COVID-19 safety measures following rising concerns among experts that the reopening of the country's economy could lead to a fresh wave of infections.`\
+https://nytimes.com/reuters/2020/06/12/us/12reuters-health-coronavirus-usa-cdc.html?searchResultPosition=6
+
+**Who Is Bubba Wallace?**\
+`He is the only African-American driver in NASCAR’s top-flight racing series, and this week got the organization to bar the Confederate flag at its events.`\
+https://nytimes.com/2020/06/12/sports/autoracing/nascar-confederate-flag-bubba-wallace.html?searchResultPosition=7
+
+**Belarus President Accuses Election Rival of Corruption After Raid**\
+`The leader of Belarus, Alexander Lukashenko, on Friday accused his political rival Viktor Babariko of corruption but denied trying to block Babariko from standing against him in the presidential election in August. `\
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-belarus-election.html?searchResultPosition=8
+
 **A Weeknight Salmon That Feels Like a Dinner Party**\
 `Miso-infused rice and ginger-scallion vinaigrette round out this adaptable dinner, ready in 30 minutes.`\
-https://nytimes.com/2020/06/12/dining/miso-salmon-recipe.html?searchResultPosition=4
+https://nytimes.com/2020/06/12/dining/miso-salmon-recipe.html?searchResultPosition=9
 
 **Minnesota Senate GOP to Block Most Policing Overhaul Plans**\
 `Key Republican lawmakers in Minnesota said Friday that they’ll block most of an ambitious effort by Democrats to remake policing in the state where George Floyd died and that they plan to approve only a limited set of police accountability measures.`\
-https://nytimes.com/aponline/2020/06/12/us/politics/ap-us-george-floyd-minnesota-legislature.html?searchResultPosition=5
-
-**New York Police Will Stop Enforcing Street-Vendor Laws, but Questions Linger**\
-`Vendors, who feel harassed by officers and tickets, wonder what will replace the current system.`\
-https://nytimes.com/2020/06/12/dining/nypd-street-vendors.html?searchResultPosition=6
-
-**Pandemic on 'Upswing' in the South; Mexico Situation 'Challenging': WHO**\
-`The global coronavirus pandemic remains "very much in the upswing" with a danger the disease could swiftly return to countries as they emerge from lockdowns, the World Health Organization (WHO) said on Friday.`\
-https://nytimes.com/reuters/2020/06/12/world/americas/12reuters-health-cornavirus-who-upswing.html?searchResultPosition=7
-
-**United States Oil Fund Receives Green Light to Issue New Shares**\
-`The United States Oil Fund LP, the largest U.S. oil-focused exchange-traded product, stated on Friday in a regulatory filing https://www.sec.gov/ix?doc=/Archives/edgar/data/1327068/000117120020000430/i20391_uso-8k.htm that it has gained approval to resume offering new shares.`\
-https://nytimes.com/reuters/2020/06/12/business/12reuters-united-states-oil-fund-stocks.html?searchResultPosition=8
-
-**Iran Rejects UN Report That Arms 'of Iranian Origin' Used in Saudi Attacks**\
-`Iran on Friday rejected a United Nations report that said cruise missiles used in attacks on oil facilities and an airport in Saudi Arabia last year were of "Iranian origin", saying it had been drawn up under U.S. and Saudi influence.`\
-https://nytimes.com/reuters/2020/06/12/world/middleeast/12reuters-iran-usa-un-statement.html?searchResultPosition=9
-
-**'Denied the Truth' Says Son of Black Man Who Died in Custody**\
-`The son of a black man who died in police custody in Louisiana after a videotaped altercation that appears to show officers hitting and tasing him two months ago said he feels the family has been denied the truth about what happened.`\
-https://nytimes.com/aponline/2020/06/12/us/ap-us-louisiana-police-video.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/12/us/politics/ap-us-george-floyd-minnesota-legislature.html?searchResultPosition=10
 
