@@ -1,28 +1,28 @@
-**UK Regulators Investigate Facebook's Purchase of Giphy**\
-`British regulators have opened an investigation into Facebook's recent purchase of Giphy over concerns that it will stifle competition. `\
-https://nytimes.com/aponline/2020/06/12/business/ap-eu-britain-facebook-giphy.html?searchResultPosition=4
+**Liam Gallagher Gets His ‘MTV Unplugged’ Moment**\
+`The Oasis singer didn’t show up for the band’s 1996 “Unplugged” taping, but on a new album he recorded for the series as a solo artist, he returns to some of the group’s most memorable songs.`\
+https://nytimes.com/2020/06/12/arts/music/liam-gallagher-oasis-mtv-unplugged.html?searchResultPosition=4
 
-**'Gospel Grace' Radio Announcer Fatally Shot in Baltimore**\
-`A long time Gospel radio announcer was fatally shot outside her home in a case Baltimore police call a “senseless” and “tragic murder.”`\
-https://nytimes.com/aponline/2020/06/12/us/ap-us-gospel-announcer-killed-1st-ld-writethru.html?searchResultPosition=5
+**BlackGold Raising $600 Million for Direct Oil & Gas Lending, Sources Say**\
+`Houston-based investment firm BlackGold Capital Management is aiming to raise $600 million for a private fund that will lend directly to the beleaguered oil and gas sector, according to two sources familiar with the matter.`\
+https://nytimes.com/reuters/2020/06/12/business/12reuters-funds-blackgold.html?searchResultPosition=5
 
-**Argentine Bonds Edge Higher as Market Waits on Sweetened Debt Offer**\
-`Argentina over-the-counter bonds edged higher on Friday as markets watched for signs of an expected sweetened offer from the government to restructure $65 billion in foreign debt.`\
-https://nytimes.com/reuters/2020/06/12/world/americas/12reuters-argentina-debt.html?searchResultPosition=6
+**4 Injured When Ambulance Crashes Into Oklahoma Toll Booth**\
+`Four people were injured, at least three critically, when an ambulance crashed into a toll booth on an Oklahoma turnpike early Friday, Oklahoma Highway Patrol spokesperson Sarah Stewart said.`\
+https://nytimes.com/aponline/2020/06/12/us/ap-us-ambulance-crash-toll-booth.html?searchResultPosition=6
 
-**New York Judge Dismisses Much of Ex-TCW Manager's Sexual Harassment Lawsuit**\
-`A New York state judge dismissed a substantial portion of Sara Tirschwell's sexual harassment lawsuit against her former employer, asset manager TCW Group Inc.`\
-https://nytimes.com/reuters/2020/06/12/business/12reuters-tcw-tirschwell-harassment.html?searchResultPosition=7
+**Delroy Lindo on ‘Da 5 Bloods’ and Playing a Trump Supporter**\
+`The actor says he had to “get my head around” the Vietnam vet character he plays in the Spike Lee drama. He also explains why he’s leaving “The Good Fight.”`\
+https://nytimes.com/2020/06/12/movies/delroy-lindo-da-5-bloods-spike-lee.html?searchResultPosition=7
 
-**U.S. Regulator Sides With FCA in Jeep Trade Case Against Mahindra**\
-`A U.S. regulator ruled that India's Mahindra and Mahindra Ltd infringed upon the intellectual property rights of Fiat Chrysler Automobiles NV's (FCA) Jeep brand, barring the sale of the vehicles in question.`\
-https://nytimes.com/reuters/2020/06/12/business/12reuters-fiat-chrysler-mahindra-complaint.html?searchResultPosition=8
+**Lil Baby Takes a Stand, and 10 More New Songs**\
+`Hear tracks by John Prine, Raphael Saadiq, Ambrose Akinmusire and others.`\
+https://nytimes.com/2020/06/12/arts/music/playlist-lil-baby-6ix9ine-nicki-minaj.html?searchResultPosition=8
 
-**Norway Snubs COVID-19 Hotspot Sweden in Lifting Travel Curbs**\
-`Norway will allow travel to and from Finland, Iceland and the Swedish island of Gotland from Monday, but maintain travel restrictions on mainland Sweden due to its higher level of COVID-19 cases, amid concerns of a second wave of infections. `\
-https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-health-coronavirus-nordics-travel.html?searchResultPosition=9
+**U.N. Chief Calls for Marine Personnel Be Designated Key Workers**\
+`U.N. chief Antonio Guterres called on all countries on Friday to `\
+https://nytimes.com/reuters/2020/06/12/us/12reuters-health-coronavirus-shipping-un.html?searchResultPosition=9
 
-**Amazon, Pushing Fashion, Opened Photo Studio as a ‘Warehouse’ Exemption**\
-`Now closed again, a Brooklyn site set up for models didn’t appear to qualify as an essential business under state pandemic rules.`\
-https://nytimes.com/2020/06/12/technology/amazon-brooklyn-studio.html?searchResultPosition=10
+**Police Union Head Resigns Over Post on Accused Officers**\
+`The president of a Fraternal Order of Police chapter along Florida’s Space Coast has resigned after being told he would be fired following an internal investigation over a social media post that encouraged officers linked to departments accused of using excessive force during recent protests to apply for jobs in Florida.`\
+https://nytimes.com/aponline/2020/06/12/us/ap-us-america-protests-police-union-post.html?searchResultPosition=10
 
