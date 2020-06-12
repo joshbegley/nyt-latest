@@ -1,28 +1,28 @@
-**Starbucks Will Allow Employees to Wear Black Lives Matter Apparel**\
-`In announcing the reversal, the coffee chain also said it would make 250,000 Black Lives Matter shirts for baristas who wanted them.`\
-https://nytimes.com/2020/06/12/business/starbucks-blm-ban-reversed.html?searchResultPosition=4
+**A Barware Company for the Pros Adds Amateurs to the Mix**\
+`When its equipment sales to bars and restaurants plummeted during the pandemic, Cocktail Kingdom successfully turned to consumers.`\
+https://nytimes.com/2020/06/12/business/cocktail-kingdom-barware-pandemic.html?searchResultPosition=4
 
-**Varner Takes Early 1-Shot Lead Over Spieth at Colonial**\
-`One spectator was stopped after trying to sneak into Colonial on Friday, and perhaps he was onto something with all the birdies from Rory McIlroy and Jordan Spieth and the great recovery of Harold Varner III.`\
-https://nytimes.com/aponline/2020/06/12/sports/golf/ap-glf-colonial.html?searchResultPosition=5
+**Golf: Spieth Keeps His Cool to Overcome Hiccup at Colonial**\
+`Jordan Spieth's decision to work on his mental game during the PGA Tour's three-month break paid off on Friday as he recovered from a late ugly stretch at the Charles Schwab Challenge to card a 65 and seize momentum.`\
+https://nytimes.com/reuters/2020/06/12/sports/golf/12reuters-golf-ftworth-spieth.html?searchResultPosition=5
 
-**Federal Judge Formally Ends 'Bridgegate' Criminal Case**\
-`A federal judge formally brought an end Friday to the criminal case stemming from the 2013 George Washington Bridge lane-closing scandal known as “Bridgegate.” `\
-https://nytimes.com/aponline/2020/06/12/us/ap-us-christie-traffic-jams-1st-ld-writethru.html?searchResultPosition=6
+**Slovenia to Open Borders for Italians, Montenegrins on June 15**\
+`Slovenia will open its borders for citizens of Montenegro and neighbouring Italy on June 15, the government said in a statement on Friday.`\
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-health-coronavirus-slovenia-italy.html?searchResultPosition=6
 
-**AT&T Seeks Sale for Warner Bros. Gaming Unit, Could Fetch About $4 Billion: CNBC**\
-`AT&T Inc is discussing a sale of its Warner Bros. Interactive Entertainment gaming division in a deal that could fetch about $4 billion, CNBC reported on Friday, citing people familiar with the matter.`\
-https://nytimes.com/reuters/2020/06/12/technology/12reuters-at-t-divestiture.html?searchResultPosition=7
+**Kentucky School Shooter Ordered to Serve Two Life Sentences**\
+`A Kentucky teen who pleaded guilty to killing two schoolmates in 2018 has been ordered to serve two life sentences.`\
+https://nytimes.com/aponline/2020/06/12/us/ap-us-school-shooting-kentucky.html?searchResultPosition=7
 
-**French Police Push Back Against Proposed Reforms**\
-`Government support for banning the chokehold and disciplining officers suspected of racism have drawn angry pushback, placing President Emmanuel Macron in a bind.`\
-https://nytimes.com/2020/06/12/world/europe/france-police-opposition-proposed-reforms.html?searchResultPosition=8
+**American Airlines, Perspecta Rise; PVH, Lululemon Fall**\
+`Stocks that moved heavily or traded substantially on Friday:`\
+https://nytimes.com/aponline/2020/06/12/business/ap-financial-markets-stocks.html?searchResultPosition=8
 
-**Knight Vinke Urges Alpiq Investors to Block Squeezeout, Threatens Lawsuit**\
-`Activist investment firm Knight Vinke Asset Management on Friday appealed to investors in Swiss energy company Alpiq to block a planned squeezeout transaction which it calls too cheap and threatened to challenge it in court if it passes.`\
-https://nytimes.com/reuters/2020/06/12/business/12reuters-alpiq-knightvinke.html?searchResultPosition=9
+**Botswana Reinstates Strict Coronavirus Lockdown in Capital City**\
+`Botswana brought back a strict coronavirus lockdown in its capital city, Gaborone, and surrounding areas after the southern African country recorded 12 new cases of the virus, a senior health official said late on Friday.`\
+https://nytimes.com/reuters/2020/06/12/world/africa/12reuters-health-coronavirus-botswana.html?searchResultPosition=9
 
-**Brazil Drops Police From Human Rights Report Amid Global Protests Against Racism and Abuse**\
-`Brazil has excluded complaints of police violence from an annual human rights report, sparking allegations on Friday of a cover-up amid global outrage over racial injustice and use of excessive force by law enforcement. `\
-https://nytimes.com/reuters/2020/06/12/world/americas/12reuters-brazil-violence.html?searchResultPosition=10
+**Zoom Hits Political Turbulence in Washington, Beijing; Lobbyists Ready**\
+`Zoom Video Communications, whose remote meeting app made the obscure California company a hub for global communications during the coronavirus pandemic, now finds itself fighting political battles in Washington and Beijing.`\
+https://nytimes.com/reuters/2020/06/12/technology/12reuters-usa-zoom-lobbyists.html?searchResultPosition=10
 
