@@ -1,32 +1,32 @@
-**Turkish Industry Slammed by Coronavirus Curbs**\
-`Turkey's industrial output slumped a more-than-expected https://tmsnrt.rs/3fhRmbf 31.4% and its current account deficit widened beyond $5 billion in April as it felt the impact of measures to stem the spread of the novel coronavirus, data showed on Friday. `\
-https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-turkey-economy.html?searchResultPosition=3
+**Richemont Personnel Director Guieysse Exits Executive Committee**\
+`Cartier maker Richemont's human resources director is leaving its executive committee, the Swiss luxury goods group said on Friday, without giving a reason for the departure.`\
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-cmpne-financiere-guieysse.html?searchResultPosition=3
 
-**German Government Has No Reason to Change Its Growth Forecast, Says Minister**\
-`The German government has no reason currently to change its forecast for growth in Europe's largest economy, Economy Minister Peter Altmaier said on Friday.`\
-https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-health-coronavirus-germany-economy-forecast.html?searchResultPosition=4
+**Germany Well-Placed to Avoid Second Wave of Virus Infections: Scholz**\
+`Germany is well placed to avoid a second wave of coronavirus infections, Finance Minister Olaf Scholz said on Friday, warning that the absence of a vaccine meant social distancing as well as testing and tracing measures were necessary.`\
+https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-health-coronavirus-germany-economy-secondwave.html?searchResultPosition=4
 
-**International Criminal Court Condemns US Sanctions Order**\
-`The International Criminal Court has condemned the Trump administration’s decision to authorize sanctions against court staff, saying it amounted to “an unacceptable attempt to interfere with the rule of law and the Court’s judicial proceedings.”`\
-https://nytimes.com/aponline/2020/06/12/world/europe/ap-eu-international-court-united-states.html?searchResultPosition=5
+**You and Me and Quarantine**\
+`Alyssa Bello and Christian Messina found their wedding plans upended like so many others but still managed to marry in Brooklyn.`\
+https://nytimes.com/2020/06/12/fashion/weddings/you-and-me-and-quarantine.html?searchResultPosition=5
 
-**Churchill Statue and War Memorial Boarded Up Before London Protests**\
-`A statue of former British Prime Minister Winston Churchill opposite parliament and the Cenotaph war memorial in central London were boarded up on Friday for protection before three days of demonstrations planned in the capital. `\
-https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-minneapolis-police-protests-britain-statue.html?searchResultPosition=6
+**A Good Story to Tell Their Future Children**\
+`“I will never forget how beautiful Katherine looked walking down the driveway, er, aisle,” Jason Perez said, laughing, about his wife, Ms. Hernandez.`\
+https://nytimes.com/2020/06/12/fashion/weddings/a-good-story-to-tell-their-future-children.html?searchResultPosition=6
 
-**EU Regulators to Decide on Alstom, Bombardier Deal by July 16**\
-`EU antitrust regulators have set a July 16 deadline for a decision on whether to clear French TGV high-speed train maker Alstom's bid for Bombardier Inc's rail division, according to a filing on the European Commission website.`\
-https://nytimes.com/reuters/2020/06/12/business/12reuters-bombardier-m-a-alstom-eu.html?searchResultPosition=7
+**A Shooting Star, and Then Sparks Flew**\
+`The couple met in 2014 in Washington when they were interns for two senators from North Carolina from opposing parties.`\
+https://nytimes.com/2020/06/12/fashion/weddings/a-shooting-star-and-then-sparks-flew.html?searchResultPosition=7
 
-**Philippine Protesters Rally Over Controversial Anti-Terror Bill**\
-`More than 1,000 Filipinos on Friday braved the threat of coronavirus infection to protest against a controversial new anti-terrorism bill, which is awaiting Philippine President Rodrigo Duterte's signature.`\
-https://nytimes.com/reuters/2020/06/12/world/asia/12reuters-philippines-rights-protests.html?searchResultPosition=8
+**Her Sixth-Grade Crush Grew Up**\
+`Anthony Forbers never paid much attention to Wendy Hopkins in middle school, but he did take notice a few decades later.`\
+https://nytimes.com/2020/06/12/fashion/weddings/her-sixth-grade-crush-grew-up.html?searchResultPosition=8
 
-**Prosecutors Question Italy's Conte Over Slow Virus Lockdowns**\
-`Italian Premier Giuseppe Conte is being questioned by prosecutors investigating the lack of a coronavirus lockdown of two towns in Lombardy’s Bergamo province that turned into one of the hardest-hit areas of the country's outbreak. `\
-https://nytimes.com/aponline/2020/06/12/world/europe/ap-eu-virus-outbreak-italy-investigation.html?searchResultPosition=9
+**The Struggle to Teach From Afar**\
+`A teacher in Columbus, Ohio, on the crisis in education and what comes next.`\
+https://nytimes.com/2020/06/12/podcasts/the-daily/teaching-coronavirus.html?searchResultPosition=9
 
-**5 Things to Know for Today**\
-`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today:`\
-https://nytimes.com/aponline/2020/06/12/us/ap-5-things-to-know-today.html?searchResultPosition=10
+**The Future Seen in a Cat Food Bowl**\
+`They met on Craigslist when he was looking for an apartment close to his medical residency, and she was desperately seeking a roommate.`\
+https://nytimes.com/2020/06/12/fashion/weddings/the-future-seen-in-a-cat-food-bowl.html?searchResultPosition=10
 
