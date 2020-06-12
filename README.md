@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/06/12/us/ap-us-virginia-statue-guns-seized.htm
 `British Prime Minister Boris Johnson is facing a cabinet backlash over plans to suspend Sunday trading laws with three ministers warning him against it, The Times newspaper reported. `\
 https://nytimes.com/reuters/2020/06/12/world/europe/12reuters-health-coronavirus-britain-stimulus.html?searchResultPosition=8
 
-**New Book Says Melania Trump Delayed Move to Washington to Renegotiate Prenuptial Agreement**\
+**Book Says Melania Trump Delayed Washington Move as Negotiating Tack**\
 `Mrs. Trump used her husband’s victory in November 2016 as an opportunity to solidify her financial standing, for herself and for the couple’s son, Barron, the book says.`\
 https://nytimes.com/2020/06/12/us/politics/melania-trump-prenuptial-agreement.html?searchResultPosition=9
 
