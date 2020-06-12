@@ -1,28 +1,28 @@
-**Trump Says Chokeholds by Police Should Generally 'Be Ended'**\
-`President Donald Trump says he’d like to see an end to the police use of chokeholds, except in certain circumstances.`\
-https://nytimes.com/aponline/2020/06/12/us/politics/ap-us-america-protests-trump-chokeholds.html?searchResultPosition=4
+**Starbucks Will Allow Employees to Wear Black Lives Matter Apparel**\
+`In announcing the reversal, the coffee chain also said it would make 250,000 Black Lives Matter shirts for baristas who wanted them.`\
+https://nytimes.com/2020/06/12/business/starbucks-blm-ban-reversed.html?searchResultPosition=4
 
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark U.S. crude oil for July delivery fell 8 cents to settle at $36.26 a barrel Friday. Brent crude oil for August delivery rose 18 cents to $38.73 a barrel.`\
-https://nytimes.com/aponline/2020/06/12/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=5
+**Varner Takes Early 1-Shot Lead Over Spieth at Colonial**\
+`One spectator was stopped after trying to sneak into Colonial on Friday, and perhaps he was onto something with all the birdies from Rory McIlroy and Jordan Spieth and the great recovery of Harold Varner III.`\
+https://nytimes.com/aponline/2020/06/12/sports/golf/ap-glf-colonial.html?searchResultPosition=5
 
-**Harry Potter Fans Reimagine Their World Without Its Creator**\
-`A slice of fandom divides itself from J.K. Rowling.`\
-https://nytimes.com/2020/06/12/style/jk-rowling-transgender-fans.html?searchResultPosition=6
+**Federal Judge Formally Ends 'Bridgegate' Criminal Case**\
+`A federal judge formally brought an end Friday to the criminal case stemming from the 2013 George Washington Bridge lane-closing scandal known as “Bridgegate.” `\
+https://nytimes.com/aponline/2020/06/12/us/ap-us-christie-traffic-jams-1st-ld-writethru.html?searchResultPosition=6
 
-**Kentucky to Remove Statue of Confederate Leader Jefferson Davis From Capitol**\
-`Kentucky on Friday agreed to remove a statue of Confederate President Jefferson Davis from its State Capitol building, the latest action in a renewed drive to take down such monuments in the wake of nationwide protests for racial justice.`\
-https://nytimes.com/reuters/2020/06/12/us/12reuters-minneapolis-police-protests-kentucky-statue.html?searchResultPosition=7
+**AT&T Seeks Sale for Warner Bros. Gaming Unit, Could Fetch About $4 Billion: CNBC**\
+`AT&T Inc is discussing a sale of its Warner Bros. Interactive Entertainment gaming division in a deal that could fetch about $4 billion, CNBC reported on Friday, citing people familiar with the matter.`\
+https://nytimes.com/reuters/2020/06/12/technology/12reuters-at-t-divestiture.html?searchResultPosition=7
 
-**Judge Tosses Out Jussie Smollett's Double Jeopardy Claim**\
-`A Cook County judge on Friday shot down actor Jussie Smollett's attempt have the criminal charges against him dropped, telling the actor that the new charges against him do not violate his right against double jeopardy.`\
-https://nytimes.com/aponline/2020/06/12/us/ap-us-jussie-smollett.html?searchResultPosition=8
+**French Police Push Back Against Proposed Reforms**\
+`Government support for banning the chokehold and disciplining officers suspected of racism have drawn angry pushback, placing President Emmanuel Macron in a bind.`\
+https://nytimes.com/2020/06/12/world/europe/france-police-opposition-proposed-reforms.html?searchResultPosition=8
 
-**1st City in US Named for Columbus Puts His Statue in Storage**\
-`The first city in the United States named for Christopher Columbus has removed a statue of the explorer and placed it in storage for safekeeping after it was vandalized several times in a week.`\
-https://nytimes.com/aponline/2020/06/12/us/ap-us-america-protests-south-carolina.html?searchResultPosition=9
+**Knight Vinke Urges Alpiq Investors to Block Squeezeout, Threatens Lawsuit**\
+`Activist investment firm Knight Vinke Asset Management on Friday appealed to investors in Swiss energy company Alpiq to block a planned squeezeout transaction which it calls too cheap and threatened to challenge it in court if it passes.`\
+https://nytimes.com/reuters/2020/06/12/business/12reuters-alpiq-knightvinke.html?searchResultPosition=9
 
-**As Brazil's COVID-19 Deaths Surge, WHO Says Hospital System Coping**\
-`Brazil's COVID-19 death toll is on track to overtake Britain on Friday to become the second highest in the world with over 40,000 dead, but the World Health Organization said the nation's health system was standing up to the pressure.`\
-https://nytimes.com/reuters/2020/06/12/world/americas/12reuters-health-coronavirus-brazil.html?searchResultPosition=10
+**Brazil Drops Police From Human Rights Report Amid Global Protests Against Racism and Abuse**\
+`Brazil has excluded complaints of police violence from an annual human rights report, sparking allegations on Friday of a cover-up amid global outrage over racial injustice and use of excessive force by law enforcement. `\
+https://nytimes.com/reuters/2020/06/12/world/americas/12reuters-brazil-violence.html?searchResultPosition=10
 
