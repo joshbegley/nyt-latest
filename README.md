@@ -22,7 +22,7 @@ https://nytimes.com/2020/06/13/opinion/sunday/women-leaders-coronavirus.html?sea
 `The landmark 1965 immigration law prioritized family ties, but originally as a way to keep America white.`\
 https://nytimes.com/2020/06/13/sunday-review/immigration-history-us.html?searchResultPosition=9
 
-**An Anti-Trump Slam Dunk**\
-`On the issue of race, America’s Coach boxes out America’s Cretin.`\
-https://nytimes.com/2020/06/13/opinion/sunday/gregg-popovich-trump-nba-protests.html?searchResultPosition=10
+**It’s Trump’s Revolution**\
+`His supporters wanted a bulwark against liberalism. But his failed presidency is pushing the country to the left.`\
+https://nytimes.com/2020/06/13/opinion/trump-presidency.html?searchResultPosition=10
 
