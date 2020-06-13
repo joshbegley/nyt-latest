@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/06/13/sports/golf/13reuters-golf-ftworth.html?s
 `The son of Hall of Famer Kareem Abdul-Jabbar was arrested earlier this week after allegedly stabbing his neighbor multiple times.`\
 https://nytimes.com/reuters/2020/06/13/sports/13reuters-basketball-nba-abdul-jabbar.html?searchResultPosition=8
 
-**Paris Marchers Decry Racism, Far Right Rallies in London**\
+**Paris Marchers Decry Racism; Far Right Rallies in London**\
 `Paris riot police fired tear gas Saturday to disperse a largely peaceful but unauthorized protest of police brutality and entrenched racism, as France’s minorities increasingly push back against a national doctrine of colorblindness that has failed to eradicate discrimination.`\
 https://nytimes.com/aponline/2020/06/13/world/europe/ap-euamerica-protests-europe.html?searchResultPosition=9
 
