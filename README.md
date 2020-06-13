@@ -22,7 +22,7 @@ https://nytimes.com/2020/06/13/sports/tommie-smith-protest-colin-kaepernick.html
 `Police in Slovenia briefly detained seven people who they said attempted to pull down a security fence around the parliament building during the latest in a series of anti-government protests.`\
 https://nytimes.com/aponline/2020/06/13/world/europe/ap-eu-slovenia-protest.html?searchResultPosition=9
 
-**Activists Cite Tabulation Flaw in Mail-In Ballots in Georgia**\
-`Faulty software or poorly calibrated vote-tabulation scanners used to count mailed-in ballots in this week's chaotic Georgia primary may have prevented thousands of votes from being counted, election officials and voting integrity activists say.`\
-https://nytimes.com/aponline/2020/06/13/business/ap-us-georgia-election-uncounted-votes.html?searchResultPosition=10
+**UK Supports International Court After Trump Approves Sanctions**\
+`Britain said on Saturday the International Criminal Court should be able to work independently, without fear of sanction, two days after U.S. President Donald Trump approved economic and travel sanctions against some of its employees. `\
+https://nytimes.com/reuters/2020/06/13/world/asia/13reuters-warcrimes-afghanistan-trump-britain.html?searchResultPosition=10
 
