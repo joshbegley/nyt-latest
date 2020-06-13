@@ -1,28 +1,28 @@
+**Golf: McIlroy Makes Some Noise at Colonial**\
+`Rory McIlroy's seven-under-par 63 in the second round at Colonial on Friday suggests he has adjusted to golf without the galleries, though the world No. 1 says the silence that meets his birdie putts took some getting used to. `\
+https://nytimes.com/reuters/2020/06/13/sports/golf/13reuters-golf-ftworth-mcilroy.html?searchResultPosition=4
+
 **The Teachings of the Philosopher of the Black Forest**\
 `Christian Streich, the coach of unassuming Freiburg, acts as German soccer’s unofficial social conscience. The Bundesliga’s recent stoppage gave him a chance to reflect on his relationship with his sport.`\
-https://nytimes.com/2020/06/13/sports/soccer/bundesliga-freiburg-streich.html?searchResultPosition=4
+https://nytimes.com/2020/06/13/sports/soccer/bundesliga-freiburg-streich.html?searchResultPosition=5
 
 **Five Dead in Latest Flooding in Southern China Rainstorms**\
 `Rainstorms have killed five more people in a southern Chinese region already reeling from heavy flooding over the past week.`\
-https://nytimes.com/aponline/2020/06/13/world/asia/ap-as-china-flooding.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/13/world/asia/ap-as-china-flooding.html?searchResultPosition=6
 
 **Report: Irving Asks NBA Players to Sit as Protest of Racism**\
 `Brooklyn Nets star Kyrie Irving reportedly opposes the NBA restart plan, and he lobbied fellow players on Friday to sit out the scheduled resumption of play as a protest against racism, multiple media outlets reported.`\
-https://nytimes.com/reuters/2020/06/13/sports/basketball/13reuters-basketball-nba-irving-protest.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/06/13/sports/basketball/13reuters-basketball-nba-irving-protest.html?searchResultPosition=7
 
 **CVS Joins Walmart in Keeping Multicultural Beauty Products Out of Locked Cabinets**\
 `Drugstore chain CVS Health Corp joined Walmart Inc in announcing it will stop keeping beauty and personal care products designed for people of color in locked display cases, after the practice drew criticism online.`\
-https://nytimes.com/reuters/2020/06/13/business/13reuters-cvs-health-policy.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/06/13/business/13reuters-cvs-health-policy.html?searchResultPosition=8
 
 **Lives Lost: Weatherman Built Career on Skills Learned in War**\
 `Robert Fleury knew he wanted to serve his country when he was a teenager, so he signed up for one of the most remote assignments in World War II — tracking the weather for the U.S. Navy in the frigid Aleutian Islands off Alaska.`\
-https://nytimes.com/aponline/2020/06/13/us/ap-us-virus-outbreak-lives-lost-maine-weatherman.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/06/13/us/ap-us-virus-outbreak-lives-lost-maine-weatherman.html?searchResultPosition=9
 
 **Beijing District in 'Wartime Emergency' After Virus Spike Shuts Market**\
 `A district of Beijing was on a "wartime" footing and the capital banned tourism on Saturday after a cluster of novel coronavirus infections centred around a major wholesale market sparked fears of a new wave of COVID-19.`\
-https://nytimes.com/reuters/2020/06/13/world/asia/13reuters-health-coronavirus-beijing.html?searchResultPosition=9
-
-**Kudlow Says White House Not Concerned About a Second Coronavirus Wave: WSJ**\
-`White House economic adviser Larry Kudlow said on Friday the administration of U.S. President Donald Trump is not concerned about a second wave of coronavirus cases, the Wall Street Journal reported.`\
-https://nytimes.com/reuters/2020/06/13/business/13reuters-health-coronavirus-usa-kudlow.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/13/world/asia/13reuters-health-coronavirus-beijing.html?searchResultPosition=10
 
