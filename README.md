@@ -1,28 +1,28 @@
-**China Sentences Australian to Death in Fresh Blow to Relations**\
-`An Australian man has been sentenced to death in China, authorities said on Saturday, a development that could further escalate tensions between the two countries.`\
-https://nytimes.com/reuters/2020/06/13/world/asia/13reuters-australia-china-drugtrafficking-sentence.html?searchResultPosition=4
+**Indonesia Reports 1,014 New COVID-19 Cases, 43 Deaths**\
+`Indonesia reported on Saturday 1,014 new coronavirus infections and 43 more deaths, taking the total number of cases to 37,420 and fatalities to 2,091, health ministry official Achmad Yurianto said.`\
+https://nytimes.com/reuters/2020/06/13/world/asia/13reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=4
 
-**AP PHOTOS: Nursing Home Residents Allowed Comfort of Family**\
-`After more than three months of separation and worry, loved ones are being allowed to reunite with residents of the Martino Zanchi Foundation nursing home in the northern Italian town of Alzano. `\
-https://nytimes.com/aponline/2020/06/13/world/europe/ap-eu-virus-outbreak-italy-nursing-home-reunions-photo-gallery.html?searchResultPosition=5
+**Too Close for Comfort, and the Virus, in Russia’s Communal Apartments**\
+`Riding out a virus lockdown in an apartment shared with 20 or so other people is about as unpleasant as it would seem. Along with the virus, “a silent paranoia” spreads.`\
+https://nytimes.com/2020/06/13/world/europe/coronavirus-russia-communal.html?searchResultPosition=5
 
-**8 Are Shot in San Antonio by Man Claiming to Be U.F.C. Fighter**\
-`The man, who said he was part of the Ultimate Fighting Championship, had been turned away from a bar, the police said. None of the victims’ injuries were said to be life-threatening.`\
-https://nytimes.com/2020/06/13/us/san-antonio-shooting-ufc-fighter.html?searchResultPosition=6
+**‘It’s Something I Wanted to Carry With Me’: Marking a Movement in Ink**\
+`After the death of George Floyd and the protests that followed, three women speak about why they wanted to memorialize this moment by getting tattoos.`\
+https://nytimes.com/2020/06/13/us/george-floyd-protests-tattoos.html?searchResultPosition=6
 
-**Philippines Records 607 New Coronavirus Cases, 22 New Deaths**\
-`The Philippines' health ministry reported 607 new coronavirus infections and 22 more deaths on Saturday, taking the total number of cases to 25,392 and fatalities to 1,074.`\
-https://nytimes.com/reuters/2020/06/13/world/asia/13reuters-health-coronavirus-philippines-cases.html?searchResultPosition=7
+**The Economy Is Reeling. The Tech Giants Spy Opportunity.**\
+`Many companies are retreating. But Amazon, Apple, Facebook, Google and Microsoft are placing bets to get even bigger.`\
+https://nytimes.com/2020/06/13/technology/facebook-amazon-apple-google-microsoft-tech-pandemic-opportunity.html?searchResultPosition=7
 
-**U.S.'s Pompeo to Meet China's Top Diplomat in Hawaii Seeking to Ease Tensions: Media**\
-`U.S. Secretary of State Mike Pompeo will meet China's top diplomat Yang Jiechi in Hawaii, trying to ease tensions between the world's two largest economies over various issues, according to media reports.`\
-https://nytimes.com/reuters/2020/06/13/world/asia/13reuters-usa-china-pompeo.html?searchResultPosition=8
+**In Every Corner of Bangkok, Spirits Need a Home and Maybe a Strawberry Fanta**\
+`Across Thailand’s crowded capital, there are spirits who must be placated with a comfy place to live. The coronavirus is no excuse to cut back on the coddling.`\
+https://nytimes.com/2020/06/13/world/asia/bangkok-spirit-houses.html?searchResultPosition=8
 
-**Hundreds Protest Against Nepal's Coronavirus Response; 7 Foreigners Arrested**\
-`Police in Nepal arrested 10 people, including seven foreigners, on Saturday as demonstrations against the government's handling of the coronavirus crisis continued with hundreds of protesters gathering in the capital city Kathmandu, officials said.`\
-https://nytimes.com/reuters/2020/06/13/world/asia/13reuters-health-coronavirus-nepal.html?searchResultPosition=9
+**Young New Yorkers Want You to Know Why They’re Marching**\
+`No longer, they say, could they just post on Instagram, or just give money, or just vote. They needed to be out in the streets.`\
+https://nytimes.com/2020/06/13/nyregion/nyc-protests-george-floyd.html?searchResultPosition=9
 
-**Russia's Coronavirus Cases Pass 520,000**\
-`Russia on Saturday reported 8,706 new coronavirus cases, bringing its cumulative infection tally to 520,129.`\
-https://nytimes.com/reuters/2020/06/13/world/europe/13reuters-health-coronavirus-russia-cases.html?searchResultPosition=10
+**Inside Biden’s Vice-Presidential Search: Who’s on the List and Where It Stands**\
+`The search committee is conducting interviews and seeking private documents, and prospects like Val Demings and Keisha Lance Bottoms are getting a closer look as political currents influence the search.`\
+https://nytimes.com/2020/06/13/us/politics/joe-biden-vice-president.html?searchResultPosition=10
 
