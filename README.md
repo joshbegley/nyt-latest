@@ -1,28 +1,28 @@
-**25 Years Ago, the Baltimore Stallions Ruled the CFL**\
-`Twenty-five years ago, the Baltimore Stallions become the first and only U.S. team to win the Canadian Football League title.`\
-https://nytimes.com/aponline/2020/06/13/sports/ap-fbo-cfl-baltimore-anniversary.html?searchResultPosition=4
+**U.S. CDC Reports 2,038,344 Coronavirus Cases**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Saturday reported 2,038,344 cases of the new coronavirus, an increase of 22,317 cases from its previous count, and said that the number of deaths had risen by 711 to 114,625.`\
+https://nytimes.com/reuters/2020/06/13/us/13reuters-health-coronavirus-usa-cdc.html?searchResultPosition=4
 
-**Daily Turkish Coronavirus Cases Rise to 1,459**\
-`The number of new coronavirus cases in Turkey rose to 1,459 in the last 24 hours from 1,195 a day earlier, Health Ministry data showed on Saturday, increasing after travel restrictions were lifted and facilities reopened at the start of the month.`\
-https://nytimes.com/reuters/2020/06/13/world/europe/13reuters-health-coronavirus-turkey.html?searchResultPosition=5
+**Death Toll in Migrant Ship Disaster Off Tunisia Rises to 61**\
+`The death toll from a ship packed with African migrants that sank off the Tunisian coast this week has risen to 61, a local official said on Saturday.`\
+https://nytimes.com/reuters/2020/06/13/world/africa/13reuters-tunisia-migrants.html?searchResultPosition=5
 
-**Brazil President Embraces Unproven ‘Cure’ as Pandemic Surges**\
-`President Jair Bolsonaro hailed hydroxychloroquine as a godsend while he railed against quarantine measures and other best practices, undermining the country’s coronavirus response.`\
-https://nytimes.com/2020/06/13/world/americas/virus-brazil-bolsonaro-chloroquine.html?searchResultPosition=6
+**In London Skirmishes, Suspected Far-Right Protester Is Rescued**\
+`A man identified by the crowd as a far-right protester was carried to safety on Saturday as animosity was briefly set aside on a day of clashes in London between police and rival groups. `\
+https://nytimes.com/reuters/2020/06/13/us/13reuters-minneapolis-police-protests-britain-violence.html?searchResultPosition=6
 
-**Chile President Replaces Health Minister Amid COVID-19 Deaths Controversy**\
-`Chile President Sebastian Pinera on Saturday replaced Health Minister Jaime Manalich amid controversy over the country's figures for deaths from the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/06/13/world/americas/13reuters-chile-politics-reshuffle.html?searchResultPosition=7
+**Are Nations Safer When Women Lead?**\
+`Rates of coronavirus deaths are far lower in many female-led countries.`\
+https://nytimes.com/2020/06/13/opinion/sunday/women-leaders-coronavirus.html?searchResultPosition=7
 
-**The End of Black Politics**\
-`Our best leaders are organizers and workers — not elected officials.`\
-https://nytimes.com/2020/06/13/opinion/sunday/black-politicians-george-floyd-protests.html?searchResultPosition=8
+**The Surprising Origin of Our Modern Nation of Immigrants**\
+`The landmark 1965 immigration law prioritized family ties, but originally as a way to keep America white.`\
+https://nytimes.com/2020/06/13/sunday-review/immigration-history-us.html?searchResultPosition=8
 
-**Governor Has Role in Davis Statue's Removal From Capitol**\
-`Having led the push to take down a statue of Jefferson Davis from the Kentucky Capitol, the state's governor had a ceremonial role Saturday in its removal from the place it stood for decades.`\
-https://nytimes.com/aponline/2020/06/13/us/ap-us-jefferson-davis-statue-kentucky.html?searchResultPosition=9
+**An Anti-Trump Slam Dunk**\
+`On the issue of race, America’s Coach boxes out America’s Cretin.`\
+https://nytimes.com/2020/06/13/opinion/sunday/gregg-popovich-trump-nba-protests.html?searchResultPosition=9
 
-**Trump to West Point Grads: 'We Are Ending the Era of Endless Wars'**\
-`President Donald Trump, facing criticism in recent days for plans to withdraw thousands of U.S. troops from Germany, told West Point's graduating class on Saturday that their job will be to defend “America’s vital interests” and not fight “endless wars” in faraway lands.`\
-https://nytimes.com/reuters/2020/06/13/world/europe/13reuters-usa-trump-wars.html?searchResultPosition=10
+**It’s Trump’s Revolution**\
+`His supporters wanted a bulwark against liberalism. But his failed presidency is pushing the country to the left.`\
+https://nytimes.com/2020/06/13/opinion/trump-presidency.html?searchResultPosition=10
 
