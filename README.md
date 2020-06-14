@@ -1,4 +1,4 @@
-**Black Man Carries Suspected Far-Right Protester to Safety**\
+**A Picture and Its Story: Black Man Carries Suspected Far-Right Protester to Safety**\
 `"That's not what we do!"`\
 https://nytimes.com/reuters/2020/06/14/world/europe/14reuters-minneapolis-police-protests-britain-image-widerimage.html?searchResultPosition=4
 
