@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/06/14/world/americas/14reuters-brazil-politics.
 `The president also appeared to have trouble raising a glass of water to his mouth during a speech at West Point a day before he turned 74, the oldest a president has been in his first term.`\
 https://nytimes.com/2020/06/14/us/politics/trump-ramp-water-glass-health.html?searchResultPosition=9
 
-**France's Macron Says Restaurants to Reopen in Paris**\
-`French President Emmanuel Macron said on Sunday that mainland France would go into a so-called "green zone" from Monday with restaurants reopening in Paris as the country has been gradually exiting a strict lockdown due to the coronavirus since May 11.`\
+**Macron Says France Accelerating Easing of Lockdown Restrictions**\
+`French President Emmanuel Macron said on Sunday said he was accelerating plans to ease the country's coronavirus lockdown to revive the euro zone's second biggest economy more swiftly.`\
 https://nytimes.com/reuters/2020/06/14/world/europe/14reuters-health-coronavirus-france-macron.html?searchResultPosition=10
 
