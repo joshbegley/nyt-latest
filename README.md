@@ -1,28 +1,28 @@
+**More People Will Be Fired in the Pandemic. Let’s Talk About It.**\
+`For starters, don’t do it on Zoom. And consider not doing it at all.`\
+https://nytimes.com/2020/06/14/opinion/layoffs-coronavirus-economy.html?searchResultPosition=4
+
+**UK PM Johnson Defends Churchill, Criticises 'Distortion of Our History': Telegraph**\
+`Prime Minister Boris Johnson said that Britain cannot "photoshop" its cultural landscape and complex history as doing so would be a distortion of its past, amid an ongoing row over the removal of statues of historical figures.`\
+https://nytimes.com/reuters/2020/06/14/world/europe/14reuters-minneapolis-police-protests-britain-statues.html?searchResultPosition=5
+
+**Upright Citizens Brigade to Overhaul Its Leadership**\
+`Amy Poehler other founders of this struggling bicoastal comedy incubator say they want to hand over its theaters to a diverse board that would address issues of systemic racism and inequality.`\
+https://nytimes.com/2020/06/14/theater/upright-citizens-brigade-reorganizing.html?searchResultPosition=6
+
+**Lopez Expects Significant Cuts to Prizemoney**\
+`Significant reductions in prize money will be the new reality for tennis players when the ATP and WTA Tours resume, according to Spanish veteran Feliciano Lopez.`\
+https://nytimes.com/reuters/2020/06/14/sports/tennis/14reuters-tennis-lopez.html?searchResultPosition=7
+
 **An Insatiable Rage**\
 `It is an everyday struggle to neither fall into despair nor explode in anger.`\
-https://nytimes.com/2020/06/14/opinion/us-protests-racism.html?searchResultPosition=4
+https://nytimes.com/2020/06/14/opinion/us-protests-racism.html?searchResultPosition=8
 
 **Pilgrim's Pride CEO Takes Leave to Focus on Legal Defense**\
 `Pilgrim’s Pride Corp. said Sunday that Jayson Penn, its president and CEO, is taking a leave of absence to focus on his defense in a price fixing indictment. `\
-https://nytimes.com/aponline/2020/06/14/us/bc-us-pilgrims-pride-ceo-leave.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/14/us/bc-us-pilgrims-pride-ceo-leave.html?searchResultPosition=9
 
 **McIlroy Rues Missed Chance After Bad Start at Colonial**\
 `Rory McIlroy came into the PGA Tour's first tournament back from a three-month COVID-19 break as the favourite to win but after a number of miscues in the final round on Sunday the Northern Irishman was not even the highest-placed Rory in the field.`\
-https://nytimes.com/reuters/2020/06/14/sports/golf/14reuters-golf-ftworth-mcilroy.html?searchResultPosition=6
-
-**Visitors to UK Shops Remained More Than 80% Lower in May**\
-`Numbers of shoppers in Britain's high streets, retail parks and shopping centres in May were 81.6% lower that the same month a year ago as most non-food stores remained closed due to the coronavirus lockdown, the British Retail Consortium (BRC) said.`\
-https://nytimes.com/reuters/2020/06/14/us/14reuters-health-coronavirus-britain-footfall.html?searchResultPosition=7
-
-**English Property Sales Rebound After Lockdown Ends: Rightmove**\
-`Estate agents in England have seen a rebound in house sales since the government eased coronavirus lockdown restrictions on May 13, property website Rightmove said on Monday.`\
-https://nytimes.com/reuters/2020/06/14/world/europe/14reuters-health-coronavirus-britain-houseprices.html?searchResultPosition=8
-
-**EasyJet Resumes Flying With COVID-19 Measures in Place**\
-`EasyJet aircraft will take to the skies on Monday for the first time since March 30, as the British carrier resumes a small number of mainly domestic flights after weeks of lockdown. `\
-https://nytimes.com/reuters/2020/06/14/business/14reuters-health-coronavirus-easyjet.html?searchResultPosition=9
-
-**Unilever to Invest 1 Billion Euros in Climate Change Fund Over 10 Years**\
-`Unilever Plc said on Monday it will invest 1 billion euros in a fund to invest in climate change projects and reduce to net zero greenhouse gas emissions from all its products by 2039, 11 years ahead of the Paris Agreement deadline.`\
-https://nytimes.com/reuters/2020/06/14/business/14reuters-climatechange-unilever.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/14/sports/golf/14reuters-golf-ftworth-mcilroy.html?searchResultPosition=10
 
