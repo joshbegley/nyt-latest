@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/06/13/sports/basketball/13reuters-basketball-nb
 https://nytimes.com/2020/06/13/us/chad-daybell-stepchildren.html?searchResultPosition=6
 
 **Schauffele Leads Colonial Over Host of Stars in Tour Return**\
-`The quiet of Colonial made Xander Schauffele feel as though he were back home in San Diego playing with his friends. In this case, his buddies happen to be some of the biggest stars in golf.`\
+`The PGA Tour went three months without playing. It took three days to show fans what they were missing, even if all they could do was watch on TV.`\
 https://nytimes.com/aponline/2020/06/13/sports/golf/ap-glf-colonial.html?searchResultPosition=7
 
 **Atlanta Police Shoot Man Outside a Wendy’s**\
