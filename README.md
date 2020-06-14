@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/06/14/world/europe/14reuters-minneapolis-police
 https://nytimes.com/2020/06/14/business/coronavirus-second-wave.html?searchResultPosition=6
 
 **Popular Bollywood Actor Sushant Singh Rajput, 34, Found Dead**\
-`Popular Bollywood actor Sushant Singh Rajput was found dead at his Mumbai residence on Sunday, Press Trust of India news agency and other media outlets reported.`\
+`Popular Bollywood actor Sushant Singh Rajput was found dead at his Mumbai residence on Sunday, police and Indian media reports said.`\
 https://nytimes.com/aponline/2020/06/14/world/asia/ap-as-india-bollywood-actor.html?searchResultPosition=7
 
 **Putin Says Russia Will Be Able to Counter Hypersonic Weapons**\
