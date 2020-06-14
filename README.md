@@ -23,6 +23,6 @@ https://nytimes.com/reuters/2020/06/14/world/europe/14reuters-health-virus-brita
 https://nytimes.com/2020/06/14/world/asia/afghanistan-coronavirus.html?searchResultPosition=9
 
 **Minneapolis Officers Quit in Wake of George Floyd Protests**\
-`By The Associated Press`\
+`At least seven Minneapolis police officers have quit and another seven are in the process of resigning, citing a lack of support from department and city leaders as protests over George Floyd's death escalated.`\
 https://nytimes.com/aponline/2020/06/14/us/ap-us-america-protests-minneapolis-police-resignations.html?searchResultPosition=10
 
