@@ -1,10 +1,10 @@
-**Australia 'Disheartened' by Death Sentence in China**\
-`Australia on Sunday described as “deeply disheartening” a death sentence China imposed on an Australian man accused of drug smuggling, and the trade minister said it shouldn’t be linked to ongoing friction over trade and the pandemic. `\
-https://nytimes.com/aponline/2020/06/13/world/asia/ap-as-australia-china-death-sentence.html?searchResultPosition=4
-
 **China Reports 57 New Confirmed, 9 Asymptomatic COVID-19 Cases for June 13**\
 `China reported 57 new confirmed COVID-19 cases for June 13, the highest since April 13, according to data released by the national health authority on Sunday.`\
-https://nytimes.com/reuters/2020/06/13/world/asia/13reuters-health-coronavirus-china-cases.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/13/world/asia/13reuters-health-coronavirus-china-cases.html?searchResultPosition=4
+
+**Australia 'Disheartened' by Death Sentence in China**\
+`Australia on Sunday described as “deeply disheartening” a death sentence China imposed on an Australian man accused of drug smuggling, and the trade minister said it shouldn’t be linked to ongoing friction over trade and the pandemic. `\
+https://nytimes.com/aponline/2020/06/13/world/asia/ap-as-australia-china-death-sentence.html?searchResultPosition=5
 
 **New Orleans Protesters Pull Down Bust, Throw It in River**\
 `Protesters Saturday tore down a bust of a slave owner who left part of his fortune to New Orleans' schools and then took the remains to the Mississippi River and rolled it down the banks into the water.`\
