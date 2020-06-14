@@ -1,28 +1,28 @@
+**Sudan Extends Airport Closures by Another Two Weeks Due to Coronavirus**\
+`Sudan will keep its airports closed to international and internal scheduled commercial flights for another two weeks until June 28, a spokesman for the country's civil aviation authority told Reuters on Sunday.`\
+https://nytimes.com/reuters/2020/06/14/world/africa/14reuters-health-coronavirus-sudan.html?searchResultPosition=4
+
+**Record Spikes in New Coronavirus Cases, Hospitalizations Sweep Parts of U.S.**\
+`New coronavirus cases and hospitalizations in record numbers swept through more U.S. states, including Florida and Texas, as most push ahead with reopening and President Donald Trump plans an indoor rally in Tulsa, Oklahoma. `\
+https://nytimes.com/reuters/2020/06/14/us/14reuters-health-coronavirus-usa.html?searchResultPosition=5
+
+**Atlético Madrid Held Again on Return to Spanish League**\
+`Atlético Madrid’s struggles continued as its season resumed with a 1-1 draw at Athletic Bilbao on Sunday for its third straight draw in the Spanish league.`\
+https://nytimes.com/aponline/2020/06/14/sports/soccer/ap-soc-spanish-roundup.html?searchResultPosition=6
+
 **Lone Black Republican Senator Says He Is Open to 'Decertification' of Bad Police**\
 `Tim Scott, the only black Republican member of the U.S. Senate, said on Sunday he is open to exploring whether to enact a new law that would decertify bad police officers as part of a larger law enforcement reform package.`\
-https://nytimes.com/reuters/2020/06/14/us/14reuters-minneapolis-police-congress.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/14/us/14reuters-minneapolis-police-congress.html?searchResultPosition=7
 
 **A Canal That Opened the Montana Prairie May Soon Dry Up**\
 `An early 20th-century federal water project irrigated the prairie to create farms and towns in eastern Montana. But it needs a $200 million overhaul.`\
-https://nytimes.com/2020/06/14/us/montana-water-milk-river.html?searchResultPosition=5
+https://nytimes.com/2020/06/14/us/montana-water-milk-river.html?searchResultPosition=8
 
 **China Sentences Australian to Death in Fresh Blow to Relations**\
 `An Australian man has been sentenced to death in China, authorities said on Saturday, a development that could further escalate tensions between the two countries.`\
-https://nytimes.com/reuters/2020/06/14/world/asia/14reuters-australia-china-drugtrafficking-sentence.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/06/14/world/asia/14reuters-australia-china-drugtrafficking-sentence.html?searchResultPosition=9
 
 **Legacy of Late Italian Journalist Stained by Colonial Past**\
 `Milan’s mayor on Sunday resisted calls to remove a statue from a public park of a late Italian journalist who had acknowledged having had a 12-year-old Eritrean bride during Italy’s colonial occupation in the 1930s.`\
-https://nytimes.com/aponline/2020/06/14/world/europe/ap-eu-italy-journalist-statue-defaced.html?searchResultPosition=7
-
-**What to Cook This Week**\
-`Find comfort in lamb biryani, a lentil-orzo stew, or a feta-brined roast chicken.`\
-https://nytimes.com/2020/06/14/dining/what-to-cook-this-week.html?searchResultPosition=8
-
-**Spain Plans 3.7 Billion Euro Auto Sector Aid Package, Says PM**\
-`Spain plans a 3.7 billion euro aid package for its automobile sector, hit hard by the coronavirus pandemic, to promote investment and the purchase of vehicles, specially electric models, Prime Minister Pedro Sanchez said on Sunday.`\
-https://nytimes.com/reuters/2020/06/14/world/europe/14reuters-spain-autos.html?searchResultPosition=9
-
-**Iran's Daily Virus Death Toll Tops 100 for First Time in Two Months**\
-`The number of daily deaths from the new coronavirus outbreak topped 100 in Iran for the first time in two months on Sunday, according to health ministry numbers.`\
-https://nytimes.com/reuters/2020/06/14/world/middleeast/14reuters-health-coronavirus-iran.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/14/world/europe/ap-eu-italy-journalist-statue-defaced.html?searchResultPosition=10
 
