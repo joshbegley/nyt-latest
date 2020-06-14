@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/06/13/world/americas/13reuters-health-coronavirus-mexico-tally.html?searchResultPosition=4
 
 **Baseball Players Say Talks Futile, Tell MLB to Order Return**\
-`Baseball players told Major League Baseball additional talks to start the season during the coronavirus pandemic are futile and said owners should order a return to work, which likely would spark lengthy litigation and the sport's return to labor wars.`\
+`Baseball players told Major League Baseball additional talks to start the season during the coronavirus pandemic are pointless and said owners should order a return to work, which likely would spark lengthy litigation and the sport's return to labor wars.`\
 https://nytimes.com/aponline/2020/06/13/sports/baseball/ap-bbo-virus-outbreak-mlb.html?searchResultPosition=5
 
 **Buffalo Teen Who Cleaned Up After Protests Gets Job Offer**\
