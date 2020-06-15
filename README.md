@@ -1,28 +1,28 @@
+**Futures Drop on Fears of Fresh Virus Wave**\
+`U.S. stock index futures tumbled on Monday as a recent jump in coronavirus cases in China and parts of the United States doused investor hopes of a quick economic rebound that had powered the Nasdaq to record levels last week.`\
+https://nytimes.com/reuters/2020/06/15/business/15reuters-usa-stocks.html?searchResultPosition=4
+
+**KBR Gets $570 Million Contract From NASA**\
+`U.S. engineering company KBR Inc said on Monday it had been awarded a $570.3 million contract by NASA to develop and execute spaceflight operations at Marshall Space Flight Center in Huntsville, Alabama. `\
+https://nytimes.com/reuters/2020/06/15/us/15reuters-kbr-nasa.html?searchResultPosition=5
+
+**'Avatar' Sequel Resumes Filming in Coronavirus-Free New Zealand**\
+`Filming the sequel of James Cameron's sci-fi blockbuster "Avatar" will bring hundreds of jobs and millions of dollars to New Zealand after it ended its coronavirus outbreak, the film's producer told media as production resumed on Monday.`\
+https://nytimes.com/reuters/2020/06/15/arts/15reuters-health-coronavirus-newzealand-avatar.html?searchResultPosition=6
+
+**Kremlin Says Russia Will Not Tolerate Unfriendly Gestures Amid Czech Diplomacy Row**\
+`The Kremlin on Monday said it would not tolerate unfriendly gestures, when asked about Moscow's expulsion of two Czech diplomats, a reciprocal move in response to two of Russia's diplomatic staff being expelled from Prague earlier in June.  `\
+https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-czech-russia-kremlin.html?searchResultPosition=7
+
 **Coronavirus Breaches Chinese Capital, Rattling Officials**\
 `Disease experts said limited bursts of infections were likely to become part of the “new normal” for China.`\
-https://nytimes.com/2020/06/15/world/asia/beijing-coronavirus-outbreak.html?searchResultPosition=4
+https://nytimes.com/2020/06/15/world/asia/beijing-coronavirus-outbreak.html?searchResultPosition=8
 
 **Israeli Supreme Court Judge Says She Got Threatening Letter**\
 `An Israeli Supreme Court judge complained to police that she had received a threatening letter, the court said Monday. Israeli media reported she was given a security team for protection.`\
-https://nytimes.com/aponline/2020/06/15/world/middleeast/ap-ml-israel-judge-threatened.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/15/world/middleeast/ap-ml-israel-judge-threatened.html?searchResultPosition=9
 
 **Norway to Halt COVID-19 Track and Trace App on Data Protection Concerns**\
 `Norway will halt its COVID-19 track and trace app and delete all data collected so far after criticism from the Norwegian Data Protection Authority, the Norwegian Institute of Public Health (NIPH) said on Monday.`\
-https://nytimes.com/reuters/2020/06/15/technology/15reuters-health-coronavirus-norway-apps.html?searchResultPosition=6
-
-**U.S. Fighter Plane Crashes Off Coast of Northeast England**\
-`A U.S. fighter plane crashed in the North Sea off the coast of northeast England on Monday with the fate of the pilot and the cause of the crash unknown, the Sun newspaper reported, citing a U.S. Air Force statement. `\
-https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-britain-usa-airplane.html?searchResultPosition=7
-
-**Factbox: Latest on the Worldwide Spread of the Coronavirus**\
-`Several districts of the Chinese capital set up security checkpoints, closed schools and ordered people to be tested for the coronavirus on Monday after an unexpected spike of cases linked to the biggest wholesale food market in Asia.`\
-https://nytimes.com/reuters/2020/06/15/world/asia/15reuters-health-coronavirus-latest-factbox.html?searchResultPosition=8
-
-**Beirut's Nightlife on the Brink as Pandemic Compounds Financial Crisis**\
-`Beirut loves to party, even when the going gets tough. Which is often. The city and its nightlife has weathered wars, bombing campaigns and assassinations, and prides itself on always bouncing back. `\
-https://nytimes.com/reuters/2020/06/15/world/middleeast/15reuters-lebanon-crisis-nightlife.html?searchResultPosition=9
-
-**US Air Force Plane Crashes Into North Sea**\
-`A U.S. Air Force fighter plane with one pilot on board crashed into the North Sea on Monday. The status of the pilot wasn't known. `\
-https://nytimes.com/aponline/2020/06/15/world/europe/ap-eu-britain-us-fighter-crash.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/15/technology/15reuters-health-coronavirus-norway-apps.html?searchResultPosition=10
 
