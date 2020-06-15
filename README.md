@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-health-coronavirus-hiscox.html?searchResultPosition=4
 
 **Civil Rights Law Protects Gay and Transgender Workers, Supreme Court Rules**\
-`The court said the language of the Civil Rights Act of 1964, which prohibits sex discrimination, applies to discrimination based on sexual orientation and transgender status.`\
+`The court said the language of the Civil Rights Act of 1964, which prohibits sex discrimination, applies to discrimination based on sexual orientation and gender identity.`\
 https://nytimes.com/2020/06/15/us/gay-transgender-workers-supreme-court.html?searchResultPosition=5
 
 **Irish Debt Agency Chief Warns on Longer Term Borrowing**\
