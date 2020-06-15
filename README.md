@@ -1,24 +1,24 @@
-**The Strange Revival of the Religious Relic Trade**\
-`What does a supposedly secular world want with the creepy (and probably fake) remains of medieval saints?`\
-https://nytimes.com/2020/06/15/opinion/relics-religion.html?searchResultPosition=5
+**WNBA Plans to Play 2020 Season in Florida Starting Late July**\
+`The WNBA has announced plans to play a reduced season, with a 22-game schedule that would begin in late July without fans in attendance.`\
+https://nytimes.com/aponline/2020/06/15/sports/basketball/ap-bkl-wnba-season-start.html?searchResultPosition=5
 
-**U.S. Accuses Venezuela's Maduro of Seeking to Rig Upcoming Vote**\
-`The U.S. government on Monday accused Venezuelan President Nicolas Maduro of "illegally" installing a new national electoral council to oversee parliamentary elections due to take place later this year.`\
-https://nytimes.com/reuters/2020/06/15/world/americas/15reuters-venezuela-politics.html?searchResultPosition=6
+**Streaming Revolution: Protesters Make Point With Viral Clips**\
+`Hundreds of protesters marched up Manhattan’s Fifth Avenue last week, their signs and chants demanding police reform captured from within their ranks by dozens of camera phones.`\
+https://nytimes.com/aponline/2020/06/15/business/ap-us-america-protests-streaming-revolution.html?searchResultPosition=6
 
-**University of California Endorses Affirmative Action Measure**\
-`The University of California’s governing board voted Monday to unanimously support a measure to restore affirmative action programs and repeal a controversial statewide ban that has been blamed for a decline in diversity in the prestigious university system. `\
-https://nytimes.com/aponline/2020/06/15/us/ap-us-university-of-california-affirmative-action.html?searchResultPosition=7
+**W.N.B.A. and Players Agree On Plan for 22-Game Season Starting in July**\
+`Many details remain to be ironed out, but the plan calls for players who participate to receive 100 percent of their 2020 salaries.`\
+https://nytimes.com/2020/06/15/sports/basketball/wnba-season-schedule.html?searchResultPosition=7
 
-**Kansas City Police Investigate Vandalism of Memorial to Lynching Victim**\
-`The memorial to Levi Harrington, a black man killed in Kansas City, Mo., in the 1880s, had been vandalized before.`\
-https://nytimes.com/2020/06/15/us/kansas-city-lynching-memorial.html?searchResultPosition=8
+**Biden Posts Massive $81M Cash Haul for May**\
+`Joe Biden pulled in $81 million for his election effort in the month of May, a massive sum that shows the extent to which Democrats have unified behind the former vice president as he seeks to defeat Republican President Donald Trump. `\
+https://nytimes.com/aponline/2020/06/15/us/politics/ap-us-election-2020-biden-fundraising.html?searchResultPosition=8
 
-**Kyrgyzstan's Prime Minister Steps Down Over Frequencies Case**\
-`The prime minister of Kyrgyzstan has resigned amid a scandal over whether the government illegally sold radio frequencies. `\
-https://nytimes.com/aponline/2020/06/15/world/asia/ap-as-kyrgyzstan-government.html?searchResultPosition=9
+**Federal Reserve Launches Corporate Bond-Buying Program**\
+`The Federal Reserve said Monday that it will begin purchasing corporate bonds as part of a previously-announced plan to ensure companies can borrow through the bond market during the pandemic.`\
+https://nytimes.com/aponline/2020/06/15/business/bc-federal-reserve-bonds.html?searchResultPosition=9
 
-**Doping: WADA to Investigate IWF Doping Allegations**\
-`The World Anti-Doping Agency (WADA) has begun an investigation into doping violations after an inquiry led by Richard McLaren uncovered 40 positive adverse analytical findings hidden in the International Weightlifting Federation (IWF) records.`\
-https://nytimes.com/reuters/2020/06/15/sports/olympics/15reuters-sport-doping-weightlifting.html?searchResultPosition=10
+**WhatsApp Starts Payments in Brazil: Sign of Things to Come?**\
+`Facebook’s WhatsApp chat platform is launching mobile payments in Brazil, a country often used to test out new services because of its large online population. `\
+https://nytimes.com/aponline/2020/06/15/business/ap-us-whatsapp-brazil-payments.html?searchResultPosition=10
 
