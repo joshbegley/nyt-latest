@@ -1,28 +1,28 @@
+**Russia Sentences Ex-U.S. Marine Paul Whelan to 16 Years in Jail for Espionage**\
+`A Russian court found ex-U.S. marine Paul Whelan guilty of spying for the United States on Monday and sentenced him to 16 years in jail after a closed trial which U.S. diplomats said was unfair and opaque.`\
+https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-russia-usa-whelan-verdict.html?searchResultPosition=4
+
+**German Economy to Contract More Sharply in Second Quarter Than in First Quarter: Ministry**\
+`Germany's economic output will fall further in the second quarter than in the first but the easing of coronavirus-related restrictions and leading indicators suggest the trough has been passed, the economy ministry said on Monday.`\
+https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-germany-economy.html?searchResultPosition=5
+
+**Pakistan’s Lockdown Ended a Month Ago. Now Hospital Signs Read ‘Full.’**\
+`Medical workers are falling ill in Pakistan at alarming rates as the country registers at least 100,000 new coronavirus cases since the lockdown was lifted.`\
+https://nytimes.com/2020/06/15/world/asia/pakistan-coronavirus-hospitals.html?searchResultPosition=6
+
+**Energy Producer BP Takes $17.5 Billion Hit as Demand Slides**\
+`Energy company BP is writing off as much as $17.5 billion from its oil and gas assets and will review its plans to develop oil wells as the COVID-19 pandemic accelerates its goal of decreasing its reliance on fossil fuels.`\
+https://nytimes.com/aponline/2020/06/15/business/bc-eu-britain-bp.html?searchResultPosition=7
+
 **Nokia Adds Broadcom as Third 5G Chip Vendor to Diversify Supply**\
 `Finland's Nokia Oyj said on Monday it had partnered with Broadcom to develop chips for 5G equipment in its third such deal following ones with Intel and Marvell.    `\
-https://nytimes.com/reuters/2020/06/15/technology/15reuters-nokia-5g-broadcom.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/15/technology/15reuters-nokia-5g-broadcom.html?searchResultPosition=8
 
 **UK's Johnson Calls Anti-Racism Commission; Critics Want More**\
 `British Prime Minister Boris Johnson has announced he will establish a commission to look at racial equality in the U.K., after two weeks of protests spurred by the death of George Floyd in Minneapolis.`\
-https://nytimes.com/aponline/2020/06/15/world/europe/ap-eu-america-protests-britain.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/15/world/europe/ap-eu-america-protests-britain.html?searchResultPosition=9
 
 **South Korea May Face a New Coronavirus Wave Without Tough Social Distancing Measures: Expert**\
 `South Korea will face another wave of coronavirus infections, with as many as 800 new cases a day by July, if the government does not introduce stricter social distancing guidelines, a prominent infectious disease specialist has warned.`\
-https://nytimes.com/reuters/2020/06/15/world/asia/15reuters-health-coronavirus-southkorea-warning.html?searchResultPosition=6
-
-**Toys, Books and Clothes: Stores Reopen Doors Across England**\
-`The hand sanitizing stations are ready, the social distance markings in place. After a three-month shutdown under coronavirus restrictions, London’s Oxford Street is ready to spring back to life — but things will not quite look or feel “normal” for the British capital’s most famous shopping street.`\
-https://nytimes.com/aponline/2020/06/15/business/ap-eu-virus-outbreak-britain-shops-reopen.html?searchResultPosition=7
-
-**Tajikistan Starts Easing COVID-19 Restrictions**\
-`Tajikistan announced on Monday the first easing of restrictions introduced due to the coronavirus pandemic, as it allowed malls, bazaars, restaurants, hotels and other service providers to reopen after a two-month shutdown.`\
-https://nytimes.com/reuters/2020/06/15/world/asia/15reuters-health-coronavirus-tajikistan.html?searchResultPosition=8
-
-**Russia Summons Czech Ambassador Amid Diplomatic Tensions: Russian News Agencies**\
-`Russia's Foreign Ministry summoned the Czech ambassador on Monday amid diplomatic tensions between Moscow and Prague, Russian news agencies reported. `\
-https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-czech-russia.html?searchResultPosition=9
-
-**Russian Court Sentences Paul Whelan, an American, to 16 Years on Spy Charges**\
-`The former Marine, who also holds British, Irish and Canadian citizenships, was arrested in December 2018 at a luxury hotel in Moscow, where he was attending a wedding.`\
-https://nytimes.com/2020/06/15/world/europe/paul-whelan-russia-spy-guilty.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/15/world/asia/15reuters-health-coronavirus-southkorea-warning.html?searchResultPosition=10
 
