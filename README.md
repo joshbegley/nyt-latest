@@ -2,7 +2,7 @@
 `What city leaders, museum officials and historians decide will have implications for how we remember the history the statues were designed to represent, as well as our current moment.`\
 https://nytimes.com/2020/06/15/arts/design/fallen-statues-what-next.html?searchResultPosition=5
 
-**A Half Century On, an Unexpected Milestone for L.G.B.T.Q. Rights**\
+**A Half-Century On, an Unexpected Milestone for L.G.B.T.Q. Rights**\
 `The Supreme Court’s surprising 6-to-3 ruling in favor of gay and transgender rights was perhaps the strongest evidence yet of how fundamentally and unpredictably American views have changed.`\
 https://nytimes.com/2020/06/15/us/politics/supreme-court-lgbtq-rights.html?searchResultPosition=6
 
