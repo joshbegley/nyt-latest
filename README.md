@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-germany-afd.html?s
 `Car sales in Indonesia plunged 95.8% in May from a year earlier to 3,551 units, industry association data cited by the country's largest auto distributor PT Astra International showed on Monday.`\
 https://nytimes.com/reuters/2020/06/15/world/asia/15reuters-indonesia-economy-autos.html?searchResultPosition=7
 
-**SoftBank Has Spent $4.7 Billion on Share Buybacks**\
-`SoftBank Group Corp has spent 499.9 billion yen ($4.66 billion) buying back 107.7 million of its shares since March, a company filing on Monday showed. `\
+**SoftBank Buybacks Pick Up in June; $4.7 Billion Spent in Total**\
+`SoftBank Group Corp share buybacks accelerated in June, with a total of 499.9 billion yen ($4.66 billion) spent on buying back 107.7 million of its shares since March, a company filing showed on Monday. `\
 https://nytimes.com/reuters/2020/06/15/business/15reuters-softbank-group-buyback.html?searchResultPosition=8
 
 **Adviser to Manchester City Owner Has Role in Newcastle Sale**\
