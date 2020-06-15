@@ -1,24 +1,24 @@
-**Defying Trump, Iran Aims to Keep Offloading Gasoline Glut to Venezuela**\
-`Iran could send two to three cargoes a month in regular gasoline sales to ally Venezuela, sources say, helping offload domestic oversupply but risking retaliation from U.S. President Donald Trump who has sanctions on both nations. `\
-https://nytimes.com/reuters/2020/06/15/world/middleeast/15reuters-iran-venezuela-gasoline.html?searchResultPosition=5
+**Report: Bezos May Testify on Big Tech, but With Other CEOs**\
+`Amazon CEO Jeff Bezos is willing to testify to the congressional panel investigating the market dominance of Big Tech, but along with other tech industry CEOs, lawyers for the company say, according to a published report Monday.`\
+https://nytimes.com/aponline/2020/06/15/business/ap-us-congress-antitrust-bezos.html?searchResultPosition=5
 
-**Under Police Pressure, France Backs Off Ban on Chokeholds**\
-`Under pressure from police, the French government has backed away from a ban on chokeholds during arrests.`\
-https://nytimes.com/aponline/2020/06/15/world/europe/ap-eu-america-protests-france.html?searchResultPosition=6
+**Coronavirus Death Rate Is Higher for Those With Chronic Ills**\
+`Death rates are 12 times higher for coronavirus patients with chronic illnesses than for others who become infected, a new U.S. government report says.`\
+https://nytimes.com/aponline/2020/06/15/health/ap-us-med-virus-outbreak-chronic-illness.html?searchResultPosition=6
 
-**Mexico's Lopez Obrador, Canada's Trudeau Discuss USMCA Trade Deal**\
-`Mexico's President Andres Manuel Lopez Obrador said on Monday he had a half hour phone call with Canada's Prime Minister Justin Trudeau and the two heads of state spoke about the bilateral economic relationship and the USMCA trade deal.`\
-https://nytimes.com/reuters/2020/06/15/world/americas/15reuters-mexico-trade-canada.html?searchResultPosition=7
+**State, FBI to Oversee Probe Into Black Man's Hanging Death**\
+`State and federal authorities will monitor the investigation into the death of a black man found hanging from a tree in the Southern California city of Palmdale, officials said Monday following large weekend protests.`\
+https://nytimes.com/aponline/2020/06/15/us/ap-us-hanging-death-investigation-3rd-ld-writethru.html?searchResultPosition=7
 
-**US Officials Seize $2M Dumped in Waters Off Puerto Rico**\
-`Federal officials said they seized more than $2 million that had been dumped in waters near the U.S. territory of Puerto Rico on Monday following a boat chase.`\
-https://nytimes.com/aponline/2020/06/15/world/americas/ap-lt-puerto-ricio-money-overboard.html?searchResultPosition=8
+**Vatican Frees Broker as Details Emerge of Costly London Deal**\
+`The Vatican has released from detention an Italian businessman accused of extortion and fraud in a London real estate venture that to date has cost the Vatican more than 350 million euros (nearly $400 million), much of it donations from the faithful.`\
+https://nytimes.com/aponline/2020/06/15/business/ap-eu-rel-vatican-scandal.html?searchResultPosition=8
 
-**WNBA to Play Season at Single Site in Florida Without Fans**\
-`The Women's National Basketball Association (WNBA) will begin its 2020 season in late July amid the COVID-19 outbreak with all games to be played without fans at a single site in Florida, the league said on Monday.`\
-https://nytimes.com/reuters/2020/06/15/sports/basketball/15reuters-health-coronavirus-basketball-wnba.html?searchResultPosition=9
+**Botswana Lifts Coronavirus Lockdown in Capital City**\
+`Botswana on Monday lifted a recently reinstated coronavirus lockdown on its capital city Gaborone and surrounding areas after most of the cases reported last week turned out to be negative, the health department said.`\
+https://nytimes.com/reuters/2020/06/15/world/africa/15reuters-health-coronavirus-botswana.html?searchResultPosition=9
 
-**Texas President to Meet With Students on Athletes' Demands**\
-`The interim president of the University of Texas said Monday he is scheduling meetings with student groups after dozens of Longhorns athletes said they wanted the school to ditch “The Eyes of Texas” song and rename several campus buildings.`\
-https://nytimes.com/aponline/2020/06/15/sports/ncaafootball/ap-fbc-america-protests-texas.html?searchResultPosition=10
+**Mexican President's Airport Project Pushes Full Steam Ahead Despite Coronavirus**\
+`Mexico's economy has virtually ground to a halt and is bleeding jobs in the pandemic lockdown, but tens of thousands of workers at a flagship government airport have not skipped a beat, toiling around the clock north of Mexico City to keep it on schedule.`\
+https://nytimes.com/reuters/2020/06/15/world/americas/15reuters-mexico-airport.html?searchResultPosition=10
 
