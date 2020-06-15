@@ -1,24 +1,24 @@
+**MLB Permits Scouting to Resume**\
+`Major League Baseball cleared the path for all scouting activities to resume for the first time since shutting down March 19, ESPN reported on Monday.`\
+https://nytimes.com/reuters/2020/06/15/sports/baseball/15reuters-baseball-mlb-scouting.html?searchResultPosition=5
+
+**NBA Star Durant Buys Stake in MLS Side Philadelphia Union**\
+`Brooklyn Nets forward Kevin Durant has become the latest NBA player to buy into a sports team with the announcement on Monday that he purchased a 5% stake in Major League Soccer's Philadelphia Union.`\
+https://nytimes.com/reuters/2020/06/15/sports/basketball/15reuters-soccer-usa-durant.html?searchResultPosition=6
+
+**Broncos, FanDuel Announce First NFL Team Betting Partnership**\
+`The Denver Broncos announced a multi-year agreement with FanDuel on Monday to make the company "an official sports betting partner and an official daily fantasy partner" of the team.`\
+https://nytimes.com/reuters/2020/06/15/sports/football/15reuters-football-nfl-den-fanduel-partnership.html?searchResultPosition=7
+
+**Passenger Confidence Key to Recovery at Vinci's Airports**\
+`How quickly more than 40 airports run by French group Vinci (SGEF.PA) can recover from the coronavirus crisis depends on whether passengers feel safe enough to travel, the head of the company's airports business Nicolas Notebaert said on Monday.`\
+https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-health-coronavirus-airports-vinci.html?searchResultPosition=8
+
+**The Impact of Disparities on Children’s Health**\
+`Differences in access to medical care and treatment contribute to conditions that disproportionately hurt minority children.`\
+https://nytimes.com/2020/06/15/well/family/the-impact-of-disparities-on-childrens-health.html?searchResultPosition=9
+
 **Trump Says Supreme Court LGBT Decision Very Powerful**\
 `President Donald Trump said on Monday he will live with the U.S. Supreme Court decision that a federal law barring workplace discrimination protects gay and transgender employees.`\
-https://nytimes.com/reuters/2020/06/15/us/15reuters-usa-court-lgbt-trump.html?searchResultPosition=5
-
-**Trump Says He Will Sign Police Reform Executive Order on Tuesday**\
-`U.S. President Donald Trump said on Monday he will sign an executive order on police reform and hold a news conference on Tuesday.`\
-https://nytimes.com/reuters/2020/06/15/us/politics/15reuters-minneapolis-police-usa-trump.html?searchResultPosition=6
-
-**Virus More Efficient at Infection After Mutation; Diseased Lungs More Receptive to Virus**\
-`The following is a brief roundup of some of the latest scientific studies on the novel coronavirus and efforts to find treatments and vaccines for COVID-19, the illness caused by the virus.`\
-https://nytimes.com/reuters/2020/06/15/us/15reuters-health-coronavirus-science.html?searchResultPosition=7
-
-**Baruch Haviv, Pilot, Landlord and Opera Fan, Dies at 82**\
-`Mr. Haviv, who came to the United States penniless, believed Hell’s Kitchen had a bright future. He died of the coronavirus.`\
-https://nytimes.com/2020/06/15/nyregion/baruch-haviv-dead-coronavirus.html?searchResultPosition=8
-
-**Parents of US Man Held in Moscow Demand Fair Trial for Son**\
-`The parents of a former U.`\
-https://nytimes.com/aponline/2020/06/15/us/politics/ap-us-marine-charged-russia.html?searchResultPosition=9
-
-**Bourdeaux Declares Win in Democratic Congressional Primary**\
-`A Democrat is declaring victory in Georgia's 7th Congressional District primary after new vote counts showed her winning a majority of ballots without need for a runoff election.`\
-https://nytimes.com/aponline/2020/06/15/us/ap-us-election-2020-us-house-7.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/15/us/15reuters-usa-court-lgbt-trump.html?searchResultPosition=10
 
