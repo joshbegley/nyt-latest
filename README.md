@@ -1,24 +1,24 @@
-**HSBC Gets Veiled Rebuke From UK Government Over Hong Kong**\
-`Britain's Foreign Secretary Dominic Raab voiced a thinly veiled criticism of HSBC on Monday after the bank backed China's national security law for Hong Kong, contradicting the British government's opposition to it.`\
-https://nytimes.com/reuters/2020/06/15/business/15reuters-hongkong-protests-britain-hsbc.html?searchResultPosition=5
+**Lil Baby Returns to Top Chart With ‘My Turn’**\
+`#BlackoutTuesday and a delay of some of that week's new releases helped pave the way for a No. 1 with the equivalent of just 65,000 sales in the United States.`\
+https://nytimes.com/2020/06/15/arts/music/lil-baby-my-turn-billboard.html?searchResultPosition=5
 
-**North Macedonia Leaders Set July 15 Date for Early Poll**\
-`Political leaders in North Macedonia have agreed to hold a national election on July 15 after the poll was delayed due to the COVID-19 pandemic.`\
-https://nytimes.com/aponline/2020/06/15/world/europe/ap-eu-north-macedonia-elections.html?searchResultPosition=6
+**US Tennis Association Intends to Hold Open if Government OKs**\
+`The U.S. Tennis Association intends to hold the U.S. Open in New York starting in August without spectators, if it gets governmental support -- and a formal announcement could come this week.`\
+https://nytimes.com/aponline/2020/06/15/sports/tennis/ap-ten-virus-outbreak-us-open.html?searchResultPosition=6
 
-**Diack at Corruption Trial: I Should Have Been More Vigilant**\
-`Former IAAF president Lamine Diack said at his corruption trial on Monday that he should have kept a tighter rein on the athletics governing body that prosecutors allege became a nest of malfeasance under his watch.`\
-https://nytimes.com/aponline/2020/06/15/sports/ap-ath-doping-diack-trial.html?searchResultPosition=7
+**Atlanta Mayor Says 'Abundantly Clear' Review of Policing Needed**\
+`Atlanta Mayor Keisha Bottoms said on Friday she would issue a series of administrative orders to accelerate a review of policing in the wake of the police shooting of Rayshard Brooks.`\
+https://nytimes.com/reuters/2020/06/15/us/15reuters-minneapolis-police-atlanta-reform.html?searchResultPosition=7
 
-**Hollywood Restarts Movie Production With 'Jurassic World: Dominion' and 'Avatar'**\
-`Universal Studios said on Monday it expects to resume production in early July on "Jurassic World: Dominion" as Hollywood begins to emerge from a three-month coronavirus shutdown.`\
-https://nytimes.com/reuters/2020/06/15/arts/15reuters-health-coronavirus-hollywood.html?searchResultPosition=8
+**Queen Latifah: Let ‘Gone With the Wind’ Be Gone Forever**\
+`While some have criticized HBO Max's removal of “Gone With the Wind” from its streaming service  — including those who wonder if it hurts the legacy of Hattie McDaniel, the first African American woman to win an Academy Award — Oscar nominee Queen Latifah says good riddance.`\
+https://nytimes.com/aponline/2020/06/15/us/ap-us-qa-queen-latifah.html?searchResultPosition=8
 
-**2nd Man Charged in Death of Retired St. Louis Police Captain**\
-`A second man has been charged with murder in the fatal shooting of retired St. Louis police Capt. David Dorn during a pawn shop break-in that followed a night of violent protests.`\
-https://nytimes.com/aponline/2020/06/15/us/ap-us-america-protests-missouri-police-captain-killed.html?searchResultPosition=9
+**Extension of G20 Debt Freeze May Make PSI Mandatory: JP Morgan**\
+`The Group of 20 wealthy economies may make private sector involvement mandatory if they extend debt payment holidays for the world's poorest countries beyond this year, analysts at JP Morgan said.`\
+https://nytimes.com/reuters/2020/06/15/us/15reuters-health-coronavirus-debtrelief.html?searchResultPosition=9
 
-**F.D.A. Revokes Emergency Approval of Malaria Drugs Promoted by Trump**\
-`The agency said that a review of some studies showed that the drugs’ potential benefits in treating Covid-19 did not outweigh the risks.`\
-https://nytimes.com/2020/06/15/health/fda-hydroxychloroquine-trump-coronavirus.html?searchResultPosition=10
+**Italy Says Closely Watching LSE/Refinitiv Deal Due to Implications for Milan Bourse**\
+`Italian Economy Minister Roberto Gualtieri said on Monday the government is closely watching the merger between the London Stock Exchange (LSE) and Refinitiv, and its implications for the Italian bourse owned by LSE.`\
+https://nytimes.com/reuters/2020/06/15/business/15reuters-refinitiv-m-a-lse-italy.html?searchResultPosition=10
 
