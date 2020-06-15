@@ -1,24 +1,24 @@
-**Gay Rights, Hydroxychloroquine, Atlanta: Your Monday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/06/15/briefing/gay-rights-hydroxychloroquine-atlanta.html?searchResultPosition=5
+**Minnesota Lawmakers Unveil $300M Plan to Rebuild From Unrest**\
+`Democrats who control the Minnesota House announced a $300 million economic aid proposal Monday for businesses that were damaged or destroyed during the civil unrest over the death of George Floyd. `\
+https://nytimes.com/aponline/2020/06/15/us/politics/ap-us-george-floyd-minnesota-legislature.html?searchResultPosition=5
 
-**Gundy's OAN Support Angers Star Oklahoma St RB Chuba Hubbard**\
-`Star Oklahoma State running back Chuba Hubbard suggested Monday he may boycott the program after coach Mike Gundy was photographed wearing a T-shirt displaying the One America News Network, a far-right news channel that has been praised by President Donald Trump.`\
-https://nytimes.com/aponline/2020/06/15/sports/ncaafootball/ap-fbc-america-protests-oklahoma-st.html?searchResultPosition=6
+**AP Source: Chance MLB Won't Play Increases in Money Fight**\
+`The chance that there will be no Major League Baseball season increased substantially Monday when the commissioner's office told the players' association it will not proceed with a schedule unless the union waives its right to claim management violated a March agreement between the feuding sides.`\
+https://nytimes.com/aponline/2020/06/15/sports/baseball/ap-bbo-virus-outbreak-mlb.html?searchResultPosition=6
 
-**Brazil Registers 627 New COVID-19 Deaths, 888,271 Total Confirmed Cases**\
-`Brazil registered 627 new deaths from COVID-19 on Monday, the Health Ministry said, with a new total of 888,271 confirmed cases of coronavirus.`\
-https://nytimes.com/reuters/2020/06/15/world/americas/15reuters-health-coronavirus-brazil.html?searchResultPosition=7
+**Newsroom Quandry: Should ‘Black’ Be Capitalized?**\
+`As journalists grapple with massive protests and sweeping changes in the aftermath of George Floyd's death, U.S. newsrooms are debating an important style change: whether to capitalize the “b” in black when describing people.`\
+https://nytimes.com/aponline/2020/06/15/us/ap-us-america-protests-media.html?searchResultPosition=7
 
-**Watch This: ‘America to Me’**\
-`The layered, nuanced 10-part documentary, which examines race and coming-of-age at a Chicago-area high school is now streaming free.`\
-https://nytimes.com/2020/06/15/arts/television/america-to-me-starz-hulu.html?searchResultPosition=8
+**Scenes From N.A.A.C.P. March in Atlanta**\
+`Demonstrators filled the streets to protest police violence after the killing of Rayshard Brooks, and the collapse of Georgia’s statewide voting system.`\
+https://nytimes.com/video/us/politics/100000007192815/naacp-march-atlanta-rayshard-brooks.html?searchResultPosition=8
 
-**NOAA Chief Violated Ethics Code in Furor Over Trump Tweet, Agency Says**\
-`Neil Jacobs violated the agency’s scientific integrity policy with a statement last year backing the president’s inaccurate claim that a hurricane was headed for Alabama, a panel found.`\
-https://nytimes.com/2020/06/15/climate/noaa-sharpiegate-ethics-violation.html?searchResultPosition=9
+**Yemen's Rebels: Saudi Coalition Airstrike Kills 13 Civilians**\
+`An airstrike from the Saudi-led coalition struck a vehicle carrying civilians in northern Yemen on Monday, killing 13 people, including four children, according to the Houthi rebels.`\
+https://nytimes.com/aponline/2020/06/15/world/middleeast/ap-ml-yemen-1st-ld-writethru.html?searchResultPosition=9
 
-**Condemning 9 Acres Would Allow Arlington Cemetery Expansion**\
-`The Justice Department has initiated legal proceedings to condemn nine acres of land in northern Virginia to facilitate a major expansion of Arlington National Cemetery.`\
-https://nytimes.com/aponline/2020/06/15/us/ap-us-arlington-cemetery-expansion.html?searchResultPosition=10
+**Oregon, Arizona St Athletes Challenge NCAA in Federal Court**\
+`Attorneys filed a lawsuit against the NCAA in federal court Monday that seeks to prevent the association from limiting the amount of money athletes can make off their names, images and likenesses. `\
+https://nytimes.com/aponline/2020/06/15/sports/ap-us-ncaa-compensating-athletes-1st-ld-writethru.html?searchResultPosition=10
 
