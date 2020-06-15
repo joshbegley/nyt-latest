@@ -1,28 +1,28 @@
+**Police Killings Prompt Evaluation of Laws Allowing Deadly Force**\
+`The deaths of several black people by police in recent weeks have challenged the wide latitude law enforcement officers are given in cases in which an encounter ends with a death.`\
+https://nytimes.com/2020/06/14/us/rayshard-brooks-Garrett-Rolfe-atlanta.html?searchResultPosition=4
+
+**Aussie and Kiwi Down Early After New Virus Cases in Beijing**\
+`The Australian and New Zealand dollars fell against their U.S. counterpart on Monday after fears of a second wave of the coronavirus in Beijing prompted investors to sell currencies sensitive to risk.`\
+https://nytimes.com/reuters/2020/06/14/world/asia/14reuters-global-forex.html?searchResultPosition=5
+
+**Mexico Reports More Than 17,000 Total Deaths From Coronavirus**\
+`Mexico's health ministry reported 4,147 new confirmed coronavirus infections along with 269 additional fatalities on Sunday, bringing the total in the country to 146,837 cases and 17,141 deaths.`\
+https://nytimes.com/reuters/2020/06/14/world/americas/14reuters-health-coronavirus-mexico-tally.html?searchResultPosition=6
+
 **Putin Says U.S. Is in ‘Deep Internal Crisis’**\
 `The Russian leader described an America poisoned by racism and violence and paralyzed by the refusal of President Trump’s opponents to accept the 2016 election results.`\
-https://nytimes.com/2020/06/14/world/europe/putin-interview-united-states.html?searchResultPosition=4
+https://nytimes.com/2020/06/14/world/europe/putin-interview-united-states.html?searchResultPosition=7
 
 **Colonial Champion Berger Happy to Fly Under the Radar**\
 `Some of golf's biggest names were crammed on the final-round leaderboard at Colonial Country Club on Sunday but in the end it was unheralded Daniel Berger who walked away with the winner's plaid jacket.`\
-https://nytimes.com/reuters/2020/06/14/sports/golf/14reuters-golf-ftworth-berger.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/14/sports/golf/14reuters-golf-ftworth-berger.html?searchResultPosition=8
 
 **Morocco's King Undergoes Successful Heart Surgery: Agency**\
 `King Mohammmed VI of Morocco had successful heart surgery on Sunday in Rabat, state news agency MAP said. `\
-https://nytimes.com/reuters/2020/06/14/world/africa/14reuters-morocco-monarchy.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/06/14/world/africa/14reuters-morocco-monarchy.html?searchResultPosition=9
 
 **More People Will Be Fired in the Pandemic. Let’s Talk About It.**\
 `For starters, don’t do it on Zoom. And consider not doing it at all.`\
-https://nytimes.com/2020/06/14/opinion/layoffs-coronavirus-economy.html?searchResultPosition=7
-
-**UK PM Johnson Defends Churchill, Criticises 'Distortion of Our History': Telegraph**\
-`Prime Minister Boris Johnson said that Britain cannot "photoshop" its cultural landscape and complex history as doing so would be a distortion of its past, amid an ongoing row over the removal of statues of historical figures.`\
-https://nytimes.com/reuters/2020/06/14/world/europe/14reuters-minneapolis-police-protests-britain-statues.html?searchResultPosition=8
-
-**Upright Citizens Brigade to Overhaul Its Leadership**\
-`Amy Poehler other founders of this struggling bicoastal comedy incubator say they want to hand over its theaters to a diverse board that would address issues of systemic racism and inequality.`\
-https://nytimes.com/2020/06/14/theater/upright-citizens-brigade-reorganizing.html?searchResultPosition=9
-
-**Lopez Expects Significant Cuts to Prizemoney**\
-`Significant reductions in prize money will be the new reality for tennis players when the ATP and WTA Tours resume, according to Spanish veteran Feliciano Lopez.`\
-https://nytimes.com/reuters/2020/06/14/sports/tennis/14reuters-tennis-lopez.html?searchResultPosition=10
+https://nytimes.com/2020/06/14/opinion/layoffs-coronavirus-economy.html?searchResultPosition=10
 
