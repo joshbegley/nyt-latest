@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/06/14/world/asia/ap-as-australia-statues-vanda
 https://nytimes.com/reuters/2020/06/14/business/14reuters-mexico-volkswagen.html?searchResultPosition=6
 
 **Report: Lakers Players Say They're Unified on Social Justice, Resumption of Play**\
-`By FIELD, LEVEL and MEDIA`\
+`Though several NBA players on Friday reportedly voiced their opposition to resuming the season as a protest against racism and social injustice, ESPN reported that the Los Angeles Lakers' players remain undivided on the resumption of the season.`\
 https://nytimes.com/reuters/2020/06/14/sports/14reuters-basketball-nba-lal-players-united-george-floyd.html?searchResultPosition=7
 
 **Japan Hasn't Decided to Ease Entry Ban, Foreign Minister Says**\
