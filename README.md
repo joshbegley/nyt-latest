@@ -1,24 +1,24 @@
-**German Watchdog Suspects Infineon Shares Being Offered for Sale Illegally**\
-`German financial markets regulator BaFin on Monday said that shares in chip maker Infineon were being touted illegally using the company's logo by an unknown investor who had failed to publish an offer prospectus.`\
-https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-infineon-stocks-bafin.html?searchResultPosition=5
+**Saudi-Led Coalition in Yemen Cut From U.N. Blacklist of Parties Killing Children**\
+`U.N. Secretary-General Antonio Guterres on Monday removed a Saudi Arabia-led military coalition from a U.N. blacklist, several years after it was first named and shamed for killing and injuring children in Yemen. `\
+https://nytimes.com/reuters/2020/06/15/world/middleeast/15reuters-yemen-security-un.html?searchResultPosition=5
 
-**Fed's Daly Says Yield Curve Control Could Be 'Little Helper'**\
-`San Francisco Federal Reserve President Mary Daly on Monday downplayed the usefulness of yield curve control for U.S. monetary policy, saying that while it could be a "little helper" should other tools fail to deliver, it would not be a first choice.`\
-https://nytimes.com/reuters/2020/06/15/us/15reuters-usa-fed-daly-tools.html?searchResultPosition=6
+**Doctors Without Borders to Close Kabul Maternity Clinic After Attack**\
+`Doctors Without Borders said on Monday it would close its maternity ward in Kabul due to fears of further attacks after three gunmen last month opened fire at the clinic, killing 24 people including new mothers and babies.`\
+https://nytimes.com/reuters/2020/06/15/world/asia/15reuters-afghanistan-attacks-hospital.html?searchResultPosition=6
 
-**NYSE to Reopen Trading Floor to Some Market Makers on Wednesday**\
-`The New York Stock Exchange will allow a limited number of market makers to return to its trading floor on Wednesday, a spokesperson said, nearly three months after closing it due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/06/15/business/15reuters-health-coronavirus-nyse.html?searchResultPosition=7
+**Canada Sees Tight U.N. Security Council Race, Says Coronavirus Response Could Help**\
+`Canada faces a tight race for a rotating seat on the United Nations Security Council but the country's response to the coronavirus outbreak could help win support, Foreign Minister Francois-Philippe Champagne said on Monday.`\
+https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-canada-diplomacy-un.html?searchResultPosition=7
 
-**U.S. CDC Reports 2,085,769 Coronavirus Cases**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Monday reported 2,085,769 cases of new coronavirus, an increase of 21,957 cases from its previous count, and said the number of deaths had risen by 373 to 115,644.`\
-https://nytimes.com/reuters/2020/06/15/us/15reuters-health-coronavirus-usa-cdc.html?searchResultPosition=8
+**Factbox: Irish Coalition Sets Out Programme for Government**\
+`A coalition of Ireland's two dominant centre-right parties and the Green Party agreed a draft programme for government on Monday, pending approval by their respective members in coming weeks.`\
+https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-ireland-politics-factbox.html?searchResultPosition=8
 
-**Your Tuesday Briefing**\
-`China outbreak, markets, Russia’s migrant workers: Here’s what you need to know.`\
-https://nytimes.com/2020/06/15/briefing/beijing-outbreak-stock-markets.html?searchResultPosition=9
+**Oscars 2021 Ceremony Switched to April From February Due to Coronavirus**\
+`The 2021 Oscars movie awards ceremony has been postponed until April from February due to the coronavirus epidemic, the Academy of Motion Picture Arts and Sciences said on Monday.`\
+https://nytimes.com/reuters/2020/06/15/arts/15reuters-health-coronavirus-oscars.html?searchResultPosition=9
 
-**Rappler Case Highlights Decline of Press Freedoms Globally**\
-`The conviction of two Philippine journalists for libel is a blow to press freedom and comes as media watchdogs track declines in press freedoms and democratic institutions around the world. `\
-https://nytimes.com/aponline/2020/06/15/business/ap-us-rappler-press-freedom.html?searchResultPosition=10
+**Soccer: Qatar Dedicates New Stadium to COVID-19 Frontline Workers**\
+`Qatar showed off the latest stadium to be completed for the 2022 soccer World Cup in a virtual presentation on Monday and  dedicated it to frontline workers battling the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/06/15/sports/soccer/15reuters-soccer-worldcup.html?searchResultPosition=10
 
