@@ -1,28 +1,28 @@
+**Rayshard Brooks Should Have Been Allowed to Walk Home Instead of Being Shot by Police, Say Family Lawyers**\
+`Police officers involved in the shooting of Rayshard Brooks, a black man whose death reignited protests in Atlanta over the weekend, should have let him walk home or found other ways to de-escalate the situation, his family's lawyers said on Monday.`\
+https://nytimes.com/reuters/2020/06/15/us/15reuters-minneapolis-police-atlanta.html?searchResultPosition=4
+
+**PM Orban Says Government Ready to Help Audi to Allow Hungarian Plant Run at Full Capacity**\
+`Hungary is ready to give financial support to Audi to allow its Hungarian manufacturing plant to run at full capacity in the wake of the coronavirus pandemic, Prime Minister Viktor Orban was reported as saying on Monday as he visited the plant.`\
+https://nytimes.com/reuters/2020/06/15/business/15reuters-hungary-audi-orban.html?searchResultPosition=5
+
+**Low Expectations as Johnson Joins EU Leaders to Break Brexit Deadlock**\
+`British Prime Minister Boris Johnson will join a video-conference with EU leaders on Monday, keen to make headway in negotiations on a future UK-EU relationship, but officials in Brussels expect no breakthrough in the Brexit deadlock.`\
+https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-britain-eu-johnson.html?searchResultPosition=6
+
+**Canada April Factory Sales Plummet Record 28.5% as Coronavirus Shutdowns Hit**\
+`Canadian manufacturing sales plummeted a record-breaking 28.5% in April as the coronavirus pandemic shutdown or limited businesses operations, Statistics Canada data showed on Monday.`\
+https://nytimes.com/reuters/2020/06/15/us/15reuters-canada-economy-manufacturing.html?searchResultPosition=7
+
+**Report Details How Woman Without Ticket Boarded Delta Flight**\
+`A woman without a ticket or government-issued ID walked past a Transportation Security Administration agent and entered a terminal at Orlando International Airport in October by blending in with a group of people, a report said.`\
+https://nytimes.com/aponline/2020/06/15/us/ap-us-unticketed-passenger-airport.html?searchResultPosition=8
+
+**Protesters Gather Sunday After the Killing of Rayshard Brooks**\
+`On Sunday a group of peaceful protesters gathered at the site where Rayshard Brooks was fatally shot in Atlanta on Friday.`\
+https://nytimes.com/video/us/politics/100000007191731/atlanta-protests-rayshard-brooks.html?searchResultPosition=9
+
 **Court Backs Refinery Expansion in Challenge to Sweden's Emissions Aims**\
 `A 15 billion crown ($1.6 billion) expansion of Sweden's biggest oil refinery, can go ahead, a court ruled on Monday, potentially creating the country's biggest polluter and running counter to the government's promise to cut emissions.`\
-https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-sweden-preem-refinery.html?searchResultPosition=4
-
-**Canadian Home Sales Rise Rebound by a Record 56.9% in May: CREA**\
-`Canadian home sales rebounded by a record 56.9% month-over-month in May after plunging in April, the Canadian Real Estate Association said on Monday.`\
-https://nytimes.com/reuters/2020/06/15/us/15reuters-canada-economy.html?searchResultPosition=5
-
-**How Paradise High’s Class of 2020 Got Its Graduation**\
-`The students and parents pushed and prodded over 10 weeks for an exception to Gov. Gavin Newsom’s shelter-in-place order.`\
-https://nytimes.com/2020/06/15/us/paradise-high-graduation.html?searchResultPosition=6
-
-**Kazakhstan Tightens Restrictions in Biggest City on Fears of Coronavirus Second Wave**\
-`Kazakhstan ordered some entertainment venues in its biggest city Almaty to close on Monday and shopping malls, restaurants and government offices there to work shorter hours, following a spike in coronavirus cases since a lockdown was eased.`\
-https://nytimes.com/reuters/2020/06/15/world/asia/15reuters-health-coronavirus-kazakhstan.html?searchResultPosition=7
-
-**For Black People in France, George Floyd Protests Are Personal**\
-`A tear rolled down Mathilla Diagana's cheek as she sat in her student dormitory room in the northern French city of Rouen and watched an online video of a Minneapolis police officer kneeling on the neck of George Floyd.`\
-https://nytimes.com/reuters/2020/06/15/world/africa/15reuters-minneapolis-police-protests-france.html?searchResultPosition=8
-
-**Greek Ship Managers Halt Venezuela Trade as U.S. Sanctions Bite**\
-`Three Greece-based shipping firms said they have halted trade with Venezuela after the United States imposed sanctions on vessels under their management, as Washington ramps up commercial heat on Caracas.    `\
-https://nytimes.com/reuters/2020/06/15/world/americas/15reuters-venezuela-usa-tankers.html?searchResultPosition=9
-
-**China Halts European Salmon Imports Over Suspected Link to Virus Outbreak**\
-`China has halted imports from European salmon suppliers amid fears they might be linked to a coronavirus outbreak at a Beijing market, although experts say the fish itself is unlikely to carry the disease.`\
-https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-health-coronavirus-salmon-norway.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-sweden-preem-refinery.html?searchResultPosition=10
 
