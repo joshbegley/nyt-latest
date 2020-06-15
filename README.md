@@ -1,24 +1,24 @@
+**University of California Endorses Affirmative Action Measure**\
+`The University of California’s governing board voted Monday to unanimously support a measure to restore affirmative action programs and repeal a controversial statewide ban that has been blamed for a decline in diversity in the prestigious university system. `\
+https://nytimes.com/aponline/2020/06/15/us/ap-us-university-of-california-affirmative-action.html?searchResultPosition=5
+
+**Kansas City Police Investigate Vandalism of Memorial to Lynching Victim**\
+`The memorial to Levi Harrington, a black man killed in Kansas City, Mo., in the 1880s, had been vandalized before.`\
+https://nytimes.com/2020/06/15/us/kansas-city-lynching-memorial.html?searchResultPosition=6
+
+**Kyrgyzstan's Prime Minister Steps Down Over Frequencies Case**\
+`The prime minister of Kyrgyzstan has resigned amid a scandal over whether the government illegally sold radio frequencies. `\
+https://nytimes.com/aponline/2020/06/15/world/asia/ap-as-kyrgyzstan-government.html?searchResultPosition=7
+
+**Doping: WADA to Investigate IWF Doping Allegations**\
+`The World Anti-Doping Agency (WADA) has begun an investigation into doping violations after an inquiry led by Richard McLaren uncovered 40 positive adverse analytical findings hidden in the International Weightlifting Federation (IWF) records.`\
+https://nytimes.com/reuters/2020/06/15/sports/olympics/15reuters-sport-doping-weightlifting.html?searchResultPosition=8
+
 **Bruno Funchal Set to Be Named Brazil's Next Treasury Secretary, Sources Say**\
 `Bruno Funchal, an official at Brazil's Economy Ministry, is set to be named the country's next treasury secretary, two sources with knowledge of the matter said on Monday.`\
-https://nytimes.com/reuters/2020/06/15/world/americas/15reuters-brazil-economy-funchal.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/15/world/americas/15reuters-brazil-economy-funchal.html?searchResultPosition=9
 
 **Turkey: Virus Cases Continue to Spike**\
 `The daily number of new coronavirus cases in Turkey continuing to rise on Monday, weeks after the country relaxed restrictions.`\
-https://nytimes.com/aponline/2020/06/15/world/europe/ap-eu-virus-outbreak-turkey.html?searchResultPosition=6
-
-**UK 'Deeply Disappointed' by Sentence Passed on Ex-U.S. Marine in Russia**\
-`Britain's Foreign Secretary Dominic Raab said on Monday he was deeply disappointed by Monday's verdict and sentence against Paul Whelan, a former U.S. marine who was convicted of spying for the United States.`\
-https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-russia-usa-whelan-verdict-britain.html?searchResultPosition=7
-
-**Six Former eBay Employees Charged With Cyberstalking Massachusetts Couple**\
-`Six former eBay Inc employees have been criminally charged with cyberstalking a Massachusetts couple who published an online newsletter viewed as critical of the e-commerce company, federal prosecutors in Boston said on Monday.`\
-https://nytimes.com/reuters/2020/06/15/business/15reuters-ebay-cyberstalking.html?searchResultPosition=8
-
-**Tesla Negotiating Incentives for Possible Texas Vehicle Assembly Plant: Report**\
-`Electric carmaker Tesla Inc is negotiating possible incentives with a Texas county that could bring a new auto assembly plant to the area near Austin, the state capital, the Austin American-Statesman reported on Monday.`\
-https://nytimes.com/reuters/2020/06/15/business/15reuters-tesla-texas.html?searchResultPosition=9
-
-**Amazon's Business Practices Examined by Two U.S. States**\
-`State investigators in both California and Washington are examining Amazon's business practices, two newspapers reported, citing people familiar with the matter. `\
-https://nytimes.com/reuters/2020/06/15/business/15reuters-amazon-com-investigation-california.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/15/world/europe/ap-eu-virus-outbreak-turkey.html?searchResultPosition=10
 
