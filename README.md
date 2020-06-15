@@ -1,28 +1,28 @@
+**India Cenbank May Need to Choose Between FX, Bond Interventions in Second Half: Economists**\
+`The Reserve Bank of India's interventions in the foreign exchange market have helped reserves climb to a record $501.7 billion in early June, but economists say the pace of increase is likely to taper in the second half of this fiscal year.`\
+https://nytimes.com/reuters/2020/06/15/world/asia/15reuters-india-cenbank-reserves.html?searchResultPosition=4
+
+**Embraer Swaps Commercial Aviation Chief After Failed Boeing Deal**\
+`Brazilian planemaker Embraer SA said on Monday it was replacing the head of its commercial aviation unit after a planned deal to have Boeing Co take over that division fell apart in April.`\
+https://nytimes.com/reuters/2020/06/15/business/15reuters-embraer-management.html?searchResultPosition=5
+
+**The Long, Complicated History of ‘Urban’ Music**\
+`As the music industry reckons with racial inequality, one of the first old structures to fall has been a term that dates back to the 1970s.`\
+https://nytimes.com/2020/06/15/arts/music/popcast-urban-music.html?searchResultPosition=6
+
+**Indian Exports Fall by Over 36% in May**\
+`India's merchandise exports shrank by more than a third in May from a year ago, dragged down by a fall in global demand and shipments due to the outbreak of coronavirus, trade ministry data showed on Monday.`\
+https://nytimes.com/reuters/2020/06/15/world/asia/15reuters-india-economy.html?searchResultPosition=7
+
+**Russia to Get $10 Billion More From Oil Firms for Budget Spending in 2020: Sazanov**\
+`Russia will collect up to $10 billion more in revenue from oil companies this year because of the way they are taxed, a deputy finance minister told Reuters, money that with borrowing and the national wealth fund will help finance a post-pandemic recovery.`\
+https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-health-coronavirus-russia-budget.html?searchResultPosition=8
+
+**Sheriff Apologizes to Black Pastor in Virginia After Arrest**\
+`A sheriff in Virginia has apologized to a black pastor in Virginia who described being arrested after calling 911 on a group of white people who threatened to kill him after trying to dump a refrigerator on his property.`\
+https://nytimes.com/aponline/2020/06/15/us/ap-us-virginia-pastor-sheriff-apology.html?searchResultPosition=9
+
 **GE Aviation Head David Joyce to Retire**\
 `General Electric Co said on Monday David Joyce, the chief executive of the company's aviation unit, would retire after 40 years with the industrial conglomerate.`\
-https://nytimes.com/reuters/2020/06/15/business/15reuters-ge-moves.html?searchResultPosition=4
-
-**Alabama City's Confederate Statue Relocated to a Museum**\
-`A Confederate statue removed from Alabama's port city earlier this month has been relocated to a museum, the city’s mayor said.`\
-https://nytimes.com/aponline/2020/06/15/us/ap-us-confederate-statue-museum-relocation.html?searchResultPosition=5
-
-**US Senate Candidate Kobach Reports 4 Guns Stolen From Truck**\
-`U.S. Senate candidate and former Kansas Secretary of State Kris Kobach reported that he had four guns stolen from his pickup truck that was parked at a Wichita hotel. `\
-https://nytimes.com/aponline/2020/06/15/us/ap-us-kobach-stolen-guns-1st-ld-writethru.html?searchResultPosition=6
-
-**UK Racism Commission Should Report by the End of This Year, Says PM's Spokesman**\
-`Britain's government expects to receive a report on the findings and recommendations from a new cross-government commission on racism by the end of this year, a spokesman for British Prime Minister Boris Johnson said on Monday.`\
-https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-minneapolis-police-protests-britain-johnson-spokesman.html?searchResultPosition=7
-
-**First Lady Announces Youth Art Project on Women's Suffrage**\
-`Melania Trump wants to use art to help children learn about women's suffrage. `\
-https://nytimes.com/aponline/2020/06/15/us/politics/ap-us-melania-trump.html?searchResultPosition=8
-
-**Laurentian Bank CEO François Desjardins to Step Down**\
-`Laurentian Bank of Canada said on Monday Chief Executive Officer François Desjardins will retire after 29 years with the company, effective June 30. `\
-https://nytimes.com/reuters/2020/06/15/us/15reuters-laurentian-bank-ceo.html?searchResultPosition=9
-
-**Review Into Two-Metre Rule to Be Completed in Coming Weeks, Says UK PM's Spokesman**\
-`Britain's government hopes to complete a review into whether the country should stick to a social distancing measure of keeping people 2 metres apart in the coming weeks, a spokesman for Prime Minister Boris Johnson said on Monday.`\
-https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-health-coronavirus-britain-twometres.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/15/business/15reuters-ge-moves.html?searchResultPosition=10
 
