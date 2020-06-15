@@ -1,28 +1,28 @@
-**Justices Rule Gay Workers Protected From Job Discrimination**\
-`The Supreme Court ruled Monday that a landmark civil rights law protects gay and lesbian people from discrimination in employment, a resounding victory for LGBT rights from a conservative court.`\
-https://nytimes.com/aponline/2020/06/15/us/politics/ap-us-supreme-court-lgbt-rights.html?searchResultPosition=4
+**Carmaker PSA Cuts Back on Transfer of Polish Workers to French Plant**\
+`France's PSA, the maker of Peugeot cars, on Monday said it would only transfer a small group of Polish workers to help out in a French plant where production is being increased, following a backlash over the knock-on effect for local jobs. `\
+https://nytimes.com/reuters/2020/06/15/business/15reuters-peugeot-poland.html?searchResultPosition=4
 
-**Exclusive: U.S. Senators Ask Pentagon if $1 Billion in Afghan Aid Was Cut**\
-`Two Democratic senators on Monday asked U.S. Defense Secretary Mike Esper what happened to $1 billion in aid for Afghanistan the Trump administration said it would cut nearly three months ago, according to a letter reviewed by Reuters.`\
-https://nytimes.com/reuters/2020/06/15/us/politics/15reuters-usa-afghanistan-exclusive.html?searchResultPosition=5
+**U.S. Supreme Court Endorses Gay, Transgender Worker Protections**\
+`The U.S. Supreme Court on Monday delivered a watershed victory for LGBT rights, ruling that a landmark federal law forbidding workplace discrimination protects gay and transgender employees.`\
+https://nytimes.com/reuters/2020/06/15/us/15reuters-usa-court-lgbt.html?searchResultPosition=5
 
-**Auto Workers Chief, Prosecutor to Discuss Reforming Union**\
-`The head of the United Auto Workers will meet this month with the U.S. attorney in Detroit to discuss potential changes for the union following a wide-ranging corruption probe.`\
-https://nytimes.com/aponline/2020/06/15/business/bc-us-auto-workers-corruption-probe.html?searchResultPosition=6
+**Australia Lowers Forecast for Beef Exports to China as Trade Ties Sour**\
+`Australia has lowered its forecast for beef exports to China, its largest buyer, by 1.5% for the 2020/21 season, the country's chief commodity forecaster said on Tuesday, as trade relations sour. `\
+https://nytimes.com/reuters/2020/06/15/world/asia/15reuters-australia-commodities.html?searchResultPosition=6
 
-**U.S. Supreme Court Rejects Cases Over 'Qualified Immunity'**\
-`The U.S. Supreme Court on Monday declined to hear a number of cases involving a legal defense called qualified immunity that can be used to shield government officials from lawsuits  including police officers accused of excessive force. `\
-https://nytimes.com/reuters/2020/06/15/us/15reuters-usa-court-qualified-immunity.html?searchResultPosition=7
+**What Do New U.S. Sanctions Mean for Syria?**\
+`The toughest U.S. sanctions yet on Syria take effect this week, increasing the pressure on President Bashar al-Assad as he grapples with a deepening economic crisis after a decade of war.`\
+https://nytimes.com/reuters/2020/06/15/world/middleeast/15reuters-syria-security-usa-sanctions-explainer.html?searchResultPosition=7
 
-**UAW President, U.S. Prosecutor to Meet for Union Reform Talks on June 30**\
-`United Auto Workers (UAW) President Rory Gamble will meet Matthew Schneider, the U.S. attorney for the Eastern District of Michigan, at the end of the month in Detroit to begin negotiations for reforming the union, UAW said on Monday.`\
-https://nytimes.com/reuters/2020/06/15/business/15reuters-usa-autos-labor-corruption.html?searchResultPosition=8
+**Thai Restaurants on Thin Ice Despite Return of Alcohol Sales**\
+`Thailand's battered restaurant sector had two reasons to celebrate Monday as the country further eased its coronavirus restrictions.`\
+https://nytimes.com/aponline/2020/06/15/business/ap-as-virus-outbreak-thailand-restaurant-revival.html?searchResultPosition=8
 
-**After 13 Years on the Run, a Sudanese Militia Leader Appears in Court**\
-`A case in the International Criminal Court against Ali Kushayb is the first to address the mass killings of civilians by Sudan’s armed forces and government-backed militias in Darfur.`\
-https://nytimes.com/2020/06/15/world/africa/sudan-darfur-ali-kushayb-icc.html?searchResultPosition=9
+**Amazon Says Jeff Bezos Is Willing to Testify Before Congress**\
+`Lawmakers had requested that he testify as part of their antitrust investigation into the big tech companies.`\
+https://nytimes.com/2020/06/15/technology/amazon-jeff-bezos-congress.html?searchResultPosition=9
 
-**‘Was It a Lost Psych-Funk Classic?’ It’s Khruangbin, Right Now**\
-`The Houston trio’s third album adds a new chapter to the band’s improbable story.`\
-https://nytimes.com/2020/06/15/arts/music/khruangbin-mordechai.html?searchResultPosition=10
+**Supreme Court Won’t Hear Case on California Sanctuary Law**\
+`The case concerned a state law that limits cooperation with agents seeking to detain immigrants released from state custody.`\
+https://nytimes.com/2020/06/15/us/supreme-court-california-immigration.html?searchResultPosition=10
 
