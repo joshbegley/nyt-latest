@@ -1,28 +1,28 @@
+**Paris Restaurants Reopen Fully, Still Wary About Post-Lockdown**\
+`Paris restaurants reopened indoor dining halls on Monday as the government relaxed one of the last major coronavirus constraints, but with virtually no tourists and many French people still working from home, the mood was cautious.`\
+https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-health-coronavirus-france-restaurants.html?searchResultPosition=4
+
+**Exclusive: South Africa Hopes to Ease Access to COVID Loans Amid Low Payouts**\
+`South African banks and the government are looking for ways to boost take up of an up to 200 billion rand ($11.58 billion) loan scheme to help coronavirus-hit businesses, two bank executives and a source close to the discussions told Reuters.`\
+https://nytimes.com/reuters/2020/06/15/world/africa/15reuters-health-coronavirus-safrica-loans-exclusive.html?searchResultPosition=5
+
+**China Reports Progress in Ultra-Secure Satellite Transmission**\
+`Researchers enlisted quantum physics to send a “secret key” for encrypting and decrypting messages between two stations 700 miles apart.`\
+https://nytimes.com/2020/06/15/science/quantum-satellites-china-spying.html?searchResultPosition=6
+
+**Watch Live: Cuomo Holds Daily News Conference**\
+`Gov. Andrew M. Cuomo of New York provides the state’s latest coronavirus statistics.`\
+https://nytimes.com/video/us/politics/100000007191804/watch-cuomo-holds-news-conference-coronavirus.html?searchResultPosition=7
+
+**New York Manufacturing Activity Unexpectedly Stabilizes in June**\
+`Manufacturing activity in New York State stabilized unexpectedly in June after three months of broad weakness brought on by coronavirus-related business shutdowns, and companies' six-month outlook shot to a decade high, the New York Federal Reserve said on Monday.`\
+https://nytimes.com/reuters/2020/06/15/business/15reuters-usa-economy-new-york-manufacturing.html?searchResultPosition=8
+
 **Why Weren’t We Video Calling All Along?**\
 `The dark, maybe selfish, truth is that we could have checked in more often long before the pandemic.`\
-https://nytimes.com/2020/06/15/opinion/why-werent-we-video-calling-all-along.html?searchResultPosition=4
+https://nytimes.com/2020/06/15/opinion/why-werent-we-video-calling-all-along.html?searchResultPosition=9
 
 **Argentine Bishop Resumes Work as Vatican Abuse Probe Wraps**\
 `By The Associated Press`\
-https://nytimes.com/aponline/2020/06/15/world/europe/ap-eu-rel-vatican-argentine-bishop.html?searchResultPosition=5
-
-**French Power Union Urges Members to Join Healthcare Strike**\
-`The energy wing of the French trade union CGT has urged its members to join a nationwide healthcare workers' strike planned for Tuesday.`\
-https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-france-power-strike.html?searchResultPosition=6
-
-**Justices Revive Permit for Pipeline Under Appalachian Trail**\
-`The Supreme Court sided with energy companies and the Trump administration Monday in reinstating a critical permit for a proposed natural gas pipeline that would cross under the Appalachian Trail.`\
-https://nytimes.com/aponline/2020/06/15/business/ap-us-supreme-court-atlantic-coast-pipeline.html?searchResultPosition=7
-
-**Victor in Syria’s War, Bashar al-Assad Faces Economic Meltdown**\
-`As Syria’s economy implodes and its currency collapses, President Bashar al-Assad faces threats he cannot bomb his way out of.`\
-https://nytimes.com/2020/06/15/world/middleeast/syria-economy-assad-makhlouf.html?searchResultPosition=8
-
-**Brazilian Broker XP Hires Local JPMorgan CEO to Lead Banking Ops**\
-`Brazilian broker XP Inc hired José Berenguer, JPMorgan CEO in Brazil, to lead its wholesale banking business, the broker said in a statement on Monday.`\
-https://nytimes.com/reuters/2020/06/15/world/americas/15reuters-xp-moves-jp-morgan.html?searchResultPosition=9
-
-**Spain's First Two Tourist Flights From Germany Touch Down in Mallorca**\
-`Spain's first two tourist flights landed in Palma de Mallorca after setting off from Germany on Monday, Spanish airport operator Aena said.`\
-https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-health-coronavirus-spain-airports.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/15/world/europe/ap-eu-rel-vatican-argentine-bishop.html?searchResultPosition=10
 
