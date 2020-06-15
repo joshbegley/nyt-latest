@@ -1,24 +1,24 @@
+**NOAA Chief Violated Ethics Code in Furor Over Trump Tweet, Agency Says**\
+`Neil Jacobs violated the agency’s scientific integrity policy with a statement last year backing the president’s inaccurate claim that a hurricane was headed for Alabama, a panel found.`\
+https://nytimes.com/2020/06/15/climate/noaa-sharpiegate-ethics-violation.html?searchResultPosition=5
+
+**Condemning 9 Acres Would Allow Arlington Cemetery Expansion**\
+`The Justice Department has initiated legal proceedings to condemn nine acres of land in northern Virginia to facilitate a major expansion of Arlington National Cemetery.`\
+https://nytimes.com/aponline/2020/06/15/us/ap-us-arlington-cemetery-expansion.html?searchResultPosition=6
+
+**New Lawsuit Opposes Plans to Remove Lee Statue in Virginia**\
+`Six property owners along Monument Avenue in Virginia's capital city filed a lawsuit Monday seeking to stop Gov. Ralph Northam's administration from removing a towering statue of Confederate Gen. Robert E. Lee. `\
+https://nytimes.com/aponline/2020/06/15/us/ap-us-confederate-monuments-richmond.html?searchResultPosition=7
+
+**Oluwatoyin Salau, Missing Black Lives Matter Activist, Is Found Dead**\
+`Ms. Salau, 19, was found dead along with a 75-year-old woman in Tallahassee, Fla., the police said. Their deaths are being investigated as homicides.`\
+https://nytimes.com/2020/06/15/us/oluwatoyin-salau-dead-aaron-glee.html?searchResultPosition=8
+
+**U.S. Rep. Tom Rice and Family Are Recovering From COVID-19**\
+`A second member of South Carolina’s congressional delegation has contracted COVID-19.`\
+https://nytimes.com/aponline/2020/06/15/us/ap-us-congressman-rice-covid-19.html?searchResultPosition=9
+
 **Virgin Islands Again Questions Epstein Estate Transactions**\
 `The attorney general there said her office needed more information about $39 million in transactions involving a small bank set up by Jeffrey Epstein.`\
-https://nytimes.com/2020/06/15/business/virgin-islands-jeffrey-epstein-bank.html?searchResultPosition=5
-
-**U.S. Troops Are in Europe to Defend Transatlantic Security, German Ambassador Says**\
-`U.S. troops are in Europe to defend transatlantic security and to help project U.S. power further afield, German Ambassador Emily Haber said on Monday after President Donald Trump announced plans to cut U.S. troop levels there to 25,000.`\
-https://nytimes.com/reuters/2020/06/15/us/politics/15reuters-usa-germany-military-reaction.html?searchResultPosition=6
-
-**UK Funds Human Trials of Potential COVID-19 Vaccine From Imperial**\
-`Scientists at Imperial College London will start the first clinical trials of a potential COVID-19 vaccine this week with more than 45 million pounds ($56.50 million) in backing from the UK government and philanthropic donors.`\
-https://nytimes.com/reuters/2020/06/15/world/europe/15reuters-health-coronavirus-vaccine-imperial.html?searchResultPosition=7
-
-**UK Begins Trial of Latest Virus Vaccine Candidate This Week**\
-`Scientists at Imperial College London will start immunizing people in Britain this week with their experimental coronavirus shot, becoming the latest entry into the race to find an effective vaccine to stop the pandemic.`\
-https://nytimes.com/aponline/2020/06/15/world/europe/ap-eu-virus-outbreak-britain-vaccine.html?searchResultPosition=8
-
-**U.S. Airlines Threaten to Ban Passengers Who Break No-Mask Policy**\
-`Passengers who refuse to comply with U.S. airlines' requirement that they wear facial coverings while flying could have their flying privileges revoked, according to updated policies by major U.S. airlines.`\
-https://nytimes.com/reuters/2020/06/15/us/15reuters-health-coronavirus-usa-airlines.html?searchResultPosition=9
-
-**UN Chief Takes Saudis Off Blacklist for Harming Yemen's Kids**\
-`Secretary-General Antonio Guterres took the Saudi-led coalition backing Yemen’s government off a global list of parties whose actions have harmed children in conflict, a move that drew immediate protests Monday from human rights groups.`\
-https://nytimes.com/aponline/2020/06/15/world/middleeast/ap-un-united-nations-children-in-conflict.html?searchResultPosition=10
+https://nytimes.com/2020/06/15/business/virgin-islands-jeffrey-epstein-bank.html?searchResultPosition=10
 
