@@ -1,24 +1,24 @@
+**WHO Says 'Hypothesis' About Cause of China's Latest Virus Outbreak Needs Further Testing**\
+`The origins of a new cluster of coronavirus infections in Beijing are not certain, World Health Organization officials said on Monday, describing as a "hypothesis" the claim that it might have been caused by imports or packaging of salmon.`\
+https://nytimes.com/reuters/2020/06/15/world/asia/15reuters-health-coronavirus-who.html?searchResultPosition=5
+
+**Durant Joins Ownership Group of MLS' Philadelphia Union**\
+`Brooklyn Nets forward Kevin Durant has joined the ownership group of Major League Soccer's Philadelphia Union.`\
+https://nytimes.com/aponline/2020/06/15/sports/soccer/ap-soc-mls-philadelphia-durant-1st-ld-writethru.html?searchResultPosition=6
+
+**Square Capital Says It Has Issued $820 Million of PPP Loans**\
+`Square Capital, a unit of payments company Square Inc, said on Monday it has issued more than $820 million worth of loans to small businesses to help them weather the economic shutdown brought on by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/15/business/15reuters-square-capital-ppp.html?searchResultPosition=7
+
+**U.S. Open Will Go Ahead Without Fans Amid COVID-19-Reports**\
+`The United States Tennis Association will hold the U.S. Open this year without fans amid the COVID-19 outbreak even though some top players have expressed concerns about attending the tournament due to the virus, according to multiple reports.`\
+https://nytimes.com/reuters/2020/06/15/sports/tennis/15reuters-health-coronavirus-tennis-usopen.html?searchResultPosition=8
+
+**France Swaps Chokehold for Stun Guns After Police Protests**\
+`Less than a week after France banned police chokeholds, the government responded to growing officer discontent by announcing it would test stun guns for wider use, adding to the ranks of European law enforcement agencies that have recently adopted the weapons that many in the U.`\
+https://nytimes.com/aponline/2020/06/15/world/europe/ap-eu-america-protests-europe-tasers.html?searchResultPosition=9
+
 **Saints' Jenkins Joins CNN as Social Justice Contributor**\
 `New Orleans Saints safety Malcolm Jenkins will join CNN as a contributor focusing on racial and social justice, the network announced Monday.`\
-https://nytimes.com/aponline/2020/06/15/sports/football/ap-fbn-saints-jenkins-cnn.html?searchResultPosition=5
-
-**U.S. Federal Reserve Resumes Normal Bank Exams**\
-`The U.S. Federal Reserve announced Monday it was resuming its normal bank examination activities, after easing back at the outset of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/06/15/business/15reuters-health-coronavirus-fed-banks.html?searchResultPosition=6
-
-**Nepal Arrests Three Men for Quarantine Rape, Amid Protests Over Unsafe Conditions**\
-`Police in Nepal arrested three men on suspicion of gang raping a woman quarantined alone in an empty school, a case that has added to public anger over unsafe conditions for thousands of migrant workers forced into confinement over the coronavirus.`\
-https://nytimes.com/reuters/2020/06/15/world/asia/15reuters-health-coronavirus-nepal-rape.html?searchResultPosition=7
-
-**Novavax to Raise $200 Million Through Stock Offering to Fund COVID-19 Vaccine**\
-`Novavax Inc said on Monday it would raise fresh capital through a $200 million preferred stock offering as it races to develop a vaccine for the new coronavirus, sending its shares up 10.5%.`\
-https://nytimes.com/reuters/2020/06/15/us/15reuters-health-coronavirus-novavax-funding.html?searchResultPosition=8
-
-**Driller Charged Over Contamination in 'Gasland' Town**\
-`An energy company faces felony charges for polluting residential water wells in a Pennsylvania community that has long been a battleground in the national debate over natural gas drilling and fracking.`\
-https://nytimes.com/aponline/2020/06/15/us/ap-us-gas-drilling-dimock.html?searchResultPosition=9
-
-**Traffickers Demand Payments for Rohingya Stranded at Sea**\
-`People traffickers holding hundreds of Rohingya refugees at sea are demanding payments from their families before they will release them from boats off the shores of Southeast Asia, relatives and rights groups say.`\
-https://nytimes.com/reuters/2020/06/15/world/asia/15reuters-myanmar-rohingya.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/15/sports/football/ap-fbn-saints-jenkins-cnn.html?searchResultPosition=10
 
