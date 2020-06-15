@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/06/14/sports/golf/14reuters-golf-ftworth-monaha
 `German parliament's official researchers have concluded in a legal opinion that the Bundesbank must be responsible for examining whether the bond buying programme of the European Central Bank (ECB) is proportionate, a newspaper reported on Monday.`\
 https://nytimes.com/reuters/2020/06/14/world/europe/14reuters-ecb-policy-germany.html?searchResultPosition=6
 
-**Filipina Journalist Critical of Duterte Convicted of Libel**\
+**Philippine Journalist Convicted of Libel, Given 6-Year Term**\
 `An award-winning journalist critical of the Philippine president was convicted of libel and sentenced to jail Monday in a decision called a major blow to press freedom in an Asian bastion of democracy.`\
 https://nytimes.com/aponline/2020/06/14/business/ap-as-philippines-convicted-journalists.html?searchResultPosition=7
 
