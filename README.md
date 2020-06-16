@@ -1,24 +1,24 @@
+**Three Rockets Land Near Baghdad Airport, No Casualties: Military**\
+`Three Katyusha rockets landed near Baghdad International Airport late on Monday, the Iraqi military said.`\
+https://nytimes.com/reuters/2020/06/16/world/middleeast/16reuters-iraq-security.html?searchResultPosition=5
+
+**Tokyo Olympic Board Member Would Support Another Delay**\
+`An executive board member of the Tokyo Olympic organizing committee says another delay should be sought if the games can’t be held next year. `\
+https://nytimes.com/aponline/2020/06/16/sports/olympics/ap-oly-tokyo-delay.html?searchResultPosition=6
+
+**Black Smoke Billowing From Cruise Ship Docked Near Tokyo**\
+`Black smoke was billowing Tuesday from a cruise ship docked at a port near Tokyo as dozens of firefighters and coast guard members battled to control it. The cause of the smoke was not immediately known, and the coast guard reported no injuries.`\
+https://nytimes.com/aponline/2020/06/16/business/ap-as-japan-cruise-ship-smoke.html?searchResultPosition=7
+
 **Delhi's Local Health Minister in Hospital as Infections Surge in India**\
 `The health minister in Delhi's state government checked into hospital with high fever and was being tested for coronavirus on Tuesday as India reported more than 10,500 new infections that are threatening to overwhelm hospitals. `\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-health-coronavirus-india.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-health-coronavirus-india.html?searchResultPosition=8
 
 **The Return of the Platypuses**\
 `Rescued from Australia’s fires, a small fleet of wild platypuses is launched back into their wetland home and into an uncertain future.`\
-https://nytimes.com/2020/06/16/science/platypuses-australia-wildfires.html?searchResultPosition=6
+https://nytimes.com/2020/06/16/science/platypuses-australia-wildfires.html?searchResultPosition=9
 
 **Who’s a Bot? Who’s Not?**\
 `It sometimes seems that automated bots are taking over social media and driving human discourse. But some (real) researchers aren’t so sure.`\
-https://nytimes.com/2020/06/16/science/social-media-bots-kazemi.html?searchResultPosition=7
-
-**The Latest: Patients Filling Beds in India's Largest Cities**\
-`NEW DELHI — India recorded another 10,000-plus coronavirus infections as patients swamp health services in its largest cities. `\
-https://nytimes.com/aponline/2020/06/16/business/ap-virus-outbreak-the-latest.html?searchResultPosition=8
-
-**Swiss Govt. Expects Economy to Shrink 6.2% in 2020**\
-`Switzerland's economy will shrink by 6.2% in 2020, the government said on Tuesday, the worst downturn in more than 40 years, as the country grapples with the consequences of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-swiss-economy-forecast.html?searchResultPosition=9
-
-**Workers on UK Payrolls Falls in May, Vacancies Plunge: ONS**\
-`The number of people on company payrolls fell by 1.7% in May as the coronavirus lockdown continued to hurt the labour market and vacancies plunged, official data showed on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-health-coronavirus-britain-economy.html?searchResultPosition=10
+https://nytimes.com/2020/06/16/science/social-media-bots-kazemi.html?searchResultPosition=10
 
