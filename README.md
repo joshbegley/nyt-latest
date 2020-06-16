@@ -6,7 +6,7 @@ https://nytimes.com/2020/06/16/science/coronavirus-haiti-dominican-republic.html
 `Turkey's Defence Ministry said its warplanes struck Kurdish militant targets in northern Iraq's Haftanin region on Wednesday, the second such operation launched against the Kurdistan Workers Party (PKK) in recent days.`\
 https://nytimes.com/reuters/2020/06/16/world/middleeast/16reuters-turkey-security-iraq.html?searchResultPosition=6
 
-**From Columbus to Confederacy, Anger Over Statues Boils Over**\
+**From Columbus to Confederates, Anger About Statues Boils Over**\
 `From Virginia to New Mexico, protests over police brutality have brought hundreds of years of American history bubbling to the surface.`\
 https://nytimes.com/2020/06/16/us/protests-statues-reckoning.html?searchResultPosition=7
 
