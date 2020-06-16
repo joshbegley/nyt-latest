@@ -1,24 +1,24 @@
-**Abolishing Qualified Immunity Is Unlikely to Alter Police Behavior**\
-`A host of reasons raise questions about the effectiveness of this reform.`\
-https://nytimes.com/2020/06/16/opinion/police-qualified-immunity.html?searchResultPosition=5
+**UN Envoy Hopes for New Syria Talks and Warns of Dire Economy**\
+`The U.N. special envoy for Syria said Tuesday he hopes that talks on drafting a new constitution for the country can be held in late August, warning the war-torn nation has plunged into economic crisis with rising fears among its people.`\
+https://nytimes.com/aponline/2020/06/16/world/europe/ap-un-united-nations-syria.html?searchResultPosition=5
 
-**Want Better Elections? Choose Better Elections Officials**\
-`Secretaries of state do more than count ballots and issue drivers’ licenses. They safeguard our democracy.`\
-https://nytimes.com/2020/06/16/opinion/voting-rights-elections-secretary-of-state.html?searchResultPosition=6
+**U.S. Thinks Any Extension of Iran Arms Embargo Should Be Open-Ended: U.S. Envoy for Iran**\
+`The United States believes an extension of an arms embargo on Iran, currently due to expire in October under a 2015 nuclear deal, should be done so indefinitely without a fixed date, a top U.S. official overseeing diplomacy with Tehran said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/16/world/middleeast/16reuters-iran-usa-hook-embargo.html?searchResultPosition=6
 
-**Tiny Love Stories: ‘A Tipsy, Celebratory State of Bliss’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2020/06/16/style/tiny-modern-love-stories-coronavirus-a-tipsy-celebratory-state-of-bliss.html?searchResultPosition=7
+**UAE's Abu Dhabi Eases Movement Restrictions: Media Office**\
+`Abu Dhabi eased movement restrictions to allow citizens and residents to leave the emirate freely without a permit but have to enter it with one, the emirate's media office said in a statement on Tuesday.`\
+https://nytimes.com/reuters/2020/06/16/world/middleeast/16reuters-health-coronavirus-emirates-abudhabi.html?searchResultPosition=7
 
-**U.S.'s Hook Says Wants In-Person Meeting With Iran on Prisoners**\
-`A senior U.S. diplomat said on Tuesday he would love to have an in-person meeting with Iranian officials to discuss consular matters, a term U.S. diplomats use to refer to possible prisoner exchanges.`\
-https://nytimes.com/reuters/2020/06/16/world/middleeast/16reuters-iran-usa-hook.html?searchResultPosition=8
+**AT&T Plans to Cut Thousands of Jobs, Close Stores: Union**\
+`AT&T Inc has informed the Communications Workers of America of its plans to cut more than 3,400 technician and clerical jobs across the country over the next few weeks, the wireless carrier's main labor union said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/16/technology/16reuters-at-t-layoffs.html?searchResultPosition=8
 
-**Cycling: Dutchman Terpstra Suffers Heavy Crash During Training**\
-`Former Paris-Roubaix winner Niki Terpstra's season hung in the balance after he suffered a heavy crash during training on Tuesday, his wife said.`\
-https://nytimes.com/reuters/2020/06/16/sports/cycling/16reuters-cycling-terpstra.html?searchResultPosition=9
+**A Black Cowboy Confronts the Whitewashed History of the West**\
+`Larry Callies comes from a long line of black Americans living and working on the frontier.`\
+https://nytimes.com/2020/06/16/opinion/all-i-have-to-offer-you-is-me-black-cowboys.html?searchResultPosition=9
 
-**McConnell Says Democrats' Policing Bill 'Going Nowhere' in Senate**\
-`U.S. Senate Majority Leader Mitch McConnell said on Tuesday a police reform bill put forward by House Democrats would not succeed in the Republican-led Senate.`\
-https://nytimes.com/reuters/2020/06/16/us/politics/16reuters-minneapolis-police-senate-mcconnell.html?searchResultPosition=10
+**All I Have to Offer You Is Me**\
+`Larry Callies comes from a long line of black cowboys living and working on the frontier.`\
+https://nytimes.com/video/opinion/100000007133685/all-i-have-to-offer-you-is-me.html?searchResultPosition=10
 
