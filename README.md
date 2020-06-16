@@ -1,24 +1,24 @@
-**Macron Pledges 200 Million Euros to Repatriate Drug Production to France**\
-`President Emmanuel Macron said the French government would launch a new initiative this week to repatriate production of some pharmaceutical products to France, pledging to make 200 million euros available to fund production capacity.`\
-https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-health-coronavirus-sanofi-macron.html?searchResultPosition=5
+**Trump to Sign Police Reform Executive Order on Tuesday**\
+`U.S. President Donald Trump will sign an executive order on Tuesday that will seek to improve how police officers treat African Americans and others by improving credentialing, training and mental health resources, administration officials said.`\
+https://nytimes.com/reuters/2020/06/16/us/politics/16reuters-minneapolis-police-usa-trump.html?searchResultPosition=5
 
-**In Vermont, an Immigrant City Races to Tamp Down an Outbreak**\
-`After months of having some of the fewest coronavirus cases in the country, Vermont is now trying to contain an outbreak that has hit an immigrant community in a small but densely populated city.`\
-https://nytimes.com/aponline/2020/06/16/us/ap-us-virus-outbreak-vermont-spike.html?searchResultPosition=6
+**The Dress Codes of the Uprising**\
+`Think they don’t exist? Think again. As the social justice protests enter a new stage, so, too, does the imagery that defines them.`\
+https://nytimes.com/2020/06/16/fashion/the-dress-codes-of-the-uprising.html?searchResultPosition=6
 
-**Amid U.S. Standoff, WHO Chief to Address Chinese University Graduates**\
-`The head of the WHO is due to give a speech to Beijing university students this week, as the U.N. body seeks to manage a resurgence of the coronavirus in China amid hostility from its biggest donor, the United States.`\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-who-china.html?searchResultPosition=7
+**China's Economy May Grow 3% in 2020, Government Researcher Says**\
+`China's economy may grow 3% this year as the government ramps up policy support, said Zhang Ming, a researcher at the Chinese Academy of Social Sciences, a top government think tank. `\
+https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-china-economy-gdp.html?searchResultPosition=7
 
-**Millennial Money: Unlock Savings With Credit Card Benefits**\
-`A few days after buying a sweater at Macy’s, Erin Chisman returned to get the same one in a different color, only to realize it was 50% off. Upon seeing the new price tag, the Wisconsin-based business owner was determined to save.`\
-https://nytimes.com/aponline/2020/06/16/business/ap-nerdwallet-millennial-money-card-benefits.html?searchResultPosition=8
+**Under 20s Around Half as Susceptible to COVID-19, Study Finds**\
+`People under 20 are around half as susceptible to COVID-19 as people aged 20 or above, according to research published on Tuesday, and clinical symptoms of the pandemic disease appear in only about a fifth of infections in children and teens.`\
+https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-health-coronavirus-age.html?searchResultPosition=8
 
-**US Retail Sales Likely Recovered Partly From Record Plunge**\
-`U.S. retail sales likely recovered somewhat last month as the economy increasingly reopened from shutdowns caused by the coronavirus and more shoppers felt confident enough to spend.`\
-https://nytimes.com/aponline/2020/06/16/business/ap-us-retail-sales.html?searchResultPosition=9
+**COVID-19 Cases Surging in Alabama, South Carolina and Oklahoma**\
+`New cases of COVID-19 nearly doubled in Alabama and South Carolina in the second week of June compared to the prior seven days, a Reuters analysis found, as 17 U.S. states reported weekly increases in the spread of the novel coronavirus.`\
+https://nytimes.com/reuters/2020/06/16/us/16reuters-health-coronavirus-usa-trends-graphic.html?searchResultPosition=9
 
-**U.S. Health Insurers May Balk at Paying for Coronavirus Antibody Testing**\
-`U.S. health insurers may balk at covering tests that look for coronavirus antibodies in some cases, arguing that employers or the government should foot a bill expected to run into billions of dollars.`\
-https://nytimes.com/reuters/2020/06/16/business/16reuters-health-coronavirus-usa-testing-focus.html?searchResultPosition=10
+**Carrefour, Google Team Up in Voice Grocery Shopping Service in France**\
+`Carrefour and Google said on Tuesday they were launching a new voice-based grocery shopping service in France as part of the French retailer's ambition to accelerate its expansion into food e-commerce.`\
+https://nytimes.com/reuters/2020/06/16/technology/16reuters-carrefour-google.html?searchResultPosition=10
 
