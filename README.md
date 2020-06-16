@@ -1,24 +1,24 @@
+**Baby Dragons Take Their Bow in a Slovenian Cave**\
+`Three rare aquatic creatures known as baby dragons are going on display in an aquarium at Slovenia's Postojna Cave, one of the country's biggest tourist attractions.`\
+https://nytimes.com/reuters/2020/06/16/world/16reuters-slovenia-babydragons.html?searchResultPosition=5
+
+**Stranded Seafarers Could Stop Work, Disrupting World Trade**\
+`Merchant ship crew members stranded at sea for months due to coronavirus-related travel restrictions could now start refusing to further extend their contracts and stop working, potentially disrupting global trade, the International Transport Workers’ Federation said late Monday.`\
+https://nytimes.com/aponline/2020/06/16/business/bc-eu-virus-outbreak-merchant-ship-crews.html?searchResultPosition=6
+
+**The Latest: Russian Anti-Doping Agency to Resume Testing**\
+`The Latest on the effects of the coronavirus outbreak on sports around the world:`\
+https://nytimes.com/aponline/2020/06/16/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=7
+
+**Parents of US Man Held in Moscow Demand Fair Trial for Son**\
+`The parents of a former U.`\
+https://nytimes.com/aponline/2020/06/16/us/politics/ap-us-marine-charged-russia.html?searchResultPosition=8
+
 **No Details Yet on Trump's Germany Pullout, NATO Chief Says**\
 `NATO is seeking details on U.S. President Donald Trump's  decision to cut U.S. troops numbers in Germany, NATO Secretary-General Jens Stoltenberg said on Tuesday, after the proposed reduction caught allies off guard.`\
-https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-usa-military-germany-nato.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-usa-military-germany-nato.html?searchResultPosition=9
 
 **Steroid Dexamethasone Reduces Deaths Among Patients With Severe COVID-19: Trial Shows**\
 `Giving low doses of the generic steroid drug dexamethasone to patients admitted to hospital with COVID-19 reduced death rates by around a third among those with the most severe cases of infection, trial data showed on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-health-coronavirus-steroid.html?searchResultPosition=6
-
-**As Coronavirus Returns, Beijingers Face Disruption, Anxiety**\
-`Beijing's scramble to contain a coronavirus outbreak, just over a week after containment measures had been eased and life had returned to near-normal, is disrupting activity for many residents and fueling concerns of further tightening.`\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-health-coronavirus-china-beijing.html?searchResultPosition=7
-
-**Poll: Americans Are the Unhappiest They've Been in 50 Years**\
-`Spoiler alert: 2020 has been rough on the American psyche. Folks in the U.S. are more unhappy today than they've been in nearly 50 years.`\
-https://nytimes.com/aponline/2020/06/16/us/ap-us-virus-outbreak-happiness-poll.html?searchResultPosition=8
-
-**'Top Chef' Host Padma Lakshmi Working on Picture Book**\
-`Padma Lakshmi's next book is designed for the children's table. `\
-https://nytimes.com/aponline/2020/06/16/us/ap-us-books-padma-lakshmi.html?searchResultPosition=9
-
-**McDonald's Worldwide Sales Improve as Stores Reopen Globally**\
-`McDonald’s sales are gradually improving as more of its restaurants reopen worldwide.`\
-https://nytimes.com/aponline/2020/06/16/business/ap-us-virus-outbreak-mcdonalds.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-health-coronavirus-steroid.html?searchResultPosition=10
 
