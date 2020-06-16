@@ -1,24 +1,24 @@
-**Zachary Quinto’s Weekend: Watching ‘Magnolia’ and Letting the Dogs Out**\
-`The actor has spent quarantine time holed up with friends, chasing his two dogs and finding new resonances in old favorite films.`\
-https://nytimes.com/2020/06/16/arts/television/zachary-quinto-nos4a2.html?searchResultPosition=5
+**Austrian Stimulus Package Brings Coronavirus Measures to 50 Billion Euros**\
+`Austria's conservative-led government approved a fresh stimulus package on Tuesday that it said boosts the sum of its coronavirus-related economic measures to some 50 billion euros ($56 billion) and will further swell its debt pile.`\
+https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-health-coronavirus-austria-aid.html?searchResultPosition=5
 
-**Italy Survey Finds Irritability, Anxiety in Locked-Down Kids**\
-`A survey conducted in Italy on the psychological impact of coronavirus lockdowns on children has quantified what many parents observed during weeks cooped up at home: kids were more irritable, had trouble sleeping and for some of the youngest, wept inconsolably and regressed developmentally. `\
-https://nytimes.com/aponline/2020/06/16/world/europe/ap-eu-virus-outbreak-impact-on-children.html?searchResultPosition=6
+**French Police Fire Tear Gas at Health Workers' Demonstration in Paris**\
+`French police fired tear gas at a health workers' demonstration in Paris on Tuesday, according to a Reuters reporter on the scene. `\
+https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-france-protests.html?searchResultPosition=6
 
-**Trump’s Rally Could Be a ‘Perfect Storm’ for the Virus, Tulsa Officials Fear**\
-`President Trump will hold his first campaign rally in months on Saturday in Oklahoma, where infections are rising, and officials there are pleading with him to cancel or hold it outdoors.`\
-https://nytimes.com/2020/06/16/us/politics/trump-coronavirus-rally.html?searchResultPosition=7
+**Powell Warns That Long Downturn Would Mean Severe Damage**\
+`Federal Reserve Chairman Jerome Powell says the U.S. economy faces a deep downturn with “significant uncertainty” about the timing and strength of a recovery. He warns that the longer the recession lasts, the worse the damage that will be inflicted on the job market and businesses.`\
+https://nytimes.com/aponline/2020/06/16/business/bc-us-federal-reserve-powell-congress.html?searchResultPosition=7
 
-**Sabres Change Course, Fire GM Botterill After 3 Seasons**\
-`The Buffalo Sabres fired general manager Jason Botterill on Tuesday in a dramatic change-of-course three weeks after co-owner Kim Pegula said his job was secure.`\
-https://nytimes.com/aponline/2020/06/16/sports/hockey/ap-hkn-sabres-botterill-fired.html?searchResultPosition=8
+**Auditors for Brazil Airline Gol Express Concern About Continuity After Crisis**\
+`Brazil airline Gol Linhas Aereas Inteligentes SA  said on Tuesday that it will "probably" receive a warning from its independent auditors that there is doubt whether the company will survive the coronavirus crisis. `\
+https://nytimes.com/reuters/2020/06/16/world/americas/16reuters-health-coronavirus-gol.html?searchResultPosition=8
 
-**Russia's RUSADA Resumes Sample Collecting After COVID Hiatus**\
-`Russia's anti-doping agency said on Tuesday it was restarting its collection of samples from athletes after halting testing activity due to the outbreak of the novel coronavirus.`\
-https://nytimes.com/reuters/2020/06/16/sports/16reuters-health-coronavirus-doping-russia.html?searchResultPosition=9
+**Lawyer: No Quick Extradition From W. Africa for US Suspect**\
+`The Cape Verdean defense lawyer for a Colombian wanted in the United States on suspicion of corrupt activities in Venezuela said Tuesday the extradition process in the West African islands could take months.`\
+https://nytimes.com/aponline/2020/06/16/world/africa/ap-af-cape-verde-us-venezuela.html?searchResultPosition=9
 
-**Atlanta Police Officer Who Shot Rayshard Brooks Had Past Reprimand for Use of Force**\
-`The former Atlanta police officer who shot and killed Rayshard Brooks last week was previously reprimanded for use of force involving a firearm, according to records released to Reuters by the city's police department on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/us/16reuters-minneapolis-police-atlanta.html?searchResultPosition=10
+**Fed Chair Powell Warns That Pandemic Downturn Could Widen Inequalities**\
+`Jerome H. Powell will use his congressional testimony to highlight racial and gender disparities in job loss.`\
+https://nytimes.com/2020/06/16/business/economy/fed-chair-powell-warns-that-pandemic-downturn-could-widen-inequalities.html?searchResultPosition=10
 
