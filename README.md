@@ -1,24 +1,24 @@
+**Trump Team Prepares $1 Trillion Infrastructure Plan to Spur Economy**\
+`The Trump administration is preparing an up to $1 trillion infrastructure package focused on transportation projects as part of its push to spur the world's largest economy back to life, a source familiar with the situation said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/16/business/16reuters-usa-trump.html?searchResultPosition=5
+
+**LPGA to Restart July 31 in Toledo**\
+`The LPGA Tour, the elite women’s professional golf circuit, will return from its COVID-19 shutdown with two tournaments in Ohio, starting with the new Drive On Championship three-day event from July 31 to Aug. 2, officials said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/16/sports/golf/16reuters-health-coronavirus-golf-lpga.html?searchResultPosition=6
+
+**Air Canada CFO Says Carrier Seeing Improved Domestic Bookings**\
+`Air Canada is seeing improved domestic bookings, but expects international flights to pick up only when the Canadian government relaxes travel restrictions introduced to curb the spread of the new coronavirus, the airline's chief financial officer said on Tuesday.   `\
+https://nytimes.com/reuters/2020/06/16/us/16reuters-air-canada-cfo.html?searchResultPosition=7
+
+**Gov. Cuomo Gives Go-Ahead for US Open Tennis in NY in August**\
+`New York Gov. Andrew Cuomo said Tuesday that the U.S. Open tennis tournament will held in late August as part of the state's reopening from shutdowns caused by the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/06/16/sports/tennis/ap-ten-virus-outbreak-us-open.html?searchResultPosition=8
+
+**George Floyd Killing Gives France Its Own Reckoning on Race**\
+`France has long sought social justice through a commitment to universal ideals. But a younger generation is demanding recognition of racism — and remedies for it.`\
+https://nytimes.com/2020/06/16/world/europe/france-race-george-floyd.html?searchResultPosition=9
+
 **Volkswagen to Pay $267 Million for Audi Buyout**\
 `Volkswagen will pay a 48% premium to buy out the minority shareholders of premium division Audi, Audi said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/business/16reuters-volkswagen-audi-buyout.html?searchResultPosition=5
-
-**Edén Pastora, ‘Commander Zero’ in Nicaragua, Dies at 83**\
-`A hero of the 1979 Sandinista revolution, he later turned on his comrades-in-arms, mounting an international campaign of political pressure and later guerrilla attacks inside the country.`\
-https://nytimes.com/2020/06/16/world/americas/eden-pastora-commander-zero-in-nicaragua-dies-at-83.html?searchResultPosition=6
-
-**Hilton to Cut 2,100 Corporate Jobs Globally**\
-`Hotel chain Hilton Worldwide Holdings Inc said on Tuesday it would cut 2,100 corporate roles globally in response to the coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/06/16/business/16reuters-health-coronavirus-hilton-wrldwide.html?searchResultPosition=7
-
-**British Royals Reappear in Public for First Time Since Lockdown**\
-`Britain's Prince Charles and his son Prince William made their first public appearances on Tuesday since the start of the coronavirus lockdown in March, visiting frontline healthcare workers to thank them for their response to the epidemic.`\
-https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-britain-royals.html?searchResultPosition=8
-
-**Eiffel Tower to Reopen After Longest Closure Since WWII**\
-`Workers are preparing the Eiffel Tower to reopen next week after the coronavirus pandemic led to the iconic Paris landmark's longest closure since World War II.`\
-https://nytimes.com/aponline/2020/06/16/business/ap-eu-virus-outbreak-eiffel-tower.html?searchResultPosition=9
-
-**For 3 Poets Who Embrace Excess, the Mess Is the Message**\
-`Our poetry columnist reviews “My Baby First Birthday,” by Jenny Zhang, “Toxicon and Arachne,” by Joyelle McSweeney, and “DMZ Colony,” by Don Mee Choi.`\
-https://nytimes.com/2020/06/16/books/review/for-3-poets-who-embrace-excess-the-mess-is-the-message.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/16/business/16reuters-volkswagen-audi-buyout.html?searchResultPosition=10
 
