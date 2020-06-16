@@ -1,24 +1,24 @@
-**EU Member States Agree Specs for Coronavirus App Interoperability**\
-`European Union member states have agreed technical standards for interoperability between smartphone apps that track the risk of coronavirus infections, a step that could help revive travel and tourism, the bloc's Commission said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/technology/16reuters-health-coronavirus-germany-app-europe.html?searchResultPosition=5
+**British Academy Film Awards Postpones Ceremony by 2 Months**\
+`Next year’s British Academy Film Awards have been postponed by two months, organizers said Tuesday. The move follows a decision by Hollywood’s film academy to shift the 2021 Oscars from February to April because of the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/06/16/world/europe/ap-eu-britain-film-awards.html?searchResultPosition=5
 
-**US Casinos Push for Cashless Gambling Payments, Citing Virus**\
-`The American casino industry wants gambling regulators to make it easier to adopt cashless payment transactions on the casino floor, citing a desire to help customers avoid handling money during the coronavirus outbreak.`\
-https://nytimes.com/aponline/2020/06/16/business/bc-us-casinos-cashless-payments.html?searchResultPosition=6
+**Fed's Powell Set to Reiterate Long U.S. Economic Recovery, Call for More Fiscal Support**\
+`Federal Reserve Chair Jerome Powell on Tuesday begins the first of two days of testimony before U.`\
+https://nytimes.com/reuters/2020/06/16/business/16reuters-usa-fed-powell.html?searchResultPosition=6
 
-**Kremlin Concerned About Situation on Korean Peninsula, Calls for Restraint**\
-`The Kremlin said on Tuesday it was concerned about the situation on the Korean peninsula and called for restraint from all sides after North Korea destroyed an inter-Korean liaison office. `\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-northkorea-southkorea-russia.html?searchResultPosition=7
+**Siemens Not Reducing Research and Development Spending During Coronavirus**\
+`Siemens is maintaining its investment in research and development despite the economic slowdown and reduced energy consumption caused by the global coronavirus pandemic, managing board member Cedrik Neike said on Tuesday. `\
+https://nytimes.com/reuters/2020/06/16/technology/16reuters-siemens-r-d-neike.html?searchResultPosition=7
 
-**Investors Believe Stock Markets Are 'Overvalued': BofA Survey**\
-`A whopping 98% of investors surveyed by Bank of America believe markets are "overvalued" after world stocks bounced back from March lows at a record pace driven by government stimulus measures.`\
-https://nytimes.com/reuters/2020/06/16/business/16reuters-markets-survey-bofa.html?searchResultPosition=8
+**Far-Right Suspect Goes on Trial for Killing German Politician**\
+`A suspected far-right sympathiser went on trial in Frankfurt on Tuesday for shooting dead a pro-immigration politician last year in a case that raised questions about whether Germany is doing enough to tackle right-wing radicalism.`\
+https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-germany-crime-trial-luebcke.html?searchResultPosition=8
 
-**EU Antitrust Regulators to Investigate Apple's App Store, Apple Pay**\
-`EU antitrust regulators opened on Tuesday two investigations into Apple regarding its App Store and Apple Pay, saying restrictions imposed by the iPhone maker may have breached EU competition rules.`\
-https://nytimes.com/reuters/2020/06/16/technology/16reuters-eu-antitrust-apple.html?searchResultPosition=9
+**Fed Bolsters Credit Market Support With Latest Launch**\
+`The New York Federal Reserve's planned launch on Tuesday of a bond-buying facility could help ease the potential stigma for companies of asking for help and create an important framework for what the central bank steps in to purchase, analysts and investors said.  `\
+https://nytimes.com/reuters/2020/06/16/business/16reuters-usa-fed-credit-facility.html?searchResultPosition=9
 
-**EU Transport 'Megaprojects' Are Behind Schedule, Over Budget**\
-`The European Union's external auditor says poor coordination between member states is severely delaying the development of transports projects worth billions euros aimed at improving connections between national networks across the continent. `\
-https://nytimes.com/aponline/2020/06/16/business/ap-eu-europe-transport.html?searchResultPosition=10
+**5 Things to Know for Today**\
+`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today:`\
+https://nytimes.com/aponline/2020/06/16/us/ap-5-things-to-know-today.html?searchResultPosition=10
 
