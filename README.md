@@ -1,24 +1,24 @@
-**U.S. House Panel to Hold Election Security Hearing With Facebook, Google, Twitter**\
-`Top officials from Facebook, Google and Twitter will appear before U.S. lawmakers on Thursday at a hearing to discuss  foreign influence and election security, the House Intelligence Committee said in a statement.`\
-https://nytimes.com/reuters/2020/06/16/technology/16reuters-usa-election-security.html?searchResultPosition=5
+**Protests in Paris as France Reckons With Racism**\
+`The death of George Floyd in Minneapolis has sparked protests around the world, and has pushed other countries to address police brutality in their own cities.`\
+https://nytimes.com/video/us/100000007194311/protests-in-paris-as-france-reckons-with-racism.html?searchResultPosition=5
 
-**Police Rescue Family After Dad Drove With Toddlers Off Cliff**\
-`A San Diego man was in police custody Tuesday and his twin toddlers were in the hospital after he drove off a cliff with them in his car in what police say was a suicide attempt. `\
-https://nytimes.com/aponline/2020/06/16/us/ap-us-family-cliff-rescue.html?searchResultPosition=6
+**‘We Are Committed to Using Our Full Range of Tools,’ Fed Chair Says**\
+`Federal Reserve Chair Jerome H. Powell testified before the Senate Banking Committee about the stability of the economy, and warned that a prolonged downturn could widen existing inequalities.`\
+https://nytimes.com/video/us/100000007194261/fed-economy-powell-coronavirus.html?searchResultPosition=6
 
-**Mexico to Stop Sending Workers to Canadian Farms Hit by Coronavirus Outbreak: Labor Ministry**\
-`Mexico has not suspended its temporary farm worker program in Canada, but will stop sending workers to farms that have registered a coronavirus outbreak and that do not have proper worker protections, Mexico's labor ministry said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/world/americas/16reuters-health-coronavirus-mexico-workers.html?searchResultPosition=7
+**Suriname's President Loses Election, Leaves Economic Chaos**\
+`Surinamese President Desi Bouterse, a former military ruler who has dominated the country's politics in recent decades, lost last month's national election, the country's electoral authority said on Tuesday after three weeks verifying the vote.`\
+https://nytimes.com/reuters/2020/06/16/us/16reuters-suriname-politics.html?searchResultPosition=7
 
-**Nebraska Democrats Renounce Their Senate Pick Over Comments**\
-`The Nebraska Democratic Party called on its U.S. Senate nominee to drop out of the race Tuesday after he was accused of making sexually inappropriate comments in a group text with campaign staffers.`\
-https://nytimes.com/aponline/2020/06/16/us/politics/ap-us-election-2020-nebraska-senate.html?searchResultPosition=8
+**Nigeria's Lagos State Suspends Plans to Reopen Places of Worship**\
+`Nigeria's commercial hub Lagos has suspended plans to reopen places of worship after a review of the new coronavirus outbreak, the state governor said on Tuesday. `\
+https://nytimes.com/reuters/2020/06/16/world/africa/16reuters-health-coronavirus-nigeria-religion.html?searchResultPosition=8
 
-**Oh Snap! Police Capture 65-Pound Turtle From Virginia Suburb**\
-`A 65-pound (29-kilogram) alligator snapping turtle with a face only its mother could love has found a new home at a Virginia zoo after freaking out residents in a northern Virginia suburb.`\
-https://nytimes.com/aponline/2020/06/16/us/ap-us-odd-turtle-captured.html?searchResultPosition=9
+**House Subpoenas Justice Dept Lawyers Over Politicization**\
+`House Democrats have subpoenaed two Justice Department lawyers to testify before the Judiciary Committee about the politicization of the agency in the Trump administration, the committee’s chairman said Tuesday. `\
+https://nytimes.com/aponline/2020/06/16/us/politics/ap-us-congress-barr.html?searchResultPosition=9
 
-**Airman Charged in Killing of Federal Officer in California**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/06/16/us/ap-us-federal-officer-killed.html?searchResultPosition=10
+**Appeals Court Sides With Exchanges in U.S. SEC Fee Row**\
+`A U.S. appeals court ruled on Tuesday that the Securities and Exchange Commission cannot force stock exchanges to conduct a costly experiment to see how the fees they charge and the incentives they offer affect brokers' trading habits.`\
+https://nytimes.com/reuters/2020/06/16/business/16reuters-usa-exchanges-lawsuit.html?searchResultPosition=10
 
