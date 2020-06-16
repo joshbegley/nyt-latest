@@ -1,24 +1,24 @@
-**For China and India, a Border Dispute That Never Ended**\
-`The countries went to war over the boundary in the Himalayas in 1962. Despite an uneasy truce and a “Line of Actual Control,” clashes still erupt.`\
-https://nytimes.com/2020/06/16/world/asia/india-china-line-actual-control.html?searchResultPosition=5
+**Zachary Quinto’s Weekend: Watching ‘Magnolia’ and Letting the Dogs Out**\
+`The actor has spent quarantine time holed up with friends, chasing his two dogs and finding new resonances in old favorite films.`\
+https://nytimes.com/2020/06/16/arts/television/zachary-quinto-nos4a2.html?searchResultPosition=5
 
-**U.S. Says in 'Close Coordination' With South Korea After North Korea Destroys Liaison Office**\
-`The U.S. government is in "close coordination" with South Korea after North Korea destroyed an inter-Korean liaison office on Tuesday, a senior Trump administration official said.`\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-northkorea-southkorea-usa.html?searchResultPosition=6
+**Italy Survey Finds Irritability, Anxiety in Locked-Down Kids**\
+`A survey conducted in Italy on the psychological impact of coronavirus lockdowns on children has quantified what many parents observed during weeks cooped up at home: kids were more irritable, had trouble sleeping and for some of the youngest, wept inconsolably and regressed developmentally. `\
+https://nytimes.com/aponline/2020/06/16/world/europe/ap-eu-virus-outbreak-impact-on-children.html?searchResultPosition=6
 
-**European Airlines Face Longer Haul to Recovery**\
-`A patchwork of national restrictions and a reluctance among travellers to cross borders mean European airlines face a bumpier return to the skies from coronavirus lockdowns than U.S. and Asian rivals. `\
-https://nytimes.com/reuters/2020/06/16/business/16reuters-health-coronavrus-europe-airlines-analysis.html?searchResultPosition=7
+**Trump’s Rally Could Be a ‘Perfect Storm’ for the Virus, Tulsa Officials Fear**\
+`President Trump will hold his first campaign rally in months on Saturday in Oklahoma, where infections are rising, and officials there are pleading with him to cancel or hold it outdoors.`\
+https://nytimes.com/2020/06/16/us/politics/trump-coronavirus-rally.html?searchResultPosition=7
 
-**Protesting French Hospital Workers Demand Better Pay**\
-`Hospital workers rallied in cities around France on Tuesday to demand better pay and more investment in the country's public hospital system, and police fired tear gas on the sidelines of the protest march in Paris. `\
-https://nytimes.com/aponline/2020/06/16/world/europe/ap-eu-virus-outbreak-french-hospitals.html?searchResultPosition=8
+**Sabres Change Course, Fire GM Botterill After 3 Seasons**\
+`The Buffalo Sabres fired general manager Jason Botterill on Tuesday in a dramatic change-of-course three weeks after co-owner Kim Pegula said his job was secure.`\
+https://nytimes.com/aponline/2020/06/16/sports/hockey/ap-hkn-sabres-botterill-fired.html?searchResultPosition=8
 
-**Thailand's Roving Dog Groomer Back in Business**\
-`Volunteer pet groomer Kriengkai Thatwakorn is thrilled to be back helping out stray dogs in Thailand, some in urgent need of a shearing after waiting three sweltering months for a trim.`\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-health-coronavirus-thailand-dog.html?searchResultPosition=9
+**Russia's RUSADA Resumes Sample Collecting After COVID Hiatus**\
+`Russia's anti-doping agency said on Tuesday it was restarting its collection of samples from athletes after halting testing activity due to the outbreak of the novel coronavirus.`\
+https://nytimes.com/reuters/2020/06/16/sports/16reuters-health-coronavirus-doping-russia.html?searchResultPosition=9
 
-**Sagan to Skip Cobbled Classic to Take Part in Giro d'Italia**\
-`Triple world champion Peter Sagan will skip the Tour of Flanders and Paris-Roubaix this year in order to take part in the Giro d'Italia for the first time, his Bora-Hansgrohe team manager Ralph Denk said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/sports/cycling/16reuters-cycling-sagan.html?searchResultPosition=10
+**Atlanta Police Officer Who Shot Rayshard Brooks Had Past Reprimand for Use of Force**\
+`The former Atlanta police officer who shot and killed Rayshard Brooks last week was previously reprimanded for use of force involving a firearm, according to records released to Reuters by the city's police department on Tuesday.`\
+https://nytimes.com/reuters/2020/06/16/us/16reuters-minneapolis-police-atlanta.html?searchResultPosition=10
 
