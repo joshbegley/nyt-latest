@@ -1,24 +1,24 @@
+**EU Says Trump Move Against International Court 'Unacceptable'**\
+`The European Union on Tuesday voiced grave concern about U.S. President Donald Trump's June 11 decision to authorise sanctions against the International Criminal Court, saying any punitive measures were "unacceptable and unprecedented". `\
+https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-warcrimes-afghanistan-trump-eu.html?searchResultPosition=5
+
+**Why Monday’s Gay Rights Ruling Was So Surprising**\
+`Inspired by the civil rights movement, it was decades in the making.`\
+https://nytimes.com/2020/06/16/opinion/gay-rights-supreme-court.html?searchResultPosition=6
+
+**Hungarian Parliament Votes for Govt to End State of Danger**\
+`Hungary’s parliament voted unanimously on Tuesday to ask the government to end to the state of danger declared because of the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/06/16/world/europe/ap-eu-virus-outbreak-hungary.html?searchResultPosition=7
+
+**Instant View: Powell: No U.S. Growth Recovery Until Epidemic Controlled**\
+`A full U.S. economic recovery will not occur until the American people are sure that the novel coronavirus epidemic has been brought under control, Federal Reserve Chair Jerome Powell said on Tuesday as he began the first of two days of hearings before U.S. lawmakers.`\
+https://nytimes.com/reuters/2020/06/16/business/16reuters-usa-fed.html?searchResultPosition=8
+
+**U.S. House Panel Subpoenas Career Prosecutors Over Alleged Political Meddling at Justice Dept**\
+`The Democratically-controlled U.`\
+https://nytimes.com/reuters/2020/06/16/us/politics/16reuters-usa-congress-justice.html?searchResultPosition=9
+
 **India Says China Unilaterally Tried to Change Status Quo at Disputed Border Site**\
 `India's foreign ministry said on Tuesday the face-off that led to the deaths of three Indian troops along its disputed border with China was a result of an attempt by Beijing "to unilaterally change the status quo there". `\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-india-china-mea.html?searchResultPosition=5
-
-**Austria: Man Fined for Farting 'With Full Intent' at Police**\
-`A man in Vienna has been fined 500 euros ($565) for breaking wind loudly in front of police — a move that the Austrian capital's police force was at pains to defend on Tuesday.`\
-https://nytimes.com/aponline/2020/06/16/world/europe/ap-eu-austria-farting-fine.html?searchResultPosition=6
-
-**Liberal Groups Warn Biden: Do More on Policing Reform or Risk Losing Black Support**\
-`More than 50 liberal groups have signed a letter to Democratic presidential candidate Joe Biden, warning he could lose black voters' support unless he commits to more transformative policing reforms.`\
-https://nytimes.com/reuters/2020/06/16/us/politics/16reuters-minneapolis-police-biden.html?searchResultPosition=7
-
-**Dozens Missing After Boat Capsizes on Congo Side of Lake Kivu**\
-`Dozens of people were missing after a boat sank on Lake Kivu in the east of the Democratic Republic of Congo, government officials and a civil society leader said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/world/africa/16reuters-congo-accident.html?searchResultPosition=8
-
-**Liberal Groups Warn Biden Could Lose Over Policing Policies**\
-`More than four dozen progressive groups have signed a letter to presumptive Democratic presidential nominee Joe Biden’s campaign criticizing his police reform proposals and warning that if he doesn’t adopt more progressive policies he risks losing black voters — and the election — this fall.`\
-https://nytimes.com/aponline/2020/06/16/us/politics/ap-us-election-2020-biden-progressives.html?searchResultPosition=9
-
-**Leota Dooley, a Music Lover in the Colorado Mountains, Dies at 97**\
-`As a member of a singing group, she kept the Salida, Colo., area tuneful. She died of the coronavirus.`\
-https://nytimes.com/2020/06/16/obituaries/leota-dooley-dead-coronavirus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-india-china-mea.html?searchResultPosition=10
 
