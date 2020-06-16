@@ -1,24 +1,24 @@
-**UK's Johnson: Israeli Annexation Breaches International Law**\
-`British Prime Minister Boris Johnson said Tuesday that Israeli plans to annex parts of the West Bank would “amount to a breach of international law.”`\
-https://nytimes.com/aponline/2020/06/16/world/europe/ap-eu-britain-israel.html?searchResultPosition=5
+**Hezbollah Leader Says Dollar Injections Needed Amid Currency's Slide**\
+`Lebanon's Hezbollah leader Sayyed Hassan Nasrallah said on Tuesday that an injection of dollars must be made into the market to bolster the country's pound currency amid a recent collapse in value.`\
+https://nytimes.com/reuters/2020/06/16/world/middleeast/16reuters-lebanon-crisis-hezbollah.html?searchResultPosition=5
 
-**Your Wednesday Briefing**\
-`India-China border, Beijing outbreak, restaurants: Here’s what you need to know.`\
-https://nytimes.com/2020/06/16/briefing/india-china-border-beijing-outbreak.html?searchResultPosition=6
+**Las Vegas Will Host 2021 Pro Bowl**\
+`The 2021 Pro Bowl will be held at the new Allegiant Stadium in Las Vegas next January, the NFL announced Tuesday.`\
+https://nytimes.com/reuters/2020/06/16/sports/football/16reuters-football-nfl-oak-pro-bowl.html?searchResultPosition=6
 
-**Congo Says It Will Launch a Tender for a New Passport Maker After Semlex Talks Fail**\
-`The Democratic Republic of Congo will tender for a new passport-maker after talks with Brussels-based manufacturer Semlex fell through, the country's foreign ministry said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/world/africa/16reuters-congo-passports-semlex.html?searchResultPosition=7
+**Canada 'Open' to Hosting NHL Hub City, Trudeau Says**\
+`Prime Minister Justin Trudeau said on Tuesday he was comfortable having a hub city in Canada for teams competing in the National Hockey League's planned restart amid the COVID-19 outbreak as long as local health authorities approve.`\
+https://nytimes.com/reuters/2020/06/16/sports/hockey/16reuters-health-coronavirus-canada-nhl.html?searchResultPosition=7
 
-**First the Play. Then the Soul Searching. But What Comes Next?**\
-`An Atlanta theater company addresses racial inequity in a series of virtual dinners that mix drama with discussion.`\
-https://nytimes.com/2020/06/16/theater/equitable-dinner-out-of-hand.html?searchResultPosition=8
+**Georgia City Investigating Police Chief After Facebook Post**\
+`An Atlanta-area police chief who was criticized for saying on social media that he doesn’t support the Black Lives Matter movement has now been placed on leave while his city investigates him.`\
+https://nytimes.com/aponline/2020/06/16/us/ap-us-police-chief-facebook-post.html?searchResultPosition=8
 
-**Don’t Ask Returning Workers to Sign a Waiver**\
-`A lawyer says employees often have no idea how safe the workplace will be. Also: Representative Jan Schakowsky, on Covid-19 tests for nursing home workers; Brazil’s response to the pandemic.`\
-https://nytimes.com/2020/06/16/opinion/letters/coronavirus-employment-law.html?searchResultPosition=9
+**Two Men Charged in Slaying of Federal Courthouse Guard in Oakland, California**\
+`Two men have been charged in the slaying last month of a federal courthouse guard in Oakland, California, during an ambush blocks away from anti-racism protests sparked by George Floyd's death at the hands of Minneapolis police days earlier, prosecutors said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/16/us/16reuters-california-shooting-ambush.html?searchResultPosition=9
 
-**How a Once-Loathed Brooklyn Arena Became a Protest Epicenter**\
-`Barclays Center helped displace hundreds of residents and businesses, but its plaza has become a town square amid the local Black Lives Matter movement.`\
-https://nytimes.com/2020/06/16/nyregion/barclays-center-protests.html?searchResultPosition=10
+**PG&E Pleads Guilty to Involuntary Manslaughter in California Wildfire Deaths: Report**\
+`PG&E pleaded guilty on Tuesday to 84 counts of involuntary manslaughter stemming from a devastating 2018 wildfire in Northern California touched off by the utility company's downed power lines, the New York Times reported.`\
+https://nytimes.com/reuters/2020/06/16/us/16reuters-california-wildfires-pg-e.html?searchResultPosition=10
 
