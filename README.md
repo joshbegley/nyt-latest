@@ -1,24 +1,24 @@
-**EU Says Trump Move Against International Court 'Unacceptable'**\
-`The European Union on Tuesday voiced grave concern about U.S. President Donald Trump's June 11 decision to authorise sanctions against the International Criminal Court, saying any punitive measures were "unacceptable and unprecedented". `\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-warcrimes-afghanistan-trump-eu.html?searchResultPosition=5
+**Recent Commercial Real Estate Transactions**\
+`Recent commercial real estate transactions in New York.`\
+https://nytimes.com/2020/06/16/business/new-york-commercial-real-estate.html?searchResultPosition=5
 
-**Why Monday’s Gay Rights Ruling Was So Surprising**\
-`Inspired by the civil rights movement, it was decades in the making.`\
-https://nytimes.com/2020/06/16/opinion/gay-rights-supreme-court.html?searchResultPosition=6
+**Heart Disease, Diabetes Significantly Raise Risk of Hospitalization, Death From COVID-19: U.S. Study**\
+`People with underlying health conditions such as heart disease and diabetes are six times more likely to be hospitalized with COVID-19 and have a risk of coronavirus-related death 12 times higher than otherwise healthy individuals, a U.S. study found.`\
+https://nytimes.com/reuters/2020/06/16/us/16reuters-health-coronavirus-usa-risk.html?searchResultPosition=6
 
-**Hungarian Parliament Votes for Govt to End State of Danger**\
-`Hungary’s parliament voted unanimously on Tuesday to ask the government to end to the state of danger declared because of the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/06/16/world/europe/ap-eu-virus-outbreak-hungary.html?searchResultPosition=7
+**Flushing the Toilet May Fling Coronavirus Aerosols All Over**\
+`A new study shows how turbulence from a toilet bowl can create a large plume that is potentially infectious to a bathroom’s next visitor.`\
+https://nytimes.com/2020/06/16/health/coronavirus-toilets-flushing.html?searchResultPosition=7
 
-**Instant View: Powell: No U.S. Growth Recovery Until Epidemic Controlled**\
-`A full U.S. economic recovery will not occur until the American people are sure that the novel coronavirus epidemic has been brought under control, Federal Reserve Chair Jerome Powell said on Tuesday as he began the first of two days of hearings before U.S. lawmakers.`\
-https://nytimes.com/reuters/2020/06/16/business/16reuters-usa-fed.html?searchResultPosition=8
+**Bailey, Freeney Debut on College Hall of Fame Ballot**\
+`Georgia cornerback Champ Bailey, Syracuse defensive end Dwight Freeney and Kansas State running back Darren Sproles will appear on the College Football Hall of Fame ballot for the first time.`\
+https://nytimes.com/aponline/2020/06/16/sports/ncaafootball/ap-fbc-hall-of-fame-ballot.html?searchResultPosition=8
 
-**U.S. House Panel Subpoenas Career Prosecutors Over Alleged Political Meddling at Justice Dept**\
-`The Democratically-controlled U.`\
-https://nytimes.com/reuters/2020/06/16/us/politics/16reuters-usa-congress-justice.html?searchResultPosition=9
+**Report: Russia-Linked Disinformation Operation Still Active**\
+`A Kremlin-linked social media disinformation operation that sought to interfere with the 2016 U.S. election has continued its work to divide and discredit Western democracies, a new report finds — but its effectiveness has been limited by its own cautious tactics.`\
+https://nytimes.com/aponline/2020/06/16/business/ap-us-russia-disinformation-report-1st-ld-writethru.html?searchResultPosition=9
 
-**India Says China Unilaterally Tried to Change Status Quo at Disputed Border Site**\
-`India's foreign ministry said on Tuesday the face-off that led to the deaths of three Indian troops along its disputed border with China was a result of an attempt by Beijing "to unilaterally change the status quo there". `\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-india-china-mea.html?searchResultPosition=10
+**Italy Prosecutors Request Acquittal for Former Monte Paschi Executives in Derivative Trial**\
+`Milan prosecutors requested on Tuesday the acquittal of three former executives of Banca Monte dei Paschi di Siena in a long-running false accounting case. `\
+https://nytimes.com/reuters/2020/06/16/business/16reuters-italy-monte-dei-paschi-derivatives-prosecutors.html?searchResultPosition=10
 
