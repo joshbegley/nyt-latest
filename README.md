@@ -1,24 +1,24 @@
-**Exclusive: CureVac Becomes Second Company to Test Coronavirus Vaccine in Germany-Sources**\
-`Unlisted biotech firm CureVac will become the second coronavirus vaccine developer to launch human trials of an experimental immunization in Germany, two people familiar with the plans told Reuters on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-health-coronavirus-curevac-trial-exclusive.html?searchResultPosition=5
+**‘If I Was Martha, What Would I Do?’ For One, Stay Upright**\
+`The Martha Graham Dance Company has reimagined a lost 1937 solo, inspired by the Spanish Civil War, for the digital world.`\
+https://nytimes.com/2020/06/16/arts/dance/martha-graham-immediate-tragedy-virus.html?searchResultPosition=5
 
-**Fed's Harker Says He Expects 'Sharp Recession' in 2020 With Growth Next Year**\
-`The U.S. economy could begin to recover from a sharp recession next year as the labor market recovers, but it may take time for the economy to return to the levels seen earlier this year, Philadelphia Federal Reserve Bank President Patrick Harker said Tuesday. `\
-https://nytimes.com/reuters/2020/06/16/us/16reuters-usa-fed-harker.html?searchResultPosition=6
+**U.S. Urges North Korea to 'Refrain From Further Counterproductive Actions'**\
+`The United States responded to North Korea's blowing up of a joint liaison office with South Korea on Tuesday by saying it fully supports Seoul's efforts on inter-Korean relations and urging Pyongyang to "refrain from further counterproductive actions."`\
+https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-northkorea-southkorea-usa-state.html?searchResultPosition=6
 
-**Kimmel to Host Emmys, First Major Awards Show of Pandemic**\
-`Jimmy Kimmel will host the first major Hollywood awards ceremony of the coronavirus pandemic — but just how the Emmy Awards will be held remains cloudy.`\
-https://nytimes.com/aponline/2020/06/16/us/ap-us-tv-emmys-host.html?searchResultPosition=7
+**Conviction in the Philippines Reveals Facebook’s Dangers**\
+`The conviction of the journalist Maria Ressa shows that Facebook’s harms can’t be ignored.`\
+https://nytimes.com/2020/06/16/technology/facebook-philippines.html?searchResultPosition=7
 
-**China Keen to Seek Benefits From Pandemic, Distressed U.S. Assets: Report**\
-`U.S. lawmakers and policymakers should be wary of China's moves to target vulnerable U.S. assets and expand its market share in the wake of the global economic crisis triggered by the novel coronavirus, according to a study prepared for a U.S. trade group and released on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/business/16reuters-usa-trade-china.html?searchResultPosition=8
+**PG&E to Plead Guilty in 84 Deaths Caused by Camp Fire**\
+`The California utility has agreed to pay a nearly $2 billion fine for causing the blaze, which killed dozens and destroyed the town of Paradise.`\
+https://nytimes.com/2020/06/16/business/energy-environment/pge-pleads-guilty-camp-fire.html?searchResultPosition=8
 
-**Chief Says 'No Cop-Free Zone' in Seattle During Protests**\
-`Seattle Police Chief Carmen Best says officers will go into the several-block area being occupied by protesters if there are threats to public safety.`\
-https://nytimes.com/aponline/2020/06/16/us/ap-us-america-protests-seattle.html?searchResultPosition=9
+**Yankees President Levine Calls for MLB Talks to Resume**\
+`Yankees President Randy Levine called on the players' association to resume negotiations with Major League Baseball to start the pandemic-delayed season.`\
+https://nytimes.com/aponline/2020/06/16/sports/baseball/ap-bbo-virus-outbreak-mlb-yankees.html?searchResultPosition=9
 
-**EU, US Display Differences Over Serbia-Kosovo Negotiation**\
-`Kosovo’s president on Tuesday hailed the United States for its leadership role in negotiations to normalize ties with its former wartime foe Serbia. But differences emerged between the Trump administration's envoy and European officials on who should lead the talks.`\
-https://nytimes.com/aponline/2020/06/16/business/ap-eu-kosovo-serbia-talks.html?searchResultPosition=10
+**U.S. Appeals Court Rejects Rule Requiring Drug Prices in TV Ads**\
+`A U.S. appeals court on Tuesday upheld a ruling that struck down a Trump administration rule that required pharmaceutical companies to include the wholesale prices of their drugs in television advertisements.`\
+https://nytimes.com/reuters/2020/06/16/us/16reuters-usa-drug-pricing-lawsuit.html?searchResultPosition=10
 
