@@ -1,24 +1,24 @@
+**Coronavirus Outbreaks at Border Put Haitian Migrants at Risk**\
+`Day laborers who lack adequate health care and housing are particularly vulnerable, as cases rise across the Americas.`\
+https://nytimes.com/2020/06/16/science/coronavirus-haiti-dominican-republic.html?searchResultPosition=5
+
+**Turkish Warplanes Strike Kurdish Targets in Northern Iraq**\
+`Turkey's Defence Ministry said its warplanes struck Kurdish militant targets in northern Iraq's Haftanin region on Wednesday, the second such operation launched against the Kurdistan Workers Party (PKK) in recent days.`\
+https://nytimes.com/reuters/2020/06/16/world/middleeast/16reuters-turkey-security-iraq.html?searchResultPosition=6
+
+**From Columbus to Confederacy, Anger Over Statues Boils Over**\
+`From Virginia to New Mexico, protests over police brutality have brought hundreds of years of American history bubbling to the surface.`\
+https://nytimes.com/2020/06/16/us/protests-statues-reckoning.html?searchResultPosition=7
+
+**Tim Scott, Once Quiet on Matters of Race, Embraces Key Role on Police Reform**\
+`The sole black Republican senator cited his personal experiences with racism as a vital perspective to his party’s approach to a law enforcement overhaul.`\
+https://nytimes.com/2020/06/16/us/politics/tim-scott-police-protests.html?searchResultPosition=8
+
 **U.S. Unions Urge Mexico to Defend Workers' Rights After Labor Advocate's Arrest**\
 `Pressure is growing for Mexican authorities to release prominent labor lawyer Susana Prieto, arrested a week ago at a protest, with two U.S. unions concerned about a rights clampdown ahead of a new regional trade deal. `\
-https://nytimes.com/reuters/2020/06/16/world/americas/16reuters-usa-trade-mexico-labor.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/16/world/americas/16reuters-usa-trade-mexico-labor.html?searchResultPosition=9
 
 **Some Amazon Villagers Eschew Drugs for COVID-19, Take 'Toothache Plant' Herbal Tea**\
 `Some villagers in the eastern Amazon are spurning Brazilian government advice to take the malaria drug hydroxychloroquine to keep the novel coronavirus at bay and are drinking tea of jambú, also known as the toothache plant.`\
-https://nytimes.com/reuters/2020/06/16/world/americas/16reuters-health-coronavirus-brazil-amazon.html?searchResultPosition=6
-
-**Dale Jarrett Announces Coronavirus Diagnosis During TV Show**\
-`NASCAR Hall of Famer Dale Jarrett announced Tuesday he has tested positive for COVID-19 and now is in quarantine.`\
-https://nytimes.com/aponline/2020/06/16/sports/ap-car-nascar-jarrett-coronavirus.html?searchResultPosition=7
-
-**Air Force Sergeant With Ties to Extremist Group Charged in Federal Officer’s Death**\
-`The sergeant had expressed his allegiance to the so-called boogaloo movement, an extremist ideology that seeks to overthrow the U.S. government.`\
-https://nytimes.com/2020/06/16/us/steven-carrillo-air-force-boogaloo.html?searchResultPosition=8
-
-**NBA Lays Out Its Vision for Disney Restart to Teams, Players**\
-`Here’s some of what awaits NBA players going to Disney next month: game rooms, golf course access, cabanas with misters to combat the heat, fishing areas, bowling, backstage tours and salon services.`\
-https://nytimes.com/aponline/2020/06/16/sports/basketball/ap-bkn-nba-restart-disney.html?searchResultPosition=9
-
-**Living on the Edge, Pakistani Hindus Still Feel Safer in India**\
-`Seven years ago, Dharamveer Solanki, a Hindu, left his home in Pakistan’s Hyderabad city, never to return. When his train crossed the border into India, Solanki said he felt happier than ever before.`\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-refugee-day-india-citizenship.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/16/world/americas/16reuters-health-coronavirus-brazil-amazon.html?searchResultPosition=10
 
