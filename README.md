@@ -1,24 +1,24 @@
+**UN Alarmed About Detention, Abuse of Egyptians in Libya**\
+`The United Nations raised the alarm Tuesday about the detention and mistreatment of a large group of Egyptian citizens in Libya, in possible violation of international law.`\
+https://nytimes.com/aponline/2020/06/16/world/middleeast/ap-ml-libya.html?searchResultPosition=5
+
+**Germany Looks at Buying New Maritime Patrol Aircraft: Document**\
+`Germany's Defence Ministry has stopped refurbishing the military's maritime patrol aircraft in favour of conducting a market study of possible replacements, a confidential ministry document reviewed by Reuters showed.`\
+https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-germany-defence-airplane.html?searchResultPosition=6
+
+**The Surprising Supreme Court Ruling on L.G.B.T. Rights**\
+`Readers celebrate the decision and discuss how some conservatives like Justice Neil Gorsuch and Barry Goldwater have steered their own course.`\
+https://nytimes.com/2020/06/16/opinion/letters/supreme-court-lgbt-rights.html?searchResultPosition=7
+
+**C.I.A. Failed to Defend Against Theft of Secrets by Insider, Report Says**\
+`Better security could have protected hacking tools that were stolen in a large breach and handed over to WikiLeaks, a task force found.`\
+https://nytimes.com/2020/06/16/us/politics/cia-vault-7-hacking-breach.html?searchResultPosition=8
+
+**Coronavirus Hotspots Flare in Arizona and Florida; Oregon Church Linked to Outbreak**\
+`For a second week in a row, half a dozen U.S. states face a surge in new coronavirus cases and rising hospitalizations, including an outbreak linked to a church in rural Oregon.`\
+https://nytimes.com/reuters/2020/06/16/us/16reuters-health-coronavirus-usa.html?searchResultPosition=9
+
 **Coal Union Seeks Order Protecting Miners From Coronavirus**\
 `A union representing U.S. coal miners asked a court Tuesday to force the federal government to take unspecified measures to protect them from the coronavirus.`\
-https://nytimes.com/aponline/2020/06/16/business/ap-us-virus-outbreak-coal-miners.html?searchResultPosition=5
-
-**Virginia Governor to Propose Juneteenth as State Holiday**\
-`Virginia Gov. Ralph Northam announced Tuesday that he will propose making Juneteenth — a day that commemorates the end of slavery in the U.S. — an official holiday in a state that was once home to the capital of the Confederacy.`\
-https://nytimes.com/aponline/2020/06/16/us/ap-us-juneteenth-holiday-virginia.html?searchResultPosition=6
-
-**Near Trump's Rally Site, Black Tulsa Lives With Fiery Legacy**\
-`In the real world, 74-year-old Donald Shaw is walking on the empty, parched grass slope by Tulsa’s noisy crosstown expressway.`\
-https://nytimes.com/aponline/2020/06/16/us/politics/ap-us-trump-legacy-of-a-massacre.html?searchResultPosition=7
-
-**A Playful Masterpiece That Expanded the Novel’s Possibilities**\
-`Two new translations of “The Posthumous Memoirs of Brás Cubas,” by Machado de Assis, is a new opportunity to enshrine the singular talent and mischief of this writer.`\
-https://nytimes.com/2020/06/16/books/review-posthumous-memoirs-bras-cubas-machado-de-assis.html?searchResultPosition=8
-
-**World TeamTennis Players Testing Positive for COVID Lose Pay**\
-`A World TeamTennis player or coach who tests positive for COVID-19 when arriving for the three-week 2020 season will be dropped from the league without pay.`\
-https://nytimes.com/aponline/2020/06/16/sports/tennis/ap-ten-virus-outbreak-world-teamtennis.html?searchResultPosition=9
-
-**Panel: NOAA Bowed to Political Pressure in Dorian Dispute**\
-`National Oceanic and Atmospheric Administration leaders violated the agency’s scientific integrity when they chastised a local weather office that had contradicted President Trump’s inaccurate comments about Hurricane Dorian, an outside panel found.`\
-https://nytimes.com/aponline/2020/06/16/us/ap-us-noaa-scientific-integrity.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/16/business/ap-us-virus-outbreak-coal-miners.html?searchResultPosition=10
 
