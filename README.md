@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/06/15/world/asia/ap-as-koreas-tensions-.html?s
 `The head of the U.S. agency that warns of dangerous weather  violated its policy on scientific integrity with a statement last year backing a tweeted forecast by President Donald Trump about the path of a hurricane, according to a report released on Monday.`\
 https://nytimes.com/reuters/2020/06/15/us/15reuters-usa-trump-hurricane.html?searchResultPosition=9
 
-**Exclusive: Chesapeake Energy to File for Bankruptcy as Soon as This Week-Sources**\
+**Exclusive: Chesapeake Energy to File for Bankruptcy as Soon as This Week: Sources**\
 `Chesapeake Energy Corp is preparing to file for bankruptcy as soon as this week, said three people familiar with the matter, becoming the largest oil and gas producer to unravel after an energy market rout caused by the coronavirus outbreak.`\
 https://nytimes.com/reuters/2020/06/15/business/15reuters-chesapeake-enrgy-bankruptcy-exclusive.html?searchResultPosition=10
 
