@@ -1,24 +1,24 @@
-**Merkel, Erdogan Agree U.N. Process for Libya Should Be Bolstered: Statement**\
-`German Chancellor Angela Merkel discussed the conflict in Libya and the situation in the eastern Mediterranean in a video call with Turkish President Tayyip Erdogan, Merkel's spokesman said in a statement on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-libya-security-turkey-germany.html?searchResultPosition=5
+**World Trade Organization Finds Saudi Links to Sports Piracy**\
+`The World Trade Organization has ruled Saudi Arabia failed to stop a broadcasting operation pirating sports coverage and blocked moves to shut it down in a proxy of the Gulf economic and diplomatic dispute with Qatar. `\
+https://nytimes.com/aponline/2020/06/16/business/ap-soc-saudi-arabia-tv-piracy.html?searchResultPosition=5
 
-**From Iceland's Capital, 11-Year-Old Plays in Warriors Camp**\
-`Sporting his No. 30 Stephen Curry jersey, 11-year-old Bjarki Robertsson kept up the pace. He hopped on his right foot, then his left, joining in a drill as part of the Golden State Warriors’ basketball camp.`\
-https://nytimes.com/aponline/2020/06/16/sports/ap-virus-outbreak-one-good-thing-iceland-hoops.html?searchResultPosition=6
+**'Woefully Lax': Report Slams CIA Cybersecurity After Hacking Tool Leak**\
+`Many of the Central Intelligence Agency's most sensitive hacking tools were so poorly secured that it was only when WikiLeaks published them online in 2017 that the agency realized they had been compromised, according to a report released Tuesday. `\
+https://nytimes.com/reuters/2020/06/16/technology/16reuters-usa-cia-wikileaks.html?searchResultPosition=6
 
-**Lighting Maker Signify: UV Light 'Degrades' Coronavirus Quickly**\
-`Signify, the world's largest lighting manufacturer, said on Tuesday researchers at Boston University had confirmed an ultraviolet light made by the company works to degrade most coronavirus in a laboratory setting in a matter of seconds.`\
-https://nytimes.com/reuters/2020/06/16/technology/16reuters-health-coronavirus-lighting.html?searchResultPosition=7
+**U.S. Narrows List of Promising COVID-19 Vaccine Candidates to About Seven**\
+`U.S. President Donald Trump's administration is narrowing its list of promising experimental coronavirus vaccines to about seven from 14, the U.S. Department of Health and Human Services said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/16/us/16reuters-health-coronavirus-vaccines-usa.html?searchResultPosition=7
 
-**Prosecutor in Roger Stone Case Will Testify About Barr’s Intervention**\
-`The prosecutor is one of two Justice Department officials coming forward whom Democrats are calling whistle-blowers.`\
-https://nytimes.com/2020/06/16/us/politics/roger-stone-prosecutor-hearing.html?searchResultPosition=8
+**India Investment Body Backs Incentives for $706 Million Samsung Display Plant: Letter**\
+`Samsung Electronics should get tax and other incentives from India's northern state of Uttar Pradesh as the South Korean company looks to invest some 53.`\
+https://nytimes.com/reuters/2020/06/16/technology/16reuters-samsung-elec-india.html?searchResultPosition=8
 
-**Russia Starts Early Voting on Reform Extending Putin's Rule**\
-`Russia’s far eastern region of Kamchatka has kicked off early voting on the constitutional reform that would allow President Vladimir Putin to stay in power until 2036, with election officials travelling to remote areas and bringing ballots to residents who don't have access to polling stations. `\
-https://nytimes.com/aponline/2020/06/16/world/europe/ap-eu-russia-early-voting.html?searchResultPosition=9
+**Court Says Judge's Facebook Friendship Created Conflict**\
+`A divided Wisconsin Supreme Court ruled Tuesday that a judge’s decision to become Facebook friends with a woman whose child custody case he was hearing created at least the appearance of bias, upholding a lower court's order that the case be re-heard by another judge.`\
+https://nytimes.com/aponline/2020/06/16/business/ap-us-facebook-bias.html?searchResultPosition=9
 
-**Europe Rolls Out Contact Tracing Apps, With Hope and Trepidation**\
-`Italy and Germany activated apps this week as tools to avoid a second wave of coronavirus infections, fueling a debate about privacy rights.`\
-https://nytimes.com/2020/06/16/world/europe/italy-germany-coronavirus-contact-tracing-apps.html?searchResultPosition=10
+**When Can Grandparents Meet the Newborn?**\
+`With precautions in place you may be able to see — and even hold — the newest addition to your family.`\
+https://nytimes.com/2020/06/16/parenting/baby/grandparents-meet-newborn-coronavirus.html?searchResultPosition=10
 
