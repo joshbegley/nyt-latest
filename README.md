@@ -1,24 +1,24 @@
-**Israeli PM Sets August Target Date to Open Skies to Flight**\
-`Israeli Prime Minister Benjamin Netanyahu told his Greek counterpart Tuesday he hoped to open Israel's skies as soon as August after a prolonged closure due to the coronavirus, and that Greece would be among the first destination for Israeli tourists.`\
-https://nytimes.com/aponline/2020/06/16/world/middleeast/ap-ml-israel-greece.html?searchResultPosition=5
+**Brazil Retail Sales Plunge a Record 16.8% in April**\
+`Brazilian retail sales plunged at a record pace in April, official figures showed on Tuesday, as the first full month of social isolation and quarantine measures drove a decline in sales across all sectors of the economy.`\
+https://nytimes.com/reuters/2020/06/16/world/americas/16reuters-brazil-economy-retail-sales.html?searchResultPosition=5
 
-**Patient Fatally Shot After Killing NW Indiana Hospital Guard**\
-`A psychiatric patient disarmed and fatally shot a retired police officer at a northwest Indiana hospital early Tuesday before another retired officer working security at the hospital fatally shot the patient, a sheriff said.`\
-https://nytimes.com/aponline/2020/06/16/us/ap-us-indiana-hospital-shooting.html?searchResultPosition=6
+**Airlines Urge Regulators to Extend Airport Slots Waiver**\
+`Airlines are urging aviation regulators to extend a waiver on airport slot rules as they struggle to overcome the coronavirus crisis, their main international body said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/16/business/16reuters-health-coronavirus-airlines-iata.html?searchResultPosition=6
 
-**China Military Demands India Stop All Provocations, Return to Dialogue**\
-`China's military on Tuesday demanded that India immediately stop all infringements and provocative actions against China and return to dialogue to resolve their disagreements, following reports of a border clash. `\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-india-china-pla-dialogue.html?searchResultPosition=7
+**French Nurse: We Cared for COVID Patients, Who Will Care for Us?**\
+`At the peak of the COVID-19 crisis in France, 29-year-old nurse Justine Debrie volunteered to work in a hospital coronavirus unit. Now she wants to know how the French state is going to recognise her sacrifice.`\
+https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-health-coronavirus-france-health.html?searchResultPosition=7
 
-**EU Antitrust Regulators Set July 20 Deadline for Google, Fitbit Deal**\
-`EU antitrust regulators will decide by July 20 whether to clear Alphabet Inc-owned Google's $2.1 billion bid for fitness trackers company Fitbit, a deal that has prompted concerns from consumer groups and privacy advocates.`\
-https://nytimes.com/reuters/2020/06/16/technology/16reuters-fitbit-m-a-alphabet-eu.html?searchResultPosition=8
+**Weary Sailors Pose Risk to World Merchant Fleet: U.N. Shipping Chief**\
+`Hundreds of thousands of weary seafarers stuck on ships for many months and unable to go home due to the coronavirus pose a risk to the safe operation of the world's merchant fleet, the UN's shipping chief said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/16/us/16reuters-shipping-seafarers.html?searchResultPosition=8
 
-**US Retail Sales Up a Record 17.7% in a Partial Rebound**\
-`U.S. retail sales jumped by a record 17.7% from April to May, with spending partially rebounding after the coronavirus had shut down businesses, flattened the economy and paralyzed consumers during the previous two months.`\
-https://nytimes.com/aponline/2020/06/16/business/bc-us-retail-sales-1st-ld-writethru.html?searchResultPosition=9
+**MSF Closes Kabul Program After May Maternity Hospital Attack**\
+`Doctors Without Borders said it closed its operation on Tuesday in Kabul, ending yearslong work to support a maternity hospital in the Afghan capital. The closure came a month after a horrific attack at the facility killed 24 people, including two infants, nurses and several young mothers. `\
+https://nytimes.com/aponline/2020/06/16/world/asia/ap-as-afghanistan.html?searchResultPosition=9
 
-**Ukraine President's Wife Hospitalized With Virus**\
-`The wife of Ukrainain President Volodymyr Zelenskiy has been hospitalized with double pneumonia after contracting the new coronavirus, joining the ranks of several first ladies around the world who got infected with COVID-19 earlier this year.`\
-https://nytimes.com/aponline/2020/06/16/world/europe/ap-eu-virus-outbreak-ukraine-first-lady.html?searchResultPosition=10
+**Rep. Ilhan Omar’s Father Dies From Complications of Covid-19**\
+`Ms. Omar, Democrat of Minnesota and one of the first two Muslim women in Congress, sought asylum in the United States with her father in the 1990s.`\
+https://nytimes.com/2020/06/16/us/politics/ilhan-omar-father-dead-coronavirus.html?searchResultPosition=10
 
