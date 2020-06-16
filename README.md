@@ -1,24 +1,24 @@
-**Fed Officials' GDP Forecasts Not Likely Factoring Second COVID Wave: Powell**\
-`The economic growth projections Federal Reserve officials offered last week by and large do not factor in a potential second wave of coronavirus infections later this year, Fed Chair Jerome Powell said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/us/16reuters-usa-fed-powell-forecasts.html?searchResultPosition=5
+**House to Vote to Make Washington DC the 51st State**\
+`Democrats controlling the House have slated a vote next week to make the District of Columbia the 51st state, an issue that they say has become far more important in the aftermath of protests for racial justice in both Washington and across the nation.`\
+https://nytimes.com/aponline/2020/06/16/us/politics/ap-us-congress-dc-statehood.html?searchResultPosition=5
 
-**Ex-Tommy Hilfiger Boss Grieder to Become New Hugo Boss CEO**\
-`German fashion house Hugo Boss has appointed former Tommy Hilfiger [APARTM.UL] boss Daniel Grieder as its next chief executive, it said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/business/16reuters-hugo-boss-ceo.html?searchResultPosition=6
+**U.S. CDC Reports 2,104,346 Coronavirus Cases, 116,140 Deaths**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Tuesday reported 2,104,346 cases of coronavirus, an increase of 18,577 cases from its previous count, and said that the number of deaths had risen by 496 to 116,140.`\
+https://nytimes.com/reuters/2020/06/16/us/16reuters-health-coronavirus-usa-cdc.html?searchResultPosition=6
 
-**Chile Says Accounting Errors Led to Omission of 31,000 Coronavirus Cases**\
-`A rash of accounting glitches in Chile led to the omission of more than 31,000 confirmed coronavirus cases, or nearly one-sixth of the country's total so far, health officials said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/world/americas/16reuters-health-coronavirus-chile.html?searchResultPosition=7
+**Trump Administration Takes Keystone Dispute to Supreme Court**\
+`The Trump administration has asked the U.S. Supreme Court to revive a permit program that would allow the disputed Keystone XL pipeline and other new oil and gas pipelines to cross waterways with little review.`\
+https://nytimes.com/aponline/2020/06/16/business/bc-us-keystone-xl-pipeline.html?searchResultPosition=7
 
-**Judge in Landmark Congo Graft Trial Died Violent Death, Says Minister**\
-`The high court judge overseeing a landmark corruption trial of the president's chief of staff in Democratic Republic of Congo died a violent death from blows to the head, the justice minister said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/16/world/africa/16reuters-congo-justice.html?searchResultPosition=8
+**4 Charts to Explain the Retail Sales Rise**\
+`Yes, retail sales took a big jump in May, but they have a lot of ground to make up. Here’s a look at what the numbers mean.`\
+https://nytimes.com/interactive/2020/06/16/burst/retail-sales-economy.html?searchResultPosition=8
 
-**Confederate Symbols Are Coming Down. Should Dolly Parton Go Up Instead?**\
-`A petition is calling for Tennessee to replace statues and memorials of Confederate generals with the trailblazing performer.`\
-https://nytimes.com/2020/06/16/us/dolly-parton-confederate-statues.html?searchResultPosition=9
+**France Says Working With Partners to Pressure Iran at IAEA on Inspector Access**\
+`France said it was working with Britain and Germany to see the U.N.'s nuclear watchdog board of governors push Iran this week to cooperate fully and immediately to grant its inspectors access to sites Tehran has so far refused them to visit. `\
+https://nytimes.com/reuters/2020/06/16/world/middleeast/16reuters-iran-nuclear-iaea-france.html?searchResultPosition=9
 
-**Bodies of Children and Others Found in Libyan Town After LNA Retreat, Red Crescent Says**\
-`Bodies of children were among those found in the Libyan town of Tarhouna after eastern-based forces and their local allies withdrew this month, Red Crescent and Tripoli government officials said on Tuesday. `\
-https://nytimes.com/reuters/2020/06/16/world/africa/16reuters-libya-security.html?searchResultPosition=10
+**As 'Ground Zero' for Crisis, Nevada Shows Need for Fiscal Aid: Fed's Powell**\
+`Even as the U.S. economy shows early signs of emergence from the coronavirus recession, the state of Nevada illustrates both why a full recovery may still be years away and why Congress will likely need to deliver more fiscal aid.`\
+https://nytimes.com/reuters/2020/06/16/us/16reuters-usa-fed-powell-nevada.html?searchResultPosition=10
 
