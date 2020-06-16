@@ -1,24 +1,24 @@
+**Around 9% of Guinea-Bissau Health Workers Have Been Infected With COVID-19**\
+`More than 170 of Guinea-Bissau's 2,000 health workers have contracted COVID-19, a World Health Organization expert said on Tuesday, warning that hospitals were close to being overwhelmed.`\
+https://nytimes.com/reuters/2020/06/16/world/16reuters-health-coronavirus-bissau.html?searchResultPosition=5
+
+**U.S. Sues Former Trump Adviser Bolton to Block Book Publication**\
+`The United States on Tuesday sued former national security advisor John Bolton, seeking to block him from publishing a book about his time in the White House that it said contained classified information and would compromise national security.`\
+https://nytimes.com/reuters/2020/06/16/us/politics/16reuters-usa-trump-bolton-book.html?searchResultPosition=6
+
+**Silver: NBA Will Address Player Concerns Before Return**\
+`NBA commissioner Adam Silver plans to listen for now, but expects the league to address all player concerns before games resume in Orlando next month.`\
+https://nytimes.com/reuters/2020/06/16/sports/basketball/16reuters-basketball-nba-silver.html?searchResultPosition=7
+
+**Trump Administration Sues to Block Release of Bolton Book**\
+`The Trump administration sued former national security adviser John Bolton on Tuesday to block the publication of a book that the White House says contains classified information.`\
+https://nytimes.com/aponline/2020/06/16/arts/ap-us-trump-bolton-book.html?searchResultPosition=8
+
+**Coronavirus, India, Platypuses: Your Tuesday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/06/16/briefing/coronavirus-india-platypuses.html?searchResultPosition=9
+
 **Protester Shoved to Ground Has Skull Fracture, Lawyer Says**\
 `A 75-year-old protester who struck his head on pavement after being shoved back by police remained hospitalized Tuesday with a fractured skull, his attorney said.`\
-https://nytimes.com/aponline/2020/06/16/us/ap-us-america-protests-buffalo.html?searchResultPosition=5
-
-**U.S. to Nominate Trump's Top Latin America Adviser to Lead IDB**\
-`The United States on Tuesday said it will nominate President Donald Trump's top Latin America adviser to head the Inter-American Development Bank, upending a longstanding tradition to reserve that post for a nominee from the region.`\
-https://nytimes.com/reuters/2020/06/16/us/16reuters-usa-trump-idb.html?searchResultPosition=6
-
-**Our Best Fourth of July Recipes**\
-`Here’s what you need to make the most of the holiday.`\
-https://nytimes.com/article/july-4th-recipes.html?searchResultPosition=7
-
-**Trump Administration Asks Judge to Stop Publication of Bolton’s Book**\
-`The request comes a week before the highly anticipated memoir was set to be published.`\
-https://nytimes.com/2020/06/16/us/politics/john-bolton-book-publication.html?searchResultPosition=8
-
-**Our Lives Happen in Restaurants**\
-`Renowned writers remember some of their funniest, best, strangest and most memorable meals out.`\
-https://nytimes.com/interactive/2020/06/16/dining/restaurant-closings-memories-coronavirus.html?searchResultPosition=9
-
-**Column: Cranberries and a Ticking Clock for Ryder Cup Fate**\
-`The final weekend in September in Wisconsin was expected to be bustling with good times and gigantic crowds, upward of 45,000 people and some 1,300 vendors taking part in an event steeped in tradition.`\
-https://nytimes.com/aponline/2020/06/16/sports/golf/ap-glf-on-the-fringe-ryder-cup.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/16/us/ap-us-america-protests-buffalo.html?searchResultPosition=10
 
