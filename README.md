@@ -1,36 +1,36 @@
+**2020 US Open: Fewer Line Judges, Ball People, Events in Plan**\
+`Electronic line-calling will be used instead of line judges for U.S. Open matches at all courts except the two largest arenas and singles qualifying, mixed doubles, junior and wheelchair competition are being eliminated entirely.`\
+https://nytimes.com/aponline/2020/06/17/sports/tennis/ap-ten-us-open-plans.html?searchResultPosition=2
+
+**Kayapó Chief Payakan Dies From COVID-19, Led Protest Against Amazon Dam**\
+`Brazil's indigenous people lost one of their pioneering leaders to COVID-19 on Wednesday with the death of Paulinho Payakan, a Kayapó chief who led protests against the Belo Monte hydro-electric dam in the 1980s.`\
+https://nytimes.com/reuters/2020/06/17/world/americas/17reuters-health-coronavirus-brazil-indigenous.html?searchResultPosition=3
+
+**Zoom to Offer End-To-End Encryption for All Users**\
+`Zoom Video Communications Inc is planning to offer all its free and paying users end-to-end encryption for video calls, the video conferencing provider said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/technology/17reuters-zoom-encryption.html?searchResultPosition=4
+
+**UAE Official: Israel Annexation May Draw Calls for One State**\
+`A senior Emirati official warned Wednesday that Israel's planned annexation of parts of the West Bank could lead Arab states to call for a single bi-national state for Israelis and Palestinians.`\
+https://nytimes.com/aponline/2020/06/17/world/middleeast/ap-ml-israel-annexation.html?searchResultPosition=5
+
+**Taylor Wimpey Launches $626 Million Share Sale, to Resume Dividends in 2021**\
+`Builder Taylor Wimpey said on Wednesday it intends to resume dividends in 2021 and launched a share sale to raise about 500 million pounds ($626 million), as it looks to take advantage of a fall in land prices due to the COVID-19 crisis.`\
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-taylor-plc-equity.html?searchResultPosition=6
+
+**Should We Be More Pessimistic?**\
+`Many Americans reflexively believe that good fortune is always around the corner. But ignoring the dark potential of life can have dire consequences.`\
+https://nytimes.com/2020/06/17/arts/pessimism-life-coronavirus.html?searchResultPosition=7
+
 **LATAM Airlines to Suspend Operations in Argentina Indefinitely**\
 `LATAM Airlines Group on Wednesday said it will cease operations at its Argentine subsidiary "indefinitely," its first major cutback since Latin America's largest airline filed for bankruptcy protection last month.`\
-https://nytimes.com/reuters/2020/06/17/business/17reuters-health-coronavirus-latam-latam-airlines.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/17/business/17reuters-health-coronavirus-latam-latam-airlines.html?searchResultPosition=8
 
 **12 Hidden Gems to Play on the Nintendo Switch**\
 `There’s more to the console than Animal Crossing, Mario and Zelda. Here are some lesser known games to check out.`\
-https://nytimes.com/2020/06/17/arts/nintendo-switch-recommendations.html?searchResultPosition=3
+https://nytimes.com/2020/06/17/arts/nintendo-switch-recommendations.html?searchResultPosition=9
 
 **Noel Francisco, Top Trump Administration Lawyer, Departing**\
 `The Trump administration’s top Supreme Court lawyer is departing. `\
-https://nytimes.com/aponline/2020/06/17/us/politics/ap-trump-administration-departure.html?searchResultPosition=4
-
-**AP-NORC Poll: Sweeping Change in US Views of Police Violence**\
-`A dramatic shift has taken place in the nation’s opinions on policing and race, as a new poll finds that more Americans today than five years ago believe police brutality is a very serious problem that too often goes undisciplined and unequally targets black Americans.`\
-https://nytimes.com/aponline/2020/06/17/us/ap-us-ap-poll-race-and-policing.html?searchResultPosition=5
-
-**Russian Nuclear-Capable Bombers Fly Near Alaska**\
-`Russian nuclear-capable strategic bombers have flown near Alaska on a mission demonstrating the military's long-range strike capability.`\
-https://nytimes.com/aponline/2020/06/17/world/europe/ap-eu-russia-us-military-flights.html?searchResultPosition=6
-
-**Maryland Board Approves Nearly $4M for 2 Wrongly Imprisoned**\
-`A Maryland board approved settlements of nearly $2 million each Wednesday for two men who were wrongly imprisoned for crimes they didn’t commit.`\
-https://nytimes.com/aponline/2020/06/17/us/ap-us-wrongly-imprisoned-maryland.html?searchResultPosition=7
-
-**Syria Says New Tougher U.S. Sanctions Breach International Law**\
-`Syria said Washington's toughest sanctions against President Bashar al-Assad's government, which came to effect on Wednesday, violated international law.`\
-https://nytimes.com/reuters/2020/06/17/world/middleeast/17reuters-syria-security-usa-sanctions-law.html?searchResultPosition=8
-
-**Panama Extends Suspension of International Flights Due to Coronavirus**\
-`Panama's civil aviation authority said it will extend a suspension of international flights by a month due to the coronavirus crisis, according to a statement on Wednesday.`\
-https://nytimes.com/reuters/2020/06/17/world/americas/17reuters-health-coronavirus-panama-flights.html?searchResultPosition=9
-
-**Need a Trim? Here Are Tips on Safely Visiting a Salon.**\
-`Salons are beginning to re-open in many states, but your visit may be quite different than before the coronavirus outbreak. Here are some tips on staying safe.`\
-https://nytimes.com/interactive/2020/06/17/burst/5-swipes-for-a-low-risk-salon-visit.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/17/us/politics/ap-trump-administration-departure.html?searchResultPosition=10
 
