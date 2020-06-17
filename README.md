@@ -1,36 +1,36 @@
-**Bringing Ethics to Your Plate**\
-`This essay, by an anonymous student, is one of the top three winners in the middle school category of our Seventh Annual Student Editorial Contest for which we received 1,242 entries.`\
-https://nytimes.com/2020/06/17/learning/bringing-ethics-to-your-plate.html?searchResultPosition=2
+**Chill Vibe of Hilton Head Hides Urgency for PGA Tour Players**\
+`The ambiance of Hilton Head doesn't change, a most peaceful setting among shade of oaks along the Calibogue Sound. Adding to the serenity this week is the absence of spectators for the second straight week on the PGA Tour.`\
+https://nytimes.com/aponline/2020/06/17/sports/golf/ap-glf-rbc-heritage-preview.html?searchResultPosition=2
 
-**How Pragmatism Is Poisoning the Democratic Will of America’s Youth**\
-`This essay, by Edward Xu, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
-https://nytimes.com/2020/06/17/learning/how-pragmatism-is-poisoning-the-democratic-will-of-americas-youth.html?searchResultPosition=3
+**Ukraine Receives $60M Worth of Military Equipment From US**\
+`More than $60 million worth of weapons and other equipment is going to Ukraine as part of the U.S. security aid program with the country, the U.S. Embassy in Kyiv said Wednesday. `\
+https://nytimes.com/aponline/2020/06/17/business/bc-eu-ukraine-military-aid-1st-ld-writethru.html?searchResultPosition=3
 
-**Kristen Stewart to Play Princess Diana in New Movie**\
-`Kristen Stewart will play Britain's Princess Diana in an upcoming movie about the breakdown of her marriage to Prince Charles, Hollywood trade publication Deadline reported on Wednesday.`\
-https://nytimes.com/reuters/2020/06/17/arts/17reuters-film-princess-diana.html?searchResultPosition=4
+**Amtrak to Cut Back on Its Longer Routes Because of Virus**\
+`Amtrak will cut service later this year on most of its long-distance routes nationwide to three times a week instead of the current daily service because ridership has fallen significantly during the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/06/17/business/bc-us-amtrak-service-cuts.html?searchResultPosition=4
 
-**Trump Sought China's Xi's Help to Win Re-election, Bolton Alleges**\
-`In a bombshell allegation, U.S. President Donald Trump's former national security adviser John Bolton said Trump sought Chinese President Xi Jinping's help in winning re-election during a closed-door June 2019 meeting.`\
-https://nytimes.com/reuters/2020/06/17/us/politics/17reuters-usa-trump-bolton-book.html?searchResultPosition=5
+**Switching Letters, Skipping Lines: Troubled and Dyslexic Minds**\
+`This essay, by Hayden Miskinis, is one of the top three winners in the middle school category of our Seventh Annual Student Editorial Contest for which we received 1,242 entries.`\
+https://nytimes.com/2020/06/17/learning/switching-letters-skipping-lines-troubled-and-dyslexic-minds.html?searchResultPosition=5
 
-**Europe's Wage Schemes Shielded Households From Most Income Losses, ECB Says**\
-`Government wage subsidy schemes shielded eurozone households from the majority of income losses during the bloc's pandemic-induced recession, and wage losses are now rapidly diminishing, a European Central Bank study showed on Wednesday. `\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-eurozone-economy-wages.html?searchResultPosition=6
+**Meeting Between Pompeo, and China's Top Diplomat Yang Under Way: Official**\
+`A meeting in Hawaii between the U.S. Secretary of State Mike Pompeo and China's top diplomat Yang Jiechi began shortly after 9 a.m. local time (3 p.m. EST), a senior State Department official said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-usa-china-pompeo-meeting.html?searchResultPosition=6
 
-**U.S. Senate Overwhelmingly Passes Major Conservation Bill**\
-`The U.S. Senate on Wednesday passed a major conservation bill that would permanently direct $900 million a year to a long-standing federal program aimed at acquiring and protecting public lands.`\
-https://nytimes.com/reuters/2020/06/17/us/politics/17reuters-usa-conservation.html?searchResultPosition=7
+**Harnessing Boredom in the Age of Coronavirus**\
+`This essay, by Elan Cohen, is one of the top three winners in the middle school category of our Seventh Annual Student Editorial Contest for which we received 1,242 entries.`\
+https://nytimes.com/2020/06/17/learning/harnessing-boredom-in-the-age-of-coronavirus.html?searchResultPosition=7
 
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark U.S. crude oil for July delivery fell 42 cents to settle at $37.96 a barrel Monday. Brent crude oil for August delivery fell 25 cents to $40.71 a barrel.`\
-https://nytimes.com/aponline/2020/06/17/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=8
+**Fossils From Mongolia, Argentina Show Some Dinosaurs Laid Soft-Shelled Eggs**\
+`Scientists have unearthed the first fossils of soft-shelled eggs laid by dinosaurs - two disparate species from Argentina and Mongolia - in a discovery suggesting that the earliest dinosaurs produced such eggs before some lineages turned to hard shells.`\
+https://nytimes.com/reuters/2020/06/17/world/americas/17reuters-science-dinosaurs.html?searchResultPosition=8
 
-**How Animal Crossing Will Save Gen Z**\
-`This essay, by Ananya Udaygiri, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
-https://nytimes.com/2020/06/17/learning/how-animal-crossing-will-save-gen-z.html?searchResultPosition=9
+**Sudan Extends Lockdown in Khartoum State to June 29**\
+`Sudan has extended a lockdown in the state of Khartoum to June 29 as it tries to curb the spread of the coronavirus pandemic, its Security and Defence Council said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/world/africa/17reuters-health-coronavirus-sudan.html?searchResultPosition=9
 
-**This Land Was Made for You and Me**\
-`This essay, by Nicole Tian, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
-https://nytimes.com/2020/06/17/learning/this-land-was-made-for-you-and-me.html?searchResultPosition=10
+**Oxford College Says It Wants to Remove Statue of Colonialist Rhodes**\
+`The governing body of an Oxford University college said it would recommend removing a statue of 19th century colonialist Cecil Rhodes from its facade, the Daily Telegraph reported on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-britain-statues-rhodes.html?searchResultPosition=10
 
