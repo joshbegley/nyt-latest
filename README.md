@@ -1,36 +1,36 @@
+**Strong Anti-Racism Message at Re-Start of Premier League**\
+`Aston Villa and Sheffield United re-started the Premier League on Wednesday after a 100-day hiatus caused by the COVID-19 health crisis with a strong statement of support for the worldwide protests against racism.`\
+https://nytimes.com/reuters/2020/06/17/sports/soccer/17reuters-soccer-england-ava-shu.html?searchResultPosition=2
+
+**UNLV Removes Hey Reb! Statue Following Student Protests**\
+`The University of Nevada, Las Vegas has removed a statue of its “Hey Reb!” mascot from in front of its alumni center following outcry from student groups, including the Native American Student Association.`\
+https://nytimes.com/aponline/2020/06/17/sports/ap-us-america-protests-nevada-1st-ld-writethru.html?searchResultPosition=3
+
+**Mavs Owner Cuban to Host SiriusXM Radio Business Show**\
+`Mark Cuban is ready to talk business — or whatever else his radio listeners want to discuss.`\
+https://nytimes.com/aponline/2020/06/17/business/ap-bkn-mavericks-cuban-radio-show.html?searchResultPosition=4
+
+**Scientific Panel on New Dietary Guidelines Draws Criticism from Health Advocates**\
+`More than half the members of a panel considering changes to the nation’s blueprint for healthy eating have ties to the food industry.`\
+https://nytimes.com/2020/06/17/health/diet-nutrition-guidelines.html?searchResultPosition=5
+
+**Biggest Hit to Brazil Economy Appears to Be in April, May: Treasury Secretary**\
+`Brazilian economic indicators indicate that the worst of the coronavirus-led hit to activity was in April and May, Treasury Secretary Mansueto Almeida said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/world/americas/17reuters-brazil-economy-treasury.html?searchResultPosition=6
+
+**U.S. Lawmaker Says Seeking Bipartisan Legislation on Airline Mask Rules**\
+`A U.S. senator said on Wednesday he was hoping for bipartisan support in Congress for mandatory rules on masks for air travel after the head of the Federal Aviation Administration again resisted calls for a mandate.`\
+https://nytimes.com/reuters/2020/06/17/us/politics/17reuters-health-coronavirus-usa-airlines.html?searchResultPosition=7
+
+**EU Post-COVID Recovery Plan Likely to Win Backing in July: Budget Chief**\
+`The European Union's economic recovery plan after the COVID-19 pandemic is likely to secure backing from member states in July, helping the 27-nation bloc emerge from the recession together, EU Budget Commissioner Johannes Hahn said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-eu-budget-interview.html?searchResultPosition=8
+
+**Administration Seeking Rollbacks on Tech Company Protections**\
+`The Justice Department is proposing that Congress roll back legal protections for online platforms such as Facebook, Google and Twitter that generally could not be held legally responsible for what people post on the sites. `\
+https://nytimes.com/aponline/2020/06/17/business/bc-us-social-media-legal-protections.html?searchResultPosition=9
+
 **Saying Goodbye to Sies Marjan**\
 `A rising star on the New York fashion scene, Sies Marjan was a feel-good luxury brand with a bold palette and distinctive point of view.`\
-https://nytimes.com/2020/06/17/fashion/saying-goodbye-to-sies-marjan.html?searchResultPosition=2
-
-**How Richard Pryor Changed a Comic Trope on Police Brutality**\
-`His best-selling albums reflected a lived-in experience that comedy, going back to silent films, had often taken up and just as often dismissed.`\
-https://nytimes.com/2020/06/17/arts/richard-pryor-police-brutality.html?searchResultPosition=3
-
-**2020 US Open: Fewer Line Judges, Ball People, Events in Plan**\
-`Electronic line-calling will be used instead of line judges for U.S. Open matches at all courts except the two largest arenas and singles qualifying, mixed doubles, junior and wheelchair competition are being eliminated entirely.`\
-https://nytimes.com/aponline/2020/06/17/sports/tennis/ap-ten-us-open-plans.html?searchResultPosition=4
-
-**Kayapó Chief Payakan Dies From COVID-19, Led Protest Against Amazon Dam**\
-`Brazil's indigenous people lost one of their pioneering leaders to COVID-19 on Wednesday with the death of Paulinho Payakan, a Kayapó chief who led protests against the Belo Monte hydro-electric dam in the 1980s.`\
-https://nytimes.com/reuters/2020/06/17/world/americas/17reuters-health-coronavirus-brazil-indigenous.html?searchResultPosition=5
-
-**Zoom to Offer End-To-End Encryption for All Users**\
-`Zoom Video Communications Inc is planning to offer all its free and paying users end-to-end encryption for video calls, the video conferencing provider said on Wednesday.`\
-https://nytimes.com/reuters/2020/06/17/technology/17reuters-zoom-encryption.html?searchResultPosition=6
-
-**UAE Official: Israel Annexation May Draw Calls for One State**\
-`A senior Emirati official warned Wednesday that Israel's planned annexation of parts of the West Bank could lead Arab states to call for a single bi-national state for Israelis and Palestinians.`\
-https://nytimes.com/aponline/2020/06/17/world/middleeast/ap-ml-israel-annexation.html?searchResultPosition=7
-
-**Taylor Wimpey Launches $626 Million Share Sale, to Resume Dividends in 2021**\
-`Builder Taylor Wimpey said on Wednesday it intends to resume dividends in 2021 and launched a share sale to raise about 500 million pounds ($626 million), as it looks to take advantage of a fall in land prices due to the COVID-19 crisis.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-taylor-plc-equity.html?searchResultPosition=8
-
-**Should We Be More Pessimistic?**\
-`Many Americans reflexively believe that good fortune is always around the corner. But ignoring the dark potential of life can have dire consequences.`\
-https://nytimes.com/2020/06/17/arts/pessimism-life-coronavirus.html?searchResultPosition=9
-
-**LATAM Airlines to Suspend Operations in Argentina Indefinitely**\
-`LATAM Airlines Group on Wednesday said it will cease operations at its Argentine subsidiary "indefinitely," its first major cutback since Latin America's largest airline filed for bankruptcy protection last month.`\
-https://nytimes.com/reuters/2020/06/17/business/17reuters-health-coronavirus-latam-latam-airlines.html?searchResultPosition=10
+https://nytimes.com/2020/06/17/fashion/saying-goodbye-to-sies-marjan.html?searchResultPosition=10
 
