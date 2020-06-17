@@ -1,36 +1,36 @@
-**Coronavirus Puts Poor Argentines' Soccer Dreams on Hold**\
-`The apartment blocks of Fort Apache are emblazoned with murals of Carlos Tevez, the superstar forward for Argentina's most popular pro soccer team and its national squad. `\
-https://nytimes.com/aponline/2020/06/17/sports/soccer/ap-soc-virus-outbreak-argentina-2nd-ld-writethru.html?searchResultPosition=2
+**Manuel Felguérez, Mexican Abstract Artist, Is Dead at 91**\
+`Mr. Felguérez was part of a movement that broke from traditional Mexican muralists like Diego Rivera. He died of the novel coronavirus.`\
+https://nytimes.com/2020/06/17/obituaries/manuel-felguerez-dead-coronavirus.html?searchResultPosition=2
 
-**Aspirin in Honey: Dubious COVID-19 'Cures' Spread in Brazil**\
-`In Brazil, home to the world's second worst coronavirus outbreak, one thing seems to be spreading faster than the virus: the suspect, and sometimes strange, strategies to treat it.`\
-https://nytimes.com/reuters/2020/06/17/world/americas/17reuters-health-coronavirus-brazil-fakenews.html?searchResultPosition=3
+**Meanwhile, Some People Are Stress-Shopping Diamond Bracelets**\
+`The auction houses report robust online sales.`\
+https://nytimes.com/2020/06/17/style/online-jewelry-auctions.html?searchResultPosition=3
 
-**Puck Woes: NHL's Bottom Line Facing Short-Term Blow**\
-`With so much uncertainty, Larry Quinn can't predict just how severe the NHL's financial losses might be due to the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/06/17/business/ap-hkn-nhl-bottom-line-concerns.html?searchResultPosition=4
+**UAE Says Turkish and Iranian Interventions Violate Iraqi Sovereignty**\
+`The United Arab Emirates said on Wednesday that Turkish and Iranian military interventions in Iraq violated the sovereignty of a sisterly Arab country.`\
+https://nytimes.com/reuters/2020/06/17/world/middleeast/17reuters-iraq-security-emirates.html?searchResultPosition=4
 
-**Canada to Present Fiscal Snapshot on July 8, Too Early for Full Update, PM Trudeau Says**\
-`The Canadian government will unveil a "fiscal and economic snapshot" on July 8 to help show much money it has spent combating the coronavirus outbreak, Prime Minister Justin Trudeau said on Wednesday.`\
-https://nytimes.com/reuters/2020/06/17/world/americas/17reuters-health-coronavirus-canada.html?searchResultPosition=5
+**USTR Favors Tariffs to Boost Domestic Production of Medical Equipment**\
+`U.S. Trade Representative Robert Lighthizer on Wednesday said he believed that medical products needed to fight the current coronavirus pandemic and any future outbreaks should be made domestically and he favored tariffs to ensure that occurred.`\
+https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-health-coronavirus-usa-trade.html?searchResultPosition=5
 
-**Tiz the Law Draws No. 8 Post as Early 6-5 Belmont Favorite**\
-`It wasn't quite the post position trainer Barclay Tagg wanted for Tiz the Law. Still, it wasn't far off for the colt who on Wednesday was made the early 6-5 favorite for the Belmont Stakes.`\
-https://nytimes.com/aponline/2020/06/17/sports/ap-rac-belmont-draw.html?searchResultPosition=6
+**Italian Nursing Homes Lacked Tools for COVID-19 Onslaught, Survey Shows**\
+`Italy's nursing homes, where the COVID-19 epidemic is believed to have killed thousands of people, did not have the equipment needed to protect staff or residents, a survey by the country's top health body showed on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-italy-nursing-homes.html?searchResultPosition=6
 
-**Saudi-Led Coalition in Yemen Denies Killing Civilians in Saada Air Strike**\
-`The Saudi-led coalition fighting in Yemen on Wednesday denied that an air strike it carried out earlier this week in Saada province had killed civilians, as alleged by Houthi authorities. `\
-https://nytimes.com/reuters/2020/06/17/world/middleeast/17reuters-yemen-security.html?searchResultPosition=7
+**Chile Tightens Lockdowns as Country Exceeds 200,000 Coronavirus Cases**\
+`The Chilean government on Wednesday announced a tightening of lockdowns and "maximum" movement restrictions in its capital Santiago as the country´s confirmed coronavirus caseload exceeded 200,000. `\
+https://nytimes.com/reuters/2020/06/17/world/americas/17reuters-health-coronavirus-chile.html?searchResultPosition=7
 
-**Former Bumble Bee CEO Gets Jail in Price Fixing Conspiracy**\
-`A former CEO of Bumble Bee Foods has been sentenced to more than three years in jail for his role in a canned tuna price-fixing conspiracy involving three major companies, the U.S. Justice Department said.`\
-https://nytimes.com/aponline/2020/06/17/business/bc-us-canned-tuna-price-fixing.html?searchResultPosition=8
+**Fed's Bostic Says Pandemic Exacerbated Structural Inequalities**\
+`The coronavirus pandemic is hitting minority communities harder than others and recent incidents of racial discrimination around the country have shed light on the moral and economic costs of racism, Atlanta Federal Reserve Bank President Raphael Bostic said Wednesday. `\
+https://nytimes.com/reuters/2020/06/17/us/17reuters-usa-fed-bostic.html?searchResultPosition=8
 
-**China Bought About $1 Billion of U.S. Cotton: Lighthizer**\
-`Chinese officials have repeatedly affirmed their commitment to buy more U.S. goods and services as agreed under a Phase 1 trade deal, U.S. Robert Lighthizer told lawmakers, adding that some $10 billion in purchases had been recorded thus far.`\
-https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-usa-trade-china.html?searchResultPosition=9
+**France Sees Possible EU Recovery Fund Deal in July: Official**\
+`France hopes to reach an agreement with the 26 other members of the European Union on a proposed 750 billion euro recovery fund in July, a presidential adviser said on Wednesday ahead of a video conference between EU leaders on Friday.`\
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-eu-france.html?searchResultPosition=9
 
-**French Prosecutors Request Four-Year Jail Sentence for Lamine Diack**\
-`French financial prosecutors on Wednesday asked for a four-year jail sentence for Lamine Diack, former head of world athletics, on trial for corruption, money laundering and breach of trust. `\
-https://nytimes.com/reuters/2020/06/17/sports/olympics/17reuters-athletics-corruption.html?searchResultPosition=10
+**Pollution Fell Under Lockdown. Now, People Want Rules to Keep It Down.**\
+`A new survey in five countries found significant support for stricter air quality regulations and enforcement of existing rules.`\
+https://nytimes.com/2020/06/17/climate/air-pollution-opinion-survey.html?searchResultPosition=10
 
