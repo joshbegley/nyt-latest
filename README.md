@@ -1,40 +1,40 @@
+**Turkey Moves Troops Against Kurdish Militants in North Iraq**\
+`Turkey said Wednesday it has airlifted troops for a cross-border ground operation against Kurdish militants in northern Iraq.`\
+https://nytimes.com/aponline/2020/06/17/world/europe/ap-eu-turkey-iraq-2nd-ld-writethru.html?searchResultPosition=1
+
 **Australia Says Border Restrictions to Continue for 'Some Time to Come'**\
 `Australia's restrictions on its international borders are likely to continue for "some time to come", Trade Minister Simon Birmingham said on Wednesday.`\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-health-coronavirus-australia-restrictions.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-health-coronavirus-australia-restrictions.html?searchResultPosition=2
 
 **Truex, Kenseth Teams Among Those Penalized at Miami**\
 `Aside from a four-race ban handed down Saturday to a trio of crewmembers, last weekend at Homestead-Miami Speedway turned out to be pretty tame when it came to NASCAR rules infractions.`\
-https://nytimes.com/reuters/2020/06/16/sports/16reuters-motor-nascar-homestead-miami-penalties.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/16/sports/16reuters-motor-nascar-homestead-miami-penalties.html?searchResultPosition=3
 
 **Swabs and Sensors: Memos Offer Details of Life in N.B.A. ‘Bubble’**\
 `Players and team staff members will be required to stay on the Walt Disney World Resort premises at nearly all times after they arrive next month to complete the 2019-20 season.`\
-https://nytimes.com/2020/06/16/sports/basketball/nba-bubble-coronavirus-disney-world.html?searchResultPosition=3
+https://nytimes.com/2020/06/16/sports/basketball/nba-bubble-coronavirus-disney-world.html?searchResultPosition=4
 
 **Fauci Says MLB Shouldn't Play Into October**\
 `With Major League Baseball and its players association arguing over when the season should start, one of the nation's leading coronavirus experts weighed in about when play should end.`\
-https://nytimes.com/reuters/2020/06/16/sports/16reuters-baseball-mlb-fauci.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/16/sports/16reuters-baseball-mlb-fauci.html?searchResultPosition=5
 
 **World Cup Was Always Going to End in Tears: Former Wallabies Selector**\
 `Former Australia selector Michael O'Connor has said the Wallabies' World Cup campaign in Japan was doomed to failure due to confusion over coach Michael Cheika's game plan and appalling training standards within the playing group.`\
-https://nytimes.com/reuters/2020/06/16/sports/rugby/16reuters-rugby-union-australia-cheika.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/16/sports/rugby/16reuters-rugby-union-australia-cheika.html?searchResultPosition=6
 
 **Macau to Require 14-Day Quarantine for People With Recent Beijing Travel History**\
 `Macau's government said on Wednesday it will require all people who have been to Beijing within two weeks prior to entering the city to be put under 14 days of medical observation at a designated location. `\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-health-coronavirus-china-macau.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-health-coronavirus-china-macau.html?searchResultPosition=7
 
 **Asian Business Sentiment Plunges to Record Low on Virus Effect: Thomson Reuters/INSEAD Survey**\
 `Business sentiment of Asian companies sank to an 11-year low in the second quarter, a Thomson Reuters/INSEAD survey found, with some two-thirds of the firms polled flagging a worsening COVID-19 pandemic as the biggest risk over the next six months.`\
-https://nytimes.com/reuters/2020/06/16/business/16reuters-asia-businesssentiment-poll.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/06/16/business/16reuters-asia-businesssentiment-poll.html?searchResultPosition=8
 
 **Japanese Researchers Confirm Coronavirus Testing in Sewers as Possible Outbreak Warning System**\
 `Japanese researchers confirmed the presence of the coronavirus in wastewater plants, a finding that could serve as a signal for future outbreaks.`\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-health-coronavirus-japan-sewers.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-health-coronavirus-japan-sewers.html?searchResultPosition=9
 
 **Second Man Charged With Torching Minneapolis Police Station During Protests**\
 `A 22-year-old Minnesota man was charged on Tuesday with aiding and abetting the arson of a Minneapolis police station during protests over the death of a black man under a policeman's knee, federal prosecutors said.`\
-https://nytimes.com/reuters/2020/06/16/us/16reuters-minneapolis-protests-arson.html?searchResultPosition=9
-
-**New Zealand Military to Oversee Quarantine Facilities After New COVID-19 Case**\
-`New Zealand on Wednesday said the defence force will now oversee the country's quarantine facilities and strengthen border requirements, after a slip up allowed two people with coronavirus to move around the country.`\
-https://nytimes.com/reuters/2020/06/16/world/asia/16reuters-health-coronavirus-newzealand.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/16/us/16reuters-minneapolis-protests-arson.html?searchResultPosition=10
 
