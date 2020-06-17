@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/06/17/us/17reuters-usa-drilling-abandoned-speci
 https://nytimes.com/2020/06/17/us/politics/us-digital-tax-talks.html?searchResultPosition=3
 
 **Nebraska Senate Candidate Used Racist Slur at a Party, Guests Recall**\
-`Chris Janicek, who was shunned this week by the Nebraska Democratic Party after sending a sexual text about a campaign staff member, used the slur at a gathering about 20 years ago, people at the party said.`\
+`Chris Janicek, who was shunned this week by the Nebraska Democratic Party after sending a sexual text about a campaign staff member, used the slur at a gathering about 20 years ago, people who were there said.`\
 https://nytimes.com/2020/06/17/us/politics/chris-janicek-nebraska-racist-slur.html?searchResultPosition=4
 
 **World TeamTennis Changes Policies for COVID-Positive Players**\
