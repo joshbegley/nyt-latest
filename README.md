@@ -1,6 +1,6 @@
 **Kept Out of the Library, a School District Tries Summer Reading by Drone**\
 `A Virginia school district, determined not to let a pandemic keep students from their summer reading, is delivering books to students via the drone company run by Alphabet.`\
-https://nytimes.com/2020/06/17/us/google-wing-drones-west-virginia-books.html?searchResultPosition=2
+https://nytimes.com/2020/06/17/us/google-wing-drones-virginia-books.html?searchResultPosition=2
 
 **With Storms in May, Lawmaker Wants a Longer Hurricane Season**\
 `Even though the six-month Atlantic hurricane season lasts as long as a typical Major League Baseball season, a Florida congresswoman thinks it needs to be longer.`\
