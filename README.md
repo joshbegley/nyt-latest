@@ -2,7 +2,7 @@
 `French police pushed back several hundred people jostling to get their hands on cut-price PlayStation 4s at the launch of a new Lidl supermarket outside Paris on Wednesday.`\
 https://nytimes.com/reuters/2020/06/17/technology/17reuters-lidl-france-playstation-scuffle.html?searchResultPosition=1
 
-**U.S. Air Force Pilot Killed off U.K. Coast Is Identified**\
+**U.S. Air Force Pilot Killed Off U.K. Coast Is Identified**\
 `First Lt. Kenneth Allen, 27, was the only person onboard the F-15C fighter jet when it crashed in the North Sea during a training mission.`\
 https://nytimes.com/2020/06/17/world/europe/us-jet-crash-uk.html?searchResultPosition=2
 
