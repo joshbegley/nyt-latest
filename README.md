@@ -35,6 +35,6 @@ https://nytimes.com/2020/06/17/business/Mauricio-claver-Carone-inter-american-ba
 https://nytimes.com/aponline/2020/06/17/us/politics/ap-us-america-protests-congress-1st-ld-writethru.html?searchResultPosition=9
 
 **Honduran President Says He Is Infected With Coronavirus**\
-`Honduran President Juan Orlando Hernandez said late on Tuesday he has been diagnosed with the novel coronavirus, is receiving treatment and will work remotely and through his aides.`\
+`Honduran President Juan Orlando Hernandez has been diagnosed with the coronavirus, is receiving treatment and will work remotely and through his aides, he said late on Tuesday.  `\
 https://nytimes.com/reuters/2020/06/17/world/americas/17reuters-health-coronavirus-honduras.html?searchResultPosition=10
 
