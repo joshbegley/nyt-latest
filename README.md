@@ -19,7 +19,7 @@ https://nytimes.com/2020/06/17/us/charleston-sc-shooting-calhoun-statue.html?sea
 https://nytimes.com/2020/06/17/world/americas/un-security-council-elections.html?searchResultPosition=6
 
 **Delbert Africa, 74, Convicted in Radical Group’s Clash With Police, Dies**\
-`As a member of Move, he spent four decades in prison and was released in January. His beating by Philadelphia police officers in 1978 was captured on television.`\
+`As a member of Move, he spent four decades in prison and was released in January. His beating by Philadelphia police officers in 1978 was  broadcast nationwide.`\
 https://nytimes.com/2020/06/17/us/delbert-africa-dead.html?searchResultPosition=7
 
 **Facing Arizona Surge, Navajos Reimpose Virus Curfew**\
