@@ -1,4 +1,4 @@
-**Insight: Ka-Boom! How Germany's 'Mr Thrift' Scholz Came to Splash the Cash**\
+**Ka-Boom! How Germany's 'Mr Thrift' Scholz Came to Splash the Cash**\
 `Four months is an eternity in pandemic politics. As recently as February, Finance Minister Olaf Scholz was Germany's Mr Thrift, a devotee of the "black zero" balanced-budget rule.`\
 https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-germany-politics-scholz-insight.html?searchResultPosition=1
 
