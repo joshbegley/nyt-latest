@@ -1,40 +1,40 @@
+**Indonesian Court Finds Three Papuan Men Guilty of Treason**\
+`An Indonesian court found three Papuan men guilty of treason on Wednesday in a high-profile trial closely watched as an indicator of political freedoms in the world's third-largest democracy.`\
+https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-indonesia-rights-court.html?searchResultPosition=1
+
+**Protesters in Richmond Tear Down Another Confederate Statue**\
+`Demonstrators in Richmond tore down another Confederate statue in the city Tuesday night, news outlets reported.`\
+https://nytimes.com/aponline/2020/06/17/us/ap-us-confederate-statue-toppled-virginia.html?searchResultPosition=2
+
 **'Best News So Far': UK Hails Steroid Treatment for Coronavirus**\
 `Britain's health minister on Wednesday hailed the use of a steroid called dexamethasone for treating coronavirus patients as the best news so far of the outbreak.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-britain.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-britain.html?searchResultPosition=3
 
 **Pence Says Campaign Looking at Other Venues for Trump Tulsa Rally**\
 `Officials are considering other venues in Tulsa, Oklahoma, for President Donald Trump's first campaign rally since the coronavirus shutdown, Vice President Mike Pence said on Tuesday, as virus cases climb in Oklahoma and other states. `\
-https://nytimes.com/reuters/2020/06/17/us/politics/17reuters-health-coronavirus-tulsa.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/17/us/politics/17reuters-health-coronavirus-tulsa.html?searchResultPosition=4
 
 **Asia Stocks Lower After Wall Street Gains on Recovery Hopes**\
 `Major Asian stock markets declined Wednesday after Wall Street gained on hopes for a global economic recovery and Japan's exports sank.`\
-https://nytimes.com/aponline/2020/06/17/business/bc-financial-markets.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/06/17/business/bc-financial-markets.html?searchResultPosition=5
 
 **UK Inflation Drops to Four-Year Low in May as Oil Prices Slump**\
 `British inflation fell to its lowest level since June 2016 last month as the coronavirus pandemic sucked demand from the global economy and caused oil prices to tumble, leaving the Bank of England free to ramp up its stimulus programme again.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-britain-economy.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-britain-economy.html?searchResultPosition=6
 
 **South Korean Unification Minister Offers to Step Down, Yonhap Says**\
 `South Korean Unification Minister Kim Yeon-chul, who oversees engagement with North Korea, offered on Wednesday to step down, saying he takes responsibility for a worsening in ties between the neighbours, the Yonhap news agency said.`\
-https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-northkorea-southkorea-minister.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-northkorea-southkorea-minister.html?searchResultPosition=7
 
 **Would MLB Fans View Champ, Stats as Legit in 50-Game Season?**\
 `Fresh off a robust round of batting practice in Central Park, softball slugger Todd Montgomery squared up his Mets cap and took a swing at hardball questions involving his favorite team.`\
-https://nytimes.com/aponline/2020/06/17/sports/baseball/ap-bbo-virus-outbreak-mlb-the-fans-speak.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/06/17/sports/baseball/ap-bbo-virus-outbreak-mlb-the-fans-speak.html?searchResultPosition=8
 
 **As Florida Test Numbers Rise, the NBA Prepares for Disney**\
 `The rate of positive coronavirus tests in the Orlando, Florida, area has been soaring in recent days.`\
-https://nytimes.com/aponline/2020/06/17/sports/basketball/ap-bkn-virus-outbreak-nba.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/06/17/sports/basketball/ap-bkn-virus-outbreak-nba.html?searchResultPosition=9
 
 **Months Into Virus, Biggest One-Day Case Spike Worries Iran**\
 `Months into Iran's fight against the coronavirus, doctors and nurses at Tehran’s Shohadaye Tajrish Hospital still don a mask, a disposable hazmat suit and a double layer of latex gloves every day to attempt to contain a pandemic that shows no signs of slowing. `\
-https://nytimes.com/aponline/2020/06/17/world/middleeast/ap-ml-virus-outbreak-iran.html?searchResultPosition=8
-
-**Ka-Boom! How Germany's 'Mr Thrift' Scholz Came to Splash the Cash**\
-`Four months is an eternity in pandemic politics. As recently as February, Finance Minister Olaf Scholz was Germany's Mr Thrift, a devotee of the "black zero" balanced-budget rule.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-germany-politics-scholz-insight.html?searchResultPosition=9
-
-**Pension Insurance Deals Boost UK Company Shares by Up to 3%, Says Report**\
-`Most London-listed companies that transferred pension obligations to insurance companies saw their share prices rise by up to 3% more than sector peers in the six months after completing the deals, a report showed on Wednesday.`\
-https://nytimes.com/reuters/2020/06/17/business/17reuters-britain-pensions-insurance-report.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/17/world/middleeast/ap-ml-virus-outbreak-iran.html?searchResultPosition=10
 
