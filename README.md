@@ -1,5 +1,5 @@
 **Life Hatched From Soft Eggs, Some a Foot Long, in Dinosaur Era**\
-`A football-size egg from Antarctica and baby dinosaurs from Mongolia shine new light on ancient reptile reproduction.`\
+`A football-size egg from Antarctica and baby dinosaurs from Mongolia and Argentina shine new light on ancient reptile reproduction.`\
 https://nytimes.com/2020/06/17/science/dinosaurs-soft-eggs.html?searchResultPosition=2
 
 **Germany Approves 6 Billion Euro Warship Contract, 2.8 Billion to Airbus: Source**\
