@@ -1,36 +1,36 @@
-**Runners-Up From Our 7th Annual Student Editorial Contest**\
-`The 2020 election, animal rights, health care, theater and librarians: 21 teenage runners-up take on the issues that matter most to them.`\
-https://nytimes.com/2020/06/17/learning/runners-up-from-our-7th-annual-student-editorial-contest.html?searchResultPosition=2
+**The Class of 2021 Could Change College Admissions Forever**\
+`This essay, by Erin Tan, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
+https://nytimes.com/2020/06/17/learning/the-class-of-2021-could-change-college-admissions-forever.html?searchResultPosition=2
 
-**West African Ministers Propose Phased Re-Opening of Borders**\
-`West African government ministers have proposed re-opening borders between their countries in the first half of July and allowing in travellers from other countries with low or controlled levels of coronavirus spread by the end of July.`\
-https://nytimes.com/reuters/2020/06/17/world/africa/17reuters-health-coronavirus-westafrica-trade.html?searchResultPosition=3
+**Discussions About Race Unsettle Rarified Equestrian World**\
+`Of all the athletes in all the sports who have been pressing for change in the aftermath of the killing of George Floyd, a pair of 17-year-old girls in the cash-soaked world of show jumping have set off among the most visceral and unexpected debates.`\
+https://nytimes.com/aponline/2020/06/17/sports/ap-equ-sport-of-privilege-racism.html?searchResultPosition=3
 
-**The Winners of Our 7th Annual Student Editorial Contest**\
-`From the coronavirus and college admissions to voting and video games, young people tell us about the issues that matter most to them.`\
-https://nytimes.com/2020/06/17/learning/the-winners-of-our-7th-annual-student-editorial-contest.html?searchResultPosition=4
+**South Africa Says 2 Pandemics Now, Virus and Gender Violence**\
+`South Africa now faces two pandemics, COVID-19 and the violence against women and children that has risen sharply since alcohol sales were allowed again on June 1, the president said Wednesday as he announced further easing of lockdown measures. Twenty-one women and children have been killed.`\
+https://nytimes.com/aponline/2020/06/17/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=4
 
-**South Africa Coronavirus Restrictions Further Eased for Casinos, Salons**\
-`South Africa's President Cyril Ramaphosa said on Wednesday casinos, cinemas, personal care services and accommodation will be allowed to operate as the country further eases coronavirus lockdown restrictions. `\
-https://nytimes.com/reuters/2020/06/17/world/africa/17reuters-health-coronavirus-safrica.html?searchResultPosition=5
+**Roy Cohn Got Her Grandparents Executed. She Made a Film About Him.**\
+`In her new HBO documentary, “Bully. Coward. Victim. The Story of Roy Cohn,” the director Ivy Meeropol pushes past the easy labels in search of the human being.`\
+https://nytimes.com/2020/06/17/arts/television/roy-cohn-documentary-hbo.html?searchResultPosition=5
 
-**G7 Foreign Ministers Urge China Not Impose Security Law on Hong Kong**\
-`The G7 foreign ministers issued a joint statement on Wednesday calling on China not to follow through with plans to impose national security legislation on Hong Kong.`\
-https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-hongkong-protests-g7.html?searchResultPosition=6
+**The Plastic Straw Straw Man**\
+`This essay, by Christopher Shin, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
+https://nytimes.com/2020/06/17/learning/the-plastic-straw-straw-man.html?searchResultPosition=6
 
-**Golf: You Should Be Here, McIlroy Tells European Players Upset About Rankings**\
-`The European players who opted not to travel to the United States for the PGA Tour's restart after a three-month COVID-19 break should not complain about losing out on world ranking points, world number one Rory McIlroy said on Wednesday `\
-https://nytimes.com/reuters/2020/06/17/sports/golf/17reuters-golf-heritage-mcilroy.html?searchResultPosition=7
+**No Love of Milton if Not for Loving Frivolous Fiction**\
+`This essay, by Isabelle Lu, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
+https://nytimes.com/2020/06/17/learning/no-love-of-milton-if-not-for-loving-frivolous-fiction.html?searchResultPosition=7
 
-**Report: Manfred, MLBPA's Clark Talking 60-Game Season, Full Pay**\
-`Major League Baseball commissioner Rob Manfred and players union executive director Tony Clark re-opened talks geared toward getting baseball back on the field and away from the negotiating table, MLB Network's Jon Heyman reported Wednesday.`\
-https://nytimes.com/reuters/2020/06/17/sports/baseball/17reuters-baseball-mlb-manfred-clark.html?searchResultPosition=8
+**Spotify Is Killing Beethoven … Here’s How You Can Save Him!**\
+`This essay, by Yuanlin Liu, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
+https://nytimes.com/2020/06/17/learning/spotify-is-killing-beethoven-heres-how-you-can-save-him.html?searchResultPosition=8
 
-**Racing Point Get 2020 F1 Car on Track at Silverstone**\
-`Racing Point became the first Formula One team to get their 2020 car on track after the COVID-19 shutdown when Lance Stroll took part in a limited-mileage private test at Silverstone on Wednesday.`\
-https://nytimes.com/reuters/2020/06/17/sports/autoracing/17reuters-motor-f1-test.html?searchResultPosition=9
+**Trump’s Tulsa Rally and Comment About Testing**\
+`Readers rebuke the president for forging ahead with the rally and suggesting that if you stop testing, virus cases would go down.`\
+https://nytimes.com/2020/06/17/opinion/letters/trump-tulsa-rally-coronavirus.html?searchResultPosition=9
 
-**Virginia Sheriff Apologizes for Arrest of Black Pastor Who Called 911**\
-`The pastor, Leon K. McCray, had called to report that five white people were threatening him and taunting him with racial slurs at an apartment complex he owns. He ended up in custody.`\
-https://nytimes.com/2020/06/17/us/pastor-leon-mccray-shenandoah-county-va-arrest.html?searchResultPosition=10
+**Oxford College Recommends Removal of Rhodes Statue**\
+`The governing body of Oxford University’s Oriel College has recommended the removal of a statue of Victorian imperialist Cecil Rhodes that has long been the target of protests -- though it won’t be taken down immediately.`\
+https://nytimes.com/aponline/2020/06/17/world/europe/ap-eu-america-protests-britain-statue.html?searchResultPosition=10
 
