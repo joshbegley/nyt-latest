@@ -1,40 +1,40 @@
+**Trump Administration Sues to Delay Release of Bolton Book**\
+`The Trump administration has sued former national security adviser John Bolton to delay the publication of a book that the White House says contains classified information and that is expected to paint an unfavorable portrait of the president's foreign policy decision-making.`\
+https://nytimes.com/aponline/2020/06/17/arts/ap-us-trump-bolton-book.html?searchResultPosition=1
+
+**As the ECB Ponders Purchases, Bond Angels Aren't Falling**\
+`An expected wave of credit rating cuts for companies as a result of the coronavirus crisis has yet to materialise, data shows, meaning speculation that the European Central Bank will buy bonds of "fallen angels" downgraded to junk may be premature.  `\
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-ecb-policy-credit.html?searchResultPosition=2
+
+**Factbox: Indian Media Call for Strong Response to Border Clash With China**\
+`Indian media commentators called on Wednesday for a strong response to a border clash with Chinese troops that led to the deaths of at least 20 Indian soldiers, with some questioning the Indian government's silence on the issue.`\
+https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-india-china-media-factbox.html?searchResultPosition=3
+
+**Bayern Coach Flick the Key to Latest Bundesliga Triumph**\
+`Bayern Munich effectively won the Bundesliga title in November when it appointed Hansi Flick as coach.`\
+https://nytimes.com/aponline/2020/06/17/sports/soccer/ap-soc-bayern-how-title-was-won.html?searchResultPosition=4
+
+**Special Delivery: Activists Urge France to Rein in Amazon**\
+`Environmental campaigners delivered a 12-foot (3.6-metre) tall mock-up of an Amazon parcel to the French finance ministry on Wednesday to demand that the government rein in the e-commerce giant's expansion in France.`\
+https://nytimes.com/reuters/2020/06/17/business/17reuters-health-coronavirus-amazon-france.html?searchResultPosition=5
+
 **Light Plane Crashes in Ukraine City Where Model Made; 1 Dead**\
 `A light airplane crash-landed Wednesday in Ukraine's southern city of Odesa, killing one person and injuring another one, local police said in a statement. `\
-https://nytimes.com/aponline/2020/06/17/business/ap-ukraine-plane-crash.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/06/17/business/ap-ukraine-plane-crash.html?searchResultPosition=6
 
 **Taiwan Warns Off Intruding Chinese Aircraft for Fourth Time in Nine Days**\
 `Taiwan jets on Wednesday again had to warn off Chinese air force aircraft that approached the island, Taiwan's military said, the fourth such encounter in nine days as China steps up its activity near the Chinese-claimed island.`\
-https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-taiwan-china-defence.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-taiwan-china-defence.html?searchResultPosition=7
 
 **Russia's Putin Protected From Coronavirus by Disinfection Tunnels**\
 `Russian President Vladimir Putin is protected from the  coronavirus by special disinfection tunnels that anyone visiting his residence outside Moscow or meeting him in the Kremlin must pass through, his spokesman said on Wednesday.  `\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-russia-putin.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-russia-putin.html?searchResultPosition=8
 
 **NATO Must Deal With, Not Ignore Turkish Problem: French Official**\
 `NATO must not bury its head in the sand with regard to Turkey's recent behaviour towards its allies, a French defence ministry official said on Wednesday, and accused the Turkish navy of harassing a French warship carrying out a NATO mission.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-nato-france-turkey.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-nato-france-turkey.html?searchResultPosition=9
 
 **Russia, China, India Postpone June 23 Video Conference Amid Tensions: RIA**\
 `A June 23 video conference between the foreign ministers of Russia, China and India has been postponed to a later date, Russia's RIA news agency cited an Indian foreign ministry source as saying amid tensions between China and India.`\
-https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-health-coronavirus-russa-china-india.html?searchResultPosition=5
-
-**Wall Street Rally Wins More Fans as Economy Hints at Recovery**\
-`Record upside surprises in U.S. economic data are bolstering the case for a “V” shaped recovery from the COVID-19 recession and boosting investor confidence in a stock rally that has already delivered hefty gains in recent months.  `\
-https://nytimes.com/reuters/2020/06/17/business/17reuters-usa-markets-sentiment-analysis.html?searchResultPosition=6
-
-**Ghana Economy Grows 4.9% Year-On-Year in First Quarter, Says Stats Office**\
-`Ghana's economy grew 4.9% year-on-year in the first quarter of 2020 compared with 6.7% in the same period last year, provisional data from the state statistics service showed on Wednesday.`\
-https://nytimes.com/reuters/2020/06/17/world/africa/17reuters-ghana-gdp.html?searchResultPosition=7
-
-**Russia Says It Already Uses Dexamethasone to Treat Coronavirus Patients: RIA**\
-`Russia already uses dexamethasone to treat patients with the novel coronavirus, but does not view it as a panacea against COVID-19, the RIA news agency cited Russian health ministry official Sergei Avdeev as saying on Wednesday.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-steroid-russia.html?searchResultPosition=8
-
-**Mink at Danish Farm to Be Culled After Catching Coronavirus**\
-`Mink at a farm in Denmark were found to be infected with the new coronavirus and the whole stock now has to be culled, Danish authorities said on Wednesday.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-denmark-mink.html?searchResultPosition=9
-
-**DealBook: A Four-Point Plan for Fixing the Economy**\
-`A heavyweight group of economists and former policymakers have outlined a flexible approach to supporting the recovery not tied to any specific date.`\
-https://nytimes.com/2020/06/17/business/dealbook/economy-recovery-reopening.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-health-coronavirus-russa-china-india.html?searchResultPosition=10
 
