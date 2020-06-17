@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/06/17/technology/17reuters-lidl-france-playstation-scuffle.html?searchResultPosition=1
 
 **U.S. Air Force Pilot Killed Off U.K. Coast Is Identified**\
-`First Lt. Kenneth Allen, 27, was the only person onboard the F-15C fighter jet when it crashed in the North Sea during a training mission.`\
+`First Lt. Kenneth Allen, 27, was the only person aboard the F-15C fighter jet when it crashed in the North Sea during a training mission.`\
 https://nytimes.com/2020/06/17/world/europe/us-jet-crash-uk.html?searchResultPosition=2
 
 **Canada's May Inflation Rate Falls 0.4% on Lower Gas Prices**\
