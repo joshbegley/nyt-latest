@@ -1,40 +1,36 @@
+**New U.S. Pandemic Watchdog Says Data, Tech Issues Challenge Oversight Work**\
+`U.S. government agencies overseeing everything from airlines to hospitals face steep hurdles in tracking and monitoring $2.4 trillion in taxpayer-funded novel coronavirus relief aimed at propping up the U.S. economy, an interagency government watchdog said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/us/17reuters-health-coronavirus-usa-fraud.html?searchResultPosition=2
+
+**FCA Moves Closer to State Guarantee for $7.1 Billion Loan: Source**\
+`Italy's Treasury has taken a further step towards approving a state guarantee for a 6.3 billion euro ($7.1 billion) loan for Fiat Chrysler's Italian unit, a government source told Reuters on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/business/17reuters-health-coronavirus-fca-loan.html?searchResultPosition=3
+
+**Qualcomm Aims to Woo Robotics Developers With New Chips, Tools**\
+`Building robots and drones is messy: Developers must pull together sensors to be the eyes and ears, chips for the brains and motors to make the device move, tying them all together with several kinds of software. `\
+https://nytimes.com/reuters/2020/06/17/business/17reuters-qualcomm-robotics.html?searchResultPosition=4
+
+**Brother of George Floyd Backs U.N. Probe Into U.S. Racism, Violence**\
+`The brother of the late George Floyd called on the top U.N. human rights body on Wednesday to investigate police brutality and racial discrimination in the United States. `\
+https://nytimes.com/reuters/2020/06/17/world/africa/17reuters-minneapolis-police-protests-un-floyd.html?searchResultPosition=5
+
+**Trump Golf Course Seeks Lower Rent Because of Virus Shutdown**\
+`The golf course President Donald Trump owns near his Mar-a-Lago getaway and plays frequently when he visits is seeking a break on its rent because of lost business caused by the coronavirus outbreak. `\
+https://nytimes.com/aponline/2020/06/17/us/ap-us-virus-outbreak-trump-golf-course.html?searchResultPosition=6
+
 **23-Time Major Champ Serena Williams Says She'll Play US Open**\
 `Serena Williams is planning to play in the 2020 U.S. Open.`\
-https://nytimes.com/aponline/2020/06/17/sports/tennis/ap-ten-us-open-serena-williams.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/06/17/sports/tennis/ap-ten-us-open-serena-williams.html?searchResultPosition=7
 
 **It’s Time for French Fries**\
 `Gabrielle Hamilton’s recipe is laborious work, but may just transport you to those bistros and hamburger stands you miss.`\
-https://nytimes.com/2020/06/17/dining/its-time-for-french-fries.html?searchResultPosition=2
+https://nytimes.com/2020/06/17/dining/its-time-for-french-fries.html?searchResultPosition=8
 
 **Ukrainian Lawmaker Says He Has Gutenberg Bible Fragment in His Private Collection**\
 `A wealthy Ukrainian politician has made public a manuscript in his private collection that he says is a fragment of the Gutenberg Bible, the world's first substantial printed book, although researchers said it would need to be authenticated.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-ukraine-books.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-ukraine-books.html?searchResultPosition=9
 
 **Sweden to Lift Travel Curbs to 10 European Countries From June 30**\
 `Sweden will from June 30 lift its advice against non-essential travel to 10 European countries, the foreign ministry said on Wednesday. `\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-sweden-travel.html?searchResultPosition=4
-
-**Rights Groups Seek Prosecution of Ex-Iranian Judge in Europe**\
-`Journalist rights groups and Iranian dissidents are urging Romania not to deport a former Iranian official to his homeland to face corruption charges, saying he should be prosecuted in Europe for ordering the mass arrest of reporters while serving as a judge in Tehran.`\
-https://nytimes.com/aponline/2020/06/17/world/europe/ap-eu-germany-iran-human-rights.html?searchResultPosition=5
-
-**Carlyle-Backed Ortho Clinical Gets U.S. Funding for COVID-19 Tests**\
-`Private equity firm Carlyle Group Inc-backed Ortho Clinical Diagnostics said on Wednesday its COVID-19 antibody testing program received a grant of $678,000 from the U.S. Biomedical Advanced Research and Development Authority (BARDA).`\
-https://nytimes.com/reuters/2020/06/17/business/17reuters-health-coronavirus-ortho-clinical-diagnostics.html?searchResultPosition=6
-
-**EU Antitrust Regulators to Investigate Fiat, PSA Merger**\
-`European Union antitrust regulators opened on Wednesday an investigation into Fiat Chrysler and Peugeot maker PSA's proposed merger, saying the deal may harm competition in 14 EU countries and Britain.`\
-https://nytimes.com/reuters/2020/06/17/business/17reuters-fiat-chrysler-m-a-peugeot-eu.html?searchResultPosition=7
-
-**Factbox: CureVac's Experimental Coronavirus Vaccine**\
-`Unlisted biotech firm CureVac on Wednesday become the second company after rival BioNTech <22UAy> to launch human trials of an experimental coronavirus vaccine in Germany, eyeing potential regulatory approval in mid-2021.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-curevac-trial-factbox.html?searchResultPosition=8
-
-**Workplace Search Startup Onna Gets $27 Million in Venture Funding**\
-`Search startup Onna Technologies Inc, which helps companies find information buried within emails, chats and storage services, announced on Wednesday $27 million in new funding from venture capital firm Atomico and past investors such as Slack Technologies Inc.`\
-https://nytimes.com/reuters/2020/06/17/technology/17reuters-tech-onna.html?searchResultPosition=9
-
-**Nomura and Partners Launch Digital Asset Custodian Komainu**\
-`Japanese bank Nomura Holdings Inc and cryptocurrency partners Ledger and CoinShares launched Komainu, a custodian to safeguard digital assets for financial institutions, on Wednesday.`\
-https://nytimes.com/reuters/2020/06/17/business/17reuters-crypto-currencies-nomura.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-sweden-travel.html?searchResultPosition=10
 
