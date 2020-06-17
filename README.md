@@ -1,40 +1,40 @@
-**Lufthansa: Implementation of Bailout Deal Not Guaranteed**\
-`German flagship carrier Lufthansa said on Tuesday that the implementation of its bailout deal had not been secured and it might need to apply for creditor protection proceedings around the time of its extraordinary general meeting.`\
-https://nytimes.com/reuters/2020/06/17/business/17reuters-health-coronavirus-lufthansa-rescue.html?searchResultPosition=1
+**Beijing Says COVID-19 Cases Could Stay at Current Levels for Some Time**\
+`Beijing cannot rule out the possibility that the number of COVID-19 cases in the city will stay at current levels for some time, a city official said on Wednesday. `\
+https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-health-coronavirus-china-beijing-cases.html?searchResultPosition=1
 
-**U.S. Scrambles Jets to Escort Russian Nuclear-Capable Bombers Near Its Border: RIA**\
-`The United States scrambled fighter jets to escort four Russian nuclear-capable Tupolev Tu-95MS strategic bombers as they carried out a planned flight near the U.S. border, the RIA news agency cited the Russian Defence Ministry as saying.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-russia-usa-bombers.html?searchResultPosition=2
+**China's Meat Importers Fret About Delays as Port Runs Virus Tests**\
+`China's meat importers fear clearing delays and a hit to demand after one of the country's major ports began requiring coronavirus tests for all meat and seafood containers to prevent contamination. `\
+https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-health-coronavirus-china-meat.html?searchResultPosition=2
 
-**The Great Pandemic Parenting Experiment**\
-`Three families. Many, many, lessons learned while parenting in place.`\
-https://nytimes.com/video/opinion/100000007184142/coronavirus-pandemic-parenting.html?searchResultPosition=3
+**Indonesia Jails Papua Anti-Racism Activists for Treason**\
+`An Indonesian court on Wednesday sentenced three Papuan pro-independence activists to nearly yearlong jail terms on treason charges for organizing anti-racism protests last year, despite calls from rights groups and politicians to drop the charges and release them.`\
+https://nytimes.com/aponline/2020/06/17/world/asia/ap-as-indonesia-papua-treason.html?searchResultPosition=3
 
-**Norwegian Salmon Was Not Source of Virus at Beijing Food Market, Norway Says**\
-`Chinese and Norwegian authorities have concluded that Norwegian salmon was likely not the source of the novel coronavirus that was found at cutting boards in a Beijing food market, the Norwegian fisheries and seafood minister said on Wednesday.  `\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-salmon-norway.html?searchResultPosition=4
+**Making a Garden That Welcomes the Birds**\
+`Using native plant species helps, but the two most important things you can do to make birds feel at home don’t involve any planting at all.`\
+https://nytimes.com/2020/06/17/realestate/attract-birds-to-your-garden-bird-friendly-garden.html?searchResultPosition=4
 
-**Brexit Talks to Enter 'Hot Phase' From September: German Government Document**\
-`Negotiations on the future relationship between Britain and the European Union will enter a hot phase from September, a German government document reviewed by Reuters showed.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-britain-eu-germany.html?searchResultPosition=5
+**Biden and Trump Are Fighting Each Other in a Changed World**\
+`Neither man anticipated the leftward tilt of the electorate in 2020.`\
+https://nytimes.com/2020/06/17/opinion/biden-trump-floyd.html?searchResultPosition=5
 
-**Polish President May Visit U.S. Following Trump Troop Announcement: Media**\
-`Discussions are under way for a possible visit by Polish President Andrzej Duda to Washington, Polish media reported, as Warsaw looks to boost the U.S. military's presence in the former communist state.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-poland-usa.html?searchResultPosition=6
+**Trump and de Blasio, Political Opposites, Have Similar Flaws and Challenges**\
+`The chief executives of the country and its biggest city have found themselves diminished as leaders, lacking the trust of the people they serve.`\
+https://nytimes.com/2020/06/17/us/politics/trump-bill-de-blasio-new-york.html?searchResultPosition=6
 
-**Facebook Closes Political Ads Loophole Ahead of U.S. Presidential Election**\
-`Facebook Inc said on Tuesday it would affix labels to political ads shared by users on their own feeds, closing what critics have said for years was a glaring loophole in the company's election transparency measures.`\
-https://nytimes.com/reuters/2020/06/17/technology/17reuters-facebook-elections.html?searchResultPosition=7
+**7 Lessons (and Warnings) From Those Who Marched With Dr. King**\
+`The tumult and passion of the past weeks have left the surviving veterans of the civil rights era with trepidation and hope.`\
+https://nytimes.com/2020/06/17/us/civil-rights-protest-black-lives-matter.html?searchResultPosition=7
 
-**Second Man Charged With Torching Minneapolis Police Station During Protests**\
-`A 22-year-old Minnesota man was charged on Tuesday with aiding and abetting the arson of a Minneapolis police station during protests over the death of a black man under a policeman's knee, federal prosecutors said.`\
-https://nytimes.com/reuters/2020/06/17/us/17reuters-minneapolis-protests-arson.html?searchResultPosition=8
+**The I.P.O. Comes Roaring Back in the Pandemic**\
+`Now that the stock market has largely shrugged off the coronavirus, start-ups are scrambling to go public.`\
+https://nytimes.com/2020/06/17/technology/ipo-pandemic.html?searchResultPosition=8
 
-**World 100-Meter Champion Suspended for Missing Drug Tests**\
-`Christian Coleman, the reigning world champion in the 100-meter dash, was suspended Wednesday by the Athletics Integrity Unit for missing drug tests.`\
-https://nytimes.com/aponline/2020/06/17/sports/ap-ath-coleman-suspended.html?searchResultPosition=9
+**The Rich Cut Their Spending. That Has Hurt All the Workers Who Count on It.**\
+`The steepest declines in spending during the coronavirus recession have come from the highest-income places.`\
+https://nytimes.com/2020/06/17/upshot/coronavirus-spending-rich-poor.html?searchResultPosition=9
 
-**Japan to Keep Close Watch Over Disputed Islands: Suga**\
-`Japan will take all possible measures to ensure surveillance of the areas around disputed islands in the East China Sea, the top government spokesman said on Wednesday.    `\
-https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-japan-china-suga.html?searchResultPosition=10
+**Why More Children’s Books Are Tackling Sexual Harassment and Abuse**\
+`Stories involving consent and violence are important for some preteens to read, writers say, but a sensitive approach and a light touch are key.`\
+https://nytimes.com/2020/06/17/books/childrens-books-middle-grade-metoo-sexual-abuse.html?searchResultPosition=10
 
