@@ -1,24 +1,24 @@
+**Trump-Comey Clash Coming to U.S. Television-After November Election**\
+`The clash between former FBI director James Comey and U.S. President Donald Trump over Russian interference in the 2016 elections is coming to television, but the drama series will be aired after Americans vote in November.`\
+https://nytimes.com/reuters/2020/06/16/arts/16reuters-usa-trump-russia-television.html?searchResultPosition=1
+
+**TV Viewers Seek Out '13th' and Other Stories About Race Amid Protests**\
+`Television series, movies and documentaries about the experience of black people in the United States have seen a surge in viewership amid public demonstrations that focused new attention on racial discrimination, according to industry data.`\
+https://nytimes.com/reuters/2020/06/16/arts/16reuters-minneapolis-police-television.html?searchResultPosition=2
+
 **New Boss May Test Voice of America’s Credibility**\
 `Over 280 million people a week depend on the V.O.A. for news. Its independence is why it is so trusted.`\
-https://nytimes.com/2020/06/16/opinion/voice-of-america.html?searchResultPosition=1
+https://nytimes.com/2020/06/16/opinion/voice-of-america.html?searchResultPosition=3
 
 **Sotheby's International Realty**\
 `Sotheby’s International Realty`\
-https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007195156/sothebys-international-realty.html?searchResultPosition=2
+https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007195156/sothebys-international-realty.html?searchResultPosition=4
 
 **Punching the Clock (and the Boss) with Dolly, Lily and Jane**\
 `Our critics and readers ponder the workplace politics and current relevance of “Nine to Five.”`\
-https://nytimes.com/2020/06/16/movies/nine-to-five-viewers.html?searchResultPosition=3
+https://nytimes.com/2020/06/16/movies/nine-to-five-viewers.html?searchResultPosition=5
 
 **Congo Mining Provinces Impose New COVID-19 Lockdowns**\
 `Authorities in Democratic Republic of Congo's southeastern mining heartland announced temporary lockdowns on Tuesday in an effort to widen coronavirus testing and prevent a worrying situation from worsening, governors said.`\
-https://nytimes.com/reuters/2020/06/16/world/africa/16reuters-health-coronavirus-congo.html?searchResultPosition=8
-
-**The ‘Poisoned’ Shake Shack Milkshakes and an N.Y.P.D. on Edge**\
-`Claims that fast-food workers poisoned officers intentionally proved to be unfounded, but the ensuing uproar underscored a tense new dynamic.`\
-https://nytimes.com/2020/06/16/nyregion/shake-shack-police-nypd.html?searchResultPosition=9
-
-**A Mad Scramble to Stock Millions of Coronavirus Pills, Likely for Nothing**\
-`Before the F.D.A. withdrew its waiver to stockpile malaria drugs as coronavirus treatments, the Trump administration had embarked on a headlong effort to import tens of millions of doses.`\
-https://nytimes.com/2020/06/16/us/politics/trump-hydroxychloroquine-coronavirus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/16/world/africa/16reuters-health-coronavirus-congo.html?searchResultPosition=10
 
