@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/06/16/technology/16reuters-britain-trade.html?s
 https://nytimes.com/reuters/2020/06/16/world/europe/16reuters-newzealand-britain-trade.html?searchResultPosition=2
 
 **Former Bumble Bee C.E.O. Is Sentenced in Tuna Price-Fixing Scheme**\
-`Christopher Lischewski was given 40 months in prison for his lead role in a yearslong conspiracy to fix the price of canned tuna.`\
+`Christopher Lischewski was ordered to serve 40 months in prison for his lead role in a yearslong conspiracy to fix the price of canned tuna.`\
 https://nytimes.com/2020/06/16/business/bumble-bee-tuna-price-fixing.html?searchResultPosition=3
 
 **Australia Accuses China and Russia of Virus Disinformation**\
