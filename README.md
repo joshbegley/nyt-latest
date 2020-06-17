@@ -1,40 +1,40 @@
+**Bulgarians Complain of Long Border Queues After Greece Eases Lockdown**\
+`Hundreds of trucks and cars from Bulgaria, Romania and Serbia waited in long queues at the border with Greece on Wednesday after Athens eased coronavirus restrictions to try to salvage the summer tourism season.`\
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-bulgaria-greece.html?searchResultPosition=1
+
+**Turkish Ministers Visit Libya, Tripoli Government Says**\
+`Turkish government officials including the foreign and finance ministers arrived in Tripoli on Wednesday to meet Libya's internationally recognised Government of National Accord (GNA), the GNA said in a Facebook post. `\
+https://nytimes.com/reuters/2020/06/17/world/africa/17reuters-libya-security-turkey.html?searchResultPosition=2
+
+**Champions League to Be Played at Mini-Tournament in Lisbon**\
+`The Champions League will finish with a 12-day mini-tournament in Lisbon, restarting in August after a five-month suspension caused by the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/06/17/sports/soccer/ap-soc-uefa-club-finals.html?searchResultPosition=3
+
+**Glued to the Telly: English Soccer Returns, a Nation Sighs**\
+`English soccer's longest suspension since World War II comes to an end Wednesday, bringing the country's favorite sport back to a nation that has struggled to protect its citizens during the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/06/17/sports/soccer/bc-soc-english-soccer-returns.html?searchResultPosition=4
+
+**Mars Inc Says Evaluating Changing Uncle Ben's Brand Image**\
+`Mars Inc is "evaluating all possibilities" regarding changes to its Uncle Ben's rice brand image, the food company told Reuters on Wednesday, following news that PepsiCo Inc was dropping its Aunt Jemima brand. `\
+https://nytimes.com/reuters/2020/06/17/business/17reuters-mars-race-unclebens.html?searchResultPosition=5
+
+**Red, White and Blue; UK PM Johnson's Plane Gets a Makeover**\
+`A plane used by Britain's Royal Family and Prime Minister Boris Johnson will be painted red, white and blue to "better represent the UK around the world," a spokesman for Johnson said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-britain-eu-airplane.html?searchResultPosition=6
+
+**Factbox: Latest on the Worldwide Spread of the Coronavirus**\
+`Scores of domestic flights in and out of Beijing were cancelled on Wednesday as officials ramped up attempts to contain a coronavirus outbreak in the Chinese capital over the past week that has sparked fears of renewed wider contagion.`\
+https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-health-coronavirus-latest-factbox.html?searchResultPosition=7
+
+**Cinnamon Rolls to the Rescue in New York's COVID-19 Lockdown**\
+`When coronavirus locked down New York, opera singer Claire Kuttler turned to her favorite pastime, baking. `\
+https://nytimes.com/reuters/2020/06/17/us/17reuters-health-coronavirus-usa-food.html?searchResultPosition=8
+
+**Chinese Property Billionaire Gets Five Years' Jail for Child Molestation**\
+`The controlling shareholder and former chairman of Seazen Group, one of China's largest property developers, was sentenced on Wednesday to five years in prison after being convicted him of child molestation. `\
+https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-future-holdings-chairman.html?searchResultPosition=9
+
 **Pepper Spray and Scuffles as Bargain Hunters Crowd Lidl Launch in France**\
 `French police pushed back several hundred people jostling to get their hands on cut-price PlayStation 4s at the launch of a new Lidl supermarket outside Paris on Wednesday.`\
-https://nytimes.com/reuters/2020/06/17/technology/17reuters-lidl-france-playstation-scuffle.html?searchResultPosition=1
-
-**U.S. Air Force Pilot Killed Off U.K. Coast Is Identified**\
-`First Lt. Kenneth Allen, 27, was the only person aboard the F-15C fighter jet when it crashed in the North Sea during a training mission.`\
-https://nytimes.com/2020/06/17/world/europe/us-jet-crash-uk.html?searchResultPosition=2
-
-**Canada's May Inflation Rate Falls 0.4% on Lower Gas Prices**\
-`Canada's annual inflation rate fell 0.4% in May, negative for the second month in row, as the COVID-19 pandemic pushed gasoline prices lower year-over-year, outweighing a jump in food costs, Statistics Canada said on Wednesday.`\
-https://nytimes.com/reuters/2020/06/17/us/17reuters-canada-economy-inflation.html?searchResultPosition=3
-
-**U.S. Treasury, SBA Streamline PPP Loan Forgiveness Application**\
-`The U.S. Treasury Department and Small Business Administration on Wednesday said they have shortened the Payroll Protection Program's loan-forgiveness application, which had drawn broad criticism for its complexity, and introduced an even shorter version for some borrowers.`\
-https://nytimes.com/reuters/2020/06/17/us/17reuters-health-coronavirus-ppp-forgiveness.html?searchResultPosition=4
-
-**VIRUS DIARY: Learning His Way Around a Kitchen, Finally**\
-`This is not the plan I cooked up.`\
-https://nytimes.com/aponline/2020/06/17/sports/ap-us-virus-outbreak-diary-beyond-the-microwave.html?searchResultPosition=5
-
-**Kyrgyzstan's Parliament Votes to Appoint New Prime Minister**\
-`Kyrgyzstan’s parliament voted to appoint a new prime minister Wednesday, two days after his predecessor resigned amid a scandal over whether the government illegally sold radio frequencies. `\
-https://nytimes.com/aponline/2020/06/17/business/bc-as-kyrgyzstan-politics.html?searchResultPosition=6
-
-**House Hunting in Belize: A Private Island for Less Than $2 Million**\
-`The tiny Central American nation, which has avoided the worst of the global pandemic, is luring foreign investors with its agreeable prices.`\
-https://nytimes.com/2020/06/17/realestate/house-hunting-in-belize-a-private-island-for-less-than-2-million.html?searchResultPosition=7
-
-**A Private Island off the Coast of Belize**\
-`This private island with a three-acre resort off the southeastern coast of Belize is on the market for $1.9 million.`\
-https://nytimes.com/slideshow/2020/06/17/realestate/a-private-island-off-the-coast-of-belize.html?searchResultPosition=8
-
-**Romanian Rights Groups Condemn Ban on Gender Identity Studies**\
-`Romanian human rights groups and universities on Wednesday condemned a blanket ban on gender identity studies voted through by lawmakers, which they said would legitimise discrimination against the country's LGBT minority.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-romania-lgbt-rights.html?searchResultPosition=9
-
-**Eight Suspects Arrested in South Africa's 'Biggest Bank Robbery' VBS Fraud Case**\
-`South African authorities have apprehended eight people suspected of illegally siphoning 2.3 billion rand ($133.87 million) from small lender VBS Mutual Bank, which collapsed in 2018 because of the corruption scandal.`\
-https://nytimes.com/reuters/2020/06/17/world/africa/17reuters-safrica-corruption.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/17/technology/17reuters-lidl-france-playstation-scuffle.html?searchResultPosition=10
 
