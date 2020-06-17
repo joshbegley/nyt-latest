@@ -1,36 +1,36 @@
-**The Class of 2021 Could Change College Admissions Forever**\
-`This essay, by Erin Tan, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
-https://nytimes.com/2020/06/17/learning/the-class-of-2021-could-change-college-admissions-forever.html?searchResultPosition=2
+**Bringing Ethics to Your Plate**\
+`This essay, by an anonymous student, is one of the top three winners in the middle school category of our Seventh Annual Student Editorial Contest for which we received 1,242 entries.`\
+https://nytimes.com/2020/06/17/learning/bringing-ethics-to-your-plate.html?searchResultPosition=2
 
-**Discussions About Race Unsettle Rarified Equestrian World**\
-`Of all the athletes in all the sports who have been pressing for change in the aftermath of the killing of George Floyd, a pair of 17-year-old girls in the cash-soaked world of show jumping have set off among the most visceral and unexpected debates.`\
-https://nytimes.com/aponline/2020/06/17/sports/ap-equ-sport-of-privilege-racism.html?searchResultPosition=3
+**How Pragmatism Is Poisoning the Democratic Will of America’s Youth**\
+`This essay, by Edward Xu, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
+https://nytimes.com/2020/06/17/learning/how-pragmatism-is-poisoning-the-democratic-will-of-americas-youth.html?searchResultPosition=3
 
-**South Africa Says 2 Pandemics Now, Virus and Gender Violence**\
-`South Africa now faces two pandemics, COVID-19 and the violence against women and children that has risen sharply since alcohol sales were allowed again on June 1, the president said Wednesday as he announced further easing of lockdown measures. Twenty-one women and children have been killed.`\
-https://nytimes.com/aponline/2020/06/17/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=4
+**Kristen Stewart to Play Princess Diana in New Movie**\
+`Kristen Stewart will play Britain's Princess Diana in an upcoming movie about the breakdown of her marriage to Prince Charles, Hollywood trade publication Deadline reported on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/arts/17reuters-film-princess-diana.html?searchResultPosition=4
 
-**Roy Cohn Got Her Grandparents Executed. She Made a Film About Him.**\
-`In her new HBO documentary, “Bully. Coward. Victim. The Story of Roy Cohn,” the director Ivy Meeropol pushes past the easy labels in search of the human being.`\
-https://nytimes.com/2020/06/17/arts/television/roy-cohn-documentary-hbo.html?searchResultPosition=5
+**Trump Sought China's Xi's Help to Win Re-election, Bolton Alleges**\
+`In a bombshell allegation, U.S. President Donald Trump's former national security adviser John Bolton said Trump sought Chinese President Xi Jinping's help in winning re-election during a closed-door June 2019 meeting.`\
+https://nytimes.com/reuters/2020/06/17/us/politics/17reuters-usa-trump-bolton-book.html?searchResultPosition=5
 
-**The Plastic Straw Straw Man**\
-`This essay, by Christopher Shin, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
-https://nytimes.com/2020/06/17/learning/the-plastic-straw-straw-man.html?searchResultPosition=6
+**Europe's Wage Schemes Shielded Households From Most Income Losses, ECB Says**\
+`Government wage subsidy schemes shielded eurozone households from the majority of income losses during the bloc's pandemic-induced recession, and wage losses are now rapidly diminishing, a European Central Bank study showed on Wednesday. `\
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-eurozone-economy-wages.html?searchResultPosition=6
 
-**No Love of Milton if Not for Loving Frivolous Fiction**\
-`This essay, by Isabelle Lu, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
-https://nytimes.com/2020/06/17/learning/no-love-of-milton-if-not-for-loving-frivolous-fiction.html?searchResultPosition=7
+**U.S. Senate Overwhelmingly Passes Major Conservation Bill**\
+`The U.S. Senate on Wednesday passed a major conservation bill that would permanently direct $900 million a year to a long-standing federal program aimed at acquiring and protecting public lands.`\
+https://nytimes.com/reuters/2020/06/17/us/politics/17reuters-usa-conservation.html?searchResultPosition=7
 
-**Spotify Is Killing Beethoven … Here’s How You Can Save Him!**\
-`This essay, by Yuanlin Liu, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
-https://nytimes.com/2020/06/17/learning/spotify-is-killing-beethoven-heres-how-you-can-save-him.html?searchResultPosition=8
+**Closing Prices for Crude Oil, Gold and Other Commodities**\
+`Benchmark U.S. crude oil for July delivery fell 42 cents to settle at $37.96 a barrel Monday. Brent crude oil for August delivery fell 25 cents to $40.71 a barrel.`\
+https://nytimes.com/aponline/2020/06/17/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=8
 
-**Trump’s Tulsa Rally and Comment About Testing**\
-`Readers rebuke the president for forging ahead with the rally and suggesting that if you stop testing, virus cases would go down.`\
-https://nytimes.com/2020/06/17/opinion/letters/trump-tulsa-rally-coronavirus.html?searchResultPosition=9
+**How Animal Crossing Will Save Gen Z**\
+`This essay, by Ananya Udaygiri, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
+https://nytimes.com/2020/06/17/learning/how-animal-crossing-will-save-gen-z.html?searchResultPosition=9
 
-**Oxford College Recommends Removal of Rhodes Statue**\
-`The governing body of Oxford University’s Oriel College has recommended the removal of a statue of Victorian imperialist Cecil Rhodes that has long been the target of protests -- though it won’t be taken down immediately.`\
-https://nytimes.com/aponline/2020/06/17/world/europe/ap-eu-america-protests-britain-statue.html?searchResultPosition=10
+**This Land Was Made for You and Me**\
+`This essay, by Nicole Tian, is one of the top 10 winners in the high school category of our Seventh Annual Student Editorial Contest for which we received 6,076 entries.`\
+https://nytimes.com/2020/06/17/learning/this-land-was-made-for-you-and-me.html?searchResultPosition=10
 
