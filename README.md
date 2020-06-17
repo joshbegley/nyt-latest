@@ -1,40 +1,40 @@
+**Taiwan Warns Off Intruding Chinese Aircraft for Fourth Time in Nine Days**\
+`Taiwan jets on Wednesday again had to warn off Chinese air force aircraft that approached the island, Taiwan's military said, the fourth such encounter in nine days as China steps up its activity near the Chinese-claimed island.`\
+https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-taiwan-china-defence.html?searchResultPosition=1
+
+**Russia's Putin Protected From Coronavirus by Disinfection Tunnels**\
+`Russian President Vladimir Putin is protected from the  coronavirus by special disinfection tunnels that anyone visiting his residence outside Moscow or meeting him in the Kremlin must pass through, his spokesman said on Wednesday.  `\
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-russia-putin.html?searchResultPosition=2
+
+**NATO Must Deal With, Not Ignore Turkish Problem: French Official**\
+`NATO must not bury its head in the sand with regard to Turkey's recent behaviour towards its allies, a French defence ministry official said on Wednesday, and accused the Turkish navy of harassing a French warship carrying out a NATO mission.`\
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-nato-france-turkey.html?searchResultPosition=3
+
+**Russia, China, India Postpone June 23 Video Conference Amid Tensions: RIA**\
+`A June 23 video conference between the foreign ministers of Russia, China and India has been postponed to a later date, Russia's RIA news agency cited an Indian foreign ministry source as saying amid tensions between China and India.`\
+https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-health-coronavirus-russa-china-india.html?searchResultPosition=4
+
+**Wall Street Rally Wins More Fans as Economy Hints at Recovery**\
+`Record upside surprises in U.S. economic data are bolstering the case for a “V” shaped recovery from the COVID-19 recession and boosting investor confidence in a stock rally that has already delivered hefty gains in recent months.  `\
+https://nytimes.com/reuters/2020/06/17/business/17reuters-usa-markets-sentiment-analysis.html?searchResultPosition=5
+
+**Ghana Economy Grows 4.9% Year-On-Year in First Quarter, Says Stats Office**\
+`Ghana's economy grew 4.9% year-on-year in the first quarter of 2020 compared with 6.7% in the same period last year, provisional data from the state statistics service showed on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/world/africa/17reuters-ghana-gdp.html?searchResultPosition=6
+
+**Russia Says It Already Uses Dexamethasone to Treat Coronavirus Patients: RIA**\
+`Russia already uses dexamethasone to treat patients with the novel coronavirus, but does not view it as a panacea against COVID-19, the RIA news agency cited Russian health ministry official Sergei Avdeev as saying on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-steroid-russia.html?searchResultPosition=7
+
+**Mink at Danish Farm to Be Culled After Catching Coronavirus**\
+`Mink at a farm in Denmark were found to be infected with the new coronavirus and the whole stock now has to be culled, Danish authorities said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-denmark-mink.html?searchResultPosition=8
+
 **DealBook: A Four-Point Plan for Fixing the Economy**\
 `A heavyweight group of economists and former policymakers have outlined a flexible approach to supporting the recovery not tied to any specific date.`\
-https://nytimes.com/2020/06/17/business/dealbook/economy-recovery-reopening.html?searchResultPosition=1
+https://nytimes.com/2020/06/17/business/dealbook/economy-recovery-reopening.html?searchResultPosition=9
 
 **Eduardo Cojuangco, Philippine Tycoon and Marcos Ally, Dies at 85**\
 `A cousin of one president and a friend to others, the chairman of the San Miguel Corporation built up a billion-dollar fortune with the help of his political ties.`\
-https://nytimes.com/2020/06/17/business/eduardo-cojuangco-dead.html?searchResultPosition=2
-
-**Southwest Airlines Says Has Enough Cash for Two Years as Demand Improves**\
-`Southwest Airlines said on Wednesday it has enough cash to carry on business for the next two years, up from its prior forecast of 20 months, as travel demand gradually picks up.`\
-https://nytimes.com/reuters/2020/06/17/business/17reuters-southwest-outlook.html?searchResultPosition=3
-
-**Illegitimate Children of Jews Evicted by Nazis Are German Citizens, Court Rules**\
-`A U.S. woman born to a Jewish father stripped of his German citizenship by the Nazis in 1938 cannot be denied naturalisation for being an illegitimate child, Germany's Constitutional Court has ruled.`\
-https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-germany-nazi-citizenship.html?searchResultPosition=4
-
-**China Says It Has Agreed With India to De-escalate Border Situation**\
-`China and India have agreed to de-escalate the situation at their border as soon as possible following a clash between the their troops, the Chinese foreign ministry said on Wednesday. `\
-https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-india-china-call.html?searchResultPosition=5
-
-**Coronavirus Turmoil Fuels the Rise of AI-Powered Companies**\
-`For the past seven years, a Munich-based firm called riskmethods has tried to interest companies in buying software that allows them to track all their suppliers in a way that minimizes risks in operating globally spread supply chains.`\
-https://nytimes.com/reuters/2020/06/17/business/17reuters-health-coronavirus-automation.html?searchResultPosition=6
-
-**Maskne Is the New Acne, and Here’s What Is Causing It**\
-`Yes, it’s a real thing.`\
-https://nytimes.com/2020/06/17/style/skin-care-maskne-is-the-new-acne-and-heres-whats-causing-ityour-face-mask-is-causing-it.html?searchResultPosition=7
-
-**U.S. FAA Chief to Testify at Hearing on Jet Certification After 737 MAX Crashes**\
-`The head of the Federal Aviation Administration is set to testify on Wednesday before a Senate committee on the safety certification of jetliners like Boeing Co's 737 MAX, still grounded after fatal crashes. `\
-https://nytimes.com/reuters/2020/06/17/business/17reuters-boeing-737max.html?searchResultPosition=8
-
-**Trump to Lay Out Strategy Wednesday to Prevent Suicides by Veterans: Officials**\
-`President Donald Trump's administration will lay out a broad strategy on Wednesday aimed at helping to prevent suicides by U.S. veterans and other Americans, administration officials told Reuters.`\
-https://nytimes.com/reuters/2020/06/17/us/17reuters-usa-trump-suicide-prevention.html?searchResultPosition=9
-
-**U.S. Commerce Chief: Huawei Rule Is a 'Clarification'-Fox Business Network**\
-`A new U.S. rule regarding China's Huawei Technologies Co Ltd is a needed "clarification" to help develop standards, U.S. Commerce Secretary Wilbur Ross said on Wednesday, adding that security concerns remain over the telecoms equipment maker.`\
-https://nytimes.com/reuters/2020/06/17/business/17reuters-usa-china-huawei-tech.html?searchResultPosition=10
+https://nytimes.com/2020/06/17/business/eduardo-cojuangco-dead.html?searchResultPosition=10
 
