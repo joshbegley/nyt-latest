@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/06/17/business/bc-financial-markets.html?searc
 https://nytimes.com/reuters/2020/06/17/world/europe/17reuters-health-coronavirus-britain-economy.html?searchResultPosition=4
 
 **South Korean Unification Minister Offers to Step Down, Yonhap Says**\
-`South Korean Unification Minister Kim Yeon-chul, who oversees engagement with North Korea, offered on Tuesday to step down, saying he takes responsibility for a worsening in ties between the neighbours, the Yonhap news agency said.`\
+`South Korean Unification Minister Kim Yeon-chul, who oversees engagement with North Korea, offered on Wednesday to step down, saying he takes responsibility for a worsening in ties between the neighbours, the Yonhap news agency said.`\
 https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-northkorea-southkorea-minister.html?searchResultPosition=5
 
 **Would MLB Fans View Champ, Stats as Legit in 50-Game Season?**\
