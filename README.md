@@ -1,24 +1,24 @@
+**New Boss May Test Voice of America’s Credibility**\
+`Over 280 million people a week depend on the V.O.A. for news. Its independence is why it is so trusted.`\
+https://nytimes.com/2020/06/16/opinion/voice-of-america.html?searchResultPosition=1
+
+**Sotheby's International Realty**\
+`Sotheby’s International Realty`\
+https://nytimes.comhttp://brandedplaylist.nytimes.com/video/embedded/t-brand/100000007195156/sothebys-international-realty.html?searchResultPosition=2
+
+**Punching the Clock (and the Boss) with Dolly, Lily and Jane**\
+`Our critics and readers ponder the workplace politics and current relevance of “Nine to Five.”`\
+https://nytimes.com/2020/06/16/movies/nine-to-five-viewers.html?searchResultPosition=3
+
+**Congo Mining Provinces Impose New COVID-19 Lockdowns**\
+`Authorities in Democratic Republic of Congo's southeastern mining heartland announced temporary lockdowns on Tuesday in an effort to widen coronavirus testing and prevent a worrying situation from worsening, governors said.`\
+https://nytimes.com/reuters/2020/06/16/world/africa/16reuters-health-coronavirus-congo.html?searchResultPosition=8
+
 **The ‘Poisoned’ Shake Shack Milkshakes and an N.Y.P.D. on Edge**\
 `Claims that fast-food workers poisoned officers intentionally proved to be unfounded, but the ensuing uproar underscored a tense new dynamic.`\
-https://nytimes.com/2020/06/16/nyregion/shake-shack-police-nypd.html?searchResultPosition=5
+https://nytimes.com/2020/06/16/nyregion/shake-shack-police-nypd.html?searchResultPosition=9
 
 **A Mad Scramble to Stock Millions of Coronavirus Pills, Likely for Nothing**\
 `Before the F.D.A. withdrew its waiver to stockpile malaria drugs as coronavirus treatments, the Trump administration had embarked on a headlong effort to import tens of millions of doses.`\
-https://nytimes.com/2020/06/16/us/politics/trump-hydroxychloroquine-coronavirus.html?searchResultPosition=6
-
-**Republicans Signal Narrow Policing Overhaul as Trump Signs Limited Order**\
-`Republicans denounced a sweeping Democratic law enforcement overhaul as an overreach and President Trump signed an order that omitted mention of racism or discrimination in policing.`\
-https://nytimes.com/2020/06/16/us/politics/trump-republicans-police-overhaul.html?searchResultPosition=7
-
-**Coronavirus Outbreaks at Border Put Haitian Migrants at Risk**\
-`Day laborers who lack adequate health care and housing are particularly vulnerable, as cases rise across the Americas.`\
-https://nytimes.com/2020/06/16/science/coronavirus-haiti-dominican-republic.html?searchResultPosition=8
-
-**Turkish Warplanes Strike Kurdish Targets in Northern Iraq**\
-`Turkey's Defence Ministry said its warplanes struck Kurdish militant targets in northern Iraq's Haftanin region on Wednesday, the second such operation launched against the Kurdistan Workers Party (PKK) in recent days.`\
-https://nytimes.com/reuters/2020/06/16/world/middleeast/16reuters-turkey-security-iraq.html?searchResultPosition=9
-
-**From Columbus to Confederates, Anger About Statues Boils Over**\
-`From Virginia to New Mexico, protests over police brutality have brought hundreds of years of American history bubbling to the surface.`\
-https://nytimes.com/2020/06/16/us/protests-statues-reckoning.html?searchResultPosition=10
+https://nytimes.com/2020/06/16/us/politics/trump-hydroxychloroquine-coronavirus.html?searchResultPosition=10
 
