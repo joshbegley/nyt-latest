@@ -1,5 +1,5 @@
 **Trump Faces a Decision on Whether to Keep Fighting DACA, but Not on Attacking the Courts**\
-`The Supreme Court has given President Trump has a new opening to rally his right-wing base by arguing that he needs another four years to stack the courts with conservative jurists.`\
+`The Supreme Court has given President Trump a new opening to rally his right-wing base by arguing that he needs another four years to stack the courts with conservative jurists.`\
 https://nytimes.com/2020/06/18/us/politics/trump-daca-conservative-courts.html?searchResultPosition=2
 
 **How Moderates Failed Black America**\
