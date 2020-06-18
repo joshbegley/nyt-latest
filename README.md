@@ -2,7 +2,7 @@
 `Brazilian football will kick off again in Rio de Janeiro this week after the city's mayor gave the go ahead for the local league to start after a three-month hiatus caused by the new coronavirus.`\
 https://nytimes.com/reuters/2020/06/17/sports/soccer/17reuters-health-coronavirus-soccer-brazil-return.html?searchResultPosition=2
 
-**Bannon Ally in Charge of U.S. Media Agency Dismisses Heads of News Organizations**\
+**New Conservative Media Chief Dismisses Heads of U.S. News Agencies**\
 `President Trump had pushed Senate Republicans to confirm Michael Pack despite opposition from Democrats. Journalists fear he will destroy the editorial independence of news organizations.`\
 https://nytimes.com/2020/06/17/us/politics/michael-pack-media-agency.html?searchResultPosition=3
 
