@@ -1,36 +1,36 @@
-**Beijing Coronavirus Outbreak Under Control-Chinese CDC Expert**\
-`Beijing's latest coronavirus outbreak has been brought under control, Wu Zunyou, chief epidemiologist of China's Center for Diseases Prevention and Control, said at a regular news conference on Thursday.`\
-https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-health-coronavirus-china-beijing.html?searchResultPosition=2
+**‘There Is No Work Here’: Migrants, Some Sick, Move North**\
+`The coronavirus is moving through Florida’s agricultural communities just as laborers began to migrate north for the harvest.`\
+https://nytimes.com/2020/06/18/us/florida-coronavirus-immokalee-farmworkers.html?searchResultPosition=2
 
-**Rights Group: Egypt Authorities Shouldn't Harass Doctors**\
-`An international rights group urged Egyptian authorities Thursday to stop a “campaign of harassment and intimidation” against health care workers who have criticized the government's response to the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/06/18/world/middleeast/ap-ml-virus-outbreak-mideast.html?searchResultPosition=3
+**How Two Russians Got Caught Up in Libya’s War, Now an Action Movie**\
+`The Russians, who said they were doing sociology research, were jailed on charges of political meddling. It’s the latest tale of foreign intrigue in Libya.`\
+https://nytimes.com/2020/06/18/world/middleeast/russia-libya-maksim-Shugalei.html?searchResultPosition=3
 
-**Japan to Ease Entry for Vietnam, Thailand, Australia, New Zealand: Report**\
-`Japanese Prime Minister Shinzo Abe said the country would ease entry restrictions for people coming from Australia, New Zealand, Thailand and Vietnam, according to a Jiji news agency report on Thursday.`\
-https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-health-coronavirus-japan-travel.html?searchResultPosition=4
+**What It Takes to Reopen a Small Business Right Now**\
+`Masks are just the start. Entrepreneurs around the U.S. are figuring out what to do as they go, and hoping that they can make it work.`\
+https://nytimes.com/2020/06/18/business/small-business-reopening-coronavirus.html?searchResultPosition=4
 
-**Czechs Lay Ground for Further Easing of Coronavirus Measures**\
-`The Czech Republic will loosen many remaining restrictions imposed to curb the spread of the coronavirus in the coming weeks, allowing larger crowds to gather, people to mostly ditch face masks and zoos and museums to return to normal operations.`\
-https://nytimes.com/reuters/2020/06/18/world/europe/18reuters-health-coronavirus-czech.html?searchResultPosition=5
+**Apple Rejects Facebook’s Gaming App, for at Least the Fifth Time**\
+`Apple has repeatedly denied Facebook’s new Gaming app from appearing in its App Store, citing its own rules.`\
+https://nytimes.com/2020/06/18/technology/apple-ios-facebook-gaming-app.html?searchResultPosition=5
 
-**Indian Families Demand Justice as They Await Bodies of Soldiers Killed in Clash With China**\
-`In their last phone conversation, Neha Ojha, the wife of an Indian soldier, said she laughed off her husband's idea to name their daughter Snow White because he received the news of her birth while patrolling a snow-covered valley on the border with China.`\
-https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-india-china-funerals.html?searchResultPosition=6
+**‘Banking While Black’: How Cashing a Check Can Be a Minefield**\
+`Black customers risk being racially profiled on everyday visits to bank branches. Under federal laws, there is little recourse as long as the banks ultimately complete their transactions.`\
+https://nytimes.com/2020/06/18/business/banks-black-customers-racism.html?searchResultPosition=6
 
-**EU Ready to Go It Alone on Taxation of Digital Firms**\
-`The European Union is ready to go it alone with taxing digital services of firms like Google, Amazon, Facebook or Apple if there is no global deal on such a tax this year, European Economic Commissioner Paolo Gentiloni said on Thursday.`\
-https://nytimes.com/reuters/2020/06/18/technology/18reuters-trade-digital-eu.html?searchResultPosition=7
+**How the Trump Campaign Missed the Signals on Juneteenth**\
+`Instead of offering President Trump a glide path back into the campaign season, Saturday’s rally in Tulsa has become yet another flash point for a candidate who has repeatedly displayed insensitivity about race.`\
+https://nytimes.com/2020/06/18/us/politics/trump-rally-tulsa-juneteenth.html?searchResultPosition=7
 
-**Iran Rejects U.S. Sanctions on Syria, Vows to Boost Trade With Ally**\
-`Iran on Thursday condemned as inhumane a fresh round of U.S. sanctions against its regional ally Syria and said it would expand its trade ties with Damascus.  `\
-https://nytimes.com/reuters/2020/06/18/world/middleeast/18reuters-syria-security-usa-sanctions-iran.html?searchResultPosition=8
+**‘Power to the People’: Detroit Students Preserve This Moment in Paint**\
+`A mural on the city’s main thoroughfare that honors the spirit of the protests was the result of a contest in which students chose their favorite rendering, and helped paint it.`\
+https://nytimes.com/2020/06/18/us/politics/detroit-protests-mural.html?searchResultPosition=8
 
-**CONMEBOL, Colombia Complain to FIFA About 2023 World Cup Bid Report**\
-`Colombia's soccer chief and the head of South American football confederation CONMEBOL have written to FIFA complaining of "erroneous and discriminatory conclusions" in the assessment of the country's bid to host the 2023 Women's World Cup.`\
-https://nytimes.com/reuters/2020/06/18/sports/soccer/18reuters-soccer-worldcup-colombia.html?searchResultPosition=9
+**Telling ‘the Sweep of 400 Years’**\
+`Nikole Hannah-Jones received a Pulitzer Prize for an essay that led The 1619 Project. In a sense, she had been writing that essay for decades.`\
+https://nytimes.com/2020/06/18/insider/nikole-hannah-jones-1619.html?searchResultPosition=9
 
-**Beijing Residents Rush Coronavirus Test clinics as Emergency Rules Expand**\
-`China's capital has mandated coronavirus tests for hundreds of thousands of people as it widens measures against a new outbreak of the disease that has sent anxious residents flooding to clinics for voluntary tests, putting a strain on the system.`\
-https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-health-coronavirus-beijing-testing.html?searchResultPosition=10
+**The Pandemic Isn’t Over. New Yorkers Are Acting as if It Is.**\
+`All over the city, bars, stores and people themselves are bending or ignoring social distancing rules, irking officials trying to keep the coronavirus curve flat.`\
+https://nytimes.com/2020/06/18/nyregion/coronavirus-ny-social-distancing.html?searchResultPosition=10
 
