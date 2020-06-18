@@ -1,36 +1,36 @@
+**Brazil Set to Test Lower Bound on Rates, Despite Misgivings**\
+`Brazil's central bank will likely be forced to put aside its misgivings and cut interest rates much further, testing the "lower bound" of rates as it battles against potentially the biggest economic crash on record and historically low inflation.`\
+https://nytimes.com/reuters/2020/06/18/world/americas/18reuters-brazil-economy-rates.html?searchResultPosition=2
+
+**Thoughts for Juneteenth: Making Reparations for Slavery**\
+`Readers agree with David Brooks on the necessity, but offer other ideas for carrying out reparations.`\
+https://nytimes.com/2020/06/18/opinion/letters/reparations-slavery.html?searchResultPosition=3
+
+**13 Dead After Landslide in Ivory Coast Washes Away Homes**\
+`A landslide on the outskirts of Ivory Coast's largest city Thursday killed at least 13 people after heavy rains swept away around 20 houses in the area, authorities said.`\
+https://nytimes.com/aponline/2020/06/18/world/africa/ap-af-ivory-coast-landslide.html?searchResultPosition=4
+
+**U.S. Senate Votes to Confirm McConnell Protege to Influential Appeals Court**\
+`The U.S. Senate on Thursday voted to confirm a federal judge who is a protege of Senate Republican Leader Mitch McConnell to an influential appeals court in Washington.`\
+https://nytimes.com/reuters/2020/06/18/us/politics/18reuters-usa-court-judge.html?searchResultPosition=5
+
+**California Orders People to Wear Masks in Most Indoor Spaces**\
+`California will require people to wear masks in most indoor settings and outdoors when distancing isn't possible under a statewide order issued Thursday. `\
+https://nytimes.com/aponline/2020/06/18/business/ap-us-virus-outbreak-california-masks.html?searchResultPosition=6
+
+**Minnesota Democrats Press GOP for Sweeping Policing Changes**\
+`Gov. Tim Walz has challenged Republican lawmakers to approve a Democratic-backed package of police accountability bills crafted following George Floyd's death so he can have the “poetic justice” of signing them Friday to celebrate Juneteenth, which marks the end of slavery in the country.`\
+https://nytimes.com/aponline/2020/06/18/us/ap-us-george-floyd-minnesota-legislature.html?searchResultPosition=7
+
 **Digital Field Trips: Museum Adventures Abound for Kids**\
 `Cultural institutions are finding creative ways to engage young visitors virtually this summer, and many of the offerings are free.`\
-https://nytimes.com/2020/06/18/arts/design/kids-museums-summer-virus.html?searchResultPosition=2
+https://nytimes.com/2020/06/18/arts/design/kids-museums-summer-virus.html?searchResultPosition=8
 
 **The Unstoppable Class of 2020**\
 `The coronavirus is not the first crisis we’ve faced.`\
-https://nytimes.com/2020/06/18/opinion/high-school-graduation-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/06/18/opinion/high-school-graduation-coronavirus.html?searchResultPosition=9
 
 **Fed's Bullard Says U.S. Economy Not Out of the Woods Yet**\
 `St. Louis Federal Reserve bank President James Bullard said on Thursday that he is hopeful the worst of the economic crisis caused by the coronavirus pandemic may have passed in April, but the U.S. economy is not yet in the clear.`\
-https://nytimes.com/reuters/2020/06/18/us/18reuters-usa-fed-bullard.html?searchResultPosition=4
-
-**U.S. Sanctions Mexican Firms, Individuals Over Links to Venezuela**\
-`The United States on Thursday imposed sanctions on Mexican companies and individuals and two oil tankers under a program meant to pressure the government of Venezuelan President Nicolas Maduro.`\
-https://nytimes.com/reuters/2020/06/18/world/americas/18reuters-venezuela-politics-usa.html?searchResultPosition=5
-
-**Report: Some NFL Coaches Want Season Delayed**\
-`Some NFL coaches want the 2020 regular season delayed due to the coronavirus pandemic, ESPN's Ed Werder reported.`\
-https://nytimes.com/reuters/2020/06/18/sports/football/18reuters-football-nfl-delay-season-coronavirus.html?searchResultPosition=6
-
-**Canada's Co-op Refinery Reaches Tentative Deal With Unifor to End Labor Dispute**\
-`Co-op Refinery Complex (CRC), western Canada's third-largest oil refinery, said on Thursday it reached a tentative deal with the country's largest private sector union, potentially ending a months-long labor dispute.`\
-https://nytimes.com/reuters/2020/06/18/world/americas/18reuters-canada-crude-refinery.html?searchResultPosition=7
-
-**Becoming a Dad Meant Losing My Edge**\
-`But it was worth it.`\
-https://nytimes.com/2020/06/18/parenting/fathers-day-identity.html?searchResultPosition=8
-
-**‘It Feels Like I Can Finally Breathe’: ‘Dreamers’ Get a Reprieve on DACA**\
-`Thousands of young people who were in the country illegally as children have been caught in legal limbo. A new Supreme Court ruling gave them a temporary win.`\
-https://nytimes.com/2020/06/18/us/DACA-dreamers-supreme-court-immigration.html?searchResultPosition=9
-
-**Memphis Music Festival, Barbecue Cooking Contest Canceled**\
-`The Beale Street Music Festival, the World Championship Barbecue Cooking Contest and other “Memphis in May” events were canceled Thursday due to the coronavirus outbreak in the Tennessee city.`\
-https://nytimes.com/aponline/2020/06/18/us/ap-us-virus-outbreak-memphis-in-may-.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/18/us/18reuters-usa-fed-bullard.html?searchResultPosition=10
 
