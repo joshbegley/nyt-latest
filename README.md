@@ -1,36 +1,36 @@
+**Images of a Stolen Van Gogh Give Experts Hope It Can be Recovered**\
+`A private art detective investigating the case said he was sent the images of the work, which was taken from a Dutch museum in March.`\
+https://nytimes.com/2020/06/18/arts/design/stolen-van-gogh-picture.html?searchResultPosition=2
+
+**Roaming Mountain Lion Caught in Downtown San Francisco**\
+`A young mountain lion that had been spotted sleeping in a planter box along a normally busy street and looking at his reflection in the glass of an office tower in downtown San Francisco was safely captured Thursday and will be released into the wild, officials said. `\
+https://nytimes.com/aponline/2020/06/18/us/ap-us-san-francisco-mountain-lion.html?searchResultPosition=3
+
+**Ex-Pentagon Analyst Sentenced to 30 Months in Leak Case**\
+`The former counterterrorism analyst had pleaded guilty to sharing classified information with reporters about foreign weapon systems.`\
+https://nytimes.com/2020/06/18/us/politics/henry-frese-leaks.html?searchResultPosition=4
+
+**Canada Hits 100,000 Coronavirus Cases, Major Challenges Remain**\
+`Canada officially racked up 100,000 cases of the novel coronavirus on Thursday and although the outbreak is slowing, health experts said major challenges remain.`\
+https://nytimes.com/reuters/2020/06/18/world/americas/18reuters-health-coronavirus-canada.html?searchResultPosition=5
+
+**Senate Confirms McConnell Ally to Top Federal Appeals Court**\
+`A divided Senate has approved the nomination of a 38-year-old judge and ally of Senate Majority Leader Mitch McConnell to serve on a top federal appeals court, despite Democrats’ objections that he’s inexperienced and biased against the Obama-era health care law.`\
+https://nytimes.com/aponline/2020/06/18/us/politics/ap-us-trump-judicial-nominee.html?searchResultPosition=6
+
+**Kenya Defeats Djibouti for a Seat on UN Security Council**\
+`Kenya defeated Djibouti on Thursday for an African seat on the U.N. Security Council in a second round of voting held under dramatically different procedures because of the COVID-19 pandemic.`\
+https://nytimes.com/aponline/2020/06/18/world/middleeast/ap-un-united-nations-election.html?searchResultPosition=7
+
 **Mady Mesplé, French Soprano With a Silvery Voice, Dies at 89**\
 `She achieved distinction in Europe with French opera roles and songs, but audiences also cherished her performances of operetta and works by Debussy, Ravel, Poulenc and Satie.`\
-https://nytimes.com/2020/06/18/arts/music/mady-mesple-dead.html?searchResultPosition=2
+https://nytimes.com/2020/06/18/arts/music/mady-mesple-dead.html?searchResultPosition=8
 
 **Armenia's Ex-President Freed From Jail on $4.1-Million Bail**\
 `A court in the Armenian capital ruled Thursday to free former Armenian President Robert Kocharian on $4.1-million bail — the highest in the ex-Soviet nation's history.`\
-https://nytimes.com/aponline/2020/06/18/world/europe/ap-eu-armenia-ex-president.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/06/18/world/europe/ap-eu-armenia-ex-president.html?searchResultPosition=9
 
 **Padma Lakshmi Finds a New Voice, Amplifying the Voices of Others**\
 `“Taste the Nation” is her new series on Hulu, with 10 episodes that collectively expand and redefine the meaning of American food.`\
-https://nytimes.com/2020/06/18/dining/padma-lakshmi-taste-the-nation.html?searchResultPosition=4
-
-**Juneteenth: A Day of Joy and Pain-And Now National Action**\
-`In just about any other year, Juneteenth, the holiday celebrating the day in 1865 that all enslaved black people learned they had been freed from bondage, would be marked by African American families across the nation with a cookout, a parade, a community festival, a soulful rendition of “Lift Ev’ry Voice and Sing.`\
-https://nytimes.com/aponline/2020/06/18/us/ap-us-america-protests-juneteenth.html?searchResultPosition=5
-
-**AP Explains: US Supreme Court Ruling on DACA Program**\
-`The U.`\
-https://nytimes.com/aponline/2020/06/18/us/ap-us-supreme-court-immigration-explainer-.html?searchResultPosition=6
-
-**Judge OK's Deal to House 7,000 Los Angeles-Area Homeless**\
-`A U.S. judge has approved an agreement in which the city and county of Los Angeles will provide housing for almost 7,000 homeless people who live near freeways as well as those over 65 or vulnerable to COVID-19, officials said Thursday.`\
-https://nytimes.com/aponline/2020/06/18/us/ap-us-los-angeles-homeless.html?searchResultPosition=7
-
-**Discord Thwarts U.N. Nuclear Watchdog's Plans for Virtual Iran Meeting**\
-`Opposition led by China to a planned resolution rebuking Iran at the U.N. nuclear watchdog's 35-nation board has forced it to call an in-person session after four days of meeting online because of the coronavirus, diplomats said on Thursday.`\
-https://nytimes.com/reuters/2020/06/18/world/middleeast/18reuters-iran-nuclear-iaea.html?searchResultPosition=8
-
-**Reluctance to Free 'Most Dangerous' Taliban Prisoners Slows Afghan Peace Talks: Sources**\
-`Western powers are backing the Afghan government's refusal to free hundreds of prisoners accused of some of Afghanistan's most violent attacks, a release demanded by the Taliban as a condition to start peace talks, five sources told Reuters.`\
-https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-usa-afghanistan-taliban-prisoners.html?searchResultPosition=9
-
-**Facebook Takes Down Certain Posts, Ads From Trump Re-election Campaign**\
-`Facebook Inc said on Thursday it took down certain posts and advertisements from U.S. President Donald Trump and Vice President Mike Pence related to their re-election campaign, due to violation of the social network's policy against organized hate.`\
-https://nytimes.com/reuters/2020/06/18/technology/18reuters-facebook-trump.html?searchResultPosition=10
+https://nytimes.com/2020/06/18/dining/padma-lakshmi-taste-the-nation.html?searchResultPosition=10
 
