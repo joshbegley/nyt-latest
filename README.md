@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/06/18/technology/18reuters-australia-cyber.html
 `He is a creature of the administration, not a critic of it.`\
 https://nytimes.com/2020/06/18/opinion/john-bolton-book-trump.html?searchResultPosition=6
 
-**Trump Faces a Decision on Whether to Keep Fighting DACA, but Not on Attacking the Courts**\
+**Setback on Immigration Policy Goal Leaves Trump Fuming Over Makeup of Courts**\
 `The Supreme Court has given President Trump a new opening to rally his right-wing base by arguing that he needs another four years to stack the courts with conservative jurists.`\
 https://nytimes.com/2020/06/18/us/politics/trump-daca-conservative-courts.html?searchResultPosition=7
 
