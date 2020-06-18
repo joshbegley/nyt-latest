@@ -1,36 +1,36 @@
-**What Have We Learned About Reopening?**\
-`Some countries have handled it better than others. Which path will the United States take?`\
-https://nytimes.com/2020/06/18/opinion/coronavirus-reopening.html?searchResultPosition=2
+**Juneteenth: Celebrating Black Lives**\
+`“I feel it is important to recognize the humanity and complexity of the black American experience,” a reader says of Juneteenth.`\
+https://nytimes.com/2020/06/18/opinion/letters/juneteenth-black-lives.html?searchResultPosition=2
 
-**DACA, Unemployment, Space Tourism: Your Thursday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/06/18/briefing/daca-unemployment-space-tourism.html?searchResultPosition=3
+**Ida, Maya, Rosa, Harriet: The Power in Our Names**\
+`Ayanna Pressley and Harriet Tubman both used naming in a way to evoke power.`\
+https://nytimes.com/2020/06/18/style/self-care/sojourner-truth-harriet-tubman-slavery-names.html?searchResultPosition=3
 
-**U.S. Fed's Balance Sheet Shrinks for First Time Since February**\
-`The Federal Reserve's assets shrank this week for the first time since February, reflecting a sharp drop in currency swaps with foreign central banks and a continued slackening in demand for other emergency credit facilities.`\
-https://nytimes.com/reuters/2020/06/18/us/18reuters-usa-fed-assets.html?searchResultPosition=4
+**This Is How We Juneteenth**\
+`This year, amid protests against police brutality and structural racism toward black Americans, some lean into the joy of tradition as resistance. Others say recognition is not enough.`\
+https://nytimes.com/article/juneteenth-celebration-history.html?searchResultPosition=4
 
-**China Not Forthcoming in Hawaii Talks, but Made Commitment on Trade: U.S. Diplomat**\
-`China's attitude in talks with the United States this week in Hawaii cannot be described as forthcoming, although it did commit to following through on Phase One of the U.S.-China trade deal, the senior U.S. diplomat for East Asia said on Thursday.`\
-https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-usa-china-diplomacy.html?searchResultPosition=5
+**How Reparations for Slavery Became a 2020 Campaign Issue**\
+`In 1865, formerly enslaved people were promised 40 acres of land and, later, a mule. More than 150 years since then some politicians are trying to make good on a version of that promise.`\
+https://nytimes.com/2020/06/18/us/politics/reparations-slavery.html?searchResultPosition=5
 
-**Is Donald Trump a Danger to Democracy?**\
-`Two new books, Masha Gessen’s “Surviving Autocracy” and Eric A. Posner’s “The Demagogue’s Handbook,” assess what we do — and don’t — know about the president.`\
-https://nytimes.com/2020/06/18/books/review/masha-gessen-surviving-autocracy-eric-posner-the-demagogues-playbook.html?searchResultPosition=6
+**How the Women of the Jemima Code Freed Me**\
+`Aunt Jemima is retired, but real women lit a pathway to grace.`\
+https://nytimes.com/2020/06/18/style/aunt-jemima-black-cooking.html?searchResultPosition=6
 
-**New York City Council Passes Police Surveillance Oversight Bill**\
-`The New York City Council overwhelmingly passed a bill that would order the city's police force to itemize and explain its surveillance gear.`\
-https://nytimes.com/reuters/2020/06/18/technology/18reuters-minneapolis-police-surveillance.html?searchResultPosition=7
+**‘Dear White Women’: The Public Classroom of Rachel Cargle**\
+`Her honest and empathic approach to changing white people and supporting black people is shifting perspectives on an increasingly large scale.`\
+https://nytimes.com/2020/06/18/style/self-care/rachel-cargle-anti-racism-ally.html?searchResultPosition=7
 
-**Canada MPs Vote to Summon Major Retailers Over Scrapping of Coronavirus Bonus: Globe and Mail**\
-`A Canadian parliamentary committee voted on Thursday to summon major retailers to demand they explain their decision to cancel temporary wage increases for workers during the coronavirus outbreak, the Globe and Mail reported.`\
-https://nytimes.com/reuters/2020/06/18/world/americas/18reuters-canada-politics-retail.html?searchResultPosition=8
+**Park Police Head Had Been Accused of Illegal Searches and Unreliable Testimony**\
+`The force was centrally involved in the authorities’ use of pepper spray to clear protesters from a park near the White House this month.`\
+https://nytimes.com/2020/06/18/us/politics/park-police-gregory-monahan.html?searchResultPosition=8
 
-**U.S. Recovery to Be Bumpy, Muted, Fed's Kashkari Says**\
-`With cases of Covid-19 likely to resurge, at least in some parts of the country, the U.S. economic recovery will be neither smooth nor strong, Minneapolis Federal Reserve Bank President Neel Kashkari said in remarks released Thursday.`\
-https://nytimes.com/reuters/2020/06/18/us/18reuters-usa-fed-kashkari.html?searchResultPosition=9
+**Ex-TCW Fund Manager Appeals Dismissal of Sexual Harassment Claims**\
+`Former fund manager Sara Tirschwell on Thursday appealed a New York state judge's dismissal of the bulk of her sexual harassment lawsuit against her former employer, asset manager TCW Group Inc.`\
+https://nytimes.com/reuters/2020/06/18/business/18reuters-tcw-tirschwell-harassment-appeal.html?searchResultPosition=9
 
-**US Official Says China Not Forthcoming in Talks With Pompeo**\
-`A senior State Department official said Thursday that the United States was disappointed by China’s attitude at a meeting between Secretary of State Mike Pompeo and a top Chinese diplomat in Hawaii this week.`\
-https://nytimes.com/aponline/2020/06/18/us/politics/ap-us-united-states-china-pompeo.html?searchResultPosition=10
+**Nemir Kirdar, Middle East Financier With Foot in the West, Dies at 83**\
+`The private equity firm he founded, Investcorp, tapped into Persian Gulf oil money and once purchased Tiffany and Co., Gucci and other Western brands.`\
+https://nytimes.com/2020/06/18/business/nemir-kirdar-middle-east-financier-with-foot-in-the-west-dies-at-83.html?searchResultPosition=10
 
