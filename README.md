@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/06/17/world/asia/17reuters-health-coronavirus-n
 `Westpac Banking Corp said on Thursday it has agreed to sell its remaining 9.5% stake in fund operator Pendal Group Ltd to institutional investors for about A$185.4 million ($128 million).`\
 https://nytimes.com/reuters/2020/06/17/business/17reuters-westpac-divestiture-pendal-grp.html?searchResultPosition=6
 
-**Australian Regulator Raises Concerns Over Google, Fitbit Deal**\
-`Australia's consumer watchdog on Thursday raised initial competition concerns over Alphabet Inc-owned Google's $2.1 billion bid for fitness tracker company Fitbit.`\
+**Google, Fitbit Deal May Hamper Competition: Australian Regulator**\
+`Australia's consumer watchdog said on Thursday it had concerns that Alphabet Inc-owned Google's planned $2.1 billion acquisition of fitness tracker company Fitbit may hinder competition in digital advertising and health markets.`\
 https://nytimes.com/reuters/2020/06/17/business/17reuters-fitbit-m-a-alphabet.html?searchResultPosition=7
 
 **Justice Dept. Escalates Legal Fight With Bolton Over Book**\
