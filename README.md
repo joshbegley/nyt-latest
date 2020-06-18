@@ -19,7 +19,7 @@ https://nytimes.com/2020/06/18/us/politics/pelosi-confederate-portraits-house.ht
 https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-palantir-funding.html?searchResultPosition=6
 
 **How We Juneteenth**\
-`This year, Juneteenth — known as Freedom Day — comes at a moment of change in the nation.`\
+`This year, Juneteenth arrives at a moment of change in the United States. We celebrate, mourn, observe and learn.`\
 https://nytimes.com/interactive/2020/06/18/style/juneteenth-celebration.html?searchResultPosition=7
 
 **Who Says Crime Doesn’t Pay? In These Novels, It Does**\
