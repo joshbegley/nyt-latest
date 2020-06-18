@@ -1,36 +1,36 @@
+**Russia Lifts Ban on Telegram Messaging App After Failing to Block It**\
+`Russia on Thursday lifted a ban on the Telegram messaging app that had failed to stop the widely-used programme operating despite being in force for more than two years. `\
+https://nytimes.com/reuters/2020/06/18/technology/18reuters-russia-telegram-ban.html?searchResultPosition=2
+
+**A Life Spent With Art and Artists**\
+`David Juda of Annely Juda Fine Art discusses working with David Hockney and Christo, and how a job on a luxury liner prepared him to be an art dealer.`\
+https://nytimes.com/2020/06/18/arts/david-juda-london.html?searchResultPosition=3
+
+**North Korea Continues to Present 'Extraordinary' Threat to Region: Pentagon Official**\
+`North Korea's activities in recent days have shown that Pyongyang continues to pose an "extraordinary" threat to the Asia-Pacific region, a senior Pentagon official said on Thursday.`\
+https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-northkorea-southkorea-usa-pentagon.html?searchResultPosition=4
+
+**UK Economy Starting to Recover but Jobs News Bad, BoE's Bailey Says**\
+`Britain's economy is recovering a bit more quickly than the Bank of England thought a month ago as the government eases its COVID-19 lockdown, but news from the labour market is mostly negative, Bank of England Governor Andrew Bailey said `\
+https://nytimes.com/reuters/2020/06/18/world/europe/18reuters-health-coronavirus-boe-bailey.html?searchResultPosition=5
+
+**Russia Lifts Ineffective Ban on Telegram Messaging App**\
+`Russia's communications watchdog said Thursday it would lift a ban on the popular messaging app Telegram after two years of unsuccessful attempts to block it. `\
+https://nytimes.com/aponline/2020/06/18/business/ap-eu-russia-app.html?searchResultPosition=6
+
+**U.S. District Court Rules for Mylan in MS Drug Patent Battle With Biogen**\
+`A U.S. district court on Thursday ruled in favor of generic drugmaker Mylan NV in a patent dispute over Biogen Inc's blockbuster multiple sclerosis drug Tecfidera, sending the drugmaker's shares down 7%.`\
+https://nytimes.com/reuters/2020/06/18/us/18reuters-biogen-patent-mylan-nl.html?searchResultPosition=7
+
+**Test Maker Targeted by FDA Says It Responded to US Concerns**\
+`A company targeted by the Food and Drug Administration for selling unauthorized coronavirus antibody tests says it has responded to regulators' concerns, though it has no business operations in the U.S.`\
+https://nytimes.com/aponline/2020/06/18/health/bc-us-med-virus-outbreak-antibody-tests.html?searchResultPosition=8
+
+**UK Foreign Secretary Under Fire for Taking-a-Knee Comments**\
+`Britain’s foreign secretary has drawn criticism after he suggested in an interview that taking a knee appeared to be from “Game of Thrones” and was a symbol of subjugation.`\
+https://nytimes.com/aponline/2020/06/18/world/europe/ap-eu-britain-minister-knee-comment.html?searchResultPosition=9
+
 **Germany Wants to Rescue Talks With U.S. on Digital Services Tax**\
 `Germany wants to rescue talks with the United States on how to tax big digital firms such as Google, Amazon and Facebook, the finance ministry said on Thursday after Washington pulled out of the negotiations.`\
-https://nytimes.com/reuters/2020/06/18/technology/18reuters-usa-trade-digital-france-germany.html?searchResultPosition=2
-
-**Argentine Farmers Object to Linking Sovereign Bonds to Food Exports**\
-`Argentina farmers have objected to the government's proposal to tie the interest rate of bonds issued in the country's debt restructuring to the country's agricultural exports.`\
-https://nytimes.com/reuters/2020/06/18/world/americas/18reuters-argentina-bonds-grains.html?searchResultPosition=3
-
-**DC Superheroes Coming to Your Headphones as Spotify Signs Podcast Deal**\
-`Podcasts featuring Batman, Wonder Woman and Superman will soon stream on Spotify as the Swedish music streaming company has signed a deal with AT&T Inc's Warner Bros and DC Entertainment.`\
-https://nytimes.com/reuters/2020/06/18/arts/18reuters-spotify-podcast-warner-media.html?searchResultPosition=4
-
-**Suspects Accused of Huge South African Bank Theft Appear in Court**\
-`Seven suspects accused of taking 2.3 billion rand ($132.43 million) from VBS Mutual bank in 2018 said they would plead not guilty to 47 counts of fraud, theft, corruption and racketering when they appeared in a South African court on Thursday. `\
-https://nytimes.com/reuters/2020/06/18/world/africa/18reuters-safrica-corruption.html?searchResultPosition=5
-
-**New Study Casts More Doubt on Swedish Coronavirus Immunity Hopes**\
-`Sweden's hopes of getting help from herd immunity in combating the coronavirus received a fresh blow on Thursday, when a new study showed fewer than anticipated had developed antibodies. `\
-https://nytimes.com/reuters/2020/06/18/world/europe/18reuters-health-coronavirus-sweden-immunity.html?searchResultPosition=6
-
-**Lebanese Film Director Keeps Faith After COVID-19 Dashes Cannes Dreams**\
-`Many directors would have been devastated when their plans to show their first feature at the Cannes Film Festival were wrecked by the spread of COVID-19.`\
-https://nytimes.com/reuters/2020/06/18/arts/18reuters-health-coronavirus-lebanon-cinema.html?searchResultPosition=7
-
-**Most German Trade Fairs to Resume From September**\
-`Most German trade fairs are expected to resume across the country from September as authorities continue to gradually lift coronavirus lockdown measures, an association said on Thursday.`\
-https://nytimes.com/reuters/2020/06/18/world/europe/18reuters-health-coronavirus-germany-fairs.html?searchResultPosition=8
-
-**No Agreement in Sight as EU Leaders Meet for Big Money Talks**\
-`With much discord still among European Union leaders, a video summit this week seems to have no hope of finding a compromise on a multibillion-euro post-coronavirus recovery plan or on the long-term EU budget.`\
-https://nytimes.com/aponline/2020/06/18/business/bc-eu-european-summit.html?searchResultPosition=9
-
-**Yellowstone’s Supervolcano Is a Hot Spot, but It May Be Calming Down**\
-`Some researchers interpret a new timeline of some of the formation’s biggest eruptions as evidence that its activity is waning.`\
-https://nytimes.com/2020/06/18/science/yellowstone-supervolcano-eruption.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/18/technology/18reuters-usa-trade-digital-france-germany.html?searchResultPosition=10
 
