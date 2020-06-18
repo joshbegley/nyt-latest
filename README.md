@@ -1,36 +1,36 @@
-**Lawmakers to Probe Security Agencies Over Far-Right Killing**\
-`German lawmakers plan to investigate possible mistakes made by security agencies in their handling of two neo-Nazis suspected of killing a regional politician last year.`\
-https://nytimes.com/aponline/2020/06/18/world/europe/ap-eu-germany-politician-killed.html?searchResultPosition=2
+**Semiconductor Manufacturers Reach Deal to Supply U.S. Defense Chips**\
+`Globalfoundries and SkyWater Technology have reached a deal to supply semiconductor chips to the U.S. defense industry and work on new technology, the companies said on Thursday, as the industry moves toward more U.S. manufacturing.`\
+https://nytimes.com/reuters/2020/06/18/technology/18reuters-usa-semiconductors.html?searchResultPosition=2
 
-**Nashville Police Chief to Retire Amid Calls for Resignation**\
-`The police chief of Tennessee's capital city has announced he will retire amid calls for his resignation and a wave of protests nationwide over policing.`\
-https://nytimes.com/aponline/2020/06/18/us/ap-us-nashville-police-chief-2nd-ld-writethru.html?searchResultPosition=3
+**Iran's Death Toll From Coronavirus Outbreak Approaches 10,000**\
+`Iran is approaching 10,000 deaths from the coronavirus outbreak in the country, according to official figures from the Ministry of Health.`\
+https://nytimes.com/reuters/2020/06/18/world/middleeast/18reuters-health-coronavirus-iran.html?searchResultPosition=3
 
-**Images of a Stolen Van Gogh Give Experts Hope It Can be Recovered**\
-`A private art detective investigating the case said he was sent the images of the work, which was taken from a Dutch museum in March.`\
-https://nytimes.com/2020/06/18/arts/design/stolen-van-gogh-picture.html?searchResultPosition=4
+**10 Reasons You Should Give Riesling Another Look**\
+`Critics love it, consumers not so much. But the beauty of these wines requires stubborn advocacy because they are that good. Really.`\
+https://nytimes.com/2020/06/18/dining/drinks/dry-riesling.html?searchResultPosition=4
 
-**Roaming Mountain Lion Caught in Downtown San Francisco**\
-`A young mountain lion that had been spotted sleeping in a planter box along a normally busy street and looking at his reflection in the glass of an office tower in downtown San Francisco was safely captured Thursday and will be released into the wild, officials said. `\
-https://nytimes.com/aponline/2020/06/18/us/ap-us-san-francisco-mountain-lion.html?searchResultPosition=5
+**Poulter Sets Pace and Spieth Turns It Around at Hilton Head**\
+`Ian Poulter and Mark Hubbard set the pace for good scoring through a brief spell of rain at Hilton Head. `\
+https://nytimes.com/aponline/2020/06/18/sports/golf/ap-glf-rbc-heritage.html?searchResultPosition=5
 
-**Ex-Pentagon Analyst Sentenced to 30 Months in Leak Case**\
-`The former counterterrorism analyst had pleaded guilty to sharing classified information with reporters about foreign weapon systems.`\
-https://nytimes.com/2020/06/18/us/politics/henry-frese-leaks.html?searchResultPosition=6
+**Paris Protesters Cloak Colonial-Era Statue With Black Cloth**\
+`By The Associated Press`\
+https://nytimes.com/aponline/2020/06/18/world/europe/ap-eu-france-colonial-statue.html?searchResultPosition=6
 
-**Canada Hits 100,000 Coronavirus Cases, Major Challenges Remain**\
-`Canada officially racked up 100,000 cases of the novel coronavirus on Thursday and although the outbreak is slowing, health experts said major challenges remain.`\
-https://nytimes.com/reuters/2020/06/18/world/americas/18reuters-health-coronavirus-canada.html?searchResultPosition=7
+**Wall Street Eyes Alternative Data to Track Economy Reopening**\
+`The reopening of businesses shut due to the coronavirus pandemic is fueling optimism on Wall Street that the U.S. economy is on the path to recovering from a steep recession. `\
+https://nytimes.com/aponline/2020/06/18/business/bc-off-the-charts-tracking-the-reopening.html?searchResultPosition=7
 
-**Senate Confirms McConnell Ally to Top Federal Appeals Court**\
-`A divided Senate has approved the nomination of a 38-year-old judge and ally of Senate Majority Leader Mitch McConnell to serve on a top federal appeals court, despite Democrats’ objections that he’s inexperienced and biased against the Obama-era health care law.`\
-https://nytimes.com/aponline/2020/06/18/us/politics/ap-us-trump-judicial-nominee.html?searchResultPosition=8
+**Mexico to Push for Development From UN Security Council**\
+`Mexican President Andrés Manuel López Obrador said Thursday his country’s guiding principles as it takes a seat on the United Nations Security Council will be peace, avoiding the impositions of the major powers and cooperation for development so people are not forced to migrate. `\
+https://nytimes.com/aponline/2020/06/18/world/americas/ap-lt-mexico-un.html?searchResultPosition=8
 
-**Kenya Defeats Djibouti for a Seat on UN Security Council**\
-`Kenya defeated Djibouti on Thursday for an African seat on the U.N. Security Council in a second round of voting held under dramatically different procedures because of the COVID-19 pandemic.`\
-https://nytimes.com/aponline/2020/06/18/world/middleeast/ap-un-united-nations-election.html?searchResultPosition=9
+**McConnell Nears His Benchmark**\
+`With confirmation of his protégé to a powerful court, the G.O.P. leader is on the brink of his goal to fill all vacancies at the appellate level by year’s end.`\
+https://nytimes.com/2020/06/18/us/mcconnell-courts-justin-walker.html?searchResultPosition=9
 
-**Mady Mesplé, French Soprano With a Silvery Voice, Dies at 89**\
-`She achieved distinction in Europe with French opera roles and songs, but audiences also cherished her performances of operetta and works by Debussy, Ravel, Poulenc and Satie.`\
-https://nytimes.com/2020/06/18/arts/music/mady-mesple-dead.html?searchResultPosition=10
+**You May Have Antibodies After Coronavirus Infection. But Not for Long.**\
+`Antibodies to the virus faded quickly in asymptomatic people, scientists reported. That does not mean immunity disappears.`\
+https://nytimes.com/2020/06/18/health/coronavirus-antibodies.html?searchResultPosition=10
 
