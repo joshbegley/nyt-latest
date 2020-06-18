@@ -1,36 +1,36 @@
+**Mother's Day Sales Uptick Doesn't Cover Coronavirus Downturn, Washington D.C. Florist Says**\
+`Mother's Day during the coronavirus pandemic meant an uptick in sales for Lee's Flower and Card Shop in Washington, D.C. `\
+https://nytimes.com/reuters/2020/06/18/business/18reuters-health-coronavirus-usa-smallbusiness.html?searchResultPosition=2
+
+**Bolton, Belatedly, Tells All**\
+`House Democrats could use a time machine just about now: This is your morning tip sheet.`\
+https://nytimes.com/2020/06/18/us/politics/john-bolton-trump-china.html?searchResultPosition=3
+
+**‘7500’ Review: Claustrophobia and Ethical Dilemmas on a Hijacked Plane**\
+`If you’ve ever wondered what it would be like to be locked in a cockpit while hijackers bang on its door, this movie from Patrick Vollrath delivers.`\
+https://nytimes.com/2020/06/18/movies/7500-review.html?searchResultPosition=4
+
+**‘Wasp Network’ Review: Fleeing Cuba With Loyalties in Question**\
+`Olivier Assayas has created his most mainstream film yet, a spy story replete with double-crosses and romance.`\
+https://nytimes.com/2020/06/18/movies/wasp-network-review.html?searchResultPosition=5
+
+**‘Picture of His Life’ Review: A Shot Too Much to Bear**\
+`The documentarians Yonatan Nir and Dani Menkin follow the nature photographer Amos Nachoum on his mission impossible: to capture a polar bear while swimming with it.`\
+https://nytimes.com/2020/06/18/movies/picture-of-his-life-review.html?searchResultPosition=6
+
+**‘My Darling Vivian’ Review: The Forgotten Wife of Johnny Cash**\
+`The singer-songwriter’s romance with June Carter is well-known, but this new documentary shines the spotlight on Cash’s first wife, Vivian Liberto.`\
+https://nytimes.com/2020/06/18/movies/my-darling-vivian-review.html?searchResultPosition=7
+
+**‘Bully. Coward. Victim.’ Review: The Paradox of Roy Cohn**\
+`A new HBO documentary looks at the man who helped send the director’s grandparents to their execution.`\
+https://nytimes.com/2020/06/18/movies/bully-coward-victim-the-story-of-roy-cohn-review.html?searchResultPosition=8
+
+**‘Miss Juneteenth’ Review: Celebrating Black Girlhood**\
+`The debut feature from Channing Godfrey Peoples explores how black women and girls navigate and support each other in a world that often fails them.`\
+https://nytimes.com/2020/06/18/movies/miss-juneteenth-review.html?searchResultPosition=9
+
 **Deutsche Post Sees Amazon Dependence Falling as Online Booms**\
 `German logistics group Deutsche Post AG said its dependence on Amazon is falling as the coronavirus crisis prompts a big rise in parcel shipments by other customers which it expects to continue in the second half of 2020.`\
-https://nytimes.com/reuters/2020/06/18/technology/18reuters-deutsche-post-ceo.html?searchResultPosition=2
-
-**England's COVID-19 Test and Trace System Reaches Over 85,000 in Two Weeks**\
-`The number of contacts of positive COVID-19 cases reached by England's test and trace system in its first two weeks of operation was 87,639, Britain's health ministry said on Thursday.`\
-https://nytimes.com/reuters/2020/06/18/world/europe/18reuters-health-coronavirus-britain-tracing.html?searchResultPosition=3
-
-**Online Fashion Stocks in Vogue as Coronavirus Speeds Ecommerce**\
-`Shares in online fashion retailers Zalando and ASOS jumped on Thursday after the German company said it expects a big increase in second-quarter sales and operating profit as coronavirus lockdowns accelerate a shift to ecommerce.`\
-https://nytimes.com/reuters/2020/06/18/technology/18reuters-fashion-europe.html?searchResultPosition=4
-
-**UK Companies With Historic Slave Ties Fund Minority Programs**\
-`Two of Britain’s largest companies have promised to financially support projects assisting minorities as Britain continues to reckon with its role in the slave trade.`\
-https://nytimes.com/aponline/2020/06/18/business/ap-eu-britain-companies-slavery-1st-ld-writethru.html?searchResultPosition=5
-
-**BIS: Non-Banks Dollar Funding Market Activities Need More Transparency**\
-`The rising significance of non-banks has increased the speed and scope of stress transmission through the global financial system at a time when the importance of the U.S. dollar has grown, the Bank for International Settlements said.`\
-https://nytimes.com/reuters/2020/06/18/business/18reuters-markets-dollar-funding.html?searchResultPosition=6
-
-**Amazon to Hire 3,000 People in South Africa for Customer Service Roles**\
-`Amazon.com Inc is hiring 3,000 people in South Africa this year to provide support to customers in North America and Europe, it said on Thursday.`\
-https://nytimes.com/reuters/2020/06/18/business/18reuters-amazon-com-safrica.html?searchResultPosition=7
-
-**Vatican: Pandemic Makes Environment's Care Ever More Urgent**\
-`Pope Francis’ impassioned appeal to protect nature is increasingly urgent as the global pandemic alters lifestyles and makes painfully plain the fragility of life, the Vatican said Thursday.`\
-https://nytimes.com/aponline/2020/06/18/world/europe/ap-eu-rel-vatican-environment.html?searchResultPosition=8
-
-**Ford to Offer Hands-Free Driving in 2021-Six Years After Tesla**\
-`Ford Motor Co said on Thursday that it will offer hands-free driving on its new Mustang Mach-E in fall 2021, six years after Tesla Inc and four years after General Motors Co introduced similar systems.`\
-https://nytimes.com/reuters/2020/06/18/business/18reuters-autos-self-driving-ford.html?searchResultPosition=9
-
-**A College Reality Check**\
-`And what else you need to know today.`\
-https://nytimes.com/2020/06/18/briefing/john-bolton-coronavirus-danny-masterson.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/18/technology/18reuters-deutsche-post-ceo.html?searchResultPosition=10
 
