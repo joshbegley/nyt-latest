@@ -1,36 +1,36 @@
-**Police: Man Arrested in Florida for Shooting 8 at Texas Bar**\
-`Federal agents in Florida have arrested a man charged in a shooting outside a Texas bar last week that injured eight people, police said Thursday. `\
-https://nytimes.com/aponline/2020/06/18/us/ap-us-san-antonio-shooting.html?searchResultPosition=2
+**Facebook Takes Down Certain Posts, Ads From Trump Re-election Campaign**\
+`Facebook Inc said on Thursday it took down certain posts and advertisements from U.S. President Donald Trump and Vice President Mike Pence related to their re-election campaign, due to violation of the social network's policy against organized hate.`\
+https://nytimes.com/reuters/2020/06/18/technology/18reuters-facebook-trump.html?searchResultPosition=2
 
-**André Leon Talley on ‘The Chiffon Trenches’**\
-`Talley talks about his new memoir; Claudia Rankine and Jericho Brown read new poems; and Megha Majumdar discusses her debut novel, “A Burning.”`\
-https://nytimes.com/2020/06/18/books/review/andre-leon-talley-chiffon-trenches-claudia-rankine-jericho-brown-megha-majumdar-burning.html?searchResultPosition=3
+**After Second Round of Voting, Kenya Wins Spot on U.N. Security Council**\
+`Kenya was elected to the U.N. Security Council on Thursday, defeating Djibouti in a second-round of voting by the 193-member General Assembly after an initial ballot failed to produce a clear winner. `\
+https://nytimes.com/reuters/2020/06/18/world/18reuters-un-elections.html?searchResultPosition=3
 
-**Macron Told PM Johnson France Still Supports Reaching a Deal on Brexit: Source**\
-`French President Emmanuel Macron told British Prime Minister Boris Johnson that France still supports reaching a deal on Brexit, a presidential source said on Thursday after the two leaders met earlier in London.`\
-https://nytimes.com/reuters/2020/06/18/world/europe/18reuters-ww2-anniversary-britain-france-macron.html?searchResultPosition=4
+**Retired DEA Agents Say Agency Has Legacy of Discrimination**\
+`Dozens of retired black narcotics agents say their former agency, the U.S. Drug Enforcement Administration, has discriminated against its African-American employees for decades.`\
+https://nytimes.com/aponline/2020/06/18/us/ap-us-dea-discrimination-claims.html?searchResultPosition=4
 
-**Satellite Images Suggest Chinese Activity at Himalayan Border With India Before Clash**\
-`In the days leading up to the most violent border clash between India and China in decades, China brought in pieces of machinery, cut a trail into a Himalayan mountainside and may have even dammed a river, satellite pictures suggest.`\
-https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-india-china-battle.html?searchResultPosition=5
+**Remembering Wallace and Stegner and Other Letters to the Editor**\
+`Readers respond to recent issues of the Sunday Book Review.`\
+https://nytimes.com/2020/06/18/books/review/remembering-wallace-and-stegner-and-other-letters-to-the-editor.html?searchResultPosition=5
 
-**U.S. EPA Receives 52 New Petitions for Retroactive Biofuel Blending Waivers**\
-`The U.S. Environmental Protection Agency has received 52 new petitions for retroactive biofuel blending waivers that, if granted, would help bring oil refiners into compliance with a court ruling this year, EPA data showed on Thursday.`\
-https://nytimes.com/reuters/2020/06/18/us/18reuters-usa-biofuels-epa.html?searchResultPosition=6
+**New in Paperback: ‘Patsy’ and ‘Information Wars’**\
+`Six new paperbacks to check out this week.`\
+https://nytimes.com/2020/06/18/books/review/new-paperbacks.html?searchResultPosition=6
 
-**Golf: Spieth Uses Birdie Blitz to Climb Harbour Town Leaderboard**\
-`Jordan Spieth recovered from a poor start with a stunning run of birdies to tie the lowest nine-hole score of his career in the opening round of the RBC Heritage in South Carolina on Thursday.`\
-https://nytimes.com/reuters/2020/06/18/sports/golf/18reuters-golf-heritage.html?searchResultPosition=7
+**US Has Hit Agreed Troop-Cut Target of 8,600 in Afghanistan**\
+`The United States has reduced its troop presence in Afghanistan to 8,600, fulfilling its obligation as part of a February deal with the Taliban, the general who oversees American forces in that region said Thursday.`\
+https://nytimes.com/aponline/2020/06/18/us/politics/ap-us-united-states-afghanistan.html?searchResultPosition=7
 
-**Lamine Diack Will Die in Jail if Sentenced-Defence Lawyers Tell Court**\
-`Lawyers for former world athletics chief Lamine Diack, who is on trial for corruption, on Thursday protested their client's innocence and said the 87-year-old would die in jail if sentenced to a prison term.`\
-https://nytimes.com/reuters/2020/06/18/sports/18reuters-diack-corruption-trial.html?searchResultPosition=8
+**Calls for Romania's President to Reject Gender Studies Ban**\
+`Dozens of protesters gathered Thursday in Romania's capital to express their opposition to a law banning the teaching of gender studies in the country’s schools and universities.`\
+https://nytimes.com/aponline/2020/06/18/world/europe/ap-eu-romania-gender-studies-ban.html?searchResultPosition=8
 
-**AP-NORC Poll: Trump Adds to Divisions in an Unhappy Country**\
-`Americans are deeply unhappy about the state of their country — and a majority think President Donald Trump is exacerbating tensions in a moment of national crisis, according to a new poll from The Associated Press-NORC Center for Public Affairs Research. `\
-https://nytimes.com/aponline/2020/06/18/us/politics/ap-us-ap-poll-trump.html?searchResultPosition=9
+**U.S. Prison Riot Teams Faulted for Injuring Staff During Exercises**\
+`U.S. Bureau of Prisons riot teams that helped protect the White House during protests earlier this month injured employees by deploying flash bang grenades and pepper spray during exercises last year, the Justice Department's internal watchdog has found.`\
+https://nytimes.com/reuters/2020/06/18/us/18reuters-minneapolis-police-prisons.html?searchResultPosition=9
 
-**PG&E Fined $4 Million in Deaths of 84 People in 2018 Fire**\
-`Pacific Gas & Electric on Thursday was fined $4 million for the deaths of 84 people killed in a nightmarish Northern California wildfire ignited by the its long-neglected electrical grid.`\
-https://nytimes.com/aponline/2020/06/18/business/bc-us-california-wildfire-utility.html?searchResultPosition=10
+**Oilers Have Hart? McDavid, Draisaitl Are NHL MVP Candidates**\
+`The Edmonton Oilers’ resurgence placed Connor McDavid back in the NHL MVP conversation, along with teammate Leon Draisaitl.`\
+https://nytimes.com/aponline/2020/06/18/sports/hockey/ap-hkn-around-the-nhl.html?searchResultPosition=10
 
