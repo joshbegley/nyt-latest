@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/06/18/us/politics/ap-us-election-2020-democrat
 `As summer begins and the lockdown eases, more Poles are shunning foreign resorts and are opting instead for holidays in remote rural settings at home, perhaps a forest tent or a lakeside cottage far from tourist crowds and COVID-19.`\
 https://nytimes.com/reuters/2020/06/18/world/europe/18reuters-health-coronavirus-poland-retreat.html?searchResultPosition=3
 
-**Coronavirus Live Updates: States Face Rising Cases and Mixed Messages From D.C.**\
+**Coronavirus Live Updates: Rising Cases, and Mixed Messages From Washington**\
 `Oklahoma, where President Trump plans a rally this weekend, is among the states recording a record number of new cases. Arizona and Texas will allow local officials to require masks.`\
 https://nytimes.com/2020/06/18/world/coronavirus-updates.html?searchResultPosition=4
 
