@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/06/18/world/europe/18reuters-health-coronavirus
 `Americans are eager to have their favorite sports back. But three months after most leagues shut down, there are only loose plans, good intentions and a nervous hope that it doesn’t go wrong.`\
 https://nytimes.com/2020/06/18/sports/baseball/fans-wants-sports-sports-want-fans-but-its-not-that-simple.html?searchResultPosition=3
 
-**France's Macron Visits Britain for Mark De Gaulle's 'Appel' and Talk Brexit**\
+**France's Macron to Talk Brexit in London and Mark De Gaulle's 'Appel'**\
 `President Emmanuel Macron visits the United Kingdom on Thursday to mark the 80th anniversary of General de Gaulle’s appeal to the French resistance and to talk Brexit with Prime Minister Boris Johnson.`\
 https://nytimes.com/reuters/2020/06/18/world/europe/18reuters-www-anniversary-britain-france.html?searchResultPosition=4
 
