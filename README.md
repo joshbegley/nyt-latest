@@ -10,8 +10,8 @@ https://nytimes.com/aponline/2020/06/18/sports/ap-us-gator-bait-chant-florida.ht
 `Nazis used the symbol to classify political prisoners in World War II. The Trump campaign said the triangle was associated with antifa, a claim experts rejected.`\
 https://nytimes.com/2020/06/18/us/politics/facebook-trump-ads-antifa-red-triangle.html?searchResultPosition=4
 
-**California Orders Residents to Wear Face Masks in 'Most Settings Outside the Home'**\
-`California health officials on Thursday ordered residents to wear face masks in "most settings outside the home," saying the new rule was necessary because too many Californians were neglecting to cover their faces.`\
+**California Orders Residents to Wear Masks in 'Most Settings Outside the Home'**\
+`California on Thursday ordered residents to wear masks in "most settings outside the home," saying the new rule was necessary because too many Californians were neglecting to cover their faces during the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/06/18/us/18reuters-health-coronavirus-usa-california.html?searchResultPosition=5
 
 **U.S. Insurers Eye Legionnaires' Disease Safeguards as Buildings Re-Open From Pandemic Shutdowns**\
