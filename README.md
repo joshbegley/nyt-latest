@@ -1,36 +1,36 @@
-**Lufthansa Investor Thiele Seeks Talks With German Government: Handelsblatt**\
-`Lufthansa's biggest shareholder, German billionaire Heinz Hermann Thiele, has reached out to Berlin politicians for talks, Handelsblatt said, the latest step in a standoff over the airline's 9 billion euro ($10.1 billion) bailout.`\
-https://nytimes.com/reuters/2020/06/18/business/18reuters-health-coronavirus-lufthansa-rescue.html?searchResultPosition=2
+**Police: Man Arrested in Florida for Shooting 8 at Texas Bar**\
+`Federal agents in Florida have arrested a man charged in a shooting outside a Texas bar last week that injured eight people, police said Thursday. `\
+https://nytimes.com/aponline/2020/06/18/us/ap-us-san-antonio-shooting.html?searchResultPosition=2
 
-**Video: Suspects Doused Houston Bar With Liquid Before Blast**\
-`Surveillance video captured four people dousing chairs and tables at a Houston bar with a flammable liquid, leading to an explosion that heavily damaged the business and surrounding homes but caused no serious injuries, investigators said Thursday. `\
-https://nytimes.com/aponline/2020/06/18/us/ap-us-houston-explosion.html?searchResultPosition=3
+**André Leon Talley on ‘The Chiffon Trenches’**\
+`Talley talks about his new memoir; Claudia Rankine and Jericho Brown read new poems; and Megha Majumdar discusses her debut novel, “A Burning.”`\
+https://nytimes.com/2020/06/18/books/review/andre-leon-talley-chiffon-trenches-claudia-rankine-jericho-brown-megha-majumdar-burning.html?searchResultPosition=3
 
-**The Accusations in John Bolton’s Book About Trump**\
-`Readers question why the former national security adviser waited until now to make his accusations public. Also: Questions for museums; Tyson Foods, on worker safety; plastics pollution.`\
-https://nytimes.com/2020/06/18/opinion/letters/bolton-book-trump.html?searchResultPosition=4
+**Macron Told PM Johnson France Still Supports Reaching a Deal on Brexit: Source**\
+`French President Emmanuel Macron told British Prime Minister Boris Johnson that France still supports reaching a deal on Brexit, a presidential source said on Thursday after the two leaders met earlier in London.`\
+https://nytimes.com/reuters/2020/06/18/world/europe/18reuters-ww2-anniversary-britain-france-macron.html?searchResultPosition=4
 
-**Blood Type, Genes Tied to Risk of Severe COVID-19: European Study**\
-`A person's blood type and other genetic factors may be linked with severity of coronavirus infection, according to European researchers looking for further clues about why COVID-19 hits some so much harder than others.`\
-https://nytimes.com/reuters/2020/06/18/us/18reuters-health-coronavirus-genes.html?searchResultPosition=5
+**Satellite Images Suggest Chinese Activity at Himalayan Border With India Before Clash**\
+`In the days leading up to the most violent border clash between India and China in decades, China brought in pieces of machinery, cut a trail into a Himalayan mountainside and may have even dammed a river, satellite pictures suggest.`\
+https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-india-china-battle.html?searchResultPosition=5
 
-**Trump Says Process to Deal With Dreamer Immigrants Must Start All Over**\
-`U.S. President Donald Trump on Thursday said a legal solution was needed to address the hundreds of thousands of so-called Dreamer immigrants after the nation's top court blocked his earlier effort to end their protections, but gave no other details on how he planned to proceed.`\
-https://nytimes.com/reuters/2020/06/18/us/politics/18reuters-usa-court-immigration-legal.html?searchResultPosition=6
+**U.S. EPA Receives 52 New Petitions for Retroactive Biofuel Blending Waivers**\
+`The U.S. Environmental Protection Agency has received 52 new petitions for retroactive biofuel blending waivers that, if granted, would help bring oil refiners into compliance with a court ruling this year, EPA data showed on Thursday.`\
+https://nytimes.com/reuters/2020/06/18/us/18reuters-usa-biofuels-epa.html?searchResultPosition=6
 
-**Kaepernick Joins Medium, Will Create Content on Race and Civil Rights**\
-`Former NFL quarterback Colin Kaepernick has joined the board of directors of Medium and will work on content focused on race and civil rights, the U.S.-based online publishing platform announced on Thursday.`\
-https://nytimes.com/reuters/2020/06/18/arts/18reuters-people-kaepernick.html?searchResultPosition=7
+**Golf: Spieth Uses Birdie Blitz to Climb Harbour Town Leaderboard**\
+`Jordan Spieth recovered from a poor start with a stunning run of birdies to tie the lowest nine-hole score of his career in the opening round of the RBC Heritage in South Carolina on Thursday.`\
+https://nytimes.com/reuters/2020/06/18/sports/golf/18reuters-golf-heritage.html?searchResultPosition=7
 
-**Tesla Wants to Start Building a New U.S. Vehicle Plant This Summer**\
-`Electric vehicle maker Tesla Inc wants to start building a new and large vehicle assembly plant in the southwestern United States as early as the third quarter of this year, the company told Texas officials in documents made public this week.`\
-https://nytimes.com/reuters/2020/06/18/business/18reuters-tesla-plant.html?searchResultPosition=8
+**Lamine Diack Will Die in Jail if Sentenced-Defence Lawyers Tell Court**\
+`Lawyers for former world athletics chief Lamine Diack, who is on trial for corruption, on Thursday protested their client's innocence and said the 87-year-old would die in jail if sentenced to a prison term.`\
+https://nytimes.com/reuters/2020/06/18/sports/18reuters-diack-corruption-trial.html?searchResultPosition=8
 
-**Fed's Mester Says It Could Take Two Years for Economy to Return to Pre-Covid Levels**\
-`It could take a year or two for the U.S. economy to return to levels seen before the pandemic, Cleveland Federal Reserve Bank President Loretta Mester said on Thursday.  `\
-https://nytimes.com/reuters/2020/06/18/us/18reuters-usa-fed-mester.html?searchResultPosition=9
+**AP-NORC Poll: Trump Adds to Divisions in an Unhappy Country**\
+`Americans are deeply unhappy about the state of their country — and a majority think President Donald Trump is exacerbating tensions in a moment of national crisis, according to a new poll from The Associated Press-NORC Center for Public Affairs Research. `\
+https://nytimes.com/aponline/2020/06/18/us/politics/ap-us-ap-poll-trump.html?searchResultPosition=9
 
-**Trump to Release New List of Conservative Supreme Court Nominees**\
-`President Donald Trump said on Thursday he planned to release a new list of conservative nominees to the U.S. Supreme Court after the high court dealt him a major setback on his hardline immigration policies.`\
-https://nytimes.com/reuters/2020/06/18/us/politics/18reuters-usa-court-trump.html?searchResultPosition=10
+**PG&E Fined $4 Million in Deaths of 84 People in 2018 Fire**\
+`Pacific Gas & Electric on Thursday was fined $4 million for the deaths of 84 people killed in a nightmarish Northern California wildfire ignited by the its long-neglected electrical grid.`\
+https://nytimes.com/aponline/2020/06/18/business/bc-us-california-wildfire-utility.html?searchResultPosition=10
 
