@@ -4,7 +4,7 @@ https://nytimes.com/2020/06/17/todayspaper/quotation-of-the-day-aunt-jemima-to-b
 
 **Before Crash That Killed Kobe Bryant, Helicopter Service Raised Weather Concerns**\
 `The pilot texted “weather looking OK” on the morning of the crash, which killed all nine people aboard the Sikorsky S-76B helicopter, according to newly released documents.`\
-https://nytimes.com/2020/06/17/us/before-crash-that-killed-kobe-bryant-helicopter-service-raised-weather-concerns.html?searchResultPosition=3
+https://nytimes.com/2020/06/17/us/kobe-bryant-crash-weather-concerns.html?searchResultPosition=3
 
 **Winter Air**\
 `Ricky Cruz jams us up.`\
