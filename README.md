@@ -31,6 +31,6 @@ https://nytimes.com/2020/06/19/movies/disclosure-review-a-transgender-lens-on-fi
 https://nytimes.com/interactive/2020/06/19/sports/100-days-without-sports.html?searchResultPosition=9
 
 **Late Night Watches Trump’s Supreme Court Dreams Shatter**\
-`“Basically, Trump’s trying to dunk on Obama but Ruth Bader Ginsburg is blocking all his shots,” Jimmy Fallon said on Monday.`\
+`“Basically, Trump’s trying to dunk on Obama but Ruth Bader Ginsburg is blocking all his shots,” Jimmy Fallon said on Thursday.`\
 https://nytimes.com/2020/06/19/arts/television/late-night-supreme-court-daca-dreamers.html?searchResultPosition=10
 
