@@ -1,36 +1,36 @@
-**Thai Central Bank Asks Lenders to Strengthen Capital to Cope With Coronavirus Risk**\
-`Thailand's central bank on Friday asked commercial banks to prepare capital management plans for the next 1-3 years, as the widespread impact of the outbreak on businesses and individuals could affect asset quality.`\
-https://nytimes.com/reuters/2020/06/19/world/asia/19reuters-thailand-economy-cenbank.html?searchResultPosition=2
+**Black Lives Matter Spurs Scrutiny of Dutch Colonial Past**\
+`The 17th century has gone down in Dutch history as the Golden Age, when unprecedented trading wealth helped fund the likes of artists Rembrandt van Rijn and Johannes Vermeer.`\
+https://nytimes.com/aponline/2020/06/19/world/europe/ap-eu-american-protests-netherlands-statue-.html?searchResultPosition=2
 
-**COVID Hit to UK Tax Revenues Slightly Less Than Feared, OBR Says**\
-`The slump in British government tax revenues since the start of the coronavirus lockdown has been slightly less sharp than feared, the Office for Budget Responsibility said on Friday after the release of public finances data for May.`\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-britain-obr.html?searchResultPosition=3
+**'Chariots of Fire,' 'Lord of the Rings' Actor Ian Holm Dies**\
+`Ian Holm, an acclaimed British actor whose long career included roles in “Chariots of Fire” and “The Lord of the Rings” has died. He was 88.`\
+https://nytimes.com/aponline/2020/06/19/world/europe/ap-eu-britain-obit-ian-holm.html?searchResultPosition=3
 
-**Spain Expects Decision on Travel Corridor With Britain Soon: Source**\
-`Spain expects a decision in the coming hours in its talks with Britain on whether to establish a travel corridor to avoid imposing a quarantine on travelers due to the coronavirus pandemic, a Spanish foreign ministry source said on Friday. `\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-spain-britain.html?searchResultPosition=4
+**All Quiet on the Far East Side**\
+`An epic preservation battle over two tenement buildings facing York Avenue seems to have been ended by the U.S. Supreme Court. But is it really over?`\
+https://nytimes.com/2020/06/19/realestate/all-quiet-on-the-far-east-side.html?searchResultPosition=4
 
-**U.S. Current Account Barely Changed in First Quarter**\
-`The U.S. current account deficit was barely changed in the first quarter as the COVID-19 pandemic restricted the flow of goods and services. `\
-https://nytimes.com/reuters/2020/06/19/us/19reuters-usa-economy-currentaccount.html?searchResultPosition=5
+**Used Cars From Shrinking Rental Fleets May Not Be the Steal You Expect**\
+`While there are good deals to be found, particularly in the wake of Hertz’s bankruptcy filing, buyers shouldn’t count on fire-sale prices, experts say.`\
+https://nytimes.com/2020/06/19/your-money/rental-car-companies-hertz-coronavirus.html?searchResultPosition=5
 
-**Canada Retail Sales Down 26.4% in April**\
-`Canadian retail sales plummeted 26.4% in April as the coronavirus pandemic continued to wallop the economy, Statistics Canada data showed on Friday. `\
-https://nytimes.com/reuters/2020/06/19/us/19reuters-canada-economy-retail.html?searchResultPosition=6
+**Pandemic Is Expected to Bring More Lawsuits, and More Backers**\
+`An investment strategy that funds lawsuits is expected to grow as more companies become involved in litigation during the economic downturn.`\
+https://nytimes.com/2020/06/19/your-money/lawsuits-litigation-finance-coronavirus.html?searchResultPosition=6
 
-**Ampio to Study Experimental Drug in COVID-19 Patients**\
-`U.S. drug developer Ampio Pharmaceuticals Inc said on Friday it would begin an early stage study of its experimental treatment, Ampion, in COVID-19 patients after it received regulatory clearance from the U.S. Food and Drug Administration. `\
-https://nytimes.com/reuters/2020/06/19/us/19reuters-health-coronavirus-ampio-pharm.html?searchResultPosition=7
+**Phoebe Bridgers Wants to Believe**\
+`On her second album, “Punisher,” the singer and songwriter showcases her greatest talent: weaving tiny, specific details into big-tent tapestries of feeling.`\
+https://nytimes.com/2020/06/19/arts/music/phoebe-bridgers-punisher-review.html?searchResultPosition=7
 
-**Cocaine Smugglers Aim to Take Advantage of Spain's Lockdown**\
-`Spanish authorities seized 3.8 metric tons of cocaine in just over a month at Valencia's port, as drug smugglers presumed police would be off-guard during the COVID-19 pandemic, officials said Friday.`\
-https://nytimes.com/aponline/2020/06/19/world/europe/ap-eu-spain-drug-seizure.html?searchResultPosition=8
+**LeBron James’s Business Partner Now Wants to Get Out the Vote**\
+`Maverick Carter, a high school teammate who has helped build the star’s off-court empire, says people must ask, “What do we want to change?” in the wake of nationwide protests.`\
+https://nytimes.com/2020/06/19/business/corner-office-maverick-carter.html?searchResultPosition=8
 
-**French League Votes to Keep 20-Team 1st Division Next Season**\
-`The French league voted on Friday to keep a 20-team first division next season, despite a court's decision to suspend the relegations of Amiens and Toulouse to the second division.`\
-https://nytimes.com/aponline/2020/06/19/sports/soccer/ap-soc-french-league-20-teams.html?searchResultPosition=9
+**Putin Uses WW2 Anniversary to Push Idea of Russian-Backed Summit to Stabilise World**\
+`President Vladimir Putin has called on the leaders of the five permanent members of the U.N. Security Council to make good on an agreement to hold a face-to-face summit to try to tackle the world's problems as soon as possible.     `\
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-russia-putin-article.html?searchResultPosition=9
 
-**A Royal Ascot Without the Crowds, but Hats and Frocks on Full Display**\
-`The horse races took place behind closed doors this year, but thousands of people still showed up in their over-the-top finery — online.`\
-https://nytimes.com/2020/06/19/world/europe/virtual-royal-ascot-queen-elizabeth.html?searchResultPosition=10
+**Merkel: EU Leaders to Continue Talks on EU Finances in Mid-July**\
+`European Union leaders will continue their negotiations on establishing the post-coronavirus recovery fund in mid-July, German Chancellor Angela Merkel said on Friday after a videoconference with her counterparts from the bloc's members.`\
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-eu-germany.html?searchResultPosition=10
 
