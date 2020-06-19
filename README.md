@@ -1,32 +1,32 @@
-**Ohio GOP Censures Former Head Who's Parted Ways With Trump**\
-`Ohio Republicans on Friday censured a former party head who has drawn scorn for campaigning against Donald Trump's reelection and asking GOP voters to pick Democrat Joe Biden.`\
-https://nytimes.com/aponline/2020/06/19/us/politics/ap-us-election-2020-ohio-republicans-censure.html?searchResultPosition=3
+**Trump: Mail-In Voting Presents 'Biggest Risk' to Reelection**\
+`President Donald Trump says that mail-in voting presents the greatest threat to his reelection hopes and he suggested that legal efforts in several states launched by his allies might decide November’s election.`\
+https://nytimes.com/aponline/2020/06/19/us/politics/ap-us-election-2020-trump-voting.html?searchResultPosition=3
 
-**Neptune Energy to Cut 21% of Workforce Amid Volatile Oil Prices**\
-`Neptune Energy plans to cut nearly 21% of its workforce, or 400 roles across nine countries, as the gas and oil producer looks to weather low commodity prices. `\
-https://nytimes.com/reuters/2020/06/19/business/19reuters-neptune-energy-layoffs.html?searchResultPosition=4
+**Brands Tout Black Heritage as Some Shoppers Question Authenticity**\
+`L'Oreal SA, Unilever and other multinationals that acquired personal-care brands founded by Black people are moving to reassure their core customers, some of whom have pledged in the wake of racial-justice protests to direct their spending toward only Black-owned companies.`\
+https://nytimes.com/reuters/2020/06/19/business/19reuters-minneapolis-protests-black-products-focus.html?searchResultPosition=4
 
-**Opera Has Vanished. So Have Their Dream Jobs at the Met.**\
-`The company’s orchestra offered prestige and job security. But the pandemic has upended hundreds of lives.`\
-https://nytimes.com/2020/06/19/arts/music/met-opera-orchestra-jobs.html?searchResultPosition=5
+**Horse Racing: Tiz the Law Ready to Shine as All Eyes Turn to Belmont**\
+`Tiz the Law aims to gallop to history as the 6-5 favorite in Saturday's 152nd Belmont Stakes, with the race usually last in the Triple Crown going first in a topsy-turvy time in the sports calendar.`\
+https://nytimes.com/reuters/2020/06/19/sports/19reuters-horseracing-belmont.html?searchResultPosition=5
 
-**Canada Approves Plan to Play Hockey in Canada Amid Pandemic**\
-`Canada has approved a National Hockey League plan to play in Canada during the coronavirus pandemic, Deputy Prime Minister Chrystia Freeland said Friday. `\
-https://nytimes.com/aponline/2020/06/19/sports/ap-cn-virus-outbreak-canada-nhl-hockey.html?searchResultPosition=6
+**Back to School: MLB May Have College Vibe With Short Season**\
+`John Stuper remembers some of the first advice he got from veterans when he joined the St. Louis Cardinals as a rookie pitcher in 1982: Don't get too high or too low during Major League Baseball's grueling 162-game schedule or you'll go insane.`\
+https://nytimes.com/aponline/2020/06/19/sports/baseball/ap-bbo-mlb-college-vibe.html?searchResultPosition=6
 
-**Swiss Prosecutors Start Glencore Criminal Probe**\
-`Glencore Plc said on Friday the Office of the Attorney General of Switzerland has opened a criminal investigation into Glencore International AG for failure to have measures in place to prevent alleged corruption in the Democratic Republic of Congo.`\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-glencore-investigation-switzerland.html?searchResultPosition=7
+**Mexican Anti-Discrimination Agency Chief Resigns After Censure by President**\
+`The head of the Mexican government's anti-discrimination agency quit after criticism by President Andres Lopez Manuel Obrador, who on Friday said he would likely appoint an indigenous person in her place.`\
+https://nytimes.com/reuters/2020/06/19/world/americas/19reuters-mexico-racism-president.html?searchResultPosition=7
 
-**Colombia Peace Funding Not at Risk Amid Coronavirus Budget Crunch: Government**\
-`The economic fallout of the coronavirus pandemic will not put at risk funding for programs created under Colombia's peace deal with the former FARC rebels, the government said on Friday.`\
-https://nytimes.com/reuters/2020/06/19/world/americas/19reuters-health-coronavirus-colombia-peace.html?searchResultPosition=8
+**U.S. and Canadian Oil & Gas Rig Count Falls to Record Lows: Baker Hughes**\
+`U.S. and Canadian energy firms cut the number of oil and natural gas rigs operating to a record low even as higher oil prices prompt some producers to start drilling again.`\
+https://nytimes.com/reuters/2020/06/19/business/19reuters-usa-rigs-baker-hughes.html?searchResultPosition=8
 
-**Alex Zanardi Seriously Injured Again in Handbike Accident**\
-`Race car driver turned Paralympic champion Alex Zanardi was seriously injured again in a road accident on Friday.`\
-https://nytimes.com/aponline/2020/06/19/sports/ap-car-zanardi-injured-2nd-ld-writethru.html?searchResultPosition=9
+**Firearms Sales on the Rise, More Travel Bans Eased**\
+`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Friday related to the national and global response, the work place and the spread of the virus.`\
+https://nytimes.com/aponline/2020/06/19/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=9
 
-**Russia's Economy Contractions Slows Down to 10.9% in May**\
-`Russia's economy declined by 10.9% in May, year-on-year, data showed on Friday, following a sharper fall of 12% in April when the country was locked down to combat the coronavirus.`\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-russia-economy.html?searchResultPosition=10
+**Biden Proves an Elusive Target, Adding to Trump’s Frustration**\
+`Few politicians delight in seizing on the news of the day, or even the hour, to ridicule their rivals as President Trump, but Joseph Biden has been mostly off camera and avoiding gaffes.`\
+https://nytimes.com/2020/06/19/us/politics/donald-trump-joe-biden-coronavirus.html?searchResultPosition=10
 
