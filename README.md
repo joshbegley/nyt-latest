@@ -1,36 +1,36 @@
+**Thai Central Bank Asks Lenders to Strengthen Capital to Cope With Coronavirus Risk**\
+`Thailand's central bank on Friday asked commercial banks to prepare capital management plans for the next 1-3 years, as the widespread impact of the outbreak on businesses and individuals could affect asset quality.`\
+https://nytimes.com/reuters/2020/06/19/world/asia/19reuters-thailand-economy-cenbank.html?searchResultPosition=2
+
+**COVID Hit to UK Tax Revenues Slightly Less Than Feared, OBR Says**\
+`The slump in British government tax revenues since the start of the coronavirus lockdown has been slightly less sharp than feared, the Office for Budget Responsibility said on Friday after the release of public finances data for May.`\
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-britain-obr.html?searchResultPosition=3
+
+**Spain Expects Decision on Travel Corridor With Britain Soon: Source**\
+`Spain expects a decision in the coming hours in its talks with Britain on whether to establish a travel corridor to avoid imposing a quarantine on travelers due to the coronavirus pandemic, a Spanish foreign ministry source said on Friday. `\
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-spain-britain.html?searchResultPosition=4
+
+**U.S. Current Account Barely Changed in First Quarter**\
+`The U.S. current account deficit was barely changed in the first quarter as the COVID-19 pandemic restricted the flow of goods and services. `\
+https://nytimes.com/reuters/2020/06/19/us/19reuters-usa-economy-currentaccount.html?searchResultPosition=5
+
+**Canada Retail Sales Down 26.4% in April**\
+`Canadian retail sales plummeted 26.4% in April as the coronavirus pandemic continued to wallop the economy, Statistics Canada data showed on Friday. `\
+https://nytimes.com/reuters/2020/06/19/us/19reuters-canada-economy-retail.html?searchResultPosition=6
+
+**Ampio to Study Experimental Drug in COVID-19 Patients**\
+`U.S. drug developer Ampio Pharmaceuticals Inc said on Friday it would begin an early stage study of its experimental treatment, Ampion, in COVID-19 patients after it received regulatory clearance from the U.S. Food and Drug Administration. `\
+https://nytimes.com/reuters/2020/06/19/us/19reuters-health-coronavirus-ampio-pharm.html?searchResultPosition=7
+
+**Cocaine Smugglers Aim to Take Advantage of Spain's Lockdown**\
+`Spanish authorities seized 3.8 metric tons of cocaine in just over a month at Valencia's port, as drug smugglers presumed police would be off-guard during the COVID-19 pandemic, officials said Friday.`\
+https://nytimes.com/aponline/2020/06/19/world/europe/ap-eu-spain-drug-seizure.html?searchResultPosition=8
+
 **French League Votes to Keep 20-Team 1st Division Next Season**\
 `The French league voted on Friday to keep a 20-team first division next season, despite a court's decision to suspend the relegations of Amiens and Toulouse to the second division.`\
-https://nytimes.com/aponline/2020/06/19/sports/soccer/ap-soc-french-league-20-teams.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/06/19/sports/soccer/ap-soc-french-league-20-teams.html?searchResultPosition=9
 
 **A Royal Ascot Without the Crowds, but Hats and Frocks on Full Display**\
 `The horse races took place behind closed doors this year, but thousands of people still showed up in their over-the-top finery — online.`\
-https://nytimes.com/2020/06/19/world/europe/virtual-royal-ascot-queen-elizabeth.html?searchResultPosition=3
-
-**BMW, Mercedes Put Automated Driving Alliance on Hold**\
-`Daimler on Friday said it had put on hold a development alliance in the area of automated driving between its luxury brand and rival German luxury carmaker BMW.`\
-https://nytimes.com/reuters/2020/06/19/business/19reuters-daimler-bmw-autonomous.html?searchResultPosition=4
-
-**Sea-Watch Charity Rescues Hundreds of Migrants From Mediterranean**\
-`German NGO Sea-Watch on Friday said it had rescued 46 migrants from a sinking boat in the Mediterranean overnight, bringing the total of saved people to 211 in the last 48 hours.`\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-europe-migrants-rescue.html?searchResultPosition=5
-
-**Take Five: Reshuffle the Decks**\
-`1/'RUSSELL RECON' `\
-https://nytimes.com/reuters/2020/06/19/business/19reuters-global-markets-themes-graphic.html?searchResultPosition=6
-
-**UK PM Johnson Says on Racism: Focus on Substance Rather Than Symbols**\
-`British Prime Minister Boris Johnson said on Friday that people should focus less on symbols and more on the substance of racism, adding that he saw no reason for any ban on the rugby song "Swing Low, Sweet Chariot".`\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-minneapolis-police-protests-britain.html?searchResultPosition=7
-
-**Police: Carjacker Sits on Driver, Leads Officers on Chase**\
-`A man forced his way into a vehicle, sat on the woman in the driver's seat and drove off, pinning her while leading officers on a chase that began in New Jersey and ended in Pennsylvania, police said.`\
-https://nytimes.com/aponline/2020/06/19/us/ap-us-carjacking-driver-pinned-1st-ld-writethru.html?searchResultPosition=8
-
-**Summer Reading Contest Week 2: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by June 26 at 9 a.m. Eastern. This week’s winners will be announced on July 7.`\
-https://nytimes.com/2020/06/19/learning/summer-reading-contest-week-2-what-got-your-attention-in-the-times-this-week.html?searchResultPosition=9
-
-**Soccer Player Puts Spotlight on Plight of Migrant Fruit Pickers in Spain**\
-`Like many African immigrants seeking fruit-picking jobs in Spain, Europe's largest fruit and vegetable exporter, Ibrahim Ndoye had to sleep rough on the streets of Lleida for 10 days this month as nobody would rent him a room.`\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-spain-immigrants.html?searchResultPosition=10
+https://nytimes.com/2020/06/19/world/europe/virtual-royal-ascot-queen-elizabeth.html?searchResultPosition=10
 
