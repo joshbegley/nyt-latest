@@ -1,36 +1,36 @@
-**Turkey Will Work With Italy for Stable Peace in Libya: Foreign Minister**\
-`Turkey will work together with Italy to achieve stable peace and a political process that will yield results in Libya, Foreign Minister Mevlut Cavusoglu said on Friday, and added the NATO allies could also cooperate in the eastern Mediterranean.`\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-libya-security-turkey-italy.html?searchResultPosition=2
+**Here’s What Companies Are Promising to Do to Fight Racism**\
+`Corporate America has pledged millions to social justice efforts since the killing of George Floyd. But some businesses have gone further, committing to concrete changes in their practices.`\
+https://nytimes.com/article/companies-racism-george-floyd-protests.html?searchResultPosition=2
 
-**Swedish PM Says Much Work Left to Reach EU Deal on Recovery Fund**\
-`Swedish Prime Minister Stefan Lofven said on Friday that differences remained over both a recovery fund and a long-term budget for the European Union and that significant changes to the proposals were needed for an agreement to be reached.   `\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-eu-summit-sweden-primeminister.html?searchResultPosition=3
+**Italy Anti-Racism Activists Deface Statue, Alter Street Name**\
+`Anti-racism activists poured red paint on a statue of an Italian colonial-era general and pasted over the name of a street in Rome on Friday to show solidarity with the Black Lives Matter movement in the United States.`\
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-minneapolis-police-italy.html?searchResultPosition=3
 
-**EU Leaders Agree to Extend Russia Sanctions - Michel**\
-`European Union leaders agreed to extend their economic sanctions on Russia over its 2014 annexation of Crimea and the turmoil in Ukraine until the end of January 2021, the head of the European Council said on Friday.`\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-eu-summit-russia.html?searchResultPosition=4
+**Church of England Says Ashamed of Its Role in Slavery**\
+`The Church of England said it was ashamed of the role that some in the Anglican Church had played in slavery though it also said that leading clergy helped abolish the trade.`\
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-minneapolis-police-protests-britain-church.html?searchResultPosition=4
 
-**EU Leaders Still Split on Recovery Fund Design, Commission Says**\
-`EU leaders remain divided on how to structure a proposed COVID-19 recovery fund for European economies, the head of the European Commission said on Friday, with the balance of loans and grants still to be agreed.`\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-eu-summit-budget-commission.html?searchResultPosition=5
+**Founder of Indonesia's Bukalapak to Head Telkom's Digital Business**\
+`Indonesian e-commerce startup Bukalapak said that its co-founder and president Fajrin Rasyid 34 has stepped down to become the head of digital business at state-owned PT Telekomunikasi Indonesia Tbk, (Telkom).`\
+https://nytimes.com/reuters/2020/06/19/business/19reuters-bukalapak-founder.html?searchResultPosition=5
 
-**EU's Michel Sees Budget Talks Moving to Next Phase in Mid-July Summit**\
-`EU leaders will meet for an in-person summit in mid-July after a first exchange of opinions about the bloc's planned multi-billion euro recovery package on Friday, European Council President Charles Michel said.`\
-https://nytimes.com/reuters/2020/06/19/us/19reuters-eu-summit-michel.html?searchResultPosition=6
+**Hungry Neighbors Cook Together as Virus Roils Latin America**\
+`Clara Arango wakes at 4 a.m. daily and checks on the ingredients for breakfast. `\
+https://nytimes.com/aponline/2020/06/19/world/americas/ap-lt-virus-outbreak-feeding-neighbors-.html?searchResultPosition=6
 
-**AMC Entertainment to Reopen 450 U.S. Theaters on July 15**\
-`AMC Entertainment Holdings Inc said on Thursday it plans to reopen 450 theaters in the United States on July 15 and expects to return to full seating capacity around Thanksgiving.`\
-https://nytimes.com/reuters/2020/06/19/technology/19reuters-amc-ent-holdg-theater.html?searchResultPosition=7
+**Summer Vacationers Weigh Testing, Quarantine or Staying Home**\
+`Homebound travelers desperate to venture out for the first time since the pandemic are confronting a vacation landscape this summer that may require coronavirus tests for the family and even quarantines.`\
+https://nytimes.com/aponline/2020/06/19/business/ap-us-virus-outbreak-tourism.html?searchResultPosition=7
 
-**British Actor Ian Holm Dies at 88**\
-`British actor Ian Holm, best known for his roles in "The Lord of the Rings" trilogy and "Alien", has died aged 88, the Guardian newspaper said on Friday.`\
-https://nytimes.com/reuters/2020/06/19/arts/19reuters-people-holm.html?searchResultPosition=8
+**Macron Wants to Find Quick Agreement on EU Recovery Fund in July: French Official**\
+`French President Emmanuel Macron told European Union leaders it was necessary to find a quick agreement on a proposed 750 billion-euro recovery fund in July to maintain the current momentum, a French official said on Friday. `\
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-eu-france.html?searchResultPosition=8
 
-**Still Big Gap to Bridge on Brexit Talks, EU Says**\
-`Britain and the European Union still need to bridge "wide divergences" to reach a post-Brexit trade agreement, the European Union's chief executive said on Friday, following a video summit of EU leaders. `\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-britain-eu-vonderleyen.html?searchResultPosition=9
+**Trump Says Mail-In Voting Is Top Threat to His Re-election, Politico Reports**\
+`U.S. President Donald Trump said expanded mail-in voting could cost him re-election in November, according to a Politico interview published on Friday, as states continue to press for absentee balloting amid the novel coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/19/us/politics/19reuters-usa-election-trump.html?searchResultPosition=9
 
-**Trump Administration's 'Sloppy' Work Has Led to Supreme Court Losses**\
-`The U.S. Supreme Court's ruling stopping President Donald Trump from rescinding protections for "Dreamers" immigrants marked the second time in a year that he lost a major case because Chief Justice John Roberts faulted his administration for sloppiness in the policymaking process.`\
-https://nytimes.com/reuters/2020/06/19/us/politics/19reuters-usa-court-immigration-trump-analysis.html?searchResultPosition=10
+**Celebrating Juneteenth in California**\
+`Friday: A historian talks about the roots of the holiday and its importance in this moment. Also: The history of Bruce’s Beach.`\
+https://nytimes.com/2020/06/19/us/ca-juneteenth-celebration.html?searchResultPosition=10
 
