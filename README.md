@@ -1,36 +1,36 @@
+**UK Lowers Covid-19 Alert Level to 'Epidemic' From 'Exponential'**\
+`The United Kingdom's chief medical officers have agreed that the COVID-19 threat level should be lowered one notch to "epidemic is in general circulation" from "transmission is high or rising exponentially".`\
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-britain-level.html?searchResultPosition=2
+
+**Paris Police Bans Three Protests, Including U.S. Embassy Demonstration**\
+`The Paris police authority said it had decided to ban three protests scheduled for Saturday, including a demonstration in front of the U.S. Embassy, due to fears of public disorder and COVID-19 risks.`\
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-france-security.html?searchResultPosition=3
+
+**Coronavirus Live Updates: Tensions Grow Over Masks in the U.S.**\
+`California orders residents to wear masks in most indoor situations. The guidance comes as face coverings become a political flash point. A federal agency has halted funding for new lung treatments.`\
+https://nytimes.com/2020/06/19/world/coronavirus-live-updates.html?searchResultPosition=4
+
+**Father of Turkish NBA Player Kanter Acquitted of Terrorism Links**\
+`The father of NBA center Enes Kanter, an outspoken critic of Turkish President Tayyip Erdogan's human rights record, has been acquitted of charges that he was a member of a terrorist group, Turkish media reported on Friday. `\
+https://nytimes.com/reuters/2020/06/19/sports/basketball/19reuters-turkey-security-nba.html?searchResultPosition=5
+
+**EU Parliament Wants New EU Taxes to Finance Recovery Fund, EU Budget**\
+`The European Parliament wants European Union governments to assign new sources of revenue to the bloc to repay European Commission borrowing for the recovery and finance the next long-term budget, the head of the European Parliament said.`\
+https://nytimes.com/reuters/2020/06/19/us/19reuters-eu-summit-parliament.html?searchResultPosition=6
+
+**China Readies Strict Security Law for Hong Kong**\
+`Chinese lawmakers are discussing legislation that could drastically curtail freedoms in the semiautonomous territory.`\
+https://nytimes.com/2020/06/19/world/asia/hong-kong-china-national-security.html?searchResultPosition=7
+
 **Norway Must Keep Strict Border Controls to Avoid New Infections: PM**\
 `Norway, which has some of the strictest travel restrictions in Europe, must maintain tight control of its borders to avoid importing COVID-19 cases from abroad, Prime Minister Erna Solberg said on Friday.`\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-norway.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-norway.html?searchResultPosition=8
 
 **UK Watchdog Proposes Extension to Consumer Credit Payment Holiday**\
 `Britain's markets watchdog on Friday proposed enabling some consumers to extend a payment freeze on their credit cards by a further three months as part of measures to support borrowers in difficulties because of the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-britain-regulation-credit.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-britain-regulation-credit.html?searchResultPosition=9
 
 **Time Is Money: The Armchair Traders of Lockdown**\
 `At 7am on Friday morning, Dean d'Arco, 31, a phone shop manager from Belfast, Northern Ireland, logged on for his last day as a round-the-clock armchair stock market trader.`\
-https://nytimes.com/reuters/2020/06/19/technology/19reuters-health-coronavirus-armchair-traders.html?searchResultPosition=4
-
-**U.S. Slaps Sanctions on Mexican Firms, Individuals Linked to Venezuelan Oil Trade**\
-`The United States on Thursday blacklisted Mexico's Libre Abordo and a related company, accusing them of helping Caracas evade U.S. sanctions in the first formal action by the U.S. Treasury Department against Mexican firms involved in trading Venezuelan oil.`\
-https://nytimes.com/reuters/2020/06/19/world/americas/19reuters-venezuela-politics-usa.html?searchResultPosition=5
-
-**Deutsche Telekom Targets U.S. Top Spot**\
-`Deutsche Telekom boss Tim Hoettges has his sights on becoming market leader in the United States, setting a high bar for U.S. unit T-Mobile after its $23 billion takeover of Sprint.`\
-https://nytimes.com/reuters/2020/06/19/business/19reuters-deutsche-telekom-agm.html?searchResultPosition=6
-
-**Juneteenth Observance Arrives Amid U.S. Reckoning With Racism**\
-`Many Juneteenth observances celebrating the emancipation of African American slaves more than a century and a half ago were shifted to the internet on Friday due to the coronavirus, though street marches and "car caravans" were planned in several major U.S. cities.`\
-https://nytimes.com/reuters/2020/06/19/us/19reuters-minneapolis-police-juneteenth.html?searchResultPosition=7
-
-**Vera Lynn, Voice of Hope in Wartime Britain, Dies at 103**\
-`Vera Lynn, the singer who became a symbol of hope in Britain during World War Two and again during the coronavirus pandemic with her song "We'll Meet Again", died at the age of 103 on Thursday. `\
-https://nytimes.com/reuters/2020/06/19/arts/19reuters-britain-people-lynn.html?searchResultPosition=8
-
-**Japan's Fujitsu Brings Hand Washing AI to COVID-19 Fight**\
-`Three months after the World Health Organization recommended singing "Happy Birthday" twice during hand washing to fight the coronavirus, Japan's Fujitsu Ltd has developed an artificial intelligence monitor it says will ensure healthcare, hotel and food industry workers scrub properly.`\
-https://nytimes.com/reuters/2020/06/19/technology/19reuters-health-coronavirus-japan-ai-technology.html?searchResultPosition=9
-
-**Britain's Opposition Labour Faces 'Mountain to Climb' to Win Power**\
-`Britain's opposition Labour Party faces "a mountain to climb" to win power after haemorrhaging support to the governing Conservatives over its leadership, Brexit and manifesto at the last election, a review said on Friday.`\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-britain-politics-labour.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/19/technology/19reuters-health-coronavirus-armchair-traders.html?searchResultPosition=10
 
