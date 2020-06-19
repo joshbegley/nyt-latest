@@ -1,36 +1,36 @@
+**Australia Offer Alcott Support, Plan Full Programme for Melbourne**\
+`Tennis Australia have offered their support to Dylan Alcott over his disappointment at the wheelchair events being cut from the U.S. Open and said they were optimistic of running a full programme at January's Australian Open.`\
+https://nytimes.com/reuters/2020/06/18/sports/tennis/18reuters-tennis-open-australia.html?searchResultPosition=2
+
+**India Seeks Eased Tensions With China After Himalayas Clash**\
+`India's prime minister is meeting top opposition leaders Friday as the government tries to lower tensions with China after 20 Indian soldiers were killed in a military clash in a Himalayan border region this week.`\
+https://nytimes.com/aponline/2020/06/18/world/asia/ap-as-india-china-himalayan-standoff.html?searchResultPosition=3
+
 **Japan Says Economy 'Almost Stopped Worsening', Raising View for First Time Since 2018**\
 `Japan's government raised its economic assessment in June for the first time since 2018 as a sharp deterioration caused by the new coronavirus outbreak had nearly come to an end.`\
-https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-health-coronavirus-japan-economy.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-health-coronavirus-japan-economy.html?searchResultPosition=4
 
 **Japan Lifts Coronavirus Travel Curbs to Help Economy Bounce Back**\
 `Japan lifted all coronavirus-related curbs on domestic travel on Friday, with Prime Minister Shinzo Abe calling on people to go sightseeing or attend concerts and other events to help the nation's economy bounce back from a pandemic recession.`\
-https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-health-coronavirus-japan-tourism.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/18/world/asia/18reuters-health-coronavirus-japan-tourism.html?searchResultPosition=5
 
 **Trump Supporters Camp Out Ahead of Tulsa Rally, Despite Virus Risk**\
 `Supporters of President Trump lined up outside the BOK Center in Tulsa, Okla., two days ahead of his rally. The president and some of his supporters have shrugged off concerns that the event could spread the coronavirus.`\
-https://nytimes.com/video/us/politics/100000007199618/trump-tulsa-rally-supporters-coronavirus.html?searchResultPosition=4
+https://nytimes.com/video/us/politics/100000007199618/trump-tulsa-rally-supporters-coronavirus.html?searchResultPosition=6
 
-**Germany's Confirmed Coronavirus Cases Rise by 504 to 188,534-RKI**\
-`The number of confirmed coronavirus cases in Germany increased by 504 to 188,534, data from the Robert Koch Institute (RKI) for infectious diseases showed on Friday.`\
-https://nytimes.com/reuters/2020/06/18/world/europe/18reuters-health-coronavirus-germany-cases.html?searchResultPosition=5
+**Germany's Confirmed Coronavirus Cases Rise by 770 to 188,534-RKI**\
+`The number of confirmed coronavirus cases in Germany increased by 770 to 188,534, data from the Robert Koch Institute (RKI) for infectious diseases showed on Friday.`\
+https://nytimes.com/reuters/2020/06/18/world/europe/18reuters-health-coronavirus-germany-cases.html?searchResultPosition=7
 
 **Klobuchar Withdraws as Candidate to Be Biden’s Running Mate**\
 `Senator Amy Klobuchar of Minnesota, who fell short in her own presidential bid, was considered a strong contender until protests over racial justice prompted renewed scrutiny of her role as a prosecutor.`\
-https://nytimes.com/2020/06/18/us/politics/amy-klobuchar-biden-vice-president.html?searchResultPosition=6
+https://nytimes.com/2020/06/18/us/politics/amy-klobuchar-biden-vice-president.html?searchResultPosition=8
 
 **'Into the Wild' Bus Removed From Alaska Trail for Safety Concerns**\
 `The "Into the Wild" bus is no longer in the wild.`\
-https://nytimes.com/reuters/2020/06/18/arts/18reuters-alaska-bus.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/06/18/arts/18reuters-alaska-bus.html?searchResultPosition=9
 
 **Asia Today: S. Korean Cases Rise, Beijing Outbreak Stable**\
 `South Korea has reported 49 cases of COVID-19 as the virus continues to spread in the densely populated capital area where half of the country’s 51 million people live.`\
-https://nytimes.com/aponline/2020/06/18/business/ap-as-virus-outbreak-asia.html?searchResultPosition=8
-
-**Honduran President's Doctor Says He Is Evolving Favorably in COVID-19 Treatment**\
-`Honduran President Juan Orlando Hernandez has been evolving favorably as he receives treatment at a military hospital for pneumonia after testing positive for COVID-19, but could remain hospitalized nearly another week, one of his doctors said on Thursday.`\
-https://nytimes.com/reuters/2020/06/18/world/americas/18reuters-health-coronavirus-honduras-president.html?searchResultPosition=9
-
-**Twitter Labels Trump Tweet About ‘Racist Baby’ as Manipulated Media**\
-`It was the first time that Twitter had used that tag on one of the president’s messages.`\
-https://nytimes.com/2020/06/18/technology/trump-tweet-baby-manipulated.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/18/business/ap-as-virus-outbreak-asia.html?searchResultPosition=10
 
