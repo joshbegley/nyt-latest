@@ -22,8 +22,8 @@ https://nytimes.com/aponline/2020/06/19/us/ap-us-supreme-court-immigration.html?
 `Oil prices rose around 1% on Friday, adding to gains in the previous session, after OPEC producers and allies promised to meet commitments on cutting supply and two major oil traders said demand was recovering well.`\
 https://nytimes.com/reuters/2020/06/19/business/19reuters-global-oil.html?searchResultPosition=7
 
-**Will India Side With the West Against China? A Test May Be at Hand.**\
-`The United States and its allies have long wanted India’s help in confronting China. Fallout from a border clash may indicate how far India is prepared to go.`\
+**Will India Side With the West Against China? A Test Is at Hand**\
+`The United States and its allies have long wanted India’s help in confronting China. Now, a deadly border clash seems likely to push India in that direction.`\
 https://nytimes.com/2020/06/19/world/asia/india-china-border.html?searchResultPosition=8
 
 **Lives Lost: South African Activist Targeted Apartheid, HIV**\
