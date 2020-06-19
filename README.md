@@ -1,32 +1,32 @@
-**Fans and Flags Under Scrutiny as NASCAR Heads to Talladega**\
-`The heat is on at Talladega Superspeedway, and not just for the drivers at a track known for high-speed chaos.`\
-https://nytimes.com/aponline/2020/06/19/sports/ap-car-nascar-talladega-security.html?searchResultPosition=3
+**Elizabeth Alexander on the Spectacle of ‘Black Bodies in Pain’**\
+`The writer reflects on her seminal Rodney King essay, the George Floyd killing and how the videos of police brutality exacerbate black grief.`\
+https://nytimes.com/2020/06/19/arts/elizabeth-alexander-george-floyd-video-protests.html?searchResultPosition=3
 
-**Police Fire Tear Gas at Protest Against Mali's President**\
-`Police fired tear gas at protesters demanding President Ibrahim Boubacar Keita's resignation Friday as tens of thousands took to the streets for the second time this month in Mali's capital.`\
-https://nytimes.com/aponline/2020/06/19/world/africa/ap-af-mali-protest.html?searchResultPosition=4
+**Hummingbirds Navigate an Ultraviolet World We Never See**\
+`New research shows that the nectar-drinking birds use their enhanced color vision to distinguish sources of food.`\
+https://nytimes.com/2020/06/19/science/hummingbirds-color-vision.html?searchResultPosition=4
 
-**Brazil to Exceed 1 Million COVID-19 Cases as Virus Rages**\
-`Brazil was on track to surpass 1 million confirmed coronavirus cases on Friday, second only to the United States, with total deaths fast approaching 50,000 as the country struggles with a tense political climate and worsening economic outlook.`\
-https://nytimes.com/reuters/2020/06/19/world/americas/19reuters-health-coronavirus-brazil.html?searchResultPosition=5
+**Cruise Lines Extend COVID-19 Pause on Sailing From the US**\
+`The Cruise Lines International Association announced Friday that ships will not be sailing from U.S. ports throughout the summer, extending a pause put in place because of the coronavirus pandemic. `\
+https://nytimes.com/aponline/2020/06/19/business/ap-us-virus-outbreak-cruise-ships.html?searchResultPosition=5
 
-**Ontario School Reopening Plans Give Parents Option to Keep Children at Home**\
-`Ontario Premier Doug Ford said on Friday parents will have the option to keep their children at home to continue with remote learning under the three scenarios school boards have been asked to consider, as the province prepares to reopen classrooms for the 2020-21 school year.`\
-https://nytimes.com/reuters/2020/06/19/world/americas/19reuters-health-coronavirus-canada-ontario-schools.html?searchResultPosition=6
+**U.S. Finds Alternative Partners to WHO, Except for Polio: U.S. Official**\
+`The United States has found alternative partners for global health projects as it withdraws from the World Health Organization (WHO) except for polio eradication, an area where U.S. Secretary of State Mike Pompeo had credited the body for its good work.`\
+https://nytimes.com/reuters/2020/06/19/us/19reuters-health-coronavirus-who-usa.html?searchResultPosition=6
 
-**Wheelchair Tennis Players Now Told They Could Play US Open**\
-`There might be wheelchair tennis competition at the 2020 U.S. Open, after all.`\
-https://nytimes.com/aponline/2020/06/19/sports/tennis/ap-ten-us-open-wheelchair-tennis.html?searchResultPosition=7
+**Factbox: Canadian Provinces and Their Plans to Reopen Schools Amid COVID-19**\
+`Ontario, Canada's most populous province, on Friday set out guidelines for elementary and high school students to return to classrooms in the fall.`\
+https://nytimes.com/reuters/2020/06/19/world/americas/19reuters-health-coronavirus-canada-education-factbox.html?searchResultPosition=7
 
-**Puerto Rico Hit With Water Rationing Amid Severe Drought**\
-`Puerto Rico’s government announced water rationing measures on Friday as 26% of the U.S. territory faces a severe drought amid the pandemic.`\
-https://nytimes.com/aponline/2020/06/19/world/americas/ap-cb-puerto-rico-drought.html?searchResultPosition=8
+**NOT REAL NEWS: A Look at What Didn't Happen This Week**\
+`A roundup of some of the most popular but completely untrue stories and visuals of the week. None of these are legit, even though they were shared widely on social media. The Associated Press checked them out. Here are the facts:`\
+https://nytimes.com/aponline/2020/06/19/us/ap-not-real-news.html?searchResultPosition=8
 
-**Undercounting Those Killed by the N.Y.P.D.**\
-`A never-released report shows that the number of people killed by police activity in New York is more than twice what has been reported.`\
-https://nytimes.com/2020/06/19/opinion/police-involved-deaths-new-york-city.html?searchResultPosition=9
+**2 Charged in Iowa Assault That NAACP Says Was Racist**\
+`Two white men have been arrested in an assault so severe that the 22-year-old black victim believed he was about to be killed. The NAACP has said the attack in Des Moines was racially motivated.`\
+https://nytimes.com/aponline/2020/06/19/us/ap-us-iowa-black-man-attacked.html?searchResultPosition=9
 
-**Nikita Price, Homeless Father Turned Advocate for Homeless, Dies at 63**\
-`He united people in shelters with those living on the streets, and he negotiated with city officials for greater support.`\
-https://nytimes.com/2020/06/19/nyregion/nikita-price-dead.html?searchResultPosition=10
+**Closing Prices for Crude Oil, Gold and Other Commodities**\
+`Benchmark U.S. crude oil for July delivery rose 91 cents to settle at $39.75 a barrel Friday. Brent crude oil for August delivery rose 68 cents to $42.19 a barrel.`\
+https://nytimes.com/aponline/2020/06/19/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=10
 
