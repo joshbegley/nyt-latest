@@ -1,4 +1,4 @@
-**Amazon Signals Entry Into Alcohol Delivery in India With Nod in Key State - Document**\
+**Exclusive: Amazon Signals Entry Into Alcohol Delivery in India With Nod in Key State-Document**\
 `Amazon.com Inc has secured clearance to deliver alcohol in India's eastern state of West Bengal, according to a document seen by Reuters, signalling the U.S. e-commerce giant's first foray into the country's multi-billion-dollar sector.    `\
 https://nytimes.com/reuters/2020/06/19/business/19reuters-amazon-com-india-alcohol-exclusive.html?searchResultPosition=3
 
