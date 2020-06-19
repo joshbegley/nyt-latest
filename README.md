@@ -2,7 +2,7 @@
 `In his relatively short career, Rajput rose to leading man. Here are some of his best performances.`\
 https://nytimes.com/2020/06/19/movies/sushant-singh-rajput-performances.html?searchResultPosition=3
 
-**Exclusive: Mexico Freezes Bank Accounts of Entities Sanctioned by U.S**\
+**Exclusive: Mexico Freezes Bank Accounts of Entities Sanctioned by U.S.**\
 `The Mexican government's financial crime department has frozen the bank accounts of companies and people blacklisted by the United States under accusations of having evaded the sanction regime imposed on Venezuela, its chief said on Friday. `\
 https://nytimes.com/reuters/2020/06/19/world/americas/19reuters-usa-mexico-sanctions-exclusive.html?searchResultPosition=4
 
