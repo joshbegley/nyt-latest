@@ -1,36 +1,36 @@
+**Who’s the Best Pick for Biden’s Running Mate? Democrats Weigh In**\
+`A study suggests many Democrats agree with Amy Klobuchar: Joe Biden should choose a woman of color.`\
+https://nytimes.com/2020/06/19/us/politics/biden-vice-president-poll.html?searchResultPosition=2
+
+**Traveling 5,000 Miles to Say Goodbye From Six Feet Away**\
+`During the pandemic, many people have been unable to make it to the bedside of their dying relatives. I was one of the lucky ones.`\
+https://nytimes.com/2020/06/19/reader-center/coronavirus-last-goodbyes.html?searchResultPosition=3
+
+**India Reports Record Rise in Coronavirus Cases as Major City Locks Down**\
+`India reported a record daily jump in the number of novel coronavirus cases on Friday as the southern city of Chennai locked down following fresh outbreaks there.`\
+https://nytimes.com/reuters/2020/06/19/world/americas/19reuters-health-coronavirus-india.html?searchResultPosition=4
+
+**Activist Joshua Wong Says He Plans to Run for Hong Kong Legislature**\
+`Prominent Hong Kong democracy activist Joshua Wong said on Friday he planned to run for a seat in the Chinese-ruled city's legislature, setting up a new battle with authorities after being barred from running in previous polls.`\
+https://nytimes.com/reuters/2020/06/19/world/asia/19reuters-hongkong-protests-joshua-wong.html?searchResultPosition=5
+
+**Belarus President Says Country Foiled Foreign Plot After Arresting Political Rival**\
+`President Alexander Lukashenko said on Friday Belarus had foiled a foreign plot to destabilise the country ahead of the presidential election in August, a day after the arrest of his main political rival sparked protests.`\
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-belarus-election.html?searchResultPosition=6
+
+**West Reluctant for 'Dangerous' Taliban Prisoners to Be Freed: Sources**\
+`Western powers are backing the Afghan government's refusal to free hundreds of prisoners accused of some of Afghanistan's most violent attacks, a release demanded by the Taliban as a condition to start peace talks, five sources told Reuters.`\
+https://nytimes.com/reuters/2020/06/19/world/asia/19reuters-usa-afghanistan-taliban-prisoners.html?searchResultPosition=7
+
+**Poland Says Pandemic Situation at Coal Mines Is Stable**\
+`The situation in Polish coal mines has stabilized after a rapid increase in new coronavirus cases in the past few weeks, Deputy Prime Minister Jacek Sasin said on Friday. `\
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-poland-mining.html?searchResultPosition=8
+
+**Muslims, Jews Have Higher COVID Death Rate, UK Figures Indicate**\
+`The death rate from COVID-19 in England and Wales is higher among people who identify as Muslims, Jews, Hindus or Sikh than Christians or those with no stated religion, Britain's statistics office said on Friday. `\
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-britain-religion.html?searchResultPosition=9
+
 **Samsung to Relocate Chinese Display Production to Vietnam: Media**\
 `Samsung Electronics is planning to shift much of its display production from China to its plant in southern Vietnam this year, state media said on Friday.   `\
-https://nytimes.com/reuters/2020/06/19/technology/19reuters-vietnam-samsung.html?searchResultPosition=2
-
-**Singaporean Wanted by FBI Charged Over North Korea Sugar Deals**\
-`A Singaporean commodity broker wanted by the FBI was charged in the city-state on Friday for falsifying company documents to conceal transactions with North Korea from banks.`\
-https://nytimes.com/reuters/2020/06/19/world/asia/19reuters-singapore-crime-northkorea.html?searchResultPosition=3
-
-**Major Central Banks to Cut Frequency of Dollar-Funding Operations, BOJ Says**\
-`Major central banks across Europe and Japan will reduce the frequency of their seven-day dollar liquidity-providing operations from July as the market tension caused by the coronavirus pandemic has eased, the Bank of Japan said on Friday.`\
-https://nytimes.com/reuters/2020/06/19/world/asia/19reuters-dollar-funding-boj.html?searchResultPosition=4
-
-**Futures Climb on Optimism Over Swift Recovery**\
-`U.S. stock index futures rose about 1% on Friday as investors wagered on a bounce back in post-pandemic economic activity, shrugging off the daily increase in new coronavirus infections in several states.`\
-https://nytimes.com/reuters/2020/06/19/business/19reuters-usa-stocks.html?searchResultPosition=5
-
-**Food Exporters to China Asked to Declare Produce Is Coronavirus-Free**\
-`China's customs authority has asked food exporters to the country to sign a declaration their produce is not contaminated by the novel coronavirus, three people who received a letter said on Friday. `\
-https://nytimes.com/reuters/2020/06/19/world/asia/19reuters-health-coronavirus-china-food.html?searchResultPosition=6
-
-**German Government Declines to Comment on Wirecard**\
-`The German government on Friday declined to comment on payments company Wirecard, which is scrambling to find $2.1 billion missing from its accounts.`\
-https://nytimes.com/reuters/2020/06/19/business/19reuters-wirecard-accounts-ministry.html?searchResultPosition=7
-
-**JPMAM's Michele: Rotate Out of Government Bonds Into Banks, EM**\
-`JPMorgan Asset Management will extend its fixed income holdings further out on the spectrum, handing government bonds back to central banks and rotating out of liquid names into specific sectors such as bank capital, the fund manager said on Friday. `\
-https://nytimes.com/reuters/2020/06/19/business/19reuters-health-coronavirus-jpmorganassetmanagement.html?searchResultPosition=8
-
-**Twitter Flags Trump's Tweet of Doctored 'Racist Baby' Video**\
-`Twitter has slapped another label on a tweet by President Donald Trump, this time warning that a video he shared was doctored and escalating the social media company's crackdown on one of its most widely followed users.`\
-https://nytimes.com/aponline/2020/06/19/business/bc-trump-twitter.html?searchResultPosition=9
-
-**DACA Lives On**\
-`And what else you need to know today.`\
-https://nytimes.com/2020/06/19/briefing/dreamers-tulsa-juneteenth-your-friday-briefing.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/19/technology/19reuters-vietnam-samsung.html?searchResultPosition=10
 
