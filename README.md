@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/06/19/business/bc-us-michigan-pipeline-whitmer
 `South Korea has reported 67 additional cases of the coronavirus, the largest daily jump in about three weeks amid an upward trend in new infections.`\
 https://nytimes.com/aponline/2020/06/19/business/ap-as-virus-outbreak-asia.html?searchResultPosition=4
 
-**N Carolina Protesters Topple Parts of Confederate Monument**\
-`Protesters in North Carolina's capital pulled down parts of a Confederate monument Friday night.`\
+**N Carolina Protesters Hang Confederate Statue From Post**\
+`Protesters in North Carolina's capital pulled down parts of a Confederate monument Friday night and hanged one of the toppled statues from a light post.`\
 https://nytimes.com/aponline/2020/06/19/us/ap-us-confederate-statues-raleigh-3rd-ld-writethru.html?searchResultPosition=5
 
 **Germany's Confirmed Coronavirus Cases Rise by 601 to 189,135: RKI**\
