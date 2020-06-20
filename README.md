@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/06/20/sports/ap-car-zanardi-injured-1st-ld-writethru.html?searchResultPosition=3
 
 **No Mention of Hong Kong Security Law as China Closes Meeting**\
-`The body that handles most lawmaking for China’s top legislative body closed its latest meeting Saturday with no mention of passing a highly controversial national security law for Hong Kong. `\
+`The body that handles most lawmaking for China’s top legislative body closed its latest meeting Saturday with no word on whether it had passed a highly controversial national security law for Hong Kong.`\
 https://nytimes.com/aponline/2020/06/20/world/asia/ap-as-china-hong-kong-politics.html?searchResultPosition=4
 
 **Protesters Douse French Health Ministry With Red Paint**\
