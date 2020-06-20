@@ -22,11 +22,11 @@ https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus
 `Elon Musk tweeted https://bit.ly/2AVPdDo late on Friday that Tesla Inc will have to postpone its annual shareholder meeting as no large gatherings are allowed by July 7.`\
 https://nytimes.com/reuters/2020/06/19/business/19reuters-tesla-shareholders.html?searchResultPosition=8
 
-**U.S. Attorney Who Investigated Trump Associates Is Abruptly Replaced**\
+**U.S. Attorney Who Investigated Trump Associates Is Abruptly Ousted**\
 `The United States attorney in Manhattan, Geoffrey Berman, had been leading the investigation into Rudolph W. Giuliani, the president’s personal lawyer.`\
 https://nytimes.com/2020/06/19/nyregion/us-attorney-manhattan-trump.html?searchResultPosition=9
 
-**Berman Out; Trump to Nominate SEC Chair Clayton as U.S. Attorney in Manhattan**\
-`Geoffrey Berman is leaving his post as U.S. Attorney in Manhattan, and President Donald Trump intends to nominate Securities and Exchange Commission Chairman Jay Clayton to replace him, Attorney General William Barr said on Friday.`\
+**U.S. Attorney Who Was Investigating Trump's Lawyer Replaced in Surprise Move**\
+`In a suprise move, the U.S. Justice Department said on Friday that it was replacing Geoffrey Berman, the U.S. Attorney in Manhattan whose office has been investigating Rudolph W. Giuliani, the personal lawyer of U.S. President Donald Trump. `\
 https://nytimes.com/reuters/2020/06/19/nyregion/19reuters-usa-justice-newyork.html?searchResultPosition=10
 
