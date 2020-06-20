@@ -22,8 +22,8 @@ https://nytimes.com/aponline/2020/06/20/sports/baseball/ap-bbo-tim-dahlberg-base
 `Yemeni separatists funded by the United Arab Emirates on Saturday took control of military and police camps in Yemen's Socotra archipelago, a UNESCO World Heritage site, security officials said. `\
 https://nytimes.com/aponline/2020/06/20/world/middleeast/ap-ml-yemen.html?searchResultPosition=8
 
-**UK Police Respond to 'Incident' Amid Reports of Stabbings**\
-`Police in the English town of Reading were dealing with a “serious incident” Saturday, authorities said, following reports that multiple people were stabbed in a park.`\
+**Police Say Several Hurt in Stabbing Attack in English Town**\
+`Several people were injured in a stabbing attack in a park in the English town of Reading on Saturday, and one person was arrested, police said. There was no immediate word on motive, but Britain's interior minister said she was “deeply concerned.”`\
 https://nytimes.com/aponline/2020/06/20/world/europe/ap-eu-britain-police-incident.html?searchResultPosition=9
 
 **Canadian Banks End Extra Pandemic Pay as Infections Ease**\
