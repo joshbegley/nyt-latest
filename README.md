@@ -14,7 +14,7 @@ https://nytimes.com/aponline/2020/06/20/us/ap-us-confederate-statues-raleigh-1st
 `A story within a story that begins in a mysterious place known as the Cemetery of Forgotten Books, it is one of the most successful Spanish novels ever published.`\
 https://nytimes.com/2020/06/20/books/carlos-ruiz-zafon-dead.html?searchResultPosition=6
 
-**Attorney General Barr Says Trump Has Fired U.S. Attorney Berman, at His Request**\
+**Attorney General Barr Says Trump Fires U.S. Attorney Berman, at His Request**\
 `U.S. Attorney General William Barr said on Saturday that President Donald Trump had fired Geoffrey Berman, the top federal prosecutor in Manhattan whose office is investigating Trump's attorney Rudolph Giuliani, after Berman publicly refused late on Friday to step down from his post.`\
 https://nytimes.com/reuters/2020/06/20/nyregion/20reuters-usa-justice-newyork-barr.html?searchResultPosition=7
 
