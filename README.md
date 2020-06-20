@@ -3,7 +3,7 @@
 https://nytimes.com/2020/06/20/style/greg-glassman-crossfit-sexism.html?searchResultPosition=3
 
 **NC Governor Orders Removal of Confederate Statues in Raleigh**\
-`Crews on Saturday removed two Confederate statues outside the North Carolina State Capitol in Raleigh on order of the governor, the morning after protesters toppled two nearby statues.`\
+`Crews on Saturday removed two Confederate statues outside the North Carolina State Capitol in Raleigh on order of the governor, the morning after protesters toppled two nearby statues. `\
 https://nytimes.com/aponline/2020/06/20/us/ap-us-confederate-statues-raleigh-1st-ld-writethru.html?searchResultPosition=4
 
 **Carlos Ruiz Zafón, Author of ‘The Shadow of the Wind,’ Dies at 55**\
