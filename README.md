@@ -10,7 +10,7 @@ https://nytimes.com/2020/06/20/world/asia/china-hong-kong-security-law.html?sear
 `North Korea is gearing up to send propaganda leaflets over its southern border, denouncing North Korean defectors and South Korea, its state media said on Saturday, the latest retaliation for leaflets from the South as bilateral tensions rise.`\
 https://nytimes.com/reuters/2020/06/20/world/asia/20reuters-northkorea-southkorea-leaflets.html?searchResultPosition=5
 
-**The Latest: Beyoncé Single Benefits Black-Owned Businesses**\
+**The Latest: Statue of Confederate General Toppled in DC**\
 `TOP OF THE HOUR:`\
 https://nytimes.com/aponline/2020/06/20/us/ap-us-america-protests-the-latest.html?searchResultPosition=6
 
