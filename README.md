@@ -1,32 +1,32 @@
+**Harboring Hong Kong 'Rioters' Will Harm Taiwan, China Says**\
+`Offering protection to "rioters" from Hong Kong will only harm Taiwan's people and is an interference in the Chinese-ruled city's affairs, China's government said, denouncing plans by Taiwan to help Hong Kongers who decide to flee to the island.`\
+https://nytimes.com/reuters/2020/06/19/world/asia/19reuters-hongkong-protests-china-taiwan.html?searchResultPosition=3
+
 **Corrections: June 20, 2020**\
 `Corrections that appeared in print on Saturday, June 20, 2020.`\
-https://nytimes.com/2020/06/19/pageoneplus/corrections-june-20-2020.html?searchResultPosition=3
+https://nytimes.com/2020/06/19/pageoneplus/corrections-june-20-2020.html?searchResultPosition=4
 
 **Whitmer Demands Answers From Enbridge on Pipeline Damage**\
 `Michigan Gov. Gretchen Whitmer demanded Friday that Enbridge Energy provide proof that the damage to one of its dual oil pipelines under the Straits of Mackinac will not pose a threat to the area.`\
-https://nytimes.com/aponline/2020/06/19/business/bc-us-michigan-pipeline-whitmer.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/19/business/bc-us-michigan-pipeline-whitmer.html?searchResultPosition=5
 
 **Asia Today: 67 New Cases in S Korea, Highest Jump in 3 Weeks**\
 `South Korea has reported 67 additional cases of the coronavirus, the largest daily jump in about three weeks amid an upward trend in new infections.`\
-https://nytimes.com/aponline/2020/06/19/business/ap-as-virus-outbreak-asia.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/19/business/ap-as-virus-outbreak-asia.html?searchResultPosition=6
 
 **N Carolina Protesters Hang Confederate Statue From Post**\
 `Protesters in North Carolina's capital pulled down parts of a Confederate monument Friday night and hanged one of the toppled statues from a light post.`\
-https://nytimes.com/aponline/2020/06/19/us/ap-us-confederate-statues-raleigh-3rd-ld-writethru.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/06/19/us/ap-us-confederate-statues-raleigh-3rd-ld-writethru.html?searchResultPosition=7
 
 **Germany's Confirmed Coronavirus Cases Rise by 601 to 189,135: RKI**\
 `The number of confirmed coronavirus cases in Germany increased by 601 to 189,135, data from the Robert Koch Institute (RKI) for infectious diseases showed on Saturday.`\
-https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-germany-cases.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus-germany-cases.html?searchResultPosition=8
 
 **Elon Musk Tweets Tesla Postpones Annual Shareholder Meeting**\
 `Elon Musk tweeted https://bit.ly/2AVPdDo late on Friday that Tesla Inc will have to postpone its annual shareholder meeting as no large gatherings are allowed by July 7.`\
-https://nytimes.com/reuters/2020/06/19/business/19reuters-tesla-shareholders.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/06/19/business/19reuters-tesla-shareholders.html?searchResultPosition=9
 
 **U.S. Attorney Who Investigated Trump Associates Is Abruptly Ousted**\
 `The United States attorney in Manhattan, Geoffrey Berman, had been leading the investigation into Rudolph W. Giuliani, the president’s personal lawyer.`\
-https://nytimes.com/2020/06/19/nyregion/us-attorney-manhattan-trump.html?searchResultPosition=9
-
-**U.S. Attorney Who Was Investigating Trump's Lawyer Replaced in Surprise Move**\
-`In a suprise move, the U.S. Justice Department said on Friday that it was replacing Geoffrey Berman, the U.S. Attorney in Manhattan whose office has been investigating Rudolph W. Giuliani, the personal lawyer of U.S. President Donald Trump. `\
-https://nytimes.com/reuters/2020/06/19/nyregion/19reuters-usa-justice-newyork.html?searchResultPosition=10
+https://nytimes.com/2020/06/19/nyregion/us-attorney-manhattan-trump.html?searchResultPosition=10
 
