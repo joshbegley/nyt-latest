@@ -1,32 +1,32 @@
+**NC Governor Orders Removal of Confederate Statues in Raleigh**\
+`Crews on Saturday removed two Confederate statues outside the North Carolina State Capitol in Raleigh on order of the governor, the morning after protesters toppled two nearby statues.`\
+https://nytimes.com/aponline/2020/06/20/us/ap-us-confederate-statues-raleigh-1st-ld-writethru.html?searchResultPosition=3
+
+**Carlos Ruiz Zafón, Author of ‘The Shadow of the Wind,’ Dies at 55**\
+`A story within a story that begins in a mysterious place known as the Cemetery of Forgotten Books, it is one of the most successful Spanish novels ever published.`\
+https://nytimes.com/2020/06/20/books/carlos-ruiz-zafon-dead.html?searchResultPosition=4
+
+**Attorney General Barr Says Trump Has Fired U.S. Attorney Berman, at His Request**\
+`U.S. Attorney General William Barr said on Saturday that President Donald Trump had fired Geoffrey Berman, the top federal prosecutor in Manhattan whose office is investigating Trump's attorney Rudolph Giuliani, after Berman publicly refused late on Friday to step down from his post.`\
+https://nytimes.com/reuters/2020/06/20/nyregion/20reuters-usa-justice-newyork-barr.html?searchResultPosition=5
+
+**Trump Supporters Gather in Tulsa for Rally**\
+`Crowds assembled in Tulsa, Okla., ahead of the president’s first campaign event since the start of the coronavirus pandemic and the nationwide protests for racial justice.`\
+https://nytimes.com/video/us/politics/100000007201990/trump-supporters-gather-in-tulsa-for-rally.html?searchResultPosition=6
+
 **Poles Run for LGBT Equality Ahead of Presidential Vote**\
 `Around a hundred Poles took part in an "Equality Run" on Saturday, condemning discrimination against the lesbian, gay, bisexual and transgender (LGBT) community during a presidential election campaign where gay rights have provoked fierce debate.`\
-https://nytimes.com/reuters/2020/06/20/world/europe/20reuters-gay-pride-poland.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/20/world/europe/20reuters-gay-pride-poland.html?searchResultPosition=7
 
 **Belmont Stakes: Here’s What You Need to Know**\
 `Traditionally the final race in the Triple Crown series, it will kick things off for the first time. And that’s not the only change.`\
-https://nytimes.com/2020/06/20/sports/belmont-stakes-triple-crown.html?searchResultPosition=4
+https://nytimes.com/2020/06/20/sports/belmont-stakes-triple-crown.html?searchResultPosition=8
 
 **Cardinal Pell to Publish Prison Diary Musing on Case, Church**\
 `Cardinal George Pell, the former Vatican finance minister who was convicted and then acquitted of sexual abuse in his native Australia, is set to publish his prison diary musing on life in solitary confinement, the Catholic Church, politics and sports.`\
-https://nytimes.com/aponline/2020/06/20/world/europe/ap-eu-rel-vatican-pell-book.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/20/world/europe/ap-eu-rel-vatican-pell-book.html?searchResultPosition=9
 
 **Trump Fires U.S. Attorney Who Investigated His Associates**\
 `The president’s move deepened a crisis over the independence of law enforcement and the president’s purge of officials he views as disloyal.`\
-https://nytimes.com/2020/06/20/nyregion/trump-geoffrey-berman-fired-sdny.html?searchResultPosition=6
-
-**Fatal Shooting Brought Police Into Seattle’s ‘Autonomous Zone’**\
-`Medics in the protester-run zone appeared to treat one of the victims before they were transported to a hospital. Some protesters objected to the arrival of officers in riot gear.`\
-https://nytimes.com/2020/06/20/us/seattle-chop-shooting.html?searchResultPosition=7
-
-**Teenager Killed in Seattle Protest Zone Shooting, One Wounded**\
-`Seattle police on Saturday said they were investigating the fatal shooting of one person and wounding of another in a part of the city occupied by activists protesting against police brutality and racial inequality across America.`\
-https://nytimes.com/reuters/2020/06/20/us/20reuters-usa-seattle-shooting.html?searchResultPosition=8
-
-**French Coronavirus Deaths Rise by 19 to 29,633**\
-`The number of deaths in France from COVID-19 has risen by 19 from Friday to stand at 29,633, the health ministry said on Saturday.`\
-https://nytimes.com/reuters/2020/06/20/world/europe/20reuters-health-coronavirus-france.html?searchResultPosition=9
-
-**PG&E Says Bankruptcy Court Approves Its Chapter 11 Reorganization Plan**\
-`PG&E Corp said its Chapter 11 reorganization plan has been confirmed by the United States Bankruptcy Court for the Northern District of California, bringing the power provider one step closer to emerge from bankruptcy and participate in a state-backed wildfire fund.`\
-https://nytimes.com/reuters/2020/06/20/business/20reuters-pg-e-us-bankruptcy.html?searchResultPosition=10
+https://nytimes.com/2020/06/20/nyregion/trump-geoffrey-berman-fired-sdny.html?searchResultPosition=10
 
