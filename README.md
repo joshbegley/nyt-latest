@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/06/19/world/europe/19reuters-health-coronavirus
 https://nytimes.com/reuters/2020/06/19/business/19reuters-tesla-shareholders.html?searchResultPosition=6
 
 **U.S. Attorney Who Investigated Trump Associates Is Abruptly Replaced**\
-`The United States attorney in Manhattan, Geoffrey Berman, had been  leading the investigation into Rudolph W. Giuliani, the president’s personal lawyer.`\
+`The United States attorney in Manhattan, Geoffrey Berman, had been leading the investigation into Rudolph W. Giuliani, the president’s personal lawyer.`\
 https://nytimes.com/2020/06/19/nyregion/us-attorney-manhattan-trump.html?searchResultPosition=7
 
 **Trump to Nominate SEC Chairman Clayton as U.S. Attorney for Southern District of New York**\
