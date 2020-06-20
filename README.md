@@ -23,7 +23,7 @@ https://nytimes.com/2020/06/20/world/europe/forbury-gardens-stabbing-reading-uk.
 https://nytimes.com/reuters/2020/06/20/sports/20reuters-horseracing-belmont-tiz.html?searchResultPosition=8
 
 **NY-Bred Tiz the Law Wins Barren Belmont Stakes**\
-`Tiz the Law has won an unprecedented Belmont Stakes, claiming victory Saturday at the first race of a rejiggered Triple Crown schedule and crossing the finish line in front of eerily empty grandstands.`\
+`Tiz the Law has won an unprecedented Belmont Stakes, claiming victory Saturday at the first race of a rejiggered Triple Crown schedule in front of eerily empty grandstands.`\
 https://nytimes.com/aponline/2020/06/20/sports/ap-rac-belmont.html?searchResultPosition=9
 
 **Players Association Advises Against Group Workouts After Surge in COVID-19 Cases**\
