@@ -1,32 +1,32 @@
+**Tiz the Law Breaks 138-Year-Old New York Curse at Belmont**\
+`It was an unusual year for the Belmont Stakes, running first instead of last in the Triple Crown due to scheduling upheaval because of the pandemic, in front of empty stands, with fans barred from the stadium.`\
+https://nytimes.com/reuters/2020/06/20/sports/20reuters-horseracing-belmont-new-york.html?searchResultPosition=3
+
 **UK PM Johnson to Announce New 'One Metre Plus' Social Distancing Rule: Telegraph**\
 `British Prime Minister Boris Johnson will announce a new "one metre plus" social distancing rule to reopen the United Kingdom, the Daily Telegraph newspaper reported late on Saturday. `\
-https://nytimes.com/reuters/2020/06/20/world/europe/20reuters-health-coronavirus-britain-distancing.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/20/world/europe/20reuters-health-coronavirus-britain-distancing.html?searchResultPosition=4
 
 **Author Brittney Cooper on Harnessing Rage, Right Now**\
 `The writer of ‘Eloquent Rage’ discusses the shared anger of black women in the nationwide protests for racial justice.`\
-https://nytimes.com/2020/06/20/us/20IHW-black-lives-matter-protests-brittney-cooper-women.html?searchResultPosition=4
+https://nytimes.com/2020/06/20/us/20IHW-black-lives-matter-protests-brittney-cooper-women.html?searchResultPosition=5
 
 **Jim Kiick, Dolphins' Perfect Season Running Back, Dies at 73**\
 `Jim Kiick, the versatile running back who helped the Miami Dolphins achieve the NFL’s only perfect season in 1972, has died. He was 73.`\
-https://nytimes.com/aponline/2020/06/20/sports/football/ap-fbn-obit-kiick.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/20/sports/football/ap-fbn-obit-kiick.html?searchResultPosition=6
 
 **150 Cannery Workers Forced Into Hotel Quarantine Without Pay**\
 `About 150 seasonal workers hired by a salmon cannery in Alaska are being forced to quarantine without pay at a hotel in Los Angeles after three of them tested positive for the coronavirus, a lawsuit claims.`\
-https://nytimes.com/aponline/2020/06/20/business/ap-us-virus-outbreak-cannery-workers.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/06/20/business/ap-us-virus-outbreak-cannery-workers.html?searchResultPosition=7
 
 **Owner of Eskimo Pie to Change Its 'Derogatory' Name**\
 `The owner of Eskimo Pie is changing its name and marketing of the nearly century-old chocolate-covered ice cream bar, the latest brand to reckon with racially charged logos and marketing.`\
-https://nytimes.com/aponline/2020/06/20/business/bc-us-eskimo-pie-name-change.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/06/20/business/bc-us-eskimo-pie-name-change.html?searchResultPosition=8
 
 **Brazil Records Nearly 50,000 Coronavirus Deaths as Crisis Deepens**\
 `Nearly 50,000 people have died from the coronavirus in Brazil,  the world No. 2 hotspot, with 1,022 fatalities in the last 24 hours, the Health Ministry said on Saturday. `\
-https://nytimes.com/reuters/2020/06/20/world/americas/20reuters-health-coronavirus-brazil.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/06/20/world/americas/20reuters-health-coronavirus-brazil.html?searchResultPosition=9
 
 **Six Literary Dads for Father’s Day**\
 `Here are six memorable — though not always in a good way — dads from literature.`\
-https://nytimes.com/interactive/2020/06/20/burst/books-fathers-day.html?searchResultPosition=9
-
-**Questions Surround Police Killing of Latino Man in California**\
-`The man, 18-year-old Andres Guardado, worked as a security guard. He was killed after showing a weapon and fleeing deputies, according to the authorities.`\
-https://nytimes.com/2020/06/20/us/andres-guardado-police-shooting.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/20/burst/books-fathers-day.html?searchResultPosition=10
 
