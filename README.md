@@ -22,8 +22,8 @@ https://nytimes.com/aponline/2020/06/20/sports/ap-rac-belmont.html?searchResultP
 `NFL players should avoid engaging in group workouts as COVID-19 cases are rising again in the United States, the medical director of the sport's players association said on Saturday.`\
 https://nytimes.com/reuters/2020/06/20/sports/football/20reuters-health-coronavirus-nfl.html?searchResultPosition=8
 
-**Documents: Cell Phone Pings Helped Find Children's Bodies**\
-`Authorities used cell phone information from the now-deceased uncle of two missing Idaho children to find the youths' bodies on a rural property earlier this month, according to court documents.`\
+**Documents: Cellphone Pings Helped Find Children's Bodies**\
+`Authorities used cellphone information from the now-deceased uncle of two missing Idaho children to find the youths' bodies on a rural property earlier this month, according to court documents.`\
 https://nytimes.com/aponline/2020/06/20/us/ap-us-idaho-missing-children.html?searchResultPosition=9
 
 **British PM Johnson Says His Thoughts With Those Affected by 'Appalling Incident' in Reading**\
