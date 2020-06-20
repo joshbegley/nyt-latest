@@ -14,7 +14,7 @@ https://nytimes.com/2020/06/20/crosswords/daily-puzzle-2020-06-21.html?searchRes
 `When Atalanta takes to the field on Sunday, the match will hold an extra element of poignancy.`\
 https://nytimes.com/aponline/2020/06/20/sports/soccer/ap-soc-atalanta-restart.html?searchResultPosition=6
 
-**Retired Pope Visits Old Haunts, Parents' Grave in Germany**\
+**Retired Pope Visits Former Home, Parents' Grave in Germany**\
 `Emeritus Pope Benedict XVI visited his former home near Regensburg, Germany, on Saturday, greeted old neighbors and prayed at his parents' grave as part of a trip to his former haunts to be with his seriously ill 96-year-old brother, the Rev. Georg Ratzinger. `\
 https://nytimes.com/aponline/2020/06/20/us/ap-eu-vatican-germany-benedict.html?searchResultPosition=7
 
