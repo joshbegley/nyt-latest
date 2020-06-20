@@ -1,32 +1,32 @@
-**Taiwan May Export Orders Up, Flags Better Outlook Though Wary of Pandemic**\
-`Taiwan's export orders edged up for a third consecutive month in May, thanks to sustained demand for telecommuting products like laptops during the coronavirus pandemic that has forced millions of people globally to work at home.`\
-https://nytimes.com/reuters/2020/06/20/technology/20reuters-taiwan-economy-orders.html?searchResultPosition=3
+**Voguing for Our Lives. Again.**\
+`“We shouldn’t be screaming, ‘Trans Lives Matter,’ but we have to,” said Leiomy Maldonado, a ballroom icon. “We’re strong and we’re here to fight.”`\
+https://nytimes.com/2020/06/20/style/self-care/vogue-trans-black-lives-protest.html?searchResultPosition=3
 
-**Lakers Owner Calls for Unity Against Racism on Juneteenth**\
-`LA Lakers owner Jeannie Buss said on Friday, the Juneteenth holiday, that she is no longer willing to ignore hate and called on white people to come together and acknowledge the racism that exists in the United States.`\
-https://nytimes.com/reuters/2020/06/20/sports/basketball/20reuters-minneapolis-police-basketball-lakers.html?searchResultPosition=4
+**Indonesia Reports 1,226 New Coronavirus Infections, 56 Deaths: Ministry**\
+`Indonesia reported 1,226 new coronavirus infections and on Saturday, taking its total number of cases to 45,029. `\
+https://nytimes.com/reuters/2020/06/20/world/asia/20reuters-health-coronavirus-indonesia.html?searchResultPosition=4
 
-**UK to Conclude England's 2-Metre COVID-19 Rule Review Soon: Minister**\
-`Britain's government will announce in the coming days whether it will reduce its two-meter social distancing rule for England, a minister said.`\
-https://nytimes.com/reuters/2020/06/20/world/europe/20reuters-health-coronavirus-britain.html?searchResultPosition=5
+**Can Gay Bars, an Anchor of N.Y.C. Nightlife, Survive the Pandemic?**\
+`June is Pride Month, but high rents and little-to-no income mean establishments including the Stonewall Inn are “facing an uncertain future.”`\
+https://nytimes.com/2020/06/20/nyregion/nyc-gay-bars-pride.html?searchResultPosition=5
 
-**The African Refugees and Migrants Trapped Inside Yemen's War**\
-`Despite six years of war and hardship in Yemen, Somali refugee Bader Hassan had stuck it out hoping for a better life than in his homeland. `\
-https://nytimes.com/reuters/2020/06/20/world/africa/20reuters-refugee-day-yemen-africans.html?searchResultPosition=6
+**6 Books to Help You Grasp How We Got to This Moment**\
+`The current protests are unprecedented in their number, scope and impact, but their newness is built on a long past, one that scholars have grappled with for decades.`\
+https://nytimes.com/2020/06/20/at-home/6-books-to-help-you-grasp-how-we-got-to-this-moment.html?searchResultPosition=6
 
-**Russia Reports Just Under 8,000 New Coronavirus Cases**\
-`Russia on Saturday reported 7,889 new cases of the novel coronavirus, pushing its nationwide case tally to 576,952 since the crisis began.`\
-https://nytimes.com/reuters/2020/06/20/world/europe/20reuters-health-coronavirus-russia-cases.html?searchResultPosition=7
+**Turn Your Trash Into Art**\
+`You’ll need newspaper, glue, paints and creativity.`\
+https://nytimes.com/2020/06/20/at-home/turn-your-trash-into-art.html?searchResultPosition=7
 
-**New Development Bank Provides South Africa With $1 Billion COVID-19 Loan**\
-`The New Development Bank established by the BRICS group of emerging nations has approved a $1 billion COVID-19 emergency loan to South Africa to help reduce the socio-economic impacts of the pandemic, the National Treasury said on Saturday.`\
-https://nytimes.com/reuters/2020/06/20/world/americas/20reuters-health-coronavirus-safrica-ndb.html?searchResultPosition=8
+**Latin America’s Virus Villains: Corrupt Officials Collude With Price Gougers for Body Bags and Flimsy Masks**\
+`The coronavirus has devastated Latin America. And it has only been worsened by a wave of graft and profiteering, prosecutors say.`\
+https://nytimes.com/2020/06/20/world/americas/coronavirus-latin-america-corruption.html?searchResultPosition=8
 
-**Australian State Reinstates Restrictions After Spike in Coronavirus Cases**\
-`Australia's second most populous state announced on Saturday it will reinstate tighter restrictions on home and public gatherings after logging a double digit rise in coronavirus cases for a fourth straight day. `\
-https://nytimes.com/reuters/2020/06/20/world/asia/20reuters-health-coronavirus-australia.html?searchResultPosition=9
+**What to Know About the Tulsa Greenwood Massacre**\
+`As many 300 people were killed in 1921 when a white mob attacked the Greenwood district of Tulsa, a thriving black community, and burned it to the ground.`\
+https://nytimes.com/2020/06/20/us/tulsa-greenwood-massacre.html?searchResultPosition=9
 
-**EU Should Take China to UN Court Over Hong Kong, Lawmakers Say**\
-`The European Union should take China to the International Court of Justice in The Hague if Beijing imposes a new security law on Hong Kong, the European Parliament voted on Friday, also calling on the bloc to use economic leverage to dissuade China.`\
-https://nytimes.com/reuters/2020/06/20/world/asia/20reuters-hongkong-protests-eu.html?searchResultPosition=10
+**Joni Ernst and Donald Trump Could Both Be in Trouble in Iowa**\
+`Iowa seemed out of reach for Democrats not too long ago. Now, the presidential race appears to be tightening, and Senator Ernst, a Republican, is facing a strong challenge from a political newcomer.`\
+https://nytimes.com/2020/06/20/us/politics/iowa-polls-trump-biden-ernst-greenfield.html?searchResultPosition=10
 
