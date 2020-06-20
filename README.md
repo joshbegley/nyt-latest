@@ -1,5 +1,5 @@
 **Thousands Headed to Indoor Trump Rally, Raising Virus Fears**\
-`Tens of thousands of people from many states are converging on Tulsa for an indoor rally and other campaign events Saturday for President Donald Trump, raising concerns that the gatherings could help fuel nascent spikes of cornavirus cases in many places. `\
+`Tens of thousands of people from many states are converging on Tulsa for an indoor rally and other campaign events Saturday for President Donald Trump, raising concerns that the gatherings could help fuel nascent spikes of coronavirus cases in many places. `\
 https://nytimes.com/aponline/2020/06/20/us/ap-virus-outbreak.html?searchResultPosition=3
 
 **Kazakhstan's Ex-President Is Asymptomatic After Positive Coronavirus Test, Report Says**\
