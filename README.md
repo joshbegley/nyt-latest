@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/06/19/business/19reuters-tesla-shareholders.htm
 `The United States attorney in Manhattan, Geoffrey Berman, had been leading the investigation into Rudolph W. Giuliani, the president’s personal lawyer.`\
 https://nytimes.com/2020/06/19/nyregion/us-attorney-manhattan-trump.html?searchResultPosition=7
 
-**Trump to Nominate SEC Chairman Clayton as U.S. Attorney for Southern District of New York**\
-`Geoffrey Berman is leaving his post as U.S. Attorney for the Southern District of New York, and President Donald Trump intends to nominate Securities and Exchange Commission Chairman Jay Clayton to replace him, Attorney General William Barr said on Friday.`\
+**Berman Out; Trump to Nominate SEC Chair Clayton as U.S. Attorney in Manhattan**\
+`Geoffrey Berman is leaving his post as U.S. Attorney in Manhattan, and President Donald Trump intends to nominate Securities and Exchange Commission Chairman Jay Clayton to replace him, Attorney General William Barr said on Friday.`\
 https://nytimes.com/reuters/2020/06/19/nyregion/19reuters-usa-justice-newyork.html?searchResultPosition=8
 
 **FDA Again Declines Approval of Nabriva's Antibiotic for Urinary Tract Infections**\
