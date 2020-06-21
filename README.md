@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/06/21/sports/baseball/21reuters-baseball-mlb-ml
 `John Bolton's memoir officially comes out Tuesday after surviving a security review and a legal challenge from the Justice Department. But over the weekend, it was available in ways even his publisher is hoping to prevent.`\
 https://nytimes.com/aponline/2020/06/21/us/ap-us-books-bolton-online-piracy.html?searchResultPosition=4
 
-**Germany's Coronavirus Reproduction Rate Jumps to 2.88 on Sunday: RKI**\
+**Germany's Coronavirus Reproduction Rate Jumps Above Key Containment Level**\
 `The coronavirus reproduction rate in Germany jumped to 2.88 on Sunday, up from 1.79 a day earlier, the Robert Koch Institute (RKI) for public health said, taking infections above the level needed to contain it over the longer term.`\
 https://nytimes.com/reuters/2020/06/21/world/europe/21reuters-health-coronavirus-germany.html?searchResultPosition=5
 
