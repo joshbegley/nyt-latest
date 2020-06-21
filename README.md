@@ -1,36 +1,36 @@
+**Vast Federal Aid Has Capped Rise in Poverty, Studies Find**\
+`But researchers caution this does not mean low-income families are escaping hardship. And they warn that when the aid expires next month, families could again be vulnerable.`\
+https://nytimes.com/2020/06/21/us/politics/coronavirus-poverty.html?searchResultPosition=2
+
+**Dimitrov Positive for COVID-19, Exhibition Event Canceled**\
+`Grigor Dimitrov said Sunday he has tested positive for COVID-19, leading to the cancellation of an exhibition event in Croatia where top-ranked Novak Djokovic was scheduled to play.`\
+https://nytimes.com/aponline/2020/06/21/sports/tennis/ap-ten-dimitrov-coronavirus.html?searchResultPosition=3
+
 **Hungary's Leading Website Index.hu Says Its Independence Is at Risk**\
 `The editor-in-chief of Hungary's news website index.hu said on Sunday the outlet that has been a leading critic of Prime Minister Viktor Orban's government was at risk of losing its independence because of what it called "external influence".`\
-https://nytimes.com/reuters/2020/06/21/world/europe/21reuters-hungary-media.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/21/world/europe/21reuters-hungary-media.html?searchResultPosition=4
 
 **Morocco to Resume Domestic Flights Starting June 25**\
 `Morocco will resume domestic flights starting June 25, the state news agency said on Sunday, citing the ministry of tourism, air transport, handicrafts and social economy.`\
-https://nytimes.com/reuters/2020/06/21/world/africa/21reuters-morocco-flights.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/21/world/africa/21reuters-morocco-flights.html?searchResultPosition=5
 
 **Adria Tour Final Cancelled After Dimitrov Tests Positive for COVID-19**\
 `Grigor Dimitrov said on Sunday said he has tested positive for COVID-19, making him the highest-profile tennis player to reveal he has the disease. `\
-https://nytimes.com/reuters/2020/06/21/sports/tennis/21reuters-health-coronavirus-tennis-dimitrov.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/21/sports/tennis/21reuters-health-coronavirus-tennis-dimitrov.html?searchResultPosition=6
 
 **Italy Mulls New WHO Guidelines on Virus Patient Isolation**\
 `Italy’s Health Ministry is asking government advisers to evaluate new World Health Organization recommendations saying that people with COVID-19 can come out of isolation before they test negative for the coronavirus.`\
-https://nytimes.com/aponline/2020/06/21/world/europe/ap-eu-virus-outbreak-italy-testing.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/21/world/europe/ap-eu-virus-outbreak-italy-testing.html?searchResultPosition=7
 
 **Trump Administration Aims to End Dreamers Immigration Program in Six Months**\
 `The Trump administration is determined to end the Dreamers program that protects immigrants who entered the United States illegally as children within the next six months, the acting head of the Department of Homeland Security said on Sunday.`\
-https://nytimes.com/reuters/2020/06/21/us/politics/21reuters-usa-court-immigration-wolf.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/06/21/us/politics/21reuters-usa-court-immigration-wolf.html?searchResultPosition=8
 
 **No Arrests in Shooting in Seattle Protest Zone That Killed 1**\
 `Seattle police on Sunday pursued their investigation into a weekend shooting in a park in the city's protest zone that killed a 19-year-old man and critically injured another person. No arrests had been made.`\
-https://nytimes.com/aponline/2020/06/21/us/ap-us-america-protests-seattle.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/06/21/us/ap-us-america-protests-seattle.html?searchResultPosition=9
 
 **Bundesliga TV Rights Deal Suggests a Softening Market**\
 `The value of the broadcast rights for Germany’s top league, the first major European soccer deal agreed upon since the health crisis, fell amid concerns about the lasting damage to the global economy.`\
-https://nytimes.com/2020/06/21/sports/soccer/bundesliga-tv-rights.html?searchResultPosition=8
-
-**Queer Butoh: Finding Belonging in the Dance of Darkness**\
-`“People who feel different feel at home in Butoh,” said the founder of an annual performance series, which this year will take place online.`\
-https://nytimes.com/2020/06/21/arts/dance/queer-butoh-virus.html?searchResultPosition=9
-
-**American Airlines Seeks to Raise $1.5 Billion in Stock, Convertible Notes Sale: Bloomberg News**\
-`American Airlines Group Inc is planning to raise around $1.5 billion by selling shares and convertible notes, as the airline shores up liquidity after travel disruption due to coronavirus Bloomberg News reported https://bloom.bg/2AYPaXv on Sunday.`\
-https://nytimes.com/reuters/2020/06/21/business/21reuters-american-airline-offering.html?searchResultPosition=10
+https://nytimes.com/2020/06/21/sports/soccer/bundesliga-tv-rights.html?searchResultPosition=10
 
