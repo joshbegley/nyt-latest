@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/06/21/sports/soccer/ap-soc-english-roundup.htm
 https://nytimes.com/2020/06/21/nyregion/us-attorney-trump-audrey-strauss.html?searchResultPosition=6
 
 **Brazil Passes 50,000 Coronavirus Deaths as Outbreak Worsens**\
-`Brazil officially passed 50,000 coronavirus deaths on Sunday, with more than 1 million total cases, the Health Ministry said. `\
+`Brazil, the world's No. 2 coronavirus hot spot after the United States, officially passed 50,000 coronavirus deaths on Sunday, a blow for a country already grappling with more than 1 million cases, rising political instability and a crippled economy.`\
 https://nytimes.com/reuters/2020/06/21/world/americas/21reuters-health-coronavirus-brazil.html?searchResultPosition=7
 
 **Liverpool Draws at Everton, a Momentary Pause Before Its Party**\
