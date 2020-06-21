@@ -1,5 +1,5 @@
-**Police: Multiple Victims in Minneapolis Shooting**\
-`Multiple people were shot in Minneapolis, police there said early Sunday.`\
+**10 Shot With Injuries of 'Various Severity' in Minneapolis**\
+`At least 10 people were shot in Minneapolis, police there said early Sunday.`\
 https://nytimes.com/aponline/2020/06/21/us/ap-us-minneapolis-shooting.html?searchResultPosition=2
 
 **The Latest: Archbishop Criticizes Toppling of Park Statue**\
