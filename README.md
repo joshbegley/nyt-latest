@@ -6,13 +6,13 @@ https://nytimes.com/2020/06/20/pageoneplus/corrections-june-21-2020.html?searchR
 `Mainland China reported on Sunday 26 new confirmed coronavirus cases for June 20, down from 27 a day earlier, driven largely by the latest outbreak of COVID-19 in the Chinese capital.  `\
 https://nytimes.com/reuters/2020/06/20/world/asia/20reuters-health-coronavirus-china-cases.html?searchResultPosition=3
 
-**Trump Suggests US Slow Virus Testing to Avoid Bad Statistics**\
-`President Donald Trump said Saturday he's asked his administration to slow down coronavirus testing because robust testing turns up too many cases of COVID-19.`\
-https://nytimes.com/aponline/2020/06/20/us/ap-us-election-2020-trump-testing.html?searchResultPosition=4
-
 **Trump Says Will Refile Bid to End Dreamers Program: Fox News Interview**\
 `U.S. President Donald Trump on Saturday said he would mount another bid to end the program that protects so-called Dreamer immigrants who entered the United States illegally as children after a loss in the U.S. Supreme Court.`\
-https://nytimes.com/reuters/2020/06/20/us/politics/20reuters-usa-court-immigration-trump.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/20/us/politics/20reuters-usa-court-immigration-trump.html?searchResultPosition=4
+
+**Trump Suggests US Slow Virus Testing to Avoid Bad Statistics**\
+`President Donald Trump said Saturday he's asked his administration to slow down coronavirus testing because robust testing turns up too many cases of COVID-19.`\
+https://nytimes.com/aponline/2020/06/20/us/ap-us-election-2020-trump-testing.html?searchResultPosition=5
 
 **Quotation of the Day: Latin America Also Confronts Graft Epidemic**\
 `Quotation of the Day for Sunday, June 21, 2020.`\
