@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/06/21/sports/soccer/ap-soc-liverpool-everton.h
 https://nytimes.com/aponline/2020/06/21/sports/ap-car-nascar-talladega-scene.html?searchResultPosition=6
 
 **Atalanta Wins 4-1 to Bring Joy to Hard-Hit Bergamo**\
-`Atalanta gave some much-needed joy to the city of Bergamo as it beat Sassuolo 4-1 in a a poignant  Serie A match on Sunday, starting again from where it left off more than three months ago.`\
+`Soccer resumed in one of the Italian cities hit hardest by the coronavirus pandemic with a poignant  Serie A match on Sunday as Atalanta gave a much-needed boost to the residents of Bergamo.`\
 https://nytimes.com/aponline/2020/06/21/sports/soccer/ap-soc-italian-roundup.html?searchResultPosition=7
 
 **Tennessee Newspaper Investigating 'Horrific' End of Times Ad**\
