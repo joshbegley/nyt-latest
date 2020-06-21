@@ -14,7 +14,7 @@ https://nytimes.com/aponline/2020/06/21/sports/ap-rac-santa-anita-fatalities.htm
 `Liverpool’s title charge has been slowed by the pandemic, and its attacking ruthlessness blunted.`\
 https://nytimes.com/aponline/2020/06/21/sports/soccer/ap-soc-english-roundup.html?searchResultPosition=5
 
-**Trump Fired Her Boss. Now Low-Profile Deputy Steps Into Spotlight.**\
+**Trump Fired Her Boss. Now She’s Taking Cases That Incensed White House.**\
 `Audrey Strauss has been a behind-the-scenes force in the U.S. attorney’s office in Manhattan as it pursued cases against people connected to President Trump.`\
 https://nytimes.com/2020/06/21/nyregion/us-attorney-trump-audrey-strauss.html?searchResultPosition=6
 
