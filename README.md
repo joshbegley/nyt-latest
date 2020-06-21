@@ -31,6 +31,6 @@ https://nytimes.com/reuters/2020/06/21/us/21reuters-health-coronavirus-trump-tes
 https://nytimes.com/reuters/2020/06/21/world/europe/21reuters-health-coronavirus-britain.html?searchResultPosition=9
 
 **UK Park Stabbing Spree Not Being Treated as Terrorism, Minister Says**\
-`Stabbings at a park in the southern English town of Reading,  which left three dead and another three seriously injured, are not currently being treated as terrorism, British health minister Matt Hancock said on Sunday.`\
+`A stabbing rampage in the southern English town of Reading, in which three people were killed and three others were seriously wounded, is not currently being treated as terrorism, British health minister Matt Hancock said on Sunday.`\
 https://nytimes.com/reuters/2020/06/21/world/europe/21reuters-britain-security.html?searchResultPosition=10
 
