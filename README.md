@@ -1,4 +1,4 @@
-**N.Y.P.D. Investigating Arrest After Video Shows Apparent Chokehold**\
+**After Video Shows Apparent Chokehold, N.Y.P.D. Launches Investigation**\
 `The encounter between a black man and police on the Rockaway boardwalk came two weeks after the state made use of chokeholds a felony.`\
 https://nytimes.com/2020/06/21/nyregion/nypd-chokehold-video.html?searchResultPosition=2
 
