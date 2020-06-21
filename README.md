@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/06/21/world/africa/21reuters-somalia-security.h
 `Indian troops backed by artillery and long-range guns fired on villages along the border in the Pakistani-administered side of the Kashmir region, killing a 13-year-old-girl and wounding her mother and brother, local officials and Pakistan’s military said Sunday.`\
 https://nytimes.com/aponline/2020/06/21/world/asia/ap-as-pakistan-kashmir.html?searchResultPosition=6
 
-**10 Shot With Injuries of 'Various Severity' in Minneapolis**\
-`At least 10 people were shot in Minneapolis, police there said early Sunday.`\
+**1 Man Dead, 11 People Wounded in Minneapolis Shooting**\
+`One man is dead and 11 people suffered non-life-threatening wounds in a shooting in Minneapolis, police there said early Sunday.`\
 https://nytimes.com/aponline/2020/06/21/us/ap-us-minneapolis-shooting.html?searchResultPosition=7
 
 **The Latest: Archbishop Criticizes Toppling of Park Statue**\
