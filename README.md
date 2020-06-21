@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/06/21/world/asia/21reuters-serbia-election-resu
 `In a tumultuous week for President Jair Bolsonaro, his education minister resigned and landed in Miami under the cloud of a criminal investigation.`\
 https://nytimes.com/2020/06/21/world/americas/bolsonaro-minister-scandals.html?searchResultPosition=5
 
-**AP Sources: Bundesliga TV Cash Drops With Sky, DAZN Deals**\
-`The growth in the value of Bundesliga TV rights has ended under a new four-year deal secured as the broadcasting industry grapples with the economic consequences of the coronavirus pandemic.`\
+**AP Sources: Bundesliga Media Cash Down With Sky, DAZN Deals**\
+`The growth in the value of Bundesliga broadcast rights has ended under a four-year deal secured as the media industry grapples with the economic consequences of the coronavirus pandemic.`\
 https://nytimes.com/aponline/2020/06/21/business/ap-soc-bundesliga-tv-rights.html?searchResultPosition=6
 
 **FedEx Swaps NASCAR Logos to Spotlight Civil Rights Museum**\
