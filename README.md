@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/06/21/world/europe/ap-eu-slovenia-migrants.htm
 https://nytimes.com/reuters/2020/06/21/us/21reuters-health-coronavirus-pope-environment.html?searchResultPosition=8
 
 **Coronavirus Live Updates: China Blocks Some Imports Over Cases at U.S. Poultry Firm**\
-`Japan’s workers have remained employed in large numbers despite a recession amid the pandemic. And President Trump said at a rally that he wanted to slow down testing.`\
+`Spain’s mainland welcomed international visitors for the first time since a state of emergency was lifted. And President Trump said at a rally that he wanted to slow down testing.`\
 https://nytimes.com/2020/06/21/world/coronavirus-updates.html?searchResultPosition=9
 
 **Injuries at Protests Draw Scrutiny to Use of Police Weaponry**\
