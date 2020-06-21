@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/06/20/world/europe/20reuters-health-coronavirus
 `Mexico on Saturday reported 4,717 new infections and 387 additional deaths from the coronavirus, the health ministry said, bringing the total number in the country to 175,202 cases and 20,781 deaths.`\
 https://nytimes.com/reuters/2020/06/20/world/americas/20reuters-health-coronavirus-mexico-tally.html?searchResultPosition=5
 
-**Biden Raised More Than Trump in May, His First Month Leading the Money Race**\
+**Biden’s $80.8 Million Outpaced Trump’s Fund-Raising in May**\
 `It was a reversal of fortunes for the former vice president and a testament to the advantages of his first full month of fund-raising in concert with the Democratic National Committee.`\
 https://nytimes.com/2020/06/20/us/biden-trump-fundraising.html?searchResultPosition=6
 
