@@ -27,6 +27,6 @@ https://nytimes.com/reuters/2020/06/20/world/europe/20reuters-health-coronavirus
 https://nytimes.com/2020/06/20/us/20IHW-black-lives-matter-protests-brittney-cooper-women.html?searchResultPosition=9
 
 **Jim Kiick, Dolphins' Perfect Season Running Back, Dies at 73**\
-`Jim Kiick, the versatile running back who helped the Miami Dolphins achieve the NFL’s only perfect season in 1972, has died. He was 73.`\
+`Jim Kiick, the versatile running back who helped the Miami Dolphins achieve the NFL’s only perfect season in 1972, died Saturday at age 73 following a battle with Alzheimer's disease, daughter Allie said.`\
 https://nytimes.com/aponline/2020/06/20/sports/football/ap-fbn-obit-kiick.html?searchResultPosition=10
 
