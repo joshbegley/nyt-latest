@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/06/21/world/asia/21reuters-china-steel-demand-a
 https://nytimes.com/reuters/2020/06/21/world/asia/21reuters-health-coronavirus-china-beijing.html?searchResultPosition=8
 
 **Simpson Celebrates a Father's Day Win at Harbour Town**\
-`Webb Simpson celebrated another victory on Father's Day, this time with a tartan jacket instead of a U.S. Open trophy.`\
+`Nothing can top the first time Webb Simpson won on Father's Day, a U.S. Open title eight years ago at Olympic Club and hearing his father's laughter on the phone to share the joy.`\
 https://nytimes.com/aponline/2020/06/21/sports/golf/ap-glf-rbc-heritage.html?searchResultPosition=9
 
 **For Barr, Standoff With Prosecutor Adds to String of Miscues**\
