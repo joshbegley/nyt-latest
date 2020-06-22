@@ -1,32 +1,32 @@
+**Nigeria's WTO Candidate Gets Regional Backing: Document**\
+`The West African regional bloc ECOWAS is backing Nigeria's candidate to head the World Trade Organization (WTO) and calls on other African countries to follow, a document showed on Monday, in a possible step towards uniting Africa behind her. `\
+https://nytimes.com/reuters/2020/06/22/business/22reuters-trade-wto-nigeria.html?searchResultPosition=3
+
+**Who's Bidding to Be Next World Trade Organization Chief?**\
+`The World Trade Organization (WTO) began the process this month of selecting a new director-general to replace Brazil's Roberto Azevedo, who is stepping down a year early at the end of August.`\
+https://nytimes.com/reuters/2020/06/22/business/22reuters-trade-wto-factbox.html?searchResultPosition=4
+
+**Iran to Send Black Boxes From Downed Ukrainian Airliner to France: Zarif**\
+`Iran will send the black boxes from a downed Ukrainian airliner to France, Iranian Foreign Minister Mohammad Javad Zarif said on Monday, according to the official IRNA news agency. `\
+https://nytimes.com/reuters/2020/06/22/world/middleeast/22reuters-iran-france-black-box.html?searchResultPosition=5
+
+**P.G.A. Championship Will Proceed Without Fans**\
+`Men’s golf’s first major tournament of the year will be held Aug. 6 to 9 at San Francisco’s T.P.C. Harding Park. After initially expressing pessimism, California health officials approved the plan.`\
+https://nytimes.com/2020/06/22/sports/golf/pga-championship-san-francisco.html?searchResultPosition=6
+
+**German Prosecutors May Seek Arrest of Former Wirecard Executives, Say Sources**\
+`German prosecutors may issue arrest warrants against former Wirecard bosses Markus Braun and Jan Marsalek as they investigate how $2.1 billion went missing from the electronic payments company, two sources said on Monday.`\
+https://nytimes.com/reuters/2020/06/22/business/22reuters-wirecard-accounts-prosecutors-arrest.html?searchResultPosition=7
+
 **Greenland Statue Attacked as Black Lives Matter Protest Reaches the Arctic**\
 `A statue of a Danish-Norwegian coloniser in Greenland's capital Nuuk was vandalised with red paint and the word "decolonize" on Sunday in a sign that Black Lives Matter movement has reached the Arctic island's indigenous people.`\
-https://nytimes.com/reuters/2020/06/22/world/europe/22reuters-greenland-denmark-racism.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/22/world/europe/22reuters-greenland-denmark-racism.html?searchResultPosition=8
 
 **Credit Suisse Says It Will Delist Volatility ETN**\
 `Credit Suisse Group AG said on Monday that it will delist several exchange-traded notes, including one linked to Wall Street's "fear gauge" that soared during the peak of the sell-off in U.S. stocks.`\
-https://nytimes.com/reuters/2020/06/22/business/22reuters-credit-suisse-gp-etp-delisting.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/22/business/22reuters-credit-suisse-gp-etp-delisting.html?searchResultPosition=9
 
 **Yemen's Government, Separatists Agree on Ceasefire, to Start Talks: Saudi Ambassador to Yemen**\
 `Yemen's government and southern separatist forces have agreed on a ceasefire and will begin talks in Saudi Arabia on implementing a peace deal, the kingdom's ambassador to Yemen said on Monday.`\
-https://nytimes.com/reuters/2020/06/22/world/middleeast/22reuters-yemen-security-separatists.html?searchResultPosition=5
-
-**Stephan L. Kamholz, Chair of Medicine at Maimonides Hospital, Dies at 72**\
-`Dr. Kamholz was working hard on the front lines of a Brooklyn hospital swamped by the coronavirus. Then the virus got him.`\
-https://nytimes.com/2020/06/22/nyregion/stephan-kamholz-dead-coronavirus.html?searchResultPosition=6
-
-**Nigerian Doctors Suspend Strike Over Benefits to Hold Talks**\
-`Resident doctors in Nigerian public hospitals have suspended a strike they began last week in which they demanded better benefits, including the provision of more protective equipment, as they battle the coronavirus, the union said on Monday.`\
-https://nytimes.com/reuters/2020/06/22/world/africa/22reuters-health-coronavirus-nigeria-healthcare.html?searchResultPosition=7
-
-**Germany's Scholz Says Lufthansa Talks Were Good**\
-`The German government on Monday held last-ditch talks about a 9 billion euros Lufthansa bailout on Monday, Finance Minister Olaf Scholz said, as Berlin politicians seek to resolve a standoff with a key shareholder in the airline.`\
-https://nytimes.com/reuters/2020/06/22/business/22reuters-lufthansa-restructuring-germany-scholz.html?searchResultPosition=8
-
-**Sahara Dust Blankets Caribbean, Air Quality Hazardous**\
-`A vast cloud of Sahara dust is blanketing the Caribbean as it heads to the U.S. with a size and concentration that experts say hasn’t been seen in half a century.`\
-https://nytimes.com/aponline/2020/06/22/world/americas/ap-cb-caribbean-sahara-dust.html?searchResultPosition=9
-
-**China Must Redress 'Unbalanced' Trade Ties, Says EU's Von Der Leyen**\
-`The European Union is demanding that China redress an "unbalanced" trade and investment relationship and open its markets wider to European firms, European Commission President Ursula von der Leyen said on Monday.`\
-https://nytimes.com/reuters/2020/06/22/technology/22reuters-eu-china-summit-vonderleyen.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/22/world/middleeast/22reuters-yemen-security-separatists.html?searchResultPosition=10
 
