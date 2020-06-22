@@ -1,32 +1,32 @@
+**Federal Authorities Investigating Noose in Bubba Wallace’s Garage**\
+`The United States attorney in Birmingham, Ala., said officials were examining whether there were “violations of federal law." The garage was fitted with surveillance cameras.`\
+https://nytimes.com/2020/06/22/sports/autoracing/bubba-wallace-noose-nascar.html?searchResultPosition=3
+
+**WHO Says It Will Issue Guidance on Air Travel in Coming Days**\
+`The World Health Organization will issue further guidance on air travel in coming days as countries open up from their coronavirus lockdowns, the WHO's Mike Ryan said on Monday.`\
+https://nytimes.com/reuters/2020/06/22/world/asia/22reuters-health-coronavirus-who-travel.html?searchResultPosition=4
+
+**Mexican Central Bank Seen Cutting Rates 50 Basis Points: Reuters Poll**\
+`Mexico's central bank will likely cut its key interest rate again later this week to alleviate the impact of the coronavirus pandemic on the economy, while inflation remains contained, a Reuters poll showed Monday.`\
+https://nytimes.com/reuters/2020/06/22/world/americas/22reuters-mexico-cenbank.html?searchResultPosition=5
+
+**With Oscars Moved, Golden Globes Take the Date**\
+`The awards show will be held on Feb. 28, a date the Academy Awards abandoned last week because Hollywood has largely been halted by the coronavirus pandemic.`\
+https://nytimes.com/2020/06/22/business/media/golden-globes-oscars-february.html?searchResultPosition=6
+
+**Kosovo Court Jails Serb Ex-Army Officer for War Crimes**\
+`A Kosovo court on Monday jailed a former Serb army police reserve officer for 22 years for crimes committed during the 1998-1999 war.`\
+https://nytimes.com/aponline/2020/06/22/world/europe/ap-eu-kosovo-war-crimes.html?searchResultPosition=7
+
 **How to Start Meditating**\
 `The world is stressful. That’s especially true right now. Here are strategies to take just a few minutes every day to calm your mind and check in with yourself.`\
-https://nytimes.com/2020/06/22/at-home/how-to-start-meditating.html?searchResultPosition=3
+https://nytimes.com/2020/06/22/at-home/how-to-start-meditating.html?searchResultPosition=8
 
 **Your Kid Probably Doesn’t Have a Penicillin Allergy**\
 `Research shows that most kids labeled allergic to penicillin actually aren’t. Here’s how to find out for sure.`\
-https://nytimes.com/2020/06/22/parenting/penicillin-allergy-kids.html?searchResultPosition=4
+https://nytimes.com/2020/06/22/parenting/penicillin-allergy-kids.html?searchResultPosition=9
 
 **FIFA and EA Sports Launch eChallenger Series in Asia**\
 `Real-life professional soccer players will team up with esport gamers and social media influencers to compete in a new four-nation eChallenger series for Asia, organisers EA Sports and FIFA said on Monday.`\
-https://nytimes.com/reuters/2020/06/22/sports/soccer/22reuters-esports-soccer-fifa.html?searchResultPosition=5
-
-**Coronavirus Comes to the World’s Longest-Running Soap Opera**\
-`“Coronation Street,” which has been airing in Britain since 1960, usually ignores news events. But as filming resumes, the pandemic is being incorporated into the show.`\
-https://nytimes.com/2020/06/22/arts/television/coronation-street-coronavirus.html?searchResultPosition=6
-
-**Mexico to Offer $11 Billion in Auctions via Fed Swap Mechanism**\
-`Mexico will put up a total of $11 billion in two auctions via a swap mechanism agreed with the U.S. Federal Reserve earlier this year, Mexico's currency commission said on Monday.`\
-https://nytimes.com/reuters/2020/06/22/world/americas/22reuters-mexico-auctions.html?searchResultPosition=7
-
-**South Africa to Oppose Airlink's Bid to Halt SAA Creditors Meeting**\
-`South Africa plans to oppose an application by regional airline Airlink to put South African Airways (SAA) into provisional liquidation and prevent a meeting of SAA's creditors to discuss a restructuring plan, the government said on Monday.`\
-https://nytimes.com/reuters/2020/06/22/business/22reuters-safrica-saa.html?searchResultPosition=8
-
-**PGA Championship to Go Ahead Without Fans**\
-`The PGA Championship will be held in August without spectators, the tour said on Monday, citing health and safety concerns due to the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/06/22/sports/golf/22reuters-health-coronavirus-golf-pgachamp.html?searchResultPosition=9
-
-**Rights Watchdog Urges France to Fight Racial Discrimination**\
-`France’s human rights watchdog on Monday urged authorities to take key measures to fight racial discrimination as the country has seen a series of anti-racism gatherings in the wake of the death in the U.S. of George Floyd.`\
-https://nytimes.com/aponline/2020/06/22/world/europe/ap-eu-france-racial-discrimination.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/22/sports/soccer/22reuters-esports-soccer-fifa.html?searchResultPosition=10
 
