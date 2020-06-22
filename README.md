@@ -1,28 +1,28 @@
+**Twenty Civilians Killed in Attacks on Northeastern Congo Villages**\
+`At least 20 civilians were killed in attacks on two villages in northeastern Democratic Republic of Congo over the weekend, the army said on Monday, the latest in a surge of ethnic violence that has forced more than 200,000 people from their homes.`\
+https://nytimes.com/reuters/2020/06/22/world/africa/22reuters-congo-security.html?searchResultPosition=4
+
+**U.S. Officials to Meet This Week on Israel Annexation Plan**\
+`U.S. officials will gather this week to discuss whether to give Israel a green light for its plan to annex Jewish settlements in the occupied West Bank, as Israeli Prime Minister Benjamin Netanyahu's target date of July 1 approaches.`\
+https://nytimes.com/reuters/2020/06/22/world/middleeast/22reuters-mideast-usa-trump.html?searchResultPosition=5
+
+**Gen Z Will Not Save Us**\
+`Online activism by today’s young people is complex and not monolithic.`\
+https://nytimes.com/2020/06/22/opinion/trump-protest-gen-z.html?searchResultPosition=6
+
 **UN: Pandemic Appears to Be Peaking in Several Big Countries**\
 `A record level of new daily COVID-19 cases worldwide could suggest the pandemic is peaking in some large countries, even as the coronavirus has become "well established" in some regions, the World Health Organization's emergencies chief said Monday. `\
-https://nytimes.com/aponline/2020/06/22/business/ap-eu-virus-outbreak-who-pandemic-peaking.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/22/business/ap-eu-virus-outbreak-who-pandemic-peaking.html?searchResultPosition=7
 
 **Serbia, Kosovo to Resume EU-Brokered Talks in July: EU Envoy**\
 `EU-mediated negotiations aimed at normalising relations between Serbia and Kosovo will restart in July after being stalled for almost two years, EU envoy Miroslav Lajcak said on Monday.`\
-https://nytimes.com/reuters/2020/06/22/world/europe/22reuters-eu-serbia-kosovo.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/22/world/europe/22reuters-eu-serbia-kosovo.html?searchResultPosition=8
 
 **Saudi Arabia to Hold Haj With Very Limited Numbers for All Nationalities Living Inside Kingdom**\
 `Saudi Arabia will hold haj this year for very limited numbers of citizens and residents of all nationalities living inside the country, to control the spread of the coronavirus, the state news agency reported on Monday.`\
-https://nytimes.com/reuters/2020/06/22/world/middleeast/22reuters-saudi-haj.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/06/22/world/middleeast/22reuters-saudi-haj.html?searchResultPosition=9
 
 **Saudi Arabia to Hold 'Very Limited' Hajj Due to Virus**\
-`Saudi Arabia says this year’s hajj will not be canceled, but that due to the coronavirus only “very limited numbers” of people will be allowed to perform the major Muslim pilgrimage. `\
-https://nytimes.com/aponline/2020/06/22/world/middleeast/ap-ml-virus-outbreak-hajj.html?searchResultPosition=7
-
-**Tennis: Djokovic Should Feel Responsible After COVID Positives, Says Evans**\
-`World number one Novak Djokovic should put his hand up and accept responsibility after Grigor Dimitrov and Borna Coric tested positive for COVID-19 while participating in his Adria Tour exhibition tournament, Briton Dan Evans said on Monday.`\
-https://nytimes.com/reuters/2020/06/22/sports/tennis/22reuters-health-coronavirus-tennis-evans.html?searchResultPosition=8
-
-**House Panel Sets Hearing on Firing of State Dept Watchdog**\
-`The U.S. House of Representatives Foreign Affairs Committee said on Monday it scheduled a July 2 hearing in its investigation of the firing of the State Department's inspector general, with testimony from a top aide to Secretary of State Mike Pompeo.`\
-https://nytimes.com/reuters/2020/06/22/us/politics/22reuters-usa-trump-inspectorgeneral.html?searchResultPosition=9
-
-**France's Macron Says Turkey Playing 'Dangerous Game' in Libya**\
-`French President Emmanuel Macron pointed the finger at Turkey on Monday over its support of the internationally recognised government in Libya, saying Turkey was playing "a dangerous game" that went against everything it had agreed to in international talks.`\
-https://nytimes.com/reuters/2020/06/22/world/europe/22reuters-libya-security-france-turkey.html?searchResultPosition=10
+`Saudi Arabia said Monday that this year’s hajj will not be canceled, but that due to the coronavirus only “very limited numbers” of people will be allowed to perform the major Muslim pilgrimage. `\
+https://nytimes.com/aponline/2020/06/22/world/middleeast/ap-ml-virus-outbreak-hajj.html?searchResultPosition=10
 
