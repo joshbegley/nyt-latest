@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/06/21/world/asia/ap-as-koreas-tensions.html?se
 `The number of confirmed coronavirus cases in Germany increased by 537 to 190,359, data from the Robert Koch Institute (RKI) for infectious diseases showed on Monday.`\
 https://nytimes.com/reuters/2020/06/21/world/europe/21reuters-health-coronavirus-germany-cases.html?searchResultPosition=6
 
-**NASCAR to Investigate After Noose Found in Wallace's Garage**\
+**NASCAR to Investigate After Noose Found in Bubba Wallace's Garage**\
 `NASCAR has launched an investigation after a noose was found in a garage stall at Talladega belonging to Bubba Wallace, the only Black driver competing in its top Cup series.`\
 https://nytimes.com/reuters/2020/06/21/sports/autoracing/21reuters-motor-nascar.html?searchResultPosition=7
 
