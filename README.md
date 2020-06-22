@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/06/22/us/politics/ap-us-election-2020-voting-p
 `Shortly before Manhattan’s top federal prosecutor Geoffrey Berman was forced out of his post on Friday, he refused to sign off on a letter from the U.`\
 https://nytimes.com/reuters/2020/06/22/us/politics/22reuters-usa-justice-berman-letter.html?searchResultPosition=9
 
-**Spirit Aero Says Boeing Has Asked It to Further Cut 737 Production**\
-`Spirit AeroSystems Holdings Inc said on Monday customer Boeing Co has asked the aero parts maker to reduce 2020 737 production to just 72 shipsets, from 125 planned earlier.`\
+**Spirit Says It May Breach Financial Covenants After Deeper 737 Production Cut**\
+`Spirit AeroSystems Holdings said on Monday it was at a risk of breaching its financial covenants, as top customer Boeing Co has asked the aero parts maker to substantially reduce 737 production this year due to the coronavirus crisis.`\
 https://nytimes.com/reuters/2020/06/22/business/22reuters-spirit-aerosystm-boeing.html?searchResultPosition=10
 
