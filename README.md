@@ -3,7 +3,7 @@
 https://nytimes.com/2020/06/22/us/politics/us-china-news-organizations.html?searchResultPosition=4
 
 **U.S. Designates Four Major Chinese Media Outlets as Foreign Missions**\
-`The United States announced on Monday it would start treating four major Chinese media outlets as foreign embassies, a move that will restrict their operations on American soil.`\
+`The United States will start treating four major Chinese media outlets as foreign embassies, it said on Monday, a move that will restrict their operations on American soil.`\
 https://nytimes.com/reuters/2020/06/22/world/asia/22reuters-usa-china-media-restrictions.html?searchResultPosition=5
 
 **Saudi Coalition Intercepts Drones Laden With Explosives Launched by Houthis**\
