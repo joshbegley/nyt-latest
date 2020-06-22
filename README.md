@@ -1,28 +1,28 @@
+**Watch This: ‘Search Party’ and ‘Greenleaf’ Are Back**\
+`Or check out a buoyant and unexpected music documentary.`\
+https://nytimes.com/2020/06/22/arts/television/search-party-greenleaf.html?searchResultPosition=4
+
+**Air Canada Raises Additional C$1.23 Billion**\
+`Air Canada said on Monday it had closed two additional financing deals for net proceeds of C$1.23 billion ($909 million), as it shores up funds to meet expenses amid the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/06/22/us/22reuters-air-canada-financing.html?searchResultPosition=5
+
+**Ancient Rome Was Teetering. Then a Volcano Erupted 6,000 Miles Away.**\
+`Scientists have linked historical political instability to a number of volcanic events, the latest involving an eruption in the Aleutian Islands.`\
+https://nytimes.com/2020/06/22/science/rome-caesar-volcano.html?searchResultPosition=6
+
+**Cowboys' Prescott Signs $31M Tag, Still Time for Longer Deal**\
+`Dak Prescott plans to be at training camp with the Dallas Cowboys, if and when it starts, on the richest one-year contract in franchise history. `\
+https://nytimes.com/aponline/2020/06/22/sports/football/ap-fbn-cowboys-prescott.html?searchResultPosition=7
+
+**Ackman Sees Economy Beginning to Recover in 2020, True Confidence Will Take Time**\
+`Billionaire investor William Ackman, whose hedge fund survived a historic stock market sell-off with double-digit gains, said it will take until the middle of 2021, at least, for the economy to shake off the worst effects of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/06/22/business/22reuters-hedgefunds-ackman.html?searchResultPosition=8
+
+**Fans Turn Up Heat for ABC's Canceled 'Baker and the Beauty'**\
+`With cries for equality and justice ringing in the streets, a petition drive to rescue a canceled television series may seem inconsequential.`\
+https://nytimes.com/aponline/2020/06/22/us/ap-us-tv-baker-and-the-beauty.html?searchResultPosition=9
+
 **Betraying Frustration with China, E.U. Leaders Press for Progress on Trade Talks**\
 `A first summit meeting between a new European leadership and China’s Xi Jinping yielded little, not even a joint statement.`\
-https://nytimes.com/2020/06/22/world/europe/china-eu-trade-talks.html?searchResultPosition=4
-
-**‘The Whole Audience Was Vibrating’: Your Memorable Performances**\
-`They’re never gone: Star turns from Ralph Fiennes, Meryl Streep, Gregory Hines and Christopher Plummer still live in the mind’s eye of readers.`\
-https://nytimes.com/2020/06/22/theater/mythic-performances-reader-choices.html?searchResultPosition=5
-
-**Peru Indigenous Leaders Push Quick Amazon Protection Vote, Defying Oil Industry**\
-`Peru's indigenous leaders have been lobbying lawmakers to pass a bill to declare swathes of virgin Amazon rainforest off limits to outsiders, but they fear opposition by the oil industry may scupper a rare opportunity to secure a vote this week.`\
-https://nytimes.com/reuters/2020/06/22/world/americas/22reuters-peru-indigenous-oil.html?searchResultPosition=6
-
-**Orlando Pride Pull Out of NWSL Tournament After Positive COVID-19 Tests**\
-`The Orlando Pride will not play in the National Women's Soccer League (NWSL) Challenge Cup, which is set to kick off on Saturday, after players and staff members tested positive for COVID-19.`\
-https://nytimes.com/reuters/2020/06/22/sports/soccer/22reuters-health-coronavirus-soccer-nwsl.html?searchResultPosition=7
-
-**Trump Rails Against Mail Voting. His Aides Have Embraced It**\
-`A half-dozen senior advisers to President Donald Trump have repeatedly voted by mail, according to election records obtained by The Associated Press, undercutting the president’s argument that the practice will lead to widespread fraud this November. `\
-https://nytimes.com/aponline/2020/06/22/us/politics/ap-us-election-2020-trump-advisers-voting.html?searchResultPosition=8
-
-**Trump: US Doing 'Too Good a Job' on Testing**\
-`President Donald Trump said Monday the United States has done “too good a job” on testing for cases of COVID-19, even as his staff insisted the president was only joking when he said over the weekend that he had instructed aides to “slow the testing down, please.”`\
-https://nytimes.com/aponline/2020/06/22/us/politics/ap-us-virus-outbreak-trump-testing.html?searchResultPosition=9
-
-**Biden Campaign Dismisses Trump Request for 4th Debate as ‘Distraction’**\
-`In a letter to the nonprofit Commission on Presidential Debates, Joe Biden’s campaign manager criticized efforts by the Trump campaign to expand the debate schedule and negotiate other details.`\
-https://nytimes.com/2020/06/22/us/politics/trump-vs-biden-presidential-debates.html?searchResultPosition=10
+https://nytimes.com/2020/06/22/world/europe/china-eu-trade-talks.html?searchResultPosition=10
 
