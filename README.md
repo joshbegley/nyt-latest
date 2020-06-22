@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/06/22/technology/22reuters-health-coronavirus-c
 `The Trump administration said Monday that it is designating the U.S. operations of four major Chinese media outlets as “foreign missions” in an action that could force some of their journalists to leave the country and further worsen diplomatic relations.`\
 https://nytimes.com/aponline/2020/06/22/us/politics/ap-us-united-states-china.html?searchResultPosition=7
 
-**Why a Rotting Green Bay Boardwalk May Solve America’s Jobs Crisis**\
+**Why a Rotting Green Bay Boardwalk May Help Solve America’s Jobs Crisis**\
 `Some cities and states are looking toward a simple solution to mass unemployment: hire workers directly.`\
 https://nytimes.com/2020/06/22/business/americans-public-works-jobs-coronavirus.html?searchResultPosition=8
 
