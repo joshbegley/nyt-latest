@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/06/21/sports/golf/21reuters-golf-heritage.html?
 `After a three-hour storm delay, Simpson ran off five birdies in a six-hole stretch on the back nine for a one-shot victory over Abraham Ancer.`\
 https://nytimes.com/2020/06/21/sports/golf/webb-simpson-rbc-heritage.html?searchResultPosition=3
 
-**Eight Chinese School Children Drown in River in Chongqing**\
-`Chinese state media say 8 elementary school students have drowned after one fell into a river and others jumped in to help. `\
+**8 Young Children Drown in River in Southwestern Chinese City**\
+`Chinese state media say 8 children have drowned after one fell into a river and others jumped in to help. `\
 https://nytimes.com/aponline/2020/06/21/world/asia/ap-as-china-children-drown.html?searchResultPosition=4
 
 **New Zealand Central Bank to Stand Pat but Keep Dovish View, as Pandemic Rages: Reuters Poll**\
