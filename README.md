@@ -1,28 +1,28 @@
+**U.S. Emergency Visits Due to Heart Attacks Fell During Early Days of COVID-19**\
+`Fewer Americans were admitted to emergency departments with life-threatening conditions such as heart attacks during the initial months of the COVID-19 pandemic, U.S. researchers said on Monday. `\
+https://nytimes.com/reuters/2020/06/22/us/22reuters-health-coronavirus-emergency-dept.html?searchResultPosition=4
+
+**White House Scales Back Temperature Checks**\
+`Visitors are able to enter the White House complex without having their temperatures checked for the first time since mid-March, although several other coronavirus precautions remain in place. `\
+https://nytimes.com/aponline/2020/06/22/us/politics/ap-us-virus-outbreak-white-house.html?searchResultPosition=5
+
+**Indiana Woman Enjoys 100th Birthday After Surviving COVID-19**\
+`A 100-year-old Indiana woman who has lived through World War II, survived cancer and successfully battled her way back from a bout of pneumonia last year, learned earlier this month that she’s also a survivor of COVID-19. `\
+https://nytimes.com/aponline/2020/06/22/us/ap-us-virus-outbreak-centenarian-survivor.html?searchResultPosition=6
+
+**Canada's Biggest City Toronto to Reopen Businesses, Ending Three-Month Lockdown**\
+`Toronto, Canada's biggest city and its financial capital, will allow businesses to reopen starting Friday, as it joins other regions in the province of Ontario in ending a three-month pandemic lockdown, Ontario Premier Doug Ford said on Monday.`\
+https://nytimes.com/reuters/2020/06/22/world/americas/22reuters-health-coronavirus-canada.html?searchResultPosition=7
+
+**Dior Revives Fashion Shows-But With No Front Row**\
+`French luxury label Christian Dior said on Monday it would press ahead with a calendar of fashion shows for this year starting in July with an Italian catwalk display - but without the celebrated front-row audience of A-listers.`\
+https://nytimes.com/reuters/2020/06/22/business/22reuters-lvmh-dior.html?searchResultPosition=8
+
+**Soaring Demand and Sagging Spirits at Casket Maker in Peru**\
+`Business is booming at the Eternal Rest coffin-making shop in Lima, a sad turn of events for shop owner Genaro Cabrera who spoke of his distress at the pandemic that him churning out 30 caskets a day, up from a 30 a month before the coronavirus hit.`\
+https://nytimes.com/reuters/2020/06/22/world/americas/22reuters-health-coronavirus-peru-coffins.html?searchResultPosition=9
+
 **Russia Jails Anti-Kremlin Prankster for 15 Days for Petty Hooliganism**\
 `A Moscow court jailed Pyotr Verzilov, an anti-Kremlin activist and associate of the Pussy Riot punk group, for 15 days on Monday after finding him guilty of petty hooliganism for swearing in public. `\
-https://nytimes.com/reuters/2020/06/22/world/europe/22reuters-russia-activist.html?searchResultPosition=4
-
-**A Sweet-Tart Treat for Summer**\
-`These bars taste like Key lime pie but they’re so much easier to share (and easier to make).`\
-https://nytimes.com/2020/06/22/dining/key-lime-pie-bars-recipe.html?searchResultPosition=5
-
-**U.S. Coronavirus Deaths Reach Over 120,000 as New Hot Spots Emerge: Reuters Tally**\
-`The death toll from the novel coronavirus reached over 120,000 in the United States, according to a Reuters tally on Monday, as new cases spike in several states.`\
-https://nytimes.com/reuters/2020/06/22/world/americas/22reuters-health-coronavirus-usa-casualties.html?searchResultPosition=6
-
-**Eurobank FPS Loan Servicer Renamed doValue-Greece After Sale**\
-`Eurobank's loan servicing unit FPS, which is being bought by Italian debt recovery firm doValue, will be renamed doValue-Greece, Eurobank said on Monday.`\
-https://nytimes.com/reuters/2020/06/22/business/22reuters-eurobank-dovalue-loans.html?searchResultPosition=7
-
-**Lil Baby, Building Momentum, Earns a Third Week at No. 1**\
-`The Atlanta rapper’s “My Turn,” released in March, is only the third album of 2020 to hold the top spot on Billboard’s chart for three weeks.`\
-https://nytimes.com/2020/06/22/arts/music/lil-baby-my-turn-no-1.html?searchResultPosition=8
-
-**Armenian Parliament Approves Amendments to Constitutional Court**\
-`Armenia's parliament approved constitutional amendments on Monday that allow for the suspension of three judges on the Constitutional Court and the election of its new head, moves the opposition said were politically motivated.`\
-https://nytimes.com/reuters/2020/06/22/world/22reuters-armenia-parliament-court.html?searchResultPosition=9
-
-**Construction of Austrian Holocaust Victims' Memorial Begins**\
-`Construction of Austria's first public monument naming all the country's Holocaust victims began on Monday, a further step by Adolf Hitler's native land towards confronting an issue it has long struggled with.`\
-https://nytimes.com/reuters/2020/06/22/world/europe/22reuters-austria-holocaust.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/22/world/europe/22reuters-russia-activist.html?searchResultPosition=10
 
