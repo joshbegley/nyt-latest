@@ -1,28 +1,28 @@
+**Black Employees: Don’t Sign Away Your Right to Speak Out**\
+`Racial microaggressions at work are real, and must not be swept under the rug.`\
+https://nytimes.com/2020/06/23/opinion/nda-racism-separation-agreements.html?searchResultPosition=4
+
+**U.S. CDC Reports 2,302,288 Coronavirus Cases**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Tuesday reported 2,302,288 cases of the new coronavirus, an increase of 26,643 cases from its previous count, and said the number of deaths had risen by 410 to 120,333.`\
+https://nytimes.com/reuters/2020/06/23/us/23reuters-health-coronavirus-usa-cdc.html?searchResultPosition=5
+
+**Rural Missouri Pastor: Virus 'Just Started to Sprout Up'**\
+`Pastor Joshua Manning is waiting for test results, but he can tell by the persistent fever and body aches that he probably has the coronavirus.`\
+https://nytimes.com/aponline/2020/06/23/us/ap-us-virus-outbreak-missouri.html?searchResultPosition=6
+
+**Mall Evacuated After Package Found Near Wisconsin GOP Office**\
+`Police in western Wisconsin evacuated a mall and called in a bomb squad after a package made out of a military-grade ammunition can was found Tuesday outside a local Republican Party campaign office.`\
+https://nytimes.com/aponline/2020/06/23/us/ap-us-suspicious-package-wisconsin-gop.html?searchResultPosition=7
+
+**McConnell: Senate Police Reform Drive Will Not End if Key Vote Fails**\
+`Senate Majority Leader Mitch McConnell said on Tuesday that the Republican-controlled chamber's efforts to pass police reform legislation will not end, if a key procedural vote to move forward with debate fails.`\
+https://nytimes.com/reuters/2020/06/23/us/politics/23reuters-minneapolis-police-mcconnell.html?searchResultPosition=8
+
+**Jimmy Kimmel Apologizes for Use of Blackface in Past Comedy Sketches**\
+`Kimmel, the host of ABC’s “Jimmy Kimmel Live,” said he was sorry to “those who were genuinely hurt or offended by the makeup I wore or the words I spoke.”`\
+https://nytimes.com/2020/06/23/arts/television/jimmy-kimmel-apologizes-blackface.html?searchResultPosition=9
+
 **Virus Fallout Forces U.S. Cities to Cut Budgets, Projects: Survey**\
 `U.S. cities are laying off workers, shelving infrastructure projects and delaying or canceling equipment purchases as the economic fallout from the cornonavirus outbreak ravages their budgets and federal funds remain elusive, a survey released on Tuesday showed.`\
-https://nytimes.com/reuters/2020/06/23/us/23reuters-health-coronavirus-usa-cities.html?searchResultPosition=4
-
-**Exclusive: U.S. Development Agency Could Loan Billions for Reshoring, Official Says**\
-`U.S. government financing for projects to return critical supply chains to the United States as part of coronavirus response efforts could reach tens of billions of dollars and clients may include a $12-billion Taiwanese semiconductor plant, the head of the agency managing the funds told Reuters.`\
-https://nytimes.com/reuters/2020/06/23/world/americas/23reuters-usa-trade-reshoring-exclusive.html?searchResultPosition=5
-
-**Q&A: Jon Stewart Is Still Fighting for the Middle Ground**\
-`When Jon Stewart signed off from the “The Daily Show” five years ago, he didn't say goodbye. “The conversation isn't ending," Stewart said. `\
-https://nytimes.com/aponline/2020/06/23/us/ap-us-film-jon-stewart.html?searchResultPosition=6
-
-**Museum of Jewish Heritage Lays Off Over 40 Percent of Its Staff**\
-`Other employees face “new roles or reduced hours” as well, as the museum struggles with finances because of the pandemic.`\
-https://nytimes.com/2020/06/23/arts/design/museum-of-jewish-heritage-layoffs-covid.html?searchResultPosition=7
-
-**Tanzania Arrests Opposition Party Leader, Revokes Newspaper Licence**\
-`Tanzanian opposition party leader Zitto Kabwe and eight other members were arrested on Tuesday for holding an illegal assembly, the party said, accusing the government of repression ahead of October's presidential election.`\
-https://nytimes.com/reuters/2020/06/23/world/africa/23reuters-tanzania-politics.html?searchResultPosition=8
-
-**Film Producer, Wealthy Heir, Political Donor Steve Bing Dies**\
-`Movie producer, film financier, real estate heir and major Democratic political donor Steve Bing has died. He was 55.`\
-https://nytimes.com/aponline/2020/06/23/us/ap-us-obit-steve-bing.html?searchResultPosition=9
-
-**Roger Stone Sentencing Was Politicized, Ex-Prosecutor Plans to Testify**\
-`The prosecutor’s supervisor said that the case was being treated differently because of the defendant’s relationship with the president, according to planned testimony.`\
-https://nytimes.com/2020/06/23/us/politics/roger-stone-sentencing-politicized.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/23/us/23reuters-health-coronavirus-usa-cities.html?searchResultPosition=10
 
