@@ -1,28 +1,28 @@
-**It’s a Wonderful Time to Be Leslie Jordan**\
-`The sitcom actor, known for roles in “Will & Grace” and “Murphy Brown,” wanted attention his whole life. Naturally, he discovered Instagram.`\
-https://nytimes.com/2020/06/23/style/leslie-jordan-instagram.html?searchResultPosition=4
+**Cade Cunningham Will Stay Committed to Oklahoma State**\
+`The 6-foot-7 point guard, who is among the top players in his high school class, had other options to consider after the N.C.A.A. banned the Cowboys from the 2020-21 postseason.`\
+https://nytimes.com/2020/06/23/sports/ncaabasketball/cade-cunningham-oklahoma-state.html?searchResultPosition=4
 
-**Detained in Isolation, Migrant Families Fear Catching Virus**\
-`In the isolation wing of a U.S. detention center for immigrant families, a woman from El Salvador says her 8-year-old son asks her if they are going to die.`\
-https://nytimes.com/aponline/2020/06/23/us/ap-us-virus-outbreak-immigration-detention.html?searchResultPosition=5
+**Eton Apologizes for Racist Treatment of One of Its First Black Students**\
+`The former pupil, Dillibe Onyeama, said that after he published a book in 1972 detailing his abuse at the school, he was told never to return. The current principal said he was “appalled.”`\
+https://nytimes.com/2020/06/23/world/europe/eton-racism-black-student.html?searchResultPosition=5
 
-**Despite Green Pledges, Amazon’s Carbon Footprint Grew 15%**\
-`Amazon said Tuesday that its carbon footprint rose 15% last year, even as it launched initiatives to reduce its harm on the environment.`\
-https://nytimes.com/aponline/2020/06/23/business/bc-us-amazon-carbon-footprint.html?searchResultPosition=6
+**Biden's First Campaign Fundraiser With Obama Set to Raise $4 Million**\
+`U.S. Democratic presidential candidate Joe Biden's first 2020 fundraiser with former President Barack Obama has netted more than $4 million from more than 120,000 people ahead of their joint appearance on Tuesday, the campaign said.`\
+https://nytimes.com/reuters/2020/06/23/us/politics/23reuters-usa-election-biden.html?searchResultPosition=6
 
-**Czech Parliament Gives Initial Nod to Raising 2020 Budget Gap to 9% of GDP**\
-`The lower house of Czech parliament approved raising the 2020 central state budget deficit to record 500 billion crowns ($21.21 billion) in the first out of three readings on Tuesday, as the government seeks funds to bolster the economy hit by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-czech-budget.html?searchResultPosition=7
+**Police Union Says It's Been 'Scapegoated' After Floyd Death**\
+`Leaders of the Minneapolis police union acknowledged Tuesday that bystander video of the police encounter with George Floyd was “horrific” but said they've been denied the chance to look at body camera video that could shed more light on what happened before Floyd ended up on the ground.`\
+https://nytimes.com/aponline/2020/06/23/us/ap-us-george-floyd-minneapolis-police.html?searchResultPosition=7
 
-**Wirecard Lenders Mandate FTI Consulting as Financial Adviser in Talks With Company: Sources**\
-`Wirecard's lenders have mandated FTI Consulting as financial adviser in talks with company, people close to the matter told Reuters. `\
-https://nytimes.com/reuters/2020/06/23/business/23reuters-wirecard-accounts-lenders.html?searchResultPosition=8
+**Masks Keep Us Safe. They Also Hide Our Smiles.**\
+`Face coverings may be here for a while. How can we adapt to a world where facial expressions are invisible?`\
+https://nytimes.com/2020/06/23/style/face-mask-emotion-coronavirus.html?searchResultPosition=8
 
-**North Macedonia: 64 Bangladeshi Migrants Found in Truck**\
-`Police in North Macedonia say 64 Bangladeshi migrants have been found in a truck on a highway near the country’s border with Greece.`\
-https://nytimes.com/aponline/2020/06/23/world/europe/ap-eu-north-macedonia-migrants.html?searchResultPosition=9
+**Fed Isn't Fueling U.S. Inequality, Daly Says**\
+`San Francisco Federal Reserve President Mary Daly on Tuesday defended the U.S. central bank from criticism that its easy monetary policy and emergency lending programs are doing more to help the rich than the poor. `\
+https://nytimes.com/reuters/2020/06/23/business/23reuters-usa-fed-daly.html?searchResultPosition=9
 
-**Thai Cabinet Approves Draft Laws Against Torture, Abductions**\
-`Thailand’s Cabinet has approved draft laws on prevention of torture and forced disappearances, a measure that has long been sought by human rights activists.`\
-https://nytimes.com/aponline/2020/06/23/world/asia/ap-as-thailand-human-rights.html?searchResultPosition=10
+**Israeli Troops Kill Palestinian Who Attempted Car-Ramming in West Bank: Police**\
+`Israeli police on Tuesday shot and killed a Palestinian who they said tried to run over an officer with his car in the occupied West Bank. `\
+https://nytimes.com/reuters/2020/06/23/world/middleeast/23reuters-israel-palestinians-violence.html?searchResultPosition=10
 
