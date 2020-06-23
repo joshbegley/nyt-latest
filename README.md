@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/06/23/us/23reuters-minneapolis-police-atlanta-f
 `How a once low-profile Senate primary in Kentucky reveals a broader ideological challenge for the Democratic Party.`\
 https://nytimes.com/2020/06/23/podcasts/the-daily/kentucky-democratic-primary.html?searchResultPosition=5
 
-**Listen to ‘The Daily’: A Reckoning for the Democratic Party**\
+**Listen to ‘The Daily’: The Battle for the Senate’s Future**\
 `How a once low-profile Senate primary in Kentucky reveals a broader ideological challenge for the Democratic Party.`\
 https://nytimes.com/audio/2020/06/23/podcasts/the-daily/23daily-audio.html?searchResultPosition=6
 
