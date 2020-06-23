@@ -1,28 +1,28 @@
+**Aruba Bans Blackface Makeup During Annual Dutch Celebration**\
+`The Dutch Caribbean island of Aruba will ban the blackface makeup worn every December during Sinterklaas, a celebration of St. Nicholas in which white people often dress up as a children’s character called “Black Pete.”`\
+https://nytimes.com/aponline/2020/06/23/world/americas/ap-cb-aruba-blackface.html?searchResultPosition=4
+
+**3 Football Players Announce Plans to Transfer From Liberty**\
+`Three football players at Liberty University say they have entered the transfer portal, with two of them citing “racial insensitivity” by the university's leadership or similar reasons for their decisions.`\
+https://nytimes.com/aponline/2020/06/23/sports/ncaafootball/ap-fbc-liberty-departures-1st-ld-writethru.html?searchResultPosition=5
+
+**Court in Kyrgyzstan Hands Ex-President 11-Year Prison Term**\
+`A court in Kyrgyzstan on Tuesday convicted the country's ex-president on corruption charges and sentenced him to 11 years and two months in prison. `\
+https://nytimes.com/aponline/2020/06/23/business/ap-eu-kyrgyzstan-ex-president-1st-ld-writethru.html?searchResultPosition=6
+
+**Texas Children's Hospital Admitting Adults as Coronavirus Surges in Houston**\
+`A Texas children's hospital is admitting adult coronavirus patients due to a spike in serious COVID-19 cases in the Houston area, while a dozen other states from Florida to California grapple with a surge in infections.`\
+https://nytimes.com/reuters/2020/06/23/us/23reuters-health-coronavirus-usa.html?searchResultPosition=7
+
+**German Legal Ruling Deals Facebook Blow in Data Use**\
+`Facebook’s fight against German regulators was dealt a blow Tuesday after a top court agreed with antitrust authorities that the company was abusing its dominant market position in its use of users' data to better target ads. `\
+https://nytimes.com/aponline/2020/06/23/world/europe/bc-eu-germany-facebook.html?searchResultPosition=8
+
 **Nine Black Artists and Cultural Leaders on Seeing and Being Seen**\
 `Amy Sherald, Michael R. Jackson and others discuss the challenges and opportunities of cultivating black audiences and dismantling historically white institutions.`\
-https://nytimes.com/2020/06/23/t-magazine/black-artists-white-gaze.html?searchResultPosition=4
+https://nytimes.com/2020/06/23/t-magazine/black-artists-white-gaze.html?searchResultPosition=9
 
 **Tropical Storm Dolly Forms Over the North Atlantic**\
 `Tropical Storm Dolly formed Tuesday over the northern Atlantic Ocean, the U.S. National Hurricane Center said.`\
-https://nytimes.com/aponline/2020/06/23/us/ap-us-tropical-weather.html?searchResultPosition=5
-
-**U.S. Coronavirus Task Force Members: Trump Hasn't Asked Us to Slow Testing**\
-`Four top U.S. public health officials and members of President Donald Trump's coronavirus task force said on Tuesday that he has not asked them to slow down testing for the virus.`\
-https://nytimes.com/reuters/2020/06/23/us/23reuters-health-coronavirus-usa-fauci.html?searchResultPosition=6
-
-**Virus Gains Steam Across Latin America**\
-`Inequality, densely packed cities, legions of informal workers and weak health care systems have undermined efforts to fight the pandemic, as some governments have fumbled the response.`\
-https://nytimes.com/2020/06/23/world/americas/coronavirus-brazil-mexico-peru-chile-uruguay.html?searchResultPosition=7
-
-**Putin Hails Response to Virus, Rolls Social Support Measures**\
-`Russian President Vladimir Putin said Tuesday that further social support measures and incentives for businesses will be introduced as he hailed the nation's response to the coronavirus pandemic in the run-up to a vote that could extend his rule until 2036.`\
-https://nytimes.com/aponline/2020/06/23/world/europe/ap-eu-russia-putin.html?searchResultPosition=8
-
-**Ex-Official Changing Plea in Arkansas Human Trafficking Case**\
-`A former Arizona official accused of running an illegal adoption scheme in three states involving women from the Marshall Islands is changing his plea in Arkansas.`\
-https://nytimes.com/aponline/2020/06/23/us/ap-us-arizona-official-adoption-fraud.html?searchResultPosition=9
-
-**Powerful Earthquake Jolts Southern Mexico**\
-`The 7.5-magnitude quake, centered in the state of Oaxaca, caused buildings to sway in Mexico City, but there were no immediate reports of serious damage.`\
-https://nytimes.com/2020/06/23/world/americas/mexico-earthquake.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/23/us/ap-us-tropical-weather.html?searchResultPosition=10
 
