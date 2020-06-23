@@ -14,7 +14,7 @@ https://nytimes.com/2020/06/23/books/review/love-by-roddy-doyle-an-excerpt.html?
 `German Chancellor Angela Merkel agreed with her counterparts in Portugal and Slovenia that the EU should focus on rebuilding the bloc economically and socially after the corona crisis in the next 18 months when the three assume the rotating presidency.`\
 https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-eu-germany.html?searchResultPosition=7
 
-**Vexed by Annexation: The Battle Inside the EU Over Israel   **\
+**Vexed by Annexation: The Battle Inside the EU Over Israel**\
 `Two months before Donald Trump unveiled his Middle East peace plan on Jan. 28, Luxembourg's foreign minister was certain the U.S. president would break with the European Union and recognise Israeli sovereignty over Jewish settlements in the occupied West Bank.`\
 https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-israel-palestinians-europe-annexation-insight.html?searchResultPosition=8
 
