@@ -14,8 +14,8 @@ https://nytimes.com/2020/06/23/world/australia/dyson-heydon-high-court-metoo.htm
 `Yemen's Iran-aligned Houthi group used ballistic missiles and drones in an attack on Saudi Arabia's capital Riyadh on Tuesday, targeting the defence ministry and a military base, the movement's military spokesman said in a televised speech.`\
 https://nytimes.com/reuters/2020/06/23/world/middleeast/23reuters-yemen-security-saudi-houthis.html?searchResultPosition=7
 
-**Singapore Leader Calls for Early Elections for New Mandate**\
-`Singapore Prime Minister Lee Hsien Loong is calling for new elections to seek a new mandate during the coronavirus pandemic.`\
+**Singapore Leader Calls for Early Elections Despite Pandemic**\
+`Singapore Prime Minister Lee Hsien Loong is calling for new elections to seek a fresh mandate despite the coronavirus pandemic. Lee says in a televised speech that he has advised the country’s president to dissolve Parliament to pave the way for early polls. `\
 https://nytimes.com/aponline/2020/06/23/world/asia/ap-as-singapore-politics.html?searchResultPosition=8
 
 **Suicide Bomber Kills 2 at Turkish Military Base in Somalia**\
