@@ -1,28 +1,28 @@
+**Damages Verdict Against Johnson & Johnson Lowered to $2.1 Billion in Missouri Talc Case**\
+`A Missouri appeals court on Tuesday reduced a damages award against Johnson & Johnson to about $2.12 billion from $4.69 billion in a case brought by 22 women who blamed their ovarian cancer on asbestos in its baby powder and other talc products.`\
+https://nytimes.com/reuters/2020/06/23/business/23reuters-johnson-johnson-talc-lawsuit.html?searchResultPosition=4
+
+**Trump Says He'll Issue Executive Order to Protect Monuments**\
+`President Donald Trump said Tuesday he'll issue an executive order to protect monuments that are coming under new scrutiny as America wrestles with racism during the unrest sparked by the police killing of George Floyd.`\
+https://nytimes.com/aponline/2020/06/23/us/politics/ap-us-trump-monuments.html?searchResultPosition=5
+
+**Democrats: GOP Police Bill 'Not Salvageable,' Demand Talks**\
+`Top Democratic leaders in the Senate say the Republican policing bill is “not salvageable,” as they signal an intent to block it and demand negotiations on a new, more bipartisan package in response to the killing of Black Americans.`\
+https://nytimes.com/aponline/2020/06/23/us/politics/ap-us-racial-injustice-congress.html?searchResultPosition=6
+
+**Black Bird Watchers Draw Attention to Racial Issues Outdoors**\
+`Jason Ward fell in love with birds at age 14 when he spotted a peregrine falcon outside the homeless shelter where he was staying with his family. `\
+https://nytimes.com/aponline/2020/06/23/us/ap-us-racial-injustice-black-birders.html?searchResultPosition=7
+
 **Watch Live: House Hearing on Coronavirus**\
 `Two top health officials, Dr. Anthony S. Fauci and Dr. Robert R. Redfield, are scheduled to testify to House lawmakers about the latest efforts to contain coronavirus.`\
-https://nytimes.com/video/us/politics/100000007203656/dr-fauci-testifying-congress.html?searchResultPosition=4
+https://nytimes.com/video/us/politics/100000007203656/dr-fauci-testifying-congress.html?searchResultPosition=8
 
 **Turkey Accuses France of Dragging Libya Into 'Chaos'**\
 `A Turkish government spokesman shot back at French President Emmanuel Macron and blamed France on Tuesday for allegedly “dragging Libya into chaos.” `\
-https://nytimes.com/aponline/2020/06/23/world/europe/ap-eu-turkey-france-libya.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/23/world/europe/ap-eu-turkey-france-libya.html?searchResultPosition=9
 
 **The Latest: Mpls Union Leader Says Members Scapegoated**\
 `TOP OF THE HOUR:`\
-https://nytimes.com/aponline/2020/06/23/us/ap-us-racial-injustice-the-latest.html?searchResultPosition=6
-
-**Thai Kids Rehearse School Return With Sanitizers, Screens and Face Shields**\
-`Thai schools are holding rehearsals to prepare students for classes in the coronavirus era, giving lessons in hygiene and social distancing to children as young as three ahead of next week's return.`\
-https://nytimes.com/reuters/2020/06/23/world/asia/23reuters-health-coronavirus-thailand-school.html?searchResultPosition=7
-
-**Pandemic? Recession? In Polish Vote, Gay Rights in Focus Again**\
-`Sixty-year-old Marzenna Latawiec is determined to brave the risk of coronavirus and vote in Poland's presidential election on Sunday, but it's not the pandemic or the country's first economic recession in three decades that is firing her up.`\
-https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-poland-election-lgbt.html?searchResultPosition=8
-
-**Senate Democrats Threaten to Block G.O.P. Police Reform Bill**\
-`Calling Republicans’ policing bill “woefully inadequate,” Democrats called on Senator Mitch McConnell to negotiate a new, more expansive bill both parties could support.`\
-https://nytimes.com/2020/06/23/us/politics/congress-police-reform-senate.html?searchResultPosition=9
-
-**Turkey Says Macron Suffers 'Eclipse of the Mind' Over Libya**\
-`Turkey hit back on Tuesday at French criticism of its intervention in Libya, saying President Emmanuel Macron must have suffered an "eclipse of the mind" to oppose Ankara's support for the internationally recognised Tripoli government.`\
-https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-libya-security-turkey-france.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/23/us/ap-us-racial-injustice-the-latest.html?searchResultPosition=10
 
