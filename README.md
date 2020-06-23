@@ -1,28 +1,28 @@
-**Protesters Fail to Bring Down Andrew Jackson Statue Near White House**\
-`Protesters tried tearing down a statue of Andrew Jackson, the seventh president of the United States, in a park near the White House on Monday, scrawling "killer scum" on its pedestal and pulling on the monument with ropes before police intervened.`\
-https://nytimes.com/reuters/2020/06/23/world/asia/23reuters-protests-washington-d-c.html?searchResultPosition=4
+**Funeral for Rayshard Brooks to Be Held at MLK's Church**\
+`Rayshard Brooks, who was fatally shot by a police officer, is to be remembered Tuesday at the church in Atlanta where the Rev. Martin Luther King Jr. once preached.`\
+https://nytimes.com/aponline/2020/06/23/us/ap-us-police-shooting-atlanta.html?searchResultPosition=4
 
-**Trump Rally Size Raises Question About Risk in Age of Virus**\
-`President Donald Trump’s paltry crowd for his weekend campaign rally in Oklahoma raises new questions about politics in the age of coronavirus: Maybe pandemic-scarred Americans just aren’t ready to risk exposure for close-up engagement in the 2020 presidential election.`\
-https://nytimes.com/aponline/2020/06/23/us/politics/ap-us-election-2020-virus-politics-.html?searchResultPosition=5
+**Factbox: U.S. Congress Races to Watch in Tuesday's Primary Elections**\
+`New York, Kentucky and Virginia are among the states holding primary elections on Tuesday to choose the Democratic and Republican nominees who will compete for seats in the U.S. Congress in November.`\
+https://nytimes.com/reuters/2020/06/23/us/politics/23reuters-usa-election-factbox.html?searchResultPosition=5
 
-**Trump Defends China Trade Deal After Adviser Says It’s ‘Over’**\
-`Peter Navarro, the White House trade adviser, quickly walked back his remarks, which caused markets to dive.`\
-https://nytimes.com/2020/06/23/business/economy/trump-navarro-china-trade-deal.html?searchResultPosition=6
+**Documents: Mom Called Kids 'Zombies' Before Their Deaths**\
+`The case of two kids who were missing for months before they were found dead in rural Idaho has taken another bizarre twist, with new court documents alleging that their mother believed they were zombies and that she was on a mission to rid the world of such creatures. `\
+https://nytimes.com/aponline/2020/06/23/us/ap-us-missing-kids-idaho.html?searchResultPosition=6
 
-**North Korea Seen Reinstalling Border Loudspeakers; Satellite Pictures Show Liaison Office Standing but Damaged**\
-`North Korea is reinstalling loudspeakers blaring propaganda across the border in its latest step away from inter-Korean peace agreements, prompting the South's military to explore similar moves, a South Korean military source said on Tuesday. `\
-https://nytimes.com/reuters/2020/06/23/world/asia/23reuters-northkorea-southkorea.html?searchResultPosition=7
+**Sanofi Eyes Approval of COVID-19 Vaccine by First Half of 2021**\
+`French drugmaker Sanofi SA said on Tuesday it expects to get approval for the potential COVID-19 vaccine it is developing with Britain's GlaxoSmithKline Plc by the first half of next year, faster than previously anticipated.`\
+https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-sanofi-vaccine.html?searchResultPosition=7
 
-**1 City, 1 Voting Place: Kentucky Braces for Lines in Primary**\
-`With only one polling place designated for Louisville on Tuesday, voters who didn't cast mail-in ballots or show up early could face long lines in Kentucky's primary election, the latest to unfold in a pandemic that has triggered unprecedented election disruptions across the country.`\
-https://nytimes.com/aponline/2020/06/23/us/politics/ap-us-election-2020-voting-problems.html?searchResultPosition=8
+**Chinese Firm Gets Approval to Begin Human Testing for Potential Coronavirus Vaccine**\
+`China has approved a coronavirus vaccine candidate developed by Chongqing Zhifei Biological Products' unit to begin human testing, the company said in a filing on Tuesday.`\
+https://nytimes.com/reuters/2020/06/23/world/asia/23reuters-health-coronavirus-vaccine.html?searchResultPosition=8
 
-**Thailand Reports Five New Coronavirus Cases, All Imported**\
-`Thailand on Tuesday reported five new coronavirus cases, all imported, marking 29 days without local transmission, a senior official said.`\
-https://nytimes.com/reuters/2020/06/23/world/asia/23reuters-health-coronavirus-thailand.html?searchResultPosition=9
+**What’s on TV Tuesday: Eric Andre and Toni Morrison**\
+`Eric Andre’s first Netflix special debuts, and a documentary on PBS celebrates Toni Morrison’s legacy.`\
+https://nytimes.com/2020/06/23/arts/television/whats-on-tv-tuesday-eric-andre-and-toni-morrison.html?searchResultPosition=9
 
-**U.S. Plans to Slap Tariffs on Aluminum Imports From Canada: Bloomberg News**\
-`The United States is planning to re-impose tariffs on aluminum imports from Canada, Bloomberg reported late on Monday, citing people familiar with the matter. `\
-https://nytimes.com/reuters/2020/06/23/us/23reuters-usa-trade-canada-tariffs.html?searchResultPosition=10
+**South Carolina Beaches Fill, but COVID-19 Takes No Vacation**\
+`The elevator doors opened and inside were 10 people crammed into a space no bigger than a closet, none of them wearing a mask.`\
+https://nytimes.com/aponline/2020/06/23/us/ap-us-virus-outbreak-vacation-hot-spots.html?searchResultPosition=10
 
