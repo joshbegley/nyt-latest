@@ -1,28 +1,28 @@
-**Cade Cunningham Will Stay Committed to Oklahoma State**\
-`The 6-foot-7 point guard, who is among the top players in his high school class, had other options to consider after the N.C.A.A. banned the Cowboys from the 2020-21 postseason.`\
-https://nytimes.com/2020/06/23/sports/ncaabasketball/cade-cunningham-oklahoma-state.html?searchResultPosition=4
+**Pompeo’s Human Rights Panel Could Hurt L.G.B.T. and Women’s Rights, Critics Say**\
+`Human rights observers warn the document could be a tool to advance Mr. Pompeo’s religious beliefs and political aspirations, and not women’s and L.G.B.T.Q. rights.`\
+https://nytimes.com/2020/06/23/us/politics/pompeo-state-human-rights.html?searchResultPosition=4
 
-**Eton Apologizes for Racist Treatment of One of Its First Black Students**\
-`The former pupil, Dillibe Onyeama, said that after he published a book in 1972 detailing his abuse at the school, he was told never to return. The current principal said he was “appalled.”`\
-https://nytimes.com/2020/06/23/world/europe/eton-racism-black-student.html?searchResultPosition=5
+**Italy PM to Meet Ministers in Bid to Resolve Atlantia Concession Row: Sources**\
+`Italy's Prime Minister Giuseppe Conte has called an urgent meeting with the economy and transport ministers later on Tuesday as he pushes for a solution to the much-delayed row over the concession of Atlantia's motorway unit, two sources said. `\
+https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-atlantia-concession-dispute.html?searchResultPosition=5
 
-**Biden's First Campaign Fundraiser With Obama Set to Raise $4 Million**\
-`U.S. Democratic presidential candidate Joe Biden's first 2020 fundraiser with former President Barack Obama has netted more than $4 million from more than 120,000 people ahead of their joint appearance on Tuesday, the campaign said.`\
-https://nytimes.com/reuters/2020/06/23/us/politics/23reuters-usa-election-biden.html?searchResultPosition=6
+**Anthony Bourdain Remembered by Friends**\
+`A portrait of Mr. Bourdain with José Andrés and Eric Ripert raises money for the food bank in Grand Cayman.`\
+https://nytimes.com/2020/06/23/dining/anthony-bourdain-painting.html?searchResultPosition=6
 
-**Police Union Says It's Been 'Scapegoated' After Floyd Death**\
-`Leaders of the Minneapolis police union acknowledged Tuesday that bystander video of the police encounter with George Floyd was “horrific” but said they've been denied the chance to look at body camera video that could shed more light on what happened before Floyd ended up on the ground.`\
-https://nytimes.com/aponline/2020/06/23/us/ap-us-george-floyd-minneapolis-police.html?searchResultPosition=7
+**Ford Stepping Down as Lions Owner, Daughter Taking Over**\
+`Martha Firestone Ford is stepping down as principal owner of the Detroit Lions.`\
+https://nytimes.com/aponline/2020/06/23/sports/football/ap-fbn-lions-ownership.html?searchResultPosition=7
 
-**Masks Keep Us Safe. They Also Hide Our Smiles.**\
-`Face coverings may be here for a while. How can we adapt to a world where facial expressions are invisible?`\
-https://nytimes.com/2020/06/23/style/face-mask-emotion-coronavirus.html?searchResultPosition=8
+**LME to Consider Floor Reopening After Easing of UK Lockdown**\
+`The London Metal Exchange (LME) will examine whether the easing of social distancing restrictions in Britain from July 4 will apply to its shuttered open-outcry floor, its chief executive said on Tuesday.  `\
+https://nytimes.com/reuters/2020/06/23/business/23reuters-lme-reopening.html?searchResultPosition=8
 
-**Fed Isn't Fueling U.S. Inequality, Daly Says**\
-`San Francisco Federal Reserve President Mary Daly on Tuesday defended the U.S. central bank from criticism that its easy monetary policy and emergency lending programs are doing more to help the rich than the poor. `\
-https://nytimes.com/reuters/2020/06/23/business/23reuters-usa-fed-daly.html?searchResultPosition=9
+**FCC to Vote in July to Make '988' the Suicide Hotline Number**\
+`Federal regulators will vote in July on whether to make “988” the number to reach a suicide prevention hotline.`\
+https://nytimes.com/aponline/2020/06/23/business/ap-us-suicide-hotline-number.html?searchResultPosition=9
 
-**Israeli Troops Kill Palestinian Who Attempted Car-Ramming in West Bank: Police**\
-`Israeli police on Tuesday shot and killed a Palestinian who they said tried to run over an officer with his car in the occupied West Bank. `\
-https://nytimes.com/reuters/2020/06/23/world/middleeast/23reuters-israel-palestinians-violence.html?searchResultPosition=10
+**Disney+ to Debut in Eight More Countries in Europe**\
+`Walt Disney Co said on Tuesday it would launch Disney+ in eight more countries in Europe, as millions of people stuck at home due to coronavirus-induced restrictions turn to streaming services for entertainment.`\
+https://nytimes.com/reuters/2020/06/23/arts/23reuters-disney-streaming-europe.html?searchResultPosition=10
 
