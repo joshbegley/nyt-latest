@@ -2,16 +2,16 @@
 `Prime Minister Boris Johnson said on Tuesday pubs, restaurants and hotels could reopen in England early next month when the social distancing rule is relaxed to one metre providing "mitigations" were in place.`\
 https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-britain.html?searchResultPosition=4
 
-**Inovio Gets $71 Million From U.S. DoD for COVID-19 Vaccine Device**\
-`Inovio Pharmaceuticals Inc said on Tuesday it has received $71 million from the U.S. Department of Defense to scale up production of the company's devices that are used to administer its experimental COVID-19 vaccine into the skin. `\
+**Inovio Gets $71 Million From U.S. Defense Department for COVID-19 Vaccine Device**\
+`Inovio Pharmaceuticals Inc said on Tuesday it has received $71 million from the U.S. Department of Defense (DoD) to scale up production of the company's devices that are used to administer its experimental COVID-19 vaccine into the skin. `\
 https://nytimes.com/reuters/2020/06/23/us/23reuters-health-coronavirus-inovio-pharma.html?searchResultPosition=5
 
 **AP-NORC Poll: Nearly All in US Back Criminal Justice Reform**\
 `Americans overwhelmingly want clear standards on when police officers may use force and consequences for officers who do so excessively, according to a new poll that finds nearly all Americans favor at least some level of change to the nation’s criminal justice system.`\
 https://nytimes.com/aponline/2020/06/23/us/politics/ap-us-ap-poll-racial-injustice-policing.html?searchResultPosition=6
 
-**Exclusive: German Finance Minister Says Regulators Did Not Work Effectively on Wirecard**\
-`German Finance Minister Olaf Scholz said it appeared that regulators did not work effectively in regards to payments provider Wirecard, whose chief executive has been arrested on suspicion of falsifying company revenues.`\
+**Exclusive: German Finance Minister Points to Regulatory Failures in Wirecard Scandal**\
+`German Finance Minister Olaf Scholz said lawmakers need to quickly determine how to tighten regulation in the wake of an accounting scandal at payments company Wirecard that has tarnished the reputation of Germany's financial watchdog.`\
 https://nytimes.com/reuters/2020/06/23/business/23reuters-wirecard-accounts-finmin-exclusive.html?searchResultPosition=7
 
 **Italy Industry Minister Says Alitalia Had 232 Million Euros of Liquidity as of May 31**\
