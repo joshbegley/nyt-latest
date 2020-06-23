@@ -1,28 +1,28 @@
+**Golf: Champ Tests Positive for COVID-19, Withdraws From Connecticut Event**\
+`Cameron Champ has withdrawn from this week's event in Cromwell, Connecticut after he tested positive for COVID-19 during pre-tournament screening, the PGA Tour said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/23/sports/golf/23reuters-golf-travelers-coronavirus.html?searchResultPosition=4
+
+**Pentagon Chief Technology Officer, Deputy to Resign on July 10**\
+`The Pentagon’s chief technology officer Mike Griffin, an outspoken advocate for space-based missile defense systems, and his deputy will resign effective July 10 to set up their own company, the director of the Missile Defense Agency said.`\
+https://nytimes.com/reuters/2020/06/23/technology/23reuters-usa-defense-tech.html?searchResultPosition=5
+
+**Paul Fortune, L.A. Designer to the Stars, Dies at 69**\
+`He designed the interiors of the Tower Bar and the homes of Sofia Coppola, Marc Jacobs and other celebrities.`\
+https://nytimes.com/2020/06/23/style/paul-fortune-la-designer-to-the-stars-dies-at-69.html?searchResultPosition=6
+
+**Virus, Border Wall, E.U. Travel: Your Tuesday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/06/23/briefing/virus-arizona-eu-travel.html?searchResultPosition=7
+
 **Companies That Spend on Social Causes Risk Hedge Fund Challenge: Study**\
 `U.S. companies that spend more on social and environmental causes, such as sustainability or charitable donation programs, are more likely to attract hedge funds that challenge their strategy and board, according to a new academic study.  `\
-https://nytimes.com/reuters/2020/06/23/business/23reuters-companies-hedgefunds-socialresponsibility.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/23/business/23reuters-companies-hedgefunds-socialresponsibility.html?searchResultPosition=8
 
 **Arizona's Main COVID Lab Running Behind as Demand for Tests Soars to Twice Capacity**\
 `A spike in coronavirus infections in Arizona pushed demand for tests to twice the capacity of the state's main COVID lab last week, a senior laboratory executive said, adding that new testing equipment had been delayed two months.`\
-https://nytimes.com/reuters/2020/06/23/us/23reuters-health-coronavirus-testing-arizona.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/23/us/23reuters-health-coronavirus-testing-arizona.html?searchResultPosition=9
 
 **Ad Boycott of Facebook Keeps Growing**\
 `Eddie Bauer, Magnolia Pictures, Ben & Jerry’s and others have suspended campaigns over the platform’s content moderation practices.`\
-https://nytimes.com/2020/06/23/business/media/facebook-ad-boycott.html?searchResultPosition=6
-
-**Baseball’s Plan: A 60-Game Sprint With Fingers Crossed**\
-`Nothing about the season Major League Baseball has sketched out will feel normal. But at least every team has a shot.`\
-https://nytimes.com/2020/06/23/sports/baseball/mlb-60-game-season.html?searchResultPosition=7
-
-**Paulinho Paiakan, Indigenous Defender of Rainforest, Dies at 67**\
-`Mr. Paiakan became celebrated internationally for his campaigns in Brazil, even appearing once with Sting. He died of Covid-19.`\
-https://nytimes.com/2020/06/23/obituaries/paulinho-paiakan-dead-indigenous-activist.html?searchResultPosition=8
-
-**Companies Criticize Visa Suspensions, but Impact May Be Muted for Now**\
-`President Trump’s executive order came at a time when hiring has slowed, and many U.S. consulates are not conducting interviews for temporary green cards.`\
-https://nytimes.com/2020/06/23/business/economy/visa-suspensions-companies-react.html?searchResultPosition=9
-
-**As the Virus Surges in South Florida, a Trump Resort Joins the Rush to Reopen**\
-`Miami-Dade County has been hit with about a quarter of the state’s cases. The Doral hotel and golf club there is taking steps to prevent infection, even as many visitors and some workers do not wear masks.`\
-https://nytimes.com/2020/06/23/us/trump-doral-reopen-coronavirus.html?searchResultPosition=10
+https://nytimes.com/2020/06/23/business/media/facebook-ad-boycott.html?searchResultPosition=10
 
