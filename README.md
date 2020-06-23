@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/06/22/us/politics/ap-us-racial-injustice-jacks
 https://nytimes.com/reuters/2020/06/22/sports/soccer/22reuters-soccer-worldcup-newzealand.html?searchResultPosition=5
 
 **Analysts' View: Take Navarro's China Trade Deal Is 'Over' Comments With a Pinch of Salt**\
-`U.S. stock futures fell and the dollar rose after White House trade adviser Peter Navarro said on Monday that the trade deal with China is "over".`\
+`U.S. stock futures fell and the dollar rose after White House  adviser Peter Navarro said that the trade deal with China is "over". But President Donald Trump later tweeted that the deal "is fully intact" and said he hoped Beijing would continue to live up to terms of the agreement.`\
 https://nytimes.com/reuters/2020/06/22/business/22reuters-usa-trade-china-navarro-analysts-view.html?searchResultPosition=6
 
 **Protesters Fail to Bring Down Andrew Jackson Statue Near White House**\
