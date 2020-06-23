@@ -1,28 +1,28 @@
-**Simple Design Steps Can Take Your Garden to the Next Level**\
-`The flower beds are finished, the vegetables are growing, and yet something could be missing from the backyard landscape: That “wow” factor. `\
-https://nytimes.com/aponline/2020/06/23/us/ap-us-gardening-design.html?searchResultPosition=4
+**Factbox: What UK PM Johnson Told Parliament on Latest Lockdown Relaxation**\
+`Prime Minister Boris Johnson said on Tuesday the conditions had been met to further relax the coronavirus lockdown in England from July 4. Below is what he told parliament.`\
+https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-britain-quotes-factbox.html?searchResultPosition=4
 
-**Russians Throng River Cruises as Moscow Lockdown Eases Ahead of Vote**\
-`Russians soaked up the sun on boat cruises on the river Moskva on Tuesday for the first time in three months after authorities lifted many of the city's last remaining restrictions aimed at halting the novel coronavirus. `\
-https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-russia-moscow.html?searchResultPosition=5
+**India to Cut Pakistan Embassy Staff Over 'Acts of Espionage': Statement**\
+`India said on Tuesday it would reduce the headcount in Pakistan's embassy in New Delhi by 50%, following what it said was "acts of espionage" by officials there. `\
+https://nytimes.com/reuters/2020/06/23/world/asia/23reuters-india-pakistan.html?searchResultPosition=5
 
-**Factbox: What Can England Now Do? UK PM Johnson Unveils Easing of COVID Lockdown**\
-`British Prime Minister Boris Johnson unveiled on Tuesday a significant easing of the coronavirus lockdown in England, saying pubs, restaurants and bars can reopen from July 4 and people can meet more friends and family.`\
-https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-britain-factbox.html?searchResultPosition=6
+**UK Quarantine Policy Will Be Led by Public Health: PM Johnson**\
+`British Prime Minister Boris Johnson said that any changes to the country's quarantine policy would be based on public health guidance and not a desire to open up the economy. `\
+https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-britain-quarantine.html?searchResultPosition=6
 
-**Family of French Driver Demand Answers Over Death During Police Traffic Stop**\
-`The family of Cedric Chouviat, a French delivery driver who died in January after being stopped by police, on Tuesday demanded answers about his death from President Emmanuel Macron. `\
-https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-france-security-police.html?searchResultPosition=7
+**3 Family Members Found Dead in Backyard Swimming Pool**\
+`The deaths of three family members who were found unresponsive in a backyard above-ground swimming pool in New Hersey is under investigation, authorities said Tuesday.`\
+https://nytimes.com/aponline/2020/06/23/us/ap-us-swimming-pool-deaths-1st-ld-writethru.html?searchResultPosition=7
 
-**Factbox: Google, Amazon, Musk Take Aim at Trump Visa Ban**\
-`U.S. President Donald Trump suspended the entry of some foreign workers on Monday in a bid to boost domestic hiring, sparking opposition from corporate America and tech sector executives including Google's Sundar Pichai and Tesla's Elon Musk.`\
-https://nytimes.com/reuters/2020/06/23/business/23reuters-usa-immigration-workers-factbox.html?searchResultPosition=8
+**Britain Sets Out How It Will Regulate the City After Brexit**\
+`Britain will "tailor" capital rules for insurers inherited from the European Union as it takes back control of its crucial financial services sector, finance minister Rishi Sunak said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/23/business/23reuters-britain-eu-financial-services.html?searchResultPosition=8
 
-**Family of Dead Paris Delivery Man Urges Chokehold Ban**\
-`The family of a French delivery driver who died in the wake of a police arrest in January has urged President Emmanuel Macron to ban the use of chokeholds.`\
-https://nytimes.com/aponline/2020/06/23/world/europe/ap-eu-france-police.html?searchResultPosition=9
+**Luckin Gets Another De-Listing Notice From Nasdaq**\
+`Luckin Coffee Inc disclosed on Tuesday it received a de-listing notice from the Nasdaq Inc last week after the Chinese coffee chain failed to file its annual report.`\
+https://nytimes.com/reuters/2020/06/23/business/23reuters-luckin-coffee-investigation-nasdaq.html?searchResultPosition=9
 
-**U.K. Leader Lifts Wide Variety of Coronavirus Restrictions**\
-`Pubs, restaurants, museums and hair salons in England will be allowed to reopen July 4 with restrictions and, inevitably, higher levels of risk.`\
-https://nytimes.com/2020/06/23/world/europe/uk-coronavirus-reopening.html?searchResultPosition=10
+**American Airlines Prices Stock Offering at $13.50 Per Share**\
+`American Airlines Group Inc said on Tuesday it plans to offer 74.1 million shares of its common stock priced at $13.50 per share.`\
+https://nytimes.com/reuters/2020/06/23/business/23reuters-american-airline-debt.html?searchResultPosition=10
 
