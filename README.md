@@ -1,28 +1,28 @@
+**Britain's Traynor Suspended for Two Years for Doping Violation**\
+`British long-distance runner Luke Traynor has been handed a two-year suspension from all sport for a doping violation, the UK Anti-Doping agency (UKAD) said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/23/sports/23reuters-sport-doping-britain-running.html?searchResultPosition=4
+
+**Amazon to Launch $2 Billion Venture Capital Fund to Invest in Clean Energy: WSJ**\
+`Amazon.com Inc will launch a $2 billion internal venture capital fund that will focus on technology investments to reduce the impact of climate change, the Wall Street Journal reported on Tuesday.`\
+https://nytimes.com/reuters/2020/06/23/business/23reuters-amazon-com-clean-energy.html?searchResultPosition=5
+
+**Trump Says People Who Destroy U.S. Monuments Should Be Jailed**\
+`President Donald Trump on Tuesday reiterated his warning that those who destroy U.S. monuments on federal property would be arrested and face jail time, hours after protesters tried to topple a statue of former president Andrew Jackson near the White House.`\
+https://nytimes.com/reuters/2020/06/23/us/23reuters-minneapolis-police-statues-trump.html?searchResultPosition=6
+
+**Tech, Central Bank Support Boost FX Volumes, Panel Says**\
+`Foreign exchange volumes have surged during the coronavirus pandemic instead of stalling as they usually do during a crisis, thanks to technological improvements and central bank and government intervention, a central bank panel said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/23/business/23reuters-markets-currencies-panel.html?searchResultPosition=7
+
+**Stock Futures Rise on Trade Deal Relief; Business Activity Data Awaited**\
+`U.S. stock index futures rose on Tuesday after President Donald Trump reassured investors the trade agreement with China was intact, while upbeat business activity data from Europe boded well for U.S. surveys due later.`\
+https://nytimes.com/reuters/2020/06/23/business/23reuters-usa-stocks.html?searchResultPosition=8
+
 **EU Countries, Lawmakers Agree Deal on Class Action Lawsuits**\
 `European Union countries and lawmakers struck a deal late on Monday to pave the way for Europeans to team up and sue companies for defective products but with built-in safeguards to guard against the excesses of U.S. class action lawsuits.`\
-https://nytimes.com/reuters/2020/06/23/business/23reuters-eu-classaction.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/23/business/23reuters-eu-classaction.html?searchResultPosition=9
 
 **Suicide Bombing Targets Major Turkish Military Base in Somalia**\
 `Officials said two people were killed in the bombing at the facility in Mogadishu, Turkey’s largest overseas military base.`\
-https://nytimes.com/2020/06/23/world/africa/somalia-turkey-suicide-bombing.html?searchResultPosition=5
-
-**New U.S. COVID-19 Cases Surge 25% Last Week; Arizona, Florida and Texas Set Records**\
-`The United States saw a 25% increase in new cases of COVID-19 in the week ended June 21 compared to the previous seven days, with Arizona, Florida and Texas experiencing record surges in new infections, a Reuters analysis found.`\
-https://nytimes.com/reuters/2020/06/23/us/23reuters-health-coronavirus-usa-trends.html?searchResultPosition=6
-
-**British Man Seized by Militant Group in Northwest Syria**\
-`A British relief worker with an Islamic aid group was seized on Monday night by militant group Hayat Tahrir al-Sham (HTS) in northwest Syria, according to the aid group, the Syrian Observatory for Human Rights and activists in the area.`\
-https://nytimes.com/reuters/2020/06/23/world/middleeast/23reuters-syria-security-britain.html?searchResultPosition=7
-
-**Videos of Alleged Police Misconduct Went Viral. Then What Happened?**\
-`Some U.`\
-https://nytimes.com/reuters/2020/06/23/us/23reuters-minneapolis-police-protests-videos-insight.html?searchResultPosition=8
-
-**Syrian FM Says US Sanctions Seek to 'Starve the People'**\
-`Syria’s foreign minister accused the United States on Tuesday of allegedly “seeking to starve the people” of Syria by imposing new sanctions and opening the door for “terrorism" to return to the war-torn country. `\
-https://nytimes.com/aponline/2020/06/23/world/middleeast/ap-ml-syria-us.html?searchResultPosition=9
-
-**Siemens, Salesforce Aim to Sell Products for COVID-19 Back-To-Work Plans**\
-`Siemens and U.S. software developer Salesforce will work together on products to help companies' employees get back to work while following rules to prevent the spread of the new coronavirus, the firms said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/23/business/23reuters-siemens-salesforce-workplace.html?searchResultPosition=10
+https://nytimes.com/2020/06/23/world/africa/somalia-turkey-suicide-bombing.html?searchResultPosition=10
 
