@@ -1,28 +1,28 @@
+**Techtronic Industries to Invest an Additional $650 Million in Vietnam**\
+`Power tool manufacturer Techtronic Industries will invest an additional $650 million in Vietnam to produce cordless appliances, the Vietnamese government said on Tuesday. `\
+https://nytimes.com/reuters/2020/06/23/technology/23reuters-techtronicindustries-vietnam.html?searchResultPosition=4
+
+**Exclusive: Shell Plans Major Restructuring Around Climate Drive, CEO Tells Employees**\
+`Royal Dutch Shell will announce a major restructuring by the end of the year as the energy company prepares to accelerate its shift towards low-carbon, CEO Ben van Beurden told employees, a company source said.`\
+https://nytimes.com/reuters/2020/06/23/business/23reuters-shell-restructuring-exclusive.html?searchResultPosition=5
+
+**Libyan and Foreign Forces Mobilise at Sirte, Arab Ministers Urge Calm**\
+`Arab foreign ministers said on Tuesday they wanted to head off a new battle in Libya, where the warring sides are mobilising near the main oil region as their foreign backers threaten an escalation. `\
+https://nytimes.com/reuters/2020/06/23/world/africa/23reuters-libya-security.html?searchResultPosition=6
+
 **Britain Condemns Houthis' Missile Attack on Riyadh**\
 `British Foreign Secretary Dominic Raab condemned a drone and ballistic missile attack on Saudi Arabia launched by Yemen's Iran-aligned Houthi movement on Tuesday.`\
-https://nytimes.com/reuters/2020/06/23/world/middleeast/23reuters-yemen-security-saudi-britain.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/23/world/middleeast/23reuters-yemen-security-saudi-britain.html?searchResultPosition=7
 
 **From Canary Islands, Spanish Royals Push to Save Tourism**\
 `Spain's king and queen visited a Canary Islands beach on Tuesday on the first leg of a tour intended to help rescue the tourism-dependent economy, battered by the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-spain.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-spain.html?searchResultPosition=8
 
 **Italy Outraged Over easyJet Ad Referencing Mafia in South**\
 `Italian officials voiced outrage Tuesday over an online advertisement by budget airline easyJet describing the southern Italian region of Calabria as lacking tourists because of its history of mafia and earthquakes. `\
-https://nytimes.com/aponline/2020/06/23/business/ap-eu-italy-easyjet.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/06/23/business/ap-eu-italy-easyjet.html?searchResultPosition=9
 
 **Mathematicians Behind JPEG Files Honored by Spanish Award**\
 `An international team of mathematicians whose theories have improved the compression of large digital files of data, including images and sound, will be recognized with one of the most prestigious awards in the Spanish-speaking world.`\
-https://nytimes.com/aponline/2020/06/23/world/europe/ap-eu-spain-science-award.html?searchResultPosition=7
-
-**German Battery Market Growth Driven By on Lithium-Ion Demand: ZVEI**\
-`Germany's electronics industry saw a strong increase in the battery market last year, spurred by demand for lithium-ion batteries for electric cars in a wider roll-out aimed at cutting carbon emissions in transport, data showed on Tuesday.`\
-https://nytimes.com/reuters/2020/06/23/technology/23reuters-germany-batteries-zvei.html?searchResultPosition=8
-
-**Explainer: One Meter or Two? How Social Distancing Affects COVID-19 Risk**\
-`Britain on Tuesday announced an easing of social distancing rules from July 4, reducing the recommended gap from 2 meters to "1 meter plus" in England as it further loosened lockdown measures meant to curb the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-distance-explainer.html?searchResultPosition=9
-
-**Brazil Judge Orders President Bolsonaro to Wear a Mask in Public**\
-`A Brazilian judge ordered President Jair Bolsonaro to wear a mask in public, according to a court decision made public on Tuesday, after the right-wing populist attended political rallies in the capital without any face covering.    `\
-https://nytimes.com/reuters/2020/06/23/world/americas/23reuters-health-coronavirus-brazil.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/23/world/europe/ap-eu-spain-science-award.html?searchResultPosition=10
 
