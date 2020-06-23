@@ -1,28 +1,28 @@
+**Factbox: Latest on the Worldwide Spread of the Coronavirus**\
+`European Union countries eager to revive their economies are prepared to bar entry to Americans because the U.S. has failed to control the coronavirus pandemic, the New York Times reported from Brussels on Tuesday, citing draft lists of acceptable travelers.`\
+https://nytimes.com/reuters/2020/06/23/world/americas/23reuters-health-coronavirus-latest-factbox.html?searchResultPosition=4
+
 **Ron Jeremy, Adult Film Star, Charged With Sexually Assaulting 4 Women**\
 `Three of the attacks occurred at the same bar in West Hollywood, the Los Angeles County District Attorney’s office said.`\
-https://nytimes.com/2020/06/23/arts/ron-jeremy-rape-charges.html?searchResultPosition=4
+https://nytimes.com/2020/06/23/arts/ron-jeremy-rape-charges.html?searchResultPosition=5
 
 **Trump Rally Flop in Tulsa, but a Hit on Television**\
 `Now it's apparent where many of President Donald Trump's supporters who stayed away from Saturday's campaign rally in Tulsa, Oklahoma, were instead: they were home watching it on television.`\
-https://nytimes.com/aponline/2020/06/23/business/bc-us-nielsens.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/23/business/bc-us-nielsens.html?searchResultPosition=6
 
 **How Major US Stock Indexes Fared Tuesday**\
 `Technology companies were high on the leaderboard again Tuesday as Wall Street extended its recent winning streak and headed for its third monthly gain in a row. `\
-https://nytimes.com/aponline/2020/06/23/business/ap-financial-markets-box.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/06/23/business/ap-financial-markets-box.html?searchResultPosition=7
 
 **Explainer: What Is a Second Wave of a Pandemic, and Has It Arrived in the U.S.?**\
 `Infectious disease experts, economists and politicians have raised concerns about a second wave of coronavirus infections in the United States that could worsen in the coming months.`\
-https://nytimes.com/reuters/2020/06/23/us/23reuters-health-coronavirus-usa-wave.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/06/23/us/23reuters-health-coronavirus-usa-wave.html?searchResultPosition=8
 
 **Fauci, Citing ‘Disturbing Surge,’ Tells Congress the Virus Is Not Under Control**\
 `The testimony of the nation’s top infectious disease expert countered President Trump’s upbeat assessment, describing a “mixed bag” of some bright spots amid worrying trends and unknowns.`\
-https://nytimes.com/2020/06/23/us/politics/fauci-congress-coronavirus.html?searchResultPosition=8
+https://nytimes.com/2020/06/23/us/politics/fauci-congress-coronavirus.html?searchResultPosition=9
 
 **California Hospital Admitting Only COVID-19 Patients as Outbreak Ravages State's Breadbasket**\
 `The COVID-19 spike in California's agricultural breadbasket is so steep that a hospital in Lodi is not accepting some patients who have other illnesses, as infections mount at nearly four times the rate called for in state guidelines for reopening the economy.`\
-https://nytimes.com/reuters/2020/06/23/us/23reuters-health-coronavirus-usa-california.html?searchResultPosition=9
-
-**Phils Say 2 More Players, 2 Staffers Test Positive; 12 Total**\
-`The Philadelphia Phillies say two more players and two additional staff members have tested positive for COVID-19, spiking the number of total members in the organization who have the virus to 12.`\
-https://nytimes.com/aponline/2020/06/23/sports/baseball/ap-bbn-virus-outbreak-phillies.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/23/us/23reuters-health-coronavirus-usa-california.html?searchResultPosition=10
 
