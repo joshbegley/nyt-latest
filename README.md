@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/06/23/world/africa/23reuters-gabon-lgbt-lawmaki
 `International Monetary Fund (IMF) staff and Sudan have reached agreement on macroeconomic policies structural reforms that would underpin a 12-month staff-monitored program, the fund said in a statement on Tuesday.`\
 https://nytimes.com/reuters/2020/06/23/world/africa/23reuters-sudan-economy-imf.html?searchResultPosition=7
 
-**France's Macron, Dutch PM Make Progress in EU Budget: Elysee**\
-`French President Emmanuel Macron and Dutch Prime Minister Mark Rutte were able to move forward during talks in the Netherlands over the European Union budget and recovery fund, a French presidential official said on Wednesday.`\
+**France's Macron, Dutch PM Rutte Make Progress on EU Budget: Elysee**\
+`French President Emmanuel Macron and Dutch Prime Minister Mark Rutte were able to move forward during talks to resolve differences over the European Union budget and recovery fund, a French presidential official said on Wednesday.`\
 https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-netherlands-france-macron.html?searchResultPosition=8
 
 **UN Chief Criticizes Lack of Global Cooperation on COVID-19**\
