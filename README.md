@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/06/22/sports/autoracing/22reuters-motor-nascar-
 `Malawians vote on Tuesday in a re-run of a discredited poll that has become a test case for the ability of African courts to tackle vote fraud and restrain presidential power.`\
 https://nytimes.com/reuters/2020/06/22/world/africa/22reuters-malawi-election.html?searchResultPosition=9
 
-**Kiribati's Pro-China Leader Taneti Maamau Wins Re-election, Says Opposition**\
-`Kiribati President Taneti Maamau has won a closely watched leadership vote after campaigning on a pro-China platform, shortly after the Pacific island nation switched diplomatic ties to Beijing from Taiwan, the opposition said on Tuesday.`\
+**Kiribati's Pro-China Leader Taneti Maamau Wins Re-election**\
+`Kiribati leader Taneti Maamau has won a closely watched presidential run-off after campaigning on a pro-China platform, shortly after the Pacific island nation switched diplomatic ties to Beijing from Taiwan. `\
 https://nytimes.com/reuters/2020/06/22/world/asia/22reuters-china-kiribati.html?searchResultPosition=10
 
