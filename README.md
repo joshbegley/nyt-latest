@@ -1,28 +1,28 @@
+**PIMCO CEO Sees Investment Opportunities in Distressed Credit**\
+`The damage done to the U.S. economy by the coronavirus pandemic will create opportunities for investors in distressed credit, PIMCO Chief Executive Emmanuel Roman said at the Bloomberg Invest Global conference on Tuesday. `\
+https://nytimes.com/reuters/2020/06/23/business/23reuters-usa-investments-pimco.html?searchResultPosition=4
+
+**Porn Star Ron Jeremy Charged With Rape and Sexual Assault**\
+`Adult film star Ron Jeremy was charged with raping three women and sexually assaulting a fourth in incidents in West Hollywood from 2014 to 2019, the Los Angeles County District Attorney said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/23/arts/23reuters-people-ron-jeremy.html?searchResultPosition=5
+
+**Trump Family to Ask Court to Stop Publication of Tell-All by President’s Niece**\
+`President Trump has said Mary L. Trump signed a nondisclosure agreement in connection with a 2001 court case related to the estate of Fred Trump Sr., the president’s father and her grandfather.`\
+https://nytimes.com/2020/06/23/us/politics/mary-trump-book-court.html?searchResultPosition=6
+
+**Murray Makes Winning Return After Seven-Month Layoff**\
+`Andy Murray enjoyed a winning return to action as he beat Liam Broady in the 'Battle of the Brits' tournament at the national tennis centre in west London on Tuesday.`\
+https://nytimes.com/reuters/2020/06/23/sports/tennis/23reuters-health-coronavirus-tennis-britain.html?searchResultPosition=7
+
+**U.S. Navy Ship Navigates Near Venezuelan Coast After Iranian Cargo Ship Arrives**\
+`A U.S. Navy ship navigated near the Venezuelan coast on Tuesday in what the U.S. military's Southern Command called a "freedom of navigation operation," a day after a cargo ship from U.S. foe Iran docked at a port of the South American country.`\
+https://nytimes.com/reuters/2020/06/23/world/americas/23reuters-usa-venezuela-military.html?searchResultPosition=8
+
+**Appeals Court Reduces J&J Talc Verdict but Censures Company**\
+`A Missouri appeals court has reduced a talcum powder verdict against Johnson & Johnson by more than half, even while ruling that the company knowingly sold a product that caused cancer.`\
+https://nytimes.com/aponline/2020/06/23/business/bc-us-talc-lawsuit-appeal.html?searchResultPosition=9
+
 **Karen Bass, Leading Voice in Policing Debate, Is Under Consideration for V.P.**\
 `Ms. Bass, the chairwoman of the Congressional Black Caucus, has been in touch with advisers to Joseph R. Biden Jr. who have been tasked with screening candidates for the vice presidency.`\
-https://nytimes.com/2020/06/23/us/politics/karen-bass-joe-biden-vp.html?searchResultPosition=4
-
-**Mexico Says It Is Cracking Down on Piracy in Gulf**\
-`The Mexican Navy said Tuesday it is cracking down on piracy in the Gulf of Mexico that has included attacks on ships and oil platforms. `\
-https://nytimes.com/aponline/2020/06/23/world/americas/ap-lt-mexico-piracy.html?searchResultPosition=5
-
-**Cancer-Stricken Flyers Forward Lindblom Skates With Team**\
-`Philadelphia Flyers forward Oskar Lindblom skated with team Tuesday in one of the few times he’s hit the ice since he was diagnosed with a rare form of bone cancer. `\
-https://nytimes.com/aponline/2020/06/23/sports/hockey/ap-hkn-flyers-lindblom-cancer.html?searchResultPosition=6
-
-**Top Los Angeles City Official Arrested on Racketeering Charges**\
-`A Los Angeles city councilman was arrested on racketeering charges on Tuesday, with prosecutors saying he ran his office as a "money-making criminal enterprise," taking $1.5 million in bribes from Chinese real estate developers and others in exchange for political influence.`\
-https://nytimes.com/reuters/2020/06/23/us/23reuters-los-angeles-corruption.html?searchResultPosition=7
-
-**Arab League Urges Libya Cease-Fire Amid Fears of Wider War**\
-`The Arab League on Tuesday pressed Libya’s warring parties and their foreign backers to halt fighting and restart peace talks, as regional tensions threaten a new escalation in the oil-rich country’s years-long conflict.`\
-https://nytimes.com/aponline/2020/06/23/world/middleeast/ap-ml-libya-arab-league.html?searchResultPosition=8
-
-**ValueAct's Founder Ubben Retires From Firm, Starts New Venture**\
-`Investor Jeffrey Ubben, who grew ValueAct Capital into one of the world's most powerful activist hedge funds, is retiring from the firm and will start anew with an investment company that will focus on society and the environment.`\
-https://nytimes.com/reuters/2020/06/23/business/23reuters-hedgefunds-valueact.html?searchResultPosition=9
-
-**Mexican President to Invite Twitter Boss to Talk About Fighting Fake News**\
-`Mexican President Andres Manuel Lopez Obrador said on Tuesday he would invite the head of Twitter Inc to Mexico to talk about controlling bots and fighting the spread of fake news on social media.`\
-https://nytimes.com/reuters/2020/06/23/technology/23reuters-mexico-twitter.html?searchResultPosition=10
+https://nytimes.com/2020/06/23/us/politics/karen-bass-joe-biden-vp.html?searchResultPosition=10
 
