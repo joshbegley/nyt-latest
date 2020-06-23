@@ -1,28 +1,28 @@
+**The 1986 Kerner Commission Report Still Echoes Across America**\
+`The Kerner commission left scant doubt that it regarded white racism as the tinder igniting the 1960s riots.`\
+https://nytimes.com/2020/06/23/us/kerner-commission-report.html?searchResultPosition=4
+
+**NASCAR Drivers March in Support of Bubba Wallace**\
+`Fellow drivers pushed the car used by Darrell Wallace Jr., whose nickname is Bubba, in a show of support after someone placed a noose in his stall at Talladega Superspeedway.`\
+https://nytimes.com/video/us/politics/100000007205482/bubba-wallace-nascar.html?searchResultPosition=5
+
+**Defense Lawyers in MH17 Plane Trial Seek More Investigations**\
+`Defense lawyers for a Russian charged with involvement in the downing of Malaysia Airlines Flight 17 over eastern Ukraine in 2014 said Tuesday that the nearly six-year investigation into the deadly incident still has not produced a definitive picture of what happened and further investigations are needed.`\
+https://nytimes.com/aponline/2020/06/23/world/europe/ap-eu-netherlands-ukraine-plane.html?searchResultPosition=6
+
+**Racial Inequality Was Tearing the U.S. Apart, a 1968 Report Warned. It Was Ignored. | Retro Report**\
+`Anger over policing and inequality boiled over in 1967 in protests and violence across the United States. A landmark report warned that without major changes, it would happen again.`\
+https://nytimes.com/video/us/100000007192360/racial-inequality-was-tearing-the-us-apart-a-1968-report-warned-it-was-ignored-retro-report.html?searchResultPosition=7
+
+**University of Michigan Pulls Out of Trump-Biden TV Debate; October Debate Set for Miami**\
+`The University of Michigan on Tuesday pulled out of hosting a televised presidential debate in October, expressing concern it could not safely stage the event while reopening after a coronavirus lockdown.`\
+https://nytimes.com/reuters/2020/06/23/us/politics/23reuters-usa-election-debates.html?searchResultPosition=8
+
+**Wirecard 'Disaster' Piles on Pressure for Corporate Reform in Germany**\
+`Wirecard's fall from grace prompted calls for an overhaul of Germany's system of corporate oversight on Tuesday, as the fraud scandal threatened to further undermine the country's once-prized reputation for integrity.   `\
+https://nytimes.com/reuters/2020/06/23/business/23reuters-wirecard-accounts-germany.html?searchResultPosition=9
+
 **PA's Bid to Halt Annexation Leaves Gaza Patients in Limbo**\
 `Jomaa al-Najjar was desperate to send his 2-month-old daughter Joud out of the Gaza Strip to Israel for urgent medical treatment for epilepsy. But with the Palestinian Authority refusing to relay his request, there was no way to coordinate her transfer.`\
-https://nytimes.com/aponline/2020/06/23/world/middleeast/ap-ml-israel-palestinians-gaza-patients.html?searchResultPosition=4
-
-**Explainer: Why COVID-19 Can Run Rife in Meatpacking Plants**\
-`Meat-processing plants around the world are proving coronavirus infection hotspots, with an outbreak at a factory in Germany leading to Guetersloh becoming on Tuesday the first area in the country to be ordered back into lockdown. `\
-https://nytimes.com/reuters/2020/06/23/business/23reuters-health-coronavirus-meat-explainer.html?searchResultPosition=5
-
-**Techtronic Industries to Invest an Additional $650 Million in Vietnam**\
-`Power tool manufacturer Techtronic Industries will invest an additional $650 million in Vietnam to produce cordless appliances, the Vietnamese government said on Tuesday. `\
-https://nytimes.com/reuters/2020/06/23/technology/23reuters-techtronicindustries-vietnam.html?searchResultPosition=6
-
-**Exclusive: Shell Plans Major Restructuring Around Climate Drive, CEO Tells Employees**\
-`Royal Dutch Shell will announce a major restructuring by the end of the year as the energy company prepares to accelerate its shift towards low-carbon, CEO Ben van Beurden told employees, a company source said.`\
-https://nytimes.com/reuters/2020/06/23/business/23reuters-shell-restructuring-exclusive.html?searchResultPosition=7
-
-**Libyan and Foreign Forces Mobilise at Sirte, Arab Ministers Urge Calm**\
-`Arab foreign ministers said on Tuesday they wanted to head off a new battle in Libya, where the warring sides are mobilising near the main oil region as their foreign backers threaten an escalation. `\
-https://nytimes.com/reuters/2020/06/23/world/africa/23reuters-libya-security.html?searchResultPosition=8
-
-**Britain Condemns Houthis' Missile Attack on Riyadh**\
-`British Foreign Secretary Dominic Raab condemned a drone and ballistic missile attack on Saudi Arabia launched by Yemen's Iran-aligned Houthi movement on Tuesday.`\
-https://nytimes.com/reuters/2020/06/23/world/middleeast/23reuters-yemen-security-saudi-britain.html?searchResultPosition=9
-
-**From Canary Islands, Spanish Royals Push to Save Tourism**\
-`Spain's king and queen visited a Canary Islands beach on Tuesday on the first leg of a tour intended to help rescue the tourism-dependent economy, battered by the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-spain.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/23/world/middleeast/ap-ml-israel-palestinians-gaza-patients.html?searchResultPosition=10
 
