@@ -1,28 +1,28 @@
+**Australian Regulator Sues CBA and Wealth Unit for Conflicted Remuneration Payment**\
+`Australia's corporate regulator said on Tuesday it commenced civil penalty proceedings against Commonwealth Bank of Australia and its wealth management unit over alleged conflicted remuneration paid in distribution of a superannuation product.`\
+https://nytimes.com/reuters/2020/06/23/world/asia/23reuters-cba-lawsuits-asic.html?searchResultPosition=4
+
+**UK Car Sector Calls for More Government Help to Handle Virus Hit**\
+`Britain's car industry called on the government to introduce additional measures such as a sales tax cut to boost the sector as a third of automotive workers remain furloughed due to the coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-britain-autos.html?searchResultPosition=5
+
+**Asia Today: Virus Sets Off New School Closures in Australia**\
+`Australia’s Victoria state has recorded 17 new cases of COVID-19, resulting in the closing of two primary schools in Melbourne. State Premier Daniel Andrews said there would be “significant community transmission” among the new cases.`\
+https://nytimes.com/aponline/2020/06/23/business/ap-as-virus-outbreak-asia.html?searchResultPosition=6
+
+**Corrections: June 23, 2020**\
+`Corrections that appeared in print on Tuesday, June 23, 2020.`\
+https://nytimes.com/2020/06/23/pageoneplus/corrections-june-23-2020.html?searchResultPosition=7
+
+**Quotation of the Day: A Racist Attack Was Caught on Camera. Nearly 45 Years Later, It Still Stings.**\
+`Quotation of the Day for Tuesday, June 23, 2020.`\
+https://nytimes.com/2020/06/23/todayspaper/quotation-of-the-day-a-racist-attack-was-caught-on-camera-nearly-45-years-later-it-still-stings.html?searchResultPosition=8
+
 **US Meat Industry Puzzled by China's Import Ban for 1 Plant**\
 `China's decision to ban imports from a single Tyson Foods poultry plant where there was a coronavirus outbreak has raised concerns about the implications on the U.S. meat industry if the action is expanded to other plants.`\
-https://nytimes.com/aponline/2020/06/22/business/ap-us-virus-outbreak-poultry.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/22/business/ap-us-virus-outbreak-poultry.html?searchResultPosition=9
 
 **Report: Ryder Cup Will Be Postponed Until 2021**\
 `The Ryder Cup matches scheduled to be held Sept. 25-27 in Wisconsin will be postponed until next year due to the coronavirus pandemic, The Guardian of London reported Monday.`\
-https://nytimes.com/reuters/2020/06/22/sports/golf/22reuters-golf-pga-ryder-cup.html?searchResultPosition=5
-
-**Muslim Woman Was Forced to Remove Hijab for Booking Photo After Arrest, Advocacy Group Says**\
-`More than 100,000 people have signed a petition criticizing the treatment of Alaa Massri, 18, at a correctional center in Miami.`\
-https://nytimes.com/2020/06/22/us/Muslim-woman-hijab-Columbus-ponce-statue.html?searchResultPosition=6
-
-**Taiwan's Foxconn Eyes Further India Investment, Sees Bright Outlook There**\
-`Taiwan's Foxconn is planning further investment in India and may announce details in the next few months as the world's largest contract manufacturer views the outlook there very favourably, its chairman said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/22/technology/22reuters-foxconn-agm.html?searchResultPosition=7
-
-**Protesters in Washington Try to Topple Andrew Jackson Statue**\
-`Just steps from the White House in Lafayette Square, a group of protesters clashed with officers as they sought to clear out the park.`\
-https://nytimes.com/video/us/100000007205037/washington-protests-andrew-jackson-statue.html?searchResultPosition=8
-
-**U.S. Set to Announce Aluminum Tariffs on Canada by End of Week: Bloomberg**\
-`The United States is planning to re-impose tariffs on aluminum imports from Canada, Bloomberg reported https://www.bloomberg.com/news/articles/2020-06-23/u-s-set-to-announce-aluminum-tariffs-on-canada-by-end-of-week?sref=C6LRZopg late on Monday, citing people familiar with the matter. `\
-https://nytimes.com/reuters/2020/06/22/us/22reuters-usa-trade-canada-tariffs.html?searchResultPosition=9
-
-**Judge: California Can’t Require Cancer Label for Weed Killer**\
-`California can’t require a cancer warning label on Roundup, the world’s most widely used weed-killer, a federal judge ruled Monday.`\
-https://nytimes.com/aponline/2020/06/22/business/ap-us-weed-killer-label.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/22/sports/golf/22reuters-golf-pga-ryder-cup.html?searchResultPosition=10
 
