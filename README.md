@@ -1,28 +1,28 @@
-**Eton, UK's Most Elite School, Apologises to Former Pupil for Racism**\
-`The headmaster of Eton said he wants to apologise in person to Nigerian author Dillibe Onyeama, one of the first black students to complete his studies at Britain's most elite school, for the racism he experienced there which he detailed in a book.`\
-https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-minneapolis-police-protests-britain-eton.html?searchResultPosition=4
+**How the Pandemic Has Been Brutal for Seniors**\
+`Tuesday: Some of the most vulnerable have been evicted from nursing homes. Also: More police shootings spur protests; and the debate about statues.`\
+https://nytimes.com/2020/06/23/us/ca-nursing-homes-coronavirus.html?searchResultPosition=4
 
-**Factbox: What UK PM Johnson Told Parliament on Latest Lockdown Relaxation**\
-`Prime Minister Boris Johnson said on Tuesday the conditions had been met to further relax the coronavirus lockdown in England from July 4. Below is what he told parliament.`\
-https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-britain-quotes-factbox.html?searchResultPosition=5
+**Djokovic Statement After Testing Positive for Coronavirus**\
+`Statement from No. 1-ranked tennis player Novak Djokovic on Tuesday after he and his wife tested positive for the coronavirus:`\
+https://nytimes.com/aponline/2020/06/23/sports/tennis/ap-ten-djokovic-event-statement.html?searchResultPosition=5
 
-**India to Cut Pakistan Embassy Staff Over 'Acts of Espionage': Statement**\
-`India said on Tuesday it would reduce the headcount in Pakistan's embassy in New Delhi by 50%, following what it said was "acts of espionage" by officials there. `\
-https://nytimes.com/reuters/2020/06/23/world/asia/23reuters-india-pakistan.html?searchResultPosition=6
+**UN Evaluates Reports of Record Arctic Heat in Siberia**\
+`The U.N. weather agency is investigating media reports suggesting a new record high temperature of over 38 degrees Celsius (100.4 degrees Fahrenheit) in the Arctic Circle amid a heatwave and prolonged wildfires in eastern Siberia. `\
+https://nytimes.com/aponline/2020/06/23/world/europe/ap-un-russia-arctic-heat-1st-ld-writethru.html?searchResultPosition=6
 
-**UK Quarantine Policy Will Be Led by Public Health: PM Johnson**\
-`British Prime Minister Boris Johnson said that any changes to the country's quarantine policy would be based on public health guidance and not a desire to open up the economy. `\
-https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-health-coronavirus-britain-quarantine.html?searchResultPosition=7
+**1 Woman Dead, 2 Hurt in Shooting at Applebee’s in Missouri**\
+`A man has been arrested in a shooting that left one woman dead and two others wounded, including a firefighter, at an Applebee's restaurant in suburban St. Louis, authorities said.`\
+https://nytimes.com/aponline/2020/06/23/us/ap-us-restaurant-shooting-missouri-1st-ld-writethru.html?searchResultPosition=7
 
-**3 Family Members Found Dead in Backyard Swimming Pool**\
-`The deaths of three family members who were found unresponsive in a backyard above-ground swimming pool in New Hersey is under investigation, authorities said Tuesday.`\
-https://nytimes.com/aponline/2020/06/23/us/ap-us-swimming-pool-deaths-1st-ld-writethru.html?searchResultPosition=8
+**Novak Djokovic Tests Positive for the Coronavirus**\
+`The world No. 1 in men’s tennis is the fourth player found to be infected after he organized an exhibition series in Croatia and Serbia.`\
+https://nytimes.com/2020/06/23/sports/tennis/novak-djokovic-coronavirus.html?searchResultPosition=8
 
-**Britain Sets Out How It Will Regulate the City After Brexit**\
-`Britain will "tailor" capital rules for insurers inherited from the European Union as it takes back control of its crucial financial services sector, finance minister Rishi Sunak said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/23/business/23reuters-britain-eu-financial-services.html?searchResultPosition=9
+**Fiat Chrysler Close to Green Light for $7.1 Billion State-Backed Loan, Bank Executive Says**\
+`Fiat Chrysler (FCA) is very close to obtaining the necessary authorisations to receive a 6.3 billion euros ($7.1 billion) state-backed loan from Intesa Sanpaolo, an executive at the bank said on Tuesday. `\
+https://nytimes.com/reuters/2020/06/23/business/23reuters-fiat-chrysler-financing.html?searchResultPosition=9
 
-**Luckin Gets Another De-Listing Notice From Nasdaq**\
-`Luckin Coffee Inc disclosed on Tuesday it received a de-listing notice from the Nasdaq Inc last week after the Chinese coffee chain failed to file its annual report.`\
-https://nytimes.com/reuters/2020/06/23/business/23reuters-luckin-coffee-investigation-nasdaq.html?searchResultPosition=10
+**Turkey Allows Top Lawyers to March, Ending Standoff**\
+`Turkish authorities on Tuesday allowed a group of top lawyers to continue a symbolic march into the capital of Ankara, ending a more than 24-hour standoff between the lawyers and police.`\
+https://nytimes.com/aponline/2020/06/23/world/europe/ap-eu-turkey-lawyers.html?searchResultPosition=10
 
