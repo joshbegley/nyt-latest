@@ -1,28 +1,28 @@
+**IMF, Sudan Reach Agreement on Macroeconomic Policies Structural Reforms**\
+`International Monetary Fund (IMF) staff and Sudan have reached agreement on macroeconomic policies structural reforms that would underpin a 12-month staff-monitored program, the fund said in a statement on Tuesday.`\
+https://nytimes.com/reuters/2020/06/23/world/africa/23reuters-sudan-economy-imf.html?searchResultPosition=4
+
+**France's Macron, Dutch PM Make Progress in EU Budget: Elysee**\
+`French President Emmanuel Macron and Dutch Prime Minister Mark Rutte were able to move forward during talks in the Netherlands over the European Union budget and recovery fund, a French presidential official said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/23/world/europe/23reuters-netherlands-france-macron.html?searchResultPosition=5
+
+**UN Chief Criticizes Lack of Global Cooperation on COVID-19**\
+`The United Nations chief criticized the total lack of international coordination in tackling the COVID-19 pandemic on Tuesday and warned that the go-it-alone policy of many countries will not defeat the coronavirus.`\
+https://nytimes.com/aponline/2020/06/23/world/ap-un-virus-outbreak-no-global-cooperation.html?searchResultPosition=6
+
+**Police: At Least One Hurt After Shooting at Virginia Mall**\
+`Police in Virginia say at least one person was hurt Tuesday in a shooting inside a mall. `\
+https://nytimes.com/aponline/2020/06/23/us/ap-us-mall-shooting-virginia.html?searchResultPosition=7
+
+**Louisville Police Fire Brett Hankison, Officer in Breonna Taylor Shooting**\
+`The police chief said Mr. Hankison “wantonly and blindly” fired 10 rounds into Ms. Taylor’s apartment when she was killed.`\
+https://nytimes.com/2020/06/23/us/breonna-taylor-brett-hankison-fired.html?searchResultPosition=8
+
+**Earthquake Shakes Mexico, Killing at Least Four**\
+`Buildings hundreds of miles away swayed and residents fled homes and workplaces to seek safety on the streets.`\
+https://nytimes.com/2020/06/23/world/americas/earthquake-southern-mexico.html?searchResultPosition=9
+
 **Ex-FBI Agent Accused of Storing Top-Secret Documents at Home**\
 `A former FBI special agent has been charged with stealing sensitive government documents and keeping them in his home, according to U.S. District Court documents unsealed Tuesday in Chicago. `\
-https://nytimes.com/aponline/2020/06/23/us/ap-us-fbi-agent-sensitive-documents.html?searchResultPosition=4
-
-**Extradition Hearings for Huawei CFO to Run Into Next Year**\
-`The British Columbia Supreme Court on Tuesday approved a schedule for the U.S. extradition case against a senior Huawei executive that would see hearings run into next year.`\
-https://nytimes.com/aponline/2020/06/23/business/ap-cn-canada-china-huawei.html?searchResultPosition=5
-
-**Gun Violence Spikes in N.Y.C., Intensifying Debate Over Policing**\
-`More than a dozen people have been fatally shot, including a teenager at her college graduation party and a clothing designer who was washing his car.`\
-https://nytimes.com/2020/06/23/nyregion/nyc-shootings-surge.html?searchResultPosition=6
-
-**Chrystul Kizer, Teen Charged With Killing Sexual Abuser, Is Released on Bond**\
-`Ms. Kizer was charged with premeditated murder in the 2018 death of Randall Volar. Her case attracted widespread attention, and a Chicago bail fund paid $400,000 for her release on Monday.`\
-https://nytimes.com/2020/06/23/us/chrystul-kizer-free-bond.html?searchResultPosition=7
-
-**Met Museum Plans to Open in Late August**\
-`If New York’s phased reopening goes according to plan, museums will be allowed to open as early as July 20.`\
-https://nytimes.com/2020/06/23/arts/design/met-museum-reopen-virus.html?searchResultPosition=8
-
-**U.S. Hospitals Lose Legal Challenge to Trump Price Transparency Rule**\
-`A federal judge on Tuesday dismissed a challenge by hospital groups to a federal rule requiring them to disclose prices they quietly negotiate with insurers, in a victory for White House efforts to make healthcare pricing more transparent to patients.`\
-https://nytimes.com/reuters/2020/06/23/us/23reuters-usa-hospitals-lawsuit.html?searchResultPosition=9
-
-**Trump's Brother Seeks to Halt Family Tell-All Book**\
-`President Donald Trump’s brother is asking a New York City judge to prevent the president’s niece from publishing a tell-all book, which is expected to be released later this month. `\
-https://nytimes.com/aponline/2020/06/23/arts/ap-us-trump-book.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/23/us/ap-us-fbi-agent-sensitive-documents.html?searchResultPosition=10
 
