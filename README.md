@@ -1,28 +1,28 @@
-**G.O.P. Faces Risk From Push to Repeal Health Law During Pandemic**\
-`Republicans and the Trump administration continue to press to end the Affordable Care Act even as the virus leaves more Americans worried about affordable health coverage.`\
-https://nytimes.com/2020/06/22/us/politics/republicans-health-care-coronavirus.html?searchResultPosition=4
+**Mexico's Confirms 4,577 New Coronavirus Infections and 759 Deaths**\
+`Mexico on Monday reported 4,577 new infections and 759 additional deaths from the coronavirus, the health ministry said, bringing the total number in the country to 185,122 cases and 22,584 deaths.`\
+https://nytimes.com/reuters/2020/06/22/world/americas/22reuters-health-coronavirus-mexico-tally.html?searchResultPosition=4
 
-**Nevada to Join Other States in Adopting California Zero Emission Vehicle Rules**\
-`Nevada's governor said on Monday his state plans to adopt California's zero emission vehicle (ZEV) mandate and tailpipe emissions rules even as the Trump administration has moved to strip states of the right to implement such requirements.`\
-https://nytimes.com/reuters/2020/06/22/world/asia/22reuters-autos-emissions-usa.html?searchResultPosition=5
+**Fed's Gloomy Economic Outlook 'About Right,' Say Economists: Reuters Poll**\
+`The Federal Reserve struck the right tone in its first pandemic-era economic outlook, suggesting years of extraordinary policy support for an economy facing a slow and long slog back, according to a majority of economists in a Reuters poll.`\
+https://nytimes.com/reuters/2020/06/22/business/22reuters-usa-economy-poll.html?searchResultPosition=5
 
-**Global Advertising Faces Double-Digit Decline This Year: Report**\
-`The global advertising industry is expected to decline nearly 12% this year as the coronavirus pandemic batters businesses around the world, a report on the sector said on Monday.`\
-https://nytimes.com/reuters/2020/06/22/us/22reuters-advertising-forecast.html?searchResultPosition=6
+**Players Reject 60-Game Plan, Leaving Manfred to Determine M.L.B. Season**\
+`The rejection of the owners’ latest proposal left few options for a 2020 season and set up a potentially lengthy legal battle between management and the players’ union.`\
+https://nytimes.com/2020/06/22/sports/baseball/mlb-season-schedule-vote.html?searchResultPosition=6
 
-**Coronavirus Briefing: What Happened Today**\
-`An expert compared the virus’s spread in the U.S. to a “forest fire.”`\
-https://nytimes.com/2020/06/22/us/coronavirus-today.html?searchResultPosition=7
+**Summer Rolls for Entertaining**\
+`Pescatore in Grand Central Market ships eight varieties of its seafood-filled rolls nationwide.`\
+https://nytimes.com/2020/06/22/dining/pescatore-summer-rolls.html?searchResultPosition=7
 
-**Trump Suspends Visas Allowing Hundreds of Thousands of Foreigners to Work in the U.S.**\
-`The move is fiercely opposed by business leaders, who say it will block their ability to recruit critically needed workers from countries overseas.`\
-https://nytimes.com/2020/06/22/us/politics/trump-visas.html?searchResultPosition=8
+**A Play on Chocolate**\
+`Mondiants, the chocolatier Christopher Curtin’s latest creation, iterate on a sweet idea.`\
+https://nytimes.com/2020/06/22/dining/eclat-chocolate-mondiants.html?searchResultPosition=8
 
-**Bars, Strip Clubs and Churches: U.S. Virus Outbreaks Enter Unwieldy Phase**\
-`For months, clusters often centered in nursing homes, prisons and food processing plants. With Americans venturing into public more, new types of outbreaks are emerging.`\
-https://nytimes.com/2020/06/22/us/new-coronavirus-phase.html?searchResultPosition=9
+**Federal Prosecutor Who Led Cohen Probe Now in Atop NY Office**\
+`A federal prosecutor who held a key role in the case against President Donald Trump’s former personal attorney worked Monday to restore calm to the Manhattan prosecutor’s office, following the abrupt ouster of her predecessor.`\
+https://nytimes.com/aponline/2020/06/22/us/politics/ap-us-manhattan-federal-prosecutor-new-boss.html?searchResultPosition=9
 
-**Woolworths Underpaid Staff at ALH Hotels by About $270 Million**\
-`Australia's Woolworths Group Ltd said on Tuesday employees at its pub and hotels group ALH Hotels had been underpaid and the cost to remediate them would eat into its full-year operating profit.`\
-https://nytimes.com/reuters/2020/06/22/world/asia/22reuters-woolworths-grp-pay.html?searchResultPosition=10
+**These Complete a Spirit**\
+`Avec, a new juice-based soft drink, comes in five flavors and pairs well with tequila, gin or vodka.`\
+https://nytimes.com/2020/06/22/dining/avec-drinks-fruit-soda.html?searchResultPosition=10
 
