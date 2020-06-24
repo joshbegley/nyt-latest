@@ -1,40 +1,40 @@
-**U.S. Attorney to Testify Before U.S. House Panel on July 28: Spokeswoman**\
+**Daimler and Nvidia Team Up to Close Tech Gap to Tesla**\
+`Having pulled ahead in the race to develop a software-based vehicle operating system, U.S. electric car pioneer Tesla faces a new challenge from an alliance of German luxury carmaker Daimler and U.S. computer graphics specialist Nvidia.`\
+https://nytimes.com/reuters/2020/06/24/business/24reuters-nvidia-daimler-software-analysis.html?searchResultPosition=1
+
+**U.S. Attorney General to Testify Before U.S. House Panel on July 28: Spokeswoman**\
 `U.S. Attorney General William Barr, under fire from Democrats for actions they view as politically motivated, will testify before the House Judiciary Committee on July 28, a Justice Department spokeswoman said on Wednesday.`\
-https://nytimes.com/reuters/2020/06/24/us/politics/24reuters-usa-congress-justice.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/06/24/us/politics/24reuters-usa-congress-justice.html?searchResultPosition=2
 
 **Senate Approves 200th Federal Judge Nominated by Trump**\
 `The Senate has approved the nomination of a Mississippi judge to a federal appeals court, the 200th federal judge named by President Donald Trump and confirmed by the Republican-controlled chamber. It's the highest number of judicial nominees confirmed at this stage of a presidency in four decades.`\
-https://nytimes.com/aponline/2020/06/24/us/politics/ap-us-trump-judicial-nominee.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/06/24/us/politics/ap-us-trump-judicial-nominee.html?searchResultPosition=3
 
 **New Google Default Wipes Users' Location, Web History After 18 Months**\
 `Alphabet Inc's Google said on Wednesday it will automatically delete some location history after 18 months for new users and make it easier for everyone to access its search, Maps and YouTube apps without being tracked.`\
-https://nytimes.com/reuters/2020/06/24/business/24reuters-alphabet-google-privacy.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/24/business/24reuters-alphabet-google-privacy.html?searchResultPosition=4
 
 **Disney Faces Pushback on Walt Disney World Reopening**\
 `Petitioners are pressing Disney to delay the July 11 reopening of its Orlando, Florida-based Walt Disney World, citing recent spikes in COVID-19 cases in the state.`\
-https://nytimes.com/reuters/2020/06/24/business/24reuters-health-coronavirus-disney.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/06/24/business/24reuters-health-coronavirus-disney.html?searchResultPosition=5
 
 **Committee Votes to Remove Missouri Confederate Monument**\
 `A monument in a southeast Missouri city honoring the Confederate States of America may soon be coming down.`\
-https://nytimes.com/aponline/2020/06/24/us/ap-us-confederate-monument-missouri.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/24/us/ap-us-confederate-monument-missouri.html?searchResultPosition=6
 
 **Senate Democrats Block G.O.P. Police Bill, Calling It ‘Inadequate’**\
 `The vote reflected the waning likelihood that Congress would be able to reach an election-year compromise on legislation to address racial bias in policing.`\
-https://nytimes.com/2020/06/24/us/politics/senate-police-bill.html?searchResultPosition=6
+https://nytimes.com/2020/06/24/us/politics/senate-police-bill.html?searchResultPosition=7
 
 **Sorry, eBay and Uber. You’re Hated.**\
 `Why the middlemen are the internet’s villains.`\
-https://nytimes.com/2020/06/24/technology/internet-middlemen.html?searchResultPosition=7
+https://nytimes.com/2020/06/24/technology/internet-middlemen.html?searchResultPosition=8
 
 **Instant View: Wall Street Backpedals Amid New Virus Fears, Quarantines**\
 `Wall Street's main indexes tumbled on Wednesday, accelerating pullbacks a day after the Nasdaq notched a record high, after New York, New Jersey and Connecticut announced that visitors from states with high coronavirus infection rates must self quarantine.`\
-https://nytimes.com/reuters/2020/06/24/business/24reuters-usa-markets-instant-view.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/06/24/business/24reuters-usa-markets-instant-view.html?searchResultPosition=9
 
 **Sergei Khrushchev, Son of Soviet Leader, Dies at US Home**\
 `Sergei Khrushchev, the son of late Cold War-era Soviet leader Nikita Khrushchev and who became a U.S. citizen in 1999, has died at his Rhode Island home, authorities said. He was 84.`\
-https://nytimes.com/aponline/2020/06/24/us/ap-us-obit-khrushchevs-son.html?searchResultPosition=9
-
-**Students Against Gun Violence Rallying for Racial Justice**\
-`Among the thousands of activists who have marched in the nation’s capital recently to protest racial injustice are survivors of a Florida high school massacre who stood in the very same place two years ago to fight gun violence. `\
-https://nytimes.com/aponline/2020/06/24/us/ap-us-racial-injustice-parkland-activists.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/24/us/ap-us-obit-khrushchevs-son.html?searchResultPosition=10
 
