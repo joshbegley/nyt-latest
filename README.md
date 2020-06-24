@@ -1,40 +1,40 @@
-**In Reversal, Trump-Comey Mini-Series Will Now Air Before Election Day**\
-`The series director criticized ViacomCBS’s announcement that it would broadcast “The Comey Rule” in late November. On Wednesday, the air date was moved to September.`\
-https://nytimes.com/2020/06/24/business/media/trump-comey-mini-series.html?searchResultPosition=1
+**Results: The Most Detailed Map of the Florida Democratic Primary**\
+`By Charlie Smart, Denise Lu, Matthew Bloch, Ben Smithgall and Miles Watkins`\
+https://nytimes.com/interactive/2020/03/17/us/elections/precinct-map-florida-primary.html?searchResultPosition=1
 
-**Texas Primary Election Results: 32nd House District**\
+**Florida Polls: Who Different Groups Supported**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-32-primary-election.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/03/17/us/elections/exit-polls-florida-primary.html?searchResultPosition=2
 
-**Texas Primary Election Results: 29th House District**\
+**Illinois U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-29-primary-election.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-senate-primary-election.html?searchResultPosition=3
 
-**Texas Primary Election Results: 14th House District**\
+**Live: Illinois State Primary Election Results 2020**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-14-primary-election.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-primary-elections.html?searchResultPosition=4
 
-**Texas Primary Election Results: 35th House District**\
+**Illinois Primary Election Results: 14th House District**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-35-primary-election.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-14-primary-election.html?searchResultPosition=5
 
-**Texas Primary Election Results: 27th House District**\
+**Illinois Democratic Primary Election Results: Eighth House District**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-27-primary-election.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-8-democrat-primary-election.html?searchResultPosition=6
 
-**Texas Primary Election Results: 33rd House District**\
+**Florida Presidential Republican Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-33-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/03/17/us/elections/results-florida-president-republican-primary-election.html?searchResultPosition=7
 
-**Texas Primary Election Results: 22nd House District**\
+**Arizona Election Results: Live Presidential Primary 2020**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-22-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/03/17/us/elections/results-arizona-president-democrat-primary-election.html?searchResultPosition=8
 
-**Texas Primary Election Results: Second House District**\
+**Illinois Primary Election Results: 12th House District**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-2-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-12-primary-election.html?searchResultPosition=9
 
-**Texas Primary Election Results: 18th House District**\
+**Illinois Primary Election Results: Sixth House District**\
 ``\
-https://nytimes.com/interactive/2020/03/03/us/elections/results-texas-house-district-18-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/03/17/us/elections/results-illinois-house-district-6-primary-election.html?searchResultPosition=10
 
