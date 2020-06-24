@@ -1,40 +1,40 @@
+**7 Podcasts For History Buffs**\
+`These shows may fill in some of the gaps left by your school curriculum and deepen your understanding of what’s happening now.`\
+https://nytimes.com/2020/06/24/arts/history-podcasts-slavery.html?searchResultPosition=1
+
+**Germany's Altmaier Sees a Ray of Hope for Economy**\
+`A record rise in the Ifo institute's survey of German business sentiment in June shows "the first silver linings on the horizon" for Europe's largest economy, Economy Minister Peter Altmaier said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/24/world/europe/24reuters-germany-politics-economy-altmaier.html?searchResultPosition=2
+
+**Scaled-Down Toronto Film Festival Plans Virtual Red Carpets**\
+`The Toronto International Film Festival, one of the leading launching pads for fall movies and Oscar contenders, on Wednesday announced plans for a smaller 2020 edition with virtual red carpet premieres and drive-in screenings. `\
+https://nytimes.com/aponline/2020/06/24/us/ap-us-toronto-film-festival.html?searchResultPosition=3
+
+**War Crimes Prosecutor Files Indictment Against Kosovo President**\
+`The Office of the Special Prosecutor in the Hague said on Wednesday it had filed an indictment against Kosovo President Hashim Thaci and "others" for war crimes and crimes against humanity, including nearly 100 murders. `\
+https://nytimes.com/reuters/2020/06/24/world/24reuters-kosovo-warcrimes-president.html?searchResultPosition=4
+
+**New York City Marathon Canceled Because of Pandemic**\
+`Despite dropping infection rates in the New York region, organizers and city officials decided the risks of running a race with 50,000 participants was too high.`\
+https://nytimes.com/2020/06/24/sports/coronavirus-nyc-marathon-canceled.html?searchResultPosition=5
+
+**Music, Marriage, a Happy Life in the Church. Now, Harder Times.**\
+`Terry Gonda, a music director at her parish near Detroit, was told she would be fired because she is married to a woman. Days later came the Supreme Court ruling on L.G.B.T.Q. workplace rights.`\
+https://nytimes.com/2020/06/24/us/politics/church-lgbtq-workplace-rights.html?searchResultPosition=6
+
+**For the Actors of ‘Take Me Out,’ a Coming-Out Party Is Postponed**\
+`Five were slated to make their Broadway debuts. Now? They’re bunking with family, grappling with unemployment and fighting injustice.`\
+https://nytimes.com/2020/06/24/theater/take-me-out-broadway.html?searchResultPosition=7
+
+**Justice Dept. Officials to Testify on Politicization Under Barr**\
+`Lawmakers will hear from officials claiming that politics drove decisions on the sentencing of a presidential ally and on antitrust actions.`\
+https://nytimes.com/2020/06/24/us/politics/justice-department-politicization.html?searchResultPosition=8
+
 **Mexican President Says Washington Summit With Trump Likely in July**\
 `Mexican President Andres Manuel Lopez Obrador said on Wednesday it is "very probable" that he will meet with U.S. President Donald Trump in Washington in July.`\
-https://nytimes.com/reuters/2020/06/24/world/americas/24reuters-mexico-usa.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/06/24/world/americas/24reuters-mexico-usa.html?searchResultPosition=9
 
 **Council's £1 Billion Property Bet Shaken by WeWork Rent Waiver Request**\
 `WeWork has asked to skip millions of pounds of rent payments owed to Spelthorne Borough Council, creating a major headache for the tiny local authority that has borrowed more than £1bn to bet on commercial property.`\
-https://nytimes.com/reuters/2020/06/24/business/24reuters-we-work-council.html?searchResultPosition=2
-
-**German Cabinet Backs 4.3 Billion Euros for Utilities Over Brown Coal Phase-Out**\
-`Chancellor Angela Merkel's cabinet on Wednesday approved a 4.3 billion euro ($4.9 billion) compensation package for utilities operating lignite power stations as part of Germany's plans to phase out coal by 2038 at the latest to meet climate goals.`\
-https://nytimes.com/reuters/2020/06/24/world/europe/24reuters-germany-politics-climate-change.html?searchResultPosition=3
-
-**Djokovic's Parents Defend Their Son, Blame Another Player**\
-`Novak Djokovic’s parents defended their son on Wednesday and blamed another tennis player for spreading the coronavirus at a series of exhibition matches hosted by the top-ranked player.`\
-https://nytimes.com/aponline/2020/06/24/sports/tennis/ap-ten-djokovic-event-virus-cases.html?searchResultPosition=4
-
-**First Vaccinations Begin in Africa for COVID-19 Trial**\
-`Africa's first participation in a COVID-19 vaccine trial started Wednesday as volunteers received injections developed at the University of Oxford in Britain, while officials said the continent of 1.3 billion people cannot be left behind.`\
-https://nytimes.com/aponline/2020/06/24/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=5
-
-**Alabama History Agency Admits Perpetuating Systemic Racism**\
-`Alabama’s main state history agency, spurred by nationwide protests against racial injustice, is acknowledging that it helped perpetuate systemic racism for generations by promoting Confederate narratives while ignoring those of Black people.`\
-https://nytimes.com/aponline/2020/06/24/us/ap-us-racial-injustice-alabama-archives.html?searchResultPosition=6
-
-**Apple, Other U.S. Goods From China Held Up at Indian Ports: Sources**\
-`Apple, Cisco and Dell products are among the goods from U.S. companies being caught up in India's border tensions with China, as Indian ports hold up imports from China, two sources told Reuters on Wednesday.`\
-https://nytimes.com/reuters/2020/06/24/technology/24reuters-china-india-usa-companies.html?searchResultPosition=7
-
-**Zambian Health Minister Arrested for Corruption**\
-`Zambia's Health Minister Chitalu Chilufya has been arrested on suspicion of corruption, an anti-graft body said on Wednesday.`\
-https://nytimes.com/reuters/2020/06/24/world/africa/24reuters-zambia-corruption.html?searchResultPosition=8
-
-**New York Regulator Proposes Easing Cryptocurrency Rules**\
-`New York's financial regulator on Wednesday proposed easing rules for virtual currency companies that want to do business in the state.`\
-https://nytimes.com/reuters/2020/06/24/technology/24reuters-crypto-currency-regulation.html?searchResultPosition=9
-
-**BP's Stranded Canadian, Angolan Assets Expose Wider Industry Risks**\
-`When BP slashed its long-term oil price outlook last week, prospects in Canada and Angola were rendered worthless, company sources and analysts said, exposing broader risks the industry faces as the world pivots to low-carbon energy. `\
-https://nytimes.com/reuters/2020/06/24/business/24reuters-bp-strandedassets-analysis.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/24/business/24reuters-we-work-council.html?searchResultPosition=10
 
