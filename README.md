@@ -31,7 +31,7 @@ https://nytimes.com/2020/06/24/us/politics/november-2020-election-day-results.ht
 https://nytimes.com/reuters/2020/06/24/sports/autoracing/24reuters-motor-nascar-wallace-noose.html?searchResultPosition=8
 
 **WikiLeaks Founder Assange Faces New Indictment in US**\
-`The Justice Department says a federal grand jury has returned a new indictment against WikiLeaks founder Julian Assange that does not include new charges but broadens the scope of conduct that the government believes broke the law.`\
+`WikiLeaks founder Julian Assange sought to recruit hackers at conferences in Europe and Asia to provide his anti-secrecy website with classified information, including military secrets, according to a new Justice Department indictment announced Wednesday.`\
 https://nytimes.com/aponline/2020/06/24/us/politics/ap-us-wikileaks-assange.html?searchResultPosition=9
 
 **LA Gives Initial OK for Reboot of Marijuana Marketplace**\
