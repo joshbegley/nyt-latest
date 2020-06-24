@@ -1,40 +1,40 @@
+**CrossFit Owner to Sell Company After Quitting Over Floyd Tweet**\
+`CrossFit Inc founder and former chief executive Greg Glassman has decided to sell the fitness company to Eric Roza, two weeks after stepping down amid widespread criticism for his tweet on the death of African American George Floyd in police custody.`\
+https://nytimes.com/reuters/2020/06/24/us/24reuters-crossfit-ceo.html?searchResultPosition=1
+
+**Dutch Set to Further Ease Coronavirus Measures as Infection Rate Drops**\
+`The Dutch government announced a widespread easing of coronavirus lockdown measures on Wednesday that will allow outdoor gatherings, group restaurant visits and regular public transport services from July 1.`\
+https://nytimes.com/reuters/2020/06/24/world/europe/24reuters-health-coronavirus-netherlands.html?searchResultPosition=2
+
+**Earthquake of Magnitude 6.1 Strikes Near Cartago, California: USGS**\
+`An earthquake of magnitude 6.1 struck 23 km (14.29 miles) west-northwest of Cartago in California on Wednesday, the U.S. Geological Survey said.`\
+https://nytimes.com/reuters/2020/06/24/us/24reuters-california-quake.html?searchResultPosition=3
+
+**Floods Afflict Ukraine as It Tries to Control the Coronavirus**\
+`Environmentalists say illegal logging in the Carpathian Mountains is contributing to flooding. Rising waters forced the partial evacuation of a hospital treating Covid-19 patients.`\
+https://nytimes.com/2020/06/24/world/europe/ukraine-flood-coronavirus.html?searchResultPosition=4
+
+**Trump Signs Order to Strengthen US Child Welfare System**\
+`Tackling a lower-profile issue for the White House, President Donald Trump signed an executive order Wednesday aimed at strengthening child-welfare programs nationwide.`\
+https://nytimes.com/aponline/2020/06/24/us/ap-us-trump-child-welfare.html?searchResultPosition=5
+
+**U.S. Threatens to Pull WADA Funding as War of Words Escalates**\
+`The United States is threatening to cut off funding to the World Anti-Doping Agency (WADA) unless it immediately enacts serious reforms, according to a report by the White House’s Office of National Drug Control Policy (ONDCP).`\
+https://nytimes.com/reuters/2020/06/24/sports/olympics/24reuters-sport-doping.html?searchResultPosition=6
+
+**Soccer: Premier League Launches Reporting System for Online Abuse**\
+`Players, managers and coaching staff will be able to flag up serious discriminatory online abuse through a dedicated reporting system, the Premier League announced on Wednesday.`\
+https://nytimes.com/reuters/2020/06/24/sports/soccer/24reuters-soccer-england-discrimination.html?searchResultPosition=7
+
+**Concern Over Intensifying Taliban Attacks May Hurt Start of Afghan Peace Talks: Abdullah**\
+`Public concern over an escalation in Taliban violence has made it harder to open peace negotiations with the Islamist insurgents, the head of Kabul's negotiating team, Abdullah Abdullah, said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/24/world/asia/24reuters-afghanistan-taliban-attacks.html?searchResultPosition=8
+
 **Woman Accused of Burning Wendy's After Shooting Granted Bond**\
 `A woman charged with arson in the burning of a fast food restaurant in the wake of Rayshard Brooks' killing was granted bond Wednesday but must wear an ankle monitor and remain at home, a judge said.`\
-https://nytimes.com/aponline/2020/06/24/us/ap-us-police-shooting-atlanta.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/06/24/us/ap-us-police-shooting-atlanta.html?searchResultPosition=9
 
 **U.S. Senators Question Meatpackers Over Exports to China During Pandemic**\
 `Two prominent U.S. Senate Democrats are pressing America's top meatpackers to disclose by month's end how much pork, beef and chicken they have shipped to China during the coronavirus outbreak while warning of possible meat shortages at home.`\
-https://nytimes.com/reuters/2020/06/24/us/politics/24reuters-health-coronavirus-usa-meat.html?searchResultPosition=2
-
-**With Eurovision Canceled, Netflix Offers Fans a Will Ferrell Comedy**\
-`With the coronavirus pandemic forcing cancellation of this year's Eurovision Song Contest, actors Will Ferrell and Rachel McAdams hope fans can get their fix by watching their madcap Netflix comedy about a duo from Iceland who compete in the event.`\
-https://nytimes.com/reuters/2020/06/24/arts/24reuters-film-eurovision.html?searchResultPosition=3
-
-**Exclusive: Petrobras to Receive Offers for Bahia Refinery on Thursday, Sources Say**\
-`Brazil's Petroleo Brasileiro SA is set to receive binding offers for the country's second-largest refinery on Thursday, five people with knowledge of the matter said, as the state oil company aims to restart a plan to divest more than $10 billion in assets.`\
-https://nytimes.com/reuters/2020/06/24/world/24reuters-petrobras-divestiture-refineries-exclusive.html?searchResultPosition=4
-
-**Ex-Arizona Official Pleads Guilty to Human Smuggling Charge**\
-`A former Arizona official pleaded guilty Wednesday to a human smuggling charge for what prosecutors called his role in running an illegal adoption scheme in three states involving women from the Marshall Islands.`\
-https://nytimes.com/aponline/2020/06/24/us/ap-us-arizona-official-adoption-fraud.html?searchResultPosition=5
-
-**Ohio Primary Election Results: 15th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/04/28/us/elections/results-ohio-house-district-15-primary-election.html?searchResultPosition=6
-
-**Maryland Special Election Results: Seventh Congressional District**\
-``\
-https://nytimes.com/interactive/2020/04/28/us/elections/results-maryland-house-district-7-special-election.html?searchResultPosition=7
-
-**Ohio Primary Election Results: 16th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/04/28/us/elections/results-ohio-house-district-16-primary-election.html?searchResultPosition=8
-
-**Ohio Primary Election Results: Eighth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/04/28/us/elections/results-ohio-house-district-8-primary-election.html?searchResultPosition=9
-
-**Ohio Primary Election Results: 11th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/04/28/us/elections/results-ohio-house-district-11-primary-election.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/24/us/politics/24reuters-health-coronavirus-usa-meat.html?searchResultPosition=10
 
