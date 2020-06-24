@@ -30,11 +30,11 @@ https://nytimes.com/interactive/2020/06/02/us/elections/results-pennsylvania-hou
 ``\
 https://nytimes.com/interactive/2020/06/02/us/elections/results-pennsylvania-house-district-11-primary-election.html?searchResultPosition=8
 
+**Pennsylvania Primary Election Results: Seventh Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/02/us/elections/results-pennsylvania-house-district-7-primary-election.html?searchResultPosition=9
+
 **Montana Primary Election Results: At-Large Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/02/us/elections/results-montana-house-district-at-large-primary-election.html?searchResultPosition=9
-
-**Pennsylvania Primary Election Results: Ninth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/02/us/elections/results-pennsylvania-house-district-9-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/02/us/elections/results-montana-house-district-at-large-primary-election.html?searchResultPosition=10
 
