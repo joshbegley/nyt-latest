@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/06/24/world/middleeast/24reuters-health-coronav
 `The bright lights on McDonald's old Times Square location in New York City have dimmed forever as the burger chain focuses on its newer flagship location up the street.`\
 https://nytimes.com/reuters/2020/06/24/us/24reuters-mcdonald-s-corp-times-square.html?searchResultPosition=9
 
-**South Africa's Economy to Decline by 7% as Virus Takes Toll**\
+**South Africa's Economy to See Worst Performance in 90 Years**\
 `South Africa's economy is expected to decline by 7.2% this year, its worst performance in 90 years, as the coronavirus pandemic takes a toll on sub-Saharan Africa’s most developed country.`\
 https://nytimes.com/aponline/2020/06/24/world/africa/ap-af-virus-outbreak-south-africa-economy.html?searchResultPosition=10
 
