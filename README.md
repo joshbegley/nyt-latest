@@ -1,40 +1,40 @@
+**Saudi-Led Coalition Deploys Troops to Monitor Truce Between Yemeni Allies**\
+`The Saudi-led coalition fighting in Yemen said on Wednesday it deployed troops in the province of Abyan to monitor a ceasefire between the internationally recognised government and the southern separatists. `\
+https://nytimes.com/reuters/2020/06/24/world/middleeast/24reuters-yemen-security-separatists.html?searchResultPosition=1
+
+**CVS to Offer Employers COVID-19 Testing Program as U.S. Cases Rise**\
+`As U.S. employers grapple with trying to keep workers healthy and on the job amid fresh spikes in COVID-19 cases, CVS Health Corp has begun selling companies a diagnostic testing program. `\
+https://nytimes.com/reuters/2020/06/24/business/24reuters-health-coronavirus-cvs-health.html?searchResultPosition=2
+
+**UK Government to Say More About Coronavirus 'Air Bridges' on June 29**\
+`British transport minister Grant Shapps said he would say more on June 29 about possible air bridges with other countries to enable travel during the coronavirus crisis, adding that  conversations were ongoing.`\
+https://nytimes.com/reuters/2020/06/24/world/europe/24reuters-health-coronavirus-britain-airbridges.html?searchResultPosition=3
+
+**New-Look U.S. Bank 'Stress Tests' May Leave Analysts Guessing**\
+`U.S. bank analysts have cleared their diaries on Thursday ahead of a long evening poring over results of the Federal Reserve's bank health checks, which have been upended this year by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/24/business/24reuters-usa-fed-stress-tests.html?searchResultPosition=4
+
+**French President Macron to Meet Germany's Merkel on June 29**\
+`French President Emmanuel Macron will meet German Chancellor Angela Merkel in the German town of Meseberg on June 29 to discuss a European economic recovery plan, Macron's office said on Wednesday.`\
+https://nytimes.com/reuters/2020/06/24/world/europe/24reuters-health-coronavirus-france-germany.html?searchResultPosition=5
+
+**U.S. Mining Lobby in Push to Preserve Tax Break Repealed by Democrats**\
+`The U.S. mining industry is spearheading a lobbying effort to protect a $160 billion pandemic tax break after congressional Democrats largely repealed the provisions in their recent stimulus bill, according to emails and a letter seen by Reuters.`\
+https://nytimes.com/reuters/2020/06/24/us/politics/24reuters-health-coronavirus-watchdog-tax.html?searchResultPosition=6
+
+**U.S. Activists Fault Face Recognition in Wrongful Arrest for First Time**\
+`An incorrect facial recognition match led to the first known wrongful arrest in the United States based on the increasingly used technology, civil liberties activists alleged in a complaint to Detroit police on Wednesday.`\
+https://nytimes.com/reuters/2020/06/24/technology/24reuters-michigan-facial-recognition.html?searchResultPosition=7
+
+**DealBook: The Activist Investor Done With Finance**\
+`Jeff Ubben is leaving the hedge fund he founded for a new venture focused on “inclusive capitalism.” He thinks traditional finance is played out.`\
+https://nytimes.com/2020/06/24/business/dealbook/jeff-ubben-valueact-esg.html?searchResultPosition=8
+
 **Croatia Mulls Border Restrictions for Other Balkan Countries**\
 `Croatia on Wednesday was mulling whether to partially restore border restrictions for the citizens of several other Balkan countries after a spike in cases of the coronavirus and an outbreak at an exhibition tennis tournament organized by top-ranked Novak Djokovic. `\
-https://nytimes.com/aponline/2020/06/24/business/bc-eu-virus-outbreak-balkans.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/06/24/business/bc-eu-virus-outbreak-balkans.html?searchResultPosition=9
 
 **AIM Underdogs Beat FTSE Blue Chips in Brexit Twist**\
 `When the UK voted to leave the European Union in June 2016, rushing into the exporter-heavy FTSE 100 stocks index for a currency hedge and international exposure made sense for investors alarmed by a falling pound and dire economic forecasts.`\
-https://nytimes.com/reuters/2020/06/24/business/24reuters-britain-eu-stocks-aim.html?searchResultPosition=2
-
-**Factbox: Latest on the Worldwide Spread of the Coronavirus**\
-`Millions of women and children in poor countries are at risk because the COVID-19 pandemic is disrupting health services they rely on, from neonatal and maternity care to immunisations and contraception, a World Bank global health expert has warned. `\
-https://nytimes.com/reuters/2020/06/24/world/asia/24reuters-health-coronavirus-latest-factbox.html?searchResultPosition=3
-
-**Special Report: Inside Iran’s Secret Project to Produce Aluminium Powder for Missiles**\
-`At the edge of the desert in North Khorasan province in northeast Iran, near the country’s largest deposit of bauxite, sits an aluminium production complex that the government has publicly hailed as a key part of its efforts to boost output of the metal.`\
-https://nytimes.com/reuters/2020/06/24/world/middleeast/24reuters-iran-missiles-programme-specialreport.html?searchResultPosition=4
-
-**Stock Futures Fall as U.S. States Rush to Contain Virus Flare-Ups**\
-`U.S. stock index futures dropped on Wednesday as investors shunned risky bets with many U.S. states scrambling to fight a spike in coronavirus infections.  `\
-https://nytimes.com/reuters/2020/06/24/business/24reuters-usa-stocks.html?searchResultPosition=5
-
-**EU Travel Recommendations May Impede Americans and Russians**\
-`The European Union (EU) hopes to reopen borders for outsiders from July, but will review individual nations' COVID-19 situation fortnightly, according to diplomats and a document laying out criteria that could keep Americans and Russians out. `\
-https://nytimes.com/reuters/2020/06/24/world/europe/24reuters-health-coronavirus-eu-travel.html?searchResultPosition=6
-
-**2 Republicans Opposed by Trump Win in N. Carolina, Kentucky**\
-`Voters rebuffed President Donald Trump and nominated two Republicans he opposed to House seats from North Carolina and Kentucky on Tuesday. Calls in higher-profile races in Kentucky and New York faced days of delay as swamped officials count mountains of mail-in ballots. `\
-https://nytimes.com/aponline/2020/06/24/us/politics/ap-us-election-2020.html?searchResultPosition=7
-
-**Flood Warning for Much of South, Central and Eastern China**\
-`China has issued a warning for mudslides and flooding across a wide swath of south, central and eastern China, with heavy rain set to strike the area into Thursday. `\
-https://nytimes.com/aponline/2020/06/24/world/asia/ap-as-china-flooding-.html?searchResultPosition=8
-
-**Eastern Libya Urges Egypt to Send Troops if Sirte Attacked**\
-`The speaker of Libya's east-based parliament urged Egypt on Wednesday to make good on its threat to send troops to fight rival, Turkey-backed western Libyan forces in case of their attack on the strategic city of Sirte, the Egyptian state news agency reported.`\
-https://nytimes.com/aponline/2020/06/24/world/middleeast/ap-ml-libya.html?searchResultPosition=9
-
-**Why the Coronavirus Is Winning**\
-`And what else you need to know today.`\
-https://nytimes.com/2020/06/24/briefing/kentucky-primary-rayshard-brooks-major-league-baseball-your-wednesday-briefing.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/24/business/24reuters-britain-eu-stocks-aim.html?searchResultPosition=10
 
