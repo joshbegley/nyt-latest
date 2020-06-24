@@ -27,7 +27,7 @@ https://nytimes.com/slideshow/2020/06/24/realestate/a-victorian-mansion-on-a-lak
 https://nytimes.com/video/world/europe/100000007207383/russia-victory-parade-masks.html?searchResultPosition=7
 
 **U.N. Chief Calls on Israel to Abandon West Bank Annexation Plan**\
-`United Nations Secretary-General Antonio Guterres called on Israel on Wednesday to abandon its plans to annex settlements in the occupied West Bank. `\
+`United Nations Secretary-General Antonio Guterres called on Israel on Wednesday to abandon its plans to annex settlements in the occupied West Bank, warning that it threatened the prospects for peace between Israel and the Palestinians. `\
 https://nytimes.com/reuters/2020/06/24/world/middleeast/24reuters-israel-palestinians-un.html?searchResultPosition=8
 
 **Canada's Financial Capital, Toronto, Set for Muted Reopening as Big Banks Keep Staff Home**\
