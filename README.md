@@ -1,10 +1,10 @@
-**Thailand Reports One New Coronavirus Case Imported From Abroad**\
-`Thailand on Wednesday reported one new coronavirus case detected in someone returning from abroad, marking 30 days without local transmission, a senior official said. `\
-https://nytimes.com/reuters/2020/06/24/world/asia/24reuters-health-coronavirus-thailand.html?searchResultPosition=1
-
 **Charleston Votes to Remove Statue of Slavery Advocate**\
 `Officials in the historic South Carolina city of Charleston voted unanimously Tuesday to remove a statue of former vice president and slavery advocate John C.`\
-https://nytimes.com/aponline/2020/06/24/us/ap-us-racial-injustice-south-carolina.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/06/24/us/ap-us-racial-injustice-south-carolina.html?searchResultPosition=1
+
+**Thailand Reports One New Coronavirus Case Imported From Abroad**\
+`Thailand on Wednesday reported one new coronavirus case detected in someone returning from abroad, marking 30 days without local transmission, a senior official said. `\
+https://nytimes.com/reuters/2020/06/24/world/asia/24reuters-health-coronavirus-thailand.html?searchResultPosition=2
 
 **The Latest: India Reports Highest Spike of 16,000 Cases**\
 `NEW DELHI — India has recorded the highest spike of 15,968 new coronavirus cases in the last 24 hours, taking the total to to 456,183, with Mumbai and New Delhi as the worst-hit cities in the country.`\
