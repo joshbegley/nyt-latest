@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/06/23/business/ap-us-trump-health-care-prices.
 `Former Haitian death squad leader Emmanuel "Toto" Constant was taken into police custody immediately upon his arrival in Port-au-Prince on Tuesday after his deportation from the United States.`\
 https://nytimes.com/reuters/2020/06/23/world/americas/23reuters-haiti-deathsquad.html?searchResultPosition=8
 
-**Ontario Health Officer Says MLB Has Not Submitted a Plan**\
-`Major League Baseball has not submitted the required plan to Canadian authorities that is needed for the Blue Jays to play in Toronto, Canadian officials said Tuesday. `\
+**Canada Open to MLB in Toronto but MLB Has Not Submitted Plan**\
+`The Canadian government is open to Major League Baseball playing in Toronto this summer, but the league has not submitted the required plan to health authorities, Canadian officials said Tuesday. `\
 https://nytimes.com/aponline/2020/06/23/sports/baseball/ap-bba-virus-outbreak-blue-jays-4th-ld-writethru.html?searchResultPosition=9
 
 **Deaths From Coronavirus Surpass 100,000 in Latin America**\
