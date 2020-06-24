@@ -1,40 +1,40 @@
+**Lebanon Currency in Free-Fall Amid Political Impasse**\
+`Lebanon's currency continued its downward spiral Wednesday, reaching a new low before the dollar and raising such alarm that it prompted a powerful politician to call for a state of “financial emergency.”`\
+https://nytimes.com/aponline/2020/06/24/business/ap-ml-lebanon.html?searchResultPosition=1
+
+**Newborn Mexican Triplets Have Coronavirus, but Parents Do Not**\
+`Mexican health authorities are trying to understand how a set of newborn triplets became infected with the novel coronavirus even though neither one of their parents tested positive for the virus.  `\
+https://nytimes.com/reuters/2020/06/24/world/americas/24reuters-health-coronavirus-mexico-triplets.html?searchResultPosition=2
+
+**AstraZeneca Eyes Three-Drug Inhaler Opportunity After Trial Results**\
+`AstraZeneca is eyeing the further growth of its respiratory treatments business as a three-drug inhaler was shown to prevent flare-ups and death in cases of smoker's lung.`\
+https://nytimes.com/reuters/2020/06/24/world/europe/24reuters-astrazeneca-breztri.html?searchResultPosition=3
+
+**'Isolation Stories' Turns Lens on Actors at Home, Pandemic**\
+`When Jeff Pope and his family were sickened by COVID-19, getting well was the first concern. That accomplished, the British writer-producer decided to make timely art out of the pandemic’s burdens.`\
+https://nytimes.com/aponline/2020/06/24/us/ap-us-virus-outbreak-tv-isolation-stories.html?searchResultPosition=4
+
+**France's New Coronavirus Deaths Sharply Down, Total at 29,731**\
+`The number of people who died from coronavirus infection in France rose by 11 to 29,731 on Wednesday, down sharply versus Tuesday when the weekly data for nursing homes were included.`\
+https://nytimes.com/reuters/2020/06/24/world/europe/24reuters-health-coronavirus-france-casualties.html?searchResultPosition=5
+
+**US Investigates Headlight Failures in About 392,000 Kia SUVs**\
+`The U.S. government's auto safety agency is investigating complaints that headlights can suddenly fail in some older Kia SUVs.`\
+https://nytimes.com/aponline/2020/06/24/business/ap-us-kia-investigation.html?searchResultPosition=6
+
+**Canada Drops Charges Against Indigenous Chief Assaulted in Video**\
+`The video from a police dash cam caused an uproar about embedded racism in Canadian law enforcement. It showed officers beating a First Nations chief in Alberta, whom they had accused of assault.`\
+https://nytimes.com/2020/06/24/world/canada/canada-allan-adam-indigenous.html?searchResultPosition=7
+
 **Charges Dropped Against Indigenous Chief Punched by Canadian Police**\
 `Canadian prosecutors dropped charges against an indigenous chief who was tackled and punched by police during an incident over an expired license plate, his lawyer said on Wednesday.`\
-https://nytimes.com/reuters/2020/06/24/world/americas/24reuters-canada-police.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/06/24/world/americas/24reuters-canada-police.html?searchResultPosition=8
 
 **Senators to Propose Reform to Key U.S. Tech Liability Shield**\
 `Republican Senator John Thune said he will introduce legislation on Wednesday intended to reform Section 230 - a federal law that largely exempts tech platforms such as Facebook and Twitter from legal liability for the material their users post.`\
-https://nytimes.com/reuters/2020/06/24/technology/24reuters-usa-tech-section-230.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/24/technology/24reuters-usa-tech-section-230.html?searchResultPosition=9
 
 **U.S. CDC Reports 2,336,615 Coronavirus Cases**\
 `The U.S. Centers for Disease Control and Prevention (CDC) on Wednesday reported 2,336,615 cases of the coronavirus, an increase of 34,313 cases from its previous count, and said that the number of deaths had risen by 784 to 121,117.`\
-https://nytimes.com/reuters/2020/06/24/us/24reuters-health-coronavirus-usa-cdc.html?searchResultPosition=3
-
-**Type of Ultraviolet Light Kills Airborne Coronavirus; Effect on Platelets Helps Explain Blood Clot Issues**\
-`The following is a brief roundup of some of the latest scientific studies on the novel coronavirus and efforts to find treatments and vaccines for COVID-19, the illness caused by the virus.`\
-https://nytimes.com/reuters/2020/06/24/us/24reuters-health-coronavirus-science.html?searchResultPosition=4
-
-**Goldman Sachs CEO Says Economic Recovery Will Be Rapid at First Then Challenged**\
-`Goldman Sachs Group Inc's Chief Executive David Solomon said on Wednesday that he expects the U.S. economic recovery to look V-shaped at first, but for that rapid growth to flatten out and become more challenged in the next 6 to 12 months. `\
-https://nytimes.com/reuters/2020/06/24/business/24reuters-goldman-sachs-ceo.html?searchResultPosition=5
-
-**Law Firm Weitz & Luxenberg Says Has Reached Glyphosate Settlement With Bayer**\
-`Weitz & Luxenberg said on Wednesday it and other law firms reached a settlement with Bayer on behalf of almost one hundred thousand Americans who had been diagnosed with cancer after exposure to Monsanto's Roundup weedkiller.`\
-https://nytimes.com/reuters/2020/06/24/business/24reuters-germany-bayer-glyphosate-negotiations.html?searchResultPosition=6
-
-**NBA, NBPA Say Sparking Social Change Will Be Goal of Restart**\
-`The NBA and the National Basketball Players Association said Wednesday that dealing with racial matters will be a shared goal during the resumed season.`\
-https://nytimes.com/aponline/2020/06/24/sports/basketball/ap-bkn-nba-restart-social-issues-1st-ld-writethru.html?searchResultPosition=7
-
-**At Age 24, N.C. Congress Runoff Victor May Be Rising Star**\
-`After nearly dying in a car crash six years ago, western North Carolina congressional candidate Madison Cawthorn already has learned many life lessons by age 24.`\
-https://nytimes.com/aponline/2020/06/24/us/ap-us-election-2020-north-carolina-primary-.html?searchResultPosition=8
-
-**Study Sees 'Probable' Higher Heart Risk for New Amgen Osteoporosis Drug**\
-`An observational study of Amgen Inc's new osteoporosis drug Evenity released on Wednesday appears to confirm the increased risk of serious heart problems detected in clinical trials and included in the medicine's prescribing information.`\
-https://nytimes.com/reuters/2020/06/24/us/24reuters-amgen-osteoporosis.html?searchResultPosition=9
-
-**CrossFit Owner to Sell Company After Quitting Over Floyd Tweet**\
-`CrossFit Inc founder and former chief executive Greg Glassman has decided to sell the fitness company to Eric Roza, two weeks after stepping down amid widespread criticism for his tweet on the death of African American George Floyd in police custody.`\
-https://nytimes.com/reuters/2020/06/24/us/24reuters-crossfit-ceo.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/24/us/24reuters-health-coronavirus-usa-cdc.html?searchResultPosition=10
 
