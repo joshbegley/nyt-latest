@@ -1,5 +1,5 @@
 **Appeals Court Orders Dismissal of Michael Flynn Prosecution**\
-`A federal appeals court on Wednesday ordered the dismissal of the criminal case against former Trump national security adviser Michael Flynn.`\
+`A federal appeals court on Wednesday ordered the dismissal of the criminal case against President Donald Trump's former national security adviser Michael Flynn.`\
 https://nytimes.com/aponline/2020/06/24/us/politics/ap-us-trump-russia-probe.html?searchResultPosition=1
 
 **Correction: Trump-Health Care Prices Story**\
