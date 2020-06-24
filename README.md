@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/06/23/sports/soccer/ap-soc-unequal-pay.html?se
 `The suit is the first legal action taken against Michael Pack after he fired the heads of the technology organization and four journalism outlets under his purview last week.`\
 https://nytimes.com/2020/06/23/us/politics/michael-pack-global-media.html?searchResultPosition=8
 
-**MLB: 'Players Are Reporting to Training Camps,' Union Says**\
-`Major League Baseball (MLB) and its players' association (MLBPA) appeared to have cleared the last major obstacles to the start of the 2020 season on Tuesday after weeks of fierce debate.`\
+**MLB: League, Players Agree to 60-Game Season, Starts in July**\
+`Major League Baseball (MLB) and its players' association agreed to a shortened 60-game 2020 season on Tuesday, ending weeks of heated talks between team owners and their players.`\
 https://nytimes.com/reuters/2020/06/23/sports/baseball/23reuters-health-coronavirus-baseball-mlb.html?searchResultPosition=9
 
 **Osterman, Teammates Criticize Softball Team for Anthem Tweet**\
