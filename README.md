@@ -1,40 +1,40 @@
-**U.S. Watchdog Finds Flaws in Virus Testing Data, Chews Out Transport Dept, SBA**\
-`Incomplete and inconsistent testing data reported by the Centers for Disease Control and Prevention make it more difficult to know the COVID-19 infection rate, and take informed decisions on reopening communities, a U.S. government watchdog said.`\
-https://nytimes.com/reuters/2020/06/25/us/25reuters-gao-coronavirus.html?searchResultPosition=1
+**Central Banks Have Thrown Many Tools at Coronavirus. What Do They Have Left?**\
+`To kick-start a world economy devastated by coronavirus, central banks have delved deep into their toolboxes and unleashed trillions of dollars in stimulus. So what instruments do they have left, should they need to do more?`\
+https://nytimes.com/reuters/2020/06/25/business/25reuters-health-coronavirus-cenbank-graphic.html?searchResultPosition=1
 
-**India's Richest State Bans Guru's 'Spurious' Coronavirus Treatment**\
-`India's richest state on Thursday banned a "spurious" coronavirus treatment manufactured by a company founded by popular yoga guru, which he says has a 100% record in curing patients.`\
-https://nytimes.com/reuters/2020/06/25/world/asia/25reuters-health-coronavirus-india-guru.html?searchResultPosition=2
+**Exclusive: Sanofi Considers Job Cuts as CEO Seeks to Reduce Costs-Sources**\
+`Sanofi is considering cutting hundreds of jobs and will discuss potential steps with staff representatives over the coming days, four sources said on Thursday, the latest move by the French drugmaker's chief executive Paul Hudson to cut costs.    `\
+https://nytimes.com/reuters/2020/06/25/business/25reuters-sanofi-strategy-jobs-exclusive.html?searchResultPosition=2
 
-**UK COVID-19 Death Toll From Confirmed Cases Rises by 149 to 43,230**\
-`Britain's official death toll from confirmed cases of COVID-19 rose by 149 to 43,230, the Department of Health said on Thursday.`\
-https://nytimes.com/reuters/2020/06/25/world/europe/25reuters-health-coronavirus-britain-toll.html?searchResultPosition=3
+**Auditor EY Says Clear Indications of Fraud at Wirecard**\
+`There are clear indications Wirecard was involved in a fraud with multiple parties around the world in different institutions, the company's auditor, EY, said on Thursday.`\
+https://nytimes.com/reuters/2020/06/25/business/25reuters-wirecard-accounts-ey.html?searchResultPosition=3
 
-**How to Handle a Mom-Friend Breakup**\
-`Those bonds forged when you have babies don’t always last.`\
-https://nytimes.com/2020/06/25/parenting/moms-friends-fight.html?searchResultPosition=4
+**Delta Says Unlikely to Add 'Many More' Flights for Rest of 2020**\
+`Delta Air Lines expects to add about 1,000 flights in August but the U.S carrier is unlikely to add "many more" flights for the remainder of the year, Chief Executive Ed Bastian said in an internal memo on Thursday.`\
+https://nytimes.com/reuters/2020/06/25/business/25reuters-health-coronavirus-delta-air.html?searchResultPosition=4
 
-**What Will Happen With Weddings?**\
-`Less is more for 2021 weddings. Extravagant nuptials are taking a back seat to intimate, personalized celebrations.`\
-https://nytimes.com/2020/06/25/fashion/weddings/what-will-happen-with-weddings.html?searchResultPosition=5
+**Hedge Funds Pocket $1.7 Billion as Wirecard Goes Bust**\
+`Coatue Management and nine other hedge funds likely earned more than 1.5 billion euros ($1.7 billion) this week on bets against Wirecard after the German payments firm collapsed on Thursday.`\
+https://nytimes.com/reuters/2020/06/25/business/25reuters-wirecard-accounts-hedgefunds.html?searchResultPosition=5
 
-**'Grief Mode': What the Loss of Summer Camp Means for Kids**\
-`It wasn’t just the leadership opportunities or seeing his best friends or even escaping months stuck at home because of the coronavirus pandemic that had Rory Sederoff thinking 2020 would be one of his best summers ever. `\
-https://nytimes.com/aponline/2020/06/25/us/ap-us-virus-outbreak-missing-camp.html?searchResultPosition=6
+**Latest U.S. Sanctions on Iran Target Steel and Other Metal Companies**\
+`The United States on Thursday targeted Iran with another round of sanctions on eight firms, this time targeting steel and other metal companies, according to a notice posted on the U.S. Department of Treasury's website.`\
+https://nytimes.com/reuters/2020/06/25/business/25reuters-usa-iran-sanctions.html?searchResultPosition=6
 
-**Sweden Fines Large Bank for Money Laundering**\
-`A big Scandinavian bank is suspected of having failed to stop money laundering, the latest in a series of banks from the region to get caught handling dirty money.`\
-https://nytimes.com/aponline/2020/06/25/business/bc-eu-sweden-money-laundering.html?searchResultPosition=7
+**Coronavirus Resurgence Looms Over Wall Street Rally**\
+`The resilience of a months-long rebound in U.S. stocks is being put to the test as a long-feared resurgence in coronavirus infections weighs on hopes of a sharp economic recovery in the United States.`\
+https://nytimes.com/reuters/2020/06/25/business/25reuters-health-coronavirus-rebound.html?searchResultPosition=7
 
-**Wall Street-Owned Loans Tricky for Hoteliers in Virus Era**\
-`Hotel owner and developer Danny Gaekwad survived steep drops in business after the 9/11 attacks and the recession of the late 2000s, but nothing prepared him for the revenue tailspin that followed lockdowns and travel restrictions in March to stop the spread of the new coronavirus.`\
-https://nytimes.com/aponline/2020/06/25/business/ap-us-hotel-loans-trouble.html?searchResultPosition=8
+**Latest on the Worldwide Spread of the Coronavirus**\
+`The Eiffel Tower in Paris reopened for visitors, although with restrictions, a potent sign of life returning to normal in France.`\
+https://nytimes.com/reuters/2020/06/25/world/europe/25reuters-health-coronavirus-latest-factbox.html?searchResultPosition=8
 
-**AP Sources: NFL Cancels Hall of Fame Game, Delays Inductions**\
-`The NFL has canceled the Hall of Fame game that traditionally opens the preseason and is delaying the 2020 induction ceremonies because of the coronavirus pandemic, two people with direct knowledge of the decision told The Associated Press on Thursday.`\
-https://nytimes.com/aponline/2020/06/25/sports/football/ap-fbn-hof-game-canceled.html?searchResultPosition=9
+**Euro Zone Data Confirm Tepid Recovery, ECB's Knot Says**\
+`A string of positive economic indicators in the euro zone confirm that a recovery is on its way but the bloc may still need years to reach pre-crisis levels of activity, European Central Bank policymaker Klaas Knot said on Thursday.`\
+https://nytimes.com/reuters/2020/06/25/business/25reuters-ecb-policy-knot.html?searchResultPosition=9
 
-**Supreme Court Says Rejected Asylum Seekers Have No Right to Object in Court**\
-`The case concerned a member of Sri Lanka’s Tamil ethnic minority who said he feared persecution and sought to file a petition for a writ of habeas corpus.`\
-https://nytimes.com/2020/06/25/us/supreme-court-asylum-habeas.html?searchResultPosition=10
+**ECB Can Hold Back on Bond Buys if Markets Calm, Mersch Says**\
+`The European Central Bank doesn't need to use the whole 1.35 trillion euros ($1.51 trillion) it has earmarked for its pandemic-fighting bond purchases if financial markets calm down, ECB board member Yves Mersch said on Thursday.`\
+https://nytimes.com/reuters/2020/06/25/business/25reuters-ecb-policy-mersch.html?searchResultPosition=10
 
