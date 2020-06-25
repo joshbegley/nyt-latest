@@ -1,40 +1,40 @@
+**Marathon Vote on Extending Putin's Rule Begins Amid Coronavirus Epidemic**\
+`Russians began casting ballots on Thursday in a vote that could clear the way for President Vladimir Putin to stay in the Kremlin until 2036 if re-elected, a process that critics say is a constitutional coup.`\
+https://nytimes.com/reuters/2020/06/25/world/europe/25reuters-russia-putin-vote.html?searchResultPosition=1
+
+**22 Police Officers Injured in Scuffles at Illegal London Block Party**\
+`Officers were attacked as they attempted to break up an outdoor crowd in the southern district of Brixton, the police said.`\
+https://nytimes.com/2020/06/25/world/europe/brixton-party-police.html?searchResultPosition=2
+
+**Factbox: Russians Vote on Constitutional Reforms That Could Extend Putin's Rule**\
+`Russians are taking part in a nationwide vote from June 25 until July 1 that will endorse or reject changes to the constitution, including one that would allow Vladimir Putin to run for president again twice. [L8N2E226A]`\
+https://nytimes.com/reuters/2020/06/25/world/europe/25reuters-russia-putin-vote-reforms-factbox.html?searchResultPosition=3
+
+**EU Drug Regulator Endorses Gilead's Remdesivir as COVID-19 Treatment**\
+`The European healthcare regulator said on Thursday it had recommended conditionally approving Gilead Sciences Inc's antiviral treatment, remdesivir, for use in COVID-19 patients across the continent, just weeks after a speedy review.`\
+https://nytimes.com/reuters/2020/06/25/us/25reuters-health-coronavirus-gilead-europe.html?searchResultPosition=4
+
+**IMF Warns Markets at Risk of Correction After Run-Up**\
+`Markets for stocks and other risky assets could suffer a second swoon if the coronavirus spreads more widely, lockdowns are reimposed or trade tensions surge again, the International Monetary Fund warned on Thursday.`\
+https://nytimes.com/reuters/2020/06/25/business/25reuters-health-coronavirus-imf-stability.html?searchResultPosition=5
+
+**Indian Capital Readies Vast Quarantine Centre as Coronavirus Cases Mount**\
+`Authorities in New Delhi worked to convert a spiritual centre into a huge quarantine facility on Thursday as novel coronavirus cases in the Indian capital overtook the financial hub Mumbai for the first time.`\
+https://nytimes.com/reuters/2020/06/25/world/asia/25reuters-health-coronavirus-india.html?searchResultPosition=6
+
+**US GDP Fell at 5.0% Rate in Q1; Worse Is Likely on the Way**\
+`The U.S. economy shrank at a 5.0% rate in the first quarter with a much worse decline expected in the current three-month economic period because of the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/06/25/business/bc-us-economy-gdp.html?searchResultPosition=7
+
+**Man Runs 218 Miles to Virus-Stricken 'Nana's' Nursing Home**\
+`Endurance athlete Corey Cappelloni once ran six days through the Sahara Desert in what’s considered the most grueling foot race on Earth. But a 218-mile run to grandma after she was sickened with COVID-19 turned out to be the longest, toughest and most rewarding of his life. `\
+https://nytimes.com/aponline/2020/06/25/us/ap-virus-outbreak-one-good-thing-running-for-grandma.html?searchResultPosition=8
+
 **Germany Increases Donation to WHO but Demands Reforms**\
 `Germany on Thursday announced that it is giving half a billion euros to support the World Health Organization amid the COVID-19 pandemic, but said reforms are necessary to make the agency more transparent and accountable. `\
-https://nytimes.com/aponline/2020/06/25/world/europe/ap-eu-virus-outbreak-who.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/06/25/world/europe/ap-eu-virus-outbreak-who.html?searchResultPosition=9
 
 **Orders for US Big-Ticket Factory Goods Surge 15.8% in May**\
 `Orders to American factories for big-ticket goods rebounded last month from a disastrous April as the U.S. economy began to slowly reopen.`\
-https://nytimes.com/aponline/2020/06/25/business/ap-us-durable-goods.html?searchResultPosition=2
-
-**Disney Shares Drop as Company Delays Reopening of California Disneyland**\
-`Shares of Walt Disney Co dropped 2.4% on Thursday after the media company delayed the reopening of theme parks and resort hotels in California, following a surge in fresh COVID-19 cases in the state.`\
-https://nytimes.com/reuters/2020/06/25/business/25reuters-disney-stock.html?searchResultPosition=3
-
-**Thiem Apologizes for Playing in Djokovic's Tennis Event**\
-`Third-ranked tennis player Dominic Thiem apologized Thursday for taking part in an exhibition series hosted by Novak Djokovic in which four players tested positive for the coronavirus.`\
-https://nytimes.com/aponline/2020/06/25/sports/tennis/ap-ten-djokovic-event-virus-cases.html?searchResultPosition=4
-
-**UN Envoy: Israeli Annexation Could Unleash Mideast Violence**\
-`The U.N. envoy for the Middle East warned Israel on Thursday that carrying out its plans to annex parts of the West Bank could set of a spasm of violence that would upend Israeli-Palestinian relations and reverberate across the region.`\
-https://nytimes.com/aponline/2020/06/25/world/middleeast/ap-ml-israel-annexation.html?searchResultPosition=5
-
-**Albania Arrests Man Over Social Media Calls to Kill Israelis**\
-`An Albanian man has been arrested for allegedly using social media to call for the killing of Israelis, police said Thursday.`\
-https://nytimes.com/aponline/2020/06/25/world/europe/ap-eu-albania-terror-arrest.html?searchResultPosition=6
-
-**‘Beats’ Review: A Last Hurrah, and a First Trip**\
-`Set in Scotland in 1994, the film tells a tender, moody story of friendship.`\
-https://nytimes.com/2020/06/25/movies/beats-review.html?searchResultPosition=7
-
-**'Embarrassing' Potential Ouster From MSCI Index Could Bruise Turkish Markets**\
-`Turkey's potential ejection from MSCI's widely followed emerging markets index could suck almost a billion dollars out of its stock markets, dealing another blow to the country, whose position is already waning on global markets.`\
-https://nytimes.com/reuters/2020/06/25/business/25reuters-turkey-stocks-index-analysis.html?searchResultPosition=8
-
-**Bus Plunges Off Motorway Bridge in Polish Capital Warsaw, One Dead**\
-`A municipal bus in the Polish capital Warsaw plunged off a motorway bridge on Thursday, killing one person and injuring 17, authorities said.`\
-https://nytimes.com/reuters/2020/06/25/world/europe/25reuters-poland-accident.html?searchResultPosition=9
-
-**L'Oreal Sees Beauty Consumers Returning Post-Lockdown**\
-`Purchases of cosmetics have picked up strongly again, particularly in China, as some countries exit coronavirus shutdowns that forced hair salons and retailers to close, L'Oreal Chief Executive Jean-Paul Agon said. `\
-https://nytimes.com/reuters/2020/06/25/business/25reuters-health-coronavirus-loreal.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/25/business/ap-us-durable-goods.html?searchResultPosition=10
 
