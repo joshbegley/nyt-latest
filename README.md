@@ -1,40 +1,40 @@
+**Board Recommends Man Convicted of Killing Be Exonerated**\
+`A Tennessee man who was freed last year after spending 12 years in prison for a killing he says he didn't commit should be exonerated of the crime, the Tennessee Board of Parole determined.`\
+https://nytimes.com/aponline/2020/06/25/us/ap-us-murder-case-man-freed.html?searchResultPosition=1
+
+**Disney Changing Ride Amid Calls It's Based on Racist Film**\
+`Amid calls to change the Splash Mountain theme park ride because of its ties with “Song of the South," the 1946 movie many view as racist, Disney officials said Thursday it was recasting the ride to make it based on “The Princess and the Frog," the 2009 Disney film with an African American female lead.`\
+https://nytimes.com/aponline/2020/06/25/us/ap-us-racial-injustice-disney-ride.html?searchResultPosition=2
+
+**Oklahoma Court Rejects Appeal in Fatal Stabbing of 5 People**\
+`An Oklahoma court on Thursday upheld the convictions and life prison sentence of a man who was convicted in the fatal stabbings of five family members when he was 16.`\
+https://nytimes.com/aponline/2020/06/25/us/ap-us-family-stabbed-2nd-ld-writethru.html?searchResultPosition=3
+
+**Canada's Trudeau Rejects Call to Swap Huawei Executive for Detainees in China**\
+`Canadian Prime Minister Justin Trudeau on Thursday rejected a call to swap an imprisoned Huawei Technologies Co Ltd [HWT.UL] executive for two citizens held by Beijing, saying such a move would set a bad precedent and harm Canada.`\
+https://nytimes.com/reuters/2020/06/25/business/25reuters-usa-trade-china-canada.html?searchResultPosition=4
+
+**A Penny for Your Thoughts Could Be a Lot Harder to Find**\
+`Coins have become scarce as virus lockdowns keep people from emptying their coin jars in exchange for paper bills.`\
+https://nytimes.com/2020/06/25/business/economy/coin-shortage-coronavirus.html?searchResultPosition=5
+
+**Texas Temporarily Halts Phased Reopening as COVID-19 Infections Surge**\
+`Texas Governor Greg Abbott said on Thursday that he was temporarily halting the state's phased economic reopening in response to a recent jump in COVID-19 infections and hospitalizations.`\
+https://nytimes.com/reuters/2020/06/25/us/25reuters-health-coronavirus-usa-texas.html?searchResultPosition=6
+
+**‘Irresistible’ Review: The Voters Are Red, the Message Is Blue**\
+`Jon Stewert’s new political satire, which presents a homespun cliché of Middle America, is a lecture on old news.`\
+https://nytimes.com/2020/06/25/movies/irresistible-review.html?searchResultPosition=7
+
+**Assault Near Wisconsin Protests Investigated as Hate Crime**\
+`An assault on a biracial woman in Madison was being investigated Thursday as a hate crime after the woman told police she was burned by lighter fluid thrown at her and ignited by a white man, just a few blocks from violent protests at the state Capitol.`\
+https://nytimes.com/aponline/2020/06/25/us/ap-us-racial-injustice-wisconsin.html?searchResultPosition=8
+
+**Law Enforcement Struggles With Policing in Reckoning Moment**\
+`As calls for police reform swell across America, officers say they feel caught in the middle: vilified by the left as violent racists, fatally ambushed by extremists on the right seeking to sow discord and scapegoated by lawmakers who share responsibility for the state of the criminal justice system.`\
+https://nytimes.com/aponline/2020/06/25/us/politics/ap-us-racial-injustice-law-enforcement.html?searchResultPosition=9
+
 **When the Police Treat Software Like Magic**\
 `The arrest of a man for a crime he didn’t commit shows the dangers of facial recognition technology.`\
-https://nytimes.com/2020/06/25/technology/facial-recognition-software-dangers.html?searchResultPosition=1
-
-**N.Y.C. Is ‘on Track for Phase 3’ of Reopening, de Blasio Says**\
-`Mayor Bill de Blasio announced on Thursday that New York City could ease more coronavirus restrictions as early as July 6.`\
-https://nytimes.com/video/us/politics/100000007209730/nyc-phase-three-deblasio.html?searchResultPosition=2
-
-**Kentucky Derby, Oaks Will Run With Limitations on Spectators**\
-`Churchill Downs officials have gotten their wish, announcing Thursday that when the rescheduled Kentucky Derby is run in September there will be spectators in the stands — just more spread out than usual.`\
-https://nytimes.com/aponline/2020/06/25/sports/ap-rac-kentucky-derby-spectators-2nd-ld-writethru.html?searchResultPosition=3
-
-**Pompeo Says US, EU Working to Resume Trans-Atlantic Travel**\
-`U.S. Secretary of State Mike Pompeo played down concerns Thursday that the European Union might refuse to allow Americans into the 27-nation bloc as it considers lifting restrictions on overseas travelers starting next week, due to the spread of the coronavirus in the United States.`\
-https://nytimes.com/aponline/2020/06/25/world/europe/ap-virus-outbreak-europe-us-borders.html?searchResultPosition=4
-
-**Viewing Party! Let’s all Watch ‘Jurassic Park’**\
-`Does Steven Spielberg’s 1993 blockbuster, with its ravenous dinosaurs and scientist heroes, still satisfy our hunger for action?`\
-https://nytimes.com/2020/06/25/movies/jurassic-park.html?searchResultPosition=5
-
-**Virus Testing, Tracking Still Plagued by Reporting Delays**\
-`As part of the plan to restart its season next month, the NBA is preparing to test hundreds of players, coaches and others for the coronavirus each night inside a “basketball bubble” — a space at the Disney complex near Orlando, Florida, with extra protection against the disease.`\
-https://nytimes.com/aponline/2020/06/25/us/ap-us-virus-outbreak-testing-lag.html?searchResultPosition=6
-
-**US Health Officials Believe 20M Americans Have Had Virus**\
-`U.S. officials believe as many as 20 million Americans have contracted the coronavirus, suggesting millions had the virus and never knew it.`\
-https://nytimes.com/aponline/2020/06/25/us/politics/ap-us-virus-outbreak-trump.html?searchResultPosition=7
-
-**DA Tosses Cases Involving Officers in Hate-Filled Video Rant**\
-`North Carolina prosecutors have dismissed cases involving three officers who were fired after a video recording captured one of them saying a civil war was necessary to wipe Black people off the map and that he was ready. `\
-https://nytimes.com/aponline/2020/06/25/us/ap-us-racial-injustice-officers-fired-video.html?searchResultPosition=8
-
-**Federal Banking Agencies Ease Volcker Rule Restrictions**\
-`The Federal Reserve and four other bank regulatory agencies announced on Thursday that they have finalized a rule that will ease restrictions curtailing the ability of banks to make investments in such areas as hedge funds.`\
-https://nytimes.com/aponline/2020/06/25/business/ap-us-volcker-rule.html?searchResultPosition=9
-
-**U.S. Senate Backs Sanctions if China Restricts Hong Kong Autonomy**\
-`The U.S. Senate backed legislation on Thursday calling for mandatory sanctions on individuals or companies that back efforts by China to restrict Hong Kong's autonomy, as the government in Beijing moves to implement a new security law for the city.`\
-https://nytimes.com/reuters/2020/06/25/world/asia/25reuters-usa-china-hongkong.html?searchResultPosition=10
+https://nytimes.com/2020/06/25/technology/facial-recognition-software-dangers.html?searchResultPosition=10
 
