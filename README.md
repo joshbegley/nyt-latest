@@ -1,40 +1,40 @@
-**Norway to Lift Travel Curbs on European Countries, With Conditions, Say Media Reports**\
-`Norway will lift travel restrictions to and from European countries that respect certain criteria regarding their COVID-19 situation from July 15, public broadcaster NRK and daily Dagens Naeringsliv reported on Thursday.    `\
-https://nytimes.com/reuters/2020/06/25/world/europe/25reuters-health-coronavirus-norway.html?searchResultPosition=1
+**Dolphins Have an Eating Trick. How They Learn It Is More Surprising.**\
+`This behavior, a form of tool use, differs from other feeding strategies that are typically passed from mother to calf.`\
+https://nytimes.com/2020/06/25/science/dolphins-shells-learning.html?searchResultPosition=1
 
-**Turkey Says Libya's GNA Demands Haftar Withdraw From Sirte, Jufra**\
-`Libya's internationally recognised government demands that Khalifa Haftar's forces withdraw from the coastal city of Sirte and Jufra region as pre-conditions for ceasefire talks, Turkey said on Thursday.`\
-https://nytimes.com/reuters/2020/06/25/world/europe/25reuters-libya-security-turkey.html?searchResultPosition=2
+**When Wombats Weighed Over 300 Pounds**\
+`Compared in size with modern black bears, the extinct species offers a new window into the large vombatiforms that once lived in Australia.`\
+https://nytimes.com/2020/06/25/science/wombat-fossil-australia.html?searchResultPosition=2
 
-**3 Long (Haired) Months: Barbershop Before-and-Afters**\
-`As salons and barbershops opened up in the city on Monday, New Yorkers relished the opportunity to freshen up.`\
-https://nytimes.com/2020/06/25/nyregion/nyc-barber-shops-coronavirus.html?searchResultPosition=3
+**Dog Breeding in the Neolithic Age**\
+`Fossils and modern DNA show the ancient roots of Arctic sled dogs.`\
+https://nytimes.com/2020/06/25/science/arctic-sled-dogs-genetics.html?searchResultPosition=3
 
-**Horse Racing: Kentucky Derby Will Open Doors to Spectators**\
-`The Kentucky Derby, which was rescheduled for Sept. 5 due to the novel coronavirus, will allow spectators onto the grounds to watch the Run for the Roses even as COVID-19 infections surge across parts of the United States, Churchill Downs Racetrack said on Thursday.`\
-https://nytimes.com/reuters/2020/06/25/sports/25reuters-health-coronavirus-horseracing-kentucky.html?searchResultPosition=4
+**Tabloid's Lawyers Seek to Get Johnny Depp Lawsuit Thrown Out**\
+`Lawyers for British tabloid The Sun urged a U.K. judge on Thursday to throw out Johnny Depp’s libel claim against the paper because the film star allegedly failed to disclose evidence relating to his drug use.`\
+https://nytimes.com/aponline/2020/06/25/world/europe/ap-eu-britain-johnny-depp-1st-ld-writethru.html?searchResultPosition=4
 
-**Kentucky Derby to Allow Spectators in September**\
-`The plan encourages guests and staff at Churchill Downs to wear masks, wash their hands and keep their distance from each other in the stands and in the barns.`\
-https://nytimes.com/2020/06/25/sports/horse-racing/kentucky-derby-fans.html?searchResultPosition=5
+**AP Source: Heat's Derrick Jones Jr. Tests Positive for Virus**\
+`A person with knowledge of the situation says Miami forward Derrick Jones Jr. has tested positive for the coronavirus, a result that came in shortly after the Heat and other NBA teams began mandatory testing in preparation for next month's resumption of the season.`\
+https://nytimes.com/aponline/2020/06/25/sports/basketball/ap-bkn-virus-outbreak-nba-testing.html?searchResultPosition=5
 
-**Mexico Eyes Agreement With Spain's Iberdrola Over Plant**\
-`Mexico's president on Thursday said he expects to reach agreement with Spanish power generation company Iberdrola after reports that the firm had canceled a major project in the eastern state of Veracruz.`\
-https://nytimes.com/reuters/2020/06/25/world/americas/25reuters-iberdrola-mexico.html?searchResultPosition=6
+**‘The Last Tree’ Review: Struggles of a New Life**\
+`Shola Amoo’s film is a visually compelling coming-of-age narrative that explores the definition of family.`\
+https://nytimes.com/2020/06/25/movies/the-last-tree-review.html?searchResultPosition=6
 
-**WhatsApp Says Brazil Central Bank Willing to Restore Payments Service**\
-`Facebook Inc messaging service WhatsApp said on Thursday that Brazil's central bank had said it intended to find a way to restore the payments service in the country by working with Visa Inc and Mastercard Inc.`\
-https://nytimes.com/reuters/2020/06/25/technology/25reuters-facebook-brazil-whatsapp.html?searchResultPosition=7
+**Vince Carter, 43, Retires After Record 22 NBA Seasons**\
+`Vince Carter made his retirement official on Thursday, announcing on his podcast that his 22-year NBA career has come to an end.`\
+https://nytimes.com/aponline/2020/06/25/sports/basketball/ap-bkn-hawks-carter-retires.html?searchResultPosition=7
 
-**Britain Should Side With U.S. Over Huawei, Former PM Blair Says**\
-`Britain will ultimately have to side with the United States in a decision on allowing China's Huawei Technologies a role in its 5G network, former Prime Minister Tony Blair said on Thursday.`\
-https://nytimes.com/reuters/2020/06/25/technology/25reuters-britain-china-blair.html?searchResultPosition=8
+**Wildfire Burns Near Mount Rushmore Week Before Trump Visit**\
+`South Dakota is bringing in more resources to fight a wildfire that burned Thursday near Mount Rushmore ahead of next week's visit to the monument by President Donald Trump for Independence Day celebrations.`\
+https://nytimes.com/aponline/2020/06/25/us/ap-us-mount-rushmore-wildfire-1st-ld-writethru.html?searchResultPosition=8
 
-**Alpha Bank Nears Deal to Sell Bad Debt Portfolio to Fortress: Sources**\
-`Alpha Bank, Greece's fourth-largest lender, is close to finalising a deal to sell a portfolio of bad loans worth more than 1 billion euros to U.S. investment manager Fortress Group, three sources familiar with the matter told Reuters.`\
-https://nytimes.com/reuters/2020/06/25/business/25reuters-alpha-bank-loans-fortress.html?searchResultPosition=9
+**‘Antebellum’ Brings Racial Justice Call to Reopened Theaters**\
+`Back in March, filmmakers Gerard Bush and Christopher Renz gathered their artist friends and a few journalists at Manhattan’s members-only social club, Soho House, for a screening of their first feature-length project, “Antebellum.”`\
+https://nytimes.com/aponline/2020/06/25/us/ap-us-racial-injustice-antebellum-film.html?searchResultPosition=9
 
-**U.S. Banking Regulators Ease Rules Around Firm Investments, Internal Trading**\
-`U.S. banking regulators Thursday unveiled a pair of rules that will make life easier for large banks with complex trading and investment portfolios.`\
-https://nytimes.com/reuters/2020/06/25/business/25reuters-usa-banks-trading.html?searchResultPosition=10
+**Macy's Cuts Corporate Headcount by 3,900 as Virus Takes Toll**\
+`Macy's said Thursday it's laying off 3,900 people corporate staffers, roughly 3% of its overall workforce, as the pandemic takes a financial toll on the iconic department store chain.`\
+https://nytimes.com/aponline/2020/06/25/business/ap-us-macys-layoffs-1st-ld-writethru.html?searchResultPosition=10
 
