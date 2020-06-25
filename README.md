@@ -1,40 +1,40 @@
-**Israel Says It Reached Deal With UAE to Jointly Fight Virus**\
-`Israeli Prime Minister Benjamin Netanyahu said on Thursday that his government and the United Arab Emirates will soon announce a partnership in the fight against the coronavirus.`\
-https://nytimes.com/aponline/2020/06/25/world/middleeast/ap-ml-israel-emirates.html?searchResultPosition=1
+**Photographing the Beauty of My Mother’s Decline**\
+`For years, I have been making images of my mother as her dementia progresses. The process brings us closer.`\
+https://nytimes.com/2020/06/25/opinion/mother-dementia-photos.html?searchResultPosition=1
 
-**SEC's Clayton Says Possible U.S. Attorney's Job First Raised Last Weekend**\
-`U.S. Securities and Exchange Commission (SEC) Chairman Jay Clayton said on Thursday he first learned President Donald Trump was considering nominating him to be the U.S. Attorney in New York last weekend.`\
-https://nytimes.com/reuters/2020/06/25/us/politics/25reuters-usa-house-sec-clayton.html?searchResultPosition=2
+**A Suicide, an App and a Time for a Reckoning**\
+`Companies like the stock-trading app Robinhood can seem not just careless but also predatory.`\
+https://nytimes.com/2020/06/25/opinion/robinhood-suicide-trading.html?searchResultPosition=2
 
-**Theater Streams Make Room for Molière (and Imelda Marcos)**\
-`The online bounty also includes a rare Lorraine Hansberry play, two Lincoln Center stagings and black British responses to the killing of George Floyd.`\
-https://nytimes.com/2020/06/25/theater/streaming-theater-moliere-hansberry.html?searchResultPosition=3
+**You’re Probably Inhaling Microplastics Right Now**\
+`A new study found plentiful evidence of these tiny particles in dust in the nation’s most remote places.`\
+https://nytimes.com/2020/06/25/opinion/plastic-air-pollution.html?searchResultPosition=3
 
-**Israel Announces Coronavirus Partnership With U.A.E.**\
-`The collaboration, announced by Prime Minister Benjamin Netanyahu of Israel on Thursday, could represent a significant step toward normalization between two important U.S. allies in the Middle East.`\
-https://nytimes.com/video/world/middleeast/100000007209990/israel-uae-coronavirus-partnership.html?searchResultPosition=4
+**No Explanation for Noose as NASCAR Completes Investigation**\
+`NASCAR said on Thursday it had completed it's own investigation into the noose found in the garage of Bubba Wallace, the only Black driver competing in the top series, without determining who did it or how it got in the stall.`\
+https://nytimes.com/reuters/2020/06/25/sports/autoracing/25reuters-motor-nascar-wallace.html?searchResultPosition=4
 
-**Amsterdam Bans AirBnB Rentals in Old Centre From July 1**\
-`Amsterdam announced on Thursday that it would ban vacation rentals including those on the home-sharing site Airbnb in three areas that make up the central old town from July 1.`\
-https://nytimes.com/reuters/2020/06/25/world/europe/25reuters-netherlands-airbnb.html?searchResultPosition=5
+**When Facebook Politics Get Extra Personal**\
+`A reader wonders whether it is appropriate to tell the supporters of a certain presidential candidate to get lost, virtually.`\
+https://nytimes.com/2020/06/25/style/facebook-political-views.html?searchResultPosition=5
 
-**G20 Debt Relief Program Draws 41 Poor Countries So Far: Statement**\
-`A Group of 20 debt service suspension initiative agreed in April has received 41 applications from the 73 poor countries eligible for the official bilateral debt relief initiative, Saudi Arabia's G20 Secretariat said on Thursday.`\
-https://nytimes.com/reuters/2020/06/25/us/25reuters-g20-debt.html?searchResultPosition=6
+**NASCAR: Only One Noose Found in Sweep at 29 Tracks**\
+`NASCAR released a photo Thursday of the noose found in the garage of Bubba Wallace at Talladega Superspeedway, two days after the FBI said photographic evidence showed that the noose was a way to pull down the garage door and had been there since last fall.`\
+https://nytimes.com/reuters/2020/06/25/sports/autoracing/25reuters-motor-nascar-wallace-noose.html?searchResultPosition=6
 
-**Lightning and Violent Rainstorms Kill Scores in India**\
-`The victims included many farmers working in their fields and children playing outside. At least 83 were reported killed by lightning in the Indian state of Bihar.`\
-https://nytimes.com/2020/06/25/world/asia/india-monsoon-lightning-rainstorms.html?searchResultPosition=7
+**Dunk Specialist Carter Announces Retirement After 22 Seasons**\
+`Atlanta Hawks guard Vince Carter officially announced his retirement from professional basketball on Thursday after an NBA record 22-season career during which his high-flying dunks made him one of the game's top players in his prime.`\
+https://nytimes.com/reuters/2020/06/25/sports/basketball/25reuters-basketball-nba-carter.html?searchResultPosition=7
 
-**Fed's George Says Full Economic Recovery Is Still Far Off**\
-`The possibility of a surge in COVID-19 infections is likely to remain a threat to the U.S. economy until a vaccine is developed, and a full recovery is still far off, Kansas City Federal Reserve Bank President Esther George said Thursday.`\
-https://nytimes.com/reuters/2020/06/25/us/25reuters-usa-fed-george.html?searchResultPosition=8
+**Dixie Chicks Drop Dixie From Name; Country Group Tries to 'Meet the Moment'**\
+`Country music trio Dixie Chicks on Thursday changed its name to simply The Chicks, the latest move in U.S. pop culture to drop associations with the nation's racist past.`\
+https://nytimes.com/reuters/2020/06/25/arts/25reuters-music-dixie-chicks.html?searchResultPosition=8
 
-**Elsa Joubert, 97, Dies; Afrikaans Writer Explored Black Reality**\
-`Her novel “The Long Journey of Poppie Nongena,” based on a real-life figure, chronicled a black woman’s struggle under apartheid. Ms. Joubert had Covid-19.`\
-https://nytimes.com/2020/06/25/books/elsa-joubert-dead-coronavirus.html?searchResultPosition=9
+**U.S. Postpones Balkan Peace Summit, in Blow to Trump Foreign Policy**\
+`The White House had planned to host the presidents of Serbia and Kosovo on Saturday. Then Kosovo’s leader was charged with war crimes.`\
+https://nytimes.com/2020/06/25/world/europe/serbia-kosovo-trump-hashim-thaci.html?searchResultPosition=9
 
-**Mexico Says Free Trade With Brazil on Heavy Vehicles Delayed Three Years**\
-`The start of free trade between Mexico and Brazil in heavy automotive vehicles has been pushed back by three years, Mexico's economy ministry said on Thursday.`\
-https://nytimes.com/reuters/2020/06/25/world/americas/25reuters-mexico-brazil-trade.html?searchResultPosition=10
+**Pro Softball Team Suffers Fallout After GM's Anthem Tweet**\
+`One of America's top pro women's softball teams is in an uproar after a tweet by their general manager regarding the national anthem.`\
+https://nytimes.com/aponline/2020/06/25/sports/ap-sof-tweet-fallout.html?searchResultPosition=10
 
