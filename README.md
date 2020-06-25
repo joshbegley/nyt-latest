@@ -18,8 +18,8 @@ https://nytimes.com/2020/06/25/nyregion/new-york-primary-2020.html?searchResultP
 `Egypt's Rameda Pharmaceutical‮ ‬ has received requests to export Anviziram tablets, which are used to treat patients with the new coronavirus, to Saudi Arabia, Kuwait, Iraq and Yemen, but needs a government approval first, its CEO told Reuters.`\
 https://nytimes.com/reuters/2020/06/25/world/middleeast/25reuters-health-coronavirus-egypt-rameda.html?searchResultPosition=5
 
-**Wirecard Files for Insolvency After Accounting Scandal**\
-`German financial technology company Wirecard said Thursday it is filing for insolvency amid an accounting scandal that led earlier this week to the arrest of its former CEO.`\
+**Wirecard Scandal Puts Spotlight on German Company Oversight**\
+`An accounting scandal at one of Germany’s fastest-growing blue-chip companies has raised doubts about the national financial watchdog and, coming on top of other high-profile cases of fraud, led to questions about the country’s ability to oversee its corporate titans.`\
 https://nytimes.com/aponline/2020/06/25/business/bc-eu-germany-accounting-scandal.html?searchResultPosition=6
 
 **ECB to Provide Euro Loans to Non Euro Zone Central Banks**\
