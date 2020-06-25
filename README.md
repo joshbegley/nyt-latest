@@ -6,13 +6,13 @@ https://nytimes.com/aponline/2020/06/25/us/ap-cb-puerto-rico-obit-varela.html?se
 `This behavior, a form of tool use, differs from other feeding strategies that are typically passed from mother to calf.`\
 https://nytimes.com/2020/06/25/science/dolphins-shells-learning.html?searchResultPosition=2
 
-**When Wombats Weighed Over 300 Pounds**\
-`Compared in size with modern black bears, the extinct species offers a new window into the large vombatiforms that once lived in Australia.`\
-https://nytimes.com/2020/06/25/science/wombat-fossil-australia.html?searchResultPosition=3
-
 **Dog Breeding in the Neolithic Age**\
 `Fossils and modern DNA show the ancient roots of Arctic sled dogs.`\
-https://nytimes.com/2020/06/25/science/arctic-sled-dogs-genetics.html?searchResultPosition=4
+https://nytimes.com/2020/06/25/science/arctic-sled-dogs-genetics.html?searchResultPosition=3
+
+**When Wombats Weighed Over 300 Pounds**\
+`Compared in size with modern black bears, the extinct species offers a new window into the large vombatiforms that once lived in Australia.`\
+https://nytimes.com/2020/06/25/science/wombat-fossil-australia.html?searchResultPosition=4
 
 **Tabloid's Lawyers Seek to Get Johnny Depp Lawsuit Thrown Out**\
 `Lawyers for British tabloid The Sun urged a U.K. judge on Thursday to throw out Johnny Depp’s libel claim against the paper because the film star allegedly failed to disclose evidence relating to his drug use.`\
