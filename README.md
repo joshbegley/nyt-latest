@@ -2,13 +2,13 @@
 `“The Big Bang Theory” actor Mayim Bialik is teaming with DC Entertainment on a project that joins superhero power to the power of science. `\
 https://nytimes.com/aponline/2020/06/25/us/ap-us-books-bialik-superheroes.html?searchResultPosition=1
 
+**C.D.C. Is Still Inaccurately Counting Coronavirus Tests, a Watchdog Agency Finds**\
+`A report by the Government Accountability Office criticized the overall federal response to the virus as slow, disorganized and inadequate.`\
+https://nytimes.com/2020/06/25/health/coronavirus-cdc-testing.html?searchResultPosition=2
+
 **The Last Days of Pop Smoke**\
 `The Brooklyn rapper was on the verge of an international breakthrough when he was killed in February. Here is the story of his whirlwind final months, told by those who knew him best.`\
-https://nytimes.com/2020/06/25/arts/music/pop-smoke.html?searchResultPosition=2
-
-**C.D.C. Is Still Inaccurately Counting Coronavirus Tests, a Watchdog Group Finds**\
-`A report by the group, the Government Accountability Office, criticized the overall federal response to the virus as slow, disorganized and inadequate.`\
-https://nytimes.com/2020/06/25/health/coronavirus-cdc-testing.html?searchResultPosition=3
+https://nytimes.com/2020/06/25/arts/music/pop-smoke.html?searchResultPosition=3
 
 **‘My Spy’ Review: A Secret Agent Gets Outsmarted**\
 `Dave Bautista bumbles as a C.I.A. field agent, and has a 9-year-old help him along the way.`\
