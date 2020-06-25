@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/06/25/sports/baseball/ap-bbo-mascots-unmuzzled
 https://nytimes.com/aponline/2020/06/25/world/middleeast/ap-un-united-nations-us-iran.html?searchResultPosition=2
 
 **Senegal President Self-Quarantines After Contact With COVID-19 Case**\
-`Senegalese President Macky Sall is quarantining for two weeks after coming into contact with someone who has since tested positive for the coronavirus, state television said on Thursday.`\
+`DAKAR — Senegalese President Macky Sall is quarantining for two weeks after coming into contact with someone who has since tested positive for the coronavirus, state television said on Thursday.`\
 https://nytimes.com/reuters/2020/06/25/world/africa/25reuters-health-coronavirus-senegal.html?searchResultPosition=3
 
 **Lufthansa Shares Soar After Major Shareholder Backs Bailout Plan**\
@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/06/25/world/europe/25reuters-health-coronavirus
 `Despite successfully containing its COVID-19 outbreak, Vietnam has no plans to open up to international tourists yet over fears that doing so could lead to a second wave of infections, the Southeast Asian country's prime minister said on Wednesday.`\
 https://nytimes.com/reuters/2020/06/25/world/asia/25reuters-health-coronavirus-vietnam.html?searchResultPosition=6
 
-**Spain to Propose Economy Minister Calvino as Eurogroup Chief, Government Says**\
-`Spain will formally propose its economy minister Nadia Calvino as a candidate to head the Eurogroup, the government said in a statement on Thursday.`\
+**Spain to Propose Economy Minister Calvino as Eurogroup Chief**\
+`Spain will propose its economy minister Nadia Calvino as a candidate to head the Eurogroup, the government said in a statement on Thursday, becoming the first country to formally announce a candidate.`\
 https://nytimes.com/reuters/2020/06/25/world/europe/25reuters-spain-eu-calvino.html?searchResultPosition=7
 
 **Maersk Heads Zero-Carbon Drive in Shipping Sector With $60 Million Research Center**\
