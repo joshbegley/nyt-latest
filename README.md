@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/06/25/world/europe/25reuters-spain-eu-calvino.html?searchResultPosition=1
 
 **Maersk Heads Zero-Carbon Drive in Shipping Sector With $60 Million Research Center**\
-`The world's largest container shipper, A.P. Moller-Maersk, will team up with industry majors to set up a research center in Denmark with the aim of reducing carbon emissions in the shipping industry. `\
+`The world's largest container shipper, A.P. Moller-Maersk <MAERSKB.CO>, will team up with industry majors to set up a research center in Denmark with the aim of reducing carbon emissions in the shipping industry. `\
 https://nytimes.com/reuters/2020/06/25/world/europe/25reuters-shipping-climatechange-maersk.html?searchResultPosition=2
 
 **Exclusive: Legal Tussles Snarl Millions in Oil From Hin Leong Deals**\
