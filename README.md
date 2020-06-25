@@ -18,8 +18,8 @@ https://nytimes.com/aponline/2020/06/24/business/bc-as-australia-qantas-cuts.htm
 `There is no way to remove his culpability in the neglectful handling of the coronavirus.`\
 https://nytimes.com/2020/06/24/opinion/trump-coronavirus-deaths.html?searchResultPosition=5
 
-**SoftBank CEO Says Equity Value of Group's Holdings Has Recovered to Pre-Virus Levels**\
-`SoftBank Group Corp Chief Executive Masayoshi Son said at an annual shareholders' meeting on Thursday the equity value of the group's holdings has recovered to pre-coronavirus pandemic levels.`\
+**SoftBank CEO Says Equity Value Back at Pre-Virus Levels**\
+`SoftBank Group Corp Chief Executive Masayoshi Son said on Thursday the equity value of the group's holdings has recovered to pre-coronavirus outbreak levels, in a defence of his investing reputation after the group was hammered by losses.`\
 https://nytimes.com/reuters/2020/06/24/technology/24reuters-softbank-group-agm.html?searchResultPosition=6
 
 **U.S. Open to Hold Wheelchair Event After Player Backlash**\
