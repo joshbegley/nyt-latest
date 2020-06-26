@@ -1,24 +1,24 @@
-**In a German Tech Giant’s Fall, Charges of Lies, Spies and Missing Billions**\
-`Markus Braun built Wirecard to “conquer the world,” but those aspirations attracted skeptics. Its massive accounting scandal has sent shock waves through Germany.`\
-https://nytimes.com/2020/06/26/business/wirecard-collapse-markus-braun.html?searchResultPosition=5
+**Kenneth Lewes, Who Challenged Views of Homosexuality, Dies at 76**\
+`In an influential book, he defied the idea that being gay, as he was, is an illness, and took on psychiatry’s “history of homophobia.” He died of the coronavirus.`\
+https://nytimes.com/2020/06/26/science/kenneth-lewes-dead-coronavirus.html?searchResultPosition=5
 
-**Formula One Distances Itself From Ecclestone Racism Comments**\
-`Formula One on Friday distanced itself from comments by the sport's former CEO Bernie Ecclestone that Black people were often more racist than white people.`\
-https://nytimes.com/reuters/2020/06/26/sports/autoracing/26reuters-motor-f1-ecclestone.html?searchResultPosition=6
+**Study Suggests Coronavirus Emerged Much Earlier Than Thought. Some Are Skeptical.**\
+`Scientists not involved in the study seriously doubt the findings, which challenge the current consensus on where and when the virus originated.`\
+https://nytimes.com/2020/06/26/health/study-suggests-coronavirus-emerged-much-earlier-than-thought-some-are-skeptical.html?searchResultPosition=6
 
-**Canada Reopens, but Little Returns to the Old Ways**\
-`A minor car breakdown underscored how far life remains from normal.`\
-https://nytimes.com/2020/06/26/world/canada/canada-reopens-but-little-returns-to-the-old-ways.html?searchResultPosition=7
+**NFL's Coaching Summit Highlights Minority Candidates**\
+`The biggest takeaway following the NFL’s two-day quarterback coaching summit is there’s no shortage of qualified minority candidates waiting for opportunities to be head coaches and coordinators. `\
+https://nytimes.com/aponline/2020/06/26/sports/football/ap-fbn-nfl-coaching-summit.html?searchResultPosition=7
 
-**Pakistan Fires 5 Officials Over Pilot Licenses Scandal**\
-`Pakistan’s aviation authorities on Friday fired five officials implicated in a scandal over licenses obtained by pilots who had had others take their exams, the latest in shocking revelations following last month's Airbus A320 crash in Karachi. `\
-https://nytimes.com/aponline/2020/06/26/business/ap-as-pakistan-plane-crash.html?searchResultPosition=8
+**Golf: Gordon Takes Connecticut Lead as Another Player Tests Positive**\
+`Will Gordon made the most of his sponsor's exemption as he grabbed the early second-round clubhouse lead at the Travelers Championship in Cromwell, Connecticut on Friday as a third PGA Tour player tested positive for COVID-19.`\
+https://nytimes.com/reuters/2020/06/26/sports/golf/26reuters-golf-travelers.html?searchResultPosition=8
 
-**Sister Angela Marie Rooney, 103, Dies; Oldest Member of Her Order in New York**\
-`Sister Angela was a teacher, secretary and, in her late decades, a whiz on the computer. She died of the coronavirus.`\
-https://nytimes.com/2020/06/26/obituaries/Angela-Rooney-dead-coronavirus.html?searchResultPosition=9
+**Latin America's Critical Food Markets Fuel Virus Spread**\
+`Mexico City's main wholesale market detects dozens of coronavirus cases every week. A covered food market in Venezuela was the source of one of the largest outbreaks in the country. And every single merchant in a vast market in Peru has tested positive for the virus. `\
+https://nytimes.com/aponline/2020/06/26/business/bc-lt-virus-outbreak-latin-america-markets.html?searchResultPosition=9
 
-**Pocono Twin Bill Weekend Loses Luster With No Fans at Track**\
-`The billboard at the entrance to Pocono Raceway has photos of Chase Elliott and Kyle Busch and “First-Ever NASCAR Doubleheader” in bold letters.`\
-https://nytimes.com/aponline/2020/06/26/sports/ap-car-nascar-pocono-preview.html?searchResultPosition=10
+**Putin, Macron Discuss Closer Cooperation in Video Call**\
+`Russian President Vladimir Putin and French President Emmanuel Macron discussed international crises during a video call Friday and vowed to cooperate more closely to tackle global challenges in a video call Friday.`\
+https://nytimes.com/aponline/2020/06/26/world/europe/ap-eu-russia-france.html?searchResultPosition=10
 
