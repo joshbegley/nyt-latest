@@ -4,7 +4,7 @@ https://nytimes.com/reuters/2020/06/26/world/middleeast/26reuters-iran-security-
 
 **A Dilemma in Texas**\
 `The state’s governor was insistent about reopening. Then the number of coronavirus cases soared.`\
-https://nytimes.com/2020/06/26/podcasts/the-daily/texaas-coronavirus-cases.html?searchResultPosition=2
+https://nytimes.com/2020/06/26/podcasts/the-daily/texas-coronavirus-cases.html?searchResultPosition=2
 
 **Exclusive: Sanofi Considering Up to 1,680 Job Cuts in Europe-Sources**\
 `Sanofi is considering cutting up to 1,680 jobs in Europe, two sources familiar with the matter said on Friday, as the French drugmaker outlined plans to reduce costs to staff representatives.`\
