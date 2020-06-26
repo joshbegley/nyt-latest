@@ -1,40 +1,40 @@
+**Shouting Distance: Henry, Werner Cheer Liverpool Title**\
+`They had waited 10 years for this, just the last of three decades of frustration for Liverpool supporters that included tragedy and heartbreak yet rarely silenced the passionate scouse voices singing in the Kop.`\
+https://nytimes.com/aponline/2020/06/26/sports/soccer/ap-soc-liverpool-american-owners.html?searchResultPosition=1
+
+**Pakistan Condemns India's Expulsion of Diplomats at 'Delicate' Time After China Clash**\
+`Pakistan has accused old rival India of trying to distract the attention of its people by expelling Pakistani diplomats after Indian forces got a "battering" at the hands of Chinese troops in a clash on their disputed Himalayan border.`\
+https://nytimes.com/reuters/2020/06/26/world/asia/26reuters-pakistan-india-china-interview.html?searchResultPosition=2
+
+**Reaction to Liverpool's Premier League Title Win**\
+`Reaction to Liverpool's Premier League triumph, their first league title since 1990:`\
+https://nytimes.com/reuters/2020/06/26/sports/soccer/26reuters-soccer-england-liv-reaction-factbox.html?searchResultPosition=3
+
+**Liverpool Fans Turn the City Red After Breaking 30-Year Premiership Drought**\
+`Thousands of Liverpool fans celebrated their Premier League title win outside the club's Anfield Stadium on Thursday as their 30 year wait for the league crown finally came to an end.`\
+https://nytimes.com/reuters/2020/06/26/sports/soccer/26reuters-soccer-england-liv-fans.html?searchResultPosition=4
+
 **After Waves of COVID Deaths, Care Homes Face Legal Reckoning**\
 `The muffled, gagging sounds in the background of the phone call filled Monette Hayoun with dread. `\
-https://nytimes.com/aponline/2020/06/26/world/europe/ap-eu-virus-outbreak-care-home-reckoning.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/06/26/world/europe/ap-eu-virus-outbreak-care-home-reckoning-abridged.html?searchResultPosition=5
+
+**After Waves of COVID Deaths, Care Homes Face Legal Reckoning**\
+`The muffled, gagging sounds in the background of the phone call filled Monette Hayoun with dread. `\
+https://nytimes.com/aponline/2020/06/26/world/europe/ap-eu-virus-outbreak-care-home-reckoning.html?searchResultPosition=6
 
 **Coric Still Without Symptoms After COVID-19 Infection**\
 `Croatia's Borna Coric has told fans he is feeling well and experiencing no symptoms after contracting the novel coronavirus at Novak Djokovic's controversial Adria Tour tournament.`\
-https://nytimes.com/reuters/2020/06/26/sports/tennis/26reuters-health-coronavirus-tennis-djokovic.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/06/26/sports/tennis/26reuters-health-coronavirus-tennis-djokovic.html?searchResultPosition=7
 
 **Indonesian Fishermen Rescue Nearly 100 Rohingya Refugees in Aceh**\
 `Indonesian fishermen rescued nearly 100 Rohingya refugees, including 79 women and children, in Aceh province after officials said they were planning to push them back out to sea.`\
-https://nytimes.com/reuters/2020/06/26/world/asia/26reuters-indonesia-rohingya.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/06/26/world/asia/26reuters-indonesia-rohingya.html?searchResultPosition=8
 
 **Yemen Asks for Help as Seawater Seeps Into Abandoned Tanker**\
 `The United Nations said an abandoned oil tanker moored off the coast of Yemen loaded with more than 1 million barrels of crude oil is at risk of rupture or exploding, causing massive environmental damage to Red Sea marine life, desalination factories and international shipping routes.`\
-https://nytimes.com/aponline/2020/06/26/world/middleeast/ap-ml-houthis-floating-bomb-abridged.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/06/26/world/middleeast/ap-ml-houthis-floating-bomb-abridged.html?searchResultPosition=9
 
 **NHL Not Planning to Quarantine Players for Training Camps**\
 `Jason Spezza's confidence in the NHL returning has not been shaken by word of 11 fellow players testing positive for the coronavirus.`\
-https://nytimes.com/aponline/2020/06/26/sports/hockey/ap-hkn-virus-outbreak-training-camps.html?searchResultPosition=5
-
-**Major U.S. Airline CEOs to Hold White House Meeting Friday**\
-`The CEOs of major U.S. airlines are set to hold a meeting Friday to discuss several coronavirus-related travel issues, including a push to convince the federal government to mandate temperature checks for passengers, three people briefed on the matter said.`\
-https://nytimes.com/reuters/2020/06/26/business/26reuters-health-coronavirus-usa-airlines.html?searchResultPosition=6
-
-**Daiichi Sankyo in Talks With AstraZeneca on Virus Vaccine Supply in Japan**\
-`Daiichi Sankyo Co is in discussions with AstraZeneca Plc on developing supplies of a vaccine for the coronavirus in Japan, the Japanese company said on Friday.`\
-https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-ealth-coronavirus-daiichisankyo-astrazeneca.html?searchResultPosition=7
-
-**EU Executive to Ask ESMA to Look Into Collapse of Wirecard**\
-`The European Commission will ask the European Securities and Markets Authority (ESMA) to investigate if BaFin, Germany’s banking regulator, failed in its supervision of the failed German payments company Wirecard.`\
-https://nytimes.com/reuters/2020/06/26/business/26reuters-wirecard-accounts-eu-dombrovskis.html?searchResultPosition=8
-
-**Seawater Seeping Into Decaying Oil Tanker Off Yemen Coast**\
-`The United Nations said an abandoned oil tanker moored off the coast of Yemen loaded with more than 1 million barrels of crude oil is at risk of rupture or exploding, causing massive environmental damage to Red Sea marine life, desalination factories and international shipping routes.`\
-https://nytimes.com/aponline/2020/06/26/world/middleeast/ap-ml-houthis-floating-bomb.html?searchResultPosition=9
-
-**What You Need to Know About the Coronavirus Right Now**\
-`Here's what you need to know about the coronavirus right now:`\
-https://nytimes.com/reuters/2020/06/26/world/asia/26reuters-health-coronavirus-snapshot.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/26/sports/hockey/ap-hkn-virus-outbreak-training-camps.html?searchResultPosition=10
 
