@@ -18,12 +18,12 @@ https://nytimes.com/aponline/2020/06/26/sports/tennis/ap-ten-davis-cup-and-fed-c
 `Astrazeneca's COVID-19 vaccine candidate is probably the world's leading candidate and most advanced in terms of development, the World Health Organization's chief scientist said on Friday.`\
 https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-health-coronavirus-who-development.html?searchResultPosition=5
 
-**Luckin Shares to Be Suspended on Monday**\
-`Luckin Coffee Inc said on Friday Nasdaq Inc notified the Chinese coffee chain that its shares would be suspended at the open on Monday. `\
+**Nasdaq to Suspend Trading of Luckin Coffee Shares From Monday**\
+`Luckin Coffee Inc said on Friday its shares would be suspended from trading on the Nasdaq from next week as it  withdrew a request for a hearing with the U.S. stock exchange on the delisting notice.`\
 https://nytimes.com/reuters/2020/06/26/business/26reuters-luckin-coffee-investigation-nasdaq.html?searchResultPosition=6
 
-**American Airlines to Stop Limiting Seat Capacity on Flights From July 1**\
-`American Airlines said on Friday it would stop limiting the number of seats it sells on each flight from July 1.`\
+**American Airlines Warns Flights May Be More Crowded in July**\
+`American Airlines said on Friday that flights will be booked to full capacity starting July 1, meaning that passengers may notice more crowded flights as more people continue to travel.`\
 https://nytimes.com/reuters/2020/06/26/business/26reuters-health-coronavirus-american-airline.html?searchResultPosition=7
 
 **Is This Whistle the Future of Refereeing?**\
