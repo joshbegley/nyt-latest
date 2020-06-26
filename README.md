@@ -1,40 +1,36 @@
-**American Airlines Will Book Flights to Full Capacity**\
-`American Airlines will start booking flights to full capacity next week, ending any effort to promote social distancing on its planes while the United States sets records for new reported cases of the coronavirus.`\
-https://nytimes.com/aponline/2020/06/26/business/bc-us-virus-outbreak-airlines-full-flights.html?searchResultPosition=1
+**The Woman Who Pioneered the Rape Kit**\
+`Readers variously praise Marty Goddard, a woman “who wanted to make a difference,” and say “the fight for survivors’ rights is one of attrition.”`\
+https://nytimes.com/2020/06/26/opinion/letters/rape-kit-marty-goddard.html?searchResultPosition=2
 
-**Starting Bonus for a Laundry Worker: How a Beach Town Wrestles With Jobless Benefits**\
-`Rehoboth Beach, Del., provides insight into how a $600 expanded unemployment benefit is affecting rehiring.`\
-https://nytimes.com/2020/06/26/business/economy/unemployment-incentives-beach-town.html?searchResultPosition=2
+**Lockdown? What Lockdown? Heat Wave Brings Britons Out in Droves**\
+`With pubs and restaurants still closed in a country that has the world’s third-highest reported coronavirus death toll, crowds have flocked to beaches, parks and streams this week.`\
+https://nytimes.com/2020/06/26/world/europe/uk-coronavirus-lockdown.html?searchResultPosition=3
 
-**Drugstore, Butcher, Dry Cleaner: Pandemic’s Toll on a Brooklyn Block**\
-`In Sunset Park, a vibrant neighborhood of businesses run by immigrants and their families, some stores do not plan to reopen. Others worry about how long they can survive.`\
-https://nytimes.com/2020/06/26/nyregion/nyc-reopening-sunset-park.html?searchResultPosition=3
+**This One-Pan Meal Shows Just How Joyful Tofu Can Be**\
+`This 30-minute dinner gets its crunch from pan-seared tofu, blistered snap peas and toasted cashews, and its flavor from an umami-rich sauce.`\
+https://nytimes.com/2020/06/26/dining/tofu-recipe.html?searchResultPosition=4
 
-**Black Activists Wonder: Is Protesting Just Trendy for White People?**\
-`Though black protesters have been heartened by the many white people joining them in the streets, some wonder if this newfound commitment will last.`\
-https://nytimes.com/2020/06/26/nyregion/george-floyd-white-protesters.html?searchResultPosition=4
+**Nike Plans to Cut Jobs in Digital Push**\
+`Nike Inc on Friday warned of job cuts as the world's largest footwear maker ramps up efforts to sell directly to customers through its online and retail channels.`\
+https://nytimes.com/reuters/2020/06/26/business/26reuters-nike-layoffs.html?searchResultPosition=5
 
-**Watch Live: Coronavirus Task Force Holds News Conference**\
-`Members of the Trump administration’s coronavirus task force are briefing the nation for the first time in nearly two months.`\
-https://nytimes.com/video/us/politics/100000007211515/coronavirus-task-force-press-conference.html?searchResultPosition=5
+**No Indication Glasgow Attack Was Terrorism: Security Source**\
+`There is currently no indication that a deadly knife attack in Glasgow on Friday was a terrorist event, a Western security source told Reuters.`\
+https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-britain-security-glasgow-source.html?searchResultPosition=6
 
-**New York Coronavirus Positive Test Rate Lowest in U.S., Governor Says**\
-`The percentage of people in New York state who are testing positive for the novel coronavirus is the lowest in the United States, Governor Andrew Cuomo said on Friday, citing data from Johns Hopkins University.`\
-https://nytimes.com/reuters/2020/06/26/us/26reuters-health-coronavirus-usa-new-york.html?searchResultPosition=6
+**Novelist Patchett Has Nashville Bookstore Customers Swooning**\
+`The Nashville bookstore that opened and thrived while others were closing their doors is once again defying the odds, thanks, in part, to its famous novelist co-owner. `\
+https://nytimes.com/aponline/2020/06/26/business/ap-us-ann-patchett-bookstore.html?searchResultPosition=7
 
-**United Airlines to Resume China Flights in July**\
-`United Airlines said on Friday it would resume service to China, with two flights a week between San Francisco and Shanghai beginning July 8.`\
-https://nytimes.com/reuters/2020/06/26/business/26reuters-health-coronavirus-united-arlns.html?searchResultPosition=7
+**Haim Steps Into a New Groove on ‘Women in Music Pt. III’**\
+`On the band’s third album, the sisters in Haim add what was missing from previous releases — tension and texture — to make their sharpest and most adventurous songs yet.`\
+https://nytimes.com/2020/06/26/arts/music/haim-women-in-music-pt-iii-review.html?searchResultPosition=8
 
-**Albertsons' Shares Fall in NYSE Debut**\
-`Shares of Albertsons Cos Inc fell 3% in their U.S. market debut, even as the supermarket operator priced its offering below the marketed range.`\
-https://nytimes.com/reuters/2020/06/26/business/26reuters-albertsons-companies-ipo.html?searchResultPosition=8
+**NBA: Sixteen Players in 'Self-Isolation' After Testing Positive for COVID-19**\
+`Sixteen NBA players tested positive for COVID-19, the league said on Friday, a little over a month before the 2020 season is set to resume.`\
+https://nytimes.com/reuters/2020/06/26/sports/basketball/26reuters-health-coronavirus-basketball-nba.html?searchResultPosition=9
 
-**YouTube Personality Jenna Marbles Apologizes for Blackface Video**\
-`Jenna Mourey said she was ending her channel, which has more than 20 million subscribers, because of videos from 2011 of her impersonating Nicki Minaj and rapping lyrics about Asians.`\
-https://nytimes.com/2020/06/26/us/jenna-marbles-leaves-youtube.html?searchResultPosition=9
-
-**Boeing 737 MAX Certification Flight Test Expected Soon**\
-`A key step to the return to service of the grounded Boeing 737 MAX could take place as soon as early next week, two people briefed on the matter said.`\
-https://nytimes.com/reuters/2020/06/26/business/26reuters-boeing-737max.html?searchResultPosition=10
+**Exclusive: EU Antitrust Regulators to Okay AMS' 4.6 Billion Euro Osram Bid-Sources**\
+`EU antitrust regulators are set to clear without conditions Austrian sensor producer AMS' acquisition of German lighting group Osram, people familiar with the matter said on Friday.`\
+https://nytimes.com/reuters/2020/06/26/business/26reuters-osram-licht-m-a-ams-eu-exclusive.html?searchResultPosition=10
 
