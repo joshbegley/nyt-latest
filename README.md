@@ -35,6 +35,6 @@ https://nytimes.com/2020/06/25/opinion/us-coronavirus-protests.html?searchResult
 https://nytimes.com/reuters/2020/06/25/us/25reuters-california-trucks-electric.html?searchResultPosition=9
 
 **Major U.S. Airline CEOs to Hold White House Meeting Friday: Sources**\
-`The chief executives of major U.S. airlines are set to hold a meeting Friday to discuss a range of coronavirus-travel issues, three people briefed on the matter said.`\
+`The chief executives of major U.S. airlines are set to hold a meeting Friday to discuss a range of coronavirus-related travel issues including the industry's push to convince the federal government to mandate temperature checks for passengers, three people briefed on the matter said.`\
 https://nytimes.com/reuters/2020/06/25/business/25reuters-health-coronavirus-usa-airlines.html?searchResultPosition=10
 
