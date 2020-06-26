@@ -1,4 +1,4 @@
-**Season 2: Lisa Ludwinski, Head Baker and Owner of Sister Pie**\
+**Lisa Ludwinski, Head Baker and Owner of Sister Pie**\
 `Lisa comes back to “That Made All the Difference” to share how necessity transformed her neighborhood bakery into an essential hub for community support – and why sourdough makes her dance.`\
 https://nytimes.com/paidpost/bank-of-america/that-made-all-the-difference/season-2-lisa-ludwinski-head-baker-and-owner-of-sister-pie.html?searchResultPosition=5
 
