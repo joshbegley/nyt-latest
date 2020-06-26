@@ -1,24 +1,24 @@
+**Georgia Governor Signs State Hate Crimes Bill Into Law**\
+`Georgia Governor Brian Kemp on Friday signed a hate crimes bill into law, adding penalties to criminals motivated by race, color, gender or sexual orientation.`\
+https://nytimes.com/reuters/2020/06/26/us/26reuters-usa-georgia-hate-crime.html?searchResultPosition=5
+
+**Summer Reading Recommendations from The New York Times Book Review**\
+`Looking for something to read this summer? Here are suggestions to entertain you, offer escape and stretch your horizons this season.`\
+https://nytimes.com/2020/06/26/books/summer-reading.html?searchResultPosition=6
+
+**Last Testament of Maurice the Rooster**\
+`Cultivate your garden. That never disappoints.`\
+https://nytimes.com/2020/06/26/opinion/maurice-rooster-france.html?searchResultPosition=7
+
+**Factbox: African-Americans Whose Deaths Inspired Wave of Protests**\
+`The killing of George Floyd by a Minneapolis police officer last month has spawned a wave of protests and national soul-searching over systemic racism in the United States, while focusing new attention on other cases involving violence against men and women of color.`\
+https://nytimes.com/reuters/2020/06/26/us/26reuters-minneapolis-police-factbox.html?searchResultPosition=8
+
 **Blue Jays Expect Decision 'Very Soon' on Where They'll Play**\
 `Less than a week before Major League baseball teams resume training on July 1, the Toronto Blue Jays still haven’t been able to tell their players where to show up.`\
-https://nytimes.com/aponline/2020/06/26/sports/baseball/ap-bba-blue-jays-where-to-play.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/06/26/sports/baseball/ap-bba-blue-jays-where-to-play.html?searchResultPosition=9
 
 **As Virus Grows, Governors Rely on Misleading Hospital Data**\
 `Governors in places seeing huge spikes in coronavirus infections often cite statewide data to assure the public they have plenty of hospital capacity to survive the onslaught, even as the states routinely miss the critical benchmarks to guide their pandemic response. `\
-https://nytimes.com/aponline/2020/06/26/us/ap-us-virus-outbreak-hospitalizations.html?searchResultPosition=6
-
-**Georgia's Kemp Signs Hate Crimes Law After Outcry Over Death**\
-`Georgia Gov. Brian Kemp on Friday signed legislation allowing additional penalties to be imposed for crimes motivated by a victim’s race, religion, sexual orientation or other factors, removing Georgia from the dwindling list of U.S. states without a hate crimes law.`\
-https://nytimes.com/aponline/2020/06/26/us/ap-us-hate-crimes-law-georgia.html?searchResultPosition=7
-
-**Dolphins Owner Pledges $13 Million to Anti-Racism Initiative**\
-`Miami Dolphins owner Stephen Ross pledged an additional $13 million over four years to his anti-racism RISE initiative, the organization said Friday.`\
-https://nytimes.com/aponline/2020/06/26/sports/football/ap-fbn-ross-rise-pledge.html?searchResultPosition=8
-
-**U.S. CDC Reports 2,414,870 Coronavirus Cases**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Friday reported 2,414,870 cases of new coronavirus, an increase of 40,588 cases from its previous count, and said the number of deaths had risen by 2,516 to 124,325.`\
-https://nytimes.com/reuters/2020/06/26/us/26reuters-health-coronavirus-usa-cdc.html?searchResultPosition=9
-
-**Comfort Viewing: 3 Reasons I Love ‘Tim and Eric Awesome Show, Great Job!’**\
-`It’s weird. It’s scathing. It’s even a little disturbing. For the writer, that feels just about right.`\
-https://nytimes.com/2020/06/26/arts/television/tim-and-eric-awesome-show-great-job.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/26/us/ap-us-virus-outbreak-hospitalizations.html?searchResultPosition=10
 
