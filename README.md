@@ -1,40 +1,40 @@
+**Dead Dolphins Wash Up on France's Shores in Record Numbers**\
+`Dead dolphins are washing up on France's Atlantic coast in such high numbers that local populations of the mammals are at risk, marine biologists say.`\
+https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-france-dolphins.html?searchResultPosition=1
+
+**Three People Believed to Have Died in Glasgow Stabbing: BBC**\
+`Three people are believed to have died after being stabbed in the Scottish city of Glasgow, the BBC reported on Friday, without citing sources.`\
+https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-britain-security-glasgow-casualties.html?searchResultPosition=2
+
+**Thailand and Myanmar Burn Seized Drugs Worth $2 Billion**\
+`Thailand and Myanmar destroyed 25 tonnes of illicit drugs collectively worth more than $2 billion on Friday, but said the tide of drugs was growing as organised crime gangs boost supply and find new channels to do business.`\
+https://nytimes.com/reuters/2020/06/26/world/asia/26reuters-thailand-myanmar-drugs.html?searchResultPosition=3
+
+**Kosovo President, Indicted for War Crimes, Heads Back Home**\
+`The president of Kosovo headed back to his country Friday after pulling out of a White House meeting due to his indictment for war crimes stemming from the 1990s armed conflict between ethnic Albanian separatists he helped lead and Serbian forces. `\
+https://nytimes.com/aponline/2020/06/26/world/europe/ap-eu-kosovo-war-crimes-president.html?searchResultPosition=4
+
+**More Than a Last-Chance College Romance**\
+`They met at Dartmouth, just as they were both about to graduate.`\
+https://nytimes.com/2020/06/26/fashion/weddings/more-than-a-last-chance-college-romance.html?searchResultPosition=5
+
+**High School Sweethearts a Decade Ago**\
+`Feliberto Gonzalo proposed at Evelyn Rodriguez’s law school graduation party after she was sworn into the New Jersey bar.`\
+https://nytimes.com/2020/06/26/fashion/weddings/high-school-sweethearts-a-decade-ago.html?searchResultPosition=6
+
+**Second Chance for First Impression**\
+`Nuala O’Connor and Peter Bass met, dated and parted. And then they started over.`\
+https://nytimes.com/2020/06/26/fashion/weddings/second-chance-for-first-impression.html?searchResultPosition=7
+
+**A Little Chutzpah Goes a Long Way**\
+`A great-great granddaughter of the Yiddish writer Sholem Aleichem had a Jewish ceremony via Zoom outside a shul in Chicago. A legal one came later.`\
+https://nytimes.com/2020/06/26/fashion/weddings/a-little-chutzpah-goes-a-long-way.html?searchResultPosition=8
+
+**An Accidental First Date**\
+`The couple met two days before the first date they’d arranged, when a friend of Andrea Raines’s spotted Michael Gehlken walking by and recognized him.`\
+https://nytimes.com/2020/06/26/fashion/weddings/an-accidental-first-date.html?searchResultPosition=9
+
 **Glasgow Police Officer Stabbed, Police Association Says**\
 `A police officer has been stabbed in a major incident in the centre of Scotland's largest city, Glasgow, the Scottish Police Federation said on Friday.`\
-https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-britain-security-glasgow-spf.html?searchResultPosition=1
-
-**Falling AAAngels: The Shrinking 'Triple A' World**\
-`Canada became the latest country to be stripped of a prized 'triple A' sovereign credit rating after Fitch downgraded it on Wednesday.`\
-https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-ratings-aaa.html?searchResultPosition=2
-
-**Mixed-Race Women Sue Belgium for Crimes Against Humanity**\
-`Five mixed-race women born in Congo when the country was under Belgian rule who were taken away from their Black mothers have filed a lawsuit for crimes against humanity targeting the Belgian state.`\
-https://nytimes.com/aponline/2020/06/26/world/europe/ap-eu-belgium-colonial-past-lawsuit.html?searchResultPosition=3
-
-**Several Injured in Incident in Scottish City of Glasgow: Sky News**\
-`At least three people have been injured in an incident in the Scottish city of Glasgow, an eyewitness told Sky News on Friday, after police confirmed they had closed off one of the city's streets.`\
-https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-britain-security-glasgow.html?searchResultPosition=4
-
-**Mexico City Public Security Chief Injured in Assassination Attempt**\
-`The head of public security in Mexico City was injured in an assassination attempt early on Friday morning when gunmen set upon him in an upscale neighborhood of the capital, authorities said.`\
-https://nytimes.com/reuters/2020/06/26/world/americas/26reuters-mexico-violence.html?searchResultPosition=5
-
-**Brazil University in Talks to Test Italian Coronavirus Vaccine**\
-`The Federal University of Sao Paulo (Unifesp) is in talks to test a potential coronavirus vaccine developed by Italian researchers, the dean of the Brazilian university told Reuters.    `\
-https://nytimes.com/reuters/2020/06/26/world/americas/26reuters-health-coronavirus-brazil-vaccine.html?searchResultPosition=6
-
-**PM Johnson Says Britain Must Break Down Barriers for Black People**\
-`British Prime Minister Boris Johnson said on Friday that many Black and ethnic minority people felt they were discriminated against so the country had to break down barriers.`\
-https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-minneapolis-police-protests-britain-johnson.html?searchResultPosition=7
-
-**U.S. Auto Sales Expected to Continue Their Recovery in June: J.D. Power, LMC Automotive**\
-`U.S. auto sales are expected to continue their recovery in June following a collapse in April, as coronavirus-led lockdown restrictions ease and buyers slowly return to the market, industry consultants J.D. Power and LMC Automotive said.`\
-https://nytimes.com/reuters/2020/06/26/business/26reuters-health-coronavirus-usa-autos.html?searchResultPosition=8
-
-**Police Officer Stabbed During 'Major Incident' in Glasgow**\
-`A police officer in the Scottish city of Glasgow has been stabbed during a major incident Friday in the heart of the city. `\
-https://nytimes.com/aponline/2020/06/26/world/europe/ap-eu-britain-scotland-police-incident.html?searchResultPosition=9
-
-**Vienna Police Brace for Violence After Kurdish Demo Attacked**\
-`Police in Vienna are bracing for possible violence at a protest by Kurdish groups Friday after Turkish nationalists attacked two previous rallies in the Austrian capital this week.`\
-https://nytimes.com/aponline/2020/06/26/world/europe/ap-eu-austria-protest-violence.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-britain-security-glasgow-spf.html?searchResultPosition=10
 
