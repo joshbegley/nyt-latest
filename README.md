@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/06/25/sports/25reuters-sports-michigan-reopens.
 https://nytimes.com/2020/06/25/us/politics/house-police-overhaul-bill.html?searchResultPosition=7
 
 **Alabama Players, Saban Appear in Anti-Racism Video**\
-`The University of Alabama football team on Thursday released an emotional video speaking out against racism and ending with the message that “all lives can’t matter until Black lives matter.” `\
+`The University of Alabama football team released an emotional video on Thursday speaking out against racism and ending with the message that “all lives can’t matter until Black lives matter.” `\
 https://nytimes.com/aponline/2020/06/25/sports/ap-us-alabama-football-antiracism-video-.html?searchResultPosition=8
 
 **Hong Kong Pro-Democracy Shops Fear China's New Security Law**\
