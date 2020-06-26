@@ -31,7 +31,7 @@ https://nytimes.com/aponline/2020/06/25/us/politics/ap-us-racial-injustice-trump
 https://nytimes.com/aponline/2020/06/25/sports/hockey/ap-hkn-rangers-panarin.html?searchResultPosition=8
 
 **Christopher Nolan Movie 'Tenet' Delayed Again Amid Coronavirus Outbreak**\
-`AT&T Inc's Warner Bros. movie studio on Thursday delayed the release of Christopher Nolan thriller "Tenet" for a second time, dealing another setback to the movie industry's hopes for a late-summer rebound.`\
+`AT&T Inc's Warner Bros. movie studio on Thursday delayed the release of Christopher Nolan thriller "Tenet" for a second time due to the coronavirus outbreak, dealing another setback to the industry's hopes for a late-summer rebound.`\
 https://nytimes.com/reuters/2020/06/25/arts/25reuters-film-tenet.html?searchResultPosition=9
 
 **Taking the High Road**\
