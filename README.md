@@ -18,7 +18,7 @@ https://nytimes.com/2020/06/26/us/politics/charles-booker-kentucky-jamaal-bowman
 `Bulgarian police have detained the head of the anti-drug trafficking unit and two other officers for allegedly taking bribes in exchange for protecting local and international drug trafficking rings.`\
 https://nytimes.com/aponline/2020/06/26/world/europe/ap-eu-bulgaria-corruption.html?searchResultPosition=5
 
-**Teenager Who Threw French Boy From London Art Gallery Roof Jailed for 15 Years: BBC**\
+**Teenager Who Threw French Boy From London Art Gallery Roof Jailed for 15 Years**\
 `A British teenager who threw a six-year-old French boy from a 10th-floor viewing platform at the Tate Modern art gallery in London with the intention of killing him was jailed for at least 15 years on Friday, the BBC reported.`\
 https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-britain-crime-tate.html?searchResultPosition=6
 
