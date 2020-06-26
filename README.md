@@ -1,24 +1,24 @@
+**Sister Angela Marie Rooney, 103, Dies; Oldest Member of Her Order in New York**\
+`Sister Angela was a teacher, secretary and, in her late decades, a whiz on the computer. She died of the coronavirus.`\
+https://nytimes.com/2020/06/26/obituaries/Angela-Rooney-dead-coronavirus.html?searchResultPosition=5
+
+**Pocono Twin Bill Weekend Loses Luster With No Fans at Track**\
+`The billboard at the entrance to Pocono Raceway has photos of Chase Elliott and Kyle Busch and “First-Ever NASCAR Doubleheader” in bold letters.`\
+https://nytimes.com/aponline/2020/06/26/sports/ap-car-nascar-pocono-preview.html?searchResultPosition=6
+
+**Appeals Court: Trump Wrongly Diverted $2.5B for Border Wall**\
+`A federal appeals court on Friday ruled against the Trump administration in its transfer of $2.5 billion from military construction projects to build sections of the U.S. border wall with Mexico, ruling it illegally sidestepped Congress, which gets to decide how to use the funds.`\
+https://nytimes.com/aponline/2020/06/26/us/ap-us-border-wall-lawsuits.html?searchResultPosition=7
+
+**U.S. to Ship Remdesivir to States Including California and Texas With Rising COVID-19 Cases**\
+`The U.S. government will ship more of Gilead Sciences Inc's antiviral treatment remdesivir to states experiencing an increase in COVID-19 cases including California, Texas, Florida and Arizona, according to the Department of Health and Human Services' website.`\
+https://nytimes.com/reuters/2020/06/26/us/26reuters-health-coronavirus-gilead-sciences.html?searchResultPosition=8
+
 **Lester Crystal, Guiding Force Behind ‘NewsHour,’ Dies at 85**\
 `As executive producer, he expanded the PBS newscast to an hour and helped make it a distinctive voice in broadcast journalism.`\
-https://nytimes.com/2020/06/26/business/media/lester-crystal-dead.html?searchResultPosition=5
+https://nytimes.com/2020/06/26/business/media/lester-crystal-dead.html?searchResultPosition=9
 
 **Welcome to Merseyball**\
 `For three decades, Liverpool has struggled to find its place in modern soccer. Its Premier League title is the apotheosis of a very modern club.`\
-https://nytimes.com/2020/06/26/sports/soccer/liverpool-premier-league-title.html?searchResultPosition=6
-
-**Behind the Scenes at SAGE: Pressure, Anxieties and ‘Pastoral Support’**\
-`As public scrutiny of the secretive government scientific advisory group heightened, its members nearly buckled under the strain.`\
-https://nytimes.com/2020/06/26/world/europe/sage-britain-coronavirus-ferguson.html?searchResultPosition=7
-
-**East Congo Ebola Outbreak No Longer an International Emergency, Says WHO**\
-`The World Health Organization said on Friday that the Ebola outbreak in eastern Democratic Republic of Congo that was declared over on Thursday no longer constitutes an international public health emergency. `\
-https://nytimes.com/reuters/2020/06/26/world/africa/26reuters-health-ebola-congo.html?searchResultPosition=8
-
-**Oregon, Oregon State Drop 'Civil War' Name for Rivalry**\
-`Oregon and Oregon State have agreed to drop the name “Civil War” for their rivalry games. `\
-https://nytimes.com/aponline/2020/06/26/sports/ncaafootball/ap-fbc-civil-war-.html?searchResultPosition=9
-
-**Bus Driver Charged Over Deadly Warsaw Bridge Crash**\
-`The driver of a municipal bus that plunged off a motorway bridge in the Polish capital on Thursday, killing one person, was driving while under the influence of amphetamines, the Warsaw prosecutor's office said.`\
-https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-poland-accident.html?searchResultPosition=10
+https://nytimes.com/2020/06/26/sports/soccer/liverpool-premier-league-title.html?searchResultPosition=10
 
