@@ -22,8 +22,8 @@ https://nytimes.com/2020/06/25/us/carlos-ingram-lopez-death-tucson-.html?searchR
 `Verizon is joining an escalating movement to siphon advertising away from Facebook in an effort to pressure the company into doing more to prevent racist and violent information from being shared on its social networking service.`\
 https://nytimes.com/aponline/2020/06/25/business/bc-us-facebook-ad-boycott.html?searchResultPosition=6
 
-**Iran Investigates Sudden Light and Booms**\
-`The cause and the exact location were not immediately clear.`\
+**Iran Investigates Explosion at Military Base**\
+`A defense ministry spokesman said a gas explosion had occurred at a base east of the capital, Tehran.`\
 https://nytimes.com/2020/06/25/world/iran-explosion.html?searchResultPosition=7
 
 **Panama Sees Surge of Coronavirus Infections After Reopening**\
