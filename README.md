@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/06/26/us/ap-us-hand-sanitizer-deaths-new-mexic
 `Members of Ireland's two dominant centre-right parties and the smaller Green Party voted on Friday in favour of forming a new coalition government that will focus on climate action and end four months of political stalemate.`\
 https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-ireland-politics-vote.html?searchResultPosition=9
 
-**Russia Secretly Offered Afghan Militants Bounties to Kill American Troops, U.S. Intelligence Says**\
-`The Trump administration has been deliberating for months about what, if anything, to do about an explosive intelligence assessment.`\
+**Russia Secretly Offered Afghan Militants Bounties to Kill U.S. Troops, Intelligence Says**\
+`The Trump administration has been deliberating for months about what to do about a stunning intelligence assessment.`\
 https://nytimes.com/2020/06/26/us/politics/russia-afghanistan-bounties.html?searchResultPosition=10
 
