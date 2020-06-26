@@ -1,24 +1,24 @@
-**Morocco Rejects Amnesty’s Allegations on Spying on Journalist**\
-`Moroccan authorities on Friday rejected an Amnesty report saying they have spied on journalist Omar Radi using Israeli-made technology.`\
-https://nytimes.com/reuters/2020/06/26/world/africa/26reuters-morocco-human-rights.html?searchResultPosition=5
+**Sensors Detect Rise in Nuclear Particles on Baltic Sea, Global Body Says**\
+`Radiation sensors in Stockholm have detected higher-than-usual but still harmless levels of isotopes produced by nuclear fission, probably from somewhere on or near the Baltic Sea, a body running a worldwide network of the sensors said on Friday.`\
+https://nytimes.com/reuters/2020/06/26/world/europe/26reuters-nuclear-particles-baltic.html?searchResultPosition=5
 
-**Coronavirus Task Force Briefs — but Not at White House**\
-`There was no presidential appearance and no White House backdrop Friday when the government's coronavirus task force briefed the public for the first since April — in keeping with an administration effort to show it's paying attention to the latest spike in cases but not on a wartime footing that should keep the country from reopening the economy.`\
-https://nytimes.com/aponline/2020/06/26/us/politics/ap-us-virus-outbreak-white-house.html?searchResultPosition=6
+**Police Not Treating Glasgow Episode as Terrorism, Scotland’s First Minister Says**\
+`Nicola Sturgeon, the first minister of Scotland, thanked police officers on Friday for their response to an incident in Glasgow and said that investigations were “ongoing.”`\
+https://nytimes.com/video/us/100000007212234/nicola-sturgeon-glasgow-attack.html?searchResultPosition=6
 
-**GM Seeks U.S. Appeals Court Ruling to Continue Legal Fight With Fiat Chrysler**\
-`General Motors Co on Friday asked a U.S. appeals court to allow it to continue pursuing its civil racketeering suit against rival Fiat Chrysler Automobiles NV, rejecting a lower court judge's belittling of the complaint.`\
-https://nytimes.com/reuters/2020/06/26/business/26reuters-gm-fiat-chrysler-appeal.html?searchResultPosition=7
+**Porn Star Ron Jeremy Pleads Not Guilty to Rape Charges in Los Angeles**\
+`Adult film star Ron Jeremy pleaded not guilty in a Los Angeles courtroom on Friday to charges of raping three women and sexually assaulting a fourth in incidents from 2014 to 2019, City News Service reported.`\
+https://nytimes.com/reuters/2020/06/26/arts/26reuters-people-ron-jeremy.html?searchResultPosition=7
 
-**How Major US Stock Indexes Fared Friday**\
-`Stocks closed broadly lower Friday as confirmed new coronavirus infections in the U.`\
-https://nytimes.com/aponline/2020/06/26/business/ap-financial-markets-box.html?searchResultPosition=8
+**‘TikTok Grandma’ Who Helped Tank Trump Rally Now Works for Biden**\
+`Mary Jo Laupp, who made a viral TikTok video that disrupted a Trump campaign event, plans to create a “political hype house” to support Joe Biden.`\
+https://nytimes.com/2020/06/26/technology/tiktok-grandma-trump-biden.html?searchResultPosition=8
 
-**Sudan Says Ethiopia Will Not Fill Nile Dam Without Reaching Deal**\
-`Sudan, Ethiopia and Egypt agreed that Ethiopia will not start filling its giant Nile dam without reaching an agreement between them, Sudan's state news agency said on Friday.`\
-https://nytimes.com/reuters/2020/06/26/world/africa/26reuters-ethiopia-dam-sudan.html?searchResultPosition=9
+**Most U.S. Travelers Will Be Barred From E.U. When Bloc Reopens**\
+`Europe will allow outsiders to begin entering again on July 1, but the U.S. and Russia are among the nations considered too risky because they have not controlled the coronavirus outbreak.`\
+https://nytimes.com/2020/06/26/world/europe/europe-us-travel-ban.html?searchResultPosition=9
 
-**W.H.O. Seeks Billions in Funding to Combat the Coronavirus**\
-`The World Health Organization on Friday said it would need billions of dollars to accelerate vaccine production and to develop other tools to fight the virus.`\
-https://nytimes.com/video/world/europe/100000007212496/who-coronavirus-funding.html?searchResultPosition=10
+**Attorney: Ex-Baltimore Mayor Surrenders for Prison Term**\
+`Baltimore’s disgraced former mayor surrendered to federal authorities Friday to begin serving a three-year prison sentence stemming from a public corruption scandal.`\
+https://nytimes.com/aponline/2020/06/26/us/ap-us-former-baltimore-mayor-prison.html?searchResultPosition=10
 
