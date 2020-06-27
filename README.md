@@ -14,7 +14,7 @@ https://nytimes.com/aponline/2020/06/27/world/europe/ap-eu-russia-protest.html?s
 `State election officials face shortages of money, poll workers, capacity to print ballots and public trust — without much time to fix them.`\
 https://nytimes.com/2020/06/27/us/2020-primary-election-voting.html?searchResultPosition=8
 
-**Dodgers' Andrew Toles Jailed in Florida on Tresspass Charge**\
+**Dodgers' Andrew Toles Jailed in Florida on Trespass Charge**\
 `Los Angeles Dodgers outfielder Andrew Toles was in jail Saturday and charged with trespassing property.`\
 https://nytimes.com/aponline/2020/06/27/sports/baseball/ap-bbn-dodgers-toles-arrested.html?searchResultPosition=9
 
