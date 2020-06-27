@@ -1,24 +1,24 @@
+**'India's George Floyds': Father-Son Death in Police Custody Sparks Outrage**\
+`Outrage at the death of a father-son duo in the custody of Indian police earlier this week mounted on Saturday, with thousands on social media comparing the incident to the death of George Floyd in the United States.`\
+https://nytimes.com/reuters/2020/06/27/world/asia/27reuters-india-police-crime.html?searchResultPosition=5
+
 **Roche Not Yet Meeting Demand for Molecular COVID-19 Tests, Chairman Says**\
 `Swiss drugmaker Roche is unable to meet demand for molecular tests to identify active COVID-19 infections, its chairman told Swiss daily Tagesanzeiger.`\
-https://nytimes.com/reuters/2020/06/27/world/europe/27reuters-health-coronavirus-treatments-roche.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/27/world/europe/27reuters-health-coronavirus-treatments-roche.html?searchResultPosition=6
 
 **ECB's German Board Member Pushes Back on Court Challenge**\
-`The European Central Bank's super easy monetary policy is necessary and its benefits far outweigh its side effects, ECB board member Isabel Schnabel said on Saturday, pushing back on a court challenge from her native Germany.`\
-https://nytimes.com/reuters/2020/06/27/world/europe/27reuters-ecb-policy-schaeuble.html?searchResultPosition=6
+`The European Central Bank's government bond purchases are necessary and the benefits far outweigh the side effects, ECB board member Isabel Schnabel said on Saturday, pushing back on a court challenge from her native Germany.`\
+https://nytimes.com/reuters/2020/06/27/world/europe/27reuters-ecb-policy-schaeuble.html?searchResultPosition=7
 
 **Sunday Election in Poland a Test for President and Populism**\
-`Poland’s right-wing president, Andrzej Duda, is fighting for a second term in an election Sunday that will test whether he was helped by a campaign that depicted LGBT rights as a dangerous “ideology” and a unconventional last-minute reception by President Donald Trump at the White House.`\
-https://nytimes.com/aponline/2020/06/27/world/europe/ap-eu-poland-presidential-election.html?searchResultPosition=7
+`Poland’s right-wing president, Andrzej Duda, is fighting for a second term in an election Sunday that will test whether he was helped by a campaign that depicted LGBT rights as a dangerous “ideology” and an unconventional last-minute reception by President Donald Trump at the White House.`\
+https://nytimes.com/aponline/2020/06/27/world/europe/ap-eu-poland-presidential-election.html?searchResultPosition=8
 
 **Poland's Play Could Sell Some of Its Network Infrastructure: Source**\
 `Polish mobile operator Play Communications is considering selling some of its network infrastructure, a source familiar with the process told Reuters.`\
-https://nytimes.com/reuters/2020/06/27/technology/27reuters-play-communicat-assets.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/06/27/technology/27reuters-play-communicat-assets.html?searchResultPosition=9
 
 **New York Court Subpoenas Etihad, Fitch in $1.2 Billion Debt Battle**\
 `A New York court has sent subpoenas to Etihad and ratings agency Fitch this week seeking a document at the centre of a battle over $1.2 billion in debt issued by the Abu Dhabi carrier and airlines it partly owned, according to legal documents reviewed by Reuters. `\
-https://nytimes.com/reuters/2020/06/27/business/27reuters-etihad-airways-debt-restructuring.html?searchResultPosition=9
-
-**‘We Live From the Tourists’: Orlando Workers Face Virus’s Fallout**\
-`The pandemic decimated central Florida’s once-booming leisure and hospitality industry. Disney World and other destinations have started to reopen, but infections in the state are surging.`\
-https://nytimes.com/2020/06/27/business/coronavirus-florida-disney-tourism.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/27/business/27reuters-etihad-airways-debt-restructuring.html?searchResultPosition=10
 
