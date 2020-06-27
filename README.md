@@ -2,7 +2,7 @@
 `Mexico's health ministry reported on Friday 5,441 new confirmed cases of coronavirus infections and 719 additional fatalities, bringing the total in the country to 208,392 cases and 25,779  deaths.`\
 https://nytimes.com/reuters/2020/06/26/world/americas/26reuters-health-coronavirus-mexico.html?searchResultPosition=5
 
-**Leaders Re-Examine U.S. Reopenings as Coronavirus Cases Soar**\
+**Leaders Re-examine U.S. Reopenings as Coronavirus Cases Soar**\
 `Officials nationwide were rethinking their efforts to slow the virus, which the nation’s top infectious disease expert said were “not working.”`\
 https://nytimes.com/2020/06/26/us/coronavirus-florida-texas-bars-closing.html?searchResultPosition=6
 
