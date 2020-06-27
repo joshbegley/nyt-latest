@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/06/27/world/africa/27reuters-malawi-election.ht
 `Vice President Mike Pence called off campaign events in Florida and Arizona this coming week as the states experience a surge in new coronavirus cases.`\
 https://nytimes.com/aponline/2020/06/27/us/politics/ap-us-virus-outbreak-pence.html?searchResultPosition=8
 
-**Mississippi Moves to Change the States Flag**\
+**Mississippi Moves to Change Its State Flag**\
 `The Mississippi House of Representatives on Saturday voted to move ahead with a process that could result in the removal of a Confederate emblem from the state flag, according to media reports, and the governor vowed to approve a bill.`\
 https://nytimes.com/reuters/2020/06/27/us/27reuters-usa-protests-mississippi-flag.html?searchResultPosition=9
 
