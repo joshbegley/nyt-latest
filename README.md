@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/06/27/world/africa/27reuters-malawi-election-re
 https://nytimes.com/reuters/2020/06/27/business/27reuters-health-coronavirus-american-airline-jobs.html?searchResultPosition=7
 
 **NORAD Fighter Jets Intercept Russian Military Aircraft Off Alaska**\
-`F-22 stealth fighter aircraft scrambled on Saturday to intercept four Russian reconnaissance jets off Alaska, said NORAD, the U.S and Canadian defense organization.`\
+`U.S. F-22 stealth fighter aircraft scrambled on Saturday to intercept four Russian reconnaissance jets off Alaska, said NORAD, the U.S and Canadian defense organization.`\
 https://nytimes.com/reuters/2020/06/27/world/europe/27reuters-usa-russia-airspace.html?searchResultPosition=8
 
 **Congo Justice Minister Released After Questioning by Prosecutors: Police**\
