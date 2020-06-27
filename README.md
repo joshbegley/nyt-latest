@@ -1,24 +1,24 @@
-**Hong Kong Police Refuse Permission for March to Mark Handover**\
-`The Hong Kong police department on Saturday denied permission for an annual march in the former British colony on July 1 to mark the anniversary of the city's 1997 return to China, the organizer and the police said in separate statements.`\
-https://nytimes.com/reuters/2020/06/27/world/asia/27reuters-hongkong-protests-legislation-march.html?searchResultPosition=5
+**EBay’s Critics Faced an Extreme Case of an Old Silicon Valley Habit**\
+`Six former employees were recently named in federal charges that were an indication of the lengths some companies will go to hit back at detractors.`\
+https://nytimes.com/2020/06/27/technology/ebay-silicon-valley-security-reputation.html?searchResultPosition=5
 
-**Storms Leave 3 Dead, 12 Missing in Southwest China**\
-`Three people died and 12 are missing after overnight rainstorms in southwestern China, authorities said Saturday.`\
-https://nytimes.com/aponline/2020/06/27/world/asia/ap-as-china-storms.html?searchResultPosition=6
+**Give Yourself the Perfect Summer Pedicure**\
+`Getting your feet sandal-ready can be done at home. Men, you can pay attention, too.`\
+https://nytimes.com/2020/06/27/at-home/coronavirus-DIY-pedicure.html?searchResultPosition=6
 
-**Court Upholds South Africa's Cigarette Sales Ban in Lockdown**\
-`An effort to lift South Africa’s ban on cigarette sales during the country’s coronavirus lockdown has failed.`\
-https://nytimes.com/aponline/2020/06/27/world/africa/ap-af-south-africa-cigarette-ban.html?searchResultPosition=7
+**Missing the Olympics? Organize Your Own Games, at Home**\
+`Sure, the official Summer Games have been postponed. But with most people staying local and many camps shut down, you can create a fun, friendly competition in your own backyard.`\
+https://nytimes.com/2020/06/27/at-home/coronavirus-olympic-games-at-home.html?searchResultPosition=7
 
-**Egypt, Ethiopia and Sudan to Agree Nile Dam Deal in Weeks**\
-`Egypt, Ethiopia and Sudan will agree a deal to fill the giant Blue Nile dam in two to three weeks, following mediation by the African Union to broker a deal to end a decade-long dispute over water supplies.`\
-https://nytimes.com/reuters/2020/06/27/world/africa/27reuters-ethiopia-egypt-dam.html?searchResultPosition=8
+**Five Years and 100-Plus Stories: What It’s Like Covering ‘Hamilton’**\
+`From the very beginning, it was clear the musical was going to be a big news story. I’ve been reporting on it, from the East Village to San Juan, ever since.`\
+https://nytimes.com/2020/06/27/insider/hamilton-disney-plus-puerto-rico.html?searchResultPosition=8
 
-**Russia's Daily Number of New Coronavirus Cases Stays Below 7,000**\
-`Russia on Saturday reported 6,852 new coronavirus cases, a figure that keeps the daily rise below 7,000 for a second day in a row for the first time since late April. The new cases take the cumulative nationwide tally to 627,646.`\
-https://nytimes.com/reuters/2020/06/27/world/europe/27reuters-health-coronavirus-russia-cases.html?searchResultPosition=9
+**Biden Still Wants to Close Guantánamo Prison**\
+`The Obama administration ran into a wall of political opposition when it tried. The former vice president rarely brings up the topic and has yet to draw up a strategy but says he shares the goal.`\
+https://nytimes.com/2020/06/27/us/politics/biden-guantanamo-prison.html?searchResultPosition=9
 
-**Egypt Eases Restrictions Despite Surge in Virus Infections**\
-`Egypt on Saturday lifted many restrictions put in place against the coronavirus pandemic, reopening cafes, clubs, gyms and theaters after more than three months of closure, despite a continued upward trend in new infections.`\
-https://nytimes.com/aponline/2020/06/27/world/middleeast/ap-ml-egypt-virus-1st-ld-writethru.html?searchResultPosition=10
+**Train Your Muscles Without a Gym**\
+`Get to a nearby park and get in shape (safely).`\
+https://nytimes.com/2020/06/27/at-home/workout-without-a-gym-coronavirus.html?searchResultPosition=10
 
