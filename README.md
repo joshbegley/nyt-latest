@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/06/27/sports/tennis/27reuters-tennis-australia.
 https://nytimes.com/2020/06/27/arts/television/whats-on-tv-saturday-dark-and-global-citizen-concert.html?searchResultPosition=7
 
 **Carlyle Buys 20% Stake in Piramal Pharma Businesses**\
-`U.S.-based Carlyle Group Inc has agreed to buy a 20% stake in India's Piramal Enterprises Ltd's pharmaceutical businesses for about $490 million, the companies said in a statement on Saturday.  `\
+`U.S.-based Carlyle Group Inc has agreed to buy a 20% stake in the pharmaceutical unit of Indian conglomerate Piramal Enterprises Ltd for about $490 million, the companies said in a statement on Saturday.  `\
 https://nytimes.com/reuters/2020/06/27/business/27reuters-carlyle-group-investment-piramal.html?searchResultPosition=8
 
 **Coronavirus Cases in India Cross 500,000 as Big Cities Reel From Surge**\
