@@ -2,7 +2,7 @@
 `The Hong Kong police department on Saturday denied permission for an annual march in the former British colony on July 1 to mark the anniversary of the city's 1997 return to China, the organizer and the police said in separate statements.`\
 https://nytimes.com/reuters/2020/06/27/world/asia/27reuters-hongkong-protests-legislation-march.html?searchResultPosition=5
 
-**Storms Leave 3 Dead, 12 Missing in China's Sichuan Province**\
+**Storms Leave 3 Dead, 12 Missing in Southwest China**\
 `Three people died and 12 are missing after overnight rainstorms in southwestern China, authorities said Saturday.`\
 https://nytimes.com/aponline/2020/06/27/world/asia/ap-as-china-storms.html?searchResultPosition=6
 
