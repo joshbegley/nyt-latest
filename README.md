@@ -10,8 +10,8 @@ https://nytimes.com/aponline/2020/06/28/business/ap-us-distribution-center-shoot
 `France is holding the second round of municipal elections in 5,000 towns and cities Sunday that got postponed due to the country's coronavirus outbreak. `\
 https://nytimes.com/aponline/2020/06/28/world/europe/ap-eu-france-elections.html?searchResultPosition=7
 
-**The Latest: Modi Urges Stronger Economy as India Cases Climb**\
-`NEW DELHI — Prime Minister Narendra Modi says India must focus on bolstering the economy as it exits the lockdown phase, even as the number of coronavirus cases continues to climb. `\
+**The Latest: Italy Honors Its Virus Dead With Bergamo Concert**\
+`ROME — Italy is honoring its coronavirus dead with a Requiem concert performed in front of the cemetery in Bergamo, one of the hardest-hit provinces in the onetime epicenter of the European outbreak.`\
 https://nytimes.com/aponline/2020/06/28/business/ap-virus-outbreak-the-latest.html?searchResultPosition=8
 
 **Israeli Court Releases Anti-Netanyahu Activist After Arrest**\
