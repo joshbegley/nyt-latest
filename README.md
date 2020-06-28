@@ -1,24 +1,24 @@
-**Experts See No Proof of Child-Abuse Surge Amid Pandemic**\
-`When the coronavirus pandemic took hold across the United States in mid-March, forcing schools to close and many children to be locked down in households buffeted by job losses and other forms of stress, many child-welfare experts warned of a likely surge of child abuse. `\
-https://nytimes.com/aponline/2020/06/28/us/ap-us-virus-outbreak-child-abuse.html?searchResultPosition=5
+**Excavating Chinese History, One Harrowing Film at a Time**\
+`The work of Hu Jie, who has made more than 30 movies, is little known even in China. The release of “Spark” and “The Observer” should make him better known abroad.`\
+https://nytimes.com/2020/06/28/movies/hu-jie-films.html?searchResultPosition=5
 
-**Only Black Republican Senator Offended by Trump Retweeting Video With White Power Message**\
-`U.S. Senator Tim Scott, the only Black Republican in the Senate, said on Sunday that President Donald Trump's retweet of a video containing a white power message was offensive and should be removed from Twitter. `\
-https://nytimes.com/reuters/2020/06/28/us/politics/28reuters-usa-trump-video.html?searchResultPosition=6
+**Trump Approvingly Tweets Video Showing 'White Power' Chant**\
+`President Donald Trump on Sunday tweeted approvingly of a video showing one of his supporters chanting “white power," a racist slogan associated with white supremacists. `\
+https://nytimes.com/aponline/2020/06/28/us/politics/ap-us-trump.html?searchResultPosition=6
 
-**Richmond Fed Chief: With Outlook Hazy, Economy Needs Support**\
-`As president of the Federal Reserve Bank of Richmond since 2018, Tom Barkin is a member of the Fed's powerful committee that sets interest rates.`\
-https://nytimes.com/aponline/2020/06/28/business/ap-us-insider-qa-barkin.html?searchResultPosition=7
+**Roadside Bomb Kills 6 Afghan Civilians in Helmand Province**\
+`A roadside bomb killed at least six Afghan civilians Sunday in the southern Helmand province, including a woman and two children, an official said. No one immediately claimed responsibility for the attack.`\
+https://nytimes.com/aponline/2020/06/28/world/asia/ap-as-afghanistan.html?searchResultPosition=7
 
-**Trump Denies Being Told About Russian Bounties to Kill U.S. Troops in Afghanistan**\
-`President Donald Trump on Sunday said he was never briefed about Russian efforts to pay bounties to Taliban-linked militants to kill U.S. troops in Afghanistan, blasting a New York Times report that he had been told about the rewards but had not acted to respond to Moscow. `\
-https://nytimes.com/reuters/2020/06/28/us/politics/28reuters-usa-afghanistan-russia.html?searchResultPosition=8
+**India Seeks Extradition From Pakistan of Suspected Mumbai Attack Mastermind**\
+`India is seeking the extradition of a top Pakistan militant suspected to have planned the 2008 Mumbai attacks after the United States said last week he was living freely in Pakistan, government officials said on Sunday. `\
+https://nytimes.com/reuters/2020/06/28/world/asia/28reuters-india-pakistan-militant.html?searchResultPosition=8
 
-**Businesses Weigh Reopening-Or Close Again-As Cases Rise**\
-`It’s not the reopening businesses were hoping for.`\
-https://nytimes.com/aponline/2020/06/28/business/ap-us-virus-outbreak-reopening-quandary.html?searchResultPosition=9
+**UK Considers First Local Lockdown in COVID-19 Pandemic**\
+`Britain’s government is considering a lockdown for the central English city of Leicester amid a spike of COVID-19 cases — the first time that a single U.K. area would face such an extreme measure during the pandemic.`\
+https://nytimes.com/aponline/2020/06/28/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=9
 
-**In ‘And She Could Be Next,’ Women of Color Take on Politics**\
-`The two-part documentary, which follows the campaigns of several female politicians of color and the communities that rally with them, shows what a systemic shift actually looks like.`\
-https://nytimes.com/2020/06/28/arts/television/and-she-could-be-next-pbs.html?searchResultPosition=10
+**What to Cook This Week**\
+`Make a vegan ranch dressing, from Superiority Burger in New York, and use it to top roasted potatoes, grilled romaine or even your next burger.`\
+https://nytimes.com/2020/06/28/dining/what-to-cook-this-week.html?searchResultPosition=10
 
