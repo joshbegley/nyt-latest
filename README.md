@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/06/28/us/ap-us-virus-outbreak-observatory.html
 `British Prime Minister Boris Johnson did some press ups to show he was "as fit as a butcher's dog" in an interview with the Mail on Sunday newspaper, just months after he fought for his life in hospital against the coronavirus.`\
 https://nytimes.com/reuters/2020/06/28/world/europe/28reuters-health-coronavirus-britain-johnson.html?searchResultPosition=6
 
-**Summer May Decide Fate of Lead Shots in Virus Vaccine Race**\
+**Summer May Decide Fate of Leading Shots in Vaccine Race**\
 `People on six continents already are getting jabs in the arm as the race for a COVID-19 vaccine enters a defining summer, with even bigger studies poised to prove if any shot really works -- and maybe offer a reality check.`\
 https://nytimes.com/aponline/2020/06/28/health/bc-us-med-virus-outbreak.html?searchResultPosition=7
 
