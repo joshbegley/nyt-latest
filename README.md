@@ -1,5 +1,5 @@
-**The Latest: Pakistan Producing Own Ventilators as Cases Rise**\
-`ISLAMABAD — Pakistan’s minister for science and technology says the country has started producing locally designed ventilators, as authorities reported 83 more deaths from the coronavirus.`\
+**The Latest: Switzerland Quarantines 300 in Club Infection**\
+`BERLIN — Swiss authorities say they’ve ordered 300 people into quarantine after a so-called “superspreader” outbreak of the new coronavirus at a Zurich nightclub.`\
 https://nytimes.com/aponline/2020/06/28/business/ap-virus-outbreak-the-latest.html?searchResultPosition=5
 
 **Israeli Court Releases Anti-Netanyahu Activist After Arrest**\
