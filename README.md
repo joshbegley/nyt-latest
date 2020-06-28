@@ -1,24 +1,24 @@
-**UAE Suspends Receiving Passengers From Pakistan as of June 29 Over COVID Fears**\
-`The United Arab Emirates will not receive passengers coming from Pakistan as of June 29 until a special COVID-19 lab is set up to test them, the civil aviation authority said on Sunday.`\
-https://nytimes.com/reuters/2020/06/28/world/middleeast/28reuters-health-coronavirus-emirates-pakistan.html?searchResultPosition=5
+**Longtime NFL Coach Bugel Dies at 80**\
+`NFL coaching veteran Joe Bugel died Sunday at age 80.`\
+https://nytimes.com/reuters/2020/06/28/sports/28reuters-football-nfl-was-ari-obit-bugel.html?searchResultPosition=5
 
-**4 San Jose Officers Put on Leave Amid Probe Into Racist Facebook Posts**\
-`Officials are investigating inflammatory remarks, including anti-Muslim comments, by current and former police officers in a private Facebook group.`\
-https://nytimes.com/2020/06/28/us/san-jose-police-facebook.html?searchResultPosition=6
+**‘They Want to Kill Me’: Many Covid Patients Have Terrifying Delirium**\
+`Paranoid hallucinations plague many coronavirus patients in I.C.U.s, an experience that can slow recovery and increase risk of depression and cognitive issues.`\
+https://nytimes.com/2020/06/28/health/coronavirus-delirium-hallucinations.html?searchResultPosition=6
 
-**NFL Player's Union Urges Players to Stop Group Workouts After Deeming Them Unsafe**\
-`The NFL Players Association's (NFLPA) Executive Director DeMaurice Smith on Sunday rebuked players participating in group workouts, saying they were not safe, as COVID-19 cases continue to rise in the United States.`\
-https://nytimes.com/reuters/2020/06/28/sports/football/28reuters-health-coronavirus-nfl.html?searchResultPosition=7
+**Your Monday Briefing**\
+`U.S. Virus Surge, Hong Kong, Pride: Here’s what you need to know.`\
+https://nytimes.com/2020/06/28/briefing/us-coronavirus-hong-kong-afghan-pride.html?searchResultPosition=7
 
-**Amazon Workers in Germany to Go on Strike Over Coronavirus Infections**\
-`Workers at six Amazon sites in Germany will go on strike on Monday in protest over safety after some staff at logistics centres tested positive for coronavirus, labour union Verdi said.`\
-https://nytimes.com/reuters/2020/06/28/business/28reuters-amazon-germany-strike.html?searchResultPosition=8
+**Lebanese Security Forces Investigating Explosion Near Hariri Convoy This Month**\
+`Lebanese security forces are investigating an explosion 11 days ago that took place near the convoy of former Prime Minister Saad al-Hariri, Hariri's office said on Sunday.`\
+https://nytimes.com/reuters/2020/06/28/world/middleeast/28reuters-lebanon-crisis-blast-hariri.html?searchResultPosition=8
 
-**Spies and Commandos Warned Months Ago of Russian Bounties on U.S. Troops**\
-`The recovery of large amounts of American cash at a Taliban outpost in Afghanistan tipped off U.S. officials.`\
-https://nytimes.com/2020/06/28/us/politics/russian-bounties-warnings-trump.html?searchResultPosition=9
+**Briscoe Holds Off Chastain to Win Xfinity Race at Pocono**\
+`Chase Briscoe held off Ross Chastain in overtime to win the crash-filled Xfinity Series at Pocono Raceway, the second of three NASCAR races at the track on Sunday.`\
+https://nytimes.com/aponline/2020/06/28/sports/ap-car-nascar-xfinity.html?searchResultPosition=9
 
-**‘This Year is Really Special’: Hundreds Celebrate Pride in Taiwan**\
-`People gathered in Taipei to celebrate Pride as events across the world were canceled because of the coronavirus outbreak. Taiwan has largely kept the virus at bay, with only 446 recorded cases.`\
-https://nytimes.com/video/world/100000007213807/taiwan-pride-parade.html?searchResultPosition=10
+**Spanish Village Makes Its Own Rainbow After Council's Gay Pride Flag Banned**\
+`When police ordered a local mayor in southern Spain to take down a rainbow flag put up to celebrate gay pride on Friday because it was illegal, more than 300 households in the village rallied to the cause and flew their own flags.`\
+https://nytimes.com/reuters/2020/06/28/world/europe/28reuters-spain-lgbt-flags.html?searchResultPosition=10
 
