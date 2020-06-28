@@ -1,24 +1,24 @@
+**Murray Withdraws From Third-Place Match at Battle of the Brits**\
+`Andy Murray has withdrawn from his third-place playoff match against Cameron Norrie in the Battle of the Brits exhibition tournament, the Lawn Tennis Association (LTA) said on Sunday.`\
+https://nytimes.com/reuters/2020/06/28/sports/tennis/28reuters-health-coronavirus-tennis-britain-murray.html?searchResultPosition=5
+
+**Black Candidates Push Race Debate Into GOP-Held Districts**\
+`It was a scene Jeannine Lee Lake never would have imagined when she first ran against Greg Pence, Vice President Mike Pence’s brother, for a rural Indiana congressional seat two years ago: an almost entirely white crowd of more than 100 people marching silently in the Pences' hometown this month, offering prayers for Black people killed by police and an end to systemic racism.`\
+https://nytimes.com/aponline/2020/06/28/us/politics/ap-us-racial-injustice-election-2020.html?searchResultPosition=6
+
+**Bring Your Own Pen: Poland’s Vote Tests Democracy in a Pandemic**\
+`Voters in Poland went to the polls Sunday to take part in Europe’s first presidential election since the pandemic.`\
+https://nytimes.com/2020/06/28/world/europe/poland-election-coronavirus.html?searchResultPosition=7
+
+**DC Mayor Caught Between Activists, Police in Funding Battle**\
+`Muriel Bowser’s national profile had never been higher, thanks to a Twitter beef with President Donald Trump and a renewed push to turn the nation's capital into the 51st state.`\
+https://nytimes.com/aponline/2020/06/28/us/politics/ap-us-racial-injustice-nations-capital-.html?searchResultPosition=8
+
 **Coronavirus Live Updates: Tensions and Risks Grow at U.S. Testing Sites**\
 `U.S. primary votes offer a glimpse of challenges that November’s elections will bring. With large Pride gatherings canceled, some participants rue missing out on their first march.`\
-https://nytimes.com/2020/06/28/world/coronavirus-updates.html?searchResultPosition=5
+https://nytimes.com/2020/06/28/world/coronavirus-updates.html?searchResultPosition=9
 
 **China's Central Bank Says Economy Faces Risks From Global Pandemic, Efforts Against Domestic Resurgence**\
 `China's central bank said on Sunday that the country's economic growth faces challenges from the global coronavirus pandemic, despite signs of improvement amid business re-openings.`\
-https://nytimes.com/reuters/2020/06/28/world/asia/28reuters-china-pboc-policy.html?searchResultPosition=6
-
-**China Reviews Heavily Criticized Hong Kong Security Bill**\
-`China’s legislature on Sunday began reviewing a controversial national security bill for Hong Kong that critics worldwide say will severely compromise human rights in the semi-autonomous Chinese territory. `\
-https://nytimes.com/aponline/2020/06/28/world/asia/ap-as-china-hong-kong.html?searchResultPosition=7
-
-**The Week in Business: Don’t Say You Weren’t Warned**\
-`Coronavirus cases are spiking in states that reopened quickly, threatening the country’s economic recovery.`\
-https://nytimes.com/2020/06/28/business/the-week-in-business-coronavirus-states-economy.html?searchResultPosition=8
-
-**Taiwan Holds LGBT Pride Parade Despite Coronavirus**\
-`The Taiwanese capital held its annual LGBT pride parade on Sunday, making it one of the few places in the world to proceed with such an event in the face of the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/06/28/world/asia/ap-as-taiwan-gay-pride-parade.html?searchResultPosition=9
-
-**How Germany Did It: Completing the Soccer Season in Europe**\
-`There was a trophy, there were medals and there were commemorative T-shirts. Only the fans were missing as Bayern Munich celebrated its title Saturday and the Bundesliga breathed a sigh of relief. The restart plan worked. `\
-https://nytimes.com/aponline/2020/06/28/sports/soccer/ap-soc-how-germany-did-it.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/28/world/asia/28reuters-china-pboc-policy.html?searchResultPosition=10
 
