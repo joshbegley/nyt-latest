@@ -1,5 +1,5 @@
-**The Latest: Switzerland Quarantines 300 in Club Infection**\
-`BERLIN — Swiss authorities say they’ve ordered 300 people into quarantine after a so-called “superspreader” outbreak of the new coronavirus at a Zurich nightclub.`\
+**The Latest: Modi Urges Stronger Economy as India Cases Climb**\
+`NEW DELHI — Prime Minister Narendra Modi says India must focus on bolstering the economy as it exits the lockdown phase, even as the number of coronavirus cases continues to climb. `\
 https://nytimes.com/aponline/2020/06/28/business/ap-virus-outbreak-the-latest.html?searchResultPosition=5
 
 **Israeli Court Releases Anti-Netanyahu Activist After Arrest**\
