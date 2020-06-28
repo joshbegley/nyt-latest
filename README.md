@@ -18,7 +18,7 @@ https://nytimes.com/video/us/politics/100000007213373/mississippi-confederate-st
 `The employee at the center in Red Bluff, Calif., said he had heard 50 to 60 shots as he and other employees fled the building.`\
 https://nytimes.com/2020/06/27/us/walmart-shooting-red-bluff-california.html?searchResultPosition=9
 
-**Biden Campaign Says Just Over a Third of 2020 Staff Are People of Color**\
+**Biden Campaign Says Just Over a Third of 2020 Staff Members Are People of Color**\
 `Mr. Biden released figures on Saturday after facing questions about racial diversity at the upper echelons of his campaign.`\
 https://nytimes.com/2020/06/27/us/politics/biden-campaign-diversity.html?searchResultPosition=10
 
