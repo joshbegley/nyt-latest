@@ -1,24 +1,24 @@
-**Trump Appears to Delete Retweet of Supporter Shouting 'White Power' in Video**\
-`U.S. President Donald Trump appeared to have deleted a social media post showing one of his supporters shouting "white power," a phrase often used by white supremacists, after the retweet drew sharp rebuke from at least one fellow Republican.`\
-https://nytimes.com/reuters/2020/06/28/us/politics/28reuters-usa-trump-video-delete.html?searchResultPosition=5
+**Why the $6 Billion N.Y.P.D. Is Now a Target of ‘Defund the Police’**\
+`The New York police have taken on a vast purview beyond crime fighting, from schools to mental health. Now officials are rethinking that.`\
+https://nytimes.com/2020/06/28/nyregion/nypd-budget-defund-police.html?searchResultPosition=5
 
-**Germany to Sever Ties With Accounting Watchdog After Wirecard Scandal**\
-`The German government plans to terminate its contract with the country's accounting watchdog after payments company Wirecard filed for insolvency last week in one of Germany's biggest fraud scandals, a government official said on Sunday.`\
-https://nytimes.com/reuters/2020/06/28/business/28reuters-wirecard-accounts.html?searchResultPosition=6
+**Chief Beaten by Police Is Longtime Fighter for Indigenous Rights**\
+`Allan Adam leads a Dene nation that famously fought the Canadian government and oil lobby in its territory.`\
+https://nytimes.com/2020/06/28/world/canada/allan-adam-indigenous-alberta.html?searchResultPosition=6
 
-**With Flights Banned, Son Sails Solo Across Atlantic to Reach Father, 90**\
-`An Argentine man stuck in Portugal because of the virus travels for 85 days the only way he could: in a small boat.`\
-https://nytimes.com/2020/06/28/world/americas/coronavirus-argentina-sailor.html?searchResultPosition=7
+**Pepsi Joining Facebook Ad Boycott, Fox Business News Reports**\
+`PepsiCo Inc will stop advertising on Facebook Inc, Fox Business News reported https://www.foxbusiness.com/markets/pepsi-facebook-ad-boycott on Sunday, citing sources.`\
+https://nytimes.com/reuters/2020/06/28/business/28reuters-facebook-ads-boycott-pepsico.html?searchResultPosition=7
 
-**It Is Rocket Science: EU to Speed Up Space Ambitions, Breton Says**\
-`The European Union will plough more money into rocket launches, satellite communication and space exploration to preserve its often unsung successes in space and keep up with US and Chinese ambitions, its space chief said on Sunday.`\
-https://nytimes.com/reuters/2020/06/28/technology/28reuters-eu-space.html?searchResultPosition=8
+**Can We Reach a Consensus on Gay Rights and Religion?**\
+`The A.C.L.U. says protections for religion already exist; a pastor sees possibility in congressional legislation. Also: Generation Z’s hopes and fears.`\
+https://nytimes.com/2020/06/28/opinion/letters/gay-rights-religion.html?searchResultPosition=8
 
-**Shootings Across Chicago Kill 3 Kids; Cops Ask Public's Help**\
-`Shootings across Chicago over the weekend have left three children dead, including a 10-year-old girl who was struck in the head by a stray bullet that came through an apartment window. `\
-https://nytimes.com/aponline/2020/06/28/us/ap-us-chicago-violence.html?searchResultPosition=9
+**It’s Time for OSHA to Do Its Job**\
+`Readers urge the agency to step up to protect workers amid the Covid-19 pandemic.`\
+https://nytimes.com/2020/06/28/opinion/letters/coronavirus-OSHA.html?searchResultPosition=9
 
-**California Man Faces 26 Charges in Golden State Killer Case**\
-`Joseph James DeAngelo Jr.`\
-https://nytimes.com/aponline/2020/06/28/us/ap-usgolden-state-killer-glance.html?searchResultPosition=10
+**Dozens Detained at Anti-Social Distancing Rally in The Hague**\
+`Police in The Hague said on Sunday they had detained 37 protesters who ignored a court ban and held a demonstration against social distancing rules imposed to fight the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/06/28/world/europe/28reuters-health-coronavirus-netherlands-protest.html?searchResultPosition=10
 
