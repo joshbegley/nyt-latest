@@ -1,24 +1,24 @@
+**Hong Kong's Carrie Lam to Address Top U.N. Rights Forum on Tuesday**\
+`Hong Kong chief executive Carrie Lam will address the United Nations Human Rights Council in Geneva on Tuesday, the U.N.  programme showed, amid growing concerns about draft national security legislation.`\
+https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-hongkong-protests-un-rights.html?searchResultPosition=5
+
+**H&M's Online Second-Hand Shop Sellpy Launches in Germany**\
+`Swedish online second-hand shop Sellpy, which is majority-owned by fashion giant H&M, has launched in Germany in a first step outside its home market as it bets on shoppers trending towards more sustainable consumption.  `\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-h-m-sellpy-secondhand.html?searchResultPosition=6
+
+**U.S. Envoy in Lebanon Says 'Page Turned' After Interview Ban**\
+`The U.S. ambassador in Lebanon said on Monday the page had been turned on an incident sparked by a court ruling banning media in the country from interviewing her after she heaped criticism on the Iran-backed Shi'ite group Hezbollah.`\
+https://nytimes.com/reuters/2020/06/29/world/middleeast/29reuters-lebanon-crisis-usa.html?searchResultPosition=7
+
+**Broadway Shutdown Due to Virus Extended Again Until January**\
+`The shutdown on Broadway has been extended again — until at least early January.`\
+https://nytimes.com/aponline/2020/06/29/us/ap-us-broadway-reopen.html?searchResultPosition=8
+
 **U.S. Supreme Court Gives President More Power Over Consumer Financial Agency**\
 `The U.S. Supreme Court on Monday handed President Donald Trump more authority over a federal agency charged with protecting consumers in the financial sector, empowering him to fire its director at will and ruling that the structure it was given by Congress violated the U.S. Constitution.`\
-https://nytimes.com/reuters/2020/06/29/us/29reuters-usa-court-cfpb.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/29/us/29reuters-usa-court-cfpb.html?searchResultPosition=9
 
 **EU Extends Economic Sanctions Against Russia for Six Months**\
 `European Union nations formally extended economic sanctions against Russia on Monday by six months until Jan. 31 next year, the grouping of EU countries known as the European Council said on Monday.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-eu-russia-sanctions.html?searchResultPosition=6
-
-**VIRUS DIARY: Soccer in UK Loses Passion, Soul With No Fans**\
-`What have I learned about pandemic soccer — I mean football, of course — since its return in England? `\
-https://nytimes.com/aponline/2020/06/29/sports/ap-eu-virus-outbreak-diary-soulless-soccer.html?searchResultPosition=7
-
-**Coroner: 3rd Illinois Warehouse Shooting Victim Identified**\
-`The third person who died after being shot at a warehouse in central Illinois has been identified.`\
-https://nytimes.com/aponline/2020/06/29/us/ap-us-warehouse-shooting-springfield.html?searchResultPosition=8
-
-**Japan to Boost Space Cooperation With US in Revised Policy**\
-`Japan said Monday it will step up its defense capability in space and improve its ability to detect and track missiles, while cooperating with the United States in response to what it called a growing threat from North Korea and China. `\
-https://nytimes.com/aponline/2020/06/29/world/asia/ap-as-japan-space-.html?searchResultPosition=9
-
-**Broadway Will Remain Closed Through the Rest of the Year**\
-`The industry has not yet set a reopening date, but said it would now refund tickets through Jan. 3.`\
-https://nytimes.com/2020/06/29/theater/when-broadway-reopening-coronavirus.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-eu-russia-sanctions.html?searchResultPosition=10
 
