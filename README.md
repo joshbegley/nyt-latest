@@ -1,24 +1,24 @@
-**WarnerMedia Puts 'for Sale' Sign on CNN Center in Atlanta**\
-`WarnerMedia said Monday it will sell the iconic CNN Center in downtown Atlanta, but that it doesn't mean the network will abandon the city.`\
-https://nytimes.com/aponline/2020/06/29/business/bc-us-media-cnn-center.html?searchResultPosition=5
+**‘Our Luck May Have Run Out’: California’s Case Count Explodes**\
+`Los Angeles County, which has been averaging more than 2,000 new cases each day, surpassed 100,000 total cases on Monday.`\
+https://nytimes.com/2020/06/29/us/california-coronavirus-reopening.html?searchResultPosition=5
 
-**Canada Federal Court Dismisses Drugmakers' Plea Challenging Drug Price Rules**\
-`The federal court of Canada on Monday dismissed a plea by drugmakers challenging the Canadian government's new regulations aimed at lowering prices of patented drugs that could potentially lead them to lose billions over a decade.`\
-https://nytimes.com/reuters/2020/06/29/business/29reuters-canada-drug-price.html?searchResultPosition=6
+**Harvard Drops Single-Sex Club Ban After Lawsuit by Fraternities, Sororities**\
+`Harvard University on Monday said it would discontinue its policy of sanctioning students who joined single-sex clubs, citing a lawsuit by a group of U.S. fraternities and sororities who said the crackdown amounted to sexual discrimination.`\
+https://nytimes.com/reuters/2020/06/29/us/29reuters-usa-education-harvard.html?searchResultPosition=6
 
-**UK Businesses Turn Less Negative for First Time Since January: Survey**\
-`Confidence among British businesses improved in June for the first time since January ahead of the latest relaxation of the  country's coronavirus lockdown, according to a survey published by Lloyds Bank on Tuesday.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-britain-confidence.html?searchResultPosition=7
+**Patriots Hope Winning Still in Fashion for New QB Newton**\
+`One is a man of a million fedoras.`\
+https://nytimes.com/aponline/2020/06/29/sports/football/ap-fbn-patriots-newton.html?searchResultPosition=7
 
-**Is This the End for Shane Dawson and Jeffree Star?**\
-`Beauty YouTube as we knew it may be over as two major influencers face the next generation.`\
-https://nytimes.com/2020/06/29/style/shane-dawson-jeffree-star-youtube.html?searchResultPosition=8
+**Exclusive: Postmates Revives IPO Plans Amid Food Delivery Deal Boom**\
+`Postmates Inc has revived plans for an initial public offering (IPO) following a string of dealmaking in the U.S. online food delivery service sector, people familiar with the matter said on Monday.`\
+https://nytimes.com/reuters/2020/06/29/technology/29reuters-postmates-ipo-exclusive.html?searchResultPosition=8
 
-**U.S. Says Taxpayers Must File Return by July 15 or Request Extension**\
-`U.S. taxpayers must file their 2019 tax returns by July 15 or file for an automatic extension to Oct. 15, the Treasury Department said on Monday.`\
-https://nytimes.com/reuters/2020/06/29/us/29reuters-health-coronavirus-usa-taxes.html?searchResultPosition=9
+**Arizona Orders Closure of Bars, Gyms, Cinemas to Slow Virus Surge**\
+`Arizona Governor Doug Ducey on Monday ordered the closure of bars, nightclubs, gyms, movie theaters and water parks for at least 30 days to slow a surge in coronavirus cases.`\
+https://nytimes.com/reuters/2020/06/29/us/29reuters-health-coronavirus-usa-arizona.html?searchResultPosition=9
 
-**In a Season of Challenges, the Mets See a Unique Opportunity, Too**\
-`With a short season and a universal designated hitter, General Manager Brodie Van Wagenen is optimistic about his team’s chances — as long as players and staff can keep the virus at bay.`\
-https://nytimes.com/2020/06/29/sports/baseball/mets-2020-season.html?searchResultPosition=10
+**Three Hikers Are Missing at Mount Rainier**\
+`Inclement weather has hampered the search for the hikers, who officials said were climbing on different parts of the mountain.`\
+https://nytimes.com/2020/06/29/us/mt-rainier-missing-hikers.html?searchResultPosition=10
 
