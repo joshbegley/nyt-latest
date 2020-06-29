@@ -1,24 +1,24 @@
+**Reddit Bans Pro-Trump Forum in Hate-Speech Crackdown**\
+`Reddit, an online comment forum that is one of the internet's most popular websites, on Monday banned a pro-Donald Trump forum as part of a crackdown on hate speech.`\
+https://nytimes.com/aponline/2020/06/29/business/ap-us-reddit-hate-speech.html?searchResultPosition=5
+
+**Factbox: What's at Stake for the EU in Polish Presidential Election**\
+`A presidential election in Poland due to be settled in a run-off ballot on July 12 could become a turning point in the country's  troubled relations with the European Union. `\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-poland-election-factbox.html?searchResultPosition=6
+
+**Macron Condemns Role of Russian Mercenaries in Libya**\
+`French President Emmanuel Macron said on Monday he condemned the role of Russian mercenaries in Libya, days after it was revealed they had, along with others, entered the Sharara oilfield last week.`\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-libya-oil-russia-macron.html?searchResultPosition=7
+
 **Fire Erupts West of Kuwait's Mina Abdullah: KPA**\
 `Fire has erupted west of Kuwait's Mina Abdullah, Kuwait port authority (KPA) said in a Twitter post on Monday, adding fire service is handling the fire, without elaborating.`\
-https://nytimes.com/reuters/2020/06/29/world/middleeast/29reuters-kuwait-fire.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/29/world/middleeast/29reuters-kuwait-fire.html?searchResultPosition=8
 
 **Man Utd's Matic Defends Djokovic After COVID-19 Positives in Adria Tour**\
 `Manchester United midfielder Nemanja Matic has defended his Serbian compatriot Novak Djokovic for hosting the ill-fated Adria Tour where a number of players, including the world number one, tested positive for COVID-19.`\
-https://nytimes.com/reuters/2020/06/29/sports/soccer/29reuters-health-coronavirus-tennis-matic.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/06/29/sports/soccer/29reuters-health-coronavirus-tennis-matic.html?searchResultPosition=9
 
 **Facebook, Cielo Ask Brazil's Antitrust Watchdog to Reverse Decision on Payments Deal**\
 `Facebook Inc and card acquirer Cielo SA have asked Brazil's antitrust watchdog Cade to reverse the suspension of an agreement they struck paving the way for WhatsApp to roll out a new payments system, according to a document.`\
-https://nytimes.com/reuters/2020/06/29/technology/29reuters-facebook-brazil-cielo.html?searchResultPosition=7
-
-**Astronaut Says Losing Mirror on Spacewalk Was 'Real Bummer'**\
-`The commander of the International Space Station said Monday that losing a mirror during last week’s otherwise successful spacewalk was “a real bummer.” `\
-https://nytimes.com/aponline/2020/06/29/science/ap-us-sci-space-station.html?searchResultPosition=8
-
-**Canada's Alberta Cuts Business Tax Rate, Unveils C$10 Billion Infrastructure Program**\
-`The Canadian province of Alberta, home to the world’s third-largest oil reserves, said on Monday it will cut its general business tax rate to 8% from 10% and invest C$10 billion in infrastructure projects as it seeks to jump start an economy badly damaged by the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/06/29/us/29reuters-health-coronavirus-alberta.html?searchResultPosition=9
-
-**Brazil Sheds Net 331,901 Formal Jobs in May: Economy Ministry**\
-`Brazil's economy lost a net 331,901 formal jobs in May, the Economy Ministry said on Monday, another month of heavy job losses due to the COVID-19 crisis but less than half the record 860,503 jobs shed in April.`\
-https://nytimes.com/reuters/2020/06/29/world/americas/29reuters-brazil-economy-jobs.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/29/technology/29reuters-facebook-brazil-cielo.html?searchResultPosition=10
 
