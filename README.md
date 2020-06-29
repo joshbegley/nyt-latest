@@ -1,24 +1,24 @@
+**PM Johnson Says: Reports of Me Looking 'Wraithlike' Are Nonsense**\
+`Prime Minister Boris Johnson said on Monday that reports of him looking wraithlike were complete nonsense.`\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-britain-johnson-hospital.html?searchResultPosition=5
+
+**Russia Reports Lowest Number of Coronavirus Infections Since April 29**\
+`Russia on Monday reported 6,719 new cases of the novel coronavirus, the lowest one-day reported increase since April 29, pushing its nationwide tally to 641,156. `\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-russia-cases.html?searchResultPosition=6
+
+**European Shares Inch Higher, Wirecard Surges**\
+`European shares edged higher on Monday as investors clung to hopes of a quicker economic recovery in the continent even as coronavirus cases surged globally.`\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-europe-stocks.html?searchResultPosition=7
+
 **China Says Will Put Visa Restrictions on U.S Individuals Over Hong Kong**\
 `China's foreign ministry said on Monday it will impose visa restrictions on U.S. individuals with egregious conduct related to Hong Kong, after Washington announced visa restrictions on some Chinese officials over the city.`\
-https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-usa-hongkong-china-mofa.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-usa-hongkong-china-mofa.html?searchResultPosition=8
 
 **Coronavirus Has Been 'a Disaster' for the UK, PM Johnson Says**\
 `Prime Minister Boris Johnson said the coronavirus crisis had been a disaster for the United Kingdom but that it was not the right time for an inquiry into missteps.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-britain-johnson-outbreak.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-britain-johnson-outbreak.html?searchResultPosition=9
 
 **UK's Johnson Says He Will Double Down on Spending Plans**\
 `British Prime Minister Boris Johnson said he planned to double down on his plans to increase public investment and a return to austerity would be a mistake as the country tries to recover from the coronavirus hit to the economy.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-britain-johnson.html?searchResultPosition=7
-
-**Ferry Capsizes in Bangladesh River, Searchers Find 23 Bodies**\
-`A ferry carrying about 100 passengers capsized Monday in a Bangladeshi river and at least 23 bodies have been recovered, an official said.`\
-https://nytimes.com/aponline/2020/06/29/world/asia/ap-as-bangladesh-ferry-capsizes.html?searchResultPosition=8
-
-**Vietnam's Second-Quarter GDP Growth Hits Record Low Due to Pandemic**\
-`Vietnam's economic growth fell to its slowest pace in at least 30 years in the second quarter due to the impact of the coronavirus pandemic, putting the government's 2020 economic targets well out of reach.`\
-https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-vietnam-economy-gdp.html?searchResultPosition=9
-
-**Britain's Labour Leader Says PM Johnson Is 'Asleep at the Wheel'**\
-`British opposition Labour Party leader Keir Starmer said on Monday that Prime Minister Boris Johnson has been asleep at the wheel during the coronavirus crisis and had been far too slow to make major decisions.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-britain-labour.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-britain-johnson.html?searchResultPosition=10
 
