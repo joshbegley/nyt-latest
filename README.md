@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus
 `Serie A’s president, Paolo Dal Pino, walked into a crisis when he took the job in January. Six months later, he sees the pandemic as an opportunity to remake his league.`\
 https://nytimes.com/2020/06/29/sports/soccer/serie-a-president.html?searchResultPosition=9
 
-**Gunmen Storm Pakistan’s Stock Exchange, Killing at Least 2**\
-`Police and paramilitary forces surrounded the exchange in Karachi during an hourlong gun battle, and four attackers were reported to have been killed.`\
+**Gunmen Wage a Deadly Battle at Pakistan’s Stock Exchange in Karachi**\
+`Police and paramilitary forces surrounded the exchange during an hourlong firefight in which at least four security officers and four attackers were reported to have been killed.`\
 https://nytimes.com/2020/06/29/world/asia/pakistan-stock-exchange-shooting.html?searchResultPosition=10
 
