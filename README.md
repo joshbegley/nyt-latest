@@ -1,24 +1,24 @@
-**Indonesia Reports 1,082 New Coronavirus Cases, 51 Deaths**\
-`Indonesia reported 1,082 new coronavirus cases on Monday, taking the total number of infections to 55,092, said health ministry official Achmad Yurianto.`\
-https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-health-coronavirus-indonesia.html?searchResultPosition=5
+**Swimming With the Sea Lions of Los Islotes**\
+`Sea lions are often referred to as “dogs of the sea.” On a small island off the Baja coast, where the playful animals populate every rocky outcropping, they live up to their nickname.`\
+https://nytimes.com/2020/06/29/travel/sea-lions-los-islotes.html?searchResultPosition=5
 
-**No Major Financial Impact From Wimbledon Cancellation, Say Organisers**\
-`Wimbledon's cancellation due to the COVID-19 pandemic this year will have no major financial impact on British tennis, outgoing All England club Chief Executive Richard Lewis has said.`\
-https://nytimes.com/reuters/2020/06/29/sports/tennis/29reuters-health-coronavirus-tennis-wimbledon.html?searchResultPosition=6
+**Coronavirus Is Battering Africa’s Growing Middle Class**\
+`From Kenya to Nigeria, South Africa to Rwanda, the pandemic is decimating the livelihoods of the once-stable workers who were helping to drive Africa’s economic expansion.`\
+https://nytimes.com/2020/06/29/world/africa/Africa-middle-class-coronavirus.html?searchResultPosition=6
 
-**UK Mortgage Approvals Slump to New Record Low-BoE**\
-`British mortgage approvals slumped to the lowest on record in May, data from the Bank of England showed on Monday, showing the scale of the hit to the housing market from the coronavirus lockdown.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-britain-economy.html?searchResultPosition=7
+**How José Andrés Faces the Challenge of Feeding Millions**\
+`“Sometimes very big problems, they have very simple solutions.”`\
+https://nytimes.com/2020/06/29/well/jose-andres-chef-relief-disasters.html?searchResultPosition=7
 
-**Is It Basketball … or Socialism?**\
-`While nobody was looking, the N.B.A. figured out how to fight inequality.`\
-https://nytimes.com/video/opinion/100000007182805/income-inequality-nba-socialism.html?searchResultPosition=8
+**Trump’s Self-Inflicted Wound: Losing Swing Voters As He Plays to His Base**\
+`The president’s support among bedrock Republicans is almost certainly not enough to win him a second term in the White House, as even some G.O.P. leaders concede.`\
+https://nytimes.com/2020/06/29/us/politics/trump-swing-voters.html?searchResultPosition=8
 
-**S&P Affirms China; Flags Risk to Growth From Coronavirus, Tensions With U.S.**\
-`Credit rating agency S&P Global Ratings on Monday affirmed China's sovereign credit ratings at 'A+/A-1' with a stable outlook, amid the ongoing coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-china-ratings-s-p.html?searchResultPosition=9
+**Jim Carrey, Unmasked**\
+`The actor’s novel, “Memoirs and Misinformation,” written with Dana Vachon, uses details from Carrey’s life and career to tell a fictional tale of apocalypse and rebirth in Hollywood.`\
+https://nytimes.com/2020/06/29/books/jim-carrey-memoirs-and-misinformation.html?searchResultPosition=9
 
-**Floods in India's Assam Force a Million From Their Homes**\
-`Heavy flooding triggered by monsoon rains has forced more than a million people to flee their homes in the northeast Indian state of Assam, authorities said on Monday, warning that the crisis was becoming more critical by the hour. `\
-https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-india-floods.html?searchResultPosition=10
+**Mayor de Blasio, Bring Back Summer Jobs**\
+`There is still time, and it can be done safely. The economic and social payoff is totally worth it.`\
+https://nytimes.com/2020/06/29/opinion/coronavirus-summer-jobs.html?searchResultPosition=10
 
