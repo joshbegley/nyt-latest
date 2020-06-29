@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/06/28/business/28reuters-global-forex.html?sear
 `As young patients fill new virus wards, Houston Methodist is calling nurses to work extra shifts and ramping up its testing efforts.`\
 https://nytimes.com/2020/06/28/us/coronavirus-hospital-houston.html?searchResultPosition=6
 
-**Source: Patriots Sign QB Cam Newton to Replace Brady**\
+**Source: Patriots Sign QB Cam Newton to Replace Tom Brady**\
 `The New England Patriots have reached an agreement with free-agent quarterback Cam Newton, bringing in the 2015 NFL Most Valuable Player to help the team move on from three-time MVP Tom Brady, a person with knowledge of the deal told The Associated Press.`\
 https://nytimes.com/aponline/2020/06/28/sports/football/ap-fbn-patriots-newton.html?searchResultPosition=7
 
