@@ -1,24 +1,24 @@
-**Reddit, Acting Against Hate Speech, Bans ‘The_Donald’ Subreddit**\
-`The influential pro-Trump community broke the rules on harassment and targeting, said Reddit, which also banned other groups.`\
-https://nytimes.com/2020/06/29/technology/reddit-hate-speech.html?searchResultPosition=5
+**Trump Posts Video of Couple Brandishing Guns Towards Protesters**\
+`U.S. President Donald Trump on Monday posted a video showing a Missouri couple brandishing guns towards protesters calling for police reforms, again accentuating racial tensions in America.`\
+https://nytimes.com/reuters/2020/06/29/us/29reuters-usa-trump-video.html?searchResultPosition=5
 
-**Abortion Foes Vent Disappointment After Supreme Court Ruling**\
-`Abortion opponents vented their disappointment and fury on Monday after the Supreme Court issued a 5-4 decision to strike down a Louisiana law that would have curbed abortion access.`\
-https://nytimes.com/aponline/2020/06/29/us/ap-us-supreme-court-conservatives.html?searchResultPosition=6
+**Mike Ashley's Frasers Group Takes Hugo Boss Stake Over 10%**\
+`Mike Ashley's Frasers Group, formerly Sports Direct, said on Monday it has raised its stake in German fashion house Hugo Boss to 10.1% through stocks and derivatives, part of his drive to take the British sportswear retailer upmarket.`\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-frasers-hugo-boss-stake.html?searchResultPosition=6
 
-**Lawmakers Press for Answers on Russian Bounty Offers to Taliban to Kill U.S. Troops**\
-`Democrats asked for Trump administration intelligence officials to brief lawmakers on what they knew about a suspected Russian plot.`\
-https://nytimes.com/2020/06/29/us/politics/trump-russia-plot-afghanistan.html?searchResultPosition=7
+**Italy's Popolare Di Bari Approves Transformation and Cash Call**\
+`Shareholders in Banco Popolare di Bari approved a plan on Monday to transform the Italian cooperative lender into a joint stock company and raise almost one billion euros ($1.12 billion) in new capital.`\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-popolare-di-bari-amco-loans.html?searchResultPosition=7
 
-**Bob Dylan Makes Chart History With ‘Rough and Rowdy Ways’**\
-`The Nobel Prize-winning musician is the first artist to reach the Billboard Top 40 with a new album in each decade from the 1960s to the 2020s.`\
-https://nytimes.com/2020/06/29/arts/music/bob-dylan-rough-rowdy-ways-billboard.html?searchResultPosition=8
+**Boeing 737 MAX Set to Begin First Day of Certification Test Flights: Officials**\
+`A Boeing Co 737 MAX is set to take off on Monday around 1 p.m. EDT (10 a.m. PDT) from a Seattle airport on the first day of certification flight testing with U.S. Federal Aviation Administration test pilots, a crucial moment in its worst-ever crisis, company and government officials confirmed.`\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-boeing-737max.html?searchResultPosition=8
 
-**After Setbacks, a Surprising Win for the Abortion-Rights Movement**\
-`The Supreme Court preserved the status quo for abortion access in the United States, at least for now.`\
-https://nytimes.com/2020/06/29/us/june-medical-supreme-court.html?searchResultPosition=9
+**Pandemic Throws 'Curve Ball' at California Wildland Firefighters**\
+`The coronavirus pandemic has forced California officials to rethink how they train for and fight wildfires to avoid spreading the virus among firefighters and the public.`\
+https://nytimes.com/reuters/2020/06/29/us/29reuters-california-wildfires.html?searchResultPosition=9
 
-**Netflix Series to Dramatize Kaepernick's Path to Activism**\
-`Colin Kaepernick is joining with Emmy-winning filmmaker Ava DuVernay on a Netflix drama series about the teenage roots of the former NFL player’s activism. `\
-https://nytimes.com/aponline/2020/06/29/sports/ap-us-tv-kaepernick-netflix.html?searchResultPosition=10
+**New York's Cuomo Says Trump Should Mandate Masks in Public to Fight Virus**\
+`New York Governor Andrew Cuomo said on Monday that President Donald Trump should issue an executive order mandating that people wear masks in public and he should lead by example and cover his face. `\
+https://nytimes.com/reuters/2020/06/29/us/29reuters-health-coronavirus-cuomo.html?searchResultPosition=10
 
