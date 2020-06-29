@@ -1,9 +1,9 @@
 **Louisville Protest Shooting Victim Remembered for Kindness**\
-`A man gunned down during a Louisville protest over the police killing of Breonna Taylor was remembered at a vigil for amplifying calls for peace and helping victims of racial injustice.`\
+`LOUISVILLE, Ky. — A man gunned down during a Louisville protest over the police killing of Breonna Taylor was remembered at a vigil for amplifying calls for peace and helping victims of racial injustice.`\
 https://nytimes.com/aponline/2020/06/29/us/ap-us-racial-injustice-kentucky.html?searchResultPosition=5
 
 **Conflicting Emotions as France Shutters Oldest Nuclear Plant**\
-`Nuclear workers lamented the switching off Monday of France's oldest nuclear reactor, a closure celebrated by anti-nuclear campaigners.`\
+`PARIS — Nuclear workers lamented the switching off Monday of France's oldest nuclear reactor, a closure celebrated by anti-nuclear campaigners.`\
 https://nytimes.com/aponline/2020/06/29/business/ap-eu-france-nuclear-closure.html?searchResultPosition=6
 
 **A Singing Xi Jinping Look-Alike Battles the Censors in China**\
