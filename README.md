@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-sweden-cenbank-rat
 `Iran's issuance of an arrest warrant for U.S. President Donald Trump and 35 others over the killing of top general Qassem Soleimani is a "propaganda stunt", U.S. Iran envoy Brian Hook said at a news conference in Saudi Arabia on Monday.`\
 https://nytimes.com/reuters/2020/06/29/world/middleeast/29reuters-iran-usa-warrant-usa.html?searchResultPosition=6
 
-**Federal Executions Can Restart After Supreme Court Rejects an Appeal**\
+**Federal Executions Can Restart After Supreme Court Declines a Case**\
 `The move clears the way for the executions of four men in the coming months after a 17-year gap during which no inmate on death row for federal crimes was put to death.`\
 https://nytimes.com/2020/06/29/us/federal-executions-supreme-court.html?searchResultPosition=7
 
