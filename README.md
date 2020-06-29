@@ -1,24 +1,24 @@
-**Some of the Records in Lewis Hamilton's Sights**\
-`Lewis Hamilton is hoping to equal Michael Schumacher's record  seven Formula One championships in the season that starts in Austria this weekend after being delayed since March by the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/06/29/sports/autoracing/29reuters-motor-f1-season-preview-factbox.html?searchResultPosition=5
+**Justices Reject Appeal From Imprisoned Chinese Billionaire**\
+`The Supreme Court rejected an appeal Monday from a Chinese billionaire who was convicted of bribing United Nations officials to buy their support for a proposed U.N. center in Macau that was never built.`\
+https://nytimes.com/aponline/2020/06/29/us/politics/ap-us-supreme-court-united-nations-bribery-case.html?searchResultPosition=5
 
-**Iran Issues Arrest Warrant for Trump, Asks Interpol to Help**\
-`Iran has issued an arrest warrant and asked Interpol for help in detaining President Donald Trump and dozens of others it believes carried out the U.S. drone strike that killed a top Iranian general in Baghdad, a local prosecutor reportedly said Monday. `\
-https://nytimes.com/aponline/2020/06/29/world/middleeast/ap-ml-iran-us-3rd-ld-writethru.html?searchResultPosition=6
+**Greece Says Pandemic to Worsen Long-Term Economic Problems**\
+`Greece's central bank says the country could avoid a major recession if it makes good use of emergency EU support funds and does not suffer a major renewed outbreak of COVID-19, but the pandemic is likely to compound long-term financial problems.`\
+https://nytimes.com/aponline/2020/06/29/business/ap-eu-greece-economy.html?searchResultPosition=6
 
-**Can Dog Walkers and Nannies Come Into My Co-op Now?**\
-`New York City has begun the slow process of reopening, but that doesn’t mean a return to normal. The next phase will look quite different from the city we knew before the shutdown.`\
-https://nytimes.com/2020/06/29/realestate/coronavirus-phase-2-dog-walkers-nannies-co-op.html?searchResultPosition=7
+**U.S. Supreme Court Rejects Challenge by Federal Death Row Inmates**\
+`The U.S. Supreme Court on Monday paved the way for President Donald Trump's administration to carry out the first federal executions since 2003, turning away an appeal by four inmates challenging the lethal injection protocols due to be used.`\
+https://nytimes.com/reuters/2020/06/29/us/29reuters-usa-court-deathpenalty.html?searchResultPosition=7
 
-**A Quiet Israeli Ex-General Emerges as New Foil to Netanyahu**\
-`Unlike many of his fellow Israeli generals, Amir Haskel wasn't looking to politics in retirement. `\
-https://nytimes.com/aponline/2020/06/29/world/middleeast/ap-ml-israel-protest-leader.html?searchResultPosition=8
+**Stalled Argentina Debt Negotiations Ensnared by Pac-Man Fears and Legal Wrangles**\
+`Argentina's debt talks have gone cold with the country at loggerheads with its creditors over the legal terms of a $65 billion bond restructuring after coming tantalisingly close to a financial agreement. `\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-argentina-debt-legal.html?searchResultPosition=8
 
-**Supreme Court Refuses to Block Upcoming Federal Executions**\
-`The Supreme Court on Monday refused to block the execution of four federal prison inmates who are scheduled to be put to death in July and August.`\
-https://nytimes.com/aponline/2020/06/29/us/politics/ap-us-supreme-court-federal-executions.html?searchResultPosition=9
+**Macron Pledges Billions for Climate After Greens Make Gains**\
+`French President Emmanuel Macron, who once declared “Make The Planet Great Again” but whose climate agenda got knocked off course by street protests, is under new pressure to fight climate change after the Green Party did well in Sunday's local elections.`\
+https://nytimes.com/aponline/2020/06/29/business/bc-eu-france-politics-climate-1st-ld-writethru.html?searchResultPosition=9
 
-**Saudi, U.S. Officials Call for Extending U.N. Arms Embargo on Iran**\
-`Saudi and U.S. officials on Monday urged the international community to extend a United Nations arms embargo on Iran, warning that letting the ban expire would allow Tehran to further arm its proxies and destabilise the region.`\
-https://nytimes.com/reuters/2020/06/29/world/middleeast/29reuters-saudi-usa.html?searchResultPosition=10
+**U.S. Supreme Court Spurns Environmental Challenge to Trump's Border Wall**\
+`The U.S. Supreme Court on Monday declined to hear a challenge by four environmental groups to the authority of President Donald Trump's administration to build his promised wall along the border with Mexico.`\
+https://nytimes.com/reuters/2020/06/29/world/americas/29reuters-usa-court-border.html?searchResultPosition=10
 
