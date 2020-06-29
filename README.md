@@ -1,24 +1,24 @@
-**Masked Madrid Health Workers Sing, Weep and Call for Job Security**\
-`Health workers in scrubs and face masks gathered in central Madrid's Puerta del Sol Square on Monday, demanding better terms for work in a system that was overwhelmed by one of the world's worst outbreaks of the coronavirus.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-spain-protests.html?searchResultPosition=5
+**Rebuilding MLB Clubs Hope to Keep Developing Top Prospects**\
+`Seattle Mariners general manager Jerry Dipoto had at one point expected former first-round pick Logan Gilbert to be pitching at T-Mobile Park by the time June rolled around. `\
+https://nytimes.com/aponline/2020/06/29/sports/baseball/ap-bbo-rebuilding-on-hold.html?searchResultPosition=5
 
-**How Major US Stock Indexes Fared Monday**\
-`Stocks closed broadly higher on Wall Street Monday, clawing back half of their losses from last week. `\
-https://nytimes.com/aponline/2020/06/29/business/ap-financial-markets-box.html?searchResultPosition=6
+**McConnell: 'No Stigma' in Wearing Masks for Virus**\
+`Senate Majority Leader Mitch McConnell has become the highest-ranking Republican in Congress to encourage Americans to wear a facial mask as COVID-19 cases surge in states nationwide.`\
+https://nytimes.com/aponline/2020/06/29/us/politics/ap-us-virus-outbreak-congress.html?searchResultPosition=6
 
-**German Reservist Held for Sharing Politicians' Details With Right-Wing Radicals**\
-`The German military has found a list of the private addresses of senior politicians in the possession of a reservist suspected of right-wing radicalism, Spiegel magazine reported on Monday, citing security sources.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-germany-army.html?searchResultPosition=7
+**U.S. Ends Defense Exports to Hong Kong, Looking to More Restrictions**\
+`The United States is ending defense exports to Hong Kong and is considering further restrictions on trade with the territory, U.S. Secretary of State Mike Pompeo said on Monday.`\
+https://nytimes.com/reuters/2020/06/29/us/politics/29reuters-usa-hongkong-china-exports.html?searchResultPosition=7
 
-**US Bars Defense Exports to Hong Kong, Says New Rules Coming**\
-`The Trump administration said Monday it will bar defense exports to Hong Kong and will soon require licenses for the sale of items to Hong Kong that have both civilian and military uses. `\
-https://nytimes.com/aponline/2020/06/29/us/politics/ap-us-united-states-china-hong-kong.html?searchResultPosition=8
+**Credit Suisse Taps Santangelo as Global Co-Head of Healthcare**\
+`Credit Suisse Group AG has named Rob Santangelo as a global co-head of its healthcare investment banking group, according to a memo seen by Reuters on Monday. `\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-credit-suisse-gp-moves-santangelo.html?searchResultPosition=8
 
-**Your Tuesday Briefing**\
-`China’s vaccine, TikTok, Pakistan Stock Exchange: Here’s what you need to know.`\
-https://nytimes.com/2020/06/29/briefing/china-vaccine-tiktok-pakistan-stock-exchange.html?searchResultPosition=9
+**Powell Says US Economy Facing Heightened Uncertainty**\
+`Federal Reserve Chairman Jerome Powell says the outlook for the U.S. economy is “extraordinarily uncertain” and the success of the recovery effort will depend in large part on the country’s ability to contain the spread of the coronavirus.`\
+https://nytimes.com/aponline/2020/06/29/business/bc-us-fed-powell-house-testimony.html?searchResultPosition=9
 
-**U.S. Teens Envision Fall School Reopening During COVID-19 Pandemic**\
-`When U.S. schools begin the next academic year with the country still fighting the coronavirus pandemic, students should spend half their time in classrooms and half doing online activities that pinpoint their individual learning style such as videos or reading.`\
-https://nytimes.com/reuters/2020/06/29/us/29reuters-health-coronavirus-usa-school.html?searchResultPosition=10
+**How Do Flying Snakes Glide Through the Air? ‘It’s Hard to Believe’**\
+`As they wiggle and undulate, the snakes are transforming their bodies for flight.`\
+https://nytimes.com/2020/06/29/science/flying-snakes-physics.html?searchResultPosition=10
 
