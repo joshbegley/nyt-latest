@@ -1,24 +1,24 @@
-**Review: When ‘Tartuffe’ Meets Trump, It’s Revolutionary**\
-`A streaming production of the Molière comedy, with allusions to the White House as well as Black Lives Matter, tears down walls to rebuild a classic.`\
-https://nytimes.com/2020/06/29/theater/tartuffe-review.html?searchResultPosition=5
+**Fed Launches Primary Market Corporate Credit Facility**\
+`The Federal Reserve announced that the Primary Market Corporate Credit Facility, one of several new programs launched to stabilize financial markets in the wake of the coronavirus pandemic, is operational and available for use as of Monday. `\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-usa-fed-primarycredit.html?searchResultPosition=5
 
-**Some New College Hoop Coaches Turn to Experienced Transfers**\
-`Mark Byington has spent more than three months as the men’s basketball coach at James Madison without being able to take a recruiting trip or meet personally with the eight players joining his program during the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/06/29/sports/ncaabasketball/ap-bkc-new-coaches-transfer-help-1st-ld-writethru.html?searchResultPosition=6
+**U.S. Fed's Daly Says It's 'Far Too Early' to Judge Recovery**\
+`It is "far too early" to judge the recovery amid the reopening of the world's largest economy after coronavirus shutdowns, San Francisco Federal Reserve President Mary Daly on Monday told reporters on a conference call. `\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-usa-fed-daly.html?searchResultPosition=6
 
-**Missouri Governor Will Not Appeal Ruling for Abortion Clinic**\
-`Missouri Gov. Mike Parson will not contest the license issued to the state’s only abortion clinic following a yearlong legal battle over whether the Planned Parenthood center could stay open.`\
-https://nytimes.com/aponline/2020/06/29/us/ap-us-abortion-missouri.html?searchResultPosition=7
+**Sérgio Sant’Anna, Brazilian Master of the Short Story, Dies at 78**\
+`Mr. Sant’Anna wrote novels and poetry, but was most famous for stories that used a sardonic humor to skewer the fractures within Brazilian society. He died of the coronavirus.`\
+https://nytimes.com/2020/06/29/obituaries/sergio-santanna-dead-coronavirus.html?searchResultPosition=7
 
-**Wisconsin Mink Industry Warned of Outbreak in Europe Animals**\
-`Wisconsin animal health officials are cautioning the state’s mink producers about the dangers of the coronavirus following outbreaks among animals on several farms in Europe, spurring renewed calls from animal rights activists to ban the fur trade.`\
-https://nytimes.com/aponline/2020/06/29/business/ap-us-virus-outbreak-mink-farms.html?searchResultPosition=8
+**Automakers Rev Up Discounts to Beat Coronavirus Sales Blues**\
+`In the midst of a raging pandemic, Belal Bilto, 26, a sales executive and a Manhattan resident bought a midsize pickup Jeep Gladiator this month for just over $48,000, lured by a discount of about $5,000 on the list price and a seven-year, no-interest loan.`\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-usa-autos-incentives.html?searchResultPosition=8
 
-**Trump Shares Video of Armed White Couple Confronting Protesters**\
-`A day after sharing on Twitter a video with a supporter yelling “white power,” the president retweeted a tense episode in St. Louis.`\
-https://nytimes.com/2020/06/29/us/politics/trump-white-couple-protesters.html?searchResultPosition=9
+**WHO: Countries Complaining About Contact Tracing Are 'Lame'**\
+`The head of the World Health Organization on Monday dismissed complaints from countries complaining that contact tracing is too difficult to implement as a control strategy for the coronavirus pandemic as “lame.”`\
+https://nytimes.com/aponline/2020/06/29/business/bc-eu-virus-outbreak-who-contact-tracing.html?searchResultPosition=9
 
-**July Fourth Celebration Will Include East Coast Flyovers**\
-`Military planes will conduct flyovers in a handful of major cities along the East Coast as part of this year's July Fourth celebration amid the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/06/29/us/politics/ap-us-july-fourth-flyovers.html?searchResultPosition=10
+**Twitch Suspends Trump’s Channel for ‘Hateful Conduct’**\
+`The action comes as other tech companies increasingly combat hate speech related to President Trump on their platforms.`\
+https://nytimes.com/2020/06/29/technology/twitch-trump-suspension-hateful-conduct.html?searchResultPosition=10
 
