@@ -18,7 +18,7 @@ https://nytimes.com/2020/06/28/sports/golf/who-won-travelers-tournament.html?sea
 `The New England Patriots have been fined $1.1 million by the NFL for inappropriately filming the Cincinnati Bengals’ sideline during a game last season.`\
 https://nytimes.com/aponline/2020/06/28/sports/football/ap-fbn-patriots-spying.html?searchResultPosition=9
 
-**Mainland China Reports 12 New COVID-19 Cases vs 17 a Day Earlier**\
-`Mainland China reported 12 new confirmed COVID-19 cases as of end of June 28, down from 17 reported a day earlier, the country's National Health Commission (NHC) said on Monday. `\
+**China Reports 12 New COVID-19 Cases vs 17 a Day Earlier**\
+`China reported 12 new confirmed COVID-19 cases as of end of June 28, down from 17 reported a day earlier as the country's capital tries to curb a new wave of infections that emerged from a wholesale market in mid-June. `\
 https://nytimes.com/reuters/2020/06/28/world/asia/28reuters-health-coronavirus-china-cases.html?searchResultPosition=10
 
