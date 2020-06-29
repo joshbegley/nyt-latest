@@ -1,24 +1,24 @@
+**Reddit, Acting Against Hate Speech, Bans ‘The_Donald’ Subreddit**\
+`The influential pro-Trump community broke the rules on harassment and targeting, said Reddit, which also banned other groups.`\
+https://nytimes.com/2020/06/29/technology/reddit-hate-speech.html?searchResultPosition=5
+
+**Abortion Foes Vent Disappointment After Supreme Court Ruling**\
+`Abortion opponents vented their disappointment and fury on Monday after the Supreme Court issued a 5-4 decision to strike down a Louisiana law that would have curbed abortion access.`\
+https://nytimes.com/aponline/2020/06/29/us/ap-us-supreme-court-conservatives.html?searchResultPosition=6
+
+**Lawmakers Press for Answers on Russian Bounty Offers to Taliban to Kill U.S. Troops**\
+`Democrats asked for Trump administration intelligence officials to brief lawmakers on what they knew about a suspected Russian plot.`\
+https://nytimes.com/2020/06/29/us/politics/trump-russia-plot-afghanistan.html?searchResultPosition=7
+
+**Bob Dylan Makes Chart History With ‘Rough and Rowdy Ways’**\
+`The Nobel Prize-winning musician is the first artist to reach the Billboard Top 40 with a new album in each decade from the 1960s to the 2020s.`\
+https://nytimes.com/2020/06/29/arts/music/bob-dylan-rough-rowdy-ways-billboard.html?searchResultPosition=8
+
 **After Setbacks, a Surprising Win for the Abortion-Rights Movement**\
 `The Supreme Court preserved the status quo for abortion access in the United States, at least for now.`\
-https://nytimes.com/2020/06/29/us/june-medical-supreme-court.html?searchResultPosition=5
+https://nytimes.com/2020/06/29/us/june-medical-supreme-court.html?searchResultPosition=9
 
 **Netflix Series to Dramatize Kaepernick's Path to Activism**\
 `Colin Kaepernick is joining with Emmy-winning filmmaker Ava DuVernay on a Netflix drama series about the teenage roots of the former NFL player’s activism. `\
-https://nytimes.com/aponline/2020/06/29/sports/ap-us-tv-kaepernick-netflix.html?searchResultPosition=6
-
-**A TikTok Twist on ‘PizzaGate’**\
-`Young people have tweaked the conspiracy, and today’s internet sites help spread such false ideas.`\
-https://nytimes.com/2020/06/29/technology/pizzagate-tiktok.html?searchResultPosition=7
-
-**Using 'Face Doubles,' a New Doc Captures an Anti-LGBTQ Purge**\
-`Anonymous sources in documentaries have often been reduced to a shadowy, voice-distorted figure — or worse, a pixelated blur. `\
-https://nytimes.com/aponline/2020/06/29/us/ap-us-film-welcome-to-chechnya.html?searchResultPosition=8
-
-**Worsening Drought Forces State of Emergency in Puerto Rico**\
-`Puerto Rico’s governor on Monday declared a state of emergency as a worsening drought creeps across the U.S. territory amid a coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/06/29/world/americas/ap-cb-puerto-rico-drought.html?searchResultPosition=9
-
-**Polish Group Seeks Vatican Action Against Sex Abuse, Coverup**\
-`The Vatican says Pope Francis has been informed about an appeal launched by a group of Catholics in Poland urging Vatican intervention into cases where bishops have continued to cover up for priests who sexually molest children. `\
-https://nytimes.com/aponline/2020/06/29/world/europe/ap-eu-rel-vatican-poland-abuse.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/29/sports/ap-us-tv-kaepernick-netflix.html?searchResultPosition=10
 
