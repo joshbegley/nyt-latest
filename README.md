@@ -1,24 +1,24 @@
+**How the Pandemic Is Making It Tougher to Study Whales**\
+`Monday: Whales are dying at alarming rates, but the pandemic is keeping researchers away. Also: Gov. Gavin Newsom closes bars in some counties.`\
+https://nytimes.com/2020/06/29/us/coronavirus-sf-whales.html?searchResultPosition=5
+
+**Bahrain to Pay 50% of Wages for Private Firms Hit by Coronavirus: BNA**\
+`Bahrain's government said on Monday it would pay 50% of salaries for private company workers in sectors that were hard-hit by the coronavirus pandemic, state news agency BNA reported.`\
+https://nytimes.com/reuters/2020/06/29/world/middleeast/29reuters-health-coronavirus-bahrain-economy.html?searchResultPosition=6
+
+**UK Minister to Meet Leicester Leaders Amid Coronavirus Fears-PM's Spokesman**\
+`British health minister Matt Hancock will meet leaders from Leicester in central England, where officials fear a growing number of coronavirus cases could prompt a local lockdown, a spokesman for Prime Minister Boris Johnson said on Monday.`\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-britain-leicester.html?searchResultPosition=7
+
+**Former French PM Fillon and Wife to Appeal Court Sentence**\
+`Former French Prime Minister Francois Fillon and his wife Penelope will appeal a French court decision finding them guilty of embezzlement of public funds, their lawyer Antonin Levy said on Monday shortly after the sentence was pronounced.`\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-france-trial-fillon-appeal.html?searchResultPosition=8
+
 **At the BET Awards, Putting Black Designers in the Spotlight**\
 `The red carpet didn’t exactly return. But fashion did.`\
-https://nytimes.com/2020/06/29/style/bet-awards-fashion.html?searchResultPosition=5
+https://nytimes.com/2020/06/29/style/bet-awards-fashion.html?searchResultPosition=9
 
 **Looking Back on 16 Days That Shaped History**\
 `An exhibition at the palace that hosted the Potsdam Conference at the end of World War II examines the event’s far-reaching impact.`\
-https://nytimes.com/2020/06/29/arts/design/potsdam-conference-exhibition-cecilienhof.html?searchResultPosition=6
-
-**Israeli Campaigners Want Jewish Ruins Included in West Bank Annexations**\
-`The Israeli government faces calls from campaigners to declare sovereignty over ancient Jewish ruins on land in the occupied West Bank that Israel does not plan to annex under U.S. President Donald Trump's peace blueprint.`\
-https://nytimes.com/reuters/2020/06/29/world/middleeast/29reuters-israel-palestinians-annexation-archaeology.html?searchResultPosition=7
-
-**Brazil's Petrobras Says Transpetro Unit to Reduce Workforce by 557 Employees: Filing**\
-`Brazil's state-run oil company Petrobras said in a filing on Monday its transportation unit Transpetro will begin a voluntary layoff program this year, aiming to reduce its workforce by 557 employees. `\
-https://nytimes.com/reuters/2020/06/29/world/americas/29reuters-petrobras-layoffs.html?searchResultPosition=8
-
-**German Inflation Picks Up in June**\
-`German annual inflation accelerated at low levels in June, preliminary data showed on Monday, but remained well below the European Central Bank's target, providing further justification for stimulus.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-germany-economy-inflation.html?searchResultPosition=9
-
-**Man Appears in Court Over Three Stabbing Deaths in English Town**\
-`A man accused of carrying out a stabbing spree in the southern English town of Reading last week in what police said was a terrorist attack appeared in court on Monday charged with three counts of murder.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-britain-security-reading.html?searchResultPosition=10
+https://nytimes.com/2020/06/29/arts/design/potsdam-conference-exhibition-cecilienhof.html?searchResultPosition=10
 
