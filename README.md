@@ -1,24 +1,24 @@
+**Coroner: 3rd Illinois Warehouse Shooting Victim Identified**\
+`The third person who died after being shot at a warehouse in central Illinois has been identified.`\
+https://nytimes.com/aponline/2020/06/29/us/ap-us-warehouse-shooting-springfield.html?searchResultPosition=5
+
+**Japan to Boost Space Cooperation With US in Revised Policy**\
+`Japan said Monday it will step up its defense capability in space and improve its ability to detect and track missiles, while cooperating with the United States in response to what it called a growing threat from North Korea and China. `\
+https://nytimes.com/aponline/2020/06/29/world/asia/ap-as-japan-space-.html?searchResultPosition=6
+
 **Broadway Will Remain Closed Through the Rest of the Year**\
 `The industry has not yet set a reopening date, but said it would now refund tickets through Jan. 3.`\
-https://nytimes.com/2020/06/29/theater/when-broadway-reopening-coronavirus.html?searchResultPosition=5
+https://nytimes.com/2020/06/29/theater/when-broadway-reopening-coronavirus.html?searchResultPosition=7
 
-**Derek Chauvin and Other Officers to Make Court Appearance in Floyd Killing**\
-`A judge banned video and audio coverage of the pretrial hearing to avoid tainting the potential jury pool.`\
-https://nytimes.com/2020/06/29/us/derek-chauvin-court-hearing.html?searchResultPosition=6
+**Even the South Pole Is Warming, and Quickly, Scientists Say**\
+`Surface air temperatures at the bottom of the world have risen three times faster than the global average since the 1990s.`\
+https://nytimes.com/2020/06/29/climate/south-pole-warming-climate-change.html?searchResultPosition=8
 
-**High Court Makes It Easier for President to Remove CFPB Head**\
-`The Supreme Court is making it easier for the president to fire the head of the Consumer Financial Protection Bureau.`\
-https://nytimes.com/aponline/2020/06/29/business/bc-us-supreme-court-consumer-agency.html?searchResultPosition=7
+**College Is Worth It, but Campus Isn’t**\
+`Bringing millions of students back to campus would create enormous risks for society but comparatively little educational benefit, an economist says.`\
+https://nytimes.com/2020/06/29/business/college-campus-coronavirus-danger.html?searchResultPosition=9
 
-**Czech Airline Smartwings Could Axe 600 Staff**\
-`Czech airline Smartwings Group, which includes flagship carrier Czech Airlines, said on Monday that it may cut up to 600 jobs by February 2021 because of the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-smartwings-layoffs.html?searchResultPosition=8
-
-**Wirecard Collapse Leads to Call for German Parliamentary Inquiry**\
-`Germany's opposition called on Monday for a parliamentary inquiry into the collapse of payments firm Wirecard after a global fraud that left a gaping hole in its books went undiscovered by auditors and regulators for years.`\
-https://nytimes.com/reuters/2020/06/29/business/29reuters-wirecard-accounts.html?searchResultPosition=9
-
-**Jewish Groups Angry at Dutch Railway Company Reparation**\
-`Jewish organizations criticized the Dutch national railway company Monday for not adequately consulting them in discussions to work out a form of recognition for Holocaust victims the company transported to camps in the Netherlands during World War II — from where they were sent to Nazi concentration camps.`\
-https://nytimes.com/aponline/2020/06/29/world/europe/ap-eu-netherlands-holocaust-reparations.html?searchResultPosition=10
+**French Olympic Committee Denounces Racist Graffiti Outside Sport Institute**\
+`The French Olympic Committee (CNOSF) has denounced racist graffiti that was found on Black athletes' posters in front of the National Institute of Sport (INSEP) at the weekend.`\
+https://nytimes.com/reuters/2020/06/29/sports/olympics/29reuters-france-sport-racism.html?searchResultPosition=10
 
