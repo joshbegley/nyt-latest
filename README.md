@@ -1,24 +1,24 @@
-**South Korea Urges Staggered Vacations, Warns Against Gatherings as Coronavirus Cases Rise**\
-`South Korea's health authorities called on Monday for citizens to stagger vacation schedules ahead of the holiday season and avoid gatherings at workplaces and religious facilities, as coronavirus infections from small clusters persist. `\
-https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-health-coronavirus-southkorea.html?searchResultPosition=5
+**Kyrgios Hits Out at Zverev Over Partying Video**\
+`Australian Nick Kyrgios has hit out at Alexander Zverev after a video appeared to show the German dancing at a crowded club on Sunday despite the world No. 7 pledging last week he would be self-isolating. `\
+https://nytimes.com/reuters/2020/06/29/sports/tennis/29reuters-health-coronavirus-tennis.html?searchResultPosition=5
 
-**China's Factory Activity Likely Slowed in June on Subdued Global Demand, Reuters Poll Shows**\
-`China's factory activity likely grew for the fourth month June but the pace may be waning, as global demand stayed subdued while a fresh coronavirus outbreak in the Chinese capital and rising worldwide cases threaten to undermine a gradual domestic recovery.`\
-https://nytimes.com/reuters/2020/06/29/business/29reuters-china-economy-pmi.html?searchResultPosition=6
+**Japan Automakers' May Global Sales Drop 38% as Lockdowns Weigh**\
+`Japanese automakers' global sales declined 38% in May, in the third straight month of big falls as most automotive factories and dealerships remained closed due to coronavirus lockdowns.`\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-health-coronavirus-japan-automakers.html?searchResultPosition=6
 
-**Testing Stepped Up as Number of New Coronavirus Cases Surges**\
-`Governments were stepping up testing and warily considering their next moves Monday as the number of newly confirmed coronavirus cases surges in many countries. India reported 20,000 new cases Monday, while the U.S. confirmed more than 40,000 new infections for the the third straight day.`\
-https://nytimes.com/aponline/2020/06/29/business/ap-virus-outbreak-global.html?searchResultPosition=7
+**Florida Court Will Hear Video Appeal in Robert Kraft Case**\
+`An appellate court will decide whether video evidence is admissible in the case against the New England Patriots owner. It was thrown out by a court in Palm Beach County, Fla., in May 2019.`\
+https://nytimes.com/2020/06/29/sports/football/robert-kraft-case-patriots.html?searchResultPosition=7
 
-**Yield Curve Control a Double-Edged Sword for BOJ as Low Rates Strain Banks**\
-`The Bank of Japan's push to keep borrowing costs low to cushion the economic blow from the coronavirus is coming at the expense of the country's lenders, which are already buckling under the strain of decades of ultra-low interest rates.`\
-https://nytimes.com/reuters/2020/06/29/business/29reuters-health-coronavirus-boj-analysis.html?searchResultPosition=8
+**Gerardo Parra Hopes ‘Baby Shark’ Magic Can Bring a Title in Japan, Too**\
+`“It brings energy, and we need that to help make a championship team here,” Parra, the former Nationals player, said of the children’s song that was the soundtrack to the team’s World Series run.`\
+https://nytimes.com/2020/06/29/sports/baseball/gerardo-parra-baby-shark-japan.html?searchResultPosition=8
 
-**EU's Recovery Fund Must Include Substantial Grants-IMF**\
-`A substantial part of the European Union's package of measures to help the economy recover from the coronavirus pandemic must consist of grants rather than loans, the International Monetary Fund's chief economist told Der Spiegel.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-eu-imf.html?searchResultPosition=9
+**Republicans Play Hardball on Judges. Can Democrats Give It a Shot Too?**\
+`President Trump’s promises to evangelicals on judges were a key part of shoring up support in 2016. Some Biden backers want to see him run on the courts this time, too.`\
+https://nytimes.com/2020/06/29/us/politics/supreme-court-trump-biden.html?searchResultPosition=9
 
-**Italian Soccer’s Fractious Chorus Tries a New Tune: Cooperation**\
-`Serie A’s president, Paolo Dal Pino, walked into a crisis when he took the job in January. Six months later, he sees the pandemic as an opportunity to remake his league.`\
-https://nytimes.com/2020/06/29/sports/soccer/serie-a-president.html?searchResultPosition=10
+**Asian Shares Slide, Following Wall St Selloff on Virus Fears**\
+`Shares fell Monday in Asia, tracking losses on Wall Street as rising virus cases cause some U.S. states to backtrack on pandemic reopenings. `\
+https://nytimes.com/aponline/2020/06/29/business/bc-financial-markets.html?searchResultPosition=10
 
