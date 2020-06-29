@@ -1,5 +1,5 @@
 **Broadway Will Remain Closed Through the Rest of the Year**\
-`Broadway will remain closed for at least the rest of this year, and many shows are signaling that they do not expect a return to the stage until late winter or early spring.`\
+`The industry has not yet set a reopening date, but said it would now refund tickets through Jan. 3.`\
 https://nytimes.com/2020/06/29/theater/when-broadway-reopening-coronavirus.html?searchResultPosition=5
 
 **Derek Chauvin and Other Officers to Make Court Appearance in Floyd Killing**\
