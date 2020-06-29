@@ -1,24 +1,24 @@
+**BlackRock Sees Big Risk of U.S. Easing Pandemic Support Too Soon**\
+`There is a significant risk that the policy response to the coronavirus crisis in the United States could be scaled back too soon, BlackRock Investment Institute's global chief investment strategist Mike Pyle said on Monday. `\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-us-markets-blackrock.html?searchResultPosition=5
+
+**U.S. Supreme Court Strikes Down Louisiana Abortion Clinic Restrictions**\
+`The U.S. Supreme Court on Monday defended abortion rights by striking down a Louisiana law placing restrictions on doctors who perform the procedure, dealing a blow to anti-abortion advocates.`\
+https://nytimes.com/reuters/2020/06/29/us/29reuters-usa-court-abortion.html?searchResultPosition=6
+
+**Two Friends in Texas Were Tested for Coronavirus. One Bill Was $199. The Other? $6,408.**\
+`It’s an example of the unpredictable way health prices can vary for patients who receive identical care.`\
+https://nytimes.com/2020/06/29/upshot/coronavirus-tests-unpredictable-prices.html?searchResultPosition=7
+
+**Netflix Series About Colin Kaepernick in the Works From Ava DuVernay**\
+`The six-episode show will be based on the athlete’s teenage years growing up Black with a white adopted family.`\
+https://nytimes.com/2020/06/29/arts/television/colin-kaepernick-netflix-ava-duvernay.html?searchResultPosition=8
+
+**Lebanese Banks Raise USD Withdrawal Rate to 3,850 Pounds/dollar**\
+`Lebanese banks raised the exchange rate to 3,850 pounds per dollar for withdrawals from U.S. dollar accounts, bankers said on Monday, as a liquidity crunch erodes the currency's value. `\
+https://nytimes.com/reuters/2020/06/29/world/middleeast/29reuters-lebanon-crisis-banks.html?searchResultPosition=9
+
 **Supreme Court Upholds Prostitution Pledge for AIDS Funding**\
 `The Supreme Court has upheld a provision of federal law that requires foreign affiliates of U.S.-based health organizations to denounce prostitution as a condition of receiving taxpayer money to fight AIDS around the world. `\
-https://nytimes.com/aponline/2020/06/29/us/politics/ap-us-supreme-court-prostitution-pledge.html?searchResultPosition=5
-
-**Albania PM Calls Kosovo Leader’s Indictment 'Shameful Stain'**\
-`Albania's prime minister on Monday called the indictment of Kosovo's president and other former rebel fighters a “shameful stain" on world justice.`\
-https://nytimes.com/aponline/2020/06/29/world/europe/ap-eu-kosovo-war-crimes.html?searchResultPosition=6
-
-**1 Killed in Shooting at Seattle's Occupied Protest Area**\
-`One person was killed and another wounded early Monday in Seattle's “occupied” protest zone - the second deadly shooting in the area.`\
-https://nytimes.com/aponline/2020/06/29/us/ap-us-racial-injustice-seattle.html?searchResultPosition=7
-
-**Cities Try to Arrest Their Way Out of Homeless Problems**\
-`In the nine years he has been homeless, Kenneth Shultz has spent one of every three nights in jail.`\
-https://nytimes.com/aponline/2020/06/29/us/ap-us-homelessness-arrests.html?searchResultPosition=8
-
-**Domino's Expands Delivery Options, Home Buying Moves Online**\
-`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Monday related to the national and global response, the work place and the spread of the virus.`\
-https://nytimes.com/aponline/2020/06/29/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=9
-
-**Bankrupt Chesapeake Plans to Cut Drilling Further This Year**\
-`Bankrupt Chesapeake Energy on Monday laid out its long-term plan and said it would operate just around half the number of active rigs through the second half of the year than it did in the first quarter.`\
-https://nytimes.com/reuters/2020/06/29/business/29reuters-chesapeake-enrgy-bankruptcy-outlook.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/29/us/politics/ap-us-supreme-court-prostitution-pledge.html?searchResultPosition=10
 
