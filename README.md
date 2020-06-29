@@ -1,24 +1,24 @@
-**Top Lebanese Finance Ministry Official Resigns Amid Crisis**\
-`The director general of Lebanon’s Finance Ministry and a member of the country’s team negotiating with the International Monetary Fund resigned from his post on Monday amid a worsening economic and financial crisis, the ministry said. `\
-https://nytimes.com/aponline/2020/06/29/business/ap-ml-lebanon.html?searchResultPosition=5
+**Verdict Expected in Ex-French Prime Minister's Trial**\
+`A Paris court is set to give — or may postpone — a verdict in the fraud trial of former French Prime Minister Francois Fillon on Monday.`\
+https://nytimes.com/aponline/2020/06/29/world/europe/ap-eu-france-ex-prime-ministers-trial.html?searchResultPosition=5
 
-**Malawi Names Former Insurance Firm Director as Finance Minister**\
-`Former insurance company director Felix Mlusu was named Malawi's new finance minister on Monday, a government statement said, a day after President Lazarus Chakwera was sworn in following last week's re-run election in which he unseated Peter Mutharika.`\
-https://nytimes.com/reuters/2020/06/29/world/africa/29reuters-malawi-politics.html?searchResultPosition=6
+**Burundi's New Cabinet Includes Two Under Western Sanctions Over Rights Abuses**\
+`New Burundi President Evariste Ndayishimiye unveiled a 15-member cabinet including two ministers who are under U.S. or European sanctions over their alleged role in violently crushing street protests.`\
+https://nytimes.com/reuters/2020/06/29/world/africa/29reuters-burundi-politics.html?searchResultPosition=6
 
-**Iranian Military Prosecutor Says Human Error Led to Shooting Down of Ukrainian Airliner: Tasnim**\
-`The shooting down of a Ukrainian airliner in Iran in January was due to human error and not an order from senior military authorities, the military prosecutor for Tehran province, Gholam Abbas Torki, said on Monday, Tasnim news agency reported.`\
-https://nytimes.com/reuters/2020/06/29/world/middleeast/29reuters-iran-ukraine-crash.html?searchResultPosition=7
+**German Lower House Backs VAT Cut From July 1**\
+`Lawmakers in Germany's lower house of parliament on Monday backed stimulus measures including a cut in value-added tax (VAT) to 16% from 19% from July 1, aiming to stimulate growth in Europe's largest economy after the impact of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-germany-economy.html?searchResultPosition=7
 
-**Group Smuggling e-Waste to Africa Busted in Spanish Islands**\
-`Spanish authorities announced Monday that they had dismantled a criminal network that smuggled some 2.5 tonnes of waste, including discarded and hazardous electronic equipment, from Spain's Canary Islands to several countries in Africa.`\
-https://nytimes.com/aponline/2020/06/29/world/europe/ap-eu-spain-e-waste-smuggling.html?searchResultPosition=8
+**Scores of Children Killed in Philippines' War on Drugs: Report**\
+`At least 129 children have been killed in the Philippines' four-year war on drugs, most by police or allied assailants, but they may only represent a fraction of the toll, activist groups said on Monday.`\
+https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-philippines-rights.html?searchResultPosition=8
 
-**Will Office Buildings Ever Be the Same? Empire State Offers Clues**\
-`The Empire State Building has been a symbol of America's economic might for almost 90 years. Of late, it's also become a symbol of its struggle with the coronavirus.`\
-https://nytimes.com/reuters/2020/06/29/business/29reuters-health-coronavirus-usa-empire-state-building-insight.html?searchResultPosition=9
+**Blast Kills 23 Afghans at a Cattle Market in Southern Afghanistan**\
+`At least 23 civilians were killed in Afghanistan's southern Helmand province and dozens were injured when rockets fell on a cattle market on Monday, said Afghan government and Taliban officials.`\
+https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-afghanistan-blast-taliban.html?searchResultPosition=9
 
-**A Long-Overdue 'Tip of the Cap' to Baseball's Black Pioneers**\
-`Barack Obama tipped his cap. So did three other former presidents and a host of prominent civil rights leaders, entertainers and sports greats in a virtual salute to the 100-year anniversary of the founding of baseball’s Negro Leagues.`\
-https://nytimes.com/aponline/2020/06/29/sports/baseball/ap-bbo-tip-of-the-cap.html?searchResultPosition=10
+**S&P, Dow Futures Edge Higher on Stimulus, Rebound Hopes**\
+`Futures tracking the S&P 500 and the Dow Jones indexes edged higher on Monday following a selloff on Wall Street last week as investors weighed hopes of more stimulus and improving data against a resurgence in global coronavirus cases.`\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-usa-stocks.html?searchResultPosition=10
 
