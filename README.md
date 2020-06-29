@@ -1,24 +1,24 @@
+**Australian Lawmaker Says He Isn't a Suspect in China Probe**\
+`An Australian state lawmaker said Monday that he was not a suspect in a police investigation into unnamed people advancing China’s goals in Australia, days after his home and office were searched by police.`\
+https://nytimes.com/aponline/2020/06/29/world/asia/ap-as-australia-lawmaker-investigated-.html?searchResultPosition=5
+
+**This Week: Consumer Confidence, Macy’s Earns, June Hiring**\
+`A look at some of the key business events and economic indicators upcoming this week:`\
+https://nytimes.com/aponline/2020/06/29/business/ap-this-week-in-business.html?searchResultPosition=6
+
+**South Korea Exports to Fall for Fourth Month but at a Slower Pace, Poll Shows**\
+`South Korean exports likely shrunk for a fourth month but at a slower pace in June due to easing global virus lockdowns and more working days, yet a second wave of infection and Sino-U.S. tension were seen clouding near-term recovery, a poll showed on Monday.`\
+https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-southkorea-economy-trade.html?searchResultPosition=7
+
+**Oil Extends Losses as Coronavirus Spike Cools Demand Hopes**\
+`Oil prices slid for a second straight session on Monday as coronavirus cases rose in the United States and other places, leading some countries to resume partial lockdowns that could hurt fuel demand.`\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-global-oil.html?searchResultPosition=8
+
+**The Latest: India Reports Nearly 20,000 New Virus Cases**\
+`NEW DELHI — India on Monday reported nearly 20,000 new coronavirus infections, a new record for the country, as several states reimpose partial or full lockdowns to stem the spread of the virus.`\
+https://nytimes.com/aponline/2020/06/29/business/ap-virus-outbreak-the-latest.html?searchResultPosition=9
+
 **Mississippi Surrenders Confederate Symbol From State Flag**\
 `Mississippi will retire the last state flag in the U.S. with the Confederate battle emblem, more than a century after white supremacist legislators adopted the design a generation after the South lost the Civil War.`\
-https://nytimes.com/aponline/2020/06/29/us/ap-us-racial-injustice-confederate-flag-mississippi.html?searchResultPosition=5
-
-**What’s on TV Monday: ‘And She Could Be Next’ and ‘The Sommerdahl Murders’**\
-`A documentary about the contributions made by women of color to the 2018 elections airs on PBS. And an unconventional Nordic noir arrives on Acorn TV.`\
-https://nytimes.com/2020/06/29/arts/television/whats-on-tv-monday-and-she-could-be-next-and-the-sommerdahl-murders.html?searchResultPosition=6
-
-**Dollar Stymied as Mood Swings Between Recovery Hopes and Virus Fears**\
-`The dollar struggled to make headway on Monday, and riskier currencies inched ahead, as investor sentiment swung between hopes for a global economic recovery and fears that a fresh wave of coronavirus cases could undermine the revival.  `\
-https://nytimes.com/reuters/2020/06/29/business/29reuters-global-forex.html?searchResultPosition=7
-
-**CanSino's COVID-19 Vaccine Candidate Approved for Military Use in China**\
-`China's military has received the greenlight to use a COVID-19 vaccine candidate developed by its research unit and CanSino Biologics after clinical trials proved it was safe and somewhat efficient, the company said on Monday.`\
-https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-health-coronavirus-china-vaccine.html?searchResultPosition=8
-
-**Timeline: How the Global Coronavirus Pandemic Unfolded**\
-`Here are some key developments as the novel coronavirus spread around the world:`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-timeline.html?searchResultPosition=9
-
-**Global Coronavirus Deaths Top Half a Million**\
-`The death toll from COVID-19 surpassed half a million people on Sunday, according to a Reuters tally, a grim milestone for the global pandemic that seems to be resurgent in some countries even as other regions are still grappling with the first wave.`\
-https://nytimes.com/reuters/2020/06/29/world/americas/29reuters-health-coronavirus-deaths.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/29/us/ap-us-racial-injustice-confederate-flag-mississippi.html?searchResultPosition=10
 
