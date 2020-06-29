@@ -1,24 +1,24 @@
+**Louisville Protest Shooting Victim Remembered for Kindness**\
+`A man gunned down during a Louisville protest over the police killing of Breonna Taylor was remembered at a vigil for amplifying calls for peace and helping victims of racial injustice.`\
+https://nytimes.com/aponline/2020/06/29/us/ap-us-racial-injustice-kentucky.html?searchResultPosition=5
+
+**Conflicting Emotions as France Shutters Oldest Nuclear Plant**\
+`Nuclear workers lamented the switching off Monday of France's oldest nuclear reactor, a closure celebrated by anti-nuclear campaigners.`\
+https://nytimes.com/aponline/2020/06/29/business/ap-eu-france-nuclear-closure.html?searchResultPosition=6
+
+**A Singing Xi Jinping Look-Alike Battles the Censors in China**\
+`The baritone Liu Keqing has spent his career delighting fans in opera houses and on social media, but lately his likeness has attracted the Chinese authorities’ attention.`\
+https://nytimes.com/2020/06/29/world/asia/china-xi-jinping-opera-lookalike.html?searchResultPosition=7
+
+**These Black Wine Professionals Demand to Be Seen**\
+`It’s an old story, of being ignored, patronized or dismissed. But for black retailers, sommeliers, writers and winemakers, the days of invisibility are over.`\
+https://nytimes.com/2020/06/29/dining/drinks/black-wine-professionals-sommeliers.html?searchResultPosition=8
+
+**What the Heck Is That?**\
+`A look at one of the entries from last week’s puzzles that stumped our solvers.`\
+https://nytimes.com/2020/06/29/crosswords/heck-mage-crosswords-puzzles.html?searchResultPosition=9
+
 **EU Prolongs Sanctions Against Russia Over Ukraine Conflict**\
 `The European Union on Monday prolonged economic sanctions against Russia for six months for failing to live up to its commitments to the peace agreement in Ukraine.`\
-https://nytimes.com/aponline/2020/06/29/business/bc-eu-europe-russia-ukraine.html?searchResultPosition=5
-
-**German Man Goes on Trial Over Killing of 6 Family Members**\
-`A 27-year-old German man went on trial Monday over the killing of six members of his family earlier this year, telling a court that he was motivated by hatred for his mother.`\
-https://nytimes.com/aponline/2020/06/29/world/europe/ap-eu-germany-family-killed.html?searchResultPosition=6
-
-**French, German Leaders Meet in Berlin to Talk EU Recovery**\
-`German Chancellor Angela Merkel met Monday with French President Emmanuel Macron for talks as Germany prepares to take over the European Union presidency.`\
-https://nytimes.com/aponline/2020/06/29/world/europe/ap-eu-germany-france.html?searchResultPosition=7
-
-**Matonge, an African Home in Brussels**\
-`While Belgians confront their colonial past in the wake of global protests over the death of George Floyd in police custody, a neighbourhood in Brussels seen by some as a haven for Black citizens is gearing up for a big celebration.`\
-https://nytimes.com/reuters/2020/06/29/world/africa/29reuters-belgium-congo-matonge.html?searchResultPosition=8
-
-**Red Cross/Crescent Says LGBT Tweet by Its Turkey Head Is 'Offensive'**\
-`The global Red Cross and Red Crescent network said on Monday that comments about the LGBT+ community by one of its vice-presidents, who also heads its Turkish unit, were "wrong and offensive".`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-turkey-rights-lgbt.html?searchResultPosition=9
-
-**Italy's Cassandra: The Scientist Who Challenged WHO Guidelines**\
-`Andrea Crisanti says his one regret is that he didn't yell loudly enough at the beginning, when the dead had yet to pile up. `\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-italy-crisanti.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/29/business/bc-eu-europe-russia-ukraine.html?searchResultPosition=10
 
