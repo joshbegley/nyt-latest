@@ -1,24 +1,24 @@
-**Turkey, Austria Summon Envoys After Kurdish-Turkish Clashes in Vienna**\
-`Austria pledged on Monday to find out who was behind clashes between Kurdish and Turkish protesters in the Austrian capital last week that have further strained already tense relations between Vienna and Ankara.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-turkey-austria.html?searchResultPosition=5
+**Group Smuggling e-Waste to Africa Busted in Spanish Islands**\
+`Spanish authorities announced Monday that they had dismantled a criminal network that smuggled some 2.5 tonnes of waste, including discarded and hazardous electronic equipment, from Spain's Canary Islands to several countries in Africa.`\
+https://nytimes.com/aponline/2020/06/29/world/europe/ap-eu-spain-e-waste-smuggling.html?searchResultPosition=5
 
-**Potato Diplomacy as Malta Seeks New Era of Namibian Relations**\
-`Malta is donating 500 tonnes of potatoes to Namibia under its overseas aid programme in an effort to open a new chapter in relations between the two countries.`\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-malta-namibia.html?searchResultPosition=6
+**Will Office Buildings Ever Be the Same? Empire State Offers Clues**\
+`The Empire State Building has been a symbol of America's economic might for almost 90 years. Of late, it's also become a symbol of its struggle with the coronavirus.`\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-health-coronavirus-usa-empire-state-building-insight.html?searchResultPosition=6
 
-**Tencent, Primavera to Fund Grocery Delivery App: Bloomberg News**\
-`Tencent Holdings Ltd and private equity Primavera Capital are joining a funding round for Chinese grocery delivery app Xingsheng Youxuan that values the startup at $3 billion, Bloomberg reported on Monday, citing people familiar with the matter. `\
-https://nytimes.com/reuters/2020/06/29/business/29reuters-tencent-holdings-primavera-capital-funding.html?searchResultPosition=7
+**A Long-Overdue 'Tip of the Cap' to Baseball's Black Pioneers**\
+`Barack Obama tipped his cap. So did three other former presidents and a host of prominent civil rights leaders, entertainers and sports greats in a virtual salute to the 100-year anniversary of the founding of baseball’s Negro Leagues.`\
+https://nytimes.com/aponline/2020/06/29/sports/baseball/ap-bbo-tip-of-the-cap.html?searchResultPosition=7
 
-**Liz Weston: Some Taxpayers Face a Desperate Wait for Refunds**\
-`As a 58-year-old woman on disability, Robin Short of Wallingford, Connecticut, relies on her tax refund to catch up on bills. She filed her return electronically in February, opting for direct deposit so she could get her $773 refund quickly.`\
-https://nytimes.com/aponline/2020/06/29/business/ap-nerdwallet-liz-weston-delayed-tax-refunds.html?searchResultPosition=8
+**Pelosi on Trump and Russia: ‘This Is as Bad as it Gets’**\
+`Russian meddling (in Afghanistan) and a racist retweet. This is your morning tip sheet.`\
+https://nytimes.com/2020/06/29/us/politics/trump-pelosi-russia-racist-tweet.html?searchResultPosition=8
 
-**Germany Agrees to Terminate Contract With Accounting Watchdog**\
-`Germany will cancel its contract with the country's accounting watchdog FREP, a justice ministry spokesman said on Monday, after payments company Wirecard filed for insolvency last week in one of Germany's biggest fraud scandal.`\
-https://nytimes.com/reuters/2020/06/29/business/29reuters-wirecard-accounts-ministry.html?searchResultPosition=9
+**Assange Surprised by Timing of New U.S. Indictment**\
+`Julian Assange's lawyer said on Monday he was surprised U.S. authorities issued a new and wider indictment last week against the WikiLeaks founder whom they are seeking to extradite from Britain.`\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-britain-assange.html?searchResultPosition=9
 
-**Italian Study Shows Lower Viral Load in COVID-19 Patients in May Than April Peak**\
-`A small study by researchers in Italy has found that COVID-19 patients who were tested for the novel coronavirus at a hospital there in May had fewer virus particles than those who were tested a month earlier. `\
-https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-italy-study.html?searchResultPosition=10
+**First Dutch 5G Auction Begins With 900 Million Euro Floor**\
+`The first Dutch government auction of bandwidth for 5G networks began on Monday with a 900 million euro ($1 billion) floor and network owners KPN, Vodafone and T-Mobile participating.`\
+https://nytimes.com/reuters/2020/06/29/technology/29reuters-netherlands-5g.html?searchResultPosition=10
 
