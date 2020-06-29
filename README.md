@@ -1,24 +1,24 @@
-**Venezuela's Maduro Orders EU Envoy to Leave After Sanctions**\
-`Venezuelan President Nicolás Maduro has ordered the European Union’s ambassador to leave the country hours after the bloc hit several officials loyal to the socialist leader with sanctions.`\
-https://nytimes.com/aponline/2020/06/29/us/ap-lt-venezuela-eu-ambassador.html?searchResultPosition=5
+**Iranian Missile Facility Blows Up, and Conspiracy Theories Abound in Tehran**\
+`Satellite photographs show the explosion happened at a missile production facility. Iran said the incident was a gas explosion at a different military base.`\
+https://nytimes.com/2020/06/29/world/middleeast/iran-missile-explosion.html?searchResultPosition=5
 
-**Steelhead Trout for a Good Cause**\
-`The Kit for a Cause from Hudson Valley Fisheries benefits Relief Opportunities for All Restaurants.`\
-https://nytimes.com/2020/06/29/dining/steelhead-trout-hudson-valley.html?searchResultPosition=6
+**AP FACT CHECK: Actually, 20% of US Lives in a Virus Hot Spot**\
+`It’s been a frequent Trump administration talking point on the recent spike in COVID-19 infections: Don’t worry, only a small sliver of U.S. counties is at greater risk. `\
+https://nytimes.com/aponline/2020/06/29/us/politics/ap-us-virus-outbreak-fact-check.html?searchResultPosition=6
 
-**Musk Tells Tesla Employees Breaking Even in 2Q Will Be Tight**\
-`With one day left before the second quarter closes, Tesla CEO Elon Musk is telling employees that prospects for the company breaking even for the three-month period are tight, and he's asking them to go all-out to make it happen.`\
-https://nytimes.com/aponline/2020/06/29/business/ap-us-tesla-break-even.html?searchResultPosition=7
+**Live: Wisconsin Supreme Court and Statewide Election Results**\
+``\
+https://nytimes.com/interactive/2020/04/07/us/elections/results-wisconsin-spring-elections.html?searchResultPosition=7
 
-**A Vodka for Our Time**\
-`Quarantine Vodka, a new spirit from San Diego, is meant for the home bar and is named for pandemic life.`\
-https://nytimes.com/2020/06/29/dining/drinks/quarantine-vodka.html?searchResultPosition=8
+**Congo President Vows Not to Accept Judicial Reforms That Cause 'Harm'**\
+`Congolese president Felix Tshisekedi on Monday said he would not accept any reforms that undermined the independence of the judiciary - the latest salvo in a standoff within the ruling coalition over proposed judicial changes.`\
+https://nytimes.com/reuters/2020/06/29/world/africa/29reuters-congo-politics.html?searchResultPosition=8
 
-**RBNZ Reaffirms Guidance Rates to Stay on Hold Until Next Year**\
-`The Reserve Bank of New Zealand (RBNZ) has reaffirmed its guidance on keeping interest rates unchanged until March next year and is not expected to review this guidance, the bank's chief economist said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-newzealand-economy-rbnz.html?searchResultPosition=9
+**Egypt Hospital Fire Kills 7 Coronavirus Patients**\
+`An intensive care unit at an Egyptian hospital caught fire on Monday, killing seven COVID-19 patients, according to the country’s public prosecutor.`\
+https://nytimes.com/aponline/2020/06/29/world/middleeast/ap-ml-egypt-fire-.html?searchResultPosition=9
 
-**Arizona Governor Orders Bars, Gyms, Clubs, Pools to Close**\
-`In an effort to stop a massive surge in new coronavirus cases, Arizona Gov. Doug Ducey ordered bars, nightclubs, gyms, movie theaters and water parks around the state to be closed for at least 30 days starting Monday night.`\
-https://nytimes.com/aponline/2020/06/29/us/ap-us-virus-outbreak-arizona-1st-ld-writethru.html?searchResultPosition=10
+**Chocolates for Health Care Workers**\
+`Milène Jardine sells gift boxes for those on the front line of the pandemic.`\
+https://nytimes.com/2020/06/29/dining/chocolates-milene-jardine.html?searchResultPosition=10
 
