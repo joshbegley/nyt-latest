@@ -1,24 +1,24 @@
+**Nissan Officials Face Angry Shareholders on Red Ink, Scandal**\
+`Nissan Chief Executive Makoto Uchida told shareholders Monday he is giving up half his pay after the Japanese automaker sank into the red amid plunging sales and plant closures in Spain and Indonesia. `\
+https://nytimes.com/aponline/2020/06/29/business/bc-as-japan-nissan.html?searchResultPosition=5
+
+**China Forces Birth Control on Muslims to Suppress Population**\
+`The Chinese government is taking draconian measures to slash birth rates among Uighurs and other minorities as part of a sweeping campaign to curb its Muslim population, even as it encourages some of the country’s Han majority to have more children.`\
+https://nytimes.com/aponline/2020/06/29/business/ap-as-china-muslim-birth-control-abridged.html?searchResultPosition=6
+
+**Fighting in Taiwan Parliament After Opposition Occupies Building**\
+`Fighting erupted in Taiwan's parliament on Monday as lawmakers from the ruling Democratic Progressive Party (DPP) broke through barricades erected by the main opposition Kuomintang (KMT) who had occupied it to protest against government "tyranny". `\
+https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-taiwan-politics.html?searchResultPosition=7
+
+**China Forces Birth Control on Muslims to Suppress Population**\
+`The Chinese government is taking draconian measures to slash birth rates among Uighurs and other minorities as part of a sweeping campaign to curb its Muslim population, even as it encourages some of the country’s Han majority to have more children.`\
+https://nytimes.com/aponline/2020/06/29/us/ap-as-china-muslim-birth-control.html?searchResultPosition=8
+
+**Trump Denies Briefing on Reported Bounties Against US Troops**\
+`President Donald Trump has denied that he was made aware of U.`\
+https://nytimes.com/aponline/2020/06/29/us/politics/ap-us-united-states-russia.html?searchResultPosition=9
+
 **Today in History**\
 `Today in History `\
-https://nytimes.com/aponline/2020/06/29/us/ap-today-in-history-1st-ld-writethru.html?searchResultPosition=5
-
-**Asian Shares Slide, Following Wall St Selloff on Virus Fears**\
-`Shares fell Monday in Asia, tracking losses on Wall Street as rising virus cases cause some U.S. states to backtrack on pandemic reopenings. `\
-https://nytimes.com/aponline/2020/06/28/business/ap-financial-markets.html?searchResultPosition=6
-
-**MLS Says 20 Players, Six Club Staff Test Positive for COVID-19**\
-`Major League Soccer (MLS) has said 20 players and six club staff have tested positive for COVID-19 ahead of the 'MLS is Back Tournament' set to begin on July 8.`\
-https://nytimes.com/reuters/2020/06/28/sports/soccer/28reuters-health-coronavirus-soccer-mls.html?searchResultPosition=7
-
-**Japan's Takeda Expects $200 Million Operating Loss Related to Novartis' Xiidra Withdrawal**\
-`Takeda Pharmaceutical Co Ltd said on Monday it anticipates an operating loss of about $200 million related to Novartis AG's decision to withdraw a marketing application for the dry-eye drug Xiidra. `\
-https://nytimes.com/reuters/2020/06/28/business/28reuters-takeda-pharma-xiidra.html?searchResultPosition=8
-
-**Black Lives Celebrated and Mourned at Emotional BET Awards**\
-`Black power, suffering and the fight for justice took center stage at the BET awards on Sunday, the first Black celebrity event in the United States since nationwide mass protests broke out this month over systemic racism.`\
-https://nytimes.com/reuters/2020/06/28/arts/28reuters-awards-bet.html?searchResultPosition=9
-
-**Bagged Salads Recalled After Hundreds Are Sickened in the Midwest**\
-`The C.D.C. urged consumers in eight states to avoid four different salad kits produced by Fresh Express.`\
-https://nytimes.com/2020/06/28/us/salad-recall-cyclospora-cdc.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/29/us/ap-today-in-history-1st-ld-writethru.html?searchResultPosition=10
 
