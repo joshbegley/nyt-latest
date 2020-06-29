@@ -1,24 +1,24 @@
-**Long-Controversial Robert E. Lee Marker in Ohio Vandalized**\
-`A vandal or vandals over the weekend spray-painted a marker honoring Confederate Gen. Robert E. Lee in the southwest Ohio city of Franklin.`\
-https://nytimes.com/aponline/2020/06/29/us/ap-us-racial-injustice-lee-marker-ohio.html?searchResultPosition=5
+**Supreme Court Upholds Prostitution Pledge for AIDS Funding**\
+`The Supreme Court has upheld a provision of federal law that requires foreign affiliates of U.S.-based health organizations to denounce prostitution as a condition of receiving taxpayer money to fight AIDS around the world. `\
+https://nytimes.com/aponline/2020/06/29/us/politics/ap-us-supreme-court-prostitution-pledge.html?searchResultPosition=5
 
-**Supreme Court Strikes Down Louisiana Abortion Restrictions**\
-`The case, over a state law requiring doctors performing abortions to have admitting privileges at nearby hospitals, is the first abortion ruling since two Trump appointees joined the court.`\
-https://nytimes.com/2020/06/29/us/supreme-court-abortion-louisiana.html?searchResultPosition=6
+**Albania PM Calls Kosovo Leader’s Indictment 'Shameful Stain'**\
+`Albania's prime minister on Monday called the indictment of Kosovo's president and other former rebel fighters a “shameful stain" on world justice.`\
+https://nytimes.com/aponline/2020/06/29/world/europe/ap-eu-kosovo-war-crimes.html?searchResultPosition=6
 
-**U.S. Supreme Court Upholds Curb on Overseas AIDS Funding**\
-`The U.S. Supreme Court on Monday ruled that a 2003 law does not violate constitutional free speech rights by requiring overseas affiliates of American-based nonprofit groups that seek federal funding for HIV/AIDS relief to take a formal stance opposing prostitution and sex trafficking.`\
-https://nytimes.com/reuters/2020/06/29/us/29reuters-usa-court-aids.html?searchResultPosition=7
+**1 Killed in Shooting at Seattle's Occupied Protest Area**\
+`One person was killed and another wounded early Monday in Seattle's “occupied” protest zone - the second deadly shooting in the area.`\
+https://nytimes.com/aponline/2020/06/29/us/ap-us-racial-injustice-seattle.html?searchResultPosition=7
 
-**Supreme Court Strikes Down Louisiana Abortion Clinic Law**\
-`The Supreme Court on Monday struck down a Louisiana law regulating abortion clinics, reasserting a commitment to abortion rights over fierce opposition from dissenting conservative justices in the first big abortion case of the Trump era.`\
-https://nytimes.com/aponline/2020/06/29/us/politics/ap-us-supreme-court-abortion.html?searchResultPosition=8
+**Cities Try to Arrest Their Way Out of Homeless Problems**\
+`In the nine years he has been homeless, Kenneth Shultz has spent one of every three nights in jail.`\
+https://nytimes.com/aponline/2020/06/29/us/ap-us-homelessness-arrests.html?searchResultPosition=8
 
-**U.S. Supreme Court Rejects Macau Billionaire's Bribery Appeal**\
-`The U.S. Supreme Court on Monday declined to take up billionaire Macau real estate developer Ng Lap Seng's appeal of his conviction and four-year prison sentence for bribing two U.N. ambassadors to help him build a multibillion-dollar conference center.`\
-https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-usa-court-ng.html?searchResultPosition=9
+**Domino's Expands Delivery Options, Home Buying Moves Online**\
+`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Monday related to the national and global response, the work place and the spread of the virus.`\
+https://nytimes.com/aponline/2020/06/29/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=9
 
-**Amazon to Pay $500 Million in One-Time Bonuses to Front-Line Workers**\
-`Amazon.com Inc said on Monday it would spend $500 million on one-time bonuses to its front-line employees and partners working through the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/06/29/business/29reuters-health-coronavirus-amazon-com.html?searchResultPosition=10
+**Bankrupt Chesapeake Plans to Cut Drilling Further This Year**\
+`Bankrupt Chesapeake Energy on Monday laid out its long-term plan and said it would operate just around half the number of active rigs through the second half of the year than it did in the first quarter.`\
+https://nytimes.com/reuters/2020/06/29/business/29reuters-chesapeake-enrgy-bankruptcy-outlook.html?searchResultPosition=10
 
