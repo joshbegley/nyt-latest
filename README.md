@@ -1,24 +1,24 @@
-**'Wear a Mask!' Republicans Change Tune as COVID-19 Surges**\
-`Republican lawmakers are making a public push for face coverings, splitting with mask-averse U.S. President Donald Trump on the issue, as COVID-19 cases surge in some Republican-leaning states.`\
-https://nytimes.com/reuters/2020/06/29/us/29reuters-health-coronavirus-congress-masks.html?searchResultPosition=5
+**Lesotho's Former First Lady Granted Bail in Murder Case**\
+`Lesotho's former first lady, charged with the murder of her love rival, was granted bail on Monday, despite objections from the police that she might use it to escape.`\
+https://nytimes.com/reuters/2020/06/29/world/africa/29reuters-lesotho-politics.html?searchResultPosition=5
 
-**Brazil Deficit Almost Certain to Top 11% of GDP This Year - Treasury Secretary**\
-`Brazil's primary budget deficit will almost certainly top 11% of gross domestic product this year, Treasury Secretary Mansueto Almeida said on Monday, adding that proposals to extend emergency payments to low-paid workers will cost an extra 100 billion reais ($189 billion), or 1.9% of GDP.`\
-https://nytimes.com/reuters/2020/06/29/world/americas/29reuters-brazil-economy-debt.html?searchResultPosition=6
+**German Lawmakers Conclude ECB Has Met Court Requirement on Stimulus: Draft Document**\
+`The German Bundestag has concluded that the European Central Bank has fulfilled requirements demanded by the country's Constitutional Court for proportionality with its flagship stimulus programme, a draft Bundestag document showed.`\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-ecb-policy-germany-bundestag.html?searchResultPosition=6
 
-**11 O'clock and All's Silent on Wimbledon's Would-Be Day 1**\
-`When the clock struck 11 a.m. at the All England Club, there was silence.`\
-https://nytimes.com/aponline/2020/06/29/sports/tennis/ap-ten-wimbledon-no-tournament.html?searchResultPosition=7
+**South Pole Warmed Three Times the Global Rate in Last 30 Years: Study**\
+`At the South Pole, considered the coldest point on Earth, temperatures are rising fast.`\
+https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-climate-change-antarctica.html?searchResultPosition=7
 
-**German Authorities Fear Vast Network in Child Abuse Probe**\
-`Authorities in western Germany said Monday they have evidence that tens of thousands of people may have been involved with an online child sex abuse network uncovered last year.`\
-https://nytimes.com/aponline/2020/06/29/world/europe/ap-eu-germany-child-abuse.html?searchResultPosition=8
+**FOX Gives Up U.S. Open Rights to NBC**\
+`A crowded sports schedule caused by the COVID-19 pandemic has prompted FOX to choose the NFL and MLB over the U.S. Open, leading the U.S. Golf Association (USGA) to end its 12-year deal with the broadcaster and transfer it to NBC Universal.`\
+https://nytimes.com/reuters/2020/06/29/arts/29reuters-golf-usopen-television.html?searchResultPosition=8
 
-**Ex-UAW President Repays Union $55k for Travel Expenses**\
-`A former president of the United Auto Workers has reimbursed the union for $55,000 worth of inappropriate travel expenses, the union says. `\
-https://nytimes.com/aponline/2020/06/29/business/ap-us-auto-workers-corruption-probe.html?searchResultPosition=9
+**Brazil Posts Record Budget Deficit in May, Will Revise 2020 Forecasts**\
+`Brazil's government reported a record budget deficit in May, the Treasury said on Monday, adding that official debt and deficit forecasts for this year will be revised to reflect the heavy toll on public finances from the COVID-19 crisis.`\
+https://nytimes.com/reuters/2020/06/29/world/americas/29reuters-brazil-economy-deficit.html?searchResultPosition=9
 
-**Athletes Speak Out Against Returning: ‘People Are Still Dying’**\
-`“Thousands of people are still dying in Brazil, and we’re forced to play football with no protection,” Mario Bittencourt, the chairman of a Brazilian soccer team, wrote before a game.`\
-https://nytimes.com/2020/06/29/sports/brazil-soccer-against-return-liverpool.html?searchResultPosition=10
+**Mexican Central Bank Sells $1.39 Billion at Dollar Auction**\
+`Mexico's central bank placed $1.39 billion of $4.00 billion on offer at its dollar auction on Monday, the bank said, part of an effort to boost liquidity in the national economy.`\
+https://nytimes.com/reuters/2020/06/29/world/americas/29reuters-mexico-cenbank-auction.html?searchResultPosition=10
 
