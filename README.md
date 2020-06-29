@@ -2,7 +2,7 @@
 `Norwegian Air has cancelled orders for 97 Boeing aircraft, including 92 of the 737 MAX and five 787 Dreamliners, the Oslo-based budget carrier said in a statement on Monday.    `\
 https://nytimes.com/reuters/2020/06/29/business/29reuters-norwegianair-boeing.html?searchResultPosition=5
 
-**Mexico Talking to China, AstraZeneca Over Coronavirus Vaccine: Official**\
+**Mexico Talking to China, AstraZeneca Over Coronavirus Vaccine - Official**\
 `Mexico is in talks with the Chinese government and private Chinese laboratories, as well as the University of Oxford and company AstraZeneca about trialing an experimental COVID-19 vaccine, a senior Mexican official said on Monday.`\
 https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-mexico-vaccines.html?searchResultPosition=6
 
