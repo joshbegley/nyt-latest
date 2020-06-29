@@ -1,24 +1,24 @@
-**White House to Brief Democrats on Russia Bounty Reports on Tuesday**\
-`White House officials will brief a number of Democratic lawmakers on reports that Russian military intelligence offered militants bounties for killing U.S. troops in Afghanistan, a Democratic congressional aide said on Monday.`\
-https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-usa-afghanistan-russia-democrats.html?searchResultPosition=5
+**Iraqi Officials Release Iran-Backed Militiamen Arrested Last Week**\
+`Iraqi government officials said on Monday that a number of Iran-backed militiamen arrested in a raid by security forces on Thursday had been released on bail, government sources said. `\
+https://nytimes.com/reuters/2020/06/29/world/middleeast/29reuters-iraq-security.html?searchResultPosition=5
 
-**Senegal Lifts COVID-19 State of Emergency to Protect Economy**\
-`Senegalese President Macky Sall on Monday said he had decided to lift a state of emergency over COVID-19 to support the struggling economy, which he warned could grow less than 1.1% this year due to fallout from the epidemic.`\
-https://nytimes.com/reuters/2020/06/29/world/africa/29reuters-health-coronavirus-senegal.html?searchResultPosition=6
+**Monte Paschi Approves Plan to Offload Over 8 Billion Euros of Bad Loans**\
+`Italy's Banca Monte dei Paschi di Siena approved a plan on Monday to offload more than 8 billion euros ($9 billion)in gross bad loans in a move that could pave the way for a possible re-privatisation of the lender.`\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-monte-dei-paschi-debt.html?searchResultPosition=6
 
-**Face Shields, Gloves, Wipes: Texas Votes as Virus Rages**\
-`As coronavirus cases skyrocket in Texas, Regina Greenwell showed up to vote Monday bent on minimizing the risks.`\
-https://nytimes.com/aponline/2020/06/29/us/ap-us-virus-outbreak-texas-election.html?searchResultPosition=7
+**Remdesivir, the First Coronavirus Drug, Gets a Price Tag**\
+`Federal health officials and Gilead Sciences have settled on priority distribution to Americans — and nonnegotiable pricing.`\
+https://nytimes.com/2020/06/29/health/coronavirus-remdesivir-gilead.html?searchResultPosition=7
 
-**U.S.'s Pompeo to Address U.N. Security Council on Tuesday on Iran Arms Embargo**\
-`U.S. Secretary of State Mike Pompeo will address the United Nations Security Council on Tuesday on the expiration of a U.N. arms embargo on Iran, the U.S. State Department said on Monday.`\
-https://nytimes.com/reuters/2020/06/29/technology/29reuters-iran-usa-un.html?searchResultPosition=8
+**Abortion, Virus, George Floyd: Your Monday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/06/29/briefing/abortion-virus-george-floyd.html?searchResultPosition=8
 
-**Former Presidents, Celebrities Tip Caps to Negro Leagues**\
-`The 100th anniversary of the founding of the Negro Leagues was to have been commemorated over the weekend in MLB ballparks.`\
-https://nytimes.com/reuters/2020/06/29/sports/baseball/29reuters-baseball-mlb.html?searchResultPosition=9
+**Pompeo Calls China Muslim Sterilization Reports 'Shocking' and 'Disturbing'**\
+`U.S. Secretary of State Mike Pompeo on Monday labeled as "shocking" and "disturbing" reports that China's ruling Communist Party is using forced sterilization, forced abortion and coercive family planning against minority Muslims.`\
+https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-usa-china-xinjiang.html?searchResultPosition=9
 
-**Ontario Promises Crackdown on Recruiters as Farm Outbreaks Grow**\
-`The Canadian province of Ontario will crack down on "fly-by-night" recruitment agencies sending workers on to farms, the premier said on Monday, after a testing blitz identified a major coronavirus outbreak on a farm in southwestern Ontario.`\
-https://nytimes.com/reuters/2020/06/29/us/29reuters-health-coronavirus-canada-farming.html?searchResultPosition=10
+**How the Court Bungled the Michael Flynn Case**\
+`The Court of Appeals answered the wrong questions.`\
+https://nytimes.com/2020/06/29/opinion/politics/michael-flynn-court-of-appeals.html?searchResultPosition=10
 
