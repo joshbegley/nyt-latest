@@ -1,24 +1,24 @@
+**Merkel Hopes for Agreement EU Budget, Recovery Fund at Summit**\
+`German Chancellor Angela Merkel said on Monday she hopes that European Union leaders can agree on the bloc's next budget and a recovery fund at a summit scheduled for July 17/18.`\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-germany-france.html?searchResultPosition=5
+
+**India Bans Dozens of Chinese Apps, Citing Security Reasons**\
+`India on Monday banned 59 apps with Chinese links, saying their activities endanger the country’s sovereignty, defense and security.`\
+https://nytimes.com/aponline/2020/06/29/business/ap-as-india-china-apps-banned.html?searchResultPosition=6
+
+**The Russian Bounties in Afghanistan: What Did Trump Know?**\
+`Readers discuss the White House’s denial that the president had been briefed on reported Russian payments to the Taliban. Also: Remembering Milton Glaser.`\
+https://nytimes.com/2020/06/29/opinion/letters/russia-trump-afghanistan.html?searchResultPosition=7
+
 **Fed Launches Primary Market Corporate Credit Facility**\
 `The Federal Reserve announced that the Primary Market Corporate Credit Facility, one of several new programs launched to stabilize financial markets in the wake of the coronavirus pandemic, is operational and available for use as of Monday. `\
-https://nytimes.com/reuters/2020/06/29/business/29reuters-usa-fed-primarycredit.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/29/business/29reuters-usa-fed-primarycredit.html?searchResultPosition=8
 
 **U.S. Fed's Daly Says It's 'Far Too Early' to Judge Recovery**\
 `It is "far too early" to judge the recovery amid the reopening of the world's largest economy after coronavirus shutdowns, San Francisco Federal Reserve President Mary Daly on Monday told reporters on a conference call. `\
-https://nytimes.com/reuters/2020/06/29/business/29reuters-usa-fed-daly.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/06/29/business/29reuters-usa-fed-daly.html?searchResultPosition=9
 
 **Sérgio Sant’Anna, Brazilian Master of the Short Story, Dies at 78**\
 `Mr. Sant’Anna wrote novels and poetry, but was most famous for stories that used a sardonic humor to skewer the fractures within Brazilian society. He died of the coronavirus.`\
-https://nytimes.com/2020/06/29/obituaries/sergio-santanna-dead-coronavirus.html?searchResultPosition=7
-
-**Automakers Rev Up Discounts to Beat Coronavirus Sales Blues**\
-`In the midst of a raging pandemic, Belal Bilto, 26, a sales executive and a Manhattan resident bought a midsize pickup Jeep Gladiator this month for just over $48,000, lured by a discount of about $5,000 on the list price and a seven-year, no-interest loan.`\
-https://nytimes.com/reuters/2020/06/29/business/29reuters-usa-autos-incentives.html?searchResultPosition=8
-
-**WHO: Countries Complaining About Contact Tracing Are 'Lame'**\
-`The head of the World Health Organization on Monday dismissed complaints from countries complaining that contact tracing is too difficult to implement as a control strategy for the coronavirus pandemic as “lame.”`\
-https://nytimes.com/aponline/2020/06/29/business/bc-eu-virus-outbreak-who-contact-tracing.html?searchResultPosition=9
-
-**Twitch Suspends Trump’s Channel for ‘Hateful Conduct’**\
-`The action comes as other tech companies increasingly combat hate speech related to President Trump on their platforms.`\
-https://nytimes.com/2020/06/29/technology/twitch-trump-suspension-hateful-conduct.html?searchResultPosition=10
+https://nytimes.com/2020/06/29/obituaries/sergio-santanna-dead-coronavirus.html?searchResultPosition=10
 
