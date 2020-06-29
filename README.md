@@ -1,24 +1,24 @@
-**Clippers Sign Veteran Center Noah**\
-`The Los Angeles Clippers announced the signing of two-time All-Star center Joakim Noah on Sunday.`\
-https://nytimes.com/reuters/2020/06/29/sports/basketball/29reuters-basketball-nba-lac-noah.html?searchResultPosition=5
+**Premature Births Tied to Heart Risks in Mothers**\
+`Women who delivered prematurely had a decades-long increased risk of coronary heart disease.`\
+https://nytimes.com/2020/06/29/well/family/premature-births-tied-to-heart-risks-in-mothers.html?searchResultPosition=5
 
-**Tech Investor Prosus Reports Full-Year Profit Up 6.7%**\
-`Prosus NV, one of the world's largest technology investors, on Monday said net profit for the year to March 31, 2020 rose a better-than-expected 6.7% to $3.82 billion, helped by strong growth at its biggest investment Tencent.`\
-https://nytimes.com/reuters/2020/06/29/technology/29reuters-prosus-results.html?searchResultPosition=6
+**Macron Says Local Vote His Party Lost Should Not Entail National Conclusions**\
+`French President Emmanuel Macron said on Monday he was against drawing too many national conclusions from results of local elections his party LaRem badly lost on Sunday.`\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-france-elections-macron.html?searchResultPosition=6
 
-**Patriots Fined $1.1 Million, Lose Draft Pick Over Video Incident**\
-`The New England Patriots will pay a $1.1 million fine and lose a third-round pick in the 2021 NFL Draft for their taping of the Cincinnati Bengals' sideline last season, the league confirmed.`\
-https://nytimes.com/reuters/2020/06/29/sports/29reuters-football-nfl-nep-video-punishment.html?searchResultPosition=7
+**Greece Says It Will Not Allow Direct Flights From UK, Sweden Until July 15**\
+`Direct flights from Britain and Sweden to Greece will not be allowed until July 15, Greek authorities said on Monday, adding that they would use EU guidelines to determine which countries were considered at high risk of spreading the novel coronavirus. `\
+https://nytimes.com/reuters/2020/06/29/world/europe/29reuters-health-coronavirus-greece-britain-tourism.html?searchResultPosition=7
 
-**Privacy Commissioners to Investigate Tim Hortons' App**\
-`Tim Hortons' mobile app will be investigated after concerns about how the breakfast and coffee chain may be collecting and using data were raised, the Office of the Privacy Commissioner of Canada (OPC) said on Monday.`\
-https://nytimes.com/reuters/2020/06/29/technology/29reuters-rstrnt-brnd-tim-hortons-privacy.html?searchResultPosition=8
+**Indian Prime Minister Narendra Modi to Address the Nation on Tuesday**\
+`Indian Prime Minister Narendra Modi will address the nation at 1600 hours local time (1030 GMT) on Tuesday, his office said on Twitter late on Monday, but did not provide any details on the subject of his speech.`\
+https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-india-modi.html?searchResultPosition=8
 
-**U.S. Republicans, Democrats Want to Question Trump Aides Over Russia Bounty Reports**\
-`Both Democrats and President Donald Trump's fellow Republican lawmakers in Congress demanded more information from the White House on Monday after reports that Russian military intelligence offered militants bounties for killing U.S. troops in Afghanistan.`\
-https://nytimes.com/reuters/2020/06/29/us/politics/29reuters-usa-afghanistan-russia-house.html?searchResultPosition=9
+**Factbox: Legal Hurdles Faced by LGBT+ People in Africa**\
+`By Noor Zainab Hussain`\
+https://nytimes.com/reuters/2020/06/29/world/africa/29reuters-gabon-lgbt-lawmaking-factbox.html?searchResultPosition=9
 
-**Netflix, DuVernay to Make Series on Kaepernick's High School Years**\
-`Netflix are teaming up with Emmy Award-winning director Ava DuVernay to bring former NFL quarterback Colin Kaepernick's adolescent life to the television screen.`\
-https://nytimes.com/reuters/2020/06/29/sports/football/29reuters-nfl-kaepernick-netflix.html?searchResultPosition=10
+**Four Aid Workers Say Islamist Militants Abducted Them in Northeast Nigeria**\
+`Islamist militants have abducted four aid workers and a private security worker in northeast Nigeria, the hostages said in a video seen by Reuters on Monday.`\
+https://nytimes.com/reuters/2020/06/29/world/africa/29reuters-nigeria-security-insurgency.html?searchResultPosition=10
 
