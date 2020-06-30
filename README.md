@@ -14,8 +14,8 @@ https://nytimes.com/aponline/2020/06/30/world/asia/ap-as-koreas-tensions.html?se
 `Long a symbol of pride to some and hatred to others, the Confederate battle flag is losing its place of official prominence 155 years after rebellious Southern states lost a war to perpetuate slavery.`\
 https://nytimes.com/aponline/2020/06/30/us/ap-us-racial-injustice-confederate-flag.html?searchResultPosition=8
 
-**Your Tuesday Briefing**\
-`Coronavirus vaccine, Vladimir Putin, TikTok: Here’s what you need to know.`\
+**Coronavirus Vaccine, Vladimir Putin, TikTok: Your Tuesday Briefing**\
+`Here’s what you need to know.`\
 https://nytimes.com/2020/06/30/briefing/coronavirus-vaccine-vladimir-putin-tiktok.html?searchResultPosition=9
 
 **Singapore PM's Brother Will Not Contest July 10 Election - Source**\
