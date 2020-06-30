@@ -1,16 +1,16 @@
-**Column: Johnson Back to Winning Now After Brief Knee Concern**\
-`It only looks as though Dustin Johnson barely has a pulse on the golf course.`\
-https://nytimes.com/aponline/2020/06/30/sports/golf/ap-glf-on-the-fringe-johnson.html?searchResultPosition=7
+**Ex-Wife of 'Da Vinci Code' Author Alleges He Led Double Life**\
+`The ex-wife of “The Da Vinci Code” author Dan Brown has filed a lawsuit alleging the man known for writing about conspiracies and secret societies led a double life during their marriage that included a tryst with a Dutch horse trainer and other affairs.`\
+https://nytimes.com/aponline/2020/06/30/us/ap-us-dan-brown-lawsuit.html?searchResultPosition=7
 
-**Trump's Two Russias Confound Coherent US Policy**\
-`When it comes to Russia, the Trump administration just can’t seem to make up its mind.`\
-https://nytimes.com/aponline/2020/06/30/us/politics/ap-us-trumps-two-russias.html?searchResultPosition=8
+**Ex-CEO of Opioid Treatment Maker Indivior Pleads Guilty in U.S**\
+`Shaun Thaxter, the former chief executive of drugmaker Indivior Plc, pleaded guilty on Tuesday to a criminal charge arising out of a U.S. Justice Department investigation into the marketing of its opioid addiction treatment Suboxone.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-indivior-ceo-crime.html?searchResultPosition=8
 
-**COVID-19 Delivery Surge Strains FedEx Service, Opening Doors for UPS**\
-`A months-long flood of coronavirus-related e-commerce packages is straining service FedEx Corp, giving rival United Parcel Service Inc an opportunity to steal market share, customers and consultants told Reuters.`\
-https://nytimes.com/reuters/2020/06/30/us/30reuters-fedex-usa.html?searchResultPosition=9
+**Chief Justice Roberts’s Vote in an Abortion Case**\
+`Readers offer their analysis of why the chief justice joined his more liberal colleagues to strike down a Louisiana law.`\
+https://nytimes.com/2020/06/30/opinion/letters/abortion-supreme-court-john-roberts.html?searchResultPosition=9
 
-**Watch TV, Free**\
-`If you’re willing to sit through a few ads, or sign up for a library card, you can watch “Sharknado” gratis.`\
-https://nytimes.com/2020/06/30/at-home/coronavirus-watch-tv-free.html?searchResultPosition=10
+**Pet Shop Speakeasy Busted in Brazilian City**\
+`The shutters were down, but the pub chatter in the midst of a coronavirus quarantine gave the game away: a crowded Brazilian bar under the cover of a pet shop with no pets.`\
+https://nytimes.com/reuters/2020/06/30/world/americas/30reuters-health-coronavirus-brazil-speakeasy.html?searchResultPosition=10
 
