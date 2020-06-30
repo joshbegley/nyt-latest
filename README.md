@@ -1,16 +1,16 @@
-**Teams Not Able to Disclose Who Goes on IL Due to Virus**\
-`Trying to find out the status of a baseball player coming back from an ankle injury will definitely be easier than learning whether someone tested positive for the coronavirus.`\
-https://nytimes.com/aponline/2020/06/30/sports/baseball/ap-bbo-baseball-returns-covid-tests.html?searchResultPosition=7
+**Worker Calls Police on Black Woman Staying at Hotel**\
+`A worker at a North Carolina hotel has been fired after she called police on a Black woman and her child who were guests there and swimming in the pool.`\
+https://nytimes.com/aponline/2020/06/30/us/ap-us-racial-injustice-hotel-pool.html?searchResultPosition=7
 
-**1 of 2 Oklahoma Officers Shot During Traffic Stop Dies**\
-`One of the two Tulsa, Oklahoma, police officers who were shot during a traffic stop has died, authorities said Tuesday.`\
-https://nytimes.com/aponline/2020/06/30/us/ap-us-officers-shot-oklahoma.html?searchResultPosition=8
+**Brazil's Power Distributors Say $2.9 Billion Loan Not Enough to Make Up for COVID-19 Losses**\
+`A 16 billion-real ($2.93 billion) loan designed by Brazilian government to support power distribution companies cope with the coronavirus crisis is not enough to compensate all losses triggered by the pandemic, an industry association said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/30/world/americas/30reuters-health-coronavirus-brazil-energy-distribution.html?searchResultPosition=8
 
-**MiLB Season Canceled Amid COVID-19 Pandemic**\
-`Around three months after Minor League Baseball was due to open play, the 2020 season was canceled Tuesday due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/06/30/sports/baseball/30reuters-baseball-mlb-minors-canceled.html?searchResultPosition=9
+**Oklahoma Primary Election Results: Fourth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/30/us/elections/results-oklahoma-house-district-4-primary-election.html?searchResultPosition=9
 
-**Brazil Antitrust Agency Revokes Decision Blocking WhatsApp, Cielo Venture**\
-`Brazilian antitrust watchdog Cade on Tuesday said it was revoking a previous decision suspending a payments system recently launched by Facebook Inc's WhatsApp messaging service in partnership with card processor Cielo SA.`\
-https://nytimes.com/reuters/2020/06/30/technology/30reuters-facebook-brazil-cade.html?searchResultPosition=10
+**Utah Primary Election Results: Fourth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/30/us/elections/results-utah-house-district-4-primary-election.html?searchResultPosition=10
 
