@@ -2,8 +2,8 @@
 `Hong Kong media are reporting that China has approved a contentious law that would allow authorities to crack down on subversive and secessionist activity in Hong Kong, sparking fears that it would be used to curb opposition voices in the semi-autonomous territory.`\
 https://nytimes.com/aponline/2020/06/29/business/ap-as-hong-kong-china-security-law.html?searchResultPosition=5
 
-**N.Y.C., Facing Fiscal Crisis Over Virus, Agrees on Budget With Big Cuts**\
-`The mayor and City Council pared $1 billion from the N.Y.P.D., but nearly half of that would come from budgetary sleight of hand.`\
+**DeBlasio and Council, Facing Fiscal Crisis Over Virus, Agree on Budget With Big Cuts**\
+`The mayor and City Council pared $1 billion in funding for the Police Department, but nearly half of that would come from budgetary sleight of hand.`\
 https://nytimes.com/2020/06/29/nyregion/nyc-budget-police.html?searchResultPosition=6
 
 **Hong Kong Activist Joshua Wong Quits Democracy Group Demosisto**\
