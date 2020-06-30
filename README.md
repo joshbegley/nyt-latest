@@ -1,24 +1,24 @@
-**Netflix Moves $100 Million in Deposits to Bolster Black Banks**\
-`The streaming giant will permanently shift a share of its cash to financial institutions that serve Black communities, allowing them to lend more.`\
-https://nytimes.com/2020/06/30/business/dealbook/netflix-100-million-black-lenders.html?searchResultPosition=5
+**Firm to Offer Balloon Rides From Alaska to the Edge of Space**\
+`A company wants to use an advanced balloon to fly customers from Earth's surface in Alaska to the highest reaches of the planet's atmosphere.`\
+https://nytimes.com/aponline/2020/06/30/business/ap-us-near-space-balloon-rides-1st-ld-writethru.html?searchResultPosition=5
 
-**Why You’re Probably Not So Great at Risk Assessment**\
-`Our minds don’t always see risk clearly — and that’s important to remember as you navigate life after lockdown.`\
-https://nytimes.com/2020/06/30/smarter-living/why-youre-probably-not-so-great-at-risk-assessment.html?searchResultPosition=6
+**Slovenia's Interior Minister, Police Chief Quit Over Police Raids**\
+`Slovenia's interior minister and police director resigned on Tuesday over unannounced police raids investigating the purchase of medical ventilators which they said were politically motivated, local media reported.`\
+https://nytimes.com/reuters/2020/06/30/world/30reuters-health-coronavirus-slovenia-resignation.html?searchResultPosition=6
 
-**Britain Waiting to See Details of China's New Hong Kong Law, Raab Says**\
-`Britain will decide what action to take once it has seen the full security legislation that China has passed for Hong Kong, Foreign Secretary Dominic Raab said on Tuesday. `\
-https://nytimes.com/reuters/2020/06/30/technology/30reuters-china-hongkong-security-britain-reaction.html?searchResultPosition=7
+**Ethiopian Media Mogul's Bodyguards in Standoff With Police, His TV Station Says**\
+`The bodyguards of a powerful Ethiopian media tycoon were involved in a standoff with police trying to disarm them on Tuesday, the tycoon's television station reported.`\
+https://nytimes.com/reuters/2020/06/30/world/africa/30reuters-ethiopia-protests-media.html?searchResultPosition=7
 
-**Thailand to Regulate Online and Food Delivery Services**\
-`Thailand's cabinet on Tuesday approved measures to regulate food and online delivery services after customer complaints during the country's coronavirus lockdown, a senior government official said.  `\
-https://nytimes.com/reuters/2020/06/30/technology/30reuters-health-coronavirus-thailand-delivery.html?searchResultPosition=8
+**With Eyes on Indo-Pacific, Australia to Rapidly Increase Defence Spending**\
+`Australia will boost defence spending by nearly 40% over the next 10 years as Canberra shifts its military assets to focus on the Indo-Pacific region, Prime Minister Scott Morrison will say on Wednesday.`\
+https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-australia-defence.html?searchResultPosition=8
 
-**Britain Urgently Needs to See China Law on Hong Kong, Says UK PM's Spokesman**\
-`Britain urgently needs to see the legislation China passed regarding Hong Kong to determine whether it has breached the joint declaration and then will set out its next steps, a spokesman for Prime Minister Boris Johnson said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-china-hongkong-security-britain-spokesman.html?searchResultPosition=9
+**Turkish Lawyers Protest Against Government Plan to Reform Bar Associations**\
+`Thousands of Turkish lawyers protested outside Istanbul's main courthouse on Tuesday against a government plan to reform bar associations, saying it aims to silence dissent and will lead to politicization of their profession.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-turkey-security-lawyers.html?searchResultPosition=9
 
-**Brushing Aside Opponents, Beijing Imposes Security Law on Hong Kong**\
-`In passing the rules, China’s leaders faced down the democracy movement in Hong Kong and shrugged off opposition from the Trump administration.`\
-https://nytimes.com/2020/06/30/world/asia/china-critics-security-law-hong-kong.html?searchResultPosition=10
+**Clean Air and Quiet Streets-Virus Lockdown Gave France's Greens Election Boost**\
+`The coronavirus lockdown persuaded retired speech therapist Anne-Marie Arnaud a better future could be had, one with emptier skies, fresher air and quieter streets rid of diesel-belching cars.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-france-election-greens.html?searchResultPosition=10
 
