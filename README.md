@@ -1,24 +1,24 @@
-**Uzbekistan Imposes New Restrictions as COVID-19 Cases Rise Again**\
-`Uzbekistan has imposed an overnight curfew in some parts of the country, including the capital Tashkent, as it seeks to curb a fresh rise in COVID-19 infections following the gradual lifting of a two-month lockdown.`\
-https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-health-coronavirus-uzbekistan.html?searchResultPosition=5
+**SoftBank's Z Holdings Sees Line Merger Slipping Beyond October**\
+`SoftBank's Z Holdings Corp said on Tuesday the closure of its merger with messaging app operator Line Corp will be later than October as previously stated due to regulatory approval being delayed by the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/06/30/technology/30reuters-softbank-group-z-holdings-line.html?searchResultPosition=5
 
-**China Says It Will Retaliate Against U.S. Actions on Hong Kong**\
-`China said on Tuesday it will take retaliatory measures in response to the United States' decision to start eliminating Hong Kong's special status under U.S. law.`\
-https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-china-hongkong-security-mofa.html?searchResultPosition=6
+**Britain Locks Down City of Leicester After COVID-19 Flare-Up**\
+`Britain will introduce legal changes shortly to enforce a lockdown imposed on the English city of Leicester where there has been a flare up of the novel coronavirus, Health Secretary Matt Hancock said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-britain-leicester.html?searchResultPosition=6
 
-**How Risky Is Flying During the Coronavirus Pandemic?**\
-`How risky is flying during the coronavirus pandemic? `\
-https://nytimes.com/aponline/2020/06/30/business/bc-virus-outbreak-viral-questions-airlines.html?searchResultPosition=7
+**Cineworld Cinemas in United States and UK to Reopen From July 31**\
+`Britain's Cineworld Group said on Tuesday it would delay reopening its cinemas in the United States and Britain until Friday 31st July, while following any changes to regulations or guidance from public health officials.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-cineworld-grp-reopening.html?searchResultPosition=7
 
-**The Latest: Australian City Melbourne to Lock Down Suburbs**\
-`MELBOURNE, Australia — Australia’s second-largest city will lock down dozens of suburbs for a month in a bid to contain the spread of coronavirus.`\
-https://nytimes.com/aponline/2020/06/30/business/ap-virus-outbreak-the-latest.html?searchResultPosition=8
+**Pompeo Calls Taliban Leader Amid Russian Bounty Scandal**\
+`U.`\
+https://nytimes.com/aponline/2020/06/30/world/asia/ap-as-afghanistan-us.html?searchResultPosition=8
 
-**Report: Bombing Wounds Iranian Paramilitary Commander**\
-`A roadside bombing in southeastern Iran has wounded a commander of the country's powerful Revolutionary Guard, a semi-official news agency reported Tuesday. `\
-https://nytimes.com/aponline/2020/06/30/world/middleeast/ap-ml-iran-attack.html?searchResultPosition=9
+**Australian National News Agency Sold in Binding Agreement**\
+`Australia’s national news agency has been sold in a binding agreement to a consortium of philanthropist investors who say they are driven by a desire to retain media diversity`\
+https://nytimes.com/aponline/2020/06/30/business/ap-as-australia-news-agency.html?searchResultPosition=9
 
-**Japan, Taiwan Dismayed by China's New Security Law for Hong Kong**\
-`Japan expressed concern and Taiwan voiced disappointment on Tuesday after China passed a national security law for Hong Kong that could bring about the starkest changes in the former British colony's way of life since it returned to Chinese rule.`\
-https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-china-hongkong-security-reaction.html?searchResultPosition=10
+**Shell to Write Down as Much as $22 Billion in Wake of Coronavirus**\
+`Royal Dutch Shell on Tuesday said it will write $22 billion off the value of its assets after sharply lowering its oil and gas price outlook in the wake of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-shell-outlook.html?searchResultPosition=10
 
