@@ -1,24 +1,24 @@
+**Pepperoni Swastika Shocks Ohio Couple; Two Little Caesars Employees Fired**\
+`When Misty Laska opened her takeaway pizza, the first thing she noticed was that it was not sliced. Then she and her husband saw that the pepperoni pieces had been arranged in the shape of a swastika.`\
+https://nytimes.com/reuters/2020/06/30/us/30reuters-usa-pizza-swastika.html?searchResultPosition=5
+
+**Puma Pauses Ads on Facebook and Instagram in July**\
+`German sportswear brand Puma said on Tuesday it will pause all paid advertising globally on Facebook and Instagram throughout July to persuade the social media company to remove hostile and harmful conversation on its sites.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-facebook-ads-boycott-puma.html?searchResultPosition=6
+
+**Killing of Ethiopian Singer Sparks Protests in Capital City**\
+`Youths enraged by the killing of a popular protest singer burned tyres during demonstrations in Ethiopia's capital on Tuesday, in a display of anger from the prime minister's own Oromo ethnic community.`\
+https://nytimes.com/reuters/2020/06/30/world/africa/30reuters-ethiopia-protests.html?searchResultPosition=7
+
+**WHO Says 'We Cannot Let Our Guard Down' After China Pigs Study**\
+`The World Health Organization (WHO) will "read carefully" a Chinese study on a new flu virus found in pigs, a spokesman said on Tuesday, saying the findings underscored the importance of influenza surveillance during the COVID-19 pandemic. `\
+https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-health-coronavirus-china-pigs-who.html?searchResultPosition=8
+
+**EU to List Which Citizens Can Enter; US Likely to Miss Out**\
+`The European Union on Tuesday is announcing a list of nations whose citizens will be allowed to enter 31 European countries, but most Americans are likely to be refused entry for at least another two weeks due to soaring coronavirus infections in the U.S.`\
+https://nytimes.com/aponline/2020/06/30/world/europe/bc-virus-outbreak-europe-borders-2nd-ld-writethru.html?searchResultPosition=9
+
 **Iran Appeals Court Confirms Franco-Iranian Academic's Five-Year Jail Term-Mizan**\
 `Iran's appeals court has confirmed a five-year prison sentence for Iranian-French academic Fariba Adelkhah on security charges, the Mizan news agency reported on Tuesday.`\
-https://nytimes.com/reuters/2020/06/30/world/middleeast/30reuters-iran-france-detainee.html?searchResultPosition=5
-
-**Universities and Tech Giants Back National Cloud Computing Project**\
-`A proposal to give scientists access to huge data sets and powerful computers.`\
-https://nytimes.com/2020/06/30/technology/national-cloud-computing-project.html?searchResultPosition=6
-
-**A Major Ruling on Abortion**\
-`Why the Supreme Court struck down a Louisiana law that required doctors performing the procedure to have admitting privileges at nearby hospitals.`\
-https://nytimes.com/2020/06/30/podcasts/the-daily/supreme-court-abortion-louisiana-john-roberts.html?searchResultPosition=7
-
-**Israeli Minister Signals Major West Bank Annexation Move Not Imminent**\
-`An Israeli minister played down on Tuesday the likelihood of major moves to annex Jewish settlements in the occupied West Bank on July 1, the planned starting point for cabinet debate on the issue.`\
-https://nytimes.com/reuters/2020/06/30/world/middleeast/30reuters-israel-palestinians-annexation.html?searchResultPosition=8
-
-**Scientists Say New Strain of Swine Flu Virus Is Spreading to Humans in China**\
-`A new study warns that the strain of H1N1, common on China’s pig farms since 2016, should be “urgently” controlled to avoid another pandemic.`\
-https://nytimes.com/2020/06/30/world/asia/h1n1-swine-flu-virus-china-pig.html?searchResultPosition=9
-
-**Standard Life Aberdeen Picks Ex-Citi Executive as CEO**\
-`Standard Life Aberdeen (SLA) Chief Executive Keith Skeoch will step down after five years at the helm and former Citi executive Stephen Bird will replace him, the British asset manager said on Tuesday. `\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-standard-life-ceo.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/30/world/middleeast/30reuters-iran-france-detainee.html?searchResultPosition=10
 
