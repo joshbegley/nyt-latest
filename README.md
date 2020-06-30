@@ -1,16 +1,16 @@
-**Oscars Organizers Say Academy Exceeds Diversity Goal as 'Parasite' Cast, Others Join**\
-`The organization that awards the Oscars said on Tuesday it had invited 819 new members to join its ranks and exceeded a goal set four years ago to diversify the group's membership by 2020.`\
-https://nytimes.com/reuters/2020/06/30/arts/30reuters-awards-oscars-diversity.html?searchResultPosition=7
+**Republicans, With Exception of Trump, Now Push Mask-Wearing**\
+`In Republican circles -- with the notable exception of the man who leads the party -- the debate about masks is over: It’s time to put one on. `\
+https://nytimes.com/aponline/2020/06/30/us/politics/ap-us-virus-outbreak-mask-politics.html?searchResultPosition=7
 
-**Baseball's Minor Leagues Cancel 2020 Seasons**\
-`Baseball's minor leagues canceled their seasons on Tuesday after Major League Baseball decided not to provide any players to its affiliated teams amid the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/06/30/sports/baseball/ap-bbm-minor-league-season-canceled.html?searchResultPosition=8
+**Wanted for Graft, Ex-Pemex Boss to Be Extradited to Mexico From Spain**\
+`The former chief executive of Mexican state oil company Petroleos Mexicanos, Emilio Lozoya, has agreed to be extradited from Spain to Mexico to stand trial on corruption charges, Mexican Attorney General Alejandro Gertz said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-mexico-crime-lozoya.html?searchResultPosition=8
 
-**SpaceX Launches Air Force's Newest GPS Satellite**\
-`SpaceX launched the military’s newest, most accurate GPS satellite Tuesday after a two-month delay due to the pandemic. `\
-https://nytimes.com/aponline/2020/06/30/science/ap-us-sci-spacex-launch.html?searchResultPosition=9
+**Adidas HR Head Resigns as Company Addresses Diversity Issues**\
+`The head of global human resources at sports apparel and shoe company Adidas resigned Tuesday following criticism from employees of what they see as the company's failure to diversify its workforce.`\
+https://nytimes.com/aponline/2020/06/30/business/bc-us-adidas-personnel.html?searchResultPosition=9
 
-**Florida Gov Chooses Side in Sunscreen Debate: Slather Away!**\
-`When it comes to sunscreen, skin cancer and coral reefs, Florida Gov. Ron DeSantis has taken the side of sun worshipers who have gotten tacit approval to slather away.`\
-https://nytimes.com/aponline/2020/06/30/us/ap-us-banning-sunscreen-bans.html?searchResultPosition=10
+**UAW, Prosecutor Consider a Monitor for Avoiding Corruption**\
+`A federal prosecutor and the United Auto Workers president are looking at using an independent monitor to make sure that a wide-ranging union corruption scandal never happens again.`\
+https://nytimes.com/aponline/2020/06/30/business/ap-us-auto-workers-corruption.html?searchResultPosition=10
 
