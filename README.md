@@ -1,24 +1,24 @@
-**French, Spanish and African Leaders Meet to Combat Extremism**\
-`Leaders from the five countries of West Africa's Sahel region — Burkina Faso, Chad, Mali, Mauritania and Niger — will meet with French President Emmanuel Macron and Spanish Prime Minister Pedro Sanchez in Mauritania’s capital Nouakchott on Tuesday to discuss military operations against Islamic extremists in the region, as jihadist attacks mount.`\
-https://nytimes.com/aponline/2020/06/30/world/africa/ap-af-west-africa-france-summit.html?searchResultPosition=5
+**Sweden to Contribute Up to 5 Billion SEK to Airline SAS Recapitalization**\
+`Sweden's government said on Tuesday it would participate in the recapitalization of airline SAS with up to 5 billion crowns ($534.8 million) of tax-payer money.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-sas-sweden.html?searchResultPosition=5
 
-**Careers Hang on Mail-In Ballots for 2 House Democrats**\
-`New York Democrats Eliot Engel and Carolyn Maloney have cruised to reelection through most of their decades in Congress. Now, both must wait for mail-in ballots to be counted — a process that begins Wednesday — to learn whether they will serve an additional term.`\
-https://nytimes.com/aponline/2020/06/30/us/politics/ap-us-election-2020-house-new-york.html?searchResultPosition=6
+**Brazil's National Debt, Government Deficit Hit Record Highs in May**\
+`Brazil's national debt and public-sector deficit surged to record highs in May, figures showed on Tuesday, reflecting the squeeze on the country's finances from the second full month of social isolation and quarantine to combat the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/06/30/world/americas/30reuters-brazil-economy-deficit.html?searchResultPosition=6
 
-**Bavaria's Free COVID-19 Test for All Splits Germany**\
-`The state of Bavaria approved plans on Tuesday for universal testing for COVID-19, prompting debate elsewhere in Germany about whether to follow suit or stick with the current targeted approach to prevent a possible second wave of infections.`\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-germany-tests.html?searchResultPosition=7
+**Shipping Firm CMA CGM to Impose Emergency Surcharge at Cape Town Port**\
+`CMA CGM [CMACG.UL], the world's fourth-largest container shipping line, will impose emergency congestion surcharges at Cape Town port in July due to disruptions caused by the coronavirus, it has told customers.`\
+https://nytimes.com/reuters/2020/06/30/world/africa/30reuters-health-coronavirus-safrica-shipping.html?searchResultPosition=7
 
-**Italian Whole-Town Study Finds 40% of Coronavirus Cases Had No Symptoms**\
-`A study of coronavirus infections that covered almost everyone in the quarantined north Italian town of Vò found that 40% of cases showed no symptoms - suggesting that asymptomatic cases are important in the spread of the pandemic.`\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-italy-vo.html?searchResultPosition=8
+**Greece's NBG Hires Morgan Stanley to Advise on Six Billion Euro Bad Debt Sale**\
+`Greece's National Bank (NBG) has hired Morgan Stanley as an adviser ahead of a planned sale of more than 6.0 billion euros ($6.73 billion) of non-performing credit, part of its balance sheet clean-up efforts, bankers close to the transaction said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-nbg-loans-sale.html?searchResultPosition=8
 
-**Watch Live: Fauci Testifies Before Senate**\
-`Dr. Anthony Fauci and Dr. Robert R. Redfield testify before the Senate as states struggle to contain the coronavirus.`\
-https://nytimes.com/video/us/politics/100000007216573/watch-live-fauci-testifies-before-senate.html?searchResultPosition=9
+**Saudi Central Bank Governor Calls for More Lending From Commercial Banks**\
+`Saudi Arabia's central bank governor said it was encouraging commercial banks to lend more to sustain businesses during the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-saudi-economy-cenbank.html?searchResultPosition=9
 
-**Jury to Decide if Teen Who Killed Grandparents Mentally Ill**\
-`A Wisconsin teenager has pleaded guilty to fatally shooting his grandparents, but his lawyers will argue at a trial that he shouldn’t be held criminally responsible because he was mentally ill.`\
-https://nytimes.com/aponline/2020/06/30/us/ap-us-grandparents-killed-1st-ld-writethru.html?searchResultPosition=10
+**Canada GDP Likely to Rise 3% in May on Gradual Reopening**\
+`Canada's real GDP is likely to grow 3% in May, bouncing back from a record decline in April, Statistics Canada said in a flash estimate on Friday, as businesses across the country began to reopen following coronavirus-linked shutdowns.`\
+https://nytimes.com/reuters/2020/06/30/us/30reuters-canada-economy-gdp.html?searchResultPosition=10
 
