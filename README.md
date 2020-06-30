@@ -1,16 +1,16 @@
-**UBS Loses Australian Equities Crown to Macquarie**\
-`UBS, long the dominant bank in Australian equities markets, has closed this half-year outside the top three for the first time in 15 years, even as a rush of coronavirus-related share sales have generated bumper investment banking fees.`\
-https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-ubs-australia.html?searchResultPosition=7
+**SpaceX Launches Air Force's Newest GPS Satellite**\
+`SpaceX launched the military’s newest, most accurate GPS satellite Tuesday after a two-month delay due to the pandemic. `\
+https://nytimes.com/aponline/2020/06/30/science/ap-us-sci-spacex-launch.html?searchResultPosition=7
 
-**Positive Tests Force Nuggets to Close Practice Facilities**\
-`The Denver Nuggets say they’ve closed their facilities after two members of the team’s traveling party tested positive for the coronavirus over the weekend. A third tested positive this week.`\
-https://nytimes.com/aponline/2020/06/30/sports/basketball/ap-bkn-virus-outbreak-nba-testing.html?searchResultPosition=8
+**Florida Gov Chooses Side in Sunscreen Debate: Slather Away!**\
+`When it comes to sunscreen, skin cancer and coral reefs, Florida Gov. Ron DeSantis has taken the side of sun worshipers who have gotten tacit approval to slather away.`\
+https://nytimes.com/aponline/2020/06/30/us/ap-us-banning-sunscreen-bans.html?searchResultPosition=8
 
-**How Major US Stock Indexes Fared Tuesday**\
-`Stocks rose Tuesday as Wall Street closed out its best quarter since 1998. `\
-https://nytimes.com/aponline/2020/06/30/business/ap-financial-markets-box.html?searchResultPosition=9
+**UAW Leader, U.S. Prosecutor Discuss Independent Oversight for Union**\
+`The United Auto Workers' president met on Tuesday with the U.S. prosecutor heading a federal investigation into corruption at the union, and the two said they discussed reforms including possible independent oversight of future labor agreements.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-usa-autos-labor-corruption.html?searchResultPosition=9
 
-**Awkwafina, Zendaya Among 819 Invited to Join Film Academy**\
-`Cynthia Erivo, John David Washington, Eva Longoria, Zendaya and Awkwafina are among the 819 people who have been invited to join the Academy of Motion Picture Arts and Sciences.`\
-https://nytimes.com/aponline/2020/06/30/us/ap-us-oscars-new-members.html?searchResultPosition=10
+**Trump Campaign Has Spent $325,000 on Facebook Ads Featuring Brad Parscale’s Page**\
+`Mr. Parscale, the president’s campaign manager, is one of only three people whose Facebook and Instagram pages have been used by the campaign to display ads. The others are Donald Trump and Mike Pence.`\
+https://nytimes.com/2020/06/30/us/politics/brad-parscale-trump.html?searchResultPosition=10
 
