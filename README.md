@@ -1,24 +1,24 @@
-**Cinemark to Reopen Movie Theaters, Pizza Continues to Sell**\
-`The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Tuesday related to the national and global response, the work place and the spread of the virus.`\
-https://nytimes.com/aponline/2020/06/30/business/bc-virus-outbreak-business-fallout.html?searchResultPosition=5
+**‘Four Kids and It’ Review: A Family-Friendly Magical Beach Troll**\
+`Andy de Emmony directs this by-the-book adaptation of a children’s novel about a magical creature that can grant wishes.`\
+https://nytimes.com/2020/06/30/movies/four-kids-review.html?searchResultPosition=5
 
-**Reports: Germany Revamping Elite Army Unit Over Extremism**\
-`Germany’s defense minister reportedly plans to restructure the country’s special forces unit after numerous allegations of far-right extremism.`\
-https://nytimes.com/aponline/2020/06/30/world/europe/ap-eu-germany-military.html?searchResultPosition=6
+**New Queens Shop Serves Nigerian Food**\
+`Nneji in Astoria, Queens, from a Roosevelt Island market vendor, features a menu of comfort foods.`\
+https://nytimes.com/2020/06/30/dining/nneji-astoria-queens.html?searchResultPosition=6
 
-**'A Dark Past': MVPs Say Time to Pull Landis Name Off Plaques**\
-`Something still bothers Barry Larkin about his Most Valuable Player award.`\
-https://nytimes.com/aponline/2020/06/30/sports/baseball/ap-bbo-racial-injustice-mvp-plaques.html?searchResultPosition=7
+**Drugs, Doctors and Donors: Pakistanis Turn to 'Corona Warriors' Facebook Group**\
+`When musician Zoraiz Riaz set up a Facebook group to help coordinate convalescent plasma donations for people fighting COVID-19 in Pakistan, he expected perhaps a few hundred responses.`\
+https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-health-coronavirus-pakistan-facebook.html?searchResultPosition=7
 
-**Supreme Court Lifts Ban on State Aid to Religious Schooling**\
-`The Supreme Court on Tuesday made it easier for religious schools to obtain public funds, upholding a Montana scholarship program that allows state tax credits for private schooling.`\
-https://nytimes.com/aponline/2020/06/30/us/politics/ap-us-supreme-court-school-choice.html?searchResultPosition=8
+**Hedge Funds Were Right to Short-Sell Wirecard, Says Industry Body**\
+`Hedge funds were right to target Wirecard after "forensic analysis" showed there was something amiss since 2014 at the now collapsed German payments company, industry body AIMA said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-wirecard-hedgefunds.html?searchResultPosition=8
 
-**Europe Restricts Visitors From the US Amid Virus Resurgence**\
-`The European continent on Tuesday reopened to visitors from 14 countries, but not the U.S., where some of the states that pushed hardest and earliest to reopen their economies are now in retreat because of an alarming surge in confirmed coronavirus infections.`\
-https://nytimes.com/aponline/2020/06/30/business/bc-virus-outbreak.html?searchResultPosition=9
+**How Coronavirus Became a Market Inferno and What Was Done to Douse It**\
+`From a January lockdown in a Chinese province to 10 million infections worldwide, the coronavirus' march across the globe has buffeted markets at every step these past six months, roiling the very plumbing of the global financial system.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-health-coronavirus-turning-points.html?searchResultPosition=9
 
-**Supreme Court: Booking.com Can Trademark Its Name**\
-`The Supreme Court says travel website Booking.com can trademark its name, a ruling that also impacts other companies whose name is a generic word followed by “.com.”`\
-https://nytimes.com/aponline/2020/06/30/us/politics/ap-us-supreme-court-bookingcom.html?searchResultPosition=10
+**'Glow' to Replace 'Whitening' in Some L'Oreal Skin Products**\
+`L'Oreal will gradually replace "white" or "fair" with "glow" or "even" for some products designed to help even out skin tones, the cosmetic group's chief executive said on Tuesday. `\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-l-oreal-whitening.html?searchResultPosition=10
 
