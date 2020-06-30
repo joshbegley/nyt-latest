@@ -19,6 +19,6 @@ https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-china-hongkong-secur
 https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-health-coronavirus-thailand-worldworldbank.html?searchResultPosition=9
 
 **New Zealand Cancels 2021 APEC Summit, Will Lead It Virtually**\
-`New Zealand on Tuesday cancelled its plans to host a major meeting of U.S. and Asian leaders next year because of the coronavirus, opting instead to lead a virtual summit.`\
+`New Zealand on Tuesday canceled its plans to host a major meeting of U.S. and Asian leaders next year because of the coronavirus, opting instead to lead a virtual summit.`\
 https://nytimes.com/aponline/2020/06/29/business/ap-as-new-zealand-apec-cancelled.html?searchResultPosition=10
 
