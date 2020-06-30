@@ -1,24 +1,24 @@
+**What to Know About California’s ‘Dimmer Switch’ Reopening**\
+`Tuesday: Businesses may have to close again. Also: Gov. Gavin Newsom signs the budget; and an ending for the Golden State Killer cases.`\
+https://nytimes.com/2020/06/30/us/coronavirus-california-cases-rising.html?searchResultPosition=5
+
+**Putin, Promising Stability, Tells Russians to Vote for Changes That Could Extend His Rule**\
+`Vladimir Putin on Tuesday urged Russians to vote for constitutional changes that would allow him to run again for president twice, calling the reforms a guarantor of stability, security and prosperity.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-russia-putin-vote.html?searchResultPosition=6
+
+**Vatican Police Carry Out New Raid Over Suspected Corruption**\
+`Vatican police on Tuesday raided the department in charge of maintenance and restoration at St. Peter's Basilica, seizing documents and computers for an investigation into suspected corruption.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-vatican-basilica-raid.html?searchResultPosition=7
+
+**Merkel's Mission for EU Presidency: 'Make Europe Strong Again'**\
+`Chancellor Angela Merkel aims to strengthen a divided European Union and help its hard-hit economy recover from the coronavirus pandemic when Germany takes over the rotating presidency of the 27-member bloc on Wednesday.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-eu-germany.html?searchResultPosition=8
+
+**Pakistan's PM Says 'No Doubt' That India Was Behind Stock Exchange Attack**\
+`Pakistani Prime Minister Imran Khan told parliament on Tuesday he had 'no doubt' that India was behind an attack on the stock exchange building in Karachi a day earlier.`\
+https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-pakistan-attacks.html?searchResultPosition=9
+
 **Spain to Open Border With Morocco Only in Case of Reciprocity**\
 `Spain will only open its borders with Morocco if there is a reciprocal agreement to let people from Spain enter the North African country, Spanish government spokeswoman Maria Jesus Montero told a press conference on Tuesday.`\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-spain-morocco.html?searchResultPosition=5
-
-**UK Labour Leader Says: Nothing New in Johnson's 'New Deal'**\
-`Britain's opposition Labour Party leader Keir Starmer said on Tuesday that Prime Minister Boris Johnson's so called 'new deal' lacked anything new and called for an extension of the furlough scheme for certain workers.`\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-britain-johnson-labour.html?searchResultPosition=6
-
-**Motor Racing: Renault Retain Sirotkin as F1 Reserve**\
-`Russian Sergey Sirotkin will be on standby in Austria this weekend after Renault announced on Tuesday they had retained him as their Formula One reserve driver.`\
-https://nytimes.com/reuters/2020/06/30/sports/autoracing/30reuters-motor-f1-renault.html?searchResultPosition=7
-
-**Tennis: Kyrgios, Becker in War of Words Over Zverev's Partying Video**\
-`Nick Kyrgios and Boris Becker traded insults on social media on Tuesday following the Australian's criticism of Alexander Zverev after a video appeared to show the German dancing in a crowded club despite the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/06/30/sports/tennis/30reuters-health-coronavirus-tennis.html?searchResultPosition=8
-
-**China's Kingold Shares Tank on Report of Fake Gold Bars**\
-`Kingold Jewelry Inc's New York-listed shares fell as much as 40% on Monday following a media report that alleged the Chinese company had obtained loans by using fake gold bars as collateral.`\
-https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-china-gold-kingold-jewelry.html?searchResultPosition=9
-
-**Cautious Global Funds Favor Bonds Over Equities in June: Reuters Poll**\
-`Increasingly cautious global funds recommended an increase to bond holdings in June to the highest since early 2010 at least at the expense of equity allocations, which were cut to the lowest in over 3-1/2 years, a Reuters poll showed.`\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-funds-global-poll.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-spain-morocco.html?searchResultPosition=10
 
