@@ -1,16 +1,16 @@
-**First Coronavirus Case Found in Sprawling Migrant Camp at U.S. Border**\
-`An asylum seeker has tested positive for coronavirus in a sprawling encampment steps from the U.S. border in Matamoros, Mexico, underscoring the challenges migrants face in protecting themselves from the pandemic.`\
-https://nytimes.com/reuters/2020/06/30/world/americas/30reuters-health-coronavirus-mexico-immigration.html?searchResultPosition=7
+**Latin America COVID-19 Deaths Could Rise to 438,000 by October, Says WHO Director**\
+`The toll from COVID-19 could rise to 438,000 deaths in Latin America by October if prevention measures are not kept up, the World Health Organization's regional director for the Americas Carissa Etienne said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/30/world/americas/30reuters-health-coronavirus-latam-peak.html?searchResultPosition=7
 
-**Fauci Says No Guarantee U.S. Will Have Effective COVID-19 Vaccine, Warns Spread 'Could Get Very Bad'**\
-`The United States cannot count on the availability of a safe and effective COVID-19 vaccine, the government's top infectious diseases expert said on Tuesday, and he warned that the daily surge in cases could more than double if Americans fail to take steps to get the virus under control.`\
-https://nytimes.com/reuters/2020/06/30/us/30reuters-health-coronavirus-usa.html?searchResultPosition=8
+**NY Fed's Williams Says No Decisions Being Made on Yield Curve Control**\
+`Federal Reserve officials are still analyzing the potential costs and benefits of "yield curve control," a strategy that involves targeting interest rates for certain maturities, New York Federal Reserve Bank President John Williams said Tuesday. `\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-usa-fed-williams-ycc.html?searchResultPosition=8
 
-**Migrant Boat Sinks in Turkish Lake; 5 Bodies Recovered**\
-`Rescue teams searching for a migrant boat, reported to have capsized in a lake in eastern Turkey, have recovered five bodies on Tuesday, officials said.`\
-https://nytimes.com/aponline/2020/06/30/world/europe/ap-eu-europe-migrants-turkey.html?searchResultPosition=9
+**U.S. Consumer Confidence Perks Up; Rising COVID-19 Cases Cast Shadow Over Recovery**\
+`U.S. consumer confidence rebounded in June as businesses reopened, strengthening views that the economic downturn was likely over, though rising COVID-19 infections threaten to derail the budding recovery.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-usa-economy.html?searchResultPosition=9
 
-**Trump Calls for Federal Charges Against NYC Monument Vandals**\
-`President Donald Trump called Tuesday for two “anarchists” to turn themselves in on federal charges for vandalizing statues of George Washington in New York City.`\
-https://nytimes.com/aponline/2020/06/30/us/ap-us-racial-injustice-washington-statutes.html?searchResultPosition=10
+**Officers Investigated Over Photos Related to Elijah McClain**\
+`Multiple suburban Denver police officers have been placed on paid administrative leave amid an investigation into photos of them related to the case of a Black man who died last summer after he was stopped and restrained, police said Monday.`\
+https://nytimes.com/aponline/2020/06/30/us/ap-us-racial-injustice-elijah-mcclain.html?searchResultPosition=10
 
