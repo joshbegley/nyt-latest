@@ -1,24 +1,24 @@
-**Vatican Prosecutors Seize Data From St. Peter's Basilica**\
-`Vatican prosecutors have ordered the seizure of documents and computers from the administrative offices of St. Peter’s Basilica in an apparently new investigation into financial irregularities in the Holy See.`\
-https://nytimes.com/aponline/2020/06/30/world/europe/ap-eu-rel-vatican-finances.html?searchResultPosition=5
+**Kentucky Democrats to Learn Party's Pick to Take on Republican Mitch McConnell**\
+`Kentucky voters will learn on Tuesday which Democrat will challenge Republican Senate Majority Leader Mitch McConnell in November: Black progressive Charles Booker, or establishment favorite Amy McGrath.`\
+https://nytimes.com/reuters/2020/06/30/us/politics/30reuters-usa-election-kentucky.html?searchResultPosition=5
 
-**China's Top Legislative Body Adopts Hong Kong National Security Law**\
-`The top decision-making body of the Chinese legislature voted unanimously to adopt the Hong Kong national security legislation on Tuesday, the official Xinhua news agency reported. `\
-https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-china-hongkong-security-vote.html?searchResultPosition=6
+**Writing on the Wall: Congolese Murals Counter COVID-19 Denial**\
+`In central Kinshasa, freshly painted murals show traditional idols wearing medical masks or applying hand sanitiser, part of an art initiative to counter public disbelief in the face of the coronavirus pandemic sweeping Democratic Republic of Congo.`\
+https://nytimes.com/reuters/2020/06/30/arts/30reuters-health-coronavirus-congo-artists.html?searchResultPosition=6
 
-**Democrat Hickenlooper Favored to Win Colorado Senate Primary Despite Stumbles**\
-`Former Colorado Governor John Hickenlooper will try to secure the state's Democratic U.S. Senate nomination on Tuesday after a series of stumbles in a race vital to the party's hopes of recapturing Senate control in November.`\
-https://nytimes.com/reuters/2020/06/30/us/politics/30reuters-usa-election.html?searchResultPosition=7
+**Voting Results in Poland Confirm Duda in Presidential Runoff**\
+`Official final results issued Tuesday from the first round of Poland's presidential election show incumbent President Andrzej Duda secured 43.5% of the vote and needs to go into a runoff July 12 with Warsaw Mayor Rafal Trzaskowski. `\
+https://nytimes.com/aponline/2020/06/30/world/europe/ap-eu-poland-president-election.html?searchResultPosition=7
 
-**UK Says It Will Not Bend on Health Service, Standards in U.S. Trade Talks**\
-`Britain's government said on Tuesday it would not compromise on the country's health service, environmental protection, animal welfare and food safety standards in talks with the United States about a post-Brexit trade deal.`\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-britain-usa-trade.html?searchResultPosition=8
+**Hong Kong Security Law Criticized Abroad, Defended by China**\
+`China’s enactment of a national security law for Hong Kong on Tuesday drew statements of deep concern and regret from abroad and a firm defense at home.`\
+https://nytimes.com/aponline/2020/06/30/us/ap-as-hong-kong-china-reaction.html?searchResultPosition=8
 
-**U.N. Seeks Billions More Aid for Syrians Beset by War and COVID-19**\
-`The United Nations pushed governments at a virtual conference on Tuesday for nearly $10 billion in aid for Syria, where nine years of war has displaced millions in a humanitarian crisis exacerbated by soaring food prices and the coronavirus crisis. `\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-syria-security-eu.html?searchResultPosition=9
+**India's Chinese App Ban Seen Jolting $1 Billion Expansion of ByteDance**\
+`An Indian ban on dozens of Chinese apps following a border clash between the two nations has possibly derailed a $1 billion India expansion plan of China's ByteDance, while also sparking an uproar from users of its popular TikTok video app.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-india-china-apps.html?searchResultPosition=9
 
-**5 Things to Know for Today**\
-`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today: `\
-https://nytimes.com/aponline/2020/06/30/us/ap-5-things-to-know-today.html?searchResultPosition=10
+**Spain Needs Economic Reforms to Avoid 'Chronic' Debt, Says Central Bank**\
+`Spain's tourism-dependent economy needs profound structural reforms to avoid "chronic" levels of public debt that could hinder long-term growth, the Bank of Spain said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-spain-economy.html?searchResultPosition=10
 
