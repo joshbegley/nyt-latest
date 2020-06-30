@@ -1,24 +1,24 @@
-**New League Attracts Softball's Best, Gives Power to Players**\
-`Victoria Hayward would have been in Japan right about now, preparing for the Olympics as captain of Canada's softball team.`\
-https://nytimes.com/aponline/2020/06/30/sports/ap-sof-athletes-unlimited.html?searchResultPosition=5
+**UK Confirmed COVID Death Toll Rises by 155 to 43,730**\
+`The death toll from confirmed cases of COVID-19 in the United Kingdom rose by 155 to 43,730, health officials said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-britain-toll.html?searchResultPosition=5
 
-**'Pooled Testing' for COVID-19 Holds Promise, Pitfalls**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/06/30/health/ap-us-med-virus-outbreak-batch-testing.html?searchResultPosition=6
+**U.S. Coronavirus Cases Double in June In at Least 10 States**\
+`Coronavirus cases more than doubled in at least 10 U.S. states, including Florida and Texas in the month of June, a Reuters analysis on Tuesday showed.`\
+https://nytimes.com/reuters/2020/06/30/us/30reuters-health-coronavirus-usa-june.html?searchResultPosition=6
 
-**Biden Will Assail Trump’s Coronavirus Response in Speech**\
-`The presumptive Democratic presidential nominee will criticize President Trump for failing to protect the American people from the virus, as it continues to surge in many parts of the country.`\
-https://nytimes.com/2020/06/30/us/politics/biden-speech-trump-coronavirus.html?searchResultPosition=7
+**WHO Director Says Relaxing COVID-19 Measures Too Soon Can Bring Renewed Surge**\
+`Countries, states and cities that relax restrictions too soon can be flooded with new COVID-19 cases, the World Health Organization's regional director for the Americas, Carissa Etienne, warned on Tuesday in a virtual briefing from Washington.`\
+https://nytimes.com/reuters/2020/06/30/world/americas/30reuters-health-coronavirus-latam.html?searchResultPosition=7
 
-**Mexico's Ex-Chief of Pemex Drops Extradition Fight**\
-`The former head of Mexico’s state oil company has dropped his extradition fight and agreed to return to Mexico to cooperate in corruption investigations, Attorney General Alejandro Gertz Manero said Tuesday.`\
-https://nytimes.com/aponline/2020/06/30/world/americas/ap-lt-mexico-corruption.html?searchResultPosition=8
+**L'Oreal to Nominate CEO Successor, Drawn Internally, by Autumn**\
+`L'Oreal's Chairman and Chief Executive Jean-Paul Agon said on Tuesday he expected the cosmetic group's nominations committee to propose a candidate to succeed him by the autumn as his mandate expires. `\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-loreal-ceo.html?searchResultPosition=8
 
-**Dem Climate Plan Would End Greenhouse Gas Emissions by 2050**\
-`House Democrats have unveiled a plan to address climate change that would set a goal of net-zero greenhouse gas emissions by 2050, while pushing renewable energy such as wind and solar power and addressing environmental injustice that harms low-income and minority communities.`\
-https://nytimes.com/aponline/2020/06/30/us/politics/bc-us-congress-climate-crisis.html?searchResultPosition=9
+**Watch Live: Mnuchin and Powell Testify Before Congress**\
+`Treasury Secretary Steven Mnuchin and Federal Reserve Chair Jerome H. Powell will discuss their views on economic recovery to House lawmakers.`\
+https://nytimes.com/video/us/politics/100000007216854/mnuchin-powell-economy.html?searchResultPosition=9
 
-**‘In Storms, All Kinds of Things Can Happen’: Martin Luther King III on a Pivotal Month**\
-`Mr. King, the oldest son of Martin Luther King Jr., talked about what his father might have thought of the current protests for racial justice, and why this movement may be different than past ones.`\
-https://nytimes.com/2020/06/30/us/politics/martin-luther-king-protest-blm.html?searchResultPosition=10
+**He Turned ‘I Can’t Breathe’ Into Protest Music**\
+`Joel Thompson’s “The Seven Last Words of the Unarmed,” written in 2014, is finding new listeners in a summer of unrest.`\
+https://nytimes.com/2020/06/30/arts/music/classical-music-black-lives-matter.html?searchResultPosition=10
 
