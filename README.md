@@ -1,24 +1,24 @@
+**Careers Hang on Mail-In Ballots for 2 House Democrats**\
+`New York Democrats Eliot Engel and Carolyn Maloney have cruised to reelection through most of their decades in Congress. Now, both must wait for mail-in ballots to be counted — a process that begins Wednesday — to learn whether they will serve an additional term.`\
+https://nytimes.com/aponline/2020/06/30/us/politics/ap-us-election-2020-house-new-york.html?searchResultPosition=5
+
+**Bavaria's Free COVID-19 Test for All Splits Germany**\
+`The state of Bavaria approved plans on Tuesday for universal testing for COVID-19, prompting debate elsewhere in Germany about whether to follow suit or stick with the current targeted approach to prevent a possible second wave of infections.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-germany-tests.html?searchResultPosition=6
+
+**Italian Whole-Town Study Finds 40% of Coronavirus Cases Had No Symptoms**\
+`A study of coronavirus infections that covered almost everyone in the quarantined north Italian town of Vò found that 40% of cases showed no symptoms - suggesting that asymptomatic cases are important in the spread of the pandemic.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-italy-vo.html?searchResultPosition=7
+
+**Watch Live: Fauci Testifies Before Senate**\
+`Dr. Anthony Fauci and Dr. Robert R. Redfield testify before the Senate as states struggle to contain the coronavirus.`\
+https://nytimes.com/video/us/politics/100000007216573/watch-live-fauci-testifies-before-senate.html?searchResultPosition=8
+
+**Jury to Decide if Teen Who Killed Grandparents Mentally Ill**\
+`A Wisconsin teenager has pleaded guilty to fatally shooting his grandparents, but his lawyers will argue at a trial that he shouldn’t be held criminally responsible because he was mentally ill.`\
+https://nytimes.com/aponline/2020/06/30/us/ap-us-grandparents-killed-1st-ld-writethru.html?searchResultPosition=9
+
 **US Home Prices Increase 4% in April**\
 `U.S. home prices rose in April for the eighth straight month, even as sales have stumbled, a sign the coronavirus outbreak has had little impact on real estate values.`\
-https://nytimes.com/aponline/2020/06/30/business/bc-us-home-prices.html?searchResultPosition=5
-
-**Israeli AG Rejects Netanyahu Request for Financial Legal Aid**\
-`Israel's attorney general said Tuesday he opposed a request from Prime Minister Benjamin Netanyahu to have a wealthy American supporter finance his legal defense against corruption charges.`\
-https://nytimes.com/aponline/2020/06/30/world/middleeast/ap-ml-israel-netanyahu.html?searchResultPosition=6
-
-**Doorbell Camera Catches Parking Lot Birth in Florida**\
-`This was not one of those delivery videos that some pregnant moms plan for. `\
-https://nytimes.com/aponline/2020/06/30/us/ap-us-doorbell-camera-birth.html?searchResultPosition=7
-
-**EU Summons Venezuela Envoy in Response to Expulsion Order**\
-`The European Union's top diplomat said Tuesday that the bloc will summon Venezuela's ambassador over the South American country's decision to expel the EU envoy in Caracas, insisting all options “are on the table."`\
-https://nytimes.com/aponline/2020/06/30/business/bc-eu-venezuela-eu-ambassador.html?searchResultPosition=8
-
-**Say ‘Yes’ to the Dress Without Leaving Your House**\
-`Bridal boutiques across the country are offering virtual shopping experiences where brides, grooms and wedding parties can try on and purchase their wedding attire online.`\
-https://nytimes.com/2020/06/30/fashion/weddings/say-yes-to-the-dress-without-leaving-your-house.html?searchResultPosition=9
-
-**As Major League Soccer Expands, Teams Are Getting New Homes**\
-`Seven teams are building privately financed stadiums, a departure from the billions of public dollars spent on new arenas in other sports leagues.`\
-https://nytimes.com/2020/06/30/business/major-league-soccer-stadiums.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/06/30/business/bc-us-home-prices.html?searchResultPosition=10
 
