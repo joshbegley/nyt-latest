@@ -1,16 +1,16 @@
-**Scottish Firm to Trial T Cells as Possible COVID-19 Treatment**\
-`A Scottish biotechnology firm said on Tuesday it would start clinical trials on a possible T cell treatment for COVID-19, aimed at reducing the need for intensive care among hospitalised patients.`\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-britain-tcell.html?searchResultPosition=7
+**Top U.S. House Republican Resists Extending Coronavirus Unemployment Benefits**\
+`The top Republican in the U.S. House of Representatives said on Tuesday it would not be productive to extend extra unemployment benefits that were included in coronavirus relief legislation earlier this year but that expire on July 31.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-usa-economy-congress-unemployment.html?searchResultPosition=7
 
-**Airbus Shedding 15,000 Jobs, Mostly in Europe**\
-`European aircraft manufacturer Airbus says it plans to shed 15,000 jobs over the next year, mostly in Europe, as it struggles with the financial hit of the coronavirus pandemic. `\
-https://nytimes.com/aponline/2020/06/30/business/bc-eu-france-airbus.html?searchResultPosition=8
+**U.S. CDC Reports 2,581,229 Coronavirus Cases**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Tuesday reported 2,581,229 cases of new coronavirus, an increase of 35,664 cases from its previous count, and said that the number of deaths had risen by 370 to 126,739.`\
+https://nytimes.com/reuters/2020/06/30/us/30reuters-health-coronavirus-usa-cdc.html?searchResultPosition=8
 
-**3 Injured in Explosion at Medical Clinic in Iran's Capital**\
-`Iranian state television is reporting an explosion in a medical clinic in northern Tehran has injured at least three people.`\
-https://nytimes.com/aponline/2020/06/30/world/middleeast/ap-ml-iran-explosion.html?searchResultPosition=9
+**Airbus Says to Shed 15,000 Jobs**\
+`Airbus on Tuesday unveiled plans to shed around 15,000 jobs including 900 already earmarked in Germany, saying its future was at stake after the coronavirus pandemic rocked the air travel industry.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-airbus-restructuring-statement.html?searchResultPosition=9
 
-**As Virus Roars Back, So Do Signs of a New Round of Layoffs**\
-`The reopening of Tucson's historic Hotel Congress lasted less than a month.`\
-https://nytimes.com/aponline/2020/06/30/business/bc-us-virus-outbreak-new-threat-to-jobs.html?searchResultPosition=10
+**Factbox: Who Can Travel to Europe From Wednesday?**\
+`The European Union plans to open its borders to non-essential travelers such as tourists and most business people from a limited number of countries outside the bloc from July 1.`\
+https://nytimes.com/reuters/2020/06/30/world/30reuters-health-coronavirus-eu-borders-factbox.html?searchResultPosition=10
 
