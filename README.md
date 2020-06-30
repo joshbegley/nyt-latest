@@ -1,24 +1,24 @@
-**Firm to Offer Balloon Rides From Alaska to the Edge of Space**\
-`A company wants to use an advanced balloon to fly customers from Earth's surface in Alaska to the highest reaches of the planet's atmosphere.`\
-https://nytimes.com/aponline/2020/06/30/business/ap-us-near-space-balloon-rides-1st-ld-writethru.html?searchResultPosition=5
+**Summer Reading Contest Winner Week 1: On ‘I’m a Black American. I Had to Get Out.’**\
+`Thank you to the teenagers who participated this week, and congratulations to our winner, Ula Ekmecic, as well as our many runners-up and honorable mentions.`\
+https://nytimes.com/2020/06/30/learning/summer-reading-contest-winner-week-1-on-im-a-black-american-i-had-to-get-out.html?searchResultPosition=5
 
-**Slovenia's Interior Minister, Police Chief Quit Over Police Raids**\
-`Slovenia's interior minister and police director resigned on Tuesday over unannounced police raids investigating the purchase of medical ventilators which they said were politically motivated, local media reported.`\
-https://nytimes.com/reuters/2020/06/30/world/30reuters-health-coronavirus-slovenia-resignation.html?searchResultPosition=6
+**Putin Unveils Monument to Fallen Red Army WWII Soldiers**\
+`Russian President Vladimir Putin and his counterpart from Belarus on Tuesday unveiled a monument honoring the fallen Red Army soldiers who fought in one of the most bloody battles of World War II.`\
+https://nytimes.com/aponline/2020/06/30/world/europe/ap-eu-russia-world-war-ii.html?searchResultPosition=6
 
-**Ethiopian Media Mogul's Bodyguards in Standoff With Police, His TV Station Says**\
-`The bodyguards of a powerful Ethiopian media tycoon were involved in a standoff with police trying to disarm them on Tuesday, the tycoon's television station reported.`\
-https://nytimes.com/reuters/2020/06/30/world/africa/30reuters-ethiopia-protests-media.html?searchResultPosition=7
+**Pakistani Pilots Question Government List of 'Dubious' Pilots**\
+`Pakistani airline pilots and their union have raised questions about a government list of 262 pilots with "dubious" credentials, saying it is full of discrepancies.`\
+https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-pakistan-airlines-pilots.html?searchResultPosition=7
 
-**With Eyes on Indo-Pacific, Australia to Rapidly Increase Defence Spending**\
-`Australia will boost defence spending by nearly 40% over the next 10 years as Canberra shifts its military assets to focus on the Indo-Pacific region, Prime Minister Scott Morrison will say on Wednesday.`\
-https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-australia-defence.html?searchResultPosition=8
+**Ethiopian Satellite Television: Federal Police Arrested Media Mogul Amid Protests**\
+`Federal police arrested a powerful Ethiopian media tycoon on Tuesday after his bodyguards refused orders to disarm, the tycoon's television station reported, as protests spread in the Oromiya region over the killing of a popular singer.`\
+https://nytimes.com/reuters/2020/06/30/world/africa/30reuters-ethiopia-protests-arrest.html?searchResultPosition=8
 
-**Turkish Lawyers Protest Against Government Plan to Reform Bar Associations**\
-`Thousands of Turkish lawyers protested outside Istanbul's main courthouse on Tuesday against a government plan to reform bar associations, saying it aims to silence dissent and will lead to politicization of their profession.`\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-turkey-security-lawyers.html?searchResultPosition=9
+**Qatar Pledges $100 Million in Humanitarian Assistance to Syria, Foreign Ministry Says**\
+`Qatar has made a new pledge of $100 million in humanitarian assistance to Syria, the Gulf state's Foreign Ministry said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/30/world/middleeast/30reuters-syria-security-eu-qatar.html?searchResultPosition=9
 
-**Clean Air and Quiet Streets-Virus Lockdown Gave France's Greens Election Boost**\
-`The coronavirus lockdown persuaded retired speech therapist Anne-Marie Arnaud a better future could be had, one with emptier skies, fresher air and quieter streets rid of diesel-belching cars.`\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-france-election-greens.html?searchResultPosition=10
+**Britain Should Clap for Capitalists Too, Says PM Johnson**\
+`Britons should clap for capitalists and financiers, as well as the health workers who have helped the country through the coronavirus pandemic, Prime Minister Boris Johnson said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-britain-politics-johnson.html?searchResultPosition=10
 
