@@ -1,16 +1,16 @@
-**Here’s Where Elections Stand in New York, Kentucky and Other States**\
-`While Amy McGrath will face Mitch McConnell in Kentucky, the Democratic primaries in New York are still up in the air. Here’s the latest.`\
-https://nytimes.com/interactive/2020/06/30/burst/kentucky-new-york-primary-election.html?searchResultPosition=7
+**France's Macron Says Recent 'Spectacular' Results Make Victory in Sahel Possible**\
+`Victory against Islamist militants in the Sahel region is within grasp after a series of "spectacular" results, France's president said on Monday, but he warned that regional forces had to be exemplary after accusations of human rights abuses.`\
+https://nytimes.com/reuters/2020/06/30/world/africa/30reuters-sahel-security-france.html?searchResultPosition=7
 
-**A Month Before the N.B.A.’s Restart, the Nets Keep Losing Players**\
-`The coronavirus and injuries have left the Nets with a depleted roster, raising questions about how competitive they will be when the season resumes in July.`\
-https://nytimes.com/2020/06/30/sports/basketball/nets-deandre-jordan-injuries-coronavirus.html?searchResultPosition=8
+**Carl Reiner Knew TV Like the Back of His Head**\
+`With his creation “The Dick Van Dyke Show,” the comedy legend created a self-referential masterpiece and wrote himself a memorable supporting role.`\
+https://nytimes.com/2020/06/30/arts/television/carl-reiner.html?searchResultPosition=8
 
-**Three Deadly Blasts Rock Ethiopian Capital During Protests: Police**\
-`Three blasts injured and killed an unspecified number of people in the Ethiopian capital on Tuesday during protests sparked by the death of a popular singer, federal police commissioner told state news agencies.`\
-https://nytimes.com/reuters/2020/06/30/world/africa/30reuters-ethiopia-protests-police.html?searchResultPosition=9
+**Biden Team Putting Together List of Black Female Court Picks**\
+`Joe Biden said Tuesday that his team is putting together a list of potential options for his first Supreme Court nominee, which he has already pledged will be a Black woman.`\
+https://nytimes.com/aponline/2020/06/30/us/politics/ap-us-election-2020-biden-supreme-court.html?searchResultPosition=9
 
-**Canada Extends COVID-19 International Border Closures, Mandatory Quarantine Order**\
-`Canada is extending a global travel ban and mandatory quarantine measures that require most travelers to Canada, including citizens returning home, to self-isolate for 14 days upon arrival, the Canadian government said on Tuesday. `\
-https://nytimes.com/reuters/2020/06/30/world/americas/30reuters-health-coronavirus-canada.html?searchResultPosition=10
+**Wisconsin Family Saves Bear Swimming With Head Stuck in Bin**\
+`A Wisconsin family helped save a young bear that was struggling to breathe while swimming in a lake with its head caught in a plastic food container.`\
+https://nytimes.com/aponline/2020/06/30/us/ap-us-odd-bear-rescued.html?searchResultPosition=10
 
