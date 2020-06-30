@@ -1,24 +1,24 @@
-**‘Four Kids and It’ Review: A Family-Friendly Magical Beach Troll**\
-`Andy de Emmony directs this by-the-book adaptation of a children’s novel about a magical creature that can grant wishes.`\
-https://nytimes.com/2020/06/30/movies/four-kids-review.html?searchResultPosition=5
+**Biden to Attack Trump's Handling of COVID-19 as U.S. Cases Rise**\
+`Former Vice President Joe Biden will launch a fresh attack on President Donald Trump's handling of the coronavirus pandemic on Tuesday, as the Democratic presidential candidate works to build on his lead in national polls ahead of the Nov. 3 election.`\
+https://nytimes.com/reuters/2020/06/30/us/politics/30reuters-usa-election-biden.html?searchResultPosition=5
 
-**New Queens Shop Serves Nigerian Food**\
-`Nneji in Astoria, Queens, from a Roosevelt Island market vendor, features a menu of comfort foods.`\
-https://nytimes.com/2020/06/30/dining/nneji-astoria-queens.html?searchResultPosition=6
+**EU Bans Pakistan Airline From Flying to Europe for 6 Months**\
+`The European Union's aviation safety agency said Tuesday that Pakistan’s national airline will not be allowed to fly into Europe for at least six months after the country’s aviation minister revealed that nearly a third of Pakistani pilots had cheated on their pilot’s exams. `\
+https://nytimes.com/aponline/2020/06/30/world/asia/ap-as-pakistan-plane-crash.html?searchResultPosition=6
 
-**Drugs, Doctors and Donors: Pakistanis Turn to 'Corona Warriors' Facebook Group**\
-`When musician Zoraiz Riaz set up a Facebook group to help coordinate convalescent plasma donations for people fighting COVID-19 in Pakistan, he expected perhaps a few hundred responses.`\
-https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-health-coronavirus-pakistan-facebook.html?searchResultPosition=7
+**Iran Issues Death Sentence for Opposition Journalist**\
+`Ruhollah Zam once ran a popular news service that helped share information about the widespread protests in 2017. He had been exiled in France until October, when he traveled to Iraq and then disappeared.`\
+https://nytimes.com/2020/06/30/world/middleeast/ruhollah-zam-iran.html?searchResultPosition=7
 
-**Hedge Funds Were Right to Short-Sell Wirecard, Says Industry Body**\
-`Hedge funds were right to target Wirecard after "forensic analysis" showed there was something amiss since 2014 at the now collapsed German payments company, industry body AIMA said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-wirecard-hedgefunds.html?searchResultPosition=8
+**U.S. Supreme Court Allows Public Money for Religious Schools in Major Ruling**\
+`The U.S. Supreme Court narrowed the separation of church and state in a major ruling on Tuesday by endorsing Montana tax credits that helped pay for students to attend religious schools, a decision paving the way for more public funding of faith-based institutions.`\
+https://nytimes.com/reuters/2020/06/30/us/30reuters-usa-court-religion.html?searchResultPosition=8
 
-**How Coronavirus Became a Market Inferno and What Was Done to Douse It**\
-`From a January lockdown in a Chinese province to 10 million infections worldwide, the coronavirus' march across the globe has buffeted markets at every step these past six months, roiling the very plumbing of the global financial system.`\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-health-coronavirus-turning-points.html?searchResultPosition=9
+**'Revolting'-French Workers at Nokia-Owned Plant Protest Layoffs**\
+`Several hundred workers at French firm Alcatel-Lucent International on Tuesday protested against plans by parent company Nokia Oyj to cut 1,233 jobs.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-nokia-france-layoffs.html?searchResultPosition=9
 
-**'Glow' to Replace 'Whitening' in Some L'Oreal Skin Products**\
-`L'Oreal will gradually replace "white" or "fair" with "glow" or "even" for some products designed to help even out skin tones, the cosmetic group's chief executive said on Tuesday. `\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-l-oreal-whitening.html?searchResultPosition=10
+**U.S. Consumer Confidence Rebounds in June, but Rising COVID-19 Infections a Worry**\
+`U.S. consumer confidence grew more than expected in June, strengthening views that the economic downturn was likely over, though rising COVID-19 infections threatened to derail the budding recovery.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-usa-economy-confidence.html?searchResultPosition=10
 
