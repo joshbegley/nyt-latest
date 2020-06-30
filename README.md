@@ -1,24 +1,24 @@
+**South Korean Birth Rate World's Lowest in Struggle for Balance: Report**\
+`South Korea has the world's lowest birth rate, according to a United Nations report released on Tuesday, as women in Asia's fourth-largest economy struggle to achieve a balance between work and other life demands.`\
+https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-southkorea-women.html?searchResultPosition=5
+
+**Players Can Stay in Locker Rooms During Anthem: U.S. Women's Soccer League**\
+`The U.S. National Women's Soccer League (NWSL) has said players can choose to remain in the locker room or express their individual views on the pitch while the national anthem is being played at the Challenge Cup.`\
+https://nytimes.com/reuters/2020/06/30/sports/soccer/30reuters-soccer-women-nwsl-anthem.html?searchResultPosition=6
+
+**Asia Stocks Up as China PMI, U.S. Data Help Cap Strong Quarter Despite Virus Woes**\
+`Asian shares advanced on Tuesday as positive economic data from China and the United States helped to close out a strong quarter, though a renewed surge in global coronavirus cases underlined a challenging investment climate.  `\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-global-markets.html?searchResultPosition=7
+
+**Asia Today: India's Virus Cases, Deaths Surge Again**\
+`India on Tuesday reported more than 18,000 new virus cases and 400 deaths after an Indian company said it would start clinical trials of a potential vaccine.`\
+https://nytimes.com/aponline/2020/06/30/business/ap-as-virus-outbreak-asia.html?searchResultPosition=8
+
 **China Says Concerned About India Banning Chinese Apps**\
 `China said on Tuesday it was concerned about India's decision to ban Chinese mobile apps such as Bytedance's TikTok and Tencent's WeChat and was making checks to verify the situation. [nL4N2E63K0]`\
-https://nytimes.com/reuters/2020/06/30/technology/30reuters-india-china-apps-mofa.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/06/30/technology/30reuters-india-china-apps-mofa.html?searchResultPosition=9
 
 **United States Not on EU's 'Safe' Travel List, Diplomats Say**\
 `The United States is not on a "safe list" of destinations for non-essential travel due to be unveiled by European Union governments later on Tuesday, three diplomats said.`\
-https://nytimes.com/reuters/2020/06/30/world/30reuters-health-coronavirus-eu-travel.html?searchResultPosition=6
-
-**European Shares Tepid at the End of Strong Quarter**\
-`European shares were largely flat on Tuesday as investors booked some profits following a strong quarterly rebound, while improving China factory data and hopes of more U.S. stimulus buoyed sentiment in Asia.`\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-europe-stocks.html?searchResultPosition=7
-
-**Iran Journalist Who Inspired 2017 Rallies Sentenced to Death**\
-`Iran has sentenced to death a journalist whose online work helped inspire the 2017 economic protests and who returned from exile to Tehran.`\
-https://nytimes.com/aponline/2020/06/30/world/middleeast/ap-ml-iran.html?searchResultPosition=8
-
-**Russia's Coronavirus Case Tally Approaches 650,000**\
-`Russia on Tuesday reported 6,693 new cases of the novel coronavirus, taking its nationwide tally to 647,849. `\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-russia-cases.html?searchResultPosition=9
-
-**Uzbekistan Imposes New Restrictions as COVID-19 Cases Rise Again**\
-`Uzbekistan has imposed an overnight curfew in some parts of the country, including the capital Tashkent, as it seeks to curb a fresh rise in COVID-19 infections following the gradual lifting of a two-month lockdown.`\
-https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-health-coronavirus-uzbekistan.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/30/world/30reuters-health-coronavirus-eu-travel.html?searchResultPosition=10
 
