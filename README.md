@@ -1,16 +1,16 @@
-**$1 Billion Is Shifted From N.Y.P.D. in a Budget That Pleases No One**\
-`“We can’t allow folks from outside our community to lecture us about Black lives,” said a City Council member, opposing the police cuts.`\
-https://nytimes.com/2020/06/30/nyregion/police-nyc-budget-coronavirus.html?searchResultPosition=7
+**Teams Not Able to Disclose Who Goes on IL Due to Virus**\
+`Trying to find out the status of a baseball player coming back from an ankle injury will definitely be easier than learning whether someone tested positive for the coronavirus.`\
+https://nytimes.com/aponline/2020/06/30/sports/baseball/ap-bbo-baseball-returns-covid-tests.html?searchResultPosition=7
 
-**Growing a Legacy**\
-`In Winemaking, as in Investing, 5 Core Practices Help Yield the Best Long-Term Results.`\
-https://nytimes.com/paidpost/bny-mellon-wealth-management/growing-a-legacy.html?searchResultPosition=8
+**1 of 2 Oklahoma Officers Shot During Traffic Stop Dies**\
+`One of the two Tulsa, Oklahoma, police officers who were shot during a traffic stop has died, authorities said Tuesday.`\
+https://nytimes.com/aponline/2020/06/30/us/ap-us-officers-shot-oklahoma.html?searchResultPosition=8
 
-**Advertiser Exodus Snowballs as Facebook Struggles to Ease Concerns**\
-`The social network has tried striking a more conciliatory tone with its advertisers, who object to its handling of hate speech.`\
-https://nytimes.com/2020/06/30/technology/facebook-advertising-boycott.html?searchResultPosition=9
+**MiLB Season Canceled Amid COVID-19 Pandemic**\
+`Around three months after Minor League Baseball was due to open play, the 2020 season was canceled Tuesday due to the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/06/30/sports/baseball/30reuters-baseball-mlb-minors-canceled.html?searchResultPosition=9
 
-**After #OscarsSoWhite, the Academy Meets Goal to Diversify Membership**\
-`The number of Oscar voters of color has tripled in the last four years, while the number of women has doubled. Still, the group skews heavily white and male.`\
-https://nytimes.com/2020/06/30/movies/academy-oscars-new-members.html?searchResultPosition=10
+**Brazil Antitrust Agency Revokes Decision Blocking WhatsApp, Cielo Venture**\
+`Brazilian antitrust watchdog Cade on Tuesday said it was revoking a previous decision suspending a payments system recently launched by Facebook Inc's WhatsApp messaging service in partnership with card processor Cielo SA.`\
+https://nytimes.com/reuters/2020/06/30/technology/30reuters-facebook-brazil-cade.html?searchResultPosition=10
 
