@@ -1,16 +1,16 @@
-**Top U.S. House Republican Resists Extending Coronavirus Unemployment Benefits**\
-`The top Republican in the U.S. House of Representatives said on Tuesday it would not be productive to extend extra unemployment benefits that were included in coronavirus relief legislation earlier this year but that expire on July 31.`\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-usa-economy-congress-unemployment.html?searchResultPosition=7
+**EU's Barnier Calls British Financial Market Proposals 'Unacceptable'**\
+`British proposals to give the City of London access to the European Union are "unacceptable" because they seek to maintain the benefits of the single market without the obligations, the bloc's chief Brexit negotiator Michel Barnier said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-britain-eu.html?searchResultPosition=7
 
-**U.S. CDC Reports 2,581,229 Coronavirus Cases**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Tuesday reported 2,581,229 cases of new coronavirus, an increase of 35,664 cases from its previous count, and said that the number of deaths had risen by 370 to 126,739.`\
-https://nytimes.com/reuters/2020/06/30/us/30reuters-health-coronavirus-usa-cdc.html?searchResultPosition=8
+**Russia Bounty Reports, if True, Should Lead to U.S. Sanctions, John Bolton Says**\
+`U.S. President Donald Trump's former national security adviser John Bolton said on Tuesday the United States should consider economic sanctions on Russia as part of a strong U.S. response if it is true that Moscow offered bounty payments to Taliban forces for killing Americans in Afghanistan.`\
+https://nytimes.com/reuters/2020/06/30/us/politics/30reuters-usa-bolton.html?searchResultPosition=8
 
-**Airbus Says to Shed 15,000 Jobs**\
-`Airbus on Tuesday unveiled plans to shed around 15,000 jobs including 900 already earmarked in Germany, saying its future was at stake after the coronavirus pandemic rocked the air travel industry.`\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-airbus-restructuring-statement.html?searchResultPosition=9
+**Adidas HR Head Steps Down After Race Row**\
+`The head of human resources at Adidas has stepped down after a group of employees called for an investigation over her handling of racism at the company which she had described last year as "noise" only discussed in America.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-adidas-race.html?searchResultPosition=9
 
-**Factbox: Who Can Travel to Europe From Wednesday?**\
-`The European Union plans to open its borders to non-essential travelers such as tourists and most business people from a limited number of countries outside the bloc from July 1.`\
-https://nytimes.com/reuters/2020/06/30/world/30reuters-health-coronavirus-eu-borders-factbox.html?searchResultPosition=10
+**U.S. Top Medical Experts Rebuke American Airlines for Filling Planes**\
+`Top U.S. health experts on Tuesday criticized American Airlines and other carriers for filling planes to capacity, saying it sends the wrong message as the country grapples with a rise in coronavirus outbreaks.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-health-coronavirus-usa-airlines.html?searchResultPosition=10
 
