@@ -1,24 +1,24 @@
-**Businesses Chafe in Leicester as UK City Faces New Lockdown**\
-`Stores closed their doors Tuesday and schools prepared to send children home in the English city of Leicester, where the British government has imposed a local lockdown to contain a spike in coronavirus cases.`\
-https://nytimes.com/aponline/2020/06/30/world/europe/bc-eu-virus-outbreak-britain.html?searchResultPosition=5
+**Valuations, Yields Help Stocks Sustain Lead Over Main Street**\
+`As world stock markets end a turbulent six months near record highs, investors appear to be betting heavily that economies will recover quickly from the coronavirus crisis, fuelled by zero interest rates and abundant monetary and fiscal stimulus.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-global-markets-disconnect.html?searchResultPosition=5
 
-**More Space, Same Address**\
-`As quarantining has made small apartments seem minuscule, some renters have been able to find larger places without leaving the building.`\
-https://nytimes.com/2020/06/30/realestate/more-space-same-address.html?searchResultPosition=6
+**Hoping to Boost the Economy, UK PM Johnson Unveils New Planning Rules**\
+`British Prime Minister Boris Johnson unveiled new planning rules on Tuesday to boost the number of homes and allow commercial premises to be repurposed more easily, part of a package to spur the coronavirus-hit economy.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-britain-johnson-planning.html?searchResultPosition=6
 
-**Biden Team Begins Raising Money for Transition Committee**\
-`A small staff of advisers and other trusted figures will start planning what a Biden administration would look like if he wins in November.`\
-https://nytimes.com/2020/06/30/us/politics/biden-transition-team.html?searchResultPosition=7
+**Factbox: Hoping for Coronavirus Recovery, UK PM Johnson Sets Out Infrastructure Plans**\
+`Prime Minister Boris Johnson set out plans on Tuesday to try to spur Britain's economy, promising to fast-track 5 billion pounds ($6.15 billion) of infrastructure investment and to "build, build, build" out of the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-britain-johnson-plan.html?searchResultPosition=7
 
-**China 'Does Not Share Our Values', NATO Chief Says**\
-`NATO Secretary-General Jens Stoltenberg on Tuesday joined international outcry at China's security law for Hong Kong, saying China was undermining Hong Kong's autonomy.`\
-https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-china-hongkong-security-nato.html?searchResultPosition=8
+**This Is the Moment to Address Decades-Old Problems, UK PM Johnson Says**\
+`Prime Minister Boris Johnson said on Tuesday that Britain must seize the moment in the wake of the COVID-19 pandemic to fix decades-old problems and narrow the productivity gap with its competitors. `\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-britain-johnson-productivity.html?searchResultPosition=8
 
-**Russia Accuses U.S. of 'Destructive' Stance on Nuclear-Test Ban Treaty**\
-`Russia's foreign ministry accused the United States on Tuesday of taking a "destructive" stance over the Comprehensive Nuclear-Test Ban Treaty (CTBT) and of preparing for a possible resumption of nuclear testing.`\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-russia-usa-nuclear.html?searchResultPosition=9
+**Slumping Fleet Sales Weigh on U.S. Auto Market**\
+`Collapsing demand from rental car companies, corporations and government agencies has sapped U.S. auto sales during the coronavirus pandemic and a recovery will likely be slow, threatening auto workers whose jobs depend on fleet sales.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-usa-autos-fleet-sales-analysis.html?searchResultPosition=9
 
-**DealBook: Exclusive — Netflix’s Big Idea to Support Black Communities**\
-`The streaming company will shift some of its $5 billion in cash to financial institutions that focus on black communities.`\
-https://nytimes.com/2020/06/30/business/dealbook/netflix-black-owned-banks.html?searchResultPosition=10
+**Uber Bus Just Around the Corner on Post-Pandemic Public Transit Map**\
+`Urban transportation's transformation has shifted up a gear as the coronavirus crisis turns travel habits on their head, with Uber making allies of public transit systems by now offering to sell them its software expertise.`\
+https://nytimes.com/reuters/2020/06/30/business/30reuters-uber-transit-focus.html?searchResultPosition=10
 
