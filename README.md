@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/06/30/business/30reuters-global-markets-disconn
 `British Prime Minister Boris Johnson unveiled new planning rules on Tuesday to boost the number of homes and allow commercial premises to be repurposed more easily, part of a package to spur the coronavirus-hit economy.`\
 https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-britain-johnson-planning.html?searchResultPosition=6
 
-**Factbox: Hoping for Coronavirus Recovery, UK PM Johnson Sets Out Infrastructure Plans**\
+**Hoping for Coronavirus Recovery, UK PM Johnson Sets Out Infrastructure Plans**\
 `Prime Minister Boris Johnson set out plans on Tuesday to try to spur Britain's economy, promising to fast-track 5 billion pounds ($6.15 billion) of infrastructure investment and to "build, build, build" out of the coronavirus crisis.`\
 https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-britain-johnson-plan.html?searchResultPosition=7
 
