@@ -1,16 +1,16 @@
-**High Court Sparks New Battle Over Church-State Separation**\
-`The Supreme Court elated religious freedom advocates and alarmed secular groups with its Tuesday ruling on public funding for religious education, a decision whose long-term effect on the separation of church and state remains to be seen.`\
-https://nytimes.com/aponline/2020/06/30/us/ap-us-rel-supreme-court-school-choice-impact.html?searchResultPosition=7
-
 **Oklahoma Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/30/us/elections/results-oklahoma-house-district-4-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/30/us/elections/results-oklahoma-house-district-4-primary-election.html?searchResultPosition=7
 
-**Oklahoma Primary Election Results: Fifth Congressional District**\
+**Oklahoma U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/30/us/elections/results-oklahoma-house-district-5-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/30/us/elections/results-oklahoma-senate-primary-election.html?searchResultPosition=8
 
-**Utah Primary Election Results: First Congressional District**\
+**Live: Utah State Primary Election Results 2020**\
 ``\
-https://nytimes.com/interactive/2020/06/30/us/elections/results-utah-house-district-1-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/30/us/elections/results-utah-primary-elections.html?searchResultPosition=9
+
+**Oklahoma Primary Election Results: Second Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/30/us/elections/results-oklahoma-house-district-2-primary-election.html?searchResultPosition=10
 
