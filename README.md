@@ -1,16 +1,16 @@
-**NBA to Stop Season if Virus Spreads**\
-`Spread of the coronavirus would prompt the NBA to stop the 2019-20 season, commissioner Adam Silver said Tuesday.`\
-https://nytimes.com/reuters/2020/06/30/sports/basketball/30reuters-basketball-nba-silver-coronavirus.html?searchResultPosition=7
+**Advertiser Exodus Snowballs as Facebook Struggles to Ease Concerns**\
+`The social network has tried striking a more conciliatory tone with its advertisers, who object to its handling of hate speech.`\
+https://nytimes.com/2020/06/30/technology/facebook-advertising-boycott.html?searchResultPosition=7
 
-**‘Welcome to Chechnya’ Review: A Vital Indictment of Mass Persecution**\
-`David France’s documentary follows a group of courageous Russian activists working to rescue victims of an anti-L.G.B.T.Q. crackdown.`\
-https://nytimes.com/2020/06/30/movies/welcome-to-chechnya-review.html?searchResultPosition=8
+**After #OscarsSoWhite, the Academy Meets Goal to Diversify Membership**\
+`The number of Oscar voters of color has tripled in the last four years, while the number of women has doubled. Still, the group skews heavily white and male.`\
+https://nytimes.com/2020/06/30/movies/academy-oscars-new-members.html?searchResultPosition=8
 
-**U.N. Backs Changes to Aviation Emissions Scheme in Boost for Airlines**\
-`A UN agency agreed on Tuesday to change a landmark aviation emissions scheme, in a boost for airlines who said they could face billions of dollars in higher offsetting costs under the current deal when air travel recovers from the coronavirus.`\
-https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-climate-change-aviation.html?searchResultPosition=9
+**After a Staggering Rally, What’s Next for Stocks?**\
+`A lot will depend on what companies have to say about how their businesses are faring. Many have skipped giving quarterly earnings guidance in recent months.`\
+https://nytimes.com/2020/06/30/business/stock-market-earnings-coronavirus.html?searchResultPosition=9
 
-**White Florida Officer Charged in Shoving of Black Woman**\
-`A white Florida police officer was charged with battery Tuesday for allegedly shoving a kneeling Black woman to the ground during a protest march last month, prosecutors said.`\
-https://nytimes.com/aponline/2020/06/30/us/ap-us-racial-injustice-florida.html?searchResultPosition=10
+**Tennessee: Some First-Time Voters Can't Cast Absentee Ballot**\
+`Tennessee officials say they plan to enforce a requirement that first-time voters who register by mail cast their ballots in person, despite a judge's ruling that allows all eligible voters to cast absentee ballots during the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/06/30/us/ap-us-virus-outbreak-tennessee-voting.html?searchResultPosition=10
 
