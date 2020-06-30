@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/06/29/sports/baseball/ap-bba-virus-outbreak-bl
 https://nytimes.com/reuters/2020/06/29/sports/29reuters-basketball-nba-blm-disney-courts.html?searchResultPosition=8
 
 **Francis Bacon Triptych Sells for $84.6 Million**\
-`Sotheby’s tests a new hybrid auction market with a  work by the British painter — and socially-distanced bid-takers around the world.`\
+`Sotheby’s tests a new hybrid auction market with a  work by the British painter — and socially-distanced bid-takers in three cities.`\
 https://nytimes.com/2020/06/29/arts/design/sothebys-online-auction-francis-bacon.html?searchResultPosition=9
 
 **Nets G Dinwiddie Tests Positive for COVID-19**\
