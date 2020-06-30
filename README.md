@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-hongkong-protests-wo
 https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-health-coronavirus-china-pigs.html?searchResultPosition=8
 
 **With Restrictions, Fans Set to Return to SKorean Baseball**\
-`South Korea’s professional baseball league says it will require fans to wear masks, sit at least a seat apart and prohibit them from eating food in the stands as it prepares to bring back spectators in the coming weeks amid the coronavirus pandemic. `\
+`South Korea’s professional baseball league says it will require fans to wear masks and to sit at least a seat apart as it prepares to bring back spectators in the coming weeks amid the coronavirus pandemic. `\
 https://nytimes.com/aponline/2020/06/29/sports/baseball/ap-bbo-south-korea-fans-to-return.html?searchResultPosition=9
 
 **Japan Calls China's Reported Move on Hong Kong 'Regrettable'**\
