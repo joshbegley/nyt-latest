@@ -1,16 +1,16 @@
+**Utah Primary Election Results: Fourth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/30/us/elections/results-utah-house-district-4-primary-election.html?searchResultPosition=7
+
+**Live: Utah State Primary Election Results 2020**\
+``\
+https://nytimes.com/interactive/2020/06/30/us/elections/results-utah-primary-elections.html?searchResultPosition=8
+
+**Oklahoma U.S. Senate Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/06/30/us/elections/results-oklahoma-senate-primary-election.html?searchResultPosition=9
+
 **Oklahoma Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/30/us/elections/results-oklahoma-house-district-4-primary-election.html?searchResultPosition=7
-
-**Colorado Primary Election Results: Third Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/30/us/elections/results-colorado-house-district-3-primary-election.html?searchResultPosition=8
-
-**Oklahoma Primary Election Results: Second Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/30/us/elections/results-oklahoma-house-district-2-primary-election.html?searchResultPosition=9
-
-**Oklahoma Primary Election Results: Fifth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/30/us/elections/results-oklahoma-house-district-5-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/30/us/elections/results-oklahoma-house-district-4-primary-election.html?searchResultPosition=10
 
