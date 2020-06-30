@@ -1,16 +1,16 @@
-**Google Hikes YouTube TV Price to $64.99**\
-`Alphabet Inc's Google said on Tuesday that it has raised the price of its YouTube TV online service by 30% to $64.99 per month, citing rising cost of content.`\
-https://nytimes.com/reuters/2020/06/30/technology/30reuters-alphabet-youtubetv-prices.html?searchResultPosition=7
+**Three Deadly Blasts Rock Ethiopian Capital During Protests: Police**\
+`Three blasts injured and killed an unspecified number of people in the Ethiopian capital on Tuesday during protests sparked by the death of a popular singer, federal police commissioner told state news agencies.`\
+https://nytimes.com/reuters/2020/06/30/world/africa/30reuters-ethiopia-protests-police.html?searchResultPosition=7
 
-**Doping: China Anti-Doping Official Urges WADA and U.S. to End Feud**\
-`A leading anti-doping official from China urged the World Anti-Doping Agency (WADA) and U.S. anti-doping authorities to end their escalating feud on Tuesday, saying collaboration was the best way to achieve drug-free sport.`\
-https://nytimes.com/reuters/2020/06/30/sports/30reuters-sport-doping-wada.html?searchResultPosition=8
+**Canada Extends COVID-19 International Border Closures, Mandatory Quarantine Order**\
+`Canada is extending a global travel ban and mandatory quarantine measures that require most travelers to Canada, including citizens returning home, to self-isolate for 14 days upon arrival, the Canadian government said on Tuesday. `\
+https://nytimes.com/reuters/2020/06/30/world/americas/30reuters-health-coronavirus-canada.html?searchResultPosition=8
 
-**Blazers to Sign PG Adams-Report**\
-`The Portland Trail Blazers plan to sign point guard Jaylen Adams ahead of the NBA's restart in Orlando, Fla., ESPN's Adrian Wojnarowski reported Tuesday.`\
-https://nytimes.com/reuters/2020/06/30/sports/30reuters-basketball-nba-por-adams.html?searchResultPosition=9
+**India Deploys Helicopter, 12 Drones to Stop Fast-Spreading Locusts**\
+`India on Tuesday deployed a helicopter and a dozen drones spraying insecticide to stop desert locusts that have spread to nine heartland states of the world's second-biggest producer of rice and wheat.`\
+https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-india-locusts.html?searchResultPosition=9
 
-**Ralph Nader: Put the Health Professionals in Charge**\
-`The consumer advocate calls on the president and the vice president to stand aside in the pandemic fight. Also: Removing Woodrow Wilson’s name; an immigrant’s story; keep your eyes on the child.`\
-https://nytimes.com/2020/06/30/opinion/letters/coronavirus-ralph-nader.html?searchResultPosition=10
+**Sahel States, International States to Intensify Military Push Against Jihadists: Communique**\
+`International and regional powers on Tuesday agreed to intensify their military efforts against Islamist militants in the West African Sahel region after a summit to discuss their next steps, according to a final communique.`\
+https://nytimes.com/reuters/2020/06/30/world/africa/30reuters-sahel-security-communique.html?searchResultPosition=10
 
