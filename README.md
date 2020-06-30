@@ -1,24 +1,24 @@
+**Nigeria's WTO Nominee Says Has 'Strong Support' From Africa**\
+`Nigeria's candidate to head the World Trade Organization (WTO) said she feels "strong support" from Africa and expects African leaders to unite behind one candidate as sources following the race said she is gaining broader backing.`\
+https://nytimes.com/reuters/2020/06/30/world/30reuters-trade-wto-nigeria.html?searchResultPosition=5
+
+**Factbox: Who's Bidding to Be Next World Trade Organization Chief?**\
+`The World Trade Organization (WTO) began the process this month of selecting a new director-general to replace Brazil's Roberto Azevedo, who is stepping down on Aug. 31, a year early.`\
+https://nytimes.com/reuters/2020/06/30/world/30reuters-trade-wto-factbox.html?searchResultPosition=6
+
+**Police Operation Under Way at Paris Shopping Centre**\
+`A police operation was under way at 'Les Quatre Temps' shopping centre in La Defense business area in western Paris on Tuesday, the city's police department said on Twitter.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-france-security.html?searchResultPosition=7
+
+**South Africa's Economy Contracts 2% in the First Quarter as Recession Deepens**\
+`South Africa's gross domestic product contracted 2.0% in the first quarter of 2020, following a contraction of 1.4% in the final quarter of last year when the economy entered recession, data from Statistics South Africa showed on Tuesday.`\
+https://nytimes.com/reuters/2020/06/30/world/africa/30reuters-safrica-economy-gdp.html?searchResultPosition=8
+
+**Top Diplomats From US and Iran at UN on Iran Nuclear Deal**\
+`U.S. Secretary of State Mike Pompeo and Iran’s Foreign Minister Mohammed Javad Zarif are scheduled to address a U.N. Security Council meeting Tuesday on the implementation of the 2015 Iran nuclear deal — the accord that the Trump administration pulled out of more than two years ago.`\
+https://nytimes.com/aponline/2020/06/30/world/middleeast/ap-un-iran-us.html?searchResultPosition=9
+
 **Putin to Address Russians on TV Amid Vote on His Rule, Kremlin Says**\
 `President Vladimir Putin will make a televised address to the Russian nation on Tuesday ahead of the final day of a nationwide vote on reforms that could extend his rule, the Kremlin said. `\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-russia-putin-kremlin.html?searchResultPosition=5
-
-**Federated Hermes Questions HSBC's Stance on Hong Kong Law**\
-`HSBC investor Federated Hermes said it has questions about the bank's support for China's new security law for Hong Kong, the second investor in Europe's biggest bank in recent weeks to voice concerns about the lender's stance. `\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-china-hongkong-strategy-hsbc-investor.html?searchResultPosition=6
-
-**Coronavirus Strikes Down Global M&A as Companies Keep Their Distance**\
-`Global M&A activity tumbled to its lowest level in more than a decade in the second quarter, according to data provider Refinitiv, as companies gave up on expansion plans to focus on protecting their balance sheets and employees in the wake of the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-global-m-a.html?searchResultPosition=7
-
-**Leaders of Russia, Turkey, Iran to Discuss Syria on Wednesday, Kremlin Says**\
-`Russian President Vladimir Putin, Turkey's Tayyip Erdogan and Iran's Hassan Rouhani will hold a video conference on Wednesday to discuss the conflict in Syria, the Kremlin said on Tuesday.     `\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-syria-security-kremlin.html?searchResultPosition=8
-
-**Stock Markets in Europe Dip After U.K. Data Release: Live Updates**\
-`The latest on stock market and business news during the coronavirus outbreak.`\
-https://nytimes.com/2020/06/30/business/stock-market-today-coronavirus.html?searchResultPosition=9
-
-**Supreme Court's Abortion Ruling Raises Stakes for Election**\
-`Supporters of abortion rights are elated, foes of abortion dismayed and angry, but they agree on one consequence of the Supreme Court’s first major abortion ruling since President Donald Trump took office: The upcoming election is crucial to their cause.`\
-https://nytimes.com/aponline/2020/06/30/us/ap-us-supreme-court-abortion-whats-next.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-russia-putin-kremlin.html?searchResultPosition=10
 
