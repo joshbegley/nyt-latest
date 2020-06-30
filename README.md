@@ -1,24 +1,24 @@
-**Singapore Election Campaign Begins, PM's Brother Not Running**\
-`Singapore Prime Minister Lee Hsien Loong's estranged brother is not running in next month's general election but said Tuesday he hopes to be a “catalyst for change" as campaigning began.`\
-https://nytimes.com/aponline/2020/06/30/world/asia/ap-as-singapore-elections.html?searchResultPosition=5
+**Belgian King Expresses Deep Regret for Colonial Past in Congo**\
+`Belgium's King Philippe expressed deep regret on Tuesday for the "suffering and humiliation" inflicted on the Democratic Republic of the Congo (DRC) during its 75-year period under Belgian rule.`\
+https://nytimes.com/reuters/2020/06/30/world/africa/30reuters-belgium-congo-king.html?searchResultPosition=5
 
-**Taliban Say Afghan Peace Effort Figured in Video Talks With U.S.'s Pompeo**\
-`The head of the Taliban's political office in Doha and U.S. Secretary of State Mike Pompeo held a video conference to discuss the Afghan peace process, the Islamist group said on Tuesday, in a bid to remove hurdles in the path to peace talks.`\
-https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-afghanistan-taliban-usa.html?searchResultPosition=6
+**Indonesia Reports Biggest Daily Rise in Coronavirus Deaths**\
+`Indonesia reported on Tuesday its biggest rise in coronavirus deaths with 71 new fatalities, taking the total to 2,876, said health ministry official Achmad Yurianto.`\
+https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-health-coronavirus-indonesia.html?searchResultPosition=6
 
-**Cerberus Wants Well More Than 7,000 Job Cuts at Commerzbank-Source**\
-`Cerberus wants Commerzbank to cut far more than 7,000 jobs as part of the bank's efforts to trim costs, a person familiar with the matter said on Tuesday. `\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-commerzbank-jobs-cerberus-capital.html?searchResultPosition=7
+**‘Big Drip’: How Brooklyn Drill Went Global**\
+`A hyper-local strain of hip-hop that started in Chicago was tweaked by bedroom producers in the United Kingdom before taking over Brooklyn. Now it’s the soundtrack to a summer of unrest. The latest episode of Diary of a Song breaks down “Big Drip,” one of drill’s defining anthems.`\
+https://nytimes.com/video/arts/music/100000007062892/big-drip-fivio-foreign-brooklyn-drill.html?searchResultPosition=7
 
-**Airbus to Announce Restructuring on Tuesday, Union Sources Say**\
-`Airbus will announce restructuring plans expected to include thousands of job cuts later on Tuesday after markets close, union sources said.`\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-airbus-restructuring.html?searchResultPosition=8
+**Swarms of Locusts Devastate Parts of Northern Kenya**\
+`The branches on trees around Kenya's northern town of Lodwar have been stripped bare of leaves, bending downwards under the weight of voracious young locusts.`\
+https://nytimes.com/reuters/2020/06/30/world/africa/30reuters-kenya-locusts-turkana.html?searchResultPosition=8
 
-**UK PM Johnson's Answer to COVID-19 Downturn: 'Build, Build, Build'**\
-`British Prime Minister Boris Johnson will set out plans to spend the economy out of its coronavirus-induced crisis with a speech on Tuesday promising to fast-track 5 billion pounds ($6.15 billion) of infrastructure investment.`\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-britain-johnson.html?searchResultPosition=9
+**India's Daily Coronavirus Cases at About 20,000 as Some Cities Extend Lockdowns**\
+`Several Indian cities prepared to extend their lockdowns to combat the spread of the novel coronavirus on Tuesday, as daily cases in the country remained close to 20,000.`\
+https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-health-coronavirus-cases-india.html?searchResultPosition=9
 
-**China Study Warns of Possible New 'Pandemic Virus' From Pigs**\
-`A new flu virus found in Chinese pigs has become more infectious to humans and needs to be watched closely in case it becomes a potential "pandemic virus", a study said, although experts said there is no imminent threat.`\
-https://nytimes.com/reuters/2020/06/30/world/asia/30reuters-health-coronavirus-china-pigs.html?searchResultPosition=10
+**‘Intelligent’ or ‘Strong’: Study Finds Bias in Soccer Broadcasts**\
+`An analysis sponsored by a union of English soccer professionals concluded that there was racial bias in the way European commentators talk about players.`\
+https://nytimes.com/2020/06/30/sports/soccer/soccer-racism-broadcasting.html?searchResultPosition=10
 
