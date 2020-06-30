@@ -10,7 +10,7 @@ https://nytimes.com/aponline/2020/06/29/us/ap-us-alaska-whale-collision.html?sea
 `China's parliament passed national security legislation for Hong Kong on Tuesday, the city's Cable TV reported, setting the stage for the most radical change to the former British colony's way of life since it returned to Chinese rule in 1997. `\
 https://nytimes.com/reuters/2020/06/29/world/asia/29reuters-china-hongkong-security.html?searchResultPosition=7
 
-**Los Angeles Announces 'Hard Pause' on Movie Theater Reopenings in Biggest U.S. Market**\
+**Los Angeles Delays Movie Theater Reopenings After Rise in Coronavirus Cases**\
 `Los Angeles Mayor Eric Garcetti on Monday announced he was taking a "hard pause" on when movie theaters in the city can reopen, citing an increase in coronavirus cases.`\
 https://nytimes.com/reuters/2020/06/29/arts/29reuters-health-coronavirus-movie-theaters.html?searchResultPosition=8
 
