@@ -1,24 +1,24 @@
+**U.S. Senator Grassley Backs Plan to Block EPA Nomination Over Biofuel Waivers**\
+`U.`\
+https://nytimes.com/reuters/2020/06/30/us/30reuters-usa-biofuels-grassley.html?searchResultPosition=5
+
+**Factbox: Trump and Biden Divided on Race, Criminal Justice Policies**\
+`Republican President Donald Trump and his Democratic opponent, Joe Biden, have contrasting views and records on criminal justice and the U.S. racial divide, issues that have risen in prominence in the 2020 election.`\
+https://nytimes.com/reuters/2020/06/30/us/politics/30reuters-usa-election-race-factbox.html?searchResultPosition=6
+
+**Former Atlanta Officer Charged With Killing Black Man to Face Judge in Bail Hearing**\
+`A former Atlanta police officer who shot a Black man twice in the back, touching off mass demonstrations and the burning of the fast-food restaurant where the killing occurred, is scheduled to face a judge on Tuesday for a bond hearing.`\
+https://nytimes.com/reuters/2020/06/30/us/30reuters-minneapolis-police-atlanta.html?searchResultPosition=7
+
+**Trump Must Have Been Aware of Russia Bounty Allegation, Democratic Lawmaker Says**\
+`President Donald Trump must have at least been aware of the allegation that Russia paid bounties to Taliban insurgents in Afghanistan to kill U.S.-led coalition troops, a senior Democratic lawmaker said on Tuesday after a White House briefing.`\
+https://nytimes.com/reuters/2020/06/30/us/politics/30reuters-usa-afghanistan-russia-smith.html?searchResultPosition=8
+
+**Florida Takes Step to Protect Coast From Rising Sea Levels**\
+`Further acknowledging that climate change is a growing concern in his state, Florida Gov. Ron DeSantis has signed into law a measure requiring public coastal construction projects to first be reviewed for impacts on the state's fragile seashore because of rising sea levels.`\
+https://nytimes.com/aponline/2020/06/30/us/ap-us-climate-change-florida.html?searchResultPosition=9
+
 **Hong Kong's BOC Aviation Cancels 30 Boeing 737 Max Aircraft Orders**\
 `Hong Kong's BOC Aviation said on Tuesday it had cancelled an order for 30 of Boeing Co's 737 MAX planes, the model that was involved in two fatal crashes.`\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-boc-aviation-boeing-orders.html?searchResultPosition=5
-
-**NY Fed's Williams Says Full Recovery Will Likely Take Years**\
-`The U.S. economy is showing signs of a turnaround as businesses reopen, but the pace of the recovery is being slowed by large-scale outbreaks in some states and it could be years before the economy is back at full strength, New York Federal Reserve Bank President John Williams said Tuesday. `\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-usa-fed-williams.html?searchResultPosition=6
-
-**Eight States Added to New York Governor's Quarantine Order**\
-`People arriving in New York from an additional eight states must quarantine themselves for 14 days amid the coronavirus pandemic, New York Governor Andrew Cuomo ordered on Tuesday.`\
-https://nytimes.com/reuters/2020/06/30/us/30reuters-health-coronavirus-usa-new-york.html?searchResultPosition=7
-
-**UK Confirmed COVID Death Toll Rises by 155 to 43,730**\
-`The death toll from confirmed cases of COVID-19 in the United Kingdom rose by 155 to 43,730, health officials said on Tuesday.`\
-https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-health-coronavirus-britain-toll.html?searchResultPosition=8
-
-**U.S. Coronavirus Cases Double in June In at Least 10 States**\
-`Coronavirus cases more than doubled in at least 10 U.S. states, including Florida and Texas in the month of June, a Reuters analysis on Tuesday showed.`\
-https://nytimes.com/reuters/2020/06/30/us/30reuters-health-coronavirus-usa-june.html?searchResultPosition=9
-
-**WHO Director Says Relaxing COVID-19 Measures Too Soon Can Bring Renewed Surge**\
-`Countries, states and cities that relax restrictions too soon can be flooded with new COVID-19 cases, the World Health Organization's regional director for the Americas, Carissa Etienne, warned on Tuesday in a virtual briefing from Washington.`\
-https://nytimes.com/reuters/2020/06/30/world/americas/30reuters-health-coronavirus-latam.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/06/30/business/30reuters-boc-aviation-boeing-orders.html?searchResultPosition=10
 
