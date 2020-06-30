@@ -1,16 +1,16 @@
-**Airbus Plans to Cut Jobs Right Across Its UK Operation: Union**\
-`Plans by Airbus to cut 1,700 UK jobs will affect its operations across Britain including its two biggest factories, the Unite union said on Tuesday, as it re-iterated a call for government support for the sector.`\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-airbus-restructuring-britain-unite.html?searchResultPosition=7
+**Ralph Nader: Put the Health Professionals in Charge**\
+`The consumer advocate calls on the president and the vice president to stand aside in the pandemic fight. Also: Removing Woodrow Wilson’s name; an immigrant’s story; keep your eyes on the child.`\
+https://nytimes.com/2020/06/30/opinion/letters/coronavirus-ralph-nader.html?searchResultPosition=7
 
-**Airbus Needs to Revise 'Excessive' Job Cuts Plan: French Finance Ministry**\
-`European planemaker Airbus' plans to shed 15,000 jobs are "excessive" and need to be revised, a French Finance Ministry source said on Tuesday after the announced cuts.`\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-airbus-restructuring-france.html?searchResultPosition=8
+**Lufthansa Says CEO to Assume Additional Responsibility for Finances**\
+`Deutsche Lufthansa said Chief Executive Carsten Spohr will assume additional responsibility for the airline's finances after the departure of fellow executive board member Thorsten Dirks.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-lufthansa-board.html?searchResultPosition=8
 
-**Mexico Loses 12 Million Jobs, Workers in Informal Sector Grow**\
-`Twelve million Mexicans have lost their jobs since March as part of the economic fallout from the coronavirus, and the number of people working in the informal sector shot up significantly, official data showed on Tuesday.`\
-https://nytimes.com/reuters/2020/06/30/business/30reuters-mexico-unemployment.html?searchResultPosition=9
+**Democratic Presidential Candidate Biden Says He Is Targeting Early August to Announce His Vice Presidential Pick**\
+`Democratic presidential candidate Joe Biden said on Tuesday he hoped to announce his choice of vice presidential candidate in early August.`\
+https://nytimes.com/reuters/2020/06/30/us/politics/30reuters-usa-election-vice-president.html?searchResultPosition=9
 
-**Johnny Mandel, the Oscar- and Grammy- Winning Composer, Dies**\
-`Johnny Mandel, the Oscar- and Grammy-winning composer, arranger and musician who worked on albums by Frank Sinatra, Natalie Cole and many others and whose songwriting credits included “The Shadow of Your Smile” and the theme from the film and TV show “M(asterisk)A(asterisk)S(asterisk)H,” has died.`\
-https://nytimes.com/aponline/2020/06/30/us/ap-us-obit-johnny-mandel-.html?searchResultPosition=10
+**Bulgaria Expects Budget Surplus of 1.3% of GDP at End-June**\
+`Bulgaria expects to have a fiscal surplus equal to 1.3% of gross domestic product in the first half of the year, compared with a surplus of 2.7% over the same period a year ago, the finance ministry said on Tuesday.`\
+https://nytimes.com/reuters/2020/06/30/world/europe/30reuters-bulgaria-budget.html?searchResultPosition=10
 
