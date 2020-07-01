@@ -1,40 +1,40 @@
-**Myanmar to Hold Parliamentary Election in November-State Media**\
-`Myanmar state media on Wednesday announced Nov. 8 as the date for a parliamentary general election set to serve as a test of the country’s first democratic government in half a century.`\
-https://nytimes.com/reuters/2020/07/01/world/asia/01reuters-myanmar-election.html?searchResultPosition=1
+**How to Make Your Tech Last Longer**\
+`In a pandemic-induced recession, it’s more important than ever to take care of our smartphones and other gadgets.`\
+https://nytimes.com/2020/07/01/technology/personaltech/make-your-tech-last-longer.html?searchResultPosition=1
 
-**France Says Israeli Annexation of West Bank 'Could Not Be Left Without Consequences'**\
-`France's foreign minister said on Wednesday that any Israeli  annexation in the occupied West Bank would be in violation of international law and would have consequences.`\
-https://nytimes.com/reuters/2020/07/01/world/middleeast/01reuters-israel-palestinians-annexation-france.html?searchResultPosition=2
+**15 Songs That Shook New York’s Queer Dance Floors in the 1970s and ’80s**\
+`During this fertile period the way revelers received dance music — and what was considered dance music — shifted as new kinds of spaces geared toward L.G.B.T.Q. participants multiplied.`\
+https://nytimes.com/2020/07/01/arts/music/queer-disco-playlist.html?searchResultPosition=2
 
-**US Manufacturing Bounces Back in June on Reopenings**\
-`U.S. manufacturing rebounded in June as major parts of the country opened back up, ending three months of contraction in the sector caused by the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/07/01/business/bc-economy-manufacturing.html?searchResultPosition=3
-
-**Kissing Off Menu as Lockdown Ends for Dutch Sex Workers**\
-`Dutch sex workers welcomed customers back on Wednesday as the Netherlands further eased coronavirus measures, but they were advised to avoid heavy breathing and kissing to help reduce the risk of transmitting COVID-19.`\
-https://nytimes.com/reuters/2020/07/01/world/europe/01reuters-health-coronavirus-netherlands-redlight.html?searchResultPosition=4
-
-**AP Interview: Hong Kong Media Tycoon Says City Now 'Dead'**\
-`When Hong Kong media tycoon Jimmy Lai arrived in Hong Kong at age 12, the city felt like heaven to him, brimming with hope and freedom.`\
-https://nytimes.com/aponline/2020/07/01/business/ap-as-hong-kong-jimmy-lai-interview.html?searchResultPosition=5
-
-**Live: Kentucky State Primary Election Results 2020**\
+**New York Primary Election Results: 25th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-primary-elections.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=3
 
-**Virginia Democratic Primary Election Results: Fourth Congressional District**\
+**New York Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-4-primary-election.html?searchResultPosition=4
 
-**Kentucky Primary Election Results: Second Congressional District**\
+**New York Primary Election Results: 22nd Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-2-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=5
 
-**Virginia U.S. Senate Primary Election Results**\
+**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=6
 
-**New York Primary Election Results: 24th Congressional District**\
+**Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=7
+
+**New York Presidential Democratic Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-president-democrat-primary-election.html?searchResultPosition=8
+
+**Kentucky Primary Election Results: Fourth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=9
+
+**New York Primary Election Results: 11th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=10
 
