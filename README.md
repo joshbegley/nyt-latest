@@ -1,30 +1,30 @@
+**Mali Opposition Seeks to Curb President's Authority in Reform Plan**\
+`Opponents of Mali's President Ibrahim Boubacar Keita on Wednesday sought to end a political crisis by proposing reforms to neuter his authority and hand executive power to a prime minister, although they abandoned a demand for his resignation.`\
+https://nytimes.com/reuters/2020/07/01/world/africa/01reuters-mali-politics.html?searchResultPosition=1
+
 **Virginia Democratic Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=2
 
 **New York Primary Election Results: 22nd Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=3
 
 **New York Special Election Results: 27th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-27-special-general-election.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-27-special-general-election.html?searchResultPosition=4
 
 **New York Primary Election Results: First Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=5
 
 **Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=6
 
 **North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=6
-
-**New York Primary Election Results: 25th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=7
 
 **Virginia U.S. Senate Primary Election Results**\
 ``\
@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-
 ``\
 https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=9
 
-**New York Primary Election Results: 12th Congressional District**\
+**New York Primary Election Results: 25th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-12-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=10
 
