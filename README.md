@@ -1,40 +1,40 @@
-**Philippines Confirms 999 New Coronavirus Infections, Four More Deaths**\
-`The Philippines' health ministry on Wednesday reported 999 more coronavirus infections and four additional deaths.`\
-https://nytimes.com/reuters/2020/07/01/world/asia/01reuters-health-coronavirus-philippines-cases.html?searchResultPosition=1
+**Australian Rules-Players Face Deadline to Leave Melbourne COVID-19 Hotspots**\
+`Australian Football League (AFL) players living in Melbourne's COVID-19 "hotspots" face a midnight deadline to move to safer zones or face being excluded from matches due to tightening government restrictions, the AFL said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/01/sports/rugby/01reuters-health-coronavirus-australia-afl.html?searchResultPosition=1
 
-**Mahopac, N.Y.: A ‘Bedroom Community’ With an Elegant Past**\
-`If living in the Putnam County hamlet feels like being on vacation, that’s no accident: It was developed in the 19th century as a summer resort.`\
-https://nytimes.com/2020/07/01/realestate/mahopac-ny-a-bedroom-community-with-an-elegant-past.html?searchResultPosition=2
+**ECB Lowers Bar for Bank Mergers in Hope of Spurring Consolidation**\
+`The European Central Bank is lowering the bar for bank mergers in the euro zone, hoping to encourage an elusive wave of consolidation in a sector plagued by low profits and unresolved issues inherited from the last financial crisis.`\
+https://nytimes.com/reuters/2020/07/01/technology/01reuters-ecb-banks-m-a.html?searchResultPosition=2
 
-**Living In ... Mahopac, N.Y.**\
-`If living in the Putnam County hamlet feels like being on vacation, that’s no accident: It was developed in the 19th century as a summer resort.`\
-https://nytimes.com/slideshow/2020/07/01/realestate/living-in-mahopac-ny.html?searchResultPosition=3
+**Wirecard Headquarters Raided in Probe of Accounting Scandal**\
+`Investigators searched the headquarters of German payment systems provider Wirecard and four other locations Wednesday as part of their probe of an accounting scandal that led to the arrest of the company's longtime CEO and forced the firm to file for bankruptcy protection.`\
+https://nytimes.com/aponline/2020/07/01/business/bc-eu-germany-wirecard.html?searchResultPosition=3
 
-**A Nostalgic Look at Fourth of July Celebrations of Yesteryear**\
-`Viewed now in the midst of a pandemic, these archival Independence Day photographs — showing large crowds, close contact and communal celebrations — elicit an added measure of nostalgia.`\
-https://nytimes.com/2020/07/01/travel/independence-day-archival-photos.html?searchResultPosition=4
+**As China Strengthens Grip on Hong Kong, Taiwan Sees a Threat**\
+`The sweeping new security law in Hong Kong has further eroded what little support there was in Taiwan for unifying with the mainland.`\
+https://nytimes.com/2020/07/01/world/asia/taiwan-china-hong-kong.html?searchResultPosition=4
 
-**City That Once Guided a Nation Now Shows Its Cracks**\
-`Peoria, Ill., was a place where marketers and politicians honed their messages. The pandemic and protests have made clear the sharply different realities of its Black and white residents.`\
-https://nytimes.com/2020/07/01/business/protests-peoria.html?searchResultPosition=5
+**Virginia U.S. Senate Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=5
 
-**Why Surviving the Virus Might Come Down to Which Hospital Admits You**\
-`In New York City’s poor neighborhoods, some patients have languished in understaffed hospitals, with substandard equipment. It was a different story in Manhattan’s private medical centers.`\
-https://nytimes.com/2020/07/01/nyregion/Coronavirus-hospitals.html?searchResultPosition=6
+**Virginia Democratic Primary Election Results: Fourth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=6
 
-**Trump Wants a Backlash. Can He Whip One Into Shape?**\
-`Inevitably, the electorate’s response to the George Floyd protests has begun to run along familiar ideological fault lines.`\
-https://nytimes.com/2020/07/01/opinion/trump-floyd-protests-2020.html?searchResultPosition=7
+**Kentucky Primary Election Results: Fifth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-5-primary-election.html?searchResultPosition=7
 
-**Trump’s New Russia Problem: Unread Intelligence and Missing Strategy**\
-`High-level clearance is not required to see that the list of Russian aggressions in recent weeks rivals some of the worst days of the Cold War.`\
-https://nytimes.com/2020/07/01/us/politics/trump-putin-russia-taliban-bounty.html?searchResultPosition=8
+**New York Primary Election Results: 17th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-17-primary-election.html?searchResultPosition=8
 
-**‘A Conflicted Cultural Force’: What It’s Like to Be Black in Publishing**\
-`An author, literary agent, marketer, publicist, editors and booksellers talk about how race affects their careers — and the books you read.`\
-https://nytimes.com/2020/07/01/books/book-publishing-black.html?searchResultPosition=9
+**New York Presidential Democratic Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-president-democrat-primary-election.html?searchResultPosition=9
 
-**Red, White and Blue When You’re Black**\
-`“I support the protests but I feel like the biggest way I can support the cause and contribute is by keeping this Black-owned business open.”`\
-https://nytimes.com/2020/07/01/business/scratch-column-black-july-4.html?searchResultPosition=10
+**New York Primary Election Results: 25th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=10
 
