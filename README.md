@@ -1,40 +1,40 @@
+**U.S. Tells Japan It Hopes for In-Person G7 Summit in Late August, Japanese Sources Say**\
+`The United States has told Japan that it wants to organize an in-person Group of Seven leaders' summit in late August, two Japanese government sources with direct knowledge of the matter told Reuters on Wednesday.`\
+https://nytimes.com/reuters/2020/07/01/world/europe/01reuters-g7-summit-usa-japan.html?searchResultPosition=1
+
+**Germany Plans to Toughen Child Abuse Laws**\
+`The German government said Wednesday it's planning to toughen child sex abuse and child pornography laws, a move that comes after authorities uncovered a vast online child abuse network last year.`\
+https://nytimes.com/aponline/2020/07/01/world/europe/ap-eu-germany-child-abuse.html?searchResultPosition=2
+
+**Allianz to End Wirecard Cooperation Amid Accounting Scandal**\
+`Allianz said on Wednesday that it was ending its relationship with Wirecard Bank and removing from the market a mobile payment app that the two companies had developed.`\
+https://nytimes.com/reuters/2020/07/01/business/01reuters-wirecard-accounts-allianz.html?searchResultPosition=3
+
+**Kentucky Primary Election Results: Fourth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=4
+
+**New York Primary Election Results: First Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=5
+
+**New York Primary Election Results: 25th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=6
+
 **Virginia Democratic Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=1
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=7
 
 **New York Presidential Democratic Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-president-democrat-primary-election.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-president-democrat-primary-election.html?searchResultPosition=8
 
-**Virginia Democratic Primary Election Results: Fifth Congressional District**\
+**Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-5-democrat-primary-election.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=9
 
-**Virginia Primary Election Results: First Congressional District**\
+**New York Primary Election Results: 24th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-1-primary-election.html?searchResultPosition=4
-
-**Virginia Democratic Primary Election Results: 11th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-11-democrat-primary-election.html?searchResultPosition=5
-
-**New York Primary Election Results: Third Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-3-primary-election.html?searchResultPosition=6
-
-**New York Primary Election Results: 27th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-27-primary-election.html?searchResultPosition=7
-
-**New York Primary Election Results: 14th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-14-primary-election.html?searchResultPosition=8
-
-**Live: Virginia State Primary Election Results 2020**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-primary-elections.html?searchResultPosition=9
-
-**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=10
 
