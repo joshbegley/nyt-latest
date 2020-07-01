@@ -1,40 +1,40 @@
-**Colombia Tops 100,000 Coronavirus Cases, Nears 3,500 Deaths**\
-`Colombia's confirmed coronavirus infections tipped across the 100,000 case threshold on Wednesday, as the country's quarantine measures roll on and intensive care units fill.`\
-https://nytimes.com/reuters/2020/07/01/world/americas/01reuters-health-coronavirus-colombia.html?searchResultPosition=1
+**‘Denise Ho: Becoming the Song’ Review: Pop With a Message**\
+`This moving documentary profiles a singer who has become an influential activist in Hong Kong.`\
+https://nytimes.com/2020/07/01/movies/denise-ho-becoming-the-song-review.html?searchResultPosition=1
 
-**New York Primary Election Results: Sixth Congressional District**\
+**Virginia Primary Election Results: First Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-6-primary-election.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-1-primary-election.html?searchResultPosition=2
 
-**New York Primary Election Results: 10th Congressional District**\
+**New York Primary Election Results: 15th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-10-primary-election.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-15-primary-election.html?searchResultPosition=3
 
-**New York Primary Election Results: 27th Congressional District**\
+**Live: Kentucky State Primary Election Results 2020**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-27-primary-election.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-primary-elections.html?searchResultPosition=4
+
+**New York Primary Election Results: 24th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=5
 
 **Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=5
-
-**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=6
 
 **New York Presidential Democratic Primary Election Results**\
 ``\
 https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-president-democrat-primary-election.html?searchResultPosition=7
 
-**Kentucky Primary Election Results: Fourth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=8
-
-**New York Primary Election Results: First Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=9
-
 **New York Primary Election Results: 17th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-17-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-17-primary-election.html?searchResultPosition=8
+
+**Kentucky Primary Election Results: Fourth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=9
+
+**New York Primary Election Results: 11th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=10
 
