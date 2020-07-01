@@ -1,40 +1,40 @@
-**Australian Rules-Players Face Deadline to Leave Melbourne COVID-19 Hotspots**\
-`Australian Football League (AFL) players living in Melbourne's COVID-19 "hotspots" face a midnight deadline to move to safer zones or face being excluded from matches due to tightening government restrictions, the AFL said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/01/sports/rugby/01reuters-health-coronavirus-australia-afl.html?searchResultPosition=1
+**Analysis: No Wimbledon, Jumbled Season and 'Big 4' Legacies**\
+`It’s a complete guessing game, but it’s still fun to discuss: Will the legacies of the four most prominent and successful tennis players of today — and maybe ever — be affected by the coronavirus-interrupted 2020 season?`\
+https://nytimes.com/aponline/2020/07/01/sports/tennis/ap-ten-on-tennis-the-legacies.html?searchResultPosition=1
 
-**ECB Lowers Bar for Bank Mergers in Hope of Spurring Consolidation**\
-`The European Central Bank is lowering the bar for bank mergers in the euro zone, hoping to encourage an elusive wave of consolidation in a sector plagued by low profits and unresolved issues inherited from the last financial crisis.`\
-https://nytimes.com/reuters/2020/07/01/technology/01reuters-ecb-banks-m-a.html?searchResultPosition=2
+**Schools Reopen Across Thailand With Temperature Checks, Masks**\
+`Thai schools reopened on Wednesday for the first time since mid-March, with precautions in place to guard against the coronavirus, ranging from temperature checks to installing makeshift cubicles for social distancing in classrooms.  `\
+https://nytimes.com/reuters/2020/07/01/world/asia/01reuters-health-coronavirus-thailand-school.html?searchResultPosition=2
 
-**Wirecard Headquarters Raided in Probe of Accounting Scandal**\
-`Investigators searched the headquarters of German payment systems provider Wirecard and four other locations Wednesday as part of their probe of an accounting scandal that led to the arrest of the company's longtime CEO and forced the firm to file for bankruptcy protection.`\
-https://nytimes.com/aponline/2020/07/01/business/bc-eu-germany-wirecard.html?searchResultPosition=3
+**New York Primary Election Results: 22nd Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=3
 
-**As China Strengthens Grip on Hong Kong, Taiwan Sees a Threat**\
-`The sweeping new security law in Hong Kong has further eroded what little support there was in Taiwan for unifying with the mainland.`\
-https://nytimes.com/2020/07/01/world/asia/taiwan-china-hong-kong.html?searchResultPosition=4
+**Virginia Primary Election Results: Second Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-2-primary-election.html?searchResultPosition=4
+
+**Kentucky Primary Election Results: Second Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-2-primary-election.html?searchResultPosition=5
+
+**New York Primary Election Results: 24th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=6
+
+**New York Primary Election Results: First Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=7
+
+**New York Primary Election Results: 11th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=8
 
 **Virginia U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=9
 
-**Virginia Democratic Primary Election Results: Fourth Congressional District**\
+**Kentucky Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=6
-
-**Kentucky Primary Election Results: Fifth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-5-primary-election.html?searchResultPosition=7
-
-**New York Primary Election Results: 17th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-17-primary-election.html?searchResultPosition=8
-
-**New York Presidential Democratic Primary Election Results**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-president-democrat-primary-election.html?searchResultPosition=9
-
-**New York Primary Election Results: 25th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=10
 
