@@ -1,40 +1,40 @@
-**Analysis: Trump Fights to Keep a Job Dems Say He Isn't Doing**\
-`President Donald Trump is asking Americans to let him keep his job. His critics are questioning how much of that job he’s actually doing. `\
-https://nytimes.com/aponline/2020/07/01/us/politics/ap-us-trump-analysis-.html?searchResultPosition=1
-
-**Exclusive: Sears Exploring Sale of Home Improvement Business**\
-`Sears is exploring a sale of its home improvement business following interest from potential suitors such as private equity firms, people familiar with the matter said on Wednesday. `\
-https://nytimes.com/reuters/2020/07/01/us/01reuters-sears-homeservices-exclusive.html?searchResultPosition=2
-
-**New York Primary Election Results: 24th Congressional District**\
+**New York Primary Election Results: 25th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=3
-
-**Virginia Democratic Primary Election Results: Fourth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=1
 
 **Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=2
 
-**New York Primary Election Results: 25th Congressional District**\
+**Virginia Democratic Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=3
+
+**New York Primary Election Results: 24th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=4
 
 **New York Primary Election Results: 22nd Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=5
 
 **Virginia Democratic Primary Election Results: Fifth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-5-democrat-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-5-democrat-primary-election.html?searchResultPosition=6
+
+**Virginia Primary Election Results: Second Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-2-primary-election.html?searchResultPosition=7
+
+**Virginia Democratic Primary Election Results: 11th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-11-democrat-primary-election.html?searchResultPosition=8
 
 **Virginia Primary Election Results: First Congressional District**\
 ``\
 https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-1-primary-election.html?searchResultPosition=9
 
-**Virginia Democratic Primary Election Results: 11th Congressional District**\
+**New York Primary Election Results: 27th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-11-democrat-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-27-primary-election.html?searchResultPosition=10
 
