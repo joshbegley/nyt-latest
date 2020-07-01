@@ -1,22 +1,22 @@
-**Virginia Democratic Primary Election Results: Fifth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-5-democrat-primary-election.html?searchResultPosition=1
+**Michael Kors Owner Capri Forecasts 70% Fall in Current-Quarter Revenue**\
+`Michael Kors owner Capri Holdings Ltd on Wednesday forecast a larger-than-expected 70% drop in current-quarter revenue and "significant" losses, as the COVID-19 pandemic hammers demand for its luxury handbags and dresses. `\
+https://nytimes.com/reuters/2020/07/01/business/01reuters-capri-holdings-results.html?searchResultPosition=1
 
-**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
+**New York Primary Election Results: First Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=2
 
-**New York Primary Election Results: 17th Congressional District**\
+**New York Primary Election Results: 15th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-17-primary-election.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-15-primary-election.html?searchResultPosition=3
 
-**Virginia Democratic Primary Election Results: Fourth Congressional District**\
+**New York Primary Election Results: 13th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-13-primary-election.html?searchResultPosition=4
 
-**New York Primary Election Results: 24th Congressional District**\
+**Kentucky Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=5
 
 **Virginia Primary Election Results: Third Congressional District**\
 ``\
@@ -26,15 +26,15 @@ https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-d
 ``\
 https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=7
 
-**New York Primary Election Results: 22nd Congressional District**\
+**Virginia Democratic Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=8
 
-**Virginia Democratic Primary Election Results: 11th Congressional District**\
+**New York Primary Election Results: 17th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-11-democrat-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-17-primary-election.html?searchResultPosition=9
 
-**Virginia Primary Election Results: First Congressional District**\
+**Virginia U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-1-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=10
 
