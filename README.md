@@ -1,20 +1,20 @@
-**Date Set for Sentencing of New Zealand Mosque Shooter**\
-`The sentencing hearing for an Australian man accused of killing 51 Muslim worshippers in New Zealand’s worst mass shooting has been set to begin on Aug. 24, the court said on Friday. `\
-https://nytimes.com/reuters/2020/07/02/world/asia/02reuters-newzealand-shooting.html?searchResultPosition=6
+**Government Seeks to Halt Release of Noncitizen Who Served Terrorism Sentence**\
+`In a test of its power to impose indefinite detention, the administration asked two appeals courts to stop a lower court from freeing a stateless man who has completed his prison term.`\
+https://nytimes.com/2020/07/02/us/politics/adham-hassoun-detention.html?searchResultPosition=6
 
-**Golf: PGA Renames Horton Smith Award, Citing His Support for 'Caucasian-Only' Policy**\
-`The PGA of America Board of Directors said it had renamed its Horton Smith Award, which was named for a former PGA president who supported a "Caucasian-only" membership clause.`\
-https://nytimes.com/reuters/2020/07/02/sports/golf/02reuters-golf-pga.html?searchResultPosition=7
-
-**Kentucky Primary Election Results: Fourth Congressional District**\
+**New York Primary Election Results: 25th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=7
 
-**New York Primary Election Results: Ninth Congressional District**\
+**Kentucky U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-9-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-senate-primary-election.html?searchResultPosition=8
 
-**New York Primary Election Results: 22nd Congressional District**\
+**Live: South Carolina State Primary Runoff Election Results 2020**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-south-carolina-primary-runoff-elections.html?searchResultPosition=9
+
+**New York Primary Election Results: First Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=10
 
