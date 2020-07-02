@@ -1,16 +1,16 @@
-**NFLPA Hasn't Signed Off on Two-Game Preseason: Report**\
-`The NFL Players Association reportedly has not yet signed off on an abbreviated, two-game preseason.`\
-https://nytimes.com/reuters/2020/07/02/sports/football/02reuters-football-nfl-preseason.html?searchResultPosition=7
+**House Judiciary Panel to Interview Ousted NY Prosecutor**\
+`The ousted former U.S. attorney for Manhattan will sit down with the House Judiciary Committee next week for a closed-door interview as the panel investigates politicization in the Justice Department.`\
+https://nytimes.com/aponline/2020/07/02/us/politics/ap-us-manhattan-federal-prosecutor-congress.html?searchResultPosition=7
 
-**Chicago Adds 14-Day Quarantine for 'Surge' States Travelers**\
-`People traveling to Chicago from 15 states with increasing numbers of confirmed cases of the coronavirus will have to quarantine for two weeks upon arrival or face possible fines, city officials announced Thursday. `\
-https://nytimes.com/aponline/2020/07/02/business/ap-us-virus-outbreak-chicago.html?searchResultPosition=8
+**Governor Orders Texans to Wear Masks As Virus Cases Surge**\
+`Gov. Greg Abbott ordered residents to wear face coverings in public as the state confronts mounting coronavirus infections and pressure from local officials.`\
+https://nytimes.com/video/us/politics/100000007222170/texas-governor-coronavirus-masks.html?searchResultPosition=8
 
-**Delta Amends Credit Facility to Include Stricter Covenants**\
-`Delta Air Lines Inc said on Thursday it has amended its $2.65 billion credit facility agreement with covenants, which include restricting the U.S. airline's ability to pay dividends or repurchase stock before Sept. 30, 2021.`\
-https://nytimes.com/reuters/2020/07/02/us/02reuters-delta-air-credit.html?searchResultPosition=9
+**2 Arrested in Wendy's Fire After Rayshard Brooks' Shooting**\
+`Authorities on Thursday arrested two more people on suspicion of arson in the burning of an Atlanta Wendy's restaurant where a police officer fatally shot Rayshard Brooks.`\
+https://nytimes.com/aponline/2020/07/02/us/ap-us-police-shooting-atlanta.html?searchResultPosition=9
 
-**Colombia Captures Guerrillas Accused in Deadly Car Bombing**\
-`Members of E.L.N., a left-wing insurgency, were charged with taking part in the bombing of a police academy last year that killed 22 cadets, shaking a country emerging from a long civil war.`\
-https://nytimes.com/2020/07/02/world/americas/colombia-eln-bombing-arrests.html?searchResultPosition=10
+**New York Presidential Democratic Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-president-democrat-primary-election.html?searchResultPosition=10
 
