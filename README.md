@@ -1,36 +1,36 @@
-**New York Primary Election Results: Second Congressional District**\
+**Virginia U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-2-primary-election.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=2
 
-**New York Primary Election Results: Sixth Congressional District**\
+**New York Primary Election Results: 16th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-6-primary-election.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-16-primary-election.html?searchResultPosition=3
 
-**New York Special Election Results: 27th Congressional District**\
+**New York Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-27-special-general-election.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-3-primary-election.html?searchResultPosition=4
 
-**New York Primary Election Results: First Congressional District**\
+**Virginia Primary Election Results: Second Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-2-primary-election.html?searchResultPosition=5
 
-**New York Primary Election Results: 24th Congressional District**\
+**Live: South Carolina State Primary Runoff Election Results 2020**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/06/23/us/elections/results-south-carolina-primary-runoff-elections.html?searchResultPosition=6
 
-**New York Primary Election Results: Fourth Congressional District**\
+**Kentucky Primary Election Results: Sixth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-4-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-6-primary-election.html?searchResultPosition=7
 
-**New York Primary Election Results: 12th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-12-primary-election.html?searchResultPosition=8
+**Turkish Bad Loan Plan Raises Concerns Among Some Banks: Sources**\
+`Some Turkish banks are concerned that a "bad bank" plan to house billions of dollars of non-performing loans could require them to book large losses, and they want foreign stakeholders involved, seven industry sources told Reuters.`\
+https://nytimes.com/reuters/2020/07/02/business/02reuters-turkey-economy-bad-debt.html?searchResultPosition=8
 
-**New York Primary Election Results: 22nd Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=9
+**Britain 'Recognised' Guaido as Venezuela President: UK High Court**\
+`Britain has "recognised" Venezuela's opposition leader Juan Guaido as the country's president, the UK High Court has ruled, in case over who controls the country's gold reserves stored in London.`\
+https://nytimes.com/reuters/2020/07/02/business/02reuters-venezuela-gold-britain.html?searchResultPosition=9
 
-**New York Primary Election Results: Ninth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-9-primary-election.html?searchResultPosition=10
+**U.S. House Bill Targets Banks Amid Fears Over China Law for Hong Kong**\
+`The U.S. House of Representatives passed legislation on Wednesday that would penalize banks doing business with Chinese officials who implement Beijing's draconian new national security law imposed on the former British colony of Hong Kong.`\
+https://nytimes.com/reuters/2020/07/02/world/asia/02reuters-hongkong-protests-usa-sanctions.html?searchResultPosition=10
 
