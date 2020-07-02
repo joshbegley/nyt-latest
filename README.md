@@ -1,6 +1,6 @@
 **U.K. Grants Asylum to Ex-Consulate Worker Who Told of Torture in China**\
 `Simon Cheng was held during the height of the Hong Kong protests last year, and his treatment highlighted concerns about China’s legal system.`\
-https://nytimes.com/2020/07/01/world/asia/hong-kong-simon-chen-asylum-uk.html?searchResultPosition=2
+https://nytimes.com/2020/07/01/world/asia/hong-kong-simon-cheng-asylum-uk.html?searchResultPosition=2
 
 **New York Primary Election Results: 12th Congressional District**\
 ``\
