@@ -26,11 +26,11 @@ https://nytimes.com/aponline/2020/07/02/world/europe/ap-eu-germany-us-soldiers-i
 ``\
 https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-16-primary-election.html?searchResultPosition=8
 
-**Kentucky Primary Election Results: Second Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-2-primary-election.html?searchResultPosition=9
-
 **New York Primary Election Results: 10th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-10-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-10-primary-election.html?searchResultPosition=9
+
+**Kentucky Primary Election Results: Second Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-2-primary-election.html?searchResultPosition=10
 
