@@ -1,20 +1,20 @@
-**Virginia Democratic Primary Election Results: Fourth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=6
+**Goodbye to the Wild Wild Web**\
+`The internet is changing, and the freewheeling, anything-goes culture of social media is being replaced by something more accountable.`\
+https://nytimes.com/2020/07/02/technology/goodbye-to-the-wild-wild-web.html?searchResultPosition=6
 
-**Live: Kentucky State Primary Election Results 2020**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-primary-elections.html?searchResultPosition=7
+**Freddy Cole, Performer Who Emerged From Nat’s Shadow, Dies at 88**\
+`Like his famous older sibling, he played the piano and sang. But he used his music to insist, “I’m Not My Brother, I’m Me.”`\
+https://nytimes.com/2020/07/02/arts/music/freddy-cole-dead.html?searchResultPosition=7
 
-**New York Democratic Primary Election Results: Fifth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-5-democrat-primary-election.html?searchResultPosition=8
+**AP Explains: 5 Key Takeaways From a Strong June Jobs Report**\
+`At first glance, the June employment report was a blockbuster.`\
+https://nytimes.com/aponline/2020/07/02/business/bc-us-economy-jobs-report-5-takeaways.html?searchResultPosition=8
 
-**Live: Virginia State Primary Election Results 2020**\
+**New York Primary Election Results: 24th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-primary-elections.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=9
 
-**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
+**New York Primary Election Results: Ninth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-9-primary-election.html?searchResultPosition=10
 
