@@ -1,16 +1,16 @@
-**'A Good Place to Hide:' New Hampshire Locals Had No Idea Jeffrey Epstein Ally Holed Up Nearby**\
-`Ghislaine Maxwell was hiding out in style: her luxury timber-framed home perched on 156 acres of New Hampshire pine and oak forests boasts dramatic views of Mount Sunapee's foothills, but is secluded enough to have kept her out of eyeshot of the tight-knit locals.`\
-https://nytimes.com/reuters/2020/07/02/world/europe/02reuters-people-ghislaine-maxwell-bradford.html?searchResultPosition=7
+**NFLPA Hasn't Signed Off on Two-Game Preseason: Report**\
+`The NFL Players Association reportedly has not yet signed off on an abbreviated, two-game preseason.`\
+https://nytimes.com/reuters/2020/07/02/sports/football/02reuters-football-nfl-preseason.html?searchResultPosition=7
 
-**Portugal Seals Final Deal With TAP's Private Shareholders**\
-`Portugal's government announced on Thursday it sealed a final deal with private shareholders of ailing flag carrier TAP to take a controlling stake in the airline while avoiding nationalisation.`\
-https://nytimes.com/reuters/2020/07/02/world/americas/02reuters-health-coronavirus-portugal-tap-final.html?searchResultPosition=8
+**Chicago Adds 14-Day Quarantine for 'Surge' States Travelers**\
+`People traveling to Chicago from 15 states with increasing numbers of confirmed cases of the coronavirus will have to quarantine for two weeks upon arrival or face possible fines, city officials announced Thursday. `\
+https://nytimes.com/aponline/2020/07/02/business/ap-us-virus-outbreak-chicago.html?searchResultPosition=8
 
-**Dizzying Amounts of Money Pour Into the Biden and Trump Campaigns**\
-`The candidates together raised over a quarter of a billion dollars in June, pointing to Joe Biden’s financial turnaround, President Trump’s resiliency and the 2020 campaign’s staggering cost.`\
-https://nytimes.com/2020/07/02/us/politics/biden-trump-fundraising-2020.html?searchResultPosition=9
+**Delta Amends Credit Facility to Include Stricter Covenants**\
+`Delta Air Lines Inc said on Thursday it has amended its $2.65 billion credit facility agreement with covenants, which include restricting the U.S. airline's ability to pay dividends or repurchase stock before Sept. 30, 2021.`\
+https://nytimes.com/reuters/2020/07/02/us/02reuters-delta-air-credit.html?searchResultPosition=9
 
-**Wall Street Sees Exxon Paring Asset Values on Weakening Demand**\
-`Exxon Mobil Corp assets are likely overvalued in light of weak oil-demand outlook, according to Wall Street analysts, and face write-downs as soon as this month.`\
-https://nytimes.com/reuters/2020/07/02/world/europe/02reuters-exxon-mobil-impairments.html?searchResultPosition=10
+**Colombia Captures Guerrillas Accused in Deadly Car Bombing**\
+`Members of E.L.N., a left-wing insurgency, were charged with taking part in the bombing of a police academy last year that killed 22 cadets, shaking a country emerging from a long civil war.`\
+https://nytimes.com/2020/07/02/world/americas/colombia-eln-bombing-arrests.html?searchResultPosition=10
 
