@@ -1,36 +1,36 @@
-**New York Primary Election Results: 11th Congressional District**\
+**Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=2
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=2
 
 **New York Primary Election Results: 24th Congressional District**\
 ``\
 https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=3
 
-**Virginia Primary Election Results: Third Congressional District**\
+**New York Primary Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=4
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=4
 
-**Live: Virginia State Primary Election Results 2020**\
+**New York Primary Election Results: Ninth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-primary-elections.html?searchResultPosition=5
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-9-primary-election.html?searchResultPosition=5
 
-**New York Primary Election Results: Second Congressional District**\
+**New York Primary Election Results: 12th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-2-primary-election.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-12-primary-election.html?searchResultPosition=6
 
-**Kentucky Presidential Republican Primary Election Results**\
+**Virginia Democratic Primary Election Results: Fifth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-president-republican-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-5-democrat-primary-election.html?searchResultPosition=7
 
-**New York Primary Election Results: 15th Congressional District**\
+**Live: South Carolina State Primary Runoff Election Results 2020**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-15-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-south-carolina-primary-runoff-elections.html?searchResultPosition=8
 
-**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
+**Kentucky Presidential Democratic Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-president-democrat-primary-election.html?searchResultPosition=9
 
-**Virginia U.S. Senate Primary Election Results**\
+**New York Primary Election Results: Sixth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-6-primary-election.html?searchResultPosition=10
 
