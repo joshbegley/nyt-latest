@@ -1,20 +1,20 @@
-**Watchdog Says Govt Blocking Report on Trump-Hurricane Flap**\
-`A government watchdog says the Commerce Department is trying to block the findings of an investigation into the agency’s role in rebuking forecasters who contradicted President Donald Trump’s inaccurate claims about the path of Hurricane Dorian last year.`\
-https://nytimes.com/aponline/2020/07/02/us/politics/ap-us-trump-commerce-inspector-general.html?searchResultPosition=6
-
-**Trump’s Virus Is Spreading, and His Economy Is Stalling**\
-`The president leads a transition to sickness.`\
-https://nytimes.com/2020/07/02/opinion/trump-covid-economy.html?searchResultPosition=7
-
-**New York Primary Election Results: 12th Congressional District**\
+**Virginia U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-12-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=6
+
+**New York Primary Election Results: 13th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-13-primary-election.html?searchResultPosition=7
 
 **Kentucky Presidential Republican Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-president-republican-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-president-republican-primary-election.html?searchResultPosition=8
 
-**New York Primary Election Results: 14th Congressional District**\
+**Kentucky Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-14-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=9
+
+**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=10
 
