@@ -1,20 +1,20 @@
-**Government Seeks to Halt Release of Noncitizen Who Served Terrorism Sentence**\
-`In a test of its power to impose indefinite detention, the administration asked two appeals courts to stop a lower court from freeing a stateless man who has completed his prison term.`\
-https://nytimes.com/2020/07/02/us/politics/adham-hassoun-detention.html?searchResultPosition=6
-
-**New York Primary Election Results: 25th Congressional District**\
+**New York Presidential Democratic Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-president-democrat-primary-election.html?searchResultPosition=6
+
+**New York Primary Election Results: Third Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-3-primary-election.html?searchResultPosition=7
 
 **Kentucky U.S. Senate Primary Election Results**\
 ``\
 https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-senate-primary-election.html?searchResultPosition=8
 
-**Live: South Carolina State Primary Runoff Election Results 2020**\
+**Kentucky Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-south-carolina-primary-runoff-elections.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=9
 
-**New York Primary Election Results: First Congressional District**\
+**Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=10
 
