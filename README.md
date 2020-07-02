@@ -1,16 +1,16 @@
-**Zion Williamson Confident in His Health, Pelicans' Prospects**\
-`Pelicans rookie Zion Williamson credits his mother’s wisdom with helping him manage life’s unanticipated twists and inevitable assortment of successes and setbacks.`\
-https://nytimes.com/aponline/2020/07/02/sports/basketball/ap-bkn-pelicans-zions-climb.html?searchResultPosition=7
+**Harry Potter Fan Sites Step Back From Rowling Over Transgender Views**\
+`Two of the biggest Harry Potter fan sites on Thursday distanced themselves from author J.K. Rowling because of her beliefs on transgender issues, calling them at odds with the message of empowerment in her best-selling books.`\
+https://nytimes.com/reuters/2020/07/02/arts/02reuters-people-jk-rowling.html?searchResultPosition=7
 
-**Exclusive: JPMorgan Drops Terms 'Master,' 'Slave' From Internal Tech Code and Materials**\
-`JPMorgan Chase & Co is eliminating terms like "blacklist," "master" and "slave" from its internal technology materials and code as it seeks to address racism within the company, said two sources with knowledge of the move.`\
-https://nytimes.com/reuters/2020/07/02/business/02reuters-minneapolis-police-jp-morgan-race-exclusive.html?searchResultPosition=8
+**Newsom Urges Californians to Avoid Large Holiday Events**\
+`Gov. Gavin Newsom introduced a public awareness campaign about the importance of wearing masks to flatten the curve of the coronavirus, and urged residents to refrain from large gatherings this holiday weekend.`\
+https://nytimes.com/video/us/100000007222192/newsom-urges-californians-to-avoid-large-holiday-events.html?searchResultPosition=8
 
-**Virginia Democratic Primary Election Results: Fourth Congressional District**\
+**Kentucky Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=9
 
-**Kentucky Primary Election Results: Fifth Congressional District**\
+**New York Primary Election Results: 24th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-5-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=10
 
