@@ -1,16 +1,16 @@
-**Kentucky Primary Election Results: Fourth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=7
+**Taiwan June Exports Seen Down 3%, Inflation - 0.87%: Reuters Poll**\
+`Taiwan's exports in June are likely to have dropped 3%, compared with a year earlier, as the COVID-19 pandemic continues to hit global demand for the island's electronics exports, a median forecast of 13 analysts polled by Reuters showed.`\
+https://nytimes.com/reuters/2020/07/03/world/asia/03reuters-taiwan-economy-cpi-trade-poll.html?searchResultPosition=7
 
-**New York Primary Election Results: 22nd Congressional District**\
+**New York Primary Election Results: 15th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-15-primary-election.html?searchResultPosition=8
 
-**New York Primary Election Results: Ninth Congressional District**\
+**New York Primary Election Results: Second Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-9-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-2-primary-election.html?searchResultPosition=9
 
-**Kentucky Primary Election Results: Second Congressional District**\
+**New York Primary Election Results: 14th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-2-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-14-primary-election.html?searchResultPosition=10
 
