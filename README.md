@@ -1,16 +1,16 @@
-**Take Coronavirus Seriously, Iranian State Media Urge People**\
-`Total coronavirus cases rose to 235,429 in Iran on Friday, with 154 deaths in the past 24 hours bringing the death toll to 11,260, authorities said as the country tries to fend off new infections after easing its lockdown restrictions.`\
-https://nytimes.com/reuters/2020/07/03/world/middleeast/03reuters-health-coronavirus-iran.html?searchResultPosition=7
-
-**New York Primary Election Results: First Congressional District**\
+**New York Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-4-primary-election.html?searchResultPosition=7
 
-**Virginia Democratic Primary Election Results: Fifth Congressional District**\
+**Live: Mississippi House Primary Runoff and State House Special General Results 2020**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-5-democrat-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-mississippi-primary-runoff-special-general.html?searchResultPosition=8
 
-**New York Primary Election Results: 22nd Congressional District**\
+**New York Primary Election Results: 12th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-12-primary-election.html?searchResultPosition=9
+
+**Kentucky Presidential Democratic Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-president-democrat-primary-election.html?searchResultPosition=10
 
