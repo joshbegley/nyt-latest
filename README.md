@@ -1,16 +1,16 @@
-**Russian FM Hosts Speaker of Libya's East-Based Parliament**\
-`Russia's top diplomat met Friday with the speaker of the parliament based in eastern Libya to discuss a political settlement for the conflict-stricken country.`\
-https://nytimes.com/aponline/2020/07/03/world/europe/ap-eu-russia-libya.html?searchResultPosition=7
-
-**New York Primary Election Results: First Congressional District**\
+**Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=7
 
-**Kentucky Primary Election Results: Fourth Congressional District**\
+**New York Primary Election Results: 24th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=8
 
-**Live: Virginia State Primary Election Results 2020**\
+**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-primary-elections.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=9
+
+**New York Presidential Democratic Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-president-democrat-primary-election.html?searchResultPosition=10
 
