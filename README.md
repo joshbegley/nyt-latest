@@ -1,16 +1,16 @@
-**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=7
+**Asian Shares Hit Four-Month High as U.S., China Recoveries Gather Pace**\
+`Asian shares rallied to a four-month high on Friday on robust U.S. payrolls data and a brisk pickup in Chinese service sector activity, but a surge in coronavirus cases in the United States kept a lid on stronger gains.`\
+https://nytimes.com/reuters/2020/07/03/business/03reuters-global-markets.html?searchResultPosition=7
 
-**Kentucky Primary Election Results: Fifth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-5-primary-election.html?searchResultPosition=8
+**Greece: Construction Begins on Major Development Project**\
+`Greece’s prime minister on Friday inaugurated the start of construction work on a long-delayed major development project at the prime seaside site of the old Athens airport.`\
+https://nytimes.com/aponline/2020/07/03/business/ap-eu-greece-airport-development.html?searchResultPosition=8
 
-**New York Primary Election Results: 14th Congressional District**\
+**Virginia U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-14-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=9
 
-**New York Primary Election Results: First Congressional District**\
+**Kentucky Presidential Republican Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-president-republican-primary-election.html?searchResultPosition=10
 
