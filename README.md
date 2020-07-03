@@ -1,16 +1,16 @@
-**After Fighting Plastic in ‘Paradise Lost,’ Sisters Take On Climate Change**\
-`Melati and Isabel Wijsen began campaigning to reduce plastic waste in Bali seven years ago. Now 19 and 17, they say the pandemic shows that stark measures to protect the planet are possible.`\
-https://nytimes.com/2020/07/03/world/asia/bali-sisters-plastic-climate-change.html?searchResultPosition=7
-
-**New York Primary Election Results: First Congressional District**\
+**New York Primary Election Results: 22nd Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=7
 
-**Live: Mississippi House Primary Runoff and State House Special General Results 2020**\
+**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-mississippi-primary-runoff-special-general.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=8
 
-**New York Democratic Primary Election Results: Fifth Congressional District**\
+**New York Primary Election Results: 15th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-5-democrat-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-15-primary-election.html?searchResultPosition=9
+
+**Kentucky Presidential Republican Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-president-republican-primary-election.html?searchResultPosition=10
 
