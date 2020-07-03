@@ -1,16 +1,16 @@
-**New York Primary Election Results: Fourth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-4-primary-election.html?searchResultPosition=7
+**Tânio Mendonça, Brazilian Carnaval Samba Composer, Dies at 52**\
+`Mr. Mendonça, who wrote music for Rio’s spectacular annual parades, was one of many victims of the novel coronavirus within the world of Carnaval.`\
+https://nytimes.com/2020/07/03/obituaries/tanio-mendonca-dead-coronavirus.html?searchResultPosition=7
 
-**New York Primary Election Results: 11th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=8
+**TikTok Distances From Beijing in Response to India App Ban**\
+`China-owned social media app TikTok distanced itself from Beijing after India banned 59 Chinese apps in the country, according to a correspondence seen by Reuters.`\
+https://nytimes.com/reuters/2020/07/03/technology/03reuters-tiktok-india.html?searchResultPosition=8
 
-**Virginia Democratic Primary Election Results: 11th Congressional District**\
+**New York Presidential Democratic Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-11-democrat-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-president-democrat-primary-election.html?searchResultPosition=9
 
-**Live: Virginia State Primary Election Results 2020**\
+**Virginia U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-primary-elections.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=10
 
