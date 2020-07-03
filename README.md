@@ -10,7 +10,7 @@ https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-d
 ``\
 https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-27-primary-election.html?searchResultPosition=9
 
-**New York Presidential Democratic Primary Election Results**\
+**Virginia U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-president-democrat-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=10
 
