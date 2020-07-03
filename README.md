@@ -1,16 +1,16 @@
+**UK's Johnson: There Are Other Good Options if We Can't Reach Deal With EU**\
+`There is a good agreement to be reached with the European Union on post-Brexit trading terms but if that can't be achieved, there are other very good options, Prime Minister Boris Johnson told LBC radio on Friday.`\
+https://nytimes.com/reuters/2020/07/03/world/europe/03reuters-britain-eu-johnson-deal.html?searchResultPosition=7
+
+**Explosion at Turkish Fireworks Factory; No Known Casualties**\
+`An explosion occurred at a fireworks factory in northwestern Turkey on Friday, the state-run Anadolu Agency reported. There were no immediate reports of any casualties.`\
+https://nytimes.com/aponline/2020/07/03/world/europe/ap-eu-turkey-fireworks-blast.html?searchResultPosition=8
+
+**Myanmar Leader Blames Joblessness for Deadly Mining Tragedy**\
+`Myanmar leader Aung San Suu Kyi expressed sadness Friday over a landslide at a jade mining site in the country’s north that took at least 166 lives, blaming the tragedy on joblessness.`\
+https://nytimes.com/aponline/2020/07/03/world/asia/ap-as-myanmar-mining-accident.html?searchResultPosition=9
+
 **What the Coronavirus Has Done to New Development**\
 `The pandemic paused residential construction and stalled sales. Now developers in Long Island City and Greenpoint are scrambling to bounce back.`\
-https://nytimes.com/2020/07/03/realestate/long-island-city-greenpoint-new-development.html?searchResultPosition=7
-
-**Awash With New Development Along Newtown Creek**\
-`Long Island City and Greenpoint, two of the busiest real estate markets in the city, are the ones to watch in this post-Covid moment.`\
-https://nytimes.com/slideshow/2020/07/03/realestate/awash-with-new-development-along-newtown-creek.html?searchResultPosition=8
-
-**For Maine Lobstermen, a Perfect Storm Threatens the Summer Season**\
-`The state’s lobster industry, already struggling before the virus, could be crippled as tourism dries up, leaving boatloads of crustaceans and no one to eat them.`\
-https://nytimes.com/2020/07/03/us/maine-lobster-summer-virus.html?searchResultPosition=9
-
-**When a Farewell Season Was Wiped Out, the Outfield Became a Diner**\
-`This was supposed to be the Pawtucket Red Sox’s final season in Rhode Island before moving to Massachusetts. Without any games for fans to attend, the team got creative.`\
-https://nytimes.com/2020/07/03/sports/baseball/pawtucket-red-sox-worcester.html?searchResultPosition=10
+https://nytimes.com/2020/07/03/realestate/long-island-city-greenpoint-new-development.html?searchResultPosition=10
 
