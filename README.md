@@ -1,16 +1,16 @@
-**UK Orders 65 Million Injection Devices From Becton Dickinson for Vaccine Program**\
-`Medical technology company Becton Dickinson and Co said on Friday it received an order from the UK government for 65 million injection devices to support Britain's COVID-19 vaccination program. `\
-https://nytimes.com/reuters/2020/07/03/technology/03reuters-health-coronavirus-britain-bd.html?searchResultPosition=7
+**Tennis: American Gauff Can Improve the World, Says Navratilova**\
+`American tennis player Coco Gauff can improve the world, 18-time Grand Slam champion Martina Navratilova has said, lauding the teenage tennis prodigy for her role in the Black Lives Matter protests against racial injustice.`\
+https://nytimes.com/reuters/2020/07/03/sports/tennis/03reuters-global-race-tennis.html?searchResultPosition=7
 
-**Greece Starts Clearing Ground for Athens Property Plan After Long Delay**\
-`Greece started work clearing ground on Friday for a real estate project that plans to turn a disused airport on the Athens coast into one of Europe's biggest tourist resorts, three times the size of Monaco. `\
-https://nytimes.com/reuters/2020/07/03/business/03reuters-greece-hellenikon.html?searchResultPosition=8
+**New York Primary Election Results: 24th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=8
 
-**Israeli Defense Contractors Partner With UAE Tech Firm to Fight Coronavirus**\
-`Two Israeli defense contractors said on Friday they were partnering with Abu Dhabi-based Group 42 to develop technologies that will help fight the new coronavirus.`\
-https://nytimes.com/reuters/2020/07/03/world/middleeast/03reuters-health-coronavirus-israel-emirates.html?searchResultPosition=9
+**Virginia Primary Election Results: Third Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=9
 
-**Chicago to Quarantine All Arrivals From U.S. States With COVID-19 Surges**\
-`Chicago will quarantine for 14 days all arrivals from U.S. states where coronavirus cases are surging, its Public Health Commissioner said late on Thursday, as the country reported a record number of new infections.`\
-https://nytimes.com/reuters/2020/07/03/us/03reuters-health-coronavirus-usa-chicago.html?searchResultPosition=10
+**New York Primary Election Results: 25th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=10
 
