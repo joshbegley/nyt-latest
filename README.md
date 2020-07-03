@@ -1,16 +1,16 @@
-**UK PM Johnson: We Have to Stick Up for Our Friends in Hong Kong**\
-`Britain must stick up for the people of Hong Kong, Prime Minister Boris Johnson said on Friday.   `\
-https://nytimes.com/reuters/2020/07/03/technology/03reuters-hongkong-protests-britain-johnson.html?searchResultPosition=7
+**What the Coronavirus Has Done to New Development**\
+`The pandemic paused residential construction and stalled sales. Now developers in Long Island City and Greenpoint are scrambling to bounce back.`\
+https://nytimes.com/2020/07/03/realestate/long-island-city-greenpoint-new-development.html?searchResultPosition=7
 
-**Virginia Democratic Primary Election Results: Fourth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=8
+**Awash With New Development Along Newtown Creek**\
+`Long Island City and Greenpoint, two of the busiest real estate markets in the city, are the ones to watch in this post-Covid moment.`\
+https://nytimes.com/slideshow/2020/07/03/realestate/awash-with-new-development-along-newtown-creek.html?searchResultPosition=8
 
-**Virginia Primary Election Results: Third Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=9
+**For Maine Lobstermen, a Perfect Storm Threatens the Summer Season**\
+`The state’s lobster industry, already struggling before the virus, could be crippled as tourism dries up, leaving boatloads of crustaceans and no one to eat them.`\
+https://nytimes.com/2020/07/03/us/maine-lobster-summer-virus.html?searchResultPosition=9
 
-**New York Primary Election Results: 22nd Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=10
+**When a Farewell Season Was Wiped Out, the Outfield Became a Diner**\
+`This was supposed to be the Pawtucket Red Sox’s final season in Rhode Island before moving to Massachusetts. Without any games for fans to attend, the team got creative.`\
+https://nytimes.com/2020/07/03/sports/baseball/pawtucket-red-sox-worcester.html?searchResultPosition=10
 
