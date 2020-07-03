@@ -1,16 +1,16 @@
-**July 4th Military Flyovers to Go Over DC, 4 Other Cities**\
-`President Donald Trump's July Fourth celebration will feature an extensive U.S. military air show over Washington, D.C., but four other cities will get mini-versions of the air power display on Saturday,`\
-https://nytimes.com/aponline/2020/07/03/us/politics/ap-us-fourth-of-july-military.html?searchResultPosition=7
-
-**Small Tailings Dam Collapses in Ecuador, Communities Denounce Pollution**\
-`A small tailings dam associated with a mine run by Ecuadorean firm Austro Gold has collapsed, Ecuador's government said on Friday, sending mining waste into a nearby river.`\
-https://nytimes.com/reuters/2020/07/03/world/americas/03reuters-ecuador-mining-collapse.html?searchResultPosition=8
-
-**New York Presidential Democratic Primary Election Results**\
+**Live: South Carolina State Primary Runoff Election Results 2020**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-president-democrat-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-south-carolina-primary-runoff-elections.html?searchResultPosition=7
 
 **New York Primary Election Results: 25th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=8
+
+**Virginia Primary Election Results: Third Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=9
+
+**Live: Mississippi House Primary Runoff and State House Special General Results 2020**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-mississippi-primary-runoff-special-general.html?searchResultPosition=10
 
