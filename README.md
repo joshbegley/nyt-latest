@@ -1,16 +1,16 @@
-**U.S. Envoy to Visit South Korea to Discuss Stalled North Korea Nuclear Talks**\
-`The U.S. point man for North Korea is due to visit South Korea next week as it pushes for a resumption of talks with the North ahead of the U.S. election and despite few signs of any progress.`\
-https://nytimes.com/reuters/2020/07/02/world/asia/02reuters-usa-northkorea-southkorea.html?searchResultPosition=7
+**Panamanian Ex-Presidents Banned From Travel Amid Corruption Probes**\
+`Two former presidents of Panama, Ricardo Martinelli and Juan Carlos Varela, have been banned from leaving the country while under investigation for money laundering in separate corruption cases, government authorities said on Thursday.    `\
+https://nytimes.com/reuters/2020/07/02/world/americas/02reuters-panama-politics.html?searchResultPosition=7
 
-**New York Primary Election Results: 22nd Congressional District**\
+**New York Primary Election Results: 19th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-19-primary-election.html?searchResultPosition=8
 
-**New York Primary Election Results: Sixth Congressional District**\
+**New York Primary Election Results: 17th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-6-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-17-primary-election.html?searchResultPosition=9
 
-**New York Primary Election Results: 14th Congressional District**\
+**Kentucky Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-14-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-3-primary-election.html?searchResultPosition=10
 
