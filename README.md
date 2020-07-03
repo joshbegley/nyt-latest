@@ -1,4 +1,4 @@
-**FedEx Joins Push for Washington Redskins to be Renamed**\
+**FedEx Joins Push for Washington Redskins to Be Renamed**\
 `The shipping giant paid $205 million for the naming rights to FedEx Field under a sponsorship deal that began in 1999.`\
 https://nytimes.com/2020/07/02/sports/Redskins-name-FedEx.html?searchResultPosition=7
 
