@@ -1,16 +1,16 @@
-**Reps: Singers Kacey Musgraves, Ruston Kelly File for Divorce**\
-`Grammy-winning country singer Kacey Musgraves and her musician-husband, Ruston Kelly, have filed for divorce.`\
-https://nytimes.com/aponline/2020/07/03/us/ap-us-people-kacey-musgraves-1st-ld-writethru.html?searchResultPosition=7
-
-**New York Primary Election Results: Fourth Congressional District**\
+**Virginia Democratic Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-4-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=7
 
-**New York Primary Election Results: First Congressional District**\
+**Virginia Democratic Primary Election Results: Fifth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-5-democrat-primary-election.html?searchResultPosition=8
 
-**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
+**Virginia Primary Election Results: First Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-1-primary-election.html?searchResultPosition=9
+
+**Virginia Primary Election Results: Second Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-2-primary-election.html?searchResultPosition=10
 
