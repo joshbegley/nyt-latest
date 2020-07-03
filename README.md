@@ -1,16 +1,16 @@
-**European Stocks Open Higher After Asia Bounce**\
-`European shares opened higher on Friday after upbeat China data fuelled a bounce in Asian markets, but another record surge in U.S. coronavirus cases checked overall investor optimism.`\
-https://nytimes.com/reuters/2020/07/03/world/europe/03reuters-europe-stocks.html?searchResultPosition=7
-
-**New York Primary Election Results: 24th Congressional District**\
+**Virginia U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=7
 
-**Virginia Democratic Primary Election Results: Fifth Congressional District**\
+**New York Primary Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-5-democrat-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=8
 
-**New York Primary Election Results: Second Congressional District**\
+**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-2-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=9
+
+**Kentucky Primary Election Results: Third Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-3-primary-election.html?searchResultPosition=10
 
