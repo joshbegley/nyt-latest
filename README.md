@@ -1,16 +1,16 @@
-**Australia Faces its Own Reckoning Over Diversity in Media**\
-`The Black Lives Matter movement has inspired Australians to examine issues of race in our own country.`\
-https://nytimes.com/2020/07/03/world/australia/media-diversity.html?searchResultPosition=7
-
-**Live: Virginia State Primary Election Results 2020**\
+**Kentucky Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-primary-elections.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=7
 
-**Virginia Primary Election Results: Third Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=9
+**Wall Street Shifts Bets to Big Pharma as COVID-19 Vaccine Race Progresses**\
+`Wall Street is moving some bets on COVID-19 vaccines to large pharmaceutical companies with robust manufacturing capabilities, signaling that a love affair with small biotech firms might be ending after the sector’s best quarter in almost 20 years.`\
+https://nytimes.com/reuters/2020/07/03/business/03reuters-health-coronavirus-stocks.html?searchResultPosition=8
 
-**New York Primary Election Results: First Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=10
+**UK PM's Father Stanley Johnson Within Rights to Visit Greece: Minister**\
+`Prime Minister Boris Johnson's father, who travelled to Greece likely via Bulgaria despite current advice for British nationals to avoid all but essential international travel, was within his rights to do so, Britain's transport minister said on Friday. `\
+https://nytimes.com/reuters/2020/07/03/world/europe/03reuters-health-coronavirus-britain-greece-johnson-minister.html?searchResultPosition=9
+
+**Croatia to Hold Election Amid Virus, Political Uncertainty**\
+`Croatia is holding a parliamentary election this weekend amid a coronavirus outbreak and with no clear winner in sight as none of the main contenders appears set to garner a majority of votes. `\
+https://nytimes.com/aponline/2020/07/03/world/europe/ap-eu-croatia-election-.html?searchResultPosition=10
 
