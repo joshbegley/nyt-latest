@@ -1,16 +1,16 @@
-**UK's Johnson: There Are Other Good Options if We Can't Reach Deal With EU**\
-`There is a good agreement to be reached with the European Union on post-Brexit trading terms but if that can't be achieved, there are other very good options, Prime Minister Boris Johnson told LBC radio on Friday.`\
-https://nytimes.com/reuters/2020/07/03/world/europe/03reuters-britain-eu-johnson-deal.html?searchResultPosition=7
+**Through the Looking Glass: South Korean 'Augmented Reality' Mirror Allows Touchless Cosmetics Shopping**\
+`An augmented reality (AR) mirror at the new Seoul flagship boutique of cosmetics powerhouse Amorepacific makes easy work of seeing if that scarlet shade of lipstick or long-lash mascara suits you - even if you're wearing a face mask.`\
+https://nytimes.com/reuters/2020/07/03/technology/03reuters-health-coronavirus-southkorea-cosmetics.html?searchResultPosition=7
 
-**Explosion at Turkish Fireworks Factory; No Known Casualties**\
-`An explosion occurred at a fireworks factory in northwestern Turkey on Friday, the state-run Anadolu Agency reported. There were no immediate reports of any casualties.`\
-https://nytimes.com/aponline/2020/07/03/world/europe/ap-eu-turkey-fireworks-blast.html?searchResultPosition=8
+**Air France-1,022 Jobs to Be Cut at HOP! Airline: Union Representative**\
+`Some 1,022 jobs will be cut at France's HOP! airline as parent Air France prepares to shed jobs to grapple with the coronavirus crisis, CGT union representative Joel Rondel said on Friday.`\
+https://nytimes.com/reuters/2020/07/03/business/03reuters-health-coronavirus-air-france-klm-jobs-hop.html?searchResultPosition=8
 
-**Myanmar Leader Blames Joblessness for Deadly Mining Tragedy**\
-`Myanmar leader Aung San Suu Kyi expressed sadness Friday over a landslide at a jade mining site in the country’s north that took at least 166 lives, blaming the tragedy on joblessness.`\
-https://nytimes.com/aponline/2020/07/03/world/asia/ap-as-myanmar-mining-accident.html?searchResultPosition=9
+**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=9
 
-**What the Coronavirus Has Done to New Development**\
-`The pandemic paused residential construction and stalled sales. Now developers in Long Island City and Greenpoint are scrambling to bounce back.`\
-https://nytimes.com/2020/07/03/realestate/long-island-city-greenpoint-new-development.html?searchResultPosition=10
+**New York Primary Election Results: 24th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=10
 
