@@ -1,16 +1,16 @@
-**Washington and the N.F.L. Might Change the Redskins Name. Why Now?**\
-`The move toward changing a mascot name after decades of complaints underscores how America’s most popular sport has scrambled to keep up with shifts in public opinion.`\
-https://nytimes.com/2020/07/03/sports/football/washington-redskins-nickname-nfl.html?searchResultPosition=7
+**Turkey Convicts Human Rights Activists on Terror Charges**\
+`The cases are part of a widespread effort to quash dissent in the country, which has seen dozens of activists put on trial after a failed 2016 coup attempt.`\
+https://nytimes.com/2020/07/03/world/europe/turkey-human-rights-conviction.html?searchResultPosition=7
 
-**New Outbreaks Push Inmate Coronavirus Cases Past 50,000**\
-`The number of prison inmates testing positive for the coronavirus soared well past the 50,000 mark last month, as recent outbreaks threatened to undo control measures put in place earlier in the pandemic.`\
-https://nytimes.com/aponline/2020/07/03/us/politics/ap-us-virus-outbreak-prisons.html?searchResultPosition=8
+**Commerzbank CEO Offers to Resign to Give Bank a Fresh Start**\
+`Commerzbank Chief Executive Martin Zielke offered to resign on Friday to open the way for a fresh start for the German lender, which has been under pressure from some investors over its poor financial performance.`\
+https://nytimes.com/reuters/2020/07/03/world/europe/03reuters-commerzbank-ceo.html?searchResultPosition=8
 
-**MLB Cancels 2020 All-Star Game Due to COVID-19 Pandemic**\
-`This year's Major League Baseball (MLB) All-Star Game has been cancelled due to the COVID-19 pandemic and the Los Angeles Dodgers will instead stage the Midsummer Classic in 2022, organisers said Friday.`\
-https://nytimes.com/reuters/2020/07/03/sports/baseball/03reuters-health-coronavirus-baseball-mlb.html?searchResultPosition=9
+**German Government Committed to Its Involvement in Commerzbank-Statement**\
+`The German government is fully committed to its engagement with Commerzbank, the Finance Ministry said after the lender's chief executive and the head of its supervisory board offered to resign after a difficult year for the bank.`\
+https://nytimes.com/reuters/2020/07/03/world/europe/03reuters-commerzbank-ceo-germany.html?searchResultPosition=9
 
-**Virginia Primary Election Results: First Congressional District**\
+**Virginia U.S. Senate Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-1-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=10
 
