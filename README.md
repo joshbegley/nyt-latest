@@ -1,16 +1,16 @@
-**UK's Sunak to Make Announcement on Jobs Support Next Week**\
-`Finance minister Rishi Sunak will next week make an announcement on the government's job support schemes, Prime Minister Boris Johnson said on Friday.`\
-https://nytimes.com/reuters/2020/07/03/world/europe/03reuters-health-coronavirus-britain-furlough.html?searchResultPosition=7
+**UK PM Johnson: We Have to Stick Up for Our Friends in Hong Kong**\
+`Britain must stick up for the people of Hong Kong, Prime Minister Boris Johnson said on Friday.   `\
+https://nytimes.com/reuters/2020/07/03/technology/03reuters-hongkong-protests-britain-johnson.html?searchResultPosition=7
 
-**Deutsche Bank Eyes Payment Systems, Including Wirecard: Handelsblatt**\
-`Deutsche Bank is on the lookout for expansion opportunities in the area of payments systems, the lender's strategy director said in response to a question about the lender's interest in Wirecard's assets.  `\
-https://nytimes.com/reuters/2020/07/03/business/03reuters-wirecard-accounts-deutsche-bank.html?searchResultPosition=8
-
-**French Prime Minister Resigns Before a Cabinet Reshuffle**\
-`President Emmanuel Macron is reshaping his cabinet, aiming to begin a new phase after a major coronavirus outbreak and to give his government a fresh mandate in the last stretch of his five-year term.`\
-https://nytimes.com/2020/07/03/world/europe/france-prime-minister-resign.html?searchResultPosition=9
-
-**Kentucky Primary Election Results: Second Congressional District**\
+**Virginia Democratic Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-2-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=8
+
+**Virginia Primary Election Results: Third Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=9
+
+**New York Primary Election Results: 22nd Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=10
 
