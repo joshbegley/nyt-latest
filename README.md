@@ -1,16 +1,16 @@
-**Kentucky Presidential Democratic Primary Election Results**\
+**New York Primary Election Results: First Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-president-democrat-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=7
 
-**Kentucky U.S. Senate Primary Election Results**\
+**Virginia Democratic Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-senate-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=8
 
-**New York Primary Election Results: Third Congressional District**\
+**New York Primary Election Results: 15th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-3-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-15-primary-election.html?searchResultPosition=9
 
-**New York Primary Election Results: 14th Congressional District**\
+**Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-14-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=10
 
