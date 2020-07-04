@@ -1,16 +1,16 @@
-**New York Primary Election Results: First Congressional District**\
+**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=7
 
-**As Coronavirus Slams Houston Hospitals, It’s Like New York ‘All Over Again’**\
-`The death toll is lower, but there are echoes of March as cases spike, doctors fall ill and supplies run short. Now, Texas is trying to adapt hard-won lessons while addressing a new set of challenges.`\
-https://nytimes.com/2020/07/04/us/coronavirus-houston-new-york.html?searchResultPosition=8
-
-**Live: Virginia State Primary Election Results 2020**\
+**Kentucky Presidential Republican Primary Election Results**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-primary-elections.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-president-republican-primary-election.html?searchResultPosition=8
 
-**New York Primary Election Results: 16th Congressional District**\
+**Kentucky Primary Election Results: Sixth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-16-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-6-primary-election.html?searchResultPosition=9
+
+**New York Primary Election Results: 25th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=10
 
