@@ -1,16 +1,16 @@
-**New York Primary Election Results: First Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=7
+**New Trump Appointee Puts Global Internet Freedom at Risk, Critics Say**\
+`A battle involving Michael Pack and a U.S.-funded tech group revolves around software from Falun Gong, the secretive, anti-Beijing spiritual movement with pro-Trump elements.`\
+https://nytimes.com/2020/07/04/us/politics/michael-pack-china-internet.html?searchResultPosition=7
 
-**New York Primary Election Results: 11th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=8
+**See Science Fly**\
+`Make this newspaper into a paper airplane. The sky’s the limit.`\
+https://nytimes.com/2020/07/04/at-home/coronavirus-paper-planes.html?searchResultPosition=8
 
-**Live: Kentucky State Primary Election Results 2020**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-primary-elections.html?searchResultPosition=9
+**Beyond Broadway, the Show Does Go On**\
+`Watching through windshields. Audiences of two. An elbow bump instead of a kiss. Theaters across the country find novel ways to play in a pandemic.`\
+https://nytimes.com/2020/07/04/theater/theaters-persevere-in-pandemic.html?searchResultPosition=9
 
-**Live: South Carolina State Primary Runoff Election Results 2020**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-south-carolina-primary-runoff-elections.html?searchResultPosition=10
+**Sleeping Outside in a Pandemic: Vulnerable Renters Face Evictions**\
+`As the coronavirus prevents people from going back to work and pay their rent, evictions have begun, often targeting vulnerable people such as unauthorized immigrants.`\
+https://nytimes.com/2020/07/04/us/coronavirus-evictions-renters-immigrants.html?searchResultPosition=10
 
