@@ -1,16 +1,16 @@
-**Hong Kong Officials Disappointed at Canada's Move to Suspend Extradition Pact**\
-`Senior officials in Hong Kong said on Saturday they were "very disappointed" at Canada's decision to suspend its extradition treaty with the Chinese-ruled city and again slammed Washington for "interfering" in its affairs.    `\
-https://nytimes.com/reuters/2020/07/04/world/asia/04reuters-hongkong-protests.html?searchResultPosition=7
+**Trump Pushes Racial Division, Flouts Virus Rules at Rushmore**\
+`At the foot of Mount Rushmore on the eve of Independence Day, President Donald Trump made a direct appeal to disaffected white voters four months before Election Day, accusing protesters who have pushed for racial justice of engaging in a “merciless campaign to wipe out our history.”`\
+https://nytimes.com/aponline/2020/07/04/us/politics/ap-us-trump-rushmore.html?searchResultPosition=7
 
-**Tennis Tours Debate Ranking Systems Frozen by the Coronavirus**\
-`The rankings have key implications for tournament seedings and sponsor bonuses.`\
-https://nytimes.com/2020/07/04/sports/tennis/tennis-rankings-coronavirus.html?searchResultPosition=8
+**The Latest: South Africa Reports Record Daily Infections**\
+`JOHANNESBURG — South Africa has announced another record daily number of confirmed coronavirus cases with 9,064, as Africa’s most developed country shows signs of strain in coping with the pandemic. `\
+https://nytimes.com/aponline/2020/07/04/business/ap-virus-outbreak-the-latest.html?searchResultPosition=8
 
-**New York Primary Election Results: 24th Congressional District**\
+**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=9
 
-**What’s on TV Saturday: ‘Family Romance, LLC’ and Fireworks**\
-`Werner Herzog’s documentary explores Japan’s rent-a-family industry. And fireworks displays will be broadcast from New York and Washington.`\
-https://nytimes.com/2020/07/04/arts/television/whats-on-tv-saturday-family-romance-llc-and-fireworks.html?searchResultPosition=10
+**New York Primary Election Results: Ninth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-9-primary-election.html?searchResultPosition=10
 
