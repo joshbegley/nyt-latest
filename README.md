@@ -1,16 +1,16 @@
-**New York Primary Election Results: 24th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=7
+**German Animal-Rights Protesters Target Meat Plant Linked to Cornavirus Cluster**\
+`German animal-rights activists protested outside a meat factory in North Rhine Westphalia on Saturday where hundreds of employees tested positive for the coronavirus last month, prompting local quarantines and shutdowns.`\
+https://nytimes.com/reuters/2020/07/04/world/europe/04reuters-health-coronavirus-toennis-activists.html?searchResultPosition=7
 
-**New York Primary Election Results: 11th Congressional District**\
+**Virginia Primary Election Results: First Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-1-primary-election.html?searchResultPosition=8
 
-**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
+**New York Primary Election Results: 19th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-19-primary-election.html?searchResultPosition=9
 
-**Virginia Primary Election Results: Third Congressional District**\
+**New York Primary Election Results: 14th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-14-primary-election.html?searchResultPosition=10
 
