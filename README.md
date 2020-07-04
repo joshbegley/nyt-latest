@@ -1,16 +1,16 @@
+**Trump Blasts 'Left-Wing Cultural Revolution' at Mount Rushmore**\
+`President Donald Trump on Friday railed against "angry mobs" that tried to tear down statues of Confederate leaders and other historical figures, warning thousands of supporters at Mount Rushmore that protesters were trying to erase U.S. history.`\
+https://nytimes.com/reuters/2020/07/04/us/04reuters-usa-trump.html?searchResultPosition=7
+
 **Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=8
 
-**Virginia Democratic Primary Election Results: Fourth Congressional District**\
+**Kentucky Primary Election Results: Fifth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-5-primary-election.html?searchResultPosition=9
 
-**Live: Virginia State Primary Election Results 2020**\
+**Virginia Democratic Primary Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-primary-elections.html?searchResultPosition=9
-
-**New York Primary Election Results: 15th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-15-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-11-democrat-primary-election.html?searchResultPosition=10
 
