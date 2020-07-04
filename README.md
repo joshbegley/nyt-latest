@@ -1,16 +1,16 @@
-**New York Primary Election Results: 14th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-14-primary-election.html?searchResultPosition=7
+**'People Aren’t Stupid': Pence's Virus Spin Tests Credibility**\
+`Vice President Mike Pence has long played the straight man to Donald Trump, translating the president's bombast into more measured, calming language. `\
+https://nytimes.com/aponline/2020/07/04/us/politics/ap-us-virus-outbreak-pence.html?searchResultPosition=7
 
-**New York Primary Election Results: First Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=8
+**In Troubled Times: Independence Day in a Land of Confusion**\
+`It was the worst of times. It was the weirdest of times. `\
+https://nytimes.com/aponline/2020/07/04/us/ap-us-nation-on-edge.html?searchResultPosition=8
 
-**Virginia Democratic Primary Election Results: 11th Congressional District**\
+**Kentucky Primary Election Results: Fifth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-11-democrat-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-5-primary-election.html?searchResultPosition=9
 
-**Virginia Democratic Primary Election Results: Fourth Congressional District**\
+**Live: South Carolina State Primary Runoff Election Results 2020**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-south-carolina-primary-runoff-elections.html?searchResultPosition=10
 
