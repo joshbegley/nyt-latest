@@ -1,16 +1,16 @@
-**New York Primary Election Results: 12th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-12-primary-election.html?searchResultPosition=7
+**Coronavirus Live Updates: A More Subdued 4th of July**\
+`With the pandemic’s economic fallout lingering, vulnerable tenants are facing eviction. And the virus threatens to make the Caribbean’s hurricane season even more perilous.`\
+https://nytimes.com/2020/07/04/world/coronavirus-updates.html?searchResultPosition=7
 
-**New York Primary Election Results: 16th Congressional District**\
+**New York Primary Election Results: 14th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-16-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-14-primary-election.html?searchResultPosition=8
 
-**Virginia Democratic Primary Election Results: Fifth Congressional District**\
+**New York Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-5-democrat-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-4-primary-election.html?searchResultPosition=9
 
-**New York Primary Election Results: Second Congressional District**\
+**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-2-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=10
 
