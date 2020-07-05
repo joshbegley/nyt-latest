@@ -1,20 +1,20 @@
-**Peru Coronavirus Cases Top 300,000 as Andean Nation Eases Lockdown**\
-`Peru on Sunday jumped past 300,000 confirmed cases of COVID-19, the fifth-highest in the world, as the Andean nation of nearly 33 million people slowly reopens its battered economy. `\
-https://nytimes.com/reuters/2020/07/05/world/americas/05reuters-health-coronavirus-peru.html?searchResultPosition=6
-
-**Virginia Primary Election Results: First Congressional District**\
+**New York Primary Election Results: Second Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-1-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-2-primary-election.html?searchResultPosition=6
 
-**New York Primary Election Results: 27th Congressional District**\
+**Virginia Democratic Primary Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-27-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-11-democrat-primary-election.html?searchResultPosition=7
 
-**New York Primary Election Results: 24th Congressional District**\
+**New York Primary Election Results: Seventh Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-7-primary-election.html?searchResultPosition=8
 
-**New York Primary Election Results: 25th Congressional District**\
+**New York Primary Election Results: First Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=9
+
+**New York Primary Election Results: 11th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=10
 
