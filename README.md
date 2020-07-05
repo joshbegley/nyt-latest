@@ -1,20 +1,20 @@
-**Bryson DeChambeau Leapfrogs Matthew Wolff to Win Rocket Mortgage Classic**\
-`DeChambeau shot 7-under in the final round, using his long drives to erase a three-stroke lead by Wolff at the start of play Sunday.`\
-https://nytimes.com/2020/07/05/sports/bryson-dechambeau-leapfrogs-matthew-wolff-to-win-rocket-mortgage-classic.html?searchResultPosition=6
-
-**Live: Mississippi House Primary Runoff and State House Special General Results 2020**\
+**Virginia Primary Election Results: First Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-mississippi-primary-runoff-special-general.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-1-primary-election.html?searchResultPosition=6
 
-**New York Primary Election Results: Second Congressional District**\
+**Live: Kentucky State Primary Election Results 2020**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-2-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-primary-elections.html?searchResultPosition=7
 
-**New York Primary Election Results: 10th Congressional District**\
+**New York Special Election Results: 27th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-10-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-27-special-general-election.html?searchResultPosition=8
 
-**New York Primary Election Results: 25th Congressional District**\
+**Kentucky Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=9
+
+**New York Primary Election Results: First Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=10
 
