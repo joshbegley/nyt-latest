@@ -1,20 +1,20 @@
+**Israel Says 'Not Necessarily' Behind All Iran Nuclear Site Incidents**\
+`Israel's defence minister said on Sunday it is not "necessarily" behind every mysterious incident in Iran, after a fire at the Natanz nuclear site prompted some Iranian officials to say it was the result of cyber sabotage.`\
+https://nytimes.com/reuters/2020/07/05/world/middleeast/05reuters-iran-nuclear-natantz-israel.html?searchResultPosition=6
+
+**New York Primary Election Results: 24th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=7
+
+**Virginia Democratic Primary Election Results: Fourth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=8
+
 **Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=6
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=9
 
-**Live: Mississippi House Primary Runoff and State House Special General Results 2020**\
+**New York Primary Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-mississippi-primary-runoff-special-general.html?searchResultPosition=7
-
-**New York Primary Election Results: Sixth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-6-primary-election.html?searchResultPosition=8
-
-**New York Primary Election Results: 17th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-17-primary-election.html?searchResultPosition=9
-
-**New York Primary Election Results: 25th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=10
 
