@@ -1,20 +1,20 @@
-**‘We Are Still Knee-Deep in the First Wave,’ Fauci Warns**\
-`Dr. Anthony S. Fauci said on Monday that he did not consider the increase in U.S. coronavirus cases a wave, but rather a resurgence of infections.`\
-https://nytimes.com/video/us/100000007226421/fauci-warned-we-are-still-knee-deep.html?searchResultPosition=6
+**Appeals Court Deals 2nd Blow to Trump Asylum Policy**\
+`A federal appeals court on Monday blocked a key U.S. policy to deny asylum to anyone who passes through another country without first seeking protection there, dealing it a second blow in less than a week.`\
+https://nytimes.com/aponline/2020/07/06/us/ap-us-immigration-asylum-ban.html?searchResultPosition=6
 
-**A Wine Getaway**\
-`New York Wine Events now offers winery tours, transportation included, for small groups of up to 12.`\
-https://nytimes.com/2020/07/06/dining/ny-winery-tours.html?searchResultPosition=7
+**Magnitude 6.6 Earthquake Rocks Indonesia; Tsunami Unlikely**\
+`A strong undersea earthquake has hit off the coast of Indonesia’s main island of Java, but no injuries or serious damage were reported immediately.`\
+https://nytimes.com/aponline/2020/07/06/world/asia/ap-as-indonesia-earthquake.html?searchResultPosition=7
 
-**Endangered Gorilla in New Orleans Expecting 1st Baby**\
-`One of the critically endangered gorillas in the New Orleans’ zoo is expecting her first baby, and already is being trained with a “doll" to hold her future offspring.`\
-https://nytimes.com/aponline/2020/07/06/us/ap-us-pregnant-endangered-gorilla.html?searchResultPosition=8
+**Court Overturns Order to Have GM, Fiat Chrysler Chiefs Meet**\
+`An appeals court on Monday said the CEOs of General Motors and Fiat Chrysler don't have to meet to settle a lawsuit between the two automakers.`\
+https://nytimes.com/aponline/2020/07/06/business/bc-us-gm-fiat-chrysler.html?searchResultPosition=8
 
-**United Airlines Adds More International Routes for September**\
-`United Airlines said on Monday it was further expanding its international schedule in September by bringing back service between Chicago and Hong Kong and Los Angeles and Sydney, and adding new nonstop flights between Chicago and Tel Aviv.`\
-https://nytimes.com/reuters/2020/07/06/business/06reuters-health-coronavirus-united-arlns.html?searchResultPosition=9
+**WNBA Launches Justice Movement, Allows Victim Names on Jerseys**\
+`The WNBA is forming a player-led Social Justice Council to address social justice and racial equality during the upcoming season and in the future.`\
+https://nytimes.com/reuters/2020/07/06/sports/06reuters-basketball-wnba-social-justice.html?searchResultPosition=9
 
-**Kanye West's Clothing Brand, Hollywood Production Companies on Pandemic Loan List**\
-`Ventures backed by big-name entertainers Kanye West and Francis Ford Coppola were among those approved for loans under a U.S. government program to help businesses survive the coronavirus pandemic, according to a list released on Monday.`\
-https://nytimes.com/reuters/2020/07/06/us/06reuters-health-coronavirus-ppp-entertainment.html?searchResultPosition=10
+**Japan May Real Wages Fall at Quickest Pace in Nearly Five Years**\
+`Japan's May inflation-adjusted real wages dropped at the fastest pace in nearly five years, government data showed on Tuesday, in a sign of labour market stress as the economy takes a heavy blow from the novel coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/07/06/world/asia/06reuters-japan-economy-wages.html?searchResultPosition=10
 
