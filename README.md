@@ -1,20 +1,20 @@
-**U.S. Tops 130,000 Deaths From COVID-19 After Record Surge in Cases**\
-`The number of U.S. coronavirus deaths exceeded 130,000 on Monday, following a surge of new cases that has put President Donald Trump's handling of the crisis under the microscope and derailed efforts to restart the economy.    `\
-https://nytimes.com/reuters/2020/07/06/us/06reuters-health-coronavirus-usa.html?searchResultPosition=6
+**With Miniature Mannequins, Dior Unveils Post-Lockdown Collection**\
+`French couture house Christian Dior upended its traditional catwalk show on Monday, presenting its intricate designs on miniature mannequins in a twist brought on by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/07/06/arts/06reuters-fashion-paris-haute-couture-dior.html?searchResultPosition=6
 
-**Kentucky Primary Election Results: Fourth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=7
+**Trudeau Turns Down White House Invitation Amid Pandemic**\
+`Prime Minister Justin Trudeau has turned down a White House invitation to celebrate the new regional free trade agreement in Washington with U.S President Donald Trump and and Mexican President Andrés Manuel López Obrador. `\
+https://nytimes.com/aponline/2020/07/06/world/americas/ap-cn-canada-trudeau-white-house.html?searchResultPosition=7
 
-**New York Primary Election Results: 22nd Congressional District**\
+**New York Primary Election Results: 25th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=8
 
-**Kentucky Primary Election Results: Sixth Congressional District**\
+**Virginia Democratic Primary Election Results: Fifth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-6-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-5-democrat-primary-election.html?searchResultPosition=9
 
-**New York Primary Election Results: 11th Congressional District**\
+**New York Primary Election Results: 13th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-13-primary-election.html?searchResultPosition=10
 
