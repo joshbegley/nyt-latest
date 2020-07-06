@@ -1,20 +1,20 @@
-**Second Executive Arrested in Wirecard Scandal in Germany**\
-`Another executive with bankrupt payment company Wirecard has been arrested in Germany on suspicion of aggravated fraud, prosecutors said Monday. The suspect, the head of a company subsidiary in Dubai, had returned to Germany to face proceedings. `\
-https://nytimes.com/aponline/2020/07/06/business/ap-eu-germany-wirecard-arrest.html?searchResultPosition=6
+**U.S. Tops 130,000 Deaths From COVID-19 After Record Surge in Cases**\
+`The number of U.S. coronavirus deaths exceeded 130,000 on Monday, following a surge of new cases that has put President Donald Trump's handling of the crisis under the microscope and derailed efforts to restart the economy.    `\
+https://nytimes.com/reuters/2020/07/06/us/06reuters-health-coronavirus-usa.html?searchResultPosition=6
 
-**Chicago's July 4 Weekend Ends With 14 Killed, 63 Wounded**\
-`One of Chicago's bloodiest holiday weekends in memory ended with 14 people fatally shot — including a 7-year-old girl and a 14-year-old boy — and 63 more wounded, despite a concerted effort by the police department that included an additional 1,200 officers on the streets.`\
-https://nytimes.com/aponline/2020/07/06/us/ap-us-chicago-violence.html?searchResultPosition=7
-
-**U.S. Trade Groups Urge China to Increase Purchases of U.S. Goods, Services**\
-`The U.S. Chamber of Commerce and over 40 trade associations on Monday urged top U.S. and Chinese officials to redouble efforts to implement a Phase 1 trade agreement signed by the world's two largest economies in January.`\
-https://nytimes.com/reuters/2020/07/06/technology/06reuters-usa-trade.html?searchResultPosition=8
-
-**Live: Virginia State Primary Election Results 2020**\
+**Kentucky Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-primary-elections.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=7
 
-**New York Primary Election Results: 24th Congressional District**\
+**New York Primary Election Results: 22nd Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-22-primary-election.html?searchResultPosition=8
+
+**Kentucky Primary Election Results: Sixth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-6-primary-election.html?searchResultPosition=9
+
+**New York Primary Election Results: 11th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=10
 
