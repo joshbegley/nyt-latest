@@ -1,4 +1,4 @@
-**BOJ to Project Economic Recovery in Report Next Week, Say Sources**\
+**Bank of Japan to Project Economic Recovery in Report Next Week, Say Sources**\
 `The Bank of Japan is expected to roughly maintain its view the economy will gradually recover later this year from the devastating impact of the coronavirus pandemic, sources familiar with the central bank's thinking say, even as fears of a second wave of infections cloud the outlook.`\
 https://nytimes.com/reuters/2020/07/06/world/asia/06reuters-japan-economy-boj.html?searchResultPosition=6
 
