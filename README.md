@@ -1,20 +1,20 @@
-**Virginia Democratic Primary Election Results: Fourth Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=6
+**Lloyds Bank CEO António Horta-Osório to Step Down in 2021**\
+`Lloyds Banking Group Chief Executive Officer António Horta-Osório will step down next year after spending a decade at the helm, the state-backed lender said on Monday as it appointed industry veteran Robin Budenberg as its new chairman.`\
+https://nytimes.com/reuters/2020/07/06/business/06reuters-lloyds-ceo.html?searchResultPosition=6
 
-**New York Special Election Results: 27th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-27-special-general-election.html?searchResultPosition=7
+**Big Four Told to Ring Fence Auditing in Britain by June 2024**\
+`PwC, Deloitte, KPMG and EY should ring fence auditing as a separate business by June 2024 to improve the quality of auditing, Britain's accounting watchdog said on Monday.`\
+https://nytimes.com/reuters/2020/07/06/business/06reuters-britain-accounts.html?searchResultPosition=7
 
-**New York Democratic Primary Election Results: Fifth Congressional District**\
+**Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-5-democrat-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=8
 
-**New York Primary Election Results: First Congressional District**\
+**New York Primary Election Results: 15th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-15-primary-election.html?searchResultPosition=9
 
-**Kentucky Primary Election Results: Fourth Congressional District**\
+**Virginia Primary Election Results: First Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-4-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-1-primary-election.html?searchResultPosition=10
 
