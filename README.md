@@ -1,20 +1,20 @@
-**Britain Set to Use New Powers to Impose Sanctions Over Rights**\
-`Britain will list on Monday the first foreign nationals to face asset freezes and visa bans for alleged human rights abuses under a new post-Brexit sanctions scheme that follows the 2012 U.S. Magnitsky Act.`\
-https://nytimes.com/reuters/2020/07/06/world/europe/06reuters-britain-eu-sanctions.html?searchResultPosition=6
+**U.S. Navy Carriers Conduct South China Sea Drills as Chinese Ships Watch**\
+`Two U.S. Navy aircraft carriers are conducting exercises in the contested South China Sea within sight of Chinese naval vessels spotted near the flotilla, the commander of one of the carriers, the USS Nimitz, told Reuters on Monday.`\
+https://nytimes.com/reuters/2020/07/06/world/asia/06reuters-usa-defence-nimitz.html?searchResultPosition=6
 
-**UK's Sunak Plans Tax Cuts to Boost COVID Recovery, The Times Reports**\
-`British finance minister Rishi Sunak will try to restart the country's economy by giving homebuyers a tax break and cutting value-added tax for pubs, restaurants and other hospitality firms, The Times newspaper reported.`\
-https://nytimes.com/reuters/2020/07/06/world/europe/06reuters-health-coronavirus-britain-sunak-tax.html?searchResultPosition=7
+**China Says U.S. Sent Ships to S.China Sea to Flex Its Muscles**\
+`China's foreign ministry said on Monday the United States had deliberately sent its ships to the South China Sea to flex its muscles and accused Washington of trying to drive a wedge between the countries in the region. `\
+https://nytimes.com/reuters/2020/07/06/world/asia/06reuters-usa-china-southchinasea-mofa.html?searchResultPosition=7
 
-**New York Primary Election Results: 17th Congressional District**\
+**New York Primary Election Results: 16th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-17-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-16-primary-election.html?searchResultPosition=8
 
-**New York Primary Election Results: 13th Congressional District**\
+**New York Primary Election Results: 11th Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-13-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-11-primary-election.html?searchResultPosition=9
 
-**Live: Kentucky State Primary Election Results 2020**\
+**Virginia Democratic Primary Election Results: Fifth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-primary-elections.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-5-democrat-primary-election.html?searchResultPosition=10
 
