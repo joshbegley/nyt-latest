@@ -1,20 +1,20 @@
-**Late South Korea Triathlete's Team Mates Detail Abuse Allegations**\
-`Former team mates of a South Korean triathlete found dead last month after alleging she had been abused by her coaching staff said on Monday athletes endured a living "hell" and were habitually beaten and verbally abused.`\
-https://nytimes.com/reuters/2020/07/06/sports/06reuters-southkorea-sport-abuse.html?searchResultPosition=6
+**UK New Car Sales Post Smaller Slump in June on Annual Basis**\
+`British new car registrations fell by a third on an annual basis in June when many dealerships reopened after COVID-19 lockdown measures were lifted, according to preliminary data from an industry body, a smaller drop than in March, April and May.`\
+https://nytimes.com/reuters/2020/07/06/business/06reuters-health-coronavirus-britain-autos.html?searchResultPosition=6
 
-**Kentucky Primary Election Results: Fifth Congressional District**\
+**Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-5-primary-election.html?searchResultPosition=7
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=7
 
-**Kentucky Presidential Democratic Primary Election Results**\
+**Virginia Democratic Primary Election Results: Fifth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-president-democrat-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-5-democrat-primary-election.html?searchResultPosition=8
 
-**New York Primary Election Results: Second Congressional District**\
+**Kentucky Primary Election Results: Second Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-2-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-2-primary-election.html?searchResultPosition=9
 
-**New York Primary Election Results: First Congressional District**\
+**Live: Virginia State Primary Election Results 2020**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-primary-elections.html?searchResultPosition=10
 
