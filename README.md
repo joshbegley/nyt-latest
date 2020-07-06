@@ -1,20 +1,20 @@
-**Iran's Hardline Lawmakers Move to Summon Rouhani-Tasnim**\
-`Iran's hardline lawmakers plan to summon the president for questioning, a move that could ultimately lead to impeachment, media reported on Monday, amid growing discontent over the government's economic policies. `\
-https://nytimes.com/reuters/2020/07/06/world/middleeast/06reuters-iran-parliament-rouhani.html?searchResultPosition=6
+**Virginia Democratic Primary Election Results: Fourth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=6
 
 **New York Primary Election Results: 25th Congressional District**\
 ``\
 https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-25-primary-election.html?searchResultPosition=7
 
-**New York Primary Election Results: 17th Congressional District**\
+**New York Primary Election Results: First Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-17-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-1-primary-election.html?searchResultPosition=8
 
-**Kentucky Primary Election Results: Second Congressional District**\
+**Live: Virginia State Primary Election Results 2020**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-2-primary-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-primary-elections.html?searchResultPosition=9
 
-**New York Primary Election Results: Fourth Congressional District**\
+**Virginia Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-4-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-3-primary-election.html?searchResultPosition=10
 
