@@ -1,20 +1,20 @@
-**New York Primary Election Results: 24th Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-24-primary-election.html?searchResultPosition=6
+**Hip-Hop’s Deluxe Editions Rule the Billboard Album Chart**\
+`The Atlanta rapper Lil Baby notched a fifth week at No. 1 and Lil Durk returned to No. 2 with recently refreshed releases.`\
+https://nytimes.com/2020/07/06/arts/music/lil-baby-lil-durk-billboard-chart.html?searchResultPosition=6
 
-**Virginia Primary Election Results: Second Congressional District**\
-``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-2-primary-election.html?searchResultPosition=7
+**Catalent Plant in Italy Will Help Produce J&J's Potential COVID-19 Vaccine: Minister**\
+`A plant in Italy owned by U.S. group Catalent will help produce the potential COVID-19 vaccine being developed by drugmaker Johnson & Johnson, Italian Health minister Roberto Speranza said on Monday.`\
+https://nytimes.com/reuters/2020/07/06/world/europe/06reuters-health-coronavirus-italy.html?searchResultPosition=7
 
-**New York Primary Election Results: 15th Congressional District**\
+**Kentucky Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-15-primary-election.html?searchResultPosition=8
+https://nytimes.com/interactive/2020/06/23/us/elections/results-kentucky-house-district-3-primary-election.html?searchResultPosition=8
 
-**North Carolina Republican Primary Runoff Election Results: 11th Congressional District**\
+**Virginia Democratic Primary Election Results: Fourth Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-north-carolina-house-district-11-republican-primary-runoff-election.html?searchResultPosition=9
+https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-house-district-4-democrat-primary-election.html?searchResultPosition=9
 
-**Virginia U.S. Senate Primary Election Results**\
+**New York Primary Election Results: Third Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/06/23/us/elections/results-virginia-senate-primary-election.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/06/23/us/elections/results-new-york-house-district-3-primary-election.html?searchResultPosition=10
 
