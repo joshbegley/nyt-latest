@@ -1,20 +1,20 @@
-**Biden Previews Manufacturing Plan to Counter 'America First' President**\
-`Democratic presidential candidate Joe Biden on Tuesday promised to revive U.S. manufacturing so that the country is not dependent on China, taking aim at his rival's promises to revive factories.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-usa-election-biden-manufacturing.html?searchResultPosition=6
+**Heat Will Stay Stuck on Extra High for July in Most of US**\
+`The heat is on. And for most of America it’ll stay on through the rest of the month and maybe longer, meteorologists say.`\
+https://nytimes.com/aponline/2020/07/07/science/ap-us-sci-extreme-heat.html?searchResultPosition=6
 
-**Jaime Harrison Raises Nearly $14 Million in Senate Bid to Unseat Lindsey Graham**\
-`Mr. Harrison was one of several Democratic candidates who announced impressive fund-raising totals for the second quarter of the year.`\
-https://nytimes.com/2020/07/07/us/politics/democrats-senate-fundraising.html?searchResultPosition=7
+**Mexico President Says Tests Negative for Coronavirus Prior to U.S. Trip**\
+`Mexican President Andres Manuel Lopez Obrador said on Tuesday he has tested negative for coronavirus, a step he needed to take before traveling to Washington to meet with U.S. President Donald Trump on Wednesday.`\
+https://nytimes.com/reuters/2020/07/07/world/americas/07reuters-usa-mexico-lopez-obrador.html?searchResultPosition=7
 
-**U.S. Consumer Watchdog Removes 'Ability-To-Pay' Need From Final Payday Loan Rule**\
-`The U.S. Consumer Financial Protection Bureau on Tuesday issued its long-awaited payday lending measure that rescinds an Obama-era proposal requiring lenders first ensure a borrower is able to repay them.`\
-https://nytimes.com/reuters/2020/07/07/us/07reuters-usa-cfpb-payday.html?searchResultPosition=8
+**U.S. Hiring Vaults to Record High in May; New COVID-19 Cases Set to Limit Gains**\
+`U.S. hiring surged to a record high in May and layoffs fell as businesses reopened, but the improvement in the labor market is likely to be blunted by a resurgence in COVID-19 cases that has forced some enterprises to shut down again.`\
+https://nytimes.com/reuters/2020/07/07/business/07reuters-usa-economy.html?searchResultPosition=8
 
-**Denmark Withdraws as Host of 2021 Artistic Worlds Due to COVID-19**\
-`Denmark has withdrawn as the host of next year's Artistic Gymnastics World Championships due to the economic impact of the COVID-19 pandemic, the Danish Gymnastics Federation (DIF) said in a statement on Tuesday.`\
-https://nytimes.com/reuters/2020/07/07/sports/07reuters-gymnastics-denmark.html?searchResultPosition=9
+**US-Apple-Movies-Top-10**\
+`Apple TV app - Movies US charts:`\
+https://nytimes.com/aponline/2020/07/07/business/ap-us-apple-movies-top-10.html?searchResultPosition=9
 
-**Zalando to Delist Boohoo Products Over Worker Rights Allegations**\
-`German online fashion retailer Zalando will delist all products made by Britain's Boohoo following a media report about dire working conditions in a English factory that supplied the popular brand.`\
-https://nytimes.com/reuters/2020/07/07/technology/07reuters-boohoo-suppliers-zalando.html?searchResultPosition=10
+**Biden Promises to Up US Production of Key Medical Equipment**\
+`Joe Biden is promising to shift production of medical equipment and other key pandemic-fighting products “back to U.S. soil," creating jobs and bolstering a domestic supply chain he says has been exposed as inadequate and vulnerable by the coronavirus outbreak. `\
+https://nytimes.com/aponline/2020/07/07/business/bc-us-election-2020-biden.html?searchResultPosition=10
 
