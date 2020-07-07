@@ -7,7 +7,7 @@ https://nytimes.com/2020/07/07/world/americas/mexico-43-missing-students-remains
 https://nytimes.com/aponline/2020/07/07/sports/baseball/ap-bbo-baseball-rdp.html?searchResultPosition=7
 
 **Who Tore Down This Frederick Douglass Statue?**\
-`President Trump and others have speculated about why vandals destroyed a Rochester, N.Y., statue of the prominent Black abolitionist in a time of racial reckoning.`\
+`President Trump and others have speculated about why vandals destroyed a Rochester, N.Y., statue of the prominent Black abolitionist even as protests against systemic racism continue.`\
 https://nytimes.com/2020/07/07/nyregion/frederick-douglass-statue-rochester.html?searchResultPosition=8
 
 **A Designer Who Makes Rugs Based on Screenshots**\
