@@ -1,20 +1,20 @@
+**Years After 43 Mexican Students Vanished, a Victim’s Remains Are Found**\
+`The identification of one victim’s remains is the first sign of progress in years in a case that traumatized Mexico and became a symbol of corruption and injustice.`\
+https://nytimes.com/2020/07/07/world/americas/mexico-43-missing-students-remains.html?searchResultPosition=6
+
+**More Positive Tests, Canceled Workouts Add to MLB Unease**\
+`As baseball nears the two-week countdown to the start of its delayed season, the COVID-19 pandemic continues to keep more players, including Boston Red Sox projected opening day starter Eduardo Rodriguez, off the field.`\
+https://nytimes.com/aponline/2020/07/07/sports/baseball/ap-bbo-baseball-rdp.html?searchResultPosition=7
+
+**Who Tore Down This Frederick Douglass Statue?**\
+`President Trump and others have speculated about why vandals destroyed a Rochester, N.Y., statue of the prominent Black abolitionist in a time of racial reckoning.`\
+https://nytimes.com/2020/07/07/nyregion/frederick-douglass-statue-rochester.html?searchResultPosition=8
+
 **A Designer Who Makes Rugs Based on Screenshots**\
 `Tom Atton Moore’s vibrant floor coverings are indebted to centuries-old craft techniques — and to the more contemporary art of trawling through one’s phone.`\
-https://nytimes.com/2020/07/07/t-magazine/tom-atton-moore.html?searchResultPosition=6
+https://nytimes.com/2020/07/07/t-magazine/tom-atton-moore.html?searchResultPosition=9
 
 **AP Explains: Bolsonaro Has Jousted at Virus Fears for Months**\
 `Brazilian President Jair Bolsonaro for months flirted with the new coronavirus as he flouted social distancing at lively demonstrations and encouraged crowds during outings from the presidential residence, often without a mask. `\
-https://nytimes.com/aponline/2020/07/07/world/americas/ap-lt-ap-explains-virus-outbreak-bolsonaro.html?searchResultPosition=7
-
-**'Significant Spread' of Virus Could Nix Season Again: Silver**\
-`NBA commissioner Adam Silver on Tuesday voiced concern that a "significant spread" of the coronavirus could potentially expose a "hole in our bubble" and shut down the season a second time.`\
-https://nytimes.com/reuters/2020/07/07/sports/basketball/07reuters-basketball-nba-silver-season.html?searchResultPosition=8
-
-**New List of Unproduced Plays Tallies Those Disrupted by Pandemic**\
-`This year, the Kilroys collective turned a spotlight on work by female and transgender writers whose productions were canceled or postponed.`\
-https://nytimes.com/2020/07/07/theater/kilroys-women-playwrights-coronavirus.html?searchResultPosition=9
-
-**'Palm Springs' Arrives for the Groundhog Days of Quarantine**\
-`Though most of the films that have debuted during the pandemic never got to screen for packed movie houses, “Palm Springs” had the kind of premiere filmmakers dream of. `\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-film-palm-springs.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/07/world/americas/ap-lt-ap-explains-virus-outbreak-bolsonaro.html?searchResultPosition=10
 
