@@ -1,20 +1,20 @@
+**NASA Adds More Safety Fixes for Boeing's Crew Capsule**\
+`NASA has added more safety fixes for Boeing’s space capsule before it can fly astronauts following a pair of close calls during last year’s test flight. `\
+https://nytimes.com/aponline/2020/07/07/science/ap-us-sci-boeing-crew-capsule.html?searchResultPosition=6
+
+**Britain Says It Will Resume Arms Sales to Saudi Arabia**\
+`Military sales were suspended over concerns about Saudi human rights violations in Yemen. Now, Britain argues that Saudi violations there are “isolated incidents.”`\
+https://nytimes.com/2020/07/07/world/europe/britain-arms-sales-saudi-arabia.html?searchResultPosition=7
+
+**Victims' Family Asks for Delay of Federal Inmate's Execution**\
+`Family members of the victims of an inmate scheduled to be put to death next week asked a federal judge to delay his execution Tuesday, saying the coronavirus pandemic puts them at risk if they travel to attend it.`\
+https://nytimes.com/aponline/2020/07/07/us/ap-us-federal-executions.html?searchResultPosition=8
+
 **2 Female Firsts at the Supreme Court Announce Retirements**\
 `The Supreme Court said Tuesday that the first-ever women to hold two prominent positions at the court, handling the justices' security and overseeing publication of the court's decisions, are retiring.`\
-https://nytimes.com/aponline/2020/07/07/us/politics/ap-us-supreme-court-staff-retirements.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/07/07/us/politics/ap-us-supreme-court-staff-retirements.html?searchResultPosition=9
 
 **NFL, NFLPA Still Haven't Resolved All Protocol for Camps**\
 `The NFL and the NFLPA haven’t come to an agreement on all protocols for training camp and the preseason as the report date for teams draws closer.`\
-https://nytimes.com/aponline/2020/07/07/sports/football/ap-fbn-nfl-union-dispute.html?searchResultPosition=7
-
-**Cases of Coronavirus in Idaho Spike After Businesses Reopen**\
-`For a time in Idaho, it seemed like the worst of the coronavirus pandemic could be over. After an initial onslaught of confirmed cases in the spring, by June numbers had dropped to a point that state leaders felt comfortable allowing businesses to reopen and life to get back to nearly normal.`\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-virus-outbreak-idaho.html?searchResultPosition=8
-
-**Texas Passes 10,000 Confirmed New Virus Cases in Single Day**\
-`Texas surpassed 10,000 new coronavirus cases in a single day Tuesday for the first time, crossing a sobering milestone rarely seen since the pandemic first hit the U.S. in March. `\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-virus-outbreak-texas.html?searchResultPosition=9
-
-**How Major US Stock Indexes Fared Tuesday**\
-`Technology companies and banks helped drive stocks broadly lower on Wall Street Tuesday as the market gave back some of the big gains it made the past couple of weeks.`\
-https://nytimes.com/aponline/2020/07/07/business/ap-financial-markets-box.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/07/sports/football/ap-fbn-nfl-union-dispute.html?searchResultPosition=10
 
