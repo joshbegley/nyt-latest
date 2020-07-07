@@ -1,20 +1,20 @@
-**MLS Nashville-Chicago Match Postponed After 5 Positive Tests**\
-`Major League Soccer has postponed the second match of the MLS is Back tournament after five Nashville players tested positive for COVID-19, the league announced Tuesday.`\
-https://nytimes.com/aponline/2020/07/07/sports/soccer/ap-soc-mls-nashville-testing.html?searchResultPosition=6
+**Liberty's Durr to Miss WNBA Season Due to Coronavirus**\
+`New York Liberty guard Asia Durr says she will miss the 2020 Women's National Basketball Association (WNBA) season after a "complicated and arduous" battle with COVID-19. `\
+https://nytimes.com/reuters/2020/07/07/sports/basketball/07reuters-health-coronavirus-basketball-wnba.html?searchResultPosition=6
 
-**As New York Grapples With Shootings Surge, Gunshots Mix With Fireworks Over Holiday Weekend**\
-`The crack of fireworks mixed with gunfire over the Independence Day holiday weekend in New York City.`\
-https://nytimes.com/reuters/2020/07/07/us/07reuters-usa-crime-new-york.html?searchResultPosition=7
+**Brother of Longest-Surviving Conjoined Twins: 'They Made 68'**\
+`A custom casket is being built for the funeral of the world's longest-surviving conjoined twins, who died July 4 in Ohio of natural causes. `\
+https://nytimes.com/aponline/2020/07/07/us/ap-us-oldest-conjoined-twins-die.html?searchResultPosition=7
 
-**DeVos Rejects Part-Time Reopening for Schools Amid Pandemic**\
-`Education Secretary Betsy DeVos on Tuesday assailed plans by some local districts to offer in-person instruction only a few days a week and said schools must be “fully operational” even amid the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-virus-outbreak-reopening-schools.html?searchResultPosition=8
+**New York City to Seek Assessment on Internet Providers to Fund Low-Income Service**\
+`New York City Mayor Bill de Blasio said on Tuesday the city would invest $157 million to expand high-speed internet service to low-income residents as part of a plan to offer universal broadband services to New Yorkers.`\
+https://nytimes.com/reuters/2020/07/07/us/07reuters-new-york-internet.html?searchResultPosition=8
 
-**Man Charged in Attack on Child Dancer Captured on Facebook**\
-`Authorities are looking for a Missouri man who is accused of punching a 12-year-old street performer in the head in an attack that was captured on Facebook Live and has been viewed hundreds of thousands of times.`\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-child-street-performer-attacked.html?searchResultPosition=9
+**Recent Commercial Real Estate Transactions**\
+`Recent commercial real estate transactions in New York.`\
+https://nytimes.com/2020/07/07/business/new-york-commercial-real-estate.html?searchResultPosition=9
 
-**Mary Trump's Book Offers Devastating Portrayal of President**\
-`President Donald Trump’s niece offered a devastating portrayal of him in a book that credits a “perfect storm of catastrophes" for exposing the president at his worst. `\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-mary-trump-book.html?searchResultPosition=10
+**Maryland GOP Governor Releasing Book on His Tenure, Politics**\
+`Maryland Gov. Larry Hogan, who considered a primary challenge to President Donald Trump last year, said Tuesday he is releasing a book about national politics and his experiences as governor this month after its publication was delayed by the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/07/07/us/ap-us-maryland-governor-book.html?searchResultPosition=10
 
