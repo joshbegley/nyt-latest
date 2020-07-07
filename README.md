@@ -1,20 +1,20 @@
+**US Notifies UN of Withdrawal From World Health Organization**\
+`The Trump administration has formally notified the United Nations of its withdrawal from the World Health Organization, although the pullout won’t take effect until next year, meaning it could be rescinded under a new administration of if circumstances change. `\
+https://nytimes.com/aponline/2020/07/07/us/politics/ap-us-united-states-who.html?searchResultPosition=6
+
+**Virus Fears, Regional Spats Snarl Arizona-Mexico Route**\
+`Fears about possible coronavirus infections from hard-hit Arizona mixed together with local politics south of the U.S.-Mexico border saw American vacationers turned back on the road to the popular resort of Puerto Peñasco over the long July 4 weekend. `\
+https://nytimes.com/aponline/2020/07/07/us/ap-us-virus-outbreak-border-checkpoints.html?searchResultPosition=7
+
+**Facebook Ad Boycott Organizers See 'No Commitment to Action' in Zuckerberg Meeting**\
+`Organizers of a growing Facebook advertising boycott said on Tuesday they see "no commitment to action" after meeting with Facebook Chief Executive Mark Zuckerberg.`\
+https://nytimes.com/reuters/2020/07/07/business/07reuters-facebook-ads-boycott.html?searchResultPosition=8
+
+**New French PM Pledges 7.5 Billion Euros for Hospital Staff**\
+`France's new prime minister, Jean Castex, said on Tuesday his government would commit an envelope of 7.5 billion euros to raise wages of hospital workers.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-france-hospitals.html?searchResultPosition=9
+
 **With Pandemic Keeping Them Apart, Runners Embrace Virtual Races**\
 `Marathons and meets are canceled, so runners are using tech to stay connected and compete.`\
-https://nytimes.com/2020/07/07/sports/coronavirus-virtual-races.html?searchResultPosition=6
-
-**Italy PM Conte Says Won't Accept 'Weak Compromise' on EU Recovery Fund**\
-`Italian Prime Minister Giuseppe Conte said on Tuesday the European Union must provide a strong response to the economic crisis caused by the COVID-19 pandemic, adding that support measures must be activated rapidly.`\
-https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-eu-budget-italy.html?searchResultPosition=7
-
-**Lebanon's Hezbollah Talks to Government About Iran Fuel Idea**\
-`The powerful Hezbollah group said on Tuesday it is in talks with the Lebanese government about the possibility of Iran supplying the country with refined oil products in exchange for Lebanese pounds.    `\
-https://nytimes.com/reuters/2020/07/07/world/middleeast/07reuters-lebanon-crisis.html?searchResultPosition=8
-
-**‘Greyhound’ Review: At Sea in World War II, With Tom Hanks in Command**\
-`Based on a 1955 novel, the film follows a Navy captain who must shepherd men and ships across the perilous Atlantic Ocean to join the war.`\
-https://nytimes.com/2020/07/07/movies/greyhound-review-tom-hanks.html?searchResultPosition=9
-
-**Turkey Says Six Killed in Bomb Attack Near Syria Border**\
-`A bomb attack by the Kurdish YPG militia killed six people and wounded 11 on Tuesday in the northeastern Syrian town of Tel Abyad, near the Turkish border, the Turkish Defence Ministry said.`\
-https://nytimes.com/reuters/2020/07/07/world/middleeast/07reuters-syria-security-blast.html?searchResultPosition=10
+https://nytimes.com/2020/07/07/sports/coronavirus-virtual-races.html?searchResultPosition=10
 
