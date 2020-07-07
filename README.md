@@ -1,20 +1,20 @@
-**Sweden Has Become the World’s Cautionary Tale**\
-`Its decision to carry on in face of the pandemic has yielded a surge of deaths without sparing its economy from damage — a red flag as the United States and Britain move to lift lockdowns.`\
-https://nytimes.com/2020/07/07/business/sweden-economy-coronavirus.html?searchResultPosition=6
+**President Bolsonaro of Brazil Tests Positive for Covid-19**\
+`After months of denying the seriousness of the pandemic and brushing aside protective measures, Mr. Bolsonaro felt symptoms of the disease. More than 65,000 Brazilians have died of the virus.`\
+https://nytimes.com/2020/07/07/world/americas/brazil-bolsonaro-coronavirus.html?searchResultPosition=6
 
-**At Least 2 Die in Head-On Collision of Czech Trains**\
-`Two passenger trains collided head-on in western Czech Republic, killing at least two people on board and injuring about 20, officials said on Tuesday.`\
-https://nytimes.com/aponline/2020/07/07/world/europe/ap-eu-czech-train-crash.html?searchResultPosition=7
+**For Cross-Border Couples, Plans to Reunite Are Still On Hold**\
+`Some couples separated by the U.S.-Canada border since the closure in March, managed to meet at a border-straddling park, while others are uncertain about when they will see each other again.`\
+https://nytimes.com/2020/07/07/fashion/weddings/for-cross-border-couples-plans-to-reunite-are-still-on-hold.html?searchResultPosition=7
 
-**In the Twin Cities’ Robust Dining Scene, Few Black-Owned Businesses**\
-`In the wake of George Floyd’s killing, chefs and restaurateurs are looking for ways to fix the racial imbalance.`\
-https://nytimes.com/2020/07/07/dining/twin-cities-restaurants-racial-injustice.html?searchResultPosition=8
+**Two Dead as Trains Collide in Czech Republic**\
+`At least two people died and as many as 30 were injured after two trains collided in the Czech Republic on Tuesday on a route in the northwest of the country near the German border, an emergency services spokesman told Czech Television.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-czech-crash.html?searchResultPosition=8
 
-**Randy Rainbow’s (Upper) West Side Story**\
-`The writer, performer and self-described ‘Cuomosexual’ is finally living in the apartment he always dreamed of.`\
-https://nytimes.com/2020/07/07/realestate/randy-rainbows-upper-west-side-story.html?searchResultPosition=9
+**Aluko Wants 30% BAME Representation at Top Levels of UK Sport**\
+`Former England soccer international Eniola Aluko has called for an increase in Black, Asian and minority ethnic (BAME) racial diversity at the top level of UK Sport to 30%. `\
+https://nytimes.com/reuters/2020/07/07/sports/soccer/07reuters-sport-britain.html?searchResultPosition=9
 
-**The Song Says It All: “Cover Your Freakin’ Face!”**\
-`Randy Rainbow, the writer, performer and self-described ‘Cuomosexual,’ is finally living in the apartment he always dreamed of.`\
-https://nytimes.com/slideshow/2020/07/07/realestate/the-song-says-it-all-cover-your-freakin-face.html?searchResultPosition=10
+**German Abattoir Hit by Coronavirus Still Closed Pending Hygiene Plan**\
+`A huge German slaughterhouse and meat packing plant at the centre of a coronavirus outbreak cannot reopen until authorities are satisfied with its hygiene procedures, the chief executive of the Guetersloh district said on Tuesday.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-health-coronavirus-germany-meat.html?searchResultPosition=10
 
