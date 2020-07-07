@@ -1,20 +1,20 @@
-**How Risky Is Dining Out During the COVID-19 Pandemic?**\
-`How risky is dining out during the COVID-19 pandemic? `\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-virus-outbreak-viral-questions-restaurants.html?searchResultPosition=6
+**UK House Prices Fall for Longest Period Since 2010: Halifax**\
+`British house prices fell for a fourth month in a row in June as COVID-19 continued to depress the market, the longest run of monthly declines since 2010, mortgage lender Halifax said on Tuesday.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-health-coronavirus-britain-houseprices.html?searchResultPosition=6
 
-**Turkey Raids Ship Carrying 276 Migrants; 8 Smugglers Held**\
-`Turkish authorities on Tuesday foiled an attempt to smuggle 276 migrants to Europe on board a ship, and detained eight suspected smugglers, Turkey’s state-run news agency reported.`\
-https://nytimes.com/aponline/2020/07/07/world/europe/ap-eu-europe-migrants-turkey.html?searchResultPosition=7
+**U.S. Women's League Dedicates Season to Social Justice**\
+`The U.S. Women's National Basketball Association (WNBA) has said teams will wear uniforms bearing the names of Black female victims of police brutality and racial violence during the league's opening weekend.`\
+https://nytimes.com/reuters/2020/07/07/sports/basketball/07reuters-global-race-basketball-wnba.html?searchResultPosition=7
 
-**Credit Agricole CEO Sees 'Encouraging' Signs of French Economic Bounce**\
-`Credit Agricole's Chief Executive Philippe Brassac said on Tuesday there were signs economic activity was picking up in France, in the aftermath of the coronavirus lockdown.`\
-https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-credit-agricole-outlook.html?searchResultPosition=8
+**Samsung Electronics Flags Second-Quarter Profit Jump on Solid Chip Demand, One-Off Gains From Apple**\
+`Samsung Electronics Co Ltd flagged a 23% rise in second-quarter operating profit on Tuesday, beating analysts' estimates on solid chip sales to data centres catering for a work-from-home economy during the novel coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/07/07/business/07reuters-samsung-elec-results.html?searchResultPosition=8
 
-**Nokia to Add Open Interfaces to Its Telecom Equipment**\
-`Finland's Nokia on Tuesday became the first major telecom equipment maker to commit to adding open interfaces in its products that will allow mobile operators to build networks that are not tied to a vendor.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-nokia-5g.html?searchResultPosition=9
+**Thailand Denies Monkeys Abused to Harvest Coconut Products**\
+`Thailand's coconut-picking monkeys, long a popular tourist attraction, have become a sensitive trade issue as British activists claim the animals are abused and push for a boycott of the nation's coconut products.`\
+https://nytimes.com/aponline/2020/07/07/business/ap-as-thailand-coconut-controversy.html?searchResultPosition=9
 
-**Public Housing Residents Decry 'Lockup' as Australia Contains COVID-19 Threat**\
-`Emel Evcin first heard on a phone call with a friend that nearby COVID-19 cases had rendered her Melbourne apartment block quarantined, yet on checking through the curtains, she saw not medical staff but law enforcement.`\
-https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-health-coronavirus-australia-towers.html?searchResultPosition=10
+**Aker BP Sees Second-Quarter Pretax Profit, to Reverse Impairments**\
+`Aker BP swung to a pretax profit in the second quarter from a loss in the first three months of the year, the Norwegian oil company said in a preliminary update on Tuesday.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-aker-bp-results.html?searchResultPosition=10
 
