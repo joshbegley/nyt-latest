@@ -1,20 +1,20 @@
+**A's Lefty Diekman Questions Whether There Will Be a Season**\
+`Jake Diekman has serious questions about Major League Baseball's ability to pull off a season given the issues everywhere getting timely test results, forcing delays and cancellations of workouts.`\
+https://nytimes.com/aponline/2020/07/07/sports/baseball/ap-bba-athletics-diekmans-concerns.html?searchResultPosition=6
+
+**Trump Presses for Schools to Reopen in the Fall**\
+`President Trump said he would pressure governors and others to reopen schools this fall despite the growing number of coronavirus cases across the United States.`\
+https://nytimes.com/video/us/100000007228444/trump-pressuring-schools-to-reopen-in-the-fall.html?searchResultPosition=7
+
+**The Inside Story of Why Mary Trump Wrote a Tell-All Memoir**\
+`President Trump’s niece was a family outcast. Her new book casts a cold light on the relatives she describes as dysfunctional.`\
+https://nytimes.com/2020/07/07/nyregion/mary-trump-book.html?searchResultPosition=8
+
+**The Real Horror of ‘Jaws’ Isn’t the Shark**\
+`It’s the leader who initially values capitalism over saving lives.`\
+https://nytimes.com/2020/07/07/opinion/coronavirus-jaws-movie.html?searchResultPosition=9
+
 **Is the Coronavirus Killing the World Health Organization?**\
 `President Trump is not its only problem.`\
-https://nytimes.com/2020/07/07/opinion/coronavirus-world-health-organization.html?searchResultPosition=6
-
-**Ex-LA Councilman Pleads Guilty in Corruption Case**\
-`Former Los Angeles City Councilman Mitchell Englander pleaded guilty Tuesday to a federal charge for lying to the FBI about receiving gifts and money from a businessman, including envelopes stuffed with $15,000 in cash.`\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-los-angeles-public-corruption.html?searchResultPosition=7
-
-**Don’t Let Russian Meddling Derail Afghanistan Withdrawal Plans**\
-`Allegations of bounties paid for the deaths of U.S. soldiers are serious. But the White House ought to stay the course toward a peace deal.`\
-https://nytimes.com/2020/07/07/opinion/russia-bounty-afghanistan-trump.html?searchResultPosition=8
-
-**Fox's Carlson Criticized for Saying Democrats Hate America**\
-`Television's most popular political host, Tucker Carlson, says leaders of the Democratic party should be disqualified from running the country because they “despise” it.`\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-media-carlson.html?searchResultPosition=9
-
-**Cars, a Cocktail and a Celebrity: South Koreans Succumb to Tesla Fever**\
-`From an eponymous cocktail to eager buyers following the shipping routes of long-awaited cars, Tesla Inc is having a moment in South Korea, particularly among tech-savvy professionals.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-tesla-southkorea.html?searchResultPosition=10
+https://nytimes.com/2020/07/07/opinion/coronavirus-world-health-organization.html?searchResultPosition=10
 
