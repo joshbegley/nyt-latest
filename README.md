@@ -1,20 +1,20 @@
-**Tennis: Winners and Winners, What Revised Rankings Mean for Top Five Men**\
-`Men's governing body ATP on Monday unveiled a revised system for calculating world rankings when the season resumes in August following a five-month suspension due to the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/07/07/sports/tennis/07reuters-health-coronavirus-tennis-rankings-explainer.html?searchResultPosition=6
+**Israeli Public Health Director Quits, Raps Swift Reopening of Economy**\
+`Israel's public health director quit on Tuesday amid a spike in new coronavirus cases, saying it had reopened the economy too rapidly and had lost its way in dealing with the pandemic.`\
+https://nytimes.com/reuters/2020/07/07/world/middleeast/07reuters-health-coronavirus-israel.html?searchResultPosition=6
 
-**Party-Switching Congressman Who Pledged Loyalty to Trump Sparks Heated N.J. Primary**\
-`Congressman Jeff Van Drew outraged New Jersey Democrats and delighted Donald Trump last year when he switched parties and pledged his "undying support" to the Republican president.`\
-https://nytimes.com/reuters/2020/07/07/us/politics/07reuters-usa-election-new-jersey.html?searchResultPosition=7
+**Polish Economy Could Return to Pre-Virus Levels in 2021: State Fund Head**\
+`Poland could return to pre-coronavirus levels of economic activity in the first or second quarter of 2021, the head of state fund PFR said on Tuesday, adding that the economy could grow by 5% in the third quarter versus the second.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-poland-gdp-pfr.html?searchResultPosition=7
 
-**Cyprus: EU Partners Aim to Rein in Turkey's 'Expansionism'**\
-`Cyprus and its European Union partners are working to rein in Turkey’s “expansionist policy” in the eastern Mediterranean amid heightened tensions over an offshore search for hydrocarbons, the island nation's president said Tuesday.`\
-https://nytimes.com/aponline/2020/07/07/business/bc-eu-turkey-eu.html?searchResultPosition=8
+**Fauci Paints a Dire Picture**\
+`A virus testing crisis grows, and Trump tries out new dog whistles: This is your morning tip sheet.`\
+https://nytimes.com/2020/07/07/us/politics/coronavirus-cases-fauci.html?searchResultPosition=8
 
-**Fiat Chrysler Restarts Production at Serbia's Plant: Report**\
-`Fiat Chrysler (FCA) restarted production at its Serbian plant, after halting it in mid-March in response to the coronavirus outbreak, Serbia's state-run Tanjug news agency reported on Tuesday.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-serbia-fiat.html?searchResultPosition=9
+**Kenyan Police Fire Teargas, Arrest Marchers Protesting at Brutality**\
+`Kenyan police on Tuesday fired teargas and arrested activists gathering for a march against perceived government injustice that has been given extra impetus this year by allegations by rights groups of police brutality during the COVID-19 lockdown.`\
+https://nytimes.com/reuters/2020/07/07/world/africa/07reuters-kenya-protests.html?searchResultPosition=9
 
-**As Confederate Monuments Fall, a Florida Community to Vote on Putting One Up**\
-`As Confederate Civil War monuments fall across the United States, one central Florida community with a racist past will vote on plans to put up a statue of a Confederate general who lived in the Sunshine State briefly as a child.`\
-https://nytimes.com/reuters/2020/07/07/us/07reuters-global-race-florida-statue.html?searchResultPosition=10
+**Factbox: How to Turn Around the UK's Coronavirus Slump: Sunak's Options**\
+`British finance minister Rishi Sunak is considering measures ranging from tax cuts to hiring incentives as he tries to steer the world's sixth-biggest economy towards recovery after a 25% coronavirus crash in March and April.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-health-coronavirus-britain-economy-factbox.html?searchResultPosition=10
 
