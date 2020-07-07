@@ -1,20 +1,20 @@
-**HHS to Offer Free COVID-19 Testing in Florida, Texas, Louisiana Hotspots**\
-`The U.S. Department of Health and Human Services (HHS) said on Tuesday there would be temporary free COVID-19 testing in three cities in Florida, Louisiana and Texas as the U.S. states tackle surging cases and hospitalizations.`\
-https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-usa-testing.html?searchResultPosition=6
+**Man Charged in Attack on Child Dancer Captured on Facebook**\
+`Authorities are looking for a Missouri man who is accused of punching a 12-year-old street performer in the head in an attack that was captured on Facebook Live and has been viewed hundreds of thousands of times.`\
+https://nytimes.com/aponline/2020/07/07/us/ap-us-child-street-performer-attacked.html?searchResultPosition=6
 
-**Eagles WR DeSean Jackson Apologizes for Anti-Semitic Post**\
-`Philadelphia Eagles wide receiver DeSean Jackson has apologized after backlash for sharing anti-Semitic posts on social media over the weekend.`\
-https://nytimes.com/aponline/2020/07/07/sports/football/ap-fbn-eagles-jackson.html?searchResultPosition=7
+**Mary Trump's Book Offers Devastating Portrayal of President**\
+`President Donald Trump’s niece offered a devastating portrayal of him in a book that credits a “perfect storm of catastrophes" for exposing the president at his worst. `\
+https://nytimes.com/aponline/2020/07/07/us/ap-us-mary-trump-book.html?searchResultPosition=7
 
-**MLS Postpones Nashville's Game After Five Players Test Positive**\
-`Major League Soccer said on Tuesday it had postponed Nashville SC's first game of the Orlando-based MLS is Back Tournament after five players tested positive for COVID-19, and will evaluate the club's participation in the tournament.`\
-https://nytimes.com/reuters/2020/07/07/sports/soccer/07reuters-soccer-usa.html?searchResultPosition=8
+**Poor Data Obscures COVID-19 Death Toll at Spain's Nursing Homes**\
+`The Spanish government is still not able to say how many nursing home residents have died because of the coronavirus, according to a Health Ministry document seen by Reuters, which puts the blame on a lack of good enough data from regional authorities.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-health-coronavirus-spain-nursing-homes.html?searchResultPosition=8
 
-**Zimbabwe's Health Minister, Accused of Corruption, Sacked: Statement**\
-`Zimbabwe's President Emmerson Mnangagwa has sacked health minister Obadiah Moyo with immediate effect for inappropriate conduct, a statement from the presidency shared by information minister Nick Mangwana on Twitter on Tuesday said. `\
-https://nytimes.com/reuters/2020/07/07/world/africa/07reuters-zimbabwe-health-minister.html?searchResultPosition=9
+**Size of Next Coronavirus Waves Will Determine UK Outlook: BoE's Haldane**\
+`Further waves of the novel coronavirus are surely on the way and they will be one of the determinants of Britain's economic outlook, Bank of England Chief Economist Andy Haldane said on Tuesday.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-britain-boe-haldane.html?searchResultPosition=9
 
-**A Short History of ‘Simp’**\
-`An insult takes a dizzying trip through rap, men’s rights, misogyny and TikTok.`\
-https://nytimes.com/2020/07/07/style/simp-history-slang.html?searchResultPosition=10
+**Intense Arctic Wildfires Set a Pollution Record**\
+`High temperatures and dry soil mean ideal conditions for fires. Blazes in June produced more carbon emissions than any other fires in almost two decades of monitoring.`\
+https://nytimes.com/2020/07/07/climate/climate-change-arctic-fires.html?searchResultPosition=10
 
