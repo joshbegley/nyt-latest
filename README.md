@@ -1,20 +1,20 @@
-**New Zealander Erceg Holds Down North Carolina's Backline**\
-`Coach Paul Riley calls defender Abby Erceg the bedrock of the North Carolina Courage. `\
-https://nytimes.com/aponline/2020/07/07/sports/soccer/ap-soc-nwsl-steady-erceg.html?searchResultPosition=6
+**Column: The Measure of DeChambeau Is if Anyone Copies Him**\
+`He reduced the golf course to a pitch-and-putt with power that got everyone's attention.`\
+https://nytimes.com/aponline/2020/07/07/sports/golf/ap-glf-on-the-fringe-dechambeau.html?searchResultPosition=6
 
-**Fed's Clarida Says There Is More the Fed Can and Will Do**\
-`With the surge in coronavirus cases threatening the U.S. recovery, Federal Reserve Vice Chairman Richard Clarida had a message on Tuesday: the U.S. central bank is not going to sit idly, even if a double dip recession is not the base case scenario.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-usa-fed-clarida.html?searchResultPosition=7
+**Immigrant Advocates Say US Policy Change Endangers Workers**\
+`Immigrant advocates in New Orleans claim in a federal lawsuit that federal rule changes made last year by the U.S. Department of Labor will make foreign workers fearful of reporting workplace abuses or human trafficking for fear of being deported.`\
+https://nytimes.com/aponline/2020/07/07/business/ap-us-immigrant-workers-visas-lawsuit.html?searchResultPosition=7
 
-**‘It Was Positive’: President of Brazil Says He Has Coronavirus**\
-`President Jair Bolsonaro of Brazil has repeatedly dismissed the danger posed by the coronavirus. On Tuesday, he disclosed that he had the virus.`\
-https://nytimes.com/video/world/100000007227729/brazil-bolsonaro-coronavirus.html?searchResultPosition=8
+**Trump Says He Will Pressure Governors to Open Schools in the Fall**\
+`U.S. President Donald Trump said on Tuesday he would pressure state governors to open schools in the fall, despite a steady increase in coronavirus cases across the country.`\
+https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-usa-education-trump.html?searchResultPosition=8
 
-**Eagles' Jackson Apologizes After Posting Anti-Semitic Messages**\
-`Philadelphia Eagles wide receiver DeSean Jackson issued an apology after posting an anti-Semitic message that he attributed to Adolf Hitler and admiration for Nation of Islam leader Louis Farrakhan on social media.`\
-https://nytimes.com/reuters/2020/07/07/sports/football/07reuters-football-nfl-phi-jackson.html?searchResultPosition=9
+**Trump Paid Proxy to Take College Entrance Exam for Him, Niece's Book Says**\
+`President Donald Trump paid a proxy to take a standardized college entrance exam for him when he was a high school student, his niece writes in a tell-all book scheduled to be published next week.     `\
+https://nytimes.com/reuters/2020/07/07/us/politics/07reuters-usa-trump-book.html?searchResultPosition=9
 
-**Investigators Identify Remains of One of 43 Students Missing in Mexico: Attorney General's Office**\
-`Investigators from Austria's University of Innsbruck have identified the remains of one student teacher who disappeared in Mexico along with 42 fellow students in 2014, an official from the Mexican Attorney General's office said on Tuesday. `\
-https://nytimes.com/reuters/2020/07/07/world/americas/07reuters-mexico-violence.html?searchResultPosition=10
+**Timeline: Key Moments in Bolsonaro's Handling of COVID-19 Crisis**\
+`Brazilian President Jair Bolsonaro on Tuesday tested positive for COVID-19, the latest victim of a disease that has wreaked havoc in Brazil, the world's No. 2 coronavirus hotspot after the United States. `\
+https://nytimes.com/reuters/2020/07/07/world/americas/07reuters-health-coronavirus-brazil-timeline.html?searchResultPosition=10
 
