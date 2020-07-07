@@ -1,20 +1,20 @@
+**Ellie Goulding Likes Her ’90s Rock Political and Her Social Media Inspiring**\
+`The British pop star, who’s releasing her first album in five years, “Brightest Blue,” also has Kate Bush and an Almodóvar film on her list of cultural must-haves.`\
+https://nytimes.com/2020/07/07/arts/music/ellie-goulding-favorites.html?searchResultPosition=6
+
+**Julianna Barwick Left Her Ghosts in New York. Then the Healing Began.**\
+`The musician became a star on the city’s experimental music scene, but her personal life spiraled into chaos. A move to Los Angeles unlocked her creativity and let her find joy again.`\
+https://nytimes.com/2020/07/07/arts/music/julianna-barwick-healing-is-a-miracle.html?searchResultPosition=7
+
+**Are Accessible Cosmetics the Final Frontier in Makeup Inclusivity?**\
+`Makeup companies are creating products that are easier to open and apply, especially for people living with A.L.S., Parkinson’s, multiple sclerosis, arthritis and other disabilities.`\
+https://nytimes.com/2020/07/07/style/disability-accessible-beauty-makeup.html?searchResultPosition=8
+
+**Greece Relocates Group of Young Refugees to Portugal**\
+`Greece moved 25 unaccompanied minors from overcrowded migrant camps to Portugal on Tuesday as part of a relocation programme to EU countries.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-europe-migrant-greece-unaccompanied.html?searchResultPosition=9
+
 **Two Chefs Left Minneapolis to Expand on Their Mission of Racial Justice**\
 `In a small Minnesota community, Mateo Mackbee and Erin Lucas are using their restaurant, bakery and farm to promote diversity and teach children about food.`\
-https://nytimes.com/2020/07/07/dining/krewe-restaurant-mateo-mackbee-erin-lucas.html?searchResultPosition=6
-
-**Movement for Black Lives Seeks Sweeping Legislative Changes**\
-`Proposed federal legislation that would radically transform the nation's criminal justice system through such changes as eliminating agencies like the Drug Enforcement Administration and the use of surveillance technology is set to be unveiled Tuesday by the Movement for Black Lives.`\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-black-lives-matter-legislation.html?searchResultPosition=7
-
-**The Quarter After the Half: Why the Next Three Months Are Key for Stocks**\
-`Central bank firepower helped stock market bulls finish the first half of 2020 on a high. Now the rally hinges on follow-through in the third-quarter from economic data, company earnings and the coronavirus newsflow.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-health-coronavirus-quarter-analysis.html?searchResultPosition=8
-
-**Coronavirus Pain Drives Big Oil's Dash for Record Debt**\
-`The world's top oil and gas companies locked in cheap borrowing rates to raise a record amount of debt in the second quarter of 2020 and boost cash reserves as a buffer against a collapse in revenues because of COVID-19.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-oilmajors-debt.html?searchResultPosition=9
-
-**Televangelists, Dallas Megachurch That Hosted Pence Approved for Millions in Pandemic Aid**\
-`A Dallas megachurch whose pastor has been a vocal supporter of President Donald Trump was approved for a forgivable loan worth $2 million to $5 million, according to long-awaited government data released on Monday.`\
-https://nytimes.com/reuters/2020/07/07/us/politics/07reuters-health-coronavirus-ppp-religious.html?searchResultPosition=10
+https://nytimes.com/2020/07/07/dining/krewe-restaurant-mateo-mackbee-erin-lucas.html?searchResultPosition=10
 
