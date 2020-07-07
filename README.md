@@ -1,20 +1,20 @@
+**Suit Over Sex Abuse at Kansas VA Hospital Goes to Trial**\
+`A lawsuit against a Veterans Affairs hospital in Kansas where a former physician assistant molested countless patients involves “the largest sexual abuse scandal in the history of the VA," a lawyer for one of the victims told a federal judge Tuesday.`\
+https://nytimes.com/aponline/2020/07/07/us/ap-us-veterans-hospital-sexual-abuse.html?searchResultPosition=6
+
+**I’m a U.S. Citizen, Where in the World Can I Go?**\
+`For Americans eager to resume international travel, here are the countries that currently allow U.S. citizens to enter, though there may be restrictions.`\
+https://nytimes.com/2020/07/07/travel/american-travelers-restrictions-coronavirus.html?searchResultPosition=7
+
+**Breonna Taylor's Family Argues Police Had No Cause for Raid**\
+`Louisville police called off a warrant search of Breonna Taylor’s apartment after a drug suspect was located elsewhere, but then went ahead with the deadly raid to look for other suspects with no connection to Taylor, her family says in a new court filing.`\
+https://nytimes.com/aponline/2020/07/07/us/ap-us-racial-injustice-taylor-family-suit.html?searchResultPosition=8
+
+**‘A Colossal Error’: Mexican Leader Under Fire for Plan to Visit Trump**\
+`Mexican President Andrés Manuel López Obrador will meet in the White House this week with President Trump, and said he plans to praise the administration for its “respectful treatment” of Mexicans.`\
+https://nytimes.com/2020/07/07/world/americas/obrador-washington-trump-thanks.html?searchResultPosition=9
+
 **Many Countries May Need Debt Restructuring After Pandemic Fallout: IMF Chief Economist**\
 `Many countries may need debt restructuring in the aftermath of the global coronavirus pandemic and its economic fallout, the International Monetary Fund's chief economist said Tuesday.`\
-https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-debt.html?searchResultPosition=6
-
-**In France, Study Shows Virus Hit African Immigrants Hardest**\
-`Death rates among immigrants from sub-Saharan Africa doubled in France and tripled in the Paris region at the height of France's coronavirus outbreak, according to a study from the French government's statistics agency released Tuesday.`\
-https://nytimes.com/aponline/2020/07/07/world/europe/ap-eu-virus-outbreak-france-immigrant-deaths.html?searchResultPosition=7
-
-**Florida Killer Pleads Not Guilty to Husband's Slaying**\
-`A southern Minnesota woman convicted of killing a woman in Florida to assume her identity pleaded not guilty before a judge in her home state Tuesday in her husband's 2018 slaying.`\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-husband-killed-fugitive.html?searchResultPosition=8
-
-**Hoping for a Theater Bailout? Better Head to London.**\
-`The British government has promised $2 billion to save its cultural institutions, while the American theater, lacking meaningful leadership, is left to fend for itself.`\
-https://nytimes.com/2020/07/07/theater/theater-bailout-britain.html?searchResultPosition=9
-
-**COVID-19 Hit U.S. Meat, Poultry Plant Workers Hard in April, May: U.S. Report**\
-`The coronavirus outbreak took a heavy toll on workers at U.S. meat and poultry processing facilities, with more than 17,000 COVID-19 cases and nearly 100 deaths in April and May, according to a report from the Centers for Disease Control and Prevention (CDC) released on Tuesday.`\
-https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-usa-meatprocessing.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-debt.html?searchResultPosition=10
 
