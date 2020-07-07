@@ -1,20 +1,20 @@
-**Living In ... Island Heights, N.J.**\
-`Founded in the 19th century as a Methodist camp meeting site, this Ocean County borough retains an old-fashioned feeling, even as newcomers move in.`\
-https://nytimes.com/slideshow/2020/07/07/realestate/living-in-island-heights-nj.html?searchResultPosition=6
+**Almost Half of Nearly 5,000 FBI Counter-Intelligence Cases Related to China, FBI Chief Says**\
+`Almost half of nearly 5,000 active FBI counter-intelligence cases now underway are related to China, FBI Director Christopher Wray said on Tuesday.`\
+https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-usa-china-wray.html?searchResultPosition=6
 
-**Three More States Added to New York Governor's Quarantine Order**\
-`New York Governor Andrew Cuomo on Tuesday ordered people arriving from an additional three states to quarantine for 14 days amid the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-new-york.html?searchResultPosition=7
+**CoreLogic Rejects $7 Billion Takeover Bid From Investment Firms**\
+`Property data and analytics company CoreLogic on Tuesday rejected an unsolicited $7 billion takeover offer and said business was so strong that it expected to earn more this year and would be able to buy back more of its stock.`\
+https://nytimes.com/reuters/2020/07/07/business/07reuters-corelogic-m-a-cannae-holdings.html?searchResultPosition=7
 
-**U.S. Appeals Court Rejects GM's Call to Remove Judge From Fiat Chrysler Lawsuit**\
-`A U.S. appeals court on Monday denied General Motors Co's petition to remove a lower court judge from its racketeering lawsuit against Fiat Chrysler Automobiles (FCA), but said the companies' heads need not meet to settle the issue.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-gm-fiat-chrysler-appeal.html?searchResultPosition=8
+**Values or Economy? Right-Wing Poles Weigh Options in Election Runoff**\
+`Marcin Stasko did not hesitate to vote for the candidate of the small far-right Confederation party in the first round of Poland's presidential election last month, attracted in part by his promise to cut taxes.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-poland-election-farright.html?searchResultPosition=8
 
-**U.S. Charges Ex-Panama President's Sons With Bribery, Money Laundering**\
-`U.S. prosecutors have charged two sons of former Panamanian President Ricardo Martinelli in connection with bribery and money laundering linked to Brazilian construction firm Odebrecht, according to a federal complaint unsealed on Monday.`\
-https://nytimes.com/reuters/2020/07/07/world/americas/07reuters-panama-guatemala-corruption.html?searchResultPosition=9
+**Health Panel May Open Lung Cancer Screening to More Smokers**\
+`A U.S. health panel wants to widen the number of Americans offered yearly scans for lung cancer by opening the screening to less-heavy smokers.`\
+https://nytimes.com/aponline/2020/07/07/health/ap-us-med-lung-cancer-screening.html?searchResultPosition=9
 
-**U.S. Hiring Races to Record High in May, Layoffs Abate**\
-`U.S. hiring surged to a record high in May and layoffs declined as businesses reopened, but the signs of improvement in the labor market have been overshadowed by a resurgence in COVID-19 cases that has forced some enterprises to shut down again.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-usa-economy-jobs.html?searchResultPosition=10
+**Review Finds Many Who Work During Rehab Aren't Being Paid**\
+`Across the country, drug and alcohol recovery programs claiming to help the poor and the desperate are instead conscripting them into forms of indentured servitude, requiring them to work without pay or for pennies on the dollar, in exchange for their stay. `\
+https://nytimes.com/aponline/2020/07/07/business/ap-us-rehab-made-in-america.html?searchResultPosition=10
 
