@@ -1,20 +1,20 @@
+**European Stocks Ease From One-Month Highs as Rebound Hopes Dim**\
+`European shares fell on Tuesday as surging U.S. coronavirus cases and forecasts for a deeper-than-feared recession in the euro zone dimmed optimism around a post-pandemic rebound. `\
+https://nytimes.com/reuters/2020/07/07/business/07reuters-europe-stocks.html?searchResultPosition=6
+
+**AP Was There: Serena Beats Venus for 1st Wimbledon Title**\
+`By The Associated Press`\
+https://nytimes.com/aponline/2020/07/07/sports/tennis/ap-ten-ap-was-there-2002-wimbledon.html?searchResultPosition=7
+
+**Almost 40% of Borrowers in Italy Have Problems With Home Loans: Bank of Italy**\
+`Almost 40% of Italian borrowers are struggling to pay home loans because of the impact of the coronavirus crisis and almost half of those surveyed expect their incomes to fall over the next 12 months, according to a Bank of Italy study published on Tuesday.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-health-coronavirus-italy-debt.html?searchResultPosition=8
+
+**Deutsche Bank's Positive Momentum Continued in Second Quarter, CEO Says**\
+`Deutsche Bank Chief Executive Christian Sewing said that positive momentum continued in the second quarter but that some areas of business will slow down in the second half of the year.`\
+https://nytimes.com/reuters/2020/07/07/business/07reuters-deutsche-bank-ceo.html?searchResultPosition=9
+
 **Australia Warns of 'Arbitrary Detention' Risk in China**\
 `Australia on Tuesday warned its citizens that they may be at risk of “arbitrary detention” if they visit China.`\
-https://nytimes.com/aponline/2020/07/07/world/asia/ap-as-australia-china.html?searchResultPosition=6
-
-**WHO Doesn't See Bubonic Plague in China as High Risk, Spokeswoman Says**\
-`The outbreak of bubonic plague in China is being "well managed" and is not considered to represent a high risk, a World Health Organization (WHO) official said on Tuesday.    `\
-https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-china-health-plague-who.html?searchResultPosition=7
-
-**What to Know About N.Y.C.’s Uptick in Shootings**\
-`Over the weekend, 64 people were shot, with 10 dead. A  surge of gun violence has shaken a city that was already on edge.`\
-https://nytimes.com/2020/07/07/nyregion/nyc-shootings.html?searchResultPosition=8
-
-**Coronavirus Live Updates: Testing Demand in U.S. Soars, Creating a New Crisis**\
-`Dr. Anthony Fauci warned that the country was still “knee-deep in the first wave” of the pandemic. Test results are expected for Brazil’s president after he showed symptoms of the virus.`\
-https://nytimes.com/2020/07/07/world/coronavirus-updates.html?searchResultPosition=9
-
-**U.S. Firms in India Not Ready to Pay Digital Tax, Lobby Group Says**\
-`A lobby group representing U.S. technology giants has said its members are not yet ready to make the first payment of the country's digital tax due this week, urging New Delhi to defer the move.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-india-tax-digital.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/07/world/asia/ap-as-australia-china.html?searchResultPosition=10
 
