@@ -1,20 +1,20 @@
-**NASA Adds More Safety Fixes for Boeing's Crew Capsule**\
-`NASA has added more safety fixes for Boeing’s space capsule before it can fly astronauts following a pair of close calls during last year’s test flight. `\
-https://nytimes.com/aponline/2020/07/07/science/ap-us-sci-boeing-crew-capsule.html?searchResultPosition=6
+**1st 60: How MLB Standouts Fared in What Will Equal Full 2020**\
+`Cody Bellinger was well on his way to becoming the National League MVP only 60 games into last season for the Los Angeles Dodgers, already with 20 homers in that stretch before his 24th birthday.`\
+https://nytimes.com/aponline/2020/07/07/sports/baseball/ap-bbo-mlb-standout-seasons-first-60.html?searchResultPosition=6
 
-**Britain Says It Will Resume Arms Sales to Saudi Arabia**\
-`Military sales were suspended over concerns about Saudi human rights violations in Yemen. Now, Britain argues that Saudi violations there are “isolated incidents.”`\
-https://nytimes.com/2020/07/07/world/europe/britain-arms-sales-saudi-arabia.html?searchResultPosition=7
+**US Hits Chinese Officials With Visa Bans Over Tibet Access**\
+`The Trump administration fired a new shot in its diplomatic war with China on Tuesday by imposing travel bans on Chinese officials it says are restricting foreigners’ access to Tibet.`\
+https://nytimes.com/aponline/2020/07/07/us/politics/ap-us-united-states-china-tibet.html?searchResultPosition=7
 
-**Victims' Family Asks for Delay of Federal Inmate's Execution**\
-`Family members of the victims of an inmate scheduled to be put to death next week asked a federal judge to delay his execution Tuesday, saying the coronavirus pandemic puts them at risk if they travel to attend it.`\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-federal-executions.html?searchResultPosition=8
+**Brazil Corporations Urge Action on Illegal Logging in Amazon**\
+`Dozens of Brazilian corporations are calling for a crackdown on illegal logging in the Amazon rainforest, expressing their concerns in a letter Tuesday to the vice president, who heads the government's council on that region.`\
+https://nytimes.com/aponline/2020/07/07/business/ap-lt-brazil-amazon-deforestation.html?searchResultPosition=8
 
-**2 Female Firsts at the Supreme Court Announce Retirements**\
-`The Supreme Court said Tuesday that the first-ever women to hold two prominent positions at the court, handling the justices' security and overseeing publication of the court's decisions, are retiring.`\
-https://nytimes.com/aponline/2020/07/07/us/politics/ap-us-supreme-court-staff-retirements.html?searchResultPosition=9
+**Hospital Led by Biotech Billionaire Soon-Shiong Approved for PPP Aid**\
+`A Pennsylvania hospital led by biotech billionaire Patrick Soon-Shiong won approval for up to $5 million in federal aid for small businesses under a coronavirus pandemic loan program, government data show.`\
+https://nytimes.com/reuters/2020/07/07/business/07reuters-health-coronavirus-ppp-hospital.html?searchResultPosition=9
 
-**NFL, NFLPA Still Haven't Resolved All Protocol for Camps**\
-`The NFL and the NFLPA haven’t come to an agreement on all protocols for training camp and the preseason as the report date for teams draws closer.`\
-https://nytimes.com/aponline/2020/07/07/sports/football/ap-fbn-nfl-union-dispute.html?searchResultPosition=10
+**Five States, Washington, D.C. Sue Education Department, Say Coronavirus Relief Deprived Low-Income Schools**\
+`Five states and Washington, D.C. sued the Trump administration on Tuesday, saying Education Secretary Betsy DeVos "unlawfully and erroneously" earmarked coronavirus relief funds for private and affluent schools.`\
+https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-usa-education-lawsuit.html?searchResultPosition=10
 
