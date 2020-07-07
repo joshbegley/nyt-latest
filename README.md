@@ -1,20 +1,20 @@
+**Ericsson Says Not Sourcing Products From China's Panda Electronics**\
+`Ericsson is not sourcing products from Panda Electronics Group, one of the companies named by the United States as potentially controlled by the Chinese military, the Swedish telecom gear maker said on Tuesday.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-ericsson-panda.html?searchResultPosition=6
+
+**Pussy Riot Member Faces New Charges in Russia**\
+`A member of the Pussy Riot protest group has been charged with failing to properly notify Russian authorities about his Canadian citizenship, officials said Tuesday.`\
+https://nytimes.com/aponline/2020/07/07/world/europe/ap-eu-russia-pussy-riot.html?searchResultPosition=7
+
+**EU Executive Expresses Concern Over Hungary's Media Freedom**\
+`A senior European Commission official has expressed concern for the independence of Index.hu, one of Hungary's last major independent news websites and a leading critic of Prime Minister Viktor Orban's government.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-hungary-media.html?searchResultPosition=8
+
 **Suicide Bombing, Attack in 4 Afghanistan Kill 7 Police**\
 `A suicide car bomber targeted an Afghan police convoy in eastern Nangarhar province on Tuesday morning, killing four officers, including a police commander, a local official said. Three other officers were killed in an attack in the country's south.`\
-https://nytimes.com/aponline/2020/07/07/world/asia/ap-as-afghanistan.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/07/07/world/asia/ap-as-afghanistan.html?searchResultPosition=9
 
 **US Probes Fuel Leaks in Older Chevy Cobalt and HHR Vehicles**\
 `The U.S. government's road safety agency is investigating complaints of fuel leaks in older Chevrolet Cobalt small cars and HHR wagons.`\
-https://nytimes.com/aponline/2020/07/07/business/ap-us-chevrolet-cobalt-investigation.html?searchResultPosition=7
-
-**London Police Stop Star Athletes, Setting Off Racial Profiling Debate**\
-`Bianca Williams, a European gold medalist, accused the officers of targeting her and her partner, a fellow sprinter, because they are Black and drive an expensive car.`\
-https://nytimes.com/2020/07/07/world/europe/uk-police-bianca-williams-racial-profiling.html?searchResultPosition=8
-
-**Bus Plunges Into Reservoir in China, 21 Dead**\
-`A bus carrying students to an exam plunged into a reservoir in China on Tuesday after making a sudden swerve across five other lanes of traffic, leaving 21 dead and 16 injured, a video on state media showed.`\
-https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-china-bus.html?searchResultPosition=9
-
-**GSK to Work on Potential COVID-19 Shot With Canada's Medicago**\
-`Britain's GSK said on Tuesday it will develop and test a potential COVID-19 vaccine using its booster technology and Canadian biopharmaceutical firm Medicago's coronavirus-like particles.`\
-https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-health-coronavirus-gsk-medicago.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/07/business/ap-us-chevrolet-cobalt-investigation.html?searchResultPosition=10
 
