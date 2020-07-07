@@ -1,20 +1,20 @@
+**Zimbabwe's Health Minister Fired Over COVID-19 Graft Scandal**\
+`Zimbabwe's health minister has been fired for inappropriate conduct after he was accused of illegally awarding a multi-million-dollar contract for COVID-19 medical supplies to a shadowy company that sold the government $28 face masks and other materials at inflated prices.`\
+https://nytimes.com/aponline/2020/07/07/world/africa/ap-af-zimbabwe-health-minister-fired.html?searchResultPosition=6
+
+**Factbox: Brazil's Bolsonaro, Now COVID-19 Positive, Has Downplayed Risks**\
+`Brazilian President Jair Bolsonaro, who has repeatedly minimized the gravity of the coronavirus and resisted measures to mitigate its spread, has tested positive for COVID-19. As of Monday, Brazil had registered 1,623,284 total coronavirus cases and 65,487 deaths attributable to the virus.`\
+https://nytimes.com/reuters/2020/07/07/world/americas/07reuters-health-coronavirus-brazil-quotes-factbox.html?searchResultPosition=7
+
+**When Washington Helped Small Business, Washington Was Helped**\
+`The loan program to help firms keep paying their workers had many beneficiaries. Among them was the capital’s permanent political class.`\
+https://nytimes.com/2020/07/07/us/politics/small-business-loans-lobbyists-political-consultants.html?searchResultPosition=8
+
 **Review: In ‘Stateless’ on Netflix, Cate Blanchett (and Immigration)**\
 `The A-lister plays a supporting role as a dancing scam artist in a mini-series she helped create, set at an Australian immigrant detention center.`\
-https://nytimes.com/2020/07/07/arts/television/review-stateless-netflix-cate-blanchett.html?searchResultPosition=6
+https://nytimes.com/2020/07/07/arts/television/review-stateless-netflix-cate-blanchett.html?searchResultPosition=9
 
 **IHME, Widening Projection Horizon, Sees 208,000 U.S. COVID-19 Deaths by November 1**\
 `The University of Washington said it expanded the forecast horizon of its widely cited model on Tuesday, projecting more than 208,000 U.S. COVID-19 deaths by Nov. 1, compared with its current projection of 175,168 deaths by Oct. 1.`\
-https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-usa-projection.html?searchResultPosition=7
-
-**Under 'Financial Siege', Lebanon Must Stave Off Strife, Says Bassil**\
-`Lebanon is facing a "financial siege" imposed by international powers and its priority is staving off strife caused by the country's economic meltdown, leading politician Gebran Bassil said on Tuesday.`\
-https://nytimes.com/reuters/2020/07/07/world/middleeast/07reuters-lebanon-crisis-bassil.html?searchResultPosition=8
-
-**The Pandemic’s Economic Damage Is Growing**\
-`Soaring unemployment will take years to control, and Europe’s recession looks deeper than it did in May, two reports find.`\
-https://nytimes.com/2020/07/07/business/EU-OECD-coronavirus-economic-reports.html?searchResultPosition=9
-
-**U.S., South Korean Officials to Discuss North Korea Strategy as Pyongyang Rejects Talks**\
-`The U.S. point man for North Korea will meet with South Korean officials in Seoul on Wednesday for wide-ranging talks, overshadowed by Pyongyang's insistence that it has no intention of returning to denuclearisation negotiations any time soon.`\
-https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-usa-southkorea-northkorea.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-usa-projection.html?searchResultPosition=10
 
