@@ -1,20 +1,20 @@
-**Russia Opens Criminal Case Against Activist for Failing to Declare Dual Nationality**\
-`Russian investigators on Tuesday opened a criminal case against Pyotr Verzilov, an anti-Kremlin activist and associate of the Pussy Riot punk group, for having allegedly failed to declare his dual Canadian citizenship. `\
-https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-russia-politics-canada-activist.html?searchResultPosition=6
+**Suicide Bombing, Attack in 4 Afghanistan Kill 7 Police**\
+`A suicide car bomber targeted an Afghan police convoy in eastern Nangarhar province on Tuesday morning, killing four officers, including a police commander, a local official said. Three other officers were killed in an attack in the country's south.`\
+https://nytimes.com/aponline/2020/07/07/world/asia/ap-as-afghanistan.html?searchResultPosition=6
 
-**Protective Gear for Medical Workers Begins to Run Low Again**\
-`The personal protective gear that was in dangerously short supply during the early weeks of the coronavirus crisis in the U.S. is running low again as the virus resumes its rapid spread and the number of hospitalized patients climbs.`\
-https://nytimes.com/aponline/2020/07/07/business/bc-us-virus-outbreak.html?searchResultPosition=7
+**US Probes Fuel Leaks in Older Chevy Cobalt and HHR Vehicles**\
+`The U.S. government's road safety agency is investigating complaints of fuel leaks in older Chevrolet Cobalt small cars and HHR wagons.`\
+https://nytimes.com/aponline/2020/07/07/business/ap-us-chevrolet-cobalt-investigation.html?searchResultPosition=7
 
-**Britain Now Compliant With Saudi Arabia Arms Order, Can Issue Export Licenses: Minister**\
-`Britain has complied with a court order over its decisions on granting export licences to sell arms to Saudi Arabia, its trade minister said on Tuesday, meaning it can once again issue new licences to export arms to the kingdom. `\
-https://nytimes.com/reuters/2020/07/07/world/middleeast/07reuters-saudi-britain.html?searchResultPosition=8
+**London Police Stop Star Athletes, Setting Off Racial Profiling Debate**\
+`Bianca Williams, a European gold medalist, accused the officers of targeting her and her partner, a fellow sprinter, because they are Black and drive an expensive car.`\
+https://nytimes.com/2020/07/07/world/europe/uk-police-bianca-williams-racial-profiling.html?searchResultPosition=8
 
-**Philippine Consortium Drops $2 Billion Airport Project**\
-`A consortium of six of the Philippines' biggest conglomerates on Tuesday dropped a proposal to upgrade and operate the country's main airport, as the impacts of the coronavirus hit the viability of the $2 billion project.`\
-https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-philippines-infrastructure-airport.html?searchResultPosition=9
+**Bus Plunges Into Reservoir in China, 21 Dead**\
+`A bus carrying students to an exam plunged into a reservoir in China on Tuesday after making a sudden swerve across five other lanes of traffic, leaving 21 dead and 16 injured, a video on state media showed.`\
+https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-china-bus.html?searchResultPosition=9
 
-**Mississippi Board Votes 'No' on Moving Confederate Monument**\
-`Officials in a Mississippi county unanimously voted to keep a Confederate monument where it stands, saying moving the statue wouldn't fix racial tensions.`\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-racial-injustice-mississippi-monument.html?searchResultPosition=10
+**GSK to Work on Potential COVID-19 Shot With Canada's Medicago**\
+`Britain's GSK said on Tuesday it will develop and test a potential COVID-19 vaccine using its booster technology and Canadian biopharmaceutical firm Medicago's coronavirus-like particles.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-health-coronavirus-gsk-medicago.html?searchResultPosition=10
 
