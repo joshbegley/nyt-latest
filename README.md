@@ -1,20 +1,20 @@
+**Japan Boosts Rescue Efforts as It Warns of More Rain in Flood-Hit Areas**\
+`Japan on Tuesday warned of more heavy rain on the southwestern island of Kyushu and bolstered rescue operations as the death toll in flood-hit areas reached at least 50 and about a dozen people were reported missing.`\
+https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-japan-floods.html?searchResultPosition=6
+
+**Exclusive: TikTok Says It Will Exit Hong Kong Market Within Days**\
+`TikTok will exit the Hong Kong market within days, a spokesman told Reuters late on Monday, as other technology companies including Facebook Inc suspend processing government requests for user data in the region.`\
+https://nytimes.com/reuters/2020/07/07/business/07reuters-tiktok-hong-kong-exclusive.html?searchResultPosition=7
+
+**SoftBank's Shares Return to Dot-Com Bubble Era Highs**\
+`Shares of SoftBank Group Corp climbed 4.6% on Tuesday to reach highs last seen during the dot-com bubble, as massive buybacks help shrink the group's persistent discount. `\
+https://nytimes.com/reuters/2020/07/07/business/07reuters-softbank-group-stocks.html?searchResultPosition=8
+
+**Jerusalem Offers a Grim Model for a Post-Annexation Future**\
+`It's hard to say what exactly will change in the West Bank if Israel follows through on its plans to annex parts of the occupied territory, but east Jerusalem, which was annexed more than a half-century ago, may provide some answers. `\
+https://nytimes.com/aponline/2020/07/07/world/middleeast/ap-ml-israel-annexation-the-jerusalem-model.html?searchResultPosition=9
+
 **Italian Cabinet Approves 'Mother of All Reforms' to Slash Red Tape**\
 `The Italian government approved a package of measures on Tuesday aimed at cutting the complicated red tape that has long been blamed for crimping growth in the euro zone's third-largest economy.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-italy-economy-bureaucracy-decree.html?searchResultPosition=6
-
-**Coronavirus Slams Poland's Already-Troubled Coal Industry**\
-`The coronavirus has ripped through Poland's coal mines, where men descend deep underground in tightly packed elevators and work shoulder-to-shoulder to extract the source of 75% of the nation’s electrical power.`\
-https://nytimes.com/aponline/2020/07/07/business/bc-eu-virus-outbreak-poland-coal-troubles.html?searchResultPosition=7
-
-**Thermometers in Hand, Dubai Opens for Tourists Amid Pandemic**\
-`From French soccer jerseys to slick online campaigns, Dubai is trumpeting the fact that it reopened for tourism on Tuesday — but what that means for this sheikhdom that relies on the dollars, pounds, rupees and yuan spent by travelers remains in question. `\
-https://nytimes.com/aponline/2020/07/07/world/middleeast/bc-ml-virus-outbreak-dubai-tourism.html?searchResultPosition=8
-
-**Voting in Time of the Coronavirus, Singaporeans Question Foreign Hires**\
-`For many Singaporeans, voting on Friday under the cloud of the coronavirus pandemic, a big election issue is job prospects and whether their rich little island needs so many foreigners taking better-paid roles.`\
-https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-singapore-politics-election.html?searchResultPosition=9
-
-**North Korea Says It Won't Sit Down With U.S. as Envoy Due in South Korea**\
-`North Korea has no intention to sit down with the United States and urged South Korea to "stop meddling," a senior diplomat said on Tuesday, just as a U.S. envoy was due to visit Seoul in an effort to renew stalled nuclear talks with Pyongyang. `\
-https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-northkorea-usa-southkorea.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/07/business/07reuters-italy-economy-bureaucracy-decree.html?searchResultPosition=10
 
