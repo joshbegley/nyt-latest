@@ -1,20 +1,20 @@
+**Brazil's Bolsonaro Tests Positive for Coronavirus**\
+`Brazil President Jair Bolsonaro has tested positive for the novel coronavirus, he said in a television interview on Tuesday.`\
+https://nytimes.com/reuters/2020/07/07/world/americas/07reuters-health-coronavirus-brazil-bolsonaro.html?searchResultPosition=6
+
+**U.S. Probes Fuel Leaks in GM's Older Chevy Cobalt and HHR Vehicles**\
+`U.S. auto safety regulator on Tuesday disclosed it has opened an investigation into complaints of fuel leaks in older Chevrolet Cobalt compact cars and HHR wagons, manufactured by General Motors Co.`\
+https://nytimes.com/reuters/2020/07/07/business/07reuters-gm-nhtsa.html?searchResultPosition=7
+
+**Brazil's President Bolsonaro Tests Positive for COVID-19**\
+`Brazil’s President Jair Bolsonaro says he has tested positive for COVID-19 after months of downplaying the virus’ severity. `\
+https://nytimes.com/aponline/2020/07/07/world/americas/ap-lt-virus-outbreak-brazil.html?searchResultPosition=8
+
+**Russia Arrests Space Agency Official, Accusing Him of Treason**\
+`The detention of Ivan Safronov, a former journalist who had been working as an adviser at Roscosmos, took many by surprise. He was accused of passing secrets to an unnamed NATO country.`\
+https://nytimes.com/2020/07/07/world/europe/russia-ivan-safronov-treason.html?searchResultPosition=9
+
 **Alonso Set for F1 Return With Renault in 2021: Report**\
 `Two-time world champion Fernando Alonso is set to return to Formula One with Renault in 2021, the BBC reported on Tuesday.`\
-https://nytimes.com/reuters/2020/07/07/sports/autoracing/07reuters-motor-f1-alonso.html?searchResultPosition=6
-
-**Electric Scooter Championship Set for 2021 Launch**\
-`The Electric Scooter Championship (eSC), the first-ever international electric race scooter series, will stage its inaugural event in 2021 in major cities featuring specially built high-speed electric scooters, organisers said on Tuesday.`\
-https://nytimes.com/reuters/2020/07/07/sports/autoracing/07reuters-motor-electric.html?searchResultPosition=7
-
-**We Went Inside a Houston Hospital Dealing With the Virus Surge**\
-`We spent time with the doctors and patients dealing with the outbreak at Houston’s largest hospital. “I’ll be honest with you, I can barely keep track,” one doctor told us.`\
-https://nytimes.com/interactive/2020/07/07/burst/houston-coronavirus-hospital.html?searchResultPosition=8
-
-**Travel Restrictions on Americans Erode a Sense of Passport Privilege**\
-`As countries across the world ease coronavirus restrictions but block American travelers, a long-held sense that the U.S. passport was a golden ticket is losing its luster.`\
-https://nytimes.com/2020/07/07/world/europe/american-passport-privilege-coronavirus.html?searchResultPosition=9
-
-**Egypt Charges Student With Sex Crimes in Case That Stoked Debate**\
-`Egypt's public prosecutor has charged a university student with indecent assault‮ ‬of at least three women, including one who was a minor at the time, in a case prompted by a social media campaign that opened up a rare public debate on sex crimes.`\
-https://nytimes.com/reuters/2020/07/07/world/middleeast/07reuters-egypt-harrassment.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/07/sports/autoracing/07reuters-motor-f1-alonso.html?searchResultPosition=10
 
