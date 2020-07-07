@@ -1,20 +1,20 @@
+**Exclusive: U.S. Government's Boxed Food Aid Promise Falls Short**\
+`The U.S. government delivered far less food aid than it had pledged by the end of June, according to food bank managers and data from the agriculture department sent to Reuters, after it hired inexperienced companies to box food during the pandemic.`\
+https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-food-aid-exclusive.html?searchResultPosition=6
+
+**Italy Suspends Flights From Bangladesh for One Week Due to Coronavirus**\
+`Italy is suspending all flights from Bangladesh for one week due to a "significant number" of passengers who tested positive to the coronavirus on a flight to Rome on Monday, the health ministry said.`\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-health-coronavirus-italy-bangladesh.html?searchResultPosition=7
+
+**U.S. Government Awards Novavax $1.6 Billion for Coronavirus Vaccine**\
+`The U.S. government has awarded Novavax Inc $1.6 billion to cover testing, commercialization and manufacturing of a potential coronavirus vaccine in the United States, with the aim of delivering 100 million doses by January 2021.`\
+https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-novavax.html?searchResultPosition=8
+
+**U.S. Will Pay $1.6 Billion to Novavax for Coronavirus Vaccine**\
+`The Maryland-based company, which has never brought a product to market before, just made the biggest deal to date with the Trump administration’s Operation Warp Speed.`\
+https://nytimes.com/2020/07/07/health/novavax-coronavirus-vaccine-warp-speed.html?searchResultPosition=9
+
 **Kremlin Promises Reciprocal Steps Over New UK Sanctions Against Russians**\
 `Russia will respond with reciprocal measures to British sanctions against 25 Russians, including the country's top state investigator, Kremlin spokesman Dmitry Peskov said. `\
-https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-britain-eu-sanctions-kremlin.html?searchResultPosition=6
-
-**Ineos Considers French Factory for First Vehicle, Puts UK on Hold**\
-`Ineos, which said last year it would build its first off-roader in Britain, will now consider whether to manufacture the vehicle in France after carmaker Daimler announced plans to sell a factory there as pressures mount amid the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-health-coronavirus-britain-ineos.html?searchResultPosition=7
-
-**European Soccer Clubs Face $4.5B Income Drop Over Next Year**\
-`European soccer clubs expect to lose 4 billion euros ($4.5 billion) in revenue over the next year because of the coronavirus pandemic, according to a study released Tuesday by the European Club Association.`\
-https://nytimes.com/aponline/2020/07/07/business/ap-soc-european-clubs-finances.html?searchResultPosition=8
-
-**Myanmar Poet Accused of Staging Protest Over Internet Blackout**\
-`Maung Saung Kha, a prominent Myanmar poet and activist, appeared in court on Tuesday to face accusations that he helped stage an unlawful protest demanding an end to internet blackouts imposed on two of the country's poorest states.`\
-https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-myanmar-rakhine-internetshutdown.html?searchResultPosition=9
-
-**Johnny Depp Launches London Tabloid Court Battle**\
-`Johnny Depp launched his legal action against Britain's The Sun newspaper on Tuesday in a case that is likely to delve into the private lives of the Hollywood star and his ex-wife actress Amber Heard. `\
-https://nytimes.com/reuters/2020/07/07/arts/07reuters-britain-people-depp-court.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-britain-eu-sanctions-kremlin.html?searchResultPosition=10
 
