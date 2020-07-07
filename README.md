@@ -1,5 +1,5 @@
 **Case Against Amy Cooper Lacks Key Element: Victim’s Cooperation**\
-`Ms. Cooper, who is white, is charged with filing a false police report after she claimed a Black bird watcher threatened her in Central Park during a dispute over her dog.`\
+`Ms. Cooper, who is white, is charged with filing a false police report after she claimed a Black birdwatcher threatened her in Central Park during a dispute over her dog.`\
 https://nytimes.com/2020/07/07/nyregion/amy-cooper-central-park-false-report-charge.html?searchResultPosition=6
 
 **Excavations to Resume for 1921 Tulsa Race Massacre Graves**\
