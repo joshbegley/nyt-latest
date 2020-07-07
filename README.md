@@ -1,20 +1,20 @@
+**UAE Says It Will Test 2 Million People for COVID-19 as Cases Rise**\
+`The United Arab Emirates plans to test two million people, or about 20% of the population, for the novel coronavirus over the next two months after the infection rate climbed again following the lifting of restrictions, a government spokesperson said.`\
+https://nytimes.com/reuters/2020/07/07/world/middleeast/07reuters-health-coronavirus-emirates.html?searchResultPosition=6
+
+**Currency Crisis Impoverishes Iranians, Strains Economic Defenses**\
+`Desperate to afford her daughter's overseas university fees, 58-year-old retired Iranian teacher Maryam Hosseini withdrew all her savings from the bank to buy U.S. dollars. `\
+https://nytimes.com/reuters/2020/07/07/business/07reuters-iran-economy-rial-analysis.html?searchResultPosition=7
+
+**Hollywood Comes to UK High Court as Depp Takes on The Sun**\
+`Johnny Depp has a starring role in a real-life courtroom drama in London, where he is suing a tabloid newspaper for libel over an article that branded him a “wife beater.”`\
+https://nytimes.com/aponline/2020/07/07/world/europe/ap-eu-britain-johnny-depp.html?searchResultPosition=8
+
+**What You Need to Know About the Coronavirus Right Now**\
+`Here's what you need to know about the coronavirus right now:`\
+https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-health-coronavirus-snapshot.html?searchResultPosition=9
+
 **Miami Rolls Back Restaurant Dining as U.S. Coronavirus Deaths Top 130,000**\
 `Florida's greater Miami area became the latest U.S. coronavirus hot spot to roll back its reopening, ordering restaurant dining closed on Monday as COVID-19 cases surged nationwide by the tens of thousands and the U.S. death toll topped 130,000.`\
-https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-usa.html?searchResultPosition=6
-
-**Investors in Russian Bonds Relaxed About Extended Putin Rule**\
-`The prospect of President Vladimir Putin staying in the Kremlin until 2036 does not seem to be deterring buyers of Russia's high-yielding sovereign bonds as investors focus on economic fundamentals and political stability rather the risk of policy stagnation.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-russia-debt-analysis.html?searchResultPosition=7
-
-**Vistara in Talks With Planemakers, Lessors to Delay Taking Delivery of Some Aircraft**\
-`Indian airline Vistara is in talks with planemakers and leasing companies to delay taking delivery of some aircraft, the carrier's chief commercial officer said on Monday, as COVID-19 hits demand for air travel.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-india-vistara.html?searchResultPosition=8
-
-**Dollar Regains Footing as Investors Eye Lockdown Risks**\
-`The dollar found some traction on Tuesday, as risks from rising coronavirus cases offset strong economic data and kept a lid on confidence in an economic recovery from the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-global-forex.html?searchResultPosition=9
-
-**The Latest: India’s Coronavirus Death Toll Passes 20,000**\
-`NEW DELHI — India’s death toll from the coronavirus has passed 20,000, with case numbers surging past 700,000.`\
-https://nytimes.com/aponline/2020/07/07/business/ap-virus-outbreak-the-latest.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-usa.html?searchResultPosition=10
 
