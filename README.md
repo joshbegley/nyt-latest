@@ -1,20 +1,20 @@
-**Judge Denies Dakota Access Initial Motion to Stay Pipeline Order**\
-`A federal judge on Tuesday denied an initial request by owners of the Dakota Access oil pipeline (DAPL) that asked the court to reconsider its order to shut the 570,000 barrel-a-day line within a month, court records show.`\
-https://nytimes.com/reuters/2020/07/07/us/07reuters-usa-pipeline-energy-transfer.html?searchResultPosition=6
+**HHS to Offer Free COVID-19 Testing in Florida, Texas, Louisiana Hotspots**\
+`The U.S. Department of Health and Human Services (HHS) said on Tuesday there would be temporary free COVID-19 testing in three cities in Florida, Louisiana and Texas as the U.S. states tackle surging cases and hospitalizations.`\
+https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-usa-testing.html?searchResultPosition=6
 
-**Column: Jimmie Johnson Finds Voice During Last NASCAR Season**\
-`Jimmie Johnson stood alone on the track at Pocono Raceway, empty grandstands in front of him, a ghost town of a garage behind him. He was posing for photos to commemorate his final start at the Pennsylvania track but seemed to be the only one at the party. `\
-https://nytimes.com/aponline/2020/07/07/sports/ap-car-nascar-in-the-pits.html?searchResultPosition=7
+**Eagles WR DeSean Jackson Apologizes for Anti-Semitic Post**\
+`Philadelphia Eagles wide receiver DeSean Jackson has apologized after backlash for sharing anti-Semitic posts on social media over the weekend.`\
+https://nytimes.com/aponline/2020/07/07/sports/football/ap-fbn-eagles-jackson.html?searchResultPosition=7
 
-**Richard Di Liberto, Expert Photographer of Museum Art, Dies at 82**\
-`His photos of the Frick Collection’s artworks illustrate books and catalogs and helped create the museum’s visual identity. He died of Covid-19.`\
-https://nytimes.com/2020/07/07/obituaries/richard-di-liberto-dead-coronavirus.html?searchResultPosition=8
+**MLS Postpones Nashville's Game After Five Players Test Positive**\
+`Major League Soccer said on Tuesday it had postponed Nashville SC's first game of the Orlando-based MLS is Back Tournament after five players tested positive for COVID-19, and will evaluate the club's participation in the tournament.`\
+https://nytimes.com/reuters/2020/07/07/sports/soccer/07reuters-soccer-usa.html?searchResultPosition=8
 
-**Video Shows Facility Staff Restraining Black Teen Who Died**\
-`Surveillance video released Tuesday shows at least seven men holding down a Black teenager who later died after being restrained for throwing a sandwich in the cafeteria of a youth facility in Michigan.`\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-teen-restraint-death.html?searchResultPosition=9
+**Zimbabwe's Health Minister, Accused of Corruption, Sacked: Statement**\
+`Zimbabwe's President Emmerson Mnangagwa has sacked health minister Obadiah Moyo with immediate effect for inappropriate conduct, a statement from the presidency shared by information minister Nick Mangwana on Twitter on Tuesday said. `\
+https://nytimes.com/reuters/2020/07/07/world/africa/07reuters-zimbabwe-health-minister.html?searchResultPosition=9
 
-**Marriage of Convenience: What Mexico's Leftist Leader Gets Out of Trump**\
-`When Mexico's leader enters the White House to meet President Donald Trump on Wednesday, he will do so not only as a hostage to the whims of his U.S. counterpart, but also as partner in an unlikely alliance that has benefited both men.`\
-https://nytimes.com/reuters/2020/07/07/world/americas/07reuters-usa-mexico.html?searchResultPosition=10
+**A Short History of ‘Simp’**\
+`An insult takes a dizzying trip through rap, men’s rights, misogyny and TikTok.`\
+https://nytimes.com/2020/07/07/style/simp-history-slang.html?searchResultPosition=10
 
