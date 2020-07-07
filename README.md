@@ -1,20 +1,20 @@
-**France-Turkey Tensions Mount After NATO Naval Incident**\
-`For France, it was the final straw. For Turkey, it was a misunderstanding. For NATO, it could be a turning point.`\
-https://nytimes.com/reuters/2020/07/07/world/africa/07reuters-nato-france-turkey-analysis.html?searchResultPosition=6
+**Spanish PM Sanchez to Discuss EU Recovery Fund With Germany's Merkel**\
+`Spanish Prime Minister Pedro Sanchez will meet with German Chancellor Angela Merkel ahead of a July 17-18 summit to discuss a planned European Union recovery fund, government spokeswoman Maria Jesus Montero said on Tuesday. `\
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-health-coronavirus-spain-eu.html?searchResultPosition=6
 
-**Leasing Firm Avolon Cancels Another 27 Boeing 737 MAX Jets**\
-`Aircraft lessor Avolon on Tuesday said it had cancelled 27 Boeing 737 MAX planes since the end of March, in addition to the 75 it cancelled in the first three months of the year. `\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-boeing-737max-avolon.html?searchResultPosition=7
+**New & Noteworthy, From Craigslist Confessions to Toxic Outrage**\
+`A selection of recent books of note; plus, a peek at what our colleagues around the newsroom are reading.`\
+https://nytimes.com/2020/07/07/books/review/new-this-week.html?searchResultPosition=7
 
-**Russian Court Fines Coronavirus-Denying Rebel Monk**\
-`A Russian court on Tuesday fined a coronavirus-denying monk who has challenged Kremlin lockdown orders for spreading false information about the pandemic.`\
-https://nytimes.com/aponline/2020/07/07/world/europe/ap-eu-russia-rebel-monk.html?searchResultPosition=8
+**Free Ambulance Helps Save Mothers and Babies in Kenya Lockdown**\
+`As soon as Kenya introduced a coronavirus curfew, Dr. Jemimah Kariuki, an obstetrician-gynecologist at Nairobi's Kenyatta Hospital, started seeing more death and complications.   `\
+https://nytimes.com/reuters/2020/07/07/world/africa/07reuters-health-coronavirus-kenya-ambulances.html?searchResultPosition=8
 
-**Spain Extends Coronavirus Aid for Tenants and Homeowners**\
-`Spain's cabinet will on Tuesday approve the extension of measures aimed at easing the financial burden on rental tenants and homeowners hit by the coronavirus, government sources told Reuters.`\
-https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-health-coronavirus-spain-aid.html?searchResultPosition=9
+**Iraq Partially Reopens Iran Trade Crossing, Border Officials Say**\
+`Iraq partially reopened its southern Shalamcheh border crossing with Iran on Tuesday after more than three months of closure to combat the spread of the new coronavirus, border officials said.`\
+https://nytimes.com/reuters/2020/07/07/world/middleeast/07reuters-health-coronavirus-iraq-iran.html?searchResultPosition=9
 
-**Egypt's Foreign Reserves Recover Slightly to $38.2 Billion**\
-`Egypt's net foreign reserves recovered some ground lost during the coronavirus outbreak, rising to $38.2 billion in June from $36 billion in May, the central bank said on Tuesday.`\
-https://nytimes.com/reuters/2020/07/07/world/middleeast/07reuters-egypt-reserves.html?searchResultPosition=10
+**Russian Space Official Charged With Treason**\
+`An adviser to the director of Russia's state space corporation has been detained on treason charges, the nation's top security agency said Tuesday.`\
+https://nytimes.com/aponline/2020/07/07/world/europe/ap-eu-russia-treason.html?searchResultPosition=10
 
