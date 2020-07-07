@@ -1,20 +1,20 @@
-**China's June Passenger Car Retail Sales Down 8% Year-On-Year: CPCA**\
-`China's passenger car retail sales dropped 8% in June from a year earlier, the China Passenger Car Association said on Monday.`\
-https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-china-autos.html?searchResultPosition=6
+**Tennis: Winners and Winners, What Revised Rankings Mean for Top Five Men**\
+`Men's governing body ATP on Monday unveiled a revised system for calculating world rankings when the season resumes in August following a five-month suspension due to the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/07/07/sports/tennis/07reuters-health-coronavirus-tennis-rankings-explainer.html?searchResultPosition=6
 
-**Iran Records Highest Daily Death Toll From COVID-19**\
-`Iran has recorded its highest number of deaths from COVID-19 within a 24-hour period, Health Ministry figures showed on Tuesday.`\
-https://nytimes.com/reuters/2020/07/07/world/middleeast/07reuters-health-coronavirus-iran.html?searchResultPosition=7
+**Party-Switching Congressman Who Pledged Loyalty to Trump Sparks Heated N.J. Primary**\
+`Congressman Jeff Van Drew outraged New Jersey Democrats and delighted Donald Trump last year when he switched parties and pledged his "undying support" to the Republican president.`\
+https://nytimes.com/reuters/2020/07/07/us/politics/07reuters-usa-election-new-jersey.html?searchResultPosition=7
 
-**Cameroon Activist Campaigns Against Colonial Monuments**\
-`Activist Andre Blaise Essama has been battling to purge Cameroon of monuments celebrating its French colonial past and replace them with local heroes long before protests swept the world after the death of George Floyd.`\
-https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-global-race-cameroon-statues.html?searchResultPosition=8
+**Cyprus: EU Partners Aim to Rein in Turkey's 'Expansionism'**\
+`Cyprus and its European Union partners are working to rein in Turkey’s “expansionist policy” in the eastern Mediterranean amid heightened tensions over an offshore search for hydrocarbons, the island nation's president said Tuesday.`\
+https://nytimes.com/aponline/2020/07/07/business/bc-eu-turkey-eu.html?searchResultPosition=8
 
-**Futures Ease After Five-Day Run as Virus Worries Weigh**\
-`U.S. stock index futures slipped on Tuesday following the benchmark S&P 500 and Nasdaq's five-day rally, as investors weighed the risks to the economy from tens of thousands of new coronavirus cases nationwide.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-usa-stocks.html?searchResultPosition=9
+**Fiat Chrysler Restarts Production at Serbia's Plant: Report**\
+`Fiat Chrysler (FCA) restarted production at its Serbian plant, after halting it in mid-March in response to the coronavirus outbreak, Serbia's state-run Tanjug news agency reported on Tuesday.`\
+https://nytimes.com/reuters/2020/07/07/business/07reuters-serbia-fiat.html?searchResultPosition=9
 
-**Why Isn’t the ‘Southern Strategy’ Working?**\
-`And what else you need to know today.`\
-https://nytimes.com/2020/07/07/briefing/coronavirus-hong-kong-patrick-mahomes-your-tuesday-briefing.html?searchResultPosition=10
+**As Confederate Monuments Fall, a Florida Community to Vote on Putting One Up**\
+`As Confederate Civil War monuments fall across the United States, one central Florida community with a racist past will vote on plans to put up a statue of a Confederate general who lived in the Sunshine State briefly as a child.`\
+https://nytimes.com/reuters/2020/07/07/us/07reuters-global-race-florida-statue.html?searchResultPosition=10
 
