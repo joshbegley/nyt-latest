@@ -1,20 +1,20 @@
+**What to Know About N.Y.C.’s Uptick in Shootings**\
+`Over the weekend, 64 people were shot, with 10 dead. A  surge of gun violence has shaken a city that was already on edge.`\
+https://nytimes.com/2020/07/07/nyregion/nyc-shootings.html?searchResultPosition=6
+
+**Coronavirus Live Updates: Testing Demand in U.S. Soars, Creating a New Crisis**\
+`Dr. Anthony Fauci warned that the country was still “knee-deep in the first wave” of the pandemic. Test results are expected for Brazil’s president after he showed symptoms of the virus.`\
+https://nytimes.com/2020/07/07/world/coronavirus-updates.html?searchResultPosition=7
+
+**U.S. Firms in India Not Ready to Pay Digital Tax, Lobby Group Says**\
+`A lobby group representing U.S. technology giants has said its members are not yet ready to make the first payment of the country's digital tax due this week, urging New Delhi to defer the move.`\
+https://nytimes.com/reuters/2020/07/07/business/07reuters-india-tax-digital.html?searchResultPosition=8
+
 **Aide to Head of Russian Space Agency Detained on Treason Charges: Roscosmos**\
 `An aide to the head of Roscosmos, Russia's space agency, was detained by the authorities on Tuesday and charged with state treason, Roscosmos said in a statement. `\
-https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-russia-detention-treason.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-russia-detention-treason.html?searchResultPosition=9
 
 **Germany to Press for EU Deal on Taking in Rescued Migrants**\
 `Germany's interior minister called on his European Union colleagues Tuesday to agree on a better and more just solution for the distribution of migrants rescued while attempting to cross the Mediterranean.`\
-https://nytimes.com/aponline/2020/07/07/world/europe/ap-eu-europe-migrants.html?searchResultPosition=7
-
-**UK Consumers Remain Cautious About Returning to High Streets**\
-`The number of shoppers visiting retailers was down by nearly 50% last week compared with a year earlier and the amount of money spent in pubs and restaurants as they reopened last weekend suffered a similar fall, data showed on Tuesday.`\
-https://nytimes.com/reuters/2020/07/07/world/europe/07reuters-health-coronavirus-britain-spending.html?searchResultPosition=8
-
-**Strains of Hope: Chilean Nurse Serenades COVID-19 Patients With Violin**\
-`When most Chilean nurses finish their long shifts caring for the country's many COVID-19 patients, there is little else on their minds but seeing their families, eating and sleeping. `\
-https://nytimes.com/reuters/2020/07/07/world/americas/07reuters-health-coronavirus-chile-nurse.html?searchResultPosition=9
-
-**‘Notes on a Silencing,’ by Lacy Crawford: An Excerpt**\
-`An excerpt from “Notes on a Silencing,” by Lacy Crawford`\
-https://nytimes.com/2020/07/07/books/review/notes-on-a-silencing-by-lacy-crawford-an-excerpt.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/07/world/europe/ap-eu-europe-migrants.html?searchResultPosition=10
 
