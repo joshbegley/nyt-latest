@@ -1,20 +1,20 @@
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark U.S. crude oil for August delivery fell 1 cent to settle at $40.62 a barrel Tuesday. Brent crude oil for September delivery dropped 2 cents to $43.08 a barrel.`\
-https://nytimes.com/aponline/2020/07/07/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=6
+**Twins Joined at Head Separated at Vatican Pediatric Hospital**\
+`Doctors at the Vatican’s pediatric hospital said Tuesday they have successfully separated conjoined twins whose skulls were fused back-to-back, an exceedingly rare surgery for an equally rare congenital defect.`\
+https://nytimes.com/aponline/2020/07/07/world/europe/ap-eu-italy-conjoined-twins.html?searchResultPosition=6
 
-**Exclusive: Chile Putting Mine Workers' Health Over Copper Production, Minister Says**\
-`Chile's mines minister said on Tuesday there were "no silver bullets" to help the industry weather the coronavirus pandemic, but insisted the world's biggest copper producer was prioritizing workers' health to avoid the spread of infections that could further harm operations.`\
-https://nytimes.com/reuters/2020/07/07/world/americas/07reuters-chile-copper.html?searchResultPosition=7
+**7th Former eBay Staffer Charged in Harassment Campaign**\
+`A seventh former eBay Inc. employee has been charged with participating in a campaign to terrorize  the editor and publisher of an online newsletter because eBay executives were upset about coverage of the company, authorities said Tuesday. `\
+https://nytimes.com/aponline/2020/07/07/us/ap-us-ebay-employees-cyberstalking.html?searchResultPosition=7
 
-**Black Lives Matter Protesters Face Rare Leak Charge in Iowa**\
-`Prosecutors in Iowa have filed a rarely used leak charge against Black Lives Matter protesters accused of stealing a confidential police document and displaying it during a television news broadcast.`\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-racial-injustice-iowa-charges.html?searchResultPosition=8
+**Small Business Program Scrutinized for Loans to Big Firms**\
+`Congress set aside $659 billion to throw a lifeline to small businesses and organizations side-swiped by the coronavirus pandemic and to help paychecks keep flowing to workers who might otherwise head to the unemployment line. `\
+https://nytimes.com/aponline/2020/07/07/business/bc-virus-outbreak-small-business-loans-big-names.html?searchResultPosition=8
 
-**Huawei Says U.S. Pressure on Brazil Threatens Long Delays in 5G Rollout**\
-`A Huawei Technologies executive warned that Brazil could suffer years of delay in deploying a 5G telecoms network and higher costs if it succumbs to mounting U.S. pressure to snub the Chinese equipment supplier.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-huawei-tech-brazil-5g.html?searchResultPosition=9
+**Why the Stakes Are So High in N.J.’s Primary This Year**\
+`Officials are monitoring the state’s first mainly vote-by-mail election closely, with an eye on its implications for November.`\
+https://nytimes.com/2020/07/07/nyregion/nj-election-vote-by-mail.html?searchResultPosition=9
 
-**NBA Teams on the Cusp of Having Real Practices Again**\
-`Practice facilities in the NBA have been open for a couple of months, with one major element missing from them.`\
-https://nytimes.com/aponline/2020/07/07/sports/basketball/ap-bkn-nba-restart-second-camps.html?searchResultPosition=10
+**Facebook Fails to Appease Organizers of Ad Boycott**\
+`Mark Zuckerberg and Sheryl Sandberg, Facebook’s top executives, engaged in “spin” during a meeting over hate speech, civil rights groups said.`\
+https://nytimes.com/2020/07/07/technology/facebook-ad-boycott-civil-rights.html?searchResultPosition=10
 
