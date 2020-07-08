@@ -1,5 +1,5 @@
 **Facebook Flunks New Audit on Civil Rights, Hate Speech and Voter Suppression**\
-`Report warns social media company may be “driving people toward self-reinforcing echo chambers of extremism.”`\
+`Report warns that the social media company may be “driving people toward self-reinforcing echo chambers of extremism.”`\
 https://nytimes.com/2020/07/08/opinion/facebook-civil-rights-audit.html?searchResultPosition=1
 
 **Hundreds of Drones Light Up Seoul Night Sky With Coronavirus Advice**\
