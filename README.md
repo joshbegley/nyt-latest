@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2020/07/07/magazine/kamila-shamsie-short-story.h
 `New fiction: “The world came to a screeching halt, and so did your good feelings about it being a worthy endeavor.” From the Magazine’s Decameron Project.`\
 https://nytimes.com/interactive/2020/07/07/magazine/tommy-orange-short-story.html?searchResultPosition=9
 
-**Leila Slimani: ‘The Rock,’ a Short Stor**\
+**Leila Slimani: ‘The Rock,’ a Short Story**\
 `New fiction: “Broussard was left alone, lying unconscious on the stage, blood pouring from his forehead.” From the Magazine’s Decameron Project.`\
 https://nytimes.com/interactive/2020/07/07/magazine/leila-slimani-short-story.html?searchResultPosition=10
 
