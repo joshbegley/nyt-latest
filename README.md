@@ -1,20 +1,20 @@
-**Andrew Jackson Statue Loses Status in City Named for Him**\
-`A Mississippi city named after former U.S. President Andrew Jackson will remove a downtown statue of him and put it in a less prominent spot.`\
-https://nytimes.com/aponline/2020/07/07/us/ap-us-racial-injustice-jackson-statue.html?searchResultPosition=6
+**Biden Should Not Debate Trump Unless …**\
+`Here are two conditions the Democrat should set.`\
+https://nytimes.com/2020/07/07/opinion/biden-trump-debate.html?searchResultPosition=1
 
-**Pence Says U.S. to Maintain 'Strong Stand' on TikTok**\
-`U.S. Vice President Mike Pence said on Tuesday the United States would "continue to take a strong stand" regarding Chinese entities that threaten U.S. security, including potentially the social media app TikTok.`\
-https://nytimes.com/reuters/2020/07/07/business/07reuters-usa-tiktok-china-pence.html?searchResultPosition=7
+**Dozen of Bodies Found in Burkina Faso, and Rights Group Suspects Extrajudicial Killings**\
+`At least 180 bodies have been found in common graves in Djibo, a town in the north of Burkina Faso, Human Rights Watch (HRW), said in a report released on Wednesday, saying that the killings were likely carried out by government forces. `\
+https://nytimes.com/reuters/2020/07/07/world/africa/07reuters-sahel-security-burkina-hrw.html?searchResultPosition=2
 
-**2 People Charged With Hate Crime After Black Lives Matter Mural Is Vandalized**\
-`If convicted, the two residents of Martinez, Calif., could face up to a year in jail, prosecutors say.`\
-https://nytimes.com/2020/07/07/us/white-couple-arrested-black-lives-matter-mural.html?searchResultPosition=8
+**Trump Leans on Schools to Reopen as Virus Continues Its Spread**\
+`President Trump spearheaded an administration-wide push to pry open the nation’s elementary and secondary schools, the next phase of his effort to get the economy on its feet.`\
+https://nytimes.com/2020/07/07/us/politics/trump-schools-coronavirus.html?searchResultPosition=3
 
-**Civil Rights Groups Denounce Facebook Over Hate Speech**\
-`Facebook keeps telling critics that it is doing everything it can to rid its service of hate, abuse and misinformation. And the company's detractors keep not buying it.`\
-https://nytimes.com/aponline/2020/07/07/business/bc-us-facebook-civil-rights-meetings.html?searchResultPosition=9
+**Charles Yu: ‘Systems,’ a Short Story**\
+`New fiction: “Misinformation spreads quickly through the population. Misinformation can be transmitted through the mouth or eyes.” From the Magazine’s Decameron Project.`\
+https://nytimes.com/interactive/2020/07/07/magazine/charles-yu-short-story.html?searchResultPosition=4
 
-**U.S. Colleges Scramble After New Trump Order on Foreign Students**\
-`Many U.S. colleges were scrambling on Tuesday to modify plans for the fall semester in the midst of the coronavirus pandemic a day after the Trump administration issued an order that could force tens of thousands of foreign students to leave the country if their schools hold all classes online.`\
-https://nytimes.com/reuters/2020/07/07/world/asia/07reuters-usa-immigration-students.html?searchResultPosition=10
+**White House Warns Against Chinese Investment, Citing Risk of Further Sanctions**\
+`Economic and security officials warned a federal fund against putting retirement savings in China at “a time of mounting uncertainty” for the relationship`\
+https://nytimes.com/2020/07/07/business/economy/white-house-chinese-investment.html?searchResultPosition=5
 
