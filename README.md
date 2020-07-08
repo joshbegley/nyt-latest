@@ -31,7 +31,7 @@ https://nytimes.com/aponline/2020/07/08/business/bc-cn-canada-budget-deficit.htm
 https://nytimes.com/2020/07/08/technology/roger-stone-facebook.html?searchResultPosition=8
 
 **New Transcripts Detail Last Moments for George Floyd**\
-`The filings were made in court by Thomas Lane, a former officer who wants the charges against him dismissed. Body camera transcripts and an interview with Mr. Lane are included.`\
+`“They’ll kill me. They’ll kill me,” Mr. Floyd said, according to a body camera transcript in court filings by Thomas Lane, a former officer who wants the charges against him dismissed.`\
 https://nytimes.com/2020/07/08/us/george-floyd-body-camera-transcripts.html?searchResultPosition=9
 
 **Editorial Roundup: US**\
