@@ -1,40 +1,40 @@
+**Buffett Makes Annual Donations Worth $2.9B to 5 Charities**\
+`Billionaire Warren Buffett has given away another $2.9 billion of his Berkshire Hathaway stock to five foundations as part of his plan to gradually give away his fortune.`\
+https://nytimes.com/aponline/2020/07/08/business/bc-us-buffett-donations.html?searchResultPosition=1
+
+**Republicans Renew Complaints Twitter Stifles President, Other Conservatives**\
+`Two Republicans in the House of Representatives wrote to Twitter on Wednesday to argue that the social media platform was biased against conservatives and to demand information about its public reactions to two of President Donald Trump's tweets.`\
+https://nytimes.com/reuters/2020/07/08/technology/08reuters-twitter-trump-republicans.html?searchResultPosition=2
+
+**Schools, Supreme Court, Summer Gardens: Your Wednesday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/07/08/briefing/schools-supreme-court-summer-gardens.html?searchResultPosition=3
+
+**Brazil Surpasses 1.7 Million Coronavirus Cases, Nearly 68,000 Dead**\
+`Brazil exceeded 1.7 million confirmed cases of the novel coronavirus as of Wednesday, and the disease has killed a total of 67,964 people, according to the country's Health Ministry. `\
+https://nytimes.com/reuters/2020/07/08/world/americas/08reuters-health-coronavirus-brazil-toll.html?searchResultPosition=4
+
+**What Will Trump’s Rally in New Hampshire Be Like? It’s Anyone’s Guess.**\
+`The governor, a Republican, isn’t attending. It isn’t clear how many other G.O.P. elected officials will come. The turnout could be low, or expansive. And fears of the virus hang over the event.`\
+https://nytimes.com/2020/07/08/us/politics/trump-rally-portsmouth-new-hampshire.html?searchResultPosition=5
+
+**Houston Mayor Cancels Texas G.O.P. Convention, Calling It a ‘Public Health Risk’**\
+`Mayor Sylvester Turner said the large gathering of state Republican officials amid a worsening pandemic would put many people at risk. Party officials said they were exploring a legal challenge.`\
+https://nytimes.com/2020/07/08/us/coronavirus-texas-republican-convention-gop.html?searchResultPosition=6
+
 **AP Source: Ivy League Calls Off Fall Sports Due to Outbreak**\
 `The Ivy League on Wednesday became the first Division I conference to say it will not play sports this fall because of the coronavirus pandemic, a person with knowledge of the decision told The Associated Press.`\
-https://nytimes.com/aponline/2020/07/08/sports/ap-virus-outbreak-college-sports.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/08/sports/ap-virus-outbreak-college-sports.html?searchResultPosition=7
 
 **Carlos Ghosn's Accused Smugglers Unlikely to Win Quick Bail**\
 `A U.S. judge said she is unlikely to quickly release a Massachusetts father and son being held on charges they helped smuggle former Nissan Motor Co chairman Carlos Ghosn out of Japan.`\
-https://nytimes.com/reuters/2020/07/08/business/08reuters-nissan-ghosn-taylor-bail.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/08/business/08reuters-nissan-ghosn-taylor-bail.html?searchResultPosition=8
 
 **Britain Plans Incentives to Bring Workers Back Before Furloughs End**\
 `Britain’s top financial officer announced a 30 billion pound plan to support the economy, including incentives such as bonuses for employers hiring back furloughed workers and discounts on dining out.`\
-https://nytimes.com/video/world/europe/100000007229965/uk-workers-coronavirus-reopening-sunak.html?searchResultPosition=3
+https://nytimes.com/video/world/europe/100000007229965/uk-workers-coronavirus-reopening-sunak.html?searchResultPosition=9
 
 **Five Takeaways From Facebook's Civil Rights Audit**\
 `A two-year audit of Facebook’s civil rights record found that the company’s elevation of free expression — especially by politicians — above other values has hurt its progress on other matters like discrimination, elections interference and protecting vulnerable users. `\
-https://nytimes.com/aponline/2020/07/08/business/bc-us-facebook-civil-rights-audit-takeaways.html?searchResultPosition=4
-
-**Biden-Sanders Task Forces Unveil Joint Goals for Party Unity**\
-`Political task forces Joe Biden formed with onetime rival Bernie Sanders to solidify support among the Democratic Party's progressive wing recommended Wednesday that the former vice president embrace proposals to combat climate change and institutional racism while expanding health care coverage and rebuilding a coronavirus-ravaged economy.`\
-https://nytimes.com/aponline/2020/07/08/us/politics/ap-us-election-2020-biden.html?searchResultPosition=5
-
-**Trump, Mexico's President Briefly Discussed Immigration: White House**\
-`U.S President Donald Trump and Mexican President Andres Manuel Lopez Obrador briefly discussed immigration during their talks on Wednesday, the White House said.`\
-https://nytimes.com/reuters/2020/07/08/world/americas/08reuters-usa-mexico-immigration.html?searchResultPosition=6
-
-**Tyler Perry to Pay Funeral Expenses for Girl Shot in Atlanta**\
-`Tyler Perry has offered to pay the funeral expenses for an 8-year-old girl who was fatally shot in Atlanta over the weekend, a representative for the actor and filmmaker confirmed Wednesday. `\
-https://nytimes.com/aponline/2020/07/08/us/ap-us-racial-injustice-child-killed.html?searchResultPosition=7
-
-**New Oversight Committee Would Restore Faith in NYPD, AG Says**\
-`New York Attorney General Letitia James proposed sweeping changes Wednesday to boost oversight of the New York City Police Department, including forming an independent commission that would approve the department's budget and have the final say on officer discipline.`\
-https://nytimes.com/aponline/2020/07/08/us/ap-us-police-accountability-new-york.html?searchResultPosition=8
-
-**The Roberts Court Curtails Birth Control Access. Again.**\
-`Justices rule that employers can stand between female workers and their health care.`\
-https://nytimes.com/2020/07/08/opinion/supreme-court-birth-control.html?searchResultPosition=9
-
-**Safe Injection Sites May Curb Opioid Deaths, Report Suggests**\
-`A safe haven in the U.S. where people can give themselves heroin and other drugs has observed more than 10,500 injections over five years and treated 33 overdoses with none proving fatal, researchers reported Wednesday.`\
-https://nytimes.com/aponline/2020/07/08/health/ap-us-med-opioids-preventing-overdose.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/08/business/bc-us-facebook-civil-rights-audit-takeaways.html?searchResultPosition=10
 
