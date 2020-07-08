@@ -6,12 +6,12 @@ https://nytimes.com/reuters/2020/07/08/business/08reuters-uber-seattle-pay.html?
 `Veteran broadcaster and naturalist David Attenborough has appealed for donations to save the conservation charity behind two leading British zoos, London and Whipsnade, which has been hammered financially by the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-health-coronavirus-zoo-attenborough.html?searchResultPosition=2
 
-**Driver Who Killed Seattle Protester Charged With Vehicular Homicide**\
-`The driver, Dawit Kelete, 27, struck two protesters with his car early Saturday.`\
+**Driver Charged With Vehicular Homicide in Death of Seattle Protester**\
+`The driver, Dawit Kelete, 27, struck two protesters with his car early Saturday, one of whom later died, prosecutors said.`\
 https://nytimes.com/2020/07/08/us/dawit-kalete-seattle-protest-driver-charges.html?searchResultPosition=3
 
-**Nigeria's Confirmed Coronavirus Cases Pass 30,000-NCDC**\
-`Nigeria's confirmed coronavirus cases passed 30,000 on Wednesday, said the country's disease control centre. `\
+**Nigeria's Confirmed Coronavirus Cases Pass 30,000 - NCDC**\
+`Nigeria's confirmed coronavirus cases passed 30,000 on Wednesday, the country's disease control centre said, as the virus spreads in Africa's most populous country amid an easing of restrictions put in place to curb the disease. `\
 https://nytimes.com/reuters/2020/07/08/world/africa/08reuters-health-coronavirus-nigeria.html?searchResultPosition=4
 
 **Amazon to Start Pulling Redskins Merchandise After AG Letter**\
