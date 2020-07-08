@@ -1,40 +1,40 @@
-**New French PM Defends Promotion of Minister Accused of Rape**\
-`France's new prime minister firmly defended Wednesday the contested promotion of a colleague accused of rape as his interior minister, in charge of enforcing French laws.`\
-https://nytimes.com/aponline/2020/07/08/world/europe/ap-eu-france-sexual-misconduct.html?searchResultPosition=1
+**Island Heights, N.J.: A ‘Magical Place’ That’s a Step Out of Time**\
+`Founded in the 19th century as a Methodist camp meeting site, this Ocean County borough retains an old-fashioned feeling, even as newcomers move in.`\
+https://nytimes.com/2020/07/08/realestate/island-heights-nj-a-magical-place-thats-a-step-out-of-time.html?searchResultPosition=1
 
-**Nokia Shares Fall on Concerns Over Potential Loss of Verizon Business**\
-`Shares in Nokia fell 8% in Wednesday morning trade on concerns that the Finnish company was losing the business of its key client Verizon in the United States.`\
-https://nytimes.com/reuters/2020/07/08/business/08reuters-nokia-usa-shares.html?searchResultPosition=2
+**See That Fridge on the Sidewalk? It’s Full of Free Food**\
+`For many New Yorkers, healthy meals are hard to come by these days. Now activists are stocking refrigerators for those in need.`\
+https://nytimes.com/2020/07/08/nyregion/free-food-fridge-nyc.html?searchResultPosition=2
 
-**Suicide Attack, Roadside Bomb Kill 6 Police in Afghanistan**\
-`A suicide truck bomber targeted a police district headquarters in Afghanistan's southern Kandahar province on Wednesday, killing three officers, a local official said. Three other police officers, including a district police chief, were killed in a roadside bombing in eastern Ghazni province.`\
-https://nytimes.com/aponline/2020/07/08/world/asia/ap-as-afghanistan.html?searchResultPosition=3
+**Churches Were Eager to Reopen. Now They Are a Major Source of Covid Cases.**\
+`The coronavirus has infiltrated Sunday services, church meetings and youth camps. More than 650 cases have been linked to reopened religious facilities.`\
+https://nytimes.com/2020/07/08/us/coronavirus-churches-outbreaks.html?searchResultPosition=3
 
-**Dutch Police Say They Discover Criminal Gang's Torture Chamber**\
-`Dutch police said they discovered a torture chamber used by criminals for interrogations inside a shipping container, equipped with a dentist's chair to hold prisoners and sound-proofing to stifle their screams.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-netherlands-crime-torture.html?searchResultPosition=4
+**Patrick Mahomes’s Contract Shows the Gap in Pro Sports Paydays**\
+`His new deal with the Kansas City Chiefs was touted as sports’ first half-billion dollar contract. But in the N.F.L., contracts are not always what they seem.`\
+https://nytimes.com/2020/07/08/sports/football/patrick-mahomes-contract-guarantee.html?searchResultPosition=4
 
-**French PM Says Any New Coronavirus Lockdown Would Be Targeted**\
-`New French Prime Minister Jean Castex said on Wednesday that any new lockdown will be targeted, and not imposed nationwide, if there is a major new coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-france-politics.html?searchResultPosition=5
+**Puerto Rico, Still Reeling From Old Disasters, Is Slammed by Covid-19**\
+`The island has had to weather a hurricane, a political crisis and earthquakes, but those crises did not lead to the widespread unemployment caused by the response to the coronavirus pandemic.`\
+https://nytimes.com/2020/07/08/us/coronavirus-puerto-rico-economy-unemployment.html?searchResultPosition=5
 
-**UK to Nominate Ex-Minister Liam Fox as WTO Boss: Spectator**\
-`Britain will nominate former cabinet minister Liam Fox to be the new chief of the World Trade Organization, a journalist for the Spectator political magazine said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-britain-wto-fox.html?searchResultPosition=6
+**Colin Jost Knows What He Has: ‘A Very Punchable Face’**\
+`In a new memoir, the “Saturday Night Live” star and Weekend Update anchor contemplates a life and career that are still in flux.`\
+https://nytimes.com/2020/07/08/books/colin-jost-a-very-punchable-face-snl-weekend-update.html?searchResultPosition=6
 
-**AP Was There: Graf Beats Navratilova at Wimbledon Again**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/07/08/sports/tennis/ap-ten-ap-was-there-1989-wimbledon.html?searchResultPosition=7
+**Disney World Draws Excitement and Incredulity as Reopening Nears**\
+`The mega-resort will welcome back visitors on Saturday even as coronavirus cases in Florida remain high. In doing so, Disney steps into a politicized debate.`\
+https://nytimes.com/2020/07/08/business/coronavirus-disney-world-reopening.html?searchResultPosition=7
 
-**Islamists Block Construction of First Hindu Temple in Islamabad**\
-`The government hailed the temple as a sign of Pakistan’s growing tolerance under Prime Minister Imran Khan. But pressure from clerics mounted, and the government gave in.`\
-https://nytimes.com/2020/07/08/world/asia/hindu-temple-islamabad-islamists-pakistan.html?searchResultPosition=8
+**Virus-Tracing Apps Are Rife With Problems. Governments Are Rushing to Fix Them.**\
+`As countries race to deploy coronavirus-tracking software, researchers are reporting privacy and security risks that could affect millions of people and undermine trust in public health efforts.`\
+https://nytimes.com/2020/07/08/technology/virus-tracing-apps-privacy.html?searchResultPosition=8
 
-**German Prosecutors Close Probe of 1980 Oktoberfest Bombing**\
-`German prosecutors said Wednesday that they have closed their investigation into a deadly far-right attack on Munich's Oktoberfest in 1980, more than five years after they revived the probe in hopes that new testimony might point to previously unknown co-conspirators.`\
-https://nytimes.com/aponline/2020/07/08/world/europe/ap-eu-germany-oktoberfest-attack.html?searchResultPosition=9
+**As Virus Spreads, States Face a Truth: ‘We Cannot Test Our Way Out of This’**\
+`Tennessee’s governor said anyone in his state could be tested for the coronavirus, and the state would pay. That did not stop the virus from roaring back.`\
+https://nytimes.com/2020/07/08/us/politics/tennessee-coronavirus-testing.html?searchResultPosition=9
 
-**In Africa, Lack of Coronavirus Data Raises Fears of 'Silent Epidemic'**\
-`When the new coronavirus hit Tanzania in mid-April, President John Magufuli called for three days of national prayer to seek God’s protection from the scourge. Barely a month later, he claimed victory over the disease and invited tourists to return to his East African nation.`\
-https://nytimes.com/reuters/2020/07/08/world/africa/08reuters-health-coronavirus-africa-data-insight.html?searchResultPosition=10
+**They Splurged on Fancy Clothes Before Quarantine. Now What?**\
+`Fashion purchases innocently made before the spread of coronavirus are poignant markers of canceled activities.`\
+https://nytimes.com/2020/07/08/style/why-did-i-buy-this.html?searchResultPosition=10
 
