@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/07/08/world/africa/ap-af-ivory-coast-prime-min
 https://nytimes.com/reuters/2020/07/08/world/middleeast/08reuters-qatar-economy.html?searchResultPosition=9
 
 **Oracle Offers to Put Its New Cloud Technology Inside Customer Data Centers**\
-`Oracle Corp on Wednesday said it is now offering to put all of its cloud computing technology inside its customers' data centers for an $18 million upfront commitment and has signed customers in Japan and Oman.`\
+`Oracle Corp on Wednesday said it is now offering to put all of its cloud computing technology inside its customers' data centers for an $18 million spending commitment over three years and has signed customers in Japan and Oman.`\
 https://nytimes.com/reuters/2020/07/08/technology/08reuters-oracle-cloud.html?searchResultPosition=10
 
