@@ -1,40 +1,40 @@
-**UK Raises Threshold on Property Purchase Tax to Boost Housing Market After COVID**\
-`Britain will raise the threshold of a tax on property purchases from 125,000 pounds to 500,000 pounds to boost activity in the housing market after the coronavirus lockdown, finance minister Rishi Sunak said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-health-coronavirus-britain-housing.html?searchResultPosition=1
+**Latest COVID-19 Measures to Cost 30 Billion Pounds, UK Finance Ministry Says**\
+`New measures to help Britain's economy recover from the economic damage from COVID-19 will cost up to 30 billion pounds ($38 billion), Britain's finance ministry said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-health-coronavirus-britain-costings.html?searchResultPosition=1
 
-**Why You Should Care That Boohoo Is Making Headlines This Week**\
-`Boohoo was one of the fastest growing retailers in Britain. Now the company is in trouble after revelations about working conditions in supplier factories.`\
-https://nytimes.com/2020/07/08/fashion/boohoo-labor-influencer-crisis.html?searchResultPosition=2
+**Russia's Central Bank Says Non-Performing Loans Growth to Fall in June**\
+`The growth in non-performing loans and loans restructuring in the Russian banking sector is expected to fall in June, Elizaveta Danilova, head of the central bank's financial stability department said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-russia-cenbank-banks.html?searchResultPosition=2
 
-**Ireland Sees 'Very Challenging' 24 Months for Foreign Direct Investment**\
-`The coronavirus pandemic is likely to significantly reduce global foreign direct investment flows into 2021, creating a "very challenging" 24 months for a key part of Ireland's economy, the state foreign investment agency said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/08/technology/08reuters-ireland-investment.html?searchResultPosition=3
+**EU Must Emerge Stronger, More United From Corona-Crisis, Merkel Says**\
+`Preserving basic rights, fostering solidarity, protecting the climate, digitalisation, and Europe's role in the world are Germany's top priorities during its six-month presidency of the European Union, Chancellor Angela Merkel said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-eu-germany.html?searchResultPosition=3
 
-**Most Mexicans Say Country Should Be Closer to U.S., Poll Shows**\
-`More Mexicans have warmed to the idea of closer ties with the United States just as President Andres Manuel Lopez Obrador lines up his first meeting with U.S. counterpart Donald Trump, a poll showed on Wednesday.`\
-https://nytimes.com/reuters/2020/07/08/us/politics/08reuters-usa-mexico-poll.html?searchResultPosition=4
+**Chile Consumer Prices Sag in June Amid Pandemic**\
+`Chilean consumer prices fell 0.1% in June, the government's statistics agency INE said on Wednesday, as the cost of transportation, clothing and health care all sagged amid the ongoing coronavirus outbreak. `\
+https://nytimes.com/reuters/2020/07/08/world/americas/08reuters-chile-inflation.html?searchResultPosition=4
 
-**Fiat Chrysler Says South American Market Share 15.9% in Second Quarter**\
-`Fiat Chrysler said on Wednesday its market share in South America stood at 15.9% in the second quarter, when car sales in the region plummeted due to the new coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/07/08/business/08reuters-fiat-chrysler-sales-latam.html?searchResultPosition=5
+**Israeli Private Tech Firms Raised $2.5 Billion in Second Quarter**\
+`Israeli private high-tech companies raised $2.5 billion in the second quarter of 2020, overcoming the coronavirus pandemic with a rise from $2.2 billion a year ago, the Israel Venture Capital Research Center and ZAG law firm said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/08/business/08reuters-israel-tech-fundraising.html?searchResultPosition=5
 
-**NHC Says 60% Chance of Cyclone Along South Carolina Coast**\
-`An area of low pressure along the coast of northeastern South Carolina has about a 60% chance of cyclone formation in the next 48 hours, the U.S. National Hurricane Center said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/08/us/08reuters-storm-atlantic-nhc.html?searchResultPosition=6
+**E-Tailers in India Begin Work to List 'Country of Origin' Labels on Products**\
+`E-commerce companies in India like Amazon.com's local unit and Walmart's Flipkart have begun to update their back-end systems to allow sellers to identify the country of origin on all new product listings on their platforms, two sources aware of the matter said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/08/technology/08reuters-india-china-ecommerce.html?searchResultPosition=6
 
-**Hottest Commodity in Lebanon's Economic Chaos: The US Dollar**\
-`The lines snaked around the block. Then they swelled to fill the whole street, before they turned into a raucous mob of men shoving to the front of the line. There at the exchange bureau, they could buy rationed dollars, the hottest commodity in Lebanon.`\
-https://nytimes.com/aponline/2020/07/08/business/bc-ml-lebanon-no-dollars.html?searchResultPosition=7
+**Missing the Partner You See 24/7**\
+`How to feel connected when you have nowhere to go.`\
+https://nytimes.com/2020/07/08/parenting/coronavirus-marriage-relationships.html?searchResultPosition=7
 
-**Allstate Acquires National General for $4 Billion in Cash**\
-`Allstate is buying National General Holdings for $4 billion in cash, expanding the scope of its insurance holdings.`\
-https://nytimes.com/aponline/2020/07/08/business/ap-allstate-national-general.html?searchResultPosition=8
+**Indian Travel Curbs Thwart Gold Smugglers, Boost Legal Market**\
+`Gold smuggling in India has declined as a lack of international flights thwarts grey market operators and serves to boost the premium legal importers can charge, industry officials said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-india-gold-smuggling.html?searchResultPosition=8
 
-**Taliban Suicide Bomber Kills Three as Violence Rises Despite Peace Push**\
-`A Taliban suicide bomber detonated an explosive-packed military vehicle on the approach to the provincial governor's residence and police headquarters in the Afghan province of Kandahar on Wednesday, killing at least three people, authorities said.`\
-https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-afghanistan-attacks.html?searchResultPosition=9
+**Dozens Injured in Belgrade Rioting Sparked by New Virus Lockdown**\
+`Dozens of demonstrators and police were injured in overnight rioting in Belgrade, triggered when a crowd stormed Serbia's parliament in protest at plans to reimpose a lockdown following a surge in coronavirus cases.`\
+https://nytimes.com/reuters/2020/07/08/world/08reuters-health-coronavirus-serbia-protests.html?searchResultPosition=9
 
-**TikTok's Ad Launch Faces Challenges From U.S. Ban Threat, Hoaxes**\
-`TikTok’s launch on Wednesday of a new platform to court small business advertisers is fraught with challenges, especially after the Trump administration's threat this week to impose a ban on China-based social media apps.`\
-https://nytimes.com/reuters/2020/07/08/business/08reuters-tiktok-advertising.html?searchResultPosition=10
+**Bosnian Serb Government Indoctrinating Children Over Srebrenica, U.N. Tribunal Head Says**\
+`The Bosnian Serb government is indoctrinating children with denials of the 1995 genocide in Srebrenica of 8,000 Muslim men and boys, and wrecking attempts at reconciliation, the head of a U.N. court said in an interview. `\
+https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-bosnia-srebrenica-warcrimes.html?searchResultPosition=10
 
