@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/07/08/us/08reuters-usa-pipelines.html?searchRes
 https://nytimes.com/reuters/2020/07/08/business/08reuters-britain-huawei-tech.html?searchResultPosition=7
 
 **FDA Declines to Approve Merck and Eisai's Liver Cancer Combo Therapy**\
-`The U.S. Food and Drug Administration on Wednesday declined to approve a combination of Merck & Co Inc's blockbuster cancer drug Keytruda and Eisai Co Ltd's Lenvima for use in previously untreated patients with liver cancer.`\
+`The U.S. drug regulator declined to approve a combination of Merck & Co Inc's blockbuster cancer drug Keytruda and Eisai Co Ltd's Lenvima as the first line of treatment in patients with liver cancer, the companies said on Wednesday.`\
 https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-merck-co-fda-eisai.html?searchResultPosition=8
 
 **Libyan Migrant Centres Are Like Concentration Camps, Pope Says**\
