@@ -1,40 +1,40 @@
+**Ivory Coast's Prime Minister Amadou Gon Coulibaly Dies at 61**\
+`Amadou Gon Coulibaly, Ivory Coast's prime minister and its ruling party's candidate for the October presidential election, has died, President Alassane Ouattara said on Wednesday, adding that the country was mourning.`\
+https://nytimes.com/reuters/2020/07/08/world/africa/08reuters-ivorycoast-politics-primeminister.html?searchResultPosition=1
+
+**Explainer: Why Is the New U.S. Policy for International Students Causing Backlash From Colleges?**\
+`The administration of President Donald Trump issued new rules this week that could force tens of thousands of international students to leave the United States if their schools hold all classes online amid the coronavirus pandemic, causing panic among colleges and foreign students.`\
+https://nytimes.com/reuters/2020/07/08/us/08reuters-usa-immigration-students-explainer.html?searchResultPosition=2
+
+**Face Masks Mandatory in Northeast Spain Amid Virus Uptick**\
+`Authorities in northeast Spain will start fining individuals who do not wear face masks 100 euros ($113) starting Thursday when the use of masks becomes mandatory in Barcelona and the surrounding Catalonia region following a resurgence of the coronavirus. `\
+https://nytimes.com/aponline/2020/07/08/world/europe/ap-eu-virus-outbreak-spain.html?searchResultPosition=3
+
+**Militants Kill Local Politician From Modi's Party in Indian Kashmir**\
+`Suspected militants shot dead a local leader of India's ruling Bharatiya Janata Party (BJP) in the restive territory of Kashmir on Wednesday, police said, an attack that could increase tensions in the region. `\
+https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-india-kashmir.html?searchResultPosition=4
+
+**Canada to Post Largest Deficit Since WWII on COVID-19 Spending**\
+`Canada's budget deficit is now forecast to hit C$343.2 billion ($253.4 billion), the largest shortfall since the Second World War, amid record emergency aid spending in response to the COVID-19 pandemic, Canada's finance department said Wednesday.`\
+https://nytimes.com/reuters/2020/07/08/us/08reuters-canada-deficit.html?searchResultPosition=5
+
 **Venezuela Inflation Rises to 19.5% in June: Congress**\
 `Venezuelan consumer prices rose 19.5% in June compared with the prior month, data from the opposition-controlled National Assembly showed on Wednesday, as surging inflation contributes to rising poverty in the once-prosperous OPEC nation. `\
-https://nytimes.com/reuters/2020/07/08/world/americas/08reuters-venezuela-inflation.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/08/world/americas/08reuters-venezuela-inflation.html?searchResultPosition=6
 
 **Stanford Drops 11 Sports to Cut Costs During Pandemic**\
 `Stanford announced Wednesday that it is dropping 11 sports amid financial difficulties caused by the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/07/08/sports/ap-us-virus-outbreak-stanford-cuts.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/08/sports/ap-us-virus-outbreak-stanford-cuts.html?searchResultPosition=7
 
 **Italy Court Says Law Excluding Atlantia From Bridge Rebuild Is Constitutional**\
 `A top Italian court said on Wednesday a law excluding the motorway unit of Benetton-led Atlantia from reconstruction work on a bridge that collapsed in 2018 killing 43 people was constitutional.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-italy-motorway-atlantia-court.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-italy-motorway-atlantia-court.html?searchResultPosition=8
 
 **U.S. CDC Reports 2,982,900 Coronavirus Cases**\
 `The U.S. Centers for Disease Control and Prevention (CDC) on Wednesday reported 2,982,900 cases of new coronavirus, an increase of 50,304 cases from its previous count, and said that the number of deaths had risen by 932 to 131,065.`\
-https://nytimes.com/reuters/2020/07/08/us/08reuters-health-coronavirus-usa-cdc.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/08/us/08reuters-health-coronavirus-usa-cdc.html?searchResultPosition=9
 
 **ILO Summit on COVID-19 and the World of Work**\
 `World leaders spoke at a conference on Wednesday organised by the International Labour Organization on COVID-19 and the world of work.`\
-https://nytimes.com/reuters/2020/07/08/world/africa/08reuters-health-coronavirus-ilo-highlights.html?searchResultPosition=5
-
-**Review: ‘Little Voice’ Is a Twee Musical Fairy Tale**\
-`If you’re looking for something earnest and coronavirus-free, the Apple TV+ series from Sara Bareilles and Jessie Nelson may be perfectly timed.`\
-https://nytimes.com/2020/07/08/arts/television/review-little-voice.html?searchResultPosition=6
-
-**Pakistan Invites India to File Review Against Spy's Conviction**\
-`Pakistan said it invited India on Wednesday to file a review against a military court's death sentence last year on former Indian navy commander Kulbhushan Sudhir Jadhav on charges of espionage and sabotage.`\
-https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-pakistan-india-spy.html?searchResultPosition=7
-
-**Wirecard Under Criminal Scrutiny by U.S. Authorities: WSJ**\
-`The U.S. Justice Department is examining whether German payment company Wirecard AG played a critical role in an alleged $100 million bank-fraud conspiracy connected to an online marijuana marketplace, the Wall Street Journal reported on Wednesday.`\
-https://nytimes.com/reuters/2020/07/08/business/08reuters-wirecard-probe-doj.html?searchResultPosition=8
-
-**One Dead and Four Injured in London Crane Collapse**\
-`A person was killed and four others injured when a crane collapsed at a building site in Bow, east London, on Wednesday, emergency services said.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-britain-crane.html?searchResultPosition=9
-
-**Fed's Bostic: Pace of U.S. Recovery May Be Leveling Off**\
-`The seemingly rapid rebound in the U.S. economy over May and June may be leveling off, Atlanta Fed president Raphael Bostic said on Wednesday, with real time indicators of business activity suggesting the renewed spread of the coronavirus is taking a toll.  `\
-https://nytimes.com/reuters/2020/07/08/us/08reuters-usa-fed-bostic.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/08/world/africa/08reuters-health-coronavirus-ilo-highlights.html?searchResultPosition=10
 
