@@ -1,40 +1,40 @@
+**Allstate Acquires National General for $4 Billion in Cash**\
+`Allstate is buying National General Holdings for $4 billion in cash, expanding the scope of its insurance holdings.`\
+https://nytimes.com/aponline/2020/07/08/business/ap-allstate-national-general.html?searchResultPosition=1
+
+**Taliban Suicide Bomber Kills Three as Violence Rises Despite Peace Push**\
+`A Taliban suicide bomber detonated an explosive-packed military vehicle on the approach to the provincial governor's residence and police headquarters in the Afghan province of Kandahar on Wednesday, killing at least three people, authorities said.`\
+https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-afghanistan-attacks.html?searchResultPosition=2
+
+**TikTok's Ad Launch Faces Challenges From U.S. Ban Threat, Hoaxes**\
+`TikTok’s launch on Wednesday of a new platform to court small business advertisers is fraught with challenges, especially after the Trump administration's threat this week to impose a ban on China-based social media apps.`\
+https://nytimes.com/reuters/2020/07/08/business/08reuters-tiktok-advertising.html?searchResultPosition=3
+
+**Under 'Financial Siege', Lebanon Must Stave Off Strife, Says Bassil**\
+`Lebanon is facing a "financial siege" imposed by international powers and its priority is staving off strife caused by the country's economic meltdown, leading politician Gebran Bassil said on Tuesday.`\
+https://nytimes.com/reuters/2020/07/08/world/middleeast/08reuters-lebanon-crisis-bassil.html?searchResultPosition=4
+
+**Apple Expands Independent Repair Shop Program to Europe, Canada**\
+`Apple Inc said on Wednesday it is expanding a program to supply repair parts, tools and manuals for iPhones to independent repair shops in 32 countries in Europe as well as Canada.`\
+https://nytimes.com/reuters/2020/07/08/business/08reuters-apple-repair.html?searchResultPosition=5
+
+**France Calls for Release of Mali Opposition Leader Cisse**\
+`French Foreign Minister Jean-Yves Le Drian on Wednesday called for the release of Malian opposition leader Soumaila Cisse, who has been held hostage by suspected Islamist militants since March. `\
+https://nytimes.com/reuters/2020/07/08/world/africa/08reuters-france-mali-cisse.html?searchResultPosition=6
+
+**Walgreens Dives Into Primary Care With Clinic Expansion**\
+`Walgreens will squeeze primary care clinics into as many as 700 of its U.S. stores over the next few years in a major expansion of the care it offers customers. `\
+https://nytimes.com/aponline/2020/07/08/business/ap-walgreens-primary-care.html?searchResultPosition=7
+
 **Over 100 Lesson Plans Based on New York Times Articles**\
 `A selection of evergreen Lessons of the Day from the 2019-20 school year to help students better understand world events and draw connections to their own lives.`\
-https://nytimes.com/2020/07/08/learning/lesson-plans/over-100-lesson-plans-based-on-new-york-times-articles.html?searchResultPosition=1
+https://nytimes.com/2020/07/08/learning/lesson-plans/over-100-lesson-plans-based-on-new-york-times-articles.html?searchResultPosition=8
 
 **Italy's Conte to Visit Dutch PM on Friday Ahead of Recovery Fund Summit, Source Says**\
 `Italian Prime Minister Antonio Conte will visit his Dutch counterpart Mark Rutte this Friday in preparation for next week's EU summit on the European Recovery Fund, a source familiar with the matter said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-eu-recovery-rutte-conte.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-eu-recovery-rutte-conte.html?searchResultPosition=9
 
 **UK's Sunak Pledges to Protect Jobs With New Measures**\
 `British finance minister Rishi Sunak warned of hardship ahead on Wednesday as he set out plans to protect jobs and limit the economic impact of the coronavirus.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-health-coronavirus-britain-sunak-highlights.html?searchResultPosition=3
-
-**Dutch Police Detain About 50 Farmers Protesting Over Pollution Rules**\
-`Dutch police detained about 50 farmers who blocked a road with their tractors on Wednesday in protest against new environmental pollution rules which they say threaten their livelihoods.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-netherlands-farmers.html?searchResultPosition=4
-
-**UK's Sunak Warns of Hardship as He Pledges to Protect Jobs**\
-`British finance minister Rishi Sunak warned of hardship ahead as he set out plans on Wednesday to protect jobs and limit the economic impact of the coronavirus.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-health-coronavirus-britain-sunak.html?searchResultPosition=5
-
-**Mayor Pete Buttigieg Has a New Book Set for Fall,' Trust'**\
-`Pete Buttigieg's next book has a unifying message. `\
-https://nytimes.com/aponline/2020/07/08/arts/ap-us-books-buttigieg.html?searchResultPosition=6
-
-**Biogen Submits U.S. Marketing Application for Alzheimer's Disease Drug**\
-`Biogen Inc said on Wednesday that it submitted a marketing application for its experimental Alzheimer's disease therapy, aducanumab, to the U.S. Food and Drug Administration (FDA), sending its shares up more than 8% in premarket trading.`\
-https://nytimes.com/reuters/2020/07/08/us/08reuters-biogen-alzheimer-s-disease.html?searchResultPosition=7
-
-**Kenyan Sports Minister Mohamed to Bid for Top WTO Job**\
-`Kenya's sports and culture minister Amina Mohamed will run to be the next Director-General of the World Trade Organization (WTO), a spokesperson said on Wednesday and a WTO official confirmed.`\
-https://nytimes.com/reuters/2020/07/08/world/08reuters-trade-wto.html?searchResultPosition=8
-
-**Ireland May cut Tax on Business in Stimulus Plan: Minister  **\
-`Ireland is considering reductions in business tax as part of a "radical and far reaching" multi-billion euro stimulus plan set to be announced in the week of July 21, Business Minister Leo Varadkar said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-ireland-economy.html?searchResultPosition=9
-
-**U.S. Government to Invest $42 Million in Becton Dickinson's Injection Device Production**\
-`Becton Dickinson and Co said on Wednesday the U.S. government will invest $42 million to expand the medical technology company's manufacturing lines for injection devices to support vaccination efforts against COVID-19.`\
-https://nytimes.com/reuters/2020/07/08/us/08reuters-health-coronavirus-becton-dickinson.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-health-coronavirus-britain-sunak-highlights.html?searchResultPosition=10
 
