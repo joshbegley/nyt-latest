@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/07/08/us/08reuters-texas-execution.html?searchR
 `Mexican President Andres Manuel Lopez Obrador meets with his U.S. counterpart, Donald Trump, for the first time on Wednesday, in a potentially awkward encounter that has drawn flak from some U.S. Democrats unhappy it is coming so close to the presidential election.`\
 https://nytimes.com/reuters/2020/07/08/us/politics/08reuters-usa-mexico.html?searchResultPosition=4
 
-**Motor Racing: Double Champion Alonso to Make F1 Comeback With Renault**\
-`Double world champion Fernando Alonso will make a Formula One comeback with Renault, the team he won his titles with, in 2021 after two years out of the sport, the French team announced on Wednesday.`\
+**Motor Racing: Alonso Goes Back to the Future With Renault F1 Team**\
+`Double world champion Fernando Alonso will make a Formula One comeback at the age of 39 next year with Renault, the team he won his titles with, after two seasons out of the sport.`\
 https://nytimes.com/reuters/2020/07/08/sports/autoracing/08reuters-motor-f1-renault.html?searchResultPosition=5
 
 **End of an Era? Series of U.S. Setbacks Bodes Ill for Big Oil, Gas Pipeline Projects**\
