@@ -1,40 +1,40 @@
-**U.S. Affirms Lebanon Support as Hezbollah Steps Up Criticism**\
-`A U.S. general voiced Washington's backing for Lebanese stability on Wednesday on a visit that triggered a protest by demonstrators including supporters of the Iran-backed Hezbollah against U.S. policies in the country.`\
-https://nytimes.com/reuters/2020/07/08/world/middleeast/08reuters-lebanon-crisis-protests.html?searchResultPosition=1
+**Pompeo Says China Took Incredibly Aggressive Action in Recent Clash With India**\
+`U.S. Secretary of State Mike Pompeo on Wednesday accused China of taking "incredibly aggressive action" in a recent confrontation with India over a disputed section of the nuclear-armed neighbors' border.`\
+https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-india-china-usa-pompeo.html?searchResultPosition=1
 
-**Walgreens Partners With VillageMD to Open Primary Care Clinics at Drug Stores**\
-`Walgreens Boots Alliance Plc said on Wednesday it had partnered with primary care provider VillageMD to open doctor offices attached to its drugstores across the United States, as the pharmacy chain looked to expand its healthcare services. `\
-https://nytimes.com/reuters/2020/07/08/us/08reuters-walgreens-boots-primarycare.html?searchResultPosition=2
+**EU Scrambles to Buy Intensive Care Drugs to Tackle COVID Shortages**\
+`The European Union is seeking firms to supply 24 intensive care drugs, an EU official told Reuters, as it strives to tackle shortages of medicines for COVID-19 patients amid fears of a second wave of infections and strong global demand. `\
+https://nytimes.com/reuters/2020/07/08/us/08reuters-health-coronavirus-eu-patients.html?searchResultPosition=2
 
-**Euro Zone Economy May Have Shrunk Less Than Expected, Says ECB's VP**\
-`The euro zone economy may have shrunk by less than the 13% forecast by the European Central Bank in the three months to the end of June, the ECB Vice President Luis de Guindos said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-ecb-policy-economy.html?searchResultPosition=3
+**Still Much Work Needed for EU Recovery Fund Deal, Michel Says**\
+`European Council President Charles Michel said on Wednesday that the EU needs to reach an agreement quickly on its plan for a multi-billion-euro recovery fund but much negotiation will still be needed to get there. `\
+https://nytimes.com/reuters/2020/07/08/us/08reuters-eu-recovery-michel.html?searchResultPosition=3
 
-**U.S., Kenya Formally Launch Trade Deal Talks**\
-`Kenya and the United States formally launched negotiations on Wednesday for a bilateral trade pact that the two economies hope could serve as a model for additional agreements across the African continent.`\
-https://nytimes.com/reuters/2020/07/08/world/africa/08reuters-kenya-usa-trade.html?searchResultPosition=4
+**Ryder Cup Postponed Due to Coronavirus**\
+`This year's Ryder Cup, which was scheduled to be held in late September in Wisconsin, has been postponed due to the COVID-19 pandemic, organisers said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/08/sports/golf/08reuters-health-coronavirus-golf-rydercup.html?searchResultPosition=4
 
-**'Eat Out to Help Out'-UK Offers Some Tasty Morsels to Tempt Back Diners**\
-`Britain launched a $625 million "Eat out to help out" discount scheme to boost spending at restaurants, cafes and pubs that have been crippled by COVID-19, offering half-priced meals from Monday to Wednesday to get people spending again. `\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-health-coronavirus-britain-vouchers.html?searchResultPosition=5
+**Former Pope Benedict's Tribute Read at Elder Brother's Funeral**\
+`A tribute from former Pope Benedict XVI was read out on Wednesday at the funeral of his elder brother Georg Ratzinger, a priest and choirmaster, who died last week aged 96.`\
+https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-vatican-benedict-germany-brother.html?searchResultPosition=5
 
-**Russian Journalists Fear Growing Media Persecution After Treason Arrest**\
-`Russian journalists have launched a petition demanding treason allegations against a former reporter be made public, fearing the case is bogus and that media are being increasingly persecuted.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-russia-detention-treason.html?searchResultPosition=6
+**NYC Mayor: Schools Will Reopen in Fall With Hybrid Learning**\
+`Most New York City students will return to their physical schools two or three days a week and learn online the rest of the time under a plan announced Wednesday by Mayor Bill de Blasio, who said schools can’t accommodate all their students at any one time and maintain safe social distancing.`\
+https://nytimes.com/aponline/2020/07/08/us/ap-us-virus-outbreak-new-york.html?searchResultPosition=6
 
-**Illinois Man Faces New Charges in 2019 Killing of Deputy**\
-`A federal grand jury has returned several new charges against an Illinois man accused of fatally shooting a sheriff’s deputy who was part of a federal fugitive task force that was trying to arrest him at a hotel on burglary and parole violation charges.`\
-https://nytimes.com/aponline/2020/07/08/us/ap-us-hotel-shooting-illinois.html?searchResultPosition=7
+**Lithuania Bans Russian Television Channel TV, Follows Latvia**\
+`Lithuania's media watchdog says it has banned the broadcasts of the state-controlled Russian television channel RT, effective Thursday, following a similar decision made in Baltic neighbor Latvia last week.`\
+https://nytimes.com/aponline/2020/07/08/business/ap-eu-lithuania-russia-television-channel.html?searchResultPosition=7
 
-**EU Bets on Clean Hydrogen to Decarbonize and Boost Economy**\
-`The executive branch of the European Union unveiled plans Wednesday to boost the production of clean hydrogen as part of its goal to achieve climate neutrality by 2050 amid criticism from environmental activists and Green lawmakers pushing for a total exclusion of hydrogen produced from fossil fuels.`\
-https://nytimes.com/aponline/2020/07/08/business/ap-eu-energy-hydrogen-strategy.html?searchResultPosition=8
+**2 Killed, 8 Injured by Rockfall in Austrian Gorge**\
+`Two people have died and eight were injured by a rockfall in an Austrian gorge popular with hikers, officials said Wednesday.`\
+https://nytimes.com/aponline/2020/07/08/world/europe/ap-eu-austria-rockfall-deaths.html?searchResultPosition=8
 
-**UK Toll From Confirmed COVID-19 Cases Rises 126 to 44,517**\
-`The death toll from confirmed COVID-19 cases in the United Kingdom rose by 126 to 44,517, health officials said on Wednesday. `\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-health-coronavirus-britain-toll.html?searchResultPosition=9
+**Crane Collapses in East London; People Trapped**\
+`A 20-meter (65-foot) crane collapsed onto a house in east London on Wednesday leaving people trapped inside, the London Fire Brigade said.`\
+https://nytimes.com/aponline/2020/07/08/world/europe/ap-eu-britain-crane-collapse.html?searchResultPosition=9
 
-**8 Questions From a Disease Detective on the Pandemic’s Origins**\
-`Dr. Daniel R. Lucey wants answers to pointed questions that bear on how the coronavirus leapt from bats to humans.`\
-https://nytimes.com/2020/07/08/health/coronavirus-origin-china-lucey.html?searchResultPosition=10
+**Ryder Cup Postponed Until 2021 to Accommodate Fans**\
+`Many of the world’s top golfers had objected to holding the tournament without fans, threatening to drop out of the biennial event if it was not postponed.`\
+https://nytimes.com/2020/07/08/sports/golf/ryder-cup-postponed-2021.html?searchResultPosition=10
 
