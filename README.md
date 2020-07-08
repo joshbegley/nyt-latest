@@ -1,40 +1,40 @@
+**DealBook: Facebook’s Big Meeting Didn’t Go So Well**\
+`Civil rights groups criticized the company’s top executives, Mark Zuckerberg and Sheryl Sandberg, after a meeting about its policies on hate speech.`\
+https://nytimes.com/2020/07/08/business/dealbook/facebook-civil-rights.html?searchResultPosition=1
+
+**Texas to Execute Man Convicted of Killing Elderly Man for His Truck**\
+`A Texas inmate who was convicted of fatally shooting an elderly man at his home as he robbed him of his truck nearly three decades ago is scheduled to be executed by lethal injection by the state on Wednesday. `\
+https://nytimes.com/reuters/2020/07/08/us/08reuters-texas-execution.html?searchResultPosition=2
+
+**Mexican President to Hold First Meeting With Trump as U.S. Election Looms**\
+`Mexican President Andres Manuel Lopez Obrador meets with his U.S. counterpart, Donald Trump, for the first time on Wednesday, in a potentially awkward encounter that has drawn flak from some U.S. Democrats unhappy it is coming so close to the presidential election.`\
+https://nytimes.com/reuters/2020/07/08/us/politics/08reuters-usa-mexico.html?searchResultPosition=3
+
+**Motor Racing: Double Champion Alonso to Make F1 Comeback With Renault**\
+`Double world champion Fernando Alonso will make a Formula One comeback with Renault, the team he won his titles with, in 2021 after two years out of the sport, the French team announced on Wednesday.`\
+https://nytimes.com/reuters/2020/07/08/sports/autoracing/08reuters-motor-f1-renault.html?searchResultPosition=4
+
+**End of an Era? Series of U.S. Setbacks Bodes Ill for Big Oil, Gas Pipeline Projects**\
+`A rapid-fire succession of setbacks for big energy pipelines in the United States this week has revealed an uncomfortable truth for the oil and gas industry: environmental activists and landowners opposed to projects have become good at blocking them in court.`\
+https://nytimes.com/reuters/2020/07/08/us/08reuters-usa-pipelines.html?searchResultPosition=5
+
+**Huawei: U.S. Sanctions Have No Immediate Impact on UK 5G Supplies**\
+`U.S. sanctions targeting Huawei Technologies have had no immediate impact on the Chinese firm's ability to supply 5G equipment to the UK, Huawei Vice President Victor Zhang said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/08/business/08reuters-britain-huawei-tech.html?searchResultPosition=6
+
 **FDA Declines to Approve Merck and Eisai's Liver Cancer Combo Therapy**\
 `The U.S. Food and Drug Administration on Wednesday declined to approve a combination of Merck & Co Inc's blockbuster cancer drug Keytruda and Eisai Co Ltd's Lenvima for use in previously untreated patients with liver cancer.`\
-https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-merck-co-fda-eisai.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-merck-co-fda-eisai.html?searchResultPosition=7
 
 **Libyan Migrant Centres Are Like Concentration Camps, Pope Says**\
 `Pope Francis on Wednesday compared migrant detention centres in Libya to concentration camps, saying the world was being given only a diluted version of how hellish life really was for the people living there.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-europe-migrants-pope-libya.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-europe-migrants-pope-libya.html?searchResultPosition=8
 
 **Two COVID-Ravaged NY Churches Take Different Recovery Paths**\
 `The paths of two New York City churches diverged this week — one reopened and one stayed closed. But they have shared a tragic fate, together losing at least 134 members of their mostly Hispanic congregations to the coronavirus.`\
-https://nytimes.com/aponline/2020/07/08/us/ap-us-rel-virus-outbreak-lost-parishioners.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/08/us/ap-us-rel-virus-outbreak-lost-parishioners.html?searchResultPosition=9
 
 **China’s Leash on Hong Kong Tightens, Choking a Broadcaster**\
 `RTHK, a government-funded news organization, has a fierce independent streak that has long angered the authorities.`\
-https://nytimes.com/2020/07/08/world/asia/hong-kong-security-china-media.html?searchResultPosition=4
-
-**Trump Signals a Brewing Battle Over School Reopenings**\
-`Trump and public health experts diverge on another front: This is your morning tip sheet.`\
-https://nytimes.com/2020/07/08/us/politics/trump-school-reopenings.html?searchResultPosition=5
-
-**Brussels Approves Germany's Coronavirus Crisis Fund: Ministries**\
-`The European Commission has given its approval for Germany's proposed Economic Stabilisation Fund, the economy and finance ministries in Berlin said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/08/world/europe/08reuters-health-coronavirus-germany-eu.html?searchResultPosition=6
-
-**IMF Head Urges Pandemic Response That Tackles Climate Crisis**\
-`International Monetary Fund Managing Director Kristalina Georgieva urged policymakers on Wednesday to use their response to the coronavirus pandemic to tackle climate change.`\
-https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-health-coronaviris-ilo-imf.html?searchResultPosition=7
-
-**China Coerces Hundreds of Chinese-Born Critics in U.S. to Return Home, FBI Chief Says**\
-`The head of the FBI said on Tuesday Chinese President Xi Jinping was spearheading a program aimed at strong-arming Chinese-born people in the United States deemed as threats to Beijing to return home - even threatening their families.`\
-https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-usa-china-wray.html?searchResultPosition=8
-
-**Israel Central Bank's Abir Says Buying Corporate Bonds to Prevent Layoffs**\
-`The Bank of Israel's decision to start buying corporate bonds should enable companies to issue debt and prevent further layoffs as a result of the coronavirus pandemic, deputy governor Andrew Abir said.`\
-https://nytimes.com/reuters/2020/07/08/world/middleeast/08reuters-israel-economy-cenbank.html?searchResultPosition=9
-
-**Futures Wobble as U.S. Coronavirus Cases Top Three Million**\
-`U.S. stock index futures ticked lower in choppy trading on Wednesday as investors stayed on the sidelines in the face of an alarming rise in coronavirus caseloads across the country that poses a risk to a recovery in business activity.`\
-https://nytimes.com/reuters/2020/07/08/business/08reuters-usa-stocks.html?searchResultPosition=10
+https://nytimes.com/2020/07/08/world/asia/hong-kong-security-china-media.html?searchResultPosition=10
 
