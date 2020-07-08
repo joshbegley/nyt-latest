@@ -1,40 +1,40 @@
+**Liz Moore: ‘Clinical Notes,’ a Short Story**\
+`New fiction: “Babies get fevers. Babies frequently get fevers. The baby has no other symptoms aside from a fever.” From the Magazine’s Decameron Project.`\
+https://nytimes.com/interactive/2020/07/07/magazine/liz-moore-short-story.html?searchResultPosition=1
+
+**California Coronavirus Cases Surge More Than 10,000 in Single Day**\
+`California reported more than 10,000 coronavirus cases on Tuesday, a record rise for a single day that also surpassed the number of contact tracers recently trained by the state to detect and prevent potential outbreaks. `\
+https://nytimes.com/reuters/2020/07/07/us/07reuters-health-coronavirus-california-cases.html?searchResultPosition=2
+
+**Colm Toibin: ‘Tales from the L.A. River,’ a Short Story**\
+`New fiction: “I have never willingly used a vacuum cleaner or knowingly made a bed.” From the Magazine’s Decameron Project.`\
+https://nytimes.com/interactive/2020/07/07/magazine/toibin-tales-short-story.html?searchResultPosition=3
+
+**Dina Nayeri: ‘The Cellar,’ a Short Story**\
+`New fiction: “The daily death tolls reminded Kamran and Sheila of wartime Tehran, in the ’80s, when they were barely out of childhood.” From the Magazine’s Decameron Project.`\
+https://nytimes.com/interactive/2020/07/07/magazine/nayeri-cellar-short-story.html?searchResultPosition=4
+
+**Matthew Baker: ‘Origin Story,’ a Short Story**\
+`New fiction: “The feud had only intensified during the lockdown, now that the two were forced to coexist every waking moment.” From the Magazine’s Decameron Project.`\
+https://nytimes.com/interactive/2020/07/07/magazine/matthew-baker-short-story.html?searchResultPosition=5
+
+**Mona Awad: ‘A Blue Sky Like This,’ a Short Story**\
+`New fiction: “‘First, I have to ask you: How attached are you to your memories?’” From the Magazine’s Decameron Project.`\
+https://nytimes.com/interactive/2020/07/07/magazine/awad-blue-short-story.html?searchResultPosition=6
+
+**Laila Lalami: ‘That Time at My Brother's Wedding,’ a Short Story**\
+`New fiction: “The consular officers keep telling me I should be patient, I will have better luck next time.” From the Magazine’s Decameron Project.`\
+https://nytimes.com/interactive/2020/07/07/magazine/laila-lalami-short-story.html?searchResultPosition=7
+
+**Julián Fuks: ‘A Time of Death, the Death of Time,’ a Short Story**\
+`New fiction: “At the exact moment of the death of time, if I remember correctly, I was lying in the hammock staring out over nothing but empty streets.” From the Magazine’s Decameron Project.`\
+https://nytimes.com/interactive/2020/07/07/magazine/julian-fuks-short-story.html?searchResultPosition=8
+
 **Prominent Artists and Writers Warn of an ‘Intolerant Climate’**\
 `An open letter published by Harper’s, signed by luminaries including Margaret Atwood and Wynton Marsalis, argued for openness to “opposing views.” The debate began immediately.`\
-https://nytimes.com/2020/07/07/arts/harpers-letter.html?searchResultPosition=1
+https://nytimes.com/2020/07/07/arts/harpers-letter.html?searchResultPosition=9
 
 **Uzodinma Iweala: ‘Sleep,’ a Short Story**\
 `New fiction: “The attending said, Where there are humans, there is hope. I wanted to believe him.” From the Magazine’s Decameron Project.`\
-https://nytimes.com/interactive/2020/07/07/magazine/iweala-sleep-short-story.html?searchResultPosition=2
-
-**Karen Russell: ‘Line 19 Woodstock/Glisan,’ a Short Story**\
-`New fiction: “Even before the accident that stopped Time, it had been quite a week.” From the Magazine’s Decameron Project.`\
-https://nytimes.com/interactive/2020/07/07/magazine/karen-russell-short-story.html?searchResultPosition=3
-
-**Dinaw Mengestu: ‘How We Used to Play,’ a Short Story**\
-`New fiction: “She used to tell me, ‘If he is going to imagine something, let him imagine his home country.’” From the Magazine’s Decameron Project.`\
-https://nytimes.com/interactive/2020/07/07/magazine/dinaw-mengestu-short-story.html?searchResultPosition=4
-
-**Alejandro Zambra: ‘Screen Time,’ a Short Story**\
-`New fiction: “Although everyone is behind on everything, they feel sure that they are a little more behind than everyone else.” From the Magazine’s Decameron Project.`\
-https://nytimes.com/interactive/2020/07/07/magazine/alejandro-zambra-short-story.html?searchResultPosition=5
-
-**Téa Obreht: ‘The Morningside,’ a Short Story**\
-`New fiction: “Everyone had left the city — except for the woman on the 14th floor.” From the Magazine’s Decameron Project.`\
-https://nytimes.com/interactive/2020/07/07/magazine/tea-obreht-short-story.html?searchResultPosition=6
-
-**The Latest: Biden Wins New Jersey's Democratic Primary**\
-`The Latest on Tuesday's primary elections in New Jersey and Delaware (all times local):`\
-https://nytimes.com/aponline/2020/07/07/us/politics/ap-us-election-2020-the-latest.html?searchResultPosition=7
-
-**Should Racial and Ethnic Slurs Count in Scrabble Tournaments?**\
-`The fight against systemic racism has taken aim at Scrabble. An agreement is at hand to bar offensive terms, though some players endorse using them for points.`\
-https://nytimes.com/2020/07/07/sports/scrabble-racial-slurs-tournaments.html?searchResultPosition=8
-
-**CBS Fires Producer of ‘Magnum P.I.’ After Workplace Complaints**\
-`The longtime showrunner Peter Lenkov expressed regret, saying “the working environment I ran was not the working environment my colleagues deserved.”`\
-https://nytimes.com/2020/07/07/business/media/peter-lenkov-fired.html?searchResultPosition=9
-
-**Corrections: July 8, 2020**\
-`Corrections that appeared in print on Wednesday, July 8, 2020.`\
-https://nytimes.com/2020/07/07/pageoneplus/corrections-july-8-2020.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/07/07/magazine/iweala-sleep-short-story.html?searchResultPosition=10
 
