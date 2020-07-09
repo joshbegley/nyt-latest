@@ -24,7 +24,7 @@ https://nytimes.com/aponline/2020/07/09/us/ap-us-racial-injustice-indiana-attack
 
 **Supreme Court Rules in Favor of Oklahoma Indian Claim**\
 `A criminal defendant argued that state authorities were powerless to prosecute him within the historical boundaries of the Muscogee (Creek) Nation.`\
-https://nytimes.com/2020/07/09/us/supreme-court-oklahoma-creek-nation.html?searchResultPosition=7
+https://nytimes.com/2020/07/09/us/supreme-court-oklahoma-mcgirt-creek-nation.html?searchResultPosition=7
 
 **Quarterback Burrow Aims to Make Impact in Cincinnati -- On and Off the Field**\
 `Heisman Trophy winning quarterback Joe Burrow told Reuters he came out of a lengthy lockdown during the coronavirus pandemic working extra hard to become the leader of the Cincinnati Bengals offense while also feeling more urgency to fight poverty and hunger in the region where he grew up.`\
