@@ -1,40 +1,40 @@
+**Quarterback Burrow Aims to Make Impact in Cincinnati -- On and Off the Field**\
+`Heisman Trophy winning quarterback Joe Burrow told Reuters he came out of a lengthy lockdown during the coronavirus pandemic working extra hard to become the leader of the Cincinnati Bengals offense while also feeling more urgency to fight poverty and hunger in the region where he grew up.`\
+https://nytimes.com/reuters/2020/07/09/sports/football/09reuters-football-nfl-burrow.html?searchResultPosition=1
+
+**German Ministers Decline Washington G7 Summit Invite: Der Spiegel**\
+`Germany's Finance and Foreign Ministers declined an invitation to take part in a Washington gathering of ministers from the G7 group of large industrial companies, Der Spiegel magazine reported on Thursday.`\
+https://nytimes.com/reuters/2020/07/09/world/europe/09reuters-g7-germany-trump.html?searchResultPosition=2
+
+**Justices Rule Swath of Oklahoma Remains Tribal Reservation**\
+`The Supreme Court ruled Thursday that a large chunk of eastern Oklahoma remains an American Indian reservation, a decision that state and federal officials have warned could throw Oklahoma into chaos.`\
+https://nytimes.com/aponline/2020/07/09/us/politics/ap-us-supreme-court-indian-country.html?searchResultPosition=3
+
+**Trump Administration Could Allow Families to Use U.S. Education Funds Elsewhere, DeVos Says**\
+`The Trump administration will not cut federal education spending but could allow families to use funds elsewhere if their school does not open amid the coronavirus pandemic, the U.S. education secretary said on Thursday, a day after Trump threatened to cut funding.`\
+https://nytimes.com/reuters/2020/07/09/business/09reuters-health-coronavirus-usa-education.html?searchResultPosition=4
+
+**Pandemic Pushes U.S. Insurers to Avoid Already Strained Senior Care Market**\
+`The coronavirus pandemic has made it even harder for senior-care centers in the United States to find or afford standard liability insurance, with rates soaring by as much as 300%, insurance brokers said.`\
+https://nytimes.com/reuters/2020/07/09/us/09reuters-health-coronavirus-senior-centers.html?searchResultPosition=5
+
+**NASA Scientist Jailed in Turkey for Years Recounts His Ordeal**\
+`Finally home in Houston, Serkan Golge is still dismayed by the “garbage” evidence linking him to a failed coup and says the country is missing a chance to build its democracy.`\
+https://nytimes.com/2020/07/09/world/europe/turkey-erdogan-nasa-scientist-golge.html?searchResultPosition=6
+
+**Philippine Lawmakers Near Vote on Fate of Network That Clashed With Duterte**\
+`Philippine lawmakers concluded a hearing on Thursday on the license renewal of top broadcaster ABS-CBN, paving the way for a critical vote on whether a major media group that angered President Rodrigo Duterte should be allowed back on air.`\
+https://nytimes.com/reuters/2020/07/09/business/09reuters-philippines-media.html?searchResultPosition=7
+
 **Russian Police Raid Homes, Offices of Opposition Activists**\
 `Russian law enforcement agents on Thursday searched the apartments and offices of several opposition activists who campaigned against constitutional amendments that allowed President Vladimir Putin to extend his rule until 2036.`\
-https://nytimes.com/aponline/2020/07/09/world/europe/ap-eu-russia-opposition.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/09/world/europe/ap-eu-russia-opposition.html?searchResultPosition=8
 
 **Apax Mulls Sale of Neuraxpharm to Lock in Pharma Sector Premium: Sources**\
 `Buyout group Apax is preparing the sale of German pharma group Neuraxpharm to try to lock in high valuations in the healthcare sector, fuelled by the coronavirus pandemic, sources familiar with the matter said.`\
-https://nytimes.com/reuters/2020/07/09/business/09reuters-neuraxpharm-sale.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/09/business/09reuters-neuraxpharm-sale.html?searchResultPosition=9
 
 **Nigeria Drops Plan for Some Pupils to Return to School Amid COVID-19 Concerns**\
 `Nigeria has dropped a plan to allow some pupils to return to school because of a continued increase in the number of COVID-19 infections, its education minister said.`\
-https://nytimes.com/reuters/2020/07/09/world/africa/09reuters-health-coronavirus-nigeria-education.html?searchResultPosition=3
-
-**EU Urges More G20 Cooperation on Monetary, Fiscal Policy Against COVID-19 Crisis**\
-`Global powers should cooperate better on monetary and fiscal policy to tackle the COVID-19 economic crisis, European Union finance ministers and central bankers will tell their G20 counterparts at a meeting next week.`\
-https://nytimes.com/reuters/2020/07/09/world/09reuters-eu-economy-g20.html?searchResultPosition=4
-
-**Colombian Siblings Launch Market for Amazon Farmers in Need**\
-`The luscious fruits of the Amazon jungle still grow, undeterred by the raging pandemic. `\
-https://nytimes.com/aponline/2020/07/09/us/ap-virus-outbreak-one-good-thing-amazon-fruits.html?searchResultPosition=5
-
-**EU Says 'Significant Divergences' Remain in Brexit Talks**\
-`EU and U.K. negotiators have yet to find a way to overcome “significant divergences" in their attempt to seal a post-Brexit compromise, a spokesman for the European Union's executive arm said on Thursday. `\
-https://nytimes.com/aponline/2020/07/09/world/europe/ap-eu-brexit.html?searchResultPosition=6
-
-**‘Maybe I Shouldn’t Have Come’: U.S. Visa Changes Leave Students in Limbo**\
-`The return to studying at an American institution has been thrown into question for an estimated one million international students.`\
-https://nytimes.com/2020/07/09/world/international-students-visa-reaction.html?searchResultPosition=7
-
-**The Dance on Camera Festival, When Dance Is Only on Camera**\
-`Many dance films of recent months have been films by necessity, but the ones in this festival are films by design, for better and worse.`\
-https://nytimes.com/2020/07/09/arts/dance/the-dance-on-camera-festival.html?searchResultPosition=8
-
-**Exit Arias: What Opera Can Teach Us About Dying**\
-`In opera, death is an art — one that might light the way to a more mindful conversation about the end of life.`\
-https://nytimes.com/2020/07/09/arts/music/opera-dying.html?searchResultPosition=9
-
-**Carl Reiner, Perfect**\
-`The director and funnyman taught Steve Martin about film and comedy, but it’s Reiner’s advice on a completely different subject that he cherishes.`\
-https://nytimes.com/2020/07/09/movies/steve-martin-carl-reiner.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/09/world/africa/09reuters-health-coronavirus-nigeria-education.html?searchResultPosition=10
 
