@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/07/09/us/09reuters-health-coronavirus-usa-tulsa
 `The White House CEO dinner on Wednesday evening with Mexican President Andres Manuel Lopez Obrador and his delegation had some notable absences among corporate invitees - one because of a positive coronavirus test.`\
 https://nytimes.com/reuters/2020/07/09/business/09reuters-usa-mexico-trump-dinner.html?searchResultPosition=5
 
-**Australia Halts Hong Kong Extradition Agreement and Expands Visa Program**\
-`Prime Minister Scott Morrison said visas for Hong Kongers already in Australia would be extended by five years, and suggested businesses should move from the territory to his country.`\
+**Australia Halts Hong Kong Extradition Agreement and Extends Visas**\
+`Prime Minister Scott Morrison said visas for Hong Kongers already in Australia would be lengthened by five years, and suggested businesses should move from the city to his country.`\
 https://nytimes.com/2020/07/09/world/australia/hong-kong-extradition-visas-china.html?searchResultPosition=6
 
 **'Champion Athlete, Champion Bloke': Australia Pays Pullin Tribute**\
@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/07/09/business/09reuters-ford-china.html?search
 `The mob of over 150 people who forcefully took Muhammad Yunus’ cadaver from a hospital in eastern Indonesia thought it was impossible that the 49-year-old Islamic preacher could have died from the coronavirus.`\
 https://nytimes.com/aponline/2020/07/09/world/asia/ap-as-virus-outbreak-indonesia-burial-rituals.html?searchResultPosition=9
 
-**Tesla Very Close to Level-5 Autonomous Driving Technology, Musk Says**\
-`U.S. electric vehicle maker Tesla Inc is "very close" to Level-5 autonomous driving technology, its chief executive, Elon Musk, said on Thursday.`\
+**Tesla 'Very Close' to Level 5 Autonomous Driving Technology, Musk Says**\
+`U.S. electric vehicle maker Tesla Inc is "very close" to achieving level 5 autonomous driving technology, Chief Executive Elon Musk said on Thursday, referring to the capability to navigate roads without any driver input.`\
 https://nytimes.com/reuters/2020/07/09/business/09reuters-tesla-autonomous.html?searchResultPosition=10
 
