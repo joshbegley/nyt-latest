@@ -1,6 +1,6 @@
 **Used Clothes Ban May Crimp Kenyan Style. It May Also Lift Local Design.**\
 `Kenya has halted imports of secondhand clothes to prevent the spread of the coronavirus. The move limits fashion selection, but opens doors for the country’s designers and manufacturers.`\
-https://nytimes.com/2020/07/09/world/africa/kenya-secondhand-cothes-ban-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2020/07/09/world/africa/kenya-secondhand-clothes-ban-coronavirus.html?searchResultPosition=1
 
 **As N.B.A. Forges Ahead, LeBron James Is ‘Ready for This Moment’**\
 `Much has changed around the league since it shut down in March. But James’s focus on winning has not wavered, his Lakers teammates say, with a shot at a title.`\
