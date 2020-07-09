@@ -1,40 +1,40 @@
-**Mystics' Delle Donne Awaiting Risk Assessment**\
-`The WNBA's Most Valuable Player Elena Delle Donne says she is awaiting a risk assessment from a medical panel after not travelling with the Washington Mystics to the league's bio-secure bubble before the season's proposed start this month.`\
-https://nytimes.com/reuters/2020/07/09/sports/basketball/09reuters-basketball-wnba.html?searchResultPosition=1
+**The Very Sweet Way Sarah Broom’s Mother Showed Her Love With Books**\
+`“My mother used to buy me any and every book with the word ‘Sarah’ in the title.”`\
+https://nytimes.com/2020/07/09/books/review/sarah-broom-by-the-book-interview.html?searchResultPosition=1
 
-**Federer Saw Rival Nadal 'Grow, Right in Front of My Eyes'**\
-`Roger Federer and Rafael Nadal own an unforgettable collection of on-court contests — including nine Grand Slam finals — and a healthy store of mutual off-court respect for each other.`\
-https://nytimes.com/aponline/2020/07/09/sports/tennis/ap-ten-wimbledon-top-rivalries-men.html?searchResultPosition=2
+**Game Time Beer? For M.L.S., Make That a Kickoff Cappuccino**\
+`Bed head, morning breath, fatigue. The 9 a.m. kickoffs for Major League Soccer games restarting this week could be one of the bigger challenges for players taking the field.`\
+https://nytimes.com/2020/07/09/sports/soccer/coronavirus-mls-soccer-return.html?searchResultPosition=2
 
-**EU Court: Diesel Customers Can Sue VW Where They Bought Cars**\
-`The European Union's highest court ruled Thursday that buyers of Volkswagen cars fitted with software installed to cheat diesel emissions tests can sue the automaker in the country where they bought the car rather than seeking damages in Germany.`\
-https://nytimes.com/aponline/2020/07/09/business/ap-eu-europe-volkswagen.html?searchResultPosition=3
+**A Day-by-Day Re-creation of Truman’s Decision to Use Nuclear Weapons**\
+`Chris Wallace’s “Countdown 1945” recounts in gripping detail the rush to develop the atomic bomb and the debate over whether to use it.`\
+https://nytimes.com/2020/07/09/books/review/countdown-1945-chris-wallace-mitch-weiss.html?searchResultPosition=3
 
-**Facial Recognition Company Clearview AI Probed by UK, Australia**\
-`Britain's data watchdog and its Australian counterpart said on Thursday they have opened a joint investigation into the personal information handling practices of facial recognition technology company Clearview AI.`\
-https://nytimes.com/reuters/2020/07/09/technology/09reuters-clearview-ai-investigation.html?searchResultPosition=4
+**With a Monthly Budget of Around $3,000, They Wanted a Duplex With a Yard in Brooklyn. Which of These Homes Would You Choose?**\
+`Tired of living in a building with a dormlike atmosphere, one couple went in search of a more residential setup. Here’s what they found.`\
+https://nytimes.com/interactive/2020/07/09/realestate/09hunt-chang.html?searchResultPosition=4
 
-**Down but Not Out: Berlusconi Could Hold Key to Italian Government's Future**\
-`He is 83 and has lost most of his former support, but Italy's four-times prime minister Silvio Berlusconi is manoeuvring to put his centre-right Forza Italia party back into government and could make his move as early as September, sources say.`\
-https://nytimes.com/reuters/2020/07/09/world/europe/09reuters-italy-politics-berlusconi.html?searchResultPosition=5
+**Elin Hilderbrand Will See You Now, From a Safe Distance**\
+`Coronavirus can’t keep this prolific author from her fans.`\
+https://nytimes.com/2020/07/09/books/review/28-summers-elin-hilderbrand.html?searchResultPosition=5
 
-**Regional Governor in Russia Arrested on Murder Charges**\
-`A provincial governor in Russia's far east has been arrested on charges of involvement in multiple murders, officials said Thursday.`\
-https://nytimes.com/aponline/2020/07/09/world/europe/ap-eu-russia-governor-arrested.html?searchResultPosition=6
+**Would You Like to Come Over for Dinner … in 10 Years?**\
+`Because that’s when I think I may be ready to entertain again.`\
+https://nytimes.com/2020/07/09/style/coronavirus-backyard-entertaining.html?searchResultPosition=6
 
-**South Korean Triathlete’s Suicide Exposes Team’s Culture of Abuse**\
-`After Choi Suk-hyeon’s death, her family released secret audio recordings that depict the physical and psychological abuse she appeared to suffer at the hands of her team’s doctor and coach.`\
-https://nytimes.com/2020/07/09/world/asia/korea-triathlete-suicide.html?searchResultPosition=7
+**Air Pollution Takes a Global Toll on Heart Health**\
+`Researchers calculate that 14 percent of all cardiovascular events and 8 percent of cardiovascular deaths are attributable to air pollution.`\
+https://nytimes.com/2020/07/09/well/live/air-pollution-takes-a-global-toll-on-heart-health.html?searchResultPosition=7
 
-**Meghan Seeks to Stop Publisher Naming Friends in UK Legal Battle**\
-`Meghan, the Duchess of Sussex, on Thursday sought a court order to stop the publisher of the Mail on Sunday from publicising the names of five friends who could be witnesses in an ongoing legal dispute, according to a court filing.    `\
-https://nytimes.com/reuters/2020/07/09/arts/09reuters-britain-royals-meghan.html?searchResultPosition=8
+**How Everclear Became a Pandemic Favorite**\
+`Long the stuff of fraternity parties, the 190-proof grain alcohol wants to go from D.I.Y. germ killer to cocktail ingredient.`\
+https://nytimes.com/2020/07/09/style/how-everclear-became-a-pandemic-favorite.html?searchResultPosition=8
 
-**Powerful Euro Single Currency Bloc to Pick New President**\
-`The powerful group of countries using Europe’s single currency will choose a new president on Thursday, with three candidates vying for the challenging task of leading the 19-nation bloc out of the deepest economic recession in decades.`\
-https://nytimes.com/aponline/2020/07/09/business/ap-eu-eurozone-leadership.html?searchResultPosition=9
+**A Zombie Novel for Our Virus-Stricken Times**\
+`Paul Tremblay’s “Survivor Song” follows a pregnant woman navigating an anarchic Massachusetts in the midst of an epidemic.`\
+https://nytimes.com/2020/07/09/books/review/paul-tremblay-survivor-song.html?searchResultPosition=9
 
-**Sacred Sites Blast Exposes Australia's Laws Skewed to Mining**\
-`When mining giant Rio Tinto blew up two ancient caves in Western Australia's iron-ore rich Pilbara with state approval, the destruction was met with anger from indigenous landowners for whom the sites were of deep cultural and sacred importance.`\
-https://nytimes.com/reuters/2020/07/09/world/asia/09reuters-australia-mining-indigenous-insight.html?searchResultPosition=10
+**The True Story of My Marriage to a Pot**\
+`How did it come to this? My stars were not aligned.`\
+https://nytimes.com/2020/07/09/style/manglik-pot-marriage.html?searchResultPosition=10
 
