@@ -1,40 +1,40 @@
-**3 Turkish Military Police Killed in Fireworks Truck Blast**\
-`A truck carrying fireworks exploded in northwestern Turkey on Thursday, killing three military police officers and wounded six others, officials said.`\
-https://nytimes.com/aponline/2020/07/09/world/europe/ap-eu-turkey-fireworks.html?searchResultPosition=1
+**‘The Tobacconist’ Review: Playing Dress-Up in 1930s Vienna**\
+`A coming-of-age drama with attractive cinematography and production design, but no political or philosophical weight.`\
+https://nytimes.com/2020/07/09/movies/the-tobacconist-review.html?searchResultPosition=1
 
-**Japan, Australian Leaders Share Concern Over East, South China Seas**\
-`Japanese Prime Minister Shinzo Abe and his Australian counterpart, Scott Morrison, shared serious concerns over various moves in the East and South China Seas in their video meeting on Thursday, a Japanese government spokesman said.`\
-https://nytimes.com/reuters/2020/07/09/world/asia/09reuters-australia-japan.html?searchResultPosition=2
+**Once You’re Out of the Market, It’s Tricky Getting Back In**\
+`Abandoning stocks when they are sinking may be tempting. But how and when will you get back on board?`\
+https://nytimes.com/2020/07/09/business/how-return-stock-market.html?searchResultPosition=2
 
-**Seoul Mayor Reported Missing, Police Searching**\
-`South Korean police said on Thursday they are searching for the mayor of Seoul, Park Won-soon, after his daughter reported him missing.`\
-https://nytimes.com/reuters/2020/07/09/world/asia/09reuters-southkorea-politics.html?searchResultPosition=3
+**‘Tito’ Review: An Oddball Character Study**\
+`The filmmaker and actor Grace Glowicki steps into a gender-bending role in an experimental indie that muddles its moral lesson on sexual predation.`\
+https://nytimes.com/2020/07/09/movies/tito-review.html?searchResultPosition=3
 
-**Police Search for Seoul Mayor, After His Daughter Reports Him Missing**\
-`Mayor Park Won-soon is said to have left a cryptic, “will-like message” before leaving home on Thursday.`\
-https://nytimes.com/2020/07/09/world/asia/seoul-mayor-missing.html?searchResultPosition=4
+**‘Bloody Nose, Empty Pockets’ Review: Over Drinks, a Blurry Line Between Truth and Fiction**\
+`Bill and Turner Ross’s portrayal of a group of barflies tests the boundaries of documentary filmmaking.`\
+https://nytimes.com/2020/07/09/movies/bloody-nose-empty-pockets-review.html?searchResultPosition=4
 
-**Three Killed Disposing Explosives From Turkish Firework Factory**\
-`Three Turkish security force members were killed on Thursday when a truck exploded in the northwest of the country as it carried explosives collected from a fireworks factory that blew up last week, the Interior Ministry said.`\
-https://nytimes.com/reuters/2020/07/09/world/europe/09reuters-turkey-blast.html?searchResultPosition=5
+**‘Widow of Silence’ Review: Burden of Proof**\
+`Praveen Morchhale’s newest drama explores a Kashmiri woman’s desperate quest for freedom and agency.`\
+https://nytimes.com/2020/07/09/movies/widow-of-silence-review.html?searchResultPosition=5
 
-**Restaurant Chain Ootoya Joins Japan's Growing List of Hostile Takeover Targets**\
-`Japanese casual dining chain Ootoya Holdings rebuffed a takeover move by restaurant group Colowide Co announced on Thursday, becoming the latest in a growing list of hostile takeover targets in the country.`\
-https://nytimes.com/reuters/2020/07/09/world/asia/09reuters-japan-ootoya.html?searchResultPosition=6
+**‘Olympia’ Review: When the Moon Hits a Documentarian’s Eye**\
+`In his fawning documentary about Olympia Dukakis, Harry Mavromichalis doesn’t distinguish the disarming from the banal.`\
+https://nytimes.com/2020/07/09/movies/olympia-review.html?searchResultPosition=6
 
-**Actor Depp Denies Attacking Ex-Wife During Detox on Private Island**\
-`Actor Johnny Depp denied attacking his ex-wife while undergoing detox to ease himself off prescription drugs on his private island in the Bahamas, London's High Court heard on Thursday.`\
-https://nytimes.com/reuters/2020/07/09/arts/09reuters-britain-people-depp.html?searchResultPosition=7
+**‘Guest of Honour’ Review: Burying a Father, Unburying Secrets**\
+`Atom Egoyan indulges his obsessions in his newest drama, but the core revelations are pretty silly.`\
+https://nytimes.com/2020/07/09/movies/guest-of-honour-review.html?searchResultPosition=7
 
-**Zambian Health Minister's Corruption Trial Delayed a Week**\
-`The trial of Zambia's Health Minister Chitalu Chilufya, who was  arrested in June on suspicion of corruption, was postponed by a week on Thursday.`\
-https://nytimes.com/reuters/2020/07/09/world/africa/09reuters-zambia-corruption.html?searchResultPosition=8
+**‘Never Too Late’ Review: The Vietnam Vet as Lovable Codger**\
+`Former soldiers known as “The Chain Breakers” take on a romantic mission involving nursing homes in this movie from Mark Lamprell.`\
+https://nytimes.com/2020/07/09/movies/never-too-late-review.html?searchResultPosition=8
 
-**Iran's Coronavirus Cases Exceed 250,000, Says Health Ministry**\
-`Iran's total number of cases for the coronavirus has reached 250,458, the Health Ministry said on Thursday, adding that 221 people had died in the past 24 hours taking the toll to 12,305. `\
-https://nytimes.com/reuters/2020/07/09/world/middleeast/09reuters-health-coronavirus-iran.html?searchResultPosition=9
+**‘Relic’ Review: A Haunted House and a Clouded Mind**\
+`Natalie Erika James’s arresting debut deftly merges a classic horror genre with an allegory of dementia.`\
+https://nytimes.com/2020/07/09/movies/relic-review-a-haunted-house-and-a-clouded-mind.html?searchResultPosition=9
 
-**German Prosecutors Probe Wirecard for Money Laundering**\
-`German state prosecutors are investigating Wirecard for suspected money laundering, a spokeswoman for the Munich prosecutor's office said on Thursday.`\
-https://nytimes.com/reuters/2020/07/09/business/09reuters-wirecard-accounts-probe.html?searchResultPosition=10
+**‘We Are Little Zombies’ Review: Rocking Away the Pain**\
+`Wry humor, absurd dialogue and unflagging energy propel this dazzling, manic debut from Makoto Nagahisa.`\
+https://nytimes.com/2020/07/09/movies/we-are-little-zombies-review.html?searchResultPosition=10
 
