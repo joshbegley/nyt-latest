@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/07/09/business/09reuters-health-coronavirus-gol
 https://nytimes.com/aponline/2020/07/09/business/ap-off-the-charts-earnings-preview.html?searchResultPosition=6
 
 **Northern Right Whales Are on the Brink, and Trump Could Be Their Last Hope**\
-`The species is being declared critically endangered on Thursday, with fewer than 450 left.`\
+`The species was declared critically endangered on Thursday, with fewer than 450 left.`\
 https://nytimes.com/2020/07/09/climate/trump-north-atlantic-right-whale.html?searchResultPosition=7
 
 **City of London Seeks Confidence in Transport to Refill Offices**\
