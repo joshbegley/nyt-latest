@@ -1,40 +1,40 @@
+**Hiring Outlook Remains Dim, With ‘Scarring in the Economy’**\
+`As unemployment claims keep pouring in, new job postings are lacking, and an end to some benefits is approaching.`\
+https://nytimes.com/2020/07/09/business/economy/unemployment-claims-coronavirus.html?searchResultPosition=1
+
+**New York Tattoo Parlors Reopen, COVID-19 Face Masks Required**\
+`It's legal once again to go to a tattoo parlor in New York and get ink just about anywhere on your body - except under the face mask still required as the city reopens after once being the epicenter of the U.S. coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/07/09/us/09reuters-health-coronavirus-new-york-tattoos.html?searchResultPosition=2
+
+**Officers in Deadly Breonna Taylor Raid Thought She Was Alone**\
+`Louisville police officers who fatally shot Breonna Taylor while serving a warrant were told she should be home alone because the main target of the narcotics investigation was elsewhere, according to an interview with one of the detectives who served the warrant.`\
+https://nytimes.com/aponline/2020/07/09/us/ap-us-racial-injustice-kentucky.html?searchResultPosition=3
+
+**Closing Schools 'Greater Public Health Risk' Than Reopening, Says Top U.S. Health Official**\
+`Keeping schools closed in the coming academic year is a greater risk to children's health than reopening them, even amid the COVID-19 pandemic, Robert Redfield, director of the U.S. Centers for Disease Control and  Prevention said on Thursday.`\
+https://nytimes.com/reuters/2020/07/09/us/09reuters-health-coronavirus-schools.html?searchResultPosition=4
+
+**Khartoum Airport Partially Opens to Flights From Egypt, Turkey and UAE**\
+`Sudan's civil aviation authority has opened Khartoum international airport partially for flights from Egypt, Turkey and United Arab Emirates, the state news agency reported in a statement on Thursday.`\
+https://nytimes.com/reuters/2020/07/09/world/middleeast/09reuters-health-coronavirus-khartoum-airport.html?searchResultPosition=5
+
+**New Extra-Inning Format Stirs Debate as Teams Plot Strategy**\
+`Baseball has its answer to penalty kicks, overtimes and shootouts, and it figures to stir just as much debate as all those other forms of tiebreakers. `\
+https://nytimes.com/aponline/2020/07/09/sports/baseball/ap-bbo-extra-inning-rule.html?searchResultPosition=6
+
 **From Burr to Clinton, Supreme Court Takes History Tour in Trump Wealth Case**\
 `Supreme Court Chief Justice John Roberts drew on over 200 years of legal precedent to conclude on Thursday that a New York prosecutor can obtain U.S. President Donald Trump's financial records. `\
-https://nytimes.com/reuters/2020/07/09/us/politics/09reuters-usa-court-trump-text.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/09/us/politics/09reuters-usa-court-trump-text.html?searchResultPosition=7
 
 **Tesla Appears Poised to Electrify S&P 500**\
 `Wall Street's most controversial stock may be about to go mainstream. `\
-https://nytimes.com/reuters/2020/07/09/business/09reuters-tesla-stocks-s-p-500-analysis.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/09/business/09reuters-tesla-stocks-s-p-500-analysis.html?searchResultPosition=8
 
 **Umpires Union Steps Back From West's Opinion on COVID-19**\
 `The Major League Baseball Umpires Association on Thursday distanced itself from comments made by veteran umpire Joe West in regard to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/07/09/sports/baseball/09reuters-baseball-mlb-mlbua-west.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/09/sports/baseball/09reuters-baseball-mlb-mlbua-west.html?searchResultPosition=9
 
 **Bronx Zoo, NYC Aquarium to Open July 24 After Virus Shutdown**\
 `The Bronx Zoo and New York City's aquarium and three other zoos will reopen this month after being closed since March 16 because of the coronavirus outbreak, zoo officials said Thursday.`\
-https://nytimes.com/aponline/2020/07/09/business/ap-us-virus-outbreak-new-york.html?searchResultPosition=4
-
-**Judge Strikes Down Indiana Abortion Complications Report Law**\
-`A federal judge has struck down an Indiana law that aimed to require reports from medical providers to the state if they treat women for complications arising from abortions.`\
-https://nytimes.com/aponline/2020/07/09/us/ap-us-abortion-indiana-1st-ld-writethru.html?searchResultPosition=5
-
-**Netflix Renews ‘The Crown’ for a Sixth Season After All**\
-`In January, the streaming service said the series would end after its fifth season. But it became clear that an additional season was needed to “do justice” to the story, the show’s creator said.`\
-https://nytimes.com/2020/07/09/arts/television/the-crown-season-6.html?searchResultPosition=6
-
-**Supreme Court: Letting Employers Refuse to Cover Contraceptives**\
-`Readers cite religious freedom and the anti-vaccine movement in discussing the Supreme Court decision. Also: Colonel Vindman’s retirement; better pay for home health workers; trophy hunting.`\
-https://nytimes.com/2020/07/09/opinion/letters/supreme-court-contraception.html?searchResultPosition=7
-
-**So Y’all Finally Get It**\
-`America just won’t let us rest.`\
-https://nytimes.com/2020/07/09/podcasts/still-processing-black-lives-matter.html?searchResultPosition=8
-
-**Soap Opera's Kisses Outwit Virus With Tests, Spouses, Dolls**\
-`Hollywood’s technical expertise can awe us with monsters and imaginary worlds. But is it capable of delivering a simple screen kiss during a pandemic marked by masks and social distancing?`\
-https://nytimes.com/aponline/2020/07/09/us/ap-us-virus-outbreak-tv-getting-close.html?searchResultPosition=9
-
-**US Supreme Court Asked to Lift Stay on Florida Felon Voting**\
-`Voting rights advocates asked the U.S. Supreme Court to lift a stay on a federal judge's ruling that allowed Florida felons to regain the right to vote, regardless of unpaid fines and other financial obligations.`\
-https://nytimes.com/aponline/2020/07/09/us/ap-us-felons-voting-florida.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/09/business/ap-us-virus-outbreak-new-york.html?searchResultPosition=10
 
