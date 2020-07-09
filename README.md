@@ -1,40 +1,40 @@
+**German Intel Warns Against Giving Data to Chinese Tech Firms**\
+`Germany's domestic intelligence agency is warning consumers that personal data they provide to Chinese payment companies or other tech firms could end up in the hands of China's government.`\
+https://nytimes.com/aponline/2020/07/09/world/europe/ap-eu-germany-china.html?searchResultPosition=1
+
+**2 Art Gallery Shows to Explore From Home**\
+`Galleries and museums are getting creative about presenting work online during the coronavirus crisis. Here are two shows worth viewing virtually.`\
+https://nytimes.com/2020/07/09/arts/design/virtual-art-shows.html?searchResultPosition=2
+
+**CDC: No Rewriting of Guidelines for Reopening Schools**\
+`Despite President Donald Trump's sharp criticism, federal guidelines for reopening schools are not being revised, the head of the Centers for Disease Control and Prevention said Thursday.`\
+https://nytimes.com/aponline/2020/07/09/us/politics/ap-us-virus-outbreak-reopening-schools.html?searchResultPosition=3
+
+**Virus Forces Catering Platform to Find New Audience, Purpose**\
+`When it launched in 2017, the catering tech platform HUNGRY had one customer in mind: well-heeled office workers. `\
+https://nytimes.com/aponline/2020/07/09/business/bc-us-virus-outbreak-food-tech-pivot.html?searchResultPosition=4
+
+**UK, Australia Investigate Clearview Facial Recognition Firm**\
+`Privacy watchdogs in Britain and Australia have opened a joint investigation into facial recognition company Clearview AI over its use of personal data “scraped” off social media platforms and other websites.`\
+https://nytimes.com/aponline/2020/07/09/business/bc-eu-britain-facial-recognition.html?searchResultPosition=5
+
+**U.S. Has Not Yet Decided How It Will Retaliate to France Digital Tax: Mnuchin**\
+`The United States has not yet finalized a decision on how it will respond to France's digital tax, U.S. Treasury Secretary Steven Mnuchin said in an interview with CNBC on Thursday.`\
+https://nytimes.com/reuters/2020/07/09/technology/09reuters-usa-trade-digital-france.html?searchResultPosition=6
+
+**Exclusive: Biden to Review Trump Decision to Cut Troops in Germany if Elected**\
+`Democrat Joe Biden will review a decision by Republican President Donald Trump to withdraw thousands of troops from Germany if he is elected president, a top aide to the candidate told Reuters.`\
+https://nytimes.com/reuters/2020/07/09/us/politics/09reuters-usa-election-biden-germany-exclusive.html?searchResultPosition=7
+
 **Rise in U.S. Coronavirus Cases Gives Delta Pause Over New Flights, CEO Says**\
 `Delta Air Lines is cautious about adding more flights to its schedule due to spikes in coronavirus cases in some parts of the United States, Chief Executive Ed Bastian said in an employee memo on Thursday.`\
-https://nytimes.com/reuters/2020/07/09/business/09reuters-health-coronavirus-delta.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/09/business/09reuters-health-coronavirus-delta.html?searchResultPosition=8
 
 **Advisor's Killing Deepens Iraqi Leader's Face-Off With Militias**\
 `Iraqi Prime Minister Mustafa al-Kadhimi talked tough after the killing of a high-profile analyst and government advisor, pledging to hunt down his assailants and curb the actions of armed groups.`\
-https://nytimes.com/reuters/2020/07/09/world/middleeast/09reuters-iraq-security-kadhimi.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/09/world/middleeast/09reuters-iraq-security-kadhimi.html?searchResultPosition=9
 
 **Golf-Woods Ready to Return, Commits to Memorial**\
 `Tiger Woods announced on Thursday that he will compete at next week's Memorial Tournament in Dublin, Ohio, the 15-times major champion's first PGA Tour event in five months.`\
-https://nytimes.com/reuters/2020/07/09/sports/golf/09reuters-golf-woods.html?searchResultPosition=3
-
-**CBS Picks Up Champions League Rights After Turner Opts Out**\
-`American broadcaster CBS will get an early start on its Champions League deal, showing games next month when the pandemic-delayed competition resumes.`\
-https://nytimes.com/aponline/2020/07/09/sports/soccer/ap-soc-champions-league-cbs.html?searchResultPosition=4
-
-**More Grim Job Losses as U.S. Hits Record High on New COVID Cases**\
-`As the number of new coronavirus cases in the United States rose to a single-day record, fresh government data on Thursday showed another 1.3 million Americans filed for jobless benefits, highlighting the pandemic's devastating impact on the economy. `\
-https://nytimes.com/reuters/2020/07/09/us/09reuters-health-coronavirus-usa.html?searchResultPosition=5
-
-**China Should Meet With United States on Arms Control, State Department Says**\
-`The U.S. State Department on Thursday said the United States welcomed China's commitment to engage in arms control negotiations and said that "prudent next steps" should include face-to-face meetings between U.S. and Chinese officials.`\
-https://nytimes.com/reuters/2020/07/09/world/europe/09reuters-usa-china-armscontrol.html?searchResultPosition=6
-
-**Pompeo Says U.S. Continuing to Work to Establish Dialogue With North Korea**\
-`U.S. Secretary of State Mike Pompeo said on Thursday that Washington is continuing to work to establish dialogue with North Korea and is very hopeful the conversation can continue, though he declined to comment on timing or specifics.`\
-https://nytimes.com/reuters/2020/07/09/world/asia/09reuters-usa-southkorea-northkorea-pompeo.html?searchResultPosition=7
-
-**Wells Fargo Preparing to Cut Thousands of Jobs: Bloomberg Law**\
-`Wells Fargo & Co is preparing to cut thousands of jobs starting later this year, Bloomberg Law reported https://news.bloomberglaw.com/banking-law/wells-fargo-is-readying-thousands-of-job-cuts-to-start-this-year on Thursday, citing people familiar with the matter.`\
-https://nytimes.com/reuters/2020/07/09/business/09reuters-wells-fargo-layoffs.html?searchResultPosition=8
-
-**Two Swedes Jailed for Bombing Danish Tax-Office**\
-`Two Swedes were found guilty of bombing the Danish tax agency last year by a court in Copenhagen on Thursday and have been sentenced to four and five years in prison respectively.`\
-https://nytimes.com/reuters/2020/07/09/world/europe/09reuters-denmark-security-sweden.html?searchResultPosition=9
-
-**American Airlines Delays HK Flights Over New COVID-19 Testing Rules**\
-`American Airlines Group Inc said on Thursday it delayed flights to Hong Kong, a day after the city introduced mandatory virus tests for all arriving crew members.`\
-https://nytimes.com/reuters/2020/07/09/business/09reuters-health-coronavirus-airlines-hongkong.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/09/sports/golf/09reuters-golf-woods.html?searchResultPosition=10
 
