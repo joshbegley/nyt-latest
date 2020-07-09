@@ -1,40 +1,40 @@
+**Schools or Bars? Opening Classrooms May Mean Hard Choices**\
+`President Donald Trump insists that schools reopen this fall. Many parents, educators, doctors and economists want the same thing. But getting children back to school safely could mean keeping high-risk spots like bars and gyms closed.`\
+https://nytimes.com/aponline/2020/07/09/us/ap-us-virus-outbreak.html?searchResultPosition=1
+
+**Supreme Court Expected to Rule on Trump Tax Records**\
+`The Supreme Court is expected to rule on whether Congress and the Manhattan district attorney can see President Donald Trump's taxes and other financial records that the president has fought hard to keep private.`\
+https://nytimes.com/aponline/2020/07/09/business/ap-us-supreme-court-trump-taxes.html?searchResultPosition=2
+
+**Bain Capital Extends Deadline for Japan's Nichiigakkan Bid for Second Time**\
+`U.S. buyout fund Bain Capital said on Thursday it had extended its deadline for a $1 billion buyout offer for Japanese nursing home operator Nichiigakkan Co for a second time. `\
+https://nytimes.com/reuters/2020/07/09/business/09reuters-nichii-gakkan-buyout-bain-capital.html?searchResultPosition=3
+
+**Pentagon Leaders Face Grilling on Use of Military in Unrest**\
+`The Pentagon's top leaders are going before Congress for the first time in months to face a long list of controversies, including their differences with President Donald Trump over the handling of protests near the White House last month during unrest triggered by the killing of George Floyd in police hands.`\
+https://nytimes.com/aponline/2020/07/09/us/politics/ap-us-congress-pentagon-leaders.html?searchResultPosition=4
+
+**House to Interview Fired NY Prosecutor Probing Trump Allies**\
+`The ousted U.S. attorney who was leading investigations into President Donald Trump's allies is set to appear before the House Judiciary Committee for a private interview as the panel deepens its probe of politicization at the Justice Department.`\
+https://nytimes.com/aponline/2020/07/09/us/politics/ap-us-manhattan-federal-prosecutor-congress.html?searchResultPosition=5
+
+**Australian City Wakes to Another Lockdown as More State Borders Close**\
+`Australia's second most populous city began a six-week lockdown on Thursday following a spike in new coronavirus cases, as states around the country tightened internal borders to prevent a second wave sweeping the country.`\
+https://nytimes.com/reuters/2020/07/09/world/asia/09reuters-health-coronavirus-australia.html?searchResultPosition=6
+
 **Bolsonaro Now the 'Poster Boy' for Dubious COVID Treatment**\
 `After months of touting an unproven anti-malaria drug as a treatment for the new coronavirus, Brazilian President Jair Bolsonaro is turning himself into a test case live before millions of people as he swallows hydroxychloroquine pills on social media and encourages others to do the same.`\
-https://nytimes.com/aponline/2020/07/09/world/americas/ap-lt-virus-outbreak-bolsonaro.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/09/world/americas/ap-lt-virus-outbreak-bolsonaro.html?searchResultPosition=7
 
 **Latino Group Launches $10M Campaign to Boost Voter Turnout**\
 `A national organization is announcing a $10 million campaign to turn out Hispanic voters in several of this year's battleground states.`\
-https://nytimes.com/aponline/2020/07/09/us/ap-us-election-2020-latino-voters.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/09/us/ap-us-election-2020-latino-voters.html?searchResultPosition=8
 
 **Today in History**\
 `Today in History `\
-https://nytimes.com/aponline/2020/07/09/us/ap-today-in-history-1st-ld-writethru.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/09/us/ap-today-in-history-1st-ld-writethru.html?searchResultPosition=9
 
 **New York Rents Fall as Vacancies Rise**\
 `Thousands of New York renters left the city because of the coronavirus, and rents have finally started to go down.`\
-https://nytimes.com/2020/07/09/realestate/new-york-rents-fall-as-vacancies-rise.html?searchResultPosition=4
-
-**Westchester Home Sales Drop to Recession-Era Lows**\
-`Sales volume declined across New York’s northern suburbs in the second quarter, although there was an uptick in activity in June.`\
-https://nytimes.com/2020/07/09/realestate/westchester-home-sales-drop-to-recession-era-lows.html?searchResultPosition=5
-
-**Welcome to Paris Fashion Week Online**\
-`From Paris, it’s fashion, directly to your eyeballs. JW Anderson. Prada. Ferragamo. Gucci. Zegna. We’ll be here all week.`\
-https://nytimes.com/2020/07/09/fashion/paris-mens-fashion-week-videos.html?searchResultPosition=6
-
-**Australian PM Suspends Extradition Treaty, Extends Visas for Hong Kong Citizens**\
-`Australian Prime Minister Scott Morrison on Thursday announced measures to assist Hong Kong citizens start a new life in Australia, including extending visas by five years, after Beijing imposed a new security law on the Asian financial hub.`\
-https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-hongkong-protests-australia.html?searchResultPosition=7
-
-**Senior China Diplomat Urges 'Positive Energy' in Ties With United States**\
-`Senior Chinese diplomat Wang Yi said on Thursday that China and U.S. relations face the most serious challenges since diplomatic ties were established in 1979 but the two countries can return to the right track. `\
-https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-china-usa.html?searchResultPosition=8
-
-**Australia Ends Hong Kong Extradition Treaty, Extends Visas**\
-`Australia’s prime minister says his country has suspended its extradition treaty with Hong Kong and extended visas for Hong Kong residents in response to China’s imposition of a tough national security law on the semi-autonomous territory.`\
-https://nytimes.com/aponline/2020/07/08/world/asia/ap-as-australia-hong-kong-.html?searchResultPosition=9
-
-**Aboriginal Groups Call for Rio to Lose Human Rights Status After Caves Blast**\
-`Aboriginal and human rights groups on Thursday called for miner Rio Tinto Ltd to be stripped of its status as a human rights leader following its destruction of an Aboriginal sacred site showing evidence of 46,000 years of human habitation.`\
-https://nytimes.com/reuters/2020/07/08/business/08reuters-australia-mining-indigenous.html?searchResultPosition=10
+https://nytimes.com/2020/07/09/realestate/new-york-rents-fall-as-vacancies-rise.html?searchResultPosition=10
 
