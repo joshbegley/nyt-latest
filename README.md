@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/07/08/sports/baseball/08reuters-baseball-mlb-sd
 `Indonesia’s resort island of Bali reopened after a three-month virus lockdown Thursday, allowing local people and stranded foreign tourists to resume public activities before foreign arrivals resume in September.`\
 https://nytimes.com/aponline/2020/07/08/business/ap-as-indonesia-bali-reopening.html?searchResultPosition=4
 
-**China's Producer Prices Extend Declines Amid Sluggish Demand**\
-`China's factory gate prices fell for the fifth consecutive month in June but at a slower-than-expected pace, with persistent  deflation in the industrial sector highlighting the lasting economic impact of the coronavirus pandemic.`\
+**China's Producer Prices Extend Declines but Recovery Signs Emerge**\
+`China's factory gate prices fell for a fifth straight month in June as the coronavirus pandemic weighed heavily on industrial demand, although signs of a pickup in some parts of the sector suggest a slow economic recovery remains intact.`\
 https://nytimes.com/reuters/2020/07/08/world/asia/08reuters-china-economy-inflation.html?searchResultPosition=5
 
 **Ford's Second-Quarter China Vehicle Sales Rise 3% Year-On-Year to 158,589 Units**\
