@@ -1,4 +1,4 @@
-**AP Explains: Public Won't See Trump's Tax Documents for Now**\
+**AP EXPLAINS: Public Won't See Trump's Tax Documents for Now**\
 `The Supreme Court ruled Thursday in two cases involving access to President Donald Trump’s financial records. The cases were the last to be released of the high court’s term, which dragged into July because of the coronavirus pandemic.`\
 https://nytimes.com/aponline/2020/07/09/business/ap-us-supreme-court-trump-taxes-ap-explains.html?searchResultPosition=1
 
