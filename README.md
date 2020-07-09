@@ -1,40 +1,40 @@
+**Exclusive: Amazon Plans at Least $100 Million to Keep Zoox Talent After $1.3 Billion Deal**\
+`Amazon.com Inc plans to create at least $100 million in stock awards to retain the 900-plus employees of Zoox, the self-driving car startup it offered to buy last month, and can walk away from the deal if large numbers of them turn down job offers from the technology giant.`\
+https://nytimes.com/reuters/2020/07/09/business/09reuters-amazon-com-zoox-exclusive.html?searchResultPosition=1
+
+**Supreme Court Gives NY Prosecutor a Landmark Legal Victory**\
+`The Supreme Court ruled on Thursday that Manhattan District Attorney Cyrus R. Vance, Jr. can obtain President Donald Trump's tax returns for a criminal investigation but sent a second request by Congress for the records back to lower courts.`\
+https://nytimes.com/aponline/2020/07/09/us/politics/ap-us-supreme-court-tax-rulings-qa.html?searchResultPosition=2
+
+**Baltimore Mayor: Columbus Statue Vandals Will Face Justice**\
+`Those who recently toppled a statue of Christopher Columbus and rolled it into Baltimore's Inner Harbor will face justice, the city's mayor said Thursday. `\
+https://nytimes.com/aponline/2020/07/09/us/ap-us-racial-injustice-columbus-statue.html?searchResultPosition=3
+
+**Mexican President Exits Trump Embrace Smiling, Democrats Grumble**\
+`Defying warnings that to seek out Donald Trump was to court disaster, Mexican President Andres Manuel Lopez Obrador instead emerged from their first meeting as a "cherished friend" of his U.S. counterpart, even as some Democrats looked on uneasily.`\
+https://nytimes.com/reuters/2020/07/09/world/americas/09reuters-usa-mexico-lopez-obrador-analysis.html?searchResultPosition=4
+
+**North Korean Leader's Sister Says Another U.S. Summit Not Useful: KCNA**\
+`North Korea’s Kim Yo Jong, the sister of the country's leader, said a summit with U.S. President Donald Trump would only be useful for Washington, but left the door open to more talks, state news agency KCNA said on Friday.`\
+https://nytimes.com/reuters/2020/07/09/world/asia/09reuters-northkorea-usa.html?searchResultPosition=5
+
 **West Virginia Mail Carrier Admits Attempted Election Fraud**\
 `A West Virginia postal carrier pleaded guilty Thursday to altering mail-in requests for absentee voter ballots.`\
-https://nytimes.com/aponline/2020/07/09/us/ap-us-mail-carrier-election-fraud.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/09/us/ap-us-mail-carrier-election-fraud.html?searchResultPosition=6
 
 **Baseball Players Get a Peek at Playing Without Fans**\
 `Baseball players got a sense of what the game will be like without fans in the stands upon returning for workouts last week.`\
-https://nytimes.com/aponline/2020/07/09/sports/baseball/ap-bbo-baseball-rdp.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/09/sports/baseball/ap-bbo-baseball-rdp.html?searchResultPosition=7
 
 **IMF, World Bank Confirm Plans for 'Primarily Virtual' Annual Meetings**\
 `The leaders of the International Monetary Fund and the World Bank on Thursday confirmed that they were preparing to hold their annual meetings in October largely online given the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/07/09/us/09reuters-imf-world-bank-meetings.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/09/us/09reuters-imf-world-bank-meetings.html?searchResultPosition=8
 
 **Report Blames Prosecutor Missteps in Botched NYC Convictions**\
 `Prosecutors withheld evidence, elicited false testimony and made other missteps that contributed to botched convictions for murder and other violent crimes in New York City in the 1980s and 1990s, according to a report released Thursday by the same office that brought the cases in the first place.`\
-https://nytimes.com/aponline/2020/07/09/us/ap-us-convictions-questioned.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/07/09/us/ap-us-convictions-questioned.html?searchResultPosition=9
 
 **The Deadly Delusions of Mad King Donald**\
 `He won’t give up on a failing pandemic strategy.`\
-https://nytimes.com/2020/07/09/opinion/trump-coronavirus.html?searchResultPosition=5
-
-**Five Suspects Arrested in Los Angeles Shooting Death of Rapper Pop Smoke**\
-`Five suspects were arrested on Thursday in the killing of rap music artist Pop Smoke, who was shot to death inside his Hollywood Hills home during a reported break-in earlier this year, according to the Los Angeles Police Department.`\
-https://nytimes.com/reuters/2020/07/09/us/09reuters-people-pop-smoke.html?searchResultPosition=6
-
-**Brazil's Bolsonaro in Good Health After Positive Coronavirus Test, Press Office Says**\
-`Brazilian President Jair Bolsonaro is in good health after testing positive for the novel coronavirus earlier this week, his press office said on Thursday.`\
-https://nytimes.com/reuters/2020/07/09/world/americas/09reuters-health-coronavirus-brazil-bolsonaro.html?searchResultPosition=7
-
-**Helen O’Hagan, Fashion Executive Who Personified Saks, Dies at 89**\
-`As the store’s head of publicity, she promoted top designers. She also lived a glamorous life as the friend and caregiver of the actress Claudette Colbert.`\
-https://nytimes.com/2020/07/09/fashion/news/helen-ohagan-dead.html?searchResultPosition=8
-
-**Changes to Istanbul's Hagia Sophia Could Trigger Heritage Review-UNESCO**\
-`UNESCO must be notified of any change in the status of Istanbul's sixth-century Hagia Sophia museum and the changes may have to be reviewed by its World Heritage committee, the United Nation's cultural body said on Thursday.`\
-https://nytimes.com/reuters/2020/07/09/world/europe/09reuters-turkey-museum-unesco.html?searchResultPosition=9
-
-**New Sex Abuse Charges Against Former USC Campus Gynecologist**\
-`New charges have been filed against a former University of Southern California campus gynecologist accused of sexually assaulting young women who were his patients, Los Angeles County District Attorney Jackie Lacey said Thursday.`\
-https://nytimes.com/aponline/2020/07/09/us/ap-us-usc-gynecologist-sexual-abuse.html?searchResultPosition=10
+https://nytimes.com/2020/07/09/opinion/trump-coronavirus.html?searchResultPosition=10
 
