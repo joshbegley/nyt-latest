@@ -14,8 +14,8 @@ https://nytimes.com/2020/07/10/t-magazine/catherine-opie-photos.html?searchResul
 `The government says it will spend nearly a billion dollars on work coaches and a new online job search platform.`\
 https://nytimes.com/2020/07/10/business/economy/britain-jobs-plan-layoffs.html?searchResultPosition=4
 
-**Russia, China Veto Approval for Syria Aid via Turkey for Second Time This Week**\
-`Russia and China vetoed a last-ditch attempt by western members of the U.N. Security Council to extend approval - which expires on Friday - for humanitarian aid to be delivered across two border crossings into Syria from Turkey for the next six months.`\
+**Russia, China Veto Syria Aid via Turkey for Second Time This Week**\
+`Russia and China vetoed a last-ditch attempt by Western members of the U.N. Security Council to extend approval - which expires on Friday - for humanitarian aid to be delivered across two border crossings into Syria from Turkey for the next six months.`\
 https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-syria-security-un.html?searchResultPosition=5
 
 **Why We Still Don’t Know Enough About Covid-19 and Pregnancy**\
