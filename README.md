@@ -1,40 +1,40 @@
+**From Catherine Opie, a Visual Diary of the Recent Past**\
+`The celebrated photographer shares her snapshots of a time of togetherness.`\
+https://nytimes.com/2020/07/10/t-magazine/catherine-opie-photos.html?searchResultPosition=1
+
+**Britain Offers a Plan for Jobs, but Braces for a Wave of Layoffs**\
+`The government says it will spend nearly a billion dollars on work coaches and a new online job search platform.`\
+https://nytimes.com/2020/07/10/business/economy/britain-jobs-plan-layoffs.html?searchResultPosition=2
+
+**Russia, China Veto Approval for Syria Aid via Turkey for Second Time This Week**\
+`Russia and China vetoed a last-ditch attempt by western members of the U.N. Security Council to extend approval - which expires on Friday - for humanitarian aid to be delivered across two border crossings into Syria from Turkey for the next six months.`\
+https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-syria-security-un.html?searchResultPosition=3
+
+**Why Don’t We Have Better Data on Pregnant Women With Covid-19?**\
+`More than six months into the pandemic there’s still a lot we don’t know about how the coronavirus affects pregnant women and babies.`\
+https://nytimes.com/2020/07/10/parenting/pregnancy/pregnancy-coronavirus-data.html?searchResultPosition=4
+
+**Behind the Cover: The Decameron Project**\
+`A look at the magazine's fiction issue — inspired by a 14th century book.`\
+https://nytimes.com/2020/07/10/magazine/behind-the-cover-the-decameron-project.html?searchResultPosition=5
+
+**Pro-Police Group Seeks to Oust Oklahoma Mayor, Council**\
+`A group of citizens in Norman, Oklahoma, launched a recall petition drive on Friday in an attempt to oust the city’s mayor and half of its City Council.`\
+https://nytimes.com/aponline/2020/07/10/us/ap-us-recall-petition-oklahoma.html?searchResultPosition=6
+
+**Michigan Woman Says Fear Led Her to Pull Gun on Black Family**\
+`A white woman who was charged after she was captured on video pulling a handgun on an unarmed Black woman and her daughters outside of a Michigan restaurant says she feared for her life.`\
+https://nytimes.com/aponline/2020/07/10/us/ap-us-gun-confrontation-michigan.html?searchResultPosition=7
+
 **Statue to Tennis Star Arthur Ashe to Stay Put in Richmond**\
 `On Richmond's Monument Avenue, the collection of towering statues honoring Confederate veterans was interrupted by one noticeably different: a monument to Black tennis legend and civil rights activist Arthur Ashe.`\
-https://nytimes.com/aponline/2020/07/10/us/ap-us-arthur-ashe-statue.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/10/us/ap-us-arthur-ashe-statue.html?searchResultPosition=8
 
 **Ethics Panel Clears Rep. Gaetz in Lease for District Office**\
 `The Office of Congressional Ethics has recommended no further action against a Florida congressman who is paying a donor and former legal client $5,000 a month to rent space for his district office.`\
-https://nytimes.com/aponline/2020/07/10/us/politics/ap-us-florida-congressman-lease-1st-ld-writethru.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/10/us/politics/ap-us-florida-congressman-lease-1st-ld-writethru.html?searchResultPosition=9
 
 **A Veggie Burger Unlike the Others**\
 `David Tanis set out to create an exceptional black bean burger, and a whole summer menu to go with it.`\
-https://nytimes.com/2020/07/10/dining/black-bean-burger-recipe.html?searchResultPosition=3
-
-**Inside an Eclectic Retreat on Shelter Island**\
-`Jonathan Adler and Simon Doonan’s art- and design-filled summer home is a place for both creativity and downtime.`\
-https://nytimes.com/2020/07/10/t-magazine/jonathan-adler-simon-doonan-home.html?searchResultPosition=4
-
-**House Tour | Jonathan Adler and Simon Doonan**\
-`The potter-designer and writer-fashion-commentator show T a few of their favorite things (and pastimes) at their summer home on Shelter Island, N.Y.`\
-https://nytimes.com/video/t-magazine/100000007212774/house-tour-jonathan-adler-and-simon-doonan.html?searchResultPosition=5
-
-**Mali's State Television ORTM Goes Off-Air After Protesters Occupy Building**\
-`Mali's state television ORTM has gone off-air on Friday after hundreds of protesters demanding the resignation of President Ibrahim Boubacar Keita occupied the building, according to Reuters witnesses. `\
-https://nytimes.com/reuters/2020/07/10/world/africa/10reuters-mali-politics.html?searchResultPosition=6
-
-**Trump Says He ‘Aced’ Cognitive Test, but White House Won’t Release Details**\
-`President Trump has repeatedly ridiculed Joseph R. Biden Jr.’s fitness to be president. Mr. Biden’s campaign has called it a smear that has backfired.`\
-https://nytimes.com/2020/07/10/us/politics/trump-cognitive-test-health.html?searchResultPosition=7
-
-**Colombian Capital to Renew Lockdowns by Neighborhood as Cases Rise**\
-`Colombian capital Bogota will initiate strict, rolling two-week quarantines in certain neighborhoods starting Monday to curb the spread of coronavirus as cases rise and intensive care units fill, the mayor said on Friday.`\
-https://nytimes.com/reuters/2020/07/10/world/americas/10reuters-health-coronavirus-colombia.html?searchResultPosition=8
-
-**Amazon's Homeless Shelter Faces Seattle Crisis, Criticism**\
-`A homeless shelter built on Amazon’s perfectly manicured urban Seattle campus is a major civic contribution that pushes the company to face the crisis and criticism in the hometown it has rapidly transformed.`\
-https://nytimes.com/aponline/2020/07/10/us/bc-us-amazon-homeless-shelter.html?searchResultPosition=9
-
-**Sports in a Pandemic Don’t All Stink**\
-`Virtual cycling offers lessons for how other sports can appeal to fans leading increasingly digital lives.`\
-https://nytimes.com/2020/07/10/technology/virtual-cycling.html?searchResultPosition=10
+https://nytimes.com/2020/07/10/dining/black-bean-burger-recipe.html?searchResultPosition=10
 
