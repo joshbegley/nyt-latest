@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/07/10/world/middleeast/ap-un-us-iran-drone-str
 https://nytimes.com/aponline/2020/07/10/science/ap-us-sci-visiting-comet.html?searchResultPosition=5
 
 **Tropical Storm Fay Will Bring Heavy Rain, High Winds and Flash Floods**\
-`The weather threatening New York comes near the start of what is expected to be a busy hurricane season.`\
+`The weather threatening New York is a harbinger of a hurricane season that is expected to be unusually busy this year.`\
 https://nytimes.com/2020/07/10/nyregion/tropical-storm-fay-nyc.html?searchResultPosition=6
 
 **Florida's Curve No Longer Flat Amid New Surge of Virus Cases**\
