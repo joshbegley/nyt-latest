@@ -1,40 +1,40 @@
+**When ‘Keep Your Distance’ Has Been a Way of Life**\
+`Quarantine life puts a son’s relationship with his mother into a new light.`\
+https://nytimes.com/2020/07/10/arts/when-keep-your-distance-has-been-a-way-of-life.html?searchResultPosition=1
+
+**Lebanese Hold Raucous Rally Outside US Embassy in Beirut**\
+`Dozens of Lebanese protesters held a raucous anti-U.S. rally outside the fortified American Embassy in Beirut on Friday, denouncing what they said was Washington's interference in Lebanon's affairs while some chanted in support of the militant Hezbollah group. `\
+https://nytimes.com/aponline/2020/07/10/world/middleeast/ap-ml-lebanon-us.html?searchResultPosition=2
+
+**Trump Rally in New Hampshire Postponed; White House Cites Tropical Storm**\
+`A campaign rally for President Donald Trump set for Saturday in New Hampshire has been postponed by a "week or two" because of a tropical storm off the East Coast, White House spokeswoman Kayleigh McEnany told reporters on Friday.`\
+https://nytimes.com/reuters/2020/07/10/us/politics/10reuters-usa-election-trump-storm.html?searchResultPosition=3
+
+**UK Says It Will Not Join the EU's COVID-19 Vaccine Scheme**\
+`Britain has turned down the chance to join a 2.4 billion-euro European Union plan to secure advance purchases of promising COVID-19 vaccines, saying it would not have had a say over the programme.`\
+https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-health-coronavirus-britain-eu-vaccines.html?searchResultPosition=4
+
+**This Salmon Recipe Shines**\
+`These dishes celebrate fresh produce and keep it simple for summer eating.`\
+https://nytimes.com/2020/07/10/dining/this-salmon-recipe-shines.html?searchResultPosition=5
+
+**Trump Says He Is Not Thinking About a 'Phase 2' U.S.-China Trade Deal**\
+`U.S. President Donald Trump said on Friday his not currently thinking about negotiating a "Phase 2" trade deal with China as relations between Washington and Beijing sour over the coronavirus pandemic and other issues.`\
+https://nytimes.com/reuters/2020/07/10/world/asia/10reuters-usa-trade-china-trump.html?searchResultPosition=6
+
+**Goya Foods Boycott Takes Off After Its President Praises Trump**\
+`“We’re all truly blessed at the same time to have a leader like President Trump,” Bob Unanue said on Thursday at the White House. Critics said they would no longer use his products.`\
+https://nytimes.com/2020/07/10/business/goya-boycott.html?searchResultPosition=7
+
 **Medical Group Cited by Trump Denounces School Funding Threat**\
 `A medical association that the White House has cited in its press to reopen schools is pushing back against President Donald Trump's repeated threats to cut federal funding if schools don't open this fall.`\
-https://nytimes.com/aponline/2020/07/10/us/politics/ap-virus-outbreak-reopening-schools.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/10/us/politics/ap-virus-outbreak-reopening-schools.html?searchResultPosition=8
 
 **US Bets on Small, Untested Company to Deliver COVID Vaccine**\
 `When precious vats of COVID-19 vaccine are finally ready, jabbing the lifesaving solution into the arms of Americans will require hundreds of millions of injections. `\
-https://nytimes.com/aponline/2020/07/10/business/ap-us-virus-outbreak-syringes.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/10/business/ap-us-virus-outbreak-syringes.html?searchResultPosition=9
 
 **EU Urges U.S. to Return to Negotiations at OECD on Digital Taxes**\
 `The European Union on Friday urged the United States to return to negotiations about digital taxation at the Organization for Economic Cooperation and Development, but said it stood ready to make a new proposal at the EU level if those talks failed.`\
-https://nytimes.com/reuters/2020/07/10/technology/10reuters-usa-trade-france-eu.html?searchResultPosition=3
-
-**A Mismanaged Response to the Coronavirus Pandemic**\
-`Readers cite the recent surge in cases as evidence of President Trump’s failed leadership.`\
-https://nytimes.com/2020/07/10/opinion/letters/coronavirus-response.html?searchResultPosition=4
-
-**Amazon Begins Rolling Out Bigger UPS and FedEx-Style Delivery Trucks**\
-`Amazon.com is launching a new fleet of bigger, boxier trucks like those favored by rival package carriers United Parcel Service Inc and FedEx Corp, as it fights to fix widespread pandemic-fueled delivery delays that sent customers into the arms of competitors like Walmart Inc.`\
-https://nytimes.com/reuters/2020/07/10/business/10reuters-amazon-com-delivery.html?searchResultPosition=5
-
-**WHO's Ryan Says Eradication of New Coronavirus Is Unlikely**\
-`Dr Mike Ryan, head of the World Health Organization's emergencies programme, said on Friday it was unlikely that the new coronavirus would be eliminated.`\
-https://nytimes.com/reuters/2020/07/10/us/10reuters-health-coronavirus-who-eradication.html?searchResultPosition=6
-
-**Security Firm G4S Unit Settles With UK's Fraud Office**\
-`Security services provider G4S said on Friday its rehabilitation and prisons unit had agreed to terms with Britain's fraud office, which would drop criminal charges stemming from an investigation dating back to 2013.`\
-https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-g4s-sfo.html?searchResultPosition=7
-
-**Tedros Says COVID-19 Review Will Not Impede WHO Work**\
-`World Health Organization Director General Tedros Adhanom Ghebreyesus said on Friday he was confident a review announced a day earlier of the WHO's handling of the coronavirus pandemic would not interfere with its response to the disease.`\
-https://nytimes.com/reuters/2020/07/10/us/10reuters-health-coronavirus-who-investigation.html?searchResultPosition=8
-
-**U.S. Files Superseding Indictment Against Ghislaine Maxwell**\
-`U.S. prosecutors have filed a superseding indictment against Ghislaine Maxwell, the former girlfriend and longtime associate of the late financier Jeffrey Epstein.`\
-https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-people-ghislaine-maxwell-superseding-indictment.html?searchResultPosition=9
-
-**U.S. Companies Seeking Capital During Pandemic Test Bank Market's New Normal**\
-`Bank lenders for high-quality US companies are taking different refinancing avenues as they seek to extend maturities on billions of US dollars in loans at a time when the Covid-19 pandemic has made liquidity a top priority.`\
-https://nytimes.com/reuters/2020/07/10/us/10reuters-usigrade-multiyears.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/10/technology/10reuters-usa-trade-france-eu.html?searchResultPosition=10
 
