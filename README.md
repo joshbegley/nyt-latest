@@ -11,7 +11,7 @@ https://nytimes.com/2020/07/10/podcasts/daily-newsletter-NASA-space-coronavirus.
 https://nytimes.com/reuters/2020/07/10/us/10reuters-usa-justice-ducharme.html?searchResultPosition=3
 
 **Judge Halts 1st Federal Execution in 17 Years, Citing Virus**\
-`A federal judge in Indiana on Friday halted the first federal execution planned in 17 years scheduled three days from now over COVID-19 concerns. `\
+`A federal judge in Indiana on Friday halted the first federal execution planned in 17 years, citing concerns over the coronavirus by the victims' family. `\
 https://nytimes.com/aponline/2020/07/10/us/ap-us-federal-execution.html?searchResultPosition=4
 
 **Coronavirus Briefing: What Happened Today**\
