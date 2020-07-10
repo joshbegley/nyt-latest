@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/07/10/world/africa/10reuters-health-coronavirus
 `A Michigan town wants machines to speed up counting of absentee ballots.`\
 https://nytimes.com/reuters/2020/07/10/us/politics/10reuters-usa-election-budgets.html?searchResultPosition=9
 
-**Red Bull Dash Vettel's Seat Hopes With a 'Definite No'**\
-`Red Bull have given "a definite no" to four times Formula One world champion Sebastian Vettel's hopes of driving for them next year, team boss Christian Horner said on Friday.`\
+**Red Bull Say No to Vettel's Hopes of a Return**\
+`Red Bull have given "a definite no" to four-times Formula One world champion Sebastian Vettel's hopes of returning to them  next year, team boss Christian Horner said on Friday.`\
 https://nytimes.com/reuters/2020/07/10/sports/autoracing/10reuters-motor-f1-styria.html?searchResultPosition=10
 
