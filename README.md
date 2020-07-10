@@ -1,40 +1,40 @@
+**Spain's Calvino Says One Country Broke Pledge in Eurogroup Vote**\
+`Spanish Economy Minister Nadia Calvino said on Friday that one euro zone country had broken its pledge to support her in her bid to become Eurogroup chief, seen by some at home as a sign of Spain's weakness in the EU.`\
+https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-eurozone-economy-eurogroup-spain.html?searchResultPosition=1
+
+**Cash Flows Into China Funds Fuel Fears of 2015 Boom-Bust Repeat**\
+`Investors poured the most cash into China funds since July 2015, BofA said on Friday, even as fears grew of a repeat of the 2015-16 bubble that saw the benchmark Shanghai index fall more than 40% from its peak in just a few weeks.`\
+https://nytimes.com/reuters/2020/07/10/business/10reuters-markets-flows-bofa.html?searchResultPosition=2
+
+**Russia's Lavrov: U.S. Domestic Issues Behind Speculation of Moscow's Ties With Taliban-Interfax**\
+`An internal political fight in the United States is behind "unscrupulous speculation" of Moscow's alleged ties with Taliban insurgents in Afghanistan, Russian Foreign Minister Sergei Lavrov was quoted as saying by Interfax news agency on Friday. `\
+https://nytimes.com/reuters/2020/07/10/world/asia/10reuters-usa-afghanistan-bounties-russia.html?searchResultPosition=3
+
+**5 Things to Know for Today**\
+`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today: `\
+https://nytimes.com/aponline/2020/07/10/us/ap-5-things-to-know-today.html?searchResultPosition=4
+
+**China Vows Retaliation Against US Sanctions Over Xinjiang**\
+`China said Friday it will retaliate against U.S. officials and institutions following Washington’s imposition of sanctions on three local officials of the ruling Communist Party over human rights abuses in the northwestern region of Xinjiang. `\
+https://nytimes.com/aponline/2020/07/10/world/asia/ap-as-china-united-states.html?searchResultPosition=5
+
+**Al Jazeera Staff Grilled in Malaysia Over Report on Migrant Arrests**\
+`Malaysian police questioned six employees of broadcaster Al Jazeera on Friday over a documentary on the arrest of undocumented migrants that authorities said was inaccurate, misleading and unfair.`\
+https://nytimes.com/reuters/2020/07/10/world/middleeast/10reuters-malaysia-media.html?searchResultPosition=6
+
 **UK's Admiral Reinstates Travel Insurance for New Customers, Others Hold Back**\
 `Insurer Admiral has restarted sales of travel insurance to new customers now Britons are once more allowed to go on holiday, but rivals Aviva, Direct Line and LV= are yet to follow. `\
-https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-britain-travel-insurance.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-britain-travel-insurance.html?searchResultPosition=7
 
 **Swedish Court Finds Ex-Envoy to China Not Guilty in Gui Minhai Case**\
 `A Swedish court on Friday found a former ambassador to China not guilty of exceeding her authority in dealings with a foreign power in connection with a meeting aimed at helping free bookseller Gui Minhai.`\
-https://nytimes.com/reuters/2020/07/10/world/asia/10reuters-sweden-china-diplomacy.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/10/world/asia/10reuters-sweden-china-diplomacy.html?searchResultPosition=8
 
 **Benettons to Meet After Government Ultimatum on Motorway Contract**\
 `The boards of Benetton-backed Atlantia and its motorway business will meet on Friday to discuss measures demanded by the government to save a contract to run most of Italy's highways, a person familiar with the matter said on Friday.`\
-https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-italy-motorway-government.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-italy-motorway-government.html?searchResultPosition=9
 
 **Summer Getaway Can Begin: New UK Quarantine Rules in Place**\
 `The traditional British summer getaway to the sun-soaked beaches of the Mediterranean Sea is set to pick up steam Friday as U.K. quarantine restrictions are removed from dozens of countries, including France, Greece and Italy.`\
-https://nytimes.com/aponline/2020/07/10/business/ap-eu-virus-outbreak-britain.html?searchResultPosition=4
-
-**China Auto Sales Off 22.4% in First Half of 2020**\
-`China’s auto sales rose 1.8% in June over a year earlier but were down by double digits for the first half of 2020 after the country shut down to fight the coronavirus, an industry group reported Friday. `\
-https://nytimes.com/aponline/2020/07/10/business/bc-as-china-auto-sales.html?searchResultPosition=5
-
-**Greece: Summer Camp Evacuated in Wildfire Precaution**\
-`A children’s summer camp and a retirement home have been evacuated near Athens after a wildfire approached homes in a coastal area.`\
-https://nytimes.com/aponline/2020/07/10/world/europe/ap-eu-greece-wildfire.html?searchResultPosition=6
-
-**Sweden’s Ex-Ambassador to China Is Cleared of Wrongdoing**\
-`Anna Lindstedt was found not guilty of overstepping the boundaries of her role when she arranged secret meetings over the fate of a Hong Kong bookseller and Swedish citizen who remains detained in China.`\
-https://nytimes.com/2020/07/10/world/europe/sweden-ambassador-china.html?searchResultPosition=7
-
-**Lebanese PM Sues American University of Beirut Over Exit Package**\
-`Lebanese Prime Minister Hassan Diab is suing the American University of Beirut (AUB), where he worked for 35 years as an academic, a spokesman for Diab said, in a dispute over his exit package from the financially struggling institution.`\
-https://nytimes.com/reuters/2020/07/10/world/middleeast/10reuters-lebanon-crisis-diab-university.html?searchResultPosition=8
-
-**New York’s Path to Trump’s Tax Records**\
-`Manhattan prosecutors scored a win with the Supreme Court's ruling that President Trump could not a block a subpoena of his financial records.`\
-https://nytimes.com/2020/07/10/nyregion/trump-tax-records-ny.html?searchResultPosition=9
-
-**Coronavirus Live Updates: U.S. Nears 60,000 New Cases a Day**\
-`The country recorded its sixth single-day record in 10 days. U.S. immigration officials have helped spread the virus, a Times investigation found.`\
-https://nytimes.com/2020/07/10/world/coronavirus-updates.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/10/business/ap-eu-virus-outbreak-britain.html?searchResultPosition=10
 
