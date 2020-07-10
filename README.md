@@ -2,8 +2,8 @@
 `Prices of existing Spanish properties fell for the first time since 2017, two of the country's largest real estate portals said on Friday.`\
 https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-health-coronavirus-spain-real-estate.html?searchResultPosition=1
 
-**Ghislaine Maxwell Says She Deserves Bail**\
-`Ghislaine Maxwell, the former girlfriend and longtime associate of the late financier Jeffrey Epstein, said on Friday she should be granted bail, after having been charged with luring underage girls so he could sexually abuse them.`\
+**Ghislaine Maxwell Denies Charges She Aided Jeffrey Epstein, Says She Deserves Bail**\
+`Ghislaine Maxwell, the former girlfriend and longtime associate of the late financier Jeffrey Epstein, on Friday forcefully denied charges she lured underage girls so he could sexually abuse them, and said she deserves bail.`\
 https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-people-ghislaine-maxwell.html?searchResultPosition=2
 
 **Amazon Makes Employees Delete TikTok From Phones, Citing Security Risk**\
