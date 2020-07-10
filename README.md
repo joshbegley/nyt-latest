@@ -30,7 +30,7 @@ https://nytimes.com/reuters/2020/07/10/business/10reuters-britain-rating-moody-s
 `Tropical storm Fay has slightly strengthened offshore the Delmarva peninsula and the storm's center is projected to move inland over the mid-Atlantic or the northeast United States late Friday or on Saturday, the National Hurricane Center (NHC) said.`\
 https://nytimes.com/reuters/2020/07/10/us/10reuters-storm-atlantic-fay.html?searchResultPosition=8
 
-**Exclusive: India Panel Proposes New Regulator for Non-Personal Data-Draft Report**\
+**Exclusive: India Panel Proposes New Regulator for Non-Personal Data: Draft Report**\
 `India should set up a data regulator and require companies to disclose how they collect and store data devoid of personal details or which has been anonymised, a panel tasked to draw up such regulations has said in a draft report seen by Reuters.`\
 https://nytimes.com/reuters/2020/07/10/business/10reuters-india-data-exclusive.html?searchResultPosition=9
 
