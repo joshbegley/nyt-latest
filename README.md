@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/07/10/us/ap-eu-turkey-hagia-sophia.html?search
 https://nytimes.com/aponline/2020/07/10/world/europe/ap-eu-virus-outbreak-serbia.html?searchResultPosition=7
 
 **Turkish Court Clears Way for Hagia Sophia to Be Used as a Mosque Again**\
-`The decision to revoked its 80-year-old status as a museum would allow it to become a place of worship but is likely to provoke an international furor.`\
+`The decision to revoke its 80-year-old status as a museum would allow it to become a place of worship but is likely to provoke an international furor.`\
 https://nytimes.com/2020/07/10/world/europe/hagia-sophia-mosque-turkey.html?searchResultPosition=8
 
 **Canada Adds 952,900 Jobs in June as COVID-19 Restrictions Ease**\
