@@ -1,40 +1,40 @@
+**Thousands Demonstrate in Mali Despite Promises of Reform**\
+`Thousands marched Friday in Mali's capital in anti-government demonstrations urged by an opposition group that rejects the president's promises of reforms. `\
+https://nytimes.com/aponline/2020/07/10/world/africa/ap-af-mali-protests.html?searchResultPosition=1
+
+**2 New Orleans Statues Toppled, 1 Vandalized With Red Paint**\
+`At least two statues of prominent historical figures were pulled from their pedestals in New Orleans and another has been covered with red spray paint, authorities said Friday.`\
+https://nytimes.com/aponline/2020/07/10/us/ap-us-statues-vandalized-new-orleans-2nd-ld-writethru.html?searchResultPosition=2
+
+**Fiat Chrysler Recall: Steering Wheel Part Can Be Projectile**\
+`Fiat Chrysler is recalling more than 1.2 million older minivans and SUVs worldwide because plastic emblems on the steering wheels can loosen and become projectiles if the driver’s air bag is inflated in a crash.`\
+https://nytimes.com/aponline/2020/07/10/business/ap-us-fiat-chrysler-recall.html?searchResultPosition=3
+
+**The Boom and Bust of North London Economics**\
+`Tottenham and Arsenal are clinging to their status as members of the Premier League’s Big Six. The pandemic may loosen their grip for good.`\
+https://nytimes.com/2020/07/10/sports/soccer/arsenal-tottenham-north-london-derby.html?searchResultPosition=4
+
+**Love Letter: A Glimpse Into a Son’s Mind**\
+`Plus: Cross-border couples in limbo.`\
+https://nytimes.com/2020/07/10/fashion/weddings/love-letter-newsletter-glimpse-into-sons-mind.html?searchResultPosition=5
+
+**Coroner Releases Autopsy on Fatal Shooting by LA Deputy**\
+`The Los Angeles County coroner on Friday released the autopsy report on an allegedly armed young man shot by a sheriff’s deputy that the Sheriff’s Department had requested remain confidential under a security hold.`\
+https://nytimes.com/aponline/2020/07/10/us/ap-us-deputy-fatal-shooting-.html?searchResultPosition=6
+
+**As Disney World Prepares to Reopen, Florida Posts Another Daily Surge in COVID-19 Cases**\
+`Florida confirmed its place as an emerging epicenter of the COVID pandemic in the United States on Friday by reporting its second sharpest daily rise in cases, while Walt Disney Co. prepared to reopen its flagship theme park in Orlando to the chagrin of some employees.`\
+https://nytimes.com/reuters/2020/07/10/business/10reuters-health-coronavirus-usa.html?searchResultPosition=7
+
+**Official in Seoul Reads Note From South Korean Mayor**\
+`Officials in Seoul read a note from the mayor, Park Won-soon, who was found dead just days after a secretary told the police that he had sexually harassed her.`\
+https://nytimes.com/video/us/100000007233462/seoul-officials-read-mayor-note.html?searchResultPosition=8
+
 **Martha Rocha, 87, Dies; to Brazil, a Beauty Queen Denied a Crown**\
 `Popular opinion has held that she came in second in the 1954 Miss Universe pageant because she didn’t conform to a North American standard of beauty.`\
-https://nytimes.com/2020/07/10/style/martha-rocha-brazil-runner-up-dies.html?searchResultPosition=1
+https://nytimes.com/2020/07/10/style/martha-rocha-brazil-runner-up-dies.html?searchResultPosition=9
 
 **Erdogan Says First Prayers in Hagia Sophia on July 24**\
 `The first prayers will be held in Turkey's Hagia Sophia on July 24, President Tayyip Erdogan said on Friday, after declaring the ancient monument was once again a mosque following a court ruling revoking its status as a museum.`\
-https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-turkey-museum-prayers.html?searchResultPosition=2
-
-**Adrian Gomez, Who Cared for Migrant Youth, Is Dead at 52**\
-`He worked at a shelter in Texas and as a juvenile probation officer; he wanted, his daughter said, to make a difference. He died of complications of the novel coronavirus.`\
-https://nytimes.com/2020/07/10/obituaries/adrian-gomez-dead-coronavirus.html?searchResultPosition=3
-
-**U.S. Insurers Eye Legionnaires' Disease Safeguards as Buildings Re-Open From Pandemic Shutdowns**\
-`Commercial insurers are scrutinizing building managers' efforts to avoid outbreaks of Legionnaires' disease as they re-open movie theaters, gyms, schools and offices that had been closed for months due to the coronavirus pandemic, industry sources told Reuters.`\
-https://nytimes.com/reuters/2020/07/10/business/10reuters-health-coronavirus-insurance-legionnaires.html?searchResultPosition=4
-
-**What Do Parents Want to Know About Schools Reopening?**\
-`We would love to hear from you.`\
-https://nytimes.com/2020/07/10/parenting/virus-school.html?searchResultPosition=5
-
-**Exclusive: Ex-WVa Health Chief Says Cuts Hurt Virus Response**\
-`The former West Virginia public health leader forced out by the governor says decades-old computer systems and cuts to staff over a period of years had made a challenging job even harder during a once-in-a-century pandemic.`\
-https://nytimes.com/aponline/2020/07/10/us/ap-us-virus-outbreak-west-virginia.html?searchResultPosition=6
-
-**American Airlines Threatens to Cancel Some Boeing Max Orders**\
-`American Airlines is warning Boeing that it could cancel some overdue orders for the grounded 737 Max unless the plane maker helps line up new financing for the jets, which has become more expensive as the coronavirus pandemic has crippled airlines, according to people familiar with the discussions.`\
-https://nytimes.com/aponline/2020/07/10/business/ap-us-american-airlines-boeing.html?searchResultPosition=7
-
-**For Sale: A Team With a Colorful Financial History**\
-`The Mets are up for auction, with Steve Cohen again being mentioned as a front-runner to buy the team.`\
-https://nytimes.com/2020/07/10/sports/baseball/new-york-mets.html?searchResultPosition=8
-
-**French Coronavirus Death Toll Rises Above 30,000**\
-`France on Friday became the sixth country to report a death toll of more than 30,000 from coronavirus infection.`\
-https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-health-coronavirus-france-casualties.html?searchResultPosition=9
-
-**All-Female Crew Embarks on Black Sea Patrol in First for Russian Navy**\
-`In a first for the Russian Navy, an all-female navy crew carried out patrols on the Black Sea on Friday in preparation for Russia's Navy Day celebrations later this month.     `\
-https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-russia-navy-female-crew.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-turkey-museum-prayers.html?searchResultPosition=10
 
