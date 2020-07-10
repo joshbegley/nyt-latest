@@ -2,8 +2,8 @@
 `President Recep Tayyip Erdogan of Turkey signed a decree allowing the Hagia Sophia to be used as a mosque again.`\
 https://nytimes.com/video/world/100000007233558/hagia-sophia-erdogan-mosque.html?searchResultPosition=1
 
-**Everton Weekes, Cricket Star and Pioneer, Is Dead at 95**\
-`Along with his fellow Barbados batsmen Frank Worrell and Clyde Walcott — together they were “the three Ws” — he broke the sport’s longstanding racial barrier.`\
+**Everton Weekes, Cricket Star and Racial Pioneer, Is Dead at 95**\
+`Along with his fellow Barbados batsmen Frank Worrell and Clyde Walcott — together they were “the three Ws” — he broke the sport’s longstanding color barrier.`\
 https://nytimes.com/2020/07/10/sports/cricket/everton-weekes-dead.html?searchResultPosition=2
 
 **Amazon.com Says It Sent the TikTok Ban Email to Employees in Error**\
