@@ -1,4 +1,4 @@
-**Trump Commutes Sentence of Roger Stone in Case He Long Denounced, Official Says**\
+**Trump Commutes Sentence of Roger Stone in Case He Long Denounced**\
 `The president’s friend had been convicted of impeding a congressional inquiry that threatened Mr. Trump.`\
 https://nytimes.com/2020/07/10/us/politics/trump-roger-stone-clemency.html?searchResultPosition=1
 
