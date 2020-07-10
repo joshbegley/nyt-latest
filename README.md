@@ -1,40 +1,40 @@
+**Medical Group Cited by Trump Denounces School Funding Threat**\
+`A medical association that the White House has cited in its press to reopen schools is pushing back against President Donald Trump's repeated threats to cut federal funding if schools don't open this fall.`\
+https://nytimes.com/aponline/2020/07/10/us/politics/ap-virus-outbreak-reopening-schools.html?searchResultPosition=1
+
+**US Bets on Small, Untested Company to Deliver COVID Vaccine**\
+`When precious vats of COVID-19 vaccine are finally ready, jabbing the lifesaving solution into the arms of Americans will require hundreds of millions of injections. `\
+https://nytimes.com/aponline/2020/07/10/business/ap-us-virus-outbreak-syringes.html?searchResultPosition=2
+
+**EU Urges U.S. to Return to Negotiations at OECD on Digital Taxes**\
+`The European Union on Friday urged the United States to return to negotiations about digital taxation at the Organization for Economic Cooperation and Development, but said it stood ready to make a new proposal at the EU level if those talks failed.`\
+https://nytimes.com/reuters/2020/07/10/technology/10reuters-usa-trade-france-eu.html?searchResultPosition=3
+
+**A Mismanaged Response to the Coronavirus Pandemic**\
+`Readers cite the recent surge in cases as evidence of President Trump’s failed leadership.`\
+https://nytimes.com/2020/07/10/opinion/letters/coronavirus-response.html?searchResultPosition=4
+
+**Amazon Begins Rolling Out Bigger UPS and FedEx-Style Delivery Trucks**\
+`Amazon.com is launching a new fleet of bigger, boxier trucks like those favored by rival package carriers United Parcel Service Inc and FedEx Corp, as it fights to fix widespread pandemic-fueled delivery delays that sent customers into the arms of competitors like Walmart Inc.`\
+https://nytimes.com/reuters/2020/07/10/business/10reuters-amazon-com-delivery.html?searchResultPosition=5
+
 **WHO's Ryan Says Eradication of New Coronavirus Is Unlikely**\
 `Dr Mike Ryan, head of the World Health Organization's emergencies programme, said on Friday it was unlikely that the new coronavirus would be eliminated.`\
-https://nytimes.com/reuters/2020/07/10/us/10reuters-health-coronavirus-who-eradication.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/10/us/10reuters-health-coronavirus-who-eradication.html?searchResultPosition=6
 
 **Security Firm G4S Unit Settles With UK's Fraud Office**\
 `Security services provider G4S said on Friday its rehabilitation and prisons unit had agreed to terms with Britain's fraud office, which would drop criminal charges stemming from an investigation dating back to 2013.`\
-https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-g4s-sfo.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-g4s-sfo.html?searchResultPosition=7
 
 **Tedros Says COVID-19 Review Will Not Impede WHO Work**\
 `World Health Organization Director General Tedros Adhanom Ghebreyesus said on Friday he was confident a review announced a day earlier of the WHO's handling of the coronavirus pandemic would not interfere with its response to the disease.`\
-https://nytimes.com/reuters/2020/07/10/us/10reuters-health-coronavirus-who-investigation.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/10/us/10reuters-health-coronavirus-who-investigation.html?searchResultPosition=8
 
 **U.S. Files Superseding Indictment Against Ghislaine Maxwell**\
 `U.S. prosecutors have filed a superseding indictment against Ghislaine Maxwell, the former girlfriend and longtime associate of the late financier Jeffrey Epstein.`\
-https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-people-ghislaine-maxwell-superseding-indictment.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-people-ghislaine-maxwell-superseding-indictment.html?searchResultPosition=9
 
 **U.S. Companies Seeking Capital During Pandemic Test Bank Market's New Normal**\
 `Bank lenders for high-quality US companies are taking different refinancing avenues as they seek to extend maturities on billions of US dollars in loans at a time when the Covid-19 pandemic has made liquidity a top priority.`\
-https://nytimes.com/reuters/2020/07/10/us/10reuters-usigrade-multiyears.html?searchResultPosition=5
-
-**She’s an Authority on Earth’s Past. Now, Her Focus Is the Planet’s Future.**\
-`The climate scientist Maureen Raymo is leading the Lamont-Doherty Earth Observatory at Columbia. She has big plans for science, and diversity, too.`\
-https://nytimes.com/2020/07/10/climate/lamont-doherty-maureen-raymo-climate-change.html?searchResultPosition=6
-
-**Ethiopia Arrests Suspects in the Killing of Popular Singer**\
-`Ethiopian authorities said on Friday they had arrested two suspects over the killing of a popular political singer, whose death last week sparked protests in which 166 people were killed.`\
-https://nytimes.com/reuters/2020/07/10/world/africa/10reuters-ethiopia-protests.html?searchResultPosition=7
-
-**Trump Says U.S. Treasury to Examine Schools' Tax Status, Funding**\
-`President Donald Trump on Friday said he had called on the U.S. Treasury Department to re-examine the tax-exempt status and funding for universities and school districts, following days of threats to cut federal education funding for schools that don't reopen amid the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/07/10/us/10reuters-health-coronavirus-uda-education.html?searchResultPosition=8
-
-**20 Under $20: Wines That Feed the Soul**\
-`These 20 bottles — found online from 11 different countries, including some unexpected regions — offer values and pleasures in a summer unlike any other.`\
-https://nytimes.com/2020/07/10/dining/drinks/best-wines-under-20-dollars-pandemic.html?searchResultPosition=9
-
-**A Lot of Athletes Seem to Have the Coronavirus. Here Are Some Reasons.**\
-`The rate of positive test results released by a few leagues seems higher than that of the general population. But there are explanations for that.`\
-https://nytimes.com/2020/07/10/sports/coronavirus-athletes-tested-positive.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/10/us/10reuters-usigrade-multiyears.html?searchResultPosition=10
 
