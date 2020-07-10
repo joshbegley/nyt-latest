@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-health-coronavirus
 https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-people-ghislaine-maxwell.html?searchResultPosition=3
 
 **Amazon Makes Employees Delete TikTok From Phones, Citing Security Risk**\
-`TikTok, owned by Chinese company Bytedance, has been under scrutiny as a potential national security threat.`\
+`TikTok, owned by Chinese company ByteDance, has been under scrutiny as a potential national security threat.`\
 https://nytimes.com/2020/07/10/technology/tiktok-amazon-security-risk.html?searchResultPosition=4
 
 **Fed Policymakers Worry Growth Plateauing, Pledge More Support**\
@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/07/10/sports/baseball/ap-bbn-giants-posey-opts
 `The World Health Organization reported a record increase in global coronavirus cases on Friday, with the total rising by 228,102 in 24 hours.`\
 https://nytimes.com/reuters/2020/07/10/world/americas/10reuters-health-coronavirus-cases-who.html?searchResultPosition=9
 
-**Bulgaria, Croatia Take Vital Step on Road to Joining Euro**\
-`Bulgaria and Croatia have been accepted into ERM-2 mechanism, a mandatory waiting room for joining the euro, kicking off the currency bloc's first expansion in half a decade, the European Central Bank said on Friday.`\
+**Bulgaria, Croatia Take Vital Step to Joining Euro**\
+`Bulgaria and Croatia have been accepted into ERM-2 mechanism, a mandatory stage for joining the euro and beginning the currency bloc's first expansion in half a decade, the European Central Bank said on Friday.`\
 https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-eurozone-economy-croatia-bulgaria.html?searchResultPosition=10
 
