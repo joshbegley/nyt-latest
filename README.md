@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/07/10/world/middleeast/ap-ml-virus-outbreak-sy
 https://nytimes.com/reuters/2020/07/10/business/10reuters-rivian-funding.html?searchResultPosition=5
 
 **Turkish Court Paves Way to Turn Hagia Sophia Into a Mosque**\
-`A Turkish court said on Friday it annulled a 1934 government decree turning Istanbul's Hagia Sophia into a museum, ruling it was unlawful, paving the way for the building's conversion back into mosque despite international warnings against such a move.`\
+`A Turkish court annulled on Friday a 1934 government decree turning Istanbul's Hagia Sophia into a museum, paving the way for the building's conversion back into mosque despite international warnings against such a move.`\
 https://nytimes.com/reuters/2020/07/10/world/europe/10reuters-turkey-museum-verdict.html?searchResultPosition=6
 
 **Bank of Italy Lowers 2020 GDP Forecast to - 9.5%**\
