@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/07/10/world/middleeast/ap-un-united-nations-ye
 https://nytimes.com/reuters/2020/07/10/us/10reuters-health-coronavirus-usa-schools.html?searchResultPosition=2
 
 **Officers Fatally Shot Latino Man Five Times in the Back, Autopsy Says**\
-`Andres Guardado was killed in Southern California last month. His family said he was working as security guard for an auto body shop the day he was shot.`\
+`Andres Guardado was killed in Southern California last month. His family said he was working as a security guard for an auto body shop the day he was shot.`\
 https://nytimes.com/2020/07/10/us/andres-guardado-police-shooting.html?searchResultPosition=3
 
 **U.S. Slaps French Goods With 25% Tariff Over Digital Tax, but Delays Effective Date**\
