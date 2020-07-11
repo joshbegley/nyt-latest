@@ -1,10 +1,10 @@
-**UK Plans to Create 'Freeports,' Cut Taxes: Sunday Telegraph**\
-`British finance minister Rishi Sunak is preparing to introduce sweeping tax cuts and an overhaul of planning laws in up to 10 new “freeports” within a year of the UK's becoming fully independent from the European Union in December, the Sunday Telegraph said.`\
-https://nytimes.com/reuters/2020/07/11/business/11reuters-britain-eu-freeports.html?searchResultPosition=1
-
 **LeBron Won't Wear Social Justice Message on Lakers Jersey**\
 `LeBron James says his thoughts on social justice can't be contained on the back of a basketball jersey.`\
-https://nytimes.com/aponline/2020/07/11/sports/basketball/ap-bkn-lakers-lebrons-jersey.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/11/sports/basketball/ap-bkn-lakers-lebrons-jersey.html?searchResultPosition=1
+
+**UK Plans to Create 'Freeports,' Cut Taxes: Sunday Telegraph**\
+`British finance minister Rishi Sunak is preparing to introduce sweeping tax cuts and an overhaul of planning laws in up to 10 new “freeports” within a year of the UK's becoming fully independent from the European Union in December, the Sunday Telegraph said.`\
+https://nytimes.com/reuters/2020/07/11/business/11reuters-britain-eu-freeports.html?searchResultPosition=2
 
 **On Fifth Attempt, U.N. Security Council Renews Syria Aid via Turkey**\
 `The United Nations Security Council on Saturday approved aid deliveries to Syria through one border crossing from Turkey, a day after its authorization for the six-year-long humanitarian operation ended, leaving millions of Syrian civilians in limbo.`\
