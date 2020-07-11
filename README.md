@@ -3,7 +3,7 @@
 https://nytimes.com/2020/07/11/sports/baseball/kyle-lewis-mariners-mlb-return.html?searchResultPosition=1
 
 **Coronavirus Live Updates: Texas and Georgia Weigh New Restrictions as U.S. Cases Rise**\
-`Teachers across the United States feel under pressure as schools are pushed to reopen in the fall. Protests over lockdown measures in Serbia spread to wider grievances.`\
+`Teachers across the United States feel under pressure as schools are pushed to reopen in the fall. India is imposing new measures as outbreaks spread in several areas.`\
 https://nytimes.com/2020/07/11/world/coronavirus-updates.html?searchResultPosition=2
 
 **‘I Don’t Want to Go Back’: Many Teachers Are Fearful and Angry Over Pressure to Return**\
