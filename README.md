@@ -14,13 +14,13 @@ https://nytimes.com/2020/07/11/nyregion/lorna-breen-suicide-coronavirus.html?sea
 `Ladakh is a place of high-altitude pastures, lonely herders and desolate moonscapes — and a byword for intractable geopolitical disputes.`\
 https://nytimes.com/2020/07/11/world/asia/india-china-border-ladakh.html?searchResultPosition=4
 
+**Georgia. Ohio. Texas. Democrats Tell Biden to Go Big (He’s Being Cautious).**\
+`This election, some Democrats argue, offers the party the provocative possibility of a new path to the presidency, even as others warn against overconfidence.`\
+https://nytimes.com/2020/07/11/us/politics/trump-biden-2020-election.html?searchResultPosition=5
+
 **Scientists Say You Can Cancel the Noise but Keep Your Window Open**\
 `Researchers in Singapore developed a system that’s sort of like noise-canceling headphones for your whole apartment.`\
-https://nytimes.com/2020/07/11/science/windows-street-noise.html?searchResultPosition=5
-
-**After an Arrest at a Black Lives Matter Protest: Deportation Proceedings**\
-`A Phoenix activist was supporting one cause, and caught up in the unresolved fight of another.`\
-https://nytimes.com/2020/07/11/us/politics/black-lives-matter-phoenix-daca.html?searchResultPosition=6
+https://nytimes.com/2020/07/11/science/windows-street-noise.html?searchResultPosition=6
 
 **Hunger Is Worsening. Here Are 7 Ways New Yorkers Are Addressing It.**\
 `Pastors, theater technicians and nonprofit leaders are repurposing their organizations to create and distribute meals.`\
@@ -30,11 +30,11 @@ https://nytimes.com/2020/07/11/nyregion/coronavirus-hunger-relief-nyc.html?searc
 `Many first-generation, low-income Harvard students feel that the elite institution has failed them.`\
 https://nytimes.com/2020/07/11/style/harvard-students-coronavirus.html?searchResultPosition=8
 
-**Georgia. Ohio. Texas. Democrats Tell Biden to Go Big (He’s Being Cautious).**\
-`This election, some Democrats argue, offers the party the provocative possibility of a new path to the presidency, even as others warn against overconfidence.`\
-https://nytimes.com/2020/07/11/us/politics/trump-biden-2020-election.html?searchResultPosition=9
-
 **Fact-Checking Biden on the Coronavirus and His Own Record**\
 `The presumptive Democratic nominee has assailed President Trump’s pandemic response and sought to shore up his left flank.`\
-https://nytimes.com/2020/07/11/us/politics/fact-checking-biden-on-the-coronavirus-and-his-own-record.html?searchResultPosition=10
+https://nytimes.com/2020/07/11/us/politics/fact-checking-biden-on-the-coronavirus-and-his-own-record.html?searchResultPosition=9
+
+**After an Arrest at a Black Lives Matter Protest: Deportation Proceedings**\
+`A Phoenix activist was supporting one cause, and caught up in the unresolved fight of another.`\
+https://nytimes.com/2020/07/11/us/politics/black-lives-matter-phoenix-daca.html?searchResultPosition=10
 
