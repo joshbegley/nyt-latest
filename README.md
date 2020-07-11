@@ -16,7 +16,7 @@ https://nytimes.com/2020/07/11/us/virus-teachers-classrooms.html?searchResultPos
 
 **Jack Charlton, Soccer Hero in England and Ireland, Dies at 85**\
 `The towering defender won the World Cup with his home country in 1966 and went on to coach the Irish national team to memorable runs at tournaments in Italy in 1990 and the U.S. in 1994.`\
-https://nytimes.com/2020/07/11/obituaries/jack-charlton-dies.html?searchResultPosition=5
+https://nytimes.com/2020/07/11/sports/soccer/jack-charlton-dies.html?searchResultPosition=5
 
 **‘Not a Welcoming Name’: Calls to Drop ‘Plantation’ Gain Steam Nationwide**\
 `Across the country, people are pushing to change the names of cities, neighborhoods and gated communities that include the word “plantation.”`\
