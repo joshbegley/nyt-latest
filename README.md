@@ -1,40 +1,40 @@
+**Protests Rock Russian Far East With Calls for Putin to Resign**\
+`Tens of thousands took to the streets in Russia’s usually somnolent hinterland after the arrest of a popular regional governor.`\
+https://nytimes.com/2020/07/11/world/europe/russia-protests-putin.html?searchResultPosition=1
+
+**Gas Explosion Shakes Building in Iranian Capital: Fire Department**\
+`A gas explosion shook a residential building in Iran's capital Tehran on Saturday, injuring one person, the semi-official ISNA news agency quoted the city fire department as saying.`\
+https://nytimes.com/reuters/2020/07/11/world/middleeast/11reuters-iran-blast.html?searchResultPosition=2
+
+**Putting Heroes, and Traitors, Where They Belong**\
+`The military should rechristen bases named for Confederates. Here are some better options.`\
+https://nytimes.com/2020/07/11/opinion/confederate-rename-military-bases.html?searchResultPosition=3
+
+**Video Calls, Separate Bedrooms: Bolsonaro’s First COVID Week**\
+`After months in which Brazilian President Jair Bolsonaro downplayed COVID-19 by flouting social distancing recommendations and mostly shunning masks, both coronavirus precautions became part of his cloistered life this week at the official residence in capital Brasilia.`\
+https://nytimes.com/aponline/2020/07/11/world/americas/ap-lt-virus-outbreak-brazil-bolsonaro.html?searchResultPosition=4
+
+**Connecticut Mayor Sues Delta Airlines Over Dog Bite**\
+`Bridgeport’s mayor is suing Delta Airlines over a dog bite he says he suffered on a flight. `\
+https://nytimes.com/aponline/2020/07/11/us/ap-us-mayor-dog-bite-1st-ld-writethru.html?searchResultPosition=5
+
+**Fire Destroys Much of 249-Year-Old California Church**\
+`A fire destroyed the rooftop and most of the interior of a California church that was undergoing renovation to mark its upcoming 250th anniversary celebration.`\
+https://nytimes.com/aponline/2020/07/11/us/ap-us-california-church-fire.html?searchResultPosition=6
+
 **Liar, Liar, Nation on Fire**\
 `I’m positive that Trump’s toxic.`\
-https://nytimes.com/2020/07/11/opinion/trump-biden-2020.html?searchResultPosition=1
+https://nytimes.com/2020/07/11/opinion/trump-biden-2020.html?searchResultPosition=7
 
 **The Republicans Who Want to Destroy Trump**\
 `Their party’s a lost cause. America isn’t.`\
-https://nytimes.com/2020/07/11/opinion/republican-party-trump-2020.html?searchResultPosition=2
+https://nytimes.com/2020/07/11/opinion/republican-party-trump-2020.html?searchResultPosition=8
 
 **The Chinese Decade**\
 `The coronavirus has given Beijing a strategic opportunity — but one that might not last.`\
-https://nytimes.com/2020/07/11/opinion/china-coronavirus-power.html?searchResultPosition=3
+https://nytimes.com/2020/07/11/opinion/china-coronavirus-power.html?searchResultPosition=9
 
 **Why Will Our Great-Grandchildren Scorn Us?**\
 `As we topple statues, let’s also search for our own moral blind spots.`\
-https://nytimes.com/2020/07/11/opinion/sunday/animal-rights-cruelty.html?searchResultPosition=4
-
-**Day Trippers: Familiarity Key for Drivers at Kentucky Oval**\
-`The Kentucky Speedway winners' club is exclusive — just five drivers have combined to win the first nine NASCAR Cup races.`\
-https://nytimes.com/aponline/2020/07/11/sports/ap-car-nascar-kentucky-preview.html?searchResultPosition=5
-
-**Supreme Court Vacates 4 More Sentences After Oklahoma Ruling**\
-`A Native American man convicted in Oklahoma of first-degree murder and another who pleaded guilty to manslaughter had their convictions vacated because the U.`\
-https://nytimes.com/aponline/2020/07/11/us/ap-us-supreme-court-indian-country.html?searchResultPosition=6
-
-**Mandatory Masks, Mickey at a Distance as Walt Disney World Reopens**\
-`"Star Wars" Stormtroopers enforced mask-wearing and Mickey Mouse waved from a distance on Saturday as Florida's Walt Disney World opened to the public for the first time in four months amid a surge of coronavirus cases in the state.`\
-https://nytimes.com/reuters/2020/07/11/us/11reuters-health-coronavirus-disney.html?searchResultPosition=7
-
-**Duke Hires Celtics' Lawson to Lead Women's Basketball Team**\
-`Duke has turned to Boston Celtics assistant coach and former WNBA All-Star Kara Lawson to lead its women’s basketball program.`\
-https://nytimes.com/aponline/2020/07/11/sports/ncaabasketball/ap-bkw-duke-lawson.html?searchResultPosition=8
-
-**Indian Actor Amitabh Bachchan Tests Positive for COVID-19**\
-`Iconic Indian actor Amitabh Bachchan has tested positive for COVID-19 and been moved to hospital, the actor said in a tweet late on Saturday.  `\
-https://nytimes.com/reuters/2020/07/11/arts/11reuters-health-coronavirus-india-bachchan.html?searchResultPosition=9
-
-**Valentina Sampaio Is the First Transgender Model for Sports Illustrated**\
-`The Brazilian model, who is in the magazine’s swimsuit issue, was also the first transgender woman to work for Victoria’s Secret and grace the cover of Vogue magazine.`\
-https://nytimes.com/2020/07/11/business/media/valentina-sampaio-transgender-sports-illustrated.html?searchResultPosition=10
+https://nytimes.com/2020/07/11/opinion/sunday/animal-rights-cruelty.html?searchResultPosition=10
 
