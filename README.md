@@ -1,40 +1,40 @@
-**Ethiopia Announces Arrests in Prominent Singer’s Killing**\
-`The shooting last month of Hachalu Hundessa, a hero to young Ethiopians calling for reform, was followed by unrest in which hundreds of people were killed.`\
-https://nytimes.com/2020/07/11/world/africa/ethiopia-hachalu-hundessa.html?searchResultPosition=1
+**In Latin America, the Pandemic Threatens Equality Like Never Before**\
+`Over the past two decades, inequality in Latin America had fallen to the lowest point in its recorded history. The pandemic threatens to reverse that. We traveled 1,000 miles across Colombia to document this critical moment.`\
+https://nytimes.com/2020/07/11/world/americas/in-latin-america-the-pandemic-threatens-equality-like-never-before.html?searchResultPosition=1
 
-**For 20 Years, His Firm Called Him Antoine. Now Mohamed Is Suing.**\
-`Mohamed Amghar, a retired software sales manager in France, has filed a discrimination complaint against his former employer, accusing the company of making him use a traditional French name at work.`\
-https://nytimes.com/2020/07/11/world/europe/france-racial-discrimination-workplace.html?searchResultPosition=2
+**‘I Couldn’t Do Anything’: The Virus and an E.R. Doctor’s Suicide**\
+`Dr. Lorna Breen was unflappable — until she faced a new enemy.`\
+https://nytimes.com/2020/07/11/nyregion/lorna-breen-suicide-coronavirus.html?searchResultPosition=2
 
-**10 Steps to Take to Try to Prevent Your Own Eviction**\
-`Some federal relief is about to expire. Local assistance is spotty. Congress may not act quickly. Here’s how to get help, or help yourself.`\
-https://nytimes.com/2020/07/11/your-money/coronavirus-eviction-prevention-renters-landlord.html?searchResultPosition=3
+**Caught Between Indian and Chinese Troops, at 15,000 Feet**\
+`Ladakh is a place of high-altitude pastures, lonely herders and desolate moonscapes — and a byword for intractable geopolitical disputes.`\
+https://nytimes.com/2020/07/11/world/asia/india-china-border-ladakh.html?searchResultPosition=3
 
-**The Bryan Brothers Were Ready to Call It Quits. Now They Might Need One Last Hug.**\
-`2020 was supposed to be a farewell tour for Bob and Mike Bryan, the incomparable tennis twins, who have long been the darlings of doubles. Then coronavirus canceled it. Will they try again?`\
-https://nytimes.com/2020/07/11/sports/tennis/Bryan-brothers.html?searchResultPosition=4
+**Scientists Say You Can Cancel the Noise but Keep Your Window Open**\
+`Researchers in Singapore developed a system that’s sort of like noise-canceling headphones for your whole apartment.`\
+https://nytimes.com/2020/07/11/science/windows-street-noise.html?searchResultPosition=4
 
-**When K-Pop Fans Scold Their Idols**\
-`A tempest over the band Blackpink’s use of a Hindu god in a video was the latest example of K-pop fans holding artists to account — while staying fiercely loyal.`\
-https://nytimes.com/2020/07/11/world/asia/blackpink-ganesha-kpop-cultural-appropriation.html?searchResultPosition=5
+**After an Arrest at a Black Lives Matter Protest: Deportation Proceedings**\
+`A Phoenix activist was supporting one cause, and caught up in the unresolved fight of another.`\
+https://nytimes.com/2020/07/11/us/politics/black-lives-matter-phoenix-daca.html?searchResultPosition=5
 
-**What’s on TV Saturday: ‘Bloody Nose, Empty Pockets’ and ‘Unidentified’**\
-`Watch an experimental film about bar regulars, and Tom DeLonge’s U.F.O. series returns.`\
-https://nytimes.com/2020/07/11/arts/television/whats-on-tv-saturday-bloody-nose-empty-pockets-and-unidentified.html?searchResultPosition=6
+**Hunger Is Worsening. Here Are 7 Ways New Yorkers Are Addressing It.**\
+`Pastors, theater technicians and nonprofit leaders are repurposing their organizations to create and distribute meals.`\
+https://nytimes.com/2020/07/11/nyregion/coronavirus-hunger-relief-nyc.html?searchResultPosition=6
 
-**Trump Adds Roger Stone to His List of Pardons and Commutations**\
-`The president’s decision to commute Mr. Stone’s sentence continues a pattern of his presidency: granting clemency to friends whose cases resonate with him personally.`\
-https://nytimes.com/article/trump-pardons-commutations.html?searchResultPosition=7
+**What’s the Value of Harvard Without a Campus?**\
+`Many first-generation, low-income Harvard students feel that the elite institution has failed them.`\
+https://nytimes.com/2020/07/11/style/harvard-students-coronavirus.html?searchResultPosition=7
 
-**Austin Cindric Completes Xfinity Sweep at Kentucky Speedway**\
-`Austin Cindric dominated Friday night to sweep the NASCAR Xfinity Series doubleheader at Kentucky Speedway.`\
-https://nytimes.com/aponline/2020/07/10/sports/ap-car-nascar-kentucky-xfinity.html?searchResultPosition=8
+**Georgia. Ohio. Texas. Democrats Tell Biden to Go Big (He’s Being Cautious).**\
+`This election, some Democrats argue, offers the party the provocative possibility of a new path to the presidency, even as others warn against overconfidence.`\
+https://nytimes.com/2020/07/11/us/politics/trump-biden-2020-election.html?searchResultPosition=8
 
-**Quotation of the Day: As Paper Withers, a Reporter Dares to Ask Why**\
-`Quotation of the Day for Saturday, July 11, 2020.`\
-https://nytimes.com/2020/07/10/todayspaper/quotation-of-the-day-as-paper-withers-a-reporter-dares-to-ask-why.html?searchResultPosition=9
+**Fact-Checking Biden on the Coronavirus and His Own Record**\
+`The presumptive Democratic nominee has assailed President Trump’s pandemic response and sought to shore up his left flank.`\
+https://nytimes.com/2020/07/11/us/politics/fact-checking-biden-on-the-coronavirus-and-his-own-record.html?searchResultPosition=9
 
-**Corrections: June 11, 2020**\
-`Corrections that appeared in print on Saturday, June 11, 2020.`\
-https://nytimes.com/2020/07/10/pageoneplus/corrections-june-11-2020.html?searchResultPosition=10
+**At a Time of Financial Stress, 401(k) Fees Matter More Than Ever**\
+`These expenses always eat away at savings balances, but as the pandemic drags on, savers should be especially aware of how to keep them down.`\
+https://nytimes.com/2020/07/11/business/401k-advice.html?searchResultPosition=10
 
