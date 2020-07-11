@@ -22,13 +22,13 @@ https://nytimes.com/interactive/2020/07/11/us/elections/results-louisiana-primar
 `Nevada shut bars again after the virus surged. While restaurants remain open, customers find it’s not the same.`\
 https://nytimes.com/2020/07/11/us/coronavirus-vegas.html?searchResultPosition=6
 
-**Tackle Reopening Choices as a Couple**\
-`The world is reopening, and differing levels of anxiety can strain already tense relationships. Here are some strategies for getting through it together.`\
-https://nytimes.com/2020/07/11/at-home/couples-coronavirus-pandemic.html?searchResultPosition=7
-
 **Make Beads From Your Newspaper**\
 `All it takes is your trusty Times, a little glue and these templates.`\
-https://nytimes.com/2020/07/11/at-home/how-to-make-newspaper-beads.html?searchResultPosition=8
+https://nytimes.com/2020/07/11/at-home/how-to-make-newspaper-beads.html?searchResultPosition=7
+
+**Tackle Reopening Choices as a Couple**\
+`The world is reopening, and differing levels of anxiety can strain already tense relationships. Here are some strategies for getting through it together.`\
+https://nytimes.com/2020/07/11/at-home/couples-coronavirus-pandemic.html?searchResultPosition=8
 
 **Explore the Red Planet and the Pool**\
 `Go on a scavenger hunt for Mars Day, muse on why we swim and boogie during a dance master class.`\
