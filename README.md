@@ -1,6 +1,6 @@
 **In Latin America, the Pandemic Threatens Equality Like Never Before**\
 `Over the past two decades, inequality in Latin America had fallen to the lowest point in its recorded history. The pandemic threatens to reverse that. We traveled 1,000 miles across Colombia to document this critical moment.`\
-https://nytimes.com/2020/07/11/world/americas/in-latin-america-the-pandemic-threatens-equality-like-never-before.html?searchResultPosition=1
+https://nytimes.com/2020/07/11/world/americas/coronavirus-latin-america-inequality.html?searchResultPosition=1
 
 **‘I Couldn’t Do Anything’: The Virus and an E.R. Doctor’s Suicide**\
 `Dr. Lorna Breen was unflappable — until she faced a new enemy.`\
