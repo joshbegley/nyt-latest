@@ -1,40 +1,40 @@
-**Ragaa el-Gedawy, Cherished Star of Egyptian Cinema, Dies at 85**\
-`She endeared herself to audiences with her grace, naturalism and comic skill. She fell ill after filming a TV series in May and died from Covid-19 in July.`\
-https://nytimes.com/2020/07/11/obituaries/ragaa-el-gedawy-dead-coronavirus.html?searchResultPosition=1
+**Driving Rain Delays Final Practice for F1's Styrian GP**\
+`Driving rain delayed the start of the final practice session for Formula One's Styrian Grand Prix and threatened qualifying later Saturday.`\
+https://nytimes.com/aponline/2020/07/11/sports/ap-car-f1-styrian-gp.html?searchResultPosition=1
 
-**​Paik Sun-yup, South Korea’s First Four-Star General, Dies at 99**\
-`Considered a Korean War hero by the U.S. and South Korean militaries, he was a deeply divisive figure at home. Many also saw him as a traitor who collaborated with Japanese colonizers.`\
-https://nytimes.com/2020/07/11/world/asia/Paik-Sun-yup-Korea-dies.html?searchResultPosition=2
+**Trump Threatens to Pull Tax Exemption for Schools, Colleges**\
+`In his push to get schools and colleges to reopen this fall, President Donald Trump is again taking aim at their finances, this time threatening their tax-exempt status.`\
+https://nytimes.com/aponline/2020/07/11/us/politics/ap-virus-outbreak-reopening-schools.html?searchResultPosition=2
 
-**In Commuting Stone’s Sentence, Trump Goes Where Nixon Would Not**\
-`Senator Mitt Romney called the commutation an act of “unprecedented, historic corruption.”`\
-https://nytimes.com/2020/07/11/us/politics/trump-roger-stone-nixon.html?searchResultPosition=3
+**A Look at the Cases Behind the Supreme Court Rulings**\
+`The Supreme Court ruled in two cases involving access to President Donald Trump’s financial records.`\
+https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-trump-supreme-court-box-.html?searchResultPosition=3
 
-**Scottish Pilot Beats Virus and Leaves Hospital in Vietnam**\
-`Stephen Cameron, who spent more than two months on life support for Covid-19 and became the subject of nationwide public interest, was released from a hospital in Ho Chi Minh City.`\
-https://nytimes.com/video/world/asia/100000007234392/scottish-pilot-vietnam-hospital-coronavirus.html?searchResultPosition=4
+**It's Not Just the Presidency: Trump Is Changing the Congress**\
+`Donald Trump isn’t just changing the presidency during his first term in office. He’s also changing Congress.`\
+https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-trump-congress.html?searchResultPosition=4
 
-**In Texas Beach City, Out-of-Towners Drove In an Outbreak**\
-`A month ago, Corpus Christi had hardly any cases of coronavirus and business was booming. Now it is struggling to contain one of the state’s fastest growing outbreaks. What happened?`\
-https://nytimes.com/2020/07/11/us/coronavirus-texas-corpus-christi.html?searchResultPosition=5
+**Storm Clouds Hang Over Trump's Attempted Campaign Reboot**\
+`Friday was supposed to be the day President Donald Trump's campaign reboot itself got a reboot. Instead, it hit another snag.`\
+https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-election-2020-trump.html?searchResultPosition=5
 
-**Trump Says He ‘Aced’ a Cognition Test. What Does That Tell Us?**\
-`If the president wants to impress us with his intellect, he should take the SAT.`\
-https://nytimes.com/2020/07/11/opinion/trump-cognitive-test.html?searchResultPosition=6
+**Trump Commutes Longtime Friend Roger Stone's Prison Sentence**\
+`President Donald Trump has commuted the sentence of his longtime political confidant Roger Stone, intervening in extraordinary fashion in a criminal case that was central to the Russia investigation and that concerned the president's own conduct.`\
+https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-trump-stone.html?searchResultPosition=6
 
-**The Left Is Remaking the World**\
-`“Defund the police” and “cancel rent” aren’t reforms, but paths to revolution.`\
-https://nytimes.com/2020/07/11/opinion/defund-police-cancel-rent.html?searchResultPosition=7
+**Biden Forges Brand of Liberal Populism to Use Against Trump**\
+`Joe Biden stood in a Pennsylvania metal works shop, just miles from his boyhood home, and pledged to define his presidency by a sweeping economic agenda beyond anything Americans have seen since the Great Depression and the industrial mobilization for World War II.`\
+https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-election-2020-biden.html?searchResultPosition=7
 
-**Metropolitan Opera Will Livestream Its Biggest Stars**\
-`Starting on July 18, 12 professionally shot recitals will be broadcast from idyllic locations around the world. The price of admission: $20.`\
-https://nytimes.com/2020/07/11/arts/music/metropolitan-opera-virus.html?searchResultPosition=8
+**Sessions Vies for Senate Comeback in Race Shadowed by Trump**\
+`Seeking a political comeback, former U.`\
+https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-election-2020-alabama-senate-.html?searchResultPosition=8
 
-**America Needs an Emergency Meeting of the Baby-Sitters Club**\
-`Schools and day cares are still closed. Luckily, I have an eager 9-year-old neighbor.`\
-https://nytimes.com/2020/07/11/opinion/baby-sitters-club-child-care-coronavirus.html?searchResultPosition=9
+**Trump Lags Biden on People of Color in Top Campaign Ranks**\
+`Amid a summer of racial unrest and calls for more diversity in leadership, President Donald Trump lags Democratic rival Joe Biden in the percentage of people of color on their campaign staffs, according to data the campaigns provided to The Associated Press.`\
+https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-election-2020-campaign-diversity.html?searchResultPosition=9
 
-**Variety: Diagramless Crossword**\
-`Alex Eaton-Salners presents us with an uphill battle.`\
-https://nytimes.com/2020/07/11/crosswords/variety-diagramless-crossword.html?searchResultPosition=10
+**Thomas Spoke, Roberts Ruled in Unusual Supreme Court Term**\
+`Justice Clarence Thomas spoke and Chief Justice John Roberts ruled.`\
+https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-supreme-court-momentous-term.html?searchResultPosition=10
 
