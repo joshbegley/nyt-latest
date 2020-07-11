@@ -26,15 +26,15 @@ https://nytimes.com/2020/07/11/us/politics/trump-biden-2020-election.html?search
 `Researchers in Singapore developed a system that’s sort of like noise-canceling headphones for your whole apartment.`\
 https://nytimes.com/2020/07/11/science/windows-street-noise.html?searchResultPosition=7
 
-**Fact-Checking Biden on the Coronavirus and His Own Record**\
-`The presumptive Democratic nominee has assailed President Trump’s pandemic response and sought to shore up his left flank.`\
-https://nytimes.com/2020/07/11/us/politics/fact-checking-biden-on-the-coronavirus-and-his-own-record.html?searchResultPosition=8
-
 **Hunger Is Worsening. Here Are 7 Ways New Yorkers Are Addressing It.**\
 `Pastors, theater technicians and nonprofit leaders are repurposing their organizations to create and distribute meals.`\
-https://nytimes.com/2020/07/11/nyregion/coronavirus-hunger-relief-nyc.html?searchResultPosition=9
+https://nytimes.com/2020/07/11/nyregion/coronavirus-hunger-relief-nyc.html?searchResultPosition=8
 
 **What’s the Value of Harvard Without a Campus?**\
 `Many first-generation, low-income Harvard students feel that the elite institution has failed them.`\
-https://nytimes.com/2020/07/11/style/harvard-students-coronavirus.html?searchResultPosition=10
+https://nytimes.com/2020/07/11/style/harvard-students-coronavirus.html?searchResultPosition=9
+
+**Fact-Checking Biden on the Coronavirus and His Own Record**\
+`The presumptive Democratic nominee has assailed President Trump’s pandemic response and sought to shore up his left flank.`\
+https://nytimes.com/2020/07/11/us/politics/fact-checking-biden-on-the-coronavirus-and-his-own-record.html?searchResultPosition=10
 
