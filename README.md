@@ -1,5 +1,5 @@
 **By Praising Trump, Goya President Angers His Core Latino Market**\
-`Robert Unanue said the country was “blessed” to have the president’s leadership. Now the largest Hispanic-owned food company in the U.S. is facing calls for a boycott.`\
+`Robert Unanue said the country was “blessed” to have the president’s leadership. Now, amid calls for a boycott, the largest Hispanic-owned food company in the U.S. is facing dismay from chefs and home cooks.`\
 https://nytimes.com/2020/07/10/dining/goya-foods-trump.html?searchResultPosition=1
 
 **Bulk of an Experiment**\
