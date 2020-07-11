@@ -1,40 +1,40 @@
-**Driving Rain Delays Final Practice for F1's Styrian GP**\
-`Driving rain delayed the start of the final practice session for Formula One's Styrian Grand Prix and threatened qualifying later Saturday.`\
-https://nytimes.com/aponline/2020/07/11/sports/ap-car-f1-styrian-gp.html?searchResultPosition=1
+**Virus Cases Up Sharply in Africa, India as Inequality Stings**\
+`South Africa’s confirmed coronavirus cases have doubled in just two weeks to a quarter-million, and India on Saturday saw its biggest daily spike as its infections passed 800,000.`\
+https://nytimes.com/aponline/2020/07/11/world/africa/ap-virus-outbreak-global-1st-ld-writethru.html?searchResultPosition=1
 
-**Trump Threatens to Pull Tax Exemption for Schools, Colleges**\
-`In his push to get schools and colleges to reopen this fall, President Donald Trump is again taking aim at their finances, this time threatening their tax-exempt status.`\
-https://nytimes.com/aponline/2020/07/11/us/politics/ap-virus-outbreak-reopening-schools.html?searchResultPosition=2
+**Alums Giving LSU Scores: 'Rocky,' 'The Right Stuff,' More**\
+`The Oscar- and Emmy Award-winning composer who wrote scores for movies including “Rocky,” “The Right Stuff” and “The Karate Kid” is giving them to Louisiana State University. `\
+https://nytimes.com/aponline/2020/07/11/us/ap-us-rocky-score-lsu.html?searchResultPosition=2
 
-**A Look at the Cases Behind the Supreme Court Rulings**\
-`The Supreme Court ruled in two cases involving access to President Donald Trump’s financial records.`\
-https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-trump-supreme-court-box-.html?searchResultPosition=3
+**Q&A: US Government Not as Prolific an Executioner as States**\
+`Executions carried out by federal authorities have stopped, restarted and stopped again for long stretches since the first one in 1790, when U.S. marshals hanged a mariner in Maine for fatally shooting the captain of a slave ship. `\
+https://nytimes.com/aponline/2020/07/11/us/ap-us-federal-death-penalty-history-qa.html?searchResultPosition=3
 
-**It's Not Just the Presidency: Trump Is Changing the Congress**\
-`Donald Trump isn’t just changing the presidency during his first term in office. He’s also changing Congress.`\
-https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-trump-congress.html?searchResultPosition=4
+**Animal Rights Protesters Dye Fountains Red in London's Trafalgar Square**\
+`Protesters dyed bright red the water of two fountains in London's Trafalgar Square in a protest on Saturday against the farming of animals.`\
+https://nytimes.com/reuters/2020/07/11/world/europe/11reuters-health-coronavirus-britain-fountains.html?searchResultPosition=4
 
-**Storm Clouds Hang Over Trump's Attempted Campaign Reboot**\
-`Friday was supposed to be the day President Donald Trump's campaign reboot itself got a reboot. Instead, it hit another snag.`\
-https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-election-2020-trump.html?searchResultPosition=5
+**French Aerospace Firm Safran to Build New Mexico Factory: Mexican Foreign Minister**\
+`France's Safran, the world's third-largest aerospace supplier, has began building a new factory in the northern Mexican border state of Chihuahua, Mexican Foreign Minister Marcelo Ebrard said on Saturday.`\
+https://nytimes.com/reuters/2020/07/11/world/americas/11reuters-safran-mexico.html?searchResultPosition=5
 
-**Trump Commutes Longtime Friend Roger Stone's Prison Sentence**\
-`President Donald Trump has commuted the sentence of his longtime political confidant Roger Stone, intervening in extraordinary fashion in a criminal case that was central to the Russia investigation and that concerned the president's own conduct.`\
-https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-trump-stone.html?searchResultPosition=6
+**India in Talks With EU for Trade Deal, Open to Pact With UK**\
+`India has started trade talks with the European Union (EU) and is open to dialogue with the United Kingdom for a free trade agreement, the trade minister said on Saturday, as Asia's third largest economy looks for new markets for its products.`\
+https://nytimes.com/reuters/2020/07/11/world/asia/11reuters-india-europe-trade.html?searchResultPosition=6
 
-**Biden Forges Brand of Liberal Populism to Use Against Trump**\
-`Joe Biden stood in a Pennsylvania metal works shop, just miles from his boyhood home, and pledged to define his presidency by a sweeping economic agenda beyond anything Americans have seen since the Great Depression and the industrial mobilization for World War II.`\
-https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-election-2020-biden.html?searchResultPosition=7
+**Police Search St. Louis Mansion of Couple Who Pointed Guns at Protesters: Reports**\
+`Police in St. Louis, Missouri, searched the mansion of the couple who brandished guns at protesters marching outside their home last month in widely seen videos, local media reported.`\
+https://nytimes.com/reuters/2020/07/11/us/11reuters-global-race-usa-st-louis.html?searchResultPosition=7
 
-**Sessions Vies for Senate Comeback in Race Shadowed by Trump**\
-`Seeking a political comeback, former U.`\
-https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-election-2020-alabama-senate-.html?searchResultPosition=8
+**'Witch Hunt': Trump Commutes Longtime Adviser Roger Stone's Prison Sentence**\
+`President Donald Trump commuted the sentence of his longtime friend and adviser Roger Stone, sparing him from prison after he was convicted of lying under oath to lawmakers investigating Russian interference in the 2016 U.S. election.`\
+https://nytimes.com/reuters/2020/07/11/us/politics/11reuters-usa-trump-stone.html?searchResultPosition=8
 
-**Trump Lags Biden on People of Color in Top Campaign Ranks**\
-`Amid a summer of racial unrest and calls for more diversity in leadership, President Donald Trump lags Democratic rival Joe Biden in the percentage of people of color on their campaign staffs, according to data the campaigns provided to The Associated Press.`\
-https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-election-2020-campaign-diversity.html?searchResultPosition=9
+**German States to Borrow 95 Billion Euros to Cushion Virus Fallout**\
+`Germany's 16 states are planning to take on 95 billion euros  ($107 billion) in new debt as part of their spending efforts to cushion the economy from the worst of the coronavirus shock, Der Spiegel magazine reported on Saturday.`\
+https://nytimes.com/reuters/2020/07/11/world/europe/11reuters-health-coronavirus-germany-borrowings.html?searchResultPosition=9
 
-**Thomas Spoke, Roberts Ruled in Unusual Supreme Court Term**\
-`Justice Clarence Thomas spoke and Chief Justice John Roberts ruled.`\
-https://nytimes.com/aponline/2020/07/11/us/politics/ap-us-supreme-court-momentous-term.html?searchResultPosition=10
+**India's Biocon Secures Approval to Use Drug on Coronavirus Patients**\
+`India's Biocon Ltd has received regulatory approval for its drug Itolizumab to be used on coronavirus infected patients suffering from moderate to severe respiratory distress, the biopharmaceutical company said in a statement on Saturday.`\
+https://nytimes.com/reuters/2020/07/11/world/americas/11reuters-india-biocon.html?searchResultPosition=10
 
