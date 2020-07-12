@@ -26,13 +26,13 @@ https://nytimes.com/reuters/2020/07/12/sports/12reuters-basketball-nba-wojnarows
 `Los Angeles Lakers' Dwight Howard and Danny Green missed practice Saturday over COVID-19 tests, according to reports.`\
 https://nytimes.com/reuters/2020/07/12/sports/basketball/12reuters-basketball-nba-lal-howard-green.html?searchResultPosition=7
 
-**‘We Didn’t Want to Sit Idle’: A Rush to Meet Pro Sports’ Testing Needs**\
-`A handful of companies and labs quickly overhauled themselves to fulfill the sudden demand for coronavirus testing from the major American pro leagues.`\
-https://nytimes.com/2020/07/12/sports/we-didnt-want-to-sit-idle-a-rush-to-meet-pro-sports-testing-needs.html?searchResultPosition=8
-
 **Could This City Hold the Key to the Future of Policing in America?**\
 `As protesters across the country call for police departments to be defunded and dismantled, Camden’s experience offers some lessons.`\
-https://nytimes.com/2020/07/12/nyregion/camden-police.html?searchResultPosition=9
+https://nytimes.com/2020/07/12/nyregion/camden-police.html?searchResultPosition=8
+
+**‘We Didn’t Want to Sit Idle’: A Rush to Meet Pro Sports’ Testing Needs**\
+`A handful of companies and labs quickly overhauled themselves to fulfill the sudden demand for coronavirus testing from the major American pro leagues.`\
+https://nytimes.com/2020/07/12/sports/we-didnt-want-to-sit-idle-a-rush-to-meet-pro-sports-testing-needs.html?searchResultPosition=9
 
 **‘I Immediately Began to Wonder Whether I Was on the Right Train’**\
 `Confusion over what number Lou Gehrig wore, an outdoor lunch and more reader tales of New York City in this week’s Metropolitan Diary.`\
