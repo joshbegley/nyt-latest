@@ -18,13 +18,13 @@ https://nytimes.com/reuters/2020/07/11/sports/basketball/11reuters-basketball-nb
 `The NHL announced on Saturday that teams will not be allowed to release information on coronavirus tests or injuries in the upcoming restarted season.`\
 https://nytimes.com/reuters/2020/07/11/sports/hockey/11reuters-icehockey-nhl-information.html?searchResultPosition=5
 
-**In Rare Public Comments, Mueller Defends Prosecution of Roger Stone**\
-`Breaking his silence, the former special counsel rebutted President Trump’s attacks on the Russia investigation and said Mr. Stone had been prosecuted “because he committed federal crimes.”`\
-https://nytimes.com/2020/07/11/us/politics/mueller-roger-stone-oped.html?searchResultPosition=6
-
 **U.S. CDC Reports 3,173,212 Coronavirus Cases**\
 `The U.S. Centers for Disease Control and Prevention (CDC) reported 3,173,212 cases of coronavirus as of Friday, an increase of 66,281 from its previous count, and said the number of deaths had risen by 811 to 133,666.`\
-https://nytimes.com/reuters/2020/07/11/us/11reuters-health-coronavirus-usa-cdc.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/07/11/us/11reuters-health-coronavirus-usa-cdc.html?searchResultPosition=6
+
+**In Rare Public Comments, Mueller Defends Prosecution of Roger Stone**\
+`Breaking his silence, the former special counsel rebutted President Trump’s attacks on the Russia investigation and said Mr. Stone had been prosecuted “because he committed federal crimes.”`\
+https://nytimes.com/2020/07/11/us/politics/mueller-roger-stone-oped.html?searchResultPosition=7
 
 **Ubisoft Announces Staff Departures After Misconduct Allegations**\
 `French video games group Ubisoft announced several staff departures on Saturday after conducting a review in response to allegations of misconduct at the company, which earlier reports said centered around sexual misconduct charges. `\
