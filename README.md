@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/07/12/business/12reuters-health-coronavirus-usa
 `Zoom calls and texts are emotionally draining, but exchanging handwritten notes can be sublime.`\
 https://nytimes.com/2020/07/12/opinion/letter-writing-coronavirus.html?searchResultPosition=9
 
-**As COVID-19 Cases Surge in Florida, Anti-Mask Activists Hold Protests, Disney World Reopens**\
-`As Florida posts the biggest surge of coronavirus cases in the country, Walt Disney World in Orlando opened to the public for the first time in four months and anti-mask activists held a rally at a nearby restaurant.`\
+**Florida Sets One-Day Record With Over 15,000 New Coronavirus Cases, Bigger Increase Than Most Countries**\
+`Florida reported a record increase of more than 15,000 new cases of COVID-19 in 24 hours on Sunday, a day after Walt Disney World in Orlando reopened and anti-mask activists held a rally at a nearby restaurant.`\
 https://nytimes.com/reuters/2020/07/12/us/12reuters-health-coronavirus-usa.html?searchResultPosition=10
 
