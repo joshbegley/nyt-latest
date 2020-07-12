@@ -24,7 +24,7 @@ https://nytimes.com/reuters/2020/07/12/sports/baseball/12reuters-baseball-mlb-ny
 
 **Trump’s Health Officials Warn More Will Die as Covid Cases Rise**\
 `They struck a sober note on Sunday’s news programs, strongly urging the vast majority of people in hard-hit cities and states to wear masks and avoid large gatherings.`\
-https://nytimes.com/2020/07/12/health/trumps-health-officials-warn-more-will-die-as-covid-cases-rise.html?searchResultPosition=7
+https://nytimes.com/2020/07/12/health/coronavirus-trump-deaths.html?searchResultPosition=7
 
 **Report: Lakers' Davis Won't Wear Social Justice Message**\
 `Los Angeles Lakers star Anthony Davis is joining teammate LeBron James in passing on placing a social justice message on the back of his jersey when the NBA season starts again, Yahoo Sports reported Sunday.`\
