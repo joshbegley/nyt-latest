@@ -1,40 +1,40 @@
+**Trump vs. the Women Who Lead Michigan: A Battle With 2020 Implications**\
+`The president has picked fights with Michigan’s governor, attorney general and secretary of state over voting rights and the coronavirus. They haven’t backed down.`\
+https://nytimes.com/2020/07/12/us/politics/trump-michigan-whitmer-benson-nessel.html?searchResultPosition=1
+
+**Bartering Child’s Dress for Food: Life in Lebanon’s Economic Crisis**\
+`A TV chef abandons unaffordable beef. Blackouts make for sweltering summer nights. Changing money feels like a drug deal: The financial meltdown means daily pain and a blow to a country’s pride.`\
+https://nytimes.com/2020/07/12/world/middleeast/beirut-lebanon-economic-crisis.html?searchResultPosition=2
+
+**An Evangelist for Remote Work Sees the Rest of the World Catch On**\
+`Matt Mullenweg, the founder of Automattic, which runs the publishing platform WordPress, says working remotely is “good for the environment” and “good for the economy.”`\
+https://nytimes.com/2020/07/12/business/matt-mullenweg-automattic-corner-office.html?searchResultPosition=3
+
+**Pittsburgh Seemed Like a Virus Success Story. Now Cases Are Surging.**\
+`Pittsburgh, a sister city to Wuhan, China, saw only modest cases for months. In the last two weeks, cases are suddenly soaring.`\
+https://nytimes.com/2020/07/12/us/pittsburgh-seemed-like-a-virus-success-story-now-cases-are-surging.html?searchResultPosition=4
+
+**‘Perry Mason’ Season 1, Episode 4 Recap:**\
+`Perry had it pretty easy this week, but others in his orbit were forced to follow darker paths.`\
+https://nytimes.com/2020/07/12/arts/television/perry-mason-season-1-episode-4-recap.html?searchResultPosition=5
+
+**‘Action Park’ Looks Back in Amusement and Terror**\
+`In a new memoir, Andy Mulvihill tells the story of the notorious New Jersey adventure land founded by his father.`\
+https://nytimes.com/2020/07/12/books/action-park-dangerous-amusement-park-andy-mulvihill-interview.html?searchResultPosition=6
+
+**Indonesia Reports 1,681 New Coronavirus Cases-Health Ministry Official**\
+`Indonesia reported 1,681 new coronavirus cases on Sunday, bringing the total count to 75,699, Health Ministry official Achmad Yurianto told a televised news briefing.`\
+https://nytimes.com/reuters/2020/07/12/world/asia/12reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=7
+
 **What Trump Wants From Roger Stone**\
 `The president needs political help, and who better to give it than his political guru of many decades?`\
-https://nytimes.com/2020/07/12/opinion/roger-stone-trump-commutation.html?searchResultPosition=1
+https://nytimes.com/2020/07/12/opinion/roger-stone-trump-commutation.html?searchResultPosition=8
 
 **Federer-Backed Sports Shoe Maker On Preparing for IPO, Swiss Paper Says**\
 `Swiss sports shoe maker On, partly owned by tennis champion Roger Federer, is in the early stages of preparing for a stock  exchange listing in summer or autumn of next year, newspaper NZZ am Sonntag reported.`\
-https://nytimes.com/reuters/2020/07/12/world/europe/12reuters-on-ipo.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/12/world/europe/12reuters-on-ipo.html?searchResultPosition=9
 
 **Safety First for Spaniards Voting Amid New Coronavirus Outbreaks**\
 `Voters in northern Spain wore face masks and used hand sanitizer gel before entering polling stations on Sunday as Galicia and the Basque Country held regional elections while fighting localised outbreaks of COVID-19.`\
-https://nytimes.com/reuters/2020/07/12/world/europe/12reuters-spain-politics-basque-election.html?searchResultPosition=3
-
-**Poles Vote in Presidential Election That Highlights Country's Deep Divisions**\
-`Poles were voting on Sunday in a knife-edge presidential election that has highlighted the country's deep political divisions and may shape its future relations with the European Union.`\
-https://nytimes.com/reuters/2020/07/12/world/europe/12reuters-poland-election.html?searchResultPosition=4
-
-**Libyan Forces Set Conditions for Lifting Oil Blockade**\
-`Forces loyal to a Libyan commander said they will only allow the reopening of oil fields and terminals once a mechanism has been set up to fairly distribute revenue across the country, which is split between rival, warring factions.`\
-https://nytimes.com/aponline/2020/07/12/world/middleeast/ap-ml-libya.html?searchResultPosition=5
-
-**As India Struggles With Coronavirus, Bollywood’s Biggest Star Tests Positive**\
-`Amitabh Bachchan, a revered celebrity whose face is everywhere in India, checked into a hospital on Saturday, prompting countless Indians to pray for him.`\
-https://nytimes.com/2020/07/12/world/asia/amitabh-bachchan-coronavirus-india-bollywood.html?searchResultPosition=6
-
-**AP Was There: McEnroe Wins Tiebreaker, Borg Wins Wimbledon**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/07/12/sports/tennis/ap-ten-ap-was-there-1980-wimbledon.html?searchResultPosition=7
-
-**Australia's Victoria State Marks Week of Triple-Digit Coronavirus Cases**\
-`Australia's Victoria state marked a week of triple-digit increases in new coronavirus infections on Sunday, while a community outbreak in neighbouring New South Wales (NSW) has put the state on high alert.`\
-https://nytimes.com/reuters/2020/07/12/world/asia/12reuters-health-coronavirus-australia.html?searchResultPosition=8
-
-**Lives Will Be Lost as Syria Aid Access Cut, Aid Agencies Warn**\
-`A U.N. Security Council resolution that leaves only one of two border crossings open for aid deliveries from Turkey into rebel-held northwestern Syria will cost lives and intensify the suffering of 1.3 million people living there, aid agencies said.  `\
-https://nytimes.com/reuters/2020/07/12/world/middleeast/12reuters-syria-security-aid.html?searchResultPosition=9
-
-**Abu Dhabi Fund Suspends Debt Service Repayments for Countries, Companies**\
-`Abu Dhabi Fund for Development has suspended debt service repayments for some countries and companies for the year, the state-financed fund said on Sunday.`\
-https://nytimes.com/reuters/2020/07/12/world/middleeast/12reuters-health-coronavirus-emirates-fund.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/12/world/europe/12reuters-spain-politics-basque-election.html?searchResultPosition=10
 
