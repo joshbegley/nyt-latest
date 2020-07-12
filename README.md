@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/07/12/sports/soccer/12reuters-health-coronaviru
 https://nytimes.com/aponline/2020/07/12/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=9
 
 **Lebanon Records New Coronavirus Infection High With More Than 100 Cases**\
-`Lebanon has recorded more than 100 new coronavirus infections in the last day, its highest daily increase yet, with most of the cases among workers of a cleaning company, the health minister said on Sunday.`\
+`A Lebanese waste management company is quarantining some 133 Syrian workers who tested positive for the coronavirus, the company manager said on Sunday, as Lebanon recorded a new daily high for infections.`\
 https://nytimes.com/reuters/2020/07/12/world/middleeast/12reuters-health-coronavirus-lebanon.html?searchResultPosition=10
 
