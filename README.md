@@ -2,8 +2,8 @@
 `Justin Thomas shot a second consecutive six-under par to seize the lead from Collin Morikawa at the third round of the Workday Charity Open in Dublin, Ohio on Saturday.`\
 https://nytimes.com/reuters/2020/07/11/sports/golf/11reuters-golf-ohio.html?searchResultPosition=1
 
-**Authorities Say Shootout in South Texas Border Town Leaves 2 Police Officers Dead, Suspect Wounded**\
-`Authorities say shootout in south Texas border town leaves 2 police officers dead, suspect wounded.`\
+**2 Officers Killed in Shootout in South Texas Border Town**\
+`Two police officers were shot and killed Saturday in a South Texas border town after reportedly responding to a disturbance call, authorities said.`\
 https://nytimes.com/aponline/2020/07/11/us/ap-us-fatal-police-shooting-texas.html?searchResultPosition=2
 
 **Mexico Reports 6,094 New Coronavirus Cases, 539 More Deaths**\
@@ -18,13 +18,13 @@ https://nytimes.com/reuters/2020/07/11/sports/basketball/11reuters-basketball-nb
 `The NHL announced on Saturday that teams will not be allowed to release information on coronavirus tests or injuries in the upcoming restarted season.`\
 https://nytimes.com/reuters/2020/07/11/sports/hockey/11reuters-icehockey-nhl-information.html?searchResultPosition=5
 
-**U.S. CDC Reports 3,173,212 Coronavirus Cases**\
-`The U.S. Centers for Disease Control and Prevention (CDC) reported 3,173,212 cases of coronavirus as of Friday, an increase of 66,281 from its previous count, and said the number of deaths had risen by 811 to 133,666.`\
-https://nytimes.com/reuters/2020/07/11/us/11reuters-health-coronavirus-usa-cdc.html?searchResultPosition=6
-
 **In Rare Public Comments, Mueller Defends Prosecution of Roger Stone**\
 `Breaking his silence, the former special counsel rebutted President Trump’s attacks on the Russia investigation and said Mr. Stone had been prosecuted “because he committed federal crimes.”`\
-https://nytimes.com/2020/07/11/us/politics/mueller-roger-stone-oped.html?searchResultPosition=7
+https://nytimes.com/2020/07/11/us/politics/mueller-roger-stone-oped.html?searchResultPosition=6
+
+**U.S. CDC Reports 3,173,212 Coronavirus Cases**\
+`The U.S. Centers for Disease Control and Prevention (CDC) reported 3,173,212 cases of coronavirus as of Friday, an increase of 66,281 from its previous count, and said the number of deaths had risen by 811 to 133,666.`\
+https://nytimes.com/reuters/2020/07/11/us/11reuters-health-coronavirus-usa-cdc.html?searchResultPosition=7
 
 **Ubisoft Announces Staff Departures After Misconduct Allegations**\
 `French video games group Ubisoft announced several staff departures on Saturday after conducting a review in response to allegations of misconduct at the company, which earlier reports said centered around sexual misconduct charges. `\
