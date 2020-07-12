@@ -18,13 +18,13 @@ https://nytimes.com/reuters/2020/07/12/world/middleeast/12reuters-yemen-security
 `The official funeral for Seoul Mayor Park Won-soon will be held online this week over coronavirus concerns, his funeral committee said Sunday.`\
 https://nytimes.com/aponline/2020/07/12/world/asia/ap-as-skorea-seoul-mayor.html?searchResultPosition=5
 
-**Trump vs. the Women Who Lead Michigan: A Battle With 2020 Implications**\
-`The president has picked fights with Michigan’s governor, attorney general and secretary of state over voting rights and the coronavirus. They haven’t backed down.`\
-https://nytimes.com/2020/07/12/us/politics/trump-michigan-whitmer-benson-nessel.html?searchResultPosition=6
-
 **Bartering Child’s Dress for Food: Life in Lebanon’s Economic Crisis**\
 `A TV chef abandons unaffordable beef. Blackouts make for sweltering summer nights. Changing money feels like a drug deal: The financial meltdown means daily pain and a blow to a country’s pride.`\
-https://nytimes.com/2020/07/12/world/middleeast/beirut-lebanon-economic-crisis.html?searchResultPosition=7
+https://nytimes.com/2020/07/12/world/middleeast/beirut-lebanon-economic-crisis.html?searchResultPosition=6
+
+**Trump vs. the Women Who Lead Michigan: A Battle With 2020 Implications**\
+`The president has picked fights with Michigan’s governor, attorney general and secretary of state over voting rights and the coronavirus. They haven’t backed down.`\
+https://nytimes.com/2020/07/12/us/politics/trump-michigan-whitmer-benson-nessel.html?searchResultPosition=7
 
 **An Evangelist for Remote Work Sees the Rest of the World Catch On**\
 `Matt Mullenweg, the founder of Automattic, which runs the publishing platform WordPress, says working remotely is “good for the environment” and “good for the economy.”`\
