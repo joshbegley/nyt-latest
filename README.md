@@ -1,4 +1,4 @@
-**Iran Agency Says Chain of Errors Caused Ukrainian Plane Crash: Report**\
+**Iran Agency Says Chain of Errors Caused Ukrainian Plane Crash**\
 `Iran's Civil Aviation Organisation blamed a misalignment of a radar system and lack of communication between the air defence operator and his commanders for the accidental downing of a Ukrainian passenger plane in January that killed 176 people aboard.`\
 https://nytimes.com/reuters/2020/07/12/world/middleeast/12reuters-iran-crash-report.html?searchResultPosition=1
 
