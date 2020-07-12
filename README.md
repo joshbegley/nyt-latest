@@ -26,8 +26,8 @@ https://nytimes.com/aponline/2020/07/12/business/ap-virus-outbreak-the-latest.ht
 `Corrections that appeared in print on Sunday, July 12, 2020`\
 https://nytimes.com/2020/07/12/pageoneplus/corrections-july-12-2020.html?searchResultPosition=7
 
-**Petr Yan Stops Aldo, Claims Vacant UFC Bantamweight Belt**\
-`Petr Yan won the vacant UFC bantamweight championship with a fifth-round stoppage victory over José Aldo at UFC 251 on Saturday night.`\
+**Volkanovski Retains UFC Title, Yan Grabs Bantamweight Belt**\
+`Alexander Volkanovski retained his featherweight title with a narrow split decision over Max Holloway at UFC 251 on Sunday.`\
 https://nytimes.com/aponline/2020/07/12/sports/ap-mma-ufc-251.html?searchResultPosition=8
 
 **Today in History**\
