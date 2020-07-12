@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/07/12/world/americas/12reuters-health-coronavir
 `Poland's incumbent president Andrzej Duda was slightly ahead in Sunday's presidential election, a late poll showed, a narrow victory which if confirmed would allow the ruling nationalists to deepen their conservative reforms.`\
 https://nytimes.com/reuters/2020/07/12/world/europe/12reuters-poland-election-latepoll.html?searchResultPosition=2
 
-**11-Year-Old and 2 Teenagers Killed in Car Crash at Brooklyn Airfield**\
+**11-Year-Old and 2 Teenagers Killed in Crash of Cars Doing ‘Doughnuts’**\
 `Four other teenagers were also injured in the crash, which occurred after the teenage drivers were “doing doughnuts” at Floyd Bennett Field, the police said.`\
 https://nytimes.com/2020/07/12/nyregion/brooklyn-car-crash-bennett-field.html?searchResultPosition=3
 
