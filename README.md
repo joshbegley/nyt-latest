@@ -1,5 +1,5 @@
 **Who Was That Masked Man?**\
-`President Trump finally wore a face mask to visit Walter Reed. It was weirdly anticlimatic.`\
+`President Trump finally wore a face mask to visit Walter Reed. It was weirdly anticlimactic.`\
 https://nytimes.com/2020/07/12/style/president-trump-face-mask.html?searchResultPosition=1
 
 **Live Music Returns to the Shore: ‘It’s Like Getting Your Life Back’**\
