@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/07/12/business/ap-virus-outbreak-the-latest.ht
 `Corrections that appeared in print on Sunday, July 12, 2020`\
 https://nytimes.com/2020/07/12/pageoneplus/corrections-july-12-2020.html?searchResultPosition=8
 
-**Volkanovski Retains UFC Title, Yan Grabs Bantamweight Belt**\
-`Alexander Volkanovski retained his featherweight title with a narrow split decision over Max Holloway at UFC 251 on Sunday.`\
+**Usman, Volkanovski, Yan Leave Fight Island With Belts**\
+`Kamaru Usman retained his welterweight title with a smothering victory over short-notice challenger Jorge Masvidal at UFC 251 on Sunday.`\
 https://nytimes.com/aponline/2020/07/12/sports/ap-mma-ufc-251.html?searchResultPosition=9
 
 **Today in History**\
