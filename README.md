@@ -2,8 +2,8 @@
 `France and Britain signed an agreement Sunday to share intelligence in their joint fight against the human traffickers who are illegally smuggling migrants across the English Channel.`\
 https://nytimes.com/aponline/2020/07/12/world/europe/ap-eu-europe-migrants.html?searchResultPosition=1
 
-**Qualcomm Invests 7.3 Billion Rupees in Reliance Digital Unit**\
-`India's Reliance Industries on Sunday said Qualcomm Inc's investment arm will buy a 0.15% stake in its digital unit Jio Platforms for 7.3 billion Indian rupees ($97.1 million).`\
+**Reliance's Digital Unit Wins Qualcomm Backing in Boost to 5G Plans**\
+`India's Reliance Industries said on Sunday Qualcomm Inc's investment arm will buy a 0.15% stake in its digital unit Jio Platforms for 7.3 billion rupees ($97.1 million).`\
 https://nytimes.com/reuters/2020/07/12/technology/12reuters-reliance-investment-qualcomm.html?searchResultPosition=2
 
 **Kentucky’s Former Democratic Party Chief to Be Sentenced**\
