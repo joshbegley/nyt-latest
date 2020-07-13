@@ -1,4 +1,4 @@
-**White Supremacist Who Admitted Christchurch Killings to Represent Himself**\
+**White Supremacist Who Admitted Christchurch Killings Will Represent Himself**\
 `There is concern that the Australian who pleaded guilty to killing 51 worshipers at two mosques in New Zealand last year would use the occasion to spout his views.`\
 https://nytimes.com/2020/07/13/world/australia/christchurch-mosque-killings-sentencing.html?searchResultPosition=1
 
