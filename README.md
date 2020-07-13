@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/07/13/us/13reuters-health-coronavirus-californi
 https://nytimes.com/reuters/2020/07/13/world/americas/13reuters-canada-mexico-exclusive.html?searchResultPosition=6
 
 **How to Help Kids Cope With Moving**\
-`Moving may mean a welcome change of scenery for you, but to young children it can present an insecure world.`\
+`A move may mean a welcome change of scenery for you, but to young children it can present an insecure world.`\
 https://nytimes.com/2020/07/13/parenting/moving-tips-kids.html?searchResultPosition=7
 
 **New York Outlines the When and Hows of a Return to School**\
