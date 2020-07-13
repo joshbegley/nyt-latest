@@ -1,40 +1,40 @@
-**Futures Rise on Pepsi's Revenue Beat, M&A Cheer**\
-`U.S. stock index futures rose on Monday as Pepsi kicked off the second-quarter earnings season on a bright note, with a multi-billion dollar semiconductor deal also lifting the mood.`\
-https://nytimes.com/reuters/2020/07/13/business/13reuters-usa-stocks.html?searchResultPosition=1
+**Did Uncle Sam's Virus Aid Help Your Credit Score? Don't Count on a Loan**\
+`Rachel Levine, a New York-based office furniture saleswoman, lost her job in late March without any notice or severance pay when the coronavirus outbreak shut down most of the city. The married, 44-year-old mom is still out of work, unsure when or whether she will return to her previous job.`\
+https://nytimes.com/reuters/2020/07/13/business/13reuters-health-coronavirus-credit.html?searchResultPosition=1
 
-**Tunisia Raises 2020 Budget Deficit Estimate to 7% of GDP From 3%**\
-`Tunisia's budget deficit in 2020 will be about 7% of GDP compared with 3% expected previously, finance minister Nizar Yaich said on Monday.`\
-https://nytimes.com/reuters/2020/07/13/world/africa/13reuters-tunisia-economy-2020.html?searchResultPosition=2
+**In Egypt, Volunteers Make Meals With Love for Virus Patients**\
+`Fatma Youssef stuffs rice, chicken or meat and vegetables into boxes spread on her dining table -- tens of them in the last few weeks. On some, she scribbles “Be well” in Arabic; on others, she writes “Together, we will get through this.” `\
+https://nytimes.com/aponline/2020/07/13/us/ap-virus-outbreak-one-good-thing-cooked-with-love.html?searchResultPosition=2
 
-**Pfizer, BioNTech's Coronavirus Vaccines Get FDA's 'Fast Track' Status**\
-`Two experimental coronavirus vaccines by German biotech firm BioNTech and U.S. pharmaceutical giant Pfizer have received the U.S. Food and Drug Administration's 'fast track' designation, the companies said on Monday. `\
-https://nytimes.com/reuters/2020/07/13/us/13reuters-health-coronavirus-biontech-pfizer.html?searchResultPosition=3
+**Coronavirus Outbreak at U.S. Bases in Japan Roils an Uneasy Relationship**\
+`The Marines reported 94 new cases on Okinawa, an island that had seen just 148 other infections. Local officials say the military is not doing enough.`\
+https://nytimes.com/2020/07/13/world/asia/coronavirus-military-okinawa.html?searchResultPosition=3
 
-**Germany Regrets Turkish Court Ruling on Hagia Sophia, Government Spokesman Says**\
-`The German government regretted the decision of a Turkish court to convert Istanbul's Hagia Sophia from a museum back into a mosque, a government spokesman said, adding that Germany would watch closely to see how the decision on this "masterpiece" was implemented.`\
-https://nytimes.com/reuters/2020/07/13/world/europe/13reuters-turkey-museum-germany.html?searchResultPosition=4
+**Thailand Tightens Borders Over Fears of Second Wave of Coronavirus**\
+`Thailand ordered security stepped up at its land borders on Monday after concerns surged over a possible second wave of coronavirus infections, following the arrests of thousands of illegal migrants in the past month.`\
+https://nytimes.com/reuters/2020/07/13/world/asia/13reuters-health-coronavirus-thailand.html?searchResultPosition=4
 
-**3 Azerbaijani Troops Die in Clashes With Armenia**\
-`Armenia and Azerbaijan blamed each other Monday for skirmishes on their volatile border that has left three Azerbaijani soldiers dead and several troops wounded on both sides.`\
-https://nytimes.com/aponline/2020/07/13/world/europe/ap-eu-armenia-azerbaijan.html?searchResultPosition=5
+**Majority of U.S. Firms in Hong Kong Concerned About Security Law: Amcham**\
+`A majority of U.S. companies in Hong Kong surveyed by the American Chamber of Commerce (Amcham) are concerned about the sweeping new national security law in the global financial hub, with a third looking to move assets or business longer-term.`\
+https://nytimes.com/reuters/2020/07/13/world/asia/13reuters-hongkong-security-amcham.html?searchResultPosition=5
 
-**Germany Extends Fencing Along Polish Border to Keep Out Swine Fever**\
-`Fencing along the German-Polish border is being extended in stepped-up efforts to prevent African swine fever being spread to Germany by wild boars, German authorities said on Monday.`\
-https://nytimes.com/reuters/2020/07/13/world/europe/13reuters-germany-swinefever.html?searchResultPosition=6
+**IMF Slashes Middle East and Central Asia Growth Forecasts**\
+`The International Monetary Fund (IMF) has revised downwards its growth projections for the Middle East and Central Asia as economies were hurt worse than expected by the double blow of lower oil prices and the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/07/13/us/13reuters-imf-mideast.html?searchResultPosition=6
 
-**South Korea to Host 2023 Annual ADB Meeting in Incheon**\
-`South Korea's finance ministry said on Monday the country planned to host the 56th annual meeting of the Asian Development Bank (ADB) in Incheon in 2023, as earlier plans to host an annual meeting this year in September was disrupted by the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/07/13/world/asia/13reuters-adb-southkorea.html?searchResultPosition=7
+**U.S. Appeals Court Says First Federal Execution in 17 Years Can Proceed Monday**\
+`The first federal execution in 17 years is set to go ahead on Monday after a U.S. appeals court overturned a lower court injunction, saying a lawsuit by the victims' family that had put the execution on hold had no legal standing.`\
+https://nytimes.com/reuters/2020/07/13/us/13reuters-usa-executions.html?searchResultPosition=7
 
-**Sweden Joins France, Germany in Weighing Measures Against China Over Hong Kong**\
-`Sweden said on Monday it supported Franco-German efforts for a robust response to China's new security law on Hong Kong, joining Denmark and the Netherlands in pushing the European Union to consider countermeasures on Beijing. `\
-https://nytimes.com/reuters/2020/07/13/world/europe/13reuters-hongkong-security-eu.html?searchResultPosition=8
+**Ex-Nissan Boss Ghosn Says Helping Everyone Who Stood by Him**\
+`Former Nissan Motor chairman Carlos Ghosn is helping everyone who stood by him, he said in an interview broadcast on Saturday, though he declined to comment on cases of people accused of helping him flee to Lebanon from Japan.`\
+https://nytimes.com/reuters/2020/07/13/business/13reuters-nissan-ghosn.html?searchResultPosition=8
 
-**Fans in India Pray for Bollywood's Bachchans to Recover From COVID-19**\
-`Fans across India prayed on Monday for Bollywood legend Amitabh Bachchan and others members of his movie star family who have fallen sick with the coronavirus as the one-day rise in infections hit a new record without any sign of a peak. `\
-https://nytimes.com/reuters/2020/07/13/arts/13reuters-health-coronavirus-india-bachchan.html?searchResultPosition=9
+**Library of Congress to Honor Author Colson Whitehead**\
+`Colson Whitehead keeps winning awards. `\
+https://nytimes.com/aponline/2020/07/13/us/ap-us-books-whitehead-library-of-congress.html?searchResultPosition=9
 
-**UK Tries New Campaign to Prepare Public for Brexit**\
-`Brexit moved back to the front-burner of British politics on Monday, months after COVID-19 knocked it out of the headlines, with the government launching a new public information campaign to prepare the nation for departure.`\
-https://nytimes.com/aponline/2020/07/13/business/ap-eu-britain-brexit.html?searchResultPosition=10
+**The Initial Roger Stone Fallout**\
+`“Unprecedented, historic corruption,” Romney calls a commutation: This is your morning tip sheet.`\
+https://nytimes.com/2020/07/13/us/politics/roger-stone-trump.html?searchResultPosition=10
 
