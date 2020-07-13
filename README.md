@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/07/12/business/12reuters-global-oil.html?search
 `The Philippines' health ministry on Monday confirmed 162 new coronavirus deaths, the country's biggest single-day increase in casualties, as a health ministry official said authorities validated some earlier cases included in the tally.`\
 https://nytimes.com/reuters/2020/07/12/world/asia/12reuters-health-coronavirus-philippines-cases.html?searchResultPosition=4
 
-**BOJ Appoints Shimizu as New Head of Monetary Affairs Department**\
+**BOJ Appoints New Monetary Policy Team Head Amid Battle to Curb Coronavirus Economic Impact**\
 `The Bank of Japan said on Monday that Seiichi Shimizu, currently head of its markets department, will become head of the bank's department overseeing monetary policy drafting.`\
 https://nytimes.com/reuters/2020/07/12/world/asia/12reuters-japan-economy-boj-workers.html?searchResultPosition=5
 
