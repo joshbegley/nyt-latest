@@ -1,40 +1,40 @@
+**Nearly 1,000 U.S. Immigration Detention Center Employees Test Positive for Coronavirus**\
+`More than 880 employees of private contractors running U.S. immigration detention centers have tested positive for the novel coronavirus, according to congressional testimony given by  company executives of Monday.`\
+https://nytimes.com/reuters/2020/07/13/us/13reuters-health-coronavirus-usa-immigration.html?searchResultPosition=1
+
+**Newsom Announces Rollbacks in California’s Reopening Plans**\
+`Gov. Gavin Newsom of California said he was moving to close indoor operations for restaurants, wineries, movie theaters, zoos, and bars would be forced to close all operations.`\
+https://nytimes.com/video/us/100000007237014/california-coronavirus-reopening-rollback.html?searchResultPosition=2
+
+**Attorney: Indiana Hate Crime Allegation Is 'Smear Campaign'**\
+`An attorney for two people accused of being involved in a reported assault on a Black man at a southern Indiana lake said Monday his clients are victims of a “smear campaign” and a “rush to judgment."`\
+https://nytimes.com/aponline/2020/07/13/us/ap-us-racial-injustice-indiana-attack.html?searchResultPosition=3
+
+**America Drank Away Its Children’s Future**\
+`As the school year looms, the pandemic is still raging.`\
+https://nytimes.com/2020/07/13/opinion/coronavirus-schools-bars.html?searchResultPosition=4
+
+**Jeff Sessions and Tommy Tuberville Close Out Alabama’s G.O.P. Senate Runoff**\
+`Mr. Sessions, the former attorney general and current Trump adversary, and Mr. Tuberville, a former Auburn University football coach, will face voters on Tuesday.`\
+https://nytimes.com/2020/07/13/us/politics/sessions-tuberville.html?searchResultPosition=5
+
+**Shoppers in England Ordered to Wear Face Coverings From July 24**\
+`Shoppers in England will have to wear face coverings in shops and supermarkets from July 24 to help reduce the risk of a new pick-up in the spread of the coronavirus, Prime Minister Boris Johnson's office said.`\
+https://nytimes.com/reuters/2020/07/13/world/europe/13reuters-health-coronavirus-britain-masks.html?searchResultPosition=6
+
+**In Reversal, UK Says It Will Make Masks Mandatory in Shops**\
+`The British government decided Monday to require people to wear face coverings in shops, joining a long list of countries that have made masks mandatory under some circumstances in response to the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/07/13/world/europe/ap-eu-virus-outbreak-britain.html?searchResultPosition=7
+
+**Major League Teams Try to Ramp Up the Competition in Camp**\
+`Well-traveled Milwaukee Brewers first baseman-outfielder Logan Morrison figures it will be easy for him to adjust to games without spectators this season.`\
+https://nytimes.com/aponline/2020/07/13/sports/baseball/ap-bbo-baseball-rdp.html?searchResultPosition=8
+
 **Brazil Sacks Official After Soaring June Deforestation Data**\
 `Brazil’s government on Monday fired an official at the national space agency Inpe whose department is responsible for satellite monitoring of the Amazon rainforest, just three days after the release of June deforestation data reflected a continued increase in degradation.`\
-https://nytimes.com/aponline/2020/07/13/world/americas/ap-lt-brazil-deforestation-firing.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/13/world/americas/ap-lt-brazil-deforestation-firing.html?searchResultPosition=9
 
 **California’s rollback, Washington Redskins, Koalas: Your Monday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/07/13/briefing/california-the-redskins-koalas.html?searchResultPosition=2
-
-**Trump Inaugural Panel Agrees to Fine Over Registration in NJ**\
-`New Jersey Attorney General Gurbir Grewal said Monday he reached a deal with President Donald Trump's inaugural committee stemming from a lawsuit alleging the organization failed to properly register in the state. `\
-https://nytimes.com/aponline/2020/07/13/us/ap-us-trump-inaugural-probe.html?searchResultPosition=3
-
-**Trio of Ohio Sisters Give Birth on Same Day at Same Hospital**\
-`Three Ohio sisters have defied odds by giving birth on the same day in the same hospital with the same obstetrician overseeing their deliveries.`\
-https://nytimes.com/aponline/2020/07/13/us/ap-us-odd-sisters-same-day-births.html?searchResultPosition=4
-
-**‘Big Friendship,’ by Aminatou Sow: An Excerpt**\
-`An excerpt from “Big Friendship,” by Aminatou Sow`\
-https://nytimes.com/2020/07/13/books/review/big-friendship-by-aminatou-sow-an-excerpt.html?searchResultPosition=5
-
-**SoftBank Group Explores Options for Chip Designer Arm Holdings: WSJ**\
-`SoftBank Group Corp is  exploring options including a full or partial sale or public offering of British chip designer Arm Holdings, the Wall Street Journal reported on Monday.`\
-https://nytimes.com/reuters/2020/07/13/business/13reuters-softbank-group-divestiture-arm.html?searchResultPosition=6
-
-**Suriname Gets New President, Faces Economic Crisis**\
-`Suriname's newly elected parliament chose a former police chief as the country's president on Monday to replace Desiree “Desi” Bouterse, who faces a murder conviction at home and a drug smuggling sentence abroad.`\
-https://nytimes.com/aponline/2020/07/13/world/americas/ap-lt-suriname-president.html?searchResultPosition=7
-
-**Citing Politics, Democrats Wants Census Appointees Removed**\
-`Saying they represented the latest effort by the Trump administration to politicize the 2020 census, House Democrats on Monday asked U.S. Commerce Secretary Wilbur Ross to withdraw two appointees from top positions at the U.S. Census Bureau.`\
-https://nytimes.com/aponline/2020/07/13/us/ap-us-2020-census.html?searchResultPosition=8
-
-**THE ART OF VIRTUAL TRANSFORMATION**\
-`How one museum quickly pivoted to an online experience while also streamlining digital business operations.`\
-https://nytimes.com/paidpost/sap-concur/the-art-of-virtual-transformation.html?searchResultPosition=9
-
-**Sudan Declares Emergency in Darfur Region After Violence**\
-`Sudan declared a state of emergency in the conflict-ridden western region of Darfur after violence and unrest in two towns, state news agency SUNA said.`\
-https://nytimes.com/reuters/2020/07/13/world/africa/13reuters-sudan-violence.html?searchResultPosition=10
+https://nytimes.com/2020/07/13/briefing/california-the-redskins-koalas.html?searchResultPosition=10
 
