@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/07/13/world/europe/13reuters-health-coronavirus
 https://nytimes.com/reuters/2020/07/13/world/europe/13reuters-health-coronavirus-britain-reopening.html?searchResultPosition=8
 
 **1-Year-Old Is Shot and Killed at Brooklyn Cookout**\
-`The baby, Davell Gardner, was among four people hit when a shooter opened fire on an outdoor party in a park at 11:30 p.m.`\
+`The baby, Davell Gardner, was among four people hit when a shooter opened fire on an outdoor party in a park on Sunday night.`\
 https://nytimes.com/2020/07/13/nyregion/Davell-Gardner-brooklyn-shooting.html?searchResultPosition=9
 
 **BoE's Bailey Sees Economy Improving, but 'Very Worried' About Jobs**\
