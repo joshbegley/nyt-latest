@@ -6,13 +6,13 @@ https://nytimes.com/reuters/2020/07/13/world/africa/13reuters-health-coronavirus
 `The Texas Supreme Court on Monday upheld Houston's refusal to allow the state Republican convention to hold in-person events in the city due to the coronavirus pandemic. `\
 https://nytimes.com/aponline/2020/07/13/us/ap-us-virus-outbreak-texas-gop-convention.html?searchResultPosition=2
 
-**Bad Weather May Delay 1st UAE Mars Mission on Japan Rocket**\
-`Final preparations for the launch from Japan of the United Arab Emirates’ first Mars mission were underway Monday, but there was a chance of a delay because of bad weather, a Japanese rocket provider said.`\
-https://nytimes.com/aponline/2020/07/13/world/asia/ap-as-japan-uae-mars-mission.html?searchResultPosition=3
-
 **Bahrain Adds $470 Million in Coronavirus Impact Spending to 2020 Budget**\
 `Bahrain will add around 177 million dinars ($470 million) to its 2020 state budget in emergency spending on fighting the new coronavirus pandemic, state news agency BNA said on Monday, reporting a royal decree.`\
-https://nytimes.com/reuters/2020/07/13/world/middleeast/13reuters-bahrain-economy-spending.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/13/world/middleeast/13reuters-bahrain-economy-spending.html?searchResultPosition=3
+
+**Bad Weather May Delay 1st UAE Mars Mission on Japan Rocket**\
+`Final preparations for the launch from Japan of the United Arab Emirates’ first Mars mission were underway Monday, but there was a chance of a delay because of bad weather, a Japanese rocket provider said.`\
+https://nytimes.com/aponline/2020/07/13/world/asia/ap-as-japan-uae-mars-mission.html?searchResultPosition=4
 
 **Strong Demand for Virus Testing Services; Snacking Surges**\
 `The outbreak of the coronavirus has dealt a shock to the global economy with unprecedented speed. Following are developments Monday related to the national and global response, the work place and the spread of the virus.`\
