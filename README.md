@@ -1,40 +1,40 @@
+**Cardinals Reliever Hicks Opts Out of Playing; Has Diabetes**\
+`Hard-throwing St. Louis Cardinals reliever Jordan Hicks has opted out of playing this season, citing pre-existing health concerns.`\
+https://nytimes.com/aponline/2020/07/13/sports/baseball/ap-bbn-cardinals-hicks-opts-out.html?searchResultPosition=1
+
+**Leaf Group Investors Allege CEO Conflicts Tainted Strategic Review**\
+`Six major investors in Leaf Group, pushing for the ouster of the content company's chief, said on Monday his strong ties with a board member compromised a recent strategic review of the operator of online brands.`\
+https://nytimes.com/reuters/2020/07/13/business/13reuters-leaf-group-investors.html?searchResultPosition=2
+
+**Latin American Coronavirus Deaths Overtake North American Fatalities**\
+`The number of deaths from the coronavirus in Latin America has exceeded the figure for North America for the first time since the start of the pandemic, a Reuters count showed on Monday.`\
+https://nytimes.com/reuters/2020/07/13/world/americas/13reuters-health-coronavirus-latam.html?searchResultPosition=3
+
+**Cuomo Issues Emergency Health Order on Quarantine Enforcement**\
+`Gov. Andrew M. Cuomo announced that New York would be tightening its restrictions on travelers from designated states with high coronavirus infection rates.`\
+https://nytimes.com/video/us/politics/100000007236721/cuomo-mandatory-quarantine.html?searchResultPosition=4
+
+**Rights Group: Reporter Jailed in Egypt Dies From Virus**\
+`A prominent Egyptian journalist who had been jailed on charges of broadcasting false news died of COVID-19 on Monday, according to an international press watchdog, raising fears that the coronavirus may be spreading undetected in Egypt’s notoriously crowded prisons.`\
+https://nytimes.com/aponline/2020/07/13/world/middleeast/ap-ml-egypt.html?searchResultPosition=5
+
+**Manchester City Won. Now Brace for the Losses.**\
+`City’s victory will be welcomed by rivals with deep pockets. But the demise of cost-control rules risks destabilizing teams, and a sport already shaken by the coronavirus pandemic.`\
+https://nytimes.com/2020/07/13/sports/soccer/man-city-ffp.html?searchResultPosition=6
+
 **Morikawa Leaps Over Woods in Official World Golf Ranking**\
 `Collin Morikawa vaulted past Tiger Woods in the Official World Golf Ranking, which were released Monday.`\
-https://nytimes.com/reuters/2020/07/13/sports/golf/13reuters-golf-pga-morikawa-woods.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/13/sports/golf/13reuters-golf-pga-morikawa-woods.html?searchResultPosition=7
 
 **Brazil Central Bank Must Adapt Regulation to Big Tech Companies, Director Says**\
 `Brazil's banking regulation must adapt to big technology companies to ensure competition in the financial arena, central bank director Joao Manoel Pinho de Mello said on Monday in a webcast with newspaper Valor Economico.`\
-https://nytimes.com/reuters/2020/07/13/technology/13reuters-brazil-central-bank.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/13/technology/13reuters-brazil-central-bank.html?searchResultPosition=8
 
 **California Shuts Bars, Indoor Dining and Most Gyms, Churches**\
 `California Gov. Gavin Newsom has extended the closure of bars and indoor dining statewide and has ordered gyms, churches and hair salons closed in most places as coronavirus cases keep rising in the nation's most populated state. `\
-https://nytimes.com/aponline/2020/07/13/business/ap-us-virus-outbreak-california.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/13/business/ap-us-virus-outbreak-california.html?searchResultPosition=9
 
 **The Massacre That Destroyed Tulsa’s ‘Black Wall Street’**\
 `In 1921, the city of Tulsa erupted in a spasm of hate and fire that destroyed its prosperous Black district. A century later, excavators are uncovering a “crime scene.”`\
-https://nytimes.com/2020/07/13/us/tulsa-massacre-graves-excavation.html?searchResultPosition=4
-
-**WNBA Announces Schedule, Season to Start July 25**\
-`The Women's National Basketball Association (WNBA) unveiled the schedule for its truncated 2020 season on Monday, with Seattle Storm and New York Liberty kicking off the action on July 25.`\
-https://nytimes.com/reuters/2020/07/13/sports/basketball/13reuters-health-coronavirus-wnba.html?searchResultPosition=5
-
-**WHO Boss Slams 'Mixed Messages' From Leaders on Coronavirus**\
-`The World Health Organization's chief on Monday slammed some government leaders for eroding public trust by sending mixed messages on the coronavirus and warned that their failures to stop their countries’ spiraling outbreaks mean there would be no return to normal “for the foreseeable future.”`\
-https://nytimes.com/aponline/2020/07/13/world/europe/ap-eu-virus-outbreak-un-who.html?searchResultPosition=6
-
-**California Governor Orders Churches, Businesses Shut as COVID-19 Cases Surge**\
-`California Governor Gavin Newsom on Monday ordered a massive retrenchment of the state's optimistic reopening on Monday, shutting bars and banning indoor restaurant dining statewide and closing churches, gyms and hair salons in hardest-hit counties.`\
-https://nytimes.com/reuters/2020/07/13/us/13reuters-health-coronavirus-california.html?searchResultPosition=7
-
-**Exclusive: Canadian Firms Warn Over Mexico Energy Policy at Dawn of Trade Deal**\
-`As Mexico celebrated a new trade deal with the United States and Canada on July 1, a group of Canadian energy investors warned their government that Mexico could already be violating the agreement for failing to respect contracts.`\
-https://nytimes.com/reuters/2020/07/13/world/americas/13reuters-canada-mexico-exclusive.html?searchResultPosition=8
-
-**How to Help Kids Cope With Moving**\
-`A move may mean a welcome change of scenery for you, but to young children it can present an insecure world.`\
-https://nytimes.com/2020/07/13/parenting/moving-tips-kids.html?searchResultPosition=9
-
-**New York Outlines the When and Hows of a Return to School**\
-`New York parents and educators got some long-awaited answers to their back-to-school questions Monday, with Gov.`\
-https://nytimes.com/aponline/2020/07/13/us/ap-us-virus-outbreak-new-york-.html?searchResultPosition=10
+https://nytimes.com/2020/07/13/us/tulsa-massacre-graves-excavation.html?searchResultPosition=10
 
