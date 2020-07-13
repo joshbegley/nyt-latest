@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/07/13/world/europe/13reuters-germany-economy-bu
 `Very few of 2,000 school children and teachers tested in the German state of Saxony showed antibodies to COVID-19, a study found on Monday, suggesting schools may not play as big a role in spreading the virus as some had feared.`\
 https://nytimes.com/reuters/2020/07/13/world/europe/13reuters-health-coronavirus-germany-schools.html?searchResultPosition=9
 
-**Lonza Works With China's Junshi on COVID-19 Treatment**\
-`Lonza Group said on Monday that China's Junshi Biosciences is using the Swiss contract drug manufacturer's technology to help produce a neutralizing antibody against COVID-19. `\
+**Lonza Licenses Technology to China's Junshi for Experimental COVID-19 Drug**\
+`Lonza Group said on Monday that China's Junshi Biosciences has licensed the Swiss contract drug manufacturer's technology to help produce a neutralizing antibody against COVID-19. `\
 https://nytimes.com/reuters/2020/07/13/world/europe/13reuters-health-coronavirus-lonza-junshi.html?searchResultPosition=10
 
