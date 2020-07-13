@@ -14,13 +14,13 @@ https://nytimes.com/reuters/2020/07/13/us/13reuters-health-coronavirus-schools-c
 `The Manhattan district attorney, Cyrus R. Vance Jr., has two big recent victories, but still has not said whether he is seeking re-election.`\
 https://nytimes.com/2020/07/13/nyregion/cy-vance-manhattan-da-trump.html?searchResultPosition=4
 
-**Protest in Pennsylvania After Cop Uses Knee to Restrain Man**\
-`Activists on Monday pressed their demand for police accountability after video emerged over  the weekend of an officer placing his knee on a man’s head and neck area outside a Pennsylvania hospital.`\
-https://nytimes.com/aponline/2020/07/13/us/ap-us-racial-injustice-pennsylvania.html?searchResultPosition=5
-
 **Millennials and Boomers: Pandemic Pain, by the Generation**\
 `Millennials, you're taking a big hit — again. And you're not OK, either, boomers.`\
-https://nytimes.com/aponline/2020/07/13/us/ap-us-virus-outbreak-generation-gap-1st-ld-writethru.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/07/13/us/ap-us-virus-outbreak-generation-gap-1st-ld-writethru.html?searchResultPosition=5
+
+**Protest in Pennsylvania After Cop Uses Knee to Restrain Man**\
+`Activists on Monday pressed their demand for police accountability after video emerged over  the weekend of an officer placing his knee on a man’s head and neck area outside a Pennsylvania hospital.`\
+https://nytimes.com/aponline/2020/07/13/us/ap-us-racial-injustice-pennsylvania.html?searchResultPosition=6
 
 **Your Tuesday Briefing**\
 `Hong Kong restrictions, Seoul mayor, Christchurch shooter: Here’s what you need to know.`\
