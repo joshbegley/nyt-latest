@@ -1,4 +1,4 @@
-**Suiname Gets New President, Faces Economic Crisis**\
+**Suriname Gets New President, Faces Economic Crisis**\
 `Suriname's newly elected parliament chose a former police chief as the country's president on Monday to replace Desiree “Desi” Bouterse, who faces a murder conviction at home and a drug smuggling sentence abroad.`\
 https://nytimes.com/aponline/2020/07/13/world/americas/ap-lt-suriname-president.html?searchResultPosition=1
 
