@@ -1,40 +1,40 @@
+**Poland's Election Result Still Uncertain, More Results Possible on Monday**\
+`The result of Poland's knife-edge presidential election was still uncertain as of Monday morning, with the National Electoral Commission expected to hold a news conference at 0600 GMT and late polls indicating a win for incumbent Andrzej Duda. `\
+https://nytimes.com/reuters/2020/07/13/world/europe/13reuters-poland-election.html?searchResultPosition=1
+
+**Australian Pub Cluster Adds to Second-Wave Coronavirus Fears**\
+`Australia's most populous state reported 14 new cases of COVID-19 on Monday, with a growing cluster at a pub used by freight drivers travelling the country adding to fears of a second wave of the virus.`\
+https://nytimes.com/reuters/2020/07/13/world/asia/13reuters-health-coronavirus-australia.html?searchResultPosition=2
+
+**Hong Kong Book Fair Postponed Amid Spike in Coronavirus Cases**\
+`The Hong Kong Book Fair has been postponed due to a spike in locally transmitted coronavirus cases in the global financial hub, the organiser said on Monday, just two days before the exhibition was due to open. `\
+https://nytimes.com/reuters/2020/07/13/world/asia/13reuters-health-coronavirus-hongkong.html?searchResultPosition=3
+
 **Look Out, Mars: Here We Come With a Fleet of Spacecraft**\
 `Mars is about to be invaded by planet Earth — big time.`\
-https://nytimes.com/aponline/2020/07/13/science/ap-us-sci-mars-missions.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/13/science/ap-us-sci-mars-missions.html?searchResultPosition=4
 
 **This Week: Bank Earns, Retail Sales, Housing Starts**\
 `A look at some of the key business events and economic indicators upcoming this week:`\
-https://nytimes.com/aponline/2020/07/13/business/ap-this-week-in-business.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/13/business/ap-this-week-in-business.html?searchResultPosition=5
 
 **Exclusive: U.S. Turns Screws on Maritime Industry to Cut Off Venezuela's Oil**\
 `Several companies that certify vessels are seaworthy and ship insurers have withdrawn services to tankers involved in the Venezuelan oil trade as the United States targets the maritime industry to tighten sanctions on the Latin American country.`\
-https://nytimes.com/reuters/2020/07/13/business/13reuters-venezuela-oil-shipping-exclusive.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/13/business/13reuters-venezuela-oil-shipping-exclusive.html?searchResultPosition=6
 
 **What’s on TV Monday: ‘CMA Best of the Fest’ and ‘Foodie Love’**\
 `The musical festival retrospective special airs on ABC. And an Isabel Coixet series arrives on HBO platforms.`\
-https://nytimes.com/2020/07/13/arts/television/whats-on-tv-monday-cma-best-of-the-fest-and-foodie-love.html?searchResultPosition=4
+https://nytimes.com/2020/07/13/arts/television/whats-on-tv-monday-cma-best-of-the-fest-and-foodie-love.html?searchResultPosition=7
 
 **Saudi-Led Coalition Says Intercepts Missiles, Drones From Yemen's Houthis**\
 `Yemen's Saudi-Led coalition said on Monday it intercepted and destroyed four missiles and six explosive drones launched overnight by Houthi forces towards the kingdom.`\
-https://nytimes.com/reuters/2020/07/13/world/middleeast/13reuters-saudi-security-yemen.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/07/13/world/middleeast/13reuters-saudi-security-yemen.html?searchResultPosition=8
 
 **The Latest: India Adds Over 28,000 New Coronavirus Cases**\
 `NEW DELHI — India reported another record surge of coronavirus infections on Monday, adding 28,701 new cases over the previous 24 hours.`\
-https://nytimes.com/aponline/2020/07/13/business/ap-virus-outbreak-the-latest.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/07/13/business/ap-virus-outbreak-the-latest.html?searchResultPosition=9
 
 **Funeral of Mayor of South Korean Capital Held Amid Allegations of Sexual Abuse**\
 `Friends, family and colleagues attended the small funeral Monday for the longtime mayor of Seoul, one of the country's most prominent elected officials, who leaves a complex legacy amid a criminal investigation into allegations of sexual harassment. `\
-https://nytimes.com/reuters/2020/07/13/world/asia/13reuters-southkorea-politics.html?searchResultPosition=7
-
-**China's Export Slump to Ease in June as Economies Reopen, Imports Fall Less: Reuters Poll**\
-`The slump in China's exports likely eased in June as some countries reopened their economies, while imports contracted less sharply on higher crude oil and commodities purchases, a Reuters poll showed on Monday. `\
-https://nytimes.com/reuters/2020/07/13/business/13reuters-china-economy-trade.html?searchResultPosition=8
-
-**Ready or Not: Election Costs Soar in Prep for Virus Voting**\
-`The demand for mail-in ballots is surging. Election workers need training. And polling booths might have to be outfitted with protective shields during the COVID-19 pandemic.`\
-https://nytimes.com/aponline/2020/07/13/us/politics/ap-us-virus-outbreak-election-assistance.html?searchResultPosition=9
-
-**2nd Person of Interest Announced in Death of 8-Year-Old Girl**\
-`Images of a second person of interest in the fatal shooting of an 8-year-old girl in Atlanta were released late Sunday as police searched for at least two shooters believed to be responsible for her death.`\
-https://nytimes.com/aponline/2020/07/13/us/ap-us-racial-injustice-child-killed.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/13/world/asia/13reuters-southkorea-politics.html?searchResultPosition=10
 
