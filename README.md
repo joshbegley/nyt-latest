@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/07/14/business/14reuters-global-forex.html?sear
 `India's number of coronavirus cases jumped by another 28,000 on Tuesday and are fast approaching 1 million.`\
 https://nytimes.com/aponline/2020/07/14/business/ap-as-virus-outbreak-asia.html?searchResultPosition=4
 
-**Roche Inks Deal With Blueprint Worth Up to $1.7 Billion for Cancer Drug**\
-`Swiss drugmaker Roche will pay up to $1.7 billion to Blueprint Medicines to help develop and commercialise a new treatment for people with so-called RET-altered cancers that have mutations that drive tumour growth. `\
+**Roche to Pay Blueprint Up to $1.7 Billion in Cancer Drug Deal**\
+`Swiss drugmaker Roche on Tuesday struck a deal worth up to $1.7 billion with Blueprint Medicines to develop and commercialise a new treatment for people with so-called RET-altered cancers whose mutations can drive tumour growth. `\
 https://nytimes.com/reuters/2020/07/14/world/europe/14reuters-blueprint-m-a-roche-hldg.html?searchResultPosition=5
 
 **Asia Ramps Up Coronavirus Curbs as New Clusters Erupt**\
