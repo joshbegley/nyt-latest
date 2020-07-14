@@ -31,7 +31,7 @@ https://nytimes.com/aponline/2020/07/13/business/ap-us-virus-outbreak-hawaii.htm
 https://nytimes.com/reuters/2020/07/13/world/asia/13reuters-japan-defence-whitepaper.html?searchResultPosition=8
 
 **Fox's Carlson Criticizes Ex-Writer,' Self-Righteous' Critics**\
-`Fox News' Tucker Carlson said Monday that his former writer who posted racist comments online was wrong but criticized “ghouls now beating their chest in triumph” after his staffer's resignation.`\
+`Fox News' Tucker Carlson said Monday that his former writer who posted racist comments online was wrong but criticized “ghouls now beating their chests in triumph” after his staffer's resignation.`\
 https://nytimes.com/aponline/2020/07/13/arts/ap-us-media-tucker-carlson.html?searchResultPosition=9
 
 **Beijing's Hong Kong Office Warns Pro-Democracy Poll Could Violate New Security Law**\
