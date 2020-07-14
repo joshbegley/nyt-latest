@@ -1,3 +1,7 @@
+**Biden's Texas Ad Signals Opportunity in GOP Stronghold**\
+`Joe Biden targeted Texas with a modest advertising investment on Tuesday that raised new questions about President Donald Trump's vulnerability in the longtime Republican stronghold as coronavirus infections explode.`\
+https://nytimes.com/aponline/2020/07/14/us/politics/ap-us-election-2020-biden-map.html?searchResultPosition=1
+
 **Greece Wants 'Crippling' EU Sanctions Ready to Use on Turkey**\
 `ATHENS, Greece — Greece wants its European Union partners to prepare “crippling” economic sanctions for use against neighboring Turkey if it goes ahead with planned offshore gas and oil exploration off Greek islands, Foreign Minister Nikos Dendias said Tuesday.`\
 https://nytimes.com/aponline/2020/07/14/world/europe/ap-eu-greece-turkey-offshore-exploration.html?searchResultPosition=2
@@ -13,6 +17,10 @@ https://nytimes.com/aponline/2020/07/14/sports/basketball/ap-bkn-nba-restart-lon
 **Nets Add Thomas; Beasley Reportedly Tests Positive**\
 `The Brooklyn Nets can't catch a break when it comes to their roster.`\
 https://nytimes.com/reuters/2020/07/14/sports/basketball/14reuters-basketball-nba-bkn-beasley-thomas-covid.html?searchResultPosition=5
+
+**Jay Riffe, Spearfishing King, Is Dead at 82**\
+`Jay Riffe recalled his first spearfishing outing as a struggle — not for the fish but for him.`\
+https://nytimes.com/2020/07/14/sports/jay-riffe-spearfishing-king-is-dead-at-82.html?searchResultPosition=6
 
 **First COVID-19 Vaccine Tested in US Poised for Final Testing**\
 `The first COVID-19 vaccine tested in the U.S. revved up people’s immune systems just the way scientists had hoped, researchers reported Tuesday -- as the shots are poised to begin key final testing.`\
