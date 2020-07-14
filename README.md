@@ -1,4 +1,4 @@
-**BT: Huawei Ban Can Be Absorbed in 500 Million Stg Already Earmarked**\
+**BT: Huawei Ban Can Be Absorbed in 500 Million Pounds Already Earmarked**\
 `BT, Britain's biggest mobile and broadband company, said it estimated that a ban on Huawei's equipment in its 5G networks would cost it no more than the 500 million pounds ($630 million)it had earmarked to comply with a cap imposed earlier this year.`\
 https://nytimes.com/reuters/2020/07/14/business/14reuters-britain-huawei-bt-costs.html?searchResultPosition=1
 
