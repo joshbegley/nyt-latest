@@ -1,40 +1,40 @@
-**Young, in Love and Trying to Bring Down the Third Reich**\
-`“The Bohemians,” by the German historian Norman Ohler, recounts the lives of Harro and Libertas Schulze-Boysen, an idealistic young couple, who helped lead the anti-Nazi resistance.`\
-https://nytimes.com/2020/07/14/books/review/the-bohemians-norman-ohler.html?searchResultPosition=1
+**New York Confronts Second-Wave Risk: Visitors From Florida and Texas**\
+`Gov. Cuomo is worried about travelers from the Sun Belt who are infected with the virus —  and about New Yorkers who might let down their guard.`\
+https://nytimes.com/2020/07/14/nyregion/coronavirus-ny-travel-cuomo.html?searchResultPosition=1
 
-**Politics Won’t Stop the Pandemic**\
-`A comprehensive shutdown may be required in much of the country.`\
-https://nytimes.com/2020/07/14/opinion/coronavirus-shutdown.html?searchResultPosition=2
+**Primaries in Alabama and Maine, and Runoff Elections in Texas: What to Watch For**\
+`Jeff Sessions is fighting for his political life in an Alabama race that will signal the strength of President Trump’s hold on his base. And in Maine, the spotlight is on which Democrat will face Susan Collins.`\
+https://nytimes.com/2020/07/14/what-time-do-polls-close-voting-alabama-maine-texas.html?searchResultPosition=2
 
-**I Didn’t Mean to Adopt a Dozen Pet Snails**\
-`They aren’t very good companions. But the lockdowns forced us to bond.`\
-https://nytimes.com/2020/07/14/magazine/i-didnt-mean-to-adopt-a-dozen-pet-snails.html?searchResultPosition=3
+**The Stunning Sweep of the Coronavirus Through the Rio Grande Valley**\
+`Edgar Sandoval knew he was well prepared to report on the spread of the coronavirus on the Texas-Mexico border. He was going home. Little did he know exactly what he would find.`\
+https://nytimes.com/2020/07/14/us/coronavirus-texas-rio-grande-valley-border.html?searchResultPosition=3
 
-**New & Noteworthy, From French Pancakes to a Bipartisan Road Trip**\
-`SCORPIONFISH, by Natalie Bakopoulos. (Tin House, paper, $16.95.) Across a balcony in Athens, a grounded sea captain and a grieving academic spend summer nights sharing beers and stories of heartbreak in Bakopoulos’s elegant, atmospheric second novel.`\
-https://nytimes.com/2020/07/14/books/review/new-this-week.html?searchResultPosition=4
+**Want More Diversity? Some Experts Say Reward C.E.O.s for It**\
+`Only a small number of large companies have tied executive compensation to goals for hiring and promotion of workers from underrepresented groups.`\
+https://nytimes.com/2020/07/14/business/economy/corporate-diversity-pay-compensation.html?searchResultPosition=4
 
-**Meet the Man Who Spun the Media, Scammed Followers and Named Himself King**\
-`Miles Harvey’s “The King of Confidence” recounts the fascinating history of the 19th-century grifter who ruled over a breakaway religious colony.`\
-https://nytimes.com/2020/07/14/books/review/king-of-confidence-miles-harvey-james-jesse-strang.html?searchResultPosition=5
+**The QAnon Candidates Are Here. Trump Has Paved Their Way.**\
+`The conspiracy theorists accuse Democrats and even fellow Republicans of being beholden to a cabal of bureaucrats, pedophiles and Satanists. President Trump has cheered them on.`\
+https://nytimes.com/2020/07/14/us/politics/qanon-politicians-candidates.html?searchResultPosition=5
 
-**When Miami Was Awash in Drugs, Crime and Social Unrest**\
-`“The Year of Dangerous Days,” by Nicholas Griffin, delves into the refugee crisis, race riots and drug trade that dominated the city in 1980.`\
-https://nytimes.com/2020/07/14/books/review/year-of-dangerous-days-nicholas-griffin.html?searchResultPosition=6
+**We Can Still Get the Truth From Roger Stone**\
+`The Justice Department should vindicate the rule of law by putting him before a grand jury.`\
+https://nytimes.com/2020/07/14/opinion/roger-stone-trump-grand-jury.html?searchResultPosition=6
 
-**The Housing Boom and Bust, Seen From the Front Lines**\
-`In “Underwater,” Ryan Dezember, a Wall Street Journal reporter, reckons with how the 2008 financial crisis changed American homeownership.`\
-https://nytimes.com/2020/07/14/books/review/underwater-ryan-dezember.html?searchResultPosition=7
+**G.A.O.: Trump Boosts Deregulation by Undervaluing Cost of Climate Change**\
+`The Government Accountability Office has found that the Trump administration is undervaluing the cost of climate change to boost its deregulatory efforts.`\
+https://nytimes.com/2020/07/14/climate/trump-climate-change-carbon-cost.html?searchResultPosition=7
 
-**How to Mend a Pair of Jeans**\
-`If threads start fraying, add stitching before the fabric tears. Patching should be your last resort.`\
-https://nytimes.com/2020/07/14/magazine/how-to-patch-jeans.html?searchResultPosition=8
+**Black Behind the Wheel**\
+`On a road trip to Detroit, reflections on the car as a symbol of aspiration and adventure. But if you’re Black in America, that lovely machine isn’t always a refuge.`\
+https://nytimes.com/2020/07/14/travel/Road-Trip-Detroit-Cars-racial-violence.html?searchResultPosition=8
 
-**Face Masks Will Be Mandatory in Shops in England**\
-`The order, set to come into force on July 24, will put England in line with other European countries and with other parts of Britain, like Scotland, which sets its own health policy.`\
-https://nytimes.com/2020/07/14/world/europe/uk-coronavirus-masks.html?searchResultPosition=9
+**Your New Home Office May Be in the Backyard**\
+`With more people working from home, business is booming for companies selling livable sheds.`\
+https://nytimes.com/2020/07/14/realestate/your-new-home-office-may-be-in-the-backyard.html?searchResultPosition=9
 
-**Hong Kong Reports 48 New Coronavirus Cases**\
-`Hong Kong reported 48 new coronavirus cases on Tuesday, including 40 that officials said were transmitted locally, ahead of new social distancing measures due to come into force at midnight.   `\
-https://nytimes.com/reuters/2020/07/14/world/asia/14reuters-health-coronavirus-hongkong.html?searchResultPosition=10
+**After a Trail of Tears, Justice for ‘Indian Country’**\
+`From my elders, I learned that justice is sometimes seven generations away or more — and inevitable.`\
+https://nytimes.com/2020/07/14/opinion/mcgirt-oklahoma-muscogee-creek-nation.html?searchResultPosition=10
 
