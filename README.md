@@ -1,40 +1,40 @@
+**U.S. Air Passengers Fell 89% in May Amid Coronavirus Pandemic**\
+`U.S. airlines carried 89% fewer passengers in May compared with last year, a massive decline that is still better than a historic low in April amid the coronavirus pandemic, the U.S. Transportation Department said Tuesday.`\
+https://nytimes.com/reuters/2020/07/14/business/14reuters-health-coronavirus-usa-airlines.html?searchResultPosition=1
+
+**Swiss Doctor Pans Plastic Visors After COVID-19 Hits Restaurant Workers**\
+`The top doctor in the Swiss mountain region that includes St. Moritz and Davos told restaurants on Tuesday not to rely on plastic visors to protect their employees from COVID-19 infections, saying they "create a false sense of security".  `\
+https://nytimes.com/reuters/2020/07/14/world/europe/14reuters-health-coronavirus-swiss-visor.html?searchResultPosition=2
+
+**U.S. Judge Rejects Settlement of Harvey Weinstein Sexual Abuse Claims**\
+`A U.S. judge on Tuesday rejected a proposed $18.9 million civil settlement for women who claimed they were subjected to sexual abuse and workplace harassment by the disgraced movie producer Harvey Weinstein.`\
+https://nytimes.com/reuters/2020/07/14/arts/14reuters-people-harvey-weinstein.html?searchResultPosition=3
+
+**Confederate Statue Being Moved at University of Mississippi**\
+`A Confederate monument that’s been a divisive symbol at the University of Mississippi was being removed Tuesday from a prominent spot on the Oxford campus.`\
+https://nytimes.com/aponline/2020/07/14/us/ap-us-racial-injustice-confederate-monument-ole-miss.html?searchResultPosition=4
+
 **Pools Shut? No Worries. Argentinian Paralympic Swimmer Builds DIY Pool With Plastic Bag**\
 `Sebastián Galleguillo, 18, an Argentine paralympic swimmer, has found an unusual way to train during an almost four-month lockdown in and around capital Buenos Aires due to the coronavirus pandemic that saw his local pool close its doors. `\
-https://nytimes.com/reuters/2020/07/14/sports/14reuters-health-coronavirus-argentina-swimmer.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/14/sports/14reuters-health-coronavirus-argentina-swimmer.html?searchResultPosition=5
 
 **UK Fraud Office Launches Review After Judge Says Director Fell for Flattery**\
 `The UK Serious Fraud Office (SFO) said on Monday it would launch a review after its head was rebuked by a London judge for being vulnerable to flattery from a freelance agent during a high-profile bribery investigation into oil consultancy Unaoil.`\
-https://nytimes.com/reuters/2020/07/14/world/europe/14reuters-britain-unaoil-corruption-osofsky.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/14/world/europe/14reuters-britain-unaoil-corruption-osofsky.html?searchResultPosition=6
 
 **Judge Rejects Tentative $19M Weinstein Deal With Accusers**\
 `A $19 million settlement between Harvey Weinstein and some of his accusers was rejected Tuesday by a judge.`\
-https://nytimes.com/aponline/2020/07/14/us/ap-us-harvey-weinstein-settlement.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/14/us/ap-us-harvey-weinstein-settlement.html?searchResultPosition=7
 
 **Philadelphia Mayor Cancels Large Public Events Through February 2021 Due to COVID-19**\
 `Philadelphia Mayor Jim Kenney has canceled all large public events in his city through February 28, 2021 to prevent the spread of COVID-19, a spokeswoman for the mayor said on Tuesday.`\
-https://nytimes.com/reuters/2020/07/14/us/14reuters-health-coronavirus-philadelphia.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/14/us/14reuters-health-coronavirus-philadelphia.html?searchResultPosition=8
 
 **UN Court Rules in Qatar's Favor in Aviation Boycott Case**\
 `Qatar won a legal battle Tuesday in its efforts to end a long-running aviation boycott by Arab neighbors when the United Nations’ highest court ruled in its favor in a procedural dispute linked to the boycott.`\
-https://nytimes.com/aponline/2020/07/14/business/ap-eu-world-court-qatar-boycott.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/07/14/business/ap-eu-world-court-qatar-boycott.html?searchResultPosition=9
 
 **Biden Proposes Overhauling Nation's Energy Sector by 2035**\
 `Joe Biden released a plan Tuesday aimed at combating climate change and spurring economic growth in part by overhauling America’s energy industry, with a proposal to achieve entirely carbon pollution-free power by 2035.`\
-https://nytimes.com/aponline/2020/07/14/us/bc-us-election-2020-biden-climate.html?searchResultPosition=6
-
-**Man Killed by Police After Mask Dispute at Michigan Store**\
-`A man was fatally shot Tuesday by a Michigan sheriff's deputy after stabbing another man who had challenged him about not wearing a mask at a convenience store, police said.`\
-https://nytimes.com/aponline/2020/07/14/us/ap-us-virus-outbreak-mask-shooting.html?searchResultPosition=7
-
-**Virgin Atlantic Raises $1.8 Billion Before Planned Restart**\
-`Virgin Atlantic has raised 1.2 billion pounds ($1.8 billion) from private sources, including from founder Richard Branson, the company said Tuesday, as it tries to rebuild its battered finances following the economic shock of the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/07/14/business/bc-eu-britain-virgin-atlantic.html?searchResultPosition=8
-
-**Moderna Expects to Start Late-Stage COVID-19 Vaccine Trial on July 27**\
-`Moderna Inc said on Tuesday that it plans to start late stage clinical trial for its COVID-19 vaccine candidate on or around July 27, according to its listing for the phase 3 study  at clinicaltrials.gov.`\
-https://nytimes.com/reuters/2020/07/14/us/14reuters-health-coronavirus-moderna-phase3.html?searchResultPosition=9
-
-**South Korean Firm Quits Petrochemical Plant Effort in Ohio**\
-`The prospects for construction of a multibillion-dollar petrochemical plant in Ohio appear to have dimmed after a U.S. subsidiary of a South Korean company announced it was withdrawing as a partner in the project.`\
-https://nytimes.com/aponline/2020/07/14/business/bc-us-ethane-future-appalachia.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/14/us/bc-us-election-2020-biden-climate.html?searchResultPosition=10
 
