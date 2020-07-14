@@ -1,4 +1,4 @@
-**On Climate, It's Biden's Green Revolution Versus Trump's War on Red Tape**\
+**Factbox: On Climate, It's Biden's Green Revolution Versus Trump's War on Red Tape**\
 `The U.S. presidential election pits a politician who supports environmental regulation and diplomacy to tackle climate change against another determined to dismantle such policies.`\
 https://nytimes.com/reuters/2020/07/14/us/14reuters-usa-election-climate-change-factbox.html?searchResultPosition=1
 
