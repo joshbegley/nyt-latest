@@ -26,7 +26,7 @@ https://nytimes.com/reuters/2020/07/14/world/asia/14reuters-southkorea-economy-u
 `Tunisia's moderate Islamist party Ennahda, the biggest party in the country's parliament, decided on early Wednesday to withdraw confidence from the government, a senior official in Ennahda told Reuters. `\
 https://nytimes.com/reuters/2020/07/14/world/africa/14reuters-tunisia-politics.html?searchResultPosition=7
 
-**Ruth Bader Ginsburg Is Hospitalized with a Possible Infection**\
+**Ruth Bader Ginsburg Is Hospitalized With a Possible Infection**\
 `Justice Ginsburg, 87, underwent an endoscopic procedure at the Johns Hopkins Hospital in Baltimore to clean out a bile duct stent, a Supreme Court spokeswoman said.`\
 https://nytimes.com/2020/07/14/us/Ruth-bader-Ginsburg-infection-hospital.html?searchResultPosition=8
 
