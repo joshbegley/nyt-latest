@@ -30,7 +30,7 @@ https://nytimes.com/aponline/2020/07/13/business/ap-us-virus-outbreak-hawaii.htm
 `Japan's annual defence review accuses China of pushing its territorial claims amid the coronavirus pandemic and suspects Beijing of spreading propaganda and disinformation as it provides medical aid to nations fighting COVID-19. `\
 https://nytimes.com/reuters/2020/07/13/world/asia/13reuters-japan-defence-whitepaper.html?searchResultPosition=8
 
-**Fox's Carlson Criticizes Ex-Writer,' Self-Righteous' Critics**\
+**Fox's Carlson Denounces Ex-Writer,' Self-Righteous' Critics**\
 `Fox News' Tucker Carlson said Monday that his former writer who posted racist comments online was wrong but criticized “ghouls now beating their chests in triumph” after his staffer's resignation.`\
 https://nytimes.com/aponline/2020/07/13/arts/ap-us-media-tucker-carlson.html?searchResultPosition=9
 
