@@ -2,6 +2,10 @@
 `President Donald Trump on Tuesday downplayed police violence against Black people, saying that "more white people" are killed by police officers.`\
 https://nytimes.com/reuters/2020/07/14/us/14reuters-global-race-trump.html?searchResultPosition=1
 
+**Internal U.S. Small Business Watchdog Launches Inquiry Into Duplicate Pandemic Loans**\
+`The U.S. Small Business Administration's internal watchdog has launched an inquiry into a technical glitch that led many small businesses to receive duplicate loans through a high-profile federal coronavirus aid program.`\
+https://nytimes.com/reuters/2020/07/14/business/14reuters-health-coronavirus-usa-ppp.html?searchResultPosition=2
+
 **Abraham Vega, 48, ‘Peacemaking’ Texas Sheriff, Dies**\
 `Remarried, likely to win re-election in November, he was embarking on a second act when he died of the novel coronavirus.`\
 https://nytimes.com/2020/07/14/us/abraham-vega-dead-coronavirus.html?searchResultPosition=6
