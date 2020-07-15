@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/07/15/world/asia/ap-as-virus-outbreak-sri-lank
 `Alabama, Florida and North Carolina in the United States reported record daily increases in deaths from COVID-19 on Tuesday, while the Federal Reserve said the U.S. economy would recover more slowly than expected.`\
 https://nytimes.com/reuters/2020/07/15/world/asia/15reuters-health-coronavirus-latest-factbox.html?searchResultPosition=8
 
-**NY Times to Relocate Part of Hong Kong Office to Seoul**\
-`The New York Times will shift part of its Hong Kong office to Seoul, in an ominous move as worries grow that the new national security law China imposed on the financial hub two weeks ago would curb media and other freedoms in the city.`\
+**New York Times to Move Part of Hong Kong Office to Seoul**\
+`The New York Times will shift part of its Hong Kong office to Seoul, the latest sign of the chill Beijing's new national security law is having on the global financial centre just two weeks after the legislation was imposed. `\
 https://nytimes.com/reuters/2020/07/15/world/asia/15reuters-hongkong-security-media.html?searchResultPosition=9
 
 **Young Hong Kong Democrats Seek New Political Order Under Shadow of Beijing**\
