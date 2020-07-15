@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/07/15/world/europe/15reuters-health-coronavirus
 `Jeff Sessions took the stage Tuesday night near the Alabama gulf coast with the same certitude he’d displayed on another, bigger stage across town almost five years ago. Donald Trump’s vision, the former attorney general declared anew, is right for America. `\
 https://nytimes.com/aponline/2020/07/15/us/politics/ap-us-election-2020-alabama-sessions.html?searchResultPosition=5
 
-**Genting Singapore's Resorts World Sentosa Lays Off Staff**\
-`Resorts World Sentosa (RWS), owned by Genting Singapore, has made a one-off cut in its workforce, as part of cost-cutting measures in the wake of the coronavirus pandemic, it said on Wednesday.`\
+**Resorts World, One of Singapore's Biggest Employers, Cuts Staff Due to COVID-19**\
+`Resorts World Sentosa, one of Singapore's biggest private sector employers, on Wednesday said it was laying off staff to cut costs as the coronavirus pandemic batters the city-state's tourism industry.`\
 https://nytimes.com/reuters/2020/07/15/business/15reuters-genting-singapore-layoffs.html?searchResultPosition=6
 
 **ViacomCBS Fires Nick Cannon, Citing Anti-Semitic Podcast Remarks**\
