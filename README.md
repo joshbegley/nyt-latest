@@ -1,40 +1,40 @@
-**Part of German Abattoir Hit by Coronavirus Can Resume Slaughtering**\
-`Part of a huge German abattoir and meatpacking complex at the centre of a coronavirus outbreak can reopen, German authorities said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/15/world/europe/15reuters-health-coronavirus-germany-meat.html?searchResultPosition=1
+**How Artists Are Trying to Solve the World’s Problems**\
+`A cohort of 30 artists have received funding to find creative solutions to 21st-century problems like surveillance, digital inequality and inherited trauma.`\
+https://nytimes.com/2020/07/15/arts/design/eyebeam-art-project.html?searchResultPosition=1
 
-**‘The City I Love’ and Climate Change: A Miami Story**\
-`Also this week, who cleans up when oil and gas companies fail?`\
-https://nytimes.com/2020/07/15/climate/nyt-climate-newsletter-miami.html?searchResultPosition=2
+**Cracking Down on Drunken Crowds, Mallorca Shuts Party Streets**\
+`Authorities on the Spanish island of Mallorca ordered the closure of three popular party streets on Wednesday in a bid to prevent drunken tourists from flouting coronavirus restrictions and risking a fresh outbreak.`\
+https://nytimes.com/reuters/2020/07/15/world/europe/15reuters-health-coronavirus-spain-mallorca.html?searchResultPosition=2
 
-**Oklahoma's Governor Says He's Tested Positive for COVID-19**\
-`Oklahoma Gov. Kevin Stitt announced Wednesday that he’s tested positive for the coronavirus and that he is isolating at home.`\
-https://nytimes.com/aponline/2020/07/15/us/ap-us-oklahoma-governor-coronavirus.html?searchResultPosition=3
+**For Paris Men’s Wear, the Next Stop Is California**\
+`Men’s wear shows in Europe this lockdown season may be virtual, but the dominant California vibe is very real.`\
+https://nytimes.com/2020/07/15/style/mens-fashion-for-paris-mens-wear-next-stop-california.html?searchResultPosition=3
 
-**Pompeo Says U.S. to Have Decisions Soon on Chinese Technology Firms, Apps**\
-`The United States hopes to have a set of decisions shortly on Chinese telecoms companies that will reflect Washington's central understanding that the information of U.S. citizens should be protected from Beijing authorities, U.S. Secretary of State Mike Pompeo said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/15/business/15reuters-usa-pompeo-tiktok.html?searchResultPosition=4
+**Portugal Heat Wave Heightens Risk of Wildfires**\
+`Portugal is experiencing a heat wave with hot and dry weather, sweltering nights and a heightened risk for wildfires.`\
+https://nytimes.com/aponline/2020/07/15/world/europe/ap-eu-portugal-heat-wave.html?searchResultPosition=4
 
-**Bank of Canada's Macklem and Wilkins Speak After Rate Decision**\
-`Below are some key quotes from a news conference by Bank of Canada Governor Tiff Macklem and Senior Deputy Governor Carolyn Wilkins on Wednesday after the central bank held interest rates steady.`\
-https://nytimes.com/reuters/2020/07/15/us/15reuters-canada-cenbank-highlights.html?searchResultPosition=5
+**Police Charge Suspect in Slaying of 8-Year-Old Atlanta Girl**\
+`A teen suspect has been charged with felony murder and aggravated assault in the shooting that killed an 8-year-old Atlanta girl near the site of an earlier police shooting, police said Wednesday.`\
+https://nytimes.com/aponline/2020/07/15/us/ap-us-racial-injustice-child-killed.html?searchResultPosition=5
 
-**Police in Belarus Detained Over 250 People During Protests**\
-`Police in Belarus said Wednesday that officers detained more than 250 people the previous day, after mass protests against barring two candidates from the upcoming presidential election erupted in the country. `\
-https://nytimes.com/aponline/2020/07/15/world/europe/ap-eu-belarus-protests.html?searchResultPosition=6
+**New Pressure on Ohio Governor, Once Hailed for Virus Action**\
+`Early during the coronavirus outbreak, Ohio’s Republican governor appeared prophetic with his decisive steps to ban spectators from a sports expo, shut down all schools before any other state and put a stop to the presidential primary. `\
+https://nytimes.com/aponline/2020/07/15/us/ap-us-virus-outbreak-ohio-governor.html?searchResultPosition=6
 
-**More Than 150 Countries Sign Up for Global Vaccine Plan**\
-`More than 70 rich countries have signed up to a global coronavirus vaccine initiative intended to ensure that any effective shots are fairly distributed around the world - but which may also allow them to buy more vaccines to stockpile for their own citizens.`\
-https://nytimes.com/aponline/2020/07/15/business/ap-eu-virus-outbreak-sharing-vaccines.html?searchResultPosition=7
+**Sudan Says Nile Water Levels Fall After Ethiopia Starts Giant Dam**\
+`Sudan's government said on Wednesday water levels on the Blue Nile had declined by 90 million cubic meters per day after Ethiopia started filling a giant Nile dam on its side of the border.`\
+https://nytimes.com/reuters/2020/07/15/world/africa/15reuters-ethiopia-dam-sudan.html?searchResultPosition=7
 
-**Trump Plans Further Challenges to Manhattan Prosecutor's Subpoena for Financial Records**\
-`Lawyers for Donald Trump told a federal judge on Wednesday they plan further challenges to the Manhattan district attorney's efforts to see the U.S. president's financial records, despite a U.S. Supreme Court decision allowing the prosecutor's review.`\
-https://nytimes.com/reuters/2020/07/15/us/politics/15reuters-usa-trump-vance.html?searchResultPosition=8
+**Venezuela Coronavirus Cases Spike, Opposition Warns Healthcare System May Be Overwhelmed**\
+`Coronavirus cases in Venezuela have jumped in recent weeks and two top lieutenants of President Nicolas Maduro have tested positive, triggering warnings from health workers that the pandemic may overwhelm the country's already battered healthcare system.`\
+https://nytimes.com/reuters/2020/07/15/world/americas/15reuters-health-coronavirus-venezuela.html?searchResultPosition=8
 
-**Output to Resume at PSA's UK Vauxhall Car Factory in August**\
-`Production at Peugeot-maker PSA's Vauxhall car factory in Britain will resume on Aug. 17, one of the final major automotive plants in the country yet to reopen after the coronavirus outbreak shut sites in March.`\
-https://nytimes.com/reuters/2020/07/15/world/europe/15reuters-health-coronavirus-psa-vauxhall.html?searchResultPosition=9
+**Trump Only Wants North Korea Summit if Real Progress Possible, Pompeo Says**\
+`U.S. Secretary of State Mike Pompeo appeared on Wednesday to pour cold water on the possibility of another U.S. summit with North Korea, saying the U.S. election was approaching and President Donald Trump only wanted to engage if there was likelihood of real progress.`\
+https://nytimes.com/reuters/2020/07/15/world/asia/15reuters-northkorea-usa-pompeo.html?searchResultPosition=9
 
-**Black Texan Royce West Concedes in Democratic U.S. Senate Race**\
-`Royce West, a Black Texas state legislator, on Wednesday conceded to Air Force veteran MJ Hegar, the Democratic nominee to take on Republican U.S. Senator John Cornyn in November.`\
-https://nytimes.com/reuters/2020/07/15/us/politics/15reuters-usa-election-senate-west.html?searchResultPosition=10
+**Tokyo Raises Coronavirus Alert to Highest Level**\
+`Facing a spike in new coronavirus cases, Tokyo’s governor raised the pandemic alert level to “red,” its highest, but did not ask any businesses to close.`\
+https://nytimes.com/video/world/asia/100000007239895/tokyo-coronavirus-alert.html?searchResultPosition=10
 
