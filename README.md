@@ -1,40 +1,40 @@
+**Berkeley Moves Toward Removing Police From Traffic Stops**\
+`The city of Berkeley, California, moved forward Wednesday with a proposal to eliminate police from conducting traffic stops and instead use unarmed civilian city workers as part of a broad overhaul of law enforcement. The City Council It also set a goal of cutting the police budget by 50%.`\
+https://nytimes.com/aponline/2020/07/15/us/ap-us-racial-injustice-police-reform-.html?searchResultPosition=1
+
+**America Movil Says Huawei an Excellent Provider but Not the Only Option**\
+`Mexico's America Movil regards Huawei as an excellent provider of telecoms equipment but there are also other vendors if necessary, Daniel Hajj, chief executive of the telecoms company said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/15/technology/15reuters-america-movil-huawei.html?searchResultPosition=2
+
+**U.S. to Back Nations Whose South China Sea Claims China Violated**\
+`The United States will support countries that believe China has violated their maritime claims in the South China Sea, U.S. Secretary of State Mike Pompeo said on Wednesday but stressed doing so in multilateral and legal forums.`\
+https://nytimes.com/reuters/2020/07/15/world/asia/15reuters-usa-china-southchinasea-pompeo.html?searchResultPosition=3
+
+**Citing Educational Risks, Scientific Panel Urges That Schools Reopen**\
+`Younger children in particular are ill-served by remote learning, according to a report issued by the National Academies of Science, Engineering and Medicine.`\
+https://nytimes.com/2020/07/15/health/coronavirus-schools-reopening.html?searchResultPosition=4
+
+**How Do You Translate a Comic Book Into Audio? Ask Neil Gaiman**\
+`In a new audio production, James McAvoy, Michael Sheen and a full cast give voice to “The Sandman.”`\
+https://nytimes.com/2020/07/15/books/review/the-sandman-neil-gaiman-audio.html?searchResultPosition=5
+
 **US to Hit Huawei Employees With Visa Bans for Rights Abuses**\
 `The Trump administration said Wednesday it will impose travel bans on employees of the Chinese technology giant Huawei and other Chinese companies the U.S. determines are assisting authoritarian governments in cracking down on human rights, including in China's western Xinjiang province.`\
-https://nytimes.com/aponline/2020/07/15/business/bc-us-united-states-china-huawei.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/15/business/bc-us-united-states-china-huawei.html?searchResultPosition=6
 
 **Pompeo Says U.S. to Impose Visa Curbs on Huawei Over Rights**\
 `U.S. Secretary of State Mike Pompeo said on Wednesday the United States would impose visa restrictions on Chinese firms like Huawei Technologies Co. Ltd that he accused of facilitating human right violations.`\
-https://nytimes.com/reuters/2020/07/15/business/15reuters-usa-china-huawei.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/15/business/15reuters-usa-china-huawei.html?searchResultPosition=7
 
 **Our 2020-21 Student Contest Calendar**\
 `From art and editorials to personal narratives and podcasts, a list of the 10 contests and challenges for young people we’re running this school year.`\
-https://nytimes.com/2020/07/15/learning/our-2020-21-student-contest-calendar.html?searchResultPosition=3
+https://nytimes.com/2020/07/15/learning/our-2020-21-student-contest-calendar.html?searchResultPosition=8
 
 **Ethiopia Denies Reports Government Has Started Filling Dam**\
 `Ethiopia’s water minister is denying reports citing him as saying the government had begun filling the massive hydroelectric dam that has caused severe tensions with Egypt.`\
-https://nytimes.com/aponline/2020/07/15/world/africa/ap-af-ethiopia-dam-dispute.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/07/15/world/africa/ap-af-ethiopia-dam-dispute.html?searchResultPosition=9
 
 **Depp Ex-Employee: Heard Asked Him to Lie in Court Over Dogs**\
 `Johnny Depp’s former estate manager said Wednesday that Amber Heard asked him to lie under oath after she was charged with bringing her two dogs to Australia illegally.`\
-https://nytimes.com/aponline/2020/07/15/world/europe/ap-eu-britain-johnny-depp.html?searchResultPosition=5
-
-**France to Boost Domestic Production With Tax Breaks, PM Says**\
-`France will cut domestic business taxes to help companies weather a coronavirus crisis that has underscored the country's over-dependence on imports, new Prime Minister Jean Castex said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/15/world/europe/15reuters-france-politics-castex.html?searchResultPosition=6
-
-**Floyd Family to Announce Lawsuit Against Minneapolis**\
-`Attorneys for George Floyd's family plan to announce a lawsuit Wednesday against the city of Minneapolis and the police officers who are charged in his death.`\
-https://nytimes.com/aponline/2020/07/15/us/ap-us-george-floyd-minneapolis-police-1st-ld-writethru.html?searchResultPosition=7
-
-**Founder of Nigeria's Gokada Found Dismembered in New York Apartment: Media**\
-`A technology entrepreneur who founded Nigeria's Gokada ride-hailing app was found decapitated and dismembered in a luxury New York apartment with a power saw plugged in nearby, New York media reported late Tuesday.`\
-https://nytimes.com/reuters/2020/07/15/world/africa/15reuters-nigeria-gokada.html?searchResultPosition=8
-
-**US Toughens Stance Against 2 Russian Gas Pipelines to Europe**\
-`The Trump administration on Wednesday hardened its efforts to prevent the completion of new German-Russian and Turkish-Russian pipelines by ending sanctions exemptions for companies involved in the projects and warning they'll be subject to U.S. penalties unless they halt their work.`\
-https://nytimes.com/aponline/2020/07/15/business/bc-us-united-states-europe.html?searchResultPosition=9
-
-**South Africa COVID-19 Cases Set to Reach 300,000 Despite Early Lockdown**\
-`South Africa's cases of COVID-19 were set to reach 300,000 on Wednesday, the most in Africa and in the top 10 in the world, despite a swiftly imposed lockdown aimed at preventing infections spiralling as they did in the West.`\
-https://nytimes.com/reuters/2020/07/15/world/africa/15reuters-health-coronavirus-safrica.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/15/world/europe/ap-eu-britain-johnny-depp.html?searchResultPosition=10
 
