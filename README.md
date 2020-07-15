@@ -1,40 +1,40 @@
+**George Floyd's Family Sues Minneapolis and Four Officers Over His Death**\
+`A trustee for the family of George Floyd, who died on May 25 after a Minneapolis policeman knelt on his neck for nearly nine minutes, sued the city of Minneapolis and four of its police officers in federal court on Wednesday, seeking money damages.    `\
+https://nytimes.com/reuters/2020/07/15/us/15reuters-global-race-minneapolis-police.html?searchResultPosition=1
+
+**US Imposes Restrictions as Pressure Builds on Guyana Leaders**\
+`The United States said Wednesday that it has imposed visa restrictions on people in Guyana who were involved in “undermining democracy" in the South American nation, which held a disputed election on March 2 and has yet to declare a winner.`\
+https://nytimes.com/aponline/2020/07/15/us/politics/ap-lt-guyana-us.html?searchResultPosition=2
+
+**Philippines Extends Partial Restrictions in the Capital to Contain Virus**\
+`Philippines President Rodrigo Duterte is enforcing partial coronavirus restrictions in the capital for another two weeks, and warned that stricter curbs would be reinstated if the rise in new cases and deaths does not slow down.`\
+https://nytimes.com/reuters/2020/07/15/world/asia/15reuters-health-coronavirus-philippines.html?searchResultPosition=3
+
+**Apple Expands News Offerings With Audio, Local Newspaper Stories**\
+`Apple Inc on Wednesday expanded its news offerings with audio versions of stories narrated by voice actors for subscribers, a morning newscast hosted by two journalists and more access to local newspaper stories.`\
+https://nytimes.com/reuters/2020/07/15/business/15reuters-apple-news.html?searchResultPosition=4
+
+**The Latest: Eagles Won't Have Fans in Stadium This Season**\
+`The Latest on the effects of the coronavirus outbreak on sports around the world:`\
+https://nytimes.com/aponline/2020/07/15/sports/ap-sports-virus-outbreak-the-latest-2nd-ld-writethru.html?searchResultPosition=5
+
+**N.C. Prosecutor Ends Probe of Ex-Congressional Candidate**\
+`A former North Carolina congressional candidate won't face state charges in an absentee ballot fraud investigation that's already led to indictments against his hired political operative and a new election, a local prosecutor said on Wednesday.`\
+https://nytimes.com/aponline/2020/07/15/us/ap-us-disputed-election-candidate.html?searchResultPosition=6
+
+**Lawyers: Trump May Claim Harassment in Tax Return Quest**\
+`A week after losing a Supreme Court ruling, President Donald Trump’s lawyers said Wednesday they're considering challenging subpoenas for his tax records by criminal prosecutors on grounds that the subpoenas are a fishing expedition or a form of harassment or retaliation against him.`\
+https://nytimes.com/aponline/2020/07/15/us/ap-us-trump-taxes.html?searchResultPosition=7
+
 **Delle Donne Hurt That Request Denied by Panel of Doctors**\
 `Elena Delle Donne is hurt that her request was denied to be medically excused for the season.`\
-https://nytimes.com/aponline/2020/07/15/sports/basketball/ap-bkl-virus-outbreak-delle-donne.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/15/sports/basketball/ap-bkl-virus-outbreak-delle-donne.html?searchResultPosition=8
 
 **Lebanon Must Stay Neutral to Stave Off Poverty, Patriarch Says**\
 `Lebanon needs to stay neutral to be saved from hunger and poverty, its senior Christian cleric said on Wednesday, urging Lebanese to keep out of conflicts in Arab countries but denying he was referring specifically to the Iranian-backed Hezbollah.`\
-https://nytimes.com/reuters/2020/07/15/world/middleeast/15reuters-lebanon-crisis.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/15/world/middleeast/15reuters-lebanon-crisis.html?searchResultPosition=9
 
 **Austrian Telcos Complain That 5G Network Expansion Has Stalled**\
 `Austria's three major mobile network providers said on Wednesday that the expansion of the 5G network in the country had stalled, partly due to high rental costs for mobile masts and a lack of state incentives.`\
-https://nytimes.com/reuters/2020/07/15/technology/15reuters-austria-5g.html?searchResultPosition=3
-
-**'Be Cool', France's Macron Tells Hecklers on Walkabout**\
-`Accosted by protesters during a Bastille Day walkabout, France's President Emmanuel Macron urged his hecklers to "be cool" in a testy exchange caught in footage that emerged on Wednesday.  `\
-https://nytimes.com/reuters/2020/07/15/world/europe/15reuters-france-nationalday-macron-yellowvests.html?searchResultPosition=4
-
-**ViacomCBS Fires Nick Cannon, Citing 'Hateful Speech' in Podcast**\
-`Popular U.S. TV host and actor Nick Cannon has been fired by ViacomCBS for promoting what the media company on Wednesday said was hateful speech and spreading anti-Semitic conspiracy theories on a recent podcast.`\
-https://nytimes.com/reuters/2020/07/15/arts/15reuters-people-nick-cannon.html?searchResultPosition=5
-
-**Native American Tribes to Oppose Temporary Dakota Access Oil Line Stay Order: Lawyers**\
-`Native American tribes will file a response by next week opposing a U.S. court's order that allows the Dakota Access oil pipeline to keep flowing, lawyers representing them said on Wednesday. `\
-https://nytimes.com/reuters/2020/07/15/us/15reuters-usa-pipeline-energy-transfer.html?searchResultPosition=6
-
-**Judge Dismisses Cruise Passengers' COVID-19 Lawsuits**\
-`A federal judge dismissed lawsuits by Grand Princess cruise ship passengers who sued for emotional distress caused by their fear of exposure to COVID-19, saying that allowing their cases to proceed would "lead to a flood of trivial suits."`\
-https://nytimes.com/reuters/2020/07/15/us/15reuters-health-coronavirus-grandprincess-lawsuit.html?searchResultPosition=7
-
-**ISM Says Launching U.S. Purchasing Managers' Index for Hospitals in August**\
-`The U.S. Institute for Supply Management said on Wednesday it would launch a new Purchasing Managers' Index for hospitals next month, to assess domestic hospital supply chains amid the  COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/07/15/us/15reuters-usa-economy-hospitals.html?searchResultPosition=8
-
-**Coronavirus to Ravage Economy of Latin America, Output to Contract 9.1%: U.N. Agency**\
-`The coronavirus pandemic will swell the ranks of the poor and unemployed in Latin America and the Caribbean and drag the region´s economic output down by 9.1%, a United Nations agency said in a report issued on Wednesday.`\
-https://nytimes.com/reuters/2020/07/15/world/americas/15reuters-health-coronavirus-latam-un.html?searchResultPosition=9
-
-**Sweden's Health Agency Says Open Schools Did Not Spur Pandemic Spread Among Children**\
-`Sweden's decision to keep schools open during the pandemic resulted in no higher rate of infection among its schoolchildren than in neighbouring Finland, where schools did temporarily close, their public health agencies said in a joint report.`\
-https://nytimes.com/reuters/2020/07/15/world/europe/15reuters-health-coronavirus-sweden-schools.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/15/technology/15reuters-austria-5g.html?searchResultPosition=10
 
