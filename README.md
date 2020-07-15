@@ -1,40 +1,40 @@
+**China Says Those Who See China as Hostile Are Wrong**\
+`China's envoy to Britain said on Wednesday that those who see China as a hostile state have got it all wrong and cautioned European Union states not to interfere in China's domestic affairs over Hong Kong. `\
+https://nytimes.com/reuters/2020/07/15/technology/15reuters-britain-huawei-envoy.html?searchResultPosition=1
+
+**Confusion Amid Reports Thailand's Top Economic Team to Resign**\
+`Thailand's Finance Minister Uttama Savanayana and economic policy guru and Deputy Prime Minister Somkid Jatusripitak are planning to resign their posts, local media reported on Wednesday `\
+https://nytimes.com/reuters/2020/07/15/world/asia/15reuters-thailand-economy.html?searchResultPosition=2
+
+**English Lockdown Might Have Reduced COVID-19 Infections More Than Thought, Scientists Say**\
+`The reproductive number of COVID-19 in England may been lower than previously thought in May, research published by British scientists said on Wednesday, suggesting the government's COVID-19 lockdown worked to reduce infection rates.`\
+https://nytimes.com/reuters/2020/07/15/world/europe/15reuters-health-coronavirus-britain-prevalence.html?searchResultPosition=3
+
+**Singapore Airlines Flags Slow Recovery in 2021, Sees Operating First Quarter Loss**\
+`Singapore Airlines Ltd on Wednesday flagged a hit to its revenue making ability in full-year 2021 on seeing a slower than expected recovery as the ongoing coronavirus crisis saps demand for air travel.`\
+https://nytimes.com/reuters/2020/07/15/business/15reuters-health-coronavirus-singapore-air.html?searchResultPosition=4
+
+**Positive News on Oxford/AstraZeneca COVID-19 Vaccine Could Come on Thursday: ITV**\
+`Positive news on initial trials of the University of Oxford's potential COVID-19 vaccine that has been licensed to AstraZeneca could be announced as soon as Thursday, ITV's political editor Robert Peston said, citing a source.`\
+https://nytimes.com/reuters/2020/07/15/world/europe/15reuters-health-coronavirus-oxford-vaccine-itv.html?searchResultPosition=5
+
+**EU's Vestager Vows to Continue Tax Fight After Apple Setback**\
+`EU antitrust chief Margrethe Vestager vowed on Wednesday to continue her fight against tax measures used by multinationals despite a setback dealt by Europe's second-top court, which earlier scrapped her 13 billion euro tax order to Apple.`\
+https://nytimes.com/reuters/2020/07/15/business/15reuters-eu-apple-tax-vestager.html?searchResultPosition=6
+
+**Delta Air to Take Up to $3 Billion Charge Related to Voluntary Retirements**\
+`Delta Air Lines Inc said on Wednesday it would record charges between $2.7 billion and $3 billion for employee voluntary retirement and separation plans during the third quarter.`\
+https://nytimes.com/reuters/2020/07/15/business/15reuters-health-coronavirus-delta-air-charge.html?searchResultPosition=7
+
+**Airbnb Says One Million Nights Booked in One Day**\
+`Home rental firm Airbnb Inc said on Tuesday its guests have booked more than 1 million nights globally on July 8, offering an early sign of recovery after a slowdown in reservations during the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/07/15/business/15reuters-health-coronavirus-airbnb.html?searchResultPosition=8
+
 **A Different Cold War**\
 `And what else you need to know today.`\
-https://nytimes.com/2020/07/15/briefing/china-cdc-tommy-tuberville-your-wednesday-briefing.html?searchResultPosition=1
+https://nytimes.com/2020/07/15/briefing/china-cdc-tommy-tuberville-your-wednesday-briefing.html?searchResultPosition=9
 
 **Europe's Shift to Electric Cars Picks Up Despite Recession**\
 `The coronavirus has cancelled business plans all over the world but Europe's push into electric cars isn't one of them. Sales of battery-powered and hybrid cars have held up better than the overall market amid a deeply painful recession, mainly thanks to the action of governments.`\
-https://nytimes.com/aponline/2020/07/15/business/bc-eu-europe-electric-cars.html?searchResultPosition=2
-
-**With Elective Procedures Delayed, UnitedHealth Profit Spikes**\
-`The nation’s largest health insurer more than doubled its profit in the second quarter, as COVID-19 shutdowns kept patients out of doctor’s offices and off operating tables.`\
-https://nytimes.com/aponline/2020/07/15/business/bc-virus-outbreak-health-insurers.html?searchResultPosition=3
-
-**South African e-Commerce Is a COVID-Fired Market of Risk and Reward**\
-`Like many of her compatriots, Kubashnee Moodley made her first foray into online shopping during South Africa's coronavirus lockdown. She is not a satisfied customer.`\
-https://nytimes.com/reuters/2020/07/15/technology/15reuters-health-coronavirus-safrica-ecommerce.html?searchResultPosition=4
-
-**Swatch Group Free to Supply Watch Movements: Swiss Watchdog**\
-`Swatch Group will be free to supply mechanical watch movements wherever it wants, but won't be allowed to abuse its dominant market position by undercutting rivals' prices, Swiss competition watchdog WEKO said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/15/business/15reuters-swatch-ch-competition.html?searchResultPosition=5
-
-**Benetton-Backed Atlantia to Withdraw From Italy Motorway Unit**\
-`Italian infrastructure group Atlantia will gradually exit from its motorway unit Autostrade per l'Italia, making room for state lender CDP, to settle a dispute over its highway concession, the government said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/15/business/15reuters-italy-motorway.html?searchResultPosition=6
-
-**First Step in Atlantia Losing Control of Motorway Unit to Happen by September: Minister**\
-`Benetton-led Atlantia will lose its 88% stake in Autostrade per l'Italia unit in one year, with the first step of this multi-staged process happening by September, Italy's industry minister said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/15/business/15reuters-italy-motorway-minister.html?searchResultPosition=7
-
-**Flooded Southern China Braces for More Storms**\
-`Heavy rain is forecast for five more days in the Yangtze River basin, China's meteorological agency said Wednesday, in a region already devastated by flooding this year.`\
-https://nytimes.com/aponline/2020/07/15/world/asia/ap-as-china-floods.html?searchResultPosition=8
-
-**EU Health Body Considering Airborne Spread of Virus as Well as Droplets**\
-`The EU's public health body is assessing risks posed by ventilation systems and other settings at workplaces for the transmission of the novel coronavirus through the air, in addition to through droplets, its head said.`\
-https://nytimes.com/reuters/2020/07/15/us/15reuters-health-coronavirus-eu-ecdc.html?searchResultPosition=9
-
-**With Israeli Prison Visits Halted, a Father in Gaza Counts Down to Son's Release**\
-`Palestinian Sameeh Qe'dan is counting down the days until his son is released from an Israeli jail. There are just over three months left of his 16-year sentence, but with family visits from Gaza suspended due to the coronavirus, Qe'dan is worried.`\
-https://nytimes.com/reuters/2020/07/15/world/middleeast/15reuters-health-coronavirus-palestinians-prisoners.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/15/business/bc-eu-europe-electric-cars.html?searchResultPosition=10
 
