@@ -26,8 +26,8 @@ https://nytimes.com/2020/07/14/us/politics/trump-news-conference.html?searchResu
 `A sweeping national security law passed by China in June has unsettled news organizations and created uncertainty about the city’s prospects as a hub for journalism in Asia.`\
 https://nytimes.com/2020/07/14/business/media/new-york-times-hong-kong.html?searchResultPosition=7
 
-**China Reports Six New Coronavirus Cases for July 14**\
-`China reported on Wednesday six new coronavirus cases in the mainland for July 14, up from three cases a day earlier, the health authority said.`\
+**China Coronavirus Cases Ease on July 13, No New Ones in Beijing**\
+`China reported on Tuesday three new coronavirus cases in the mainland for July 13, compared with eight cases a day earlier, the health authority said.`\
 https://nytimes.com/reuters/2020/07/14/world/asia/14reuters-health-coronavirus-china-cases.html?searchResultPosition=8
 
 **Corrections: July 15, 2020**\
