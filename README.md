@@ -1,40 +1,40 @@
+**Olympics: No Tokyo Games Likely Means No Beijing Either, Says Pound**\
+`If the postponed Tokyo Olympics do not go ahead next year due to COVID-19 then the 2022 Beijing Winter Games will likely also fall victim to the pandemic, said long-time International Olympic Committee member Dick Pound.`\
+https://nytimes.com/reuters/2020/07/15/sports/olympics/15reuters-olympics-beijing-pound-interview.html?searchResultPosition=1
+
+**Child YouTube Star Ryan Kaji Adds Lockdown Fun, Virus Education to Repertoire**\
+`Young YouTube sensation Ryan Kaji's star has kept rising during the coronavirus lockdowns. `\
+https://nytimes.com/reuters/2020/07/15/us/15reuters-television-ryans-world.html?searchResultPosition=2
+
+**Canadian Businessman, California Mom Get Prison Terms in U.S. College Scandal**\
+`A Canadian businessman who once played professional football and a California woman were sentenced to prison and fined on Wednesday after admitting they participated in a vast cheating scheme to help their children get into college or graduate.`\
+https://nytimes.com/reuters/2020/07/15/arts/15reuters-usa-education-cheating.html?searchResultPosition=3
+
+**Your Thursday Briefing**\
+`Huawei, Philippine police, Seoul investigation: Here’s what you need to know.`\
+https://nytimes.com/2020/07/15/briefing/huawei-visas-philippine-police-seoul.html?searchResultPosition=4
+
+**Mail Could Be Delayed as New Postal Boss Pushes Cost-Cutting**\
+`Mail deliveries could be delayed by a day or more under cost-cutting efforts being imposed by the new postmaster general.`\
+https://nytimes.com/aponline/2020/07/15/us/politics/ap-us-virus-outbreak-postal-service.html?searchResultPosition=5
+
+**Kansas Congressman Charged With Providing False Information**\
+`A freshman Kansas congressman is accused of providing false information to a sheriff's deputy to hamper an investigation into whether he broke state election laws by listing a UPS Inc. store postal box as his residence on a state voter registration form.`\
+https://nytimes.com/aponline/2020/07/15/us/politics/ap-us-election-2020-kansas-house.html?searchResultPosition=6
+
+**Fauci Bullish on Prospects for U.S. Vaccine, Not Worried About China Winning Race**\
+`The leading U.S. expert on infectious diseases, Dr. Anthony Fauci, predicted on Wednesday the country will meet its goal of a coronavirus vaccine by year's end and was unmoved by the prospect that China would get there first.`\
+https://nytimes.com/reuters/2020/07/15/world/asia/15reuters-health-coronavirus-fauci.html?searchResultPosition=7
+
 **When the President Shows You an Old Man Shouting ‘White Power’**\
 `There are all sorts of interesting things you might learn from the video Donald Trump retweeted. The president, it would seem, noticed none of them.`\
-https://nytimes.com/2020/07/15/magazine/trump-white-power-tweet.html?searchResultPosition=1
+https://nytimes.com/2020/07/15/magazine/trump-white-power-tweet.html?searchResultPosition=8
 
 **‘Eat the Buddha’ Reports From the ‘World Capital of Self-Immolations’**\
 `Barbara Demick’s new book covers an awe-inspiring breadth of history — from the heyday of the Tibetan empire to the present-day Tibetan effort at cultural and spiritual survival.`\
-https://nytimes.com/2020/07/15/books/eat-buddha-life-death-tibetan-town-barbara-demick.html?searchResultPosition=2
+https://nytimes.com/2020/07/15/books/eat-buddha-life-death-tibetan-town-barbara-demick.html?searchResultPosition=9
 
-**Dozens Face Felony Charge After Breonna Taylor Protest**\
-`Eighty-seven protesters were arrested at the home of Kentucky’s attorney general in Louisville, where they had gathered to demand charges against the officers who killed Ms. Taylor.`\
-https://nytimes.com/2020/07/15/us/protesters-arrested-breonna-taylor-kentucky.html?searchResultPosition=3
-
-**Molly Neptune Parker, Basket Maker and Tribal Elder, Dies at 81**\
-`Ms. Parker was the matriarch of four generations of basket makers and the first female lieutenant governor of the Passamaquoddy Tribe.`\
-https://nytimes.com/2020/07/15/us/molly-neptune-parker-dead.html?searchResultPosition=4
-
-**23 AGs Sue DeVos Over Student Loan Forgiveness Policy**\
-`Democratic attorneys general in more than 20 states sued Education Secretary Betsy DeVos on Wednesday, seeking to repeal her overhaul of a student loan forgiveness program. `\
-https://nytimes.com/aponline/2020/07/15/us/politics/ap-us-trump-student-loan-forgiveness.html?searchResultPosition=5
-
-**Eating Fish May Protect the Brain From Pollutants**\
-`Women with the highest levels of omega-3s, found in fish, had less brain shrinkage tied to air pollution.`\
-https://nytimes.com/2020/07/15/well/eating-fish-may-protect-the-brain-from-pollutants.html?searchResultPosition=6
-
-**Column: First Summer Camp, Then a Season Like No Other**\
-`The big sports news from Los Angeles this week — other than the sensational outfield play of clubhouse attendant Francisco “Chico” Herrera — was that the Dodgers will join some other teams and sell fan cutouts to fill seats at Dodger Stadium.`\
-https://nytimes.com/aponline/2020/07/15/sports/baseball/ap-bbo-tim-dahlberg-baseball-blues.html?searchResultPosition=7
-
-**Editorial Roundup: US**\
-`Excerpts from recent editorials in the United States and abroad:`\
-https://nytimes.com/aponline/2020/07/15/us/ap-us-editorial-rdp-.html?searchResultPosition=8
-
-**Pelicans' Holiday Donating Remaining 2020 Salary for Social Justice**\
-`New Orleans Pelicans guard Jrue Holiday announced Wednesday that he will donate the remainder of his 2020 salary, up to $5.3 million, to social justice causes.`\
-https://nytimes.com/reuters/2020/07/15/sports/basketball/15reuters-basketball-nba-nop-holiday-donation.html?searchResultPosition=9
-
-**Tiger's Return Spurs Heavy Betting Action**\
-`Tiger Woods hasn't played tournament golf for five months but his return to the PGA Tour at The Memorial Tournament is providing another boost to sportsbooks.`\
-https://nytimes.com/reuters/2020/07/15/sports/golf/15reuters-golf-pga-tiger-wodds-memorial-betting.html?searchResultPosition=10
+**87 Face Felony Charges After Protesting Breonna Taylor’s Death**\
+`The demonstrators were arrested at the home of Kentucky’s attorney general in Louisville, where they had gathered to demand charges against the officers who killed Ms. Taylor.`\
+https://nytimes.com/2020/07/15/us/protesters-arrested-breonna-taylor-kentucky.html?searchResultPosition=10
 
