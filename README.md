@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/07/16/business/16reuters-facebook-privacy-eu-sc
 `Russia plans to produce 30 million doses of an experimental COVID-19 vaccine domestically this year, with the potential to manufacture a further 170 million abroad, the head of the country's sovereign wealth fund told Reuters.`\
 https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-health-coronavirus-russia-vaccine.html?searchResultPosition=7
 
-**U.S. Executes Wesley Purkey, Second Federal Execution in 17 Years, Spokeswoman Says**\
-`The U.S. Justice Department executed convicted murderer Wesley Purkey on Thursday, the second federal execution in a week after a 17-year pause, a Bureau of Prisons spokeswoman said.`\
+**U.S. Executes Wesley Purkey, Second Federal Execution in 17 Years**\
+`The U.S. Department of Justice executed convicted murderer Wesley Purkey on Thursday, a Bureau of Prisons spokeswoman said, in the second federal execution in a week after a 17-year pause, over objections by his lawyers that he had dementia and no longer understood his punishment.`\
 https://nytimes.com/reuters/2020/07/16/us/16reuters-usa-executions.html?searchResultPosition=8
 
 **Coronavirus Live Updates: Dire Numbers Prompt Mask Orders in U.S.**\
