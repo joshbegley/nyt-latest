@@ -1,40 +1,40 @@
-**Unpacking Cuomo’s Covid-19 Poster**\
-`An octopus guiding a ship. Trump perched on a moon. The Boyfriend Cliff. It's not a fever dream, it's the governor’s  “New York Tough” display.`\
-https://nytimes.com/2020/07/16/nyregion/andrew-cuomo-poster.html?searchResultPosition=1
+**Senior Russian Lawmaker Says Britain's Meddling Allegations Will Hurt Ties-RIA**\
+`A senior Russian lawmaker said on Thursday that Britain's allegations of Russian election meddling would undermine already bad ties between the two countries, calling the assertions anti-Russian nonsense, the RIA news agency reported.`\
+https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-britain-russia-lawmaker.html?searchResultPosition=1
 
-**Danone Beefs Up Specialized Nutrition Business in China**\
-`French food group Danone said on Thursday it would spend 100 million euros ($114.08 million) to strengthen its Specialized Nutrition business in China, as it bets on the Chinese market as a source of growth.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-danone-china.html?searchResultPosition=2
+**Greece: Homes Evacuated Near Athens as Wind Fuels Wildfire**\
+`A children’s summer camp and dozens of homes have been evacuated due to a wildfire south of Athens, where high winds hampered an effort to contain the blaze.`\
+https://nytimes.com/aponline/2020/07/16/world/europe/ap-eu-greece-wildfire.html?searchResultPosition=2
 
-**SMFG to Invest in British Asset Manager With Eye on ESG Bonds: Sources**\
-`Sumitomo Mitsui Financial Group will invest up to $25 million in British asset manager Affirmative Investment Management (AIM), two sources said, becoming the first Japanese lender to partner with a specialist in ESG bond investments.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-japan-smfg-aim.html?searchResultPosition=3
+**U.S. Passive Stock Funds Back in Demand as Investors Seek Steadier Returns**\
+`U.S. passive equity funds have started to witness inflows after a two-month hiatus as investors flock to rising equity markets, but prefer shadowing indexes to picking stocks.`\
+https://nytimes.com/reuters/2020/07/16/business/16reuters-usa-markets-funds.html?searchResultPosition=3
 
-**EU's Vestager Says Court Rulings on Apple Taxes, EU Data Transfer Tool Are a 'Loss'**\
-`The European Union's antitrust chief Margrethe Vestager said on Thursday that EU court rulings this week, which saw courts reject a key EU tool used to transfer Europeans' personal data across the Atlantic and reject an EU order for Apple to pay 13 billion euros in Irish back taxes, were a "loss".`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-facebook-privacy-eu-vestager.html?searchResultPosition=4
+**VIRUS DIARY: Perfect Pregnancy Plans, Ruined by a Pandemic**\
+`It was the day after April Fool’s when I stared at a tiny window on a pregnancy test and watched a very clear plus sign quickly appear.`\
+https://nytimes.com/aponline/2020/07/16/us/ap-us-virus-outbreak-diary-pandemic-pregnancy.html?searchResultPosition=4
 
-**Lebanon Central Bank Sets Up Committee to Restructure Banks, Memo Says**\
-`Lebanon's central bank has set up a committee to restructure  financially stricken commercial banks and study their performance, according to a memo by the bank seen by Reuters on Thursday.`\
-https://nytimes.com/reuters/2020/07/16/world/middleeast/16reuters-lebanon-crisis-banks.html?searchResultPosition=5
+**Russian Hackers Trying to Steal Coronavirus Vaccine Research, Intelligence Agencies Say**\
+`The hackers have been targeting British, Canadian and American organizations researching vaccines using spear-phishing and malware.`\
+https://nytimes.com/2020/07/16/us/politics/vaccine-hacking-russia.html?searchResultPosition=5
 
-**Privacy Activist Schrems Welcomes EU Court Decision on Facebook**\
-`Austrian privacy activist Max Schrems on Thursday welcomed a decision by the European Union's top court in his case against Facebook, saying the legal basis for more then 5,000 U.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-facebook-privacy-eu-schrems.html?searchResultPosition=6
+**African Nation Blasts 'Inequality Crisis' in Virus Testing**\
+`Central African Republic’s health minister is blasting the “big inequality crisis” in coronavirus testing as he sees rich countries like Britain conduct scores of thousands of tests daily while his own struggles to obtain supplies for a couple hundred at most. `\
+https://nytimes.com/aponline/2020/07/16/world/africa/ap-af-virus-outbreak-africa.html?searchResultPosition=6
 
-**Russia to Mass Produce Experimental COVID-19 Vaccine: Wealth Fund Head**\
-`Russia plans to produce 30 million doses of an experimental COVID-19 vaccine domestically this year, with the potential to manufacture a further 170 million abroad, the head of the country's sovereign wealth fund told Reuters.`\
-https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-health-coronavirus-russia-vaccine.html?searchResultPosition=7
+**Japanese Robot to Clock In at a Convenience Store in Test of Retail Automation**\
+`In August, a robot vaguely resembling a kangaroo will begin stacking sandwiches, drinks and ready meals on shelves at a Japanese convenience store in a test its maker, Telexistence, hopes will help trigger a wave of retail automation.`\
+https://nytimes.com/reuters/2020/07/16/business/16reuters-japan-tech-robot.html?searchResultPosition=7
 
-**U.S. Executes Wesley Purkey, Second Federal Execution in 17 Years**\
-`The U.S. Department of Justice executed convicted murderer Wesley Purkey on Thursday, a Bureau of Prisons spokeswoman said, in the second federal execution in a week after a 17-year pause, over objections by his lawyers that he had dementia and no longer understood his punishment.`\
-https://nytimes.com/reuters/2020/07/16/us/16reuters-usa-executions.html?searchResultPosition=8
+**Coronavirus Drug and Treatment Tracker**\
+`An updated list of potential treatments for Covid-19.`\
+https://nytimes.com/interactive/2020/science/coronavirus-drugs-treatments.html?searchResultPosition=8
 
-**Coronavirus Live Updates: Russian Hackers Trying to Steal Vaccine Research, Intelligence Agencies Say**\
-`The National Security Agency said a hacking group associated with Russian intelligence is targeting health care organizations seeking intelligence on vaccines.`\
-https://nytimes.com/2020/07/16/world/coronavirus-updates.html?searchResultPosition=9
+**The Most Popular Listings of June**\
+`The most viewed listings in June included a luxurious farm retreat in Connecticut and a private Australian island for about $1 million.`\
+https://nytimes.com/2020/07/16/realestate/the-most-popular-listings-of-june.html?searchResultPosition=9
 
-**Hungary Cancels August 20 National Holiday Celebrations Due to Pandemic**\
-`Hungary has cancelled celebrations and fireworks scheduled for the Aug. 20 national holiday due to the coronavirus pandemic, Prime Minister Viktor Orban's chief of staff Gergely Gulyas said on Thursday.`\
-https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-health-coronavirus-hungary-fireworks.html?searchResultPosition=10
+**Italy PM Conte's Victory Over Powerful Benettons May Come With Price**\
+`Prime Minister Giuseppe Conte emerged stronger from this week's deal ousting the Benetton family from its control of Italy's lucrative motorways, but his victory over one of the country's most powerful financial dynasties may carry a price.`\
+https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-italy-politics-conte-motorway.html?searchResultPosition=10
 
