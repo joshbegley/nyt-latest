@@ -1,40 +1,40 @@
+**4 Thai Cabinet Ministers Resign After Party Leader Shakeup**\
+`Four key ministers in Thailand's Cabinet announced their resignations Thursday, as a military clique within the ruling coalition's most powerful political party continues to consolidate power.`\
+https://nytimes.com/aponline/2020/07/16/world/asia/ap-as-thailand-government.html?searchResultPosition=1
+
+**Kicked Out of China, and Other Real-Life Costs of a Geopolitical Meltdown**\
+`When countries clash, here’s what happens to those of us caught in the middle.`\
+https://nytimes.com/2020/07/16/opinion/sunday/china-us-cold-war.html?searchResultPosition=2
+
+**Vacation in the Summer of Covid-19**\
+`Traveling during a pandemic requires lots of research, precision planning and a willingness to play by new and very stringent rules. For these writers, it still felt good to get away.`\
+https://nytimes.com/2020/07/16/travel/virus-vacation.html?searchResultPosition=3
+
+**Shootings Have Soared. Is the N.Y.P.D. Pulling Back?**\
+`As shootings go unsolved, some elected officials think that officers are staging a slowdown. But the department says it is stretched thin.`\
+https://nytimes.com/2020/07/16/nyregion/nyc-shootings-nypd.html?searchResultPosition=4
+
 **Black Artists on How to Change Classical Music**\
 `Nine performers describe the steps they recommend to begin transforming a white-dominated field.`\
-https://nytimes.com/2020/07/16/arts/music/black-classical-music-opera.html?searchResultPosition=1
+https://nytimes.com/2020/07/16/arts/music/black-classical-music-opera.html?searchResultPosition=5
+
+**Boom Time for Death Planning**\
+`The coronavirus pandemic has drawn new business to start-ups that provide end-of-life services, from estate planning to a final tweet.`\
+https://nytimes.com/2020/07/16/business/boom-time-for-death-planning.html?searchResultPosition=6
 
 **It’s Merkel’s Last Rodeo. Will a Pandemic Rescue Deal Seal Her Legacy?**\
 `Angela Merkel has been the German chancellor for 15 years. Forging European consensus on a bitterly disputed recovery fund could burnish an uneven record.`\
-https://nytimes.com/2020/07/16/world/europe/Merkel-EU-summit-coronavirus-rescue-recovery-plan.html?searchResultPosition=2
+https://nytimes.com/2020/07/16/world/europe/Merkel-EU-summit-coronavirus-rescue-recovery-plan.html?searchResultPosition=7
 
-**Colin Powell Still Wants Answers**\
-`In 2003, he made the case for invading Iraq to halt its weapons programs. The analysts who provided the intelligence now say it was doubted inside the C.I.A. at the time.`\
-https://nytimes.com/2020/07/16/magazine/colin-powell-iraq-war.html?searchResultPosition=3
+**To Make Orchestras More Diverse, End Blind Auditions**\
+`If ensembles are to reflect the communities they serve, the audition process should take into account race, gender and other factors.`\
+https://nytimes.com/2020/07/16/arts/music/blind-auditions-orchestras-race.html?searchResultPosition=8
 
-**Even if the Polls Are Really Off, Trump Is Still in Trouble**\
-`Joe Biden’s lead is sufficient to cover a sizable error. And several of the biggest problems with polling in the last election have either been addressed or become less relevant.`\
-https://nytimes.com/2020/07/16/upshot/polls-biden-trump-how-accurate.html?searchResultPosition=4
+**Opera Can No Longer Ignore Its Race Problem**\
+`As the industry rebuilds from the coronavirus pandemic, it must face long-simmering issues of representation.`\
+https://nytimes.com/2020/07/16/arts/music/opera-race-representation.html?searchResultPosition=9
 
-**Not Everyone Hates School at Home**\
-`Despite the challenges of at-home learning, some parents are considering teaching kids at home this fall.`\
-https://nytimes.com/2020/07/16/well/family/not-everyone-hates-school-at-home.html?searchResultPosition=5
-
-**FaZe Clan President Departs: ‘It’s Time for Gaming to Clean Up Its Act’**\
-`Greg Selkoe is leaving the successful esports conglomerate to start a new venture that’s less “frat house” and more diverse.`\
-https://nytimes.com/2020/07/16/style/xset-gaming-lifestyle-company-faze-clan.html?searchResultPosition=6
-
-**Saying Goodbye to Totokaelo**\
-`A shopping refuge for irreverent luxury.`\
-https://nytimes.com/2020/07/16/fashion/totokaelo-need-suppy-closing.html?searchResultPosition=7
-
-**What’s With All the Covid-Death Shaming?**\
-`Some Pakistanis won’t say they are losing family members to the pandemic because they don’t want to bury the bodies alone.`\
-https://nytimes.com/2020/07/16/opinion/coronavirus-pakistan-death.html?searchResultPosition=8
-
-**It’s Not Just You. America’s Leaders Are Getting Older.**\
-`Across other wealthy democracies, leaders as old as Trump and Biden are vanishingly rare.`\
-https://nytimes.com/2020/07/16/opinion/america-presidents-old-age.html?searchResultPosition=9
-
-**Protests Continue Daily in Louisville. Here’s a Look at 45 Days of Marches.**\
-`Kentucky’s largest city has seen weeks of demonstrators demanding justice in the case of Breonna Taylor, who was killed by the police in her home there.`\
-https://nytimes.com/interactive/2020/07/16/us/black-lives-matter-protests-louisville-breonna-taylor.html?searchResultPosition=10
+**In the Same Towns, Private Schools Are Reopening While Public Schools Are Not**\
+`Private schools have always had more flexibility, and usually more money, but never has that disparity made a bigger difference than now.`\
+https://nytimes.com/2020/07/16/upshot/coronavirus-school-reopening-private-public-gap.html?searchResultPosition=10
 
