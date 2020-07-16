@@ -1,5 +1,5 @@
 **Southern Iraq’s Toxic TwilightBurning Gas and Poisoning the Air**\
-`Iraq is the rare country that imports gas but also burns natural gas from oil wells into the air. The wasted gas is enough to power 3 million homes and burning it is making people sick.`\
+`Iraq is the rare country that imports gas but also burns natural gas from oil wells into the air. The wasted gas is enough to power 3 million homes. Burning it is making people sick.`\
 https://nytimes.com/2020/07/16/world/middleeast/iraq-gas-flaring-cancer-environment.html?searchResultPosition=1
 
 **Zion Williamson Leaves Pelicans for 'Family Medical Matter'**\
