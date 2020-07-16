@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/07/15/world/asia/15reuters-health-coronavirus-v
 https://nytimes.com/reuters/2020/07/15/world/asia/15reuters-health-coronavirus-china-cases.html?searchResultPosition=4
 
 **Jewish Leaders Condemn 'Hurtful' Words by Nick Cannon**\
-`The Anti-Defamation League and other Jewish leaders condemned what they called “hurtful words” and anti-Semitic theories expressed by Nick Cannon on Wednesday, a day after ViacomCBS severed ties with him for the remarks made on a podcast. `\
+`The Anti-Defamation League and other Jewish leaders on Wednesday condemned what they called “hurtful words” and anti-Semitic theories expressed by Nick Cannon, a day after ViacomCBS severed ties with him for the remarks made on a podcast. `\
 https://nytimes.com/aponline/2020/07/15/us/ap-us-people-nick-cannon-jewish-reaction.html?searchResultPosition=5
 
 **McIlroy 'Not Even Thinking About' Losing No. 1 Ranking**\
