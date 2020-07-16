@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/07/15/business/15reuters-china-economy-h2.html?
 `Australia’s coronavirus hot spot Victoria state moved to increase its available hospital beds Thursday and reported a record daily high of 317 infections.`\
 https://nytimes.com/aponline/2020/07/15/business/ap-as-virus-outbreak-asia.html?searchResultPosition=9
 
-**Reconnaissance Plane Crashes in Eastern Turkey, Seven Killed-Anadolu**\
-`Seven security personnel were killed when a reconnaissance plane crashed in Turkey's eastern Van province, the state-run Anadolu news agency, quoted the interior minister as saying on Thursday.`\
+**Reconnaissance Plane Crashes in Eastern Turkey, Seven Killed**\
+`Seven Turkish security personnel were killed when a reconnaissance plane crashed in eastern Van province, state-owned Anadolu news agency quoted the interior minister as saying on Thursday.`\
 https://nytimes.com/reuters/2020/07/15/world/europe/15reuters-turkey-airplane-crash.html?searchResultPosition=10
 
