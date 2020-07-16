@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-health-coronavirus
 `The U.S. Department of Justice executed convicted murderer Wesley Purkey on Thursday, a Bureau of Prisons spokeswoman said, in the second federal execution in a week after a 17-year pause, over objections by his lawyers that he had dementia and no longer understood his punishment.`\
 https://nytimes.com/reuters/2020/07/16/us/16reuters-usa-executions.html?searchResultPosition=8
 
-**Coronavirus Live Updates: Dire Numbers Prompt Mask Orders in U.S.**\
-`Cities and states are also limiting the size of gatherings in an effort to slow the spread of the virus. Washington State, where the virus first appeared in the U.S., is struggling with rising cases.`\
+**Coronavirus Live Updates: Russian Hackers Trying to Steal Vaccine Research, Intelligence Agencies Say**\
+`The National Security Agency said a hacking group associated with Russian intelligence is targeting health care organizations seeking intelligence on vaccines.`\
 https://nytimes.com/2020/07/16/world/coronavirus-updates.html?searchResultPosition=9
 
 **Hungary Cancels August 20 National Holiday Celebrations Due to Pandemic**\
