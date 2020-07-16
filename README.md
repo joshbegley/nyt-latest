@@ -1,40 +1,40 @@
+**A-Rod, Bidding for Mets, Wants Players to Accept Cap System**\
+`Alex Rodriguez, among four groups of bidders for a possible purchase of the New York Mets, called for baseball players accept the type of revenue-sharing system that is tied to a salary cap and sparked quick opposition from the union.`\
+https://nytimes.com/aponline/2020/07/16/sports/baseball/ap-bbn-mets-rodriguez.html?searchResultPosition=1
+
+**NFL: No Fans Allowed at Training Camp**\
+`Fans will not be allowed to attend NFL training camps due to the ongoing coronavirus pandemic, the league announced Thursday.`\
+https://nytimes.com/reuters/2020/07/16/sports/football/16reuters-football-nfl-min-gb-fans-training-camp.html?searchResultPosition=2
+
+**American Airlines, Twitter Fall; Dell, Virgin Galactic Rise**\
+`Stocks that moved heavily or traded substantially on Thursday:`\
+https://nytimes.com/aponline/2020/07/16/business/ap-financial-markets-stocks.html?searchResultPosition=3
+
+**Jailed Executive in Wirecard Scandal Offers Confession, Lawyer Says**\
+`The former head of a key subsidiary of Wirecard, who was arrested earlier this month, has admitted wrongdoing to prosecutors for his role in a multi-billion-euros fraud, his lawyer said on Thursday.`\
+https://nytimes.com/reuters/2020/07/16/business/16reuters-wirecard-accounts.html?searchResultPosition=4
+
 **Barr Urges U.S. Companies to Resist Serving as ‘Pawns’ for China**\
 `The attorney general accused several companies by name of appeasing an authoritarian government to preserve access to a huge consumer market.`\
-https://nytimes.com/2020/07/16/us/politics/barr-china.html?searchResultPosition=1
+https://nytimes.com/2020/07/16/us/politics/barr-china.html?searchResultPosition=5
 
 **Health Officials: No Outbreak From Trump's Rushmore Visit**\
 `It doesn't appear the July 3 Mount Rushmore fireworks event attended by President Donald Trump turned into a hotbed of infections, either from South Dakotans or out-of-state tourists, South Dakota health officials said Thursday.`\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-virus-outbreak-south-dakota-1st-ld-writethru.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/16/us/ap-us-virus-outbreak-south-dakota-1st-ld-writethru.html?searchResultPosition=6
 
 **Black Lives Matter Billboard Placed Next to Confederate Flag**\
 `A Black Lives Matter sign now fills a billboard next to a big Confederate flag that greets people coming into a small town outside Raleigh, thrilling some community organizers and angering the property owner. `\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-racial-injustice-blm-billboard-3rd-ld-writethru.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/16/us/ap-us-racial-injustice-blm-billboard-3rd-ld-writethru.html?searchResultPosition=7
 
 **Closing Prices for Crude Oil, Gold and Other Commodities**\
 `Benchmark U.S. crude oil for August delivery fell 45 cents to settle at $40.75 a barrel Thursday. Brent crude oil for September delivery fell 42 cents to $43.37 a barrel.`\
-https://nytimes.com/aponline/2020/07/16/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/07/16/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=8
 
-**Netflix Beats Estimates for Paid Subscriber Additions on Surge in At-Home Viewing**\
-`Netflix Inc added more paid subscribers than expected in the second quarter as audiences bound to their homes due to the COVID-19 restrictions binge watched its shows in the absence of live events and movie theaters.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-netflix-results.html?searchResultPosition=5
+**Netflix Forecasts Third-Quarter Subscriber Additions Below Estimates, Shares Fall**\
+`Netflix Inc on Thursday forecast paid subscriber additions for the third quarter below estimates, in an early sign that the lockdown boost to streaming may be waning as stay-at-home orders ease, sending shares down 10%.`\
+https://nytimes.com/reuters/2020/07/16/business/16reuters-netflix-results.html?searchResultPosition=9
 
 **Crowded Meeting With Few Masks 'Foolish,' Utah Governor Says**\
 `People crowding into a public meeting in Utah to push for an exception to mask requirements in schools was rather “foolish" and reflects an “almost mob mentality,” Republican Gov. Gary Herbert said Thursday. `\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-virus-outbreak-utah-crowded-meeting-2nd-ld-writethru.html?searchResultPosition=6
-
-**Boy Dies After Pickup Truck, Amish Pony-Drawn Cart Collide**\
-`A young child injured when a pickup truck and an Amish pony-drawn cart collided this week has died from his injuries, authorities in Ohio said, while three of his siblings remain hospitalized.`\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-amish-cart-crash-children-1st-ld-writethru.html?searchResultPosition=7
-
-**Teen Locked Up Over School Work; School Disagrees With Judge**\
-`A suburban Detroit school district said no student should be punished for missed online work during the coronavirus pandemic, two days after a news organization reported that a judge placed a teenager in juvenile detention.`\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-teen-detained-homework.html?searchResultPosition=8
-
-**Missing Theater Under the Stars (Even the Bugs and the Rain)**\
-`Shakespeare in the Park and other outdoor venues are shut. But for performers and directors, open-air memories are as sharp as the bite of a mosquito.`\
-https://nytimes.com/2020/07/16/theater/outdoor-theater-plays.html?searchResultPosition=9
-
-**Trump Campaign Aims to Reset With Staff Shake-Up, Sharpened Data Focus**\
-`President Donald Trump's troubled re-election bid entered a new phase on Thursday after a leadership shake-up put a longtime Republican political strategist in charge of resetting the campaign even as Trump refuses to show more discipline.`\
-https://nytimes.com/reuters/2020/07/16/us/16reuters-usa-election-trump.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/16/us/ap-us-virus-outbreak-utah-crowded-meeting-2nd-ld-writethru.html?searchResultPosition=10
 
