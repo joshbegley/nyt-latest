@@ -22,8 +22,8 @@ https://nytimes.com/aponline/2020/07/15/us/ap-us-charlottesville-helicopter-cras
 `A Southern California man who authorities say tried to sell $6 million worth of phony paintings he claimed were created by Andy Warhol, Jean-Michel Basquiat and other modern masters was sentenced Wednesday to five years in federal prison.`\
 https://nytimes.com/aponline/2020/07/15/us/ap-us-art-fraud.html?searchResultPosition=6
 
-**South Korea's Central Bank Leaves Policy Rate Unchanged, as Expected**\
-`South Korea's central bank kept its benchmark interest rate steady on Thursday, holding off on more stimulus to help the economy as policymakers keep a lid on red-hot property prices.`\
+**South Korea Central Bank Holds Rates at Record Low Amid Push to Curb Home Price Surge**\
+`South Korea's central bank kept the benchmark interest rate unchanged on Thursday, as policymakers remain wary of further easing amid the government's drive to cool property prices. `\
 https://nytimes.com/reuters/2020/07/15/world/asia/15reuters-southkorea-economy-rates.html?searchResultPosition=7
 
 **Leaf Group Says One Board Member Quits, Another Leaves Audit Committee**\
