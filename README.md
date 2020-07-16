@@ -22,8 +22,8 @@ https://nytimes.com/aponline/2020/07/16/health/bc-as-med-virus-outbreak-china-va
 `At the start of the year, Luis Lopez moved his barbershop to a bigger location with three more chairs and more than twice the rent.`\
 https://nytimes.com/aponline/2020/07/16/business/ap-us-virus-outbreak-california-salons.html?searchResultPosition=6
 
-**U.S. Customs Places Detention Order on Imports of Goods Made by Malaysia's Top Glove**\
-`The U.S. Customs and Border Protection (CBP) has enforced a detention order on subsidiaries of the world's largest medical glove maker Top Glove Corp Bhd, an action intended to halt importation of goods from companies suspected of using forced labour. `\
+**U.S. Customs Issues Detention Order on Imports of Goods Made by Malaysia's Top Glove**\
+`The U.S. Customs and Border Protection (CBP) has enforced a detention order on subsidiaries of the world's largest medical glove maker Top Glove Corp Bhd, an action intended to halt importation of goods from companies suspected of using forced labour.`\
 https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-top-glove-usa.html?searchResultPosition=7
 
 **Stacked Chairs a Symbol of California Reclosing Amid Virus**\
