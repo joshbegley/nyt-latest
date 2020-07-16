@@ -2,7 +2,7 @@
 `Europe's top court on Thursday rejected a key EU tool used to transfer Europeans' personal data across the Atlantic for commercial use but upheld the validity of another tool used by hundreds of thousands of companies to transfer data worldwide.`\
 https://nytimes.com/reuters/2020/07/16/technology/16reuters-facebook-privacy-eu-ruling.html?searchResultPosition=1
 
-**EU Court Strikes Down Data-Sharing Pact With US**\
+**EU Court Invalidates Data-Sharing Pact With US**\
 `The European Union’s top court ruled Thursday that an agreement that allows big tech companies to transfer data to the United States is invalid, and that national regulators need to take tougher action to protect the privacy of users' data.`\
 https://nytimes.com/aponline/2020/07/16/business/bc-eu-europe-data-privacy-facebook.html?searchResultPosition=2
 
