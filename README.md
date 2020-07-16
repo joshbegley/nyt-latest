@@ -1,40 +1,40 @@
-**UK Seeks to Raise Record £385 Billion From Debt Markets**\
-`Britain said on Thursday it would seek to raise 110 billion pounds ($138 billion) from the bond market between September and November, taking total gilt issuance in the first eight months of the financial year to a record 385 billion pounds.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-health-coronavirus-britain-issuance.html?searchResultPosition=1
+**U.S. Supreme Court Allows Second Federal Execution in 17 Years to Proceed**\
+`The U.S. Supreme Court on Thursday cleared the way for the second federal execution in 17 years to take place, overturning lower court injunctions.`\
+https://nytimes.com/reuters/2020/07/16/us/16reuters-usa-executions.html?searchResultPosition=1
 
-**Late Night Thinks the Trumps Are Full of Beans**\
-`Ivanka Trump posed with a can of Goya beans after the company’s president praised her father. “Sadly, after Ivanka tweeted in Spanish, Trump immediately had her deported,” said Jimmy Fallon.`\
-https://nytimes.com/2020/07/16/arts/television/late-night-ivanka-trump-goya-beans.html?searchResultPosition=2
+**Coronavirus Live Updates: Dire Numbers Prompt Mask Orders in U.S.**\
+`Cities and states are also limiting the size of gatherings in an effort to slow the spread of the virus. Washington State, where the virus first appeared in the U.S., is struggling with rising cases.`\
+https://nytimes.com/2020/07/16/world/coronavirus-updates.html?searchResultPosition=2
 
-**North Macedonia: Social Democrats Score Narrow Election Win**\
-`A pro-Western party in North Macedonia is poised to try to form a coalition government following a narrow election victory.`\
-https://nytimes.com/aponline/2020/07/16/world/europe/ap-eu-north-macedonia-elections.html?searchResultPosition=3
+**Hungary Cancels August 20 National Holiday Celebrations Due to Pandemic**\
+`Hungary has cancelled celebrations and fireworks on the Aug 20 national holiday due to the coronavirus pandemic, the prime minister's chief of staff Gergely Gulyas said on Thursday.`\
+https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-health-coronavirus-hungary-fireworks.html?searchResultPosition=3
 
-**UAE Reschedules Mars Mission Launch to Between July 20 and July 22**\
-`The United Arab Emirates has rescheduled the launch of its mission to Mars to a preliminary window between July 20 and July 22, depending on weather conditions at the launch site in Japan, the government's communications office said on Thursday.`\
-https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-space-exploration-emirates.html?searchResultPosition=4
+**Food Commodity Prices at Risk of 'Market Shock' Falls: FAO/OECD**\
+`Ample supply and a knock to consumption in the event of a global recession threaten to produce a "market shock" as food prices tumble, the U.N.'s food agency and the OECD said in a report published on Thursday.`\
+https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-global-agriculture-outlook.html?searchResultPosition=4
 
-**Soccer: Public Have the Wrong Idea of Footballers, Says FIFPRO**\
-`The perception that footballers do not live up to their social responsibilities has been debunked by their "incredible initiatives" during the COVID-19 pandemic, the global players' union FIFPRO said in a report published Thursday.`\
-https://nytimes.com/reuters/2020/07/16/sports/soccer/16reuters-health-coronavirus-soccer-fifpro.html?searchResultPosition=5
+**EU Struggles for Unity Ahead of Crunch Recovery Fund Summit**\
+`European Union member states struggled on Wednesday to resolve differences over a massive recovery plan for their coronavirus-hit economies, but agreed a deal was crucial at an end-of-week summit for the bloc's credibility.`\
+https://nytimes.com/reuters/2020/07/16/us/16reuters-eu-recovery.html?searchResultPosition=5
 
-**Factbox: FIFPRO Report on Footballers' Contributions During Pandemic**\
-`The global players' union FIFPRO published a report on Thursday highlighting some of the contributions made by professional footballers into fighting the effects of the COVID-19 pandemic. `\
-https://nytimes.com/reuters/2020/07/16/sports/soccer/16reuters-health-coronavirus-soccer-fifpro-factbox.html?searchResultPosition=6
+**India's Reliance Seen Emerging as Bigger Threat for U.S. Firms Like Amazon, Walmart**\
+`A $20 billion fund raising spree may take India's Reliance closer to its dream of becoming a digital giant, further threatening the ambitious plans U.S. companies like Amazon, Walmart and Zoom have for India.`\
+https://nytimes.com/reuters/2020/07/16/business/16reuters-india-reliance.html?searchResultPosition=6
 
-**In Solemn Ceremony, Spain Honors Pandemic Victims and Heroes**\
-`Spain paid tribute Thursday to the nation's victims of the new coronavirus and workers who put their lives at risk during the worst of the pandemic with a solemn state ceremony in Madrid.`\
-https://nytimes.com/aponline/2020/07/16/world/europe/ap-eu-virus-outbreak-spain-mourning.html?searchResultPosition=7
+**Hong Kong Reports 63 Locally Transmitted Coronavirus Cases**\
+`Hong Kong authorities reported 63 locally transmitted coronavirus cases on Thursday, stoking further concern about a third wave of infections in the global financial hub.`\
+https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-health-coronavirus-hongkong.html?searchResultPosition=7
 
-**‘Fatal Affair’ Review: Close Stalker**\
-`Nia Long and Omar Epps ignite a dangerous obsession in this hackneyed romantic melodrama.`\
-https://nytimes.com/2020/07/16/movies/fatal-affair-review-close-stalker.html?searchResultPosition=8
+**Indonesia Reports 1,574 New Coronavirus Infections, 76 New Deaths**\
+`Indonesia reported 1,574 new coronavirus cases on Thursday, bringing the total number of infections to 81,668 its health ministry said. `\
+https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-health-coronavirus-indonesia.html?searchResultPosition=8
 
-**A Team by Any Other Name Is Fine, It Turns Out**\
-`The Washington N.F.L. franchise is picking a new name. As other pro franchises have learned, the process of rebranding can be as unique as the result.`\
-https://nytimes.com/2020/07/16/sports/football/washington-name-change-trademark.html?searchResultPosition=9
+**Philippines Reports 29 New Coronavirus Deaths, 2,498 Infections**\
+`The Philippines' health ministry on Thursday reported 29 new coronavirus deaths and 2,498 additional cases, the country's the biggest daily rise in confirmed infections in more than a week.`\
+https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-health-coronavirus-philippines-cases.html?searchResultPosition=9
 
-**ECB to Take Pause Even as Pandemic Worries Rise**\
-`Taking a pause after a series of extraordinary moves, the European Central Bank is all but certain to keep policy on hold on Thursday, scrutinizing instead the effectiveness and any unwanted side-effects of its crisis-fighting measures.`\
-https://nytimes.com/reuters/2020/07/16/us/16reuters-ecb-policy.html?searchResultPosition=10
+**EU Court Strikes Down EU-U.S. Data Transfer Tool in Facebook Case**\
+`Europe's top court on Thursday rejected the validity of a mechanism used by thousands of companies to send data to the United States, backing concerns about U.S. surveillance raised by privacy activist Max Schrems in his clash with Facebook.`\
+https://nytimes.com/reuters/2020/07/16/business/16reuters-facebook-privacy-eu.html?searchResultPosition=10
 
