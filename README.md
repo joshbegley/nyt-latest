@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/07/16/business/16reuters-facebook-privacy-eu-sc
 https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-health-coronavirus-russia-vaccine.html?searchResultPosition=7
 
 **U.S. Supreme Court Allows Second Federal Execution in 17 Years to Proceed**\
-`The U.S. Supreme Court on Thursday cleared the way for the second federal execution in 17 years to take place, overturning lower court injunctions.`\
+`The U.S. Supreme Court on Thursday cleared the way for the second federal execution this week and in 17 years to take place, overturning orders from a lower court after the U.S. Department of Justice (DOJ) challenged them.`\
 https://nytimes.com/reuters/2020/07/16/us/16reuters-usa-executions.html?searchResultPosition=8
 
 **Coronavirus Live Updates: Dire Numbers Prompt Mask Orders in U.S.**\
