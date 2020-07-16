@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/07/15/business/15reuters-china-economy-activity
 `Chinese President Xi Jinping said China's long-term sound economic growth fundamentals will not change, the official Xinhua news agency reported on Thursday as China reported better-than-expected second-quarter growth. `\
 https://nytimes.com/reuters/2020/07/15/world/asia/15reuters-china-economy-xi.html?searchResultPosition=3
 
-**China's Economy Grows 3.2% as Virus Lockdowns Lifted**\
-`China’s economy rebounded from a painful contraction to grow by 3.2% over a year earlier in the latest quarter as anti-virus lockdowns were lifted and factories and stores reopened. `\
+**China's Economy Returns to Growth as Virus Lockdowns Lifted**\
+`China became the first major economy to report growth following the coronavirus pandemic, recording an unexpectedly strong 3.2% expansion over a year earlier in the latest quarter as anti-virus lockdowns were lifted and factories and stores reopened. `\
 https://nytimes.com/aponline/2020/07/15/business/bc-as-china-economy.html?searchResultPosition=4
 
 **California Resources Seeks Bankruptcy Protection Over Oil Slump**\
