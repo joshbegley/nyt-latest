@@ -1,40 +1,40 @@
+**Portugal Appoints Centeno as Central Bank Governor**\
+`The Portuguese government announced on Thursday that Mario Centeno, who resigned from his role as finance minister last month, will be the country's next central bank governor.`\
+https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-portugal-politics-centeno-cenbank.html?searchResultPosition=1
+
+**Russia Calls Britain's Meddling Allegations Contradictory and Unclear**\
+`Russia's Foreign Ministry mocked Britain's allegations of Russian election meddling on Thursday and described them as contradictory and unclear. `\
+https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-britain-russia-reaction.html?searchResultPosition=2
+
+**How Ultra-Black Fish Disappear in the Deepest Seas**\
+`Researchers have found fish that absorb more than 99.9 percent of the light that hits their skin.`\
+https://nytimes.com/2020/07/16/science/ultra-black-fish.html?searchResultPosition=3
+
+**U.S. Senator Warner Asks for Probe of Hacks, Better Monitoring of High-Risk Accounts**\
+`U.S. Senator Mark Warner called on Thursday for Twitter Inc to investigate how hackers gained access to the social media company's internal systems to hijack accounts of several politicians, billionaires, celebrities and companies, and to put more resources into protecting high-profile feeds.`\
+https://nytimes.com/reuters/2020/07/16/business/16reuters-twitter-cyber-warner.html?searchResultPosition=4
+
+**We Interrupt This Gloom to Offer … Hope**\
+`Yes, America is suffering needlessly. That may save us.`\
+https://nytimes.com/2020/07/16/opinion/sunday/coronavirus-blm-america-hope.html?searchResultPosition=5
+
+**Leonardo Villar, Venerated Brazilian Actor, Dies at 96**\
+`From telenovelas to a winner of the Palme d’Or, this member of Brazil’s cinematic royalty devoted himself entirely to his work.`\
+https://nytimes.com/2020/07/16/movies/leonardo-villar-brazilian-actor-dies.html?searchResultPosition=6
+
+**Exclusive: J&J Says in Talks With Japan, Gates Foundation to Lock in Deals on COVID-19 Vaccine**\
+`Johnson & Johnson Inc is in talks with the government of Japan and the Bill and Melinda Gates Foundation about locking up allocations of its potential COVID-19 vaccine in advance of it producing any of the medicines, Johnson & Johnson's chief financial officer Joseph Wolk told Reuters in an interview.`\
+https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-health-coronavirus-johnson-johnson-vaccine-exclusive.html?searchResultPosition=7
+
 **U.S. Army Wants to Remove 'Divisive Symbols' From Military Bases**\
 `The U.S. Army wants to remove any sort of divisive symbols from military bases, potentially including Confederate flags, the Army secretary said on Thursday, suggesting that the Pentagon was close to a broader policy barring such symbols from all military installations. `\
-https://nytimes.com/reuters/2020/07/16/us/16reuters-usa-military-symbols.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/16/us/16reuters-usa-military-symbols.html?searchResultPosition=8
 
 **Probable That Waves of COVID-19 Will Recur in Future Years, UK Chief Scientist Says**\
 `The novel coronavirus will likely return several times in the coming years, triggering new waves of the COVID-19 pandemic, the British government's chief scientific adviser said on Thursday.`\
-https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-health-coronavirus-britain-wave.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-health-coronavirus-britain-wave.html?searchResultPosition=9
 
 **‘The Sunlit Night’ Review: A Trip to the Arctic to Find Her Muse**\
 `Jenny Slate stars as a creatively stunted painter searching for inspiration in the Norwegian summer.`\
-https://nytimes.com/2020/07/16/movies/the-sunlit-night-review.html?searchResultPosition=3
-
-**Deal Not Certain on EU Recovery Scheme at Summit: Official**\
-`A deal on the EU's proposed stimulus scheme to start economic recovery from the coronavirus pandemic is not certain at the bloc's summit this Friday and Saturday as major differences persist between member states, a senior official in Brussels said on Thursday. `\
-https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-eu-recovery-official.html?searchResultPosition=4
-
-**Floored by COVID-19, Cirque Du Soleil Eyes Return to the High-Wire**\
-`As the coronavirus pandemic ripped around the globe, Cirque du Soleil, a circus troupe formed by Quebec street performers that become a global powerhouse, saw most of its operations grind to a halt in barely 48 hours.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-health-coronavirus-cirque-du-soleil-feature.html?searchResultPosition=5
-
-**Liked 'Hamilton'? New Documentary Shows Where It Came From**\
-`You've probably seen or heard the highly scripted side of Lin-Manuel Miranda. Now get to know the unscripted one.`\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-people-lin-manuel-miranda.html?searchResultPosition=6
-
-**Hawley Seeks Civil Rights Probe in Case of St. Louis Couple**\
-`U.`\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-racial-injustice-missouri.html?searchResultPosition=7
-
-**Twitter Hack Raises Concern in Washington; Shares Fall**\
-`U.S. lawmakers sought an explanation from Twitter Inc  after hackers gained access to the social media company's internal systems to hijack accounts of several politicians, billionaires, celebrities and companies.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-twitter-cyber.html?searchResultPosition=8
-
-**Portuguese Officers Raid Clinics Claiming 'Ozone Therapy' Cures COVID-19**\
-`Portuguese police detained five people on Thursday after raiding health clinics allegedly exploiting the coronavirus pandemic by claiming "ozone therapy" prevents or cures the highly contagious disease.`\
-https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-health-coronavirus-portugal-raid.html?searchResultPosition=9
-
-**Sisi Says Egypt Will Not Stand Idle to Threat to Egyptian and Libyan Security**\
-`Egypt will not stand idle in the face of any moves that pose a direct threat to Egyptian and Libyan national security, President Abdel-Fattah al-Sisi said on Thursday, according to a presidency statement.`\
-https://nytimes.com/reuters/2020/07/16/world/middleeast/16reuters-libya-security-egypt.html?searchResultPosition=10
+https://nytimes.com/2020/07/16/movies/the-sunlit-night-review.html?searchResultPosition=10
 
