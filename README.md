@@ -1,40 +1,40 @@
+**Exclusive: U.S. FBI Is Leading an Inquiry Into the Twitter Hack-Sources**\
+`The U.S. Federal Bureau of Investigation is leading a federal inquiry into the Twitter hacking, two sources familiar with the situation said, after hackers seized control of accounts belonging to Joe Biden, Kim Kardashian and others in what appeared to be a bitcoin scam.`\
+https://nytimes.com/reuters/2020/07/16/business/16reuters-twitter-cyber-fbi-exclusive.html?searchResultPosition=1
+
+**Twitter Says Delaying Launch of New API Software Following Hacks**\
+`Twitter Inc said on Thursday it is delaying the launch of its new and long-awaited API sfotware following the recent hack of several high-profile accounts. (https://bit.ly/2BaKwGc)`\
+https://nytimes.com/reuters/2020/07/16/business/16reuters-twitter-cyber-api.html?searchResultPosition=2
+
+**Gooding’s Misconduct Case Back on Docket After Virus Delays**\
+`When Cuba Gooding Jr. returns to court next month for a hearing in his New York City sexual misconduct case, he’ll find the room outfitted with Plexiglas and other measures to prevent the spread of the coronavirus that has indefinitely delayed his trial, a judge said Thursday.`\
+https://nytimes.com/aponline/2020/07/16/us/ap-us-sexual-misconduct-cuba-gooding-jr.html?searchResultPosition=3
+
+**US Mortgage Rates Fall to Record Lows; 30-Year at 2.98%**\
+`Average rates on long-term mortgages continue to fall to new record lows, as the key 30-year loan dropped below 3% for the first time in 50 years. The stagnant economic recovery in the face of the coronavirus pandemic is keeping inflation tamped down despite pent-up homebuying demand. `\
+https://nytimes.com/aponline/2020/07/16/business/bc-us-mortgage-rates.html?searchResultPosition=4
+
+**U.K. Police Step Back on Victims’ Data, a Flash Point in Rape Cases**\
+`Forms asking for consent to comb devices such as phones and laptops had caused concerns that they would deter people from reporting crimes, particularly in rape and other sex cases.`\
+https://nytimes.com/2020/07/16/world/europe/uk-data-consent-forms.html?searchResultPosition=5
+
+**Wisconsin College Distances Itself From Pence Campaign Stop**\
+`A small Wisconsin liberal arts college hosting a campaign visit by Vice President Mike Pence told Pence that he and everyone attending his speech inside a campus building must wear a mask and maintain a 6-foot distance between one another, in accordance with the college's protocols for slowing the coronavirus.`\
+https://nytimes.com/aponline/2020/07/16/us/politics/ap-us-election-2020-wisconsin-pence.html?searchResultPosition=6
+
+**EU Praises Serbia, Kosovo for Resuming Face-To-Face Talks**\
+`The European Union praised the leaders of Serbia and Kosovo for resuming face-to-face talks at EU headquarters which had been frozen since November 2018.`\
+https://nytimes.com/aponline/2020/07/16/world/europe/ap-eu-europe-serbia-kosovo.html?searchResultPosition=7
+
+**Spain: U.S. Man Tells Judge He Was Duped Into Carrying Drugs**\
+`A 77-year-old American man facing drug smuggling charges in Spain told a judge Thursday that he didn't know cocaine had been hidden in the jackets he carried across the world on behalf of a man he thought represented the United Nations.`\
+https://nytimes.com/aponline/2020/07/16/world/europe/ap-eu-spain-us-drug-mule-trial.html?searchResultPosition=8
+
+**Investors Sue Deutsche Bank and Its CEO in Wake of Epstein Fine**\
+`Investors are suing Deutsche Bank and its CEO Christian Sewing, alleging the bank made false and misleading statements before it agreed to pay a $150 million fine for compliance failures linked to disgraced financier Jeffrey Epstein.`\
+https://nytimes.com/reuters/2020/07/16/business/16reuters-deutsche-bank-lawsuit.html?searchResultPosition=9
+
 **2 Germans Arrested Over Far-Right, Anti-Semitic Website**\
 `Two German men were arrested Thursday on suspicion of spearheading a far-right group that posted pro-Nazi and anti-Semitic material online, prosecutors said.`\
-https://nytimes.com/aponline/2020/07/16/world/europe/ap-eu-germany-far-right.html?searchResultPosition=1
-
-**Bolsonaro Imposes 4-Month Ban on Fires to Preserve Amazon**\
-`Brazil’s President Jair Bolsonaro on Thursday banned setting agricultural and forest fires as the country enters the dry season at a moment when the government faces pressure from local and foreign companies to show greater commitment to environmental protection.`\
-https://nytimes.com/aponline/2020/07/16/world/americas/ap-lt-brazil-amazon-fires.html?searchResultPosition=2
-
-**Defiance Deepens as Georgia Governor Blocks Local Mask Rules**\
-`Mayors in Atlanta and other Georgia cities deepened their defiance of Gov. Brian Kemp on Thursday, saying they want their requirements for people to wear masks in public to remain in place, even after the Republican governor explicitly forbade cities and counties from mandating face coverings.`\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-virus-outbreak-georgia.html?searchResultPosition=3
-
-**Despite Trump’s Pressure, Most Americans Think It Is Unsafe to Reopen Schools, Reuters/Ipsos Poll Shows**\
-`Only one in four Americans think it is safe for public schools to reopen this fall as U.S. coronavirus cases climb, and four in 10 parents said they would likely keep their children home if classes resume, a new Reuters/Ipsos opinion poll shows.`\
-https://nytimes.com/reuters/2020/07/16/us/16reuters-health-coronavirus-usa-schools-poll.html?searchResultPosition=4
-
-**Exclusive: Natixis Plans Shake-Up to Focus on Greener Lending**\
-`French bank Natixis will merge its commodities and infrastructure operations to focus on clean energy in a restructuring sources said was accelerated by a series of loss-making loans to oil traders.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-banking-natixis-restructuring-exclusive.html?searchResultPosition=5
-
-**Lawyer: Trump's Delay Moves Over Taxes Harms Probe of Others**\
-`President Donald Trump’s efforts to stall the release of his personal and corporate taxes to a New York state grand jury is jeopardizing the criminal probe of other individuals and entities and could “kill this case," an attorney told a judge Thursday in urging fast action.`\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-trump-taxes.html?searchResultPosition=6
-
-**USA Today: Navarro's Anti-Fauci Column Didn't Meet Standards**\
-`USA Today says that a column that the newspaper solicited and published from presidential trade adviser Peter Navarro criticizing Dr. Anthony Fauci was misleading and did not meet fact-checking standards.`\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-media-usa-today-navarro.html?searchResultPosition=7
-
-**Cresting 'First Wave' of Stimulus May Be Next Hurdle for World Markets**\
-`A growth spurt in the balance sheets of the world's biggest central banks has crested in recent weeks, drawing warnings from investors that any signs of backpedaling on stimulus will jolt financial markets and strangle economic recovery.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-health-coronavirus-stimulus-analysis.html?searchResultPosition=8
-
-**Russians to Be Offered Free Plots of Land Amid Arctic Push-Draft Law**\
-`Russians will be able to obtain plots of land in Russia's Arctic free of charge to build homes and set up businesses under a draft law drawn up by the government as the Kremlin pushes to develop its resource-rich far north. `\
-https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-russia-arctic-land.html?searchResultPosition=9
-
-**No One Knows What Thailand Is Doing Right, but So Far, It’s Working**\
-`Can the country’s low rate of Covid-19 infections be attributed to culture? Genetics? Face masks? Or a combination of all three?`\
-https://nytimes.com/2020/07/16/world/asia/coronavirus-thailand-photos.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/16/world/europe/ap-eu-germany-far-right.html?searchResultPosition=10
 
