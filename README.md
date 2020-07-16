@@ -1,40 +1,40 @@
+**Trump Replaces Campaign Manager Amid Sinking Poll Numbers**\
+`President Donald Trump shook up his campaign staff amid sinking poll numbers less than four months before the election, replacing campaign manager Brad Parscale with veteran GOP operative Bill Stepien.`\
+https://nytimes.com/aponline/2020/07/16/us/politics/ap-us-election-2020-trump-staff-shakeup.html?searchResultPosition=1
+
+**Four More Years? Trump Struggles to Outline Second Term Plan**\
+`President Donald Trump is adamant that he wants another four years in office. It's less clear what he would do with them.`\
+https://nytimes.com/aponline/2020/07/16/us/politics/ap-us-election-2020-trump-second-term.html?searchResultPosition=2
+
+**India Virus Cases Surge Nearly 32,700, Beach State Shut Anew**\
+`India's virus cases surged another 32,695 as of Thursday, taking the nation closer to 1 million and forcing a new lockdown in the popular western beach state of Goa two weeks after it was reopened to tourists.`\
+https://nytimes.com/aponline/2020/07/16/business/ap-as-virus-outbreak-india.html?searchResultPosition=3
+
+**Elliott Follows Father in Winning NASCAR All-Star Race**\
+`Six weeks ago, Chase Elliott was going for the victory at Bristol Motor Speedway when he screwed up with two laps to go.`\
+https://nytimes.com/reuters/2020/07/16/sports/autoracing/16reuters-motor-nascar-all-star-race-recap.html?searchResultPosition=4
+
+**Watchdog Report Faults Medicare Agency's Contract Management**\
+`The head of the Medicare and Medicaid programs failed to properly manage more than $6 million in communications and outreach contracts, giving broad authority over federal employees to a Republican media strategist she worked with before joining the Trump administration, a government watchdog said in a report to be released Thursday.`\
+https://nytimes.com/aponline/2020/07/16/us/politics/ap-us-medicare-contract-oversight.html?searchResultPosition=5
+
+**In the Open: White House Advisers Tussle Over Virus Response**\
+`Infighting over the White House's handling of the coronovirus pandemic is spilling further into public view, with trade adviser Peter Navarro panning Dr. Anthony Fauci as President Donald Trump stands watch.`\
+https://nytimes.com/aponline/2020/07/16/us/politics/ap-us-virus-outbreak-white-house.html?searchResultPosition=6
+
+**Japan's Domestic Tourism Campaign Faces Scrutiny as Coronavirus Spikes in Tokyo**\
+`A multi-billion dollar Japanese campaign to boost domestic tourism faced scrutiny on Thursday with the economy minister due to meet experts as critics worried that encouraging people to travel out of Tokyo risks spreading the coronavirus.`\
+https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-health-coronavirus-japan.html?searchResultPosition=7
+
 **Tesla Registrations in California Nearly Halve in Second Quarter: Data**\
 `Tesla Inc's vehicle registrations nearly halved in the U.S. state of California during the second quarter, according to data from Cross-Sell, a marketing research firm that collates title and registration data.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-tesla-registrations.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/16/business/16reuters-tesla-registrations.html?searchResultPosition=8
 
 **Oil Giants Including Exxon Set First Joint Carbon Target**\
 `A group of the world's top oil companies including Saudi Aramco, China's CNPC and Exxon Mobil have for the first time set targets to cut their combined greenhouse gas emissions as a proportion of production, as pressure on the sector's climate stance grows. `\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-oil-carbon.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/16/business/16reuters-oil-carbon.html?searchResultPosition=9
 
 **Your Thursday Briefing**\
 `U.K. women, Philippines, Siberia fires: Here’s what you need to know.`\
-https://nytimes.com/2020/07/16/briefing/uk-women-philippines-siberia-fires.html?searchResultPosition=3
-
-**IMF Chief Warms Global Economy 'Not Out of the Woods,' Dangers Lurk**\
-`Global economic activity is picking up after an unprecedented decline this year due to the coronavirus pandemic, but a second major wave of infections could trigger more disruptions, the International Monetary Fund's top official said.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-g20-imf.html?searchResultPosition=4
-
-**South Korea Central Bank Holds Rates at Record Low, but Paints Bleak Outlook**\
-`South Korea's central bank kept its key policy rate on hold on Thursday, avoiding the risk of fuelling runaway property prices amid government efforts to tamp down on demand in the sector.`\
-https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-southkorea-economy-rates.html?searchResultPosition=5
-
-**Dollar Firms as Weak China Retail Sales Sound Warning**\
-`The dollar found support on Thursday as simmering Sino-U.S. tensions and weak Chinese consumption data knocked investors' faith in a fairly swift global economic recovery from the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-global-forex.html?searchResultPosition=6
-
-**Fauci Bullish on Prospects for U.S. Vaccine, Not Worried About China Winning Race**\
-`The leading U.S. expert on infectious diseases, Dr. Anthony Fauci, predicted on Wednesday the country will meet its goal of a coronavirus vaccine by year's end and was unmoved by the prospect that China would get there first.`\
-https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-health-coronavirus-fauci.html?searchResultPosition=7
-
-**Today in History**\
-`Today in History `\
-https://nytimes.com/aponline/2020/07/16/us/ap-today-in-history-1st-ld-writethru.html?searchResultPosition=8
-
-**Illinois Woman Faces Up to 60-Year Term in Slaying of Son, 5**\
-`A northern Illinois woman who pleaded guilty to first-degree murder in the beating death of her 5-year-old son faces a maximum sentence of 60 years in state prison when she returns to court on Thursday.`\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-boy-slain-illinois.html?searchResultPosition=9
-
-**Twitter Hacking Spree Alarms Experts Concerned About the Platform's Security**\
-`The extraordinary hacking spree that hit Twitter on Wednesday, leading it to briefly muzzle some of its most widely followed accounts, is drawing questions about the platform's security and resilience in the run-up to the U.S. presidential election.`\
-https://nytimes.com/reuters/2020/07/15/business/15reuters-twitter-cyber-security.html?searchResultPosition=10
+https://nytimes.com/2020/07/16/briefing/uk-women-philippines-siberia-fires.html?searchResultPosition=10
 
