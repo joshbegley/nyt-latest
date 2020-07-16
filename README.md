@@ -1,40 +1,40 @@
+**Hong Kong Reverts to China Tariffs Under Trump Order, Impact Limited: Trade Lawyers**\
+`President Donald Trump's executive order ending Hong Kong's special status under U.S. law effectively ends the territory's separate customs treatment from China - but the immediate impact on trade is likely to be limited, trade law experts say.    `\
+https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-hongkong-security-usa-trade.html?searchResultPosition=1
+
+**Netflix Promotes Content Chief to Co-CEO; Adds 10M New Subs**\
+`Netflix added a flood of new subscribers amid the coronavirus pandemic and also offered clues to a possible successor for founding CEO Reed Hastings, who on Thursday named the company's chief content officer, Ted Sarandos, as co-CEO.`\
+https://nytimes.com/aponline/2020/07/16/business/bc-us-netflix-results.html?searchResultPosition=2
+
+**WNBA Says It Won't Push Dream Owner Loeffler to Sell**\
+`Commissioner Cathy Engelbert said the WNBA won't push Atlanta Dream co-owner Kelly Loeffler to sell her stake in the team.`\
+https://nytimes.com/reuters/2020/07/16/sports/16reuters-basketball-wnba-atl-loeffler.html?searchResultPosition=3
+
+**U.S. Judge Approves Transfer of Jailed Former VW Executive to Germany**\
+`A U.S. judge in Detroit on Thursday approved the transfer to Germany of a former Volkswagen AG executive imprisoned in the automaker's diesel emissions scandal.`\
+https://nytimes.com/reuters/2020/07/16/business/16reuters-volkswagen-emissions.html?searchResultPosition=4
+
+**When a Corporate Picnic Plus Shakespeare Is Anything but Routine**\
+`For a Cantor Fitzgerald lawyer, a summer ritual in Central Park is a reminder of how New York can heal the hurting.`\
+https://nytimes.com/2020/07/16/theater/shakespeare-in-the-park-cantor-fitzgerald.html?searchResultPosition=5
+
+**Washington N.F.L. Team Hires Law Firm to Review Misconduct Accusations**\
+`A Washington-based law firm will look at the team’s culture and policies as the franchise faces an identity crisis.`\
+https://nytimes.com/2020/07/16/sports/football/dan-snyder-redskins.html?searchResultPosition=6
+
+**The Time I Saw Angela Lansbury Instead of the Horse Show**\
+`Not so long ago, top stars brought top musicals to suburban arenas that started their lives as tents.`\
+https://nytimes.com/2020/07/16/theater/angela-lansbury-valley-forge-music-fair.html?searchResultPosition=7
+
 **A-Rod, Bidding for Mets, Wants Players to Accept Cap System**\
 `Alex Rodriguez, among four groups of bidders for a possible purchase of the New York Mets, called for baseball players accept the type of revenue-sharing system that is tied to a salary cap and sparked quick opposition from the union.`\
-https://nytimes.com/aponline/2020/07/16/sports/baseball/ap-bbn-mets-rodriguez.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/16/sports/baseball/ap-bbn-mets-rodriguez.html?searchResultPosition=8
 
 **NFL: No Fans Allowed at Training Camp**\
 `Fans will not be allowed to attend NFL training camps due to the ongoing coronavirus pandemic, the league announced Thursday.`\
-https://nytimes.com/reuters/2020/07/16/sports/football/16reuters-football-nfl-min-gb-fans-training-camp.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/16/sports/football/16reuters-football-nfl-min-gb-fans-training-camp.html?searchResultPosition=9
 
 **American Airlines, Twitter Fall; Dell, Virgin Galactic Rise**\
 `Stocks that moved heavily or traded substantially on Thursday:`\
-https://nytimes.com/aponline/2020/07/16/business/ap-financial-markets-stocks.html?searchResultPosition=3
-
-**Jailed Executive in Wirecard Scandal Offers Confession, Lawyer Says**\
-`The former head of a key subsidiary of Wirecard, who was arrested earlier this month, has admitted wrongdoing to prosecutors for his role in a multi-billion-euros fraud, his lawyer said on Thursday.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-wirecard-accounts.html?searchResultPosition=4
-
-**Barr Urges U.S. Companies to Resist Serving as ‘Pawns’ for China**\
-`The attorney general accused several companies by name of appeasing an authoritarian government to preserve access to a huge consumer market.`\
-https://nytimes.com/2020/07/16/us/politics/barr-china.html?searchResultPosition=5
-
-**Health Officials: No Outbreak From Trump's Rushmore Visit**\
-`It doesn't appear the July 3 Mount Rushmore fireworks event attended by President Donald Trump turned into a hotbed of infections, either from South Dakotans or out-of-state tourists, South Dakota health officials said Thursday.`\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-virus-outbreak-south-dakota-1st-ld-writethru.html?searchResultPosition=6
-
-**Black Lives Matter Billboard Placed Next to Confederate Flag**\
-`A Black Lives Matter sign now fills a billboard next to a big Confederate flag that greets people coming into a small town outside Raleigh, thrilling some community organizers and angering the property owner. `\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-racial-injustice-blm-billboard-3rd-ld-writethru.html?searchResultPosition=7
-
-**Closing Prices for Crude Oil, Gold and Other Commodities**\
-`Benchmark U.S. crude oil for August delivery fell 45 cents to settle at $40.75 a barrel Thursday. Brent crude oil for September delivery fell 42 cents to $43.37 a barrel.`\
-https://nytimes.com/aponline/2020/07/16/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=8
-
-**Netflix Forecasts Third-Quarter Subscriber Additions Below Estimates, Shares Fall**\
-`Netflix Inc on Thursday forecast paid subscriber additions for the third quarter below estimates, in an early sign that the lockdown boost to streaming may be waning as stay-at-home orders ease, sending shares down 10%.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-netflix-results.html?searchResultPosition=9
-
-**Crowded Meeting With Few Masks 'Foolish,' Utah Governor Says**\
-`People crowding into a public meeting in Utah to push for an exception to mask requirements in schools was rather “foolish" and reflects an “almost mob mentality,” Republican Gov. Gary Herbert said Thursday. `\
-https://nytimes.com/aponline/2020/07/16/us/ap-us-virus-outbreak-utah-crowded-meeting-2nd-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/16/business/ap-financial-markets-stocks.html?searchResultPosition=10
 
