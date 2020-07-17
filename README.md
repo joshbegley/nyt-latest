@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/07/17/sports/baseball/17reuters-health-coronavi
 `Workers at a Dollar General store recognized a convicted sex offender accused of killing two teenagers and kidnapping a third — and locked him in after quietly escorting other customers out. `\
 https://nytimes.com/aponline/2020/07/17/us/ap-us-locked-in-suspect-.html?searchResultPosition=4
 
-**Court Backs Trump Expansion of 'Junk Insurance' Health Plans**\
+**Court Backs Trump Expansion of Cheap Health Insurance Plans**\
 `A divided federal appeals court on Friday upheld the Trump administration’s expansion of cheaper short-term health insurance plans, derided by critics as “junk insurance,” as an alternative to the Affordable Care Act’s costlier comprehensive insurance.`\
 https://nytimes.com/aponline/2020/07/17/business/bc-us-trump-health-overhaul.html?searchResultPosition=5
 
