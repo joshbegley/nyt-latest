@@ -24,7 +24,7 @@ https://nytimes.com/aponline/2020/07/17/business/bc-eu-virus-outbreak-italy-mafi
 
 **Federal Aid Has So Far Averted Personal Bankruptcies, but Trouble Looms**\
 `Once federal benefits dry up, highly indebted consumers could be forced to file.`\
-https://nytimes.com/2020/07/17/business/dealbook/us-personal-bankruptcies-coronavirus.html?searchResultPosition=7
+https://nytimes.com/2020/07/17/business/personal-bankruptcies-coronavirus.html?searchResultPosition=7
 
 **Natixis Owner BPCE Has Explored Buying Rest of French Bank: FT**\
 `French co-operative lender BPCE has explored buying the 30% of Natixis SA it does not already own, the Financial Times reported on Friday, citing people briefed on the situation.`\
