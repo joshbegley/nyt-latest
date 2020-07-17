@@ -10,8 +10,8 @@ https://nytimes.com/2020/07/17/style/gucci-prada-margiela-digital-fashion-shows.
 `In the end, Sir Tom didn’t need to rise.`\
 https://nytimes.com/aponline/2020/07/17/world/europe/ap-eu-britain-wwii-veteran-.html?searchResultPosition=3
 
-**Eliot Engel Falls in House Primary to a Progressive Upstart**\
-`Jamaal Bowman defeated Mr. Engel in a race that pitted the Democratic establishment against the party’s progressive wing.`\
+**Jamaal Bowman, Progressive Insurgent, Defeats Eliot Engel in House Primary**\
+`Mr. Bowman defeated the 16-term incumbent in a race that pitted the Democratic establishment against the party’s progressive wing.`\
 https://nytimes.com/2020/07/17/nyregion/jamaal-bowman-eliot-engel.html?searchResultPosition=4
 
 **Pentagon Bans Confederate Flag in Way to Avoid Trump's Wrath**\
