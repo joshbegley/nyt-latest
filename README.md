@@ -1,40 +1,40 @@
-**Deaths in South African Mines Fall to 51, Lowest in a Century, Says Minerals Council**\
-`The death toll in South Africa's mines was 51 in 2019, down from 81 the previous year and the lowest since records began a century ago, the Minerals Council, which represents miners, said on Friday.`\
-https://nytimes.com/reuters/2020/07/17/world/africa/17reuters-safrica-mining.html?searchResultPosition=1
+**Lyft to Provide Drivers With Partition Shields as Coronavirus Protection**\
+`Lyft Inc said on Friday it would distribute some 60,000 vehicle partition shields to its most-active drivers as a protection against the coronavirus and begin selling the custom-made protective barriers to other drivers later this summer.  `\
+https://nytimes.com/reuters/2020/07/17/business/17reuters-health-coronavirus-lyft.html?searchResultPosition=1
 
-**Russia Expects to Make COVID-19 Vaccine Being Developed in Britain, Wealth Fund Head Says**\
-`Russia expects a deal with AstraZeneca for it to manufacture a COVID-19 vaccine being developed by the pharmaceuticals giant and Oxford University to go ahead despite allegations it has been trying to steal vaccine data, its wealth fund head said.`\
-https://nytimes.com/reuters/2020/07/17/world/europe/17reuters-health-coronavirus-cyber-russia.html?searchResultPosition=2
+**5 Things to Know Today**\
+`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today:`\
+https://nytimes.com/aponline/2020/07/17/us/ap-5-things-to-know.html?searchResultPosition=2
 
-**China to Take Over Four Insurers and Two Trust Firms to Rein in Financial Risks**\
-`China's banking and insurance regulator said on Friday that it would take over four insurers and two trust firms for one year starting from July 17, as they breached rules and conduct business violations.`\
-https://nytimes.com/reuters/2020/07/17/business/17reuters-china-insurance-regulation.html?searchResultPosition=3
+**Tilly Remembers Her Grandfather, Three Months On**\
+`More than 130,000 Americans have died from the coronavirus. One of them was Craig Breimhorst.`\
+https://nytimes.com/2020/07/17/podcasts/the-daily/grandparents-coronavirus.html?searchResultPosition=3
 
-**Queen to Knight 100-Year-Old UK Fundraiser Captain Tom**\
-`Captain Tom Moore, the 100-year-old who became a national hero in Britain by raising millions of pounds for health workers during the COVID-19 pandemic, will become "Sir Tom" on Friday when he is knighted by Queen Elizabeth.`\
-https://nytimes.com/reuters/2020/07/17/world/europe/17reuters-britain-royals-veteran.html?searchResultPosition=4
+**At Old St. Pat’s, a History of Defiance**\
+`A pink brick wall protected the basilica in NoLIta last month during days of civil unrest, just as it did during riots two centuries ago.`\
+https://nytimes.com/2020/07/17/realestate/at-old-st-pats-a-history-of-defiance.html?searchResultPosition=4
 
-**Coronavirus Fans Flames of Love in Nigeria's Online Dating Scene**\
-`Oreoluwa Akinnawo is in his element. Lagos's bars and restaurants are shut and Nigerians are struggling to socialise. The pandemic is his perfect time to find a soul mate online.`\
-https://nytimes.com/reuters/2020/07/17/technology/17reuters-health-coronavirus-nigeria-dating.html?searchResultPosition=5
+**Cold Cuts, Cheeses and So Many Smiles**\
+`They met at their friends’ Christmas brunch on the Upper West Side, and were married in Como, Italy.`\
+https://nytimes.com/2020/07/17/fashion/weddings/cold-cuts-cheeses-and-so-many-smiles.html?searchResultPosition=5
 
-**Pakistan Validates Most Licenses of Pilots Working Abroad**\
-`Pakistan's government has validated most of the licenses it issued to pilots working abroad, but more than 200 others accused of obtaining tainted licenses were still being investigated, an aviation spokesman said Friday, in a move aimed at addressing the concerns of global airlines.`\
-https://nytimes.com/aponline/2020/07/17/world/asia/ap-as-pakistan-pilot-licenses.html?searchResultPosition=6
+**An Emergency Marriage License Erases Boundaries**\
+`Suneel Khanna and Carl Wolter were captivated from the start. But a closing of the U.S.-Canadian put their wedding at risk.`\
+https://nytimes.com/2020/07/17/fashion/weddings/an-emergency-marriage-license-erases-boundaries.html?searchResultPosition=6
 
-**What We Know About the Killing of Tech C.E.O. Fahim Saleh**\
-`Mr. Saleh, a young entrepreneur with international businesses, was found dismembered this week in his luxury condo on the Lower East Side.`\
-https://nytimes.com/2020/07/17/nyregion/fahim-saleh-killing-murder.html?searchResultPosition=7
+**A Setup That Was Meant to Be**\
+`The bride’s close friend was introduced to the groom by an acquaintance, and, after grilling him, announced that she knew someone he must meet.`\
+https://nytimes.com/2020/07/17/fashion/weddings/a-setup-that-was-meant-to-be.html?searchResultPosition=7
 
-**China's Securities Regulator Announces Takeover of Three Brokerages**\
-`China's securities regulator on Friday seized control of two securities firms and one futures brokerage as part of efforts to crack down on corporate misbehaviour, official Xinhua News Agency said.`\
-https://nytimes.com/reuters/2020/07/17/business/17reuters-china-regulator-mergers.html?searchResultPosition=8
+**Changing Plans Without Advance Warning**\
+`Michael Braun, who works on Joe Biden’s presidential campaign, and Corey Gingue, a sommelier, had planned to marry in France but settled on Brooklyn.`\
+https://nytimes.com/2020/07/17/fashion/weddings/changing-plans-without-advance-warning.html?searchResultPosition=8
 
-**Track Group Calls for Change of Olympic Protest Rule**\
-`Leaders of a newly formed athletes group are calling for a change to the rule that bans certain protests at the Olympics, saying it “is in fact preventing athletes from displaying Olympism at the Olympic Games.”`\
-https://nytimes.com/aponline/2020/07/17/sports/ap-ath-athletes-group-protests.html?searchResultPosition=9
+**Her ‘Bubbie’ Was Right After All**\
+`Rachel Glincher and Michael Harris met on the dating app Hinge and briefly dated, but it was sidewalk chats near their homes that brought them together.`\
+https://nytimes.com/2020/07/17/fashion/weddings/her-bubbie-was-right-after-all.html?searchResultPosition=9
 
-**UK Boosts Healthcare Funding to Ward Off Winter COVID-19 Wave**\
-`Prime Minister Boris Johnson is to pour 3 billion pounds ($3.8 billion) into England's National Health Service (NHS) to try to ward off any resurgence of the coronavirus, as he sets out the next stage of his recovery plan for Britain.`\
-https://nytimes.com/reuters/2020/07/17/world/europe/17reuters-health-coronavirus-britain-johnson.html?searchResultPosition=10
+**‘Adventure Partners’ Find Sure Footing Together**\
+`Yuchen Feng and Ted Sumers met as summer interns at a hedge fund when he organized an indoor rock-climbing outing.`\
+https://nytimes.com/2020/07/17/fashion/weddings/adventure-partners-find-sure-footing-together.html?searchResultPosition=10
 
