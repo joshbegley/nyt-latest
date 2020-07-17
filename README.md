@@ -26,8 +26,8 @@ https://nytimes.com/aponline/2020/07/17/us/ap-us-fbi-shooting-arizona-2nd-ld-wri
 `The U.S. Centers for Disease Control and Prevention (CDC) on Friday reported 3,555,877 cases of new coronavirus, an increase of 72,045 cases from its previous count, and said the number of deaths had risen by 926 to 137,864.`\
 https://nytimes.com/reuters/2020/07/17/us/17reuters-health-coronavirus-usa-cdc.html?searchResultPosition=7
 
-**New York City to Begin Phase 4 on Monday, de Blasio Says**\
-`Mayor Bill de Blasio said the city would allow some outdoor entertainment venues like zoos and botanical gardens to reopen with limited capacities but that limits would remain on indoor activities.`\
+**New York City to Enter Phase 4 on Monday, de Blasio Says**\
+`Mayor Bill de Blasio said the city would allow some outdoor entertainment venues like zoos and botanical gardens to reopen with limited capacities but that restrictions would remain on indoor activities.`\
 https://nytimes.com/video/nyregion/100000007244164/de-blasio-new-york-phase-four.html?searchResultPosition=8
 
 **Czech PM Says EU No Closer to Deal on Economic Recovery From COVID**\
