@@ -1,40 +1,40 @@
+**Today in History**\
+`Today in History `\
+https://nytimes.com/aponline/2020/07/17/us/ap-today-in-history-1st-ld-writethru.html?searchResultPosition=1
+
+**AP Week in Pictures, Latin America & Caribbean**\
+`JULY 10-16, 2020`\
+https://nytimes.com/aponline/2020/07/17/us/ap-lt-pictures-of-the-week-in-latin-america-caribbean-photo-gall.html?searchResultPosition=2
+
+**Trying to Feel Love-Worthy (While Working for a Dating App)**\
+`Being awash in romantic complaints has left me — a Black woman who’s had heartache — feeling dismayed but hopeful.`\
+https://nytimes.com/2020/07/17/style/modern-love-feel-love-worthy-working-for-dating-app.html?searchResultPosition=3
+
+**$174 Million Afghan Drone Program Riddled With Problems, U.S. Report Says**\
+`Overhead surveillance is critical to fighting the Taliban, but the American military’s effort to equip Afghan forces has fallen short, according to an independent watchdog.`\
+https://nytimes.com/2020/07/16/world/asia/afghan-drone-program.html?searchResultPosition=4
+
+**Father Soldier Son**\
+`The New York Times spent a decade chronicling the cost of war and the call to service for an American family.`\
+https://nytimes.com/interactive/2020/07/16/us/father-soldier-son.html?searchResultPosition=5
+
 **United Airlines, Pilots Union Reach Creative Deal to Limit Furloughs**\
 `United Airlines and its pilots' union said on Thursday they had reached an agreement on two different packages aimed at reducing involuntary furloughs in the fall and keeping pilots at the ready once coronavirus-hit demand starts to pick up.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-health-coronavirus-united-arlns-jobs.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/16/business/16reuters-health-coronavirus-united-arlns-jobs.html?searchResultPosition=6
 
 **India Coronavirus Cases Surge Past One Million**\
 `Several states and cities have reimposed total and partial lockdowns as the pandemic accelerates. India now ranks third in the world in infections.`\
-https://nytimes.com/2020/07/16/world/asia/coronavirus-india-million-cases.html?searchResultPosition=2
+https://nytimes.com/2020/07/16/world/asia/coronavirus-india-million-cases.html?searchResultPosition=7
 
 **Your Friday Briefing**\
 `Russian hacking, ISIS bride, Angela Merkel: Here’s what you need to know.`\
-https://nytimes.com/2020/07/16/briefing/russia-hack-angela-merkel-isis-bride.html?searchResultPosition=3
+https://nytimes.com/2020/07/16/briefing/russia-hack-angela-merkel-isis-bride.html?searchResultPosition=8
 
 **Strong Quake Strikes Near Papua New Guinea, Tsunami Possible**\
 `A strong earthquake has struck near coastal Papua New Guinea.`\
-https://nytimes.com/aponline/2020/07/16/world/asia/ap-as-papua-new-guinea-quake.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/07/16/world/asia/ap-as-papua-new-guinea-quake.html?searchResultPosition=9
 
 **Fighting Again in Taiwan Parliament Over Disputed Nomination**\
 `Fighting erupted inside and outside of Taiwan's parliament again on Friday over the disputed nomination by President Tsai Ing-wen of a senior aide to a top government watchdog post, which the main opposition party has labelled cronyism.`\
-https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-taiwan-politics.html?searchResultPosition=5
-
-**Volkswagen Sees Mild Growth in China's Premium Car Segment This Year**\
-`German automaker Volkswagen AG expects a slight growth in China's premium car segment this year despite a slide in broader market sales, a senior executive said.`\
-https://nytimes.com/reuters/2020/07/16/business/16reuters-volkswagen-china.html?searchResultPosition=6
-
-**Monsoon Floods, Landslides Kill at Least 221 in South Asia**\
-`Floods and landslides triggered by heavy monsoon rains have killed at least 221 people across South Asia over the past month, officials said Friday. `\
-https://nytimes.com/aponline/2020/07/16/world/asia/ap-as-south-asia-floods-1st-ld-writethru.html?searchResultPosition=7
-
-**Germany's Confirmed Coronavirus Cases Rise by 583 to 200,843: RKI**\
-`The number of confirmed coronavirus cases in Germany increased  by 583 to 200,843, data from the Robert Koch Institute (RKI) for infectious diseases showed on Friday.`\
-https://nytimes.com/reuters/2020/07/16/world/europe/16reuters-health-coronavirus-germany-cases.html?searchResultPosition=8
-
-**Quake of Magnitude 7.3 Hits Papua New Guinea, Tsunami Warning Briefly Issued**\
-`A warning for "hazardous tsunami waves" was briefly issued for coastal regions within 300 kms (186.41 miles) of Wau in Papua New Guinea's northeast, after a 7.3 magnitude earthquake struck the region, the U.S. Pacific Tsunami Warning Center said.`\
-https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-papua-quake.html?searchResultPosition=9
-
-**Japanese Banks See Record Demand for Corporate Loans During Pandemic: BOJ Survey**\
-`Major Japanese banks saw record demand for the corporate loans they offer in the three months to July, a central bank survey showed on Friday, as companies hit by the coronavirus pandemic scrambled to fill cash shortfalls.`\
-https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-japan-economy-lending.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/16/world/asia/16reuters-taiwan-politics.html?searchResultPosition=10
 
