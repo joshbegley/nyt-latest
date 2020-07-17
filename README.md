@@ -1,40 +1,40 @@
+**‘30 Rock’ Reunion Review: A Few Laughs, a Lot of Blergh**\
+`The TV-biz satire spent a joking-not-joking night selling NBCUniversal TV, winking so hard that it injured itself.`\
+https://nytimes.com/2020/07/17/arts/television/30-rock-reunion-review.html?searchResultPosition=1
+
+**World Athletics Unveils Revised Schedule for Tokyo Games**\
+`World Athletics on Friday released a revised 10-day track and field programme for the Tokyo Olympics, which was postponed to 2021.`\
+https://nytimes.com/reuters/2020/07/17/sports/olympics/17reuters-olympics-2020-athletics.html?searchResultPosition=2
+
+**U.S. Treasury Seeks Dealer Input on Possible Treasury Auction Tweaks**\
+`The U.S. Treasury has asked primary dealers for their input on whether it should make technical adjustments to its Treasury note and bond auction schedules in light of the massive run up in debt issuance to pay for COVID-19 emergency relief programs.`\
+https://nytimes.com/reuters/2020/07/17/us/17reuters-usa-treasury-primary-dealers.html?searchResultPosition=3
+
+**U.S. Supreme Court's Ginsburg Undergoing Treatment for Cancer Recurrence**\
+`Justice Ruth Bader Ginsburg, at 87 the U.S. Supreme Court's oldest member, said on Friday she is receiving chemotherapy treatment for a recurrence of cancer, the latest in a series of health issues. `\
+https://nytimes.com/reuters/2020/07/17/us/17reuters-usa-court-ginsburg.html?searchResultPosition=4
+
+**Germany: Black Forest Fugitive Held After 5 Days on the Run**\
+`A man who disarmed four officers at gunpoint in southwestern Germany before fleeing into the Black Forest has been arrested after five days on the run, police said Friday.`\
+https://nytimes.com/aponline/2020/07/17/world/europe/ap-eu-germany-forest-fugitive.html?searchResultPosition=5
+
+**Kansas Congressman Forced to Leave Committees After Charges**\
+`A freshman Kansas congressman facing felony criminal charges  over previously listing a UPS Inc. postal box as his residence on a state voter registration form has been forced to temporarily give up his House committee assignments.`\
+https://nytimes.com/aponline/2020/07/17/us/ap-us-election-2020-house-kansas.html?searchResultPosition=6
+
 **Sheet-Pan Summer**\
 `Make cleanup all the easier on yourself with these recipes.`\
-https://nytimes.com/2020/07/17/dining/sheet-pan-summer.html?searchResultPosition=1
+https://nytimes.com/2020/07/17/dining/sheet-pan-summer.html?searchResultPosition=7
 
 **Siemens Energy CEO Can't Rule Out Job Cuts: Sueddeutsche Zeitung**\
 `Siemens Energy, the engineering group's power unit it will spin off in September, could have to make layoffs, its chief executive told a German newspaper.`\
-https://nytimes.com/reuters/2020/07/17/world/europe/17reuters-siemens-energy-redundancies.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/17/world/europe/17reuters-siemens-energy-redundancies.html?searchResultPosition=8
 
 **In Utah, a Debate Stirs Over Estonian Radioactive Waste**\
 `In southeast Utah, nerves are frayed over a pile of radioactive material parked 5,000 miles (8,000 km) away in Estonia.`\
-https://nytimes.com/reuters/2020/07/17/business/17reuters-usa-mining-uranium.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/17/business/17reuters-usa-mining-uranium.html?searchResultPosition=9
 
 **Cohen's Point72 to Open Warsaw Office for Some Back Office Teams**\
 `Billionaire investor Steven A. Cohen's Point72 Asset Management is opening the $16.2 billion firm's latest satellite location in Warsaw and moving some back office operations to lower-cost Poland.`\
-https://nytimes.com/reuters/2020/07/17/business/17reuters-point72-poland.html?searchResultPosition=4
-
-**U.S. Economy Faces Significant Risks, Long Road to Recovery: IMF Staff**\
-`U.S. economic output is expect to contract by 6.6% in 2020 due to the shock of the coronavirus pandemic, but a resurgence in coronavirus infections and a systemic increase in poverty could worsen that outlook, the staff of the International Monetary Fund warned on Friday.`\
-https://nytimes.com/reuters/2020/07/17/business/17reuters-usa-economy-imf.html?searchResultPosition=5
-
-**Chicago Schools Plan a Hybrid Remote/in-Person Learning Model for Fall, Mayor Says**\
-`Chicago Mayor Lori Lightfoot said on Friday that her city's public school district, the third-largest in the United States, was planning to host some classes remotely and some in-person this fall in an effort to prevent outbreaks of the novel coronavirus.`\
-https://nytimes.com/reuters/2020/07/17/us/17reuters-health-coronavirus-chicago-education.html?searchResultPosition=6
-
-**Michigan Wants Enbridge to Pledge Funds in Case of Oil Spill**\
-`Michigan sought a pledge Friday from Enbridge Inc. to cover costs that would arise if oil were to leak from its dual pipelines that extend across a channel linking two of the Great Lakes.`\
-https://nytimes.com/aponline/2020/07/17/business/bc-us-michigan-pipeline.html?searchResultPosition=7
-
-**WHO Says COVID-19 Cases in Brazil No Longer Rising Exponentially**\
-`Coronavirus infections in Brazil no longer appear to be rising exponentially but have reached a plateau, creating an opportunity to get the outbreak there under control, WHO emergencies programme head Mike Ryan said on Friday.`\
-https://nytimes.com/reuters/2020/07/17/world/americas/17reuters-health-coronavirus-brazil-who.html?searchResultPosition=8
-
-**Chicago Plan Would Have Kids in Classrooms 2 Days Per Week**\
-`Most Chicago children would return to the classroom two days a week and spend the other three days learning remotely once the school year begins under a tentative plan outlined Friday by officials from the nation's third-largest school district.`\
-https://nytimes.com/aponline/2020/07/17/us/ap-us-virus-outbreak-chicago-schools.html?searchResultPosition=9
-
-**US MeToo Activist Says Sun Misquoted Her in Depp Abuse Story**\
-`A #MeToo activist said in a court document released Friday that she was “misquoted and misused” by a British tabloid newspaper in an article that accused Johnny Depp of physically abusing his ex-wife, Amber Heard.`\
-https://nytimes.com/aponline/2020/07/17/world/europe/ap-eu-britain-johnny-depp.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/17/business/17reuters-point72-poland.html?searchResultPosition=10
 
