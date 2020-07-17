@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/07/17/world/americas/ap-lt-venezuela-imprisone
 `A warning for "hazardous tsunami waves" was issued briefly for coastal regions within 300 kms (186.41 miles) of Wau in Papua New Guinea's northeast, after a 7.0 magnitude earthquake struck the region, the U.S. Pacific Tsunami Warning Center said.`\
 https://nytimes.com/reuters/2020/07/17/world/asia/17reuters-papua-quake.html?searchResultPosition=2
 
-**India's Coronavirus Cases Cross 1 Million**\
-`India's cases of novel coronavirus crossed the million mark, the health ministry data showed on Friday, as infections spread out into the smaller towns and the countryside following the lifting of a vast lockdown. `\
+**India Tops a Million Coronavirus Cases as Pandemic Hits Villages**\
+`India on Friday became the third country in the world to record more than one million coronavirus cases, behind only the United States and Brazil, as infections spread further out into the countryside and smaller towns.`\
 https://nytimes.com/reuters/2020/07/17/world/asia/17reuters-health-coronavirus-india.html?searchResultPosition=3
 
 **Today in History**\
