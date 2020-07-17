@@ -35,6 +35,6 @@ https://nytimes.com/2020/07/16/us/politics/reopening-schools-teachers-students.h
 https://nytimes.com/reuters/2020/07/16/sports/basketball/16reuters-basketball-nba-loeffler.html?searchResultPosition=9
 
 **Ballparks to Use Crowd Noise From Video Game During Season**\
-`Major league players will still hear the roar of the crowd even though the stands will be empty when the baseball season opens next week. `\
+`Big league players will still hear the roar of the crowd even though the stands will be empty when the baseball season opens next week. `\
 https://nytimes.com/aponline/2020/07/16/sports/baseball/ap-bbo-mlb-crowd-noise.html?searchResultPosition=10
 
