@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/07/17/us/ap-lt-pictures-of-the-week-in-latin-a
 `Being awash in romantic complaints has left me — a Black woman who’s had heartache — feeling dismayed but hopeful.`\
 https://nytimes.com/2020/07/17/style/modern-love-feel-love-worthy-working-for-dating-app.html?searchResultPosition=6
 
-**$174 Million Afghan Drone Program Riddled With Problems, U.S. Report Says**\
+**$174 Million Afghan Drone Program Is Riddled With Problems, U.S. Report Says**\
 `Overhead surveillance is critical to fighting the Taliban, but the American military’s effort to equip Afghan forces has fallen short, according to an independent watchdog.`\
 https://nytimes.com/2020/07/16/world/asia/afghan-drone-program.html?searchResultPosition=7
 
