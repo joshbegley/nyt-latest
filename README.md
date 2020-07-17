@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/07/17/business/17reuters-point72-poland.html?se
 https://nytimes.com/reuters/2020/07/17/business/17reuters-usa-economy-imf.html?searchResultPosition=5
 
 **Chicago Schools Plan a Hybrid Remote/in-Person Learning Model for Fall, Mayor Says**\
-`Chicago Mayor Lori Lightfoot said on Friday that her city's public school district, the third largest in the U.S., was planning to host some classes remotely and some in-person this fall in an effort to prevent outbreaks of the novel coronavirus.`\
+`Chicago Mayor Lori Lightfoot said on Friday that her city's public school district, the third-largest in the United States, was planning to host some classes remotely and some in-person this fall in an effort to prevent outbreaks of the novel coronavirus.`\
 https://nytimes.com/reuters/2020/07/17/us/17reuters-health-coronavirus-chicago-education.html?searchResultPosition=6
 
 **Michigan Wants Enbridge to Pledge Funds in Case of Oil Spill**\
