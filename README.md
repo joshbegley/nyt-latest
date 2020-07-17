@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/07/17/us/17reuters-health-coronavirus-merediths
 https://nytimes.com/2020/07/17/us/politics/fauci-trump-coronavirus.html?searchResultPosition=3
 
 **DealBook: The Eye of the Bankruptcy Storm**\
-`Corporate bankruptcy filings are on the rise, but experts say that many more cases are coming.`\
+`Corporate bankruptcy filings are on the rise, but experts say that it could get much worse.`\
 https://nytimes.com/2020/07/17/business/dealbook/bankruptcy-filings-pandemic.html?searchResultPosition=4
 
 **Swiss Warn Over Faulty Protective Masks Bought During COVID-19 Rush**\
