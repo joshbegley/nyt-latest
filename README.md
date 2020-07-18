@@ -1,4 +1,4 @@
-**Brigid Berlin, Artist and Warhol Associate, Is Dead at 81**\
+**Brigid Berlin, Artist and Warhol Associate, Is Dead at 80**\
 `Born into privilege, she rejected her upbringing to become a fixture on the New York underground art scene of the 1960s and ’70s.`\
 https://nytimes.com/2020/07/18/arts/brigid-berlin-dead.html?searchResultPosition=1
 
