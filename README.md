@@ -1,4 +1,4 @@
-**Iran Sends Down Ukrainian Plane's Black Box to France**\
+**Iran Sends Downed Ukrainian Plane's Black Box to France**\
 `Iran has sent the black box of the Ukrainian passenger jet that its armed forces mistakenly shot down in January to France for reading, an Iranian semi-official news agency said Saturday.`\
 https://nytimes.com/aponline/2020/07/18/world/middleeast/ap-ml-iran-plane-crash.html?searchResultPosition=1
 
