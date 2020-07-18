@@ -31,7 +31,7 @@ https://nytimes.com/video/world/100000007245589/un-guterres-mandela-speech-coron
 https://nytimes.com/aponline/2020/07/18/us/ap-us-racial-injustice-portland.html?searchResultPosition=8
 
 **G20 Officials Pledge to Keep Cooperating to Bolster Global Economy**\
-`Finance officials from the Group of 20 major economies on Saturday vowed to continue using "all available policy tools" to fight the coronavirus pandemic and bolster the global economy, warning that the outlook remains highly uncertain.`\
+`Finance officials from the Group of 20 major economies vowed on Saturday to continue using "all available policy tools" to fight the coronavirus pandemic and bolster the global economy, warning that the outlook remains highly uncertain.`\
 https://nytimes.com/reuters/2020/07/18/world/asia/18reuters-g20-saudi.html?searchResultPosition=9
 
 **NBA Mourns Death of Civil Rights Icon John Lewis**\
