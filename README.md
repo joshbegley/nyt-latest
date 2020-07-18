@@ -1,4 +1,4 @@
-**Forgiving George Wallace**\
+**From the Archive: ‘Forgiving George Wallace’**\
 `John Lewis wrote in a 1998 Op-Ed about the best way to remember the former governor of Alabama.`\
 https://nytimes.com/interactive/2020/opinion/john-lewis-oped.html?searchResultPosition=1
 
