@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/07/18/world/middleeast/18reuters-health-coronav
 `FORMER PRESIDENT BARACK OBAMA`\
 https://nytimes.com/aponline/2020/07/18/us/ap-us-obit-lewis-reaction.html?searchResultPosition=3
 
-**Fire Breaks Out at Nantes Cathedral in Western France**\
+**Firemen Battle Blaze at Nantes Cathedral in Western France**\
 `Firemen were battling a fire that broke out early on Saturday morning inside the cathedral in the western French city of Nantes, the local fire service said on Twitter.  `\
 https://nytimes.com/reuters/2020/07/18/world/europe/18reuters-france-nantes-fire.html?searchResultPosition=4
 
