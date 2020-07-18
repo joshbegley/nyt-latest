@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/07/18/world/americas/18reuters-health-coronavir
 https://nytimes.com/reuters/2020/07/18/sports/golf/18reuters-golf-memorial-thomas.html?searchResultPosition=2
 
 **Marco Rubio Tweets Photo of Elijah Cummings in John Lewis Remembrance**\
-`A tweet from the Florida senator’s personal account an attempt to pay tribute to Representative John Lewis, who died on Friday, included a photo of Representative Elijah E. Cummings, who died in October.`\
+`A post from the Florida senator’s personal account attempted to pay tribute to Representative John Lewis, who died on Friday. It included a photo of Representative Elijah E. Cummings, who died in October.`\
 https://nytimes.com/2020/07/18/us/marco-rubio-elijah-cummings-john-lewis.html?searchResultPosition=3
 
 **Movie Magic as Paris Turns the Seine Into Open-Air Cinema**\
