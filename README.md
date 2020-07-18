@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/07/17/sports/football/17reuters-esports-madden-
 `Illinois Speaker Michael J. Madigan has not been charged, but the governor, a fellow Democrat, said he must resign if the allegations are true.`\
 https://nytimes.com/2020/07/17/us/illinois-michael-madigan.html?searchResultPosition=6
 
-**Asia Today: Morrison Scraps Parliament Meet as Virus Spreads**\
-`Prime Minister Scott Morrison requested that the next two-week sitting of Australia’s Parliament be canceled because of increasing concerns over the spread of the coronavirus in parts of the country. `\
+**Asia Today: China Battles New Outbreak in Far West Xinjiang**\
+`The number of confirmed cases in a new COVID-19 outbreak in China’s far west has risen to 17.`\
 https://nytimes.com/aponline/2020/07/17/business/ap-as-virus-outbreak-asia.html?searchResultPosition=7
 
 **Were the Actions of Federal Agents in Portland Legal?**\
