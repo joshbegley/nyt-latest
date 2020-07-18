@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/07/18/arts/18reuters-health-coronavirus-france-
 https://nytimes.com/aponline/2020/07/18/us/ap-us-john-lewis-mistaken-identity.html?searchResultPosition=8
 
 **14 Hours Later, Trump Says He Is 'Saddened' by Lewis' Death**\
-`In the hours after the death of American civil rights icon Rep. John Lewis, President Donald Trump took to Twitter to retweet old missives Democratic rival Joe Biden and lash out at his former national security adviser and his niece for writing tell-all books about him.`\
+`In the hours after the death of American civil rights icon Rep. John Lewis, President Donald Trump took to Twitter to retweet old missives about Democratic rival Joe Biden and lash out at his former national security adviser and his niece for writing tell-all books about him.`\
 https://nytimes.com/aponline/2020/07/18/us/politics/ap-us-trump-lewis.html?searchResultPosition=9
 
 **From the Archive: ‘Forgiving George Wallace’**\
