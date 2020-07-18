@@ -1,6 +1,6 @@
 **Who Were the Freedom Riders?**\
 `Representative John Lewis was among the 13 original Freedom Riders, who encountered violence and resistance as they rode buses across the South, challenging the nation’s segregation laws.`\
-https://nytimes.com/2020/07/18/us/freedom-riders-john-lewis-work.html?searchResultPosition=1
+https://nytimes.com/2020/07/18/us/politics/freedom-riders-john-lewis-work.html?searchResultPosition=1
 
 **Rahm Surges Into Third-Round Lead at the Memorial**\
 `World No. 2 Jon Rahm made a solid run on the back nine on Saturday and holds the lead with a 12-under 204 after the third round of the Memorial Tournament at Dublin, Ohio.`\
