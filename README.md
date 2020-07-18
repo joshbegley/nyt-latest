@@ -15,7 +15,7 @@ https://nytimes.com/2020/07/18/business/china-xiao-jianhua.html?searchResultPosi
 https://nytimes.com/2020/07/18/world/coronavirus-news.html?searchResultPosition=4
 
 **UK Pauses Daily Coronavirus Deaths Update Over Potentially Faulty Data**\
-`Britain said on Saturday it was pausing its daily update of the death toll from the coronavirus in the United Kingdom after the government ordered a review into the calculation of the data over concern numbers might have been exaggerated.`\
+`Britain said on Saturday it was pausing its daily update of the death toll from the coronavirus after the government ordered a review into the calculation of the data over concerns the toll might have been exaggerated.`\
 https://nytimes.com/reuters/2020/07/18/world/europe/18reuters-health-coronavirus-britain-casualties.html?searchResultPosition=5
 
 **India-Pakistan Fighting in Kashmir Kills 3 Family Members**\
