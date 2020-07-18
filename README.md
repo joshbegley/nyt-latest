@@ -1,40 +1,40 @@
+**Former World Junior Skating Champion Alexandrovskaya Dies**\
+`The Australian Olympic Committee has confirmed the death of former world junior pairs figure skating champion Ekaterina Alexandrovskaya in Moscow.`\
+https://nytimes.com/aponline/2020/07/18/sports/ap-fig-russia-figure-skater-death-1st-ld-writethru.html?searchResultPosition=1
+
+**Mexico Video Shows Dozens of Uniformed Gunmen, Armored Cars**\
+`Mexico's top security official said Saturday that authorities are investigating a video showing dozens of combat-uniformed gunmen posing with military-grade weapons and armored pickup trucks, some painted with the initials of the Jalisco drug cartel, in what appears to be a show of power.`\
+https://nytimes.com/aponline/2020/07/18/world/americas/ap-lt-mexico-violence.html?searchResultPosition=2
+
+**Chinese Ports Hit Capacity as Virus Tests Slow Clearing: Shippers**\
+`Testing of imported food for the novel coronavirus is pushing capacity at some major Chinese ports to their limit, major shippers told customers this week, warning of additional fees and possible diversions to other ports.`\
+https://nytimes.com/reuters/2020/07/18/world/asia/18reuters-health-coronavirus-food-shipping.html?searchResultPosition=3
+
 **AP FACT CHECK: Trump and the Virus-Era China Ban That Isn't**\
 `President Donald Trump's “ban” on travel from China is his go-to point when defending his response to the coronavirus pandemic. The problem with his core argument starts with the fact that he did not ban travel from China. He imposed porous restrictions.`\
-https://nytimes.com/aponline/2020/07/18/us/politics/ap-us-fact-check-week.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/18/us/politics/ap-us-fact-check-week.html?searchResultPosition=4
 
 **Get Dirty at Home: COVID-19 Moves South Korea's Mud Festival Online**\
 `When a pandemic threatens a good romp in the mud, some South Koreans bring the mud home with them instead.`\
-https://nytimes.com/reuters/2020/07/18/world/asia/18reuters-health-coronavirus-southkorea-mud-festival.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/18/world/asia/18reuters-health-coronavirus-southkorea-mud-festival.html?searchResultPosition=5
 
 **Fighting Between Armed Groups in Eastern Congo Kills Dozens**\
 `Days of fighting between armed groups in villages in Congo’s South Kivu province killed at least 43 people, many of them women and children, residents said Saturday. `\
-https://nytimes.com/aponline/2020/07/18/world/africa/ap-af-congo-fighting.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/18/world/africa/ap-af-congo-fighting.html?searchResultPosition=6
 
 **Russian, Azeri Defence Ministers Discuss Border Clashes**\
 `Russia's Defence Minister Sergei Shoigu and his Azeri counterpart Zakir Hasanov discussed clashes on the border between Azerbaijan and Armenia, Russian news agencies cited the ministry as saying on Saturday.`\
-https://nytimes.com/reuters/2020/07/18/world/europe/18reuters-azerbaijan-armenia-russia.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/18/world/europe/18reuters-azerbaijan-armenia-russia.html?searchResultPosition=7
 
 **Iran Has Sent Black Boxes of Downed Plane to France: Official**\
 `Iran has sent the black boxes from a Ukrainian airliner that it had accidentally downed in January to France for analysis, a  Foreign Ministry official said on Saturday.`\
-https://nytimes.com/reuters/2020/07/18/world/middleeast/18reuters-iran-crash-france.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/07/18/world/middleeast/18reuters-iran-crash-france.html?searchResultPosition=8
 
 **China Is Dismantling the Empire of a Vanished Tycoon**\
 `Three years after Xiao Jianhua was snatched from a luxury hotel in Hong Kong, Beijing is making it clear that his style of freewheeling finance is a thing of the past.`\
-https://nytimes.com/2020/07/18/business/china-xiao-jianhua.html?searchResultPosition=6
+https://nytimes.com/2020/07/18/business/china-xiao-jianhua.html?searchResultPosition=9
 
 **Coronavirus Live Updates: ‘Red Zone’ Warning for 18 U.S. States**\
 `With case counts rising — the daily record for new confirmed infections was broken for the 11th time in the past month — leaders across the country are looking at new restrictions.`\
-https://nytimes.com/2020/07/18/world/coronavirus-news.html?searchResultPosition=7
-
-**UK Pauses Daily Coronavirus Death Toll Update Over Data Concerns**\
-`Britain said on Saturday it was pausing its daily update of the death toll from the coronavirus after the government ordered a review into the calculation of the data over concerns the toll might have been exaggerated.`\
-https://nytimes.com/reuters/2020/07/18/world/europe/18reuters-health-coronavirus-britain-casualties.html?searchResultPosition=8
-
-**India-Pakistan Fighting in Kashmir Kills 3 Family Members**\
-`Three members of a family were killed in Indian-controlled Kashmir by firing from Indian and Pakistani soldiers who were exchanging shells and gunfire along the highly militarized frontier in the disputed region, Indian officials said Saturday.`\
-https://nytimes.com/aponline/2020/07/18/world/asia/ap-as-kashmir-india-pakistan.html?searchResultPosition=9
-
-**U.S. Ambassador Says EU Criticism of Poland 'Overblown'**\
-`The U.S. ambassador to Poland said the European Union's criticism of Poland's adherence to democracy is "overblown", as Warsaw faces cuts to EU budget funds over its judiciary reforms. `\
-https://nytimes.com/reuters/2020/07/18/world/europe/18reuters-poland-usa.html?searchResultPosition=10
+https://nytimes.com/2020/07/18/world/coronavirus-news.html?searchResultPosition=10
 
