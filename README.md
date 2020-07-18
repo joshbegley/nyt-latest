@@ -16,7 +16,7 @@ https://nytimes.com/2020/07/18/at-home/coronavirus-fiction-writing.html?searchRe
 
 **Can I Stop Paying for Amenities That Closed Because of the Pandemic?**\
 `Gyms, playrooms and other commons spaces may be off limits, but that may not relieve your financial obligations.`\
-https://nytimes.com/2020/07/18/realestate/can-i-stop-paying-for-amenities-that-closed-because-of-the-pandemic.html?searchResultPosition=5
+https://nytimes.com/2020/07/18/realestate/gym-playroom-fees-coronavirus.html?searchResultPosition=5
 
 **Doctor Who Survived COVID-19 Bewildered by Public Disregard**\
 `Dr. Michael Saag spends much of his time treating patients fighting for their lives and working with colleagues who are overwhelmed and exhausted by the relentless battle against the COVID-19 pandemic.`\
