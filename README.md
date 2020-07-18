@@ -15,7 +15,7 @@ https://nytimes.com/2020/07/18/sports/soccer/leeds-united-premier-league.html?se
 https://nytimes.com/2020/07/18/world/europe/nhs-waiting-times-coronavirus.html?searchResultPosition=4
 
 **French Firefighters Battle Blaze in Cathedral in Nantes**\
-`Firefighters are battling a fire in a Gothic cathedral in the western French city of Nantes.`\
+`A fire broke out Saturday in the Gothic cathedral of the western French city of Nantes, shattering stained glass windows and sending black smoke spewing from between its towers as firefighters fight the blaze.`\
 https://nytimes.com/aponline/2020/07/18/world/europe/ap-eu-france-cathedral-fire.html?searchResultPosition=5
 
 **Rouhani Says 25 Million Iranians Infected With COVID-19**\
