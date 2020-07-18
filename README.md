@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/07/18/us/ap-us-john-lewis-timeline.html?search
 `The FBI said Friday it will review the death of an 18-year-old man who was shot and killed by a Los Angeles County sheriff's deputy.`\
 https://nytimes.com/aponline/2020/07/18/us/ap-us-deputy-fatal-shooting.html?searchResultPosition=8
 
-**The Latest: Confirmed Virus Cases Top 14 Million Globally**\
-`Confirmed coronavirus cases around the world have topped 14 million and deaths have surpassed 600,000, according to a tally from Johns Hopkins University on Saturday. `\
+**The Latest: New Jump in India and Warning Cases Could Double**\
+`NEW DELHI — A surge of 34,884 new coronavirus cases took India’s tally to 1,038,716, as local governments continue to reimpose focused lockdowns in several parts of the country.`\
 https://nytimes.com/aponline/2020/07/18/business/ap-virus-outbreak-the-latest.html?searchResultPosition=9
 
 **Fair Housing Groups Slam Trump's Suburban Racial Rhetoric**\
