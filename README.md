@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/07/17/world/americas/17reuters-mexico-violence.
 https://nytimes.com/reuters/2020/07/17/world/europe/17reuters-health-coronavirus-germany-cases.html?searchResultPosition=2
 
 **Pagenaud Snaps Ganassi Streak With IndyCar Win at Iowa**\
-`Simon Pagenaud came from the last starting spot before holding off Scott Dixon in the final laps to win the opener of IndyCar's doubleheader at Iowa Speedway on Friday night, a race that drove home the importance of the new Aeroscreen designed to protect drivers from flying debris.`\
+`Simon Pagenaud's worst-to-first run capped a wild opening night to IndyCar's doubleheader at Iowa Speedway.`\
 https://nytimes.com/aponline/2020/07/17/sports/ap-car-indycar-iowa.html?searchResultPosition=3
 
 **China Regulator Encourages Brokerages, Mutual Funds to Merge, Media Says**\
