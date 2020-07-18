@@ -1,40 +1,40 @@
-**The Horror Novel Lurking in Your Busy Online Life**\
-`The genre relies on solitude and isolation to generate fear. But virtual connection is an illusion that cyber-horror writers are beginning to exploit.`\
-https://nytimes.com/2020/07/18/books/review/cyber-horror-virtual-life-uncanny-valley.html?searchResultPosition=1
+**Indonesia Reports 1,752 New Coronavirus Cases**\
+`Indonesia reported 1,752 new coronavirus infections on Saturday, bringing total cases to 84,882, its Health Ministry said.`\
+https://nytimes.com/reuters/2020/07/18/world/asia/18reuters-health-coronavirus-indonesia.html?searchResultPosition=1
 
-**Floods Kill 14 in China as Water Peaks at Three Gorges Dam**\
-`At least 14 people have died in the latest round of seasonal rains and flooding in southern China, as soldiers and workers built makeshift barriers with sandbags and rocks Saturday to keep the Yangtze River and its tributaries at bay.`\
-https://nytimes.com/aponline/2020/07/18/world/asia/ap-as-china-floods.html?searchResultPosition=2
+**California’s ‘Bear Whisperer’ Is Out of a Job**\
+`Steve Searles kept the bears in check in Mammoth Lakes, Calif., but quit his post after the coronavirus epidemic led to cuts in the town’s budget.`\
+https://nytimes.com/2020/07/18/science/bear-whisperer-steve-searles.html?searchResultPosition=2
 
-**Battle in the Himalayas**\
-`China and India are locked in a tense, deadly struggle for advantage on their disputed mountain border.`\
-https://nytimes.com/interactive/2020/07/18/world/asia/china-india-border-conflict.html?searchResultPosition=3
+**For Families of 9/11 Victims, Virus Further Slows the Pace of Justice**\
+`With proceedings at Guantánamo Bay upended, chances are growing that the 20th anniversary will pass without the trial of the men accused of plotting the attack getting underway.`\
+https://nytimes.com/2020/07/18/us/politics/for-families-of-9-11-victims-virus-further-slows-the-pace-of-justice.html?searchResultPosition=3
 
-**Mass Protests Rock Russian Far East City Again**\
-`Tens of thousands of people in the Russian Far East city of Khabarovsk took to the streets on Saturday, protesting the arrest of the region’s governor on charges of involvement in multiple murders.`\
-https://nytimes.com/aponline/2020/07/18/world/europe/ap-eu-russia-protest.html?searchResultPosition=4
+**Mistrust of a Coronavirus Vaccine Could Imperil Widespread Immunity**\
+`Billions are being poured into developing a shot, but the rapid timetable and President Trump’s cheerleading are creating a whole new group of vaccine-hesitant patients.`\
+https://nytimes.com/2020/07/18/health/coronavirus-anti-vaccine.html?searchResultPosition=4
 
-**Netherlands's Rutte Holds Out as Deadlocked EU Talks Go Into Second Day**\
-`Dutch Prime Minister Mark Rutte held out against his European Union counterparts on Saturday as negotiations on a massive stimulus fund ran into a second day and officials predicted a rough road ahead.`\
-https://nytimes.com/reuters/2020/07/18/world/europe/18reuters-eu-summit.html?searchResultPosition=5
+**A Covid-19 Lesson: Some Seriously Ill Patients Can Be Treated at Home**\
+`To ease pressure on hospitals, Northwell Health brought medical workers, oxygen tanks and intravenous equipment into patients’ homes. Now Florida is taking cues.`\
+https://nytimes.com/2020/07/18/health/coronavirus-home-care.html?searchResultPosition=5
 
-**Bollywood Star Aishwarya Rai, Daughter, Hospitalised for COVID-19-Media**\
-`Indian actress Aishwarya Rai Bachchan and her daughter were hospitalised for COVID-19 treatment, the Times of India reported on Saturday, days after her husband and father-in-law were admitted.`\
-https://nytimes.com/reuters/2020/07/18/arts/18reuters-health-coronavirus-india-bachchan.html?searchResultPosition=6
+**What Is a Travel Columnist’s Role When Travel Stops?**\
+`Sarah Firshein, who writes a consumer advice column for The Times, found that her writing became more urgent after the coronavirus upended everything.`\
+https://nytimes.com/2020/07/18/insider/travel-writing-pandemic.html?searchResultPosition=6
 
-**EU Leaders Resume 'Grumpy' Summit on Budget, Virus Fund**\
-`European Union leaders were hunting for compromises Saturday as a summit to reach a deal on an unprecedented 1.85 trillion euro ($2.1 trillion) EU budget and coronavirus recovery fund entered its second day with tensions running high.`\
-https://nytimes.com/aponline/2020/07/18/world/europe/ap-eu-europe-summit.html?searchResultPosition=7
+**Trump Promotes Caricature of What Conservatives Want**\
+`A series of events during his White House tenure has made clear that Mr. Trump views the voters he calls “my people” through the lens of what he imagines they like.`\
+https://nytimes.com/2020/07/18/us/politics/trump-base.html?searchResultPosition=7
 
-**Hardcore Cyclists Head for the Hills … Mexico City’s**\
-`With new bike routes and the pandemic pushing more people to cycle, the mountains outside one of the world’s megacities are drawing new and veteran enthusiasts.`\
-https://nytimes.com/2020/07/18/sports/cycling/coronavirus-mexico-city-biking.html?searchResultPosition=8
+**Exploring Their Own Paths Together**\
+`Bonnie Brescia and Jeanette Poillon remain each other’s lifelines, even though both admit that they are polar opposites.`\
+https://nytimes.com/2020/07/18/fashion/weddings/exploring-their-own-paths-together.html?searchResultPosition=8
 
-**Lost and Now Found, Leeds United Returns to the Premier League**\
-`After 16 years away from English soccer’s top division, an era marred by sporting and financial batterings, Leeds finally returned to the Premier League on Friday.`\
-https://nytimes.com/2020/07/18/sports/soccer/leeds-united-premier-league.html?searchResultPosition=9
+**Sing Figaro’s Aria and Diagram Your Garden**\
+`This week, watch Rossini’s ‘The Barber of Seville,’ learn the history of the ballot and chuckle at stand-up comics.`\
+https://nytimes.com/2020/07/18/at-home/coronavirus-what-to-do-this-week.html?searchResultPosition=9
 
-**Long Waits for U.K. Hospital Treatment as N.H.S. Fights Coronavirus**\
-`With routine operations in England curtailed, some patients have experienced a significant deterioration.`\
-https://nytimes.com/2020/07/18/world/europe/nhs-waiting-times-coronavirus.html?searchResultPosition=10
+**Why Trump’s Attacks on John Roberts Aren’t Working With Some Conservatives**\
+`The Supreme Court has faded somewhat in importance as frustration with the president grows, according to Republicans in the Indiana county where the chief justice grew up.`\
+https://nytimes.com/2020/07/18/us/politics/trump-john-roberts-indiana.html?searchResultPosition=10
 
