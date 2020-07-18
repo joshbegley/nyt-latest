@@ -24,7 +24,7 @@ https://nytimes.com/aponline/2020/07/18/us/ap-us-john-lewis-faith.html?searchRes
 
 **As Seasonal Rains Fall, Dispute over Nile Dam Rushes Toward a Reckoning**\
 `After a decade of construction, the hydroelectric dam in Ethiopia, Africa’s largest, is nearly complete. But there’s still no agreement with Egypt, which calls the structure a national security threat.`\
-https://nytimes.com/2020/07/18/world/middleeast/as-seasonal-rains-fall-dispute-over-nile-dam-rushes-toward-a-reckoning.html?searchResultPosition=7
+https://nytimes.com/2020/07/18/world/middleeast/nile-dam-egypt-ethiopia.html?searchResultPosition=7
 
 **Can I Stop Paying for Amenities That Closed Because of the Pandemic?**\
 `Gyms, playrooms and other commons spaces may be off limits, but that may not relieve your financial obligations.`\
