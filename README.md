@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/07/18/world/americas/18reuters-health-coronavir
 `It was dad to the rescue in the third round of the Memorial tournament on Saturday when Mike Thomas picked up son Justin's bag after his caddie fell ill on a steamy, hot day at Muirfield Village Golf Club in Dublin, Ohio.`\
 https://nytimes.com/reuters/2020/07/18/sports/golf/18reuters-golf-memorial-thomas.html?searchResultPosition=8
 
-**Marco Rubio Tweets Photo of Elijah Cummings in John Lewis Remembrance**\
-`A post from the Florida senator’s personal account attempted to pay tribute to Representative John Lewis, who died on Friday. It included a photo of Representative Elijah E. Cummings, who died in October.`\
+**2 Republican Senators Post Photos of Elijah Cummings in John Lewis Tributes**\
+`Marco Rubio and Dan Sullivan were each trying to honor Mr. Lewis on social media when they mistakenly posted photos of Mr. Cummings, a Black congressman who died in October.`\
 https://nytimes.com/2020/07/18/us/marco-rubio-elijah-cummings-john-lewis.html?searchResultPosition=9
 
 **Movie Magic as Paris Turns the Seine Into Open-Air Cinema**\
