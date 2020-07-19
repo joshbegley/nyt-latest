@@ -34,7 +34,7 @@ https://nytimes.com/2020/07/19/arts/television/whats-on-tv-sunday-the-last-dance
 `The 185-pound UFC title fight between Israel Adesanya and Paulo Costa might not have a location but it now has a date as it will take place Sept. 19.`\
 https://nytimes.com/reuters/2020/07/19/sports/19reuters-fighting-mma-ufc-adesanya-costa.html?searchResultPosition=9
 
-**Virus Deaths Top 600,000 as Cases Rise in SAfrica, Australia**\
-`Countries from the U.S. to South Africa to Australia were struggling to hold down rising rates of the coronavirus, as global deaths from COVID-19 surged past 600,000 in a sign of how far off the world remains from a return to normalcy.`\
+**Virus Deaths Top 600,000 as Cases Rise in India, SAfrica**\
+`Countries from the U.S. to South Africa to India were struggling to hold down rising rates of the coronavirus, as global deaths from COVID-19 surged past 600,000 in a sign of how far off the world remains from a return to normalcy.`\
 https://nytimes.com/aponline/2020/07/19/world/middleeast/ap-virus-outbreak-global.html?searchResultPosition=10
 
