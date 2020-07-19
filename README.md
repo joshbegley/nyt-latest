@@ -1,5 +1,5 @@
-**The Latest: Cases Slow as Pakistan Readies Anti-Polio Drive**\
-`ISLAMABAD — Pakistani authorities reported 1,579 new COVID-19 cases, the lowest number in more than a month, as health officials plan to resume a much-awaited nationwide anti-polio campaign next week.`\
+**The Latest: India Records Biggest 1-Day Surge of Near 39,000**\
+`NEW DELHI — A record 24-hour surge of 38,902 new cases has taken India’s coronavirus total to 1,077,618. `\
 https://nytimes.com/aponline/2020/07/19/business/ap-virus-outbreak-the-latest.html?searchResultPosition=1
 
 **China Blasts Dam to Release Floodwaters as Death Toll Rises**\
