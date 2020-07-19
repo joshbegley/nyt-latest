@@ -1,40 +1,40 @@
+**Dillon Leads 1-2 RCR Finish in Cup Race Before Fans at Texas**\
+`Austin Dillon stayed in front after a restart with two laps to go and beat rookie Tyler Reddick to the checkered flag at Texas, giving Richard Childress Racing a 1-2 NASCAR Cup finish and quite a show for spectators spread out in the stands on a scorching Sunday. `\
+https://nytimes.com/aponline/2020/07/19/sports/ap-car-nascar-texas.html?searchResultPosition=1
+
 **U.S. CDC Reports 67,574 New Coronavirus Cases, Total Now 3,698,161**\
 `The U.S. Centers for Disease Control and Prevention (CDC) on Sunday reported 67,574 new coronavirus cases, taking the total  to 3,698,161.`\
-https://nytimes.com/reuters/2020/07/19/world/asia/19reuters-health-coronavirus-usa-cdc.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/19/world/asia/19reuters-health-coronavirus-usa-cdc.html?searchResultPosition=2
 
 **Canada Foreign Minister Confirms Black Boxes of Downed Ukrainian Airliner Arrive in Paris: Tweet**\
 `Canadian foreign minister Francois-Philippe Champagne confirmed on Sunday in a tweet https://bit.ly/30uHtB1 that black boxes of a downed Ukrainian airliner that killed all 176 people on board in January have arrived in Paris.`\
-https://nytimes.com/reuters/2020/07/19/world/middleeast/19reuters-iran-crash-france-canada.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/19/world/middleeast/19reuters-iran-crash-france-canada.html?searchResultPosition=3
 
 **From Antifa to Mothers in Helmets, Diverse Elements Fuel Portland Protests**\
 `Protesters have been in the streets for more than 50 consecutive days. Federal agents deployed to Portland have hardened their resolve to stay there.`\
-https://nytimes.com/2020/07/19/us/portland-protests.html?searchResultPosition=3
+https://nytimes.com/2020/07/19/us/portland-protests.html?searchResultPosition=4
 
 **Irish Consumer Sentiment Improves Slightly in July**\
 `Irish consumer sentiment improved slightly in July but remained well below levels recorded before the onset of the COVID-19 crisis, a survey showed on Monday, with the authors pointing to "mixed messages" about the recovery.`\
-https://nytimes.com/reuters/2020/07/19/world/europe/19reuters-ireland-economy-consumersentiment.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/19/world/europe/19reuters-ireland-economy-consumersentiment.html?searchResultPosition=5
 
 **Big UK Businesses See 'Long Haul' to Recovery, Deloitte Says**\
 `Nearly half of Britain's biggest companies think it will take until the second half of 2021 before business recovers from the coronavirus pandemic, according to a survey on Monday that cast doubt on hopes for a speedier rebound.`\
-https://nytimes.com/reuters/2020/07/19/business/19reuters-health-coronavirus-britain-business.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/07/19/business/19reuters-health-coronavirus-britain-business.html?searchResultPosition=6
 
 **UK Lawmakers, Retailers Call for Action to Prevent Garment Workers' Exploitation**\
 `A group of 50 British lawmakers, retailers such as Marks & Spencer and New Look, and investors and NGOs called on Monday for urgent action to prevent the exploitation of garment factory workers in the United Kingdom.`\
-https://nytimes.com/reuters/2020/07/19/world/europe/19reuters-britain-clothing-suppliers-government.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/07/19/world/europe/19reuters-britain-clothing-suppliers-government.html?searchResultPosition=7
 
 **Actress Heard to Be Quizzed Over Her Depp 'Wife Beater' Claims**\
 `Actress Amber Heard will be questioned about her allegations that she suffered domestic abuse at the hands of ex-husband Johnny Depp when she begins giving evidence on Monday as part of the Hollywood star's libel case against a British tabloid.`\
-https://nytimes.com/reuters/2020/07/19/arts/19reuters-britain-people-depp.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/07/19/arts/19reuters-britain-people-depp.html?searchResultPosition=8
 
 **Factbox: Johnny Depp's Libel Case-The Evidence So Far**\
 `Johnny Depp is suing the publisher of Britain's Sun newspaper and its executive editor Dan Wootton for libel over an article that described the movie star as a "wife beater".`\
-https://nytimes.com/reuters/2020/07/19/arts/19reuters-britain-people-depp-evidence-factbox.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/07/19/arts/19reuters-britain-people-depp-evidence-factbox.html?searchResultPosition=9
 
 **Rapper Kanye West Draws Crowd to 1st Event as Candidate**\
 `Rapper Kanye West, in his first event since declaring himself a presidential candidate, delivered a lengthy monologue Sunday touching on topics from abortion and religion to international trade and licensing deals. Whether he's actually seeking the nation's highest office remains a question.`\
-https://nytimes.com/aponline/2020/07/19/arts/ap-election-2020-kanye-west.html?searchResultPosition=9
-
-**UK Housing Mini-Boom Is Gathering Pace, Property Firm Rightmove Says**\
-`British property website Rightmove said a mini housing market boom was gathering pace after a tax cut by finance minister Rishi Sunak.`\
-https://nytimes.com/reuters/2020/07/19/world/europe/19reuters-health-coronavirus-britain-housing.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/19/arts/ap-election-2020-kanye-west.html?searchResultPosition=10
 
