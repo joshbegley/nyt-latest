@@ -22,13 +22,13 @@ https://nytimes.com/2020/07/19/arts/television/whats-on-tv-sunday-the-last-dance
 `The 185-pound UFC title fight between Israel Adesanya and Paulo Costa might not have a location but it now has a date as it will take place Sept. 19.`\
 https://nytimes.com/reuters/2020/07/19/sports/19reuters-fighting-mma-ufc-adesanya-costa.html?searchResultPosition=6
 
-**Mainland China Reports 16 New Coronavirus Cases Including 13 in Xinjiang**\
-`Mainland China reported 16 new cases of the novel coronavirus as of the end of July 18, up from 22 reported a day earlier, the Chinese national health authority said on Sunday.`\
-https://nytimes.com/reuters/2020/07/19/world/asia/19reuters-health-coronavirus-china-cases.html?searchResultPosition=7
-
 **Virus Deaths Top 600,000 as Cases Rise in SAfrica, Australia**\
 `Countries from the U.S. to South Africa to Australia were struggling to hold down rising rates of the coronavirus, as global deaths from COVID-19 surged past 600,000 in a sign of how far off the world remains from a return to normalcy.`\
-https://nytimes.com/aponline/2020/07/19/world/middleeast/ap-virus-outbreak-global.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/07/19/world/middleeast/ap-virus-outbreak-global.html?searchResultPosition=7
+
+**Mainland China Reports 16 New Coronavirus Cases Including 13 in Xinjiang**\
+`Mainland China reported 16 new cases of the novel coronavirus as of the end of July 18, up from 22 reported a day earlier, the Chinese national health authority said on Sunday.`\
+https://nytimes.com/reuters/2020/07/19/world/asia/19reuters-health-coronavirus-china-cases.html?searchResultPosition=8
 
 **Corrections: July 19, 2020**\
 `Corrections that appeared in print on Sunday, July 19, 2020.`\
