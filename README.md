@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/07/19/world/europe/19reuters-britain-china-raab
 `Automotive sensor developer Foresight Autonomous Holdings Ltd said it will begin a pilot project in Israel for its COVID-19 symptom detection technology.`\
 https://nytimes.com/reuters/2020/07/19/world/middleeast/19reuters-health-coronavirus-foresight-atnms.html?searchResultPosition=3
 
-**Blast at Power Plant in Iran’s Central Isfahan Province-IRNA**\
+**Blast at Power Plant in Iran’s Central Isfahan Province: IRNA**\
 `An explosion occurred at a power plant in Iran's central Isfahan province on Sunday but there were no casualties, the official IRNA news agency reported.`\
 https://nytimes.com/reuters/2020/07/19/world/middleeast/19reuters-iran-blast.html?searchResultPosition=4
 
