@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/07/19/world/middleeast/ap-ml-syria.html?search
 https://nytimes.com/2020/07/19/world/asia/china-mask-forced-labor.html?searchResultPosition=7
 
 **Wearing a Mask? It May Come From China’s Controversial Labor Program**\
-`Our visual investigation reveals several Chinese companies that are using Uighur labor from a contentious government program to produce P.P.E. during the coronavirus pandemic. We track some of that equipment to the U.S. and around the world.`\
+`Our visual investigation reveals that several Chinese companies are using Uighur labor from a contentious government program to produce P.P.E. during the pandemic. We track some of that equipment to the U.S. and around the world.`\
 https://nytimes.com/video/world/asia/100000007226041/china-coronavirus-masks-uighur-labor-ppe.html?searchResultPosition=8
 
 **Petition Urges Trader Joe’s to Get Rid of ‘Racist Branding’**\
