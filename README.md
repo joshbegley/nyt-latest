@@ -8,7 +8,7 @@ https://nytimes.com/reuters/2020/07/18/sports/soccer/18reuters-soccer-mls-van-se
 
 **Death of John Lewis Fuels Movement to Rename Edmund Pettus Bridge**\
 `The bridge became a flash point on March 7, 1965, as protesters, led by Mr. Lewis and other civil rights leaders, were stopped and beaten by state troopers as they marched to Alabama’s capital.`\
-https://nytimes.com/2020/07/18/us/edmund-pettus-bridge-renamed-john-lewis.html?searchResultPosition=3
+https://nytimes.com/2020/07/18/us/politics/edmund-pettus-bridge-renamed-john-lewis.html?searchResultPosition=3
 
 **Rights Activists, Political Leaders Mourn Rep. John Lewis**\
 `Rights activists, politicians from both parties and many other people touched by the legacy of John Lewis mourned the congressman and pillar of the civil rights movement Saturday, lauding the strength, courage and kindness of a man whose lifelong struggle against racial discrimination took him from a bridge in Selma to the nation's Capitol.`\
