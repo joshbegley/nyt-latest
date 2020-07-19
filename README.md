@@ -1,40 +1,40 @@
+**Trump’s Hot-Button Fed Pick Faces Senate Committee Vote This Week**\
+`Judy Shelton, a nominee for the powerful Federal Reserve Board who has unorthodox economic views, could advance to the full Senate.`\
+https://nytimes.com/2020/07/19/business/economy/judy-shelton-federal-reserve-vote.html?searchResultPosition=1
+
 **Blue Jays Pitcher Says Team Is Looking for Major League Park**\
 `The Blue Jays' front office is working to find a major league ballpark for the team to use this year after Canada's government barred Toronto from playing in its home stadium amid the coronavirus pandemic, pitcher Anthony Bass said Sunday.`\
-https://nytimes.com/aponline/2020/07/19/sports/baseball/ap-bba-virus-outbreak-blue-jays-.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/19/sports/baseball/ap-bba-virus-outbreak-blue-jays-.html?searchResultPosition=2
 
 **Flyers' Voracek Back on Ice After Delayed Virus Test**\
 `Philadelphia Flyers forward Jakub Voracek returned to practice on Sunday, one day after skipping a scrimmage because of a delayed and inconclusive coronavirus test.`\
-https://nytimes.com/reuters/2020/07/19/sports/hockey/19reuters-icehockey-nhl-phi-voracek.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/19/sports/hockey/19reuters-icehockey-nhl-phi-voracek.html?searchResultPosition=3
 
 **Your Monday Briefing**\
 `Uighur labor, Indian arrests, Mars mission: Here’s what you need to know.`\
-https://nytimes.com/2020/07/19/briefing/china-uighurs-india-olympics-mars.html?searchResultPosition=3
+https://nytimes.com/2020/07/19/briefing/china-uighurs-india-olympics-mars.html?searchResultPosition=4
 
 **Jays Tab Ryu for Opener, Plan to Put Anderson on IL**\
 `Top free-agent acquisition Hyun-Jin Ryu will make his Toronto Blue Jays debut with an Opening Day start against the host Tampa Bay Rays, the team announced Sunday.`\
-https://nytimes.com/reuters/2020/07/19/sports/baseball/19reuters-baseball-mlb-tor-ryu.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/19/sports/baseball/19reuters-baseball-mlb-tor-ryu.html?searchResultPosition=5
 
 **Angels 3B Rendon (Oblique) Iffy for Season Opener**\
 `Los Angeles Angels third baseman Anthony Rendon is deemed questionable for the season opener as he deals with tightness in his oblique.`\
-https://nytimes.com/reuters/2020/07/19/sports/baseball/19reuters-baseball-mlb-laa-rendon.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/07/19/sports/baseball/19reuters-baseball-mlb-laa-rendon.html?searchResultPosition=6
 
 **Report: Disney Cuts Back on Facebook, Instagram Ads**\
 `The Walt Disney Co. has “dramatically” slashed its advertising budget on Facebook and Facebook-owned Instagram, according to a report in the Wall Street Journal. `\
-https://nytimes.com/aponline/2020/07/19/business/ap-us-disney-facebook-ad-cutback.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/07/19/business/ap-us-disney-facebook-ad-cutback.html?searchResultPosition=7
 
 **Blast Kills 5, Wounds Dozens in Rebel-Held North Syria**\
 `An explosion rocked a rebel-held area in northern Syria across the border from Turkey late Sunday, killing at least five people and wounding dozens, opposition activists and Turkish state media reported. `\
-https://nytimes.com/aponline/2020/07/19/world/middleeast/ap-ml-syria.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/07/19/world/middleeast/ap-ml-syria.html?searchResultPosition=8
 
 **China Is Using Uighur Labor to Produce Face Masks**\
 `A Times video investigation identified Chinese companies using a contentious labor program for Uighurs to satisfy demand for P.P.E., some of which ended up in the United States and other countries.`\
-https://nytimes.com/2020/07/19/world/asia/china-mask-forced-labor.html?searchResultPosition=8
+https://nytimes.com/2020/07/19/world/asia/china-mask-forced-labor.html?searchResultPosition=9
 
 **Wearing a Mask? It May Come From China’s Controversial Labor Program**\
 `Our visual investigation reveals that several Chinese companies are using Uighur labor from a contentious government program to produce P.P.E. during the pandemic. We track some of that equipment to the U.S. and around the world.`\
-https://nytimes.com/video/world/asia/100000007226041/china-coronavirus-masks-uighur-labor-ppe.html?searchResultPosition=9
-
-**Petition Urges Trader Joe’s to Get Rid of ‘Racist Branding’**\
-`The supermarket chain said it was in the process of phasing out names, including Trader Ming’s and Trader José, that have appeared on its international food products.`\
-https://nytimes.com/2020/07/19/business/trader-joes-petition.html?searchResultPosition=10
+https://nytimes.com/video/world/asia/100000007226041/china-coronavirus-masks-uighur-labor-ppe.html?searchResultPosition=10
 
