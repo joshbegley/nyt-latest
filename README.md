@@ -14,8 +14,8 @@ https://nytimes.com/aponline/2020/07/19/sports/ap-car-nascar-texas.html?searchRe
 `The U.S. Centers for Disease Control and Prevention (CDC) on Sunday reported 67,574 new coronavirus cases, taking the total  to 3,698,161.`\
 https://nytimes.com/reuters/2020/07/19/world/asia/19reuters-health-coronavirus-usa-cdc.html?searchResultPosition=4
 
-**Canada Foreign Minister Confirms Black Boxes of Downed Ukrainian Airliner Arrive in Paris: Tweet**\
-`Canadian foreign minister Francois-Philippe Champagne confirmed on Sunday in a tweet https://bit.ly/30uHtB1 that black boxes of a downed Ukrainian airliner that killed all 176 people on board in January have arrived in Paris.`\
+**Canada Confirms Black Boxes of Downed Ukrainian Airliner Arrive in Paris**\
+`Canadian Foreign Minister Francois-Philippe Champagne confirmed in a tweet https://bit.ly/30uHtB1 on Sunday that the black boxes of a downed Ukrainian airliner that killed all 176 people on board in January had arrived in Paris, ending a months-long standoff.`\
 https://nytimes.com/reuters/2020/07/19/world/middleeast/19reuters-iran-crash-france-canada.html?searchResultPosition=5
 
 **From Antifa to Mothers in Helmets, Diverse Elements Fuel Portland Protests**\
