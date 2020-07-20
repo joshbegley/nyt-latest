@@ -2,8 +2,8 @@
 `Emily Dodson puts her fate in Sister Alice’s hands — and in Perry’s. But Alice and Perry are taking major gambles, too.`\
 https://nytimes.com/2020/07/19/arts/television/perry-mason-recap-episode-5.html?searchResultPosition=1
 
-**Saudi King Salman Admitted to Hospital for Medical Checkups**\
-`Saudi Arabia's King Salman has been admitted to King Faisal Specialist hospital in the capital Riyadh for medical checkups, the state news agency reported early on Monday.`\
+**Saudi King Salman Admitted to Hospital for Medical Checkup**\
+`Saudi Arabia's 84-year-old ruler King Salman bin Abdulaziz has been admitted to King Faisal Specialist hospital in the capital Riyadh for medical checks, the state news agency (SPA) reported early on Monday.`\
 https://nytimes.com/reuters/2020/07/19/world/middleeast/19reuters-saudi-politics-king.html?searchResultPosition=2
 
 **China Keeps Lending Benchmark LPR Steady for Third Month, as Expected**\
