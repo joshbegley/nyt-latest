@@ -8,7 +8,7 @@ https://nytimes.com/2020/07/20/nyregion/sheldon-silver-sentencing-prison.html?se
 
 **‘Don’t Be Stupid,’ Cuomo Says**\
 `At his press briefing on Monday, Gov. Andrew Cuomo warned that an increase in large gatherings could increase coronavirus cases across New York.`\
-https://nytimes.com/video/us/politics/100000007247561/dont-be-stupid-cuomo-says.html?searchResultPosition=3
+https://nytimes.com/video/us/politics/100000007247561/cuomo-coronavirus-warning.html?searchResultPosition=3
 
 **Trump’s Views on Covid Tests and Vaccines**\
 `Readers criticize the president’s desire to eliminate funds for testing and point to his earlier vaccine skepticism. Also: New York City’s air quality; life in a van.`\
