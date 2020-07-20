@@ -1,40 +1,40 @@
+**Soccer: FIFPRO Wants Specific Measures to Protect Players From Overload**\
+`The global footballers' union FIFPRO wants concrete safeguards to protect players from fixture overload and the consequent risk of injury as the sport catches up with a backlog of matches following the novel coronavirus stoppage.`\
+https://nytimes.com/reuters/2020/07/20/sports/soccer/20reuters-soccer-fifpro.html?searchResultPosition=1
+
+**Governor Cuomo Warns of Reopening Rollback if New Yorkers Continue Partying in Large Groups**\
+`New York Governor Andrew Cuomo said on Monday that local governments and police departments were failing to disband parties that violated social distancing orders and warned that he might need to roll back the state's reopening if that continued. `\
+https://nytimes.com/reuters/2020/07/20/us/20reuters-health-coronavirus-new-york.html?searchResultPosition=2
+
+**Japan Protests Chinese Maritime Survey Off Southern Islets**\
+`Japan has protested to Beijing over a Chinese survey ship that operated for 10 days inside the exclusive economic zone claimed by Japan around Okinotorishima, a tiny island in the Pacific Ocean, officials said Monday. `\
+https://nytimes.com/aponline/2020/07/20/world/asia/ap-as-japan-china-island-dispute.html?searchResultPosition=3
+
+**Exclusive: India Seeks New Preferential Treatment From U.S. on Drugs, Other Goods-Sources**\
+`India is seeking concessions for generic drugs it exports to the United States in return for opening its dairy markets and slashing tariffs on farm goods as the two sides seek to shore up a new trade deal, three sources said.`\
+https://nytimes.com/reuters/2020/07/20/world/asia/20reuters-usa-trade-india-exclusive.html?searchResultPosition=4
+
+**Brazil's Minister of Citizenship Onyx Lorenzoni Tests Positive for COVID-19**\
+`Brazil's minister of Citizenship, Onyx Lorenzoni, said on Monday he tested positive for the novel coronavirus.`\
+https://nytimes.com/reuters/2020/07/20/world/americas/20reuters-brazil-politics.html?searchResultPosition=5
+
+**U.S. Congress Girds for a Fight Over New Coronavirus Aid Bill**\
+`U.S. Senate Democrats are prepared to block Republicans from moving forward on a partisan coronavirus aid bill, the chamber's top Democrat warned on Monday, as Republican leaders were expected to meet at the White House to discuss legislation.`\
+https://nytimes.com/reuters/2020/07/20/us/politics/20reuters-health-coronavirus-usa-congress.html?searchResultPosition=6
+
+**The Japanese-American Sculptor Who, Despite Persecution, Made Her Mark**\
+`Seven years after her death, Ruth Asawa is finally being recognized as an American master. What can we learn from this overdue reappraisal?`\
+https://nytimes.com/2020/07/20/t-magazine/ruth-asawa.html?searchResultPosition=7
+
 **AP Says It Will Capitalize Black but Not White**\
 `After changing its usage rules last month to capitalize the word “Black” when used in the context of race and culture, The Associated Press on Monday said it would not do the same for “white.”`\
-https://nytimes.com/aponline/2020/07/20/us/ap-us-racial-injustice-media.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/20/us/ap-us-racial-injustice-media.html?searchResultPosition=8
 
 **China May Retaliate Against Nokia, Ericsson if EU Bans Huawei: WSJ**\
 `China is considering retaliating against telecom gear makers Nokia and Ericsson if the European Union follows the United States and Britain in banning Huawei Technologies from 5G networks, the Wall Street Journal reported, citing people familiar with the matter.`\
-https://nytimes.com/reuters/2020/07/20/technology/20reuters-china-huawei-europe.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/20/technology/20reuters-china-huawei-europe.html?searchResultPosition=9
 
 **CanSino COVID-19 Vaccine Shows Immune Response in Human Trial**\
 `A COVID-19 vaccine developed by CanSino Biologics Inc and China's military research unit has shown to be safe and induced immune response in most of the recipients who got one shot, researchers said on Monday.`\
-https://nytimes.com/reuters/2020/07/20/world/asia/20reuters-health-coronavirus-cansinobio.html?searchResultPosition=3
-
-**Putin Appoints Acting Governor to Region Rocked by Protests**\
-`Russia's president on Monday appointed an acting governor to the Far Eastern Khabarovsk region, where tens of thousands have been protesting against the arrest of the popular incumbent on charges of involvement in multiple murders. `\
-https://nytimes.com/aponline/2020/07/20/us/politics/ap-eu-russia-regional-governor.html?searchResultPosition=4
-
-**First Human Trial of AstraZeneca COVID-19 Vaccine Shows Promise**\
-`AstraZeneca's experimental COVID-19 vaccine was safe and produced an immune response in early-stage clinical trials in healthy volunteers, data showed on Monday.`\
-https://nytimes.com/reuters/2020/07/20/world/europe/20reuters-health-coronavirus-oxford-vaccine.html?searchResultPosition=5
-
-**India's IndiGo to Cut 10% of Workforce Due to COVID-19 Impact**\
-`IndiGo, India's biggest airline, said it will cut 10% of its workforce as it grapples with declining revenues due to the fallout from the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/07/20/world/asia/20reuters-indigo-jobs.html?searchResultPosition=6
-
-**Unscathed by Centuries of Turbulence, London's Beefeaters Face COVID Threat**\
-`After more than half a millennium guarding the Tower of London from rebellions and invaders, Beefeaters are facing redundancies for the first time because visitor numbers have plummeted due to the novel coronavirus outbreak.`\
-https://nytimes.com/reuters/2020/07/20/world/europe/20reuters-health-coronavirus-britain-beefeaters.html?searchResultPosition=7
-
-**Zimbabwe Police Detain Prominent Journalist, Protest Leader**\
-`Zimbabwe police on Monday swooped in and detained a prominent journalist and an opposition leader ahead of anti-government protests planned for the end of this month, their lawyers said.`\
-https://nytimes.com/aponline/2020/07/20/world/africa/ap-af-zimbabwe-journalist-detained.html?searchResultPosition=8
-
-**U.S. Federal Judge's Son Shot and Killed, Husband Wounded in New Jersey: Media**\
-`The husband and son of federal judge Esther Salas were shot at their home in New Jersey on Sunday, media reported.`\
-https://nytimes.com/reuters/2020/07/20/us/20reuters-usa-shooting-salas.html?searchResultPosition=9
-
-**UK Coronavirus Vaccine Prompts Immune Response in Early Test**\
-`Scientists at Oxford University say their experimental coronavirus vaccine has been shown in an early trial to prompt a protective immune response in hundreds of people who got the shot.`\
-https://nytimes.com/aponline/2020/07/20/health/ap-eu-med-virus-outbreak-britain-vaccine.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/20/world/asia/20reuters-health-coronavirus-cansinobio.html?searchResultPosition=10
 
