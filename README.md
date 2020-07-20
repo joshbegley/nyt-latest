@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/07/19/business/19reuters-global-markets.html?se
 `The euro hovered near four-month highs against the dollar on Monday as investors held on to hopes that European leaders would break a deadlock and hammer out an economic rescue deal as their marathon summit reached a record length.`\
 https://nytimes.com/reuters/2020/07/19/business/19reuters-global-forex.html?searchResultPosition=2
 
-**Kentucky Announces One-Day High of New Coronavirus Cases**\
-`Kentucky Gov. Andy Beshear reported 979 new COVID-19 cases on Sunday, a daily record that he said should be a “wake-up call" for the state's citizens to abide by mask and social distancing restrictions to slow the spread of the virus.`\
+**Kentucky Announces Single-Day High of New Coronavirus Cases**\
+`A daily record of nearly 1,000 coronavirus cases were reported Sunday in Kentucky, a spike that the governor said should be a “wake-up call” for the state’s citizens to abide by mask and social distancing restrictions.`\
 https://nytimes.com/aponline/2020/07/19/us/ap-us-virus-outbreak-kentucky-1st-ld-writethru.html?searchResultPosition=3
 
 **An Ex-Times Reporter. An Ohio Wedding Provider. Covid Contrarians Go Viral.**\
