@@ -1,40 +1,40 @@
-**Australia Faces Avalanche of Business Failures in September 'Fiscal Cliff'**\
-`Australia faces an avalanche of business failures in its transport and hospitality sectors after government subsidies end in September, insolvency lawyers and economists say, while some argue that so-called 'zombie' firms should be allowed to fail.`\
-https://nytimes.com/reuters/2020/07/20/world/asia/20reuters-health-coronavirus-australia-bankruptcies.html?searchResultPosition=1
+**A Glimpse Inside the Workshops of the World’s Finest Panama Hat Makers**\
+`Creamy as silk and costlier than gold, a Montecristi superfino Panama hat is as much a work of art as it is of fashion.`\
+https://nytimes.com/2020/07/20/travel/panama-hats-ecuador.html?searchResultPosition=1
 
-**Hong Kong Reports 73 New Coronavirus Cases as Local Transmissions Stay High**\
-`Hong Kong reported 73 new coronavirus cases on Monday, including 66 that were locally transmitted, as new restrictions took effect and authorities warned there was no indication that the situation was coming under control. `\
-https://nytimes.com/reuters/2020/07/20/world/asia/20reuters-health-coronavirus-hongkong.html?searchResultPosition=2
+**As Trump Slumps, Republican Donors Look to Save the Senate**\
+`Senators and donors worry that with President Trump in trouble and the House probably out of reach, the Senate could be their last chance to hold power in Washington.`\
+https://nytimes.com/2020/07/20/us/politics/republican-senators-2020-trump.html?searchResultPosition=2
 
-**Philippines Reports 4 New Coronavirus Deaths, 1,521 More Infections**\
-`The Philippines' health ministry on Monday confirmed four new coronavirus deaths and 1,521 new cases, its fifth straight day of reporting over a thousand infections.`\
-https://nytimes.com/reuters/2020/07/20/world/asia/20reuters-health-coronavirus-philippines-cases.html?searchResultPosition=3
+**After 50 Years, Sanitation Workers Still Fight for Dignity**\
+`A determined handful of men in New Orleans carry on the cause Dr. King died defending in Memphis.`\
+https://nytimes.com/2020/07/20/opinion/new-orleans-garbage-strike.html?searchResultPosition=3
 
-**German Parliamentary Committee to Discuss Wirecard Scandal Next Week: Lawmaker**\
-`The German parliament's financial committee will hold an extraordinary meeting on the Wirecard scandal on Wednesday next week and Finance Minister Olaf Scholz is expected to be there, a Social Democrat (SPD) lawamker said on Monday.`\
-https://nytimes.com/reuters/2020/07/20/business/20reuters-wirecard-accounts-committee.html?searchResultPosition=4
+**Without Music, Tanglewood Is Empty, Eerie and Beautiful**\
+`The usually tourist-packed Berkshires confronts a season without the music festival that anchors its summers.`\
+https://nytimes.com/2020/07/20/arts/music/tanglewood-berkshires-massachusetts.html?searchResultPosition=4
 
-**UK Consumer Gloom Eases but Job Worries Widespread: IHS Markit**\
-`British households' view of their financial situation improved modestly in July to just above its long-run average, after hitting an eight-and-a-half year low in April due to the coronavirus, a survey showed on Monday.`\
-https://nytimes.com/reuters/2020/07/20/world/europe/20reuters-health-coronavirus-britain-consumers.html?searchResultPosition=5
+**Yankee Stadium Area Is Hurting, and Baseball’s Return Won’t Help**\
+`Merchants and vendors around the ballpark are struggling to survive in a summer devoid of the usual crowds.`\
+https://nytimes.com/2020/07/20/nyregion/yankees-bronx-economy.html?searchResultPosition=5
 
-**Polish Central Banker Hardt Warns of Higher Inflation**\
-`Poland's inflation may exceed the central bank's latest forecasts, which could prompt its rate-setting panel to consider an interest rate hike, central banker Lukasz Hardt said in an interview published on Monday.`\
-https://nytimes.com/reuters/2020/07/20/world/europe/20reuters-poland-inflation.html?searchResultPosition=6
+**‘If It’s Here, It’s Here’: America’s Retirees Confront the Virus in Florida**\
+`As cases spike across Florida, the virus appears to have caught up with the residents of the Villages.`\
+https://nytimes.com/2020/07/20/us/coronavirus-florida-elderly.html?searchResultPosition=6
 
-**Some Chinese Cities Reopen Cinemas as Virus Threat Recedes**\
-`China is going back to the movies. `\
-https://nytimes.com/aponline/2020/07/20/world/asia/ap-as-virus-outbreak-china-movies-return.html?searchResultPosition=7
+**Black Artists See Glaring ‘Opportunism’ in Corporate Rush to Use Their Work**\
+`Black artists, models, designers and other creative professionals say they have been used to lend legitimacy to diversity campaigns while being underpaid and pigeonholed.`\
+https://nytimes.com/2020/07/20/business/media/black-creatives-protests.html?searchResultPosition=7
 
-**Euro Zone Current Account Surplus Narrows Further in May**\
-`The current account surplus of the 19 countries sharing the euro narrowed to 7.95 billion euros in May from 14.27 billion euros in April on a big outflow of secondary income, which includes transfers between residents and non-residents, ECB data showed on Monday.`\
-https://nytimes.com/reuters/2020/07/20/us/20reuters-eurozone-economy-currentaccount.html?searchResultPosition=8
+**Building Accessibility Into America, Literally**\
+`Thirty years on, the Americans With Disabilities Act has reshaped the way designers and the public have come to think about equity, civil rights and American architecture. But it’s only a start.`\
+https://nytimes.com/2020/07/20/arts/disabilities-architecture-design.html?searchResultPosition=8
 
-**China Urges UK to Avoid Taking Wrong Path in Hong Kong Affairs**\
-`China on Monday urged Britain to avoid making further steps down wrong path after reports that it was poised to suspend an extradition treaty for Chinese-ruled Hong Kong.`\
-https://nytimes.com/reuters/2020/07/20/world/europe/20reuters-britain-china-diplomacy-hongkong.html?searchResultPosition=9
+**N.Y.C. Enters Phase 4, but Restaurants and Bars Are Left Behind**\
+`As the city reaches what should have been a momentous day, a wild weekend in Astoria shows the risks that bars can pose.`\
+https://nytimes.com/2020/07/20/nyregion/nyc-phase-4-reopening-bars.html?searchResultPosition=9
 
-**Czech Car Production Falls 32.6% in First Half on Coronavirus Outages: Industry Association**\
-`Czech car production fell by 32.6% in the first half of this year to 503,615 cars as the new coronavirus pandemic hit the sector, Czech Automotive Industry Association (AIA) said on Monday.`\
-https://nytimes.com/reuters/2020/07/20/world/europe/20reuters-czech-autos.html?searchResultPosition=10
+**Would the Prophet Muhammad Convert Hagia Sophia?**\
+`Turkey’s decision to change the former cathedral into a mosque flies against the pluralist instincts of Islam’s founders.`\
+https://nytimes.com/2020/07/20/opinion/hagia-sophia-mosque.html?searchResultPosition=10
 
