@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/07/19/business/19reuters-global-markets.html?se
 https://nytimes.com/reuters/2020/07/19/business/19reuters-global-forex.html?searchResultPosition=2
 
 **Kentucky Announces Single-Day High of New Coronavirus Cases**\
-`A daily record of nearly 1,000 coronavirus cases were reported Sunday in Kentucky, a spike that the governor said should be a “wake-up call” for the state’s citizens to abide by mask and social distancing restrictions.`\
+`A daily record of nearly 1,000 coronavirus cases was reported Sunday in Kentucky, a spike that the governor said should be a “wake-up call” for the state’s citizens to abide by mask and social distancing restrictions.`\
 https://nytimes.com/aponline/2020/07/19/us/ap-us-virus-outbreak-kentucky-1st-ld-writethru.html?searchResultPosition=3
 
 **An Ex-Times Reporter. An Ohio Wedding Provider. Covid Contrarians Go Viral.**\
@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/07/19/sports/golf/ap-glf-memorial.html?searchR
 `A newly public copy of the whistle-blower’s complaint says that top officials who were protecting the secretary of state blocked the whistle-blower from addressing the issue internally.`\
 https://nytimes.com/2020/07/19/us/politics/pompeo-whistleblower.html?searchResultPosition=8
 
-**Rahm Wins Memorial Tournament to Take Over Number One Ranking**\
-`Spain's Jon Rahm carded a final round one-over 73 to win the Memorial Tournament in Dublin, Ohio on Sunday and take over the number one world ranking from Rory McIlroy.`\
+**Rahm Overcomes Nerves and Penalty to Take Memorial and Top Ranking**\
+`Spain's Jon Rahm overcame nerves and a two-shot penalty to card a three-over 75 to claim a three-shot victory over Ryan Palmer at the Memorial Tournament on Sunday and take the top spot in the world rankings.`\
 https://nytimes.com/reuters/2020/07/19/sports/golf/19reuters-golf-memorial.html?searchResultPosition=9
 
 **Dillon Leads 1-2 RCR Finish in Cup Race Before Fans at Texas**\
