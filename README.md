@@ -1,5 +1,5 @@
-**US District Judge Esther Salas' Son Killed, Husband Shot**\
-`A gunman shot and killed the 20-year-year-old son of a federal judge in New Jersey and shot and injured her husband Sunday at the family home, the state’s chief district judge said.`\
+**Son of US District Judge Esther Salas Killed, Husband Shot**\
+`A gunman shot and killed the 20-year-old son of a federal judge in New Jersey and shot and injured her husband Sunday at the family home, the state’s chief district judge said.`\
 https://nytimes.com/aponline/2020/07/19/us/ap-us-judges-son-slain.html?searchResultPosition=1
 
 **Police Seek Three for U.S. Capital Shooting That Killed One, Hurt Eight**\
