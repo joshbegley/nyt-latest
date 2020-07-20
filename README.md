@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/07/20/us/ap-us-music-juice-wrld.html?searchRes
 https://nytimes.com/2020/07/20/briefing/india-outbreak-hong-kong-alibaba-jack-ma.html?searchResultPosition=3
 
 **Top Democrats Say U.S. Congress Appears to Be Election Interference Target**\
-`Top Democrats in the U.S. Congress on Monday called on the head of the FBI to brief lawmakers on foreign efforts to interfere in the 2020 U.S. presidential election, saying that Congress appears to be a target in an interference effort.`\
+`Top Democrats in the U.S. Congress called on Monday on the head of the FBI to brief lawmakers on foreign efforts to interfere in the 2020 U.S. presidential election, saying that Congress appeared to be the target of an interference effort.`\
 https://nytimes.com/reuters/2020/07/20/us/politics/20reuters-usa-election-interference.html?searchResultPosition=4
 
 **Defense Contractor to Pay $1M to Resolve Overbilling Claims**\
