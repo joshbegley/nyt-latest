@@ -1,40 +1,40 @@
+**Michael Bennett Retires After 11 NFL Seasons**\
+`Three-time Pro Bowl defensive lineman Michael Bennett said Tuesday that he is retiring after 11 seasons in the NFL.`\
+https://nytimes.com/reuters/2020/07/21/sports/football/21reuters-football-nfl-sea-dal-bennett-retirement.html?searchResultPosition=1
+
+**Nissan Proposes Postponing Barcelona Plant Closures by Six Months to June 2021**\
+`Nissan Motor Co. is proposing to postpone the closure of its three Barcelona plants to June 2021 from December 2020, the head of the carmaker's industrial operations in Spain, Frank Torres, said on Tuesday.`\
+https://nytimes.com/reuters/2020/07/21/business/21reuters-nissan-spain.html?searchResultPosition=2
+
+**Zizi Jeanmaire, French Star of Ballet, Cabaret and Film, Dies at 96**\
+`She was celebrated for her artistic range, androgynous sexiness and husky-voiced charm.`\
+https://nytimes.com/2020/07/21/arts/dance/zizi-jeanmaire-french-star-of-ballet-cabaret-and-film-dies-at-96.html?searchResultPosition=3
+
+**High School Miler Jim Ryun to Receive Medal of Freedom**\
+`President Donald Trump is awarding the nation’s highest civilian honor to Jim Ryun, a former Kansas congressman who was the first high school runner to clock a mile in under 4 minutes.`\
+https://nytimes.com/aponline/2020/07/21/us/politics/ap-us-trump-jim-ryun.html?searchResultPosition=4
+
+**Pandemic Poses Challenges for Argentines Seeking Therapy**\
+`Romina Caira has hidden in her bathroom, the door closed tightly so she doesn’t wake her 4-year-old daughter. Mariana Fevre finds privacy in her parked car or sitting in the stairwell of her apartment building.`\
+https://nytimes.com/aponline/2020/07/21/world/americas/ap-lt-virus-outbreak-argentina-psychology.html?searchResultPosition=5
+
+**Florida Recording More Coronavirus Deaths Than Any State**\
+`Florida's skyrocketing coronavirus death rate is now higher than any other state, edging out Texas, which has about 25% more people.`\
+https://nytimes.com/aponline/2020/07/21/us/ap-us-virus-outbreak-florida.html?searchResultPosition=6
+
 **German Working to Support Iraqi Art Kidnapped in Baghdad**\
 `A German woman well known in Iraq’s art scene and an ardent supporter of mass anti-government protests was kidnapped outside the Baghdad arts center where she worked, a security official and activists said Tuesday. `\
-https://nytimes.com/aponline/2020/07/21/world/middleeast/ap-ml-iraq-missing-german.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/21/world/middleeast/ap-ml-iraq-missing-german.html?searchResultPosition=7
 
 **Trump Aims to Stop Counting of Illegal Migrants in Redrawing of U.S. Voting Maps**\
 `President Donald Trump plans to sign an executive order on Tuesday that aims to prevent migrants who are in the United States illegally from being counted when U.S. congressional voting districts are redrawn in the next round of redistricting.`\
-https://nytimes.com/reuters/2020/07/21/us/21reuters-usa-trump-migrants-census.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/21/us/21reuters-usa-trump-migrants-census.html?searchResultPosition=8
 
 **Walmart to Close Its Stores on Thanksgiving Day**\
 `By The Associated Press`\
-https://nytimes.com/aponline/2020/07/21/business/ap-us-walmart-thanksgiving.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/21/business/ap-us-walmart-thanksgiving.html?searchResultPosition=9
 
 **Constitutional Crisis Looms Over Federal Agents in Portland**\
 `A potential constitutional crisis is looming over the actions of federal officers at protests in Oregon’s largest city that have been hailed by President Donald Trump but were done without local consent.`\
-https://nytimes.com/aponline/2020/07/21/us/ap-us-racial-injustice-portland.html?searchResultPosition=4
-
-**Nantes Cathedral Fire May Be Accidental: French Minister**\
-`There is nothing to suggest at this stage that a fire in the 15-century cathedral in the western French city of Nantes was started deliberately, France's interior minister said on Tuesday. `\
-https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-france-nantes-fire.html?searchResultPosition=5
-
-**Swedish Epidemiology Boss Says Questioned COVID-19 Strategy Seems to Be Working**\
-`Sweden's top epidemiologist said on Tuesday a rapid decline in new critical COVID-19 cases alongside slowing death rates indicated that Sweden's strategy for slowing the epidemic, which has been widely questioned abroad, was working. `\
-https://nytimes.com/reuters/2020/07/21/sports/21reuters-health-coronavirus-sweden-strategy.html?searchResultPosition=6
-
-**Coronavirus Infections Much Higher Than Reported Cases in Parts of U.S., Study Shows**\
-`Data from antibody tests in 10 different cities and states indicate that many people with no symptoms may be spreading the virus.`\
-https://nytimes.com/2020/07/21/health/coronavirus-infections-us.html?searchResultPosition=7
-
-**Over 22% of People in Delhi Have Had Virus, Study Indicates**\
-`More than one in five people in Delhi have been infected with the coronavirus, according to a study released Tuesday, indicating that most cases in the Indian capital region have gone undetected.`\
-https://nytimes.com/aponline/2020/07/21/world/asia/ap-as-virus-outbreak-india-delhi.html?searchResultPosition=8
-
-**Walmart to Spend Another $428 Million on Employee Bonuses**\
-`Walmart Inc said on Tuesday it would spend another $428 million on bonuses this year, to compensate its U.S. employees for catering to a surge in demand for essential goods during the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/07/21/business/21reuters-health-coronavirus-walmart.html?searchResultPosition=9
-
-**Virus Concerns Nudge Some Teachers Toward Classroom Exits**\
-`As pressure mounts for teachers to return to their classrooms this fall, concerns about health risks from the coronavirus are pushing many toward alternatives, including career changes, as others mobilize to delay school reopenings in hard-hit areas.`\
-https://nytimes.com/aponline/2020/07/21/us/ap-us-virus-outbreak-teachers.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/21/us/ap-us-racial-injustice-portland.html?searchResultPosition=10
 
