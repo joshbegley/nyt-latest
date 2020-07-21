@@ -1,40 +1,40 @@
+**Bosch Creates Single Unit to Oversee Software, Systems Development**\
+`Germany’s Robert Bosch GmbH, the world’s largest auto parts supplier, said on Tuesday it is consolidating its software and electronics expertise in a single division, in order to get new digitalized vehicle functions on the road significantly faster.`\
+https://nytimes.com/reuters/2020/07/21/business/21reuters-autos-future-bosch.html?searchResultPosition=1
+
+**Russia's Sberbank Servicing Subordinated Loan, No Plans for Write-Off**\
+`Sberbank has no plans to write off a 150 billion rouble ($2 billion) state subordinated loan secured during the financial crisis of 2008-09, Russia's top bank said on Tuesday. `\
+https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-sberbank-russia-debt.html?searchResultPosition=2
+
+**Graphic: U.S. COVID-19 Deaths Rise for Second Week in a Row**\
+`U.S. deaths from COVID-19 rose for a second week in a row to more than 5,200 people in the week ended July 19, up 5% from the previous seven days, a Reuters analysis found.`\
+https://nytimes.com/reuters/2020/07/21/us/21reuters-health-coronavirus-usa-trends.html?searchResultPosition=3
+
+**Qatar Investment Authority Takes Stake in Vaccine-Maker CureVac**\
+`German biotech company CureVac said Qatar Investment Authority (QIA) has taken an undisclosed stake in the firm as part of a $126 million financing round, the latest high-profile investor to come onboard ahead of a potential stock market listing.`\
+https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-qia-curevac-stake.html?searchResultPosition=4
+
 **Minneapolis Judge to Hear Gag Order Appeal in Floyd Case**\
 `A Minneapolis judge will hold a hearing on Tuesday to consider a request from media outlets and defense lawyers to relax a gag order in the case against four officers accused of killing George Floyd, which launched a global anti-racism movement.`\
-https://nytimes.com/reuters/2020/07/21/us/21reuters-global-race-minneapolis.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/21/us/21reuters-global-race-minneapolis.html?searchResultPosition=5
 
 **Strip-Club Stimulus Reveals Lingering Uncertainties Over U.S. Small-Business Aid**\
 `Backlights off, music quiet and poles bare, strip clubs across the United States closed earlier this year in the face of COVID-19 social-distancing measures that precluded the up-close nature of the exotic dancing industry.`\
-https://nytimes.com/reuters/2020/07/21/business/21reuters-health-coronavirus-ppp-stripclubs.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/21/business/21reuters-health-coronavirus-ppp-stripclubs.html?searchResultPosition=6
 
 **Magnitude 3.7 Earthquake Strikes Remote Corner of Utah**\
 `A minor earthquake struck a remote corner of Utah early Tuesday. `\
-https://nytimes.com/aponline/2020/07/21/us/ap-us-earthquake-utah.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/21/us/ap-us-earthquake-utah.html?searchResultPosition=7
 
 **Iraqi Prime Minister Visits Tehran, to Meet Supreme Leader**\
 `Iraqi Prime Minister Mustafa al-Kadhimi travelled to Tehran on Tuesday where Iranian state media reported he would meet Supreme Leader Ayatollah Ali Khamenei on his first foreign trip since taking office in May.`\
-https://nytimes.com/reuters/2020/07/21/world/middleeast/21reuters-iran-iraq.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/21/world/middleeast/21reuters-iran-iraq.html?searchResultPosition=8
 
 **Pakistan Warns TikTok Video Service, Blocks Bigo Live App**\
 `Pakistan has threatened China's TikTok and blocked the Singapore-based Bigo Live streaming platform, citing what the regulating authority called widespread complaints about “immoral, obscene and vulgar” content on the apps. `\
-https://nytimes.com/aponline/2020/07/21/business/ap-as-pakistan-social-media.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/07/21/business/ap-as-pakistan-social-media.html?searchResultPosition=9
 
 **Teachers Push Back on Reopening in Florida**\
 `Educators unions sue Ron DeSantis, and Congress debates virus aid: This is your morning tip sheet.`\
-https://nytimes.com/2020/07/21/us/politics/teachers-reopening-florida-desantis.html?searchResultPosition=6
-
-**Tapestry CEO Jide Zeitlin Resigns**\
-`Coach handbag maker Tapestry Inc said on Tuesday its Chairman and Chief Executive Officer Jide Zeitlin has resigned from the company for personal reasons, effective immediately.`\
-https://nytimes.com/reuters/2020/07/21/business/21reuters-tapestry-ceo.html?searchResultPosition=7
-
-**Climate Change Poses ‘Systemic Threat’ to the Economy, Big Investors Warn**\
-`Financial regulators should act to avoid economic disaster, according to a letter from pension funds and other investors representing almost $1 trillion in assets.`\
-https://nytimes.com/2020/07/21/climate/investors-climate-threat-regulators.html?searchResultPosition=8
-
-**UK Government Says No Evidence of Successful Russian Meddling in Brexit Vote**\
-`Britain said that there was no evidence of successful Russian interference in the EU referendum, dismissing calls by the UK Parliament's intelligence and security committee for an assessment of Russian interference in the vote. `\
-https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-britain-russia-govt-response.html?searchResultPosition=9
-
-**‘The Grand Unified Theory of Howard Bloom’ Review: A Career Rewritten**\
-`This documentary looks inside the life of a high-powered music publicist who became a techno-age philosopher.`\
-https://nytimes.com/2020/07/21/movies/the-grand-unified-theory-of-howard-bloom-review.html?searchResultPosition=10
+https://nytimes.com/2020/07/21/us/politics/teachers-reopening-florida-desantis.html?searchResultPosition=10
 
