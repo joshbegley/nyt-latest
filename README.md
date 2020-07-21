@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/07/21/business/21reuters-eu-summit-mitsotakis.h
 `A lawmaker from New Zealand's main opposition party resigned on Tuesday after being accused of sending a sexually explicit image to a young woman.`\
 https://nytimes.com/reuters/2020/07/21/world/asia/21reuters-newzealand-election.html?searchResultPosition=6
 
-**UK Government Borrowing Hits Record 128 Billion Pounds in April-June 2020**\
-`British government borrowing surged to a record 127.9 billion pounds in the first three months of the 2020/21 financial year, when COVID-19 lockdown measures were at their tightest, official figures showed on Tuesday.`\
+**UK Borrowing Hits Record 128 Billion Pounds in April-June 2020**\
+`British government borrowing surged to a record 127.9 billion pounds ($162 billion) in the first three months of the 2020/21 financial year, when COVID-19 lockdown measures were tightest, more than double the total for the whole year before.`\
 https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-health-coronavirus-britain-economy.html?searchResultPosition=7
 
 **Shares Gain as Investors Cheer EU Stimulus Deal, Bet on Vaccines**\
