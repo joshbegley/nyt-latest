@@ -20,7 +20,7 @@ https://nytimes.com/reuters/2020/07/20/world/americas/20reuters-health-coronavir
 
 **Two Women Sue Fox News, Claiming Misconduct by Ed Henry and Others**\
 `The lawsuit depicts a misogynist culture at the cable network, which fired Ed Henry, a longtime anchor, after an investigation of misconduct claims last month.`\
-https://nytimes.com/2020/07/20/business/media/fox-news-harassment-lawsuit-ed-henry.html?searchResultPosition=6
+https://nytimes.com/2020/07/20/business/media/areu-eckhart-fox-news-harassment-lawsuit.html?searchResultPosition=6
 
 **Disney's ABC News Sacks Senior Executive Over Allegedly Racist Comments**\
 `ABC News, a Walt Disney Co unit, has sacked senior executive Barbara Fedida after an independent investigation alleged she had made racially insensitive comments and used inappropriate language, according to a company email.`\
