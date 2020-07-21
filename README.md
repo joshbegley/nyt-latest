@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-britain-russia-law
 `His new plan bills itself as a “revolution,” going well beyond anything the Obama administration attempted. Is it enough?`\
 https://nytimes.com/2020/07/21/opinion/biden-climate-change.html?searchResultPosition=5
 
-**U.S. House Passes $740 Billion Defense Bill, Fight With Trump Looms**\
+**U.S. House Passes $740 Billion Defense Bill; Fight With Trump Looms**\
 `The U.S. House of Representatives on Tuesday passed its version of the National Defense Authorization Act, a $740 billion bill setting policy for the Pentagon that President Donald Trump has threatened to veto over a provision removing Confederate names from military bases.`\
 https://nytimes.com/reuters/2020/07/21/us/politics/21reuters-usa-congress-defense.html?searchResultPosition=6
 
