@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/07/21/us/21reuters-global-race-protests-law.htm
 https://nytimes.com/reuters/2020/07/21/us/politics/21reuters-health-coronavirus-usa-congress-meeting.html?searchResultPosition=8
 
 **Egypt's Army Says It Foiled 'Terrorist' Attack in Northern Sinai**\
-`The Egyptian army said it has killed 18 suspected militants who attacked a military post in northern Sinai on Tuesday and foiled their ‮"‬terrorist‮"‬ attack.`\
+`The Egyptian army said it has killed 18 suspected militants who attacked a military post in northern Sinai on Tuesday and foiled their ‮‮"‬‬terrorist‮‮"‬‬ attack.`\
 https://nytimes.com/reuters/2020/07/21/world/middleeast/21reuters-egypt-security.html?searchResultPosition=9
 
 **End of $600 Unemployment Bonus Could Push Millions Past the Brink**\
