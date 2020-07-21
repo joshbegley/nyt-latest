@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/07/20/sports/baseball/ap-bbn-giants-anthem.htm
 `Australia's central bank saw no need to adjust its policy measures in the current environment, minutes of its July policy meeting showed on Tuesday, while board members reiterated that negative interest rates remained "extraordinarily unlikely". `\
 https://nytimes.com/reuters/2020/07/20/world/asia/20reuters-australia-rba-minutes.html?searchResultPosition=9
 
-**Germany's Confirmed Coronavirus Cases Rise by 522 to 201,823: RKI**\
-`The number of confirmed coronavirus cases in Germany increased by 522 to 201,823, data from the Robert Koch Institute (RKI) for infectious diseases showed on Tuesday.`\
+**Germany's Confirmed Coronavirus Cases Rise by 522 to 202,345: RKI**\
+`The number of confirmed coronavirus cases in Germany increased by 522 to 202,345, data from the Robert Koch Institute (RKI) for infectious diseases showed on Tuesday. `\
 https://nytimes.com/reuters/2020/07/20/world/europe/20reuters-health-coronavirus-germany-cases.html?searchResultPosition=10
 
