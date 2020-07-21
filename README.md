@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/07/21/business/21reuters-wirecard-accounts.html
 `The likelihood of a gradual economy recovery taking place in the second half of 2020 has increased thanks to European Union leaders agreeing on a huge stimulus plan for their economies hit by coronavirus, German Economy Minister Peter Altmaier said.`\
 https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-eu-summit-germany-altmaier.html?searchResultPosition=6
 
-**Report Shows Widespread Russian Interference in U.K. Political System**\
-`A long-awaited report detailed a failure of successive British governments to recognize and counter the Russian threat.`\
+**‘No One’ Protected British Democracy From Russia, U.K. Report Concludes**\
+`Russia weaponized information to interfere in the British political system and was widely ignored by successive governments, according to a long-awaited report by Parliament.`\
 https://nytimes.com/2020/07/21/world/europe/uk-russia-report.html?searchResultPosition=7
 
 **The Vaccine Trust Problem**\
