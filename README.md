@@ -26,7 +26,7 @@ https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-eu-summit-spain.ht
 `French Finance Minister Bruno Le Maire said on Tuesday that France would not ban China's Huawei from investing in the country, in contrast to Britain which has decided to purge the firm's equipment from its 5G network by 2027. `\
 https://nytimes.com/reuters/2020/07/21/technology/21reuters-france-huawei.html?searchResultPosition=7
 
-**Giants Manager Kapler Kneels During National Anthem at Oakland Game**\
+**Baseball-Giants Manager Kapler Kneels During National Anthem at Oakland Game**\
 `San Francisco Giants manager Gabe Kapler said he would continue to speak out against racial injustice after joining his players in taking a knee during the national anthem before their exhibition game against the Oakland Athletics on Monday.`\
 https://nytimes.com/reuters/2020/07/21/sports/baseball/21reuters-baseball-mlb-kapler.html?searchResultPosition=8
 
