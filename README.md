@@ -18,8 +18,8 @@ https://nytimes.com/aponline/2020/07/21/business/ap-financial-markets.html?searc
 `British finance minister Rishi Sunak said on Tuesday that COVID-19 was having a major impact on the public finances, which would need to be fixed in future.`\
 https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-health-coronavirus-britain-sunak.html?searchResultPosition=5
 
-**UK Tax Body Expands Probe Into GVC's Former Turkish Gambling Unit**\
-`Ladbrokes owner GVC Plc said on Tuesday that Britain's tax regulator had widened its investigation into the gambling company's former Turkish online business to include unidentified entities within the London-listed group.`\
+**UK Tax Office Widens Probe Into Former GVC Turkish Gambling Unit**\
+`Ladbrokes owner GVC Plc said on Tuesday that British tax authorities had expanded an investigation into the gambling company's former online business in Turkey to include unidentified entities within the London-listed group.`\
 https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-gvc-investigation.html?searchResultPosition=6
 
 **Ukraine Coronavirus Cases Exceed 60,000, 1,518 Deaths Reported**\
