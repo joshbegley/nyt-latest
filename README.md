@@ -1,40 +1,40 @@
+**Prosecutors: Company, CEO Tried to Export Chemicals to China**\
+`A California company and its CEO are facing conspiracy, money laundering and other federal charges for allegedly attempting to illegally export chemicals to a Chinese company with military ties, federal prosecutors said.`\
+https://nytimes.com/aponline/2020/07/21/business/ap-us-illegal-exports-china.html?searchResultPosition=1
+
+**21 State Attorneys General Sue Over New Trump Water Rule**\
+`Attorneys general in 20 states and the District of Columbia sued the Trump administration on Tuesday, alleging that new federal rules undermine their ability to protect rivers, lakes and streams within their borders.`\
+https://nytimes.com/aponline/2020/07/21/business/ap-us-clean-water-rule-lawsuit.html?searchResultPosition=2
+
+**Top Homeland Security Official Insists Arrests in Portland Are Lawful**\
+`The head of the U.S. Department of Homeland Security on Tuesday defended federal border agents who have cracked down on people in Portland protesting against police brutality and systemic racism, claiming they are making lawful arrests and are properly identifying themselves as law enforcement.`\
+https://nytimes.com/reuters/2020/07/21/us/21reuters-global-race-protests-wolf.html?searchResultPosition=3
+
+**Baltimore Police Officer Pleads Guilty to Child Porn Charge**\
+`A Baltimore police officer pleaded guilty on Tuesday to possessing child pornography.`\
+https://nytimes.com/aponline/2020/07/21/us/ap-us-police-officer-child-porn.html?searchResultPosition=4
+
+**Satanic Temple Offers Scholarships to High School Grads**\
+`The Satanic Temple is launching a college scholarship for high school students.`\
+https://nytimes.com/aponline/2020/07/21/us/ap-us-satanic-temple-scholarships-1st-ld-writethru.html?searchResultPosition=5
+
+**Texas Instruments Forecasts Revenue Above Estimates; Shares Rise 3%**\
+`Texas Instruments Inc forecast third-quarter revenue above Wall Street estimates on Tuesday, offering some hope to the chip industry reeling from disruptions caused by the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/07/21/business/21reuters-texas-instrument-results.html?searchResultPosition=6
+
 **Snap Misses User Growth Estimates, Shares Fall 11%**\
 `Snap Inc on Tuesday said an initial lift in user growth at the start of coronavirus-led lockdowns dissipated faster than it expected, though the company beat expectations for quarterly revenue as advertisers turned to the app to reach younger users.`\
-https://nytimes.com/reuters/2020/07/21/business/21reuters-snap-results.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/21/business/21reuters-snap-results.html?searchResultPosition=7
 
 **US Offers $5M Bounty for Top Venezuela Judge, Maduro Ally**\
 `The Trump administration offered a $5 million reward on Tuesday for information leading to the arrest of the head of Venezuela’s high court, accusing the judge of taking bribes.`\
-https://nytimes.com/aponline/2020/07/21/world/americas/ap-lt-venezuela.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/21/world/americas/ap-lt-venezuela.html?searchResultPosition=8
 
 **Appeals Court Allows Alabama Voter ID Law to Go Forward**\
 `Federal appeals judges upheld a lower court Tuesday and rejected claims that an Alabama law which requires voters to show government-issued photo identification at the polls is racially discriminatory.`\
-https://nytimes.com/aponline/2020/07/21/us/ap-us-alabama-voter-id-law.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/21/us/ap-us-alabama-voter-id-law.html?searchResultPosition=9
 
 **Hibbett, Coca-Cola Rise; eBay, Acadia Fall**\
 `Stocks that moved heavily or traded substantially on Tuesday:`\
-https://nytimes.com/aponline/2020/07/21/business/ap-financial-markets-stocks.html?searchResultPosition=4
-
-**4-0 Rout by Man City Deepens Watford's Relegation Concerns**\
-`As the ball rolled past him and Manchester City's score racked up, goalkeeper Ben Foster increasingly feared for Watford's Premier League survival.`\
-https://nytimes.com/aponline/2020/07/21/sports/soccer/ap-soc-watford-man-city-1st-ld-writethru.html?searchResultPosition=5
-
-**'Play Ball': MLB Returns While Fans Stay Safe at Home**\
-`"Take me out to the ball game" in the midst of a pandemic will mean a trip to the living room and a spot on the sofa to watch Major League Baseball when the COVID-19 interrupted season finally gets underway on Thursday.`\
-https://nytimes.com/reuters/2020/07/21/sports/baseball/21reuters-baseball-mlb.html?searchResultPosition=6
-
-**Pandemic Luxury: ‘Concierge-Style’ Coaches and $350 Movie Tickets**\
-`The coronavirus is turning everyday pleasures into extravagances available only to those willing to shell out big bucks.`\
-https://nytimes.com/2020/07/21/business/coronavirus-luxury-economy.html?searchResultPosition=7
-
-**Biden Launches Wide Battleground Push With Ads, Surrogates**\
-`Joe Biden’s presidential campaign is ramping up its advertising and deploying some of its high-profile surrogates as it tries to solidify a broad battleground map that his advisers see as giving him multiple paths to an Electoral College majority. `\
-https://nytimes.com/aponline/2020/07/21/us/politics/ap-us-election-2020-biden-battlegrounds.html?searchResultPosition=8
-
-**Tucker Carlson Battles With The New York Times Over Privacy**\
-`Tucker Carlson says The New York Times wants to put his family in danger, the newspaper says he knowingly lied and now the Fox News host's fans are taking up the fight.`\
-https://nytimes.com/aponline/2020/07/21/us/ap-us-media-times-carlson.html?searchResultPosition=9
-
-**Astros Take Role of Villain Into MLB's 2020 Season**\
-`The Houston Astros will enter the 2020 MLB season as baseball's newest villain after they were exposed as cheats for stealing pitch signs from opposing team's catchers during the 2017 and 2018 seasons. `\
-https://nytimes.com/reuters/2020/07/21/sports/baseball/21reuters-baseball-mlb-hou.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/21/business/ap-financial-markets-stocks.html?searchResultPosition=10
 
