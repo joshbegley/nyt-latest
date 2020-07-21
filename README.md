@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/07/21/business/21reuters-health-coronavirus-eur
 https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-britain-russia-kremlin.html?searchResultPosition=9
 
 **Russia Meddled in Scottish Vote, Unclear on Brexit: UK Parliamentary Report**\
-`Russia sought to meddle in the 2014 Scottish referendum and intelligence agencies should produce an assessment of potential interference in the Brexit referendum, a report by the British parliament's intelligence and security committee said.`\
+`Russia meddled in the 2014 Scottish referendum and the British government failed to ask for a deep assessment of possible Kremlin-directed interference in the Brexit vote, the British parliament's intelligence and security committee said.`\
 https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-britain-russia.html?searchResultPosition=10
 
