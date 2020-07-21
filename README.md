@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/07/21/us/21reuters-usa-rareearths.html?searchResultPosition=1
 
 **Dick Buerkle, Master of the Indoor Mile, Dies at 72**\
-`After running the 5,000 meters, Buerkle devoted himself to the mile and set a record at 3 minutes 54.9 seconds.`\
+`After running the 5,000 meters, Buerkle, a former Villanova walk-on, devoted himself to the mile and set a record. He regretted missing the 1980 Moscow Olympics.`\
 https://nytimes.com/2020/07/21/sports/olympics/dick-buerkle-master-of-the-indoor-mile-dies-at-72.html?searchResultPosition=2
 
 **Rise in Virus Cases Near Bases in U.S. and Abroad Pose Test for Military**\
