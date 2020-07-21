@@ -1,40 +1,40 @@
+**Georgia Judge Recuses Herself in Mask Lawsuit Between Georgia's Governor and Atlanta Mayor**\
+`A Georgia judge recused herself Tuesday morning about an hour before a hearing in a mask lawsuit between Georgia's governor and the Atlanta mayor.`\
+https://nytimes.com/reuters/2020/07/21/us/21reuters-health-coronavirus-usa-georgia-judge.html?searchResultPosition=1
+
+**Virus Hits Frontline Workers in Taxed Public Health System**\
+` As a veteran public health worker, Chantee Mack knew the coronavirus could kill. She already faced health challenges and didn’t want to take any chances during the pandemic. So she asked — twice — for permission to work from home.`\
+https://nytimes.com/aponline/2020/07/21/us/ap-us-public-health-frontline-workers.html?searchResultPosition=2
+
+**Summer Reading Contest Winner, Week 4: On ‘Many Latinos Couldn’t Stay Home. Now Virus Cases Are Soaring in Their Communities.’**\
+`Thank you to the teenagers who participated this week, and congratulations to our winner, Marcella, as well as our many runners-up and honorable mentions.`\
+https://nytimes.com/2020/07/21/learning/summer-reading-contest-winner-week-4-on-many-latinos-couldnt-stay-home-now-virus-cases-are-soaring-in-their-communities.html?searchResultPosition=3
+
+**Trump to Deliver 'Good News' at Coronavirus Briefings: White House**\
+`When President Donald Trump resumes giving coronavirus briefings on Tuesday he will focus on his accomplishments and positive developments on treatments and vaccines, according to White House Press Secretary Kayleigh McEnany.`\
+https://nytimes.com/reuters/2020/07/21/us/21reuters-health-coronavirus-usa-briefings.html?searchResultPosition=4
+
+**Here’s What I Saw on the Streets of Portland Last Night**\
+`Our reporter spent the night in Downtown Portland, witnessing the growing protests in response to the presence of federal troops.`\
+https://nytimes.com/interactive/2020/07/21/us/portland-protests.html?searchResultPosition=5
+
+**Push Back Against Chinese Threat, Says U.S. Secretary of State Pompeo**\
+`U.S. Secretary of State Mike Pompeo encouraged other nations to push back against the Chinese Communist Party and described China's leadership as a threat, speaking after a meeting with British ministers in London on Tuesday.`\
+https://nytimes.com/reuters/2020/07/21/technology/21reuters-usa-britain-pompeo-china.html?searchResultPosition=6
+
+**Exclusive: Singapore's Agritrade Has Potential Investors-Source**\
+`London-based Nithia Capital Resources Advisors LLP is seeking to acquire troubled Singapore commodity trader Agritrade International Pte Ltd (AIPL) and its shares in its Hong Kong-listed subsidiary, according to a source familiar with the matter.`\
+https://nytimes.com/reuters/2020/07/21/business/21reuters-singapore-agritrade-international-exclusive.html?searchResultPosition=7
+
 **Pompeo Says Hopes for Quick Free Trade Deal With UK**\
 `The United States and Britain still have more work to do on a free trade deal, U.S. Secretary of State Mike Pompeo said on Tuesday during a visit to London, adding that he hoped a deal could be finalised before too long.`\
-https://nytimes.com/reuters/2020/07/21/technology/21reuters-usa-britain-pompeo-trade.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/21/technology/21reuters-usa-britain-pompeo-trade.html?searchResultPosition=8
 
 **New York City Mayor Says Would Take Trump to Court on Federal Troops**\
 `New York City Mayor Bill de Blasio said on Tuesday he would immediately take President Donald Trump to court if he followed through on his plan to send federal law enforcement to U.S. cities including New York.`\
-https://nytimes.com/reuters/2020/07/21/us/21reuters-global-race-protests-new-york.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/21/us/21reuters-global-race-protests-new-york.html?searchResultPosition=9
 
 **Feds Probe Men's Rights Lawyer in 2nd Killing**\
 `Federal investigators are examining whether a suspect in the ambush shooting of a federal judge’s family in New Jersey is also responsible for the killing of a fellow men’s rights lawyer in California, a law enforcement official said.`\
-https://nytimes.com/aponline/2020/07/21/us/politics/ap-us-antifeminist-lawyer.html?searchResultPosition=3
-
-**Apple to Remove Carbon From Supply Chain, Products by 2030**\
-`Apple Inc said on Tuesday it plans to remove carbon emissions from its entire business, including its products and sprawling supply chain, over the next decade. `\
-https://nytimes.com/reuters/2020/07/21/business/21reuters-apple-carbon.html?searchResultPosition=4
-
-**Russian Lawmakers Back Three-Day Votes Despite Fraud Fears**\
-`Russian authorities may soon be granted the right to prolong elections for up to three days under draft legislation passed by lawmakers on Tuesday that critics say opens the door to potential voter fraud. `\
-https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-russia-politics-election.html?searchResultPosition=5
-
-**After Death of John Lewis, Democrats Renew Push for Voting Rights Law**\
-`Democrats and activists who have long sought to update the Voting Rights Act say the proper way to honor the fallen civil rights icon is to pass it and name it in his honor. Republicans are opposed.`\
-https://nytimes.com/2020/07/21/us/john-lewis-voting-rights-act.html?searchResultPosition=6
-
-**Google Meet to Roll Out New Security Features for Video Meetings**\
-`Alphabet Inc's Google said on Tuesday it will roll out new security features on its video conferencing platform, Meet, to prevent the participation of uninvited users in video meetings.`\
-https://nytimes.com/reuters/2020/07/21/technology/21reuters-google-security.html?searchResultPosition=7
-
-**Going in the Water Again: 'Jaws' Boat Clone Supports Sharks**\
-`The Orca is headed back to the waters of New England, but this time, its mission isn't to hunt sharks. It's to help save them.`\
-https://nytimes.com/aponline/2020/07/21/us/ap-us-return-of-the-orca.html?searchResultPosition=8
-
-**Fearing New Coronavirus Wave, Barcelona Limits Number of Beach-Goers**\
-`Barcelona authorities on Tuesday cut the number of people allowed on to the city's beaches to 32,000 from 38,000, after crowds flocked to the sea at the weekend despite advice to stay home to curb a local rise in coronavirus infections.`\
-https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-health-coronavirus-spain-catalonia.html?searchResultPosition=9
-
-**Motorcycling: Marquez Aiming for August Return After Successful Surgery**\
-`MotoGP champion Marc Marquez could be back in action next month after his Repsol Honda team reported successful surgery to his right arm on Tuesday.`\
-https://nytimes.com/reuters/2020/07/21/sports/autoracing/21reuters-motor-motogp-marquez.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/21/us/politics/ap-us-antifeminist-lawyer.html?searchResultPosition=10
 
