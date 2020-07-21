@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/07/21/world/middleeast/21reuters-usa-trump-arms
 `Washington’s NFL team hired TV reporter, anchor and host Julie Donaldson to oversee its broadcast operation and be a member of a three-person radio booth for games.`\
 https://nytimes.com/aponline/2020/07/21/sports/football/ap-fbn-washington-broadcasting-hire.html?searchResultPosition=8
 
-**FAA to Propose Boeing 737 MAX Airworthiness Directive in Near Future**\
-`The Federal Aviation Administration (FAA) said Tuesday it plans to issue a proposed airworthiness directive for the Boeing 737 MAX in the "near future" to address changes made since the plane was grounded in March 2019 after two fatal crashes killed 346 people.`\
+**FAA to Propose Boeing 737 MAX Directive; Ungrounding Not Expected Before October**\
+`The Federal Aviation Administration (FAA) said on Tuesday it plans to issue a proposed airworthiness directive for the Boeing 737 MAX in the "near future" to address changes made since the plane was grounded in March 2019 after two fatal crashes killed 346 people.`\
 https://nytimes.com/reuters/2020/07/21/business/21reuters-boeing-737max.html?searchResultPosition=9
 
 **What Do Sweden and Mexico Have in Common? A Feminist Foreign Policy.**\
