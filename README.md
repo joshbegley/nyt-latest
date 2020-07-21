@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/07/21/us/politics/ap-us-congress-defense.html?
 `Colorado Gov. Jared Polis on Tuesday ordered bars and restaurants across the state to stop serving alcohol past 10 p.m. as the number of coronavirus cases among young adults keeps rising.`\
 https://nytimes.com/aponline/2020/07/21/business/ap-us-virus-outbreak-colorado.html?searchResultPosition=2
 
-**Britain Close to Abandoning Hope of Brexit Trade Deal: The Telegraph**\
-`Britain and the European Union will fail to sign a post-Brexit trade deal with only a few days left before Prime Minister Boris Johnson's July deadline, The Telegraph reported.`\
+**Britain Nears Abandoning Brexit Trade Deal Hope: The Telegraph**\
+`Britain and the European Union will fail to sign a post-Brexit trade deal, with only a few days left before Prime Minister Boris Johnson's July deadline, The Telegraph reported.`\
 https://nytimes.com/reuters/2020/07/21/world/europe/21reuters-britain-eu.html?searchResultPosition=3
 
 **Feds Give 65 Acres of Land for Border Wall Infrastructure**\
