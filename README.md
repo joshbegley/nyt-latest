@@ -34,7 +34,7 @@ https://nytimes.com/2020/07/20/us/politics/trump-chicago-portland-federal-agents
 `Early trials showed a good immune response in vaccinated subjects, but one researcher sounded a note of caution: “There is still a long way to go.”`\
 https://nytimes.com/2020/07/20/world/coronavirus-vaccine.html?searchResultPosition=9
 
-**Japan June Core CPI Unchanged From Previous Year**\
-`Japan's core consumer prices were unchanged in June from a year earlier, government data showed on Tuesday.`\
+**Japan's Core Consumer Prices Flat, Deflation Risks Remain**\
+`Japan's core consumer prices snapped two straight months of declines in June but risks remain for a prolonged economic slump from the coronavirus crisis, which has depressed consumption and raised concerns about a return to deflation.`\
 https://nytimes.com/reuters/2020/07/20/world/asia/20reuters-japan-economy-inflation.html?searchResultPosition=10
 
