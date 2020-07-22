@@ -1,40 +1,40 @@
+**Trump’s New Tack as Covid Cases Soar**\
+`Readers discuss the president’s briefing and acknowledgment of the value of masks. Also: A Jersey Shore memory, relevant now.`\
+https://nytimes.com/2020/07/22/opinion/letters/trump-coronavirus.html?searchResultPosition=1
+
+**Can You Get Covid Again? It’s Very Unlikely, Experts Say**\
+`Reports of reinfection instead may be cases of drawn-out illness. A decline in antibodies is normal after a few weeks, and people are protected from the coronavirus in other ways.`\
+https://nytimes.com/2020/07/22/health/covid-antibodies-herd-immunity.html?searchResultPosition=2
+
+**Tesla Makes $104M Profit in 2Q Despite Factory Shutdown**\
+`Tesla overcame a seven-week pandemic-related shutdown at its U.S. assembly plant to post a $104 million net profit for the second quarter.`\
+https://nytimes.com/aponline/2020/07/22/business/ap-us-results-tesla.html?searchResultPosition=3
+
+**Senior U.S. Diplomat Says U.S., China Can Still Cooperate on North Korea**\
+`A senior U.S. diplomat said on Wednesday that the United States and China can still work together against North Korea's development of weapons of mass destruction, despite tensions between Washington and Beijing.`\
+https://nytimes.com/reuters/2020/07/22/world/asia/22reuters-usa-china-northkorea.html?searchResultPosition=4
+
+**Frozen U.S. Pork Supplies Fell by 25% After Virus Hit Meat Plants, USDA Says**\
+`America's frozen pork inventories were down 25% from a year earlier at the end of June, the U.S. Agriculture Department said on Wednesday, after outbreaks of the coronavirus among meatpacking workers slowed production.`\
+https://nytimes.com/reuters/2020/07/22/business/22reuters-health-coronavirus-usa-meatpacking.html?searchResultPosition=5
+
 **Ex-Cop Charged in Floyd's Death Faces Tax Evasion Counts**\
 `The former Minneapolis police officer charged with murder in the death of George Floyd was charged Wednesday with multiple felony counts of tax evasion. `\
-https://nytimes.com/aponline/2020/07/22/us/ap-us-george-floyd-officer-tax-evasion.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/22/us/ap-us-george-floyd-officer-tax-evasion.html?searchResultPosition=6
 
 **Vice Presidential Debate to Be Held With Audience in Utah**\
 `A vice presidential debate will be held with an audience at the University of Utah in October, though it will be significantly smaller to accommodate social distancing amid a surge of coronavirus cases in Utah and elsewhere, officials said Wednesday.`\
-https://nytimes.com/aponline/2020/07/22/us/ap-us-vice-presidential-debate-utah.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/22/us/ap-us-vice-presidential-debate-utah.html?searchResultPosition=7
 
 **Government Denies Cohen Was Imprisoned to Stop Trump Book**\
 `The denial came in response to a lawsuit filed by Michael Cohen, the president’s former lawyer, that said he was being punished for speaking out.`\
-https://nytimes.com/2020/07/22/nyregion/michael-cohen-donald-trump-prison.html?searchResultPosition=3
+https://nytimes.com/2020/07/22/nyregion/michael-cohen-donald-trump-prison.html?searchResultPosition=8
 
 **Federal Operation in Kansas City Targets Violent Crime**\
 `A massive federal operation underway in Kansas City, Missouri, that targets violent crime has been largely welcomed by local and state officials, while some civil rights organizations are strongly opposed to having federal agents involved in solving local crimes.`\
-https://nytimes.com/aponline/2020/07/22/us/ap-us-trump-law-enforcement-kansas-city.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/07/22/us/ap-us-trump-law-enforcement-kansas-city.html?searchResultPosition=9
 
 **Chipotle Posts Smaller-Than-Expected Drop in Quarterly Same-Store Sales**\
 `Chipotle Mexican Grill Inc on Wednesday posted a smaller-than-expected decline in quarterly same-store sales and said it would continue to invest in its digital business and launch new menu items. `\
-https://nytimes.com/reuters/2020/07/22/business/22reuters-chipotle-results.html?searchResultPosition=5
-
-**Painting Bleak Portrait of Urban Crime, Trump Sends More Agents to Chicago and Other Cities**\
-`The announcement came as the president painted a dark vision of crime in cities and attacked local officials who have expressed concerns about intervention by the administration.`\
-https://nytimes.com/2020/07/22/us/politics/trump-federal-agents-cities.html?searchResultPosition=6
-
-**Puerto Rico to Offer Virtual Classes, Delay School Reopening**\
-`Puerto Rico officials announced Wednesday that all public school students will start virtual classes Aug. 17 as the U.S. territory battles an increase in coronavirus cases.`\
-https://nytimes.com/aponline/2020/07/22/world/americas/ap-cb-virus-outbreak-puerto-rico.html?searchResultPosition=7
-
-**Tesla Quarterly Revenue Beats Estimates**\
-`Tesla Inc on Wednesday beat analysts' estimates for second-quarter revenue, helped by better-than-expected vehicle deliveries despite disruptions caused by the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/07/22/business/22reuters-tesla-results.html?searchResultPosition=8
-
-**Islamist Militants in Northeast Nigeria Execute Four Aid Workers**\
-`Islamist militants in northeast Nigeria have executed four aid workers and a private security guard, according to a video seen by Reuters on Wednesday.`\
-https://nytimes.com/reuters/2020/07/22/world/africa/22reuters-nigeria-security-insurgency.html?searchResultPosition=9
-
-**Battered U.S. Dollar 'Hanging by a Thread' as Coronavirus Cases Grow**\
-`A steady decline in the dollar has accelerated in recent weeks, as a resurgent coronavirus outbreak in the United States and improving economic prospects abroad sour investors on the currency. `\
-https://nytimes.com/reuters/2020/07/22/business/22reuters-health-coronavirus-dollar-analysis.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/22/business/22reuters-chipotle-results.html?searchResultPosition=10
 
