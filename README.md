@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/07/22/sports/baseball/22reuters-baseball-mlb-la
 `Readers respond to Charles M. Blow’s frustration that Americans aren’t more shocked by the president’s behavior.`\
 https://nytimes.com/2020/07/22/opinion/letters/trump-outrage.html?searchResultPosition=6
 
-**Airstrikes in Afghanistan Kill 45 Civilians and Taliban Members, Say Officials**\
+**Airstrikes in Afghanistan Kill 45 Civilians and Taliban Members - Officials**\
 `Airstrikes in eastern Afghanistan killed 45 people, including civilians and Taliban, local officials said on Wednesday.`\
 https://nytimes.com/reuters/2020/07/22/world/asia/22reuters-afghanistan-airstrike.html?searchResultPosition=7
 
