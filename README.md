@@ -1,40 +1,40 @@
-**Greek Firefighters Battle Forest Blaze Near Seaside Village**\
-`Greek firefighters are battling to control a large forest fire fanned by strong winds near the seaside village of Kechries in the eastern Peloponnese, fire brigade officials said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-greece-fire.html?searchResultPosition=1
+**U.S. Drug Donation Creates Headache for Brazil Government, Say Sources**\
+`Brazil's federal and state governments are in a political tug-of-war over the Trump administration's donation of the drug hydroxychloroquine, an unproven treatment for COVID-19, two people with knowledge of the matter told Reuters.`\
+https://nytimes.com/reuters/2020/07/22/world/americas/22reuters-health-coronavirus-brazil-usa.html?searchResultPosition=1
 
-**P&G Extends Olympic Sponsorship, Focusing on Equality Drive**\
-`Procter & Gamble will use its Olympic and Paralympic sponsorship to campaign for racial equality after extending its backing of the games through 2028.`\
-https://nytimes.com/aponline/2020/07/22/sports/olympics/ap-oly-pg-sponsorship.html?searchResultPosition=2
+**EU Plan to Tackle COVID-19 Drug Shortages Hit by Health Budget Cuts**\
+`A decision to focus its fiscal firepower on economic recovery has forced the EU to sharply scale back plans to address chronic shortages of drugs, including COVID-19 treatments, by bringing back manufacturing capacity from Asia.`\
+https://nytimes.com/reuters/2020/07/22/world/asia/22reuters-health-coronavirus-eu-budget.html?searchResultPosition=2
 
-**UK's Prince Philip Hands Over Patronage of the Rifles After 67 Years**\
-`Prince Philip, the 99-year-old husband of Britain's Queen Elizabeth, made a rare public appearance on Wednesday to hand over his patronage of the Rifles to Prince Charles's wife, Camilla, after 67 years of association with the infantry regiment.`\
-https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-britain-royals-duke.html?searchResultPosition=3
+**Rolling Stones Jam With Jimmy Page in Lost Track From 'Hallowed Era'**\
+`The Rolling Stones on Wednesday released a previously lost track, "Scarlet", recorded at guitarist Ronnie Wood's house in 1974 and featuring Led Zeppelin guitarist Jimmy Page.`\
+https://nytimes.com/reuters/2020/07/22/arts/22reuters-music-rolling-stones.html?searchResultPosition=3
 
-**Canada Annual Inflation Rate Jumps by Most in Nine Years as Economy Reopens**\
-`Canada's annual inflation rate in June posted its biggest jump in more than nine years as restrictions imposed to curb the coronavirus outbreak were lifted, Statistics Canada said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/22/us/22reuters-canada-economy-inflation.html?searchResultPosition=4
+**UK to Open Citizenship Path to Hong Kongers From January**\
+`Britain’s government announced Wednesday that it will open a new special pathway to obtaining British citizenship for eligible Hong Kongers from January 2021.`\
+https://nytimes.com/aponline/2020/07/22/world/europe/ap-eu-britain-hong-kong.html?searchResultPosition=4
 
-**Canada Annual Inflation Rate Jumps by Most in Nine Years**\
-`Canada's annual inflation rate in June posted its biggest acceleration for more than nine years, rising to 0.7% from a 0.4% decline in May as energy prices jumped, Statistics Canada said on Wednesday. `\
-https://nytimes.com/reuters/2020/07/22/us/22reuters-canada-economy-instantview.html?searchResultPosition=5
+**Factbox: What Is Britain's Citizenship Offer for Hong Kong Residents?**\
+`Britain has offered a path to citizenship for around 3 million people in Hong Kong, its former colony, after declaring that China had broken the terms of a 1984 handover treaty by imposing a new security law.`\
+https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-hongkong-security-britain-passports-factbox.html?searchResultPosition=5
 
-**Turkey, Russia Say They Seek Lasting Cease-Fire in Libya**\
-`Turkish and Russian delegations met Wednesday in Turkey's capital to discuss the war in Libya and agreed to press ahead with efforts for a lasting cease-fire in the North African country, Turkey’s Foreign Ministry said.`\
-https://nytimes.com/aponline/2020/07/22/world/middleeast/ap-ml-libya.html?searchResultPosition=6
+**Telescope Snaps Family Portrait of 2 Planets Around Baby Sun**\
+`For the first time, a telescope has captured a family portrait of another solar system with not just one, but two planets posing directly for the cameras while orbiting a star like our sun. `\
+https://nytimes.com/aponline/2020/07/22/science/ap-us-sci-otherworldly-snapshot.html?searchResultPosition=6
 
-**Baker Hughes Posts Second Quarterly Loss as Oil Slump Slams Demand**\
-`Baker Hughes Co posted its second consecutive quarterly loss on Wednesday and said it would continue to rein in costs in preparation for a longer period of volatility in oil prices.`\
-https://nytimes.com/reuters/2020/07/22/business/22reuters-baker-hughes-results.html?searchResultPosition=7
+**‘Occupy City Hall’ Encampment Is Taken Down**\
+`New York police officers cleared the makeshift camp in City Hall Park in a pre-dawn raid. The site began as a protest against police brutality.`\
+https://nytimes.com/video/us/politics/100000007250886/occupy-city-hall-new-york.html?searchResultPosition=7
 
-**Australia to Post Biggest Budget Deficit Since World War Two, Treasurer to Say**\
-`Australia will record its biggest budget deficit since World War Two, Treasurer Josh Frydenberg will say on Thursday, as the spread of COVID-19 saw the government roll out billions in stimulus to support a shuttered economy.`\
-https://nytimes.com/reuters/2020/07/22/world/asia/22reuters-australia-government-economy.html?searchResultPosition=8
+**$500,000 Homes in New York, New Mexico and Wisconsin**\
+`An 1814 Federal-style manor in Sackets Harbor, a renovated 1944 house in Albuquerque and an 1890 farmhouse outside Milwaukee.`\
+https://nytimes.com/2020/07/22/realestate/500000-homes-in-new-york-new-mexico-and-wisconsin.html?searchResultPosition=8
 
-**UK Details Path to Citizenship for Hong Kong Applicants**\
-`Britain's route to citizenship for almost three million people in Hong Kong will open in January 2021, and applicants will not need a job to come to the country, interior minister Priti Patel said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-hongkong-security-britain-patel.html?searchResultPosition=9
+**What You Get for $500,000**\
+`An 1814 Federal-style manor in Sackets Harbor, a renovated 1944 house in Albuquerque and an 1890 farmhouse outside Milwaukee.`\
+https://nytimes.com/slideshow/2020/07/22/realestate/what-you-get-for-500000.html?searchResultPosition=9
 
-**French Blaze: Brothers Drop From Window, Caught by Rescuers**\
-`A boy and a toddler escaped from a blazing apartment in the southeastern French city of Grenoble by dropping 10 meters (33 feet) from a window and being caught by members of the public. French media said that the two brothers were unharmed by the fall, but might have suffered some smoke inhalation.`\
-https://nytimes.com/aponline/2020/07/22/world/europe/ap-eu-france-boys-saved.html?searchResultPosition=10
+**Your Trusty Maps App Can Help You Navigate the Pandemic**\
+`Apple and Google have added handy features for these uncertain times.`\
+https://nytimes.com/2020/07/22/technology/personaltech/maps-apps-coronavirus-pandemic.html?searchResultPosition=10
 
