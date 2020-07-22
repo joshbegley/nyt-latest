@@ -1,40 +1,40 @@
+**The Pandemic Isn’t Bringing Back Factory Jobs, at Least Not Yet**\
+`It’s a moment of reckoning for global supply chains. But that doesn’t mean companies are flocking back to the United States.`\
+https://nytimes.com/2020/07/22/business/economy/coronavirus-globalization-jobs-supply-chain-china.html?searchResultPosition=1
+
+**Black Lives Matter Protests Spawn Push for Athletes to Attend H.B.C.U.s**\
+`Makur Maker, a star basketball recruit, chose Howard University over offers from U.C.L.A. and Kentucky, and said he hoped other athletes would consider programs at historically Black institutions.`\
+https://nytimes.com/2020/07/22/sports/ncaabasketball/black-lives-matter-hbcus-college-athletes.html?searchResultPosition=2
+
+**Getting Used to the New N.B.A.**\
+`In this week’s newsletter, Marc Stein discusses the odd experience of being back inside a gym with N.B.A. stars like Luka Doncic for the first time since March.`\
+https://nytimes.com/2020/07/22/sports/basketball/nba-bubble-practice.html?searchResultPosition=3
+
+**Australian Regulator Flags Change to Dividend Freeze, Calls for Prudence**\
+`Australia's banking watchdog plans to update next week a capital return policy that has halted dividend payments by banks because of the coronavirus crisis, offering them capital management flexibility while still urging prudence.   `\
+https://nytimes.com/reuters/2020/07/22/world/asia/22reuters-australia-banks-regulator.html?searchResultPosition=4
+
+**Czech Coronavirus Cases Top 5,000 After Highest Daily Rise This Month**\
+`The number of active coronavirus infections topped 5,000 in the Czech Republic for the first time after labs reported the highest daily rise in nearly a month, the health ministry said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-health-coronavirus-czech.html?searchResultPosition=5
+
+**UK Working on 'a Range of Measures' for Aviation: Transport Secretary**\
+`Britain is working on additional measures to help an aviation sector battered by the COVID-19 pandemic, Transport Secretary Grant Shapps said on Wednesday when he was asked if air passenger duty tax could be lowered.`\
+https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-britain-aviation-passenger-tax.html?searchResultPosition=6
+
+**Is a 60-Game MLB Season, Shortest Since 1878, Legitimate?**\
+`George Will pondered the meaning of the shortest Major League Baseball season since 1878.`\
+https://nytimes.com/aponline/2020/07/22/sports/baseball/ap-bbo-is-60-games-legit.html?searchResultPosition=7
+
 **UK Abandons Hope of U.S. Trade Deal by End of Year: FT**\
 `The British government has abandoned hopes of clinching a U.S. free trade deal ahead of the presidential election, with officials blaming the novel coronavirus outbreak for slow progress, the Financial Times reported.`\
-https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-britain-eu-usa.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-britain-eu-usa.html?searchResultPosition=8
 
 **London Is Not the Place to Launder Russian Money, British Minister Says**\
 `London, the world's preeminent international financial centre, is not the place to launder Russian money, Transport Secretary Grant Shapps said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-britain-russia-moneylaundering.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-britain-russia-moneylaundering.html?searchResultPosition=9
 
 **Silver and Euro Gleaming as Investor Bets on Economic Recovery Hurt Dollar**\
 `The euro stood at an 18-month high, silver soared and commodities rose on Wednesday, benefiting from hopes that key parts of the global economy are heading in the right direction which also hurt the U.S. dollar.`\
-https://nytimes.com/reuters/2020/07/22/business/22reuters-global-markets.html?searchResultPosition=3
-
-**Malaysia Spares Rohingya Refugees From Caning**\
-`A Malaysian high court spared 27 Rohingya Muslim refugees from Myanmar from caning on Wednesday, their lawyer said, setting aside a lower court's sentence following an outcry from human rights activists. `\
-https://nytimes.com/reuters/2020/07/22/world/asia/22reuters-myanmar-rohingya-malaysia.html?searchResultPosition=4
-
-**Magnitude 7.4 Earthquake Hits Alaska Peninsula: GFZ**\
-`An earthquake of magnitude 7.4 struck Alaska peninsula on Wednesday, the GFZ German Research Center for Geosciences said.`\
-https://nytimes.com/reuters/2020/07/22/us/22reuters-alaska-quake.html?searchResultPosition=5
-
-**US View: Empty Stadiums in World Cup Qualifying Not All Bad**\
-`The fallout of the coronavirus pandemic could benefit the U.S. soccer team when World Cup qualifying begins in North and Central America and the Caribbean.`\
-https://nytimes.com/aponline/2020/07/22/sports/soccer/ap-soc-us-berhalter.html?searchResultPosition=6
-
-**Freeman's Return Will Be Closely Watched After Virus Fight**\
-`Freddie Freeman is back and ready to anchor the Braves' lineup after a scary battle with COVID-19 earlier in summer camp.`\
-https://nytimes.com/aponline/2020/07/22/sports/baseball/ap-bbo-10-players-to-watch.html?searchResultPosition=7
-
-**UK Minister: No Evidence of Russian Meddling in Brexit Vote**\
-`There is no evidence of Russian meddling in the 2016 Brexit referendum and Britain's spies did not take their eyes off the ball on Russia, Transport Secretary Grant Shapps said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-britain-russia.html?searchResultPosition=8
-
-**AP Photos: Afghan Women Assert Themselves With Martial Arts**\
-`A year and a half ago, Liqa Esazada for the first time stepped into a martial arts club for women in Kabul, something of a rarity in this still deeply conservative Muslim society.`\
-https://nytimes.com/aponline/2020/07/22/sports/ap-as-afghanistan-womens-martial-arts-photo-essay-.html?searchResultPosition=9
-
-**Hong Kong Mandates Masks in All Indoor Public Areas**\
-`Hong Kong will expand strict new social distancing measures from midnight on Wednesday, mandating face masks in all indoor public areas including malls and markets, Health Secretary Sophia Chan said.`\
-https://nytimes.com/reuters/2020/07/22/world/asia/22reuters-health-coronavirus-hongkong-masks.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/22/business/22reuters-global-markets.html?searchResultPosition=10
 
