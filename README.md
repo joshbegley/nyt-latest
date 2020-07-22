@@ -2,7 +2,7 @@
 `Houston Rockets point guard Russell Westbrook participated in his first practice Wednesday since clearing the NBA's coronavirus quarantine protocol.`\
 https://nytimes.com/reuters/2020/07/22/sports/basketball/22reuters-basketball-nba-hou-westbrook.html?searchResultPosition=1
 
-**Labor Dept Cites Ohio Nursing Homes for COVID-19 Violations**\
+**Labor Department Cites Ohio Nursing Homes for COVID-19 Violations**\
 `Three Ohio nursing homes were cited for worker safety violations, including using the same respirator for a week, following government inspections prompted by staff hospitalizations for coronavirus, the U.S. Department of Labor said on Tuesday.`\
 https://nytimes.com/reuters/2020/07/22/us/22reuters-health-coronavirus-usa-nursing-homes.html?searchResultPosition=2
 
