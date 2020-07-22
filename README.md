@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/07/22/business/bc-us-virus-outbreak-vaccines.h
 https://nytimes.com/reuters/2020/07/22/business/22reuters-pershingsquare-investment.html?searchResultPosition=3
 
 **‘Occupy City Hall’ Encampment Taken Down in Pre-Dawn Raid by N.Y.P.D.**\
-`Officers in riot gear cleared the makeshift camp in City Hall Park, which began as a protest against police abuses but then turned into a gathering of homeless people.`\
+`Officers in riot gear cleared the makeshift camp in City Hall Park, which began as a protest against police abuses but then attracted numerous homeless people.`\
 https://nytimes.com/2020/07/22/nyregion/occupy-city-hall-protest-nypd.html?searchResultPosition=4
 
 **Former Ivory Coast Minister to Run for President in Break With Ruling Party**\
