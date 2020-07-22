@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-corteva-herbicide-
 `U.S. President Donald Trump on Wednesday denied reports in U.S. media that he had asked the U.S. Ambassador in Britain Woody Johnson to try to bring the British Open to his Golf resort in Turnberry, Scotland.`\
 https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-usa-trump-golf.html?searchResultPosition=3
 
-**Miami Mayor Wants to Florida to Mask Up, Too**\
+**Miami Mayor Wants Florida to Mask Up, Too**\
 `Mayor Francis Suarez of Miami, a Republican, wants President Trump and Governor Ron DeSantis to enforce a masks-in-public rule.`\
 https://nytimes.com/2020/07/22/us/politics/miami-mayor-francis-suarez-masks.html?searchResultPosition=4
 
