@@ -1,40 +1,40 @@
+**Sudan’s Premier Appoints Civilians as Provincial Governors**\
+`Sudan’s prime minister announced the appointment of civilian governors for the country’s 18 provinces Wednesday, another key step forward in a fragile transition to democracy over a year after the military ousted long-time autocrat Omar al-Bashir.`\
+https://nytimes.com/aponline/2020/07/22/world/middleeast/ap-ml-sudan.html?searchResultPosition=1
+
+**Sierra Club Calls Out Founder John Muir for Racist Views**\
+`The Sierra Club is calling out its founder, naturalist John Muir, for racist remarks he made more then a century ago as the influential environmental group grapples with a harmful history that perpetuated white supremacy.`\
+https://nytimes.com/aponline/2020/07/22/us/ap-us-racial-injustice-john-muir.html?searchResultPosition=2
+
+**U.S. Mortgage Refis Surge as Rates Fall to Historically Low Levels**\
+`U.S. mortgage refinancings are surging as historically low 30-year fixed mortgage rates attract borrowers, Bespoke Investment Group said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/22/us/22reuters-usa-mortgages.html?searchResultPosition=3
+
+**Gut Microbes Might Keep Malnourished Children From Growing**\
+`Bacteria in the small intestine may drive inflammation that makes it harder for children to get the calories and nutrients they need.`\
+https://nytimes.com/2020/07/22/health/microbiome-malnourishment-children.html?searchResultPosition=4
+
+**Ex-Trump Lawyer Cohen's Attitude Justified Return to Prison, Prosecutors Say**\
+`Michael Cohen, the former personal lawyer for U.S. President Donald Trump, was sent back to prison from home confinement this month because he was "antagonistic" to probation officers, federal prosecutors said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/22/us/politics/22reuters-usa-trump-cohen.html?searchResultPosition=5
+
+**Hells Angels Accused of Killing Leader of Rival Biker Gang**\
+`The brazen execution was retribution for an earlier attack on the Hells Angels headquarters in the Bronx, a law enforcement official said.`\
+https://nytimes.com/2020/07/22/nyregion/hells-angels-bronx-pagans-murder.html?searchResultPosition=6
+
 **Illinois Reports July's Highest One-Day Total of Virus Cases**\
 `As parts of the nation struggle with a worse coronavirus outbreak than during its high points last spring in other states, Illinois, where officials continue to congratulate residents for keeping the new virus in check, announced Wednesday an increasing number of newly confirmed infections. `\
-https://nytimes.com/aponline/2020/07/22/us/ap-us-virus-outbreak-illinois.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/22/us/ap-us-virus-outbreak-illinois.html?searchResultPosition=7
 
 **Save the Fed**\
 `Judy Shelton, Trump’s latest unqualified and dangerous nominee to the Federal Reserve Board, must be rejected.`\
-https://nytimes.com/2020/07/22/opinion/federal-reserve-judy-shelton.html?searchResultPosition=2
+https://nytimes.com/2020/07/22/opinion/federal-reserve-judy-shelton.html?searchResultPosition=8
 
 **Phyllis Somerville, Busy Stage and Screen Actress, Dies at 76**\
 `She specialized in supporting roles, including an attention-getting recurring character in “The Big C.”`\
-https://nytimes.com/2020/07/22/arts/television/phyllis-somerville-dead.html?searchResultPosition=3
+https://nytimes.com/2020/07/22/arts/television/phyllis-somerville-dead.html?searchResultPosition=9
 
 **AP PHOTOS: Facing Federal Agents, Portland Protests Swell**\
 `Night after night for nearly two months, protesters have taken to the streets of Portland, Oregon, for demonstrations against racial injustice that have devolved into vandalism and clashes with authorities.`\
-https://nytimes.com/aponline/2020/07/22/us/ap-us-portland-protests-photo-gallery.html?searchResultPosition=4
-
-**Utah Sees Virus Surge -- but Not in County With Mask Order**\
-`Utah is among the many U.S. states battling a surge in coronavirus cases, but officials said Wednesday the Salt Lake City area is bucking the trend after the county issued a mandate a month ago for people to wear masks. `\
-https://nytimes.com/aponline/2020/07/22/us/ap-us-virus-outbreak-utah-masks.html?searchResultPosition=5
-
-**California Surpasses New York as Worst-Hit State in Coronavirus Cases**\
-`California on Wednesday overtook New York, the original epicenter of the nation's outbreak, as the worst-hit state for cases of COVID-19, according to a Reuters tally of county data.`\
-https://nytimes.com/reuters/2020/07/22/us/22reuters-health-coronavirus-usa-california.html?searchResultPosition=6
-
-**Whitmer: Enbridge Dodging Responsibility for Potential Spill**\
-`Michigan Gov. Gretchen Whitmer criticized Enbridge Inc. on Wednesday for what she described as the company's refusal to make an airtight pledge to pay for damages caused by a potential oil spill from its pipeline beneath a Great Lakes channel.`\
-https://nytimes.com/aponline/2020/07/22/business/ap-us-michigan-pipeline.html?searchResultPosition=7
-
-**Ford Says Mexico Railway Blockade Near U.S. Border Impacting Operations**\
-`Ford's Mexico unit said on Wednesday that a railway blockade in the Mexican border state of Sonora is affecting operations at its Hermosillo plant in the same state, as well as hitting imports and exports to and from the United States.`\
-https://nytimes.com/reuters/2020/07/22/business/22reuters-mexico-ford.html?searchResultPosition=8
-
-**S&P Affirms Canada at 'AAA/A-1+'**\
-`Ratings agency Standard & Poor affirmed Canada's sovereign debt ratings at 'AAA/A-1+' on Wednesday, citing the government's use of its fiscal and monetary headroom as a safety net to cushion the blow caused by the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/07/22/us/22reuters-canada-ratings-s-p.html?searchResultPosition=9
-
-**Constance Curry, 86, Ally in Civil Rights Fight and Author, Dies**\
-`She was a bridge between Black activists and white Southerners, worked for Andrew Young and chronicled a Black Mississippi family’s struggle against racism.`\
-https://nytimes.com/2020/07/22/us/constance-curry-86-ally-in-civil-rights-fight-and-author-dies.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/22/us/ap-us-portland-protests-photo-gallery.html?searchResultPosition=10
 
