@@ -10,12 +10,12 @@ https://nytimes.com/aponline/2020/07/22/sports/olympics/ap-oly-pg-sponsorship.ht
 `Prince Philip, the 99-year-old husband of Britain's Queen Elizabeth, made a rare public appearance on Wednesday to hand over his patronage of the Rifles to Prince Charles's wife, Camilla, after 67 years of association with the infantry regiment.`\
 https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-britain-royals-duke.html?searchResultPosition=3
 
-**Canada Annual Inflation Rate Jumps by Most in Nine Years**\
-`Canada's annual inflation rate in June posted its biggest acceleration for more than nine years, rising to 0.7% from a 0.4% decline in May as energy prices jumped, Statistics Canada said on Wednesday.`\
+**Canada Annual Inflation Rate Jumps by Most in Nine Years as Economy Reopens**\
+`Canada's annual inflation rate in June posted its biggest jump in more than nine years as restrictions imposed to curb the coronavirus outbreak were lifted, Statistics Canada said on Wednesday.`\
 https://nytimes.com/reuters/2020/07/22/us/22reuters-canada-economy-inflation.html?searchResultPosition=4
 
-**Canada's Annual Inflation Rate Rose 0.7% in June**\
-`Canada's consumer price index (CPI) rose 0.7% on a year-over-year basis in June, up from a 0.4% decline in May, Statistics Canada said on Wednesday.`\
+**Canada Annual Inflation Rate Jumps by Most in Nine Years**\
+`Canada's annual inflation rate in June posted its biggest acceleration for more than nine years, rising to 0.7% from a 0.4% decline in May as energy prices jumped, Statistics Canada said on Wednesday. `\
 https://nytimes.com/reuters/2020/07/22/us/22reuters-canada-economy-instantview.html?searchResultPosition=5
 
 **Turkey, Russia Say They Seek Lasting Cease-Fire in Libya**\
