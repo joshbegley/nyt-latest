@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/07/21/us/politics/21reuters-usa-election-trump-
 `The sports world has just had the ultimate timeout, a once-in-a-lifetime chance to reconsider its product before the games resume. How should each sport rethink itself moving forward?`\
 https://nytimes.com/interactive/2020/07/21/sports/coronavirus-changes-baseball-nba-nfl.html?searchResultPosition=6
 
-**'Multiple People' Shot on Chicago's South Side, Police Say**\
-`A shooting near a funeral home in Chicago on Tuesday injured "multiple people" in the Auburn Gresham neighborhood on Chicago's South Side, police said.`\
+**Multiple People Shot at Funeral on Chicago's South Side, Police Say**\
+`Numerous people were shot when occupants of a vehicle opened fire on funeral attendees on Chicago's South Side on Tuesday, and attendees fired back, police said.`\
 https://nytimes.com/reuters/2020/07/21/us/21reuters-usa-crime-shooting.html?searchResultPosition=7
 
 **Trump’s Warm Words for Ghislaine Maxwell: ‘I Just Wish Her Well’**\
