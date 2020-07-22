@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/07/22/world/europe/22reuters-russia-politics-go
 `Investors have pushed shares of Microsoft Corp up almost 30 percent since the start of the year, betting that the pandemic-induced shift to more remote computing will boost its business. `\
 https://nytimes.com/reuters/2020/07/22/business/22reuters-microsoft-tech-preview.html?searchResultPosition=9
 
-**Zimbabwean Journalist, Opposition Figure Appear in Court**\
+**Zimbabwean Journalist, Opposition Figure Appear at Court**\
 `A Zimbabwean journalist known for exposing alleged government corruption and now accused of plotting against the government is appearing in court on Wednesday.`\
 https://nytimes.com/aponline/2020/07/22/world/africa/ap-af-zimbabwe-journalist-detained.html?searchResultPosition=10
 
