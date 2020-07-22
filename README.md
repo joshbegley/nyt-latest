@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/07/21/world/asia/21reuters-health-coronavirus-a
 `Australia's banking watchdog plans to update a capital return policy that has halted dividend payments from banks due to the coronavirus crisis, flagging flexibility in operations that focuses on the longer term viability of the financial sector.   `\
 https://nytimes.com/reuters/2020/07/21/world/asia/21reuters-australia-banks-regulator.html?searchResultPosition=7
 
-**China Solar Panel Output Rises 15.7% in First Half: Industry Association**\
-`China produced 59 gigawatts (GW) worth of solar panels in the first half of the year, up 15.7% from a year ago, an official with the country's solar industry association said on Wednesday, with the industry barely affected by the coronavirus outbreak.`\
+**China's First-Half Solar Panel Output Jumps 15.7%, Industry Body Says**\
+`China produced 59 gigawatts (GW) worth of solar panels in the first half of the year, up 15.7% from a year ago, an official with the country's solar industry association said on Wednesday, with the sector barely affected by the coronavirus outbreak.`\
 https://nytimes.com/reuters/2020/07/21/world/asia/21reuters-china-solar.html?searchResultPosition=8
 
 **China Allocates Flood Relief Fund to Farmers, Agriculture Production**\
