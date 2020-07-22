@@ -2,7 +2,7 @@
 `Hotel operator Marriott International said it expected room occupancy rates in Greater China to rise to 60% next month and forecast it could recover to pre-coronavirus levels by the start of 2021, as domestic travel in the country ticks up. `\
 https://nytimes.com/reuters/2020/07/21/business/21reuters-hotel-china-marriott.html?searchResultPosition=1
 
-**Vegas Man Accused of ‘Thrill Killing’ of a Homeless Man**\
+**Las Vegas Man Accused of ‘Thrill Killing’ of a Homeless Man**\
 `The police said Noah Green had later shot another man and had videos of both attacks on his cellphone.`\
 https://nytimes.com/2020/07/21/us/las-vegas-homeless-man-thrill-killing.html?searchResultPosition=2
 
