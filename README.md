@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/07/22/world/africa/22reuters-zimbabwe-politics.
 https://nytimes.com/video/us/politics/100000007251035/portland-unrest-protests.html?searchResultPosition=3
 
 **Kuwait Emir, 91, to Go to US for Medical Care After Surgery**\
-`Kuwait says its 91-year-old ruling emir, who recently underwent surgery, will travel to the U.S. for further medical care.`\
+`Kuwait's 91-year-old ruling emir will travel to the United States on Thursday morning to seek further medical care after recently undergoing surgery, its state-run news agency reported. `\
 https://nytimes.com/aponline/2020/07/22/world/middleeast/ap-ml-kuwait.html?searchResultPosition=4
 
 **Virginia Democrats Vow Sweeping Changes in Criminal Justice**\
