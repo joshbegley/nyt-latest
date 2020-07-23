@@ -1,40 +1,40 @@
+**Tyson, 54, to Return for Exhibition Match Against Jones Jr.**\
+`Mike Tyson is coming back to boxing at age 54.`\
+https://nytimes.com/aponline/2020/07/23/sports/ap-box-tyson-exhibition.html?searchResultPosition=1
+
 **8 Things to Do This Weekend**\
 `How can you get your cultural fix when many arts institutions remain closed? Our writers offer suggestions for what to listen to, read and watch.`\
-https://nytimes.com/2020/07/23/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2020/07/23/arts/things-to-do-weekend-coronavirus.html?searchResultPosition=2
 
 **Judge Blocks Release of New York Police Discipline Records**\
 `A federal judge has halted the public release of police officer disciplinary records in New York, temporarily turning back a state transparency reform enacted in the wake of the police killing of George Floyd.`\
-https://nytimes.com/aponline/2020/07/23/us/ap-us-police-accountability-new-york.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/23/us/ap-us-police-accountability-new-york.html?searchResultPosition=3
 
 **With Officials’ Backing, Dubious Virus Remedies Surge in Latin America**\
 `A chlorine solution, particularly popular in Bolivia, is just one of several unproven treatments gaining ground in a region desperate for hope.`\
-https://nytimes.com/2020/07/23/world/americas/chlorine-coronavirus-bolivia-latin-america.html?searchResultPosition=3
+https://nytimes.com/2020/07/23/world/americas/chlorine-coronavirus-bolivia-latin-america.html?searchResultPosition=4
 
 **Ukrainian Anti-Graft Group Says Razing of Activist's House Was Assassination Bid**\
 `The family home of a prominent Ukrainian anti-corruption activist burned down in what his organization on Thursday called an assassination bid, demanding that President Volodymyr Zelenskiy investigate the incident personally.`\
-https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-ukraine-activist-arson.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-ukraine-activist-arson.html?searchResultPosition=5
 
 **AT&T Signed Up 4 Million HBO Max Customers**\
 `The phone giant saw customer defections across its businesses but millions signed up to its new streaming service.`\
-https://nytimes.com/2020/07/23/business/media/att-hbo-max.html?searchResultPosition=5
+https://nytimes.com/2020/07/23/business/media/att-hbo-max.html?searchResultPosition=6
 
 **USOPC Launches Fund for Athletes Facing COVID-19 Hardship**\
 `United States Olympic & Paralympic Committee (USOPC) announced a new fund on Thursday to support athletes facing financial hardship due to the COVID-19 pandemic and the postponement of the 2020 Tokyo Games.`\
-https://nytimes.com/reuters/2020/07/23/sports/olympics/23reuters-olympics-2020-usa.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/07/23/sports/olympics/23reuters-olympics-2020-usa.html?searchResultPosition=7
 
 **9-Day Waits for Test Results Threaten N.Y.C.’s Ability to Contain Virus**\
 `Increased demand both locally and across the country has led to a testing backlog, undermining efforts to identify the contagious and stop transmission.`\
-https://nytimes.com/2020/07/23/nyregion/coronavirus-testing-nyc.html?searchResultPosition=7
+https://nytimes.com/2020/07/23/nyregion/coronavirus-testing-nyc.html?searchResultPosition=8
 
 **Samantha Hickey, Nurse With a Gift for Diagnosis, Dies at 45**\
 `Ms. Hickey trained dozens of junior colleagues and exercised rare skills as a diagnostician over more than 20 years as a nurse in southwestern Idaho. She died of Covid-19.`\
-https://nytimes.com/2020/07/23/obituaries/samantha-hickey-dead-coronavirus.html?searchResultPosition=8
+https://nytimes.com/2020/07/23/obituaries/samantha-hickey-dead-coronavirus.html?searchResultPosition=9
 
 **U.S. CDC Reports 3,952,273 Coronavirus Cases**\
 `The U.S. Centers for Disease Control and Prevention (CDC) on Thursday reported 3,952,273 cases of the coronavirus, an increase of 70,106 cases from its previous count, and said that the number of deaths had risen by 1,078 to 142,755.`\
-https://nytimes.com/reuters/2020/07/23/us/23reuters-health-coronavirus-usa-cdc.html?searchResultPosition=9
-
-**The Pleasure of Watching Charlize Theron Throw a Punch**\
-`From her debut in “2 Days in the Valley” to “The Old Guard,” the actress has taken action seriously. Her fight scenes have the heft and emotion of a Gene Kelly dance sequence.`\
-https://nytimes.com/2020/07/23/movies/charlize-theron-old-guard.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/23/us/23reuters-health-coronavirus-usa-cdc.html?searchResultPosition=10
 
