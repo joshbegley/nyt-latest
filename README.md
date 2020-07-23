@@ -1,40 +1,40 @@
-**Indonesia Reports 1,906 New Coronavirus Cases, 117 Deaths**\
-`Indonesia reported 1,906 new coronavirus cases on Thursday, bringing its total infections to 93,657, data from the country's COVID-19 taskforce showed. `\
-https://nytimes.com/reuters/2020/07/23/world/asia/23reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=1
+**North American Hurricane and Wildfire Season May Be More Extreme: Munich Re**\
+`The upcoming Atlantic hurricane season and California wildfires in the autumn may be more extreme than usual, the German reinsurer Munich Re said on Thursday. `\
+https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-munich-re-hurricanes.html?searchResultPosition=1
 
-**Armed Man Takes Policeman Hostage In central Ukraine**\
-`A man armed with a grenade has taken a senior policeman hostage in the central Ukrainian city of Poltava, Ukraine's deputy interior minister said on Thursday.`\
-https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-ukraine-hostage.html?searchResultPosition=2
+**The Great Climate Migration Has Begun**\
+`New research suggests climate change will cause humans to move in unprecedented numbers. The Times Magazine partnered with ProPublica and data scientists to understand how.`\
+https://nytimes.com/interactive/2020/07/23/magazine/climate-migration.html?searchResultPosition=2
 
-**Hong Kong Reports New Daily Record of Coronavirus Cases**\
-`Hong Kong reported 118 new coronavirus cases on Thursday, a daily record, including 111 that were locally transmitted, adding to a deluge of new cases that have hit the global financial hub over the past two weeks. `\
-https://nytimes.com/reuters/2020/07/23/world/asia/23reuters-health-coronavirus-hongkong.html?searchResultPosition=3
+**How This N.Y. Island Went From Tourist Hot Spot to Emergency Garden**\
+`Governors Island had a charming teaching farm that was a field trip destination. Now it’s producing hundreds of pounds of fresh produce every week.`\
+https://nytimes.com/2020/07/23/nyregion/governors-island-nyc-urban-farm.html?searchResultPosition=3
 
-**Amid Pandemic, Consumer Goods Sales Hold Up at Unilever**\
-`Consumer products giant Unilever, whose brands include Ben & Jerry's ice creams, Lipton tea and Dove soaps, said Thursday that second-quarter sales were only slightly lower than the same period a year ago — beating expectations of a drop of around 4% — despite the lockdown measures triggered by the global fight against the coronavirus.`\
-https://nytimes.com/aponline/2020/07/23/business/bc-eu-netherlands-earns-unilever.html?searchResultPosition=4
+**Red vs. Red in Texas, With Republicans Battling One Another After Mask Order**\
+`The virus has heightened long-simmering friction in the largest Republican-led state in the country, with Gov. Greg Abbott under attack from within his own party.`\
+https://nytimes.com/2020/07/23/us/coronavirus-texas-abbott-republicans.html?searchResultPosition=4
 
-**New Revenues Agreed for EU a Historic Feat: EU Commission Head**\
-`An agreement by European Union leaders to assign new revenue streams to finance the recovery package is a huge, historic step for the 27-nation bloc, the head of the European Commission Ursula von der Leyen told the European Parliament on Thursday.`\
-https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-eu-recovery-parliament.html?searchResultPosition=5
+**An Artist Who Reanimates Extinct Species**\
+`In an age of uncertainty, the mysterious, highly imaginative work of the sculptor Marguerite Humeau embodies the precariousness of contemporary life, with an eye to the distant past.`\
+https://nytimes.com/2020/07/23/t-magazine/marguerite-humeau.html?searchResultPosition=5
 
-**Barclays Sees Near-Tem Oil Price Correction if Demand Recovery Slows**\
-`Barclays Commodities Research said on Thursday oil prices could see a correction in the near-term if a recovery in fuel demand slows further, especially in the United States. `\
-https://nytimes.com/reuters/2020/07/23/us/23reuters-global-oil-research-barclays.html?searchResultPosition=6
+**The Blessing and Burden of Being John Lewis**\
+`During a reporting assignment in 2013, I received a rare glimpse of both the legend and the man. Neither one disappointed.`\
+https://nytimes.com/2020/07/23/insider/john-lewis-memory.html?searchResultPosition=6
 
-**China's ICBC Cuts Average Loan Rate to 4.31% to Support Economy**\
-`Industrial and Commercial Bank of China (ICBC), the country's largest bank by assets, slashed its average interest rate by 45 basis points to 4.31% in the first half of 2020, bank president Gu Shu said on Thursday.`\
-https://nytimes.com/reuters/2020/07/23/world/asia/23reuters-china-icbc.html?searchResultPosition=7
+**After Picking Up Work Here and There, No Unemployment Check**\
+`For many people, making a living is a cobbled-together proposition. That leaves a hole in the safety net when things turn bad.`\
+https://nytimes.com/2020/07/23/business/economy/unemployment-gig-workers-coronavirus.html?searchResultPosition=7
 
-**Greece: Firefighters Race to Stop Blaze During Lull in Wind**\
-`Firefighters and water-dropping aircraft were fighting a blaze for a second day in southern Greece Thursday that forced evacuations and a night-long battle to save seaside homes.`\
-https://nytimes.com/aponline/2020/07/23/world/europe/ap-eu-greece-wildfire.html?searchResultPosition=8
+**Reopening Schools Is Way Harder Than It Should Be**\
+`So is leaving them closed. Now what do we do?`\
+https://nytimes.com/2020/07/23/sunday-review/reopening-schools-coronavirus.html?searchResultPosition=8
 
-**Poland's Unemployment Rate Rises to 6.1% in June**\
-`Poland's registered unemployment rate rose to 6.1% in June compared with 6.0% in May, statistics office data showed on Thursday, below analysts' expectations of 6.2%.`\
-https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-poland-economy-unemployment.html?searchResultPosition=9
+**Welcome to the Great Indoors: Museums Beckon in the Berkshires**\
+`At Mass MoCA and the Clark, there are timely new exhibitions, but our critic finds as much relevance in a still life by Manet, or an Ingres drawing.`\
+https://nytimes.com/2020/07/23/arts/design/massmoca-clark-art-museum.html?searchResultPosition=9
 
-**South Africa May Stop Lenders Blacklisting Borrowers During Pandemic**\
-`South Africa's government may temporarily ban lenders from blacklisting consumers whose credit records have been hit by the coronavirus crisis, a consultation document published by the main opposition party showed. `\
-https://nytimes.com/reuters/2020/07/23/world/africa/23reuters-health-coronavirus-safrica-banks.html?searchResultPosition=10
+**Landlords Jump the Gun as Eviction Moratorium Wanes**\
+`The CARES Act temporarily protects millions of renters from being kicked out of their homes for nonpayment. Filings aren’t supposed to resume until after Friday.`\
+https://nytimes.com/2020/07/23/business/evictions-moratorium-cares-act.html?searchResultPosition=10
 
