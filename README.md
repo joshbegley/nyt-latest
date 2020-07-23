@@ -1,5 +1,5 @@
-**Trump to Address School Re-Openings at Briefing on Thursday: White House**\
-`President Donald Trump will discuss a strategy to re-open the nation's schools at a briefing at 5 p.m. (2100 GMT) on Thursday, White House spokeswoman Kayleigh McEnany said.`\
+**Trump to Address School Reopenings at Briefing on Thursday: White House**\
+`U.S. President Donald Trump will discuss a strategy to reopen the nation's schools at a briefing at 5 p.m. EDT (2100 GMT) on Thursday, White House spokeswoman Kayleigh McEnany said.`\
 https://nytimes.com/reuters/2020/07/23/us/23reuters-health-coronavirus-usa-education.html?searchResultPosition=1
 
 **Spirit Aerosystems Braces for Deeper 737 Production Cut Through 2022: CNBC**\
