@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/07/22/world/asia/22reuters-australia-economy-po
 https://nytimes.com/aponline/2020/07/22/sports/baseball/ap-bbn-brewers-ueckers-50th.html?searchResultPosition=8
 
 **Worker in Building Housing White House Staff Tests Positive for Coronavirus: NBC News**\
-`A cafeteria employee who works in a building where some White House staffers have offices has tested positive for the coronavirus, an NBC News reporter said on Twitter on Wednesday.`\
+`A cafeteria employee who works in a building where some White House staffers have offices has tested positive for the coronavirus, NBC News reported on Wednesday.`\
 https://nytimes.com/reuters/2020/07/22/us/22reuters-health-coronavirus-usa-whitehouse.html?searchResultPosition=9
 
 **Mexico Reports More Than 6,000 New Coronavirus Cases**\
