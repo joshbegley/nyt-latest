@@ -1,40 +1,40 @@
-**The T List: Five Things We Recommend This Week**\
-`Well-designed puzzles, natural bug sprays, Paul McCarthy — and more.`\
-https://nytimes.com/2020/07/23/t-magazine/puzzles-bug-spray-tlist.html?searchResultPosition=1
+**UK Says British National (Overseas) Passports Are Legitimate**\
+`Britain said that British National (Overseas) passports were a legitimate international travel document, responding to China's foreign ministry which said it would consider not recognising them.`\
+https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-hongkong-security-britain-passport.html?searchResultPosition=1
 
-**Belgium Tightens COVID Measures as Infections Spike**\
-`Belgium will tighten COVID-19 containment measures on July 25 after a rise in infections, Prime Minister Sophie Wilmes said, requiring the use of face masks in crowded outdoor public spaces and tracing measures at restaurants and bars.`\
-https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-health-coronavirus-belgium.html?searchResultPosition=2
+**Polish Opposition Seeks Re-Run of Presidential Election**\
+`Poland's biggest opposition party, the centrist Civic Platform(PO), said on Thursday it had petitioned the Supreme Court to declare the recent presidential election unfair to trigger an annulment and re-run. `\
+https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-poland-election-protest.html?searchResultPosition=2
 
-**French President Macron Discusses COVID-19 Situation With Australian PM**\
-`French President Emmanuel Macron discussed the COVID-19 pandemic situation during a phone briefing on Thursday with Australian Prime Minister Scott Morrison, Macron's office said, as leaders around the world prepare for a possible new wave of the virus.`\
-https://nytimes.com/reuters/2020/07/23/world/asia/23reuters-health-coronavirus-france-australia.html?searchResultPosition=3
+**Russia Charges Reporter Who Said Police Broke His Arm at Polling Station**\
+`Russian police have charged a reporter with offences including one punishable by up to 15 days in jail, a court said on Thursday, after an incident in June in which he alleged a police officer broke his arm. `\
+https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-russia-putin-vote.html?searchResultPosition=3
 
-**EU Talks Equally Close to Breakdown or Breakthrough, UK Official Says**\
-`Britain's negotiations with the European Union are equally close to a breakthrough or a breakdown, a senior UK official involved in the talks said on Thursday, adding it was now for the EU to adapt its position.`\
-https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-britain-eu-talks-official.html?searchResultPosition=4
+**Johnson Stresses 'Sheer Might' of UK as He Visits Scotland**\
+`British Prime Minister Boris Johnson claimed that the United Kingdom's response to the coronavirus pandemic has shown the country's “sheer might” as he sought during a trip to Scotland on Thursday to underline the bonds that tie the nations of the U.K. together.`\
+https://nytimes.com/aponline/2020/07/23/business/ap-eu-britain-scotland.html?searchResultPosition=4
 
-**Prayers at Hagia Sophia Will Crown Decades-Long Muslim Campaign**\
-`When Yunus Genc prays at Hagia Sophia on Friday it will mark the triumphant culmination of decades-long efforts by Islamist-rooted groups like his to convert the ancient monument, revered by both Christians and Muslims, to a mosque. `\
-https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-turkey-hagiasophia.html?searchResultPosition=5
+**Homes for Sale in Brooklyn, Manhattan and Queens**\
+`This weeks’ properties are in Cobble Hill, Harlem and Forest Hills.`\
+https://nytimes.com/2020/07/23/realestate/homes-for-sale-in-brooklyn-manhattan-and-queens.html?searchResultPosition=5
 
-**North Macedonia: Top Albanian Summoned on Kosovo War Crimes**\
-`The leader of the main ethnic Albanian party in North Macedonia said he has been invited to appear as a witness at the special international court on alleged crimes during and after the Kosovo’s 1998-1999 war, in which he fought.`\
-https://nytimes.com/aponline/2020/07/23/world/europe/ap-eu-north-macedonia-kosovo-war-crimes.html?searchResultPosition=6
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties include a four-bedroom in Pleasantville, N.Y., and an eight-bedroom in Stamford, Conn.`\
+https://nytimes.com/2020/07/23/realestate/homes-for-sale-in-new-york-and-connecticut.html?searchResultPosition=6
 
-**Southwest Says Not Scheduling the Boeing 737 MAX Until Mid-December**\
-`Southwest Airlines will keep the Boeing Co 737 MAX off its schedule through mid-December, it said on Thursday, as regulators review the grounded plane's return after two fatal crashes.`\
-https://nytimes.com/reuters/2020/07/23/business/23reuters-boeing-737max-southwest.html?searchResultPosition=7
+**On the Market in New York City**\
+`This weeks’ properties are in Cobble Hill, Harlem and Forest Hills.`\
+https://nytimes.com/slideshow/2020/07/23/realestate/on-the-market-in-new-york-city.html?searchResultPosition=7
 
-**U.S. Weekly Jobless Claims Rise; Labor Market Recovery Stalling**\
-`The number of Americans filing for unemployment benefits rose last week for the first time in nearly four months, suggesting the labor market was stalling amid a resurgence in new COVID-19 cases and depressed demand.`\
-https://nytimes.com/reuters/2020/07/23/business/23reuters-usa-economy.html?searchResultPosition=8
+**On the Market in the New York Region**\
+`This week’s properties include a four-bedroom in Pleasantville, N.Y., and an eight-bedroom in Stamford, Conn.`\
+https://nytimes.com/slideshow/2020/07/23/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=8
 
-**Iraq's Coronavirus Infections Pass 100,000 Total-Health Ministry**\
-`Iraq's total number of infections from the novel coronavirus passed 100,000 on Thursday as the health ministry said 102,226 cases had been recorded.`\
-https://nytimes.com/reuters/2020/07/23/world/middleeast/23reuters-health-coronavirus-iraq.html?searchResultPosition=9
+**How New York’s Jewish Museum Anticipated the Avant-Garde**\
+`A string of adventurous curators made a quasi-religious institution a leading arbiter of mid-20th-century American art.`\
+https://nytimes.com/2020/07/23/t-magazine/jewish-museum-new-york.html?searchResultPosition=9
 
-**Mnuchin Urges Quick Action on Coronavirus Relief, Open to Another Bill: CNBC**\
-`U.S. Treasury Secretary Steve Mnuchin said on Thursday the White House is interested in getting a trillion dollar coronavirus relief bill out quickly and would be open to another bill after that if needed.`\
-https://nytimes.com/reuters/2020/07/23/us/23reuters-health-coronavirus-usa-congress.html?searchResultPosition=10
+**How Well Is the Real Estate Market Recovering?**\
+`Record-low interest rates and a shortage of listings have produced a fast-paced seller’s market, but many areas are still lagging.`\
+https://nytimes.com/2020/07/23/realestate/real-estate-market-coronavurus-recovery.html?searchResultPosition=10
 
