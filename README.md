@@ -10,8 +10,8 @@ https://nytimes.com/2020/07/22/us/derek-chauvin-tax-fraud.html?searchResultPosit
 `The FBI believes that a Chinese researcher, accused of visa fraud for hiding her affiliation with the Chinese military, has been holed up in the Chinese consulate in San Francisco for a month, according to court filings.`\
 https://nytimes.com/reuters/2020/07/22/world/asia/22reuters-usa-china-consulate-san-francisco.html?searchResultPosition=3
 
-**Tesla Surprises Analysts With $104 Million Quarterly Profit**\
-`The result was achieved “despite tremendous difficulties in the quarter,” the company’s chief executive, Elon Musk, said.`\
+**Tesla Turns a Profit in a Pandemic-Squeezed Quarter**\
+`The result was achieved “despite tremendous difficulties,” said the chief executive, Elon Musk, including a plant shutdown and lower sales.`\
 https://nytimes.com/2020/07/22/business/tesla-profit-elon-musk.html?searchResultPosition=4
 
 **Quotation of the Day: Police Supporters Enter Mix of New York’s Street Protests**\
