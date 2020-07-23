@@ -1,40 +1,40 @@
-**Stimulus Bets Buoy Futures Ahead of Jobless Claims**\
-`S&P 500 and Dow futures hovered near five-month highs on Thursday, as signs that a new coronavirus relief package was at hand lifted sentiment ahead of weekly unemployment data.`\
-https://nytimes.com/reuters/2020/07/23/business/23reuters-usa-stocks.html?searchResultPosition=1
+**Biden, Obama Pair in Socially Distanced Video to Decry Trump**\
+`Joe Biden is releasing a video of his first in-person meeting with Barack Obama since the coronavirus outbreak began, enlisting the former president to help slam his successor's response to the pandemic. `\
+https://nytimes.com/aponline/2020/07/23/us/politics/ap-us-election-2020-biden-obama.html?searchResultPosition=1
 
-**South Africa Sees 'Huge Discrepancy' in Virus, Total Deaths**\
-`The South African Medical Research Council is reporting a “huge discrepancy” between the country’s confirmed COVID-19 deaths and the number of excess deaths from natural causes, while Africa’s top health official says the virus is spreading there “like wildfire.”`\
-https://nytimes.com/aponline/2020/07/23/business/bc-af-virus-outbreak-africa.html?searchResultPosition=2
+**U.S. Sets Global Benchmark for COVID-19 Vaccine Price at Around the Cost of a Flu Shot**\
+`The U.S. government has set a benchmark for COVID-19 vaccine pricing in a $2 billion deal announced on Wednesday with Pfizer Inc and German biotech BioNTech SE that will likely pressure other manufacturers to set similar prices, industry analysts told Reuters.`\
+https://nytimes.com/reuters/2020/07/23/us/23reuters-health-coronavirus-vaccine-pricing-analysis.html?searchResultPosition=2
 
-**Twitter Says Hackers Accessed Dutch Politician's Inbox**\
-`Twitter says an elected Dutch official was among 36 account holders whose direct message inboxes were accessed in a recent high-profile hack.`\
-https://nytimes.com/aponline/2020/07/23/business/bc-twitter-hack.html?searchResultPosition=3
+**OpenTable Partners With Colleges to Manage Student Dining**\
+`OpenTable is partnering with colleges to help them manage dining areas as students return to campus during the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/07/23/business/ap-us-opentable-colleges.html?searchResultPosition=3
 
-**UK's Johnson Calls for COVID-19 Vigilance When Colder Months Approach**\
-`British Prime Minister Boris Johnson said people must remain vigilant to the coronavirus threat when the country heads into winter. `\
-https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-health-coronavirus-britain-pm.html?searchResultPosition=4
+**‘Fisherman’s Friends’ Review: A Tale of Unlikely Chart-Toppers**\
+`This movie about singing seafaring working men hums a familiar tune.`\
+https://nytimes.com/2020/07/23/movies/fishermans-friends-review.html?searchResultPosition=4
 
-**Naval Academy Midshipman Guilty of Sexual Assault**\
-`A naval academy midshipman was found guilty of sexually violating three female classmates in 2018 and 2019.`\
-https://nytimes.com/aponline/2020/07/23/us/ap-us-naval-academy-sexual-assault.html?searchResultPosition=5
+**Bloomberg’s Gun Control Group Pours $15 Million Into Races in 8 States**\
+`The group, Everytown for Gun Safety, hopes to help Democrats flip three Senate seats, win control of state legislatures and lift Joe Biden to victory in Florida.`\
+https://nytimes.com/2020/07/23/us/politics/bloomberg-guns.html?searchResultPosition=5
 
-**UK-Backed Firm Buys Vaccine Facility From Benchmark Holdings**\
-`A firm backed by the UK government has purchased a vaccine manufacturing facility from healthcare company Benchmark Holdings as the country ramps up efforts to produce potential coronavirus vaccines.`\
-https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-britain-vaccine-manufacturing-benchmark-hold.html?searchResultPosition=6
+**‘Retaliation’ Review: To Suffer Silently or Take Revenge?**\
+`Orlando Bloom takes on a tough role as an abuse survivor confronting his trauma.`\
+https://nytimes.com/2020/07/23/movies/retaliation-review.html?searchResultPosition=6
 
-**Thousands of Spanish Airbus Workers Protest Layoff Plan**\
-`Thousands of Spanish Airbus employees gathered outside a factory near Madrid on Thursday, waving banners and chanting through face-masks, to protest against a restructuring plan that will see hundreds of jobs lost.`\
-https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-airbus-restructuring-spain.html?searchResultPosition=7
+**UK Pledges 100 Million Pounds to Scale Up COVID-19 Vaccine Production**\
+`Britain said on Thursday it will provide 100 million pounds ($127 million) of funding for a facility to scale up the manufacturing of vaccines for COVID-19.`\
+https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-health-coronavirus-britain-vaccine.html?searchResultPosition=7
 
-**With No Brits, Cash-Strapped Algarve Fights for Survival**\
-`In his near-empty pub in the Algarve in southern Portugal, Samuel Tilley is fuming that coronavirus regulations in his home country Britain are keeping tourists away, further jeopardizing an already gloomy summer season.`\
-https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-health-coronavirus-algarve-tourism.html?searchResultPosition=8
+**‘The Rental’ Review: High Infidelity**\
+`Dave Franco’s directing debut puts four friends in peril at a vacation property.`\
+https://nytimes.com/2020/07/23/movies/the-rental-review-high-infidelity.html?searchResultPosition=8
 
-**British PM Johnson Seeks to Revive Strained Relations With Scotland**\
-`British Prime Minister Boris Johnson will seek to play down tensions with Scotland during a visit on Thursday, saying the COVID-19 crisis has shown the collective power of the United Kingdom.`\
-https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-britain-politics-johnson-scotland.html?searchResultPosition=9
+**‘Helmut Newton: The Bad and the Beautiful’ Review: Man With a Camera**\
+`This cheery, chatty overview of the life and work of the photographer Helmut Newton prioritizes gossip over critique.`\
+https://nytimes.com/2020/07/23/movies/helmut-newton-the-bad-and-the-beautiful-review.html?searchResultPosition=9
 
-**Amber Heard Wrapping Up Evidence in Johnny Depp Libel Trial**\
-`Amber Heard is wrapping up her evidence in Johnny Depp’s libel case against a British tabloid over allegations of domestic violence, further accusing her ex-husband of abusing her when he was high on drugs or was drunk.`\
-https://nytimes.com/aponline/2020/07/23/world/europe/ap-eu-britain-johnny-depp.html?searchResultPosition=10
+**‘Yes, God, Yes’ Review: Sin and Sensuality**\
+`A naïve Catholic teenager explores her sexuality in this gentle indie comedy.`\
+https://nytimes.com/2020/07/23/movies/yes-god-yes-review.html?searchResultPosition=10
 
