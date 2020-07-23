@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/07/22/business/22reuters-health-coronavirus-chi
 `Big data is providing some surprising results for the Bank of Japan and helping ease concerns about pressure on the economy during the coronavirus pandemic, which could influence the way the BOJ manages the world's most radical monetary stimulus.`\
 https://nytimes.com/reuters/2020/07/22/world/asia/22reuters-japan-economy-boj-bigdata-insight.html?searchResultPosition=6
 
-**Australia Treasurer Forecasts Yawning Fiscal Deficit on Virus-Driven Stimulus**\
-`Australian Treasurer Josh Frydenberg said on Thursday the country's budget swung into a massive deficit of A$85.8 billion  ($61.3 billion) in the year-ended June 2020 due to the government's fiscal stimulus plan to battle the coronavirus pandemic.`\
+**Australia Forecasts Biggest Postwar Fiscal Deficit on Virus-Driven Stimulus**\
+`Australia reported its biggest budget deficit since World War Two on Thursday as the coronavirus crisis knocks the country into its first recession in three decades.`\
 https://nytimes.com/reuters/2020/07/22/world/asia/22reuters-health-coronavirus-australia-economy.html?searchResultPosition=7
 
 **China Scheduled to Launch Independent Mars Mission on Thursday**\
