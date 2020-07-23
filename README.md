@@ -1,40 +1,40 @@
-**Kansan Who Abused Mentally Ill Patients Denied Early Release**\
-`A federal judge has refused to free an ailing inmate from Kansas who, along with his wife, was convicted of abusing mentally ill patients at their treatment center, including by forcing them to work naked and engage in sexual acts, while billing the government and their families for the supposed therapy.`\
-https://nytimes.com/aponline/2020/07/23/us/ap-us-servitude-case.html?searchResultPosition=1
+**Ukrainian Anti-Graft Group Says Razing of Activist's House Was Assassination Bid**\
+`The family home of a prominent Ukrainian anti-corruption activist burned down in what his organization on Thursday called an assassination bid, demanding that President Volodymyr Zelenskiy investigate the incident personally.`\
+https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-ukraine-activist-arson.html?searchResultPosition=1
 
-**Senators Say N.C.A.A. Needs Broad Reform**\
-`As the N.C.A.A. appealed for a federal policy for name, image and likeness rights, senators criticized the organization’s handling of amateurism rules and the return of sports amid the pandemic.`\
-https://nytimes.com/2020/07/23/sports/ncaa-NIL-rights.html?searchResultPosition=2
+**AT&T Signed Up 4 Million HBO Max Customers**\
+`The phone giant saw customer defections across its businesses but millions signed up to its new streaming service.`\
+https://nytimes.com/2020/07/23/business/media/att-hbo-max.html?searchResultPosition=2
 
-**French Soldier Killed in Mali Combat Operations: Elysee**\
-`A French soldier was killed in Mali on Thursday morning after combat operations against militants, President Emmanuel Macron's office said. `\
-https://nytimes.com/reuters/2020/07/23/world/africa/23reuters-sahel-security-france.html?searchResultPosition=3
+**USOPC Launches Fund for Athletes Facing COVID-19 Hardship**\
+`United States Olympic & Paralympic Committee (USOPC) announced a new fund on Thursday to support athletes facing financial hardship due to the COVID-19 pandemic and the postponement of the 2020 Tokyo Games.`\
+https://nytimes.com/reuters/2020/07/23/sports/olympics/23reuters-olympics-2020-usa.html?searchResultPosition=3
 
-**NFL: D.C. Adopts New Name-'Washington Football Team'-For Now**\
-`The NFL's Washington franchise will be known as the "Washington Football Team" through the 2020 season, the club said on Thursday, as it chooses a new name and logo. `\
-https://nytimes.com/reuters/2020/07/23/sports/football/23reuters-football-nfl-washington.html?searchResultPosition=4
+**9-Day Waits for Test Results Threaten N.Y.C.’s Ability to Contain Virus**\
+`Increased demand both locally and across the country has led to a testing backlog, undermining efforts to identify the contagious and stop transmission.`\
+https://nytimes.com/2020/07/23/nyregion/coronavirus-testing-nyc.html?searchResultPosition=4
 
-**Southwest Sees $1 Billion in Cost Savings Next Year, Avoids Layoffs for Now**\
-`Southwest Airlines expects to save more than $1 billion in 2021 thanks to the high number of employees taking early retirement or extended time off as the industry grapples with the coronavirus pandemic, an executive told investors on Thursday.`\
-https://nytimes.com/reuters/2020/07/23/business/23reuters-southwest-results-jobs.html?searchResultPosition=5
+**Samantha Hickey, Nurse With a Gift for Diagnosis, Dies at 45**\
+`Ms. Hickey trained dozens of junior colleagues and exercised rare skills as a diagnostician over more than 20 years as a nurse in southwestern Idaho. She died of Covid-19.`\
+https://nytimes.com/2020/07/23/obituaries/samantha-hickey-dead-coronavirus.html?searchResultPosition=5
 
-**The Trump Swamp**\
-`A reader is not surprised by a report of the president’s attempt to have a golf tournament moved to one of his resorts. Also: A kitten’s reading habits.`\
-https://nytimes.com/2020/07/23/opinion/letters/trump-ethics.html?searchResultPosition=6
+**U.S. CDC Reports 3,952,273 Coronavirus Cases**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Thursday reported 3,952,273 cases of the coronavirus, an increase of 70,106 cases from its previous count, and said that the number of deaths had risen by 1,078 to 142,755.`\
+https://nytimes.com/reuters/2020/07/23/us/23reuters-health-coronavirus-usa-cdc.html?searchResultPosition=6
 
-**Ex-Philadelphia Congressman Ozzie Myers Charged With Ballot Box Stuffing, Bribery**\
-`A former Democratic Congressman from Philadelphia, who served a prison term after being caught in a famous 1970s FBI sting, has been indicted for multiple election offences committed over the last six years, federal prosecutors said on Thursday.`\
-https://nytimes.com/reuters/2020/07/23/us/politics/23reuters-usa-election-myers.html?searchResultPosition=7
+**The Pleasure of Watching Charlize Theron Throw a Punch**\
+`From her debut in “2 Days in the Valley” to “The Old Guard,” the actress has taken action seriously. Her fight scenes have the heft and emotion of a Gene Kelly dance sequence.`\
+https://nytimes.com/2020/07/23/movies/charlize-theron-old-guard.html?searchResultPosition=7
 
-**Brady Reports to Buccaneers for COVID Testing**\
-`Tom Brady checked in for his 21st NFL training camp on Thursday morning and first as a member of the Tampa Bay Buccaneers.`\
-https://nytimes.com/reuters/2020/07/23/sports/football/23reuters-football-nfl-tb-brady-reports.html?searchResultPosition=8
+**Chile Extradites Man Accused of Murdering Japanese Girlfriend in France**\
+`Chilean authorities on Thursday said they were proceeding with the extradition to France of a man accused of murdering his Japanese girlfriend in that country in late 2016, capping a years-long court battle in the South American nation.`\
+https://nytimes.com/reuters/2020/07/23/world/asia/23reuters-japan-france-chile-student.html?searchResultPosition=8
 
-**Unemployment's Second Wave? Stodgy Reopening, Virus Surge May Undercut U.S. Jobs**\
-`A stodgy U.S. recovery showed little sign of accelerating over the last week with hints emerging that the quick job gains of May and June may be fading, according to high frequency data and analysis from companies, forecasters and government analysts.`\
-https://nytimes.com/reuters/2020/07/23/business/23reuters-usa-economy-reopen.html?searchResultPosition=9
+**Ziwe May Destroy Hamilton**\
+`Welcome to the Age of Discomfort`\
+https://nytimes.com/2020/07/23/podcasts/hamilton-ziwe-discomfort.html?searchResultPosition=9
 
-**‘I Am Someone’s Daughter:’ Ocasio-Cortez Condemn’s Yoho’s Remarks**\
-`In a speech on the House floor, Rep. Alexandria Ocasio-Cortez, Democrat of New York, addressed the remarks made by Rep. Ted Yoho, Republican of Florida.`\
-https://nytimes.com/video/us/100000007253391/aoc-confronts-yoho.html?searchResultPosition=10
+**Bolivia Election Delayed to Oct. 18 as Pandemic Grips Nation**\
+`Bolivia's presidential election will be postponed until Oct. 18 amid rising cases of COVID-19 in the South American nation, the head of the electoral tribunal said on Thursday.`\
+https://nytimes.com/reuters/2020/07/23/world/americas/23reuters-bolivia-politics-election.html?searchResultPosition=10
 
