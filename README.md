@@ -18,8 +18,8 @@ https://nytimes.com/2020/07/23/arts/television/late-night-trump-coronavirus-brie
 `Qatar has reiterated its commitment to resolving the diplomatic dispute in the Gulf via peaceful and diplomatic means, state news agency QNA said on Thursday.`\
 https://nytimes.com/reuters/2020/07/23/world/middleeast/23reuters-gulf-qatar.html?searchResultPosition=5
 
-**Bulgarian PM Overhauls Government to Quell Protests**\
-`Bulgaria's Prime Minister Boyko Borissov replaced key ministers on Thursday in a government reshuffle designed to quell a wave of anti-corruption protests that have called for his resignation.`\
+**Bulgarian PM Reshuffles Government to Quell Protests**\
+`Bulgarian Prime Minister Boyko Borissov replaced his finance and other ministers on Thursday in a reshuffle designed to quell a wave of anti-corruption protests that have called for his resignation.`\
 https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-bulgaria-government.html?searchResultPosition=6
 
 **French Foreign Minister Visits Lebanon Amid Economic Crisis**\
