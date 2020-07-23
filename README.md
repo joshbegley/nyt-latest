@@ -1,40 +1,40 @@
+**DNA Identifies California 1968 Homicide Victim and Suspect**\
+`A homicide mystery that haunted Southern California police detectives for 52 years used genetic genealogy to identify the young woman who was slain and a now-deceased man who is suspected of being the killer, authorities said Thursday.`\
+https://nytimes.com/aponline/2020/07/23/us/ap-us-california-cold-case-solved.html?searchResultPosition=1
+
+**In Chile's 'Brexit Moment', Congress Approves Pensions Drawdown Bill**\
+`Chilean lawmakers punched the air and waved the national flag in Congress on Thursday after giving final approval to a government-contested bill to allows citizens to withdraw 10% of their pension savings to help ease the economic pain wrought by the novel coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/07/23/business/23reuters-health-coronavirus-chile-pensions.html?searchResultPosition=2
+
 **Whirlpool, Meritage Rise; Kinder Morgan, Union Pacific Fall**\
 `Stocks that moved heavily or traded substantially on Thursday:`\
-https://nytimes.com/aponline/2020/07/23/business/ap-financial-markets-stocks.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/23/business/ap-financial-markets-stocks.html?searchResultPosition=3
 
 **Anthony Terlato, Who Brought Pinot Grigio to the U.S., Dies at 86**\
 `In a 60-year career as a wine importer and marketer, he introduced Americans to lesser-known labels and shaped tastes.`\
-https://nytimes.com/2020/07/23/dining/drinks/anthony-terlato-dead.html?searchResultPosition=2
+https://nytimes.com/2020/07/23/dining/drinks/anthony-terlato-dead.html?searchResultPosition=4
 
 **Court Upholds Alex Jones Sanctions in Sandy Hook Case**\
 `The Connecticut Supreme Court on Thursday upheld a sanction against Infowars host Alex Jones over an angry outburst on his web show against an attorney for relatives of some of the Sandy Hook Elementary School shooting victims, who are suing him for defamation.`\
-https://nytimes.com/aponline/2020/07/23/us/ap-us-newtown-shooting-infowars.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/23/us/ap-us-newtown-shooting-infowars.html?searchResultPosition=5
 
 **Johnny Depp and Amber Heard’s Courtroom Face-Off: An Explainer**\
 `The “Pirates of the Caribbean” star is suing a British newspaper for claiming he was violent toward his former wife. It’s a battle in which both stars could lose.`\
-https://nytimes.com/2020/07/23/movies/johnny-depp-amber-heard-trial.html?searchResultPosition=4
+https://nytimes.com/2020/07/23/movies/johnny-depp-amber-heard-trial.html?searchResultPosition=6
 
 **Ohio Governor Calls for Repeal of State Nuclear Bailout Bill Under Probe**\
 `Ohio Governor Mike DeWine on Thursday reversed course and called on the state's legislature to repeal and replace a nuclear energy bailout bill at the center of a federal investigation into bribery.`\
-https://nytimes.com/reuters/2020/07/23/us/23reuters-ohio-nuclearpower.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/07/23/us/23reuters-ohio-nuclearpower.html?searchResultPosition=7
 
 **Baptist Pastor Is Fired After Coming Out as Transgender**\
 `Junia Joplin was a pastor at the Lorne Park Baptist Church in Ontario when she told members in a sermon last month that she is transgender. The congregation narrowly voted to terminate her contract.`\
-https://nytimes.com/2020/07/23/world/canada/junia-joplin-transgender-lorne-park-baptist.html?searchResultPosition=6
+https://nytimes.com/2020/07/23/world/canada/junia-joplin-transgender-lorne-park-baptist.html?searchResultPosition=8
 
 **Whitey Bulger's Girlfriend Completes Prison Sentence**\
 `The longtime girlfriend of late Boston gangster James “Whitey” Bulger has completed her federal prison sentence and moved in with her twin sister.`\
-https://nytimes.com/aponline/2020/07/23/us/ap-us-whitey-bulger-girlfriend-1st-ld-writethru.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/07/23/us/ap-us-whitey-bulger-girlfriend-1st-ld-writethru.html?searchResultPosition=9
 
 **U.S. Stock Funds Draw $3.3 Billion in Latest Week: Lipper**\
 `U.S.-based stock funds in the week ended Wednesday saw $3.3 billion of inflows, according to Lipper.`\
-https://nytimes.com/reuters/2020/07/23/business/23reuters-usa-investments-mutualfunds.html?searchResultPosition=8
-
-**Prosecution Wants 25-Year Term in Slovak Reporter's Slaying**\
-`A prosecutor in Slovakia on Thursday requested 25-year prison terms for three remaining defendants in the alleged contract killings of an investigative journalist and his fiancee, a case that triggered a political crisis and brought down the country’s government. `\
-https://nytimes.com/aponline/2020/07/23/world/europe/ap-eu-slovakia-journalist-killed.html?searchResultPosition=9
-
-**Chilean Extradited to France for Killing of Japanese Student**\
-`A plane carrying a Chilean man accused of murdering a Japanese student in France took off from Santiago's airport Thursday bound for Paris, where he will face trial for the alleged 2016 slaying. `\
-https://nytimes.com/aponline/2020/07/23/world/americas/ap-lt-chile-france-extradition-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/23/business/23reuters-usa-investments-mutualfunds.html?searchResultPosition=10
 
