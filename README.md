@@ -2,8 +2,8 @@
 `As a 17-year-old SS private, Bruno Dey could hear the screams of Jews dying in the gas chamber of Nazi Germany’s Stutthof concentration camp from his post in a guard tower, and watched daily as their bodies were carted to the crematorium to be turned into ash. `\
 https://nytimes.com/aponline/2020/07/23/world/europe/ap-eu-germany-nazi-trial.html?searchResultPosition=1
 
-**Unilever Q2 Sales Beat Estimates, to Separate Part of Tea Business Into New Entity**\
-`Consumer goods giant Unilever reported a smaller than expected drop in quarterly sales on Thursday, helped by strong demand for food and hygiene products.`\
+**Unilever Sales Fall Less Than Expected as U.S. Outperforms**\
+`Second-quarter sales at Unilever fell much less than expected as strong growth in North America helped to offset the hit from coronavirus lockdowns.  `\
 https://nytimes.com/reuters/2020/07/23/business/23reuters-unilever-results.html?searchResultPosition=2
 
 **Asian Shares Waver as Investors Weigh Stimulus Hopes Against Sino-U.S. Tensions**\
