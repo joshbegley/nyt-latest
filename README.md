@@ -1,40 +1,40 @@
-**Ohio GOP Lawmakers Push to Repeal Energy Bill Amid Scandal**\
-`Mirroring their Democratic colleagues, House Republicans on Thursday launched an effort to repeal a nuclear bailout law and “sanitize” legislative activity as a bribery scandal unfolds over the law’s passage.`\
-https://nytimes.com/aponline/2020/07/23/business/ap-us-bribery-investigation-ohio.html?searchResultPosition=1
+**France Won't 'Bow Down' to Criminal Violence, Vows Interior Minister**\
+`France's new interior minister sought on Thursday to project a  tougher stance on security after a shooting this week in a suburb of the Riviera city of Nice, saying the country would not bow to criminal violence.`\
+https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-france-politics-security.html?searchResultPosition=1
 
-**With Covid-19, a Seismic Quiet Like No Other**\
-`Coronavirus shutdowns led to “the longest and most coherent global seismic noise reduction in recorded history,” scientists report.`\
-https://nytimes.com/2020/07/23/science/coronavirus-seismic-activity.html?searchResultPosition=2
+**Kuwait's Emir Arrives in the U.S. for Medical Treatment and Is in a Stable Condition: KUNA**\
+`Kuwait's 91-year-old ruler Emir Sheikh Sabah al-Ahmad al-Sabah arrived in the United States on Thursday to complete his medical treatment, the state news agency reported, adding he was in stable condition.`\
+https://nytimes.com/reuters/2020/07/23/world/middleeast/23reuters-kuwait-politics-ruler-health.html?searchResultPosition=2
 
-**Viking Age Smallpox Complicates Story of Viral Evolution**\
-`An extinct version of the smallpox virus dating to 1,400 years ago prompts speculation about viruses becoming more lethal over time.`\
-https://nytimes.com/2020/07/23/science/smallpox-vikings-genetics.html?searchResultPosition=3
+**U.S. Ad Market Faces Longer Road to Recovery as States' Reopening Efforts Sputter**\
+`Not so long ago, advertising executives were banking on the start of an industry recovery as early as the third quarter after the global coronavirus pandemic decimated marketing budgets this year. `\
+https://nytimes.com/reuters/2020/07/23/business/23reuters-usa-advertising-preview.html?searchResultPosition=3
 
-**French Coronavirus New Cases Rise, Death Toll Edges Up**\
-`France's public health authority said on Thursday there had been a significant rise in confirmed, new cases of people suffering from COVID-19, as the number of deaths in the country edged up.`\
-https://nytimes.com/reuters/2020/07/23/world/europe/23reuters-health-coronavirus-france.html?searchResultPosition=4
+**Kentucky Coal Operator Files for Bankruptcy Protection**\
+`A coal operator headquartered in Kentucky, which bought assets from Blackjewel LLC after the company went bankrupt last year, has now filed for bankruptcy protection.`\
+https://nytimes.com/aponline/2020/07/23/business/ap-us-coal-company-bankruptcy-1st-ld-writethru.html?searchResultPosition=4
 
-**Coming Next Year to the N.H.L.: The Seattle Kraken**\
-`The team’s new name and logo reference a mythical sea monster that has taken on popular appeal in recent years. It is already being met with cheers.`\
-https://nytimes.com/2020/07/23/sports/hockey/seattle-kraken-nhl-team-name.html?searchResultPosition=5
+**Germany Plans Regulatory Overhaul After Wirecard Scandal: Newspaper**\
+`German Finance Minister Olaf Scholz is seeking a regulatory overhaul to avoid a repeat of the supervisory failures that allowed Wirecard build up a 2 billion euro hole in its accounts before collapsing last month, Sueddeutsche Zeitung reported.`\
+https://nytimes.com/reuters/2020/07/23/business/23reuters-wirecard-accounts-scholz.html?searchResultPosition=5
 
-**Blackstone Second Quarter Distributable Earnings Drop as Asset Sales Slow**\
-`Blackstone Group Inc, the world's largest alternative asset manager, said on Thursday its distributable earnings fell 23% year-on-year in the second quarter, as the coronavirus outbreak made it more difficult to divest assets.`\
-https://nytimes.com/reuters/2020/07/23/business/23reuters-blackstone-group-results.html?searchResultPosition=6
+**A Hedge Fund Bailout Highlights How Regulators Ignored Big Risks**\
+`The Dodd-Frank financial law succeeded at making banks safer, but empowered shadowy corners of finance that nearly wrecked the system in March.`\
+https://nytimes.com/2020/07/23/business/economy/hedge-fund-bailout-dodd-frank.html?searchResultPosition=6
 
-**NFL Teams to See Fruits of Virtual Offseason as Camps Begin**\
-`Players are reconvening for a training camp unlike any other, and the ramifications of their remote offseason will soon become apparent.`\
-https://nytimes.com/aponline/2020/07/23/sports/football/ap-fbn-remote-ramifications.html?searchResultPosition=7
+**Convictions, Life Sentences Upheld in 'Cathouse' Slayings**\
+`An appeals court on Thursday affirmed the murder convictions and life sentences of two men in the 2009 slayings of four people in Oklahoma City, including a woman who was featured on the HBO series “Cathouse.”`\
+https://nytimes.com/aponline/2020/07/23/us/ap-us-cathouse-oklahoma-killings.html?searchResultPosition=7
 
-**Elon Musk's SpaceX in Talks to Raise Funds at $44 Billion Valuation: Bloomberg News**\
-`Billionaire Elon Musk's SpaceX is looking to raise new capital at a valuation of about $44 billion, Bloomberg News reported on Thursday, citing people familiar with the matter.`\
-https://nytimes.com/reuters/2020/07/23/business/23reuters-spacex-funding.html?searchResultPosition=8
+**Kansan Who Abused Mentally Ill Patients Denied Early Release**\
+`A federal judge has refused to free an ailing inmate from Kansas who, along with his wife, was convicted of abusing mentally ill patients at their treatment center, including by forcing them to work naked and engage in sexual acts, while billing the government and their families for the supposed therapy.`\
+https://nytimes.com/aponline/2020/07/23/us/ap-us-servitude-case.html?searchResultPosition=8
 
-**A Brooklyn Restaurant’s Answer to Cabin Fever: Summer Camp**\
-`Olmsted, like many of its New York City peers, is trying to make the most of a strange season by serving up fun and games along with the distancing.`\
-https://nytimes.com/2020/07/23/dining/outdoor-dining-olmsted-summer-camp.html?searchResultPosition=9
+**Senators Say N.C.A.A. Needs Broad Reform**\
+`As the N.C.A.A. appealed for a federal policy for name, image and likeness rights, senators criticized the organization’s handling of amateurism rules and the return of sports amid the pandemic.`\
+https://nytimes.com/2020/07/23/sports/ncaa-NIL-rights.html?searchResultPosition=9
 
-**HBO to Adapt Ta-Nehisi Coates' 'Between the World and Me'**\
-`A stage production of Ta-Nehisi Coates' "Between the World and Me," his prize winning book about racism and police violence, is being adapted by HBO for a special this fall. `\
-https://nytimes.com/aponline/2020/07/23/us/ap-us-tv-hbo-between-the-world-and-me.html?searchResultPosition=10
+**French Soldier Killed in Mali Combat Operations: Elysee**\
+`A French soldier was killed in Mali on Thursday morning after combat operations against militants, President Emmanuel Macron's office said. `\
+https://nytimes.com/reuters/2020/07/23/world/africa/23reuters-sahel-security-france.html?searchResultPosition=10
 
