@@ -2,9 +2,9 @@
 `A Pakistani journalist known for his criticism of the country’s military on Thursday recounted his ordeal this week when armed men abducted him in broad daylight and held him captive for a day. `\
 https://nytimes.com/aponline/2020/07/23/world/asia/ap-as-pakistan-journalist-freed.html?searchResultPosition=1
 
-**Keith Sonnier, Who Sculpted With Neon, Dies at 78**\
-`In the wake with Minimalism, he infused his art with a sense of poetry and play.`\
-https://nytimes.com/2020/07/23/arts/keith-sonnier-who-sculpted-with-neon-dies-at-78.html?searchResultPosition=2
+**Keith Sonnier, Playful Sculptor in Neon, Dies at 78**\
+`He tweaked the solemnity of Minimalism with a sense of poetry and fun, using functional everyday materials.`\
+https://nytimes.com/2020/07/23/arts/keith-sonnier-playful-sculptor-in-neon-dies-at-78.html?searchResultPosition=2
 
 **Pompeo Comments Are ‘Untrue and Unacceptable,’ W.H.O. Director Says**\
 `The director of the World Health Organization rejected reported claims by Secretary of State Mike Pompeo that China had undue influence over the organization.`\
