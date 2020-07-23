@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/07/23/sports/cycling/23reuters-usa-olympics-lea
 `Covid-19 outbreaks are putting Spain back under pressure, but this time the focus is on younger people and the risk that they are unwittingly spreading the virus.`\
 https://nytimes.com/2020/07/23/world/europe/spain-coronavirus-reopening.html?searchResultPosition=7
 
-**Chinese Fugitive Being Harbored in San Francisco Consulate, FBI Interviewing Visa Holders Nationwide**\
-`The FBI has arrested three Chinese nationals for visa fraud, while a fourth remains a fugitive staying at China's consulate in San Francisco, the U.S. Justice Department said on Thursday, adding that the four are believed to have been members of the military posing as researchers. `\
+**FBI Interviewing Chinese Visa Holders Across U.S. About Possible Military Ties - Justice Dept**\
+`The FBI has interviewed visa holders it believes to secretly be members of the Chinese military in more than two dozen U.S. cities, the Justice Department said on Thursday.`\
 https://nytimes.com/reuters/2020/07/23/world/asia/23reuters-usa-china-consulate-fbi.html?searchResultPosition=8
 
 **Review Fast Tracked for Nevada Vanadium Mine, 1st in the US**\
