@@ -1,5 +1,5 @@
-**Intel Forecasts Third-Quarter Revenue Above Estimates**\
-`Chipmaker Intel Corp on Thursday forecast third-quarter revenue above Wall Street estimates, a sign that a shift to working and learning from home could provide a boost for a new laptop chip the company is expected to release this fall.`\
+**Intel Says New Chip Technology Is Six Months Behind, Shares Drop 6%**\
+`Intel Corp said on Thursday its new 7nm chip technology was six months behind schedule, sending its shares down 6% in extended trading.`\
 https://nytimes.com/reuters/2020/07/23/business/23reuters-intel-results.html?searchResultPosition=1
 
 **Pakistani Journalist Recounts Ordeal, Abduction by Armed Men**\
