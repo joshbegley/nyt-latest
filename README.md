@@ -14,7 +14,7 @@ https://nytimes.com/reuters/2020/07/23/world/23reuters-emerging-inflation-graphi
 `Turkey on Thursday appointed appointed three imams for Hagia Sophia, one of them a professor of religious studies, as the nation prepares for the first Muslim prayers in the Istanbul landmark in 86 years following its conversion back into a mosque.`\
 https://nytimes.com/aponline/2020/07/23/world/europe/ap-eu-turkey-hagia-sophia.html?searchResultPosition=4
 
-**AP, Sony Reach Deal for New Still and Digital Cameras**\
+**AP, Sony Reach Deal for New Still and Video Cameras**\
 `The Associated Press says it has reached a deal with Sony Electronics to exclusively equip its photojournalists with new video and still cameras over the next two years.`\
 https://nytimes.com/aponline/2020/07/23/business/bc-us-media-ap-photos.html?searchResultPosition=5
 
