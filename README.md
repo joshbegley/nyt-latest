@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/07/23/sports/baseball/23reuters-baseball-mlb-pl
 `China reported 22 new coronavirus cases in the mainland for July 22, up from 14 cases a day earlier, the health commission said on Thursday.`\
 https://nytimes.com/reuters/2020/07/23/world/asia/23reuters-health-coronavirus-china-cases.html?searchResultPosition=6
 
-**India Working on Production Linked Incentives for 4-5 Sectors**\
-`India is working on offering production linked incentives for 4-5 sectors to boost manufacturing in the country, a top finance ministry official said on Thursday. `\
+**India to Offer Production Linked Incentives to Boost Manufacturing**\
+`India is working on offering production linked incentives for up to five sectors to boost domestic manufacturing, a top finance ministry official said on Thursday, bolstering efforts to attract new investments in the coronavirus-stricken economy. `\
 https://nytimes.com/reuters/2020/07/23/world/asia/23reuters-india-economy-finmin.html?searchResultPosition=7
 
 **Influential Cleric Dicko Emerges as Driver of Mali Protest Movement**\
