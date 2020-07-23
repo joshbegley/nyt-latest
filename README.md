@@ -1,40 +1,40 @@
+**Pakistani Journalist Recounts Ordeal, Abduction by Armed Men**\
+`A Pakistani journalist known for his criticism of the country’s military on Thursday recounted his ordeal this week when armed men abducted him in broad daylight and held him captive for a day. `\
+https://nytimes.com/aponline/2020/07/23/world/asia/ap-as-pakistan-journalist-freed.html?searchResultPosition=1
+
+**Keith Sonnier, Who Sculpted With Neon, Dies at 78**\
+`In the wake with Minimalism, he infused his art with a sense of poetry and play.`\
+https://nytimes.com/2020/07/23/arts/keith-sonnier-who-sculpted-with-neon-dies-at-78.html?searchResultPosition=2
+
 **Pompeo Comments Are ‘Untrue and Unacceptable,’ W.H.O. Director Says**\
 `The director of the World Health Organization rejected reported claims by Secretary of State Mike Pompeo that China had undue influence over the organization.`\
-https://nytimes.com/video/world/100000007253595/world-health-organization-pompeo-china.html?searchResultPosition=1
+https://nytimes.com/video/world/100000007253595/world-health-organization-pompeo-china.html?searchResultPosition=3
 
 **Movie Theaters Implore Studios: Release the Blockbusters**\
 `A long time ago in a pre-COVID universe far, far away, blockbusters opened around the globe simultaneously or nearly so. In 1975, “Jaws” set the blueprint. Concentrate marketing. Open wide. Pack them in.`\
-https://nytimes.com/aponline/2020/07/23/business/bc-us-virus-outbreak-blockbusters-in-wait.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/23/business/bc-us-virus-outbreak-blockbusters-in-wait.html?searchResultPosition=4
 
 **Seven Democratic Senators Urge Caution on Google's Purchase of Fitbit**\
 `Senators Amy Klobuchar and Elizabeth Warren and five other Democratic senators on Thursday urged the Justice Department to be cautious in reviewing Google's planned purchase of Fitbit, saying the tech giant had already cemented its dominance in some areas through acquisitions.`\
-https://nytimes.com/reuters/2020/07/23/business/23reuters-fitbit-m-a-alphabet.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/23/business/23reuters-fitbit-m-a-alphabet.html?searchResultPosition=5
 
 **Islamic State Group Says It Killed 5 Aid Workers in Nigeria**\
 `Militants from an Islamic State affiliate claimed responsibility Thursday for killing five aid workers who were kidnapped last month in northeastern Nigeria.`\
-https://nytimes.com/aponline/2020/07/23/world/africa/ap-af-nigeria-aid-workers-killed.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/07/23/world/africa/ap-af-nigeria-aid-workers-killed.html?searchResultPosition=6
 
 **Closing Prices for Crude Oil, Gold and Other Commodities**\
 `Benchmark U.S. crude oil for September delivery fell 83 cents to settle at $41.07 a barrel Thursday. Brent crude oil for September delivery fell 98 cents to $43.31 a barrel.`\
-https://nytimes.com/aponline/2020/07/23/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/07/23/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=7
 
 **Sane Says He Won't Suffer if City Lifts Euro Cup Without Him**\
 `In a season shaken up by the pandemic, Leroy Sane took the decision to prioritize the next one.`\
-https://nytimes.com/aponline/2020/07/23/sports/soccer/ap-soc-bayern-munich-sane.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/07/23/sports/soccer/ap-soc-bayern-munich-sane.html?searchResultPosition=8
 
 **Israeli Fighter Jet Comes Close to Iranian Passenger Plane Over Syrian Airspace: IRIB News Agency**\
 `An Israeli fighter jet came close to an Iranian passenger plane over Syrian airspace causing the pilot to change altitude quickly to avoid collision, which injured several passengers, the IRIB news agency reported on Thursday.`\
-https://nytimes.com/reuters/2020/07/23/world/middleeast/23reuters-iran-israel-airplane.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/07/23/world/middleeast/23reuters-iran-israel-airplane.html?searchResultPosition=9
 
 **Who Gets the Covid-19 Vaccine First? Here’s One Idea**\
 `A weighted lottery gives everyone a chance at a drug or vaccine in short supply. But some have a better shot than others.`\
-https://nytimes.com/2020/07/23/health/coronavirus-vaccine-allocation.html?searchResultPosition=8
-
-**Why the U.S. Chamber of Commerce Is Suing the Trump Administration**\
-`The president’s immigration policies are bad for business.`\
-https://nytimes.com/2020/07/23/opinion/trump-chamber-of-commerce-lawsuit.html?searchResultPosition=9
-
-**Air Force Academy Cadets to Return to Campus in the Fall**\
-`All cadets at the Air Force Academy will return to the Colorado Springs campus in the fall, making the university one of the first in the country to return during the coronavirus pandemic, federal officials said.`\
-https://nytimes.com/aponline/2020/07/23/us/ap-us-virus-outbreak-colorado.html?searchResultPosition=10
+https://nytimes.com/2020/07/23/health/coronavirus-vaccine-allocation.html?searchResultPosition=10
 
