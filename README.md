@@ -4,7 +4,7 @@ https://nytimes.com/reuters/2020/07/22/business/22reuters-mexico-pensions.html?s
 
 **House Democrats Considered 10 Impeachment Articles Before Narrowing Their Case Against Trump**\
 `The question of what to include in the case against President Trump is at the heart of a new book by Norm Eisen, a lawyer working with House Democrats in the impeachment effort.`\
-https://nytimes.com/2020/07/22/us/politics/house-democrats-impeachment-articles.html?searchResultPosition=2
+https://nytimes.com/2020/07/22/us/politics/trump-impeachment.html?searchResultPosition=2
 
 **Glamping Option**\
 `Robyn Weintraub offers us a contender for puzzle of the year.`\
