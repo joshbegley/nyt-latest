@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/07/23/sports/baseball/ap-bbo-yankees-nationals
 https://nytimes.com/2020/07/23/us/politics/pentagon-ufo-harry-reid-navy.html?searchResultPosition=6
 
 **Watchdog to Review Conduct of Federal Agents in Portland, DC**\
-`The Justice Department inspector general said Thursday that it will conduct a review of the conduct of federal agents who responded to unrest in Portland, Oregon and Washington, D.C.`\
+`The Justice Department inspector general said Thursday that it will conduct a review of the conduct of federal agents who responded to unrest in Portland, Oregon and Washington, D.C., following concerns from members of Congress and the public.`\
 https://nytimes.com/aponline/2020/07/23/us/politics/ap-us-racial-injustice-federal-review.html?searchResultPosition=7
 
 **Colombia Seizes Properties of Businessman Tied to Maduro**\
