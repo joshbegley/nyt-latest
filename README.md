@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/07/24/world/europe/24reuters-bulgaria-governmen
 https://nytimes.com/reuters/2020/07/24/world/europe/24reuters-turkey-hagiasophia.html?searchResultPosition=4
 
 **Always Rocky, China-US Relations Appear at a Turning Point**\
-`Four decades after the U.S. established diplomatic ties with communist China, the relationship between the two is at a turning point.`\
+`Four decades after the U.S. established diplomatic ties with Communist China, the relationship between the two is at a turning point.`\
 https://nytimes.com/aponline/2020/07/24/world/asia/ap-as-china-us-rocky-relations-.html?searchResultPosition=5
 
 **Pompeo Urges More Assertive Approach to 'Frankenstein' China**\
