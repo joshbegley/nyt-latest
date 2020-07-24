@@ -1,40 +1,40 @@
+**No Masks, Just Questions, in Kansas Counties With No Cases**\
+`Some businesses in two western Kansas counties that have yet to report a single positive coronavirus case aren’t requiring customers to wear face masks — but they are asking whether they have traveled outside the county.`\
+https://nytimes.com/aponline/2020/07/24/us/ap-us-virus-outbreak-kansas-no-cases.html?searchResultPosition=1
+
+**White House, GOP at Odds Over Jobless Aid in Virus Bill**\
+`Negotiations over the next COVID-19  rescue bill were in flux Friday after the White House floated cutting an unemployment benefits boost to as little as $100 and President Donald Trump turned to a new priority, adding money to build a new FBI headquarters. `\
+https://nytimes.com/aponline/2020/07/24/business/bc-us-virus-outbreak-congress.html?searchResultPosition=2
+
+**French Refinery Leaks Toxic Chemical Into Marine Life Area**\
+`An orange-brown chemical sheet spread over 15 acres (6 hectares) of a nationally recognized marine life area in the French Mediterranean following a leak at a petrochemical plant in southern France, the local fire service said Friday.`\
+https://nytimes.com/aponline/2020/07/24/business/ap-eu-france-plant-leak.html?searchResultPosition=3
+
+**At Wall Street Journal, News Staff and Opinion Side Clash**\
+`A heated dispute between the newsroom and the opinion section of one of the country’s most respected news organizations has spilled into public view.`\
+https://nytimes.com/2020/07/24/business/media/wall-street-journal-news-opinion-clash-letter.html?searchResultPosition=4
+
+**Closing Prices for Crude Oil, Gold and Other Commodities**\
+`Benchmark U.S. crude oil for September delivery rose 22 cents to settle at $41.29 a barrel Friday. Brent crude oil for September delivery rose 3 cents to $43.34 a barrel.`\
+https://nytimes.com/aponline/2020/07/24/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=5
+
+**Mine Developer Sees Review as Positive for Alaska Project**\
+`The developer of a proposed copper and gold mine near the headwaters of a major U.S. salmon fishery in southwest Alaska believes it's on track to win key federal approvals, with the release of an environmental review suggesting the Pebble Mine would not measurably affect fish numbers.`\
+https://nytimes.com/aponline/2020/07/24/business/bc-us-alaska-pebble-mine-3rd-ld-writethru.html?searchResultPosition=6
+
+**Cuomo Accuses U.S. Immigration Chiefs of Breaching Oath in Travel Lawsuit**\
+`New York Governor Andrew Cuomo said the state may seek damages after the Trump administration admitted making false statements in a U.S. lawsuit over New Yorkers being barred from a program that allows the use of expedited lanes at U.S. airports.`\
+https://nytimes.com/reuters/2020/07/24/us/24reuters-usa-immigration-travel.html?searchResultPosition=7
+
+**NOT REAL NEWS: A Look at What Didn't Happen This Week**\
+`A roundup of some of the most popular but completely untrue stories and visuals of the week. None of these are legit, even though they were shared widely on social media. The Associated Press checked them out. Here are the facts:`\
+https://nytimes.com/aponline/2020/07/24/us/ap-not-real-news.html?searchResultPosition=8
+
 **After Rough Start, MLS Bubble in Florida Seems to Be Working**\
 `Jeff Agoos arrived inside the Major League Soccer bubble in Florida in late June. `\
-https://nytimes.com/aponline/2020/07/24/sports/soccer/ap-soc-mls-knockout-rounds.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/24/sports/soccer/ap-soc-mls-knockout-rounds.html?searchResultPosition=9
 
 **U.S. Will Relax Rules to Export More Aerial Drones**\
 `The Trump administration will reinterpret a Cold War-era arms agreement between 34 nations to allow U.S. defense contractors to sell more drones to allies, a State Department official said on Friday.`\
-https://nytimes.com/reuters/2020/07/24/us/24reuters-usa-arms-trump.html?searchResultPosition=2
-
-**Report: Red Sox' Rodriguez Has Virus-Related Heart Issue**\
-`Red Sox starting pitcher Eduardo Rodriguez is battling a heart condition linked to his COVID-19 diagnosis, Boston radio station WEEI reported Friday, citing sources.`\
-https://nytimes.com/reuters/2020/07/24/sports/24reuters-baseball-mlb-bos-rodriguez-coronavirus.html?searchResultPosition=3
-
-**A Telephone Is Your Friend, but a Tablet Can Betray You**\
-`A reader wants to know how screen breaks should work when our mental escapes also come via screens.`\
-https://nytimes.com/2020/07/24/at-home/newsletter.html?searchResultPosition=4
-
-**Atlanta United Part Ways With Manager De Boer After Dismal Restart**\
-`Atlanta United have parted company with manager Frank de Boer by mutual agreement, the Major League Soccer club announced on Friday.`\
-https://nytimes.com/reuters/2020/07/24/sports/soccer/24reuters-soccer-usa-atl.html?searchResultPosition=5
-
-**With No Deal to Curb Drug Costs, Trump Tries His Own Changes**\
-`Unable to land the big deal with Congress to curb drug costs, President Donald Trump is moving on his own to allow imports of prescription medicines, along with other limited steps that might have some election-year appeal. `\
-https://nytimes.com/aponline/2020/07/24/business/ap-us-trump-prescription-drugs-.html?searchResultPosition=6
-
-**Seahawks QB Russell Wilson, Wife Ciara Welcome Baby Boy**\
-`Seattle Seahawks quarterback Russell Wilson and his pop star wife Ciara are now parents to a baby boy. `\
-https://nytimes.com/aponline/2020/07/24/us/ap-us-people-ciara-russell-wilson.html?searchResultPosition=7
-
-**Howard Hughes' Engagement Ring for Katharine Hepburn Sells for $108,000**\
-`The emerald and diamond engagement ring that Howard Hughes gave to Hollywood star Katharine Hepburn in 1938 sold for $108,000 at a Los Angeles auction - more than three times the expected price - while a collection of her love letters to him fetched $44,800. `\
-https://nytimes.com/reuters/2020/07/24/arts/24reuters-people-howard-hughes-auction.html?searchResultPosition=8
-
-**Providing a Pandemic Safety Net, Nonprofits Need Their Own**\
-`Even as the economic crisis creates new demand for their services, organizations with millions of workers are resorting to layoffs as revenues dry up.`\
-https://nytimes.com/2020/07/24/business/economy/nonprofits-coronavirus-economy.html?searchResultPosition=9
-
-**Mexico City Mayor Warns of Potential Coronavirus Rebound as Hospitalizations Rise**\
-`The mayor of Mexico City warned on Friday of a possible resurgence of coronavirus cases in the sprawling capital in the coming months, noting that hospitalizations have been on the rise in recent days.`\
-https://nytimes.com/reuters/2020/07/24/world/americas/24reuters-health-coronavirus-mexico.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/24/us/24reuters-usa-arms-trump.html?searchResultPosition=10
 
