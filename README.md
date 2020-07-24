@@ -1,5 +1,5 @@
 **A.O.C. Unleashes a Viral Condemnation of Sexism in Congress**\
-`After a Republican lawmaker referred to Representative Alexandria Ocasio-Cortez using a sexist vulgarity, she took to the House floor to denounce the abuse women in Congress and across the nation face.`\
+`After a Republican lawmaker referred to Representative Alexandria Ocasio-Cortez using a sexist vulgarity, she took to the House floor to denounce the abuse faced by women in Congress and across the nation.`\
 https://nytimes.com/2020/07/23/us/alexandria-ocasio-cortez-sexism-congress.html?searchResultPosition=1
 
 **‘Person. Woman. Man. Camera. TV.’ Didn’t Mean What Trump Hoped It Did**\
