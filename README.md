@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/07/23/us/politics/23reuters-people-john-lewis-c
 `The United States is among the countries facing the worst of the global outbreak, while much of Europe and Asia has flattened the curve.`\
 https://nytimes.com/interactive/2020/07/23/us/coronavirus-hotspots-countries.html?searchResultPosition=3
 
-**ATP Cancels China Tournament Swing Due to COVID-19**\
-`The men's ATP Tour said on Friday it has canceled the 2020 China tournament swing after the decision of the country's sports authority to not hold any international sporting events due to the COVID-19 pandemic. `\
+**ATP, WTA Cancel China Events, Including Shenzen Finals**\
+`The two main tennis tours on Friday cancelled all of their remaining tournaments in China for this year, including the flagship WTA Finals, in the wake of the country's ban on international sporting events due to the COVID-19 pandemic.`\
 https://nytimes.com/reuters/2020/07/23/sports/tennis/23reuters-health-coronavirus-tennis-china.html?searchResultPosition=4
 
 **Tokyo 2020 Must Be Simple and Safe, Says IOC's Coates**\
