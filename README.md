@@ -1,40 +1,40 @@
-**Speaker Snared in Ohio Bribery Probe Liked to Play Long Game**\
-`Tension was thick in the air. After 10 consecutive votes in which another man had garnered more support than Larry Householder's favored candidate to be the next Ohio House speaker, Householder leaned back quietly in his chair, arms confidently propped behind his head. `\
-https://nytimes.com/aponline/2020/07/24/us/ap-us-bribery-investigation-ohio-speaker.html?searchResultPosition=1
+**Hertz to Pay Lenders $650 Million to Resolve Dispute Over Fleet Reduction**\
+`Hertz Global Holdings Inc said on Friday it has reached an interim $650-million deal with its lenders to resolve a bankruptcy court fight over the company's plan to reduce its leased fleet of rental cars.  `\
+https://nytimes.com/reuters/2020/07/24/us/24reuters-hertz-glo-hldg-fleet.html?searchResultPosition=1
 
-**Bali Police Arrest American Wanted in Investment Fraud**\
-`Authorities on the Indonesian resort island of Bali have arrested an American fugitive accused of investment fraud in the United States involving hundreds of thousands of dollars, police said Friday.`\
-https://nytimes.com/aponline/2020/07/24/world/asia/ap-as-indonesia-american-fugitive.html?searchResultPosition=2
+**Iran Condemns U.S. After Warplane Fly-By Panicks Iranian Airliner Passengers**\
+`Iran on Friday dismissed a U.S. explanation that a U.S. jet was conducting a visual inspection when it "harassed" an Iranian civilian airliner, saying the plane was forced to rapidly change altitude to avoid collision, injuring and panicking passengers.`\
+https://nytimes.com/reuters/2020/07/24/world/middleeast/24reuters-iran-usa-airplane.html?searchResultPosition=2
 
-**2020 Election Live Updates: Requiem for a Convention**\
-`President Trump retreated on the Republican National Convention as the coronavirus pandemic continued to upend the presidential contest. In Washington, John Lewis will lie in state at the Capitol.`\
-https://nytimes.com/2020/07/24/us/elections/trump-vs-biden.html?searchResultPosition=3
+**Sub-Saharan Africa GDP to Contract 3.1% This Year: Reuters Poll**\
+`Sub-Saharan Africa's economy will contract this year after shutdowns disrupted activity and as daily cases of coronavirus are still rising in the region but a recovery is expected next year, a Reuters poll found on Friday.`\
+https://nytimes.com/reuters/2020/07/24/world/africa/24reuters-africa-economy-poll.html?searchResultPosition=3
 
-**Factbox: Praying at Hagia Sophia, Erdogan Crowns Long Campaign to Revitalise Islam in Turkey**\
-`President Tayyip Erdogan attended the first prayers at Turkey's Hagia Sophia on Friday since declaring the ancient monument a mosque, crowning his long campaign to place Islam at the heart of public life in the once fiercely secular republic.`\
-https://nytimes.com/reuters/2020/07/24/world/europe/24reuters-turkey-hagiasophia-erdogan-factbox.html?searchResultPosition=4
+**Goldman Sachs and Malaysia Agree to $3.9 Billion Settlement Over 1MDB Scandal**\
+`The deal settles charges prosecutors against the Wall Street bank for its role in helping to raise hundreds of millions of dollars for a sovereign wealth fund that was used as a personal piggy bank.`\
+https://nytimes.com/2020/07/24/business/goldman-sachs-malaysia-1mdb.html?searchResultPosition=4
 
-**Goldman Sachs $3.9B Settlement With Malaysia Over 1MDB**\
-`Goldman Sachs has reached a $3.9B settlement with Malaysia over the 1MDB sovereign wealth fund that was used to launder money.`\
-https://nytimes.com/aponline/2020/07/24/business/bc-as-malaysia-corruption.html?searchResultPosition=5
+**Cineworld, AMC Shares Fall as Cancelled Premieres Spell More Pressure**\
+`Shares in cinema operators Cineworld and AMC fell on Friday after Disney delayed the release of "Mulan", the latest Hollywood tentpole to be pushed back as theatres remain largely shut because of the coronavirus crisis.`\
+https://nytimes.com/reuters/2020/07/24/business/24reuters-cineworld-stocks.html?searchResultPosition=5
 
-**With a Year to Go, Support Slides for Pandemic-Hit Tokyo Olympics**\
-`Several dozen protesters in masks gathered in front of Japan's National Stadium on Friday, the day the Olympic Games should have begun, to protest against holding them next year given the danger of the novel coronavirus.`\
-https://nytimes.com/reuters/2020/07/24/sports/olympics/24reuters-olympics-2020-1ytg-protests.html?searchResultPosition=6
+**Spain Asks U.S. to Lift Sanctions on Spanish Exports After Airbus Move**\
+`Spanish Foreign Minister Arancha Gonzalez Laya said on Friday that the United States should lift sanctions on Spanish exports after Airbus' move to accept higher interest rates on European state loans in a bid to settle a WTO row with the U.S.`\
+https://nytimes.com/reuters/2020/07/24/world/24reuters-wto-aircraft-airbus-spain.html?searchResultPosition=6
 
-**Indonesia May Return Tax to Companies Amid Pandemic: Deputy Finance Minister**\
-`Indonesia is considering returning tax paid by companies to support them during the coronavirus pandemic, the country's deputy finance minister said on Friday, as the government seeks to retune parts of its economic stimulus. `\
-https://nytimes.com/reuters/2020/07/24/world/asia/24reuters-indonesia-economy-budget.html?searchResultPosition=7
+**Wirecard Scandal Brings Overhaul of EU Fintech Rules Into Sharper Focus**\
+`The collapse of German payments firm Wirecard has become a  focal point for an overhaul of how the European Union regulates the finance industry as it evolves away from traditional banks towards fintech companies, its financial services chief said.`\
+https://nytimes.com/reuters/2020/07/24/business/24reuters-eu-wirecard.html?searchResultPosition=7
 
-**U.S. Healthcare Stocks Flat Ahead of Trump's Drug Pricing Executive Orders**\
-`U.S. healthcare shares were largely unchanged before the opening bell on Friday, ahead of executive orders by U.S. President Donald Trump aimed at lowering drug prices. `\
-https://nytimes.com/reuters/2020/07/24/us/24reuters-usa-drug-pricing-stocks.html?searchResultPosition=8
+**China Will Not Use Property Market as Short-Term Stimulus: Vice Premier**\
+`China's Vice Premier Han Zheng said on Friday that the government will not use the property market as a form of short-term stimulus to prop up the economy, state radio reported.`\
+https://nytimes.com/reuters/2020/07/24/world/asia/24reuters-china-economy-property.html?searchResultPosition=8
 
-**AP Interview: Palermo Open to Mark the Return of Tennis**\
-`Two Grand Slam champions. A finalist from last year’s French Open. A handful of top-20 players.`\
-https://nytimes.com/aponline/2020/07/24/sports/tennis/ap-ten-palermo-open-tennis-returns.html?searchResultPosition=9
+**DealBook: The New Tech Cold War**\
+`Tensions between China and the U.S. are higher than ever. Where do we go from here?`\
+https://nytimes.com/2020/07/24/business/dealbook/china-us-rivalry.html?searchResultPosition=9
 
-**Stock Futures Back Off on U.S.-China Frictions; Intel Sinks**\
-`U.S. stock index futures fell on Friday following heightened tensions between the United States and China, and as Intel's shares slumped after reporting a delay in a developing new chip technology.`\
-https://nytimes.com/reuters/2020/07/24/business/24reuters-usa-stocks.html?searchResultPosition=10
+**Drop in UK COVID Infections Has Levelled Off, Statisticians Say**\
+`The number of people in Britain infected with COVID-19 has stopped falling, and now stands at around one in 2,000 people who are not in hospitals or care homes, the Office for National Statistics said on Friday.`\
+https://nytimes.com/reuters/2020/07/24/world/europe/24reuters-health-coronavirus-britain-infections.html?searchResultPosition=10
 
