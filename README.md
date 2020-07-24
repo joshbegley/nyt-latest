@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/07/24/world/asia/24reuters-health-coronavirus-s
 https://nytimes.com/reuters/2020/07/24/business/24reuters-kazakhstan-usa-chapman-lawsuit.html?searchResultPosition=9
 
 **GSK's Blood Cancer Drug Wins European Panel Thumbs-Up**\
-`GlaxoSmithKline's experimental treatment for a common form of blood cancer won marketing approval from a European Medicines Agency (EMA) panel on Friday.`\
+`A panel of the European Medicines Agency (EMA) on Friday has recommended approving GlaxoSmithKline's experimental treatment for a common form of blood cancer, days after a similar nod from a U.S. Food and Drug Administration panel.`\
 https://nytimes.com/reuters/2020/07/24/world/europe/24reuters-gsk-ema-belantamab-mafodotin.html?searchResultPosition=10
 
