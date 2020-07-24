@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/07/24/arts/24reuters-health-coronavirus-walt-di
 `It doesn’t quite have the ring of “Morning in America” and “I Like Ike.”`\
 https://nytimes.com/aponline/2020/07/24/us/politics/ap-us-trump-cognitive-test.html?searchResultPosition=6
 
-**China Orders U.S. to Shut Consulate in City of Chengdu**\
-`China's foreign ministry said it told the U.S. embassy on Friday morning to close its consulate in the southwestern city of Chengdu, days after Washington abruptly ordered the closure of the Chinese consulate in Houston.`\
+**China Orders U.S. to Shut Chengdu Consulate, Retaliating for Houston**\
+`China ordered the United States to close its consulate in the city of Chengdu on Friday, in a tit-for-tat response to being told to shut its consulate in Houston earlier this week, as  relations between the two world powers deteriorated further.`\
 https://nytimes.com/reuters/2020/07/24/world/asia/24reuters-usa-china-consulate.html?searchResultPosition=7
 
 **Ex-Salvadoran Defense Minister Arrested for Suspected Role in Gang Truce**\
