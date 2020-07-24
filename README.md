@@ -14,7 +14,7 @@ https://nytimes.com/2020/07/24/us/elections/trump-vs-biden.html?searchResultPosi
 `President Tayyip Erdogan attended the first prayers at Turkey's Hagia Sophia on Friday since declaring the ancient monument a mosque, crowning his long campaign to place Islam at the heart of public life in the once fiercely secular republic.`\
 https://nytimes.com/reuters/2020/07/24/world/europe/24reuters-turkey-hagiasophia-erdogan-factbox.html?searchResultPosition=4
 
-**Goldman Sachs in $3.9B Settlement With Malaysia Over 1MDB**\
+**Goldman Sachs $3.9B Settlement With Malaysia Over 1MDB**\
 `Goldman Sachs has reached a $3.9B settlement with Malaysia over the 1MDB sovereign wealth fund that was used to launder money.`\
 https://nytimes.com/aponline/2020/07/24/business/bc-as-malaysia-corruption.html?searchResultPosition=5
 
