@@ -1,40 +1,40 @@
+**Oklahoma Prosecutor Will Not Charge Man Who Drove in Crowd**\
+`A prosecutor in Oklahoma has decided not to charge a motorist who drove through a crowd of people protesting on an interstate following the death of George Floyd and is instead looking at whether to prosecute some of the protesters who were in the path of the vehicle. `\
+https://nytimes.com/aponline/2020/07/24/us/ap-us-racial-injustice-oklahoma.html?searchResultPosition=1
+
+**U.S. Panel Charged to Plan Fair Distribution of Eventual COVID-19 Vaccine**\
+`U.S. public health officials on Friday charged a group of independent scientists and ethicists with developing guidelines to determine who should get the first doses of a COVID-19 vaccine, once one becomes available.`\
+https://nytimes.com/reuters/2020/07/24/us/24reuters-health-coronavirus-vaccine-access.html?searchResultPosition=2
+
+**Fire at Arizona Democratic Headquarters Now an Arson Probe**\
+`Authorities say a fire that destroyed part of the Arizona and Maricopa County Democratic Party headquarters Friday may have been arson. `\
+https://nytimes.com/aponline/2020/07/24/us/ap-us-democratic-party-fire-3rd-ld-writethru.html?searchResultPosition=3
+
+**Brush Fire Put Out Near Iran Military Housing Complex - Reports**\
+`A short-circuit on a power line sparked a brush fire near a housing area for military officials in Tehran on Friday, police and the fire department said, denying there had been an explosion, Iranian news agencies reported.`\
+https://nytimes.com/reuters/2020/07/24/world/middleeast/24reuters-iran-fire.html?searchResultPosition=4
+
+**As He Woos Drugmakers on Virus, Trump Demands Drug Price Controls**\
+`President Trump is trying to revive a 2016 campaign promise to control the rising price of medicines, but new executive orders are coming when he needs drugmakers to deliver coronavirus treatments.`\
+https://nytimes.com/2020/07/24/us/politics/trump-drug-prices-coronavirus.html?searchResultPosition=5
+
 **Baseball Embraces the Weird and Hopes for the Best**\
 `There were cardboard fans, stars benched by the virus, and a last-minute playoff shuffle. While M.L.B. got its season off the ground, much remains out of the league’s control.`\
-https://nytimes.com/2020/07/24/sports/baseball/mlb-opening-day.html?searchResultPosition=1
+https://nytimes.com/2020/07/24/sports/baseball/mlb-opening-day.html?searchResultPosition=6
 
 **Gov't: New Foreign Students Can't Enter US if Courses Online**\
 `A week after revoking sweeping new restrictions on international students, federal immigration officials on Friday announced that new foreign students will be barred from entering the United States if they plan to take their classes entirely online this fall.`\
-https://nytimes.com/aponline/2020/07/24/us/politics/ap-us-virus-outbreak-international-students.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/24/us/politics/ap-us-virus-outbreak-international-students.html?searchResultPosition=7
 
 **Trump on His Tweets: Regrets, He's Had a Few**\
 `Regrets, he's had a few.`\
-https://nytimes.com/aponline/2020/07/24/us/politics/ap-us-trump-tweets.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/24/us/politics/ap-us-trump-tweets.html?searchResultPosition=8
 
 **Indians Wear Road Jerseys in Home Opener to Honor Minorities**\
 `For their delayed home opener, the Indians elected to wear their blue road jerseys with “Cleveland” on the front as a unified statement of solidarity for minorities as the team contemplates a name change.`\
-https://nytimes.com/aponline/2020/07/24/sports/baseball/ap-bba-indians-jersey-protest.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/07/24/sports/baseball/ap-bba-indians-jersey-protest.html?searchResultPosition=9
 
 **Police: Bellagio Fountain Pool Death an Apparent Drowning**\
 `A man apparently drowned Friday while swimming in the fountain pool in front of the Bellagio resort on the Las Vegas Strip, authorities said.`\
-https://nytimes.com/aponline/2020/07/24/us/ap-us-bellagio-fountain-death.html?searchResultPosition=5
-
-**Coalition of States, Locales Sue Trump Over District Drawing**\
-`A coalition of states, counties and cities filed a federal lawsuit against President Donald Trump on Friday over his executive order that would not include people in the U.S. illegally in how congressional districts are redrawn.`\
-https://nytimes.com/aponline/2020/07/24/us/ap-us-trump-census-lawsuit.html?searchResultPosition=6
-
-**Federal Judge Blocks Sweeping Anti-Abortion Law in Tennessee**\
-`Tennessee will not be allowed to enforce one of the strictest abortion bans in the country as a legal battle over the measure's constitutionality moves through court, a federal judge ruled Friday.`\
-https://nytimes.com/aponline/2020/07/24/us/ap-us-abortion-tennessee.html?searchResultPosition=7
-
-**Pelosi Rejects Short-Term Extension of Unemployment Benefits, Again**\
-`Pushing for broader aid, Nancy Pelosi, the House speaker, again rejected the prospect of passing of a short-term extension of the $600-a-week unemployment benefits on Friday.`\
-https://nytimes.com/video/us/100000007256158/pelosi-rejects-unemployment-extension.html?searchResultPosition=8
-
-**Entire Michigan State Football Team Under Quarantine**\
-`The entire Michigan State football team entered a 14-day quarantine period following more positive tests for the coronavirus, the school announced Friday.`\
-https://nytimes.com/reuters/2020/07/24/sports/24reuters-football-ncaa-msu-spartans-quarantine.html?searchResultPosition=9
-
-**San Francisco Bus Driver Assaulted With Bat Over Mask Order**\
-`A San Francisco bus driver was assaulted with a wooden bat after asking three passengers to wear a mask in keeping with city health orders to combat the coronavirus.`\
-https://nytimes.com/aponline/2020/07/24/us/ap-us-bus-driver-assaulted-masks.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/24/us/ap-us-bellagio-fountain-death.html?searchResultPosition=10
 
