@@ -1,40 +1,40 @@
+**Trump on His Tweets: Regrets, He's Had a Few**\
+`Regrets, he's had a few.`\
+https://nytimes.com/aponline/2020/07/24/us/politics/ap-us-trump-tweets.html?searchResultPosition=1
+
+**Indians Wear Road Jerseys in Home Opener to Honor Minorities**\
+`For their delayed home opener, the Indians elected to wear their blue road jerseys with “Cleveland” on the front as a unified statement of solidarity for minorities as the team contemplates a name change.`\
+https://nytimes.com/aponline/2020/07/24/sports/baseball/ap-bba-indians-jersey-protest.html?searchResultPosition=2
+
+**Police: Bellagio Fountain Pool Death an Apparent Drowning**\
+`A man apparently drowned Friday while swimming in the fountain pool in front of the Bellagio resort on the Las Vegas Strip, authorities said.`\
+https://nytimes.com/aponline/2020/07/24/us/ap-us-bellagio-fountain-death.html?searchResultPosition=3
+
+**Coalition of States, Locales Sue Trump Over District Drawing**\
+`A coalition of states, counties and cities filed a federal lawsuit against President Donald Trump on Friday over his executive order that would not include people in the U.S. illegally in how congressional districts are redrawn.`\
+https://nytimes.com/aponline/2020/07/24/us/ap-us-trump-census-lawsuit.html?searchResultPosition=4
+
+**Federal Judge Blocks Sweeping Anti-Abortion Law in Tennessee**\
+`Tennessee will not be allowed to enforce one of the strictest abortion bans in the country as a legal battle over the measure's constitutionality moves through court, a federal judge ruled Friday.`\
+https://nytimes.com/aponline/2020/07/24/us/ap-us-abortion-tennessee.html?searchResultPosition=5
+
+**Pelosi Rejects Short-Term Extension of Unemployment Benefits, Again**\
+`Pushing for broader aid, Nancy Pelosi, the House speaker, again rejected the prospect of passing of a short-term extension of the $600-a-week unemployment benefits on Friday.`\
+https://nytimes.com/video/us/100000007256158/pelosi-rejects-unemployment-extension.html?searchResultPosition=6
+
+**Entire Michigan State Football Team Under Quarantine**\
+`The entire Michigan State football team entered a 14-day quarantine period following more positive tests for the coronavirus, the school announced Friday.`\
+https://nytimes.com/reuters/2020/07/24/sports/24reuters-football-ncaa-msu-spartans-quarantine.html?searchResultPosition=7
+
+**San Francisco Bus Driver Assaulted With Bat Over Mask Order**\
+`A San Francisco bus driver was assaulted with a wooden bat after asking three passengers to wear a mask in keeping with city health orders to combat the coronavirus.`\
+https://nytimes.com/aponline/2020/07/24/us/ap-us-bus-driver-assaulted-masks.html?searchResultPosition=8
+
 **Mexico Sets Traps for Friendly Bear That Posed for 'Selfies'**\
 `A black bear pictured putting its paws on hikers and inspecting them in northern Mexico is drawing support from an online campaign opposing plans by authorities to use non-lethal traps for the animal so it can be relocated. `\
-https://nytimes.com/aponline/2020/07/24/world/americas/ap-lt-mexico-friendly-bear.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/24/world/americas/ap-lt-mexico-friendly-bear.html?searchResultPosition=9
 
 **Norway Reps to Visit Venezuela After Failed Political Dialogue: Venezuelan Opposition**\
 `Norwegian government representatives plan to visit Venezuela again, the South American country's political opposition said on Friday. `\
-https://nytimes.com/reuters/2020/07/24/world/americas/24reuters-venezuela-politics-norway.html?searchResultPosition=2
-
-**Groups Push to Remove Proposed Funding for Nuclear Testing**\
-`Deep within a multibillion-dollar defense spending measure pending in Congress is an apology to New Mexico, Nevada, Utah and other states affected by radiation from nuclear testing over the decades.`\
-https://nytimes.com/aponline/2020/07/24/us/ap-us-nuclear-weapons-testing.html?searchResultPosition=3
-
-**Men Seen Forcing Open Backdoor of China's Houston Consulate After Closure**\
-`A group of men who appeared to be American officials were seen forcing open a back door of the Chinese consulate in Houston on Friday, shortly after a U.S. government closure order for the mission took effect at 4 p.m. Central Time.`\
-https://nytimes.com/reuters/2020/07/24/us/politics/24reuters-usa-china-consulate-houston-backdoor.html?searchResultPosition=4
-
-**Kimberly Guilfoyle’s Fund-Raising for Trump Draws Scrutiny**\
-`Ms. Guilfoyle has raised money from donors and has made inroads with some who have rejected calls from others. Yet Trump supporters inside and outside the campaign say the operation she’s built hasn’t lived up to expectations.`\
-https://nytimes.com/2020/07/24/us/politics/kimberly-guilfoyles-trump-fundraising.html?searchResultPosition=5
-
-**‘Pure Instinct’: The Extraordinary Rescue of 2 French Boys From a Fire**\
-`The story of how two brothers, 10 and 3, were saved from a burning apartment. “There were maybe five or six of us,” said one of the rescuers. “We did not plan anything.”`\
-https://nytimes.com/2020/07/24/world/europe/grenoble-france-fire-rescue.html?searchResultPosition=6
-
-**PSG Beat 10-Man St Etienne to Win French Cup but Mbappe Injured**\
-`Paris St Germain's Neymar struck early to secure a 1-0 win over 10-man St Etienne as they claimed a record-extending 13th Coupe de France on Friday in a near empty stadium as French soccer came out of a four-month break due to the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/07/24/sports/soccer/24reuters-soccer-france-psg-ste-report.html?searchResultPosition=7
-
-**Anti-Communist Protesters Heckle Staff Emptying Chinese Consulate in Houston**\
-`Staff left China's Houston consulate to a jeering crowd on Friday as the clock ticked down on a U.S. government order to vacate the building after Washington called it a hub for spying on American companies and researchers.   `\
-https://nytimes.com/reuters/2020/07/24/us/politics/24reuters-usa-china-consulate-houston-color.html?searchResultPosition=8
-
-**‘I Missed You, Pool’: Children Rejoice as N.Y.C. Public Pools Finally Open**\
-`At one of the eight pools to reopen, a swimmer almost forgot to remove his mask before making a cannonball jump. So, he placed it on his flip-flops and then — splash.`\
-https://nytimes.com/2020/07/24/nyregion/nyc-pools-open.html?searchResultPosition=9
-
-**Democrats, Don’t Take the Bait on Trump’s Memory Test**\
-`It’s fun to make jokes about “person, woman, man, camera, TV.” But the party should not be distracted from what’s really at stake.`\
-https://nytimes.com/2020/07/24/opinion/trump-test-people-woman-man-camera-tv.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/24/world/americas/24reuters-venezuela-politics-norway.html?searchResultPosition=10
 
