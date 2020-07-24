@@ -1,40 +1,40 @@
+**U.S. CDC Reports 4,024,492 Coronavirus Cases**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Friday reported 4,024,492 cases of the coronavirus, an increase of 72,219 cases from its previous count, and said that the number of deaths had risen by 1,113 to 143,868.`\
+https://nytimes.com/reuters/2020/07/24/us/24reuters-health-coronavirus-usa-cdc.html?searchResultPosition=1
+
+**ECB Tells Monte Dei Paschi to Boost Capital for Bad Loan Deal: Sources**\
+`The European Central Bank has told troubled Italian lender Banca Monte dei Paschi di Siena to strengthen its capital base by around 700 million euros ($814.45 million) to allow a planned spin-off of its bad loans portfolio, two sources close to the matter said on Friday.`\
+https://nytimes.com/reuters/2020/07/24/world/europe/24reuters-monte-dei-paschi-capital.html?searchResultPosition=2
+
+**Minneapolis Council Shifts Police Media Duties to City Staff**\
+`The Minneapolis City Council voted Friday to shift police media duties away from the Police Department to city communications staff, in what one of the proposal's authors called a small move designed to improve trust following the death of George Floyd. `\
+https://nytimes.com/aponline/2020/07/24/us/ap-us-george-floyd-minneapolis-police.html?searchResultPosition=3
+
+**U.S. Counterspy Gives Rare Warning on Foreign Meddling in U.S. Election**\
+`Voters should be on high alert for foreign interference in the Nov. 3 U.S. election, the U.S. counterintelligence agency chief said on Friday in a rare warning that the public should screen information, check online sources and report suspicious actions.`\
+https://nytimes.com/reuters/2020/07/24/world/europe/24reuters-usa-election-counterspies.html?searchResultPosition=4
+
+**The New ‘Kissing Booth’ Star on ‘Cats,’ Selena and Greased Abs**\
+`Taylor Zakhar Perez, 28, plays Marco, a new love interest in “The Kissing Booth 2,” Netflix’s sequel to the 2018 high school rom-com.`\
+https://nytimes.com/2020/07/24/movies/taylor-zakhar-kissing-booth-2.html?searchResultPosition=5
+
+**Woods to Skip WGC Event to Prepare for PGA Championship**\
+`Tiger Woods, who has made one start in five months, said on Friday he will skip next week's World Golf Championships-FedEx St. Jude Invitational so he can prepare for the Aug. 6-9 PGA Championship in San Francisco.`\
+https://nytimes.com/reuters/2020/07/24/sports/golf/24reuters-golf-woods.html?searchResultPosition=6
+
+**Trump Tailors Exaggerations and False Claims to Election Battlegrounds**\
+`From lobsters in Maine to ethanol in Iowa to the oil fields of Texas, the president has tried to bolster his case for re-election by promoting localized — and factually challenged — accomplishments.`\
+https://nytimes.com/2020/07/24/us/politics/trump-election-battlegrounds-fact-check.html?searchResultPosition=7
+
+**Former Trump Lawyer Michael Cohen Released From Prison Again**\
+`President Donald Trump's former personal lawyer was released Friday after a judge ruled that  he had been sent back to prison from home confinement as retaliation for his plan to release a book critical of Trump before November’s election.`\
+https://nytimes.com/aponline/2020/07/24/us/ap-us-michael-cohen-prison.html?searchResultPosition=8
+
+**U.S. GP Cancellation Is a Big Loss, Says Promoter**\
+`The cancellation of the U.S. Grand Prix is a big loss for Texas but Austin's Circuit of the Americas will aim to attract more fans next year, promoter Bobby Epstein said on Friday after Formula One's announcement.`\
+https://nytimes.com/reuters/2020/07/24/sports/autoracing/24reuters-health-coronavirus-motor-f1-americas.html?searchResultPosition=9
+
 **FEMA Sends Faulty Protective Gear to Nursing Homes Battling Virus**\
 `The controversy over inadequate protective equipment has come to embody what critics describe as a haphazard federal effort to protect the 1.5 million Americans who live in nursing homes.`\
-https://nytimes.com/2020/07/24/health/coronavirus-nursing-homes-PPE.html?searchResultPosition=1
-
-**US Military: Russia Ships More Military Supplies to Libya**\
-`The U.S. military accused Russia on Friday of supplying more weapons, air defense systems and mercenaries to Libya's front lines to shape the outcome of the escalating proxy war in the North African country. `\
-https://nytimes.com/aponline/2020/07/24/world/middleeast/ap-ml-libya.html?searchResultPosition=2
-
-**Barred Presidential Candidate Flees Belarus, Fearing Arrest**\
-`An opposition candidate who planned to challenge Belarus' longtime authoritarian leader in next month's presidential election has fled the country with his children, fearing arrest. His wife stayed behind to campaign, blasting authorities for trying to use their children as hostages.`\
-https://nytimes.com/aponline/2020/07/24/world/europe/ap-eu-belarus-politics-1st-ld-writethru.html?searchResultPosition=3
-
-**Nicaraguans Stuck at Costa Rica Border After Managua Bars Re-entry on Virus Fears**\
-`Hundreds of Nicaraguans are stuck in limbo between Costa Rica and Nicaragua after their homeland refused to allow them back without proof that they are not infected with the coronavirus, authorities said on Friday.`\
-https://nytimes.com/reuters/2020/07/24/world/americas/24reuters-health-coronavirus-nicaragua-costa-rica.html?searchResultPosition=4
-
-**Lost Toy Dog Returns Home With Help of Cincinnati Airport**\
-`The Cincinnati-area airport took a child’s beloved stuffed animal for an impromptu tour, reaching many on social media, before uniting the toy Dalmatian with its family in Florida.`\
-https://nytimes.com/aponline/2020/07/24/us/ap-us-airport-lost-toy-returned.html?searchResultPosition=5
-
-**US Agents Dispatched to Seattle to Protect Federal Buildings**\
-`More federal agents have been dispatched to Seattle to protect federal property amid lingering unrest in the city following the shutdown earlier this month of a protest zone where demonstrators camped out for weeks during George Floyd protests.`\
-https://nytimes.com/aponline/2020/07/24/us/ap-us-racial-injustice-seattle.html?searchResultPosition=6
-
-**Karim Benzema: Real Madrid’s Low-Wattage Galactico**\
-`The French striker was always the least of Real Madrid’s Galacticos. Now he is the last. So why is he denied the credit he deserves?`\
-https://nytimes.com/2020/07/24/sports/soccer/karim-benzema-real-madrid.html?searchResultPosition=7
-
-**A Guide to Nordic Noir**\
-`Want to read something cold and dark on a hot summer day? We’ve got recommendations.`\
-https://nytimes.com/2020/07/24/books/review/nordic-noir-guide.html?searchResultPosition=8
-
-**Down in Disney, Bucks Hope to Finish the Job This Season**\
-`There were no defenders nearby. There wasn’t even another team on the court.`\
-https://nytimes.com/aponline/2020/07/24/sports/basketball/ap-bkn-eastern-conference-preview.html?searchResultPosition=9
-
-**Court: Judge Wrong to Dismiss Complaint Against Facebook**\
-`The New Hampshire Supreme Court ruled Friday that a judge was wrong to dismiss a cafe owner's complaint against Facebook that his social media account was shut down without warning. `\
-https://nytimes.com/aponline/2020/07/24/business/ap-us-cafe-owner-facebook-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/2020/07/24/health/coronavirus-nursing-homes-PPE.html?searchResultPosition=10
 
