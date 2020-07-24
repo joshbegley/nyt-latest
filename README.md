@@ -2,7 +2,7 @@
 `A 103-year-old man has recovered from COVID-19 in Pakistan to become one of the oldest survivors of the disease in the world, beating the odds in a country with a weak healthcare system, his relatives and doctors said.  `\
 https://nytimes.com/reuters/2020/07/24/world/asia/24reuters-health-coronavirus-pakistan.html?searchResultPosition=1
 
-**Hearing Underway for Oklahoma Man Charged in Students Deaths**\
+**Oklahoma Man Charged in Students' Death Appears for Hearing**\
 `An Oklahoma man arrived in court Friday for a preliminary hearing on murder charges for allegedly driving his pickup truck into a high school cross-country team in suburban Oklahoma City, killing three members.`\
 https://nytimes.com/aponline/2020/07/24/us/ap-us-students-hit-oklahoma.html?searchResultPosition=2
 
