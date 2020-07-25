@@ -30,7 +30,7 @@ https://nytimes.com/aponline/2020/07/25/world/americas/ap-lt-mexico-violence.htm
 `Brazil registered an additional 1,211 deaths attributable to the novel coronavirus over the last 24 hours and another 51,147 confirmed cases, the health ministry said on Saturday.`\
 https://nytimes.com/reuters/2020/07/25/world/americas/25reuters-health-coronavirus-brazil.html?searchResultPosition=8
 
-**North Korea Convenes Emergency Meeting After Suspected COVID-19 Case Reported**\
+**North Korea's Kim Says COVID-19 'Could Be Said to Have Entered the Country': KCNA**\
 `North Korean leader Kim Jong Un convened an emergency politburo meeting after a person suspected of having COVID-19 returned from South Korea after illegally crossing the border this month, state media said on Sunday.`\
 https://nytimes.com/reuters/2020/07/25/technology/25reuters-health-coronavirus-northkorea.html?searchResultPosition=9
 
