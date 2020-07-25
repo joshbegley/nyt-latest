@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/07/24/sports/football/ap-fbn-chiefs-duvernay-t
 https://nytimes.com/reuters/2020/07/24/world/asia/24reuters-space-exploration-china-mars.html?searchResultPosition=2
 
 **Hendricks Goes 9; Rizzo HRs, Sanitizes; Cubs Beat Brew 3-0**\
-`Kyle Hendricks convinced new manager David Ross to let him finish a three-hitter, Anthony Rizzo homered and dished out hand sanitizer, and the Chicago Cubs started the season by beating the Milwaukee Brewers 3-0 on Friday night.`\
+`Kyle Hendricks finished a three-hitter after new manager David Ross gave him one more batter, Anthony Rizzo homered and dished out hand sanitizer, and the Chicago Cubs started the season by beating the Milwaukee Brewers 3-0 on Friday night.`\
 https://nytimes.com/aponline/2020/07/24/sports/baseball/ap-bbn-brewers-cubs.html?searchResultPosition=3
 
 **Floyd, the San Francisco Zoo's Tallest, Oldest Giraffe, Dies**\
