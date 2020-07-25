@@ -34,7 +34,7 @@ https://nytimes.com/2020/07/25/us/politics/2020-election-voter-fraud-interferenc
 `The trade deal is providing a rare point of stability as relations between the United States and China fray over Hong Kong, the coronavirus and accusations of espionage.`\
 https://nytimes.com/2020/07/25/business/economy/us-china-trade-diplomacy.html?searchResultPosition=9
 
-**Indigenous Leader Raoni Is Discharged From Brazil Hospital**\
-`Chief Raoni Metuktire, an Indigenous leader who has become a symbol of the fight for Indigenous rights and preservation of the Amazon rainforest in Brazil, was discharged from a hospital on Saturday after recovering from an illness. `\
+**Indigenous Leader Raoni Recovers From Illness in Brazil**\
+`Chief Raoni Metuktire, an Indigenous leader who has become a symbol of the fight for Indigenous rights and preservation of the Amazon rainforest in Brazil, has recovered from an illness after being hospitalized for 10 days, a doctor said Saturday. `\
 https://nytimes.com/aponline/2020/07/25/world/americas/ap-lt-brazil-indigenous-leader.html?searchResultPosition=10
 
