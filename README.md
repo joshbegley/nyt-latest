@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/07/25/us/ap-us-rel-black-catholic-history.html
 https://nytimes.com/reuters/2020/07/25/sports/tennis/25reuters-health-coronavirus-tennis-women.html?searchResultPosition=2
 
 **British Royals Share Anguish Over Indian Rhino Park's Floods**\
-`More than a hundred animals, including 10 one-horn rhinoceroses, have died due to massive flooding at the famed Kaziranga game reserve in northeastern India, prompting Britain's Prince William and his wife, Kate Middleton, to express their concern in a letter to park authorities, officials said Saturday.`\
+`More than 100 animals, including 10 one-horn rhinoceroses, have died due to massive flooding at the famed Kaziranga game reserve in northeastern India, prompting Britain's Prince William and his wife, Kate Middleton, to express their concern in a letter to park authorities, officials said Saturday. `\
 https://nytimes.com/aponline/2020/07/25/world/asia/ap-as-south-asia-floods.html?searchResultPosition=3
 
 **Your Used Mask Needs to Make It to the Trash Can**\
