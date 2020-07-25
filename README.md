@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/07/24/sports/24reuters-basketball-nba-ind-sabon
 https://nytimes.com/aponline/2020/07/24/sports/baseball/ap-bbo-leading-off.html?searchResultPosition=5
 
 **Lawyer: All New DACA Applications Put in 'Pending' Bucket**\
-`The U.`\
+`The U.S. government said Friday that it’s putting new DACA applications in a “pending” bucket while officials decide whether to again try to end the program for young immigrants, keeping enrollment stalled even though the Supreme Court ruled last month that it was improperly ended. `\
 https://nytimes.com/aponline/2020/07/24/us/ap-us-immigration-deferred-action-.html?searchResultPosition=6
 
 **Thompson, Werenski Share Lead at 3M Open at 12 Under**\
