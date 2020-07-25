@@ -1,5 +1,5 @@
 **Chiefs' Duvernay-Tardif First to Opt Out of 2020 NFL Season**\
-`Offensive lineman Laurent Duvernay-Tardif of the Super Bowl champion Kansas City Chiefs became the first player to opt out of the upcoming NFL season due to the coronavirus pandemic on Friday.`\
+`Offensive lineman Laurent Duvernay-Tardif became the first player to opt out of the upcoming NFL season on Friday, choosing to put his medical degree to use on the front lines of the coronavirus pandemic rather than helping the Kansas City Chiefs defend their first Super Bowl title in 50 years.`\
 https://nytimes.com/aponline/2020/07/24/sports/football/ap-fbn-chiefs-duvernay-tardif.html?searchResultPosition=1
 
 **China Launches Its First Unmanned Mission to Mars**\
