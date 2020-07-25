@@ -22,8 +22,8 @@ https://nytimes.com/aponline/2020/07/25/world/asia/ap-as-indonesia-australia-bal
 `Kansas City Chiefs offensive lineman Laurent Duvernay-Tardif became the NFL's first player to opt out of the season Friday night.`\
 https://nytimes.com/reuters/2020/07/25/sports/football/25reuters-football-nfl-kc-duvernay-tardif.html?searchResultPosition=6
 
-**Huge Portland Protest Crowds, Standoff With Feds Go On**\
-`Thousands of people gathered in Portland streets for another night of protests Friday, the same day a U.`\
+**Feds Use Tear Gas to Try to Disperse Rowdy Portland Protests**\
+`U.S. agents again used tear gas to try to disperse a large crowd of protesters outside the federal courthouse in Portland, Oregon, Friday night after multiple fireworks were shot towards the building as raucous demonstrations continued in the city. `\
 https://nytimes.com/aponline/2020/07/25/us/ap-us-racial-injustice-portland.html?searchResultPosition=7
 
 **The Latest: Australian State Reports 357 New Cases, 5 Deaths**\
