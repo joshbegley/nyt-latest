@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/07/25/business/ap-as-malaysia-media-freedom.ht
 https://nytimes.com/interactive/2020/07/25/world/americas/coronavirus-brazil-amazon.html?searchResultPosition=9
 
 **Baker Wins Debut, Astros Top M's in 1st Game Post Sign Scam**\
-`Dusty Baker posted a win in his debut as Houston's manager and the Astros, playing for the first time since their sign-stealing scandal rocked baseball, opened the season by beating the Seattle Mariners 8-2 Friday night.`\
+`Dusty Baker has managed thousands of games in his big league career, and none were quite like his debut with the scandal-ridden Houston Astros. `\
 https://nytimes.com/aponline/2020/07/25/sports/baseball/ap-bba-mariners-astros.html?searchResultPosition=10
 
