@@ -1,40 +1,40 @@
+**Exclusive: Alibaba, Jack Ma Summoned by Indian Court on Former Employee's Complaint**\
+`An Indian court has summoned Alibaba and its founder Jack Ma in a case in which a former employee in India says he was wrongfully fired after objecting to what he saw as censorship and fake news on company apps, documents seen by Reuters showed.`\
+https://nytimes.com/reuters/2020/07/26/business/26reuters-alibaba-india-exclusive.html?searchResultPosition=1
+
 **Today in History**\
 `Today in History`\
-https://nytimes.com/aponline/2020/07/26/us/ap-today-in-history-1st-ld-writethru.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/26/us/ap-today-in-history-1st-ld-writethru.html?searchResultPosition=2
 
 **Ex-UFC Champ Whittaker Back on Track With Decision Over Till**\
 `Former UFC middleweight champion Robert Whittaker earned his first victory in two years Sunday, winning a unanimous decision over Darren Till on Fight Island.`\
-https://nytimes.com/aponline/2020/07/25/sports/ap-mma-ufc-abu-dhabi.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/25/sports/ap-mma-ufc-abu-dhabi.html?searchResultPosition=3
 
 **Soccer: J.League Cancels Match, Nagoya Players Positive for Coronavirus**\
 `Japan's J.League said on Sunday it was cancelling a soccer match between Nagoya Grampus and Sanfrecce Hiroshima scheduled later in the day after players tested positive for the coronavirus.`\
-https://nytimes.com/reuters/2020/07/25/sports/soccer/25reuters-health-coronavirus-japan-soccer.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/25/sports/soccer/25reuters-health-coronavirus-japan-soccer.html?searchResultPosition=4
 
 **Germany's Confirmed Coronavirus Cases Rise by 305 to 205,269: RKI**\
 `The number of confirmed coronavirus cases in Germany increased  by 305 to 205,269, data from the Robert Koch Institute (RKI) for infectious diseases showed on Sunday.`\
-https://nytimes.com/reuters/2020/07/25/world/europe/25reuters-health-coronavirus-germany-cases.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/25/world/europe/25reuters-health-coronavirus-germany-cases.html?searchResultPosition=5
 
 **Reports: NBA Investigating Clippers G Williams' Activities Outside Bubble**\
 `The NBA is investigating the actions of Los Angeles Clippers guard Lou Williams while he was on an excused absence away from the NBA bubble in Orlando, Fla., according to multiple reports Saturday.`\
-https://nytimes.com/reuters/2020/07/25/sports/basketball/25reuters-basketball-nba-lac-williams.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/07/25/sports/basketball/25reuters-basketball-nba-lac-williams.html?searchResultPosition=6
 
 **Bodies of Mother, 2 Infants Found in Car Submerged in Pond**\
 `Authorities pulled a submerged vehicle from a Georgia pond and found the bodies of a woman and her twin 10-month-old children inside.`\
-https://nytimes.com/aponline/2020/07/25/us/ap-us-submerged-bodies-1st-ld-writethru.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/07/25/us/ap-us-submerged-bodies-1st-ld-writethru.html?searchResultPosition=7
 
 **Car Drives Through Crowd, Protester Shot in Colorado**\
 `A car drove through a crowd and a protester was shot in the suburban Denver suburb of Aurora during demonstrations against racial injustice. `\
-https://nytimes.com/aponline/2020/07/25/us/ap-us-racial-injustice-colorado.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/07/25/us/ap-us-racial-injustice-colorado.html?searchResultPosition=8
 
 **Minus Strasburg, Nats Top Yanks 9-2 on Robles' 3 Hits, 4 RBI**\
 `Wearing a red muscle shirt with a drawing of a gold trumpet — this year’s answer to the “Baby Shark” phenomenon of 2019 — Washington Nationals center fielder Victor Robles sat down for his postgame video conference and announced, “Hi, guys!”`\
-https://nytimes.com/aponline/2020/07/25/sports/baseball/ap-bbo-yankees-nationals.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/07/25/sports/baseball/ap-bbo-yankees-nationals.html?searchResultPosition=9
 
 **Asia Today: Australia State Reports 10 New Deaths, 459 Cases**\
 `Australia’s Victoria state has recorded 10 deaths overnight from COVID-19, its highest daily toll amid a continuing surge in coronavirus cases.`\
-https://nytimes.com/aponline/2020/07/25/business/ap-as-virus-outbreak-asia.html?searchResultPosition=9
-
-**Hunger Organization Pushes Out Yoho After Capitol Incident**\
-`A nonpartisan Christian organization that seeks to end hunger said Saturday it asked for and received the resignation of Rep. Ted Yoho from its board of directors following what it called his “verbal attack” on Rep. Alexandria Ocasio-Cortez.`\
-https://nytimes.com/aponline/2020/07/25/us/politics/ap-us-ocasio-cortez-confrontation.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/25/business/ap-as-virus-outbreak-asia.html?searchResultPosition=10
 
