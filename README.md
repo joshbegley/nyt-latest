@@ -27,7 +27,7 @@ https://nytimes.com/2020/07/26/us/hurricane-douglas-hawaii.html?searchResultPosi
 https://nytimes.com/2020/07/26/us/selma-john-lewis-memorial.html?searchResultPosition=7
 
 **Explosions Hit Military Base in Southern Baghdad, Iraqi Military Says**\
-`At least two explosions hit a military base in Baghdad's southern suburbs on Sunday, the Iraqi military said in a statement, without providing any further details.`\
+`A weapons depot belonging to Iraq's federal police force exploded on Sunday in Baghdad's southern suburbs because of high summer temperatures and poor storage, the military said in a statement.`\
 https://nytimes.com/reuters/2020/07/26/world/middleeast/26reuters-iraq-security.html?searchResultPosition=8
 
 **Police, Protesters Clash as US Cities Endure Violent Weekend**\
