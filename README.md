@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/07/25/us/ap-us-submerged-bodies-1st-ld-writeth
 https://nytimes.com/aponline/2020/07/25/us/ap-us-racial-injustice-colorado.html?searchResultPosition=7
 
 **Minus Strasburg, Nats Top Yanks 9-2 on Robles' 3 Hits, 4 RBI**\
-`Victor Robles jump-started Washington’s dormant offense by delivering three hits and four RBIs, including a homer he celebrated by pantomiming pandemic-appropriate “air high-fives” with teammates, helping the Nationals beat the New York Yankees 9-2 on Saturday night without scratched starter Stephen Strasburg  and despite five errors.`\
+`Wearing a red muscle shirt with a drawing of a gold trumpet — this year’s answer to the “Baby Shark” phenomenon of 2019 — Washington Nationals center fielder Victor Robles sat down for his postgame video conference and announced, “Hi, guys!”`\
 https://nytimes.com/aponline/2020/07/25/sports/baseball/ap-bbo-yankees-nationals.html?searchResultPosition=8
 
 **Asia Today: Australia State Reports 10 New Deaths, 459 Cases**\
