@@ -26,7 +26,7 @@ https://nytimes.com/2020/07/26/us/hurricane-douglas-hawaii.html?searchResultPosi
 `The body of John Lewis crossed the Edmund Pettus Bridge on Sunday, more than a half century after he helped change American history there.`\
 https://nytimes.com/2020/07/26/us/selma-john-lewis-memorial.html?searchResultPosition=7
 
-**Explosions Hit Military Base in Southern Baghdad, Iraqi Military Says**\
+**Explosion Hits Southern Baghdad Weapons Depot, Blamed on Heat**\
 `A weapons depot belonging to Iraq's federal police force exploded on Sunday in Baghdad's southern suburbs because of high summer temperatures and poor storage, the military said in a statement.`\
 https://nytimes.com/reuters/2020/07/26/world/middleeast/26reuters-iraq-security.html?searchResultPosition=8
 
