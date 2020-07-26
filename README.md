@@ -27,7 +27,7 @@ https://nytimes.com/2020/07/26/arts/television/whats-on-tv-sunday-wynonna-earp-a
 https://nytimes.com/reuters/2020/07/26/us/26reuters-global-race-protests-austin.html?searchResultPosition=7
 
 **Portland: Big Protest Crowds Again Over US Agents' Presence**\
-`Hundreds of people gathered in Portland, Oregon, for another night of protests Saturday as demonstrations over George Floyd’s killing and the presence of federal agents sent by President Donald Trump showed no signs of abating`\
+`Thousands of people gathered in Portland, Oregon, for another night of protests Saturday as demonstrations over George Floyd’s killing and the presence of federal agents sent by President Donald Trump showed no signs of abating`\
 https://nytimes.com/aponline/2020/07/26/us/ap-us-racial-injustice-portland.html?searchResultPosition=8
 
 **The Latest: China Reports 46 New Cases on Opposite Ends**\
