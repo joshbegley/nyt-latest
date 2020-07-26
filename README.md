@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/07/26/us/26reuters-global-race-protests-austin.
 `Hundreds of people gathered in Portland, Oregon, for another night of protests Saturday as demonstrations over George Floyd’s killing and the presence of federal agents sent by President Donald Trump showed no signs of abating`\
 https://nytimes.com/aponline/2020/07/26/us/ap-us-racial-injustice-portland.html?searchResultPosition=7
 
-**The Latest: SKorea's Cases Fall Back to Below 60 After Spike**\
-`SEOUL, South Korea — The number of South Korea’s new coronavirus cases has fallen back to below 60, a day after it reported 100-plus for the first time in nearly four months. `\
+**The Latest: China Reports 46 New Cases on Opposite Ends**\
+`BEIJING — China reported 46 new COVID-19 cases on Sunday, the highest daily tally in more than a month, as it took steps to stem recent outbreaks that have infected more than 160 people at opposite ends of the country.`\
 https://nytimes.com/aponline/2020/07/26/business/ap-virus-outbreak-the-latest.html?searchResultPosition=8
 
 **Seattle Protesters Set Fire to Juvenile Detention Center Construction Site**\
