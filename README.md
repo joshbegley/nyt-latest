@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/07/25/us/ap-us-racial-injustice-seattle-7th-ld
 `A group of heavily armed Black protesters marched through Louisville, Kentucky on Saturday demanding justice for Breonna Taylor, a Black woman killed in March by police officers who burst into her apartment.`\
 https://nytimes.com/reuters/2020/07/25/us/25reuters-global-race-protests-louisville.html?searchResultPosition=8
 
-**Seattle Protests: Fires and Pepper Spray as Thousands March Through City**\
-`Thousands of demonstrators marched through Seattle, smashing windows and setting fires at the site of a future youth detention center. At least 16 were arrested.`\
+**Seattle Protests: Fires and Tear Gas as Thousands March Through City**\
+`Protesters also marched in Los Angeles and Aurora, Colo., in a show of solidarity with protesters in Portland. In Seattle, they smashed windows and set fires.`\
 https://nytimes.com/2020/07/25/us/protests-seattle-portland.html?searchResultPosition=9
 
 **Mainland China Reports 46 New Coronavirus Cases, Including 22 in Xinjiang**\
