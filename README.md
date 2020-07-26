@@ -14,8 +14,8 @@ https://nytimes.com/2020/07/26/realestate/homes-that-sold-for-around-750000.html
 `An examination of the truth, in a moment when facts can seem malleable.`\
 https://nytimes.com/2020/07/26/podcasts/the-daily/the-accusation-the-sunday-read.html?searchResultPosition=4
 
-**News of Kuwait Emir's Health 'Very Reassuring', Parliament Speaker Says**\
-`News about the health of the Emir of Kuwait, who is in the United States for medical treatment, is "very reassuring", parliament speaker Marzouq al-Ghanim said on Sunday in a statement carried on the parliamentary Twitter account. `\
+**News of Kuwait Emir's Health Reassuring, Parliament Speaker Says**\
+`News about the health of the Emir of Kuwait, who is in the United States for medical treatment, is "very reassuring," parliament speaker Marzouq al-Ghanim said on Sunday in a statement on the parliamentary Twitter account. `\
 https://nytimes.com/reuters/2020/07/26/world/middleeast/26reuters-kuwait-politics-ruler.html?searchResultPosition=5
 
 **Modi Says Coronavirus Risk Persists in India, Recoveries Rise**\
