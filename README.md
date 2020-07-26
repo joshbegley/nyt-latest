@@ -1,40 +1,40 @@
+**Sledding Athletes Are Taking Their Lives. Did Brain-Rattling Rides and High-Speed Crashes Damage Their Brains?**\
+`Not long ago, Pavle Jovanovic was among the world’s top bobsledders. In retirement, he battled mental illness and substance abuse. Were brain injuries the cause of his demise and that of others in his sport?`\
+https://nytimes.com/2020/07/26/sports/olympics/olympics-bobsled-suicide-brain-injuries.html?searchResultPosition=1
+
+**‘Disabled People Love Clothes Too’**\
+`But #disabledandcute influencers say the fashion industry has been slow to embrace them.`\
+https://nytimes.com/2020/07/26/style/functional-fashioin.html?searchResultPosition=2
+
+**Slimmed-Down Baseball on TV Has Broadcast Workers Worried**\
+`Could changes to telecasts made during the coronavirus pandemic become more permanent?`\
+https://nytimes.com/2020/07/26/sports/baseball/baseball-tv-camera-operators.html?searchResultPosition=3
+
+**Everlane’s Promise of ‘Radical Transparency’ Unravels**\
+`Employees past and present are challenging management, saying the company’s ethical image was an illusion.`\
+https://nytimes.com/2020/07/26/fashion/everlane-employees-ethical-clothing.html?searchResultPosition=4
+
+**Don’t Ban TikTok. Make an Example of It.**\
+`There is plenty the U.S. government could do to ensure that TikTok acts responsibly without getting rid of it altogether.`\
+https://nytimes.com/2020/07/26/technology/tiktok-china-ban-model.html?searchResultPosition=5
+
+**Your Coronavirus Antibodies Are Disappearing. Should You Care?**\
+`Declining antibody levels do not mean less immunity, experts say. Besides, two widely used tests may detect the wrong antibodies.`\
+https://nytimes.com/2020/07/26/health/coronvirus-antibody-tests.html?searchResultPosition=6
+
+**Well, Hello to You, Too**\
+`Alan Arbesfeld opens our solving week in a very friendly way.`\
+https://nytimes.com/2020/07/26/crosswords/daily-puzzle-2020-07-27.html?searchResultPosition=7
+
+**Meet the 3 Spacecraft Heading to Mars This Summer**\
+`Three missions are headed to Mars this summer. They carry a wide array of instruments to explore the red planet.`\
+https://nytimes.com/interactive/2020/science/mars-perseverance-tianwen-hope.html?searchResultPosition=8
+
 **Britain Moved on Spain After Data Showed Jump in Coronavirus Cases, Says Raab**\
 `Britain acted swiftly to impose a quarantine on travellers returning from Spain after seeing data on Friday recording a large jump in coronavirus cases, foreign minister Dominic Raab said on Sunday.`\
-https://nytimes.com/reuters/2020/07/26/world/europe/26reuters-health-coronavirus-britain-spain-raab.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/26/world/europe/26reuters-health-coronavirus-britain-spain-raab.html?searchResultPosition=9
 
 **Coronavirus, Hurricane Hanna, Regis Philbin: Your Weekend Briefing**\
 `Here’s what you need to know about the week’s top stories.`\
-https://nytimes.com/2020/07/26/briefing/coronavirus-hurricane-hanna-regis-philbin.html?searchResultPosition=2
-
-**Indonesia Reports 1,492 New Coronavirus Cases, 67 Deaths**\
-`Indonesia reported 1,492 new coronavirus infections on Sunday, bringing the total tally to 98,778, data from the country's Health Ministry website showed.`\
-https://nytimes.com/reuters/2020/07/26/world/asia/26reuters-health-coronavirus-indonesia.html?searchResultPosition=3
-
-**Philippines Records 39 Coronavirus Deaths, 2,110 New Cases**\
-`The Philippines on Sunday reported 39 deaths related to the novel coronavirus and 2,110 additional infections.`\
-https://nytimes.com/reuters/2020/07/26/world/asia/26reuters-health-coronavirus-philippines-cases.html?searchResultPosition=4
-
-**AP Photos: Russian Enthusiast Builds His Own Mini-Railway**\
-`For Pavel Chilin, building his own railway was the fulfillment of a childhood dream.`\
-https://nytimes.com/aponline/2020/07/26/world/europe/ap-eu-russia-personal-railway-photo-gallery.html?searchResultPosition=5
-
-**Tokyo Confirms 239 New Coronavirus Cases on Sunday: Media**\
-`Tokyo officials confirmed 239 new coronavirus infections on Sunday, Japanese media reported, as the capital struggles with a resurgence in cases after the government lifted a state of emergency.`\
-https://nytimes.com/reuters/2020/07/26/world/asia/26reuters-health-coronavirus-japan.html?searchResultPosition=6
-
-**Luck? Genetics? Italian Island Spared From COVID Outbreak**\
-`Stranded on a tiny Italian island, a cancer researcher grew increasingly alarmed to hear that one, and then three more visitors had fallen ill with COVID-19.`\
-https://nytimes.com/aponline/2020/07/26/world/europe/ap-eu-virus-outbreak-italy-intriguing-isle.html?searchResultPosition=7
-
-**Government 'Shambolic' on Making Spanish Quarantine Decision, Says UK's Labour**\
-`The way the government made a decision to impose a quarantine on those people travelling from Spain to Britain was "shambolic", the health policy chief for Britain's main opposition Labour Party said on Sunday.`\
-https://nytimes.com/reuters/2020/07/26/world/europe/26reuters-health-coronavirus-britain-spain-ashworth.html?searchResultPosition=8
-
-**Arrests and Clashes Follow Anti-Netanyahu Protests in Israel**\
-`Police said Sunday they arrested more than a dozen Israelis in country-wide protests the previous night that drew thousands of people in a growing and persistent show of force against Prime Minister Benjamin Netanyahu and his handling of the coronavirus crisis.`\
-https://nytimes.com/aponline/2020/07/26/world/middleeast/ap-ml-israel-protests.html?searchResultPosition=9
-
-**Police: Man Fatally Shot at Protest in Texas**\
-`A man was fatally shot at a protest in Texas when he approached a vehicle and the driver inside opened fire, police said.`\
-https://nytimes.com/aponline/2020/07/26/us/ap-us-racial-injustice-texas.html?searchResultPosition=10
+https://nytimes.com/2020/07/26/briefing/coronavirus-hurricane-hanna-regis-philbin.html?searchResultPosition=10
 
