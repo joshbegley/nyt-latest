@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/07/26/world/asia/26reuters-usa-china-consulate-
 https://nytimes.com/2020/07/26/us/coronavirus-family-houston-masks.html?searchResultPosition=5
 
 **How Coronavirus Ravaged One Houston Family**\
-`Coronavirus numbers have shot up across the country. A family in Texas, a virus hot spot, describe how the illness quickly spread among them and hospitalized both parents.`\
+`Coronavirus numbers have shot up across the country. A family in Texas, a virus hot spot, describes how the illness quickly spread among them and hospitalized both parents.`\
 https://nytimes.com/video/us/100000007253343/coronavirus-houston-family.html?searchResultPosition=6
 
 **India's PM to Attend Temple Groundbreaking at Disputed Site**\
