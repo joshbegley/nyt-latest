@@ -1,40 +1,40 @@
+**Colleges Plan for Virus Testing, but Strategies Vary Widely**\
+`For students heading to Colby College in Maine this fall, coronavirus testing is expected to be a routine part of campus life.`\
+https://nytimes.com/aponline/2020/07/26/us/ap-us-virus-outbreak-college-testing.html?searchResultPosition=1
+
+**Homes That Sold for Around $750,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2020/07/26/realestate/homes-that-sold-for-around-750000.html?searchResultPosition=2
+
+**The Sunday Read: ‘The Accusation’**\
+`An examination of the truth, in a moment when facts can seem malleable.`\
+https://nytimes.com/2020/07/26/podcasts/the-daily/the-accusation-the-sunday-read.html?searchResultPosition=3
+
+**News of Kuwait Emir's Health 'Very Reassuring', Parliament Speaker Says**\
+`News about the health of the Emir of Kuwait, who is in the United States for medical treatment, is "very reassuring", parliament speaker Marzouq al-Ghanim said on Sunday in a statement carried on the parliamentary Twitter account. `\
+https://nytimes.com/reuters/2020/07/26/world/middleeast/26reuters-kuwait-politics-ruler.html?searchResultPosition=4
+
 **Modi Says Coronavirus Risk Persists in India, Recoveries Rise**\
 `India needs to be "extra vigilant" as the novel coronavirus threat persists, Prime Minister Narendra Modi said in a public address on Sunday, even as the country registered a record number of patient recoveries in a day.`\
-https://nytimes.com/reuters/2020/07/26/world/asia/26reuters-health-coronavirus-india-modi.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/26/world/asia/26reuters-health-coronavirus-india-modi.html?searchResultPosition=5
 
 **Malaysia Searches for 24 Rohingya Feared Drowned Off Island**\
 `Malaysian authorities said Sunday that they were searching for two dozen Rohingya refugees who are feared to have drowned after jumping off their boat off the northern resort island of Langkawi.`\
-https://nytimes.com/aponline/2020/07/26/world/asia/ap-as-malaysia-rohingya.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/26/world/asia/ap-as-malaysia-rohingya.html?searchResultPosition=6
 
 **Rift Between Royal Brothers Laid Bare in New Book Extract**\
 `Prince William infuriated Prince Harry when he told his younger brother he should move slowly in his relationship with the former Meghan Markle, fearing that he was being “blindsided by lust,’’ a new book on the Windsors says. `\
-https://nytimes.com/aponline/2020/07/26/world/europe/ap-eu-britain-royals.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/26/world/europe/ap-eu-britain-royals.html?searchResultPosition=7
 
 **Spain Pushing for UK to Exclude Canary and Balearic Islands From Quarantine, Minister Says**\
 `The Spanish government is focused on convincing Britain to exclude the Balearic and Canary islands from a 14-day quarantine it abruptly imposed on all travellers returning from Spain, Foreign Minister Arancha Gonzalez Laya said on Sunday.`\
-https://nytimes.com/reuters/2020/07/26/world/europe/26reuters-health-coronavirus-spain-minister.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/26/world/europe/26reuters-health-coronavirus-spain-minister.html?searchResultPosition=8
 
 **Workers Praise Disney Virus Safety, but Will Visitors Come?**\
 `Every week, it seems, Kaila Barker, her husband and their five children change their minds about whether to travel from their home in Connecticut to Florida's Walt Disney World as planned in September.`\
-https://nytimes.com/aponline/2020/07/26/business/ap-us-virus-outbreak-theme-parks.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/07/26/business/ap-us-virus-outbreak-theme-parks.html?searchResultPosition=9
 
 **Spain's Coronavirus Epidemic Is Under Control, Government Says**\
 `Spain's coronavirus epidemic is under control, the foreign ministry said on Sunday, after the British government imposed a 14-day quarantine on all travellers returning from the Mediterranean country in response to a surge in new cases there.`\
-https://nytimes.com/reuters/2020/07/26/world/europe/26reuters-health-coronavirus-spain.html?searchResultPosition=6
-
-**Nursing Homes Eye More Private Rooms in Post-Pandemic Future**\
-`U.S. nursing homes have remained mostly locked down since COVID-19 swept through earlier this year, and it may be a while before that changes.`\
-https://nytimes.com/aponline/2020/07/26/business/ap-insider-qa-nursing-homes-coronavirus.html?searchResultPosition=7
-
-**100 Days: Trump Faces Headwinds as Election Day Draws Near**\
-`With the November election 100 days away, more Americans say the country is heading in the wrong direction than at any previous point in Donald Trump’s presidency, putting the incumbent in a perilous position as his reelection bid against Democrat Joe Biden enters a pivotal stretch.`\
-https://nytimes.com/aponline/2020/07/26/us/politics/ap-us-ap-poll-election-2020-100-days.html?searchResultPosition=8
-
-**As a Teenager, I Hated Johnny Carson. Then Came the Pandemic**\
-`As a teenager, I thought his ‘Tonight Show’ was a bland, uncool relic. Now I appreciate his deadpan humor and the loose weirdness of his interviews.`\
-https://nytimes.com/2020/07/26/arts/television/johnny-carson-tonight-show.html?searchResultPosition=9
-
-**Hundreds of Firefighters Battle Central Portugal Blaze**\
-`More than 700 firefighters on Sunday battled a wildfire sweeping across a part of central Portugal, with strong winds complicating efforts to tackle the blaze.`\
-https://nytimes.com/reuters/2020/07/26/world/europe/26reuters-portugal-wildfire.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/26/world/europe/26reuters-health-coronavirus-spain.html?searchResultPosition=10
 
