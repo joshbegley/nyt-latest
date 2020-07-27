@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/07/26/world/asia/26reuters-australia-economy-in
 `Shares of Taiwan Semiconductor Manufacturing Co Ltd (TSMC) jumped on Monday after U.S. chipmaker Intel signaled it may stop manufacturing its own chip components.`\
 https://nytimes.com/reuters/2020/07/26/technology/26reuters-taiwan-tsmc-stocks.html?searchResultPosition=4
 
-**Profits at China's Industrial Firms Jump 11.5% in June**\
-`Profits at China's industrial firms in June rose 11.5% year-on-year to 666.55 billion yuan ($95.27 billion), the statistics bureau said on Monday, adding to signs the country's economic recovery is gaining momentum.`\
+**China's Industrial Profit Growth Quickens, Signals Firming Economic Recovery**\
+`Profits at China's industrial firms rose for a second straight month and at the fastest pace in over a year, adding to signs the country's economic recovery from the coronavirus crisis is gaining momentum.`\
 https://nytimes.com/reuters/2020/07/26/world/asia/26reuters-china-economy-industrial-profits.html?searchResultPosition=5
 
 **‘Perry Mason’ Season 1, Episode 6 Recap: Disorder in the Court**\
