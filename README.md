@@ -1,40 +1,40 @@
-**Lebanon's Hezbollah Denies Infiltration Attempt or Clashes Near Lebanese Frontier**\
-`The Iran-backed Lebanese Shi'ite group Hezbollah on Monday denied its forces had tried to infiltrate the Lebanese-Israeli frontier or that it had engaged in clashes in the disputed Shebaa Farms area.`\
-https://nytimes.com/reuters/2020/07/27/world/middleeast/27reuters-israel-lebanon-hezbollah-statement.html?searchResultPosition=1
+**Ex-UCLA Coach Pleads Guilty to Accepting $200K in Bribes**\
+`A former University of California, Los Angeles men’s soccer coach pleaded guilty Monday to accepting $200,000 in bribes to help two students get into the school as recruits. `\
+https://nytimes.com/aponline/2020/07/27/sports/ap-us-college-admissions-bribery.html?searchResultPosition=1
 
-**School Girls in India Discover Earth-Bound Asteroid**\
-`Two teenage girls from India have discovered an Earth-bound asteroid by poring through images from a University of Hawaii telescope, an Indian space education institute said on Monday.`\
-https://nytimes.com/reuters/2020/07/27/world/asia/27reuters-india-asteroid.html?searchResultPosition=2
+**2nd Presidential Debate Host Withdraws Amid Virus Outbreak**\
+`The University of Notre Dame has become the second university to withdraw as the host of one of this fall's three scheduled presidential debates amid the coronavirus pandemic.`\
+https://nytimes.com/aponline/2020/07/27/us/politics/ap-us-election-2020-debates.html?searchResultPosition=2
 
-**‘We Are Not Prisoners of the Pandemic,’ W.H.O. Leader says**\
-`The World Health Organization’s director general discussed the latest global statistics of the coronavirus pandemic, and again warned against politicizing efforts to contain its spread.`\
-https://nytimes.com/video/world/100000007258544/who-pandemic-response.html?searchResultPosition=3
+**Gold's Luster Grows as Investors Hedge in Uncertain Times**\
+`Wall Street is in the throes of a gold rush, as investors drive the price of the precious metal to new heights. `\
+https://nytimes.com/aponline/2020/07/27/business/bc-us-gold-hits-a-record.html?searchResultPosition=3
 
-**Brees Doubles COVID-19 Donation to $10 Million**\
-`New Orleans Saints quarterback Drew Brees upped his contribution to communities in Louisiana impacted by the coronavirus pandemic from $5 million to $10 million.`\
-https://nytimes.com/reuters/2020/07/27/sports/football/27reuters-football-nfl-no-brees-covid-donation.html?searchResultPosition=4
+**Host Notre Dame Pulls Out First U.S. Presidential Debate**\
+`University of Notre Dame pulled out as host of the first 2020 U.S. presidential debate, which will instead be held in Cleveland on Sept. 29, the Commission on Presidential Debates said on Monday.`\
+https://nytimes.com/reuters/2020/07/27/us/politics/27reuters-usa-election-debate.html?searchResultPosition=4
 
-**Exclusive: Goldman Revamps Employee Reviews, Opening Door to Greater Job Cuts**\
-`U.S. investment bank Goldman Sachs Group Inc is adopting a performance review system that will grade up to 10% of its 39,000 employees as under-performers this year, according to an internal memo sent on Monday, potentially leading to more job cuts in 2021 than the bank has made in recent years.`\
-https://nytimes.com/reuters/2020/07/27/business/27reuters-world-work-goldman-sachs-exclusive.html?searchResultPosition=5
+**NFL: COVID-19 Remains 'Major Challenge' as Camps Prepare to Open, Commissioner Says**\
+`National Football League (NFL) Commissioner Roger Goodell has said the new coronavirus still poses challenges to the league as it prepares to open training camps for all players on Tuesday.`\
+https://nytimes.com/reuters/2020/07/27/sports/football/27reuters-health-coronavirus-nfl.html?searchResultPosition=5
 
-**Moroccan Women Break Through in Rap Scene Dominated by Men**\
-`In a rap scene dominated my men, women's voices are starting to make waves in Morocco.`\
-https://nytimes.com/reuters/2020/07/27/arts/27reuters-morocco-music-women.html?searchResultPosition=6
+**Life After Lockdown in Mexico City**\
+`Our reporter is on the ground in Mexico City, where life appears to be returning to normal on the streets but doctors worry there could be another surge of coronavirus cases.`\
+https://nytimes.com/interactive/2020/07/27/world/americas/mexico-coronavirus.html?searchResultPosition=6
 
-**Spanish Soccer Still in Turmoil Over Suspended 2nd-Tier Game**\
-`Chaotic, contentious and comical — the end of the Spanish soccer season hasn’t gone smoothly at all.`\
-https://nytimes.com/aponline/2020/07/27/sports/soccer/ap-soc-spain-turmoil.html?searchResultPosition=7
+**Planning for Olympics in a Pandemic Has Echoes of 1920 Games**\
+`Olympic athletes competing for gold medals in a world reeling from a pandemic? It won't be the first time.`\
+https://nytimes.com/aponline/2020/07/27/sports/olympics/ap-oly-1920-antwerp-games-spanish-flu.html?searchResultPosition=7
 
-**Nigeria to Allow Would-Be Graduates Back to School Despite Spreading COVID-19**\
-`Nigeria will allow schools to reopen for pupils due to take graduation exams, a presidential aide said on Monday, reviving a plan dropped earlier this month due to rising cases of COVID-19.`\
-https://nytimes.com/reuters/2020/07/27/world/africa/27reuters-health-coronavirus-nigeria-education.html?searchResultPosition=8
+**White House Meeting With Top Pharmaceutical Executives Called Off**\
+`A meeting with top pharmaceutical executives that President Donald Trump promised for Tuesday has been called off, a White House official said on Monday.`\
+https://nytimes.com/reuters/2020/07/27/us/27reuters-usa-drug-pricing.html?searchResultPosition=8
 
-**Ukrainian FM Says Iranians to Discuss Crash Compensation in Ukraine**\
-`An Iranian delegation will visit Ukraine on Wednesday and Thursday to discuss compensation for a Ukrainian jet shot down by Iran on Jan. 8, the Ukrainian foreign minister said on Monday.`\
-https://nytimes.com/reuters/2020/07/27/world/middleeast/27reuters-iran-crash-ukraine.html?searchResultPosition=9
+**Moderna, SAP Rise; Hasbro, Ventas Fall**\
+`Stocks that moved heavily or traded substantially on Monday:`\
+https://nytimes.com/aponline/2020/07/27/business/ap-financial-markets-stocks.html?searchResultPosition=9
 
-**Czechs Seek 'Smart Quarantine' Reboot as Virus Cases Rise**\
-`The Czech government announced on Monday an overhaul of its much-criticised system of tracking and isolating contacts of people with COVID-19 as it battles a spike in new infections.`\
-https://nytimes.com/reuters/2020/07/27/world/europe/27reuters-health-coronavirus-czech.html?searchResultPosition=10
+**Rangers' Kluber Could Be Done for Year With Shoulder Injury**\
+`Two-time AL Cy Young winner Corey Kluber could be done for the season.`\
+https://nytimes.com/aponline/2020/07/27/sports/baseball/ap-bba-rangers-kluber-injury.html?searchResultPosition=10
 
