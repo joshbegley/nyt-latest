@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/07/27/business/27reuters-bmw-emissions.html?sea
 https://nytimes.com/reuters/2020/07/27/world/asia/27reuters-afghanistan-taliban.html?searchResultPosition=7
 
 **Moderna's COVID-19 Vaccine Candidate Moves Into Late-Stage Trial**\
-`Moderna Inc said on Monday it has started a U.S. government-backed late-stage trial evaluating its COVID-19 vaccine candidate, mRNA-1273, in about 30,000 adults who do not have the respiratory illness caused by the new coronavirus. `\
+`Moderna Inc said on Monday it has started a U.S. government-backed late-stage trial to assess its COVID-19 vaccine candidate in about 30,000 adults who do not have the respiratory illness caused by the new coronavirus. `\
 https://nytimes.com/reuters/2020/07/27/us/27reuters-health-coronavirus-moderna.html?searchResultPosition=8
 
 **An Evaporating $600 for Millions of Americans**\
