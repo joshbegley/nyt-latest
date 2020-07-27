@@ -1,40 +1,40 @@
-**Confirmed Coronavirus Cases Surpass 100,000 in Indonesia**\
-`Indonesia announced Monday that its confirmed number of coronavirus cases has surpassed 100,000, the most in Southeast Asia, as an official said the government still doesn't know when the outbreak will peak.`\
-https://nytimes.com/aponline/2020/07/27/world/asia/ap-as-virus-outbreak-indonesia-.html?searchResultPosition=1
+**Exploring the Solar System**\
+`A guide to the spacecraft beyond Earth’s orbit.`\
+https://nytimes.com/interactive/2020/science/exploring-the-solar-system.html?searchResultPosition=1
 
-**German Economic Outlook Brighter for 3rd Month Post-Shutdown**\
-`An important indicator of the German business outlook rose in July for the third month in a row as economic activity continues to pick up after many of the coronoavirus restrictions were eased or lifted.`\
-https://nytimes.com/aponline/2020/07/27/business/bc-eu-germany-economy.html?searchResultPosition=2
+**On the Lookout for Moose on Michigan’s Isle Royale**\
+`The remote Isle Royale, tucked away in the northern reaches of Lake Superior, is one of America’s least visited national parks.`\
+https://nytimes.com/2020/07/27/travel/moose-michigan-isle-royale.html?searchResultPosition=2
 
-**S. Korean, Hungarian FMs Discuss Cooperation Amid Pandemic**\
-`The foreign ministers of South Korea and Hungary met in Seoul on Monday to discuss maintaining bilateral cooperation amid the COVID-19 pandemic, South Korea's Foreign Ministry said.`\
-https://nytimes.com/aponline/2020/07/27/business/ap-as-south-korea-hungary-.html?searchResultPosition=3
+**You Won’t Find These Masks at 7-Eleven**\
+`Motorized air purifiers and heated sanitizers. Breathable fabrics and chic prints. With face coverings here to stay, consumers are starting to demand more than cheap throwaways.`\
+https://nytimes.com/2020/07/27/business/fashion-masks-coronavirus.html?searchResultPosition=3
 
-**Verdict in First 1MDB Case Packs Risk for Malaysian Government**\
-`Whichever way the verdict goes on Tuesday in the first 1MDB corruption trial of Malaysia's former leader Najib Razak, the outcome will be fraught with risk for Prime Minister Muhyiddin Yassin, political sources and analysts say.`\
-https://nytimes.com/reuters/2020/07/27/world/asia/27reuters-malaysia-politics.html?searchResultPosition=4
+**Coming of Age on Mars**\
+`In a new book, planetary scientist Sarah Stewart Johnson recalls how the Red Planet drew her to become a scientist.`\
+https://nytimes.com/2020/07/27/science/mars-sarah-stewart-johnson.html?searchResultPosition=4
 
-**Palestinians: Settler Vandals Firebomb West Bank Mosque**\
-`The Palestinian Authority said Monday that a group of Israeli settlers has tried to burn down a mosque near the West Bank city of Ramallah.`\
-https://nytimes.com/aponline/2020/07/27/world/middleeast/ap-ml-israel-palestinians.html?searchResultPosition=5
+**A Possible Weapon Against the Pandemic: Printing Human Tissue**\
+`Bioprinting could be used for testing potential treatments for Covid-19, cancer and other diseases.`\
+https://nytimes.com/2020/07/27/science/bioprinting-covid-19-tests.html?searchResultPosition=5
 
-**Novartis, Austria Team Up to Support Tyrol Antibiotics Plant**\
-`Swiss drugmaker Novartis's Sandoz division and the Austrian government will invest about 150 million euros ($176 million) to shore up antibiotics production at a plant in Tyrol, the company said on Monday.`\
-https://nytimes.com/reuters/2020/07/27/world/europe/27reuters-novartis-antibiotics.html?searchResultPosition=6
+**The Celebrity Bookshelf Detective Is Back**\
+`We peer over the shoulders of Gwyneth Paltrow, Regina King, Charlamagne tha God, Yo-Yo Ma and others for a glimpse at their reading habits.`\
+https://nytimes.com/2020/07/27/books/tom-hanks-gwyneth-paltrow-bookshelves.html?searchResultPosition=6
 
-**Spain: Court Hears Testimony on Whether Assange Was Spied On**\
-`Spain’s National Court is due to hear testimony Monday in an investigation into whether a Spanish company was hired to spy on Julian Assange during the seven years the WikiLeaks founder spent in the Ecuadorean Embassy in London.`\
-https://nytimes.com/aponline/2020/07/27/world/europe/ap-eu-spain-assange.html?searchResultPosition=7
+**Why Montana Is a Test Case for Democrats’ Winning the Senate**\
+`The race between Steve Daines, the Republican incumbent, and Steve Bullock could prove crucial in a year when Democrats need to win in conservative-leaning states where President Trump may still prevail.`\
+https://nytimes.com/2020/07/27/us/politics/montana-senate-bullock-daines.html?searchResultPosition=7
 
-**Pilgrims Arrive in Mecca for Downsized Hajj Amid Pandemic**\
-`Muslim pilgrims have started arriving in Mecca for a drastically scaled-down hajj as Saudi authorities balance the kingdom's oversight of one of Islam's key pillars and the safety of visitors in the face of a global pandemic.`\
-https://nytimes.com/aponline/2020/07/27/world/middleeast/ap-ml-saudi-hajj.html?searchResultPosition=8
+**These Businesses Lasted Decades. The Virus Closed Them for Good.**\
+`The pandemic has wiped out the longstanding anchors of New York neighborhoods.`\
+https://nytimes.com/2020/07/27/nyregion/coronavirus-small-business-nyc.html?searchResultPosition=8
 
-**‘That’s Ridiculous.’ How America’s Coronavirus Response Looks Abroad.**\
-`From lockdowns to testing, we showed people from around the world the facts and figures on how America handled the virus. It wasn’t pretty.`\
-https://nytimes.com/video/opinion/100000007227777/covid-19-global-response.html?searchResultPosition=9
+**Jeff Bezos Cast in a Role He Never Wanted: Amazon’s D.C. Defender**\
+`The chief executive, who testifies before Congress for the first time on Wednesday, had taken a hands-off approach with lawmakers in Washington.`\
+https://nytimes.com/2020/07/27/business/jeff-bezos-amazon-congress.html?searchResultPosition=9
 
-**Hong Kong Records 145 Cases of Coronavirus, New Daily High**\
-`Hong Kong authorities reported 145 new cases of coronavirus on Monday, of which 142 were locally transmitted, setting a new daily high just hours after the city announced its toughest measures yet to curb a community outbreak. `\
-https://nytimes.com/reuters/2020/07/27/world/asia/27reuters-health-coronavirus-hongkong-cases.html?searchResultPosition=10
+**Hoping to Understand the Virus, Everyone Is Parsing a Mountain of Data**\
+`The coronavirus pandemic has left ordinary people debating case counts, positivity rates and hospitalization numbers in hopes of understanding the virus’s path.`\
+https://nytimes.com/2020/07/27/us/coronavirus-data.html?searchResultPosition=10
 
