@@ -3,7 +3,7 @@
 https://nytimes.com/2020/07/27/world/asia/south-korea-mustache.html?searchResultPosition=1
 
 **DealBook: The New World of Work**\
-`The profound changes that would be brought about if widespread remote working became long term would create winners and losers.`\
+`Profound changes may result if remote working becomes more widespread and long-term, creating winners and losers.`\
 https://nytimes.com/2020/07/27/business/dealbook/remote-work-risks.html?searchResultPosition=2
 
 **On Chicago's South Side, Some Violence-Weary Residents Open to Federal Investigators**\
