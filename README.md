@@ -1,10 +1,10 @@
-**White House, Senate GOP Try Again on $1 Trillion Virus Aid**\
-`Suggesting a narrower pandemic  relief package may be all that's possible, the White House still pushed ahead with Monday's planned rollout of the Senate Republicans' $1 trillion effort as House Speaker Nancy Pelosi assailed the GOP “disarray” as time-wasting during the crisis.`\
-https://nytimes.com/aponline/2020/07/27/business/ap-us-virus-outbreak-congress.html?searchResultPosition=1
-
 **Missing Rohingya Refugees Found Alive on Malaysian Islet**\
 `Twenty-six Rohingya refugees, who had been feared drowned while trying to swim ashore on the Malaysian resort island of Langkawi, were found alive hiding in the bushes on a nearby islet, a senior coastguard official said on Monday.`\
-https://nytimes.com/reuters/2020/07/27/world/asia/27reuters-myanmar-rohingya-malaysia.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/27/world/asia/27reuters-myanmar-rohingya-malaysia.html?searchResultPosition=1
+
+**White House, Senate GOP Try Again on $1 Trillion Virus Aid**\
+`Suggesting a narrower pandemic  relief package may be all that's possible, the White House still pushed ahead with Monday's planned rollout of the Senate Republicans' $1 trillion effort as House Speaker Nancy Pelosi assailed the GOP “disarray” as time-wasting during the crisis.`\
+https://nytimes.com/aponline/2020/07/27/business/ap-us-virus-outbreak-congress.html?searchResultPosition=2
 
 **Hong Kong to Ban All Restaurant Dining, Mandate Masks Outdoors: Media**\
 `Hong Kong on Monday will announce further restrictions to curb the surge in coronavirus cases, including a total ban on restaurant dining and mandated facemasks outdoors, media reported.`\
