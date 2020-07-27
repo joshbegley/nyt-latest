@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/07/27/sports/olympics/27reuters-olympics-2020-v
 https://nytimes.com/reuters/2020/07/27/business/27reuters-global-oil.html?searchResultPosition=6
 
 **South Africa's Steinhoff Proposes $1 Billion Settlement to Solve Legal Disputes**\
-`Scandal-hit South African retailer Steinhoff International said on Monday it had proposed a settlement, worth up to around $1 billion, to settle a stream of legal claims against the company. `\
+`South African retailer Steinhoff International said on Monday it had proposed a settlement worth up to around $1 billion to settle a stream of legal claims against it following a massive accounting fraud. `\
 https://nytimes.com/reuters/2020/07/27/world/europe/27reuters-steinhoff-intln-settlement.html?searchResultPosition=7
 
 **Australia Posts Daily Virus Record, More Deaths Expected**\
