@@ -12,7 +12,7 @@ https://nytimes.com/aponline/2020/07/27/business/bc-eu-britain-earns-ryanair.htm
 
 **An American Mustache That Irritated South Koreans Is No More**\
 `Blaming the summer’s heat, the U.S. ambassador lopped off a bit of facial hair that had reminded some of brutal colonial Japan.`\
-https://nytimes.com/2020/07/27/world/asia/south-korea-mustache.html?searchResultPosition=4
+https://nytimes.com/2020/07/27/world/asia/south-korea-ambassador-mustache-harry-harris.html?searchResultPosition=4
 
 **DealBook: The New World of Work**\
 `Profound changes may result if remote working becomes more widespread and long-term, creating winners and losers.`\
