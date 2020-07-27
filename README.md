@@ -31,7 +31,7 @@ https://nytimes.com/aponline/2020/07/27/sports/baseball/ap-bbn-diamondbacks-padr
 https://nytimes.com/aponline/2020/07/27/us/ap-us-shark-bite-3rd-ld-writethru.html?searchResultPosition=8
 
 **New Zealand Suspends Extradition Treaty With Hong Kong**\
-`New Zealand has suspended its extradition treaty with Hong Kong and made a number of other changes in light of China's decision to pass a national security law for Hong Kong, Foreign Affairs Minister Winston Peters said on Tuesday.`\
+`New Zealand has suspended its extradition treaty with Hong Kong and made a number of other changes following China's decision to pass a national security law for the territory, Foreign Affairs Minister Winston Peters said on Tuesday.`\
 https://nytimes.com/reuters/2020/07/27/world/asia/27reuters-hongkong-security-newzealand.html?searchResultPosition=9
 
 **Democratic Committee OKs Platform With Progressives' Input**\
