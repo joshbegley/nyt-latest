@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/07/26/sports/olympics/26reuters-olympics-drawin
 `Syrian businessman Rami Makhlouf revealed on Sunday he had set up a web of offshore front companies to help President Bashar al Assad evade Western sanctions, in a social media post blasting the government for investigating his business empire.`\
 https://nytimes.com/reuters/2020/07/26/technology/26reuters-syria-security-tycoon.html?searchResultPosition=7
 
-**US Closes Consulate in Chengdu, China, After Houston Order**\
-`The U.S. says it has closed its consulate in Chengdu, China. China ordered the consulate closed in retaliation for a U.S. order to shut down the Chinese Consulate in Houston last week.`\
+**US Closes Chengdu Consulate in China, After Houston Order**\
+`The U.S. closed its consulate in the southwestern Chinese city of Chengdu on Monday, a victim of the rising tensions between the global powers.`\
 https://nytimes.com/aponline/2020/07/26/world/asia/ap-as-china-us-1st-ld-writethru.html?searchResultPosition=8
 
 **MLB Returns With Thrills; Red Flags Remain After 1st Weekend**\
