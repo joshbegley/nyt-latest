@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/07/27/world/asia/27reuters-newzealand-economy-r
 `China's state planner said on Tuesday that it plans to cut broadband fees for companies by an average of 15%.`\
 https://nytimes.com/reuters/2020/07/27/technology/27reuters-china-economy-policy.html?searchResultPosition=3
 
-**Argentina Main Creditors Say Have Added More Funds to Group**\
-`Argentina's main creditor groups said on Monday their most recent restructuring proposal to the government has support from bondholders representing more than half of the country's foreign debt. `\
+**Argentina Main Creditors Say Support for Joint Proposal Broadens With More Funds**\
+`Argentina's main creditors said on Monday their latest debt restructuring proposal has support from investors holding more than half the country's foreign debt, bolstering their base for countering the government's most recent offer.`\
 https://nytimes.com/reuters/2020/07/27/world/americas/27reuters-argentina-debt.html?searchResultPosition=4
 
 **Philippines' PLDT, Globe Shares Drop on Duterte Closure, Takeover Threats**\
