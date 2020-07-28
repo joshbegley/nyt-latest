@@ -15,7 +15,7 @@ https://nytimes.com/2020/07/28/business/media/universal-amc-movies-at-home.html?
 https://nytimes.com/reuters/2020/07/28/business/28reuters-usa-tech-congress.html?searchResultPosition=4
 
 **John Saxon, a Star of ‘Enter the Dragon,’ Is Dead at 83**\
-`He was sometimes compared to Marlon Brando — whom he thought he outacted in the one film they made together, “The Appaloosa.”`\
+`He was sometimes compared to Marlon Brando — whom he thought he had outacted in the one film they made together, “The Appaloosa.”`\
 https://nytimes.com/2020/07/28/arts/television/john-saxon-dead.html?searchResultPosition=5
 
 **NFL Training Camps Opening With Eye on Baseball, Babysitting**\
