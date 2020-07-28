@@ -1,40 +1,40 @@
+**Scientists Revive 100 Million-Year-Old Microbes From Deep Under Seafloor**\
+`Scientists have succeeded in reviving microbes retrieved from sediment deep under the seafloor in the heart of the South Pacific that had survived in a dormant state for 101.5 million years in research illustrating the resiliency of life on Earth.`\
+https://nytimes.com/reuters/2020/07/28/world/asia/28reuters-science-microbes.html?searchResultPosition=1
+
+**Belarus President Says He Had Asymptomatic Coronavirus**\
+`Belarusian President Alexander Lukashenko said on Tuesday he had had the coronavirus without any symptoms and had already recovered from it, the BELTA news agency quoted him as saying.`\
+https://nytimes.com/reuters/2020/07/28/world/europe/28reuters-health-coronavirus-belarus.html?searchResultPosition=2
+
+**Taliban to Halt Military Operations Over 3-Day Eid Holiday**\
+`The Taliban announced Tuesday they won't carry out military operations in Afghanistan for three days during the Muslim holiday of Eid ul Adha that starts this weekend. `\
+https://nytimes.com/aponline/2020/07/28/world/asia/ap-as-afghanistan-peace-talks-1st-ld-writethru.html?searchResultPosition=3
+
+**First Hearing Begins in Corruption Trial of Former Pemex Boss**\
+`The former chief executive of Mexican state oil firm Petroleos Mexicanos, Emilio Lozoya, appeared in court on Tuesday morning for the first hearing into corruption charges he is facing, according to a judicial official.`\
+https://nytimes.com/reuters/2020/07/28/world/americas/28reuters-mexico-corruption.html?searchResultPosition=4
+
+**Air Travel Expected to Not Recover Before 2024**\
+`Global air travel is recovering more slowly than expected and will take until until 2024 to return to pre-pandemic levels, the trade association for the airline industry said Tuesday. `\
+https://nytimes.com/aponline/2020/07/28/business/bc-virus-outbreak-air-travel.html?searchResultPosition=5
+
+**Biden Says Post-Pandemic Economy Can Fight Racial Inequality**\
+`Joe Biden unveiled a plan Tuesday to ensure that the nation’s post-pandemic economic recovery is built around promoting racial equality, promising to dramatically spur investment in Black-owned small businesses and encourage home ownership while closing wealth gaps among minority communities. `\
+https://nytimes.com/aponline/2020/07/28/us/politics/bc-us-election-2020-biden.html?searchResultPosition=6
+
+**These Microbes May Have Survived 100 Million Years Beneath the Seafloor**\
+`Rescued from their cold, cramped and nutrient-poor homes, the bacteria awoke in the lab and grew.`\
+https://nytimes.com/2020/07/28/science/microbes-100-million-years-old.html?searchResultPosition=7
+
+**Canada Gives Conditional Approval to Gilead's Remdesivir for COVID-19**\
+`Canada on Tuesday granted conditional approval to Gilead Sciences Inc's antiviral treatment remdesivir to treat patients with severe symptoms of COVID-19, making it the first approved treatment for the fast-spreading illness in the country. `\
+https://nytimes.com/reuters/2020/07/28/us/28reuters-health-coronavirus-gilead-sciences-canada.html?searchResultPosition=8
+
+**Fed Extends Lending Programs as Pandemic's Impact Lengthens**\
+`The Federal Reserve will extend seven of its emergency lending programs through the end of the year, an acknowledgement that the programs may be necessary for longer than was first thought as the nation struggles to control the coronavirus.`\
+https://nytimes.com/aponline/2020/07/28/business/ap-us-federal-reserve-lending-programs.html?searchResultPosition=9
+
 **A Forgotten Town at the Center of the Manhattan Project**\
 `In “The Apocalypse Factory,” Steve Olson tells the story of Hanford, a small rural town in Washington State that played an outsize role in America’s nuclear ambitions.`\
-https://nytimes.com/2020/07/28/books/review/the-apocalypse-factory-steve-olson.html?searchResultPosition=1
-
-**Pfizer Rethinking U.S. Expansion if Drug Pricing Orders Implemented**\
-`Pfizer Inc Chief Executive Albert Bourla said the drugmaker could rethink plans to expand in the United States if the country implements an executive order signed by President Donald Trump last week that would tie the prices Medicare patients pay for drugs to those paid by other countries.`\
-https://nytimes.com/reuters/2020/07/28/business/28reuters-pfizer-results-drugpricing.html?searchResultPosition=2
-
-**Faith in Protest as Young People Find Fervor on the Street**\
-`“I can’t breathe!’” the crowd chanted, invoking the dying words spoken by George Floyd as a white police officer pressed a knee into his neck.`\
-https://nytimes.com/aponline/2020/07/28/us/ap-us-racial-injustice-youth-and-faith.html?searchResultPosition=3
-
-**Florida Reports Record One-Day Increase in COVID-19 Deaths**\
-`Florida reported a record one-day increase in coronavirus deaths on Tuesday with 191 fatalities in the last 24 hours, according to the state health department.`\
-https://nytimes.com/reuters/2020/07/28/us/28reuters-health-coronavirus-usa-florida.html?searchResultPosition=4
-
-**Fauci Defends Himself, Urges Masks After Trump Deletes Video**\
-`Dr. Anthony Fauci, the nation's top infectious disease expert who has led the country through multiple health crises for decades, on Tuesday defended his work to protect Americans'  health after the president retweeted a controversial video later removed by social media companies.`\
-https://nytimes.com/reuters/2020/07/28/us/28reuters-health-coronavirus-usa-fauci.html?searchResultPosition=5
-
-**France's Global Nuclear Fusion Device a Puzzle of Huge Parts**\
-`A hugely ambitious project to replicate the energy of the sun is entering a critical phase, as scientists and technicians in southern France begin assembling huge parts of a nuclear fusion device, an international experiment aimed to develop the ultimate clean energy source.`\
-https://nytimes.com/aponline/2020/07/28/world/europe/ap-eu-france-fusion-reactor.html?searchResultPosition=6
-
-**Baseball: Four More Marlins Players Test Positive for COVID-19-Reports**\
-`Four additional Miami Marlins players have tested positive for COVID-19, bringing the total number of cases within the Major League Baseball club to 17 over the last five days, according to multiple reports on Tuesday.`\
-https://nytimes.com/reuters/2020/07/28/sports/baseball/28reuters-health-coronavirus-baseball-mlb-mia.html?searchResultPosition=7
-
-**Catalan Youngsters Face Hefty Fines for 'Botellon' Drinking Parties**\
-`Catalonia on Tuesday banned informal outdoor parties popular with youngsters, saying anyone taking part would be fined up to 15,000 euros ($17,598.00), in the latest step to curb the spread of the new coronavirus.`\
-https://nytimes.com/reuters/2020/07/28/world/europe/28reuters-health-coronavirus-spain-drinks.html?searchResultPosition=8
-
-**Twitter Puts Curbs on Donald Trump Jr's Account Over COVID-19 Tweet**\
-`Twitter Inc said on Tuesday it limited access to Donald Trump Jr's account for 12 hours after his post violated the micro-blogging site's misinformation policy on COVID-19. `\
-https://nytimes.com/reuters/2020/07/28/technology/28reuters-twitter-donald-trump-jr.html?searchResultPosition=9
-
-**AP Source: Yankees-Phillies Postponed for 2nd Straight Day**\
-`The New York Yankees-Philadelphia Phillies games was postponed Tuesday for the second straight day, according to a person familiar with the league’s decision.`\
-https://nytimes.com/aponline/2020/07/28/sports/baseball/ap-bbo-yankees-phillies-ppd.html?searchResultPosition=10
+https://nytimes.com/2020/07/28/books/review/the-apocalypse-factory-steve-olson.html?searchResultPosition=10
 
