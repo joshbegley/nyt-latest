@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/07/28/us/28reuters-usa-economy-homeownership.ht
 `China and the European Union will accelerate negotiations in order to conclude a China-EU investment agreement by the end of this year, Chinese Vice Premier Liu He said on Tuesday.`\
 https://nytimes.com/reuters/2020/07/28/business/28reuters-china-eu-investment.html?searchResultPosition=2
 
-**Yankees-Phillies Game Postponed for Second Straight Day**\
-`An outbreak of the coronavirus among the Miami Marlins, who played at the Phillies’ ballpark over the weekend, forced another game to be canceled.`\
+**Another Yankees-Phillies Game Is Postponed Over Virus Concerns**\
+`An outbreak of the coronavirus among the Miami Marlins, who played at the Phillies’ ballpark over the weekend, forced the Yankees and Phillies to call off their game for the second straight day.`\
 https://nytimes.com/2020/07/28/sports/baseball/yankees-phillies-postponed.html?searchResultPosition=3
 
 **Cash Burn in Question for Struggling GE**\
