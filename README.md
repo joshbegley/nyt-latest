@@ -1,40 +1,40 @@
+**Spain's Unemployment Rises to 15.33% in Second Quarter**\
+`Spain's unemployment rate rose to 15,33% in the second quarter of the year, data from the National Statistics Institute showed on Tuesday, with many more people who lost their job in the coronavirus pandemic not included in the statistic.`\
+https://nytimes.com/reuters/2020/07/28/world/europe/28reuters-spain-economy-unemployment.html?searchResultPosition=1
+
+**Eagles Honor Bryant With Practice Facility Mural**\
+`The Philadelphia Eagles have paid tribute to the late Kobe Bryant with a mural featuring the former NBA great's "10 rules" on a wall at their practice facility.`\
+https://nytimes.com/reuters/2020/07/28/sports/football/28reuters-football-nfl-eagles-bryant.html?searchResultPosition=2
+
+**Russia's Coronavirus Cases Surpass 820,000**\
+`Russia reported 5,395 new cases of the novel coronavirus on Tuesday, bringing its nationwide tally to 823,515, the fourth largest in the world.`\
+https://nytimes.com/reuters/2020/07/28/world/europe/28reuters-health-coronavirus-russia-cases.html?searchResultPosition=3
+
+**Walmart's Flipkart to Offer 90-Minute Delivery in India**\
+`India's Flipkart said on Tuesday it plans to offer 90-minute deliveries for groceries and home accessories, as the Walmart-owned online retailer goes head to head with Amazon.com Inc in a key growth market for e-commerce.`\
+https://nytimes.com/reuters/2020/07/28/business/28reuters-india-flipkart.html?searchResultPosition=4
+
+**Lebanese PM Urges Caution Amid Heightened Border Tensions With Israel**\
+`Lebanon's Prime Minister Hassan Diab said on Tuesday that Israel had violated his country's sovereignty with a "dangerous military escalation" along the Israeli-Lebanese frontier on Monday and called for caution amid heightened border tensions.`\
+https://nytimes.com/reuters/2020/07/28/world/middleeast/28reuters-israel-lebanon.html?searchResultPosition=5
+
+**Can You Get the Coronavirus Twice?**\
+`Can you get the coronavirus twice?`\
+https://nytimes.com/aponline/2020/07/28/us/ap-us-virus-outbreak-viral-questions-reinfection.html?searchResultPosition=6
+
 **Amazon Steps Up Challenge in UK Grocery Delivery**\
 `Amazon will begin fast and free deliveries of groceries in London on Tuesday, with the aim of rolling out the service across the United Kingdom by the year-end as the coronavirus-driven lockdown boosted online sales of essentials.`\
-https://nytimes.com/reuters/2020/07/28/technology/28reuters-britain-grocerydelivery-amazon.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/28/technology/28reuters-britain-grocerydelivery-amazon.html?searchResultPosition=7
 
 **North Korea Steps Up Coronavirus Prevention After First Possible Infection**\
 `North Korea introduced tougher prevention measures against the novel coronavirus on Tuesday, state media reported, after it locked down the border town of Kaesong to tackle what could be its first publicly confirmed case of the respiratory disease.`\
-https://nytimes.com/reuters/2020/07/28/world/asia/28reuters-health-coronavirus-northkorea.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/28/world/asia/28reuters-health-coronavirus-northkorea.html?searchResultPosition=8
 
 **Virus Vanguard: Cape Town Learned Painful Lessons Early On**\
 `When Cape Town emerged as Africa’s first coronavirus hot spot, Dr. Abu Mowlana was surprised by the fear that broke out among his colleagues.`\
-https://nytimes.com/aponline/2020/07/28/world/africa/ap-af-virus-outbreak-africas-first-hotbed.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/28/world/africa/ap-af-virus-outbreak-africas-first-hotbed.html?searchResultPosition=9
 
 **Australian PM Abandons Interstate Tour to Tackle Coronavirus Crisis**\
 `Australian Prime Minister Scott Morrison cut short an interstate tour on Tuesday to help deal with a "very complex" coronavirus outbreak in aged care homes in Melbourne, the epicentre of a second wave of infection that has alarmed health officials. `\
-https://nytimes.com/reuters/2020/07/28/world/asia/28reuters-health-coronavirus-australia.html?searchResultPosition=4
-
-**Exclusive: China's Ctrip in Talks With Investors to Delist From Nasdaq-Sources**\
-`Chinese online travel giant Ctrip is in talks with potential investors about funding its delisting from Nasdaq because of rising U.S.-China tensions and the coronavirus-driven hit to its business, sources told Reuters.`\
-https://nytimes.com/reuters/2020/07/28/business/28reuters-ctrip-take-private-exclusive.html?searchResultPosition=5
-
-**Chinese in Sydney Fall Victim to 'Virtual Kidnapping' Scam**\
-`Australian police have revealed that Chinese students based in Sydney are being forced to stage photos and video of themselves bound and blindfolded in an extortion scam described as virtual kidnapping.`\
-https://nytimes.com/aponline/2020/07/28/world/asia/ap-as-australia-virtual-kidnapping.html?searchResultPosition=6
-
-**The Latest: South Africa Nearing Half-Million Virus Cases**\
-`JOHANNESBURG — South Africa is closing in on a half-million confirmed coronavirus cases as the country posted nearly 300 deaths in a single day. `\
-https://nytimes.com/aponline/2020/07/28/business/ap-virus-outbreak-the-latest.html?searchResultPosition=7
-
-**Mitsubishi Motors Hits All-Time Low as ASEAN Sales Slump Casts Doubt on Recovery**\
-`Japan's Mitsubishi Motors faced doubts about a quick recovery after posting dismal quarterly sales in its key Southeast Asia market partly due to the coronavirus outbreak, sending its shares down 13% to a record low on Tuesday.`\
-https://nytimes.com/reuters/2020/07/28/business/28reuters-mitsubishimotors-stocks.html?searchResultPosition=8
-
-**Late Night Wonders Whether Tom Cotton Is a Necessary Evil**\
-`The senator’s reference to slavery had Seth Meyers marveling at Republicans’ communication skills: “Seriously, these guys just keep coming up with winners.”`\
-https://nytimes.com/2020/07/28/arts/television/late-night-tom-cotton-slavery.html?searchResultPosition=9
-
-**Taiwan Second-Quarter GDP Growth May Slow Further to Four-Year Low on Pandemic Hit: Reuters Poll**\
-`Taiwan's economic growth probably slowed further in the second quarter to its weakest in more than four years, a Reuters poll showed, as softer consumer spending during the coronavirus pandemic offsets strong electronics exports.`\
-https://nytimes.com/reuters/2020/07/28/technology/28reuters-taiwan-economy-gdp-poll.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/28/world/asia/28reuters-health-coronavirus-australia.html?searchResultPosition=10
 
