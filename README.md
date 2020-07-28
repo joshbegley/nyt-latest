@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/07/27/us/ap-us-killing-by-police.html?searchRe
 `Top North Dakota Republican officials on Monday disavowed an anti-LGBT resolution that was passed by hundreds of the party’s delegates and denounced by the state’s GOP governor. `\
 https://nytimes.com/aponline/2020/07/27/us/ap-us-anti-lgbt-resolution-gop.html?searchResultPosition=2
 
-**U.S. Attorney General to Defend Use of Federal Agents to Quell Portland Protests**\
+**Attorney General to Defend Use of Federal Agents to Quell Portland Protests**\
 `U.S. Attorney General William Barr will defend the Justice Department's use of federal law enforcement agents to quell protests in Portland in congressional testimony on Tuesday, saying attacks on the federal courthouse there represent "an assault on the government of the United States."`\
 https://nytimes.com/reuters/2020/07/27/us/politics/27reuters-usa-congress-barr.html?searchResultPosition=3
 
