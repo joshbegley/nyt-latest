@@ -26,7 +26,7 @@ https://nytimes.com/aponline/2020/07/27/business/ap-us-airlines-jobs.html?search
 `United Airlines has told two regional airlines, ExpressJet and CommutAir, that it will drop its contract with one, according to a pilot union letter seen by Reuters, in a potentially mortal blow to the losing carrier as the coronavirus pandemic guts demand. `\
 https://nytimes.com/reuters/2020/07/27/business/27reuters-health-coronavirus-united-arlns-regional.html?searchResultPosition=7
 
-**With ‘Room for Rage,’ Peaceful Protesters Sympathize With Aggressive Tactics**\
+**Peaceful Protesters With ‘Room for Rage’ Sympathize With Aggressive Tactics**\
 `A forceful campaign by federal law enforcement in Portland, Ore., has prompted an escalation in tactics from some protesters, while others wonder whether they are losing their focus.`\
 https://nytimes.com/2020/07/27/us/protests-divisions-blm.html?searchResultPosition=8
 
