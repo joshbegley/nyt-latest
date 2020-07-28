@@ -1,40 +1,40 @@
+**AP WAS THERE: 1924 Paris Olympics**\
+`EDITORS — With the Tokyo Olympics postponed for a year because of the coronavirus pandemic, The Associated Press is looking back at the history of Summer Games.`\
+https://nytimes.com/aponline/2020/07/28/sports/olympics/ap-oly-ap-was-there-1924-paris-games.html?searchResultPosition=1
+
+**‘An Elder and a Humble Giant’ Why They Came to Say Goodbye to John Lewis**\
+`Scores of people lined up to pay respects to Representative John Lewis, the civil rights icon and “conscience of Congress”, as he lay in state in the Capitol on Monday.`\
+https://nytimes.com/interactive/2020/07/28/multimedia/john-lewis-capitol-memorial.html?searchResultPosition=2
+
+**France Reports 14 More Coronavirus Deaths, Raising Total to 30,223**\
+`French health authorities reported 14 new deaths from the new coronavirus on Tuesday, taking the total to 30,223, a figure twice as high as the daily average increase of seven seen over the last week.`\
+https://nytimes.com/reuters/2020/07/28/world/europe/28reuters-health-coronavirus-france-casualties.html?searchResultPosition=3
+
+**Paris Olympics in 1924 Set Stage for Hollywood Endings**\
+`There was a soon-to-be Hollywood star in the pool, and a soon-to-be Hollywood ending on the track at the 1924 Paris Olympics.`\
+https://nytimes.com/aponline/2020/07/28/sports/olympics/ap-oly-1924-paris-games.html?searchResultPosition=4
+
+**Here’s Where to Store All the Gold You’ve Been Hoarding**\
+`A multitude of options, from burying in the backyard to posh steel-lined vaults.`\
+https://nytimes.com/2020/07/28/style/gold-storage.html?searchResultPosition=5
+
 **Belgians Adapt to Compulsory Face Masks Along North Sea Coast**\
 `There could be no one around but the wind and the sea, but wherever you go along Belgium's coast this summer you had better wear a mask.`\
-https://nytimes.com/reuters/2020/07/28/world/europe/28reuters-health-coronavirus-belgium-coast.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/28/world/europe/28reuters-health-coronavirus-belgium-coast.html?searchResultPosition=6
 
 **Russia Asks World Athletics to Postpone Decision on Possible Expulsion**\
 `Russia's suspended athletics federation (RusAF) has asked World Athletics to postpone a decision on potential fresh sanctions or even expulsion.`\
-https://nytimes.com/reuters/2020/07/28/sports/28reuters-sport-doping-russia-athletics.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/28/sports/28reuters-sport-doping-russia-athletics.html?searchResultPosition=7
 
 **Exclusive: Trump Administration to Undertake DACA Review in New Bid to End Program**\
 `U.S. President Donald Trump's administration plans to allow so-called 'Dreamer' immigrants to renew deportation protections for a year while it reviews a Supreme Court ruling, a senior administration official said on Tuesday.`\
-https://nytimes.com/reuters/2020/07/28/us/28reuters-usa-immigration-trump-daca-exclusive.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/28/us/28reuters-usa-immigration-trump-daca-exclusive.html?searchResultPosition=8
 
 **U.N. Still Waiting for Houthi Approval to Visit Decaying Oil Tanker Off Yemen**\
 `The United Nations said on Tuesday it was still waiting for Yemen's Houthi group to authorize deployment of an assessment team to a decaying oil tanker that is threatening to spill 1.1 million barrels of crude oil off the war-torn country's coast.`\
-https://nytimes.com/reuters/2020/07/28/world/middleeast/28reuters-yemen-security-tanker.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/28/world/middleeast/28reuters-yemen-security-tanker.html?searchResultPosition=9
 
 **Back to Health, Blues and Avalanche Top Two Teams in West**\
 `Look who's back and healthy for the Colorado Avalanche: Pretty much everyone. Ditto for St. Louis, the defending Stanley Cup champions.`\
-https://nytimes.com/aponline/2020/07/28/sports/hockey/ap-hkn-avalanche-blues-preview.html?searchResultPosition=5
-
-**San Francisco Fire Displaces Dozens**\
-`One firefighter was injured in a five-alarm blaze that engulfed six buildings in the city’s South of Market neighborhood on Tuesday.`\
-https://nytimes.com/2020/07/28/us/fire-san-francisco.html?searchResultPosition=6
-
-**Democrats, GOP Far Apart as Virus Aid Talks Intensify**\
-`Negotiations launched, the differences over the next coronavirus  aid package are vast, a gulf between Democrats' $3 trillion proposal and Republicans $1 trillion counteroffer, with millions of Americans' jobless benefits, school reopenings and eviction protections at stake.`\
-https://nytimes.com/aponline/2020/07/28/business/bc-us-virus-outbreak-congress.html?searchResultPosition=7
-
-**Scientists Get Closer to Blood Test for Alzheimer's Disease**\
-`An experimental blood test was highly accurate at distinguishing people with Alzheimer’s disease from those without it in several studies, boosting hopes that there soon may be a simple way to help diagnose this most common form of dementia.`\
-https://nytimes.com/aponline/2020/07/28/health/ap-us-med-alzheimer-blood-test.html?searchResultPosition=8
-
-**JPMorgan's Development Finance Arm Structures First Deal**\
-`JPMorgan's's development finance institution has structured its first deal, a $250 million five-year green bond for a power firm in Georgia, as it targets $100 billion for development projects annually, executives say.`\
-https://nytimes.com/reuters/2020/07/28/business/28reuters-jpmorgan-financing-emerging.html?searchResultPosition=9
-
-**Virgin Galactic Unveils Comfy Cabin for Jet-Setting to the Edge of Space**\
-`Passengers able to pay hundreds of thousands of dollars for a seat may escape gravity for a few minutes.`\
-https://nytimes.com/2020/07/28/science/virgin-galactic-cabin.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/28/sports/hockey/ap-hkn-avalanche-blues-preview.html?searchResultPosition=10
 
