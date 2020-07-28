@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/07/28/world/middleeast/ap-ml-israel-protests.h
 https://nytimes.com/2020/07/28/books/time-for-a-literary-road-trip.html?searchResultPosition=7
 
 **The Hijacking of Homeland Security**\
-`A former leader of the department says Trump is politicizing the agency and putting the nation at risk of real threats.`\
+`A former leader of the department says Trump is politicizing the agency and putting the nation at risk.`\
 https://nytimes.com/2020/07/28/opinion/homeland-security-portland-trump.html?searchResultPosition=8
 
 **Belarus Opposition Figure Fears He Won't Be Able to Go Home**\
