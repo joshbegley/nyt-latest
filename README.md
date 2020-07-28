@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/07/27/world/asia/27reuters-philippines-telecoms
 `Shares of Japan's Mitsubishi Motors Corp plunged more than 10% to an all-time low on Tuesday after the automaker posted dismal sales in its key Southeast Asian market and forecast a huge loss for this financial year. `\
 https://nytimes.com/reuters/2020/07/27/business/27reuters-mitsubishimotors-stocks.html?searchResultPosition=7
 
-**Australian Total Payroll Jobs Fall 1.1% Between Mid-June and Mid-July**\
-`Australian employment fell 1.1% between mid-June and mid-July, weekly data showed on Tuesday, with the biggest lost suffered in the second most populous state of Victoria which is seeing a fresh wave of coronavirus infections.`\
+**Australia's Payroll Jobs Fall From Mid-June Amid Second Virus Wave**\
+`Australian employment fell 1.1% between mid-June and mid-July, weekly data showed on Tuesday, with the biggest loss coming from  the second most populous state of Victoria which is grappling with a fresh wave of coronavirus infections.`\
 https://nytimes.com/reuters/2020/07/27/world/asia/27reuters-australia-economy-employment.html?searchResultPosition=8
 
 **Malaysian Ex-PM Najib Arrives in Court for Graft Verdict**\
