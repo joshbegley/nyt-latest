@@ -1,40 +1,40 @@
+**The Top iPhone and iPad Apps on App Store**\
+`Top Paid iPhone Apps:`\
+https://nytimes.com/aponline/2020/07/28/business/ap-us-itunes-apps-top-10.html?searchResultPosition=1
+
+**Once Canada's Oil Relief Valve, Rail Shipping Grinds to Near Halt**\
+`After moving record-large Canadian oil volumes by rail just five months ago, shippers have hit the brakes, idling thousands of cars and tens of millions of dollars' worth of infrastructure.`\
+https://nytimes.com/reuters/2020/07/28/business/28reuters-global-oil-canada-railways-analysis.html?searchResultPosition=2
+
+**Factbox: Key Nominations for the 2020 Emmy Awards**\
+`The nominations for the annual Emmy Awards, celebrating the best in television, were announced on Tuesday. The winners will be announced on Sept. 20.`\
+https://nytimes.com/reuters/2020/07/28/arts/28reuters-awards-emmys-nominations-factbox.html?searchResultPosition=3
+
+**Cold Comfort: France to Ban Heated Terraces, but Not This Winter**\
+`The ban is part of a series of environmental measures meant to curb energy consumption and push the nation toward a greener economy.`\
+https://nytimes.com/2020/07/28/world/europe/france-heated-terraces-coronavirus.html?searchResultPosition=4
+
+**‘Amazing, Isn’t It?’ Long Sought Blood Test for Alzheimer’s in Reach**\
+`Scientists say such tests could be available in a few years, speeding research for treatments and providing a diagnosis for dementia patients who want to know if they have Alzheimer’s disease.`\
+https://nytimes.com/2020/07/28/health/alzheimers-blood-test.html?searchResultPosition=5
+
+**Suspect Arrested in Shooting of 2 Protesters in Colorado**\
+`A man at a weekend Colorado protest who shot and wounded two demonstrators after he apparently aimed at a Jeep driving toward protesters has been arrested on suspicion of attempted homicide, authorities said.`\
+https://nytimes.com/aponline/2020/07/28/us/ap-us-racial-injustice-colorado-1st-ld-writethru.html?searchResultPosition=6
+
+**UK Tells China: We Will Be Watching Hong Kong Elections Closely**\
+`British foreign minister Dominic Raab told top Chinese diplomat Wang Yi that Britain would be watching Hong Kong Legislative Council elections in September closely and stressed that China needed to rebuild trust in the global community.`\
+https://nytimes.com/reuters/2020/07/28/world/europe/28reuters-hongkong-security-britain-raab.html?searchResultPosition=7
+
 **Women Renew Groping Claims Against Indiana Attorney General**\
 `The four women who say they were groped at a bar by Indiana Attorney General Curtis Hill have renewed their court challenges against him.`\
-https://nytimes.com/aponline/2020/07/28/us/ap-us-indiana-attorney-general-groping-allegations.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/28/us/ap-us-indiana-attorney-general-groping-allegations.html?searchResultPosition=8
 
 **Twitter Gives Trump's Son a Tweet Timeout**\
 `Twitter has temporarily halted President Donald Trump’s son from tweeting on its site after he shared a video riddled with unsupported claims about the coronavirus Monday. `\
-https://nytimes.com/aponline/2020/07/28/business/ap-us-twitter-trump-jr-timeout.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/28/business/ap-us-twitter-trump-jr-timeout.html?searchResultPosition=9
 
 **DraftKings Named PGA Tour's Official Betting Partner**\
 `DraftKings was named the first official betting operator of the PGA Tour on Tuesday.`\
-https://nytimes.com/reuters/2020/07/28/sports/golf/28reuters-golf-pga-draftkings.html?searchResultPosition=3
-
-**Recent Commercial Real Estate Transactions**\
-`Recent commercial real estate transactions in New York.`\
-https://nytimes.com/2020/07/28/business/recent-commercial-real-estate-transactions.html?searchResultPosition=4
-
-**Hanna Has Gone, but Virus Threat Remains in South Texas**\
-`Some areas hit by Hurricane Hanna in South Texas remain among the nation’s worst hot spots for the coronavirus, and the storm made getting patients to treatment difficult.`\
-https://nytimes.com/aponline/2020/07/28/us/ap-us-virus-outbreak-texas.html?searchResultPosition=5
-
-**Spotlight on 4 Big Tech CEOs Testifying in Competition Probe**\
-`They command corporations with gold-plated brands, millions or even billions of customers, and a combined value greater than the entire German economy.`\
-https://nytimes.com/aponline/2020/07/28/business/bc-us-congress-big-tech-ceos.html?searchResultPosition=6
-
-**2 Russian Aircraft Suspected of Violating Finland's Airspace**\
-`Two Russian military aircraft are suspected of having violated Finland's airspace close to its capital city of Helsinki, Finland’s defense ministry said Tuesday.`\
-https://nytimes.com/aponline/2020/07/28/world/europe/ap-eu-finland-russia-airspace-violation.html?searchResultPosition=7
-
-**In the Confederacy's Capital, Renewed Effort to Honor Slaves**\
-`For more than 150 years, Virginia's capital city greeted visitors with a landscape steeped in Confederate heritage and dotted with its relics, including a collection of enormous statues to rebel fighters. `\
-https://nytimes.com/aponline/2020/07/28/us/ap-us-richmonds-history.html?searchResultPosition=8
-
-**U.S. Says Air Strike in Somalia Killed One Civilian, Injured Three**\
-`The United States said on Tuesday one civilian was killed and three were injured in a U.S. air strike in Somalia in February, the second such admission since it launched quarterly reports on civilian casualties in its Africa operations. `\
-https://nytimes.com/reuters/2020/07/28/world/africa/28reuters-usa-somalia-security.html?searchResultPosition=9
-
-**ASMI Sees Lower Sales in Third Quarter After Solid Seond Quarter**\
-`Dutch semiconductor manufacturing equipment supplier ASM International NV said on Tuesday it expects third-quarter sales to fall from the previous quarter, which was boosted by continued high demand from data processing chip makers and semiconductor production plants.`\
-https://nytimes.com/reuters/2020/07/28/technology/28reuters-asm-intl-results.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/28/sports/golf/28reuters-golf-pga-draftkings.html?searchResultPosition=10
 
