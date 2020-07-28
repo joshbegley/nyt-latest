@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/07/27/world/asia/ap-as-new-zealand-hong-kong.h
 `China reported 68 new coronavirus cases in the mainland for July 27, up from 61 cases a day earlier, the health commission said on Tuesday.`\
 https://nytimes.com/reuters/2020/07/27/world/asia/27reuters-health-coronavirus-china-cases.html?searchResultPosition=8
 
-**Malaysian Ex-PM Najib to Face Verdict in First 1MDB Case**\
-`Former Malaysian prime minister Najib Razak is set to learn his fate on Tuesday as a court delivers a verdict in the first of several trials he faces over a multi-billion dollar graft scandal at 1MDB, a state fund he founded.`\
+**Malaysian Ex-PM Najib in Court to Face Verdict in First 1MDB Case**\
+`Former Malaysian prime minister Najib Razak arrived at a Kuala Lumpur court on Tuesday to hear a verdict in the first of several trials he faces over a multi-billion dollar graft scandal at 1MDB, a state fund he founded.`\
 https://nytimes.com/reuters/2020/07/27/business/27reuters-malaysia-politics-najib.html?searchResultPosition=9
 
 **Sinclair Says It Won't Air Fauci Conspiracy Theory Segment**\
