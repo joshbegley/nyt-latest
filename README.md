@@ -2,7 +2,7 @@
 `The Senate Armed Services Committee's Republican chairman said on Tuesday he will block the nomination of a Federal Communications Commission nominee over the agency's decision to allow Ligado Networks.`\
 https://nytimes.com/reuters/2020/07/28/technology/28reuters-usa-telecom-wireless.html?searchResultPosition=1
 
-**Biden Will Soon Pick a Running Mate. Here Are the Front-Runners**\
+**Factbox: Biden Will Soon Pick a Running Mate. Here Are the Front-Runners**\
 `Democratic U.S. presidential candidate Joe Biden's search for a running mate for the Nov. 3 election is drawing to a close.`\
 https://nytimes.com/reuters/2020/07/28/us/politics/28reuters-usa-election-biden-running-mate-factbox.html?searchResultPosition=2
 
