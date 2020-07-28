@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/07/28/world/europe/28reuters-health-coronavirus
 `There was a soon-to-be Hollywood star in the pool, and a soon-to-be Hollywood ending on the track at the 1924 Paris Olympics.`\
 https://nytimes.com/aponline/2020/07/28/sports/olympics/ap-oly-1924-paris-games.html?searchResultPosition=5
 
-**Here’s Where to Store All the Gold You’ve Been Hoarding**\
+**Where Is All That Gold Being Stored?**\
 `A multitude of options, from burying in the backyard to posh steel-lined vaults.`\
 https://nytimes.com/2020/07/28/style/gold-storage.html?searchResultPosition=6
 
