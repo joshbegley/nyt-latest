@@ -1,40 +1,40 @@
+**Niels Lauersen, Fallen Fertility Doctor to the Stars, Dies at 84**\
+`He treated celebrities like Celine Dion and Foxy Brown before he was undone by malpractice suits and a prison sentence for insurance fraud.`\
+https://nytimes.com/2020/07/28/nyregion/niels-h-lauersen-dead.html?searchResultPosition=1
+
+**‘I Just Don’t Get It’: Republicans Balk at Funding F.B.I. Building in Virus Bill**\
+`Another chapter in President Trump’s quest to shape the future of the J. Edgar Hoover Building seemed over as Republicans distanced themselves from the administration’s $1.75 billion demand.`\
+https://nytimes.com/2020/07/28/us/politics/republicans-trump-fbi-building-virus-relief-bill.html?searchResultPosition=2
+
+**Mackenzie Scott Donates $1.7 Billion of Her Wealth Since Split With Jeff Bezos**\
+`MacKenzie Scott, ex-wife of Amazon.com Inc's billionaire Chief Executive Jeff Bezos, has donated $1.7 billion of her wealth in the past year to causes including racial equality, LGBTQ rights, public health and climate change, she said in a blog post on Tuesday.`\
+https://nytimes.com/reuters/2020/07/28/technology/28reuters-usa-amazon-mackenzie-scott.html?searchResultPosition=3
+
+**UK's Prince William Joins Footballer's Podcast as Part of Mental Health Campaign**\
+`Britain's Prince William has taken part in a popular BBC podcast with former England footballer Peter Crouch to raise awareness about mental health issues, his Kensington Palace office said. `\
+https://nytimes.com/reuters/2020/07/28/arts/28reuters-britain-royals.html?searchResultPosition=4
+
 **NASCAR Champ Johnson Enamored With IndyCar After Test**\
 `Jimmie Johnson finally fulfilled his childhood dream of driving an Indy car with a test session Tuesday. When the seven-time NASCAR champion finished turning laps, he was sold on figuring out how to race next year in the IndyCar Series.`\
-https://nytimes.com/aponline/2020/07/28/sports/ap-car-nascar-johnson-indycar-test-.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/28/sports/ap-car-nascar-johnson-indycar-test-.html?searchResultPosition=5
 
 **Trump on Fauci's High Approval Ratings: 'Nobody Likes Me'**\
 `President Donald Trump groused on Tuesday about medical expert Anthony Fauci's high approval ratings and joked that "nobody likes me" as he struggles to improve his standing with voters for his handling of the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/07/28/technology/28reuters-usa-trump-hydroxychloroquine.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/28/technology/28reuters-usa-trump-hydroxychloroquine.html?searchResultPosition=6
 
 **U.S. Warns Against Planting Unsolicited Seeds From China**\
 `The U.S. Department of Agriculture is warning Americans not to plant unsolicited packages of seeds that appear to be arriving from China.`\
-https://nytimes.com/reuters/2020/07/28/world/asia/28reuters-usa-china-seeds.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/28/world/asia/28reuters-usa-china-seeds.html?searchResultPosition=7
 
 **Barr Clashes With House Democrats, Defending Responses to Protests and Russia Inquiry**\
 `The deployment of federal agents to confront protesters and rioters and attacks on the Russia investigation highlighted a contentious hearing.`\
-https://nytimes.com/2020/07/28/us/politics/barr-house-judiciary-hearing.html?searchResultPosition=4
+https://nytimes.com/2020/07/28/us/politics/barr-house-judiciary-hearing.html?searchResultPosition=8
 
 **Trump Is Dog-Whistling. Are ‘Suburban Housewives’ Listening?**\
 `Or are they too busy organizing protests, posting links to bail funds and discussing antidotes for tear gas?`\
-https://nytimes.com/2020/07/28/opinion/trump-white-women.html?searchResultPosition=5
+https://nytimes.com/2020/07/28/opinion/trump-white-women.html?searchResultPosition=9
 
 **U.S. Republicans Worry China Might Use TikTok to Meddle in Election**\
 `A group of top Republican U.S. Senators on Tuesday ramped up pressure on TikTok, asking the Trump administration to assess the threat that the popular Chinese-owned video sharing app might meddle in U.S. elections. `\
-https://nytimes.com/reuters/2020/07/28/technology/28reuters-usa-china-tiktok.html?searchResultPosition=6
-
-**High-Ranking Chicago Officer Dies, Apparently Shot Himself**\
-`A high-ranking member of the Chicago Police Department who was promoted earlier this month was found dead Tuesday morning after he apparently shot himself in a station on the city's West Side, authorities said. `\
-https://nytimes.com/aponline/2020/07/28/us/ap-us-chicago-police-suicide.html?searchResultPosition=7
-
-**Brazil Virus Payout Cuts Extreme Poverty to Least in Decades**\
-`Brazil’s extreme poverty has plunged due to a monthly federal handout during the coronavirus pandemic, but threatens to bounce back once the government ceases the stopgap welfare program, a report said Tuesday.`\
-https://nytimes.com/aponline/2020/07/28/business/ap-lt-virus-outbreak-brazil-welfare.html?searchResultPosition=8
-
-**Minneapolis Police Link Mystery ‘Umbrella Man’ to White Supremacy Group**\
-`A court document identifies the man who smashed store windows with a sledgehammer as a white supremacist who sought to provoke racial unrest.`\
-https://nytimes.com/2020/07/28/us/umbrella-man-minneapolis-protests.html?searchResultPosition=9
-
-**Jets' Gase: Trade of Adams a 'Win-Win' for Both Sides**\
-`Adam Gase is moving on and mostly taking the high road.`\
-https://nytimes.com/aponline/2020/07/28/sports/football/ap-fbn-jets-gase-adams.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/28/technology/28reuters-usa-china-tiktok.html?searchResultPosition=10
 
