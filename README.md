@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/07/28/sports/baseball/ap-bbo-leading-off.html?
 `During a normal NBA season, the sights and sounds of arenas serve as both a showy backdrop and home court advantage for its teams. `\
 https://nytimes.com/aponline/2020/07/28/sports/basketball/ap-bkn-nba-restart-fan-experience.html?searchResultPosition=2
 
-**Peugeot Maker PSA Reaffirms Margin Goal After First Half Sales Slide**\
-`Peugeot maker PSA Group held on to its margin target despite a fall in profitability in the first half of 2020, when the coronavirus pandemic dented sales at the French group. `\
+**Peugeot Maker PSA Sticks to Margin Goal, Eyes Recovery**\
+`Peugeot maker PSA Group held on to its margin target despite a fall in profitability in the first half of 2020, and said a recovery in sales had extended into July after the coronavirus pandemic ate into first-half revenues. `\
 https://nytimes.com/reuters/2020/07/28/business/28reuters-psa-results.html?searchResultPosition=3
 
 **Asian Shares Advance After Wall St Rally; Gold Extends Gains**\
