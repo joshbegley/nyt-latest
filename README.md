@@ -1,40 +1,40 @@
+**Freight Train Derails, Catches Fire in Arizona**\
+`A freight train derailed in Arizona on Wednesday and caught fire, causing a bridge to partially collapse, police said.`\
+https://nytimes.com/reuters/2020/07/29/us/29reuters-arizona-derailment.html?searchResultPosition=1
+
+**Bad Timing: COVID Compounds Woes of Renault-Nissan Alliance**\
+`When the French part of the Renault-Nissan alliance reports its results on Thursday, investors expect confirmation of a harsh reality: automakers that already had weaknesses are having them mercilessly exposed by the COVID-19 epidemic.`\
+https://nytimes.com/reuters/2020/07/29/business/29reuters-renault-results-alliance.html?searchResultPosition=2
+
+**Joseph Kernan, Vietnam P.O.W. and Indiana Governor, Dies at 74**\
+`He spent 11 months in a North Vietnamese prison after his plane was downed. He was later a long-serving mayor of South Bend. He died of Covid-19.`\
+https://nytimes.com/2020/07/29/us/politics/joseph-kernan-dead-coronavirus.html?searchResultPosition=3
+
+**Commerce Department Asks F.C.C. to Narrow Protections for Web Platforms**\
+`The request comes as President Trump continues to accuse tech platforms like Facebook and Twitter of suppressing conservative content.`\
+https://nytimes.com/2020/07/29/technology/trump-fcc-twitter-facebook.html?searchResultPosition=4
+
+**Ex-Homicide Prosecutor Challenges St. Louis Circuit Attorney**\
+`The fate of St. Louis’ elected prosecutor may rest with which side city voters fall in two competing national debates: criminal justice reform versus the push to crack down on crime.`\
+https://nytimes.com/aponline/2020/07/29/us/ap-us-election-2020-st-louis-prosecutor.html?searchResultPosition=5
+
+**Senate Report: Opaque Art Market Helped Oligarchs Evade Sanctions**\
+`Congressional investigators said companies tied to two Russians under sanctions were able to buy art using shell companies and an intermediary.`\
+https://nytimes.com/2020/07/29/arts/design/senate-report-art-market-russia-oligarchs-sanctions.html?searchResultPosition=6
+
 **Scientists Use Drones to Study Great White Sharks Along California Coast**\
 `Scientists are using drones and other technology to study great white sharks along the coast of Southern California to better understand interactions between these marine predators and people and assess the risks to human beachgoers.`\
-https://nytimes.com/reuters/2020/07/29/us/29reuters-california-sharks-drones.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/29/us/29reuters-california-sharks-drones.html?searchResultPosition=7
 
 **Rep. Gohmert Tests Positive for Virus, Cancels Trump Trip**\
 `Rep. Louie Gohmert, R-Texas, tested positive Wednesday for the coronavirus, forcing him to abruptly cancel his plan to travel to his home state with President Donald Trump aboard Air Force One, a House Republican aide said.`\
-https://nytimes.com/aponline/2020/07/29/us/politics/ap-us-virus-outbreak-congressman.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/29/us/politics/ap-us-virus-outbreak-congressman.html?searchResultPosition=8
 
 **Suburban Chicago Woman Pleads Guilty to Labor Trafficking**\
 `A suburban Chicago woman has pleaded guilty to a federal labor charge for helping several people from Guatemala enter the U.S. and then forbidding them from leaving her home until they paid off their debt to her.`\
-https://nytimes.com/aponline/2020/07/29/us/ap-us-labor-trafficking-immigrants.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/29/us/ap-us-labor-trafficking-immigrants.html?searchResultPosition=9
 
 **It’s Summer. Let’s Talk About Hockey.**\
 `Also this week, health benefits from cutting emissions`\
-https://nytimes.com/2020/07/29/climate/skating-hockey-climate-change.html?searchResultPosition=4
-
-**Outrage After NYPD Hustles Protester Into Unmarked Van**\
-`The New York Police Department’s use of plainclothes officers and an unmarked minivan to haul away a vandalism suspect during a protest Tuesday created confusion and drew online outrage from people who compared it to covert tactics used recently by federal agents in Portland, Oregon.`\
-https://nytimes.com/aponline/2020/07/29/us/ap-us-police-accountability-new-york.html?searchResultPosition=5
-
-**Seven Babies Stillborn in One Night at Zimbabwe Hospital as Nurses Strike**\
-`Seven babies were stillborn in one night at a major Zimbabwean hospital this week because their mothers did not get adequate medical care due to a nurses' strike, doctors said on Wednesday, as a dispute over working conditions cripples hospitals.`\
-https://nytimes.com/reuters/2020/07/29/world/africa/29reuters-health-zimbabwe.html?searchResultPosition=6
-
-**Trump Defends Use of Virus Aid Bill to Fund New FBI Office Near His Hotel**\
-`U.S. President Donald Trump on Wednesday defended his push to use a coronavirus relief package to fund a new FBI headquarters near his Washington hotel despite opposition from fellow Republicans, citing his background as a real estate developer.  `\
-https://nytimes.com/reuters/2020/07/29/us/29reuters-health-coronavirus-usa-fbi.html?searchResultPosition=7
-
-**Pandemic Shakes Up Earnings Season-Some Win, Some Lose**\
-`The spread of COVID-19 has skewed the numbers for every major company this year, for better or worse.`\
-https://nytimes.com/aponline/2020/07/29/business/bc-us-earnings-winners-and-losers.html?searchResultPosition=8
-
-**The Black Book Club Takes It to the Next Level**\
-`Noname and other Black thought leaders have taken what Oprah built and made something new.`\
-https://nytimes.com/2020/07/29/style/self-care/black-book-clubs.html?searchResultPosition=9
-
-**Congress Doesn’t Get Big Tech. By Design.**\
-`Members of Congress may say dumb things at the tech hearing, but it’s not necessarily their fault.`\
-https://nytimes.com/2020/07/29/technology/congress-big-tech.html?searchResultPosition=10
+https://nytimes.com/2020/07/29/climate/skating-hockey-climate-change.html?searchResultPosition=10
 
