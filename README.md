@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/07/29/world/asia/29reuters-japan-economy-gdp.ht
 `Vice President Mike Pence will travel to Raleigh on Wednesday morning in a push to encourage more K-12 schools to reopen with entirely in-person instruction.`\
 https://nytimes.com/aponline/2020/07/29/us/ap-us-election-2020-pence-north-carolina-.html?searchResultPosition=6
 
-**Britain Signs Supply Deal for 60 Mln Doses of Sanofi/GSK COVID-19 Vaccine**\
+**Britain Signs Supply Deal for 60 Million Doses of Sanofi/GSK COVID-19 Vaccine**\
 `Britain has signed a supply deal for up to 60 million doses of a possible COVID-19 vaccine being developed by Sanofi and GlaxoSmithKline, it said on Wednesday, its fourth such arrangement.`\
 https://nytimes.com/reuters/2020/07/29/world/europe/29reuters-health-coronavirus-britain-vaccines.html?searchResultPosition=7
 
