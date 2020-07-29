@@ -1,40 +1,40 @@
-**Explainer: How the Next WTO Chief Will Be Chosen and the Task Ahead**\
-`Eight candidates from Mexico to Moldova are bidding to become the next director-general of the World Trade Organization to replace Robert Azevedo, who steps down at the end of August.`\
-https://nytimes.com/reuters/2020/07/29/business/29reuters-trade-wto-explainer.html?searchResultPosition=1
+**UK Mortgage Approvals Bounce Back in June, Bank of England Says**\
+`British mortgage lending recovered strongly from May's record low last month and households slowed the pace at which they repaid debt, as the economy began to open up from the coronavirus lockdown in June.`\
+https://nytimes.com/reuters/2020/07/29/world/europe/29reuters-health-coronavirus-britain-boe.html?searchResultPosition=1
 
-**Hong Kong Reports 118 New Coronavirus Cases as Local Transmissions Stay High**\
-`Hong Kong reported 118 new coronavirus cases on Wednesday, including 113 that were locally transmitted, as strict new measures including a restriction of gatherings to two people and a ban on restaurant dining, took effect.`\
-https://nytimes.com/reuters/2020/07/29/world/asia/29reuters-health-coronavirus-hongkong.html?searchResultPosition=2
+**North Bergen, N.J.: Reasonably Priced and Minutes From Manhattan**\
+`Supporters praise the community’s young, culturally diverse population and its (relatively) affordable housing. And then there are the views.`\
+https://nytimes.com/2020/07/29/realestate/north-bergen-nj-reasonably-priced-and-minutes-from-manhattan.html?searchResultPosition=2
 
-**Malaysia's Axiata to Raise Up to $1 Billion via Islamic Bonds, Will Lend to Units**\
-`Axiata Group Bhd, Malaysia's third-biggest telecom operator by number of subscribers, is looking to raise up to $1 billion through the sale of Islamic bonds, it said on Wednesday.  `\
-https://nytimes.com/reuters/2020/07/29/technology/29reuters-axiata-group-malaysia.html?searchResultPosition=3
+**Living In ... North Bergen, N.J.**\
+`Supporters praise the community’s young, culturally diverse population and its (relatively) affordable housing. And then there are the views.`\
+https://nytimes.com/slideshow/2020/07/29/realestate/living-in-north-bergen-nj.html?searchResultPosition=3
 
-**Indonesia Reports 2,381 New Coronavirus Infections, 74 New Deaths**\
-`Indonesia reported 2,381 new coronavirus infections on Wednesday, taking the total to 104,432, data from the country's COVID-19 task force showed. `\
-https://nytimes.com/reuters/2020/07/29/world/asia/29reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=4
+**A Viral Epidemic Splintering Into Deadly Pieces**\
+`There’s not just one coronavirus outbreak in the United States. Now there are many, each requiring its own mix of solutions.`\
+https://nytimes.com/2020/07/29/health/coronavirus-future-america.html?searchResultPosition=4
 
-**UK Says First Round of New Zealand Trade Talk Were 'Positive and Productive'**\
-`Britain's first round of trade talks with New Zealand were positive and productive, trade minister Liz Truss said on Wednesday.`\
-https://nytimes.com/reuters/2020/07/29/world/europe/29reuters-britain-newzealand-trade.html?searchResultPosition=5
+**‘Hidden Gem’ Made Popular by TikTok Is Shut to Keep Out-of-Towners Away**\
+`A lake in New Jersey was closed to curb the spread of the coronavirus, but some complaints about recent crowding there focused on the ethnicity of visitors.`\
+https://nytimes.com/2020/07/29/nyregion/lake-solitude-closed-racism.html?searchResultPosition=5
 
-**Jordan's King Abdullah Issues Decree to Hold Parliamentary Elections, State Media**\
-`Jordan's King Abdullah issued a royal decree to hold parliamentary elections, with the date to be set within the next 10 days by an independent election commission, state media said.`\
-https://nytimes.com/reuters/2020/07/29/world/middleeast/29reuters-jordan-election-parliament.html?searchResultPosition=6
+**The Essential Tana French**\
+`If you want to brush up before her new novel arrives this fall, here’s your guide.`\
+https://nytimes.com/2020/07/29/books/the-essential-tana-french.html?searchResultPosition=6
 
-**Colombia Was Deadliest Country for Land Rights Activists in 2019**\
-`Colombia was the deadliest country for land rights activists in 2019, as killings of environmental defenders soared in the Andean country, according to a report published by advocacy group Global Witness on Wednesday. `\
-https://nytimes.com/reuters/2020/07/29/world/americas/29reuters-colombia-violence-environment.html?searchResultPosition=7
+**Getting to Mars Is Easy. It’s the Stopping That Can Kill You.**\
+`The United States has an unparalleled record of success on the red planet’s surface, but NASA’s engineers aren’t resting on their laurels.`\
+https://nytimes.com/2020/07/29/science/nasa-mars-perseverance-rover.html?searchResultPosition=7
 
-**The Latest: 2 World Sevens Rugby Events for Next Year Off**\
-`The Latest on the effects of the coronavirus outbreak on sports around the world:`\
-https://nytimes.com/aponline/2020/07/29/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=8
+**There’s a Wrinkle in Stores’ Mask Policies: Enforcement**\
+`A number of large retailers have said that all customers must wear masks, but some employees have been told they cannot force those who refuse.`\
+https://nytimes.com/2020/07/29/business/coronavirus-masks-stores-walmart.html?searchResultPosition=8
 
-**Australia Hopes for 'Magnificent' Wheat Crop in Pandemic Economy**\
-`Just months after rains broke Australia's crippling three-year drought, fields of grain have sprung to life, lifting forecasts for a bumper wheat harvest and reviving the beaten up agricultural sector through roaring tractor sales and increased lending.`\
-https://nytimes.com/reuters/2020/07/29/world/asia/29reuters-health-coronavirus-australia-wheat.html?searchResultPosition=9
+**He Videotaped the Rodney King Beating. Now, He Is Auctioning the Camera**\
+`“How much does something like this go for?” asked George Holliday. “I have no idea.” Bidding begins at $225,000.`\
+https://nytimes.com/2020/07/29/us/rodney-king-video-camera-auction.html?searchResultPosition=9
 
-**Thai PM Orders Probe Into Dropping of Red Bull Scion's Case**\
-`Thailand’s prime minister responded Wednesday to growing public furor by ordering a probe into the dropping of criminal charges against a Thai heir to the Red Bull energy drink fortune accused of killing a policeman in a hit-and-run accident eight years ago.`\
-https://nytimes.com/aponline/2020/07/29/world/asia/ap-as-thailand-red-bull-heir.html?searchResultPosition=10
+**The Struggle for a New Uganda**\
+`Yoweri Museveni, the country’s president and the Pentagon’s closest military ally in Africa, deploys security forces to assault opposition lawmakers.`\
+https://nytimes.com/2020/07/29/opinion/uganda-museveni-repression.html?searchResultPosition=10
 
