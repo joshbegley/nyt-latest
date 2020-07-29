@@ -2,8 +2,8 @@
 `Kahleah Copper and Azura Stevens had 21 points apiece and the Chicago Sky beat the Los Angeles Sparks 96-78 on Tuesday night. `\
 https://nytimes.com/aponline/2020/07/28/sports/basketball/bc-bkl-sparks-sky.html?searchResultPosition=1
 
-**Arizona's Merrill Kelly Has No-Hitter Through 6 at Texas**\
-`Arizona Diamondbacks right-hander Merrill Kelly is working on a no-hitter through six innings against the Texas Rangers.`\
+**Arizona's Merrill Kelly Loses No-Hit Bid in 7th at Texas**\
+`Arizona Diamondbacks right-hander Merrill Kelly lost his no-hit bid with one out in the seventh inning when Rougned Odor hit a solo homer for the Texas Rangers on Tuesday night.`\
 https://nytimes.com/aponline/2020/07/28/sports/baseball/ap-bbo-diamondbacks-rangers-no-hitter-alert.html?searchResultPosition=2
 
 **N.Y.P.D.’s Use of Unmarked Van in Arrest Draws Parallels to Portland**\
