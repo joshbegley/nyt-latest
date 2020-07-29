@@ -4,7 +4,7 @@ https://nytimes.com/reuters/2020/07/29/world/asia/29reuters-usa-afghanistan-russ
 
 **Information Contagion**\
 `And what else you need to know today.`\
-https://nytimes.com/2020/07/29/briefing/your-wednesday-briefing-coronavirus-william-barr-emmy-nominations.html?searchResultPosition=2
+https://nytimes.com/2020/07/29/briefing/coronavirus-william-barr-emmy-nominations-your-wednesday-briefing.html?searchResultPosition=2
 
 **GE Reports Quarterly Loss as Coronavirus Pandemic Hits Hard**\
 `General Electric Co reported $2.18 billion in quarterly losses on Wednesday, hurt by weakness in its aviation and power units due to the COVID-19 pandemic, but its free cash outflow came in better than expected. `\
