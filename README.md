@@ -1,40 +1,40 @@
+**9 Great Movies to Stream on Peacock**\
+`Dive into the new NBCUniversal streaming service to discover these excellent (and free) options.`\
+https://nytimes.com/2020/07/29/movies/what-to-stream-on-peacock.html?searchResultPosition=1
+
+**NHL's Top Teams Face Dilemma on What Round-Robin Play Means**\
+`Long before Peter DeBoer coached two teams to the Stanley Cup Final, he got some experience at Canadian junior hockey's Memorial Cup that could serve him well right about now.`\
+https://nytimes.com/aponline/2020/07/29/sports/hockey/ap-hkn-top-seeds-tournament.html?searchResultPosition=2
+
+**Saints' Payton: More 'Live' Football Planned This Preseason**\
+`Saints coach Sean Payton prefers not to use the term “training camp” to describe how he’s trying to prepare his club for this pandemic-altered NFL season.`\
+https://nytimes.com/aponline/2020/07/29/sports/football/ap-fbn-saints-payton.html?searchResultPosition=3
+
+**Bolivian Coca Cultivation Jumped by 10% in 2019, UN Says**\
+`Coca cultivation jumped 10% in Bolivia in 2019, the final year of President Evo Morales' government, partly because of reduced eradication efforts amid rising social and political conflicts, a U.N. agency said Wednesday.`\
+https://nytimes.com/aponline/2020/07/29/world/americas/ap-lt-bolivia-coca-production.html?searchResultPosition=4
+
+**Jury Will Not Indict Dallas Sergeant Accused of Tampering**\
+`A Texas grand jury will not indict the president of a police association accused of tampering with evidence in the case of a white Dallas police officer who fatally shot her unarmed Black neighbor in his apartment two years ago.`\
+https://nytimes.com/aponline/2020/07/29/us/ap-us-dallas-officer-mistaken-apartment.html?searchResultPosition=5
+
+**Kanye West's NJ Ballot Petition Falls Short, Complaint Says**\
+`Kanye West’s petition to appear on New Jersey’s ballot as a presidential candidate fails to pass legal muster because signatures are incomplete, and in some cases appear written with very similar handwriting, according to a formal complaint filed with the state Wednesday.`\
+https://nytimes.com/aponline/2020/07/29/us/ap-us-election-2020-kanye-west.html?searchResultPosition=6
+
+**COVID-19 Cancels Wyoming Hunt Amid Native American Criticism**\
+`The coronavirus has prompted cancellation of a charity antelope hunt that has drawn teams of famous, powerful men to central Wyoming for over 75 years and now faces growing criticism that ceremonies tied to the event crudely and inaccurately appropriate Native American culture.`\
+https://nytimes.com/aponline/2020/07/29/us/ap-us-virus-outbreak-hunt-canceled.html?searchResultPosition=7
+
+**Help Me Find Trump’s ‘Anarchists’ in Portland**\
+`The president has his politically driven narrative. And then there’s reality.`\
+https://nytimes.com/2020/07/29/opinion/portland-protests-trump.html?searchResultPosition=8
+
 **NFL: Solder Opts Out of Season, Citing Health Concerns**\
 `New York Giants offensive tackle Nate Solder became the latest National Football League (NFL) player to opt out of the season on Wednesday, citing concerns over the coronavirus outbreak. `\
-https://nytimes.com/reuters/2020/07/29/sports/football/29reuters-health-coronavirus-nfl.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/29/sports/football/29reuters-health-coronavirus-nfl.html?searchResultPosition=9
 
 **Your Thursday Briefing**\
 `Big Tech hearings, Vietnam outbreak, sheep shortage: Here’s what you need to know.`\
-https://nytimes.com/2020/07/29/briefing/big-tech-hearings-vietnam-virus.html?searchResultPosition=2
-
-**Thousands in Bulgaria's Streets Demanding Government Resign**\
-`Tens of thousands of people took to the streets Wednesday in cities across Bulgaria for a third consecutive week to demand the resignation of the government and the chief prosecutor.`\
-https://nytimes.com/aponline/2020/07/29/world/europe/ap-eu-bulgaria-protests.html?searchResultPosition=3
-
-**Trump to Accept Republican Nomination in Charlotte: TV Host Citing Pence**\
-`U.S. President Donald Trump will accept the Republican presidential nomination in Charlotte, a North Carolina TV journalist reported on Wednesday, citing an interview with Vice President Mike Pence.`\
-https://nytimes.com/reuters/2020/07/29/us/politics/29reuters-usa-election-trump-charlotte.html?searchResultPosition=4
-
-**During the Pandemic, More Women Must Miscarry at Home**\
-`Some women who sought surgical treatment for miscarriage were turned away in the spring. Experts worry it could happen again.`\
-https://nytimes.com/2020/07/29/parenting/miscarriages-dandc-surgery-pregnancy.html?searchResultPosition=5
-
-**Giants Left Tackle Nate Solder Opts Out of 2020 NFL Season**\
-`New York Giants left tackle Nate Solder has opted out of the 2020 NFL season because of the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/07/29/sports/football/ap-fbn-giants-solder.html?searchResultPosition=6
-
-**Braves' Markakis Returns 3 Weeks After Opting Out of Season**\
-`Nick Markakis is returning to the Atlanta Braves, three weeks after announcing he was opting out of the season due to his concerns about the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/07/29/sports/baseball/ap-bbn-braves-markakis-returns.html?searchResultPosition=7
-
-**House COVID Oversight Panel Demands Documents From 4 States**\
-`The head of a congressional coronavirus oversight panel on Wednesday demanded Tennessee's Gov. Bill Lee and three other Republican governors provide documents showing how their states are combating the pandemic. `\
-https://nytimes.com/aponline/2020/07/29/us/ap-us-virus-outbreak-congressional-letter.html?searchResultPosition=8
-
-**Another Marlin Tests Positive for COVID-19: Report**\
-`Another member of the Miami Marlins has tested positive for COVID-19, raising the number of positive tests among players and coaches on the team since the weekend to 18, the Athletic reported on Wednesday. `\
-https://nytimes.com/reuters/2020/07/29/sports/baseball/29reuters-health-coronavirus-baseball-mlb.html?searchResultPosition=9
-
-**Qualcomm Forecasts Current-Quarter Revenue Largely Above Estimates**\
-`Qualcomm Inc on Wednesday forecast fourth-quarter revenue largely above Wall Street expectations, powered by strong sales of more lucrative 5G devices despite a weak overall smartphone market.`\
-https://nytimes.com/reuters/2020/07/29/business/29reuters-qualcomm-results.html?searchResultPosition=10
+https://nytimes.com/2020/07/29/briefing/big-tech-hearings-vietnam-virus.html?searchResultPosition=10
 
