@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/07/29/world/asia/ap-as-japan-us-china.html?sea
 https://nytimes.com/reuters/2020/07/29/world/asia/29reuters-health-coronavirus-southkorea-greencross.html?searchResultPosition=3
 
 **EU Executive Signs Remdesivir Deal With Gilead**\
-`The European Union's executive said on Wednesday it has signed a contract with Gilead for its COVID-19 medicine  remdesivir that would cover 30,000 patients in the bloc from early August. `\
+`The European Union's executive said on Wednesday it has signed a contract with Gilead for its COVID-19 medicine remdesivir that would cover 30,000 patients in the bloc from early August. `\
 https://nytimes.com/reuters/2020/07/29/us/29reuters-health-coronavirus-eu-gilead.html?searchResultPosition=4
 
 **Factbox: U.S. Democrats on House Antitrust Panel Scored Biggest Big Tech Donations**\
