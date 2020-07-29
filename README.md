@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/07/28/business/ap-as-australia-fatal-ride.html
 https://nytimes.com/2020/07/28/crosswords/daily-puzzle-2020-07-29.html?searchResultPosition=7
 
 **Spirit Airlines Says 20% to 30% of Workers at Risk of Furloughs: CEO's Memo**\
-`U.S. low-cost carrier Spirit Airlines is preparing to inform unions on Friday that 20% to 30% of workers including pilots and flight attendants may be furloughed in October, according to a memo from the CEO sent to employees on Tuesday.`\
+`Spirit Airlines is preparing to inform unions on Friday that 20-30% of workers may be furloughed in October, an internal memo shows, becoming the first low-cost U.S. carrier to detail potential job cuts due to the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/07/28/business/28reuters-health-coronavirus-spirit-airlines-jobs.html?searchResultPosition=8
 
 **U.S. Coronavirus Deaths Rise by Nearly 1,300 for First Time Since May**\
