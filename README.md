@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/07/29/world/africa/ap-af-morocco-journalist-ja
 `Baltimore Ravens quarterback and reigning NFL MVP Lamar Jackson is eager to get started at training camp following an offseason in which he had a perilous encounter with a jet ski, tossed footballs to Antonio Brown and diligently avoided the coronavirus.`\
 https://nytimes.com/aponline/2020/07/29/sports/football/ap-fbn-ravens-jackson.html?searchResultPosition=2
 
-**The Latest: Google Accused of Robbing Ideas From Other Sites**\
+**The Latest: Lawmakers Cite Internal Facebook Documents**\
 `The Latest on testimony in Congress by the CEOs of Facebook, Apple, Amazon and Google (all times local):`\
 https://nytimes.com/aponline/2020/07/29/business/bc-us-congress-big-tech-ceos-the-latest.html?searchResultPosition=3
 
