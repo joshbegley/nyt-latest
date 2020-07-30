@@ -2,13 +2,13 @@
 `It’s raining nominations for Lady Gaga and Ariana Grande’s “Rain on Me” at the 2020 MTV Video Music Awards, which will present new categories focused on live performances and music videos created at home during the coronavirus pandemic.`\
 https://nytimes.com/aponline/2020/07/30/us/ap-us-music-mtv-vma-nominations.html?searchResultPosition=1
 
-**Special Prosecutor Sought in Alleged Attack on Black Man**\
-`A special prosecutor is being sought to handle the cases of two white men charged in an alleged assault on a Black man who says he was attacked at a southern Indiana lake and that someone threatened to “get a noose."`\
-https://nytimes.com/aponline/2020/07/30/us/ap-us-racial-injustice-indiana-attack.html?searchResultPosition=2
-
 **Trump Might Try to Postpone the Election. That’s Unconstitutional.**\
 `He should be removed unless he relents.`\
-https://nytimes.com/2020/07/30/opinion/trump-delay-election-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/07/30/opinion/trump-delay-election-coronavirus.html?searchResultPosition=2
+
+**Special Prosecutor Sought in Alleged Attack on Black Man**\
+`A special prosecutor is being sought to handle the cases of two white men charged in an alleged assault on a Black man who says he was attacked at a southern Indiana lake and that someone threatened to “get a noose."`\
+https://nytimes.com/aponline/2020/07/30/us/ap-us-racial-injustice-indiana-attack.html?searchResultPosition=3
 
 **Plunging U.S. GDP Through June Gives Way to Slow Climb Back in July**\
 `A record-setting drop in the U.S. economy from April to June has given way to an increasingly tepid-looking rebound as consumers appear to pull back and businesses slow rehiring, data from a variety of high-frequency sources and macro analysts indicate.`\
