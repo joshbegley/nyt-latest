@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/07/29/world/americas/ap-lt-nicaragua-press-thr
 `When DeWalt Mix lost his prosthetic leg while paddle-boarding off the coast of Long Beach, the local Fire Department dove right in to try to retrieve it for him. `\
 https://nytimes.com/aponline/2020/07/29/sports/ap-us-athletes-missing-prosthetic-found.html?searchResultPosition=2
 
-**U.S. Supreme Court Justice Ginsburg Undergoes Bile Duct Procedure in Hospital: Court**\
+**Supreme Court Justice Ginsburg Undergoes Bile Duct Procedure in Hospital: Court**\
 `U.S. Supreme Court Justice Ruth Bader Ginsburg is resting comfortably after undergoing a non-surgical medical procedure on Wednesday at a New York hospital, the court said.`\
 https://nytimes.com/reuters/2020/07/29/us/29reuters-usa-court-ginsburg.html?searchResultPosition=3
 
