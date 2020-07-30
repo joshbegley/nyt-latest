@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/07/30/business/30reuters-facebook-results.html?
 `Tourists or locals visiting a cave in north-central Mexico could endanger what is purported to be some of the earliest evidence of human presence in North America, archaeological authorities said Thursday. `\
 https://nytimes.com/aponline/2020/07/30/world/americas/ap-lt-mexico-cave-early-humans.html?searchResultPosition=9
 
-**‘Bubbles’ Are Working. But How Long Can Sports Rely on Them?**\
+**‘Bubbles’ Are Working. But How Long Can Sports Stay Inside?**\
 `The restricted, campuslike environments used by soccer and pro basketball have proved (mostly) impervious to the coronavirus. But not every league fits inside one.`\
 https://nytimes.com/2020/07/30/sports/basketball/sports-bubble-nba-mlb.html?searchResultPosition=10
 
