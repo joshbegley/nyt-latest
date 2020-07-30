@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-health-coronavirus-a
 `Volkswagen unveiled a first-half operating loss on Thursday after suffering a 27% drop in vehicle deliveries due to the coronavirus pandemic, which forced the carmaker to slash its dividend.  `\
 https://nytimes.com/reuters/2020/07/30/business/30reuters-volkswagen-results.html?searchResultPosition=3
 
-**Renault Slumps to Record 7.3 Billion Euro Net Loss in First Half**\
-`French carmaker Renault posted a record net loss of 7.292 billion euros in the first half of this year, dragged down by the impact of losses at alliance partner Nissan and the COVID crisis hitting sales.`\
+**Renault Posts Record Loss of 7.3 Billion Euros as Pandemic Hits Sales**\
+`French carmaker Renault posted a record net loss of 7.292 billion euros ($8.58 billion) in the first half of the year, as the COVID-19 pandemic hampered its turnaround efforts while losses at alliance partner Nissan also weighed. `\
 https://nytimes.com/reuters/2020/07/30/business/30reuters-renault-results.html?searchResultPosition=4
 
 **Nestle Cuts 2020 Growth Forecast as Consumers Ate Into Stockpiles in Second Quarter**\
