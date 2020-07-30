@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/07/30/world/middleeast/30reuters-iraq-security.html?searchResultPosition=1
 
 **Virus Cases Are Rising in N.J., Spurred by Young Partygoers at the Shore**\
-`Coronavirus cases have jumped by 28 percent. The governor pleaded ‘one more time to parents and kids’: Don’t gather inside.`\
+`Coronavirus cases have jumped by 28 percent. The governor pleaded “one more time to parents and kids”: Don’t gather inside.`\
 https://nytimes.com/2020/07/30/nyregion/coronavirus-cases-nj.html?searchResultPosition=2
 
 **NFL Medical Boss Not Surprised by Positive Cases, Opt Outs.**\
