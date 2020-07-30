@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/07/30/business/30reuters-volkswagen-results.htm
 `French carmaker Renault posted a record net loss of 7.292 billion euros in the first half of this year, dragged down by the impact of losses at alliance partner Nissan and the COVID crisis hitting sales.`\
 https://nytimes.com/reuters/2020/07/30/business/30reuters-renault-results.html?searchResultPosition=3
 
-**Nestle Cuts 2020 Growth Forecast After Second-Quarter Sales Slow**\
-`Food group Nestle on Thursday cut its full-year underlying sales forecast after strong consumer stockpiling at the start of coronavirus related-lockdowns in Europe and North America was followed by weaker demand in the second quarter. `\
+**Nestle Cuts 2020 Growth Forecast as Consumers Ate Into Stockpiles in Second Quarter**\
+`Nestle cut its full-year underlying sales forecast on Thursday, saying demand had slowed as customers worked their way through cupboards they stocked up with food at the start of coronavirus related-lockdowns.`\
 https://nytimes.com/reuters/2020/07/30/business/30reuters-nestle-results.html?searchResultPosition=4
 
 **Mouratoglou Says UTS Attracting New Demographic to the Game**\
