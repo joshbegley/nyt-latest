@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/07/30/business/30reuters-procter-gamble-results
 https://nytimes.com/2020/07/30/business/dealbook/tech-hearing-highlights.html?searchResultPosition=2
 
 **Pilgrims, Fewer and Socially Distanced, Arrive in Mecca For Annual Hajj**\
-`The coronavirus pandemic has dramatically curtailed the annual pilgrimage to the holy city of Mecca in Saudi Arabia, limiting the number of people and barring people from outside the kingdom.`\
+`The coronavirus pandemic has curtailed the annual pilgrimage to the holy city of Mecca in Saudi Arabia, limiting the number of people and barring people from outside the kingdom.`\
 https://nytimes.com/2020/07/30/world/middleeast/pilgrims-hajj-mecca-coronavirus-pandemic.html?searchResultPosition=3
 
 **Chinese Long-Range Bombers Join Drills Over South China Sea**\
