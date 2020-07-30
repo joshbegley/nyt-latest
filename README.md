@@ -1,40 +1,40 @@
+**China Orders Regular Coronavirus Tests at Wholesale Markets**\
+`China asked local authorities to carry out regular coronavirus tests at wholesale markets, the country's health authority said on Thursday, part of an all-out effort to control the spread of the COVID-19 epidemic. `\
+https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-health-coronavirus-china-markets.html?searchResultPosition=1
+
+**Japan Panel Puts Tentative End to Abenomics Boom in 2018**\
+`A panel of seven private Japanese economists tentatively declared the economy ended its second-longest boom and entered "recession" in late 2018, suggesting it was struggling long before its more recent coronavirus slump.`\
+https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-japan-economy-recession.html?searchResultPosition=2
+
+**Nestle CEO Says 2020 Guidance Should Reassure Investors**\
+`Nestle decided to give sales guidance for 2-3% underlying growth this year in order not to leave investors guessing, Chief Executive Mark Schneider told Reuters in a telephone interview on Thursday.`\
+https://nytimes.com/reuters/2020/07/30/business/30reuters-nestle-results-ceo.html?searchResultPosition=3
+
+**Thai Pro-Government Rally Raises Risk of New Confrontations**\
+`Dozens of Thai demonstrators singing patriotic songs and shouting "long live the king" rallied in the capital on Thursday in response to a series of anti-government protests led by student groups in recent weeks.`\
+https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-thailand-protests.html?searchResultPosition=4
+
+**Euro Zone Sentiment Rebounds More Than Expected, but Unemployment Up**\
+`Euro zone economic sentiment rebounded more than expected in July as governments relaxed restrictions related to the COVID-19 pandemic, with the sharpest gains in industry and services even though consumers became more gloomy, data showed on Thursday.`\
+https://nytimes.com/reuters/2020/07/30/us/30reuters-eurozone-economy.html?searchResultPosition=5
+
 **Goldman Expects New Tech Indexes to Bring China $25 Billion Passive Inflows in Five Years**\
 `Mainland China and offshore hub Hong Kong's latest indexes representing technology companies are likely to attract $25 billion in five years from passive investors, according to a Goldman Sachs report released on Thursday.`\
-https://nytimes.com/reuters/2020/07/30/technology/30reuters-china-markets-tech-stocks.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/30/technology/30reuters-china-markets-tech-stocks.html?searchResultPosition=6
 
 **Japan's Renowned Artists Find Inspiration From Pandemic**\
 `Some of Japan's best-known artists are finding new avenues of expression in areas such as online communication and the environment, as the novel coronavirus outbreak sparks ideas as radical as renaming the country's "Reiwa" imperial era.`\
-https://nytimes.com/reuters/2020/07/30/arts/30reuters-health-coronavirus-japan-art.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/30/arts/30reuters-health-coronavirus-japan-art.html?searchResultPosition=7
 
 **Third of Furloughed UK Workers Back at Work in Early July: ONS**\
 `Roughly one in three furloughed workers in Britain returned to their jobs during the first two weeks of July as the hospitality industry reopened to the public, an official survey suggested on Thursday.`\
-https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-health-coronavirus-britain-economy.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-health-coronavirus-britain-economy.html?searchResultPosition=8
 
 **Belarus Accuses Russian Contractors of Plotting Terror Acts**\
 `Belarusian authorities have opened a criminal case against more than 30 Russian private military contractors detained earlier this week, on the charges of plotting terrorist acts, Security Council secretary Andrei Ravkov said Thursday. `\
-https://nytimes.com/aponline/2020/07/30/world/europe/ap-eu-belarus-russia.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/07/30/world/europe/ap-eu-belarus-russia.html?searchResultPosition=9
 
 **A Protester, an Unmarked N.Y.P.D. Van and a Viral Video**\
 `Eyewitnesses and social media users drew a parallel with tactics used in Portland, Ore., and city and state officials voiced criticism.`\
-https://nytimes.com/2020/07/30/nyregion/nypd-protester-van.html?searchResultPosition=5
-
-**Face Masks Leave Britain's Deaf Community Struggling to Communicate**\
-`The introduction of mandatory face masks in most enclosed spaces across Britain was designed to protect people during the pandemic but has made life very difficult for the deaf community.`\
-https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-health-coronavirus-britain-deaf.html?searchResultPosition=6
-
-**Hong Kong June Retail Sales Plunge 24.8% Y/y as Coronavirus Weighs**\
-`Hong Kong's retail sales fell 24.8% in June from a year earlier, hammered by the coronavirus outbreak which has kept tourists away and pushed many retailers and restaurants to the brink of collapse.`\
-https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-hongkong-economy-salesfigures.html?searchResultPosition=7
-
-**New Zealand's Ardern on Track to Win Sept Election, Poll Shows**\
-`Support for New Zealand's Prime Minister Jacinda Ardern rose during July, a poll showed on Thursday, keeping her Labour party on track to win a general election in September. `\
-https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-newzealand-election-poll.html?searchResultPosition=8
-
-**Poland Expects High Number of New COVID-19 Cases in Coming Days**\
-`Poland expects "high numbers" of new coronavirus cases in the coming days, the Health Ministry said after it reported on Thursday its highest daily rise in new infections since the start of the pandemic.`\
-https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-health-coronavirus-poland-infections.html?searchResultPosition=9
-
-**U.S. Coaches Complain of Athlete Abuse at NBA's China Camps: ESPN**\
-`American coaches at the National Basketball Association's training academies in China have complained of abuse of young players by local staff and harassment in the Xinjiang region, ESPN has reported citing unnamed sources.`\
-https://nytimes.com/reuters/2020/07/30/sports/basketball/30reuters-china-nba-abuse.html?searchResultPosition=10
+https://nytimes.com/2020/07/30/nyregion/nypd-protester-van.html?searchResultPosition=10
 
