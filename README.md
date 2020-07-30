@@ -20,7 +20,7 @@ https://nytimes.com/aponline/2020/07/29/world/asia/ap-as-japan-explosion.html?se
 
 **Casino Calculation**\
 `Joel Fagliano masters the art of saving space.`\
-https://nytimes.com/2020/07/29/crosswords/daily-puzzle-07-30.html?searchResultPosition=6
+https://nytimes.com/2020/07/29/crosswords/daily-puzzle-2020-07-30.html?searchResultPosition=6
 
 **Tigers Rally From Early Deficit, Beat Royals 5-4**\
 `JaCoby Jones hit a tiebreaking solo homer in the seventh inning, and Detroit's bullpen came through again in a 5-4 victory over the Kansas City Royals on Wednesday night.`\
