@@ -1,40 +1,40 @@
-**Key Witness in Thai Red Bull Heir Case Dies in Road Accident**\
-`Police in Thailand said Thursday that a witness whose testimony was important in having hit-and-run charges dropped against a heir to the Red Bull energy drink fortune has died in a traffic accident.`\
-https://nytimes.com/aponline/2020/07/30/world/asia/ap-as-thailand-red-bull-heir.html?searchResultPosition=1
+**EU Banking Watchdog Sounds Warning Note on Leveraged Loans**\
+`Some banks in the European Union hold large exposures of increasingly risky leveraged loans that could be hard to offload if investor appetite were to vanish due to the pandemic, the bloc's banking watchdog said on Thursday.`\
+https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-eu-banks-regulator.html?searchResultPosition=1
 
-**4.2-Magnitude Earthquake Hits Near Los Angeles**\
-`There were no immediate reports of damage, the police said. The United States Geological Survey said the earthquake struck in the San Fernando Valley.`\
-https://nytimes.com/2020/07/30/us/california-earthquake.html?searchResultPosition=2
+**Surveillance Scheme Hunts for COVID Traces in Israel's Sewers**\
+`Sewer surveillance in Israel's coastal city of Ashkelon has pinpointed unknown outbreaks of COVID-19 by identifying traces of the virus in the sewage system.`\
+https://nytimes.com/reuters/2020/07/30/technology/30reuters-health-coronavirus-israel-sewers.html?searchResultPosition=2
 
-**COVID Creates North-South Divide in Croatia's Tourism Fortunes**\
-`At the southern end of Croatia's Adriatic Coast, far fewer tourists are wandering the marbled streets of Dubrovnik than usual, while the number of visitors to northern beaches is much closer to the normal level for the time of year.`\
-https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-croatia-tourism.html?searchResultPosition=3
+**Trump Suggests Delaying November U.S. Presidential Election**\
+`U.S. President Donald Trump on Thursday raised the possibility of delaying the nation's November presidential election despite its date being enshrined in the U.S. Constitution. `\
+https://nytimes.com/reuters/2020/07/30/us/politics/30reuters-usa-election-trump.html?searchResultPosition=3
 
-**U.S. Second-Quarter GDP Falls at Steepest Rate Since Great Depression**\
-`The U.S. economy contracted at its steepest pace since the Great Depression in the second quarter as the COVID-19 pandemic shattered consumer and business spending, and a nascent recovery is under threat from a resurgence in new cases of coronavirus.`\
-https://nytimes.com/reuters/2020/07/30/business/30reuters-usa-economy-instant.html?searchResultPosition=4
+**Birx Says COVID-19 Shifting to U.S. Midwest, South Shows Signs of Hope**\
+`The coronavirus outbreak in the United States appears to be shifting to the Midwest as the surge in the South shows signs of abating, White House Coronavirus Task Force Coordinator Deborah Birx said on Thursday. `\
+https://nytimes.com/reuters/2020/07/30/us/30reuters-health-coronavirus-usa.html?searchResultPosition=4
 
-**Conservative Commentator Eric Metaxas Works on Memoir**\
-`Conservative author, commentator and radio host Eric Metaxas is working on a pair of books, including a memoir about his youth and conversion to Christianity. `\
-https://nytimes.com/aponline/2020/07/30/us/ap-us-books-eric-metaxas.html?searchResultPosition=5
+**UK Former Conservative Lawmaker Found Guilty of Sexual Assault**\
+`A former lawmaker from Britain's governing Conservative Party has been found guilty of sexually assaulting two women.`\
+https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-britain-politics-elphicke.html?searchResultPosition=5
 
-**Louisiana Man Indicted in Fatal Shooting of Police Officer**\
-`A Louisiana man accused of fatally shooting a 21-year police veteran as well as his girlfriend’s stepfather before engaging with authorities in an hourslong standoff has been indicted on murder charges.`\
-https://nytimes.com/aponline/2020/07/30/us/ap-us-louisiana-police-shooting.html?searchResultPosition=6
+**Trump Floats Election 'Delay' Amid Claim of Voting Fraud**\
+`President Donald Trump is for the first time floating a “delay” to the Nov. 3 presidential election, as he makes unsubstantiated allegations that increased mail-in voting will result in fraud. `\
+https://nytimes.com/aponline/2020/07/30/us/politics/ap-us-election-2020-trump-delay.html?searchResultPosition=6
 
-**Medicare Coverage for Alzheimer Brain Scans in Question**\
-`A big study to help Medicare officials decide whether to start covering brain scans to check for Alzheimer’s disease missed its goals for curbing health care costs, calling into question whether the pricey tests are worth it. `\
-https://nytimes.com/aponline/2020/07/30/health/ap-us-med-medicare-alzheimer-brain-scans.html?searchResultPosition=7
+**Stats: England Had Europe's Highest Extra Deaths in Pandemic**\
+`England suffered a more widespread coronavirus outbreak than its European neighbors and had the highest level of excess deaths during the pandemic, according to an analysis of more than 20 countries released Thursday by the U.K.’s Office for National Statistics.`\
+https://nytimes.com/aponline/2020/07/30/world/europe/ap-eu-virus-outbreak-european-deaths.html?searchResultPosition=7
 
-**Colombia GDP Dived in Second Quarter, Along With Inflation: Reuters Poll**\
-`Colombia's economy will have suffered the worst contraction in its history in the second quarter because of fall-out from a coronavirus quarantine, analysts said in Reuters poll on Thursday.`\
-https://nytimes.com/reuters/2020/07/30/world/americas/30reuters-colombia-gdp-poll.html?searchResultPosition=8
+**Philippine Police Capture Country’s Most-Wanted Fugitive**\
+`Philippine police said Thursday they have captured the country’s most-wanted fugitive, a former lawmaker who was convicted years ago of corruption and murdering his wife.`\
+https://nytimes.com/aponline/2020/07/30/world/asia/ap-as-philippines-most-wanted-fugitive.html?searchResultPosition=8
 
-**Rights Group Urges Indonesia to End Caning Under Islamic Law**\
-`The human rights group Amnesty International urged Indonesia on Thursday to abolish caning after two women were struck about 100 times each as punishment for offering prostitution online.`\
-https://nytimes.com/aponline/2020/07/30/world/asia/ap-as-indonesia-caning.html?searchResultPosition=9
+**Pakistanis Take Livestock to 'Cow Wash' Ahead of Eid**\
+`The days leading up to the Muslim feast of Eid al-Adha are busy for Uzair Dawood, the owner of a motorcycle wash in Pakistan's southern city of Karachi - not for fixing vehicles, but washing cattle. `\
+https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-pakistan-eid-cattle.html?searchResultPosition=9
 
-**Nestle Wants to Keep Earnings and Sales Growth in Balance**\
-`Nestle will keep making sure earnings and sales growth remained balanced, its chief executive told investors on a call after the food group posted better-than-expected results for the first half of 2020.`\
-https://nytimes.com/reuters/2020/07/30/business/30reuters-nestle-results-investors.html?searchResultPosition=10
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are four-bedroom homes in Old Westbury, N.Y., and Crosswicks, N.J.`\
+https://nytimes.com/2020/07/30/realestate/homes-for-sale-in-new-york-and-new-jersey.html?searchResultPosition=10
 
