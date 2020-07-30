@@ -2,7 +2,7 @@
 `Even though the 1932 Summer Olympics were held during the Great Depression, Los Angeles first chance to host the Games still stand as a model for innovation and profitability. `\
 https://nytimes.com/aponline/2020/07/30/sports/olympics/ap-oly-1932-los-angeles-games.html?searchResultPosition=1
 
-**U.S. Solar Power Plant Backed by Over $700 Mln in Govt Loans Goes Bust: Filing**\
+**U.S. Solar Power Plant Backed by Over $700 Million in Government Loans Goes Bust: Filing**\
 `The owner of a big Nevada solar-thermal power plant that received $737 million in loans from the U.S. Department of Energy filed for bankruptcy on Thursday, according to a court filing, potentially leaving U.S. taxpayers with a whopping bill.`\
 https://nytimes.com/reuters/2020/07/30/us/30reuters-usa-solar-bankruptcy.html?searchResultPosition=2
 
@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/07/30/us/30reuters-usa-solar-bankruptcy.html?se
 `French health authorities reported 1,377 additional confirmed cases of the new coronavirus on Wednesday, at 186,573, bringing the moving 7-day average above the 1,000 threshold for the first time since the first half of May, when France eased its lockdown.`\
 https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-health-coronavirus-france-casualties.html?searchResultPosition=3
 
-**‘This Beautiful Man’: Obama, Bush and Clinton Honor John Lewis**\
-`At the funeral for Representative John Lewis, former Presidents Barack Obama, George W. Bush and Bill Clinton paid tribute to the civil rights icon.`\
+**‘This Beautiful Man’: Obama, Bush, Clinton and Pelosi Honor John Lewis**\
+`At the funeral for Representative John Lewis, former Presidents Barack Obama, George W. Bush and Bill Clinton, along with Speaker Nancy Pelosi paid tribute to the civil rights icon.`\
 https://nytimes.com/video/us/politics/100000007264823/john-lewis-funeral.html?searchResultPosition=4
 
 **Waldemar Gonzalez, Social Worker Who Drew on His Own Hard Life, Dies at 72**\
