@@ -1,40 +1,40 @@
+**Impossible Foods to Sell Plant-Based Burgers in 2,100 Walmart Stores**\
+`Impossible Foods' flagship burgers will be sold at more than 2,100 Walmart Inc stores in the United States, the plant-based meat maker said on Thursday, as it tries to boost its retail presence in the face of subdued sales to restaurants due to the coronavirus crisis. `\
+https://nytimes.com/reuters/2020/07/30/business/30reuters-impossible-foods-walmart.html?searchResultPosition=1
+
+**Panthers Reportedly Part Ways With K Gano**\
+`The Carolina Panthers released Pro Bowl kicker Graham Gano on Thursday, according to the player's wife.`\
+https://nytimes.com/reuters/2020/07/30/sports/30reuters-football-nfl-car-gano.html?searchResultPosition=2
+
+**A W.N.B.A. Coach Heard a Call to Feed the Hungry. She’s Answering It.**\
+`Bridget Pettis, a former W.N.B.A. player and coach, is sitting out this season and focusing on teaching her community in Phoenix about gardening and healthy eating.`\
+https://nytimes.com/2020/07/30/sports/basketball/wnba-bridget-pettis.html?searchResultPosition=3
+
+**Beyoncé’s ‘Black Is King’ Is No Secret, but Still Comes With Mystery**\
+`Her latest project is her first with Disney+: a visual album connected to the music she oversaw for the “Lion King” remake. And as usual, she’s captured fans’ attention by saying little.`\
+https://nytimes.com/2020/07/30/arts/music/beyonce-black-is-king.html?searchResultPosition=4
+
+**With American TV on Pause, Here Are 5 British Series to Watch**\
+`On outlets from Hulu to Peacock to PBS, it’s the summer of the trans-Atlantic import.`\
+https://nytimes.com/2020/07/30/arts/television/in-my-skin-hulu.html?searchResultPosition=5
+
+**Maddon Prefers Angels 'Go Play Baseball' Against Astros**\
+`Los Angeles Angels manager Joe Maddon awaits the arrival of reigning American League champion Houston this weekend and doesn't plan to recreate the drama that played out between the Astros and the Los Angeles Dodgers this week.`\
+https://nytimes.com/reuters/2020/07/30/sports/baseball/30reuters-baseball-mlb-laa-maddon-beanball-astros.html?searchResultPosition=6
+
+**Chicago Police Officer, Suspected Gunman Shot at Station**\
+`An officer was shot at a Chicago police station on the city's North Side on Thursday, authorities said. `\
+https://nytimes.com/aponline/2020/07/30/us/ap-us-chicago-police-officer-shot.html?searchResultPosition=7
+
 **Trump Nomineee Hearing Pulled Amid Furor Over Islam Remarks**\
 `A Senate committee abruptly canceled a confirmation hearing Thursday on a controversial former general's nomination to a top Pentagon post, amid continued furor over offensive remarks he made about Islam and other inflammatory comments. `\
-https://nytimes.com/aponline/2020/07/30/us/politics/ap-us-pentagon-nominee.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/30/us/politics/ap-us-pentagon-nominee.html?searchResultPosition=8
 
 **Italy: 6 Youths Convicted Over Deadly Nightclub Stampede**\
 `A court in the Italian coastal city of Ancona convicted six young men Thursday over a 2018 nightclub stampede that killed five teens aged 14-16 and a mother who had accompanied her daughter to a rap concert. `\
-https://nytimes.com/aponline/2020/07/30/world/europe/ap-eu-italy-nightclub-stampede-convictions.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/07/30/world/europe/ap-eu-italy-nightclub-stampede-convictions.html?searchResultPosition=9
 
 **UK Rapper Solo 45 Sentenced to 24 Years for Violent Rapes**\
 `British grime musician Solo 45 was sentenced Thursday to 24 years in prison for raping four women in what police said was among the most violent sexual behavior they had seen.`\
-https://nytimes.com/aponline/2020/07/30/world/europe/ap-eu-britain-musician-sex-crimes.html?searchResultPosition=3
-
-**Mexico to Create Drug Purchasing Agency Amid Shortages**\
-`Mexico’s president said Thursday he is creating a central national purchasing and distribution agency for medicines, vaccines and medical equipment amid persistent shortages during the coronavirus pandemic and the arrest of a doctor who advised a patient's family to buy their own medications. `\
-https://nytimes.com/aponline/2020/07/30/world/americas/ap-lt-virus-outbreak-mexico.html?searchResultPosition=4
-
-**L'Oreal Sales Falter, Margins Hold Up Amid Lockdowns**\
-`Revenue at Maybelline maker L'Oreal fell sharply in the second quarter even as online sales surged during lockdowns to fight the COVID-19 pandemic, though the French beauty group managed to contain any major erosion of profit margins.`\
-https://nytimes.com/reuters/2020/07/30/business/30reuters-loreal-results.html?searchResultPosition=5
-
-**How a Historian Stuffed Hagia Sophia’s Sound Into a Studio**\
-`Bissera Pentcheva used virtual acoustics to bring Istanbul to California and reconstruct the sonic world of Byzantine cathedral music.`\
-https://nytimes.com/2020/07/30/arts/music/hagia-sophia-acoustics-music.html?searchResultPosition=6
-
-**EU Sanctions Russian Intelligence, North Korean, Chinese Firms Over Alleged Cyberattacks**\
-`The European Union imposed on Thursday travel and financial sanctions on a department of Russia's military intelligence service and on firms from North Korea and China over their suspected participation in major cyberattacks across the world.`\
-https://nytimes.com/reuters/2020/07/30/technology/30reuters-eu-cybercrime-russia-sanctions.html?searchResultPosition=7
-
-**Knicks Hire Thibodeau to Guide Rapid Rebuild**\
-`Tom Thibodeau was named head coach of the New York Knicks on Thursday.`\
-https://nytimes.com/reuters/2020/07/30/sports/basketball/30reuters-basketball-nba-nyk-thibodeau.html?searchResultPosition=8
-
-**Big Tech’s Backlash Is Just Starting**\
-`The congressional antitrust hearing showed that concerns about the tech stars aren’t going away.`\
-https://nytimes.com/2020/07/30/technology/big-tech-backlash.html?searchResultPosition=9
-
-**In Afghanistan, a Rarely Seen Anti-Tank Weapon Destroys a Helicopter**\
-`In January, another Afghan helicopter was hit by an anti-tank guided missile in southern Afghanistan, in a swath of territory long contested by the Taliban.`\
-https://nytimes.com/2020/07/30/world/asia/afghanistan-taliban-helicopter-missile.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/30/world/europe/ap-eu-britain-musician-sex-crimes.html?searchResultPosition=10
 
