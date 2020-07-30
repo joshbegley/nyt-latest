@@ -1,40 +1,40 @@
-**Aminatou Sow and Ann Friedman Wrote a Big Best Seller**\
-`In “Big Friendship,” the best friends and podcast co-hosts rediscover their bond across a different kind of social distance.`\
-https://nytimes.com/2020/07/30/books/review/aminatou-sow-ann-friedman-big-friendship.html?searchResultPosition=1
+**The Book of Statuses**\
+`A group of parents take one big step together.`\
+https://nytimes.com/2020/07/30/podcasts/nice-white-parents-serial.html?searchResultPosition=1
 
-**In ‘Memorial Drive’ a Poet Evokes Her Childhood and Confronts Her Mother’s Murder**\
-`The new memoir by the Pulitzer Prize-winning poet Natasha Trethewey is an aching investigation of trauma and art.`\
-https://nytimes.com/2020/07/30/books/review/memorial-drive-natastha-trethewey.html?searchResultPosition=2
+**Yes, the Coronavirus Is in the Air**\
+`Transmission through aerosols matters — and probably a lot more than we’ve been able to prove yet.`\
+https://nytimes.com/2020/07/30/opinion/coronavirus-aerosols.html?searchResultPosition=2
 
-**Two People in One Small Studio? This Couple Figured They Could Manage**\
-`Two newlyweds leave their tiny rental for something affordable in Hell’s Kitchen — maybe even a one-bedroom. Which of these options would you choose?`\
-https://nytimes.com/interactive/2020/07/30/realestate/30hunt-sato.html?searchResultPosition=3
+**China Tries Its Favorite Economic Cure: More Construction**\
+`Strong sales at China’s biggest construction equipment maker show Beijing’s strategy for recovery after the virus. But while the company, XCMG, is prospering, the rest of the economy is struggling.`\
+https://nytimes.com/2020/07/30/business/china-economy-infrastructure.html?searchResultPosition=3
 
-**His Face, Hands and Feet Swelled Up. What Was Going On?**\
-`The young boy’s grandmother saw strange red lines snaking around his body. Could this be an allergic reaction? A rare autoimmune disease?`\
-https://nytimes.com/2020/07/30/magazine/urticaria-multiforme.html?searchResultPosition=4
+**Renée Fleming, Songbird in Seclusion**\
+`America’s top soprano will return to the Met stage in 2022, starring in a new opera based on “The Hours,” by Michael Cunningham.`\
+https://nytimes.com/2020/07/30/style/maureen-dowd-renee-fleming.html?searchResultPosition=4
 
-**Judge John Hodgman on Having TSA PreCheck When Your Fiancée Doesn’t**\
-`Should you get extra time at the food court or go through the line for regular people?`\
-https://nytimes.com/2020/07/30/magazine/judge-john-hodgman-on-having-tsa-precheck-when-your-fiancee-doesnt.html?searchResultPosition=5
+**The Dictator Who Waged War on Darfur Is Gone, but the Killing Goes On.**\
+`The ouster of Sudan’s longtime ruler last year stoked hopes for peace in brutalized Darfur. But violence has surged amid fresh accusations against Sudan’s security forces.`\
+https://nytimes.com/2020/07/30/world/middleeast/darfur-sudan.html?searchResultPosition=5
 
-**12 Dead as Philippine Troops Battle Militants in South**\
-`Philippine troops clashed with Muslim guerrillas allied with the Islamic State group in the country’s south, leaving two soldiers and about 10 militants dead, military officials said Thursday.`\
-https://nytimes.com/aponline/2020/07/30/world/asia/ap-as-philippines-muslim-militants.html?searchResultPosition=6
+**Virus-Driven Push to Release Juvenile Detainees Leaves Black Youth Behind**\
+`After an initial decrease in the youth detention population since the pandemic began, the rate of release has slowed, and the gap between white youth and Black youth has grown.`\
+https://nytimes.com/2020/07/30/us/politics/juvenile-detainees-coronavirus.html?searchResultPosition=6
 
-**Bangladesh Arrests 3 in Police Station Blast, Denies IS Link**\
-`Bangladeshi police said they arrested three suspects in the bombing of a Dhaka police station and denied a claim of responsibility by the Islamic State group, saying the attackers were motivated by criminal intent. `\
-https://nytimes.com/aponline/2020/07/30/world/asia/ap-as-bangladesh-blast.html?searchResultPosition=7
+**‘This Is a New Phase’: Europe Shifts Tactics to Limit Tech’s Power**\
+`The region’s lawmakers and regulators are taking direct aim at Amazon, Facebook, Google and Apple in a series of proposed laws.`\
+https://nytimes.com/2020/07/30/technology/europe-new-phase-tech-amazon-apple-facebook-google.html?searchResultPosition=7
 
-**Belarus, Ukraine Beef Up Border Controls After Detention of Alleged Russian Mercenaries**\
-`Belarus and Ukraine have agreed to beef up their border controls and expand border cooperation after Belarus detained more than 30 alleged Russian mercenaries near Minsk ahead of Belarus' presidential election, the Belarusian foreign ministry said. `\
-https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-belarus-election-russia-border.html?searchResultPosition=8
+**13 Books to Watch For in August**\
+`Stephenie Meyer’s retelling of “Twilight,” Isabel Wilkerson’s examination of American racism, a biography of the drug kingpin El Chapo, and plenty more.`\
+https://nytimes.com/2020/07/30/books/new-august-books.html?searchResultPosition=8
 
-**Fresh Lira Slide Rekindles Crisis Fears for Turkey**\
-`Turkey's lira is back in the spotlight. After two months of stability, the currency is testing the 7-per-dollar threshold and tumbling to record lows versus the euro, rekindling memories of the August 2018 lira meltdown.`\
-https://nytimes.com/reuters/2020/07/30/business/30reuters-turkey-currency-reserves-graphic.html?searchResultPosition=9
+**As Covid Has Become a Red-State Problem, Too, Have Attitudes Changed?**\
+`There’s still a persistent partisan gap in the level of concern and in mask wearing.`\
+https://nytimes.com/2020/07/30/upshot/coronavirus-republican-voting.html?searchResultPosition=9
 
-**How to Convince Phoebe Bridgers to Write a Rock Song**\
-`The 25-year-old singer and songwriter shows us how “Kyoto” transformed from a ballad into a rock song over months, combining a stray lyric, a bare-bones voice memo from tour and shared memories of childhood.`\
-https://nytimes.com/video/arts/music/100000007258359/phoebe-bridgers-kyoto.html?searchResultPosition=10
+**Afraid of Airlines? There’s Always the Private Jet**\
+`Concerned about virus-related safety on commercial planes, many fliers are turning to private jets for the first time. The catch, of course, is the price.`\
+https://nytimes.com/2020/07/30/travel/private-jets-coronavirus.html?searchResultPosition=10
 
