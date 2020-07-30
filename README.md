@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/07/29/sports/29reuters-baseball-mlb-oak-col.htm
 https://nytimes.com/aponline/2020/07/29/sports/baseball/ap-bbo-shortened-doubleheaders.html?searchResultPosition=8
 
 **Glenda Jackson Film to Launch PBS' 'Masterpiece' Anniversary**\
-`Acclaimed actor Glenda Jackson will launch the 50th season of PBS’ “Masterpiece” drama showcase next year. `\
+`Acclaimed actress Glenda Jackson will launch the 50th season of PBS’ “Masterpiece” drama showcase next year. `\
 https://nytimes.com/aponline/2020/07/29/us/ap-us-tv-pbs-glenda-jackson.html?searchResultPosition=9
 
 **U.S. Authorities Arrest, Charge 23 Gang Members in Chicago**\
