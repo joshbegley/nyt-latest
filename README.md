@@ -1,40 +1,40 @@
-**‘Rebuilding Paradise’ Review: When a Town Burns to the Ground**\
-`Ron Howard directs this documentary about the aftermath of the 2018 wildfire that devastated a California community.`\
-https://nytimes.com/2020/07/30/movies/rebuilding-paradise-review.html?searchResultPosition=1
+**As Small Business Suffers, Facebook's Fortunes Hang in the Balance**\
+`Facebook Inc will reveal on Thursday whether lower ad prices lured enough marketers in the second quarter to overcome the downdraft from widespread pandemic-induced closures among the small businesses that drive most of its revenue.`\
+https://nytimes.com/reuters/2020/07/30/business/30reuters-facebook-results-preview.html?searchResultPosition=1
 
-**‘Host’ Review: A Zoom Séance Channels Spirits and Melancholy**\
-`In this horror movie, an angry ghost rages on a Zoom call, and speaks to a moment of uncertainty.`\
-https://nytimes.com/2020/07/30/movies/host-review.html?searchResultPosition=2
+**Roche Bid to Retool Arthritis Drug for COVID-19 Fails**\
+`Roche's attempt to retool its rheumatoid arthritis drug Actemra/RoActemra to treat patients hospitalised with severe COVID-19-related pneumonia has failed in a late-stage trial, the Swiss company said on Wednesday.`\
+https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-roche-covid-actemra.html?searchResultPosition=2
 
-**‘Summerland’ Review: A Writer’s Life, Past and Present**\
-`Gemma Arterton stars as a woman with a complicated past in this cloyingly sentimental World War II drama.`\
-https://nytimes.com/2020/07/30/movies/summerland-review.html?searchResultPosition=3
+**Travel Company TUI to Shut 166 Stores in UK and Ireland**\
+`Travel company TUI said it will shut 166 stores in the UK and Ireland in response to the downturn in travel caused by the coronavirus pandemic, in a move which could lead to some job losses.`\
+https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-health-coronavirus-tui.html?searchResultPosition=3
 
-**‘The Fight’ Review: Pressing the Case, or Cases**\
-`This documentary on the American Civil Liberties Union is concerned not with simple boosterism but with showing how cases are built.`\
-https://nytimes.com/2020/07/30/movies/the-fight-review.html?searchResultPosition=4
+**Record Surge in Daily Shipping Volumes for UPS in 2Q**\
+`UPS is reporting a profit of $1.77 billion with the pandemic fueling a 21% surge in daily shipping volume, the largest quarterly increase ever recorded by the company. `\
+https://nytimes.com/aponline/2020/07/30/business/bc-us-earns-ups.html?searchResultPosition=4
 
-**‘A Girl Missing’ Review: In Two Minds**\
-`A contented nurse finds her life wrecked and her sanity threatened by the fallout from a kidnapping.`\
-https://nytimes.com/2020/07/30/movies/a-girl-missing-review.html?searchResultPosition=5
+**2 Grim Reports Are Expected on Virus' Damage to US Economy**\
+`The government is poised Thursday to deliver a double-dose of sobering news — on the devastation the coronavirus caused the U.S. economy last quarter and the damage it continues to inflict on the job market.`\
+https://nytimes.com/aponline/2020/07/30/business/bc-us-economy.html?searchResultPosition=5
 
-**‘The Cuban’ Review: Memories Lost and Reignited**\
-`Louis Gossett Jr. plays a musician with Alzheimer’s disease whose new nurse helps him reach back into his past.`\
-https://nytimes.com/2020/07/30/movies/the-cuban-review.html?searchResultPosition=6
+**Polish Prime Minister Says He Wants to Avoid Another Lockdown**\
+`Poland's prime minister said on Thursday that he wanted to avoid another lockdown, and that Poland will use new methods to contain the spread of the coronavirus.`\
+https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-health-coronavirus-poland-lockdown.html?searchResultPosition=6
 
-**After 99 Days of Success, Virus Returns to Haunt Vietnam**\
-`For 99 days, Vietnam seemed to have defeated the coronavirus.`\
-https://nytimes.com/aponline/2020/07/30/business/ap-as-virus-outbreak-vietnam-1st-ld-writethru.html?searchResultPosition=7
+**China Says U.S. Wants a New Cold War Because of the Presidential Election**\
+`China's ambassador to London said on Thursday that the United States was trying to trigger a new Cold War with the Communist state because it was searching for a scapegoat ahead of the U.S. presidential election in November.`\
+https://nytimes.com/reuters/2020/07/30/technology/30reuters-china-britain-usa.html?searchResultPosition=7
 
-**Former Marine Sentenced to 9 Years in Russia in Case Criticized as Political**\
-`Trevor R. Reed was charged with assaulting and endangering the lives of two police officers in a case that some have likened to that of another former U.S. Marine in Russia.`\
-https://nytimes.com/2020/07/30/world/europe/marine-sentenced-russia.html?searchResultPosition=8
+**China Warns UK: You Have No Future if You Try to Sideline China**\
+`China's ambassador to London bluntly warned the United Kingdom on Thursday that it had no future if it tried to decouple from the Communist state.`\
+https://nytimes.com/reuters/2020/07/30/technology/30reuters-china-britain-envoy.html?searchResultPosition=8
 
-**Taiwan Ruling Party Urges China to Stop 'Oppression' of Hong Kong**\
-`Taiwan's ruling party on Thursday urged the China and Hong governments to stop the "oppression" of people in the city following the disqualification of election candidates and arrests of activists.`\
-https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-hongkong-security-taiwan.html?searchResultPosition=9
+**Myanmar May Postpone Election in War-Torn Rakhine State: Official**\
+`Myanmar will postpone elections in parts of war-torn Rakhine state if the military declares them unsafe, a senior election official said on Thursday, prompting a backlash from ethnic parties with strong support in the region.`\
+https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-myanmar-election.html?searchResultPosition=9
 
-**Polish Tribunal to Examine EU Treaty on Violence Against Women, PM Says**\
-`Poland's Constitutional Tribunal will examine a European treaty on violence against women, the prime minister said on Thursday, after the justice minister said Poland should leave the treaty. `\
-https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-poland-politics.html?searchResultPosition=10
+**Red Panda Born in Berlin as Part of Global Breeding Program**\
+`A rare red panda has been born at a Berlin zoo, only a few months after its parents were brought to the German capital from India, the zoo said in a statement Thursday.`\
+https://nytimes.com/aponline/2020/07/30/world/europe/ap-eu-germany-red-panda-cub.html?searchResultPosition=10
 
