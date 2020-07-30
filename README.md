@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/07/30/business/30reuters-health-coronavirus-aus
 `Congress, which is tasked with shepherding the nation through the pandemic, itself lacks consistent procedures for protecting its members and its work force.`\
 https://nytimes.com/2020/07/30/us/politics/gohmert-coronavirus-congress.html?searchResultPosition=9
 
-**Isolated and Sinking, Trump Escalates Push to Delegitimize the Election**\
+**Trump Floats an Election Delay, and Republicans Shoot It Down**\
 `The president’s suggestion that the Nov. 3 vote could be delayed — something he cannot do on his own — drew unusually firm Republican resistance and signaled worry about his re-election bid.`\
 https://nytimes.com/2020/07/30/us/politics/trump-delay-2020-election.html?searchResultPosition=10
 
