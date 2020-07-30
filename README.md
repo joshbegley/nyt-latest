@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/07/30/world/asia/ap-as-virus-outbreak-australi
 `The biggest party in Malaysia's ruling coalition on Thursday said it will withdraw from a political alliance with the prime minister but will continue to support the government, potentially undermining the stability of his administration.`\
 https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-malaysia-politics.html?searchResultPosition=9
 
-**German Economy Shrinks by Record 10.1% in Second Quarter**\
-`The German economy contracted by 10.1% in the second quarter, its steepest plunge on record, as household spending, business investment and exports collapsed during the COVID-19 pandemic, preliminary data showed on Thursday.`\
+**German GDP Plunge in Second Quarter Wipes Out Nearly 10 Years of Growth: Stats Office**\
+`The coronavirus-related plunge in Germany's economic output in the second quarter wiped out nearly 10 years of economic growth in adjusted terms, the statistics office said on Thursday.`\
 https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-germany-economy-gdp.html?searchResultPosition=10
 
