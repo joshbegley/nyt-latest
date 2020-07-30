@@ -1,40 +1,40 @@
+**Freeman Powers Braves to 7-4 Win, Snaps Rays' 4-Game Streak**\
+`Freddie Freeman homered and drove in three runs on a four-hit night, leading the Braves to a 7-4 victory over the Tampa Bay Rays in Atlanta's homer opener Wednesday.`\
+https://nytimes.com/aponline/2020/07/29/sports/baseball/ap-bbn-rays-braves.html?searchResultPosition=1
+
 **Ogunbawale, Wings Overcome Ionescu's 33-Point Effort**\
 `Arike Ogunbowale led five players in double figures with 20 points and the Dallas Wings earned a 93-80 win over the New York Liberty on Wednesday night.`\
-https://nytimes.com/aponline/2020/07/29/sports/basketball/bc-bkl-liberty-wings.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/07/29/sports/basketball/bc-bkl-liberty-wings.html?searchResultPosition=2
 
 **Hong Kong's Commercial Lenders on Edge as Building Values Tumble**\
 `Commercial lenders in Hong Kong say they are concerned about a 30% drop in building values over the past 12 months and will consider calling in or restructuring loans if values fall much further. `\
-https://nytimes.com/reuters/2020/07/29/world/asia/29reuters-hongkong-property.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/29/world/asia/29reuters-hongkong-property.html?searchResultPosition=3
 
 **Woodruff Dominates as Brewers Silence Punchless Pirates 3-0**\
 `Milwaukee's Brandon Woodruff allowed one hit and struck out 10 while working into the seventh inning as the Brewers beat the struggling Pittsburgh Pirates 3-0 on Wednesday night.`\
-https://nytimes.com/aponline/2020/07/29/sports/baseball/bc-bbn-brewers-pirates.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/29/sports/baseball/bc-bbn-brewers-pirates.html?searchResultPosition=4
 
 **Brazil's Petrobras Could Get $3.3 Billion in Favorable Tax Ruling**\
 `Brazil's state-owned oil firm Petrobras said on Wednesday it could receive 16.9 billion reais ($3.27 billion) after a favorable tax ruling found it had over-paid to so-called PIS and Cofins taxes.`\
-https://nytimes.com/reuters/2020/07/29/world/americas/29reuters-petrobras-taxes.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/29/world/americas/29reuters-petrobras-taxes.html?searchResultPosition=5
 
 **Moustakas, Senzel Homer in Return, Reds Beat Cubs 12-7**\
 `Mike Moustakas and Nick Senzel homered in their returns from a COVID-19 scare, Nick Castellanos added a grand slam, and the Cincinnati Reds ended a four-game losing streak by beating the Chicago Cubs 12-7 Wednesday night.`\
-https://nytimes.com/aponline/2020/07/29/sports/baseball/ap-bbn-cubs-reds.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/07/29/sports/baseball/ap-bbn-cubs-reds.html?searchResultPosition=6
 
 **South Korea's Celltrion Gets UK Approval for Trials of COVID-19 Antibody Drug**\
 `South Korea's Celltrion Inc on Thursday said British regulators had given it regulatory approval for a phase I clinical trial of its experimental COVID-19 treatment drug.`\
-https://nytimes.com/reuters/2020/07/29/world/europe/29reuters-health-coronavirus-southkorea-celltrion.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/07/29/world/europe/29reuters-health-coronavirus-southkorea-celltrion.html?searchResultPosition=7
 
 **Blast in Northern Japanese Town Injures at Least 16 People**\
 `At least 16 people were injured and being taken to hospitals in a northern Japanese town after a sudden explosion blew off walls, windows and debris in the neighborhood. `\
-https://nytimes.com/aponline/2020/07/29/world/asia/ap-as-japan-explosion.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/07/29/world/asia/ap-as-japan-explosion.html?searchResultPosition=8
 
 **Casino Calculation**\
 `Joel Fagliano masters the art of saving space.`\
-https://nytimes.com/2020/07/29/crosswords/daily-puzzle-2020-07-30.html?searchResultPosition=8
+https://nytimes.com/2020/07/29/crosswords/daily-puzzle-2020-07-30.html?searchResultPosition=9
 
 **Tigers Rally From Early Deficit, Beat Royals 5-4**\
 `JaCoby Jones hit a tiebreaking solo homer in the seventh inning, and Detroit's bullpen came through again in a 5-4 victory over the Kansas City Royals on Wednesday night.`\
-https://nytimes.com/aponline/2020/07/29/sports/baseball/ap-bba-royals-tigers.html?searchResultPosition=9
-
-**4-Run 10th for Nats Spoils Blue Jays' 'Home Opener' in DC**\
-`Adam Eaton’s bases-loaded chopper broke a scoreless tie in the 10th inning on a close play and Asdrúbal Cabrera followed with a three-run triple, helping the Nationals snap a three-game losing streak by beating the playing-home-games-on-the-road Blue Jays 4-0 Wednesday night.`\
-https://nytimes.com/aponline/2020/07/29/sports/baseball/bc-bbo-nationals-blue-jays.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/29/sports/baseball/ap-bba-royals-tigers.html?searchResultPosition=10
 
