@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-malaysia-politics.ht
 https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-germany-economy-gdp.html?searchResultPosition=2
 
 **German Economy Plunged 10% During 2nd Quarter Amid Pandemic**\
-`Germany’s economy took a massive hit during the pandemic shutdowns, shrinking by 10.1% percent during the April-June period from the previous quarter, the country’s official statistics agency said Thursday. `\
+`Germany’s economy took a massive hit during the pandemic shutdowns, shrinking by 10.1% percent during the April-June period from the previous quarter, the official statistics agency said Thursday. `\
 https://nytimes.com/aponline/2020/07/30/business/bc-eu-europe-economy.html?searchResultPosition=3
 
 **Belarus Says It Suspects Russian Mercenaries of Violent Plot Ahead of Election**\
