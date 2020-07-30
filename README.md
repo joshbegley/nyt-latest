@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/07/29/sports/29reuters-health-coronavirus-snook
 https://nytimes.com/2020/07/29/world/asia/hong-kong-arrests-security-law.html?searchResultPosition=6
 
 **Yankees Make Most of Schedule Change, Defeat Orioles 9-3**\
-`Baseball's weird season reached another level of strange Wednesday night when the New York Yankees stepped in for the Miami Marlins and ruined Baltimore's home opener, hitting three home runs to back right-hander Gerrit Cole in a 9-3 victory.`\
+`If the New York Yankees must adjust on the fly to a sudden change in the schedule, there's no team they'd rather face than the Baltimore Orioles. `\
 https://nytimes.com/aponline/2020/07/29/sports/baseball/bc-bba-yankees-orioles.html?searchResultPosition=7
 
 **Aeromexico Aims to Lift Operations Nearly 20% in August**\
