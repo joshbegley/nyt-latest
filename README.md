@@ -1,40 +1,40 @@
+**U.S. Coaches Complain of Athlete Abuse at NBA's China Camps: ESPN**\
+`American coaches at the National Basketball Association's training academies in China have complained of abuse of young players by local staff and harassment in the Xinjiang region, ESPN has reported citing unnamed sources.`\
+https://nytimes.com/reuters/2020/07/30/sports/basketball/30reuters-china-nba-abuse.html?searchResultPosition=1
+
+**Japan Slashes GDP Forecasts, Expects Biggest Contraction in Decades This Fiscal Year**\
+`Japan sharply downgraded its gross domestic product forecasts for this fiscal year, expecting the world's third-largest economy to suffer its biggest contraction in over two decades amid the fallout of the coronavirus pandemic.`\
+https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-japan-economy-forecast.html?searchResultPosition=2
+
+**Hong Kong Reports Record Daily Number of 149 New Coronavirus Cases**\
+`Hong Kong reported 149 new coronavirus cases on Thursday, a daily record, including 145 that were locally transmitted, as authorities said the global financial hub faced a critical period to curb the spread of the virus.`\
+https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-health-coronavirus-hongkong.html?searchResultPosition=3
+
+**Timeline: The Rise and Fall of Wirecard**\
+`German payments firm Wirecard collapsed in June after its auditor EY refused to sign off on the 2019 accounts, following months of investigation into missing 1.9 billion euros from its books, and forcing out Chief Executive Markus Braun. `\
+https://nytimes.com/reuters/2020/07/30/technology/30reuters-wirecard-accounts-timeline.html?searchResultPosition=4
+
+**Jailed Basque Leader Swaps Prison for House Arrest in France**\
+`A longtime chief of the violent Basque separatist group ETA was freed Thursday from a French prison, swapping a jail cell for house arrest in France with an electronic monitoring bracelet.`\
+https://nytimes.com/aponline/2020/07/30/world/europe/ap-eu-france-eta-chief-freed.html?searchResultPosition=5
+
+**Gymnastics Australia Asks Human Rights Group to Probe Abuse**\
+`Complaints by at least 20 former Australian gymnasts about physical and mental abuse during their careers has prompted Gymnastics Australia to ask a human rights group to investigate.`\
+https://nytimes.com/aponline/2020/07/30/sports/ap-gym-australia-abuse-complaints.html?searchResultPosition=6
+
+**Gymnastics: Australia Human Rights Body to Probe Abuse Complaints**\
+`Australia's human rights watchdog will conduct a review of the country's gymnastics program following complaints of physical and mental abuse from a slew of former athletes, the sport's national governing body said on Thursday.`\
+https://nytimes.com/reuters/2020/07/30/sports/30reuters-gymnastics-australia.html?searchResultPosition=7
+
+**Hong Kong Disqualifies 12 Opposition Nominees for Assembly**\
+`At least 12 Hong Kong pro-democracy nominees including Joshua Wong were disqualified for a September legislative election, with authorities saying Wednesday they failed to uphold the city's mini-constitution and pledge allegiance to Hong Kong and Beijing.`\
+https://nytimes.com/aponline/2020/07/30/world/asia/ap-as-hong-kong.html?searchResultPosition=8
+
 **Golladay Among Five Detroit Lions Players Placed on COVID-19 List: Reports**\
 `The Detroit Lions have put five players on their "reserve/COVID-19" list, meaning the players have either tested positive for the novel coronavirus or have been in close contact with an infected person, U.S. media reported on Wednesday.`\
-https://nytimes.com/reuters/2020/07/30/sports/football/30reuters-health-coronavirus-football-nfl.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/30/sports/football/30reuters-health-coronavirus-football-nfl.html?searchResultPosition=9
 
 **Exclusive: Panasonic Aims to Boost Energy Density in Tesla Batteries by 20%-Executive**\
 `Panasonic Corp plans to boost the energy density of "2170" battery cells it supplies to Tesla Inc by 20% in five years and commercialize a cobalt-free version "in two to three years", the head of its U.S. EV battery business said.`\
-https://nytimes.com/reuters/2020/07/30/business/30reuters-panasonic-tesla-exclusive.html?searchResultPosition=2
-
-**Volkswagen Lost $1.8 Billion in Q2 but Sees Profit for Year**\
-`Carmaker Volkswagen recorded an after-tax loss of 1.54 billion euros ($1.81 billion) in the second quarter as the pandemic shut down auto plants and closed dealerships.`\
-https://nytimes.com/aponline/2020/07/30/business/ap-eu-germany-earns-volkswagen-.html?searchResultPosition=3
-
-**Coronavirus Live Updates: Four Swing States Are in ‘Red Zone’ for Virus**\
-`The spread is rapid in Arizona, Florida, North Carolina and Wisconsin, states critical to President Trump’s re-election hopes. A virus patient recovered after a rare double lung transplant.`\
-https://nytimes.com/2020/07/30/world/coronavirus-covid-19.html?searchResultPosition=4
-
-**UK Extends COVID-19 Self-Isolation to 10 Days From 7**\
-`Anyone who tests positive or shows symptoms for COVID-19 in Britain will have to self-isolate for 10 days instead of the previous seven, based on a low but tangible possibility that people could remain infectious for longer.`\
-https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-health-coronavirus-britain-isolation.html?searchResultPosition=5
-
-**Hungary Plans No Easing in Measures to Contain Coronavirus: PM Aide**\
-`Hungary's government plans no easing in existing measures to contain coronavirus due to an increase in cases in several neighbouring countries, Prime Minister Viktor Orban's chief of staff, Gergely Gulyas said on Thursday.`\
-https://nytimes.com/reuters/2020/07/30/world/europe/30reuters-health-coronavirus-hungary-government.html?searchResultPosition=6
-
-**The Book of Statuses**\
-`A group of parents takes one big step together.`\
-https://nytimes.com/2020/07/30/podcasts/nice-white-parents-serial.html?searchResultPosition=7
-
-**Yes, the Coronavirus Is in the Air**\
-`Transmission through aerosols matters — and probably a lot more than we’ve been able to prove yet.`\
-https://nytimes.com/2020/07/30/opinion/coronavirus-aerosols.html?searchResultPosition=8
-
-**China Tries Its Favorite Economic Cure: More Construction**\
-`Strong sales at China’s biggest construction equipment maker show Beijing’s strategy for recovery after the virus. But while the company, XCMG, is prospering, the rest of the economy is struggling.`\
-https://nytimes.com/2020/07/30/business/china-economy-infrastructure.html?searchResultPosition=9
-
-**Renée Fleming, Songbird in Seclusion**\
-`America’s top soprano will return to the Met stage in 2022, starring in a new opera based on “The Hours,” by Michael Cunningham.`\
-https://nytimes.com/2020/07/30/style/maureen-dowd-renee-fleming.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/30/business/30reuters-panasonic-tesla-exclusive.html?searchResultPosition=10
 
