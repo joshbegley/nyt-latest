@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/07/30/world/asia/30reuters-india-gold-demand.ht
 `The storm, which is expected to pass over Hispaniola on Thursday, is the ninth named storm system of the 2020 Atlantic hurricane season.`\
 https://nytimes.com/2020/07/30/us/tropical-storm-isaias.html?searchResultPosition=6
 
-**The Fate of Foreigners in America, From the Privileged to the Most Vulnerable**\
+**New Looks at the Fate of Foreigners in America, From the Privileged to the Most Vulnerable**\
 `Taken together, Julia Rose Kraut’s “Threat of Dissent” and Jacob Soboroff’s “Separated” give a sense of how U.S. immigration laws can be weaponized.`\
 https://nytimes.com/2020/07/30/books/review-threat-dissent-julia-rose-kraut-separated-jacob-soboroff.html?searchResultPosition=7
 
