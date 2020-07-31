@@ -16,7 +16,7 @@ https://nytimes.com/reuters/2020/07/31/us/31reuters-health-coronavirus-science.h
 
 **Let’s End the Wait for Coronavirus Test Results. Here’s How.**\
 `States should look to New York’s strategies.`\
-https://nytimes.com/2020/07/31/opinion/corona-pandemic-.html?searchResultPosition=5
+https://nytimes.com/2020/07/31/opinion/coronavirus-testing-cuomo.html?searchResultPosition=5
 
 **Family Says US Marine's Russian Prison Sentence Is Unjust**\
 `The family of a former U.S. Marine Corps veteran who got a nine-year prison sentence in Russia for assaulting two police officers say the sentence is unjust and politically motivated.`\
