@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/07/30/us/ap-as-pictures-of-the-week-in-asia-ph
 `The Australian government said on Friday it plans to give Google and Facebook three months to negotiate with Australian media businesses fair pay for news content.`\
 https://nytimes.com/aponline/2020/07/30/business/bc-as-australia-digital-platforms.html?searchResultPosition=8
 
-**Mexico Reports 7,730 New Coronavirus Cases, 639 More Deaths**\
-`Mexico' health ministry on Thursday reported 7,730 new cases of coronavirus infection and 639 additional deaths, bringing the total to 416,179 cases and 46,000 fatalities.`\
+**Mexico's Official Coronavirus Death Toll Hits 46,000**\
+`Mexico's health ministry posted 639 new deaths from coronavirus on Thursday bring the country's toll to 46,000, almost the same as the United Kingdom which has the third-highest death toll worldwide from the pandemic.`\
 https://nytimes.com/reuters/2020/07/30/world/americas/30reuters-health-coronavirus-mexico-tally.html?searchResultPosition=9
 
 **SoftBank Advances Share Buyback With Approval of $9.6 Billion Tranche**\
