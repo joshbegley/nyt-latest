@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/07/31/business/ap-eu-virus-outbreak-klm.html?s
 `At least nine people were killed after a minibus crashed in Crimea in the early hours of Friday, authorities in the Russian-annexed peninsula said.    `\
 https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-crimea-accident.html?searchResultPosition=9
 
-**Iran's Khamenei Rejects Talks With U.S. Over Missile, Nuclear Programmes: TV**\
-`Iran's Supreme Leader Ayatollah Ali Khamenei, in a live speech on state TV on Friday, ruled out negotiations with the United States over Tehran's ballistic missile and nuclear programmes, calling on Iranians to resist U.S. bullying.`\
+**Iran's Khamenei Rejects Talks With U.S. Over Missile, Nuclear Programmes**\
+`Iran's Supreme Leader, Ayatollah Ali Khamenei, ruled out negotiations with the United States over Tehran's ballistic missile and nuclear programmes on Friday and urged Iranians to resist U.S. pressure.`\
 https://nytimes.com/reuters/2020/07/31/world/middleeast/31reuters-iran-usa-khamenei.html?searchResultPosition=10
 
