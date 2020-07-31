@@ -1,40 +1,40 @@
+**Scorching Temperatures Bake Middle East Amid Eid al-Adha Celebrations**\
+`Record high temperatures were recorded in Baghdad and Damascus, and experts warned of the effects of prolonged heat waves as the planet warms.`\
+https://nytimes.com/2020/07/31/world/middleeast/Middle-East-heat-wave.html?searchResultPosition=1
+
+**Soccer Returning in Africa With Troubles and Bio-Bubbles**\
+`More than 50 players and staff members at soccer clubs in Zambia's top flight have tested positive for COVID-19 in an outbreak that the national association says was caused by teams failing to properly implement measures to stop its spread, leading to the season being cut short just two weeks after it had restarted.`\
+https://nytimes.com/aponline/2020/07/31/sports/soccer/ap-soc-virus-outbreak-african-soccer.html?searchResultPosition=2
+
+**British Airways to Resume Flights to Russia on August 2: Russian Transport Agency**\
+`British Airways is expected to resume flights to Russia on Aug. 2, Russia's Federal Air Transport Agency said on Friday, as Russia plans to restart some regular international flights on Saturday.`\
+https://nytimes.com/reuters/2020/07/31/business/31reuters-russia-flights.html?searchResultPosition=3
+
+**Love Letter: Making Room for More Love (and Sheep)**\
+`And, a legacy of “Loving” continued.`\
+https://nytimes.com/2020/07/31/fashion/weddings/love-letter-newsletter-making-room-for-more-love-and-sheep.html?searchResultPosition=4
+
+**Nello, Beloved by Rich New Yorkers, Is Dinged Over Illicit Indoor Dining**\
+`The Upper East Side restaurant was accused of serving eight people inside, violating New York’s orders.`\
+https://nytimes.com/2020/07/31/nyregion/nello-liquor-license-suspended.html?searchResultPosition=5
+
+**So Trump Wants to Postpone the Election**\
+`One reader views the floating of the idea as “a measure of how desperate he is to stay in power.” Also: Maskless shoppers; uncertain in Australia.`\
+https://nytimes.com/2020/07/31/opinion/letters/trump-election.html?searchResultPosition=6
+
+**Low-Cost Carrier Frontier Says 35% of Flight Attendant, Pilot Jobs at Risk**\
+`Frontier Airlines is preparing to send notices on Friday to employees warning that 35% of the budget carrier's flight attendants and pilots could be furloughed as early as Oct. 1, a spokeswoman told Reuters on Friday.`\
+https://nytimes.com/reuters/2020/07/31/business/31reuters-health-coronavirus-frontier.html?searchResultPosition=7
+
+**Trump Says Looking at Options on TikTok, Including Possible Ban**\
+`U.S. President Donald Trump on Friday said he was looking at lot of alternatives regarding Chinese firm ByteDance's TikTok video app, including the possibility of a ban.`\
+https://nytimes.com/reuters/2020/07/31/technology/31reuters-usa-tiktok-bytedance-trump.html?searchResultPosition=8
+
 **Trump Still Defers to Putin, Even as He Dismisses U.S. Intelligence and the Allies**\
 `Say this about President Trump’s approach to Moscow: It’s been consistent.`\
-https://nytimes.com/2020/07/31/us/politics/trump-russia-nato-bounties.html?searchResultPosition=1
+https://nytimes.com/2020/07/31/us/politics/trump-russia-nato-bounties.html?searchResultPosition=9
 
 **Cardinals Contact Tracer Finds 'Tricky Balance' in New Role**\
 `St. Louis Cardinals assistant general manager Moisés Rodríguez has been expecting the news that came down Friday.`\
-https://nytimes.com/aponline/2020/07/31/sports/baseball/ap-bbo-virus-mlb-contact-tracing.html?searchResultPosition=2
-
-**Canada Says Requirements for Huawei CFO's Extradition to U.S. Met, Documents Show**\
-`Canada's attorney general says the requirements for extraditing Huawei Chief Financial Officer Meng Wanzhou to the United States on charges of bank fraud have been met, documents submitted in a British Columbia court show.`\
-https://nytimes.com/reuters/2020/07/31/business/31reuters-usa-huawei-tech-canada.html?searchResultPosition=3
-
-**Comfort Viewing: Why I Still Love ‘The Goldbergs’**\
-`The period sitcom about a Jewish family in the ’80s has for seven seasons been a weekly gift of old-fashioned zingers.`\
-https://nytimes.com/2020/07/31/arts/television/goldbergs-abc-stream.html?searchResultPosition=4
-
-**Steven Soderbergh and Amy Seimetz Made the Pandemic Movies of the Moment**\
-`His 2011 “Contagion” and her new thriller “She Dies Tomorrow” have added resonance now. “Why is this kind of imagery so compelling?” Soderbergh asked.`\
-https://nytimes.com/2020/07/31/movies/steven-soderbergh-amy-seimetz-pandemic.html?searchResultPosition=5
-
-**Officials Declare Allegiant Stadium in Vegas Almost Complete**\
-`Officials declared “substantial completion" of Allegiant Stadium in Las Vegas after nearly 1,000 days were spent building the $2 billion home for the NFL’s relocated Raiders. `\
-https://nytimes.com/aponline/2020/07/31/sports/ap-us-las-vegas-stadium.html?searchResultPosition=6
-
-**Number of New French Coronavirus Infections Above 1,300 for Third Day in a Row**\
-`French health authorities reported 1,346 new confirmed coronavirus infections on Friday, which took the total to 187,919 as new cases are above 1,300 per day for the third day in a row, the highest since late April. `\
-https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-health-coronavirus-france-casualties.html?searchResultPosition=7
-
-**Isabel Wilkerson’s ‘Caste’ Is an ‘Instant American Classic’ About Our Abiding Sin**\
-`Wilkerson’s new book makes unsettling comparisons between India’s treatment of its untouchables, Nazi Germany’s treatment of Jews and America’s treatment of African-Americans.`\
-https://nytimes.com/2020/07/31/books/review-caste-isabel-wilkerson-origins-of-our-discontents.html?searchResultPosition=8
-
-**Robert Durst Murder Trial to Resume in 2021 Because of Virus**\
-`The California murder trial of New York real estate heir Robert Durst is scheduled to resume before a jury in April after the multimillionaire rejected an offer Friday to let a judge decide his fate sooner.`\
-https://nytimes.com/aponline/2020/07/31/us/ap-us-robert-durst-murder-trial.html?searchResultPosition=9
-
-**Mexico to Eclipse UK With Third Highest Coronavirus Death Toll**\
-`Mexico is poised to overtake Britain as the country with the third-highest coronavirus death toll as the pandemic reaches new milestones in Latin America and threatens to disrupt efforts to reopen the economy.`\
-https://nytimes.com/reuters/2020/07/31/world/americas/31reuters-health-coronavirus-latam.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/31/sports/baseball/ap-bbo-virus-mlb-contact-tracing.html?searchResultPosition=10
 
