@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/07/31/business/ap-us-bytedance-tiktok.html?sea
 https://nytimes.com/2020/07/31/arts/larry-scott-tiktok-larryakumpo.html?searchResultPosition=9
 
 **Countering G.O.P. on Courts, Democrats Will Call for ‘Structural Reforms’**\
-`Progressives pushed for the platform language after President Trump’s drive put 200 conservative judges on federal bench and Senate Republicans blocked President Obama’s nominees.`\
+`Progressives pushed for the platform language after President Trump’s drive put 200 conservative judges on the federal bench and Senate Republicans blocked President Obama’s nominees.`\
 https://nytimes.com/2020/07/31/us/democrats-judiciary-reform.html?searchResultPosition=10
 
