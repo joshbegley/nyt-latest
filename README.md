@@ -1,40 +1,40 @@
-**British Airways Owner Books Loss as Pandemic Stalls Travel**\
-`The parent company of British Airways reeled to a loss of 3.8 billion euros ($4.5 billion) in the first six months of the year as travel restrictions from the COVID-19 pandemic ate into the bottom line.`\
-https://nytimes.com/aponline/2020/07/31/business/bc-eu-britain-earns-iag.html?searchResultPosition=1
+**Exclusive: Bradesco Plans Long-Term Remote Work, Eyes 5-7% in Cost Savings**\
+`Brazilian lender Banco Bradesco SA plans to have employees work from home an average of one week per month permanently in order to save on rent and sell some real estate, Chief Executive Octavio de Lazari Junior said in an interview.`\
+https://nytimes.com/reuters/2020/07/31/business/31reuters-banco-bradesco-real-estate-exclusive.html?searchResultPosition=1
 
-**Hong Kong Bans Eating in Restaurants. And Then It Doesn’t.**\
-`City officials did a quick U-turn in the face of public anger, after viral photos showed workers eating lunch on curbs and bridges in the hot sun.`\
-https://nytimes.com/2020/07/31/world/asia/hongkong-dining-lunch-coronavirus.html?searchResultPosition=2
+**U.S. Records Nearly 25,000 Coronavirus Deaths in July**\
+`U.S. coronavirus deaths rose by almost 25,000 in July and cases doubled in at least 18 states during the month, according to a Reuters tally, dealing a crushing blow to hopes of quickly reopening the economy. `\
+https://nytimes.com/reuters/2020/07/31/us/31reuters-health-coronavirus-usa-july.html?searchResultPosition=2
 
-**Snazzy Face Mask Fashion Reaches Nairobi Neighbourhood**\
-`Most of us have accepted COVID-19 face masks as an inconvenient, albeit necessary, safety measure. For the style conscious like James Maina Mwangi, however, they are an unmissable fashion opportunity.`\
-https://nytimes.com/reuters/2020/07/31/world/africa/31reuters-health-coronavirus-kenya-fashion.html?searchResultPosition=3
+**Supreme Leader Says Iran Won't Negotiate With US**\
+`Iran’s Supreme Leader Ayatollah Ali Khamenei said Friday his country will not negotiate with the United States because America would only use talks for propaganda purposes.`\
+https://nytimes.com/aponline/2020/07/31/world/middleeast/ap-ml-iran-us.html?searchResultPosition=3
 
-**Vietnam Capital Says 21,000 Returnees From Coronavirus Outbreak City Test Negative**\
-`About 21,000 residents of Vietnam's capital, Hanoi, who recently returned from a central city where the coronavirus resurfaced last week have negative for COVID-19, the city's disease control authority said on Friday. `\
-https://nytimes.com/reuters/2020/07/31/world/asia/31reuters-health-coronavirus-vietnam-testing.html?searchResultPosition=4
+**What Are We Buying for Our Homes During the Pandemic?**\
+`Sheltering in place may mean avoiding stores, but online shopping for certain home-related items has increased.`\
+https://nytimes.com/2020/07/31/realestate/pandemic-shopping-home-design.html?searchResultPosition=4
 
-**VW's Skoda Deliveries Fall 31%, Expects Markets to Stabilise**\
-`Skoda Auto expects its global markets to stabilise gradually as long as the coronavirus pandemic does not worsen significantly worsen, Volkswagen's Czech carmaker said on Friday, after reporting a 31% drop in first-half deliveries.`\
-https://nytimes.com/reuters/2020/07/31/business/31reuters-volkswagen-skoda.html?searchResultPosition=5
+**A #MeToo Moment in the Military**\
+`What happened to 20-year-old Specialist Vanessa Guillen, and how the United States responded.`\
+https://nytimes.com/2020/07/31/podcasts/the-daily/vanessa-guillen-military-metoo.html?searchResultPosition=5
 
-**UK Watchdog Says COVID-19 Hit Customers May Need More Help From Banks**\
-`Britain's banks may need to consider introducing "sustainable forbearance" for customers who will continue to face difficulties with loan repayments after COVID-19 relief measures end in the autumn, the Financial Conduct Authority said on Friday.`\
-https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-health-coronavirus-britain-banks.html?searchResultPosition=6
+**How to Navigate the Coronavirus Real Estate Market**\
+`Suburbs and fashionable exurbs are hot, but don’t forget that home prices have fallen before, a Nobel laureate warns.`\
+https://nytimes.com/2020/07/31/business/housing-market-prices-risk.html?searchResultPosition=6
 
-**Pfizer, BioNTech to Supply 120 Million Doses of Coronavirus Vaccine to Japan**\
-`Pfizer Inc and BioNTech SE have agreed to supply Japan with 120 million doses of their mRNA-based vaccine candidate against the novel coronavirus in the first half of 2021, the companies said on Friday.`\
-https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-health-coronavirus-japan-pfizer-biontech.html?searchResultPosition=7
+**The Pandemic’s Top Sellers**\
+`As we shelter in place, the things we’ve been buying for our homes have shifted a bit.`\
+https://nytimes.com/slideshow/2020/07/31/realestate/the-pandemics-top-sellers.html?searchResultPosition=7
 
-**Border Clashes With Pakistan Leave 15 Afghan Civilians Dead, Officials Say**\
-`Anger over the closing of the border because of coronavirus fears triggers demonstrations, and then artillery barrages.`\
-https://nytimes.com/2020/07/31/world/asia/afghanistan-pakistan-border.html?searchResultPosition=8
+**From Barbados to Bucharest**\
+`Alicia Arendt, a foreign service officer with the State Department, met Rohan Ford, a businessman, while serving in Barbados.`\
+https://nytimes.com/2020/07/31/fashion/weddings/from-barbados-to-bucharest.html?searchResultPosition=8
 
-**Thailand Second Quarter Economy Likely Shrank by Record 12%-13% Year-On-Year: Central Bank**\
-`Thailand's economy may have shrank by 12%-13% in the second quarter from a year earlier due to the impacts of the coronavirous pandemic, the central bank said on Friday, in what could be a record contraction.`\
-https://nytimes.com/reuters/2020/07/31/world/asia/31reuters-thailand-economy-indicators.html?searchResultPosition=9
+**Wrong Places at the Right Time**\
+`The Rev. Lydia Wittman and Rafi Ziauddin nearly missed their first chance to connect, but found so many more chances later.`\
+https://nytimes.com/2020/07/31/fashion/weddings/wrong-places-at-the-right-time.html?searchResultPosition=9
 
-**Coronavirus Live Updates: Congress to Examine Trump’s Pandemic Response**\
-`Dr. Anthony Fauci and other health officials will testify before a House panel on testing, vaccines and school reopening. There are strong signs that Native Americans have been hit hard by the virus.`\
-https://nytimes.com/2020/07/31/world/coronavirus-covid-19.html?searchResultPosition=10
+**Her Just-Friends Note Was Tossed in a Hurry**\
+`Sophia Bachmann and Iain Coston met, they had dinner, they fell in love.`\
+https://nytimes.com/2020/07/31/fashion/weddings/her-just-friends-note-was-tossed-in-a-hurry.html?searchResultPosition=10
 
