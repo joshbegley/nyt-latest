@@ -1,40 +1,40 @@
-**New Books Take You Through the Microscope to the World of Pathogens**\
-`Authors explore the way the invisible world impacts our lives, from bacteria that are resistant to antibiotics to the beneficial biodiversity on our skin.`\
-https://nytimes.com/2020/07/31/books/review/biography-of-resistance-mohammed-zahan-clean-james-hamblin-the-sensitives-oliver-broudy.html?searchResultPosition=1
+**Pakistan Police Kill 5 Separatists, Say They Foiled Attacks**\
+`Counterterrorism police acting on intelligence raided a suspected militant hideout in a remote town in eastern Pakistan early Friday, triggering a shootout that killed five members of a separatist group, a spokesman said.`\
+https://nytimes.com/aponline/2020/07/31/world/asia/ap-as-pakistan.html?searchResultPosition=1
 
-**The Risk That Students Could Arrive at School With the Coronavirus**\
-`As schools grapple with how to reopen, new estimates show that large parts of the country would likely see infected students if classrooms opened now.`\
-https://nytimes.com/interactive/2020/07/31/us/coronavirus-school-reopening-risk.html?searchResultPosition=2
+**Scared That Covid-19 Immunity Won’t Last? Don’t Be**\
+`Dropping antibody counts aren’t a sign that our immune system is failing against the coronavirus, nor an omen that we can’t develop a viable vaccine.`\
+https://nytimes.com/2020/07/31/opinion/coronavirus-antibodies-immunity.html?searchResultPosition=2
 
-**New in Paperback: ‘This Land Is Our Land’ and ‘Your House Will Pay’**\
-`Six new paperbacks to check out this week.`\
-https://nytimes.com/2020/07/31/books/review/new-paperbacks.html?searchResultPosition=3
+**A Rockaway Life**\
+`Rockaway Beach has a land’s-end bacchanalian spirit, but it also a place where you can get to know people just by being there.`\
+https://nytimes.com/2020/07/31/realestate/a-rockaway-beach-queens-life.html?searchResultPosition=3
 
-**Weekly Health Quiz: Covid, Weight Gain and Intermittent Fasting**\
-`Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2020/07/31/well/live/31healthquiz-07312020.html?searchResultPosition=4
+**Portugal's GDP Slumps 14.1% in Second Quarter, Biggest Contraction Ever Recorded**\
+`Portugal's gross domestic product shrank 14.1% in the second quarter of 2020, marking the biggest contraction ever, as lockdowns imposed to contain the spread of the coronavirus outbreak hit key sectors of the economy.`\
+https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-portugal-economy-gdp.html?searchResultPosition=4
 
-**Inside the Battle for Downtown Portland**\
-`Night after night, calm gave way to chaos. See how the clashes between federal agents and protesters unfolded.`\
-https://nytimes.com/interactive/2020/07/31/us/portland-protests-map-photos.html?searchResultPosition=5
+**Japan's First Quarter GDP Contraction Seen Deeper on Soft Capex: Reuters Poll**\
+`Japan's economy suffered a deeper contraction in the first quarter of 2020 than previously thought, according to a Reuters poll, after recent data showed companies in the world's third largest economy curbed spending during this period.`\
+https://nytimes.com/reuters/2020/07/31/world/asia/31reuters-japan-economy-gdp-poll.html?searchResultPosition=5
 
-**On Hamlet’s Origins and Other Letters to the Editor**\
-`Readers respond to recent issues of the Sunday Book Review.`\
-https://nytimes.com/2020/07/31/books/review/on-hamlets-origins-and-other-letters-to-the-editor.html?searchResultPosition=6
+**An Urban Beach Life**\
+`Rockaway Beach has a land’s-end bacchanalian spirit, but it also feels like a small town.`\
+https://nytimes.com/slideshow/2020/07/31/realestate/an-urban-beach-life.html?searchResultPosition=6
 
-**Poland Reports Record High Virus Cases for Second Day**\
-`Poland reported its highest number of new daily coronavirus cases since the global pandemic started for the second day in a row on Friday, with 657 new cases, according to the Health Ministry. `\
-https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-health-coronavirus-poland.html?searchResultPosition=7
+**U.K. Officials’ New Trump Dilemma: What if He Loses?**\
+`If Joe Biden wins the November election, Britain would face a president who opposed Brexit, would look out for Ireland, and may have little interest in a trade deal.`\
+https://nytimes.com/2020/07/31/world/europe/britain-biden-presidency-johnson.html?searchResultPosition=7
 
-**Japan Pushes Back Budget Surplus Target by Two Years Due to Coronavirus**\
-`Japan on Friday pushed back its estimated return to a budget surplus by two years, due to the massive increase in spending needed to support the economy during the coronavirus and putting pressure on the nation's massive debt burden.`\
-https://nytimes.com/reuters/2020/07/31/world/asia/31reuters-japan-economy-fiscal.html?searchResultPosition=8
+**A 920-Mile Journey Turned Deadly. But He Wouldn’t Leave His Friend Behind.**\
+`Amrit and Saiyub were among the millions of Indian workers forced onto the road by the coronavirus lockdown. Nothing could shake their friendship in an unforgiving world.`\
+https://nytimes.com/2020/07/31/opinion/sunday/India-migration-coronavirus.html?searchResultPosition=8
 
-**AP Week in Pictures, North America**\
-`July 24 - July 30, 2020`\
-https://nytimes.com/aponline/2020/07/31/us/ap-us-pictures-of-the-week-in-north-america-photo-gallery.html?searchResultPosition=9
+**Contact Tracing Is Failing in Many States. Here’s Why.**\
+`Inadequate testing and protracted delays in producing results have crippled tracking and hampered efforts to contain major outbreaks.`\
+https://nytimes.com/2020/07/31/health/covid-contact-tracing-tests.html?searchResultPosition=9
 
-**Philippines Records 4,063 New Coronavirus Cases, Southeast Asia's Highest Jump for Second Day**\
-`The Philippine health ministry on Friday confirmed 4,063 novel coronavirus infections, reporting the highest daily case increase in Southeast Asia for a second straight day.`\
-https://nytimes.com/reuters/2020/07/31/world/asia/31reuters-health-coronavirus-philippines-cases.html?searchResultPosition=10
+**Why Protest Tactics Spread Like Memes**\
+`When items like umbrellas and leaf blowers are subverted into objects of resistance, they become very shareable.`\
+https://nytimes.com/2020/07/31/style/viral-protest-videos.html?searchResultPosition=10
 
