@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/07/30/business/bc-as-australia-digital-platfor
 `Mexico' health ministry on Thursday reported 7,730 new cases of coronavirus infection and 639 additional deaths, bringing the total to 416,179 cases and 46,000 fatalities.`\
 https://nytimes.com/reuters/2020/07/30/world/americas/30reuters-health-coronavirus-mexico-tally.html?searchResultPosition=6
 
-**SoftBank Approves $9.6 Billion Share Buyback**\
+**SoftBank Advances Share Buyback With Approval of $9.6 Billion Tranche**\
 `SoftBank Group said on Friday it has approved a 1 trillion yen ($9.6 billion) share repurchase, the final tranche of a record 2.5 trillion buyback that has helped propel its share price to two decade highs.`\
 https://nytimes.com/reuters/2020/07/30/business/30reuters-softbank-group-buyback.html?searchResultPosition=7
 
