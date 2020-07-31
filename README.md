@@ -26,7 +26,7 @@ https://nytimes.com/2020/07/31/your-money/birkin-bag-racehorse-invest.html?searc
 `Travel looks very different in 2020. Here are some questions to help you consider the risks to yourself and others if you take a trip.`\
 https://nytimes.com/interactive/2020/07/31/travel/coronavirus-travel-risk.html?searchResultPosition=7
 
-**1 Marine Dies and 8 Service Members Are Missing in California ‘Mishap’**\
+**1 Marine Dies and 8 Service Members Are Missing in California Accident**\
 `The group was assigned to a unit based at Camp Pendleton in Southern California, and the episode involved an amphibious vehicle, the authorities said.`\
 https://nytimes.com/2020/07/31/us/marine-accident-california.html?searchResultPosition=8
 
