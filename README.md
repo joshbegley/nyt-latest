@@ -1,40 +1,40 @@
+**Test**\
+`Test`\
+https://nytimes.com/paidpost/vincent-test/test.html?searchResultPosition=1
+
+**Caterpillar Sales Weaken but 2Q Results Top Street**\
+`Caterpillar's sales tumbled 31% in the second quarter as dealers culled construction equipment from showrooms during the pandemic. `\
+https://nytimes.com/aponline/2020/07/31/business/ap-us-caterpillar-results.html?searchResultPosition=2
+
+**Merck Quarterly Sales Fall 7.6% as Pandemic Cuts Doctor Visits**\
+`Merck & Co Inc reported a 7.6% fall in second-quarter sales on Friday as a drop in visits to doctors' offices because of the COVID-19 pandemic hurt sales of several important drugs.`\
+https://nytimes.com/reuters/2020/07/31/business/31reuters-merck-co-results.html?searchResultPosition=3
+
+**The Lynn Shelton That Marc Maron Knew**\
+`The comedian and podcaster reflects on his relationship with the filmmaker and TV director who died unexpectedly in May.`\
+https://nytimes.com/2020/07/31/movies/marc-maron-lynn-shelton.html?searchResultPosition=4
+
+**Pandemic at the Disco: The COVID Outbreak That Began in a French Bar**\
+`The Hacienda bar in this French seaside resort was heaving with Saturday night revellers: a crowd of people, beer glasses and smartphones in hand, moving to the sounds of pop and hip-hop music as red and blue strobe lights flashed.`\
+https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-health-coronavirus-france-bar-insight.html?searchResultPosition=5
+
+**22 Migrant Kids With Medical Needs Go to Germany From Greece**\
+`Another 22 children with medical needs who have been living in migrant camps in Greece arrived in Germany on Friday along with their close relatives, the German government said.`\
+https://nytimes.com/aponline/2020/07/31/world/europe/ap-eu-germany-greece-migrants.html?searchResultPosition=6
+
 **Kremlin Hopes Belarus Will Soon Free Russian Men Detained in Alleged Plot**\
 `The Kremlin said on Friday it hoped that more than 30 Russian private security contractors detained in neighbouring Belarus and accused of plotting acts of terrorism would soon be released.`\
-https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-belarus-election-kremlin.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-belarus-election-kremlin.html?searchResultPosition=7
 
 **How Strong Is Too Strong? Euro's 10% Rally Fans Fears of Side Effects**\
 `After years of gloom, euro bulls will be celebrating the single currency's brisk rally to two-year highs against the dollar, yet the euphoria is now being tempered by caution over what side effects the rapid run-up might bring.`\
-https://nytimes.com/reuters/2020/07/31/business/31reuters-markets-forex-euro-analysis.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/31/business/31reuters-markets-forex-euro-analysis.html?searchResultPosition=8
 
 **1 Marine Dead, 2 Injured, 8 Missing After Vehicle Accident**\
 `One Marine has died, two injured and eight others were missing after an amphibious assault vehicle accident off the coast of southern California, the Marines said early Friday.`\
-https://nytimes.com/aponline/2020/07/31/us/ap-us-marines-fatal-accident.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/07/31/us/ap-us-marines-fatal-accident.html?searchResultPosition=9
 
 **Thyssenkrupp Closes $20.4 Billion Elevator Unit Sale**\
 `Thyssenkrupp on Friday said it successfully closed the 17.2 billion euro ($20.4 billion) sale of its elevator division, leaving the ailing conglomerate with a cash lifeline but robbing it of its best asset.`\
-https://nytimes.com/reuters/2020/07/31/business/31reuters-thyssenkrupp-m-a-privateequity.html?searchResultPosition=4
-
-**Nasdaq Futures Jump as Big Tech Booms During Pandemic**\
-`Futures tracking the Nasdaq 100 index jumped nearly 1% on Friday as tech titans Apple, Amazon.com and Facebook managed to deliver impressive quarterly earnings despite the COVID-19 pandemic that has crushed the wider U.S. economy.`\
-https://nytimes.com/reuters/2020/07/31/business/31reuters-usa-stocks.html?searchResultPosition=5
-
-**Philippines Extends Coronavirus Curbs as Infections Hit Record for Second Day**\
-`The Philippines reported Southeast Asia's biggest daily jump in new coronavirus cases for a second straight day on Friday, as its president extended restrictions in the capital to quell the spread, and promised normality would return in December.`\
-https://nytimes.com/reuters/2020/07/31/world/asia/31reuters-health-coronavirus-philippines.html?searchResultPosition=6
-
-**Outdoors Innovation**\
-`And what else you need to know today.`\
-https://nytimes.com/2020/07/31/briefing/nba-economy-herman-cain-your-friday-briefing.html?searchResultPosition=7
-
-**Hong Kong Delays Election, Citing Coronavirus. The Opposition Isn’t Buying It.**\
-`Pro-democracy parties, which had hoped to ride widespread discontent to big gains in the fall, saw the delay as an attempt to thwart their momentum.`\
-https://nytimes.com/2020/07/31/world/asia/hong-kong-election-delayed.html?searchResultPosition=8
-
-**Exclusive: SenseTime Eyes STAR Market IPO After $1.5 Billion Fundraising-Sources**\
-`Chinese start-up SenseTime is considering an initial public offering (IPO) on China's tech-focused STAR market after its latest fundraising that will value the company at $10 billion, three people with knowledge of the matter said.`\
-https://nytimes.com/reuters/2020/07/31/business/31reuters-sensetime-ipo-exclusive.html?searchResultPosition=9
-
-**Column: Keep Social Security and Medicare Reform Out in Daylight Where We Can All Watch**\
-`Charlie Rich, the late country music singer and songwriter, had it right when he crooned this famous line: “Oh, no one knows what goes on behind closed doors.`\
-https://nytimes.com/reuters/2020/07/31/business/31reuters-column-miller-socialsecurity.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/07/31/business/31reuters-thyssenkrupp-m-a-privateequity.html?searchResultPosition=10
 
