@@ -1,40 +1,40 @@
+**'Breaking Bad' Star Bryan Cranston Says He Has Recovered From COVID-19**\
+`Emmy-winning "Breaking Bad" star Bryan Cranston disclosed on Thursday that he had recovered from mild symptoms of COVID-19 and donated his plasma in the hopes that his antibodies would help others with the disease. `\
+https://nytimes.com/reuters/2020/07/31/arts/31reuters-people-bryan-cranston.html?searchResultPosition=1
+
+**Adventurer's 'Into the Wild' Bus May Be Headed to Alaska Museum**\
+`The infamous bus that served as the final campsite for doomed adventurer Christopher McCandless could be preserved as a museum piece under a plan announced on Thursday by Alaska officials.`\
+https://nytimes.com/reuters/2020/07/31/arts/31reuters-alaska-bus.html?searchResultPosition=2
+
+**India's Bihar State Fights Twin Threat of Virus and Floods**\
+`Monsoon floods have swamped large parts of India’s densely populated Bihar state and affected nearly 4 million people by Friday, exacerbating the risk of the coronavirus and stymieing its response to the pandemic.`\
+https://nytimes.com/aponline/2020/07/31/world/asia/ap-as-virus-outbreak-india-floods.html?searchResultPosition=3
+
+**Ellen DeGeneres TV Show to Make Workplace Changes After Probe of Culture**\
+`Ellen DeGeneres on Thursday sent an emotional message to the staff of her television talk show saying she was taking steps to improve the culture on set following accusations of a hostile working environment.`\
+https://nytimes.com/reuters/2020/07/31/arts/31reuters-television-ellen.html?searchResultPosition=4
+
+**SoftBank-Backed Zozo Shares Up 21% After First-Quarter Profit Jump**\
+`SoftBank-backed online fashion retailer Zozo Inc's shares closed up 21% on Friday in their largest single-session gain, a day after reporting a 34% jump in first-quarter operating profit as Japanese consumers embrace online shopping. `\
+https://nytimes.com/reuters/2020/07/31/world/asia/31reuters-zozo-stocks.html?searchResultPosition=5
+
 **Facebook to Get Rights to Show Music Videos: Bloomberg News**\
 `Facebook Inc has completed a series of deals for the right to show music videos on its platform, raising the prospect of its competing more with Alphabet Co's video platform YouTube in the area, Bloomberg reported on Thursday.`\
-https://nytimes.com/reuters/2020/07/31/technology/31reuters-facebook-video.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/31/technology/31reuters-facebook-video.html?searchResultPosition=6
 
 **Germany Reports 870 New Coronavirus Cases**\
 `Germany reported 870 more confirmed coronavirus cases on Friday, according to a tally from the Robert Koch Institute for infectious diseases.`\
-https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-health-coronavirus-germany-cases.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-health-coronavirus-germany-cases.html?searchResultPosition=7
 
 **Startups in Eastern Europe Tap Public Money as Private Investors Bail**\
 `When Alftins' private backer pulled out of a financing deal in March due to the coronavirus pandemic, the Slovak blockchain startup had another option - publicly-funded venture firm Crowdberry.`\
-https://nytimes.com/reuters/2020/07/31/business/31reuters-health-coronavirus-cee-startups.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/31/business/31reuters-health-coronavirus-cee-startups.html?searchResultPosition=8
 
 **Asia-Pacific Tourism Makes Patchy Restart, and Some Missteps**\
 `Tourism operators across Asia and the Pacific are making furtive and faltering advances, as well as some spectacular missteps, after travel was largely halted by the coronavirus pandemic that continues ebbing and mostly surging around the globe.`\
-https://nytimes.com/aponline/2020/07/31/business/ap-virus-outbreak-global-.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/07/31/business/ap-virus-outbreak-global-.html?searchResultPosition=9
 
 **‘Seriously Single’ Review: Celebrating the Independent Life**\
 `After two failed relationships, a woman — with the help of her best friend — embarks on a journey to self-discovery.`\
-https://nytimes.com/2020/07/31/movies/seriously-single-review.html?searchResultPosition=5
-
-**‘Latte and the Magic Waterstone’ Review: A Hedgehog’s Journey**\
-`Cuddly animals go on wild adventures in this animated Netflix movie.`\
-https://nytimes.com/2020/07/31/movies/latte-and-the-magic-waterstone-review.html?searchResultPosition=6
-
-**Liberty Rookie Sabrina Ionescu's AP Diary: Playing Again**\
-`I admit I was really nervous for my first game as a pro.`\
-https://nytimes.com/aponline/2020/07/31/sports/basketball/ap-bkl-liberty-ionescus-ap-diary.html?searchResultPosition=7
-
-**Jimmy Fallon to Trump: ‘How Long a Delay Are We Talking About?’**\
-`Fallon wonders just how far back he wants to push the election: “Months, like your response to Covid? Years, like your response to Putin? Or decades, like a hug for Don Jr.?”`\
-https://nytimes.com/2020/07/31/arts/television/late-night-trump-delay-election.html?searchResultPosition=8
-
-**Column: SEC Moves Raise Question: Is Season Even Worth It?**\
-`If college football somehow makes it to the field, all we’ll get is a shell of a season. `\
-https://nytimes.com/aponline/2020/07/31/sports/ncaafootball/ap-fbc-paul-newberry-season-on-the-brink.html?searchResultPosition=9
-
-**Game On: NHL Restart a Small Step Toward Return to Normalcy**\
-`NHL Commissioner Gary Bettman took a short break from watching the final few exhibition games Thursday to ponder the significance of awarding the Stanley Cup some two months from now — should all go as planned.`\
-https://nytimes.com/aponline/2020/07/31/sports/hockey/ap-hkn-playoffs-nhl-games-resume.html?searchResultPosition=10
+https://nytimes.com/2020/07/31/movies/seriously-single-review.html?searchResultPosition=10
 
