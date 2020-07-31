@@ -14,8 +14,8 @@ https://nytimes.com/2020/07/30/crosswords/daily-puzzle-2020-07-31.html?searchRes
 `SATURDAY PUZZLE — I so wish that I could report to you that Adam Aaronson constructed the top half and Paolo Pasco the bottom, and any similarities between hemispheres are coincidental, but nobody would believe me.`\
 https://nytimes.com/2020/07/30/crosswords/immaculate.html?searchResultPosition=4
 
-**Documents Related to Ghislaine Maxwell's Dealings With Jeffrey Epstein Are Released**\
-`Dozens of new documents related to Ghislaine Maxwell's dealings with Jeffrey Epstein were publicly released on Thursday, as the British socialite defends against criminal charges she aided the late financier's sexual abuse of girls.`\
+**Documents Related to Ghislaine Maxwell's Dealings With Jeffrey Epstein Are Unsealed**\
+`Dozens of new documents related to Ghislaine Maxwell's dealings with Jeffrey Epstein were publicly released on Thursday, as the British socialite defends herself against criminal charges she aided the late financier's sexual abuse of girls.`\
 https://nytimes.com/reuters/2020/07/30/arts/30reuters-people-ghislaine-maxwell-documents.html?searchResultPosition=5
 
 **China's Factory Recovery Accelerates in July: PMI**\
