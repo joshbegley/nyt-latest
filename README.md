@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/07/31/business/31reuters-tesla-musk.html?search
 `The U.S. Chemical Safety Board, which has only one board member instead of the usual five, was to meet on Friday despite efforts by President Donald Trump to wind down the federal watchdog agency responsible for probing major industrial accidents.`\
 https://nytimes.com/reuters/2020/07/31/us/31reuters-usa-trump-csb.html?searchResultPosition=3
 
-**Alan Parker, Director of 'Midnight Express' Dies at 76**\
+**Alan Parker, Director of 'Midnight Express,' Dies at 76**\
 `British filmmaker Alan Parker, whose movies included “Bugsy Malone,” “Midnight Express” and “Evita,” has died at 76.`\
 https://nytimes.com/aponline/2020/07/31/world/europe/ap-eu-britain-obit-alan-parker.html?searchResultPosition=4
 
