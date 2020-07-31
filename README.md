@@ -1,40 +1,40 @@
+**U.S. Imposes Human Rights Sanctions on Chinese Company, Individuals**\
+`The United States imposed human rights sanctions on a Chinese company on Friday, targeting the Xinjiang Production and Construction Corps, also known as XPCC, along with two individuals, according to the Treasury Department's website.`\
+https://nytimes.com/reuters/2020/07/31/world/asia/31reuters-usa-china-trump.html?searchResultPosition=1
+
+**Spain Diagnoses 1,525 New Coronavirus in New Post-Lockdown Record**\
+`Spain's health ministry on Friday reported 1,525 new coronavirus cases, marking the biggest jump since a national lockdown was lifted in June and beating the previous day's record rise. `\
+https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-health-coronavirus-spain-tally.html?searchResultPosition=2
+
+**MLB Postpones Cardinals Game After Positive Tests-Report**\
+`Major League Baseball has postponed Friday's game between the St. Louis Cardinals and host Milwaukee Brewers after multiple members of the visiting team tested positive for COVID-19, according to an ESPN report.`\
+https://nytimes.com/reuters/2020/07/31/sports/baseball/31reuters-health-coronavirus-baseball-mlb-stl.html?searchResultPosition=3
+
 **Disgruntled Fair Workers Protest Renewed Belgium Coronavirus Restrictions**\
 `Workers hauling more than 400 truckloads of fairground rides and  equipment halted traffic for hours in Brussels on Friday, honking to protest a ban on a huge summer fair that has been barred from opening amid a spike in COVID-19 infections.`\
-https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-health-coronavirus-belgium-fair.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-health-coronavirus-belgium-fair.html?searchResultPosition=4
 
 **Haj Pilgrims Keep Distance at Usually Crowded Stone the Devil Ritual**\
 `Muslim pilgrims in Saudi Arabia took part in a symbolic stoning of the devil on Friday, but maintained social distancing in a ritual that usually brings millions of worshippers from all over the world shoulder to shoulder. `\
-https://nytimes.com/reuters/2020/07/31/world/middleeast/31reuters-health-coronavirus-saudi-haj-stoning.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/07/31/world/middleeast/31reuters-health-coronavirus-saudi-haj-stoning.html?searchResultPosition=5
 
 **Brexit Talks to Run Into October: UK Says**\
 `The United Kingdom and the European Union have agreed to continue discussing a free trade deal until October 2, British chief negotiator David Frost said on Friday. `\
-https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-britain-eu.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/07/31/world/europe/31reuters-britain-eu.html?searchResultPosition=6
 
 **ADM Projects Strong, Export-Led Profit in Last Half of 2020**\
 `Agricultural commodities trader Archer Daniels Midland Co expects a groundswell of export demand in the second half of 2020, led by robust purchases by China, as the coronavirus pandemic fuels food security concerns around the world, the company said Thursday.`\
-https://nytimes.com/reuters/2020/07/31/us/31reuters-archer-daniels-outlook-exports.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/07/31/us/31reuters-archer-daniels-outlook-exports.html?searchResultPosition=7
 
 **Florida Reports Record Increase in COVID-19 Deaths for Fourth Day in a Row**\
 `Florida reported a record increase in new COVID-19 deaths for a fourth day in a row on Friday, with 257 fatalities in the last 24 hours, according to the state health department.`\
-https://nytimes.com/reuters/2020/07/31/us/31reuters-health-coronavirus-usa-records.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/07/31/us/31reuters-health-coronavirus-usa-records.html?searchResultPosition=8
 
 **Top Trump Immigration Enforcer Announces Retirement as Election Nears**\
 `U.S. President Donald Trump's top immigration enforcement official on Friday announced he will retire from the agency, a staffing shakeup in a key policy area for Trump as he faces re-election in November.`\
-https://nytimes.com/reuters/2020/07/31/us/31reuters-usa-trump-immigration.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/07/31/us/31reuters-usa-trump-immigration.html?searchResultPosition=9
 
 **Amazon Closer to Launching Satellites, Upping Internet Reach**\
 `Amazon.com is one step closer to space. `\
-https://nytimes.com/aponline/2020/07/31/business/ap-us-amazon-satellites.html?searchResultPosition=7
-
-**OPEC July Oil Output Surges as Gulf Voluntary Cuts End: Survey**\
-`OPEC oil output has risen by over 1 million barrels per day (bpd) in July as Saudi Arabia and other Gulf members ended their voluntary extra supply curbs on top of an OPEC-led deal, and other members made limited progress on compliance.`\
-https://nytimes.com/reuters/2020/07/31/business/31reuters-oil-opec-survey.html?searchResultPosition=8
-
-**Chinese Electric Vehicle Maker Xpeng Raises Another $300 Million, Sources Say**\
-`Chinese electric vehicle (EV) maker Xpeng Motors has raised an additional $300 million from investors including Qatar's sovereign wealth fund, people familiar with the matter said.`\
-https://nytimes.com/reuters/2020/07/31/technology/31reuters-xpeng-fundraising.html?searchResultPosition=9
-
-**What to Cook This Weekend**\
-`Let Gabrielle Hamilton’s latest recipe, for eggplant croquettes, give your cooking new life.`\
-https://nytimes.com/2020/07/31/dining/what-to-cook-this-weekend.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/07/31/business/ap-us-amazon-satellites.html?searchResultPosition=10
 
