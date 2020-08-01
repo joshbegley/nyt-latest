@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/08/01/business/01reuters-brazil-airlines-latam.
 `The Trump administration has said the video app poses security concerns because of its Chinese ownership.`\
 https://nytimes.com/2020/08/01/technology/tiktok-sale-trump-ban.html?searchResultPosition=3
 
-**Motor Racing: Hamilton Takes Pole for Home British GP**\
-`Six times Formula One world champion Lewis Hamilton put Mercedes on pole position for his home British Grand Prix in a track record time on Saturday.`\
+**Motor Racing: Hamilton Takes Pole for Home British GP in Record Time**\
+`Six times Formula One world champion Lewis Hamilton shattered the Silverstone track record with a blistering lap to put dominant Mercedes on pole position for his home British Grand Prix on Saturday.`\
 https://nytimes.com/reuters/2020/08/01/sports/autoracing/01reuters-motor-f1-britain-hamilton.html?searchResultPosition=4
 
 **Wall Street Week Ahead: After Monster Rally, Investors Cautious as U.S. Recovery Wobbles**\
