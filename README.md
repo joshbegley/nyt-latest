@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/08/01/sports/tennis/01reuters-tennis-palermo.ht
 `The Thai political street artist who goes by the name "Headache Stencil" prefers to keep his true identity anonymous, but he is pretty sure that authorities know where to find him.`\
 https://nytimes.com/reuters/2020/08/01/world/asia/01reuters-thailand-protests-graffiti.html?searchResultPosition=8
 
-**Russia Plans Mass Vaccination Against Coronavirus From October, RIA Reports**\
-`Russia is preparing to start a mass vaccination campaign against the novel coronavirus in October, Health Minister Mikhail Murashko said on Saturday, RIA news agency reported.`\
+**Russia Preparing Mass Vaccination Against Coronavirus for October**\
+`Russia's health minister is preparing a mass vaccination campaign against the novel coronavirus for October, local news agencies reported on Saturday, after a vaccine completed clinical trials.`\
 https://nytimes.com/reuters/2020/08/01/world/europe/01reuters-health-coronavirus-russia-vaccine.html?searchResultPosition=9
 
 **Ukraine Police Kill Man After Hostage-Taking, Official Says**\
