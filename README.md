@@ -2,7 +2,7 @@
 `An internationally known Zimbabwean author and several other people have been released on bail on Saturday, after spending a night in police cells for protesting against the government.`\
 https://nytimes.com/aponline/2020/08/01/world/africa/ap-af-zimbabwe-opposition-protest.html?searchResultPosition=1
 
-**Chicago Homicides and Shootings Skyrocket So Far in 2020**\
+**Chicago Homicides and Shootings Rise Sharply in 2020**\
 `Homicides and shootings have surged in Chicago during the first seven months of the year.`\
 https://nytimes.com/aponline/2020/08/01/us/ap-us-chicago-violence.html?searchResultPosition=2
 
