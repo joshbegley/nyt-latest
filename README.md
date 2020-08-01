@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/08/01/business/01reuters-refineries-operations-
 https://nytimes.com/2020/08/01/world/middleeast/uae-nuclear-Barakah.html?searchResultPosition=8
 
 **Todd Shoots 1-Under 69 for 54-Hole Lead at WGC in Memphis**\
-`Brendon Todd shot a 1-under 69 on Saturday at the FedEx St. Jude Invitational to take a one-stroke lead into the final round of the World Golf Championship event.`\
+`Winning a World Golf Championship event easily would be the biggest victory of Brendon Todd's career. `\
 https://nytimes.com/aponline/2020/08/01/sports/golf/ap-glf-fedex-invitational.html?searchResultPosition=9
 
 **British Trade Minister to Meet Top U.S. Officials Next Week: FT**\
