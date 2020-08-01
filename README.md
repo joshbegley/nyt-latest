@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/08/01/world/americas/01reuters-mexico-corruptio
 `The U.S. Centers for Disease Control and Prevention (CDC) on Saturday reported 4,542,579 cases of the novel coronavirus, an increase of 68,605 cases from its previous count, and said that the number of deaths had risen by 1,371 to 152,870.`\
 https://nytimes.com/reuters/2020/08/01/us/01reuters-health-coronavirus-usa-cdc.html?searchResultPosition=4
 
-**New Mexico Congressman Tests Positive for Coronavirus**\
-`Representative Raul Grijalva, a New Mexico Democrat, has tested positive for coronavirus but feels fine and has gone into isolation, he said in a statement on Saturday.`\
+**Arizona Congressman Tests Positive for Coronavirus**\
+`Representative Raul Grijalva, an Arizona Democrat, has tested positive for coronavirus but feels fine and has gone into isolation, he said in a statement on Saturday.`\
 https://nytimes.com/reuters/2020/08/01/us/01reuters-health-coronavirus-congress-grijalva.html?searchResultPosition=5
 
 **What’s Going On With TikTok? Here’s What We Know**\
