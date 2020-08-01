@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/07/31/sports/basketball/bc-bkl-fever-wings.htm
 `President Donald Trump said he will take action as soon as Saturday to ban Chinese-owned video app TikTok from the United States.`\
 https://nytimes.com/aponline/2020/07/31/business/ap-us-trump-tiktok.html?searchResultPosition=5
 
-**Judge Homers, Montgomery Sharp, Yanks Top Sox in Home Opener**\
+**Judge HR, Montgomery Sharp, Yanks Top Red Sox in Home Opener**\
 `His chambers left empty, Aaron Judge still rules right field at Yankee Stadium. `\
 https://nytimes.com/aponline/2020/07/31/sports/baseball/ap-bba-red-sox-yankees.html?searchResultPosition=6
 
