@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/08/01/us/politics/ap-us-trump-analysis-.html?s
 https://nytimes.com/reuters/2020/08/01/sports/basketball/01reuters-basketball-nba-roundup.html?searchResultPosition=4
 
 **Tucker Drives in 4 Runs to Lead Astros Over Angels 9-6**\
-`Kyle Tucker had three hits and a career-high four RBIs, and the Houston Astros started a 10-game road trip with a 9-6 victory over the Los Angeles Angels on Friday night.`\
+`Houston manager Dusty Baker will take any wins he can get, even if they provide some anxiety.`\
 https://nytimes.com/aponline/2020/08/01/sports/baseball/ap-bba-astros-angels.html?searchResultPosition=5
 
 **Joe Biden Nears Final Decision on Running Mate**\
