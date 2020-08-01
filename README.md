@@ -19,7 +19,7 @@ https://nytimes.com/2020/08/01/us/politics/trump-books.html?searchResultPosition
 https://nytimes.com/reuters/2020/08/01/sports/football/01reuters-football-nfl-nep-lee-opt-out.html?searchResultPosition=5
 
 **AP Source: Cards-Brewers Off; 4 More St. Louis Positives**\
-`One more player and three staff members with the St. Louis Cardinals have tested positive for the coronavirus, leading to the postponement of their game Saturday at the Milwaukee Brewers, according to a person familiar with the situation.`\
+`The Cardinals-Brewers game in Milwaukee on Saturday was postponed after one more player and three staff members with St. Louis tested positive for the coronavirus, a person familiar with the situation told The Associated Press.`\
 https://nytimes.com/aponline/2020/08/01/sports/baseball/ap-bbo-virus-outbreak-baseball.html?searchResultPosition=6
 
 **Another Game Postponed With 4 More Coronavirus Cases for Cardinals**\
