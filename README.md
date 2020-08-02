@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/08/02/business/ap-us-election-security-ransomw
 https://nytimes.com/aponline/2020/08/02/us/politics/ap-us-election-2020-trump-campaign.html?searchResultPosition=4
 
 **Coronavirus Live Updates: U.S. Officials Seek Relief Package as Cases Rise**\
-`Florida, with over 7,000 virus deaths, now faces hurricane season as the storm Isaias threatens the East Coast.`\
+`Florida, with over 7,000 virus deaths, now faces hurricane season as Tropical Storm Isaias threatens the East Coast.`\
 https://nytimes.com/2020/08/02/world/coronavirus-updates.html?searchResultPosition=5
 
 **Survivors of Slain Ohio-Based Marines Mark Grim Anniversary**\
