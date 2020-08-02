@@ -1,5 +1,5 @@
 **U.S. Small Business Bailout Money Flowed to Chinese-Owned Companies**\
-`Millions of dollars of Paycheck Protection Program loans went to China-backed businesses in sensitive sectors, a study found.`\
+`Millions of dollars of Paycheck Protection Program loans went to China-backed businesses in critical sectors, a study found.`\
 https://nytimes.com/2020/08/02/us/politics/virus-china-ppp-small-business-loans.html?searchResultPosition=1
 
 **As Genoa Inaugurates a New Bridge, the Feeling Is Bittersweet**\
