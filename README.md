@@ -2,13 +2,13 @@
 `Cincinnati Reds first baseman Joey Votto has been placed on the injured list before the opener of Sunday's doubleheader against the Detroit Tigers.`\
 https://nytimes.com/aponline/2020/08/02/sports/baseball/ap-bbn-reds-votto.html?searchResultPosition=1
 
-**Brazil's Eletrobras to Invest $1 Billion a Year Through 2035**\
-`Brazilian state-owned power company Eletrobras plans to invest 6 billion reais ($1.1 billion) per year until 2035 expanding its power generation and transmission, according to a long-term strategic plan released on Saturday.`\
-https://nytimes.com/reuters/2020/08/02/world/americas/02reuters-brazil-eletrobras.html?searchResultPosition=2
-
 **Homes Evacuated as Southern California Wildfire Grows**\
 `Thousands of people were under evacuation orders Sunday after a wildfire in mountains east of Los Angeles exploded in size as crews battled the flames in triple-digit heat. `\
-https://nytimes.com/aponline/2020/08/02/us/ap-us-california-wildfires.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/02/us/ap-us-california-wildfires.html?searchResultPosition=2
+
+**Brazil's Eletrobras to Invest $1 Billion a Year Through 2035**\
+`Brazilian state-owned power company Eletrobras plans to invest 6 billion reais ($1.1 billion) per year until 2035 expanding its power generation and transmission, according to a long-term strategic plan released on Saturday.`\
+https://nytimes.com/reuters/2020/08/02/world/americas/02reuters-brazil-eletrobras.html?searchResultPosition=3
 
 **U.S. Companies Leap Over Low Profit Hurdle in Coronavirus-Hit Quarter**\
 `A record high percentage of U.S. companies are beating analysts' forecasts this earnings season, giving investors a glimmer of hope in what is still expected to be the slowest profit period since the financial crisis.`\
