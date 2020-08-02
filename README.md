@@ -22,8 +22,8 @@ https://nytimes.com/2020/08/02/sunday-review/horse-crazy-nir-language.html?searc
 `“Radiolab” journalist Latif Nasser hosts a new show on Netflix, and the SpaceX craft makes its return to Earth.`\
 https://nytimes.com/2020/08/02/arts/television/whats-on-tv-sunday-connected-and-the-spacex-landing.html?searchResultPosition=6
 
-**Latin America Coronavirus Death Toll Passes 200,000 Mark-Reuters Tally**\
-`The death toll in Latin America from the novel coronavirus passed 200,000 on Saturday night, a Reuters tally showed, after Peru reported another 191 deaths from the pandemic.`\
+**Latin America Coronavirus Death Toll Surges Past 200,000**\
+`The death toll in Latin America from the novel coronavirus passed 200,000 on Saturday night, a Reuters tally showed, underlining the region's status as one of the global epicenters of the pandemic that is testing governments to the limit.`\
 https://nytimes.com/reuters/2020/08/02/world/americas/02reuters-health-coronavirus-latam.html?searchResultPosition=7
 
 **Athletics Use Late Rally for 3-2 Victory Over Mariners**\
