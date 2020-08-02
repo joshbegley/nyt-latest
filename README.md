@@ -14,8 +14,8 @@ https://nytimes.com/aponline/2020/08/02/sports/baseball/bc-bbo-rangers-giants.ht
 `For a faint moment, energy traders had an inkling that demand for jet fuel, the worst-hit product in fuel markets due to the coronavirus pandemic, might stage a bit of a rebound.`\
 https://nytimes.com/reuters/2020/08/02/business/02reuters-oil-global-jet-fuel.html?searchResultPosition=4
 
-**'Re-Centering': Portland Protests Begin Peacefully**\
-`Activists and Oregon officials urged people at Saturday night's protest in Portland to re-center the focus on Black Lives Matter, three days after the Trump administration agreed to reduce the presence of federal agents in Oregon.`\
+**Portland Police Declare Unlawful Assembly During Protest**\
+`The Portland Police Bureau declared an unlawful assembly during Saturday night's protest when people gathered outside a northeast Portland precinct and threw bottles towards officers. `\
 https://nytimes.com/aponline/2020/08/02/us/ap-us-racial-injustice-portland.html?searchResultPosition=5
 
 **To Break a Horse, and a Woman**\
