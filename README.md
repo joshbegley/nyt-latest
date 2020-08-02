@@ -19,7 +19,7 @@ https://nytimes.com/video/us/100000007269193/boats-circle-spacex-capsule.html?se
 https://nytimes.com/2020/08/02/science/spacex-astronauts-splashdown.html?searchResultPosition=5
 
 **Arrests Over Illicit Party Boat With 170 Guests Cruising Around N.Y.C.**\
-`The Liberty Belle was dinged for violating social-distancing rules, and its owners were also accused of operating an unlicensed bar, the authorities said.`\
+`It was yet another symbol of reckless socializing during the pandemic: The Liberty Belle was dinged for violating distancing rules, and its owners were accused of running an unlicensed bar, the authorities said.`\
 https://nytimes.com/2020/08/02/nyregion/liberty-belle-illegal-party.html?searchResultPosition=6
 
 **A Group of Pac-12 Football Players Opts Out of the Season**\
@@ -27,7 +27,7 @@ https://nytimes.com/2020/08/02/nyregion/liberty-belle-illegal-party.html?searchR
 https://nytimes.com/2020/08/02/sports/ncaafootball/coronavirus-college-football-pac-12.html?searchResultPosition=7
 
 **Mitchell, Dupree Help Fever Erase Early Deficit, Beat Dream**\
-`Kelsey Mitchell wast 4 of 5 from 3-point range and finished with 23 points, Candice Dupree added 21 and the Indiana Fever erased an early double-digit deficit to beat the Atlanta Dream 93-77 on Sunday. `\
+`Kelsey Mitchell was 4 of 5 from 3-point range and finished with 23 points, Candice Dupree added 21 and the Indiana Fever erased an early double-digit deficit to beat the Atlanta Dream 93-77 on Sunday. `\
 https://nytimes.com/aponline/2020/08/02/sports/basketball/bc-bkl-dream-fever.html?searchResultPosition=8
 
 **Brazil Registers 25,800 New Coronavirus Cases, Death Toll Tops 94,000**\
