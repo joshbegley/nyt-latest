@@ -22,8 +22,8 @@ https://nytimes.com/2020/08/02/world/coronavirus-updates.html?searchResultPositi
 `Jason Dominguez remembers vividly his last conversation with David Kreuter, as they were doing an overnight security watch from a rooftop in western Iraq. `\
 https://nytimes.com/aponline/2020/08/02/us/ap-us-marine-bombing-15-years.html?searchResultPosition=6
 
-**India's Interior Minister Tests Positive for Coronavirus, Hospitalised**\
-`India's Interior Minister Amit Shah said on Sunday that he had tested positive for coronavirus and had been admitted to hospital.`\
+**India's Interior Minister Hospitalised With Coronavirus**\
+`India's Interior Minister Amit Shah has been admitted to hospital after catching the coronavirus, he said on Sunday, becoming the most senior politician in the country to test positive for the disease.`\
 https://nytimes.com/reuters/2020/08/02/world/asia/02reuters-health-coronavirus-india.html?searchResultPosition=7
 
 **Corrections: August 2, 2020**\
