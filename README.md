@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/08/02/sports/baseball/02reuters-baseball-mlb-ro
 https://nytimes.com/reuters/2020/08/02/sports/hockey/02reuters-icehockey-nhl-roundup.html?searchResultPosition=9
 
 **Australia's Victoria Declares Disaster, Sets Curfew to Curb COVID-19**\
-`Australia's Victoria state declared a disaster on Sunday and imposed a nightly curfew for the capital Melbourne as part of its harshest movement restrictions to date to contain a resurgent COVID-19.`\
+`Australia's second-most populous state of Victoria declared a state of disaster on Sunday and imposed a nightly curfew for the capital Melbourne as part of its harshest movement restrictions to date to contain a resurgent COVID-19.`\
 https://nytimes.com/reuters/2020/08/02/world/asia/02reuters-health-coronavirus-australia.html?searchResultPosition=10
 
