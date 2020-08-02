@@ -31,7 +31,7 @@ https://nytimes.com/aponline/2020/08/01/sports/baseball/ap-bbn-dodgers-diamondba
 https://nytimes.com/2020/08/01/obituaries/wilford-brimley-dead.html?searchResultPosition=8
 
 **Lowry Scores 33 to Lead Raptors to 11th Straight Over Lakers**\
-`Kyle Lowry had 33 points and 14 rebounds and the defending NBA champion Toronto Raptors restarted their season by beating the slow-starting Los Angeles Lakers for the 11th straight time, 107-92 on Saturday night.`\
+`Kyle Lowry had 33 points and a career-high 14 rebounds and the defending NBA champion Toronto Raptors restarted their season by beating the slow-starting Los Angeles Lakers for the 11th straight time, 107-92 on Saturday night.`\
 https://nytimes.com/aponline/2020/08/01/sports/basketball/ap-bkn-lakers-raptors.html?searchResultPosition=9
 
 **Asia Today: South Korea Reports 30 New Cases**\
