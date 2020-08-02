@@ -1,40 +1,40 @@
+**Heavy Rain Hammers South Korea, Leaving 6 Dead, 7 Missing**\
+`Torrential rain pounded most of South Korea on Sunday, leaving six people dead and seven others missing, officials said.`\
+https://nytimes.com/aponline/2020/08/02/world/asia/ap-as-skorea-heavy-rain.html?searchResultPosition=1
+
 **Athletics: Lyles Says Coleman Must Be More Responsible After Missed Tests**\
 `World 200 metres champion Noah Lyles has said fellow American sprinter Christian Coleman must show more responsibility after he was provisionally suspended for breaching whereabouts rules.`\
-https://nytimes.com/reuters/2020/08/02/sports/olympics/02reuters-athletics-usa-lyles-coleman.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/02/sports/olympics/02reuters-athletics-usa-lyles-coleman.html?searchResultPosition=2
 
 **Suspected Boko Haram Militants Kill at Least 13 in Cameroon**\
 `Suspected militants from Islamist group Boko Haram killed at least 13 people and wounded eight others in a grenade attack in a camp for displaced people in northern Cameroon on Sunday, a security source and a local official told Reuters. `\
-https://nytimes.com/reuters/2020/08/02/world/africa/02reuters-nigeria-security-boko-haram-cameroon.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/02/world/africa/02reuters-nigeria-security-boko-haram-cameroon.html?searchResultPosition=3
 
 **Indian Police Crackdown on Illegal Liquor Suppliers After 86 Die**\
 `Indian police raided rural hamlets and made arrests to break up a bootlegging cartel on Sunday, after 86 people died from consuming illegally-produced alcohol this week in the northwestern state of Punjab, officials said.`\
-https://nytimes.com/reuters/2020/08/02/world/asia/02reuters-india-liquor.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/02/world/asia/02reuters-india-liquor.html?searchResultPosition=4
 
 **Less Sex, More Viewers: Pandemic Boosts Mexico’s Flagging Telenovelas**\
 `Dismissed as too old-fashioned to compete with streaming services, the melodramas have seen viewership surge as Mexicans seek the familiar in times of distress.`\
-https://nytimes.com/2020/08/02/world/americas/mexico-tv-virus-telenovela.html?searchResultPosition=4
+https://nytimes.com/2020/08/02/world/americas/mexico-tv-virus-telenovela.html?searchResultPosition=5
 
 **Homes That Sold for Around $600,000**\
 `Recent residential sales in New York City and the region.`\
-https://nytimes.com/2020/08/02/realestate/homes-that-sold-for-around-600000.html?searchResultPosition=5
+https://nytimes.com/2020/08/02/realestate/homes-that-sold-for-around-600000.html?searchResultPosition=6
 
 **Florida’s Summer of Dread**\
 `The coronavirus had entrenched itself in communities from Pensacola to Key West, killing more than 7,000 Floridians. Then came Tropical Storm Isaias.`\
-https://nytimes.com/2020/08/02/us/florida-hurricane-isaias-coronavirus.html?searchResultPosition=6
+https://nytimes.com/2020/08/02/us/florida-hurricane-isaias-coronavirus.html?searchResultPosition=7
 
 **It’s a Book. It’s a Podcast. It’s a Three-Act Play, in Your Ears.**\
 `Jesse Eisenberg’s audio drama, “When You Finish Saving the World,” is coming to Audible ahead of a film adaptation with Julianne Moore.`\
-https://nytimes.com/2020/08/02/books/jesse-eisenberg-when-you-finish-saving-the-world-audio.html?searchResultPosition=7
+https://nytimes.com/2020/08/02/books/jesse-eisenberg-when-you-finish-saving-the-world-audio.html?searchResultPosition=8
 
 **Philippines Virus Cases Top 100,000 in 'Losing Battle'**\
 `Coronavirus infections in the Philippines surged past 100,000 Sunday in a troubling milestone after medical groups declared that the country was waging “a losing battle” against the virus and asked the president to reimpose a lockdown in the capital.`\
-https://nytimes.com/aponline/2020/08/02/world/asia/ap-as-virus-outbreak-philippines.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/08/02/world/asia/ap-as-virus-outbreak-philippines.html?searchResultPosition=9
 
 **Philippines' Confirmed Coronavirus Cases Exceed 100,000**\
 `The Philippines on Sunday reported 5,032 additional coronavirus infections, its largest single-day increase on record, taking the country's confirmed cases to 103,185.`\
-https://nytimes.com/reuters/2020/08/02/world/asia/02reuters-health-coronavirus-philippines-cases.html?searchResultPosition=9
-
-**Siemens Healthineers to Buy US Cancer Care Firm Varian**\
-`Germany-based Siemens Healthineers said Sunday it will buy U.S. cancer therapy and research company Varian in a deal worth around $16.4 billion.`\
-https://nytimes.com/aponline/2020/08/02/business/bc-eu-germany-siemens-healthineers-varian.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/02/world/asia/02reuters-health-coronavirus-philippines-cases.html?searchResultPosition=10
 
