@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/08/02/arts/02reuters-people-brimley.html?search
 https://nytimes.com/reuters/2020/08/02/world/asia/02reuters-health-coronavirus-indonesia.html?searchResultPosition=8
 
 **Siemens Healthineers to Acquire Varian for $16.4 Billion**\
-`German health group Siemens Healthineers said on Sunday it would acquire Varian Medical Systems Inc in a deal that values the U.S. maker of devices and software fortreating cancer at $16.4 billion.`\
+`German health group Siemens Healthineers said on Sunday it would acquire Varian Medical Systems Inc in a deal that values the U.S. maker of devices and software for cancer treatments at $16.4 billion.`\
 https://nytimes.com/reuters/2020/08/02/business/02reuters-varian-med-syst-m-a-siemens-health-statement.html?searchResultPosition=9
 
 **Iran's Stock Market Surges Past Key Level to Record High, as Analysts Warn of Bubble**\
