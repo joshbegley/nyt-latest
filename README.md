@@ -1,40 +1,40 @@
+**‘Thanks for Flying SpaceX’: NASA Astronauts Safely Splash Down After Journey From Orbit**\
+`Bob Behnken and Doug Hurley returned to Earth in the first water landing by an American space crew since 1975.`\
+https://nytimes.com/2020/08/02/science/spacex-astronauts-splashdown.html?searchResultPosition=1
+
+**Arrests Over Illicit Party Boat With 170 Guests Cruising Around N.Y.C.**\
+`The Liberty Belle was dinged for violating social-distancing rules, and its owners were also accused of operating an unlicensed bar, the authorities said.`\
+https://nytimes.com/2020/08/02/nyregion/liberty-belle-illegal-party.html?searchResultPosition=2
+
+**A Group of Pac-12 Football Players Opt Out of the Season**\
+`The athletes from 10 schools said they were dissatisfied with how their universities were handling the coronavirus, an approach they say prioritizes money over safety.`\
+https://nytimes.com/2020/08/02/sports/ncaafootball/coronavirus-college-football-pac-12.html?searchResultPosition=3
+
+**Mitchell, Dupree Help Fever Erase Early Deficit, Beat Dream**\
+`Kelsey Mitchell wast 4 of 5 from 3-point range and finished with 23 points, Candice Dupree added 21 and the Indiana Fever erased an early double-digit deficit to beat the Atlanta Dream 93-77 on Sunday. `\
+https://nytimes.com/aponline/2020/08/02/sports/basketball/bc-bkl-dream-fever.html?searchResultPosition=4
+
+**Brazil Registers 25,800 New Coronavirus Cases, Death Toll Tops 94,000**\
+`Brazil recorded 25,800 additional confirmed cases of the novel coronavirus and 541 deaths from the disease caused by the virus in the past 24 hours, the health ministry said on Sunday.`\
+https://nytimes.com/reuters/2020/08/02/world/americas/02reuters-health-coronavirus-brazil.html?searchResultPosition=5
+
+**Algeria Says to Investigate Actions Targeting Stability**\
+`Algerian President Abdelmadjid Tebboune on Sunday ordered an investigation of what the government called planned actions to destabilise the country after a lack of bank liquidity, huge forest fires and power and water supplies cuts.`\
+https://nytimes.com/reuters/2020/08/02/world/africa/02reuters-algeria-politics.html?searchResultPosition=6
+
 **Mexico Seizes Crime Boss El Marro, Under Pressure to Cut Violence**\
 `While the arrest of José Antonio Yépez delivers a major blow to a cartel, analysts say officials lack a cohesive strategy against debilitating crime.`\
-https://nytimes.com/2020/08/02/world/americas/mexico-el-marro-capture.html?searchResultPosition=1
+https://nytimes.com/2020/08/02/world/americas/mexico-el-marro-capture.html?searchResultPosition=7
 
 **Theatrical Sort**\
 `Eric Bornstein’s debut puzzle puts us all in a state.`\
-https://nytimes.com/2020/08/02/crosswords/daily-puzzle-2020-08-03.html?searchResultPosition=2
+https://nytimes.com/2020/08/02/crosswords/daily-puzzle-2020-08-03.html?searchResultPosition=8
 
 **Nordstrom Uses Influencers to Promote Safety and Draw Anxious Shoppers**\
 `Some retailers are turning to popular social media personalities to detail post-pandemic protocols and boost the allure of visiting their stores.`\
-https://nytimes.com/2020/08/02/business/media/coronavirus-nordstrom-infuencers.html?searchResultPosition=3
+https://nytimes.com/2020/08/02/business/media/coronavirus-nordstrom-infuencers.html?searchResultPosition=9
 
 **7-Inning Doubleheaders Debut in MLB, Reds Top Tigers 4-3**\
 `In the opener of the first seven-inning doubleheader in Major League Baseball history, Shogo Akiyama hit an RBI single in the seventh that sent the Cincinnati Reds over the Detroit Tigers 4-3 Sunday.`\
-https://nytimes.com/aponline/2020/08/02/sports/baseball/ap-bbo-reds-tigers.html?searchResultPosition=4
-
-**Garver, Twins Lean on Pen for 2-Hitter to Top Indians 3-1**\
-`Mitch Garver hit his first home run of the season and the Minnesota Twins used their bullpen to string together a two-hitter in a 3-1 victory over the Cleveland Indians on Sunday afternoon, taking the four-game series from their primary division competitor.`\
-https://nytimes.com/aponline/2020/08/02/sports/baseball/ap-bba-indians-twins.html?searchResultPosition=5
-
-**Madrigal's First 4 Big League Hits Help White Sox Top KC 9-2**\
-`White Sox prospect Nick Madrigal had the first four hits of his promising big league career, including two during a seven-run seventh inning, and Chicago beat the Kansas City Royals 9-2 on Sunday to finish a three-game sweep.`\
-https://nytimes.com/aponline/2020/08/02/sports/baseball/ap-bba-white-sox-royals.html?searchResultPosition=6
-
-**Isaias Causes Hurricane Watch, Storm Surge Warning for Parts of Carolinas: NHC**\
-`Tropical storm Isaias led to a hurricane watch and storm surge warning being issued for parts of the U.S. states of North and South Carolina on Sunday evening, the National Hurricane Center said.`\
-https://nytimes.com/reuters/2020/08/02/world/americas/02reuters-storm-isaias-north-carolina-south-carolina.html?searchResultPosition=7
-
-**Golf: Lewis Rockets Up Memphis Leaderboard**\
-`An electrifying performance from Tom Lewis helped the Englishman to surge up the leaderboard in early play on Sunday at the WGC FedEx St. Jude Invitational.`\
-https://nytimes.com/reuters/2020/08/02/sports/golf/02reuters-golf-stjude.html?searchResultPosition=8
-
-**Russia Sets Mass Vaccination for October After Shortened Trial**\
-`The announcement raised concerns that Russia would begin inoculations and declare victory in the race for a coronavirus vaccine without fully testing its product.`\
-https://nytimes.com/2020/08/02/world/europe/russia-trials-vaccine-October.html?searchResultPosition=9
-
-**Caris LeVert's 34 Lead Nets Past Wizards, 118-110**\
-`Caris LeVert scored 25 of his 34 points in the second half to help the Brooklyn Nets beat the Washington Wizards 118-110 on Sunday and move closer to a playoff berth.`\
-https://nytimes.com/aponline/2020/08/02/sports/basketball/bc-bkn-wizards-nets.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/02/sports/baseball/ap-bbo-reds-tigers.html?searchResultPosition=10
 
