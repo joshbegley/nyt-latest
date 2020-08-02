@@ -10,8 +10,8 @@ https://nytimes.com/aponline/2020/08/02/us/ap-us-people-tamar-braxton.html?searc
 `U.S. online prescription drug price marketplace GoodRx Inc has submitted paperwork with the U.S. Securities and Exchange Commission for a potential initial public offering, according to people familiar with the matter. `\
 https://nytimes.com/reuters/2020/08/02/us/02reuters-goodrx-ipo-exclusive.html?searchResultPosition=3
 
-**Apple Fire Burns 20,000 Acres in California**\
-`The wildfire, near the San Bernardino National Forest east of Los Angeles, was burning out of control on Sunday morning. About 7,000 people had been ordered to evacuate.`\
+**Apple Fire Leads to Evacuation Order for 7,000 in California**\
+`The wildfire, near the San Bernardino National Forest east of Los Angeles, was burning out of control on Sunday morning.`\
 https://nytimes.com/2020/08/02/us/apple-fire-ca.html?searchResultPosition=4
 
 **Mets Say Cespedes Absent From Ballpark, No Reason Given**\
