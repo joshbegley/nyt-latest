@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/08/02/world/asia/ap-as-skorea-heavy-rain.html?
 https://nytimes.com/reuters/2020/08/02/sports/olympics/02reuters-athletics-usa-lyles-coleman.html?searchResultPosition=3
 
 **Suspected Boko Haram Militants Kill at Least 13 in Cameroon**\
-`Suspected militants from Islamist group Boko Haram killed at least 13 people and wounded eight others in a grenade attack in a camp for displaced people in northern Cameroon on Sunday, a security source and a local official told Reuters. `\
+`Suspected militants from Islamist group Boko Haram killed at least 13 people and wounded eight others in a grenade attack in northern Cameroon on Sunday, a security source and a local official told Reuters. `\
 https://nytimes.com/reuters/2020/08/02/world/africa/02reuters-nigeria-security-boko-haram-cameroon.html?searchResultPosition=4
 
 **Indian Police Crackdown on Illegal Liquor Suppliers After 86 Die**\
