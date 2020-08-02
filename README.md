@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/08/01/sports/tennis/01reuters-tennis-usopen-kyr
 https://nytimes.com/aponline/2020/08/01/sports/basketball/bc-bkl-mystics-sky.html?searchResultPosition=6
 
 **George, Clippers Rain 3s on Pelicans in 126-103 Blowout**\
-`Paul George made three straight 3-pointers in the opening minutes and had eight overall for 28 points for the Los Angeles Clippers, who rode a team-record barrage of long-range shots to beat the faltering New Orleans Pelicans 126-103 Saturday.`\
+`Paul George made three straight 3-pointers in the opening minutes and had eight overall for 28 points for the Los Angeles Clippers, who rode a team-record barrage of long-range shots to beat the faltering New Orleans Pelicans 126-103 on Saturday.`\
 https://nytimes.com/aponline/2020/08/01/sports/basketball/ap-bkn-pelicans-clippers.html?searchResultPosition=7
 
 **Reports: Text to Pac-12 Players Encourages Possible Opt-Out**\
