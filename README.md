@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/08/02/world/americas/02reuters-health-coronavir
 `Pinch-hitter Robbie Grossman lined an RBI double to score Tony Kemp in the top of the 10th inning, and the Oakland Athletics rallied for a 3-2 win over the Seattle Mariners on Saturday night. `\
 https://nytimes.com/aponline/2020/08/02/sports/baseball/ap-bba-athletics-mariners.html?searchResultPosition=8
 
-**The Latest: India's Cases Cross 1.75M, Experts See Decline**\
-`NEW DELHI — India’s coronavirus caseload crossed 1.75 million with another spike of 54,735 in the past 24 hours. `\
+**The Latest: Night Curfew in Melbourne After 671 New Cases**\
+`MELBOURNE, Australia — The premier of Australia's hard-hit Victoria state has declared a disaster among sweeping new coronavirus restrictions across Melbourne and elsewhere from Sunday night.`\
 https://nytimes.com/aponline/2020/08/02/business/ap-virus-outbreak-the-latest.html?searchResultPosition=9
 
 **Chatwood Fans 11, Cubs Hit 3 Homers to Beat Pirates 4-3**\
