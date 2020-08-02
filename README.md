@@ -27,7 +27,7 @@ https://nytimes.com/2020/08/02/health/dr-birx-coronavirus-phase.html?searchResul
 https://nytimes.com/aponline/2020/08/02/us/ap-us-burned-body-missouri-1st-ld-writethru.html?searchResultPosition=7
 
 **Elizabeth Warren’s Journey on Race Is a Preview of Her Party’s**\
-`From an all-white sorority in college to being among the most racially progressive white politicians on the national stage, her path could help the Biden campaign understand where many voters are today.`\
+`Going from an all-white sorority member in college to among the most racially progressive white politicians on the national stage, she could help the Biden campaign understand where many voters are today.`\
 https://nytimes.com/2020/08/02/us/politics/elizabeth-warren-biden-vice-president.html?searchResultPosition=8
 
 **Golf: Horsfield Wins English Open for First European Tour Title**\
