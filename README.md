@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/08/02/us/02reuters-goodrx-ipo-exclusive.html?se
 https://nytimes.com/2020/08/02/us/apple-fire-ca.html?searchResultPosition=4
 
 **Mets Say Cespedes Absent From Ballpark, No Reason Given**\
-`By The Associated Press`\
+`New York Mets slugger Yoenis Céspedes was not with the team for Sunday’s game at Atlanta and the club said it hadn’t been able to locate him.`\
 https://nytimes.com/aponline/2020/08/02/sports/baseball/ap-bbn-mets-cespedes-missing.html?searchResultPosition=5
 
 **Yoenis Cespedes Is Missing From the Mets, the Team Says**\
