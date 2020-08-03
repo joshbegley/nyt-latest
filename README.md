@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/08/03/us/03reuters-health-coronavirus-usa-navar
 `On Monday, the director of the W.H.O., Tedros Adhanom Ghebreyesus, spoke about a number of promising vaccines but stressed that the best course of action was to take measures to curb the spread of disease.`\
 https://nytimes.com/video/world/europe/100000007269932/who-coronavirus-briefing.html?searchResultPosition=4
 
-**White House Adviser Navarro Questions Microsoft's China Ties Amid TikTok Discussions**\
-`Any potential buyer of Chinese-owned TikTok that has operations in China could be a problem, a White House adviser said on Monday, amid reports that President Donald Trump was weighing whether to allow a U.S. company to buy the popular short-video app in lieu of an outright ban.`\
+**White House Adviser Navarro Suggests Microsoft Divest China Holdings**\
+`White House trade adviser Peter Navarro suggested on Monday that Microsoft Corp could divest its holdings in China if it were to buy the Chinese owned short-video app TikTok. `\
 https://nytimes.com/reuters/2020/08/03/business/03reuters-usa-tiktok-navarro.html?searchResultPosition=5
 
 **Mexico's School Year to Begin With Instruction on Television**\
