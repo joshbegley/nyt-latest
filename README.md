@@ -7,7 +7,7 @@ https://nytimes.com/2020/08/03/pageoneplus/no-corrections-august-3-2020.html?sea
 https://nytimes.com/reuters/2020/08/03/world/asia/03reuters-health-coronavirus-australia.html?searchResultPosition=2
 
 **Cerberus Has 'Serious Doubts' About Candidate for Commerzbank Chair**\
-`Cerberus, one of the largest investors in Germany's Commerzbank, said it had "serious doubts" about a candidate to take over the chair of the lender's supervisory board, Hans-Joerg Vetter.`\
+`Cerberus, one of the largest investors in Germany's Commerzbank, said it had grave concerns about Hans-Joerg Vetter, a candidate to take over the chair of the lender's supervisory board.`\
 https://nytimes.com/reuters/2020/08/03/business/03reuters-commerzbank-chairman.html?searchResultPosition=3
 
 **Quotation of the Day: Stretched by a Summer of Scourge, and Now a Storm**\
