@@ -1,40 +1,40 @@
+**Brazil's Central Bank Says Whatsapp Payment Tests Have Begun**\
+`Brazil's central bank said on Monday that tests had begun to trial payments via Facebook Inc's messaging service WhatsApp in the country, calling them an "important advance."`\
+https://nytimes.com/reuters/2020/08/03/technology/03reuters-facebook-brazil-whatsapp.html?searchResultPosition=1
+
+**More Than 300 Prisoners at Large After Islamic State Attack on Eastern Afghan Prison**\
+`More than 300 prisoners are still at large after an attack by the Islamic State jihadist group on a prison in the eastern Afghan city of Jalalabad, the governor's spokesman said on Monday. `\
+https://nytimes.com/reuters/2020/08/03/world/asia/03reuters-afghanistan-islamic-state-escape.html?searchResultPosition=2
+
 **Portfolio Trading Grows in Choppy Bond Markets: JP Morgan**\
 `Portfolio trading is gaining significant momentum as market turmoil picks up, with J.P. Morgan's credit trading desk already handling more than three-quarters of the volume of trades this year executed in the whole of 2019, a client report showed. `\
-https://nytimes.com/reuters/2020/08/03/business/03reuters-global-bonds-trading-survey.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/03/business/03reuters-global-bonds-trading-survey.html?searchResultPosition=3
 
 **2020 Election Live Updates: When Will Biden Announce His Running Mate?**\
 `Joe Biden is making a new effort to challenge President Trump in Ohio. And in Maricopa County, Ariz., Joe Arpaio is seeking a return as sheriff at age 88.`\
-https://nytimes.com/2020/08/03/us/elections/biden-vs-trump.html?searchResultPosition=2
+https://nytimes.com/2020/08/03/us/elections/biden-vs-trump.html?searchResultPosition=4
 
 **First Students Resume Class in Germany After Corona Shutdown**\
 `Children returned to school Monday in the northeastern German state of Mecklenburg-Western Pomerania, the first in the country to start the new school year following nationwide shutdowns at the height of the coronavirus pandemic in March.`\
-https://nytimes.com/aponline/2020/08/03/world/europe/ap-eu-virus-outbreak-germany-schools.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/03/world/europe/ap-eu-virus-outbreak-germany-schools.html?searchResultPosition=5
 
 **Tyson Foods Appoints Executive Dean Banks as CEO**\
 `Tyson Foods Inc on Monday named President Dean Banks as its next chief executive officer to replace Noel White at time when the company is navigating unprecedented production challenges due to the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/08/03/business/03reuters-tyson-foods-results.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/03/business/03reuters-tyson-foods-results.html?searchResultPosition=6
 
 **UK PM Johnson Praises Northern Ireland's Hume as a 'Political Giant'**\
 `Irish peacemaker John Hume was a "political giant" who did so much to help bring an end to the Troubles in Northern Ireland, British Prime Minister Boris Johnson said on Monday.`\
-https://nytimes.com/reuters/2020/08/03/world/europe/03reuters-britain-nireland-hume-johnson.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/08/03/world/europe/03reuters-britain-nireland-hume-johnson.html?searchResultPosition=7
 
 **Italy Sees Signs of Hope in New Genoa Bridge**\
 `Two years after part of Genoa's Morandi motorway bridge collapsed, killing 43 people, a new structure opens in its place on Monday, an achievement in stark contrast to stalled infrastructure projects elsewhere in Italy.`\
-https://nytimes.com/reuters/2020/08/03/world/europe/03reuters-italy-bridge.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/08/03/world/europe/03reuters-italy-bridge.html?searchResultPosition=8
 
 **Luxury Carmaker Ferrari Trims Forecasts After Second-Quarter Profit Falls**\
 `Italian luxury carmaker Ferrari trimmed its sales forecasts for this year on Monday, after reporting decreasing, albeit in line with expectations, core earnings in the second quarter due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/08/03/business/03reuters-ferrari-results.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/08/03/business/03reuters-ferrari-results.html?searchResultPosition=9
 
 **German Laser Tech Company Says Gov't Blocks Exports to China**\
 `A German company that specializes in laser communication says it is pulling out of uncompleted deals in China after the German government barred it from delivering hardware to the country.`\
-https://nytimes.com/aponline/2020/08/03/business/bc-germany-china-laser-tech.html?searchResultPosition=8
-
-**Nuclear Bailout Tied to Bribery Scandal Was Years in Making**\
-`A $1 billion bailout for Ohio’s two nuclear plants that’s now entangled in a state bribery scandal had little support when the idea came up three years ago.`\
-https://nytimes.com/aponline/2020/08/03/business/ap-us-bribery-investigation-ohio.html?searchResultPosition=9
-
-**Judge Decries Shooting That Killed Son, Injured Husband**\
-`A federal judge from New Jersey is publicly speaking out about a shooting at her New Jersey home last month in which authorities say a disgruntled lawyer killed her son and seriously wounded her husband.`\
-https://nytimes.com/aponline/2020/08/03/us/ap-us-judges-son-slain.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/03/business/bc-germany-china-laser-tech.html?searchResultPosition=10
 
