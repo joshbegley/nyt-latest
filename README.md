@@ -2,11 +2,11 @@
 `Despite the pandemic, the social media giant leased all the office space in the former main post office at Penn Station in Midtown.`\
 https://nytimes.com/2020/08/03/nyregion/facebook-nyc-office-farley-building.html?searchResultPosition=1
 
-**Trump Dismisses Two T.V.A. Board Members After Outsourcing Dispute**\
+**Trump Dismisses 2 T.V.A. Board Members After Outsourcing Dispute**\
 `The Tennessee Valley Authority, an electric utility, quickly said it would reconsider its move to shift some work to contractors outside the United States.`\
 https://nytimes.com/2020/08/03/us/politics/trump-tennessee-valley-authority.html?searchResultPosition=2
 
-**WE Tv to Honor Tamar Braxton's Request to End Future Work**\
+**WEtv to Honor Tamar Braxton's Request to End Future Work**\
 `WEtv will honor Tamar Braxton’s request to end future work together, but the network expects to premiere the singer’s reality show next month.`\
 https://nytimes.com/aponline/2020/08/03/us/ap-us-people-tamar-braxton.html?searchResultPosition=3
 
