@@ -11,7 +11,7 @@ https://nytimes.com/2020/08/03/technology/trump-tiktok-microsoft.html?searchResu
 https://nytimes.com/aponline/2020/08/03/world/americas/ap-cb-puerto-rico-official-resigns.html?searchResultPosition=3
 
 **New Jersey Governor Retightens Restrictions on Indoor Gatherings After COVID-19 Surge**\
-`New Jersey Governor Phil Murphy on Monday announced he was retightening restrictions on indoor gatherings after a recent surge in coronavirus cases in the state that officials have linked to house parties and indoor events.  `\
+`New Jersey Governor Phil Murphy on Monday announced he was retightening restrictions on indoor gatherings after a recent surge in coronavirus cases in the state that officials have, in part, linked to house parties and indoor events.  `\
 https://nytimes.com/reuters/2020/08/03/us/03reuters-health-coronavirus-new-jersey.html?searchResultPosition=4
 
 **Doug Pederson Says He Feels Great, Has No COVID-19 Symptoms**\
