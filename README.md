@@ -2,8 +2,8 @@
 `Brazil's central bank said on Monday that tests had begun to trial payments via Facebook Inc's messaging service WhatsApp in the country, calling them an "important advance."`\
 https://nytimes.com/reuters/2020/08/03/technology/03reuters-facebook-brazil-whatsapp.html?searchResultPosition=1
 
-**More Than 300 Prisoners at Large After Islamic State Attack on Eastern Afghan Prison**\
-`More than 300 prisoners are still at large after an attack by the Islamic State jihadist group on a prison in the eastern Afghan city of Jalalabad, the governor's spokesman said on Monday. `\
+**Islamic State Storm Afghan Jail, Freeing Hundreds of Prisoners**\
+`More than 300 prisoners were at large on Monday after an attack by Islamic State on an Afghan prison, the governor's spokesman said on Monday, as clashes continued between prisoners and security forces. `\
 https://nytimes.com/reuters/2020/08/03/world/asia/03reuters-afghanistan-islamic-state-escape.html?searchResultPosition=2
 
 **Portfolio Trading Grows in Choppy Bond Markets: JP Morgan**\
@@ -18,8 +18,8 @@ https://nytimes.com/2020/08/03/us/elections/biden-vs-trump.html?searchResultPosi
 `Children returned to school Monday in the northeastern German state of Mecklenburg-Western Pomerania, the first in the country to start the new school year following nationwide shutdowns at the height of the coronavirus pandemic in March.`\
 https://nytimes.com/aponline/2020/08/03/world/europe/ap-eu-virus-outbreak-germany-schools.html?searchResultPosition=5
 
-**Tyson Foods Appoints Executive Dean Banks as CEO**\
-`Tyson Foods Inc on Monday named President Dean Banks as its next chief executive officer to replace Noel White at time when the company is navigating unprecedented production challenges due to the COVID-19 pandemic.`\
+**Tyson Foods Names Former Alphabet Employee New CEO**\
+`Tyson Foods Inc on Monday named Dean Banks, a former project lead at Google-parent Alphabet Inc's experimental research division, as its next chief executive officer, as the company navigates unprecedented production challenges due to the COVID-19 pandemic.`\
 https://nytimes.com/reuters/2020/08/03/business/03reuters-tyson-foods-results.html?searchResultPosition=6
 
 **UK PM Johnson Praises Northern Ireland's Hume as a 'Political Giant'**\
