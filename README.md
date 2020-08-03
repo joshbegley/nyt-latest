@@ -35,6 +35,6 @@ https://nytimes.com/2020/08/02/business/marathon-petroleum-speedway-7-11.html?se
 https://nytimes.com/aponline/2020/08/02/sports/baseball/ap-bbo-rangers-giants-1st-ld-writethru.html?searchResultPosition=9
 
 **Exclusive: Trump to Give TikTok's Chinese Owner 45 Days to Reach Deal to Sell-Sources**\
-`U.S. President Donald Trump has agreed to give China's ByteDance 45 days to negotiate a sale of popular short-video app TikTok to Microsoft Corp, two people familiar with the matter said on Sunday.`\
+`President Donald Trump has agreed to give China's ByteDance 45 days to negotiate a sale of popular short-video app TikTok to Microsoft Corp, two people familiar with the matter said on Sunday.`\
 https://nytimes.com/reuters/2020/08/02/business/02reuters-usa-tiktok-trump-exclusive.html?searchResultPosition=10
 
