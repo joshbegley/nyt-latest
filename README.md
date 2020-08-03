@@ -6,7 +6,7 @@ https://nytimes.com/2020/08/03/sports/coronavirus-college-athletes-opt-out.html?
 `A U.S. judge on Monday denied a request by an Uber Technologies Inc customer to overturn an arbitration win for the company in a price-fixing case over claims the arbitrator only ruled in Uber's favor because he was scared.`\
 https://nytimes.com/reuters/2020/08/03/business/03reuters-uber-lawsuit.html?searchResultPosition=2
 
-**N.C. Governor Tells Residents to ‘Take Storm Seriously’**\
+**N.C. Governor Tells Residents to ‘Take This Storm Seriously’**\
 `Gov. Roy A. Cooper urged North Carolinians on Monday to properly prepare for Tropical Storm Isaias.`\
 https://nytimes.com/video/us/100000007271090/north-carolina-isaias-coronavirus.html?searchResultPosition=3
 
