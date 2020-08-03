@@ -8,7 +8,7 @@ https://nytimes.com/aponline/2020/08/03/world/europe/ap-eu-britain-obit-john-hum
 
 **Jailbreak Attack by ISIS Rages On in Eastern Afghanistan**\
 `Officials scrambled to recapture hundreds of prisoners after a car bombing at the 1,500-inmate prison in Jalalabad turned into an ongoing gun battle between militants and guards.`\
-https://nytimes.com/2020/08/03/world/asia/afganistan-prison-isis-taliban.html?searchResultPosition=3
+https://nytimes.com/2020/08/03/world/asia/afghanistan-prison-isis-taliban.html?searchResultPosition=3
 
 **Microsoft Nears Big Bet on TikTok After Risky LinkedIn Deal Shows Promise**\
 `Microsoft Corp's potential acquisition of short-video app TikTok carries myriad risks, thrusting it into the politically fraught social media business and Sino-U.S. conflict amid increased scrutiny of big-tech companies.`\
