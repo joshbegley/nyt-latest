@@ -8,7 +8,7 @@ https://nytimes.com/aponline/2020/08/02/sports/basketball/bc-bkn-bucks-rockets.h
 
 **Your Monday Briefing**\
 `Vaccine race, Donald Trump, SpaceX: Here’s what you need to know.`\
-https://nytimes.com/2020/08/02/briefing/your-monday-briefing.html?searchResultPosition=3
+https://nytimes.com/2020/08/02/briefing/vaccine-race-donald-trump-spacex.html?searchResultPosition=3
 
 **Germany's Confirmed Coronavirus Cases Rise by 509 to 210,402: RKI**\
 `The number of confirmed coronavirus cases in Germany increased by 509 to 210,402, data from the Robert Koch Institute (RKI) for infectious diseases showed on Monday.`\
