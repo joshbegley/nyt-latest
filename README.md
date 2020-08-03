@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/08/03/world/europe/03reuters-health-coronavirus
 `John Hume, a Catholic nationalist and Nobel peace laureate who died on Monday aged 83, will be remembered as a man who championed peace even during the darkest days of Northern Ireland's guerrilla war.`\
 https://nytimes.com/reuters/2020/08/03/world/europe/03reuters-britain-nireland-hume-obituary.html?searchResultPosition=7
 
-**UK Proposes Redemption Breathing Space for Property Funds**\
-`Investors in property funds should wait up to 180 days before they can get their money back, Britain's Financial Conduct Authority proposed on Monday.`\
+**UK Proposes Cash Back Breathing Space for Property Funds**\
+`Investors in property funds should wait up to 180 days before they can get their money back to avoid widespread suspensions in rocky markets, Britain's Financial Conduct Authority proposed on Monday.`\
 https://nytimes.com/reuters/2020/08/03/business/03reuters-britain-funds-regulator.html?searchResultPosition=8
 
 **Serbian Parliament Convenes After Elections, Amid Protests**\
