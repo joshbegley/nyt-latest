@@ -1,40 +1,40 @@
+**Maryland County Pledges Probe on Health Worker's Virus Death**\
+`Officials in Maryland’s Prince George’s County say they “will spare no time or expense” investigating the circumstances surrounding the death of a veteran public health worker who died of COVID-19 after relatives and coworkers believe she contracted the virus on the job.`\
+https://nytimes.com/aponline/2020/08/04/us/ap-us-public-health-front-line-workers.html?searchResultPosition=1
+
+**Australia Sevens Coach Cautious on Suaalii's Olympic Chance**\
+`Joseph Suaalii has "world class" attributes to succeed in rugby sevens but playing at the Tokyo Olympics would be a big ask of the schoolboy prodigy, Australia head coach Tim Walsh said on Tuesday.`\
+https://nytimes.com/reuters/2020/08/04/sports/rugby/04reuters-rugby-australia-coach-interview.html?searchResultPosition=2
+
+**Ford CEO Hackett to Retire, COO Jim Farley to Lead Automaker**\
+`Ford Chief Operating Officer Jim Farley will lead the storied automaker into the future starting Oct. 1 when current CEO Jim Hackett retires.`\
+https://nytimes.com/aponline/2020/08/04/business/bc-us-ford-new-ceo.html?searchResultPosition=3
+
+**Isaias Barrels Across Virginia on Way to U.S. Northeast**\
+`Tropical Storm Isaias unleashed heavy rain and strong wind across southeastern Virginia on Tuesday, threatening tornadoeson its way north toward major cities of the U.S. Northeast, the National Hurricane said.`\
+https://nytimes.com/reuters/2020/08/04/us/04reuters-storm-isaias.html?searchResultPosition=4
+
+**Cycling: Rising Talent Riedmann Dies Aged 17 After Training Accident**\
+`German cyclist Jan Riedmann, a talented member of WorldTour team Bora-Hansgrohe's feeder squad, has died aged 17 from head injuries sustained in a collision with a car, his team announced on Monday.`\
+https://nytimes.com/reuters/2020/08/04/sports/cycling/04reuters-cycling-germany.html?searchResultPosition=5
+
+**For Robots, It’s a Time to Shine (and Maybe Disinfect)**\
+`The pandemic has turned cleaning and other mundane building tasks into a challenge, stoking interest in machines as cost-effective solutions.`\
+https://nytimes.com/2020/08/04/business/robot-cleaning-coronavirus.html?searchResultPosition=6
+
+**Life Inside the N.B.A. Bubble**\
+`Marc Stein has covered the N.B.A. for nearly 30 years, so he’s seen a lot. But covering the league under quarantine conditions is a new experience. Here are things you’ll only see inside the “N.B.A. bubble.”`\
+https://nytimes.com/interactive/2020/08/04/sports/nba-bubble-coronavirus.html?searchResultPosition=7
+
 **Marquez Ruled Out of Czech Race Due to Broken Arm, Replaced by Bradl**\
 `MotoGP champion Marc Marquez will miss Sunday's Czech Grand Prix after having a second operation on a broken arm, with test rider Stefan Bradl replacing him for the race, his Repsol Honda Team confirmed on Tuesday.`\
-https://nytimes.com/reuters/2020/08/04/sports/04reuters-motor-motogp-marquez.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/04/sports/04reuters-motor-motogp-marquez.html?searchResultPosition=8
 
 **Gold's Mega Rally Faces $2,000 Hurdle, but for How Long?**\
 `Gold's rally has halted just below $2,000 an ounce partly due to fierce technical resistance, but an eventual break above that level is likely, freeing prices for more record highs, technical analysts said.`\
-https://nytimes.com/reuters/2020/08/04/us/04reuters-gold-price-technicals-graphic.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/04/us/04reuters-gold-price-technicals-graphic.html?searchResultPosition=9
 
 **Denmark Should Not Reopen Further, Says State Epidemiologist**\
 `Denmark's state epidemiologist on Tuesday said he could not recommend proceeding to the next phase of reopening society during the coronavirus outbreak, Danish media Ingenioeren reported. `\
-https://nytimes.com/reuters/2020/08/04/world/europe/04reuters-health-coronavirus-denmark.html?searchResultPosition=3
-
-**Could a Californian Be Vice President?**\
-`Tuesday: Yes, and here’s what it would mean for the Golden State. Also: California’s coronavirus data is slightly encouraging.`\
-https://nytimes.com/2020/08/04/us/biden-vp-karen-bass-kamala-harris.html?searchResultPosition=4
-
-**India App ShareChat in Talks With Sequoia, Others to Raise Up to $200 Million: Sources**\
-`Indian content-sharing platform ShareChat is in early-stage talks with U.S.-based Sequoia Capital and some other investors to raise up to $200 million, which could value the company at over $1 billion, three sources aware of the matter told Reuters.`\
-https://nytimes.com/reuters/2020/08/04/business/04reuters-india-sharechat.html?searchResultPosition=5
-
-**Italian Bank Intesa Sanpaolo Sees Q2 Profits Up on Cost Cuts**\
-`Italian bank Intesa Sanpaolo, fresh off its successful hostile takeover of a smaller rival to create Italy’s largest bank, on Tuesday posted a 16% increase in second-quarter profits as it cut costs and increased loan loss provisions against possible future impact from the COVID-19 pandemic. `\
-https://nytimes.com/aponline/2020/08/04/business/ap-eu-italy-earns-intesa-sanpaolo.html?searchResultPosition=6
-
-**Summer Reading Contest Winner, Week 6: On ‘The Phantom Handbag’**\
-`Thank you to the teenagers who participated this week, and congratulations to our winner, Hexuan (Judy) Wang, as well as our many runners-up and honorable mentions.`\
-https://nytimes.com/2020/08/04/learning/summer-reading-contest-winner-week-6-on-the-phantom-handbag.html?searchResultPosition=7
-
-**Trump Snubs Civil Right Icon Lewis, Cites Absence at 2017 Inauguration**\
-`President Donald Trump's personal grievances aired anew this week as he dismissed the legacy of the late U.S. Representative John Lewis after snubbing the civil rights icon and defended his decision not to pay his respects following Lewis' recent death.`\
-https://nytimes.com/reuters/2020/08/04/arts/04reuters-people-john-lewis-trump.html?searchResultPosition=8
-
-**Winfrey Picks Isabel Wilkerson's 'Caste' for Her Book Club**\
-`If not for the coronavirus, Oprah Winfrey says, she would be out in the streets and marching with the Black Lives Matter protesters. `\
-https://nytimes.com/aponline/2020/08/04/us/ap-us-books-winfrey-wilkerson.html?searchResultPosition=9
-
-**The Challenges of Polyamorous Parenting**\
-`Starting a family with more than two parents can present legal and social pitfalls. Here’s how some parents are making it work.`\
-https://nytimes.com/2020/08/04/parenting/polyamorous-parenting.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/04/world/europe/04reuters-health-coronavirus-denmark.html?searchResultPosition=10
 
