@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/08/04/world/asia/04reuters-india-weather.html?s
 `In a gesture of reconciliation, two prominent Muslims who lived through deadly riots following the razing of a mosque in northern India in 1992 plan to attend the foundation-laying ceremony for a Hindu temple on Wednesday on the same site, they said.`\
 https://nytimes.com/reuters/2020/08/04/world/asia/04reuters-india-religion-temple.html?searchResultPosition=9
 
-**The Latest: Australia-West Indies T20 Series in October Off**\
+**The Latest: A Cough Could Lead to Red Card in Soccer**\
 `The Latest on the effects of the coronavirus outbreak on sports around the world:`\
 https://nytimes.com/aponline/2020/08/04/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=10
 
