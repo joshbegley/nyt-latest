@@ -2,8 +2,8 @@
 `Australian lenders deferred a further A$40 billion ($28.47 billion) loans in June, the country's financial watchdog said on Tuesday, as borrowers struggled to service their debts in the wake of the coronavirus crisis. `\
 https://nytimes.com/reuters/2020/08/03/world/asia/03reuters-australia-banks-loans.html?searchResultPosition=1
 
-**Australia Retail Sales Rise 2.7% in June but Outlook Muddy**\
-`Australian retail sales jumped 2.7% in June as shops, restaurants and pubs fully re-opened across large parts of the country, though the outlook was clouded by a second wave of coronavirus infections in the state of Victoria.`\
+**Australian Retailers Suffer Worst Quarter in Two Decades, Exports Shine**\
+`Australia's retailers are facing a consumption drought as the country's second biggest state locks down to fight the coronavirus and as data showed sales volumes suffered their biggest plunge in two decades in the second quarter.`\
 https://nytimes.com/reuters/2020/08/03/world/asia/03reuters-australia-economy-salesfigures.html?searchResultPosition=2
 
 **Players Must Decide by Thursday Whether to Opt Out of Season**\
