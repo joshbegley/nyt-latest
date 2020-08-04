@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/08/04/business/ap-us-itunes-apps-top-10.html?s
 https://nytimes.com/video/world/100000007272075/lebanon-beirut-blast.html?searchResultPosition=3
 
 **Penske Reverses Course, Closes Indianapolis 500 to Fans**\
-`Roger Penske has reversed course and decided not to allow fans at the Indianapolis 500 later this month. The 104th running of “The Greatest Spectacle in Racing” will be the first without spectators, who showed up at Indianapolis Motor Speedway every year, even during the Great Depression.`\
+`Roger Penske has reversed course and decided not to allow fans at the Indianapolis 500 later this month. The 104th running of “The Great American Race” will be the first without spectators, who showed up at Indianapolis Motor Speedway every year, even during the Great Depression.`\
 https://nytimes.com/aponline/2020/08/04/sports/ap-car-indycar-indy-500-no-fans-.html?searchResultPosition=4
 
 **Scientists Uncover Biological Signatures of the Worst Covid-19 Cases**\
