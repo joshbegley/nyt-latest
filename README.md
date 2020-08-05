@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/08/05/us/politics/ap-us-united-states-iran.htm
 https://nytimes.com/aponline/2020/08/05/business/ap-us-virus-outbreak-fraud-charges-.html?searchResultPosition=5
 
 **Your Thursday Briefing**\
-`Beirut, Hiroshima, “Indian Matchmaking”: Here’s what you need to know.`\
+`Beirut, Hiroshima, “Indian Matchmaking”:Here’s what you need to know.`\
 https://nytimes.com/2020/08/05/briefing/beirut-modi-temple-hiroshima.html?searchResultPosition=6
 
 **U.S. Court Allows Dakota Access Pipeline to Keep Running, Permit Status Unclear**\
