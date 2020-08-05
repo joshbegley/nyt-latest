@@ -1,40 +1,40 @@
+**Trump Campaign Wants Presidential Debate in Early September**\
+`President Donald Trump's re-election campaign is seeking to add a debate with Democratic candidate Joe Biden in early September, arguing that millions of voters may have already cast ballots in early voting by the time the first of three scheduled debates occurs.`\
+https://nytimes.com/reuters/2020/08/05/us/politics/05reuters-usa-election-trump-debates.html?searchResultPosition=1
+
+**FAA Proposes Fining Boeing $1.25 Million Over Actions at Plant**\
+`The Federal Aviation Administration on Wednesday said it was proposing to fine Boeing Co $1.25 million after the agency alleged Boeing managers exerted undue pressure or interfered with work of employees performing duties for the government at the company’s plant in South Carolina.`\
+https://nytimes.com/reuters/2020/08/05/business/05reuters-boeing-faa.html?searchResultPosition=2
+
+**No Hoopla: Virus Upends Trump, Biden Convention Plans**\
+`At the last minute, President Donald Trump and his Democratic rival, Joe Biden, are searching for places to impressively yet safely accept their parties' presidential nominations as the spread of the coronavirus adds fresh uncertainty to the campaign for the White House.`\
+https://nytimes.com/aponline/2020/08/05/us/politics/ap-us-election-2020-conventions.html?searchResultPosition=3
+
+**It’s Trump Jr. vs. Trump Sr. Over an Alaskan Mineral Mine**\
+`The move toward opening the Pebble Mine has surfaced a rare dispute between Donald Trump Jr. and his father’s administration.`\
+https://nytimes.com/2020/08/05/us/politics/pebble-mine-trump-alaska.html?searchResultPosition=4
+
+**Downdraft Blamed for Crashes of Wyoming Sightseeing Balloons**\
+`Three sightseeing hot air balloons crashed this week in western Wyoming because of an unexpected downdraft during a freak storm, according to the balloon company owner.`\
+https://nytimes.com/aponline/2020/08/05/us/ap-us-balloons-crash.html?searchResultPosition=5
+
 **Kathleen Duey, a Mentoring Children’s Book Author, Dies at 69**\
 `A prolific writer, she published more than 75 books, including a Best Seller and a National Book Award finalist, all while encouraging aspiring authors.`\
-https://nytimes.com/2020/08/05/books/kathleen-duey-dead.html?searchResultPosition=1
+https://nytimes.com/2020/08/05/books/kathleen-duey-dead.html?searchResultPosition=6
 
 **Column: Big and Booming, DeChambeau Is PGA Tour Must-See TV**\
 `It’s hard to find a reason to like Bryson DeChambeau. It’s even harder to take your eyes off him.`\
-https://nytimes.com/aponline/2020/08/05/sports/golf/ap-glf-tim-dahlberg-dechambeau.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/05/sports/golf/ap-glf-tim-dahlberg-dechambeau.html?searchResultPosition=7
 
 **FBI: Multiple Groups Involved in Ohio $60M Corruption Scheme**\
 `A  lengthy FBI agent affidavit  detailing an alleged $60 million corruption scheme led by one of Ohio's most powerful elected officials provides painstaking detail about groups and individuals who played roles in spending mostly corporate cash.`\
-https://nytimes.com/aponline/2020/08/05/business/ap-us-bribery-investigation-ohio.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/05/business/ap-us-bribery-investigation-ohio.html?searchResultPosition=8
 
 **Police: 3 Teens Inadvertently Jump Wall Into Mar-a-Lago**\
 `Three teenagers fleeing police while carrying a semiautomatic gun in a backpack jumped a wall at President Donald Trump's Mar-a-Lago resort, but probably didn't know that's where they were, authorities said Wednesday. `\
-https://nytimes.com/aponline/2020/08/05/us/ap-us-mar-a-lago-intruders.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/05/us/ap-us-mar-a-lago-intruders.html?searchResultPosition=9
 
 **The Universal Loneliness of Powfu**\
 `On his major label debut EP, the 21-year-old musician from Vancouver follows in the footsteps of lovelorn emo singers and rappers.`\
-https://nytimes.com/2020/08/05/arts/music/powfu-poems-of-the-past-review.html?searchResultPosition=5
-
-**Canada Finance Minister Says He Is Hosting Call With U.S., British Counterparts on Coronavirus**\
-`Canadian Finance Minister Bill Morneau on Wednesday said he was hosting a call with counterparts from the United States, Britain, Australia and New Zealand to discuss the economic impact of the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/08/05/world/asia/05reuters-health-coronavirus-canada-finance.html?searchResultPosition=6
-
-**Pompeo Says U.S., Russia Have Made Progress on Arms Control**\
-`Secretary of State Mike Pompeo said on Wednesday that the United States had made progress with Russia on nuclear arms control recently and hopes China will decide to join the discussions.`\
-https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-usa-russia.html?searchResultPosition=7
-
-**Cuomo Relays U.S. Governors' Demand for Federal COVID-19 Aid in Upcoming Relief Package**\
-`New York Governor Andrew Cuomo, speaking on behalf of all U.S. governors on Wednesday, urged Congress to include $500 billion in unrestricted state funding in a COVID-19 relief package currently under consideration. `\
-https://nytimes.com/reuters/2020/08/05/us/05reuters-health-coronavirus-governors.html?searchResultPosition=8
-
-**Pompeo Says U.S. to Present U.N. Resolution Next Week to Extend Iran Arms Embargo**\
-`Secretary of State Mike Pompeo said on Wednesday the United States would put forth a United Nations Security Council resolution next week calling for an extension of the arms embargo on Iran.`\
-https://nytimes.com/reuters/2020/08/05/world/middleeast/05reuters-usa-iran-pompeo.html?searchResultPosition=9
-
-**World Bank Says Ready to Mobilize Financing for Lebanon Blast Recovery**\
-`The World Bank Group said on Wednesday it stands ready to assess Lebanon's damage and needs after a devastating Beirut port explosion and work with the country's partners to mobilize public and private financing for reconstruction and recovery.`\
-https://nytimes.com/reuters/2020/08/05/world/middleeast/05reuters-lebanon-security-blast-worldbank.html?searchResultPosition=10
+https://nytimes.com/2020/08/05/arts/music/powfu-poems-of-the-past-review.html?searchResultPosition=10
 
