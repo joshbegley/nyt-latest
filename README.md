@@ -1,6 +1,6 @@
 **What We Know and Don’t Know About the Beirut Explosions**\
 `More than 100 people were killed, and the second blast was felt in Cyprus. An investigation and a search for survivors are underway.`\
-https://nytimes.com/2020/08/05/world/middleeast/beirut-explosion-what-we-know.html?searchResultPosition=1
+https://nytimes.com/2020/08/05/world/middleeast/beirut-explosion-what-happened.html?searchResultPosition=1
 
 **Kenya Private Sector Expands at Strongest Level in a Year: PMI**\
 `Activity in Kenya's private sector rose at its fastest pace in a year last month on the back of a gradual easing of coronavirus lockdown measures, a survey showed on Wednesday.`\
