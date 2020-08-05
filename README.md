@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/08/05/business/bc-us-facebook-tiktok-clone.htm
 https://nytimes.com/reuters/2020/08/05/business/05reuters-bank-of-america-berkshire.html?searchResultPosition=4
 
 **Georgia Prosecutor Asks Court to Revoke Bond for Former Atlanta Policeman Charged With Murder**\
-`A Georgia prosecutor asked a Fulton County Superior Court judge to revoke the bond for the former Atlanta policeman charged with murder in the shooting of Rayshard Brooks, saying in court papers the officer took an out-of-state vacation.`\
+`A Georgia prosecutor asked a Fulton County Superior Court judge to revoke the bond for the former Atlanta policeman charged with murder in the shooting of Rayshard Brooks, saying in court papers that he violated its terms by taking an out-of-state vacation.`\
 https://nytimes.com/reuters/2020/08/05/us/05reuters-global-race-usa-police.html?searchResultPosition=5
 
 **Four Art Gallery Shows to See Right Now**\
