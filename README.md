@@ -1,40 +1,40 @@
-**Scotland Shuts Pubs in Aberdeen to Tackle COVID-19 Outbreak**\
-`Scotland imposed new restrictions on the north eastern city of Aberdeen to tackle an outbreak of COVID-19 cases, ordering pubs to close and visitors to stay away.`\
-https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-health-coronavirus-britain-scotland.html?searchResultPosition=1
+**Ukraine Leader Hopes Minsk Will Hand Over Suspected Russian Mercenaries to Ukraine**\
+`Ukraine's President Volodymyr Zelenskiy said on Wednesday he hoped Belarus would hand over suspected Russian mercenaries to Ukraine for future prosecution.`\
+https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-belarus-election-ukraine.html?searchResultPosition=1
+
+**India's Bharti Airtel Partners With Amazon to Grow Cloud Business**\
+`Bharti Airtel Ltd and Amazon Web Services (AWS) will join forces to develop the Indian telecoms firm's cloud business, allowing it to offer a wider range of products to its enterprise clients, the two companies said on Wednesday.`\
+https://nytimes.com/reuters/2020/08/05/technology/05reuters-bharti-airtel-amazon-com.html?searchResultPosition=2
+
+**Croatia Marks 1995 Blitz; Serb Politician There for 1st Time**\
+`Croatia marked the 25th anniversary of a victorious military offensive against rebel Serbs with an ethnic Serb politician attending the annual ceremony for the first time Wednesday, an event seen as an important step toward reconciliation. `\
+https://nytimes.com/aponline/2020/08/05/world/europe/ap-eu-croatia-anniversary.html?searchResultPosition=3
+
+**France Raises Aid for Wine Sector to 250 Million Euros**\
+`French Prime Minister Jean Castex said on Wednesday that state support for the wine sector, which has been hit hard by the COVID-19 pandemic, would be increased to 250 million euros ($295 million).`\
+https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-health-coronavirus-france-castex.html?searchResultPosition=4
+
+**France's Hard-Hit Wine Growers Need More Support: PM Castex**\
+`France must step up support for winemakers hit by a slump in demand because of restaurant and bar closures due to the coronavirus pandemic and lower exports because of U.S. tariffs, French Prime Minister Jean Castex said on Wednesday.`\
+https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-health-coronavirus-france-wine.html?searchResultPosition=5
+
+**Zara Owner Inditex Pledges Support for Fashion Supply Chain as Coronavirus Bites**\
+`Spanish fashion group Inditex on Wednesday pledged to maintain workers' rights throughout its supply chains and the stability of payments to suppliers, as the garment industry wrestled with a plunge in orders during the COVID-19 crisis.`\
+https://nytimes.com/reuters/2020/08/05/business/05reuters-inditex-workers.html?searchResultPosition=6
+
+**Scotland Shuts Pubs and Restaurants in Aberdeen to Stem COVID-19 Outbreak**\
+`Scotland on Wednesday imposed new restrictions on the oil city of Aberdeen to tackle an outbreak of COVID-19 cases, ordering pubs and restaurants to close and visitors to stay away.`\
+https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-health-coronavirus-britain-scotland.html?searchResultPosition=7
 
 **Factbox: Miners Get New Safety Standards to Avert Tailings Dam Disasters**\
 `An industry, investor and U.N. panel launched the global tailings management standard on Wednesday, a year-long effort spurred by the 2019 collapse of Vale SA's Brumadinho upstream tailings dam that killed more than 250 people. `\
-https://nytimes.com/reuters/2020/08/05/business/05reuters-mining-tailings-skills-factbox.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/05/business/05reuters-mining-tailings-skills-factbox.html?searchResultPosition=8
 
 **CVS Posts Strong 2Q, With Virus Delaying Elective Procedures**\
 `CVS Health is reporting surprisingly strong second-quarter earnings in part due to postponed elective medical procedures during the pandemic, and it raised its profit expectations for the year. `\
-https://nytimes.com/aponline/2020/08/05/business/ap-us-cvs-results.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/05/business/ap-us-cvs-results.html?searchResultPosition=9
 
 **Miners Need More Engineers to Meet New Tailings Dam Safety Standard**\
 `By Helen Reid and Jeff Lewis`\
-https://nytimes.com/reuters/2020/08/05/business/05reuters-mining-tailings-skills.html?searchResultPosition=4
-
-**France's Macron to Travel to Beirut on Thursday**\
-`French President Emmanuel Macron will fly to Beirut on Thursday and will meet the country's political figures, after a blast ravaged the Lebanese capital, his office said.`\
-https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-lebanon-security-blast-macron.html?searchResultPosition=5
-
-**Russia in Talks With Netherlands on Changing Tax Deal, Could Raise Tax on Dividend to 15%**\
-`Russia's Finance Ministry said on Wednesday it had proposed to the Netherlands to revise the countries' bilateral tax agreement and raise taxes on dividends to 15%.`\
-https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-russia-netherlands-tax.html?searchResultPosition=6
-
-**Vietnam Reports 41 New Coronavirus Infections, Total Cases Reach 713**\
-`Vietnam's health ministry on Wednesday reported an additional 41 new COVID-19 cases, bringing the country's total to 713 infections, with 8 deaths.    `\
-https://nytimes.com/reuters/2020/08/05/world/asia/05reuters-health-coronavirus-vietnam-cases.html?searchResultPosition=7
-
-**Cult British TV Puppet Show Mocks Up PM Johnson and Adviser Cummings**\
-`British Prime Minister Boris Johnson and his adviser Dominic Cummings will be portrayed in puppet form as a dishevelled buffoon and a scheming mastermind, pictures released by the makers of the cult satirical TV show Spitting Image showed on Wednesday.`\
-https://nytimes.com/reuters/2020/08/05/arts/05reuters-britain-politics-spittingimage.html?searchResultPosition=8
-
-**Moderna Says Discussing Supply Deals With Countries for COVID-19 Vaccine**\
-`Moderna Inc said on Wednesday it has started talks with several countries for supply agreements for its experimental coronavirus vaccine and has received about $400 million in deposits for potential supply.`\
-https://nytimes.com/reuters/2020/08/05/business/05reuters-moderna-results.html?searchResultPosition=9
-
-**Teva Pharm Second-Quarter Profit Tops Forecast, Reaffirms 2020 Outlook**\
-`Israel-based Teva Pharmaceutical Industries reported a slightly smaller-than-expected fall in second-quarter profit on Wednesday, as higher profitability in North America partially offset lower profit margins in Europe.`\
-https://nytimes.com/reuters/2020/08/05/business/05reuters-teva-pharm-ind-results.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/05/business/05reuters-mining-tailings-skills.html?searchResultPosition=10
 
