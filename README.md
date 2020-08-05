@@ -18,7 +18,7 @@ https://nytimes.com/reuters/2020/08/05/technology/05reuters-facebook-tiktok-fact
 `Also this week, how to help a neighbor when it’s hot`\
 https://nytimes.com/2020/08/05/climate/overlapping-disasters-heat.html?searchResultPosition=5
 
-**Aurora Police Chief Apologizes for Mistaken Stop That Led to Children in Handcuffs**\
+**Aurora Police Chief Apologizes After Officers Handcuff Children on the Ground**\
 `A widely shared video shows four children, two of them handcuffed, on the ground in a parking lot. Chief Vanessa Wilson of the Aurora Police Department said the Colorado city would offer therapy to the children.`\
 https://nytimes.com/2020/08/05/us/aurora-police-black-family.html?searchResultPosition=6
 
