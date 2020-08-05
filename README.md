@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/08/05/world/middleeast/05reuters-lebanon-securi
 https://nytimes.com/reuters/2020/08/05/world/asia/05reuters-china-economy-trade-poll.html?searchResultPosition=9
 
 **Supermarket Giant Ahold Reports 78% Surge in Second Quarter Earnings Amid Coronavirus**\
-`Ahold Delhaize NV, a major operator of supermarket chains in the United States and Europe, on Wednesday reported better-than-expected sales and underlying operating income for the second quarter of 2020, as coronavirus lockdowns pushed extra traffic through its stores and online delivery.`\
+`Ahold Delhaize NV, a major operator of supermarket chains in the United States and Europe, reported better-than-expected sales and underlying operating income for the second quarter of 2020, as coronavirus lockdowns drove more traffic through its stores and online delivery services.`\
 https://nytimes.com/reuters/2020/08/05/business/05reuters-ahold-delhaize-results.html?searchResultPosition=10
 
