@@ -1,40 +1,40 @@
+**Reports: Chicago Schools to Announce All-Remote Learning**\
+`Chicago Public Schools is expected to announce Wednesday that it will start the school year with all-remote learning in response to coronavirus concerns, according to published reports. `\
+https://nytimes.com/aponline/2020/08/04/business/ap-us-virus-outbreak-chicago-schools.html?searchResultPosition=1
+
+**China Reports 27 New Coronavirus Cases in Mainland for Aug. 4**\
+`China reported 27 new coronavirus cases in the mainland for Aug. 4, down from 36 cases a day earlier, the country's health commission said on Wednesday.`\
+https://nytimes.com/reuters/2020/08/04/world/asia/04reuters-health-coronavirus-china-cases.html?searchResultPosition=2
+
+**Warren's Hot Hand Sends Pacers Past Magic for 3rd Straight**\
+`T.J. Warren scored 32 points, tying Jermaine O'Neal's franchise record for most in a three-game span, to send the Indiana Pacers past the Orlando Magic 120-109 on Tuesday for their third consecutive victory.`\
+https://nytimes.com/aponline/2020/08/04/sports/basketball/bc-bkn-magic-pacers.html?searchResultPosition=3
+
+**U.S. Coronavirus Fraud Losses Near $100 Million as COVID Scams Double**\
+`U.S. losses from coronavirus-related fraud and identity theft have reached nearly $100 million since the pandemic emerged in March, while complaints of COVID-19 scams have at least doubled in most states, a consumer protection group said on Tuesday.`\
+https://nytimes.com/reuters/2020/08/04/technology/04reuters-health-coronavirus-usa-fraud.html?searchResultPosition=4
+
+**Mexico Reports 6,148 Coronavirus Cases and 857 More Deaths**\
+`Mexico's health ministry on Tuesday reported 6,148 new confirmed coronavirus cases and 857 additional fatalities, bringing the total in the country to 449,961 cases and 48,869 deaths.`\
+https://nytimes.com/reuters/2020/08/04/world/americas/04reuters-health-coronavirus-mexico.html?searchResultPosition=5
+
 **Star Technologist Who Crossed Google Sentenced to 18 Months in Prison**\
 `Anthony Levandowski, a onetime star Silicon Valley engineer of self-driving cars, had pleaded guilty to stealing trade secrets.`\
-https://nytimes.com/2020/08/04/technology/levandowski-google-uber-sentencing-trade-secrets.html?searchResultPosition=1
+https://nytimes.com/2020/08/04/technology/levandowski-google-uber-sentencing-trade-secrets.html?searchResultPosition=6
 
 **Pandemic Woes Keep Japan's Service Sector in Decline at Start of Third Quarter: PMI**\
 `Japan's services sector contracted for a sixth straight month in July, suggesting economic activity remained under pressure from the coronavirus crisis as the third quarter got under way.`\
-https://nytimes.com/reuters/2020/08/04/business/04reuters-japan-economy-pmi.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/04/business/04reuters-japan-economy-pmi.html?searchResultPosition=7
 
 **Fine Art and Face Masks: London's Victoria and Albert Museum Reopens**\
 `Five thousand years of art and design history will be joined by some more modern items when London's Victoria and Albert (V&A) museum reopens on Thursday - hand sanitiser dispensers and protective screens.`\
-https://nytimes.com/reuters/2020/08/04/world/europe/04reuters-health-coronavirus-v-a-reopening.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/04/world/europe/04reuters-health-coronavirus-v-a-reopening.html?searchResultPosition=8
 
 **Vandersloot, Stevens Help Sky Beat Wings 82-79**\
 `Azura Stevens had 15 points and 10 rebounds, Courtney Vandersloot added 14 points and 10 assists, and the Chicago Sky beat the Dallas Wings 82-79 on Tuesday night. `\
-https://nytimes.com/aponline/2020/08/04/sports/basketball/bc-bkl-wings-sky.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/04/sports/basketball/bc-bkl-wings-sky.html?searchResultPosition=9
 
 **I Was Bloodied and Dazed. Beirut Strangers Treated Me Like a Friend.**\
 `In a land conditioned by calamity, people knew what to do, including helping wounded people they didn’t know.`\
-https://nytimes.com/2020/08/04/world/middleeast/lebanon-explosion-beirut.html?searchResultPosition=5
-
-**Australia's Telstra to Sell Melbourne Data Centre for About $300 Million**\
-`Australia's largest telecom company Telstra Corp said on Wednesday it will sell its Clayton data centre facility in Melbourne to property firm Centuria Industrial REIT for A$416.7 million ($298.4 million).`\
-https://nytimes.com/reuters/2020/08/04/technology/04reuters-telstra-corp-divestiture-centuria.html?searchResultPosition=6
-
-**Mapping the Damage From the Beirut Explosions**\
-`Damage was seen at least two miles from the explosions, encompassing an area with more than 750,000 residents.`\
-https://nytimes.com/interactive/2020/08/04/world/middleeast/beirut-explosion-damage.html?searchResultPosition=7
-
-**New Crisis in Peru as Congress Rejects President's Cabinet**\
-`Peru was left with no government ministers Tuesday after Congress refused to approve President Martin Vizcarra's recently appointed Cabinet. `\
-https://nytimes.com/aponline/2020/08/04/world/americas/ap-lt-peru-cabinet-rejected.html?searchResultPosition=8
-
-**Maddon: Shohei Ohtani Won't Pitch Again for Angels This Year**\
-`Shohei Ohtani won't pitch again this season for the Los Angeles Angels after straining his right forearm in his second start, manager Joe Maddon says.`\
-https://nytimes.com/aponline/2020/08/04/sports/baseball/ap-bba-angels-ohtani.html?searchResultPosition=9
-
-**Virus-Stricken Marlins Resume Season With 18 New Players**\
-`Scrambling for replacements following a coronavirus outbreak, the Miami Marlins added a Moran, a Morin, two pitchers named Josh Smith and a former Olympic medalist in speedskating. `\
-https://nytimes.com/aponline/2020/08/04/sports/baseball/ap-bbn-virus-outbreak-marlins.html?searchResultPosition=10
+https://nytimes.com/2020/08/04/world/middleeast/lebanon-explosion-beirut.html?searchResultPosition=10
 
