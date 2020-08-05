@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/08/05/business/ap-us-on-the-money-nerdwallet-f
 `The principle of religious freedom is important to most Americans. But as President Donald Trump touts his support for it during his reelection bid, there are notable fault lines among people of different faiths and political ideologies over what it truly means.`\
 https://nytimes.com/aponline/2020/08/05/us/politics/ap-us-rel-religious-freedom-divide.html?searchResultPosition=2
 
-**‘Godspell’ in 2020: Masks, Partitions, and a Contactless Crucifixion**\
+**‘Godspell’ in 2020: Masks, Partitions and a Contactless Crucifixion**\
 `The first professional musical staged in the United States since theater shut down is also a de facto public health experiment.`\
 https://nytimes.com/2020/08/05/theater/godspell-berkshires-coronavirus.html?searchResultPosition=3
 
