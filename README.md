@@ -1,40 +1,40 @@
-**Trump Says Legal for Him to Use White House for Republican Nomination Speech**\
-`President Donald Trump on Wednesday defended his suggestion of giving a speech from the White House accepting the Republican Party's presidential nomination, after lawmakers and ethicists said it was inappropriate and possibly illegal to use a nonpartisan, public site as a venue for a political address.`\
-https://nytimes.com/reuters/2020/08/05/us/politics/05reuters-usa-election-conventions-speech.html?searchResultPosition=1
+**Pollution Turns One Side of Divided Paraguayan Lagoon Purple**\
+`The Cerro Lagoon in the Paraguayan city of Limpio is sharply divided into two parts: one purple, one blue. One part emits a foul odor, the other doesn’t.`\
+https://nytimes.com/aponline/2020/08/05/world/americas/ap-lt-paraguay-purple-lagoon.html?searchResultPosition=1
 
-**Sally Yates, Under Attack by Republicans, Defends Flynn Investigation**\
-`The former deputy attorney general criticized the Justice Department’s decision to drop its prosecution of Michael T. Flynn, President Trump’s former national security adviser.`\
-https://nytimes.com/2020/08/05/us/politics/sally-yates-flynn-investigation.html?searchResultPosition=2
+**Subject of 'Audrie & Daisy' Documentary Dies by Suicide**\
+`A Missouri advocate for sexual abuse victims who became the subject of a Netflix documentary after alleging she was sexually assaulted at age 14 has died by suicide, according to her mother and a co-worker.`\
+https://nytimes.com/aponline/2020/08/05/us/ap-us-missouri-teen-sex-assault.html?searchResultPosition=2
 
-**Metropolitan Museum of Art Cuts 350 Staff Amid Coronavirus Outbreak**\
-`New York's Metropolitan Museum of Art is cutting a further 353 staff as the coronavirus pandemic takes its toll on museums around the world due to restrictions on movement and concerns about public gatherings.`\
-https://nytimes.com/reuters/2020/08/05/us/05reuters-health-coronavirus-new-york-museum-layoffs.html?searchResultPosition=3
+**Biden and Allies Stockpile $294 Million for Battle With Trump**\
+`Democratic presidential candidate Joe Biden and affiliated groups raised $140 million in July, his campaign said on Wednesday, lifting the amount they can spend on their battle to take the White House to $294 million.`\
+https://nytimes.com/reuters/2020/08/05/us/politics/05reuters-usa-election-biden-fundraising.html?searchResultPosition=3
 
-**Member of Conservative Think Tank Takes On Reporter Duties on Air Force Two**\
-`Instead of a member of the White House press corps, the role of pool reporter was filled by Robert B. Bluey, a vice president at the Heritage Foundation.`\
-https://nytimes.com/2020/08/05/us/politics/pence-bluey-air-force-two.html?searchResultPosition=4
+**It’s Never Too Late to Pursue a Dream, a Graduate Says. He Can Back It Up.**\
+`Sidetracked by poverty, World War II and family commitments, Giuseppe Paternò finally got his degree at 96. With honors, no less.`\
+https://nytimes.com/2020/08/05/world/europe/italy-graduate-96.html?searchResultPosition=4
 
-**Report Says Pilot Became Disoriented in Fatal Atlanta Crash**\
-`A Tennessee businessman who was flying a plane that crashed in Georgia in 2018 likely lost control after becoming disoriented in cloudy weather after taking off, a National Transportation Safety Board report said. `\
-https://nytimes.com/aponline/2020/08/05/us/ap-us-plane-crash-atlanta.html?searchResultPosition=5
+**Trump Says He Would Be in Favor of Helping U.S. Airlines**\
+`President Donald Trump said on Wednesday he would be in favor of helping U.S. airlines financially when he was asked about a group of Senate Republicans backing $25 billion payroll assistance for companies financially devastated by the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/08/05/business/05reuters-health-coronavirus-usa-airlines-trump.html?searchResultPosition=5
 
-**Facebook Removes Trump Post Over Coronavirus Misinformation**\
-`Facebook Inc on Wednesday took down a video by U.S. President Donald Trump in which he said children are "almost immune" to COVID-19, with the company saying it violated its rules against sharing misinformation about the coronavirus.`\
-https://nytimes.com/reuters/2020/08/05/technology/05reuters-facebook-trump.html?searchResultPosition=6
+**Porter Posts 2nd Straight 30-Point Game, Nuggets Beat Spurs**\
+`Michael Porter Jr. had 30 points and 15 rebounds, and the Denver Nuggets rallied in the fourth quarter to beat the San Antonio Spurs 132-126 on Wednesday. `\
+https://nytimes.com/aponline/2020/08/05/sports/basketball/bc-bkn-nuggets-spurs.html?searchResultPosition=6
 
-**U.S. Has Not Totally Ruled Out That Beirut Blast Was an Attack: White House Aide**\
-`White House Chief of Staff Mark Meadows said on Wednesday that the U.`\
-https://nytimes.com/reuters/2020/08/05/world/middleeast/05reuters-lebanon-security-blast-white-house.html?searchResultPosition=7
+**Fed Should Address Racial Gaps in Jobs, Income, Dems Propose**\
+`A group of congressional Democrats introduced legislation Wednesday that would require the Federal Reserve to pursue the elimination of racial disparities in jobs, wealth and income as one of its policy goals. `\
+https://nytimes.com/aponline/2020/08/05/business/bc-us-federal-reserve-racial-inequality.html?searchResultPosition=7
 
-**Coronavirus Briefing: What Happened Today**\
-`News on school reopenings — and closings — from New York, Chicago, Kenya and beyond.`\
-https://nytimes.com/2020/08/05/us/coronavirus-today.html?searchResultPosition=8
+**U.S. Senate's McConnell Says the Two Sides Far Apart on Coronavirus Relief**\
+`U.S. Senate Republican leader Mitch McConnell said on Wednesday the White House and Democratic leaders were far apart in talks on the next coronavirus relief legislation.`\
+https://nytimes.com/reuters/2020/08/05/us/05reuters-health-coronavirus-mcconnell.html?searchResultPosition=8
 
-**Progressives, School Reopenings, Beirut: Your Wednesday Evening Briefing**\
-`Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/08/05/briefing/progressives-school-reopenings-beirut.html?searchResultPosition=9
+**Former Guatemalan Minister Charged in U.S. With Laundering $10 Million**\
+`U.S. prosecutors charged Guatemalan former Economy Minister Asisclo Valladares on Wednesday with helping launder nearly $10 million in cash from drug traffickers and a corrupt politician.`\
+https://nytimes.com/reuters/2020/08/05/world/americas/05reuters-usa-guatemala.html?searchResultPosition=9
 
-**Videos Show Jail Officers Restraining North Carolina Inmate**\
-`Body camera videos from a North Carolina jail show a man who died days after his arrest struggling with guards to get up from where he lay on the floor, calling out for his mother and yelling “I can't breathe!” more than 20 times as they restrained him. `\
-https://nytimes.com/aponline/2020/08/05/us/ap-us-racial-injustice-north-carolina-death.html?searchResultPosition=10
+**Google Pulls 2,500 China-Linked YouTube Channels Over Disinformation**\
+`Google says it has deleted more than 2,500 YouTube channels tied to China as part of its effort to weed out disinformation on the videosharing platform.`\
+https://nytimes.com/reuters/2020/08/05/technology/05reuters-cyber-google-disinformation.html?searchResultPosition=10
 
