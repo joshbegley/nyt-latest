@@ -1,10 +1,10 @@
+**India's Long Ayodhya Dispute as Temple Construction Starts**\
+`Prime Minister Narendra Modi will lay a foundation stone for a Hindu temple on a site in northern India where a 16th century mosque was demolished by supporters of his Hindu nationalist party in 1992.`\
+https://nytimes.com/reuters/2020/08/05/world/asia/05reuters-india-religion-temple-facts-factbox.html?searchResultPosition=1
+
 **The Latest: Lebanese PM Appeals for Help After Beirut Blast**\
 `The Latest on the explosion in Beirut (all times local): `\
-https://nytimes.com/aponline/2020/08/05/world/middleeast/ap-ml-lebanon-explosion-the-latest.html?searchResultPosition=1
-
-**Factbox: India's Long Ayodhya Dispute as Temple Construction Starts**\
-`Prime Minister Narendra Modi will lay a foundation stone for a Hindu temple on a site in northern India where a 16th century mosque was demolished by supporters of his Hindu nationalist party in 1991.`\
-https://nytimes.com/reuters/2020/08/05/world/asia/05reuters-india-religion-temple-facts-factbox.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/05/world/middleeast/ap-ml-lebanon-explosion-the-latest.html?searchResultPosition=2
 
 **Honda Sees 68% Drop in Annual Profit as Coronavirus Slams Car Sales**\
 `Japan's Honda Motor Co on Wednesday forecast a 68% fall in annual operating profit to a 10-year low with global demand for cars expected to slide due to the coronavirus pandemic.`\
