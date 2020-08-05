@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/08/05/sports/ncaafootball/ap-fbc-colorado-stat
 `Authorities on Wednesday enforced security restrictions in many parts of Indian-controlled Kashmir, a year after New Delhi revoked the disputed region’s semi-autonomy in a decision that set of anger and economic ruin amid a harsh security clampdown.`\
 https://nytimes.com/aponline/2020/08/05/world/asia/ap-as-kashmir-revocation-anniversary.html?searchResultPosition=8
 
-**Coca Cola HBC Sees Recovery as Markets Reopen**\
-`Soft drinks bottler Coca Cola HBC AG said on Wednesday its performance recovered steadily from April lows as its markets gradually reopened from coronavirus-led lockdowns.`\
+**European Coke Bottler Sees Signs of Recovery After First-Half Profits Slide**\
+`Soft drinks bottler Coca Cola HBC AG on Wednesday posted a drop in first-half profit due to coronavirus-led closures of restaurants, cinemas and other public places, while saying sales had recovered some momentum from April lows as lockdowns eased.`\
 https://nytimes.com/reuters/2020/08/05/business/05reuters-coca-cola-hbc-results.html?searchResultPosition=9
 
 **7 Dead, 5 Injured in Migrant Car Crash in Northern Greece**\
