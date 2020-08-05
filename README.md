@@ -1,40 +1,40 @@
-**WH Smith Could Cut 1,500 Jobs in UK Restructuring**\
-`British retailer WH Smith said on Wednesday it could cut up to 1,500 jobs as part of a restructuring of its UK store operations due to a coronavirus-driven fall in customers at its travel and high street shops.`\
-https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-wh-smith-layoffs.html?searchResultPosition=1
+**China Central Bank Adviser Says No Need to Step Up Monetary Easing: Media**\
+`The People's Bank of China does not need to step up its policy easing as an economic recovery is well under way and further stimulus could stoke property and stock bubbles, central bank policy adviser Ma Jun said in remarks published on Wednesday.`\
+https://nytimes.com/reuters/2020/08/05/world/asia/05reuters-china-economy-monetary-policy.html?searchResultPosition=1
 
-**Turkish Aid Group Helps Beirut Victims, Ankara Offers Field Hospital**\
-`Turkey's Humanitarian Relief Foundation (IHH) is among those searching for survivors in Beirut after a massive blast in the city killed 100 people and injured nearly 4,000, and Ankara has offered to build a field hospital and help as needed.`\
-https://nytimes.com/reuters/2020/08/05/world/middleeast/05reuters-lebanon-security-blast-turkey.html?searchResultPosition=2
+**Another Cruise Ship in Norway Stalled Amid Infection Fears**\
+`A cruise ship with 123 passengers on board and a crew of 85 docked Wednesday in the Norwegian harbor of Bodoe but no one could disembark after a former passenger from Denmark tested positive for the coronavirus upon returning home. `\
+https://nytimes.com/aponline/2020/08/05/world/europe/ap-eu-virus-outbreak-norway-cruise-ship.html?searchResultPosition=2
 
-**Virgin Atlantic Airways Seeks U.S. Chapter 15 Bankruptcy Protection**\
-`Virgin Atlantic Airways Ltd [VA.UL] is seeking protection from  creditors in the United States under Chapter 15 of the U.S. Bankruptcy Code, which allows a foreign debtor to shield assets in this country, according to a court filing on Tuesday. `\
-https://nytimes.com/reuters/2020/08/05/business/05reuters-virgin-atlantic-bankruptcy.html?searchResultPosition=3
+**5 Minutes That Will Make You Love 21st-Century Composers**\
+`We asked Ivo van Hove, Justin Peck, Du Yun and others to pick the music that moves them. Listen to their choices.`\
+https://nytimes.com/2020/08/05/arts/music/five-minutes-classical-music.html?searchResultPosition=3
 
-**Hong Kong Reports 85 Coronavirus Cases as Authorities Battle Third Wave**\
-`Hong Kong reported 85 new coronavirus cases on Wednesday, including three that were locally transmitted, as authorities battle to control a third wave of the outbreak which has seen a resurgence in infections over the past month.`\
-https://nytimes.com/reuters/2020/08/05/world/asia/05reuters-health-coronavirus-hongkong.html?searchResultPosition=4
+**When the Bronx Was a Forest: Stroll Through the Centuries**\
+`Yankee Stadium was the site of a salt marsh. Concourse Plaza was a valley. Our critic walks with Eric W. Sanderson, a conservation ecologist.`\
+https://nytimes.com/2020/08/05/arts/design/bronx-virtual-tour.html?searchResultPosition=4
 
-**Russia's VTB Bank Raises Retail Lending Forecast Amid Record Low Rates**\
-`Russia's second largest lender VTB Bank revised up its retail lending growth forecast for 2020 to around 6% from a base scenario of 1.8% in May, a board member said on Wednesday, citing low real interest rates and increasing mortgage loans. `\
-https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-russia-banks-vtb.html?searchResultPosition=5
+**Greenwood Heights, Brooklyn: Open Space and Room to Breathe**\
+`The neighborhood around the Green-Wood Cemetery is known for being ‘spacious and airy’ — an appealing quality in the age of coronavirus.`\
+https://nytimes.com/2020/08/05/realestate/greenwood-heights-brooklyn-open-space-and-room-to-breathe.html?searchResultPosition=5
 
-**Australian Politician's Staffer Investigated for Advancing China's Interests**\
-`Australian federal police raided the home and office of a man employed by an Australian politician as part of a foreign interference investigation into whether he was working to advance "Chinese state interests", according to court documents.`\
-https://nytimes.com/reuters/2020/08/05/world/asia/05reuters-australia-security.html?searchResultPosition=6
+**Living In ... Greenwood Heights, Brooklyn**\
+`The neighborhood around the Green-Wood Cemetery is known for being ‘spacious and airy’ — an appealing quality in the age of coronavirus.`\
+https://nytimes.com/slideshow/2020/08/05/realestate/living-in-greenwood-heights-brooklyn.html?searchResultPosition=6
 
-**City Streets Drain of Life in Australia's Toughest Lockdown**\
-`Melbourne’s usually vibrant downtown streets were draining of signs of life on Wednesday on the eve of Australia’s toughest-ever pandemic restrictions coming into force.`\
-https://nytimes.com/aponline/2020/08/05/world/asia/ap-as-virus-outbreak-australia.html?searchResultPosition=7
+**Tennessee Republicans, Once Moderate and Genteel, Turn Toxic in the Trump Era**\
+`In the Senate primary race to replace Lamar Alexander, two candidates are fighting to see who can better emulate the president. It isn’t pretty.`\
+https://nytimes.com/2020/08/05/us/politics/tennnessee-trump-republican-party.html?searchResultPosition=7
 
-**Video Suggests Explosions in North Korean City Near China**\
-`A video obtained by The Associated Press shows plumes of black smoke rising from a North Korean city near the border with China amid reports that deadly explosions occurred there earlier this week.`\
-https://nytimes.com/aponline/2020/08/05/world/asia/ap-as-nkorea-explosions.html?searchResultPosition=8
+**Scrapbooking Isn’t Just for White People**\
+`People of color who craft are done being overlooked as customers and designers.`\
+https://nytimes.com/2020/08/05/style/scrapbooking-blm-black-lives-matter.html?searchResultPosition=8
 
-**Sri Lankans Vote for New Parliament, Shrugging Off Coronavirus Fear**\
-`Sri Lankans shrugged off fears of the novel coronavirus and streamed into polling centres on Wednesday to elect a new parliament that President Gotabaya Rajapaksa hopes will clear the way for him to boost his powers.`\
-https://nytimes.com/reuters/2020/08/05/world/asia/05reuters-sri-lanka-election.html?searchResultPosition=9
+**Thai Central Bank Keeps Key Rate at Record Low on Signs of Gradual Recovery**\
+`Thailand's central bank left its key interest rate unchanged at a record low for a second straight meeting on Wednesday, as the economy is showing signs of improvement with the easing of restrictions to halt the spread of the coronavirus outbreak.`\
+https://nytimes.com/reuters/2020/08/05/world/asia/05reuters-thailand-economy-rates.html?searchResultPosition=9
 
-**Foreign Investment in Dubai Plummets in First Half 2020**\
-`Foreign direct investment in Dubai fell by 74% in the first half of the year compared to the same period of 2019, as the coronavirus pandemic stalled parts of the global economy. `\
-https://nytimes.com/reuters/2020/08/05/world/middleeast/05reuters-emirates-dubai-investment.html?searchResultPosition=10
+**See for Yourself: How Airplanes Are Cleaned Today**\
+`Airlines are fine-tuning their cleaning procedures — where they clean, how frequently and with which tools. This is what the new processes look like.`\
+https://nytimes.com/2020/08/05/travel/coronavirus-airplane-cleaning.html?searchResultPosition=10
 
