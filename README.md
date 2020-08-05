@@ -1,40 +1,40 @@
+**Abu Dhabi's Tawazun to Build Satellite Centre With Airbus**\
+`Abu Dhabi state defence and security entity Tawazun is to build a satellite assembly, integration and testing centre with Airbus in the United Arab Emirates' oasis city of Al Ain, state news agency WAM reported on Wednesday.`\
+https://nytimes.com/reuters/2020/08/05/technology/05reuters-emirates-satellite-airbus.html?searchResultPosition=1
+
+**Districts Go Round and Round on School Bus Reopening Plans**\
+`School districts nationwide puzzling over how to safely educate children during a pandemic have a more immediate challenge — getting 26 million bus-riding students there in the first place.`\
+https://nytimes.com/aponline/2020/08/05/us/ap-us-virus-outbreak-school-buses.html?searchResultPosition=2
+
+**Telemedicine Provider Teledoc to Spend $18.5B on Livongo**\
+`Teladoc will spend more than $18 billion to buy digital health platform operator Livongo in a deal aimed at stoking explosive growth in remote care spurred by the pandemic. `\
+https://nytimes.com/aponline/2020/08/05/business/ap-teledoc-livongo-acquisition.html?searchResultPosition=3
+
+**Greek PM Warns Over Jump in COVID-19 Cases, Says New Curbs Possible**\
+`Greeks must stick to rules aimed at containing the coronavirus more closely than ever, the country's prime minister said on Wednesday, warning of new restrictions if a worrying rise in daily cases does not abate.`\
+https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-health-coronavirus-greece.html?searchResultPosition=4
+
+**Electric Vehicle Charge Network ChargePoint Bags $127 Million From Investors**\
+`ChargePoint, one of the world's oldest and largest electric vehicle charging networks, has closed on a $127 million funding round, much of it from existing investors, the company said on Wednesday.`\
+https://nytimes.com/reuters/2020/08/05/business/05reuters-electric-vehicles-charging-chargepoint.html?searchResultPosition=5
+
+**European Funds Post €706.2 Billion Trading Loss in First Half: Lipper**\
+`The coronavirus pandemic has hit European funds, which suffered trading losses of 706.4 billion euros ($835 billion) in the first six months of 2020, according to Refinitiv Lipper data released on Wednesday.`\
+https://nytimes.com/reuters/2020/08/05/business/05reuters-funds-investment-lipper.html?searchResultPosition=6
+
 **Capri Posts Smaller-Than-Expected Loss Boosted by Online Demand**\
 `Michael Kors-owner Capri Holdings Ltd reported a smaller-than-expected quarterly loss on Wednesday, helped by higher online orders from consumers stuck indoors due the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/08/05/business/05reuters-capri-holdings-results.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/05/business/05reuters-capri-holdings-results.html?searchResultPosition=7
 
 **At Least 17 Killed as Bangladesh Passenger Boat Capsizes**\
 `A passenger boat carrying more than 40 people capsized Wednesday in a marshy wetland in northern Bangladesh, killing at least 17 people, an official said.`\
-https://nytimes.com/aponline/2020/08/05/world/asia/ap-as-bangladesh-boat-capsizes.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/05/world/asia/ap-as-bangladesh-boat-capsizes.html?searchResultPosition=8
 
 **Cuomo Takes Over Governors Group as Virus Batters States**\
 `The governor who in large measure has defined states' up-and-down fight against the coronavirus, including occasional combat with the White House, is poised to widen his national spotlight.`\
-https://nytimes.com/aponline/2020/08/05/us/ap-us-governors-leadership-change.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/05/us/ap-us-governors-leadership-change.html?searchResultPosition=9
 
 **As Dollar Slides, Some Investors Fret About Its Status as World's Reserve Currency**\
 `Some investors are worried the U.S. response to the coronavirus pandemic is dealing a body blow to the dollar, potentially accelerating what has so far been a slow erosion in the greenback's status as the world's dominant reserve currency.`\
-https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-usa-markets-dollar-analysis.html?searchResultPosition=4
-
-**Lebanese President Promises Transparent Inquiry Into Beirut Blast**\
-`Lebanon's president said on Wednesday that an investigation into a powerful blast that rocked Beirut would reveal the circumstances of what happened as soon as possible, and that the results would be revealed transparently.`\
-https://nytimes.com/reuters/2020/08/05/world/middleeast/05reuters-lebanon-security-blast-president.html?searchResultPosition=5
-
-**Regeneron Pharma Posts Quarterly Profit on $228 Million Gain**\
-`Regeneron Pharmaceuticals Inc reported a quarterly profit on Wednesday that rose more than four times, helped by a $228 million gain and on higher sales of its blockbuster eczema treatment Dupixent.    `\
-https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-regeneronpharms-results.html?searchResultPosition=6
-
-**Mail Voting’s Latest Test**\
-`Kris Kobach falls, and Cori Bush rises: This is your morning tip sheet.`\
-https://nytimes.com/2020/08/05/us/politics/mail-voting-primaries.html?searchResultPosition=7
-
-**‘Sunless Shadows’ Review: A Harsh Look at Iranian Women in Prison**\
-`Mehrdad Oskouei’s documentary brings empathy to a tough subject: women and girls convicted of murdering male family members.`\
-https://nytimes.com/2020/08/05/movies/sunless-shadows-review.html?searchResultPosition=8
-
-**Disney's Surprise Profit Bolsters Futures Ahead of Economic Data**\
-`U.S. stock futures rose on Wednesday after Disney squeezed out a quarterly profit despite taking a $5-billion charge due to the pandemic, while investors awaited data on private payrolls and the service sector to gauge the country's economic health. `\
-https://nytimes.com/reuters/2020/08/05/business/05reuters-usa-stocks.html?searchResultPosition=9
-
-**Japan's Climate Change Efforts Hindered by Biased Business Lobby: Study**\
-`Japan's powerful business lobby Keidanren is dominated by energy-intensive sectors that represent less than 10% of the economy, resulting in national policies that favour coal and hindering attempts to combat climate change, a new study said.`\
-https://nytimes.com/reuters/2020/08/05/technology/05reuters-climate-change-japan-coal.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-usa-markets-dollar-analysis.html?searchResultPosition=10
 
