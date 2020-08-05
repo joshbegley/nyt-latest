@@ -1,40 +1,40 @@
+**AP Interview: Martins Is Portugal's Latest Coaching Success**\
+`Fresh from winning the Greek league with Olympiakos, Pedro Martins looks around the world with pride at the achievements of his fellow Portuguese coaches. Lockdown provided a rare chance to catch up with many of them at length.`\
+https://nytimes.com/aponline/2020/08/05/sports/soccer/ap-soc-olympiakos-martens.html?searchResultPosition=1
+
+**Trump Considering Giving Convention Speech From White House**\
+`President Donald Trump said Wednesday that he's considering delivering his Republican convention acceptance speech from the White House in a move that would mark an unprecedented use of public property for partisan political purposes.`\
+https://nytimes.com/aponline/2020/08/05/us/politics/ap-us-election-2020-trump.html?searchResultPosition=2
+
+**A Shattered Beirut Emerges From the Rubble Stunned, Wounded**\
+`Residents of Beirut —stunned, sleepless and stoic — emerged Wednesday from the aftermath of a catastrophic explosion searching for missing relatives, bandaging their wounds and retrieving what's left of their homes.`\
+https://nytimes.com/aponline/2020/08/05/world/middleeast/ap-ml-lebanon-devastated-beirut.html?searchResultPosition=3
+
+**Three Cranes Collapse at India's Biggest Container Port Near Mumbai**\
+`Three cranes collapsed at India's largest container port on the outskirts of Mumbai due to strong winds on Wednesday, police and port officials said.`\
+https://nytimes.com/reuters/2020/08/05/world/asia/05reuters-indiaports-floods.html?searchResultPosition=4
+
+**Daimler Deepens Battery Alliance With CATL to Include R&D**\
+`Daimler on Wednesday said it was deepening an alliance with Chinese battery maker CATL to deliver battery packs capable of giving Mercedes-Benz cars 700 kilometres of range at higher recharging speeds.`\
+https://nytimes.com/reuters/2020/08/05/technology/05reuters-daimler-catl-research.html?searchResultPosition=5
+
+**Turkey Announces Inspections, Measures to Curb COVID-19 Rise**\
+`Turkey’s interior ministry announced new measures Wednesday to curb the spread of COVID-19 as daily confirmed cases peaked back above 1,000.`\
+https://nytimes.com/aponline/2020/08/05/world/europe/ap-eu-virus-outbreak-turkey.html?searchResultPosition=6
+
+**Mourners Honor Nobel Laureate and Peace Advocate John Hume**\
+`Mourners remembered activist John Hume on Wednesday, celebrating the visionary politician who devoted his life to peace and forged the agreement that ended violence in his native Northern Ireland.`\
+https://nytimes.com/aponline/2020/08/05/world/europe/ap-eu-nireland-hume-funeral.html?searchResultPosition=7
+
+**Ukraine's Leader Asks Belarus to Transfer Detained Russians**\
+`Ukraine's president asked the leader of Belarus on Wednesday to hand over some Russian security contractors detained on terrorism charges who also are accused of fighting alongside Russia-backed separatists in eastern Ukraine. `\
+https://nytimes.com/aponline/2020/08/05/world/europe/ap-eu-ukraine-belarus-russia.html?searchResultPosition=8
+
+**Israel's Sight Diagnostics Raises $71 Million for Its Blood Analyzer**\
+`Israel's Sight Diagnostics said on Wednesday it raised $71 million in private funding to expand sales of its finger-prick blood analyzer and support research and development.`\
+https://nytimes.com/reuters/2020/08/05/business/05reuters-health-sight-diagnostics-fundraising.html?searchResultPosition=9
+
 **Facebook Launches TikTok-Like Product Inside Instagram**\
 `Facebook rolled out its own version of social media rival TikTok in the United States and more than 50 other countries on Wednesday, embedding a new short-form video service called Reels as a feature within its popular Instagram app.`\
-https://nytimes.com/reuters/2020/08/05/technology/05reuters-facebook-instagram-tiktok.html?searchResultPosition=1
-
-**U.S. to Pay Over $1 Billion for 100 Million Doses of Johnson & Johnson's Potential COVID-19 Vaccine**\
-`The United States government will pay Johnson & Johnson over $1 billion for 100 million doses of its investigational coronavirus vaccine, the drugmaker said on Wednesday.`\
-https://nytimes.com/reuters/2020/08/05/us/05reuters-health-coronavirus-usa-johnsonandjohnson.html?searchResultPosition=2
-
-**Fed's Clarida Says U.S. Economy Could Return to Pre-Pandemic Levels by End of 2021**\
-`While U.S. economic growth slowed in July, the rebound could pickup in the third quarter and the economy could reach pre-pandemic levels by the end of next year, Federal Reserve Vice Chairman Richard Clarida said Wednesday. `\
-https://nytimes.com/reuters/2020/08/05/us/05reuters-usa-fed-clarida.html?searchResultPosition=3
-
-**UConn Cancels Football Season Because of Coronavirus**\
-`Connecticut is the first member of the Football Bowl Subdivision, the top level of football in the N.C.A.A., to declare it will not play the sport in the fall.`\
-https://nytimes.com/2020/08/05/sports/ncaafootball/coronavirus-uconn-cancels-football.html?searchResultPosition=4
-
-**Portugal's Azores Breached Constitution by Imposing Quarantine on Visitors**\
-`Portugal's Azores Islands, some 1,400 km from the Portuguese coast, breached the national constitution by forcing air passengers to the popular tourist destination to quarantine for 14 days, the country's Constitutional Court has ruled. `\
-https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-health-coronavirus-portugal-azores.html?searchResultPosition=5
-
-**Bulgaria: PM Borissov Offers to Step Down to Save Government**\
-`Bulgarian Prime Minister Boyko Borissov on Wednesday offered to step down if that would keep his troubled coalition government in place. `\
-https://nytimes.com/aponline/2020/08/05/us/politics/ap-eu-bulgaria-politics.html?searchResultPosition=6
-
-**U.S. Trade Deficit Shrinks in June**\
-`The U.S. trade deficit narrowed in June as exports rebounded following several months of decreases, suggesting an improvement in global demand after being depressed by the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/08/05/us/05reuters-usa-economy-tradefigures.html?searchResultPosition=7
-
-**$300,000 Homes in Connecticut, Indiana and Oregon**\
-`A rebuilt cottage with a pollinator garden in Litchfield County, a renovated 1914 house in Indianapolis and a floating house on an island in Portland.`\
-https://nytimes.com/2020/08/05/realestate/300000-dollar-homes-for-sale-in-ct-or-in.html?searchResultPosition=8
-
-**What You Get for $300,000**\
-`A cottage with a pollinator garden in Washington, Conn.; a renovated 1914 house in Indianapolis; and a floating house on an island in Portland, Ore.`\
-https://nytimes.com/slideshow/2020/08/05/realestate/what-you-get-for-300000.html?searchResultPosition=9
-
-**Pete Hamill, Quintessential New York Journalist, Dies at 85**\
-`He was, among other things, a celebrated reporter, columnist and the top editor of The New York Post and The Daily News and the author of numerous books.`\
-https://nytimes.com/2020/08/05/nyregion/pete-hamill-dead.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/05/technology/05reuters-facebook-instagram-tiktok.html?searchResultPosition=10
 
