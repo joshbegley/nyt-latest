@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/08/05/us/politics/ap-us-trump-mail-voting.html
 `Andre Chani said he once earned thousands of dollars a month driving Europe-bound migrants from Niger's desert trading hub of Agadez to Libya. `\
 https://nytimes.com/reuters/2020/08/05/world/africa/05reuters-niger-migrants-europe-insight.html?searchResultPosition=9
 
-**The Latest: Lebanese PM Appeals for Help After Beirut Blast**\
+**The Latest: International Aid Heads to Beirut After Blast**\
 `The Latest on the explosion in Beirut (all times local): `\
 https://nytimes.com/aponline/2020/08/05/world/middleeast/ap-ml-lebanon-explosion-the-latest.html?searchResultPosition=10
 
