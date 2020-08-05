@@ -1,40 +1,40 @@
+**Switzerland Nears Deal to Get Moderna COVID Vaccine, Official Says**\
+`Switzerland is close to signing a deal to secure access for a coronavirus vaccine being developed by Moderna of the U.S., a government official has said.`\
+https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-health-coronavirus-swiss-vaccine.html?searchResultPosition=1
+
+**Japan's Honda Sinks for Quarter as Pandemic Crashes Sales**\
+`Japanese automaker Honda reported Wednesday it sank into the red for the April-June quarter, as its sales plunged over the coronavirus pandemic, especially in the U.S., Japan and India. `\
+https://nytimes.com/aponline/2020/08/05/business/ap-as-japan-earns-honda.html?searchResultPosition=2
+
+**Doctors in Japan Caution Against Domestic Travel Amid COVID-19 Resurgence**\
+`Japanese holidaymakers should refrain from domestic travel and regional governments should act independently to contain a resurgence of coronavirus infections, the country's top doctors' association said on Wednesday.    `\
+https://nytimes.com/reuters/2020/08/05/world/asia/05reuters-health-coronavirus-japan-regions.html?searchResultPosition=3
+
+**BMW Loses 212 Million Euros in Q2, Sees Rebound in China**\
+`German automaker BMW AG lost 212 million euros ($250 million) in the second quarter as the coronavirus pandemic shutdowns cut vehicle sales by a quarter in the April-June period. The company saw a rebound in China, its biggest market. `\
+https://nytimes.com/aponline/2020/08/05/business/bc-germany-earns-bmw.html?searchResultPosition=4
+
+**Britain Working on Help for Lebanon After Massive Blast, Minister Says**\
+`Britain is working urgently to decide what technical and financial help it could provide to Lebanon after a massive blast ripped through Beirut killing at least 100 people. `\
+https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-lebanon-security-blast-britain-help.html?searchResultPosition=5
+
 **SMIC Founder Says 'Optimistic' China Can Catch Up With U.S. in Semiconductors**\
 `The founder of China's largest chipmaker SMIC said on Tuesday he was "optimistic" China could catch up with the United States in the next generation of semiconductors but that U.S. efforts to contain its technology sector could not be taken "lightly".`\
-https://nytimes.com/reuters/2020/08/05/technology/05reuters-china-semiconductors.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/05/technology/05reuters-china-semiconductors.html?searchResultPosition=6
 
 **What We Know and Don’t Know About the Beirut Explosions**\
 `More than 100 people were killed, and the second blast was felt in Cyprus. An investigation and a search for survivors are underway.`\
-https://nytimes.com/2020/08/05/world/middleeast/beirut-explosion-what-happened.html?searchResultPosition=2
+https://nytimes.com/2020/08/05/world/middleeast/beirut-explosion-what-happened.html?searchResultPosition=7
 
 **Kenya Private Sector Expands at Strongest Level in a Year: PMI**\
 `Activity in Kenya's private sector rose at its fastest pace in a year last month on the back of a gradual easing of coronavirus lockdown measures, a survey showed on Wednesday.`\
-https://nytimes.com/reuters/2020/08/05/world/africa/05reuters-kenya-pmi.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/05/world/africa/05reuters-kenya-pmi.html?searchResultPosition=8
 
 **Copenhagen Airports to Lay Off 650 Staff**\
 `Denmark's Copenhagen Airports is considering laying off 650 staff as a result of the low level of activity in the aviation sector due to the coronavirus pandemic, the company said in a statement on Wednesday.`\
-https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-copenhagen-airports-layoffs.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-copenhagen-airports-layoffs.html?searchResultPosition=9
 
 **European Shares Lifted by Positive Earnings Reports**\
 `European shares rose on Wednesday, as a batch of positive earnings reports and the huge quantities of stimulus coursing through the financial system again overshadowed concerns about the surge in coronavirus cases in Europe and the United States.`\
-https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-europe-stocks.html?searchResultPosition=5
-
-**South Africa's Sharp Economic Downturn Extends Into July: PMI**\
-`South Africa's economic downturn extended into last month, though businesses still reeling from the impact of the COVID-19 pandemic reported slightly less steep in output and new orders, a survey showed on Wednesday.`\
-https://nytimes.com/reuters/2020/08/05/world/africa/05reuters-safrica-economy-pmi.html?searchResultPosition=6
-
-**Spain's Services Sector Grows in July in Modest Rebound From Lockdown: PMI**\
-`Spain's services sector grew modestly for the second month in a row in July after a coronavirus lockdown decimated economic activity in April and May, but firms still shed jobs amid an uncertain future, a survey showed on Wednesday.`\
-https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-spain-economy-pmi.html?searchResultPosition=7
-
-**India's Lupin to Sell Generic COVID-19 Drug Favipiravir**\
-`Lupin Ltd on Wednesday became the latest Indian drugmaker to launch a version of the antiviral drug favipiravir to treat COVID-19 in the world's third most affected country.`\
-https://nytimes.com/reuters/2020/08/05/world/asia/05reuters-health-coronavirus-lupin.html?searchResultPosition=8
-
-**Trump Encourages Mail Voting in Florida, but Sues in Nevada**\
-`In an abrupt reversal, President Donald Trump is encouraging voters in the critical swing state of Florida to vote by mail after months of criticizing the practice — and while his campaign and the GOP challenge Nevada over its new vote-by-mail law.`\
-https://nytimes.com/aponline/2020/08/05/us/politics/ap-us-trump-mail-voting.html?searchResultPosition=9
-
-**EU Effort to Stem African Migration Leaves Some Ex-Smugglers Empty Handed**\
-`Andre Chani said he once earned thousands of dollars a month driving Europe-bound migrants from Niger's desert trading hub of Agadez to Libya. `\
-https://nytimes.com/reuters/2020/08/05/world/africa/05reuters-niger-migrants-europe-insight.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/05/world/europe/05reuters-europe-stocks.html?searchResultPosition=10
 
