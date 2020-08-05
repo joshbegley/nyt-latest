@@ -1,40 +1,40 @@
+**Videos Show Jail Officers Restraining North Carolina Inmate**\
+`Body camera videos from a North Carolina jail show a man who died days after his arrest struggling with guards to get up from where he lay on the floor, calling out for his mother and yelling “I can't breathe!” more than 20 times as they restrained him. `\
+https://nytimes.com/aponline/2020/08/05/us/ap-us-racial-injustice-north-carolina-death.html?searchResultPosition=1
+
+**FAA: Boeing Pressured Safety Workers at SC Aircraft Plant**\
+`Federal officials are seeking to fine Boeing $1.25 million, saying Wednesday that company managers pressured employees who were designated to perform safety-related work at a South Carolina plant.`\
+https://nytimes.com/aponline/2020/08/05/business/ap-us-faa-boeing.html?searchResultPosition=2
+
+**Trolls Doll Pulled After Complaints It Promotes Child Abuse**\
+`A Trolls doll is being pulled off store shelves amid complaints it promotes child abuse. `\
+https://nytimes.com/aponline/2020/08/05/business/ap-us-trolls-doll-controversy.html?searchResultPosition=3
+
+**U.S. Lawmaker Calls on Trump Administration to Review Stimulus Loans to China-Linked Firms**\
+`A U.S. Republican congressman urged the Trump administration to review millions in coronavirus stimulus loans paid to U.S. companies with ties to China's aviation and defense industries, amid deepening tensions between Beijing and Washington.  `\
+https://nytimes.com/reuters/2020/08/05/business/05reuters-usa-china-ppp.html?searchResultPosition=4
+
+**Liability Shield Is a Stumbling Block as Lawmakers Debate Relief**\
+`Athletes have joined workers who believe legal protections for corporations are not warranted. Senate Republicans support a shield but the White House has been noncommittal.`\
+https://nytimes.com/2020/08/05/us/politics/liability-shield-business-coronavirus.html?searchResultPosition=5
+
+**Progressive Victories Signal Staying Power for the Movement**\
+`After Bernie Sanders fell to Joe Biden, the young left mourned what could have been. Now, after a series of victories in congressional races, it’s hopeful again.`\
+https://nytimes.com/2020/08/05/us/politics/election-primary-results.html?searchResultPosition=6
+
+**What is Ammonium Nitrate, Blamed in the Beirut Explosion?**\
+`In ordinary circumstances, ammonium nitrate is fertilizer. But when placed under stress of heat and pressure, it acts like a bomb.`\
+https://nytimes.com/2020/08/05/world/middleeast/beirut-explosion-ammonium-nitrate.html?searchResultPosition=7
+
+**Trump’s Bank Was Subpoenaed by N.Y. Prosecutors in Criminal Inquiry**\
+`The subpoena, sent to Deutsche Bank, suggests that the inquiry into President Trump’s business practices is more wide-ranging than previously known.`\
+https://nytimes.com/2020/08/05/nyregion/trump-taxes-vance-deutsche-bank.html?searchResultPosition=8
+
 **Brazil's Court Rules Government Must Protect Tribes From Coronavirus**\
 `Brazil's Supreme Court ruled on Wednesday that President Jair Bolsonaro's government must adopt measures to stop the spread of novel coronavirus to the country's vulnerable indigenous communities.`\
-https://nytimes.com/reuters/2020/08/05/world/americas/05reuters-health-coronavirus-brazil-indigenous.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/05/world/americas/05reuters-health-coronavirus-brazil-indigenous.html?searchResultPosition=9
 
 **State Dept. Traces Russian Disinformation Links**\
 `A new government report avoids direct discussion of American election interference by Moscow, despite lawmakers’ call for more information.`\
-https://nytimes.com/2020/08/05/us/politics/state-department-russian-disinformation.html?searchResultPosition=2
-
-**US Charges Ex-Guatemala Economy Chief With Money Laundering**\
-`United States prosecutors charged a former Guatemala economy minister Wednesday in a purported money laundering conspiracy that allegedly took drug proceeds and converted them into bribes for corrupt politicians.`\
-https://nytimes.com/aponline/2020/08/05/us/ap-lt-us-guatemala-corruption.html?searchResultPosition=3
-
-**Ivanka Trump Nets $4M at Fundraiser for President Trump**\
-`President Donald Trump’s daughter Ivanka Trump raised $4 million for his reelection campaign Wednesday during a virtual event that marked her return to the high-dollar fundraising circuit.`\
-https://nytimes.com/aponline/2020/08/05/us/politics/ap-us-ivanka-trump.html?searchResultPosition=4
-
-**Trump Says He Is Exploring Executive Action on Evictions and Unemployment Relief**\
-`U.S. President Donald Trump said on Wednesday he is exploring executive action to curb evictions and offer unemployment relief, as lawmakers and the administration remain at loggerheads over the contours of the next coronavirus stimulus bill.  `\
-https://nytimes.com/reuters/2020/08/05/us/05reuters-usa-trump-evictions.html?searchResultPosition=5
-
-**White House' Meadows Does Not Expect Trump to Give Republican Nomination Address From Oval Office**\
-`White House Chief of Staff Mark Meadows said Tuesday he does not expect President Trump to accept the Republican Party’s presidential nomination in a speech from the White House Oval Office.`\
-https://nytimes.com/reuters/2020/08/05/us/politics/05reuters-usa-election-convention-meadows.html?searchResultPosition=6
-
-**Virus ‘Checkpoints’ in N.Y.C. to Enforce Travel Rules? Well, Not Exactly**\
-`The mayor is sending the sheriff to city bridges and tunnels to try and ward off a second wave of the coronavirus.`\
-https://nytimes.com/2020/08/05/nyregion/nyc-coronavirus-quarantine-checkpoints.html?searchResultPosition=7
-
-**Viola Davis, LeBron James Among Honorees at AAFCA TV Honors**\
-`Viola Davis, Sterling K. Brown and LeBron James are among several honorees at the AAFCA TV Honors later this month. `\
-https://nytimes.com/aponline/2020/08/05/us/ap-us-aafca-tv-honors.html?searchResultPosition=8
-
-**New Orleans Prosecutor Faces $50,000 Penalty in Records Case**\
-`New Orleans' district attorney has been ordered to pay more than $50,000 in penalties for failing to produce public records related to a 2015 request. `\
-https://nytimes.com/aponline/2020/08/05/us/ap-us-prosecutor-sued.html?searchResultPosition=9
-
-**New Chief of Embattled Colorado Force Wants Cops to See Bias**\
-`The new leader of the suburban Denver police department whose officers put Elijah McClain in a chokehold before the young Black man died last year and handcuffed Black girls over the weekend said Wednesday that she is committed to rebuilding the public's trust by empowering police to veer away from strict training protocols and think about whether they are acting on their biases.`\
-https://nytimes.com/aponline/2020/08/05/us/ap-us-racial-injustice-colorado.html?searchResultPosition=10
+https://nytimes.com/2020/08/05/us/politics/state-department-russian-disinformation.html?searchResultPosition=10
 
