@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/08/06/business/06reuters-health-coronavirus-fac
 `The Philadelphia Phillies and Miami Marlins will play seven times in five days as part of Major League Baseball’s reconfigured schedule released Thursday to account for 21 coronavirus-caused postponements in the first two weeks of the season.`\
 https://nytimes.com/aponline/2020/08/06/sports/baseball/ap-bbo-virus-outbreak-reworked-schedule.html?searchResultPosition=3
 
-**US Ambassador Says Iran Is World No, 1 Sponsor of Terrorism**\
+**US Ambassador Says Iran Is World No. 1 Sponsor of Terrorism**\
 `The U.S. ambassador to the United Nations called Iran “the world’s number one sponsor of terrorism” on Thursday and warned Russia and China that they will become “co-sponsors” if they block a resolution to extend the U.N. arms embargo on Iran. `\
 https://nytimes.com/aponline/2020/08/06/world/middleeast/ap-un-united-nations-us-iran.html?searchResultPosition=4
 
