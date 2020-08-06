@@ -1,40 +1,40 @@
+**NBA Team Owners Pledge $300 Million Over 10 Years to Black Empowerment**\
+`National Basketball Association (NBA) team owners will contribute a total of $300 million over the next 10 years to a charitable foundation aimed at accelerating economic growth in the Black community, the league said on Wednesday.`\
+https://nytimes.com/reuters/2020/08/06/sports/basketball/06reuters-basketball-nba.html?searchResultPosition=1
+
+**Dollar Struggles Ahead of Job Figures as Investors Fret Over U.S. Recovery**\
+`The dollar struggled on Thursday under the weight of worries the U.S. economic recovery may lag other countries due to a high level of coronavirus infections, as investors looked to upcoming data on the U.S. labour market.`\
+https://nytimes.com/reuters/2020/08/06/world/asia/06reuters-global-forex.html?searchResultPosition=2
+
+**Police Identify Suspect in Seattle Killing During June Protests**\
+`The police have charged an 18-year-old with first-degree murder. He remains at large.`\
+https://nytimes.com/2020/08/06/us/suspect-in-seattle-killing-june-protests.html?searchResultPosition=3
+
+**Calhoun's Inside-The-Park HR Sparks D-Backs Past Astros 14-7**\
+`Kole Calhoun hit his first career inside-the-park homer with the help of a crazy bounce, David Peralta had four RBIs and the Arizona Diamondbacks used a nine-run burst in the fourth inning to beat the Houston Astros 14-7 on Wednesday night.`\
+https://nytimes.com/aponline/2020/08/06/sports/baseball/ap-bbo-astros-diamondbacks.html?searchResultPosition=4
+
+**A's Top Rangers 6-4, Win 5th Straight Behind Olson's 2 HRs**\
+`Matt Olson homered twice, Ramon Laureano also went deep and the Oakland Athletics rallied to beat the Texas Rangers 6-4 on Wednesday night.`\
+https://nytimes.com/aponline/2020/08/06/sports/baseball/ap-bba-rangers-athletics.html?searchResultPosition=5
+
+**VP Contender's Cuba Baggage a Burden in Florida**\
+`Until recently, Robert Lewis had never heard of Karen Bass, the California congresswoman in contention to be Democrat presidential candidate Joe Biden's running mate.`\
+https://nytimes.com/aponline/2020/08/06/us/politics/ap-us-election-2020-bass-florida.html?searchResultPosition=6
+
 **Singapore Monitoring Spate of Suicides Among Migrant Workers**\
 `Singapore is monitoring a recent spate of suicides and attempted suicides involving migrants which have heightened concerns over the mental health of thousands of low-paid workers confined to their dormitories in the city-state due to COVID-19.`\
-https://nytimes.com/reuters/2020/08/06/world/asia/06reuters-health-coronavirus-singapore-migrants.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/06/world/asia/06reuters-health-coronavirus-singapore-migrants.html?searchResultPosition=7
 
 **Parker, Gray Lead Sparks to 86-75 Win Over Fever**\
 `Candace Parker had 18 points and 11 rebounds, Chelsea Gray scored 16 points, and the Los Angeles Sparks beat the Indiana Fever 86-75 on Wednesday night. `\
-https://nytimes.com/aponline/2020/08/06/sports/basketball/bc-bkl-fever-sparks.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/06/sports/basketball/bc-bkl-fever-sparks.html?searchResultPosition=8
 
 **Obama's Medicaid Expansion Keeps Gaining Ground Under Trump**\
 `ATTN DESK: FOR THURS PMs. CAN BE ILLUSTRATED WITH FILE ART OF MISSOURI VOTERS. KEVIN VINEYS IS WORKING ON A MAP.`\
-https://nytimes.com/aponline/2020/08/06/business/ap-us-medicaid-expansion.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/06/business/ap-us-medicaid-expansion.html?searchResultPosition=9
 
 **Justice Thomas Maps Own Course, at Wheel of His 40-Foot Bus**\
 `Supreme Court Justice Clarence Thomas has never been afraid to turn right when his colleagues turn left, or in any direction really as long as there’s a place to plug in his 40-foot refitted tour bus at the end of the day.`\
-https://nytimes.com/aponline/2020/08/06/us/politics/ap-us-supreme-court-thomas.html?searchResultPosition=4
-
-**No Hoopla: Virus Upends Trump, Biden Convention Plans**\
-`At the last minute, President Donald Trump and his Democratic rival, Joe Biden, are searching for places to impressively yet safely accept their parties' presidential nominations as the spread of the coronavirus adds fresh uncertainty to the campaign for the White House.`\
-https://nytimes.com/aponline/2020/08/06/us/politics/ap-us-election-2020-conventions.html?searchResultPosition=5
-
-**Timeline: Thailand's Turbulent Politics Since 2014 Military Coup**\
-`Thai protesters, led by student groups, are returning to the streets calling for the ousting of the government less than two years after a general election was held. One group has openly criticised the monarchy, in a rare show of defiance. `\
-https://nytimes.com/reuters/2020/08/06/world/asia/06reuters-thailand-politics-timeline.html?searchResultPosition=6
-
-**'We Don't Seem to Learn': Beirut Explosion Echoes US Tragedy**\
-`The staggering videos from the Lebanese capital are grimly familiar to Tommy Muska thousands of miles away in Texas: a towering blast, a thundering explosion and shock waves demolishing buildings with horrifying speed. `\
-https://nytimes.com/aponline/2020/08/06/us/politics/ap-us-lebanon-us-risks.html?searchResultPosition=7
-
-**Capitol Negotiators Still Stuck, Still Trying on Virus Aid**\
-`After more than a week’s worth of meetings, at least some clarity is emerging in the bipartisan Washington talks on a huge COVID-19 response bill. Negotiators are still stuck, but still trying.`\
-https://nytimes.com/aponline/2020/08/06/business/ap-us-virus-outbreak-congress.html?searchResultPosition=8
-
-**Two U.S. Senators Seek Ban on Collecting Customer Biometric Data Without Consent**\
-`Two U.S. senators are proposing legislation to prohibit private companies from collecting biometric data without consumers and employees' consent.`\
-https://nytimes.com/reuters/2020/08/06/technology/06reuters-usa-congress-facial-recognition.html?searchResultPosition=9
-
-**Seeking Refuge in US, Children Fleeing Danger Are Expelled**\
-`When officers led them out of a detention facility near the U.S.-Mexico border and onto a bus last month, the 12-year-old from Honduras and his 9-year-old sister believed they were going to a shelter so they could be reunited with their mother in the Midwest. `\
-https://nytimes.com/aponline/2020/08/06/us/ap-us-virus-outbreak-migrant-children.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/06/us/politics/ap-us-supreme-court-thomas.html?searchResultPosition=10
 
