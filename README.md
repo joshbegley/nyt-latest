@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/08/06/sports/06reuters-sport-doping-wada.html?s
 `Among the attacks President Trump leveled against Joseph R. Biden Jr. during the speech, he accused the former vice president of being “against God.”`\
 https://nytimes.com/video/us/politics/100000007276768/trump-biden-god-ohio.html?searchResultPosition=2
 
-**Commission Rejects Trump’s Request to Add a 4th Presidential Debate**\
+**A 4th Presidential Debate? Commission Says No to Trump**\
 `The Trump campaign had argued that the current schedule would render the debates useless to the many Americans who will vote by mail before they take place.`\
 https://nytimes.com/2020/08/06/us/politics/presidential-debates-trump-biden.html?searchResultPosition=3
 
