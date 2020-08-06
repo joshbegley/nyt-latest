@@ -1,40 +1,40 @@
+**Joshua Wong and Other Hong Kong Activists Charged Over Banned June 4 Vigil**\
+`Two dozen people in Hong Kong, including pro-democracy activist Joshua Wong, have been charged with participating in an illegal assembly at a vigil on June 4 commemorating the crackdown on protesters in and around Beijing's Tiananmen square in 1989.`\
+https://nytimes.com/reuters/2020/08/06/world/asia/06reuters-hongkong-security.html?searchResultPosition=1
+
+**NFL Partners With Three Organizations to Get Out the Vote**\
+`The NFL is partnering with three non-profit, non-partisan organizations to get out the vote as the league leverages its “Inspire Change” initiative.`\
+https://nytimes.com/aponline/2020/08/06/sports/football/ap-fbn-nfl-votes-1st-ld-writethru.html?searchResultPosition=2
+
+**Homes for Sale in Brooklyn, Manhattan and Staten Island**\
+`This week’s properties are in Randall Manor, on the Upper West Side and in Prospect Lefferts Gardens.`\
+https://nytimes.com/2020/08/06/realestate/homes-for-sale-in-brooklyn-manhattan-and-staten-island.html?searchResultPosition=3
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties include a five-bedroom in Greenwich, Conn., and a three-bedroom in Mamaroneck, N.Y.`\
+https://nytimes.com/2020/08/06/realestate/homes-for-sale-in-new-york-and-connecticut.html?searchResultPosition=4
+
+**On the Market in New York City**\
+`This week’s properties are in Randall Manor, on the Upper West Side and in Prospect-Lefferts Gardens.`\
+https://nytimes.com/slideshow/2020/08/06/realestate/on-the-market-in-new-york-city.html?searchResultPosition=5
+
+**On the Market in the New York Region**\
+`This week’s properties include a five-bedroom in Greenwich, Conn., and a three-bedroom in Mamaroneck, N.Y.`\
+https://nytimes.com/slideshow/2020/08/06/realestate/on-the-market-in-the-new-york-region.html?searchResultPosition=6
+
+**The T List: Five Things We Recommend This Week**\
+`Paintings by Toyin Ojih Odutola, Hawaiian pastries — and more.`\
+https://nytimes.com/2020/08/06/t-magazine/t-list-toyin-ojih-odutola.html?searchResultPosition=7
+
 **My Name Is Karen. What Can I Do About the Meme?**\
 `I try not to be “a Karen,” but I think this joke has gone too far.`\
-https://nytimes.com/2020/08/06/style/karen-name-problems.html?searchResultPosition=1
+https://nytimes.com/2020/08/06/style/karen-name-problems.html?searchResultPosition=8
 
 **European Court Adviser Sides Against German McCann Suspect**\
 `A legal adviser to Europe's top court issued an opinion Thursday that could make it easier for Germany to keep in prison a new suspect in the disappearance of Madeleine McCann, the British toddler who vanished from a Portuguese resort 13 years ago.`\
-https://nytimes.com/aponline/2020/08/06/world/europe/ap-eu-germany-britain-missing-girl.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/06/world/europe/ap-eu-germany-britain-missing-girl.html?searchResultPosition=9
 
 **Police: Man Spit at Boy Who Refused to Remove His Mask**\
 `A Florida man was arrested after confronting a child wearing a mask at a restaurant and spitting in his face when the boy refused to take it off, police said.`\
-https://nytimes.com/aponline/2020/08/06/us/ap-us-boy-mask-spit-1st-ld-writethru.html?searchResultPosition=3
-
-**Turkish Currency Hits All-Time Law Amid Market Jitters**\
-`Turkey’s currency dropped to an all-time low against the dollar on Thursday as the global recession created by the pandemic brings to the fore weaknesses in the country's economy.`\
-https://nytimes.com/aponline/2020/08/06/business/ap-eu-turkey-currency.html?searchResultPosition=4
-
-**Swiss Widen List of COVID-19 Quarantine Countries**\
-`Switzerland expanded its list of countries from which people arriving must enter a 10-day quarantine to all outside Europe's passport-free Schengen zone, barring a score of exceptions, the government said on Thursday.`\
-https://nytimes.com/reuters/2020/08/06/world/europe/06reuters-health-coronavirus-swiss.html?searchResultPosition=5
-
-**Belarus' Leader of 26 Years Warns Against Election Protests**\
-`The authoritarian leader of Belarus warned political opponents Thursday that authorities won't allow any unsanctioned demonstrations following the weekend election in which he is seeking a sixth consecutive term. `\
-https://nytimes.com/aponline/2020/08/06/world/europe/ap-eu-belarus-politics.html?searchResultPosition=6
-
-**Standoff With China Will Be Long, India Warns in Pulled Statement**\
-`India's defence ministry has warned, in a statement since removed from its website, that a military standoff with China that began with border fighting in June is likely to be a long one, despite multiple rounds of talks between the nuclear-armed rivals to defuse the tension.`\
-https://nytimes.com/reuters/2020/08/06/world/asia/06reuters-india-china.html?searchResultPosition=7
-
-**9-Year-Old Pulls Dad to Shore After Fracturing Neck in Dive**\
-`A 9-year-old Florida boy is being hailed a hero for pulling his father from the water after the man fractured his neck in a diving accident.`\
-https://nytimes.com/aponline/2020/08/06/us/ap-us-boy-saves-dad-1st-ld-writethru.html?searchResultPosition=8
-
-**Australia Making Wage Subsidies Easier as COVID-19 Surges, PM to Say**\
-`Australia will make it easier to qualify for wage subsidies, the centrepiece of its response to the coronavirus crisis, following a surge in infections that has forced Melbourne into strict lockdown, Prime Minister Scott Morrison will say on Friday. `\
-https://nytimes.com/reuters/2020/08/06/world/asia/06reuters-health-coronavirus-australia-economy.html?searchResultPosition=9
-
-**U.S. Weekly Jobless Claims Hover at Higher Levels**\
-`The number of Americans seeking unemployment benefits fell last week, but remained significantly high, suggesting the labor market was stalling as the country battles a resurgence in new COVID-19 cases that is threatening a budding economic recovery. `\
-https://nytimes.com/reuters/2020/08/06/business/06reuters-usa-economy.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/06/us/ap-us-boy-mask-spit-1st-ld-writethru.html?searchResultPosition=10
 
