@@ -7,7 +7,7 @@ https://nytimes.com/2020/08/06/climate/hurricanes-noaa-prediction.html?searchRes
 https://nytimes.com/2020/08/06/us/politics/iran-us-brian-hook.html?searchResultPosition=2
 
 **Trump Says Texas Would Be Great Place for NRA to Relocate**\
-`U.S. President Donald Trump on Thursday encouraged the National Rife Association to relocate to Texas, shortly after the state attorney generals in New York and Washington announced lawsuits against the gun organization.`\
+`U.S. President Donald Trump on Thursday encouraged the National Rifle Association to relocate to Texas, shortly after the state attorney generals in New York and Washington announced lawsuits against the gun organization.`\
 https://nytimes.com/reuters/2020/08/06/us/06reuters-usa-guns-trump.html?searchResultPosition=3
 
 **After Recovering From Virus, Domingo Vows to Clear Name**\
