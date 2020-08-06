@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/08/06/world/americas/06reuters-usa-mexico-churc
 `Deandre Ayton had 23 points and 10 rebounds, and the Phoenix Suns continued their improbable run in the NBA bubble on Thursday, beating the Indiana Pacers 114-99 for their fourth straight win.`\
 https://nytimes.com/aponline/2020/08/06/sports/basketball/bc-bkn-pacers-suns.html?searchResultPosition=3
 
-**Debt, Debt, Goose.**\
+**Debt, Debt, Goose**\
 `The face-off in the Senate over a pandemic relief package is tied to a yearslong back-and-forth over the relevance of deficits.`\
 https://nytimes.com/2020/08/06/opinion/debt-coronavirus-senate-republicans.html?searchResultPosition=4
 
