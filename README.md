@@ -1,40 +1,40 @@
+**'Love Is Not Tourism,' Says Couple Separated for Six Months by Coronavirus**\
+`Florian Mehler last saw his girlfriend in late January, when she left Germany for her native Brazil. His plans to join Renata Alves in late March were scuttled when the borders slammed shut as the coronavirus pandemic spread worldwide.`\
+https://nytimes.com/reuters/2020/08/06/world/americas/06reuters-health-coronavirus-bi-national-couples.html?searchResultPosition=1
+
+**Bristol Myers Lifts Annual Profit View on Hopes of Pickup in Patient Visits to Doctors**\
+`Bristol Myers Squibb Co raised its annual profit forecast on Thursday on hopes of a recovery in demand for its hospital-administered drugs, which had dropped as patients stayed away from doctors' offices due to the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/08/06/business/06reuters-bristol-myers-results.html?searchResultPosition=2
+
+**Futures Muted Ahead of Weekly Unemployment Claims Data**\
+`U.S. stock index futures were flat on Thursday as investors looked forward to the latest weekly jobless claims report to gauge the pace of a rebound in the labor market, while also anticipating a new fiscal stimulus bill.`\
+https://nytimes.com/reuters/2020/08/06/business/06reuters-usa-stocks.html?searchResultPosition=3
+
+**Don't Stand So Close: Singapore Trials Automated Drones to Check**\
+`Beware, Singaporeans standing too close, automated drones might be keeping an eye on you from above.`\
+https://nytimes.com/reuters/2020/08/06/technology/06reuters-health-coronavirus-israel-drones.html?searchResultPosition=4
+
+**Money for the Postal Service? The Check’s in the Mail**\
+`Congress still can’t agree, and Democrats plan a virtual convention: This is your morning tip sheet.`\
+https://nytimes.com/2020/08/06/us/politics/postal-service-coronavirus-stimulus.html?searchResultPosition=5
+
+**‘River City Drumbeat’ Review: A Community’s Pulse Proves Strong**\
+`At the heart of this documentary from Marlon Johnson and Anne Flatté is a drum line in Louisville, Ky., that offers children a chance to engage with Black art and history.`\
+https://nytimes.com/2020/08/06/movies/river-city-drumbeat-review.html?searchResultPosition=6
+
+**‘Psychomagic, a Healing Art’ Review: Introducing Surrealist Therapy**\
+`In this documentary, Alejandro Jodorowsky compares Freud’s “science” to his own “magic” and chronicles aiming for cures with methods resembling performance art.`\
+https://nytimes.com/2020/08/06/movies/psychomagic-a-healing-art-review.html?searchResultPosition=7
+
+**‘Howard’ Review: A Lyricist’s Life Cut Short**\
+`A new documentary looks at the prodigious talent of Howard Ashman, one half of the musical team behind “The Little Mermaid” and others, before he died of AIDS at 40.`\
+https://nytimes.com/2020/08/06/movies/howard-review.html?searchResultPosition=8
+
+**‘Song Without a Name’ Review: A Tragedy in the Peruvian Hillside**\
+`Melina León’s beautifully composed film follows a woman whose baby was stolen from her after child birth.`\
+https://nytimes.com/2020/08/06/movies/song-without-a-name-review.html?searchResultPosition=9
+
 **‘The Secret Garden’ Review: It’s as Lovely as You Remember**\
 `This version, featuring Colin Firth as the haunted uncle, hits the same notes as the 1911 novel and previous films, and that’s fine for this uncertain moment.`\
-https://nytimes.com/2020/08/06/movies/the-secret-garden-review.html?searchResultPosition=1
-
-**‘Waiting for the Barbarians’ Review: An Aestheticized Fable of Colonialism**\
-`Mark Rylance, Johnny Depp and Robert Pattinson star in this Ciro Guerra film adapted from a J.M. Coetzee novel.`\
-https://nytimes.com/2020/08/06/movies/waiting-for-the-barbarians-review.html?searchResultPosition=2
-
-**Fresh U.S. Pandemic Stimulus Should Be More Targeted: Raghuram Rajan**\
-`The United States should take a more targeted approach with its new pandemic aid so it can save ammunition in case of a future economic slowdown or a second wave of infections, former Reserve Bank of India Governor Raghuram Rajan said on Thursday.`\
-https://nytimes.com/reuters/2020/08/06/business/06reuters-health-coronavirus-rajan-gmf-interview.html?searchResultPosition=3
-
-**Many More Likely Sought Jobless Aid Amid Resurgence of Virus**\
-`With the nation still gripped by an alarming resurgence of coronavirus cases, the U.S. government will provide its latest snapshot Thursday of the layoffs that have remained elevated at a weekly pace above 1 million since the pandemic erupted in March.`\
-https://nytimes.com/aponline/2020/08/06/business/ap-us-virus-outbreak-unemployment-benefits.html?searchResultPosition=4
-
-**Lockdown Sees Turkish Women Bear Brunt of Unpaid Work: Research**\
-`Turkish women did four times as much household and care work as men during lockdowns aimed at curbing the spread of the coronavirus, research supported by the United Nations Development Programme showed on Thursday.`\
-https://nytimes.com/reuters/2020/08/06/world/europe/06reuters-health-coronavirus-turkey-women.html?searchResultPosition=5
-
-**Belarus Says It Has Detained U.S. Nationals: Belta**\
-`President Alexander Lukashenko said on Thursday that Belarus had detained a number of people who possessed U.S. passports and were married to U.S. women ahead of its Aug. 9 presidential elections, the Belta news agency reported. `\
-https://nytimes.com/reuters/2020/08/06/world/europe/06reuters-belarus-election-usa.html?searchResultPosition=6
-
-**Mylan Posts Quarterly Profit Compared to Year-Earlier Loss**\
-`Mylan NV reported a second-quarter profit on Thursday, helped in part by strong sales of its newly launched products such as asthma drug Wixela.`\
-https://nytimes.com/reuters/2020/08/06/business/06reuters-mylan-nl-results.html?searchResultPosition=7
-
-**Tencent Gets Green Light to Publish Ring Fit Adventure in China**\
-`China gave tech giant Tencent Holdings the green light on Thursday to publish Nintendo Switch Ring Fit Adventure and shooter game Call of Duty Mobile, strengthening the country's biggest social media and video games company.`\
-https://nytimes.com/reuters/2020/08/06/technology/06reuters-tencent-nintendo-ringfit.html?searchResultPosition=8
-
-**Druze Leader Jumblatt Urges International Probe Into Beirut Port Blast**\
-`Lebanon's leading Druze politician Walid Jumblatt called on Thursday for an international investigation into the Beirut port explosion and said he had "no trust" in the government to find out the truth about it. `\
-https://nytimes.com/reuters/2020/08/06/world/middleeast/06reuters-lebanon-security-blast-jumblatt.html?searchResultPosition=9
-
-**HollyFrontier Posts Quarterly Loss**\
-`HollyFrontier Corp posted a quarterly loss on Thursday compared with a profit last year, as the U.S. refiner grappled with a drop in demand for its products due to the coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/08/06/us/06reuters-hollyfrontier-results.html?searchResultPosition=10
+https://nytimes.com/2020/08/06/movies/the-secret-garden-review.html?searchResultPosition=10
 
