@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/08/06/world/middleeast/ap-ml-israel-gaza.html?
 https://nytimes.com/2020/08/06/health/coronavirus-immune-cells.html?searchResultPosition=3
 
 **Africa Passes 1M Confirmed Virus Cases; True Number Far More**\
-`Africa’s confirmed coronavirus cases have surpassed 1 million, but global health experts tell The Associated Press the true toll is likely several times higher. That reflects the gaping lack of testing for the continent’s 1.3 billion people. `\
+`Africa’s confirmed coronavirus cases have surpassed 1 million, but global health experts say the true toll is likely several times higher, reflecting the gaping lack of testing for the continent’s 1.3 billion people. `\
 https://nytimes.com/aponline/2020/08/06/world/africa/ap-af-virus-outbreak-africa-1-million-cases.html?searchResultPosition=4
 
 **Angels' Ohtani Homers in 1st At-Bat Since Pitching Shutdown**\
