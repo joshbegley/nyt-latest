@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/08/06/world/asia/06reuters-health-coronavirus-i
 `The number of new housing starts in the United Kingdom could be down as much as 40% this year because of the impact of the COVID-19 pandemic, British Housing Secretary Robert Jenrick said on Thursday.`\
 https://nytimes.com/reuters/2020/08/06/world/europe/06reuters-britain-housing-jenrick.html?searchResultPosition=3
 
-**Nintendo Reports 428% Jump in Profit as Animal Crossing Wins Over Stay-Home Gamers**\
+**Nintendo Reports 428% Jump in Profit as Animal Crossing Sales Top 22 Million**\
 `Japan's Nintendo Co Ltd on Thursday reported a 428% jump in first-quarter profit, driven by ongoing demand for the Switch console and hit title Animal Crossing: New Horizons as the coronavirus outbreak boosts the games industry.`\
 https://nytimes.com/reuters/2020/08/06/technology/06reuters-nintendo-results.html?searchResultPosition=4
 
