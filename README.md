@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/08/06/science/ap-sci-hurricane-season-busier.h
 https://nytimes.com/aponline/2020/08/06/world/africa/ap-af-mauritania-boat-capsizes.html?searchResultPosition=5
 
 **Austria Warns Against Travel to Spain Except Balearic, Canary Islands**\
-`Austria's foreign ministry on Thursday warned against trips to Spain with the exception of the Balearic and Canary Islands, as concerns grow that holidaymakers could catch the coronavirus and spread it once they return.`\
+`Austria's foreign ministry on Thursday warned against trips to Spain except for the Balearic and Canary Islands, as concerns grow that holidaymakers could catch the coronavirus and spread it once they return.`\
 https://nytimes.com/reuters/2020/08/06/world/europe/06reuters-health-coronavirus-austria-travel.html?searchResultPosition=6
 
 **New York Seeks to Break Up National Rifle Association, Alleging Financial Mismanagement**\
@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/08/06/world/europe/06reuters-health-coronavirus
 https://nytimes.com/reuters/2020/08/06/us/06reuters-usa-new-york-attorney-general.html?searchResultPosition=7
 
 **Microsoft Expands TikTok Takeover Ambitions to Entire Global Business: FT**\
-`Microsoft Corp is chasing a deal to buy all of TikTok's global business, including its operations in India and Europe, the Financial Times reported on Thursday, citing five people with knowledge of the talks.`\
+`Microsoft Corp is chasing a deal to buy all of TikTok's global business the Financial Times reported on Thursday, citing five people with knowledge of the talks.`\
 https://nytimes.com/reuters/2020/08/06/technology/06reuters-usa-tiktok-microsoft.html?searchResultPosition=8
 
 **Family of 4 Rescued, Found Clinging to Overturned Boat**\
