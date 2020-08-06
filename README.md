@@ -22,7 +22,7 @@ https://nytimes.com/2020/08/05/us/politics/trump-biden-campaign-finance.html?sea
 `Excerpts from recent editorials in the United States and abroad:`\
 https://nytimes.com/aponline/2020/08/05/us/ap-us-editorial-rdp-.html?searchResultPosition=6
 
-**US Talks Tougher on Chinese Tech, but Offers No Specifics**\
+**US Talks Tougher on Chinese Tech, but Offers Few Specifics**\
 `U.S. Secretary of State Mike Pompeo on Wednesday called for a big expansion of U.S. government curbs on Chinese technology, saying that it wants to see “untrusted Chinese apps" pulled from the Google and Apple app stores.`\
 https://nytimes.com/aponline/2020/08/05/business/bc-us-pompeo-chinese-app-curbs.html?searchResultPosition=7
 
