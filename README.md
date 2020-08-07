@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/08/07/us/ap-us-second-face-transplant.html?sea
 https://nytimes.com/reuters/2020/08/07/world/middleeast/07reuters-france-security.html?searchResultPosition=7
 
 **VIRUS DIARY: We Eloped, Just Not the Way We'd Planned**\
-`The plan was to elope in April in New York City, where my fiancee, Julie Trolle, lives.`\
+`The plan was to elope in April in New York City, where my fiancee, Julie Trolle, lived.`\
 https://nytimes.com/aponline/2020/08/07/us/ap-us-virus-outbreak-diary-we-eloped.html?searchResultPosition=8
 
 **Salary Caps for Teams in Lower Leagues of English Football**\
