@@ -31,7 +31,7 @@ https://nytimes.com/video/opinion/100000007278127/coronavirus-vaccine-update.htm
 https://nytimes.com/reuters/2020/08/07/us/07reuters-global-race-oprah.html?searchResultPosition=8
 
 **Canada to Impose Retaliatory Tariffs on C$3.6 Billion Worth of U.S. Goods**\
-`Canada will slap retaliatory tariffs on C$3.6 billion worth of U.S. aluminum products after the United States said it would impose punitive measures on Canadian aluminum imports, a senior official said on Friday.`\
+`Canada will slap retaliatory tariffs on C$3.6 billion ($2.7 billion) worth of U.S. aluminum products after the United States said it would impose punitive measures on Canadian aluminum imports, a senior official said on Friday.`\
 https://nytimes.com/reuters/2020/08/07/world/americas/07reuters-usa-trade-canada.html?searchResultPosition=9
 
 **Uber Rides Take COVID-19 Hit but Food-Delivery Business Doubles**\
