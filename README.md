@@ -3,7 +3,7 @@
 https://nytimes.com/2020/08/07/business/media/billboard-advertising-pandemic.html?searchResultPosition=1
 
 **A Picture of Change for a World in Constant Motion**\
-`What a masterpiece of Japanese printmaking teaches us about the way pictures circulate.`\
+`What a masterpiece of Japanese printmaking teaches us about the way images circulate.`\
 https://nytimes.com/interactive/2020/08/07/arts/design/hokusai-fuji.html?searchResultPosition=2
 
 **All New York Schools Can Open for In-Person Learning, Governor Cuomo Says**\
