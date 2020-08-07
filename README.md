@@ -1,40 +1,40 @@
-**Could This Be the Last Time We’d See Our Dad?**\
+**Tencent Shares Slide More Than 4% After Trump Order to Ban WeChat-Related U.S. Transactions**\
+`Chinese tech giant Tencent's shares fell more than 4% on Friday morning following U.S. President Donald Trump's orders to ban WeChat-related U.S. transactions.`\
+https://nytimes.com/reuters/2020/08/06/business/06reuters-usa-wechat-trump-stocks.html?searchResultPosition=1
+
+**Could This Be the Last Time We See Our Dad?**\
 `Zoom has become a link between loved ones. But is what we see onscreen real life?`\
-https://nytimes.com/2020/08/06/opinion/coronavirus-baruch-haviv-death.html?searchResultPosition=1
+https://nytimes.com/2020/08/06/opinion/coronavirus-baruch-haviv-death.html?searchResultPosition=2
 
 **Malaysia's Ex-Finance Minister Charged Over Tunnel Project**\
 `Malaysia's former finance minister Lim Guan Eng was charged Friday with corruption over a $1.5 billion undersea tunnel project, with his party slamming the move as political persecution by the new government.`\
-https://nytimes.com/aponline/2020/08/06/business/ap-as-malaysia-corruption.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/06/business/ap-as-malaysia-corruption.html?searchResultPosition=3
 
 **Cracked Up: Driver Snaps, but DeChambeau Powers Through**\
 `The Kraken cracked. `\
-https://nytimes.com/aponline/2020/08/06/sports/golf/ap-glf-pga-cracked-club.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/06/sports/golf/ap-glf-pga-cracked-club.html?searchResultPosition=4
 
 **Dbacks Beat Astros 5-4 on Calhoun's Double in Ninth**\
 `Kole Calhoun lined a two-run double in the ninth inning and the Arizona Diamondbacks rallied to beat the Houston Astros 5-4 Thursday night to win their first series of the season.`\
-https://nytimes.com/aponline/2020/08/06/sports/baseball/ap-bbo-astros-diamondbacks-1st-ld-writethru.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/06/sports/baseball/ap-bbo-astros-diamondbacks-1st-ld-writethru.html?searchResultPosition=5
 
 **Marlins Beat Orioles 8-7 to Complete Stunning 4-Game Sweep**\
 `Jonathan Villar hit a first-pitch leadoff homer to spark a robust offensive performance by the Miami Marlins, who beat the Baltimore Orioles 8-7 Thursday night to complete a startling four-game sweep and make Don Mattingly the winningest manager in franchise history.`\
-https://nytimes.com/aponline/2020/08/06/sports/baseball/ap-bbo-orioles-marlins.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/08/06/sports/baseball/ap-bbo-orioles-marlins.html?searchResultPosition=6
 
 **AP PHOTOS: AP Week in Pictures, Asia**\
 `JULY 31-AUG. 6, 2020`\
-https://nytimes.com/aponline/2020/08/06/us/ap-as-pictures-of-the-week-in-asia-photo-gallery.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/08/06/us/ap-as-pictures-of-the-week-in-asia-photo-gallery.html?searchResultPosition=7
 
 **Mitsubishi Motors Chairman Masuko Resigns Due to Health Reasons**\
 `Mitsubishi Motors Corp on Friday said that Osamu Masuko would resign as chairman due to health reasons, and hand over the role to CEO Takao Kato on a temporary basis.`\
-https://nytimes.com/reuters/2020/08/06/business/06reuters-mitsubishimotors-chairman.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/08/06/business/06reuters-mitsubishimotors-chairman.html?searchResultPosition=8
 
 **Kansas House Speaker Had Coronavirus; Governor to Get Tested**\
 `A top Republican legislator in Kansas was hospitalized last month after testing positive for the novel coronavirus and didn't disclose it to colleagues until this week.`\
-https://nytimes.com/aponline/2020/08/06/us/ap-us-virus-outbreak-kansas-3rd-ld-writethru.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/08/06/us/ap-us-virus-outbreak-kansas-3rd-ld-writethru.html?searchResultPosition=9
 
 **South Korea to Lift Ban on Travellers From Hubei, China**\
 `South Korea will lift a ban on travellers from the Chinese province of Hubei, which was the original epicentre of the coronavirus outbreak, starting on Monday, a government official said on Friday.`\
-https://nytimes.com/reuters/2020/08/06/world/asia/06reuters-health-coronavirus-southkorea-china.html?searchResultPosition=9
-
-**Sri Lanka President's Party Wins Two-Third Majority in Parliament Election**\
-`Sri Lankan President Gotabaya Rajapaksa's party and its allies won an overwhelming two-thirds majority in a parliament election, results released early Friday showed, giving him the power to enact sweeping changes to the constitution.`\
-https://nytimes.com/reuters/2020/08/06/world/asia/06reuters-sri-lanka-election-result.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/06/world/asia/06reuters-health-coronavirus-southkorea-china.html?searchResultPosition=10
 
