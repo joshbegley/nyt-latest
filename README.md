@@ -1,4 +1,4 @@
-**U.S. Democratic Senators Voice 'Growing Concerns' Over Electoral Interference**\
+**Democratic Senators Voice 'Growing Concerns' Over Electoral Interference**\
 `Democratic senators say they are increasingly concerned about the targeting of Congress by foreign actors in an effort to "launder and amplify disinformation" ahead of the November U.S. presidential election.`\
 https://nytimes.com/reuters/2020/08/07/us/politics/07reuters-cyber-elections-interference.html?searchResultPosition=1
 
