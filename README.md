@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/08/07/us/ap-us-minneapolis-police-traffic-stop
 `A lifetime before he served two presidents as national security adviser, Brent Scowcroft was just 12 when he decided to become a West Point cadet after reading about cadet life.`\
 https://nytimes.com/aponline/2020/08/07/us/politics/ap-us-obit-scowcroft-a-life.html?searchResultPosition=6
 
-**Judge: U-Michigan Must Alumni About Doctor Abuse Lawsuits**\
+**Judge: U-Mich. Must Tell Alumni About Doctor Abuse Lawsuits**\
 `A judge has ordered the University of Michigan to inform alumni about a class-action lawsuit against the school over sexual abuse by a longtime campus doctor.`\
 https://nytimes.com/aponline/2020/08/07/sports/ap-us-university-of-michigan-doctor.html?searchResultPosition=7
 
