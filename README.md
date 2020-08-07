@@ -1,5 +1,5 @@
 **Hagerty Rides Trump Support to Senate GOP Win in Tennessee**\
-`Former U.`\
+`Former U.S. Ambassador to Japan Bill Hagerty rode the endorsement of President Donald Trump to victory Thursday in a contested Republican primary for an open U.S. Senate seat in Tennessee.`\
 https://nytimes.com/aponline/2020/08/06/us/ap-us-election-2020-senate-tennessee-6th-ld-writethru.html?searchResultPosition=1
 
 **Bill Hagerty Wins Tough Tennessee Primary With Trump’s Endorsement**\
