@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/08/06/business/ap-us-capital-one-breach-fine.h
 https://nytimes.com/reuters/2020/08/06/arts/06reuters-film-dirty-dancing.html?searchResultPosition=3
 
 **‘I Was a Little Scared’: Inside America’s Reopening Schools**\
-`In their first week back, students have faced social media criticism and emergency quarantines. Here’s what they say school is like in the age of Covid-19.`\
+`In their first week back, students have faced altered classrooms and emergency quarantines. Here’s what they say school is like in the age of Covid-19.`\
 https://nytimes.com/2020/08/06/us/coronavirus-students.html?searchResultPosition=4
 
 **McIlroy Trying to Slow Down Even as Golf Speeds Up**\
