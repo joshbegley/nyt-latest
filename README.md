@@ -1,5 +1,5 @@
 **Mercury, Taurasi Rise in 96-86 Win Over Sky**\
-`Diana Taurasi and Brittany Griner each scored 22 points and Phoenix beat the Chicago Sky 96-86 on Thursday night for the Mercury's fourth straight win.`\
+`Diana Taurasi and Brittney Griner each scored 22 points and Phoenix beat the Chicago Sky 96-86 on Thursday night for the Mercury's fourth straight win.`\
 https://nytimes.com/aponline/2020/08/07/sports/basketball/bc-bkl-sky-mercury.html?searchResultPosition=1
 
 **2 Rescued Sea Turtles Released in Florida After Recovery**\
