@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/08/06/world/asia/06reuters-japan-economy-spendi
 `President Donald Trump on Thursday ordered an unspecified ban on “transactions” with the Chinese owners of the consumer apps TikTok and WeChat. `\
 https://nytimes.com/aponline/2020/08/06/business/ap-us-trump-tiktok-wechat-order.html?searchResultPosition=8
 
-**Bradshaw Scores Upset Win in Democratic Primary for Senate**\
-`Memphis environmentalist, Black activist and single mom Marquita Bradshaw has won the Democratic primary for an open U.`\
+**Hagerty vs. Bradshaw in Race to Succeed US Sen. Alexander**\
+`Former U.S. Ambassador to Japan Bill Hagerty and Black activist Marquita Bradshaw will face off in November to succeed retiring Republican U.S. Sen. Lamar Alexander after their respective victories in primary elections on Thursday. `\
 https://nytimes.com/aponline/2020/08/06/us/ap-us-election-2020-senate-tennessee.html?searchResultPosition=9
 
 **Japan to Agree Supply Deal Soon for AstraZeneca's Coronavirus Vaccine: Kyodo**\
