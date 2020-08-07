@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/08/06/sports/golf/06reuters-golf-pgachamp-day.h
 https://nytimes.com/2020/08/06/arts/workers-at-philadelphia-museum-of-art-vote-to-join-union.html?searchResultPosition=4
 
 **Senegal President Offers Condolences to Denver Fire Victims**\
-`The president of Senegal offered his condolences via Twitter on Thursday after five people who immigrated to Colorado from the West African country were killed in a suburban Denver house fire that authorities say they suspect was intentionally set. `\
+`The president of Senegal offered his condolences on Thursday after five people who immigrated to Colorado from the West African country were killed in a suburban Denver house fire that authorities say they suspect was intentionally set. `\
 https://nytimes.com/aponline/2020/08/06/us/ap-us-house-fire-arson.html?searchResultPosition=5
 
 **Trump, Facing Headwinds in Ohio, Talks Up Economy in Campaign Swing**\
