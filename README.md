@@ -30,7 +30,7 @@ https://nytimes.com/reuters/2020/08/07/world/asia/07reuters-health-coronavirus-j
 `Japan's economy likely contracted at the sharpest pace on record in the second quarter as the coronavirus crisis crushed business and consumer spending, a Reuters' poll showed, and a recent surge in infections is clouding the outlook for recovery.`\
 https://nytimes.com/reuters/2020/08/07/world/asia/07reuters-japan-economy-gdp-poll.html?searchResultPosition=8
 
-**Facebook Employees to Work From Home Until July 2021, Get $1,000 for Home Offices**\
+**Facebook Employees to Work From Home Until July 2021**\
 `Facebook Inc will allow employees to work from home until July 2021 due to the coronavirus outbreak and will give them $1,000 for home office needs, a spokeswoman for the social media giant said on Thursday.`\
 https://nytimes.com/reuters/2020/08/07/business/07reuters-health-coronavirus-facebook.html?searchResultPosition=9
 
