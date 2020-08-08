@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/08/08/world/africa/08reuters-somalia-blast.html
 `Police said they detained 48 people after protesters tried to stop them arresting an LGBT activist accused of hanging rainbow flags over statues in Warsaw and damaging a pro-life campaigner's van.`\
 https://nytimes.com/reuters/2020/08/08/world/europe/08reuters-poland-lgbt.html?searchResultPosition=6
 
-**The Latest: France Set to Launch Aid Conference for Lebanon**\
+**The Latest: Dutch Diplomat Among Dead in Beirut Blast**\
 `The latest on the explosion in Beirut (all times local):`\
 https://nytimes.com/aponline/2020/08/08/world/middleeast/ap-ml-lebanon-the-latest.html?searchResultPosition=7
 
