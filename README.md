@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/08/08/world/europe/08reuters-europe-migrants-po
 `At least 17 participants of a major Afghan grand assembly tested positive for the new coronavirus, officials said on Saturday, a day after the high-profile gathering began in Kabul to deliberate over the fate of Taliban prisoners and the beginning of the peace process in the war-torn country.`\
 https://nytimes.com/reuters/2020/08/08/world/asia/08reuters-health-coronavirus-afghanistan-taliban.html?searchResultPosition=4
 
-**Lebanon's Kataeb Party Says Its Three MPs Resigning From Parliament**\
-`Lebanon's Kataeb Party, a Christian group which opposes the government backed by the Iran-backed Hezbollah, announced on Saturday the resignation of its three lawmakers from parliament.`\
+**Lebanon's Kataeb Party Says Its Three MPs Resigning From Parliament in Wake of Beirut Blast**\
+`Lebanon's Kataeb Party, a Christian group which opposes the government backed by the Iran-aligned Hezbollah, announced on Saturday the resignation of its three lawmakers from parliament.`\
 https://nytimes.com/reuters/2020/08/08/world/middleeast/08reuters-lebanon-security-blast-kataeb.html?searchResultPosition=5
 
 **Hong Kong Officials Condemn and Mock Trump Administration Sanctions**\
