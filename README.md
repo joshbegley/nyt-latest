@@ -22,7 +22,7 @@ https://nytimes.com/2020/08/08/world/middleeast/Beirut-explosion-protests-lebano
 `This political campaign was likely the last for Joe Arpaio, the former six-term sheriff of metro Phoenix known for leading immigration crackdowns and building a political career around the harsh treatment of jail inmates.`\
 https://nytimes.com/aponline/2020/08/08/us/ap-us-election-2020-arpaios-last-race.html?searchResultPosition=6
 
-**Trump Threatens To Use Executive Order for ‘Critical Relief’**\
+**Trump Threatens to Use Executive Order for ‘Critical Relief’**\
 `Though it’s unclear whether he has the authority to do so, President Trump said on Friday that if Congress did not reach an agreement, he would act unilaterally to extend a coronavirus economic aid package.`\
 https://nytimes.com/video/us/politics/100000007279339/trump-says-he-will-act-on-his-own-if-congress-doesnt-agree-on-relief.html?searchResultPosition=7
 
