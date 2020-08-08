@@ -2,13 +2,13 @@
 ``\
 https://nytimes.com/interactive/2020/08/08/us/elections/results-hawaii-house-district-1-primary-election.html?searchResultPosition=1
 
-**Live: Hawaii State Primary Election Results 2020**\
-``\
-https://nytimes.com/interactive/2020/08/08/us/elections/results-hawaii-primary-elections.html?searchResultPosition=2
-
 **Hawaii Primary Election Results: Second Congressional District**\
 ``\
-https://nytimes.com/interactive/2020/08/08/us/elections/results-hawaii-house-district-2-primary-election.html?searchResultPosition=3
+https://nytimes.com/interactive/2020/08/08/us/elections/results-hawaii-house-district-2-primary-election.html?searchResultPosition=2
+
+**Live: Hawaii State Primary Election Results 2020**\
+``\
+https://nytimes.com/interactive/2020/08/08/us/elections/results-hawaii-primary-elections.html?searchResultPosition=3
 
 **U.S. Sets Record as Coronavirus Cases Top 5 Million**\
 `The United States set a record for coronavirus cases on Saturday, with more than 5 million people now infected, according to a Reuters tally, as the country's top infectious diseases official offered hope earlier this week that an effective vaccine might be available by year-end.`\
