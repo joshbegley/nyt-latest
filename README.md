@@ -1,40 +1,40 @@
-**Huawei: Smartphone Chips Running Out Under US Sanctions**\
-`Chinese tech giant Huawei is running out of processor chips to make smartphones due to U.S. sanctions and will be forced to stop production of its own most advanced chips, a company executive says, in a sign of growing damage to Huawei’s business from American pressure.`\
-https://nytimes.com/aponline/2020/08/08/business/ap-as-china-huawei.html?searchResultPosition=1
+**When Covid-19 Hit, Many Elderly Were Left to Die**\
+`Warnings had piled up for years that nursing homes were vulnerable. The pandemic sent them to the back of the line for equipment and care.`\
+https://nytimes.com/2020/08/08/world/europe/when-covid-19-hit-many-elderly-were-left-to-die.html?searchResultPosition=1
 
-**Indonesia Reports 2,277 New Coronavirus Infections**\
-`Indonesia reported 2,277 new coronavirus infections on Saturday and 65 more deaths, data from its health ministry website showed.`\
-https://nytimes.com/reuters/2020/08/08/world/asia/08reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=2
+**Turn Your Newspaper Into a Basket**\
+`Behold all the news that’s fit to weave.`\
+https://nytimes.com/2020/08/08/at-home/coronavirus-newspaper-basket.html?searchResultPosition=2
 
-**Show of Solidarity After Blast as Lebanon Braces for Protest**\
-`Senior officials from the Middle East and Europe started arriving in Lebanon Saturday in a show of solidarity with the tiny country that suffered a deadly blast this week which caused large-scale damage to the capital Beirut.`\
-https://nytimes.com/aponline/2020/08/08/world/middleeast/ap-ml-lebanon.html?searchResultPosition=3
+**The Nudes Aren’t Going Away. Katie Hill’s OK With That.**\
+`Nine months after stepping down from Congress, she is trying to move forward.`\
+https://nytimes.com/2020/08/08/style/katie-hill-she-will-rise-revenge-porn.html?searchResultPosition=3
 
-**Philippines Confirms 4,226 New Coronavirus Cases, 41 More Deaths**\
-`The Philippines' health ministry on Saturday reported 4,226 new coronavirus infections and 41 additional deaths.`\
-https://nytimes.com/reuters/2020/08/08/world/asia/08reuters-health-coronavirus-philippines-cases.html?searchResultPosition=4
+**Chris Dodd, an Insider From Biden’s Past, Is Helping Him Pick His Future**\
+`As Biden works to win over progressive voters, he has empowered a Washington uber-veteran long trailed by allegations of personal and financial indiscretion.`\
+https://nytimes.com/2020/08/08/us/politics/biden-vp-chris-dodd.html?searchResultPosition=4
 
-**Turkey Exempts Non-Resident Financial Institutions From FX Tax**\
-`Turkey has exempted non-resident financial institutions from paying a foreign currency purchase tax, the country's Official Gazette said on Saturday.`\
-https://nytimes.com/reuters/2020/08/08/world/europe/08reuters-turkey-tax-fx.html?searchResultPosition=5
+**Dolphins Have Hidden Fingers. So Do Seals. These Sea Creatures Did Not.**\
+`A recent analysis of the flippers of living and extinct marine animals shows the enduring power of “baby mittens.”`\
+https://nytimes.com/2020/08/08/science/dolphins-fingers-ichthyosaurs.html?searchResultPosition=5
 
-**France's Macron to Co-Host Lebanon Donor Conference on Sunday, Officials Say**\
-`French President Emmanuel Macron will host a donor conference for Lebanon via video-link on Sunday, his office said, as countries mobilise to help rebuild Beirut after this week's massive blast.`\
-https://nytimes.com/reuters/2020/08/08/world/europe/08reuters-lebanon-security-blast-conference.html?searchResultPosition=6
+**Trump Wants U.S. to Get Cut of Any TikTok Deal. No One Knows How That’d Work.**\
+`The president has repeatedly called for a big payment to the Treasury Department if a Chinese company sells the app to Microsoft, but there is no provision in the law for that.`\
+https://nytimes.com/2020/08/08/us/politics/trump-tiktok-deal-treasury.html?searchResultPosition=6
 
-**Second Person Dies From Plague in China's Inner Mongolia**\
-`A patient in northern China has died from the plague, the second death from the disease in the country's Inner Mongolia region this week.`\
-https://nytimes.com/aponline/2020/08/08/world/asia/ap-as-china-plague.html?searchResultPosition=7
+**Thoughtful Gift Ideas That Newlyweds Will Actually Use**\
+`Wedding pros and other industry experts share their go-to wedding gifts.`\
+https://nytimes.com/2020/08/08/fashion/weddings/thoughtful-gift-ideas-that-newlyweds-will-actually-use.html?searchResultPosition=7
 
-**South Korea Floods, Landslides Kill 21 as Heavy Rains Continue**\
-`At least 21 people have died after 46 days of heavy rains in South Korea, with the country's longest monsoon in seven years causing more flooding, landslides and evacuations on Saturday. `\
-https://nytimes.com/reuters/2020/08/08/world/asia/08reuters-southkorea-floods.html?searchResultPosition=8
+**Near U.K.’s Busiest Port, Brexit Hopes Are Layered in Asphalt**\
+`A 27-acre site is being built to handle trucks amid fears that new trade rules will slow freight movement. It has been nicknamed the “Farage Garage” after the pro-Brexit campaigner Nigel Farage.`\
+https://nytimes.com/2020/08/08/world/europe/brexit-trucks-dover-mojo.html?searchResultPosition=8
 
-**Suicide Car Bomber Explodes Outside Somali Military Base**\
-`A Somali police officer says a suicide bomber has detonated an explosives-laden vehicle at the gates of a military base in Somalia's capital. `\
-https://nytimes.com/aponline/2020/08/08/world/africa/ap-af-somalia-attack.html?searchResultPosition=9
+**How to Help Your Pet With Post-Quarantine Separation Anxiety**\
+`The pandemic is hard on our dogs and cats, too.`\
+https://nytimes.com/2020/08/08/smarter-living/wirecutter/pets-quarantine-separation-anxiety.html?searchResultPosition=9
 
-**MLB Roundup: Tigers Beat Pirates in 30-Run Affair**\
-`Niko Goodrum drove in five runs, including a two-run double in a four-run 11th inning, and the Detroit Tigers captured a wild 17-13 victory over the host Pittsburgh Pirates on Friday in the Tigers' first game since Sunday.`\
-https://nytimes.com/reuters/2020/08/08/sports/baseball/08reuters-baseball-mlb-roundup.html?searchResultPosition=10
+**Unwanted Truths: Inside Trump’s Battles With U.S. Intelligence Agencies**\
+`Last year, intelligence officials gathered to write a classified report on Russia’s interest in the 2020 election. An investigation from the magazine uncovered what happened next.`\
+https://nytimes.com/2020/08/08/magazine/us-russia-intelligence.html?searchResultPosition=10
 
