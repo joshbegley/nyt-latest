@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/08/08/world/europe/08reuters-health-coronavirus
 `The wife of the Dutch ambassador to Lebanon died on Saturday after being seriously injured in the massive explosion that tore through Beirut's port on Tuesday, the Dutch Foreign Ministry said.`\
 https://nytimes.com/reuters/2020/08/08/world/middleeast/08reuters-lebanon-security-blast-netherlands.html?searchResultPosition=4
 
-**Huge Blast Rocks Military Base in Somali Capital-Military Official**\
-`A huge blast rocked a military base in Somalia's capital Mogadishu near a stadium on Saturday, a military official said, and ambulance services said it had killed at least eight people and injured 14.`\
+**Blast Rocks Military Base in Somali Capital, at Least Eight Dead**\
+`A huge blast rocked a military base in Somalia's capital Mogadishu near a stadium on Saturday, killing at least eight people and injuring 14, emergency workers said.`\
 https://nytimes.com/reuters/2020/08/08/world/africa/08reuters-somalia-blast.html?searchResultPosition=5
 
 **Polish Police Detain 48 People After LGBT Protest**\
