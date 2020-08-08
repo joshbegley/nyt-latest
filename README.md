@@ -19,7 +19,7 @@ https://nytimes.com/2020/08/08/opinion/brent-scowcroft-model-foreign-policy.html
 https://nytimes.com/aponline/2020/08/08/us/ap-us-virus-outbreak-ohio-governor.html?searchResultPosition=5
 
 **McGruder's Late 3 Helps Clippers Edge Trail Blazers 122-120**\
-`Rodney McGruder hit a 3-pointer with 26.5 seconds left, and the Los Angeles Clippers beat the Portland Trail Blazers 122-120 on Saturday even with Kawhi Leonard resting on the bench. `\
+`Clippers coach Doc Rivers rested Kawhi Leonard and sat Paul George for the final five minutes following Los Angeles' plan to restrict playing time. `\
 https://nytimes.com/aponline/2020/08/08/sports/basketball/ap-bkn-clippers-trail-blazers.html?searchResultPosition=6
 
 **London Police Say 'Service Was Acceptable' After Racism Complaint Over Drugs Search, Smashed Car Window**\
