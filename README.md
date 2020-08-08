@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/08/07/business/ap-us-faa-safety.html?searchRes
 `President Donald Trump said on Friday he would be working over the next couple of weeks on an executive order to require health insurers to cover pre-existing conditions.`\
 https://nytimes.com/reuters/2020/08/07/us/07reuters-usa-trump-healthcare.html?searchResultPosition=9
 
-**Mexico Reports 6,717 More Coronavirus Infections, 794 Deaths**\
-`Mexico's health ministry on Friday reported 6,717 new confirmed coronavirus infections and 794 additional fatalities, bringing the total in the country to 469,407 cases and 51,311 deaths.`\
+**Coronavirus-Hit Mexico Receives $3 Million Donation From United States**\
+`Mexico received a donation of $3 million from the United States to help fight the novel coronavirus, which has claimed more than 50,000 lives, a health official said on Friday.`\
 https://nytimes.com/reuters/2020/08/07/world/americas/07reuters-health-coronavirus-mexico.html?searchResultPosition=10
 
