@@ -2,8 +2,8 @@
 `Major League Soccer will resume the regular season with clubs playing in their home cities starting from Aug. 12 following the end of the single-site tournament in Florida that was designed to prevent the spread of COVID-19, the league said on Saturday.`\
 https://nytimes.com/reuters/2020/08/08/sports/soccer/08reuters-health-coronavirus-soccer-usa.html?searchResultPosition=1
 
-**Belarus Opposition Member Detained Ahead of Presidential Election: Campaign Team**\
-`Authorities in Belarus on Saturday detained Maria Kolesnikova, a prominent member of the opposition campaign challenging President Alexander Lukashenko in a presidential election, the campaign team said. `\
+**Belarus Opposition Member Briefly Detained on Eve of Presidential Election**\
+`Belarus police briefly detained and then released a prominent member of the opposition challenging President Alexander Lukashenko in a presidential election, the campaign team said on Saturday. `\
 https://nytimes.com/reuters/2020/08/08/world/europe/08reuters-belarus-election-kolesnikova.html?searchResultPosition=2
 
 **Brent Scowcroft Didn’t Always Follow ‘the Scowcroft Model’**\
