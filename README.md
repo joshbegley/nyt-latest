@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/08/08/sports/golf/08reuters-golf-pgachamp-tiger.html?searchResultPosition=1
 
 **A's Hold Off Astros in 13th Inning for Seventh Straight Win**\
-`Marcus Semien singled home the winning run in the bottom of the 13th in a game that matched the longest this season with baseball's new extra-innings rule, and the AL West-leading Oakland Athletics beat the Houston Astros 3-2 on Friday night for their seventh straight win.`\
+`The Oakland Athletics insist it's harder than it looks to score when an automatic runner gets to start on second base. It took them a while Friday night to finally do it, too.`\
 https://nytimes.com/aponline/2020/08/08/sports/baseball/ap-bba-astros-athletics.html?searchResultPosition=2
 
 **AP Sources: Whitmer Met With Biden as He Nears VP Decision**\
