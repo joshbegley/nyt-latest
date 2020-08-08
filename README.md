@@ -22,7 +22,7 @@ https://nytimes.com/2020/08/08/us/politics/kristi-noem-pence-trump.html?searchRe
 `Paris authorities on Saturday imposed the mandatory wearing of face masks outdoors in busy areas of the French capital from Monday as the number of coronavirus infections there rose.`\
 https://nytimes.com/reuters/2020/08/08/world/europe/08reuters-health-coronavirus-paris-masks.html?searchResultPosition=6
 
-**AP Source: MAC Cancels Fall Football Season Due to Virus**\
+**Mid-American Conference Cancels Fall Football Due to Virus**\
 `The Mid-American Conference on Saturday became the first league competing at college football’s highest level to cancel its fall season because of COVID-19 concerns.`\
 https://nytimes.com/aponline/2020/08/08/sports/ncaafootball/ap-fbc-virus-outbreak-college-sports.html?searchResultPosition=7
 
