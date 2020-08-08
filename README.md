@@ -15,7 +15,7 @@ https://nytimes.com/aponline/2020/08/08/sports/ap-car-nascar-michigan.html?searc
 https://nytimes.com/aponline/2020/08/08/world/americas/ap-lt-el-salvador-priest-slain.html?searchResultPosition=4
 
 **Trump Seems Ready, Willing to Bypass Lawmakers on Virus Aid**\
-`Ready and willing to bypass elected lawmakers, President Donald Trump seemed set to claim the power to suspend payroll taxes and extend expired unemployment benefits after negotiations with Congress on a new coronavirus rescue package collapsed.`\
+`Ready and willing to bypass elected lawmakers, President Donald Trump seemed set to claim the power to defer payroll taxes and extend expired unemployment benefits after negotiations with Congress on a new coronavirus rescue package collapsed.`\
 https://nytimes.com/aponline/2020/08/08/business/ap-us-virus-outbreak-trump.html?searchResultPosition=5
 
 **4 Tribes Sue Over Oklahoma Gambling Compacts With 2 Others**\
