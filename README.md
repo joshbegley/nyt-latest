@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/08/07/sports/baseball/ap-bba-blue-jays-red-sox
 https://nytimes.com/aponline/2020/08/07/sports/golf/ap-glf-pga-woods.html?searchResultPosition=9
 
 **Ryan McBroom's Homer Lifts Royals to 3-2 Win Over Twins**\
-`Ryan McBroom hit a go-ahead homer in the sixth inning, the Kansas City pitching staff held the powerful Twins to just a pair of solo homers, and the Royals beat Minnesota 3-2 on Friday night.`\
+`The Royals won the World Series five years ago with a bullpen that rarely squandered the slimmest of leads.`\
 https://nytimes.com/aponline/2020/08/07/sports/baseball/ap-bba-twins-royals.html?searchResultPosition=10
 
