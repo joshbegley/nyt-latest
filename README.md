@@ -1,4 +1,4 @@
-**Czech Apartment Fire Kills 11, Including Three Children-iDNES.cz**\
+**Czech Apartment Fire Kills 11, Including Three Children: iDNES.cz**\
 `A fire tore through an apartment building in northern Czech Republic on Saturday, killing 11 people, including three children and five others who jumped from the upper floors to escape the blaze, local media reported.`\
 https://nytimes.com/reuters/2020/08/08/world/europe/08reuters-czech-fire.html?searchResultPosition=1
 
