@@ -1,4 +1,4 @@
-**Tiz the Law Wins the Travers Stakes**\
+**Tiz the Law Wins Travers in Runaway**\
 `The Belmont Winner heads to the Kentucky Derby as the Triple Crown favorite after breezing to victory at Saratoga.`\
 https://nytimes.com/2020/08/08/sports/horse-racing/tiz-the-law-travers.html?searchResultPosition=1
 
