@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/08/08/business/08reuters-tiktok-m-a-twitter.htm
 `One day he couldn't find enough fairways. The next day he couldn't make any putts. The third day he couldn't get close enough to make any putts.`\
 https://nytimes.com/aponline/2020/08/08/sports/golf/ap-glf-pga-championship-woods.html?searchResultPosition=4
 
-**Tiz the Law Wins Travers in Runaway**\
-`The Belmont Winner heads to the Kentucky Derby as the Triple Crown favorite after breezing to victory at Saratoga.`\
+**Tiz the Law Wins the Travers in a Runaway**\
+`The Belmont winner will head to the postponed Kentucky Derby as the favorite after breezing to victory at Saratoga.`\
 https://nytimes.com/2020/08/08/sports/horse-racing/tiz-the-law-travers.html?searchResultPosition=5
 
 **Tuch Scores in OT, Knights Beat Avs 4-3 for Top Seed**\
