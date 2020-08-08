@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/08/08/world/asia/08reuters-us-china-hongkong-sa
 https://nytimes.com/reuters/2020/08/08/us/08reuters-health-coronavirus-usa-alaska.html?searchResultPosition=7
 
 **Tanev Scores 11 Seconds Into OT as Canucks Beat Wild 5-4**\
-`Christopher Tanev's slap shot just 11 seconds into overtime gave the Vancouver Canucks a 5-4 victory over the Minnesota Wild on Friday night to win the best-of-five Western Conference qualifying round series in four games.`\
+`This first postseason experience for the young core of the Vancouver Canucks has already been quite a trip. They're not ready to leave the bubble yet.`\
 https://nytimes.com/aponline/2020/08/08/sports/hockey/bc-hkn-canucks-wild.html?searchResultPosition=8
 
 **Tiger Finds That Looks Can Be Deceiving at Harding Park**\
