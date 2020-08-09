@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/08/09/sports/soccer/ap-soc-europa-league-previ
 `Canadian canola prices have soared to the highest in nearly two years, despite a diplomatic dispute between Ottawa and Beijing, as exporters find roundabout ways to reach top oilseed buyer China.`\
 https://nytimes.com/reuters/2020/08/09/business/09reuters-canada-canola-china.html?searchResultPosition=6
 
-**The Latest: Official: Lebanon Aid to Go Medical Authorities**\
+**The Latest: German Sending 10 Million Euros to Lebanon**\
 `The Latest on the explosion in Beirut (all times local):`\
 https://nytimes.com/aponline/2020/08/09/world/middleeast/ap-ml-lebanon-the-latest.html?searchResultPosition=7
 
