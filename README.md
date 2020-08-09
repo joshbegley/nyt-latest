@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/08/09/sports/baseball/ap-bba-angels-rangers.ht
 https://nytimes.com/2020/08/09/world/africa/niger-giraffe-reserve-attack.html?searchResultPosition=6
 
 **In Women’s Golf, Virus Upends the Typical Paths to a Pro Career**\
-`The U.S. Women’s Amateur championship concluded on Sunday, but the search for competitive women’s golf events has been onerous since the college season was canceled last spring.`\
+`The U.S. Women’s Amateur championship concluded on Sunday, but the search by nonprofessionals for competitive women’s golf events has been onerous since the college season was canceled last spring.`\
 https://nytimes.com/2020/08/09/sports/golf/womens-amateur-gabi-ruffels.html?searchResultPosition=7
 
 **Protests Break Out in Belarus After Election That Critics Call Rigged**\
