@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/08/09/world/americas/09reuters-peru-oil-protest
 `Riquna Williams scored 21 points and led five Los Angeles Sparks players in double digits in a 97-81 win over the Minnesota Lynx on Sunday.`\
 https://nytimes.com/aponline/2020/08/09/sports/basketball/bc-bkl-lynx-sparks.html?searchResultPosition=3
 
-**Ohio’s Governor Says His Flawed Virus Test Shouldn’t Undercut New, Rapid Methods**\
+**Ohio Governor Says His Flawed Virus Test Shouldn’t Undercut New, Rapid Methods**\
 `Several states are trying to increase coronavirus testing with faster methods, undeterred by less accurate but quicker readouts.`\
 https://nytimes.com/2020/08/09/health/covid-testing.html?searchResultPosition=4
 
