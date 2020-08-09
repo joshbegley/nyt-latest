@@ -18,13 +18,13 @@ https://nytimes.com/reuters/2020/08/09/world/africa/09reuters-niger-security-fra
 `EDITORS — With the Tokyo Olympics postponed for a year because of the coronavirus pandemic, The Associated Press is looking back at the history of Summer Games. Here are some of the highlights of the 1980 Olympics in Moscow.`\
 https://nytimes.com/aponline/2020/08/09/sports/olympics/ap-oly-1980-moscow-games.html?searchResultPosition=5
 
-**Greece Registers Highest Daily Tally of COVID 19 Cases**\
-`Greece reported 203 new cases of COVID 19 on Sunday, its highest daily tally since the start of the outbreak in the country, a government official said. `\
-https://nytimes.com/reuters/2020/08/09/world/europe/09reuters-health-coronavirus-greece.html?searchResultPosition=6
-
 **DC Shooting Leaves 1 Dead, Some 20 Injured**\
 `A dispute that erupted into gun fire at an apparent outdoor party in Washington, D.C., early Sunday left one person dead and some 20 others injured, including an off-duty officers “struggling for her life,” according to police. `\
-https://nytimes.com/aponline/2020/08/09/us/politics/ap-us-dc-shooting.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/08/09/us/politics/ap-us-dc-shooting.html?searchResultPosition=6
+
+**Greece Registers Highest Daily Tally of COVID 19 Cases**\
+`Greece reported 203 new cases of COVID 19 on Sunday, its highest daily tally since the start of the outbreak in the country, a government official said. `\
+https://nytimes.com/reuters/2020/08/09/world/europe/09reuters-health-coronavirus-greece.html?searchResultPosition=7
 
 **Mexico's Central Bank Seen Cutting Key Rate to Lowest Level in Four Years**\
 `(This Aug. 7 story corrects paragraph 2 to say 20 of 24 analysts' projections forecast a cut of 50 basis points and removes paragraph 3 to make clear that no respondent forecast a cut of 100 basis points)`\
