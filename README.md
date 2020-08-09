@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/08/09/world/americas/ap-cb-puerto-rico-primari
 `A nearly all-white northwest Missouri town is divided over an effort to change its high school's “Savages” mascot that depicts a Native American amid a nationwide movement calling for racial justice.`\
 https://nytimes.com/aponline/2020/08/09/us/ap-us-native-american-mascot-controversy.html?searchResultPosition=8
 
-**US Response to the Virus Is Met With Incredulity Abroad**\
-`The United States’ failure to contain the spread of the coronavirus has been met with astonishment and alarm in Europe, as the world’s most powerful country edges closer to a global record of 5 million confirmed infections.`\
+**US Reaches 5 Million Confirmed Coronavirus Cases**\
+`The confirmed number of coronavirus cases in the U.S. reached 5 million Sunday, by far the highest in the world, according to the tally kept by Johns Hopkins University.`\
 https://nytimes.com/aponline/2020/08/09/world/europe/ap-virus-outbreak-2nd-ld-writethru.html?searchResultPosition=9
 
 **5.1-Magnitude Quake Hits North Carolina; No Damage Reported**\
