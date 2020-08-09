@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/08/08/world/asia/08reuters-usa-afghanistan-mili
 https://nytimes.com/aponline/2020/08/08/sports/hockey/bc-hkn-flyers-lightning.html?searchResultPosition=9
 
 **Days of Torrential Rain in S. Korea Leave at Least 30 Dead**\
-`More than a week of torrential rain in South Korea has left at least 30 dead and 12 missing in landslides, floods and other incidents, the government said Sunday while warning of further downpour. `\
+`More than a week of torrential rain in South Korea has left at least 30 dead and 12 missing in landslides, floods and other incidents, the government said Sunday while warning of further downpour.`\
 https://nytimes.com/aponline/2020/08/08/world/asia/ap-as-skorea-heavy-rains.html?searchResultPosition=10
 
