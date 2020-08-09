@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/08/08/business/08reuters-barclays-surveillance-
 https://nytimes.com/reuters/2020/08/08/sports/golf/08reuters-golf-pgachamp-morikawa.html?searchResultPosition=3
 
 **Warren Scores 39, Pacers Surge Past Lakers Late, 116-111**\
-`T.J. Warren scored 39 points, including seven straight to put Indiana ahead in the final two minutes, and the Pacers beat the Los Angeles Lakers 116-111 on Saturday.`\
+`T.J. Warren is leading a litany of All-Stars in scoring inside the NBA bubble, and his Indiana Pacers are the only Eastern Conference team with four wins.`\
 https://nytimes.com/aponline/2020/08/08/sports/basketball/bc-bkn-lakers-pacers.html?searchResultPosition=4
 
 **Arrieta Tosses 6 Scoreless in Phillies' 5-0 Win Over Braves**\
