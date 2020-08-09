@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/08/08/sports/golf/08reuters-golf-pgachamp-morik
 https://nytimes.com/aponline/2020/08/08/sports/basketball/bc-bkn-lakers-pacers.html?searchResultPosition=4
 
 **Arrieta Tosses 6 Scoreless in Phillies' 5-0 Win Over Braves**\
-`Jake Arrieta tossed six shutout innings for his first win in more than a year and Jay Bruce and J.T. Realmuto each homered to lead the Philadelphia Phillies past the Atlanta Braves 5-0 Saturday night.`\
+`Jake Arrieta pitched like the healthy ace the Phillies needed for three years. He could help Philadelphia make some noise in the National League playoff push -- to the delight of a cluster of fans with horns, drums and chants from outside the park that produced a needed summer soundtrack.`\
 https://nytimes.com/aponline/2020/08/08/sports/baseball/ap-bbn-braves-phillies.html?searchResultPosition=5
 
 **Harvick Wins, Again, at Michigan**\
