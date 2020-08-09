@@ -2,7 +2,7 @@
 `Chinese government-linked hackers have been targeting U.S. election infrastructure ahead of the 2020 presidential election, White House National Security Adviser Robert O'Brien said on Sunday, indicating a more active level of alleged Chinese interference.  `\
 https://nytimes.com/reuters/2020/08/09/us/politics/09reuters-usa-election-interference.html?searchResultPosition=1
 
-**Police: 12 Arrested as Roads Blocked, Property Destroyed**\
+**Police: 12 Protesters in Louisville Arrested, Charged**\
 `Twelve protesters in Kentucky's largest were arrested Saturday night after they blocked roadways, surrounded vehicles, shot paintballs and destroyed property, police said.`\
 https://nytimes.com/aponline/2020/08/09/us/ap-us-racial-injustice-protesters-arrested-1st-ld-writethru.html?searchResultPosition=2
 
