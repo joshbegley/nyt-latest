@@ -1,4 +1,4 @@
-**Italy's EconMin Sees Third-Quarter GDP Rebound Not Far Off 15%: Paper**\
+**Italy's Econony Minister Sees Third-Quarter GDP Rebound Not Far Off 15%: Paper**\
 `Italy's economy will rebound strongly in the third quarter and should grow at a rate not far from 15%, Treasury Minister Roberto Gualtieri said on Sunday in a newspaper interview.`\
 https://nytimes.com/reuters/2020/08/09/world/europe/09reuters-italy-growth.html?searchResultPosition=1
 
@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/08/09/sports/golf/ap-glf-pga-championship-over
 https://nytimes.com/aponline/2020/08/09/us/ap-us-film-maria-ressa-documentary.html?searchResultPosition=9
 
 **India to Ban Imports of 101 Items of Military Equipment**\
-`India will ban the imports of 101 items of military equipment in an effort to boost indigenous production and improve self-reliance in weapons manufacturing.`\
+`India said Sunday that it will ban the imports of 101 items of military equipment in an effort to boost local production and improve self-reliance in weapons manufacturing.`\
 https://nytimes.com/aponline/2020/08/09/business/ap-as-india-weapons-import-ban.html?searchResultPosition=10
 
