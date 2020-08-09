@@ -26,8 +26,8 @@ https://nytimes.com/aponline/2020/08/09/sports/ap-us-racial-injustice-school-mas
 `At least nine people were killed and several injured after a fire broke out at a hotel in southern India that was being used as a clinic for Covid-19 patients, officials said.`\
 https://nytimes.com/video/world/asia/100000007280249/india-coronavirus-clinic-fire.html?searchResultPosition=7
 
-**Six French Tourists Among Eight People Killed by Gunmen in Niger, AFP Reports**\
-`Six French tourists and two Nigeriens were killed by gunmen in Niger, AFP reported on Sunday, citing a local governor. `\
+**Gunmen Kill Six French Tourists, Their Driver and Guide in Niger: AFP**\
+`Six French tourists and their Nigerien tour guide and driver were killed by gunmen in Niger on Sunday, AFP reported, citing a local governor. `\
 https://nytimes.com/reuters/2020/08/09/world/africa/09reuters-niger-security-france.html?searchResultPosition=8
 
 **Ecuador Navy Surveils Large Chinese Fishing Fleet Near Galapagos**\
