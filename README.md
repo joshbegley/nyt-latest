@@ -1,40 +1,40 @@
-**Indonesia COVID-19 Cases Rise by 1,893, Deaths by 65: Official Data**\
-`Indonesia reported 1,893 more novel coronavirus infections on Sunday, taking the total tally to 125,396 infections, the country's COVID-19 taskforce website showed.`\
-https://nytimes.com/reuters/2020/08/09/world/asia/09reuters-health-coronavirus-indonesia.html?searchResultPosition=1
+**Philippine Reports 61 More Coronavirus Deaths, Biggest Spike in Three Weeks**\
+`The Philippines on Sunday recorded 61 more coronavirus deaths, the highest daily increase in fatalities reported since July 18, taking the country's death tally to 2,270.`\
+https://nytimes.com/reuters/2020/08/09/world/asia/09reuters-health-coronavirus-philippines-cases.html?searchResultPosition=1
 
-**Credit Suisse Eyes Cooperation With Insurers: Rohner**\
-`Credit Suisse is looking to expand cooperation with insurers, Chairman Urs Rohner told a Sunday newspaper, adding the search for his successor at Switzerland's second-biggest bank was well under way.`\
-https://nytimes.com/reuters/2020/08/09/business/09reuters-credit-suisse-gp-rohner.html?searchResultPosition=2
+**Lebanon Information Minister Resigns**\
+`Lebanon's Information Minister Manal Abdel Samad announced on Sunday her resignation, citing the failure of the government to carry out reforms and the catastrophic explosion that rocked Beirut on Tuesday.`\
+https://nytimes.com/reuters/2020/08/09/world/middleeast/09reuters-lebanon-security-blast-politics.html?searchResultPosition=2
 
-**1 Killed, 3 Seriously Hurt in Bus Crash in Hungary**\
-`One man died and three people including a young child were seriously injured when a bus crashed into a ditch on the side of a highway in Hungary, police and rescue officials said Sunday.`\
-https://nytimes.com/aponline/2020/08/09/world/europe/ap-eu-hungary-bus-crash.html?searchResultPosition=3
+**Saudi Aramco Half-Year Profits Plunge 50% From Virus Impact**\
+`Saudi Aramco's net income plunged by 50% in the first half of the year, according to figures published Sunday, offering a revealing glimpse into the impact of the coronavirus pandemic on one of the world's biggest oil producers.`\
+https://nytimes.com/aponline/2020/08/09/world/middleeast/ap-ml-saudi-aramco-earns.html?searchResultPosition=3
 
-**One Dead, 34 Injured as Polish Bus Runs Off Highway in Hungary**\
-`One person was killed and 34 injured early on Sunday when a bus carrying Polish passengers ran off a motorway in Hungary into a ditch, a spokesman for the national emergency services said.`\
-https://nytimes.com/reuters/2020/08/09/world/europe/09reuters-hungary-accident.html?searchResultPosition=4
+**Hong Kong Reports 72 New Coronavirus Cases**\
+`Hong Kong reported 72 new coronavirus cases on Sunday, of which 63 were locally transmitted, as authorities continued efforts to contain a resurgence of infections in the global financial hub over the past month.`\
+https://nytimes.com/reuters/2020/08/09/world/asia/09reuters-health-coronavirus-hongkong.html?searchResultPosition=4
 
-**Australia's Victoria Reports Deadliest Day of COVID-19 Pandemic**\
-`Australia’s second-most populous state, Victoria, reported its deadliest day of the COVID-19 outbreak on Sunday, with 17 people dying, as police thwarted a planned anti-mask rally in the capital of Melbourne.`\
-https://nytimes.com/reuters/2020/08/09/world/asia/09reuters-health-coronavirus-australia.html?searchResultPosition=5
+**Most Spaniards Think Ex-King Juan Carlos Should Not Have Left, Opinion Poll Finds**\
+`Nearly two-thirds of Spaniards believe former King Juan Carlos, who left the country this week amid a financial scandal, should not have gone abroad, according to an opinion poll published on Sunday. `\
+https://nytimes.com/reuters/2020/08/09/world/europe/09reuters-spain-royals.html?searchResultPosition=5
 
-**Lebanon's Maronite Patriarch Says Government Must Quit if It Can't Change**\
-`Lebanon's Christian Maronite Patriarch Bechara Boutros al-Rai called on the cabinet on Sunday to resign if it cannot "change the way it governs" the country and help it to recover from Tuesday's catastrophic explosion.`\
-https://nytimes.com/reuters/2020/08/09/world/middleeast/09reuters-lebanon-security-blast-christians.html?searchResultPosition=6
+**How to Move Your Elephant During a Pandemic**\
+`After decades in captivity and a 1,700-mile road trip from Argentina into Brazil, an Asian elephant named Mara finally gained a chance to roam.`\
+https://nytimes.com/2020/08/09/science/coronavirus-elephants-wildlife-zoo.html?searchResultPosition=6
 
-**India Begins Examination of Plane's Black Box After Deadly Crash**\
-`Indian investigators on Sunday began examining the black box of a Boeing-737 that overshot a runway on its second attempt, killing 18 people in the country's worst aviation accident in a decade.`\
-https://nytimes.com/reuters/2020/08/09/world/asia/09reuters-india-crash.html?searchResultPosition=7
+**The Wallets of Wall Street Are With Joe Biden, if Not the Hearts**\
+`Through donations, finance executives played a critical role in helping Joe Biden turn his campaign around. They’ve mostly grown to like him, if not love him.`\
+https://nytimes.com/2020/08/09/business/joe-biden-wall-street.html?searchResultPosition=7
 
-**Italy's Econony Minister Sees Third-Quarter GDP Rebound Not Far Off 15%: Paper**\
-`Italy's economy will rebound strongly in the third quarter and should grow at a rate not far from 15%, Treasury Minister Roberto Gualtieri said on Sunday in a newspaper interview.`\
-https://nytimes.com/reuters/2020/08/09/world/europe/09reuters-italy-growth.html?searchResultPosition=8
+**Boycotted. Criticized. But Fox News Leads the Pack in Prime Time.**\
+`Led by Tucker Carlson and Sean Hannity, the channel’s pro-Trump lineup outranked every network from 8 to 11 p.m. in June and July.`\
+https://nytimes.com/2020/08/09/business/media/fox-news-ratings.html?searchResultPosition=8
 
-**France's Macron to Host Donor Conference for Blast-Stricken Lebanon**\
-`French President Emmanuel Macron will host U.S. President Donald Trump and other political leaders on Sunday for a U.N.-endorsed donors' conference by video to raise emergency relief for Lebanon following this week's massive explosion in Beirut.`\
-https://nytimes.com/reuters/2020/08/09/world/europe/09reuters-lebanon-security-blast-conference.html?searchResultPosition=9
+**This Contact Tracer Is Fighting Two Contagions: The Virus and Fear**\
+`Convincing infected people to open up means helping them confront deeply held concerns about deportation or job loss.`\
+https://nytimes.com/2020/08/09/us/california-contact-tracing.html?searchResultPosition=9
 
-**Grounded Mauritius Ship Operator Apologises for Oil Leak**\
-`The operator of a Japanese bulk carrier which ran aground off Mauritius in the Indian Ocean apologised on Sunday for a major oil spill which officials and environmentalists say is creating an ecological disaster.`\
-https://nytimes.com/reuters/2020/08/09/world/asia/09reuters-mauritius-environment-ship.html?searchResultPosition=10
+**Notes From a Virus Tracker’s Log**\
+`With over 200,000 cases in Los Angeles County alone, contact tracers like Radhika Kumar have their work cut out for them.`\
+https://nytimes.com/2020/08/09/us/coronavirus-tracker-contact-tracing.html?searchResultPosition=10
 
