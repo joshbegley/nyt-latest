@@ -18,8 +18,8 @@ https://nytimes.com/aponline/2020/08/09/us/ap-us-film-maria-ressa-documentary.ht
 `India will ban the imports of 101 items of military equipment in an effort to boost indigenous production and improve self-reliance in weapons manufacturing.`\
 https://nytimes.com/aponline/2020/08/09/business/ap-as-india-weapons-import-ban.html?searchResultPosition=5
 
-**Saudi Aramco's Second-Quarter Net Profit Plunges 73.4% on Lower Oil Prices**\
-`Saudi Arabian state oil group Aramco on Sunday reported a 73.4% fall in second-quarter net profit, a steeper drop than analysts had expected, hit by lower crude oil prices and declining refining and chemicals margins, as the coronavirus hit demand.`\
+**Saudi Aramco's Profit Plunges 73.4%, Sees Signs of Oil Market Recovery**\
+`Saudi state oil group Aramco on Sunday reported a 73.4% fall in second-quarter net profit, a steeper drop than analysts had forecast, and said it expected capital expenditure for 2020 to be at the lower end of a $25 billion to $30 billion range.`\
 https://nytimes.com/reuters/2020/08/09/business/09reuters-saudi-aramco-results.html?searchResultPosition=6
 
 **‘Christianity Will Have Power’**\
