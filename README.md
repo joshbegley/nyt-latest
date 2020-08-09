@@ -15,7 +15,7 @@ https://nytimes.com/2020/08/08/business/trump-stimulus-recovery.html?searchResul
 https://nytimes.com/2020/08/08/us/politics/trump-stimulus-bill-coronavirus.html?searchResultPosition=5
 
 **Tigers Hit 4 Homers in 1st Inning, Drill Pirates 11-5**\
-`Niko Goodrum, Miguel Cabrera, C.J. Cron and Jeimer Candelario all hit home runs in the first inning against Pittsburgh’s Derek Holland as the Detroit Tigers drilled the Pirates 11-5 on Saturday.`\
+`Maybe the Detroit Tigers should get four unexpected days off more often. Or maybe they should just face a pitching staff in tatters. `\
 https://nytimes.com/aponline/2020/08/08/sports/baseball/bc-bbo-tigers-pirates.html?searchResultPosition=6
 
 **Tiger Fans Climb Ladders, Peer Through Fences to Cheer on Their Hero**\
