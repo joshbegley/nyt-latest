@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/08/08/sports/baseball/ap-bba-blue-jays-red-sox
 https://nytimes.com/reuters/2020/08/08/world/asia/08reuters-health-coronavirus-china-cases.html?searchResultPosition=5
 
 **Soler's 2 Homers Helps to Power Royals to 9-6 Win Over Twins**\
-`Jorge Soler homered in back-to-back innings, the second blast coming in a go-ahead six-run fourth in which Kansas City went deep three times, and the Royals held on to beat the Minnesota Twins 9-6 on Saturday night.`\
+`One of these days, Royals manager Mike Matheny hopes to see Jorge Soler smile when he trots around the bases.`\
 https://nytimes.com/aponline/2020/08/08/sports/baseball/bc-bba-twins-royals.html?searchResultPosition=6
 
 **Australia's Victoria Reports Deadliest Day of COVID-19 Pandemic**\
