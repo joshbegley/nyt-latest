@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/08/09/world/asia/09reuters-japan-trade-uk.html?
 https://nytimes.com/aponline/2020/08/09/world/asia/ap-as-sri-lanka.html?searchResultPosition=7
 
 **Blackmon Stays Hot, Rockies Pitch 1-Hitter, Top Mariners 5-0**\
-`Charlie Blackmon added three more hits to his major league-leading total and drove in three runs, and four Colorado Rockies pitchers combined to one-hit the Seattle Mariners in a 5-0 win on Saturday night. `\
+`Even Charlie Blackmon staying hot at the plate was upstaged on this night by a foursome of Colorado Rockies pitchers, led by the debut of rookie Ryan Castellani. `\
 https://nytimes.com/aponline/2020/08/09/sports/baseball/ap-bbo-rockies-mariners.html?searchResultPosition=8
 
 **Marté, Vogt Homer to Carry Diamondbacks Over Padres 3-2**\
