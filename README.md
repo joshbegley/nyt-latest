@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/08/09/us/ap-us-native-american-mascot-controve
 `The United States’ failure to contain the spread of the coronavirus has been met with astonishment and alarm in Europe, as the world’s most powerful country edges closer to a global record of 5 million confirmed infections.`\
 https://nytimes.com/aponline/2020/08/09/world/europe/ap-virus-outbreak-2nd-ld-writethru.html?searchResultPosition=9
 
-**Earthquake Rattles North Carolina; No Damage Reported**\
-`Officials say an earthquake shook much of North Carolina early Sunday, rattling homes, buildings and residents. `\
+**5.1-Magnitude Quake Hits North Carolina; No Damage Reported**\
+`Officials say an earthquake - the strongest in more than 100 years - shook much of North Carolina early Sunday, rattling homes, buildings and residents. `\
 https://nytimes.com/aponline/2020/08/09/us/ap-us-earthquake-north-carolina.html?searchResultPosition=10
 
