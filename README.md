@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/08/10/business/ap-us-fiat-chrysler-minivan-inv
 `A massive fire was ignited at celebrity chef Rachael Ray's New York home, authorities said.`\
 https://nytimes.com/aponline/2020/08/10/us/ap-us-rachel-ray-house-fire.html?searchResultPosition=6
 
-**Mnuchin Says White House, Congress Could Reach COVID-19 Aid Deal This Week-CNBC**\
+**Mnuchin Says a U.S. Coronavirus Relief Bill Could Come This Week**\
 `U.S. Treasury Secretary Steven Mnuchin on Monday said the Trump administration and Congress could reach an agreement on further economic relief amid the novel coronavirus pandemic as soon as this week if Democrats are "reasonable."`\
 https://nytimes.com/reuters/2020/08/10/us/politics/10reuters-health-coronavirus-usa-mnuchin.html?searchResultPosition=7
 
