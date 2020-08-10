@@ -14,8 +14,8 @@ https://nytimes.com/2020/08/10/us/elections/biden-vs-trump.html?searchResultPosi
 `Royal Caribbean Group reported a quarterly net loss on Monday, as the cruise operator suffered from a coronavirus-driven halt to sailings that is now on course to last deep into the second half of 2020.`\
 https://nytimes.com/reuters/2020/08/10/business/10reuters-royal-caribbean-results.html?searchResultPosition=4
 
-**Lebanon's Finance Minister Resigns, Say Local Media**\
-`Lebanon's Finance Minister Ghazi Wazni, a key negotiator with the IMF over a rescue plan to help Lebanon exit a deep financial crisis, resigned on Monday over last week's devastating Beirut port blast, local media reported.`\
+**Lebanon's Finance Minister Ready to Resign, Local Media Says**\
+`Lebanon's Finance Minister Ghazi Wazni, a key negotiator with the IMF over a rescue plan to help Lebanon exit a financial crisis, has prepared his resignation letter and brought it with him to a cabinet meeting, a source close to him and local media said.`\
 https://nytimes.com/reuters/2020/08/10/world/middleeast/10reuters-lebanon-security-blast-finmin.html?searchResultPosition=5
 
 **Wall Street Bonuses Likely to Tumble, Job Cuts to Start in Late 2020: Report**\
