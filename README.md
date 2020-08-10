@@ -1,6 +1,6 @@
-**P.G.A. Championship 2020: Collin Morikawa, a Young Star, Wins His First Major Title**\
+**P.G.A. Championship 2020: Collin Morikawa Wins His First Major Title**\
 `The 23-year-old, who turned pro last year, has now won three times over all on tour.`\
-https://nytimes.com/2020/08/09/sports/golf/pga-championship-2020-collin-morikawa-a-young-star-wins-his-first-major-title.html?searchResultPosition=1
+https://nytimes.com/2020/08/09/sports/golf/pga-championship-2020-collin-morikawa-wins-his-first-major-title.html?searchResultPosition=1
 
 **Curry Hails Return of Sports**\
 `Golden State Warriors guard Stephen Curry on Sunday said he was thrilled to see sports thrive in their return after being derailed by the COVID-19 crisis in March.  `\
@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/08/09/business/09reuters-global-oil.html?search
 `China reported on Monday 49 new coronavirus cases in the mainland for August 9, compared with 23 cases a day earlier, the health authority said.`\
 https://nytimes.com/reuters/2020/08/09/world/asia/09reuters-health-coronvirus-china-cases.html?searchResultPosition=8
 
-**HK Media Tycoon Jimmy Lai Arrested Under National Security Law: Top Aide**\
-`Hong Kong media tycoon Jimmy Lai has been arrested for suspected collusion with foreign forces under the national security law Beijing imposed on the global financial hub in June, his top aide said on Twitter.`\
+**HK Media Tycoon Jimmy Lai Arrested Under National Security Law, Top Aide Says**\
+`Hong Kong media tycoon Jimmy Lai has been arrested over suspected collusion with foreign forces under the new national security law, his top aide said on Twitter, in what is the highest-profile arrest yet under the legislation.`\
 https://nytimes.com/reuters/2020/08/09/world/asia/09reuters-hongkong-security.html?searchResultPosition=9
 
 **Harvick Completes Sweep of Michigan Doubleheader**\
