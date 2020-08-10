@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/08/10/us/ap-us-virus-outbreak.html?searchResul
 https://nytimes.com/aponline/2020/08/10/us/ap-us-segregated-housing-alabama.html?searchResultPosition=6
 
 **Lebanon Government Resigns After Deadly Beirut Blast**\
-`Lebanon's Prime Minister Hassan Diab announced on Monday the resignation of his government after a powerful Beirut port explosion sparked public uproar against the country's leaders. `\
+`Lebanon's Prime Minister Hassan Diab announced on Monday the resignation of his government after a powerful Beirut port explosion sparked public uproar against the country's leaders.`\
 https://nytimes.com/reuters/2020/08/10/world/middleeast/10reuters-lebanon-security-blast-resignation.html?searchResultPosition=7
 
 **Review: Packing 14 Up-to-the-Minute Monologues in ‘One Room’**\
