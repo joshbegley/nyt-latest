@@ -1,40 +1,40 @@
+**At Least 10 Dead in Ethiopia Protests Over Autonomy: Health Officials**\
+`At least 10 people died in clashes between protesters and security forces in Ethiopia’s southern region on Monday, health officials said, the latest violence as myriad ethnic groups clamour for more autonomy. `\
+https://nytimes.com/reuters/2020/08/10/world/africa/10reuters-ethiopia-protests.html?searchResultPosition=1
+
+**Trump Considers Gettysburg Backdrop for Presidential Nomination Speech**\
+`U.S. President Donald Trump said on Monday that he is weighing delivering his speech accepting the Republican nomination later this month either at the White House or at the site of the Civil War battleground in Gettysburg, Pennsylvania.`\
+https://nytimes.com/reuters/2020/08/10/us/politics/10reuters-usa-election-trump-convention.html?searchResultPosition=2
+
+**Nikola Bags Order to Make 2,500 Electric Garbage Trucks for Republic Services**\
+`Republic Services Inc will partner with Nikola Corp, a maker of hydrogen-fueled vehicles, to develop 2,500 electric waste and recycling collection trucks, the companies said on Monday.`\
+https://nytimes.com/reuters/2020/08/10/technology/10reuters-republic-servs-orders-nikola.html?searchResultPosition=3
+
 **Pro Wrestling Star James 'Kamala' Harris Dies at 70**\
 `James Harris, a Mississippi-born sharecropper who gained international fame as “Kamala the Ugandan Giant,” a massive professional wrestler who terrorized opponents with his trademark “splash,” has died.`\
-https://nytimes.com/aponline/2020/08/10/sports/ap-us-obit-kamala-the-ugandan-giant.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/10/sports/ap-us-obit-kamala-the-ugandan-giant.html?searchResultPosition=4
 
 **Collin Morikawa’s Joyful Win Broke Through Golf’s Pandemic Fog**\
 `Morikawa, 23, delivered a dazzling final round at the P.G.A. Championship to become the long-overdue first major champion of the 2020 season.`\
-https://nytimes.com/2020/08/10/sports/golf/collin-morikawa-16th-hole-pga-championship.html?searchResultPosition=2
+https://nytimes.com/2020/08/10/sports/golf/collin-morikawa-16th-hole-pga-championship.html?searchResultPosition=5
 
 **Mexico's Legendary Masked Wrestlers Thrown Out of Ring by Coronavirus**\
 `Mexico's legendary masked wrestlers have been economically body-slammed by the coronavirus pandemic, with some resorting to food parcels or even underground fights to survive a ban on sporting events.`\
-https://nytimes.com/reuters/2020/08/10/sports/10reuters-health-coronavirus-mexico-wrestling.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/10/sports/10reuters-health-coronavirus-mexico-wrestling.html?searchResultPosition=6
 
 **Germany Bars Fans From Soccer Matches Till at Least End of October**\
 `Germany agreed on Monday to extend a ban for spectators in stadiums at Bundesliga soccer matches until at least the end of October due to the coronavirus pandemic, authorities said.`\
-https://nytimes.com/reuters/2020/08/10/sports/soccer/10reuters-health-coronavirus-soccer-germany.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/10/sports/soccer/10reuters-health-coronavirus-soccer-germany.html?searchResultPosition=7
 
 **An Exhibition Tells the Story of a Drug War Leader, but Not All of It.**\
 `The Drug Enforcement Administration’s exhibition on Harry J. Anslinger, a founding father of American drug policy, does not delve into criticism that he used racial slurs.`\
-https://nytimes.com/2020/08/10/arts/design/Anslinger-drug-czar-exhibition.html?searchResultPosition=5
+https://nytimes.com/2020/08/10/arts/design/Anslinger-drug-czar-exhibition.html?searchResultPosition=8
 
 **Unprecedented Open Criticism of King Aired at Thai Protest**\
 `Student leaders in Thailand delivered an unprecedented challenge to the country’s constitutional monarchy on Monday, strongly criticizing the king and demanding changes to lessen what they believe is its anti-democratic nature.`\
-https://nytimes.com/aponline/2020/08/10/world/asia/ap-as-thailand-protest-rally.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/08/10/world/asia/ap-as-thailand-protest-rally.html?searchResultPosition=9
 
 **Big Cats' Droppings Help German Circus Weather Coronavirus Crisis**\
 `One creature's droppings can be another's treasure, as Germany's Krone Circus is finding out during the new coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-germany-lion-poo-shop.html?searchResultPosition=7
-
-**Exxon Beaumont, Texas, Union to Ask for Talks Over Planned 401k Change: Sources**\
-`Unionized employees at Exxon Mobil Corp’s refinery and chemical plant in Beaumont, Texas, will seek negotiations with the company over plans to suspend the employer contribution to their 401K retirement savings plan, sources familiar with the matter said.`\
-https://nytimes.com/reuters/2020/08/10/business/10reuters-exxon-mobil-retirement-beaumont.html?searchResultPosition=8
-
-**Taylor Swift, No. 1 Again, Is Last to Benefit From an Obscure Chart Rule**\
-`When a physical album is sold, it often comes with a digital copy. Which one counts in Billboard’s totals is changing.`\
-https://nytimes.com/2020/08/10/arts/music/taylor-swift-folklore-billboard.html?searchResultPosition=9
-
-**Trump Lawyers Make Final Pitch to Block Tax Record Release**\
-`President Donald Trump’s lawyers made a final pitch Monday to block a New York prosecutor from getting his tax records, saying the Democrat was still “fishing for a way to justify his harassment of the President.”`\
-https://nytimes.com/aponline/2020/08/10/us/ap-us-trump-taxes.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-germany-lion-poo-shop.html?searchResultPosition=10
 
