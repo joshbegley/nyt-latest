@@ -1,5 +1,5 @@
 **Trump Led From Briefing Room After Shooting Outside White House**\
-`The Secret Service stopped President Trump in the middle of his daily coronavirus briefing and led him to the Oval Office. He returned several minutes later, and said there had been a shooting outside.`\
+`The Secret Service stopped President Trump in the middle of his daily coronavirus briefing and led him to the Oval Office. He returned several minutes later, and said there had been a shooting nearby.`\
 https://nytimes.com/2020/08/10/sports/trump-white-house-shooting.html?searchResultPosition=1
 
 **Bolivia Protests Rattle Political Truce as Military Mobilized**\
