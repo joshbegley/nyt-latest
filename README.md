@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/08/09/sports/basketball/bc-bkn-nets-clippers.h
 `Shares were mostly higher in Asia on Monday after President Donald Trump issued executive orders to provide tax relief and stopgap unemployment benefits for Americans hit by the fallout from the coronavirus pandemic. `\
 https://nytimes.com/aponline/2020/08/09/business/bc-financial-markets.html?searchResultPosition=2
 
-**Testing Royal Taboos: Inside Thailand's New Youth Protests **\
+**Testing Royal Taboos: Inside Thailand's New Youth Protests**\
 `Over two days of video calls earlier this month, about a dozen students from Thailand’s Kasetsart and Mahanakorn universities debated whether to break a taboo that could land them in jail: openly challenging the country’s powerful monarchy, according to two people on the calls.`\
 https://nytimes.com/reuters/2020/08/09/world/asia/09reuters-thailand-politics-youth-insight.html?searchResultPosition=3
 
