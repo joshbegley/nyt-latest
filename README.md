@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/08/09/world/asia/09reuters-australia-politics.h
 `Chinese carmaker Geely plans to use a platform developed with input from Volvo to build new models in Malaysia for its partly owned Proton brand, a strategy that shows how it aims to accelerate its push to become China's first global auto giant.`\
 https://nytimes.com/reuters/2020/08/09/business/09reuters-autos-geely-volvo-focus.html?searchResultPosition=2
 
-**Nearly 900 in U.S. and Canada Are Sickened With Salmonella Linked to Onions**\
-`The salmonella cases have been linked to a producer in California.`\
+**Salmonella Cases Linked to Onions Increase to Nearly 900**\
+`Grocery chains, including Publix and Giant Eagle, have recalled onions supplied by Thomson International and products that may contain the onions.`\
 https://nytimes.com/2020/08/09/us/recall-onions-salmonella.html?searchResultPosition=3
 
 **Hayward Scores 31 as Celtics Edge Magic 122-119 in OT**\
