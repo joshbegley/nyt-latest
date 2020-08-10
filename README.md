@@ -27,7 +27,7 @@ https://nytimes.com/2020/08/10/opinion/china-hong-kong-arrest.html?searchResultP
 https://nytimes.com/aponline/2020/08/09/business/ap-as-malaysia-corruption.html?searchResultPosition=7
 
 **Nets Start Fast, Beat Clippers to Take No. 7 Seed in East**\
-`Caris LeVert had 27 points and 13 assists, and the Brooklyn Nets used the best-shooting quarter in the NBA this season to send them on their way to a 129-120 victory over the Los Angeles Clippers on Sunday night.`\
+`Caris LeVert had 27 points and 13 assists, and the Brooklyn Nets used the best-shooting quarter in the NBA this season on their way to a 129-120 victory over the Los Angeles Clippers on Sunday night.`\
 https://nytimes.com/aponline/2020/08/09/sports/basketball/bc-bkn-nets-clippers.html?searchResultPosition=8
 
 **Asian Shares Mostly Higher on Stimulus Moves, Jobs Data**\
