@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/08/09/sports/basketball/09reuters-basketball-nb
 `Tied for the lead while standing on the 17th tee, Paul Casey heard what passed for a commotion on the largely silent, fan-free golf course. `\
 https://nytimes.com/aponline/2020/08/09/sports/golf/ap-glf-pga-casey.html?searchResultPosition=4
 
-**China's Factory Gate Prices Fall for Sixth Straight Month in July**\
-`China's factory gate prices fell for the six straight month in July but at a slightly slower-than-expected rate, official data showed on Monday, as economic activity normalised after the coronavirus crisis.`\
+**China's Factory Deflation Slows in July as Recovery Gains Strength**\
+`China's factory deflation eased in July, driven by a rise in global oil prices and as industrial activity climbed back towards pre-coronavirus levels, adding to signs of recovery in the world's second-largest economy.`\
 https://nytimes.com/reuters/2020/08/09/world/asia/09reuters-china-economy-inflation.html?searchResultPosition=5
 
 **Hong Kong Media Tycoon Jimmy Lai Arrested Under Security Law**\
