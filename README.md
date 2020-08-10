@@ -6,7 +6,7 @@ https://nytimes.com/2020/08/09/sports/golf/pga-championship-2020-collin-morikawa
 `Golden State Warriors guard Stephen Curry on Sunday said he was thrilled to see sports thrive in their return after being derailed by the COVID-19 crisis in March.  `\
 https://nytimes.com/reuters/2020/08/09/sports/basketball/09reuters-golf-pgachamp-curry.html?searchResultPosition=2
 
-**How Pro-Trump Allies Work the Refs in Silicon Valley**\
+**How Trump Allies Work the Refs in Silicon Valley**\
 `The new referees in American politics are Facebook, Google and Twitter, and they would be wise to pay attention to lessons the old media tried to learn.`\
 https://nytimes.com/2020/08/09/business/media/trump-facebook-google-twitter-misinformation.html?searchResultPosition=3
 
