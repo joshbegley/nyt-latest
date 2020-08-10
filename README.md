@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/08/09/sports/golf/ap-glf-pga-championship.html?searchResultPosition=1
 
 **Morikawa Wins PGA Championship for First Major Title**\
-`American Collin Morikawa won the PGA Championship at TPC Harding Park on Sunday to secure his first career major title.`\
+`Collin Morikawa made a stunning late eagle after the drive of his life to pull away from a jam-packed leaderboard and secure a two-shot victory at the PGA Championship on Sunday in only the second major start of his career.`\
 https://nytimes.com/reuters/2020/08/09/sports/golf/09reuters-golf-pgachamp-morikawa.html?searchResultPosition=2
 
 **Lamet Brilliant as Tatis, Padres Pound Bumgarner, Dbacks 9-5**\
