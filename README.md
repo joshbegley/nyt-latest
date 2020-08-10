@@ -22,8 +22,8 @@ https://nytimes.com/aponline/2020/08/09/sports/ncaafootball/ap-fbc-virus-outbrea
 `Paul Casey came close to becoming the first Englishman in more than a century to win the PGA Championship on Sunday but at the end of the day he was happy to tip his hat to the rich talent of young champion Collin Morikawa. `\
 https://nytimes.com/reuters/2020/08/09/sports/golf/09reuters-golf-pgachamp-casey.html?searchResultPosition=6
 
-**Health Chief Azar Conveys Support From Trump in Taiwan Visit**\
-`U.S. Health Secretary Alex Azar told Taiwan President Tsai Ing-wen on Monday that it was a true honour to be in Taipei to convey a strong message of support from U.S. President Donald Trump.`\
+**U.S. Health Chief Offers Taiwan 'Strong' Support in Landmark Visit**\
+`U.S. Health Secretary Alex Azar offered President Donald Trump's strong support for democratic Taiwan on Monday, telling President Tsai Ing-wen that her government's response to the coronavirus pandemic had been among the world's best.`\
 https://nytimes.com/reuters/2020/08/09/world/asia/09reuters-taiwan-usa-president.html?searchResultPosition=7
 
 **Japan's Legacy of Forced Labor Haunts Ties With Neighbors**\
