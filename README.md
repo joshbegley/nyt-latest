@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/08/10/business/ap-financial-markets-box.html?s
 https://nytimes.com/reuters/2020/08/10/world/americas/10reuters-health-coronavirus-brf.html?searchResultPosition=9
 
 **Powerful Derecho Leaves Path of Devastation Across Midwest**\
-`A rare wind storm with power similar to an inland hurricane swept across the Midwest on Monday, blowing over trees, flipping vehicles, causing widespread property damage and leaving tens of thousands without power.`\
+`A rare storm packing 100 mph winds and with power similar to an inland hurricane swept across the Midwest on Monday, blowing over trees, flipping vehicles, causing widespread property damage and leaving hundreds of thousands without power as it turned toward Chicago.`\
 https://nytimes.com/aponline/2020/08/10/us/ap-us-severe-weather-midwest-1st-ld-writethru.html?searchResultPosition=10
 
