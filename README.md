@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/08/10/business/10reuters-saudi-aramco-results-c
 `A Georgia man falsely claimed that a drug his company was selling would lower the risk of becoming infected with COVID-19, federal prosecutors said.`\
 https://nytimes.com/aponline/2020/08/10/us/ap-us-virus-outbreak-criminal-charges.html?searchResultPosition=5
 
-**Explosion Levels 3 Baltimore Homes; 1 Dead, 1 Trapped**\
-`An explosion completely destroyed three row houses in Baltimore on Monday, killing one person and critically injuring several others. At least one person was trapped in the wreckage. `\
+**Gas Explosion Levels 3 Baltimore Homes; 1 Dead, 1 Trapped**\
+`A “major gas explosion” completely destroyed three row houses in Baltimore on Monday, killing one person and injuring several others, the Baltimore Fire Department said. At least one person was trapped in the wreckage. `\
 https://nytimes.com/aponline/2020/08/10/us/ap-us-baltimore-explosion.html?searchResultPosition=6
 
 **Liz Weston: Feel Out of Control? These Money Moves Can Help**\
