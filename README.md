@@ -1,5 +1,5 @@
 **U.S. Attorney General Barr Says the Left Wants to Tear Down System**\
-`U.S. Attorney General William Barr mounted an partisan attack on the Democratic Party in an interview that aired Sunday, claiming the left believes in "tearing down the system" and pursues absolute victory as "a substitute for religion."`\
+`U.S. Attorney General William Barr mounted a partisan attack on the Democratic Party in an interview that aired Sunday, claiming the left believes in "tearing down the system" and pursues absolute victory as "a substitute for religion."`\
 https://nytimes.com/reuters/2020/08/09/us/politics/09reuters-usa-congress-barr.html?searchResultPosition=1
 
 **‘Perry Mason’ Season 1 Finale Recap: The Defense Rests**\
