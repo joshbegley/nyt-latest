@@ -1,40 +1,40 @@
+**Lebanon's President Accepts Government Resignation, Asks It to Stay On in Caretaker Capacity**\
+`Lebanese President Michel Aoun accepted the resignation of the prime minister's government on Monday following last week's devastating explosion in Beirut port and asked it to stay on in a caretaker capacity until a new cabinet is formed, a televised announcement said.`\
+https://nytimes.com/reuters/2020/08/10/world/middleeast/10reuters-lebanon-security-blast-president.html?searchResultPosition=1
+
+**Antonio Banderas Says He's Tested Positive for Coronavirus**\
+`Antonio Banderas says he's tested positive for COVID-19 and is celebrating his 60th birthday in quarantine. `\
+https://nytimes.com/aponline/2020/08/10/us/ap-us-virus-outbreak-antonio-banderas.html?searchResultPosition=2
+
+**Foot Locker Rides Pent Up Demand, US Pandemic Assistance**\
+`Foot Locker expects to turn a second-quarter profit thanks in part to aid sent to Americans to help during the pandemic. `\
+https://nytimes.com/aponline/2020/08/10/business/ap-us-foot-locker.html?searchResultPosition=3
+
+**Mauritius PM Says Initial Oil Leak Stops, Prepares for 'Worst Case Scenario'**\
+`A leak from a damaged oil tank in a Japanese ship has stopped, the Mauritius prime minister's office said on Monday, adding that the situation was still very serious and they were preparing for "a worst case scenario".`\
+https://nytimes.com/reuters/2020/08/10/world/asia/10reuters-mauritius-environment-primeminister.html?searchResultPosition=4
+
+**Welcome Back to the Champions League. Please Maintain Social Distance.**\
+`The plans for European soccer’s showpiece competition seem to account for every possibility. But even before the teams arrive, the coronavirus is asking hard questions.`\
+https://nytimes.com/2020/08/10/sports/soccer/champions-league-lisbon.html?searchResultPosition=5
+
 **Trump: Convention Speech Locale Is White House or Gettysburg**\
 `President Donald Trump said Monday that his acceptance speech for the Republican presidential nomination will be held at either the White House or the Gettysburg battlefield.`\
-https://nytimes.com/aponline/2020/08/10/us/politics/ap-us-election-2020-republican-convention.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/10/us/politics/ap-us-election-2020-republican-convention.html?searchResultPosition=6
 
 **Global Coronavirus Cases Hit 20 Million: Reuters Tally**\
 `Global coronavirus cases pushed past 20 million on Monday, according to a Reuters tally, with the United States, Brazil and India accounting for more than half of all known infections. `\
-https://nytimes.com/reuters/2020/08/10/us/10reuters-health-coronavirus-global-cases.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/10/us/10reuters-health-coronavirus-global-cases.html?searchResultPosition=7
 
 **Finland to Mandate COVID-19 Tests for Travellers From High-Risk Countries**\
 `Finland will introduce mandatory coronavirus tests and quarantines for travellers arriving from certain high-risk countries, the minister in charge said on Monday.`\
-https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-health-coronavirus-finland-travel.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-health-coronavirus-finland-travel.html?searchResultPosition=8
 
 **55 Years After Riots, Watts Section of LA Still Bears Scars**\
 `There were no fires this time in Watts. There was no looting, no shooting and no National Guard troops patrolling. `\
-https://nytimes.com/aponline/2020/08/10/us/ap-us-racial-injustice-watts-riots-abridged.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/10/us/ap-us-racial-injustice-watts-riots-abridged.html?searchResultPosition=9
 
 **Former Paypal Executive to Lead Facebook Pay**\
 `Facebook Inc named former PayPal Holdings Inc  executive Stephane Kasriel to lead Facebook Pay, a company executive said on Monday.`\
-https://nytimes.com/reuters/2020/08/10/technology/10reuters-facebook-moves.html?searchResultPosition=5
-
-**Tunisia PM Designate Will Form a Technocrat Government Without Political Parties**\
-`Tunisia prime minister designate Hichem Mechichi said on Monday he will form a technocrat government without political parties, due to the disagreement between parties in the north Africa country.`\
-https://nytimes.com/reuters/2020/08/10/world/africa/10reuters-tunisia-politics-government.html?searchResultPosition=6
-
-**Canada Says It Is Deeply Concerned by Violence After Belarus Elections**\
-`Canada is "deeply concerned" by a police crackdown after a presidential election in Belarus and wants the government to show restraint, Foreign Minister Francois-Philippe Champagne said on Monday.`\
-https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-belarus-election-canada.html?searchResultPosition=7
-
-**Police Clash With Protesters in Belarusian Capital-Reuters Witness**\
-`Belarusian police clashed with protesters in Minsk for the second evening in a row on Monday after President Alexander Lukashenko won a landslide victory in a contested election, a Reuters witness said. `\
-https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-belarus-election-clashes.html?searchResultPosition=8
-
-**Telemedicine Shines During Pandemic but Will Glow Fade?**\
-`Racked with anxiety, Lauren Shell needed to talk to her cancer doctor. `\
-https://nytimes.com/aponline/2020/08/10/health/ap-us-med-virus-outbreak-telemedicine-future.html?searchResultPosition=9
-
-**Fiat Chrysler Asks Judge to Deny GM Request to Reopen Racketeering Case**\
-`Fiat Chrysler Automobiles NV (FCA) on Monday asked a U.S. federal judge to dismiss a request from General Motors Co to reinstate a racketeering lawsuit against its smaller rival, comparing a recent GM filing to a "third-rate spy movie, full of preposterous allegations." `\
-https://nytimes.com/reuters/2020/08/10/business/10reuters-gm-fiat-chrysler-lawsuit.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/10/technology/10reuters-facebook-moves.html?searchResultPosition=10
 
