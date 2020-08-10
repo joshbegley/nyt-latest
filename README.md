@@ -1,40 +1,40 @@
+**Israel's Ratio Oil Refinances Bank Debt With New $650 Million Loan**\
+`Israel's Ratio Oil Exploration said on Monday it refinanced its bank debt with a new seven-year dollar loan of $650 million.`\
+https://nytimes.com/reuters/2020/08/10/world/middleeast/10reuters-ratio-oil-expl-loans.html?searchResultPosition=1
+
+**Belarus Protesters Build Barricades as They Clash With Police After Vote: RIA**\
+`Protesters in Minsk began erecting barricades to shield themselves from law enforcement amid clashes after an election that put Belarusian President Alexander Lukashenko on the path to claim his sixth consecutive term, RIA news agency reported.`\
+https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-belarus-election-barricades.html?searchResultPosition=2
+
+**55 Years After Riots, Watts Neighborhood Still Bears Scars**\
+`There were no fires this time in Watts. There was no looting, no shooting and no National Guard troops patrolling. `\
+https://nytimes.com/aponline/2020/08/10/us/ap-us-racial-injustice-watts-riots.html?searchResultPosition=3
+
+**Oil Rises 1% on Saudi Aramco's Upbeat Demand View, Iraq Supply Cut**\
+`Oil prices climbed on Monday, supported by Saudi optimism about Asian demand and an Iraqi pledge to deepen supply cuts, although uncertainty over a deal to shore up the U.S. economic recovery capped gains.`\
+https://nytimes.com/reuters/2020/08/10/business/10reuters-global-oil.html?searchResultPosition=4
+
+**Should Montreal Subway Honor Polarizing Priest or Jazz Genius?**\
+`A fight to rename a metro stop pits those who want to celebrate a revered Black musician against those who want to retain the name of a priest who espoused equal rights for Francophone Quebecers — and also anti-Semitism.`\
+https://nytimes.com/2020/08/10/world/canada/oscar-peterson-montreal-little-burgundy.html?searchResultPosition=5
+
+**‘I’d Rather Stay Home and Die’**\
+`A fear of hospitals is leading many Mexicans to delay treatment for coronavirus until it is too late for doctors to help them.`\
+https://nytimes.com/2020/08/10/world/americas/mexico-coronavirus-hospitals.html?searchResultPosition=6
+
+**Who Opposes Defunding the N.Y.P.D.? These Black Lawmakers**\
+`Several Black City Council members have lashed out at progressives, comparing calls to defund the police to “colonization” and “political gentrification.”`\
+https://nytimes.com/2020/08/10/nyregion/defund-police-nyc-council.html?searchResultPosition=7
+
+**Ambition Has Always Been ‘Ladylike’**\
+`Nostalgic for the sexism unleashed in response to Hillary Clinton’s 2016 run? Welcome to the prolonged Democratic veepstakes.`\
+https://nytimes.com/2020/08/10/us/politics/kamala-harris-veepstakes-ambition-sexism.html?searchResultPosition=8
+
+**Hockey, Rocked by Racist Acts, Embraces Black Lives Matter Campaigns**\
+`To a degree not seen before, players are kneeling for the United States national anthem and speaking out publicly on fighting racism, with backing from the National Hockey League.`\
+https://nytimes.com/2020/08/10/sports/hockey/nhl-racism-protests-george-floyd.html?searchResultPosition=9
+
 **Taiwan Says Chinese Fighters Approached Taiwan, Were Tracked by Missiles**\
 `Chinese fighter jets briefly crossed the median line of the sensitive Taiwan Strait on Monday morning before being "driven out" by Taiwan's air force, the island's defence ministry said.`\
-https://nytimes.com/reuters/2020/08/10/world/asia/10reuters-taiwan-defence.html?searchResultPosition=1
-
-**Pressure Takes Its Toll but China's Li Enjoys the Experience**\
-`China's Li Haotong says he struggled to deal with the pressure of leading a major championship but is confident the experience will hold him in good stead as he continues his pursuit of a maiden PGA Tour victory. `\
-https://nytimes.com/reuters/2020/08/10/sports/golf/10reuters-golf-pgachamp-haotong.html?searchResultPosition=2
-
-**Zion's Rookie Year Will End Without a Postseason Berth**\
-`Zion Williamson’s rookie season is ending without a playoff berth.`\
-https://nytimes.com/aponline/2020/08/10/sports/basketball/ap-bkn-pelicans-zions-year.html?searchResultPosition=3
-
-**French Economic Activity Runs 7% Below Normal Level in July-Bank of France**\
-`Economic activity in France ran at 7% below normal levels in July, a slight improvement on June, as the construction sector neared pre-coronavirus crisis levels of activity and industrial capacity usage nudged higher, the Bank of France said.`\
-https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-france-economy.html?searchResultPosition=4
-
-**UK Says Getting Children Back to School Is a National Priority**\
-`It is a national priority for children to return to school after months away from the classroom due to the coronavirus pandemic, a junior British health minister said on Monday. `\
-https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-health-coronavirus-britain-education.html?searchResultPosition=5
-
-**Iran Says Beirut Blast Should Not Be Politicised**\
-`Iran said on Monday that countries should refrain from politicising the massive blast in Beirut last week, and that the United States should lift sanctions against Lebanon.`\
-https://nytimes.com/reuters/2020/08/10/world/middleeast/10reuters-lebanon-security-iran.html?searchResultPosition=6
-
-**UK Says Illegal Migrant Crossings From France Are Unacceptable**\
-`Illegal migrant crossing from France to Britain are unacceptable so there needs to be action to prevent smugglers from exploiting people who risk the perilous journey across the Channel in small boats, a British junior minister said on Monday.`\
-https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-europe-migrants-britain.html?searchResultPosition=7
-
-**Turkish Regulator Eases Banks' Required Asset Ratio**\
-`The Turkish banking watchdog said on Monday it lowered the asset ratio which deposit banks were required to maintain to 95% from 100%, easing a requirement set in April to force private banks to lend more and buy more government debt.`\
-https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-turkey-banks.html?searchResultPosition=8
-
-**Belarusian Election Commission Says Lukashenko Was Re-elected by a Landslide**\
-`Belarusian President Alexander Lukashenko won re-election with 80% of the vote at the country's presidential election, the Central Election Commission cited preliminary results as saying on Monday. `\
-https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-belarus-election-commission.html?searchResultPosition=9
-
-**Acuna, Freeman Lead Braves to DH Sweep of Phillies**\
-`Ronald Acuna Jr. had four hits, including two home runs, and drove in three runs as the visiting Atlanta Braves completed a doubleheader sweep of the Philadelphia Phillies on Sunday with an 8-0 victory in the nightcap.`\
-https://nytimes.com/reuters/2020/08/10/sports/baseball/10reuters-baseball-mlb-phi-atl-recap.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/10/world/asia/10reuters-taiwan-defence.html?searchResultPosition=10
 
