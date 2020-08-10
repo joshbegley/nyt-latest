@@ -1,40 +1,40 @@
-**Hong Kong Reports 69 New Coronavirus Cases as Local Transmissions Stay High**\
-`Hong Kong reported 69 new coronavirus cases on Monday, of which 67 were locally transmitted, as authorities battled to contain a resurgence of the virus over the last six weeks.`\
-https://nytimes.com/reuters/2020/08/10/sports/10reuters-health-coronavirus-hongkong.html?searchResultPosition=1
+**Opposition in Belarus Refuses to Recognise Official Election Win by Lukashenko**\
+`Belarusian opposition politician Svetlana Tikhanouskaya said on Monday she refused to recognise official results that showed incumbent Alexander Lukashenko had won a landslide re-election victory.`\
+https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-belarus-election-opposition.html?searchResultPosition=1
 
-**The Trauma of Caring for Coronavirus Patients**\
-`“How do we as doctors and nurses decide we did a good job?”`\
-https://nytimes.com/video/opinion/100000007228098/coronavirus-doctors-nurses-healthcare.html?searchResultPosition=2
+**She Explains ‘Mansplaining’ With Help From 17th-Century Art**\
+`In her new book “Men to Avoid in Art and Life,” Nicole Tersigni harnesses her skill with a Twitter meme to illuminate the experience of women harassed by concern trolls, “sexperts” and more.`\
+https://nytimes.com/2020/08/10/books/nicole-tersigni-men-to-avoid-in-art-and-life.html?searchResultPosition=2
 
-**NBA Roundup: Lillard Scores 51, Embiid Injured in Blazers' Win**\
-`Damian Lillard poured in 51 points and added seven assists to lead the Portland Trail Blazers to a 124-121 victory over a Philadelphia 76ers' squad that lost Joel Embiid to injury on Sunday night near Orlando.`\
-https://nytimes.com/reuters/2020/08/10/sports/basketball/10reuters-basketball-nba-roundup.html?searchResultPosition=3
+**On the Shores of Cape Cod, Where the Oyster Is Their World**\
+`Pollution, development and overharvesting have greatly diminished America’s natural oyster habitat. Aquaculture and adaptable farmers have changed the game.`\
+https://nytimes.com/2020/08/10/travel/cape-cod-oysters.html?searchResultPosition=3
 
-**NGOs Say 7 Aid Workers Are Among Victims of Niger Attack**\
-`Two European aid groups said Monday that seven of the eight people killed by gunmen in a Niger giraffe park were aid workers working for them in the West African country. `\
-https://nytimes.com/aponline/2020/08/10/world/africa/ap-af-niger-killings.html?searchResultPosition=4
+**Shopping for Multi-Light Pendants**\
+`Why settle for a single hanging fixture when you can have multiples? Here’s what you need to know before you buy.`\
+https://nytimes.com/2020/08/10/realestate/shopping-for-multi-light-pendants.html?searchResultPosition=4
 
-**China to Sanction Rubio, Cruz, and Others Over U.S. Action on Hong Kong**\
-`China's foreign ministry said it would apply sanctions against U.`\
-https://nytimes.com/reuters/2020/08/10/world/asia/10reuters-usa-china-hongkong-sanctions.html?searchResultPosition=5
+**Will Cars Rule the Roads in Post-Pandemic New York?**\
+`Newly emboldened, many New Yorkers want to repurpose streets for walking, biking, dining and schools, even as traffic returns.`\
+https://nytimes.com/2020/08/10/nyregion/nyc-streets-parking-dining-busways.html?searchResultPosition=5
 
-**Euro Zone Investor Morale Improves in August but Recovery Sluggish-Sentix**\
-`Investor morale in the euro zone rose for a fourth consecutive month in August but the low reading suggests that the coronavirus-hit economy is still in recession in the third quarter, a survey showed on Monday.`\
-https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-eurozone-economy-sentix.html?searchResultPosition=6
+**Amazon Satellites Add to Astronomers’ Worries About the Night Sky**\
+`The F.C.C. approved the company’s 3,236-satellite constellation, which aims to provide high-speed internet service around the world.`\
+https://nytimes.com/2020/08/10/science/amazon-project-kuiper.html?searchResultPosition=6
 
-**Bombing in Pakistani Town Near Afghan Border Kills 5**\
-`A bomb targeting an anti-drug force tore through a busy market in southwestern Pakistan near the Afghan border on Monday, killing at least five people and wounding 10 others, police and hospital officials said.`\
-https://nytimes.com/aponline/2020/08/10/world/asia/ap-as-pakistan-bombing.html?searchResultPosition=7
+**I Am the C.E.O. of Uber. Gig Workers Deserve Better.**\
+`Gig workers want both flexibility and benefits — we support laws that could make that possible.`\
+https://nytimes.com/2020/08/10/opinion/uber-ceo-dara-khosrowshahi-gig-workers-deserve-better.html?searchResultPosition=7
 
-**Russia Fines Google for Not Blocking Banned Content-Ifax**\
-`A Russian court on Monday fined Google 1.5 million roubles ($20,350) after finding it guilty of failing to block content banned in Russia, the Interfax news agency reported. `\
-https://nytimes.com/reuters/2020/08/10/technology/10reuters-russia-alphabet-lawsuit.html?searchResultPosition=8
+**Stephen Hahn, F.D.A. Chief, Is Caught Between Scientists and the President**\
+`Many medical experts — including members of his own staff — worry about whether Dr. Hahn has the fortitude and political savvy to protect the scientific integrity of the F.D.A. from Mr. Trump.`\
+https://nytimes.com/2020/08/10/health/stephen-hahn-fda.html?searchResultPosition=8
 
-**Tatum, Hayward Lift Celtics Past Magic in OT**\
-`Gordon Hayward scored 31 points and Jayson Tatum added 29 to lift the Boston Celtics to a 122-119 overtime victory over the Magic on Sunday near Orlando.`\
-https://nytimes.com/reuters/2020/08/10/sports/basketball/10reuters-basketball-nba-orl-bos-recap.html?searchResultPosition=9
+**Start-Ups Braced for the Worst. The Worst Never Came.**\
+`The doomsday warnings about tech start-ups failing in the pandemic have not yielded the shakeout that many expected a few months ago.`\
+https://nytimes.com/2020/08/10/technology/start-ups-pandemic-silicon-valley.html?searchResultPosition=9
 
-**China Ex-Regulator Warns on Bank Funding Risk as NCD Issues Boom**\
-`The former head of China's securities regulator has raised concern about banks addressing funding shortages by ramping up issues of short-term interbank debt instruments that have in the past attracted regulatory scrutiny.`\
-https://nytimes.com/reuters/2020/08/10/business/10reuters-china-bonds-ncd.html?searchResultPosition=10
+**I Have a Cure for the Dog Days of Summer**\
+`It’s hot, Donald Trump is still president, the pandemic is still raging, and did I mention that it’s hot?`\
+https://nytimes.com/2020/08/10/opinion/summer-heat-nature-coronavirus.html?searchResultPosition=10
 
