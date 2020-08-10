@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/08/09/sports/basketball/09reuters-golf-pgachamp
 `The new referees in American politics are Facebook, Google and Twitter, and they would be wise to pay attention to lessons the old media tried to learn.`\
 https://nytimes.com/2020/08/09/business/media/trump-facebook-google-twitter-misinformation.html?searchResultPosition=7
 
-**Shares of Hyundai Motor Rise as Much as 10% on Launch of Its EV Brand**\
-`Shares of Hyundai Motor Co jumped as much as 10.2% on Monday after it announced its plan to create a family of electric vehicles it will sell under the Ioniq brand as part of its drive to become the world's third largest seller of EVs by 2025.`\
+**Hyundai Motor Shares Rise as Much as 10% on EV Plan Announcement**\
+`Hyundai Motor Co stock jumped as much as 10.2% on Monday to its highest price since May 2018, after the automaker said it would create a family of Ioniq-brand electric vehicles (EVs) as it aims to become the third-largest EV maker by 2025. `\
 https://nytimes.com/reuters/2020/08/09/business/09reuters-hyundai-motor-share.html?searchResultPosition=8
 
 **Harvick Holds Off Hamlin for Michigan Doubleheader Sweep**\
