@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/08/10/sports/basketball/10reuters-basketball-nb
 https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-japan-g7.html?searchResultPosition=5
 
 **Heat Stifle Warren, Close In on No. 4 Seed With 114-92 Win**\
-`Jimmy Butler returned from a foot injury and scored 19 points, Derrick Jones scored 18 off the Miami bench and the Heat kept T.J. Warren largely in check on the way to a 114-92 win over the Pacers on Monday night.`\
+`Jimmy Butler returned to the Miami lineup and everything started clicking again for the Heat.`\
 https://nytimes.com/aponline/2020/08/10/sports/basketball/bc-bkn-pacers-heat.html?searchResultPosition=6
 
 **Unusual ‘Derecho’ Storms Rip Through Midwest**\
