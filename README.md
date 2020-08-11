@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/08/11/world/europe/11reuters-health-coronavirus
 `India's ability to rein in a surging coronavirus outbreak hinges on its 10 most populous states, Prime Minister Narendra Modi said on Tuesday, urging regional leaders to ramp up testing and  contact tracing.`\
 https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-health-coronavirus-india.html?searchResultPosition=8
 
-**DealBook: On McDonald’s and Morality**\
-`The fast-food giant’s suit against its former C.E.O. Steve Easterbrook may prompt other companies to review their pay and severance policies.`\
+**On McDonald’s and Morality**\
+`The fast-food giant’s suit against its former C.E.O. may prompt other companies to review their pay and severance policies.`\
 https://nytimes.com/2020/08/11/business/dealbook/mcdonalds-ceo-severance.html?searchResultPosition=9
 
 **UK PM Johnson Warns: There Will Be Bumpy Months Ahead**\
