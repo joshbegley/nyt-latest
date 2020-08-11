@@ -11,7 +11,7 @@ https://nytimes.com/reuters/2020/08/11/business/11reuters-hedgefunds-keystonecap
 https://nytimes.com/reuters/2020/08/11/sports/baseball/11reuters-baseball-mlb-col-ari-recap.html?searchResultPosition=3
 
 **Seager, Lewis Power Mariners Past Rangers**\
-`Kyle Seager had a grand slam, and Kyle Lewis blasted a three-run shot as the Seattle Mariners routed the Texas Rangers 10-2 on Monday in the opener of a three-game series between the American League West rivals in Arlington, Texas.`\
+`Kyle Seager hit a grand slam, and Kyle Lewis blasted a three-run shot as the Seattle Mariners routed the Texas Rangers 10-2 on Monday in the opener of a three-game series between the American League West rivals in Arlington, Texas.`\
 https://nytimes.com/reuters/2020/08/11/sports/baseball/11reuters-baseball-mlb-tex-sea-recap.html?searchResultPosition=4
 
 **Molecular Partners Gets Swiss Govt Payment for Early COVID Candidate**\
