@@ -30,9 +30,9 @@ https://nytimes.com/aponline/2020/08/11/us/ap-us-supreme-court-indian-country.ht
 `Polestar, the premium electric vehicle maker owned China's Geely and Volvo Cars, would like to eventually be publicly listed, but the immediate focus is on successfully launching the new Polestar 2 electric sedan, the startup's chief executive said on Tuesday.`\
 https://nytimes.com/reuters/2020/08/11/business/11reuters-polestar-ipo.html?searchResultPosition=8
 
-**Living Near an Airport May Raise Pregnancy Risks**\
+**Living Near an Airport May Raise Risks of Preterm Birth**\
 `Pregnant women exposed to soot from jet engines were at increased risk of giving birth prematurely.`\
-https://nytimes.com/2020/08/11/well/family/living-near-an-airport-may-raise-pregnancy-risks.html?searchResultPosition=9
+https://nytimes.com/2020/08/11/well/family/living-near-an-airport-may-raise-risks-of-preterm-birth.html?searchResultPosition=9
 
 **Vermont Primary Election Results: At-Large Congressional District**\
 ``\
