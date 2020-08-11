@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/08/11/world/asia/ap-as-virus-outbreak-new-zealand.html?searchResultPosition=1
 
 **New Zealand Record New COVID-19 Cases; Brings Back Restrictions**\
-`New Zealand on Tuesday confimed new cases of locally acquired COVID-19 after going for 102 days without any domestic transmission.`\
+`New Zealand on Tuesday confirmed new cases of locally acquired COVID-19 after going for 102 days without any domestic transmission.`\
 https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-health-coronavirus-newzealand.html?searchResultPosition=2
 
 **Coronavirus Found on Frozen Seafood in China**\
@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/08/11/sports/baseball/11reuters-baseball-mlb-wa
 `Kyle Freeland went through a nightmare of a season in 2018, but the Colorado Rockies left-hander salvaged something out of it, and it's paying off.`\
 https://nytimes.com/reuters/2020/08/11/sports/baseball/11reuters-baseball-mlb-col-ari-preview.html?searchResultPosition=7
 
-**German Investor Sentiment Picks Up in August**\
-`Investor sentiment in Germany improved more than expected in August, the ZEW economic research institute said on Tuesday, cautioning, however, that experts see current conditions improving only slowly.`\
+**German Investor Sentiment Improves in August as Recovery Hopes Rise**\
+`Investor sentiment in Germany picked up more than expected in August, a ZEW survey showed on Tuesday, reflecting hopes that Europe's biggest economy is on the road to recovery after the devastation caused by the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/08/11/world/europe/11reuters-germany-economy-zew.html?searchResultPosition=8
 
 **Richards to Face Stripling in Latest Padres-Dodgers Tussle**\
