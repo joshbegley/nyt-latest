@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/08/10/world/europe/10reuters-health-coronavirus
 https://nytimes.com/aponline/2020/08/10/business/ap-as-virus-outbreak-asia.html?searchResultPosition=2
 
 **Cabrera and Soto Power Nationals to 16-4 Rout of Matz, Mets**\
-`Asdrubal Cabrera homered twice and drove in five runs, tormenting his former team again as the Washington Nationals routed the New York Mets 16-4 on Monday night.`\
+`Asdrubal Cabrera went 4 for 4 with two homers, two doubles and five RBIs, tormenting his former team again as the Washington Nationals routed the New York Mets 16-4 on Monday night.`\
 https://nytimes.com/aponline/2020/08/10/sports/baseball/bc-bbn-nationals-mets.html?searchResultPosition=3
 
 **Tour De France 2021 to Begin in Brittany After Denmark Postponement**\
