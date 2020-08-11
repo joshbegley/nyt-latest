@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/08/10/sports/baseball/ap-bba-athletics-laurean
 `Los Angeles County must pay a full $8 million damage award to the family of a Black man whose death had similarities to the police killing of George Floyd in Minneapolis, the California Supreme Court ruled Monday.`\
 https://nytimes.com/aponline/2020/08/10/us/ap-us-racial-injustice-damages-award.html?searchResultPosition=2
 
-**China Auto Sales in July Rise 16.4%, Fourth Month of Gains**\
+**China July Auto Sales Surge 16.4%, Fourth Month of Gains**\
 `China's auto sales in July climbed 16.4% from a year earlier, the fourth consecutive month of gains as the world's biggest vehicle market comes off lows hit during the country's coronavirus lockdown.`\
 https://nytimes.com/reuters/2020/08/10/world/asia/10reuters-china-autos.html?searchResultPosition=3
 
