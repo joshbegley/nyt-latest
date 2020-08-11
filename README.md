@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/08/11/world/europe/11reuters-greece-turkey-pm.h
 `A Southern Arkansas University student was killed another wounded in an early Tuesday shooting in a campus parking lot, the school said.`\
 https://nytimes.com/aponline/2020/08/11/us/ap-us-university-fatal-shooting.html?searchResultPosition=3
 
-**After Vote That Many Called Rigged, Challenger to Belarus Leader Flees**\
+**After Vote That Many Called Rigged, Challenger to Belarus Leader Leaves**\
 `Svetlana Tikhanovskaya disappeared for several hours, then released a cryptic video message. Lithuania’s foreign minister said she was in his country and was “safe.”`\
 https://nytimes.com/2020/08/11/world/europe/belarus-election-Svetlana-Tikhanovskaya.html?searchResultPosition=4
 
