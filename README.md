@@ -1,40 +1,40 @@
+**Puerto Rico Gov Sues Elections Commission in Primary Debacle**\
+`Puerto Rico’s governor on Tuesday added new demands to conflicting proposals for rescuing the U.S. territory's botched primary election, suing to insist on an election re-do at all polling centers that opened late — not just those where a lack of ballots kept people from voting,`\
+https://nytimes.com/aponline/2020/08/11/world/americas/ap-cb-puerto-rico-botched-primaries.html?searchResultPosition=1
+
+**Halep Struggles but Advances on Return at Prague Open**\
+`World number two Simona Halep made a rusty start on her return from the COVID-19 shutdown as she edged a seesaw battle against Slovenian Polona Hercog 6-1 1-6 7-6(3) in the opening round of Prague Open on Tuesday.`\
+https://nytimes.com/reuters/2020/08/11/sports/tennis/11reuters-tennis-prague.html?searchResultPosition=2
+
+**The City of Angels, Viewed Through a Prism**\
+`In “City at the Edge of Forever,” Peter Lunenfeld explores Los Angeles in a series of essays about the idiosyncrasies of a place that defies categories.`\
+https://nytimes.com/2020/08/11/books/review/city-at-the-edge-of-forever-los-angeles-peter-lunenfeld.html?searchResultPosition=3
+
+**Texas Court Holds Jury Trial in Traffic Crime Case Over Zoom**\
+`A Texas court has launched what the state says is the nation’s first virtual jury trial in a criminal case.`\
+https://nytimes.com/aponline/2020/08/11/us/ap-us-virus-outbreak-virtual-trial.html?searchResultPosition=4
+
+**Georgia Police Chief Criticized for Facebook Post Resigns**\
+`Officials in a city outside of Atlanta have approved a settlement agreement resulting in the resignation of a police chief who was criticized for saying on social media that he doesn’t support the Black Lives Matter movement.`\
+https://nytimes.com/aponline/2020/08/11/us/ap-us-police-chief-facebook-post.html?searchResultPosition=5
+
+**Coronavirus Tests the Leadership Style of Goldman Sachs’s C.E.O.**\
+`The pandemic has given David Solomon a chance to try out a more open-minded approach in tune with the bank’s young work force.`\
+https://nytimes.com/2020/08/11/business/goldman-sachs-david-solomon-coronavirus.html?searchResultPosition=6
+
+**Trump: Some Men Insulted That Biden Vowed to Name Female VP**\
+`President Donald Trump criticized his Democratic rival's vice presidential selection process, saying Tuesday that some men are “insulted” by Joe Biden's decision to promise to select a woman as his running mate.`\
+https://nytimes.com/aponline/2020/08/11/us/politics/ap-us-election-2020-trump-vp.html?searchResultPosition=7
+
 **Boeing's 2020 MAX Cancellations Near 400 in July**\
 `Boeing Co lost another 43 orders for its grounded 737 MAX planes in July, bringing the total cancellations for the jet this year to 398, while delivering only four of its other aircraft to customers, monthly numbers showed on Tuesday.`\
-https://nytimes.com/reuters/2020/08/11/business/11reuters-boeing-deliveries.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/11/business/11reuters-boeing-deliveries.html?searchResultPosition=8
 
 **EU Refuses to Monitor Venezuelan Election, Urges Delay**\
 `The European Union said Tuesday it won't send observers to monitor Venezuela's upcoming congressional election, citing a lack of fair conditions for a vote that could erase the opposition's last major domestic stronghold of power.`\
-https://nytimes.com/aponline/2020/08/11/world/americas/ap-lt-venezuela.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/11/world/americas/ap-lt-venezuela.html?searchResultPosition=9
 
 **Support of Racial Justice Has Risen. Some Black Activists Aren’t Buying It.**\
 `For community activists on the South Side of Chicago, words are insufficient, and an embrace of the Black Lives Matter movement requires caring for communities that both Democrats and Republicans have ignored.`\
-https://nytimes.com/2020/08/11/us/politics/black-lives-matter-chicago-roseland.html?searchResultPosition=3
-
-**Half the Daily 100,000 COVID-19 Cases in Americas Are in U.S.-WHO Director**\
-`More than 100,000 cases of C0VID-19 are being reported every day in the Americas, half of them in the United States, and there are worrisome spikes in countries that had controlled their epidemics, like Argentina and Colombia, the World Health Organization regional director Carissa Etienne said on Tuesday.`\
-https://nytimes.com/reuters/2020/08/11/world/americas/11reuters-health-coronavirus-latam.html?searchResultPosition=4
-
-**The Top iPhone and iPad Apps on App Store**\
-`Top Paid iPhone Apps:`\
-https://nytimes.com/aponline/2020/08/11/business/ap-us-itunes-apps-top-10.html?searchResultPosition=5
-
-**At Least 81 People Killed as South Sudan's Disarmament Erupts in Violence**\
-`At least 81 people have been killed in the South Sudan region of Warrap State following heavy fighting between armed civilians and government forces carrying out a disarmament exercise, the military's spokesman said on Tuesday.`\
-https://nytimes.com/reuters/2020/08/11/world/11reuters-southsudan-unrest.html?searchResultPosition=6
-
-**A Bible Burning, a Russian News Agency and a Story Too Good to Check Out**\
-`A story about protesters burning Bibles drew condemnation from conservatives. It now appears to have been wildly exaggerated — and the first viral hit in Russia’s 2020 disinformation campaign.`\
-https://nytimes.com/2020/08/11/us/politics/russia-disinformation-election-meddling.html?searchResultPosition=7
-
-**Sea Life Around Mauritius Dying as Japanese Tanker Oil Spill Spreads**\
-`Mauritian volunteers fished dead eels from oily waters on Tuesday as they tried to clean up damage to the Indian Ocean island's most pristine beaches after a Japanese bulk carrier leaked an estimated 1,000 tonnes of oil.`\
-https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-mauritius-environment.html?searchResultPosition=8
-
-**Effort to Disarm Communities in South Sudan Fuels Deadly Clashes**\
-`At least 81 soldiers and civilians were killed as the authorities carried out a plan to try to reduce the number of weapons in circulation in a country recently pummeled by civil war.`\
-https://nytimes.com/2020/08/11/world/africa/south-sudan-violence-disarmament.html?searchResultPosition=9
-
-**The Latest: UMass Cancels Football, Will Try Again in Spring**\
-`The Latest on the effects of the coronavirus outbreak on sports around the world:`\
-https://nytimes.com/aponline/2020/08/11/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=10
+https://nytimes.com/2020/08/11/us/politics/black-lives-matter-chicago-roseland.html?searchResultPosition=10
 
