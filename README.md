@@ -1,40 +1,40 @@
+**Kuzma's Last-Second 3-Pointer Lifts Lakers Past Nuggets**\
+`Kyle Kuzma's 3-pointer with 0.4 seconds left lifted the Los Angeles Lakers to a 124-121 victory over the Denver Nuggets on Monday night near Orlando.`\
+https://nytimes.com/reuters/2020/08/11/sports/basketball/11reuters-basketball-nba-lal-den-recap.html?searchResultPosition=1
+
 **Japan's Service Sector Sentiment Improves in July**\
 `Japan's service sector sentiment index rose in July, a Cabinet Office survey showed on Tuesday, showing some improvement in business confidence although concerns persist over the impact of the COVID-19 pandemic.`\
-https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-japan-economy-sentiment.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-japan-economy-sentiment.html?searchResultPosition=2
 
 **Racist Videos Bring Attention to US House Race in Georgia**\
 `A woman who's been blasted for racist videos and adamant support for the QAnon conspiracy theory faces a neurosurgeon who campaigned on his experience to improve the health care system in Tuesday's Republican primary runoff for an open U.S. House seat representing northwest Georgia. `\
-https://nytimes.com/aponline/2020/08/11/us/ap-us-election-2020-georgia-14th.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/11/us/ap-us-election-2020-georgia-14th.html?searchResultPosition=3
 
 **Portland Protesters Rally as Arrest of Activist Draws Ire**\
 `The arrest during protests in Portland, Oregon, of a Black woman who became a leading activist in the racial justice movement after she was assaulted by a white supremacist three years ago has galvanized local and national Black Lives Matter groups.`\
-https://nytimes.com/aponline/2020/08/11/us/ap-us-racial-injustice-portland.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/11/us/ap-us-racial-injustice-portland.html?searchResultPosition=4
 
 **Diamondbacks Get 18 Hits in 12-8 Win Over Rockies**\
 `Kole Calhoun homered and had a two-run double to lead Arizona’s 18-hit outburst, and the Diamondbacks beat the Colorado Rockies 12-8 on Monday night.`\
-https://nytimes.com/aponline/2020/08/11/sports/baseball/ap-bbn-diamondbacks-rockies.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/11/sports/baseball/ap-bbn-diamondbacks-rockies.html?searchResultPosition=5
 
 **What’s on TV Tuesday: Will Smith and ‘She Dies Tomorrow’**\
 `The actor swims with sharks in a new special, “Off the Deep End.” And a woman spreads an unsettling, seemingly contagious thought in “She Dies Tomorrow.”`\
-https://nytimes.com/2020/08/11/arts/television/whats-on-tv-tuesday-will-smith-and-she-dies-tomorrow.html?searchResultPosition=5
+https://nytimes.com/2020/08/11/arts/television/whats-on-tv-tuesday-will-smith-and-she-dies-tomorrow.html?searchResultPosition=6
 
 **Shooting Near White House Interrupts Trump's Briefing on TV**\
 `A uniformed Secret Service officer shot and wounded a man during a confrontation near the White House that led to President Donald Trump being abruptly escorted out of a briefing room during a televised news conference Monday, authorities said.`\
-https://nytimes.com/aponline/2020/08/11/us/politics/ap-us-trump.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/08/11/us/politics/ap-us-trump.html?searchResultPosition=7
 
 **In Virus Talks, Pelosi Holds Firm While Mnuchin Wants a Deal**\
 `Speaker Nancy Pelosi is not about to blink. `\
-https://nytimes.com/aponline/2020/08/11/us/politics/ap-us-virus-outbreak-congress.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/08/11/us/politics/ap-us-virus-outbreak-congress.html?searchResultPosition=8
 
 **Hong Kong Residents Buy Newspaper to Support Free Press**\
 `Long lines of people bought up copies of the Apple Daily paper at Hong Kong newsstands Tuesday to support a free press in the semi-autonomous Chinese territory.`\
-https://nytimes.com/aponline/2020/08/11/business/ap-as-china-hong-kong.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/08/11/business/ap-as-china-hong-kong.html?searchResultPosition=9
 
 **Dems Say Trump's Payroll Tax Break Weakens Social Security**\
 `President Donald Trump’s move to defer Social Security payroll taxes could be taking him into treacherous political territory.`\
-https://nytimes.com/aponline/2020/08/11/business/ap-us-trump-social-security.html?searchResultPosition=9
-
-**Padres Edge Light-Hitting Dodgers 2-1 on Hosmer's RBI Single**\
-`Eric Hosmer singled in the go-ahead run with two outs in the sixth inning, and the San Diego Padres beat the Los Angeles Dodgers 2-1 in the series opener Monday night.`\
-https://nytimes.com/aponline/2020/08/11/sports/baseball/ap-bbn-padres-dodgers.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/11/business/ap-us-trump-social-security.html?searchResultPosition=10
 
