@@ -1,40 +1,40 @@
-**A New Clash Over Mail Voting: The Cost of the Postage**\
-`Senator Chuck Schumer assailed the Postal Service for what he said was an effort to triple the cost to states of sending out mail-in ballots. The service said it was just a suggestion to use first-class mail.`\
-https://nytimes.com/2020/08/11/us/politics/post-office-mail-in-voting.html?searchResultPosition=1
+**Convicted Killer Pleads Guilty to Minnesota Husband Murder**\
+`A Minnesota woman who earlier pleaded guilty to killing a woman in Florida was sentenced to life in prison without parole after pleading guilty Tuesday to killing her husband before going on the run. `\
+https://nytimes.com/aponline/2020/08/11/us/ap-us-husband-killed-fugitive.html?searchResultPosition=1
 
-**Airbnb Backs OECD Approach to Digital Services Tax**\
-`Home rental startup Airbnb said on Wednesday it supported the development of a digital services tax regime being discussed by the Organisation for Economic Co-operation and Development (OECD) to bridge a divide between the United States and Europe.  `\
-https://nytimes.com/reuters/2020/08/11/business/11reuters-oecd-tax-airbnb.html?searchResultPosition=2
+**Washington Primary Election Results: Fourth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/08/04/us/elections/results-washington-house-district-4-primary-election.html?searchResultPosition=2
 
-**Defectors Say South Korea Investigations Threaten North Korean 'Underground Railroad'**\
-`A combination of coronavirus border closures and an unprecedented pressure campaign by a South Korean government keen to engage with North Korea may destroy networks defectors have long used to start new lives, activist groups say. `\
-https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-northkorea-southkorea-defectors.html?searchResultPosition=3
+**Live: Arizona State Primary Election Results 2020**\
+``\
+https://nytimes.com/interactive/2020/08/04/us/elections/results-arizona-primary-elections.html?searchResultPosition=3
 
-**The Kamala Harris Pick: Geographic Balance Takes Back Seat to Gender, Race**\
-`The days when presidential candidates would chose running mates who could deliver their home states are now long gone.`\
-https://nytimes.com/2020/08/11/us/politics/harris-biden-geography-balance.html?searchResultPosition=4
+**Washington Primary Election Results: Seventh Congressional District**\
+``\
+https://nytimes.com/interactive/2020/08/04/us/elections/results-washington-house-district-7-primary-election.html?searchResultPosition=4
 
-**Trump v. Putin: A Vaccine Manhood Contest**\
-`As President Vladimir V. Putin of Russia declared on Tuesday that his nation had approved the world’s first coronavirus vaccine without extensive clinical trials, public health experts worried that President Trump would feel the need to compete.`\
-https://nytimes.com/2020/08/11/us/politics/trump-putin-vaccine.html?searchResultPosition=5
+**Michigan Primary Election Results: 13th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/08/04/us/elections/results-michigan-house-district-13-primary-election.html?searchResultPosition=5
 
-**Exclusive: U.S. Ban on TikTok Could Cut It Off From App Stores, Advertisers-White House Document**\
-`President Donald Trump's executive order banning China's TikTok could prevent U.S. app stores from offering the popular short-video app and make advertising on the platform illegal, according to a White House document seen by Reuters. `\
-https://nytimes.com/reuters/2020/08/11/business/11reuters-usa-tiktok-ban-exclusive.html?searchResultPosition=6
+**Michigan Primary Election Results: 14th Congressional District**\
+``\
+https://nytimes.com/interactive/2020/08/04/us/elections/results-michigan-house-district-14-primary-election.html?searchResultPosition=6
 
-**Virginia Man Who Drove Into Protesters Gets 6 Years in Prison**\
-`Harry H. Rogers, who prosecutors say is an admitted K.K.K. leader, faces three additional counts of attempted malicious wounding, a felony.`\
-https://nytimes.com/2020/08/11/us/kkk-harry-rogers-guilty.html?searchResultPosition=7
+**Missouri Governor Primary Election Results**\
+``\
+https://nytimes.com/interactive/2020/08/04/us/elections/results-missouri-governor-primary-election.html?searchResultPosition=7
 
-**Black Women Have Been Waiting for Kamala Harris Far Too Long**\
-`The political system has frequently ignored the concerns of the most loyal members of the Democratic Party.`\
-https://nytimes.com/2020/08/11/opinion/kamala-harris-biden-2020.html?searchResultPosition=8
+**Live: Kansas State Primary Election Results 2020**\
+``\
+https://nytimes.com/interactive/2020/08/04/us/elections/results-kansas-primary-elections.html?searchResultPosition=8
 
-**Britain Tightens Online Campaigning Rules to Protect Elections**\
-`Britain plans to tighten rules around online campaigning to make political parties and campaigners state more clearly who they are, the government said on Wednesday, seeking to allay fears about interference in its democracy.`\
-https://nytimes.com/reuters/2020/08/11/world/europe/11reuters-britain-politics-campaigning.html?searchResultPosition=9
+**Michigan Primary Election Results: Sixth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/08/04/us/elections/results-michigan-house-district-6-primary-election.html?searchResultPosition=9
 
-**Crisis in the Nation, Crickets on Capitol Hill**\
-`The standoff between the White House and Democratic leaders in Congress over a new coronavirus aid bill showed no signs of resolution — or even of efforts to find a way back to the bargaining table.`\
-https://nytimes.com/2020/08/11/us/politics/congress-coronavirus-relief-bill.html?searchResultPosition=10
+**Missouri Primary Election Results: Fifth Congressional District**\
+``\
+https://nytimes.com/interactive/2020/08/04/us/elections/results-missouri-house-district-5-primary-election.html?searchResultPosition=10
 
