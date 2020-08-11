@@ -1,40 +1,40 @@
+**Padres Edge Light-Hitting Dodgers 2-1 on Hosmer's RBI Single**\
+`Eric Hosmer singled in the go-ahead run with two outs in the sixth inning, and the San Diego Padres beat the Los Angeles Dodgers 2-1 in the series opener Monday night.`\
+https://nytimes.com/aponline/2020/08/11/sports/baseball/ap-bbn-padres-dodgers.html?searchResultPosition=1
+
+**Democrats, Biden Still Juggling Virtual Convention Details**\
+`Joe Biden’s presidential nominating convention will highlight the U.S. political spectrum from the left flank of New York Rep. Alexandria Ocasio-Cortez to the Republican old guard of former Ohio Gov. John Kasich. `\
+https://nytimes.com/aponline/2020/08/11/us/politics/ap-us-election-2020-dnc.html?searchResultPosition=2
+
+**Oil Edges Higher on Hopes for U.S. Stimulus, Demand Recovery**\
+`Crude oil gained more ground on Tuesday, with prices underpinned by expectations of U.S. stimulus and a rebound in Asian demand as economies reopen.`\
+https://nytimes.com/reuters/2020/08/11/business/11reuters-global-oil.html?searchResultPosition=3
+
+**Constraints Gone, GOP Ramps Up Effort to Monitor Voting**\
+`Since 1937, the state of Pennsylvania has had strict rules about who can stand in polling stations and challenge the eligibility of voters. The restrictions are meant to curb the use of “poll monitors” long sent by both parties to look out for voting mishaps, but at times used to intimidate voters. `\
+https://nytimes.com/aponline/2020/08/11/us/politics/ap-us-election-2020-poll-monitors.html?searchResultPosition=4
+
+**Seattle Reduces Police Funding, Signals Deeper Cuts Ahead**\
+`Seattle's council on Monday approved a reduction of the budget of the city's police department of less than 1% after months of protests demanding that it defund the force, but it signaled deeper cuts might be on the way.  `\
+https://nytimes.com/reuters/2020/08/11/us/politics/11reuters-global-race-protests-seattle.html?searchResultPosition=5
+
+**Kuzma's 3-Pointer Lifts Lakers to 124-121 Win Over Nuggets**\
+`Kyle Kuzma hit a 3-pointer with .4 seconds left and the Los Angeles Lakers beat the Denver Nuggets 124-121 Monday night to snap a three-game losing streak.`\
+https://nytimes.com/aponline/2020/08/11/sports/basketball/bc-bkn-nuggets-lakers.html?searchResultPosition=6
+
+**Analysis: Trump Has a Go-To Solution, and It's More Trump**\
+`President Donald Trump has a ready solution for almost any crisis: more Donald Trump. `\
+https://nytimes.com/aponline/2020/08/11/us/politics/ap-us-trump-more-trump-analysis.html?searchResultPosition=7
+
+**South Korea's Daewoong Pharma Gets India Nod to Test Anti-Parasite Drug for COVID-19**\
+`South Korea's Daewoong Pharmaceutical Co Ltd said on Tuesday it received Indian regulatory approval to test its anti-parasitic niclosamide drug to treat COVID-19 patients in an early-stage human trial.`\
+https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-health-coronavirus-southkorea-daewoong.html?searchResultPosition=8
+
 **Dollar Holds Its Ground as Investors Await U.S. Stimulus Talks**\
 `The dollar held overnight gains on Tuesday following seven weeks of an almost relentless fall as investors clung to hopes of a bipartisan stimulus deal in Washington and U.S. bond yields rebounded from multi-month lows.`\
-https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-global-forex.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-global-forex.html?searchResultPosition=9
 
 **Seager's Slam One of 3 Seattle Homers in 10-2 Win at Texas**\
 `Kyle Seager hit a grand slam, Kyle Lewis and Dylan Moore also homered and the Seattle Mariners won 10-2 Monday night in their first game at the new Texas ballpark, snapping the Rangers' three-game winning streak.`\
-https://nytimes.com/aponline/2020/08/11/sports/baseball/ap-bba-mariners-rangers.html?searchResultPosition=2
-
-**California State Controller Asks CalPERS to Investigate CIO's Exit**\
-`The California State Controller Betty Yee has called for the board of the California Public Employees' Retirement System (CalPERS), the largest public U.S. investment fund, to launch an inquiry into the abrupt exit of its chief investment officer.`\
-https://nytimes.com/reuters/2020/08/11/business/11reuters-calpers-cio-probe.html?searchResultPosition=3
-
-**McCullers Throws 7 Scoreless, Astros Beat Giants 6-4**\
-`Lance McCullers Jr. pitched no-hit ball into the seventh inning, Michael Brantley and Carlos Correa drove in two runs each and the Houston Astros snapped a five-game skid with a 6-4 win over the San Francisco Giants on Monday night.`\
-https://nytimes.com/aponline/2020/08/11/sports/baseball/bc-bbo-giants-astros.html?searchResultPosition=4
-
-**Bottom of Rays' Lineup Subdues Red Sox**\
-`Kevin Kiermaier hit a tiebreaking two-run double in the seventh inning, Manuel Margot had four hits and the Tampa Bay Rays edged the host Boston Red Sox 8-7 Monday night.`\
-https://nytimes.com/reuters/2020/08/11/sports/baseball/11reuters-baseball-mlb-tb-bos-recap.html?searchResultPosition=5
-
-**Sinovac Launches Late-Stage Trial for Potential COVID-19 Vaccine in Indonesia**\
-`China's Sinovac Biotech Ltd launched on Tuesday a late-stage human trial involving as many as 1,620 patients in Indonesia for a COVID-19 vaccine candidate that it is developing with Indonesian state-owned peer Bio Farma.`\
-https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-health-coronavirus-indonesia-vaccine.html?searchResultPosition=6
-
-**New York’s True Nursing Home Death Toll Cloaked in Secrecy**\
-`Riverdale Nursing Home in the Bronx appears, on paper, to have escaped the worst of the coronavirus pandemic, with an official state count of just four deaths in its 146-bed facility.`\
-https://nytimes.com/aponline/2020/08/11/us/ap-us-virus-outbreak-nursing-home-numbers.html?searchResultPosition=7
-
-**Your Tuesday Briefing**\
-`Lebanon resignations, Belarus protests, Champions League: Here’s what you need to know.`\
-https://nytimes.com/2020/08/11/briefing/lebanon-resignations-belarus-protests-champions-league.html?searchResultPosition=8
-
-**Trinidad and Tobago PM Claims Election Victory for Ruling Party**\
-`Trinidad and Tobago Prime Minister Keith Rowley claimed victory for his ruling party in a general election on Monday, appearing to secure a second term despite concern over the coronavirus, migration and recession in the energy-rich Caribbean country.`\
-https://nytimes.com/reuters/2020/08/11/world/americas/11reuters-trinidadtobago-election.html?searchResultPosition=9
-
-**Inaction by Congress Leaves States to Pay for Election Costs**\
-`Congress’ failure so far to pass another round of coronavirus aid leaves state and local officials on their own to deal with the soaring costs of holding a presidential election amid a deadly pandemic.`\
-https://nytimes.com/aponline/2020/08/11/us/ap-us-election-2020-state-election-aid.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/11/sports/baseball/ap-bba-mariners-rangers.html?searchResultPosition=10
 
