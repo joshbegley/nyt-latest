@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/08/11/us/ap-us-george-floyd-investigation.html
 https://nytimes.com/aponline/2020/08/11/business/ap-financial-markets-box.html?searchResultPosition=5
 
 **A Look at Kamala Harris, Joe Biden’s V.P. Choice**\
-`Ms. Harris, a California senator who is the first Black woman to join a major party’s national ticket, is a former attorney general of California and ran for president against Mr. Biden last year.`\
+`Ms. Harris, a California senator who is the first woman of color to join a major party’s national ticket, ran for president against Mr. Biden last year.`\
 https://nytimes.com/2020/08/11/us/politics/kamala-harris-bio.html?searchResultPosition=6
 
 **Monday Storm Impacts Some 10 Million Acres of Iowa Farmland**\
