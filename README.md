@@ -6,13 +6,13 @@ https://nytimes.com/2020/08/11/us/chelsea-becker-california-stillbirth.html?sear
 `Yemen's President Abd-Rabbu Mansour Hadi will leave Saudi Arabia and head to the United States for medical treatment early on Wednesday, two sources close to the matter told Reuters on Tuesday.`\
 https://nytimes.com/reuters/2020/08/11/world/middleeast/11reuters-yemen-security-president.html?searchResultPosition=2
 
-**Cosby Sex Assault Appeal Takes on Non-Prosecution Deal**\
-`It was “fundamentally unfair” for the trial judge to allow Bill Cosby’s damaging deposition from a sex accuser’s lawsuit to be used against him at his criminal trial because he believes he had a binding promise from a prosecutor that he could never be charged in the case, his lawyers argued in an appeal filing Tuesday.`\
-https://nytimes.com/aponline/2020/08/11/us/ap-us-bill-cosby.html?searchResultPosition=3
-
 **Democrats Concerned by Facebook Oversight Board's Limited Authority**\
 `Three Democratic members of the U.S. House of Representatives on Tuesday urged Facebook Inc to enact the policy recommendations of the company's oversight board, empowering the independent group of advisers, which the lawmakers said have limited responsibilities.`\
-https://nytimes.com/reuters/2020/08/11/business/11reuters-usa-democrats-facebook.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/11/business/11reuters-usa-democrats-facebook.html?searchResultPosition=3
+
+**Cosby Sex Assault Appeal Takes on Non-Prosecution Deal**\
+`It was “fundamentally unfair” for the trial judge to allow Bill Cosby’s damaging deposition from a sex accuser’s lawsuit to be used against him at his criminal trial because he believes he had a binding promise from a prosecutor that he could never be charged in the case, his lawyers argued in an appeal filing Tuesday.`\
+https://nytimes.com/aponline/2020/08/11/us/ap-us-bill-cosby.html?searchResultPosition=4
 
 **Lawyer: LA Deputies Need to Be Held Accountable for Tactics**\
 `A lawyer representing three teenagers who were detained at gunpoint by Los Angeles County sheriff's deputies called for an investigation into the tactics and accountability for their actions on Tuesday.`\
