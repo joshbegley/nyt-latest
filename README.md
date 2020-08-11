@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/08/11/world/americas/11reuters-latam-usa-bank.h
 `The row over Racing Point's Formula One car was heading for court after rivals Ferrari and Renault confirmed on Tuesday they would appeal a stewards' decision.`\
 https://nytimes.com/reuters/2020/08/11/sports/autoracing/11reuters-motor-f1-racingpoint.html?searchResultPosition=3
 
-**The Latest: Trump Campaign Blasts Kamala Harris as 'Phony'**\
+**The Latest: LA Mayor Hails Harris Pick as VP Candidate**\
 `The Latest on Democratic presidential contender Joe Biden's selection of California Sen. Kamala Harris as his running mate (all times local):`\
 https://nytimes.com/aponline/2020/08/11/us/politics/ap-us-election-2020-biden-vp-the-latest.html?searchResultPosition=4
 
