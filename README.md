@@ -1,40 +1,40 @@
+**Ex-Citi London Forex Trader Welcomes Unfair Dismissal Ruling**\
+`A former top currency trader has won an unfair dismissal case against Citigroup Inc, but cannot expect to return to his job after the London employment tribunal ruling, the Financial Times reported.`\
+https://nytimes.com/reuters/2020/08/11/world/europe/11reuters-citigroup-forex-ramchandani.html?searchResultPosition=1
+
+**Russia Approves First COVID-19 Vaccine, Putin Says**\
+`Russia's health ministry has given regulatory approval for the world's first COVID-19 vaccine, developed by Moscow's Gamaleya Institute, after less than two months of human testing, President Vladimir Putin said on Tuesday. `\
+https://nytimes.com/reuters/2020/08/11/world/europe/11reuters-health-coronavirus-russia-vaccine-putin.html?searchResultPosition=2
+
+**Hong Kong Reports 33 New Coronavirus Cases, in Sharp Decline From Recent Weeks**\
+`Hong Kong reported 33 new coronavirus cases on Tuesday, a sharp drop from figures registered since the start of July and as authorities extended social distancing rules, cautioning that the city had to remain vigilant to battle further transmissions.`\
+https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-health-coronavirus-hongkong.html?searchResultPosition=3
+
+**Alexander Gets Turn as Starter as Tigers Host White Sox**\
+`Tyler Alexander set a major league record as a reliever.`\
+https://nytimes.com/reuters/2020/08/11/sports/baseball/11reuters-baseball-mlb-det-chw-preview.html?searchResultPosition=4
+
+**Virus Surge Makes US Weak Link in Global Economic Recovery**\
+`People in China are back to buying German luxury cars. Europe's assembly lines are accelerating. Now the global economy is waiting for the United States to get its coronavirus outbreak under control and boost the recovery, but there's little sign of that.`\
+https://nytimes.com/aponline/2020/08/11/business/bc-global-economy-us-weak-link.html?searchResultPosition=5
+
 **Improving Orioles Open Series in Philadelphia**\
 `The Philadelphia Phillies will look for their second win in a row when they open a three-game series against the visiting Baltimore Orioles on Tuesday.`\
-https://nytimes.com/reuters/2020/08/11/sports/baseball/11reuters-baseball-mlb-phi-bal-preview.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/11/sports/baseball/11reuters-baseball-mlb-phi-bal-preview.html?searchResultPosition=6
 
 **Indonesia Reports 1,693 New Coronavirus Cases, 59 Deaths**\
 `Indonesia reported 1,693 new coronavirus cases on Tuesday, bringing the country's total tally of infections to 128,776, data from the country's health ministry website showed.`\
-https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=7
 
 **Philippines Records 2,987 More Coronavirus Infections, 19 Deaths**\
 `The Philippines on Tuesday reported 2,987 new coronavirus infections, taking its tally of confirmed cases to 139,538, the highest in Southeast Asia.`\
-https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-health-coronavirus-philippines-cases.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-health-coronavirus-philippines-cases.html?searchResultPosition=8
 
 **Singapore Reports 61 Coronavirus Cases, Lowest Daily Count in Four Months**\
 `Singapore on Tuesday reported 61 new COVID-19 cases, its lowest daily count in more than four months.`\
-https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-health-coronavirus-singapore.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/11/world/asia/11reuters-health-coronavirus-singapore.html?searchResultPosition=9
 
 **Opposition Candidate Tikhanouskaya Denies Being Forced Out of Belarus**\
 `Opposition leader Svetlana Tikhanouskaya on Tuesday denied being forced to leave Belarus, contradicting comments from her campaign team, and said the decision to leave had been very difficult.`\
-https://nytimes.com/reuters/2020/08/11/world/europe/11reuters-belarus-election-tikhanouskaya-exit.html?searchResultPosition=5
-
-**Tension High Between Turkey, Greece in Eastern Mediterranean**\
-`Tension remained high Tuesday between Greece and Turkey, both of whom have warships in the eastern Mediterranean after Turkey sent a research vessel to carry out seismic research for energy resources in an area Greece says is on its continental shelf.`\
-https://nytimes.com/aponline/2020/08/11/world/europe/ap-eu-greece-turkey.html?searchResultPosition=6
-
-**WeChat U.S. Ban Worries to Cloud Tencent Results as Investors Seek Clarity**\
-`China's Tencent Holdings will be under pressure to address concerns on the impact of a U.S. ban on WeChat-related transactions and outline its plans to mitigate any fallout as it reports second-quarter results on Wednesday.`\
-https://nytimes.com/reuters/2020/08/11/business/11reuters-usa-wechat-tencent-preview.html?searchResultPosition=7
-
-**Australian BP Worker Fired for Hitler Memes Wins $143,000 Compensation**\
-`An employee of BP Plc's Australian refinery who was fired last year for mocking management online using a well-known meme of Adolf Hitler has been awarded more than A$200,000 ($143,100) in compensation.`\
-https://nytimes.com/reuters/2020/08/11/business/11reuters-bp-australia.html?searchResultPosition=8
-
-**Belarus Opposition Candidate Tikhanouskaya Was Forced to Leave, Her Campaign Says**\
-`Belarusian opposition leader Svetlana Tikhanouskaya's campaign team said on Tuesday that she had been forced to leave the country by the authorities amid bloody protests against the contested re-election of President Alexander Lukashenko.`\
-https://nytimes.com/reuters/2020/08/11/world/europe/11reuters-belarus-election-tikhanouskaya-lithuania.html?searchResultPosition=9
-
-**Exclusive: Lebanon's Leaders Warned in July About Explosives at Port-Documents**\
-`Lebanese security officials warned the prime minister and president last month that 2,750 tonnes of ammonium nitrate stored in Beirut's port posed a security risk and could destroy the capital if it exploded, according to documents seen by Reuters and senior security sources.`\
-https://nytimes.com/reuters/2020/08/11/world/middleeast/11reuters-lebanon-security-blast-documents-exclusive.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/11/world/europe/11reuters-belarus-election-tikhanouskaya-exit.html?searchResultPosition=10
 
