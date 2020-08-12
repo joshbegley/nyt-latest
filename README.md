@@ -1,40 +1,40 @@
-**Dixon Leads Opening Practice at Indianapolis Motor Speedway**\
-`Scott Dixon, already off to a tremendous start to the IndyCar season, quickly set the pace on the first day of practice for the Indianapolis 500. `\
-https://nytimes.com/aponline/2020/08/12/sports/ap-car-indycar-indy-500.html?searchResultPosition=1
+**Brazilian State Agrees to Produce Russian COVID-19 Vaccine**\
+`The Brazilian state of Parana on Wednesday reached a deal with Russia to produce a COVID-19 vaccine that Moscow has touted as the first to market, the state's press office said, although details of the agreement were not immediately available.`\
+https://nytimes.com/reuters/2020/08/12/world/americas/12reuters-health-coronavirus-brazil.html?searchResultPosition=1
 
-**GM Proposes Brazil Workforce Reduction Through Buyouts, Union Says**\
-`General Motors is offering buyouts to some of its Brazilian workers, a local union said on Wednesday, as the country's No. 1 automaker struggles with the fallout from the coronavirus crisis. `\
-https://nytimes.com/reuters/2020/08/12/business/12reuters-health-coronavirus-gm-brazil.html?searchResultPosition=2
+**Decision Day Arrives for Suns, Blazers, Grizzlies and Spurs**\
+`A team is going to reach the Western Conference playoffs with a losing record for the first time in 23 years, which ordinarily would not be exciting news.`\
+https://nytimes.com/aponline/2020/08/12/sports/basketball/ap-bkn-nba-race-for-8th.html?searchResultPosition=2
 
-**2 Indiana Cops Charged With Battery in Protesters' Arrests**\
-`A grand jury indicted two Indianapolis police officers on battery and other charges following an investigation into allegations that they used excessive force while arresting demonstrators at a May protest over the death of George Floyd, a prosecutor announced Wednesday.`\
-https://nytimes.com/aponline/2020/08/12/us/ap-us-racial-injustice-indiana.html?searchResultPosition=3
+**Sarah Cooper, TikTok Star Who Lip Syncs to Trump, Lands Netflix Comedy Special**\
+`Comedian Sarah Cooper, who became a TikTok sensation with satirical videos of President Donald Trump, will appear in her own variety special on Netflix, the streaming service announced on Wednesday.`\
+https://nytimes.com/reuters/2020/08/12/arts/12reuters-people-sarah-cooper.html?searchResultPosition=3
 
-**Air Force Helicopter Hit by Gunfire Over Virginia, Crew Member Injured**\
-`A member of the crew of an Air Force helicopter was wounded  after the aircraft was struck by a bullet during a flight over a suburban area of Virginia near Washington, D.C., this week, a rare incident that has triggered an FBI investigation, the Air Force said on Wednesday.`\
-https://nytimes.com/reuters/2020/08/12/us/12reuters-usa-airforce-gunfire.html?searchResultPosition=4
+**Bergeron Scores in 2nd OT, Bruins Beat Hurricanes in Game 1**\
+`Patrice Bergeron scored the winner early in double overtime, and the Boston Bruins beat the Carolina Hurricanes 4-3 Wednesday in Game 1 of their first-round series that was postponed 15 hours to a rare late-morning start.`\
+https://nytimes.com/aponline/2020/08/12/sports/hockey/bc-hkn-hurricanes-bruins.html?searchResultPosition=4
 
-**Bills Sign McDermott to Multiyear Extension**\
-`The Buffalo Bills have signed coach Sean McDermott to a multiyear contract extension.`\
-https://nytimes.com/aponline/2020/08/12/sports/football/ap-fbn-bills-mcdermott.html?searchResultPosition=5
+**Man Charged With Sex Assault of Unconscious Hospital Patient**\
+`A former Maryland hospital worker has been charged with sexually assaulting an unconscious patient.`\
+https://nytimes.com/aponline/2020/08/12/us/ap-us-hospital-worker-sexual-assault.html?searchResultPosition=5
 
-**Kanye West Met With Kushner as Rapper Eyes 2020 Election Spot**\
-`Entertainer and Trump supporter Kanye West recently met with White House adviser and the president's son-in-law Jared Kushner, a source familiar with the meeting said on Wednesday as the entertainer pursues his efforts to appear on the presidential ballot this November.`\
-https://nytimes.com/reuters/2020/08/12/arts/12reuters-usa-election-kanye-west.html?searchResultPosition=6
+**Is It a Bird? Is It a Plane? No, It's Canadian Prime Minister Justin Trudeau**\
+`Canadian Prime Minister Justin Trudeau is set to have his life story turned into a comic book, as TidalWave Productions adds the "media sensation" to its "Political Power" graphic novel series. `\
+https://nytimes.com/reuters/2020/08/12/arts/12reuters-people-justin-trudeau-comic.html?searchResultPosition=6
 
-**Los Angeles Sheriff's Deputies to Get Body-Worn Cameras**\
-`Los Angeles County deputies, who make up the largest sheriff's department in the nation, will begin getting body-worn cameras in October, the sheriff's announced Wednesday.`\
-https://nytimes.com/aponline/2020/08/12/us/ap-us-body-cameras-la-sheriff.html?searchResultPosition=7
+**Confidence in Police Is at Record Low, Gallup Survey Finds**\
+`For the first time in its 27 years of measuring attitudes toward the police, Gallup found that a majority of American adults does not trust law enforcement.`\
+https://nytimes.com/2020/08/12/us/gallup-poll-police.html?searchResultPosition=7
 
-**Delay Routine Dental Checkups in Areas of COVID Spread: WHO**\
-`Dental patients and staff need to be protected from any potential infection by aerosol-generating procedures, the World Health Organization (WHO) said on Tuesday, as dentists return to work in areas where the COVID-19 pandemic is easing.`\
-https://nytimes.com/reuters/2020/08/12/us/12reuters-health-coronavirus-who-dental.html?searchResultPosition=8
+**California Had a Curse. Kamala Harris Just Broke It.**\
+`On her list of firsts: She will be the first Democrat from the Golden State to run on a major-party presidential ticket.`\
+https://nytimes.com/2020/08/12/opinion/kamala-harris-vice-president-California.html?searchResultPosition=8
 
-**Chinese National Killed at Zijin Mining Camp in Congo, Company Says**\
-`A Chinese national was killed during an attack on a mining camp run by Zijin Mining Group Co in the early hours of Tuesday in southern Democratic Republic of Congo, a report on the company's website said.`\
-https://nytimes.com/reuters/2020/08/12/world/africa/12reuters-congo-violence.html?searchResultPosition=9
+**Tribe Says New Border Wall Harming Burial Sites; Sues Trump**\
+`A California tribe whose ancestral lands span across the U.S.-Mexico border is suing the Trump administration to block construction of a section of border wall that the Kumeyaay people say is desecrating sacred burial sites.`\
+https://nytimes.com/aponline/2020/08/12/us/ap-us-tribe-border-wall.html?searchResultPosition=9
 
-**Killing of Cameroonian Woman by Alleged Separatists Sparks Outcry**\
-`Human rights activists on Wednesday condemned the killing of a young woman in Cameroon's Anglophone regions after a video of alleged separatist rebels slitting her throat drew outrage on social media. `\
-https://nytimes.com/reuters/2020/08/12/world/africa/12reuters-cameroon-separatists.html?searchResultPosition=10
+**Charlie Blackmon Could Set a Hitting Record. Would It Be Legitimate?**\
+`He doesn’t think so: “It’s not a full season; it’ll be an asterisk.” Even still, his .500 average so far is extraordinary on its own.`\
+https://nytimes.com/2020/08/12/sports/baseball/charlie-blackmon-batting-average.html?searchResultPosition=10
 
