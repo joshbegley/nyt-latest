@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/08/12/world/asia/12reuters-health-coronavirus-p
 `Germany recorded the biggest daily increase in new coronavirus cases in more than three months, data showed on Wednesday, with the health minister warning of outbreaks in nearly all parts of the country due to holiday returnees and party-goers.`\
 https://nytimes.com/reuters/2020/08/12/world/europe/12reuters-health-coronavirus-germany-cases.html?searchResultPosition=7
 
-**3 Rajapaksas Sworn Into Sri Lanka's New Cabinet After Vote**\
-`Sri Lanka’s president swore into office a new Cabinet on Wednesday that includes two of his elder brothers and a nephew, after a landslide election victory last week. `\
+**3 Rajapaksas Sworn Into New Sri Lanka Cabinet After Election**\
+`Sri Lanka’s president swore into office a new Cabinet on Wednesday that includes two of his brothers and a nephew, after a landslide election victory last week. `\
 https://nytimes.com/aponline/2020/08/12/world/asia/ap-as-sri-lanka-politics.html?searchResultPosition=8
 
 **Extraordinary EU Foreign Ministers Meeting Over Belarus Scheduled for Friday, Sweden's Linde Says**\
