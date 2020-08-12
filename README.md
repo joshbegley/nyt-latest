@@ -14,13 +14,13 @@ https://nytimes.com/reuters/2020/08/12/arts/12reuters-people-sarah-cooper.html?s
 `Patrice Bergeron scored the winner early in double overtime, and the Boston Bruins beat the Carolina Hurricanes 4-3 Wednesday in Game 1 of their first-round series that was postponed 15 hours to a rare late-morning start.`\
 https://nytimes.com/aponline/2020/08/12/sports/hockey/bc-hkn-hurricanes-bruins.html?searchResultPosition=4
 
-**Man Charged With Sex Assault of Unconscious Hospital Patient**\
-`A former Maryland hospital worker has been charged with sexually assaulting an unconscious patient.`\
-https://nytimes.com/aponline/2020/08/12/us/ap-us-hospital-worker-sexual-assault.html?searchResultPosition=5
-
 **Is It a Bird? Is It a Plane? No, It's Canadian Prime Minister Justin Trudeau**\
 `Canadian Prime Minister Justin Trudeau is set to have his life story turned into a comic book, as TidalWave Productions adds the "media sensation" to its "Political Power" graphic novel series. `\
-https://nytimes.com/reuters/2020/08/12/arts/12reuters-people-justin-trudeau-comic.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/08/12/arts/12reuters-people-justin-trudeau-comic.html?searchResultPosition=5
+
+**Man Charged With Sex Assault of Unconscious Hospital Patient**\
+`A former Maryland hospital worker has been charged with sexually assaulting an unconscious patient.`\
+https://nytimes.com/aponline/2020/08/12/us/ap-us-hospital-worker-sexual-assault.html?searchResultPosition=6
 
 **Confidence in Police Is at Record Low, Gallup Survey Finds**\
 `For the first time in its 27 years of measuring attitudes toward the police, Gallup found that a majority of American adults does not trust law enforcement.`\
