@@ -1,40 +1,40 @@
-**France to Ramp Up Police Checks to Ensure Masks Are Worn**\
-`France will gradually ramp up police checks to ensure people wear face masks where it is mandatory and respect social distancing amidst a new surge of COVID-19 infections, the government's spokesman said on Wednesday.`\
-https://nytimes.com/reuters/2020/08/12/world/europe/12reuters-health-coronavirus-france-masks.html?searchResultPosition=1
+**The Poly-Parent Households Are Coming**\
+`We’re on the cusp of a technological revolution in baby making. What it means to be a family could be next.`\
+https://nytimes.com/2020/08/12/opinion/ivg-reproductive-technology.html?searchResultPosition=1
 
-**Brazil's Bolsonaro Calls Surging Amazon Fires a 'Lie'**\
-`Brazil's President Jair Bolsonaro on Tuesday angrily denied the existence of fires in the Amazon rainforest, calling it a "lie," despite data produced by his own government showing that thousands of fires are surging across the region.`\
-https://nytimes.com/reuters/2020/08/12/world/americas/12reuters-brazil-environment-fires.html?searchResultPosition=2
+**Lebanon Economy Minister Says Has Flour to Last Four Months**\
+`Lebanon has 32,000 tonnes of flour in addition to 110,000 tonnes that has arrived or will arrive in the coming two weeks, the economy minister said on Wednesday.`\
+https://nytimes.com/reuters/2020/08/12/world/middleeast/12reuters-lebanon-security-blast-wheat.html?searchResultPosition=2
 
-**Hong Kong Reports 62 New Coronavirus Cases**\
-`Hong Kong reported 62 new coronavirus cases on Wednesday, as authorities cautioned that the global financial hub still faced a critical period to contain further transmissions of the virus and warned residents to stay vigilant at social distancing.`\
-https://nytimes.com/reuters/2020/08/12/world/asia/12reuters-health-coronavirus-hongkong.html?searchResultPosition=3
+**‘No Slavery in Australia’? These Pacific Islanders Tell a Different Story**\
+`The Black Lives Matter movement has offered a rare moment for the descendants of plantation laborers brought aboard ships in the 19th century to make their family histories known.`\
+https://nytimes.com/2020/08/12/world/australia/south-sea-islanders-slavery.html?searchResultPosition=3
 
-**World Cup, Asian Cup Qualifiers Postponed to Next Year**\
-`The Asian Football Confederation has postponed all men's qualifiers scheduled in October and November for the 2022 World Cup and the 2023 Asian Cup.`\
-https://nytimes.com/aponline/2020/08/12/sports/soccer/ap-soc-wcup-asia-qualifying-postponed.html?searchResultPosition=4
+**Montvale, N.J.: Friendly Neighbors, Good Schools and Low Taxes**\
+`Buyers drawn to the borough’s leafy neighborhoods and single-family homes also like the property taxes, which are less than they’d pay in nearby areas.`\
+https://nytimes.com/2020/08/12/realestate/montvale-bergen-county-new-jersey.html?searchResultPosition=4
 
-**China to Raise Issues Surrounding WeChat, TikTok in Trade Talks With U.S.: Bloomberg**\
-`Trade negotiators from the United States and China will discuss the implementation of the phase one trade deal in the coming days, with China likely to bring up issues surrounding TikTok and WeChat, Bloomberg News reported on Wednesday, citing sources.`\
-https://nytimes.com/reuters/2020/08/12/technology/12reuters-usa-trade-china-talks.html?searchResultPosition=5
+**We Tested Instagram Reels, the TikTok Clone. What a Dud.**\
+`TikTok might not be winning over President Trump, but it sure beats its Instagram copycat for making and sharing short videos.`\
+https://nytimes.com/2020/08/12/technology/personaltech/tested-facebook-reels-tiktok-clone-dud.html?searchResultPosition=5
 
-**Indian Villagers Tire of Coronavirus Rules Just as Rural Cases Surge**\
-`Harmahan Deka doesn't wear a mask anymore to avoid the novel coronavirus nor does he try to keep a safe distance from others.`\
-https://nytimes.com/reuters/2020/08/12/world/asia/12reuters-health-coronavirus-india-countryside.html?searchResultPosition=6
+**Living In ... Montvale, N.J.**\
+`Buyers drawn to the borough’s leafy neighborhoods and single-family homes also like the property taxes, which are lower than in surrounding areas.`\
+https://nytimes.com/slideshow/2020/08/12/realestate/montvale-new-jersey.html?searchResultPosition=6
 
-**Philippines Records 93 More Coronavirus Deaths, Biggest Jump in Nearly a Month**\
-`The Philippines on Wednesday reported 93 more coronavirus fatalities, the highest daily increase in the Southeast Asian country since July 18, taking its death toll to 2,404.`\
-https://nytimes.com/reuters/2020/08/12/world/asia/12reuters-health-coronavirus-philippines-cases.html?searchResultPosition=7
+**925 Quarantined for Covid. Is This a Successful School Reopening?**\
+`A suburban Atlanta county opened its schools amid controversy and a growing case count, previewing a difficult national back-to-school season.`\
+https://nytimes.com/2020/08/12/us/georgia-school-coronavirus.html?searchResultPosition=7
 
-**Germany Records Biggest Jump in New Coronavirus Cases Since Early May**\
-`Germany recorded the biggest daily increase in new coronavirus cases in more than three months, data showed on Wednesday, with the health minister warning of outbreaks in nearly all parts of the country due to holiday returnees and party-goers.`\
-https://nytimes.com/reuters/2020/08/12/world/europe/12reuters-health-coronavirus-germany-cases.html?searchResultPosition=8
+**Charleston Tourism Is Built on Southern Charm. Locals Say It’s Time to Change.**\
+`A powerful visitors’ bureau has pushed the South Carolina city to the top of “best” lists by selling gentility. Critics say that has come at the expense of history and the city’s Black population.`\
+https://nytimes.com/2020/08/12/travel/charleston-tourism-black-lives-matter.html?searchResultPosition=8
 
-**3 Rajapaksas Sworn Into New Sri Lanka Cabinet After Election**\
-`Sri Lanka’s president swore into office a new Cabinet on Wednesday that includes two of his brothers and a nephew, after a landslide election victory last week. `\
-https://nytimes.com/aponline/2020/08/12/world/asia/ap-as-sri-lanka-politics.html?searchResultPosition=9
+**New York City Could Use a Champion. Who Will Step Up?**\
+`New York seems to be missing the kind of civic leadership that helped the city recover from previous financial and psychic crises.`\
+https://nytimes.com/2020/08/12/new-york-recovery-coronavirus.html?searchResultPosition=9
 
-**Extraordinary EU Foreign Ministers Meeting Over Belarus Scheduled for Friday, Sweden's Linde Says**\
-`Sweden's foreign minister said she had been invited to an extraordinary EU foreign affairs meeting on Friday to discuss potential sanctions on Belarus following Sunday's presidential election there. `\
-https://nytimes.com/reuters/2020/08/12/world/europe/12reuters-belarus-election-eu-sweden.html?searchResultPosition=10
+**Infertility Was Distressing. The Military Made It Even More Complicated.**\
+`For service members like me, Tricare health insurance and the limited number of military medical facilities offering fertility treatments add more stress to an already emotional process.`\
+https://nytimes.com/2020/08/12/magazine/infertility-military-army.html?searchResultPosition=10
 
