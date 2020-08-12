@@ -35,6 +35,6 @@ https://nytimes.com/2020/08/11/pageoneplus/corrections-aug-12-2020.html?searchRe
 https://nytimes.com/reuters/2020/08/11/world/europe/11reuters-health-coronavirus-germany-cases.html?searchResultPosition=9
 
 **Portland Beats Orlando 2-1 to Claim MLS Is Back Championship**\
-`Dario Zuparic’s first goal of the season gave Portland a 2-1 victory against Orlando in the MLS is Back finale Tuesday night.`\
+`Soaked in sweat and doused in water, the Portland Timbers hoisted the MLS is Back trophy at midfield and then headed toward a giant TV screen filled with fans cheering from afar.`\
 https://nytimes.com/aponline/2020/08/11/sports/soccer/ap-soc-mls-is-back.html?searchResultPosition=10
 
