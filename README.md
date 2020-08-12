@@ -2,8 +2,8 @@
 `A last-minute battle is unfolding over the fate of a former paramilitary warlord who the Colombian government wants returned following a long drug sentence in U.S. prison. `\
 https://nytimes.com/aponline/2020/08/12/us/ap-us-colombia-warlord.html?searchResultPosition=1
 
-**U.S. Consumer Prices Accelerate in July**\
-`U.S. consumer prices increased more than expected in July, but high unemployment is likely to keep inflation under control, allowing the Federal Reserve to continue pumping money into the economy to aid the recovery from the COVID-19 recession. `\
+**U.S. Consumer Prices Accelerate in July; Inflation Remains Under Control**\
+`U.S. consumer prices increased more than expected in July, with a measure of underlying inflation rising by the most in 29-1/2 years as the costs of goods and services climbed.`\
 https://nytimes.com/reuters/2020/08/12/business/12reuters-usa-economy-inflation.html?searchResultPosition=2
 
 **What to Do if Losing Your Job Means Losing Life Insurance**\
