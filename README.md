@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/08/12/world/americas/12reuters-mexico-unemploym
 https://nytimes.com/reuters/2020/08/12/arts/12reuters-netflix-princess-diana.html?searchResultPosition=5
 
 **Kamala Harris Crystallizes Trump’s View of Women: They’re ‘Nasty’ or Housewives**\
-`As Ms. Harris joined the Democratic presidential ticket, the president wasted no time calling her “nasty” and praising the “suburban housewife” he says will vote for him. His views are out of step with reality.`\
+`As Ms. Harris joined the Democratic ticket, the president wasted no time calling her “nasty” and praising the “suburban housewife” he says will vote for him. His views are out of step with reality.`\
 https://nytimes.com/2020/08/12/us/politics/trump-women-kamala-harris.html?searchResultPosition=6
 
 **Regrets? Even Brent Scowcroft Had a Few**\
