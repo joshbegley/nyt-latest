@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/08/12/world/middleeast/ap-un-virus-outbreak-co
 https://nytimes.com/aponline/2020/08/12/sports/football/ap-fbn-nfl-testing-policy.html?searchResultPosition=3
 
 **North Korean Hacking Group Attacks Israeli Defense Industry**\
-`Israel says the attack was thwarted, but a cybersecurity firm says a large amount of classified data was probably stolen. Some officials fear it could be shared with Iran.`\
+`Israel says the attack was thwarted, but a cybersecurity firm says it was successful. Some officials fear that classified data stolen by North Korea could be shared with Iran.`\
 https://nytimes.com/2020/08/12/world/middleeast/north-korea-hackers-israel.html?searchResultPosition=4
 
 **Puerto Rico Supreme Court Upholds Second Round of Primaries**\
