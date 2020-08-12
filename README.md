@@ -34,7 +34,7 @@ https://nytimes.com/reuters/2020/08/12/business/12reuters-saudi-aramco-capex.htm
 `Germany’s government urged citizens Wednesday to keep their guard up and stick to public health guidelines, as new COVID-19 infections hit a three-month high and schools reopened in the country's most populous state.`\
 https://nytimes.com/aponline/2020/08/12/world/europe/ap-eu-germany-virus-outbreak.html?searchResultPosition=9
 
-**Mexico's Lopez Obrador Says Two Ex Presidents Should Testify About Graft**\
+**Mexico's Lopez Obrador Says Two Former Presidents Should Testify About Graft**\
 `Mexico's President Andres Manuel Lopez Obrador on Wednesday said two former presidents should have to testify about corruption after a former head of state oil firm Petroleos Mexicanos (Pemex) accused former officials of involvement in bribes. `\
 https://nytimes.com/reuters/2020/08/12/world/americas/12reuters-mexico-corruption.html?searchResultPosition=10
 
