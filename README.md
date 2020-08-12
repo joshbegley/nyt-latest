@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/08/11/business/ap-as-hong-kong-emigration.html
 https://nytimes.com/aponline/2020/08/11/sports/basketball/bc-bkl-mystics-lynx.html?searchResultPosition=9
 
 **Austin Hays' 2-Run Homer Gives Orioles 10-9 Win Over Phils**\
-`Austin Hays hit a two-run, inside-the-park homer in the 10th inning to lift the Baltimore Orioles to a 10-9 win over the Philadelphia Phillies on Tuesday night.`\
+`A wacky game had a wild finish.`\
 https://nytimes.com/aponline/2020/08/11/sports/baseball/ap-bbo-orioles-phillies.html?searchResultPosition=10
 
