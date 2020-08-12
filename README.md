@@ -7,7 +7,7 @@ https://nytimes.com/aponline/2020/08/12/sports/ncaafootball/ap-fbc-virus-outbrea
 https://nytimes.com/2020/08/12/sports/baseball/carroll-hardy-dead.html?searchResultPosition=2
 
 **The Story Behind Our Story: Extreme Heat and Inequity**\
-`Also this week, art and science come together in the Alps and a vice president pick`\
+`Also this week, art and science come together in the Alps and a vice-presidential pick`\
 https://nytimes.com/2020/08/12/climate/extreme-heat-inequality.html?searchResultPosition=3
 
 **Report: Pacers, McMillan Agree to Contract Extension**\
