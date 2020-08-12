@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/08/12/business/ap-as-virus-outbreak-new-zealan
 `When the huge explosion ripped through Beirut last week, it shattered the glass doors near where 3-year-old Abed Achi was playing with his Lego blocks. He suffered a head injury and cuts on his tiny arms and feet, and he was taken to the emergency room, where he sat amid other bleeding people.`\
 https://nytimes.com/aponline/2020/08/12/world/middleeast/ap-ml-lebanon-explosion-childrens-trauma.html?searchResultPosition=5
 
-**Apple Supplier Foxconn Posts Better-Than Expected Second Quarter Profit**\
+**Apple Supplier Foxconn Posts Better-Than-Expected Second-Quarter Profit**\
 `Foxconn, the world's largest contract electronics manufacturer, reported a better-than-expected quarterly profit on Wednesday, as rising telecommuting demand amid the coronavirus pandemic offset slowing smartphone sales.  `\
 https://nytimes.com/reuters/2020/08/12/business/12reuters-foxconn-results.html?searchResultPosition=6
 
