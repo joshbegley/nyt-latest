@@ -1,40 +1,40 @@
+**Boston Fed Chief: States' Rush to Reopen Slowed US Recovery**\
+`A top official at the Federal Reserve criticized the decision by many states to reopen businesses this spring before getting the virus fully under control, and said those choices have hindered an economic recovery in the U.S. `\
+https://nytimes.com/aponline/2020/08/12/business/ap-us-federal-reserve-economic-slowdown.html?searchResultPosition=1
+
+**Global Warming Could Unlock Even More Carbon From Tropical Soil**\
+`Warming soils in the tropics could cause microbes to release carbon dioxide from storage. One scientist called the finding “another example of why we need to worry more.”`\
+https://nytimes.com/2020/08/12/climate/tropical-soils-climate-change.html?searchResultPosition=2
+
+**What the Kamala Harris Pick Tells Us About Joe Biden**\
+`His choice is a characteristic example of his tendency to row in the direction of the day’s strongest political currents.`\
+https://nytimes.com/2020/08/12/opinion/kamala-harris-joe-biden-2020.html?searchResultPosition=3
+
+**Cycling: UCI Cancels Road World Championships in Switzerland Due to COVID-19**\
+`Next month's Road World Championships in Aigle–Martigny in Switzerland has been cancelled due to the COVID-19 pandemic, cycling's governing body UCI announced on Wednesday.`\
+https://nytimes.com/reuters/2020/08/12/sports/cycling/12reuters-cycling-world.html?searchResultPosition=4
+
+**Mauritius Tourism, Reeling From COVID, Now Hit by Oil Spill**\
+`Tourist operators in Mauritius fear that an oil spill from a Japanese ship will further damage their businesses, already reeling from the coronavirus epidemic, and could cost jobs if their pristine beaches are spoiled.`\
+https://nytimes.com/reuters/2020/08/12/world/africa/12reuters-mauritius-environment.html?searchResultPosition=5
+
+**Survivor Said She Smelled Gas Before Baltimore Explosion**\
+`A woman who survived an explosion that leveled three Baltimore row homes said she smelled gas before hearing a “loud boom” on Monday morning. `\
+https://nytimes.com/aponline/2020/08/12/us/ap-us-baltimore-explosion.html?searchResultPosition=6
+
+**Fed's Rosengren Says Now Is the Time to Take Strong Fiscal Actions**\
+`Strong fiscal support is needed for the U.S. economy to rebound, but those policies must be paired with efforts to contain the virus, Boston Federal Reserve President Eric Rosengren said Wednesday. `\
+https://nytimes.com/reuters/2020/08/12/us/12reuters-usa-fed-rosengren-fiscal.html?searchResultPosition=7
+
+**Beirut’s Youngest Cancer Patients Lose Care Options After Blast**\
+`Many children undergoing chemotherapy in Lebanon now have nowhere to turn for treatment after an explosion destroyed hospitals and wiped out medicine stockpiles.`\
+https://nytimes.com/2020/08/12/world/middleeast/beirut-cancer-chemotherapy.html?searchResultPosition=8
+
+**Russia Says Medics to Get Anti-COVID Shots in Two Weeks, Some Russians Wary**\
+`Russia said on Wednesday the first batch of the world's first COVID-19 vaccine would be rolled out within two weeks and rejected as "groundless" safety concerns aired by some experts over Moscow's rapid approval of the drug.`\
+https://nytimes.com/reuters/2020/08/12/world/europe/12reuters-health-coronavirus-russia-vaccine.html?searchResultPosition=9
+
 **Is Now the Time To Refinance Your Mortgage?**\
 `Rates on 30-year fixed mortgages have recently dipped below 3 percent, a 50-year low. Here’s how to go about refinancing your mortgage.`\
-https://nytimes.com/interactive/2020/08/12/smarter-living/is-now-the-time-to-refinance-your-mortgage.html?searchResultPosition=1
-
-**UK Reports 1,009 New Confirmed Cases of COVID-19**\
-`A total of 1,009 new cases of COVID-19 were confirmed in the United Kingdom on Wednesday, taking the cumulative number of cases in the country to 313,798, government data showed.`\
-https://nytimes.com/reuters/2020/08/12/world/europe/12reuters-health-coronavirus-britain-cases.html?searchResultPosition=2
-
-**New Jersey Schools Are Expected to Offer All-Remote Option**\
-`The plan comes as the teachers union, a close ally of Gov. Philip D. Murphy, had publicly raised concerns about the safety of holding in-person classes.`\
-https://nytimes.com/2020/08/12/nyregion/nj-schools-reopening.html?searchResultPosition=3
-
-**Russia Federation Says It Has Paid Multi-Million-Dollar Doping Fine**\
-`Russia's suspended athletics federation said on Wednesday it had paid a multi-million-dollar fine to World Athletics in a move that could help it avoid expulsion by the sport's global governing body. `\
-https://nytimes.com/reuters/2020/08/12/sports/12reuters-sport-doping-russia-athletics.html?searchResultPosition=4
-
-**Economic Clout Makes China Tougher Challenge for U.S. Than Soviet Union Was-Pompeo**\
-`China's global economic power makes the communist country in some ways a more difficult foe to counter than the Soviet Union during the Cold War, U.S. Secretary of State Mike Pompeo said on a visit to the Czech Republic on Wednesday.`\
-https://nytimes.com/reuters/2020/08/12/world/europe/12reuters-czech-usa-pompeo.html?searchResultPosition=5
-
-**Woody Johnson Asked State Dept. Auditors to Delete Claims of Offensive Remarks from Report**\
-`The American ambassador to Britain rejected accusations that he made racially or sexually inappropriate comments toward employees at the U.S. Embassy in London.`\
-https://nytimes.com/2020/08/12/us/politics/trump-woody-johnson-london-embassy.html?searchResultPosition=6
-
-**Uber Likely to Shut Down Temporarily in California Over New Driver Ruling: CNBC**\
-`Uber Technologies Inc would likely shut down temporarily in California for several months if a court does not overturn a recent ruling requiring it to classify its drivers as full-time employees, CNBC reported on Wednesday.`\
-https://nytimes.com/reuters/2020/08/12/business/12reuters-uber-california.html?searchResultPosition=7
-
-**White House to Unveil New Anti-Coronavirus Steps for Reopening Schools, Aide Says**\
-`The Trump administration will unveil eight new measures on Wednesday for schools to follow as they reopen to increase protection against the coronavirus pandemic, White House adviser Kellyanne Conway said.`\
-https://nytimes.com/reuters/2020/08/12/us/12reuters-health-coronavirus-usa-education.html?searchResultPosition=8
-
-**China's Kingold Jewelry Delisting From Nasdaq, Shares Plunge**\
-`China's Kingold Jewelry Inc fell by 27% on the Nasdaq stock exchange on Wednesday after the company said it would voluntarily delist its shares.    `\
-https://nytimes.com/reuters/2020/08/12/us/12reuters-china-gold-kingold-jewelry.html?searchResultPosition=9
-
-**Horse Racing: Kentucky Derby Scraps General Admission for 2020 Amid COVID-19**\
-`The Kentucky Derby, which was rescheduled for Sept. 5 due to the COVID-19 outbreak, will be held in front of a significantly reduced crowd of less than 23,000 spectators, Churchill Downs Racetrack said on Wednesday.`\
-https://nytimes.com/reuters/2020/08/12/sports/12reuters-health-coronavirus-horseracing-kentucky.html?searchResultPosition=10
+https://nytimes.com/interactive/2020/08/12/smarter-living/is-now-the-time-to-refinance-your-mortgage.html?searchResultPosition=10
 
