@@ -1,40 +1,40 @@
+**Woody Johnson Asked State Dept. Auditors to Delete Claims of Offensive Remarks from Report**\
+`The American ambassador to Britain rejected accusations that he made racially or sexually inappropriate comments toward employees at the U.S. Embassy in London.`\
+https://nytimes.com/2020/08/12/us/politics/trump-woody-johnson-london-embassy.html?searchResultPosition=1
+
+**Uber Likely to Shut Down Temporarily in California Over New Driver Ruling: CNBC**\
+`Uber Technologies Inc would likely shut down temporarily in California for several months if a court does not overturn a recent ruling requiring it to classify its drivers as full-time employees, CNBC reported on Wednesday.`\
+https://nytimes.com/reuters/2020/08/12/business/12reuters-uber-california.html?searchResultPosition=2
+
+**White House to Unveil New Anti-Coronavirus Steps for Reopening Schools, Aide Says**\
+`The Trump administration will unveil eight new measures on Wednesday for schools to follow as they reopen to increase protection against the coronavirus pandemic, White House adviser Kellyanne Conway said.`\
+https://nytimes.com/reuters/2020/08/12/us/12reuters-health-coronavirus-usa-education.html?searchResultPosition=3
+
+**China's Kingold Jewelry Delisting From Nasdaq, Shares Plunge**\
+`China's Kingold Jewelry Inc fell by 27% on the Nasdaq stock exchange on Wednesday after the company said it would voluntarily delist its shares.    `\
+https://nytimes.com/reuters/2020/08/12/us/12reuters-china-gold-kingold-jewelry.html?searchResultPosition=4
+
+**Horse Racing: Kentucky Derby Scraps General Admission for 2020 Amid COVID-19**\
+`The Kentucky Derby, which was rescheduled for Sept. 5 due to the COVID-19 outbreak, will be held in front of a significantly reduced crowd of less than 23,000 spectators, Churchill Downs Racetrack said on Wednesday.`\
+https://nytimes.com/reuters/2020/08/12/sports/12reuters-health-coronavirus-horseracing-kentucky.html?searchResultPosition=5
+
+**Advisers Consider Whether Trump Can Cut Taxes Without Congress**\
+`Trump’s lawyers and economic advisers have studied how far they could stretch executive authority to set tax policy, though the legality of any cuts is dubious.`\
+https://nytimes.com/2020/08/12/us/politics/trump-tax-cuts.html?searchResultPosition=6
+
 **No Roars at Augusta as Masters to Be Played Without Fans**\
 `The Masters, the major known as much for the roars of the crowd as the raw beauty of Augusta National, will be on mute this year. The club decided Wednesday there will be no spectators.`\
-https://nytimes.com/aponline/2020/08/12/sports/golf/ap-glf-masters-no-fans.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/12/sports/golf/ap-glf-masters-no-fans.html?searchResultPosition=7
 
 **Hundreds of Thousands Without Power Days After Midwest Storm**\
 `Hundreds of thousands of residents in Iowa's three largest cities remained without electricity Wednesday, two days after a rare wind storm that hit the Midwest devastated the state's power grid, flattened valuable corn fields and killed two people.`\
-https://nytimes.com/aponline/2020/08/12/business/ap-us-severe-weather-midwest.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/12/business/ap-us-severe-weather-midwest.html?searchResultPosition=8
 
 **WHO Seeking $76 Million for Lebanon After Beirut Blast, Concerned About Coronavirus**\
 `The World Health Organization (WHO) said on Wednesday it had appealed for $76 million in aid for Lebanon after last week's massive explosion in Beirut destroyed or damaged hospitals, clinics and medical supplies.`\
-https://nytimes.com/reuters/2020/08/12/world/middleeast/12reuters-lebanon-security-blast-who.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/12/world/middleeast/12reuters-lebanon-security-blast-who.html?searchResultPosition=9
 
 **NBA Lays Out Plan for Player Guests to Enter Disney Bubble**\
 `NBA players could have some family members or close friends inside the season-restart bubble with them by the end of the month.`\
-https://nytimes.com/aponline/2020/08/12/sports/basketball/ap-bkn-nba-restart-bubble-guests.html?searchResultPosition=4
-
-**Dreading the Debates? They Don’t Have to Be So Awful**\
-`With or without Trump, presidential debates could use an overhaul.`\
-https://nytimes.com/2020/08/12/opinion/debates-trump-biden.html?searchResultPosition=5
-
-**Russian Ministry Provides Money to Pay World Athletics Fine**\
-`The Russian Sports Ministry has provided funds for the national track and field federation to pay off a fine to World Athletics and escape expulsion from the governing body, the ministry said Wednesday. `\
-https://nytimes.com/aponline/2020/08/12/sports/ap-ath-russian-doping.html?searchResultPosition=6
-
-**Zimbabwe Court Orders Chains Removed From Jailed Journalist**\
-`A Zimbabwean magistrate Wednesday ordered prison authorities to unchain a journalist accused of mobilizing anti-government protests, but then ruled that his testimony of poor prison conditions must be heard in private.`\
-https://nytimes.com/aponline/2020/08/12/world/africa/ap-af-zimbabwe-arrests.html?searchResultPosition=7
-
-**How American Guns Are Fueling U.K. Crime**\
-`Handguns are quietly being smuggled into Britain, despite tough gun-control laws. The police fear that the illegal weapons are contributing to a rise in gang-related crime.`\
-https://nytimes.com/2020/08/12/world/europe/handguns-smuggling-murder-us-uk.html?searchResultPosition=8
-
-**Syria: President Assad Suffers Brief Drop in Blood Pressure**\
-`Syrian President Bashar Assad interrupted a speech he was giving to parliament after he suffered a brief drop in blood pressure, the Syrian presidency said Wednesday. `\
-https://nytimes.com/aponline/2020/08/12/world/middleeast/ap-ml-syria-assad.html?searchResultPosition=9
-
-**The Race Is On to Be the Peloton of Weight Lifting**\
-`Three companies — Tempo, Tonal and Forme Life — are competing to supplant cheap dumbbells with smart machines priced in the four figures.`\
-https://nytimes.com/2020/08/12/style/weight-lifting-at-home-tonal-tempo-forme.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/12/sports/basketball/ap-bkn-nba-restart-bubble-guests.html?searchResultPosition=10
 
