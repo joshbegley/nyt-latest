@@ -30,7 +30,7 @@ https://nytimes.com/reuters/2020/08/12/world/africa/12reuters-nigeria-security-p
 `A Chinese official lashed out at U.S. Health and Human Services Secretary Alex Azar on Wednesday for visiting Taiwan amid an ongoing pandemic back home, accusing him of putting politics ahead of the lives of the American people.`\
 https://nytimes.com/aponline/2020/08/12/world/asia/ap-as-china-taiwan-us.html?searchResultPosition=8
 
-**Train Derails in Scotland; No Immediate Reports of Injuries**\
+**Scottish Leader Says Injuries Reported After Train Derails**\
 `Police and paramedics were responding Wednesday to a train derailment in northeast Scotland, and smoke could be seen rising from the site.`\
 https://nytimes.com/aponline/2020/08/12/world/europe/ap-eu-britain-train-derailment.html?searchResultPosition=9
 
