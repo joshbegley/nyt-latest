@@ -1,40 +1,40 @@
+**Top General in Middle East Says U.S. Troop Levels Will Drop in Iraq and Syria**\
+`The commander, Gen. Kenneth F. McKenzie Jr., said U.S. forces would continue to combat pockets of Islamic State fighters.`\
+https://nytimes.com/2020/08/12/world/middleeast/american-troops-iraq-syria.html?searchResultPosition=1
+
+**Italy Orders Coronavirus Tests for Arrivals From Four Countries**\
+`Italy ruled on Wednesday that people travelling from Croatia, Greece, Malta and Spain must be tested for the coronavirus on arrival, as new infections increase in the four countries which are popular holiday destinations for Italians.`\
+https://nytimes.com/reuters/2020/08/12/world/europe/12reuters-health-coronavirus-italy-tests.html?searchResultPosition=2
+
+**Lyft Maintains End-2021 Profitability Goal Even as COVID-19 Guts Demand**\
+`Lyft Inc said on Wednesday cost cuts put the company on track to reach its goal of becoming profitable on an adjusted basis by the end of 2021, even as its second-quarter revenue tumbled 61%.`\
+https://nytimes.com/reuters/2020/08/12/business/12reuters-lyft-results.html?searchResultPosition=3
+
+**Gen. Belichick? Trump Says Patriots Coach Has Military Chops**\
+`Bill Belichick has eight Super Bowl rings. Maybe he should also have four stars.`\
+https://nytimes.com/aponline/2020/08/12/sports/football/ap-fbn-trump-belichick.html?searchResultPosition=4
+
+**Judge Faces Ethics Charges Over Racist, Demeaning Comments**\
+`A Pittsburgh judge who allegedly referred to a Black juror as “Aunt Jemima” was accused of misconduct in office Wednesday by the state's entity that investigates and prosecutes judicial wrongdoing.`\
+https://nytimes.com/aponline/2020/08/12/us/ap-us-judge-racist-remarks-2nd-ld-writethru.html?searchResultPosition=5
+
+**Lyft's 2Q Loss $437M as Virus Spread and Riders Stayed Home**\
+`Lyft on Wednesday posted a loss of $437.1 million for the second quarter, when the coronavirus outbreak meant few people were looking to use its ride-hailing service. `\
+https://nytimes.com/aponline/2020/08/12/business/ap-us-lyft-results.html?searchResultPosition=6
+
 **Bankrupt Brooks Brothers Finds a Buyer**\
 `The retailer is seeking court approval of a $325 million sale to a group backed by the mall owner Simon Property Group and Authentic Brands Group, a licensing firm.`\
-https://nytimes.com/2020/08/12/business/brooks-brothers-sale-authentic-brands.html?searchResultPosition=1
+https://nytimes.com/2020/08/12/business/brooks-brothers-sale-authentic-brands.html?searchResultPosition=7
 
 **United Airlines Bets on Florida, Adding Dozens of Flights a Day Starting November**\
 `United Airlines is adding up to 28 daily nonstop U.S. flights to Florida starting Nov. 6 as the Chicago-based airline bets on a rebound in leisure travelers heading to sunny skies.`\
-https://nytimes.com/reuters/2020/08/12/business/12reuters-health-coronavirus-united-airlines.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/12/business/12reuters-health-coronavirus-united-airlines.html?searchResultPosition=8
 
 **Tribune Closing 5 Newsrooms Including NY Daily News**\
 `Tribune Publishing Company, which owns some of the most storied newspapers in American journalism, said Wednesday that it is closing the newsrooms at five of them, including New York's Daily News and The Capital Gazette in Annapolis, Maryland.`\
-https://nytimes.com/aponline/2020/08/12/business/ap-us-tribune-newsrooms-closing.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/12/business/ap-us-tribune-newsrooms-closing.html?searchResultPosition=9
 
 **Closing Prices for Crude Oil, Gold and Other Commodities**\
 `Benchmark U.S. crude oil for September delivery rose $1.06 to settle at $42.67 a barrel Wednesday. Brent crude oil for October delivery rose 93 cents to $45.43 a barrel.`\
-https://nytimes.com/aponline/2020/08/12/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=4
-
-**Fed's Daly Says There Is Little Evidence Additional Jobless Benefits Are Discouraging Work**\
-`The enhanced unemployment benefits provided to jobless Americans helped to offset the negative demand shock caused by the virus and there is little evidence the payments deterred people from seeking new work, San Francisco Federal Reserve Bank President Mary Daly said on Wednesday. `\
-https://nytimes.com/reuters/2020/08/12/us/12reuters-usa-fed-daly.html?searchResultPosition=5
-
-**Exclusive: Chilean Regulator Drops Appeal on SQM Environmental Plan, Plans Atacama Mining Review**\
-`Chile's environmental regulator has withdrawn from its legal battle to defend an environmental compliance plan by lithium miner SQM that it approved last year, according to a filing seen by Reuters, a decision that could prove a major setback for the miner as it seeks to expand its operations.`\
-https://nytimes.com/reuters/2020/08/12/world/americas/12reuters-chile-lithium-sqm-exclusive.html?searchResultPosition=6
-
-**Tear Gas at Portland Protests Raises Concern About Pollution**\
-`The presence of U.`\
-https://nytimes.com/aponline/2020/08/12/us/ap-us-racial-injustice-portland-tear-gas.html?searchResultPosition=7
-
-**Pakistan Army Chief to Visit Saudi Arabia in Quest to Smooth Ties**\
-`Pakistan's army chief will visit Saudi Arabia this weekend, officials said, seeking to calm diplomatic strains over Kashmir as financial support for Islamabad hangs in the balance.`\
-https://nytimes.com/reuters/2020/08/12/world/asia/12reuters-pakistan-saudi-arabia.html?searchResultPosition=8
-
-**Airbnb's Quarterly Revenue Slumps; 2020 IPO Plans Still On: Bloomberg News**\
-`Short-term home rental company Airbnb Inc's quarterly revenue plunged 67% as fewer people traveled due to the COVID-19 pandemic, but its plans for a stock market debut before year's end are still on, Bloomberg reported, citing people familiar with the matter.`\
-https://nytimes.com/reuters/2020/08/12/business/12reuters-airbnb-results.html?searchResultPosition=9
-
-**Bulgaria: Protesters Seek Support From Berlin and Brussels**\
-`Several hundred anti-government protesters gathered on Wednesday in front of the German embassy in Sofia, calling on Berlin and Brussels to “open their eyes” to widespread corruption in Bulgaria.`\
-https://nytimes.com/aponline/2020/08/12/us/politics/ap-eu-bulgaria-protests.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/12/business/ap-financial-markets-commodities-dollar-glance.html?searchResultPosition=10
 
