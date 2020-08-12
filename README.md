@@ -1,40 +1,40 @@
+**Birmingham 2022 Scraps Athletes' Village Plan Due to COVID Impact**\
+`Organisers of the 2022 Birmingham Commonwealth Games have scrapped plans for a single athletes' village due to the impact of the global pandemic and will use three 'campus' sites instead.`\
+https://nytimes.com/reuters/2020/08/12/sports/12reuters-games-birmingham-village.html?searchResultPosition=1
+
+**Stranded Lebanese Desperate to Rebuild After Blast**\
+`Sitting amid the debris, Lebanese on Wednesday expressed their frustration at the state for abandoning them in their desperate efforts to rebuild after last week's catastrophic Beirut port explosion compounded a dire financial crisis.`\
+https://nytimes.com/reuters/2020/08/12/world/middleeast/12reuters-lebanon-security-blast.html?searchResultPosition=2
+
+**Edmunds: Top Picks for Road Trip Vehicles With Maximum Range**\
+`Many Americans are wary of flying because of the COVID-19 pandemic.`\
+https://nytimes.com/aponline/2020/08/12/business/ap-us-behind-the-wheel-road-trip-vehicles.html?searchResultPosition=3
+
+**The Pleasures of Moth-Watching**\
+`It’s high moth season, and drawing you out into the dark is one of the many ways moths can enrich your life, if you let them.`\
+https://nytimes.com/2020/08/12/realestate/moth-watching-night-garden.html?searchResultPosition=4
+
+**The Night Garden and Its Inhabitants**\
+`It’s high moth season, and drawing you out into the dark is one of the many ways moth-watching can enrich your life.`\
+https://nytimes.com/slideshow/2020/08/12/realestate/the-night-garden-and-its-inhabitants.html?searchResultPosition=5
+
+**A Historic V.P. Decision**\
+`Joe Biden’s vice-presidential search has ended: Kamala Harris will be his running mate. How did he settle on the California senator?`\
+https://nytimes.com/2020/08/12/podcasts/the-daily/biden-kamala-harris-vp.html?searchResultPosition=6
+
+**Poem: The Unsolvable Puzzle**\
+`By Michael Greer and Deb Amlen`\
+https://nytimes.com/2020/08/12/crosswords/essay-poem-puzzles-heart.html?searchResultPosition=7
+
+**Greece, U.S. Foreign Ministers to Meet Over Eastern Mediterranean Tensions**\
+`The foreign ministers of Greece and the United States will meet in Vienna on Friday to discuss tensions in the Eastern Mediterranean, the Greek foreign ministry said, amid a dispute between Athens and Ankara over hydrocarbon resources. `\
+https://nytimes.com/reuters/2020/08/12/world/europe/12reuters-greece-usa-turkey.html?searchResultPosition=8
+
+**Virtually Identical: Grounded Japanese Try 'Foreign' Holidays With a Difference**\
+`Japanese businessman Katsuo Inoue chose Italy for this year's summer vacation, and he enjoyed the trimmings of a business class cabin and soaked up the sights of Florence and Rome - without ever leaving Tokyo.`\
+https://nytimes.com/reuters/2020/08/12/technology/12reuters-health-coronavirus-japan-vr-travel.html?searchResultPosition=9
+
 **Turkish Ship Starts Energy Search Amid Standoff With Greece**\
 `A Turkish seismic research vessel has begun surveying for energy resources in contested areas of the eastern Mediterranean, Turkey’s energy minister said Wednesday, amid an escalation of tensions between rivals Greece and Turkey over oil and gas exploration rights.`\
-https://nytimes.com/aponline/2020/08/12/business/ap-eu-turkey-greece.html?searchResultPosition=1
-
-**New York Tries to Keep Cool**\
-`A heat advisory is in effect until Wednesday night, and the high humidity poses a risk to vulnerable residents.`\
-https://nytimes.com/2020/08/12/nyregion/nyc-heat-advisory.html?searchResultPosition=2
-
-**Regulator Warning Ends Hong Kong's Next Digital Share Rally**\
-`Shares of Next Digital Ltd tumbled over 40% on Wednesday after soaring more than 1,000% in the last two sessions, as the securities watchdog said it was monitoring trading activity in the Hong Kong media group.`\
-https://nytimes.com/reuters/2020/08/12/business/12reuters-next-digital-stocks.html?searchResultPosition=3
-
-**ABN Amro Exits Trade, Commodity Finance in Corporate Bank Shake-Up**\
-`ABN Amro is to end all trade and commodity financing after a string of losses, in a massive overhaul of its activities that will see the Dutch bank cut 800 jobs.`\
-https://nytimes.com/reuters/2020/08/12/world/europe/12reuters-abn-amro-results.html?searchResultPosition=4
-
-**Belarus Says Police Detained More Than 1,000 Protesters Overnight**\
-`Belarusian police detained more than 1,000 protesters on the third night of protests on Tuesday that broke out over a contested election handing a new term to President Alexander Lukashenko, the Belarusian Interior Ministry said on Wednesday.`\
-https://nytimes.com/reuters/2020/08/12/world/europe/12reuters-belarus-election-protesters.html?searchResultPosition=5
-
-**Shake Shack Shrugs Off Trade War, Opens Outlet in Beijing**\
-`Antagonisms between China and the United States didn’t stop Beijing's burger lovers from standing in line for hours for a bite of Shake Shack's snacks. `\
-https://nytimes.com/aponline/2020/08/12/world/asia/ap-china-shake-shack.html?searchResultPosition=6
-
-**EU Reinstates Trade Duties on Some Cambodian Imports Over Human Rights Violations**\
-`The European Union on Wednesday withdrew preferential market access to Cambodian products such as garments and footwear, hitting about a fifth of the country's exports to the bloc over "serious and systematic concerns related to human rights".`\
-https://nytimes.com/reuters/2020/08/12/world/asia/12reuters-eu-asean-trade-cambodia.html?searchResultPosition=7
-
-**Coronavirus Live Updates: Restaurants in the U.S. Become a Hot Spot for Infection**\
-`Many community outbreaks this summer have centered on eateries and bars, data show. New Zealand has returned to a partial lockdown.`\
-https://nytimes.com/2020/08/12/world/coronavirus-covid-19.html?searchResultPosition=8
-
-**UK Says Trade Talks With U.S. Continue to Make Positive Progress**\
-`Britain said its latest round of trade talks with the United States made positive progress in many areas, and that both sides agreed negotiations should continue at pace in the coming months.`\
-https://nytimes.com/reuters/2020/08/12/world/europe/12reuters-britain-usa-trade.html?searchResultPosition=9
-
-**Israel to Examine Russia's COVID-19 Vaccine, Minister Says**\
-`Israel will examine Russia's COVID-19 vaccine and enter negotiations to buy it if it is found to be a "serious product", Israel's health minister said.`\
-https://nytimes.com/reuters/2020/08/12/world/europe/12reuters-health-coronavirus-israel-russia.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/12/business/ap-eu-turkey-greece.html?searchResultPosition=10
 
