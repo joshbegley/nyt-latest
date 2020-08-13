@@ -1,40 +1,40 @@
+**New Zealand Scrambles to Contain Coronavirus Resurgence as It Heads Toward Election**\
+`New Zealand was scrambling to trace the source of its first coronavirus outbreak in more than three months, reporting 13 new community infections on Thursday, after Prime Minister Jacinda Ardern had sought to eradicate the virus with a hard lockdown.    `\
+https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-health-coronavirus-newzealand.html?searchResultPosition=1
+
+**She Doesn’t Make Animals Cry, but She Collects Their Tears**\
+`By studying the numerous ways animals keep their eyes wet and healthy, scientists hope to help address human vision problems.`\
+https://nytimes.com/2020/08/13/science/animal-tears.html?searchResultPosition=2
+
+**Iowa Farmers Assess Losses After Storm Flattened Cornfields**\
+`Farmers across a wide swath of Iowa are dealing with the heartbreaking aftermath of a rare wind storm that turned what was looking like a record corn crop into deep losses for many.`\
+https://nytimes.com/aponline/2020/08/13/us/ap-us-severe-weather-midwest-agriculture.html?searchResultPosition=3
+
+**China's Banking Sector Expected to Dispose $490 Billion of Bad Loans in 2020: Xinhua**\
+`China's banking industry is expected to dispose 3.4 trillion yuan ($489.91 billion) of bad loans in 2020 to contain financial risks in an economy weakened by COVID-19, the official Xinhua News Agency reported.`\
+https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-china-banks-loans.html?searchResultPosition=4
+
 **Puerto Rico Set for 2nd Voting Round After Botched Primaries**\
 `Puerto Ricans prepared Thursday for a second consecutive weekend of primary elections after the U.S. territory's Supreme Court ordered authorities to reopen polling centers where botched ballot supplies prevented people from voting in the first round.`\
-https://nytimes.com/aponline/2020/08/13/world/americas/ap-cb-puerto-rico-botched-primaries.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/13/world/americas/ap-cb-puerto-rico-botched-primaries.html?searchResultPosition=5
 
 **Today in History**\
 `Today in History `\
-https://nytimes.com/aponline/2020/08/13/us/ap-today-in-history-1st-ld-writethru.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/13/us/ap-today-in-history-1st-ld-writethru.html?searchResultPosition=6
 
 **Loyd Scores 20, Bird Returns in Storm's 100-63 Win**\
 `Jewell Loyd and Sami Whitcomb each scored 20 points and the Seattle Storm won their sixth straight game with a 100-63 rout of the Atlanta Dream on Wednesday night.`\
-https://nytimes.com/aponline/2020/08/12/sports/basketball/bc-bkl-dream-storm.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/12/sports/basketball/bc-bkl-dream-storm.html?searchResultPosition=7
 
 **George, Leonard Lead Clippers Past Nuggets for No. 2 Seed**\
 `Paul George scored 27 points, Kawhi Leonard had 26 and the Los Angeles Clippers wrapped up the second seed in the Western Conference playoffs with a 124-111 victory over the third-seeded Denver Nuggets on Wednesday night. `\
-https://nytimes.com/aponline/2020/08/12/sports/basketball/bc-bkn-clippers-nuggets.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/12/sports/basketball/bc-bkn-clippers-nuggets.html?searchResultPosition=8
 
 **Some Arizona Schools to Reopen in Defiance of Virus Benchmarks**\
 `Some Arizona schools plan to restart in-person education on Monday in defiance of state benchmarks on when students and staff can safely return to classes during the novel coronavirus pandemic.`\
-https://nytimes.com/reuters/2020/08/12/us/12reuters-health-coronavirus-arizona-schools.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/08/12/us/12reuters-health-coronavirus-arizona-schools.html?searchResultPosition=9
 
 **ByteDance in Talks With India's Reliance for Investment in TikTok: TechCrunch**\
 `China's ByteDance is in early talks with Reliance Industries Ltd for an investment in its video-based app TikTok's business in India, TechCrunch reported https://techcrunch.com/2020/08/12/bytedance-in-talks-with-indias-reliance-for-investment-in-tiktok on Thursday, citing sources.   `\
-https://nytimes.com/reuters/2020/08/12/business/12reuters-india-tiktok-reliance.html?searchResultPosition=6
-
-**AP PHOTOS: Thai Scientists Catch Bats to Trace Virus Origins**\
-`Researchers in Thailand have been trekking though the countryside to catch bats in their caves in an effort to trace the murky origins of the coronavirus. `\
-https://nytimes.com/aponline/2020/08/12/world/asia/ap-as-thailand-bat-catchers-photo-gallery.html?searchResultPosition=7
-
-**Sky Beat Mercury 89-71 Behind Quigley's 20 Points**\
-`Allie Quigley scored 20 points, Kahleah Copper added 16 points and the Chicago Sky beat the Phoenix Mercury 89-71 on Wednesday night.`\
-https://nytimes.com/aponline/2020/08/12/sports/basketball/bc-bkl-mercury-sky.html?searchResultPosition=8
-
-**Maldonado's 3-Run Shot Leads Astros Over Giants 5-1**\
-`Martín Maldonado hit a three-run home run to back a strong start by Zack Greinke and help the Houston Astros to a 5-1 win over the San Francisco Giants on Wednesday night.`\
-https://nytimes.com/aponline/2020/08/12/sports/baseball/ap-bbo-giants-astros-1st-ld-writethru.html?searchResultPosition=9
-
-**US Says Iran Briefly Seizes Oil Tanker Near Strait of Hormuz**\
-`The Iranian navy boarded and briefly seized a Liberian-flagged oil tanker near the strategic Strait of Hormuz amid heightened tensions between Tehran and the U.S., a U.S. military official said Thursday.`\
-https://nytimes.com/aponline/2020/08/12/business/ap-ml-persian-gulf-tensions.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/12/business/12reuters-india-tiktok-reliance.html?searchResultPosition=10
 
