@@ -1,40 +1,40 @@
-**18-Year-Old Dies After He Is Stabbed and Set on Fire in the Bronx**\
-`The teenager, Winston Ortiz, was attacked in an apartment building near Yankee Stadium.`\
-https://nytimes.com/2020/08/13/nyregion/bronx-teen-stabbed-fire-winston-ortiz.html?searchResultPosition=1
+**Polish Resort Offers Guests Free Coronavirus Tests as Cases Spike**\
+`A Polish holiday resort is offering free coronavirus tests to guests as cases spike nationally.`\
+https://nytimes.com/reuters/2020/08/13/world/europe/13reuters-health-coronavirus-poland-hotel.html?searchResultPosition=1
 
-**Pompeo Says Israel-UAE Agreement Is Enormous Step Forward**\
-`An agreement on normalising relations reached between Israel and the United Arab Emirates on Thursday is an "enormous" step forward on the "right path", U.S. Secretary of State Mike Pompeo told reporters with him on a trip to central European countries.`\
-https://nytimes.com/reuters/2020/08/13/world/middleeast/13reuters-israel-emirates-pompeo.html?searchResultPosition=2
+**Serbia Chooses Links With China to Develop Economy, Telecoms Despite U.S. Warning Campaign**\
+`As U.S. Secretary of State Mike Pompeo rallied Central European nations this week to stem Chinese influence by snubbing its advanced digital technology, Chinese surveillance cameras were recording faces and cars in the Serbian capital Belgrade. `\
+https://nytimes.com/reuters/2020/08/13/business/13reuters-serbia-china-huawei.html?searchResultPosition=2
 
-**Middle East Insurers Seen Taking Bulk of Losses From Beirut Blast: Sources**\
-`Insurers in the Middle East are expected to absorb a large part of the losses from Beirut's explosion last week with Lloyd's of London and other international players expected to be less exposed, insurance industry sources said.`\
-https://nytimes.com/reuters/2020/08/13/world/europe/13reuters-lebanon-security-blast-insurance.html?searchResultPosition=3
+**UAE Official Says Israeli Annexation Would Have Ended Peace Hopes**\
+`UAE minister of state for foreign affairs Anwar Gargash said on Thursday any further Israeli annexation of Palestinian territory would have ended hopes for peace in the region. `\
+https://nytimes.com/reuters/2020/08/13/world/middleeast/13reuters-israel-emirates-official.html?searchResultPosition=3
 
-**Israel Hails 'Great Day for Peace' After Deal With UAE Announced**\
-`Israel hailed a U.S.-brokered peace deal with the United Arab Emirates on Thursday as a "great day for peace" and Prime Minister Benjamin Netanyahu was due to hold a news conference at 1600 GMT to comment further.`\
-https://nytimes.com/reuters/2020/08/13/world/middleeast/13reuters-israel-emirates-netanyahu.html?searchResultPosition=4
+**Palestinian Official Accuses UAE of 'Normalisation' With Israel**\
+`Senior Palestinian official Hanan Ashrawi accused The United Arab Emirates of "normalisation" with Israel after Thursday's announcement of a historic peace deal.`\
+https://nytimes.com/reuters/2020/08/13/world/middleeast/13reuters-israel-emirates-trump-palestinians.html?searchResultPosition=4
 
-**Bald Eagle Shows Air Superiority, Sends Drone Into Lake**\
-`A bald eagle launched an aerial assault on a drone operated by the Michigan Department of Environment, Great Lakes, and Energy — known as EGLE — ripping off a propeller and sending the aircraft into Lake Michigan.`\
-https://nytimes.com/aponline/2020/08/13/us/ap-us-eagle-attack-drone.html?searchResultPosition=5
+**Insurers to Help Pay 6 Exonerated in Nebraska Slaying**\
+`A Nebraska county that owes $28.1 million to six people wrongfully convicted of murder reached a settlement with several insurance companies to help pay part of the judgment.`\
+https://nytimes.com/aponline/2020/08/13/us/ap-us-wrongfully-convicted-insurance.html?searchResultPosition=5
 
-**Federal Appeals Court: Male-Only Draft Is Constitutional**\
-`A federal appeals court in New Orleans upheld the constitutionality of the all-male military draft system Thursday, citing a 1981 U.S. Supreme Court decision.`\
-https://nytimes.com/aponline/2020/08/13/us/ap-us-military-draft-women.html?searchResultPosition=6
+**High Court Nixes GOP Move for Ballot Witness in Rhode Island**\
+`The U.S. Supreme Court is leaving in place an agreement that allows Rhode Island residents to vote by mail in two upcoming elections without signing their ballots in the presence of two witnesses or a notary. `\
+https://nytimes.com/aponline/2020/08/13/us/politics/ap-us-supreme-court-rhode-island-election.html?searchResultPosition=6
 
-**US Seizes Digital Currency Accounts Used by Militant Groups**\
-`The Justice Department has seized millions of dollars from cryptocurrency accounts used by militant organizations based abroad, including the Islamic State group and al-Qaida, officials announced Thursday.`\
-https://nytimes.com/aponline/2020/08/13/us/politics/ap-us-cryptocurrency-seizure-militant-groups.html?searchResultPosition=7
+**US Long-Term Mortgage Rates Rise; 30-Year at 2.96%**\
+`U.S. average rates on long-term mortgages rose this week but remained at historically low levels. The key 30-year loan stayed below 3%. `\
+https://nytimes.com/aponline/2020/08/13/business/ap-us-mortgage-rates.html?searchResultPosition=7
 
-**In Europe, Millions of Jobless Are Falling Through the Cracks**\
-`Government efforts to subsidize wages and prevent layoffs have kept many in jobs, but they aren’t sheltering an army of precarious workers.`\
-https://nytimes.com/2020/08/13/business/europe-precarious-workers.html?searchResultPosition=8
+**Ex-Boston Police Union Boss Charged With Sex Assault of Girl**\
+`The former head of Boston's largest police union has been charged with sexually assaulting a girl and was ordered held Thursday on $100,000 bail. `\
+https://nytimes.com/aponline/2020/08/13/us/ap-us-former-police-officer-child-assault-1st-ld-writethru.html?searchResultPosition=8
 
-**UAE Confirms Agreement for Normalising Relations With Israel**\
-`Abu Dhabi's Crown Prince Sheikh Mohammed Bin Zayed said on Twitter on Thursday that an agreement had been reached that would halt further Israeli annexation of Palestinian territories.`\
-https://nytimes.com/reuters/2020/08/13/world/middleeast/13reuters-israel-emirates.html?searchResultPosition=9
+**AP FACT CHECK: Trump's Risk to Social Security, Economy Myth**\
+`President Donald Trump’s proposed payroll tax cut is a threat to Social Security no matter how he casts it.`\
+https://nytimes.com/aponline/2020/08/13/business/ap-us-trump-fact-check-economy.html?searchResultPosition=9
 
-**Egyptian Lawyer: Senior Brotherhood Leader Dies in Prison**\
-`A senior leader of Egypt's outlawed Muslim Brotherhood group died of a heart attack on Thursday in a Cairo prison where he had been serving a 25-year sentence, his lawyer said.`\
-https://nytimes.com/aponline/2020/08/13/world/middleeast/ap-ml-egypt-muslim-brotherhood.html?searchResultPosition=10
+**Two Kenya Police Officers Charged With Murder After Garissa Shooting**\
+`Two Kenyan police officers were charged on Thursday with murder after they allegedly shot dead two people in the eastern county of Garissa last month, according to a charge sheet seen by Reuters.`\
+https://nytimes.com/reuters/2020/08/13/world/africa/13reuters-kenya-police.html?searchResultPosition=10
 
