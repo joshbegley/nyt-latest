@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/08/13/world/europe/13reuters-health-coronavirus
 `Inter Miami have signed French World Cup-winning midfielder Blaise Matuidi on a free transfer after he left Juventus, the Major League Soccer (MLS) club announced on Thursday.`\
 https://nytimes.com/reuters/2020/08/13/sports/soccer/13reuters-soccer-usa-mia-matuidi.html?searchResultPosition=8
 
-**Thermo Fisher Ends Deal Agreement for Genetic Testing Firm Qiagen**\
-`Thermo Fisher Scientific said on Thursday it has terminated its acquisition agreement for German genetic testing company Qiagen as the minimum acceptance threshold to its tender offer were not met.`\
+**Thermo Fisher Terminates Deal for Genetic Testing Firm Qiagen**\
+`Thermo Fisher Scientific said on Thursday it has terminated its agreement to buy Qiagen after its tender offer failed to get enough support from the investors of the German genetic testing company. `\
 https://nytimes.com/reuters/2020/08/13/business/13reuters-qiagen-m-a-thermo-fisher.html?searchResultPosition=9
 
 **Tales of Hope and Resilience as a Museum Reopens**\
