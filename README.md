@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/08/13/us/ap-us-virus-outbreak-diary-epicenter-
 `Sharks have more complex social lives than previously known, as shown by a study finding that gray reef sharks in the Pacific Ocean cultivate surprising social networks with one another and develop bonds that can endure for years. `\
 https://nytimes.com/reuters/2020/08/13/world/europe/13reuters-science-sharks.html?searchResultPosition=5
 
-**The Coronavirus Isn’t the 1918 Flu. But Both Took Huge Tolls in N.Y.C.**\
+**In N.Y.C.’s Coronavirus Surge, a Frightening Echo of the 1918 Flu**\
 `This spring, death rates rivaled those seen during the country’s deadliest pandemic, a new study finds. “What 1918 looked like is basically this.”`\
 https://nytimes.com/2020/08/13/health/coronavirus-flu-new-york.html?searchResultPosition=6
 
