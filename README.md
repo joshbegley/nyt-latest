@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-health-coronavirus-c
 https://nytimes.com/aponline/2020/08/13/us/politics/ap-us-election-2020-harris-asian-identity.html?searchResultPosition=8
 
 **Lenovo Profit Beats Expectations, Helped by Remote Working Trend**\
-`China's Lenovo Group, the world's biggest PC maker, posted a better than expected quarterly profit on Thursday and said it is capturing opportunities emerging from remote working.`\
+`China's Lenovo Group, the world's biggest PC maker, posted a better than expected quarterly profit on Thursday and said it is capturing opportunities emerging from remote working and education.`\
 https://nytimes.com/reuters/2020/08/13/business/13reuters-lenovo-results.html?searchResultPosition=9
 
 **Warning on Russia Adds Questions About Senate's Biden Probe**\
