@@ -1,4 +1,4 @@
-**Hit by COVID-19, Thyssenkrupp Sees First Signs of Stabilisation**\
+**Hit by COVID-19, Thyssenkrupp Sees Early Signs of Stabilisation**\
 `Ailing conglomerate Thyssenkrupp on Thursday said some businesses were stabilising in the current quarter after suffering a heavy blow due to the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/08/13/business/13reuters-thyssenkrupp-results.html?searchResultPosition=1
 
