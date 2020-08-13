@@ -1,40 +1,40 @@
-**‘An Easy Girl’ Review: Carnal Knowledge**\
-`An inexperienced teenager and her more sophisticated cousin experience a transformative summer in this smart and sultry coming-of-age story.`\
-https://nytimes.com/2020/08/13/movies/an-easy-girl-review.html?searchResultPosition=1
+**Democrat Harris Rebukes Trump in Historic Campaign-Trail Debut With Biden**\
+`Kamala Harris made her campaign-trail debut as Joe Biden's Democratic running mate on Wednesday, delivering a strong rebuke of President Donald Trump's leadership and highlighting the historic significance of her new role.`\
+https://nytimes.com/reuters/2020/08/13/us/politics/13reuters-usa-election-biden-harris.html?searchResultPosition=1
 
-**‘Represent’ Review: Running for Office, and Seeking More Than Votes**\
-`In this documentary, three women, driven by a desire to reshape their communities, seek office.`\
-https://nytimes.com/2020/08/13/movies/represent-review.html?searchResultPosition=2
+**Why Kamala Harris May Prove an Elusive Target for Trump**\
+`Joe Biden’s selection of Senator Kamala Harris as his running mate provides a brand-new target for President Donald Trump’s re-election campaign that has struggled to find an effective line of attack against his Democratic rival. `\
+https://nytimes.com/reuters/2020/08/13/us/politics/13reuters-usa-election-biden-harris-analysis.html?searchResultPosition=2
 
-**‘The Bay of Silence’ Review: Awash With Secrets**\
-`This British-Dutch thriller heaps on the supporting characters but doesn’t give them much room to breathe.`\
-https://nytimes.com/2020/08/13/movies/bay-of-silence-review.html?searchResultPosition=3
+**'One of Our Own.' Indians Cheer Biden's Pick of Kamala Harris as White House Running Mate**\
+`On annual trips to India as a child, Kamala Harris would go for strolls on the humid beaches of Chennai with her maternal grandfather and his friends, listening intently as they chatted about democracy and the need to treat everyone equally.`\
+https://nytimes.com/reuters/2020/08/13/us/politics/13reuters-usa-election-harris-india.html?searchResultPosition=3
 
-**‘Spree’ Review: Desperately Seeking Likes**\
-`A ride-share driver turns serial killer in this depressing social-media thriller.`\
-https://nytimes.com/2020/08/13/movies/spree-review.html?searchResultPosition=4
+**Many More Likely Sought Jobless Aid After $600 Check Ends**\
+`The U.S. government will provide its latest report Thursday on the pace of layoffs, which have remained stuck at a high level since the viral pandemic erupted five months ago.`\
+https://nytimes.com/aponline/2020/08/13/business/ap-us-virus-outbreak.html?searchResultPosition=4
 
-**Why Be Vulnerable**\
-`Nothing like a pandemic to show people we don’t have it all together.`\
-https://nytimes.com/2020/08/13/style/vulnerability-is-hard.html?searchResultPosition=5
+**Harris Offers a Preview of What She’ll Bring**\
+`The new running mate played both defense and offense: This is your morning tip sheet.`\
+https://nytimes.com/2020/08/13/us/politics/vp-democrats-2020.html?searchResultPosition=5
 
-**Barcelona Changes Tourism Tactics in the COVID Era**\
-`The sight of local kids playing under the palm trees in an almost empty Plaça Reial square reminds Gloria Gomez of her childhood in the 1980s before tourism swamped the Barcelona landmark.`\
-https://nytimes.com/reuters/2020/08/13/world/europe/13reuters-health-coronavirus-tourism-barcelona.html?searchResultPosition=6
+**Finland Recommends Use of Facemasks on Public Transport**\
+`Finland's government backs public health authorities' new recommendation to use facemasks on public transport and in other situations where social distancing is not possible, Prime Minister Sanna Marin said on Thursday.`\
+https://nytimes.com/reuters/2020/08/13/world/europe/13reuters-health-coronavirus-finland-facemasks.html?searchResultPosition=6
 
-**TUI Looking at New Equity, Divestments to Cut COVID-19 Debt Pile**\
-`TUI, the world's largest tourism company, said it was considering raising new equity from shareholders or selling off parts of the business to reduce debt taken on to survive the coronavirus pandemic. `\
-https://nytimes.com/reuters/2020/08/13/business/13reuters-tui-outlook.html?searchResultPosition=7
+**German Union Says Lufthansa Stopped Negotiations on Crisis Management and Jobs**\
+`German services union Verdi on Thursday said Lufthansa had walked away from negotiations over a package to cut staff costs after the flagship carrier received a 9 billion euro ($10 billion) government bailout to secure its future.`\
+https://nytimes.com/reuters/2020/08/13/business/13reuters-lufthansa-restructuring.html?searchResultPosition=7
 
-**‘Terror Crocodile’ the Size of a Bus Fed on Dinosaurs, Study Says**\
-`The monster animal, more closely related to American alligators than modern crocodiles, had teeth the size of bananas and a strange enlarged snout.`\
-https://nytimes.com/2020/08/13/science/large-crocodile-deinosuchus.html?searchResultPosition=8
+**Vietnam Reports 25 More COVID-19 Infections, Three Additional Deaths on Thursday**\
+`Vietnam's health ministry reported 25 more coronavirus infections and three additional deaths on Thursday, bringing the total number of cases in the Southeast Asian country to 905, with 20 fatalities.`\
+https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-health-coronavirus-vietnam.html?searchResultPosition=8
 
-**Liberia's Vice President Confirmed to Have Coronavirus**\
-`Liberia’s health ministry has confirmed that the vice president, who was flown to Ghana on Tuesday for medical care, has tested positive for COVID-19. `\
-https://nytimes.com/aponline/2020/08/13/world/africa/ap-af-liberia-vice-president.html?searchResultPosition=9
+**Thai PM Hints at More Legal Action Against Protest Leaders**\
+`Thailand's Prime Minister Prayuth Chan-ocha said on Thursday leaders of anti-government student protests could face more legal action, adding that authorities also should investigate anyone "behind the protests" for any violation of laws.`\
+https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-thailand-protests-prayuth.html?searchResultPosition=9
 
-**Philippines Confirms Death of Ex-Wirecard Exec Bauer**\
-`Former Wirecard executive Christopher Bauer, one of several people being investigated over a multi-billion dollar fraud at the German payments firm, died in The Philippines last month, the Justice Ministry confirmed on Thursday. `\
-https://nytimes.com/reuters/2020/08/13/technology/13reuters-wirecard-account-philippines.html?searchResultPosition=10
+**Apple Readies Subscription Bundles to Boost Services: Bloomberg News**\
+`Apple Inc is readying a series of subscription bundles that will let customers sign in for several of the iPhone maker's digital services at a lower monthly price, Bloomberg News reported on Thursday.`\
+https://nytimes.com/reuters/2020/08/13/business/13reuters-apple-subscription.html?searchResultPosition=10
 
