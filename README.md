@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/08/12/world/americas/ap-lt-virus-outbreak-vene
 `Residents of Mexico’s Gulf coast state of Veracruz have complained after photos showed mountains of bagged hospital waste piling up in a patio outside a government hospital. `\
 https://nytimes.com/aponline/2020/08/12/world/americas/ap-lt-mexico-medical-waste.html?searchResultPosition=2
 
-**Australian Unemployment Ticks Up in July, Jobs Surge Again**\
-`Australia's unemployment rate ticked up to a 22-year high of 7.5% in July with a fresh wave of coronavirus infections in the southeastern state of Victoria further threatening the outlook.`\
+**Australian Jobs Surge in July, Unemployment Lower Than Expected**\
+`Australian employment surged further in July, handily beating forecasts, though the increase was still not enough to offset the ballooning numbers of those looking for work as the jobless rate ticked up to a 22-year high.`\
 https://nytimes.com/reuters/2020/08/12/world/asia/12reuters-australia-economy-employment.html?searchResultPosition=3
 
 **Crispy Brisket Bits**\
