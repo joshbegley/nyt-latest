@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/08/13/world/europe/13reuters-north-macedonia-po
 `Chinese tech giant ByteDance censored content it perceived as critical of the Chinese government on its news aggregator app in Indonesia from 2018 to mid-2020, six people with direct knowledge of the matter told Reuters.`\
 https://nytimes.com/reuters/2020/08/13/business/13reuters-usa-tiktok-indonesia-exclusive.html?searchResultPosition=5
 
-**EU Eyes Belarus Sanctions Over Disputed Election, Protests Crackdown**\
-`The European Union will likely impose new sanctions on Belarus as soon as later this month, diplomats and officials said, after strongman President Alexander Lukashenko cracked down on protests triggered by a disputed vote. `\
+**EU Eyes Sanctions Over Disputed Belarus Election 'as Soon as End-August'**\
+`The European Union will likely impose new sanctions on Belarus as soon as later this month, diplomats and officials said, after President Alexander Lukashenko cracked down on protests triggered by a disputed election. `\
 https://nytimes.com/reuters/2020/08/13/world/europe/13reuters-belarus-election-eu-sanctions.html?searchResultPosition=6
 
 **Police: Man Fatally Shot Himself in Struggle With Troopers**\
