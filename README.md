@@ -1,40 +1,40 @@
+**ByteDance in Talks With India's Reliance for Investment in TikTok: TechCrunch**\
+`China's ByteDance is in early talks with Reliance Industries Ltd for an investment in its video-based app TikTok's business in India, TechCrunch reported https://techcrunch.com/2020/08/12/bytedance-in-talks-with-indias-reliance-for-investment-in-tiktok on Thursday, citing sources.   `\
+https://nytimes.com/reuters/2020/08/12/business/12reuters-india-tiktok-reliance.html?searchResultPosition=1
+
+**AP PHOTOS: Thai Scientists Catch Bats to Trace Virus Origins**\
+`Researchers in Thailand have been trekking though the countryside to catch bats in their caves in an effort to trace the murky origins of the coronavirus. `\
+https://nytimes.com/aponline/2020/08/12/world/asia/ap-as-thailand-bat-catchers-photo-gallery.html?searchResultPosition=2
+
+**Sky Beat Mercury 89-71 Behind Quigley's 20 Points**\
+`Allie Quigley scored 20 points, Kahleah Copper added 16 points and the Chicago Sky beat the Phoenix Mercury 89-71 on Wednesday night.`\
+https://nytimes.com/aponline/2020/08/12/sports/basketball/bc-bkl-mercury-sky.html?searchResultPosition=3
+
+**Maldonado's 3-Run Shot Leads Astros Over Giants 5-1**\
+`Martín Maldonado hit a three-run home run to back a strong start by Zack Greinke and help the Houston Astros to a 5-1 win over the San Francisco Giants on Wednesday night.`\
+https://nytimes.com/aponline/2020/08/12/sports/baseball/ap-bbo-giants-astros-1st-ld-writethru.html?searchResultPosition=4
+
+**US Says Iran Briefly Seizes Oil Tanker Near Strait of Hormuz**\
+`The Iranian navy boarded and briefly seized a Liberian-flagged oil tanker near the strategic Strait of Hormuz amid heightened tensions between Tehran and the U.S., a U.S. military official said Thursday.`\
+https://nytimes.com/aponline/2020/08/12/business/ap-ml-persian-gulf-tensions.html?searchResultPosition=5
+
+**Taiwan Proposes 10% Increase in Defence Spending for 2021**\
+`Taiwan's defence spending in 2021 is set to grow 10.2% compared with this year, according to Reuters calculations from government figures released on Thursday, ramping up investment in the face of increased military pressure from China.`\
+https://nytimes.com/reuters/2020/08/12/world/asia/12reuters-taiwan-defence.html?searchResultPosition=6
+
 **Marlins Finally Get to Go Home After Beating Blue Jays 14-11**\
-`Magneuris Sierra hit a go-ahead single in the 10th inning and the Miami Marlins overcame Toronto's seven home runs to outlast the Blue Jays 14-11 Wednesday night in the final game of their season-opening, three-week road trip.`\
-https://nytimes.com/aponline/2020/08/12/sports/baseball/ap-bbo-marlins-blue-jays.html?searchResultPosition=1
+`Magneuris Sierra hit a go-ahead single in the 10th inning and the Miami Marlins overcame Toronto’s seven home runs to outlast the Blue Jays 14-11 Wednesday night in the final game of their season-opening, three-week road trip.`\
+https://nytimes.com/aponline/2020/08/12/sports/baseball/ap-bbo-marlins-blue-jays.html?searchResultPosition=7
 
 **Clint Frazier Has Big Season Debut; Yankees Beat Braves 6-3**\
 `Injury fill-in Clint Frazier had three hits, including a home run, and scored twice in his season debut as the Yankees beat Atlanta 6-3 Wednesday night, sweeping a two-game set.`\
-https://nytimes.com/aponline/2020/08/12/sports/baseball/bc-bbo-braves-yankees.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/12/sports/baseball/bc-bbo-braves-yankees.html?searchResultPosition=8
 
 **Bob Woodward's New Trump Book,' Rage,' Due Out Next Month**\
 `Veteran Washington Post reporter Bob Woodward's new book about President Donald Trump is titled “Rage” and will be released Sept. 15, less than two months before Election Day, according to a listing on Amazon.com.`\
-https://nytimes.com/aponline/2020/08/12/arts/ap-us-trump-woodward-book.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/12/arts/ap-us-trump-woodward-book.html?searchResultPosition=9
 
 **Hart, Farabee Help Flyers Beat Canadiens in Game 1**\
 `Carter Hart made 27 saves, Joel Farabee scored 16 seconds after Montreal tied it, and the Philadelphia Flyers beat the Canadiens 2-1 on Wednesday night in Game 1 of their first-round playoff series.`\
-https://nytimes.com/aponline/2020/08/12/sports/hockey/bc-hkn-canadiens-flyers.html?searchResultPosition=4
-
-**North Korea Nuclear Reactor Site Threatened by Recent Flooding, U.S. Think-Tank Says**\
-`Satellite imagery suggests recent flooding in North Korea may have damaged pump houses connected to the country's main nuclear facility, a U.S.-based think-tank said on Thursday.`\
-https://nytimes.com/reuters/2020/08/12/world/asia/12reuters-northkorea-nuclear-floods.html?searchResultPosition=5
-
-**‘Agents of S.H.I.E.L.D.’: Behind the Scenes of the Emotional Series Finale**\
-`As they initiate one last time jump, two of the showrunners, Maurissa Tancharoen and Jed Whedon, discuss bidding a bittersweet farewell to the Marvel secret agency.`\
-https://nytimes.com/2020/08/12/arts/television/agents-shield-series-finale.html?searchResultPosition=6
-
-**ATP Cup on Course, Australia Plans More January Tournaments: Tiley**\
-`The second edition of the ATP Cup is still scheduled to go ahead in January and Tennis Australia is considering adding more events alongside it to allow players to prepare for the Australian Open, TA Chief Executive Craig Tiley told Reuters. `\
-https://nytimes.com/reuters/2020/08/12/sports/tennis/12reuters-tennis-australia.html?searchResultPosition=7
-
-**Quotation of the Day: A ‘Quantum Leap’ for Black Women Is Followed by Worry of What’s Next**\
-`Quotation of the Day for Thursday, August 13, 2020.`\
-https://nytimes.com/2020/08/12/todayspaper/quotation-of-the-day-a-quantum-leap-for-black-women-is-followed-by-worry-of-whats-next.html?searchResultPosition=8
-
-**Mike Muscala Hits 2 Late 3s, Thunder Rally Past Heat**\
-`Mike Muscala made a 3-pointer with 5.2 seconds and the Oklahoma City Thunder overcame a 22-point deficit in the fourth quarter to beat the Miami Heat 116-115 on Wednesday night.`\
-https://nytimes.com/aponline/2020/08/12/sports/basketball/bc-bkn-heat-thunder.html?searchResultPosition=9
-
-**Corrections: Aug. 13, 2020**\
-`Corrections that appeared in print on Thursday, Aug. 13, 2020.`\
-https://nytimes.com/2020/08/12/pageoneplus/corrections-aug-13-2020.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/12/sports/hockey/bc-hkn-canadiens-flyers.html?searchResultPosition=10
 
