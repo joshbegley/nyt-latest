@@ -1,40 +1,40 @@
+**‘An Easy Girl’ Review: Carnal Knowledge**\
+`An inexperienced teenager and her more sophisticated cousin experience a transformative summer in this smart and sultry coming-of-age story.`\
+https://nytimes.com/2020/08/13/movies/an-easy-girl-review.html?searchResultPosition=1
+
+**‘Represent’ Review: Running for Office, and Seeking More Than Votes**\
+`In this documentary, three women, driven by a desire to reshape their communities, seek office.`\
+https://nytimes.com/2020/08/13/movies/represent-review.html?searchResultPosition=2
+
+**‘The Bay of Silence’ Review: Awash With Secrets**\
+`This British-Dutch thriller heaps on the supporting characters but doesn’t give them much room to breathe.`\
+https://nytimes.com/2020/08/13/movies/bay-of-silence-review.html?searchResultPosition=3
+
+**‘Spree’ Review: Desperately Seeking Likes**\
+`A ride-share driver turns serial killer in this depressing social-media thriller.`\
+https://nytimes.com/2020/08/13/movies/spree-review.html?searchResultPosition=4
+
+**Why Be Vulnerable**\
+`Nothing like a pandemic to show people we don’t have it all together.`\
+https://nytimes.com/2020/08/13/style/vulnerability-is-hard.html?searchResultPosition=5
+
+**Barcelona Changes Tourism Tactics in the COVID Era**\
+`The sight of local kids playing under the palm trees in an almost empty Plaça Reial square reminds Gloria Gomez of her childhood in the 1980s before tourism swamped the Barcelona landmark.`\
+https://nytimes.com/reuters/2020/08/13/world/europe/13reuters-health-coronavirus-tourism-barcelona.html?searchResultPosition=6
+
+**TUI Looking at New Equity, Divestments to Cut COVID-19 Debt Pile**\
+`TUI, the world's largest tourism company, said it was considering raising new equity from shareholders or selling off parts of the business to reduce debt taken on to survive the coronavirus pandemic. `\
+https://nytimes.com/reuters/2020/08/13/business/13reuters-tui-outlook.html?searchResultPosition=7
+
 **‘Terror Crocodile’ the Size of a Bus Fed on Dinosaurs, Study Says**\
 `The monster animal, more closely related to American alligators than modern crocodiles, had teeth the size of bananas and a strange enlarged snout.`\
-https://nytimes.com/2020/08/13/science/large-crocodile-deinosuchus.html?searchResultPosition=1
+https://nytimes.com/2020/08/13/science/large-crocodile-deinosuchus.html?searchResultPosition=8
 
 **Liberia's Vice President Confirmed to Have Coronavirus**\
 `Liberia’s health ministry has confirmed that the vice president, who was flown to Ghana on Tuesday for medical care, has tested positive for COVID-19. `\
-https://nytimes.com/aponline/2020/08/13/world/africa/ap-af-liberia-vice-president.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/13/world/africa/ap-af-liberia-vice-president.html?searchResultPosition=9
 
 **Philippines Confirms Death of Ex-Wirecard Exec Bauer**\
 `Former Wirecard executive Christopher Bauer, one of several people being investigated over a multi-billion dollar fraud at the German payments firm, died in The Philippines last month, the Justice Ministry confirmed on Thursday. `\
-https://nytimes.com/reuters/2020/08/13/technology/13reuters-wirecard-account-philippines.html?searchResultPosition=3
-
-**Owner of Ship Behind Mauritius Oil Spill Pledges to Face Up to Liability**\
-`Japan's Nagashiki Shipping, owner of the vessel behind a major oil spill off Mauritius, said on Thursday it felt its responsibility acutely and intends to take steps towards assessing compensation. `\
-https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-mauritius-environment-japan.html?searchResultPosition=4
-
-**Futures Muted With S&P 500 Just Shy of Record High**\
-`U.S. stock index futures were trading flat on Thursday after the benchmark S&P 500 ended the previous session points below its record high close, as political wrangling over domestic stimulus measures kept investors on tenterhooks.`\
-https://nytimes.com/reuters/2020/08/13/business/13reuters-usa-stocks.html?searchResultPosition=5
-
-**England Says 4,973 People Referred to Test and Trace Service in Latest Week**\
-`Britain said 4,973 people who tested positive for coronavirus were referred to the English test and trace system in the week to August 5, 7% up on the previous week, of whom 80% were reached and asked to provide contacts.`\
-https://nytimes.com/reuters/2020/08/13/world/europe/13reuters-health-coronavirus-britain-trace.html?searchResultPosition=6
-
-**Pompeo, in Slovenia, Pushes 5G Security, Warns About China**\
-`U.S. Secretary of State Mike Pompeo is in Slovenia to make the case for high-speed wireless networks that bar Chinese companies like Huawei. `\
-https://nytimes.com/aponline/2020/08/13/business/ap-eu-united-states-pompeo.html?searchResultPosition=7
-
-**Indonesian Teachers Warn of New Virus Clusters as Schools Reopen**\
-`Indonesia's move to reopen schools in some areas risks creating new clusters of coronavirus cases, with at least 180 students and teachers infected since a new academic year started in July, a teachers' federation said on Thursday. `\
-https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-health-coronavirus-indonesia-education.html?searchResultPosition=8
-
-**Corporate America Worries WeChat Ban Could Be Bad for Business: WSJ**\
-`U.S. companies whose fortunes are linked to China are pushing back against the Trump administration's plans to restrict business transactions involving Tencent Holdings Ltd's WeChat app, the Wall Street Journal reported on Thursday. `\
-https://nytimes.com/reuters/2020/08/13/business/13reuters-usa-wechat-ban.html?searchResultPosition=9
-
-**How History Turns Riots Into Tea Parties**\
-`We do not care for the revolutionary spirit to survive the revolution. The revolution, however, goes nowhere without it.`\
-https://nytimes.com/2020/08/13/opinion/protests-monuments-history.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/13/technology/13reuters-wirecard-account-philippines.html?searchResultPosition=10
 
