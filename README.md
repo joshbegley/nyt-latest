@@ -1,40 +1,40 @@
+**Today in History**\
+`Today in History `\
+https://nytimes.com/aponline/2020/08/14/us/ap-today-in-history-2nd-ld-writethru.html?searchResultPosition=1
+
+**US Prosecutor in Miami Targeting Venezuela Graft Is Leaving**\
+`A federal prosecutor who has jailed some of Venezuela’s biggest crooks is stepping down, The Associated Press has learned, leaving a void that could dampen U.S. efforts to expose criminal activity in the South American country amid rising tensions with the Trump administration.`\
+https://nytimes.com/aponline/2020/08/14/us/ap-us-venezuela-prosecutor.html?searchResultPosition=2
+
+**China Factory Output Flat, Retail Sales Slip in July**\
+`China's factory output rose just under 5% last month from a year earlier while retail sales fell slightly, suggesting the country's recovery from the coronavirus pandemic remains muted. `\
+https://nytimes.com/aponline/2020/08/14/business/bc-china-economy.html?searchResultPosition=3
+
+**New Zealand Probing for Outbreak Source, May Expand Lockdown**\
+`Health authorities said Friday they were investigating whether shipping workers were a source of New Zealand's first domestic coronavirus outbreak in more than three months.`\
+https://nytimes.com/aponline/2020/08/14/business/ap-as-virus-outbreak-new-zealand-1st-ld-writethru.html?searchResultPosition=4
+
+**Malaysia to Lift Limit on Hiring of Foreign Labour**\
+`Malaysia has decided to lift an earlier limit on the hiring of foreign workers meant to protect jobs for locals in most sectors, the Human Resources Ministry said late on Thursday.`\
+https://nytimes.com/reuters/2020/08/14/world/asia/13reuters-malaysia-politics-labour.html?searchResultPosition=5
+
+**A Glance (and a Rooster) That Changed Everything**\
+`After a massive earthquake struck Haiti, a young woman turned in desperation to a Vodou priest. She could not have imagined what happened next.`\
+https://nytimes.com/2020/08/14/style/modern-love-haiti-earthquake-glance-changed-everything.html?searchResultPosition=6
+
 **Lillard, Blazers Escape Nets, Advance to Play-In Series**\
 `Damian Lillard sent Portland into the NBA's first play-in series with 42 more points and a crucial steal, helping the Trail Blazers escape with a 134-133 victory over the Brooklyn Nets on Thursday night. `\
-https://nytimes.com/aponline/2020/08/13/sports/basketball/bc-bkn-trail-blazers-nets.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/13/sports/basketball/bc-bkn-trail-blazers-nets.html?searchResultPosition=7
 
 **Chicago Convenience Store Ransacked Twice Since May**\
 `Security cameras captured the pillaging of a West Side Chicago convenience store hours after Mayor Lori Lightfoot warned vandals that the city would hold them accountable for ransacking downtown retailers.`\
-https://nytimes.com/aponline/2020/08/13/us/ap-us-chicago-violence-store.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/13/us/ap-us-chicago-violence-store.html?searchResultPosition=8
 
 **Catholic Service to Honor Life of Slain Solider in Houston**\
 `Mourners will gather Friday in Houston to honor the life of a slain Texas soldier whose story has renewed a push for changes in the way the military handles sexual abuse and harassment from Fort Hood to Capitol Hill.`\
-https://nytimes.com/aponline/2020/08/13/us/ap-us-slain-soldier-texas.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/13/us/ap-us-slain-soldier-texas.html?searchResultPosition=9
 
 **Biden Campaign Raises $48 Million in 48 Hours After Naming Kamala Harris as VP Choice**\
 `The campaign of Democratic presidential contender Joe Biden has raised $48 million in the 48 hours since he named U.S. Senator Kamala Harris the Democratic vice presidential nominee, a campaign spokesman told Reuters late on Thursday.`\
-https://nytimes.com/reuters/2020/08/13/us/politics/13reuters-usa-election-biden-fundraising.html?searchResultPosition=4
-
-**Iranian Fuel Transferred to Other Ships for Voyage to U.S.: U.S. Government Source**\
-`Iranian fuel cargoes targeted by a U.S. warrant for seizure were transferred to other ships for transporting to U.S. waters, a U.S. government source said on Thursday.`\
-https://nytimes.com/reuters/2020/08/13/world/middleeast/13reuters-usa-iran-cargo-transfer.html?searchResultPosition=5
-
-**Indonesia President Calls to 'Reboot' Economy Amid Pandemic**\
-`Indonesia must use the pandemic to reboot Southeast Asia's biggest economy, including by improving food and energy security, as well as processing more natural resources at home, President Joko Widodo said on Friday.`\
-https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-indonesia-politics.html?searchResultPosition=6
-
-**Magic Snap 5-Game Skid With 133-127 Victory Over Pelicans**\
-`Nikola Vucevic scored 23 points on 10-of-11 shooting from the floor and the Orlando Magic tuned up for the postseason by beating the New Orleans Pelicans 133-127 on Thursday to snap a five-game skid.`\
-https://nytimes.com/aponline/2020/08/13/sports/basketball/bc-bkn-pelicans-magic.html?searchResultPosition=7
-
-**Top Militant Linked to Beheadings Surrenders in Philippines**\
-`A leading terror suspect who has been linked to beheadings of hostages, including two Canadians and a Malaysian, has surrendered after being wounded in battle, officials said Friday.`\
-https://nytimes.com/aponline/2020/08/13/world/asia/ap-as-philippines-abu-sayyaf-commander.html?searchResultPosition=8
-
-**Your Friday Briefing**\
-`Israel-U.A.E. relations, Belarus detentions, Europe unemployment: Here’s what you need to know.`\
-https://nytimes.com/2020/08/13/briefing/israel-uae-belarus-unemployment.html?searchResultPosition=9
-
-**Sino-U.S. Tensions to Hurt China, U.S. and the World: Stats Bureau**\
-`China will be able to maintain steady economic growth this year although the tensions between China and the United States will negatively impact the two countries and the world, China's National Bureau of Statistics spokesman Fu Linghui said.`\
-https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-china-economy-usa-impact.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/13/us/politics/13reuters-usa-election-biden-fundraising.html?searchResultPosition=10
 
