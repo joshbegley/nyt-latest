@@ -1,40 +1,40 @@
+**Explainer: How the Coronavirus Changed U.S. Political Conventions, Perhaps Forever**\
+`The U.S. political convention, a presidential campaign ritual dating to the 1830s, is being reinvented on the fly after being short-circuited by the coronavirus pandemic - much like the campaign itself.`\
+https://nytimes.com/reuters/2020/08/14/arts/14reuters-usa-election-convention-explainer.html?searchResultPosition=1
+
+**He Got Her Attention With His Electric Guitar**\
+`Drs. Chloe Ciccariello and Krishn Khanna, who met at Columbia, got off to a shaky start, but eventually hit it off in chemistry class.`\
+https://nytimes.com/2020/08/14/fashion/weddings/he-got-her-attention-with-his-electric-guitar.html?searchResultPosition=2
+
+**Trump Pushes Anti-Immigrant Message Even as Coronavirus Dominates Campaign**\
+`U.S President Donald Trump is powering ahead with his anti-immigration agenda, even as voters say they are more concerned with the coronavirus pandemic and the economic destruction it has wrought.`\
+https://nytimes.com/reuters/2020/08/14/us/politics/14reuters-usa-election-immigration-insight.html?searchResultPosition=3
+
+**Factbox:How Trump Followed Through on His Immigration Campaign Promises**\
+`U.S. President Donald Trump took a hard line on immigration in the 2016 election, making it his signature campaign issue. Now, as he runs for re-election, he is highlighting the promises he says he kept and warning that his Democratic challenger Joe Biden will roll them back.`\
+https://nytimes.com/reuters/2020/08/14/us/politics/14reuters-usa-immigration-election-factbox.html?searchResultPosition=4
+
+**Attracted by Their ‘Intellectual Curiosity’**\
+`Alex Song and Kelly Jean Qu met three years ago just as she was preparing to leave New York. But then she decided to stay.`\
+https://nytimes.com/2020/08/14/fashion/weddings/attracted-by-their-intellectual-curiosity.html?searchResultPosition=5
+
+**Bulgaria's PM Says He Will Resign if Deputies Agree to Change Constitution**\
+`Bulgaria's Prime Minister Boyko Borissov said on Friday he would resign if parliament approves his plans to call elections for a grand national assembly to change the constitution.`\
+https://nytimes.com/reuters/2020/08/14/world/europe/14reuters-bulgaria-constitution.html?searchResultPosition=6
+
+**Beirut Blast Halts American-Lebanese Woman's Final Journey Home**\
+`Rami Basbous was on the phone with his uncle in Beirut on August 4, making arrangements to return his mother's remains from the United States to her birthplace, when he heard the blast that reduced large parts of the Lebanese capital to rubble.`\
+https://nytimes.com/reuters/2020/08/14/world/middleeast/14reuters-health-coronavirus-usa-beirut.html?searchResultPosition=7
+
+**Take Five: Impasse!**\
+`1/WALL STREET WATCHES WASHINGTON`\
+https://nytimes.com/reuters/2020/08/14/business/14reuters-global-markets-themes.html?searchResultPosition=8
+
+**Merkel Demands Release of Detained Demonstrators in Belarus: Spokesman**\
+`German Chancellor Angela Merkel demands the unconditional and immediate release of demonstrators detained in Belarus during nationwide street protests after the contested re-election of President Alexander Lukashenko, her spokesman said on Friday.`\
+https://nytimes.com/reuters/2020/08/14/world/europe/14reuters-belarus-election-germany-merkel.html?searchResultPosition=9
+
 **Protesting Her Own Employer**\
 `How an assistant apparel designer at Adidas came to lead daily protests against her employer’s handling of race.`\
-https://nytimes.com/2020/08/14/podcasts/the-daily/protest-adidas-strike.html?searchResultPosition=1
-
-**Kingston: A City Remade by the Coronavirus**\
-`A writer who moved upstate for a slower lifestyle fears that the latest wave of migrants, fleeing Covid, will bring their worst instincts with them.`\
-https://nytimes.com/2020/08/14/realestate/kingston-coronavirus-new-residents.html?searchResultPosition=2
-
-**Two World Travelers Find Love Close to Home**\
-`The many roads traveled by Shana Caro and Georgina Emerson eventually led to each other, via the dating app Hinge, in February 2018.`\
-https://nytimes.com/2020/08/14/fashion/weddings/two-world-travelers-find-love-close-to-home.html?searchResultPosition=3
-
-**He Jogged Back Into Her Life**\
-`They met after college, but their relationship didn’t develop until years later in Washington, after she saw him jogging by the car she was in.`\
-https://nytimes.com/2020/08/14/fashion/weddings/he-jogged-back-into-her-life.html?searchResultPosition=4
-
-**Those Night-Shift Talks Were Easy as Pie**\
-`A cherry-sorting warehouse in Washington State was where they met, but when they decided to be together, it was outside of the other Washington.`\
-https://nytimes.com/2020/08/14/fashion/weddings/those-night-shift-talks-were-easy-as-pie.html?searchResultPosition=5
-
-**Courting Without Clichés**\
-`Ron Bel Bruno and Edward Goldberg, a 50-something couple, connected quickly after meeting online. “It was instant. It was instant. It was instant.”`\
-https://nytimes.com/2020/08/14/fashion/weddings/courting-without-cliches.html?searchResultPosition=6
-
-**Three Months Later, She Replied**\
-`Rabbi Jennifer Gubitz got Matan BenYishay’s three-month-old message on the dating app JDate after renewing her lapsed membership.`\
-https://nytimes.com/2020/08/14/fashion/weddings/three-months-later-she-replied.html?searchResultPosition=7
-
-**New Role for a Soap Opera Writer: Husband**\
-`Ron Carlivati, the head writer for a daytime drama, says David Rogal, who he met at a movie theater, prevents his life from becoming a soap opera.`\
-https://nytimes.com/2020/08/14/fashion/weddings/new-role-for-a-soap-opera-writer-husband.html?searchResultPosition=8
-
-**It Might Have Been Called a Carat Cake**\
-`As Kara Maser began slicing a birthday cake her sister made novelty diamond rings tumbled out, and Barry Funt got down on one knee with the real one.`\
-https://nytimes.com/2020/08/14/fashion/weddings/it-might-have-been-called-a-carat-cake.html?searchResultPosition=9
-
-**Perfectly in Sync During a 35-State Road Trip and a 1,200-Mile Hike**\
-`The couple met at Yale, in an unconventional marching band, and by the time they got to Kansas, years later, they knew they belonged together.`\
-https://nytimes.com/2020/08/14/fashion/weddings/perfectly-in-sync-during-a-35-state-road-trip-and-a-1200-mile-hike.html?searchResultPosition=10
+https://nytimes.com/2020/08/14/podcasts/the-daily/protest-adidas-strike.html?searchResultPosition=10
 
