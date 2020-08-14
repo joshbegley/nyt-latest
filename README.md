@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/08/14/world/middleeast/14reuters-usa-iran-un-vo
 https://nytimes.com/2020/08/14/us/politics/coronavirus-database.html?searchResultPosition=6
 
 **Pinterest Employees Demand Gender and Race Equality**\
-`Dozens said they stood in solidarity with three former co-workers who have accused the company of discrimination.`\
+`More than 200 said they stood in solidarity with three former co-workers who have accused the company of discrimination.`\
 https://nytimes.com/2020/08/14/technology/pinterest-walkout-equality.html?searchResultPosition=7
 
 **Trump, France's Macron Voice Concern About Greece-Turkey Tensions: White House**\
