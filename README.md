@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/08/14/health/ap-us-med-virus-outbreak-blood-of
 `Harvey Weinstein's lawyers and Los Angeles prosecutors have agreed to postpone extradition proceedings that would send the imprisoned former film producer from New York to California to face sexual assault charges, citing the coronavirus pandemic.`\
 https://nytimes.com/aponline/2020/08/14/us/ap-us-sexual-misconduct-weinstein.html?searchResultPosition=2
 
-**Florida Principal Who Wouldn’t Call Holocaust ‘Factual’ Should Not Have Been Fired, Judge Rules**\
-`The Palm Beach County school board fired the principal, William Latson, after an email exchange with a parent about Holocaust education came to light.`\
+**Principal in Holocaust Dispute Shouldn’t Have Been Fired, Judge Rules**\
+`The Palm Beach County, Florida, school board fired the principal, William Latson, after an email exchange with a parent about Holocaust education came to light.`\
 https://nytimes.com/2020/08/14/us/florida-principal-holocaust.html?searchResultPosition=3
 
 **Facebook Critiques Apple on Its Commission System**\
