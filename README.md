@@ -1,40 +1,40 @@
+**A Summer Lunch That Feels Like a Splurge**\
+`A lobster salad doesn’t have to be relegated to special occasions, David Tanis argues.`\
+https://nytimes.com/2020/08/14/dining/lobster-salad-recipe.html?searchResultPosition=1
+
+**New Border Wall Near Unique Wetlands Endangered Water Supply**\
+`The agency in charge of building the border wall received repeated warnings: tap water from nearby wells, and the unique wetlands of southeastern Arizona — yes, Arizona — home to a variety of wildlife and endangered fish will go dry. `\
+https://nytimes.com/aponline/2020/08/14/us/ap-us-border-wall-refuge-water-.html?searchResultPosition=2
+
+**Top Two Democrats in Congress Call on U.S. Postmaster General to Reverse Operational Changes: Statement**\
+`The top two Democrats in Congress called on the Postmaster General Louis DeJoy on Friday to quickly reverse operational changes they say have led to mail delays.`\
+https://nytimes.com/reuters/2020/08/14/us/politics/14reuters-usa-election-postal.html?searchResultPosition=3
+
+**Man, 30, Becomes 3rd Revel Scooter Fatality in New York City**\
+`A 30-year-old man injured in a Revel scooter accident three days  before the company suspended its New York City operations last month has died of his injuries, police said Friday. `\
+https://nytimes.com/aponline/2020/08/14/business/ap-us-scooter-shutdown-death-1st-ld-writethru.html?searchResultPosition=4
+
+**Trump’s Campaign (Against the Post Office)**\
+`Readers discuss President Trump’s claims that voting by mail leads to fraud and suggest ways to ensure that all votes get counted.`\
+https://nytimes.com/2020/08/14/opinion/letters/trump-post-office-mail-voting.html?searchResultPosition=5
+
+**Plane Crashes in Congo's South Kivu Province, Killing 5**\
+`A plane crashed in Congo’s South Kivu province Thursday, killing all five people aboard, the provincial minister of transport and communications said Friday. `\
+https://nytimes.com/aponline/2020/08/14/world/africa/ap-af-congo-plane-crash.html?searchResultPosition=6
+
+**AP Exclusive: 1,800-Case Internal Affairs Lag in Phoenix**\
+`The sheriff's department in metro Phoenix, which for years has been the target of criticism, is again under fire after a review found a backlog of 1,800 internal affairs cases taking an average of over 400 days to complete, according to a letter obtained by The Associated Press. `\
+https://nytimes.com/aponline/2020/08/14/us/ap-us-arizona-sheriff-internal-affairs.html?searchResultPosition=7
+
+**Iowa Governor Defends Response to Devastating Wind Storm**\
+`Iowa Gov. Kim Reynolds pushed back Friday against criticism that she has been slow to respond to a wind storm that devastated the state and promised more help soon for tens of thousands of residents entering their fifth day without electricity.`\
+https://nytimes.com/aponline/2020/08/14/us/ap-us-severe-weather-midwest.html?searchResultPosition=8
+
 **Love Letter: A Prescription for Despair**\
 `Plus: Mending a deflated marriage.`\
-https://nytimes.com/2020/08/14/fashion/weddings/love-letter-newsletter-a-prescription-for-despair.html?searchResultPosition=1
+https://nytimes.com/2020/08/14/fashion/weddings/love-letter-newsletter-a-prescription-for-despair.html?searchResultPosition=9
 
 **Hispanics, African Americans Hit Hard in U.S. COVID-19 Hotspot Counties, Says CDC**\
 `U.S. coronavirus hotspots had disproportionately high numbers of cases among communities of color, according to an analysis on Friday by the Centers for Disease Control and Prevention (CDC).`\
-https://nytimes.com/reuters/2020/08/14/us/14reuters-health-coronavirus-race.html?searchResultPosition=2
-
-**Eusebio Leal Spengler, Who Restored Old Havana, Dies at 77**\
-`His decades-long effort to preserve a capital’s colonial buildings turned a former slum into a tourist destination and capitalist success story.`\
-https://nytimes.com/2020/08/14/world/americas/eusebio-leal-spengler-who-restored-old-havana-dies-at-77.html?searchResultPosition=3
-
-**Outdoor Medicine for the Play-Starved Soul**\
-`Pairing Molière and Millay for a socially distanced audience, Shakespeare Theater of New Jersey offers light entertainment just when we need it.`\
-https://nytimes.com/2020/08/14/theater/crazy-love-shakespeare-theater-of-new-jersey.html?searchResultPosition=4
-
-**The Israel-U.A.E. Accord: Progress or Politics?**\
-`Readers react with praise and skepticism to the announcement of new ties between Israel and the U.A.E.`\
-https://nytimes.com/2020/08/14/opinion/letters/israel-united-arab-emirates.html?searchResultPosition=5
-
-**Cleric Extradited From Jamaica to NYC on Terrorism Charges**\
-`A radical Islamic cleric already behind bars in Jamaica has been brought to New York City to face allegations he plotted to recruit followers and fighters for the Islamic State group, prosecutors said Friday.`\
-https://nytimes.com/aponline/2020/08/14/nyregion/ap-us-cleric-nyc-probe.html?searchResultPosition=6
-
-**U.S. CDC Reports 5,228,817 Coronavirus Cases**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Friday reported 5,228,817 cases of the new coronavirus, an increase of 52,799 cases from its previous count, and said that the number of deaths had risen by 1,169 to 166,317.`\
-https://nytimes.com/reuters/2020/08/14/us/14reuters-health-coronavirus-usa-cdc.html?searchResultPosition=7
-
-**Satellite TV Back for Venezuelans Left in Dark by Sanctions**\
-`An investment firm announced Friday it’s resuming satellite TV transmissions for Venezuelans whose service was cut abruptly due to U.S. sanctions aimed at driving President Nicolás Maduro from power.`\
-https://nytimes.com/aponline/2020/08/14/world/americas/ap-lt-venezuela.html?searchResultPosition=8
-
-**The Nets Are Playing Hard. But Can They Dethrone the Raptors?**\
-`The Nets have been one of the most impressive teams inside the bubble, but a first-round playoff matchup with the defending champion Toronto Raptors is a next-level challenge.`\
-https://nytimes.com/2020/08/14/sports/basketball/nba-nets-raptors.html?searchResultPosition=9
-
-**Trump Administration Picks McKesson for Coronavirus Vaccine Distribution**\
-`The U.S. Department of Health and Human Services (HHS) said on Friday that McKesson Corp would be the central distributor for future coronavirus vaccines, sending the U.S. drug distributor's shares up more than 3%.`\
-https://nytimes.com/reuters/2020/08/14/us/14reuters-health-coronavirus-mckesson.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/14/us/14reuters-health-coronavirus-race.html?searchResultPosition=10
 
