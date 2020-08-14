@@ -1,40 +1,40 @@
+**Scotland: Investigators Confirm Derailed Train Hit Landslide**\
+`A passenger train hit a landslide before derailing in Scotland earlier this week, killing three people, U.K. rail investigators confirmed Friday.`\
+https://nytimes.com/aponline/2020/08/14/world/europe/ap-eu-britain-train-derailment.html?searchResultPosition=1
+
+**U.S. Judge Rejects GM Bid to Reopen Racketeering Case Against Fiat Chrysler**\
+`A federal judge in Detroit on Friday rejected a bid by General Motors Co to reinstate a racketeering lawsuit against its smaller rival Fiat Chrysler Automobiles NV (FCA).`\
+https://nytimes.com/reuters/2020/08/14/business/14reuters-gm-fiat-chrysler-lawsuit.html?searchResultPosition=2
+
+**Missing 2-Year-Old Found in Southern Mexico; Returned to Mom**\
+`A 2-year-old boy abducted in June in the southern Mexican state of Chiapas has been found and returned to his mother, officials said Friday.`\
+https://nytimes.com/aponline/2020/08/14/world/americas/ap-lt-mexico-missing-boy.html?searchResultPosition=3
+
+**‘We’ve Already Survived an Apocalypse’: Indigenous Writers Are Changing Sci-Fi**\
+`Long underrepresented in genre fiction, Native American and First Nations authors are reshaping its otherworldly (but still often Eurocentric) worlds.`\
+https://nytimes.com/2020/08/14/books/indigenous-native-american-sci-fi-horror.html?searchResultPosition=4
+
+**New Jersey Will Hold Mail-in Election in November, Over Trump’s Objections**\
+`Gov. Philip D. Murphy said all 6.3 million voters in the state would be sent ballots to return either by mail or deposit in secure drop boxes.`\
+https://nytimes.com/2020/08/14/nyregion/nj-vote-by-mail-election.html?searchResultPosition=5
+
 **Lawmakers: Postal Changes Delay Mail-Order Medicine for Vets**\
 `Policy changes to slow delivery at the U.S. Postal Service are taking a toll on military veterans, who are reporting much longer wait times to receive mail-order prescription drugs, according to Democratic senators.`\
-https://nytimes.com/aponline/2020/08/14/us/politics/ap-us-postal-service-veterans.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/14/us/politics/ap-us-postal-service-veterans.html?searchResultPosition=6
 
 **How Jamie Foxx Fights a Man on Fire in ‘Project Power’**\
 `The directors Henry Joost and Ariel Schulman narrate a sequence from their Netflix action film.`\
-https://nytimes.com/2020/08/14/movies/project-power-clip.html?searchResultPosition=2
+https://nytimes.com/2020/08/14/movies/project-power-clip.html?searchResultPosition=7
 
 **‘Project Power’ | Anatomy of a Scene**\
 `The directors Henry Joost and Ariel Schulman narrate a scene from their film featuring Jamie Foxx and Colson Baker.`\
-https://nytimes.com/video/movies/100000007287612/project-power-scene.html?searchResultPosition=3
+https://nytimes.com/video/movies/100000007287612/project-power-scene.html?searchResultPosition=8
 
 **Exclusive: ByteDance Censored Anti-China Content in Indonesia Until Mid-2020, Sources Say**\
 `Chinese tech giant ByteDance censored content it perceived as critical of the Chinese government on its news aggregator app in Indonesia from 2018 to mid-2020, six people with direct knowledge of the matter told Reuters.`\
-https://nytimes.com/reuters/2020/08/14/business/14reuters-usa-tiktok-indonesia-exclusive.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/14/business/14reuters-usa-tiktok-indonesia-exclusive.html?searchResultPosition=9
 
 **Hopes for Fresh Round of U.S. Coronavirus Relief Fade as Congress Goes Home**\
 `The prospects for a deal in the U.S. Congress to help Americans suffering due to the coronavirus pandemic dimmed on Friday, with the Senate and House of Representatives in recess and no fresh talks scheduled with President Donald Trump's negotiators.`\
-https://nytimes.com/reuters/2020/08/14/us/politics/14reuters-health-coronavirus-usa-congress.html?searchResultPosition=5
-
-**Filing: Kansas Prof's Prosecution Criminalizes Job Disputes**\
-`The prosecution of a Kansas researcher ensnared in a U.S. government crackdown on Chinese economic espionage and trade secret theft opens the door to criminalizing workplace disagreements, his attorneys argued Friday in a motion asking a court to throw out the charges.`\
-https://nytimes.com/aponline/2020/08/14/us/ap-us-kansas-researcher-indictment-.html?searchResultPosition=6
-
-**Cracking Codes With Sanford Biggers**\
-`“You don’t have to follow the norms,” says this artist who makes wrenching sculptures transformed by gunfire and radically altered heirloom quilts. A studio visit sheds light on his personal journey.`\
-https://nytimes.com/2020/08/14/arts/design/sanford-biggers-quilt-bronx-museum.html?searchResultPosition=7
-
-**Bulls Fire Coach Jim Boylen After Missing Playoffs Again**\
-`The Chicago Bulls fired coach Jim Boylen on Friday, the new front office beginning its remake of a team that missed the playoffs again. `\
-https://nytimes.com/aponline/2020/08/14/sports/basketball/ap-bkn-bulls-boylen-fired.html?searchResultPosition=8
-
-**Taking Hard Line, Greece Turns Back Migrants by Abandoning Them at Sea**\
-`Many Greeks have grown frustrated as tens of thousands of asylum seekers languished on Greek islands. Now, evidence shows, a new conservative government has a new method of keeping them out.`\
-https://nytimes.com/2020/08/14/world/europe/greece-migrants-abandoning-sea.html?searchResultPosition=9
-
-**Taking the Edinburgh Fringe’s Madcap Energy Online**\
-`For the first time in its 73-year history, the hugely influential festival is canceled. Devoted fans and theater makers are finding ways to keep the spirit alive.`\
-https://nytimes.com/2020/08/14/theater/edinburgh-fringe-festival-online.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/14/us/politics/14reuters-health-coronavirus-usa-congress.html?searchResultPosition=10
 
