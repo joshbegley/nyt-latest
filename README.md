@@ -1,40 +1,40 @@
+**A Space for Black Dance Artists to Create in the Hudson Valley**\
+`New Dance Alliance announces a residency program and its first three recipients: Angie Pittman, Johnnie Cruise Mercer and Leslie Cuyjet.`\
+https://nytimes.com/2020/08/14/arts/dance/New-Dance-Alliance-Black-Artists-Space-to-Create-Residency.html?searchResultPosition=1
+
+**New York State Releases Proposed Regulations to Battle Climate Change**\
+`New York State Department of Environmental Conservation on Friday released proposed regulations to reduce greenhouse gas emission and to implement the Climate Leadership and Community Protection Act.`\
+https://nytimes.com/reuters/2020/08/14/us/14reuters-new-york-climatechange.html?searchResultPosition=2
+
+**U.N. Says Mali Army Chief Left Village Unprotected Before Massacre**\
+`The former head of Mali's armed forces left the village of Ogossagou unprotected earlier this year despite numerous warnings of an imminent massacre in which 35 people died, according to a United Nations report.`\
+https://nytimes.com/reuters/2020/08/14/world/africa/14reuters-mali-violence-un.html?searchResultPosition=3
+
+**Remembering Poland’s Doomed Fight Against the Nazis**\
+`Roger Moorhouse’s “Poland 1939” looks back at the very beginning of World War II to understand what happened and what might have happened.`\
+https://nytimes.com/2020/08/14/books/review/poland-1939-roger-moorhouse.html?searchResultPosition=4
+
+**A Steal Might Actually Be a Raw Deal**\
+`Netflix, Apple and the rest must figure out what bundles we love, and which we’ll grow to hate.`\
+https://nytimes.com/2020/08/14/technology/apple-netflix-bundles.html?searchResultPosition=5
+
+**Israel, U.S. Near Deal to Exclude China From Israeli 5G Networks: U.S. Official**\
+`Israel and the United States are nearing a deal whereby Israel would commit not to use Chinese technology for its next generation 5G mobile telecoms networks, a U.S. official said.`\
+https://nytimes.com/reuters/2020/08/14/technology/14reuters-israel-usa-5g-china.html?searchResultPosition=6
+
+**France Reports Yet Another New Post-Lockdown Peak in Daily COVID-19 Cases**\
+`The French health ministry reported 2,846 new coronavirus infections over the past 24 hours on Friday, setting a new post-lockdown daily high for the third day in a row and taking the country's cumulative total of cases to 212,211. `\
+https://nytimes.com/reuters/2020/08/14/world/europe/14reuters-health-coronavirus-france-casualties.html?searchResultPosition=7
+
+**Wayfair Pulls Towel Depicting Deity After Hindus Object**\
+`Online home goods retailer Wayfair has pulled a beach towel depicting the Hindu deity Lord Ganesha, according to a Hindu organization that raised objections. `\
+https://nytimes.com/aponline/2020/08/14/business/ap-us-wayfair-towel-hindu-protest-1st-ld-writethru.html?searchResultPosition=8
+
 **Trump Says Ready to Send Out Coronavirus Aid, but Democrats Holding It Up**\
 `President Donald Trump in a series of Friday tweets announced the White House is preparing to provide relief for the economic pain of the coronavirus as legislation stalls in Congress, saying his administration is ramping up to send money to families, state and local governments, and businesses.`\
-https://nytimes.com/reuters/2020/08/14/us/politics/14reuters-health-coronavirus-usa-trump.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/14/us/politics/14reuters-health-coronavirus-usa-trump.html?searchResultPosition=9
 
 **The Latest: ASUN Conference Postponing All Fall Sports**\
 `The Latest on the effects of the coronavirus outbreak on sports around the world:`\
-https://nytimes.com/aponline/2020/08/14/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=2
-
-**Greek Foreign Minister Hopes to Avoid Conflict in Eastern Mediterranean**\
-`Greek Foreign Minister Nikos Dendias said on Friday he hoped that all parties involved in a dispute in the eastern Mediterranean Sea will act according to international law and that there will be no conflict.`\
-https://nytimes.com/reuters/2020/08/14/world/europe/14reuters-greece-turkey-dendias.html?searchResultPosition=3
-
-**CureVac in Talks With Pharma Companies About Partnership: Sueddeutsche**\
-`German biotechnology firm CureVac is in talks with large drugmakers about a partnership to help market and distribute its prospective vaccine against the COVID-19 virus, its chief executive told Sueddeutsche Zeitung.`\
-https://nytimes.com/reuters/2020/08/14/business/14reuters-curevac-ipo-partners.html?searchResultPosition=4
-
-**U.S. Says It Seized Four Iranian Fuel Shipments en Route to Venezuela**\
-`The United States on Friday said it has seized four Iranian fuel shipments en route to Venezuela and confiscated the cargoes, disrupting a key supply line for both Tehran and Caracas as they defied U.S. sanctions.`\
-https://nytimes.com/reuters/2020/08/14/world/middleeast/14reuters-usa-iran-cargo.html?searchResultPosition=5
-
-**11 of Our Best Weekend Reads**\
-`Black activists in Chicago. Retail in Manhattan. An elephant’s pandemic journey. Bike shorts. And more.`\
-https://nytimes.com/2020/08/14/briefing/11-of-our-best-weekend-reads.html?searchResultPosition=6
-
-**Argentina Might Delay Formal Bond Revamp Offer Until Next Week: Source**\
-`Argentina might extend the deadline for its proposed bond  restructuring beyond Aug. 24 and submit its amended offer to the U.S. securities regulator next week, a source with direct knowledge of the situation told Reuters.`\
-https://nytimes.com/reuters/2020/08/14/world/americas/14reuters-argentina-debt-proposal.html?searchResultPosition=7
-
-**Businessman Accused of Malta Journalist’s Murder on Hunger Strike**\
-`A businessman suspected of masterminding the murder of Maltese anti-corruption journalist Daphne Caruana Galizia has gone on hunger strike, complaining about overcrowding in the prison where he is being held, his family said on Friday.`\
-https://nytimes.com/reuters/2020/08/14/world/14reuters-malta-daphne.html?searchResultPosition=8
-
-**Porsche Plans New Plant for Car Bodies in Slovakia With Up to 1,200 Jobs: Paper**\
-`Volkswagen's Porsche plans building a new plant to make car bodies in Slovakia, where it may create up to 1,200 jobs, Slovak newspaper Dennik N reported on Friday.`\
-https://nytimes.com/reuters/2020/08/14/business/14reuters-porsche-hldg-slovakia.html?searchResultPosition=9
-
-**Raptors' Kyle Lowry Got His Title, Now Set to Chase Another**\
-`Kyle Lowry spent 13 years chasing an NBA championship before finally getting the ring. His career is closer to the end than the beginning. He’s made his money. His jersey will sway from rafters in Toronto one day. He’ll be a candidate for the Basketball Hall of Fame a few years after retiring.`\
-https://nytimes.com/aponline/2020/08/14/sports/basketball/ap-bkn-raptors-defending-the-crown.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/14/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=10
 
