@@ -1,40 +1,40 @@
+**Hamilton Helps Carolina Beat Boston 3-2, Tie Series 1-1**\
+`Dougie Hamilton slapped in the go-ahead goal with 11:30 left in the third period and No. 2 goalie James Reimer stopped 33 shots to lead the Carolina Hurricanes to a 3-2 victory over the Boston Bruins on Thursday and tie their playoff series at one game apiece. `\
+https://nytimes.com/aponline/2020/08/13/sports/hockey/bc-hkn-hurricanes-bruins.html?searchResultPosition=1
+
 **Darvish Takes No-Hitter Into 7th, Cubs Beat Brewers 4-2**\
 `Yu Darvish took a no-hitter into the seventh inning in his third straight dominant start, and the major league-leading Chicago Cubs defeated the Milwaukee Brewers 4-2 on Thursday night.`\
-https://nytimes.com/aponline/2020/08/13/sports/baseball/ap-bbn-brewers-cubs.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/13/sports/baseball/ap-bbn-brewers-cubs.html?searchResultPosition=2
 
 **Melting 'Frozen Memories,' AI Helps Japanese Recall War Days**\
 `When Tokuso Hamai saw the colorized version of an old black-and-white photo of a picnic held under cherry tree blossoms sometime before World War II, forgotten memories of family members, most of whom died in the atomic bombing of Hiroshima in 1945, came pouring out. `\
-https://nytimes.com/aponline/2020/08/13/business/ap-as-pacific-war-75-japan-ai-photographs.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/13/business/ap-as-pacific-war-75-japan-ai-photographs.html?searchResultPosition=3
 
 **Germany's Confirmed Coronavirus Cases Rise by 1,449 to 221,413: RKI**\
 `The number of confirmed coronavirus cases in Germany increased by 1,449 to 221,413, data from the Robert Koch Institute (RKI) for infectious diseases showed on Friday.`\
-https://nytimes.com/reuters/2020/08/13/world/europe/13reuters-health-coronavirus-germany-cases.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/13/world/europe/13reuters-health-coronavirus-germany-cases.html?searchResultPosition=4
 
 **WTA Roundup: Serena Rallies Past Venus in Lexington**\
 `Serena Williams overcame a shaky opening set on Thursday to rally past her sister, Venus Williams, 3-6, 6-3, 6-4 and reach the quarterfinals at The Top Seed Open in Lexington, Ky.`\
-https://nytimes.com/reuters/2020/08/13/sports/tennis/13reuters-tennis-tennis-roundup.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/13/sports/tennis/13reuters-tennis-tennis-roundup.html?searchResultPosition=5
 
 **China Launches Anti-Subsidy Probe on Polyphenylene Ether Imports From U.S.**\
 `China's commerce ministry said on Friday it has started an anti-subsidy probe into imports from the United States of polyphenylene ether, a polymer prized for its heat resistance and used in the automotive and electronics industries. `\
-https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-usa-trade-china-ppe.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-usa-trade-china-ppe.html?searchResultPosition=6
 
 **China's Property Investment in July Quickens to Over One-Year High**\
 `China's July property investment grew at the quickest clip since April last year, underpinned by solid construction activity and easier lending as the economy gradually recovers from the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-china-economy-property.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-china-economy-property.html?searchResultPosition=7
 
 **Florida Sheriff Arrested Following Sex Scandal Investigation**\
 `A Florida sheriff facing a primary contest within days was arrested Thursday following a sex scandal investigation at his previous job, authorities said.`\
-https://nytimes.com/aponline/2020/08/13/us/ap-us-sheriff-arrest-florida.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/08/13/us/ap-us-sheriff-arrest-florida.html?searchResultPosition=8
 
 **Prison Inmate Hanged Himself With Coronavirus Mask, Officials Say**\
 `Daniel Ocasio was found inside his cell at the Corrigan-Radgowski Correctional Center in Uncasville, Conn., prison officials said.`\
-https://nytimes.com/2020/08/13/nyregion/connecticut-prison-mask-suicide.html?searchResultPosition=8
+https://nytimes.com/2020/08/13/nyregion/connecticut-prison-mask-suicide.html?searchResultPosition=9
 
 **China's July Retail Sales Unexpectedly Slip, Factory Output Growth Steady**\
 `China's retail sales unexpectedly fell in July from a year ago while the comeback in factory output was slower than forecast amid signs the recovery in the world's second-largest economy remains fragile.`\
-https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-china-economy-activity.html?searchResultPosition=9
-
-**Cook County Prosecutors Announce Charges in Week's Looting**\
-`Cook County's state’s attorney’s office on Thursday announced 42 people have been charged with felonies in connection with the looting of stores along the city’s premier retail street that occurred earlier this week.`\
-https://nytimes.com/aponline/2020/08/13/us/ap-us-chicago-violence-charges.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-china-economy-activity.html?searchResultPosition=10
 
