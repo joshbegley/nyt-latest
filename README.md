@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/08/14/sports/baseball/ap-bbn-dodgers-betts-thr
 `A Southern California woman has pleaded not guilty to smothering her infant daughter in March and causing the death of her other baby girl three years ago.`\
 https://nytimes.com/aponline/2020/08/14/us/ap-us-mother-charged-baby-deaths.html?searchResultPosition=9
 
-**Asia Today: S. Korea Sees Virus Jump, Urges More Vigilance**\
-`South Korea reported 103 new virus cases Friday, one of its biggest daily jumps in months, as officials express concerned that infections are getting out of control in cities as people increasingly venture out in public.`\
+**Asia Today: India's Virus Death Toll Rises, Seoul Cases Jump**\
+`India’s coronavirus death toll overtook Britain to become the fourth-highest in the world with another single-day record increase in cases Friday.`\
 https://nytimes.com/aponline/2020/08/14/business/ap-as-virus-outbreak-asia-1st-ld-writethru.html?searchResultPosition=10
 
