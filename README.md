@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/08/13/sports/tennis/13reuters-tennis-tennis-rou
 `China's commerce ministry said on Friday it has started an anti-subsidy probe into imports from the United States of polyphenylene ether, a polymer prized for its heat resistance and used in the automotive and electronics industries. `\
 https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-usa-trade-china-ppe.html?searchResultPosition=3
 
-**China Jan-July Property Investment Rises 3.4% Year-On-Year, Picks Up Speed From First-Half**\
-`China's real estate investment rose 3.4% in January-July from a year earlier, official data showed on Friday, quickening from a 1.9% uptick in the first six months.        `\
+**China's Property Investment in July Quickens to Over One-Year High**\
+`China's July property investment grew at the quickest clip since April last year, underpinned by solid construction activity and easier lending as the economy gradually recovers from the coronavirus crisis.`\
 https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-china-economy-property.html?searchResultPosition=4
 
 **Florida Sheriff Arrested Following Sex Scandal Investigation**\
