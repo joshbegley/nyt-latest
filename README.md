@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-health-coronavirus-s
 https://nytimes.com/reuters/2020/08/13/world/asia/13reuters-australia-economy-rba.html?searchResultPosition=9
 
 **Man Charged With Murdering 4-Year-Old Whose Killing Prompted U.S. Anti-Crime Operation**\
-`The Justice Department last month named an operation to combat violent crime in cities after LeGend Taliferro, who was shot and killed while he slept in his family’s apartment in Kansas City, Mo.`\
+`The Justice Department last month named an operation to combat violent crime in cities after LeGend Taliferro, who was shot and killed while he slept in an apartment in Kansas City, Mo.`\
 https://nytimes.com/2020/08/13/us/legend-taliferrro-arrest.html?searchResultPosition=10
 
