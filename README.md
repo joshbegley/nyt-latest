@@ -31,7 +31,7 @@ https://nytimes.com/aponline/2020/08/14/us/ap-us-sheriff-arrested-florida.html?s
 https://nytimes.com/2020/08/14/us/yale-asian-american-discrimination.html?searchResultPosition=8
 
 **Ponzi King Madoff's Brother Released From Home Confinement**\
-`The younger brother of Ponzi king Bernard Madoff has been released from home confinement and has been released from federal custody, the Bureau of Prisons said Friday.`\
+`The younger brother of Ponzi king Bernard Madoff has been released from home confinement and from federal custody, the Bureau of Prisons said Friday.`\
 https://nytimes.com/aponline/2020/08/14/us/politics/ap-us-madoff-fraud.html?searchResultPosition=9
 
 **The Unlikely Triumph of Italian Nationhood**\
