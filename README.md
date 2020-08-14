@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/08/14/world/europe/14reuters-health-coronavirus
 https://nytimes.com/2020/08/14/sports/soccer/bayern-barcelona-champions-league.html?searchResultPosition=6
 
 **Iran Says UAE-Israel Deal a 'Stab in the Back' to Muslims**\
-`Iran’s Foreign Ministry strongly condemned an historic deal establishing full diplomatic relations between the United Arab Emirates and Israel, calling it a stab in the back to all Muslims, state TV reported Friday.`\
+`Iran’s Foreign Ministry strongly condemned a historic deal establishing full diplomatic relations between the United Arab Emirates and Israel, calling it a stab in the back to all Muslims, state TV reported Friday.`\
 https://nytimes.com/aponline/2020/08/14/world/middleeast/ap-ml-emirates-israel.html?searchResultPosition=7
 
 **Fear and Empathy at LA Funeral Home Serving Black Families**\
