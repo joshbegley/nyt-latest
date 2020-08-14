@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/08/14/us/politics/ap-us-homeland-security-lead
 `A former FBI lawyer will plead guilty to making a false statement in the first criminal case arising from U.S. Attorney John Durham's investigation into the probe of ties between Russia and the 2016 Trump campaign.`\
 https://nytimes.com/aponline/2020/08/14/us/politics/ap-us-trump-russia-probe.html?searchResultPosition=9
 
-**Philadelphia Won't Kids to Nonprofit After Assault Report**\
+**Philadelphia Won't Send Kids to Nonprofit After Report**\
 `Philadelphia has stopped sending local children to facilities operated by a nonprofit health organization where at least 41 intellectually disabled children have reported sexual assaults over the past quarter-century.`\
 https://nytimes.com/aponline/2020/08/14/us/ap-us-behavioral-health-nonprofit-abuse.html?searchResultPosition=10
 
