@@ -35,6 +35,6 @@ https://nytimes.com/2020/08/13/movies/project-power-review.html?searchResultPosi
 https://nytimes.com/aponline/2020/08/13/world/americas/ap-lt-virus-outbreak-mexico-theaters.html?searchResultPosition=9
 
 **Smith Scores in OT, Vegas Takes 2-0 Series Lead on Chicago**\
-`Reilly Smith scored in overtime, Robin Lehner made 22 saves and the Vegas Golden Knights beat the Chicago Blackhawks 4-3 on Thursday to take a 2-0 lead in the first-round series.`\
+`Even though Reilly Smith called it a lucky bounce, a whole lot more than luck is working right now for the Vegas Golden Knights.`\
 https://nytimes.com/aponline/2020/08/13/sports/hockey/ap-hkn-blackhawks-golden-knights.html?searchResultPosition=10
 
