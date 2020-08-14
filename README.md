@@ -26,8 +26,8 @@ https://nytimes.com/2020/08/14/opinion/kamala-harris-biden-2020.html?searchResul
 `Metropolitan Pavel, the head of the Belarusian Orthodox Church, on Friday called on President Alexander Lukashenko to bring an end to violence on the streets following contested presidential elections last week, the TASS news agency reported. `\
 https://nytimes.com/reuters/2020/08/14/world/europe/14reuters-belarus-election-church.html?searchResultPosition=7
 
-**EU Chief Executive Calls for Sanctions on Belarus**\
-`The head of the European Union's executive arm on Friday joined a growing chorus calling for sanctions on Belarus where security forces cracked down on protests against strongman Alexander Lukashenko claiming victory in a disputed election.`\
+**At Least Nine EU States Back Sanctions Against Belarus**\
+`At least nine European Union countries and the bloc's executive arm have called for new sanctions on Belarus over a disputed election and a crackdown on protesters there, ahead of emergency talks among member states on Friday. `\
 https://nytimes.com/reuters/2020/08/14/world/europe/14reuters-belarus-election-eu-sanctions.html?searchResultPosition=8
 
 **Somalia’s Army Told Her to Sew a Skirt. Now She’s One of Its Top Officers.**\
