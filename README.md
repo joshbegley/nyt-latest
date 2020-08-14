@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/08/14/business/ap-us-wayfair-towel-hindu-prote
 `President Donald Trump in a series of Friday tweets announced the White House is preparing to provide relief for the economic pain of the coronavirus as legislation stalls in Congress, saying his administration is ramping up to send money to families, state and local governments, and businesses.`\
 https://nytimes.com/reuters/2020/08/14/us/politics/14reuters-health-coronavirus-usa-trump.html?searchResultPosition=9
 
-**The Latest: ASUN Conference Postponing All Fall Sports**\
+**The Latest: Raiders' Maxx Crosby Off reserve/COVID-19 List**\
 `The Latest on the effects of the coronavirus outbreak on sports around the world:`\
 https://nytimes.com/aponline/2020/08/14/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=10
 
