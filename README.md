@@ -1,40 +1,40 @@
+**UK COVID-19 'R' Number Unchanged at 0.8-1.0, Growth Rate - 1% to - 4%**\
+`The COVID-19 reproduction number for Britain as a whole remained at 0.8-1.0 and the rate of growth was also broadly unchanged at -1% to -4%, the government said on Friday, although it added there were early signs that the values were increasing.`\
+https://nytimes.com/reuters/2020/08/14/world/europe/14reuters-health-coronavirus-britain-r.html?searchResultPosition=1
+
+**Russia, Turkey Halt Patrols in Syria's Idlib Over Militant Attacks**\
+`Russia and Turkey have suspended joint military patrols carried out along the M4 highway in Syria's northwestern region of Idlib over increasing militant attacks in the area, the Russian foreign ministry said. `\
+https://nytimes.com/reuters/2020/08/14/world/europe/14reuters-syria-security-russia-turkey.html?searchResultPosition=2
+
+**Son of Angola Ex-Leader Sentenced to Five Years Jail in $500 Million Graft Case: Report**\
+`An Angolan court sentenced the son of former Angola president Edouardo Dos Santos to five years jail over a $500 million corruption case, the Portuguese news agency Lusa reported on Friday.`\
+https://nytimes.com/reuters/2020/08/14/world/africa/14reuters-angola-dossantos.html?searchResultPosition=3
+
 **Retailers Launch Coalition to Fight Counterfeits on Amazon**\
 `The Retail Industry Leaders Association (RILA), whose members include companies such as Walmart Inc and Target Corp, said on Friday it has joined over a dozen trade groups to form a coalition to fight counterfeit goods on online platforms such as Amazon.com Inc. `\
-https://nytimes.com/reuters/2020/08/14/us/14reuters-usa-retail-lobbying.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/14/us/14reuters-usa-retail-lobbying.html?searchResultPosition=4
 
 **US Industrial Production Up 3%; Factory Output Up 3.4%**\
 `American industry continued to regain ground lost in the coronavirus recession last month but production remains well below where it was before the pandemic struck.`\
-https://nytimes.com/aponline/2020/08/14/business/bc-us-industrial-production.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/14/business/bc-us-industrial-production.html?searchResultPosition=5
 
 **U.S. Manufacturing Production Rises More Than Expected in July**\
 `U.S. factory output increased more than expected in July, boosted by a surge in motor vehicle production.`\
-https://nytimes.com/reuters/2020/08/14/business/14reuters-usa-economy-manufacturing.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/14/business/14reuters-usa-economy-manufacturing.html?searchResultPosition=6
 
 **Croatia Pays Price in COVID-19 Cases for Lax Approach to Nightlife**\
 `The number of daily COVID-19 cases peaked in Croatia on Friday as some neighbouring countries tighten measures for travel to Croatia potentially affecting summer tourism which has so far performed better than expected amid the pandemic.`\
-https://nytimes.com/reuters/2020/08/14/world/europe/14reuters-health-coronavirus-croatia.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/14/world/europe/14reuters-health-coronavirus-croatia.html?searchResultPosition=7
 
 **How to Add More Play to Your Grown-Up Life — Even Now**\
 `Play can feel silly, unproductive and time consuming. And that’s precisely the point.`\
-https://nytimes.com/2020/08/14/smarter-living/adults-play-work-life-balance.html?searchResultPosition=5
+https://nytimes.com/2020/08/14/smarter-living/adults-play-work-life-balance.html?searchResultPosition=8
 
 **University Cites Racist Twitter Bio in Firing Police Officer**\
 `A university police officer in Florida whose Twitter bio described herself as a “KKK member” has been fired, officials said.`\
-https://nytimes.com/aponline/2020/08/14/us/ap-us-racial-injustice-officer-fired.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/08/14/us/ap-us-racial-injustice-officer-fired.html?searchResultPosition=9
 
 **'The Secret' Author Rhonda Byrne Has New Release in November**\
 `The author of the million-selling self-help book “The Secret” is aiming even higher with her next work. `\
-https://nytimes.com/aponline/2020/08/14/us/ap-us-books-the-greatest-secret.html?searchResultPosition=7
-
-**It’s Always the Summer of the Shark**\
-`Even during a pandemic, we cannot get the white shark out of our minds. Despite the rare attack, experts say humans have little to fear.`\
-https://nytimes.com/2020/08/14/science/great-white-shark.html?searchResultPosition=8
-
-**Factbox: AstraZeneca's Potential Coronavirus Vaccine**\
-`The European Union has agreed to buy at least 300 million doses of AstraZeneca's potential COVID-19 vaccine, with an option to buy another 100 million.`\
-https://nytimes.com/reuters/2020/08/14/world/europe/14reuters-health-coronavirus-astrazeneca-factbox.html?searchResultPosition=9
-
-**Civil Rights Activist Ruby Bridges Writes Children's Book**\
-`Civil rights activist Ruby Bridges has written a children's book with a candid telling of the past and positive message for the future, inspired by the Black Lives Matter protests.`\
-https://nytimes.com/aponline/2020/08/14/us/ap-us-books-ruby-bridges.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/14/us/ap-us-books-the-greatest-secret.html?searchResultPosition=10
 
