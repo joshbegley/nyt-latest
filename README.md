@@ -1,5 +1,5 @@
 **Indian, Nepalese Prime Ministers Talk Amid Border Dispute**\
-`The prime ministers of India and Nepal spoke over the phone on Saturday to try to ease bilateral tensions that have existed since a boundary dispute erupted between the two countries in May.`\
+`The prime ministers of India and Nepal spoke over the phone on Saturday to try to ease bilateral tensions that have existed since a border dispute erupted between the two countries in May.`\
 https://nytimes.com/aponline/2020/08/15/world/asia/ap-as-india-nepal.html?searchResultPosition=1
 
 **Nearly Half of Brazilians Say Bolsonaro Not to Blame for Coronavirus Death Toll, Poll Says**\
