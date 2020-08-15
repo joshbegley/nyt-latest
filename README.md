@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/08/14/sports/baseball/ap-bbn-pirates-reds.html
 https://nytimes.com/aponline/2020/08/14/sports/baseball/ap-bba-rays-blue-jays.html?searchResultPosition=7
 
 **Mann Leads Clippers Over Thunder as Stars Rest for Playoffs**\
-`Terance Mann hit a go-ahead 3-pointer with 2:30 left in overtime and had 25 points and 14 rebounds for the Los Angeles Clippers, who beat the Oklahoma City Thunder 107-103 Friday night in a final seeding game for both teams devoid of stars.`\
+`Rookie Terance Mann hit a go-ahead 3-pointer with 2:30 left in overtime and had 25 points, 14 rebounds and nine assists for the Los Angeles Clippers, who beat the Oklahoma City Thunder 107-103 Friday night in a final seeding game for both teams devoid of stars.`\
 https://nytimes.com/aponline/2020/08/14/sports/basketball/bc-bkn-thunder-clippers.html?searchResultPosition=8
 
 **China Mainland Reports 22 New Coronavirus Cases on Aug 14 vs 30 a Day Earlier**\
