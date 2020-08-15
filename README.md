@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/08/15/sports/baseball/ap-bbn-padres-diamondbac
 https://nytimes.com/reuters/2020/08/15/world/asia/15reuters-ww2-anniversary-japan.html?searchResultPosition=6
 
 **Kershaw Dominates, Bellinger 2 HRs, Dodgers Drop Angels 7-4**\
-`Clayton Kershaw allowed one hit over seven brilliant innings, Cody Bellinger hit a pair of two-run homers and the Los Angeles Dodgers opened the Freeway Series with a 7-4 victory over the Los Angeles Angels on Friday night.`\
+`Instead of staying in a nearby hotel, the Los Angeles Dodgers are driving the 32 miles back and forth to Angel Stadium for the Freeway Series this weekend in another concession to the coronavirus-shortened season.`\
 https://nytimes.com/aponline/2020/08/15/sports/baseball/ap-bbo-dodgers-angels.html?searchResultPosition=7
 
 **India to Invest $1.46 Trillion to Lift Virus-Hit Economy**\
