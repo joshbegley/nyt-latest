@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/08/15/world/europe/15reuters-poland-usa-belarus
 https://nytimes.com/reuters/2020/08/15/world/middleeast/15reuters-u-n-iran-embargo-pompeo.html?searchResultPosition=7
 
 **Trump Ads Attack Biden Through Deceptive Editing and Hyperbole**\
-`We reviewed all of the Trump campaign’s television since June. Two-thirds contained clearly misleading claims or videos.`\
+`We reviewed all of the Trump campaign’s television ads since June. Two-thirds contained clearly misleading claims or videos.`\
 https://nytimes.com/2020/08/15/us/politics/trump-campaign-ads-biden.html?searchResultPosition=8
 
 **Former Illinois Gov. James Thompson,' Big Jim,' Dies at 84**\
