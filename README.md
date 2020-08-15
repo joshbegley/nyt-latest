@@ -18,8 +18,8 @@ https://nytimes.com/aponline/2020/08/15/sports/hockey/bc-hkn-stars-flames.html?s
 `Portland police declared an unlawful assembly Friday night and ordered protesters to leave, saying people were throwing things at officers. `\
 https://nytimes.com/aponline/2020/08/15/us/ap-us-portland-protests.html?searchResultPosition=5
 
-**The Latest: India Cases Cross 2.5 Million With Another Jump**\
-`NEW DELHI — India’s confirmed coronavirus cases have crossed 2.5 million with another biggest single-day spike of 65,002 in the past 24 hours. `\
+**The Latest: S. Korea Announces New Measures as Cases Spike**\
+`SEOUL, South Korea -- South Korea on Saturday announced stronger social distancing restrictions for its greater capital area where a surge in COVID-19 cases threatens to erase the hard-won gains against the coronavirus.`\
 https://nytimes.com/aponline/2020/08/15/business/ap-virus-outbreak-the-latest.html?searchResultPosition=6
 
 **Piscotty Slam Ties It in Ninth, A's Beat Giants 8-7 in 10th**\
