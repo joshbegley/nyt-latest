@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/08/15/world/middleeast/15reuters-lebanon-securi
 `The mayor of the second-largest U.S. city has joined a growing clamor among health experts and politicians for a radical shift in the nation's coronavirus testing strategy - from an emphasis on the utmost accuracy to a focus on speed and simplicity.`\
 https://nytimes.com/reuters/2020/08/15/us/15reuters-health-coronavirus-usa-testing.html?searchResultPosition=4
 
-**Pompeo Meets Polish Leaders; Signs Defense Agreement, Discusses Belarus**\
-`U.S. Secretary of State Mike Pompeo met Polish Prime Minister Mateusz Morawiecki in Warsaw on Saturday where they spoke about U.S.-Poland defense ties, including the Enhanced Defense Cooperation Agreement (EDCA), and their support for the people of Belarus.`\
+**Pompeo Meets Polish Leaders, Signs Defense Pact, Discusses Belarus**\
+`U.S. Secretary of State Mike Pompeo met Polish Prime Minister Mateusz Morawiecki in Warsaw on Saturday where the two discussed a new defense agreement and their support for the people of Belarus.`\
 https://nytimes.com/reuters/2020/08/15/world/europe/15reuters-poland-usa.html?searchResultPosition=5
 
 **Denmark to Make Face Masks Compulsory on Public Transport**\
