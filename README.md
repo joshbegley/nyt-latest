@@ -18,8 +18,8 @@ https://nytimes.com/video/us/100000007290881/stone-mountain-protest.html?searchR
 `U.S. President Donald Trump said on Saturday he is considering a pardon for Edward Snowden, the former National Security Agency contractor whose spectacular leaks shook the U.S. intelligence community in 2013.`\
 https://nytimes.com/reuters/2020/08/15/us/politics/15reuters-usa-politics-snowden.html?searchResultPosition=5
 
-**Trump Says Postal Service Chief Wants to 'Make It Great Again'**\
-`U.S. President Donald Trump on Saturday said Postmaster General Louis DeJoy was trying to streamline the U.S. Postal Service and "make it great again."`\
+**Trump Says He Probably Would Not Participate in Putin Iran Summit**\
+`U.S. President Donald Trump on Saturday all but dismissed Russian President Vladimir Putin's call for a summit of world leaders to discuss Iran, saying he probably would not participate.`\
 https://nytimes.com/reuters/2020/08/15/world/middleeast/15reuters-usa-trump-postmaster.html?searchResultPosition=6
 
 **Kuemper Stops 49 Shots in Coyotes' 4-2 Win Over Avalanche**\
