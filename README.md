@@ -19,7 +19,7 @@ https://nytimes.com/aponline/2020/08/15/us/ap-us-portland-protests.html?searchRe
 https://nytimes.com/aponline/2020/08/15/business/ap-virus-outbreak-the-latest.html?searchResultPosition=5
 
 **Piscotty Slam Ties It in Ninth, A's Beat Giants 8-7 in 10th**\
-`Stephen Piscotty hit a tying grand slam in the ninth inning, Mark Canha's sacrifice fly put Oakland on top in the 10th, and the Athletics stunned the San Francisco Giants 8-7 on Friday night in the opener of the Bay Bridge Series.`\
+`Sure, Stephen Piscotty realizes there's a little bit of luck involved when it comes to hitting with the bases loaded and delivering not once but twice already during this coronavirus-shortened season.`\
 https://nytimes.com/aponline/2020/08/15/sports/baseball/ap-bbo-athletics-giants.html?searchResultPosition=6
 
 **What’s on TV Saturday: ‘Boys State’ and ‘Platonic’**\
