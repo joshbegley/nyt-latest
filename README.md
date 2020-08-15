@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/08/15/sports/tennis/15reuters-tennis-wta-roundu
 `Overwhelmed by demand, California’s power grid imposed rotating blackouts, while the coronavirus crisis created a dilemma for those who were unable to stay cool at home.`\
 https://nytimes.com/2020/08/15/us/california-heat-wave-blackout.html?searchResultPosition=2
 
-**Trump Says He's 'Looking Into' Banning China's Alibaba in the U.S.**\
-`U.S. President Donald Trump on Saturday said during a press conference that he was "looking into" whether Chinese technology giant Alibaba should be banned in the United States.`\
+**Trump Says Considering U.S. Ban on Alibaba**\
+`U.S. President Donald Trump said on Saturday during a press conference that he was "looking into" whether Chinese technology giant Alibaba should be banned in the United States.`\
 https://nytimes.com/reuters/2020/08/15/business/15reuters-usa-trump-alibaba.html?searchResultPosition=3
 
 **Rolls-Royce Closing Virginia Jet Parts Plant Where 280 Work**\
