@@ -10,7 +10,7 @@ https://nytimes.com/2020/08/15/at-home/coronavirus-fall-patio-furniture.html?sea
 `The two shootings dominating the Democratic primary for sheriff in Broward County, Florida, couldn't be more different. `\
 https://nytimes.com/aponline/2020/08/15/us/ap-us-school-shooting-florida-sheriff.html?searchResultPosition=3
 
-**Irish Tourism Boss Quits After Holidaying Abroad**\
+**Irish Tourism Boss Quits After Taking a Vacation in Italy**\
 `The chairman of Ireland's tourism authority, former Ryanair Chief Operating Officer Michael Cawley, resigned on Saturday after going on holiday to Italy, contrary to government advice to avoid non-essential travel abroad.`\
 https://nytimes.com/reuters/2020/08/15/world/europe/15reuters-health-coronavirus-ireland.html?searchResultPosition=4
 
