@@ -1,40 +1,40 @@
-**Russian City Holds Sixth Anti-Kremlin Protest Over Detained Governor**\
-`About 2,000 people joined another march in the Russian far eastern city of Khabarovsk on Saturday in protest over President Vladimir Putin's handling of a local political crisis.`\
-https://nytimes.com/reuters/2020/08/15/world/europe/15reuters-russia-politics-governor.html?searchResultPosition=1
+**German Union IG Metall Backs Four-Day Week to Save Jobs**\
+`Germany's largest trade union, IG Metall, on Saturday proposed negotiating for a move to a four-day week to help secure jobs against economic fallout from the coronavirus crisis and structural shifts in the automobile industry.`\
+https://nytimes.com/reuters/2020/08/15/world/europe/15reuters-germany-labour.html?searchResultPosition=1
 
-**Afghan Women's Rights Advocate, Negotiator Injured in Attack**\
-`A prominent women's rights advocate and member of the Afghan team tasked with negotiating with the Taliban sustained minor injuries in an attack in Kabul by unknown gunmen, officials said on Saturday. `\
-https://nytimes.com/reuters/2020/08/15/world/asia/15reuters-afghanistan-attack-peacetalks.html?searchResultPosition=2
+**'Canary in the Coal Mine': Greenland Ice Has Shrunk Beyond Return, Study Finds**\
+`Greenland's ice sheet may have shrunk past the point of return, with the ice likely to melt away no matter how quickly the world reduces climate-warming emissions, new research suggests. `\
+https://nytimes.com/reuters/2020/08/15/world/europe/15reuters-climate-change-arctic.html?searchResultPosition=2
 
-**Philippines Reports 4,351 New Coronavirus Cases, 159 More Deaths**\
-`The Philippine health ministry on Saturday reported 4,351 new confirmed coronavirus cases and 159 additional fatalities, bringing the total in the country to 157,918 infections and 2,600 deaths.`\
-https://nytimes.com/reuters/2020/08/15/world/asia/15reuters-health-coronavirus-philippines-cases.html?searchResultPosition=3
+**‘The Fish Rots From the Head’: How a Salmon Crisis Stoked Russian Protests**\
+`Plentiful salmon used to be one of the few perks for residents of Russia’s Far East. Then the fish vanished, and many local residents blamed President Putin.`\
+https://nytimes.com/2020/08/15/world/europe/Khabarovsk-Russia-Amur-protests-salmon.html?searchResultPosition=3
 
-**Baltic Leaders Urge Belarus to Hold 'Free and Fair' Elections**\
-`The prime ministers of Estonia, Latvia and Lithuania called on Belarus on Saturday to conduct new "free and fair" elections as protests swelled against President Alexander Lukashenko's disputed poll victory.`\
-https://nytimes.com/reuters/2020/08/15/world/europe/15reuters-belarus-election.html?searchResultPosition=4
+**How Do You Solve a Moon Mystery? Fire a Laser at It**\
+`Researchers have used reflective prisms left on the moon’s surface for decades, but had increasingly seen problems with their effectiveness.`\
+https://nytimes.com/2020/08/15/science/moon-lasers-dust.html?searchResultPosition=4
 
-**Russia Starts Production of COVID-19 Vaccine: Interfax**\
-`Russia has started manufacturing its new vaccine for COVID-19, the Interfax news agency reported on Saturday, citing the health ministry.`\
-https://nytimes.com/reuters/2020/08/15/world/europe/15reuters-health-coronavirus-russia-vaccine.html?searchResultPosition=5
+**‘We’re Clearly Not Doing Enough’: Drop in Testing Hampers Coronavirus Response**\
+`For the first time during the pandemic, the United States saw a downward trend in the number of coronavirus tests conducted each day.`\
+https://nytimes.com/2020/08/15/us/coronavirus-testing-decrease.html?searchResultPosition=5
 
-**Iran Threatens 'Dangerous Future' for UAE After Israel Deal**\
-`Iran’s powerful Revolutionary Guard vowed on Saturday that there would be dangerous consequences for the United Arab Emirates after it announced a historic deal with Israel to open up diplomatic relations.`\
-https://nytimes.com/aponline/2020/08/15/world/middleeast/ap-ml-emirates-israel-.html?searchResultPosition=6
+**As Relations With U.S. Sink, China Tones Down ‘Hotheaded’ Nationalism**\
+`Beijing is dialing down its belligerence to avoid provocative moves that might give President Trump more opportunities to attack ahead of the November election.`\
+https://nytimes.com/2020/08/15/world/asia/china-us-nationalism.html?searchResultPosition=6
 
-**Play-In Time: Blazers, Grizzlies to Play Game 1 on Saturday**\
-`Heroics were needed to get Portland and Memphis on the doorstep of the playoffs.`\
-https://nytimes.com/aponline/2020/08/15/sports/basketball/ap-bkn-grizzlies-trail-blazers-preview-1st-ld-writethru.html?searchResultPosition=7
+**‘We’re Desperate’: Transit Cuts Felt Deepest in Low-Income Areas**\
+`As the pandemic wreaks havoc on public transit systems across the country, experts say it is low-income residents, people of color and essential workers bearing the brunt.`\
+https://nytimes.com/2020/08/15/us/virus-transit-congress.html?searchResultPosition=7
 
-**Thousands Rally Against SKorea Leader Despite Virus Warning**\
-`Thousands of anti-government protesters, armed with umbrellas and raincoats, marched through the soggy streets of South Korea’s capital Saturday, ignoring official pleas to stay home amid a surge in coronavirus infections.`\
-https://nytimes.com/aponline/2020/08/15/world/asia/ap-as-virus-outbreak-south-korea-protests-.html?searchResultPosition=8
+**As Colleges Move Classes Online, Families Rebel Against the Cost**\
+`Schools face rising demands for tuition rebates, increased aid and leaves of absence as students ask if college is becoming “glorified Skype.”`\
+https://nytimes.com/2020/08/15/us/covid-college-tuition.html?searchResultPosition=8
 
-**Russia Reports More Than 5,000 New Coronavirus Cases**\
-`Russia reported 5,061 new cases of the novel coronavirus on Saturday, bringing its nationwide tally to 917,884, the fourth highest caseload in the world.`\
-https://nytimes.com/reuters/2020/08/15/world/europe/15reuters-health-coronavirus-russia-cases.html?searchResultPosition=9
+**A Summer of No-Contact Rescues: How Lifeguards Have Changed Their Ways**\
+`Guards have tested positive. After-work parties are frowned upon. The pandemic has upended lifeguarding.`\
+https://nytimes.com/2020/08/15/nyregion/lifeguards-coronavirus.html?searchResultPosition=9
 
-**Baltic PMs Urge Belarus to Hold 'Free and Fair' Elections**\
-`The prime ministers of Estonia, Latvia and Lithuania on Saturday called on Belarus to conduct new "free and fair" elections as protests swelled against President Alexander Lukashenko's disputed poll victory.`\
-https://nytimes.com/reuters/2020/08/15/world/europe/15reuters-belarus-election-baltic-primeministers.html?searchResultPosition=10
+**Spend Your Week With Bach, Beowulf and a Bee Aficionado**\
+`Check out emerging New York photographers, stitch up a suffragist’s portrait and liven up your lunch break with a digital dance party.`\
+https://nytimes.com/2020/08/15/at-home/coronavirus-things-to-do-this-week.html?searchResultPosition=10
 
