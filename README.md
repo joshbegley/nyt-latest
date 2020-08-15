@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/08/15/sports/hockey/ap-hkn-bruins-hurricanes.h
 https://nytimes.com/reuters/2020/08/15/sports/basketball/15reuters-basketball-nba-nop-gentry-fired.html?searchResultPosition=9
 
 **Cards Beat White Sox 5-1 in Return From Coronavirus Outbreak**\
-`Dexter Fowler helped St. Louis get off to a fast start in its return from a coronavirus outbreak, hitting a two-run single in a four-run first inning, and the Cardinals beat the Chicago White Sox 5-1 on Saturday in the opener of a doubleheader.`\
+`Adam Wainwright said it was just another start. Well, that was what he told himself anyway.`\
 https://nytimes.com/aponline/2020/08/15/sports/baseball/ap-bbo-cardinals-white-sox.html?searchResultPosition=10
 
