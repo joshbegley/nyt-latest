@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/08/15/world/europe/15reuters-belarus-election-l
 `A student leader of Thailand’s anti-government movement vowed to continue his protesting after being released on bail Saturday, a day after his arrest on a sedition charge.`\
 https://nytimes.com/aponline/2020/08/15/world/asia/ap-as-thailand-protests.html?searchResultPosition=2
 
-**Debenhams Appoints Advisers to Draw Up Plans for Possible Liquidation: Sky News**\
-`Struggling British department store chain has appointed Hilco Capital to draw up contingency plans for possible liquidation of the chain should an attempt to sell the business end in failure, Sky News reported on Saturday.`\
+**Debenhams Appoints Advisers to Draw Up Plans for Possible Liquidation**\
+`Struggling British department store chain has appointed Hilco Capital to draw up contingency plans for a possible liquidation of the chain in the unlikely event that an attempt to sell the business ends in failure.`\
 https://nytimes.com/reuters/2020/08/15/business/15reuters-health-coronavirus-britain-debenhams.html?searchResultPosition=3
 
 **Partner of Dead Belarus Protester Believes Police Shot Him**\
