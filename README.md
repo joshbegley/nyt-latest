@@ -22,8 +22,8 @@ https://nytimes.com/2020/08/15/at-home/play-suffrage-game.html?searchResultPosit
 `CJ McCollum scored 12 of his 29 points in the fourth quarter Saturday afternoon, helping the Portland Trail Blazers rally from a late deficit to beat the Memphis Grizzlies 126-122 in the Western Conference play-in game near Orlando.`\
 https://nytimes.com/reuters/2020/08/15/sports/basketball/15reuters-basketball-nba-por-mem-recap.html?searchResultPosition=6
 
-**Mexican President Says 52,455 Jobs Gained Back in August**\
-`Mexico's economy recovered 52,455 jobs in August, Mexican President Andres Manuel Lopez Obrador said on Twitter on Saturday, citing social security institute data. `\
+**Mexican President Says Jobs Gained Back in August, Reversing Trend of Losses**\
+`Mexico added back 52,455 jobs in August, President Andres Manuel Lopez Obrador said on Saturday, hailing the news as a sign of recovery after the country lost more than 1 million jobs in the formal economy due to the coronavirus pandemic. `\
 https://nytimes.com/reuters/2020/08/15/world/americas/15reuters-health-coronavirus-mexico-jobs.html?searchResultPosition=7
 
 **Big Ten Parents Call on League to Play; OU Has 9 Positives**\
