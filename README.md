@@ -1,6 +1,6 @@
 **Postal Crisis Ripples Across Nation as Election Looms**\
 `President Trump’s furious objection to mail-in balloting and a new Trump-allied postmaster general are raising fears about the election and the Postal Service.`\
-https://nytimes.com/2020/08/15/us/post-office-vote-by-mail-.html?searchResultPosition=1
+https://nytimes.com/2020/08/15/us/post-office-vote-by-mail.html?searchResultPosition=1
 
 **Gunmen Kill Son of Legendary Mexico Drug Capo Amado Carrillo**\
 `Prosecutors in northern Mexico say that gunmen have killed a son of legendary drug lord Amado Carrillo Fuentes. `\
