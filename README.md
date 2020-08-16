@@ -1,40 +1,40 @@
+**Egypt, Ethiopia, Sudan Resume AU-Led Talks Over Disputed Dam**\
+`Three key Nile basin countries on Sunday resumed online negotiations led by the African Union to resolve a years-long dispute over a giant hydroelectric dam that Ethiopia is building on the Blue Nile, Egyptian and Ethiopian officials said.`\
+https://nytimes.com/aponline/2020/08/16/world/middleeast/ap-ml-nile-dam.html?searchResultPosition=1
+
+**Eight Killed in Armed Group Attack in Southern Colombia**\
+`Eight people were shot dead by an unidentified armed group in a contested drug trafficking area in southwestern Colombia on Saturday night, authorities said.`\
+https://nytimes.com/reuters/2020/08/16/world/americas/16reuters-colombia-crime.html?searchResultPosition=2
+
+**Zimbabwe Catholic Bishops, Lawyers Criticise Alleged Government Abuses**\
+`Zimbabwe's Catholic bishops and the law society have criticised the government for alleged human rights abuses and a crackdown on dissent, adding to growing concerns over authorities' treatment of opponents amid a worsening economic crisis.`\
+https://nytimes.com/reuters/2020/08/16/world/africa/16reuters-zimbabwe-politics.html?searchResultPosition=3
+
+**Turkey Draws Another EU Rebuke for Latest Plans at Sea**\
+`Turkey drew another rebuke from the European Union on Sunday when it said its Yavuz energy drill ship would extend operations in disputed Mediterranean waters off Cyprus until mid-September.`\
+https://nytimes.com/reuters/2020/08/16/world/europe/16reuters-turkey-greece.html?searchResultPosition=4
+
 **Canada's Trudeau, Finance Minister Clash Over Green Plans, Soaring Deficit**\
 `A deepening rift between Canadian Prime Minister Justin Trudeau and his finance minister about coronavirus spending is also fueled by disagreements over the scope and scale of proposed green initiatives, three sources familiar with the matter said.`\
-https://nytimes.com/reuters/2020/08/16/us/16reuters-canada-politics-finance.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/16/us/16reuters-canada-politics-finance.html?searchResultPosition=5
 
 **Belarus Protests Eclipse Rally in Defense of Defiant Leader**\
 `Tens of thousands of people gathered in Minsk to oppose President Aleksandr G. Lukashenko’s declared election victory.`\
-https://nytimes.com/2020/08/16/world/europe/belarus-protests-lukashenko.html?searchResultPosition=2
+https://nytimes.com/2020/08/16/world/europe/belarus-protests-lukashenko.html?searchResultPosition=6
 
 **Former Deputy Mayor of Paris Accused of Sexual Abuse**\
 `Allegations come atop a political downfall for Christophe Girard, who resigned after criticism of his ties to a pedophile writer.`\
-https://nytimes.com/2020/08/16/world/europe/christophe-girard-gabriel-matzneff-paris-france.html?searchResultPosition=3
+https://nytimes.com/2020/08/16/world/europe/christophe-girard-gabriel-matzneff-paris-france.html?searchResultPosition=7
 
 **The Moves Against the Census**\
 `A reader says the government’s actions obscure accuracy and harm the country. Also: Voting is a necessity.`\
-https://nytimes.com/2020/08/16/opinion/letters/census-race.html?searchResultPosition=4
+https://nytimes.com/2020/08/16/opinion/letters/census-race.html?searchResultPosition=8
 
 **White Evangelicals’ Support for Donald Trump**\
 `Readers react to interviews with Christians in Sioux Center, Iowa, about why they continue to stand by the president.`\
-https://nytimes.com/2020/08/16/opinion/letters/evangelicals-trump.html?searchResultPosition=5
+https://nytimes.com/2020/08/16/opinion/letters/evangelicals-trump.html?searchResultPosition=9
 
 **US Supports Cyprus, Wants Closer East Med Gas Cooperation**\
 `The U.S. wants tighter cooperation on developing gas finds in the “strategically significant” eastern Mediterranean and supports Cyprus’ right to exploit hydrocarbon deposits discovered in its waters, a senior U.S. State Department official said Sunday.`\
-https://nytimes.com/aponline/2020/08/16/business/ap-eu-cyprus-us-energy.html?searchResultPosition=6
-
-**House Dems Summon Postal Leaders to Hearing on Mail Delays**\
-`The Democratic-run House on Sunday demanded that leaders of the U.`\
-https://nytimes.com/aponline/2020/08/16/business/ap-us-election-2020-postal-service.html?searchResultPosition=7
-
-**Factbox: Quotes on Thailand's Biggest Protest in Years**\
-`More than 10,000 people joined Thailand's biggest anti-government protest in years on Sunday.`\
-https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-thailand-protests-quotes-factbox.html?searchResultPosition=8
-
-**Black Portland Reflects on Role of White Allies in Movement**\
-`More than two months of intense protests in Portland, Oregon — one of America's whitest major cities — have captured the world's attention and put a place that's less than 6% Black at the heart of the conversation about police brutality and systemic racism.`\
-https://nytimes.com/aponline/2020/08/16/us/ap-us-racial-injustice-portland-reckoning.html?searchResultPosition=9
-
-**Democrats to Highlight 17 'Rising Stars' in Convention Keynote**\
-`The Democratic Party will highlight 17 young politicians it considers "rising stars," including one-time vice presidential hopeful Stacey Abrams, on Tuesday, the second night of the party's nominating convention.`\
-https://nytimes.com/reuters/2020/08/16/us/politics/16reuters-usa-election-democrats-keynote.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/16/business/ap-eu-cyprus-us-energy.html?searchResultPosition=10
 
