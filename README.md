@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/08/16/world/europe/16reuters-turkey-greece-pompeo.html?searchResultPosition=1
 
 **Thunderstorms Raise Risks of New Wildfires Across California**\
-`A rare summer thunderstorm brought lighting that sparked several small blazes in Northern California on Sunday and stoked a huge forest fire that has forced hundreds of people from their homes north of Los Angeles. `\
+`A rare summer thunderstorm brought lightning that sparked several small blazes in Northern California on Sunday and stoked a huge forest fire that has forced hundreds of people from their homes north of Los Angeles. `\
 https://nytimes.com/aponline/2020/08/16/us/ap-us-california-wildfires.html?searchResultPosition=2
 
 **An Andretti Wins First Indy 500 Pole for Family in 33 Years**\
