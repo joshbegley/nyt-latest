@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/08/16/sports/ap-car-nascar-daytona.html?search
 `U.S. House Speaker Nancy Pelosi said on Sunday that she is recalling the chamber later this week to vote on legislation to protect the Postal Service. A senior Democratic aide said the likely plan is for the House to return on Saturday.`\
 https://nytimes.com/reuters/2020/08/16/us/politics/16reuters-usa-election-post-office-pelosi.html?searchResultPosition=2
 
-**Explainer: What Is the Purpose of the U.S. Presidential Nominating Conventions?**\
+**Explainer: The Purpose of U.S. Presidential Nominating Conventions**\
 `The United States has held presidential nominating conventions for almost 200 years, and they have served in recent decades as an important televised introduction to each party's candidate in the final months before the election.`\
 https://nytimes.com/reuters/2020/08/16/us/politics/16reuters-usa-election-convention-purpose-explainer.html?searchResultPosition=3
 
