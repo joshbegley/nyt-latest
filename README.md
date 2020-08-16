@@ -14,8 +14,8 @@ https://nytimes.com/2020/08/16/podcasts/the-daily/trump-russia-intelligence.html
 `A German-Brazilian couple kept apart by coronavirus restrictions have been reunited after Germany eased border controls for unmarried couples who can prove their relationships preceded the pandemic.  `\
 https://nytimes.com/reuters/2020/08/16/world/americas/16reuters-health-coronavirus-germany-couple.html?searchResultPosition=4
 
-**Lithuanian Defence Minister Says Lithuania Does Not Pose Threat to Belarus**\
-`NATO member Lithuania does not pose a military threat to its neighbour Belarus, Lithuania's defence minister said on Sunday, after Belarusian leader Alexander Lukashenko accused NATO of massing on his country's western border.`\
+**Lithuania Says It Does Not Pose Threat to Belarus**\
+`NATO member Lithuania said on on Sunday it does not pose a military threat to its neighbour Belarus after Belarusian leader Alexander Lukashenko accused NATO of massing on his country's western border.`\
 https://nytimes.com/reuters/2020/08/16/world/europe/16reuters-belarus-election-lithuania-military.html?searchResultPosition=5
 
 **Puerto Rico Holds 2nd Voting Round After Chaotic Primaries**\
