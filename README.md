@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/08/16/business/ap-eu-virus-outbreak-italy-crui
 https://nytimes.com/2020/08/16/us/politics/democrats-convention-milwaukee-biden.html?searchResultPosition=9
 
 **McCutchen Homer Keys Phillies' 3-Game Sweep of Mets**\
-`Andrew McCutchen entered as a mid-game replacement and hit a go-ahead, two-run home run to help the Philadelphia Phillies beat the New York Mets 6-2 on Sunday and complete a three-game sweep.`\
+`Andrew McCutchen entered as a mid-game injury replacement and hit a go-ahead, two-run home run to help the Philadelphia Phillies beat the New York Mets 6-2 on Sunday and complete a three-game sweep.`\
 https://nytimes.com/aponline/2020/08/16/sports/baseball/ap-bbn-mets-phillies.html?searchResultPosition=10
 
