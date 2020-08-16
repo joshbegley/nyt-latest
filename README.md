@@ -6,8 +6,8 @@ https://nytimes.com/aponline/2020/08/16/us/ap-us-racial-injustice-portland-recko
 `The Democratic Party will highlight 17 young politicians it considers "rising stars," including one-time vice presidential hopeful Stacey Abrams, on Tuesday, the second night of the party's nominating convention.`\
 https://nytimes.com/reuters/2020/08/16/us/politics/16reuters-usa-election-democrats-keynote.html?searchResultPosition=2
 
-**U.S. House Panel Calls on Top Postal Service Officials to Testify on Mail Delays**\
-`The head of a U.S. House of Representatives committee on Sunday invited U.S. Postmaster General Louis DeJoy to appear on Aug. 24 to testify on Postal Service changes that have stoked fears they are aimed at holding up mail-in Nov. 3 election ballots.`\
+**U.S. House Panel Calls Top Postal Service Officials to Testify on Mail Delays**\
+`Top Democrats in the U.S. Congress on Sunday called on top Postal Service officials including Postmaster General Louis DeJoy to testify on service changes that have stoked fears they are aimed at holding up mail-in Nov. 3 election ballots.`\
 https://nytimes.com/reuters/2020/08/16/us/politics/16reuters-usa-election-post-office.html?searchResultPosition=3
 
 **Shipyard Workers to Begin Voting This Week on Labor Pact**\
