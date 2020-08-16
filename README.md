@@ -10,8 +10,8 @@ https://nytimes.com/2020/08/16/sports/baseball/cardinals-white-sox.html?searchRe
 `NATO dismissed allegations by Belarus President Alexander Lukashenko on Sunday that it was conducting a military buildup near the country's western border, but said it was closely monitoring the situation there.`\
 https://nytimes.com/reuters/2020/08/16/world/europe/16reuters-belarus-election-nato.html?searchResultPosition=3
 
-**Motorcycling: Morbidelli, Zarco Involved in Huge Crash in Austrian GP**\
-`The Austrian Grand Prix was halted with 20 laps to go when a red flag was brought out after Franco Morbidelli's Yamaha collided with the Avintia Ducati of Johann Zarco at the Red Bull Ring in Spielberg on Sunday.`\
+**Motorcycling: Ducati's Dovizioso Wins Austrian GP After Horror Crash Halts Race**\
+`Ducati's Andrea Dovizioso won an action-packed Austrian Grand Prix which was halted for 20 minutes after Franco Morbidelli's Yamaha collided with the Avintia Ducati of Johann Zarco in Spielberg on Sunday.`\
 https://nytimes.com/reuters/2020/08/16/sports/autoracing/16reuters-motor-motogp-austria.html?searchResultPosition=4
 
 **The Sunday Read: ‘Unwanted Truths’**\
