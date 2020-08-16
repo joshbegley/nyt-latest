@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/08/16/sports/basketball/16reuters-nba-kings-sto
 https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-health-coronavirus-southkorea.html?searchResultPosition=2
 
 **Miocic Retains Heavyweight Crown With Decision Over Cormier**\
-`Stipe Miocic defeated Daniel Cormier by unanimous decision in a five-round bout Saturday night to win the rubber match in a fantastic trilogy between the fighters and retain his heavyweight championship.`\
+`Stipe Miocic defeated Daniel Cormier by unanimous decision in a five-round bout Saturday night to win the rubber match in a fantastic trilogy between the fighters and retain his heavyweight championship at UFC 252. `\
 https://nytimes.com/aponline/2020/08/16/sports/ap-mma-ufc-252.html?searchResultPosition=3
 
 **Betts Hits Tying Homer, Dodgers Beat Angels 6-5 in 10**\
