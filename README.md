@@ -6,8 +6,8 @@ https://nytimes.com/2020/08/16/us/politics/coronavirus-postal-service-stimulus-b
 `Gunfire at a gathering of more than 200 mostly young people in north Philadelphia wounded five people, including a 16-year-old, as police said officers came under fire in one of a number of shootings across the city during another violent weekend. `\
 https://nytimes.com/aponline/2020/08/16/us/ap-us-philadelphia-violence-1st-ld-writethru.html?searchResultPosition=2
 
-**French New COVID-19 Cases Above 3,000 for Second Day**\
-`The French Health Ministry on Sunday reported 3,015 new coronavirus infections over the past 24 hours, the second day in a row in which new cases have surpassed the 3,000 mark.`\
+**French New Coronavirus Cases Above 3,000 for Second Day**\
+`France's health ministry on Sunday reported 3,015 new coronavirus infections over the last 24 hours, the second day in a row in which new cases have surpassed the 3,000 mark.`\
 https://nytimes.com/reuters/2020/08/16/world/europe/16reuters-health-coronavirus-france-casualties.html?searchResultPosition=3
 
 **White House's Meadows Says He Accepts Harris Eligible for VP**\
