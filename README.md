@@ -1,40 +1,40 @@
+**Nursing Homes With Safety Problems Deploy Trump-Connected Lobbyists**\
+`Nursing homes, the center of the pandemic, are seeking tax breaks, federal cash infusions and protection against lawsuits.`\
+https://nytimes.com/2020/08/16/business/nursing-home-safety-trump.html?searchResultPosition=1
+
+**Conor Lamb Found a Way to Win in Trump Country. Can Biden Follow His Path?**\
+`Throughout his campaign, Joe Biden has repeatedly returned to the same themes and strategies that supported Mr. Lamb to a surprise victory in a district that Mr. Trump carried by about 20 points in 2016.`\
+https://nytimes.com/2020/08/16/us/politics/joe-biden-conor-lamb-trump.html?searchResultPosition=2
+
+**These Uber Drivers Are Stressed. Archery Soothes Them.**\
+`Many Bhutanese immigrants who drive for ride-sharing services opted to live off their savings during coronavirus-related lockdowns in New York City. As they begin to return to work, their country’s national pastime has been a comfort.`\
+https://nytimes.com/2020/08/16/sports/bhutan-archery-uber-drivers.html?searchResultPosition=3
+
+**Turning Grief for a Hidden Past Into a Healing Space**\
+`The University of Virginia in Charlottesville, designed by Thomas Jefferson, was built by enslaved people. The Memorial to Enslaved Laborers acknowledges that long-suppressed history.`\
+https://nytimes.com/2020/08/16/arts/design/university-of-virginia-enslaved-laborers-memorial.html?searchResultPosition=4
+
+**Homes That Sold for Around $1,300,000**\
+`Recent residential sales in New York City and the region.`\
+https://nytimes.com/2020/08/16/realestate/homes-that-sold-for-around-1300000.html?searchResultPosition=5
+
+**A Virginia House Candidate Campaigns By Attacking ‘A Man Dressed as a Woman’**\
+`As Bob Good, an opponent of same-sex marriage, tries to rally Republicans with attacks on transgender rights, Democrats see an opening in the G.O.P.-held district.`\
+https://nytimes.com/2020/08/16/us/politics/lgbt-bob-good-congress-va.html?searchResultPosition=6
+
+**‘Hidden’ Trump Voters Exist. But How Much Impact Will They Have?**\
+`Republicans insist that millions of Americans want to vote for Trump but won’t admit it. Polling experts tell a different story.`\
+https://nytimes.com/2020/08/16/us/politics/trump-polls.html?searchResultPosition=7
+
 **Factbox: Latest on Worldwide Coronavirus Spread**\
 `South African President Cyril Ramaphosa said all indications were that South Africa had reached the peak of COVID-19 infections, as he announced a sweeping removal of lockdown restrictions on the economy.`\
-https://nytimes.com/reuters/2020/08/16/us/16reuters-health-coronavirus-latest-factbox.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/16/us/16reuters-health-coronavirus-latest-factbox.html?searchResultPosition=8
 
 **Thai Protesters Stage Rally That May Test Movement's Support**\
 `Anti-government protesters gathered in Thailand's capital on Sunday for a rally that may test whether their movement has any strength beyond the college campuses where it has blossomed.`\
-https://nytimes.com/aponline/2020/08/16/world/asia/ap-as-thailand-protests.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/16/world/asia/ap-as-thailand-protests.html?searchResultPosition=9
 
 **Motorcycling: No'Plan B' After Ducati Exit, Says Dovizioso**\
 `Italian rider Andrea Dovizioso says he has no "Plan B" for when he leaves Ducati at the end of the season, with his focus solely on this year's world championship. `\
-https://nytimes.com/reuters/2020/08/16/sports/autoracing/16reuters-motor-motogp-dovizioso.html?searchResultPosition=3
-
-**Kuwait Position Towards Israel Unchanged: Al-Qabas Newspaper**\
-`Kuwait's position towards Israel is unchanged after its accord with the United Arab Emirates and it will be the last country to normalise relations, newspaper al-Qabas reported on Sunday citing Kuwaiti government sources. `\
-https://nytimes.com/reuters/2020/08/16/world/middleeast/16reuters-israel-emirates-kuwait.html?searchResultPosition=4
-
-**Philippine Reports 3,420 New Coronavirus Cases, 65 Deaths**\
-`The Philippines has recorded 3,420 new cases of the coronavirus and 65 additional deaths, the health ministry said on Sunday.`\
-https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-health-coronavirus-philippines-cases.html?searchResultPosition=5
-
-**German Police Conduct Raids Linked to Illegal Gambling**\
-`Hundreds of police officers searched shisha bars, tea houses and illegal gambling halls across western Germany early Sunday.`\
-https://nytimes.com/aponline/2020/08/16/business/bc-eu-germany-raids.html?searchResultPosition=6
-
-**Hundreds Join Thai Anti-Government Protest**\
-`More than a thousand protesters gathered in Thailand's capital Bangkok on Sunday to demand the resignation of the government, changes to the constitution and an end to the harassment of opposition activists.`\
-https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-thailand-protests.html?searchResultPosition=7
-
-**Mauritania Supports 'Good Judgment' of UAE Leadership on Israel Accord: WAM**\
-`Mauritania, a member of the Arab League, said it supported the United Arab Emirates in its decision to sign an accord with Israel to agree to normalise relations, UAE state news agency WAM said on Sunday. `\
-https://nytimes.com/reuters/2020/08/16/world/middleeast/16reuters-israel-emirates-mauritania.html?searchResultPosition=8
-
-**Indonesia Reports 2,081 New Coronavirus Infections, 79 Deaths: Covid-19 Task Force**\
-`Indonesia on Sunday reported 2,081 cases of the new coronavirus and 79 COVID-19 deaths, according to data from Indonesia's COVID-19 governmental task force.`\
-https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=9
-
-**Lukashenko Under Pressure as Rival Protests Planned in Belarus Capital**\
-`Belarusian leader Alexander Lukashenko was under growing pressure on Sunday with rival protests due to converge on the capital a week after a contested presidential election that has thrown his country into turmoil.`\
-https://nytimes.com/reuters/2020/08/16/world/europe/16reuters-belarus-election.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/16/sports/autoracing/16reuters-motor-motogp-dovizioso.html?searchResultPosition=10
 
