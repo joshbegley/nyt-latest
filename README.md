@@ -10,8 +10,8 @@ https://nytimes.com/aponline/2020/08/16/sports/basketball/bc-bkl-sky-dream.html?
 `Dallas scored 16:05 into overtime after Joe Pavelski forced the extra period by completing a hat trick in the final seconds of regulation and the Stars beat the Calgary Flames 5-4 on Sunday to even their Western Conference playoff series.`\
 https://nytimes.com/aponline/2020/08/16/sports/hockey/ap-hkn-stars-flames.html?searchResultPosition=3
 
-**New Zealand PM Ardern Postpones General Election Until October 17**\
-`New Zealand's Prime Minister Jacinda Ardern said on Monday that the general election would be postponed by four weeks until Oct. 17, as the country tackles a new outbreak of the coronavirus.`\
+**New Zealand PM Ardern Postpones General Election to October 17**\
+`New Zealand's Prime Minister Jacinda Ardern on Monday postponed the general election by four weeks to Oct. 17 but ruled out delaying it any further, as the country tackles a new outbreak of the coronavirus.`\
 https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-newzealand-election-ardern.html?searchResultPosition=4
 
 **German Vice Chancellor Calls Lukashenko a 'Dictator'**\
