@@ -26,7 +26,7 @@ https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-health-coronavirus-c
 `Bahrain and Oman could be the next Gulf countries to follow the United Arab Emirates in formalising ties with Israel, Israel's intelligence minister said on Sunday.`\
 https://nytimes.com/reuters/2020/08/16/world/middleeast/16reuters-israel-emirates-gulf.html?searchResultPosition=7
 
-**UAE Phone Lines to Israel Open After Accord to Normalise Relations**\
+**UAE-Israel Phone Lines Open After Accord to Normalise Relations**\
 `Telephone lines between the United Arab Emirates and Israel were open on Sunday in a development the Israeli communications minister hailed as important for normalising ties between the countries.`\
 https://nytimes.com/reuters/2020/08/16/world/middleeast/16reuters-israel-emirates-telecoms.html?searchResultPosition=8
 
