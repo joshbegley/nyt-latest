@@ -10,8 +10,8 @@ https://nytimes.com/aponline/2020/08/15/sports/baseball/bc-bbn-mets-phillies.htm
 `Napheesa Collier had her second consecutive double-double, Crystal Dangerfield scored 22 points on 9-of-12 shooting, and the Minnesota Lynx beat the New York Liberty 94-64 on Saturday night. `\
 https://nytimes.com/aponline/2020/08/15/sports/basketball/bc-bkl-liberty-lynx.html?searchResultPosition=3
 
-**LEADING OFF: Brewers Eye 3rd Straight Win vs Rival Cubs**\
-`A look at what’s happening around the majors today:`\
+**LEADING OFF: MLB Honors 100th Anniversary of Negro Leagues**\
+`A look at what’s happening around the majors on Sunday:`\
 https://nytimes.com/aponline/2020/08/15/sports/baseball/ap-bbo-leading-off.html?searchResultPosition=4
 
 **Tribute in Lights Will Shine After All, Officials Say**\
