@@ -22,8 +22,8 @@ https://nytimes.com/aponline/2020/08/15/business/ap-as-virus-outbreak-asia.html?
 `The Baltimore Orioles struck early against Washington Nationals lefty Patrick Corbin and got a home run from Rio Ruiz in a 7-3 victory Saturday night, capping another disappointing day for the defending World Series champions.`\
 https://nytimes.com/aponline/2020/08/15/sports/baseball/ap-bbo-nationals-orioles.html?searchResultPosition=6
 
-**President Trump Says His Brother, Robert Trump, Died on Saturday**\
-`U.S. President Donald Trump said that his younger brother, Robert Trump, died on Saturday night, a day after the president visited him in a New York hospital.`\
+**Robert Trump, President's Brother Who Shunned the Spotlight, Dies**\
+`Robert Trump, the younger brother of U.S. President Donald Trump and a business executive who avoided the spotlight, died on Saturday night, a day after the president visited him in a New York hospital.`\
 https://nytimes.com/reuters/2020/08/15/us/15reuters-usa-trump-brother.html?searchResultPosition=7
 
 **Trump Says He’ll Look Into a Pardon for Edward Snowden**\
