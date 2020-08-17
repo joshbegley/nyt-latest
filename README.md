@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/08/17/world/europe/17reuters-health-coronavirus
 https://nytimes.com/reuters/2020/08/17/world/asia/17reuters-health-coronavirus-japan-metals.html?searchResultPosition=2
 
 **Malaysia Says Vietnamese Fisherman Killed in Clash With Coast Guard**\
-`Malaysia said on Monday that a Vietnamese fisherman died from  gunshot woundd after a confrontation broke out when the country's coast guard sought to inspect two boats they believed were illegally fishing.`\
+`Malaysia said on Monday that a Vietnamese fisherman died from  gunshot wounds after a confrontation broke out when the country's coast guard sought to inspect two boats they believed were illegally fishing.`\
 https://nytimes.com/reuters/2020/08/17/world/asia/17reuters-malaysia-vietnam-shooting.html?searchResultPosition=3
 
 **The Latest: India's Total Coronavirus Death Toll Tops 50,000**\
