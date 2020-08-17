@@ -1,40 +1,40 @@
-**Militants Kill Three Indian Policemen in Kashmir as Attacks Pick Up**\
-`Militants killed three Indian policemen in Kashmir on Monday, as attacks on security forces and village leaders escalate in the disputed Muslim-majority region.`\
-https://nytimes.com/reuters/2020/08/17/world/asia/17reuters-india-kashmir.html?searchResultPosition=1
+**UK Household Finances Take New Turn for the Worse: Survey**\
+`The financial health of British households deteriorated in August at a faster pace than last month, in an unpromising sign for the economic recovery from the COVID-19 pandemic, a survey showed on Monday.`\
+https://nytimes.com/reuters/2020/08/17/world/europe/17reuters-health-coronavirus-britain-finances.html?searchResultPosition=1
 
-**Japan's Leader Goes to Hospital, Raising Health Concerns**\
-`Japanese Prime Minister Shinzo Abe went to a hospital on Monday for what Japanese media said was a regular health checkup, although the visit generated renewed worries about his health.`\
-https://nytimes.com/aponline/2020/08/17/world/asia/ap-as-japan-prime-ministers-health-.html?searchResultPosition=2
+**Quiet Reflections on the Enchanting Italian Village of Panicale**\
+`Pensive after the loss of a friend, a photographer finds solace — and instruction — on a trip to the central Italian region of Umbria.`\
+https://nytimes.com/2020/08/17/travel/panicale-italy.html?searchResultPosition=2
 
-**Hong Kong Records 44 New Coronavirus Cases as Social Distancing Restrictions Extended**\
-`Hong Kong reported 44 new coronavirus cases on Monday as the government announced an extension to social distancing measures aimed at controlling further spreading of the virus, which has seen a resurgence in the Asian financial hub since early July.`\
-https://nytimes.com/reuters/2020/08/17/world/asia/17reuters-health-coronavirus-hongkong.html?searchResultPosition=3
+**Sorry, the World’s Biggest Bike Maker Can’t Help You Buy a Bike Right Now**\
+`The pandemic has created a bicycle boom — and a shortage. Giant, the Taiwanese juggernaut, is trying to meet demand while navigating the politics of trade.`\
+https://nytimes.com/2020/08/17/business/giant-bikes-coronavirus-shortage.html?searchResultPosition=3
 
-**Belarus Leader Says Ready to Share Power, but Not Under Protest Pressure: Belta**\
-`Belarusian leader Alexander Lukashenko said on Monday that he would be willing to share power and to change the constitution, but that he was not prepared to do so under pressure from protesters, the Belta news agency reported.`\
-https://nytimes.com/reuters/2020/08/17/world/europe/17reuters-bealrus-election-lukashenko-share.html?searchResultPosition=4
+**A Crackdown in Belarus Backfires. Here’s What Videos Show.**\
+`Protests took a decisive turn last week after videos of security officers brutally repressing demonstrators were widely shared.`\
+https://nytimes.com/2020/08/17/world/europe/belarus-crackdown-protests-minsk.html?searchResultPosition=4
 
-**India's Coronavirus Death Toll Surpasses 50,000**\
-`India's death toll from the coronavirus surpassed 50,000 on Monday, as infection numbers surged and total cases were nearly at 2.65 million.`\
-https://nytimes.com/reuters/2020/08/17/world/asia/17reuters-health-coronavirus-india-cases.html?searchResultPosition=5
+**New York Has Tamed the Virus. Can It Hold Off a Second Wave?**\
+`The sustained low rate of infection has surprised local health officials. But a resurgence may be inevitable, despite the state’s and city’s best efforts.`\
+https://nytimes.com/2020/08/17/nyregion/coronavirus-second-wave-nyc.html?searchResultPosition=5
 
-**Lithuania Says Russian Military Help in Belarus Would Mean 'an Invasion'**\
-`Russian military help in Belarus would constitute "an invasion", Lithuanian foreign affairs minister Linas Linkevicius said on Monday.`\
-https://nytimes.com/reuters/2020/08/17/world/europe/17reuters-belarus-election-lithuania.html?searchResultPosition=6
+**The ‘Rage Moms’ Democrats Are Counting On**\
+`As millions of American families face an uncertain start to the school year, the anger of women who find themselves expected to be teacher, caregiver, employee and parent is fueling a political uprising.`\
+https://nytimes.com/2020/08/17/us/politics/democrats-women-voters-anger.html?searchResultPosition=6
 
-**German President Urges Military in Belarus Not to Use Violence**\
-`Germany's president on Monday urged the military in Belarus not to use violence as Belarusians protest against what demonstrators say was the fraudulent re-election a week ago of the country's longtime president.`\
-https://nytimes.com/reuters/2020/08/17/world/europe/17reuters-belarus-election-germany-president.html?searchResultPosition=7
+**What if ‘Herd Immunity’ Is Closer Than Scientists Thought?**\
+`In what may be the world’s most important math puzzle, researchers are trying to figure out how many people in a community must be immune before the coronavirus fades.`\
+https://nytimes.com/2020/08/17/health/coronavirus-herd-immunity.html?searchResultPosition=7
 
-**Philippines Records 3,314 New Coronavirus Cases, 18 Deaths**\
-`The Philippines has recorded 3,314 new coronavirus cases and 18 additional deaths from the disease, the health ministry said on Monday. `\
-https://nytimes.com/reuters/2020/08/17/world/asia/17reuters-health-coronavirus-philippines-cases.html?searchResultPosition=8
+**Welcome, Democrats, to Wherever It Is That We Are**\
+`Is Biden-Harris the answer to the confusion and sorrow of Trump’s America?`\
+https://nytimes.com/2020/08/17/opinion/trump-biden-harris-democratic-convention.html?searchResultPosition=8
 
-**Quake Strikes Off Southern Greek Coast, No Damage Reported**\
-`An earthquake with a preliminary magnitude of 5.1 struck off the coast of southern Greece Monday morning, Greece’s Institute of Geodynamics said. No damage or injuries were immediately reported.`\
-https://nytimes.com/aponline/2020/08/17/world/europe/ap-eu-greece-earthquake.html?searchResultPosition=9
+**The Recession Is About to Slam Cities. Not Just the Blue-State Ones.**\
+`Those with budgets that rely heavily on tourism, sales taxes or direct state assistance will face particular distress.`\
+https://nytimes.com/2020/08/17/upshot/pandemic-recession-cities-fiscal-shortfall.html?searchResultPosition=9
 
-**Belarus Leader Lukashenko Says There Will Be No New Election: Belta**\
-`Belarusian leader Alexander Lukashenko said on Monday there would be no new presidential election despite calls from the opposition and nationwide anti-government protests, the Belta news agency reported.`\
-https://nytimes.com/reuters/2020/08/17/world/europe/17reuters-belarus-election-lukashenko.html?searchResultPosition=10
+**A College’s ‘Free Speech Areas’ Face Supreme Court Review**\
+`The justices will consider whether a student’s First Amendment lawsuit may proceed after a college in Georgia abandoned its restrictions.`\
+https://nytimes.com/2020/08/17/us/supreme-court-college-free-speech.html?searchResultPosition=10
 
