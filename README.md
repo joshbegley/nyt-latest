@@ -1,40 +1,40 @@
+**Thai Second-Quarter GDP Shrinks 12.2% Year-On-Year, Weakest in 22 Years**\
+`Thailand's economy contracted at its sharpest pace in 22 years in the second quarter, but by less than expected, as the coronavirus outbreak battered tourism, exports and domestic activity.`\
+https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-thailand-economy-gdp.html?searchResultPosition=1
+
 **Japan PM Abe Plans to Leave Hospital Later Monday After Check-Up, Government Source Says**\
 `Japanese Prime Minister Shinzo Abe entered a Tokyo hospital on Monday for a medical check-up and plans to return home later in the day, a government source familiar with the situation told Reuters.`\
-https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-japan-politics-hospital.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-japan-politics-hospital.html?searchResultPosition=2
 
 **Pompeo Pushes Haiti President on Elections, Rights**\
 `It is "critical" that Haiti hold a delayed vote and strengthen the rule of law and human rights, U.S. Secretary of State Mike Pompeo told President Jovenel Moise on Sunday at a meeting after more than six months of rule by decree in the Caribbean nation.`\
-https://nytimes.com/reuters/2020/08/16/world/americas/16reuters-usa-haiti.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/16/world/americas/16reuters-usa-haiti.html?searchResultPosition=3
 
 **Mexican Judge Suspended After Outcry Over Child Abuse Case**\
 `A judge in Mexico's Jalisco state who rejected prosecutors' calls for harsher charges against a police official accused of sexually abusing a 10-year-old girl has been suspended after widespread outrage over the case.`\
-https://nytimes.com/reuters/2020/08/16/world/americas/16reuters-mexico-crime.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/16/world/americas/16reuters-mexico-crime.html?searchResultPosition=4
 
 **Bolivia Surpasses 100,000 Cases, Authorities Predict September Peak**\
 `Bolivia surpassed 100,000 coronavirus cases on Sunday, the country's Ministry of Health reported, predicting that the virus would reach its peak there in September. `\
-https://nytimes.com/reuters/2020/08/16/world/americas/16reuters-health-coronavirus-bolivia.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/16/world/americas/16reuters-health-coronavirus-bolivia.html?searchResultPosition=5
 
 **Asia Today: South Koreans Urged to Stay Home as Cases Jump**\
 `South Korea counted its fourth straight day of triple-digit increases in new coronavirus cases Monday as the government urged people to stay home and curb travel.`\
-https://nytimes.com/aponline/2020/08/16/business/ap-as-virus-outbreak-asia.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/08/16/business/ap-as-virus-outbreak-asia.html?searchResultPosition=6
 
 **Happ, Ford Lead Yanks to 9th Straight Win Over Red Sox, 4-2**\
 `J.A. Happ won in his return to New York’s rotation after being skipped for a turn, Mike Ford drove in three runs and the Yankees beat Boston 4-2 Sunday night for their ninth straight victory over the Red Sox, their best spurt against their rival in nearly 70 years.`\
-https://nytimes.com/aponline/2020/08/16/sports/baseball/bc-bba-red-sox-yankees.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/08/16/sports/baseball/bc-bba-red-sox-yankees.html?searchResultPosition=7
 
 **Dominican Republic's New President Takes Office Warning of Tough Recovery**\
 `The Dominican Republic's new president, Luis Abinader, warned as he took office on Sunday that the country faced stiff challenges from a flagging economy and a coronavirus pandemic that has caused more than 1,450 deaths in the small Caribbean nation. `\
-https://nytimes.com/reuters/2020/08/16/world/americas/16reuters-dominicanrepublic-politics.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/08/16/world/americas/16reuters-dominicanrepublic-politics.html?searchResultPosition=8
 
 **Japan PM Abe Enters Hospital for Examination: Media**\
 `Japanese Prime Minister Shinzo Abe entered a Tokyo hospital on Monday for an examination but a detailed reason for the visit was not immediately known, local media reported.`\
-https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-japan-politics.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-japan-politics.html?searchResultPosition=9
 
 **China Central Bank Injects 700 Billion Yuan of MLF Loans, Rates Steady for Fourth Month**\
 `China's central bank on Monday rolled over maturing medium-term loans while keeping borrowing costs unchanged for the fourth straight month.`\
-https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-china-economy-mlf.html?searchResultPosition=9
-
-**Crawford Stars as Blackhawks Beat Golden Knights 3-1**\
-`The Chicago Blackhawks were in deep trouble. That's when Corey Crawford took over.`\
-https://nytimes.com/aponline/2020/08/16/sports/hockey/bc-hkn-golden-knights-blackhawks.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-china-economy-mlf.html?searchResultPosition=10
 
