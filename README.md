@@ -22,7 +22,7 @@ https://nytimes.com/aponline/2020/08/17/world/europe/ap-eu-germany-libya.html?se
 `Jason Wright, 38, who played seven years in the league before becoming a business consultant, will join the Washington Football Team as it continues an overhaul and rebranding.`\
 https://nytimes.com/2020/08/17/sports/football/washington-Jason-Wright-team-president.html?searchResultPosition=6
 
-**DealBook: Exclusive — TikTok Does a Deal (Not That One)**\
+**TikTok Does a Deal (Not That One)**\
 `As the Chinese-owned app negotiates its potential sale, it is signing a different sort of deal.`\
 https://nytimes.com/2020/08/17/business/dealbook/tiktok-unitedmasters-music.html?searchResultPosition=7
 
