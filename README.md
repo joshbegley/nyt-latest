@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/08/16/world/americas/16reuters-dominicanrepublic-politics.html?searchResultPosition=1
 
 **Japan PM Abe Enters Hospital for Examination: Media**\
-`Japanese Prime Minister Shinzo Abe entered a Tokyo hospital on Monday for an examination, Nippon TV and Kyodo News reported.`\
+`Japanese Prime Minister Shinzo Abe entered a Tokyo hospital on Monday for an examination but a detailed reason for the visit was not immediately known, local media reported.`\
 https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-japan-politics.html?searchResultPosition=2
 
 **China Central Bank Injects 700 Billion Yuan of MLF Loans, Rates Steady for Fourth Month**\
