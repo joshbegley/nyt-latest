@@ -1,40 +1,40 @@
+**Japan’s Economy Contracts 7.8 Percent, Worst in Decades**\
+`The quarterly slide, an annualized decline of 27.8 percent, coincides with a long and uncertain road to recovery.`\
+https://nytimes.com/2020/08/16/business/japan-economy-recession.html?searchResultPosition=1
+
 **Jaguars' Gunter Stepping Away Because of Enlarged Aorta**\
 `Jacksonville Jaguars defensive lineman Rodney Gunter is stepping away from football because of an enlarged aorta.`\
-https://nytimes.com/aponline/2020/08/16/sports/football/ap-fbn-jaguars-gunter.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/16/sports/football/ap-fbn-jaguars-gunter.html?searchResultPosition=2
 
 **Golf: Herman Hits Peak Form for Win in North Carolina**\
 `Jim Herman capped off a superb weekend of play with a win at the Wyndham Championship on Sunday, shooting a seven-under par 63 in the final round of the Greensboro, North Carolina, tournament.`\
-https://nytimes.com/reuters/2020/08/16/sports/golf/16reuters-golf-wyndham.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/16/sports/golf/16reuters-golf-wyndham.html?searchResultPosition=3
 
 **Japan's Economy Shrinks at Record Pace as Pandemic Hits Spending**\
 `Japan suffered its biggest economic contraction on record in the second quarter as the coronavirus pandemic crushed business and consumer spending, keeping policymakers under pressure for bolder action to prevent the recession deepening.`\
-https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-japan-economy-gdp.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-japan-economy-gdp.html?searchResultPosition=4
 
 **Stock Futures Point to Modest Wall Street Gains Ahead of Big Retail Earnings Week**\
 `U.S. stock index futures indicate Wall Street will make moderate gains on Monday as retail earnings queue up and with housing data in the offing.`\
-https://nytimes.com/reuters/2020/08/16/business/16reuters-usa-stocks.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/16/business/16reuters-usa-stocks.html?searchResultPosition=5
 
 **The Month Old Hollywood Finally, Actually Died**\
 `The streaming services are in charge, and bringing a ruthless new culture with them.`\
-https://nytimes.com/2020/08/16/business/media/hollywood-studios-firings-streaming.html?searchResultPosition=5
+https://nytimes.com/2020/08/16/business/media/hollywood-studios-firings-streaming.html?searchResultPosition=6
 
 **Australia Reports Deadliest Day of COVID-19 Pandemic, New Cases Steady**\
 `Australia on Monday recorded its biggest one-day rise in COVID-19 deaths, though the state at the epicentre of the country's outbreak said the number of new infections held steady.`\
-https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-health-coronavirus-australia-victoria.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-health-coronavirus-australia-victoria.html?searchResultPosition=7
 
 **Piscotty HR, 5 RBIs, A's Rout Giants 15-3 for 4th Win in Row**\
 `Stephen Piscotty, Chad Pinder and Marcus Semien all homered during a nine-run burst in the fifth inning and the Oakland Athletics clobbered the San Francisco Giants 15-3 Sunday for their fourth straight win.`\
-https://nytimes.com/aponline/2020/08/16/sports/baseball/ap-bbo-athletics-giants.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/08/16/sports/baseball/ap-bbo-athletics-giants.html?searchResultPosition=8
 
 **Rolling Blackouts in California Have Power Experts Stumped**\
 `Managers of the electric system argue that a lack of power prompted the decision to enact blackouts, though demand this weekend fell short of the state’s peak years.`\
-https://nytimes.com/2020/08/16/business/california-blackouts.html?searchResultPosition=8
+https://nytimes.com/2020/08/16/business/california-blackouts.html?searchResultPosition=9
 
 **Los Angeles Schools Start Classes With Ambitious Virus Testing Program**\
 `Classes will start remotely. But the nation’s second-largest school district will track infections among nearly 700,000 students and 75,000 employees.`\
-https://nytimes.com/2020/08/16/us/los-angeles-schools-virus-testing.html?searchResultPosition=9
-
-**Keibert Ruiz Starts Career With HR, Dodgers Sweep Angels 8-3**\
-`Keibert Ruiz homered in his first major league at-bat, Corey Seager hit a three-run homer and the Los Angeles Dodgers swept the Freeway Series with an 8-3 victory over the Los Angeles Angels on Sunday.`\
-https://nytimes.com/aponline/2020/08/16/sports/baseball/bc-bbo-dodgers-angels.html?searchResultPosition=10
+https://nytimes.com/2020/08/16/us/los-angeles-schools-virus-testing.html?searchResultPosition=10
 
