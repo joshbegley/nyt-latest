@@ -4,7 +4,7 @@ https://nytimes.com/2020/08/17/climate/california-automakers-pollution.html?sear
 
 **How Mail-In Voting Works**\
 `Voting by mail has been a part of American elections for over a century, and experts say the president’s allegations of widespread fraud are unfounded.`\
-https://nytimes.com/2020/08/17/us/politics/Vote-by-mail.html?searchResultPosition=2
+https://nytimes.com/article/Vote-by-mail.html?searchResultPosition=2
 
 **Foreigners Buy U.S. Treasuries in June, After Selling Three Straight Months, Data Shows**\
 `Foreigners bought U.S. Treasury bonds and notes in June, after selling them for three straight months, data from the U.S. Treasury Department showed on Monday.`\
