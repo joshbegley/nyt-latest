@@ -1,4 +1,4 @@
-**Exclusive: U.S. to Tighten Restrictions on Huawei Access to Technology, Chips-Sources**\
+**Exclusive: U.S. to Tighten Restrictions on Huawei Access to Technology, Chips, Sources Say**\
 `The Trump administration is set to announce on Monday it will further tighten restrictions on Huawei Technologies Co, aimed at cracking down on its access to commercially available chips, officials briefed on the matter said.`\
 https://nytimes.com/reuters/2020/08/17/business/17reuters-usa-huawei-tech-exclusive.html?searchResultPosition=1
 
