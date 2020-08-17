@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/08/16/us/ap-us-fatal-shooting-child.html?searc
 `Mexico's health ministry reported on Sunday 4,448 new confirmed cases of coronavirus infections and 214 additional fatalities, bringing the total in the country to 522,162 cases and 56,757 deaths.`\
 https://nytimes.com/reuters/2020/08/16/world/americas/16reuters-health-coronavirus-mexico-tally.html?searchResultPosition=2
 
-**Japan’s Economy Contracts 7.8 Percent, Worst in Decades**\
+**Japan’s Economy Contracts 7.8 Percent, Worst on Record**\
 `The quarterly slide, an annualized decline of 27.8 percent, coincides with a long and uncertain road to recovery.`\
 https://nytimes.com/2020/08/16/business/japan-economy-recession.html?searchResultPosition=3
 
