@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-japan-politics.html?
 https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-china-economy-mlf.html?searchResultPosition=4
 
 **Crawford Stars as Blackhawks Beat Golden Knights 3-1**\
-`Corey Crawford made 48 saves in a stellar performance, and the Chicago Blackhawks beat the Vegas Golden Knights 3-1 on Sunday night to stay alive in their first-round playoff series. `\
+`The Chicago Blackhawks were in deep trouble. That's when Corey Crawford took over.`\
 https://nytimes.com/aponline/2020/08/16/sports/hockey/bc-hkn-golden-knights-blackhawks.html?searchResultPosition=5
 
 **Islamist Assault on Somali Hotel Kills at Least 15**\
