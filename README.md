@@ -1,40 +1,40 @@
+**Ex-Spanish King Confirmed to Be in UAE Amid Financial Probe**\
+`Spain’s royal household says former monarch Juan Carlos is in the United Arab Emirates, resolving a mystery over his whereabouts that has swirled in Spain since he announced he was leaving the country amid a growing financial scandal.`\
+https://nytimes.com/aponline/2020/08/17/world/europe/ap-eu-spain-former-king.html?searchResultPosition=1
+
+**India Ruling Party Denies Preferential Treatment by Facebook**\
+`Members of India's governing party on Monday rejected allegations that Facebook had chosen to turn a blind eye to partisan hate speech on its platform to protect its growing business interests in India. `\
+https://nytimes.com/aponline/2020/08/17/business/ap-as-india-facebook.html?searchResultPosition=2
+
+**TikTok Signs Music Distribution Deal With UnitedMasters**\
+`TikTok is partnering with U.S. music distribution company UnitedMasters, a deal that will allow creators on the Chinese video sharing app to directly distribute their music to streaming platforms like Spotify and Apple Music.`\
+https://nytimes.com/reuters/2020/08/17/technology/17reuters-tiktok-unitedmasters.html?searchResultPosition=3
+
 **Israel Frees Palestinian Boycott Activist From Detention**\
 `The Palestinian-led boycott movement against Israel said Monday that a campaign organizer has been released without charge by Israel after more than two weeks in detention.`\
-https://nytimes.com/aponline/2020/08/17/world/middleeast/ap-ml-israel-boycott-.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/17/world/middleeast/ap-ml-israel-boycott-.html?searchResultPosition=4
 
 **$2.7 Million Homes in California**\
 `A 1935 storybook house in Palo Alto, a midcentury-modern home in Los Angeles and an 1895 Mission Revival-style retreat in Santa Barbara.`\
-https://nytimes.com/2020/08/17/realestate/3-million-dollar-homes-for-sale-in-ca.html?searchResultPosition=2
+https://nytimes.com/2020/08/17/realestate/3-million-dollar-homes-for-sale-in-ca.html?searchResultPosition=5
 
 **What You Get for $2.7 Million in California**\
 `A 1935 storybook house in Palo Alto, a midcentury-modern home in Los Angeles and an 1895 Mission Revival-style retreat in Santa Barbara`\
-https://nytimes.com/slideshow/2020/08/17/realestate/what-you-get-for-2-7-million-in-california.html?searchResultPosition=3
+https://nytimes.com/slideshow/2020/08/17/realestate/what-you-get-for-2-7-million-in-california.html?searchResultPosition=6
 
 **Iran: Fuel en Route to Venezuela Seized by US Wasn't Iranian**\
 `The cargo of four tankers seized by the United States last week en route to Venezuela was no longer Iranian property, Iran's oil minister said Monday, insisting that the U.S. had no right to confiscate the shipment in international waters. `\
-https://nytimes.com/aponline/2020/08/17/business/ap-ml-iran-us.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/17/business/ap-ml-iran-us.html?searchResultPosition=7
 
 **Trump Defends U.S. Postal Service Changes, Supports More In-Person Voting: Fox News Interview**\
 `U.S. President Donald Trump on Monday defended his administration's efforts to implement changes at the U.S. Postal Service ahead of November's election, despite an outcry from Democrats and other critics, and said he would support efforts to expand in-person voting.`\
-https://nytimes.com/reuters/2020/08/17/us/politics/17reuters-usa-election-post-office-trump.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/08/17/us/politics/17reuters-usa-election-post-office-trump.html?searchResultPosition=8
 
 **4 Killed, at Least 20 Hurt in Cincinnati Weekend Shootings**\
 `Police in Cincinnati say three more people suffered gunshot wounds as a violent weekend that saw four killings and at least 20 injuries came to a close.`\
-https://nytimes.com/aponline/2020/08/17/us/ap-us-cincinnati-shootings.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/08/17/us/ap-us-cincinnati-shootings.html?searchResultPosition=9
 
 **Wimbledon Champion Halep Opts Out of Playing at U.S. Open**\
 `Wimbledon champion Simona Halep will skip the U.S. Open, saying Monday she is putting her health first and prefers to stay in Europe amid the coronavirus pandemic.`\
-https://nytimes.com/aponline/2020/08/17/sports/tennis/ap-ten-us-open-halep-withdraws.html?searchResultPosition=7
-
-**What to Know About the Pac-12 in the Fall**\
-`Monday: California is influencing pandemic plans for conferences nationwide. Also: A heat wave hits the state.`\
-https://nytimes.com/2020/08/17/us/pac-12-football-california.html?searchResultPosition=8
-
-**Mauritius Copes With Split Japanese Ship That Spilled Oil**\
-`Work began Monday to remove the two pieces of a grounded Japanese ship that leaked tons of oil into the protected coast of the Indian Ocean island nation of Mauritius and broke apart.`\
-https://nytimes.com/aponline/2020/08/17/world/africa/ap-af-mauritius-oil-spill.html?searchResultPosition=9
-
-**Egyptian Envoys in Gaza in Bid to Ease Tensions With Israel**\
-`Egyptian mediators were in the Gaza Strip on Monday in an effort to reduce tensions and prevent a new cross-border conflict between Israel and Palestinian militant group Hamas.`\
-https://nytimes.com/aponline/2020/08/17/world/middleeast/ap-ml-gaza-israel.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/17/sports/tennis/ap-ten-us-open-halep-withdraws.html?searchResultPosition=10
 
