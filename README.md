@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/08/16/business/16reuters-usa-stocks.html?search
 `The streaming services are in charge, and bringing a ruthless new culture with them.`\
 https://nytimes.com/2020/08/16/business/media/hollywood-studios-firings-streaming.html?searchResultPosition=5
 
-**Australia's Victoria Reports Deadliest Day of Pandemic With 25 Fatalities**\
-`Australia's second-most populous state of Victoria on Monday reported the deadliest day of the pandemic with 25 fatalities from the coronavirus in the last 24 hours and 282 new cases. `\
+**Australia Reports Deadliest Day of COVID-19 Pandemic, New Cases Steady**\
+`Australia on Monday recorded its biggest one-day rise in COVID-19 deaths, though the state at the epicentre of the country's outbreak said the number of new infections held steady.`\
 https://nytimes.com/reuters/2020/08/16/world/asia/16reuters-health-coronavirus-australia-victoria.html?searchResultPosition=6
 
 **Piscotty HR, 5 RBIs, A's Rout Giants 15-3 for 4th Win in Row**\
