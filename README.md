@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/08/17/world/europe/17reuters-belarus-election-b
 `If there's any good news for the Detroit Tigers, it's in who they're not playing on Monday.`\
 https://nytimes.com/reuters/2020/08/17/sports/17reuters-baseball-mlb-det-chw-preview.html?searchResultPosition=8
 
-**French Group Sanofi to Buy U.S. Firm Principia Biopharma for $3.7 Billion**\
-`French healthcare company Sanofi SA has agreed to buy U.S. company Principia Biopharma Inc for around $3.7 billion, the companies said on Monday, strengthening Sanofi's presence in research and development (R&D) areas.`\
+**Sanofi Snags Another U.S. Biotech Asset With $3.7 Billion Deal for Principia Biopharma**\
+`Sanofi SA is to buy U.S.-based Principia Biopharma Inc for around $3.7 billion, the companies announced on Monday, marking the French healthcare company's latest acquisition in the biotech sector.`\
 https://nytimes.com/reuters/2020/08/17/world/europe/17reuters-principia-m-a-sanofi.html?searchResultPosition=9
 
 **Official: Inmates Attacked 6 Officers at California Prison**\
