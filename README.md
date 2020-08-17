@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/08/17/world/americas/17reuters-brazil-highway.h
 `Nebraska Gov. Pete Ricketts vetoed a bill Monday that would have prohibited prison officials from blocking the view of execution witnesses before the condemned inmate is declared dead, signaling that they're willing to repeat the much-criticized step in a future execution.`\
 https://nytimes.com/aponline/2020/08/17/us/politics/ap-us-xgr-death-penalty-veto.html?searchResultPosition=7
 
-**BHP Full-Year Profit Falls 4% on Pandemic Hit**\
-`BHP Group's annual profit dipped 4.3% on Tuesday, as disruptions due to the COVID-19 pandemic overshadowed firm iron ore prices and signs of a rebound in demand from top consumer China.`\
+**BHP Profit Hit by Pandemic, Warns Growth Cooling Outside China**\
+`BHP Group reported a lower-than-expected annual profit on Tuesday, as the miner warned of slowing economic growth outside China due to the impact of a coronavirus-led downturn.`\
 https://nytimes.com/reuters/2020/08/17/business/17reuters-bhp-group-au-results.html?searchResultPosition=8
 
 **Ruling Barring Death Penalty Against Immigrant Reversed**\
