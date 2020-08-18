@@ -22,8 +22,8 @@ https://nytimes.com/2020/08/18/us/politics/bernie-sanders-michelle-obama-joe-bid
 `Hurricane Genevieve, already a Category 2 storm, was expected to strengthen further into a major hurricane Tuesday off Mexico's coast but was not forecast to reach land.`\
 https://nytimes.com/aponline/2020/08/18/world/americas/ap-lt-tropical-weather.html?searchResultPosition=6
 
-**Factbox: 'We the People'-Broad Coalition of Voices at U.S. Democratic Convention**\
-`The Democratic Party presented a parade of passionate speakers making the case for electing Joe Biden president of the United States on Monday, the first day of a virtual convention to formally nominate him as the party's nominee to face President Donald Trump in November.`\
+**Factbox: 'We the People'-Array of Voices at U.S. Democratic Convention Slam Trump, Praise Biden**\
+`The Democratic Party presented a parade of passionate speakers on Monday making the case for electing Joe Biden president of the United States, the first day of a virtual convention to formally nominate him as the party's nominee to face President Donald Trump in November.`\
 https://nytimes.com/reuters/2020/08/18/us/politics/18reuters-usa-election-convention-quotes-factbox.html?searchResultPosition=7
 
 **Key Takeaways From the First Virtual Democratic National Convention**\
