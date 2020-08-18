@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/08/18/world/europe/18reuters-health-coronavirus
 `For decades, U.S. metrologists have juggled two conflicting measurements for the foot. Henceforth, only one shall rule.`\
 https://nytimes.com/2020/08/18/science/foot-surveying-metrology-dennis.html?searchResultPosition=6
 
-**Britain's M&S to Cut 7,000 Jobs**\
-`British retailer Marks & Spencer said on Tuesday it plans to cut 7,000 jobs over the next three months as it streamlines the business for a post COVID-19 sales mix.`\
+**Britain's M&S to Shed 7,000 Jobs in Latest Blow to Retail Sector**\
+`British retailer Marks & Spencer said on Tuesday it plans to cut a further 7,000 jobs, dealing the latest blow to the country's beleaguered retail sector from the COVID-19 crisis.`\
 https://nytimes.com/reuters/2020/08/18/business/18reuters-m-s-redundancies.html?searchResultPosition=7
 
 **Asia Shares Sluggish After Wall Street's Tech-Inspired Rally**\
