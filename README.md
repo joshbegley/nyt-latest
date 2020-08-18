@@ -1,40 +1,40 @@
+**Will 2020’s Election Be the End of Our Democracy?**\
+`A free and fair vote and the prospect of a peaceful transfer of power are both in question.`\
+https://nytimes.com/2020/08/18/opinion/2020-voting-postal-service.html?searchResultPosition=1
+
+**Amer Fakhoury, Released From Jail in Lebanon After U.S. Pressure, Dies at 57**\
+`Mr. Fakhoury, an American citizen, was detained in Lebanon on charges related to the torture of Lebanese prisoners decades ago.`\
+https://nytimes.com/2020/08/18/world/middleeast/amer-fakhoury-dead.html?searchResultPosition=2
+
+**Astros Top Rockies 2-1 in 11; Greinke, Senzatela Fine Thru 9**\
+`Myles Straw’s RBI single with one out in the 11th inning lifted the Houston Astros over the Colorado Rockies 2-1 on Tuesday, extending their winning streak to a season-high six games.`\
+https://nytimes.com/aponline/2020/08/18/sports/baseball/bc-bbo-rockies-astros-1st-ld-writethru.html?searchResultPosition=3
+
+**West Africa Regional Bloc Closes Borders With Mali After President Detained**\
+`The Economic Community of West African States (ECOWAS) said on Tuesday it had decided to close its member states' borders with Mali after mutinying soldiers detained President Ibrahim Boubacar Keita. `\
+https://nytimes.com/reuters/2020/08/18/world/africa/18reuters-mali-security-ecowas.html?searchResultPosition=4
+
+**Walz Administration Keeps Up Fight Against Line 3**\
+`Gov. Tim Walz's administration said Tuesday it will appeal the latest approvals by state utility regulators for Enbridge Energy's plan to replace its old and corroding Line 3 crude oil pipeline across northern Minnesota.`\
+https://nytimes.com/aponline/2020/08/18/business/ap-us-enbridge-energy-line-3-.html?searchResultPosition=5
+
+**Reeling From a Storm, Iowans Worry They Have Been Forgotten**\
+`In Cedar Rapids, where President Trump stopped briefly on Tuesday, thousands of people are unable to return to their homes after devastating winds tore through the state.`\
+https://nytimes.com/2020/08/18/us/iowa-storm-derecho.html?searchResultPosition=6
+
 **Urban Gardening Through the Apocalypse**\
 `When my daughters look back on the plague year and all its horrors, I hope they also remember the flowers.`\
-https://nytimes.com/2020/08/18/opinion/pandemic-gardening-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2020/08/18/opinion/pandemic-gardening-coronavirus.html?searchResultPosition=7
 
 **Belarus Leader Rejects Compromise and Pours Scorn on Opposition**\
 `Showing no signs of yielding, President Aleksandr Lukashenko denounced a new opposition council as “wild Nazis.” The Kremlin warned European leaders not to get involved in the unrest in Belarus.`\
-https://nytimes.com/2020/08/18/world/europe/belarus-protests-lukashenko.html?searchResultPosition=2
+https://nytimes.com/2020/08/18/world/europe/belarus-protests-lukashenko.html?searchResultPosition=8
 
 **Texas Governor Proposes Freezing Taxes in Cities That ‘Defund’ Police**\
 `Reacting to a vote in Austin to cut millions from its police budget, Gov. Greg Abbott is backing legislation to deprive cities of control over a major revenue source if they follow suit.`\
-https://nytimes.com/2020/08/18/us/texas-abbott-police-defund-austin.html?searchResultPosition=3
+https://nytimes.com/2020/08/18/us/texas-abbott-police-defund-austin.html?searchResultPosition=9
 
 **Coronavirus Briefing: What Happened Today**\
 `Socializing has become a significant source of resurgences.`\
-https://nytimes.com/2020/08/18/us/coronavirus-today.html?searchResultPosition=4
-
-**Public Lands Chief Hangs on Despite Nomination Getting Nixed**\
-`A former oil industry attorney will continue calling the shots for a government agency that oversees nearly a quarter-billion public acres in the U.S. West, despite the White House saying over the weekend that President Donald Trump would withdraw the nomination of William Perry Pendley.`\
-https://nytimes.com/aponline/2020/08/18/us/ap-us-trump-public-lands.html?searchResultPosition=5
-
-**Ecuador Says Some Chinese Vessels Near Galapagos Have Cut Communications Systems**\
-`Ecuador's armed forces said on Tuesday that dozens of vessels from a predominantly Chinese fishing fleet that is operating near the Galapagos Islands have turned off tracking systems to prevent monitoring of their activities.`\
-https://nytimes.com/reuters/2020/08/18/world/americas/18reuters-ecuador-environment-china.html?searchResultPosition=6
-
-**Butler, Dragic Help Heat Pull Away to Beat Pacers in Game 1**\
-`Jimmy Butler scored 28 points, Goran Dragic had 24 and the Miami Heat beat the Indiana Pacers 113-101 on Tuesday in the opener of their Eastern Conference first-round series.`\
-https://nytimes.com/aponline/2020/08/18/sports/basketball/ap-bkn-heat-pacers.html?searchResultPosition=7
-
-**Magnitude 6.8 Quake Strikes Southern Sumatra, Indonesia: EMSC**\
-`An earthquake of magnitude 6.8 struck Southern Sumatra in Indonesia on Wednesday, the European Mediterranean Seismological Centre (EMSC) said.`\
-https://nytimes.com/reuters/2020/08/18/world/asia/18reuters-indonesia-quake.html?searchResultPosition=8
-
-**Prosecutor Faces Scrutiny From Voters, Panel Over Smollett**\
-`Chicago's top prosecutor isn’t clear of the yearlong scrutiny of her office’s handling of the Jussie Smollett case, even though a special prosecutor this week concluded that nothing she or her staff did qualified as criminal. `\
-https://nytimes.com/aponline/2020/08/18/us/ap-us-jussie-smollett-foxx-qa.html?searchResultPosition=9
-
-**'Chariots of Fire' Star Ben Cross Dies After Short Illness**\
-`Ben Cross, an actor who starred in the Oscar Award-winning film “Chariots of Fire” and “Star Trek,” has died. He was 72. `\
-https://nytimes.com/aponline/2020/08/18/us/ap-us-obit-ben-cross.html?searchResultPosition=10
+https://nytimes.com/2020/08/18/us/coronavirus-today.html?searchResultPosition=10
 
