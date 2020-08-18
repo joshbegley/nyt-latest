@@ -1,40 +1,40 @@
-**For Black Jam Makers, the Power Is in Preserving**\
-`As the conversation turns to racial issues in the craft food movement, canning quality fruit is often the easy part.`\
-https://nytimes.com/2020/08/18/dining/black-jam-makers.html?searchResultPosition=1
+**Russian Major-General Dies, Three Servicemen Injured After Blast in Syria: RIA**\
+`A Russian major-general died and three other servicemen were injured after a bomb exploded in the path of a Russian military convoy near Deir al Zor in Syria, the RIA news agency cited the defence ministry as saying on Tuesday.`\
+https://nytimes.com/reuters/2020/08/18/world/europe/18reuters-syria-security-russia.html?searchResultPosition=1
 
-**Brazil Police Say That Indigenous Protest Continues to Block Key Grain Highway**\
-`Indigenous protesters continued to block key Brazilian grain highway BR-163, which links towns in the nation's biggest farm state Mato Grosso to the port of Miritituba, an important export gateway, highway police in Santarém said on Tuesday.`\
-https://nytimes.com/reuters/2020/08/18/world/americas/18reuters-health-coronavirus-brazil-indigenous.html?searchResultPosition=2
+**Russia Jails Anti-Kremlin Activist Over Putin Mannequin Stunt**\
+`A Russian court on Tuesday sentenced an anti-Kremlin activist to two years in prison for displaying a life-size mannequin of President Vladimir Putin in a striped prison jumpsuit on a street in the city of Perm. `\
+https://nytimes.com/reuters/2020/08/18/world/europe/18reuters-russia-politics-putin-activists.html?searchResultPosition=2
 
-**Ethiopia PM Fires Defence Minister, a One-Time Ally, in Major Reshuffle**\
-`Prime Minister Abiy Ahmed on Tuesday replaced the defence minister, his former ally Lemma Megersa, as part of a reshuffle ahead of elections in the heavily divided nation next year.`\
-https://nytimes.com/reuters/2020/08/18/world/africa/18reuters-ethiopia-politics.html?searchResultPosition=3
+**Individual Tests Positive for COVID-19 at U.S. Open Bubble**\
+`A non-player has tested positive for COVID-19 within the controlled environment that will host this year's Western & Southern Open and U.S. Open in New York over the next month, the United States Tennis Association said on Tuesday.`\
+https://nytimes.com/reuters/2020/08/18/sports/tennis/18reuters-health-coronavirus-tennis-usopen.html?searchResultPosition=3
 
-**US, Russia Still at Odds Over New Nuclear Arms Treaty**\
-`The United States and Russia concluded two days of arms control talks Tuesday with the two sides still at odds over the U.S. demand to include China in any new treaty but showing signs of a possible willingness to extend the existing New START deal, which expires next year.`\
-https://nytimes.com/aponline/2020/08/18/world/europe/ap-eu-us-russia-nuclear.html?searchResultPosition=4
+**Russian Jets Bomb Opposition-Held Idlib: Witnesses**\
+`Jets believed to be Russian bombed several towns in rebel-held northwestern Syria in a new flare-up of violence since a Turkish-Russian deal that halted major fighting nearly six months ago, witnesses said.`\
+https://nytimes.com/reuters/2020/08/18/world/europe/18reuters-syria-crisis-russia-idlib.html?searchResultPosition=4
 
-**COVID-19 Cases in Americas Reach 11.5 Million, Deaths 400,000: WHO Director**\
-`Coronavirus cases in the Americas have reached almost 11.5 million and over 400,000 people have died as a result of the pandemic, the World Health Organization regional director Carissa Etienne said on Tuesday.`\
-https://nytimes.com/reuters/2020/08/18/world/americas/18reuters-health-coronavirus-latam.html?searchResultPosition=5
+**Reds-Royals Postponed Due to COVID-19; Doubleheader on Deck**\
+`The game between Cincinnati and Kansas City scheduled for Tuesday will be played as part of a doubleheader Wednesday so that the Reds can do additional testing after a player tested positive for COVID-19 over the weekend.`\
+https://nytimes.com/aponline/2020/08/18/sports/baseball/ap-bbo-reds-royals-ppd.html?searchResultPosition=5
 
-**Report: Chargers' Ingram Dissatisfied With Contract**\
-`Los Angeles Chargers defensive end Melvin Ingram is sitting out practice at training camp due to dissatisfaction with his current contract, The Athletic reported on Monday night.`\
-https://nytimes.com/reuters/2020/08/18/sports/football/18reuters-football-nfl-lac-ingram.html?searchResultPosition=6
+**What Louisa May Alcott and Others Wrote About Suffrage**\
+`‘Let my name stand among those who are willing to bear ridicule and reproach for the truth’s sake, and so earn some right to rejoice when the victory is won.’`\
+https://nytimes.com/interactive/2020/08/18/books/suffrage-authors.html?searchResultPosition=6
 
-**Andretti Is a Familiar Name in an Unfamiliar Place: The Pole**\
-`Marco Andretti is the first from his storied racing family to qualify on top for the Indy 500 since 1987.`\
-https://nytimes.com/2020/08/18/sports/autoracing/marco-andretti-pole-indy-500.html?searchResultPosition=7
+**Cyprus Says Willing to Engage on Defining Maritime Zones**\
+`Cyprus said on Tuesday it was willing to engage with all its neighbours on defining maritime boundaries, amid a tense stand-off with Turkey in the eastern Mediterranean over jurisdiction in the energy-rich waters.`\
+https://nytimes.com/reuters/2020/08/18/world/europe/18reuters-greece-turkey-cyprus.html?searchResultPosition=7
 
-**UK Records 1,089 New COVID-19 Cases**\
-`The United Kingdom recorded 1,089 new positive cases of COVID-19 on Tuesday, up from 713 on Monday, government figures showed. `\
-https://nytimes.com/reuters/2020/08/18/world/europe/18reuters-health-coronavirus-britain-cases.html?searchResultPosition=8
+**UAE Sees 'Alarming' Increase in Coronavirus Cases**\
+`An increase in the number of coronavirus cases over the past two weeks is "alarming" and may herald further increases in the near future, the United Arab Emirates' health minister said on Tuesday.  `\
+https://nytimes.com/reuters/2020/08/18/world/middleeast/18reuters-health-coronavirus-emirates.html?searchResultPosition=8
 
-**UK Rates of Depression Double Among Adults During Lockdown**\
-`Rates of depression appear to have almost doubled in Britain since the country was put into lockdown in late March as a result of the coronavirus pandemic, according to the country's official statistics agency.`\
-https://nytimes.com/aponline/2020/08/18/business/bc-eu-virus-outbreak-britain-depression.html?searchResultPosition=9
+**Flint, Business Group Settle Lawsuit Over Boy's Handcuffing**\
+`A Michigan city and a business group have agreed to pay $40,000 to settle a lawsuit over the handcuffing of a 7-year-old boy at an after-school program in 2015.`\
+https://nytimes.com/aponline/2020/08/18/us/ap-us-handcuffed-child.html?searchResultPosition=9
 
-**'Ball Is in Russia's Court' on Nuclear Arms Deal, U.S. Says**\
-`The United States has informed Russia of its terms for extending a landmark treaty that limits their deployed strategic nuclear weapons and expires in February, and now it is Russia's move, the U.S. envoy to arms control talks said on Tuesday.`\
-https://nytimes.com/reuters/2020/08/18/world/europe/18reuters-usa-russia-nuclear.html?searchResultPosition=10
+**Putin, Lukashenko Speak Again by Phone: Belta**\
+`Russian President Vladimir Putin held a third phone call in four days with Belarusian leader Alexander Lukashenko on Tuesday amid protests and strikes in Belarus following contested elections, the Belta news agency reported. `\
+https://nytimes.com/reuters/2020/08/18/world/europe/18reuters-belarus-election-putin-lukashenko.html?searchResultPosition=10
 
