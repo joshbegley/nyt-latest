@@ -18,7 +18,7 @@ https://nytimes.com/aponline/2020/08/17/business/ap-as-north-korea-party-meeting
 `Luke Voit homered twice, Aroldis Chapman returned from the COVID-19 injured list to pitch the ninth inning and the New York Yankees beat the Boston Red Sox 6-3 Monday night for their 10th straight victory in the famed rivalry.`\
 https://nytimes.com/aponline/2020/08/17/sports/baseball/ap-bba-red-sox-yankees.html?searchResultPosition=5
 
-**Full Michelle Obama D.N.C. Speech Transcript and Video**\
+**Full Michelle Obama D.N.C. Speech Transcript**\
 `Michelle Obama, the former first lady, was the keynote speaker on the first night of the 2020 Democratic National Convention.`\
 https://nytimes.com/2020/08/17/us/politics/Michelle-Obama-speech-transcript-video.html?searchResultPosition=6
 
