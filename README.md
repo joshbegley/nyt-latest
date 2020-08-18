@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/08/18/world/europe/18reuters-belarus-election-p
 https://nytimes.com/reuters/2020/08/18/world/asia/18reuters-china-food-wastage.html?searchResultPosition=8
 
 **Millions WFH and Home Depot Sales Explode**\
-`With millions of people staring at their walls working from home, sales at Home Depot surged in the second quarter, with same-stores sales in the U.S. spiking 25%. `\
+`With millions of people staring at their walls while working from home, sales at Home Depot surged in the second quarter, with same-stores sales in the U.S. spiking 25%. `\
 https://nytimes.com/aponline/2020/08/18/business/ap-us-home-depot-results.html?searchResultPosition=9
 
 **A Century of Suffrage**\
