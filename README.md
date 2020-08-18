@@ -6,7 +6,7 @@ https://nytimes.com/reuters/2020/08/18/sports/18reuters-golf-northerntrust-rahm.
 `U.S. Open organisers said on Tuesday that they were happy with the slate of competitors for this year's tournament, despite numerous dropouts by high-profile names amid the ongoing COVID-19 outbreak.`\
 https://nytimes.com/reuters/2020/08/18/sports/tennis/18reuters-tennis-usopen.html?searchResultPosition=2
 
-**Vucevic, Magic Upset Top-Seeded Bucks in Game 1, 122-110**\
+**Vucevic, Magic Upset Top-Seeded Bucks in NBA Playoff Opener**\
 `Nikola Vucevic scored a playoff career-high 35 points and had 14 rebounds, and the Orlando Magic stunned the top-seeded Milwaukee Bucks 122-110 on Tuesday in the playoff opener of the NBA's pandemic-altered season.`\
 https://nytimes.com/aponline/2020/08/18/sports/basketball/bc-bkn-magic-bucks.html?searchResultPosition=3
 
