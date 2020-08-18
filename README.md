@@ -32,7 +32,7 @@ https://nytimes.com/reuters/2020/08/18/world/middleeast/18reuters-ukraine-israel
 
 **Ady Barkan on Progressives’ Future Under Biden**\
 `After learning in 2016 that he had a terminal neurodegenerative disease, Mr. Barkan became a champion of ‘Medicare for all.’ He spoke with The Times ahead of his speech on Tuesday night at the Democratic National Convention.`\
-https://nytimes.com/2020/08/18/us/elections/ady-barkan-on-progressives-future-under-biden.html?searchResultPosition=9
+https://nytimes.com/2020/08/18/us/politics/ady-barkan-on-progressives-future-under-biden.html?searchResultPosition=9
 
 **Bully’s Alicia Bognanno Is Revealing Herself, One Rock Song at a Time**\
 `The singer, songwriter and guitarist writes frankly about having bipolar II disorder on “Sugaregg,” the first album she’s made as a solo project.`\
