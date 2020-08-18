@@ -18,13 +18,13 @@ https://nytimes.com/aponline/2020/08/18/us/ap-us-film-tenet-early-screenings.htm
 `Nigeria's naira fell 1.04% on Tuesday to a low of 480 on the black market after the government said it would reopen airports for international travel in two weeks' time, a move that could increase dollar demand, traders said.    `\
 https://nytimes.com/reuters/2020/08/18/world/africa/18reuters-health-coronavirus-nigeria-currency.html?searchResultPosition=5
 
-**Your Wednesday Briefing**\
-`Hong Kong outbreak, TikTok, Hariri verdict: Here’s what you need to know.`\
-https://nytimes.com/2020/08/18/briefing/hong-kong-outbreak-india-tiktok.html?searchResultPosition=6
-
 **Israeli Court: Damascus Bibles to Stay in National Library**\
 `A quarter century after Israeli spies, a Canadian activist and a Syrian rabbi smuggled nine rare medieval Jewish manuscripts out of Damascus, an Israeli court decided the books will remain under the National Library’s custodianship for their preservation.`\
-https://nytimes.com/aponline/2020/08/18/world/middleeast/ap-ml-israel-damascus-bibles.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/08/18/world/middleeast/ap-ml-israel-damascus-bibles.html?searchResultPosition=6
+
+**Your Wednesday Briefing**\
+`Hong Kong outbreak, TikTok, Hariri verdict: Here’s what you need to know.`\
+https://nytimes.com/2020/08/18/briefing/hong-kong-outbreak-india-tiktok.html?searchResultPosition=7
 
 **Ballot Drop Boxes Seen as a Way to Bypass the Post Office**\
 `With the Trump administration openly trying to undermine mail-in voting this fall, some election officials around the country are hoping to bypass the Postal Service by installing lots of ballot drop boxes in libraries, community centers and other public places.`\
