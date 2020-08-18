@@ -35,6 +35,6 @@ https://nytimes.com/2020/08/18/world/gisele-halimi-influential-french-lawyer-and
 https://nytimes.com/interactive/2020/08/18/us/politics/live-dnc-stream-analysis.html?searchResultPosition=9
 
 **Manhattan Vacancy Rate Climbs, and Rents Drop 10%**\
-`There were more than 67,300 units available in July across the city as it tries rebound from the coronavirus outbreak.`\
+`There were more than 67,300 units available in July across the city as it tries to rebound from the coronavirus outbreak.`\
 https://nytimes.com/2020/08/18/nyregion/nyc-vacant-apartments.html?searchResultPosition=10
 
