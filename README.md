@@ -1,5 +1,5 @@
 **Trudeau’s Finance Minister Quits Post Amid Charity Scandal**\
-`Bill Morneau insisted his stepping down was not related to a conflict-of-interest controversy that has embroiled him and Prime Minister Justin Trudeau.`\
+`Bill Morneau insisted his stepping down was not related to a conflict-of-interest controversy that has embroiled him and Prime Minister Justin Trudeau of Canada.`\
 https://nytimes.com/2020/08/17/world/canada/finance-minister-resigns-trudeau.html?searchResultPosition=1
 
 **North Korea to Convene Key Party Meeting to Discuss Economy, Military**\
