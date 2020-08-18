@@ -1,40 +1,40 @@
+**Rahm Unsure About Defending European Tour Titles Amid COVID-19**\
+`Spaniard Jon Rahm enjoyed plenty of success on the European Tour last year but the world number one said on Tuesday he may not defend any of his titles because of the COVID-19 outbreak.`\
+https://nytimes.com/reuters/2020/08/18/sports/18reuters-golf-northerntrust-rahm.html?searchResultPosition=1
+
+**U.S. Open Organisers Pleased With Lineup, Despite Tournament Dropouts**\
+`U.S. Open organisers said on Tuesday that they were happy with the slate of competitors for this year's tournament, despite numerous dropouts by high-profile names amid the ongoing COVID-19 outbreak.`\
+https://nytimes.com/reuters/2020/08/18/sports/tennis/18reuters-tennis-usopen.html?searchResultPosition=2
+
+**Vucevic, Magic Upset Top-Seeded Bucks in Game 1, 122-110**\
+`Nikola Vucevic scored a playoff career-high 35 points and had 14 rebounds, and the Orlando Magic stunned the top-seeded Milwaukee Bucks 122-110 on Tuesday in the playoff opener of the NBA's pandemic-altered season.`\
+https://nytimes.com/aponline/2020/08/18/sports/basketball/bc-bkn-magic-bucks.html?searchResultPosition=3
+
+**Investigators Search for Oklahoma Girls Missing Since 1999**\
+`Investigators began searching on Tuesday at a site in the former northeastern Oklahoma town of Picher for the remains of two teenage girls who disappeared in 1999. `\
+https://nytimes.com/aponline/2020/08/18/us/ap-us-oklahoma-cold-case-arrest.html?searchResultPosition=4
+
+**Man Accused of Eating Girlfriend's Organs Fit for Trial**\
+`A southern Indiana man accused of killing his ex-girlfriend and eating parts of her body has been found competent to stand trial next month.`\
+https://nytimes.com/aponline/2020/08/18/us/ap-us-woman-mutilated.html?searchResultPosition=5
+
+**Washington Football Team Gets Hitting at 'Fresh Start' Camp**\
+`The only visual reminder of the past is etched into the side of the trash cans.`\
+https://nytimes.com/aponline/2020/08/18/sports/football/ap-fbn-washington-no-name-camp.html?searchResultPosition=6
+
+**Venezuela Baseball League Warns Season Could Be Suspended Due to COVID-19**\
+`Venezuela's professional baseball league (LVBP) warned on Tuesday that its 2020-2021 season could be delayed or suspended due to the coronavirus outbreak, furthering complications already added by U.S. sanctions. `\
+https://nytimes.com/reuters/2020/08/18/sports/baseball/18reuters-health-coronavirus-venezuela-baseball.html?searchResultPosition=7
+
+**Prosecutor Seeks No Bail for Ex-CIA Officer in Spying Case**\
+`U.S. prosecutors are asking that a former CIA officer and contract linguist for the FBI be held without bail on charges of spying for China. `\
+https://nytimes.com/aponline/2020/08/18/us/ap-us-cia-officer-spying-.html?searchResultPosition=8
+
 **What It Means to Home-School**\
 `Portraits of families who opted-out of — or had to leave — traditional education.`\
-https://nytimes.com/2020/08/18/parenting/homeschool-coronavirus.html?searchResultPosition=1
+https://nytimes.com/2020/08/18/parenting/homeschool-coronavirus.html?searchResultPosition=9
 
 **Amazon, Meritage Homes Rise; Kohl's, Big Lots Fall**\
 `Stocks that moved heavily or traded substantially Tuesday:`\
-https://nytimes.com/aponline/2020/08/18/business/ap-financial-markets-stocks.html?searchResultPosition=2
-
-**A Family Looks Back on Their Hybrid Home-School Experience**\
-`Seven perspectives on home-schooling in the 80s and 90s.`\
-https://nytimes.com/2020/08/18/parenting/homeschool-siblings.html?searchResultPosition=3
-
-**Kids Seeking Asylum Find Some Measure of It in One Makeshift School**\
-`When the pandemic hit, volunteers had to find creative ways to educate migrant children living in limbo near the U.S.-Mexico border.`\
-https://nytimes.com/2020/08/18/parenting/migrant-children-school-border.html?searchResultPosition=4
-
-**The Freedom and Fulfillment of Home-Schooling**\
-`Nine families shared with us why they chose to educate their children outside the traditional school system.`\
-https://nytimes.com/2020/08/18/parenting/homeschool-families.html?searchResultPosition=5
-
-**Cuba Gooding Jr. Accused of Rape in Civil Suit as He Awaits Groping Trial**\
-`A woman says Mr. Gooding raped her twice after coaxing her to his hotel room in New York in 2013. His lawyer says the accusations are false.`\
-https://nytimes.com/2020/08/18/arts/cuba-gooding-jr-lawsuit.html?searchResultPosition=6
-
-**2 Rangers Suspended for Throwing Behind Hitter After Slam**\
-`Rangers manager Chris Woodard was serving a one-game suspension during Tuesday's game against the Padres a day after Texas reliever Ian Gibaut threw behind San Diego hitter Manny Machado following a grand slam.`\
-https://nytimes.com/aponline/2020/08/18/sports/baseball/ap-bbn-rangers-suspensions.html?searchResultPosition=7
-
-**Tension With Washington Helps Fuel Turkey-Venezuela Alliance**\
-`At first glance, they seem like an odd couple. `\
-https://nytimes.com/aponline/2020/08/18/world/americas/ap-lt-venezuela-turkey.html?searchResultPosition=8
-
-**Prosecutors Seek Prison for Ex-Soldier They Say Is Satanist**\
-`A former Army soldier who prosecutors said is a Satanist who hoped to overthrow the U.S. government should spend around three years in prison for providing viable instructions for building explosive devices to people who wanted to commit violence, the government argued Tuesday.`\
-https://nytimes.com/aponline/2020/08/18/us/ap-us-soldier-bomb-plot.html?searchResultPosition=9
-
-**What to Watch: Second Night of the 2020 Democratic National Convention**\
-`Democrats on Tuesday night will focus on the themes of national security, American unity and generational change. Bill Clinton and John Kerry, standard bearers from the party’s past, will speak alongside those representing its future, like Alexandria Ocasio-Cortez.`\
-https://nytimes.com/article/dnc-2020.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/18/business/ap-financial-markets-stocks.html?searchResultPosition=10
 
