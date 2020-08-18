@@ -26,7 +26,7 @@ https://nytimes.com/2020/08/18/us/how-to-help-derecho-iowa.html?searchResultPosi
 `Her cases were often precedent-setting and helped shift French laws and attitudes about abortion and women’s rights.`\
 https://nytimes.com/2020/08/18/world/gisele-halimi-influential-french-lawyer-and-feminist-dies-at-93.html?searchResultPosition=7
 
-**Democratic National Convention Chat and Analysis**\
+**Democratic National Live Convention Chat and Analysis**\
 `Bill Clinton and Jill Biden are headlining the second night of the Democratic National Convention. Watch here and follow our reporters’ real-time analysis.`\
 https://nytimes.com/interactive/2020/08/18/us/politics/live-dnc-stream-analysis.html?searchResultPosition=8
 
