@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/08/18/world/middleeast/18reuters-israel-emirate
 https://nytimes.com/aponline/2020/08/18/sports/basketball/ap-bkn-mavericks-doncics-debut.html?searchResultPosition=5
 
 **Highlights From the Democratic National Convention: Night 1**\
-`In their first virtual convention, Democrats made their case for Joseph R. Biden Jr. with a mix of recorded programming and notable speakers delivering live remarks.`\
+`In the first night of their first virtual convention, Democrats made their case for Joseph R. Biden Jr. with a mix of recorded programming and notable speakers delivering live remarks.`\
 https://nytimes.com/video/us/politics/100000007293656/democratic-national-convention-highlights.html?searchResultPosition=6
 
 **Mortar Shells Strike Kabul as Afghans Mark Independence Day**\
