@@ -2,8 +2,8 @@
 `Texas Gov. Greg Abbott on Tuesday proposed punishing cities that cut police funding by freezing property tax revenue, the main funding source for local government services including schools, roads and law enforcement.`\
 https://nytimes.com/aponline/2020/08/18/us/ap-us-racial-injustice-texas-funding.html?searchResultPosition=1
 
-**Large Earthquake Hits Off the Coast of Sumatra, Indonesia**\
-`A large earthquake struck Wednesday off the coast of the Indonesian island of Sumatra, the U.S. Geological Survey reported. `\
+**2 Strong Earthquakes Shake Western Indonesia; No Casualties**\
+`Two powerful and shallow undersea earthquakes shook western Indonesia on Wednesday, causing panic but no immediate reports of casualties or damage.`\
 https://nytimes.com/aponline/2020/08/18/us/ap-as-indonesia-earthquake.html?searchResultPosition=2
 
 **'60 Minutes' Leads Quiet Week in Nielsen Ratings**\
