@@ -30,7 +30,7 @@ https://nytimes.com/aponline/2020/08/18/world/asia/ap-as-china-floods.html?searc
 `Connecticut on Tuesday will release the results of an independent review of its early approach to nursing homes ravaged by the coronavirus pandemic, tackling the source of most of its deaths and the main blight on its COVID-19 response.`\
 https://nytimes.com/reuters/2020/08/18/us/18reuters-health-coronavirus-usa-connecticut.html?searchResultPosition=8
 
-**Taiwan-Based Apple Supplier Catcher to Sell Two Divisions to China's Lens**\
+**Taiwan-Based Apple Supplier Catcher to Sell Two Divisions to China's Lens for $1.4 Billion**\
 `Taiwan-based Catcher Technology, a supplier to Apple Inc, has agreed to sell two units from its Lyra International division in China to Hunan-based Lens Technology Co for $1.43 billion, a company filing showed.`\
 https://nytimes.com/reuters/2020/08/18/technology/18reuters-catcher-lens-apple.html?searchResultPosition=9
 
