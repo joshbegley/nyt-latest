@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/08/18/world/africa/18reuters-mali-politics-prot
 `The first night of the pandemic-era TV convention was intense and sometimes weird. That was part of the message.`\
 https://nytimes.com/2020/08/18/arts/television/dnc-michelle-obama.html?searchResultPosition=4
 
-**Masks to Be Compulsory in Vast Majority of French Workplaces: Government**\
-`Masks will be compulsory in workplaces in France, apart from individual offices where only one employee is present, the French employment ministry said on Tuesday, as the government looks to fight against a resurgence of the COVID-19 pandemic.`\
+**France to Make Masks Compulsory in Most Workplaces**\
+`The French government plans to make wearing a mask compulsory in the vast majority of workplaces to try to stop a resurgence of the COVID-19 pandemic.`\
 https://nytimes.com/reuters/2020/08/18/world/europe/18reuters-health-coronavirus-france-office.html?searchResultPosition=5
 
 **Sweden Temporarily Pulls Its Diplomats Out of North Korea**\
