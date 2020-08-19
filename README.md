@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/08/19/world/africa/19reuters-mali-security-chin
 https://nytimes.com/reuters/2020/08/19/sports/cycling/19reuters-cycling-france-ineos.html?searchResultPosition=5
 
 **Mali Soldiers Behind Coup Take to Airwaves, Promise Handover**\
-`The Malian soldiers who forced President Ibrahim Boubacar Keita to resign in a coup promised early Wednesday to organize new elections after their takeover condemned by the international community.`\
+`The Malian soldiers who forced President Ibrahim Boubacar Keita to resign in a coup promised early Wednesday to organize new elections after their takeover was swiftly condemned by the international community.`\
 https://nytimes.com/aponline/2020/08/19/world/africa/ap-af-mali-crisis.html?searchResultPosition=6
 
 **Marriott Faces London Lawsuit Over Vast Data Breach**\
