@@ -18,8 +18,8 @@ https://nytimes.com/aponline/2020/08/19/us/ap-us-racial-injustice-lee-statue.htm
 `The U.S. Food and Drug Administration has declined to approve BioMarin Pharmaceutical Inc's gene therapy for bleeding disorder hemophilia A, citing the need for two-year data on the therapy, the drugmaker said on Wednesday.`\
 https://nytimes.com/reuters/2020/08/19/us/19reuters-biomarin-pharma-fda.html?searchResultPosition=5
 
-**TJX's Second-Quarter Sales Beat Estimates**\
-`Off-price retailer TJX Cos Inc on Wednesday beat market estimates for quarterly net sales, helped by strong demand for home-improvement products from consumers stuck indoors during the coronavirus lockdown.`\
+**TJX Posts Bigger-Than-Expected Quarterly Loss on Store Closures**\
+`Off-price retailer TJX Cos Inc on Wednesday posted a bigger-than-expected quarterly loss, as its stores were shuttered for nearly one-thirds of the quarter due to the lockdown, sending its shares down 5% in premarket trading.`\
 https://nytimes.com/reuters/2020/08/19/business/19reuters-tjx-results.html?searchResultPosition=6
 
 **California Urges More Conservation to Avoid Power Outages During Heat Wave**\
