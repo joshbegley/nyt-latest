@@ -1,40 +1,40 @@
+**Your Thursday Briefing**\
+`Hubei officials, Apple, Kiribati: Here’s what you need to know.`\
+https://nytimes.com/2020/08/19/briefing/hubei-officials-australian-vaccine-apple.html?searchResultPosition=1
+
+**Attorney General Barr Won't Seek Death Penalty Against British Islamic State Execution Squad Members**\
+`U.S. Attorney General William Barr has informed British authorities the U.S. will not seek the death penalty if two British Islamic State execution squad members, nicknamed the "Beatles," are extradited to the United States.`\
+https://nytimes.com/reuters/2020/08/19/world/europe/19reuters-usa-justice-beatles.html?searchResultPosition=2
+
+**Column: For Shawn Porter, Beating Up Dad Was Just the Start**\
+`The coronavirus pandemic-caused lockdown had just begun, and former welterweight champion Shawn Porter needed a place to train.`\
+https://nytimes.com/aponline/2020/08/19/sports/ap-box-tim-dahlberg-boxing-porters.html?searchResultPosition=3
+
+**Point's OT Winner Lifts Lightning Over Jackets 5-4 in Game 5**\
+`The Tampa Bay Lightning eliminated Columbus from the Stanley Cup playoffs in five games on Wednesday, rallying from a two-goal, third-period deficit before beating the Blue Jackets 5-4 on Brayden Point's goal 5:12 into overtime.`\
+https://nytimes.com/aponline/2020/08/19/sports/hockey/bc-hkn-blue-jackets-lightning.html?searchResultPosition=4
+
+**U.S. Eyes October Deadline to End Exemptions on Venezuela Oil Sanctions: Sources**\
+`The United States is considering an October deadline for ending exemptions to Venezuelan sanctions that allow some companies and refiners to still receive the South American producer's oil, two sources said, as Washington seeks to raise the heat on President Nicolas Maduro.   `\
+https://nytimes.com/reuters/2020/08/19/world/19reuters-usa-venezuela-oil-sanctions.html?searchResultPosition=5
+
+**AG: Delaware Officers Justified in Killing Armed Black Man**\
+`Two Delaware police officers were justified in using deadly force earlier this year against a Black man armed with a knife, the state attorney general’s office has concluded.`\
+https://nytimes.com/aponline/2020/08/19/us/ap-us-fatal-police-shooting-delaware.html?searchResultPosition=6
+
+**Canada's Freeland No Longer to Spearhead U.S. Relations as Finance Minister: Sources**\
+`Canada's Chrystia Freeland will no longer be in charge of spearheading diplomatic relations with the United States now that she is the new finance minister, three government sources told Reuters on Wednesday.`\
+https://nytimes.com/reuters/2020/08/19/world/americas/19reuters-canada-usa-freeland.html?searchResultPosition=7
+
+**U.N. Tribunal Verdict Does Not Concern Hezbollah, Says MP**\
+`Lebanon's Hezbollah movement is not concerned with and will not "evaluate" the verdict of a U.N.-backed tribunal that convicted a member of the group of the 2005 killing of former premier Rafik al-Hariri, Hezbollah MP Hassan Fadlallah said on Wednesday.`\
+https://nytimes.com/reuters/2020/08/19/world/middleeast/19reuters-lebanon-tribunal-hariri-hezbollah.html?searchResultPosition=8
+
 **Anticipating Fall and Looking for Constants**\
 `Music can provide a rhythm to the days.`\
-https://nytimes.com/2020/08/19/at-home/newsletter.html?searchResultPosition=1
+https://nytimes.com/2020/08/19/at-home/newsletter.html?searchResultPosition=9
 
 **Guatemalan Man Seeking Asylum Drowns Along US-Mexico Border**\
 `A Guatemalan man who had been living in a makeshift migrant camp while waiting to petition the U.S. government for asylum drowned in the Rio Grande near Brownsville, Texas, aid workers said Wednesday.`\
-https://nytimes.com/aponline/2020/08/19/us/ap-migrant-death-river.html?searchResultPosition=2
-
-**US Won't Seek Death Penalty Against Pair of IS Militants**\
-`The Justice Department has notified the British government that it will not pursue the death penalty against two Islamic State militants suspected in the beheadings of Western hostages, removing a hurdle in the potential prosecution of the men in the United States.`\
-https://nytimes.com/aponline/2020/08/19/us/politics/ap-us-justice-department-islamic-state.html?searchResultPosition=3
-
-**Greek National Security Adviser Resigns Over Turkey Remarks**\
-`Greek Prime Minister Kyriakos Mitsotakis' top national security adviser stepped down Wednesday after suggesting that Greece conceded ground to Turkey in the neighbors' ongoing face-off over offshore energy prospecting rights in the eastern Mediterranean.`\
-https://nytimes.com/aponline/2020/08/19/world/europe/ap-eu-greece-politics-turkey.html?searchResultPosition=4
-
-**Iowa Governor's Push to Reopen Schools Descends Into Chaos**\
-`By The Associated Press`\
-https://nytimes.com/aponline/2020/08/19/us/ap-us-virus-outbreak.html?searchResultPosition=5
-
-**COVID-19 Link to Type 1 Diabetes Probed; Breathalyzer Screening Shows Promise**\
-`The following is a roundup of some of the latest scientific studies on the novel coronavirus and efforts to find treatments and vaccines for COVID-19, the illness caused by the virus.`\
-https://nytimes.com/reuters/2020/08/19/world/europe/19reuters-health-coronavirus-science.html?searchResultPosition=6
-
-**The Monotony of Family Meals Can Trigger Past Disordered Eating**\
-`The constant feeding of our children without a break can compound parental eating issues.`\
-https://nytimes.com/2020/08/19/parenting/eating-disorders-coronavirus.html?searchResultPosition=7
-
-**Fed's Barkin Says Uncertainty Is Weighing on U.S. Outlook**\
-`High levels of uncertainty are weighing on households, businesses and banks, Richmond Federal Reserve Bank President Thomas Barkin said on Wednesday, calling for controlling the spread of the virus and delivering fiscal support.`\
-https://nytimes.com/reuters/2020/08/19/business/19reuters-usa-fed-barkin.html?searchResultPosition=8
-
-**New York Teachers Threaten Job Action if Schools Reopen Without More COVID Testing**\
-`New York City teachers on Wednesday threatened to strike or take other job or legal action unless the largest U.S. school district implements a more rigorous COVID-19 testing plan and other safety measures before the system's scheduled reopening next month.`\
-https://nytimes.com/reuters/2020/08/19/us/19reuters-health-coronavirus-usa.html?searchResultPosition=9
-
-**This Trawler’s Haul: Evidence That Antibodies Block the Coronavirus**\
-`Three crew members aboard were spared when the virus spread through the boat. They were the only ones who had antibodies at the beginning of the trip.`\
-https://nytimes.com/2020/08/19/health/coronavirus-fishing-boat.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/19/us/ap-migrant-death-river.html?searchResultPosition=10
 
