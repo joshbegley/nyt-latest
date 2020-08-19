@@ -1,4 +1,4 @@
-**Booing and Cheering From the Den During a Virtual Convention**\
+**Cheering From the Den During a Virtual Convention**\
 `Some die-hard Democratic delegates long for an in-person event. “It feels so lonesome when you don’t have all the crowds,” said an 89-year-old convention veteran.`\
 https://nytimes.com/2020/08/19/us/rosalind-wyman-democratic-convention.html?searchResultPosition=1
 
