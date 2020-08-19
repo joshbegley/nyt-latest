@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/08/19/world/africa/19reuters-mali-security-dick
 `After four years watching his achievements being dismantled, he has almost as much at stake as his party’s nominee, Joe Biden, does.`\
 https://nytimes.com/2020/08/19/us/politics/barack-obama-dnc-trump.html?searchResultPosition=6
 
-**Bahrain Cancels Home Self-Isolation Protocol for Those Entering the Country**\
-`Bahrain announced on Wednesday it would cancel the home self-isolation protocol for all people entering the country, but would continue conducting the laboratory examination for coronavirus, state TV reported on Twitter.`\
+**Bahrain Ends Mandatory Self-Isolation for All Arrivals**\
+`Bahrain announced on Wednesday it would end a protocol that required all those arriving in the country to self-isolate at home for 10 days regardless of the outcome of testing, its health ministry said in a statement on Wednesday.`\
 https://nytimes.com/reuters/2020/08/19/world/middleeast/19reuters-health-coronavirus-bahrain.html?searchResultPosition=7
 
 **At Least 45 African Migrants Die Off Libya in Worst Shipwreck of 2020: U.N.**\
