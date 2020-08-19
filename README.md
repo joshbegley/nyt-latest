@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/08/19/world/europe/19reuters-britain-russia.htm
 `Gold mining companies in Mali reassured investors on Wednesday that their operations were continuing as normal despite a deepening political crisis in the West African nation.`\
 https://nytimes.com/reuters/2020/08/19/world/19reuters-mali-security-mining.html?searchResultPosition=8
 
-**Germany Investigates Car Crash Series in Berlin as Islamist Attack-Focus**\
-`German authorities are investigating a series of car accidents that left several people injured on a Berlin motorway on Tuesday evening as an Islamist attack, prosecutors' spokesman told Focus magazine on Wednesday.`\
+**Germany Treating Berlin Car Crashes as Islamist Attack: Media**\
+`German authorities are investigating a series of apparently deliberate car crashes on a Berlin motorway on Tuesday evening as an Islamist attack, media reported on Wednesday.`\
 https://nytimes.com/reuters/2020/08/19/world/europe/19reuters-germany-security.html?searchResultPosition=9
 
 **Kenya Woman's Ordeal Highlights Newly Identified Sex Trafficking Route**\
