@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/08/19/us/19reuters-california-power-outages.htm
 `A Lebanese lawyer filed a legal complaint on Wednesday against the country's president and prime minister for allegedly not taking action to remove dangerous material that had been stored at the port of Beirut. `\
 https://nytimes.com/aponline/2020/08/19/world/middleeast/ap-ml-lebanon.html?searchResultPosition=8
 
-**Czechs Will Not Take Part in WHO's Coronavirus Vaccine Programme, Prefer European Plan**\
-`The Czech Republic will not take part in the World Health Organization-led COVAX plan to develop and distribute a vaccine against COVID-19, Health Minister Adam Vojtech said on Wednesday.`\
+**Czechs Won't Join WHO's Coronavirus Vaccine Programme, Prefer EU Plan**\
+`The Czech Republic will not take part in the World Health Organization-led COVAX plan to develop and distribute a vaccine against COVID-19 and will opt instead for an initiative of the European Union, Health Minister Adam Vojtech said on Wednesday.`\
 https://nytimes.com/reuters/2020/08/19/world/europe/19reuters-health-coronavirus-vaccine-czech.html?searchResultPosition=9
 
 **Belarusian Leader Tells Interior Ministry to End Unrest in Minsk: Belta**\
