@@ -31,7 +31,7 @@ https://nytimes.com/2020/08/19/sports/football/robert-kraft-scandal-video-appeal
 https://nytimes.com/reuters/2020/08/19/us/19reuters-usa-fed-bowman.html?searchResultPosition=8
 
 **Florida Virus Deaths Surpass 10,000 as Teachers, State Argue**\
-`The number of people in Florida confirmed to have died from the new coronavirus surpassed 10,000 cases Wednesday, as teachers and state officials argued in court over whether brick-and-mortar schools should be forced to reopen this month.`\
+`The number of people in Florida confirmed to have died from the new coronavirus surpassed 10,000 Wednesday, as teachers and state officials argued in court over whether brick-and-mortar schools should be forced to reopen this month.`\
 https://nytimes.com/aponline/2020/08/19/us/ap-us-virus-outbreak-florida-1st-ld-writethru.html?searchResultPosition=9
 
 **FIFA's Ethics Committee Clears Infantino After Investigation**\
