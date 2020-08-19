@@ -2,7 +2,7 @@
 `Powerful Hurricane Genevieve approached Mexico's Baja California Peninsula on Wednesday, threatening to bring hurricane-force winds to the tourist region even if its center wasn't likely to hit land.`\
 https://nytimes.com/aponline/2020/08/19/world/americas/ap-tropical-weather-3rd-ld-writethru.html?searchResultPosition=1
 
-**Exclusive: Fed's Bullard: Wall Street 'About Right' as U.S. Muddles Through Virus Risk**\
+**Exclusive: Fed's Bullard-Wall Street 'About Right' as U.S. Muddles Through Virus Risk**\
 `A stock market hitting record highs in a pandemic might seem out of touch, but St.`\
 https://nytimes.com/reuters/2020/08/19/business/19reuters-usa-fed-bullard-exclusive.html?searchResultPosition=2
 
