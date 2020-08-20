@@ -1,40 +1,40 @@
+**Israel Opens Floating Cinema for Coronavirus-Safe Viewing**\
+`Movie-goers boarded boats floating on the shimmering waters of a Tel Aviv lake on Thursday for a test screening at Israel's first "sail-in" cinema.`\
+https://nytimes.com/reuters/2020/08/20/arts/20reuters-health-coronavirus-israel-floating-cinema.html?searchResultPosition=1
+
+**Brazil's July Federal Tax Revenue Falls to 115.99 Billion Reais, Lowest Since 2009: Tax Agency**\
+`Brazil's federal tax revenue fell to 115.99 billion reais ($20.7 billion) in July, the federal tax service said on Thursday, down 17.7% in real terms on the same month last year and the lowest take for that month since 2009.`\
+https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-brazil-tax-revenue.html?searchResultPosition=2
+
+**Young Children Pose a Dilemma for Airlines With Mask Rules**\
+`Two recent incidents involving young children who refused to wear face masks show how airlines are struggling to balance safety with compassionate treatment of all their customers during a pandemic.`\
+https://nytimes.com/aponline/2020/08/20/business/ap-us-virus-outbreak-airlines-children-masks.html?searchResultPosition=3
+
+**New York Gyms Set to Re-Open to Athletes, Members Shedding 'Quarantine 15'**\
+`Before coronavirus shut down the United States, gym re-opening used to mean simply unlocking the front door and greeting the herds squeezed into spandex pants. `\
+https://nytimes.com/reuters/2020/08/20/us/20reuters-health-coronavirus-usa-new-york-gyms.html?searchResultPosition=4
+
+**California Is Just One Legal Challenge for Uber Around the World**\
+`Uber Technologies Inc and Lyft Inc are preparing to suspend their ride-hailing services in California beginning on Friday morning unless a last-minute court ruling prevents them from being forced to treat their drivers as employees, rather than independent contractors.`\
+https://nytimes.com/reuters/2020/08/20/business/20reuters-uber-california-factbox.html?searchResultPosition=5
+
+**Group at Center of Bannon Indictment Used Private Funds to Build Border Wall**\
+`The criminal charges were the latest twist for We Build the Wall, which had drawn praise from top Homeland Security officials while causing controversy over its construction methods.`\
+https://nytimes.com/2020/08/20/us/politics/bannon-we-build-the-wall.html?searchResultPosition=6
+
+**U.S. CDC Reports 172,416 Deaths From Coronavirus**\
+`The U.S. Centers for Disease Control and Prevention (CDC) on Thursday said the number of deaths due to the new coronavirus had risen by 1,404 to 172,416 and reported 5,506,929 cases, an increase of 46,500 cases from its previous count.`\
+https://nytimes.com/reuters/2020/08/20/us/20reuters-health-coronavirus-usa-cdc.html?searchResultPosition=7
+
 **A Look at How Mali's Coup May Affect Neighboring Countries**\
 `African and Western leaders have condemned the junta that forced Mali’s president from power, warning the coup was a deep setback that could threaten the battle against Islamic extremism across the Sahel region, where thousands have been killed by jihadists.`\
-https://nytimes.com/aponline/2020/08/20/world/africa/ap-af-ap-explains-mali-west-africa-impact.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/20/world/africa/ap-af-ap-explains-mali-west-africa-impact.html?searchResultPosition=8
 
 **Bright Eyes’ Summertime Sadness**\
 `Conor Oberst’s band returns with its first new album in nine years, “Down in the Weeds Where the World Once Was,” an LP that tempers despair with battered optimism.`\
-https://nytimes.com/2020/08/20/arts/music/bright-eyes-down-in-the-weeds-where-the-world-once-was-review.html?searchResultPosition=2
+https://nytimes.com/2020/08/20/arts/music/bright-eyes-down-in-the-weeds-where-the-world-once-was-review.html?searchResultPosition=9
 
 **US Sanctions 6 Senior Syrian Government, Financial Officials**\
 `The Trump administration on Thursday announced new sanctions against six Syrian military, government and financial officials as part of ongoing efforts to prevent money from going to President Bashar Assad's government. `\
-https://nytimes.com/aponline/2020/08/20/us/politics/ap-us-united-states-syria.html?searchResultPosition=3
-
-**Does It Matter if a Documentary Is Staged? These Two Films Hold Answers**\
-`Nonfiction doesn’t mean completely real. But that’s a debate as old as cinema. “Man of Aran” and “F for Fake” explore the issues in their own ways.`\
-https://nytimes.com/2020/08/20/movies/documentaries-staged.html?searchResultPosition=4
-
-**Roger Penske to Indianapolis 500 Fans: 'I Wanted You Here'**\
-`Roger Penske will not pretend he is not disappointed he can't open the gates to spectators for his first Indianapolis 500 as steward of the iconic event. `\
-https://nytimes.com/aponline/2020/08/20/sports/ap-car-indy-500-.html?searchResultPosition=5
-
-**Film Academy to Host Virtual Panels About Inclusion, Equity**\
-`Lee Daniels, Lulu Wang and Taraji P.`\
-https://nytimes.com/aponline/2020/08/20/us/ap-us-oscars-inclusion-panels.html?searchResultPosition=6
-
-**The Best Places to Stream for the Best Screams**\
-`A survey of the horror offerings on the top streaming platforms.`\
-https://nytimes.com/2020/08/20/movies/horror-streaming-sevices.html?searchResultPosition=7
-
-**Scary Movies for When the World Is a Fright**\
-`This summer, horror movies are booming. Here’s a guide to the top new scares of the season.`\
-https://nytimes.com/2020/08/20/movies/scary-movies-summer.html?searchResultPosition=8
-
-**Four Vietnamese Arrested for Coronavirus PPE Scam Targeting U.S. Buyers**\
-`Vietnamese police have arrested four men accused of defrauding more than 5,000 Americans trying to buy COVID-19 protective  equipment online out of nearly $1 million, the Ministry of Public Security said on Thursday.`\
-https://nytimes.com/reuters/2020/08/20/world/asia/20reuters-health-coronavirus-vietnam-fraud.html?searchResultPosition=9
-
-**Top Republican National Security Officials Say They Will Vote for Biden**\
-`In a letter released hours before Joe Biden is set to deliver his nomination acceptance speech, 50 senior officials called President Trump “unfit to lead” and outlined their support for his opponent.`\
-https://nytimes.com/2020/08/20/us/politics/republican-national-security-biden.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/20/us/politics/ap-us-united-states-syria.html?searchResultPosition=10
 
