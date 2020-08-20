@@ -22,8 +22,8 @@ https://nytimes.com/reuters/2020/08/19/world/asia/19reuters-health-coronavirus-j
 `The number of confirmed coronavirus cases in Germany increased by 1,707 to 228,621, data from the Robert Koch Institute (RKI) for infectious diseases showed on Wednesday.`\
 https://nytimes.com/reuters/2020/08/19/sports/19reuters-health-coronavirus-germany-cases.html?searchResultPosition=6
 
-**Telco SoftBank 'Pleased' 5G Network Given 'Clean' Status by U.S. Government**\
-`Japanese wireless carrier SoftBank Corp said on Thursday it was "pleased" its 5G network had been given "clean" status by the U.S. government as part of the U.S. effort to exclude Chinese vendors from next-generation networks. `\
+**Telco SoftBank Pleased 5G Network Given 'Clean' Status by U.S**\
+`Japanese wireless carrier SoftBank Corp said on   Thursday it was pleased its 5G network had been given "clean" status by the U.S. government as part of a U.S. effort to exclude Chinese vendors from next-generation networks. `\
 https://nytimes.com/reuters/2020/08/19/business/19reuters-softbank-us-china.html?searchResultPosition=7
 
 **Kamala Harris Accepts Vice-Presidential Nomination: Full Transcript**\
