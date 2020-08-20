@@ -3,7 +3,7 @@
 https://nytimes.com/reuters/2020/08/19/business/19reuters-softbank-us-china.html?searchResultPosition=1
 
 **Kamala Harris Accepts Vice-Presidential Nomination: Full Transcript**\
-`In her vice-presidential acceptance speech on the third night of the Democratic National Convention, Ms. Harris said “there’s no vaccine for racism” as she offered her vision for a more inclusive country.`\
+`In her vice-presidential acceptance speech on the third night of the Democratic National Convention, Ms. Harris said “there is no vaccine for racism” as she offered her vision for a more inclusive country.`\
 https://nytimes.com/2020/08/19/us/politics/kamala-harris-dnc-speech.html?searchResultPosition=2
 
 **Thousands of Chicks Arrive Dead to Farmers Amid USPS Turmoil**\
