@@ -1,40 +1,40 @@
+**Brazil Coronavirus Cases Tops 3.5 Million, Fatalities Exceed 112,000: Health Ministry**\
+`Brazil reported 45,323 new cases of the novel coronavirus and 1,204 deaths from the disease caused by the virus in the past 24 hours, the health ministry said on Thursday.`\
+https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-health-coronavirus-brazil.html?searchResultPosition=1
+
+**Working From Home Raises Questions About U.S. Inequality: Fed Panel**\
+`In a shift that some experts believe exacerbates already deep inequalities in the U.S. economy, more Americans than ever are working from home, and many are likely to continue to do so even after the health threat from COVID-19 has abated.`\
+https://nytimes.com/reuters/2020/08/20/us/20reuters-usa-fed-future-work.html?searchResultPosition=2
+
 **As Indianapolis 500 Nears, Sound of Silence Is Deafening**\
 `It's almost race weekend and the tiny enclave of Speedway looks virtually barren.`\
-https://nytimes.com/aponline/2020/08/20/sports/ap-car-indy-500-deserted-streets.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/20/sports/ap-car-indy-500-deserted-streets.html?searchResultPosition=3
 
 **Carol Burnett Seeks to Be Guardian of Teen Grandson**\
 `Carol Burnett and is seeking to become the legal guardian of her teenage grandson as his mother struggles with substance abuse. `\
-https://nytimes.com/aponline/2020/08/20/us/ap-us-people-carol-burnett.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/20/us/ap-us-people-carol-burnett.html?searchResultPosition=4
 
 **Nielsen Says 22.8 Million Watched Convention's Third Night**\
 `Television viewership Wednesday for the third night of the Democrats' virtual convention, which featured speeches by vice presidential nominee Kamala Harris and former President Barack Obama, rose to 22.8 million viewers.`\
-https://nytimes.com/aponline/2020/08/20/arts/ap-us-election-2020-dnc-media.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/20/arts/ap-us-election-2020-dnc-media.html?searchResultPosition=5
 
 **CDC Study Suggests Inmates Should Have Been Tested in Mass**\
 `Correctional facilities that resisted mass coronavirus testing for inmates erred in their decision to only test inmates with symptoms, leading to large initial undercounts, a recent study by the Center for Disease Control and Prevention suggested.`\
-https://nytimes.com/aponline/2020/08/20/us/ap-us-virus-outbreak-prisons-and-jails.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/20/us/ap-us-virus-outbreak-prisons-and-jails.html?searchResultPosition=6
 
 **U.N. Water Rights Expert Questions Chile's Avocado and Energy Priorities**\
 `Chile on Thursday faced questioning by a United Nations water rights expert who suggested the government could be placing economic development over human rights through controversial agriculture and energy projects.`\
-https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-chile-environment-water.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-chile-environment-water.html?searchResultPosition=7
 
 **Joe Biden, Steve Bannon, Native Plants: Your Thursday Evening Briefing**\
 `Here’s what you need to know at the end of the day.`\
-https://nytimes.com/2020/08/20/briefing/joe-biden-steve-bannon-goldenrod.html?searchResultPosition=6
+https://nytimes.com/2020/08/20/briefing/joe-biden-steve-bannon-goldenrod.html?searchResultPosition=8
 
 **Mark Zuckerberg Questioned Under Oath in F.T.C. Antitrust Inquiry**\
 `It was the first known time that regulators directly interviewed a chief executive of one of the tech companies being scrutinized for potential antitrust violations.`\
-https://nytimes.com/2020/08/20/technology/facebook-zuckerberg-ftc-questioned.html?searchResultPosition=7
+https://nytimes.com/2020/08/20/technology/facebook-zuckerberg-ftc-questioned.html?searchResultPosition=9
 
 **Progressive Drop in COVID-19 Cases in Southern U.S. States, Says CDC Director**\
 `Southern U.S. states, which were hit hardest by the COVID-19 pandemic, are seeing a progressive drop in coronavirus cases, the director of the U.S. Centers for Disease Control and Prevention (CDC) said on Thursday.`\
-https://nytimes.com/reuters/2020/08/20/us/20reuters-health-coronavirus-us-cdc.html?searchResultPosition=8
-
-**Indigenous Protest Over COVID-19 Resumes on Brazilian Grain Highway**\
-`Indigenous protesters on Thursday blocked a key Brazilian grain highway in the Amazon state of Para, the federal highway police said, resuming a protest that halted trucks carrying corn earlier in the week.`\
-https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-health-coronavirus-brazil-indigenous.html?searchResultPosition=9
-
-**Israel Backs U.S. Moves to Restore U.N. Sanctions on Iran, PM Says**\
-`Israeli Prime Minister Benjamin Netanyahu hailed the United States' move on Thursday to restore all U.N. sanctions on Iran and called on world powers to support Washington.`\
-https://nytimes.com/reuters/2020/08/20/world/middleeast/20reuters-usa-iran-un-israel.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/20/us/20reuters-health-coronavirus-us-cdc.html?searchResultPosition=10
 
