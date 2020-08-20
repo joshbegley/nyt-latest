@@ -27,7 +27,7 @@ https://nytimes.com/reuters/2020/08/19/us/19reuters-eurozone-economy-poll.html?s
 https://nytimes.com/reuters/2020/08/19/world/asia/19reuters-health-cornavirus-china-toll.html?searchResultPosition=7
 
 **The Trump Campaign Accepted Russian Help to Win in 2016. Case Closed.**\
-`‘Cooperation’ or ‘collusion’ or whatever. It was a plot against American democracy.`\
+`“Cooperation” or “collusion” or whatever. It was a plot against American democracy.`\
 https://nytimes.com/2020/08/19/opinion/trump-russia-2016-report.html?searchResultPosition=8
 
 **Avalanche Rout Coyotes 7-1 in Game 5 to Win 1st-Round Series**\
