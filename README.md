@@ -26,7 +26,7 @@ https://nytimes.com/aponline/2020/08/20/business/ap-virus-outbreak-american-airl
 `American Airlines Group Inc said Thursday it plans to suspend flights to 15 U.S. airports in October as travel demand remains low as a result of the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/08/20/business/20reuters-health-coronavirus-american-airline.html?searchResultPosition=7
 
-**Man Sentenced for Role in 2017 Manchester Concert Bombing**\
+**Bomber's Brother Gets 55 Years for Manchester Concert Attack**\
 `The brother of the suicide bomber who set off an explosion at a 2017 Ariana Grande concert in Manchester, England, killing 22 people and injuring hundreds, was sentenced Thursday to a minimum of 55 years in prison.`\
 https://nytimes.com/aponline/2020/08/20/world/europe/ap-eu-britain-manchester-bombing.html?searchResultPosition=8
 
