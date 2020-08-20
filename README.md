@@ -1,40 +1,40 @@
-**Barack Obama and Kamala Harris’s Night at the Convention**\
-`Readers praise their speeches, and one explains why the virtual convention is “the best one ever.”`\
-https://nytimes.com/2020/08/20/opinion/letters/barack-obama-kamala-harris.html?searchResultPosition=1
+**South Africa Banks Offered Loan Relief of $31 Billion During Pandemic: Statement**\
+`South African banks have given voluntary relief on loans to individuals and corporates of up to 537 billion rand ($31 billion) during the coronavirus pandemic so far, the finance ministry said in a statement on Thursday. `\
+https://nytimes.com/reuters/2020/08/20/world/africa/20reuters-health-coronavirus-safrica-banks.html?searchResultPosition=1
 
-**Mail-Delivery Concerns Put Spotlight on Ballot Deadlines**\
-`U.S. Postal Service warnings that it can’t guarantee mailed ballots will arrive on time have put a spotlight on the narrow time frames most states allow to request and return those ballots. `\
-https://nytimes.com/aponline/2020/08/20/us/ap-us-election-2020-voting-ballot-deadlines.html?searchResultPosition=2
+**Democratic Convention Audience Rises on Night Three, Early Data Show**\
+`Roughly 21.4 million people watched the third night of the Democratic National Convention on six television networks, an increase of 2 million from the previous night, according to preliminary Nielsen data released on Thursday.`\
+https://nytimes.com/reuters/2020/08/20/us/politics/20reuters-usa-election-tv-ratings.html?searchResultPosition=2
 
-**Former Uber Security Chief Charged With Concealing Hack**\
-`Joe Sullivan, who led Uber’s security team through the company’s most tumultuous period, was fired by the company’s newly installed chief executive in 2017.`\
-https://nytimes.com/2020/08/20/technology/joe-sullivan-uber-charged-hack.html?searchResultPosition=3
+**Senator Cassidy Tests Positive for COVID-19**\
+`U.S. Senator Bill Cassidy tested positive for coronavirus on Thursday, has decided to self-quarantine for 14 days and is contacting those with whom he may have had contact, according to a statement released by his office. `\
+https://nytimes.com/reuters/2020/08/20/us/politics/20reuters-health-coronavirus-usa-cassidy.html?searchResultPosition=3
 
-**Relocated Rebel Statue Causes Athlete Concerns at Ole Miss**\
-`The University of Mississippi has put up a barrier to partially obstruct a Confederate monument after football players said they didn't want to see the rebel soldier statue while they practice.`\
-https://nytimes.com/aponline/2020/08/20/us/ap-us-racial-injustice-ole-miss-monument.html?searchResultPosition=4
+**ISS Crew Looks for Source of Small Cabin Air Leak: NASA**\
+`Three crew members on board the International Space Station will spend the weekend in the vessel's Russian segment while they search for the source of a cabin air leak, NASA and Russian space agency Roscosmos said on Thursday. `\
+https://nytimes.com/reuters/2020/08/20/world/europe/20reuters-usa-russia-space.html?searchResultPosition=4
 
-**Mexican Murders Edge Up in July, Femicides Stubbornly High**\
-`Murders in Mexico edged up in July amid the hunt for a well-known drug gang leader, government data showed on Thursday, while the murders of women remained elevated in the first seven months of the year.`\
-https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-mexico-violence.html?searchResultPosition=5
+**Breastfeeding My Son Was a Long, Hard Journey, but We Took It Together**\
+`I nursed for 2 ½ years, doing what was right for my family and ignoring others’ comments.`\
+https://nytimes.com/2020/08/20/parenting/breastfeeding-two-year-old.html?searchResultPosition=5
 
-**Colombian Ex-President's Defense Team Asks for Case to Be Transferred**\
-`The defense team for former Colombian President Alvaro Uribe, who is under investigation for alleged witness tampering, has asked for the handling of the case to pass from the Supreme Court to the attorney general's office.`\
-https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-colombia-politics.html?searchResultPosition=6
+**Will Americans Return to Theaters for Russell Crowe?**\
+`The producer Mark Gill was already following a contrarian’s path before he decided to put “Unhinged” in nearly 2,000 theaters during a pandemic.`\
+https://nytimes.com/2020/08/20/business/media/unhinged-russell-crowe-theaters.html?searchResultPosition=6
 
-**Saudi-Led Coalition in Yemen Says It Intercepted and Downed Drone**\
-`The Saudi-led coalition in Yemen said it intercepted and downed a booby-trapped drone towards the kingdom of Saudi Arabia, the state news agency said on Thursday.`\
-https://nytimes.com/reuters/2020/08/20/world/middleeast/20reuters-saudi-security-yemen.html?searchResultPosition=7
+**U.S. Judge Narrows SEC Lawsuit Against VW Over Diesel Emissions**\
+`A U.S. judge on Thursday dismissed portions of a U.S. Securities and Exchange Commission lawsuit against Volkswagen AG related to the German automaker's diesel emissions scandal.`\
+https://nytimes.com/reuters/2020/08/20/business/20reuters-vw-sec-emissions.html?searchResultPosition=7
 
-**Venezuela Looking to Buy Iranian Missiles: Colombian President Says**\
-`Colombian President Ivan Duque said on Thursday that Venezuelan President Nicolas Maduro's administration is looking to buy Iranian missiles and is handing over weapons made in Russia and Belarus to Colombian armed groups.`\
-https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-colombia-venezuela.html?searchResultPosition=8
+**Former Republican CIA, FBI Heads and National Security Officials to Back Biden**\
+`Over 70 former Republican national security officials including ex-CIA and FBI chiefs will endorse Democratic presidential candidate Joe Biden on Friday while launching a scathing indictment of President Donald Trump, calling him corrupt and unfit to serve.`\
+https://nytimes.com/reuters/2020/08/20/us/politics/20reuters-usa-election-biden-republicans.html?searchResultPosition=8
 
-**Russia Rejects U.S. Plan to Restore U.N. Sanctions on Iran**\
-`Russia rejected U.S. plans to restore U.N. sanctions on Iran as "nonexistent," saying only a country that remains in the 2015 Iran nuclear deal can trigger the return of the sanctions in a process known informally as "snapback."`\
-https://nytimes.com/reuters/2020/08/20/world/middleeast/20reuters-usa-iran-un-russia.html?searchResultPosition=9
+**Former Postal Governor Says He Raised Concerns About Louis DeJoy**\
+`David C. Williams, who will testify before lawmakers on Thursday, told Congress he had suggested his fellow governors investigate the new postmaster general’s background ahead of his hiring.`\
+https://nytimes.com/2020/08/20/us/politics/former-postal-governor-says-he-raised-concerns-about-louis-dejoy.html?searchResultPosition=9
 
-**Video Shows Muslim Man's Faith Mocked During Fatal Arrest**\
-`An advocacy group released what they say is previously unseen body camera footage Thursday showing Phoenix police mocking the religion of a Muslim man who later died in their custody.`\
-https://nytimes.com/aponline/2020/08/20/us/ap-az-racial-injustice-arizona-police-video.html?searchResultPosition=10
+**Sen. Cassidy Tests Positive for Virus, Has COVID-19 Symptoms**\
+`U.S. Sen. Bill Cassidy announced Thursday that he's tested positive for the coronavirus and is experiencing some COVID-19 symptoms. He said he is quarantining in Louisiana. `\
+https://nytimes.com/aponline/2020/08/20/us/ap-us-virus-outbreak-cassidy-1st-ld-writethru.html?searchResultPosition=10
 
