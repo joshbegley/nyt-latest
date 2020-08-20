@@ -1,40 +1,40 @@
+**Chinese Insurance Tech Firm Waterdrop Raises $230 Million, Plans U.S. IPO**\
+`Chinese online insurance technology platform Waterdrop Inc has raised $230 million in a new funding round led by reinsurer Swiss Re and Chinese internet giant Tencent Holdings, it said on Thursday.`\
+https://nytimes.com/reuters/2020/08/20/business/20reuters-waterdrop-fundraising.html?searchResultPosition=1
+
+**In South Korea’s New Covid-19 Outbreak, Religion and Politics Collide**\
+`The Sarang Jeil Church in Seoul has been a magnet for thousands of conservative Christians who fear their country is turning communist under President Moon Jae-in. Many have contracted the coronavirus.`\
+https://nytimes.com/2020/08/20/world/asia/coronavirus-south-korea-church-sarang-jeil.html?searchResultPosition=2
+
+**Young Activists Meet Merkel to Press Case for Climate Action**\
+`Young activists, including Swedish teenager Greta Thunberg, are meeting German Chancellor Angela Merkel to press their demands for tougher action to curb climate change.`\
+https://nytimes.com/aponline/2020/08/20/business/bc-eu-germany-climate-1st-ld-writethru.html?searchResultPosition=3
+
+**North Korean Leader's Sister Is 'De Facto Second-In-Command', South Korean Lawmaker Says**\
+`South Korea's intelligence agency believes that Kim Yo Jong, the sister of North Korean leader Kim Jong Un, is serving as his "de facto second-in-command" but has not necessarily been designated his successor, a South Korean lawmaker said on Thursday.`\
+https://nytimes.com/reuters/2020/08/20/world/asia/20reuters-northkorea-politics-kimyojong.html?searchResultPosition=4
+
 **California vs. Ride-share Companies**\
 `And what else you need to know today.`\
-https://nytimes.com/2020/08/20/briefing/kamala-harris-california-aleksei-navalny-your-thursday-briefing.html?searchResultPosition=1
+https://nytimes.com/2020/08/20/briefing/kamala-harris-california-aleksei-navalny-your-thursday-briefing.html?searchResultPosition=5
 
 **Japan Awards COVID-19 Relief Work to Deloitte Affiliate After Dentsu Controversy**\
 `The Japanese government has signed a contract with a Deloitte-linked consulting group to distribute coronavirus relief payouts following public anger over a previous deal involving advertising giant Dentsu.`\
-https://nytimes.com/reuters/2020/08/20/world/asia/20reuters-health-coronavirus-japan-dentsu.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/20/world/asia/20reuters-health-coronavirus-japan-dentsu.html?searchResultPosition=6
 
 **In France, Live Theater Calls for Masked Actors and Creative Solutions**\
 `The company Les Tréteaux de France has been meeting the challenges of social distancing with a variety of measures, including voice-overs and unusual settings.`\
-https://nytimes.com/2020/08/20/theater/france-theater-coronavirus.html?searchResultPosition=3
+https://nytimes.com/2020/08/20/theater/france-theater-coronavirus.html?searchResultPosition=7
 
 **Haiti's Schools Re-Open but Many Parents Now Can't Afford Them**\
 `Haiti's school children missed class this year first due to months of violent unrest, then the coronavirus pandemic. Now, as schools are finally reopening, many parents can no longer afford it, raising the prospect hard-won gains in education could be lost.`\
-https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-health-coronavirus-haiti-education.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-health-coronavirus-haiti-education.html?searchResultPosition=8
 
 **Berlin Security Services: Highway Attacker Wasn't on Radar**\
 `German authorities said Thursday that a 30-year-old man accused of deliberately driving his car into other vehicles along a major Berlin highway wasn't previously on the security services' radar.`\
-https://nytimes.com/aponline/2020/08/20/world/europe/ap-eu-germany-highway-attack.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/08/20/world/europe/ap-eu-germany-highway-attack.html?searchResultPosition=9
 
 **After Decades in Politics, Joe Biden to Accept Democratic Presidential Nomination**\
 `In the biggest speech of his nearly 50 years in public life, Joe Biden will spell out his vision for the presidency on Thursday when he accepts the Democratic nomination to challenge Donald Trump in the Nov. 3 U.S. election.`\
-https://nytimes.com/reuters/2020/08/20/us/politics/20reuters-usa-election-convention.html?searchResultPosition=6
-
-**California's Notorious 'Golden State Killer' Faces Sentencing**\
-`A former California police officer dubbed the "Golden State Killer" who confessed to 13 murders and dozens of rapes during the 1970s and '80s faces a life prison term when he is sentenced in Sacramento on Friday.`\
-https://nytimes.com/reuters/2020/08/20/us/20reuters-california-goldenstatekiller.html?searchResultPosition=7
-
-**FIFA Suspends 2 More Haiti Officials in Sexual Abuse Inquiry**\
-`FIFA suspended two more soccer officials in Haiti to widen its investigation Thursday into alleged systematic sexual abuse of young women players.`\
-https://nytimes.com/aponline/2020/08/20/sports/soccer/ap-soc-haiti-sexual-abuse-case.html?searchResultPosition=8
-
-**British Grading Debacle Shows Pitfalls of Automating Government**\
-`The uproar over an algorithm that lowered the grades of 40 percent of students is a sign of battles to come regarding the use of technology in public services.`\
-https://nytimes.com/2020/08/20/world/europe/uk-england-grading-algorithm.html?searchResultPosition=9
-
-**Alaska’s Salmon Are Shrinking, and Climate Change May Be to Blame**\
-`Alaska’s highly prized salmon - a favorite of seafood lovers the world over - are getting smaller, and climate change is a suspected culprit, a new study reported, documenting a trend that may pose a risk to a valuable fishery, indigenous people and wildlife.`\
-https://nytimes.com/reuters/2020/08/20/us/20reuters-environment-salmon-alaska.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/20/us/politics/20reuters-usa-election-convention.html?searchResultPosition=10
 
