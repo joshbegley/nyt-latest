@@ -30,8 +30,8 @@ https://nytimes.com/2020/08/19/world/middleeast/trump-netanyahu-israel-uae.html?
 `An outbreak among the crew of a fishing boat spared the only three members with antibodies.`\
 https://nytimes.com/2020/08/19/us/coronavirus-today.html?searchResultPosition=8
 
-**Nationals-Braves Postponed by Rain, DH Planned for Sept. 4**\
-`The game between the Washington Nationals and Atlanta Braves scheduled for Wednesday night was postponed because of rain.`\
+**Nationals-Braves Postponed by Rain, Spoiling Pache's Debut**\
+`The planned major league debut for Braves top prospect Cristian Pache will have to wait.`\
 https://nytimes.com/aponline/2020/08/19/sports/baseball/ap-bbn-nationals-braves-ppd.html?searchResultPosition=9
 
 **Old Format, New Problem: Biennial Legislatures Face COVID-19**\
