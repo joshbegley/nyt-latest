@@ -1,40 +1,40 @@
+**Colombian Ex-President's Defense Team Asks for Case to Be Transferred**\
+`The defense team for former Colombian President Alvaro Uribe, who is under investigation for alleged witness tampering, has asked for the handling of the case to pass from the Supreme Court to the attorney general's office.`\
+https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-colombia-politics.html?searchResultPosition=1
+
+**Saudi-Led Coalition in Yemen Says It Intercepted and Downed Drone**\
+`The Saudi-led coalition in Yemen said it intercepted and downed a booby-trapped drone towards the kingdom of Saudi Arabia, the state news agency said on Thursday.`\
+https://nytimes.com/reuters/2020/08/20/world/middleeast/20reuters-saudi-security-yemen.html?searchResultPosition=2
+
+**Venezuela Looking to Buy Iranian Missiles: Colombian President Says**\
+`Colombian President Ivan Duque said on Thursday that Venezuelan President Nicolas Maduro's administration is looking to buy Iranian missiles and is handing over weapons made in Russia and Belarus to Colombian armed groups.`\
+https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-colombia-venezuela.html?searchResultPosition=3
+
+**Russia Rejects U.S. Plan to Restore U.N. Sanctions on Iran**\
+`Russia rejected U.S. plans to restore U.N. sanctions on Iran as "nonexistent," saying only a country that remains in the 2015 Iran nuclear deal can trigger the return of the sanctions in a process known informally as "snapback."`\
+https://nytimes.com/reuters/2020/08/20/world/middleeast/20reuters-usa-iran-un-russia.html?searchResultPosition=4
+
+**Video Shows Muslim Man's Faith Mocked During Fatal Arrest**\
+`An advocacy group released what they say is previously unseen body camera footage Thursday showing Phoenix police mocking the religion of a Muslim man who later died in their custody.`\
+https://nytimes.com/aponline/2020/08/20/us/ap-az-racial-injustice-arizona-police-video.html?searchResultPosition=5
+
+**U.S. Mail Delays Slow Delivery of Medicines**\
+`In addition to concerns over mail-in voting, the cost-cutting at the Postal Service affects the millions of people who get their prescriptions by mail.`\
+https://nytimes.com/2020/08/20/health/Covid-us-mail-prescription-drugs.html?searchResultPosition=6
+
 **German Plane Leaving to Fetch Stricken Navalny Tonight: Newspaper**\
 `An ambulance aircraft with a team specialised in treating coma patients is due to leave Germany to pick up stricken Russian dissident Alexei Navalny on Thursday evening, Berlin-based human rights activist Jaka Bizilj told Bild newspaper.`\
-https://nytimes.com/reuters/2020/08/20/world/europe/20reuters-russia-politics-navalny-germany.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/20/world/europe/20reuters-russia-politics-navalny-germany.html?searchResultPosition=7
 
 **South Dakota Officials Warn of COVID-19 Exposure at Sturgis**\
 `South Dakota health officials warned Thursday that a number of people who attended the 10-day Sturgis Motorcycle Rally this month, including some who came from out of state, have come down with COVID-19.`\
-https://nytimes.com/aponline/2020/08/20/us/ap-us-virus-outbreak-south-dakota.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/20/us/ap-us-virus-outbreak-south-dakota.html?searchResultPosition=8
 
 **Israel Opens Floating Cinema for Coronavirus-Safe Viewing**\
 `Movie-goers boarded boats floating on the shimmering waters of a Tel Aviv lake on Thursday for a test screening at Israel's first "sail-in" cinema.`\
-https://nytimes.com/reuters/2020/08/20/arts/20reuters-health-coronavirus-israel-floating-cinema.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/20/arts/20reuters-health-coronavirus-israel-floating-cinema.html?searchResultPosition=9
 
 **Brazil's July Federal Tax Revenue Falls to 115.99 Billion Reais, Lowest Since 2009: Tax Agency**\
 `Brazil's federal tax revenue fell to 115.99 billion reais ($20.7 billion) in July, the federal tax service said on Thursday, down 17.7% in real terms on the same month last year and the lowest take for that month since 2009.`\
-https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-brazil-tax-revenue.html?searchResultPosition=4
-
-**Young Children Pose a Dilemma for Airlines With Mask Rules**\
-`Two recent incidents involving young children who refused to wear face masks show how airlines are struggling to balance safety with compassionate treatment of all their customers during a pandemic.`\
-https://nytimes.com/aponline/2020/08/20/business/ap-us-virus-outbreak-airlines-children-masks.html?searchResultPosition=5
-
-**New York Gyms Set to Re-Open to Athletes, Members Shedding 'Quarantine 15'**\
-`Before coronavirus shut down the United States, gym re-opening used to mean simply unlocking the front door and greeting the herds squeezed into spandex pants. `\
-https://nytimes.com/reuters/2020/08/20/us/20reuters-health-coronavirus-usa-new-york-gyms.html?searchResultPosition=6
-
-**California Is Just One Legal Challenge for Uber Around the World**\
-`Uber Technologies Inc and Lyft Inc are preparing to suspend their ride-hailing services in California beginning on Friday morning unless a last-minute court ruling prevents them from being forced to treat their drivers as employees, rather than independent contractors.`\
-https://nytimes.com/reuters/2020/08/20/business/20reuters-uber-california-factbox.html?searchResultPosition=7
-
-**Group at Center of Bannon Indictment Used Private Funds to Build Border Wall**\
-`The criminal charges were the latest twist for We Build the Wall, which had drawn praise from top Homeland Security officials while causing controversy over its construction methods.`\
-https://nytimes.com/2020/08/20/us/politics/bannon-we-build-the-wall.html?searchResultPosition=8
-
-**U.S. CDC Reports 172,416 Deaths From Coronavirus**\
-`The U.S. Centers for Disease Control and Prevention (CDC) on Thursday said the number of deaths due to the new coronavirus had risen by 1,404 to 172,416 and reported 5,506,929 cases, an increase of 46,500 cases from its previous count.`\
-https://nytimes.com/reuters/2020/08/20/us/20reuters-health-coronavirus-usa-cdc.html?searchResultPosition=9
-
-**A Look at How Mali's Coup May Affect Neighboring Countries**\
-`African and Western leaders have condemned the junta that forced Mali’s president from power, warning the coup was a deep setback that could threaten the battle against Islamic extremism across the Sahel region, where thousands have been killed by jihadists.`\
-https://nytimes.com/aponline/2020/08/20/world/africa/ap-af-ap-explains-mali-west-africa-impact.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-brazil-tax-revenue.html?searchResultPosition=10
 
