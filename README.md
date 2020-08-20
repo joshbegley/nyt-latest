@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/08/20/world/asia/20reuters-health-coronavirus-t
 https://nytimes.com/2020/08/20/world/europe/manchester-area-attack-hashim-abedi.html?searchResultPosition=2
 
 **Trump Must Turn Over Tax Returns to D.A., Judge Rules Again**\
-`A federal judge rejected the president’s argument that a subpoena seeking eight years of his tax returns was ‘wildly overbroad.’`\
+`A federal judge rejected the president’s argument that a subpoena seeking eight years of his tax returns was ‘wildly overboard.’`\
 https://nytimes.com/2020/08/20/nyregion/donald-trump-taxes-cyrus-vance.html?searchResultPosition=3
 
 **Singing Is No More of a COVID-19 Risk Than Talking but Volume Matters, UK Study Finds**\
