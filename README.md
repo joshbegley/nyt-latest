@@ -30,7 +30,7 @@ https://nytimes.com/2020/08/20/sports/baseball/fernando-tatis-grand-slam-unwritt
 `A Pakistani man charged with the killing of a U.S. citizen inside a court in the country's restive northwest has claimed he had an accomplice, a lawyer who managed to sneak the gun into the building and give it to him, the police said Thursday. `\
 https://nytimes.com/aponline/2020/08/20/world/asia/ap-as-pakistan-blasphemy.html?searchResultPosition=8
 
-**323,511 Accusations of N.Y.P.D. Misconduct Are Released Online**\
+**323,911 Accusations of N.Y.P.D. Misconduct Are Released Online**\
 `The records were sealed for decades, but last month, New York repealed a law keeping them secret after national protests against police brutality.`\
 https://nytimes.com/2020/08/20/nyregion/nypd-ccrb-records-published.html?searchResultPosition=9
 
