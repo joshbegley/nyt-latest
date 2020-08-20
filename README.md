@@ -1,40 +1,40 @@
+**323,511 Accusations of N.Y.P.D. Misconduct Are Released Online**\
+`The records were sealed for decades, but last month, New York repealed a law keeping them secret after national protests against police brutality.`\
+https://nytimes.com/2020/08/20/nyregion/nypd-ccrb-records-published.html?searchResultPosition=1
+
+**Transport Canada to Conduct Flight Test for Boeing 737 MAX Next Week**\
+`Transport Canada plans to conduct flight test activities for the validation of Boeing Co's grounded 737 MAX during the week of August 24, the regulator told Reuters on Thursday, as part of broader efforts to return the aircraft to service following two fatal crashes involving the model.`\
+https://nytimes.com/reuters/2020/08/20/business/20reuters-boeing-737max-canada.html?searchResultPosition=2
+
+**Lyft to Suspend California Rides Services at Midnight: Blog Post**\
+`Lyft Inc on Thursday said it will suspend its ride-hailing services in California at midnight as a court order takes effect forcing the company to treat its drivers as employees, rather than independent contractors.`\
+https://nytimes.com/reuters/2020/08/20/business/20reuters-lyft-california.html?searchResultPosition=3
+
+**Uber, Lyft Prepare to Shut Down California Rides Service on Friday**\
+`Uber Technologies Inc and Lyft Inc are preparing to suspend their ride-hailing services in California beginning on Friday morning unless an appeals court rules at the last minute they cannot be forced to treat their drivers as employees, rather than independent contractors.`\
+https://nytimes.com/reuters/2020/08/20/business/20reuters-uber-california.html?searchResultPosition=4
+
+**TikTok Removes 380,000 Videos for Violating Hate Speech Policy**\
+`TikTok has removed more than 380,000 videos in the United States for violating its hate speech policy so far this year, the short-form video app said on Thursday. `\
+https://nytimes.com/reuters/2020/08/20/business/20reuters-tiktok-content.html?searchResultPosition=5
+
+**Cal Ripken Says He's Cancer Free After March Surgery**\
+`Cal Ripken Jr. revealed Thursday he is cancer free after surgery in March to remove a tumor from his prostate.`\
+https://nytimes.com/aponline/2020/08/20/sports/baseball/ap-bbo-ripken-cancer-free.html?searchResultPosition=6
+
+**Sixth Lawsuit Filed in Deaths at West Virginia VA Hospital**\
+`A sixth lawsuit has been filed involving the sudden deaths of patients at a West Virginia veterans hospital where a former nursing assistant admitted to intentionally killing seven people with fatal doses of insulin.`\
+https://nytimes.com/aponline/2020/08/20/us/ap-us-va-deaths-west-virginia.html?searchResultPosition=7
+
+**NY Lets Voters Get Absentee Ballots Due to Virus Concerns**\
+`New York will allow voters to request absentee ballots for the general election because of coronavirus under a new state law signed Thursday.`\
+https://nytimes.com/aponline/2020/08/20/us/ap-us-election-2020-new-york.html?searchResultPosition=8
+
 **Kenneth Bernard, Convention-Shattering Playwright, Dies at 90**\
 `His experimental works, staged by the Playhouse of the Ridiculous and other groups, challenged audiences and sometimes baffled them.`\
-https://nytimes.com/2020/08/20/theater/kenneth-bernard-dead.html?searchResultPosition=1
+https://nytimes.com/2020/08/20/theater/kenneth-bernard-dead.html?searchResultPosition=9
 
 **Live Air-To-Air Missile Found at Central Florida Airport**\
 `A live air-to-air missile discovered at a small central Florida airport has been secured in a munition storage facility at MacDill Air Force Base in Tampa.`\
-https://nytimes.com/aponline/2020/08/20/us/ap-us-odd-missile-found-airport-1st-ld-writethru.html?searchResultPosition=2
-
-**Dubai's Highest Court Rejects Superyacht Seizure Appeal in Mammoth Divorce Battle**\
-`Dubai's highest court has rejected an appeal by the ex-wife of a Russian billionaire to seize a £350 million ($460 million)superyacht in one of the world's costliest divorce battles, a court ruling last week said.   `\
-https://nytimes.com/reuters/2020/08/20/business/20reuters-dubai-russia-divorce-yacht.html?searchResultPosition=3
-
-**Fauci Recovering After Surgery to Remove Vocal Cord Polyp**\
-`Dr. Anthony Fauci, the U.S. government's top infectious disease expert, underwent surgery Thursday to remove a growth from his vocal cord that was causing his notably raspy voice.`\
-https://nytimes.com/aponline/2020/08/20/us/ap-us-virus-outbreak-fauci.html?searchResultPosition=4
-
-**Vacationing Israeli Teen Says She Was Gang-Raped, Shocking the Nation**\
-`One of the accused has said that as many as 30 men took part in the attack at a hotel in the Red Sea resort city of Eilat.`\
-https://nytimes.com/2020/08/20/world/middleeast/israel-girl-gang-raped-eilat.html?searchResultPosition=5
-
-**Yankees Place LHP Britton (Hamstring) on Injured List**\
-`The New York Yankees placed left-hander Zack Britton on the 10-day injured list Thursday with a strained left hamstring.`\
-https://nytimes.com/reuters/2020/08/20/sports/baseball/20reuters-baseball-mlb-nyy-britton.html?searchResultPosition=6
-
-**Pompeo Says U.S. Supports International Efforts to Examine Belarus Election**\
-`The United States remained deeply concerned by 'serious flaws' in Belarus' presidential election, U.S. Secretary of State Mike Pompeo said on Thursday, adding that Washington was in support of international efforts to independently look into the country's electoral irregularities.`\
-https://nytimes.com/reuters/2020/08/20/world/europe/20reuters-belarus-election-usa-pompeo.html?searchResultPosition=7
-
-**Factbox: High-Frequency Data Sources for Tracking the U.S. Pandemic Economy**\
-`Policymakers, economists and investors are turning increasingly to so-called high-frequency data to get a more timely snapshot of the U.S. economy during the fast-moving coronavirus pandemic than traditional monthly and quarterly indicators can provide.`\
-https://nytimes.com/reuters/2020/08/20/business/20reuters-usa-economy-data-factbox.html?searchResultPosition=8
-
-**U.S. Recovery Grinds Along as Coronavirus Case Growth Eases**\
-`Americans made tentative moves back to restaurants and gyms over the past week, hiring advanced across a sample of industries and a rise in job postings suggested it may continue, signs the U.S. recovery grinds along, albeit not without some setbacks.`\
-https://nytimes.com/reuters/2020/08/20/us/20reuters-usa-economy-reopening-graphic.html?searchResultPosition=9
-
-**Italy Sees 845 New COVID-19 Cases, Highest Since End of Lockdown in May**\
-`Italy reported 845 new coronavirus infections in the past 24 hours, the health ministry said on Thursday, marking the highest daily increase since May, when the government eased its rigid lockdown measures.`\
-https://nytimes.com/reuters/2020/08/20/world/europe/20reuters-health-coronavirus-italy-cases.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/20/us/ap-us-odd-missile-found-airport-1st-ld-writethru.html?searchResultPosition=10
 
