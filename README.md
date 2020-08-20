@@ -1,40 +1,40 @@
+**It’s Exactly and Not at All How Joe Biden Dreamed It**\
+`More than three decades after his first presidential run, in the midst of a deadly pandemic and without his son Beau at his side, the former vice president has met his moment.`\
+https://nytimes.com/2020/08/20/us/politics/joe-biden-2020.html?searchResultPosition=1
+
+**Coronavirus Briefing: What Happened Today**\
+`Flu shots are key to warding off a ‘twindemic' — a resurgence of the coronavirus paired with a severe flu season.`\
+https://nytimes.com/2020/08/20/us/20coronavirus-today.html?searchResultPosition=2
+
+**Britons a Bit More Upbeat on Finances but Worried About Economy, GfK Says**\
+`British consumers turned a bit more confident about their personal finances in August, but they were increasingly worried about the outlook for the economy with unemployment expected to rise sharply, a survey showed on Friday.`\
+https://nytimes.com/reuters/2020/08/20/world/europe/20reuters-britain-economy-consumersentiment.html?searchResultPosition=3
+
+**Biden on North Korea: Fewer Summits, Tighter Sanctions, Same Standoff**\
+`No more "Little Rocket Man", exchanging love letters or summit pageantry. `\
+https://nytimes.com/reuters/2020/08/20/world/asia/20reuters-usa-election-biden-northkorea-analysis.html?searchResultPosition=4
+
+**Court: Group Can't Sue San Antonio Over Chick-Fil-A Decision**\
+`A group of conservatives doesn't have the legal standing to sue San Antonio over its rejection of a Chick-fil-A restaurant at the city's airport, a Texas appeals court ruled. `\
+https://nytimes.com/aponline/2020/08/20/business/ap-us-lgbt-rights-texas-1st-ld-writethru.html?searchResultPosition=5
+
+**Kamala Harris’s Father, a Footnote in Her Speeches, Is a Prominent Economist**\
+`Donald J. Harris, a Jamaican-born economics professor, has expressed regret that a custody battle brought his close contact with his daughters “to an abrupt halt.”`\
+https://nytimes.com/article/kamala-harris-dad-don-harris.html?searchResultPosition=6
+
 **FOX Sports Takes Brennaman Off NFL Broadcasts**\
 `Thom Brennaman will no longer broadcast NFL games on FOX Sports after he used a homophobic slur on the air while calling a baseball game, the network announced Thursday.`\
-https://nytimes.com/reuters/2020/08/20/sports/football/20reuters-football-nfl-brennaman.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/20/sports/football/20reuters-football-nfl-brennaman.html?searchResultPosition=7
 
 **Trumpism Is a Racket, and Steve Bannon Knew It**\
 `In the MAGA movement, you’re either a predator or a mark.`\
-https://nytimes.com/2020/08/20/opinion/trump-steve-bannon-fraud.html?searchResultPosition=2
+https://nytimes.com/2020/08/20/opinion/trump-steve-bannon-fraud.html?searchResultPosition=8
 
 **Latin America Passes 250,000 Death Toll From COVID-19**\
 `The number of reported COVID-19 deaths in Latin America passed 250,000 on Thursday, as the virus continues to devastate the region that has become the worst affected in the world. `\
-https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-health-coronavirus-latam.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-health-coronavirus-latam.html?searchResultPosition=9
 
 **Woods Says No Cause for Alarm, Neck Was Just 'Hot'**\
 `The sight of Tiger Woods holding cold water bottles to his neck and rubbing his upper back on Thursday ahead of the Northern Trust triggered speculation about his physical health but the former world number one said there was no need to worry.`\
-https://nytimes.com/reuters/2020/08/20/sports/golf/20reuters-golf-northerntrust-woods.html?searchResultPosition=4
-
-**Bannon’s Efforts to Stay Relevant After White House End in Arrest**\
-`Since leaving the Trump administration, the former senior adviser was caught up in federal investigations and lost command of the far-right arena he once ruled.`\
-https://nytimes.com/2020/08/20/us/politics/stephen-bannon-arrest.html?searchResultPosition=5
-
-**Mexico to Get at Least 2,000 Doses of Russia's Sputnik Vaccine to Test**\
-`Mexico will receive at least 2,000 doses of Russia's potential COVID-19 vaccine, dubbed 'Sputnik V', to test among its population, a senior Mexican government official said on Thursday.`\
-https://nytimes.com/reuters/2020/08/20/world/americas/20reuters-health-coronavirus-mexico-russia.html?searchResultPosition=6
-
-**Prosecutors: Former Uber Exec Charged in Hacking Cover-Up**\
-`A former Uber executive was charged Thursday in federal court on allegations that he arranged to pay hackers $100,000 to cover up a high-tech heist  that stole the personal information about 57 million of the ride-hailing service’s users and drivers during 2016.`\
-https://nytimes.com/aponline/2020/08/20/business/bc-us-uber-hack-charges.html?searchResultPosition=7
-
-**A Growing List: Trump Associates Ensnared in Legal Troubles**\
-`The arrest Thursday of President Donald Trump’s former chief strategist Steve Bannon adds to a growing list of the president’s associates ensnared in legal trouble. `\
-https://nytimes.com/aponline/2020/08/20/us/politics/ap-us-trump-adviser-arrest-glance.html?searchResultPosition=8
-
-**A Rhode Islander Reconciles Herself to Calamari**\
-`Sure, other states might have squid — but do they have this much of it?`\
-https://nytimes.com/2020/08/20/opinion/rhode-island-calamari.html?searchResultPosition=9
-
-**Trump Goes on Offensive, Starting With an Attack on Harris**\
-`President Trump sought to stoke fear of immigrants by offering a brutal description of a case involving an undocumented immigrant who was included in a jobs program while Kamala Harris was the top prosecutor in San Francisco.`\
-https://nytimes.com/2020/08/20/us/politics/trump-harris-biden-pennsylvania.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/20/sports/golf/20reuters-golf-northerntrust-woods.html?searchResultPosition=10
 
