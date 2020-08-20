@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/08/20/world/asia/20reuters-australia-investment
 `Asian equities and U.S. futures fell on Thursday, hurt by the U.S. Federal Reserve's cautious view of the economy, tensions with China and new clusters of coronavirus infections. `\
 https://nytimes.com/reuters/2020/08/20/business/20reuters-global-markets.html?searchResultPosition=8
 
-**Portland Protesters Gather at Federal Immigration Building**\
-`Authorities declared an unlawful assembly at a Portland protest outside an Immigration and Customs Enforcement building. `\
+**Portland Police: Riot Outside Federal Immigration Building**\
+`Authorities declared a riot at a Portland protest outside an Immigration and Customs Enforcement building. `\
 https://nytimes.com/aponline/2020/08/20/us/ap-us-portland-protests.html?searchResultPosition=9
 
 **Highlights From the Democratic National Convention: Night 3**\
