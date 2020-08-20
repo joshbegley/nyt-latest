@@ -1,4 +1,4 @@
-**Hong Kong Government Slams U.S. Decision to Suspend Treaties**\
+**Hong Kong Government Slams US Decision to Suspend Treaties**\
 `The Hong Kong government on Thursday condemned the U.S.’s decision to suspend bilateral extradition and tax exemption treaties with the semi-autonomous Chinese city, saying it was being used as a pawn in geopolitics.`\
 https://nytimes.com/aponline/2020/08/20/business/ap-as-hong-kong-china.html?searchResultPosition=1
 
