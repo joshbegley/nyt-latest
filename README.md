@@ -35,6 +35,6 @@ https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-russia-politics-na
 https://nytimes.com/aponline/2020/08/21/world/europe/ap-eu-virus-outbreak-german-schools.html?searchResultPosition=9
 
 **Covid-19 Live Updates: Colleges Warn Students Against Campus Gatherings**\
-`N.C. State will shift instruction online, and other universities cautioned young people as they return to class.`\
+`N.C. State will shift instruction online, and other universities cautioned young people as they returned to class.`\
 https://nytimes.com/2020/08/21/world/covid-19-coronavirus.html?searchResultPosition=10
 
