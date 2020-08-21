@@ -1,40 +1,40 @@
+**Latest Round of Brexit Talks Bring No Breakthrough, Says EU Official**\
+`The latest negotiating round between Britain and the EU on their future relationship after a post-Brexit transition period runs out at the end of 2020 brought no breakthroughs this week on the key sticking points, an official with the bloc said on Friday. `\
+https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-britain-eu-official.html?searchResultPosition=1
+
+**Irish Minister Resigns Over COVID-19 Breach, Colleague Says**\
+`Ireland's agriculture minister resigned on Friday, a cabinet colleague said, after his attendance at a social event which may have breached COVID-19 regulations drew a wave of public anger.  `\
+https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-health-coronavirus-ireland-resign.html?searchResultPosition=2
+
+**Irish PM Accepts Minister's Resignation Over COVID-19 Breach**\
+`Ireland's prime minister on Friday accepted the resignation of Agriculture Minister Dara Calleary after his attendance at a social event which may have breached COVID-19 regulations drew a wave of public anger.  `\
+https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-health-coronavirus-ireland.html?searchResultPosition=3
+
+**Russia's Vektor COVID-19 Vaccine to Complete Clinical Trial in September: RIA**\
+`The clinical trial of a Russian COVID-19 vaccine being developed by the Siberian Vektor research centre is due to be completed in September, the RIA news agency cited Russia's healthcare watchdog as saying on Friday.`\
+https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-health-coronavirus-russia-vaccine.html?searchResultPosition=4
+
+**Papua New Guinea Bars Chinese Workers in Vaccine Trial Over Virus Risk: Paper**\
+`Papua New Guinea has denied entry to Chinese nationals who participated in a COVID-19 vaccine trial, the Australian newspaper said on Friday, as the Pacific nation battles a worsening outbreak of the respiratory disease. `\
+https://nytimes.com/reuters/2020/08/21/world/asia/21reuters-health-coronavirus-papua.html?searchResultPosition=5
+
+**Unlawful Assembly Declared at Portland ICE Building**\
+`Demonstrators returned to a U.S. Immigration and Customs Enforcement building in Portland, Oregon, late Thursday for a second consecutive night and faced off with law enforcement.`\
+https://nytimes.com/aponline/2020/08/21/us/ap-us-portland-protests.html?searchResultPosition=6
+
+**Russian Hospital Doctor Says No Poison Found in Tests on Kremlin Critic Navalny**\
+`The deputy head doctor of a hospital in Siberia said on Friday doctors had found no traces of poison in tests carried out on Kremlin critic Alexei Navalny, who was taken ill while flying back to Moscow from Siberia.`\
+https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-russia-politics-navalny-poison.html?searchResultPosition=7
+
 **South Korea Urges More Testing, Quarantines as Coronavirus Cases Hit 5-1/2 Month High**\
 `South Korean health authorities warned on Friday that a cluster of coronavirus infections in the capital Seoul was threatening to spread after thousands of people attended a rally by conservative political groups last week. `\
-https://nytimes.com/reuters/2020/08/21/world/asia/21reuters-health-coronavirus-southkorea.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/21/world/asia/21reuters-health-coronavirus-southkorea.html?searchResultPosition=8
 
 **Hong Kong Leader Announces Mass COVID-19 Testing to Begin September 1**\
 `Hong Kong leader Carrie Lam said on Friday that mass testing of residents for coronavirus in the Asian financial hub will begin on Sept. 1, as she warned people not to be complacent despite a steady fall in the number of new infections. `\
-https://nytimes.com/reuters/2020/08/21/world/asia/21reuters-health-coronavirus-hongkong.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/21/world/asia/21reuters-health-coronavirus-hongkong.html?searchResultPosition=9
 
 **Evacuees Brave Heat, Pandemic to Flee California's Lightning-Caused Firestorms**\
 `Tens of thousands of displaced Californians huddled under evacuation orders in the midst of a heat wave and a pandemic on Thursday as lightning-sparked firestorms raged through dry brush, grass and chaparral around San Francisco Bay.`\
-https://nytimes.com/reuters/2020/08/21/us/21reuters-california-wildfire.html?searchResultPosition=3
-
-**Late Night Savors Steve Bannon’s Arrest (and His Photo)**\
-`The former Trump adviser has been charged with fraud, but the hosts seemed almost as interested in his current look. Seth Meyers called him a “baked-potato Fabio.”`\
-https://nytimes.com/2020/08/21/arts/television/late-night-steve-bannon-seth-meyers.html?searchResultPosition=4
-
-**Russia's Coronavirus Case Tally Nears 950,000**\
-`Russia reported 4,870 new coronavirus cases on Friday, pushing its confirmed national tally to 946,976, the fourth largest in the world. `\
-https://nytimes.com/reuters/2020/08/21/sports/21reuters-health-coronavirus-russia-cases.html?searchResultPosition=5
-
-**UK Transport Minister Says Doesn't Want to Offer False Hope on Airport Tests**\
-`Britain is investigating using coronavirus testing to shorten quarantine times for travellers from restricted countries but does not want to offer false hope that the rules can be changed easily, transport minister Grant Shapps said on Friday.`\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-health-coronavirus-britain-travel.html?searchResultPosition=6
-
-**German Recovery Losing Some Momentum as Services Struggle in August: PMI**\
-`The recovery of Germany's private sector from the coronavirus pandemic has slowed in August as activity in the service sector has unexpectedly come to a near standstill, a survey showed on Friday.`\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-germany-economy-pmi.html?searchResultPosition=7
-
-**European Shares Struggle to Gain, PMI Data Awaited**\
-`European shares were flat on Friday ahead of business activity data that could throw light on the pace of economic recovery in the continent, while a stronger pound dragged UK's exporter-heavy FTSE 100 lower. `\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-europe-stocks.html?searchResultPosition=8
-
-**Iran Says US Has No Right to Demand Restoration of Sanctions**\
-`Iran’s foreign minister in a letter to the U.N. Security Council said the U.S. has no right to demand the restoration of U.N. sanctions against Iran, the Foreign Ministry's website said Friday.`\
-https://nytimes.com/aponline/2020/08/21/world/middleeast/ap-ml-iran-us.html?searchResultPosition=9
-
-**Russian Doctors Accused of Blocking Overseas Transfer of Aleksei Navalny**\
-`A plane from Germany was flown to Russia to pick up the prominent opposition leader for treatment after a suspected poisoning. But medical officials say his condition is too unstable.`\
-https://nytimes.com/2020/08/21/world/europe/russia-navalny-poison-hospital.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/21/us/21reuters-california-wildfire.html?searchResultPosition=10
 
