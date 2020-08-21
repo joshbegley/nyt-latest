@@ -1,5 +1,5 @@
 **Joe Biden Accepts Democratic Nomination: ‘I Will Draw on the Best of Us’**\
-`Mr. Biden urged Americans to have faith that they could “overcome this season of darkness,” and pledged that he would seek to bridge the country’s divisions in ways President Trump had not.`\
+`Mr. Biden urged Americans to have faith that they could “overcome this season of darkness,” and pledged to bridge the country’s divisions in ways President Trump had not.`\
 https://nytimes.com/2020/08/20/us/politics/joe-biden-accepts-democratic-nomination-i-will-draw-on-the-best-of-us.html?searchResultPosition=1
 
 **‘With Great Honor and Humility, I Accept This Nomination,’ Biden Says**\
@@ -10,8 +10,8 @@ https://nytimes.com/video/us/elections/100000007299760/joe-biden-speaks-dnc.html
 `A look at what's happening around the majors on Friday:`\
 https://nytimes.com/aponline/2020/08/20/sports/baseball/ap-bbo-leading-off.html?searchResultPosition=3
 
-**Steve Bannon, Aleksei Navalny, Algorithm Bias: Your Friday Briefing**\
-`Here's what you need to know.`\
+**Your Friday Briefing**\
+`Steve Bannon, Aleksei Navalny, algorithm bias: Here's what you need to know.`\
 https://nytimes.com/2020/08/20/briefing/steve-bannon-aleksei-navalny-algorithm-bias.html?searchResultPosition=4
 
 **Red Sox Hand Orioles 5th Straight Loss 7-1 Behind Eovaldi**\
