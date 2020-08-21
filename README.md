@@ -14,8 +14,8 @@ https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-eurozone-economy-p
 `The latest negotiating round between Britain and the EU on their future relationship after a post-Brexit transition period runs out at the end of 2020 brought no breakthroughs this week on the key sticking points, an official with the bloc said on Friday. `\
 https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-britain-eu-official.html?searchResultPosition=4
 
-**Irish Minister Resigns Over COVID-19 Breach, Colleague Says**\
-`Ireland's agriculture minister resigned on Friday, a cabinet colleague said, after his attendance at a social event which may have breached COVID-19 regulations drew a wave of public anger.  `\
+**Irish PM Accepts Minister's Resignation Over COVID-19 Breach**\
+`Ireland's prime minister on Friday accepted the resignation of Agriculture Minister Dara Calleary after his attendance at a social event drew public anger for having apparently breached rules to limit the spread of the coronavirus.`\
 https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-health-coronavirus-ireland-resign.html?searchResultPosition=5
 
 **Irish PM Accepts Minister's Resignation Over COVID-19 Breach**\
