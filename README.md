@@ -1,40 +1,40 @@
+**U.S., EU Hatch Mini-Deal to Cut Lobster, Other Tariffs**\
+`The United States and the European Union have hatched a mini-deal to cut imports tariffs on a small range of products, including U.S. lobsters, in a sign of an easing of transatlantic trade tensions.`\
+https://nytimes.com/reuters/2020/08/21/business/21reuters-usa-trade-eu.html?searchResultPosition=1
+
+**Netflix, Accused of Sexualizing Girls, Pulls Artwork for ‘Cuties’**\
+`Conspiracy theorists and concerned parents complained about the image associated with “Cuties,” a French film that questions how children are encouraged to be sexualized.`\
+https://nytimes.com/2020/08/21/movies/netflix-cuties.html?searchResultPosition=2
+
+**Silver Unsure Dec. 1 Start Date Is Realistic**\
+`Commissioner Adam Silver warned on Thursday night that the NBA's scheduled Dec. 1 start date for the 2020-21 season is likely to be moved back.`\
+https://nytimes.com/reuters/2020/08/21/sports/basketball/21reuters-basketball-nba-silver.html?searchResultPosition=3
+
+**Gilead Study: Remdesivir Has Marginal Benefit for Moderate COVID Patients**\
+`Moderately ill COVID-19 patients saw their condition improve after a 5-day course of Gilead Sciences Inc's remdesivir, but a 10-day course did not show a benefit and the drug did not significantly shorten hospital stays, according to new data.`\
+https://nytimes.com/reuters/2020/08/21/us/21reuters-health-coronavirus-remdesivir.html?searchResultPosition=4
+
+**How to Help a Child With Delays in Motor Skills and When to Get Support**\
+`Occupational therapy is not just for kids with disabilities, it can benefit a wide variety of children.`\
+https://nytimes.com/2020/08/21/parenting/occupational-therapy-coronavirus.html?searchResultPosition=5
+
 **Big Ten Parents at Protest Want Details on No-Play Decision**\
 `Parents of Big Ten football players, upset over the process that led to the postponement of the fall season, held a protest near the conference's Chicago-area headquarters Friday while an attorney in Nebraska demanded Commissioner Kevin Warren turn over material illustrating how the decision was made.`\
-https://nytimes.com/aponline/2020/08/21/sports/ncaafootball/ap-fbc-big-ten-parent-protest.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/21/sports/ncaafootball/ap-fbc-big-ten-parent-protest.html?searchResultPosition=6
 
 **Judge Lifts Veil on New York City Police Discipline Records**\
 `With scores of disciplinary records already online, a federal judge on Friday lifted a temporary restraining order that had barred New York City’s police watchdog agency, police department and other entities from making such information public.`\
-https://nytimes.com/aponline/2020/08/21/us/ap-us-police-accountability-new-york.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/21/us/ap-us-police-accountability-new-york.html?searchResultPosition=7
 
 **Broadway's Tony Awards to Be Awarded in Digital Ceremony This Fall**\
 `The Tony awards, the annual honors celebrating the best in Broadway theater, will be announced during a digital ceremony this fall, organizers said in a statement on Friday.`\
-https://nytimes.com/reuters/2020/08/21/us/21reuters-awards-tonys.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/21/us/21reuters-awards-tonys.html?searchResultPosition=8
 
 **Yankees-Mets Series Postponed Due to Positive COVID-19 Tests**\
 `This weekend's three-game series between the visiting New York Yankees and crosstown rivals New York Mets has been postponed due to two positive tests for COVID-19, Major League Baseball said on Friday.`\
-https://nytimes.com/reuters/2020/08/21/sports/baseball/21reuters-health-coronavirus-baseball-nym.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/21/sports/baseball/21reuters-health-coronavirus-baseball-nym.html?searchResultPosition=9
 
 **After Hagia Sophia, Turkey Turns Another Museum Into Mosque**\
 `The Turkish government formally converted a former Byzantine church into a mosque Friday, a move that came a month after it drew praise from the faithful and international opposition for similarly turning Istanbul’s landmark Hagia Sophia into a Muslim house of prayer.`\
-https://nytimes.com/aponline/2020/08/21/world/europe/ap-eu-turkey-church.html?searchResultPosition=5
-
-**Syracuse Students Suspended in Latest Crackdown by Colleges**\
-`Syracuse University has suspended 23 students following a large on-campus gathering, the latest example of college crackdowns on the kind of socializing that can spread the coronavirus and sink plans for in-person learning this semester. `\
-https://nytimes.com/aponline/2020/08/21/us/ap-us-virus-outbreak-colleges.html?searchResultPosition=6
-
-**The Workplace Is Changing.**\
-`Here’s How to Adapt.`\
-https://nytimes.com/paidpost/metlife/the-workplace-is-changing.html?searchResultPosition=7
-
-**France Reports 4,586 New COVID-19 Infections Over Past 24 Hours**\
-`The French health ministry reported on Friday 4,586 new coronavirus infections over the past 24 hours.`\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-health-oronavirus-france.html?searchResultPosition=8
-
-**Margaret and Jimmy Shaw, Married for 62 Years, Die Apart at 79 and 80**\
-`The couple, who eloped at 17, came from humble roots and were mainstays in their Miami church. They died of the coronavirus in separate hospital rooms.`\
-https://nytimes.com/2020/08/21/obituaries/margaret-and-jimmy-shaw-dead-coronavirus.html?searchResultPosition=9
-
-**Former Milwaukee Police Chief Seeking Damages After Demotion**\
-`Milwaukee's former police chief is seeking damages of $625,000 from the city following his recent demotion, a reduction in rank he did not accept. `\
-https://nytimes.com/aponline/2020/08/21/us/ap-us-milwaukee-police-chief-1st-ld-writethru.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/21/world/europe/ap-eu-turkey-church.html?searchResultPosition=10
 
