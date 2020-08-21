@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-russia-politics-na
 `On the last night of the convention, Joseph R. Biden Jr. officially accepted the Democratic nomination for president. In the most important speech of his career, he said that Americans “will overcome this season of darkness.”`\
 https://nytimes.com/video/us/politics/100000007299516/democratic-national-convention-highlights.html?searchResultPosition=5
 
-**British Public Debt Tops 2 Trillion Pounds for First Time**\
-`Britain's public debt went above 2 trillion pounds for the first time in July as the government ramped up public spending to cope with the coronavirus pandemic, official data showed on Friday.`\
+**British Public Debt Tops Two Trillion Pounds for First Time**\
+`Britain's public debt went above 2 trillion pounds ($2.65 trillion) for the first time in July as the government ramped up public spending to cope with the coronavirus pandemic and tax revenues fell, official data showed on Friday.`\
 https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-health-coronavirus-britain-debt.html?searchResultPosition=6
 
 **'Telegram Revolution': App Helps Drive Belarus Protests**\
