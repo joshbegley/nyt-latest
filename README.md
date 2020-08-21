@@ -1,40 +1,40 @@
+**Three Arrested in Portland Amid Scuffles With Police**\
+`About 100 people blocked traffic, vandalized an immigration building, set fires to dumpsters, and threw rocks and glass bottles at police in the Oregon city of Portland on Thursday night, police said, adding they had arrested three people.`\
+https://nytimes.com/reuters/2020/08/21/us/21reuters-global-race-portland-protests.html?searchResultPosition=1
+
+**Toyota Sees Higher Vehicle Output in Japan in September**\
+`Toyota Motor Corp on Friday said its domestic vehicle production would be 1% higher than initially planned in September, as its plants resume output levels following a steep drop because of the COVID-19 pandemic.`\
+https://nytimes.com/reuters/2020/08/21/business/21reuters-toyota-production.html?searchResultPosition=2
+
+**Spain: 5 More Migrants Die on Dangerous Canary Islands Route**\
+`Five more migrants have died while trying to reach the southern Canary Islands from west Africa, bringing to 20 the number of who lost their lives this week attempting to navigate perilous migration routes to Europe, Spanish authorities said Friday. `\
+https://nytimes.com/aponline/2020/08/21/world/europe/ap-eu-europe-migrants.html?searchResultPosition=3
+
+**Singapore to Allow New Zealand, Brunei Visitors in First Border Easing**\
+`Singapore on Friday said it would reopen its borders to visitors from New Zealand and Brunei from next month, in the city-state's first steps towards resuming leisure travel since it sealed its borders to control COVID-19 outbreaks.  `\
+https://nytimes.com/reuters/2020/08/21/world/asia/21reuters-health-coronavirus-singapore-travel.html?searchResultPosition=4
+
+**COVID-19 Era Highlights U.S. 'Black Hole' Compensation Fund for Pandemic Vaccine Injuries**\
+`A U.`\
+https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-health-coronavirus-vaccines-liability-analysis.html?searchResultPosition=5
+
 **Wall Street Futures Ease Following Nasdaq's Record Close; Business Surveys on Deck**\
 `U.S. stock index futures ticked lower on Friday, a day after the tech-heavy Nasdaq closed at a record high, as investors awaited U.S. business surveys for more clues on the economy's health.`\
-https://nytimes.com/reuters/2020/08/21/business/21reuters-usa-stocks.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/21/business/21reuters-usa-stocks.html?searchResultPosition=6
 
 **U.S. Schools Revamp Curricula in Response to Black Lives Matter**\
 `John Marshall keeps a picture of Breonna Taylor in his office at the headquarters of Kentucky's largest school district, a visual reminder, he says, of the need for curriculum changes that better honor and focus on Black stories.`\
-https://nytimes.com/reuters/2020/08/21/us/21reuters-global-race-usa-textbooks.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/21/us/21reuters-global-race-usa-textbooks.html?searchResultPosition=7
 
 **EU Trade Chief Attended Social Event 'in Good Faith', Commission Says**\
 `European Trade Commissioner Phil Hogan attended "in good faith" a social event in Ireland that police are investigating for an alleged breach of regulations to limit the spread of COVID-19, a spokeswoman for the EU's executive said on Friday.`\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-health-coronavirus-ireland-eu.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-health-coronavirus-ireland-eu.html?searchResultPosition=8
 
 **Biden’s Big Moment**\
 `He never would have imagined the circumstances of this speech, but he managed to make the most of it.`\
-https://nytimes.com/2020/08/21/us/politics/joe-biden-speech-strategy.html?searchResultPosition=4
+https://nytimes.com/2020/08/21/us/politics/joe-biden-speech-strategy.html?searchResultPosition=9
 
 **Libya's Tripoli-Based Government Declares Ceasefire: Statement**\
 `Libya's Tripoli-based, internationally recognised Government of National Accord (GNA) announced a ceasefire on Friday, a statement from its leadership said.`\
-https://nytimes.com/reuters/2020/08/21/world/africa/21reuters-libya-security.html?searchResultPosition=5
-
-**EU Calls on Russia to Let Navalny Get Treatment in Germany: Spokeswoman**\
-`The European Commission on Friday called on Moscow to allow swiftly for treatment in Germany of Russian opposition leader Alexei Navalny, as well as a probe into his suspected poisoning. `\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-russia-politics-navalny-eu.html?searchResultPosition=6
-
-**After Hagia Sophia, Turkey's Historic Chora Church Also Switched to Mosque**\
-`Turkish President Tayyip Erdogan reconverted the historic Chora church, one of Istanbul's most celebrated Byzantine buildings, into a mosque on Friday, a month after opening the famed Hagia Sophia to Muslim worship. `\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-turkey-religion-chora.html?searchResultPosition=7
-
-**Police Investigate Arrest of Black Woman Seen in Viral Video**\
-`A Georgia police department is investigating an arrest captured on video showing a white officer using a stun gun on a Black woman.`\
-https://nytimes.com/aponline/2020/08/21/us/ap-us-viral-arrest-video-investigation.html?searchResultPosition=8
-
-**Siberian Hospital Diagnoses Kremlin Critic Navalny With Metabolic Disease**\
-`The head doctor at the Siberian hospital treating Kremlin critic Alexei Navalny said on Friday he had been diagnosed with a metabolic disease caused by low blood sugar. `\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-russia-politics-navalny-disease.html?searchResultPosition=9
-
-**Russia's Navalny, Putin's Nemesis and Crusader Against Graft**\
-`Alexei Navalny has been the biggest thorn in the Kremlin's side for more than a decade, persistently detailing what he says is high-level graft and mobilising crowds of young protesters in a country where the opposition has no meaningful power.`\
-https://nytimes.com/reuters/2020/08/21/us/21reuters-russia-politics-navalny-profile-newsmaker.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/21/world/africa/21reuters-libya-security.html?searchResultPosition=10
 
