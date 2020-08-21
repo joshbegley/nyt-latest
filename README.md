@@ -1,40 +1,40 @@
+**U.S. Regulator Proposes Scaling Back Personal Information From Trading Database**\
+`The U.S. Securities and Exchange Commission (SEC) on Friday said it would remove some personal information from a controversial trading database, bowing to pressure from the brokerage industry which has long warned the project would be vulnerable to hacks.`\
+https://nytimes.com/reuters/2020/08/21/business/21reuters-usa-sec-regulation-cat.html?searchResultPosition=1
+
+**Column: Could This Be the Year Cinderella Wins NBA Title?**\
+`More than any other sport, the cream of the NBA assuredly rises to the top in the playoffs. `\
+https://nytimes.com/aponline/2020/08/21/sports/basketball/ap-bkn-paul-newberry-nba-playoffs.html?searchResultPosition=2
+
+**Fire That Tore Through Rachel Ray's House Started in Chimney**\
+`A fire that tore through celebrity chef Rachel Ray's upstate New York home started in a fireplace chimney, state officials said Friday.`\
+https://nytimes.com/aponline/2020/08/21/us/ap-us-rachel-ray-house-fire-1st-ld-writethru.html?searchResultPosition=3
+
+**Nina Popova, Dancer Who Fled Bolsheviks and Nazis, Dies at 97**\
+`Ms. Popova, who grew up in Russia, toured the globe, danced on Broadway and became a teacher. She died of the coronavirus.`\
+https://nytimes.com/2020/08/21/obituaries/nina-popova-dead-coronavirus.html?searchResultPosition=4
+
+**Postal Service, Lori Loughlin, Elena Ferrante: Your Friday Evening Briefing**\
+`Here’s what you need to know at the end of the day.`\
+https://nytimes.com/2020/08/21/briefing/postal-service-lori-loughlin-elena-ferrante.html?searchResultPosition=5
+
+**Trump Struggles to Use Power of Presidency to Counter Biden**\
+`President Donald Trump spent the week of the Democratic National Convention forsaking what has historically been an incumbent’s greatest advantage: He's in the job his challenger wants.`\
+https://nytimes.com/aponline/2020/08/21/us/politics/ap-us-election-2020-dnc-trump.html?searchResultPosition=6
+
+**Mexico Inflation Seen Ticking Up to 14-Month High in Early August**\
+`Mexican annual inflation likely accelerated in the first half of August to its highest level in over a year as the coronavirus pandemic helped to push up prices, a Reuters poll of economists showed on Friday.`\
+https://nytimes.com/reuters/2020/08/21/world/americas/21reuters-mexico-economy-inflation.html?searchResultPosition=7
+
+**Venezuela Says Most-Used Border Crossing From Colombia Is Now Open**\
+`Venezuela on Friday said its most-used crossing along the border with Colombia was now open following a brief closure this morning for disinfection, after Colombian migration authorities earlier said it had been closed. `\
+https://nytimes.com/reuters/2020/08/21/world/americas/21reuters-colombia-venezuela.html?searchResultPosition=8
+
 **Brazil's Coronavirus Spread on 'Stable or Downwards' Trend, WHO Says**\
 `The coronavirus crisis in Brazil appears to be leveling off, if not easing, the World Health Organization said on Friday, offering a chink of light for the world's second biggest COVID-19 hot spot.`\
-https://nytimes.com/reuters/2020/08/21/world/americas/21reuters-coronavirus-health-brazil.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/21/world/americas/21reuters-coronavirus-health-brazil.html?searchResultPosition=9
 
 **Online Exchange Blocked in Venezuela Ahead of Health Bonuses**\
 `A currency exchange website appeared Friday to have been blocked in Venezuela as the online platform prepared to launch a U.S.-backed plan to provide assistance to underpaid health workers battling the coronavirus in the South American country. `\
-https://nytimes.com/aponline/2020/08/21/us/ap-lt-virus-outbreak-venezuela-digital-wallets.html?searchResultPosition=2
-
-**Exclusive: TikTok to Challenge U.S. Order Banning Transactions With the Video App-Sources**\
-`TikTok is preparing to mount a legal challenge as early as Monday to President Donald Trump's executive order prohibiting transactions with the popular short video app and its Chinese parent ByteDance, according to people familiar with the matter.`\
-https://nytimes.com/reuters/2020/08/21/business/21reuters-usa-tiktok-trump-exclusive.html?searchResultPosition=3
-
-**FBI Investigating COVID-19 Data Breach in South Dakota**\
-`The FBI is investigating a data breach that may have compromised the identity of people with the COVID-19 virus in South Dakota.`\
-https://nytimes.com/aponline/2020/08/21/business/ap-us-virus-outbreak-data-breach.html?searchResultPosition=4
-
-**Coronavirus Briefing: What Happened Today**\
-`Europe is entering a new phase in the pandemic as a fresh wave of infection strikes countries that had initially reined in the virus.`\
-https://nytimes.com/2020/08/21/us/coronavirus-today.html?searchResultPosition=5
-
-**In Belarus Town, People Tasted a Bite of Freedom. It Lasted 2 Days.**\
-`Protesters in Grodno won some extraordinary concessions from the local government, including a police apology and a pledge of press freedom. They did not last long.`\
-https://nytimes.com/2020/08/21/world/europe/grodno-belarus-protests.html?searchResultPosition=6
-
-**Quarantines, Closures: Confusion Reigns as Schools Reopen**\
-`Frightening calls from the school nurse. Waiting in vain for word from school officials. Canceled sports practices. Marching bands in quarantine.`\
-https://nytimes.com/aponline/2020/08/21/us/ap-us-virus-outbreak-schools.html?searchResultPosition=7
-
-**Baby Panda Could Be on the Way, Mom Appears to Be in Labor**\
-`Paws crossed. A baby panda could be on the way.`\
-https://nytimes.com/aponline/2020/08/21/us/politics/ap-us-nations-capital-baby-panda.html?searchResultPosition=8
-
-**15 Minnesotans Catch Coronavirus at Sturgis Motorcycle Rally**\
-`Fifteen Minnesota residents have contracted the coronavirus after being exposed during the 10-day Sturgis Motorcycle Rally in South Dakota, Minnesota health officials said Friday, warning that they expect the number to grow.`\
-https://nytimes.com/aponline/2020/08/21/us/ap-us-virus-outbreak-sturgis.html?searchResultPosition=9
-
-**Limited Transmission of COVID-19 Found in U.S. Childcare Study, CDC Says**\
-`Transmission of COVID-19 from children or adults to other people in Rhode Island childcare programs occurred on only a limited basis, a study by the U.S. Centers for Disease Control and Prevention showed on Friday.`\
-https://nytimes.com/reuters/2020/08/21/us/21reuters-health-coronavirus-usa-daycare.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/21/us/ap-lt-virus-outbreak-venezuela-digital-wallets.html?searchResultPosition=10
 
