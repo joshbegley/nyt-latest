@@ -34,7 +34,7 @@ https://nytimes.com/video/us/elections/100000007299993/gavin-newsom-speaks-dnc.h
 `AUG. 14-20, 2020`\
 https://nytimes.com/aponline/2020/08/20/us/ap-as-pictures-of-the-week-in-asia-photo-gallery.html?searchResultPosition=9
 
-**Live Takeaways of the Democratic National Convention**\
-`Democrats have made the case that Joe Biden is the big tent candidate for a big tent moment, appealing to Republicans and progressives alike who are determined to defeat President Trump.`\
+**Live Takeaways From the Democratic National Convention**\
+`Democrats made the case that Joe Biden is the big-tent candidate for a big-tent moment, appealing to Republicans and progressives alike who are determined to defeat President Trump.`\
 https://nytimes.com/2020/08/20/us/politics/dnc-live-highlights.html?searchResultPosition=10
 
