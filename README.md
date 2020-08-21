@@ -1,6 +1,6 @@
-**Joe Biden Accepts Democratic Nomination**\
-`Mr. Biden urged Americans to have faith that they could “overcome this season of darkness,” and pledged that he would seek to bridge the country’s divisions in ways President Trump had not. “I will draw on the best of us,’’ Mr. Biden said.`\
-https://nytimes.com/2020/08/20/us/politics/joe-biden-accepts-democratic-nomination.html?searchResultPosition=1
+**Joe Biden Accepts Democratic Nomination: ‘I Will Draw on the Best of Us’**\
+`Mr. Biden urged Americans to have faith that they could “overcome this season of darkness,” and pledged that he would seek to bridge the country’s divisions in ways President Trump had not.`\
+https://nytimes.com/2020/08/20/us/politics/joe-biden-accepts-democratic-nomination-i-will-draw-on-the-best-of-us.html?searchResultPosition=1
 
 **‘With Great Honor and Humility, I Accept This Nomination,’ Biden Says**\
 `Joseph R. Biden Jr. accepted the Democratic Party’s nomination for president.`\
