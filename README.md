@@ -22,8 +22,8 @@ https://nytimes.com/aponline/2020/08/21/us/ap-us-war-crimes-lawsuit.html?searchR
 `Distressed investment firm Marble Ridge Capital LP plans to wind down its funds after a government report called into question the actions of its managing partner, Dan Kamensky, during the Neiman Marcus Group bankruptcy, the firm said on Thursday.`\
 https://nytimes.com/reuters/2020/08/21/business/21reuters-hedgefunds-marble-ridge.html?searchResultPosition=6
 
-**Apple Asks Judge to Reject 'Fortnite' Maker's Bid to Be Kept in App Store**\
-`Apple Inc on Friday asked a federal judge in California to deny a request by "Fortnite" maker Epic Games to be kept in the iPhone maker's App Store as a dispute between the two over Apple's in-app payment rules plays out.`\
+**Apple Says 'Fortnite' Maker Wanted 'Side Letter' to Create Own Game Store**\
+`Apple Inc on Friday alleged that Epic Games' chief executive had asked it for a "side letter" to create its own game store within the iPhone maker's App Store, which Apple said would have upended the store's commission-based business model.`\
 https://nytimes.com/reuters/2020/08/21/business/21reuters-apple-epic-games.html?searchResultPosition=7
 
 **Overlooked No More: Leonora O’Reilly, Suffragist Who Fought for Working Women**\
