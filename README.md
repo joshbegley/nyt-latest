@@ -2,8 +2,8 @@
 `Turkey has found significant gas resources in the Black Sea, two Turkish sources said, a discovery which could help the country cut its dependence on energy imports if the gas can be commercially extracted.`\
 https://nytimes.com/reuters/2020/08/20/world/europe/20reuters-turkey-energy.html?searchResultPosition=1
 
-**Ghislaine Maxwell Says 2016 Deposition Should Be Kept Out of Public Eye**\
-`Lawyers for Ghislaine Maxwell on Thursday urged a U.S. appeals court to block the release of a deposition that they have said would not only be embarrassing, but could destroy her chance for a fair trial on criminal charges she aided the late financier Jeffrey Epstein's sexual abuse of girls.`\
+**Ghislaine Maxwell Says Trial on Epstein Charges Threatened by Deposition**\
+`Ghislaine Maxwell on Thursday urged a U.S. appeals court to block the release of a deposition on the grounds it could destroy her chance for a fair trial on criminal charges she aided the late financier Jeffrey Epstein's sexual abuse of girls.`\
 https://nytimes.com/reuters/2020/08/20/us/20reuters-people-ghislaine-maxwell.html?searchResultPosition=2
 
 **Mexico Tops 59,100 Coronavirus Deaths**\
