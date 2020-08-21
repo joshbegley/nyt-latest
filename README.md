@@ -1,40 +1,40 @@
+**Late Strom Thurmond Name on U of South Carolina Complex Eyed**\
+`Some recent standouts in University of South Carolina athletics are asking the school to change the name of its showpiece fitness center, arguing that the late U.S. Sen. Strom Thurmond shouldn't be honored in such a way due to the segregationist views he once held.`\
+https://nytimes.com/aponline/2020/08/21/sports/ap-us-racial-injustice-south-carolina.html?searchResultPosition=1
+
+**Trump, Biden Campaigns Step Up Spending, Drop Millions on Ads**\
+`U.S. President Donald Trump and his Democratic rival Joe Biden stepped up campaign spending in July, according to disclosures filed on Thursday with the Federal Election Commission.`\
+https://nytimes.com/reuters/2020/08/21/us/politics/21reuters-usa-election-fundraising.html?searchResultPosition=2
+
+**Dollar on Backfoot Amid Economic Doubts, Yuan Shines**\
+`The dollar was on the defensive against most currencies on Friday after a rise in U.S. jobless claims and a dip in Treasury yields dampened the appeal of holding the greenback.`\
+https://nytimes.com/reuters/2020/08/21/world/asia/21reuters-global-forex.html?searchResultPosition=3
+
+**Australia Virus Cases Dive to Five-Week Low**\
+`Australia headed for its lowest daily increase in coronavirus infections in five weeks on Friday as the hotspot state of Victoria neared the midway point of lockdown, prompting the prime minister to hail "a week of increased hope".`\
+https://nytimes.com/reuters/2020/08/21/world/asia/21reuters-health-coronavirus-australia.html?searchResultPosition=4
+
+**NFL: Washington Head Coach Rivera Diagnosed With Cancer**\
+`Washington Football Team's first-year head coach Ron Rivera has been diagnosed with a form of skin cancer but plans to continue coaching, the National Football League (NFL) franchise said on Thursday.`\
+https://nytimes.com/reuters/2020/08/21/sports/football/21reuters-football-nfl-was.html?searchResultPosition=5
+
+**U.S. Unfreezing Venezualan Assets to Help Opposition Fight COVID-19: Guaido**\
+`Venezuela's opposition said on Thursday the United States has granted it access to millions of dollars of frozen Venezuelan government funds to support efforts to combat the spread of COVID-19 in the country.`\
+https://nytimes.com/reuters/2020/08/21/world/americas/21reuters-health-coronavirus-venezuela.html?searchResultPosition=6
+
 **Biden Promises to End 'Darkness' of Trump Era as He Accepts Democratic Nomination**\
 `Joe Biden accepted the Democratic Party nomination for the White House on Thursday, vowing to heal a United States battered by a deadly pandemic and divided by four years of Donald Trump's presidency.`\
-https://nytimes.com/reuters/2020/08/21/us/politics/21reuters-usa-election-convention.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/21/us/politics/21reuters-usa-election-convention.html?searchResultPosition=7
 
 **California Fires Claim 5 Lives, Threaten Thousands of Homes**\
 `Wildfires that blackened skies, took at least five lives and forced tens of thousands of people from their homes were blazing through California on Thursday, straining firefighting resources by the sheer vastness of the battle lines.`\
-https://nytimes.com/aponline/2020/08/21/us/ap-us-california-wildfires.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/21/us/ap-us-california-wildfires.html?searchResultPosition=8
 
 **Strong and Deep Undersea Earthquake Shakes Eastern Indonesia**\
 `A strong, deep undersea earthquake shook eastern Indonesia on Friday, but no damage has been reported.`\
-https://nytimes.com/aponline/2020/08/21/world/asia/ap-as-indonesia-earthquake.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/21/world/asia/ap-as-indonesia-earthquake.html?searchResultPosition=9
 
 **Golden State Killer Set for Multiple Life Prison Sentences**\
 `A former police officer once sworn to protect the public faces multiple consecutive life prison sentences Friday after he was ultimately unmasked as the mysterious Golden State Killer who eluded his fellow investigators for four decades. `\
-https://nytimes.com/aponline/2020/08/21/business/ap-us-golden-state-killer.html?searchResultPosition=4
-
-**With Bannon Arrest,' Sovereign District' Sends Another Salvo**\
-`If the recent firing of the top federal prosecutor in Manhattan was intended to quell criminal investigations into President Donald Trump's close associates, as some have accused, federal prosecutors in New York appear to have missed the memo.`\
-https://nytimes.com/aponline/2020/08/21/business/ap-us-trump-investigations.html?searchResultPosition=5
-
-**Saved by Suburbs: Food Trucks Hit by Virus Find New Foodies**\
-`On a warm summer night, two food trucks pulled onto a tree-lined street in a hilltop neighborhood outside Seattle.`\
-https://nytimes.com/aponline/2020/08/21/business/ap-us-virus-outbreak-food-trucks-suburbs.html?searchResultPosition=6
-
-**Dozens of WWII Veterans to Gather in Hawaii Amid Pandemic**\
-`Several dozen aging U.`\
-https://nytimes.com/aponline/2020/08/21/us/ap-us-virus-outbreak-wwii-surrender-veterans.html?searchResultPosition=7
-
-**The Latest: PM Says Australia Travel Limit Prevents 2nd Wave**\
-`CANBERRA, Australia — Australia’s prime minister says his government has avoided a major second wave of coronavirus infections on the scale of France, Germany or Britain by limiting international travel.`\
-https://nytimes.com/aponline/2020/08/21/business/ap-virus-outbreak-the-latest.html?searchResultPosition=8
-
-**Former Sailor Details Misconduct by SEALs Pulled From Iraq**\
-`U.S. Navy intelligence specialist Colleen Grace was asleep on a remote air base in Iraq when she was woken up by knocking on the door next to her room, and then a voice she recognized.`\
-https://nytimes.com/aponline/2020/08/21/us/ap-us-navy-seal-sexual-assault-abridged.html?searchResultPosition=9
-
-**Former Sailor Details Misconduct by SEALs Pulled From Iraq**\
-`U.S. Navy intelligence specialist Colleen Grace was asleep on a remote air base in Iraq in 2019 when she was woken up by knocking on the door next to her room, and then a voice she recognized.`\
-https://nytimes.com/aponline/2020/08/21/us/ap-us-navy-seal-sexual-assault.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/21/business/ap-us-golden-state-killer.html?searchResultPosition=10
 
