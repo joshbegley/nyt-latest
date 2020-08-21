@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/08/20/world/asia/20reuters-china-regulation-cla
 https://nytimes.com/video/us/elections/100000007299747/michael-bloomberg-speaks-dnc.html?searchResultPosition=2
 
 **Joe Biden Accepts Democratic Nomination: ‘I Will Draw on the Best of Us’**\
-`Mr. Biden urged Americans to have faith that they could “overcome this season of darkness,” and pledged to bridge the country’s divisions in ways President Trump had not.`\
+`Mr. Biden urged Americans to have faith that they could “overcome this season of darkness,” and he pledged to bridge the country’s divisions in ways President Trump had not.`\
 https://nytimes.com/2020/08/20/us/politics/Joe-Biden-accepts-democratic-nomination.html?searchResultPosition=3
 
 **‘With Great Honor and Humility, I Accept This Nomination,’ Biden Says**\
