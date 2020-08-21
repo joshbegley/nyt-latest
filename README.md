@@ -30,8 +30,8 @@ https://nytimes.com/reuters/2020/08/20/arts/20reuters-usa-election-convention-lo
 `Candidates who ran against Joe Biden for the Democratic nomination for president endorsed him in a show of party unity at the Democratic convention.`\
 https://nytimes.com/video/us/elections/100000007299914/2020-candidates-endorse-biden-dnc.html?searchResultPosition=8
 
-**Marble Ridge to Liquidate Funds Following Neiman Marcus Scandal: Letter**\
-`Marble Ridge Capital LP, the distressed investment firm led by Dan Kamensky, plans to wind down its funds after it was admonished in a government report for its actions during the Neiman Marcus Group bankruptcy process, according to a letter sent to Marble Ridge clients on Thursday night seen by Reuters.`\
+**Marble Ridge to Liquidate Funds After Neiman Marcus Scandal: Letter**\
+`Distressed investment firm Marble Ridge Capital LP plans to wind down its funds after a government report called into question the actions of its managing partner, Dan Kamensky, during the Neiman Marcus Group bankruptcy, the firm said on Thursday.`\
 https://nytimes.com/reuters/2020/08/20/business/20reuters-hedgefunds-marble-ridge.html?searchResultPosition=9
 
 **Burke Scores 23, Fever Snap Storm's 9-Game Winning Streak**\
