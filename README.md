@@ -1,40 +1,40 @@
-**Late Night Savors Steve Bannon’s Arrest (and His Photo)**\
-`The former Trump adviser has been charged with fraud, but the hosts seemed almost as interested in his current look. Seth Meyers called him a “baked-potato Fabio.”`\
-https://nytimes.com/2020/08/21/arts/television/late-night-steve-bannon-seth-meyers.html?searchResultPosition=1
+**Louis-Dreyfus Offers Humor, and Trump Mockery, at the Democratic Convention**\
+`After three nights of solemn political rhetoric at the U.S. Democratic National Convention, comedian Julia Louis-Dreyfus injected a heavy dose of humor and mockery on Thursday, all of it aimed at Republican President Donald Trump.`\
+https://nytimes.com/reuters/2020/08/21/arts/21reuters-usa-election-convention-louis-dreyfus.html?searchResultPosition=1
 
-**Russia's Coronavirus Case Tally Nears 950,000**\
-`Russia reported 4,870 new coronavirus cases on Friday, pushing its confirmed national tally to 946,976, the fourth largest in the world. `\
-https://nytimes.com/reuters/2020/08/21/sports/21reuters-health-coronavirus-russia-cases.html?searchResultPosition=2
+**Judge Exempts Journalists, Legal Observers From Portland Protest Dispersal Orders**\
+`A U.S. judge granted a preliminary injunction on Thursday against federal officers, exempting journalists and legal observers from orders to disperse after the officers declare riots at Portland protests.`\
+https://nytimes.com/reuters/2020/08/21/us/21reuters-global-race-portland-ruling.html?searchResultPosition=2
 
-**UK Transport Minister Says Doesn't Want to Offer False Hope on Airport Tests**\
-`Britain is investigating using coronavirus testing to shorten quarantine times for travellers from restricted countries but does not want to offer false hope that the rules can be changed easily, transport minister Grant Shapps said on Friday.`\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-health-coronavirus-britain-travel.html?searchResultPosition=3
+**In Convention Speech, Biden Emerges From Shadow and Into 'the Light'**\
+`Joe Biden finally got his moment.`\
+https://nytimes.com/reuters/2020/08/21/us/21reuters-usa-election-convention-biden-analysis.html?searchResultPosition=3
 
-**German Recovery Losing Some Momentum as Services Struggle in August: PMI**\
-`The recovery of Germany's private sector from the coronavirus pandemic has slowed in August as activity in the service sector has unexpectedly come to a near standstill, a survey showed on Friday.`\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-germany-economy-pmi.html?searchResultPosition=4
+**‘The Sleepover’ Review: My Mother, the Jewel Thief**\
+`In this Netflix movie, kids on an adventure to rescue their mother discover more about her past.`\
+https://nytimes.com/2020/08/21/movies/the-sleepover-review.html?searchResultPosition=4
 
-**European Shares Struggle to Gain, PMI Data Awaited**\
-`European shares were flat on Friday ahead of business activity data that could throw light on the pace of economic recovery in the continent, while a stronger pound dragged UK's exporter-heavy FTSE 100 lower. `\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-europe-stocks.html?searchResultPosition=5
+**Russian Doctors Refuse Navalny's Transfer to Germany**\
+`Doctors in the Siberian city of Omsk refused to authorize the transfer of Russian opposition politician Alexei Navalny to a German hospital, his spokeswoman said Friday.`\
+https://nytimes.com/aponline/2020/08/21/world/europe/ap-eu-russia-navalny.html?searchResultPosition=5
 
-**Iran Says US Has No Right to Demand Restoration of Sanctions**\
-`Iran’s foreign minister in a letter to the U.N. Security Council said the U.S. has no right to demand the restoration of U.N. sanctions against Iran, the Foreign Ministry's website said Friday.`\
-https://nytimes.com/aponline/2020/08/21/world/middleeast/ap-ml-iran-us.html?searchResultPosition=6
+**Harris' Dual Identities Challenge America's Race Labels**\
+`It was just 20 years ago that the U.S. census began to allow Americans to identify as more than one race. And now, the country is on the threshold of seeing the name of Kamala Harris -- proud daughter of a Jamaican father and Indian mother -- on the national ballot.`\
+https://nytimes.com/aponline/2020/08/21/us/ap-us-kamala-harris-biracial.html?searchResultPosition=6
 
-**Russian Doctors Accused of Blocking Overseas Transfer of Aleksei Navalny**\
-`A plane from Germany was flown to Russia to pick up the prominent opposition leader for treatment after a suspected poisoning. But medical officials say his condition is too unstable.`\
-https://nytimes.com/2020/08/21/world/europe/russia-navalny-poison-hospital.html?searchResultPosition=7
+**Asian Shares Track Wall Street Gains Amid Vaccine Hopes**\
+`Asian shares were higher Friday on hopes for development of a coronavirus vaccine, although worries remained about long-term economic damage from the pandemic. `\
+https://nytimes.com/aponline/2020/08/21/business/bc-financial-markets.html?searchResultPosition=7
 
-**Beau Knows: Isles Use Structure, Young Skill to Advance**\
-`Anthony Beauvillier paid the price for scoring when he absorbed a big hit from Tom Wilson into one of the goalposts. He shook off the pain and returned to the game.`\
-https://nytimes.com/aponline/2020/08/21/sports/hockey/ap-hkn-islanders-advance.html?searchResultPosition=8
+**Germany's Confirmed Coronavirus Cases Rise by 1,427: RKI**\
+`The number of confirmed coronavirus cases in Germany increased by 1,427 to 230,048, data from the Robert Koch Institute (RKI) for infectious diseases showed on Friday.`\
+https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-health-coronavirus-germany-cases.html?searchResultPosition=8
 
-**French Business Activity Weaker Than Expected in August: PMI**\
-`French business activity has lost more momentum than expected in August, a survey showed on Friday, as firms worked off backlogs of work built-up during a coronavirus lockdown.`\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-france-economy-pmi.html?searchResultPosition=9
+**How Convention Speaking Times Reveal Democrats Pecking Order**\
+`In the run-up to the four-day virtual event, speakers jockeyed for more air time. Here’s who had the most.`\
+https://nytimes.com/interactive/2020/08/21/us/politics/dnc-speakers-run-time.html?searchResultPosition=9
 
-**News Quiz: Democrats, Russia, Herd Immunity**\
-`Did you follow the headlines this week?`\
-https://nytimes.com/interactive/2020/08/21/briefing/democrats-russia-herd-immunity-news-quiz.html?searchResultPosition=10
+**Gaza Militants Fire 12 Rockets, Israel Strikes Hamas Targets**\
+`Palestinian militants fired 12 rockets at Israel from the Gaza Strip overnight, nine of which were intercepted, and Israel responded with three airstrikes on targets linked to the territory's militant Hamas rulers, the Israeli military said early Friday.`\
+https://nytimes.com/aponline/2020/08/21/world/middleeast/ap-ml-israel-gaza.html?searchResultPosition=10
 
