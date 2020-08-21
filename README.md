@@ -1,40 +1,40 @@
-**A Former Soldier Tells His Grandson: ‘I Wasn’t a Nazi.’**\
-`In his debut novel, “We Germans,” Alexander Starritt considers the weight of shame.`\
-https://nytimes.com/2020/08/21/books/review/we-germans-alexander-starritt.html?searchResultPosition=1
+**Philippines Reports 4,786 More Coronavirus Infections, 59 Deaths**\
+`The Philippines on Friday recorded 4,786 new coronavirus infections, taking its total confirmed cases to 182,365 since the pandemic began, the highest in Southeast Asia.`\
+https://nytimes.com/reuters/2020/08/21/world/asia/21reuters-health-coronavirus-philippines-cases.html?searchResultPosition=1
 
-**Letters to the Editor**\
-`Readers respond to recent issues of the Sunday Book Review.`\
-https://nytimes.com/2020/08/21/books/review/letters-to-the-editor.html?searchResultPosition=2
+**Democratic Convention: Best and Worst Moments From Joe Biden’s Big Night**\
+`Our columnists and contributors give their rankings.`\
+https://nytimes.com/2020/08/21/opinion/democratic-convention-best-worst-night-4.html?searchResultPosition=2
 
-**New in Paperback: ‘Girl in Black and White’ and ‘Know My Name’**\
-`Six new paperbacks to check out this week.`\
-https://nytimes.com/2020/08/21/books/review/new-paperbacks.html?searchResultPosition=3
+**Frank Sinatra Slept Here, and So Can You**\
+`In New York and across the country, the former homes of famous writers, musicians and film stars are available as short-term rentals.`\
+https://nytimes.com/2020/08/21/realestate/short-term-rentals-sinatra-dylan-steinbeck.html?searchResultPosition=3
 
-**Weekly Health Quiz: Gaiters, E-Bikes and Antibodies**\
-`Test your knowledge of this week’s health news.`\
-https://nytimes.com/interactive/2020/08/21/well/live/21healthquiz-08212020.html?searchResultPosition=4
+**Live Like a Star**\
+`Short-term rentals around the country offer connections to the rich and famous, including the likes of Frank Sinatra, Bob Dylan and Scott and Zelda Fitzgerald.`\
+https://nytimes.com/slideshow/2020/08/21/realestate/live-like-a-star.html?searchResultPosition=4
 
-**Doctors Strike in Nairobi Over Pay, Lack of COVID Protection**\
-`Doctors in most public hospitals in Kenya's capital went on strike on Friday to protest against delayed salaries and a lack of protective equipment when handling patients who may have COVID-19. `\
-https://nytimes.com/reuters/2020/08/21/world/africa/21reuters-health-coronavirus-kenya.html?searchResultPosition=5
+**The Hottest Commodity in Pandemic New York? Fresh Air**\
+`The skyscrapers are empty, and the streets and parks are full. Here’s how the city is reinventing itself.`\
+https://nytimes.com/2020/08/21/nyregion/coronavirus-nyc-outdoor-restaurants.html?searchResultPosition=5
 
-**Japan Ship Deviated From Shipping Lane Before Mauritius Impact, Data Shows**\
-`The Japanese-owned bulk carrier that ran aground off Mauritius and spilled oil over pristine waters and fragile coral reefs diverted more than 100 kilometres from a regular shipping lane, data from a maritime analysis firm showed.`\
-https://nytimes.com/reuters/2020/08/21/world/asia/21reuters-mauritius-environment-japan.html?searchResultPosition=6
+**Remembering Katrina and Its Unlearned Lessons, 15 Years On**\
+`There’s been so many storms — literal, cultural and political — since the hurricane hit New Orleans. But for the sake of all cities, we can’t forget it.`\
+https://nytimes.com/2020/08/21/sunday-review/coronavirus-hurricane-katrina-anniversary.html?searchResultPosition=6
 
-**France and Germany: We Can Give Navalny Medical Care in Europe**\
-`Germany and France offered on Thursday to provide medical care on their soil for Russian opposition leader Alexei Navalny, who is gravely ill after aides said he was poisoned.`\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-france-germany.html?searchResultPosition=7
+**We Just Crossed the Line Debt Hawks Warned Us About for Decades**\
+`The country’s debt now exceeds the size of its gross domestic product. For decades, this was considered a doomsday scenario that would wreck the economy. So far, that hasn’t happened.`\
+https://nytimes.com/2020/08/21/business/economy/national-debt-coronavirus-stimulus.html?searchResultPosition=7
 
-**British Airways Increasingly Likely to Face Strike Action: Union**\
-`British Airways is increasingly likely to face strike action this autumn, as the trade union representing cabin crew said that new contracts offered to the airline's remaining staff did not offer enough stability and could cut pay substantially. `\
-https://nytimes.com/reuters/2020/08/21/business/21reuters-british-airways-redunancies.html?searchResultPosition=8
+**How White Progressives Undermine School Integration**\
+`A robust body of research shows the benefits of integration. Why, then, is it so hard to achieve?`\
+https://nytimes.com/2020/08/21/nyregion/school-integration-progressives.html?searchResultPosition=8
 
-**Poland Reports New Record in Coronavirus New Daily Cases**\
-`Poland reported 903 new coronavirus cases on Friday, according to the Health Ministry's Twitter account, the highest daily increase since the pandemic outbreak. `\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-health-coronavirus-poland.html?searchResultPosition=9
+**The Solar System Winked**\
+`Ilana Ozernoy and Nina Mouritzen, both immigrants who moved to New York the same year, believe that they were always destined to meet.`\
+https://nytimes.com/2020/08/21/fashion/weddings/Planets-Aligned-for-Ilana-Ozernoy-and-Nina-Mouritzen.html?searchResultPosition=9
 
-**UK Firms See Sharp August Upturn but Job Cuts Mount, PMI Shows**\
-`The recovery among British businesses from the shock of the COVID-19 pandemic quickened again in August, but snowballing job cuts sent an ominous signal for the months ahead, a survey showed on Friday.`\
-https://nytimes.com/reuters/2020/08/21/us/21reuters-health-coronavirus-britain-economy-pmi.html?searchResultPosition=10
+**Watch the Four Moments That Mattered on the Fourth Night of the D.N.C.**\
+`Two of our correspondents break down highlights from the Democrats’ first virtual convention.`\
+https://nytimes.com/2020/08/21/us/politics/dnc-convention-.html?searchResultPosition=10
 
