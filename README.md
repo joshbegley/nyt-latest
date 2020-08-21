@@ -19,7 +19,7 @@ https://nytimes.com/reuters/2020/08/21/sports/olympics/21reuters-olympics-2020-p
 https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-eurozone-economy-pmi.html?searchResultPosition=5
 
 **Latest Round of Brexit Talks Bring No Breakthrough, Says EU Official**\
-`The latest negotiating round between Britain and the EU on their future relationship after a post-Brexit transition period runs out at the end of 2020 brought no breakthroughs this week on the key sticking points, an official with the bloc said on Friday. `\
+`The latest negotiating round between Britain and the European Union on future ties after a post-Brexit transition period runs out at the end of 2020 brought no breakthroughs this week on the key sticking points, an EU official said on Friday. `\
 https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-britain-eu-official.html?searchResultPosition=6
 
 **Irish PM Accepts Minister's Resignation Over COVID-19 Breach**\
