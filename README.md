@@ -1,40 +1,40 @@
+**German Doctors Say Navalny Is in a Fit State to Fly: Activists**\
+`German doctors who flew overnight to Omsk to transport Russian politician Alexei Navalny to Berlin for treatment say that he is in a fit state to be airlifted, the German activist organisation that sent the plane said on Friday.`\
+https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-russia-politics-navalny-doctors-health.html?searchResultPosition=1
+
 **The Latest: World of Outlaws to Ramp Up COVID-19 Protocols**\
 `The Latest on the effects of the coronavirus outbreak on sports around the world:`\
-https://nytimes.com/aponline/2020/08/21/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/21/sports/ap-sports-virus-outbreak-the-latest.html?searchResultPosition=2
 
 **The Poundcake of Your Dreams**\
 `This buttery loaf has a moist, golden crumb, a crème fraîche tang and a texture just as light (or dense) as you like.`\
-https://nytimes.com/2020/08/21/dining/poundcake-recipe.html?searchResultPosition=2
+https://nytimes.com/2020/08/21/dining/poundcake-recipe.html?searchResultPosition=3
 
 **Drugmakers Slash Prices to Win China's Bulk-Buy Contracts: State Media**\
 `Drugmakers have slashed prices by up to 95% to win state contracts in China's largest bidding round of its drug procurement programme, state media said on Thursday.`\
-https://nytimes.com/reuters/2020/08/21/world/asia/21reuters-china-drugs.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/21/world/asia/21reuters-china-drugs.html?searchResultPosition=4
 
 **What to Cook This Weekend**\
 `This may just be the occasion for Melissa Clark’s latest, lamb chops with lettuce and ranch dressing.`\
-https://nytimes.com/2020/08/21/dining/what-to-cook-this-weekend.html?searchResultPosition=4
+https://nytimes.com/2020/08/21/dining/what-to-cook-this-weekend.html?searchResultPosition=5
 
 **Migrants Play Dangerous Cat-And-Mouse Game With Police in Calais**\
 `Standing in front of the remains of dozens of inflatable craft in the backyard of a police station, Captain Eric Binet has a message for migrants considering the sea crossing to Britain: don't risk your lives. `\
-https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-europe-migrants-calais.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/08/21/world/europe/21reuters-europe-migrants-calais.html?searchResultPosition=6
 
 **Greek Officials Say UAE Warplanes to Arrive for Joint Drills**\
 `The United Arab Emirates is sending warplanes to the southern Greek island of Crete for joint training with Greece's air force, officials in Athens said Friday as military tensions continued to simmer between Greece and neighboring Turkey over offshore energy rights.`\
-https://nytimes.com/aponline/2020/08/21/world/europe/ap-eu-greece-turkey-uae.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/08/21/world/europe/ap-eu-greece-turkey-uae.html?searchResultPosition=7
 
 **Explosion Reported in Port District of Corpus Christi, Texas**\
 `Firefighters in Corpus Christi responded Friday to an apparent explosion in the city’s port and refinery district.`\
-https://nytimes.com/aponline/2020/08/21/us/ap-us-corpus-christi-explosion.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/08/21/us/ap-us-corpus-christi-explosion.html?searchResultPosition=8
 
 **Facebook Braces Itself for Trump to Cast Doubt on Election Results**\
 `The world’s biggest social network is working out what steps to take should President Trump use its platform to dispute the vote.`\
-https://nytimes.com/2020/08/21/technology/facebook-trump-election.html?searchResultPosition=8
+https://nytimes.com/2020/08/21/technology/facebook-trump-election.html?searchResultPosition=9
 
 **Take Five: Going Virtual in Jackson Hole**\
 `By Reuters`\
-https://nytimes.com/reuters/2020/08/21/business/21reuters-global-markets-themes-graphic.html?searchResultPosition=9
-
-**Police: Investigator Removed for Bias Favoring Officer**\
-`An internal affairs investigator at a Florida police department has been removed from his post after showing bias in favor of an officer who shot a woman with a rubber bullet during a demonstration, officials said.`\
-https://nytimes.com/aponline/2020/08/21/us/ap-us-racial-injustice-florida-woman-shot.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/21/business/21reuters-global-markets-themes-graphic.html?searchResultPosition=10
 
