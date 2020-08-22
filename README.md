@@ -1,5 +1,5 @@
-**Pro-India Kashmir Groups Vow to Fight Removal of Autonomy**\
-`Main pro-India political parties in Indian-controlled Kashmir vowed Saturday to fight for restoration of the disputed region’s special status that was stripped last year, setting off widespread anger and economic ruin amid a harsh security clampdown.`\
+**Political Parties Vow to Fight Removal of Kashmir's Autonomy**\
+`Half a dozen political parties vowed Saturday to fight for restoration of the special status that was stripped last year from Indian-administered Kashmir, setting off widespread anger and economic ruin amid a harsh security clampdown.`\
 https://nytimes.com/aponline/2020/08/22/world/asia/ap-as-kashmir-pro-india-parties.html?searchResultPosition=1
 
 **Top West Africa Delegation Goes to Mali to Meet With Junta**\
