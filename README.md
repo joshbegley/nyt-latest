@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/08/21/us/ap-us-california-wildfires-protecting
 `Giant panda Mei Xiang gave birth to a healthy cub on Friday at the National Zoo in Washington, and immediately began nursing and cuddling the tiny new arrival, animal care staff said.`\
 https://nytimes.com/reuters/2020/08/21/world/asia/21reuters-usa-panda.html?searchResultPosition=2
 
-**Military Surveillance Planes Didn’t Spy on Protesters, Pentagon Reports Finds**\
+**Military Surveillance Planes Didn’t Spy on Protesters, Pentagon Report Finds**\
 `But the Air Force’s inspector general concluded that National Guard officials failed to obtain prior approval from Defense Secretary Mark T. Esper to use the planes.`\
 https://nytimes.com/2020/08/21/us/politics/military-surveillance-planes-protesters-pentagon.html?searchResultPosition=3
 
