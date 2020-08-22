@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/08/22/world/europe/22reuters-russia-politics-na
 https://nytimes.com/reuters/2020/08/22/world/asia/22reuters-health-coronavirus-philippines-cases.html?searchResultPosition=4
 
 **South Korea, China Hold Highest-Level Talks Since COVID-19 Outbreak**\
-`South Korea said on Saturday it held talks with China's top diplomat over trade, denuclearisation and the coronavirus response in the first visit by a high-level Beijing official since the COVID-19 pandemic erupted in China late last year.`\
+`South Korea said on Saturday it held talks with China's top diplomat over trade, denuclearisation and the coronavirus response, in the first visit by a high-level Beijing official since the COVID-19 pandemic erupted late last year.`\
 https://nytimes.com/reuters/2020/08/22/world/asia/22reuters-southkorea-china.html?searchResultPosition=5
 
 **COVID-19 Scary? Japan Group Offers Coffins, Chainsaws for Stress Relief**\
