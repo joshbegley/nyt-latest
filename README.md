@@ -22,7 +22,7 @@ https://nytimes.com/reuters/2020/08/22/business/22reuters-volkswagen-porsche-man
 `These seemingly simple pencil-and-paper games were all invented by mathematicians. They call for two players and some strategic thinking.`\
 https://nytimes.com/2020/08/22/at-home/sharpen-a-pencil-and-challenge-an-opponent.html?searchResultPosition=6
 
-**McSally to Supporters: How About Skipping a Meal to Donate?**\
+**Senator to Supporters: How About Skipping a Meal to Donate?**\
 `Sen. Martha McSally has suggested that supporters could “fast a meal" to donate to the Arizona Republican's campaign as she fights to fend off a tough challenge from Democrat Mark Kelly.`\
 https://nytimes.com/aponline/2020/08/22/us/ap-us-election-2020-senate-arizona.html?searchResultPosition=7
 
