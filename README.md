@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/08/21/sports/baseball/ap-bba-blue-jays-rays.ht
 https://nytimes.com/aponline/2020/08/21/world/americas/ap-lt-mexico-magazine-fined.html?searchResultPosition=6
 
 **Paredes Slams, Tigers End 20-Game Losing Streak to Indians**\
-`Rookie Isaac Paredes hit a grand slam for his first major league homer and the Detroit Tigers snapped a 20-game losing streak against Cleveland by beating the Indians 10-5 on Friday night.`\
+`The Indians began drumming on coolers and buckets in the dugout during their recent win streak. On Friday, they finally stopped beating on the Tigers.`\
 https://nytimes.com/aponline/2020/08/21/sports/baseball/ap-bba-tigers-indians.html?searchResultPosition=7
 
 **Malaysia Deports Bangladeshi Man Who Criticised Treatment of Migrants in Documentary**\
