@@ -1,10 +1,10 @@
-**Israeli Protesters, Decrying Corruption, Keep Pressure on Netanyahu**\
-`Thousands of Israelis protested in Jerusalem on Saturday against Prime Minister Benjamin Netanyahu, and the summer outcry denouncing alleged corruption and the government's handling of the coronavirus pandemic showed little signs of abating.`\
-https://nytimes.com/reuters/2020/08/22/world/middleeast/22reuters-health-coronavirus-israel-protests.html?searchResultPosition=1
-
 **Kanye West Files to Appear on Ballot in Louisiana**\
 `Rapper Kanye West has filed paperwork to appear on the presidential ballot in Louisiana in November.`\
-https://nytimes.com/aponline/2020/08/22/us/ap-us-kanye-west-louisiana-1st-ld-writethru.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/22/us/ap-us-kanye-west-louisiana-1st-ld-writethru.html?searchResultPosition=1
+
+**Israeli Protesters, Decrying Corruption, Keep Pressure on Netanyahu**\
+`Thousands of Israelis protested in Jerusalem on Saturday against Prime Minister Benjamin Netanyahu, and the summer outcry denouncing alleged corruption and the government's handling of the coronavirus pandemic showed little signs of abating.`\
+https://nytimes.com/reuters/2020/08/22/world/middleeast/22reuters-health-coronavirus-israel-protests.html?searchResultPosition=2
 
 **IndyCar's Top Earner Dixon Misses the Fans**\
 `Scott Dixon likes to says he races for free and gets paid for all the other stuff drivers must do, such as interviews and schmoozing with sponsors, meaning this should have been the most enjoyable week ever for the New Zealander in the lead-up to an Indianapolis 500.`\
