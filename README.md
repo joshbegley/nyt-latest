@@ -10,8 +10,8 @@ https://nytimes.com/aponline/2020/08/22/us/ap-us-virus-outbreak-wwii-surrender-v
 `Nearly two dozen massive wildfires continued to ravage parts of California on Saturday, fueled by high temperatures and ongoing lightning strikes, including 100 that hit on Friday, the California Department of Forestry and Fire Protection (CalFire) said.`\
 https://nytimes.com/reuters/2020/08/22/world/asia/22reuters-california-wildfire.html?searchResultPosition=3
 
-**Protesters Arrested in Charlotte, Days Before GOP Convention**\
-`Several people were arrested in Charlotte, North Carolina, after some demonstrators skirmished with authorities late Friday, days before the start of the Republican National Convention, police said. `\
+**Protesters Arrested in Charlotte as GOP Delegates Arrive**\
+`Several people were arrested in Charlotte, North Carolina, after some demonstrators skirmished with authorities late Friday, as delegates arrived for the start of the Republican National Convention, police said. `\
 https://nytimes.com/aponline/2020/08/22/us/ap-us-charlotte-demonstration-arrests.html?searchResultPosition=4
 
 **Swift Storm Left Iowa in Tatters**\
