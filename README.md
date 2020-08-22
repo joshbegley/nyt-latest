@@ -27,7 +27,7 @@ https://nytimes.com/aponline/2020/08/22/sports/ap-car-nascar-dover.html?searchRe
 https://nytimes.com/aponline/2020/08/22/sports/basketball/bc-bkl-fever-sky.html?searchResultPosition=7
 
 **Butler Scores 27 Points, Heat Beat Pacers to Take 3-0 Lead**\
-`Jimmy Butler scored 27 points and the Miami Heat held off a furious rally to beat the Indiana Pacers 124-115 on Saturday to take a 3-0 lead in their first-round Eastern Conference playoff series.`\
+`Jimmy Butler scored 27 points and the Miami Heat held off a furious rally to beat the Indiana Pacers 124-115 on Saturday to take a 3-0 lead in the Eastern Conference playoff series.`\
 https://nytimes.com/aponline/2020/08/22/sports/basketball/bc-bkn-heat-pacers.html?searchResultPosition=8
 
 **Saudi-Led Coalition in Yemen Intercepted Explosive-Laden Drone Launched by Houthis-SPA**\
