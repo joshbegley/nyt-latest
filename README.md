@@ -22,13 +22,13 @@ https://nytimes.com/2020/08/22/us/politics/george-bush-comeback-dukakis.html?sea
 `On occasion, different species of anglerfish produce hybrid offspring even more colorful than the parents.`\
 https://nytimes.com/2020/08/22/science/angelfish-paracentropyge-hybrid-genetics.html?searchResultPosition=6
 
-**Another Pandemic Hurdle for Colleges: Keeping Students Fed, and Happy**\
-`Students arriving at N.Y.U. and on other campuses are flooding social media with complaints about meal plans redefined by coronavirus rules.`\
-https://nytimes.com/2020/08/22/nyregion/coronavirus-college-students-campus.html?searchResultPosition=7
-
 **Is the ‘Convention Bounce’ a Thing of the Past?**\
 `After the Democratic primary campaign came to an abrupt halt in late March as the coronavirus swept through the nation, the Democrats and Republicans have looked to the conventions as their candidates’ biggest stage.`\
-https://nytimes.com/2020/08/22/us/politics/joe-biden-dnc-convention.html?searchResultPosition=8
+https://nytimes.com/2020/08/22/us/politics/joe-biden-dnc-convention.html?searchResultPosition=7
+
+**Another Pandemic Hurdle for Colleges: Keeping Students Fed, and Happy**\
+`Students arriving at N.Y.U. and on other campuses are flooding social media with complaints about meal plans redefined by coronavirus rules.`\
+https://nytimes.com/2020/08/22/nyregion/coronavirus-college-students-campus.html?searchResultPosition=8
 
 **Cartilage Is Grown in the Arthritic Joints of Mice**\
 `Researchers discovered a way to awaken dormant stem cells and transform them into cartilage. If the technique works in humans, it may help ease debilitating joint pain.`\
