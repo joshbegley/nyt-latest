@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/08/22/world/middleeast/22reuters-health-coronav
 `Pakistan issued sweeping financial sanctions against Afghanistan’s Taliban, just as the militant group is in the midst of U.S.-led peace process in the neighboring country.`\
 https://nytimes.com/aponline/2020/08/22/world/asia/ap-as-pakistan-taliban.html?searchResultPosition=3
 
-**U.N. Nuclear Chief Grossi to Visit Iran 'This Week', Iranian Envoy Says**\
-`The U.N. nuclear watchdog's chief Rafael Grossi will make his first trip to Iran in that role "this week", Iran's ambassador to the agency said on Saturday as the two sides are in a standoff over access to two Iranian sites.`\
+**IAEA Chief Grossi Plans Trip to Pressure Iran on Access to Suspect Sites**\
+`The U.N. nuclear watchdog's chief Rafael Grossi will make his first trip to Tehran in that role on Monday to pressure Iran to grant inspectors access to two suspected former atomic sites after a months-long standoff, he said on Saturday.`\
 https://nytimes.com/reuters/2020/08/22/world/middleeast/22reuters-iran-nuclear-iaea.html?searchResultPosition=4
 
 **South Korea, China Reaffirm Plans for Leaders' Summit**\
