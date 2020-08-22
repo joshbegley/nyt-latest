@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/08/22/sports/baseball/ap-bba-rangers-mariners.
 `South Korea said tougher social distancing guidelines to curb the spread of coronavirus will be rolled out nationwide starting Sunday as it battles a new outbreak of the disease spreading from the capital, Seoul.`\
 https://nytimes.com/reuters/2020/08/22/world/asia/22reuters-health-coronavirus-southkorea.html?searchResultPosition=2
 
-**Leonard Leaves Clippers Past Mavs as Doncic Injures Ankle**\
+**Leonard Leads Clippers Past Mavs as Doncic Injures Ankle**\
 `Kawhi Leonard had 36 points, nine rebounds and eight assists, leading the Los Angeles Clippers to a 130-122 victory over the Dallas Mavericks on Friday night for a 2-1 lead in the Western Conference first-round series. `\
 https://nytimes.com/aponline/2020/08/22/sports/basketball/ap-bkn-clippers-mavericks.html?searchResultPosition=3
 
