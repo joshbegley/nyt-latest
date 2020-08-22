@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/08/22/us/ap-us-racial-injustice-mississippi-fl
 `China has approved human testing for a potential coronavirus vaccine cultivated within insect cells, local government in the southwestern city of Chengdu said on Saturday.`\
 https://nytimes.com/reuters/2020/08/22/world/asia/22reuters-health-coronavirus-vaccine-china.html?searchResultPosition=9
 
-**Belarus's Lukashenko Must Leave Sooner or Later, Opposition Leader Tsikhanouskaya Says**\
-`The people of Belarus will not allow President Alexander Lukashenko to treat them as before and he will have to leave sooner or later, his main opponent, Sviatlana Tsikhanouskaya, told Reuters in an interview.  `\
+**Belarusian Opposition Leader Sees Herself as a Symbol of Change**\
+`Exiled Belarusian opposition leader Sviatlana Tsikhanouskaya sees herself as a symbol of change whose role is to help deliver new elections as President Alexander Lukashenko will have to quit sooner or later, she told Reuters on Saturday.`\
 https://nytimes.com/reuters/2020/08/22/world/europe/22reuters-belarus-election-tsikhanouskaya.html?searchResultPosition=10
 
