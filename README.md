@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/08/22/sports/tennis/22reuters-tennis-usopen-nis
 `The Czech authorities recorded 506 new coronavirus cases on Friday, the highest number of new infections in one day since the outbreak began there.`\
 https://nytimes.com/reuters/2020/08/22/world/europe/22reuters-health-coronavirus-czech.html?searchResultPosition=7
 
-**Plane Carrying Kremlin Critic Navalny Arrives in Germany**\
-`An ambulance aircraft carrying gravely ill Kremlin critic Alexei Navalny landed at Berlin's Tegel airport on Saturday after he was evacuated from the Siberian city of Omsk and brought to Germany for treatment.`\
+**Gravely Ill Kremlin Critic Navalny Is Evacuated to Germany for Treatment**\
+`Gravely ill Kremlin critic Alexei Navalny was evacuated from the Siberian city of Omsk and brought to Germany for medical treatment on Saturday, flown out in an ambulance aircraft that landed at Berlin's Tegel airport.`\
 https://nytimes.com/reuters/2020/08/22/world/europe/22reuters-russia-politics-navalny.html?searchResultPosition=8
 
 **Novartis Immuno-Oncology Drug Candidate Fails Skin Cancer Trial**\
