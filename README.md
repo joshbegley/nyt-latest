@@ -1,40 +1,40 @@
+**Ukraine Reports Daily Record 2,328 Coronavirus Cases**\
+`Ukraine registered a record 2,328 cases of the new coronavirus in the past 24 hours, officials said on Saturday.`\
+https://nytimes.com/reuters/2020/08/22/world/europe/22reuters-health-coronavirus-ukraine-cases.html?searchResultPosition=1
+
+**China's Unlicensed Asset Management Firms Still a Threat, Central Bank Executive Says**\
+`Some unlicensed asset management companies are still operating in China, causing a "serious threat to financial stability", a top official of China's central bank on Saturday.`\
+https://nytimes.com/reuters/2020/08/22/business/22reuters-china-finance-investment.html?searchResultPosition=2
+
 **Trump Struggles to Use Power of Presidency to Counter Biden**\
 `President Donald Trump spent the week of the Democratic National Convention forsaking what has historically been an incumbent’s greatest advantage: He's in the job his challenger wants.`\
-https://nytimes.com/aponline/2020/08/22/us/politics/ap-us-election-2020-dnc-trump.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/22/us/politics/ap-us-election-2020-dnc-trump.html?searchResultPosition=3
 
 **NBA Roundup: Clippers Top Mavs, Doncic Injured**\
 `Kawhi Leonard recorded 36 points, nine rebounds and eight assists to lead the Las Angeles Clippers over the Dallas Mavericks 130-122 on Friday night to grab a 2-1 lead in a Western Conference first-round playoff series near Orlando.`\
-https://nytimes.com/reuters/2020/08/22/sports/basketball/22reuters-basketball-nba-roundup.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/22/sports/basketball/22reuters-basketball-nba-roundup.html?searchResultPosition=4
 
 **The Latest: India Cases Inch Closer to 3M, Spread in South**\
 `NEW DELHI — India has recorded another 24-hour jump in coronavirus infections as the disease spreads across the country’s southern states after plateauing in the capital and the financial center of Mumbai.`\
-https://nytimes.com/aponline/2020/08/22/business/ap-virus-outbreak-the-latest.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/22/business/ap-virus-outbreak-the-latest.html?searchResultPosition=5
 
 **Tough Choices for GOP Over a Postal Service Trump Belittles**\
 `Congressional Republicans in tight reelections are in a precarious position over the embattled Postal Service as its bosses impose cost-cutting measures on one of the government's few beloved agencies.`\
-https://nytimes.com/aponline/2020/08/22/us/politics/ap-us-election-2020-postal-service-republicans.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/22/us/politics/ap-us-election-2020-postal-service-republicans.html?searchResultPosition=6
 
 **Reinforcements Arriving to Help in Deadly California Fires**\
 `Firefighters and aircraft from 10 states began arriving in California Friday to help weary crews battling some of the largest blazes in state history as weekend weather threatened to renew the advance of flames that have killed six people and incinerated hundreds of homes.`\
-https://nytimes.com/aponline/2020/08/22/us/ap-us-california-wildfires.html?searchResultPosition=5
+https://nytimes.com/aponline/2020/08/22/us/ap-us-california-wildfires.html?searchResultPosition=7
 
 **House Holding Rare Saturday Vote on Postal Changes, Funds**\
 `The House is convening for a rare Saturday session to address mail delivery disruptions, poised to pass legislation that would reverse recent changes in U.S. Postal Service operations and send $25 billion in emergency funds to shore up the agency ahead of the November election.`\
-https://nytimes.com/aponline/2020/08/22/us/politics/ap-us-election-2020-postal-service.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/08/22/us/politics/ap-us-election-2020-postal-service.html?searchResultPosition=8
 
 **Germany's Confirmed Coronavirus Cases Rise by More Than 2,000: RKI**\
 `The number of confirmed coronavirus cases in Germany increased by 2,034 to 232,082, data from the Robert Koch Institute (RKI) for infectious diseases showed on Saturday.`\
-https://nytimes.com/reuters/2020/08/22/world/europe/22reuters-health-coronavirus-germany-cases.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/08/22/world/europe/22reuters-health-coronavirus-germany-cases.html?searchResultPosition=9
 
 **Murray Admits to Rustiness Ahead of ATP Return**\
 `Andy Murray says he's feeling off the pace for his return to the ATP Tour this weekend but is hoping to hit his stride ahead of the U.S Open, which begins on Aug. 31.`\
-https://nytimes.com/reuters/2020/08/22/sports/tennis/22reuters-tennis-murray.html?searchResultPosition=8
-
-**Longoria's 300th Homer Propels Giants Past Diamondbacks 6-2**\
-`Evan Longoria hit his 300th home run, Wilmer Flores added a two-run shot and the San Francisco Giants beat the Arizona Diamondbacks 6-2 on Friday night.`\
-https://nytimes.com/aponline/2020/08/22/sports/baseball/ap-bbn-diamondbacks-giants.html?searchResultPosition=9
-
-**No Slams, but Machado, Padres End Astros' 8-Game Win Streak**\
-`There were no flashy grand slams for the San Diego Padres, just a gritty, grind-em-out effort from the bullpen after Garrett Richards lasted only two innings.`\
-https://nytimes.com/aponline/2020/08/22/sports/baseball/bc-bbo-astros-padres.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/22/sports/tennis/22reuters-tennis-murray.html?searchResultPosition=10
 
