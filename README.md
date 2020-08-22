@@ -1,4 +1,4 @@
-**Texas Republicans Say New Slogan Inspired by Poem, Not QAnon**\
+**Texas Republicans Say New Slogan Was Inspired by Poem, Not QAnon**\
 `Party officials in Texas said that the internet-driven conspiracy theory had nothing to do with its use of the slogan “We Are the Storm” — one of the chief rallying cries for QAnon adherents.`\
 https://nytimes.com/2020/08/22/us/politics/qanon-gop-we-are-the-storm.html?searchResultPosition=1
 
