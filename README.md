@@ -1,40 +1,40 @@
-**Protesters Hold Seventh Anti-Kremlin March Over Detained Governor**\
-`Around 1,500 people marched through the streets of the Russian far eastern city of Khabarovsk on Saturday, marking the seventh consecutive weekend of protests after the region's governor was detained in early July. `\
-https://nytimes.com/reuters/2020/08/22/world/europe/22reuters-russia-politics-governor.html?searchResultPosition=1
+**‘A Bit Surreal’: The Lonely Plight of the Great Barrier Reef**\
+`The tourism operators who depend on the natural wonder, already contending with climate change, have been walloped by the pandemic. The absence of visitors is bad for them — and the reef.`\
+https://nytimes.com/2020/08/22/world/australia/great-barrier-reef-coronavirus.html?searchResultPosition=1
 
-**Indonesia Reports 2,090 New Coronavirus Cases: Health Ministry Website**\
-`Indonesia reported 2,090 new coronavirus cases on Saturday, bringing the total tally to 151,498, data from the country's health ministry website showed.`\
-https://nytimes.com/reuters/2020/08/22/world/asia/22reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=2
+**As Politicians Clashed, Bolivia’s Pandemic Death Rate Soared**\
+`Bolivia was mired in political turmoil when the pandemic hit. The response was chaotic. And the surge in deaths that followed was among the worst in the world, according to an analysis by The New York Times.`\
+https://nytimes.com/2020/08/22/world/americas/virus-bolivia.html?searchResultPosition=2
 
-**India Coronavirus Cases Jump by Record as Tally Nears 3 Million**\
-`India reported a record daily jump of coronavirus infections on Saturday, bringing the total near 3 million and piling pressure on authorities to curb huge gatherings as a major religious festival began.    `\
-https://nytimes.com/reuters/2020/08/22/world/asia/22reuters-health-coronavirus-india-cases.html?searchResultPosition=3
+**A Glimmer of Hope for Trump? How Bush Mounted a Comeback in 1988**\
+`For Biden, a cautionary tale. For Trump, a search for his own Willie Horton.`\
+https://nytimes.com/2020/08/22/us/politics/george-bush-comeback-dukakis.html?searchResultPosition=3
 
-**Kremlin Critic Navalny Arrives at Berlin's Charite Hospital: Reuters TV**\
-`An ambulance carrying gravely ill Kremlin critic Alexei Navalny arrived at Berlin's Charite hospital on Saturday, live Reuters TV footage showed, shortly after a plane that carried him from Russia landed at one of the German capital's airports.`\
-https://nytimes.com/reuters/2020/08/22/world/europe/22reuters-russia-politics-navalny-hospital.html?searchResultPosition=4
+**Why Some Tropical Fish Are Gettin’ Squiggly With It**\
+`On occasion, different species of anglerfish produce hybrid offspring even more colorful than the parents.`\
+https://nytimes.com/2020/08/22/science/angelfish-paracentropyge-hybrid-genetics.html?searchResultPosition=4
 
-**Philippines Reports 4,933 Coronavirus Infections, 26 Deaths**\
-`The Philippines reported 4,933 infections of the new coronavirus on Saturday, the fifth straight day above 4,000, and 26 COVID-19 deaths.`\
-https://nytimes.com/reuters/2020/08/22/world/asia/22reuters-health-coronavirus-philippines-cases.html?searchResultPosition=5
+**Another Pandemic Hurdle for Colleges: Keeping Students Fed, and Happy**\
+`Students arriving at N.Y.U. and on other campuses are flooding social media with complaints about meal plans redefined by coronavirus rules.`\
+https://nytimes.com/2020/08/22/nyregion/coronavirus-college-students-campus.html?searchResultPosition=5
 
-**South Korea, China Hold Highest-Level Talks Since COVID-19 Outbreak**\
-`South Korea said on Saturday it held talks with China's top diplomat over trade, denuclearisation and the coronavirus response, in the first visit by a high-level Beijing official since the COVID-19 pandemic erupted late last year.`\
-https://nytimes.com/reuters/2020/08/22/world/asia/22reuters-southkorea-china.html?searchResultPosition=6
+**Is the ‘Convention Bounce’ a Thing of the Past?**\
+`After the Democratic primary campaign came to an abrupt halt in late March as the coronavirus swept through the nation, the Democrats and Republicans have looked to the conventions as their candidates’ biggest stage.`\
+https://nytimes.com/2020/08/22/us/politics/joe-biden-dnc-convention.html?searchResultPosition=6
 
-**COVID-19 Scary? Japan Group Offers Coffins, Chainsaws for Stress Relief**\
-`Finding the pandemic scary? A Japanese group is trying to take people's minds off COVID-19 - by putting them in coffins surrounded by chainsaw-wielding zombies.`\
-https://nytimes.com/reuters/2020/08/22/world/asia/22reuters-health-coronavirus-japan-coffins.html?searchResultPosition=7
+**Cartilage Is Grown in the Arthritic Joints of Mice**\
+`Researchers discovered a way to awaken dormant stem cells and transform them into cartilage. If the technique works in humans, it may help ease debilitating joint pain.`\
+https://nytimes.com/2020/08/22/health/arthritis-cartilage.html?searchResultPosition=7
 
-**Antarctic Winds Trigger Rare Snowfall Across Southeast Australia**\
-`Antarctic air reaching Australia's south east triggered snowfall down to low altitudes across several states on Saturday, with many people out enjoying the rare event despite wild winds and heavy snow that closed some roads.`\
-https://nytimes.com/reuters/2020/08/22/world/asia/22reuters-australia-weather-snow.html?searchResultPosition=8
+**Finally Organize Those Photos**\
+`Sorting your photographs, whether digital or print or both, can seem daunting. Here are some simple ways to catalog and organize your images.`\
+https://nytimes.com/2020/08/22/at-home/finally-organize-those-photos.html?searchResultPosition=8
 
-**Russia's Coronavirus Infection Tally Passes 950,000**\
-`Russia reported 4,921 new coronavirus cases on Saturday, pushing its confirmed national tally up to 951,897.`\
-https://nytimes.com/reuters/2020/08/22/world/europe/22reuters-health-coronavirus-russia-cases.html?searchResultPosition=9
+**Wedding Canceled or Postponed? Here’s How to Get a Refund**\
+`For many couples whose wedding plans were derailed by the coronavirus crisis, getting a refund or a credit from vendors has been an uphill battle.`\
+https://nytimes.com/2020/08/22/fashion/weddings/wedding-canceled-or-postponed-heres-how-to-get-a-refund.html?searchResultPosition=9
 
-**LEADING OFF: No Ball in New York; Francona Still Away**\
-`A look at what's happening around the majors today:`\
-https://nytimes.com/aponline/2020/08/22/sports/baseball/ap-bbo-leading-off.html?searchResultPosition=10
+**I’ve Been Away From My Apartment for Months. What Happens Now?**\
+`Courts have long held that tenants can stay away from their apartments for extended periods because of health reasons. But don’t neglect your home.`\
+https://nytimes.com/2020/08/22/realestate/covid-rental-apartment.html?searchResultPosition=10
 
