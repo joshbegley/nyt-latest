@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/08/22/sports/tennis/22reuters-tennis-murray.htm
 https://nytimes.com/aponline/2020/08/22/sports/baseball/ap-bbn-diamondbacks-giants.html?searchResultPosition=8
 
 **No Slams, but Machado, Padres End Astros' 8-Game Win Streak**\
-`Manny Machado hit a pair of RBI singles and scored a run for the San Diego Padres, who beat Houston 4-3 Friday night to snap the Astros’ eight-game winning streak.`\
+`There were no flashy grand slams for the San Diego Padres, just a gritty, grind-em-out effort from the bullpen after Garrett Richards lasted only two innings.`\
 https://nytimes.com/aponline/2020/08/22/sports/baseball/bc-bbo-astros-padres.html?searchResultPosition=9
 
 **Piscotty Drives in Three Runs, A's Win Ninth in Row at Home**\
