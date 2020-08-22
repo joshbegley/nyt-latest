@@ -26,8 +26,8 @@ https://nytimes.com/aponline/2020/08/22/us/politics/ap-us-trump-law-enforcement-
 `Lebanon's Hezbollah said on Saturday it shot down an Israeli drone that penetrated the country's airspace earlier in the day.`\
 https://nytimes.com/reuters/2020/08/22/world/middleeast/22reuters-lebanon-israel-hezbollah-drones.html?searchResultPosition=7
 
-**Israeli Army Says One of Its Drones Fell Inside Lebanon**\
-`Israel's military said late on Saturday that one of its drones fell inside Lebanon during "operational activity" along the frontier earlier in the day.`\
+**Israeli Drone Falls Inside Lebanon, Hezbollah Says It Shot It Down**\
+`Israel's military said on Saturday that one of its drones fell inside Lebanon during "operational activity" along the frontier, and the armed Lebanese group Hezbollah said it shot it down.`\
 https://nytimes.com/reuters/2020/08/22/world/middleeast/22reuters-israel-lebanon-drones.html?searchResultPosition=8
 
 **Irish PM, Deputy PM Call on EU Trade Chief Hogan to Quit**\
