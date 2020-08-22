@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/08/21/business/21reuters-china-markets-tech.htm
 https://nytimes.com/aponline/2020/08/21/sports/baseball/bc-bbn-phillies-braves.html?searchResultPosition=6
 
 **Soler, Dozier Power Royals to 7-2 Victory Over Twins**\
-`Jorge Soler hit a three-run homer in the first inning, and the Kansas City Royals beat the Minnesota Twins 7-2 on Friday night to open the third straight weekend series between AL Central rivals.`\
+`The Royals knew they would need somebody to step up when Salvador Perez went on the injured list earlier in the day with a mysterious eye ailment that had caused the star catcher to have some blurry vision.`\
 https://nytimes.com/aponline/2020/08/21/sports/baseball/ap-bba-twins-royals.html?searchResultPosition=7
 
 **White Sox Belt 6 HRs, Pound Cubs 10-1 for 6th Straight Win**\
