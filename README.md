@@ -2,7 +2,7 @@
 `The Czech authorities recorded 506 new coronavirus cases on Friday, the highest number of new infections in one day since the outbreak began there.`\
 https://nytimes.com/reuters/2020/08/22/world/europe/22reuters-health-coronavirus-czech.html?searchResultPosition=1
 
-**Plane Carrying Kremlin Critic Navalny Lands in Berlin-Flight Tracking Data**\
+**Plane Carrying Kremlin Critic Navalny Arrives in Germany-Flight Tracking Data**\
 `An ambulance aircraft carrying gravely ill Kremlin critic Alexei Navalny landed at Berlin's Tegel airport on Saturday morning, according to flight tracking data.`\
 https://nytimes.com/reuters/2020/08/22/world/europe/22reuters-russia-politics-navalny.html?searchResultPosition=2
 
