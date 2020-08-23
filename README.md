@@ -24,7 +24,7 @@ https://nytimes.com/aponline/2020/08/23/us/ap-us-tropical-weather-united-states.
 
 **2 Tropical Storms Are Expected to Threaten Louisiana**\
 `The governor has declared a state of emergency and some areas of Louisiana have issued mandatory evacuations ahead of Tropical Storms Laura and Marco.`\
-https://nytimes.com/2020/08/23/us/2-tropical-storms-are-expected-to-threaten-louisiana.html?searchResultPosition=7
+https://nytimes.com/2020/08/23/us/tropical-storm-laura-marco-louisiana.html?searchResultPosition=7
 
 **France Reports Post-Lockdown Daily Record of 4,897 New COVID-19 Cases**\
 `France reported 4,897 new coronavirus infections over the past 24 hours on Sunday, the highest daily level since the end of a two-month lockdown in May. `\
