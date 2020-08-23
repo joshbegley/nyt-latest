@@ -23,7 +23,7 @@ https://nytimes.com/reuters/2020/08/22/sports/golf/22reuters-golf-northerntrust.
 https://nytimes.com/reuters/2020/08/22/world/middleeast/22reuters-venezuela-iran.html?searchResultPosition=7
 
 **Johnson's Big Finish Gives Him 5-Shot Lead at TPC Boston**\
-`Dustin Johnson could have used a finish like this for a record score. The birdie-eagle ending to his round Saturday at The Northern Trust gave him a 7-under 64 and stretched his lead to five shots in the FedEx Cup playoffs opener.`\
+`Dustin Johnson arrived at the TPC Boston this week, headed to the practice range and then looked at his swing coach.`\
 https://nytimes.com/aponline/2020/08/22/sports/golf/ap-glf-northern-trust.html?searchResultPosition=8
 
 **Nationals Outlast Marlins 5-4 in Opener of Doubleheader**\
