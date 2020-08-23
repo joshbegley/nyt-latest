@@ -2,7 +2,7 @@
 `China reported 12 cases of the new coronavirus in the mainland for Aug. 22, down from 22 cases a day earlier, the health commission said on Sunday.`\
 https://nytimes.com/reuters/2020/08/22/world/asia/22reuters-health-coronavirus-china.html?searchResultPosition=1
 
-**Republicans Rush to Finalize Convention (‘Apprentice’ Producers Are Helping.)**\
+**Republicans Rush to Finalize Convention (‘Apprentice’ Producers Are Helping)**\
 `The party is promising a more traditional in-person spectacle with President Trump speaking every night. Coming into this weekend, producers at the major TV networks had only a foggy idea of what to expect.`\
 https://nytimes.com/2020/08/22/us/politics/republican-convention-preview.html?searchResultPosition=2
 
