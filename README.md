@@ -2,7 +2,7 @@
 `Dennis Schroder scored 29 points, Chris Paul added 26 points and the Oklahoma City Thunder dominated in overtime to beat the Houston Rockets 119-107 on Saturday night and cut their deficit in the first-round series to 2-1. `\
 https://nytimes.com/aponline/2020/08/22/sports/basketball/ap-bkn-rockets-thunder.html?searchResultPosition=1
 
-**Chile´s Pinera Vows Crackdown After 9-Year-Old Injured by Gunfire in Araucania**\
+**Chile´s Pinera Vows Crackdown After Nine-Year-Old Injured by Gunfire in Araucania**\
 `Chilean President Sebastian Pinera on Saturday highlighted an attack in the country´s Araucania region that resulted in the injury of a 9-year-old girl, saying it was a reason to crack down on violent unrest in Chile´s south.`\
 https://nytimes.com/reuters/2020/08/22/world/americas/22reuters-chile-mapuche-conflict.html?searchResultPosition=2
 
