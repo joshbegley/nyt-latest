@@ -26,8 +26,8 @@ https://nytimes.com/reuters/2020/08/23/world/asia/23reuters-india-court-lawyer.h
 `The U.S. envoy to Taiwan joined President Tsai Ing-wen at a military memorial service Sunday in a fresh show of warming relations that threatened to add to irritants in Washington’s relations with Beijing. `\
 https://nytimes.com/aponline/2020/08/23/world/asia/ap-as-taiwan-us.html?searchResultPosition=7
 
-**S. Korea Elevates Distancing as Epidemic Nears Spring Levels**\
-`Beaches and churches are closed and baseball games will be played in empty stadiums on Sunday after South Korea added hundreds to its growing coronavirus caseload amid concerns the epidemic is getting out of control. `\
+**South Korea Elevates Distancing as Virus Nears Spring Levels**\
+`Beaches and churches were closed and baseball games were played in empty stadiums on Sunday after South Korea added hundreds of new cases to its growing coronavirus caseload amid concerns that the epidemic is getting out of control. `\
 https://nytimes.com/aponline/2020/08/23/world/asia/ap-as-virus-outbreak-skorea-.html?searchResultPosition=8
 
 **Police: 9 Arrested, 1 Officer Hurt During Unrest in Denver**\
