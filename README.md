@@ -19,7 +19,7 @@ https://nytimes.com/2020/08/23/arts/television/whats-on-tv-sunday-the-vow-and-th
 https://nytimes.com/2020/08/23/pageoneplus/corrections-aug-23-2020.html?searchResultPosition=5
 
 **Bellinger Homers in 9th as Dodgers Defeat Rockies 4-3**\
-`Cody Bellinger's home run leading off the ninth inning gave the Los Angeles Dodgers a 4-3 win over the slumping Colorado Rockies on Saturday night.`\
+`Cody Bellinger didn't know until first base umpire Bill Miller signaled home run that he had given the surging Los Angeles Dodgers a 4-3 victory over the slumping Colorado Rockies on Saturday night.`\
 https://nytimes.com/aponline/2020/08/23/sports/baseball/ap-bbn-rockies-dodgers.html?searchResultPosition=6
 
 **Changing Weather Prompts More Fire Fears in California**\
