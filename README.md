@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/08/23/arts/23reuters-usa-boxoffice.html?searchR
 https://nytimes.com/aponline/2020/08/23/sports/ap-car-indy-500.html?searchResultPosition=4
 
 **304th-Ranked Popov Wins Women's British Open for 1st Major**\
-`Sophia Popov became the first female golfer from Germany to capture a major title when she won the Women’s British Open by two strokes at Royal Troon on Sunday. `\
+`The first professional victory of Sophia Popov’s career came at a major championship on Sunday when the 304th-ranked German won the Women’s British Open at Royal Troon.`\
 https://nytimes.com/aponline/2020/08/23/sports/golf/ap-glf-womens-british-open.html?searchResultPosition=5
 
 **After Another Week of Setbacks, Trump Looks to Change the Story Line**\
