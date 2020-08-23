@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/08/23/world/middleeast/23reuters-saudi-economy-
 `He’s broken his pledge never to take a vacation or play golf for pleasure.`\
 https://nytimes.com/aponline/2020/08/23/us/politics/ap-us-election-2020-rnc-trump-promises.html?searchResultPosition=5
 
-**Irish EU Representative Hogan Apologises for Possible Coronavirus Breach**\
-`Ireland's European Trade Commissioner Phil Hogan apologised on Sunday for attending an event that may have breached COVID-19 regulations but stopped short of offering his resignation.`\
+**EU's Hogan Sorry for Possible COVID-19 Breach, Stops Short of Resigning**\
+`European Trade Commissioner Phil Hogan apologised again on Sunday for attending an event in his native Ireland that may have breached COVID-19 regulations, but stopped short of bowing to calls from Irish leaders to resign.`\
 https://nytimes.com/reuters/2020/08/23/world/europe/23reuters-health-coronavirus-ireland-eu.html?searchResultPosition=6
 
 **Afghan Official: Bomb Kills 7 Civilians in Eastern Province**\
