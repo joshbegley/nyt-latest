@@ -1,40 +1,40 @@
+**Philippines' Coronavirus Cases Rise Close to 190,000**\
+`The Philippines recorded 2,378 new coronavirus infections on Sunday, its smallest daily spike in nearly four weeks, but the nationwide tally rose to 189,601, still the highest in Southeast Asia.`\
+https://nytimes.com/reuters/2020/08/23/world/asia/23reuters-health-coronavirus-philippines-cases.html?searchResultPosition=1
+
 **Indonesian Police to Investigate Huge Blaze at Attorney General's Office**\
 `Indonesian police will investigate a massive blaze that ravaged the attorney general’s office building in Jakarta on Saturday night, the capital city's police spokesman Yusri Yunus said. `\
-https://nytimes.com/reuters/2020/08/23/world/asia/23reuters-indonesia-fire.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/23/world/asia/23reuters-indonesia-fire.html?searchResultPosition=2
 
 **Ineos Withdraw From Italian Nationals After Positive COVID-19 Test**\
 `Team Ineos withdrew its squad from the Italian National Championship as a precaution after one of its riders tested positive for the new coronavirus, the British cycling team said on Saturday.`\
-https://nytimes.com/reuters/2020/08/23/sports/cycling/23reuters-health-coronavirus-cycling-ineos.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/23/sports/cycling/23reuters-health-coronavirus-cycling-ineos.html?searchResultPosition=3
 
 **UK Government Health Advisers Say Missing School Is Greater Risk to Kids Than COVID**\
 `The chief medical officers of the United Kingdom have said children should return to school after the summer holidays, warning that missing out on their education posed much bigger risks to them than catching COVID-19.`\
-https://nytimes.com/reuters/2020/08/23/world/europe/23reuters-health-coronavirus-britain.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/23/world/europe/23reuters-health-coronavirus-britain.html?searchResultPosition=4
 
 **Indonesia Reports 2,037 New Coronavirus Cases-COVID-19 Taskforce**\
 `Indonesia reported 2,037 new coronavirus cases on Sunday, bringing its total tally to 153,535, data from the country’s COVID-19 taskforce showed.`\
-https://nytimes.com/reuters/2020/08/23/world/asia/23reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/23/world/asia/23reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=5
 
 **Italy Rules Out New Lockdown as Coronavirus Cases Rise**\
 `The Italian government is not considering new lockdown to curb coronavirus infections, Health Minister Roberto Speranza said in a newspaper interview on Sunday, despite a steady rise in new cases over the past month.`\
-https://nytimes.com/reuters/2020/08/23/world/europe/23reuters-health-coronavirus-italy-government.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/08/23/world/europe/23reuters-health-coronavirus-italy-government.html?searchResultPosition=6
 
 **U.S.-Led Troops Withdraw From Iraq's Taji Base**\
 `United States-led international coalition troops withdrew from Iraq's Taji military base on Sunday and handed it over to Iraqi security forces, Reuters witnesses and the coalition said.`\
-https://nytimes.com/reuters/2020/08/23/world/middleeast/23reuters-iraq-security-usa-military.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/08/23/world/middleeast/23reuters-iraq-security-usa-military.html?searchResultPosition=7
 
 **Iran Calls for Countries Not to Politicise Data From Downed Ukrainian Jet**\
 `Iran is calling on all countries involved to refrain from politicising data analysis from the blackboxes of a Ukrainian passenger plane that Tehran said it accidentally shot downed in January, the Nournews website quoted the head of the country's Civil Aviation Organization as saying on Sunday.`\
-https://nytimes.com/reuters/2020/08/23/world/middleeast/23reuters-iran-ukraine-airplane.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/08/23/world/middleeast/23reuters-iran-ukraine-airplane.html?searchResultPosition=8
 
 **Quotation of the Day: In a Restaurant City, an Alfresco Bid to Survive**\
 `Quotation of the Day for Sunday, August 23, 2020.`\
-https://nytimes.com/2020/08/23/todayspaper/quotation-of-the-day-in-a-restaurant-city-an-alfresco-bid-to-survive.html?searchResultPosition=8
+https://nytimes.com/2020/08/23/todayspaper/quotation-of-the-day-in-a-restaurant-city-an-alfresco-bid-to-survive.html?searchResultPosition=9
 
 **Iran Retrieves Data, Cockpit Talk From Downed Ukraine Plane**\
 `Iran has retrieved some data, including a portion of cockpit conversations, from the Ukrainian jetliner accidentally downed by the Revolutionary Guard forces in January, killing all 176 people on board, an Iranian official said Sunday.`\
-https://nytimes.com/aponline/2020/08/23/world/middleeast/ap-ml-iran-ukraine-plane-crash.html?searchResultPosition=9
-
-**At Least 13 Crushed to Death as Peru Police Raid Clandestine Club Party**\
-`At least 13 people were crushed to death or asphyxiated as playgoers tried to flee a Lima nightclub raided by police  because it was open in violation of restrictions imposed to fight the coronavirus pandemic, officials said. `\
-https://nytimes.com/reuters/2020/08/23/world/americas/23reuters-health-coronavirus-peru-nightclub.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/23/world/middleeast/ap-ml-iran-ukraine-plane-crash.html?searchResultPosition=10
 
