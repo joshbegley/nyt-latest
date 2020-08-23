@@ -1,5 +1,5 @@
 **Takuma Sato Wins His Second Indy 500**\
-`Sato, who also won in 2017, became the sixth driver born outside the United States to win the race twice.`\
+`The Japanese driver, who also won in 2017, held off Scott Dixon of New Zealand over the final 20 laps to win after a front-row start.`\
 https://nytimes.com/2020/08/23/sports/autoracing/takuma-sato-indy-500.html?searchResultPosition=1
 
 **Belarus President Carries Assault Rifle Outside Minsk Palace**\
