@@ -23,7 +23,7 @@ https://nytimes.com/2020/08/22/us/politics/maryanne-trump-donald.html?searchResu
 https://nytimes.com/reuters/2020/08/22/world/asia/22reuters-health-coronavirus-china.html?searchResultPosition=6
 
 **Republicans Rush to Finalize Convention (‘Apprentice’ Producers Are Helping)**\
-`The party is promising a more traditional in-person spectacle with President Trump speaking every night. Coming into this weekend, producers at the major TV networks had only a foggy idea of what to expect.`\
+`The party is promising a more traditional in-person spectacle with President Trump speaking every night. Coming into this weekend, major TV networks had only a foggy idea of what to expect.`\
 https://nytimes.com/2020/08/22/us/politics/republican-convention-preview.html?searchResultPosition=7
 
 **Schroder, Paul Help OKC Over Houston 119-107 in OT**\
