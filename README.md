@@ -1,40 +1,40 @@
+**13 Die in Peru Disco Stampede After Police Lockdown Raid**\
+`Thirteen people died in a stampede at a disco in Peru after a police raid to enforce the country's lockdown during the coronavirus pandemic, officials said Sunday.`\
+https://nytimes.com/aponline/2020/08/23/world/americas/ap-lt-virus-outbreak-peru-disco-stampede.html?searchResultPosition=1
+
 **German Lawmakers Flag Private Party Ban as Coronavirus Cases Rise**\
 `Germany should temporarily ban private parties, several lawmakers suggested on Sunday, after the number of coronavirus infections in Europe's largest economy reached a four-month high.`\
-https://nytimes.com/reuters/2020/08/23/world/europe/23reuters-health-coronavirus-germany.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/23/world/europe/23reuters-health-coronavirus-germany.html?searchResultPosition=2
 
 **Moscow Believes Belarus Constitutional Reform Could Resolve Crisis: Russian News Agencies**\
 `Moscow considers reform of the Belarusian constitution a viable solution to the country's political crisis, Russian news agencies reported foreign minister Sergei Lavrov as saying on Sunday.`\
-https://nytimes.com/reuters/2020/08/23/world/europe/23reuters-belarus-election-russia-lavrov.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/23/world/europe/23reuters-belarus-election-russia-lavrov.html?searchResultPosition=3
 
 **India Coronavirus Cases Cross 3 Million Mark as Economy Opens Up**\
 `The number of coronavirus infections in India crossed the 3 million mark with 69,239 new cases reported on Sunday even as the country opened up various sectors from a lockdown that ground businesses to a halt and hurt economic growth.`\
-https://nytimes.com/reuters/2020/08/23/arts/23reuters-health-coronavirus-india.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/23/arts/23reuters-health-coronavirus-india.html?searchResultPosition=4
 
 **Covid-19 Live Updates: Tropical Storms Add to Pandemic’s Threat**\
-`Much of China has returned to regular daily life. And California prisoners’ early release amid the pandemic has left a controversial firefighting force short.`\
-https://nytimes.com/2020/08/23/world/covid-19-coronavirus.html?searchResultPosition=4
+`The early release of California prisoners has depleted a controversial firefighting force. Returning vacationers faced waits of up to 12 hours at Austria’s southern border.`\
+https://nytimes.com/2020/08/23/world/covid-19-coronavirus.html?searchResultPosition=5
 
 **For a Music Critic, a Vacation That’s All Too Quiet**\
 `With performances silenced by the coronavirus, our chief classical music critic has been left wishing for more sound, not less.`\
-https://nytimes.com/2020/08/23/arts/music/classical-music-coronavirus.html?searchResultPosition=5
+https://nytimes.com/2020/08/23/arts/music/classical-music-coronavirus.html?searchResultPosition=6
 
 **Saudi Energy Ministry to Assist Development of Mega Economic Zone Neom**\
 `Saudi Arabia's energy ministry is to offer assistance so that Neom, a $500 billion high-tech development that includes tourism and sport facilities on the Red Sea, can be completed on schedule,  minister Abdul Aziz bin Salman said on Sunday.`\
-https://nytimes.com/reuters/2020/08/23/world/middleeast/23reuters-saudi-economy-energy.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/08/23/world/middleeast/23reuters-saudi-economy-energy.html?searchResultPosition=7
 
 **Trump Delivered on Some Big 2016 Promises, but Others Unmet**\
 `He’s broken his pledge never to take a vacation or play golf for pleasure.`\
-https://nytimes.com/aponline/2020/08/23/us/politics/ap-us-election-2020-rnc-trump-promises.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/08/23/us/politics/ap-us-election-2020-rnc-trump-promises.html?searchResultPosition=8
 
 **EU's Hogan Sorry for Possible COVID-19 Breach, Stops Short of Resigning**\
 `European Trade Commissioner Phil Hogan apologised again on Sunday for attending an event in his native Ireland that may have breached COVID-19 regulations, but stopped short of bowing to calls from Irish leaders to resign.`\
-https://nytimes.com/reuters/2020/08/23/world/europe/23reuters-health-coronavirus-ireland-eu.html?searchResultPosition=8
+https://nytimes.com/reuters/2020/08/23/world/europe/23reuters-health-coronavirus-ireland-eu.html?searchResultPosition=9
 
 **Afghan Official: Bomb Kills 7 Civilians in Eastern Province**\
 `A roadside bombing on Sunday in eastern Afghanistan killed seven civilians, a provincial official said, the latest in relentless deadly violence in the country amid new uncertainties over the start of talks between the Taliban and the Kabul government.`\
-https://nytimes.com/aponline/2020/08/23/world/asia/ap-as-afghanistan.html?searchResultPosition=9
-
-**German Labour Minister to Extend Short-Time Work Allowance: BamS**\
-`German Labour Minister Hubertus Heil is seeking to extend by one year the period during which the state will pay short-time work allowances - a supplement for people put on reduced work hours -  weekly newspaper Bild am Sonntag (BamS) reported on Sunday.`\
-https://nytimes.com/reuters/2020/08/23/world/europe/23reuters-health-coronavirus-germany-employment.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/23/world/asia/ap-as-afghanistan.html?searchResultPosition=10
 
