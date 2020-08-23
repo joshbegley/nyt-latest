@@ -18,17 +18,17 @@ https://nytimes.com/2020/08/23/business/electric-cars-spac-wall-street.html?sear
 `Don’t believe the story that Trump will tell at the Republican convention.`\
 https://nytimes.com/2020/08/23/opinion/trump-convention-economy.html?searchResultPosition=5
 
+**Virgin Islands Will Subpoena Billionaire Investor in Epstein Case**\
+`The territory’s attorney general wants to know more about Leon Black’s dealings with Jeffrey Epstein, who died while facing sex-trafficking charges.`\
+https://nytimes.com/2020/08/23/business/jeffrey-epstein-leon-black-virgin-islands.html?searchResultPosition=6
+
 **Homes That Sold for Around $1 Million**\
 `Recent residential sales in New York City and the region.`\
-https://nytimes.com/2020/08/23/realestate/homes-that-sold-for-around-1-million.html?searchResultPosition=6
+https://nytimes.com/2020/08/23/realestate/homes-that-sold-for-around-1-million.html?searchResultPosition=7
 
 **Alex Morse Was Accused, Condemned and Then Vindicated. Will His Experience Change Anything?**\
 `Vague allegations against the Massachusetts congressional candidate offer a case study in how progressives navigate issues of sex and power in politics when judgment is often swift and unforgiving.`\
-https://nytimes.com/2020/08/23/us/politics/alex-morse-massachusetts.html?searchResultPosition=7
-
-**Virgin Islands Will Subpoena Billionaire Investor in Epstein Case**\
-`The territory’s attorney general wants to know more about Leon Black’s dealings with Jeffrey Epstein, who died while facing sex-trafficking charges.`\
-https://nytimes.com/2020/08/23/business/jeffrey-epstein-leon-black-virgin-islands.html?searchResultPosition=8
+https://nytimes.com/2020/08/23/us/politics/alex-morse-massachusetts.html?searchResultPosition=8
 
 **Dry Thunderstorms Could Accelerate the California Wildfires**\
 `Lightning, erratic winds and no rain would make it even tougher for firefighters to battle some of the largest blazes in state history.`\
