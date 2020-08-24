@@ -35,6 +35,6 @@ https://nytimes.com/aponline/2020/08/24/world/africa/ap-af-zimbabwe-arrests.html
 https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-health-coronavirus-astrazeneca-catalent.html?searchResultPosition=9
 
 **Afghan Soccer Official, Charged With Sexual Abuse, Evades Arrest**\
-`The unsuccessful operation against Keramuddin Keram, whom players accused of many abuses, showed the limited reach of the national government.`\
+`The unsuccessful operation against Keramuddin Keram, whom players accused of rape and other abuses, showed the limited reach of the national government.`\
 https://nytimes.com/2020/08/24/world/asia/afghanistan-soccer-sex-abuse.html?searchResultPosition=10
 
