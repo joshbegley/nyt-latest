@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/08/24/world/europe/ap-eu-austria-russia.html?s
 `Laura Stockton, the daughter of retired Utah Jazz great John Stockton, has signed a professional contract to play basketball in Germany, her new club said.`\
 https://nytimes.com/aponline/2020/08/24/sports/basketball/ap-bkl-stockton-daughter-germany.html?searchResultPosition=8
 
-**Auto Start-Up Luminar to Go Public in $3.4 Billion Deal**\
-`Autonomous vehicle start-up Luminar Technologies Inc said on Monday it would go public through a merger with blank-check firm Gores Metropoulos Inc for about $3.4 billion.`\
+**Autonomous Tech Startup Luminar to Go Public for About $3.4 Billion**\
+`Autonomous vehicle startup Luminar Technologies Inc said on Monday it would go public through a merger with blank-check firm Gores Metropoulos Inc for about $3.4 billion.`\
 https://nytimes.com/reuters/2020/08/24/technology/24reuters-luminar-m-a-ipo.html?searchResultPosition=9
 
 **China Will Step Up Technology Innovation to Drive Growth: President Xi**\
