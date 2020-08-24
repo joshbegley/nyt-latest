@@ -31,7 +31,7 @@ https://nytimes.com/2020/08/23/us/georgia-police-officer-fired-tiktok.html?searc
 https://nytimes.com/reuters/2020/08/23/world/asia/23reuters-newzealand-shootin-factbox.html?searchResultPosition=8
 
 **Raptors Overwhelm Nets 150-122 to Finish First-Round Sweep**\
-`Norman Powell scored 29 points, fellow reserve Serge Ibaka added 27 points and 15 rebounds and the Toronto Raptors steamrolled into the Eastern Conference semifinals by routing the Brooklyn Nets 150-122 on Sunday to complete a four-game sweep.`\
+`Kyle Lowry limped off the floor in the first quarter and the Toronto Raptors will surely need their point guard in the next round.`\
 https://nytimes.com/aponline/2020/08/23/sports/basketball/bc-bkn-raptors-nets.html?searchResultPosition=9
 
 **BOK Chief Sees Economic Recovery Weakening as Domestic Infections Surge**\
