@@ -7,7 +7,7 @@ https://nytimes.com/reuters/2020/08/23/world/europe/23reuters-global-oil.html?se
 https://nytimes.com/reuters/2020/08/23/sports/golf/23reuters-golf-northerntrust.html?searchResultPosition=2
 
 **Qantas International Head to Depart as Overseas Flying Remains Grounded**\
-`Qantas Airways Ltd said on Monday its international division head Tino La Spina would leave the company, in a cost-saving move at a time when the airline has grounded all international flying due to the coranvirus pandemic.`\
+`Qantas Airways Ltd said on Monday its international division head Tino La Spina would leave the company, in a cost-saving move at a time when the airline has grounded all international flying due to the coronavirus pandemic.`\
 https://nytimes.com/reuters/2020/08/23/world/asia/23reuters-qantas-executives.html?searchResultPosition=3
 
 **Dollar Holds Steady as Investors Await Powell for Catalysts**\
