@@ -1,40 +1,40 @@
-**Trove of 1,000-Year-Old Gold Coins Unearthed in Israel**\
-`Israeli youths have unearthed hundreds of gold coins stashed away in a clay vessel for more than a thousand years.`\
-https://nytimes.com/reuters/2020/08/24/world/middleeast/24reuters-israel-archaeology-gold-coins.html?searchResultPosition=1
+**UK Foreign Minister to Meet Israeli, Palestinian Leaders to Press for Dialogue**\
+`British foreign minister Dominic Raab will meet Israeli Prime Minister Benjamin Netanyahu and Palestinian President Mahmoud Abbas this week to press for renewed dialogue between their governments to pursue a negotiated two-state solution.`\
+https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-israel-emirates-britain-raab.html?searchResultPosition=1
 
-**In China, Newly-Listed ChiNext Shares Surge in Historic Reform**\
-`Shares of 18 companies surged on their ChiNext debut on Monday, kicking off a historic reform that will see Shenzhen officially challenge Shanghai for tech listings, while adding fuel to a "technology war" with the United States.`\
-https://nytimes.com/reuters/2020/08/24/business/24reuters-china-market-chinext.html?searchResultPosition=2
+**Mavericks' Doncic Thanks Medical Team After Playoff Heroics**\
+`Dallas Mavericks guard Luka Doncic hailed the NBA team's medical staff for helping him quickly overcome an ankle injury, after he chalked up 43 points, 17 rebounds and 13 assists in Sunday's 135-133 playoff victory over the Los Angeles Clippers.`\
+https://nytimes.com/reuters/2020/08/24/sports/basketball/24reuters-basketball-nba-dal-doncic.html?searchResultPosition=2
 
-**Belarus Detains Two Members of Opposition Council**\
-`Two members of the Belarusian opposition's coordination council were detained on Monday near the entrance to a factory in Belarus, a spokesman for the council told Reuters. `\
-https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-belarus-election-council.html?searchResultPosition=3
+**Are We Looking for the Wrong Coronavirus Vaccines?**\
+`The best vaccines don’t just prevent a disease; they also prevent the pathogen causing the disease from being transmitted. So why aren’t we focusing more on those?`\
+https://nytimes.com/2020/08/24/opinion/coronavirus-vaccine-prevention.html?searchResultPosition=3
 
-**Russia Protests Austrian Decision to Expel Russian Diplomat: TASS**\
-`Russia's embassy in Vienna protested on Monday over what it said  was a groundless decision by Austrian authorities to expel a Russian diplomat, the TASS news agency reported. `\
-https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-russia-austria-diplomat.html?searchResultPosition=4
+**Remembering the Rohingya Exodus**\
+`Carrying bundles of belongings and often barefoot, they trekked for days over western Myanmar's monsoon-drenched mountains, before fording the Naf River into Bangladesh. Many braved sea crossings in rickety, overloaded boats. `\
+https://nytimes.com/reuters/2020/08/24/world/asia/24reuters-myanmar-rohingya-graphic.html?searchResultPosition=4
 
-**How Does Japan's Abe Score on His Policy Agenda?**\
-`Japanese Prime Minister Shinzo Abe, the nation's longest serving premier, visited a Tokyo hospital on Monday as concerns deepened about his ability to continue in his post due to health issues and fatigue from handling the coronavirus crisis.`\
-https://nytimes.com/reuters/2020/08/24/world/asia/24reuters-japan-politics-abe-scorecard-explainer.html?searchResultPosition=5
+**Roaming Through Lanzarote’s Otherworldly Vineyards**\
+`The desolate beauty of the winemaking tradition on Lanzarote, the easternmost of the Canary Islands, is evidence of human resilience in the face of adversity.`\
+https://nytimes.com/2020/08/24/travel/lanzarote-canary-islands.html?searchResultPosition=5
 
-**Taliban Political Team in Pakistan to Talk Afghan Peace Push**\
-`A Taliban political team arrived in Pakistan on Monday as efforts appear to be ramping up to get negotiations underway between the Afghan government and the insurgents. `\
-https://nytimes.com/aponline/2020/08/24/world/asia/ap-as-afghanistan-taliban-talks.html?searchResultPosition=6
+**How Bannon’s Wall Group Used Trump Ties and Social Media to Raise Millions**\
+`An encounter with an administration official. A photo with Donald Trump Jr. A chat with the president himself. Officials at We Build the Wall turned a stream of postings into a gusher of donations.`\
+https://nytimes.com/2020/08/24/us/politics/trump-bannon-we-build-the-wall.html?searchResultPosition=6
 
-**France to Reciprocate Britain's Quarantine Rule in Coming Days: Minister**\
-`French authorities will in coming days reciprocate Britain's decision to impose a 14-day quarantine on all arrivals from France, the junior minister for European affairs said on Monday.`\
-https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-health-coronavirus-britain-france.html?searchResultPosition=7
+**Not the Convention, or the Election, North Carolina Republicans Hoped For**\
+`The G.O.P. was supposed to be celebrating in the state this week. Instead, it is trying to hold onto a Senate seat and lift President Trump’s low poll numbers.`\
+https://nytimes.com/2020/08/24/us/politics/north-carolina-charlotte-rnc.html?searchResultPosition=7
 
-**Germany's Confirmed Coronavirus Cases Rise by 711 to 233,575: RKI**\
-`The number of confirmed coronavirus cases in Germany increased  by 711 to 233,575, data from the Robert Koch Institute (RKI) for infectious diseases showed on Monday.`\
-https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-health-coronavirus-germany-cases.html?searchResultPosition=8
+**Virus Response Fueling G.O.P. Bid to Retake New Mexico Seat**\
+`A district flipped by Democrats is suddenly in play again as Republicans mobilize opposition to pandemic measures, signaling the tenuous hold Democrats have on some seats they picked up in 2018.`\
+https://nytimes.com/2020/08/24/us/new-mexico-congress-Xochitl-Torres-Small-herrell.html?searchResultPosition=8
 
-**Indonesia Reports 1,877 New Coronavirus Infections, 79 Deaths**\
-`Indonesia reported 1,877 new coronavirus infections on Monday, taking the total number of cases in the Southeast Asian country to 155,412, data from its COVID-19 task force showed.`\
-https://nytimes.com/reuters/2020/08/24/world/asia/24reuters-health-coronavirus-indonesia-cases.html?searchResultPosition=9
+**Europe Tried to Limit Mass Layoffs, but the Cuts Are Coming Anyway**\
+`Despite furlough schemes that have kept tens of millions of people employed, a tsunami of job cuts is about to hit as companies downsize.`\
+https://nytimes.com/2020/08/24/business/europe-economy-layoffs.html?searchResultPosition=9
 
-**MLB Roundup: Machado, Padres Complete Sweep of Astros**\
-`- the Rays' 11th different starter this season -- worked effectively through Toronto's dangerous lineup over five solid innings in his 72-pitch debut. He allowed two runs on four hits while walking two and striking out three.`\
-https://nytimes.com/reuters/2020/08/24/sports/baseball/24reuters-baseball-mlb-roundup.html?searchResultPosition=10
+**Black Chefs Are Landing More Cookbook Deals. Is That Enough?**\
+`African-American food writers are seeing more interest among publishers, but the ones who have been burned by the experience warn that the industry’s problems go further than advances and paychecks.`\
+https://nytimes.com/2020/08/24/books/black-food-writers-cookbook-publishing.html?searchResultPosition=10
 
