@@ -15,7 +15,7 @@ https://nytimes.com/2020/08/24/us/jerry-falwell-resigns-liberty.html?searchResul
 https://nytimes.com/aponline/2020/08/24/us/ap-us-colombia-warlord.html?searchResultPosition=4
 
 **Delta Air Lines to Furlough 1,941 Pilots in October: Memo**\
-`Delta Air Lines is set to furlough 1,941 pilots in October, the carrier said in a memo seen by Reuters on Monday. `\
+`Delta Air Lines is set to furlough 1,941 pilots in October, the carrier said in a memo seen by Reuters on Monday that noted the fallout from the COVID-19 pandemic and plunging air travel demand.`\
 https://nytimes.com/reuters/2020/08/24/business/24reuters-health-coronavirus-delta-air-jobs.html?searchResultPosition=5
 
 **Top California Court Overturns Death Penalty of Man Who Murdered Wife, Unborn Son**\
