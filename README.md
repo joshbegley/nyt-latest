@@ -1,40 +1,40 @@
+**Apple CEO Tim Cook Is Fulfilling Another Steve Jobs Vision**\
+`Apple co-founder Steve Jobs, who died in 2011, was a tough act to follow. But Tim Cook seems to be doing so well at it that his eventual successor may also have big shoes to fill.`\
+https://nytimes.com/aponline/2020/08/24/business/ap-us-apple-tim-cook-anniversary.html?searchResultPosition=1
+
+**German Foreign Minister to Discuss East Med Row Tuesday: Ministry**\
+`German Foreign Minister Heiko Maas is planning to discuss the natural gas dispute in the eastern Mediterranean Sea in Athens and Ankara on Tuesday, a ministry spokesman said on Monday.`\
+https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-turkey-greece-germany.html?searchResultPosition=2
+
+**5 Things to Know Today**\
+`Your daily look at late-breaking news, upcoming events and the stories that will be talked about today:`\
+https://nytimes.com/aponline/2020/08/24/us/ap-5-things-to-know-today.html?searchResultPosition=3
+
+**Taiwan Orders Alibaba to Sell Stake in e-Commerce Platform**\
+`Taiwan ordered China’s Alibaba Group on Monday to dispose of its stake in a local e-commerce platform, Taobao Taiwan, citing a risk that users’ personal information might be transferred to the mainland.`\
+https://nytimes.com/aponline/2020/08/24/business/bc-as-taiwan-alibaba.html?searchResultPosition=4
+
+**A Surge in Shootings**\
+`Gun violence in the U.S. typically rises in summer, but the problem has been especially fierce this year. Why?`\
+https://nytimes.com/2020/08/24/podcasts/the-daily/gun-violence-new-york.html?searchResultPosition=5
+
+**Barclays Hires JPM's Esteve to Head Equity Capital Markets in Europe**\
+`Barclays' investment bank division appointed J.P. Morgan's Manuel Esteve as the head of its equity capital markets in Continental Europe, it said on Monday.`\
+https://nytimes.com/reuters/2020/08/24/business/24reuters-barclays-moves.html?searchResultPosition=6
+
+**More Facts Needed to Determine if Navalny Was Poisoned: Germany**\
+`Germany needs more information about the case of Russian opposition politician Alexei Navalny before it can say whether he was poisoned as his supporters allege, Foreign Minister Heiko Maas said on Monday in the Ukrainian capital.`\
+https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-ukraine-germany.html?searchResultPosition=7
+
 **Peaceful Protest Urged in Fatal Police Shooting of Black Man**\
 `Protesters marched through a Louisiana city holding signs and at times blocking traffic in response to the fatal police shooting of a Black man that has heighten tensions between community activists and local leaders.`\
-https://nytimes.com/aponline/2020/08/24/us/ap-us-racial-injustice-police-shooting-louisiana.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/24/us/ap-us-racial-injustice-police-shooting-louisiana.html?searchResultPosition=8
 
 **2 Belarus Opposition Activists Detained in the Capital**\
 `Belarusian authorities on Monday detained two leading opposition activists who have helped spearhead a wave of protests demanding the resignation of the country's authoritarian ruler of 26 years.`\
-https://nytimes.com/aponline/2020/08/24/business/ap-eu-belarus-protests.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/24/business/ap-eu-belarus-protests.html?searchResultPosition=9
 
 **Austria Expels Russian Diplomat, Moscow Calls Move 'Damaging'**\
 `Austria is expelling a Russian diplomat for breaching the Vienna Convention governing diplomats' privileges and immunities, an Austrian Foreign Ministry spokesman said on Monday.`\
-https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-russia-austria.html?searchResultPosition=3
-
-**Norwegian Fund Drops Exxon, Chevron Over Climate Lobbying**\
-`A Norwegian pension fund said Monday that it is divesting over $47 million from 27 companies, including Exxon and Chevron, as part of its commitment to combating climate change. The fund warned other major oil and gas companies it might drop them as well.`\
-https://nytimes.com/aponline/2020/08/24/business/ap-eu-norway-storebrand-climate.html?searchResultPosition=4
-
-**Irish PM Wants Assurances EU's Hogan Did Not Break COVID-19 Rules**\
-`Irish Prime Minister Micheál Martin called on European Trade Commissioner Phil Hogan to give the public absolute assurances he did not break COVID-19 when he travelled to a golf dinner that has caused outrage in his native Ireland.`\
-https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-health-coronavirus-ireland-eu-primeminister.html?searchResultPosition=5
-
-**Federal Judge Issues Stay in Trump Challenge of Mail Balloting in Pennsylvania**\
-`A federal judge on Sunday ordered a stay in President Donald Trump’s re-election campaign’s lawsuit seeking to ban drop boxes and other changes to Pennsylvania’s mail-balloting procedures.`\
-https://nytimes.com/reuters/2020/08/24/us/politics/24reuters-usa-election-mail-ballot-lawwsuit.html?searchResultPosition=6
-
-**Tropical Storm Laura Likely to Become Hurricane by Tuesday: U.S. NHC**\
-`Tropical storm Laura is forecast to strengthen into a hurricane by early Tuesday, the U.S National Hurricane Center (NHC) said in its latest advisory. `\
-https://nytimes.com/reuters/2020/08/24/world/americas/24reuters-storm-laura-nhc.html?searchResultPosition=7
-
-**Top U.S. Security Official Says He Cannot Send Law Enforcement to Polling Sites**\
-`U.S. President Donald Trump's top homeland security official said on Sunday that his department does not have the authority to send law enforcement to polling sites during the November election despite Trump's suggestion that federal officers could be deployed to guard against election fraud.`\
-https://nytimes.com/reuters/2020/08/24/us/politics/24reuters-usa-election-trump-security.html?searchResultPosition=8
-
-**2020 Watch: Can Trump Expand His Coalition Beyond His Base?**\
-`Joe Biden’s Democratic Party just pulled off the first national convention of the coronavirus era, an all-virtual affair that felt like an extended infomercial at times but was praised by Republicans and Democrats alike for its production value and outreach to voters across the political spectrum.`\
-https://nytimes.com/aponline/2020/08/24/us/politics/ap-us-election-2020-watch.html?searchResultPosition=9
-
-**Greece Plans Military Exercise Amid Dispute With Turkey**\
-`Greece said Monday that it will conduct a navy and air force exercise in an area of the eastern Mediterranean where Turkey is prospecting for oil and gas in an area as the neighboring countries remain locked in a dispute over offshore energy rights. `\
-https://nytimes.com/aponline/2020/08/24/business/ap-eu-turkey-greece.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-russia-austria.html?searchResultPosition=10
 
