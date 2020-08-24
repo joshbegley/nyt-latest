@@ -10,13 +10,13 @@ https://nytimes.com/2020/08/24/us/politics/trump-republicans.html?searchResultPo
 `Italy kicked off human trials of a potential COVID-19 vaccine on Monday, joining a global effort to develop a response to the virus which has shown signs of resurging in Europe. `\
 https://nytimes.com/reuters/2020/08/24/world/asia/24reuters-health-coronavirus-italy.html?searchResultPosition=3
 
-**Bringing a ‘Broad City’ Approach to Energizing the Youth Vote**\
-`A new voting project from Ilana Glazer is aimed at millennials and Gen Z members who just need to be persuaded to show up.`\
-https://nytimes.com/2020/08/24/us/politics/ilana-glazer-broad-city-voting.html?searchResultPosition=4
-
 **On Mideast Trip, Pompeo Mixes Diplomacy With Partisan Politics**\
 `Secretary of State Mike Pompeo’s five-day tour is intended to discuss regional peace and security. He also planned to use Jerusalem as a backdrop for an address to the Republican National Convention.`\
-https://nytimes.com/2020/08/24/world/middleeast/pompeo-jerusalem-rnc.html?searchResultPosition=5
+https://nytimes.com/2020/08/24/world/middleeast/pompeo-jerusalem-rnc.html?searchResultPosition=4
+
+**Bringing a ‘Broad City’ Approach to Energizing the Youth Vote**\
+`A new voting project from Ilana Glazer is aimed at millennials and Gen Z members who just need to be persuaded to show up.`\
+https://nytimes.com/2020/08/24/us/politics/ilana-glazer-broad-city-voting.html?searchResultPosition=5
 
 **Baseball’s Most Unusual Season Is Halfway Over**\
 `The Dodgers are 22-8 after 30 games of a 60-game season that will be remembered for postponed games, health-driven rules and expanded playoffs.`\
