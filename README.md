@@ -1,40 +1,40 @@
+**Honey May Ease Coughs and Other Respiratory Symptoms**\
+`A review of studies confirms an old home remedy: honey for colds.`\
+https://nytimes.com/2020/08/24/well/live/honey-may-ease-coughs-and-other-respiratory-symptoms.html?searchResultPosition=1
+
 **Tests Suggest Aleksei Navalny Was Poisoned, German Doctors Say**\
 `Physicians treating the Russian opposition leader, who fell ill last week and was sent to a hospital in Berlin, said that his life was not in danger.`\
-https://nytimes.com/2020/08/24/world/europe/aleksei-navalny-poison.html?searchResultPosition=1
+https://nytimes.com/2020/08/24/world/europe/aleksei-navalny-poison.html?searchResultPosition=2
 
 **'Dead' Woman Found to Be Breathing at Detroit Funeral Home**\
 `A young woman was discovered to be alive after she had been declared dead and taken to a Detroit funeral home, officials said.`\
-https://nytimes.com/aponline/2020/08/24/us/ap-us-funeral-home-woman-alive.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/24/us/ap-us-funeral-home-woman-alive.html?searchResultPosition=3
 
 **BlackRock Trims Long-Term Exposure to Credit to 'Neutral' Citing Spreads**\
 `The BlackRock Investment Institute said on Monday it had trimmed its "overweight" to credit on a long-term view. `\
-https://nytimes.com/reuters/2020/08/24/business/24reuters-credit-markets-blackrock.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/24/business/24reuters-credit-markets-blackrock.html?searchResultPosition=4
 
 **Russian Opposition Leader Navalny Shows Indications of Poisoning: German Hospital**\
 `A medical examination of Russian opposition leader Alexei Navalny in a German hospital has found indications of poisoning, the Charite hospital said on Monday.`\
-https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-russia-politics-navalny-poisoning.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-russia-politics-navalny-poisoning.html?searchResultPosition=5
 
 **Zoom Reports Partial Outage as Many Schools Return to Remote Learning**\
 `The Atlanta school district was among those affected by the outage. Zoom said it had “identified the issue” and was working to resolve the problem for users unable to start or join meetings.`\
-https://nytimes.com/2020/08/24/business/zoom-down.html?searchResultPosition=5
+https://nytimes.com/2020/08/24/business/zoom-down.html?searchResultPosition=6
 
 **All 77 NFL Positive COVID-19 Tests From Weekend Come Back Negative**\
 `The National Football League has cleared all 77 individuals who returned positive results for COVID-19 over the weekend after discovering a testing error in a New Jersey lab, ESPN reported, citing sources.`\
-https://nytimes.com/reuters/2020/08/24/sports/football/24reuters-health-coronavirus-football-nfl.html?searchResultPosition=6
+https://nytimes.com/reuters/2020/08/24/sports/football/24reuters-health-coronavirus-football-nfl.html?searchResultPosition=7
 
 **American Airlines Preparing Use of EPA Approved Long-Lasting Disinfectant**\
 `American Airlines said it is preparing to begin spraying its airplane cabins with a disinfectant proven to fight COVID-19 on surfaces for up to seven days that has been granted emergency approval by the U.S. Environmental Protection Agency for use in Texas.`\
-https://nytimes.com/reuters/2020/08/24/us/24reuters-health-coronavirus-airlines-usa.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/08/24/us/24reuters-health-coronavirus-airlines-usa.html?searchResultPosition=8
 
 **Falwell Says Wife Had Affair, Family Faced Blackmail Attempt**\
 `Jerry Falwell Jr., currently on a leave of absence as the leader of evangelical Liberty University, has released a statement saying that he is seeking help for the “emotional toll” from an affair his wife had with a man who he says later threatened his family.`\
-https://nytimes.com/aponline/2020/08/24/us/ap-us-liberty-falwell.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/08/24/us/ap-us-liberty-falwell.html?searchResultPosition=9
 
 **AP-NORC Poll: Trump Faces Pessimism as GOP Convention Opens**\
 `President Donald Trump is promising to outline an optimistic vision for America at this week's Republican convention.`\
-https://nytimes.com/aponline/2020/08/24/us/politics/ap-us-ap-poll-election-2020-trump.html?searchResultPosition=9
-
-**Hong Kong Researchers Report First Documented Coronavirus Re-Infection**\
-`A Hong Kong man who recovered from COVID-19 was infected again four-and-a-half months later in the first documented instance of human re-infection, researchers at the University of Hong Kong said on Monday.`\
-https://nytimes.com/reuters/2020/08/24/world/asia/24reuters-health-coronavirus-hongkong-reinfection.html?searchResultPosition=10
+https://nytimes.com/aponline/2020/08/24/us/politics/ap-us-ap-poll-election-2020-trump.html?searchResultPosition=10
 
