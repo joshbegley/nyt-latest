@@ -1,40 +1,40 @@
+**Kenosha Reels After Police Shooting and Night of Protest**\
+`Jacob Blake, a Black resident of Kenosha, was shot in the back, setting off condemnations from Wisconsin’s governor and Joe Biden, the Democrats’ presidential nominee`\
+https://nytimes.com/2020/08/24/us/kenosha-police-shooting.html?searchResultPosition=1
+
+**U.N. Nuclear Agency Head Visits Iran Amid US Sanctions Push**\
+`The head of the U.N.’s atomic watchdog agency arrived in Iran on Monday to press for access to sites where authorities are thought to have stored or used undeclared nuclear material.`\
+https://nytimes.com/aponline/2020/08/24/world/middleeast/ap-ml-iran-nuclear.html?searchResultPosition=2
+
+**Corps: Alaska Mine Would Have Adverse Impacts on Salmon Site**\
+`A proposed gold and copper mine at the headwaters of the world’s largest sockeye salmon fishery in Alaska would cause “unavoidable adverse impacts,” the U.S. Army Corps of Engineers said in a letter to the developer released Monday.`\
+https://nytimes.com/aponline/2020/08/24/business/bc-us-pebble-mine.html?searchResultPosition=3
+
+**The Risks if Biden Loses**\
+`A reader says the former vice president is our best hope to right the wrongs of the last four years. Also: Oil leasing in the Arctic refuge; Lori Loughlin’s jail sentence.`\
+https://nytimes.com/2020/08/24/opinion/letters/biden-election.html?searchResultPosition=4
+
+**Usain Bolt Quarantines as He Awaits Result of Coronavirus Test**\
+`The Olympic great from Jamaica said he would keep to himself for two weeks, but that he felt no symptoms of the virus.`\
+https://nytimes.com/2020/08/24/sports/olympics/coronavirus-usain-bolt.html?searchResultPosition=5
+
 **Scientists Say Hong Kong Man Got Coronavirus a Second Time**\
 `University of Hong Kong scientists claim to have the first evidence of someone being reinfected with the virus that causes COVID-19.`\
-https://nytimes.com/aponline/2020/08/24/health/ap-us-med-virus-outbreak-reinfection.html?searchResultPosition=1
+https://nytimes.com/aponline/2020/08/24/health/ap-us-med-virus-outbreak-reinfection.html?searchResultPosition=6
 
 **Twin U.S. Gulf Coast Storms Stir Deep Production Cuts by Energy Giants**\
 `Energy companies are moving to cut production at U.S. Gulf Coast oil refineries after shutting half the area's offshore crude oil output ahead of back-to-back storms aiming for the coast this week.`\
-https://nytimes.com/reuters/2020/08/24/us/24reuters-usa-storms-energy.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/24/us/24reuters-usa-storms-energy.html?searchResultPosition=7
 
 **COVID-19 Is ‘a Crisis Within a Crisis’ for Homeless People**\
 `Nearly 200 tents stand inches apart on the scorching gravel lots, many covered in blankets for an extra layer of relief from the desert sun.`\
-https://nytimes.com/aponline/2020/08/24/us/ap-us-virus-outbreak-invisible-victims-.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/24/us/ap-us-virus-outbreak-invisible-victims-.html?searchResultPosition=8
 
 **Professor, NASA Researcher Accused of Concealing China Ties**\
 `A NASA researcher and Texas A&M University professor has been charged with accepting federal grant money while hiding work he was doing for an university established by the Chinese government as well as his affiliation with Chinese-owned companies.`\
-https://nytimes.com/aponline/2020/08/24/us/politics/ap-us-professor-charged.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/24/us/politics/ap-us-professor-charged.html?searchResultPosition=9
 
 **Nine People Charged in New IRA Investigation: Northern Ireland Police**\
 `Nine of the 10 people arrested last week in an investigation of the militant Irish nationalist New IRA group have been charged on a range of offences from directing terrorism to conspiracy to possess explosives, Northern Ireland police said on Monday.`\
-https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-nireland-crime.html?searchResultPosition=5
-
-**France's COVID-19 Cases and Casualties Rise**\
-`The number of new, confirmed cases of COVID-19 in France has risen by 1,955 compared to the previous day, the French health ministry said on Monday, although the increase in new cases was less than in previous days.`\
-https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-health-coronavirus-france-casualties.html?searchResultPosition=6
-
-**Algeria to Hold Referendum on Constitution on Nov.1**\
-`Algeria has set Nov. 1 as a date for a referendum on a new constitution aimed at boosting democracy and giving parliament a greater role, the presidency said on Monday, after months-long protests demanding reforms.`\
-https://nytimes.com/reuters/2020/08/24/world/africa/24reuters-algeria-constitution-referendum.html?searchResultPosition=7
-
-**Medvedev Makes Quiet but Winning Return to Western and Southern**\
-`Third seed Daniil Medvedev launched the defence of his Western and Southern Open title with a tidy 6-4 6-4 second round win over Marcos Giron on Monday, getting his U.S. Open preparations off to an upbeat start.`\
-https://nytimes.com/reuters/2020/08/24/sports/tennis/24reuters-tennis-cincinnati.html?searchResultPosition=8
-
-**Even Fastest Man Alive May Not Be Able to Outrun Coronavirus**\
-`World-record sprinter and eight-time Olympic gold medalist Usain Bolt said on Monday he was self isolating while waiting to hear back from the health ministry after taking a coronavirus test this weekend.`\
-https://nytimes.com/reuters/2020/08/24/sports/olympics/24reuters-health-coronavirus-jamaica-bolt.html?searchResultPosition=9
-
-**Erdogan Says Greece Sowing Chaos in Mediterranean**\
-`President Tayyip Erdogan said on Monday Turkey's navy will not back down as Greece sows chaos in the eastern Mediterranean Sea, where the countries have overlapping resource claims and have deployed frigates in an escalating rhetorical confrontation.`\
-https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-turkey-greece.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-nireland-crime.html?searchResultPosition=10
 
