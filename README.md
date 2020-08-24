@@ -3,7 +3,7 @@
 https://nytimes.com/aponline/2020/08/24/us/politics/ap-us-election-2020-rnc-the-latest.html?searchResultPosition=1
 
 **Austria Expels Russian Diplomat, Moscow Set to Respond**\
-`Austria said Monday it is expelling a Russian diplomat, a decision that the Russian Embassy in Vienna said was “unfounded” and would draw a response from Moscow.`\
+`Austria said Monday it is expelling a Russian diplomat, a decision that Russia said was “unfounded” and would draw a response from Moscow.`\
 https://nytimes.com/aponline/2020/08/24/world/europe/ap-eu-austria-russia.html?searchResultPosition=2
 
 **Daughter of Utah Jazz Great Stockton to Play in Germany**\
