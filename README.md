@@ -1,40 +1,40 @@
+**The Impeachment Battle Rematch That Wasn’t**\
+`Six months after President Trump’s Senate trial, what was once seen as the battle of a generation has essentially vanished from the political landscape, all but unmentioned at either party’s convention.`\
+https://nytimes.com/2020/08/25/us/politics/trump-impeachment-convention.html?searchResultPosition=1
+
 **Ex-Trump Adviser Cohn Seeks $600 Million for Blank-Check Company IPO**\
 `Gary Cohn, the former economic adviser to U.S. President Donald Trump, has teamed up with investor Clifton S. Robbins to seek $600 million in an initial public offering (IPO) for a new blank-check acquisition company, filings showed on Tuesday. `\
-https://nytimes.com/reuters/2020/08/25/us/25reuters-cohn-robbins-ipo.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/25/us/25reuters-cohn-robbins-ipo.html?searchResultPosition=2
 
 **Why Are Republicans Warping ‘the Very Heart and Soul of Conservatism’?**\
-`Libertarian friends and free-market thinkers being purged from the coalition.`\
-https://nytimes.com/2020/08/25/opinion/republicans-libertarians-economics.html?searchResultPosition=2
+`Libertarian friends and free-market thinkers are being purged from the coalition.`\
+https://nytimes.com/2020/08/25/opinion/republicans-libertarians-economics.html?searchResultPosition=3
 
 **Djokovic's Neck Better, as Is His Play; Now 20-0 in 2020**\
 `Novak Djokovic’s neck felt much better, and his tennis looked much better, in a 6-2, 6-4 victory over unseeded American Tennys Sandgren at the Western & Southern Open on Tuesday that improved the No. 1-ranked man to 20-0 in 2020.`\
-https://nytimes.com/aponline/2020/08/25/sports/tennis/ap-ten-western-southern-open-1st-ld-writethru.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/25/sports/tennis/ap-ten-western-southern-open-1st-ld-writethru.html?searchResultPosition=4
 
 **Astros Beat Angels 6-3 in Opener of DH Caused by Hurricane**\
 `Rookie Cristian Javier threw well into the sixth inning, protecting a big lead and sending the Houston Astros over the Los Angeles Angels 6-3 Tuesday in the opener of a doubleheader created by the approach of Hurricane Laura.`\
-https://nytimes.com/aponline/2020/08/25/sports/baseball/ap-bba-angels-astros-1st-ld-writethru.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/25/sports/baseball/ap-bba-angels-astros-1st-ld-writethru.html?searchResultPosition=5
 
 **Security Council Leader Rejects U.S. Demand for U.N. Sanctions on Iran**\
 `The setback elicited an angry reaction from the U.S. ambassador to the United Nations, who accused her counterparts of standing with terrorists.`\
-https://nytimes.com/2020/08/25/world/middleeast/Iran-sanctions-Trump-UN.html?searchResultPosition=5
+https://nytimes.com/2020/08/25/world/middleeast/Iran-sanctions-Trump-UN.html?searchResultPosition=6
 
 **A Look at Key Moments in Falwell's Relationship With Liberty**\
 `During 13 years under the stewardship of Jerry Falwell Jr., Liberty University in Lynchburg, Virginia, has grown into a powerhouse with an endowment of over $1.7 billion, more than 15,000 on-campus and over 94,000 virtual students and a Division I athletics program. `\
-https://nytimes.com/aponline/2020/08/25/us/ap-us-liberty-falwell-timeline.html?searchResultPosition=6
+https://nytimes.com/aponline/2020/08/25/us/ap-us-liberty-falwell-timeline.html?searchResultPosition=7
 
 **Breonna Taylor Protest: 64 Arrests Near Kentucky Derby Venue**\
 `A protest march over the police shooting of an unarmed Black woman, Breonna Taylor, led to more than 60 arrests on Tuesday near Churchill Downs, home of the Kentucky Derby.`\
-https://nytimes.com/aponline/2020/08/25/us/ap-us-racial-injustice-breonna-taylor-protest.html?searchResultPosition=7
+https://nytimes.com/aponline/2020/08/25/us/ap-us-racial-injustice-breonna-taylor-protest.html?searchResultPosition=8
 
 **Bed Bath & Beyond Cuts 2,800 Jobs in Restructuring Move**\
 `Bed Bath & Beyond said Tuesday that it's cutting 2,800 jobs at its corporate headquarters and stores — about 5% of its overall workforce — as the troubled home goods retailer looks to pivot more of its business online.`\
-https://nytimes.com/aponline/2020/08/25/business/ap-us-bed-bath-beyond-job-cuts.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/08/25/business/ap-us-bed-bath-beyond-job-cuts.html?searchResultPosition=9
 
 **Confronting a Powerful Democrat, Ocasio-Cortez Supports Morse**\
 `In using her political action committee to endorse Alex Morse in Massachusetts, Representative Alexandria Ocasio-Cortez backed an effort to oust Representative Richard E. Neal, the powerful Ways and Means Committee chairman.`\
-https://nytimes.com/2020/08/25/us/politics/alex-morse-richard-neal-aoc.html?searchResultPosition=9
-
-**Republican Convention Live Analysis and Video**\
-`Live coverage of the second night of the Republican National Convention. Speakers include First Lady Melania Trump, Secretary of State Mike Pompeo and Senator Rand Paul of Kentucky.`\
-https://nytimes.com/interactive/2020/08/25/us/politics/live-rnc-stream-analysis.html?searchResultPosition=10
+https://nytimes.com/2020/08/25/us/politics/alex-morse-richard-neal-aoc.html?searchResultPosition=10
 
