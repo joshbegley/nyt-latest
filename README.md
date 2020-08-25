@@ -1,40 +1,40 @@
+**Finnair Releases Cash With A350 Sale-Leaseback Deal**\
+`Finnair has finalised a sale and leaseback arrangement for one of its new Airbus A350 planes with Nomura Babcock & Brown and BBAM Aircraft Management, the airline said on Tuesday.    `\
+https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-finnair-cash.html?searchResultPosition=1
+
+**AstraZeneca Starts Trial of Antibody Treatment for COVID-19**\
+`AstraZeneca said on Tuesday it started early stage trials for an antibody-based treatment for the prevention and treatment of COVID-19, as the British drugmaker also ploughs on with its vaccine candidate.`\
+https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-health-coronavirus-astrazeneca-treatments.html?searchResultPosition=2
+
+**Thai Activists Answer Summons Over Army Headquarters Rally**\
+`Four prominent Thai anti-government activists answered a summons at a Bangkok police station on Tuesday, the latest in a series of legal moves by the authorities to clamp down on protests that are the most serious challenge yet to Prime Minister Prayuth Chan-ocha’s administration.`\
+https://nytimes.com/aponline/2020/08/25/world/asia/ap-as-thailand-protests.html?searchResultPosition=3
+
+**MLB Roundup: Angels' Pujols Now 2nd in All-Time RBIs**\
+`Framber Valdez struck out 11, Kyle Tucker hit a home run and Carlos Correa hit a three-run double as the Houston Astros returned home to end a three-game losing streak with an 11-4 victory Monday against the Los Angeles Angels.`\
+https://nytimes.com/reuters/2020/08/25/sports/baseball/25reuters-baseball-mlb-roundup.html?searchResultPosition=4
+
+**Scotland's Handling of Virus Boosts Support for Independence**\
+`There is wide agreement that Britain’s devastating coronavirus outbreak has been met by strong, effective political leadership. Just not from Prime Minister Boris Johnson.`\
+https://nytimes.com/aponline/2020/08/25/business/bc-eu-virus-outbreak-scotland-independence.html?searchResultPosition=5
+
 **How Bacteria-Eating Bacteria Could Help Win the War Against Germs**\
 `While microscopic and little known, predatory bacteria are among the world’s fiercest and most effective hunters.`\
-https://nytimes.com/2020/08/25/science/bacteria-bdellovibrio-predator-prey.html?searchResultPosition=1
+https://nytimes.com/2020/08/25/science/bacteria-bdellovibrio-predator-prey.html?searchResultPosition=6
 
 **Kashmir Group Calls India’s Internet Ban 'Digital Apartheid'**\
 `A prominent rights group in Indian-administered Kashmir issued a report Tuesday calling India’s communications blackout following the scrapping of the disputed region’s semiautonomy last year “collective punishment” and urged the international community to question New Delhi over what it called “digital apartheid.`\
-https://nytimes.com/aponline/2020/08/25/business/ap-as-kashmir-digital-siege.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/25/business/ap-as-kashmir-digital-siege.html?searchResultPosition=7
 
 **Exclusive: FDA Commissioner Disputes Trump, Says No 'Deep State' Thwarting Vaccine**\
 `The U.S. Food and Drug Administration (FDA) does not harbor "deep state" elements, the agency's head told Reuters on Monday, rejecting criticism from President Donald Trump that staff there were trying to delay a coronavirus vaccine.`\
-https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-health-coronavirus-usa-hahn-exclusive.html?searchResultPosition=3
+https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-health-coronavirus-usa-hahn-exclusive.html?searchResultPosition=8
 
 **German Economy Shrank by Record 9.7% Quarter-On-Quarter in Second Quarter**\
 `The German economy contracted by a record 9.7% in the second quarter as private consumption, investments and exports all collapsed at the height of the COVID-19 pandemic, the statistics office said on Tuesday in a minor upward-revision to an earlier estimate.`\
-https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-germany-economy-gdp.html?searchResultPosition=4
+https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-germany-economy-gdp.html?searchResultPosition=9
 
 **Pandemic May Fire Up Japan's Inflation, Doing What Cenbank Could Not, Economist Says**\
 `The coronavirus shock is boosting the amount of money flowing into Japan's economy and may fire up inflation, achieving what years of ultra-loose monetary policy failed to do, the central bank's former top economist, Hideo Hayakawa, said on Tuesday.`\
-https://nytimes.com/reuters/2020/08/25/business/25reuters-japan-economy-abenomics.html?searchResultPosition=5
-
-**Weeks After Blast, Lebanon Patronage System Immune to Reform**\
-`Three weeks after a catastrophic explosion ripped through Beirut, killing nearly 200 people and rendering thousands homeless, the change many hoped for is nowhere in sight. Instead, activists said they are back to square one. `\
-https://nytimes.com/aponline/2020/08/25/us/ap-ml-lebanon-impervious-to-change.html?searchResultPosition=6
-
-**What You Need to Know About the Coronavirus Right Now**\
-`Here's what you need to know about the coronavirus right now:`\
-https://nytimes.com/reuters/2020/08/25/world/asia/25reuters-health-coronavirus-snapshot.html?searchResultPosition=7
-
-**Stephen Colbert Says Republicans Have Gone Full Cult for Trump**\
-`“Welcome to the convention, everybody,” Colbert said on Monday in an imitation of the president. “Take off your masks and put on your matching Nikes and your MAGA hats. Then drink up our bleach-flavored Kool-Aid.”`\
-https://nytimes.com/2020/08/25/arts/television/stephen-colbert-republican-national-convention.html?searchResultPosition=8
-
-**Pujols Moves Up, Passes A-Rod on Career RBIs Chart**\
-`Los Angeles Angels star Albert Pujols continued his climb up the career charts Monday night, passing Alex Rodriguez with his 2,087th RBI.`\
-https://nytimes.com/aponline/2020/08/25/sports/baseball/ap-bba-angels-pujols-rbis.html?searchResultPosition=9
-
-**Philippine Army May Seek Martial Law Return After Suicide Attacks**\
-`Twin blasts that killed 15 people in the volatile southern Philippines could both have been suicide bombings, the military said on Tuesday, representing an escalation of violence that the army chief said may require martial law to be re-imposed. `\
-https://nytimes.com/reuters/2020/08/25/world/asia/25reuters-philippines-security.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/25/business/25reuters-japan-economy-abenomics.html?searchResultPosition=10
 
