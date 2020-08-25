@@ -23,7 +23,7 @@ https://nytimes.com/aponline/2020/08/24/sports/hockey/bc-hkn-islanders-flyers.ht
 https://nytimes.com/aponline/2020/08/24/sports/tennis/ap-ten-western-southern-open-3rd-ld-writethru.html?searchResultPosition=6
 
 **Dragic Scores 23, 5th-Seeded Heat Sweep Pacers to Advance**\
-`Goran Dragic scored 23 points and the fifth-seeded Miami Heat completed a first-round sweep of the Indiana Pacers with a 99-87 victory Monday night.`\
+`Bam Adebayo got his first playoff series win, but the big man wasn't planning on celebrating for too long.`\
 https://nytimes.com/aponline/2020/08/24/sports/basketball/bc-bkn-pacers-heat.html?searchResultPosition=7
 
 **Murray Claims Biggest Win of Comeback at Western and Southern**\
