@@ -6,8 +6,8 @@ https://nytimes.com/reuters/2020/08/25/business/25reuters-toll-brothers-results.
 `Lezmond Mitchell faces the death penalty for his part in the 2001 murder of a Navajo woman and her 9-year-old granddaughter, a case that has raised issues about tribal sovereignty.`\
 https://nytimes.com/2020/08/25/us/politics/native-american-death-penalty.html?searchResultPosition=2
 
-**Nordstrom Quarterly Sales Plunge 53%**\
-`Nordstrom Inc reported a 53% fall in quarterly sales on Tuesday, as its stores were temporarily shut for about half of the reported quarter due to the COVID-19 pandemic. `\
+**Nordstrom Reports Bigger-Than-Expected Loss, Sales Plunge as Pandemic Hits**\
+`Nordstrom Inc reported a bigger-than-expected loss and a 53% fall in sales on Tuesday, as its stores were shut for about half of the reported quarter due to the COVID-19 pandemic, sending the department store chain's shares down about 7%. `\
 https://nytimes.com/reuters/2020/08/25/business/25reuters-nordstrom-results.html?searchResultPosition=3
 
 **The F.D.A. Commissioner’s Fuzzy Math**\
