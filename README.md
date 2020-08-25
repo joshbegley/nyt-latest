@@ -10,7 +10,7 @@ https://nytimes.com/aponline/2020/08/24/sports/basketball/ap-bkn-lillard-knee.ht
 `Democrats used their nominating convention last week to highlight several prominent Republicans who plan to cross party lines and vote for Joe Biden. On Monday, Republicans offered a counter: Georgia state Rep. Vernon Jones. `\
 https://nytimes.com/aponline/2020/08/24/us/politics/ap-us-election-2020-rnc-georgia-democrat.html?searchResultPosition=3
 
-**Exclsuive: FDA Commissioner Disputes Trump, Says No 'Deep State' Elements Delaying Vaccine**\
+**Exclusive: FDA Commissioner Disputes Trump, Says No 'Deep State' Elements Delaying Vaccine**\
 `The U.S. Food and Drug Administration (FDA) is not made up of "deep state" elements that are trying to delay a coronavirus vaccine as President Donald Trump has suggested, the agency's commissioner told Reuters on Monday.`\
 https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-health-coronavirus-usa-hahn-exclusive.html?searchResultPosition=4
 
