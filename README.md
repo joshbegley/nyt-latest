@@ -1,40 +1,40 @@
+**Parachutist Makes World's First Jump From Solar-Powered Plane**\
+`A parachutist completed the world's first jump from a solar-powered aircraft on Tuesday after the plane soared to a height of 1,520 metres (nearly 5,000 ft) over western Switzerland, Swiss organisers said.`\
+https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-swiss-science-stratos.html?searchResultPosition=1
+
+**Fierce Storm Surge Feared as Laura Bears Down on Gulf Coast**\
+`Tropical Storm Laura entered the warm and deep waters of the Gulf of Mexico Tuesday, gathering strength on a path to hit the U.S. coastline early Thursday as a major hurricane that could unleash a surge of seawater higher than a basketball hoop and swamp entire towns.`\
+https://nytimes.com/aponline/2020/08/25/us/ap-us-tropical-weather.html?searchResultPosition=2
+
+**Facebook Blocks Group That Discusses Thai Monarchy**\
+`Facebook has blocked in Thailand a group with more than a million members that engages in open discussion about the Thai monarchy, an institution that is staunchly protected from criticism by strict laws.`\
+https://nytimes.com/aponline/2020/08/25/business/ap-as-thailand-facebook.html?searchResultPosition=3
+
+**Exclusive: Nasdaq Files With SEC for IPO Alternative to Raise Funds**\
+`Exchange operator Nasdaq Inc has filed with U.S. regulators to change its rules to enable companies that debut on the stock market through a direct listing to raise capital, as an alternative to an initial public offering.`\
+https://nytimes.com/reuters/2020/08/25/business/25reuters-nasdaq-direct-listing-exclusive.html?searchResultPosition=4
+
+**Exclusive: Fauci Says Rushing Out a Vaccine Could Jeopardize Testing of Others**\
+`The top U.S. infectious diseases expert is warning that distributing a COVID-19 vaccine under special emergency use guidelines before it has been proved safe and effective in large trials is a bad idea that could have a chilling effect on the testing of other vaccines.`\
+https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-health-coronavirus-vaccine-approval-exclusive.html?searchResultPosition=5
+
+**In California Heatwave, Pandemic Makes It Hard to Cool Off**\
+`Before the COVID-19 pandemic shut down air-conditioned shopping malls and movie theaters, Debera Diaz and her adult son Joshua could have ducked inside to escape the 109 degree Fahrenheit heat that roasted their town near Sacramento last week.`\
+https://nytimes.com/reuters/2020/08/25/us/25reuters-usa-heatwave-california.html?searchResultPosition=6
+
 **Belarus Opposition Figures in Court After Night in Jail**\
 `Two leaders of the opposition in Belarus appeared in court on Tuesday after a night in jail, as the government pursues a crackdown on the few figures still at large, with more mass demonstrations planned against President Alexander Lukashenko.`\
-https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-belarus-election.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-belarus-election.html?searchResultPosition=7
 
 **Revisionist History at the R.N.C.**\
 `On the first night of the Republican National Convention, speaker after speaker tried to revise reality.`\
-https://nytimes.com/2020/08/25/us/politics/revisionist-history-at-the-rnc.html?searchResultPosition=2
+https://nytimes.com/2020/08/25/us/politics/revisionist-history-at-the-rnc.html?searchResultPosition=8
 
 **‘I May Destroy You’ Imagines a Path Back From Sexual Assault**\
 `In Monday’s season finale, Michaela Coel’s summer breakout hit offered some of the most cathartic moments of television I have ever seen.`\
-https://nytimes.com/2020/08/25/arts/television/i-may-destroy-you-sexual-assault.html?searchResultPosition=3
+https://nytimes.com/2020/08/25/arts/television/i-may-destroy-you-sexual-assault.html?searchResultPosition=9
 
 **‘Nomad’ Review: Werner Herzog Pays Tribute to a ‘Kindred Spirit’**\
 `Herzog honors the writer and explorer Bruce Chatwin in this stimulating and visually overwhelming documentary.`\
-https://nytimes.com/2020/08/25/movies/nomad-in-the-footsteps-of-bruce-chatwin-review.html?searchResultPosition=4
-
-**Kremlin: Navalny Poisoning Accusations 'Empty Noise'**\
-`The Kremlin on Tuesday rejected accusations of involvement in an alleged attack on Russian opposition leader Alexei Navalny who is in a coma in a German hospital, a day after doctors said tests indicated that he was poisoned.`\
-https://nytimes.com/aponline/2020/08/25/world/europe/ap-eu-russia-navalny.html?searchResultPosition=5
-
-**Sweden Steps Up Its Defense Activities in Baltic Sea Region**\
-`Sweden is stepping up its defense activities in the Baltic Sea region due to what a high-ranking official called “a deteriorating security situation" as Russia and NATO conduct military operations in the area.`\
-https://nytimes.com/aponline/2020/08/25/world/europe/ap-eu-sweden-baltic-sea-.html?searchResultPosition=6
-
-**DealBook: The Urge to Reverse Merge**\
-`SPACs are just getting started, according to major players on Wall Street.`\
-https://nytimes.com/2020/08/25/business/dealbook/spac-ipo-boom.html?searchResultPosition=7
-
-**Facebook Plans Legal Action After Thailand Tells It to Mute Critics**\
-`After a warning from the government, the company restricted access to a Facebook group critical of the Thai monarchy. But it said it would challenge the order.`\
-https://nytimes.com/2020/08/25/world/asia/thailand-facebook-monarchy.html?searchResultPosition=8
-
-**Millennial Money: 6 Great Recession Lessons That Still Apply**\
-`The Great Recession demolished jobs across the U.S., and it eventually came for mine, too. After graduating in 2009, I worked four months as an entry-level executive assistant at a nonprofit before being laid off.`\
-https://nytimes.com/aponline/2020/08/25/business/ap-nerdwallet-millennial-money-recession-lessons.html?searchResultPosition=9
-
-**How Reuters Analyzed Court Data on Qualified Immunity**\
-`Supreme Court Justice Sonia Sotomayor has repeatedly criticized her fellow justices for creating, as she put it in a 2018 dissent, an “absolute shield” for police officers accused of excessive force. So Reuters reporters decided to test her words.`\
-https://nytimes.com/reuters/2020/08/25/us/25reuters-usa-police-immunity-methodology.html?searchResultPosition=10
+https://nytimes.com/2020/08/25/movies/nomad-in-the-footsteps-of-bruce-chatwin-review.html?searchResultPosition=10
 
