@@ -35,6 +35,6 @@ https://nytimes.com/2020/08/24/crosswords/daily-puzzle-2020-08-25.html?searchRes
 https://nytimes.com/reuters/2020/08/24/world/asia/24reuters-newzealand-shooting-factbox.html?searchResultPosition=9
 
 **Varlamov Stops 29 Shots in Islanders' 4-0 Win Over Flyers**\
-`Semyon Varlamov stopped 29 shots, Andy Greene scored his first playoff goal in a decade and the New York Islanders opened their second-round series with a 4-0 win over the Philadelphia Flyers Monday night.`\
+`The New York Islanders came out hot to begin their second-round playoff series against Philadelphia, creating numerous good chances and scoring an early goal.`\
 https://nytimes.com/aponline/2020/08/24/sports/hockey/bc-hkn-islanders-flyers.html?searchResultPosition=10
 
