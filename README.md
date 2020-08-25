@@ -18,8 +18,8 @@ https://nytimes.com/reuters/2020/08/25/sports/tennis/25reuters-tennis-usopen-ost
 `Finnair has finalised a sale and leaseback arrangement for one of its new Airbus A350 planes as the airline grapples with the pandemic's impact on travel.`\
 https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-finnair-cash.html?searchResultPosition=5
 
-**AstraZeneca Starts Trial of Antibody Treatment for COVID-19**\
-`AstraZeneca said on Tuesday it started early stage trials for an antibody-based treatment for the prevention and treatment of COVID-19, as the British drugmaker also ploughs on with its vaccine candidate.`\
+**AstraZeneca Starts Trial of COVID-19 Antibody Treatment**\
+`AstraZeneca said on Tuesday it had begun testing an antibody-based treatment for the prevention and treatment of COVID-19, with the first participants dosed, adding to recent signs of progress on possible medical solutions to the disease. `\
 https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-health-coronavirus-astrazeneca-treatments.html?searchResultPosition=6
 
 **Thai Activists Answer Summonses Over Army Headquarters Rally**\
