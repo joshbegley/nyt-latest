@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/08/25/business/25reuters-virgin-australia-debt.
 `Former French Open champion Jelena Ostapenko is the latest player to withdraw from the U.S. Open, organisers of the tennis Grand Slam confirmed on Monday.`\
 https://nytimes.com/reuters/2020/08/25/sports/tennis/25reuters-tennis-usopen-ostapenko.html?searchResultPosition=3
 
-**Finnair Releases Cash With A350 Sale-Leaseback Deal**\
-`Finnair has finalised a sale and leaseback arrangement for one of its new Airbus A350 planes with Nomura Babcock & Brown and BBAM Aircraft Management, the airline said on Tuesday.    `\
+**Finnair Releases Cash With Airbus A350 Sale-Leaseback Deal**\
+`Finnair has finalised a sale and leaseback arrangement for one of its new Airbus A350 planes as the airline grapples with the pandemic's impact on travel.`\
 https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-finnair-cash.html?searchResultPosition=4
 
 **AstraZeneca Starts Trial of Antibody Treatment for COVID-19**\
