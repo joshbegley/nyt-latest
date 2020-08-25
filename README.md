@@ -1,40 +1,40 @@
-**Dancing in the Streets of Harlem, and Gathering to Dance, Merce-Style**\
-`What to watch this week: a celebratory film by Dance Theater of Harlem; “Sonic Gatherings,” inspired by Merce Cunningham Events; and a Mark Morris masterpiece.`\
-https://nytimes.com/2020/08/25/arts/dance/online-dance-streaming.html?searchResultPosition=1
+**Translate Bio, Sanofi COVID-19 Vaccine Candidate Produces Immune Response in Animal Studies**\
+`Translate Bio Inc said on Tuesday that an experimental coronavirus vaccine it developed with French drugmaker Sanofi SA induced immune response in early-stage non-human primate studies.`\
+https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-health-coronavirus-translate-bio-sanofi-fr.html?searchResultPosition=1
 
-**Former U.S. VP Gore Says Trump Is Putting 'Knee on the Neck of Democracy'**\
-`Former U.S. Vice President Al Gore on Tuesday accused President Donald Trump of trying to "put his knee on the neck of democracy" by undermining mail-in ballots and sowing doubts, without evidence, about the legitimacy of the Nov. 3 election.`\
-https://nytimes.com/reuters/2020/08/25/us/politics/25reuters-people-al-gore.html?searchResultPosition=2
+**Ghislaine Maxwell Loses Bid to Be Moved Into General Population at U.S. Jail**\
+`A U.S. judge rejected Ghislaine Maxwell's request to be moved into the general population at the Brooklyn jail where she is awaiting trial on charges she aided the late financier Jeffrey Epstein's sexual abuse of girls.`\
+https://nytimes.com/reuters/2020/08/25/us/25reuters-people-ghislaine-maxwell.html?searchResultPosition=2
 
-**Trump: Acting Homeland Security Secretary Will Lead Agency**\
-`President Donald Trump said Tuesday he will nominate acting Secretary of Homeland Security Chad Wolf to the top spot in the agency. `\
-https://nytimes.com/aponline/2020/08/25/us/politics/ap-us-trump-homeland-security.html?searchResultPosition=3
+**Kansas Candidate Who Admitted to Revenge Porn Back in Race**\
+`A 19-year-old Kansas House candidate who admitted to engaging in revenge porn and harassing girls online has reversed his decision to abandon a campaign that has seen him disavowed by many fellow Democrats.`\
+https://nytimes.com/aponline/2020/08/25/us/politics/ap-us-election-2020-kansas-revenge-porn-candidate.html?searchResultPosition=3
 
-**Nice Day Opens in Greenwich Village**\
-`Biryani bowls in the West Village, a caterer’s pivot to retail and more restaurant news.`\
-https://nytimes.com/2020/08/25/dining/nyc-restaurant-news.html?searchResultPosition=4
+**Tanzania's Main Opposition Parties Fail to Team Up for Vote**\
+`Tanzania’s main opposition parties failed to form a coalition Tuesday, dashing hopes of teaming up to defeat the longtime ruling party in the October presidential election.`\
+https://nytimes.com/aponline/2020/08/25/world/africa/ap-af-tanzania-election.html?searchResultPosition=4
 
-**Pakistan Eager to See Taliban Start Dialogue With Kabul: Foreign Minister**\
-`Pakistan urged the Taliban on Tuesday to start talks soon with the Afghan government to end decades of conflict, telling  visiting officials of the group that an intra-Afghan dialogue could help ensure regional stability.`\
-https://nytimes.com/reuters/2020/08/25/world/asia/25reuters-pakistan-afghanistan-taliban.html?searchResultPosition=5
+**Turkey Wants No Pre-Conditions,' Honest' EU Mediation for Talks With Greece**\
+`Turkey's foreign minister said on Tuesday Greece must abandon its "maximalist approach" and pre-conditions for dialogue to begin over disputed offshore Mediterranean resources, adding Ankara expects the EU to act as an "honest and objective" mediator. `\
+https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-turkey-germany-cavusoglu-greece.html?searchResultPosition=5
 
-**French New Coronavirus Infections Below Last Week's Highs**\
-`The French health ministry said it had recorded 3,304 new coronavirus infections on Tuesday, well below daily highs seen last week and taking the cumulative total to 248,158.`\
-https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-health-coronavirus-france-casusalties.html?searchResultPosition=6
+**Bank of Canada Says Pandemic to Test Inflation Expectations**\
+`The economic shock from the coronavirus pandemic will test public confidence in the Bank of Canada's 2% inflation target, a senior official at the bank said on Tuesday.`\
+https://nytimes.com/reuters/2020/08/25/us/25reuters-canada-cenbank.html?searchResultPosition=6
 
-**Iowa Farmers Unsure What's Next After Winds Flatten Corn**\
-`Usually this time of year, someone could get lost in the tightly packed sea of corn that surrounds farmer Rod Pierce's house in central Iowa.`\
-https://nytimes.com/aponline/2020/08/25/us/ap-us-severe-weather-midwest-corn.html?searchResultPosition=7
+**UN Council Rejects US Demand to 'Snap Back' Iran Sanctions**\
+`The president of the U.N. Security Council on Tuesday rejected the Trump administration’s demand to restore all U.N. sanctions on Iran, a move that drew an angry rebuke from the U.S. ambassador who accused opponents of supporting “terrorists.”`\
+https://nytimes.com/aponline/2020/08/25/world/middleeast/ap-un-united-states-iran.html?searchResultPosition=7
 
-**KFC Suspends ‘Its Finger Lickin’ Good’ Slogan Amid Pandemic**\
-`Don’t lick your fingers!`\
-https://nytimes.com/aponline/2020/08/25/business/ap-us-virus-outbreak-kfc-slogan.html?searchResultPosition=8
+**Falwell Says He's Resigned From Liberty University**\
+`Jerry Falwell Jr. said Tuesday that he has submitted his resignation as head of evangelical Liberty University. `\
+https://nytimes.com/aponline/2020/08/25/us/ap-us-liberty-university-falwell-.html?searchResultPosition=8
 
-**Read Our Reviews of 7 Important Books Released Today**\
-`Today’s a big day for book releases — from Jon Meacham to Daisy Johnson — and we lined up an all-star slate of reviewers. Dig in.`\
-https://nytimes.com/interactive/2020/08/25/books/review/jon-meacham-jack-schafer-harriet-lane-brian-stelter.html?searchResultPosition=9
+**AP Exclusive: Inmate Beaten to Death at Federal Lockup**\
+`The killing of an inmate who was beaten to death at a federal lockup in Indiana is under investigation by the FBI, according to documents obtained by The Associated Press about an attack that revives questions about safety in the beleaguered federal prison system.`\
+https://nytimes.com/aponline/2020/08/25/us/ap-us-prison-homicide-terre-haute.html?searchResultPosition=9
 
-**Jerry Falwell Jr. Confirms He Has Resigned as Head of Liberty University: Washington Post**\
-`Supporter of U.S. President Donald Trump and former head of the Christian institution Liberty University, Jerry Falwell Jr., confirmed on Tuesday he has resigned as president from the school, according to a report by the Washington Post.`\
-https://nytimes.com/reuters/2020/08/25/us/politics/25reuters-usa-falwell-resignation-report.html?searchResultPosition=10
+**U.S. Secretary of State Pompeo Arrives in Bahrain**\
+`U.S. Secretary of State Mike Pompeo arrived in the Gulf state of Bahrain on Tuesday as part of a Middle East tour following an accord between Israel and the United Arab Emirates to normalise relations. `\
+https://nytimes.com/reuters/2020/08/25/world/middleeast/25reuters-bahrain-usa-pompeo.html?searchResultPosition=10
 
