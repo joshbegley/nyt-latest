@@ -31,7 +31,7 @@ https://nytimes.com/reuters/2020/08/25/business/25reuters-kentuckyfriedchicken-m
 https://nytimes.com/reuters/2020/08/25/business/25reuters-health-coronavirus-britain-retail.html?searchResultPosition=8
 
 **Kremlin Says No Reason for Now to Investigate Alexei Navalny's Illness**\
-`The Kremlin said on Tuesday it saw no need for now to investigate the circumstances of opposition politician Alexei Navalny illness and that a German clinic's initial diagnosis of poisoning was not yet conclusive.`\
+`The Kremlin said on Tuesday it saw no need for now to investigate the circumstances leading up to opposition politician Alexei Navalny's illness and that a German clinic's initial diagnosis of poisoning was not yet conclusive.`\
 https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-russia-politics-navalny-kremlin.html?searchResultPosition=9
 
 **Questions Overshadow Melania Trump, Pompeo Speeches on Republican Day Two**\
