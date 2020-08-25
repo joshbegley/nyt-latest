@@ -1,40 +1,40 @@
-**Helen Macdonald Offers a Bird’s-Eye View of the Natural World**\
-`“Vesper Flights” is a collection of essays exploring the connection between humans and the world at large.`\
-https://nytimes.com/2020/08/25/books/review/vesper-flights-helen-macdonald.html?searchResultPosition=1
+**German Coalition Agrees on Insolvency Freeze Extension: Scholz**\
+`Germany's ruling coalition parties have reached an agreement on extending a freeze on insolvency filings but the details will only be announced later, Finance Minister Olaf Scholz said on Tuesday.`\
+https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-austria-germany-bankruptcy.html?searchResultPosition=1
 
-**The Trauma of the Civil War Lives On in Faulkner’s Fiction**\
-`“The Saddest Words,” by the scholar Michael Gorra, argues that America’s troubled racial past is the central, if often unspoken, theme at the heart of Faulkner’s work.`\
-https://nytimes.com/2020/08/25/books/review/the-saddest-words-michael-gorra.html?searchResultPosition=2
+**Republican Convention: Best and Worst Moments From Night 1**\
+`Our columnists and contributors give their rankings.`\
+https://nytimes.com/2020/08/25/opinion/rnc-best-worst-night-1.html?searchResultPosition=2
 
-**The New Wave of Young Black Activists**\
-`George Floyd’s killing galvanized a nation, but it took a different kind of vision to channel that energy into a movement for political change.`\
-https://nytimes.com/2020/08/25/magazine/black-visions-collective.html?searchResultPosition=3
+**‘El Jefe,’ by Alan Feuer: An Excerpt**\
+`An excerpt from “El Jefe,” by Alan Feuer`\
+https://nytimes.com/2020/08/25/books/review/el-jefe-by-alan-feuer-an-excerpt.html?searchResultPosition=3
 
-**The Extra Stigma of Mental Illness for African-Americans**\
-`In my Black community, therapy was stigmatized as something for people who could not handle challenges.`\
-https://nytimes.com/2020/08/25/well/mind/black-mental-health.html?searchResultPosition=4
+**‘The Last Great Road Bum,’ by Héctor Tobar: An Excerpt**\
+`An excerpt from “The Last Great Road Bum,” by Héctor Tobar`\
+https://nytimes.com/2020/08/25/books/review/the-last-great-road-bum-by-hector-tobar-an-excerpt.html?searchResultPosition=4
 
-**Jon Meacham on John Lewis, the Legend and the Man**\
-`Meacham’s “His Truth Is Marching On” tells the story of the young John Lewis up to the time he entered Congress.`\
-https://nytimes.com/2020/08/25/books/review/his-truth-is-marching-on-jon-meacham.html?searchResultPosition=5
+**In Salt Lake City, a Modernist Man Cave**\
+`On the site of a meth house, the founder of a real estate and design company builds his dream home: an unconventional sanctuary with a dark vibe.`\
+https://nytimes.com/2020/08/25/realestate/salt-lake-city-modernist-home.html?searchResultPosition=5
 
-**What It Took to Get El Chapo Behind Bars for Life**\
-`“El Jefe,” by the New York Times reporter Alan Feuer, tells the incredible story of how the legendarily elusive drug trafficker was finally captured for good.`\
-https://nytimes.com/2020/08/25/books/review/el-jefe-alan-feuer.html?searchResultPosition=6
+**From Meth House to Modernist Man Cave**\
+`The founder of a real estate and design company in Salt Lake City builds his dream home: an unconventional sanctuary with a dark vibe.`\
+https://nytimes.com/slideshow/2020/08/25/realestate/from-meth-house-to-modernist-man-cave.html?searchResultPosition=6
 
-**The Never-Ending War Between the White House and the Press**\
-`Harold Holzer’s “The Presidents vs. the Press” argues that conflicts between chief executives and journalists go back to the start of the Republic.`\
-https://nytimes.com/2020/08/25/books/review/the-presidents-vs-the-press-harold-holzer.html?searchResultPosition=7
+**Where the Produce Includes Pepperoni: The Pizza Farm**\
+`This Midwestern staple has grown ever more popular in the pandemic, bringing farmers and diners together in a socially distanced summer destination.`\
+https://nytimes.com/2020/08/25/dining/pizza-farms.html?searchResultPosition=7
 
-**Paul Theroux on a Globetrotting Novel Inspired by a Real Adventurer**\
-`Héctor Tobar’s “The Last Great Road Bum” follows the restless Joe Sanderson, who dashed from country to country in pursuit of adventure.`\
-https://nytimes.com/2020/08/25/books/review/hector-tobar-last-great-road-bum.html?searchResultPosition=8
+**Trump’s Fights Are Their Fights. They Have His Back Unapologetically.**\
+`Many supporters of President Trump said in interviews that he had succeeded on issues that matter to them. And they dismissed as unimportant the behavior that critics say makes him unfit for office.`\
+https://nytimes.com/2020/08/25/us/politics/trump-reelection-supporters.html?searchResultPosition=8
 
-**‘Sisters’ Builds a Gothic Plot to an Artful and Shocking Climax**\
-`The new novel, by Daisy Johnson, features a pair of troubled siblings, an isolated house in the country and a mysterious, dark deed.`\
-https://nytimes.com/2020/08/25/books/review/sisters-daisy-johnson.html?searchResultPosition=9
+**German Town Fears Ruin by U.S. Effort to Stop Russian Pipeline**\
+`Three U.S. senators and the Trump administration want to halt Gazprom’s Nord Stream 2 pipeline by imposing sanctions on a Baltic port that is supplying the project.`\
+https://nytimes.com/2020/08/25/world/europe/nord-stream-2-germany-us-russia.html?searchResultPosition=9
 
-**How to Make a Love Potion**\
-`Fill a glass jar one third with rose buds and the rest with honey. Even if you’re skeptical of magic, let yourself enjoy the sweetness.`\
-https://nytimes.com/2020/08/25/magazine/how-to-make-a-love-potion.html?searchResultPosition=10
+**With Hacks and Cameras, Beijing’s Electronic Dragnet Closes on Hong Kong**\
+`Under a new national security law, the police are targeting the social media accounts of executives, politicians and activists. American internet giants are struggling to respond.`\
+https://nytimes.com/2020/08/25/technology/hong-kong-national-security-law.html?searchResultPosition=10
 
