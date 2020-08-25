@@ -30,8 +30,8 @@ https://nytimes.com/aponline/2020/08/24/business/ap-as-virus-outbreak-asia.html?
 `Javier Báez hit two home runs and the Chicago Cubs became the second franchise in major league history to post 11,000 wins, beating the Detroit Tigers 9-3 on Monday night.`\
 https://nytimes.com/aponline/2020/08/24/sports/baseball/ap-bbo-cubs-tigers.html?searchResultPosition=8
 
-**Sanó, Cruz Homer as Twins Top Indians 3-2 in Series Opener**\
-`Miguel Sanó hit a two-run homer and Nelson Cruz connected for a solo shot to lead the injury-riddled Minnesota Twins to a 3-2 win over the Cleveland Indians on Monday night in the opener of a three-game series between the AL Central's top teams.`\
+**Twins Get Homers From Sanó, Cruz, Top Indians 3-2 in Opener**\
+`The Minnesota Twins are halfway to another division title. Now if they could just get fully healthy.`\
 https://nytimes.com/aponline/2020/08/24/sports/baseball/ap-bba-twins-indians.html?searchResultPosition=9
 
 **Aguilar Drives in 3 Runs, Marlins Outlast Nationals 11-8**\
