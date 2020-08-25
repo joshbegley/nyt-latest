@@ -1,40 +1,40 @@
+**At the Cookout**\
+`Dave Bardolph makes his New York Times Crossword debut with a meaty puzzle.`\
+https://nytimes.com/2020/08/24/crosswords/daily-puzzle-2020-08-25.html?searchResultPosition=1
+
 **Factbox: Quotes From Court Hearings for New Zealand Mosque Shooter**\
 `The gunman who killed 51 Muslim worshippers in New Zealand's worst mass shooting faces a life prison term, possibly without parole, with multi-day sentencing hearings taking place this week.`\
-https://nytimes.com/reuters/2020/08/24/world/asia/24reuters-newzealand-shooting-factbox.html?searchResultPosition=1
+https://nytimes.com/reuters/2020/08/24/world/asia/24reuters-newzealand-shooting-factbox.html?searchResultPosition=2
 
 **Varlamov Stops 29 Shots in Islanders' 4-0 Win Over Flyers**\
 `Semyon Varlamov stopped 29 shots, Andy Greene scored his first playoff goal in a decade and the New York Islanders opened their second-round series with a 4-0 win over the Philadelphia Flyers Monday night.`\
-https://nytimes.com/aponline/2020/08/24/sports/hockey/bc-hkn-islanders-flyers.html?searchResultPosition=2
+https://nytimes.com/aponline/2020/08/24/sports/hockey/bc-hkn-islanders-flyers.html?searchResultPosition=3
 
 **Pain in the Neck: Djokovic Gets By in 1st Post-Hiatus Match**\
 `Bothered by a bad neck that a trainer massaged twice, Novak Djokovic double-faulted seven times and trailed by a break in each set before avoiding the rash of upsets at the Western & Southern Open by taking the last four games for a 7-6 (2), 6-4 victory over Ricardas Berankis on Monday night.`\
-https://nytimes.com/aponline/2020/08/24/sports/tennis/ap-ten-western-southern-open-3rd-ld-writethru.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/24/sports/tennis/ap-ten-western-southern-open-3rd-ld-writethru.html?searchResultPosition=4
 
 **Dragic Scores 23, 5th-Seeded Heat Sweep Pacers to Advance**\
 `Goran Dragic scored 23 points and the fifth-seeded Miami Heat completed a first-round sweep of the Indiana Pacers with a 99-87 victory Monday night.`\
-https://nytimes.com/aponline/2020/08/24/sports/basketball/bc-bkn-pacers-heat.html?searchResultPosition=4
+https://nytimes.com/aponline/2020/08/24/sports/basketball/bc-bkn-pacers-heat.html?searchResultPosition=5
 
 **Murray Claims Biggest Win of Comeback at Western and Southern**\
 `Andy Murray claimed the biggest win of his comeback and a place in the last 16 of the Western and Southern Open on Monday, taking out self-destructing fifth seed Alexander Zverev 6-3 3-6 7-5.`\
-https://nytimes.com/reuters/2020/08/24/sports/tennis/24reuters-tennis-cincinnati-murray.html?searchResultPosition=5
+https://nytimes.com/reuters/2020/08/24/sports/tennis/24reuters-tennis-cincinnati-murray.html?searchResultPosition=6
 
 **American and Chinese Officials Take Pulse on Trade Deal, Six Months In**\
 `Trade negotiators from the two countries met by videoconference to review the progress in enacting their trade deal.`\
-https://nytimes.com/2020/08/24/business/economy/us-china-trade-deal.html?searchResultPosition=6
+https://nytimes.com/2020/08/24/business/economy/us-china-trade-deal.html?searchResultPosition=7
 
 **China Agrees With U.S. to Push Forward Implementation of Phase 1 Trade Deal**\
 `China said on Tuesday it agreed with the United States to continue pushing forward the implementation of the bilateral Phase 1 trade deal reached earlier this year during a call between the two countries' top trade negotiators.`\
-https://nytimes.com/reuters/2020/08/24/business/24reuters-usa-trade-china-mofcom.html?searchResultPosition=7
+https://nytimes.com/reuters/2020/08/24/business/24reuters-usa-trade-china-mofcom.html?searchResultPosition=8
 
 **Rock Fall at Grand Canyon Reveals Ancient Animal Footprints**\
 `It's something like a modern-day chuckwalla, side-stepping sand dunes on an island in what now is Grand Canyon National Park. `\
-https://nytimes.com/aponline/2020/08/24/us/ap-us-grand-canyon-fossil-footprints.html?searchResultPosition=8
+https://nytimes.com/aponline/2020/08/24/us/ap-us-grand-canyon-fossil-footprints.html?searchResultPosition=9
 
 **Rohingya Politicians Excluded From Myanmar Election**\
 `Aspiring politician Abdul Rasheed was born in Myanmar and is one of the very few members of the Rohingya Muslim minority to have Myanmar citizenship.`\
-https://nytimes.com/reuters/2020/08/24/world/asia/24reuters-myanmar-election-rohingya.html?searchResultPosition=9
-
-**Key Hyundai Affiliate Aims to Muscle Into Electric Vehicle Market as Longtime Suppliers Turn to Outsiders**\
-`As Tesla Inc accelerates the shift to electric cars, Hyundai Motor's loyal suppliers have increasingly turned to "outsiders" for parts - but now the South Korean carmaker's own supply company, Mobis, is plunging into the game.`\
-https://nytimes.com/reuters/2020/08/24/business/24reuters-hyundai-mobis-diversification.html?searchResultPosition=10
+https://nytimes.com/reuters/2020/08/24/world/asia/24reuters-myanmar-election-rohingya.html?searchResultPosition=10
 
