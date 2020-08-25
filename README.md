@@ -1,5 +1,5 @@
 **Lionel Messi Tells Barcelona He Wants to Leave**\
-`The Argentine star has invoked a clause in his contract that would allow him to leave for free before the end of his contract. The club is expected to argue his decision is not valid.`\
+`The Argentine star invoked a clause in his contract that would allow him to leave free before the end of his contract. The club is expected to argue his decision is not valid.`\
 https://nytimes.com/2020/08/25/sports/soccer/lionel-messi-barcelona.html?searchResultPosition=1
 
 **Brazil Prosecutors Sue JBS to Test Chicken Plant Workers for COVID-19**\
