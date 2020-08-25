@@ -10,7 +10,7 @@ https://nytimes.com/2020/08/24/opinion/bidens-loose-lips-could-sink-his-chances.
 `China reported 14 new COVID-19 cases for Aug. 24, all of which were imported infections involving travellers from overseas, the country's health authority said on Tuesday.  `\
 https://nytimes.com/reuters/2020/08/24/world/asia/24reuters-health-coronavirus-china-toll.html?searchResultPosition=3
 
-**Republican Convention Live Analysis and Video**\
+**Watch Live: Republican Convention Analysis and Video**\
 `On the opening night of the Republican National Convention, the primetime lineup includes Nikki Haley and Donald Trump Jr. Our correspondents are following every speaker and providing live analysis and insights.`\
 https://nytimes.com/interactive/2020/08/24/us/politics/live-rnc-stream-analysis.html?searchResultPosition=4
 
