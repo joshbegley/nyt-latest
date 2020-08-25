@@ -10,7 +10,7 @@ https://nytimes.com/reuters/2020/08/25/world/asia/25reuters-health-coronavirus-h
 `Police in Portland, Oregon late on Monday declared a "riot" after protesters lit a fire at the police association offices near the U.S. city's North Lombard Street and North Campbell Avenue area.`\
 https://nytimes.com/reuters/2020/08/25/us/25reuters-global-race-portland-protests.html?searchResultPosition=3
 
-**Kenosha County Fires in Kenosha Reflect Anger After Police Shooting of Jacob Blake**\
+**Fires in Kenosha Reflect Anger After Police Shooting of Jacob Blake**\
 `Some Wisconsin residents were stunned as buildings went up in flames. Protesters were upset that the police shot Mr. Blake, a Black man, in the back as he tried to enter a vehicle.`\
 https://nytimes.com/2020/08/25/us/jacob-blake-kenosha-fires.html?searchResultPosition=4
 
