@@ -15,7 +15,7 @@ https://nytimes.com/reuters/2020/08/25/business/25reuters-health-coronavirus-chi
 https://nytimes.com/reuters/2020/08/25/world/asia/25reuters-health-coronavirus-hongkong.html?searchResultPosition=4
 
 **Portland Police Declare 'Riot' as Protesters Light Fire at Offices**\
-`Police in Portland, Oregon late on Monday declared a "riot" after protesters lit a fire at the police association offices near the U.S. city's North Lombard Street and North Campbell Avenue area.`\
+`Police in Portland declared a "riot" and ordered protesters to disperse late on Monday after a fire was lit at police association offices.`\
 https://nytimes.com/reuters/2020/08/25/us/25reuters-global-race-portland-protests.html?searchResultPosition=5
 
 **Fires in Kenosha Reflect Anger After Police Shooting of Jacob Blake**\
