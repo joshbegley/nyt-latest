@@ -1,4 +1,4 @@
-**Exclusive: FDA Commissioner Disputes Trump, Says No 'Deep State' Elements Delaying Vaccine**\
+**Exclsuive: FDA Commissioner Disputes Trump, Says No 'Deep State' Elements Delaying Vaccine**\
 `The U.S. Food and Drug Administration (FDA) is not made up of "deep state" elements that are trying to delay a coronavirus vaccine as President Donald Trump has suggested, the agency's commissioner told Reuters on Monday.`\
 https://nytimes.com/reuters/2020/08/24/world/europe/24reuters-health-coronavirus-usa-hahn-exclusive.html?searchResultPosition=1
 
