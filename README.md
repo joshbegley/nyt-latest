@@ -11,7 +11,7 @@ https://nytimes.com/aponline/2020/08/25/world/europe/ap-eu-europe-china.html?sea
 https://nytimes.com/aponline/2020/08/25/us/ap-us-virus-outbreak-alabama-3rd-ld-writethru.html?searchResultPosition=3
 
 **UK PM Johnson 'Really Pleased' With Work Done to Reopen Schools**\
-`British Prime Minister Boris Johnson said on Tuesday he was "really pleased" by the work teachers had done to get ready to reopen from next week, a test of his government after it failed to return all children to schools earlier this year.`\
+`British Prime Minister Boris Johnson said on Tuesday he was "really pleased" by the work done to get ready to reopen schools from next week, a test of his government after it failed to return all children to schools earlier this year.`\
 https://nytimes.com/reuters/2020/08/25/world/europe/25reuters-health-coronavirus-britain-johnson.html?searchResultPosition=4
 
 **Indian Government Consumption Key to Growth in Economy Amid Pandemic, Central Bank Says**\
