@@ -10,8 +10,8 @@ https://nytimes.com/reuters/2020/08/26/world/middleeast/26reuters-health-coronav
 `Authorities in Berlin on Wednesday banned several protests planned for the weekend against coronavirus pandemic measures. The protests have drawn support from the German far right.`\
 https://nytimes.com/aponline/2020/08/26/world/europe/ap-eu-virus-outbreak-germany.html?searchResultPosition=3
 
-**Dozens Killed as Flash Floods Ravage City in Afghanistan**\
-`At least 68 people in the city of Charikar were said to have been killed in the overnight deluge, and the toll was likely to rise.`\
+**At Least 70 Killed as Flash Floods Ravage City in Afghanistan**\
+`The toll in Charikar was expected to rise as rescue workers sift through the wreckage of dozens of destroyed homes.`\
 https://nytimes.com/2020/08/26/world/asia/afghanistan-floods-charikar.html?searchResultPosition=4
 
 **Germany to Intensify Monitoring of Quarantined Travellers**\
