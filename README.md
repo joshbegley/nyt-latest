@@ -1,40 +1,40 @@
+**Dutch Foreign Minister Meets Chinese Counterpart**\
+`Dutch Foreign Minister Stef Blok met Wednesday with his Chinese counterpart Wang Yi, saying he would discuss topics ranging from trade ties to concerns about human rights violations in China and the contentious national security law for Hong Kong.`\
+https://nytimes.com/aponline/2020/08/26/world/europe/ap-eu-netherlands-china.html?searchResultPosition=1
+
+**Theater to Stream: A World of Fringe and More Apples**\
+`Festivals from Sydney and Edinburgh move online, and Richard Nelson mixes in another of his theatrical franchises to conclude a Zoom trilogy.`\
+https://nytimes.com/2020/08/26/theater/theater-to-stream.html?searchResultPosition=2
+
+**Flash Floods Rip Through Afghan City**\
+`Flooding from heavy rains in Charikar, Afghanistan, killed nearly 80 people, according to an official, and destroyed dozens of homes.`\
+https://nytimes.com/video/us/100000007308896/afghan-floods-video.html?searchResultPosition=3
+
+**Luka Doncic Had an Off Night. He’s Still Special.**\
+`In this week’s newsletter, Marc Stein discusses Luka Doncic’s playoff performances, popular coaching candidates and Kobe’s first N.B.A. game.`\
+https://nytimes.com/2020/08/26/sports/basketball/nba-luka-doncic.html?searchResultPosition=4
+
+**Colonial Pipeline to Continue Normal Operations Ahead of Hurricane Laura**\
+`Colonial Pipeline, the largest refined products pipeline in the United States, will continue normal operations as Hurricane Laura heads toward the U.S. Gulf Coast, the pipeline company said on Wednesday.`\
+https://nytimes.com/reuters/2020/08/26/us/26reuters-storm-laura-energy-colonial.html?searchResultPosition=5
+
 **‘Rising Phoenix’ Review: Carrying the Paralympic Torch**\
 `This Netflix documentary about the Paralympic Games, which spotlights a series of its most inspiring athletes, could double as an ad for the event.`\
-https://nytimes.com/2020/08/26/movies/rising-phoenix-review.html?searchResultPosition=1
+https://nytimes.com/2020/08/26/movies/rising-phoenix-review.html?searchResultPosition=6
 
 **Facebook Warns Advertisers on Changes Due to Upcoming Apple OS**\
 `Facebook Inc outlined some changes on Wednesday that might affect advertisers as thousands of iPhone users are expected to upgrade to Apple Inc's upcoming operating system.`\
-https://nytimes.com/reuters/2020/08/26/business/26reuters-facebook-advertising-apple.html?searchResultPosition=2
+https://nytimes.com/reuters/2020/08/26/business/26reuters-facebook-advertising-apple.html?searchResultPosition=7
 
 **Chief: Still Trying to Learn How 'Dead' Woman Was Alive**\
 `A suburban Detroit fire chief said Wednesday that he still can't explain why a 20-year-old woman declared dead at her home was discovered alive  hours later at a funeral home.`\
-https://nytimes.com/aponline/2020/08/26/us/ap-us-funeral-home-woman-alive.html?searchResultPosition=3
+https://nytimes.com/aponline/2020/08/26/us/ap-us-funeral-home-woman-alive.html?searchResultPosition=8
 
 **Inside One Man’s 30-Year Fight to Manage His Severe Eczema**\
 `Severe eczema was extremely challenging for Sirish Pulusani. Then a first-of-its-kind biologic treatment helped him manage his condition.`\
-https://nytimes.com/paidpost/dupixent/inside-one-mans-30-year-fight-to-manage-his-severe-eczema.html?searchResultPosition=4
+https://nytimes.com/paidpost/dupixent/inside-one-mans-30-year-fight-to-manage-his-severe-eczema.html?searchResultPosition=9
 
 **How Racist Urban Planning Left Some Neighborhoods to Swelter**\
 `Also this week, forecasters see opportunity in weird weather`\
-https://nytimes.com/2020/08/26/climate/racist-urban-planning.html?searchResultPosition=5
-
-**Exclusive: Digital Colony Signals Interest in Crown Castle's Fiber Business, Say Sources**\
-`Buyout firm Digital Colony Partners has contacted Crown Castle International Corp to signal interest in buying a minority stake in its fiber-cable business, according to three people familiar with the matter.`\
-https://nytimes.com/reuters/2020/08/26/business/26reuters-crowncastle-m-a-exclusive.html?searchResultPosition=6
-
-**U.S. Marks 100 Years Since Women Given Right to Vote**\
-`The United States marked the centennial of the constitutional amendment that granted women the right to vote on Wednesday with celebrations of the "historic victory" as well as pleas by female politicians to honor the milestone by voting in November's presidential election.`\
-https://nytimes.com/reuters/2020/08/26/us/26reuters-usa-politics-womens-vote.html?searchResultPosition=7
-
-**New York Philharmonic Restarts the Music With a Pickup Truck**\
-`The NY Phil Bandwagon will roll out to neighborhoods around the city three days a week, through mid-October.`\
-https://nytimes.com/2020/08/26/arts/music/new-york-philharmonic.html?searchResultPosition=8
-
-**Schools Briefing: Parents in New York City Are Stressed**\
-`Plus, new data on outbreaks at college campuses.`\
-https://nytimes.com/2020/08/26/us/germany-nyc-school-reopening.html?searchResultPosition=9
-
-**West African Mediators Proposed 12-Month Transitional Government in Mali**\
-`West African mediators told Mali's military coup leaders the region would accept a transitional government led by a civilian or a retired army officer for a maximum of 12 months, Nigeria's presidency said in a statement on Thursday.`\
-https://nytimes.com/reuters/2020/08/26/world/africa/26reuters-mali-security-mediators.html?searchResultPosition=10
+https://nytimes.com/2020/08/26/climate/racist-urban-planning.html?searchResultPosition=10
 
