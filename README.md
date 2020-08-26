@@ -6,7 +6,7 @@ https://nytimes.com/aponline/2020/08/25/sports/baseball/ap-bbo-pirates-white-sox
 `The second day of the Republican National Convention started with a decidedly different, more positive tone, with an emphasis on Americans who say have they benefited from President Donald Trump’s policies.`\
 https://nytimes.com/aponline/2020/08/25/us/politics/ap-us-election-2020-rnc-takeaways.html?searchResultPosition=2
 
-**Hurricane Laura Strengthens in the Gulf and Rekindles Dread from Past Storms**\
+**Hurricane Laura Strengthens in the Gulf and Rekindles Dread From Past Storms**\
 `Hurricane Laura is expected to hit the coast of Texas and Louisiana near the anniversary of Harvey, one of the most disastrous storms the region has experienced.`\
 https://nytimes.com/2020/08/25/us/hurricane-laura-louisiana-texas.html?searchResultPosition=3
 
