@@ -34,7 +34,7 @@ https://nytimes.com/aponline/2020/08/26/sports/baseball/ap-bbn-rockies-diamondba
 `Eric Trump echoed falsehoods of his father, Melania Trump credited her husband with a dubious religious first, and the president's economic adviser wholly distorted the conditions Donald Trump inherited as Republicans stepped up to praise him at their national convention Tuesday.`\
 https://nytimes.com/aponline/2020/08/26/us/politics/ap-us-election-2020-rnc-fact-check.html?searchResultPosition=9
 
-**Novartis Drug Candidate Reaches Goal in Chronic Myeloid Leukaemia Study**\
-`Swiss drugmaker Novartis said on Wednesday that its drug candidate asciminib beat Pfizer's Bosulif in a late-stage study against chronic myeloid leukaemia by producing a superior major molecular response (MMR) rate at 24 weeks.`\
+**Novartis Push to Expand Cancer Arsenal Gets Trial Win Against Pfizer Drug**\
+`Novartis drug candidate asciminib notched a trial win against Pfizer's Bosulif, the Swiss drugmaker said on Wednesday, as it pushes to expand medicines for chronic myeloid leukaemia in patients for whom other treatments stopped working.`\
 https://nytimes.com/reuters/2020/08/26/world/europe/26reuters-novartis-leukaemia.html?searchResultPosition=10
 
